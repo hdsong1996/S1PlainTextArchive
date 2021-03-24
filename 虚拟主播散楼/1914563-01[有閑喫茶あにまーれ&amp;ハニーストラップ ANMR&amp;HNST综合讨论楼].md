@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-02 18:18** 
+> ## **本文件最后更新于2021-02-21 15:45** 
 
 
 
@@ -291,14 +291,7 @@ anmr新人的鸡感觉很强，以后可能就是茶店歌姬担当+1了
 ####  wsotaku  
 ##### 17#       发表于 2020-2-25 15:58
 
-
-
-
-这团没了eri和蝙蝠妹就赶紧滚进历史垃圾堆吧
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4868,4 +4861,831 @@ anna这个50连发可爱pose太萌了
 
 
 
-                                            
+
+
+-----
+
+####  huanshen  
+##### 156#       发表于 2020-12-12 11:46
+
+
+
+
+774inc音乐祭典前3D联动，hnst全员带因幡组长和uge，好像有重大发表？
+
+直播地址:https://youtu.be/AVItcZz2OAA
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 157#       发表于 2020-12-12 12:26
+
+
+
+
+重大发表，3D偶像服发表。音乐祭典那天全员都是偶像服3D，还未3D化的新成员也是。
+
+就是为啥让因幡组长出来发表啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/12/122538en0cxro1umu4a0cn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20201212_122102.jpg</strong> (432.14 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 12:25 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 158#       发表于 2020-12-12 12:56
+
+
+
+ 本帖最后由 huanshen 于 2020-12-19 13:54 编辑 
+
+animare偶像服3D视觉图发表
+
+<img src="https://img.saraba1st.com/forum/202012/12/125432vx4wggb6pn0eighq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>EpAtttmUwAAvsxH.jpeg</strong> (305.86 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 12:54 上传
+
+
+
+
+
+[https://twitter.com/AniMare_cafe/status/1337619356780355584](https://twitter.com/AniMare_cafe/status/1337619356780355584)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 巨尻压面饼| + 1|买了animare的票，有新人3D披露新衣服新曲.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 159#       发表于 2020-12-19 14:02
+
+
+
+
+774inc音乐祭典免费部分
+
+animare:[https://youtu.be/b-x8EhxHrEw](https://youtu.be/b-x8EhxHrEw)
+
+vapart:[https://youtu.be/uxPCYl8xcxw](https://youtu.be/uxPCYl8xcxw)
+
+sugarlyric:[https://youtu.be/7n457Xn5Tsg](https://youtu.be/7n457Xn5Tsg)
+
+honeystrap:[https://youtu.be/TFEaL6L_iHk](https://youtu.be/TFEaL6L_iHk)
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| winda| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 160#       发表于 2020-12-19 20:56
+
+
+
+
+看完了全程，还是挺感动的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+不过时间安排上有点小问题，animare篇章安排的时间有点紧了，新人都只能唱一首，意犹未尽啊
+
+
+syl，774inc音乐祭典谷子发售 受注生产 1/4日截止
+
+购买地址:[https://774inc.spwn.jp/events/](https://774inc.spwn.jp/events/)
+
+<img src="https://img.saraba1st.com/forum/202012/19/204759dawzvau2sduabvq7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>EpmeH4yUwAYW26g.jpeg</strong> (230.45 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 20:47 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 161#       发表于 2020-12-22 00:01
+
+
+
+
+刚刚白柴联动直播发表，27日白柴有新衣装披露直播
+
+<img src="https://img.saraba1st.com/forum/202012/21/235704u0ihqt4gxqqyxl4v.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20201221_235054.jpg</strong> (385.95 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-21 23:57 上传
+
+
+
+
+
+
+
+syl，animare的两位新人这周收益化解禁，会员拖就算了，774inc怎么连这种事也要拖<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 162#       发表于 2020-12-27 10:22
+
+
+
+
+今晚animare的白宮みみ和羽柴なつみ新衣装发表
+
+19时（日本时间）羽柴なつみ
+
+待机间:[https://youtu.be/gtSeJ5LciAQ](https://youtu.be/gtSeJ5LciAQ)
+
+20时（日本时间）白宮みみ
+
+待机间:[https://youtu.be/ZRxQJmsZbPM](https://youtu.be/ZRxQJmsZbPM)
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 163#       发表于 2020-12-27 19:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49857248&amp;ptid=1914563" target="_blank">huanshen 发表于 2020-12-27 10:22</a>
+
+今晚animare的白宮みみ和羽柴なつみ新衣装发表
+
+19时（日本时间）羽柴なつみ
+
+待机间:https://youtu.be/gtSeJ ...</blockquote>
+みみ真名泄露删档重开了，20时30分（日本时间）开始<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+新待机间:[https://youtu.be/pPRjteIO05w](https://youtu.be/pPRjteIO05w)
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 164#       发表于 2020-12-27 20:49
+
+
+
+ 本帖最后由 huanshen 于 2020-12-27 20:50 编辑 
+
+羽柴なつみ和白宮みみ第二套衣装的官方视觉图
+
+<img src="https://img.saraba1st.com/forum/202012/27/204758vb217m5mmx5xxmb2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>EqPlosZU8AAHD6P.jpeg</strong> (98.77 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-27 20:47 上传
+
+
+
+
+
+[https://twitter.com/AniMare_cafe/status/1343169703032750081](https://twitter.com/AniMare_cafe/status/1343169703032750081)
+
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 165#       发表于 2020-12-28 19:11
+
+
+
+ 本帖最后由 huanshen 于 2020-12-28 19:56 编辑 
+
+vapart的小森めと和不磨わっと新衣装披露直播时间确定。配图大草，vapart这次走性感风么<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/28/190541p1d212we8eie3z94.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>EqUZYpVVoAAc9i1.jpeg</strong> (192.78 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-28 19:05 上传
+
+
+
+
+
+[https://twitter.com/Met_Komori/status/1343507981183320064](https://twitter.com/Met_Komori/status/1343507981183320064)
+
+<img src="https://img.saraba1st.com/forum/202012/28/190542i9q0g70i60b9ppgj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>EqUVlctVEAEdk1Y.jpeg</strong> (192.75 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-28 19:05 上传
+
+
+
+
+
+[https://twitter.com/Wat_Huma/status/1343504650868125696](https://twitter.com/Wat_Huma/status/1343504650868125696)
+
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 166#       发表于 2021-1-2 16:30
+
+
+
+
+今晚vapart的小森めと和不磨わっと新衣装披露
+
+20时（日本时间）小森めと
+
+待机间:https://youtu.be/4Z6p4ki9SOA
+
+21时（日本时间）不磨わっと
+
+待机间:https://youtu.be/SDw7cuVschw
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 167#       发表于 2021-1-10 18:01
+
+
+
+13日20时（日本时间）日ノ隈らん新衣装发表，还以为没了呢<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202101/10/164641tqqawkzhf7a37owq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>ErVtw-8VQAM3BdS.jpeg</strong> (16.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-10 16:46 上传
+
+
+
+
+
+[https://twitter.com/Ran_Hinokuma/status/1348104355585564674](https://twitter.com/Ran_Hinokuma/status/1348104355585564674)
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 168#       发表于 2021-1-13 01:52
+
+
+
+
+今晚20时（日本时间）日ノ隈らん新衣装披露
+
+待机间:[https://youtu.be/5OoxzrSOEEw](https://youtu.be/5OoxzrSOEEw)
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 169#       发表于 2021-1-13 20:45
+
+
+
+
+绿熊新衣装官方视觉图，原来是新年风才拖这么久啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202101/13/203813hmhs18udvmayv8wp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>ErnJg8MVEAUqtPD.jpeg</strong> (47.07 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-13 20:38 上传
+
+
+
+
+
+[https://twitter.com/AniMare_cafe/status/1349331163530186757](https://twitter.com/AniMare_cafe/status/1349331163530186757)
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 170#       发表于 2021-1-22 23:15
+
+
+
+
+
+柚原いづみ诞生日倒计时直播正在进行
+
+直播地址:[https://youtu.be/bQ-Ur6th9Bs](https://youtu.be/bQ-Ur6th9Bs)
+
+诞生日纪念谷子 受注生产 2/1日截止
+
+<img src="https://img.saraba1st.com/forum/202101/22/230917a8qqdmpkmu6d667p.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>EsWEl5QVoAEDtEd.jpeg</strong> (223.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-22 23:09 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 171#       发表于 2021-1-26 22:39
+
+
+
+
+
+anmr新成员发表，中间的月野木ちろる是个人势换皮加入。又一个不去vapart的，难道anmr给的支援比较多么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202101/26/220614q5v5hphbh8hfh6s1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>EsqX54GVoAA6dQb.jpeg</strong> (288.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-26 22:06 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 172#       发表于 2021-1-29 21:08
+
+
+
+
+羽柴なつみ休止
+
+<img src="https://img.saraba1st.com/forum/202101/29/210735qi1e200504e0nn50.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>Es5r4rjVgAEWAw8.jpeg</strong> (24.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-29 21:07 上传
+
+
+
+
+
+
+https://twitter.com/Natsumi_Hashiba/status/1355139162991546372
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 173#       发表于 2021-1-29 21:21
+
+
+
+
+anmr是什么虚拟血汗工厂吗，怎么人员流动这么快的！
+
+
+
+
+
+
+
+-----
+
+####  zore  
+##### 174#       发表于 2021-1-29 21:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">因为是小动物所以进动物园
+
+syl848这突发性耳聋是什么怪病<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 175#       发表于 2021-1-30 22:51
+
+
+
+
+刚刚sglr联动发表，2/11日新衣装披露直播
+
+
+<img src="https://img.saraba1st.com/forum/202101/30/225021yupzofmppgfxjoim.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210130_224905.jpg</strong> (137.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-30 22:50 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 176#       发表于 2021-2-1 23:09
+
+
+
+
+虎城アンナ诞生日倒计时直播正在进行
+
+直播地址:https://youtu.be/QnjnwzPOcdU
+
+诞生日纪念谷子 受注生产 2/15日截止
+
+购买地址:https://774inc.spwn.jp/events/SugarLyric/goods
+
+<img src="https://img.saraba1st.com/forum/202102/01/230844g8l0056t16001f1u.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210201_230533.jpg</strong> (300.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-1 23:08 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 177#       发表于 2021-2-11 00:37
+
+
+
+
+今晚sugerlyric的虎城アンナ、獅子王クリス和龍ヶ崎リン新衣装发表
+
+19时（日本时间）虎城アンナ
+
+待机间:https://youtu.be/gTMcsz8rKek
+
+19时30分（日本时间）獅子王クリス
+
+待机间:https://youtu.be/rwLGEHY3OM4
+
+20时（日本时间）龍ヶ崎リン
+
+待机间:https://youtu.be/WtG-cM6Q14Y
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 178#       发表于 2021-2-11 20:00
+
+
+
+
+sugarlyric的虎城アンナ、獅子王クリス和龍ヶ崎リン第二套衣装的官方视觉图
+
+<img src="https://img.saraba1st.com/forum/202102/11/195932ercyyyddy0cqbkuz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>Et8YL-IVoAA7GSm.jpeg</strong> (170.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-11 19:59 上传
+
+
+
+
+
+
+https://twitter.com/SugarLyric_PI/status/1359832392043667464
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 179#       发表于 2021-2-16 20:27
+
+
+
+
+uge二周年纪念3D直播，vapart五人都在
+
+直播地址:https://youtu.be/0vf1NbJ19Go
+
+二周年纪念谷子贩售中 受注生产 3/1日截止
+
+购买地址:https://774inc.spwn.jp/events/200415-VApArt/goods
+
+<img src="https://img.saraba1st.com/forum/202102/16/202636ved2emsx2dcqccxq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>EuWMez_VcAcQe1l.jpeg</strong> (59.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-16 20:26 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 180#       发表于 2021-2-21 18:58
+
+
+
+
+月野木ちろる身体不适，去医院检查后医生给出必须治疗的意见，与运营商讨后决定暂时停止活动
+
+<img src="https://img.saraba1st.com/forum/202102/21/185607usjs1e255cestj2g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>EuvBPSOUYAAs3SI.jpeg</strong> (36.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-21 18:56 上传
+
+
+
+
+
+
+https://twitter.com/tirol0_0lorit/status/1363398050228576256
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 181#       发表于 2021-2-21 23:19
+
+
+
+
+風見くく、柚原いづみ一周年重大发表，明日初始衣装2.0发布
+
+20时（日本时间）風見くく
+
+待机间:
+
+20时30分（日本时间）柚原いづみ
+
+待机间:
+
+<img src="https://img.saraba1st.com/forum/202102/21/231915ps2lsxci0skym4z4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>EuwmJLEUYAI8QB9.jpeg</strong> (185.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-21 23:19 上传
+
+
+
+
+
+
+
+
+
+                                           
