@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2020-03-08 20:01** 
 
 
-
 -----
 
 ####  hgcg-w  
 ##### 1#       楼主       发表于 2019-10-22 23:05
-
 
 
  本帖最后由 hgcg-w 于 2020-2-1 17:53 编辑 
@@ -15,25 +13,13 @@
 <img src="http://wx2.sinaimg.cn/large/bcfcde0agy1ga936s4se0j20i20pkjxd.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 2#       发表于 2019-10-22 23:07
 
 
-
-
 明年会不会没肉搏了？
-
-
-
-
-
 
 
 -----
@@ -42,14 +28,7 @@
 ##### 3#       发表于 2019-10-22 23:09
 
 
-
-
 年年都问有没有，不腻吗你们
-
-
-
-
-
 
 
 -----
@@ -58,14 +37,7 @@
 ##### 4#       发表于 2019-10-22 23:10
 
 
-
-
 简称该叫什么
-
-
-
-
-
 
 
 -----
@@ -74,16 +46,9 @@
 ##### 5#       发表于 2019-10-22 23:10
 
 
-
-
 植物
 医生
 奶妈
-
-
-
-
-
 
 
 -----
@@ -92,14 +57,7 @@
 ##### 6#       发表于 2019-10-22 23:11
 
 
-
-
 爆莉萌天使
-
-
-
-
-
 
 
 -----
@@ -108,17 +66,9 @@
 ##### 7#         楼主| 发表于 2019-10-22 23:12
 
 
-
-
-
 明年可能是医疗题材？
 
 “XXXX（明年粉红的名字），为什么你不和妖精契约就能变Q娃？为什么你能变出XXXX（道具名）？为什么变身后会头疼？”
-
-
-
-
-
 
 
 -----
@@ -127,16 +77,9 @@
 ##### 8#       发表于 2019-10-22 23:13
 
 
-
-
 不如叫医娃（伊娃）吧，或者医q（eq）？
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -145,14 +88,7 @@
 ##### 9#       发表于 2019-10-22 23:17
 
 
-
-
 翻译成什么
-
-
-
-
-
 
 
 -----
@@ -161,14 +97,7 @@
 ##### 10#       发表于 2019-10-22 23:22
 
 
-
-
 2L可以的
-
-
-
-
-
 
 
 -----
@@ -177,17 +106,10 @@
 ##### 11#       发表于 2019-10-22 23:23
 
 
-
-
 治愈Q娃？
 
 
 Healing的话，大概就是柔术按摩、芳香疗法和医院医疗之类的吧，题材上来说芳香疗法最有可能，要是能看到用柔拳的Q娃我也是一万个支持<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -196,14 +118,7 @@ Healing的话，大概就是柔术按摩、芳香疗法和医院医疗之类的�
 ##### 12#       发表于 2019-10-22 23:23
 
 
-
-
 医疗题材的？感觉又没肉搏了
-
-
-
-
-
 
 
 -----
@@ -212,16 +127,10 @@ Healing的话，大概就是柔术按摩、芳香疗法和医院医疗之类的�
 ##### 13#       发表于 2019-10-22 23:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45279827&amp;ptid=1860852" target="_blank">达达葱2 发表于 2019-10-22 23:07:37</a>
 明年会不会没肉搏了？</blockquote>今年也没有啊？谁不是打远程的？阿光？
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -230,16 +139,9 @@ Healing的话，大概就是柔术按摩、芳香疗法和医院医疗之类的�
 ##### 14#       发表于 2019-10-22 23:25
 
 
-
-
 其实……医疗算是偏血腥的题材。除非像exaid那样混入其它题材，看这标题设计难道还有园艺要素？
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -248,13 +150,7 @@ Healing的话，大概就是柔术按摩、芳香疗法和医院医疗之类的�
 ##### 15#       发表于 2019-10-22 23:25
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暗示有药吃了
-
-
-
-
-
 
 
 -----
@@ -263,18 +159,12 @@ Healing的话，大概就是柔术按摩、芳香疗法和医院医疗之类的�
 ##### 16#       发表于 2019-10-22 23:30
 
 
-
-
 医疗+植物，是中医q娃哒！
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -284,12 +174,7 @@ Healing的话，大概就是柔术按摩、芳香疗法和医院医疗之类的�
 | 最强惠酱| + 1|思路广|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -298,16 +183,9 @@ Healing的话，大概就是柔术按摩、芳香疗法和医院医疗之类的�
 ##### 17#       发表于 2019-10-22 23:32
 
 
-
-
 医疗Q娃？
 
 —— 来自 HUAWEI EVR-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -316,14 +194,7 @@ Healing的话，大概就是柔术按摩、芳香疗法和医院医疗之类的�
 ##### 18#       发表于 2019-10-22 23:33
 
 
-
-
 有多少人奶的运动Q娃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -332,14 +203,7 @@ Healing的话，大概就是柔术按摩、芳香疗法和医院医疗之类的�
 ##### 19#       发表于 2019-10-22 23:34
 
 
-
-
 治愈（物理）
-
-
-
-
-
 
 
 -----
@@ -348,17 +212,9 @@ Healing的话，大概就是柔术按摩、芳香疗法和医院医疗之类的�
 ##### 20#       发表于 2019-10-22 23:36
 
 
-
-
 每年都来问名冢太太能转正吗 无印到现在16年了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 哪怕当个淫兽也好啊
-
-
-
-
-
-
 
 
 -----
@@ -367,21 +223,13 @@ Healing的话，大概就是柔术按摩、芳香疗法和医院医疗之类的�
 ##### 21#       发表于 2019-10-22 23:40
 
 
-
-
 感觉会回归传(zhua)统(xin)
-
-
-
-
-
 
 
 -----
 
 ####  吾道长不孤  
 ##### 22#       发表于 2019-10-23 00:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45279938&amp;ptid=1860852" target="_blank">Sliurus 发表于 2019-10-22 23:25</a>
@@ -395,17 +243,10 @@ Healing的话，大概就是柔术按摩、芳香疗法和医院医疗之类的�
 JC问诊那妥妥的无证行医啊<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  菊妖不是怪  
 ##### 23#       发表于 2019-10-23 00:13
-
-
 
 
 治愈不一定就是医疗主题啊，万一是纯正萌豚治愈向呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
@@ -413,16 +254,10 @@ JC问诊那妥妥的无证行医啊<img src="https://static.saraba1st.com/image/
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 24#       发表于 2019-10-23 00:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45280244&amp;ptid=1860852" target="_blank">吾道长不孤 发表于 2019-10-23 00:10:27</a>
@@ -433,25 +268,13 @@ JC问诊那妥妥的无证行医啊</blockquote>说不定哪个q娃的头发是�
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  940247494  
 ##### 25#       发表于 2019-10-23 00:19
 
 
-
-
 每年都能安定的看到达达葱，就感觉我还没有老
-
-
-
-
-
 
 
 -----
@@ -460,14 +283,7 @@ JC问诊那妥妥的无证行医啊</blockquote>说不定哪个q娃的头发是�
 ##### 26#       发表于 2019-10-23 00:36
 
 
-
-
 大保健q娃
-
-
-
-
-
 
 
 -----
@@ -476,14 +292,7 @@ JC问诊那妥妥的无证行医啊</blockquote>说不定哪个q娃的头发是�
 ##### 27#       发表于 2019-10-23 00:37
 
 
-
-
 肉搏流奶妈
-
-
-
-
-
 
 
 -----
@@ -492,14 +301,7 @@ JC问诊那妥妥的无证行医啊</blockquote>说不定哪个q娃的头发是�
 ##### 28#       发表于 2019-10-23 00:47
 
 
-
-
 保健Q娃 中医Q娃 妈妈Q娃
-
-
-
-
-
 
 
 -----
@@ -508,14 +310,7 @@ JC问诊那妥妥的无证行医啊</blockquote>说不定哪个q娃的头发是�
 ##### 29#       发表于 2019-10-23 01:15
 
 
-
-
 注射的是珍珠奶茶吗？
-
-
-
-
-
 
 
 -----
@@ -524,14 +319,7 @@ JC问诊那妥妥的无证行医啊</blockquote>说不定哪个q娃的头发是�
 ##### 30#       发表于 2019-10-23 01:20
 
 
-
-
 既然心像猫爪我就奶个明年妖精是猫吧
-
-
-
-
-
 
 
 -----
@@ -540,15 +328,9 @@ JC问诊那妥妥的无证行医啊</blockquote>说不定哪个q娃的头发是�
 ##### 31#       发表于 2019-10-23 01:34
 
 
-
  本帖最后由 breathless 于 2019-10-23 01:36 编辑 
 
 我觉得logo好像公主
-
-
-
-
-
 
 
 -----
@@ -557,14 +339,7 @@ JC问诊那妥妥的无证行医啊</blockquote>说不定哪个q娃的头发是�
 ##### 32#       发表于 2019-10-23 01:50
 
 
-
-
 我先来，林原。
-
-
-
-
-
 
 
 -----
@@ -573,16 +348,9 @@ JC问诊那妥妥的无证行医啊</blockquote>说不定哪个q娃的头发是�
 ##### 33#       发表于 2019-10-23 01:51
 
 
-
-
 （粉主）， 你就是世界上第一个变身成为（反派召唤兽）的人啊
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -591,14 +359,7 @@ JC问诊那妥妥的无证行医啊</blockquote>说不定哪个q娃的头发是�
 ##### 34#       发表于 2019-10-23 01:59
 
 
-
-
 我先奶一个赤崎千夏
-
-
-
-
-
 
 
 -----
@@ -607,14 +368,7 @@ JC问诊那妥妥的无证行医啊</blockquote>说不定哪个q娃的头发是�
 ##### 35#       发表于 2019-10-23 02:01
 
 
-
-
 标题两个主色，估计开局两个人
-
-
-
-
-
 
 
 -----
@@ -623,16 +377,9 @@ JC问诊那妥妥的无证行医啊</blockquote>说不定哪个q娃的头发是�
 ##### 36#       发表于 2019-10-23 05:36
 
 
-
-
 完全猜不到这标题想说什么……大概是出一些看起来能回血的道具比如草药(小)之类的
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -641,14 +388,7 @@ JC问诊那妥妥的无证行医啊</blockquote>说不定哪个q娃的头发是�
 ##### 37#       发表于 2019-10-23 05:56
 
 
-
-
 安定的2lwwwww
-
-
-
-
-
 
 
 -----
@@ -657,17 +397,10 @@ JC问诊那妥妥的无证行医啊</blockquote>说不定哪个q娃的头发是�
 ##### 38#       发表于 2019-10-23 06:22
 
 
-
-
 连续三代多人了，是不是要回归初始双人组了
 
 看这LOGO简朴的
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -676,16 +409,9 @@ JC问诊那妥妥的无证行医啊</blockquote>说不定哪个q娃的头发是�
 ##### 39#       发表于 2019-10-23 06:33
 
 
-
-
 标题有点土啊
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -694,14 +420,7 @@ JC问诊那妥妥的无证行医啊</blockquote>说不定哪个q娃的头发是�
 ##### 40#       发表于 2019-10-23 06:41
 
 
-
-
 等更多后续<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -710,14 +429,7 @@ JC问诊那妥妥的无证行医啊</blockquote>说不定哪个q娃的头发是�
 ##### 41#       发表于 2019-10-23 07:10
 
 
-
-
 公主那年的标题风格
-
-
-
-
-
 
 
 -----
@@ -726,14 +438,7 @@ JC问诊那妥妥的无证行医啊</blockquote>说不定哪个q娃的头发是�
 ##### 42#       发表于 2019-10-23 07:12
 
 
-
-
 简称药娃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -742,16 +447,10 @@ JC问诊那妥妥的无证行医啊</blockquote>说不定哪个q娃的头发是�
 ##### 43#       发表于 2019-10-23 07:14
 
 
-
  本帖最后由 cmyk1234 于 2019-10-23 07:20 编辑 
 
 来年制作人会不会是神木优？
 但是主题可能从医疗引申到生与死，监督如果请了山内重保就炸了。
-
-
-
-
-
 
 
 -----
@@ -760,21 +459,13 @@ JC问诊那妥妥的无证行医啊</blockquote>说不定哪个q娃的头发是�
 ##### 44#       发表于 2019-10-23 07:35
 
 
-
-
 看着像肉球，怕不是兽医
-
-
-
-
-
 
 
 -----
 
 ####  天邪鬼  
 ##### 45#       发表于 2019-10-23 07:47
-
 
 
  本帖最后由 天邪鬼 于 2019-10-23 07:53 编辑 
@@ -788,16 +479,10 @@ healin good听起来有点像feeling good对吧
 到时候肉搏说是按摩就行了，小女孩粉拳哒哒哒的打你，这谁顶得住啊
 
 
-
-
-
-
-
 -----
 
 ####  CR330  
 ##### 46#       发表于 2019-10-23 07:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45279933&amp;ptid=1860852" target="_blank">spadepie 发表于 2019-10-22 23:23:38</a>
@@ -806,25 +491,13 @@ healin good听起来有点像feeling good对吧
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  風駿  
 ##### 47#       发表于 2019-10-23 07:50
 
 
-
-
 粉色兽元素，绿色植物元素，环保题材德鲁伊Q娃
-
-
-
-
-
 
 
 -----
@@ -833,16 +506,9 @@ healin good听起来有点像feeling good对吧
 ##### 48#       发表于 2019-10-23 07:53
 
 
-
-
 那个到底是猫爪还是胡萝卜
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -851,14 +517,7 @@ healin good听起来有点像feeling good对吧
 ##### 49#       发表于 2019-10-23 08:05
 
 
-
-
 有人猜测Healing Good是Pretty Cure的倒装文。求出处。
-
-
-
-
-
 
 
 -----
@@ -867,21 +526,13 @@ healin good听起来有点像feeling good对吧
 ##### 50#       发表于 2019-10-23 08:08
 
 
-
-
 难道有药吃？（不是）
-
-
-
-
-
 
 
 -----
 
 ####  Sliurus  
 ##### 51#       发表于 2019-10-23 08:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45281101&amp;ptid=1860852" target="_blank">天邪鬼 发表于 2019-10-23 07:47:45</a>
@@ -893,25 +544,13 @@ healin good听起来有点像feeling good对吧
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  莉莉橙  
 ##### 52#       发表于 2019-10-23 08:10
 
 
-
-
 既然是治疗，那就叫奶Q吧（
-
-
-
-
-
 
 
 -----
@@ -920,14 +559,7 @@ healin good听起来有点像feeling good对吧
 ##### 53#       发表于 2019-10-23 08:13
 
 
-
-
 既然是治愈，那么是不是变成q娃胸会大一点<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -936,21 +568,13 @@ healin good听起来有点像feeling good对吧
 ##### 54#       发表于 2019-10-23 08:22
 
 
-
-
 治愈肥宅的q娃
-
-
-
-
-
 
 
 -----
 
 ####  spadepie  
 ##### 55#       发表于 2019-10-23 08:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45281102&amp;ptid=1860852" target="_blank">CR330 发表于 2019-10-23 07:47</a>
@@ -962,25 +586,13 @@ healin good听起来有点像feeling good对吧
 来打受众和Q娃受众不同啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">女生向的医疗题材感觉都是温柔一点的【而且EA的题材是医疗+游戏，这部感觉是医疗+花朵/植物，虽然我也希望能像EA那样刺激一些】
 
 
-
-
-
-
-
 -----
 
 ####  病態極端  
 ##### 56#       发表于 2019-10-23 10:16
 
 
-
-
 也許只是護士Q娃
-
-
-
-
-
 
 
 -----
@@ -989,14 +601,7 @@ healin good听起来有点像feeling good对吧
 ##### 57#       发表于 2019-10-23 10:20
 
 
-
-
 打架戏可以改成按摩嘛
-
-
-
-
-
 
 
 -----
@@ -1005,22 +610,13 @@ healin good听起来有点像feeling good对吧
 ##### 58#       发表于 2019-10-23 10:26
 
 
-
-
 其实北斗的多奇也是医生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  collincollin  
 ##### 59#       发表于 2019-10-23 10:32
-
-
 
 
 healing 也不一定是医疗行为了
@@ -1031,27 +627,15 @@ healing 也不一定是医疗行为了
 做按摩，搞香薰，变点花花草草
 
 
-
-
-
-
-
 -----
 
 ####  ynks  
 ##### 60#       发表于 2019-10-23 10:44
 
 
-
-
 好治q娃
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -1060,14 +644,7 @@ healing 也不一定是医疗行为了
 ##### 61#       发表于 2019-10-23 10:51
 
 
-
-
 那就是大保健q娃咯
-
-
-
-
-
 
 
 -----
@@ -1076,14 +653,7 @@ healing 也不一定是医疗行为了
 ##### 62#       发表于 2019-10-23 11:02
 
 
-
-
 植物医生，我知道了，这一定是园丁q娃<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1092,14 +662,7 @@ healing 也不一定是医疗行为了
 ##### 63#       发表于 2019-10-23 11:22
 
 
-
-
 植物是没跑了，弄xx花战队吗，总感觉有点土
-
-
-
-
-
 
 
 -----
@@ -1108,15 +671,9 @@ healing 也不一定是医疗行为了
 ##### 64#       发表于 2019-10-23 11:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45280462&amp;ptid=1860852" target="_blank">mchan 发表于 2019-10-23 00:53</a>
 本来以为还没有人发图，反手从 Reddit 上转了过来。谁知是我自己网速不好加载太慢…… ...</blockquote>
 请问下是那个reddit板块？
-
-
-
-
-
 
 
 -----
@@ -1125,14 +682,7 @@ healing 也不一定是医疗行为了
 ##### 65#       发表于 2019-10-23 11:28
 
 
-
-
 被必杀技轰中（治愈）的小怪，会说“我好了”吗
-
-
-
-
-
 
 
 -----
@@ -1141,15 +691,9 @@ healing 也不一定是医疗行为了
 ##### 66#       发表于 2019-10-23 11:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45283213&amp;ptid=1860852" target="_blank">akuma_homura 发表于 2019-10-23 11:22</a>
 植物是没跑了，弄xx花战队吗，总感觉有点土</blockquote>
 抓心也是花，哪里土，小友还是很喜欢花花草草的
-
-
-
-
-
 
 
 -----
@@ -1158,14 +702,7 @@ healing 也不一定是医疗行为了
 ##### 67#       发表于 2019-10-23 12:04
 
 
-
-
 等一个仙人掌Q娃<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1174,16 +711,10 @@ healing 也不一定是医疗行为了
 ##### 68#       发表于 2019-10-23 16:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45283213&amp;ptid=1860852" target="_blank">akuma_homura 发表于 2019-10-23 11:22</a>
 
 植物是没跑了，弄xx花战队吗，总感觉有点土</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小友们很喜欢花的，粉主名字有花的，上一部就是了。
-
-
-
-
-
 
 
 -----
@@ -1192,16 +723,10 @@ healing 也不一定是医疗行为了
 ##### 69#       发表于 2019-10-23 17:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45283343&amp;ptid=1860852" target="_blank">宅音 发表于 2019-10-23 11:31</a>
 
 抓心也是花，哪里土，小友还是很喜欢花花草草的</blockquote>
 植物我也是挺喜欢的，但从这个logo看，就2个颜色，装饰的要素也很少，看上去不够华丽
-
-
-
-
-
 
 
 -----
@@ -1210,14 +735,7 @@ healing 也不一定是医疗行为了
 ##### 70#       发表于 2019-10-23 17:58
 
 
-
-
 blossom，flower，flora，还能怎么叫
-
-
-
-
-
 
 
 -----
@@ -1226,16 +744,10 @@ blossom，flower，flora，还能怎么叫
 ##### 71#       发表于 2019-10-23 19:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45283289&amp;ptid=1860852" target="_blank">莉莉橙 发表于 2019-10-23 11:28</a>
 
 被必杀技轰中（治愈）的小怪，会说“我好了”吗</blockquote>
 马琳：你好，会的
-
-
-
-
-
 
 
 -----
@@ -1244,14 +756,7 @@ blossom，flower，flora，还能怎么叫
 ##### 72#       发表于 2019-10-23 19:24
 
 
-
-
 谁还记得当年初代有个“美丽祭师”的译名……这HGP让我感觉一下穿越回了黑白双煞的年代
-
-
-
-
-
 
 
 -----
@@ -1260,16 +765,10 @@ blossom，flower，flora，还能怎么叫
 ##### 73#       发表于 2019-10-23 19:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45287397&amp;ptid=1860852" target="_blank">reficul 发表于 2019-10-23 17:58:05</a>
 blossom，flower，flora，还能怎么叫</blockquote>Fleur
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -1278,15 +777,9 @@ blossom，flower，flora，还能怎么叫</blockquote>Fleur
 ##### 74#       发表于 2019-10-23 20:33
 
 
-
 <blockquote>rxrx 发表于 2019-10-23 10:26
 其实北斗的多奇也是医生</blockquote>
 让敌人毫无痛苦的死去
-
-
-
-
-
 
 
 -----
@@ -1295,24 +788,13 @@ blossom，flower，flora，还能怎么叫</blockquote>Fleur
 ##### 75#       发表于 2019-10-23 21:03
 
 
-
-
 粉主新人预定？公主之后的顺序，高桥李依（新人，前作酱油役），美山加恋（演员），引坂理绘（新人，前作酱油役），成濑瑛美（歌手）
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  cmyk1234  
 ##### 76#       发表于 2019-10-23 21:17
-
 
 
  本帖最后由 cmyk1234 于 2019-10-23 22:59 编辑 
@@ -1324,16 +806,10 @@ Healin（Healing）Good倒装Pretty Cure。
 Pretty Cure是香港无线电视台（TVB）以及英语版本对Precure作为战士组合的专有译名，与Precure作为剧集的译名“光之美少女”表示区别。谢谢楼下#86的指正。
 
 
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 77#       发表于 2019-10-23 21:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45289006&amp;ptid=1860852" target="_blank">cmyk1234 发表于 2019-10-23 21:17:35</a>
@@ -1343,17 +819,10 @@ Pretty Cure是香港无线电视台（TVB）对Precure作为战士组合的专 .
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  leleq  
 ##### 78#       发表于 2019-10-23 22:11
-
-
 
 
 医疗？第一个医务志愿的粉主？一般来说医生系都是文静系 会是一个温柔系的粉主么？ 植物系倒是有汁波密（虽然最后一集叛变宇航员了）
@@ -1362,32 +831,19 @@ Pretty Cure是香港无线电视台（TVB）对Precure作为战士组合的专 .
 虽然有渐变色但logo只有双色 初始双人组？植物文静系粉主？又要重复抓心？
 
 
-
-
-
-
-
 -----
 
 ####  老贝  
 ##### 79#       发表于 2019-10-23 22:16
 
 
-
-
 初代op不就唱过pretty cure了吗。
-
-
-
-
-
 
 
 -----
 
 ####  leleq  
 ##### 80#       发表于 2019-10-23 22:17
-
 
 
  本帖最后由 leleq 于 2019-10-23 22:23 编辑 
@@ -1397,25 +853,13 @@ Pretty Cure是香港无线电视台（TVB）对Precure作为战士组合的专 .
 会搞个“大作”么 有点期待啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  風駿  
 ##### 81#       发表于 2019-10-23 22:29
 
 
-
-
 Precure本身就是把Pretty Cure捏一起的生造词，对英语国家一直是Pretty Cure，与香港何干？
-
-
-
-
-
 
 
 -----
@@ -1424,14 +868,7 @@ Precure本身就是把Pretty Cure捏一起的生造词，对英语国家一直�
 ##### 82#       发表于 2019-10-23 22:36
 
 
-
-
 会有医患纠纷吗
-
-
-
-
-
 
 
 -----
@@ -1440,16 +877,10 @@ Precure本身就是把Pretty Cure捏一起的生造词，对英语国家一直�
 ##### 83#       发表于 2019-10-23 22:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45289540&amp;ptid=1860852" target="_blank">風駿 发表于 2019-10-23 22:29</a>
 
 Precure本身就是把Pretty Cure捏一起的生造词，对英语国家一直是Pretty Cure，与香港何干？ ...</blockquote>
 那便是我见识浅了，抱歉。
-
-
-
-
-
 
 
 -----
@@ -1458,14 +889,7 @@ Precure本身就是把Pretty Cure捏一起的生造词，对英语国家一直�
 ##### 84#       发表于 2019-10-23 23:11
 
 
-
-
 反派不服，每集主角组结尾都来对其进行T4人道主义注射/哭笑
-
-
-
-
-
 
 
 -----
@@ -1474,16 +898,10 @@ Precure本身就是把Pretty Cure捏一起的生造词，对英语国家一直�
 ##### 85#       发表于 2019-10-24 07:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45289819&amp;ptid=1860852" target="_blank">liy41 发表于 2019-10-23 23:11</a>
 
 反派不服，每集主角组结尾都来对其进行T4人道主义注射/哭笑</blockquote>
 然而却总被反派逃脱，无法注射。主角们努力了一年才逮住了反派<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1492,16 +910,10 @@ Precure本身就是把Pretty Cure捏一起的生造词，对英语国家一直�
 ##### 86#       发表于 2019-10-24 09:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45289540&amp;ptid=1860852" target="_blank">風駿 发表于 2019-10-23 22:29</a>
 Precure本身就是把Pretty Cure捏一起的生造词，对英语国家一直是Pretty Cure，与香港何干？ ...</blockquote>
 和英语国家无关，从初代开始到水果为止，プリキュア这个词一直是念作Precure写作Pretty Cure的，这个你去看无印、HM、SS和水果的标题logo就知道了
 到抓心开始才定案プリキュア的罗马字写法是Precure，这个也是上了logo的
-
-
-
-
-
 
 
 -----
@@ -1510,22 +922,14 @@ Precure本身就是把Pretty Cure捏一起的生造词，对英语国家一直�
 ##### 87#       发表于 2019-10-24 09:28
 
 
-
-
 顺带提一下，隔壁棚仮面ライダー的罗马字表记到DCD为止一直都是Masked Rider，从W开始变更为Kamen Rider
 时间点上和Pretty Cure到Precure的时期差不多,不知道是不是东映有意识的在搞这事情
-
-
-
-
-
 
 
 -----
 
 ####  reficul  
 ##### 88#       发表于 2019-10-24 19:11
-
 
 
 <blockquote>月夜凝雪 发表于 2019-10-23 19:36
@@ -1536,17 +940,10 @@ Fleur
 阴性的，正好233但是cure fleur听起来没什么气势
 
 
-
-
-
-
-
 -----
 
 ####  小樱与小狼  
 ##### 89#       发表于 2019-10-24 19:42
-
-
 
 
 都几年了，安定的2L，安定的奶赤崎千夏，都被奶死了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -1558,27 +955,15 @@ CV奶个前护士，长妻树里。
 私心帕鲁喵斯能配<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 90#       发表于 2019-10-24 20:02
 
 
-
-
 之前奶的田村去年已经上了，现在继续奶Ao酱，快来制霸东映朝日周日清晨英雄时间
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -1587,14 +972,7 @@ CV奶个前护士，长妻树里。
 ##### 91#       发表于 2019-10-24 20:31
 
 
-
-
 又是一年。医Q！？保健Q娃。唬哈哈哈哈，笑S了。不要太绕口就好。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1603,16 +981,10 @@ CV奶个前护士，长妻树里。
 ##### 92#       发表于 2019-10-25 07:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45300497&amp;ptid=1860852" target="_blank">mchan 发表于 2019-10-24 23:02:07</a>
 这次会不会只有粉绿两个新战士，加上祈里、あきら、さあや/六花/かれん三位学医的前辈呢？ ...</blockquote>那世界观就复杂了，而且还不能卖新玩具<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -1621,24 +993,16 @@ CV奶个前护士，长妻树里。
 ##### 93#       发表于 2019-10-25 08:08
 
 
-
-
 其实那个cure是法语祭司，牧师吧？并不是英语的治疗。虽然牧师在游戏里经常是奶妈…
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  噗哩噗  
 ##### 94#       发表于 2019-10-28 05:32
-
 
 
 <blockquote>寿由香里 发表于 2019-10-25 08:08
@@ -1649,26 +1013,15 @@ CV奶个前护士，长妻树里。
 法语里面没有这种意思。而且我记得cure来自英文治愈是官方敲过章的。
 
 
-
-
-
-
-
 -----
 
 ####  噗哩噗  
 ##### 95#       发表于 2019-10-28 05:35
 
 
-
 <blockquote>reficul 发表于 2019-10-24 19:11
 阴性的，正好233但是cure fleur听起来没什么气势</blockquote>
 日语难道念成弗拉路
-
-
-
-
-
 
 
 -----
@@ -1677,14 +1030,7 @@ CV奶个前护士，长妻树里。
 ##### 96#       发表于 2019-10-28 05:46
 
 
-
-
 医患纠纷（指病栋里的患者
-
-
-
-
-
 
 
 -----
@@ -1693,17 +1039,10 @@ CV奶个前护士，长妻树里。
 ##### 97#       发表于 2019-10-28 15:37
 
 
-
-
 卖表
 <img src="http://wx3.sinaimg.cn/large/6765fd79gy1g8dwar35twj20cf0dujry.jpg" referrerpolicy="no-referrer">
 
 妈的Q娃时王？
-
-
-
-
-
 
 
 -----
@@ -1712,16 +1051,9 @@ CV奶个前护士，长妻树里。
 ##### 98#       发表于 2019-10-28 15:46
 
 
-
-
 emm...
 时王表买太好了 q娃也要参一脚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 看来是两人开局
-
-
-
-
-
 
 
 -----
@@ -1730,23 +1062,15 @@ emm...
 ##### 99#       发表于 2019-10-28 15:49
 
 
-
-
 明年是四人组？还是说还有追加……希望只有四个，这几年人都太多了，而且也不像微笑一样每个角色都能塑造好
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  spadepie  
 ##### 100#       发表于 2019-10-28 15:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45332154&amp;ptid=1860852" target="_blank">HGCG2 发表于 2019-10-28 15:37</a>
@@ -1758,24 +1082,13 @@ emm...
 这东西不是去年也有吗？
 
 
-
-
-
-
-
 -----
 
 ####  qfqczr  
 ##### 101#       发表于 2019-10-28 15:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">变身器会是啥样呢，不知道为啥脑海里总会浮现出neo omega的针筒来。
-
-
-
-
-
 
 
 -----
@@ -1784,14 +1097,7 @@ emm...
 ##### 102#       发表于 2019-10-28 16:08
 
 
-
-
 人太多了，这几年出了粉和粉的主cp，其他人都很影薄。。你看今年黄紫出了个人回一集能有10句以上台词都算不错了。
-
-
-
-
-
 
 
 -----
@@ -1800,21 +1106,13 @@ emm...
 ##### 103#       发表于 2019-10-28 16:13
 
 
-
-
 战队组变身道具早已经是表。
-
-
-
-
-
 
 
 -----
 
 ####  真红眼教授  
 ##### 104#       发表于 2019-10-28 16:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45332461&amp;ptid=1860852" target="_blank">野上由加奈 发表于 2019-10-28 16:08</a>
@@ -1829,32 +1127,19 @@ emm...
 说白了就是能力不行写不来
 
 
-
-
-
-
-
 -----
 
 ####  吹雪桑大胜利  
 ##### 105#       发表于 2019-10-28 18:06
 
 
-
-
 往好处想，也可能是法q那样的少人多形态
-
-
-
-
-
 
 
 -----
 
 ####  hgcg-w  
 ##### 106#         楼主| 发表于 2019-10-28 19:30
-
 
 
 <img src="http://wx3.sinaimg.cn/large/6765fd79ly1g8e313u0wpj20c90bt74q.jpg" referrerpolicy="no-referrer">
@@ -1864,33 +1149,19 @@ emm...
 <img src="http://wx4.sinaimg.cn/large/6765fd79ly1g8e31cn5goj20ca0de0ta.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 107#       发表于 2019-10-28 20:31
 
 
-
-
 比起表，我觉得会是玩具钟
-
-
-
-
-
 
 
 -----
 
 ####  catenarygong  
 ##### 108#       发表于 2019-11-1 09:38
-
-
 
 
 两人开局好啊
@@ -1900,25 +1171,13 @@ cv我奶津田美波
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  cmyk1234  
 ##### 109#       发表于 2019-11-1 16:39
 
 
-
-
 金春智子会不会过来主笔q娃？
-
-
-
-
-
 
 
 -----
@@ -1927,14 +1186,7 @@ cv我奶津田美波
 ##### 110#       发表于 2019-11-12 12:26
 
 
-
-
 今年都没人转假图了吗
-
-
-
-
-
 
 
 -----
@@ -1943,14 +1195,7 @@ cv我奶津田美波
 ##### 111#       发表于 2019-11-12 14:39
 
 
-
-
 家里三代都是开医馆的，方丽娟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1959,16 +1204,10 @@ cv我奶津田美波
 ##### 112#       发表于 2019-11-12 15:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45486956&amp;ptid=1860852" target="_blank">东方求胜 发表于 2019-11-12 12:26:10</a>
 今年都没人转假图了吗</blockquote>今年假图特别假
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -1977,14 +1216,7 @@ cv我奶津田美波
 ##### 113#       发表于 2019-11-12 16:51
 
 
-
-
 治…好Q娃
-
-
-
-
-
 
 
 -----
@@ -1993,16 +1225,9 @@ cv我奶津田美波
 ##### 114#       发表于 2019-11-15 14:14
 
 
-
-
 医生Q娃？
 
 是那种身穿重甲手持巨型针筒一脚踹开门战吼一声医生来啦的那种么<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2011,13 +1236,7 @@ cv我奶津田美波
 ##### 115#       发表于 2019-11-15 15:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 继续奶传说和赤崎千夏
-
-
-
-
-
 
 
 -----
@@ -2026,23 +1245,15 @@ cv我奶津田美波
 ##### 116#       发表于 2019-11-19 05:56
 
 
-
-
 元素瓶？难道Q娃是拿着两个药水瓶摇一摇混一起变身？
 <img src="http://wx2.sinaimg.cn/large/e7cbae74gy1g92lq2dk5nj20tm0k4aaw.jpg" referrerpolicy="no-referrer">
 <img src="http://wx4.sinaimg.cn/large/e7cbae74gy1g92lq2lahaj20to0k9wfc.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  天邪鬼  
 ##### 117#       发表于 2019-11-19 06:50
-
 
 
  本帖最后由 天邪鬼 于 2019-11-19 07:49 编辑 
@@ -2055,32 +1266,19 @@ cv我奶津田美波
 追加？那自然是偶像厨啦
 
 
-
-
-
-
-
 -----
 
 ####  宅音  
 ##### 118#       发表于 2019-11-19 07:03
 
 
-
-
 再来个元气蓝吧口口李
-
-
-
-
-
 
 
 -----
 
 ####  hgcg-w  
 ##### 119#         楼主| 发表于 2019-11-19 07:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45554412&amp;ptid=1860852" target="_blank">天邪鬼 发表于 2019-11-19 06:50</a>
@@ -2091,26 +1289,15 @@ cv我奶津田美波
 再来个老实姑娘
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 120#       发表于 2019-11-19 07:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45554440&amp;ptid=1860852" target="_blank">hgcg-w 发表于 2019-11-19 07:07</a>
 再来个老实姑娘</blockquote>
 来个老实暗美，因为太老实成了光美
-
-
-
-
-
 
 
 -----
@@ -2119,16 +1306,9 @@ cv我奶津田美波
 ##### 121#       发表于 2019-11-19 07:45
 
 
-
-
 药王q娃<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -2137,21 +1317,13 @@ cv我奶津田美波
 ##### 122#       发表于 2019-11-19 08:19
 
 
-
-
 希望是医疗，宝生永梦！
-
-
-
-
-
 
 
 -----
 
 ####  hgcg-w  
 ##### 123#         楼主| 发表于 2019-11-28 20:29
-
 
 
 <img src="http://wx1.sinaimg.cn/large/6765fd79ly1g9dz315wdgj20cz0c6gm5.jpg" referrerpolicy="no-referrer">
@@ -2163,25 +1335,13 @@ cv我奶津田美波
 <img src="http://wx2.sinaimg.cn/large/6765fd79gy1g9dzi2j7zcj20b50cmaaj.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  風駿  
 ##### 124#       发表于 2019-11-28 20:59
 
 
-
-
 完全看不出什么<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2190,25 +1350,16 @@ cv我奶津田美波
 ##### 125#       发表于 2019-11-28 21:25
 
 
-
-
 这种情报完全猜不出和看不出什么来
 
 
 只能期待下周边商有内奸走漏风声了
 
 
-
-
-
-
-
 -----
 
 ####  若荼泱  
 ##### 126#       发表于 2019-11-29 06:37
-
-
 
 
 【新シリーズ情報】
@@ -2222,24 +1373,13 @@ cv我奶津田美波
 官宣了
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 127#         楼主| 发表于 2019-11-29 06:43
 
 
-
 [http://www.toei-anim.co.jp/tv/healingood_precure/](http://www.toei-anim.co.jp/tv/healingood_precure/)
-
-
-
-
-
 
 
 -----
@@ -2248,14 +1388,7 @@ cv我奶津田美波
 ##### 128#       发表于 2019-11-29 06:59
 
 
-
-
 治愈全球！Q娃这次是当牧师还是圣骑呢？
-
-
-
-
-
 
 
 -----
@@ -2264,14 +1397,7 @@ cv我奶津田美波
 ##### 129#       发表于 2019-11-29 07:10
 
 
-
-
 别又是兽耳
-
-
-
-
-
 
 
 -----
@@ -2280,16 +1406,9 @@ cv我奶津田美波
 ##### 130#       发表于 2019-11-29 07:26
 
 
-
-
 这个世界病了，让我来治愈你们吧！（地图炮然后全员裸漂）
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -2298,14 +1417,7 @@ cv我奶津田美波
 ##### 131#       发表于 2019-11-29 07:51
 
 
-
-
 标题又起这么大……不过我相信STAFF做不到针砭时弊，能不假大空就可以满足了
-
-
-
-
-
 
 
 -----
@@ -2314,16 +1426,9 @@ cv我奶津田美波
 ##### 132#       发表于 2019-11-29 09:35
 
 
-
-
 话说兽医的话，能不能让吹吹回归几集（做梦）
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -2332,14 +1437,7 @@ cv我奶津田美波
 ##### 133#       发表于 2019-11-29 10:22
 
 
-
-
 狗淫兽咯
-
-
-
-
-
 
 
 -----
@@ -2348,21 +1446,13 @@ cv我奶津田美波
 ##### 134#       发表于 2019-11-29 11:16
 
 
-
-
 动物搭档，濒危动物吗
-
-
-
-
-
 
 
 -----
 
 ####  小黄酱  
 ##### 135#       发表于 2019-11-29 11:44
-
 
 
  本帖最后由 小黄酱 于 2019-11-29 11:51 编辑 
@@ -2376,17 +1466,10 @@ cv我奶津田美波
 大概子供动画体验最好也就那几年了，往后的Q娃不是尬就是无聊，完全不期待
 
 
-
-
-
-
-
-
 -----
 
 ####  cmyk1234  
 ##### 136#       发表于 2019-11-29 11:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45655985&amp;ptid=1860852" target="_blank">小黄酱 发表于 2019-11-29 11:44</a>
@@ -2398,25 +1481,13 @@ cv我奶津田美波
 战队5就虽然也有动物搭配魔法少女，但有一半场合会变成人。
 
 
-
-
-
-
-
 -----
 
 ####  Mr_DECADE  
 ##### 137#       发表于 2019-11-29 11:57
 
 
-
-
 女人们图呢
-
-
-
-
-
 
 
 -----
@@ -2425,14 +1496,7 @@ cv我奶津田美波
 ##### 138#       发表于 2019-11-29 12:45
 
 
-
-
 魔法护士小麦？
-
-
-
-
-
 
 
 -----
@@ -2441,21 +1505,13 @@ cv我奶津田美波
 ##### 139#       发表于 2019-11-29 13:13
 
 
-
-
 要是当兽医还有看点，治愈地球完全没有必要
-
-
-
-
-
 
 
 -----
 
 ####  Sunred  
 ##### 140#       发表于 2019-11-29 13:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45655985&amp;ptid=1860852" target="_blank">小黄酱 发表于 2019-11-29 11:44</a>
@@ -2466,32 +1522,19 @@ Q娃的妖精不是除了娃就是动物么
 再说了candy哪里是动物了，明明就是个娃
 
 
-
-
-
-
-
 -----
 
 ####  nervpp  
 ##### 141#       发表于 2019-11-29 13:18
 
 
-
-
 为啥我会想到抓心（因为欲求不满吗啊？）
-
-
-
-
-
 
 
 -----
 
 ####  Blackson  
 ##### 142#       发表于 2019-11-29 13:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45655985&amp;ptid=1860852" target="_blank">小黄酱 发表于 2019-11-29 11:44</a>
@@ -2505,27 +1548,15 @@ Q娃的妖精不是除了娃就是动物么
 话说人+兽搭档还可以参照金童卡修和口袋妖怪系列
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 143#       发表于 2019-11-29 20:05
 
 
-
-
 动物搭档什么的，不就是淫兽嘛
 为啥要用很不可思议的语气说出来，是想演动物世界吗？
 话说治愈地球什么的，是要轰掉污水排放厂还是掀翻捕鲸船？就算这么干了也不算治愈地球吧，本身就没病
-
-
-
-
-
 
 
 -----
@@ -2534,20 +1565,13 @@ Q娃的妖精不是除了娃就是动物么
 ##### 144#       发表于 2019-11-29 22:25
 
 
-
  本帖最后由 最强惠酱 于 2019-11-29 22:28 编辑 
 
 原来cure是治愈的意思啊
 
 
-
-
-
-
 Screenshot_20191129-222236.png
 (655.6 KB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -2556,24 +1580,7 @@ Screenshot_20191129-222236.png
 2019-11-29 22:27 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201911/29/222742xixcohirv9vh2n22.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -2582,16 +1589,10 @@ Screenshot_20191129-222236.png
 ##### 145#       发表于 2019-11-29 22:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45662372&amp;ptid=1860852" target="_blank">最强惠酱 发表于 2019-11-29 22:25:13</a>
 原来cure是治愈的意思啊</blockquote>……小鬼子英语真烂<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。还是说片假名的锅？
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -2600,14 +1601,7 @@ Screenshot_20191129-222236.png
 ##### 146#       发表于 2019-11-29 23:19
 
 
-
-
 cure不就一直是这个意思吗？
-
-
-
-
-
 
 
 -----
@@ -2616,15 +1610,9 @@ cure不就一直是这个意思吗？
 ##### 147#       发表于 2019-11-30 08:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45662372&amp;ptid=1860852" target="_blank">最强惠酱 发表于 2019-11-29 22:25</a>
 原来cure是治愈的意思啊</blockquote>
 无印最开始几集就已经有净化反派的剧情了。这应该也是当年粤语版叫“美丽祭师”的原因之一
-
-
-
-
-
 
 
 -----
@@ -2633,14 +1621,7 @@ cure不就一直是这个意思吗？
 ##### 148#       发表于 2019-11-30 11:00
 
 
-
-
 标题是职业女孩却展示女孩除了唱歌跳舞什么都不能做的作品市占率节节上升，这是最好的时代，也是最坏的时代吧
-
-
-
-
-
 
 
 -----
@@ -2649,15 +1630,9 @@ cure不就一直是这个意思吗？
 ##### 149#       发表于 2019-11-30 19:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45665733&amp;ptid=1860852" target="_blank">噗哩噗 发表于 2019-11-30 11:00</a>
 标题是职业女孩却展示女孩除了唱歌跳舞什么都不能做的作品市占率节节上升，这是最好的时代，也是最坏的时代 ...</blockquote>
 啥作品？
-
-
-
-
-
 
 
 -----
@@ -2666,16 +1641,10 @@ cure不就一直是这个意思吗？
 ##### 150#       发表于 2019-12-2 01:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45669318&amp;ptid=1860852" target="_blank">Sunred 发表于 2019-11-30 19:03</a>
 
 啥作品？</blockquote>
 偶像战士那一堆女孩×英雄系列特摄，今年的还会出电影
-
-
-
-
-
 
 
 -----
@@ -2684,16 +1653,9 @@ cure不就一直是这个意思吗？
 ##### 151#         楼主| 发表于 2019-12-5 07:13
 
 
-
-
 今天应该是业内说明会
 
 可能会有偷跑
-
-
-
-
-
 
 
 -----
@@ -2702,22 +1664,13 @@ cure不就一直是这个意思吗？
 ##### 152#       发表于 2019-12-5 07:28
 
 
-
-
 等一个内鬼
-
-
-
-
-
 
 
 -----
 
 ####  hgcg-w  
 ##### 153#         楼主| 发表于 2019-12-7 07:08
-
-
 
 
 无真相
@@ -2732,27 +1685,13 @@ cure不就一直是这个意思吗？
 　ニャント
 
 
-
-
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 154#       发表于 2019-12-7 07:18
 
 
-
-
 今年贾图都没？
-
-
-
-
-
 
 
 -----
@@ -2761,21 +1700,13 @@ cure不就一直是这个意思吗？
 ##### 155#       发表于 2019-12-7 07:42
 
 
-
-
 parfum香水，clear干净，wonder神奇，最后那个读不出来
-
-
-
-
-
 
 
 -----
 
 ####  lyflyflxf  
 ##### 156#       发表于 2019-12-7 07:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45756521&amp;ptid=1860852" target="_blank">达达葱2 发表于 2019-12-7 07:18</a>
@@ -2787,26 +1718,15 @@ parfum香水，clear干净，wonder神奇，最后那个读不出来
 <img src="http://magaimg.net/img/9xfv.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  韩子  
 ##### 157#       发表于 2019-12-7 09:13
 
 
-
 <blockquote>南风森琉璃 发表于 2019-12-7 07:42
 parfum香水，clear干净，wonder神奇，最后那个读不出来</blockquote>
 后面俩应该是一个狗一个猫吧
-
-
-
-
-
 
 
 -----
@@ -2815,21 +1735,13 @@ parfum香水，clear干净，wonder神奇，最后那个读不出来</blockquote
 ##### 158#       发表于 2019-12-7 10:45
 
 
-
-
 还来猫狗？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  spadepie  
 ##### 159#       发表于 2019-12-7 12:15
-
 
 
  本帖最后由 spadepie 于 2019-12-7 12:16 编辑 
@@ -2844,30 +1756,15 @@ parfum香水，clear干净，wonder神奇，最后那个读不出来</blockquote
 晴园芽吹
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 160#         楼主| 发表于 2019-12-7 15:48
 
 
-
-
 我觉得这名字挺像真的
 
 因为吃饱饭没事做的大友是编不出“林克”这样的角色名的
-
-
-
-
-
 
 
 -----
@@ -2876,16 +1773,9 @@ parfum香水，clear干净，wonder神奇，最后那个读不出来</blockquote
 ##### 161#       发表于 2019-12-7 16:16
 
 
-
-
 本渡枫在法q客串过，赤尾光在抱q里客串过，这次安排个呗<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -2894,16 +1784,9 @@ parfum香水，clear干净，wonder神奇，最后那个读不出来</blockquote
 ##### 162#       发表于 2019-12-7 16:38
 
 
-
-
 今年不整法语？
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -2912,15 +1795,8 @@ parfum香水，clear干净，wonder神奇，最后那个读不出来</blockquote
 ##### 163#       发表于 2019-12-7 19:02
 
 
-
-
 q娃泼妇...
 大招是电音和黑科技马<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2929,14 +1805,7 @@ q娃泼妇...
 ##### 164#       发表于 2019-12-7 19:06
 
 
-
-
 香水和干净，所以今年的敌方实力和污染或者恶臭有关系？
-
-
-
-
-
 
 
 -----
@@ -2945,21 +1814,13 @@ q娃泼妇...
 ##### 165#       发表于 2019-12-7 19:07
 
 
-
-
 患者的命运，就由我来改变！<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  purdre  
 ##### 166#       发表于 2019-12-7 19:28
-
 
 
  本帖最后由 purdre 于 2019-12-7 19:30 编辑 
@@ -2971,16 +1832,10 @@ q娃泼妇...
 说起来千結原到底怎么读……せんゆいはら？太长了吧
 
 
-
-
-
-
-
 -----
 
 ####  wind4rap  
 ##### 167#       发表于 2019-12-7 19:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45762320&amp;ptid=1860852" target="_blank">purdre 发表于 2019-12-7 19:28</a>
@@ -2993,13 +1848,9 @@ q娃泼妇...
 ちゆばら之类的。“治癒”
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -3009,12 +1860,7 @@ q娃泼妇...
 | purdre| + 1|原来如此|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -3023,16 +1869,10 @@ q娃泼妇...
 ##### 168#       发表于 2019-12-7 19:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45756553&amp;ptid=1860852" target="_blank">南风森琉璃 发表于 2019-12-07 07:42:09</a>
 parfum香水，clear干净，wonder神奇，最后那个读不出来</blockquote>这个和兽医有啥子关系
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -3041,21 +1881,13 @@ parfum香水，clear干净，wonder神奇，最后那个读不出来</blockquote
 ##### 169#       发表于 2019-12-7 20:50
 
 
-
-
 后两个都是动物吧
-
-
-
-
-
 
 
 -----
 
 ####  purdre  
 ##### 170#       发表于 2019-12-7 21:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45762919&amp;ptid=1860852" target="_blank">catenarygong 发表于 2019-12-7 19:55</a>
@@ -3067,16 +1899,10 @@ parfum香水，clear干净，wonder神奇，最后那个读不出来</blockquote
 后面两个翻译过来大概就是旺达和喵多
 
 
-
-
-
-
-
 -----
 
 ####  catenarygong  
 ##### 171#       发表于 2019-12-7 21:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45764012&amp;ptid=1860852" target="_blank">purdre 发表于 2019-12-07 21:22:17</a>
@@ -3085,16 +1911,10 @@ parfum香水，clear干净，wonder神奇，最后那个读不出来</blockquote
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  wind4rap  
 ##### 172#       发表于 2019-12-7 22:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45764030&amp;ptid=1860852" target="_blank">catenarygong 发表于 2019-12-7 21:23</a>
@@ -3108,16 +1928,10 @@ parfum香水，clear干净，wonder神奇，最后那个读不出来</blockquote
 wonder是动物元素可能就跟治愈没关系了。
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 173#       发表于 2019-12-7 23:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45762919&amp;ptid=1860852" target="_blank">catenarygong 发表于 2019-12-7 19:55</a>
@@ -3127,25 +1941,13 @@ wonder是动物元素可能就跟治愈没关系了。
 说不定是给猫洗澡，给海龟取袋子一类的“兽医”
 
 
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 174#       发表于 2019-12-8 00:23
 
 
-
-
 哪里有情报说是兽医？
-
-
-
-
-
 
 
 -----
@@ -3154,15 +1956,8 @@ wonder是动物元素可能就跟治愈没关系了。
 ##### 175#         楼主| 发表于 2019-12-9 11:25
 
 
-
-
 继续无真相 ​​​​
 <img src="http://wx3.sinaimg.cn/mw690/9657fdc2gy1g9q946qh61j20u00dddgm.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3171,14 +1966,7 @@ wonder是动物元素可能就跟治愈没关系了。
 ##### 176#       发表于 2019-12-9 11:57
 
 
-
-
 这个加密笑死了
-
-
-
-
-
 
 
 -----
@@ -3187,14 +1975,7 @@ wonder是动物元素可能就跟治愈没关系了。
 ##### 177#       发表于 2019-12-9 12:00
 
 
-
-
 治愈系动物，不是治动物<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3203,16 +1984,9 @@ wonder是动物元素可能就跟治愈没关系了。
 ##### 178#       发表于 2019-12-9 12:56
 
 
-
-
 名字都怪怪的，而且sparkle这个老让我想起twilight sparkle<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -3221,14 +1995,7 @@ wonder是动物元素可能就跟治愈没关系了。
 ##### 179#       发表于 2019-12-9 13:20
 
 
-
-
 这名字怎么有种复刻公主的感觉
-
-
-
-
-
 
 
 -----
@@ -3237,14 +2004,7 @@ wonder是动物元素可能就跟治愈没关系了。
 ##### 180#         楼主| 发表于 2019-12-11 17:15
 
 
-
-
 据说今年为了防泄露，只在说明会的幻灯上有图，发给玩具批发零售商的战队和Q娃的资料只有文字
-
-
-
-
-
 
 
 -----
@@ -3253,16 +2013,9 @@ wonder是动物元素可能就跟治愈没关系了。
 ##### 181#       发表于 2019-12-11 17:32
 
 
-
-
 居然还没图
 
 那么文字透呢
-
-
-
-
-
 
 
 -----
@@ -3271,17 +2024,10 @@ wonder是动物元素可能就跟治愈没关系了。
 ##### 182#       发表于 2019-12-11 17:34
 
 
-
-
 今年的女人好神秘啊
 有没有内鬼在说明会偷偷拍照
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -3290,15 +2036,8 @@ wonder是动物元素可能就跟治愈没关系了。
 ##### 183#       发表于 2019-12-11 19:01
 
 
-
-
 星q我记得有个文字透很准确吧，图倒是藏了很久，还是糖果那边泄露的
 不过你现在捂得再严实，到时候是骡子是马拉出来溜溜就知道了
-
-
-
-
-
 
 
 -----
@@ -3307,14 +2046,7 @@ wonder是动物元素可能就跟治愈没关系了。
 ##### 184#       发表于 2019-12-12 14:31
 
 
-
-
 还没出啊，今年保密工作真严格，，，
-
-
-
-
-
 
 
 -----
@@ -3323,16 +2055,9 @@ wonder是动物元素可能就跟治愈没关系了。
 ##### 185#       发表于 2019-12-12 19:37
 
 
-
-
 这几年透得最早的还是抱q
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -3341,24 +2066,16 @@ wonder是动物元素可能就跟治愈没关系了。
 ##### 186#       发表于 2019-12-12 19:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45836851&amp;ptid=1860852" target="_blank">catenarygong 发表于 2019-12-12 19:37</a>
 这几年透得最早的还是抱q
 
   -- 来自 能看大图的 Stage1官方 Android客户端</blockquote><blockquote>不是奸笑么？</blockquote>
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 187#         楼主| 发表于 2019-12-12 20:19
-
-
 
 
 继续没真相
@@ -3374,33 +2091,19 @@ wonder是动物元素可能就跟治愈没关系了。
 ホープが追加
 
 
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 188#       发表于 2019-12-12 21:12
 
 
-
-
 真相还没有吗
-
-
-
-
-
 
 
 -----
 
 ####  hgcg-w  
 ##### 189#         楼主| 发表于 2019-12-12 21:13
-
-
 
 
 Q娃图透
@@ -3412,25 +2115,13 @@ Q娃图透
 马上明年就是第二晚图透的Q娃了
 
 
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 190#       发表于 2019-12-12 21:48
 
 
-
-
 再过两小时就单独第二了？
-
-
-
-
-
 
 
 -----
@@ -3439,14 +2130,7 @@ Q娃图透
 ##### 191#       发表于 2019-12-12 21:58
 
 
-
-
 蔚蓝和hop还行
-
-
-
-
-
 
 
 -----
@@ -3455,14 +2139,7 @@ Q娃图透
 ##### 192#       发表于 2019-12-13 04:34
 
 
-
-
 说起来为什么抱Q想到用法语（难道是为了yell和aile的日式谐音梗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3471,22 +2148,13 @@ Q娃图透
 ##### 193#       发表于 2019-12-13 08:25
 
 
-
-
 今年有高质量假图吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  吹雪桑大胜利  
 ##### 194#       发表于 2019-12-13 09:56
-
-
 
 
 转成英语是
@@ -3503,16 +2171,10 @@ Cure Hope
 微妙地像是东映会取的名字
 
 
-
-
-
-
-
 -----
 
 ####  catenarygong  
 ##### 195#       发表于 2019-12-13 16:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45841475&amp;ptid=1860852" target="_blank">宅音 发表于 2019-12-13 08:25:09</a>
@@ -3525,25 +2187,13 @@ Cure Hope
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  噗哩噗  
 ##### 196#       发表于 2019-12-13 17:48
 
 
-
-
 为什么我感觉有种奇怪的土味<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3552,21 +2202,13 @@ Cure Hope
 ##### 197#       发表于 2019-12-13 17:52
 
 
-
-
 土味好，贱命好养啊
-
-
-
-
-
 
 
 -----
 
 ####  spadepie  
 ##### 198#       发表于 2019-12-13 18:01
-
 
 
 <img src="http://wx1.sinaimg.cn/large/71f87cc0ly1g9v87ox204j20qo0m4jtk.jpg" referrerpolicy="no-referrer">
@@ -3576,25 +2218,13 @@ Cure Hope
 居然没人发图？
 
 
-
-
-
-
-
 -----
 
 ####  太阳灿灿  
 ##### 199#       发表于 2019-12-13 18:06
 
 
-
-
 属性是花水太阳，行吧，公主光之美少女第二部
-
-
-
-
-
 
 
 -----
@@ -3603,16 +2233,9 @@ Cure Hope
 ##### 200#       发表于 2019-12-13 18:09
 
 
-
-
 土味看起来能肉搏。
 
 请不要再bank战斗了。
-
-
-
-
-
 
 
 -----
@@ -3621,16 +2244,10 @@ Cure Hope
 ##### 201#         楼主| 发表于 2019-12-13 18:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45851090&amp;ptid=1860852" target="_blank">spadepie 发表于 2019-12-13 18:01</a>
 
 居然没人发图？</blockquote>
 <img src="http://wx3.sinaimg.cn/bmiddle/9657fdc2gy1g9v8eo9g6nj20730art9h.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3639,16 +2256,9 @@ Cure Hope
 ##### 202#       发表于 2019-12-13 18:20
 
 
-
-
 可爱是可爱，就是没啥亮眼的细节，比较普通
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -3657,14 +2267,7 @@ Cure Hope
 ##### 203#       发表于 2019-12-13 18:21
 
 
-
-
 看粉主那脸估计是川村人设，而川村人设的几部肉搏都挺少的。。。
-
-
-
-
-
 
 
 -----
@@ -3673,22 +2276,13 @@ Cure Hope
 ##### 204#       发表于 2019-12-13 18:27
 
 
-
-
 第一眼顺眼肯定川村
-
-
-
-
-
 
 
 -----
 
 ####  hgcg-w  
 ##### 205#         楼主| 发表于 2019-12-13 18:28
-
-
 
 
 キュアスマイル
@@ -3702,20 +2296,13 @@ Cure Hope
 ホープが追加
 
 
-
 我觉得应该是这个版本的名字
-
-
-
-
-
 
 
 -----
 
 ####  RainyH2O  
 ##### 206#       发表于 2019-12-13 18:37
-
 
 
  本帖最后由 RainyH2O 于 2019-12-13 18:39 编辑 
@@ -3725,26 +2312,13 @@ Cure Hope
 再来月亮那撞的也太多了，虽然从不同角度来看已经撞了好多了。。。
 
 
-
-
-
-
-
-
 -----
 
 ####  吹雪桑大胜利  
 ##### 207#       发表于 2019-12-13 18:42
 
 
-
-
 说到植物系那当然离不开土壤啊
-
-
-
-
-
 
 
 -----
@@ -3753,14 +2327,7 @@ Cure Hope
 ##### 208#       发表于 2019-12-13 18:45
 
 
-
-
 有点 土……
-
-
-
-
-
 
 
 -----
@@ -3769,23 +2336,15 @@ Cure Hope
 ##### 209#       发表于 2019-12-13 18:50
 
 
-
-
 亚马逊又猪队友了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 人设即视感太太太严重了...<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 不光是脸像川村大妈衣服设计也偏向于gogo<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  hgcg-w  
 ##### 210#         楼主| 发表于 2019-12-13 18:51
-
 
 
 <img src="http://wx3.sinaimg.cn/large/9657fdc2gy1g9vag93t0lj20za0u0tbh.jpg" referrerpolicy="no-referrer">
@@ -3795,17 +2354,10 @@ Cure Hope
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1g9vag8vj01j214a0oxtcc.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  RainyH2O  
 ##### 211#       发表于 2019-12-13 19:01
-
-
 
 
 光看人设创新元素是有点少，只能指望下剧情和作画别水了
@@ -3815,26 +2367,14 @@ Cure Hope
 再重演一次当年被偶活抢市场的操作雪崩一次，救不救得回来就不好说了
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 212#         楼主| 发表于 2019-12-13 19:08
 
 
-
-
 今年走漏风声的
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1g9vapxjkutj20h00kxdgs.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3843,21 +2383,13 @@ Cure Hope
 ##### 213#       发表于 2019-12-13 19:10
 
 
-
-
 就等CV可
-
-
-
-
-
 
 
 -----
 
 ####  Blackson  
 ##### 214#       发表于 2019-12-13 19:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45851823&amp;ptid=1860852" target="_blank">RainyH2O 发表于 2019-12-13 19:01</a>
@@ -3870,16 +2402,10 @@ Cure Hope
 偶活现在式微，美妙系列的对手我感觉更多是偶活，而不是Q娃
 
 
-
-
-
-
-
 -----
 
 ####  RainyH2O  
 ##### 215#       发表于 2019-12-13 19:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45852100&amp;ptid=1860852" target="_blank">Blackson 发表于 2019-12-13 19:22</a>
@@ -3896,27 +2422,15 @@ Cure Hope
 三丽鸥有没有威胁确实不好说，只是私心上希望来点强势的新鲜IP逼迫光美这边认真点，再这么水一年也太无聊了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 216#       发表于 2019-12-13 19:41
 
 
-
-
 说不定东映只是做一休一呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 黄色q娃这肤色怪怪的，有点粉？
 以及哪里动物搭档了，不还是淫兽嘛
-
-
-
-
-
 
 
 -----
@@ -3925,14 +2439,7 @@ Cure Hope
 ##### 217#       发表于 2019-12-13 19:47
 
 
-
-
 黄的给我非常不正经的印象
-
-
-
-
-
 
 
 -----
@@ -3941,14 +2448,7 @@ Cure Hope
 ##### 218#       发表于 2019-12-13 19:59
 
 
-
-
 喜欢黄，但是发型不喜……
-
-
-
-
-
 
 
 -----
@@ -3957,17 +2457,10 @@ Cure Hope
 ##### 219#       发表于 2019-12-13 20:04
 
 
-
-
 黄毛变身后的发型丑出天际了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 如果不是亚马逊透的我都怀疑是假图了，看着像同人的正统续作
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -3976,14 +2469,7 @@ Cure Hope
 ##### 220#         楼主| 发表于 2019-12-13 21:00
 
 
-
-
 你们说人设到底会是谁
-
-
-
-
-
 
 
 -----
@@ -3992,14 +2478,7 @@ Cure Hope
 ##### 221#       发表于 2019-12-13 21:06
 
 
-
-
 土味儿公主的感觉，不觉得丑就是了
-
-
-
-
-
 
 
 -----
@@ -4008,17 +2487,10 @@ Cure Hope
 ##### 222#       发表于 2019-12-13 21:08
 
 
-
-
 第一眼看这眉毛你说不是抱Q再临我便是不信啊
 
 
 不过多看几眼怎么看出了甜点的味道……
-
-
-
-
-
 
 
 -----
@@ -4027,16 +2499,10 @@ Cure Hope
 ##### 223#       发表于 2019-12-13 21:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45850975&amp;ptid=1860852" target="_blank">lyflyflxf 发表于 2019-12-13 17:52</a>
 
 土味好，贱命好养啊</blockquote>
 然而最土的幸充却<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4045,14 +2511,7 @@ Cure Hope
 ##### 224#       发表于 2019-12-13 21:21
 
 
-
-
 都2020年了Q娃的人设还是那种大妈脸+杀马特造型，我还是期待一下三丽鸥好了，毕竟那是节操社制作的
-
-
-
-
-
 
 
 -----
@@ -4061,17 +2520,10 @@ Cure Hope
 ##### 225#       发表于 2019-12-13 21:35
 
 
-
-
 这人设太川村了，比宫本川村多了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 粉主某个角度简直像幸女神复活
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -4080,17 +2532,10 @@ Cure Hope
 ##### 226#       发表于 2019-12-13 21:36
 
 
-
-
 跟一个群友剧透mh时突然想起来，九条光也是靠洗脑得到的亲情来着<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -4099,13 +2544,7 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 227#       发表于 2019-12-13 21:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这属性真就公主续作了？
-
-
-
-
-
 
 
 -----
@@ -4114,16 +2553,10 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 228#       发表于 2019-12-13 22:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45853506&amp;ptid=1860852" target="_blank">catenarygong 发表于 2019-12-13 21:35</a>
 这人设太川村了，比宫本川村多了
 粉主某个角度简直像幸女神复活</blockquote>
 从刘海看，更像阿花·改<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4132,14 +2565,7 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 229#       发表于 2019-12-13 22:13
 
 
-
-
 人设各种即视感，不过没关系，动起来一样是新老婆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4148,14 +2574,7 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 230#       发表于 2019-12-13 22:14
 
 
-
-
 川村人设的几部都还挺好看的，我倒希望这部可以复刻微笑
-
-
-
-
-
 
 
 -----
@@ -4164,14 +2583,7 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 231#       发表于 2019-12-13 22:30
 
 
-
-
 心型头饰特别抱Q，衣服555，川村可能性比较高，只有头发不怎么川村，不过川村头发三作三个风格，出现第四个风格也很正常。
-
-
-
-
-
 
 
 -----
@@ -4180,16 +2592,10 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 232#       发表于 2019-12-13 22:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45853805&amp;ptid=1860852" target="_blank">lyflyflxf 发表于 2019-12-13 22:09:19</a>
 从刘海看，更像阿花·改</blockquote>是的，希望粉主也是个优秀的女生（社长脸
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -4198,23 +2604,16 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 233#       发表于 2019-12-13 23:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45852378&amp;ptid=1860852" target="_blank">hugosol 发表于 2019-12-13 19:47</a>
 
 黄的给我非常不正经的印象</blockquote>
 给人一种平时卖萌划水 只有在个人回才会认真一下的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  leleq  
 ##### 234#       发表于 2019-12-13 23:18
-
 
 
  本帖最后由 leleq 于 2019-12-13 23:23 编辑 
@@ -4232,26 +2631,13 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 嗯…………都是三人开局还是复刻水果吧
 
 
-
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 235#       发表于 2019-12-13 23:20
 
 
-
-
 造型像哈鲁哈鲁，性格看起来倒是美幸
-
-
-
-
-
 
 
 -----
@@ -4260,15 +2646,8 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 236#       发表于 2019-12-13 23:33
 
 
-
-
 粉的哈鲁 蓝的saya 黄的教主
 每个即视感都十分强烈但是是土味加强版，东映看看隔壁棚多时髦啊，马上0202年了
-
-
-
-
-
 
 
 -----
@@ -4277,14 +2656,7 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 237#       发表于 2019-12-13 23:35
 
 
-
-
 这粉主笑起来简直就是花花
-
-
-
-
-
 
 
 -----
@@ -4293,14 +2665,7 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 238#       发表于 2019-12-13 23:41
 
 
-
-
 公主的既视感好强，尤其是蓝色和黄色
-
-
-
-
-
 
 
 -----
@@ -4309,14 +2674,7 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 239#       发表于 2019-12-13 23:49
 
 
-
-
 人设没特色呢<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4325,14 +2683,7 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 240#         楼主| 发表于 2019-12-14 08:44
 
 
-
-
 大家现在是第几阶段啊
-
-
-
-
-
 
 
 -----
@@ -4341,14 +2692,7 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 241#       发表于 2019-12-14 09:17
 
 
-
-
 阿花既视感
-
-
-
-
-
 
 
 -----
@@ -4357,16 +2701,9 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 242#       发表于 2019-12-14 09:23
 
 
-
-
 第一阶段，等个人间体
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -4375,16 +2712,9 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 243#       发表于 2019-12-14 09:43
 
 
-
-
 明年的女人蛮好看的，立领白手套都是我的xp，发型也很喜欢。就是没什么特色，完全看不出有什么元素
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -4393,16 +2723,9 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 244#       发表于 2019-12-14 09:45
 
 
-
-
 黄蓝土既视感 第一阶段
 
 粉和花花好像……1.5阶段
-
-
-
-
-
 
 
 -----
@@ -4411,14 +2734,7 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 245#       发表于 2019-12-14 09:46
 
 
-
-
 粉主的头饰，红黄绿三原色都有了，真实土味<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4427,14 +2743,7 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 246#       发表于 2019-12-14 09:50
 
 
-
-
 商品图土味，没准正式宣传图出来加点特效就香了呢
-
-
-
-
-
 
 
 -----
@@ -4443,14 +2752,7 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 247#       发表于 2019-12-14 10:01
 
 
-
-
 这也太没特色了吧
-
-
-
-
-
 
 
 -----
@@ -4459,16 +2761,9 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 248#       发表于 2019-12-14 10:02
 
 
-
-
 没特色+1没有眼前一亮的角色
 
 —— 来自 samsung SM-A6060, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -4477,13 +2772,7 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 249#       发表于 2019-12-14 11:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黄毛的发型不错，非常kirakiradokidoki。
-
-
-
-
-
 
 
 -----
@@ -4492,14 +2781,7 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 250#       发表于 2019-12-14 11:19
 
 
-
-
 既视感挺重的啊
-
-
-
-
-
 
 
 -----
@@ -4508,15 +2790,8 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 251#       发表于 2019-12-14 12:13
 
 
-
-
 今年人设这么有特点，又做出了什么好东西吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 今年别又牛头不对马嘴就行了
-
-
-
-
-
 
 
 -----
@@ -4525,14 +2800,7 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 252#       发表于 2019-12-14 13:02
 
 
-
-
 土味公主，主要是今年人设太好，对比起来就不咋地，不过粉主还挺合口味的，期待变身前
-
-
-
-
-
 
 
 -----
@@ -4541,14 +2809,7 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 253#       发表于 2019-12-14 13:11
 
 
-
-
 真快<img src="https://i.loli.net/2019/12/14/HQLu5DMZkg6cqO8.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4557,24 +2818,16 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 254#       发表于 2019-12-14 14:36
 
 
-
-
 川村q娃不是开播前都喊土，开播后都真香吗
 而且川村粉都不会让人失望的
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 255#       发表于 2019-12-14 17:11
-
 
 
 <blockquote>catenarygong 发表于 2019-12-14 14:36
@@ -4585,25 +2838,13 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 我觉得像中谷的人设
 
 
-
-
-
-
-
 -----
 
 ####  magus  
 ##### 256#       发表于 2019-12-14 17:13
 
 
-
-
 今年这个看起来挺香的，蓝色甚至还有点大妈感<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer"> 好棒 
-
-
-
-
-
 
 
 -----
@@ -4612,16 +2853,9 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 257#       发表于 2019-12-14 18:54
 
 
-
-
 等一个人间体，粉毛这个刘海挺戳我性癖的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -4630,24 +2864,16 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 258#       发表于 2019-12-14 19:03
 
 
-
-
 说到刘海，总感觉有点眼熟。结果和别人互发色图时才发现像兰斯里的萨特拉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 不知道明年的粉主敏不敏感<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  lyflyflxf  
 ##### 259#       发表于 2019-12-14 19:19
-
 
 
  本帖最后由 lyflyflxf 于 2019-12-14 19:25 编辑 
@@ -4664,25 +2890,13 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 2.5阶段。这人设太王道了：略地味的粉主加略聪慧的蓝黄
 
 
-
-
-
-
-
 -----
 
 ####  adsn  
 ##### 260#       发表于 2019-12-14 19:57
 
 
-
-
 一眼看上去各种以前女人的既视感，没法升阶段<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4691,14 +2905,7 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 261#       发表于 2019-12-14 21:24
 
 
-
-
 观感就是普普通通的第二阶段，好像没啥特别惊艳的地方
-
-
-
-
-
 
 
 -----
@@ -4707,23 +2914,16 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 262#       发表于 2019-12-14 23:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45857301&amp;ptid=1860852" target="_blank">qfqczr 发表于 2019-12-14 11:13</a>
 
 黄毛的发型不错，非常kirakiradokidoki。</blockquote>
 你没说我一开始还真没注意到是ksm的发型。明年的黄色两次击中好球区<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  榊遊矢  
 ##### 263#       发表于 2019-12-15 00:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45861264&amp;ptid=1860852" target="_blank">菊妖不是怪 发表于 2019-12-14 18:54</a>
@@ -4735,32 +2935,19 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 你一说我才注意到，粉毛的刘海是一半背到耳后一半垂下来的那种刘海啊，正好也戳我性癖，我好了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 264#         楼主| 发表于 2019-12-15 08:03
 
 
-
-
 等具体人设和人间体出来再猜声优？
-
-
-
-
-
 
 
 -----
 
 ####  达达葱2  
 ##### 265#       发表于 2019-12-15 14:12
-
 
 
 <blockquote>lyflyflxf 发表于 2019-12-14 19:19
@@ -4771,17 +2958,10 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 我也想看直女粉
 
 
-
-
-
-
-
 -----
 
 ####  catenarygong  
 ##### 266#       发表于 2019-12-16 14:51
-
-
 
 
 有一种莫名的感觉，明年cv安排可能和今年类似，就是老人（其他颜色）带新人（粉主）
@@ -4791,25 +2971,13 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Royi  
 ##### 267#       发表于 2019-12-16 16:11
 
 
-
-
 明年看起来好普通啊
-
-
-
-
-
 
 
 -----
@@ -4818,16 +2986,10 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 268#       发表于 2019-12-16 17:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45869273&amp;ptid=1860852" target="_blank">达达葱2 发表于 2019-12-15 14:12:04</a>
 我也想看直女粉</blockquote>川村粉基本都是直女粉，就幸比较难说
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -4836,21 +2998,13 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 269#       发表于 2019-12-16 17:59
 
 
-
-
 美幸喜欢彼得潘，不要太直
-
-
-
-
-
 
 
 -----
 
 ####  Sliurus  
 ##### 270#       发表于 2019-12-16 18:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45882694&amp;ptid=1860852" target="_blank">catenarygong 发表于 2019-12-16 17:40:34</a>
@@ -4860,27 +3014,15 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  HGCG  
 ##### 271#       发表于 2019-12-17 07:11
 
 
-
-
 每年都奶不到自己喜欢的声优
 
 我今年就求诸星堇了
-
-
-
-
-
 
 
 -----
@@ -4889,14 +3031,7 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 272#       发表于 2019-12-17 11:57
 
 
-
-
 该轮到香菜了吧
-
-
-
-
-
 
 
 -----
@@ -4905,19 +3040,11 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 273#       发表于 2019-12-17 12:00
 
 
-
-
 女主其实人设很不错，画起来很舒服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
 
 
 明年的女人.jpg
 (479.65 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -4926,24 +3053,7 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 2019-12-17 11:58 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201912/17/115849u66f7o8jqi57d1bh.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -4952,14 +3062,7 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 274#       发表于 2019-12-17 13:35
 
 
-
-
 人设太顺眼，预告要雷
-
-
-
-
-
 
 
 -----
@@ -4968,16 +3071,9 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 275#       发表于 2019-12-17 13:35
 
 
-
-
 就感觉明年粉主应该是稍微软一点的声线，可能是类似水树那样的
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -4986,24 +3082,15 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 276#       发表于 2019-12-17 15:16
 
 
-
-
 凹酱快来制霸东映英雄档
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  HGCG  
 ##### 277#       发表于 2019-12-18 07:02
-
-
 
 
 其实现在更关心明年的STAFF
@@ -5015,27 +3102,15 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 日站还有人说该轮到666了
 
 
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 278#       发表于 2019-12-18 07:56
 
 
-
-
 话说明年到底是不是医生主题
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -5044,22 +3119,15 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 279#       发表于 2019-12-18 09:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45853834&amp;ptid=1860852" target="_blank">rar1536770 发表于 2019-12-13 22:13:49</a>
 人设各种即视感，不过没关系，动起来一样是新老婆</blockquote>
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  达达葱2  
 ##### 280#       发表于 2019-12-18 11:04
-
 
 
 <blockquote>HGCG 发表于 2019-12-18 07:02
@@ -5072,16 +3140,10 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 666是谁
 
 
-
-
-
-
-
 -----
 
 ####  Blackson  
 ##### 281#       发表于 2019-12-18 11:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45902076&amp;ptid=1860852" target="_blank">达达葱2 发表于 2019-12-18 11:04</a>
@@ -5090,25 +3152,13 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 三条陆，代表作《假面骑士W》
 
 
-
-
-
-
-
 -----
 
 ####  PrincessBanana  
 ##### 282#       发表于 2019-12-18 12:07
 
 
-
-
 明年的黄总给我一种坏女人，坏女人！的感觉（
-
-
-
-
-
 
 
 -----
@@ -5117,15 +3167,9 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 283#       发表于 2019-12-19 10:12
 
 
-
 <blockquote>Blackson 发表于 2019-12-18 11:49
 三条陆，代表作《假面骑士W》</blockquote>
 反应过来了
-
-
-
-
-
 
 
 -----
@@ -5134,16 +3178,10 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 284#       发表于 2019-12-19 13:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45902756&amp;ptid=1860852" target="_blank">Blackson 发表于 2019-12-18 11:49</a>
 
 三条陆，代表作《假面骑士W》</blockquote>
 666l来了怕不是要变成刑侦Q娃，还不是和福尔摩斯联动那种
-
-
-
-
-
 
 
 -----
@@ -5152,14 +3190,7 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 285#       发表于 2019-12-20 17:55
 
 
-
-
 别复刻了，整点新东西吧
-
-
-
-
-
 
 
 -----
@@ -5168,16 +3199,10 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 286#       发表于 2019-12-20 17:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45930424&amp;ptid=1860852" target="_blank">mchan 发表于 2019-12-20 16:58:07</a>
 今年的不就是微笑复刻么？明年会不会是心跳或幸充的复刻？</blockquote>这两个不管其中哪一个复刻，起码药管够<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -5186,15 +3211,9 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 287#       发表于 2019-12-20 18:49
 
 
-
  本帖最后由 HGCG 于 2019-12-20 18:52 编辑 
 
 <img src="http://wx2.sinaimg.cn/large/9657fdc2gy1ga3ciu6lvej20dw09v40d.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5203,16 +3222,10 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 288#       发表于 2019-12-20 19:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45930424&amp;ptid=1860852" target="_blank">mchan 发表于 2019-12-20 16:58:07</a>
 今年的不就是微笑复刻么？明年会不会是心跳或幸充的复刻？</blockquote>讲道理，今年算哪门子复刻微笑
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -5221,14 +3234,7 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 289#       发表于 2019-12-20 21:16
 
 
-
-
 完了，明年东映貌似要做境界触发者2了，人手怕是又要没了
-
-
-
-
-
 
 
 -----
@@ -5237,22 +3243,15 @@ q娃果然三观不正啊<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 290#       发表于 2019-12-21 08:33
 
 
-
 <blockquote>HGCG 发表于 2019-12-20 18:49
 </blockquote>
 看到东京喵喵了
-
-
-
-
-
 
 
 -----
 
 ####  Blackson  
 ##### 291#       发表于 2019-12-21 17:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45939589&amp;ptid=1860852" target="_blank">mchan 发表于 2019-12-21 16:43</a>
@@ -5265,16 +3264,10 @@ Reddit 上有人说这次的人设和三月份《宝可梦日月》捏他有点�
 粉主不可能是老油条，蓝&amp;黄的话还有可能
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 292#       发表于 2019-12-21 17:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45939720&amp;ptid=1860852" target="_blank">Blackson 发表于 2019-12-21 17:00</a>
@@ -5283,16 +3276,10 @@ Reddit 上有人说这次的人设和三月份《宝可梦日月》捏他有点�
 不是也有过抓心这个例子
 
 
-
-
-
-
-
 -----
 
 ####  spadepie  
 ##### 293#       发表于 2019-12-21 17:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45940158&amp;ptid=1860852" target="_blank">月夜凝雪 发表于 2019-12-21 17:49</a>
@@ -5302,32 +3289,19 @@ Reddit 上有人说这次的人设和三月份《宝可梦日月》捏他有点�
 —— 来自 samsung SM-A6060, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  rar1536770  
 ##### 294#       发表于 2019-12-21 18:57
 
 
-
-
 找新人也别乱找了，花大王的cv是加分，阿光的cv是扣分，我现在都还没适应阿光的声音。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  zyw0  
 ##### 295#       发表于 2019-12-21 19:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45940229&amp;ptid=1860852" target="_blank">spadepie 发表于 2019-12-21 17:57:06</a>
@@ -5338,25 +3312,13 @@ Reddit 上有人说这次的人设和三月份《宝可梦日月》捏他有点�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  粉儿alice  
 ##### 296#       发表于 2019-12-22 00:33
 
 
-
-
 连续三年德行 现在能找一些正常科班出生没有什么恶性丑闻的声优已经很好惹
-
-
-
-
-
 
 
 -----
@@ -5365,14 +3327,7 @@ Reddit 上有人说这次的人设和三月份《宝可梦日月》捏他有点�
 ##### 297#       发表于 2019-12-22 07:05
 
 
-
-
 找新人是为了档期吧，到时候各种活动请不回人就太尴尬了
-
-
-
-
-
 
 
 -----
@@ -5381,16 +3336,10 @@ Reddit 上有人说这次的人设和三月份《宝可梦日月》捏他有点�
 ##### 298#       发表于 2019-12-22 10:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45944700&amp;ptid=1860852" target="_blank">mchan 发表于 2019-12-22 09:20:29</a>
 水树奈奈（汁波蜜）和中岛爱（爱小爱）这两个是特殊的：声优本人在参与之前就已经是大友了。立派大友高桥 ...</blockquote>年轻的看Q娃长大的应该不少吧
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -5399,16 +3348,9 @@ Reddit 上有人说这次的人设和三月份《宝可梦日月》捏他有点�
 ##### 299#       发表于 2019-12-22 13:25
 
 
-
-
 觉得这人设线条比抱Q时少了很多，是不是可以期待一下肉搏
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -5417,15 +3359,9 @@ Reddit 上有人说这次的人设和三月份《宝可梦日月》捏他有点�
 ##### 300#       发表于 2019-12-23 13:23
 
 
-
  本帖最后由 spadepie 于 2019-12-23 13:24 编辑 
 
 <img src="http://wx3.sinaimg.cn/large/e7cbae74ly1ga6l4cytwjj21400u0dse.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5434,23 +3370,15 @@ Reddit 上有人说这次的人设和三月份《宝可梦日月》捏他有点�
 ##### 301#       发表于 2019-12-23 13:27
 
 
-
 <blockquote>spadepie 发表于 2019-12-23 13:23
 </blockquote>
 粉主好看，顿时第三阶段了
-
-
-
-
-
 
 
 -----
 
 ####  spadepie  
 ##### 302#       发表于 2019-12-23 13:27
-
-
 
 
 花寺和香？
@@ -5460,26 +3388,15 @@ Reddit 上有人说这次的人设和三月份《宝可梦日月》捏他有点�
 平光日向？
 
 
-
-
-
-
-
 -----
 
 ####  DARK_HGCG  
 ##### 303#       发表于 2019-12-23 13:31
 
 
-
 <img src="http://wx1.sinaimg.cn/large/e7cbae74ly1ga6l4i5h4sj216o1kwk5j.jpg" referrerpolicy="no-referrer">
 
 <img src="http://wx1.sinaimg.cn/large/e7cbae74ly1ga6l4gf5zqj20u0140ai7.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5488,14 +3405,7 @@ Reddit 上有人说这次的人设和三月份《宝可梦日月》捏他有点�
 ##### 304#       发表于 2019-12-23 13:33
 
 
-
-
 亮了，但也没看出有啥亮点。完全不知道是微笑公主还是拥抱的缝合怪。
-
-
-
-
-
 
 
 -----
@@ -5504,14 +3414,7 @@ Reddit 上有人说这次的人设和三月份《宝可梦日月》捏他有点�
 ##### 305#       发表于 2019-12-23 13:34
 
 
-
-
 这人间体，也不是说不好看，但第一眼感觉是主角的同学
-
-
-
-
-
 
 
 -----
@@ -5520,24 +3423,15 @@ Reddit 上有人说这次的人设和三月份《宝可梦日月》捏他有点�
 ##### 306#       发表于 2019-12-23 13:37
 
 
-
-
 人间体我可以
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  spadepie  
 ##### 307#       发表于 2019-12-23 13:38
-
-
 
 
 Q娃名是
@@ -5549,17 +3443,10 @@ Q娃名是
 黄 火花
 
 
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 308#       发表于 2019-12-23 13:42
-
-
 
 
 这淫兽也太像555了，会不会又有人兽恋<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，不过是淫兽变身器的设定
@@ -5568,27 +3455,15 @@ Q娃名是
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  粉儿alice  
 ##### 309#       发表于 2019-12-23 13:44
 
 
-
-
 人设就这样吧...
 现在有多少花字辈的同学了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 还是看士大夫给不给力了
-
-
-
-
-
 
 
 -----
@@ -5597,14 +3472,7 @@ Q娃名是
 ##### 310#       发表于 2019-12-23 13:49
 
 
-
-
 这个黄主一眼看上去一股peace和kirara的混合体的感觉
-
-
-
-
-
 
 
 -----
@@ -5613,14 +3481,7 @@ Q娃名是
 ##### 311#       发表于 2019-12-23 15:06
 
 
-
-
 会不会没肉搏了就用法杖变魔法
-
-
-
-
-
 
 
 -----
@@ -5629,23 +3490,16 @@ Q娃名是
 ##### 312#       发表于 2019-12-23 15:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45957868&amp;ptid=1860852" target="_blank">达达葱2 发表于 2019-12-23 15:06</a>
 
 会不会没肉搏了就用法杖变魔法</blockquote>
 多少年了ID都死一个了还这德性
 
 
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 313#       发表于 2019-12-23 15:50
-
 
 
 <blockquote>風駿 发表于 2019-12-23 15:48
@@ -5655,30 +3509,17 @@ Q娃名是
 你看今年打戏这么水，令和新时代砍掉也不是不可能啊
 
 
-
-
-
-
-
 -----
 
 ####  rar1536770  
 ##### 314#       发表于 2019-12-23 16:03
 
 
-
-
 正儿八经的第一个黑头发人间体吧，其他的深色头发的都是有其他颜色倾向的。
-
-
-
-
 
 
 5c07f343ad4bd113166c465c55afa40f4afb0549.jpg
 (81.77 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -5687,24 +3528,7 @@ Q娃名是
 2019-12-23 16:02 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201912/23/160250jyqz9d96qgnnjdg6.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -5713,23 +3537,15 @@ Q娃名是
 ##### 315#       发表于 2019-12-23 16:26
 
 
-
 <blockquote>rar1536770 发表于 2019-12-23 16:03
 正儿八经的第一个黑头发人间体吧，其他的深色头发的都是有其他颜色倾向的。 ...</blockquote>
 一嫂泪流满面
-
-
-
-
-
 
 
 -----
 
 ####  catenarygong  
 ##### 316#       发表于 2019-12-23 16:36
-
-
 
 
 人间体直接击中好球区<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
@@ -5739,16 +3555,10 @@ Q娃名是
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  leleq  
 ##### 317#       发表于 2019-12-23 16:38
-
 
 
  本帖最后由 leleq 于 2019-12-23 16:39 编辑 
@@ -5758,27 +3568,15 @@ Q娃名是
 这图的黄毛这么感觉像 美妙天堂的米蕾
 
 
-
-
-
-
-
 -----
 
 ####  catenarygong  
 ##### 318#       发表于 2019-12-23 16:41
 
 
-
-
 看人设就是普通粉，淑女蓝和活力黄
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -5787,15 +3585,9 @@ Q娃名是
 ##### 319#       发表于 2019-12-23 16:47
 
 
-
  本帖最后由 最强惠酱 于 2019-12-23 16:50 编辑 
 
 虽说像女主同学，但是三人发型装扮看起来好潮（女主q娃形态贵妇感），我爱了，不知是不是上的大小姐学校
-
-
-
-
-
 
 
 -----
@@ -5804,14 +3596,7 @@ Q娃名是
 ##### 320#       发表于 2019-12-23 17:05
 
 
-
-
 粉主人间体爱了，第三阶段<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5820,14 +3605,7 @@ Q娃名是
 ##### 321#       发表于 2019-12-23 17:12
 
 
-
-
 写着叫优雅，粉主越看越有一股抚媚感，想看同人图<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5836,16 +3614,10 @@ Q娃名是
 ##### 322#       发表于 2019-12-23 17:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45959063&amp;ptid=1860852" target="_blank">达达葱2 发表于 2019-12-23 16:26</a>
 
 一嫂泪流满面</blockquote>
 一嫂偏紫呀
-
-
-
-
-
 
 
 -----
@@ -5854,14 +3626,7 @@ Q娃名是
 ##### 323#       发表于 2019-12-23 17:41
 
 
-
-
 人间体还挺对味儿的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5870,22 +3635,13 @@ Q娃名是
 ##### 324#       发表于 2019-12-23 17:45
 
 
-
-
 粉主变身这么骚，人间体怎么这么幼……
-
-
-
-
-
 
 
 -----
 
 ####  蓝泽渚  
 ##### 325#       发表于 2019-12-23 17:48
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201912/23/174817i94rq6b7lb6lbvb4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
@@ -5898,30 +3654,14 @@ Q娃名是
 2019-12-23 17:48 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  最强惠酱  
 ##### 326#       发表于 2019-12-23 17:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45960131&amp;ptid=1860852" target="_blank">蓝泽渚 发表于 2019-12-23 17:48</a></blockquote>
 人间体其实更kirara，我看她们衣服都好潮，女主的圆领就有点保守的土味感，不过发型很ギャル
-
-
-
-
-
 
 
 -----
@@ -5930,16 +3670,9 @@ Q娃名是
 ##### 327#       发表于 2019-12-23 18:31
 
 
-
-
 粉主人间体我好了
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -5948,23 +3681,14 @@ Q娃名是
 ##### 328#       发表于 2019-12-23 19:02
 
 
-
-
 没有反光色差问题的话 ちゆ黑发也可以算是明年女人特色了...
 话说星期天节目三森表明想配q娃 她这几年都是女二蓝色黑毛 可以毒奶口
-
-
-
-
-
 
 
 -----
 
 ####  RainyH2O  
 ##### 329#       发表于 2019-12-23 19:34
-
-
 
 
 说来看到个绿色的元素瓶
@@ -5974,17 +3698,10 @@ Q娃名是
 这是要追加两？
 
 
-
-
-
-
-
 -----
 
 ####  catenarygong  
 ##### 330#       发表于 2019-12-23 20:14
-
-
 
 
 q娃除了月光姐之外几乎没有贫穷妹子人设了吧
@@ -5994,32 +3711,19 @@ q娃除了月光姐之外几乎没有贫穷妹子人设了吧
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Blackson  
 ##### 331#       发表于 2019-12-23 20:22
 
 
-
-
 人间体人设初看很土味，看不出蓝毛有大小姐的味道
-
-
-
-
-
 
 
 -----
 
 ####  小黄酱  
 ##### 332#       发表于 2019-12-23 20:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45961645&amp;ptid=1860852" target="_blank">catenarygong 发表于 2019-12-23 20:14</a>
@@ -6031,16 +3735,10 @@ q娃除了月光姐之外几乎没有贫穷妹子人设了吧
 绿川直家里七姐弟，可不见得多富裕吧？同样是家里有六姐弟，《偶像大师》的高槻弥生设定上就是一个穷人。
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-ix  
 ##### 333#       发表于 2019-12-23 20:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45961645&amp;ptid=1860852" target="_blank">catenarygong 发表于 2019-12-23 20:14</a>
@@ -6052,25 +3750,13 @@ q娃除了月光姐之外几乎没有贫穷妹子人设了吧
 <img src="http://wx3.sinaimg.cn/mw690/9657fdc2gy1ga4nrum1qfj208w075q3k.jpg" referrerpolicy="no-referrer">为什么你有这个感觉
 
 
-
-
-
-
-
 -----
 
 ####  宅音  
 ##### 334#       发表于 2019-12-23 21:14
 
 
-
-
 粉主真香了，其他还没有<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6079,14 +3765,7 @@ q娃除了月光姐之外几乎没有贫穷妹子人设了吧
 ##### 335#       发表于 2019-12-23 21:22
 
 
-
-
 这粉主有点像剑盾女主啊...挺好的我喜！不知道声优会是谁，今年阿光听得我头痛
-
-
-
-
-
 
 
 -----
@@ -6095,24 +3774,16 @@ q娃除了月光姐之外几乎没有贫穷妹子人设了吧
 ##### 336#       发表于 2019-12-23 21:27
 
 
-
-
 贫穷比较多梗可以玩，算是萌点<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 希望蓝q娃能像纱绫那样兴趣比较独特。阿援有点这个倾向不过喜好没纱绫那么偏门
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  lyflyflxf  
 ##### 337#       发表于 2019-12-23 21:35
-
 
 
  本帖最后由 lyflyflxf 于 2019-12-23 21:37 编辑 
@@ -6125,16 +3796,10 @@ q娃除了月光姐之外几乎没有贫穷妹子人设了吧
 另外，淫兽数量比Q娃人数多一个，应该也会有交代吧
 
 
-
-
-
-
-
 -----
 
 ####  catenarygong  
 ##### 338#       发表于 2019-12-23 21:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45961833&amp;ptid=1860852" target="_blank">hgcg-ix 发表于 2019-12-23 20:39:34</a>
@@ -6145,16 +3810,10 @@ q娃除了月光姐之外几乎没有贫穷妹子人设了吧
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  catenarygong  
 ##### 339#       发表于 2019-12-23 21:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45962433&amp;ptid=1860852" target="_blank">lyflyflxf 发表于 2019-12-23 21:35:39</a>
@@ -6167,30 +3826,17 @@ q娃除了月光姐之外几乎没有贫穷妹子人设了吧
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  rar1536770  
 ##### 340#       发表于 2019-12-23 21:47
 
 
-
-
 蓝毛人间体的穿搭跟我前几天画的吹吹有点相似
-
-
-
-
 
 
 QQ图片20191223214712.png
 (317.98 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -6199,28 +3845,12 @@ QQ图片20191223214712.png
 2019-12-23 21:47 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201912/23/214706krw1n9rr1wiwni4z.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -6230,12 +3860,7 @@ QQ图片20191223214712.png
 | hgcg-ix| + 1|欢乐多|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -6244,23 +3869,16 @@ QQ图片20191223214712.png
 ##### 341#       发表于 2019-12-23 21:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45962535&amp;ptid=1860852" target="_blank">rar1536770 发表于 2019-12-23 21:47:15</a>
 蓝毛人间体的穿搭跟我前几天画的吹吹有点相似</blockquote>吹吹和……罗武？！<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 342#       发表于 2019-12-23 21:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45962433&amp;ptid=1860852" target="_blank">lyflyflxf 发表于 2019-12-23 21:35:39</a>
@@ -6271,16 +3889,10 @@ QQ图片20191223214712.png
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  rar1536770  
 ##### 343#       发表于 2019-12-23 22:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45962602&amp;ptid=1860852" target="_blank">Sliurus 发表于 2019-12-23 21:54</a>
@@ -6292,16 +3904,10 @@ QQ图片20191223214712.png
 对
 
 
-
-
-
-
-
 -----
 
 ####  lyflyflxf  
 ##### 344#       发表于 2019-12-23 22:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45962474&amp;ptid=1860852" target="_blank">catenarygong 发表于 2019-12-23 21:40</a>
@@ -6313,16 +3919,10 @@ QQ图片20191223214712.png
 但愿别是黑发女路人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lyflyflxf  
 ##### 345#       发表于 2019-12-23 22:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45962511&amp;ptid=1860852" target="_blank">catenarygong 发表于 2019-12-23 21:44</a>
@@ -6334,16 +3934,10 @@ QQ图片20191223214712.png
 未来的人设挺白甜的。明年女主的人设没给我那种感觉
 
 
-
-
-
-
-
 -----
 
 ####  lyflyflxf  
 ##### 346#       发表于 2019-12-23 22:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45962535&amp;ptid=1860852" target="_blank">rar1536770 发表于 2019-12-23 21:47</a>
@@ -6352,16 +3946,10 @@ QQ图片20191223214712.png
 吹吹穿的这裙子有什么特别的名字吗？感觉在现实生活中没见过这样的
 
 
-
-
-
-
-
 -----
 
 ####  rar1536770  
 ##### 347#       发表于 2019-12-23 22:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45962736&amp;ptid=1860852" target="_blank">lyflyflxf 发表于 2019-12-23 22:10</a>
@@ -6370,16 +3958,10 @@ QQ图片20191223214712.png
 好像叫裹裙
 
 
-
-
-
-
-
 -----
 
 ####  lyflyflxf  
 ##### 348#       发表于 2019-12-23 22:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45962806&amp;ptid=1860852" target="_blank">rar1536770 发表于 2019-12-23 22:15</a>
@@ -6389,25 +3971,13 @@ QQ图片20191223214712.png
 谢谢
 
 
-
-
-
-
-
 -----
 
 ####  太阳灿灿  
 ##### 349#       发表于 2019-12-24 09:21
 
 
-
-
 蓝色的人间体看起来那么文静，怎么变身后感觉那么强气。。。有种看到丽华大人二段变身时的那种感觉
-
-
-
-
-
 
 
 -----
@@ -6416,14 +3986,7 @@ QQ图片20191223214712.png
 ##### 350#       发表于 2019-12-24 11:21
 
 
-
-
 人设似乎是中谷？
-
-
-
-
-
 
 
 -----
@@ -6432,21 +3995,13 @@ QQ图片20191223214712.png
 ##### 351#       发表于 2019-12-24 12:24
 
 
-
-
 看着像川村
-
-
-
-
-
 
 
 -----
 
 ####  hgcg-ix  
 ##### 352#       发表于 2019-12-24 17:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45959063&amp;ptid=1860852" target="_blank">达达葱2 发表于 2019-12-23 16:26</a>
@@ -6460,25 +4015,13 @@ QQ图片20191223214712.png
 <img src="http://wx2.sinaimg.cn/large/9657fdc2gy1ga7ypyaytgj20zk0k04qp.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  小樱与小狼  
 ##### 353#       发表于 2019-12-24 18:04
 
 
-
-
 这次人设，第一眼上去就很棒啊。
-
-
-
-
-
 
 
 -----
@@ -6487,23 +4030,16 @@ QQ图片20191223214712.png
 ##### 354#       发表于 2019-12-24 19:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45971324&amp;ptid=1860852" target="_blank">小樱与小狼 发表于 2019-12-24 18:04</a>
 
 这次人设，第一眼上去就很棒啊。</blockquote>
 你在第几阶段？
 
 
-
-
-
-
-
 -----
 
 ####  小樱与小狼  
 ##### 355#       发表于 2019-12-24 19:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45971869&amp;ptid=1860852" target="_blank">hgcg-ix 发表于 2019-12-24 19:02</a>
@@ -6514,27 +4050,15 @@ QQ图片20191223214712.png
 变身后都算顺眼，不需要适应的那种。
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-ix  
 ##### 356#       发表于 2019-12-24 23:24
 
 
-
-
 一流出人设图就觉得顺眼的Q娃
 
 有哪几部没让人失望？
-
-
-
-
-
 
 
 -----
@@ -6543,24 +4067,15 @@ QQ图片20191223214712.png
 ##### 357#       发表于 2019-12-24 23:32
 
 
-
-
 入坑晚，有哪些人设一流出就很顺眼的q娃
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  小黄酱  
 ##### 358#       发表于 2019-12-24 23:53
-
-
 
 
 我当初看到公主五年前的偷跑图，就觉得很土，一看就很不顺眼，哪怕是现在也同样不喜欢。
@@ -6574,17 +4089,10 @@ QQ图片20191223214712.png
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  小黄酱  
 ##### 359#       发表于 2019-12-25 00:03
-
-
 
 
 我个人在网络上看q娃的第一印象，以及看完之后的评价：
@@ -6604,16 +4112,10 @@ QQ图片20191223214712.png
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  catenarygong  
 ##### 360#       发表于 2019-12-25 01:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45974243&amp;ptid=1860852" target="_blank">Sliurus 发表于 2019-12-24 23:32:44</a>
@@ -6627,26 +4129,14 @@ QQ图片20191223214712.png
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 361#       发表于 2019-12-25 06:17
 
 
-
-
 个人觉得决定一部动画好不好看的是剧情和演出，不过对于某些想看美少女贴贴的就不是这样
 再说了，前期流出的也只有人设，说难听点，无论好看难看，都要播一年。只是人设好看的话前期讨论的人更多
-
-
-
-
-
 
 
 -----
@@ -6655,14 +4145,7 @@ QQ图片20191223214712.png
 ##### 362#       发表于 2019-12-25 07:08
 
 
-
-
 有一说一，法q我喜欢 剧情我也喜欢 是啦我就是白河豚怎样啦！
-
-
-
-
-
 
 
 -----
@@ -6671,14 +4154,7 @@ QQ图片20191223214712.png
 ##### 363#       发表于 2019-12-25 07:41
 
 
-
-
 谨慎观望，最主要是明年剧情。。。。
-
-
-
-
-
 
 
 -----
@@ -6687,16 +4163,9 @@ QQ图片20191223214712.png
 ##### 364#       发表于 2019-12-25 07:41
 
 
-
-
 有一说一，q娃50集播一年，占据一大半以上都是日常回，主线剧情比例其实很小。而能够留住观众的，关键是趣味性。至于什么主题思想故事深度，都建立在是否有趣以及能否看懂之上。这一点基本上只有抓心和微笑做到了。之前看2ch的历届动画排行榜，也仅仅只有这两部q娃上榜。至于你们吹的公主，那就见仁见智了。
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -6705,21 +4174,13 @@ QQ图片20191223214712.png
 ##### 365#       发表于 2019-12-25 07:51
 
 
-
-
 公主主要是太正经了，毕竟要上品要优雅
-
-
-
-
-
 
 
 -----
 
 ####  Sliurus  
 ##### 366#       发表于 2019-12-25 07:55
-
 
 
  本帖最后由 Sliurus 于 2019-12-25 08:06 编辑 
@@ -6744,30 +4205,17 @@ QQ图片20191223214712.png
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  小黄酱  
 ##### 367#       发表于 2019-12-25 08:22
 
 
-
-
 2014年年底的新闻，公主的偷跑图，路人评价为土鳖。虽然不排除写新闻的人没看过茶几就是了。
-
-
-
-
 
 
 6C22419856BA2448D6467B10FFFCD0C1.jpg
 (71.82 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -6776,111 +4224,46 @@ QQ图片20191223214712.png
 2019-12-25 08:20 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201912/25/082057qi3gtgpisfl2f52s.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 4F1CFFFB40E55C9F59C77C992639EF8A.jpg
 (84.65 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-12-25 08:21 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201912/25/082104nzomojsodrxhjvoo.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 4CCB57BA71711F83D60D35FEBD354FB7.jpg
 (97.99 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-12-25 08:21 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201912/25/082109h3ev21jkj3u06u3e.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 D1275E08A82B008681F48B6074B7A8EA.jpg
 (89.73 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-12-25 08:21 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201912/25/082115tka1ahgslugu12ss.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -6889,21 +4272,13 @@ D1275E08A82B008681F48B6074B7A8EA.jpg
 ##### 368#       发表于 2019-12-25 09:18
 
 
-
-
 明天应该就开官网了吧，staff这些明天应该可以有了，为什么中外都猜川村呢
-
-
-
-
-
 
 
 -----
 
 ####  spadepie  
 ##### 369#       发表于 2019-12-25 10:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45976442&amp;ptid=1860852" target="_blank">chentry 发表于 2019-12-25 09:18</a>
@@ -6913,26 +4288,15 @@ D1275E08A82B008681F48B6074B7A8EA.jpg
 —— 来自 samsung SM-A6060, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  rar1536770  
 ##### 370#       发表于 2019-12-25 10:52
 
 
-
  本帖最后由 rar1536770 于 2019-12-25 11:01 编辑 
 
 编辑
-
-
-
-
-
 
 
 -----
@@ -6941,14 +4305,7 @@ D1275E08A82B008681F48B6074B7A8EA.jpg
 ##### 371#       发表于 2019-12-25 11:54
 
 
-
-
 明天新女人的官网就要更新了吧
-
-
-
-
-
 
 
 -----
@@ -6957,19 +4314,11 @@ D1275E08A82B008681F48B6074B7A8EA.jpg
 ##### 372#       发表于 2019-12-25 13:41
 
 
-
-
 地球的医生 可以确定是环保Q娃了？
-
-
-
-
 
 
 3D449364-D963-436E-B8C6-7E5FE6CF23E4.jpeg
 (78.22 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -6978,24 +4327,7 @@ D1275E08A82B008681F48B6074B7A8EA.jpg
 2019-12-25 13:40 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201912/25/134047opllww2l2lh9lqym.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -7004,14 +4336,8 @@ D1275E08A82B008681F48B6074B7A8EA.jpg
 ##### 373#       发表于 2019-12-25 17:21
 
 
-
 <img src="http://wx2.sinaimg.cn/large/bcfcde0agy1ga936s4se0j20i20pkjxd.jpg" referrerpolicy="no-referrer">
 <img src="http://wx4.sinaimg.cn/large/bcfcde0agy1ga936s3lrqj20i20a40vk.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7020,14 +4346,7 @@ D1275E08A82B008681F48B6074B7A8EA.jpg
 ##### 374#       发表于 2019-12-25 17:29
 
 
-
-
 黄色的睫毛好惊悚....
-
-
-
-
-
 
 
 -----
@@ -7036,16 +4355,10 @@ D1275E08A82B008681F48B6074B7A8EA.jpg
 ##### 375#       发表于 2019-12-25 17:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45982763&amp;ptid=1860852" target="_blank">蓝泽渚 发表于 2019-12-25 17:29</a>
 
 黄色的睫毛好惊悚....</blockquote>
 因为是蓝绿色的吧
-
-
-
-
-
 
 
 -----
@@ -7054,22 +4367,13 @@ D1275E08A82B008681F48B6074B7A8EA.jpg
 ##### 376#       发表于 2019-12-25 18:05
 
 
-
-
 黄毛的睫毛好突兀，另外两个随发色，就她是头发黄色睫毛绿色。难道设定是辣妹？
-
-
-
-
-
 
 
 -----
 
 ####  catenarygong  
 ##### 377#       发表于 2019-12-25 18:10
-
-
 
 
 黄色的猫科妖精是雄性吗？
@@ -7079,27 +4383,15 @@ D1275E08A82B008681F48B6074B7A8EA.jpg
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 378#       发表于 2019-12-25 18:34
 
 
-
-
 话说这种棒子玩了多少年了，水果、微笑、拥抱，还有哪几代？
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -7108,23 +4400,16 @@ D1275E08A82B008681F48B6074B7A8EA.jpg
 ##### 379#       发表于 2019-12-25 18:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45983476&amp;ptid=1860852" target="_blank">Sliurus 发表于 2019-12-25 18:34:11</a>
 话说这种棒子玩了多少年了，水果、微笑、拥抱，还有哪几代？</blockquote>说不定就是同一根棒子，被不同时间线的q娃发现并作为武器使用
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 380#       发表于 2019-12-25 18:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45983202&amp;ptid=1860852" target="_blank">catenarygong 发表于 2019-12-25 18:10:43</a>
@@ -7136,25 +4421,13 @@ D1275E08A82B008681F48B6074B7A8EA.jpg
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  最强惠酱  
 ##### 381#       发表于 2019-12-25 18:41
 
 
-
-
 要搞bg希望来个诚哥一样的角色备胎
-
-
-
-
-
 
 
 -----
@@ -7163,14 +4436,8 @@ D1275E08A82B008681F48B6074B7A8EA.jpg
 ##### 382#       发表于 2019-12-25 18:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45956782&amp;ptid=1860852" target="_blank">DARK_HGCG 发表于 2019-12-23 13:31</a></blockquote>
 有人猜追加会是紫色和绿色(根据图一的五色笔)
-
-
-
-
-
 
 
 -----
@@ -7179,14 +4446,7 @@ D1275E08A82B008681F48B6074B7A8EA.jpg
 ##### 383#       发表于 2019-12-25 18:47
 
 
-
-
 bg好啊，整天百合也没意思
-
-
-
-
-
 
 
 -----
@@ -7195,16 +4455,10 @@ bg好啊，整天百合也没意思
 ##### 384#       发表于 2019-12-25 18:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45983561&amp;ptid=1860852" target="_blank">最强惠酱 发表于 2019-12-25 18:41:39</a>
 要搞bg希望来个诚哥一样的角色</blockquote>诚司这种多来几个也无所谓，别搞贵乱就好
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -7213,14 +4467,7 @@ bg好啊，整天百合也没意思
 ##### 385#       发表于 2019-12-25 19:00
 
 
-
-
 蓝战士看起来很情色。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7229,9 +4476,7 @@ bg好啊，整天百合也没意思
 ##### 386#       发表于 2019-12-25 19:03
 
 
-
  本帖最后由 粉儿alice 于 2019-12-25 19:05 编辑 
-
 
 
 <img src="https://img.saraba1st.com/forum/201912/25/190528xq0jztmcaqfzuncu.jpg" referrerpolicy="no-referrer">
@@ -7244,10 +4489,6 @@ bg好啊，整天百合也没意思
 2019-12-25 19:05 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201912/25/190528c59dmmm1ooljdtxd.jpg" referrerpolicy="no-referrer">
 
 
@@ -7256,11 +4497,6 @@ bg好啊，整天百合也没意思
 下载附件
 
 2019-12-25 19:05 上传
-
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201912/25/190528fc4jflw49f2m34ql.jpg" referrerpolicy="no-referrer">
@@ -7273,18 +4509,9 @@ bg好啊，整天百合也没意思
 2019-12-25 19:05 上传
 
 
-
-
-
-
 所以说睫毛到底是什么颜色
 
 别告诉我开局就搞乌龙<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7293,14 +4520,7 @@ bg好啊，整天百合也没意思
 ##### 387#       发表于 2019-12-25 19:23
 
 
-
-
 制服的感觉像555和幸充啊……
-
-
-
-
-
 
 
 -----
@@ -7309,22 +4529,13 @@ bg好啊，整天百合也没意思
 ##### 388#       发表于 2019-12-25 19:33
 
 
-
-
 黄毛的裙子也太拉胯了
-
-
-
-
-
 
 
 -----
 
 ####  catenarygong  
 ##### 389#       发表于 2019-12-25 19:45
-
-
 
 
 有没有可能是蓝色黄色年上啊
@@ -7334,17 +4545,10 @@ bg好啊，整天百合也没意思
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 390#       发表于 2019-12-25 20:02
-
-
 
 
 粉主像5gogo的队服
@@ -7354,16 +4558,10 @@ bg好啊，整天百合也没意思
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  HGCG-闪  
 ##### 391#       发表于 2019-12-25 20:10
-
 
 
  本帖最后由 HGCG-闪 于 2019-12-25 20:12 编辑 
@@ -7385,28 +4583,15 @@ bg好啊，整天百合也没意思
 北川理恵，Machico
 
 
-
-
-
-
-
-
 -----
 
 ####  catenarygong  
 ##### 392#       发表于 2019-12-25 20:12
 
 
-
-
 艾玛，悠木碧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -7415,14 +4600,7 @@ bg好啊，整天百合也没意思
 ##### 393#       发表于 2019-12-25 20:13
 
 
-
-
 话说官网还没透露，这么着急找人对应也没用啊
-
-
-
-
-
 
 
 -----
@@ -7431,16 +4609,9 @@ bg好啊，整天百合也没意思
 ##### 394#       发表于 2019-12-25 20:14
 
 
-
-
 某网的图是这样的，一个角色后面跟着一个声优的图，所以微博上那个人就按那个顺序对应
 
 但是有时候会乱序，不过应该是这批人差不多
-
-
-
-
-
 
 
 -----
@@ -7449,16 +4620,9 @@ bg好啊，整天百合也没意思
 ##### 395#       发表于 2019-12-25 20:19
 
 
-
-
 所以悠木碧算不算大友转正<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -7467,14 +4631,7 @@ bg好啊，整天百合也没意思
 ##### 396#       发表于 2019-12-25 20:19
 
 
-
-
 我觉得凹酱的声线适合配淫兽……如果配粉主不就是小圆了
-
-
-
-
-
 
 
 -----
@@ -7483,14 +4640,7 @@ bg好啊，整天百合也没意思
 ##### 397#       发表于 2019-12-25 20:20
 
 
-
-
 真被我奶到了？
-
-
-
-
-
 
 
 -----
@@ -7499,21 +4649,13 @@ bg好啊，整天百合也没意思
 ##### 398#       发表于 2019-12-25 20:23
 
 
-
-
 马池口？
-
-
-
-
-
 
 
 -----
 
 ####  cmyk1234  
 ##### 399#       发表于 2019-12-25 20:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45984470&amp;ptid=1860852" target="_blank">catenarygong 发表于 2019-12-25 20:19</a>
@@ -7523,16 +4665,10 @@ bg好啊，整天百合也没意思
 幼年真理，Ghost的小伙伴，到现在还没转正？
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 400#       发表于 2019-12-25 20:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45984514&amp;ptid=1860852" target="_blank">cmyk1234 发表于 2019-12-25 20:24</a>
@@ -7541,25 +4677,13 @@ bg好啊，整天百合也没意思
 东映英雄档制霸
 
 
-
-
-
-
-
 -----
 
 ####  ckl80  
 ##### 401#       发表于 2019-12-25 20:30
 
 
-
-
 粉主cv是队里资历最高的，这是系列头一次吧
-
-
-
-
-
 
 
 -----
@@ -7568,13 +4692,7 @@ bg好啊，整天百合也没意思
 ##### 402#       发表于 2019-12-25 20:34
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今年粉主不是新人声优了
-
-
-
-
-
 
 
 -----
@@ -7583,23 +4701,15 @@ bg好啊，整天百合也没意思
 ##### 403#       发表于 2019-12-25 20:43
 
 
-
-
 想看汁波密遇新粉主<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  HGCG-闪  
 ##### 404#       发表于 2019-12-25 20:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45984633&amp;ptid=1860852" target="_blank">Sliurus 发表于 2019-12-25 20:43</a>
@@ -7611,26 +4721,15 @@ bg好啊，整天百合也没意思
 然后把六花打一顿？
 
 
-
-
-
-
-
 -----
 
 ####  菊妖不是怪  
 ##### 405#       发表于 2019-12-25 20:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45982649&amp;ptid=1860852" target="_blank">xingenge 发表于 2019-12-25 17:21:07</a></blockquote>看顺眼之后还是挺香的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -7639,16 +4738,9 @@ bg好啊，整天百合也没意思
 ##### 406#       发表于 2019-12-25 21:04
 
 
-
-
 问题是我脑补不出来粉红的声音了
 
 没看过馒头卡，脑子里只有响神和水晶
-
-
-
-
-
 
 
 -----
@@ -7657,21 +4749,13 @@ bg好啊，整天百合也没意思
 ##### 407#       发表于 2019-12-25 21:13
 
 
-
-
 machico太震惊了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  麻花疼  
 ##### 408#       发表于 2019-12-25 21:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45984784&amp;ptid=1860852" target="_blank">HGCG-闪 发表于 2019-12-25 21:04</a>
@@ -7682,25 +4766,13 @@ machico太震惊了<img src="https://static.saraba1st.com/image/smiley/face2017/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万一酒吞童子声线
 
 
-
-
-
-
-
 -----
 
 ####  麻花疼  
 ##### 409#       发表于 2019-12-25 21:14
 
 
-
-
 话说如果是UMB主役的话，太多魔法少女的梗了，以前的圆神自不必说，去年FGO的鬼Q娃就是UMB配的音，全程恶搞光之美少女<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7709,16 +4781,10 @@ machico太震惊了<img src="https://static.saraba1st.com/image/smiley/face2017/
 ##### 410#       发表于 2019-12-25 21:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45984870&amp;ptid=1860852" target="_blank">麻花疼 发表于 2019-12-25 21:13</a>
 
 万一酒吞童子声线</blockquote>
 酒吞童子声线加粉主外形，这岂不是迅速社保
-
-
-
-
-
 
 
 -----
@@ -7727,25 +4793,16 @@ machico太震惊了<img src="https://static.saraba1st.com/image/smiley/face2017/
 ##### 411#       发表于 2019-12-25 21:28
 
 
-
-
 一般粉系都偏元气系，我直接就想到了深山老鸭
 umb可别用老鸭声线，明年聒噪一年可够蛋疼的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 —— 来自 HMD Global Nokia 7 plus, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  catenarygong  
 ##### 412#       发表于 2019-12-25 21:28
-
-
 
 
 今年的缩写怎么弄
@@ -7757,32 +4814,19 @@ umb可别用老鸭声线，明年聒噪一年可够蛋疼的<img src="https://st
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  rp-1  
 ##### 413#       发表于 2019-12-25 21:29
 
 
-
-
 贴吧奶Q
-
-
-
-
-
 
 
 -----
 
 ####  HGCG-闪  
 ##### 414#       发表于 2019-12-25 21:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45985010&amp;ptid=1860852" target="_blank">catenarygong 发表于 2019-12-25 21:28</a>
@@ -7796,32 +4840,19 @@ Healin' <strong>Good</strong> Precure
 姑Q
 
 
-
-
-
-
-
 -----
 
 ####  小黄酱  
 ##### 415#       发表于 2019-12-25 21:33
 
 
-
-
 叫“阿Q”
-
-
-
-
-
 
 
 -----
 
 ####  cmyk1234  
 ##### 416#       发表于 2019-12-25 21:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45985010&amp;ptid=1860852" target="_blank">catenarygong 发表于 2019-12-25 21:28</a>
@@ -7831,16 +4862,10 @@ Healin' <strong>Good</strong> Precure
 疗q？
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 417#       发表于 2019-12-25 21:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45985008&amp;ptid=1860852" target="_blank">白水潭的饿鬼 发表于 2019-12-25 21:28</a>
@@ -7851,25 +4876,13 @@ umb可别用老鸭声线，明年聒噪一年可够蛋疼的</blockquote>
 Q娃用战姬风完全没问题啊
 
 
-
-
-
-
-
 -----
 
 ####  rar1536770  
 ##### 418#       发表于 2019-12-25 21:43
 
 
-
-
 简称带Q的才是少数，就叫治愈呗
-
-
-
-
-
 
 
 -----
@@ -7878,14 +4891,7 @@ Q娃用战姬风完全没问题啊
 ##### 419#       发表于 2019-12-25 21:45
 
 
-
-
 日站开始黑UMB了
-
-
-
-
-
 
 
 -----
@@ -7894,14 +4900,7 @@ Q娃用战姬风完全没问题啊
 ##### 420#       发表于 2019-12-25 21:56
 
 
-
-
 UMB？！这下有意思了 对了新魔圆不是要上了么 等一个真正的魔圆 虚假的魔圆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7910,16 +4909,10 @@ UMB？！这下有意思了 对了新魔圆不是要上了么 等一个真正的
 ##### 421#       发表于 2019-12-25 22:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45985161&amp;ptid=1860852" target="_blank">HGCG-闪 发表于 2019-12-25 21:45</a>
 
 日站开始黑UMB了</blockquote>
 哪里黑的，推特吗，有关键词吗，光搜プリキュア搜不到什么
-
-
-
-
-
 
 
 -----
@@ -7928,23 +4921,16 @@ UMB？！这下有意思了 对了新魔圆不是要上了么 等一个真正的
 ##### 422#       发表于 2019-12-25 22:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45984699&amp;ptid=1860852" target="_blank">HGCG-闪 发表于 2019-12-25 20:53:10</a>
 然后把六花打一顿？</blockquote>话说现在战姬里还有几个配过q娃的
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 423#       发表于 2019-12-25 22:12
-
 
 
  本帖最后由 月夜凝雪 于 2019-12-25 22:16 编辑 
@@ -7961,16 +4947,10 @@ UMB？！这下有意思了 对了新魔圆不是要上了么 等一个真正的
 真正上场的也就之前的77现在多个凹
 
 
-
-
-
-
-
 -----
 
 ####  cmyk1234  
 ##### 424#       发表于 2019-12-25 22:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45985408&amp;ptid=1860852" target="_blank">月夜凝雪 发表于 2019-12-25 22:12</a>
@@ -7982,16 +4962,10 @@ UMB？！这下有意思了 对了新魔圆不是要上了么 等一个真正的
 小魔女组合有没有在q娃配音的？
 
 
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 425#       发表于 2019-12-25 22:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45985408&amp;ptid=1860852" target="_blank">月夜凝雪 发表于 2019-12-25 22:12:19</a>
@@ -8004,16 +4978,10 @@ UMB？！这下有意思了 对了新魔圆不是要上了么 等一个真正的
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  小倉朝日  
 ##### 426#       发表于 2019-12-25 22:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45985395&amp;ptid=1860852" target="_blank">Sliurus 发表于 2019-12-25 22:10</a>
@@ -8025,32 +4993,19 @@ UMB？！这下有意思了 对了新魔圆不是要上了么 等一个真正的
 唱过歌的角色里，77，umb，寿小姐，小水
 
 
-
-
-
-
-
 -----
 
 ####  粉儿alice  
 ##### 427#       发表于 2019-12-25 22:23
 
 
-
-
 战姬别忘了高山 堀江 泽城
-
-
-
-
-
 
 
 -----
 
 ####  Gooddays  
 ##### 428#       发表于 2019-12-25 22:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45985010&amp;ptid=1860852" target="_blank">catenarygong 发表于 2019-12-25 21:28</a>
@@ -8060,26 +5015,14 @@ UMB？！这下有意思了 对了新魔圆不是要上了么 等一个真正的
 好像缩写很多时也不加Q字，例如抓心，微笑，心跳，公主，无印，555等。
 
 
-
-
-
-
-
 -----
 
 ####  粉儿alice  
 ##### 429#       发表于 2019-12-25 22:29
 
 
-
-
 等官方石锤
 起码没有外圈人士
-
-
-
-
-
 
 
 -----
@@ -8088,14 +5031,7 @@ UMB？！这下有意思了 对了新魔圆不是要上了么 等一个真正的
 ##### 430#       发表于 2019-12-25 22:49
 
 
-
-
 UMB粉主难以想像<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8104,14 +5040,7 @@ UMB粉主难以想像<img src="https://static.saraba1st.com/image/smiley/face201
 ##### 431#       发表于 2019-12-25 22:57
 
 
-
-
 又是名冢太太没有转正的一年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8120,14 +5049,7 @@ UMB粉主难以想像<img src="https://static.saraba1st.com/image/smiley/face201
 ##### 432#       发表于 2019-12-25 23:13
 
 
-
-
 UMB的水平也有人黑？配钥匙不？
-
-
-
-
-
 
 
 -----
@@ -8136,17 +5058,10 @@ UMB的水平也有人黑？配钥匙不？
 ##### 433#       发表于 2019-12-25 23:27
 
 
-
-
 朝日官网偷跑了
 
 
 粉主:悠木碧
-
-
-
-
-
 
 
 -----
@@ -8155,22 +5070,13 @@ UMB的水平也有人黑？配钥匙不？
 ##### 434#       发表于 2019-12-25 23:32
 
 
-
-
 凹酱回归神的起点<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  吹雪桑大胜利  
 ##### 435#       发表于 2019-12-25 23:33
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201912/25/233338ycp4tla4eukt0l28.jpg" referrerpolicy="no-referrer">
@@ -8183,16 +5089,7 @@ UMB的水平也有人黑？配钥匙不？
 2019-12-25 23:33 上传
 
 
-
-
-
-
 庆贺吧，凹酱她转正啦
-
-
-
-
-
 
 
 -----
@@ -8201,16 +5098,10 @@ UMB的水平也有人黑？配钥匙不？
 ##### 436#       发表于 2019-12-25 23:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45986043&amp;ptid=1860852" target="_blank">吹雪桑大胜利 发表于 2019-12-25 23:33</a>
 
 庆贺吧，凹酱她转正啦</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">口头禅是福娃？？？
-
-
-
-
-
 
 
 -----
@@ -8219,22 +5110,13 @@ UMB的水平也有人黑？配钥匙不？
 ##### 437#       发表于 2019-12-25 23:40
 
 
-
-
 是文静型粉主还是活泼型粉主？
-
-
-
-
-
 
 
 -----
 
 ####  吹雪桑大胜利  
 ##### 438#       发表于 2019-12-25 23:42
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201912/25/234156v9d2xv5fvmfmh5hf.png" referrerpolicy="no-referrer">
@@ -8247,9 +5129,6 @@ UMB的水平也有人黑？配钥匙不？
 2019-12-25 23:41 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201912/25/234156qxx9204ycne23f9c.png" referrerpolicy="no-referrer">
 
 
@@ -8258,9 +5137,6 @@ UMB的水平也有人黑？配钥匙不？
 下载附件
 
 2019-12-25 23:41 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201912/25/234157b6qqzn2bklg6s6u6.png" referrerpolicy="no-referrer">
@@ -8273,9 +5149,6 @@ UMB的水平也有人黑？配钥匙不？
 2019-12-25 23:41 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201912/25/234244y5xu2n7vpv2zebwx.png" referrerpolicy="no-referrer">
 
 
@@ -8284,9 +5157,6 @@ UMB的水平也有人黑？配钥匙不？
 下载附件
 
 2019-12-25 23:42 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201912/25/234244f2ckz5c0bfbzewyy.png" referrerpolicy="no-referrer">
@@ -8299,9 +5169,6 @@ UMB的水平也有人黑？配钥匙不？
 2019-12-25 23:42 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201912/25/234245otn303mmtxmt0let.png" referrerpolicy="no-referrer">
 
 
@@ -8310,9 +5177,6 @@ UMB的水平也有人黑？配钥匙不？
 下载附件
 
 2019-12-25 23:42 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201912/25/234245x52ld43w5kg4le5d.png" referrerpolicy="no-referrer">
@@ -8325,9 +5189,6 @@ UMB的水平也有人黑？配钥匙不？
 2019-12-25 23:42 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201912/25/234245bklbjkmc7hhkbjjj.png" referrerpolicy="no-referrer">
 
 
@@ -8338,31 +5199,15 @@ UMB的水平也有人黑？配钥匙不？
 2019-12-25 23:42 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  菊妖不是怪  
 ##### 439#       发表于 2019-12-25 23:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45986117&amp;ptid=1860852" target="_blank">吹雪桑大胜利 发表于 2019-12-25 23:42:57</a></blockquote>最下面这个狗是怎么回事儿？？？？不会突然开口叫大哥哥吧？？？<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -8371,21 +5216,13 @@ UMB的水平也有人黑？配钥匙不？
 ##### 440#       发表于 2019-12-25 23:53
 
 
-
-
 黄主的绿睫毛有点魔性，不过这种到了tv也只有被青山大爷整块压黑的命运（虽然最近没怎么看到青山）
-
-
-
-
-
 
 
 -----
 
 ####  qb0079  
 ##### 441#       发表于 2019-12-26 00:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45985395&amp;ptid=1860852" target="_blank">Sliurus 发表于 2019-12-25 22:10</a>
@@ -8397,26 +5234,15 @@ UMB的水平也有人黑？配钥匙不？
 路人里我记得还有小松
 
 
-
-
-
-
-
 -----
 
 ####  最强惠酱  
 ##### 442#       发表于 2019-12-26 00:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45986194&amp;ptid=1860852" target="_blank">杂灰 发表于 2019-12-25 23:53</a>
 黄主的绿睫毛有点魔性，不过这种到了tv也只有被青山大爷整块压黑的命运（虽然最近没怎么看到青山） ...</blockquote>
 不还透露了个动画人设图吗，那里的眼睫毛就是黑的，估计渐变只有大特写或者海报才会有吧？
-
-
-
-
-
 
 
 -----
@@ -8425,23 +5251,15 @@ UMB的水平也有人黑？配钥匙不？
 ##### 443#       发表于 2019-12-26 01:04
 
 
-
-
 今年淫兽fuwa，明年口癖fuwa
 
 东a是不是不爽特摄棚（）
-
-
-
-
-
 
 
 -----
 
 ####  菲特妹  
 ##### 444#       发表于 2019-12-26 01:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45985408&amp;ptid=1860852" target="_blank">月夜凝雪 发表于 2019-12-25 22:12</a>
@@ -8454,26 +5272,15 @@ UMB的水平也有人黑？配钥匙不？
 小松在里面配过同学
 
 
-
-
-
-
-
 -----
 
 ####  噗哩噗  
 ##### 445#       发表于 2019-12-26 01:59
 
 
-
  本帖最后由 噗哩噗 于 2019-12-26 02:01 编辑 
 
 啊，怎么黄的攻击是雷啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8482,22 +5289,13 @@ UMB的水平也有人黑？配钥匙不？
 ##### 446#       发表于 2019-12-26 02:02
 
 
-
-
 圆神降临
-
-
-
-
-
 
 
 -----
 
 ####  青春银河  
 ##### 447#       发表于 2019-12-26 02:10
-
-
 
 
 Cure Grace/花寺のどか
@@ -8511,27 +5309,15 @@ Cure Grace/花寺のどか
 但是不擅长运动……非常希望能够帮助他人，是一个十分温柔善良的女孩子。在感动的时候总是会说「呼哇～」。和ラビリン一起，变身为花之Q娃「Cure Grace」！
 
 
-
-
-
-
-
 -----
 
 ####  白水潭的饿鬼  
 ##### 448#       发表于 2019-12-26 03:27
 
 
-
-
 这是汁波密复刻吗，能不能来个马琳小天使复刻<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 —— 来自 HMD Global Nokia 7 plus, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -8540,16 +5326,10 @@ Cure Grace/花寺のどか
 ##### 449#       发表于 2019-12-26 04:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45984699&amp;ptid=1860852" target="_blank">HGCG-闪 发表于 2019-12-25 20:53:10</a>
 然后把六花打一顿？</blockquote>顺便带上永久一起
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -8558,21 +5338,13 @@ Cure Grace/花寺のどか
 ##### 450#       发表于 2019-12-26 04:32
 
 
-
-
 听了主题曲才反应过来标题又是日式英语谐音梗healing=healingoo(d)<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  噗哩噗  
 ##### 451#       发表于 2019-12-26 04:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45986795&amp;ptid=1860852" target="_blank">青春银河 发表于 2019-12-26 02:10</a>
@@ -8585,25 +5357,13 @@ Cure Grace/花寺のどか
 查了一下这神地位还挺低的，可能取的只是现代义？
 
 
-
-
-
-
-
 -----
 
 ####  噗哩噗  
 ##### 452#       发表于 2019-12-26 05:07
 
 
-
-
 粉毛这一身举棒子好像玛丽贝尔<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8612,23 +5372,15 @@ Cure Grace/花寺のどか
 ##### 453#       发表于 2019-12-26 05:48
 
 
-
-
 法杖是变身器兼武器
 
 没准要一直拿着
-
-
-
-
-
 
 
 -----
 
 ####  达达葱2  
 ##### 454#       发表于 2019-12-26 05:49
-
 
 
 <blockquote>DARK_HGCG 发表于 2019-12-26 05:48
@@ -8638,17 +5390,10 @@ Cure Grace/花寺のどか
 所以没肉搏了？
 
 
-
-
-
-
-
 -----
 
 ####  HGCG-闪  
 ##### 455#       发表于 2019-12-26 05:58
-
-
 
 
 预告来了
@@ -8657,16 +5402,10 @@ Cure Grace/花寺のどか
 有UMB的声音可以听
 
 
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 456#       发表于 2019-12-26 06:39
-
 
 
 <blockquote>HGCG-闪 发表于 2019-12-26 05:58
@@ -8678,17 +5417,10 @@ https://www.weibo.com/tv/v/ImuJl0fDH?fid=1034:4453613351927812
 蓝色还真是纯黑的头发
 
 
-
-
-
-
-
 -----
 
 ####  HGCG-闪  
 ##### 457#       发表于 2019-12-26 06:39
-
-
 
 
 结果发现明年的安心要素只有悠木碧了……？
@@ -8699,17 +5431,10 @@ https://www.weibo.com/tv/v/ImuJl0fDH?fid=1034:4453613351927812
 正解的卡多和圣斗士少女
 
 
-
-
-
-
-
 -----
 
 ####  linhaitora  
 ##### 458#       发表于 2019-12-26 06:40
-
-
 
 
 某人怎么这么怕没肉搏？
@@ -8719,16 +5444,10 @@ https://www.weibo.com/tv/v/ImuJl0fDH?fid=1034:4453613351927812
 好吧我也有点担心了
 
 
-
-
-
-
-
 -----
 
 ####  HGCG-闪  
 ##### 459#       发表于 2019-12-26 06:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45987151&amp;ptid=1860852" target="_blank">达达葱2 发表于 2019-12-26 06:39</a>
@@ -8738,16 +5457,10 @@ https://www.weibo.com/tv/v/ImuJl0fDH?fid=1034:4453613351927812
 <img src="http://wx2.sinaimg.cn/large/e7cbae74gy1ga9nuvfq9bj20hi09wqb5.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zyw0  
 ##### 460#       发表于 2019-12-26 06:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45986117&amp;ptid=1860852" target="_blank">吹雪桑大胜利 发表于 2019-12-25 23:42:57</a></blockquote>禁止大哥哥
@@ -8755,16 +5468,10 @@ https://www.weibo.com/tv/v/ImuJl0fDH?fid=1034:4453613351927812
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  zyw0  
 ##### 461#       发表于 2019-12-26 06:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45986599&amp;ptid=1860852" target="_blank">杂灰 发表于 2019-12-26 01:04:24</a>
@@ -8775,26 +5482,14 @@ https://www.weibo.com/tv/v/ImuJl0fDH?fid=1034:4453613351927812
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 462#       发表于 2019-12-26 06:46
 
 
-
-
 肉搏肯定是会有的，就是甜点说肉搏禁止都有打。问题在于打得怎么样，拿根棒子就不能打架了？棒子岂是如此不便之物
 不好好画，再好的设定都没用
-
-
-
-
-
 
 
 -----
@@ -8803,23 +5498,13 @@ https://www.weibo.com/tv/v/ImuJl0fDH?fid=1034:4453613351927812
 ##### 463#       发表于 2019-12-26 06:46
 
 
-
-
 粉主这设定既视感不是一般的强，希望表现得有新意一点吧
-
-
-
-
-
 
 
 -----
 
 ####  HGCG-闪  
 ##### 464#       发表于 2019-12-26 06:52
-
-
-
 
 
 玩具
@@ -8866,27 +5551,15 @@ https://www.weibo.com/tv/v/ImuJl0fDH?fid=1034:4453613351927812
 <img src="http://wx1.sinaimg.cn/large/e7cbae74gy1ga9qamjmgxj20fk0fkq3v.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hummysiren  
 ##### 465#       发表于 2019-12-26 07:07
 
 
-
-
 umb这声线不错
 
 —— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -8895,15 +5568,9 @@ umb这声线不错
 ##### 466#       发表于 2019-12-26 07:20
 
 
-
  本帖最后由 cmyk1234 于 2019-12-26 07:33 编辑 
 
 香川纯子担任的鲁邦巡逻简直太白开水了。
-
-
-
-
-
 
 
 -----
@@ -8912,22 +5579,14 @@ umb这声线不错
 ##### 467#       发表于 2019-12-26 07:21
 
 
-
-
 emm....
 相当不安心的士大夫...
-
-
-
-
-
 
 
 -----
 
 ####  hgcg-ix  
 ##### 468#       发表于 2019-12-26 07:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45987225&amp;ptid=1860852" target="_blank">粉儿alice 发表于 2019-12-26 07:21</a>
@@ -8938,27 +5597,15 @@ emm....
 真的不安……
 
 
-
-
-
-
-
 -----
 
 ####  麻花疼  
 ##### 469#       发表于 2019-12-26 07:23
 
 
-
-
 卧槽，最后边的狗怎么回事。。。。。一股妮娜的既视感。。。
 
 感觉明年的女人整体除了umb之外没有一处令人安心的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。。。。。
-
-
-
-
-
 
 
 -----
@@ -8967,21 +5614,13 @@ emm....
 ##### 470#       发表于 2019-12-26 07:26
 
 
-
-
 最大不安是制片人参与的作品没有不爆死的：POPIN Q，圣斗少女、正解的卡多
-
-
-
-
-
 
 
 -----
 
 ####  cmyk1234  
 ##### 471#       发表于 2019-12-26 07:28
-
 
 
  本帖最后由 cmyk1234 于 2019-12-26 07:34 编辑 
@@ -8991,27 +5630,15 @@ emm....
 为什么疗q不找金春智子
 
 
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 472#       发表于 2019-12-26 07:39
 
 
-
-
 暴死的里面还包括一部名作（贬义）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -9020,16 +5647,9 @@ emm....
 ##### 473#       发表于 2019-12-26 07:44
 
 
-
-
 这次主题好保守，梦回20年前
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -9038,17 +5658,10 @@ emm....
 ##### 474#       发表于 2019-12-26 07:46
 
 
-
-
 既然制作人这么强<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">那就祝明年能好好做白开水吧。
 
 
 监督在Q娃棚的剧场版作品是组曲和前两年的super star，TVA是组曲8和16的演出，奸笑7和18part3的演出。总之都不怎么出彩
-
-
-
-
-
 
 
 -----
@@ -9057,14 +5670,7 @@ emm....
 ##### 475#       发表于 2019-12-26 07:46
 
 
-
-
 该放低期待了。
-
-
-
-
-
 
 
 -----
@@ -9073,22 +5679,13 @@ emm....
 ##### 476#       发表于 2019-12-26 07:53
 
 
-
-
 入q娃坑晚，去年抱q情报露出正片播放之前，大家期待值高吗
-
-
-
-
-
 
 
 -----
 
 ####  Blackson  
 ##### 477#       发表于 2019-12-26 07:58
-
-
 
 
 香村还行吧，警匪和兽王者都是个人回描写很好，但是主线很不行
@@ -9099,16 +5696,10 @@ emm....
 反派里面，目前玩具透露有美男型和壮汉型的，那么看看今年是否是美少女反派洗白成Q娃吧
 
 
-
-
-
-
-
 -----
 
 ####  風駿  
 ##### 478#       发表于 2019-12-26 07:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45987314&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2019-12-26 07:53</a>
@@ -9117,16 +5708,10 @@ emm....
 抱Q有川村人设+甜点最后那一战，瞬间把期待值拉高，于我而言简直是一扫阴霾
 
 
-
-
-
-
-
 -----
 
 ####  Tomorrow_D  
 ##### 479#       发表于 2019-12-26 08:06
-
 
 
  本帖最后由 Tomorrow_D 于 2019-12-26 08:15 编辑 
@@ -9140,16 +5725,10 @@ emm....
 打戏不建议抱太大期待倒是真的。明年东映又是多开格局，王牌的动作戏原画都以剧场作品为主，各组除了核心作画以外基本都要靠担当的人脉去从东映外部拉人过来。但是这几年Q娃担当的一个问题就是在作画这一块过度依赖社内喂奶，结果就是渡边巧大等人去做布罗利以及大田和宽失踪以后Q娃在打戏这一块直接就撑不住了（而且现在渡边也失踪了）。所以作画这一块关键还是要看明年担当的人脉，最好是有实力有经验有人脉的老手来做担当。
 
 
-
-
-
-
-
 -----
 
 ####  噗哩噗  
 ##### 480#       发表于 2019-12-26 08:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45987314&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2019-12-26 07:53</a>
@@ -9158,16 +5737,10 @@ emm....
 因为甜点后期专楼都是“球球明年的女人快来”的节奏所以没有什么参考性
 
 
-
-
-
-
-
 -----
 
 ####  噗哩噗  
 ##### 481#       发表于 2019-12-26 08:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45987325&amp;ptid=1860852" target="_blank">Blackson 发表于 2019-12-26 07:58</a>
@@ -9180,33 +5753,20 @@ emm....
 以Q娃或者战队的平均水准，能做好主线或者个人一边就是很好的作品了
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 482#       发表于 2019-12-26 08:50
 
 
-
-
 一堆医疗用具都是给狗用的，真成兽医了？
 难道那狗是地球的化身？
-
-
-
-
-
 
 
 -----
 
 ####  風駿  
 ##### 483#       发表于 2019-12-26 08:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45987653&amp;ptid=1860852" target="_blank">天邪鬼 发表于 2019-12-26 08:50</a>
@@ -9217,16 +5777,10 @@ emm....
 结局和另一只狗一起跑外星球去吗？
 
 
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 484#       发表于 2019-12-26 08:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45987684&amp;ptid=1860852" target="_blank">風駿 发表于 2019-12-26 08:52:33</a>
@@ -9235,27 +5789,15 @@ emm....
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  spadepie  
 ##### 485#       发表于 2019-12-26 09:02
 
 
-
-
 明年有凹酱但是这STAFF<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">……在纠结追不追
 
 —— 来自 samsung SM-A6060, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -9264,14 +5806,7 @@ emm....
 ##### 486#       发表于 2019-12-26 09:11
 
 
-
-
 虽然不看好，但明年看看狗大友自我高潮还是蛮有意思的
-
-
-
-
-
 
 
 -----
@@ -9280,15 +5815,8 @@ emm....
 ##### 487#       发表于 2019-12-26 09:26
 
 
-
-
 狗大友只要有美少女贴贴就满足了
 演到一半一转bg才能看到最有趣的无能狂怒
-
-
-
-
-
 
 
 -----
@@ -9297,14 +5825,7 @@ emm....
 ##### 488#       发表于 2019-12-26 09:26
 
 
-
-
 老是风怒，好气啊
-
-
-
-
-
 
 
 -----
@@ -9313,14 +5834,7 @@ emm....
 ##### 489#       发表于 2019-12-26 09:31
 
 
-
-
 和魔进战队的配置放一起看落差一下子就出来了
-
-
-
-
-
 
 
 -----
@@ -9329,15 +5843,9 @@ emm....
 ##### 490#       发表于 2019-12-26 09:34
 
 
-
 <img src="https://tvax2.sinaimg.cn/large/6240c60bgy1ga9vf09jrpj20po0k8gwb.jpg" referrerpolicy="no-referrer"> 
 
 蓝毛CV这是给星光Q娃配了一年路人，今年又来试音还拿下了主役？感觉有点励志
-
-
-
-
-
 
 
 -----
@@ -9346,14 +5854,7 @@ emm....
 ##### 491#       发表于 2019-12-26 10:13
 
 
-
-
 黄淫兽这一头猫让我想起哈利<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9362,15 +5863,8 @@ emm....
 ##### 492#       发表于 2019-12-26 10:17
 
 
-
-
 真正的魔法少女UMB！
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9379,14 +5873,7 @@ emm....
 ##### 493#       发表于 2019-12-26 10:48
 
 
-
-
 你们搞的我也慌了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9395,21 +5882,13 @@ emm....
 ##### 494#       发表于 2019-12-26 11:21
 
 
-
-
 慌就慌吧，反正看到人设直接进入第三阶段，不管是变身还是人间体<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  hgcg-ix  
 ##### 495#       发表于 2019-12-26 11:35
-
 
 
 <img src="http://wx1.sinaimg.cn/large/e7cbae74gy1ga9vh02lgnj20fk0fk0uc.jpg" referrerpolicy="no-referrer">
@@ -9437,16 +5916,10 @@ emm....
 <img src="http://wx2.sinaimg.cn/large/e7cbae74gy1ga9vge3ntej20fk0fkq42.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zyw0  
 ##### 496#       发表于 2019-12-26 11:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45988049&amp;ptid=1860852" target="_blank">nod32vad 发表于 2019-12-26 09:34:23</a>
@@ -9455,27 +5928,15 @@ emm....
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-ix  
 ##### 497#       发表于 2019-12-26 11:46
 
 
-
-
 虽然还是带点蓝色
 
 但蓝的发色是历代最黑了吧
-
-
-
-
-
 
 
 -----
@@ -9484,16 +5945,9 @@ emm....
 ##### 498#       发表于 2019-12-26 11:59
 
 
-
-
 考虑追不追的你们是假大友
 
 真大友边吹边黑也一年一年追过来了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9502,24 +5956,16 @@ emm....
 ##### 499#       发表于 2019-12-26 12:04
 
 
-
-
 不是，盗警你们也黑的？
 这片子除了后期被bandai介入把玩具推广重心放在鲁邦连者之外还有啥黑点的？
 
 不如说在被介入的情况下还能把巡逻连者这边写的很好那不是更加牛逼了
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 500#       发表于 2019-12-26 12:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45989815&amp;ptid=1860852" target="_blank">風駿 发表于 2019-12-26 11:59:10</a>
@@ -9530,16 +5976,10 @@ emm....
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  catenarygong  
 ##### 501#       发表于 2019-12-26 13:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45987153&amp;ptid=1860852" target="_blank">HGCG-闪 发表于 2019-12-26 06:39:45</a>
@@ -9553,17 +5993,10 @@ emm....
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  catenarygong  
 ##### 502#       发表于 2019-12-26 13:37
-
-
 
 
 反派小哥是池面啊
@@ -9573,25 +6006,13 @@ emm....
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  粉儿alice  
 ##### 503#       发表于 2019-12-26 13:39
 
 
-
-
 主要安见香这位制作人暴死光环太重<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9600,14 +6021,7 @@ emm....
 ##### 504#       发表于 2019-12-26 13:43
 
 
-
-
 香村也写过q娃啊，虽然没什么印象深的但没啥不好的感觉，不过整体而言今年的staff阵的确拉不起期待值
-
-
-
-
-
 
 
 -----
@@ -9616,15 +6030,8 @@ emm....
 ##### 505#       发表于 2019-12-26 13:56
 
 
-
-
 转情报师
 <img src="http://wx4.sinaimg.cn/large/bcfcde0agy1gaa2yqk85dj20u016laus.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9633,19 +6040,11 @@ emm....
 ##### 506#       发表于 2019-12-26 14:04
 
 
-
-
 是纯黑发没跑了，稀有Q娃
-
-
-
-
 
 
 QQ图片20191226140323.png
 (459.59 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -9654,24 +6053,7 @@ QQ图片20191226140323.png
 2019-12-26 14:04 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201912/26/140407euu24ap2mzqu4uqp.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -9680,16 +6062,9 @@ QQ图片20191226140323.png
 ##### 507#       发表于 2019-12-26 15:17
 
 
-
-
 蓝毛死亡发型<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不过在这里还是很放心的
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -9698,14 +6073,7 @@ QQ图片20191226140323.png
 ##### 508#       发表于 2019-12-26 15:19
 
 
-
-
 今年的口号是不是有“手术”
-
-
-
-
-
 
 
 -----
@@ -9714,21 +6082,13 @@ QQ图片20191226140323.png
 ##### 509#       发表于 2019-12-26 15:24
 
 
-
-
 春映画监督深泽敏则
-
-
-
-
-
 
 
 -----
 
 ####  达达葱2  
 ##### 510#       发表于 2019-12-26 15:24
-
 
 
  本帖最后由 达达葱2 于 2019-12-26 15:30 编辑 
@@ -9740,16 +6100,10 @@ QQ图片20191226140323.png
 我是说这个监督
 
 
-
-
-
-
-
 -----
 
 ####  Tomorrow_D  
 ##### 511#       发表于 2019-12-26 15:34
-
 
 
  本帖最后由 Tomorrow_D 于 2019-12-26 15:39 编辑 
@@ -9759,16 +6113,10 @@ QQ图片20191226140323.png
 一句话概括就是在海贼TV当监督这几年把宫元留下的烂摊子基本收拾干净了。
 
 
-
-
-
-
-
 -----
 
 ####  leleq  
 ##### 512#       发表于 2019-12-26 16:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45989815&amp;ptid=1860852" target="_blank">風駿 发表于 2019-12-26 11:59</a>
@@ -9779,33 +6127,20 @@ QQ图片20191226140323.png
 毕竟闪Q 快充 都顶过来了 已经没有什么可怕的了<img src="https://static.saraba1st.com/image/smiley/carton2017/096.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 513#       发表于 2019-12-26 16:05
 
 
-
-
 但我不觉得今年的q娃能有盗警的打戏
 不过快盗人物都不错，今年应该不会有个人回其他人就闭嘴的情况了吧
-
-
-
-
-
 
 
 -----
 
 ####  粉儿alice  
 ##### 514#       发表于 2019-12-26 16:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45989876&amp;ptid=1860852" target="_blank">Sunred 发表于 2019-12-26 12:04</a>
@@ -9815,16 +6150,10 @@ QQ图片20191226140323.png
 前期不错 中后期被坑了典范
 
 
-
-
-
-
-
 -----
 
 ####  lotwhite  
 ##### 515#       发表于 2019-12-26 16:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45989587&amp;ptid=1860852" target="_blank">zyw0 发表于 2019-12-26 11:38</a>
@@ -9836,25 +6165,13 @@ QQ图片20191226140323.png
 所以q娃里才有声优转正这一说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Archlich  
 ##### 516#       发表于 2019-12-26 16:30
 
 
-
-
 都是存在的，都是存在的
-
-
-
-
-
 
 
 -----
@@ -9863,22 +6180,15 @@ QQ图片20191226140323.png
 ##### 517#       发表于 2019-12-26 17:27
 
 
-
 <blockquote>Tomorrow_D 发表于 2019-12-26 15:34
 一句话概括就是在海贼TV当监督这几年把宫元留下的烂摊子基本收拾干净了。 ...</blockquote>
 那他更合适来做今年TV啊
-
-
-
-
-
 
 
 -----
 
 ####  噗哩噗  
 ##### 518#       发表于 2019-12-26 18:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45992790&amp;ptid=1860852" target="_blank">粉儿alice 发表于 2019-12-26 16:20</a>
@@ -9891,16 +6201,10 @@ QQ图片20191226140323.png
 说起来明年战队又要卖车了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-ix  
 ##### 519#       发表于 2019-12-26 18:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45988022&amp;ptid=1860852" target="_blank">kal_008 发表于 2019-12-26 09:31</a>
@@ -9909,16 +6213,10 @@ QQ图片20191226140323.png
 魔进是啥配置？
 
 
-
-
-
-
-
 -----
 
 ####  Blackson  
 ##### 520#       发表于 2019-12-26 18:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45994265&amp;ptid=1860852" target="_blank">hgcg-ix 发表于 2019-12-26 18:23</a>
@@ -9954,25 +6252,13 @@ staff
 动作监督:福泽博文
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-ix  
 ##### 521#       发表于 2019-12-26 18:42
 
 
-
-
 明年不利要素太多，就看制片人能拉到多少外援了
-
-
-
-
-
 
 
 -----
@@ -9981,22 +6267,13 @@ staff
 ##### 522#       发表于 2019-12-26 20:56
 
 
-
-
 我要求不高，有肉搏打戏就好
-
-
-
-
-
 
 
 -----
 
 ####  DARK_HGCG  
 ##### 523#       发表于 2019-12-26 21:13
-
-
 
 
 变身唱名
@@ -10011,27 +6288,15 @@ staff
 看来淫兽棒要不离手了
 
 
-
-
-
-
-
 -----
 
 ####  小黄酱  
 ##### 524#       发表于 2019-12-26 21:18
 
 
-
-
 假如肉搏做得象魔法使那样烂，那还不如别肉搏
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -10040,14 +6305,7 @@ staff
 ##### 525#       发表于 2019-12-26 21:43
 
 
-
-
 哪位提到变身棒像时王的头像剑？
-
-
-
-
-
 
 
 -----
@@ -10056,14 +6314,7 @@ staff
 ##### 526#       发表于 2019-12-26 22:33
 
 
-
-
 这几年估计都没什么好看的肉搏了
-
-
-
-
-
 
 
 -----
@@ -10072,15 +6323,9 @@ staff
 ##### 527#       发表于 2019-12-26 22:43
 
 
-
 <blockquote>cmyk1234 发表于 2019-12-26 21:43
 哪位提到变身棒像时王的头像剑？</blockquote>
 完全不像好吧。。。
-
-
-
-
-
 
 
 -----
@@ -10089,12 +6334,10 @@ staff
 ##### 528#       发表于 2019-12-27 06:25
 
 
-
  本帖最后由 hgcg-ix 于 2019-12-27 06:33 编辑 
 
 踢！
 <img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gaavlcfpn7j20j70arqd6.jpg" referrerpolicy="no-referrer">
-
 
 
 剧场版预告来了
@@ -10124,25 +6367,13 @@ staff
 製作担当：堀越圭文
 
 
-
-
-
-
-
 -----
 
 ####  噗哩噗  
 ##### 529#       发表于 2019-12-27 07:33
 
 
-
-
 确实是全程棒子，但是也确实会打（甜点你看看你）。我奶一个棒子是限制器，后期会有棒子被折断然后唯心力量爆发的段落（
-
-
-
-
-
 
 
 -----
@@ -10151,22 +6382,15 @@ staff
 ##### 530#       发表于 2019-12-27 07:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45998861&amp;ptid=1860852" target="_blank">噗哩噗 发表于 2019-12-27 07:33</a>
 确实是全程棒子，但是也确实会打（甜点你看看你）。我奶一个棒子是限制器，后期会有棒子被折断然后唯心力量 ...</blockquote>
 请问q娃历史上有没有入队后仍有孤独野心家性格的战士，如音符？
-
-
-
-
-
 
 
 -----
 
 ####  風駿  
 ##### 531#       发表于 2019-12-27 07:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45998905&amp;ptid=1860852" target="_blank">cmyk1234 发表于 2019-12-27 07:46</a>
@@ -10178,16 +6402,10 @@ staff
 只有老公不在就抖S本性全开的伊斯
 
 
-
-
-
-
-
 -----
 
 ####  Sunred  
 ##### 532#       发表于 2019-12-27 08:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45998861&amp;ptid=1860852" target="_blank">噗哩噗 发表于 2019-12-27 07:33</a>
@@ -10195,16 +6413,10 @@ staff
 棒子的本体是妖精啊……断了不就是妖精残了
 
 
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 533#       发表于 2019-12-27 08:23
-
 
 
 <blockquote>hgcg-ix 发表于 2019-12-27 06:25
@@ -10215,16 +6427,10 @@ staff
 有肉搏就放心了
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 534#       发表于 2019-12-27 08:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45998861&amp;ptid=1860852" target="_blank">噗哩噗 发表于 2019-12-27 07:33:47</a>
@@ -10233,26 +6439,15 @@ staff
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 535#       发表于 2019-12-27 10:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45998861&amp;ptid=1860852" target="_blank">噗哩噗 发表于 2019-12-27 07:33</a>
 确实是全程棒子，但是也确实会打（甜点你看看你）。我奶一个棒子是限制器，后期会有棒子被折断然后唯心力量 ...</blockquote>
 你还不如奶棒子也能作为武器使用，不过大概率不会，不然幼女可能会拿去捅人
-
-
-
-
-
 
 
 -----
@@ -10261,16 +6456,9 @@ staff
 ##### 536#       发表于 2019-12-27 11:06
 
 
-
-
 拿淫兽拍人是不是太丧病了点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -10279,14 +6467,7 @@ staff
 ##### 537#       发表于 2019-12-27 11:38
 
 
-
-
 棒子先往天上一丢，拳打脚踢一套连击然后接住棒子，帅的雅痞
-
-
-
-
-
 
 
 -----
@@ -10295,15 +6476,9 @@ staff
 ##### 538#       发表于 2019-12-27 12:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46001286&amp;ptid=1860852" target="_blank">rar1536770 发表于 2019-12-27 11:38</a>
 棒子先往天上一丢，拳打脚踢一套连击然后接住棒子，帅的雅痞</blockquote>
 小朋友会学，否掉
-
-
-
-
-
 
 
 -----
@@ -10312,14 +6487,7 @@ staff
 ##### 539#       发表于 2019-12-27 12:13
 
 
-
-
 拿着棒子打架有点碍事啊，越来越不看好明年打戏了。
-
-
-
-
-
 
 
 -----
@@ -10328,14 +6496,7 @@ staff
 ##### 540#       发表于 2019-12-27 13:25
 
 
-
-
 在想棒子能不能像旧世界花花一样变成剑一样的东西
-
-
-
-
-
 
 
 -----
@@ -10344,16 +6505,9 @@ staff
 ##### 541#       发表于 2019-12-27 13:30
 
 
-
-
 其实问题不大的，像历代放变身器的法子一样，在腰上挂一个套子放棒子就好了
 
 问题是目前看不到这个套子……
-
-
-
-
-
 
 
 -----
@@ -10362,22 +6516,15 @@ staff
 ##### 542#       发表于 2019-12-27 13:50
 
 
-
 <blockquote>rar1536770 发表于 2019-12-27 11:38
 棒子先往天上一丢，拳打脚踢一套连击然后接住棒子，帅的雅痞</blockquote>
 这不就是月光姐吗，我记得打三干部的其中一个有这动作，确实帅的一笔
-
-
-
-
-
 
 
 -----
 
 ####  噗哩噗  
 ##### 543#       发表于 2019-12-27 14:34
-
 
 
 <blockquote>Sliurus 发表于 2019-12-27 11:06
@@ -10388,16 +6535,10 @@ staff
 会被动保投诉（
 
 
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 544#       发表于 2019-12-27 14:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46002559&amp;ptid=1860852" target="_blank">最强惠酱 发表于 2019-12-27 13:25:06</a>
@@ -10407,16 +6548,10 @@ staff
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  lyflyflxf  
 ##### 545#       发表于 2019-12-27 15:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45998861&amp;ptid=1860852" target="_blank">噗哩噗 发表于 2019-12-27 07:33</a>
@@ -10425,17 +6560,10 @@ staff
 棒子怎么会坏呢？我看你是财团B的高级黑<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Blackson  
 ##### 546#       发表于 2019-12-27 15:15
-
-
 
 
 这拿着法杖变身，让我莫名出戏到隔壁的新生代奥特曼了(把法杖换成剑、片手剑等武器就觉得像)
@@ -10447,24 +6575,13 @@ staff
 对于是否能打得好，观望下
 
 
-
-
-
-
-
 -----
 
 ####  qfqczr  
 ##### 547#       发表于 2019-12-27 15:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">棒子漂浮在身边进行援助攻击和负责解说的可能性微存？
-
-
-
-
-
 
 
 -----
@@ -10473,16 +6590,10 @@ staff
 ##### 548#       发表于 2019-12-27 15:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46003797&amp;ptid=1860852" target="_blank">qfqczr 发表于 2019-12-27 15:21</a>
 
 棒子漂浮在身边进行援助攻击和负责解说的可能性微存？</blockquote>
 飞。。飞剑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10491,24 +6602,16 @@ staff
 ##### 549#       发表于 2019-12-27 16:36
 
 
-
-
 棒子就不能按照星球大战的套路变光剑吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 话说我还是挺期待械斗的
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  linhaitora  
 ##### 550#       发表于 2019-12-27 17:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45982649&amp;ptid=1860852" target="_blank">xingenge 发表于 2019-12-25 17:21</a></blockquote>
@@ -10522,16 +6625,10 @@ staff
 <img src="http://wx4.sinaimg.cn/large/bcfcde0agy1ga936s3lrqj20i20a40vk.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 551#       发表于 2019-12-27 18:34
-
 
 
 <blockquote>linhaitora 发表于 2019-12-27 17:54
@@ -10544,16 +6641,10 @@ staff
 这图的蓝好瑟
 
 
-
-
-
-
-
 -----
 
 ####  cmyk1234  
 ##### 552#       发表于 2019-12-27 18:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46004664&amp;ptid=1860852" target="_blank">catenarygong 发表于 2019-12-27 16:36</a>
@@ -10562,25 +6653,13 @@ staff
 5战队的水剑骑兵？
 
 
-
-
-
-
-
 -----
 
 ####  宅音  
 ##### 553#       发表于 2019-12-27 19:07
 
 
-
-
 绿睫毛我到现在看着还是虎躯一震<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10589,15 +6668,9 @@ staff
 ##### 554#       发表于 2019-12-27 19:09
 
 
-
 <blockquote>cmyk1234 发表于 2019-12-27 18:38
 5战队的水剑骑兵？</blockquote>
 555明明大家都有光剑但是就是不用真的很浪费设定，要说怕带坏小孩，剧场又卖了把新的专门用来械斗（还会自爆
-
-
-
-
-
 
 
 -----
@@ -10606,23 +6679,15 @@ staff
 ##### 555#       发表于 2019-12-27 19:10
 
 
-
 <blockquote>宅音 发表于 2019-12-27 19:07
 绿睫毛我到现在看着还是虎躯一震</blockquote>
 是眼影啦w
-
-
-
-
-
 
 
 -----
 
 ####  CURE_HGCG  
 ##### 556#       发表于 2019-12-27 20:04
-
-
 
 
 治疗+元素瓶+悠木碧，明年的女人仿佛就是把隔壁骑士的元素拿来混一起……
@@ -10632,28 +6697,15 @@ staff
 <img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gabj03st82j20fk09r4a8.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 557#       发表于 2019-12-27 20:36
 
 
-
-
 治愈地球只是种比较文艺的说法，实际上和ea那种并不沾边
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -10662,16 +6714,10 @@ staff
 ##### 558#       发表于 2019-12-27 20:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46006970&amp;ptid=1860852" target="_blank">CURE_HGCG 发表于 2019-12-27 20:04</a>
 
 治疗+元素瓶+悠木碧，明年的女人仿佛就是把隔壁骑士的元素拿来混一起……</blockquote>
 治疗感觉比较像守护天使莉莉卡那种诶
-
-
-
-
-
 
 
 -----
@@ -10680,16 +6726,9 @@ staff
 ##### 559#       发表于 2019-12-28 10:10
 
 
-
-
 不过预告里说了兔子淫兽就是医生
 
 然后敌人的名字来自"病原菌"
-
-
-
-
-
 
 
 -----
@@ -10698,14 +6737,7 @@ staff
 ##### 560#       发表于 2019-12-28 10:56
 
 
-
-
 黄主人间体好棒<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10714,15 +6746,9 @@ staff
 ##### 561#       发表于 2019-12-29 12:45
 
 
-
 <img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gacst5uindj20hs0c5q31.jpg" referrerpolicy="no-referrer">
 <img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gacst6h3k7j20hs0c50su.jpg" referrerpolicy="no-referrer">
 <img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gacst75wyqj20hs0c53yn.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10731,14 +6757,7 @@ staff
 ##### 562#       发表于 2019-12-29 14:49
 
 
-
-
 黄色人间体看着不错
-
-
-
-
-
 
 
 -----
@@ -10747,16 +6766,9 @@ staff
 ##### 563#       发表于 2019-12-29 15:19
 
 
-
-
 楼主到底有多少个马甲……
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -10765,23 +6777,16 @@ staff
 ##### 564#       发表于 2019-12-29 15:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46023466&amp;ptid=1860852" target="_blank">Sliurus 发表于 2019-12-29 15:19:55</a>
 楼主到底有多少个马甲……</blockquote>你直接用前四个字母搜用户看看有多少相同格式的
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  白金口袋  
 ##### 565#       发表于 2019-12-29 15:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46003797&amp;ptid=1860852" target="_blank">qfqczr 发表于 2019-12-27 01:21</a>
@@ -10792,16 +6797,10 @@ staff
 隔壁骑士棚刚玩过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  CURE_HGCG  
 ##### 566#       发表于 2019-12-29 16:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46023551&amp;ptid=1860852" target="_blank">月夜凝雪 发表于 2019-12-29 15:30</a>
@@ -10813,25 +6812,13 @@ staff
 需要有精华帖的，没有就是假的
 
 
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 567#       发表于 2019-12-29 20:59
 
 
-
-
 这些怎样都好啦
-
-
-
-
-
 
 
 -----
@@ -10840,16 +6827,9 @@ staff
 ##### 568#       发表于 2019-12-29 23:08
 
 
-
-
 pv里面悠木碧的声音感觉不像蕾，像花那一类的
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -10858,13 +6838,7 @@ pv里面悠木碧的声音感觉不像蕾，像花那一类的
 ##### 569#       发表于 2019-12-30 11:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这次的主题是环保嘛，这个，要怎么搞呢。
-
-
-
-
-
 
 
 -----
@@ -10873,16 +6847,10 @@ pv里面悠木碧的声音感觉不像蕾，像花那一类的
 ##### 570#       发表于 2019-12-30 12:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46031474&amp;ptid=1860852" target="_blank">mchan 发表于 2019-12-30 11:55:57</a>
 这个“主流媒体都认识的大牌声优配粉Q”似乎只有水樹奈々的つぼみ这一个先例啊。（上次高橋李依遇到随机 ...</blockquote>这个怎么看都是摔跤手哪里像cv
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -10891,21 +6859,13 @@ pv里面悠木碧的声音感觉不像蕾，像花那一类的
 ##### 571#       发表于 2019-12-30 12:12
 
 
-
-
 没人关心新剧场版有魔法使但没甜点吗？ 惨 甜点 惨
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 572#       发表于 2019-12-30 12:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46031552&amp;ptid=1860852" target="_blank">mchan 发表于 2019-12-30 12:02</a>
@@ -10915,16 +6875,10 @@ pv里面悠木碧的声音感觉不像蕾，像花那一类的
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  新HGCG  
 ##### 573#       发表于 2019-12-31 10:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46031684&amp;ptid=1860852" target="_blank">kitebread 发表于 2019-12-30 12:12</a>
@@ -10933,25 +6887,13 @@ pv里面悠木碧的声音感觉不像蕾，像花那一类的
 最近的剧场版除了周年作，都是只有本年加前两年啊
 
 
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 574#       发表于 2019-12-31 12:23
 
 
-
-
 反正大家都不喜欢甜点
-
-
-
-
-
 
 
 -----
@@ -10960,23 +6902,16 @@ pv里面悠木碧的声音感觉不像蕾，像花那一类的
 ##### 575#       发表于 2019-12-31 13:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45986920&amp;ptid=1860852" target="_blank">mchan 发表于 2019-12-26 02:57:48</a>
 配对，特别是 BG 配对要么别来，要么就像 555 有兴趣拉配对的全都配好。（555 三对 BG 一对百合，就留一 ...</blockquote>555是说战队Q娃吗？里面有一对百合？
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 576#       发表于 2019-12-31 16:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46044425&amp;ptid=1860852" target="_blank">用户名就算了吧 发表于 2019-12-31 13:52</a>
@@ -10986,24 +6921,13 @@ pv里面悠木碧的声音感觉不像蕾，像花那一类的
 香恋和奶玫瑰吧
 
 
-
-
-
-
-
 -----
 
 ####  新HGCG  
 ##### 577#       发表于 2019-12-31 17:51
 
 
-
 <img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gafy1hltzhj20hs0kv0u6.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11012,15 +6936,9 @@ pv里面悠木碧的声音感觉不像蕾，像花那一类的
 ##### 578#       发表于 2019-12-31 18:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46046999&amp;ptid=1860852" target="_blank">新HGCG 发表于 2019-12-31 17:51:50</a></blockquote>怎么还有一个第四人？好像是那个小狗妖精的人形态？
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -11029,14 +6947,7 @@ pv里面悠木碧的声音感觉不像蕾，像花那一类的
 ##### 579#       发表于 2019-12-31 18:22
 
 
-
-
 黄战士那件战无不胜龙外套怎么来的？
-
-
-
-
-
 
 
 -----
@@ -11045,16 +6956,10 @@ pv里面悠木碧的声音感觉不像蕾，像花那一类的
 ##### 580#       发表于 2019-12-31 19:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46046460&amp;ptid=1860852" target="_blank">天邪鬼 发表于 2019-12-31 16:58:23</a>
 香恋和奶玫瑰吧</blockquote>好的，这就去补～
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -11063,16 +6968,10 @@ pv里面悠木碧的声音感觉不像蕾，像花那一类的
 ##### 581#       发表于 2019-12-31 20:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46047259&amp;ptid=1860852" target="_blank">cmyk1234 发表于 2019-12-31 18:22</a>
 
 黄战士那件战无不胜龙外套怎么来的？</blockquote>
 什么是龙外套？
-
-
-
-
-
 
 
 -----
@@ -11081,16 +6980,10 @@ pv里面悠木碧的声音感觉不像蕾，像花那一类的
 ##### 582#       发表于 2019-12-31 21:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46048850&amp;ptid=1860852" target="_blank">新HGCG 发表于 2019-12-31 20:56</a>
 
 什么是龙外套？</blockquote>
 跟角色“万丈龙我”同色外套
-
-
-
-
-
 
 
 -----
@@ -11099,14 +6992,7 @@ pv里面悠木碧的声音感觉不像蕾，像花那一类的
 ##### 583#       发表于 2019-12-31 21:28
 
 
-
-
 那外套也不是就龙我穿啊，甚至我上淘宝都有看见过类似风格的。不过穿这个外套，黄是辣妹的可能upup
-
-
-
-
-
 
 
 -----
@@ -11115,15 +7001,9 @@ pv里面悠木碧的声音感觉不像蕾，像花那一类的
 ##### 584#       发表于 2019-12-31 22:32
 
 
-
 <blockquote>天邪鬼 发表于 2019-12-31 21:28
 那外套也不是就龙我穿啊，甚至我上淘宝都有看见过类似风格的。不过穿这个外套，黄是辣妹的可能upup ...</blockquote>
 为什么这么说
-
-
-
-
-
 
 
 -----
@@ -11132,17 +7012,10 @@ pv里面悠木碧的声音感觉不像蕾，像花那一类的
 ##### 585#       发表于 2019-12-31 22:33
 
 
-
-
 星q的时候你们也猜是辣妹，不就没中吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 木鱼以为是不良，结果只是自闭<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -11151,15 +7024,9 @@ pv里面悠木碧的声音感觉不像蕾，像花那一类的
 ##### 586#       发表于 2019-12-31 22:35
 
 
-
 <blockquote>天邪鬼 发表于 2019-12-31 21:28
 那外套也不是就龙我穿啊，甚至我上淘宝都有看见过类似风格的。不过穿这个外套，黄是辣妹的可能upup ...</blockquote>
 邮局港剧，星q蓝猫也有龙我那件外套啊，但蓝猫并不是辣妹
-
-
-
-
-
 
 
 -----
@@ -11168,23 +7035,16 @@ pv里面悠木碧的声音感觉不像蕾，像花那一类的
 ##### 587#       发表于 2020-1-1 09:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46049904&amp;ptid=1860852" target="_blank">东映制药 发表于 2019-12-31 22:35</a>
 邮局港剧，星q蓝猫也有龙我那件外套啊，但蓝猫并不是辣妹</blockquote>
 那可能是东映内部开始流行这东西了吧，毕竟看着确实挺酷的
 q娃恐怕不会找个不良做初始q娃吧，就算是也不会表现不良的那一面(敲诈勒索啥的)
 
 
-
-
-
-
-
 -----
 
 ####  武男  
 ##### 588#       发表于 2020-1-1 10:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46044425&amp;ptid=1860852" target="_blank">用户名就算了吧 发表于 2019-12-31 13:52</a>
@@ -11196,16 +7056,10 @@ q娃恐怕不会找个不良做初始q娃吧，就算是也不会表现不良的
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">会长和奶玫瑰吧，不过奶玫瑰对王子算是蛋箭头
 
 
-
-
-
-
-
 -----
 
 ####  武男  
 ##### 589#       发表于 2020-1-1 17:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46054611&amp;ptid=1860852" target="_blank">mchan 发表于 2020-1-1 15:34</a>
@@ -11214,17 +7068,10 @@ q娃恐怕不会找个不良做初始q娃吧，就算是也不会表现不良的
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">此世之错嘛，果然一贵乱就是茶几嘛
 
 
-
-
-
-
-
 -----
 
 ####  HGCG3  
 ##### 590#       发表于 2020-1-2 16:28
-
-
 
 
 "花寺和香！" ​​​​
@@ -11234,18 +7081,10 @@ q娃恐怕不会找个不良做初始q娃吧，就算是也不会表现不良的
 <img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gai2ft3jxwj20nz0xc42x.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 591#       发表于 2020-1-2 18:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46065186&amp;ptid=1860852" target="_blank">HGCG3 发表于 2020-01-02 16:28:44</a>
@@ -11254,24 +7093,13 @@ q娃恐怕不会找个不良做初始q娃吧，就算是也不会表现不良的
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  HGCG3  
 ##### 592#       发表于 2020-1-8 07:22
 
 
-
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gaosp4f6uij20u010n4qp.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11280,15 +7108,9 @@ q娃恐怕不会找个不良做初始q娃吧，就算是也不会表现不良的
 ##### 593#       发表于 2020-1-8 09:16
 
 
-
 <blockquote>HGCG3 发表于 2020-1-2 16:28
 "花寺和香！" ​​​​</blockquote>
 EXAID！
-
-
-
-
-
 
 
 -----
@@ -11297,13 +7119,7 @@ EXAID！
 ##### 594#       发表于 2020-1-8 11:37
 
 
-
 <img src="http://wx1.sinaimg.cn/mw690/e7cbae74gy1gaob5ju8nnj21140u0nmn.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11312,14 +7128,7 @@ EXAID！
 ##### 595#       发表于 2020-1-8 11:55
 
 
-
-
 为我井克美的作画能期待么
-
-
-
-
-
 
 
 -----
@@ -11328,16 +7137,10 @@ EXAID！
 ##### 596#       发表于 2020-1-8 11:57
 
 
-
  本帖最后由 cmyk1234 于 2020-1-8 12:11 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46120801&amp;ptid=1860852" target="_blank">达达葱2 发表于 2020-1-8 11:55</a>
 为我井克美的作画能期待么</blockquote>
 初代的核心作画成员之一，也是美少女战士的稳定作监之一。
-
-
-
-
-
 
 
 -----
@@ -11346,21 +7149,13 @@ EXAID！
 ##### 597#       发表于 2020-1-8 12:18
 
 
-
-
 还有疗q第一集简介有一种妹尾爱子+立花响合成的感觉。
-
-
-
-
-
 
 
 -----
 
 ####  cmyk1234  
 ##### 598#       发表于 2020-1-8 18:18
-
 
 
  本帖最后由 cmyk1234 于 2020-1-8 18:26 编辑 
@@ -11374,33 +7169,20 @@ EXAID！
 双翼演唱会事故后立花家由于c来自外界的舆论攻击（因传言中的“踩踏事故”等）而产生受到了极大打击，父亲立花洸因不堪重负逃走（顺便提一句，响的父亲是入赘到立花家的，因此响随的是母姓，响的父亲原姓是“守崎”）。GX遇到了父亲并最终原谅了他，一家人再度团圆。XV立花响发现小日向未来被神名（Shem-Ha）夺舍受到极大打击，受到父亲的开导重新振作。
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 599#       发表于 2020-1-8 18:44
 
 
-
-
 奶一口第一集是作画回？
 也不指望打拳了，大招没bank就好了
-
-
-
-
-
 
 
 -----
 
 ####  噗哩噗  
 ##### 600#       发表于 2020-1-8 21:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46125196&amp;ptid=1860852" target="_blank">天邪鬼 发表于 2020-1-8 18:44</a>
@@ -11413,17 +7195,10 @@ EXAID！
 不过说不定第一集只变身呢
 
 
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 601#       发表于 2020-1-8 22:23
-
-
 
 
 简称定下来了吗？疗q听起来怪怪的，还是直接叫治愈？
@@ -11432,25 +7207,13 @@ Xq的叫法是从法q开始的吧，之前都是直接叫标题
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  macos  
 ##### 602#       发表于 2020-1-8 22:54
 
 
-
-
 cure本身就是治愈吧
-
-
-
-
-
 
 
 -----
@@ -11459,14 +7222,7 @@ cure本身就是治愈吧
 ##### 603#       发表于 2020-1-8 23:46
 
 
-
-
 奶Q不是挺好的
-
-
-
-
-
 
 
 -----
@@ -11475,23 +7231,15 @@ cure本身就是治愈吧
 ##### 604#       发表于 2020-1-9 06:05
 
 
-
-
 叫治愈吧
 
 否则就像假面的x骑一样了
-
-
-
-
-
 
 
 -----
 
 ####  天邪鬼  
 ##### 605#       发表于 2020-1-9 06:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46126545&amp;ptid=1860852" target="_blank">噗哩噗 发表于 2020-1-8 21:11</a>
@@ -11501,25 +7249,13 @@ cure本身就是治愈吧
 再好看的bank每集来一遍都会觉得烦，更何况bank小招的违和感很重，特别是后期打不死怪的时候
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 606#       发表于 2020-1-9 06:30
 
 
-
-
 风怒，编辑
-
-
-
-
-
 
 
 -----
@@ -11528,16 +7264,10 @@ cure本身就是治愈吧
 ##### 607#       发表于 2020-1-9 07:32
 
 
-
 <img src="http://wx3.sinaimg.cn/mw690/e7cbae74gy1gaob3khf71j20u00zy000.jpg" referrerpolicy="no-referrer">
 
 遗作…………
 <img src="http://wx1.sinaimg.cn/large/0068TvVBgy1gapc23ggogj30hh084ju4.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11546,20 +7276,13 @@ cure本身就是治愈吧
 ##### 608#       发表于 2020-1-9 08:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">q娃能cure他吗
-
-
-
-
-
 
 
 -----
 
 ####  噗哩噗  
 ##### 609#       发表于 2020-1-9 09:34
-
 
 
 <blockquote>Sliurus 发表于 2020-1-8 22:23
@@ -11570,25 +7293,13 @@ Xq的叫法是从法q开始的吧，之前都是直接叫标题
 其实也不是，战队水果这些是特征。法q本来是因为“法q”本身的谐音好笑，结果叫开了。甜点和闪q的数量还是一半一半的（甜点也是特征），拥抱开始叫抱q的就多过拥抱了。如果标题和特征词都不好叫，循先例加个q有辨识度也不错。但是今年治q大概太难听了，有可能叫回治愈（大概
 
 
-
-
-
-
-
 -----
 
 ####  leleq  
 ##### 610#       发表于 2020-1-9 09:40
 
 
-
-
 这……staff上打黑框    小朋友们会问为什么这个人名字上有黑框么？
-
-
-
-
-
 
 
 -----
@@ -11597,15 +7308,9 @@ Xq的叫法是从法q开始的吧，之前都是直接叫标题
 ##### 611#       发表于 2020-1-9 09:43
 
 
-
 <blockquote>天邪鬼 发表于 2020-1-9 06:30
 再好看的bank每集来一遍都会觉得烦，更何况bank小招的违和感很重，特别是后期打不死怪的时候 ...</blockquote>
 美战的招十有八九没用，但是百看不厌。q娃的招式能反复观赏的太少了。关键回是否应该无bank放招和原bank好不好没什么关系。而且这两年bank创意本来就枯竭，变身就变手变脚变这变那，大招就吼一吼放彩虹波（食人花和扔飞镖试错总好过无趣），再加上毁灭性的配乐（今年除了变身曲其他bank还有旋律吗？），感觉少了点变身动画的浪漫
-
-
-
-
-
 
 
 -----
@@ -11614,16 +7319,10 @@ Xq的叫法是从法q开始的吧，之前都是直接叫标题
 ##### 612#       发表于 2020-1-9 11:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46129807&amp;ptid=1860852" target="_blank">噗哩噗 发表于 2020-01-09 09:34:28</a>
 其实也不是，战队水果这些是特征。法q本来是因为“法q”本身的谐音好笑，结果叫开了。甜点和闪q的数量还 ...</blockquote>战队算是特征，但是水果是标题吧
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -11632,14 +7331,7 @@ Xq的叫法是从法q开始的吧，之前都是直接叫标题
 ##### 613#       发表于 2020-1-9 11:37
 
 
-
-
 这几年变身大招bank兼卡只有看5边的价值 多了就拉进度条<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11648,22 +7340,14 @@ Xq的叫法是从法q开始的吧，之前都是直接叫标题
 ##### 614#       发表于 2020-1-9 11:41
 
 
-
-
 今年配乐换人了也可以给林友树盖棺了
 我对他这几年表现十分的不满意<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  himfsz  
 ##### 615#       发表于 2020-1-9 12:02
-
 
 
 <blockquote>Sliurus 发表于 2020-1-9 11:11
@@ -11674,16 +7358,10 @@ Xq的叫法是从法q开始的吧，之前都是直接叫标题
 标题是新鲜q娃啊
 
 
-
-
-
-
-
 -----
 
 ####  HGCG3  
 ##### 616#       发表于 2020-1-9 19:00
-
 
 
 <img src="http://wx2.sinaimg.cn/large/69559a0aly1gaqabjvy6xj20v61hc7er.jpg" referrerpolicy="no-referrer">
@@ -11693,32 +7371,19 @@ Xq的叫法是从法q开始的吧，之前都是直接叫标题
 <img src="http://wx2.sinaimg.cn/large/69559a0aly1gaqabjnrlvj20co0miqfe.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 617#       发表于 2020-1-9 19:38
 
 
-
-
 觉得黄的袜子很别扭的只有我吗
-
-
-
-
-
 
 
 -----
 
 ####  HGCG3  
 ##### 618#       发表于 2020-1-9 19:41
-
 
 
 <img src="http://wx3.sinaimg.cn/large/69559a0aly1gaqhrn1i00j20l40msawt.jpg" referrerpolicy="no-referrer">
@@ -11728,25 +7393,13 @@ Xq的叫法是从法q开始的吧，之前都是直接叫标题
 <img src="http://wx1.sinaimg.cn/large/69559a0aly1gaqhrn56mcj20l70mtke4.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 619#       发表于 2020-1-9 22:37
 
 
-
-
 企鹅越看越像宝可梦
-
-
-
-
-
 
 
 -----
@@ -11755,23 +7408,15 @@ Xq的叫法是从法q开始的吧，之前都是直接叫标题
 ##### 620#       发表于 2020-1-9 23:51
 
 
-
-
 怎么感觉很多粉主都偏矮呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  噗哩噗  
 ##### 621#       发表于 2020-1-10 01:03
-
 
 
 <blockquote>Sliurus 发表于 2020-1-9 23:51
@@ -11782,25 +7427,13 @@ Xq的叫法是从法q开始的吧，之前都是直接叫标题
 因为粉主一般是真实的观众，所以又矮又蠢
 
 
-
-
-
-
-
 -----
 
 ####  宋西湖  
 ##### 622#       发表于 2020-1-10 12:19
 
 
-
-
 叫医Q咋样？其实我觉得医字的怪怪。疗Q？不想接受。其实治愈也OK。还是觉得绕口。嘛，叫开了就好。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11809,74 +7442,33 @@ Xq的叫法是从法q开始的吧，之前都是直接叫标题
 ##### 623#       发表于 2020-1-10 19:32
 
 
-
-
 狗女王其实很漂亮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
 
 
 37d3d539b6003af3cd3cbf313a2ac65c1138b6d9@wm_1,g_7,k_d2F0ZXIvYmFpa2U4MA==,xp_5,yp_5.jpg
 (153.67 KB, 下载次数: 3)
 
 
-
-
 下载附件
 
 
 2020-1-10 19:32 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202001/10/193240fxx9ef3a3l6e0xxi.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 cf27ebea15ce36d3d648233336f33a87e850b1f3.jpg
 (115.14 KB, 下载次数: 2)
 
 
-
-
 下载附件
 
 
 2020-1-10 19:32 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202001/10/193240hgvsxskkn25u1rnj.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -11885,16 +7477,9 @@ cf27ebea15ce36d3d648233336f33a87e850b1f3.jpg
 ##### 624#       发表于 2020-1-10 20:40
 
 
-
-
 今年的粉主好可爱，很戳我
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -11903,15 +7488,8 @@ cf27ebea15ce36d3d648233336f33a87e850b1f3.jpg
 ##### 625#       发表于 2020-1-12 08:23
 
 
-
-
 PV2
 [https://www.weibo.com/tv/v/Ip6fce6aH?fid=1034:4459821840400388](https://www.weibo.com/tv/v/Ip6fce6aH?fid=1034:4459821840400388)
-
-
-
-
-
 
 
 -----
@@ -11920,14 +7498,7 @@ PV2
 ##### 626#       发表于 2020-1-12 10:09
 
 
-
-
 草了，这就是婆罗门争夺话语权的日常吗？居然还在争简称叫什么名字<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11936,16 +7507,10 @@ PV2
 ##### 627#       发表于 2020-1-12 17:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46159882&amp;ptid=1860852" target="_blank">小黄酱 发表于 2020-1-12 10:09</a>
 
 草了，这就是婆罗门争夺话语权的日常吗？居然还在争简称叫什么名字</blockquote>
 放假了先把作业写了不要出来丢人现眼
-
-
-
-
-
 
 
 -----
@@ -11954,14 +7519,7 @@ PV2
 ##### 628#       发表于 2020-1-12 17:47
 
 
-
-
 家里要添个女儿了，爹妈爷爷奶奶外公外婆心里都有主意不是挺正常吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11970,16 +7528,10 @@ PV2
 ##### 629#       发表于 2020-1-12 17:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46163391&amp;ptid=1860852" target="_blank">lyflyflxf 发表于 2020-1-12 17:47</a>
 
 家里要添个女儿了，爹妈爷爷奶奶外公外婆心里都有主意不是挺正常吗</blockquote>
 现在说女儿，到最后就喊妈了(
-
-
-
-
-
 
 
 -----
@@ -11988,16 +7540,10 @@ PV2
 ##### 630#       发表于 2020-1-12 20:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46163479&amp;ptid=1860852" target="_blank">風駿 发表于 2020-1-12 17:58</a>
 
 现在说女儿，到最后就喊妈了(</blockquote>
 为啥？Q娃又不是轻小说<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12006,21 +7552,13 @@ PV2
 ##### 631#       发表于 2020-1-13 22:45
 
 
-
-
 粉主这变身卡八成志田直俊
-
-
-
-
-
 
 
 -----
 
 ####  新HGCG  
 ##### 632#       发表于 2020-1-14 11:24
-
 
 
 <img src="http://wx4.sinaimg.cn/large/007nNQNIly1gavvmxkyaaj30by0gonhv.jpg" referrerpolicy="no-referrer">
@@ -12030,25 +7568,13 @@ PV2
 图二左上原来是蓝的胳膊肘，我还以为她举了个芋头……
 
 
-
-
-
-
-
 -----
 
 ####  時の華  
 ##### 633#       发表于 2020-1-14 11:40
 
 
-
-
 叫愈Q也不错啊<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12057,13 +7583,7 @@ PV2
 ##### 634#       发表于 2020-1-15 18:30
 
 
-
 <img src="http://wx3.sinaimg.cn/large/69559a0aly1gax3ic9vo2j20g20e476f.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12072,15 +7592,9 @@ PV2
 ##### 635#       发表于 2020-1-15 22:32
 
 
-
 <blockquote>時の華 发表于 2020-1-14 11:40
 叫愈Q也不错啊</blockquote>
 我觉得不能带Q了
-
-
-
-
-
 
 
 -----
@@ -12089,15 +7603,8 @@ PV2
 ##### 636#       发表于 2020-1-20 11:19
 
 
-
-
 咋和花花一样，第一集摔投 ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gb1zzmnefbj20rj0fd7sx.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12106,22 +7613,13 @@ PV2
 ##### 637#       发表于 2020-1-20 11:21
 
 
-
-
 新妈预订
-
-
-
-
-
 
 
 -----
 
 ####  噗哩噗  
 ##### 638#       发表于 2020-1-20 20:18
-
-
 
 
 今天做梦梦到如下场景：
@@ -12131,16 +7629,10 @@ PV2
 新女人：让你一只手罢了
 
 
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 639#       发表于 2020-1-20 22:50
-
 
 
 <blockquote>噗哩噗 发表于 2020-1-20 20:18
@@ -12152,26 +7644,14 @@ PV2
 内八合外八合？
 
 
-
-
-
-
-
 -----
 
 ####  新HGCG  
 ##### 640#       发表于 2020-1-22 07:34
 
 
-
-
 这周肯定是交接了
 <img src="http://wx1.sinaimg.cn/mw690/e7cbae74gy1gb4xw1yvulj20ba0au44m.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12180,14 +7660,7 @@ PV2
 ##### 641#       发表于 2020-1-22 08:50
 
 
-
-
 肯定会交接的啊
-
-
-
-
-
 
 
 -----
@@ -12196,16 +7669,9 @@ PV2
 ##### 642#       发表于 2020-1-22 19:51
 
 
-
-
 我猜奶q之后又会回归双人组<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -12214,14 +7680,7 @@ PV2
 ##### 643#       发表于 2020-1-23 01:30
 
 
-
-
 奶q还行
-
-
-
-
-
 
 
 -----
@@ -12230,23 +7689,15 @@ PV2
 ##### 644#       发表于 2020-1-23 02:14
 
 
-
-
 蓝毛又戳中我了
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  lyflyflxf  
 ##### 645#       发表于 2020-1-23 15:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46220396&amp;ptid=1860852" target="_blank">catenarygong 发表于 2020-1-22 19:51</a>
@@ -12256,27 +7707,15 @@ PV2
 我猜财团B不会答应<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  新HGCG  
 ##### 646#       发表于 2020-1-23 22:10
 
 
-
 <img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gb6sadbj5hj20my0h2tsz.jpg" referrerpolicy="no-referrer">
 
 <img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gb6sagk2qvj20my0h9e6c.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
@@ -12285,19 +7724,11 @@ PV2
 ##### 647#       发表于 2020-1-23 22:27
 
 
-
-
 看来我不是唯一一个觉得蓝毛发型像马琳的，以后就叫她小马琳了
-
-
-
-
 
 
 IMG_5549.JPG
 (367.14 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -12306,24 +7737,7 @@ IMG_5549.JPG
 2020-1-23 22:26 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202001/23/222613d4fjmthkxx7lox10.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -12332,14 +7746,7 @@ IMG_5549.JPG
 ##### 648#       发表于 2020-1-23 22:28
 
 
-
-
 奶Q笑死
-
-
-
-
-
 
 
 -----
@@ -12348,15 +7755,9 @@ IMG_5549.JPG
 ##### 649#       发表于 2020-1-23 22:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46226136&amp;ptid=1860852" target="_blank">lyflyflxf 发表于 2020-1-23 15:09</a>
 我猜财团B不会答应</blockquote>
 等20th的时候看下吧，如果搞祭作品，那么两个Q娃也是能接受的（反正可以卖前辈
-
-
-
-
-
 
 
 -----
@@ -12365,17 +7766,10 @@ IMG_5549.JPG
 ##### 650#       发表于 2020-1-24 13:29
 
 
-
-
 东大妈现在一线的系构能写好群像剧的不多，微笑那年很多人说水但是每个人的角色塑造很圆满，放在现在也算很优秀了，这两年哪怕是抱抱也有剧情分配问题
 可能像法q搞双人开局可能还好一些
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -12384,17 +7778,10 @@ IMG_5549.JPG
 ##### 651#       发表于 2020-1-24 13:35
 
 
-
-
 微笑那年的水是指缺主线，但五人从不缺乏互动，所谓个人回也基本是报团来搞事，一年下来当然每个人特色鲜明又有足够全面的描写
 
 
 这方面最屑的是甜点
-
-
-
-
-
 
 
 -----
@@ -12403,16 +7790,9 @@ IMG_5549.JPG
 ##### 652#       发表于 2020-1-24 15:14
 
 
-
-
 那我觉得明年你们大可以放心了
 
 香村起码在盗警的发挥是超额完成目标的
-
-
-
-
-
 
 
 -----
@@ -12421,15 +7801,9 @@ IMG_5549.JPG
 ##### 653#       发表于 2020-1-24 16:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46229086&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-1-23 22:27</a>
  看来我不是唯一一个觉得蓝毛发型像马琳的，以后就叫她小马琳了</blockquote>
 昵称非常梦见岛<img src="https://static.saraba1st.com/image/smiley/carton2017/218.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12438,16 +7812,9 @@ IMG_5549.JPG
 ##### 654#       发表于 2020-1-24 16:43
 
 
-
-
 川村系画风虽然看多了觉得土，但放在q娃里就是让人觉得安心啊<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -12456,20 +7823,13 @@ IMG_5549.JPG
 ##### 655#       发表于 2020-1-25 11:59
 
 
-
 <img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gb7x6jw5ocj20dw07tmxv.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  cmyk1234  
 ##### 656#       发表于 2020-1-25 12:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46234378&amp;ptid=1860852" target="_blank">王留美 发表于 2020-1-24 15:14</a>
@@ -12479,26 +7839,15 @@ IMG_5549.JPG
 请问是不是指香川抗住了财团B的怪盗商法？
 
 
-
-
-
-
-
 -----
 
 ####  王留美  
 ##### 657#       发表于 2020-1-25 12:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46241354&amp;ptid=1860852" target="_blank">cmyk1234 发表于 2020-1-25 12:07</a>
 请问是不是指香川抗住了财团B的怪盗商法？</blockquote>
 是
-
-
-
-
-
 
 
 -----
@@ -12507,17 +7856,10 @@ IMG_5549.JPG
 ##### 658#       发表于 2020-1-25 13:02
 
 
-
-
 阿光比umb还要矮啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 这灯光打得有种“命运的相遇”的感觉
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -12526,16 +7868,10 @@ IMG_5549.JPG
 ##### 659#       发表于 2020-1-25 20:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46244172&amp;ptid=1860852" target="_blank">mchan 发表于 2020-01-25 19:57:17</a>
 20 周年的时候来一个无印第三季如何？新 Q 娃还是有，不过班主任雪城老师、体育课美墨老师和食堂九条老师 ...</blockquote>光之美少妇？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -12544,16 +7880,10 @@ IMG_5549.JPG
 ##### 660#       发表于 2020-1-25 20:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46244134&amp;ptid=1860852" target="_blank">mchan 发表于 2020-1-25 19:53</a>
 
 这段时间是不是应该补一补公主，作为对这番的预习？（其实公主我没看）</blockquote>
 公主是很值得一看的王道作品
-
-
-
-
-
 
 
 -----
@@ -12562,14 +7892,7 @@ IMG_5549.JPG
 ##### 661#       发表于 2020-1-26 00:24
 
 
-
-
 怎么回事，都已经24页了？
-
-
-
-
-
 
 
 -----
@@ -12578,22 +7901,13 @@ IMG_5549.JPG
 ##### 662#       发表于 2020-1-26 07:09
 
 
-
-
 直到那一年才能请金春智子主笔q娃？
-
-
-
-
-
 
 
 -----
 
 ####  hgcg-w  
 ##### 663#         楼主| 发表于 2020-1-26 08:00
-
-
 
 
 キュアグレース、なんて強さだ…！
@@ -12612,27 +7926,15 @@ IMG_5549.JPG
 <img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gb9mxv4disj21hc0u0qv8.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 664#       发表于 2020-1-26 11:16
 
 
-
-
 下周就要开播了啊
 
 结合当前形式，真是……
-
-
-
-
-
 
 
 -----
@@ -12641,22 +7943,13 @@ IMG_5549.JPG
 ##### 665#       发表于 2020-1-26 17:29
 
 
-
-
 Precure Operation（指对衣物进行手术改造
-
-
-
-
-
 
 
 -----
 
 ####  hgcg-w  
 ##### 666#         楼主| 发表于 2020-1-26 19:06
-
-
 
 
 剧场版
@@ -12669,24 +7962,13 @@ Precure Operation（指对衣物进行手术改造
 <img src="http://wx4.sinaimg.cn/large/006fP6qmgy1gb9z1y3iswj31kw15owwu.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 667#         楼主| 发表于 2020-1-27 06:48
 
 
-
 <img src="http://wx1.sinaimg.cn/large/6765fd79gy1gbaf0bahx1j20fd06ijxf.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12695,16 +7977,10 @@ Precure Operation（指对衣物进行手术改造
 ##### 668#       发表于 2020-1-27 11:11
 
 
-
 <img src="https://wx3.sinaimg.cn/mw690/a3f7af34gy1gb9u2tfxh8j20p00hodwu.jpg" referrerpolicy="no-referrer">
 <img src="https://wx2.sinaimg.cn/mw690/006fP6qmgy1gba5kh6zw9j30ku112dk2.jpg" referrerpolicy="no-referrer">
 
 长大的阿光和尤尼有身高175。。独眼巨人艾旺190
-
-
-
-
-
 
 
 -----
@@ -12713,16 +7989,9 @@ Precure Operation（指对衣物进行手术改造
 ##### 669#       发表于 2020-1-27 16:34
 
 
-
-
 前端时间一说umb就是疯子 沙雕
 
 49集 umb的声线太少女了 我竟一时没反应过来
-
-
-
-
-
 
 
 -----
@@ -12731,14 +8000,7 @@ Precure Operation（指对衣物进行手术改造
 ##### 670#       发表于 2020-1-27 16:53
 
 
-
-
 星q之前因为事情停在30集了，请问后面好看吗，哪些集数需要补？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12747,16 +8009,10 @@ Precure Operation（指对衣物进行手术改造
 ##### 671#       发表于 2020-1-27 18:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46258617&amp;ptid=1860852" target="_blank">太阳寺太守 发表于 2020-1-27 16:53</a>
 星q之前因为事情停在30集了，请问后面好看吗，哪些集数需要补？</blockquote>
 好看
 我也是意外停在33还是34了，上个星期一口气在最终话之前补完了
-
-
-
-
-
 
 
 -----
@@ -12765,24 +8021,16 @@ Precure Operation（指对衣物进行手术改造
 ##### 672#       发表于 2020-1-27 20:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46259297&amp;ptid=1860852" target="_blank">王留美 发表于 2020-1-27 18:21</a>
 好看
 我也是意外停在33还是34了，上个星期一口气在最终话之前补完了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">办完事找时间看看
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 673#         楼主| 发表于 2020-1-27 20:43
-
-
 
 
 <img src="http://wx1.sinaimg.cn/large/69559a0aly1gbb1wdn4wxj20le0n2doh.jpg" referrerpolicy="no-referrer">
@@ -12793,25 +8041,13 @@ Precure Operation（指对衣物进行手术改造
 <img src="http://wx1.sinaimg.cn/large/69559a0aly1gbb1we7yzdj20le0n27ch.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  rar1536770  
 ##### 674#       发表于 2020-1-27 20:55
 
 
-
-
 校服真没太大必要加个外套体现个性，
-
-
-
-
-
 
 
 -----
@@ -12820,14 +8056,7 @@ Precure Operation（指对衣物进行手术改造
 ##### 675#       发表于 2020-1-27 21:05
 
 
-
-
 这个校服有点土。然后又是校服外面套外套的，套外套就算了还有套卫衣的。。。
-
-
-
-
-
 
 
 -----
@@ -12836,14 +8065,7 @@ Precure Operation（指对衣物进行手术改造
 ##### 676#       发表于 2020-1-27 21:08
 
 
-
-
 阿黄的校服还套粉色，C位争夺<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12852,21 +8074,13 @@ Precure Operation（指对衣物进行手术改造
 ##### 677#       发表于 2020-1-28 03:33
 
 
-
-
 这外套也太土了<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  lyflyflxf  
 ##### 678#       发表于 2020-1-28 20:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46248160&amp;ptid=1860852" target="_blank">达达葱2 发表于 2020-1-26 11:16</a>
@@ -12876,26 +8090,13 @@ Precure Operation（指对衣物进行手术改造
 应景的不行
 
 
-
-
-
-
-
 -----
 
 ####  屑猫猫  
 ##### 679#       发表于 2020-1-28 20:43
 
 
-
-
-
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -12904,26 +8105,16 @@ Precure Operation（指对衣物进行手术改造
 ##### 680#       发表于 2020-1-28 22:02
 
 
-
  本帖最后由 RainyH2O 于 2020-1-28 22:12 编辑 
 
 仔细想来Q娃这波奶的好啊，当大家以为会不会应景出个奥运相关的主题时新主题选择了治病，对抗病毒啥的。结果正好开播前这波肺炎病毒大爆发，虽然本质上只是一场人祸的巧合，但我还是想吐槽一句毒奶的真好啊。。。光是主题神奶就不说了，好巧不巧星Q最终话交接和上面压不住的日期撞一起。简直就像是提前预言一样的感觉啊。。。
 <img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
 -----
 
 ####  CURE_HGCG  
 ##### 681#       发表于 2020-1-29 12:26
-
-
 
 
 <img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gbb2s9nzfej20u0140k24.jpg" referrerpolicy="no-referrer">
@@ -12936,25 +8127,13 @@ Precure Operation（指对衣物进行手术改造
 <img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gbb2sb9fttj21400u04qp.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  宅音  
 ##### 682#       发表于 2020-1-29 20:31
 
 
-
-
 黄猫那发型真的好像哈利
-
-
-
-
-
 
 
 -----
@@ -12963,16 +8142,10 @@ Precure Operation（指对衣物进行手术改造
 ##### 683#       发表于 2020-1-29 21:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46274993&amp;ptid=1860852" target="_blank">宅音 发表于 2020-1-29 20:31</a>
 
 黄猫那发型真的好像哈利</blockquote>
 今年痛不痛快多啊<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12981,16 +8154,10 @@ Precure Operation（指对衣物进行手术改造
 ##### 684#       发表于 2020-1-29 22:08
 
 
-
 <img src="http://wx1.sinaimg.cn/mw690/e7cbae74gy1gbd1fo4oslj20jz0zhgs2.jpg" referrerpolicy="no-referrer">
 
 粉淫兽嫌粉红运动能力差就想找别人
 <img src="http://wx2.sinaimg.cn/mw690/e7cbae74gy1gbdcwm8bsxj20x90ehqa7.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12999,16 +8166,10 @@ Precure Operation（指对衣物进行手术改造
 ##### 685#       发表于 2020-1-29 23:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46275613&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-1-29 21:53</a>
 
 今年痛不痛快多啊</blockquote>
 没有情报说淫兽变帅哥吧，再来一次痛快真胃疼了
-
-
-
-
-
 
 
 -----
@@ -13017,22 +8178,14 @@ Precure Operation（指对衣物进行手术改造
 ##### 686#       发表于 2020-1-30 01:18
 
 
-
-
 和香体弱多病 运动不行 这样女主设定也是第一次
 当然不希望成为是肉博打戏不行的借口<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  杂灰  
 ##### 687#       发表于 2020-1-30 01:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46276996&amp;ptid=1860852" target="_blank">粉儿alice 发表于 2020-1-30 01:18</a>
@@ -13043,16 +8196,10 @@ Precure Operation（指对衣物进行手术改造
 就今年东映那堆项目，不管有没有借口都没啥指望了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 688#       发表于 2020-1-30 10:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46276996&amp;ptid=1860852" target="_blank">粉儿alice 发表于 2020-1-30 01:18</a>
@@ -13063,17 +8210,10 @@ Precure Operation（指对衣物进行手术改造
 又或者前几集又弱又菜，被嘲讽了爆发。之后就是常态也能有来有回，最后……最后领悟到打架是不好的，给你个爱的抱抱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  HGCG  
 ##### 689#       发表于 2020-1-31 18:46
-
-
 
 
 先行
@@ -13090,25 +8230,13 @@ Precure Operation（指对衣物进行手术改造
 <img src="http://wx4.sinaimg.cn/mw690/e7cbae74ly1gbfxf4qiqtj20gq09ftj4.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  rar1536770  
 ##### 690#       发表于 2020-1-31 18:52
 
 
-
-
 人间体是真好看，还有粉主的名字确定没有，光我看到过的称呼就有花寺悠、花寺和香、花寺和佳
-
-
-
-
-
 
 
 -----
@@ -13117,21 +8245,13 @@ Precure Operation（指对衣物进行手术改造
 ##### 691#       发表于 2020-1-31 19:09
 
 
-
-
 只能等爱奇艺的翻译来确定了
-
-
-
-
-
 
 
 -----
 
 ####  HGCG  
 ##### 692#       发表于 2020-2-1 10:11
-
 
 
  本帖最后由 HGCG 于 2020-2-1 10:13 编辑 
@@ -13144,27 +8264,15 @@ Precure Operation（指对衣物进行手术改造
 声音是竹达？
 
 
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 693#       发表于 2020-2-1 10:32
 
 
-
-
 感觉追加是狗变人了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -13173,21 +8281,13 @@ Precure Operation（指对衣物进行手术改造
 ##### 694#       发表于 2020-2-1 11:24
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这op有点恋爱的酸臭味，或者是无印kiriya的定位？
-
-
-
-
-
 
 
 -----
 
 ####  kirimori  
 ##### 695#       发表于 2020-2-1 11:39
-
-
 
 
 兔子变萝莉，企鹅变正太-&gt;心跳复刻<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
@@ -13197,34 +8297,20 @@ Precure Operation（指对衣物进行手术改造
 狗变追加战士
 
 
-
-
-
-
-
 -----
 
 ####  HGCG  
 ##### 696#       发表于 2020-2-1 11:40
 
 
-
-
 开头五分钟
 [https://www.weibo.com/tv/v/Is9RPr2oh?fid=1034:4467110428999715](https://www.weibo.com/tv/v/Is9RPr2oh?fid=1034:4467110428999715)
-
-
-
-
-
 
 
 -----
 
 ####  Sliurus  
 ##### 697#       发表于 2020-2-1 12:19
-
-
 
 
 爱奇艺好像没有反应啊，是假没放完还是不买q娃了
@@ -13234,24 +8320,13 @@ Precure Operation（指对衣物进行手术改造
 眼影实在是太恐怖了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  nerugigannte  
 ##### 698#       发表于 2020-2-1 12:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">op里的眼影
-
-
-
-
-
 
 
 -----
@@ -13260,24 +8335,15 @@ Precure Operation（指对衣物进行手术改造
 ##### 699#       发表于 2020-2-1 12:36
 
 
-
-
 反派是纳垢信徒吗
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  catenarygong  
 ##### 700#       发表于 2020-2-1 13:10
-
-
 
 
 我支持花寺悠
@@ -13287,17 +8353,10 @@ Precure Operation（指对衣物进行手术改造
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  風駿  
 ##### 701#       发表于 2020-2-1 13:32
-
-
 
 
 凹酱能维持这个声线一整年吗？
@@ -13306,27 +8365,15 @@ Precure Operation（指对衣物进行手术改造
 或者说今年是不是该来暗Q娃来秀一下凹酱的声线？
 
 
-
-
-
-
-
 -----
 
 ####  粉儿alice  
 ##### 702#       发表于 2020-2-1 13:51
 
 
-
-
 这次变身和淫兽一起唱名
 Cure Earth是用狗变身的 基本排除淫兽转
 之前瓶子情报紫色 风 音 空气
-
-
-
-
-
 
 
 -----
@@ -13335,14 +8382,7 @@ Cure Earth是用狗变身的 基本排除淫兽转
 ##### 703#       发表于 2020-2-1 14:13
 
 
-
-
 op演出有点棒啊，尤其是最后的慢动作行走
-
-
-
-
-
 
 
 -----
@@ -13351,21 +8391,13 @@ op演出有点棒啊，尤其是最后的慢动作行走
 ##### 704#       发表于 2020-2-1 14:28
 
 
-
-
 粉主好可爱…莫名其妙喜欢这种有点文静感觉的短发，五官和服装也可爱&gt;&lt;蓝和黄也好看，就是变身以后设定的重复感太强了…日常装束是真好看啊
-
-
-
-
-
 
 
 -----
 
 ####  cmyk1234  
 ##### 705#       发表于 2020-2-1 15:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46296594&amp;ptid=1860852" target="_blank">catenarygong 发表于 2020-2-1 13:10</a>
@@ -13375,16 +8407,10 @@ op演出有点棒啊，尤其是最后的慢动作行走
 水～泽，可是nodoka和haruka的读法不一样？
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 706#         楼主| 发表于 2020-2-1 17:09
-
 
 
 <img src="http://wx1.sinaimg.cn/large/005YX8J2ly1gbgnqfpfuaj30zk0oo48c.jpg" referrerpolicy="no-referrer">
@@ -13394,27 +8420,15 @@ op演出有点棒啊，尤其是最后的慢动作行走
 <img src="http://wx2.sinaimg.cn/large/005YX8J2ly1gbgnqg5qa2j30zk0onwo5.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  噗哩噗  
 ##### 707#       发表于 2020-2-1 17:12
 
 
-
-
 这个运动外套动起来居然这么好看，黄股买满！
 
 OP看起来女主和反派有感情戏？
-
-
-
-
-
 
 
 -----
@@ -13423,14 +8437,7 @@ OP看起来女主和反派有感情戏？
 ##### 708#       发表于 2020-2-1 17:18
 
 
-
-
 我是支持BG的，只要不是蓝神那种屑就行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13439,14 +8446,7 @@ OP看起来女主和反派有感情戏？
 ##### 709#       发表于 2020-2-1 17:25
 
 
-
-
 BG不讨厌，但如果是蓝神和暗老板那种雷爆胃痛展开就别来了…
-
-
-
-
-
 
 
 -----
@@ -13455,14 +8455,7 @@ BG不讨厌，但如果是蓝神和暗老板那种雷爆胃痛展开就别来了
 ##### 710#       发表于 2020-2-1 17:35
 
 
-
-
 不管是百合还是bg，看的舒心不暴雷就无所谓
-
-
-
-
-
 
 
 -----
@@ -13471,15 +8464,8 @@ BG不讨厌，但如果是蓝神和暗老板那种雷爆胃痛展开就别来了
 ##### 711#       发表于 2020-2-1 17:42
 
 
-
-
 我还挺喜欢吃q娃里的bg糖的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到黄战士的淫兽长这样，我希望她能帮阿誉报仇
-
-
-
-
-
 
 
 -----
@@ -13488,16 +8474,9 @@ BG不讨厌，但如果是蓝神和暗老板那种雷爆胃痛展开就别来了
 ##### 712#       发表于 2020-2-1 17:46
 
 
-
-
 黄Q娃感觉是亮亮个性的，但人设实在给我一种惠美瑠的既视感<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -13506,16 +8485,9 @@ BG不讨厌，但如果是蓝神和暗老板那种雷爆胃痛展开就别来了
 ##### 713#       发表于 2020-2-1 17:49
 
 
-
-
 op有点微妙，歌不期待能有星q水平了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
 —— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -13524,21 +8496,13 @@ op有点微妙，歌不期待能有星q水平了<img src="https://static.saraba1
 ##### 714#       发表于 2020-2-1 18:41
 
 
-
-
 只要坪田文不来什么都好说
-
-
-
-
-
 
 
 -----
 
 ####  PrincessBanana  
 ##### 715#       发表于 2020-2-1 18:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46299075&amp;ptid=1860852" target="_blank">最强惠酱 发表于 2020-2-1 18:41</a>
@@ -13549,26 +8513,15 @@ op有点微妙，歌不期待能有星q水平了<img src="https://static.saraba1
 她立人设还是蛮强的。
 
 
-
-
-
-
-
 -----
 
 ####  leleq  
 ##### 716#       发表于 2020-2-1 18:52
 
 
-
  本帖最后由 leleq 于 2020-2-1 18:54 编辑 
 
 哈利那种男人 bg一点问题没有  普伦丝大将军这种如果能变人我也支持bg    喜欢初中生的变态中年人有多远滚多远（<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">怎么感觉好疼）
-
-
-
-
-
 
 
 -----
@@ -13577,21 +8530,13 @@ op有点微妙，歌不期待能有星q水平了<img src="https://static.saraba1
 ##### 717#       发表于 2020-2-1 19:40
 
 
-
-
 但愿能度过安稳而有肉搏的一年。去年太白开水了
-
-
-
-
-
 
 
 -----
 
 ####  最强惠酱  
 ##### 718#       发表于 2020-2-1 19:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46299110&amp;ptid=1860852" target="_blank">PrincessBanana 发表于 2020-2-1 18:44</a>
@@ -13601,17 +8546,10 @@ op有点微妙，歌不期待能有星q水平了<img src="https://static.saraba1
 在补甜点，基本上出现角色之间行为暧昧还有营业桥段的集数，都是他写的，相比整部剧显得很别扭，我还是第一次在看的途中能猜出来编剧是谁<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  rar1536770  
 ##### 719#       发表于 2020-2-1 19:43
-
-
 
 
 藤P——路人
@@ -13654,25 +8592,13 @@ op有点微妙，歌不期待能有星q水平了<img src="https://static.saraba1
 可见创作个正常人还是比创作个渣的可能性高很多的，要有信心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  灼眼的夏娜酱  
 ##### 720#       发表于 2020-2-1 20:49
 
 
-
-
 听了一下op，感觉歌儿好像不如去年的。
-
-
-
-
-
 
 
 -----
@@ -13681,14 +8607,7 @@ op有点微妙，歌不期待能有星q水平了<img src="https://static.saraba1
 ##### 721#       发表于 2020-2-1 20:54
 
 
-
-
 魔法的话校长可以算吧，不过人家心里有其他男人了(
-
-
-
-
-
 
 
 -----
@@ -13697,22 +8616,15 @@ op有点微妙，歌不期待能有星q水平了<img src="https://static.saraba1
 ##### 722#       发表于 2020-2-1 20:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46300039&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-1 20:33</a>
 缺奇利亚、南哥、西哥。魔法没什么男角（那是一部奈叶级别的百合番）甜点就是皮卡里奥。 ...</blockquote>
 皮卡里奥就是究极扭曲姐控，前面靠心理战术魅惑q娃不成功，总的来说挺好的小伙
-
-
-
-
-
 
 
 -----
 
 ####  天邪鬼  
 ##### 723#       发表于 2020-2-1 20:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46299566&amp;ptid=1860852" target="_blank">rar1536770 发表于 2020-2-1 19:43</a>
@@ -13724,16 +8636,10 @@ op有点微妙，歌不期待能有星q水平了<img src="https://static.saraba1
 所以blue屑在哪？看你们也骂了好几年了，众说纷纭的
 
 
-
-
-
-
-
 -----
 
 ####  最强惠酱  
 ##### 724#       发表于 2020-2-1 21:06
-
 
 
  本帖最后由 最强惠酱 于 2020-2-1 21:07 编辑 
@@ -13742,16 +8648,10 @@ op有点微妙，歌不期待能有星q水平了<img src="https://static.saraba1
 44话（神回）3分钟之后，片里直接说了
 
 
-
-
-
-
-
 -----
 
 ####  rar1536770  
 ##### 725#       发表于 2020-2-1 21:13
-
 
 
  本帖最后由 rar1536770 于 2020-2-1 22:22 编辑 
@@ -13766,16 +8666,10 @@ op有点微妙，歌不期待能有星q水平了<img src="https://static.saraba1
 没意义。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 726#       发表于 2020-2-1 21:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46300365&amp;ptid=1860852" target="_blank">最强惠酱 发表于 2020-2-1 21:06</a>
@@ -13786,16 +8680,10 @@ op有点微妙，歌不期待能有星q水平了<img src="https://static.saraba1
 而在小惠面前kiss嘛……这个真的只能说不太合适，啊，不太合适
 
 
-
-
-
-
-
 -----
 
 ####  renkan119  
 ##### 727#       发表于 2020-2-1 21:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46299566&amp;ptid=1860852" target="_blank">rar1536770 发表于 2020-2-1 19:43</a>
@@ -13810,16 +8698,10 @@ op有点微妙，歌不期待能有星q水平了<img src="https://static.saraba1
 魔法戏份最多的男性是 校长 基佬（不是玩笑是真基佬）
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 728#       发表于 2020-2-1 21:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46300400&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-1 21:10</a>
@@ -13830,16 +8712,10 @@ red的手段就是当你失落的时候放大你的负面情绪和行为极端�
 话说恋爱禁止条例和单箭头有啥关系，小公主又不是因为这条例喜欢或者不喜欢诚司的。同样，小惠也不是因为这条例而拒绝诚司的(你对我就像哥哥一样好)
 
 
-
-
-
-
-
 -----
 
 ####  最强惠酱  
 ##### 729#       发表于 2020-2-1 21:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46300602&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-1 21:30</a>
@@ -13850,16 +8726,10 @@ red的手段就是当你失落的时候放大你的负面情绪和行为极端�
 然后姐姐还因为兔子比自己更了解弟弟黑化<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  鸣上悠  
 ##### 730#       发表于 2020-2-1 22:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46300547&amp;ptid=1860852" target="_blank">天邪鬼 发表于 2020-2-1 21:25</a>
@@ -13873,16 +8743,10 @@ red的手段就是当你失落的时候放大你的负面情绪和行为极端�
 恋爱禁止条例主要表现出的是领导不负责任，不打算沟通和传达爱，只是下了一条自以为能预防的命令，让一群初中生帮自己收拾摊子
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 731#       发表于 2020-2-1 22:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46300663&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-1 21:39</a>
@@ -13890,16 +8754,10 @@ red的手段就是当你失落的时候放大你的负面情绪和行为极端�
 小公主对诚司的感情不是27集就被“吊桥效应”掉了吗
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 732#       发表于 2020-2-1 22:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46300875&amp;ptid=1860852" target="_blank">鸣上悠 发表于 2020-2-1 22:00</a>
@@ -13909,17 +8767,10 @@ blue又不知道自己的好弟弟这时候在整这些幺蛾子，他的脑回�
 而禁令，说实在的，你让他传达，沟通爱，以blue这种看着q娃猎人打败q娃然后装进棺材丢坟场都p都不放的人品，以及动不动就和小女孩肢体接触的习惯，大概率是传达沟通不出什么的。说不定还会造就一堆mirage和phantom一样的悲剧
 
 
-
-
-
-
-
 -----
 
 ####  叛逆之双子星  
 ##### 733#       发表于 2020-2-1 22:21
-
-
 
 
 蓝神的脑回路是不想便宜其他男生，只想看小女孩贴贴，高度重合白河豚的心理想法。也许还有比蓝神更屑的狗大友存在。
@@ -13927,16 +8778,10 @@ blue又不知道自己的好弟弟这时候在整这些幺蛾子，他的脑回�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  最强惠酱  
 ##### 734#       发表于 2020-2-1 22:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46301107&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-1 22:26</a>
@@ -13947,16 +8792,10 @@ blue又不知道自己的好弟弟这时候在整这些幺蛾子，他的脑回�
 明天能不能快点到啊。。
 
 
-
-
-
-
-
 -----
 
 ####  rar1536770  
 ##### 735#       发表于 2020-2-1 22:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46301107&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-1 22:26</a>
@@ -13965,16 +8804,10 @@ blue又不知道自己的好弟弟这时候在整这些幺蛾子，他的脑回�
 OP里看到帅哥就想到BG，想到BG就得提起蓝神，提起蓝神就必须拉出来批判。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 736#       发表于 2020-2-1 22:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46301033&amp;ptid=1860852" target="_blank">天邪鬼 发表于 2020-2-1 22:17</a>
@@ -13983,16 +8816,10 @@ blue又不知道自己的好弟弟这时候在整这些幺蛾子，他的脑回�
 你明明就很懂布鲁屑在哪嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  武男  
 ##### 737#       发表于 2020-2-1 22:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46301107&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-1 22:26</a>
@@ -14001,16 +8828,10 @@ blue又不知道自己的好弟弟这时候在整这些幺蛾子，他的脑回�
 这不是很正常嘛，贵乱就少不了心跳和茶几
 
 
-
-
-
-
-
 -----
 
 ####  粉儿alice  
 ##### 738#       发表于 2020-2-1 23:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46297317&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-1 14:52</a>
@@ -14019,17 +8840,10 @@ blue又不知道自己的好弟弟这时候在整这些幺蛾子，他的脑回�
 模板固定化
 
 
-
-
-
-
-
 -----
 
 ####  粉儿alice  
 ##### 739#       发表于 2020-2-1 23:24
-
-
 
 
 M1:「 ヒーリングっどプリキュア Touch!!」
@@ -14044,16 +8858,10 @@ M2:「ミラクルっとLink Ring！」
 北川理惠你该毕业了吧
 
 
-
-
-
-
-
 -----
 
 ####  王留美  
 ##### 740#       发表于 2020-2-1 23:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46301601&amp;ptid=1860852" target="_blank">粉儿alice 发表于 2020-2-1 23:24</a>
@@ -14064,16 +8872,10 @@ M1:「 ヒーリングっどプリキュア Touch!!」
 公主那两个ED太惊为天人了
 
 
-
-
-
-
-
 -----
 
 ####  wind4rap  
 ##### 741#       发表于 2020-2-2 00:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46301552&amp;ptid=1860852" target="_blank">粉儿alice 发表于 2020-2-1 23:19</a>
@@ -14084,25 +8886,13 @@ M1:「 ヒーリングっどプリキュア Touch!!」
 去年才刚用了星星。
 
 
-
-
-
-
-
 -----
 
 ####  杂灰  
 ##### 742#       发表于 2020-2-2 00:11
 
 
-
-
 妈妈三人
-
-
-
-
-
 
 
 -----
@@ -14111,21 +8901,13 @@ M1:「 ヒーリングっどプリキュア Touch!!」
 ##### 743#       发表于 2020-2-2 01:56
 
 
-
-
 反派小哥还挺帅的<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  天邪鬼  
 ##### 744#       发表于 2020-2-2 06:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46301248&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-2-1 22:42</a>
@@ -14136,25 +8918,13 @@ M1:「 ヒーリングっどプリキュア Touch!!」
 但主流的批判有种男德课堂的感觉
 
 
-
-
-
-
-
 -----
 
 ####  judylovesSF  
 ##### 745#       发表于 2020-2-2 07:22
 
 
-
-
 能求一个直播地址吗，之前一直看的直播间好像关了
-
-
-
-
-
 
 
 -----
@@ -14163,21 +8933,13 @@ M1:「 ヒーリングっどプリキュア Touch!!」
 ##### 746#       发表于 2020-2-2 07:25
 
 
-
-
 哪里有直播？战旗的关了
-
-
-
-
-
 
 
 -----
 
 ####  鸣上悠  
 ##### 747#       发表于 2020-2-2 07:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46301712&amp;ptid=1860852" target="_blank">王留美 发表于 2020-2-1 23:37</a>
@@ -14188,27 +8950,15 @@ M1:「 ヒーリングっどプリキュア Touch!!」
 以后剧场版星星一组，花的一组，兔子一组，又怎加了除颜色以外的组合了
 
 
-
-
-
-
-
 -----
 
 ####  甜甜圈百分百  
 ##### 748#       发表于 2020-2-2 07:33
 
 
-
-
 同求直播地址<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -14217,22 +8967,15 @@ M1:「 ヒーリングっどプリキュア Touch!!」
 ##### 749#       发表于 2020-2-2 07:38
 
 
-
 [http://tv.itver.cc/annews/](http://tv.itver.cc/annews/)
 
 发现这个网址可以看
-
-
-
-
-
 
 
 -----
 
 ####  judylovesSF  
 ##### 750#       发表于 2020-2-2 07:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46303170&amp;ptid=1860852" target="_blank">yyly 发表于 2020-2-2 07:38</a>
@@ -14243,25 +8986,13 @@ http://tv.itver.cc/annews/
 感谢
 
 
-
-
-
-
-
 -----
 
 ####  judylovesSF  
 ##### 751#       发表于 2020-2-2 07:49
 
 
-
-
 到中场广告了，目前为止都挺好的
-
-
-
-
-
 
 
 -----
@@ -14270,14 +9001,7 @@ http://tv.itver.cc/annews/
 ##### 752#       发表于 2020-2-2 07:58
 
 
-
-
 这变身bank也太短了 而且好普通…
-
-
-
-
-
 
 
 -----
@@ -14286,14 +9010,7 @@ http://tv.itver.cc/annews/
 ##### 753#       发表于 2020-2-2 08:02
 
 
-
-
 这次ED挺好听啊，舞蹈也不错
-
-
-
-
-
 
 
 -----
@@ -14302,16 +9019,9 @@ http://tv.itver.cc/annews/
 ##### 754#       发表于 2020-2-2 08:03
 
 
-
-
 林友树终于换了！！！！
 拿铁头上的石头用处像魔女宝石
 第一集就能看到粉主住院<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14320,24 +9030,16 @@ http://tv.itver.cc/annews/
 ##### 755#       发表于 2020-2-2 08:04
 
 
-
-
 有elegent mode，有heart catch。这开头有点意思啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
 至少今年的剧本还是有点想法的，不是Q娃之间闹分手，而是妖精不干了，然而真香（吃饭团<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 756#         楼主| 发表于 2020-2-2 08:04
-
 
 
  本帖最后由 hgcg-w 于 2020-2-2 08:06 编辑 
@@ -14390,24 +9092,13 @@ ED
 [https://www.weibo.com/tv/v/Isi9F30UF?fid=1034:4467429494161420](https://www.weibo.com/tv/v/Isi9F30UF?fid=1034:4467429494161420)
 
 
-
-
-
-
-
 -----
 
 ####  lyflyflxf  
 ##### 757#       发表于 2020-2-2 08:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14416,14 +9107,7 @@ ED
 ##### 758#       发表于 2020-2-2 08:34
 
 
-
-
 **这个自动生成的日语字幕好烂...
-
-
-
-
-
 
 
 -----
@@ -14432,14 +9116,7 @@ ED
 ##### 759#       发表于 2020-2-2 08:41
 
 
-
-
 等个熟肉，去年的女人看了不到20集就受不了了，主要是反派造型太奇葩。。。
-
-
-
-
-
 
 
 -----
@@ -14448,14 +9125,7 @@ ED
 ##### 760#       发表于 2020-2-2 08:46
 
 
-
-
 挺有公主的感觉，不过女主反射弧比春春长了10分钟<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14464,17 +9134,10 @@ ED
 ##### 761#       发表于 2020-2-2 08:54
 
 
-
-
 敲碗等熟肉，期待<img src="https://static.saraba1st.com/image/smiley/carton2017/089.gif" referrerpolicy="no-referrer">
 
 
 ----发送自 [Sony LT29i,Android 4.3](http://stage1.5j4m.com/?1.33)
-
-
-
-
-
 
 
 -----
@@ -14483,23 +9146,15 @@ ED
 ##### 762#       发表于 2020-2-2 09:15
 
 
-
-
 今年都干部怎么还统一制服的啊草。前年的公司型反派都没统一制服啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  zyw0  
 ##### 763#       发表于 2020-2-2 09:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46299566&amp;ptid=1860852" target="_blank">rar1536770 发表于 2020-02-01 19:43:25</a>
@@ -14516,17 +9171,10 @@ ED
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  麻花疼  
 ##### 764#       发表于 2020-2-2 09:36
-
-
 
 
 突然想起了，UMB配了三个魔法少女了，算上FGO的酒吞就是四个。
@@ -14535,33 +9183,19 @@ ED
 那她本人COS过吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 765#       发表于 2020-2-2 10:14
 
 
-
-
 变身bank还是期待黄战士吧。就是ed初听真一般，手部舞蹈动作很戳中就是了。
-
-
-
-
-
 
 
 -----
 
 ####  吹雪桑大胜利  
 ##### 766#       发表于 2020-2-2 10:22
-
-
 
 
 大招是巨大的双手把敌人的核心扯出来然后净化掉
@@ -14571,33 +9205,19 @@ ED
 是Heart Catch（√）
 
 
-
-
-
-
-
 -----
 
 ####  韩子  
 ##### 767#       发表于 2020-2-2 10:26
 
 
-
-
 能比去年的粉主变身bank动得还少，也是没想到……（哭了，但还是要说短发是真的可爱，变身随便了orz
-
-
-
-
-
 
 
 -----
 
 ####  吹雪桑大胜利  
 ##### 768#       发表于 2020-2-2 10:28
-
-
 
 
 Nodoka变身完后反派小哥说了一句人类不可能长时间维持Q娃形态
@@ -14607,16 +9227,10 @@ Nodoka变身完后反派小哥说了一句人类不可能长时间维持Q娃形�
 emmmmm，假药又可以生产起来了
 
 
-
-
-
-
-
 -----
 
 ####  himfsz  
 ##### 769#       发表于 2020-2-2 10:41
-
 
 
 <blockquote>吹雪桑大胜利 发表于 2020-2-2 10:28
@@ -14628,16 +9242,10 @@ emmmmm，假药 ...</blockquote>
 那是在说人类活不了那么久，是别人吧
 
 
-
-
-
-
-
 -----
 
 ####  最强惠酱  
 ##### 770#       发表于 2020-2-2 10:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46303925&amp;ptid=1860852" target="_blank">吹雪桑大胜利 发表于 2020-2-2 10:28</a>
@@ -14649,16 +9257,10 @@ emmmmm，假药 ...</blockquote>
 猜哪集被打到入院吧<img src="https://static.saraba1st.com/image/smiley/face2017/141.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lyflyflxf  
 ##### 771#       发表于 2020-2-2 10:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46303912&amp;ptid=1860852" target="_blank">韩子 发表于 2020-2-2 10:26</a>
@@ -14667,16 +9269,10 @@ emmmmm，假药 ...</blockquote>
 搞不好又是一年的被迫害对象啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  199april  
 ##### 772#       发表于 2020-2-2 10:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46303886&amp;ptid=1860852" target="_blank">吹雪桑大胜利 发表于 2020-2-2 10:22</a>
@@ -14689,16 +9285,10 @@ emmmmm，假药 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">光になれ！
 
 
-
-
-
-
-
 -----
 
 ####  rar1536770  
 ##### 773#       发表于 2020-2-2 11:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46303511&amp;ptid=1860852" target="_blank">zyw0 发表于 2020-2-2 09:18</a>
@@ -14709,25 +9299,13 @@ emmmmm，假药 ...</blockquote>
 好像叫什么裕喜，我对他印象也不怎么深，水果普通男角色的人设太一般了，没有Q娃和反派那种骚劲
 
 
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 774#       发表于 2020-2-2 11:20
 
 
-
-
 爱奇艺会有吗
-
-
-
-
-
 
 
 -----
@@ -14736,14 +9314,7 @@ emmmmm，假药 ...</blockquote>
 ##### 775#       发表于 2020-2-2 11:20
 
 
-
-
 爱奇艺没有吗？还是要等一段时间？
-
-
-
-
-
 
 
 -----
@@ -14752,24 +9323,16 @@ emmmmm，假药 ...</blockquote>
 ##### 776#       发表于 2020-2-2 11:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46304310&amp;ptid=1860852" target="_blank">灼眼的夏娜酱 发表于 2020-2-2 11:20</a>
 
 爱奇艺没有吗？还是要等一段时间？</blockquote>
 一般中午更，应该快了
 
 
-
-
-
-
-
 -----
 
 ####  catenarygong  
 ##### 777#       发表于 2020-2-2 11:43
-
-
 
 
 粉毛这种柔柔弱弱的感觉确实是q娃独一份啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
@@ -14782,17 +9345,10 @@ emmmmm，假药 ...</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  叛逆之双子星  
 ##### 778#       发表于 2020-2-2 11:54
-
-
 
 
 变身过程相对节奏较快，假如以后混合三人变身剪辑在一起，流畅度应该会远比星闪要好。
@@ -14809,25 +9365,13 @@ emmmmm，假药 ...</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  宅音  
 ##### 779#       发表于 2020-2-2 12:10
 
 
-
-
 蕾也是柔柔弱弱型的吧
-
-
-
-
-
 
 
 -----
@@ -14836,22 +9380,13 @@ emmmmm，假药 ...</blockquote>
 ##### 780#       发表于 2020-2-2 12:26
 
 
-
-
 别等爱奇艺那提前看默认吃屎的画质了，等下午舒舒服服看蓝光画质吧
-
-
-
-
-
 
 
 -----
 
 ####  rar1536770  
 ##### 781#       发表于 2020-2-2 12:38
-
-
 
 
 这不是妈，这是女儿，我的老父亲之魂在燃烧
@@ -14867,16 +9402,10 @@ OP演出很棒，最后那段高帧慢动作看的舒服
 ED手指舞太骚了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  風駿  
 ##### 782#       发表于 2020-2-2 12:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46304585&amp;ptid=1860852" target="_blank">叛逆之双子星 发表于 2020-2-2 11:54</a>
@@ -14887,16 +9416,10 @@ ED手指舞太骚了<img src="https://static.saraba1st.com/image/smiley/face2017
 贴吧它不香吗，乖，好好待在那里别到处乱跑
 
 
-
-
-
-
-
 -----
 
 ####  杂灰  
 ##### 783#       发表于 2020-2-2 13:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46304585&amp;ptid=1860852" target="_blank">叛逆之双子星 发表于 2020-2-2 11:54</a>
@@ -14907,24 +9430,13 @@ ED手指舞太骚了<img src="https://static.saraba1st.com/image/smiley/face2017
 自娱自乐的把戏回你的小圈子干吧
 
 
-
-
-
-
-
 -----
 
 ####  新HGCG  
 ##### 784#       发表于 2020-2-2 13:13
 
 
-
 <img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gbhwageuh9j20zk0k0wkl.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14933,14 +9445,7 @@ ED手指舞太骚了<img src="https://static.saraba1st.com/image/smiley/face2017
 ##### 785#       发表于 2020-2-2 13:14
 
 
-
-
 UMB的声线还是接受不了，总觉得别扭<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14949,23 +9454,16 @@ UMB的声线还是接受不了，总觉得别扭<img src="https://static.saraba1
 ##### 786#       发表于 2020-2-2 13:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46305235&amp;ptid=1860852" target="_blank">胡桃丶 发表于 2020-2-2 13:14</a>
 
 UMB的声线还是接受不了，总觉得别扭</blockquote>
 现在声线差不多是战姬第一季
 
 
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 787#       发表于 2020-2-2 13:25
-
 
 
  本帖最后由 Sliurus 于 2020-2-2 13:28 编辑 
@@ -14981,27 +9479,15 @@ ed很棒，不过风格又回到了以前，我还挺喜欢抱q ed2跟星q的两
 以后狗子怕不是每集病一次，实在是太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  上坂莲华  
 ##### 788#       发表于 2020-2-2 13:26
 
 
-
 <img src="https://wx4.sinaimg.cn/mw690/b27ee8f7ly1gbhy0opjggj21z4140woi.jpg" referrerpolicy="no-referrer">
 
 这可不是什么和平的象征，是说我现在只剩下两个**你还有两秒就完蛋<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15010,15 +9496,7 @@ ed很棒，不过风格又回到了以前，我还挺喜欢抱q ed2跟星q的两
 ##### 789#       发表于 2020-2-2 13:37
 
 
-
-
 反派怎么看着那么善良，居然只是看着不去攻击和抓妖精
-
-
-
-
-
-
 
 
 -----
@@ -15027,14 +9505,7 @@ ed很棒，不过风格又回到了以前，我还挺喜欢抱q ed2跟星q的两
 ##### 790#       发表于 2020-2-2 13:39
 
 
-
-
 @肉球爱好者南野奏，我想看组曲和这组的互动，不过估计不可能<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15043,14 +9514,7 @@ ed很棒，不过风格又回到了以前，我还挺喜欢抱q ed2跟星q的两
 ##### 791#       发表于 2020-2-2 13:41
 
 
-
-
 才发现林友树换了，果然是因为接了隔壁宝可梦的活吗
-
-
-
-
-
 
 
 -----
@@ -15059,25 +9523,16 @@ ed很棒，不过风格又回到了以前，我还挺喜欢抱q ed2跟星q的两
 ##### 792#       发表于 2020-2-2 13:42
 
 
-
-
 今年这个粉毛设定感觉很适合药味展开<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 我有一种不详的预感
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  祝三叶  
 ##### 793#       发表于 2020-2-2 13:45
-
-
 
 
 诶，如果叫花寺悠就好了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -15087,27 +9542,15 @@ ed很棒，不过风格又回到了以前，我还挺喜欢抱q ed2跟星q的两
 我愿称之为最强人间体<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  杂灰  
 ##### 794#       发表于 2020-2-2 13:48
 
 
-
-
 ride on你在干什么啊ride on，团长在上一个片场
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -15116,22 +9559,15 @@ ride on你在干什么啊ride on，团长在上一个片场
 ##### 795#       发表于 2020-2-2 13:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46305457&amp;ptid=1860852" target="_blank">宅音 发表于 2020-2-2 13:41</a>
 才发现林友树换了，果然是因为接了隔壁宝可梦的活吗</blockquote>
 换了好，这次的配音ost我都等不及了，好听
-
-
-
-
-
 
 
 -----
 
 ####  rxrx  
 ##### 796#       发表于 2020-2-2 14:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46305461&amp;ptid=1860852" target="_blank">catenarygong 发表于 2020-2-2 13:42</a>
@@ -15142,16 +9578,10 @@ ride on你在干什么啊ride on，团长在上一个片场
 医院的药味是不同的，医院的药味<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  叛逆之双子星  
 ##### 797#       发表于 2020-2-2 14:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46305129&amp;ptid=1860852" target="_blank">杂灰 发表于 2020-02-02 13:02:26</a>
@@ -15160,25 +9590,13 @@ ride on你在干什么啊ride on，团长在上一个片场
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  宅音  
 ##### 798#       发表于 2020-2-2 14:06
 
 
-
-
 ed挺可爱的，但是阿黄的绿睫毛我至今没有适应<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15187,15 +9605,9 @@ ed挺可爱的，但是阿黄的绿睫毛我至今没有适应<img src="https://
 ##### 799#       发表于 2020-2-2 14:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46305221&amp;ptid=1860852" target="_blank">新HGCG 发表于 2020-02-02 13:13:25</a></blockquote>草。还真是她俩
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -15204,14 +9616,7 @@ ed挺可爱的，但是阿黄的绿睫毛我至今没有适应<img src="https://
 ##### 800#       发表于 2020-2-2 14:21
 
 
-
-
 这变身太敷衍了吧……
-
-
-
-
-
 
 
 -----
@@ -15220,16 +9625,10 @@ ed挺可爱的，但是阿黄的绿睫毛我至今没有适应<img src="https://
 ##### 801#       发表于 2020-2-2 14:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46305785&amp;ptid=1860852" target="_blank">spadepie 发表于 2020-2-2 14:21</a>
 
 这变身太敷衍了吧……</blockquote>
 志田摸鱼
-
-
-
-
-
 
 
 -----
@@ -15238,15 +9637,9 @@ ed挺可爱的，但是阿黄的绿睫毛我至今没有适应<img src="https://
 ##### 802#       发表于 2020-2-2 14:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">除了变身普普通通，别的还是蛮不错的嘛
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -15255,21 +9648,13 @@ ed挺可爱的，但是阿黄的绿睫毛我至今没有适应<img src="https://
 ##### 803#       发表于 2020-2-2 14:30
 
 
-
-
 第一集我还是蛮喜欢的 希望之后每个淫兽都会有和Q娃的对手戏
-
-
-
-
-
 
 
 -----
 
 ####  Sliurus  
 ##### 804#       发表于 2020-2-2 14:47
-
 
 
  本帖最后由 Sliurus 于 2020-2-2 14:49 编辑 
@@ -15285,9 +9670,6 @@ ed挺可爱的，但是阿黄的绿睫毛我至今没有适应<img src="https://
 2020-2-2 14:46 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/202002/02/144615sddfe833vzd3ctcz.jpg" referrerpolicy="no-referrer">
 
 
@@ -15296,10 +9678,6 @@ ed挺可爱的，但是阿黄的绿睫毛我至今没有适应<img src="https://
 下载附件
 
 2020-2-2 14:46 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202002/02/144614piqv9q0rqv59v90i.jpg" referrerpolicy="no-referrer">
@@ -15312,9 +9690,6 @@ ed挺可爱的，但是阿黄的绿睫毛我至今没有适应<img src="https://
 2020-2-2 14:46 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/202002/02/144615a65r6n905m6h5bz9.jpg" referrerpolicy="no-referrer">
 
 
@@ -15325,16 +9700,7 @@ ed挺可爱的，但是阿黄的绿睫毛我至今没有适应<img src="https://
 2020-2-2 14:46 上传
 
 
-
-
-
-
 没看过下面那个，画风有点像高达，评论也提到了富野
-
-
-
-
-
 
 
 -----
@@ -15343,16 +9709,10 @@ ed挺可爱的，但是阿黄的绿睫毛我至今没有适应<img src="https://
 ##### 805#       发表于 2020-2-2 14:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46305957&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-02-02 14:47:25</a>
 没看过下面那个，画风有点像高达，评论也提到了富野</blockquote>看到这个脑子里就有声音了，确实是很魔性的歌
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -15361,21 +9721,13 @@ ed挺可爱的，但是阿黄的绿睫毛我至今没有适应<img src="https://
 ##### 806#       发表于 2020-2-2 15:14
 
 
-
-
 不要理troll，理她还觉得自己活着有意义了，找版主把她封了就行
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 807#       发表于 2020-2-2 15:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46303592&amp;ptid=1860852" target="_blank">麻花疼 发表于 2020-2-2 09:36</a>
@@ -15387,16 +9739,10 @@ ed挺可爱的，但是阿黄的绿睫毛我至今没有适应<img src="https://
 魔法幼女算吗
 
 
-
-
-
-
-
 -----
 
 ####  nerugigannte  
 ##### 808#       发表于 2020-2-2 15:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46306029&amp;ptid=1860852" target="_blank">杂灰 发表于 2020-2-2 14:59</a>
@@ -15408,25 +9754,13 @@ ed挺可爱的，但是阿黄的绿睫毛我至今没有适应<img src="https://
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">的确有声音了
 
 
-
-
-
-
-
 -----
 
 ####  夜游宫  
 ##### 809#       发表于 2020-2-2 15:22
 
 
-
-
 Suite再临？
-
-
-
-
-
 
 
 -----
@@ -15435,21 +9769,13 @@ Suite再临？
 ##### 810#       发表于 2020-2-2 15:26
 
 
-
-
 ed这个洗地舞太魔性了
-
-
-
-
-
 
 
 -----
 
 ####  lyflyflxf  
 ##### 811#       发表于 2020-2-2 15:32
-
 
 
  本帖最后由 lyflyflxf 于 2020-2-2 15:36 编辑 
@@ -15467,17 +9793,10 @@ ed这个洗地舞太魔性了
 <img src="https://p.sda1.dev/0/7217479bd6f0147999d394ef9ef98049/insta.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  粉儿alice  
 ##### 812#       发表于 2020-2-2 15:33
-
-
 
 
 标准开局 该有的都有了
@@ -15488,26 +9807,15 @@ ed这个洗地舞太魔性了
 相比一个一个放拖时间 几等分放 2倍数快进 高到哪里去了<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 813#       发表于 2020-2-2 15:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46305957&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-2-2 14:47</a>
 没看过下面那个，画风有点像高达，评论也提到了富野</blockquote>
 完蛋人，g复国好像也有类似的姿势
-
-
-
-
-
 
 
 -----
@@ -15516,23 +9824,15 @@ ed这个洗地舞太魔性了
 ##### 814#       发表于 2020-2-2 15:34
 
 
-
  本帖最后由 banglian 于 2020-2-2 15:39 编辑 
 
 看了向日葵的生肉，干部招怪时好多弹幕吐糟说这个bank会令人想起新型肺炎和病毒传播，恐引发国际问题建议整改<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  leleq  
 ##### 815#       发表于 2020-2-2 15:40
-
-
 
 
 这集剧本真不错 以淫兽视角来展开是个不错的想法 
@@ -15546,32 +9846,19 @@ ed这个洗地舞太魔性了
 第一集打斗来看今年打斗预计和去年一个水平<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 大招Heart Catch好评 
 
 
-
-
-
-
-
 -----
 
 ####  韩子  
 ##### 816#       发表于 2020-2-2 16:00
 
 
-
-
 我觉得最厉害的地方在于开头一口气把主角性格特点、全家情况、居住环境、甚至主角可能有的黑历史都给全交代完了，这么庞大的情报量一看进度条特么才花了一分钟，国内儿童向剧本真该好好学学
-
-
-
-
-
 
 
 -----
 
 ####  天邪鬼  
 ##### 817#       发表于 2020-2-2 16:34
-
 
 
  本帖最后由 天邪鬼 于 2020-2-2 17:12 编辑 
@@ -15583,26 +9870,14 @@ ed这个洗地舞太魔性了
 这一集淫兽立的三个flag，怎么感觉一个都达成不了呢
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 818#         楼主| 发表于 2020-2-2 16:35
 
 
-
-
 企鹅的这个……勉强算肉垫吧
 <img src="http://wx4.sinaimg.cn/mw690/9657fdc2gy1gbi55m8fkdj20dc0aan71.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15611,16 +9886,9 @@ ed这个洗地舞太魔性了
 ##### 819#       发表于 2020-2-2 16:37
 
 
-
-
 这第一集真是有好多部q娃的味儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 —— 来自 HUAWEI COL-AL10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -15629,21 +9897,13 @@ ed这个洗地舞太魔性了
 ##### 820#       发表于 2020-2-2 16:44
 
 
-
-
 兔子solo那段我看了三遍，太心疼了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  lyflyflxf  
 ##### 821#       发表于 2020-2-2 16:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46306853&amp;ptid=1860852" target="_blank">噗哩噗 发表于 2020-2-2 16:44</a>
@@ -15653,16 +9913,10 @@ ed这个洗地舞太魔性了
 兔子 弹性超好的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  nerugigannte  
 ##### 822#       发表于 2020-2-2 16:58
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">别对我女儿出手啊！
@@ -15672,17 +9926,10 @@ ed这个洗地舞太魔性了
 挑个刺，黄战士的声线太过元气，人设给我第一印象还是略成熟的
 
 
-
-
-
-
-
 -----
 
 ####  gameseve  
 ##### 823#       发表于 2020-2-2 16:59
-
-
 
 
 粉主中之人是凹酱，加上她父母叫她的时候特别容易幻听成 小圆
@@ -15691,16 +9938,10 @@ ed这个洗地舞太魔性了
 这算是苦逼女主在另一部片子里修成正果了吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 824#       发表于 2020-2-2 17:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46306768&amp;ptid=1860852" target="_blank">天邪鬼 发表于 2020-2-2 16:34</a>
@@ -15713,16 +9954,10 @@ ed这个洗地舞太魔性了
 花元素会讲人话是靠听诊器的，拿铁通过听诊器也能讲话。话说这算哪门子听诊器，是翻译机吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  moooooonlight  
 ##### 825#       发表于 2020-2-2 17:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46305265&amp;ptid=1860852" target="_blank">風駿 发表于 2020-02-02 13:18:15</a>
@@ -15731,16 +9966,10 @@ ed这个洗地舞太魔性了
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 826#       发表于 2020-2-2 17:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46307029&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-2-2 17:08</a>
@@ -15750,16 +9979,10 @@ ed这个洗地舞太魔性了
 听诊器戴在兔子她们头上，但女主也能听懂花元素说啥。这一幕看的我莫名其妙，这听诊器到底是拿出来干啥用的，也不像是给拿铁看病
 
 
-
-
-
-
-
 -----
 
 ####  祝三叶  
 ##### 827#       发表于 2020-2-2 17:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46307062&amp;ptid=1860852" target="_blank">天邪鬼 发表于 2020-2-2 17:12</a>
@@ -15768,17 +9991,10 @@ ed这个洗地舞太魔性了
 翻译器
 
 
-
-
-
-
-
 -----
 
 ####  moooooonlight  
 ##### 828#       发表于 2020-2-2 17:24
-
-
 
 
 第一集挺好看的，搞笑部分足够有趣，主要角色全出场有个基本印象，也来了点和香可能曾经遇上意外严重受伤伏笔
@@ -15792,25 +10008,13 @@ ed这个洗地舞太魔性了
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  王留美  
 ##### 829#       发表于 2020-2-2 17:38
 
 
-
-
 对听诊器有意见的去看下Ex-aid吧，比起来这次还行了
-
-
-
-
-
 
 
 -----
@@ -15819,16 +10023,9 @@ ed这个洗地舞太魔性了
 ##### 830#       发表于 2020-2-2 17:38
 
 
-
-
 脚本真不错，公主以来最喜欢的第一集了。希望后面作画能跟上。
 
 说起来Q娃能不能粉色bank亲女儿一回，一看日文讨论一堆嫌弃粉色变身bank太寒酸的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15837,21 +10034,13 @@ ed这个洗地舞太魔性了
 ##### 831#       发表于 2020-2-2 17:51
 
 
-
-
 第一集感觉还不错，ED Dance这3D水平又提升不少。各种前代既视感，连2话解散梗都玩了，兔子有点JP里的ruby的感觉，就是变身确实有点太简单了，虽然也算是一种复古，不知道单人做这么简单后面有没有可能像抓心一样做双人或者三人变身bank
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 832#       发表于 2020-2-2 17:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46307254&amp;ptid=1860852" target="_blank">purdre 发表于 2020-2-2 17:38</a>
@@ -15862,16 +10051,10 @@ ed这个洗地舞太魔性了
 粉主的太复杂让幼女模仿难度增大有碍卖玩具
 
 
-
-
-
-
-
 -----
 
 ####  purdre  
 ##### 833#       发表于 2020-2-2 18:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46307342&amp;ptid=1860852" target="_blank">月夜凝雪 发表于 2020-2-2 17:52</a>
@@ -15882,26 +10065,15 @@ ed这个洗地舞太魔性了
 说起来我挺好奇动作太复杂有碍卖玩具之类的说法到底是大友想出来的理由还是真的有数据支持<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  最强惠酱  
 ##### 834#       发表于 2020-2-2 18:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46307342&amp;ptid=1860852" target="_blank">月夜凝雪 发表于 2020-2-2 17:52</a>
 粉主的太复杂让幼女模仿难度增大有碍卖玩具</blockquote>
 转棒就很难啊w一般官方后面不是会出变身教学吗，不过非常期待其他两位的bank，今年板冈神会画谁呢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15910,14 +10082,7 @@ ed这个洗地舞太魔性了
 ##### 835#       发表于 2020-2-2 18:10
 
 
-
-
 反派好帅+1<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15926,16 +10091,10 @@ ed这个洗地舞太魔性了
 ##### 836#       发表于 2020-2-2 18:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46307161&amp;ptid=1860852" target="_blank">moooooonlight 发表于 2020-2-2 17:24</a>
 
 第一集挺好看的，搞笑部分足够有趣，主要角色全出场有个基本印象，也来了点和香可能曾经遇上意外严重受伤伏 ...</blockquote>
 说到印象深刻的BGM，一响起就伴随着刀片玻璃渣叫人心肺停止的Separated hearts难道不好吗？
-
-
-
-
-
 
 
 -----
@@ -15944,21 +10103,13 @@ ed这个洗地舞太魔性了
 ##### 837#       发表于 2020-2-2 18:22
 
 
-
-
 会不会来个中途女主病复发不能战斗，或同伴不让她战斗，甚至最后她不愿意放弃让自己能健康的Q娃能量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  HGCG3  
 ##### 838#       发表于 2020-2-2 18:25
-
 
 
 <img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gbhpxmn5gfj21400mi4qp.jpg" referrerpolicy="no-referrer">
@@ -15972,29 +10123,15 @@ ed这个洗地舞太魔性了
 <img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gai2ft3jxwj20nz0xc42x.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
 -----
 
 ####  蓬莱妹红  
 ##### 839#       发表于 2020-2-2 18:26
 
 
-
-
 反派正太很好看，四叶草耳钉很可以！
 
 就是现在这个时节看医Q，实在是有些触景生情，现实当中有没有q娃，可以净化一下地球病毒啊。。。
-
-
-
-
-
 
 
 -----
@@ -16003,15 +10140,8 @@ ed这个洗地舞太魔性了
 ##### 840#       发表于 2020-2-2 18:37
 
 
-
-
 花寺和香！为什么你体弱多病却能举起腰身粗的树干！
 <img src="http://wx2.sinaimg.cn/large/5be77d9egy1gbi8i7evlzg20dw07xn67.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16020,14 +10150,7 @@ ed这个洗地舞太魔性了
 ##### 841#       发表于 2020-2-2 18:40
 
 
-
-
 反派正太虽然脸色不好，但面相就没有恶人的味道，和伊拉和巨侠那种都不同，很奇怪。
-
-
-
-
-
 
 
 -----
@@ -16036,14 +10159,7 @@ ed这个洗地舞太魔性了
 ##### 842#       发表于 2020-2-2 18:40
 
 
-
-
 真希望有下一个引坂理绘，野乃花声音听起来实在是太舒服了，具体感觉形容不出<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16052,14 +10168,7 @@ ed这个洗地舞太魔性了
 ##### 843#       发表于 2020-2-2 18:53
 
 
-
-
 完了，之前觉得一般般，一看发现这次三个人间体好戳我啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">，爱了爱了
-
-
-
-
-
 
 
 -----
@@ -16068,22 +10177,15 @@ ed这个洗地舞太魔性了
 ##### 844#       发表于 2020-2-2 18:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46307672&amp;ptid=1860852" target="_blank">風駿 发表于 2020-2-2 18:40</a>
 反派正太虽然脸色不好，但面相就没有恶人的味道，和伊拉和巨侠那种都不同，很奇怪。 ...</blockquote>
 巨侠是哪个？
-
-
-
-
-
 
 
 -----
 
 ####  風駿  
 ##### 845#       发表于 2020-2-2 18:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46307673&amp;ptid=1860852" target="_blank">rar1536770 发表于 2020-2-2 18:40</a>
@@ -16094,16 +10196,10 @@ ed这个洗地舞太魔性了
 哪像成濑瑛美，她不故意提高声调时听起来相当舒服，无奈角色平时声线就是那个调<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  nerugigannte  
 ##### 846#       发表于 2020-2-2 18:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46307651&amp;ptid=1860852" target="_blank">HGCG3 发表于 2020-2-2 18:37</a>
@@ -16112,16 +10208,10 @@ ed这个洗地舞太魔性了
 身残体弱のどか
 
 
-
-
-
-
-
 -----
 
 ####  風駿  
 ##### 847#       发表于 2020-2-2 18:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46307775&amp;ptid=1860852" target="_blank">王留美 发表于 2020-2-2 18:54</a>
@@ -16130,17 +10220,10 @@ ed这个洗地舞太魔性了
 法Q后半的眼镜男干部啊
 
 
-
-
-
-
-
 -----
 
 ####  麻花疼  
 ##### 848#       发表于 2020-2-2 19:06
-
-
 
 
 有一说一，我感觉这么美型的反派肯定要和主角团有暧昧不清的关系
@@ -16153,31 +10236,19 @@ ed这个洗地舞太魔性了
 毒Q第一话可以打个优秀分，最后ED跳舞实在是太色气了
 
 
-
-
-
-
-
 -----
 
 ####  qfqczr  
 ##### 849#       发表于 2020-2-2 19:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">爽到，虽然之前只看人设感觉普通了点，但效果相当好嘛，期待下一集。（看来第三话可能就是黑毛变身了？锁了锁了。）
-
-
-
-
-
 
 
 -----
 
 ####  rar1536770  
 ##### 850#       发表于 2020-2-2 19:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46307871&amp;ptid=1860852" target="_blank">麻花疼 发表于 2020-2-2 19:06</a>
@@ -16190,16 +10261,10 @@ ed这个洗地舞太魔性了
 毒Q是什么鬼，现在简称到底叫啥了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  rar1536770  
 ##### 851#       发表于 2020-2-2 19:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46307776&amp;ptid=1860852" target="_blank">風駿 发表于 2020-2-2 18:54</a>
@@ -16210,25 +10275,13 @@ ed这个洗地舞太魔性了
 成濑女士的声音我听了一年还是无法接受<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kirimori  
 ##### 852#       发表于 2020-2-2 19:35
 
 
-
-
 第一话看完不知道为什么感觉很复古<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16237,21 +10290,13 @@ ed这个洗地舞太魔性了
 ##### 853#       发表于 2020-2-2 19:55
 
 
-
-
 变身bank换完衣服那里有一卡像拿法杖做自拍动作
-
-
-
-
-
 
 
 -----
 
 ####  HGCG3  
 ##### 854#       发表于 2020-2-2 19:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46295350&amp;ptid=1860852" target="_blank">HGCG 发表于 2020-2-1 10:11</a>
@@ -16264,16 +10309,10 @@ https://www.weibo.com/tv/v/Is9ysidxc?fid=1034:4467098894925844
 现在又有人说是三森？
 
 
-
-
-
-
-
 -----
 
 ####  rar1536770  
 ##### 855#       发表于 2020-2-2 20:10
-
 
 
  本帖最后由 rar1536770 于 2020-2-3 13:40 编辑 
@@ -16281,15 +10320,8 @@ https://www.weibo.com/tv/v/Is9ysidxc?fid=1034:4467098894925844
 贼喜欢这段动作，但是跟背景合在一起看的很模糊，于是就把这玩意扣出来。以后找找无官方字幕的版本替换一下，这字修补很麻烦
 
 
-
-
-
-
-
 3.gif
 (1.9 MB, 下载次数: 23)
-
-
 
 
 下载附件
@@ -16298,28 +10330,12 @@ https://www.weibo.com/tv/v/Is9ysidxc?fid=1034:4467098894925844
 2020-2-2 20:10 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202002/02/201051ajx181erorlubjms.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 17战斗力 +22
@@ -16345,12 +10361,7 @@ https://www.weibo.com/tv/v/Is9ysidxc?fid=1034:4467098894925844
 | BKEF201| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -16359,23 +10370,16 @@ https://www.weibo.com/tv/v/Is9ysidxc?fid=1034:4467098894925844
 ##### 856#       发表于 2020-2-2 20:15
 
 
-
  本帖最后由 cmyk1234 于 2020-2-2 20:18 编辑 
 
 反派少年干部会不会是跟前任q娃对抗时让女主花寺生病的人，也因此使花寺获得跟前任相同的q娃因子？
 或是妹尾爱子比赛扭伤/骨折休养的梗？
 
 
-
-
-
-
-
 -----
 
 ####  風駿  
 ##### 857#       发表于 2020-2-2 20:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46308365&amp;ptid=1860852" target="_blank">cmyk1234 发表于 2020-2-2 20:15</a>
@@ -16386,33 +10390,19 @@ https://www.weibo.com/tv/v/Is9ysidxc?fid=1034:4467098894925844
 他知道的Q娃是在古代→いにしえ，还说人类不可能活那么长，你再想想
 
 
-
-
-
-
-
 -----
 
 ####  renkan119  
 ##### 858#       发表于 2020-2-2 20:32
 
 
-
-
 看直播时没注意 才发现反派道具还是蝙蝠型病毒 这也太凑巧了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">吧
-
-
-
-
-
 
 
 -----
 
 ####  haojie_ma  
 ##### 859#       发表于 2020-2-2 20:34
-
-
 
 
 在这个天天闷在家里的时候看治愈主题的Q娃真是应景……
@@ -16428,16 +10418,10 @@ Grace的大招是真·抓心，变身bank不知道该说是简洁还是偷懒，
 星QED后有个占卜环节，这次是找找看，这个小环节能延续下去么？
 
 
-
-
-
-
-
 -----
 
 ####  noneoneone  
 ##### 860#       发表于 2020-2-2 20:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46308320&amp;ptid=1860852" target="_blank">rar1536770 发表于 2020-2-2 20:10</a>
@@ -16446,26 +10430,15 @@ Grace的大招是真·抓心，变身bank不知道该说是简洁还是偷懒，
 想问一下这种是怎么扣的，难道一帧一帧来的吗？
 
 
-
-
-
-
-
 -----
 
 ####  cmyk1234  
 ##### 861#       发表于 2020-2-2 21:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46308701&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-2 20:58</a>
 要是这次的制作团队认真一点的话，其实每次召唤出来的病毒颗粒可以用某种真实的病原体的形状，每集不同。开 ...</blockquote>
 如果按照您的猜想，我觉得有种古朗基的味道了
-
-
-
-
-
 
 
 -----
@@ -16474,16 +10447,10 @@ Grace的大招是真·抓心，变身bank不知道该说是简洁还是偷懒，
 ##### 862#       发表于 2020-2-2 21:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46308669&amp;ptid=1860852" target="_blank">noneoneone 发表于 2020-2-2 20:55</a>
 
 想问一下这种是怎么扣的，难道一帧一帧来的吗？</blockquote>
 恩，只能一帧一帧的扣，而且制作组给画面加了噪点，魔棒工具直接废掉了。
-
-
-
-
-
 
 
 -----
@@ -16492,15 +10459,9 @@ Grace的大招是真·抓心，变身bank不知道该说是简洁还是偷懒，
 ##### 863#       发表于 2020-2-2 21:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46308767&amp;ptid=1860852" target="_blank">rar1536770 发表于 2020-2-2 21:06</a>
 恩，只能一帧一帧的扣，而且制作组给画面加了噪点，魔棒工具直接废掉了。 ...</blockquote>
 真爱啊！这几秒的确非常出彩
-
-
-
-
-
 
 
 -----
@@ -16509,16 +10470,10 @@ Grace的大招是真·抓心，变身bank不知道该说是简洁还是偷懒，
 ##### 864#       发表于 2020-2-2 21:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46308767&amp;ptid=1860852" target="_blank">rar1536770 发表于 2020-2-2 21:06</a>
 
 恩，只能一帧一帧的扣，而且制作组给画面加了噪点，魔棒工具直接废掉了。 ...</blockquote>
 那真是辛苦了。。。
-
-
-
-
-
 
 
 -----
@@ -16527,16 +10482,10 @@ Grace的大招是真·抓心，变身bank不知道该说是简洁还是偷懒，
 ##### 865#       发表于 2020-2-2 21:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46308320&amp;ptid=1860852" target="_blank">rar1536770 发表于 2020-2-2 20:10</a>
 
 贼喜欢这段动作，但是跟背景合在一起看的很模糊，于是就把这玩意扣出来。以后找找无官方字幕的版本替换一下 ...</blockquote>
 辛苦了！！！
-
-
-
-
-
 
 
 -----
@@ -16545,16 +10494,9 @@ Grace的大招是真·抓心，变身bank不知道该说是简洁还是偷懒，
 ##### 866#       发表于 2020-2-2 21:41
 
 
-
-
 ED还有贴贴，真好
 
 人设很温暖，好
-
-
-
-
-
 
 
 -----
@@ -16563,14 +10505,7 @@ ED还有贴贴，真好
 ##### 867#       发表于 2020-2-2 21:41
 
 
-
-
 没想到淫兽居然还会在战斗中互动，这战斗part的话是不是有点多……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16579,13 +10514,7 @@ ED还有贴贴，真好
 ##### 868#       发表于 2020-2-2 21:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我就闲着没事儿扣了会儿图而已，辛苦个啥。。。干啥不是打发时间
-
-
-
-
-
 
 
 -----
@@ -16594,15 +10523,8 @@ ED还有贴贴，真好
 ##### 869#       发表于 2020-2-2 21:52
 
 
-
-
 干部池归池但感觉邪气不足，蓝毛没想到居然是运动系....
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最惊讶的是兔子上去solo的那段
-
-
-
-
-
 
 
 -----
@@ -16611,14 +10533,7 @@ ED还有贴贴，真好
 ##### 870#       发表于 2020-2-2 22:07
 
 
-
-
 好有趣呀第一集！大门不会失败的秘密找到了！
-
-
-
-
-
 
 
 -----
@@ -16627,14 +10542,7 @@ ED还有贴贴，真好
 ##### 871#       发表于 2020-2-2 22:10
 
 
-
-
 希望这次的反派组织有能一点，别那么工具(好歹也是有几百年历史和让拿铁它们的世界伤亡惨重的元凶)
-
-
-
-
-
 
 
 -----
@@ -16643,23 +10551,16 @@ ED还有贴贴，真好
 ##### 872#       发表于 2020-2-2 22:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46308701&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-2 20:58</a>
 
 要是这次的制作团队认真一点的话，其实每次召唤出来的病毒颗粒可以用某种真实的病原体的形状，每集不同。开 ...</blockquote>
 每个干部一种已经不错了，还想每集换<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。四十多种病毒要查的文献可不少
 
 
-
-
-
-
-
 -----
 
 ####  風駿  
 ##### 873#       发表于 2020-2-2 22:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46309330&amp;ptid=1860852" target="_blank">天邪鬼 发表于 2020-2-2 22:10</a>
@@ -16670,30 +10571,17 @@ ED还有贴贴，真好
 别的组织似乎都是直接被主角Q娃们怼到没脾气
 
 
-
-
-
-
-
 -----
 
 ####  祝三叶  
 ##### 874#       发表于 2020-2-2 22:33
 
 
-
-
 太撩人了，简直可以匹敌罗武飞吻<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
 
 
 QQ图片20200202223309.png
 (1.08 MB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -16702,24 +10590,7 @@ QQ图片20200202223309.png
 2020-2-2 22:32 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202002/02/223258bu1u9dutu9d9uyuy.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -16728,14 +10599,7 @@ QQ图片20200202223309.png
 ##### 875#       发表于 2020-2-2 22:39
 
 
-
-
 UMB的声线忽高忽低。低的时候跟战姬hibiki一样听得挺舒服的，高的时候就...<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16744,14 +10608,7 @@ UMB的声线忽高忽低。低的时候跟战姬hibiki一样听得挺舒服的�
 ##### 876#       发表于 2020-2-2 22:59
 
 
-
-
 我想了想这集唯一不满意的可能是招式名和招式没什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16760,14 +10617,7 @@ UMB的声线忽高忽低。低的时候跟战姬hibiki一样听得挺舒服的�
 ##### 877#       发表于 2020-2-2 23:27
 
 
-
-
 为什么这个翘起小指的wink这么戳人呢？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16776,21 +10626,13 @@ UMB的声线忽高忽低。低的时候跟战姬hibiki一样听得挺舒服的�
 ##### 878#       发表于 2020-2-2 23:35
 
 
-
-
 尾指飞吻印象最深的还是<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 仔细看了下不是尾指<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，略显尴尬
 
 
-
-
-
-
 CD7938A9-8FF3-43C1-AD01-E3E5EBADC56F.GIF
 (500.61 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -16799,24 +10641,7 @@ CD7938A9-8FF3-43C1-AD01-E3E5EBADC56F.GIF
 2020-2-2 23:34 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202002/02/233409v502a5u5gmam2gfy.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -16825,14 +10650,7 @@ CD7938A9-8FF3-43C1-AD01-E3E5EBADC56F.GIF
 ##### 879#       发表于 2020-2-2 23:35
 
 
-
-
 花元素是低级元素不会说话可以理解，狗是女王血统怎么智能还没三个妖精高？
-
-
-
-
-
 
 
 -----
@@ -16841,14 +10659,7 @@ CD7938A9-8FF3-43C1-AD01-E3E5EBADC56F.GIF
 ##### 880#       发表于 2020-2-2 23:46
 
 
-
-
 没关注情报不清楚，拿铁后面会不会进化？
-
-
-
-
-
 
 
 -----
@@ -16857,23 +10668,15 @@ CD7938A9-8FF3-43C1-AD01-E3E5EBADC56F.GIF
 ##### 881#       发表于 2020-2-2 23:47
 
 
-
-
 一跳百丈高是第一话的传统艺能
 
 快要失去平衡失去平衡的姿势单手挡住敌方的攻击，这么高力量值的演出之前哪些Q娃有过吗？
-
-
-
-
-
 
 
 -----
 
 ####  风鸣弦十郎  
 ##### 882#       发表于 2020-2-2 23:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46310061&amp;ptid=1860852" target="_blank">鸣上悠 发表于 2020-2-2 23:35</a>
@@ -16884,30 +10687,17 @@ CD7938A9-8FF3-43C1-AD01-E3E5EBADC56F.GIF
 甚至和淫兽说话都靠翻译机（听诊器）
 
 
-
-
-
-
-
 -----
 
 ####  天风绯炎  
 ##### 883#       发表于 2020-2-3 01:16
 
 
-
-
 三人贴贴，简单抹了一下文字
-
-
-
-
 
 
 QQ截图20200202210631.png
 (1.02 MB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -16916,24 +10706,7 @@ QQ截图20200202210631.png
 2020-2-3 01:14 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202002/03/011442ac6ma7mzp958p9um.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -16942,21 +10715,13 @@ QQ截图20200202210631.png
 ##### 884#       发表于 2020-2-3 01:16
 
 
-
-
 这一季的ed还是一如既往的惊艳，就是koh编曲加上machico有种爱马仕的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  菊妖不是怪  
 ##### 885#       发表于 2020-2-3 01:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46310185&amp;ptid=1860852" target="_blank">鸣上悠 发表于 2020-02-02 23:47:36</a>
@@ -16967,32 +10732,19 @@ QQ截图20200202210631.png
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Archlich  
 ##### 886#       发表于 2020-2-3 02:35
 
 
-
-
 也……也就这样啊，套路普通，演出普通，普通普通。
-
-
-
-
-
 
 
 -----
 
 ####  天邪鬼  
 ##### 887#       发表于 2020-2-3 05:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46309503&amp;ptid=1860852" target="_blank">風駿 发表于 2020-2-2 22:29</a>
@@ -17002,26 +10754,15 @@ QQ截图20200202210631.png
 还有个沙漠使徒<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 888#       发表于 2020-2-3 05:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46311210&amp;ptid=1860852" target="_blank">Archlich 发表于 2020-2-3 02:35</a>
 也……也就这样啊，套路普通，演出普通，普通普通。</blockquote>
 不是高达bdr做得好，而是高达bd衬托的好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17030,22 +10771,15 @@ QQ截图20200202210631.png
 ##### 889#       发表于 2020-2-3 08:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46311210&amp;ptid=1860852" target="_blank">Archlich 发表于 2020-2-3 02:35</a>
 也……也就这样啊，套路普通，演出普通，普通普通。</blockquote>
 没有对比就没有伤害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  武男  
 ##### 890#       发表于 2020-2-3 09:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46309503&amp;ptid=1860852" target="_blank">風駿 发表于 2020-2-2 22:29</a>
@@ -17056,25 +10790,13 @@ QQ截图20200202210631.png
 还是沙漠使徒聪明吧，用Q娃的力量来对付Q娃，月光姐这个吃瘪的画面可是被心之大树不断回放给她的后辈。
 
 
-
-
-
-
-
 -----
 
 ####  傲娇的章鱼  
 ##### 891#       发表于 2020-2-3 10:03
 
 
-
-
 重看了好几遍ED，真的太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17083,14 +10805,7 @@ QQ截图20200202210631.png
 ##### 892#       发表于 2020-2-3 10:21
 
 
-
-
 各种既视感，看后续发展了。
-
-
-
-
-
 
 
 -----
@@ -17099,14 +10814,7 @@ QQ截图20200202210631.png
 ##### 893#       发表于 2020-2-3 10:31
 
 
-
-
 虽然加隈亚衣是好文明，但变身后的交流感觉略鬼畜，在道具上留个头<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">变身很普通的样子，只能指望双马尾了
-
-
-
-
-
 
 
 -----
@@ -17115,16 +10823,9 @@ QQ截图20200202210631.png
 ##### 894#       发表于 2020-2-3 10:45
 
 
-
-
 主角出门遇队友的方式还真是满满的年代感，撞到啊，捡起人家掉的发饰啥的。主角真的是刚病愈不久吗？变身前双手能搬起大树啥的，即便是普通人也没这道力吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 OP开幕那两卡让我出戏到完蛋人，黄色真的好有亮亮的既视感啊，OP后半跟精灵一起同步率200%嘻哈这段真的很可爱，可是变身后的造型不对味。咋一看下来无论人间体还是变身后我还是最喜欢粉主<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17133,15 +10834,9 @@ OP开幕那两卡让我出戏到完蛋人，黄色真的好有亮亮的既视感
 ##### 895#       发表于 2020-2-3 11:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46312635&amp;ptid=1860852" target="_blank">damian-wade 发表于 2020-2-3 10:31</a>
 虽然加隈亚衣是好文明，但变身后的交流感觉略鬼畜，在道具上留个头变身很普通的样子，只能指望双马 ...</blockquote>
 那道具，看着有种枷锁或者断头台的感觉，手和头固定住
-
-
-
-
-
 
 
 -----
@@ -17150,16 +10845,10 @@ OP开幕那两卡让我出戏到完蛋人，黄色真的好有亮亮的既视感
 ##### 896#       发表于 2020-2-3 13:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46313034&amp;ptid=1860852" target="_blank">天邪鬼 发表于 2020-2-3 11:16</a>
 
 那道具，看着有种枷锁或者断头台的感觉，手和头固定住</blockquote>
 不要再说了，有画面了。
-
-
-
-
-
 
 
 -----
@@ -17168,23 +10857,16 @@ OP开幕那两卡让我出戏到完蛋人，黄色真的好有亮亮的既视感
 ##### 897#       发表于 2020-2-3 14:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46314392&amp;ptid=1860852" target="_blank">mchan 发表于 2020-02-03 13:58:42</a>
 这个不是回归初代/心跳那种淫兽变变身器（这次是其中一个零件）的格式么？ ...</blockquote>以前的淫兽变身器都是塞袋子里，这次要一直用手拿，区别还是蛮大的，而且不能像大橙丸一样丢掉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  王留美  
 ##### 898#       发表于 2020-2-3 14:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46314445&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-2-3 14:04</a>
@@ -17196,16 +10878,10 @@ OP开幕那两卡让我出戏到完蛋人，黄色真的好有亮亮的既视感
 能飞吧（
 
 
-
-
-
-
-
 -----
 
 ####  cmyk1234  
 ##### 899#       发表于 2020-2-3 14:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46314445&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-2-3 14:04</a>
@@ -17215,16 +10891,10 @@ OP开幕那两卡让我出戏到完蛋人，黄色真的好有亮亮的既视感
 不是时王剑么？
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 900#       发表于 2020-2-3 15:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46314057&amp;ptid=1860852" target="_blank">noneoneone 发表于 2020-2-3 13:14</a>
@@ -17233,16 +10903,10 @@ OP开幕那两卡让我出戏到完蛋人，黄色真的好有亮亮的既视感
 Haii！Tutou Arms！麻·辣·Ha-Ha-Ha！
 
 
-
-
-
-
-
 -----
 
 ####  catenarygong  
 ##### 901#       发表于 2020-2-3 16:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46315115&amp;ptid=1860852" target="_blank">mchan 发表于 2020-02-03 15:24:32</a>
@@ -17253,17 +10917,10 @@ Haii！Tutou Arms！麻·辣·Ha-Ha-Ha！
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  collincollin  
 ##### 902#       发表于 2020-2-3 16:31
-
-
 
 
 抓心十周年纪念动画
@@ -17272,25 +10929,13 @@ Haii！Tutou Arms！麻·辣·Ha-Ha-Ha！
 目前只有UMB不是满分
 
 
-
-
-
-
-
 -----
 
 ####  damian-wade  
 ##### 903#       发表于 2020-2-3 17:06
 
 
-
-
 向日葵弹幕里一大片都是刷武汉的，虽说那里的尿性就是这样，但结合时事确实挺容易联想的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17299,16 +10944,10 @@ Haii！Tutou Arms！麻·辣·Ha-Ha-Ha！
 ##### 904#       发表于 2020-2-3 17:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46316126&amp;ptid=1860852" target="_blank">damian-wade 发表于 2020-02-03 17:06:35</a>
 向日葵弹幕里一大片都是刷武汉的，虽说那里的尿性就是这样，但结合时事确实挺容易联想的 ...</blockquote>联想没问题，抗击病毒，多正能量
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -17317,20 +10956,13 @@ Haii！Tutou Arms！麻·辣·Ha-Ha-Ha！
 ##### 905#       发表于 2020-2-3 17:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">怕就怕上面的大人看到了不让你们看了
-
-
-
-
-
 
 
 -----
 
 ####  catenarygong  
 ##### 906#       发表于 2020-2-3 17:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46316382&amp;ptid=1860852" target="_blank">最低人间肥宅 发表于 2020-02-03 17:40:04</a>
@@ -17341,33 +10973,19 @@ Haii！Tutou Arms！麻·辣·Ha-Ha-Ha！
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Blackson  
 ##### 907#       发表于 2020-2-3 17:48
 
 
-
-
 看特摄那种变身&amp;武器二合一的拿在手上战斗不感到违和，但这次放在Q娃身上就感到有不适感，大概我还是觉得Q娃要赤手空拳战斗比较好
-
-
-
-
-
 
 
 -----
 
 ####  PrincessBanana  
 ##### 908#       发表于 2020-2-3 18:22
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202002/03/182345exk874xs23hikxtp.jpg" referrerpolicy="no-referrer">
@@ -17380,25 +10998,15 @@ Haii！Tutou Arms！麻·辣·Ha-Ha-Ha！
 2020-2-3 18:23 上传
 
 
-
-
-
-
 月 球 名 画
 
 看到会说话的淫兽都毫不吃惊，不愧是悠木碧，老魔法少女了
-
-
-
-
-
 
 
 -----
 
 ####  Sliurus  
 ##### 909#       发表于 2020-2-3 18:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46316734&amp;ptid=1860852" target="_blank">PrincessBanana 发表于 2020-2-3 18:22</a>
@@ -17411,25 +11019,13 @@ Haii！Tutou Arms！麻·辣·Ha-Ha-Ha！
 只是反射弧比较长而已。倒不如说前面在路边喊都没路人觉得奇怪更奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  天地大撒野  
 ##### 910#       发表于 2020-2-3 18:42
 
 
-
-
 老魔法少女了
-
-
-
-
-
 
 
 -----
@@ -17438,13 +11034,7 @@ Haii！Tutou Arms！麻·辣·Ha-Ha-Ha！
 ##### 911#       发表于 2020-2-3 20:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">今年的ED真好听
-
-
-
-
-
 
 
 -----
@@ -17453,16 +11043,9 @@ Haii！Tutou Arms！麻·辣·Ha-Ha-Ha！
 ##### 912#       发表于 2020-2-3 21:33
 
 
-
-
 说起来今年的模式是变出棒子妖精附身，不是妖精变成棒子
 
 所以妖精可能没有办法控制棒子？
-
-
-
-
-
 
 
 -----
@@ -17471,21 +11054,13 @@ Haii！Tutou Arms！麻·辣·Ha-Ha-Ha！
 ##### 913#       发表于 2020-2-3 22:33
 
 
-
-
 老魔法少女了hhh，不知道有没有小圆X粉主的同人图<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  lyflyflxf  
 ##### 914#       发表于 2020-2-3 23:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46318409&amp;ptid=1860852" target="_blank">噗哩噗 发表于 2020-2-3 21:33</a>
@@ -17495,26 +11070,15 @@ Haii！Tutou Arms！麻·辣·Ha-Ha-Ha！
 今年又是至少双“人”才能变身了。期待今年的反派也偷一次淫兽导致无法变身
 
 
-
-
-
-
-
 -----
 
 ####  噗哩噗  
 ##### 915#       发表于 2020-2-3 23:15
 
 
-
 <blockquote>lyflyflxf 发表于 2020-2-3 23:05
 今年又是至少双“人”才能变身了。期待今年的反派也偷一次淫兽导致无法变身 ...</blockquote>
 决定了，第32话 治愈世界的约定 Q娃全新的力量
-
-
-
-
-
 
 
 -----
@@ -17523,16 +11087,10 @@ Haii！Tutou Arms！麻·辣·Ha-Ha-Ha！
 ##### 916#       发表于 2020-2-4 00:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46311530&amp;ptid=1860852" target="_blank">天邪鬼 发表于 2020-2-3 05:48</a>
 
 还有个沙漠使徒</blockquote>
 沙漠使徒不止占据优势了，曾经一度完全消灭所有Q娃方的主要战力（奶奶没法持久战）
-
-
-
-
-
 
 
 -----
@@ -17541,22 +11099,15 @@ Haii！Tutou Arms！麻·辣·Ha-Ha-Ha！
 ##### 917#       发表于 2020-2-4 00:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46315115&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-3 15:24</a>
 是谁在维基百科武汉肺炎的条目里面加上指向光之美少女的链接的？</blockquote>
 草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在是编辑掉了吗？我没看到
-
-
-
-
-
 
 
 -----
 
 ####  鸣上悠  
 ##### 918#       发表于 2020-2-4 00:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46314910&amp;ptid=1860852" target="_blank">天邪鬼 发表于 2020-2-3 15:00</a>
@@ -17569,16 +11120,10 @@ Haii！Tutou Arms！麻·辣·Ha-Ha-Ha！</blockquote>
 把刀按一下，杖上的兔子头掉落出现花的图案，可玩性提高了
 
 
-
-
-
-
-
 -----
 
 ####  南风森琉璃  
 ##### 919#       发表于 2020-2-4 06:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46319633&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-4 00:03</a>
@@ -17589,25 +11134,13 @@ Q圆互掐看来是来日方长啊……
 黄毛还没变身就被迫害，太惨了
 
 
-
-
-
-
-
 -----
 
 ####  magus  
 ##### 920#       发表于 2020-2-4 07:31
 
 
-
-
 我觉得今年放完大招那个回头姿势太帅了……
-
-
-
-
-
 
 
 -----
@@ -17616,15 +11149,9 @@ Q圆互掐看来是来日方长啊……
 ##### 921#       发表于 2020-2-4 07:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46319825&amp;ptid=1860852" target="_blank">鸣上悠 发表于 2020-2-4 00:28</a>
 沙漠使徒不止占据优势了，曾经一度完全消灭所有Q娃方的主要战力（奶奶没法持久战） ...</blockquote>
 黑暗明日社未来不也全歼光美，就一个cure tomorrow回到过去(还变成婴儿)
-
-
-
-
-
 
 
 -----
@@ -17633,22 +11160,15 @@ Q圆互掐看来是来日方长啊……
 ##### 922#       发表于 2020-2-4 07:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46319825&amp;ptid=1860852" target="_blank">鸣上悠 发表于 2020-2-4 00:28</a>
 沙漠使徒不止占据优势了，曾经一度完全消灭所有Q娃方的主要战力（奶奶没法持久战） ...</blockquote>
 黑暗明日社未来不也全歼光美，就一个cure tomorrow回到过去(还变成婴儿)
-
-
-
-
-
 
 
 -----
 
 ####  風駿  
 ##### 923#       发表于 2020-2-4 08:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46319633&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-4 00:03</a>
@@ -17659,25 +11179,13 @@ Q圆互掐看来是来日方长啊……
 喷了，这就直接PTSD
 
 
-
-
-
-
-
 -----
 
 ####  purdre  
 ##### 924#       发表于 2020-2-4 10:41
 
 
-
-
 在推上看到考察势说ED歌词里面的“两人”太突兀，考察角度来看会不会是指主角接受过肾脏心脏移植手术，为了感谢移植者，所以是“两人”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17686,16 +11194,10 @@ Q圆互掐看来是来日方长啊……
 ##### 925#       发表于 2020-2-4 11:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46322017&amp;ptid=1860852" target="_blank">purdre 发表于 2020-02-04 10:41:24</a>
 在推上看到考察势说ED歌词里面的“两人”太突兀，考察角度来看会不会是指主角接受过肾脏心脏移植手术，为了 ...</blockquote>艹，器官捐献宣传吗。只要你愿意进行器官捐献，说不定接受者能成为q娃，四舍五入你也是q娃<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -17704,16 +11206,10 @@ Q圆互掐看来是来日方长啊……
 ##### 926#       发表于 2020-2-4 11:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46322017&amp;ptid=1860852" target="_blank">purdre 发表于 2020-2-4 10:41</a>
 
 在推上看到考察势说ED歌词里面的“两人”太突兀，考察角度来看会不会是指主角接受过肾脏心脏移植手术，为了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">ふたりはプリキュア
-
-
-
-
-
 
 
 -----
@@ -17722,15 +11218,9 @@ Q圆互掐看来是来日方长啊……
 ##### 927#       发表于 2020-2-4 12:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 两人就是指Q娃和妖精吧
 
 移植捐赠什么的有点可怕（
-
-
-
-
-
 
 
 -----
@@ -17739,16 +11229,9 @@ Q圆互掐看来是来日方长啊……
 ##### 928#       发表于 2020-2-4 22:43
 
 
-
-
 艾玛，这次的ed太色气了，看了一个下午了，尤其是觉得手势各种撩<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -17757,13 +11240,7 @@ Q圆互掐看来是来日方长啊……
 ##### 929#       发表于 2020-2-5 08:13
 
 
-
 <img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gbl5g5u2xsj20nk0xcts4.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17772,14 +11249,7 @@ Q圆互掐看来是来日方长啊……
 ##### 930#       发表于 2020-2-5 08:41
 
 
-
-
 这种图也只能放在网上了吧
-
-
-
-
-
 
 
 -----
@@ -17788,14 +11258,8 @@ Q圆互掐看来是来日方长啊……
 ##### 931#       发表于 2020-2-5 11:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46330204&amp;ptid=1860852" target="_blank">新HGCG 发表于 2020-2-5 08:13</a></blockquote>
 左下写的是什么？
-
-
-
-
-
 
 
 -----
@@ -17804,15 +11268,9 @@ Q圆互掐看来是来日方长啊……
 ##### 932#       发表于 2020-2-5 11:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46331395&amp;ptid=1860852" target="_blank">鸣上悠 发表于 2020-2-5 11:29</a>
 左下写的是什么？</blockquote>
 上北老师的章子
-
-
-
-
-
 
 
 -----
@@ -17821,21 +11279,13 @@ Q圆互掐看来是来日方长啊……
 ##### 933#       发表于 2020-2-5 13:02
 
 
-
 <img src="https://i.imgur.com/BVCx2vx.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  reficul  
 ##### 934#       发表于 2020-2-5 13:26
-
-
 
 
 今年的女人超级棒！
@@ -17845,25 +11295,14 @@ Q圆互掐看来是来日方长啊……
 粉主和蓝战士变身后真好看，但是黄战士的人间体明显比变身后好看数倍
 
 
-
-
-
-
-
 -----
 
 ####  lyflyflxf  
 ##### 935#       发表于 2020-2-5 14:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46332151&amp;ptid=1860852" target="_blank">xzhlj0325 发表于 2020-2-5 13:02</a></blockquote>
 你在逐帧看动画吗？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17872,14 +11311,7 @@ Q圆互掐看来是来日方长啊……
 ##### 936#       发表于 2020-2-5 15:51
 
 
-
-
 你们说悠木碧配得像小圆，像响神，我觉得像苍翼默示录里面的白金三圣的那个弱气的人格
-
-
-
-
-
 
 
 -----
@@ -17888,15 +11320,9 @@ Q圆互掐看来是来日方长啊……
 ##### 937#       发表于 2020-2-5 16:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46330304&amp;ptid=1860852" target="_blank">風駿 发表于 2020-2-5 08:41</a>
 这种图也只能放在网上了吧</blockquote>
 已经被东映制裁了 网上都不给放了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17905,14 +11331,7 @@ Q圆互掐看来是来日方长啊……
 ##### 938#       发表于 2020-2-5 17:48
 
 
-
-
 开局其实一般，但ed做的真好
-
-
-
-
-
 
 
 -----
@@ -17921,14 +11340,7 @@ Q圆互掐看来是来日方长啊……
 ##### 939#       发表于 2020-2-5 21:59
 
 
-
-
 1080P50帧的ED太美了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">第一次感受到了栩栩如生的Q娃
-
-
-
-
-
 
 
 -----
@@ -17937,14 +11349,7 @@ Q圆互掐看来是来日方长啊……
 ##### 940#       发表于 2020-2-5 22:17
 
 
-
-
 请多保重（物理）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17953,16 +11358,10 @@ Q圆互掐看来是来日方长啊……
 ##### 941#       发表于 2020-2-5 22:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46336780&amp;ptid=1860852" target="_blank">Erica.Hartmann 发表于 2020-2-5 22:17</a>
 
 请多保重（物理）</blockquote>
 天堂地狱破（）
-
-
-
-
-
 
 
 -----
@@ -17971,21 +11370,13 @@ Q圆互掐看来是来日方长啊……
 ##### 942#       发表于 2020-2-6 02:32
 
 
-
-
 悠木碧这配音坦率讲，真心差点意思
-
-
-
-
-
 
 
 -----
 
 ####  HGCG-闪  
 ##### 943#       发表于 2020-2-6 07:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46333937&amp;ptid=1860852" target="_blank">eyeego 发表于 2020-2-5 16:47</a>
@@ -17996,25 +11387,13 @@ Q圆互掐看来是来日方长啊……
 说是怕被误会
 
 
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 944#       发表于 2020-2-6 11:10
 
 
-
-
 这都行，晕
-
-
-
-
-
 
 
 -----
@@ -18023,13 +11402,7 @@ Q圆互掐看来是来日方长啊……
 ##### 945#       发表于 2020-2-6 17:54
 
 
-
 <img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gbitb4i5f6j20fk0fkjug.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18038,22 +11411,15 @@ Q圆互掐看来是来日方长啊……
 ##### 946#       发表于 2020-2-6 17:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46343962&amp;ptid=1860852" target="_blank">HGCG2 发表于 2020-02-06 17:54:50</a></blockquote>这是什么玩具
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  風駿  
 ##### 947#       发表于 2020-2-6 18:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46343971&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-2-6 17:56</a>
@@ -18065,25 +11431,13 @@ Q圆互掐看来是来日方长啊……
 巧克力吧…………
 
 
-
-
-
-
-
 -----
 
 ####  nerugigannte  
 ##### 948#       发表于 2020-2-6 18:46
 
 
-
-
 s1来得晚，hgcg是什么意思，怎么这么多号
-
-
-
-
-
 
 
 -----
@@ -18092,15 +11446,9 @@ s1来得晚，hgcg是什么意思，怎么这么多号
 ##### 949#       发表于 2020-2-6 18:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46344356&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-2-6 18:46</a>
 s1来得晚，hgcg是什么意思，怎么这么多号</blockquote>
 是同一个人的无数马甲吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18109,15 +11457,9 @@ s1来得晚，hgcg是什么意思，怎么这么多号</blockquote>
 ##### 950#       发表于 2020-2-6 19:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46344356&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-2-6 18:46</a>
 s1来得晚，hgcg是什么意思，怎么这么多号</blockquote>
 Hentai Game Computer Graphics
-
-
-
-
-
 
 
 -----
@@ -18126,14 +11468,7 @@ Hentai Game Computer Graphics
 ##### 951#       发表于 2020-2-6 19:43
 
 
-
-
 这次的医疗主题真应景啊！不过应该是歪打正着吧？
-
-
-
-
-
 
 
 -----
@@ -18142,23 +11477,15 @@ Hentai Game Computer Graphics
 ##### 952#       发表于 2020-2-7 00:07
 
 
-
-
 第四话美术李凡善也是东映的老关系户了。
 
 不知道第五话脚本高桥郁子是什么人？
-
-
-
-
-
 
 
 -----
 
 ####  吹雪桑大胜利  
 ##### 953#       发表于 2020-2-7 00:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46344813&amp;ptid=1860852" target="_blank">星火龙 发表于 2020-2-6 19:43</a>
@@ -18170,16 +11497,10 @@ Hentai Game Computer Graphics
 最多也就是去年这时候都以为2020的题材是体育就是了，毕竟奥运
 
 
-
-
-
-
-
 -----
 
 ####  HGCG  
 ##### 954#       发表于 2020-2-7 06:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46344356&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-2-6 18:46</a>
@@ -18188,16 +11509,10 @@ s1来得晚，hgcg是什么意思，怎么这么多号</blockquote>
 都是我的小号
 
 
-
-
-
-
-
 -----
 
 ####  jdd46820  
 ##### 955#       发表于 2020-2-7 20:54
-
 
 
  本帖最后由 jdd46820 于 2020-2-7 21:21 编辑 
@@ -18212,33 +11527,19 @@ umb声线好高，听着刺耳。
 池面干部带着十字耳环?中途跳反?
 
 
-
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 956#       发表于 2020-2-8 07:14
 
 
-
-
 打戏大加？
-
-
-
-
-
 
 
 -----
 
 ####  風駿  
 ##### 957#       发表于 2020-2-8 08:24
-
 
 
  本帖最后由 風駿 于 2020-2-8 08:26 编辑 
@@ -18255,17 +11556,10 @@ Q娃历代除了部分作品剩下战斗力都很高，敌人巨大化不说部�
 反派少年那个不是十字是四叶草，四叶草在Q娃棚能想到什么大友都懂。而且毫无奸相，看起来相当有戏
 
 
-
-
-
-
-
 -----
 
 ####  HGCG  
 ##### 958#       发表于 2020-2-8 16:30
-
-
 
 
 女干部是伊藤静
@@ -18276,16 +11570,10 @@ Q娃历代除了部分作品剩下战斗力都很高，敌人巨大化不说部�
 <img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gbosolxassj20go0b610b.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  武男  
 ##### 959#       发表于 2020-2-8 17:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46354987&amp;ptid=1860852" target="_blank">jdd46820 发表于 2020-2-7 20:54</a>
@@ -18298,16 +11586,10 @@ umb声线好高，听着刺耳。
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">上一季，反派刚把宇宙给吞了，人人都是超级系，放心吧。。
 
 
-
-
-
-
-
 -----
 
 ####  武男  
 ##### 960#       发表于 2020-2-8 17:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46339133&amp;ptid=1860852" target="_blank">HGCG-闪 发表于 2020-2-6 07:00</a>
@@ -18318,16 +11600,10 @@ umb声线好高，听着刺耳。
 版权问题，上次还是因为剧场版的问题，连莫夫鲁都只能喽个jio
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 961#       发表于 2020-2-8 17:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46357529&amp;ptid=1860852" target="_blank">达达葱2 发表于 2020-2-8 07:14</a>
@@ -18336,16 +11612,10 @@ umb声线好高，听着刺耳。
 不过打戏的多寡和棒子没半毛钱关系，第一集棒子也就用来开个盾，物理伤害一个是劈腿，一个是过头摔，也没看出哪里有影响了
 
 
-
-
-
-
-
 -----
 
 ####  catenary  
 ##### 962#       发表于 2020-2-8 19:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46361018&amp;ptid=1860852" target="_blank">HGCG 发表于 2020-02-08 16:30:25</a>
@@ -18354,16 +11624,10 @@ umb声线好高，听着刺耳。
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  jdd46820  
 ##### 963#       发表于 2020-2-8 23:51
-
 
 
 <blockquote>天邪鬼 发表于 2020-2-8 17:20
@@ -18373,16 +11637,10 @@ umb声线好高，听着刺耳。
 用手机打字脑袋不清楚，我是想说淫兽在打斗中的戏份变多，可能台词变多。我个人是基本不喜欢淫兽的。
 
 
-
-
-
-
-
 -----
 
 ####  鸣上悠  
 ##### 964#       发表于 2020-2-9 04:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46361259&amp;ptid=1860852" target="_blank">武男 发表于 2020-2-8 17:03</a>
@@ -18391,16 +11649,10 @@ umb声线好高，听着刺耳。
 网上放不当做官方发布也会躲不了版权问题？
 
 
-
-
-
-
-
 -----
 
 ####  HGCG  
 ##### 965#       发表于 2020-2-9 08:03
-
 
 
 <img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gbpsrvhx2gj21400mix6p.jpg" referrerpolicy="no-referrer">
@@ -18458,26 +11710,13 @@ umb声线好高，听着刺耳。
 <img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gbptdfllvbj21400mi4qq.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  judylovesSF  
 ##### 966#       发表于 2020-2-9 08:05
 
 
-
-
 今年的构成感觉满扎实的
-
-
-
-
-
 
 
 -----
@@ -18486,21 +11725,13 @@ umb声线好高，听着刺耳。
 ##### 967#       发表于 2020-2-9 08:16
 
 
-
-
 兔子搞事的理由比较合理，非但不让人觉得熊孩子，反倒是赚了不少好感
-
-
-
-
-
 
 
 -----
 
 ####  武男  
 ##### 968#       发表于 2020-2-9 10:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46362164&amp;ptid=1860852" target="_blank">catenary 发表于 2020-2-8 19:05</a>
@@ -18512,16 +11743,10 @@ umb声线好高，听着刺耳。
 年龄太大了，没那个可能**，这已经超出JK的年龄了
 
 
-
-
-
-
-
 -----
 
 ####  武男  
 ##### 969#       发表于 2020-2-9 10:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46366009&amp;ptid=1860852" target="_blank">鸣上悠 发表于 2020-2-9 04:07</a>
@@ -18530,24 +11755,13 @@ umb声线好高，听着刺耳。
 <img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">现在看，貌似不行，应该是东映让撤了吧
 
 
-
-
-
-
-
 -----
 
 ####  shimmy1996  
 ##### 970#       发表于 2020-2-9 10:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">会动的小黄太棒了
-
-
-
-
-
 
 
 -----
@@ -18556,24 +11770,15 @@ umb声线好高，听着刺耳。
 ##### 971#       发表于 2020-2-9 11:15
 
 
-
-
 这位监督的遗作
 今年的女人打戏只能靠脚了
 不知道全员入队后怎么分工
-
-
-
-
-
 
 
 -----
 
 ####  上坂莲华  
 ##### 972#       发表于 2020-2-9 12:47
-
-
 
 
 日向跟知优是班里唯二两个不好好穿校服的，连和佳都好好穿着校服<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -18583,25 +11788,13 @@ umb声线好高，听着刺耳。
 知优连着送了两次水了，下集再给和佳送水的话就可以开始玩梗了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 973#       发表于 2020-2-9 13:08
 
 
-
-
 今年的解散理由与众不同
-
-
-
-
-
 
 
 -----
@@ -18610,14 +11803,7 @@ umb声线好高，听着刺耳。
 ##### 974#       发表于 2020-2-9 14:01
 
 
-
-
 是个好淫兽啊
-
-
-
-
-
 
 
 -----
@@ -18626,102 +11812,46 @@ umb声线好高，听着刺耳。
 ##### 975#       发表于 2020-2-9 14:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
 
 
 QQ图片20200209140607.png
 (242.96 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2020-2-9 14:06 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202002/09/140636v926a1ahmrra717r.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 QQ图片20200209140612.png
 (232.38 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2020-2-9 14:06 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202002/09/140637bz222w7p3yyj87sa.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 QQ图片20200209140615.png
 (187.09 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2020-2-9 14:06 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202002/09/140637msi2jn4lvlsplsi9.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -18730,13 +11860,7 @@ QQ图片20200209140615.png
 ##### 976#       发表于 2020-2-9 14:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这算不算淫兽第一次对q娃做审查？
-
-
-
-
-
 
 
 -----
@@ -18745,18 +11869,10 @@ QQ图片20200209140615.png
 ##### 977#       发表于 2020-2-9 14:22
 
 
-
-
 不算审查，兔子的出发点是怕不擅长运动的和佳陷入危险。并非熊孩子的任性，而且真的喜欢这孩子。
 
 
 这和我原本猜测的欢乐展开有着根本上的不同……
-
-
-
-
-
-
 
 
 -----
@@ -18765,15 +11881,9 @@ QQ图片20200209140615.png
 ##### 978#       发表于 2020-2-9 14:47
 
 
-
 <img src="http://wx2.sinaimg.cn/large/006YQ01Wly1gbq2768746j31hc0u0n0x.jpg" referrerpolicy="no-referrer">
 
 <img src="http://wx1.sinaimg.cn/large/006YQ01Wly1gbq27i5euaj31hc0u0dxn.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18782,14 +11892,8 @@ QQ图片20200209140615.png
 ##### 979#       发表于 2020-2-9 15:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46369515&amp;ptid=1860852" target="_blank">HGCG 发表于 2020-2-9 14:47</a></blockquote>
 就差一张圆神抱黑猫的图了
-
-
-
-
-
 
 
 -----
@@ -18798,24 +11902,15 @@ QQ图片20200209140615.png
 ##### 980#       发表于 2020-2-9 15:33
 
 
-
-
 就这两集的质量，对标微笑还是可以的吧
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  吹雪桑大胜利  
 ##### 981#       发表于 2020-2-9 17:22
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202002/09/172238r3cvzechkjevv2zq.jpg" referrerpolicy="no-referrer">
@@ -18828,9 +11923,6 @@ QQ图片20200209140615.png
 2020-2-9 17:22 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/202002/09/172222xmqyidqcph6gqq44.jpg" referrerpolicy="no-referrer">
 
 
@@ -18841,30 +11933,13 @@ QQ图片20200209140615.png
 2020-2-9 17:22 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  tamatama  
 ##### 982#       发表于 2020-2-9 17:33
 
 
-
-
 马琳快来喊你姐姐回去，或者喊爱大爱过来也行？兔子是因为担心的原因而闹解散，都是好孩子啊。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18873,22 +11948,13 @@ QQ图片20200209140615.png
 ##### 983#       发表于 2020-2-9 17:36
 
 
-
-
 兔子的想法倒是先猜到了，不过bgm用的比想象中好
-
-
-
-
-
 
 
 -----
 
 ####  damian-wade  
 ##### 984#       发表于 2020-2-9 17:51
-
-
 
 
 第二集的UMB哭戏发挥就挺好的啊，所以还是要让粉主多哭哭<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -18900,25 +11966,13 @@ QQ图片20200209140615.png
 除了战斗拉胯以外，这种解散回真不错
 
 
-
-
-
-
-
 -----
 
 ####  leleq  
 ##### 985#       发表于 2020-2-9 17:54
 
 
-
-
 这集感觉满意 整体脚本有用心作的感觉 下面希望能给黄蓝同样的待遇别在重复前几年的影薄了
-
-
-
-
-
 
 
 -----
@@ -18927,21 +11981,13 @@ QQ图片20200209140615.png
 ##### 986#       发表于 2020-2-9 17:54
 
 
-
-
 虽然跟黄猫变身的时候有过期待，但果然q娃不能跟隔壁特摄那样玩啊。
-
-
-
-
-
 
 
 -----
 
 ####  leleq  
 ##### 987#       发表于 2020-2-9 17:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46367524&amp;ptid=1860852" target="_blank">粉儿alice 发表于 2020-2-9 11:15</a>
@@ -18954,16 +12000,10 @@ QQ图片20200209140615.png
 你不说我都忘了 特地回头看了一下ed 没有黑框……难道日本不用黑框么？还是出于什么考虑呢？
 
 
-
-
-
-
-
 -----
 
 ####  風駿  
 ##### 988#       发表于 2020-2-9 18:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46369865&amp;ptid=1860852" target="_blank">Erica.Hartmann 发表于 2020-2-9 15:28</a>
@@ -18972,25 +12012,13 @@ QQ图片20200209140615.png
 圆神救猫正片里没有，只有抱QB的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  祝三叶  
 ##### 989#       发表于 2020-2-9 18:08
 
 
-
-
 这两集看的很满意，希望能继续保持这种水平，把角色都塑造起来，然后打斗再长一点就好了。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18999,16 +12027,9 @@ QQ图片20200209140615.png
 ##### 990#       发表于 2020-2-9 18:33
 
 
-
-
 哭戏真的不错，而且对于女主为什么想要拯救世界的解释非常合理。
 
 就是淫兽在战斗中的话也太多了吧，我怀疑是淫兽主导战斗的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19017,16 +12038,10 @@ QQ图片20200209140615.png
 ##### 991#       发表于 2020-2-9 19:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46370039&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-9 15:51</a>
 
 去年不是还有那个 21 岁 NEET 入队的么？这次再来一个 21 岁咯。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">但这个只能当前辈了吧
-
-
-
-
-
 
 
 -----
@@ -19035,22 +12050,13 @@ QQ图片20200209140615.png
 ##### 992#       发表于 2020-2-9 19:17
 
 
-
-
 第二集观感挺好，解散回也没有什么让人觉得妖精太烦，2集下来果然感觉HQ的ED比OP好
-
-
-
-
-
 
 
 -----
 
 ####  麻花疼  
 ##### 993#       发表于 2020-2-9 19:22
-
-
 
 
 这两集是真不错，不愧是令和之光，这起步就三档了，努力一把没准能和抱Q战平。
@@ -19065,32 +12071,20 @@ QQ图片20200209140615.png
 这么烩成一锅，目前感觉还挺香的，希望后期千万别弄成流水帐，白瞎了开胡开局<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  麻花疼  
 ##### 994#       发表于 2020-2-9 19:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46369097&amp;ptid=1860852" target="_blank">rar1536770 发表于 2020-2-9 14:07</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太生草了
-
-
-
-
-
 
 
 -----
 
 ####  lyflyflxf  
 ##### 995#       发表于 2020-2-9 19:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46371380&amp;ptid=1860852" target="_blank">华发夜眼[CN] 发表于 2020-2-9 18:33</a>
@@ -19102,32 +12096,19 @@ QQ图片20200209140615.png
 所以今年至少有六个Q娃
 
 
-
-
-
-
-
 -----
 
 ####  武男  
 ##### 996#       发表于 2020-2-9 19:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉淫兽算是懂事的了，因为担心女主角的理由而散伙，其实蛮不错的，让我想起了月光姐的搭档。
-
-
-
-
-
 
 
 -----
 
 ####  最强惠酱  
 ##### 997#       发表于 2020-2-9 20:02
-
-
 
 
 这段太有感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
@@ -19142,21 +12123,10 @@ QQ图片20200209140615.png
 2020-2-9 20:02 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 998#       发表于 2020-2-9 20:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46364617&amp;ptid=1860852" target="_blank">jdd46820 发表于 2020-2-8 23:51</a>
@@ -19166,17 +12136,10 @@ QQ图片20200209140615.png
 有的时候淫兽反而会强了光美的风头，毕竟光美有剧情需要的限制，淫兽没有。所以有些作品比起光美我更喜欢淫兽
 
 
-
-
-
-
-
 -----
 
 ####  zero23333  
 ##### 999#       发表于 2020-2-9 20:24
-
-
 
 
 粉红兔子精灵，不知为何脑中瞬间冒出了某只印在坦克上的粉红持刀兔logo。
@@ -19184,20 +12147,10 @@ QQ图片20200209140615.png
 开头那T字型靠海边的路，好像在甜点组拦花花的那个剧场版里见过。
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  haojie_ma  
 ##### 1000#       发表于 2020-2-9 20:32
-
-
 
 
 这集也挺平稳的，包括介绍世界观背景和玩具促销
@@ -19208,17 +12161,10 @@ QQ图片20200209140615.png
 突然想到，这种扫描出要害的战斗方式，挺像以前一部动画片罗宾圣斗士的
 
 
-
-
-
-
-
 -----
 
 ####  HGCG  
 ##### 1001#       发表于 2020-2-9 20:49
-
-
 
 
 这集
@@ -19230,25 +12176,13 @@ QQ图片20200209140615.png
 太棒了
 
 
-
-
-
-
-
 -----
 
 ####  jdd46820  
 ##### 1002#       发表于 2020-2-9 21:29
 
 
-
-
 淫兽涨分不少，umb是真厉害。池面干部在op里有和umb单挑的一卡，感觉在幼女那一定会很有人气吧。
-
-
-
-
-
 
 
 -----
@@ -19257,15 +12191,9 @@ QQ图片20200209140615.png
 ##### 1003#       发表于 2020-2-9 21:47
 
 
-
 <blockquote>風駿 发表于 2020-2-9 18:06
 圆神救猫正片里没有，只有抱QB的</blockquote>
 TV版的OP里就有趟在地上抱着猫的镜头
-
-
-
-
-
 
 
 -----
@@ -19274,13 +12202,7 @@ TV版的OP里就有趟在地上抱着猫的镜头
 ##### 1004#       发表于 2020-2-9 21:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挺好，如果拿铁也是个乖孩子，就猜不出来剧情要怎么发展了。
-
-
-
-
-
 
 
 -----
@@ -19289,22 +12211,13 @@ TV版的OP里就有趟在地上抱着猫的镜头
 ##### 1005#       发表于 2020-2-9 21:59
 
 
-
-
 今年的淫兽真不错啊 担心女主身体才想要解除搭档关系 爱了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  天邪鬼  
 ##### 1006#       发表于 2020-2-9 22:26
-
-
 
 
 拿铁这不会讲人话的设定是伏笔还是单纯的商业需求啊？
@@ -19314,26 +12227,15 @@ TV版的OP里就有趟在地上抱着猫的镜头
 再奶一口拿铁其实是病幻王的活封印，所以拿铁不是对病幻体起反应，而是对病幻王的复苏有反应
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 1007#       发表于 2020-2-9 22:26
 
 
-
  本帖最后由 天邪鬼 于 2020-2-9 22:28 编辑 
 
 当然，按照坊间的情报和猜测，追加叫cure earth然后搭档是拿铁，那说不定拿铁是地球的元素
-
-
-
-
-
 
 
 -----
@@ -19342,15 +12244,8 @@ TV版的OP里就有趟在地上抱着猫的镜头
 ##### 1008#       发表于 2020-2-9 22:30
 
 
-
-
 话说没人注意到这词元素CV的梗吗？
 不知道能坚持几次
-
-
-
-
-
 
 
 -----
@@ -19359,22 +12254,13 @@ TV版的OP里就有趟在地上抱着猫的镜头
 ##### 1009#       发表于 2020-2-9 22:31
 
 
-
-
 我推荐杉田智和来配田元素（）
-
-
-
-
-
 
 
 -----
 
 ####  鸣上悠  
 ##### 1010#       发表于 2020-2-9 23:18
-
-
 
 
 诺头卡为了救路狗变身了
@@ -19384,16 +12270,10 @@ TV版的OP里就有趟在地上抱着猫的镜头
 响爷为了救路人变身了
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 1011#       发表于 2020-2-9 23:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46369239&amp;ptid=1860852" target="_blank">風駿 发表于 2020-2-9 14:22</a>
@@ -19405,26 +12285,15 @@ TV版的OP里就有趟在地上抱着猫的镜头
 兔子第一话的表现就足够靠谱了，一样是亡国？后出逃，相比某位Q娃，兔子就是给人一种可以复国希望。
 
 
-
-
-
-
-
 -----
 
 ####  王留美  
 ##### 1012#       发表于 2020-2-9 23:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46373765&amp;ptid=1860852" target="_blank">musicat 发表于 2020-2-9 23:22</a>
 兔子第一话的表现就足够靠谱了，一样是亡国？后出逃，相比某位Q娃，兔子就是给人一种可以复国希望。 ...</blockquote>
 我已经不知道你在黑哪个了，是名字特别长的的那个吗？
-
-
-
-
-
 
 
 -----
@@ -19433,14 +12302,7 @@ TV版的OP里就有趟在地上抱着猫的镜头
 ##### 1013#       发表于 2020-2-10 00:34
 
 
-
-
 命中率0那位吧大概
-
-
-
-
-
 
 
 -----
@@ -19449,16 +12311,10 @@ TV版的OP里就有趟在地上抱着猫的镜头
 ##### 1014#       发表于 2020-2-10 01:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46373988&amp;ptid=1860852" target="_blank">王留美 发表于 2020-2-9 23:49</a>
 
 我已经不知道你在黑哪个了，是名字特别长的的那个吗？</blockquote>
 就是全名8个单词那个了
-
-
-
-
-
 
 
 -----
@@ -19467,16 +12323,10 @@ TV版的OP里就有趟在地上抱着猫的镜头
 ##### 1015#       发表于 2020-2-10 01:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46374404&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-10 00:37</a>
 
 HGPC/PMMM/SymG?</blockquote>
 对，三个凹酱
-
-
-
-
-
 
 
 -----
@@ -19485,22 +12335,13 @@ HGPC/PMMM/SymG?</blockquote>
 ##### 1016#       发表于 2020-2-10 01:13
 
 
-
-
 说起淫兽，去年淫兽我还挺喜欢的，普伦斯居家旅行必备贴心有能<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 1017#       发表于 2020-2-10 01:30
-
-
 
 
 看ED 感觉日向好色
@@ -19510,16 +12351,10 @@ HGPC/PMMM/SymG?</blockquote>
 执行的时候莫名来打感 而且第2话这真是光速解决
 
 
-
-
-
-
-
 -----
 
 ####  qb0079  
 ##### 1018#       发表于 2020-2-10 01:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46373333&amp;ptid=1860852" target="_blank">王留美 发表于 2020-2-9 22:30</a>
@@ -19530,25 +12365,13 @@ HGPC/PMMM/SymG?</blockquote>
 这次3人能使用的元素瓶也都和角色名字有关，名字梗东大妈应该会继续吧
 
 
-
-
-
-
-
 -----
 
 ####  南风森琉璃  
 ##### 1019#       发表于 2020-2-10 02:21
 
 
-
-
 女主肉身拉怪那段给我小包的既视感，然后女主哭腔太有感觉了，反复听了好多遍，有那个“请到过去救救那个被骗的我”的味，今年先吹起来了！
-
-
-
-
-
 
 
 -----
@@ -19557,14 +12380,7 @@ HGPC/PMMM/SymG?</blockquote>
 ##### 1020#       发表于 2020-2-10 02:27
 
 
-
-
 我比较好奇这些元素名字都这么大后期词够不够用，还是每人四个左右元素瓶就没了
-
-
-
-
-
 
 
 -----
@@ -19573,16 +12389,10 @@ HGPC/PMMM/SymG?</blockquote>
 ##### 1021#       发表于 2020-2-10 06:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46374970&amp;ptid=1860852" target="_blank">南风森琉璃 发表于 2020-2-10 02:21</a>
 
 女主肉身拉怪那段给我小包的既视感，然后女主哭腔太有感觉了，反复听了好多遍，有那个“请到过去救救那个被 ...</blockquote>
 除了高冷型角色，凹的哭腔估计都这样了，但真的是真情流露的哭腔
-
-
-
-
-
 
 
 -----
@@ -19591,16 +12401,10 @@ HGPC/PMMM/SymG?</blockquote>
 ##### 1022#       发表于 2020-2-10 06:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46375142&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-10 03:32</a>
 
 十二个元素瓶，算上追加战士，一人三个。</blockquote>
 哦哦，熟悉的商法，谢谢
-
-
-
-
-
 
 
 -----
@@ -19609,16 +12413,10 @@ HGPC/PMMM/SymG?</blockquote>
 ##### 1023#       发表于 2020-2-10 06:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46374382&amp;ptid=1860852" target="_blank">wilkyway 发表于 2020-2-10 00:34</a>
 命中率0那位吧大概</blockquote>
 您们的山口亮太早说了那位不人气爱豆就叫马口头
 柴田家三位亡国公主都玛丽苏名字 您说是谁讷
-
-
-
-
-
 
 
 -----
@@ -19627,14 +12425,7 @@ HGPC/PMMM/SymG?</blockquote>
 ##### 1024#       发表于 2020-2-10 06:54
 
 
-
-
 随便村山已经把十二公主的问题甩锅给万代了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19643,16 +12434,10 @@ HGPC/PMMM/SymG?</blockquote>
 ##### 1025#       发表于 2020-2-10 07:29
 
 
-
  本帖最后由 cmyk1234 于 2020-2-10 07:34 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46375369&amp;ptid=1860852" target="_blank">粉儿alice 发表于 2020-2-10 06:54</a>
 随便村山已经把十二公主的问题甩锅给万代了</blockquote>
 反观香村纯子主笔快盗巡逻连者期间，顶住了万代扬快盗抑巡逻的玩具销售策略，做到了角色强化形态的相对平衡。
-
-
-
-
-
 
 
 -----
@@ -19661,22 +12446,15 @@ HGPC/PMMM/SymG?</blockquote>
 ##### 1026#       发表于 2020-2-10 08:32
 
 
-
 <blockquote>cmyk1234 发表于 2020-2-10 07:29
 反观香村纯子主笔快盗巡逻连者期间，顶住了万代扬快盗抑巡逻的玩具销售策略，做到了角色强化形态的相对平 ...</blockquote>
 快警当时不是被喷死了吗 什么时候平衡了
-
-
-
-
-
 
 
 -----
 
 ####  Garterbelt  
 ##### 1027#       发表于 2020-2-10 08:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46373295&amp;ptid=1860852" target="_blank">天邪鬼 发表于 2020-2-9 22:26</a>
@@ -19687,16 +12465,10 @@ HGPC/PMMM/SymG?</blockquote>
 毕竟平时在家爸妈都当它是普通狗的，要是能讲人话却不让讲只能装狗叫，这个感觉就微妙了
 
 
-
-
-
-
-
 -----
 
 ####  Blackson  
 ##### 1028#       发表于 2020-2-10 08:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46375426&amp;ptid=1860852" target="_blank">cmyk1234 发表于 2020-2-10 07:29</a>
@@ -19707,33 +12479,20 @@ HGPC/PMMM/SymG?</blockquote>
 大决战快盗把警察该有的强化玩具还给警察，我觉得纯粹是临近结束的番组对万代没宣传作用了
 
 
-
-
-
-
-
 -----
 
 ####  王留美  
 ##### 1029#       发表于 2020-2-10 10:29
 
 
-
-
 说的不是玩具相关的装备or强化分配
 而是在玩具倾斜快盗的情况下依然能够保证巡逻的戏份甚至还有很不错的描写
-
-
-
-
-
 
 
 -----
 
 ####  鸣上悠  
 ##### 1030#       发表于 2020-2-10 11:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46376307&amp;ptid=1860852" target="_blank">王留美 发表于 2020-2-10 10:29</a>
@@ -19744,17 +12503,10 @@ HGPC/PMMM/SymG?</blockquote>
 应该有一部分归功于战队会分群殴战和萝卜战，不会让玩具少的巡逻特别难写戏份
 
 
-
-
-
-
-
 -----
 
 ####  nerugigannte  
 ##### 1031#       发表于 2020-2-10 11:32
-
-
 
 
 今年的开局除了打戏不够爽外
@@ -19763,26 +12515,13 @@ HGPC/PMMM/SymG?</blockquote>
 ps：希望黄战士cv后面发挥成熟点，比阿光还吵。。。人设我明明超对我感觉的
 
 
-
-
-
-
-
-
 -----
 
 ####  lyflyflxf  
 ##### 1032#       发表于 2020-2-10 11:36
 
 
-
-
 话说今年staff中的新人真多，第二集的剧本、演出、作监都是生面孔
-
-
-
-
-
 
 
 -----
@@ -19791,14 +12530,7 @@ ps：希望黄战士cv后面发挥成熟点，比阿光还吵。。。人设我�
 ##### 1033#       发表于 2020-2-10 11:38
 
 
-
-
 <img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gbr5jjpamgj21hw0u0kjn.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19807,21 +12539,13 @@ ps：希望黄战士cv后面发挥成熟点，比阿光还吵。。。人设我�
 ##### 1034#       发表于 2020-2-10 13:03
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">这集节奏把控真好，淫兽闹解散那地方节奏没抓好就容易让人反感
-
-
-
-
-
 
 
 -----
 
 ####  catenary  
 ##### 1035#       发表于 2020-2-10 14:05
-
-
 
 
 粉主这种病怏怏又要保护别人的感觉容易产生老父亲
@@ -19832,16 +12556,10 @@ ps：希望黄战士cv后面发挥成熟点，比阿光还吵。。。人设我�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  catenary  
 ##### 1036#       发表于 2020-2-10 14:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46376966&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-02-10 11:32:08</a>
@@ -19853,16 +12571,10 @@ ps：希望黄战士cv后面发挥成熟点，比阿光还吵。。。人设我�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  cmyk1234  
 ##### 1037#       发表于 2020-2-10 14:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46378656&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-10 14:05</a>
@@ -19871,16 +12583,10 @@ ps：希望黄战士cv后面发挥成熟点，比阿光还吵。。。人设我�
 另外剧场版会不会首次让过去年份的TV反派助拳？
 
 
-
-
-
-
-
 -----
 
 ####  nerugigannte  
 ##### 1038#       发表于 2020-2-10 15:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46378656&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-10 14:05</a>
@@ -19889,32 +12595,19 @@ ps：希望黄战士cv后面发挥成熟点，比阿光还吵。。。人设我�
 开播前我以为这次的黄战士会是地味版公主的黄战士
 
 
-
-
-
-
-
 -----
 
 ####  宅音  
 ##### 1039#       发表于 2020-2-10 16:53
 
 
-
-
 如果蓝是套黄会长以后也会是反差萌吗，我还真挺喜欢黄会长的
-
-
-
-
-
 
 
 -----
 
 ####  cmyk1234  
 ##### 1040#       发表于 2020-2-10 17:05
-
 
 
  本帖最后由 cmyk1234 于 2020-2-10 17:06 编辑 
@@ -19924,25 +12617,13 @@ ps：希望黄战士cv后面发挥成熟点，比阿光还吵。。。人设我�
 希望今年的黄是肌肉黄、战无不胜黄。
 
 
-
-
-
-
-
 -----
 
 ####  圆神最高  
 ##### 1041#       发表于 2020-2-10 17:52
 
 
-
-
 蓝毛好像六花啊
-
-
-
-
-
 
 
 -----
@@ -19951,16 +12632,10 @@ ps：希望黄战士cv后面发挥成熟点，比阿光还吵。。。人设我�
 ##### 1042#       发表于 2020-2-10 17:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46380809&amp;ptid=1860852" target="_blank">圆神最高 发表于 2020-2-10 17:52</a>
 
 蓝毛好像六花啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">我奶蓝毛大概率没啥存在感，目前我直接套抱q蓝毛的模板
-
-
-
-
-
 
 
 -----
@@ -19969,16 +12644,10 @@ ps：希望黄战士cv后面发挥成熟点，比阿光还吵。。。人设我�
 ##### 1043#       发表于 2020-2-10 18:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46379598&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-10 15:47</a>
 
 论助拳，也许吹吹更合适吧。（类似于 Fairy Drop 和马琳爸在微笑里面出现，这次让山吹宠物医院和吹吹来。 ...</blockquote>
 吹吹能来我能吹爆这一部<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19987,16 +12656,10 @@ ps：希望黄战士cv后面发挥成熟点，比阿光还吵。。。人设我�
 ##### 1044#       发表于 2020-2-10 19:35
 
 
-
  本帖最后由 cmyk1234 于 2020-2-10 19:42 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46381394&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-10 18:57</a>
 汁波蜜来的话《战姬绝唱》声优哏要爆炸；马琳要是跟过来的话那个反派和马琳姐姐的声优哏要爆炸。还是吹吹 ...</blockquote>
 DP（单翼/高山南）才是最不可能也是最爆炸的吧
-
-
-
-
-
 
 
 -----
@@ -20005,16 +12668,9 @@ DP（单翼/高山南）才是最不可能也是最爆炸的吧
 ##### 1045#       发表于 2020-2-10 19:50
 
 
-
-
 蓝毛过去都是智力型军事系
 
 这次是田径高手了，要有点变化的吧
-
-
-
-
-
 
 
 -----
@@ -20023,14 +12679,7 @@ DP（单翼/高山南）才是最不可能也是最爆炸的吧
 ##### 1046#       发表于 2020-2-10 21:35
 
 
-
-
 今年我准备吹爆了
-
-
-
-
-
 
 
 -----
@@ -20039,22 +12688,13 @@ DP（单翼/高山南）才是最不可能也是最爆炸的吧
 ##### 1047#       发表于 2020-2-10 21:42
 
 
-
-
 你们这些人够了啊！还没到第三集就开吹了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Sliurus  
 ##### 1048#       发表于 2020-2-10 22:37
-
-
 
 
 umb真是太棒了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">……啊不，粉主真是太棒了。话说经历这么快说清楚，看来是不打算在这一点上作文章了
@@ -20066,16 +12706,10 @@ umb真是太棒了<img src="https://static.saraba1st.com/image/smiley/face2017/0
 这种人 兽  情深的总感觉哪部q娃也是这样，但是就是想不起来具体哪一部
 
 
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 1049#       发表于 2020-2-10 22:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46372215&amp;ptid=1860852" target="_blank">最强惠酱 发表于 2020-2-9 20:02</a>
@@ -20084,16 +12718,10 @@ umb真是太棒了<img src="https://static.saraba1st.com/image/smiley/face2017/0
 来点药？<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cmyk1234  
 ##### 1050#       发表于 2020-2-10 22:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46383185&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-2-10 22:37</a>
@@ -20104,16 +12732,10 @@ umb真是太棒了……啊不，粉主真是太棒了。话说经历这么快�
 战队5剧场版？
 
 
-
-
-
-
-
 -----
 
 ####  101207777  
 ##### 1051#       发表于 2020-2-10 23:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46383185&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-2-10 22:37</a>
@@ -20124,16 +12746,10 @@ umb真是太棒了……啊不，粉主真是太棒了。话说经历这么快�
 那个名字很长的高中生？
 
 
-
-
-
-
-
 -----
 
 ####  cmyk1234  
 ##### 1052#       发表于 2020-2-11 00:56
-
 
 
  本帖最后由 cmyk1234 于 2020-2-11 00:57 编辑 
@@ -20142,16 +12758,10 @@ umb真是太棒了……啊不，粉主真是太棒了。话说经历这么快�
 战姬绝唱第一集就绝唱死了的那个人，因为身体承受不了装备以及没护住凹酱，所以选择绝唱清屏结果就是死了。
 
 
-
-
-
-
-
 -----
 
 ####  purdre  
 ##### 1053#       发表于 2020-2-11 01:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46384057&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-11 00:34</a>
@@ -20162,26 +12772,15 @@ umb真是太棒了……啊不，粉主真是太棒了。话说经历这么快�
 说实话我是分不出来各部Q娃的LOGO的，但是不知道为啥就把劈里啪啦这个记得特清楚<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  最强惠酱  
 ##### 1054#       发表于 2020-2-11 01:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46383207&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-2-10 22:41</a>
 来点药？</blockquote>
 药推上挺多的，主要都在送水间接kiss上，第二话再送水有点图谋不轨，蓝在我心中已经是gachi蕾丝了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20190,22 +12789,15 @@ umb真是太棒了……啊不，粉主真是太棒了。话说经历这么快�
 ##### 1055#       发表于 2020-2-11 01:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46384363&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-11 01:30</a>
 看来要是这次全明星来抓心组助拳，各种声优哏会爆炸。水果组要是来，虽说吹吹应景，但是美希就又满满都是 ...</blockquote>
 冈村英梨都过气成地下偶像 声优梗请玩适量
-
-
-
-
-
 
 
 -----
 
 ####  粉儿alice  
 ##### 1056#       发表于 2020-2-11 02:08
-
 
 
  本帖最后由 粉儿alice 于 2020-2-11 02:14 编辑 
@@ -20250,18 +12842,10 @@ umb真是太棒了……啊不，粉主真是太棒了。话说经历这么快�
 还可以把美妙旋律拉进来
 
 
-
-
-
-
-
-
-
 -----
 
 ####  王留美  
 ##### 1057#       发表于 2020-2-11 02:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46384354&amp;ptid=1860852" target="_blank">purdre 发表于 2020-2-11 01:28</a>
@@ -20279,16 +12863,10 @@ umb真是太棒了……啊不，粉主真是太棒了。话说经历这么快�
 2魔法5治愈9拥抱
 
 
-
-
-
-
-
 -----
 
 ####  王留美  
 ##### 1058#       发表于 2020-2-11 02:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46384533&amp;ptid=1860852" target="_blank">粉儿alice 发表于 2020-2-11 02:08</a>
@@ -20302,16 +12880,10 @@ umb真是太棒了……啊不，粉主真是太棒了。话说经历这么快�
 艹大意了，有皇冠的居然不是公主，一个错错一堆
 
 
-
-
-
-
-
 -----
 
 ####  粉儿alice  
 ##### 1059#       发表于 2020-2-11 02:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46384564&amp;ptid=1860852" target="_blank">王留美 发表于 2020-2-11 02:19</a>
@@ -20319,16 +12891,10 @@ umb真是太棒了……啊不，粉主真是太棒了。话说经历这么快�
 我看到王冠第一印象也是公主<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  鸣上悠  
 ##### 1060#       发表于 2020-2-11 07:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46384533&amp;ptid=1860852" target="_blank">粉儿alice 发表于 2020-2-11 02:08</a>
@@ -20341,25 +12907,13 @@ umb真是太棒了……啊不，粉主真是太棒了。话说经历这么快�
 万万没想到王冠不是指公主Q娃，而是Q娃公主，魔神爱的要素呢
 
 
-
-
-
-
-
 -----
 
 ####  reficul  
 ##### 1061#       发表于 2020-2-11 12:45
 
 
-
-
 今天都周二了，爱奇艺还是720P版本，过分了吧。。。
-
-
-
-
-
 
 
 -----
@@ -20368,23 +12922,16 @@ umb真是太棒了……啊不，粉主真是太棒了。话说经历这么快�
 ##### 1062#       发表于 2020-2-11 13:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46384358&amp;ptid=1860852" target="_blank">最强惠酱 发表于 2020-02-11 01:29:40</a>
 药推上挺多的，主要都在送水间接kiss上，第二话再送水有点图谋不轨，蓝在我心中已经是gachi蕾丝了 ...</blockquote>我关注的没画，求推荐几个
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  最强惠酱  
 ##### 1063#       发表于 2020-2-11 14:52
-
 
 
  本帖最后由 最强惠酱 于 2020-2-11 15:03 编辑 
@@ -20412,16 +12959,10 @@ disくん老师不知画不<img src="https://static.saraba1st.com/image/smiley/f
 https://twitter.com/JONEYdcd/status/1223902811164823552?s=09
 
 
-
-
-
-
-
 -----
 
 ####  王留美  
 ##### 1064#       发表于 2020-2-11 15:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46384965&amp;ptid=1860852" target="_blank">鸣上悠 发表于 2020-2-11 07:06</a>
@@ -20429,17 +12970,10 @@ https://twitter.com/JONEYdcd/status/1223902811164823552?s=09
 王冠旁边的心吧
 
 
-
-
-
-
-
 -----
 
 ####  吹雪桑大胜利  
 ##### 1065#       发表于 2020-2-11 16:00
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202002/11/155846yr2ecg5hr5hcc8hg.jpg" referrerpolicy="no-referrer">
@@ -20452,26 +12986,15 @@ https://twitter.com/JONEYdcd/status/1223902811164823552?s=09
 2020-2-11 15:58 上传
 
 
-
-
-
-
 既让人忍不住想疼爱她，同时又有不禁想冲着她撒娇的气场
 
 花寺和香，何等可怕的孩子
-
-
-
-
-
 
 
 -----
 
 ####  猫坤  
 ##### 1066#       发表于 2020-2-11 17:21
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202002/11/172041as0xqcm9jeekejzf.png" referrerpolicy="no-referrer">
@@ -20484,10 +13007,6 @@ https://twitter.com/JONEYdcd/status/1223902811164823552?s=09
 2020-2-11 17:20 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202002/11/172042h1w0eee8333bbizu.png" referrerpolicy="no-referrer">
 
 
@@ -20496,10 +13015,6 @@ https://twitter.com/JONEYdcd/status/1223902811164823552?s=09
 下载附件
 
 2020-2-11 17:20 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202002/11/172042k4sq66664g4t7ssi.png" referrerpolicy="no-referrer">
@@ -20512,24 +13027,13 @@ https://twitter.com/JONEYdcd/status/1223902811164823552?s=09
 2020-2-11 17:20 上传
 
 
-
-
-
-
 特  有  幻  视
-
-
-
-
-
 
 
 -----
 
 ####  killng  
 ##### 1067#       发表于 2020-2-12 04:01
-
-
 
 
 既视感太多搞得违和感爆炸，粉主每次开口脑子里都会出现另外一张脸
@@ -20545,17 +13049,10 @@ op里主角走过的地方变成绿地的镜头，像极了治皮炎的药膏广
 这言情剧里情窦初开的台词太怪了
 
 
-
-
-
-
-
 -----
 
 ####  久井路路  
 ##### 1068#       发表于 2020-2-12 04:13
-
-
 
 
 明明是第二集，却构建出了放在47集左右也没有违和感的坚固羁绊，还真的很难说一定是好事（
@@ -20564,16 +13061,10 @@ op里主角走过的地方变成绿地的镜头，像极了治皮炎的药膏广
 前期觉悟成长得太快，也很有可能像01那样越活越回去、或者像响爷那样觉悟重置个几次，要是接下来愈Q能一直保持着现在这个水平自然是再好不过了（
 
 
-
-
-
-
-
 -----
 
 ####  风鸣弦十郎  
 ##### 1069#       发表于 2020-2-12 06:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46393780&amp;ptid=1860852" target="_blank">久井路路 发表于 2020-2-12 04:13</a>
@@ -20585,17 +13076,10 @@ op里主角走过的地方变成绿地的镜头，像极了治皮炎的药膏广
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉OP暗示了之后会有很多和干部的情感纠葛
 
 
-
-
-
-
-
 -----
 
 ####  HGCG  
 ##### 1070#       发表于 2020-2-12 06:55
-
-
 
 
 我同意粉主和正太干部在一起
@@ -20603,16 +13087,10 @@ op里主角走过的地方变成绿地的镜头，像极了治皮炎的药膏广
 话说三干部的名字271是怎么翻译的
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 1071#       发表于 2020-2-12 09:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46393780&amp;ptid=1860852" target="_blank">久井路路 发表于 2020-2-12 04:13</a>
@@ -20624,16 +13102,10 @@ op里主角走过的地方变成绿地的镜头，像极了治皮炎的药膏广
 该打不过的时候还是打不过，只是有些人打不过就自闭然后等队友安慰，而有些人则自己站起来继续打。那自闭然后安慰的剧情有必要吗？这种套路剧情感觉就是拿来水集数的，好比骑士的擂台战
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 1072#       发表于 2020-2-12 09:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46393780&amp;ptid=1860852" target="_blank">久井路路 发表于 2020-2-12 04:13</a>
@@ -20649,16 +13121,10 @@ op里主角走过的地方变成绿地的镜头，像极了治皮炎的药膏广
 从台词也不难看出治愈花园说不定现在是尸山血海，以致于要三个实习生来拯救地球。这种情况下拉比琳还能关心伙伴的安危，也算是展现了它们的性格了吧。粉主也是，听着就有一种献身情结，恨不得把自己全部的生命投入到回报大家的事业上，说不定以后会对这方面进行攻击
 
 
-
-
-
-
-
 -----
 
 ####  leleq  
 ##### 1073#       发表于 2020-2-12 09:53
-
 
 
  本帖最后由 leleq 于 2020-2-12 09:59 编辑 
@@ -20668,16 +13134,10 @@ op里主角走过的地方变成绿地的镜头，像极了治皮炎的药膏广
 ps：别以为op正太和粉有戏份就是cp了 说不定跟黄 你看泽城太太<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  nerugigannte  
 ##### 1074#       发表于 2020-2-12 09:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46393957&amp;ptid=1860852" target="_blank">HGCG 发表于 2020-2-12 06:55</a>
@@ -20688,31 +13148,19 @@ ps：别以为op正太和粉有戏份就是cp了 说不定跟黄 你看泽城太
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">我不同意，正太脸太尖太帅了，一点也不可爱
 
 
-
-
-
-
-
 -----
 
 ####  最低人间肥宅  
 ##### 1075#       发表于 2020-2-12 12:03
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">爸爸我不同意
-
-
-
-
-
 
 
 -----
 
 ####  久井路路  
 ##### 1076#       发表于 2020-2-12 13:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46394406&amp;ptid=1860852" target="_blank">天邪鬼 发表于 2020-2-12 09:16</a>
@@ -20729,25 +13177,13 @@ ps：别以为op正太和粉有戏份就是cp了 说不定跟黄 你看泽城太
 5gogo里淫兽和光美谈恋爱、公主里淫兽比较酱油，总觉得没办法拿来当参考（<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  風駿  
 ##### 1077#       发表于 2020-2-12 13:49
 
 
-
-
 现在就期待反派少年会不会潜入学校以及给自己起什么名<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20756,23 +13192,16 @@ ps：别以为op正太和粉有戏份就是cp了 说不定跟黄 你看泽城太
 ##### 1078#       发表于 2020-2-12 14:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46384057&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-11 00:34</a>
 
 随手翻译，随手转发：</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我一眼就肯定是8 因为q娃没有这个风格 第二个看不出  看人说知道是15
 
 
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 1079#       发表于 2020-2-12 14:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46396889&amp;ptid=1860852" target="_blank">久井路路 发表于 2020-02-12 13:41:56</a>
@@ -20782,16 +13211,10 @@ ps：别以为op正太和粉有戏份就是cp了 说不定跟黄 你看泽城太
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  麻花疼  
 ##### 1080#       发表于 2020-2-12 14:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46396955&amp;ptid=1860852" target="_blank">風駿 发表于 2020-2-12 13:49</a>
@@ -20800,16 +13223,10 @@ ps：别以为op正太和粉有戏份就是cp了 说不定跟黄 你看泽城太
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后再和蓝发女人互动一下，失个忆什么的
 
 
-
-
-
-
-
 -----
 
 ####  風駿  
 ##### 1081#       发表于 2020-2-12 14:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46397228&amp;ptid=1860852" target="_blank">麻花疼 发表于 2020-2-12 14:17</a>
@@ -20818,16 +13235,10 @@ ps：别以为op正太和粉有戏份就是cp了 说不定跟黄 你看泽城太
 可我想看他和粉主啊
 
 
-
-
-
-
-
 -----
 
 ####  最低人间肥宅  
 ##### 1082#       发表于 2020-2-12 14:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46397228&amp;ptid=1860852" target="_blank">麻花疼 发表于 2020-2-12 14:17</a>
@@ -20836,16 +13247,10 @@ ps：别以为op正太和粉有戏份就是cp了 说不定跟黄 你看泽城太
 请停止你的心跳行为！<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cmyk1234  
 ##### 1083#       发表于 2020-2-12 14:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46397126&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-2-12 14:05</a>
@@ -20854,16 +13259,10 @@ ps：别以为op正太和粉有戏份就是cp了 说不定跟黄 你看泽城太
 听说初代的淫兽跟q娃唱反调是常态？
 
 
-
-
-
-
-
 -----
 
 ####  lyflyflxf  
 ##### 1084#       发表于 2020-2-12 15:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46397519&amp;ptid=1860852" target="_blank">cmyk1234 发表于 2020-2-12 14:48</a>
@@ -20872,16 +13271,10 @@ ps：别以为op正太和粉有戏份就是cp了 说不定跟黄 你看泽城太
 还没到唱反调的地步（它们都是战五渣，没有唱反调的本钱），只是神烦而且帮不上忙
 
 
-
-
-
-
-
 -----
 
 ####  nerugigannte  
 ##### 1085#       发表于 2020-2-12 15:06
-
 
 
  本帖最后由 nerugigannte 于 2020-2-12 15:10 编辑 
@@ -20891,26 +13284,15 @@ ps：别以为op正太和粉有戏份就是cp了 说不定跟黄 你看泽城太
 +1，母的神烦，看着都想冲上去扇个巴掌，但关键时候还是挺可靠也懂低头认错，想想小小年纪来到异世界也不容易，宽容宽容
 
 
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 1086#       发表于 2020-2-12 16:47
 
 
-
 <blockquote>cmyk1234 发表于 2020-2-12 14:48
 听说初代的淫兽跟q娃唱反调是常态？</blockquote>
 金闪闪:不行吗
-
-
-
-
-
 
 
 -----
@@ -20919,16 +13301,9 @@ ps：别以为op正太和粉有戏份就是cp了 说不定跟黄 你看泽城太
 ##### 1087#       发表于 2020-2-12 17:13
 
 
-
-
 风评比较好的淫兽好像也没几个，大部分都是熊孩子的水平。
 
 个人喜欢塔鲁特，哈米，丝带和哈姆哈利
-
-
-
-
-
 
 
 -----
@@ -20937,16 +13312,10 @@ ps：别以为op正太和粉有戏份就是cp了 说不定跟黄 你看泽城太
 ##### 1088#       发表于 2020-2-12 17:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46397664&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-2-12 15:06</a>
 
 +1，母的神烦，看着都想冲上去扇个巴掌，但关键时候还是挺可靠也懂低头认错，想想小小年纪来到异世界也不 ...</blockquote>
 前两代都是，公的变身器神烦还欠揍（一哥对淫兽莫名好，说什么给什么，二哥倒是会威胁不给饭吃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">），小的无论公母都烦
-
-
-
-
-
 
 
 -----
@@ -20955,14 +13324,7 @@ ps：别以为op正太和粉有戏份就是cp了 说不定跟黄 你看泽城太
 ##### 1089#       发表于 2020-2-12 18:19
 
 
-
-
 不知道为什么兔子叫粉主的名字时一直幻听成馒头卡，有毒<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20971,24 +13333,16 @@ ps：别以为op正太和粉有戏份就是cp了 说不定跟黄 你看泽城太
 ##### 1090#       发表于 2020-2-12 18:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46399222&amp;ptid=1860852" target="_blank">蓬莱妹红 发表于 2020-2-12 18:19</a>
 
 不知道为什么兔子叫粉主的名字时一直幻听成馒头卡，有毒</blockquote>
 毕竟就差一个字
 
 
-
-
-
-
-
 -----
 
 ####  catenary  
 ##### 1091#       发表于 2020-2-12 20:36
-
-
 
 
 你们太扭曲了，蓝色这一点也不像六花好吧
@@ -20998,33 +13352,20 @@ ps：别以为op正太和粉有戏份就是cp了 说不定跟黄 你看泽城太
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  粉儿alice  
 ##### 1092#       发表于 2020-2-12 22:16
 
 
-
-
 菱川六花女士可是q娃第一玩具 怎么能忘讷
 柴田遗民 无时无刻不怀念心跳朝的说<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  鸣上悠  
 ##### 1093#       发表于 2020-2-12 23:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46396889&amp;ptid=1860852" target="_blank">久井路路 发表于 2020-2-12 13:41</a>
@@ -21039,16 +13380,10 @@ ps：别以为op正太和粉有戏份就是cp了 说不定跟黄 你看泽城太
 这次不止人手一只，还有一狗
 
 
-
-
-
-
-
 -----
 
 ####  鸣上悠  
 ##### 1094#       发表于 2020-2-12 23:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46400334&amp;ptid=1860852" target="_blank">catenary 发表于 2020-2-12 20:36</a>
@@ -21060,27 +13395,15 @@ ps：别以为op正太和粉有戏份就是cp了 说不定跟黄 你看泽城太
 蓝的不六花，只是正太在大家眼中配蓝色
 
 
-
-
-
-
-
 -----
 
 ####  不能摸的屁屁  
 ##### 1095#       发表于 2020-2-13 00:53
 
 
-
-
 蓝色是运动系帅气大姐姐，还是粉主憧憬的类型→坐等痛快多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -21089,14 +13412,7 @@ ps：别以为op正太和粉有戏份就是cp了 说不定跟黄 你看泽城太
 ##### 1096#       发表于 2020-2-13 08:05
 
 
-
-
 今年的女主真是人间体之鉴，肉身搬大树肉身拉怪，而且还是有想法那种不是瞎拉怪，爱了
-
-
-
-
-
 
 
 -----
@@ -21105,16 +13421,10 @@ ps：别以为op正太和粉有戏份就是cp了 说不定跟黄 你看泽城太
 ##### 1097#       发表于 2020-2-13 08:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46401812&amp;ptid=1860852" target="_blank">鸣上悠 发表于 2020-2-12 23:24</a>
 
 蓝的不六花，只是正太在大家眼中配蓝色</blockquote>
 大鸟邮递员、狼少年、奏太、朱利奥表示不服
-
-
-
-
-
 
 
 -----
@@ -21123,14 +13433,7 @@ ps：别以为op正太和粉有戏份就是cp了 说不定跟黄 你看泽城太
 ##### 1098#       发表于 2020-2-13 08:26
 
 
-
-
 Umb配得很差，可能之前声带使用过度伤了，配不了幼女，音调怎么也升不上去，半死不活似的（还是说这是病弱的设定需要）
-
-
-
-
-
 
 
 -----
@@ -21139,16 +13442,10 @@ Umb配得很差，可能之前声带使用过度伤了，配不了幼女，音�
 ##### 1099#       发表于 2020-2-13 16:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46406279&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-13 14:18</a>
 
 UMB 是不是想要有意避免用馒头卡声线？</blockquote>
 感觉悠木碧避免不了立花响声线，激动时的配音表达听起来相当明显。
-
-
-
-
-
 
 
 -----
@@ -21157,17 +13454,10 @@ UMB 是不是想要有意避免用馒头卡声线？</blockquote>
 ##### 1100#       发表于 2020-2-13 16:13
 
 
-
-
 今年的人设还是挺不错的
 和佳弱气和母性并存，而且现在来看塑造的很好
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -21176,15 +13466,9 @@ UMB 是不是想要有意避免用馒头卡声线？</blockquote>
 ##### 1101#       发表于 2020-2-13 16:15
 
 
-
 <blockquote>cmyk1234 发表于 2020-2-13 16:04
 感觉悠木碧避免不了立花响声线，激动时的配音表达听起来相当明显。</blockquote>
 其实她其它作品里大抵都是这样
-
-
-
-
-
 
 
 -----
@@ -21193,16 +13477,10 @@ UMB 是不是想要有意避免用馒头卡声线？</blockquote>
 ##### 1102#       发表于 2020-2-13 16:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46407349&amp;ptid=1860852" target="_blank">猫坤 发表于 2020-2-13 16:15</a>
 
 其实她其它作品里大抵都是这样</blockquote>
 我想了想，三瓶配音梦原队长时，好像没听到破出本来声线的情况，这是体质因素吗？
-
-
-
-
-
 
 
 -----
@@ -21211,16 +13489,9 @@ UMB 是不是想要有意避免用馒头卡声线？</blockquote>
 ##### 1103#       发表于 2020-2-13 16:28
 
 
-
-
 我对UMB最有印象的声线，还是配痴女）
 
 期待接下来对蓝色的痴女行为）
-
-
-
-
-
 
 
 -----
@@ -21229,16 +13500,10 @@ UMB 是不是想要有意避免用馒头卡声线？</blockquote>
 ##### 1104#       发表于 2020-2-13 17:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46407338&amp;ptid=1860852" target="_blank">catenary 发表于 2020-2-13 16:13</a>
 今年的人设还是挺不错的
 和佳弱气和母性并存，而且现在来看塑造的很好</blockquote>
 哪来的母性？照顾拿铁然后不能坐视不管那一段？
-
-
-
-
-
 
 
 -----
@@ -21247,17 +13512,10 @@ UMB 是不是想要有意避免用馒头卡声线？</blockquote>
 ##### 1105#       发表于 2020-2-13 17:54
 
 
-
-
 估计是OP最后的和佳那个回头(Q娃态和常态)就有了那个“母性”气质
 
 
 题外话，微博上一群大友在人设图和PV刚出之时就对着和佳喊妈了
-
-
-
-
-
 
 
 -----
@@ -21266,21 +13524,13 @@ UMB 是不是想要有意避免用馒头卡声线？</blockquote>
 ##### 1106#       发表于 2020-2-13 18:03
 
 
-
-
 怪不得有些母性萝莉的漫画这么有市场，怎么看怎么怪的东西<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  風駿  
 ##### 1107#       发表于 2020-2-13 18:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46408159&amp;ptid=1860852" target="_blank">Blackson 发表于 2020-2-13 17:54</a>
@@ -21292,16 +13542,10 @@ UMB 是不是想要有意避免用馒头卡声线？</blockquote>
 那是花花PTSD病人从中看出了花花味
 
 
-
-
-
-
-
 -----
 
 ####  風駿  
 ##### 1108#       发表于 2020-2-13 18:19
-
 
 
  本帖最后由 風駿 于 2020-2-13 18:22 编辑 
@@ -21314,17 +13558,10 @@ UMB 是不是想要有意避免用馒头卡声线？</blockquote>
 然后同样的，凹配响爷时间跨度也很久，第一季和后面差异十分明显，但是配小圆的时候就没感觉有什么差异
 
 
-
-
-
-
-
-
 -----
 
 ####  cmyk1234  
 ##### 1109#       发表于 2020-2-13 18:48
-
 
 
  本帖最后由 cmyk1234 于 2020-2-13 18:50 编辑 
@@ -21337,16 +13574,10 @@ UMB 是不是想要有意避免用馒头卡声线？</blockquote>
 东映魔女子动画系列主角群有几个CV是钦定非选拔的，如佐藤顺一点名要宍户留美上场。
 
 
-
-
-
-
-
 -----
 
 ####  鸣上悠  
 ##### 1110#       发表于 2020-2-13 21:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46409196&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-13 20:00</a>
@@ -21355,16 +13586,10 @@ UMB 是不是想要有意避免用馒头卡声线？</blockquote>
 常驻妖精数量能有四只这么多好像只有心跳，其实心跳我差点想不起来有了，幸亏每个淫兽都有专门个人回
 
 
-
-
-
-
-
 -----
 
 ####  風駿  
 ##### 1111#       发表于 2020-2-13 21:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46409792&amp;ptid=1860852" target="_blank">鸣上悠 发表于 2020-2-13 21:10</a>
@@ -21373,16 +13598,10 @@ UMB 是不是想要有意避免用馒头卡声线？</blockquote>
 心跳的因为都能变人形照理存在感挺高……
 
 
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 1112#       发表于 2020-2-13 21:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46409792&amp;ptid=1860852" target="_blank">鸣上悠 发表于 2020-2-13 21:10</a>
@@ -21391,32 +13610,19 @@ UMB 是不是想要有意避免用馒头卡声线？</blockquote>
 每个都有吗？我就记得六花那只有段失恋，还是前几天看到有人画梗图想起来的，就是变身器拽着六花飞那个
 
 
-
-
-
-
-
 -----
 
 ####  wilkyway  
 ##### 1113#       发表于 2020-2-13 23:12
 
 
-
-
 mhss555都有这么多啊..把便当的算上抓心也有就是了
-
-
-
-
-
 
 
 -----
 
 ####  Blackson  
 ##### 1114#       发表于 2020-2-13 23:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46410924&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-13 23:15</a>
@@ -21427,26 +13633,15 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 不过她可以同时是妖精和Q娃
 
 
-
-
-
-
-
 -----
 
 ####  王留美  
 ##### 1115#       发表于 2020-2-13 23:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46409792&amp;ptid=1860852" target="_blank">鸣上悠 发表于 2020-2-13 21:10</a>
 常驻妖精数量能有四只这么多好像只有心跳，其实心跳我差点想不起来有了，幸亏每个淫兽都有专门个人回 ...</blockquote>
 最多的是组曲
-
-
-
-
-
 
 
 -----
@@ -21455,14 +13650,7 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 ##### 1116#       发表于 2020-2-14 13:20
 
 
-
-
 刚看完第二集，粉主的心声把我说的猛男落泪，今年的粉主好坚强，爱了爱了
-
-
-
-
-
 
 
 -----
@@ -21471,16 +13659,10 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 ##### 1117#       发表于 2020-2-14 22:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46410878&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-13 23:08</a>
 
 满心是四个常驻妖精，SS 原案也是四个（还我满薰 Q 娃）心跳有 5 个常住妖精。 ...</blockquote>
 完全忘记了光有2个妖精，心跳是算上娃吗？
-
-
-
-
-
 
 
 -----
@@ -21489,16 +13671,10 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 ##### 1118#       发表于 2020-2-14 22:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46411273&amp;ptid=1860852" target="_blank">王留美 发表于 2020-2-13 23:51</a>
 
 最多的是组曲</blockquote>
 当时只记得哈咪，一说起才记起一堆音符
-
-
-
-
-
 
 
 -----
@@ -21507,22 +13683,13 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 ##### 1119#       发表于 2020-2-15 20:32
 
 
-
-
 明天就是蓝色了
-
-
-
-
-
 
 
 -----
 
 ####  HGCG2  
 ##### 1120#       发表于 2020-2-16 07:58
-
-
 
 
 招摇过市
@@ -21575,28 +13742,15 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gbxwst3gudj21400miqv6.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  hummysiren  
 ##### 1121#       发表于 2020-2-16 08:03
 
 
-
-
 这代蓝色主动签约主动领走淫兽，这就是体育会系吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 —— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -21605,14 +13759,7 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 ##### 1122#       发表于 2020-2-16 08:04
 
 
-
-
 蓝变身妈力十足（
-
-
-
-
-
 
 
 -----
@@ -21621,21 +13768,13 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 ##### 1123#       发表于 2020-2-16 08:23
 
 
-
-
 蓝毛技击动作比和佳利落多了，不愧是体育系的
-
-
-
-
-
 
 
 -----
 
 ####  風駿  
 ##### 1124#       发表于 2020-2-16 08:40
-
 
 
  本帖最后由 風駿 于 2020-2-16 08:41 编辑 
@@ -21650,28 +13789,15 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 啊我不行了，真的太妈了
 
 
-
-
-
-
-
-
 -----
 
 ####  catenary  
 ##### 1125#       发表于 2020-2-16 09:04
 
 
-
-
 原来今年才是妈q吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -21680,13 +13806,7 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 ##### 1126#       发表于 2020-2-16 09:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">妈Q还行
-
-
-
-
-
 
 
 -----
@@ -21695,14 +13815,7 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 ##### 1127#       发表于 2020-2-16 09:34
 
 
-
-
 这么说看Q娃真是超值啊，又有妈又有女儿，下一集是不是再来个女朋友啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21711,20 +13824,13 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 ##### 1128#       发表于 2020-2-16 09:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别急别急，黄色肯定不是妈
-
-
-
-
-
 
 
 -----
 
 ####  rar1536770  
 ##### 1129#       发表于 2020-2-16 09:43
-
 
 
  本帖最后由 rar1536770 于 2020-2-16 09:45 编辑 
@@ -21734,16 +13840,10 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 万一黄毛是活力属性的妈呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  風駿  
 ##### 1130#       发表于 2020-2-16 10:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46429977&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-2-16 09:35</a>
@@ -21755,25 +13855,13 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 像不像急着给儿子相亲的妈？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  宅音  
 ##### 1131#       发表于 2020-2-16 10:12
 
 
-
-
 这bank让我想起马琳
-
-
-
-
-
 
 
 -----
@@ -21782,20 +13870,13 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 ##### 1132#       发表于 2020-2-16 10:27
 
 
-
 <img src="http://wx2.sinaimg.cn/mw690/e7cbae74gy1gbxygkwtfuj20zk0k0n0z.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  lyflyflxf  
 ##### 1133#       发表于 2020-2-16 10:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46430122&amp;ptid=1860852" target="_blank">風駿 发表于 2020-2-16 10:03</a>
@@ -21806,27 +13887,15 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 那么问题来了：孩子他爸是谁？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  catenary  
 ##### 1134#       发表于 2020-2-16 10:56
 
 
-
-
 罗武，响哥，爱大爱和未来这种有爸气质的粉主很久没有出现了
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -21835,15 +13904,9 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 ##### 1135#       发表于 2020-2-16 11:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">现在q娃在哪能下载来看？
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -21852,14 +13915,7 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 ##### 1136#       发表于 2020-2-16 12:30
 
 
-
-
 去年还是老父亲，今年怎么全成儿子了
-
-
-
-
-
 
 
 -----
@@ -21868,14 +13924,7 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 ##### 1137#       发表于 2020-2-16 12:50
 
 
-
-
 竟然自己领悟了变身<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21884,22 +13933,13 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 ##### 1138#       发表于 2020-2-16 13:04
 
 
-
-
 看完了，我愿与楼上一起称这季为妈Q<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Sliurus  
 ##### 1139#       发表于 2020-2-16 13:13
-
-
 
 
 妈q还行，蓝毛明明是姐系！直爽、体贴，还是运动系，我真是high到不行<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">。难不成今年不当粉主厨了？
@@ -21920,31 +13960,14 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 2020-2-16 13:13 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  最强惠酱  
 ##### 1140#       发表于 2020-2-16 13:28
 
 
-
-
 不探究到底誓不罢休的类型，有问题问到底，看到怪物也不犹豫直接干，强硬到我的肉球也微微颤抖<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 开头两三句话把和香骗回家，打完不经意间叫名字，危 和香 危
-
-
-
-
-
 
 
 -----
@@ -21953,21 +13976,13 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 ##### 1141#       发表于 2020-2-16 13:47
 
 
-
-
 今年的角色都非常有新鲜感
-
-
-
-
-
 
 
 -----
 
 ####  TheDoctor  
 ##### 1142#       发表于 2020-2-16 17:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46430619&amp;ptid=1860852" target="_blank">lazycat233 发表于 2020-2-16 11:17</a>
@@ -21977,27 +13992,15 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 花园里flsnow，一直在做
 
 
-
-
-
-
-
 -----
 
 ####  噗哩噗  
 ##### 1143#       发表于 2020-2-16 18:13
 
 
-
-
 怎么Grace和Sparkle都是英语就你蓝色搞特殊
 
 但是又简洁又华丽又有力量感的变身好棒<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22006,14 +14009,7 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 ##### 1144#       发表于 2020-2-16 18:15
 
 
-
-
 这个蓝战士觉悟不错，主动申请入队<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22022,22 +14018,13 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 ##### 1145#       发表于 2020-2-16 18:19
 
 
-
-
 主动要求变身+第一次变身就小小吃瘪，这次的蓝**人爱了爱了
-
-
-
-
-
 
 
 -----
 
 ####  leleq  
 ##### 1146#       发表于 2020-2-16 18:21
-
-
 
 
 好看扎实 
@@ -22056,25 +14043,13 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 第三集：千优妈我想要个香香那样的爸
 
 
-
-
-
-
-
 -----
 
 ####  太阳灿灿  
 ##### 1147#       发表于 2020-2-16 18:25
 
 
-
-
 这么看来美少年干部好弱。。。这次居然让新人上场就吃瘪，感觉在战力上是有设定的，而不是传统新人无敌的那种，今天的小怪大概就是单个新手Q娃无法对付，必须两人配合才能打败
-
-
-
-
-
 
 
 -----
@@ -22083,23 +14058,16 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了
 ##### 1148#       发表于 2020-2-16 19:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46431374&amp;ptid=1860852" target="_blank">雷之 发表于 2020-2-16 12:50</a>
 
 竟然自己领悟了变身</blockquote>
 她不是看到凹酱变身了
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 1149#       发表于 2020-2-16 19:44
-
 
 
  本帖最后由 musicat 于 2020-2-16 19:56 编辑 
@@ -22117,26 +14085,13 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 好吧，变身话也会吃瘪，这个就<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  jdd46820  
 ##### 1150#       发表于 2020-2-16 20:18
 
 
-
-
 好主动啊，主动搭讪，主动告白。另外变身白披风超帅。
-
-
-
-
-
 
 
 -----
@@ -22145,16 +14100,9 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1151#       发表于 2020-2-16 20:30
 
 
-
-
 下级那个兽医看发色是不是小黄的家人啊
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -22163,17 +14111,9 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1152#       发表于 2020-2-16 20:37
 
 
-
-
 两个变身的白大褂都挺帅的。
 
 设定图没感觉出来，但正片里变身后形象确实都有大姐姐的味道，难怪楼上那么多喊妈的。
-
-
-
-
-
-
 
 
 -----
@@ -22182,16 +14122,9 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1153#       发表于 2020-2-16 20:46
 
 
-
-
 话说蓝色在家里招待和佳的那几句话是我太邪恶吗，怎么听怎么觉得气氛不太对<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -22200,16 +14133,10 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1154#       发表于 2020-2-16 21:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46434758&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-16 20:04</a>
 
 变身从外部视角应该是一闪而过的，bank 只是给我们看的。只有某些剧场版中出现过缓慢充能的变身是一点一 ...</blockquote>
 慢慢变身的我就记得ss剧场版那个，二哥二嫂十指相扣，一边流泪表白一边由下往上变，太有意境了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22218,15 +14145,8 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1155#       发表于 2020-2-16 21:29
 
 
-
-
 声优梗 ​
 <img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gbyhtgu1h8j20m00qetuy.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22235,21 +14155,13 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1156#       发表于 2020-2-16 21:31
 
 
-
-
 感觉蓝毛有点状况外，怎么那么容易就接受了。
-
-
-
-
-
 
 
 -----
 
 ####  zxc4563982  
 ##### 1157#       发表于 2020-2-16 21:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46435047&amp;ptid=1860852" target="_blank">noneoneone 发表于 2020-2-16 20:37</a>
@@ -22260,26 +14172,14 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 变身前和企鹅说得那番话就已经很……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  粉儿alice  
 ##### 1158#       发表于 2020-2-16 22:03
 
 
-
-
 唉 二段可以把白大褂加上吗<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
 今年的女人变身体太过于普通没特色
-
-
-
-
-
 
 
 -----
@@ -22288,23 +14188,15 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1159#       发表于 2020-2-16 22:36
 
 
-
-
 第三集企鹅没什么发挥啊..兔子也不开盾了 虽然说为了演出可以理解吧
 
 看下集能不能放点什么出来
-
-
-
-
-
 
 
 -----
 
 ####  麻花疼  
 ##### 1160#       发表于 2020-2-16 23:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46429972&amp;ptid=1860852" target="_blank">lyflyflxf 发表于 2020-2-16 09:34</a>
@@ -22319,26 +14211,13 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 感觉日向应该是马琳+亮亮的合体，今天出场就有内味儿了……
 
 
-
-
-
-
-
-
 -----
 
 ####  麻花疼  
 ##### 1161#       发表于 2020-2-16 23:11
 
 
-
-
 另外个人感觉今年的Q娃有点像抓心致敬的意思，不知道你们有没有这种感觉。
-
-
-
-
-
 
 
 -----
@@ -22347,16 +14226,9 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1162#       发表于 2020-2-17 00:41
 
 
-
-
 企鹅真的可爱，知优好主动
 
 现在很期待日向的变身了……
-
-
-
-
-
 
 
 -----
@@ -22365,14 +14237,7 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1163#       发表于 2020-2-17 01:51
 
 
-
-
 蓝毛都见过这么多次怪了还状况外么，倒是黄毛还没亲眼见过怪吧，如果这话给几个镜头她和虎猫的提前互动就好了
-
-
-
-
-
 
 
 -----
@@ -22381,16 +14246,10 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1164#       发表于 2020-2-17 07:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46435685&amp;ptid=1860852" target="_blank">粉儿alice 发表于 2020-2-16 22:03</a>
 唉 二段可以把白大褂加上吗
 今年的女人变身体太过于普通没特色</blockquote>
 说不定后面的三段大招或者天使装就是外面披个白大褂呢
-
-
-
-
-
 
 
 -----
@@ -22399,16 +14258,10 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1165#       发表于 2020-2-17 07:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46435337&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-2-16 21:16</a>
 
 慢慢变身的我就记得ss剧场版那个，二哥二嫂十指相扣，一边流泪表白一边由下往上变，太有意境了 ...</blockquote>
 去年剧场版阿光拉拉，前年最终战花花，公主神回春春再起，再往前是马口p
-
-
-
-
-
 
 
 -----
@@ -22417,14 +14270,7 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1166#       发表于 2020-2-17 09:01
 
 
-
-
     早上醒来我突然想到今年的干部根本洗不白啊。不说病毒人人厌，再加上新冠病毒在日本有爆发的趋势。一旦爆发干部别说洗白，反而会被打死啊。今年Q娃题材配合新冠，如果发挥好很可能历史留名啊。
-
-
-
-
-
 
 
 -----
@@ -22433,16 +14279,10 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1167#       发表于 2020-2-17 09:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46436189&amp;ptid=1860852" target="_blank">麻花疼 发表于 2020-2-16 23:11</a>
 
 另外个人感觉今年的Q娃有点像抓心致敬的意思，不知道你们有没有这种感觉。 ...</blockquote>
 感觉今年致敬了若干部Q娃，绝不止抓心
-
-
-
-
-
 
 
 -----
@@ -22451,16 +14291,10 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1168#       发表于 2020-2-17 09:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46438358&amp;ptid=1860852" target="_blank">exam00 发表于 2020-2-17 09:01</a>
 
 早上醒来我突然想到今年的干部根本洗不白啊。不说病毒人人厌，再加上新冠病毒在日本有爆发的趋势。一旦 ...</blockquote>
 肤色表明非人类这确实是道槛，但真要洗白的话，通过转生，或者其实干部真身是被黑化的元素，这些路子还是通的。
-
-
-
-
-
 
 
 -----
@@ -22469,16 +14303,10 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1169#       发表于 2020-2-17 10:22
 
 
-
  本帖最后由 nerugigannte 于 2020-2-17 10:29 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">泉妈妈今年别学传统蓝战士酱油啊，我愿把今年的q娃称之为妈q
 <img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">黄淫兽看着像渣男啊，谁都可以摸，球球你今年别迫害我们的黄战士
-
-
-
-
-
 
 
 -----
@@ -22487,16 +14315,10 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1170#       发表于 2020-2-17 14:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46438780&amp;ptid=1860852" target="_blank">風駿 发表于 2020-2-17 09:58</a>
 
 肤色表明非人类这确实是道槛，但真要洗白的话，通过转生，或者其实干部真身是被黑化的元素，这些路子还是 ...</blockquote>
   新冠是传染病啊，你让传播病毒的干部怎么洗白。想想我们对“毒王”的态度，日本都开始呼吁取消聚会了。不过作为百合党，我还是喜闻乐见的
-
-
-
-
-
 
 
 -----
@@ -22505,15 +14327,9 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1171#       发表于 2020-2-17 15:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46438358&amp;ptid=1860852" target="_blank">exam00 发表于 2020-2-17 09:01</a>
 早上醒来我突然想到今年的干部根本洗不白啊。不说病毒人人厌，再加上新冠病毒在日本有爆发的趋势。一旦 ...</blockquote>
 去年反派又丑又非人类 当时就以为不用强行洗白了 结果呢结果呢 某只单眼比谁还洗得白呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22522,15 +14338,9 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1172#       发表于 2020-2-17 15:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46438358&amp;ptid=1860852" target="_blank">exam00 发表于 2020-2-17 09:01</a>
 早上醒来我突然想到今年的干部根本洗不白啊。不说病毒人人厌，再加上新冠病毒在日本有爆发的趋势。一旦 ...</blockquote>
 照你这么说，去年独眼和蛇夫座被洗是因为日本人没被人体实验和大爆炸过？
-
-
-
-
-
 
 
 -----
@@ -22539,13 +14349,7 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1173#       发表于 2020-2-17 15:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">相互理解这一优良传统怎么能抛弃呢！
-
-
-
-
-
 
 
 -----
@@ -22554,14 +14358,7 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1174#       发表于 2020-2-17 17:41
 
 
-
-
 所以日本是没有以德报怨 何以报德这种说法吗
-
-
-
-
-
 
 
 -----
@@ -22570,16 +14367,9 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1175#       发表于 2020-2-17 18:04
 
 
-
-
 蓝变身真是教主要素致死量.....
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -22588,23 +14378,16 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1176#       发表于 2020-2-17 18:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46442299&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-2-17 17:41</a>
 
 所以日本是没有以德报怨 何以报德这种说法吗</blockquote>
 问题是现在主流舆论流行白左圣母啊，Q娃也被影响了
 
 
-
-
-
-
-
 -----
 
 ####  HGCG3  
 ##### 1177#       发表于 2020-2-17 18:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46441074&amp;ptid=1860852" target="_blank">exam00 发表于 2020-2-17 14:49</a>
@@ -22619,17 +14402,10 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 最后洗白的时候治好了病，变成了健康的肤色
 
 
-
-
-
-
-
 -----
 
 ####  風駿  
 ##### 1178#       发表于 2020-2-17 18:35
-
-
 
 
 现在这情况也别考虑洗白不洗白了，这大环境下要是疫情走势不妙说不定妈Q会停播然后魔改剧情
@@ -22640,27 +14416,15 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 也真是什么题材不好非要搞医生打病毒
 
 
-
-
-
-
-
 -----
 
 ####  killng  
 ##### 1179#       发表于 2020-2-17 19:04
 
 
-
-
 偷窥、偷听，频繁递水，爱照顾人，自宅是大屋子大房间
 
 出本（把别人送进本子里快活）的要素很足
-
-
-
-
-
 
 
 -----
@@ -22669,15 +14433,8 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1180#       发表于 2020-2-17 19:07
 
 
-
-
 问题是今年撞上东奥 因为电视台要转播预定会砍几集
 现在闹瘟疫又和题材有所冲突...
-
-
-
-
-
 
 
 -----
@@ -22686,23 +14443,16 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1181#       发表于 2020-2-17 19:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46438780&amp;ptid=1860852" target="_blank">風駿 发表于 2020-2-17 09:58</a>
 
 肤色表明非人类这确实是道槛，但真要洗白的话，通过转生，或者其实干部真身是被黑化的元素，这些路子还是 ...</blockquote>
 独眼+外星人肤色的艾旺待遇好着呢
 
 
-
-
-
-
-
 -----
 
 ####  風駿  
 ##### 1182#       发表于 2020-2-17 19:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46443572&amp;ptid=1860852" target="_blank">reficul 发表于 2020-2-17 19:20</a>
@@ -22714,16 +14464,10 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 但今年目前这三个可不是人类，让这三就这么存活可不像话，必须消毒。
 
 
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 1183#       发表于 2020-2-17 20:22
-
 
 
 <blockquote>HGCG3 发表于 2020-2-17 18:23
@@ -22736,16 +14480,10 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 整合运动么
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 1184#       发表于 2020-2-18 10:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46443629&amp;ptid=1860852" target="_blank">風駿 发表于 2020-2-17 19:26</a>
@@ -22757,32 +14495,19 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 他们与其说是病毒，不如说是带菌者。纳米病原才是病毒，病幻体听着还像是科技侧的环境改造机器人(虽然我也没懂这群人在地球上明明啥事没有，有啥好改造的)
 
 
-
-
-
-
-
 -----
 
 ####  nerugigannte  
 ##### 1185#       发表于 2020-2-18 10:48
 
 
-
-
 又看了遍认妈回，发现今年的大戏是不是太短了点了，没打几下就直接净化了。这还是入队回，还算有套连贯的拳打脚踢，后面岂不是两拳下去就直接净化了
-
-
-
-
-
 
 
 -----
 
 ####  天邪鬼  
 ##### 1186#       发表于 2020-2-18 11:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46447269&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-18 02:52</a>
@@ -22793,16 +14518,10 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 那我们也别骂龙我外传和蛇皮怪了，大家一起“无敌闪亮”就行了
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 1187#       发表于 2020-2-18 11:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46448853&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-18 10:50</a>
@@ -22813,16 +14532,10 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 纳米病原看着也不像是从干部体内出来的(头皮屑)，所以比较倾向后者
 
 
-
-
-
-
-
 -----
 
 ####  lyflyflxf  
 ##### 1188#       发表于 2020-2-18 11:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46448845&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-2-18 10:48</a>
@@ -22831,17 +14544,10 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 这几集的文戏都偏多，所以打斗少。然而目前文戏的水平还不错，所以可以继续追吧
 
 
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 1189#       发表于 2020-2-18 11:14
-
-
 
 
 根据干部的说法，boss好像是病毒集合体，可以理解为病毒本身。招怪方式是从身上掉落病毒感染元素，小怪的攻击也可以感染其它东西，可以理解成传播病毒的过程。干部应该是最初的感染者，得病还兼带洗脑功能。那恐怕干部们怎么也要挨一炮了，总不可能让感染者带着病毒乱窜。
@@ -22850,16 +14556,10 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  nervpp  
 ##### 1190#       发表于 2020-2-18 11:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46397228&amp;ptid=1860852" target="_blank">麻花疼 发表于 2020-2-12 14:17</a>
@@ -22868,26 +14568,15 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 经验丰富的书记表示可以提供帮助。
 
 
-
-
-
-
-
 -----
 
 ####  66367749  
 ##### 1191#       发表于 2020-2-18 11:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449043&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-2-18 11:14</a>
 根据干部的说法，boss好像是病毒集合体，可以理解为病毒本身。招怪方式是从身上掉落病毒感染元素，小怪的攻 ...</blockquote>
 第三集被水炮砸中的人只是昏故气没有染病描写应是有顾虑吧，目前不传人，改造环境为主<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22896,16 +14585,10 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1192#       发表于 2020-2-18 11:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46399406&amp;ptid=1860852" target="_blank">風駿 发表于 2020-2-12 18:41</a>
 
 毕竟就差一个字</blockquote>
 都是凹酱，可以哒
-
-
-
-
-
 
 
 -----
@@ -22914,16 +14597,10 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1193#       发表于 2020-2-18 11:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449043&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-2-18 11:14</a>
 
 根据干部的说法，boss好像是病毒集合体，可以理解为病毒本身。招怪方式是从身上掉落病毒感染元素，小怪的攻 ...</blockquote>
 差不多这个感觉吧，干部们至少是被感染者，而且至少是古代活到现在的，不经过一通类似转生的操作根本不可能就这么放置洗白。
-
-
-
-
-
 
 
 -----
@@ -22932,22 +14609,15 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1194#       发表于 2020-2-18 12:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449715&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-18 12:23</a>
 早期多文戏也可以理解。这时候反派还只是小打小闹，压力还没有上来。要是 15 集过后还是这样那就不对了。 ...</blockquote>
 看情况吧。一方面Q娃能得到的资源不可能支撑起连续一年的打戏，另一方面今年的资源可能也不算充裕
-
-
-
-
-
 
 
 -----
 
 ####  exam00  
 ##### 1195#       发表于 2020-2-18 12:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46443033&amp;ptid=1860852" target="_blank">風駿 发表于 2020-2-17 18:35</a>
@@ -22958,17 +14628,10 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
   本来主题就是医生打病毒， 可以在剧里插一些戴口罩之类的防疫小知识，教教小朋友，寓教于乐，这不是也很好么
 
 
-
-
-
-
-
 -----
 
 ####  catenary  
 ##### 1196#       发表于 2020-2-18 13:14
-
-
 
 
 你们要求真高
@@ -22977,26 +14640,14 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  最强惠酱  
 ##### 1197#       发表于 2020-2-18 13:25
 
 
-
-
 传播病毒就是罪，我觉得在现在这种状况下洗不白（和乌鸦哥一起消失吧）
 其实我更喜欢看文戏，打戏少点好，之前抱q有很多打戏都是非常突兀的，还想他起码有一集不打呢，当然财团b不允许<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23005,16 +14656,10 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1198#       发表于 2020-2-18 13:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46448845&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-2-18 10:48</a>
 
 又看了遍认妈回，发现今年的大戏是不是太短了点了，没打几下就直接净化了。这还是入队回，还算有套连贯的拳 ...</blockquote>
 日常戏份要做完整，打戏就被压缩，打戏要长，日常剧情就一笔带过。我觉得现在这样的挺好，毕竟近年能算突出的打戏不多了，不如日常部分用心做好一些
-
-
-
-
-
 
 
 -----
@@ -23023,16 +14668,9 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1199#       发表于 2020-2-18 13:45
 
 
-
-
 近年的变身感觉都挺中规中矩的，不是特别抓人，蓝战士的变身决定参考了马琳（话说什么时候让马琳出现在剧场版说两句话啊球球东大妈
 
 希望黄战士有亲女儿待遇，人间体的人设太棒了
-
-
-
-
-
 
 
 -----
@@ -23041,14 +14679,7 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1200#       发表于 2020-2-18 13:46
 
 
-
-
 文戏和打戏并非不可兼得，无印42集（大概）的文戏和打戏就都很出色，一哥一嫂的内心独白，然后伴随着情感爆发的打戏。看staff有没有这个心思跟人力而已
-
-
-
-
-
 
 
 -----
@@ -23057,15 +14688,9 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1201#       发表于 2020-2-18 13:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449043&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-2-18 11:14</a>
 根据干部的说法，boss好像是病毒集合体，可以理解为病毒本身。招怪方式是从身上掉落病毒感染元素，小怪的攻 ...</blockquote>
 吉尼斯大人吗？
-
-
-
-
-
 
 
 -----
@@ -23074,17 +14699,10 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1202#       发表于 2020-2-18 14:32
 
 
-
-
 讲道理，前十几集作画包袱最少，或者说得到二段后就要匀时间给二段bank
 而且前期没团队大招，还会给你打出特色，配合的机会。有了团队大招就是时间差不多了开大完事
 追加来了更惨，为了捧她和新玩具，主角团要换着花样送人头
 而且为啥要把文戏和打戏对立起来？不少神回是打戏和文戏兼备的吧。还有就是主线剧情正反两方冲突最激烈的时候，那不仅是打得不可开交，还有剧烈的言语交锋
-
-
-
-
-
 
 
 -----
@@ -23093,21 +14711,13 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 ##### 1203#       发表于 2020-2-18 15:11
 
 
-
-
 说起来女干部这个放病毒的方式，不就是飞沫传播吗（
-
-
-
-
-
 
 
 -----
 
 ####  Tomorrow_D  
 ##### 1204#       发表于 2020-2-18 16:08
-
 
 
  本帖最后由 Tomorrow_D 于 2020-2-18 20:07 编辑 
@@ -23121,25 +14731,13 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 Q娃春映画和小魔女的剧场在之后也能释放出来很多的资源，比如春映画的板冈锦肯定会回来TV版。不过有一说一，在打戏缺人的情况下，让板冈担任人设和总作监完全就是彻头彻尾的浪费资源。
 
 
-
-
-
-
-
 -----
 
 ####  天地大撒野  
 ##### 1205#       发表于 2020-2-18 18:40
 
 
-
-
 觉得知优这集对umb说的话都很姬是白河豚特有错觉吗？
-
-
-
-
-
 
 
 -----
@@ -23148,17 +14746,10 @@ Q娃春映画和小魔女的剧场在之后也能释放出来很多的资源，�
 ##### 1206#       发表于 2020-2-18 19:14
 
 
-
-
 动作到位演出靠谱的三拳两脚结束总好过墨墨唧唧打五分钟太极还各种崩坏走形吧
 
 
 这两集的素质能保持下去的话我觉得短点也挺好
-
-
-
-
-
 
 
 -----
@@ -23167,16 +14758,10 @@ Q娃春映画和小魔女的剧场在之后也能释放出来很多的资源，�
 ##### 1207#       发表于 2020-2-18 19:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46451899&amp;ptid=1860852" target="_blank">Tomorrow_D 发表于 2020-2-18 16:08</a>
 
 今年打戏真不建议抱太高期待，今年东A社内的项目很多，社内资源会非常分散。期待放低可能会有惊喜，期待太 ...</blockquote>
 并不好说，数码DM重启接鬼太郎的档期，社内资源分配不均的现状可能加剧。
-
-
-
-
-
 
 
 -----
@@ -23185,21 +14770,13 @@ Q娃春映画和小魔女的剧场在之后也能释放出来很多的资源，�
 ##### 1208#       发表于 2020-2-18 21:08
 
 
-
-
 怎么突然少了四页<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  HGCG3  
 ##### 1209#       发表于 2020-2-19 06:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46454501&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-2-18 21:08</a>
@@ -23212,18 +14789,10 @@ Q娃春映画和小魔女的剧场在之后也能释放出来很多的资源，�
 谁能看一下少了哪几页？
 
 
-
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 1210#       发表于 2020-2-19 11:53
-
-
 
 
 蓝变身作画比粉好
@@ -23231,16 +14800,10 @@ Q娃春映画和小魔女的剧场在之后也能释放出来很多的资源，�
 黄会不会更好？
 
 
-
-
-
-
-
 -----
 
 ####  catenary  
 ##### 1211#       发表于 2020-2-19 13:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46459447&amp;ptid=1860852" target="_blank">达达葱2 发表于 2020-02-19 11:53:20</a>
@@ -23251,16 +14814,10 @@ Q娃春映画和小魔女的剧场在之后也能释放出来很多的资源，�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  mchan  
 ##### 1212#       发表于 2020-2-19 19:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46451899&amp;ptid=1860852" target="_blank">Tomorrow_D 发表于 2020-2-18 16:08</a>
@@ -23269,16 +14826,10 @@ Q娃春映画和小魔女的剧场在之后也能释放出来很多的资源，�
 板冈锦似乎是打戏特长？抱 Q 第 37 回那个 43 秒的一镜到底打戏就是板冈的原画，而那一段原本是切了 15 个分镜的。（那一回说是三人原画，其实是个事实上的青山回。板冈的贡献就是这 43 秒，还有一位也就在 B part 贡献了二三十秒。）
 
 
-
-
-
-
-
 -----
 
 ####  mchan  
 ##### 1213#       发表于 2020-2-19 19:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46457397&amp;ptid=1860852" target="_blank">HGCG3 发表于 2020-2-19 06:15</a>
@@ -23291,26 +14842,14 @@ Q娃春映画和小魔女的剧场在之后也能释放出来很多的资源，�
 有些人似乎是发帖被清空了。（我就中招了。）
 
 
-
-
-
-
-
 -----
 
 ####  最强惠酱  
 ##### 1214#       发表于 2020-2-20 02:07
 
 
-
-
 推特看到个四格，下一话带拿铁去医院会不会被推荐做去势手术<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 https://twitter.com/KuritoAzumagi/status/1226776010781126656?s=19
-
-
-
-
-
 
 
 -----
@@ -23319,14 +14858,7 @@ https://twitter.com/KuritoAzumagi/status/1226776010781126656?s=19
 ##### 1215#       发表于 2020-2-20 06:56
 
 
-
-
 顺便现在是不是新浪图床彻底不能用了？
-
-
-
-
-
 
 
 -----
@@ -23335,21 +14867,13 @@ https://twitter.com/KuritoAzumagi/status/1226776010781126656?s=19
 ##### 1216#       发表于 2020-2-20 11:07
 
 
-
-
 没有不能用吧
-
-
-
-
-
 
 
 -----
 
 ####  Sliurus  
 ##### 1217#       发表于 2020-2-20 11:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46467048&amp;ptid=1860852" target="_blank">最强惠酱 发表于 2020-02-20 02:07:42</a>
@@ -23360,13 +14884,9 @@ https://twitter.com/KuritoAzumagi/status/12 ...</blockquote>震惊！治愈动�
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -23376,19 +14896,13 @@ https://twitter.com/KuritoAzumagi/status/12 ...</blockquote>震惊！治愈动�
 | 最强惠酱| + 1|思路广|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  mchan  
 ##### 1218#       发表于 2020-2-20 14:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46467048&amp;ptid=1860852" target="_blank">最强惠酱 发表于 2020-2-20 02:07</a>
@@ -23399,26 +14913,15 @@ https://twitter.com/KuritoAzumagi/st ...</blockquote>
 如果没记错的话，这种手术的前提条件是宠物要先到特定年龄，否则贸然去势会影响其身体成长。拿铁还小，应该轮不到吧。
 
 
-
-
-
-
-
 -----
 
 ####  渡边菌  
 ##### 1219#       发表于 2020-2-21 06:07
 
 
-
  本帖最后由 渡边菌 于 2020-2-21 06:09 编辑 
 
 入坑了Q娃消消乐的手游，楼里有人加个好友么？ID是3hts27。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23427,14 +14930,7 @@ https://twitter.com/KuritoAzumagi/st ...</blockquote>
 ##### 1220#       发表于 2020-2-21 12:29
 
 
-
-
 消消乐太肝了运营又抠门，反正我是被劝退了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23443,15 +14939,9 @@ https://twitter.com/KuritoAzumagi/st ...</blockquote>
 ##### 1221#       发表于 2020-2-21 12:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46479655&amp;ptid=1860852" target="_blank">reficul 发表于 2020-2-21 12:29</a>
 消消乐太肝了运营又抠门，反正我是被劝退了不过我这头像还是偷的游戏里的SSR马琳 ...</blockquote>
 有人有消消乐的全卡截图或者拆包图吗？
-
-
-
-
-
 
 
 -----
@@ -23460,16 +14950,10 @@ https://twitter.com/KuritoAzumagi/st ...</blockquote>
 ##### 1222#       发表于 2020-2-21 12:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46479708&amp;ptid=1860852" target="_blank">王留美 发表于 2020-2-21 12:34</a>
 
 有人有消消乐的全卡截图或者拆包图吗？</blockquote>
 你需要上攻略wiki找，全肯定全，是否足够清晰就不一定了
-
-
-
-
-
 
 
 -----
@@ -23478,15 +14962,9 @@ https://twitter.com/KuritoAzumagi/st ...</blockquote>
 ##### 1223#       发表于 2020-2-21 14:50
 
 
-
 <blockquote>王留美 发表于 2020-2-21 12:34
 有人有消消乐的全卡截图或者拆包图吗？</blockquote>
 简单拆包不一定有效。但要是有人抽出过你想要的卡，也许可以从他的手机里找到你要的图。
-
-
-
-
-
 
 
 -----
@@ -23495,15 +14973,8 @@ https://twitter.com/KuritoAzumagi/st ...</blockquote>
 ##### 1224#       发表于 2020-2-22 09:21
 
 
-
-
 有男同学跟踪和佳……？
 <img src="http://wx2.sinaimg.cn/mw690/e7cbae74gy1gc4etfe40tj21190s7tiz.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23512,16 +14983,10 @@ https://twitter.com/KuritoAzumagi/st ...</blockquote>
 ##### 1225#       发表于 2020-2-22 09:25
 
 
-
  本帖最后由 nerugigannte 于 2020-2-22 09:28 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说好的妈q呢，咋一上来黄战士就和蓝战士闹矛盾，母系的包容力呢!反正不会是争抚养权
 <img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">这么早就出来男同学，关系一定不简单，今年的药味又上来了，我好兴奋啊啊啊啊啊啊！
-
-
-
-
-
 
 
 -----
@@ -23530,14 +14995,7 @@ https://twitter.com/KuritoAzumagi/st ...</blockquote>
 ##### 1226#       发表于 2020-2-22 09:33
 
 
-
-
 毕竟蓝黄性格反差巨大，最后妥妥是需要团宠粉来调和
-
-
-
-
-
 
 
 -----
@@ -23546,14 +15004,7 @@ https://twitter.com/KuritoAzumagi/st ...</blockquote>
 ##### 1227#       发表于 2020-2-22 11:02
 
 
-
-
 比较好奇是因为一个正经一个吊儿郎当导致理念不合还是为了争和佳使其互相争风吃醋<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23562,14 +15013,7 @@ https://twitter.com/KuritoAzumagi/st ...</blockquote>
 ##### 1228#       发表于 2020-2-22 11:11
 
 
-
-
 跟踪粉主的男同学 我突然想起那个盯着花花舔过的苹果糖的那位了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23578,14 +15022,7 @@ https://twitter.com/KuritoAzumagi/st ...</blockquote>
 ##### 1229#       发表于 2020-2-22 11:35
 
 
-
-
 感觉q娃男同学里能追到q娃的很少，大搞bg的几部好像男方都不是学生。城司最后不知道算不算泡到魔神爱，算的话就是男同学的榜样了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23594,15 +15031,9 @@ https://twitter.com/KuritoAzumagi/st ...</blockquote>
 ##### 1230#       发表于 2020-2-22 11:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46488544&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-2-22 11:35</a>
 感觉q娃男同学里能追到q娃的很少，大搞bg的几部好像男方都不是学生。城司最后不知道算不算泡到魔神爱，算的 ...</blockquote>
 我觉得泡到了，mirage也泡到了渣蓝。（心以为不服，比新《白雪姬传说》的災妃“贵子”和忠犬“细”low到不知道多少去了）。
-
-
-
-
-
 
 
 -----
@@ -23611,16 +15042,10 @@ https://twitter.com/KuritoAzumagi/st ...</blockquote>
 ##### 1231#       发表于 2020-2-22 11:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46488566&amp;ptid=1860852" target="_blank">cmyk1234 发表于 2020-2-22 11:38</a>
 
 我觉得泡到了，mirage也泡到了渣蓝。（心以为不服，比新《白雪姬传说》的災妃“贵子”和忠犬“细”low到 ...</blockquote>
 我记得智障staff出来补刀说惠对诚司是亲情
-
-
-
-
-
 
 
 -----
@@ -23629,16 +15054,10 @@ https://twitter.com/KuritoAzumagi/st ...</blockquote>
 ##### 1232#       发表于 2020-2-22 11:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46488632&amp;ptid=1860852" target="_blank">風駿 发表于 2020-2-22 11:46</a>
 
 我记得智障staff出来补刀说惠对诚司是亲情</blockquote>
 就这点来说，这群staff确实智障到没谱。
-
-
-
-
-
 
 
 -----
@@ -23647,21 +15066,13 @@ https://twitter.com/KuritoAzumagi/st ...</blockquote>
 ##### 1233#       发表于 2020-2-22 17:58
 
 
-
 <img src="https://p.sda1.dev/0/6f1b4de0c7947019a5157c47a41984d0/2020-02-22_17-57-21.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  leleq  
 ##### 1234#       发表于 2020-2-22 18:20
-
-
 
 
 在隔壁看了日本骚操作 看来日本是跑不了了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -23672,27 +15083,15 @@ https://twitter.com/KuritoAzumagi/st ...</blockquote>
 XX已经很努力了我们不要添乱了吓到小友家长就糟了or我们要给病痛中的大家带来希望全力以赴吧 成败就在一念间
 
 
-
-
-
-
-
 -----
 
 ####  catenary  
 ##### 1235#       发表于 2020-2-22 18:22
 
 
-
-
 一年没吃药，还是有点怀念药味的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -23701,23 +15100,16 @@ XX已经很努力了我们不要添乱了吓到小友家长就糟了or我们要�
 ##### 1236#       发表于 2020-2-22 18:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46488632&amp;ptid=1860852" target="_blank">風駿 发表于 2020-2-22 11:46</a>
 
 我记得智障staff出来补刀说惠对诚司是亲情</blockquote>
 不久前某读黄书的少女们里不就表示想婚想一起生活下去的都是亲情的感觉，和只馋身子不同
 
 
-
-
-
-
-
 -----
 
 ####  mchan  
 ##### 1237#       发表于 2020-2-22 19:05
-
 
 
 <blockquote>Sliurus 发表于 2020-2-22 11:35
@@ -23728,16 +15120,10 @@ XX已经很努力了我们不要添乱了吓到小友家长就糟了or我们要�
 我倒想知道花咲空是怎么届到花朵天使的，两人原本是什么关系。（抓心，汁波蜜的爷爷奶奶。）
 
 
-
-
-
-
-
 -----
 
 ####  mchan  
 ##### 1238#       发表于 2020-2-22 19:07
-
 
 
 <blockquote>catenary 发表于 2020-2-22 18:22
@@ -23748,16 +15134,10 @@ XX已经很努力了我们不要添乱了吓到小友家长就糟了or我们要�
 拥抱药味大吗？虽说专楼很高。
 
 
-
-
-
-
-
 -----
 
 ####  nerugigannte  
 ##### 1239#       发表于 2020-2-22 19:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46492493&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-22 19:07</a>
@@ -23766,25 +15146,14 @@ XX已经很努力了我们不要添乱了吓到小友家长就糟了or我们要�
 身处在lgbt漩涡中的阿誉，故作坚强的阿花，从头到尾的社花戏份，bg方面药量还是挺足的
 
 
-
-
-
-
-
 -----
 
 ####  王留美  
 ##### 1240#       发表于 2020-2-22 20:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46491869&amp;ptid=1860852" target="_blank">lyflyflxf 发表于 2020-2-22 17:58</a></blockquote>
 悄无声息混进来的犬科……
-
-
-
-
-
 
 
 -----
@@ -23793,16 +15162,10 @@ XX已经很努力了我们不要添乱了吓到小友家长就糟了or我们要�
 ##### 1241#       发表于 2020-2-22 20:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46492493&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-22 19:07</a>
 
 拥抱药味大吗？虽说专楼很高。</blockquote>
 没有药哪来的高楼
-
-
-
-
-
 
 
 -----
@@ -23811,16 +15174,10 @@ XX已经很努力了我们不要添乱了吓到小友家长就糟了or我们要�
 ##### 1242#       发表于 2020-2-22 21:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46492480&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-22 19:05</a>
 
 诚司应该是届到魔神爱了：前脚两人都说会把蓝神给的珠子交给喜欢的人，后脚一个镜头就是两个珠子放在一起 ...</blockquote>
 薰子奶奶旧姓五代，是哪方A上去还说不准呢？
-
-
-
-
-
 
 
 -----
@@ -23829,16 +15186,10 @@ XX已经很努力了我们不要添乱了吓到小友家长就糟了or我们要�
 ##### 1243#       发表于 2020-2-22 21:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46493300&amp;ptid=1860852" target="_blank">王留美 发表于 2020-2-22 20:32</a>
 
 悄无声息混进来的犬科……</blockquote>
 说明是气管炎<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23847,15 +15198,9 @@ XX已经很努力了我们不要添乱了吓到小友家长就糟了or我们要�
 ##### 1244#       发表于 2020-2-22 22:19
 
 
-
 <blockquote>cmyk1234 发表于 2020-2-22 21:44
 薰子奶奶旧姓五代，是哪方A上去还说不准呢？</blockquote>
 光靠姓氏很难判断哪方 A 上去。日本有婚后妇随夫姓的习俗，与攻受无关。
-
-
-
-
-
 
 
 -----
@@ -23864,15 +15209,9 @@ XX已经很努力了我们不要添乱了吓到小友家长就糟了or我们要�
 ##### 1245#       发表于 2020-2-22 22:20
 
 
-
 <blockquote>王留美 发表于 2020-2-22 20:32
 悄无声息混进来的犬科……</blockquote>
 上北是配对（百合？）厨，紫猫红狗从没拆过。
-
-
-
-
-
 
 
 -----
@@ -23881,15 +15220,9 @@ XX已经很努力了我们不要添乱了吓到小友家长就糟了or我们要�
 ##### 1246#       发表于 2020-2-22 22:25
 
 
-
 <blockquote>nerugigannte 发表于 2020-2-22 19:10
 身处在lgbt漩涡中的阿誉，故作坚强的阿花，从头到尾的社花戏份，bg方面药量还是挺足的 ...</blockquote>
 阿誉 LGBT？她似乎是直的啊（虽说安理是直是弯难说，仓鼠肯定是直的。）花花的确药哗哗的来，不过全体老父亲也算是药性的一种？
-
-
-
-
-
 
 
 -----
@@ -23898,16 +15231,10 @@ XX已经很努力了我们不要添乱了吓到小友家长就糟了or我们要�
 ##### 1247#       发表于 2020-2-22 22:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46492493&amp;ptid=1860852" target="_blank">mchan 发表于 2020-02-22 19:07:00</a>
 拥抱药味大吗？虽说专楼很高。</blockquote>拥抱中期专楼都开始制假药了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -23916,23 +15243,16 @@ XX已经很努力了我们不要添乱了吓到小友家长就糟了or我们要�
 ##### 1248#       发表于 2020-2-22 22:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46494363&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-22 22:25</a>
 
 阿誉 LGBT？她似乎是直的啊（虽说安理是直是弯难说，仓鼠肯定是直的。）花花的确药哗哗的来，不过全体老 ...</blockquote>
 阿誉不是喜欢的人和发小都是gay吗，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以药性很足很惨。全体老父亲ptsd肯定是药性的一种
 
 
-
-
-
-
-
 -----
 
 ####  mchan  
 ##### 1249#       发表于 2020-2-22 22:34
-
 
 
 <blockquote>nerugigannte 发表于 2020-2-22 22:28
@@ -23942,26 +15262,15 @@ XX已经很努力了我们不要添乱了吓到小友家长就糟了or我们要�
 喜欢的人是哈利，虽说本体是仓鼠，但再怎么说都是雄的，而且女友是抱碳所以也是直的。从阿誉视角她还是直的，最多算半个人兽罢了，只不过哈利已经心有所属没有届到。
 
 
-
-
-
-
-
 -----
 
 ####  mwj  
 ##### 1250#       发表于 2020-2-22 22:39
 
 
-
 <blockquote>nerugigannte 发表于 2020-2-22 22:28
 阿誉不是喜欢的人和发小都是gay吗，所以药性很足很惨。全体老父亲ptsd肯定是药性的一种 ...</blockquote>
 算起来lgbt应该是小学生吧，哥是gay，自身是拉拉还是人机恋，q娃伙伴有人兽恋，要素比誉多多了。
-
-
-
-
-
 
 
 -----
@@ -23970,15 +15279,9 @@ XX已经很努力了我们不要添乱了吓到小友家长就糟了or我们要�
 ##### 1251#       发表于 2020-2-22 22:59
 
 
-
 <blockquote>mwj 发表于 2020-2-22 22:39
 算起来lgbt应该是小学生吧，哥是gay，自身是拉拉还是人机恋，q娃伙伴有人兽恋，要素比誉多多了。 ...</blockquote>
 再 LGBT 都比不上魔法使吧？那个直接就是两对百合一对基，BG 配对都可以随便拆的。
-
-
-
-
-
 
 
 -----
@@ -23987,13 +15290,7 @@ XX已经很努力了我们不要添乱了吓到小友家长就糟了or我们要�
 ##### 1252#       发表于 2020-2-23 02:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我一直觉得社长配不上花花，社花PTSD
-
-
-
-
-
 
 
 -----
@@ -24002,16 +15299,10 @@ XX已经很努力了我们不要添乱了吓到小友家长就糟了or我们要�
 ##### 1253#       发表于 2020-2-23 03:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46495954&amp;ptid=1860852" target="_blank">shirakawahotaru 发表于 2020-02-23 02:05:21</a>
 我一直觉得社长配不上花花，社花PTSD</blockquote>觉得社花配的我觉得脑子都有问题（暴论<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -24020,23 +15311,15 @@ XX已经很努力了我们不要添乱了吓到小友家长就糟了or我们要�
 ##### 1254#       发表于 2020-2-23 04:44
 
 
-
-
 Boss社长那毕竟是死了老婆，势必要扭曲一点，要不然谁当Boss啊...死了老婆然后调戏社员，其实问题也没那么大。问题还是出在他非要泡初中生版本的花花...
 
 花花时间线上的社长没有经历过那些破事，应该还是个好老公好老爸的。
-
-
-
-
-
 
 
 -----
 
 ####  風駿  
 ##### 1255#       发表于 2020-2-23 07:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46496107&amp;ptid=1860852" target="_blank">杂灰 发表于 2020-2-23 03:05</a>
@@ -24048,33 +15331,19 @@ Boss社长那毕竟是死了老婆，势必要扭曲一点，要不然谁当Boss
 不算暴论，纯粹你不愿意面对现实无能狂怒罢了
 
 
-
-
-
-
-
 -----
 
 ####  最强惠酱  
 ##### 1256#       发表于 2020-2-23 07:26
 
 
-
-
 我觉得社长和同期evolto殊途同归，只不过e总缺了个苦大仇深的动机使其看起来更屑罢了
-
-
-
-
-
 
 
 -----
 
 ####  DARK_HGCG  
 ##### 1257#       发表于 2020-2-23 07:57
-
-
 
 
 逗比黄 ​​​​
@@ -24115,25 +15384,13 @@ Boss社长那毕竟是死了老婆，势必要扭曲一点，要不然谁当Boss
 <img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gc605qwx41j21400miqv5.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  風駿  
 ##### 1258#       发表于 2020-2-23 08:04
 
 
-
-
 阿黄太可爱了，结果根本不妈，反而是个很勇的女儿
-
-
-
-
-
 
 
 -----
@@ -24142,14 +15399,7 @@ Boss社长那毕竟是死了老婆，势必要扭曲一点，要不然谁当Boss
 ##### 1259#       发表于 2020-2-23 08:10
 
 
-
-
 净化✔打倒X
-
-
-
-
-
 
 
 -----
@@ -24158,14 +15408,7 @@ Boss社长那毕竟是死了老婆，势必要扭曲一点，要不然谁当Boss
 ##### 1260#       发表于 2020-2-23 08:37
 
 
-
-
 日向预想中的可爱，只是开头牵手拉进房间这段太姬了，不向爸爸介绍下女朋友吗和佳<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24174,14 +15417,7 @@ Boss社长那毕竟是死了老婆，势必要扭曲一点，要不然谁当Boss
 ##### 1261#       发表于 2020-2-23 08:38
 
 
-
-
 石锤了，小日向就是女朋友属性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24190,16 +15426,10 @@ Boss社长那毕竟是死了老婆，势必要扭曲一点，要不然谁当Boss
 ##### 1262#       发表于 2020-2-23 08:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46496501&amp;ptid=1860852" target="_blank">DARK_HGCG 发表于 2020-2-23 07:57</a>
 
 逗比黄 ​​​​</blockquote>
 啊我死了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24208,14 +15438,7 @@ Boss社长那毕竟是死了老婆，势必要扭曲一点，要不然谁当Boss
 ##### 1263#       发表于 2020-2-23 09:07
 
 
-
-
 这是黄bank地位最低的一次吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24224,15 +15447,9 @@ Boss社长那毕竟是死了老婆，势必要扭曲一点，要不然谁当Boss
 ##### 1264#       发表于 2020-2-23 09:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46496725&amp;ptid=1860852" target="_blank">噗哩噗 发表于 2020-2-23 09:07</a>
 这是黄bank地位最低的一次吗</blockquote>
 个人认为阿誉的最差
-
-
-
-
-
 
 
 -----
@@ -24241,21 +15458,13 @@ Boss社长那毕竟是死了老婆，势必要扭曲一点，要不然谁当Boss
 ##### 1265#       发表于 2020-2-23 09:22
 
 
-
-
 当前三人bank本质上是同水准的
-
-
-
-
-
 
 
 -----
 
 ####  nerugigannte  
 ##### 1266#       发表于 2020-2-23 09:30
-
 
 
  本帖最后由 nerugigannte 于 2020-2-23 09:35 编辑 
@@ -24269,15 +15478,8 @@ Boss社长那毕竟是死了老婆，势必要扭曲一点，要不然谁当Boss
 这幕总有一股熟悉的感觉
 
 
-
-
-
-
-
 W19YVF4V@P(UH9SH~JPO8CR.png
 (1.56 MB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -24286,24 +15488,7 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 2020-2-23 09:30 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202002/23/093008wek3u48ow03vqiri.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -24312,14 +15497,7 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 ##### 1267#       发表于 2020-2-23 09:43
 
 
-
-
 据说黄日向的变身bank是光田史亮做的，求证实
-
-
-
-
-
 
 
 -----
@@ -24328,14 +15506,7 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 ##### 1268#       发表于 2020-2-23 11:15
 
 
-
-
 今年的演出有回归抱Q的意思，叙事想走抓心的套路
-
-
-
-
-
 
 
 -----
@@ -24344,16 +15515,9 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 ##### 1269#       发表于 2020-2-23 11:51
 
 
-
-
 四集过后我觉得可以吹爆了，如果能保持到中局，然后解决中后期疲软的老问题，进第一梯队也不是不可能
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -24362,22 +15526,13 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 ##### 1270#       发表于 2020-2-23 12:14
 
 
-
-
 感觉这次黄毛快变成剧本组亲女儿了。热情，冒失，跳脱，爱美，她的形象比其他两人更鲜明，而且也只用了一集。截至目前，今年的STAFF的表现很让我惊喜
-
-
-
-
-
 
 
 -----
 
 ####  rar1536770  
 ##### 1271#       发表于 2020-2-23 13:17
-
-
 
 
 太好看了太好看了太好看了！
@@ -24387,16 +15542,10 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 希望继续保持这种水平，10年出了个抓心，20年出个治愈就更好了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  真红眼教授  
 ##### 1272#       发表于 2020-2-23 13:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46496835&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-2-23 09:30</a>
@@ -24407,17 +15556,10 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 月球名画艹<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 1273#       发表于 2020-2-23 13:29
-
-
 
 
 日向前面还好，后面小怪袭击的时候还笑嘻嘻感觉塑造得用力过猛了，好像cpu不行只能一次运行一个程序一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，粉蓝有种老母亲的感觉。
@@ -24429,17 +15571,10 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 下集看起来矛盾也不够激烈啊，估计又是产生误会，其实大家都是好孩子的剧情。
 
 
-
-
-
-
-
-
 -----
 
 ####  mchan  
 ##### 1274#       发表于 2020-2-23 13:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46488632&amp;ptid=1860852" target="_blank">風駿 发表于 2020-2-22 11:46</a>
@@ -24448,17 +15583,10 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 这就更加是届到了。长久的婚姻最重要的是要能从以爱情维系转成以亲情维系，现在诚司和魔神爱已经做到这一点，我也只能说一句祝福了。
 
 
-
-
-
-
-
 -----
 
 ####  catenary  
 ##### 1275#       发表于 2020-2-23 13:47
-
-
 
 
 和佳其实是弱气版的未来啊，尤其第二集哭腔那段，和剧场版未来开歇斯底里模式有点像
@@ -24466,16 +15594,10 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  小倉朝日  
 ##### 1276#       发表于 2020-2-23 14:43
-
 
 
  本帖最后由 小倉朝日 于 2020-2-23 14:45 编辑 
@@ -24495,22 +15617,10 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 2020-2-23 14:44 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  吹雪桑大胜利  
 ##### 1277#       发表于 2020-2-23 14:44
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202002/23/144354egr1u9or4oe1rkk4.png" referrerpolicy="no-referrer">
@@ -24523,24 +15633,13 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 2020-2-23 14:43 上传
 
 
-
-
-
-
 这一分屏，和香真就成竖中指了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  吹雪桑大胜利  
 ##### 1278#       发表于 2020-2-23 14:46
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202002/23/144531i885nloiiwwjjawg.png" referrerpolicy="no-referrer">
@@ -24553,9 +15652,6 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 2020-2-23 14:45 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/202002/23/144531t3h1ntdhhe9xp67h.png" referrerpolicy="no-referrer">
 
 
@@ -24566,25 +15662,13 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 2020-2-23 14:45 上传
 
 
-
-
-
-
-
 日向的特征就是猫嘴啊
-
-
-
-
-
 
 
 -----
 
 ####  吹雪桑大胜利  
 ##### 1279#       发表于 2020-2-23 14:48
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202002/23/144728whraoepih4qo94hr.png" referrerpolicy="no-referrer">
@@ -24597,9 +15681,6 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 2020-2-23 14:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/202002/23/144729hr5gg6z4658erh5u.png" referrerpolicy="no-referrer">
 
 
@@ -24608,9 +15689,6 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 下载附件
 
 2020-2-23 14:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202002/23/144729v7p8c8jcjhlzgpgc.png" referrerpolicy="no-referrer">
@@ -24623,21 +15701,9 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 2020-2-23 14:47 上传
 
 
-
-
-
-
-
-
-
 一开口就是打倒，老光美了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 净化（指用天堂地狱破来heart catch）
-
-
-
-
-
 
 
 -----
@@ -24646,16 +15712,9 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 ##### 1280#       发表于 2020-2-23 14:53
 
 
-
-
 目前感官还是挺无敌的，很多桥段都很新颖。
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -24664,22 +15723,14 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 ##### 1281#       发表于 2020-2-23 15:32
 
 
-
-
 这集超好看啊！日向好可爱。
 就是这部变身的bank太短了。
-
-
-
-
-
 
 
 -----
 
 ####  仔羊たちの聖夜  
 ##### 1282#       发表于 2020-2-23 15:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46496835&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-2-23 09:30</a>
@@ -24689,26 +15740,14 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 你就是我的光美搭档吗？<img src="https://static.saraba1st.com/image/smiley/carton2017/075.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  粉儿alice  
 ##### 1283#       发表于 2020-2-23 15:58
 
 
-
-
 今年变身兼卡不行呀<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 元素精灵cv梗破除了
-
-
-
-
-
 
 
 -----
@@ -24717,14 +15756,7 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 ##### 1284#       发表于 2020-2-23 16:01
 
 
-
-
 得亏淫兽不会变帅哥，我觉得今年这只猫还挺会撩的<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24733,14 +15765,7 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 ##### 1285#       发表于 2020-2-23 16:08
 
 
-
-
 说句可能得罪人的话，黄毛性格塑造我觉得是更媚宅而不是更鲜明，哐哐哐贴了几个标签，虽然够drama但只是对阳光小美女刻板印象的堆砌，很难让我把要素联系在一个真正的人身上。不过我一直都对媚宅位的黄没什么好感，这可能只是日本文化的一部分，我没办法认可
-
-
-
-
-
 
 
 -----
@@ -24749,16 +15774,10 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 ##### 1286#       发表于 2020-2-23 16:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46499801&amp;ptid=1860852" target="_blank">噗哩噗 发表于 2020-2-23 16:08</a>
 说句可能得罪人的话，黄毛性格塑造我觉得是更媚宅而不是更鲜明，哐哐哐贴了几个标签，虽然够drama但只是对 ...</blockquote>
 我连续三年没有对黄战士好感过了
 希望她别成为第四个
-
-
-
-
-
 
 
 -----
@@ -24767,23 +15786,16 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 ##### 1287#       发表于 2020-2-23 16:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46499801&amp;ptid=1860852" target="_blank">噗哩噗 发表于 2020-02-23 16:08:06</a>
 说句可能得罪人的话，黄毛性格塑造我觉得是更媚宅而不是更鲜明，哐哐哐贴了几个标签，虽然够drama但只是对 ...</blockquote>媚宅（x）媚幼女（✓）小友可比大人更看重这些浮夸的要素<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  lyflyflxf  
 ##### 1288#       发表于 2020-2-23 17:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46499748&amp;ptid=1860852" target="_blank">粉儿alice 发表于 2020-2-23 15:58</a>
@@ -24794,17 +15806,10 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 兼用卡不行说不定是好事，能将更多的资源用在战斗的作画上
 
 
-
-
-
-
-
 -----
 
 ####  华发夜眼[CN]  
 ##### 1289#       发表于 2020-2-23 18:05
-
-
 
 
 这次应该是仅次于微笑的人间体我都非常喜欢的q娃了。
@@ -24814,16 +15819,10 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 就是黄战士这绿色眼影+裤子我有点接受不了。
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 1290#       发表于 2020-2-23 18:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46496835&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-2-23 09:30</a>
@@ -24841,17 +15840,10 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 比如猫猫变身拳套武装起来等等，再不济召唤个索斯机械兽坐上去之类。
 
 
-
-
-
-
-
 -----
 
 ####  catenary  
 ##### 1291#       发表于 2020-2-23 18:09
-
-
 
 
 今年变身我倒挺喜欢的，差不多是鹫尾p时代简短有力量感的变身模式
@@ -24864,17 +15856,10 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  catenary  
 ##### 1292#       发表于 2020-2-23 18:13
-
-
 
 
 今年精灵的设定比往常更好，确实是在参与战斗
@@ -24884,26 +15869,14 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  DARK_HGCG  
 ##### 1293#       发表于 2020-2-23 18:40
 
 
-
-
 のどか、のどかわいちゃった
 <img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gc6irs4wlbj21400mikjl.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24912,22 +15885,15 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 ##### 1294#       发表于 2020-2-23 19:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46500989&amp;ptid=1860852" target="_blank">DARK_HGCG 发表于 2020-2-23 18:40</a>
 のどか、のどかわいちゃった</blockquote>
 搞笑艺人的潜质
-
-
-
-
-
 
 
 -----
 
 ####  天邪鬼  
 ##### 1295#       发表于 2020-2-23 19:15
-
 
 
  本帖最后由 天邪鬼 于 2020-2-23 19:58 编辑 
@@ -24940,25 +15906,13 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 再说这种吵闹的黄色至少不会影薄了。不然性格再真实，观众看不到，听不到，感受不到也没用
 
 
-
-
-
-
-
 -----
 
 ####  mchan  
 ##### 1296#       发表于 2020-2-23 19:33
 
 
-
-
 这次会不会又像心跳那样半途妖精得到变人形的能力？这次的妖精是一雌二雄，要是有一个男角跟和香配对的话，加上两个人形妖精可以全员 BG 配啊……（战队 555 既视感，三个雄妖精全都和 Q 娃配对了。）
-
-
-
-
-
 
 
 -----
@@ -24967,21 +15921,13 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 ##### 1297#       发表于 2020-2-23 19:34
 
 
-
-
 一上来贴几个特征鲜明的标签又不是坏事，之后不能把角色立起来只会原地踏步那才是坏事
-
-
-
-
-
 
 
 -----
 
 ####  nerugigannte  
 ##### 1298#       发表于 2020-2-23 19:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46501453&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-23 19:33</a>
@@ -24996,31 +15942,19 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 成了！这样一看兔子有点可怜
 
 
-
-
-
-
-
 -----
 
 ####  傲娇的章鱼  
 ##### 1299#       发表于 2020-2-23 19:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">今年女人好好看啊，有回归传统的感觉。希望不会受疫情影响，不要输给现实的病毒啊precure！
-
-
-
-
-
 
 
 -----
 
 ####  Sliurus  
 ##### 1300#       发表于 2020-2-23 19:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46501522&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-2-23 19:40</a>
@@ -25033,25 +15967,13 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 男同学这种存在胜率估计还不如反派正太，想想历代有多少喜欢粉主的男同学吧
 
 
-
-
-
-
-
 -----
 
 ####  最强惠酱  
 ##### 1301#       发表于 2020-2-23 20:00
 
 
-
-
 我看好日向哥，他实在是帅<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25060,16 +15982,10 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 ##### 1302#       发表于 2020-2-23 20:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46501667&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-2-23 19:57</a>
 
 男同学这种存在胜率估计还不如反派正太，想想历代有多少喜欢粉主的男同学吧 ...</blockquote>
 来个像水果那样的胃口吊到最后也行，<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">正太太帅了我不同意！
-
-
-
-
-
 
 
 -----
@@ -25078,16 +15994,10 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 ##### 1303#       发表于 2020-2-23 20:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46501726&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-2-23 20:03</a>
 
 来个像水果那样的胃口吊到最后也行，正太太帅了我不同意！</blockquote>
 我觉得日向哥比较帅，反派正太都长得太嫩了没感觉
-
-
-
-
-
 
 
 -----
@@ -25096,15 +16006,9 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 ##### 1304#       发表于 2020-2-23 20:37
 
 
-
 <blockquote>吹雪桑大胜利 发表于 2020-2-23 14:46
 日向的特征就是猫嘴啊</blockquote>
 太可爱了啊啊啊啊啊啊啊
-
-
-
-
-
 
 
 -----
@@ -25113,14 +16017,7 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 ##### 1305#       发表于 2020-2-23 21:38
 
 
-
-
 元素精灵的CV还真是一集换一个
-
-
-
-
-
 
 
 -----
@@ -25129,16 +16026,10 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 ##### 1306#       发表于 2020-2-23 21:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46502603&amp;ptid=1860852" target="_blank">leghorn00 发表于 2020-2-23 21:38</a>
 
 元素精灵的CV还真是一集换一个</blockquote>
 这集的光和第一集的花是同一个CV好吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25147,24 +16038,16 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 ##### 1307#       发表于 2020-2-23 21:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46499801&amp;ptid=1860852" target="_blank">噗哩噗 发表于 2020-2-23 16:08</a>
 
 说句可能得罪人的话，黄毛性格塑造我觉得是更媚宅而不是更鲜明，哐哐哐贴了几个标签，虽然够drama但只是对 ...</blockquote>
 去年的伦伦怪更媚宅呢 人家人气第一 事实是小友也喜欢这种鲜明的角色 大友喜欢小友喜欢那只能这么做了啊 
 
 
-
-
-
-
-
 -----
 
 ####  leleq  
 ##### 1308#       发表于 2020-2-23 22:07
-
-
 
 
 这集继续好看 4集了剧本依旧精致 打斗戏还提升了 有戏呀有戏呀<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
@@ -25177,16 +16060,10 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 话说黄 是该叫黄大花么 还是黄闪光呢
 
 
-
-
-
-
-
 -----
 
 ####  moooooonlight  
 ##### 1309#       发表于 2020-2-23 22:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46499801&amp;ptid=1860852" target="_blank">噗哩噗 发表于 2020-02-23 16:08:06</a>
@@ -25195,16 +16072,10 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  leghorn00  
 ##### 1310#       发表于 2020-2-23 22:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46502745&amp;ptid=1860852" target="_blank">風駿 发表于 2020-2-23 21:53</a>
@@ -25213,17 +16084,10 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 没表述清楚，看完前三集我以为精灵每种类型用一个人，后面再有花元素就都是花守配，然后Q娃仨人分别负责净化一种属性，粉对植物，蓝对自然元素，黄对动物。看来是想多了，就是找几个人然后每集换着用而已。
 
 
-
-
-
-
-
 -----
 
 ####  太阳灿灿  
 ##### 1311#       发表于 2020-2-23 22:27
-
-
 
 
 今年感觉设定挺严谨的，精灵确实是战友了，精灵实力感觉也会影响Q娃，按粉兔子的说法，人间体强的应该变身后也强，但事实上人间体最强的黑毛一直吃瘪，看来企鹅说自己会拖后腿并不只是说说而已
@@ -25231,16 +16095,10 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 1312#       发表于 2020-2-23 22:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46502855&amp;ptid=1860852" target="_blank">leleq 发表于 2020-2-23 22:07</a>
@@ -25255,16 +16113,10 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 那蓝毛叫芳汀，粉主叫古雷斯？听起来很有味道<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  HGCG-闪  
 ##### 1313#       发表于 2020-2-23 22:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46496913&amp;ptid=1860852" target="_blank">cmyk1234 发表于 2020-2-23 09:43</a>
@@ -25274,31 +16126,19 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gc6q8lnjs2j20dg0kwahi.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  三合一出现  
 ##### 1314#       发表于 2020-2-23 23:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">今天才看第一集，UMB的必杀是天堂地狱破？？？
-
-
-
-
-
 
 
 -----
 
 ####  leleq  
 ##### 1315#       发表于 2020-2-24 00:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46503068&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-2-23 22:33</a>
@@ -25314,16 +16154,10 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 香香 兰芳 大花多好多接地气<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cmyk1234  
 ##### 1316#       发表于 2020-2-24 00:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46503068&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-2-23 22:33</a>
@@ -25334,17 +16168,10 @@ W19YVF4V@P(UH9SH~JPO8CR.png
 Spark Calibur
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1317#       发表于 2020-2-24 00:48
-
-
 
 
 节奏好快，但觉得不错
@@ -25354,25 +16181,13 @@ Spark Calibur
 4集高质量（画得比较稳）过后，下集看起来好像又到了惯例的时候了
 
 
-
-
-
-
-
 -----
 
 ####  渡边菌  
 ##### 1318#       发表于 2020-2-24 01:30
 
 
-
-
 安利没看过q娃的朋友入坑手游结果人两次十连两个五星。轮到我就是一手三星，连个四星都稀罕<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25381,17 +16196,10 @@ Spark Calibur
 ##### 1319#       发表于 2020-2-24 01:40
 
 
-
-
 因为拿着棒子战斗今年基本以踢技为主啊
 
 
 另外黄色反弹被反弹回来的波之后还追加了一个盾击<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25400,14 +16208,7 @@ Spark Calibur
 ##### 1320#       发表于 2020-2-24 03:21
 
 
-
-
 向日葵有点像小南极里名字发音相同的日向。。。性格外形都像，会不会真的有灵感来源？另外我不喜欢黄色的变身后形象。。。太像另一个影棚里的风格了。。。下一话黄蓝闹矛盾？好像会很好看
-
-
-
-
-
 
 
 -----
@@ -25416,16 +16217,10 @@ Spark Calibur
 ##### 1321#       发表于 2020-2-24 09:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46503950&amp;ptid=1860852" target="_blank">三合一出现 发表于 2020-2-23 23:59</a>
 
 今天才看第一集，UMB的必杀是天堂地狱破？？？</blockquote>
 三人的个人必杀都是天堂地狱破
-
-
-
-
-
 
 
 -----
@@ -25434,16 +16229,10 @@ Spark Calibur
 ##### 1322#       发表于 2020-2-24 13:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46505977&amp;ptid=1860852" target="_blank">Blackson 发表于 2020-02-24 09:20:37</a>
 三人的个人必杀都是天堂地狱破</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">她们不都是医生吗！都要掏心？！
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -25452,15 +16241,9 @@ Spark Calibur
 ##### 1323#       发表于 2020-2-24 14:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46508545&amp;ptid=1860852" target="_blank">三合一出现 发表于 2020-02-24 13:22:41</a></blockquote>其实关于这一点很微妙，一般来说现实中切除的都是病变的组织或器官，但是动画里掏的是本体，刚好反过来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -25469,13 +16252,7 @@ Spark Calibur
 ##### 1324#       发表于 2020-2-24 16:52
 
 
-
 <img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gc7bwbvrmbj20sg0fxju3.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25484,21 +16261,13 @@ Spark Calibur
 ##### 1325#       发表于 2020-2-24 18:20
 
 
-
-
 阿葵的性格我太喜欢了，元气满满的真的很让人开心，黄色淫兽的设计我也觉得是御三家里面最出色的，特别的爽朗，没有其他两只个性上那么别扭
-
-
-
-
-
 
 
 -----
 
 ####  mchan  
 ##### 1326#       发表于 2020-2-24 18:29
-
 
 
 <blockquote>HGCG-闪 发表于 2020-2-24 16:52
@@ -25509,25 +16278,13 @@ Spark Calibur
 另外，当年有传闻阿光就是照着成濑女士自己的性格和造型设计的。现在成濑自己染了粉发直接成现实版阿光了。
 
 
-
-
-
-
-
 -----
 
 ####  mchan  
 ##### 1327#       发表于 2020-2-24 18:31
 
 
-
-
 这两个雄淫兽，一个是奶油小生，一个是イケメン，这种配置怎么有点眼熟？
-
-
-
-
-
 
 
 -----
@@ -25536,21 +16293,13 @@ Spark Calibur
 ##### 1328#       发表于 2020-2-24 18:51
 
 
-
-
 这周的片尾找不同好难<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  風駿  
 ##### 1329#       发表于 2020-2-24 19:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46511553&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-24 18:29</a>
@@ -25562,27 +16311,15 @@ Spark Calibur
 粉主这种级别的角色都是先有人设再选声优，哪有反过来的，而且一开始试音还是小原好美试阿光
 
 
-
-
-
-
-
 -----
 
 ####  HGCG-闪  
 ##### 1330#       发表于 2020-2-24 20:09
 
 
-
-
 我突然喜欢上今年的兔子了
 
 不知道是不是因为声优的关系
-
-
-
-
-
 
 
 -----
@@ -25591,20 +16328,13 @@ Spark Calibur
 ##### 1331#       发表于 2020-2-24 22:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">刚看第二集！UMB在樱花下这么一长串对白，说得真有感染力，实力是真的强。
-
-
-
-
-
 
 
 -----
 
 ####  mchan  
 ##### 1332#       发表于 2020-2-24 22:44
-
 
 
 <blockquote>風駿 发表于 2020-2-24 19:14
@@ -25615,27 +16345,15 @@ Spark Calibur
 不过星Q事实的第一主角是拉拉，还是小原好美的。
 
 
-
-
-
-
-
 -----
 
 ####  PrincessBanana  
 ##### 1333#       发表于 2020-2-24 23:43
 
 
-
-
 不行了，我好爱黄啊，她太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -25644,17 +16362,10 @@ Spark Calibur
 ##### 1334#       发表于 2020-2-25 14:24
 
 
-
-
 想了想，没一个姐系的
 
 
 打算追加一个高中生吗
-
-
-
-
-
 
 
 -----
@@ -25663,14 +16374,7 @@ Spark Calibur
 ##### 1335#       发表于 2020-2-25 20:06
 
 
-
-
 不知道是不是因为隔了三季没看，现在觉得这一季的ED拉近挤眉弄眼的镜头特多，我特别受不了（性的意味上）
-
-
-
-
-
 
 
 -----
@@ -25679,23 +16383,16 @@ Spark Calibur
 ##### 1336#       发表于 2020-2-25 20:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46524436&amp;ptid=1860852" target="_blank">猫坤 发表于 2020-2-25 20:06</a>
 
 不知道是不是因为隔了三季没看，现在觉得这一季的ED拉近挤眉弄眼的镜头特多，我特别受不了（性的意味上） ...</blockquote>
 那么你可以去试试去年的两个ED<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  三合一出现  
 ##### 1337#       发表于 2020-2-26 01:48
-
 
 
  本帖最后由 三合一出现 于 2020-2-26 02:14 编辑 
@@ -25705,26 +16402,15 @@ Spark Calibur
 <img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">蓝毛的依田菜津是当了两回Q娃的人，对比下来好像也不太冲击了。
 
 
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 1338#       发表于 2020-2-26 15:55
 
 
-
 <blockquote>三合一出现 发表于 2020-2-26 01:48
 去查衣川里佳的配音作品的时候，发现她和河野日和都是刚好在今年转到同一个会社，而且河野日和拿的工作还真 ...</blockquote>
 当了两回？
-
-
-
-
-
 
 
 -----
@@ -25733,14 +16419,7 @@ Spark Calibur
 ##### 1339#       发表于 2020-2-26 17:23
 
 
-
-
 刚看第四集，这战斗也太流畅了吧，对比去年就很
-
-
-
-
-
 
 
 -----
@@ -25749,16 +16428,10 @@ Spark Calibur
 ##### 1340#       发表于 2020-2-26 17:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46527296&amp;ptid=1860852" target="_blank">三合一出现 发表于 2020-2-26 01:48</a>
 
 去查衣川里佳的配音作品的时候，发现她和河野日和都是刚好在今年转到同一个会社，而且河野日和拿的工作还真 ...</blockquote>
 一瞬间没看清，我还以为衣川里佳配Q娃了，于是就赶紧跑去百度查，结果是我眼瞎看错了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25767,14 +16440,7 @@ Spark Calibur
 ##### 1341#       发表于 2020-2-26 19:15
 
 
-
-
 自从看了文字预告之后不知为何相比这两周我更期待和佳妈妈和狗的第六话，实在是大<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25783,22 +16449,13 @@ Spark Calibur
 ##### 1342#       发表于 2020-2-26 20:30
 
 
-
-
 今年的ED是真的好<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Sliurus  
 ##### 1343#       发表于 2020-2-27 11:44
-
-
 
 
 日本那边也开始给虚拟角色戴口罩这套了吗
@@ -25814,36 +16471,19 @@ Spark Calibur
 2020-2-27 11:43 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 1344#       发表于 2020-2-27 21:28
 
 
-
-
 剧场版会延期吗
-
-
-
-
-
 
 
 -----
 
 ####  最低人间肥宅  
 ##### 1345#       发表于 2020-2-28 09:43
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -25853,32 +16493,19 @@ Spark Calibur
 就怕今年组曲复刻
 
 
-
-
-
-
-
 -----
 
 ####  leleq  
 ##### 1346#       发表于 2020-2-28 11:37
 
 
-
-
 小友们放假了 作为国民动画又恰逢题材是治病的Q娃 正应该给小友和家长们带来一丝安慰 若打退堂鼓则愧为国民动画也
-
-
-
-
-
 
 
 -----
 
 ####  hgcg-ix  
 ##### 1347#       发表于 2020-2-29 09:30
-
 
 
 <img src="http://wx2.sinaimg.cn/mw690/e7cbae74ly1gcccu67wytj20dw07tgmn.jpg" referrerpolicy="no-referrer">
@@ -25894,25 +16521,13 @@ Spark Calibur
 <img src="http://wx1.sinaimg.cn/mw690/e7cbae74ly1gcccub29f8j20dw07tgmt.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lyflyflxf  
 ##### 1348#       发表于 2020-2-29 09:44
 
 
-
-
 看到青山脸了
-
-
-
-
-
 
 
 -----
@@ -25921,16 +16536,9 @@ Spark Calibur
 ##### 1349#       发表于 2020-2-29 13:35
 
 
-
-
 图4青山脸过于明显<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -25939,14 +16547,7 @@ Spark Calibur
 ##### 1350#       发表于 2020-2-29 16:00
 
 
-
-
 一口气看了四话，这么晚才来看真是亏大了。今年大概是要走王道路线了吗
-
-
-
-
-
 
 
 -----
@@ -25955,22 +16556,13 @@ Spark Calibur
 ##### 1351#       发表于 2020-2-29 22:25
 
 
-
-
 虽然有点晚，不过第三集感觉帧数迷之高，很多地方不是音画同步的画感觉就和加速了一样
-
-
-
-
-
 
 
 -----
 
 ####  hgcg-ix  
 ##### 1352#       发表于 2020-3-1 07:56
-
-
 
 
 青山……
@@ -26009,25 +16601,13 @@ Spark Calibur
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gce3iwwzbxj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  雷之  
 ##### 1353#       发表于 2020-3-1 08:00
 
 
-
-
 这届干部连普通人类都打不过了么<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26036,14 +16616,7 @@ Spark Calibur
 ##### 1354#       发表于 2020-3-1 08:04
 
 
-
-
 剧情各种生草，但青山回表现力受限，当然很多特写看起来是另一位手笔，以及团队正式唱名亮相
-
-
-
-
-
 
 
 -----
@@ -26052,14 +16625,7 @@ Spark Calibur
 ##### 1355#       发表于 2020-3-1 09:40
 
 
-
-
 这企鹅也太小了吧，一只手就掌握
-
-
-
-
-
 
 
 -----
@@ -26068,13 +16634,7 @@ Spark Calibur
 ##### 1356#       发表于 2020-3-1 09:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">今年真的太好看了
-
-
-
-
-
 
 
 -----
@@ -26083,14 +16643,7 @@ Spark Calibur
 ##### 1357#       发表于 2020-3-1 11:49
 
 
-
-
 粉主身体有问题，其他两个精神有问题，蓝色有自闭症，黄色，有过动症+注意力障碍+学习障碍<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26099,14 +16652,7 @@ Spark Calibur
 ##### 1358#       发表于 2020-3-1 12:55
 
 
-
-
 下一集似乎会有粉主和对面1v1，期待
-
-
-
-
-
 
 
 -----
@@ -26115,23 +16661,16 @@ Spark Calibur
 ##### 1359#       发表于 2020-3-1 12:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46576971&amp;ptid=1860852" target="_blank">purdre 发表于 2020-03-01 09:40:57</a>
 这企鹅也太小了吧，一只手就掌握</blockquote>我上集就在好奇。他们装成普通的动物真的不会有人觉得奇怪吗。哪有那么小的猫和企鹅
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  最强惠酱  
 ##### 1360#       发表于 2020-3-1 13:28
-
 
 
  本帖最后由 最强惠酱 于 2020-3-1 13:34 编辑 
@@ -26143,17 +16682,10 @@ Spark Calibur
 还有和佳母亲真的好色
 
 
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 1361#       发表于 2020-3-1 14:42
-
-
 
 
 今年淫兽生草担当，挺好的，很期待会有人形态，甚至还期待淫兽间来场三角恋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -26163,26 +16695,14 @@ Spark Calibur
 上周就猜到矛盾不会太激烈，没想到实际会这么摸不着头脑
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-ix  
 ##### 1362#       发表于 2020-3-1 14:43
 
 
-
-
 可爱
 <img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gcef97zga0j20rh0fhe2s.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26191,14 +16711,7 @@ Spark Calibur
 ##### 1363#       发表于 2020-3-1 14:44
 
 
-
-
 今年的反派是不是有点弱。。。大BOSS和一条狗五五开，干部肉搏能力约等于一个初中女生。。。千优的便服太色了，根本把持不住
-
-
-
-
-
 
 
 -----
@@ -26207,18 +16720,10 @@ Spark Calibur
 ##### 1364#       发表于 2020-3-1 15:16
 
 
-
-
 绷不住谐音梗冷笑话的高冷蓝色系变身英雄与说谐音梗冷笑话的黄色系变身英雄.jpg
 
 
 不破谏与飞电或人.jpg
-
-
-
-
-
-
 
 
 -----
@@ -26227,23 +16732,15 @@ Spark Calibur
 ##### 1365#       发表于 2020-3-1 17:33
 
 
-
-
 大BOSS似乎说，“有Q娃就表明现在没有能单独战斗的治愈动物”
 
 也就是说还会有能直接打的治愈动物？
-
-
-
-
-
 
 
 -----
 
 ####  twit  
 ##### 1366#       发表于 2020-3-1 17:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46581165&amp;ptid=1860852" target="_blank">hgcg-ix 发表于 2020-3-1 17:33</a>
@@ -26254,27 +16751,15 @@ Spark Calibur
 女王不就是直接打的嘛...
 
 
-
-
-
-
-
 -----
 
 ####  leghorn00  
 ##### 1367#       发表于 2020-3-1 18:32
 
 
-
-
 黄色这表现典型的多动症，搞不好今年真是全员有病的设定
 
 蓝色知性笑点低这个设定似乎在哪见过，一时想不起来了
-
-
-
-
-
 
 
 -----
@@ -26283,13 +16768,7 @@ Spark Calibur
 ##### 1368#       发表于 2020-3-1 18:32
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这集让我觉得日向内在像个黑皮辣妹
-
-
-
-
-
 
 
 -----
@@ -26298,14 +16777,7 @@ Spark Calibur
 ##### 1369#       发表于 2020-3-1 18:41
 
 
-
-
 蓝毛这个反差萌还行。
-
-
-
-
-
 
 
 -----
@@ -26314,22 +16786,15 @@ Spark Calibur
 ##### 1370#       发表于 2020-3-1 18:54
 
 
-
  本帖最后由 kirimori 于 2020-3-1 18:56 编辑 
 
 肉搏还行，蓝色要是真谈上条件岂不是更扯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  杂灰  
 ##### 1371#       发表于 2020-3-1 18:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46581640&amp;ptid=1860852" target="_blank">leghorn00 发表于 2020-03-01 18:32:29</a>
@@ -26340,17 +16805,10 @@ Spark Calibur
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  angela5d30  
 ##### 1372#       发表于 2020-3-1 19:08
-
-
 
 
 粉主真好啊，这集她说至今为止都没接触过的世界那段+她长期住院最近才能出来走的设定，能不能期待一波黑历史回<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -26360,33 +16818,19 @@ Spark Calibur
 上集嫌黄太吵，这集好多了，没料到是个超级学渣，该说她心大还是啥呢，人间体直接跟敌方干部对上还能全身而退<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">兔子好乖哦，那小孩一直抓他耳朵都不叫，没暴露。
 
 
-
-
-
-
-
 -----
 
 ####  傲娇的章鱼  
 ##### 1373#       发表于 2020-3-1 19:31
 
 
-
-
 粉主这妈力爆表了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  不能摸的屁屁  
 ##### 1374#       发表于 2020-3-1 19:32
-
-
 
 
 日向书包飞砸企鹅被女干部吐槽
@@ -26396,16 +16840,10 @@ Spark Calibur
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 1375#       发表于 2020-3-1 19:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46581165&amp;ptid=1860852" target="_blank">hgcg-ix 发表于 2020-3-1 17:33</a>
@@ -26417,32 +16855,19 @@ Spark Calibur
 兔皮大衣，鹅毛大衣，虎皮大衣，狗皮大衣
 
 
-
-
-
-
-
 -----
 
 ####  rar1536770  
 ##### 1376#       发表于 2020-3-1 20:01
 
 
-
-
 好看
-
-
-
-
-
 
 
 -----
 
 ####  lyflyflxf  
 ##### 1377#       发表于 2020-3-1 20:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46582283&amp;ptid=1860852" target="_blank">天邪鬼 发表于 2020-3-1 19:44</a>
@@ -26453,32 +16878,19 @@ Spark Calibur
 太残忍了，让买了玩具的孩子怎么接受<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-ix  
 ##### 1378#       发表于 2020-3-1 21:01
 
 
-
-
 不知道为什么我特别喜欢今年的兔子……难道是因为声优和皇女是同一个人的关系？
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 1379#       发表于 2020-3-1 22:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46581867&amp;ptid=1860852" target="_blank">杂灰 发表于 2020-3-1 18:54</a>
@@ -26490,25 +16902,13 @@ Spark Calibur
 然而那个是笨蛋不是知性啊
 
 
-
-
-
-
-
 -----
 
 ####  sAviOr  
 ##### 1380#       发表于 2020-3-1 22:39
 
 
-
-
 这集千优的性格跟前面跟前几集落差太大了吧。
-
-
-
-
-
 
 
 -----
@@ -26517,20 +16917,12 @@ Spark Calibur
 ##### 1381#       发表于 2020-3-1 22:51
 
 
-
-
 收人回结束开始日常 本集表现中等 
 
 这集小女生的小心思表现的很可爱 和女干部的女人的战争<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
 ps：看了这集觉得今年先发3人应该没有cp了 下一集看看正太干部和香香有没有苗头
-
-
-
-
-
 
 
 -----
@@ -26539,23 +16931,16 @@ ps：看了这集觉得今年先发3人应该没有cp了 下一集看看正太�
 ##### 1382#       发表于 2020-3-1 23:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46584048&amp;ptid=1860852" target="_blank">sAviOr 发表于 2020-3-1 22:39</a>
 这集千优的性格跟前面跟前几集落差太大了吧。</blockquote>
 没有吧，千优开头对生人友好，有交友意愿，等熟悉了态度还是蛮强硬的，3话直接把和佳请到自己家套话，这集的说家有点居高临下的感觉不过本意是好的，说白了是一根筋，难得和佳和她相性不错就天天跑别人家玩（没有告知突然跑来妈妈还只讲了句和佳看来是熟的不行），除了和佳和部活同伴这个性格感觉没啥朋友吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 然后日向就像真实的普通小女孩，连解决问题的方式也是，这位女性脚本家太懂了，奶q好好好好看啊
 
 
-
-
-
-
-
 -----
 
 ####  千叶铁矢  
 ##### 1383#       发表于 2020-3-2 00:30
-
 
 
  本帖最后由 千叶铁矢 于 2020-3-2 00:42 编辑 
@@ -26570,33 +16955,19 @@ ps：看了这集觉得今年先发3人应该没有cp了 下一集看看正太�
 打戏.........算了
 
 
-
-
-
-
-
 -----
 
 ####  真红眼教授  
 ##### 1384#       发表于 2020-3-2 00:39
 
 
-
-
 本集日向也不甘示弱表演一个徒手打干部<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 今年算是历代最强人间体么
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 1385#       发表于 2020-3-2 01:00
-
-
 
 
 和佳好棒，知优×日向也很棒（大概和佳的对手戏是丢给达鲁伊森了吧……）
@@ -26608,26 +16979,15 @@ ps：看了这集觉得今年先发3人应该没有cp了 下一集看看正太�
 一开始还在强调Q娃已经有3位了，不知道下一位啥时候出场，又会是谁
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 1386#       发表于 2020-3-2 09:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46582823&amp;ptid=1860852" target="_blank">lyflyflxf 发表于 2020-3-1 20:41</a>
 太残忍了，让买了玩具的孩子怎么接受</blockquote>
 我记得第一集有几个隐晦的镜头展示伤员，只是都在画面边缘不仔细看看不出来
-
-
-
-
-
 
 
 -----
@@ -26636,23 +16996,16 @@ ps：看了这集觉得今年先发3人应该没有cp了 下一集看看正太�
 ##### 1387#       发表于 2020-3-2 23:03
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说到人间体打干部的，你们是不是忘记了这蓝风衣一脉相传的万丈龙我。
 
 
 现在前5集下来，感觉这次的Q娃应该不会再有那种高浓度小女孩友情的情况了吧。这三个非常正常的闺蜜感觉编剧好像挺注意到这方面的细节。
 
 
-
-
-
-
-
 -----
 
 ####  梦诗歌雪  
 ##### 1388#       发表于 2020-3-3 02:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46581165&amp;ptid=1860852" target="_blank">hgcg-ix 发表于 2020-3-1 17:33</a>
@@ -26663,16 +17016,10 @@ ps：看了这集觉得今年先发3人应该没有cp了 下一集看看正太�
 所以追加战士会是淫兽变的喽
 
 
-
-
-
-
-
 -----
 
 ####  Garterbelt  
 ##### 1389#       发表于 2020-3-3 06:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46598301&amp;ptid=1860852" target="_blank">梦诗歌雪 发表于 2020-3-3 02:00</a>
@@ -26681,25 +17028,13 @@ ps：看了这集觉得今年先发3人应该没有cp了 下一集看看正太�
 女王变人亲自上场，母女合体霹雳Q娃（x）
 
 
-
-
-
-
-
 -----
 
 ####  蓬莱妹红  
 ##### 1390#       发表于 2020-3-3 08:42
 
 
-
-
 阿黄很真实啊，一上来加入一个新鲜队伍没几天，同伴里就有个优等生，自己还是个学渣，绝对会特别不适应，啊想想就有点可怕<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26708,18 +17043,10 @@ ps：看了这集觉得今年先发3人应该没有cp了 下一集看看正太�
 ##### 1391#       发表于 2020-3-3 11:40
 
 
-
-
 一般来说不是粉色先怂吗，今年想不到黄色的先怂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 这集干部太弱了，竟然被不变身的Q娃靠肉体压制，太丢人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
@@ -26728,16 +17055,9 @@ ps：看了这集觉得今年先发3人应该没有cp了 下一集看看正太�
 ##### 1392#       发表于 2020-3-3 12:45
 
 
-
-
 今年谁最让人想欺负她。
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -26746,14 +17066,7 @@ ps：看了这集觉得今年先发3人应该没有cp了 下一集看看正太�
 ##### 1393#       发表于 2020-3-3 18:39
 
 
-
-
 想欺负日向 太可爱了(
-
-
-
-
-
 
 
 -----
@@ -26762,16 +17075,10 @@ ps：看了这集觉得今年先发3人应该没有cp了 下一集看看正太�
 ##### 1394#       发表于 2020-3-3 18:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46600844&amp;ptid=1860852" target="_blank">麻花疼 发表于 2020-3-3 11:40</a>
 
 一般来说不是粉色先怂吗，今年想不到黄色的先怂了，而且小日向不太聪明的亚子专治泽泉这种高冷蓝毛 ...</blockquote>
 女干部空有颜值没战斗力，肌肉男颜值低，那么有颜值又有战斗力的只有那位少年了
-
-
-
-
-
 
 
 -----
@@ -26780,13 +17087,7 @@ ps：看了这集觉得今年先发3人应该没有cp了 下一集看看正太�
 ##### 1395#       发表于 2020-3-3 18:52
 
 
-
 <img src="http://wx3.sinaimg.cn/large/71f87cc0ly1gcgrbnlxeuj20ej0bujsv.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26795,16 +17096,9 @@ ps：看了这集觉得今年先发3人应该没有cp了 下一集看看正太�
 ##### 1396#       发表于 2020-3-3 19:15
 
 
-
-
 追加果然是紫色啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -26813,14 +17107,7 @@ ps：看了这集觉得今年先发3人应该没有cp了 下一集看看正太�
 ##### 1397#       发表于 2020-3-3 21:32
 
 
-
-
 粉主和兔子配挺好的不是..没必要非扯个反派来cp吧
-
-
-
-
-
 
 
 -----
@@ -26829,16 +17116,9 @@ ps：看了这集觉得今年先发3人应该没有cp了 下一集看看正太�
 ##### 1398#       发表于 2020-3-3 21:51
 
 
-
-
 教主欢喜
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -26847,21 +17127,13 @@ ps：看了这集觉得今年先发3人应该没有cp了 下一集看看正太�
 ##### 1399#       发表于 2020-3-4 09:40
 
 
-
-
 Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯到“我们正在谈重要的事”（飞踢）的初代了？后面人多起来之后战斗都是一个人打其他齐刷刷地放招或者躺地板，这次三个人一个去找干部绕大圈，两个本来想找企鹅的先碰到了干部，蓝毛想发动嘴炮被己方黄毛打断了，情急之下自己也参与了扯头发，大怪在女人丛中不太习惯一不小心摆了乌龙，淫兽最后一副要交代后事的架势让蓝毛发出了物理治愈敌人的指令。。。槽点过多都吐不过来了233
-
-
-
-
-
 
 
 -----
 
 ####  南风森琉璃  
 ##### 1400#       发表于 2020-3-4 10:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46581640&amp;ptid=1860852" target="_blank">leghorn00 发表于 2020-3-1 18:32</a>
@@ -26872,17 +17144,10 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 我也想了好久，只想到了四宫辉夜被书记用鸡鸡笑话攻击得停不下来那话。。。
 
 
-
-
-
-
-
 -----
 
 ####  leleq  
 ##### 1401#       发表于 2020-3-4 10:48
-
-
 
 
 历代和男干部有cp的Q娃（女干部就不提了几乎都是官配cp ）
@@ -26903,32 +17168,19 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 从上面情况来看奶Q的小正太还是赶紧变性去吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  leleq  
 ##### 1402#       发表于 2020-3-4 10:56
 
 
-
-
 说到变性 突然想到小正太的cv是田村睦心 第4人不是还没出么不如……干脆就别变性了直接变身怎么样……<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  灼眼的夏娜酱  
 ##### 1403#       发表于 2020-3-4 11:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46581640&amp;ptid=1860852" target="_blank">leghorn00 发表于 2020-3-1 18:32</a>
@@ -26939,25 +17191,13 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 偶像大师的千早笑点很奇怪，平时又是一本正经的，而且也是蓝发。
 
 
-
-
-
-
-
 -----
 
 ####  华发夜眼[CN]  
 ##### 1404#       发表于 2020-3-4 13:09
 
 
-
-
 女主挑大梁，蓝毛一根筋，黄毛学渣。爱了爱了
-
-
-
-
-
 
 
 -----
@@ -26966,21 +17206,13 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 ##### 1405#       发表于 2020-3-5 07:13
 
 
-
-
 现在剧场版是不是延期还不知道……
-
-
-
-
-
 
 
 -----
 
 ####  泰安巨人ex  
 ##### 1406#       发表于 2020-3-5 16:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46610902&amp;ptid=1860852" target="_blank">leleq 发表于 2020-3-4 10:48</a>
@@ -26992,16 +17224,10 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 大凶颜和狼叔有哪些同人可以一看嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  武男  
 ##### 1407#       发表于 2020-3-5 16:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46626147&amp;ptid=1860852" target="_blank">泰安巨人ex 发表于 2020-3-5 16:22</a>
@@ -27010,16 +17236,10 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 星空美幸35岁？
 
 
-
-
-
-
-
 -----
 
 ####  leleq  
 ##### 1408#       发表于 2020-3-5 16:25
-
 
 
  本帖最后由 leleq 于 2020-3-5 22:57 编辑 
@@ -27029,17 +17249,10 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 美幸35啊 哦ls说了 还有一些结婚本 我今天 不想去e变态
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-ix  
 ##### 1409#       发表于 2020-3-5 19:53
-
-
 
 
 增子家族又多了一名成员
@@ -27060,25 +17273,13 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 另一个版本的预告说是主角组去美术馆，三个淫兽有所“企图”
 
 
-
-
-
-
-
 -----
 
 ####  cmyk1234  
 ##### 1410#       发表于 2020-3-5 20:04
 
 
-
-
 类似01第15话硬接下一章节么？
-
-
-
-
-
 
 
 -----
@@ -27087,16 +17288,9 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 ##### 1411#       发表于 2020-3-5 20:12
 
 
-
-
 感觉这个粉主有点像牛郎爱反面，一个运动万能，一个体弱多病。一个博爱（误）一个小爱<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">一个全员后宫，一个队伍调节剂。就看和佳的学力如何了
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -27105,15 +17299,8 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 ##### 1412#       发表于 2020-3-5 20:17
 
 
-
-
 ますこ　みちお
 配角复刻
-
-
-
-
-
 
 
 -----
@@ -27122,14 +17309,7 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 ##### 1413#       发表于 2020-3-5 21:42
 
 
-
-
 怎么微博上有说组曲复刻的，组曲那会儿发生了啥？音符变怪设定和地震海啸不搭边吧？
-
-
-
-
-
 
 
 -----
@@ -27138,14 +17318,7 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 ##### 1414#       发表于 2020-3-5 23:47
 
 
-
-
 大量刷怪不一定是开新章吧，抓心也试过日常回刷怪
-
-
-
-
-
 
 
 -----
@@ -27154,23 +17327,15 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 ##### 1415#       发表于 2020-3-6 00:50
 
 
-
 <blockquote>傲娇的章鱼 发表于 2020-3-5 21:42
 怎么微博上有说组曲复刻的，组曲那会儿发生了啥？音符变怪设定和地震海啸不搭边吧？ ...</blockquote>
 地震后期剧本大幅度修改
-
-
-
-
-
 
 
 -----
 
 ####  hgcg-ix  
 ##### 1416#       发表于 2020-3-8 07:59
-
-
 
 
 提要
@@ -27199,25 +17364,13 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 <img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gcm6x4900rj21400mib29.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  待宵  
 ##### 1417#       发表于 2020-3-8 08:14
 
 
-
-
 抹病毒这一幕太恶劣了，我看好这两天同人图起飞
-
-
-
-
-
 
 
 -----
@@ -27226,14 +17379,7 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 ##### 1418#       发表于 2020-3-8 08:34
 
 
-
-
 不请自来，没看过几集q娃，反派美少年给粉主脸上抹病毒这么刺激的操作常见吗
-
-
-
-
-
 
 
 -----
@@ -27242,15 +17388,8 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 ##### 1419#       发表于 2020-3-8 08:44
 
 
-
-
 差点把のどか认成了蛤酱……
 <img src="https://p.sda1.dev/0/bd418be9a443570112a07a92a4961190/2020-03-08_08-43-25.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27259,16 +17398,10 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 ##### 1420#       发表于 2020-3-8 08:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46654417&amp;ptid=1860852" target="_blank">默逍 发表于 2020-3-8 08:34</a>
 
 不请自来，没看过几集q娃，反派美少年给粉主脸上抹病毒这么刺激的操作常见吗 ...</blockquote>
 首先反派美少年本身就很少见（
-
-
-
-
-
 
 
 -----
@@ -27277,22 +17410,14 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 ##### 1421#       发表于 2020-3-8 08:50
 
 
-
-
 剧场版限定形态 ​​​​
 <img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gcm87bs1cvj20ka0f8e4v.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  nerugigannte  
 ##### 1422#       发表于 2020-3-8 09:06
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">挪开你的脏手，别碰我女儿啊！！！性格恶劣！还出手打路人
@@ -27302,16 +17427,10 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 这几集打戏真不错，不说动作有多丰富，至少三队友之间的联动做得都不错，看样子今年蓝战士不会是没什么存在感的那套模板了
 
 
-
-
-
-
-
 -----
 
 ####  待宵  
 ##### 1423#       发表于 2020-3-8 09:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46654417&amp;ptid=1860852" target="_blank">默逍 发表于 2020-3-8 08:34</a>
@@ -27323,25 +17442,13 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 以前最多强按面具
 
 
-
-
-
-
-
 -----
 
 ####  HazukiShion  
 ##### 1424#       发表于 2020-3-8 09:30
 
 
-
-
 反派大叔打着打着就抱上了的操作算不算刺激？
-
-
-
-
-
 
 
 -----
@@ -27350,15 +17457,8 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 ##### 1425#       发表于 2020-3-8 09:32
 
 
-
-
 脸上抹shi这操作真没想到，加上之前还袭胸和佳妈妈，对这个病毒男孩减去了最后一丝好感，不过系构回也说明以后走美少年bg路线了吧，期待值少许降低了<img src="https://static.saraba1st.com/image/smiley/face2017/172.png" referrerpolicy="no-referrer">
 其实换成日向哥我是一点都不介意的
-
-
-
-
-
 
 
 -----
@@ -27367,16 +17467,9 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 ##### 1426#       发表于 2020-3-8 09:37
 
 
-
-
 我的社花PTSD要犯了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -27385,16 +17478,10 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 ##### 1427#       发表于 2020-3-8 09:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46654824&amp;ptid=1860852" target="_blank">HazukiShion 发表于 2020-3-8 09:30</a>
 
 反派大叔打着打着就抱上了的操作算不算刺激？</blockquote>
 不是，刺激归刺激，这种做足铺垫水到渠成的走向性质不同吧？
-
-
-
-
-
 
 
 -----
@@ -27403,16 +17490,10 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 ##### 1428#       发表于 2020-3-8 09:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46654892&amp;ptid=1860852" target="_blank">待宵 发表于 2020-3-8 09:40</a>
 
 不是，刺激归刺激，这种做足铺垫水到渠成的走向性质不同吧？</blockquote>
 铺垫水到渠成的确有，不过当时看的时候是真没想到会抱上去。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27421,21 +17502,13 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 ##### 1429#       发表于 2020-3-8 09:53
 
 
-
-
 这正太至少没劈腿，只是往女生脸上呼屎罢了，还是比社长好不少的。（一点也不好
-
-
-
-
-
 
 
 -----
 
 ####  待宵  
 ##### 1430#       发表于 2020-3-8 09:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46654993&amp;ptid=1860852" target="_blank">韩子 发表于 2020-3-8 09:53</a>
@@ -27451,25 +17524,13 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 不能(
 
 
-
-
-
-
-
 -----
 
 ####  最强惠酱  
 ##### 1431#       发表于 2020-3-8 10:02
 
 
-
-
 话说当下时期往脸抹病毒真的没问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27478,23 +17539,15 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 ##### 1432#       发表于 2020-3-8 10:06
 
 
-
-
 东大妈能不能配对点正常人啊，社花还有今年的正太都是些什么鬼啊<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">好不容易养大的女儿怎么就被拱了
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  默逍  
 ##### 1433#       发表于 2020-3-8 10:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46654713&amp;ptid=1860852" target="_blank">待宵 发表于 2020-3-8 09:17</a>
@@ -27505,26 +17558,15 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 我在一把把妈妈推飞愣了一下，在地上抓起一把生命之源糊到粉主脸上愣了一下，对青少年的影响不可估量（确信）
 
 
-
-
-
-
-
 -----
 
 ####  最强惠酱  
 ##### 1434#       发表于 2020-3-8 10:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46655223&amp;ptid=1860852" target="_blank">默逍 发表于 2020-3-8 10:17</a>
 我在一把把妈妈推飞愣了一下，在地上抓起一把生命之源糊到粉主脸上愣了一下，对青少年的影响不可估量（确 ...</blockquote>
 看完我还在想要怎么洗白，哦好像只要道歉就可以了，另外甩头皮屑是真的恶心<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27533,16 +17575,10 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 ##### 1435#       发表于 2020-3-8 10:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46655262&amp;ptid=1860852" target="_blank">最强惠酱 发表于 2020-3-8 10:21</a>
 
 看完我还在想要怎么洗白，哦好像只要道歉就可以了，另外甩头皮屑是真的恶心 ...</blockquote>
 头皮屑还算优雅的，另有一位腋臭猛男不是更糟
-
-
-
-
-
 
 
 -----
@@ -27551,16 +17587,10 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 ##### 1436#       发表于 2020-3-8 11:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46655223&amp;ptid=1860852" target="_blank">默逍 发表于 2020-03-08 10:17:54</a>
 我在一把把妈妈推飞愣了一下，在地上抓起一把生命之源糊到粉主脸上愣了一下，对青少年的影响不可估量（确 ...</blockquote>怎么还袭胸的。这集这么可怕的吗
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -27569,14 +17599,7 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 ##### 1437#       发表于 2020-3-8 12:48
 
 
-
-
 这正太，有心跳正太内味了。
-
-
-
-
-
 
 
 -----
@@ -27585,14 +17608,7 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 ##### 1438#       发表于 2020-3-8 13:09
 
 
-
-
 其实我有点在意棒子上的妖精和和佳都沾上病毒后倒没什么反应，还自然而然地滑落了，会不会是后面的什么伏笔……
-
-
-
-
-
 
 
 -----
@@ -27601,16 +17617,9 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 ##### 1439#       发表于 2020-3-8 13:10
 
 
-
-
 反派小哥太过分了！绝不原谅！！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
 —— 来自 Meizu PRO 7-H, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -27619,16 +17628,10 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 ##### 1440#       发表于 2020-3-8 13:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46656879&amp;ptid=1860852" target="_blank">haojie_ma 发表于 2020-3-8 13:09</a>
 
 其实我有点在意棒子上的妖精和和佳都沾上病毒后倒没什么反应，还自然而然地滑落了，会不会是后面的什么伏笔 ...</blockquote>
 想要让nodo卡恢复原样，就来打败我把！
-
-
-
-
-
 
 
 -----
@@ -27637,22 +17640,13 @@ Q娃棚上一次“场面一度十分混乱”的战斗场面是不是要追溯�
 ##### 1441#       发表于 2020-3-8 13:48
 
 
-
-
 个人回出现新的元素瓶，又让拿铁倾心。我明白了，老妈就是第四个Q娃！
-
-
-
-
-
 
 
 -----
 
 ####  Sliurus  
 ##### 1442#       发表于 2020-3-8 13:56
-
-
 
 
 狗女王看了眼那个人类雕像的时候突然想到，该不会那个就是当年的q娃本人吧，今年的追加莫非是来自古代的战士？复活后看现代社会可以其中作很多文章啊
@@ -27662,33 +17656,20 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 污染地球才能生存，这一点很像沙漠使徒，但看大boss的样子不太是为了这个目的，再次上演干部全员工具人的戏码？
 
 
-
-
-
-
-
 -----
 
 ####  宅音  
 ##### 1443#       发表于 2020-3-8 14:14
 
 
-
-
 什么玩意儿啊就糊一脸毒<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 回忆起被劈腿社长支配的恐惧
-
-
-
-
-
 
 
 -----
 
 ####  阿姆罗二世  
 ##### 1444#       发表于 2020-3-8 14:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46657523&amp;ptid=1860852" target="_blank">宅音 发表于 2020-03-08 14:14:17</a>
@@ -27698,16 +17679,10 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  韩子  
 ##### 1445#       发表于 2020-3-8 14:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46655022&amp;ptid=1860852" target="_blank">待宵 发表于 2020-3-8 09:58</a>
@@ -27721,27 +17696,15 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 （还期待着在Q娃里看到一段靠谱又可爱的BG，以便治好社长ptsd呢，看来这个还是比较难…………
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-ix  
 ##### 1446#       发表于 2020-3-8 14:32
 
 
-
-
 说点蒸鹅心的话
 
 要是在本子里，抹在脸上的病毒就要遍布全身溶解衣服再变成感度3000倍的紧身衣了吧……
-
-
-
-
-
 
 
 -----
@@ -27750,22 +17713,13 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 ##### 1447#       发表于 2020-3-8 14:34
 
 
-
-
 数码3那团聚合体？？
-
-
-
-
-
 
 
 -----
 
 ####  catenary  
 ##### 1448#       发表于 2020-3-8 16:38
-
-
 
 
 想不通这bg能怎么搞
@@ -27779,16 +17733,10 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-ix  
 ##### 1449#       发表于 2020-3-8 16:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46658818&amp;ptid=1860852" target="_blank">catenary 发表于 2020-3-8 16:38</a>
@@ -27800,25 +17748,13 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 圣母粉主把少年打一顿然后做朋友
 
 
-
-
-
-
-
 -----
 
 ####  最强惠酱  
 ##### 1450#       发表于 2020-3-8 17:16
 
 
-
-
 来画抹脸了，角砂糖真是神<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27827,14 +17763,7 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 ##### 1451#       发表于 2020-3-8 17:18
 
 
-
-
 还没看，不过糊个屎而已，算是什么需要洗白的行为吗？
-
-
-
-
-
 
 
 -----
@@ -27843,13 +17772,7 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 ##### 1452#       发表于 2020-3-8 17:27
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">卧槽，这集到底是谁决定这样搞的，先不说在三八妇女节直接就来一个迫害复工妇女的情况（反正工作的女人不会有时间看Q娃，让家庭主妇看着不想出去工作？？？），这正太反派出道立刻暴力了和佳的妈妈（痛击普通人还装逼说好弱），给和佳脸上摸屎，这一系列操作。编剧们是想第一个献祭的反派是他吗？前面肌肉佬和花痴大妈都没有这么恶意的安排啊。
-
-
-
-
-
 
 
 -----
@@ -27858,13 +17781,7 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 ##### 1453#       发表于 2020-3-8 17:27
 
 
-
 <img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gcmmxl9oloj20u00xd7w6.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27873,16 +17790,10 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 ##### 1454#       发表于 2020-3-8 17:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46659239&amp;ptid=1860852" target="_blank">天邪鬼 发表于 2020-03-08 17:18:14</a>
 还没看，不过糊个屎而已，算是什么需要洗白的行为吗？</blockquote>还有打晕和佳她妈，还装逼说了句好弱
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -27891,14 +17802,7 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 ##### 1455#       发表于 2020-3-8 17:36
 
 
-
-
 这集也就是演出用力猛了点，楼上不至于吧。
-
-
-
-
-
 
 
 -----
@@ -27907,14 +17811,7 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 ##### 1456#       发表于 2020-3-8 17:37
 
 
-
-
 田村少年配的好帅，但做的事又很屑，一股少女漫不良男主的气息<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27923,16 +17820,9 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 ##### 1457#       发表于 2020-3-8 17:41
 
 
-
-
 这演出很好啊 病毒糊脸简单直接体现田村干部的扭曲
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -27941,14 +17831,7 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 ##### 1458#       发表于 2020-3-8 17:44
 
 
-
-
 都过了一年了，病还没好嘛，真是可怕啊
-
-
-
-
-
 
 
 -----
@@ -27957,23 +17840,16 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 ##### 1459#       发表于 2020-3-8 17:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46659494&amp;ptid=1860852" target="_blank">武男 发表于 2020-03-08 17:44:40</a>
 都过了一年了，病还没好嘛，真是可怕啊</blockquote>这就和小草莓厨子看到孕莓的感觉一样，PTSD短时间里好不了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  武男  
 ##### 1460#       发表于 2020-3-8 17:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46659580&amp;ptid=1860852" target="_blank">阿姆罗二世 发表于 2020-3-8 17:54</a>
@@ -27985,16 +17861,10 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 那你们就只有找同人去看来解解气了
 
 
-
-
-
-
-
 -----
 
 ####  leleq  
 ##### 1461#       发表于 2020-3-8 18:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46659420&amp;ptid=1860852" target="_blank">damian-wade 发表于 2020-3-8 17:37</a>
@@ -28003,16 +17873,10 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 你还别说 十几岁的小女生还真喜欢这种调调 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  阿姆罗二世  
 ##### 1462#       发表于 2020-3-8 18:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46659630&amp;ptid=1860852" target="_blank">leleq 发表于 2020-03-08 18:00:32</a>
@@ -28021,16 +17885,10 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  leleq  
 ##### 1463#       发表于 2020-3-8 18:02
-
 
 
 <img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gcm69qjg2sj21400mix6p.jpg" referrerpolicy="no-referrer">
@@ -28038,17 +17896,10 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 这兔子竟然会卷头发 你是jk么
 
 
-
-
-
-
-
-
 -----
 
 ####  leleq  
 ##### 1464#       发表于 2020-3-8 18:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46659643&amp;ptid=1860852" target="_blank">阿姆罗二世 发表于 2020-3-8 18:02</a>
@@ -28060,17 +17911,10 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 是啊 但Q娃自己是十几岁小女生啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  leleq  
 ##### 1465#       发表于 2020-3-8 18:15
-
-
 
 
 这集好多老父亲PTSD啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
@@ -28081,16 +17925,10 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 目前来看的话小正太至少是去年河童待遇了  如果真打算想配给香香 那我只能说这剧本不是天才就是智障了
 
 
-
-
-
-
-
 -----
 
 ####  cmyk1234  
 ##### 1466#       发表于 2020-3-8 18:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46659738&amp;ptid=1860852" target="_blank">leleq 发表于 2020-3-8 18:15</a>
@@ -28100,17 +17938,10 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 感觉是以前关P才能想出的骚操作。
 
 
-
-
-
-
-
 -----
 
 ####  Sliurus  
 ##### 1467#       发表于 2020-3-8 18:41
-
-
 
 
 不知道洗白会不会来点老梗，在路边喂小猫什么的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -28119,31 +17950,19 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  黑翼使  
 ##### 1468#       发表于 2020-3-8 18:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">难得有个好看的小正太，就不能给他BLUE的待遇吗
-
-
-
-
-
 
 
 -----
 
 ####  天邪鬼  
 ##### 1469#       发表于 2020-3-8 18:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46659412&amp;ptid=1860852" target="_blank">阿姆罗二世 发表于 2020-3-8 17:35</a>
@@ -28158,16 +17977,10 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 至于cp，还是算了吧。这集q娃三个已经如此降智了，要是多来几个cp回那就是正反派互相降智，简直是在折磨我这个观众
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 1470#       发表于 2020-3-8 19:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46659412&amp;ptid=1860852" target="_blank">阿姆罗二世 发表于 2020-3-8 17:35</a>
@@ -28177,25 +17990,13 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 以去年蛇夫座为参照物的话，只要造成的损害不超过她，同时意图没到宇宙级的，都可以拍拍屁股走人不需要付任何责任<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  rp-1  
 ##### 1471#       发表于 2020-3-8 19:11
 
 
-
-
 确实是“就这”的感觉，这种程度的伤害在Q娃里面根本排不上号，所以原罪是因为bg？
-
-
-
-
-
 
 
 -----
@@ -28204,16 +18005,10 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 ##### 1472#       发表于 2020-3-8 19:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46660196&amp;ptid=1860852" target="_blank">天邪鬼 发表于 2020-03-08 19:01:48</a>
 以去年蛇夫座为参照物的话，只要造成的损害不超过她，同时意图没到宇宙级的，都可以拍拍屁股走人不需要付 ...</blockquote>其实干大坏事黑的人反而少，这种小恶黑的人才多，就像动画里很多干坏事的大反派带给人的恶感都不如路边的强奸犯
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -28222,24 +18017,16 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 ##### 1473#       发表于 2020-3-8 19:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46660289&amp;ptid=1860852" target="_blank">rp-1 发表于 2020-03-08 19:11:30</a>
 确实是“就这”的感觉，这种程度的伤害在Q娃里面根本排不上号，所以原罪是因为bg？ ...</blockquote>肯定的啊，既然要和主角组CP能不能搞得正常点，如果是纯反派这点事不算事，但要洗白组CP这就看起来隔应了
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  catenary  
 ##### 1474#       发表于 2020-3-8 19:33
-
-
 
 
 我觉得不至于组cp吧
@@ -28251,24 +18038,14 @@ ed时看到香川纯子就明白了，今年是bg路线，虽然个人不太喜�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  HazukiShion  
 ##### 1475#       发表于 2020-3-8 19:44
 
 
-
-
 觉得会组CP是因为OP以及两人身上一些对应要素吧。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 不过有非人和舒适度的设定，感觉结局应该和伊拉差不多？
-
-
-
 
 

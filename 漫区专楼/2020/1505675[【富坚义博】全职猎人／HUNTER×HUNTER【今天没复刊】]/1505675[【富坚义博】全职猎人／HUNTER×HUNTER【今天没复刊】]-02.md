@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2020-02-28 22:55** 
 
 
-
 -----
 
 ####  tenco  
 ##### 1501#       发表于 2017-8-23 18:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36978763&amp;ptid=1505675" target="_blank">勇者爱恶龙 发表于 2017-8-23 15:50</a>
@@ -17,16 +15,10 @@
 我生活在一个普通的工薪族家庭，父母都是好人，哥哥姐姐也很正常，只有我不一样。某一天，我发现自己的内心某处开始逐渐腐烂，但是最终我发现腐烂的才是真实的我。
 
 
-
-
-
-
-
 -----
 
 ####  mierin  
 ##### 1502#       发表于 2017-8-23 19:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36980268&amp;ptid=1505675" target="_blank">tenco 发表于 2017-8-23 18:00</a>
@@ -37,25 +29,13 @@
 这种是无指定类别AOE/随机伤害，四王子明显有针对性
 
 
-
-
-
-
-
 -----
 
 ####  嘲风  
 ##### 1503#       发表于 2017-8-24 16:45
 
 
-
-
 总感觉富坚连续两话卖提塔死的关子，最后会不会反而没事儿
-
-
-
-
-
 
 
 -----
@@ -64,14 +44,7 @@
 ##### 1504#       发表于 2017-8-24 17:06
 
 
-
-
 按惯例算上369还有2话今年份的猎人就没了，估计明年才能知道缇塔的生死了
-
-
-
-
-
 
 
 -----
@@ -80,16 +53,9 @@
 ##### 1505#       发表于 2017-8-24 17:18
 
 
-
-
 酷拉的能力甚至可以无痛开孔<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 —— 来自 ZUK Z2121, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
-
-
-
-
-
 
 
 -----
@@ -98,21 +64,13 @@
 ##### 1506#       发表于 2017-8-24 18:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">直到下一年从新开始连载的梗：缇塔都不知道死没死了一年了。
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 1507#         楼主| 发表于 2017-8-24 18:59
-
-
 
 
 369 转师
@@ -123,25 +81,13 @@
 <img src="http://wx4.sinaimg.cn/large/bcfcde0agy1fiv0i5qwa2j20nm0y6tms.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mierin  
 ##### 1508#       发表于 2017-8-24 19:17
 
 
-
-
 大王子亲兵怎么都是这种谜之自信款的……
-
-
-
-
-
 
 
 -----
@@ -150,15 +96,9 @@
 ##### 1509#       发表于 2017-8-24 19:25
 
 
-
 <blockquote>mierin 发表于 2017-8-24 19:17
 大王子亲兵怎么都是这种谜之自信款的……</blockquote>
 大王子的亲兵一直以来只有自己人切磋吧。不像猎人一样到处跑江湖，觉得自己会念已经很牛了。
-
-
-
-
-
 
 
 -----
@@ -167,14 +107,7 @@
 ##### 1510#       发表于 2017-8-25 13:25
 
 
-
-
 本次连载看来要超过10话了，节奏太慢，如果再休，那就更云里雾里，不知所谓。
-
-
-
-
-
 
 
 -----
@@ -183,14 +116,7 @@
 ##### 1511#       发表于 2017-8-25 13:37
 
 
-
-
 好想看金的剧情，不知何年能出场唉
-
-
-
-
-
 
 
 -----
@@ -199,14 +125,7 @@
 ##### 1512#       发表于 2017-8-25 13:54
 
 
-
-
 “11人いる！”，名字既然是玩梗……那么其他的能力莫非也是
-
-
-
-
-
 
 
 -----
@@ -215,14 +134,7 @@
 ##### 1513#         楼主| 发表于 2017-8-25 20:01
 
 
-
-
 汉化更新啦，前面在外面没看到
-
-
-
-
-
 
 
 -----
@@ -231,14 +143,7 @@
 ##### 1514#       发表于 2017-8-25 20:28
 
 
-
-
 节奏好慢啊，老贼饶了这么大圈到底要说什么
-
-
-
-
-
 
 
 -----
@@ -247,24 +152,15 @@
 ##### 1515#       发表于 2017-8-25 21:00
 
 
-
-
 这个小说配图好多挺良心的啊
 
 要是连载再快点就好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  C男人  
 ##### 1516#       发表于 2017-8-25 21:01
-
-
 
 
 发动3小时，昏迷9小时，
@@ -278,33 +174,19 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xiaj06  
 ##### 1517#       发表于 2017-8-25 21:05
 
 
-
-
 这话看下来，王妃画的越来越美了啊，期待后面戏份多一点，不知道老贼会安排什么念能力给她
-
-
-
-
-
 
 
 -----
 
 ####  小修  
 ##### 1518#       发表于 2017-8-25 21:11
-
-
 
 
 这设计出14个王子互相残杀的FJ真是害人害己。
@@ -317,27 +199,15 @@
 真是拖泥带水。
 
 
-
-
-
-
-
 -----
 
 ####  mierin  
 ##### 1519#       发表于 2017-8-25 21:23
 
 
-
-
 十、十一王子派的都是侍从，大概是因为别人的亲兵不能派，自己的亲兵不敢派。可想而知十王子的侍从根本不想好好练习。
 
 最后多数沉默者看起来好像布加拉提wwww
-
-
-
-
-
 
 
 -----
@@ -346,22 +216,13 @@
 ##### 1520#       发表于 2017-8-25 21:31
 
 
-
-
 猜测一下王位争夺篇要画多久吧，这才开船两天而已。我觉得在下几话之后叙事速度应该会加快，否则又得来一个蚂蚁篇。
-
-
-
-
-
 
 
 -----
 
 ####  mierin  
 ##### 1521#       发表于 2017-8-25 22:25
-
-
 
 
 二王妃把自己亲兵的队长分配给最没干劲的七王子了，看样子是想让四个孩子都活着出来。
@@ -373,24 +234,13 @@
 最后特训班的作用就是让十四王子组在某种程度上变成了NPC，在场的护卫们很容易把目标转移到更有竞争力的其他王子（和他们护卫新学的能力）身上。上位王子遇到的阻力变大，下位王子拥有更多自保能力，混战时间延长。恭喜酷拉组又撑过两周（理论上），并且成功搅混水。
 
 
-
-
-
-
-
 -----
 
 ####  阿刚  
 ##### 1522#       发表于 2017-8-25 23:00
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">酷拉皮卡自己都没想到会持续这么久吧，整个人都炸了的感觉
-
-
-
-
-
 
 
 -----
@@ -399,16 +249,9 @@
 ##### 1523#       发表于 2017-8-25 23:29
 
 
-
-
 无脑口胡下，目测沉默的大多数的能力是这个具现化（？）的杀手只能对有念能力的人下手，因此大多数不会念能力的人既看不见又不会受影响，因此是沉默的大多数。而如果被攻击的人使用念能力回击了，便成为大王兵正当防卫的借口而绞杀了。不过这个猜测漏洞也很明显，一是这个能力太无聊了想象不出来妇贱会这么设计，二是大家和和睦睦的跟库拉皮卡玩太极，突然这么来一下好像没什么意义，当然这跟大王兵目地也有关，如果大王兵就是来搞事的那就没啥问题。
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
-
-
-
-
-
 
 
 -----
@@ -417,16 +260,10 @@
 ##### 1524#       发表于 2017-8-25 23:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37006056&amp;ptid=1505675" target="_blank">cmlf 发表于 2017-8-25 23:29</a>
 
 无脑口胡下，目测沉默的大多数的能力是这个具现化（？）的杀手只能对有念能力的人下手，因此大多数不会念能 ...</blockquote>
 大王子目的来捣乱的  四王子一如既往的傲慢   其他低位王子都在寻求合作同盟的机会
-
-
-
-
-
 
 
 -----
@@ -435,14 +272,7 @@
 ##### 1525#       发表于 2017-8-26 00:08
 
 
-
-
 四王子的年兽长的实在是个噩梦，好久没看到这么让人反胃的造型了…………这话吞了蟑螂……如果上一话缇塔真的也被吞了，好想揍他啊
-
-
-
-
-
 
 
 -----
@@ -451,15 +281,9 @@
 ##### 1526#       发表于 2017-8-26 00:24
 
 
-
  本帖最后由 amulelernen 于 2017-8-26 12:29 编辑 
 
 下一回得唱歌了吧<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">要不新一季的猎人就请平手来唱OP好了
-
-
-
-
-
 
 
 -----
@@ -468,13 +292,7 @@
 ##### 1527#       发表于 2017-8-26 02:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虽然很肤浅 但我总觉得那个警卫看上王妃了（
-
-
-
-
-
 
 
 -----
@@ -483,14 +301,7 @@
 ##### 1528#       发表于 2017-8-26 09:16
 
 
-
-
 搞了半天才经过了1天我还以为都一周了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -499,14 +310,7 @@
 ##### 1529#       发表于 2017-8-26 10:06
 
 
-
-
 真的，废话太多了，我想看的是黑暗大陆，不是几个新出角色之间勾心斗角，这个篇章到底有何作用？
-
-
-
-
-
 
 
 -----
@@ -515,16 +319,10 @@
 ##### 1530#       发表于 2017-8-26 10:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36992506&amp;ptid=1505675" target="_blank">mierin 发表于 2017-8-24 19:17</a>
 
 大王子亲兵怎么都是这种谜之自信款的……</blockquote>
 很多“钻研”了大学科目的民科、网络数学家啥的也是非常自信的
-
-
-
-
-
 
 
 -----
@@ -533,23 +331,16 @@
 ##### 1531#       发表于 2017-8-26 10:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37008686&amp;ptid=1505675" target="_blank">宫野秀策 发表于 2017-8-26 10:06</a>
 
 真的，废话太多了，我想看的是黑暗大陆，不是几个新出角色之间勾心斗角，这个篇章到底有何作用？ ...</blockquote>
 这个篇章的作用就是再拖一拖好让你没法马上看到黑暗大陆啊<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mierin  
 ##### 1532#       发表于 2017-8-26 10:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37008847&amp;ptid=1505675" target="_blank">amulelernen 发表于 2017-8-26 10:21</a>
@@ -560,25 +351,13 @@
 现在想想觉得会不会和五王子吐槽的大王子傲慢有关系
 
 
-
-
-
-
-
 -----
 
 ####  584520184  
 ##### 1533#       发表于 2017-8-26 11:19
 
 
-
-
 想看金和帕里斯通
-
-
-
-
-
 
 
 -----
@@ -587,14 +366,7 @@
 ##### 1534#       发表于 2017-8-26 13:29
 
 
-
-
 王妃其实挺漂亮的啊～库拉把自己置于这次“大逃杀”中心，感觉很危险啊。
-
-
-
-
-
 
 
 -----
@@ -603,14 +375,7 @@
 ##### 1535#       发表于 2017-8-26 16:11
 
 
-
-
 虽然浪费了十几小时几乎一无所获令人替酷拉伤心，但不用再看蟑螂真是很开心了
-
-
-
-
-
 
 
 -----
@@ -619,14 +384,7 @@
 ##### 1536#       发表于 2017-8-27 16:19
 
 
-
-
 怎么感觉酷拉皮卡和网费有CP感??是不是错觉?
-
-
-
-
-
 
 
 -----
@@ -635,14 +393,7 @@
 ##### 1537#       发表于 2017-8-27 16:45
 
 
-
-
 如果把帕里斯通换到酷拉皮卡现在的位置上是不是能在10话内解决继承权的问题
-
-
-
-
-
 
 
 -----
@@ -651,23 +402,16 @@
 ##### 1538#       发表于 2017-8-27 17:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37022731&amp;ptid=1505675" target="_blank">奥丁的大枪 发表于 2017-8-27 16:45</a>
 
 如果把帕里斯通换到酷拉皮卡现在的位置上是不是能在10话内解决继承权的问题 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">问题是他真的会想着去“解决问题”
 
 
-
-
-
-
-
 -----
 
 ####  勇者爱恶龙  
 ##### 1539#       发表于 2017-8-27 17:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37022731&amp;ptid=1505675" target="_blank">奥丁的大枪 发表于 2017-8-27 16:45</a>
@@ -677,16 +421,10 @@
 王子身边的保镖猎人大部分是协专 也就是子鼠的人
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 1540#       发表于 2017-8-27 17:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37023094&amp;ptid=1505675" target="_blank">勇者爱恶龙 发表于 2017-8-27 17:28</a>
@@ -694,16 +432,10 @@
 那就可以看看他有没有给协专处理不同事件的策略，而且现在相当于金也在出谋划策了，如果协专没有一点应变那他们两个太掉价了。
 
 
-
-
-
-
-
 -----
 
 ####  黑岩泪香  
 ##### 1541#       发表于 2017-8-27 17:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37023345&amp;ptid=1505675" target="_blank">cdfjg 发表于 2017-8-27 17:54</a>
@@ -713,16 +445,10 @@
 甚至協會都沒有理由在爭奪戰沒影響到本來目的、也就是前往暗黑大陸的情況下干預這件事。
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 1542#       发表于 2017-8-27 18:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37023386&amp;ptid=1505675" target="_blank">黑岩泪香 发表于 2017-8-27 17:58</a>
@@ -732,26 +458,15 @@
 我的意思就是争王位会影响救比杨德，就是应该有这种应变，还有如果有A级犯罪集团来怎么处理这种应变。毕竟蚁怪讨伐帕里斯通第一时间处理了5000念兵的，说明他是掌控全局的
 
 
-
-
-
-
-
 -----
 
 ####  黑岩泪香  
 ##### 1543#       发表于 2017-8-27 18:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37023437&amp;ptid=1505675" target="_blank">cdfjg 发表于 2017-8-27 18:04</a>
 我的意思就是争王位会影响救比杨德，就是应该有这种应变，还有如果有A级犯罪集团来怎么处理这种应变。毕 ...</blockquote>
 你是怎麼看出爭奪戰會影響救比楊德？分析分析看看。
-
-
-
-
-
 
 
 -----
@@ -760,15 +475,9 @@
 ##### 1544#       发表于 2017-8-27 18:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37023437&amp;ptid=1505675" target="_blank">cdfjg 发表于 2017-8-27 18:04</a>
 我的意思就是争王位会影响救比杨德，就是应该有这种应变，还有如果有A级犯罪集团来怎么处理这种应变。毕 ...</blockquote>
 比尔说最坏的计划是找比杨德 但是他不知道库拉有直接面见比杨德的权限
-
-
-
-
-
 
 
 -----
@@ -777,15 +486,9 @@
 ##### 1545#       发表于 2017-8-27 18:43
 
 
-
 <blockquote>奥丁的大枪 发表于 2017-8-27 16:45
 如果把帕里斯通换到酷拉皮卡现在的位置上是不是能在10话内解决继承权的问题 ...</blockquote>
 感觉他那种看热闹不怕事大的性格反而会拖更久
-
-
-
-
-
 
 
 -----
@@ -794,22 +497,15 @@
 ##### 1546#       发表于 2017-8-27 18:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37023470&amp;ptid=1505675" target="_blank">黑岩泪香 发表于 2017-8-27 18:07</a>
 你是怎麼看出爭奪戰會影響救比楊德？分析分析看看。</blockquote>
 随便举个例子，当护卫的协专全死了，影不影响，至少少了一点人手。帕里斯通是说比杨德会自行逃脱，那还安排人接近干什么
-
-
-
-
-
 
 
 -----
 
 ####  黑岩泪香  
 ##### 1547#       发表于 2017-8-27 19:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37023844&amp;ptid=1505675" target="_blank">cdfjg 发表于 2017-8-27 18:49</a>
@@ -832,26 +528,15 @@
 金：我就是要壓老鼠一頭。所以他的目的跟爭奪戰無關，除非老鼠插一腳。
 
 
-
-
-
-
-
 -----
 
 ####  勇者爱恶龙  
 ##### 1548#       发表于 2017-8-27 20:03
 
 
-
  本帖最后由 勇者爱恶龙 于 2017-8-27 20:04 编辑 
 
 子鼠和金在船里大闹肯定不行 被现在12支知道他们要协助比杨德越狱肯定要阻止它们 搞不好其中几个不能打的文员型协专会折损在船上 还没开始就失败一半了
-
-
-
-
-
 
 
 -----
@@ -860,23 +545,16 @@
 ##### 1549#       发表于 2017-8-28 11:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37023844&amp;ptid=1505675" target="_blank">cdfjg 发表于 2017-8-27 18:49</a>
 
 随便举个例子，当护卫的协专全死了，影不影响，至少少了一点人手。帕里斯通是说比杨德会自行逃脱，那还安 ...</blockquote>
 救 比杨德本身就没计划 等到了黑暗大陆他自己会跑 也不用啥人手。。 协专的都是负责黑暗大陆探索用。战斗力方面很存疑。 顺带一提如果帕丽斯通上的话 剧情应该是这样 把小王子身边所有人都拿去送死。 然后让整船的人都学会念 并且知道这船的人全是祭品 然后就能看个乐呵了。。
 
 
-
-
-
-
-
 -----
 
 ####  windmillge  
 ##### 1550#       发表于 2017-8-28 16:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37022505&amp;ptid=1505675" target="_blank">svmkty 发表于 2017-8-27 16:19</a>
@@ -887,25 +565,13 @@
 求学念能力和酷拉皮卡道出实情那里突然就很微妙（大概跟王妃发型和表情有很大关系……）
 
 
-
-
-
-
-
 -----
 
 ####  grasszyf  
 ##### 1551#       发表于 2017-8-28 18:37
 
 
-
-
 这个王妃一开始就只觉得是普通NPC，现在越画越有女主角的派头了……
-
-
-
-
-
 
 
 -----
@@ -914,15 +580,9 @@
 ##### 1552#       发表于 2017-8-28 19:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37031300&amp;ptid=1505675" target="_blank">www151007 发表于 2017-8-28 11:41</a>
 救 比杨德本身就没计划 等到了黑暗大陆他自己会跑 也不用啥人手。。 协专的都是负责黑暗大陆探索用。战斗 ...</blockquote>
 不能否定回锅肉和比杨德有串通的可能 因为比杨德的活动经费极大可能是卡金帝国赞助的 在游轮上做手脚又不难 船本来就是卡金的移动领土 回锅肉王说比是他的恩人 搞不好五十年前夺权比帮过回锅肉
-
-
-
-
-
 
 
 -----
@@ -931,14 +591,7 @@
 ##### 1553#       发表于 2017-8-28 20:10
 
 
-
-
 发现现在的猎人已经完全看不懂了。。。像是在看说明书
-
-
-
-
-
 
 
 -----
@@ -947,16 +600,10 @@
 ##### 1554#       发表于 2017-8-28 21:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37024458&amp;ptid=1505675" target="_blank">勇者爱恶龙 发表于 2017-8-27 20:03</a>
 
 子鼠和金在船里大闹肯定不行 被现在12支知道他们要协助比杨德越狱肯定要阻止它们 搞不好其中几个不能打的文 ...</blockquote>
 12支肩负在暗黑大陆替V6监管比杨德的重任，如果在船上损失太大让V6对他们失去信心的话就可能会中止暗黑大陆之行，换句话说就是12支在到达暗黑大陆之前出不了什么大问题。
-
-
-
-
-
 
 
 -----
@@ -965,23 +612,16 @@
 ##### 1555#       发表于 2017-8-28 21:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37037084&amp;ptid=1505675" target="_blank">tianshangtx 发表于 2017-8-28 20:10</a>
 
 发现现在的猎人已经完全看不懂了。。。像是在看说明书</blockquote>
 前会长最后的遗言有什么看不懂的
 
 
-
-
-
-
-
 -----
 
 ####  nanrendu  
 ##### 1556#       发表于 2017-8-28 21:35
-
 
 
  本帖最后由 nanrendu 于 2017-8-28 21:50 编辑 
@@ -993,16 +633,10 @@
 猎人还是很亲民的，我看jojo看到后面有些战斗，己经需要停下来思考一下，才能继续看了。
 
 
-
-
-
-
-
 -----
 
 ####  砂糖天妇罗  
 ##### 1557#       发表于 2017-8-29 09:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37037084&amp;ptid=1505675" target="_blank">tianshangtx 发表于 2017-8-28 20:10</a>
@@ -1029,26 +663,15 @@
 这几话看完弄懂之后。局势就清晰不少了。
 
 
-
-
-
-
-
 -----
 
 ####  黑岩泪香  
 ##### 1558#       发表于 2017-8-29 10:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37036708&amp;ptid=1505675" target="_blank">勇者爱恶龙 发表于 2017-8-28 19:22</a>
 不能否定回锅肉和比杨德有串通的可能 因为比杨德的活动经费极大可能是卡金帝国赞助的 在游轮上做手脚又不 ...</blockquote>
 比楊德這次之所以能去黑暗大陸，不就是受到幾大國尤其是卡金的支持麼。一開始就明說的啊，還否定啥…
-
-
-
-
-
 
 
 -----
@@ -1057,15 +680,9 @@
 ##### 1559#       发表于 2017-8-29 10:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37041448&amp;ptid=1505675" target="_blank">黑岩泪香 发表于 2017-8-29 10:27</a>
 比楊德這次之所以能去黑暗大陸，不就是受到幾大國尤其是卡金的支持麼。一開始就明說的啊，還否定啥… ...</blockquote>
 他的意思是回锅肉会帮比杨德逃脱吧
-
-
-
-
-
 
 
 -----
@@ -1074,24 +691,16 @@
 ##### 1560#       发表于 2017-8-29 12:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37022505&amp;ptid=1505675" target="_blank">svmkty 发表于 2017-8-27 16:19</a>
 怎么感觉酷拉皮卡和网费有CP感??是不是错觉?</blockquote>
 酷拉皮卡的CP会是女人？
 还是被个猥琐胖子压在身下过的
 
 
-
-
-
-
-
 -----
 
 ####  fatemaxwell  
 ##### 1561#       发表于 2017-8-29 12:32
-
-
 
 
 奥依特王妃挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
@@ -1111,16 +720,10 @@
 唯独王妃这种人格自主的包容性角色，说不好是可以改他的命的人<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cryczp  
 ##### 1562#       发表于 2017-8-29 13:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37004553&amp;ptid=1505675" target="_blank">C男人 发表于 2017-8-25 21:01</a>
@@ -1132,16 +735,10 @@
 不用担心，富奸老贼主角从来都是大团圆结局...
 
 
-
-
-
-
-
 -----
 
 ####  cryczp  
 ##### 1563#       发表于 2017-8-29 14:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37043002&amp;ptid=1505675" target="_blank">fatemaxwell 发表于 2017-8-29 12:32</a>
@@ -1156,17 +753,10 @@
 说到底酷拉收集完眼球报完仇的确需要靠照顾小孩活下去...
 
 
-
-
-
-
-
 -----
 
 ####  砂糖天妇罗  
 ##### 1564#       发表于 2017-8-30 09:52
-
-
 
 
 酷拉皮卡的cp很明显是雷欧力啊…
@@ -1176,27 +766,18 @@
 <img src="http://ww1.sinaimg.cn/large/0060lm7Tgy1fj1ica7rtqj30890e7tb7.jpg" referrerpolicy="no-referrer">
 
 
-
 这个是在去协会的车上，雷欧力强行给酷拉皮卡打电话时候，酷拉皮卡的表情。（那个傲娇小眼神，我的心都要化了…）
 <img src="http://ww4.sinaimg.cn/large/0060lm7Tgy1fj1ictdkx6j30800c3gn4.jpg" referrerpolicy="no-referrer">
-
 
 
 最后是和牛背地里提到雷欧力时候的眼神：
 <img src="http://ww1.sinaimg.cn/large/0060lm7Tgy1fj1ic6jjlej30dw0aj76j.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  gaofar  
 ##### 1565#       发表于 2017-8-30 10:36
-
-
 
 
 40号
@@ -1243,17 +824,10 @@
 マリー
 
 
-
-
-
-
-
 -----
 
 ####  darkeyes  
 ##### 1566#       发表于 2017-8-30 10:39
-
-
 
 
 来了吗？终于来了吗！
@@ -1265,25 +839,13 @@
 3年后再见
 
 
-
-
-
-
-
 -----
 
 ####  liaoyaaa  
 ##### 1567#       发表于 2017-8-30 10:41
 
 
-
-
 这次连载了多少话
-
-
-
-
-
 
 
 -----
@@ -1292,14 +854,7 @@
 ##### 1568#       发表于 2017-8-30 10:42
 
 
-
-
 看了下10话，富奸果然说到做到，10话就10话绝对不多一张纸
-
-
-
-
-
 
 
 -----
@@ -1308,16 +863,10 @@
 ##### 1569#         楼主| 发表于 2017-8-30 10:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37052049&amp;ptid=1505675" target="_blank">liaoyaaa 发表于 2017-8-30 10:41</a>
 
 这次连载了多少话</blockquote>
 10
-
-
-
-
-
 
 
 -----
@@ -1326,22 +875,13 @@
 ##### 1570#         楼主| 发表于 2017-8-30 10:43
 
 
-
-
 OP好像也是下周休刊（固定三休一）
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 1571#         楼主| 发表于 2017-8-30 10:49
-
-
 
 
 富坚：今年还会再复刊一次
@@ -1351,27 +891,15 @@ OP好像也是下周休刊（固定三休一）
 日清食品様に復活賞として、どん兵衛いただいたので年内にもう１回復活します＜義博＞
 
 
-
-
-
-
-
 -----
 
 ####  萝卜roto  
 ##### 1572#       发表于 2017-8-30 10:49
 
 
-
-
 终于来了。。
 
 —— 来自 samsung SM-A9100, Android 6.0.1上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
-
-
-
-
-
 
 
 -----
@@ -1380,14 +908,7 @@ OP好像也是下周休刊（固定三休一）
 ##### 1573#       发表于 2017-8-30 11:00
 
 
-
-
 FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1396,14 +917,7 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1574#       发表于 2017-8-30 11:01
 
 
-
-
 看到休刊的新闻本来还想说点啥，想了想好像又没啥需要说的。
-
-
-
-
-
 
 
 -----
@@ -1412,14 +926,7 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1575#       发表于 2017-8-30 11:01
 
 
-
-
 该来的总会来<img src="https://static.saraba1st.com/image/smiley/carton2017/004.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1428,14 +935,7 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1576#       发表于 2017-8-30 11:10
 
 
-
-
 金的目的也是借比杨德一伙去探索暗黑大陆啊，说不定金也会帮忙让比杨德逃脱
-
-
-
-
-
 
 
 -----
@@ -1444,14 +944,7 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1577#       发表于 2017-8-30 11:12
 
 
-
-
 好的，可以开始补了
-
-
-
-
-
 
 
 -----
@@ -1460,14 +953,7 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1578#       发表于 2017-8-30 11:13
 
 
-
-
 讲道理十话了呀，该休刊了呀
-
-
-
-
-
 
 
 -----
@@ -1476,16 +962,9 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1579#       发表于 2017-8-30 11:18
 
 
-
-
 371已经在画了，梦里就能见到
 
 坚哥哥我骗过你吗
-
-
-
-
-
 
 
 -----
@@ -1494,13 +973,7 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1580#       发表于 2017-8-30 11:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不多不少，正好十话，大家我们明年见
-
-
-
-
-
 
 
 -----
@@ -1509,16 +982,9 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1581#       发表于 2017-8-30 11:33
 
 
-
-
 10回了，富奸今次好努力了
 
 因為DQ11啊
-
-
-
-
-
 
 
 -----
@@ -1527,22 +993,13 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1582#       发表于 2017-8-30 11:37
 
 
-
-
 感谢日清方便面 10话2个半月 马上就9月了 也不是很远嘛
-
-
-
-
-
 
 
 -----
 
 ####  归来的硫酸钾君  
 ##### 1583#       发表于 2017-8-30 11:40
-
-
 
 
 毫不惊讶的结果。
@@ -1552,25 +1009,13 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 老贼套路深。这恐怕是我看过最多遍的长篇动画。
 
 
-
-
-
-
-
 -----
 
 ####  nanrendu  
 ##### 1584#       发表于 2017-8-30 11:40
 
 
-
-
 鼓掌
-
-
-
-
-
 
 
 -----
@@ -1579,14 +1024,7 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1585#       发表于 2017-8-30 11:44
 
 
-
-
 该来的还是来了
-
-
-
-
-
 
 
 -----
@@ -1595,14 +1033,7 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1586#       发表于 2017-8-30 12:22
 
 
-
-
 画漫画，也要讲信用的，说刊它10话就是刊10话<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1611,14 +1042,7 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1587#       发表于 2017-8-30 12:25
 
 
-
-
 言出必行富坚义博<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1627,14 +1051,7 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1588#       发表于 2017-8-30 12:31
 
 
-
-
 凑够10回了吗？ 麻痹这连月连载都算不上啊！
-
-
-
-
-
 
 
 -----
@@ -1643,14 +1060,7 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1589#         楼主| 发表于 2017-8-30 12:35
 
 
-
-
 #370 情报更新在主楼
-
-
-
-
-
 
 
 -----
@@ -1659,14 +1069,7 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1590#       发表于 2017-8-30 12:55
 
 
-
-
 对西索讨厌不起来了，完全是搞笑角色
-
-
-
-
-
 
 
 -----
@@ -1675,13 +1078,7 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1591#       发表于 2017-8-30 12:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">习惯了....
-
-
-
-
-
 
 
 -----
@@ -1690,14 +1087,7 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1592#       发表于 2017-8-30 12:59
 
 
-
-
 今年复活？指的一定是十二月底吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1706,14 +1096,7 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1593#       发表于 2017-8-30 13:15
 
 
-
-
 等日文翻译就可以安心地躺了
-
-
-
-
-
 
 
 -----
@@ -1722,13 +1105,7 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1594#       发表于 2017-8-30 13:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">年常1/1
-
-
-
-
-
 
 
 -----
@@ -1737,14 +1114,7 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1595#       发表于 2017-8-30 14:01
 
 
-
-
 那么这次画了多少话，是不是正好一个单行本没有多。
-
-
-
-
-
 
 
 -----
@@ -1753,23 +1123,16 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1596#         楼主| 发表于 2017-8-30 14:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37054251&amp;ptid=1505675" target="_blank">斯勒恩鬼歌 发表于 2017-8-30 14:01</a>
 
 那么这次画了多少话，是不是正好一个单行本没有多。</blockquote>
 10话，正好一本
 
 
-
-
-
-
-
 -----
 
 ####  windmillge  
 ##### 1597#       发表于 2017-8-30 15:05
-
 
 
  本帖最后由 windmillge 于 2017-8-30 15:10 编辑 
@@ -1780,15 +1143,9 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 想想当年飞影和躯。
 
 
-
 不是说富坚一定会配这对CP，是说配了不是不可能。富坚向来如此。感情方面往往淡淡带过，不会大笔墨交代，但没有什么CP是不可能的，而且那一点笔墨也能让人服气。
 
 然后再重申一遍现在不好说配不配，具体看富坚怎么想啦（其实我觉得酷拉死在这里都有可能啊，抖）
-
-
-
-
-
 
 
 -----
@@ -1797,15 +1154,8 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1598#         楼主| 发表于 2017-8-30 15:19
 
 
-
-
 转鼠绘
 <img src="http://wx3.sinaimg.cn/large/741fe3e9gy1fj1rued01aj20ic1u6n5f.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1814,22 +1164,15 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1599#       发表于 2017-8-30 15:24
 
 
-
  本帖最后由 宫野秀策 于 2017-8-30 15:25 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">富生奸计你又不想画干嘛学别人加75海给自己找麻烦，照这个势头，我看这场NPC乱斗再来20话也未必画得完呢
-
-
-
-
-
 
 
 -----
 
 ####  肩上的乌鸦  
 ##### 1600#       发表于 2017-8-30 15:44
-
 
 
 <blockquote>宫野秀策 发表于 2017-8-30 15:24
@@ -1840,25 +1183,13 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 船的中层底层估计也会出现很多如现在的护卫比尔和岛野宫女级别智商的NPC。毕竟念兽还没发挥作用呢，王位战肯定会蔓延到中下层的。
 
 
-
-
-
-
-
 -----
 
 ####  勇者爱恶龙  
 ##### 1601#       发表于 2017-8-30 15:45
 
 
-
-
 刺客就是找死吧 库拉这么会抓内鬼还捣乱
-
-
-
-
-
 
 
 -----
@@ -1867,15 +1198,8 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1602#         楼主| 发表于 2017-8-31 17:32
 
 
-
-
 转师
 <img src="http://wx3.sinaimg.cn/large/bcfcde0agy1fj3193jnbpj20nc0y67iw.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1884,24 +1208,16 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1603#         楼主| 发表于 2017-8-31 17:47
 
 
-
 <img src="http://wx4.sinaimg.cn/large/bcfcde0agy1fj31jzk3cnj20na0y6tle.jpg" referrerpolicy="no-referrer">
 <img src="http://wx3.sinaimg.cn/large/bcfcde0agy1fj31jzwrnmj20nm0y6wva.jpg" referrerpolicy="no-referrer">
 <img src="http://wx4.sinaimg.cn/large/bcfcde0agy1fj31jzhyyaj20nm0xsws6.jpg" referrerpolicy="no-referrer">
 <img src="http://wx2.sinaimg.cn/large/bcfcde0agy1fj31jzuba3j20n00xj4h0.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 1604#       发表于 2017-8-31 17:56
-
-
 
 
 说起来木木泽的死亡有假死的可能。
@@ -1919,25 +1235,13 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 木木泽的尸体是怎么处理的，富坚也没交代。说不定就是木木泽她妈为了女儿安全，派自己的手下当凶手让木木泽陷入假死。
 
 
-
-
-
-
-
 -----
 
 ####  mierin  
 ##### 1605#       发表于 2017-8-31 19:10
 
 
-
-
 说起来这个被人偶附身的是不是很容易学会念<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1946,14 +1250,7 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1606#       发表于 2017-8-31 19:54
 
 
-
-
 周指活，知道自己很贱骨头，还是哭在厕所。多画一话啊喂！
-
-
-
-
-
 
 
 -----
@@ -1962,14 +1259,7 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1607#       发表于 2017-8-31 20:08
 
 
-
-
 我就想看看旅团怎么被西索杀，结果这10集都是讲这些琐事。<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1978,13 +1268,7 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1608#       发表于 2017-8-31 20:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚好一本单行本，富奸真棒，没让我们失望
-
-
-
-
-
 
 
 -----
@@ -1993,14 +1277,7 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1609#         楼主| 发表于 2017-9-1 16:03
 
 
-
-
 汉化更新了
-
-
-
-
-
 
 
 -----
@@ -2009,14 +1286,7 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1610#       发表于 2017-9-1 16:10
 
 
-
-
 这两话酷拉都是好重的黑眼圈
-
-
-
-
-
 
 
 -----
@@ -2025,14 +1295,7 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1611#       发表于 2017-9-1 16:11
 
 
-
-
 团长又要吃屎脸在船上飘一年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2041,14 +1304,7 @@ FJ真是从来不会让人失望<img src="https://static.saraba1st.com/image/smi
 ##### 1612#       发表于 2017-9-1 17:24
 
 
-
-
 sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的，叫得再**一点啊小婊砸
-
-
-
-
-
 
 
 -----
@@ -2057,14 +1313,7 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1613#       发表于 2017-9-1 17:40
 
 
-
-
 团长要吃一年的屎，美滋滋。
-
-
-
-
-
 
 
 -----
@@ -2073,14 +1322,7 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1614#       发表于 2017-9-1 17:58
 
 
-
-
 如果凶手是在场的人的话，八王子护卫可能性最高，等复刊。
-
-
-
-
-
 
 
 -----
@@ -2089,14 +1331,7 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1615#       发表于 2017-9-1 18:02
 
 
-
-
 库拉恐怕是天才型中唯一个怕枪的菜鸡吧。
-
-
-
-
-
 
 
 -----
@@ -2105,14 +1340,7 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1616#       发表于 2017-9-1 18:03
 
 
-
-
 啊 最近几话都没什么意思啊
-
-
-
-
-
 
 
 -----
@@ -2121,15 +1349,9 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1617#       发表于 2017-9-1 18:18
 
 
-
  本帖最后由 mierin 于 2017-9-1 18:21 编辑 
 
 仔细想想二王妃的护卫斯拉卡作案嫌疑吊打所有人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2138,14 +1360,7 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1618#       发表于 2017-9-1 18:29
 
 
-
-
 果然10话修
-
-
-
-
-
 
 
 -----
@@ -2154,14 +1369,7 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1619#       发表于 2017-9-1 18:43
 
 
-
-
 原来如此，「凝」挡不住子弹啊
-
-
-
-
-
 
 
 -----
@@ -2170,14 +1378,7 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1620#       发表于 2017-9-1 19:15
 
 
-
-
 当初旅团跟黑帮战斗的时候除了窝金基本都是用速度来躲子弹吧  侠客还要用挡箭牌   所以窝金能硬抗火箭炮其实还是很强的
-
-
-
-
-
 
 
 -----
@@ -2186,15 +1387,9 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1621#       发表于 2017-9-1 19:19
 
 
-
 <blockquote>就不的 发表于 2017-9-1 19:15
 当初旅团跟黑帮战斗的时候除了窝金基本都是用速度来躲子弹吧  侠客还要用挡箭牌   所以窝金能硬抗火箭炮其 ...</blockquote>
 富兰克林也硬抗子弹，对射
-
-
-
-
-
 
 
 -----
@@ -2203,14 +1398,7 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1622#       发表于 2017-9-1 19:22
 
 
-
-
 平手强大的压迫感<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2219,14 +1407,7 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1623#       发表于 2017-9-1 19:39
 
 
-
-
 原来凝用来档**的威力还有点勉强...那不对上强化系的，一些操作系变化系的用机枪直接轰胜算也很大啊，果然还是顶尖能力者看多了，其实很多猎人只是担任着“比较强的保镖”这种角**
-
-
-
-
-
 
 
 -----
@@ -2235,14 +1416,7 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1624#       发表于 2017-9-1 19:51
 
 
-
-
 旅团屠杀装备轻武器的黑帮就跟碾死一群蚂蚁一样，奇犽也能毫不费劲单刷人类军队，到了酷拉这儿居然会忌惮一支**，老贼要变着花样让库拉陷入困境可以理解，但能不能别用这么这么low的桥段，以前时髦度这么高的角色现在和贪婪岛的杂鱼唯一的区别恐怕就是颜值了。
-
-
-
-
-
 
 
 -----
@@ -2251,14 +1425,7 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1625#       发表于 2017-9-1 19:53
 
 
-
-
 說是蛇長的還更像縧蟲一些
-
-
-
-
-
 
 
 -----
@@ -2267,14 +1434,7 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1626#       发表于 2017-9-1 20:02
 
 
-
-
 酷拉皮卡可以用锁链挡子弹，本人能不能肉身接其实不重要啦<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2283,24 +1443,16 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1627#       发表于 2017-9-1 20:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37067725&amp;ptid=1505675" target="_blank">银翼的维罗西 发表于 2017-9-1 19:51</a>
 
 旅团屠杀装备轻武器的黑帮就跟碾死一群蚂蚁一样，奇犽也能毫不费劲单刷人类军队，到了酷拉这儿居然会忌惮一 ...</blockquote>
 是因为面对的情势不一样吧，真要动手，酷拉干掉在场不会念的人，应该就是几秒钟的功夫
 
 
-
-
-
-
-
 -----
 
 ####  C男人  
 ##### 1628#       发表于 2017-9-1 20:57
-
-
 
 
 “即便用凝防御也不能毫发无伤”
@@ -2314,25 +1466,13 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 反正只要富坚想圆上，扯一段 “衣服全破了，果然面对冲锋枪不能毫发无伤呢” 都有可能。
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 1629#       发表于 2017-9-1 21:58
 
 
-
-
 今天没人分析念能力者和刺客了吗
-
-
-
-
-
 
 
 -----
@@ -2341,14 +1481,7 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1630#       发表于 2017-9-1 22:12
 
 
-
-
 不能硬接子弹就low了……你们怎么不说奇犽被跳蚤弹打出血的事呢
-
-
-
-
-
 
 
 -----
@@ -2357,14 +1490,7 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1631#       发表于 2017-9-1 22:18
 
 
-
-
 这次剧情进展太慢了 10话感觉就讲了一个小转折 
-
-
-
-
-
 
 
 -----
@@ -2373,14 +1499,7 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1632#       发表于 2017-9-1 22:41
 
 
-
-
 犯人是十三王子的贝雷连迪吧，就是他举手结果引导了其他人看向了面具女所在的方向吧。而且在罗贝利问那边女人是谁的时候，其他人都是视线平移，只有他微妙的低下头，看向真正的位置。最后挑衅的态度也稍微有点怪
-
-
-
-
-
 
 
 -----
@@ -2389,14 +1508,7 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1633#       发表于 2017-9-1 22:44
 
 
-
-
 而且这话，这人上镜率有点异常的高
-
-
-
-
-
 
 
 -----
@@ -2405,24 +1517,16 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1634#       发表于 2017-9-1 23:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37066748&amp;ptid=1505675" target="_blank">银翼的维罗西 发表于 2017-9-1 18:02</a>
 
 库拉恐怕是天才型中唯一个怕枪的菜鸡吧。</blockquote>
 话说在黑帮面试时库拉就用锁链直接挡住两个人的枪击，现在库拉说用凝挡子弹啥的是不是有点莫名其妙
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 1635#       发表于 2017-9-1 23:24
-
-
 
 
 已知：
@@ -2433,16 +1537,10 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 那么，比司吉＞9mm**＞旅团战斗员？
 
 
-
-
-
-
-
 -----
 
 ####  mierin  
 ##### 1636#       发表于 2017-9-1 23:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37069141&amp;ptid=1505675" target="_blank">sk86 发表于 2017-9-1 22:41</a>
@@ -2451,16 +1549,10 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 这人态度的确微妙，但问题是死者是他队友。并且死者血被吸的时候他看起来也很惊讶。
 
 
-
-
-
-
-
 -----
 
 ####  银翼的维罗西  
 ##### 1637#       发表于 2017-9-1 23:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37069493&amp;ptid=1505675" target="_blank">cdfjg 发表于 2017-9-1 23:24</a>
@@ -2473,26 +1565,15 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 别研究了，老贼早把设定吃了，连载了快二十年来，突然出现个了还要忌惮装备轻武器无能力者的主要角色，老贼当年设计的念能力者和普通人的差异恐怕他自己都忘了，之前我想这个章节库拉被弱化到贪婪岛杂鱼水平，现在看好像还不如，这样这个杂鱼互啄的护卫战就趋于平衡剧情也好发展了，要是还是旅团篇时跟沃金对打的旅团战斗组实力设定，库拉理论上可以单人短时间杀死在场的全部杂鱼，那这故事还讲个屁。
 
 
-
-
-
-
-
 -----
 
 ####  klzxs  
 ##### 1638#       发表于 2017-9-1 23:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">稍微担心下子弹酷拉这种单挑无敌控场一流的挂壁就硬是被说成杂鱼水平
 
 他又不是就一个人单独行动 一个弱女子和一个婴儿的护卫自然顾虑多多
-
-
-
-
-
 
 
 -----
@@ -2501,23 +1582,16 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1639#       发表于 2017-9-1 23:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37069576&amp;ptid=1505675" target="_blank">银翼的维罗西 发表于 2017-9-1 23:35</a>
 
 别研究了，老贼早把设定吃了，连载了快二十年来，突然出现个了还要忌惮装备轻武器无能力者的主要角色，老 ...</blockquote>
 库拉的行动以避免杀伤为前提，所以优先考虑防御和无伤制服护卫。换成奇伢会在仪式开始前就单机突入刺杀四王子，根本不需要应付这些杂鱼。
 
 
-
-
-
-
-
 -----
 
 ####  勇者爱恶龙  
 ##### 1640#       发表于 2017-9-1 23:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37069493&amp;ptid=1505675" target="_blank">cdfjg 发表于 2017-9-1 23:24</a>
@@ -2530,16 +1604,10 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 开了红眼之后手骨被打断了
 
 
-
-
-
-
-
 -----
 
 ####  勇者爱恶龙  
 ##### 1641#       发表于 2017-9-2 00:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37069524&amp;ptid=1505675" target="_blank">mierin 发表于 2017-9-1 23:27</a>
@@ -2548,16 +1616,10 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 这人是猎人 然后参与王子护卫的都协专 协专大都是帕里斯通的人 而护卫的猎人大都是在继承战之前就已经决定好安插在护卫里面的
 
 
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 1642#       发表于 2017-9-2 00:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37069493&amp;ptid=1505675" target="_blank">cdfjg 发表于 2017-9-1 23:24</a>
@@ -2572,25 +1634,13 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 老女人是变化系，强化系能力练到极限，但是本身强化系能力上限没有沃京高。
 
 
-
-
-
-
-
 -----
 
 ####  Brad_Pitt  
 ##### 1643#       发表于 2017-9-2 00:21
 
 
-
-
 比斯基比旅团战斗员强不是一定的嘛，估计也就团长能和她打了
-
-
-
-
-
 
 
 -----
@@ -2599,21 +1649,13 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1644#       发表于 2017-9-2 00:23
 
 
-
-
 我理解不了的剧情肯定是老贼的错啦，都怪老贼吃了我yy的设定，太low!
-
-
-
-
-
 
 
 -----
 
 ####  mierin  
 ##### 1645#       发表于 2017-9-2 00:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37070705&amp;ptid=1505675" target="_blank">勇者爱恶龙 发表于 2017-9-2 00:10</a>
@@ -2626,16 +1668,10 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 协专的人会无聊到因为帕里斯通想挑事就跑酷拉皮卡的速成班冒自爆的风险无差别杀人么，难以想象啊。
 
 
-
-
-
-
-
 -----
 
 ####  勇者爱恶龙  
 ##### 1646#       发表于 2017-9-2 00:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37070837&amp;ptid=1505675" target="_blank">mierin 发表于 2017-9-2 00:36</a>
@@ -2648,16 +1684,10 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 我觉得不是 这个刺客明显就是一开始杀了14王子一堆护卫的那个人 
 
 
-
-
-
-
-
 -----
 
 ####  勇者爱恶龙  
 ##### 1647#       发表于 2017-9-2 00:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37070762&amp;ptid=1505675" target="_blank">Brad_Pitt 发表于 2017-9-2 00:21</a>
@@ -2666,16 +1696,10 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 比斯基的实际实力也就揍敌客爷爷爸爸档这个程度 不过一边是刺客 一边是修行的武术家 只是比试可能比斯基地有胜算 但是生死厮杀就难说了
 
 
-
-
-
-
-
 -----
 
 ####  downnote  
 ##### 1648#       发表于 2017-9-2 08:10
-
 
 
  本帖最后由 downnote 于 2017-9-2 08:13 编辑 
@@ -2688,16 +1712,10 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 如果他会的话，那么这里可以理解成普通的状态不能完全防御枪伤比较合理吧
 
 
-
-
-
-
-
 -----
 
 ####  sk86  
 ##### 1649#       发表于 2017-9-2 08:30
-
 
 
 <blockquote>mierin 发表于 2017-9-2 00:36
@@ -2711,16 +1729,10 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 而且以他的能力来说，这个速成班正是掩饰自己杀手身份绝佳场所
 
 
-
-
-
-
-
 -----
 
 ####  rhinoceros  
 ##### 1650#       发表于 2017-9-2 08:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37069576&amp;ptid=1505675" target="_blank">银翼的维罗西 发表于 2017-9-1 23:35</a>
@@ -2729,16 +1741,10 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 秒全场还是可能的（除了大王子护卫），关键是动机，十四王子身边没啥其他可靠的人了。
 
 
-
-
-
-
-
 -----
 
 ####  rhinoceros  
 ##### 1651#       发表于 2017-9-2 08:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37071738&amp;ptid=1505675" target="_blank">downnote 发表于 2017-9-2 08:10</a>
@@ -2747,25 +1753,13 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 以**的射速，用硬是找死吧，应该用坚+流。
 
 
-
-
-
-
-
 -----
 
 ####  泥鳅化石  
 ##### 1652#       发表于 2017-9-2 09:40
 
 
-
-
 最近几次连载都拖沓的要命+讲不出什么东西，完全没有了当年连载的爽快感，这次休刊唯一的感觉居然是哦又臭又长的终于坚持不下去了？还是腰斩算了。
-
-
-
-
-
 
 
 -----
@@ -2774,15 +1768,9 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1653#       发表于 2017-9-2 10:11
 
 
-
 <blockquote>泥鳅化石 发表于 2017-9-2 09:40
 最近几次连载都拖沓的要命+讲不出什么东西，完全没有了当年连载的爽快感，这次休刊唯一的感觉居然是哦又臭 ...</blockquote>
 你不去追，就可以当做腰斩了
-
-
-
-
-
 
 
 -----
@@ -2791,14 +1779,7 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1654#       发表于 2017-9-2 10:32
 
 
-
-
 王子之间还是看的还是挺有趣的 这种丑了吧唧的护卫也要占戏份是挺恼人的
-
-
-
-
-
 
 
 -----
@@ -2807,14 +1788,7 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1655#       发表于 2017-9-2 10:57
 
 
-
-
 想想沃金是真吊，徒手扛RPG，裸身挨狙击
-
-
-
-
-
 
 
 -----
@@ -2823,16 +1797,10 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1656#       发表于 2017-9-2 11:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37072632&amp;ptid=1505675" target="_blank">hagane 发表于 2017-9-2 10:57</a>
 
 想想沃金是真吊，徒手扛RPG，裸身挨狙击</blockquote>
 旅团毕竟是顶级念能力者，沃金又是旅团中特化攻击防御力
-
-
-
-
-
 
 
 -----
@@ -2841,15 +1809,9 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1657#       发表于 2017-9-2 11:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37072861&amp;ptid=1505675" target="_blank">终极答案42 发表于 2017-9-2 11:28</a>
 旅团毕竟是顶级念能力者，沃金又是旅团中特化攻击防御力</blockquote>
 库哔和侠客不算强 
-
-
-
-
-
 
 
 -----
@@ -2858,15 +1820,9 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1658#       发表于 2017-9-2 11:35
 
 
-
 <blockquote>勇者爱恶龙 发表于 2017-9-2 11:29
 库哔和侠客不算强</blockquote>
 只是不是战斗型的，但是不能说不强。库哔那种把单栋楼复制出一个小区出来的，肯定需要很大的念量。
-
-
-
-
-
 
 
 -----
@@ -2875,16 +1831,10 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1659#       发表于 2017-9-2 11:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37072876&amp;ptid=1505675" target="_blank">勇者爱恶龙 发表于 2017-9-2 11:29</a>
 
 库哔和侠客不算强</blockquote>
 强弱不是单纯以战斗论处的啊，看了这么多年猎人怎么还当龙珠看呢你说对吧
-
-
-
-
-
 
 
 -----
@@ -2893,15 +1843,9 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1660#       发表于 2017-9-2 11:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37073036&amp;ptid=1505675" target="_blank">darkeyes 发表于 2017-9-2 11:48</a>
 强弱不是单纯以战斗论处的啊，看了这么多年猎人怎么还当龙珠看呢你说对吧 ...</blockquote>
 厕所杀杀太震撼了  毕竟侠客不是不能打
-
-
-
-
-
 
 
 -----
@@ -2910,23 +1854,16 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1661#       发表于 2017-9-2 11:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37072165&amp;ptid=1505675" target="_blank">泥鳅化石 发表于 2017-9-2 09:40</a>
 
 最近几次连载都拖沓的要命+讲不出什么东西，完全没有了当年连载的爽快感，这次休刊唯一的感觉居然是哦又臭 ...</blockquote>
 年轻真好，想当年我也觉得莫老五那库鲁很烦人
 
 
-
-
-
-
-
 -----
 
 ####  mierin  
 ##### 1662#       发表于 2017-9-2 12:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37071822&amp;ptid=1505675" target="_blank">sk86 发表于 2017-9-2 08:30</a>
@@ -2937,17 +1874,10 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 那里说的是挑事的四王子护卫不在人偶能力目标的十人之内吧？
 
 
-
-
-
-
-
 -----
 
 ####  发财就手  
 ##### 1663#       发表于 2017-9-2 12:33
-
-
 
 
 这篇章给我一直念能力将会大规模扩展在人类世界的感觉，酷拉这一教导过程被录下后将会放上网传播
@@ -2956,27 +1886,15 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 甚至整场选举过程都在在线直播中
 
 
-
-
-
-
-
 -----
 
 ####  mierin  
 ##### 1664#       发表于 2017-9-2 12:40
 
 
-
-
 只要修利科夫指出会念的四个人，酷拉皮卡一测谎，凶手马上就会暴露
 
 然而巴比马因纳明显是在看戏，修利科夫很可能打算看戏之余自己把凶手找出来保底。下一个便当的炮灰是谁呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2985,22 +1903,15 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1665#       发表于 2017-9-2 12:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37073061&amp;ptid=1505675" target="_blank">勇者爱恶龙 发表于 2017-9-2 11:50</a>
 厕所杀杀太震撼了  毕竟侠客不是不能打</blockquote>
 侠客那时还是沉默状态
-
-
-
-
-
 
 
 -----
 
 ####  我爱喵喵  
 ##### 1666#       发表于 2017-9-2 13:15
-
 
 
  本帖最后由 我爱喵喵 于 2017-9-2 13:18 编辑 
@@ -3010,16 +1921,10 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 不过凝挡不住**不代表锁链挡不住，毕竟最开始进黑帮面试的时候就挡过了
 
 
-
-
-
-
-
 -----
 
 ####  www151007  
 ##### 1667#       发表于 2017-9-2 14:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37072861&amp;ptid=1505675" target="_blank">终极答案42 发表于 2017-9-2 11:28</a>
@@ -3028,16 +1933,10 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 被个厕所战神双杀的顶级？还是被个怕9MM子弹的人杀的连报仇都没报的顶级？还是团吹眼里的顶级？
 
 
-
-
-
-
-
 -----
 
 ####  www151007  
 ##### 1668#       发表于 2017-9-2 14:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37073498&amp;ptid=1505675" target="_blank">我来自一中 发表于 2017-9-2 12:44</a>
@@ -3046,25 +1945,13 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 侠客只是把能力给了团长 没有任何线索说他念都封住了。。被厕所双杀只有一个理由 西索虐菜而已
 
 
-
-
-
-
-
 -----
 
 ####  www151007  
 ##### 1669#       发表于 2017-9-2 14:15
 
 
-
-
 事实上挡子弹很好理解。。你看连金碰到几个菜鸡拿冲锋都是先跑而不是 你射到我破防算我输。找个机会干死对面 比像个智障一样让对面射不是好很多。 沃金像个智障因为要引出拍卖品 否则他搞毛啊。又他妈不是傻逼。
-
-
-
-
-
 
 
 -----
@@ -3073,14 +1960,7 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1670#       发表于 2017-9-2 14:21
 
 
-
-
 团长打西索时用了手机和复制物体的能力，侠客和库俾明显处于除了基础能力外其他招式都用不出来的状态，然而这二人又都是后勤部分的…………
-
-
-
-
-
 
 
 -----
@@ -3089,16 +1969,10 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1671#       发表于 2017-9-2 15:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37074102&amp;ptid=1505675" target="_blank">终极答案42 发表于 2017-9-2 14:21</a>
 
 团长打西索时用了手机和复制物体的能力，侠客和库俾明显处于除了基础能力外其他招式都用不出来的状态，然而 ...</blockquote>
 所以说2个菜鸡而已。。蚂蚁篇告诉我们 基础够强就不虚了。。
-
-
-
-
-
 
 
 -----
@@ -3107,23 +1981,16 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1672#       发表于 2017-9-2 17:20
 
 
-
  本帖最后由 kokyou 于 2017-9-2 17:22 编辑 
 <blockquote>www151007 发表于 2017-9-2 15:11
 所以说2个菜鸡而已。。蚂蚁篇告诉我们 基础够强就不虚了。。</blockquote>
 团黑得了吧 厕所战神自己一开始就说了，中了侠客的天线就是被秒杀。所谓“基础”也不一定都有益于战斗向，前面说的库哔能复制出一个小区，你觉得他基础不行？
 
 
-
-
-
-
-
 -----
 
 ####  www151007  
 ##### 1673#       发表于 2017-9-2 17:30
-
 
 
  本帖最后由 www151007 于 2017-9-2 17:35 编辑 
@@ -3133,25 +2000,13 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 是啊中了是秒杀 中不了呢？连个傀儡蚂蚁都说没地方插的秒杀？
 
 
-
-
-
-
-
 -----
 
 ####  www151007  
 ##### 1674#       发表于 2017-9-2 17:47
 
 
-
-
 那蚂蚁只是杂鱼中的杂鱼 被控制了 但侠客知道之前就说没地方插。就这还去秒杀？也就能插插黑帮小流氓的程度吧
-
-
-
-
-
 
 
 -----
@@ -3160,14 +2015,7 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1675#       发表于 2017-9-2 18:05
 
 
-
-
 我记得对于团长的书的受害者有描述，谁去翻来解读侠客到底能不能战
-
-
-
-
-
 
 
 -----
@@ -3176,16 +2024,10 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1676#       发表于 2017-9-2 19:04
 
 
-
  本帖最后由 kokyou 于 2017-9-2 19:05 编辑 
 <blockquote>www151007 发表于 2017-9-2 17:47
 那蚂蚁只是杂鱼中的杂鱼 被控制了 但侠客知道之前就说没地方插。就这还去秒杀？也就能插插黑帮小流氓的程度 ...</blockquote>
 甲虫蚂蚁戴壳又不是人 看你能的 怎么不开高达来啊？操作系目前出场的能控人的就没几个，180分恋爱奴隶还有3小时限制，然后其他不是操纵动物就是描述上控制武器。旅团没有团吹说的那么强，但是肯定也不弱。
-
-
-
-
-
 
 
 -----
@@ -3194,14 +2036,7 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1677#       发表于 2017-9-2 19:11
 
 
-
-
 拿西索做参照来说其他团员菜鸡本来就不合适，协会的武斗派在有能力的情况下也玩完。如果说除了顶尖战斗力以外都算菜鸡的话，那觉得更适合去看设定没有最强只有更强的美漫
-
-
-
-
-
 
 
 -----
@@ -3210,15 +2045,9 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1678#       发表于 2017-9-2 19:12
 
 
-
  本帖最后由 kokyou 于 2017-9-2 19:19 编辑 
 
 风怒
-
-
-
-
-
 
 
 -----
@@ -3227,22 +2056,15 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1679#       发表于 2017-9-2 19:15
 
 
-
  本帖最后由 kokyou 于 2017-9-2 19:19 编辑 
 
 风怒
-
-
-
-
-
 
 
 -----
 
 ####  mierin  
 ##### 1680#       发表于 2017-9-2 20:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37076649&amp;ptid=1505675" target="_blank">www151007 发表于 2017-9-2 17:47</a>
@@ -3253,25 +2075,13 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 黑旅团请有理有据。
 
 
-
-
-
-
-
 -----
 
 ####  就不的  
 ##### 1681#       发表于 2017-9-2 20:35
 
 
-
-
 我觉得侠客跟库哔就算有能力不被偷袭应该也打不过西索<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3280,14 +2090,7 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1682#       发表于 2017-9-3 06:52
 
 
-
-
 看到酷拉皮卡的黑眼圈...到底要虐他到什么程度..
-
-
-
-
-
 
 
 -----
@@ -3296,16 +2099,10 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1683#       发表于 2017-9-3 10:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37065571&amp;ptid=1505675" target="_blank">寒蝉 发表于 2017-9-1 16:11</a>
 
 团长又要吃屎脸在船上飘一年了</blockquote>
 “没有队员保护，我都半年没上厕所了”
-
-
-
-
-
 
 
 -----
@@ -3314,14 +2111,7 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1684#       发表于 2017-9-3 11:19
 
 
-
-
 都是多早的讨论烂的剧情了 侠客连正面来的一招都架不住靠头反杀啊
-
-
-
-
-
 
 
 -----
@@ -3330,14 +2120,7 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1685#       发表于 2017-9-3 12:34
 
 
-
-
 基本上西索杀旅团战斗力前五以外的人应该都是和杀路人差不多的感觉。
-
-
-
-
-
 
 
 -----
@@ -3346,14 +2129,7 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1686#       发表于 2017-9-3 15:49
 
 
-
-
 如果沃金是强化系的正确方向，那么心源流是不是错误的修炼？
-
-
-
-
-
 
 
 -----
@@ -3362,18 +2138,12 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1687#       发表于 2017-9-3 17:11
 
 
-
-
 沃金的终极目标是像王那样硬抗会长的百式观音也破皮吧  零式也打不死   
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -3383,20 +2153,13 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 | Hetarre| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  C男人  
 ##### 1688#       发表于 2017-9-3 20:45
-
-
 
 
 我都开始怀疑了，“心源流” 真的是强化系吗？ <img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
@@ -3417,26 +2180,15 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 <img src="http://i4.bvimg.com/592959/afc0128732e7e6ac.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Brad_Pitt  
 ##### 1689#       发表于 2017-9-3 21:07
 
 
-
 <blockquote>勇者爱恶龙 发表于 2017-9-2 00:50
 比斯基的实际实力也就揍敌客爷爷爸爸档这个程度 不过一边是刺客 一边是修行的武术家 只是比试可能比斯基 ...</blockquote>
 感觉到不了揍敌客当家的实力
-
-
-
-
-
 
 
 -----
@@ -3445,16 +2197,10 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1690#       发表于 2017-9-3 21:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37082338&amp;ptid=1505675" target="_blank">klzxs 发表于 2017-9-3 11:19</a>
 
 都是多早的讨论烂的剧情了 侠客连正面来的一招都架不住靠头反杀啊</blockquote>
 旅团的支持者依然可以说侠客能力还在当时自插天线就能反杀，反正没有证据<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3463,14 +2209,7 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1691#       发表于 2017-11-16 19:48
 
 
-
-
 我就想问问啥时候复刊
-
-
-
-
-
 
 
 -----
@@ -3479,15 +2218,9 @@ sm大师富坚：多画一话算我输，不管你怎么想要也不会给你的
 ##### 1692#       发表于 2017-11-16 19:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37753940&amp;ptid=1505675" target="_blank">the.x 发表于 2017-11-16 19:48</a>
 我就想问问啥时候复刊</blockquote>
 md欺骗感情啊，我以为又有连载消息了
-
-
-
-
-
 
 
 -----
@@ -3496,14 +2229,7 @@ md欺骗感情啊，我以为又有连载消息了
 ##### 1693#       发表于 2017-11-16 20:00
 
 
-
-
 谁特么乱挖，害我白高兴一场<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3512,14 +2238,7 @@ md欺骗感情啊，我以为又有连载消息了
 ##### 1694#       发表于 2017-11-16 20:22
 
 
-
-
 十二月三十一号也是年内嘛，别着急<img src="https://static.saraba1st.com/image/smiley/carton2017/004.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3528,14 +2247,7 @@ md欺骗感情啊，我以为又有连载消息了
 ##### 1695#       发表于 2017-11-16 20:28
 
 
-
-
 看到这贴的標题让我的心跳了一下，结果⋯⋯
-
-
-
-
-
 
 
 -----
@@ -3544,14 +2256,7 @@ md欺骗感情啊，我以为又有连载消息了
 ##### 1696#       发表于 2017-11-16 20:33
 
 
-
-
 照复刊前一个月会通报的常例，下个礼拜应该会有消息？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3560,14 +2265,7 @@ md欺骗感情啊，我以为又有连载消息了
 ##### 1697#         楼主| 发表于 2017-11-29 11:06
 
 
-
-
 再开
-
-
-
-
-
 
 
 -----
@@ -3576,14 +2274,7 @@ md欺骗感情啊，我以为又有连载消息了
 ##### 1698#       发表于 2017-11-29 11:11
 
 
-
-
 惊了，竟然在数据删除21之前诈尸了，我的天
-
-
-
-
-
 
 
 -----
@@ -3592,14 +2283,7 @@ md欺骗感情啊，我以为又有连载消息了
 ##### 1699#       发表于 2017-11-29 11:12
 
 
-
-
 有生之年居然能一年看两次猎人
-
-
-
-
-
 
 
 -----
@@ -3608,14 +2292,7 @@ md欺骗感情啊，我以为又有连载消息了
 ##### 1700#       发表于 2017-11-29 11:14
 
 
-
-
 又有10话看了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3624,16 +2301,9 @@ md欺骗感情啊，我以为又有连载消息了
 ##### 1701#         楼主| 发表于 2017-11-29 11:20
 
 
-
-
 9号：ハンタ再開
 
 还是明年……<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3642,14 +2312,7 @@ md欺骗感情啊，我以为又有连载消息了
 ##### 1702#       发表于 2017-11-29 11:21
 
 
-
-
 勉强算一年二十话了，这个趋势下去，十五年之内猎人完结有望？<img src="https://static.saraba1st.com/image/smiley/carton2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3658,16 +2321,9 @@ md欺骗感情啊，我以为又有连载消息了
 ##### 1703#       发表于 2017-11-29 11:59
 
 
-
-
 抖M们表示太棒了老贼你真敬业哈哈哈哈哈
 
 ？？？
-
-
-
-
-
 
 
 -----
@@ -3676,14 +2332,7 @@ md欺骗感情啊，我以为又有连载消息了
 ##### 1704#       发表于 2017-11-29 12:04
 
 
-
-
 看新闻说是JUMP50周年。估计要是没这个噱头老贼肯定不出来。
-
-
-
-
-
 
 
 -----
@@ -3692,14 +2341,7 @@ md欺骗感情啊，我以为又有连载消息了
 ##### 1705#       发表于 2017-11-29 12:06
 
 
-
-
 跪谢编辑
-
-
-
-
-
 
 
 -----
@@ -3708,15 +2350,9 @@ md欺骗感情啊，我以为又有连载消息了
 ##### 1706#       发表于 2017-11-29 12:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 吔屎啦富奸，又要明年
-
-
-
-
-
 
 
 -----
@@ -3725,14 +2361,7 @@ md欺骗感情啊，我以为又有连载消息了
 ##### 1707#       发表于 2017-11-29 12:16
 
 
-
-
 想看小杰奇犽出场，感觉遥遥无期，希望能有金的戏份<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3741,13 +2370,7 @@ md欺骗感情啊，我以为又有连载消息了
 ##### 1708#       发表于 2017-11-29 12:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">上次说到哪儿了……
-
-
-
-
-
 
 
 -----
@@ -3756,16 +2379,10 @@ md欺骗感情啊，我以为又有连载消息了
 ##### 1709#       发表于 2017-11-29 13:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37859967&amp;ptid=1505675" target="_blank">Case 发表于 2017-11-29 12:04</a>
 
 看新闻说是JUMP50周年。估计要是没这个噱头老贼肯定不出来。</blockquote>
 如果只是个50周年庆就出场的话，怕不是画个贺图交差的节奏
-
-
-
-
-
 
 
 -----
@@ -3774,23 +2391,15 @@ md欺骗感情啊，我以为又有连载消息了
 ##### 1710#         楼主| 发表于 2017-12-21 17:20
 
 
-
-
 ハンター35巻も2月2日に発売って来週のジャンプに書いてあったけど
 
 35卷 2月2日发售
-
-
-
-
-
 
 
 -----
 
 ####  mac2000  
 ##### 1711#       发表于 2017-12-21 17:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38043019&amp;ptid=1505675" target="_blank">xingenge 发表于 2017-12-21 17:20</a>
@@ -3800,16 +2409,10 @@ md欺骗感情啊，我以为又有连载消息了
 请开个新楼吧…
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1712#         楼主| 发表于 2017-12-21 17:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38043276&amp;ptid=1505675" target="_blank">mac2000 发表于 2017-12-21 17:52</a>
@@ -3818,33 +2421,19 @@ md欺骗感情啊，我以为又有连载消息了
 新一话情报出来再开
 
 
-
-
-
-
-
 -----
 
 ####  shamal0324  
 ##### 1713#       发表于 2017-12-21 17:57
 
 
-
-
 满心欢喜地点进来，付费章节是什么鬼<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 1714#         楼主| 发表于 2018-1-24 12:44
-
-
 
 
 全文は辛いので簡易でいいですか？というか簡易しか用意していません 
@@ -3903,25 +2492,13 @@ md欺骗感情啊，我以为又有连载消息了
 カプセルにはケーブルが繋がれており部屋の中央に設置されている機械に繋がっていた
 
 
-
-
-
-
-
 -----
 
 ####  eciriganu  
 ##### 1715#       发表于 2018-1-24 16:16
 
 
-
-
 今年的十话终于要开始了
-
-
-
-
-
 
 
 -----
@@ -3930,22 +2507,13 @@ md欺骗感情啊，我以为又有连载消息了
 ##### 1716#       发表于 2018-1-26 13:14
 
 
-
-
 嗯，今天熟肉快了吧。
-
-
-
-
-
 
 
 -----
 
 ####  奇_伢  
 ##### 1717#       发表于 2018-1-26 16:12
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201801/26/161146v9gf7nf3dknbn7yd.jpg" referrerpolicy="no-referrer">
@@ -3958,9 +2526,6 @@ md欺骗感情啊，我以为又有连载消息了
 2018-1-26 16:11 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201801/26/161200nnn3ehl66y1ug161.jpg" referrerpolicy="no-referrer">
 
 
@@ -3971,17 +2536,9 @@ md欺骗感情啊，我以为又有连载消息了
 2018-1-26 16:12 上传
 
 
-
-
-
 贴吧韩肉
 
 [https://tieba.baidu.com/p/5529263897](https://tieba.baidu.com/p/5529263897)
-
-
-
-
-
 
 
 -----
@@ -3990,21 +2547,13 @@ md欺骗感情啊，我以为又有连载消息了
 ##### 1718#       发表于 2018-1-26 16:14
 
 
-
-
 来了来了来了，这一话后，时间就该往后跳了吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 1719#         楼主| 发表于 2018-1-26 16:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38359416&amp;ptid=1505675" target="_blank">奇_伢 发表于 2018-1-26 16:12</a>
@@ -4016,16 +2565,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">为何不在你那帖发 既然你都发了 就没必要来这旧楼了
 
 
-
-
-
-
-
 -----
 
 ####  奇_伢  
 ##### 1720#       发表于 2018-1-26 16:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38359450&amp;ptid=1505675" target="_blank">xingenge 发表于 2018-1-26 16:15</a>
@@ -4091,16 +2634,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 再临旧楼，只为过往。
 
 
-
-
-
-
-
 -----
 
 ####  gaomingyu  
 ##### 1721#       发表于 2018-1-26 20:34
-
 
 
 [http://hanhuazu.cc/cartoon/post?id=10430](http://hanhuazu.cc/cartoon/post?id=10430)
@@ -4109,25 +2646,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 371汉化出来了～～～
 
 
-
-
-
-
-
 -----
 
 ####  六连星mk2  
 ##### 1722#       发表于 2018-1-26 20:52
 
 
-
-
 信息量真大啊
-
-
-
-
-
 
 
 -----
@@ -4136,14 +2661,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1723#       发表于 2018-1-26 20:59
 
 
-
-
 这话突然安排王妃提及自己的家人，我觉得吧。。。。。FJ不会玩仇人恰好就是王妃亲人这种剧情吧？
-
-
-
-
-
 
 
 -----
@@ -4152,21 +2670,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1724#       发表于 2018-1-26 21:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">以前不是有猜王妃是流星街出生的可能吗
-
-
-
-
-
 
 
 -----
 
 ####  C男人  
 ##### 1725#       发表于 2018-1-26 21:24
-
-
 
 
 14个棺材这是……要召唤18代祖宗吗？ <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -4178,25 +2688,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 现在一看，全灭 FLAG 。
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 1726#       发表于 2018-1-26 21:28
 
 
-
-
 酷拉皮卡已经想出偷鸡的方法了，还怎么全灭
-
-
-
-
-
 
 
 -----
@@ -4205,21 +2703,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1727#       发表于 2018-1-26 21:36
 
 
-
-
 念兽的誓约没看明白，是说所有败者最后都要收进棺材里？把4王子剁了扔海里可以破吗？<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  阿虚家的三味  
 ##### 1728#       发表于 2018-1-26 21:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38362200&amp;ptid=1505675" target="_blank">cdfjg 发表于 2018-1-26 21:28</a>
@@ -4231,25 +2721,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 最后棺材有14个，最后的合成列表里不知道是要带最后赢家还是老国王
 
 
-
-
-
-
-
 -----
 
 ####  易方世界  
 ##### 1729#       发表于 2018-1-26 22:54
 
 
-
-
 哇……复杂度又进一步提高了，这个篇章要是能漂亮的完成……富坚就真心又牛逼了一截<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4258,14 +2736,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1730#       发表于 2018-1-26 22:56
 
 
-
-
 不知道猴年马月才能完成，按这进度<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4274,14 +2745,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1731#       发表于 2018-1-26 22:59
 
 
-
-
 旅团这过气组合怎么还敢出没，还不躲起来，都快被灭团了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4290,14 +2754,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1732#       发表于 2018-1-27 00:47
 
 
-
-
 旅团在这船上可能遭遇的高手人数得有目前上船团员数的一倍以上，还不算王子私兵这些实力未知的，且敌人有明（协会、卡金）有暗（厕索），怎么玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4306,14 +2763,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1733#       发表于 2018-1-27 01:00
 
 
-
-
 猛的看一话信息这么多，不适应、要补课
-
-
-
-
-
 
 
 -----
@@ -4322,14 +2772,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1734#       发表于 2018-1-27 12:49
 
 
-
-
 怕是旅团酷拉都得拜拜
-
-
-
-
-
 
 
 -----
@@ -4338,14 +2781,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1735#       发表于 2018-1-27 12:57
 
 
-
-
 天啦噜，好久不看，剧情貌似变得更加复杂了，感觉追不动了……
-
-
-
-
-
 
 
 -----
@@ -4354,14 +2790,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1736#       发表于 2018-1-27 13:07
 
 
-
-
 话说之后旅团的逼格会开始疯狂跌落了吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4370,16 +2799,9 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1737#       发表于 2018-1-27 13:28
 
 
-
-
 感觉这楼的标题还能再战好几年。。<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -4388,14 +2810,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1738#       发表于 2018-1-27 14:50
 
 
-
-
 疯狂复习了30+话的剧情追上进度，感觉脑子要炸了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">富坚下手真是狠
-
-
-
-
-
 
 
 -----
@@ -4404,15 +2819,8 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1739#       发表于 2018-1-27 17:29
 
 
-
-
 大家看富坚的作品还是太紧张了吧，很多是有趣但无用的信息啊。比如选举篇，说了这么多，勾心斗角的，其实还不是靠“场外因素”
 渡航篇估计也是罗列出这么多信息后结果不用的
-
-
-
-
-
 
 
 -----
@@ -4421,15 +2829,9 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1740#       发表于 2018-1-28 10:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38361974&amp;ptid=1505675" target="_blank">巴尔干炮 发表于 2018-1-26 20:59</a>
 这话突然安排王妃提及自己的家人，我觉得吧。。。。。FJ不会玩仇人恰好就是王妃亲人这种剧情吧？ ...</blockquote>
 如果王妃的哥哥是旅团的其中一个人的话，这剧情也太狗血了吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4438,15 +2840,9 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1741#       发表于 2018-1-28 10:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38374739&amp;ptid=1505675" target="_blank">nxh1999 发表于 2018-1-28 10:17</a>
 如果王妃的哥哥是旅团的其中一个人的话，这剧情也太狗血了吧</blockquote>
 王妃是流星街出身也不是不可能
-
-
-
-
-
 
 
 -----
@@ -4455,14 +2851,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1742#       发表于 2018-1-28 21:28
 
 
-
-
 这个环境跟天空竞技场很像，正面刚的话西索搞不过团长啊，不过西索可以易容刺杀，旅团情况堪忧啊
-
-
-
-
-
 
 
 -----
@@ -4471,14 +2860,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1743#       发表于 2018-1-31 14:03
 
 
-
-
 明后天估计能出情报了
-
-
-
-
-
 
 
 -----
@@ -4487,15 +2869,9 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1744#       发表于 2018-1-31 16:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38380268&amp;ptid=1505675" target="_blank">584520184 发表于 2018-1-28 21:28</a>
 这个环境跟天空竞技场很像，正面刚的话西索搞不过团长啊，不过西索可以易容刺杀，旅团情况堪忧啊 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/187.png" referrerpolicy="no-referrer">西索190身高改不了身型吧
-
-
-
-
-
 
 
 -----
@@ -4504,23 +2880,16 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1745#       发表于 2018-1-31 16:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38363587&amp;ptid=1505675" target="_blank">vbadvance 发表于 2018-1-27 00:47</a>
 
 旅团在这船上可能遭遇的高手人数得有目前上船团员数的一倍以上，还不算王子私兵这些实力未知的，且敌人有明 ...</blockquote>
 金应该可以单刷旅团<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  downnote  
 ##### 1746#       发表于 2018-1-31 18:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38410736&amp;ptid=1505675" target="_blank">shinraku 发表于 2018-1-31 16:09</a>
@@ -4538,17 +2907,9 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 2018-1-31 18:18 上传
 
 
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -4558,19 +2919,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 | 迪米特里| + 2|欢乐多|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  shinraku  
 ##### 1747#       发表于 2018-1-31 19:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38412183&amp;ptid=1505675" target="_blank">downnote 发表于 2018-1-31 18:19</a>
@@ -4580,16 +2935,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这样的话怕是变成搞笑角色了
 
 
-
-
-
-
-
 -----
 
 ####  daizhenye  
 ##### 1748#       发表于 2018-1-31 19:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38412183&amp;ptid=1505675" target="_blank">downnote 发表于 2018-1-31 18:19</a>
@@ -4602,16 +2951,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 再出奇招的西索，身上的梗就更多了。
 
 
-
-
-
-
-
 -----
 
 ####  悠久的风  
 ##### 1749#       发表于 2018-1-31 19:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38412183&amp;ptid=1505675" target="_blank">downnote 发表于 2018-1-31 18:19</a>
@@ -4621,26 +2964,14 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 现在不是打拳愿会
 
 
-
-
-
-
-
 -----
 
 ####  mac2000  
 ##### 1750#       发表于 2018-1-31 19:35
 
 
-
-
 西索把头发放下来 是不是就没有一米九了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我都不知道西索个子那么高
 另外并没有开新楼嘛<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4649,21 +2980,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1751#       发表于 2018-1-31 19:37
 
 
-
-
 不是，西索不是穿很骚的高跟的嘛
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 1752#         楼主| 发表于 2018-2-1 18:25
-
 
 
  本帖最后由 xingenge 于 2018-2-1 19:47 编辑 
@@ -4686,7 +3009,6 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 
 
 後は第三王子の兵と第九王子の兵と羽について語ったり カミーラが言った相手は一切承知の時の左から2番目真ん中の左目だけ目がでかい人、
-
 
 
 372消失 
@@ -4810,7 +3132,6 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ハンゾー「先にお前を試しただけの事…！」 
 
 
-
 「ねー教えてよ何をする気なのー？」 
 
 サレサレ「ハハハ当日までのお楽しみさ」 
@@ -4822,7 +3143,6 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 サレサレ「じゃあヒントをやろうか」 
 
 サレサレ「あ、じゃ館内放送で聞けるようにするか」 
-
 
 
 タイソン「どう？タイソン教典を読んだ感想は」 
@@ -5051,25 +3371,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 <img src="http://wx3.sinaimg.cn/large/740ca5e5ly1fo16q26lbjj22c03407wh.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xiaolong610  
 ##### 1753#       发表于 2018-2-1 18:55
 
 
-
-
 西索可以让奇亚哥哥插针改变形态，这个190感觉没啥用。
-
-
-
-
-
 
 
 -----
@@ -5078,21 +3386,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1754#       发表于 2018-2-1 21:05
 
 
-
-
 图透有了
-
-
-
-
-
 
 
 -----
 
 ####  kokyou  
 ##### 1755#       发表于 2018-2-1 21:12
-
 
 
 <blockquote>xiaolong610 发表于 2018-2-1 18:55
@@ -5102,25 +3402,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 伊尔迷现在应该正忙着怎么控制奇牙和纳尼卡，不会上船的。
 
 
-
-
-
-
-
 -----
 
 ####  nxh1999  
 ##### 1756#       发表于 2018-2-2 10:41
 
 
-
-
 半藏的这个分身怎么这么像灵魂出窍<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5129,14 +3417,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1757#       发表于 2018-2-2 11:05
 
 
-
-
 能不能开个新楼啊，长楼没什么看帖欲望
-
-
-
-
-
 
 
 -----
@@ -5145,21 +3426,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1758#       发表于 2018-2-2 11:12
 
 
-
-
 半藏这个分身是不是和那个因【记忆体不足】被厕索嫩死的家伙比较类似？
-
-
-
-
-
 
 
 -----
 
 ####  奇_伢  
 ##### 1759#       发表于 2018-2-2 13:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38430170&amp;ptid=1505675" target="_blank">银翼的维罗Xi 发表于 2018-2-2 11:05</a>
@@ -5171,17 +3444,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 或许到了该段剧情高潮的时候，可以看看前面楼上有无讨论出爆点。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1760#         楼主| 发表于 2018-2-2 14:02
-
-
 
 
 转情报师
@@ -5192,26 +3458,14 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 <img src="http://wx4.sinaimg.cn/large/bcfcde0agy1fo1y18exhpj20nm0y6jx9.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1761#         楼主| 发表于 2018-2-2 16:25
 
 
-
-
 更新了
 [http://hanhuazu.cc/cartoon/post?id=10449](http://hanhuazu.cc/cartoon/post?id=10449)
-
-
-
-
-
 
 
 -----
@@ -5220,14 +3474,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1762#       发表于 2018-2-2 16:36
 
 
-
-
 完了。現在我最大的問題是這堆保鏢“這TM是誰？”“這TM又是誰？”
-
-
-
-
-
 
 
 -----
@@ -5236,14 +3483,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1763#       发表于 2018-2-2 16:39
 
 
-
-
 恕我直言，卡金篇设定的确好，但是这种推进方式一点也不猎人。。。完全就是推理悬疑漫画了。。
-
-
-
-
-
 
 
 -----
@@ -5252,14 +3492,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1764#       发表于 2018-2-2 17:05
 
 
-
-
 台词真的超级多，跟王挂掉那一回成鲜明对比，不过也不讨厌。
-
-
-
-
-
 
 
 -----
@@ -5268,14 +3501,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1765#       发表于 2018-2-2 17:21
 
 
-
-
 这么看来华石斗郎真是厉害，强化系练成了可以自由行动的分身，这回登场的两个分身能力者都有不能行动的制约
-
-
-
-
-
 
 
 -----
@@ -5284,15 +3510,9 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1766#       发表于 2018-2-2 17:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38434128&amp;ptid=1505675" target="_blank">zdh 发表于 2018-2-2 16:39</a>
 恕我直言，卡金篇设定的确好，但是这种推进方式一点也不猎人。。。完全就是推理悬疑漫画了。。 ...</blockquote>
 我觉得很“猎人”，不是野外广阔空间的念战斗。就是那种狭窄空间的，不是特别强的念能力者的战斗
-
-
-
-
-
 
 
 -----
@@ -5301,16 +3521,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1767#       发表于 2018-2-2 17:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38434128&amp;ptid=1505675" target="_blank">zdh 发表于 2018-2-2 16:39</a>
 
 恕我直言，卡金篇设定的确好，但是这种推进方式一点也不猎人。。。完全就是推理悬疑漫画了。。 ...</blockquote>
 这得怪酷拉皮卡，每次做主线登场都是一堆玩技能讲规则的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5319,14 +3533,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1768#       发表于 2018-2-2 18:04
 
 
-
-
 终于开打了吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5335,14 +3542,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1769#       发表于 2018-2-2 18:52
 
 
-
-
 半藏这是被当作入侵者了吧 说不定进了异次元空间
-
-
-
-
-
 
 
 -----
@@ -5351,14 +3551,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1770#       发表于 2018-2-2 19:41
 
 
-
-
 这是半藏首次展示能力吧 很忍者
-
-
-
-
-
 
 
 -----
@@ -5367,24 +3560,15 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1771#         楼主| 发表于 2018-2-2 19:45
 
 
-
-
 欅坂46粉丝 富坚老师
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fo2c91vojsj20hs0vmabd.jpg" referrerpolicy="no-referrer">
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fo2c91y2guj20hh0bogms.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  奇_伢  
 ##### 1772#       发表于 2018-2-2 21:28
-
-
 
 
 你们不觉得吗，富坚佐助18岁了吧，猎人的剧情受众不就如同他孩子的年龄一样，每年默默提高，
@@ -5396,25 +3580,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 猎人这部作品，是不是富坚给自己孩子画的成长读物。
 
 
-
-
-
-
-
 -----
 
 ####  関貴臣  
 ##### 1773#       发表于 2018-2-2 21:28
 
 
-
-
 富坚老师真是与时俱进
-
-
-
-
-
 
 
 -----
@@ -5423,16 +3595,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1774#       发表于 2018-2-2 21:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38434627&amp;ptid=1505675" target="_blank">银翼的维罗Xi 发表于 2018-2-2 17:21</a>
 
 这么看来华石斗郎真是厉害，强化系练成了可以自由行动的分身，这回登场的两个分身能力者都有不能行动的制约 ...</blockquote>
 分身之术旁边还有一行小字「半藏技能4」，看来半藏的念能力应该相当多元
-
-
-
-
-
 
 
 -----
@@ -5441,14 +3607,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1775#       发表于 2018-2-2 22:24
 
 
-
-
 怎么突然冒出来这么多分身能力者……
-
-
-
-
-
 
 
 -----
@@ -5457,32 +3616,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1776#       发表于 2018-2-2 23:03
 
 
-
-
 我每年都要复习一遍猎人
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 要不新连载出来的时候就看不懂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5491,14 +3628,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1777#       发表于 2018-2-2 23:44
 
 
-
-
 希望比丝吉没事啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5507,14 +3637,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1778#       发表于 2018-2-3 00:25
 
 
-
-
 老贼还在不断地挖坑，虽然好看，但是捉急啊。。
-
-
-
-
-
 
 
 -----
@@ -5523,17 +3646,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1779#       发表于 2018-2-3 00:28
 
 
-
-
 本体不能动的分身也叫分身？好歹你也是忍者，退群吧！
 
 
 话说回来这分身穿墙潜入还是很方便的，不知受到伤害会不会影响本体
-
-
-
-
-
 
 
 -----
@@ -5542,14 +3658,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1780#       发表于 2018-2-3 00:38
 
 
-
-
 耶？比司机这个老司机翻车了？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5558,14 +3667,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1781#       发表于 2018-2-3 00:47
 
 
-
-
 字多得可以当小说看了
-
-
-
-
-
 
 
 -----
@@ -5574,14 +3676,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1782#       发表于 2018-2-3 07:32
 
 
-
-
 我王子都还没记全，现在你让我记保镖？
-
-
-
-
-
 
 
 -----
@@ -5590,14 +3685,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1783#       发表于 2018-2-3 08:09
 
 
-
-
 10王子她妈在跟谁交谈？
-
-
-
-
-
 
 
 -----
@@ -5606,15 +3694,9 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1784#       发表于 2018-2-3 08:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38441650&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-2-3 08:09</a>
 10王子她妈在跟谁交谈？</blockquote>
 上一话被逮捕的佣人就是10王子的
-
-
-
-
-
 
 
 -----
@@ -5623,14 +3705,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1785#       发表于 2018-2-3 09:43
 
 
-
-
 那个龙的念兽应该是把己方所有人都吞到异空间里保护起来了吧，而半藏这时候回来反而被误认为是入侵者，另外第二王子的异样是不是跟念兽有关，如果许愿一定能实现能成为一种念能力，那也太无敌了点……
-
-
-
-
-
 
 
 -----
@@ -5639,14 +3714,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1786#       发表于 2018-2-3 10:07
 
 
-
-
 二王子这么牛逼 感觉要秒人或者被秒
-
-
-
-
-
 
 
 -----
@@ -5655,14 +3723,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1787#       发表于 2018-2-3 12:37
 
 
-
-
 冷静了下感觉半藏和比丝吉应该没事。毕竟半藏要是死了分身应该也会消失，这念看起来也不像死后变更强的那种，应该如ls所说被一起保护在异空间了。
-
-
-
-
-
 
 
 -----
@@ -5671,16 +3732,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1788#       发表于 2018-2-3 23:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38442386&amp;ptid=1505675" target="_blank">greelmr1981 发表于 2018-2-3 09:43</a>
 
 那个龙的念兽应该是把己方所有人都吞到异空间里保护起来了吧，而半藏这时候回来反而被误认为是入侵者，另外 ...</blockquote>
 怕是许愿一次，智商直线下降作为代价。。。
-
-
-
-
-
 
 
 -----
@@ -5689,14 +3744,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1789#       发表于 2018-2-4 00:21
 
 
-
-
 半藏偷塔，回来发现基地没了
-
-
-
-
-
 
 
 -----
@@ -5705,15 +3753,9 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1790#       发表于 2018-2-4 15:40
 
 
-
 <blockquote>阿虚家的三味 发表于 2018-2-2 17:54
 这得怪酷拉皮卡，每次做主线登场都是一堆玩技能讲规则的</blockquote>
 要带旅团玩也只能技能流，要接虫子篇的武力，团长可以麻利退群了
-
-
-
-
-
 
 
 -----
@@ -5722,14 +3764,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1791#       发表于 2018-2-4 16:01
 
 
-
-
 空间阻隔系么，如果这时候和半藏搭话是解除分身呢还是没用呢
-
-
-
-
-
 
 
 -----
@@ -5738,23 +3773,15 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1792#       发表于 2018-2-4 16:51
 
 
-
-
 信息量太大
 
 —— 来自 Sony L50u, Android 4.4.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
 
 ####  C男人  
 ##### 1793#       发表于 2018-2-4 17:58
-
 
 
  本帖最后由 C男人 于 2018-3-11 14:00 编辑 
@@ -5770,16 +3797,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 虽说作为“诱供计划” 很合理，但这个分身其实是想变成什么模样都行的对吧？
 
 
-
-
-
-
-
 -----
 
 ####  C男人  
 ##### 1794#       发表于 2018-2-4 18:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38424993&amp;ptid=1505675" target="_blank">kokyou 发表于 2018-2-1 21:12</a>
@@ -5793,27 +3814,15 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 西索自己用‘轻薄的假象’ 就能长期变脸。
 
 
-
-
-
-
-
 -----
 
 ####  坚果大爷  
 ##### 1795#       发表于 2018-2-4 22:14
 
 
-
-
 半藏怕是要成揭示下条规则的牺牲品了
 
 比如念兽被打败了会怎样，搞不好会害宿主死掉
-
-
-
-
-
 
 
 -----
@@ -5822,14 +3831,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1796#       发表于 2018-2-4 22:41
 
 
-
-
 现在的猎人出场人物太多，光看文字情报的话，哪个名字对应哪个人都分不清楚<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5838,22 +3840,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1797#       发表于 2018-2-5 01:02
 
 
-
-
 光头只要慢慢等，就么事了
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 1798#         楼主| 发表于 2018-2-7 17:05
-
-
 
 
 373
@@ -5872,33 +3865,19 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 半藏分身去找庫拉 目前無恙
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 1799#       发表于 2018-2-7 17:35
 
 
-
-
 是念能力还是念兽？不是想海葵那样的吗
-
-
-
-
-
 
 
 -----
 
 ####  eciriganu  
 ##### 1800#       发表于 2018-2-7 17:36
-
-
 
 
 惊了，还能先死再活这么玩的！？
@@ -5910,17 +3889,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 这样的话感觉不限制到『绝』再拿人头都不靠谱了……
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1801#         楼主| 发表于 2018-2-7 17:37
-
-
 
 
 班傑明能力
@@ -5933,25 +3905,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 念獸能力:??? ​​​​
 
 
-
-
-
-
-
 -----
 
 ####  lb0windy  
 ##### 1802#       发表于 2018-2-7 17:44
 
 
-
-
 这个时间出的，感觉很假啊
-
-
-
-
-
 
 
 -----
@@ -5960,14 +3920,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1803#       发表于 2018-2-7 17:47
 
 
-
-
 如果剧透是真的，那二王子原来就有念能力了？
-
-
-
-
-
 
 
 -----
@@ -5976,16 +3929,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1804#         楼主| 发表于 2018-2-7 17:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38489739&amp;ptid=1505675" target="_blank">lb0windy 发表于 2018-2-7 17:44</a>
 
 这个时间出的，感觉很假啊</blockquote>
 都有书了……
-
-
-
-
-
 
 
 -----
@@ -5994,16 +3941,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1805#       发表于 2018-2-7 20:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38489802&amp;ptid=1505675" target="_blank">xingenge 发表于 2018-2-7 17:50</a>
 
 都有书了……</blockquote>
 看到图了，这猫有点大只啊。
-
-
-
-
-
 
 
 -----
@@ -6012,13 +3953,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1806#         楼主| 发表于 2018-2-7 20:26
 
 
-
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fo85kijunlj21av2bcb29.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6027,14 +3962,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1807#       发表于 2018-2-7 20:45
 
 
-
-
 二王子每次出场都变得更年轻美貌了
-
-
-
-
-
 
 
 -----
@@ -6043,16 +3971,9 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1808#       发表于 2018-2-7 21:59
 
 
-
-
 二王子真漂亮<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 黑猫也好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6061,14 +3982,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1809#       发表于 2018-2-7 22:56
 
 
-
-
 二皇姐一副悠闲轻松的样子，这里画得有点像多古拉王子。她的死而复活的能力太强了吧，继猫女，西索之后第三个有复活的念能力的人了。
-
-
-
-
-
 
 
 -----
@@ -6077,16 +3991,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1810#       发表于 2018-2-8 12:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38492366&amp;ptid=1505675" target="_blank">nxh1999 发表于 2018-02-07 22:56:53</a>
 二皇姐一副悠闲轻松的样子，这里画得有点像多古拉王子。她的死而复活的能力太强了吧，继猫女，西索之后第三 ...</blockquote>还有凯特啦<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -6095,14 +4003,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1811#       发表于 2018-2-8 13:52
 
 
-
-
 慢着慢着，西索还有复活的能力吗，我怎么一点印象都没有了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6111,16 +4012,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1812#       发表于 2018-2-8 13:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38498121&amp;ptid=1505675" target="_blank">我爱喵喵 发表于 2018-2-8 13:52</a>
 
 慢着慢着，西索还有复活的能力吗，我怎么一点印象都没有了</blockquote>
 厕所战神不久是靠这个“假死”的吗，硬说的话不算复活而是在死后做心脏起搏
-
-
-
-
-
 
 
 -----
@@ -6129,14 +4024,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1813#       发表于 2018-2-8 14:01
 
 
-
-
 厕所战神的复活也仅限于那种死法吧，当时尸检也说了虽然爆炸伤害很大但是直接死因是爆炸后引发的缺氧窒息，所以才能通过心肺复苏活过来，如果真是被砍头那心肺复苏也没用吧。
-
-
-
-
-
 
 
 -----
@@ -6145,23 +4033,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1814#       发表于 2018-2-8 14:03
 
 
-
-
 情报没说得太详细，是不是二王子的念能力非常特殊，不是像西索、彼特那种，属于生前的强烈执念导致念能力强化，而是她的能力“只能死后发动”？
-
-
-
-
-
-
-
 
 
 -----
 
 ####  lb0windy  
 ##### 1815#       发表于 2018-2-8 14:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38498232&amp;ptid=1505675" target="_blank">风浦可符香(P.N) 发表于 2018-2-8 14:03</a>
@@ -6172,31 +4050,19 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 也就是得被攻击才发动的能力，所以后面去大王子那找碴，大王子没攻击她，能力就没法发动了。
 
 
-
-
-
-
-
 -----
 
 ####  寒蝉  
 ##### 1816#       发表于 2018-2-8 14:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">二王子越来越骚了怎么破
-
-
-
-
-
 
 
 -----
 
 ####  风浦可符香(P.N)  
 ##### 1817#       发表于 2018-2-8 14:54
-
 
 
  本帖最后由 风浦可符香(P.N) 于 2018-2-8 16:17 编辑 
@@ -6211,28 +4077,15 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 *脑抽了编辑下*
 
 
-
-
-
-
-
-
 -----
 
 ####  river1981  
 ##### 1818#       发表于 2018-2-8 15:10
 
 
-
-
 二王子这念能力如果受伤也能发动就厉害了，现在仅限被杀后复仇发动，只能用来阴不知道的人。
 
 大王子把她关起来放置play她就傻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6241,14 +4094,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1819#       发表于 2018-2-8 15:12
 
 
-
-
 二王子问老国王的话现在明白什么意思了
-
-
-
-
-
 
 
 -----
@@ -6257,21 +4103,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1820#       发表于 2018-2-8 15:16
 
 
-
-
 活了一百万次的猫和班杰明奇事，老贼这段时间看了不少电影和书啊
-
-
-
-
-
 
 
 -----
 
 ####  lb0windy  
 ##### 1821#       发表于 2018-2-8 15:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38498731&amp;ptid=1505675" target="_blank">风浦可符香(P.N) 发表于 2018-2-8 14:54</a>
@@ -6282,16 +4120,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 所以二王子作死才作得这么熟练，职业挑衅对方坐等反杀。
 
 
-
-
-
-
-
 -----
 
 ####  birdma  
 ##### 1822#       发表于 2018-2-8 15:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38498981&amp;ptid=1505675" target="_blank">lb0windy 发表于 2018-2-8 15:18</a>
@@ -6302,25 +4134,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 其实应该说正因为二王子有这么让人讨厌的个性才会诞生出这样的能力吧
 
 
-
-
-
-
-
 -----
 
 ####  易方世界  
 ##### 1823#       发表于 2018-2-8 15:59
 
 
-
-
 节奏突然变快了……继承战不会一周不到就结束吧？！
-
-
-
-
-
 
 
 -----
@@ -6329,16 +4149,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1824#       发表于 2018-2-8 16:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38499329&amp;ptid=1505675" target="_blank">birdma 发表于 2018-2-8 15:54</a>
 
 其实应该说正因为二王子有这么让人讨厌的个性才会诞生出这样的能力吧</blockquote>
 嘛，念基本上都是使用者本身意志的体现嘛。
-
-
-
-
-
 
 
 -----
@@ -6347,21 +4161,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1825#       发表于 2018-2-8 16:09
 
 
-
-
 这个后窗能力继承得比那啥拳有用多了啊，现在越看越觉的有各种强制绝得强化系有够弱的
-
-
-
-
-
 
 
 -----
 
 ####  风浦可符香(P.N)  
 ##### 1826#       发表于 2018-2-8 16:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38498981&amp;ptid=1505675" target="_blank">lb0windy 发表于 2018-2-8 15:18</a>
@@ -6372,27 +4178,15 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 抱歉，当我没说，老年痴呆了，太长时间没更新，早忘了她的念兽是那个海葵一样的东西了……一看情报图里有念兽俩字想当然了<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  waster112  
 ##### 1827#       发表于 2018-2-8 16:21
 
 
-
-
 二王子的念得有其他能力配合才强，不然放置play就行。
 
 不知道念兽的能力怎么样。单现在就是个202亡语召唤44的感觉。
-
-
-
-
-
 
 
 -----
@@ -6401,14 +4195,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1828#       发表于 2018-2-8 16:42
 
 
-
-
 念能力是猫，我预感果列奴又有新本子了...
-
-
-
-
-
 
 
 -----
@@ -6417,15 +4204,9 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1829#       发表于 2018-2-8 16:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38499464&amp;ptid=1505675" target="_blank">lb0windy 发表于 2018-2-8 16:06</a>
 嘛，念基本上都是使用者本身意志的体现嘛。</blockquote>
 我看的时候感觉很不对，这种性格的人，为什么会要自己死的能力
-
-
-
-
-
 
 
 -----
@@ -6434,23 +4215,16 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1830#       发表于 2018-2-8 16:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38499953&amp;ptid=1505675" target="_blank">cdfjg 发表于 2018-2-8 16:52</a>
 
 我看的时候感觉很不对，这种性格的人，为什么会要自己死的能力</blockquote>
 应该说。。很有自知之明？不过我很好奇这能力是咋发现和修炼的。。难道以前有过把自己作死的历史么。。
 
 
-
-
-
-
-
 -----
 
 ####  lb0windy  
 ##### 1831#       发表于 2018-2-8 16:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38499953&amp;ptid=1505675" target="_blank">cdfjg 发表于 2018-2-8 16:52</a>
@@ -6461,25 +4235,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 一觉起来，麻烦事就让猫给解决了，自己啥都不用干。
 
 
-
-
-
-
-
 -----
 
 ####  银翼的维罗西  
 ##### 1832#       发表于 2018-2-8 17:01
 
 
-
-
 本章应该是规则系概念系大乱斗，不会再强调绝对念量和基本功这些东西了。
-
-
-
-
-
 
 
 -----
@@ -6488,14 +4250,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1833#       发表于 2018-2-8 17:04
 
 
-
-
 念能力和jojo一样 后面的能力越来越imba了 几个王子的能力都牛逼
-
-
-
-
-
 
 
 -----
@@ -6504,16 +4259,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1834#       发表于 2018-2-8 17:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38499983&amp;ptid=1505675" target="_blank">housan2003 发表于 2018-2-8 16:56</a>
 
 应该说。。很有自知之明？不过我很好奇这能力是咋发现和修炼的。。难道以前有过把自己作死的历史么。。 ...</blockquote>
 这个复活的猫是具现化系的吧，但是怎么修炼出来的？为了让这只猫派上用场，二王子的脾气这么差，天天作死惹别人？感觉这只猫光能复活，其它的功用也不多的样子。如果二王子受伤，这猫能进行反击吗？
-
-
-
-
-
 
 
 -----
@@ -6522,23 +4271,15 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1835#       发表于 2018-2-8 17:20
 
 
-
-
 轮回猫说明里写了要死后触发
 
 用绝也是为了容易死吧
-
-
-
-
-
 
 
 -----
 
 ####  cdfjg  
 ##### 1836#       发表于 2018-2-8 17:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38499994&amp;ptid=1505675" target="_blank">lb0windy 发表于 2018-2-8 16:57</a>
@@ -6549,16 +4290,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 不过这种个人感受也谈不上寻求认同
 
 
-
-
-
-
-
 -----
 
 ####  阿虚家的三味  
 ##### 1837#       发表于 2018-2-8 17:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38500253&amp;ptid=1505675" target="_blank">nxh1999 发表于 2018-2-8 17:16</a>
@@ -6570,27 +4305,15 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 不过不知道如果被毒死之类远距离弄死怎么办，随机弄死周边人么
 
 
-
-
-
-
-
 -----
 
 ####  貧者の薔薇  
 ##### 1838#       发表于 2018-2-8 17:47
 
 
-
-
 应该有很多限制才对，例如不能攻击别人，如果攻击了会有反馈。不应该这么容易就能发动
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -6599,14 +4322,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1839#       发表于 2018-2-8 17:49
 
 
-
-
 其实这个轮回猫可能也不算特别强，毕竟也没有直接的强度描写。不光是容易被针对，也没有说猫本身是无敌状态吧。
-
-
-
-
-
 
 
 -----
@@ -6615,14 +4331,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1840#       发表于 2018-2-8 17:57
 
 
-
-
 另外这个能力其实也不算太不平衡，前面也有非常imba的能力安在性格有缺陷的能力者上的，比如威尔芬的导弹男。性格缺陷本身也是一种能力运用的制约。
-
-
-
-
-
 
 
 -----
@@ -6631,16 +4340,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1841#       发表于 2018-2-8 18:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38498213&amp;ptid=1505675" target="_blank">zuga 发表于 2018-02-08 14:01:08</a>
 厕所战神的复活也仅限于那种死法吧，当时尸检也说了虽然爆炸伤害很大但是直接死因是爆炸后引发的缺氧窒息， ...</blockquote>不要仔细分析了，窒息心跳停止5分钟就脑死亡了，从废墟里翻出来的尸体，怎么起搏也活不过来的
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -6649,23 +4352,15 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1842#       发表于 2018-2-8 18:16
 
 
-
-
 这种靠规则和概念的念能力才是无敌的啊，比战斗系的牛逼多了，战斗系遇到这类又不能先手进攻，只能先猥琐。
 
 蚁王要是遇到二王子能力，如果没有念量作为制约条件不也是直接秒杀？
-
-
-
-
-
 
 
 -----
 
 ####  birdma  
 ##### 1843#       发表于 2018-2-8 18:26
-
 
 
  本帖最后由 birdma 于 2018-2-8 18:29 编辑 
@@ -6675,25 +4370,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 看样子是通过物理手段杀死对方，因为制约所以念能力的效果很强，但如果杀死第二王子的人能力强过第二王子会怎样呢？
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 1844#       发表于 2018-2-8 18:51
 
 
-
-
 被动反击不算强啦，而且还有除念师呢
-
-
-
-
-
 
 
 -----
@@ -6702,17 +4385,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1845#       发表于 2018-2-8 18:53
 
 
-
-
 可能是二王子小时候养的猫，有非常强的精神依赖那种，后来猫死了就具现化出一只猫来陪自己……然后她本人很记仇，但不愿意脏自己手，遇到什么不爽的事情就交给这只猫事后去报复。正式学习念能力之后，决定用这种扭曲的制约来使得这个念兽拥有这样的能力，自己也就相当于无敌了。
 
 
 所以百般凌辱蹂躏来逼王子自杀这个路数怎么样……？当然读者是上帝视角知道了能力，剧情里其他人物估计是不敢这么随便试的
-
-
-
-
-
 
 
 -----
@@ -6721,17 +4397,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1846#       发表于 2018-2-8 19:04
 
 
-
-
 如何理解这一话的富坚卷首语：第372话P8的下方三格，说出了自己的心里话，说出了自己的能力。
 
 
 就是搞笑？
-
-
-
-
-
 
 
 -----
@@ -6740,14 +4409,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1847#       发表于 2018-2-8 19:09
 
 
-
-
 二王子还是太年轻啊，完全没见识过世界的菜鸡啊，就她那点破能力，成天泡在修罗场的人有一百种方式可以限制她，光看情报我还以为基本功以不重要，看了全篇发现还是基本能力重要啊。
-
-
-
-
-
 
 
 -----
@@ -6756,16 +4418,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1848#       发表于 2018-2-8 19:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38501319&amp;ptid=1505675" target="_blank">银翼的维罗西 发表于 2018-2-8 19:09</a>
 
 二王子还是太年轻啊，完全没见识过世界的菜鸡啊，就她那点破能力，成天泡在修罗场的人有一百种方式可以限制 ...</blockquote>
 一个没见识的菜鸟怎么能做到枪枪爆头
-
-
-
-
-
 
 
 -----
@@ -6774,16 +4430,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1849#       发表于 2018-2-8 19:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38501449&amp;ptid=1505675" target="_blank">悠久的风 发表于 2018-2-8 19:28</a>
 
 一个没见识的菜鸟怎么能做到枪枪爆头</blockquote>
 猎人世界还在用枪作为主攻手段正说明他是菜鸡啊，用念能力者标准可能连菜鸡都不算。
-
-
-
-
-
 
 
 -----
@@ -6792,15 +4442,9 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1850#       发表于 2018-2-8 19:57
 
 
-
 <blockquote>银翼的维罗西 发表于 2018-2-8 19:09
 二王子还是太年轻啊，完全没见识过世界的菜鸡啊，就她那点破能力，成天泡在修罗场的人有一百种方式可以限制 ...</blockquote>
 国王的个人武力只要足够防刺杀就行了。
-
-
-
-
-
 
 
 -----
@@ -6809,14 +4453,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1851#       发表于 2018-2-8 20:18
 
 
-
-
 二王子这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6825,16 +4462,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1852#       发表于 2018-2-8 20:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38501319&amp;ptid=1505675" target="_blank">银翼的维罗西 发表于 2018-2-8 19:09</a>
 
 二王子还是太年轻啊，完全没见识过世界的菜鸡啊，就她那点破能力，成天泡在修罗场的人有一百种方式可以限制 ...</blockquote>
 被大王子的手下一制住，冷汗就刷刷地出来了，目前看，除了念兽她可能还真没后手了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6843,22 +4474,14 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1853#       发表于 2018-2-8 20:25
 
 
-
-
 就时髦值角度来讲一二王子已经被开除了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 说起来这种死后念能力被蚁王吃了会怎样？
-
-
-
-
-
 
 
 -----
 
 ####  番茄子  
 ##### 1854#       发表于 2018-2-8 20:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38501295&amp;ptid=1505675" target="_blank">cdfjg 发表于 2018-2-8 19:04</a>
@@ -6870,16 +4493,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 同好奇，看了下那一页……难道是口臭么= = ！
 
 
-
-
-
-
-
 -----
 
 ####  zuga  
 ##### 1855#       发表于 2018-2-8 21:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38501941&amp;ptid=1505675" target="_blank">哈尔摩尼亚 发表于 2018-2-8 20:25</a>
@@ -6888,24 +4505,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 大王子的能力名字我觉得还是很时髦的嘛，“继承繁星的人”。
 
 
-
-
-
-
-
 -----
 
 ####  sy137646  
 ##### 1856#       发表于 2018-2-8 21:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">二皇子可以啊，能秒旅团这种随便杀人的
-
-
-
-
-
 
 
 -----
@@ -6914,16 +4520,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1857#       发表于 2018-2-8 23:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38410736&amp;ptid=1505675" target="_blank">shinraku 发表于 2018-1-31 16:09</a>
 
 西索190身高改不了身型吧</blockquote>
 西索现在的情况有点类似绿日，所以说不定神经病上来就把自己大卸八块都有可能，这样一个由伸缩自如的爱构成的软泥怪可以是任何样子吧<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6932,14 +4532,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1858#       发表于 2018-2-8 23:29
 
 
-
-
 鼠绘的翻译把半藏隶属于第七王妃写成第七王子，果然休刊太久这些人物关系根本记不住呀<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6948,21 +4541,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1859#       发表于 2018-2-8 23:31
 
 
-
-
 感觉，搞不好这个念兽系统不只是必须全体王子参加，而且进入第二阶段后迎战状态的念兽会把王子们的护卫也都关联上。
-
-
-
-
-
 
 
 -----
 
 ####  darkeyes  
 ##### 1860#       发表于 2018-2-8 23:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38502556&amp;ptid=1505675" target="_blank">zuga 发表于 2018-2-8 21:44</a>
@@ -6974,16 +4559,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 神的不在场证明，神的共犯者
 
 
-
-
-
-
-
 -----
 
 ####  stygianlunar  
 ##### 1861#       发表于 2018-2-8 23:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38497551&amp;ptid=1505675" target="_blank">貧者の薔薇 发表于 2018-2-8 12:51</a>
@@ -7001,27 +4580,15 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 但这个能力本身不是转生。
 
 
-
-
-
-
-
 -----
 
 ####  reficul  
 ##### 1862#       发表于 2018-2-8 23:36
 
 
-
-
 二王子的念兽又不是无敌的，他的能力是念兽能杀了对方，才能把他复活，遇到对面够强的把他念兽一起打爆了不还是凉凉
 
 倒是大王子的有点牛逼，制约和威力明显不对等啊，制约是只能XXX出身的效忠的人，但是这个制约对大王子一点风险都没有
-
-
-
-
-
 
 
 -----
@@ -7030,21 +4597,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1863#       发表于 2018-2-8 23:42
 
 
-
-
 制约不一定是风险，也跟性格以及执念挂钩的，并非等价交换，只是一般情况下越复杂的能力代价越大，但这个代价也是相对使用者自己而言而的。
-
-
-
-
-
 
 
 -----
 
 ####  银翼的维罗西  
 ##### 1864#       发表于 2018-2-9 00:00
-
 
 
  本帖最后由 银翼的维罗西 于 2018-2-9 00:02 编辑 
@@ -7056,16 +4615,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 这里二王子借着自己那一点点可笑的念能力带把枪就直奔敌人老巢想要一打九，她缺的不是武力，而是活在象牙塔缺少对世界的认识，可以说是个典型的废物二代形象。
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 1865#       发表于 2018-2-9 01:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38500988&amp;ptid=1505675" target="_blank">birdma 发表于 2018-2-8 18:26</a>
@@ -7078,24 +4631,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 很有可能必须她自己认知到自己被杀才行，实在不行还可以用死士，杀了二王子立刻自杀或者其他人抢先干掉杀人者（二王子这种常态绝状态普通人都能拿枪偷袭杀她）
 
 
-
-
-
-
-
 -----
 
 ####  阿刚  
 ##### 1866#       发表于 2018-2-9 02:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">话说回来毕思琪这条线怎么没下文了，能弄走毕思琪还不碰到半藏的本体，这特么难度很高的吧
-
-
-
-
-
 
 
 -----
@@ -7104,14 +4646,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1867#       发表于 2018-2-9 02:55
 
 
-
-
 最后几个画面就说的是比斯吉那边吧，那边的王子来电话了，但是半藏回去看还是空无一人，但是最后一个画面又是王子和护卫都在大厅里。
-
-
-
-
-
 
 
 -----
@@ -7120,14 +4655,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1868#       发表于 2018-2-9 07:40
 
 
-
-
 肯定是被关到异空间了
-
-
-
-
-
 
 
 -----
@@ -7136,14 +4664,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1869#       发表于 2018-2-9 08:25
 
 
-
-
 二王子就没想过别人把他弄成植物人咋办么...看他样子除了念能力，好像也没多少战斗力的样子
-
-
-
-
-
 
 
 -----
@@ -7152,16 +4673,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1870#       发表于 2018-2-9 09:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38501930&amp;ptid=1505675" target="_blank">易方世界 发表于 2018-2-8 20:23</a>
 
 被大王子的手下一制住，冷汗就刷刷地出来了，目前看，除了念兽她可能还真没后手了 ...</blockquote>
 出冷汗是因为手被折断了，所以受伤看来是无法发动能力的
-
-
-
-
-
 
 
 -----
@@ -7170,15 +4685,9 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1871#       发表于 2018-2-9 09:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38505452&amp;ptid=1505675" target="_blank">river1981 发表于 2018-2-9 09:28</a>
 出冷汗是因为手被折断了，所以受伤看来是无法发动能力的</blockquote>
 哦，原来是疼的啊<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7187,15 +4696,9 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1872#       发表于 2018-2-9 10:07
 
 
-
 <blockquote>icecry 发表于 2018-2-9 08:25
 二王子就没想过别人把他弄成植物人咋办么...看他样子除了念能力，好像也没多少战斗力的样子 ...</blockquote>
 确实，而且也没说明能力发动后能恢复到何种程度，她的能力只适合应对刺杀和奇袭，或者团体战的时候替人挡枪。只身一人去杀一王子太无谋了，对方有无数种让她生不如死的方法。
-
-
-
-
-
 
 
 -----
@@ -7204,14 +4707,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1873#       发表于 2018-2-9 10:13
 
 
-
-
 如果二王子不知情服毒死了，猫找谁算账
-
-
-
-
-
 
 
 -----
@@ -7220,16 +4716,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1874#       发表于 2018-2-9 13:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38505730&amp;ptid=1505675" target="_blank">易方世界 发表于 2018-2-9 09:52</a>
 
 哦，原来是疼的啊</blockquote>
 二皇姐手被大王子的那个亲兵（忘了那个亲兵叫什么了）打伤了? 有画出来吗？
-
-
-
-
-
 
 
 -----
@@ -7238,23 +4728,16 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1875#       发表于 2018-2-9 13:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38508062&amp;ptid=1505675" target="_blank">nxh1999 发表于 2018-2-9 13:18</a>
 
 二皇姐手被大王子的那个亲兵（忘了那个亲兵叫什么了）打伤了? 有画出来吗？ ...</blockquote>
 没明着画出，没种那页亲兵站他身后咔嚓一声，好疼
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 1876#       发表于 2018-2-9 13:42
-
 
 
 [https://tieba.baidu.com/p/554579 ... 80E69&amp;pn=0&amp;](https://tieba.baidu.com/p/5545795327?lp=5028&amp;mo_device=1&amp;is_jingpost=0&amp;bdid=6946BD51DF5585F2BD00482189880E69&amp;pn=0&amp;)
@@ -7264,17 +4747,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  paghaha  
 ##### 1877#       发表于 2018-2-9 13:51
-
-
 
 
 把二皇子装进薛定谔的箱子会如何？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
@@ -7282,16 +4758,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 —— 来自 Xiaomi Redmi 4, Android 6.0.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  sk86  
 ##### 1878#       发表于 2018-2-9 14:31
-
 
 
 <blockquote>paghaha 发表于 2018-2-9 13:51
@@ -7302,17 +4772,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 二皇子当然自己知道是啥状态，这有毛意义
 
 
-
-
-
-
-
 -----
 
 ####  Snaky  
 ##### 1879#       发表于 2018-2-9 18:49
-
-
 
 
 二王子太蠢了，吃瘪纯属活该
@@ -7324,16 +4787,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 作为读者完全无法判断念兽对于情节走向的影响，换句话说，富坚爱怎么玩就怎么玩
 
 
-
-
-
-
-
 -----
 
 ####  temptiοn  
 ##### 1880#       发表于 2018-2-10 20:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38511532&amp;ptid=1505675" target="_blank">Snaky 发表于 2018-2-9 18:49</a>
@@ -7350,16 +4807,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Snaky  
 ##### 1881#       发表于 2018-2-10 22:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38520606&amp;ptid=1505675" target="_blank">temptiοn 发表于 2018-2-10 20:24</a>
@@ -7371,16 +4822,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 重点不是念兽的能力，而是念兽本身的行为不可控
 
 
-
-
-
-
-
 -----
 
 ####  远古之红  
 ##### 1882#       发表于 2018-2-11 02:48
-
 
 
 <blockquote>temptiοn 发表于 2018-2-10 20:24
@@ -7391,16 +4836,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 通过剧情已经体现出来念兽不受宿主控制了
 
 
-
-
-
-
-
 -----
 
 ####  gooswan  
 ##### 1883#       发表于 2018-2-11 22:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38520606&amp;ptid=1505675" target="_blank">temptiοn 发表于 2018-2-10 20:24</a>
@@ -7415,17 +4854,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 酷拉皮卡的设定才是本篇章最重要的。
 
 
-
-
-
-
-
 -----
 
 ####  stygianlunar  
 ##### 1884#       发表于 2018-2-11 22:42
-
-
 
 
 15个念兽，老国王的念兽还在呢，念兽要伴随国王一生的。
@@ -7434,16 +4866,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 念兽行动不受控制这点最要命，第一个死掉的王子多少是被自己念兽坑了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Snaky  
 ##### 1885#       发表于 2018-2-11 22:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38533788&amp;ptid=1505675" target="_blank">gooswan 发表于 2018-2-11 22:28</a>
@@ -7454,17 +4880,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 没准酷拉皮卡在船上大仇得报，没下船就挂了呢<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  874all  
 ##### 1886#       发表于 2018-2-15 13:27
-
-
 
 
 鸡年最后一天，祝各位鸡年大吉，
@@ -7476,16 +4895,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 话说，本周的情报呢，这都周四了。
 
 
-
-
-
-
-
 -----
 
 ####  悠久的风  
 ##### 1887#       发表于 2018-2-15 13:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38566079&amp;ptid=1505675" target="_blank">874all 发表于 2018-2-15 13:27</a>
@@ -7496,25 +4909,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 只有几个假情报在蹦哒
 
 
-
-
-
-
-
 -----
 
 ####  4a12c095  
 ##### 1888#       发表于 2018-2-15 13:57
 
 
-
-
 虽然字多点，这篇还是很好看的，多方势力算计，前面三王子人设表现对口味
-
-
-
-
-
 
 
 -----
@@ -7523,21 +4924,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1889#       发表于 2018-2-15 14:18
 
 
-
-
 话说回了，很久没看了，小杰还在当平凡人吗？不知道富坚怎么安排
-
-
-
-
-
 
 
 -----
 
 ####  人手如云  
 ##### 1890#       发表于 2018-2-15 16:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38503374&amp;ptid=1505675" target="_blank">stygianlunar 发表于 2018-2-8 23:35</a>
@@ -7551,17 +4944,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 还有凯特尸体没有被吃掉，本来就不可能被蚁王吸收吧
 
 
-
-
-
-
-
 -----
 
 ####  陈玉礼  
 ##### 1891#       发表于 2018-2-15 19:01
-
-
 
 
 0506 名無しさんの次レスにご期待下さい (ﾜｯﾁｮｲ 9fbc-kPhX) 2018/02/15 18:39:12
@@ -7615,16 +5001,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 转微博MimicryRyu
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1892#         楼主| 发表于 2018-2-15 19:35
-
 
 
  本帖最后由 xingenge 于 2018-2-16 02:26 编辑 
@@ -7837,7 +5217,6 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 －－比爾正在守望著王妃跟第14王子，島野正在準備餐點
 
 －－出航已經過37小時30分鐘
-
 
 
 目前為止的王子們與現在的士兵數量介紹
@@ -8071,7 +5450,6 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 「錢幣就突然在我們眼前掉下來了」
 
 
-
 （看不見的人、不知道的人沒必要特地說這些情報）
 
 （錢幣確實是從半空中出現的）
@@ -8100,13 +5478,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 完
 
 
-
 生駒ちゃんお疲れさまでした!!坂向こうの景色がより輝かしいものであれー!! &lt;義博&gt;
-
-
-
-
-
 
 
 -----
@@ -8115,14 +5487,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1893#       发表于 2018-2-16 02:19
 
 
-
-
 出场人物太多。。。光看名字已经搞不清谁是谁了。。。。
-
-
-
-
-
 
 
 -----
@@ -8131,21 +5496,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1894#       发表于 2018-2-16 02:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">富坚义博您慢慢砸字块，我就看个结局
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 1895#         楼主| 发表于 2018-2-16 13:33
-
-
 
 
 转师
@@ -8156,25 +5513,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 <img src="http://wx3.sinaimg.cn/large/bcfcde0agy1foi4nin6ktj20nm0y64f7.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  易方世界  
 ##### 1896#       发表于 2018-2-16 15:00
 
 
-
-
 这么多字<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8183,16 +5528,9 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1897#       发表于 2018-2-16 15:12
 
 
-
-
 喷了，信息越来越多
 
 —— 来自 Sony L50u, Android 4.4.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -8201,13 +5539,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1898#       发表于 2018-2-16 17:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">其实失踪的王子毕思琪半藏的身体……是不是直接被王子的念兽吃/隔离了
-
-
-
-
-
 
 
 -----
@@ -8216,16 +5548,9 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1899#       发表于 2018-2-17 17:14
 
 
-
-
 有人说姐妹王子那里守卫画错了 不同的房间画了同样的守卫
 
 <img src="https://i.imgur.com/ASI7ooF.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8234,14 +5559,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1900#         楼主| 发表于 2018-2-17 21:36
 
 
-
-
 更新[http://www.ishuhui.com/cartoon/num/11-0-n-374](http://www.ishuhui.com/cartoon/num/11-0-n-374)
-
-
-
-
-
 
 
 -----
@@ -8250,14 +5568,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1901#       发表于 2018-2-17 22:14
 
 
-
-
 感觉异邦人这个能力对特质系杀伤力会特别大啊
-
-
-
-
-
 
 
 -----
@@ -8266,14 +5577,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1902#       发表于 2018-2-17 22:38
 
 
-
-
 10和11是姐妹还是姐弟？11王子的五官画法像蓝孩子
-
-
-
-
-
 
 
 -----
@@ -8282,24 +5586,16 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1903#       发表于 2018-2-17 22:50
 
 
-
-
 这异邦人的能力怎么让我想起第五部的某个替身了，
 
 
 不过，这比蚂蚁篇还恐怖的信息量啊，FJ到底想干嘛，蚂蚁篇好歹最后排除了大部分角色，实际角色不多，且人物视角和变数主要集中在特定几个人物上，这王选彻底放开了人物能导致的变数，虽然视角不多，但几乎每个有名字的人物都是会产生不确定因素，这信息量太大了吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  J-002  
 ##### 1904#       发表于 2018-2-17 23:50
-
 
 
  本帖最后由 J-002 于 2018-2-17 23:58 编辑 
@@ -8309,32 +5605,19 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 查了下是姐妹，顺便发现第五王子也是女的……
 
 
-
-
-
-
-
 -----
 
 ####  阿虚家的三味  
 ##### 1905#       发表于 2018-2-18 00:12
 
 
-
-
 金币我瞎猜猜一天一枚所以上面是1，然后数字越大效果越高，可以用来收买人，和人的意志力有关
-
-
-
-
-
 
 
 -----
 
 ####  Snaky  
 ##### 1906#       发表于 2018-2-18 01:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38588398&amp;ptid=1505675" target="_blank">stygianlunar 发表于 2018-2-17 22:50</a>
@@ -8345,24 +5628,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 我觉得富坚很享受和自己斗智斗勇的感觉，至于读者，你们乖乖看戏就好，就别瞎几把分析剧情了
 
 
-
-
-
-
-
 -----
 
 ####  阿刚  
 ##### 1907#       发表于 2018-2-18 02:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这个异邦人简直是念兽专杀啊……不过前提是他自己不被控制吧
-
-
-
-
-
 
 
 -----
@@ -8371,14 +5643,7 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1908#       发表于 2018-2-18 03:24
 
 
-
-
 富坚完全放开了，新能力一个赛一个的复杂，我看这选王最后就是规则大赛了
-
-
-
-
-
 
 
 -----
@@ -8387,21 +5652,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1909#       发表于 2018-2-18 08:30
 
 
-
-
 目前王子守护兽的能力好像都挺弱的
-
-
-
-
-
 
 
 -----
 
 ####  vest0173  
 ##### 1910#       发表于 2018-2-18 09:12
-
 
 
  本帖最后由 vest0173 于 2018-2-18 09:14 编辑 
@@ -8425,16 +5682,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 1911#       发表于 2018-2-18 09:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38591994&amp;ptid=1505675" target="_blank">vest0173 发表于 2018-2-18 09:12</a>
@@ -8445,25 +5696,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 富坚的剧情基本不用他给出的信息，但是偏偏很多喜欢用他的信息来分析走向。我猜他只是推荐大家别试了
 
 
-
-
-
-
-
 -----
 
 ####  易方世界  
 ##### 1912#       发表于 2018-2-18 09:52
 
 
-
-
 渡航篇的信息密度简直是空前的了，念能力之间的交错碰撞就是这篇的看点吧。黑暗大陆片应该会回归「冒险」的主题，啊啊，真是期待啊<img src="https://static.saraba1st.com/image/smiley/animal2017/010.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8472,17 +5711,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1913#       发表于 2018-2-18 10:01
 
 
-
-
 为什么掠食者的汉字是异邦人？
 
 
 ----发送自 [STAGE1 Mobile](http://saraba1st.com/2b/?1.0)
-
-
-
-
-
 
 
 -----
@@ -8491,21 +5723,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1914#       发表于 2018-2-18 10:43
 
 
-
-
 这种在自己体内制造念兽的方式太那个了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">，如果这个护卫死了，那他的力量被大王子吸收了，大王子也就可以生自己敌对的弟弟（妹妹）的敌对念兽了……哈哈，好像男男生子
-
-
-
-
-
 
 
 -----
 
 ####  哈尔摩尼亚  
 ##### 1915#       发表于 2018-2-18 10:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38592364&amp;ptid=1505675" target="_blank">luice 发表于 2018-2-18 10:01</a>
@@ -8516,16 +5740,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 读作写作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  caster  
 ##### 1916#       发表于 2018-2-18 11:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38589603&amp;ptid=1505675" target="_blank">阿虚家的三味 发表于 2018-2-18 00:12</a>
@@ -8534,16 +5752,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 一天一枚按序排的话，这次的应该是2了，之前已经掉过一枚。
 
 
-
-
-
-
-
 -----
 
 ####  Snaky  
 ##### 1917#       发表于 2018-2-18 11:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38591994&amp;ptid=1505675" target="_blank">vest0173 发表于 2018-2-18 09:12</a>
@@ -8559,16 +5771,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 要不您给分析一下呗
 
 
-
-
-
-
-
 -----
 
 ####  temptiοn  
 ##### 1918#       发表于 2018-2-18 13:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38591994&amp;ptid=1505675" target="_blank">vest0173 发表于 2018-2-18 09:12</a>
@@ -8581,31 +5787,19 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 “你分析的什么几把玩意儿” 这种心态其实大家都有啦。
 
 
-
-
-
-
-
 -----
 
 ####  阿刚  
 ##### 1919#       发表于 2018-2-18 14:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">大王子这种看似强无敌的能力其实在富奸这里最容易吃瘪吧
-
-
-
-
-
 
 
 -----
 
 ####  远古之红  
 ##### 1920#       发表于 2018-2-18 14:58
-
 
 
 <blockquote>temptiοn 发表于 2018-2-18 13:25
@@ -8615,16 +5809,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 只不过一般人有自知之明，不会跳脚
 
 
-
-
-
-
-
 -----
 
 ####  黑岩泪香  
 ##### 1921#       发表于 2018-2-18 15:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38594941&amp;ptid=1505675" target="_blank">阿刚 发表于 2018-2-18 14:53</a>
@@ -8634,24 +5822,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 後者的話，其實跟庫拉皮卡德多功能手鍊差不多級別。前者大概就是紅眼狀態的級別。
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 1922#       发表于 2018-2-18 15:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我还想画一个现在的势力图。。。
-
-
-
-
-
 
 
 -----
@@ -8660,16 +5837,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1923#       发表于 2018-2-18 16:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38589603&amp;ptid=1505675" target="_blank">阿虚家的三味 发表于 2018-2-18 00:12</a>
 
 金币我瞎猜猜一天一枚所以上面是1，然后数字越大效果越高，可以用来收买人，和人的意志力有关 ...</blockquote>
 第二枚上面是1 不会越来越大吧
-
-
-
-
-
 
 
 -----
@@ -8678,21 +5849,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1924#       发表于 2018-2-18 18:07
 
 
-
-
 硬币的数字不会是指要死人吧？
-
-
-
-
-
 
 
 -----
 
 ####  J-002  
 ##### 1925#       发表于 2018-2-18 18:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38592364&amp;ptid=1505675" target="_blank">luice 发表于 2018-2-18 10:01</a>
@@ -8725,25 +5888,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 密室裁判：クロスゲーム
 
 
-
-
-
-
-
 -----
 
 ####  stygianlunar  
 ##### 1926#       发表于 2018-2-18 19:30
 
 
-
-
 硬币那个能力我感觉是提示之类的，类似幸运金币或者命运金币，能给以提示或者契机的线索之类。
-
-
-
-
-
 
 
 -----
@@ -8752,21 +5903,13 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 ##### 1927#       发表于 2018-2-18 19:33
 
 
-
-
 天了噜再过十年能不能打完继承战<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  vest0173  
 ##### 1928#       发表于 2018-2-18 20:09
-
 
 
  本帖最后由 vest0173 于 2018-2-18 20:18 编辑 
@@ -8788,17 +5931,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 1929#       发表于 2018-2-18 21:19
-
-
 
 
 别吵了。
@@ -8813,16 +5949,10 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 看来富坚对自己分析别的作品再超越很有自信。
 
 
-
-
-
-
-
 -----
 
 ####  vest0173  
 ##### 1930#       发表于 2018-2-18 22:02
-
 
 
  本帖最后由 vest0173 于 2018-2-19 15:38 编辑 
@@ -8848,32 +5978,19 @@ https://tieba.baidu.com/p/5529263897</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 1931#       发表于 2018-2-18 22:06
 
 
-
-
 我以为是那个格子里有密码之类的
-
-
-
-
-
 
 
 -----
 
 ####  Snaky  
 ##### 1932#       发表于 2018-2-18 23:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38597439&amp;ptid=1505675" target="_blank">vest0173 发表于 2018-2-18 20:09</a>
@@ -8923,17 +6040,10 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 如果楼里有其他分析党感觉被冒犯了，我再次致歉。
 
 
-
-
-
-
-
 -----
 
 ####  cxfdtc  
 ##### 1933#       发表于 2018-2-19 00:26
-
-
 
 
 我承认我想得多，而且非常主观臆断，我觉得猎人中后期富坚是在边画画边做实验的感觉，蚂蚁篇、选举篇、黑暗大陆篇、继承战篇的技法（主要是指叙事和表达方式）都不大一样。
@@ -8945,16 +6055,10 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 现在的猎人早就脱离少年漫的范畴了（同样对于少年漫无贬义），我在梦里不止一次希望猎人能换个青漫阵地月更30页<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  vest0173  
 ##### 1934#       发表于 2018-2-19 14:19
-
 
 
  本帖最后由 vest0173 于 2018-2-19 14:29 编辑 
@@ -8980,17 +6084,10 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 喷子就认命吧，装伪君子那一套凭你是玩儿不来的。
 
 
-
-
-
-
-
-
 -----
 
 ####  vest0173  
 ##### 1935#       发表于 2018-2-19 14:22
-
 
 
  本帖最后由 vest0173 于 2018-2-19 20:41 编辑 
@@ -9008,16 +6105,10 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Snaky  
 ##### 1936#       发表于 2018-2-19 14:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38603621&amp;ptid=1505675" target="_blank">vest0173 发表于 2018-02-19 14:22:38</a>
@@ -9032,16 +6123,10 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  gooswan  
 ##### 1937#       发表于 2018-2-19 14:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38599124&amp;ptid=1505675" target="_blank">Snaky 发表于 2018-2-18 23:40</a>
@@ -9060,16 +6145,10 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 当然你也可以学我用鹅表情。<img src="https://static.saraba1st.com/image/smiley/goose2017/017.png" referrerpolicy="no-referrer"> 
 
 
-
-
-
-
-
 -----
 
 ####  vest0173  
 ##### 1938#       发表于 2018-2-19 14:49
-
 
 
  本帖最后由 vest0173 于 2018-2-19 15:35 编辑 
@@ -9084,16 +6163,10 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  vest0173  
 ##### 1939#       发表于 2018-2-19 14:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38603828&amp;ptid=1505675" target="_blank">gooswan 发表于 2018-2-19 14:44</a>
@@ -9106,32 +6179,19 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 1940#       发表于 2018-2-19 14:55
 
 
-
-
 我觉得在猎人的讨论楼里出现这样的状况还挺正常的，以前贪婪大陆和昆仑就挺看重分析的
-
-
-
-
-
 
 
 -----
 
 ####  vest0173  
 ##### 1941#       发表于 2018-2-19 15:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38603896&amp;ptid=1505675" target="_blank">cdfjg 发表于 2018-2-19 14:55</a>
@@ -9147,16 +6207,10 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  downnote  
 ##### 1942#       发表于 2018-2-19 15:46
-
 
 
  本帖最后由 downnote 于 2018-2-19 15:47 编辑 
@@ -9164,16 +6218,10 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 这有什么好吵的……漫画出了想分析就分析想讨论就讨论，觉得哪里过头了就说把觉得过头的地方指出来。阶段分析有什么不行的，没必要等，要不然等完结了再讨论？那还追个啥连载啊
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 1943#       发表于 2018-2-19 17:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38604158&amp;ptid=1505675" target="_blank">vest0173 发表于 2018-2-19 15:33</a>
@@ -9187,26 +6235,14 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 分析也没说不行，但感觉还是比较可惜的，毕竟花了时间精力
 
 
-
-
-
-
-
 -----
 
 ####  陈玉礼  
 ##### 1944#       发表于 2018-2-19 18:51
 
 
-
-
 分析本身就是最大的乐趣啊，又不一定要分析出个什么结果来。
 就好比当年选举篇，奇犽自己把亚路嘉最重要的规则藏起来不说，导致之前的分析全部作废，但是并不妨碍连在那半年一边追一边讨论很有趣啊
-
-
-
-
-
 
 
 -----
@@ -9215,15 +6251,9 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 ##### 1945#       发表于 2018-2-19 20:39
 
 
-
  本帖最后由 菠萝渣32000 于 2018-2-19 20:40 编辑 
 
 没啥可吵的，能在Hunter专楼里说出 “瞎几把分析” 这种话的人，不是引战就是钓鱼，安装S1客户端塞抹布就是了，眼不见为净。   ← 广告
-
-
-
-
-
 
 
 -----
@@ -9232,21 +6262,13 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 ##### 1946#       发表于 2018-2-19 20:46
 
 
-
-
 支持分析，连剧情都不能分析了，还讨论个屁啊
-
-
-
-
-
 
 
 -----
 
 ####  beats0815  
 ##### 1947#       发表于 2018-2-19 20:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38594138&amp;ptid=1505675" target="_blank">temptiοn 发表于 2018-2-18 13:25</a>
@@ -9257,17 +6279,10 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 别人的分析  233，果然又是 “和尚摸得，你摸不得”。 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 1948#       发表于 2018-2-19 21:55
-
-
 
 
 猎人的剧情我感觉应该用比较奇怪的思路来预测
@@ -9277,27 +6292,15 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 然后黑暗大陆解密念能力，像当年幽游白书一样，魔界和人界和谐共存。全民会念，然后进出黑暗大陆就很平常。五大灾祸其实是小意思，黑暗大陆的大佬随随便便当玩具
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 1949#       发表于 2018-2-20 17:05
 
 
-
-
 今天想想感觉还是有东西可以分析的
 
 比如学念房间里谁是“多数沉默者”的能力者，一开始就能排除掉很多人，这个应该比较容易？类似levelE里棒球队的“能力者”
-
-
-
-
-
 
 
 -----
@@ -9306,16 +6309,9 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 ##### 1950#       发表于 2018-2-20 18:16
 
 
-
-
 妈呀，这字越来越多是不是快成说明文了。
 
 看的好累
-
-
-
-
-
 
 
 -----
@@ -9324,21 +6320,13 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 ##### 1951#       发表于 2018-2-20 22:49
 
 
-
-
 现在就算富奸失误搞错了我也看不出来 那么多设定根本记不住<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  肩上的乌鸦  
 ##### 1952#       发表于 2018-2-21 01:20
-
 
 
 <blockquote>cdfjg 发表于 2018-2-20 17:05
@@ -9367,21 +6355,10 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 另外，可以讨论的是就是下位王子结盟了。因为暗杀者出现，让5王子护卫本来想拉拢酷拉皮卡的事暂时中断。（他们还要防备3王子护卫的阻挠）10王子的侍从更是被当成嫌疑人，现在旋律向10王子解释念能力，如果可以说服10王子信任酷拉皮卡合作的话，那14，11，10，9王子的结盟可能性会大增。5王子护卫跟酷拉皮卡谈合作也只是时间问题。
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 1953#       发表于 2018-2-21 15:24
-
-
 
 
 睡醒补充下，如果富坚真想玩全船初级念能力者大乱斗的话，那么底层第五层也出现念能力教学一点也不奇怪。教学者是旅团吧。
@@ -9402,22 +6379,10 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 即使不能上中层，获得上位王子信任后，办事也方便很多。王子在1层的手下跟底层手下肯定有通讯渠道。虽然旅团现在大多是武斗派，但团长毕竟是猥琐流。
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  C男人  
 ##### 1954#       发表于 2018-2-21 15:35
-
 
 
  本帖最后由 C男人 于 2018-2-21 19:54 编辑 
@@ -9457,16 +6422,10 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 “第一王子殿下，我……辞职。”
 
 
-
-
-
-
-
 -----
 
 ####  阿虚家的三味  
 ##### 1955#       发表于 2018-2-21 18:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38622396&amp;ptid=1505675" target="_blank">C男人 发表于 2018-2-21 15:35</a>
@@ -9478,13 +6437,9 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 一人看到的普夫的一狼看到王，好像没有看到猫女掉毛的吧
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -9494,19 +6449,13 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 | C男人| + 1|哦，对，是我记错了。|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  acejoe  
 ##### 1956#       发表于 2018-2-21 21:44
-
 
 
  本帖最后由 acejoe 于 2018-2-21 21:53 编辑 
@@ -9525,17 +6474,10 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 肯定要去塑造酷拉皮卡的，如果真的搞大乱斗，那么这段剧情的收束的时候混乱不堪就没意思了。
 
 
-
-
-
-
-
-
 -----
 
 ####  stygianlunar  
 ##### 1957#       发表于 2018-2-21 22:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38625464&amp;ptid=1505675" target="_blank">acejoe 发表于 2018-2-21 21:44</a>
@@ -9546,16 +6488,10 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 这个可能性还真挺高，FJ一直喜欢让角色做选择的。但估计不是简单的复仇和救人二选一而是更纠结的更拷问库拉的局面。
 
 
-
-
-
-
-
 -----
 
 ####  hardwell  
 ##### 1958#       发表于 2018-2-21 22:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38625641&amp;ptid=1505675" target="_blank">stygianlunar 发表于 2018-2-21 22:05</a>
@@ -9564,32 +6500,19 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 赞同，毕竟类似的选择已经做过一次了，这次来个为了救皇子就要跟旅团合作的选择更有意思
 
 
-
-
-
-
-
 -----
 
 ####  哈尔摩尼亚  
 ##### 1959#       发表于 2018-2-21 22:23
 
 
-
-
 之前就有过抉择了再来一次也没意思啊
-
-
-
-
-
 
 
 -----
 
 ####  肩上的乌鸦  
 ##### 1960#       发表于 2018-2-21 23:34
-
 
 
 <blockquote>acejoe 发表于 2018-2-21 21:44
@@ -9611,17 +6534,10 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 说起来，旅团酷拉线交汇未必一定是旅团上顶层。8王子说下一次晚宴要搞大新闻，说不定因此顶层的人转移到中层也有可能。周日的晚宴会是个节点吧。
 
 
-
-
-
-
-
-
 -----
 
 ####  晓寒  
 ##### 1961#       发表于 2018-2-22 14:03
-
 
 
  本帖最后由 晓寒 于 2018-2-22 14:04 编辑 
@@ -9633,25 +6549,13 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 上一次觉得字比画多是《硫克和苹果的故事》那个啥笔记被和谐了打不出来……
 
 
-
-
-
-
-
 -----
 
 ####  zuga  
 ##### 1962#       发表于 2018-2-22 15:31
 
 
-
-
 上次重看猎人，看到十二支邀请酷拉皮卡时候有介绍，酷拉好像火红眼收集已经就差最后这一个了，收集完毕之后酷拉就失去了继续生活的目标，感觉fj也要在这一章里给酷拉皮卡一个继续生活的目标。
-
-
-
-
-
 
 
 -----
@@ -9660,16 +6564,10 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 ##### 1963#       发表于 2018-2-22 15:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38632121&amp;ptid=1505675" target="_blank">zuga 发表于 2018-2-22 15:31</a>
 
 上次重看猎人，看到十二支邀请酷拉皮卡时候有介绍，酷拉好像火红眼收集已经就差最后这一个了，收集完毕之后 ...</blockquote>
 和雷欧力一起组成家庭，把小王子这个娃养大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9678,24 +6576,16 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 ##### 1964#       发表于 2018-2-22 15:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38623725&amp;ptid=1505675" target="_blank">阿虚家的三味 发表于 2018-2-21 18:37</a>
 
 一人看到的普夫的一狼看到王，好像没有看到猫女掉毛的吧</blockquote>
 猫女专治秃发掉毛，看冈叔头发长得多快<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1965#         楼主| 发表于 2018-2-22 16:36
-
-
 
 
 簡易
@@ -9729,17 +6619,10 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 もう一つ簡単な記憶操作系の能力も持つ
 
 
-
-
-
-
-
 -----
 
 ####  陈玉礼  
 ##### 1966#       发表于 2018-2-22 16:56
-
-
 
 
 不懂日语，根据谷歌机翻乱猜一下，抛砖引玉
@@ -9755,16 +6638,10 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 哈肯布鲁格，强化及操作系，为认同哈肯布鲁格能力的人提供BUFF，同时有简单的记忆操作功能
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1967#         楼主| 发表于 2018-2-22 17:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38632936&amp;ptid=1505675" target="_blank">陈玉礼 发表于 2018-2-22 16:56</a>
@@ -9809,17 +6686,10 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 還有一個可以簡單操作記憶的能力
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1968#         楼主| 发表于 2018-2-22 17:53
-
-
 
 
 比斯吉又現真身了 ​​​​
@@ -9830,25 +6700,13 @@ FJ不愿意为了读者而妥协，很享受和自己的设定斗智斗勇的感
 转情报师
 
 
-
-
-
-
-
 -----
 
 ####  陈玉礼  
 ##### 1969#       发表于 2018-2-22 18:08
 
 
-
-
 这次是在一堆人面前秀真身，太羞耻了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9867,25 +6725,13 @@ RE: 全职猎人/HUNTER×HUNTER 连载再开（No.375 2/22）
 向筋肉势力低头还行
 
 
-
-
-
-
-
 -----
 
 ####  kokyou  
 ##### 1971#       发表于 2018-2-22 18:50
 
 
-
-
 目前王妃们还没有正式下场，感觉二王妃后期可能会比较重要，也许会跟库拉合作，她子女最多（肯定是有本事受国王恩宠）被二王子要求杀掉九王子又间接放任二去一那送人头。
-
-
-
-
-
 
 
 -----
@@ -9894,24 +6740,16 @@ RE: 全职猎人/HUNTER×HUNTER 连载再开（No.375 2/22）
 ##### 1972#       发表于 2018-2-22 20:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38633843&amp;ptid=1505675" target="_blank">陈玉礼 发表于 2018-2-22 18:08</a>
 
 这次是在一堆人面前秀真身，太羞耻了</blockquote>
 比斯吉为嘛要给13王子护卫队长演示？她不是介意自己这身肌肉让人看到吗？她这种老油条变化系忽然这么热血，有点不适……等着看图，看看剧情到底是怎么发展的。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1973#         楼主| 发表于 2018-2-22 23:28
-
-
 
 
 转K
@@ -10415,25 +7253,13 @@ RE: 全职猎人/HUNTER×HUNTER 连载再开（No.375 2/22）
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fopn4lfhvgj21r13401f2.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  waster112  
 ##### 1974#       发表于 2018-2-22 23:41
 
 
-
-
 肌肉比丝姬大胜利<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10442,14 +7268,7 @@ RE: 全职猎人/HUNTER×HUNTER 连载再开（No.375 2/22）
 ##### 1975#       发表于 2018-2-23 00:19
 
 
-
-
 「(☉д⊙)」
-
-
-
-
-
 
 
 -----
@@ -10458,16 +7277,9 @@ RE: 全职猎人/HUNTER×HUNTER 连载再开（No.375 2/22）
 ##### 1976#       发表于 2018-2-23 00:34
 
 
-
-
 喷了，一转搞笑漫画展开，这人设转换我是估不到啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 — from OnePlus ONEPLUS A3010, Android 7.1.2 of [S1 Next Goose](https://play.google.com/store/apps/details?id=me.ykrank.s1next) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -10476,14 +7288,7 @@ RE: 全职猎人/HUNTER×HUNTER 连载再开（No.375 2/22）
 ##### 1977#       发表于 2018-2-23 01:42
 
 
-
-
 喷了威尔肯队长原来你是这种人设吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10492,14 +7297,7 @@ RE: 全职猎人/HUNTER×HUNTER 连载再开（No.375 2/22）
 ##### 1978#       发表于 2018-2-23 09:18
 
 
-
-
 我算是明白了 王子念兽的能力基本都是为了统治者而服务的
-
-
-
-
-
 
 
 -----
@@ -10508,14 +7306,7 @@ RE: 全职猎人/HUNTER×HUNTER 连载再开（No.375 2/22）
 ##### 1979#       发表于 2018-2-23 09:26
 
 
-
-
 喷了 比司机也要找到自己的真爱了吗（虽然她是腐女……）
-
-
-
-
-
 
 
 -----
@@ -10524,15 +7315,9 @@ RE: 全职猎人/HUNTER×HUNTER 连载再开（No.375 2/22）
 ##### 1980#       发表于 2018-2-23 10:15
 
 
-
 <blockquote>amulelernen 发表于 2018-2-23 09:26
 喷了 比司机也要找到自己的真爱了吗（虽然她是腐女……）</blockquote>
 她不是腐女吧，蚂蚁篇出场时看的色情杂志也是男女的
-
-
-
-
-
 
 
 -----
@@ -10541,16 +7326,10 @@ RE: 全职猎人/HUNTER×HUNTER 连载再开（No.375 2/22）
 ##### 1981#       发表于 2018-2-23 10:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38639276&amp;ptid=1505675" target="_blank">kokyou 发表于 2018-2-23 10:15</a>
 
 她不是腐女吧，蚂蚁篇出场时看的色情杂志也是男女的</blockquote>
 那个只是长头发而已，不一定是男女的哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">并且她对于两个小男孩的友情真的很执着
-
-
-
-
-
 
 
 -----
@@ -10559,14 +7338,7 @@ RE: 全职猎人/HUNTER×HUNTER 连载再开（No.375 2/22）
 ##### 1982#       发表于 2018-2-23 10:28
 
 
-
-
 比大妈的训练应该是正统学院派教育，库拉的速成班教育可能是有什么代价或者缺陷的。
-
-
-
-
-
 
 
 -----
@@ -10575,14 +7347,7 @@ RE: 全职猎人/HUNTER×HUNTER 连载再开（No.375 2/22）
 ##### 1983#       发表于 2018-2-23 11:23
 
 
-
-
 第九王子这是万众一体么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10591,14 +7356,7 @@ RE: 全职猎人/HUNTER×HUNTER 连载再开（No.375 2/22）
 ##### 1984#       发表于 2018-2-23 11:39
 
 
-
-
 反过来来说，老一和老二的能力作为对自身统治者能力的弥补搞不好异常凶残
-
-
-
-
-
 
 
 -----
@@ -10607,16 +7365,9 @@ RE: 全职猎人/HUNTER×HUNTER 连载再开（No.375 2/22）
 ##### 1985#       发表于 2018-2-23 11:52
 
 
-
-
 手机发不了图
 https://m.weibo.cn/3170688522/4210549389192642
 比大妈和想象中不太一样<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10625,17 +7376,10 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 1986#         楼主| 发表于 2018-2-23 12:10
 
 
-
-
 375，转师
 <img src="http://wx3.sinaimg.cn/large/bcfcde0agy1foq80ydvkoj20nm0y6q9j.jpg" referrerpolicy="no-referrer">
 <img src="http://wx4.sinaimg.cn/large/bcfcde0agy1foq80ynaafj20nm0y6jy1.jpg" referrerpolicy="no-referrer">
 <img src="http://wx2.sinaimg.cn/large/bcfcde0agy1foq80ymlwwj20nm0y6dm6.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10644,13 +7388,7 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 1987#       发表于 2018-2-23 13:12
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">虽然理性知道是比大妈，不过这浓浓的HOMO味是肿么回事
-
-
-
-
-
 
 
 -----
@@ -10659,14 +7397,7 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 1988#       发表于 2018-2-23 13:31
 
 
-
-
 喷了 富奸瞎鸡巴画什么啊
-
-
-
-
-
 
 
 -----
@@ -10675,14 +7406,7 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 1989#       发表于 2018-2-23 13:53
 
 
-
-
 韩肉已出<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10691,14 +7415,7 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 1990#       发表于 2018-2-23 13:54
 
 
-
-
 比丝肌看起来和以前不一样了，一定是因为没穿lo装
-
-
-
-
-
 
 
 -----
@@ -10707,14 +7424,7 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 1991#       发表于 2018-2-23 14:09
 
 
-
-
 喷了，这货竟然是筋肉姐贵控。。。
-
-
-
-
-
 
 
 -----
@@ -10723,14 +7433,7 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 1992#       发表于 2018-2-23 14:29
 
 
-
-
 比司机这身高不对啊
-
-
-
-
-
 
 
 -----
@@ -10739,17 +7442,10 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 1993#       发表于 2018-2-23 15:33
 
 
-
-
 看了韩肉，九王子那边的一堆不懂念的护卫聚在一起居然能汇聚成那么强大的念，这种念估计也是要求代价的吧，否则怎么可能短时间内就这么强？九王子现在要去找灰锅肉进谏停止继承人之战，灰锅肉肯定不允许王子私自退出竞争。那九王子见了灰锅肉，是会被一顿洗脑，反而把内心阴暗的那一面展现出来了？还是他根本见不到国王，这个过程被别人干扰了？
 
 
 感觉九王子想见国王的举动也许会揭示一下继承人之战的更详细内幕
-
-
-
-
-
 
 
 -----
@@ -10758,15 +7454,9 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 1994#       发表于 2018-2-23 15:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38642580&amp;ptid=1505675" target="_blank">nxh1999 发表于 2018-2-23 15:33</a>
 看了韩肉，九王子那边的一堆不懂念的护卫聚在一起居然能汇聚成那么强大的念，这种念估计也是要求代价的吧， ...</blockquote>
 老九已经请求退出过一次了，从国王从容不迫的角度看，基本上是上了贼船你就下不来的意思
-
-
-
-
-
 
 
 -----
@@ -10775,16 +7465,10 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 1995#       发表于 2018-2-23 17:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38641561&amp;ptid=1505675" target="_blank">杏仁小圆饼 发表于 2018-2-23 13:54</a>
 
 比丝肌看起来和以前不一样了，一定是因为没穿lo装</blockquote>
 似乎没以前凶，于是更homo了
-
-
-
-
-
 
 
 -----
@@ -10793,14 +7477,7 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 1996#       发表于 2018-2-23 19:14
 
 
-
-
 汉化也出了，笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10809,14 +7486,7 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 1997#       发表于 2018-2-23 19:22
 
 
-
-
 比司吉上一页的包子脸和下一页筋肉形成的反差实在是太大了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10825,14 +7495,7 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 1998#       发表于 2018-2-23 19:30
 
 
-
-
 第七王子的念兽要是弄出个火红睛来，酷拉皮卡不知道会不会中陷阱
-
-
-
-
-
 
 
 -----
@@ -10841,21 +7504,13 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 1999#       发表于 2018-2-23 19:47
 
 
-
-
 九王子如果能坐上王位，念兽搞不好会进化到影响全国的程度啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  阿虚家的三味  
 ##### 2000#       发表于 2018-2-23 20:07
-
 
 
  本帖最后由 阿虚家的三味 于 2018-2-23 20:12 编辑 
@@ -10865,25 +7520,13 @@ https://m.weibo.cn/3170688522/4210549389192642
 不知道原文还是翻译的问题，那个注音是不是应该是partner啊，拼错了还是故意的？
 
 
-
-
-
-
-
 -----
 
 ####  记忆消失  
 ##### 2001#       发表于 2018-2-23 20:39
 
 
-
-
 笑死，比丝吉那里倒是还好，反而是酷拉皮卡师傅谈论龙球莫名戳笑点（你就不能说龙珠吗？）<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10892,21 +7535,13 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 2002#       发表于 2018-2-23 20:55
 
 
-
-
 笑死了，居然喜欢筋肉姐贵
-
-
-
-
-
 
 
 -----
 
 ####  C男人  
 ##### 2003#       发表于 2018-2-23 21:40
-
 
 
  本帖最后由 C男人 于 2018-2-23 21:42 编辑 
@@ -10921,17 +7556,10 @@ https://m.weibo.cn/3170688522/4210549389192642
 没有爆衣好 遗憾 庆幸啊！
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2004#       发表于 2018-2-23 22:46
-
-
 
 
 我是感觉这两话有点拖沓。
@@ -10949,18 +7577,10 @@ https://m.weibo.cn/3170688522/4210549389192642
 9王子的念这么强，全1楼的念能力者都感受到了吧，估计也是最先被全体分析到念兽能力的王子。
 
 
-
-
-
-
-
-
 -----
 
 ####  Elevation  
 ##### 2005#       发表于 2018-2-24 07:56
-
-
 
 
 一个想法
@@ -10969,25 +7589,13 @@ https://m.weibo.cn/3170688522/4210549389192642
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  hagane  
 ##### 2006#       发表于 2018-2-24 10:18
 
 
-
-
 这次复刊是不是也只有10话？
-
-
-
-
-
 
 
 -----
@@ -10996,16 +7604,9 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 2007#       发表于 2018-2-24 10:26
 
 
-
-
 我也提个想法
 
 第五王子是不是个Trans
-
-
-
-
-
 
 
 -----
@@ -11014,14 +7615,7 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 2008#       发表于 2018-2-24 10:37
 
 
-
-
 老9念兽的记忆操作实际上是猛击头部造成短暂失忆吧
-
-
-
-
-
 
 
 -----
@@ -11030,14 +7624,7 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 2009#       发表于 2018-2-24 10:54
 
 
-
-
 话说回来，国王还没死就开始玩皇子大逃杀。。。仔细想想这路子也是够野的
-
-
-
-
-
 
 
 -----
@@ -11046,14 +7633,7 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 2010#       发表于 2018-2-24 10:58
 
 
-
-
 看样子大逃杀连回锅肉自己也要一锅端的
-
-
-
-
-
 
 
 -----
@@ -11062,20 +7642,13 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 2011#       发表于 2018-2-24 11:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">别人用几页说明能力还说不清楚 你用一格解说能力还说完了？那就是你该扑街了啊
-
-
-
-
-
 
 
 -----
 
 ####  肩上的乌鸦  
 ##### 2012#       发表于 2018-2-24 11:53
-
 
 
  本帖最后由 肩上的乌鸦 于 2018-2-24 11:56 编辑 
@@ -11090,17 +7663,10 @@ https://m.weibo.cn/3170688522/4210549389192642
 1014暗杀者的制约估计在被禁闭6王妃侍从上。不知道释放后，还会不会继续到1014学念。
 
 
-
-
-
-
-
-
 -----
 
 ####  klzxs  
 ##### 2013#       发表于 2018-2-24 12:04
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">嘛 我是希望赶紧死几个
@@ -11118,16 +7684,10 @@ https://m.weibo.cn/3170688522/4210549389192642
 相对的像十二王子那样能力感觉还没说完的倒有点假死的感觉 
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2014#       发表于 2018-2-24 12:50
-
 
 
 <blockquote>klzxs 发表于 2018-2-24 12:04
@@ -11152,26 +7712,14 @@ https://m.weibo.cn/3170688522/4210549389192642
 说起来，1012房被国王要求禁闭，会不会12王子的死后念和念兽在里头孕育发酵啊。
 
 
-
-
-
-
-
 -----
 
 ####  nxh1999  
 ##### 2015#       发表于 2018-2-24 17:38
 
 
-
-
 黑暗大陆的这部分剧情感觉富坚的精力都放在设定上了，相比之下人物交手的剧情太少。那么多各种相貌的护卫，都有自己的内心戏，让人记不过来。
 那天想到一个问题，成年的王子那么多，他们怎么都没有孩子的样子？是没有画还是王子全都没结婚？康熙九龙夺嫡那时皇孙也很多啊
-
-
-
-
-
 
 
 -----
@@ -11180,16 +7728,9 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 2016#       发表于 2018-2-24 18:54
 
 
-
-
 说起来第四王子已经隐身很久了，不知道教他念的女猎人还有没有活着<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 —— 来自 Meizu PRO 5, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -11198,14 +7739,7 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 2017#       发表于 2018-3-1 09:34
 
 
-
-
 等本周的情报，嘿
-
-
-
-
-
 
 
 -----
@@ -11214,14 +7748,7 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 2018#       发表于 2018-3-1 09:48
 
 
-
-
 已经跟不上思路了
-
-
-
-
-
 
 
 -----
@@ -11230,23 +7757,14 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 2019#       发表于 2018-3-1 16:12
 
 
-
-
 4王子的水见式冒着恶臭的水泡，叶子腐烂了，缇塔存活。
 念课堂里缪汉死了（就是踩线的那个四王子亲兵）。
-
-
-
-
-
 
 
 -----
 
 ####  陈玉礼  
 ##### 2020#       发表于 2018-3-1 16:13
-
-
 
 
 转帖吧
@@ -11257,25 +7775,13 @@ https://m.weibo.cn/3170688522/4210549389192642
 提塔还活着，脸上有伤，情报师推测提塔是念兽能力的必须条件
 
 
-
-
-
-
-
 -----
 
 ####  icecry  
 ##### 2021#       发表于 2018-3-1 16:48
 
 
-
-
 人物太多，能力太多，这篇章有点蛋疼
-
-
-
-
-
 
 
 -----
@@ -11284,13 +7790,7 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 2022#       发表于 2018-3-1 16:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">三王子那个莫非是一天生产一个硬币然后给其他人拿硬币去发动能力？
-
-
-
-
-
 
 
 -----
@@ -11299,16 +7799,9 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 2023#       发表于 2018-3-1 16:55
 
 
-
-
 故事线太多，开更以来我都忘了缇塔这条线了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 有四王子念兽在，感觉精神控制傀儡不可避
-
-
-
-
-
 
 
 -----
@@ -11317,23 +7810,15 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 2024#         楼主| 发表于 2018-3-1 19:20
 
 
-
-
 转师
 
 作畫失誤了嗎 四王子水見式之前提塔臉上有傷用膠布 水見式時卻沒有 ​​​​
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2025#         楼主| 发表于 2018-3-1 19:31
-
 
 
  本帖最后由 xingenge 于 2018-3-1 22:16 编辑 
@@ -11852,13 +8337,7 @@ https://m.weibo.cn/3170688522/4210549389192642
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1foxmbpyiicj22qi1s0k20.jpg" referrerpolicy="no-referrer">
 
 
-
 ジェイソン・ブラウン選手。私の中で最も美しく滑るスケーターの１人です。義博
-
-
-
-
-
 
 
 -----
@@ -11867,14 +8346,7 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 2026#       发表于 2018-3-1 19:37
 
 
-
-
 故事节奏越来越快了，二王子这么快放出来了实在出乎意料<img src="https://static.saraba1st.com/image/smiley/animal2017/005.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11883,14 +8355,7 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 2027#       发表于 2018-3-1 19:57
 
 
-
-
 第六王子的念兽和子兽都只有眼，所以她其实很在意别人对她的看法吧。可能那唯一的禁忌就是骂她死肥婆
-
-
-
-
-
 
 
 -----
@@ -11899,14 +8364,7 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 2028#       发表于 2018-3-1 20:02
 
 
-
-
 人一多就肯定有特质系大甩卖……说好的稀有呢
-
-
-
-
-
 
 
 -----
@@ -11915,14 +8373,7 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 2029#       发表于 2018-3-1 20:40
 
 
-
-
 富坚厕所杀上瘾了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11931,14 +8382,7 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 2030#         楼主| 发表于 2018-3-1 22:17
 
 
-
-
 翻译有了
-
-
-
-
-
 
 
 -----
@@ -11947,17 +8391,10 @@ https://m.weibo.cn/3170688522/4210549389192642
 ##### 2031#       发表于 2018-3-2 10:07
 
 
-
-
 https://m.weibo.cn/status/4212930909960513
 
 
 富坚本期访谈的简短翻译，看喷了。
-
-
-
-
-
 
 
 -----
@@ -11966,14 +8403,7 @@ https://m.weibo.cn/status/4212930909960513
 ##### 2032#       发表于 2018-3-2 10:48
 
 
-
-
 槽点太多了吧这访谈..........233
-
-
-
-
-
 
 
 -----
@@ -11982,22 +8412,13 @@ https://m.weibo.cn/status/4212930909960513
 ##### 2033#       发表于 2018-3-2 11:35
 
 
-
-
 富坚本人比很多所谓粉丝臆想中的有趣多了
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2034#         楼主| 发表于 2018-3-2 11:39
-
-
 
 
 转师
@@ -12007,24 +8428,13 @@ https://m.weibo.cn/status/4212930909960513
 <img src="http://wx3.sinaimg.cn/large/bcfcde0agy1foybindexyj20nm0y6qbw.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  nxh1999  
 ##### 2035#       发表于 2018-3-2 11:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">四王子这人恶毒到什么地步，水见式能可怕到这样子？
-
-
-
-
-
 
 
 -----
@@ -12033,14 +8443,7 @@ https://m.weibo.cn/status/4212930909960513
 ##### 2036#       发表于 2018-3-2 12:09
 
 
-
-
 怕不是水变酸了……小缇塔的颜值怎么忽高忽低的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12049,15 +8452,9 @@ https://m.weibo.cn/status/4212930909960513
 ##### 2037#       发表于 2018-3-2 12:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38716594&amp;ptid=1505675" target="_blank">易方世界 发表于 2018-3-2 12:09</a>
 怕不是水变酸了……小缇塔的颜值怎么忽高忽低的</blockquote>
 主要这两格鼻子太刚硬显眼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12066,15 +8463,9 @@ https://m.weibo.cn/status/4212930909960513
 ##### 2038#       发表于 2018-3-2 12:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38716657&amp;ptid=1505675" target="_blank">陈玉礼 发表于 2018-3-2 12:15</a>
 主要这两格鼻子太刚硬显眼了</blockquote>
 三百四十八话的时候，鼻子还是尖尖的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12083,22 +8474,13 @@ https://m.weibo.cn/status/4212930909960513
 ##### 2039#       发表于 2018-3-2 12:37
 
 
-
-
 四王子特质系 戏份肯定不少
-
-
-
-
-
 
 
 -----
 
 ####  daizhenye  
 ##### 2040#       发表于 2018-3-2 12:58
-
-
 
 
 王子一个个开始学念以后，剧情进程就明显加快了
@@ -12108,26 +8490,13 @@ https://m.weibo.cn/status/4212930909960513
 好期待几个特别有戏的王子的念兽能力公开，上位王子的能力比较攻击**
 
 
-
-
-
-
-
-
 -----
 
 ####  kokyou  
 ##### 2041#       发表于 2018-3-2 13:55
 
 
-
-
 原来觉得第10王子属于伪装的太蹩脚很快就会挂的，结果也是个有心思的好姐姐。11之前看着傻白甜，但是这话看也是思路清晰，是目前所有王子中最快去主动掌握自己念兽能力的
-
-
-
-
-
 
 
 -----
@@ -12136,14 +8505,7 @@ https://m.weibo.cn/status/4212930909960513
 ##### 2042#       发表于 2018-3-2 15:58
 
 
-
-
 是缇塔脸上伤小的正面看不到还是忘画了？
-
-
-
-
-
 
 
 -----
@@ -12152,15 +8514,8 @@ https://m.weibo.cn/status/4212930909960513
 ##### 2043#         楼主| 发表于 2018-3-2 16:49
 
 
-
-
 更新了
 [http://www.ishuhui.com/cartoon/num/11-0-n-376](http://www.ishuhui.com/cartoon/num/11-0-n-376)
-
-
-
-
-
 
 
 -----
@@ -12169,14 +8524,7 @@ https://m.weibo.cn/status/4212930909960513
 ##### 2044#       发表于 2018-3-2 17:23
 
 
-
-
 四王子简直比主角加起来还开挂
-
-
-
-
-
 
 
 -----
@@ -12185,14 +8533,7 @@ https://m.weibo.cn/status/4212930909960513
 ##### 2045#       发表于 2018-3-2 17:24
 
 
-
-
 希望四王子干死大王子之后就赶紧去死<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12201,14 +8542,7 @@ https://m.weibo.cn/status/4212930909960513
 ##### 2046#       发表于 2018-3-2 17:29
 
 
-
-
 我看缇塔是要反啊<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12217,14 +8551,7 @@ https://m.weibo.cn/status/4212930909960513
 ##### 2047#       发表于 2018-3-2 17:31
 
 
-
-
 话说为什么缇塔就确认是特质系了，水变硫酸的话，变化系也有可能吧
-
-
-
-
-
 
 
 -----
@@ -12233,15 +8560,9 @@ https://m.weibo.cn/status/4212930909960513
 ##### 2048#       发表于 2018-3-2 17:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38719694&amp;ptid=1505675" target="_blank">kokyou 发表于 2018-3-2 17:31</a>
 话说为什么缇塔就确认是特质系了，水变硫酸的话，变化系也有可能吧</blockquote>
 变化系只改变水的味道，四王子这是水都迸到外面了
-
-
-
-
-
 
 
 -----
@@ -12250,15 +8571,9 @@ https://m.weibo.cn/status/4212930909960513
 ##### 2049#       发表于 2018-3-2 17:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38719694&amp;ptid=1505675" target="_blank">kokyou 发表于 2018-3-2 17:31</a>
 话说为什么缇塔就确认是特质系了，水变硫酸的话，变化系也有可能吧</blockquote>
 变化系是变味道吧，不是变成具体的什么。富坚肯定没想过超酸会怎么样
-
-
-
-
-
 
 
 -----
@@ -12267,16 +8582,10 @@ https://m.weibo.cn/status/4212930909960513
 ##### 2050#       发表于 2018-3-2 18:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38719668&amp;ptid=1505675" target="_blank">易方世界 发表于 2018-3-2 17:29</a>
 
 我看缇塔是要反啊，四王子的天赋实在是太可怕了</blockquote>
 这王子天赋再强，也强不过蚁王
-
-
-
-
-
 
 
 -----
@@ -12285,23 +8594,16 @@ https://m.weibo.cn/status/4212930909960513
 ##### 2051#       发表于 2018-3-2 18:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38719955&amp;ptid=1505675" target="_blank">贝尔奈普斯 发表于 2018-3-2 18:00</a>
 
 这王子天赋再强，也强不过蚁王</blockquote>
 但四王子的恶意恐怕远远超过蚁王了
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2052#       发表于 2018-3-2 19:08
-
 
 
  本帖最后由 肩上的乌鸦 于 2018-3-2 19:53 编辑 
@@ -12321,19 +8623,10 @@ https://m.weibo.cn/status/4212930909960513
 说起来，11王子是要担当逃生通道的角色吗。。。。。
 
 
-
-
-
-
-
-
-
 -----
 
 ####  peacemaker  
 ##### 2053#       发表于 2018-3-2 19:35
-
-
 
 
 4王子这个属性看的人难受.........恶意满满......
@@ -12342,17 +8635,10 @@ https://m.weibo.cn/status/4212930909960513
 光说邪性的话怕是和普夫可以比
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 2054#       发表于 2018-3-2 20:01
-
-
 
 
 普夫的圆能让人脱发，而且碰都没碰到的情况下
@@ -12361,16 +8647,10 @@ https://m.weibo.cn/status/4212930909960513
 诺布的心理状态应该比船上这些协专高到不知道哪里去吧？
 
 
-
-
-
-
-
 -----
 
 ####  daizhenye  
 ##### 2055#       发表于 2018-3-2 20:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38717567&amp;ptid=1505675" target="_blank">kokyou 发表于 2018-3-2 13:55</a>
@@ -12381,17 +8661,10 @@ https://m.weibo.cn/status/4212930909960513
 11看上去是要走上自学之路了，一般这种会成为一个关键。
 
 
-
-
-
-
-
-
 -----
 
 ####  daizhenye  
 ##### 2056#       发表于 2018-3-2 20:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38720779&amp;ptid=1505675" target="_blank">peacemaker 发表于 2018-3-2 19:35</a>
@@ -12405,16 +8678,10 @@ https://m.weibo.cn/status/4212930909960513
 普夫总归是虫子，到底单纯，4王子脏太多了。
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2057#       发表于 2018-3-2 20:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38720990&amp;ptid=1505675" target="_blank">cdfjg 发表于 2018-3-2 20:01</a>
@@ -12425,33 +8692,19 @@ https://m.weibo.cn/status/4212930909960513
 凯特说猫女的念多么邪恶，结果碰到小杰变成又软又受了。牛牛说帕里斯通肯定是邪恶世界的人，结果逗你玩。缇塔说4王子的念多么邪恶。。。。我觉得从第三者视角分析出这个角色多么邪恶，多半是富坚的误导，至少是不全面。4王子现在在缇塔面前还有逗逼的一面嘛。<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  waster112  
 ##### 2058#       发表于 2018-3-2 20:27
 
 
-
-
 4王子这话的思维能力 有点厉害啊
-
-
-
-
-
 
 
 -----
 
 ####  daizhenye  
 ##### 2059#       发表于 2018-3-2 20:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38721124&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-3-2 20:14</a>
@@ -12464,17 +8717,10 @@ https://m.weibo.cn/status/4212930909960513
 就算他有点恋心，也还不好洗白的吧
 
 
-
-
-
-
-
 -----
 
 ####  陈玉礼  
 ##### 2060#       发表于 2018-3-2 20:53
-
-
 
 
 都不太一样的，猫是积累了来自种族的纯粹的恶念，念的气质很邪恶但是他性格比较单纯，对王的命令毫不犹豫的执行。
@@ -12482,16 +8728,10 @@ https://m.weibo.cn/status/4212930909960513
 四王子就纯粹是个变态杀人狂了，这家伙的性格明显就是按照连环杀人犯的经典形象写的，自恋、天才、厌女、缺乏同理心，等等。不过这家伙一是王族二是念力天才，所以危险性和一般的连环杀手不可同日而语
 
 
-
-
-
-
-
 -----
 
 ####  cxfdtc  
 ##### 2061#       发表于 2018-3-2 21:34
-
 
 
  本帖最后由 cxfdtc 于 2018-3-2 21:59 编辑 
@@ -12502,16 +8742,10 @@ https://m.weibo.cn/status/4212930909960513
 此外虽然10年之内都未必能能看到官方解答，但卡金国的念兽越想越有意思。念兽来自寄生仪式，前身是卡金国代代相传的壶里的卵，回头翻看了一下，这壶据回锅肉说是初代国王以养蛊为灵感<strong>具现</strong>出来的（卡金国史书记载）……虽然库拉皮卡他们分析过寄生性念兽，目前看来也没有超出猎人们的认知范围，归根结底是念的产物。但从古至今传下来的壶总让人往黑暗大陆上去想。再扯远一点的话，念能力的起源到底和黑暗大陆有没有关系。
 
 
-
-
-
-
-
 -----
 
 ####  C男人  
 ##### 2062#       发表于 2018-3-2 21:36
-
 
 
  本帖最后由 C男人 于 2018-3-2 22:29 编辑 
@@ -12544,17 +8778,10 @@ https://m.weibo.cn/status/4212930909960513
 <img src="http://i4.bvimg.com/592959/f13012a96a6e04b4.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  J-002  
 ##### 2063#       发表于 2018-3-2 21:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38721991&amp;ptid=1505675" target="_blank">C男人 发表于 2018-3-2 21:36</a>
@@ -12566,16 +8793,10 @@ https://m.weibo.cn/status/4212930909960513
 老大虽然血气方刚但还多少讲点道理，他是最反感老二那样的全世界为我而活和老四这样纯粹恶的性格吧
 
 
-
-
-
-
-
 -----
 
 ####  cxfdtc  
 ##### 2064#       发表于 2018-3-2 21:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38721991&amp;ptid=1505675" target="_blank">C男人 发表于 2018-3-2 21:36</a>
@@ -12587,17 +8808,10 @@ https://m.weibo.cn/status/4212930909960513
 他只是没有绝对把握时不出手而已吧，现在的行动已经是王子里最积极的了，干掉其他人的目标没变。战场上摸爬滚打下来的领导人物不就是又最有野心但又最懂克制的么，没有铁证的情况无视国家法律权威只能被人瞧不起啊。
 
 
-
-
-
-
-
-
 -----
 
 ####  C男人  
 ##### 2065#       发表于 2018-3-2 21:55
-
 
 
  本帖最后由 C男人 于 2018-3-3 08:46 编辑 
@@ -12613,16 +8827,10 @@ https://m.weibo.cn/status/4212930909960513
 <img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 2066#       发表于 2018-3-2 22:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38722164&amp;ptid=1505675" target="_blank">C男人 发表于 2018-3-2 21:55</a>
@@ -12634,16 +8842,10 @@ https://m.weibo.cn/status/4212930909960513
 2，哪里强化系了
 
 
-
-
-
-
-
 -----
 
 ####  陈玉礼  
 ##### 2067#       发表于 2018-3-2 22:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38722164&amp;ptid=1505675" target="_blank">C男人 发表于 2018-3-2 21:55</a>
@@ -12654,17 +8856,10 @@ https://m.weibo.cn/status/4212930909960513
 卡金王族一代代洗礼下来，每个人的念力天赋相信都非比寻常，王子还有一个念天才就是老二啊，这家伙怎么看都不像老老实实修炼过四大行，偏偏有个很厉害的念能力
 
 
-
-
-
-
-
 -----
 
 ####  cmlf  
 ##### 2068#       发表于 2018-3-3 01:14
-
-
 
 
 从374来看11王子应该是进去通道后决定目的地的吧，现在主要还有两个问题。1，是否能连通多个目的地 2.这个目的地究竟是（单纯的决定目的地）or（根据11王子想做的事情（比如相见10王子）来系统自动判断最合适的目的地的）
@@ -12675,16 +8870,10 @@ https://m.weibo.cn/status/4212930909960513
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  黑岩泪香  
 ##### 2069#       发表于 2018-3-3 01:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38722164&amp;ptid=1505675" target="_blank">C男人 发表于 2018-3-2 21:55</a>
@@ -12700,26 +8889,14 @@ https://m.weibo.cn/status/4212930909960513
 富奸似乎一直沒有明確給出關於氣量差會不會影響念能力特殊效果的答案。
 
 
-
-
-
-
-
 -----
 
 ####  黑岩泪香  
 ##### 2070#       发表于 2018-3-3 01:29
 
 
-
-
 老四現在的塑造就是一個anti酷拉皮卡，念能力強度也好個人資質也好，看起來都是為了塑造一個對手。
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">如果這是一般少年漫畫，那大概就是這個劇本了。
-
-
-
-
-
 
 
 -----
@@ -12728,21 +8905,13 @@ https://m.weibo.cn/status/4212930909960513
 ##### 2071#       发表于 2018-3-3 03:47
 
 
-
-
 老贼创作四王子这种角色实在轻车熟路，酷拉、团长，四王子其实本质上都是一类人。
-
-
-
-
-
 
 
 -----
 
 ####  kokyou  
 ##### 2072#       发表于 2018-3-3 08:29
-
 
 
 <blockquote>C男人 发表于 2018-3-2 21:55
@@ -12754,16 +8923,10 @@ https://m.weibo.cn/status/4212930909960513
 是不是完全靠纯天赋也不好说，毕竟都靠壶激发出性能强大的念兽了，在某种程度上就算王子们不去学习念，他们的“念能力”也比很多念能力者都要强了。
 
 
-
-
-
-
-
 -----
 
 ####  daizhenye  
 ##### 2073#       发表于 2018-3-3 08:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38724223&amp;ptid=1505675" target="_blank">银翼的维罗西 发表于 2018-03-03 03:47:22</a>
@@ -12773,27 +8936,15 @@ https://m.weibo.cn/status/4212930909960513
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  朝仓和美  
 ##### 2074#       发表于 2018-3-3 09:05
 
 
-
-
 老四给人的感觉就是“最不应该出现的能力给了最不应该得到的人”
 但是故事发生在船上，又感觉格局不会大到哪去。大不了死一船的人嘛。事实上说不定连一层的人都死不光。
 不知道能不能看到老四上岸
-
-
-
-
-
 
 
 -----
@@ -12802,17 +8953,10 @@ https://m.weibo.cn/status/4212930909960513
 ##### 2075#       发表于 2018-3-3 09:22
 
 
-
-
 念兽不能直接攻击王子，念兽之间也不能互相残杀，考验的是王子领导能力政治能力。很好奇富坚会怎么塑造4王子的领导才能政治才能。有能力的坏领导者？
 
 
 说起来，原12支在政治上有不同派系，对V5对卡金的政治立场也不一。这会不会在后面剧情体现呢？选择支持不同的王子去完成会长的任务。酷拉招募的小伙伴芭蕉旋律都有想支持的王子了。
-
-
-
-
-
 
 
 -----
@@ -12821,15 +8965,9 @@ https://m.weibo.cn/status/4212930909960513
 ##### 2076#       发表于 2018-3-3 09:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38724993&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-3-3 09:22</a>
 念兽不能直接攻击王子，念兽之间也不能互相残杀，考验的是王子领导能力政治能力。很好奇富坚会怎么塑造4王 ...</blockquote>
 也不算支持政治理念之类的，就是在航行中做好保全吧
-
-
-
-
-
 
 
 -----
@@ -12838,25 +8976,15 @@ https://m.weibo.cn/status/4212930909960513
 ##### 2077#       发表于 2018-3-3 09:47
 
 
-
 <blockquote>cdfjg 发表于 2018-3-3 09:38
 也不算支持政治理念之类的，就是在航行中做好保全吧</blockquote>
 说到这个，上两话和本话护卫都提到“猎人协会想渗透卡金中枢”的谣言。之前有没有提到忘记了，我印象中没有提到。但这个说法应该不是空穴来风（可能是帕里斯通的杰作），或者说这个谣言会在后面成真。
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  肩上的乌鸦  
 ##### 2078#       发表于 2018-3-3 09:57
-
 
 
 <blockquote>daizhenye 发表于 2018-3-2 20:28
@@ -12874,20 +9002,10 @@ https://m.weibo.cn/status/4212930909960513
 反而团长西索伊尔迷炸弹魔这些人物，富坚没有花大力气铺垫他们多么邪恶，但他们的行径就是骇人听闻。
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  daizhenye  
 ##### 2079#       发表于 2018-3-3 10:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38725244&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-03-03 09:57:36</a>
@@ -12901,16 +9019,10 @@ https://m.weibo.cn/status/4212930909960513
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  period237  
 ##### 2080#       发表于 2018-3-3 10:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38721991&amp;ptid=1505675" target="_blank">C男人 发表于 2018-3-2 21:36</a>
@@ -12925,16 +9037,10 @@ https://m.weibo.cn/status/4212930909960513
 反倒是1王子的 “老子” 后来没再用过了。
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2081#       发表于 2018-3-3 10:40
-
 
 
 <blockquote>daizhenye 发表于 2018-3-3 10:18
@@ -12951,35 +9057,19 @@ https://m.weibo.cn/status/4212930909960513
 难道富坚也要论述政治家不需要看私德这一点？不过富坚也说过“我不信任那些自荐为后补的人，在内心深处无法信任政治家，也感觉那些人的性格是万恶之源。”之类的话。
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 2082#       发表于 2018-3-3 10:45
 
 
-
-
 还是觉得，富坚的剧情不可能按照一开始暗示的那样走，肯定不会是王子继承战，最后留下来的人当国王。目前主角方起码要保5个王子，不至于全死，那结局就不会是国王了，可能政体都变了。中途中断最有可能
-
-
-
-
-
 
 
 -----
 
 ####  肩上的乌鸦  
 ##### 2083#       发表于 2018-3-3 11:03
-
 
 
  本帖最后由 肩上的乌鸦 于 2018-3-3 11:08 编辑 
@@ -12994,32 +9084,19 @@ https://m.weibo.cn/status/4212930909960513
 而且所谓真林馆事件应该是上一次的继承战，如果说每次继承战选出的人，他的政治理念会改变卡金政体，让卡金国持续进步。那么这次继承战的结果会是更文明的解决方法。文明越进步，处置政治失败者的方式越文明嘛。
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 2084#       发表于 2018-3-3 11:29
 
 
-
-
 所以酷拉的寿命已经无所谓了吗
-
-
-
-
-
 
 
 -----
 
 ####  lb0windy  
 ##### 2085#       发表于 2018-3-3 11:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38725173&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-3-3 09:47</a>
@@ -13032,16 +9109,10 @@ https://m.weibo.cn/status/4212930909960513
 那么卡金的人把猎人当作V5的打手，目的是渗透卡金，那可是非常合理的判断。
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 2086#       发表于 2018-3-3 11:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38726005&amp;ptid=1505675" target="_blank">midearth 发表于 2018-3-3 11:29</a>
@@ -13050,17 +9121,10 @@ https://m.weibo.cn/status/4212930909960513
 富坚如果不这么画才有趣
 
 
-
-
-
-
-
 -----
 
 ####  J-002  
 ##### 2087#       发表于 2018-3-3 16:04
-
-
 
 
 话说，十王子准备那个发射器本来目的是什么呢？连摩斯电码都学了
@@ -13072,16 +9136,10 @@ https://m.weibo.cn/status/4212930909960513
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  阿刚  
 ##### 2088#       发表于 2018-3-3 16:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38728273&amp;ptid=1505675" target="_blank">J-002 发表于 2018-3-3 16:04</a>
@@ -13093,32 +9151,19 @@ https://m.weibo.cn/status/4212930909960513
 应该是为了保护傻白甜妹妹从小就学了一身的求生本领……而且这丫头搞不好有念能力……或者至少了解
 
 
-
-
-
-
-
 -----
 
 ####  sandrock  
 ##### 2089#       发表于 2018-3-3 18:21
 
 
-
-
 不过四王子天赋再高  战斗经验等于0啊  
-
-
-
-
-
 
 
 -----
 
 ####  哈尔摩尼亚  
 ##### 2090#       发表于 2018-3-3 18:31
-
 
 
  本帖最后由 哈尔摩尼亚 于 2018-3-3 18:33 编辑 
@@ -13129,16 +9174,10 @@ https://m.weibo.cn/status/4212930909960513
 说是超声波，更像是所谓的“蚊音”，年龄小听力没损伤的话是能听到的。拿来跟十一王子通信也未尝不可
 
 
-
-
-
-
-
 -----
 
 ####  J-002  
 ##### 2091#       发表于 2018-3-3 18:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38729632&amp;ptid=1505675" target="_blank">哈尔摩尼亚 发表于 2018-3-3 18:31</a>
@@ -13149,16 +9188,10 @@ https://m.weibo.cn/status/4212930909960513
 我觉得她是事先学了一大堆能用上的技能准备了一大堆小道具藏在房间各个角落，知道旋律的能力后就拿出这玩意用，肯定还有别的东西
 
 
-
-
-
-
-
 -----
 
 ####  584520184  
 ##### 2092#       发表于 2018-3-3 19:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38723807&amp;ptid=1505675" target="_blank">黑岩泪香 发表于 2018-3-3 01:26</a>
@@ -13169,16 +9202,10 @@ https://m.weibo.cn/status/4212930909960513
 气量应该还不能改变念规则，不良少年算利息的那个能力对尤比还是有用的，他们2个念量差距够大了
 
 
-
-
-
-
-
 -----
 
 ####  daizhenye  
 ##### 2093#       发表于 2018-3-3 19:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38725555&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-03-03 10:40:45</a>
@@ -13194,16 +9221,10 @@ https://m.weibo.cn/status/4212930909960513
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  阿刚  
 ##### 2094#       发表于 2018-3-3 19:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38730254&amp;ptid=1505675" target="_blank">584520184 发表于 2018-3-3 19:34</a>
@@ -13212,16 +9233,10 @@ https://m.weibo.cn/status/4212930909960513
 其实还是有点像替身战，能力虽然有用，但是进了射程有可能本体被直接打爆……
 
 
-
-
-
-
-
 -----
 
 ####  daizhenye  
 ##### 2095#       发表于 2018-3-3 19:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38729548&amp;ptid=1505675" target="_blank">sandrock 发表于 2018-03-03 18:21:55</a>
@@ -13230,16 +9245,10 @@ https://m.weibo.cn/status/4212930909960513
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2096#       发表于 2018-3-3 20:11
-
 
 
 <blockquote>daizhenye 发表于 2018-3-3 19:50
@@ -13254,17 +9263,10 @@ https://m.weibo.cn/status/4212930909960513
 其次，富坚系的人物虽然谎话连篇，但是纵观猎人，如果人物在说谎，富坚都会用第三者视角提醒读者，该人在说谎。
 
 
-
-
-
-
-
-
 -----
 
 ####  黑岩泪香  
 ##### 2097#       发表于 2018-3-3 20:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38730254&amp;ptid=1505675" target="_blank">584520184 发表于 2018-3-3 19:34</a>
@@ -13284,16 +9286,10 @@ https://m.weibo.cn/status/4212930909960513
 比如說二王子的貓，面對好比蟻王這種氣量差距的對手，能反殺嗎？還是只能做到復活？
 
 
-
-
-
-
-
 -----
 
 ####  584520184  
 ##### 2098#       发表于 2018-3-3 21:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38731023&amp;ptid=1505675" target="_blank">黑岩泪香 发表于 2018-3-3 20:56</a>
@@ -13304,16 +9300,10 @@ https://m.weibo.cn/status/4212930909960513
 能的 参考我说的战例
 
 
-
-
-
-
-
 -----
 
 ####  不想起名字  
 ##### 2099#       发表于 2018-3-3 21:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38731023&amp;ptid=1505675" target="_blank">黑岩泪香 发表于 2018-3-3 20:56</a>
@@ -13324,32 +9314,19 @@ https://m.weibo.cn/status/4212930909960513
 拿库鲁对尤匹，规则是生效的，只是因为尤匹的气量太大，时间“久”一些
 
 
-
-
-
-
-
 -----
 
 ####  陈玉礼  
 ##### 2100#       发表于 2018-3-3 22:04
 
 
-
-
 我倒是觉得二王子的猫不一定，念兽从出现到捕捉很明显是有一个时间过程的，对于蚁王来说要回避太容易了。另一方面，猫念兽是否是无法伤害的？富奸在解释波克布林的时候用了一句“因为无害，所以无敌”，猫念兽很明显不是这样。
-
-
-
-
-
 
 
 -----
 
 ####  远古之红  
 ##### 2101#       发表于 2018-3-3 22:07
-
 
 
 <blockquote>黑岩泪香 发表于 2018-3-3 20:56
@@ -13361,31 +9338,19 @@ https://m.weibo.cn/status/4212930909960513
 捏不死对手不知道会不会去找其他人
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 2102#       发表于 2018-3-3 22:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">突然想到，掉了好几天硬币都是掉的1元硬币，会不会过几天掉个5块10块的？说不定还能抽个ssr（…）
-
-
-
-
-
 
 
 -----
 
 ####  丘萤之光  
 ##### 2103#       发表于 2018-3-3 23:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38721991&amp;ptid=1505675" target="_blank">C男人 发表于 2018-3-2 15:36</a>
@@ -13396,16 +9361,10 @@ https://m.weibo.cn/status/4212930909960513
 按老大这越混越怂的个性绝对是活不到最后啦
 
 
-
-
-
-
-
 -----
 
 ####  丘萤之光  
 ##### 2104#       发表于 2018-3-3 23:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38724223&amp;ptid=1505675" target="_blank">银翼的维罗西 发表于 2018-3-2 21:47</a>
@@ -13413,16 +9372,10 @@ https://m.weibo.cn/status/4212930909960513
 酷拉这种本质老好人哪里跟其他两个变态一个德性了<img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  陈玉礼  
 ##### 2105#       发表于 2018-3-3 23:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38731552&amp;ptid=1505675" target="_blank">远古之红 发表于 2018-3-3 22:07</a>
@@ -13432,16 +9385,10 @@ https://m.weibo.cn/status/4212930909960513
 按照制约与誓约的规则八成是不行的，死后复活这种逆天能力需要的制约也更强吧
 
 
-
-
-
-
-
 -----
 
 ####  砂糖天妇罗  
 ##### 2106#       发表于 2018-3-3 23:37
-
 
 
 <blockquote>cdfjg 发表于 2018-3-3 11:35
@@ -13451,17 +9398,10 @@ https://m.weibo.cn/status/4212930909960513
 我想看这种发展
 
 
-
-
-
-
-
 -----
 
 ####  鹤雪六如2  
 ##### 2107#       发表于 2018-3-4 00:27
-
-
 
 
 看到贴吧说
@@ -13476,16 +9416,10 @@ https://m.weibo.cn/status/4212930909960513
 好吧  这个天赋  我是服气的………………
 
 
-
-
-
-
-
 -----
 
 ####  银翼的维罗西  
 ##### 2108#       发表于 2018-3-4 10:03
-
 
 
 <blockquote>鹤雪六如2 发表于 2018-3-4 00:27
@@ -13497,16 +9431,10 @@ https://m.weibo.cn/status/4212930909960513
 不奇怪，这个角色就是黑暗版库拉，五系全开有可能的。
 
 
-
-
-
-
-
 -----
 
 ####  寒蝉  
 ##### 2109#       发表于 2018-3-4 10:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38735737&amp;ptid=1505675" target="_blank">银翼的维罗西 发表于 2018-3-4 10:03</a>
@@ -13518,26 +9446,15 @@ https://m.weibo.cn/status/4212930909960513
 库拉：<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kokyou  
 ##### 2110#       发表于 2018-3-4 12:46
 
 
-
 <blockquote>陈玉礼 发表于 2018-3-3 22:04
 我倒是觉得二王子的猫不一定，念兽从出现到捕捉很明显是有一个时间过程的，对于蚁王来说要回避太容易了。另 ...</blockquote>
 纳库鲁的收债娃娃比较特殊，之前贪婪岛篇那个黑白贤人念兽一个排球打过来就被破坏了
-
-
-
-
-
 
 
 -----
@@ -13546,21 +9463,13 @@ https://m.weibo.cn/status/4212930909960513
 ##### 2111#       发表于 2018-3-4 12:51
 
 
-
-
 波特林说说因为无害所以无敌，但负债累计会越变越大，不知道能不能变成一个视觉死角，用来躲在他身后攻击
-
-
-
-
-
 
 
 -----
 
 ####  远古之红  
 ##### 2112#       发表于 2018-3-4 14:17
-
 
 
 <blockquote>鹤雪六如2 发表于 2018-3-4 00:27
@@ -13572,17 +9481,10 @@ https://m.weibo.cn/status/4212930909960513
 水变酸 强酸 也是这个效果
 
 
-
-
-
-
-
 -----
 
 ####  realgyf1985  
 ##### 2113#       发表于 2018-3-4 14:57
-
-
 
 
 话说会长的儿子应该也在船上吧？具体是在哪儿呢？那个大鲸鱼里，还是顶上那个小船里？是由十二支看着吧？
@@ -13591,16 +9493,10 @@ https://m.weibo.cn/status/4212930909960513
 金他们不也是要去黑暗大陆么，他们是怎么走的啊，应该不是坐这艘船吧。感觉很久没交代了。
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2114#       发表于 2018-3-4 15:11
-
 
 
 <blockquote>realgyf1985 发表于 2018-3-4 14:57
@@ -13611,32 +9507,19 @@ https://m.weibo.cn/status/4212930909960513
 beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也在1层。
 
 
-
-
-
-
-
 -----
 
 ####  bbokay  
 ##### 2115#       发表于 2018-3-4 17:17
 
 
-
-
 插个题外话，总有一种金上场了三下五除二把全员打趴下然后快速过渡到下一阶段的错觉
-
-
-
-
-
 
 
 -----
 
 ####  易方世界  
 ##### 2116#       发表于 2018-3-4 19:04
-
 
 
  本帖最后由 易方世界 于 2018-3-4 19:11 编辑 
@@ -13646,25 +9529,13 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 所以这个篇章里大概率见不着金和帕丽斯通了<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  四毛流浪记  
 ##### 2117#       发表于 2018-3-4 23:09
 
 
-
-
 11王子出现通道有可能会是7王子年兽许愿能力的伏吗
-
-
-
-
-
 
 
 -----
@@ -13673,15 +9544,8 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 ##### 2118#         楼主| 发表于 2018-3-8 15:28
 
 
-
-
 377 转师
 <img src="http://wx2.sinaimg.cn/large/bcfcde0agy1fp5fvbcnucj20xc0jw7b9.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13690,14 +9554,7 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 ##### 2119#       发表于 2018-3-8 15:32
 
 
-
-
 伊尔迷也混进去了？那个秃头大个子是新人吗？
-
-
-
-
-
 
 
 -----
@@ -13706,15 +9563,9 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 ##### 2120#       发表于 2018-3-8 15:35
 
 
-
 <blockquote>陈玉礼 发表于 2018-3-8 15:32
 伊尔迷也混进去了？那个秃头大个子是新人吗？</blockquote>
 应该是第五层黑帮的代理人吧，不过旅团会选择哪个王子呢？
-
-
-
-
-
 
 
 -----
@@ -13723,15 +9574,8 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 ##### 2121#       发表于 2018-3-8 15:37
 
 
-
-
 背影气场太强了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 伊尔迷似乎是西索请来杀自己的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13740,14 +9584,7 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 ##### 2122#       发表于 2018-3-8 15:39
 
 
-
-
 旅团全员好久不见啊，看来旅团线是要和酷拉皮卡线交织了<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13756,14 +9593,7 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 ##### 2123#       发表于 2018-3-8 15:44
 
 
-
-
 如果旅团投靠的是7王子的帮派，说不定是芭蕉先跟旅团接触呢。
-
-
-
-
-
 
 
 -----
@@ -13772,16 +9602,9 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 ##### 2124#       发表于 2018-3-8 15:50
 
 
-
-
 旅团的故事会在这一章结束了，再拖下去富坚都没有精力画完旅团的故事了
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -13790,14 +9613,7 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 ##### 2125#       发表于 2018-3-8 15:51
 
 
-
-
 现在就只剩11个人了，现在觉得旅团的flag真的很高了，这么多人至少死一半的感觉。
-
-
-
-
-
 
 
 -----
@@ -13806,15 +9622,9 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 ##### 2126#       发表于 2018-3-8 16:00
 
 
-
  本帖最后由 amulelernen 于 2018-3-8 16:01 编辑 
 
 我希望揍敌客家的另一位小朋友不要死啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13823,14 +9633,7 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 ##### 2127#       发表于 2018-3-8 16:09
 
 
-
-
 赌五毛伊尔迷会帮西索
-
-
-
-
-
 
 
 -----
@@ -13839,14 +9642,7 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 ##### 2128#       发表于 2018-3-8 16:12
 
 
-
-
 伊耳謎現在不是應該全心全意思考怎麼控制奇犽進而控制亞路嘉嗎？
-
-
-
-
-
 
 
 -----
@@ -13855,14 +9651,7 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 ##### 2129#       发表于 2018-3-8 16:16
 
 
-
-
 现在的奇犽没那么好控制了，想尽办法一个许愿就全没了，不如玩基友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13871,21 +9660,13 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 ##### 2130#       发表于 2018-3-8 16:23
 
 
-
-
 只求柯特别出事<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  黑岩泪香  
 ##### 2131#       发表于 2018-3-8 16:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38784168&amp;ptid=1505675" target="_blank">陈玉礼 发表于 2018-3-8 16:16</a>
@@ -13895,25 +9676,13 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 亞路嘉的能力如果不需要請求就能主動發動，那才是你說的情況。
 
 
-
-
-
-
-
 -----
 
 ####  芜菁种子  
 ##### 2132#       发表于 2018-3-8 16:26
 
 
-
-
 妮翁死了？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13922,23 +9691,16 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 ##### 2133#       发表于 2018-3-8 16:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38784343&amp;ptid=1505675" target="_blank">芜菁种子 发表于 2018-3-8 16:26</a>
 
 妮翁死了？</blockquote>
 富坚估计也懒得写诗了吧……
 
 
-
-
-
-
-
 -----
 
 ####  陈玉礼  
 ##### 2134#       发表于 2018-3-8 16:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38784327&amp;ptid=1505675" target="_blank">黑岩泪香 发表于 2018-3-8 16:25</a>
@@ -13948,26 +9710,15 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 问题是伊尔迷现在连近身都做不到，靠近了奇犽一个请求就送到天边去了，奇犽也不是靠偷袭就能解决的
 
 
-
-
-
-
-
 -----
 
 ####  nxh1999  
 ##### 2135#       发表于 2018-3-8 16:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38784422&amp;ptid=1505675" target="_blank">amulelernen 发表于 2018-3-8 16:31</a>
 富坚估计也懒得写诗了吧……</blockquote>
 颇有同感
-
-
-
-
-
 
 
 -----
@@ -13976,21 +9727,13 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 ##### 2136#       发表于 2018-3-8 17:15
 
 
-
-
 席巴也杀旅团的人，为什么旅团反而喜欢加揍敌客家族的人
-
-
-
-
-
 
 
 -----
 
 ####  nxh1999  
 ##### 2137#       发表于 2018-3-8 17:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38785154&amp;ptid=1505675" target="_blank">cdfjg 发表于 2018-3-8 17:15</a>
@@ -14001,16 +9744,10 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 要是入团单纯看实力，那团长对于团员入团这事的筛查简直太粗线条了吧……
 
 
-
-
-
-
-
 -----
 
 ####  kokyou  
 ##### 2138#       发表于 2018-3-8 17:44
-
 
 
 <blockquote>cdfjg 发表于 2018-3-8 17:15
@@ -14020,16 +9757,10 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 库洛洛还雇伊尔迷去杀五老头呢
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2139#         楼主| 发表于 2018-3-8 17:48
-
 
 
  本帖最后由 xingenge 于 2018-3-8 18:16 编辑 
@@ -14037,16 +9768,10 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 看错地方了
 
 
-
-
-
-
-
 -----
 
 ####  黑岩泪香  
 ##### 2140#       发表于 2018-3-8 17:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38784545&amp;ptid=1505675" target="_blank">陈玉礼 发表于 2018-3-8 16:38</a>
@@ -14056,16 +9781,10 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 當然，富奸再怎麼瞎搞應該也不會真的搞出這個劇情成真。
 
 
-
-
-
-
-
 -----
 
 ####  hardwell  
 ##### 2141#       发表于 2018-3-8 18:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38785609&amp;ptid=1505675" target="_blank">xingenge 发表于 2018-3-8 17:48</a>
@@ -14076,16 +9795,10 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 这有点猛啊<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 2142#       发表于 2018-3-8 18:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38785609&amp;ptid=1505675" target="_blank">xingenge 发表于 2018-3-8 17:48</a>
@@ -14096,16 +9809,10 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 不过也没jump楼，原来考古是这种考古
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2143#         楼主| 发表于 2018-3-8 18:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38785950&amp;ptid=1505675" target="_blank">cdfjg 发表于 2018-3-8 18:12</a>
@@ -14116,26 +9823,14 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">发错地方了，这个页面开着就没想着复制黏贴进去了 这下比较多事情
 
 
-
-
-
-
-
 -----
 
 ####  陈玉礼  
 ##### 2144#       发表于 2018-3-8 20:24
 
 
-
-
 西索和伊尔迷订婚了？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 西索雇伊尔迷杀他就是订婚契约？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14144,16 +9839,10 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 ##### 2145#       发表于 2018-3-8 20:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38787345&amp;ptid=1505675" target="_blank">陈玉礼 发表于 2018-03-08 20:24:53</a>
 西索和伊尔迷订婚了？</blockquote>我tm现在怀疑伊路米到底是不是女的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -14162,22 +9851,13 @@ beyond在1层啊，跟酷拉他们同一层。王族，V5的财政界要员也�
 ##### 2146#       发表于 2018-3-8 20:36
 
 
-
-
 原来这臭小子和玛奇只是玩玩吗？！<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2147#         楼主| 发表于 2018-3-8 20:38
-
-
 
 
 转K岛
@@ -14496,7 +10176,6 @@ No.11　伊爾迷＝揍敵客
 旅團四散
 
 
-
 再水滴「團長不跟人組隊嗎？」
 
 
@@ -14557,31 +10236,19 @@ No.11　伊爾迷＝揍敵客
 剝落裂夫「水滴、別再說了」
 
 
-
-
-
-
-
 -----
 
 ####  101kl  
 ##### 2148#       发表于 2018-3-8 20:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">在微博上看到了婚前契约……？？？？
-
-
-
-
-
 
 
 -----
 
 ####  哈尔摩尼亚  
 ##### 2149#       发表于 2018-3-8 20:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38787460&amp;ptid=1505675" target="_blank">xingenge 发表于 2018-3-8 20:38</a>
@@ -14592,26 +10259,15 @@ No.11　伊爾迷＝揍敵客
 这群黑手党是怎么做到对旅团态度还这么屌的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怕不是又要给拿来刷时髦
 
 
-
-
-
-
-
 -----
 
 ####  银翼的维罗西  
 ##### 2150#       发表于 2018-3-8 21:10
 
 
-
  本帖最后由 银翼的维罗西 于 2018-3-8 21:13 编辑 
 
 尼翁我觉得不一定会死啊，酷拉自身的能力尚有发展可能性，说不定自己想了办法解除了团长的念或者通过黑手党的资源解除了念。
-
-
-
-
-
 
 
 -----
@@ -14620,16 +10276,10 @@ No.11　伊爾迷＝揍敵客
 ##### 2151#       发表于 2018-3-8 21:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38787565&amp;ptid=1505675" target="_blank">101kl 发表于 2018-3-8 20:50</a>
 
 在微博上看到了婚前契约……？？？？</blockquote>
 微博上的一众cp党已经因为这句话进入癫狂状态
-
-
-
-
-
 
 
 -----
@@ -14638,16 +10288,10 @@ No.11　伊爾迷＝揍敵客
 ##### 2152#       发表于 2018-3-8 21:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38787794&amp;ptid=1505675" target="_blank">vbadvance 发表于 2018-3-8 21:21</a>
 
 微博上的一众cp党已经因为这句话进入癫狂状态</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">我不萌这cp我都惊了好吗
-
-
-
-
-
 
 
 -----
@@ -14656,14 +10300,7 @@ No.11　伊爾迷＝揍敵客
 ##### 2153#       发表于 2018-3-8 21:28
 
 
-
-
 富坚这次能连载几话？不要情绪被调动起来又休刊了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14672,14 +10309,7 @@ No.11　伊爾迷＝揍敵客
 ##### 2154#       发表于 2018-3-8 21:28
 
 
-
-
 婚前契约什么鬼……<img src="https://static.saraba1st.com/image/smiley/carton2017/187.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14688,14 +10318,7 @@ No.11　伊爾迷＝揍敵客
 ##### 2155#       发表于 2018-3-8 21:29
 
 
-
-
 杀掉了西索怎么结婚呢？这个感觉好难想象啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14704,14 +10327,7 @@ No.11　伊爾迷＝揍敵客
 ##### 2156#       发表于 2018-3-8 21:41
 
 
-
-
 小滴的吐槽真是犀利，团员围殴说不攻自破<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14720,16 +10336,10 @@ No.11　伊爾迷＝揍敵客
 ##### 2157#       发表于 2018-3-8 21:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38787856&amp;ptid=1505675" target="_blank">amulelernen 发表于 2018-3-8 21:29</a>
 
 杀掉了西索怎么结婚呢？这个感觉好难想象啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">杀了西索就可以不和他这种sjb战斗狂厕所狂魔结婚了，还可以得到他的遗产，是不是超赚？
-
-
-
-
-
 
 
 -----
@@ -14738,22 +10348,13 @@ No.11　伊爾迷＝揍敵客
 ##### 2158#       发表于 2018-3-8 21:56
 
 
-
-
 厕索的遗产是什么，卷纸？
-
-
-
-
-
 
 
 -----
 
 ####  陈玉礼  
 ##### 2159#       发表于 2018-3-8 22:25
-
-
 
 
 「別趁著鼻子往上竄了、趁我心情還沒改之前快消失吧！」
@@ -14764,25 +10365,13 @@ No.11　伊爾迷＝揍敵客
 其实我觉得这段超级喜感<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  离墨魇  
 ##### 2160#       发表于 2018-3-8 22:25
 
 
-
-
 伊尔迷那个感觉单看怎么翻译吧，什么婚前契约……
-
-
-
-
-
 
 
 -----
@@ -14791,16 +10380,9 @@ No.11　伊爾迷＝揍敵客
 ##### 2161#       发表于 2018-3-8 22:28
 
 
-
-
 s1对西索居然这么不友好的吗
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -14809,14 +10391,7 @@ s1对西索居然这么不友好的吗
 ##### 2162#       发表于 2018-3-8 22:31
 
 
-
-
 那个念写的大小姐死了？
-
-
-
-
-
 
 
 -----
@@ -14825,14 +10400,7 @@ s1对西索居然这么不友好的吗
 ##### 2163#       发表于 2018-3-8 22:32
 
 
-
-
 看微博上有人分析妮翁是被西索给杀了，为了削弱库洛洛的实力。如果是真的，简直不能忍。 猎人世界中那么萌的女孩真是没几个……
-
-
-
-
-
 
 
 -----
@@ -14841,16 +10409,10 @@ s1对西索居然这么不友好的吗
 ##### 2164#         楼主| 发表于 2018-3-8 22:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38787839&amp;ptid=1505675" target="_blank">華鳥風月 发表于 2018-3-8 21:28</a>
 
 富坚这次能连载几话？不要情绪被调动起来又休刊了</blockquote>
 之前有人去拜访富坚老家，富坚的老妈说他腰好了不少
-
-
-
-
-
 
 
 -----
@@ -14859,16 +10421,10 @@ s1对西索居然这么不友好的吗
 ##### 2165#       发表于 2018-3-8 22:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38788422&amp;ptid=1505675" target="_blank">nxh1999 发表于 2018-3-8 22:32</a>
 
 看微博上有人分析妮翁是被西索给杀了，为了削弱库洛洛的实力。如果是真的，简直不能忍。 猎人世界中那么萌 ...</blockquote>
 尼翁好像也不是什么好女孩吧……
-
-
-
-
-
 
 
 -----
@@ -14877,21 +10433,13 @@ s1对西索居然这么不友好的吗
 ##### 2166#       发表于 2018-3-8 22:37
 
 
-
-
 我赌大小姐没死，库拉不可能对尼翁死了这件事不管不问的
-
-
-
-
-
 
 
 -----
 
 ####  银翼的维罗西  
 ##### 2167#       发表于 2018-3-8 22:40
-
 
 
  本帖最后由 银翼的维罗西 于 2018-3-8 22:42 编辑 
@@ -14901,16 +10449,10 @@ s1对西索居然这么不友好的吗
 彭斯也死的很惨，这么看来王位争夺战中的两个萌妹公主应该会死的很惨?不过这可能性很小，库拉本来就大小姐护卫，没什么交代就被西索杀了，酷拉尽责忠诚的形象就崩了。
 
 
-
-
-
-
-
 -----
 
 ####  華鳥風月  
 ##### 2168#       发表于 2018-3-8 22:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38788434&amp;ptid=1505675" target="_blank">xingenge 发表于 2018-3-8 22:33</a>
@@ -14919,31 +10461,19 @@ s1对西索居然这么不友好的吗
 想起来我看过那个消息，富坚身体好起来就是好事
 
 
-
-
-
-
-
 -----
 
 ####  estrellas  
 ##### 2169#       发表于 2018-3-8 23:00
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">文字情报，西索和伊路米是出柜了吗
-
-
-
-
-
 
 
 -----
 
 ####  nxh1999  
 ##### 2170#       发表于 2018-3-8 23:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38788459&amp;ptid=1505675" target="_blank">amulelernen 发表于 2018-3-8 22:35</a>
@@ -14955,16 +10485,10 @@ s1对西索居然这么不友好的吗
 再说什么样的女孩算是好女孩？三好学生吗？
 
 
-
-
-
-
-
 -----
 
 ####  101kl  
 ##### 2171#       发表于 2018-3-8 23:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38788366&amp;ptid=1505675" target="_blank">离墨魇 发表于 2018-3-8 22:25</a>
@@ -14973,25 +10497,13 @@ s1对西索居然这么不友好的吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">好像是日文原文就是汉字婚前契约，还读作订婚戒指……
 
 
-
-
-
-
-
 -----
 
 ####  韩子  
 ##### 2172#       发表于 2018-3-8 23:19
 
 
-
-
 等等西索不是会对小男孩扯旗的ltp来的吗………
-
-
-
-
-
 
 
 -----
@@ -15000,16 +10512,10 @@ s1对西索居然这么不友好的吗
 ##### 2173#       发表于 2018-3-8 23:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38788767&amp;ptid=1505675" target="_blank">nxh1999 发表于 2018-3-8 23:06</a>
 
 妮翁做过什么坏事吗？她就是普通的娇蛮大小姐而已。她小时候看了银河的祖母的采访，就想着自己能尽量占卜 ...</blockquote>
 吓到个屁，子安配的那个队长死了她是什么反应还记得吗？这还是好女孩
-
-
-
-
-
 
 
 -----
@@ -15018,14 +10524,7 @@ s1对西索居然这么不友好的吗
 ##### 2174#       发表于 2018-3-8 23:27
 
 
-
-
 原来西索不止对小男孩的屁股能发情，对男人的也可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15034,16 +10533,10 @@ s1对西索居然这么不友好的吗
 ##### 2175#       发表于 2018-3-8 23:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38788946&amp;ptid=1505675" target="_blank">jy67 发表于 2018-3-8 23:26</a>
 
 吓到个屁，子安配的那个队长死了她是什么反应还记得吗？这还是好女孩</blockquote>
 没忘，但是她和队长关系也没多亲近吧。但是酷拉发烧清醒之后，旋律告诉他大小姐回去了时候说过，那个**的保骠死了，他的女朋友非常伤心，结果妮翁就被吓到，主动要求回家了。侍女对于她来说，关系更亲密，所以触动到她了。
-
-
-
-
-
 
 
 -----
@@ -15052,16 +10545,10 @@ s1对西索居然这么不友好的吗
 ##### 2176#       发表于 2018-3-8 23:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38788956&amp;ptid=1505675" target="_blank">荒村一砣 发表于 2018-3-8 23:27</a>
 
 原来西索不止对小男孩的屁股能发情，对男人的也可以啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">恰恰相反，他不是选举篇感受到一个95分的感觉要gc了，一看到大哥就萎了吗……
-
-
-
-
-
 
 
 -----
@@ -15070,16 +10557,10 @@ s1对西索居然这么不友好的吗
 ##### 2177#       发表于 2018-3-8 23:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38788767&amp;ptid=1505675" target="_blank">nxh1999 发表于 2018-3-8 23:06</a>
 
 妮翁做过什么坏事吗？她就是普通的娇蛮大小姐而已。她小时候看了银河的祖母的采访，就想着自己能尽量占卜 ...</blockquote>
 收集人体器官这会是一个好女孩的习惯吗？什么样的人会有收集人体器官的爱好难道心里没点逼数？
-
-
-
-
-
 
 
 -----
@@ -15088,16 +10569,10 @@ s1对西索居然这么不友好的吗
 ##### 2178#       发表于 2018-3-9 00:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38789232&amp;ptid=1505675" target="_blank">zodiac137 发表于 2018-3-8 23:56</a>
 
 收集人体器官这会是一个好女孩的习惯吗？什么样的人会有收集人体器官的爱好难道心里没点逼数？ ...</blockquote>
 你可以理解成进阶班原宿系……凯莉怕谬那一派的
-
-
-
-
-
 
 
 -----
@@ -15106,21 +10581,13 @@ s1对西索居然这么不友好的吗
 ##### 2179#       发表于 2018-3-9 00:20
 
 
-
-
 猎人里的角色，就别分是好是坏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 2180#       发表于 2018-3-9 00:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38788767&amp;ptid=1505675" target="_blank">nxh1999 发表于 2018-3-8 23:06</a>
@@ -15131,16 +10598,10 @@ s1对西索居然这么不友好的吗
 话说要光比萌，我还是更心疼猫女一点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  nxh1999  
 ##### 2181#       发表于 2018-3-9 00:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38789435&amp;ptid=1505675" target="_blank">amulelernen 发表于 2018-3-9 00:23</a>
@@ -15154,25 +10615,13 @@ s1对西索居然这么不友好的吗
 彼特也很萌，当年她也算蚁王连载的主要角色之一。不过记得有人考据说猫女算嵌合蚁，其实是男的，不知道设定里有没有写这一块。
 
 
-
-
-
-
-
 -----
 
 ####  SHIRT  
 ##### 2182#       发表于 2018-3-9 01:49
 
 
-
-
 比特性别本来就是男，你们看书不认真啊
-
-
-
-
-
 
 
 -----
@@ -15181,15 +10630,9 @@ s1对西索居然这么不友好的吗
 ##### 2183#       发表于 2018-3-9 04:11
 
 
-
 <blockquote>陈玉礼 发表于 2018-3-8 22:37
 我赌大小姐没死，库拉不可能对尼翁死了这件事不管不问的</blockquote>
 库拉没亲手杀了她已经够心软了
-
-
-
-
-
 
 
 -----
@@ -15198,15 +10641,9 @@ s1对西索居然这么不友好的吗
 ##### 2184#       发表于 2018-3-9 06:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38789114&amp;ptid=1505675" target="_blank">101kl 发表于 2018-3-8 23:45</a>
 恰恰相反，他不是选举篇感受到一个95分的感觉要gc了，一看到大哥就萎了吗…… ...</blockquote>
 那个95分就是大哥啊
-
-
-
-
-
 
 
 -----
@@ -15215,16 +10652,10 @@ s1对西索居然这么不友好的吗
 ##### 2185#       发表于 2018-3-9 07:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38790426&amp;ptid=1505675" target="_blank">陈玉礼 发表于 2018-3-9 06:40</a>
 
 那个95分就是大哥啊</blockquote>
 我说的就是他啊，一看到大哥就萎，好吧可能就是因为大哥能让他萎才不同凡响
-
-
-
-
-
 
 
 -----
@@ -15233,14 +10664,7 @@ s1对西索居然这么不友好的吗
 ##### 2186#       发表于 2018-3-9 07:49
 
 
-
-
 低配版四王子也能好女孩，人美真好
-
-
-
-
-
 
 
 -----
@@ -15249,14 +10673,7 @@ s1对西索居然这么不友好的吗
 ##### 2187#       发表于 2018-3-9 10:06
 
 
-
-
 喷了，伊尔迷大姐趟这浑水干什么
-
-
-
-
-
 
 
 -----
@@ -15265,15 +10682,9 @@ s1对西索居然这么不友好的吗
 ##### 2188#       发表于 2018-3-9 10:30
 
 
-
 <blockquote>远古之红 发表于 2018-3-9 04:11
 库拉没亲手杀了她已经够心软了</blockquote>
 酷拉收回火红眼的过程中没杀任何收藏者，感觉他对杀人看得很严重，不是性命相搏或者深仇大恨就不会下杀手
-
-
-
-
-
 
 
 -----
@@ -15282,21 +10693,13 @@ s1对西索居然这么不友好的吗
 ##### 2189#       发表于 2018-3-9 11:19
 
 
-
-
 大哥大嫂过年好？
-
-
-
-
-
 
 
 -----
 
 ####  jhjy217  
 ##### 2190#       发表于 2018-3-9 11:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38788719&amp;ptid=1505675" target="_blank">estrellas 发表于 2018-3-8 23:00</a>
@@ -15307,27 +10710,15 @@ s1对西索居然这么不友好的吗
 个么西索你对小杰…………
 
 
-
-
-
-
-
 -----
 
 ####  陈玉礼  
 ##### 2191#       发表于 2018-3-9 11:42
 
 
-
-
 有图了<img src="https://wx4.sinaimg.cn/mw1024/bcfcde0agy1fp6eq1cxg3j21b80y6aqi.jpg" referrerpolicy="no-referrer">
 <img src="https://wx3.sinaimg.cn/mw690/bcfcde0agy1fp6eq0aw6mj20nm0y6dl1.jpg" referrerpolicy="no-referrer">
 <img src="http://wx1.sinaimg.cn/large/bcfcde0agy1fp6eq1jr8aj21b80y6wq1.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15336,14 +10727,7 @@ s1对西索居然这么不友好的吗
 ##### 2192#       发表于 2018-3-9 11:50
 
 
-
-
 大家颜值都上线了哎。既然真盖章了那么下一个问题就是小杰跟阿奇什么时候扯证了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15352,14 +10736,7 @@ s1对西索居然这么不友好的吗
 ##### 2193#       发表于 2018-3-9 11:53
 
 
-
-
 旅团的人居然就这么接受了……<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15368,18 +10745,12 @@ s1对西索居然这么不友好的吗
 ##### 2194#       发表于 2018-3-9 11:58
 
 
-
-
 每个都一脸便秘的样子，看来真是没上厕所。。。。。
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +2
@@ -15390,12 +10761,7 @@ s1对西索居然这么不友好的吗
 | 丘萤之光| + 1|欢乐多|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -15404,13 +10770,7 @@ s1对西索居然这么不友好的吗
 ##### 2195#       发表于 2018-3-9 12:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">不知道该吐槽这居然是真的好，还是该吐槽旅团这全体沉默好
-
-
-
-
-
 
 
 -----
@@ -15419,14 +10779,7 @@ s1对西索居然这么不友好的吗
 ##### 2196#       发表于 2018-3-9 12:08
 
 
-
-
 柯特起来反对伊路米进旅团就有意思了，很喜欢揍敌客家族内斗的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15435,14 +10788,7 @@ s1对西索居然这么不友好的吗
 ##### 2197#       发表于 2018-3-9 12:29
 
 
-
-
 伊路米是打算杀了西索继承他的遗产？订婚是这个作用吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15451,16 +10797,9 @@ s1对西索居然这么不友好的吗
 ##### 2198#       发表于 2018-3-9 12:58
 
 
-
-
 “婚前契约”……大概是伊路米以戏谑的口吻说的吧……
 
 科特和玛琪真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15469,14 +10808,7 @@ s1对西索居然这么不友好的吗
 ##### 2199#       发表于 2018-3-9 13:09
 
 
-
-
 最后一张图：“两年后，香波地群岛见！”<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15485,21 +10817,13 @@ s1对西索居然这么不友好的吗
 ##### 2200#       发表于 2018-3-9 13:12
 
 
-
-
 这次有没有可能连载会多几话，好不容易高潮要来了又快休刊了
-
-
-
-
-
 
 
 -----
 
 ####  易方世界  
 ##### 2201#       发表于 2018-3-9 13:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38794259&amp;ptid=1505675" target="_blank">nxh1999 发表于 2018-3-9 13:12</a>
@@ -15510,16 +10834,10 @@ s1对西索居然这么不友好的吗
 看他有没有把渡航篇的剧本编好吧，我是觉得今年二十话有望。
 
 
-
-
-
-
-
 -----
 
 ####  嘲风  
 ##### 2202#       发表于 2018-3-9 13:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38794316&amp;ptid=1505675" target="_blank">易方世界 发表于 2018-3-9 13:17</a>
@@ -15530,16 +10848,10 @@ s1对西索居然这么不友好的吗
 港真，我从来不认为富坚拖稿是因为腰痛。。
 
 
-
-
-
-
-
 -----
 
 ####  sk86  
 ##### 2203#       发表于 2018-3-9 13:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38794362&amp;ptid=1505675" target="_blank">嘲风 发表于 2018-3-9 13:20</a>
@@ -15548,32 +10860,19 @@ s1对西索居然这么不友好的吗
 港真，你靠脑补就能判断对方拖稿理由
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 2204#       发表于 2018-3-9 13:33
 
 
-
-
 全员集合了，也应该在这编给旅团库拉西索做个了断了吧
-
-
-
-
-
 
 
 -----
 
 ####  嘲风  
 ##### 2205#       发表于 2018-3-9 13:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38794411&amp;ptid=1505675" target="_blank">sk86 发表于 2018-3-9 13:24</a>
@@ -15585,16 +10884,10 @@ s1对西索居然这么不友好的吗
 有毛病吗张嘴就喷
 
 
-
-
-
-
-
 -----
 
 ####  kokyou  
 ##### 2206#       发表于 2018-3-9 14:04
-
 
 
 <blockquote>傍水伐檀 发表于 2018-3-8 16:23
@@ -15602,16 +10895,10 @@ s1对西索居然这么不友好的吗
 没事的，趁别人上厕所时出手这招他们家也会（奇牙于天空竞技场语）
 
 
-
-
-
-
-
 -----
 
 ####  sk86  
 ##### 2207#       发表于 2018-3-9 14:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38794634&amp;ptid=1505675" target="_blank">嘲风 发表于 2018-3-9 13:48</a>
@@ -15626,16 +10913,10 @@ s1对西索居然这么不友好的吗
 张嘴就骂人，看来你有毛病
 
 
-
-
-
-
-
 -----
 
 ####  嘲风  
 ##### 2208#       发表于 2018-3-9 14:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38794823&amp;ptid=1505675" target="_blank">sk86 发表于 2018-3-9 14:09</a>
@@ -15647,16 +10928,10 @@ s1对西索居然这么不友好的吗
 帖子里随便讨论讨论就迫不及待的往出跳，常年拖稿还不许说了，你是富坚的野儿子吗？
 
 
-
-
-
-
-
 -----
 
 ####  sk86  
 ##### 2209#       发表于 2018-3-9 15:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38795086&amp;ptid=1505675" target="_blank">嘲风 发表于 2018-3-9 14:35</a>
@@ -15665,16 +10940,10 @@ s1对西索居然这么不友好的吗
 喷拖稿的原来都是这素质，我放心了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  darkeyes  
 ##### 2210#       发表于 2018-3-9 16:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38795086&amp;ptid=1505675" target="_blank">嘲风 发表于 2018-3-9 14:35</a>
@@ -15686,16 +10955,10 @@ s1对西索居然这么不友好的吗
 痔疮发了？
 
 
-
-
-
-
-
 -----
 
 ####  HedyL  
 ##### 2211#       发表于 2018-3-9 16:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38794634&amp;ptid=1505675" target="_blank">嘲风 发表于 2018-3-9 13:48</a>
@@ -15707,17 +10970,10 @@ s1对西索居然这么不友好的吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">稍微对猎人有点关注的都知道fj这几年因为腰伤住院都好几次了吧，怎么就洗地了
 
 
-
-
-
-
-
 -----
 
 ####  嘲风  
 ##### 2212#       发表于 2018-3-9 16:25
-
-
 
 
 转知乎
@@ -15824,16 +11080,10 @@ s1对西索居然这么不友好的吗
 打个哈哈那么多玻璃心出来逼逼，那我严谨点儿，我不认为富坚每次休刊都是腰伤，玻璃心的粉丝要是不服想喷的话请证明，谢谢。
 
 
-
-
-
-
-
 -----
 
 ####  嘲风  
 ##### 2213#       发表于 2018-3-9 16:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38796122&amp;ptid=1505675" target="_blank">darkeyes 发表于 2018-3-9 16:01</a>
@@ -15845,32 +11095,19 @@ s1对西索居然这么不友好的吗
 嗯对，我确实怀疑你们痔疮犯了不会好好说话。
 
 
-
-
-
-
-
 -----
 
 ####  icecry  
 ##### 2214#       发表于 2018-3-9 16:29
 
 
-
-
 伊尔迷..我觉得旅团要被坑了
-
-
-
-
-
 
 
 -----
 
 ####  sk86  
 ##### 2215#       发表于 2018-3-9 16:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38796405&amp;ptid=1505675" target="_blank">嘲风 发表于 2018-3-9 16:25</a>
@@ -15884,16 +11121,10 @@ s1对西索居然这么不友好的吗
 别追这漫画，就可以不用受气了
 
 
-
-
-
-
-
 -----
 
 ####  嘲风  
 ##### 2216#       发表于 2018-3-9 16:38
-
 
 
  本帖最后由 嘲风 于 2018-3-9 16:39 编辑 
@@ -15905,25 +11136,13 @@ s1对西索居然这么不友好的吗
 呵呵，您要是操心我受气，闭嘴就行了，谢谢，好了，现在滚吧。
 
 
-
-
-
-
-
 -----
 
 ####  鬼嘲风  
 ##### 2217#       发表于 2018-3-9 16:52
 
 
-
-
 哥们儿说了句滚就给封了，上面痔疮屁眼儿都快出来了不管？版主这是拉偏价吗？
-
-
-
-
-
 
 
 -----
@@ -15932,14 +11151,7 @@ s1对西索居然这么不友好的吗
 ##### 2218#       发表于 2018-3-9 16:56
 
 
-
-
 不是很懂这个话题怎么可以吵起来的,每个人都有自己的看法不是很正常么。。
-
-
-
-
-
 
 
 -----
@@ -15948,21 +11160,14 @@ s1对西索居然这么不友好的吗
 ##### 2219#       发表于 2018-3-9 16:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38796706&amp;ptid=1505675" target="_blank">鬼嘲风 发表于 2018-3-9 16:52</a>
 
 哥们儿说了句滚就给封了，上面痔疮屁眼儿都快出来了不管？版主这是拉偏价吗？ ...</blockquote>
 好一个滚
 
 
-
-
-
-
 QQ截图20180309165305.jpg
 (7.15 KB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -15971,24 +11176,7 @@ QQ截图20180309165305.jpg
 2018-3-9 16:57 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/09/165738m40h7zb2ze4b440b.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -15997,16 +11185,10 @@ QQ截图20180309165305.jpg
 ##### 2220#       发表于 2018-3-9 16:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38796776&amp;ptid=1505675" target="_blank">先手必胜 发表于 2018-3-9 16:57</a>
 
 好一个滚</blockquote>
 我本来是想说亲儿子的，可是汉语使用的这么流利，我想那断不可能是亲的呀，您说是不是
-
-
-
-
-
 
 
 -----
@@ -16015,14 +11197,7 @@ QQ截图20180309165305.jpg
 ##### 2221#       发表于 2018-3-9 17:08
 
 
-
-
 喷了要吵出去吵好不好，8012年了怎么还有揪着富坚拖稿这事不放的
-
-
-
-
-
 
 
 -----
@@ -16031,13 +11206,7 @@ QQ截图20180309165305.jpg
 ##### 2222#       发表于 2018-3-9 17:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还是回归正题吧，鼠绘汉化好像出来了，依然是订婚戒指
-
-
-
-
-
 
 
 -----
@@ -16046,15 +11215,9 @@ QQ截图20180309165305.jpg
 ##### 2223#       发表于 2018-3-9 17:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38796926&amp;ptid=1505675" target="_blank">丘萤之光 发表于 2018-3-9 17:08</a>
 喷了要吵出去吵好不好，8012年了怎么还有揪着富坚拖稿这事不放的</blockquote>
 我就是担心这事，才没有回刚那哥们，结果还是吵起来了<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">……富坚啊富坚……
-
-
-
-
-
 
 
 -----
@@ -16063,14 +11226,7 @@ QQ截图20180309165305.jpg
 ##### 2224#       发表于 2018-3-9 17:24
 
 
-
-
 看完了，感觉这一话除了伊路米的「订婚戒指」以外，意外的没有什么爆点……看来富坚是有意识的放缓节奏了，毕竟上一话的字实在太多了啊……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16079,16 +11235,10 @@ QQ截图20180309165305.jpg
 ##### 2225#       发表于 2018-3-9 17:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38797106&amp;ptid=1505675" target="_blank">易方世界 发表于 2018-3-9 17:24</a>
 
 看完了，感觉这一话除了伊路米的「订婚戒指」以外，意外的没有什么爆点……看来富坚是有意识的放缓节奏了， ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过我觉得这个挺大爆点啊，多么前卫，多么lgbt，多么zzzq，虽然我的感想充其量也就是请这两位不要再祸害他人了内部消化吧……
-
-
-
-
-
 
 
 -----
@@ -16097,16 +11247,9 @@ QQ截图20180309165305.jpg
 ##### 2226#       发表于 2018-3-9 17:29
 
 
-
-
 团长的刘海微妙地越来越长了，富坚是故意注意的细节吗
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -16115,23 +11258,15 @@ QQ截图20180309165305.jpg
 ##### 2227#       发表于 2018-3-9 17:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38797106&amp;ptid=1505675" target="_blank">易方世界 发表于 2018-3-9 17:24</a>
 看完了，感觉这一话除了伊路米的「订婚戒指」以外，意外的没有什么爆点……看来富坚是有意识的放缓节奏了， ...</blockquote>
 照这个节奏380之前是不可能到第二次晚宴了，希望老贼能再连载10话<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  肩上的乌鸦  
 ##### 2228#       发表于 2018-3-9 17:34
-
-
 
 
 要说爆点还是有的。
@@ -16143,26 +11278,15 @@ QQ截图20180309165305.jpg
 另外，10王子11王子准备逃离继承战，要是逃到第五层，刚好旅团和西索开打就精彩啦 。
 
 
-
-
-
-
-
 -----
 
 ####  丘萤之光  
 ##### 2229#       发表于 2018-3-9 17:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38797106&amp;ptid=1505675" target="_blank">易方世界 发表于 2018-3-9 11:24</a>
 看完了，感觉这一话除了伊路米的「订婚戒指」以外，意外的没有什么爆点……看来富坚是有意识的放缓节奏了， ...</blockquote>
 这个爆点已经够大了吧，老贼的腐男子力我看是快要控制不住了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16171,14 +11295,7 @@ QQ截图20180309165305.jpg
 ##### 2230#       发表于 2018-3-9 17:44
 
 
-
-
 看了熟肉，订婚戒指应该是个道具或者其他什么东西吧
-
-
-
-
-
 
 
 -----
@@ -16187,14 +11304,7 @@ QQ截图20180309165305.jpg
 ##### 2231#       发表于 2018-3-9 17:46
 
 
-
-
 鼠绘努力直男化的翻译感天动地
-
-
-
-
-
 
 
 -----
@@ -16203,23 +11313,16 @@ QQ截图20180309165305.jpg
 ##### 2232#       发表于 2018-3-9 17:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38797325&amp;ptid=1505675" target="_blank">shinraku 发表于 2018-3-9 17:44</a>
 
 看了熟肉，订婚戒指应该是个道具或者其他什么东西吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">我感觉是个比喻，不过为啥要用订婚戒指这个词……日文原文还有婚前契约
 
 
-
-
-
-
-
 -----
 
 ####  nxh1999  
 ##### 2233#       发表于 2018-3-9 17:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38797233&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-3-9 17:34</a>
@@ -16234,25 +11337,13 @@ QQ截图20180309165305.jpg
 看似小滴，剥落裂夫要和团长组队了，也许小滴生存机率会加大。
 
 
-
-
-
-
-
 -----
 
 ####  MR.KAZE  
 ##### 2234#       发表于 2018-3-9 17:59
 
 
-
-
 婚前契约这个词是有引号的,估计是自我吐槽的一个词,当然你喜欢怎样理解都可以...反正这两人相爱相杀(西索之前有一话有个图是出现他觉得是玩具的人,其中就有大哥)
-
-
-
-
-
 
 
 -----
@@ -16261,15 +11352,8 @@ QQ截图20180309165305.jpg
 ##### 2235#       发表于 2018-3-9 18:05
 
 
-
-
 老贼不是很介意这个的吧
 当年仙水和树不就直接写出来的，也没怎么展开，估计就是个人设或者哥哥讲冷笑话而已，不用在意
-
-
-
-
-
 
 
 -----
@@ -16278,15 +11362,9 @@ QQ截图20180309165305.jpg
 ##### 2236#       发表于 2018-3-9 18:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38794222&amp;ptid=1505675" target="_blank">cxfdtc 发表于 2018-3-9 13:09</a>
 最后一张图：“两年后，香波地群岛见！”</blockquote>
 是，就觉得像这个
-
-
-
-
-
 
 
 -----
@@ -16295,16 +11373,9 @@ QQ截图20180309165305.jpg
 ##### 2237#       发表于 2018-3-9 18:14
 
 
-
-
 旋律妹子有种要遭遇不幸的感觉啊，希望不要出事
 
 —— 来自 OnePlus ONEPLUS A3010, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -16313,22 +11384,15 @@ QQ截图20180309165305.jpg
 ##### 2238#       发表于 2018-3-9 18:14
 
 
-
 <blockquote>101kl 发表于 2018-3-9 17:49
 我感觉是个比喻，不过为啥要用订婚戒指这个词……日文原文还有婚前契约 ...</blockquote>
 订婚戒指一般都很昂贵，这里应该是说先收钱再杀人的意思吧，跟平常杀完人再收钱不同。
-
-
-
-
-
 
 
 -----
 
 ####  丘萤之光  
 ##### 2239#       发表于 2018-3-9 18:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38797634&amp;ptid=1505675" target="_blank">DeepWhite 发表于 2018-3-9 12:14</a>
@@ -16338,25 +11402,13 @@ QQ截图20180309165305.jpg
 旋律这集flag实在树太多了，感觉要凉
 
 
-
-
-
-
-
 -----
 
 ####  芜菁种子  
 ##### 2240#       发表于 2018-3-9 18:18
 
 
-
-
 感觉现实中有不少男生还挺喜欢开给给的玩笑，暂时先观望一阵<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16365,15 +11417,9 @@ QQ截图20180309165305.jpg
 ##### 2241#       发表于 2018-3-9 18:32
 
 
-
 <blockquote>nxh1999 发表于 2018-3-9 17:50
 如果两位王子能通过那个通道跑到别的楼层，老国王看似是想完成这场继承战的，也许这是二层和底层之间打开 ...</blockquote>
 “船上所有人都是祭品”
-
-
-
-
-
 
 
 -----
@@ -16382,14 +11428,7 @@ QQ截图20180309165305.jpg
 ##### 2242#       发表于 2018-3-9 18:32
 
 
-
-
 虽然这么说有点 但西索和伊尔迷难道还可能不是给吗?顶多也就是个双
-
-
-
-
-
 
 
 -----
@@ -16398,15 +11437,9 @@ QQ截图20180309165305.jpg
 ##### 2243#       发表于 2018-3-9 18:45
 
 
-
  本帖最后由 毅茶 于 2018-3-9 18:47 编辑 
 
 大哥好gay啊，不过我喜欢，赶脚是进旅团卧底然后反杀<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16415,22 +11448,13 @@ QQ截图20180309165305.jpg
 ##### 2244#       发表于 2018-3-9 18:50
 
 
-
-
 什么?那个预言妹子死了?
-
-
-
-
-
 
 
 -----
 
 ####  yinfu  
 ##### 2245#       发表于 2018-3-9 18:51
-
-
 
 
 爆点太给了……
@@ -16440,25 +11464,13 @@ QQ截图20180309165305.jpg
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  eciriganu  
 ##### 2246#       发表于 2018-3-9 18:55
 
 
-
-
 脑补尼翁家族失势被其他家族抓去当rbq最后自尽或者玩坏身亡的我是不是太变态了
-
-
-
-
-
 
 
 -----
@@ -16467,14 +11479,7 @@ QQ截图20180309165305.jpg
 ##### 2247#       发表于 2018-3-9 18:55
 
 
-
-
 旋律身上还有那个暗黑乐谱的坑,而且本来的美少女面目还没有曝光过,感觉暂时死不了
-
-
-
-
-
 
 
 -----
@@ -16483,14 +11488,7 @@ QQ截图20180309165305.jpg
 ##### 2248#       发表于 2018-3-9 19:01
 
 
-
-
 黑帮大小姐我倾向于是被西索杀的，就是为了要封住预言能力
-
-
-
-
-
 
 
 -----
@@ -16499,15 +11497,9 @@ QQ截图20180309165305.jpg
 ##### 2249#       发表于 2018-3-9 19:25
 
 
-
  本帖最后由 银翼的维罗西 于 2018-3-9 19:29 编辑 
 
 旋律应该凉不了，毕竟无黑点又是库拉亲友，10王子倒是FLAG立满。
-
-
-
-
-
 
 
 -----
@@ -16516,14 +11508,7 @@ QQ截图20180309165305.jpg
 ##### 2250#       发表于 2018-3-9 19:29
 
 
-
-
 预言能力在防偷袭方面简直是bug，我是西索要打也会先杀了
-
-
-
-
-
 
 
 -----
@@ -16532,15 +11517,8 @@ QQ截图20180309165305.jpg
 ##### 2251#       发表于 2018-3-9 19:46
 
 
-
-
 十王子真是太可爱了，按富坚越可爱的妹子死得越快来看估计要凶多吉少<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
 还有这集连7王子手下的黑帮小喽喽都会念王子却大半不会，这bug富坚看来是不想管了
-
-
-
-
-
 
 
 -----
@@ -16549,17 +11527,10 @@ QQ截图20180309165305.jpg
 ##### 2252#       发表于 2018-3-9 21:43
 
 
-
-
 大小姐只说能力不见了，还是有点希望。不过更大的可能是就此没有消息了吧...
 
 
 最后小滴的吐槽笑死我了
-
-
-
-
-
 
 
 -----
@@ -16568,16 +11539,9 @@ QQ截图20180309165305.jpg
 ##### 2253#       发表于 2018-3-9 22:28
 
 
-
-
 如果库拉用食指吸被库洛洛偷掉能力的会怎么样
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -16586,21 +11550,13 @@ QQ截图20180309165305.jpg
 ##### 2254#       发表于 2018-3-9 23:42
 
 
-
-
 前面那位喷脱稿的怕不是疯了，不知道泥潭公众号发文称赞富坚的努力，号召大家不要听信谣言吗？
-
-
-
-
-
 
 
 -----
 
 ####  darkeyes  
 ##### 2255#       发表于 2018-3-10 00:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38796706&amp;ptid=1505675" target="_blank">鬼嘲风 发表于 2018-3-9 16:52</a>
@@ -16621,16 +11577,10 @@ QQ截图20180309165305.jpg
 想听好话，先把自己嘴里的狗粮吐出来先。
 
 
-
-
-
-
-
 -----
 
 ####  darkeyes  
 ##### 2256#       发表于 2018-3-10 00:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38796809&amp;ptid=1505675" target="_blank">鬼嘲风 发表于 2018-3-9 16:59</a>
@@ -16645,25 +11595,13 @@ QQ截图20180309165305.jpg
 来我这玩不？冠能牌无盐高蛋白毛色润泽的牌子货管饱。
 
 
-
-
-
-
-
 -----
 
 ####  mosku  
 ##### 2257#       发表于 2018-3-10 02:40
 
 
-
-
 FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过吗，这话又说**。感觉他的猎人世界要融合现实社会的各种作品嘛
-
-
-
-
-
 
 
 -----
@@ -16672,14 +11610,7 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2258#       发表于 2018-3-10 05:45
 
 
-
-
 旋律我一直觉得是酷拉CP啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16688,16 +11619,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2259#       发表于 2018-3-10 06:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38787794&amp;ptid=1505675" target="_blank">vbadvance 发表于 2018-3-8 21:21</a>
 
 微博上的一众cp党已经因为这句话进入癫狂状态</blockquote>
 超想看她们的反应的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16706,15 +11631,9 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2260#       发表于 2018-3-10 07:27
 
 
-
 <blockquote>mosku 发表于 2018-3-10 02:40
 FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过吗，这话又说**。感觉他的猎人世界要融合现实社会 ...</blockquote>
 友克鑫旅团篇的时候就有路人提到过火影忍者
-
-
-
-
-
 
 
 -----
@@ -16723,21 +11642,13 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2261#       发表于 2018-3-10 08:08
 
 
-
-
 黑帮怎么不虚旅团的感觉
-
-
-
-
-
 
 
 -----
 
 ####  hallowilliam  
 ##### 2262#       发表于 2018-3-10 08:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38798435&amp;ptid=1505675" target="_blank">丘萤之光 发表于 2018-3-9 19:46</a>
@@ -16750,32 +11661,19 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 虽然猎人让我们看着念能力不值钱，但是其实念能力者/职业猎人还是很少的。。。
 
 
-
-
-
-
-
 -----
 
 ####  hallowilliam  
 ##### 2263#       发表于 2018-3-10 08:22
 
 
-
-
 富奸腰不行这点在 先生白书 里都提过了，起码比单纯的脱稿可信
-
-
-
-
-
 
 
 -----
 
 ####  肩上的乌鸦  
 ##### 2264#       发表于 2018-3-10 08:37
-
 
 
 <blockquote>hallowilliam 发表于 2018-3-10 08:15
@@ -16791,25 +11689,13 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 如果3王子4王子的黑帮不知道念的话，很难想象他们怎么跟有念能力者的7王子帮派斗争。
 
 
-
-
-
-
-
 -----
 
 ####  金星  
 ##### 2265#       发表于 2018-3-10 09:52
 
 
-
-
 赶紧干起来啊，别特么到高潮部分又停了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16818,16 +11704,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2266#       发表于 2018-3-10 12:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38801539&amp;ptid=1505675" target="_blank">λ2000 发表于 2018-3-10 06:00</a>
 
 超想看她们的反应的</blockquote>
 我昨天中午看的时候（还没出汉化）那个说伊索官配的推已经一万多转了，吓了我一跳，HXH居然还这么多活人在追
-
-
-
-
-
 
 
 -----
@@ -16836,22 +11716,15 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2267#       发表于 2018-3-10 12:35
 
 
-
 <blockquote>鬼灯春 发表于 2018-3-10 12:23
 我昨天中午看的时候（还没出汉化）那个说伊索官配的推已经一万多转了，吓了我一跳，HXH居然还这么多活人 ...</blockquote>
 追看的人应该没这么多，很多人应该是完了腐女梦激动而已。日本34卷西团大战销量上升，35卷就销量下滑了。可见一部分人还是更关心人气角色。
-
-
-
-
-
 
 
 -----
 
 ####  reficul  
 ##### 2268#       发表于 2018-3-10 12:54
-
 
 
 <blockquote>肩上的乌鸦 发表于 2018-3-10 08:37
@@ -16862,27 +11735,15 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 身为王子，干嘛了解这些下人的事？念能力者又不会大摇大摆炫耀自己会念，王子他们一侧只要知道这些黑帮有能力，给钱就会去解决事情就行了
 
 
-
-
-
-
-
 -----
 
 ####  acejoe  
 ##### 2269#       发表于 2018-3-10 12:55
 
 
-
-
 ………微博上已经扯到lgbt了……明明就是伊尔谜的一个冷笑话………………
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -16891,15 +11752,9 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2270#       发表于 2018-3-10 13:03
 
 
-
 <blockquote>reficul 发表于 2018-3-10 12:54
 身为王子，干嘛了解这些下人的事？念能力者又不会大摇大摆炫耀自己会念，王子他们一侧只要知道这些黑帮有 ...</blockquote>
 反正是要做王子手下，当王子直属兵肯定比做手下黑帮小混混有前途。有念能力的话，成为王子直属兵应该没有难度吧。难道有念能力者觉得黑社会是份有前途的职业？阴兽起码也是十老头麾下大将啦。这帮黑社会连上第1层的资格都没有。
-
-
-
-
-
 
 
 -----
@@ -16908,16 +11763,9 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2271#       发表于 2018-3-10 13:10
 
 
-
-
 其实这牵扯到猎人世界的一个根本bug
 念作为人人可学，又可以极大提升个人能力的技能，竟然没有在人类社会普及开来。
 不过在架空作品里这种bug是难免的，我都是选择无视<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16926,14 +11774,7 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2272#       发表于 2018-3-10 13:11
 
 
-
-
 嗯  其实胖子 自恋狂  跟9王子的念兽都很适合做国王啊  胖子可以渐渐催眠全体国民   自恋狂也是   9王子就更厉害了   越赞同他聚集在一起的力量就越多  如果有几千几万人简直不敢想啊
-
-
-
-
-
 
 
 -----
@@ -16942,15 +11783,9 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2273#       发表于 2018-3-10 13:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38803860&amp;ptid=1505675" target="_blank">就不的 发表于 2018-3-10 13:11</a>
 嗯  其实胖子 自恋狂  跟9王子的念兽都很适合做国王啊  胖子可以渐渐催眠全体国民   自恋狂也是   9王子就 ...</blockquote>
 老九的能力是最可怕的，卡金作为v6好歹也有几亿人，老九如果称王还能让国民认同他，那个力量绝对是毁灭级的。
-
-
-
-
-
 
 
 -----
@@ -16959,16 +11794,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2274#       发表于 2018-3-10 13:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38803885&amp;ptid=1505675" target="_blank">陈玉礼 发表于 2018-3-10 13:14</a>
 
 老九的能力是最可怕的，卡金作为v6好歹也有几亿人，老九如果称王还能让国民认同他，那个力量绝对是毁灭级 ...</blockquote>
 所以这是个死旗对吧……
-
-
-
-
-
 
 
 -----
@@ -16977,23 +11806,16 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2275#       发表于 2018-3-10 13:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38803786&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-3-10 13:03</a>
 
 反正是要做王子手下，当王子直属兵肯定比做手下黑帮小混混有前途。有念能力的话，成为王子直属兵应该没有 ...</blockquote>
 王子和黑帮属于雇佣关系，不是直属关系吧
 
 
-
-
-
-
-
 -----
 
 ####  reficul  
 ##### 2276#       发表于 2018-3-10 13:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38803786&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-3-10 13:03</a>
@@ -17004,26 +11826,15 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 念能力者的考量应该是普通人知道念能力的越少越好，让他们以为是魔术或者机关手法就行，没必要摊牌，就像替身使者一样
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2277#       发表于 2018-3-10 13:26
 
 
-
 <blockquote>reficul 发表于 2018-3-10 13:22
 王子和黑帮属于雇佣关系，不是直属关系吧</blockquote>
 之前说过347三个王子的帮派，参加其中一个就会成为其他两派的仇敌。这明显不是雇佣关系，是直属关系邦。本话的黑帮都说了要把旅团的消息传达给“少主”。“少主”这称呼摆明是直属关系吧。
-
-
-
-
-
 
 
 -----
@@ -17032,15 +11843,9 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2278#       发表于 2018-3-10 13:30
 
 
-
 <blockquote>reficul 发表于 2018-3-10 13:26
 而且要显示自己的能力，只需要表现出来即可，类似强化系的，你在老板目前一拳打爆一幢楼，成为直属绝对没 ...</blockquote>
 根本不用思量这些。就跟缇塔跟搭档一开始想给4王子的解释那样，说这是自己的天赋或超能力就好了，其他人不能学习模仿。
-
-
-
-
-
 
 
 -----
@@ -17049,14 +11854,7 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2279#       发表于 2018-3-10 13:32
 
 
-
-
 从黑手党老头问手下的话来看，他这明显不是测试而是询问吧，再加上之前提到的抢地盘的情况，黑手党里应该也是少数打手才能熟练使用念。
-
-
-
-
-
 
 
 -----
@@ -17065,13 +11863,7 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2280#       发表于 2018-3-10 13:48
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">9王子要是知道自己的能力 学会念后  估计先开发一个元气弹能力
-
-
-
-
-
 
 
 -----
@@ -17080,21 +11872,13 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2281#       发表于 2018-3-10 13:54
 
 
-
-
 一二四王子那种穷凶极恶的看着心里没什么压力，现在就怕十和十一这俩小女孩出事，要么就是现在看着无比光正伟的九王子实际上不是个好人，每次看见这几个人就提心吊胆
-
-
-
-
-
 
 
 -----
 
 ####  C男人  
 ##### 2282#       发表于 2018-3-10 14:02
-
 
 
  本帖最后由 C男人 于 2018-3-10 14:03 编辑 
@@ -17109,16 +11893,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 船上最厉害的恐怕不是协会、旅团、比杨德。
 
 
-
-
-
-
-
 -----
 
 ####  101kl  
 ##### 2283#       发表于 2018-3-10 14:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38803728&amp;ptid=1505675" target="_blank">acejoe 发表于 2018-3-10 12:55</a>
@@ -17132,16 +11910,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 话说这话还真是没头没脑的，也不知道是具体什么意思，伊尔迷一句跑火车也不奇怪，不如说这俩神经病干啥都不奇怪
 
 
-
-
-
-
-
 -----
 
 ####  4a12c095  
 ##### 2284#       发表于 2018-3-10 14:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38804303&amp;ptid=1505675" target="_blank">C男人 发表于 2018-3-10 14:02</a>
@@ -17153,16 +11925,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 得看上屆國王生多少個
 
 
-
-
-
-
-
 -----
 
 ####  火红之眼  
 ##### 2285#       发表于 2018-3-10 15:01
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">黑手党也明白对面实力，先礼后兵，但又虚张声势
@@ -17172,25 +11938,13 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 不过这集那么多全员合集的遗照，flag太明显
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 2286#       发表于 2018-3-10 15:08
 
 
-
-
 按照套路，应该是团长最后碰上西索吧？前面团员死的7788，但富坚应该不会套路吧
-
-
-
-
-
 
 
 -----
@@ -17199,14 +11953,7 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2287#       发表于 2018-3-10 16:26
 
 
-
-
 脑洞一下 这次的继承仪式类似养蛊或大逃杀 到最后一个时触发仪式条件 回锅肉灵魂附身到最强身体上 继续保持王族政权和政策的一致性
-
-
-
-
-
 
 
 -----
@@ -17215,16 +11962,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2288#       发表于 2018-3-10 16:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38805437&amp;ptid=1505675" target="_blank">dbrother 发表于 2018-3-10 16:26</a>
 
 脑洞一下 这次的继承仪式类似养蛊或大逃杀 到最后一个时触发仪式条件 回锅肉灵魂附身到最强身体上 继续保持 ...</blockquote>
 打破规矩无限连任？
-
-
-
-
-
 
 
 -----
@@ -17233,16 +11974,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2289#       发表于 2018-3-10 16:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38804821&amp;ptid=1505675" target="_blank">cdfjg 发表于 2018-3-10 15:08</a>
 
 按照套路，应该是团长最后碰上西索吧？前面团员死的7788，但富坚应该不会套路吧 ...</blockquote>
 西索死过一次了，没必要遵守这个套路了。我猜团长死于某个弱鸡手里。
-
-
-
-
-
 
 
 -----
@@ -17251,16 +11986,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2290#       发表于 2018-3-10 16:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38805527&amp;ptid=1505675" target="_blank">jdd4682 发表于 2018-3-10 16:40</a>
 
 打破规矩无限连任？</blockquote>
 你知道的太多了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17269,15 +11998,9 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2291#       发表于 2018-3-10 16:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38805527&amp;ptid=1505675" target="_blank">jdd4682 发表于 2018-3-10 16:40</a>
 打破规矩无限连任？</blockquote>
 停一下，这车的方向有点不太对
-
-
-
-
-
 
 
 -----
@@ -17286,14 +12009,7 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2292#       发表于 2018-3-10 16:47
 
 
-
-
 这楼要完<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17302,14 +12018,7 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2293#       发表于 2018-3-10 17:18
 
 
-
-
 11王子到头来又是理性派，这挺没意思的。一堆理性派里面制造一个情感冲动角色才有平衡感，也给剧情带来意外性。不过老贼可能已经不在乎塑造角色了，就像楼上某些楼说的，老贼很享受跟自己斗智斗勇的感觉。
-
-
-
-
-
 
 
 -----
@@ -17318,22 +12027,15 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2294#       发表于 2018-3-10 18:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38805829&amp;ptid=1505675" target="_blank">shamal0324 发表于 2018-3-10 17:18</a>
 11王子到头来又是理性派，这挺没意思的。一堆理性派里面制造一个情感冲动角色才有平衡感，也给剧情带来意外 ...</blockquote>
 二王子啊，只不过立刻打出了gg。
-
-
-
-
-
 
 
 -----
 
 ####  丘萤之光  
 ##### 2295#       发表于 2018-3-10 18:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38801840&amp;ptid=1505675" target="_blank">hallowilliam 发表于 2018-3-10 02:15</a>
@@ -17343,16 +12045,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 知道不学和连念的存在都不知道是两回事
 
 
-
-
-
-
-
 -----
 
 ####  darkeyes  
 ##### 2296#       发表于 2018-3-10 19:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38804821&amp;ptid=1505675" target="_blank">cdfjg 发表于 2018-3-10 15:08</a>
@@ -17364,32 +12060,19 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 预言很准的
 
 
-
-
-
-
-
 -----
 
 ####  易方世界  
 ##### 2297#       发表于 2018-3-10 19:43
 
 
-
-
 「国王附身论」不太靠谱。如果只是希望取得年轻、强健而富有活力的肉体，没有必要为继承战设定这么多的限制条件。这么多的限制明显就是为了测试王子们的政治能力，这应该确实是在培养接班人。
-
-
-
-
-
 
 
 -----
 
 ####  nxh1999  
 ##### 2298#       发表于 2018-3-10 20:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38806848&amp;ptid=1505675" target="_blank">darkeyes 发表于 2018-3-10 19:25</a>
@@ -17400,27 +12083,15 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 友克鑫的预言过了一年多了吧，对现在的情况已经不具有时效性了吧。不过要是能有六个人活着下船我觉得还挺安慰的，怕他们都死在这黑鲸号上。个人感觉揍敌客家的两个人不可能死，他们会退团。
 
 
-
-
-
-
-
 -----
 
 ####  4a12c095  
 ##### 2299#       发表于 2018-3-10 20:34
 
 
-
-
 黑暗大陸旅團沒理由去，拿來襯托王子十二支比洋德是最好的選擇了
 
 西索拿不下全部
-
-
-
-
-
 
 
 -----
@@ -17429,16 +12100,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2300#       发表于 2018-3-10 21:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38804712&amp;ptid=1505675" target="_blank">4a12c095 发表于 2018-3-10 14:57</a>
 
 得看上屆國王生多少個</blockquote>
 数量估计不会少，这个仪式这么强大，估计对王子数量也有要求的。否则，炼蛊的效果不会好的。
-
-
-
-
-
 
 
 -----
@@ -17447,23 +12112,16 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2301#       发表于 2018-3-10 21:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38805437&amp;ptid=1505675" target="_blank">dbrother 发表于 2018-3-10 16:26</a>
 
 脑洞一下 这次的继承仪式类似养蛊或大逃杀 到最后一个时触发仪式条件 回锅肉灵魂附身到最强身体上 继续保持 ...</blockquote>
 灰锅肉说了，一切为了王族这颗大树，也就是说他自己也是要成为祭品的，但这个仪式肯定有什么方式保证最后选出来的人一定会将王族传承下去。
 
 
-
-
-
-
-
 -----
 
 ####  acejoe  
 ##### 2302#       发表于 2018-3-10 22:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38807508&amp;ptid=1505675" target="_blank">4a12c095 发表于 2018-03-10 20:34:56</a>
@@ -17476,16 +12134,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  nxh1999  
 ##### 2303#       发表于 2018-3-10 22:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38808005&amp;ptid=1505675" target="_blank">stygianlunar 发表于 2018-3-10 21:38</a>
@@ -17494,27 +12146,15 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 有点发散思维，总是觉得那个继承仪式很奇怪。灰锅肉有那么无私吗？仪式的最后牺牲自己也要让一个王子成为王？除非他其实是以某种形式也活下来了。
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2304#       发表于 2018-3-10 22:45
 
 
-
 <blockquote>nxh1999 发表于 2018-3-10 22:38
 灰锅肉是什么时候当上国王的呢？和他竞争的王子们有没有孩子呢？这次的王子继承战时前几位看着也不小了， ...</blockquote>
 黑暗大陆篇刚开始说过，卡金是30年前以“史上最安静的革命”真林馆事件为契机，从帝国社会主义转变到民主议会主义。王族的名字从课本上去除。这应该就是上一次继承战。现在看。。。。改了体制根本和王族统治没差别嘛。
-
-
-
-
-
-
 
 
 -----
@@ -17523,17 +12163,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2305#       发表于 2018-3-11 12:10
 
 
-
-
 确实是bug，尤其几个大的王子虽然兴趣不同，但见识都极广，竟然不知道念的存在，可现在他们的部下又竟然会念。。。
 其实阴兽就有bug了，实力太弱。当初一个不是十老头的黑帮手下就有一堆念能力者了，顶层的十老头直属部队却这种规模和水平。。。
 
 —— 来自 HUAWEI BKL-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -17542,16 +12175,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2306#       发表于 2018-3-11 12:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38813838&amp;ptid=1505675" target="_blank">起晨Fly 发表于 2018-3-11 12:10</a>
 
 确实是bug，尤其几个大的王子虽然兴趣不同，但见识都极广，竟然不知道念的存在，可现在他们的部下又竟然会 ...</blockquote>
 不是阴兽太弱，是对手太强<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17560,22 +12187,13 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2307#       发表于 2018-3-11 12:31
 
 
-
-
 阴兽其实不弱吧，排除库拉，别的黑帮手下也不强。
-
-
-
-
-
 
 
 -----
 
 ####  骊歌三叠  
 ##### 2308#       发表于 2018-3-11 13:09
-
-
 
 
 王子不知道念应该是被刻意隐瞒了，奇犽在揍敌客家不也对念一无所知吗。
@@ -17585,16 +12203,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  J-002  
 ##### 2309#       发表于 2018-3-11 13:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38813838&amp;ptid=1505675" target="_blank">起晨Fly 发表于 2018-3-11 12:10</a>
@@ -17603,16 +12215,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 阴兽真心不弱了，要不是病犬喜欢折磨俘虏用麻痹毒，连窝金都栽了，他们完全是输在看不起对手上
 
 
-
-
-
-
-
 -----
 
 ####  C男人  
 ##### 2310#       发表于 2018-3-11 14:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38807451&amp;ptid=1505675" target="_blank">nxh1999 发表于 2018-3-10 20:29</a>
@@ -17632,16 +12238,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer"> 
 
 
-
-
-
-
-
 -----
 
 ####  J-002  
 ##### 2311#       发表于 2018-3-11 14:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38814927&amp;ptid=1505675" target="_blank">C男人 发表于 2018-3-11 14:06</a>
@@ -17656,27 +12256,15 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 但事实上只有派克诺妲一人死了，说明这个预言已经被改变了
 
 
-
-
-
-
-
 -----
 
 ####  江戶川柯南  
 ##### 2312#       发表于 2018-3-11 15:04
 
 
-
-
 讲道理侠客正因为没有接最后一通电话才死的 
 
 预言早改变了
-
-
-
-
-
 
 
 -----
@@ -17685,15 +12273,9 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2313#       发表于 2018-3-11 17:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38815004&amp;ptid=1505675" target="_blank">J-002 发表于 2018-3-11 14:14</a>
 “菊花与叶片一起枯萎凋零”，如果应验的话应该小滴和派克诺妲两人死在一起，同时身边有火红眼或沾血的酷 ...</blockquote>
 记得四王子那变态引诱到饭店里杀掉的女孩子里有个戴眼镜很学生气的，好像那种认真的女孩也对他的胃口。如果他把小滴杀了，这要是也算是倒卧在血红眼附近。那简直<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17702,15 +12284,9 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2314#       发表于 2018-3-11 20:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38816475&amp;ptid=1505675" target="_blank">nxh1999 发表于 2018-3-11 17:19</a>
 记得四王子那变态引诱到饭店里杀掉的女孩子里有个戴眼镜很学生气的，好像那种认真的女孩也对他的胃口。如 ...</blockquote>
 没有吧，漫画里直接画出来的就是两个拜金夜店女，但是四王子很不满意，反过来说他满意的其实是这种形象，所以这莫非是你的脑补<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17719,16 +12295,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2315#       发表于 2018-3-11 22:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">还能强行之前的预言也是佩服<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
 
 库拉一走 大小姐就凉了 哎默哀
-
-
-
-
-
 
 
 -----
@@ -17737,16 +12307,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2316#       发表于 2018-3-11 22:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38650496&amp;ptid=1505675" target="_blank">hagane 发表于 2018-2-24 10:18</a>
 
 这次复刊是不是也只有10话？</blockquote>
 能求你头像吗
-
-
-
-
-
 
 
 -----
@@ -17755,15 +12319,9 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2317#       发表于 2018-3-12 00:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38801539&amp;ptid=1505675" target="_blank">λ2000 发表于 2018-3-10 06:00</a>
 超想看她们的反应的</blockquote>
 这个我知道。。。萌这个cp的是感觉官方发糖官方逼死同人。。。其他的大概就是感觉自己被绿了。。。西索和伊尔迷的女友粉不要太多。。。有一个评论说晋江多了百万同妻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">毕竟这么多嫖西索和伊尔迷的同人。。。
-
-
-
-
-
 
 
 -----
@@ -17772,22 +12330,15 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2318#       发表于 2018-3-12 12:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38817880&amp;ptid=1505675" target="_blank">陈玉礼 发表于 2018-3-11 20:03</a>
 没有吧，漫画里直接画出来的就是两个拜金夜店女，但是四王子很不满意，反过来说他满意的其实是这种形象， ...</blockquote>
 第一次是两个没头脑的拜金女孩，四王子不满意，让他的手下再去找。然后又来了两个比较乖的女孩儿吧，画面上酒店房门一关，四王子没有再出来抱怨。
-
-
-
-
-
 
 
 -----
 
 ####  鬼嘲风  
 ##### 2319#       发表于 2018-3-12 12:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38800488&amp;ptid=1505675" target="_blank">darkeyes 发表于 2018-3-10 00:05</a>
@@ -17799,25 +12350,13 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 啧啧，我就问问管理员这种人身攻击管不管啦 [@thez](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=109939)
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2320#       发表于 2018-3-12 12:32
 
 
-
-
 果然还是想看玛琪小滴被4王子活体解剖的展开。统治者阶级的变态邪恶对碰底层流星街诞生的邪恶，肯定有艺术美和张力！
-
-
-
-
-
 
 
 -----
@@ -17826,15 +12365,9 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2321#       发表于 2018-3-12 12:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38824723&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-3-12 12:32</a>
 果然还是想看玛琪小滴被4王子活体解剖的展开。统治者阶级的变态邪恶对碰底层流星街诞生的邪恶，肯定有艺术 ...</blockquote>
 说不定是四王子被活体解剖<img src="https://static.saraba1st.com/image/smiley/carton2017/187.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17843,15 +12376,9 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2322#       发表于 2018-3-12 14:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38824270&amp;ptid=1505675" target="_blank">nxh1999 发表于 2018-3-12 12:02</a>
 第一次是两个没头脑的拜金女孩，四王子不满意，让他的手下再去找。然后又来了两个比较乖的女孩儿吧，画面 ...</blockquote>
 我把345又翻了一遍确实没有<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17860,16 +12387,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2323#       发表于 2018-3-12 14:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38825885&amp;ptid=1505675" target="_blank">陈玉礼 发表于 2018-3-12 14:14</a>
 
 我把345又翻了一遍确实没有</blockquote>
 345第18页，只有一小格，在酒店里四王子，他的手下和两个看上去比较乖的女孩子的图。时间隔得有点久也有点记不清楚了。算我脑补，你忽略好了。
-
-
-
-
-
 
 
 -----
@@ -17878,15 +12399,9 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2324#       发表于 2018-3-12 14:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38825885&amp;ptid=1505675" target="_blank">陈玉礼 发表于 2018-3-12 14:14</a>
 我把345又翻了一遍确实没有</blockquote>
 <img src="https://i.loli.net/2018/03/12/5aa61e1ff05a6.jpeg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17895,16 +12410,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2325#       发表于 2018-3-12 14:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38825937&amp;ptid=1505675" target="_blank">nxh1999 发表于 2018-3-12 14:20</a>
 
 345第18页，只有一小格，在酒店里四王子，他的手下和两个看上去比较乖的女孩子的图。时间隔得有点久也有 ...</blockquote>
 是我记错了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17913,23 +12422,16 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2326#       发表于 2018-3-12 19:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38819394&amp;ptid=1505675" target="_blank">shuwenwenshu 发表于 2018-3-11 22:57</a>
 
 能求你头像吗</blockquote>
 回家找找~
 
 
-
-
-
-
-
 -----
 
 ####  stygianlunar  
 ##### 2327#       发表于 2018-3-13 00:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38819209&amp;ptid=1505675" target="_blank">eufonius 发表于 2018-3-11 22:37</a>
@@ -17941,16 +12443,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 现在还不确定，库拉是通过大小姐家的黑帮上位的，应该友克鑫之后还在这个黑帮的，而且他说过自己有解决的办法，虽然不知道那时库拉是否说的实话。牛找库拉的时候不是说库拉已经是那个黑帮的二把手了。
 
 
-
-
-
-
-
 -----
 
 ####  eufonius  
 ##### 2328#       发表于 2018-3-13 10:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38831762&amp;ptid=1505675" target="_blank">stygianlunar 发表于 2018-3-13 00:07</a>
@@ -17965,17 +12461,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 所以只能推测大小姐在库拉离开黑帮去帮十二支之后 大小姐就被无惨了
 
 
-
-
-
-
-
-
 -----
 
 ####  SanX  
 ##### 2329#       发表于 2018-3-13 12:57
-
 
 
  本帖最后由 SanX 于 2018-3-13 13:05 编辑 
@@ -17983,16 +12472,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 毕竟大小姐的老爸就是靠大小姐的能力上位的，大小姐没了能力那愿意罩他们的大佬都不想管了，本来是个比较有规模的黑帮，那之后的动荡也相当大，就算是库拉也没办法在这种混乱下保护他们父女双全，最有可能就是库拉曾经得罪过的那个大佬下的手
 
 
-
-
-
-
-
 -----
 
 ####  stygianlunar  
 ##### 2330#       发表于 2018-3-13 22:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38834639&amp;ptid=1505675" target="_blank">eufonius 发表于 2018-3-13 10:46</a>
@@ -18010,16 +12493,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 现在来看，要么是库拉使用了什么方式除念了，（库拉知道团长除念的情况，所以说不定给大小姐也做了除念）。要么是库拉上位后就舍弃大小姐的帮派了，自然人就凉了，（虽然不太复合库拉性格，但库拉对于大小姐可未必有善意，对收藏家们他可是未必不报复的）
 
 
-
-
-
-
-
 -----
 
 ####  cxfdtc  
 ##### 2331#       发表于 2018-3-13 22:25
-
 
 
  本帖最后由 cxfdtc 于 2018-3-14 00:19 编辑 
@@ -18034,17 +12511,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 3.团长先占卜过了，由于啥啥因素撒谎了(←我忘了自己不能看这个设定了，蠢哭)
 
 
-
-
-
-
-
-
 -----
 
 ####  acejoe  
 ##### 2332#       发表于 2018-3-13 22:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38815004&amp;ptid=1505675" target="_blank">J-002 发表于 2018-3-11 14:14</a>
@@ -18053,17 +12523,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 比如，4王子收集了派克诺坦的尸体
 
 
-
-
-
-
-
 -----
 
 ####  满月诗篇  
 ##### 2333#       发表于 2018-3-13 22:50
-
-
 
 
 我觉得占卜大小姐应该是酷拉自己做掉的吧
@@ -18074,17 +12537,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 大小姐也是人体收藏家之一咯
 
 
-
-
-
-
-
 -----
 
 ####  SHIRT  
 ##### 2334#       发表于 2018-3-13 23:04
-
-
 
 
 团长不能占卜自己。
@@ -18093,17 +12549,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 这么多可能性你们就没想过除念么，说不定没死。（算了，按照富奸的尿性多半是凉了）
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2335#       发表于 2018-3-13 23:20
-
-
 
 
 酷拉皮卡这种有道德洁癖精神洁癖的人就不可能做掉大小姐。牛牛问他见到四王子后打算怎么办，酷拉也说了之前那些人体器官收藏家没有死。
@@ -18112,32 +12561,19 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 另外，我也是认同大小姐没有死。我觉得是酷拉皮卡用某种方法给大小姐解除了“盗取”状态。
 
 
-
-
-
-
-
 -----
 
 ####  J-002  
 ##### 2336#       发表于 2018-3-13 23:40
 
 
-
-
 你们到底要揪着预言多久？妮翁在约克郡介绍自己能力时就说过预言只能看一个月内的命运
-
-
-
-
-
 
 
 -----
 
 ####  陈玉礼  
 ##### 2337#       发表于 2018-3-14 10:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38842006&amp;ptid=1505675" target="_blank">满月诗篇 发表于 2018-3-13 22:50</a>
@@ -18148,16 +12584,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 “曾经有人说死也不会把眼珠交给我，后来他们既没有死，也把眼珠交出来了”
 
 
-
-
-
-
-
 -----
 
 ####  icecry  
 ##### 2338#       发表于 2018-3-14 13:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38842488&amp;ptid=1505675" target="_blank">J-002 发表于 2018-3-13 23:40</a>
@@ -18166,17 +12596,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 其实这个不难圆的，预言时间跟自己念能力有关，大小姐念能力弱只能预言1个月内，团长念能力强，预言的有效时间更久
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2339#       发表于 2018-3-14 13:49
-
-
 
 
 富坚的意思就是这个篇章不玩预言啦。你们就别纠结这个话题啦。
@@ -18185,25 +12608,13 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 这个篇章旅团线的话，我比较想看到团长独活，其他团员全灭，西索也没能杀掉的结局。
 
 
-
-
-
-
-
 -----
 
 ####  lostchild  
 ##### 2340#       发表于 2018-3-14 13:55
 
 
-
-
 其实就是富坚想把预言这个挂给取消掉 不然团长给全团占卜下不就知道西索先找谁下手了么 那还打个屁
-
-
-
-
-
 
 
 -----
@@ -18212,14 +12623,7 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2341#       发表于 2018-3-14 15:48
 
 
-
-
 预言其实就是用来方便旅团编的剧情进展而已.........不要这么纠结,实际上预言除了让旅团留下外就没有发挥过其他作用了
-
-
-
-
-
 
 
 -----
@@ -18228,23 +12632,16 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2342#       发表于 2018-3-14 22:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38848576&amp;ptid=1505675" target="_blank">MR.KAZE 发表于 2018-3-14 15:48</a>
 
 预言其实就是用来方便旅团编的剧情进展而已.........不要这么纠结,实际上预言除了让旅团留下外就没有发挥过 ...</blockquote>
 你的意思是旅团这次留不下来了？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hallowilliam  
 ##### 2343#       发表于 2018-3-15 03:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38801912&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-03-10 08:37:04</a>
@@ -18260,16 +12657,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2344#       发表于 2018-3-15 08:10
-
 
 
  本帖最后由 肩上的乌鸦 于 2018-3-15 08:17 编辑 
@@ -18284,16 +12675,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 然后7王子手下黑帮就有念能力者。照你说的逻辑，王子黑帮应该没一个会念。其他王子身边的念能力者不是“少了”，是“多了”。
 
 
-
-
-
-
-
 -----
 
 ####  远古之红  
 ##### 2345#       发表于 2018-3-15 10:05
-
 
 
 <blockquote>肩上的乌鸦 发表于 2018-3-15 08:10
@@ -18304,25 +12689,13 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 王子只不过是背后金主，金钱交易没必要连自己底细都交待出去
 
 
-
-
-
-
-
 -----
 
 ####  jy67  
 ##### 2346#       发表于 2018-3-15 10:25
 
 
-
-
 诺斯拉和她女儿都不知道念是什么，也不妨碍手下全员念能力者啊。说到底只是好奇四王子不知道念之前凭什么自信可以胜出继承战
-
-
-
-
-
 
 
 -----
@@ -18331,15 +12704,9 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2347#       发表于 2018-3-15 10:39
 
 
-
 <blockquote>远古之红 发表于 2018-3-15 10:05
 王子只不过是背后金主，金钱交易没必要连自己底细都交待出去</blockquote>
 富坚都还没画，是不是金主雇佣关系谁知道。我只是提两点，之前已经说过加入其中一个帮派，都会被其他两个帮派围攻。另外，那个黑帮头头说了把旅团消息传达给少当家，少当家是谁？是7王子吗？这也只是雇佣关系吗？
-
-
-
-
-
 
 
 -----
@@ -18348,15 +12715,9 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2348#       发表于 2018-3-15 11:00
 
 
-
 <blockquote>肩上的乌鸦 发表于 2018-3-15 10:39
 富坚都还没画，是不是金主雇佣关系谁知道。我只是提两点，之前已经说过加入其中一个帮派，都会被其他两个 ...</blockquote>
 少当家应该是帮派二把手
-
-
-
-
-
 
 
 -----
@@ -18365,14 +12726,7 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2349#       发表于 2018-3-15 11:13
 
 
-
-
 这周没漫画?
-
-
-
-
-
 
 
 -----
@@ -18381,15 +12735,9 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2350#       发表于 2018-3-15 11:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38856969&amp;ptid=1505675" target="_blank">λ2000 发表于 2018-3-15 11:13</a>
 这周没漫画?</blockquote>
 有啊，情报很快就会出了
-
-
-
-
-
 
 
 -----
@@ -18398,23 +12746,16 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2351#       发表于 2018-3-15 12:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38857583&amp;ptid=1505675" target="_blank">陈玉礼 发表于 2018-3-15 11:58</a>
 
 有啊，情报很快就会出了</blockquote>
 搞不懂 jump到底是周几出啊?我记得以前周二就有情报 周三正式的就出来了
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2352#         楼主| 发表于 2018-3-15 12:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38858087&amp;ptid=1505675" target="_blank">λ2000 发表于 2018-3-15 12:48</a>
@@ -18427,16 +12768,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 之前周二出是正好碰上发售日撞上祝日等节假日的情况。现在早售店面打击力度越来越大，so…
 
 
-
-
-
-
-
 -----
 
 ####  λ2000  
 ##### 2353#       发表于 2018-3-15 13:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38858122&amp;ptid=1505675" target="_blank">xingenge 发表于 2018-3-15 12:50</a>
@@ -18447,16 +12782,10 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 这样啊 而且感觉韩国会更早发行? 现在都是先出韩文得
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2354#         楼主| 发表于 2018-3-15 13:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38858526&amp;ptid=1505675" target="_blank">λ2000 发表于 2018-3-15 13:30</a>
@@ -18467,33 +12796,19 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 其实供给源都差不多，就看谁胆子比较肥先放了
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 2355#       发表于 2018-3-15 21:00
 
 
-
-
 私生子……
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2356#         楼主| 发表于 2018-3-15 21:36
-
-
 
 
 378均衡(バランス)
@@ -18562,7 +12877,6 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 オニオール＆ブロッコ「旅団(クモ)より先にヒソカを探し出せ…！」
 
 オウ＆ヒンリギ「はい！」
-
 
 
 オウ「全地区の班長集めて有益な情報提供者に1000万出すと伝えろ」
@@ -18776,13 +13090,7 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ルイ（一緒に世界をぶっ壊そうぜェェ～～～～～～～～～～ェェ！！）
 
 
-
 渋谷で「ガラスを乗れ！」と「Bright Burning Shout」を購入。毎回帰路のワクワク感は異常。義博
-
-
-
-
-
 
 
 -----
@@ -18791,14 +13099,7 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2357#       发表于 2018-3-16 08:16
 
 
-
-
 没想到旅团这么快就开始上楼了
-
-
-
-
-
 
 
 -----
@@ -18807,13 +13108,7 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2358#       发表于 2018-3-16 08:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">期待这篇章旅团全灭，看他们嚣张到何时
-
-
-
-
-
 
 
 -----
@@ -18822,22 +13117,13 @@ FJ这两话扯其他作品的梗挺多的嘛，上上话说DB你难道没看过�
 ##### 2359#       发表于 2018-3-16 09:35
 
 
-
-
 这能力怎么越来越imba了 感染者杀20个人就可以觉醒自身能力 牛逼啊
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2360#         楼主| 发表于 2018-3-16 09:46
-
-
 
 
 ptt的翻译
@@ -19121,24 +13407,13 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 露（一起把世界搞的亂七八糟吧～～～～～～～～～～！！）
 
 
-
-
-
-
-
 -----
 
 ####  kiraabu  
 ##### 2361#       发表于 2018-3-16 09:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">lowb旅团终于要灭了？希望给凄惨一点的死法
-
-
-
-
-
 
 
 -----
@@ -19147,15 +13422,8 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 ##### 2362#       发表于 2018-3-16 10:05
 
 
-
-
 怎么看这群黑帮都要给拿来刷时髦<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 剧团还是死在酷拉手上比较爽
-
-
-
-
-
 
 
 -----
@@ -19164,14 +13432,7 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 ##### 2363#       发表于 2018-3-16 10:10
 
 
-
-
 喷了，本来以为是王子念兽或者旅团先在下层开杀戒，结果王子手下黑帮就先杀起来了。
-
-
-
-
-
 
 
 -----
@@ -19180,14 +13441,7 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 ##### 2364#       发表于 2018-3-16 11:21
 
 
-
-
 问一下，凯特复活那个红发女就是之前挥剑的小蚁王吗，已经确定啦？
-
-
-
-
-
 
 
 -----
@@ -19196,14 +13450,7 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 ##### 2365#       发表于 2018-3-16 11:21
 
 
-
-
 问一下，凯特复活那个红发女就是之前挥剑的小蚁王吗，已经确定啦？
-
-
-
-
-
 
 
 -----
@@ -19212,15 +13459,9 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 ##### 2366#       发表于 2018-3-16 11:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38868316&amp;ptid=1505675" target="_blank">shuwenwenshu 发表于 2018-3-16 11:21</a>
 问一下，凯特复活那个红发女就是之前挥剑的小蚁王吗，已经确定啦？</blockquote>
 是啊
-
-
-
-
-
 
 
 -----
@@ -19229,22 +13470,13 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 ##### 2367#       发表于 2018-3-16 11:46
 
 
-
-
 4王子支持的黑帮头头和老四简直天生一对啊
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2368#         楼主| 发表于 2018-3-16 11:52
-
-
 
 
 转情报师
@@ -19254,25 +13486,13 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 <img src="http://wx4.sinaimg.cn/large/bcfcde0agy1fpei27utgaj20nm0y6dlm.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  中二小旋风  
 ##### 2369#       发表于 2018-3-16 12:06
 
 
-
-
 私生女这唯恐世界不乱的能力屌炸<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19281,14 +13501,7 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 ##### 2370#       发表于 2018-3-16 12:18
 
 
-
-
 私生女这能力不就是网文的系统流吗？
-
-
-
-
-
 
 
 -----
@@ -19297,14 +13510,7 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 ##### 2371#       发表于 2018-3-16 12:25
 
 
-
-
 这能力是想整条船都变成大逃杀嘛
-
-
-
-
-
 
 
 -----
@@ -19313,15 +13519,8 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 ##### 2372#       发表于 2018-3-16 15:42
 
 
-
-
 牛出现了！船上乱搞终于要影响到12支
 按照常理，12支起码应该无损到黑暗大陆再和比杨德他们竞争吧，那在船上这些杂七杂八的人应该能被他们解决吧？
-
-
-
-
-
 
 
 -----
@@ -19330,18 +13529,10 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 ##### 2373#       发表于 2018-3-16 15:50
 
 
-
-
 没看懂黑帮为啥要先于旅团找到西索。
 
 
 私生女那批手下不是应该在继承战前杀够人存好级直接杀王子吗？为什么要在继承战才开始呢？在3层大开杀戒，不怕得罪猎人协会吗。。。。。只是因为私生女是中二病？
-
-
-
-
-
-
 
 
 -----
@@ -19350,21 +13541,13 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 ##### 2374#       发表于 2018-3-16 16:00
 
 
-
-
 又出现了一大波新势力，故事线又进一步复杂了……这也好，上层的局势已经大概稳定，确实该换个视角了。照现在这个趋势下去，渡航篇起码还要再持续50话以上吧……那就是……五年<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">？！
-
-
-
-
-
 
 
 -----
 
 ####  肩上的乌鸦  
 ##### 2375#       发表于 2018-3-16 16:13
-
 
 
 <blockquote>cdfjg 发表于 2018-3-16 15:42
@@ -19377,27 +13560,15 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 我怀疑接下来还会有几波势力出炉。。。。
 
 
-
-
-
-
-
 -----
 
 ####  八汰乌  
 ##### 2376#       发表于 2018-3-16 16:15
 
 
-
-
 难道要长期连载?
 
 已经画了多少话啦<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19406,14 +13577,7 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 ##### 2377#       发表于 2018-3-16 16:15
 
 
-
-
 旅团这三个战斗组走一块是要怎么走剧情啊，船上的杂鱼除了十二支碰到他们都是被秒的份。
-
-
-
-
-
 
 
 -----
@@ -19422,23 +13586,16 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 ##### 2378#       发表于 2018-3-16 16:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38871288&amp;ptid=1505675" target="_blank">易方世界 发表于 2018-3-16 16:00</a>
 
 又出现了一大波新势力，故事线又进一步复杂了……这也好，上层的局势已经大概稳定，确实该换个视角了。照现 ...</blockquote>
 因为是“渡航篇”，所以和大春物一样五年才能完结么
 
 
-
-
-
-
-
 -----
 
 ####  易方世界  
 ##### 2379#       发表于 2018-3-16 16:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38871427&amp;ptid=1505675" target="_blank">八汰乌 发表于 2018-3-16 16:15</a>
@@ -19448,16 +13605,10 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 这是今年的第八话，按照往年的经验，还有两话……希望能长期刊载<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  易方世界  
 ##### 2380#       发表于 2018-3-16 16:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38871408&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-3-16 16:13</a>
@@ -19465,16 +13616,10 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 大规模又高度组织的新势力应该不会再有了……独行的念能力者，猎人协会派出调查命案的会员，帕里斯通和金一行人……我觉得大概会出现这些人的样子。
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 2381#       发表于 2018-3-16 16:28
-
 
 
  本帖最后由 jsyyyz 于 2018-3-16 16:30 编辑 
@@ -19491,16 +13636,10 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 然后他就会死在自己的那个圆探测不到的空间里，最后尸骨无存
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2382#       发表于 2018-3-16 16:31
-
 
 
 <blockquote>易方世界 发表于 2018-3-16 16:22
@@ -19511,17 +13650,10 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 现在有了系统流念能力，初级念能力者可以大量出现了吧。
 
 
-
-
-
-
-
-
 -----
 
 ####  易方世界  
 ##### 2383#       发表于 2018-3-16 16:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38871624&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-3-16 16:31</a>
@@ -19530,16 +13662,10 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 「黑鲸号就是卡金国的缩影」实在是很有魄力的想法啊<img src="https://static.saraba1st.com/image/smiley/carton2017/051.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lb0windy  
 ##### 2384#       发表于 2018-3-16 17:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38871431&amp;ptid=1505675" target="_blank">银翼的维罗西 发表于 2018-3-16 16:15</a>
@@ -19548,17 +13674,10 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 跟贪婪大陆一样呗，上来找碴基本必死无疑，聪明点的都不会去招惹他们了。
 
 
-
-
-
-
-
-
 -----
 
 ####  火红之眼  
 ##### 2385#       发表于 2018-3-16 18:05
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">真是乱成一锅粥了，搅屎棍持续增长
@@ -19566,16 +13685,10 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 比起蚂蚁篇，这船上的能力者数量增长得也太快了，谁遭殃都不奇怪了
 
 
-
-
-
-
-
 -----
 
 ####  盐柱  
 ##### 2386#       发表于 2018-3-16 18:46
-
 
 
  本帖最后由 盐柱 于 2018-3-16 18:47 编辑 
@@ -19585,16 +13698,10 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 另外我觉得金和帕里斯通那边出场大概不远了，可能明年就行吧？
 
 
-
-
-
-
-
 -----
 
 ####  acejoe  
 ##### 2387#       发表于 2018-3-16 20:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38872934&amp;ptid=1505675" target="_blank">盐柱 发表于 2018-3-16 18:46</a>
@@ -19605,33 +13712,19 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 富奸腰好的消息如果为真，下半年估计就能看到了
 
 
-
-
-
-
-
 -----
 
 ####  icecry  
 ##### 2388#       发表于 2018-3-16 20:18
 
 
-
-
 私生女亲吻后一页脸上的疤怎么没了，下一页就是介绍两条疤的来历，这么明显的作画失误不太像吧
-
-
-
-
-
 
 
 -----
 
 ####  4a12c095  
 ##### 2389#       发表于 2018-3-16 22:18
-
-
 
 
 富堅這是嫌人不夠殺嗎
@@ -19641,16 +13734,10 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 又多了一堆
 
 
-
-
-
-
-
 -----
 
 ####  陈玉礼  
 ##### 2390#       发表于 2018-3-16 23:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38873637&amp;ptid=1505675" target="_blank">icecry 发表于 2018-3-16 20:18</a>
@@ -19659,25 +13746,13 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 当然最大的bug还是上次连载画错王子的房间号<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 2391#       发表于 2018-3-16 23:07
 
 
-
-
 现在感觉前面友克鑫的黑帮太弱了，什么情报能力，什么实力，旅团来自流星街都不知道。在这边黑帮眼里旅团跟国际巨星一样，如数家珍，名字都叫的出，二号人物还打算直接见西索（气势好像比猎人协会搞清凛队那家伙还厉害）
-
-
-
-
-
 
 
 -----
@@ -19686,15 +13761,9 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 ##### 2392#       发表于 2018-3-16 23:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38875006&amp;ptid=1505675" target="_blank">cdfjg 发表于 2018-3-16 23:07</a>
 现在感觉前面友克鑫的黑帮太弱了，什么情报能力，什么实力，旅团来自流星街都不知道。在这边黑帮眼里旅团跟 ...</blockquote>
 可能过去的十老头自我感觉良好，太傲慢了，不把旅团放在眼里。上次旅团也是给了假尸体，查了半天才得出他们来自流星街的结论。现在的黑帮是正好捡了便宜上的位，所以更了解他们。
-
-
-
-
-
 
 
 -----
@@ -19703,15 +13772,9 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 ##### 2393#       发表于 2018-3-16 23:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38875006&amp;ptid=1505675" target="_blank">cdfjg 发表于 2018-3-16 23:07</a>
 现在感觉前面友克鑫的黑帮太弱了，什么情报能力，什么实力，旅团来自流星街都不知道。在这边黑帮眼里旅团跟 ...</blockquote>
 不如說正是旅團之前在友克鑫搞事，才讓黑幫普遍開始注意了吧。
-
-
-
-
-
 
 
 -----
@@ -19720,14 +13783,7 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 ##### 2394#       发表于 2018-3-16 23:44
 
 
-
-
 真是越来越搞不懂念能力到底值不值钱了，特别是这个私生女，她属于4王子的帮派，但四王子本人对念一无所知；而这个私生女毫无隐藏念能力的想法，她的性格就是唯恐天下不乱，到处给人发能力的人，这种人有这样的能力，应该是会让四王子很感兴趣才对，她的念能力怎么可能不传到四王子的耳朵里？
-
-
-
-
-
 
 
 -----
@@ -19736,14 +13792,7 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 ##### 2395#       发表于 2018-3-16 23:58
 
 
-
-
 想想正常周更的话，搞这么多新人物就忙不过来了吧……
-
-
-
-
-
 
 
 -----
@@ -19752,23 +13801,16 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 ##### 2396#       发表于 2018-3-17 00:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38875337&amp;ptid=1505675" target="_blank">zodiac137 发表于 2018-3-16 23:44</a>
 
 真是越来越搞不懂念能力到底值不值钱了，特别是这个私生女，她属于4王子的帮派，但四王子本人对念一无所知 ...</blockquote>
 的确是BUG，四王子这种猎奇性格，应该早就知道念了才对。。。
 
 
-
-
-
-
-
 -----
 
 ####  acejoe  
 ##### 2397#       发表于 2018-3-17 01:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38871171&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-03-16 15:50:15</a>
@@ -19781,16 +13823,10 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  acejoe  
 ##### 2398#       发表于 2018-3-17 01:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38875006&amp;ptid=1505675" target="_blank">cdfjg 发表于 2018-03-16 23:07:53</a>
@@ -19799,16 +13835,10 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  黑岩泪香  
 ##### 2399#       发表于 2018-3-17 01:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38875898&amp;ptid=1505675" target="_blank">acejoe 发表于 2018-3-17 01:15</a>
@@ -19822,16 +13852,10 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">當然也搞不好是她之前沒用過這個能力。
 
 
-
-
-
-
-
 -----
 
 ####  Hyzk  
 ##### 2400#       发表于 2018-3-17 02:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38874569&amp;ptid=1505675" target="_blank">4a12c095 发表于 2018-3-16 22:18</a>
@@ -19844,25 +13868,13 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 按说12支在船上是不能死的，因为他们是受V6委托监视比杨德的暗黑大陆之旅，如果死多了这暗黑大陆就只能鸽了，当然也许富奸就是这么打算的，来一个若干年后主角再战黑暗大陆的结尾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hagane  
 ##### 2401#       发表于 2018-3-17 09:25
 
 
-
-
 金呢！金呢！金呢！我要看金的剧情！！！（敲碗！
-
-
-
-
-
 
 
 -----
@@ -19871,16 +13883,10 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 ##### 2402#       发表于 2018-3-17 09:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38875924&amp;ptid=1505675" target="_blank">黑岩泪香 发表于 2018-3-17 01:22</a>
 問題是沒這個必要啊，你可以直接帶老人的情況下為什麼要多此一舉帶新人再考察再給能力再練級。
 這又不是 ...</blockquote>
 4妹继任仪式的时候就在帮内搞了个自相残杀，所以现在跟在她身边的都是残杀的胜利者而且对她忠心，男女老少什么人都有
-
-
-
-
-
 
 
 -----
@@ -19889,14 +13895,7 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 ##### 2403#       发表于 2018-3-17 12:08
 
 
-
-
 这么多人物这么多立场这么多矛盾，老贼最后不会怕麻烦来个一窝端吧，比如船被炸沉了，除了基本功好的能力者全淹死了，也不用斗来斗去了。
-
-
-
-
-
 
 
 -----
@@ -19905,21 +13904,13 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 ##### 2404#       发表于 2018-3-17 12:29
 
 
-
-
 可以是金出面，说服王子先按兵不动，到暗黑大陆（假）开黑暗武术大会，擂台战，卡金全国谁厉害谁当国王。然后出一张对战表，一卷（10话）完结
-
-
-
-
-
 
 
 -----
 
 ####  远古之红  
 ##### 2405#       发表于 2018-3-17 12:35
-
 
 
 <blockquote>zodiac137 发表于 2018-3-16 23:44
@@ -19929,25 +13920,13 @@ Lv100以上的人會成為新的帶原者，形成自己的感染集團。
 而且黑帮和王子们实际上应该都受国王控制
 
 
-
-
-
-
-
 -----
 
 ####  λ2000  
 ##### 2406#       发表于 2018-3-17 14:40
 
 
-
-
 reddit上说如果西索根本就没上船呢...
-
-
-
-
-
 
 
 -----
@@ -19956,14 +13935,7 @@ reddit上说如果西索根本就没上船呢...
 ##### 2407#       发表于 2018-3-17 15:09
 
 
-
-
 说起来如果20级的感染者陆续增加，团长是不是偷到很多能力？
-
-
-
-
-
 
 
 -----
@@ -19972,15 +13944,9 @@ reddit上说如果西索根本就没上船呢...
 ##### 2408#       发表于 2018-3-17 15:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38879485&amp;ptid=1505675" target="_blank">λ2000 发表于 2018-3-17 14:40</a>
 reddit上说如果西索根本就没上船呢...</blockquote>
 这就搞笑了吧，渲染了这么久的气氛最后不可能这样
-
-
-
-
-
 
 
 -----
@@ -19989,16 +13955,10 @@ reddit上说如果西索根本就没上船呢...</blockquote>
 ##### 2409#       发表于 2018-3-17 15:32
 
 
-
  本帖最后由 肩上的乌鸦 于 2018-3-17 15:34 编辑 
 <blockquote>cdfjg 发表于 2018-3-17 12:29
 可以是金出面，说服王子先按兵不动，到暗黑大陆（假）开黑暗武术大会，擂台战，卡金全国谁厉害谁当国王。然 ...</blockquote>
 初级念能力者急剧增加，按幽白和level E的结局，最后结局会是猎人协会和V5改革，打倒“念“保密主义，念公开化，实现“人人有念练”的大同社会,一个念的新时代。而这些内容会用几页就交待完成。
-
-
-
-
-
 
 
 -----
@@ -20007,14 +13967,7 @@ reddit上说如果西索根本就没上船呢...</blockquote>
 ##### 2410#       发表于 2018-3-17 15:39
 
 
-
-
 试想一下 人人有念练 用周来锄地  挖矿 人类的生产力将大大提高 从此猎人世界进入每个人都能过上幸福生活的篇章！
-
-
-
-
-
 
 
 -----
@@ -20023,22 +13976,15 @@ reddit上说如果西索根本就没上船呢...</blockquote>
 ##### 2411#       发表于 2018-3-17 15:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38879871&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-3-17 15:32</a>
 初级念能力者急剧增加，按幽白和level E的结局，最后结局会是猎人协会和V5改革，打倒“念“保密主义，念公 ...</blockquote>
 而且最后全人类是生活在黑暗大陆这片和平自由的土地上，金富力士出面揭发东富力士是大boss，故意乱写黑暗大陆，让人类和黑暗大陆关系恶化，五大灾祸其实本性很好
-
-
-
-
-
 
 
 -----
 
 ####  肩上的乌鸦  
 ##### 2412#       发表于 2018-3-17 16:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38880067&amp;ptid=1505675" target="_blank">cdfjg 发表于 2018-3-17 15:58</a>
@@ -20050,16 +13996,10 @@ reddit上说如果西索根本就没上船呢...</blockquote>
 当故事转到小杰线时已经是几年后“念公开化”“人人有念练”的社会了。
 
 
-
-
-
-
-
 -----
 
 ####  不想起名字  
 ##### 2413#       发表于 2018-3-17 16:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38880173&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-3-17 16:15</a>
@@ -20071,17 +14011,10 @@ reddit上说如果西索根本就没上船呢...</blockquote>
 为什么不是“全是普通人，再无念能力”呢
 
 
-
-
-
-
-
 -----
 
 ####  stygianlunar  
 ##### 2414#       发表于 2018-3-17 17:23
-
-
 
 
 但是，念也不算是刻意保密，猎人协会也没什么严格的保密协议<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">，只是大家都不是大嘴巴不没事乱说关于念的知识。
@@ -20089,17 +14022,10 @@ reddit上说如果西索根本就没上船呢...</blockquote>
 感觉念只是一种小圈子里内部信息，就跟神秘代码一样<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  4a12c095  
 ##### 2415#       发表于 2018-3-17 19:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38878242&amp;ptid=1505675" target="_blank">银翼的维罗西 发表于 2018-3-17 12:08</a>
@@ -20110,32 +14036,19 @@ reddit上说如果西索根本就没上船呢...</blockquote>
 不過繼承戰只是去假想新大陸的途中
 
 
-
-
-
-
-
 -----
 
 ####  芜菁种子  
 ##### 2416#       发表于 2018-3-17 20:04
 
 
-
-
 什么时候能等到金帕出来斗志斗勇<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  C男人  
 ##### 2417#       发表于 2018-3-17 20:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38875337&amp;ptid=1505675" target="_blank">zodiac137 发表于 2018-3-16 23:44</a>
@@ -20149,16 +14062,10 @@ reddit上说如果西索根本就没上船呢...</blockquote>
 2、私生女是作者近2年刚想出来的。
 
 
-
-
-
-
-
 -----
 
 ####  晚韶华  
 ##### 2418#       发表于 2018-3-17 21:01
-
 
 
  本帖最后由 晚韶华 于 2018-3-17 21:02 编辑 
@@ -20169,26 +14076,15 @@ reddit上说如果西索根本就没上船呢...</blockquote>
 另外，出现的国王同一辈人名字（包括国王）分别是茄子（国王名纳斯比）、洋葱和椰菜花，富坚对于取名真的太随性了吧……另外还掺杂了私货：三大家族的前缀修巫、爱依、加，连起来读就是集英社（Shueisha）的读音，看来富坚对于集英社的怨念还是很深。
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2419#       发表于 2018-3-17 21:07
 
 
-
 <blockquote>晚韶华 发表于 2018-3-17 21:01
 目前出现了国王同辈、上任国王的私生子（一出生脸就被划两刀换得活下去的权利）、国王的私生子（同样被划了 ...</blockquote>
 取名字这个，富坚说过，是受鸟山明影响。
-
-
-
-
-
 
 
 -----
@@ -20197,22 +14093,15 @@ reddit上说如果西索根本就没上船呢...</blockquote>
 ##### 2420#       发表于 2018-3-17 21:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38882422&amp;ptid=1505675" target="_blank">晚韶华 发表于 2018-3-17 21:01</a>
 目前出现了国王同辈、上任国王的私生子（一出生脸就被划两刀换得活下去的权利）、国王的私生子（同样被划了 ...</blockquote>
 2018了，竟然还有人说富坚对集英社有怨念
-
-
-
-
-
 
 
 -----
 
 ####  发财就手  
 ##### 2421#       发表于 2018-3-17 23:08
-
 
 
  本帖最后由 发财就手 于 2018-3-17 23:12 编辑 
@@ -20224,16 +14113,10 @@ reddit上说如果西索根本就没上船呢...</blockquote>
 FJ很爱这种手法，看似势力多又错综复杂结果解决方法很简单
 
 
-
-
-
-
-
 -----
 
 ####  发财就手  
 ##### 2422#       发表于 2018-3-17 23:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38880690&amp;ptid=1505675" target="_blank">stygianlunar 发表于 2018-3-17 17:23</a>
@@ -20242,16 +14125,10 @@ FJ很爱这种手法，看似势力多又错综复杂结果解决方法很简单
 一个有网络的时代，而念这种有系统性修炼方法的超能力真的没有搞事者在网上公开吗，而根据有网络猎人这一职业来看，屏蔽删除敏感信息应该也是一种工作
 
 
-
-
-
-
-
 -----
 
 ####  发财就手  
 ##### 2423#       发表于 2018-3-17 23:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38882641&amp;ptid=1505675" target="_blank">cdfjg 发表于 2018-3-17 21:25</a>
@@ -20260,16 +14137,10 @@ FJ很爱这种手法，看似势力多又错综复杂结果解决方法很简单
 当年幽游白书时期，集英社应该没少强迫他要延长连载继续画，猎人的情况也应该类似
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 2424#       发表于 2018-3-18 01:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38882422&amp;ptid=1505675" target="_blank">晚韶华 发表于 2018-3-17 21:01</a>
@@ -20277,16 +14148,10 @@ FJ很爱这种手法，看似势力多又错综复杂结果解决方法很简单
 好吧，富坚在50周年纪念说了抽成70%
 
 
-
-
-
-
-
 -----
 
 ####  zodiac137  
 ##### 2425#       发表于 2018-3-18 01:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38878492&amp;ptid=1505675" target="_blank">远古之红 发表于 2018-3-17 12:35</a>
@@ -20300,16 +14165,10 @@ FJ很爱这种手法，看似势力多又错综复杂结果解决方法很简单
 当然我觉得最合理的解释就是FJ是一拍脑袋才设计出这个私生女的....所以前后矛盾了
 
 
-
-
-
-
-
 -----
 
 ####  黑岩泪香  
 ##### 2426#       发表于 2018-3-18 02:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38885208&amp;ptid=1505675" target="_blank">zodiac137 发表于 2018-3-18 01:36</a>
@@ -20318,16 +14177,10 @@ FJ很爱这种手法，看似势力多又错综复杂结果解决方法很简单
 這其中暫時還看不出必須要念能力的參與。
 
 
-
-
-
-
-
 -----
 
 ####  坚果大爷  
 ##### 2427#       发表于 2018-3-18 05:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38883954&amp;ptid=1505675" target="_blank">发财就手 发表于 2018-3-17 23:16</a>
@@ -20336,16 +14189,10 @@ FJ很爱这种手法，看似势力多又错综复杂结果解决方法很简单
 比如说在网上看到修真秘籍，可能还能有好多不同版本，几个人能认认真真去照着练。少数真练出点成果的大概也就贪婪岛杂鱼路人的水平。真有个别天才照网文也能自学成高手对世界也没多大影响
 
 
-
-
-
-
-
 -----
 
 ####  发财就手  
 ##### 2428#       发表于 2018-3-18 10:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38885782&amp;ptid=1505675" target="_blank">坚果大爷 发表于 2018-3-18 05:31</a>
@@ -20354,16 +14201,10 @@ FJ很爱这种手法，看似势力多又错综复杂结果解决方法很简单
 如果附上视频呢，猎人世界也有直播网站的存在
 
 
-
-
-
-
-
 -----
 
 ####  绮罗丛  
 ##### 2429#       发表于 2018-3-18 11:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38886807&amp;ptid=1505675" target="_blank">发财就手 发表于 2018-3-18 10:16</a>
@@ -20371,17 +14212,10 @@ FJ很爱这种手法，看似势力多又错综复杂结果解决方法很简单
 好像有有专门的网络猎人控制念知识的传播好像。
 
 
-
-
-
-
-
 -----
 
 ####  C男人  
 ##### 2430#       发表于 2018-3-18 11:26
-
-
 
 
 因为富坚画猎人的时候，念能力不是初始设定吧。
@@ -20398,16 +14232,10 @@ FJ很爱这种手法，看似势力多又错综复杂结果解决方法很简单
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xing7673  
 ##### 2431#       发表于 2018-3-18 15:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38879921&amp;ptid=1505675" target="_blank">就不的 发表于 2018-3-17 15:39</a>
@@ -20427,16 +14255,10 @@ FJ很爱这种手法，看似势力多又错综复杂结果解决方法很简单
 实际上念能力是有对现实的映射，在yorkshire里有价值的收藏品都会有气的包围，就暗示了念对应的就是才能，天赋。从这一点上说富J真的是做得非常的精妙。
 
 
-
-
-
-
-
 -----
 
 ####  acejoe  
 ##### 2432#       发表于 2018-3-18 16:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38886807&amp;ptid=1505675" target="_blank">发财就手 发表于 2018-03-18 10:16:40</a>
@@ -20445,32 +14267,19 @@ FJ很爱这种手法，看似势力多又错综复杂结果解决方法很简单
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  λ2000  
 ##### 2433#       发表于 2018-3-18 16:18
 
 
-
-
 一开始就是没念的设定 怎么解释都不通的
-
-
-
-
-
 
 
 -----
 
 ####  cdfjg  
 ##### 2434#       发表于 2018-3-18 16:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38889801&amp;ptid=1505675" target="_blank">acejoe 发表于 2018-3-18 16:11</a>
@@ -20480,16 +14289,10 @@ FJ很爱这种手法，看似势力多又错综复杂结果解决方法很简单
 凝是用来看隐的……
 
 
-
-
-
-
-
 -----
 
 ####  发财就手  
 ##### 2435#       发表于 2018-3-18 18:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38889801&amp;ptid=1505675" target="_blank">acejoe 发表于 2018-3-18 16:11</a>
@@ -20501,17 +14304,10 @@ FJ很爱这种手法，看似势力多又错综复杂结果解决方法很简单
 像比斯姬那种由萝莉变老太婆的演示呢
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2436#       发表于 2018-3-18 18:57
-
-
 
 
 https://m.weibo.cn/1936366883/4218980304349500
@@ -20538,25 +14334,13 @@ https://m.weibo.cn/1936366883/4218980304349500
 富坚是打算长期连载吗？
 
 
-
-
-
-
-
 -----
 
 ####  hotstar  
 ##### 2437#       发表于 2018-3-18 19:23
 
 
-
-
 明显fj要完结了啊
-
-
-
-
-
 
 
 -----
@@ -20565,14 +14349,7 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2438#       发表于 2018-3-18 19:24
 
 
-
-
 支持猎人长期连载
-
-
-
-
-
 
 
 -----
@@ -20581,14 +14358,7 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2439#       发表于 2018-3-18 19:27
 
 
-
-
 说明富坚已经画完了，现在就是慢慢交存稿。死了以后儿子可以帮忙交存稿。猎人堂堂完结！
-
-
-
-
-
 
 
 -----
@@ -20597,14 +14367,7 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2440#       发表于 2018-3-20 09:39
 
 
-
-
 「對於我現在連載中的作品（Hunter X Hunter），有人跟我說，不知道是作品先完結，還是他先死去⋯我也明白，我會試著解決這問題，圓滿地結束這部作品。」<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20613,14 +14376,7 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2441#       发表于 2018-3-20 10:05
 
 
-
-
 证明在富奸脑里面离完结还长着
-
-
-
-
-
 
 
 -----
@@ -20629,13 +14385,7 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2442#       发表于 2018-3-20 22:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还在塞人 
-
-
-
-
-
 
 
 -----
@@ -20644,16 +14394,9 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2443#       发表于 2018-3-20 22:26
 
 
-
-
 完了 ，感觉冈叔的外挂封号要直到漫画结束了
 
 奇犽带着个许愿机bug也被封号了
-
-
-
-
-
 
 
 -----
@@ -20662,16 +14405,9 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2444#       发表于 2018-3-20 22:33
 
 
-
-
 「對於我現在連載中的作品（Hunter X Hunter），有人跟我說，不知道是作品先完結，還是他先死去⋯我也明白，我會試著解決這問題，圓滿地結束這部作品。」
 
 去掉最后一句要报警了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20680,22 +14416,13 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2445#       发表于 2018-3-21 14:11
 
 
-
-
 现在是不是2层一点没表现？那西索在2层
-
-
-
-
-
 
 
 -----
 
 ####  waster112  
 ##### 2446#       发表于 2018-3-21 14:53
-
-
 
 
 知乎看到个推测，西索假扮伊路米说
@@ -20705,27 +14432,15 @@ https://m.weibo.cn/1936366883/4218980304349500
 想想之前也没人看穿西索伪装的团员身份，不是不可能
 
 
-
-
-
-
-
 -----
 
 ####  江戶川柯南  
 ##### 2447#       发表于 2018-3-21 15:33
 
 
-
-
 反正西索都做过厕所杀手怎么low的事了
 
 就是假扮也不意外
-
-
-
-
-
 
 
 -----
@@ -20734,24 +14449,15 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2448#       发表于 2018-3-21 16:15
 
 
-
-
 那个脚插满针的确太可疑，估计富奸下一话直接让伊尔谜和玛琪遇到
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2449#         楼主| 发表于 2018-3-21 21:39
-
-
 
 
 今日が祝日だからか１日早く手に入った
@@ -20766,26 +14472,14 @@ https://m.weibo.cn/1936366883/4218980304349500
 祝日偷跑 详细等明天吧
 
 
-
-
-
-
-
 -----
 
 ####  陈玉礼  
 ##### 2450#       发表于 2018-3-22 21:37
 
 
-
-
 据说下周休刊！
 但是只休一周，这一定不是长期连载的预兆，一定不是<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20794,24 +14488,16 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2451#       发表于 2018-3-22 23:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38937029&amp;ptid=1505675" target="_blank">陈玉礼 发表于 2018-3-22 21:37</a>
 据说下周休刊！
 但是只休一周，这一定不是长期连载的预兆，一定不是 ...</blockquote>
 真有这种好事吗<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2452#       发表于 2018-3-22 23:26
-
-
 
 
 下一话才是380话。
@@ -20826,17 +14512,10 @@ https://m.weibo.cn/1936366883/4218980304349500
 说起来，因为今年是猎人20周年，所以这次富坚才会这么快复刊的吧。
 
 
-
-
-
-
-
-
 -----
 
 ####  3000  
 ##### 2453#       发表于 2018-3-23 02:49
-
 
 
 <blockquote>陈玉礼 发表于 2018-3-9 11:42
@@ -20848,25 +14527,13 @@ https://m.weibo.cn/1936366883/4218980304349500
 老贼并没有发糖，他只是一如既往在玩儿梗玩儿暧昧。
 
 
-
-
-
-
-
 -----
 
 ####  丘萤之光  
 ##### 2454#       发表于 2018-3-23 05:00
 
 
-
-
 反正我的期待也就10话，没有期待就没有伤害
-
-
-
-
-
 
 
 -----
@@ -20875,16 +14542,10 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2455#       发表于 2018-3-23 09:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38938042&amp;ptid=1505675" target="_blank">nxh1999 发表于 2018-3-22 23:06</a>
 
 真有这种好事吗</blockquote>
 坚哥哥骗过你吗？
-
-
-
-
-
 
 
 -----
@@ -20893,16 +14554,10 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2456#       发表于 2018-3-23 09:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38938042&amp;ptid=1505675" target="_blank">nxh1999 发表于 2018-3-22 23:06</a>
 
 真有这种好事吗</blockquote>
 坚哥哥骗过你吗？
-
-
-
-
-
 
 
 -----
@@ -20911,16 +14566,10 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2457#       发表于 2018-3-23 09:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38938042&amp;ptid=1505675" target="_blank">nxh1999 发表于 2018-3-22 23:06</a>
 
 真有这种好事吗</blockquote>
 坚哥哥骗过你吗？
-
-
-
-
-
 
 
 -----
@@ -20929,22 +14578,15 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2458#         楼主| 发表于 2018-3-23 15:45
 
 
-
 [http://www.ishuhui.com/cartoon/num/11-0-n-379](http://www.ishuhui.com/cartoon/num/11-0-n-379)
 
 更了，下期没休
-
-
-
-
-
 
 
 -----
 
 ####  高等黑暗  
 ##### 2459#       发表于 2018-3-23 16:00
-
 
 
  本帖最后由 高等黑暗 于 2018-3-23 16:05 编辑 
@@ -20960,19 +14602,10 @@ https://m.weibo.cn/1936366883/4218980304349500
 念量不是一边倒，见面初手不是死斗，双方可能都有一定的时间通过侧面或者对方的念的结果得知对方“能做到什么”，然后通过这一点分析对方能力的全貌再做出针对性的对应
 
 
-
-
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 2460#       发表于 2018-3-23 16:13
-
-
 
 
 富兰克林出乎意料的稳
@@ -20984,25 +14617,13 @@ https://m.weibo.cn/1936366883/4218980304349500
 原来感受过他们的洞察力，现在看来念分析能力都不错
 
 
-
-
-
-
-
 -----
 
 ####  记忆消失  
 ##### 2461#       发表于 2018-3-23 16:31
 
 
-
-
 这话爽到，不拖沓、行动合理、节奏平稳。
-
-
-
-
-
 
 
 -----
@@ -21011,16 +14632,9 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2462#       发表于 2018-3-23 16:53
 
 
-
-
 布局终于完了？
 
 可以开始战了吗！！
-
-
-
-
-
 
 
 -----
@@ -21029,14 +14643,7 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2463#       发表于 2018-3-23 17:24
 
 
-
-
 下层线也好看啊<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21045,13 +14652,7 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2464#       发表于 2018-3-23 17:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我真的不想看继续塞新人物了
-
-
-
-
-
 
 
 -----
@@ -21060,17 +14661,10 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2465#       发表于 2018-3-23 17:54
 
 
-
-
 感觉下层线的信息密度没有上层线多，对新登场的感染者的刻画比王子护卫更细致，虽然人数一样多。
 
 
 所以。。。到底哪边是炮灰。。。
-
-
-
-
-
 
 
 -----
@@ -21079,14 +14673,7 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2466#       发表于 2018-3-23 17:55
 
 
-
-
 富兰克林当初可是制止了旅团因为派克诺坦的内讧的
-
-
-
-
-
 
 
 -----
@@ -21095,14 +14682,7 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2467#       发表于 2018-3-23 17:55
 
 
-
-
 上层线对作者来说比较好玩，下层对读者比较好玩
-
-
-
-
-
 
 
 -----
@@ -21111,21 +14691,13 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2468#       发表于 2018-3-23 18:00
 
 
-
-
 反正都是念能力者的战斗
-
-
-
-
-
 
 
 -----
 
 ####  陈玉礼  
 ##### 2469#       发表于 2018-3-23 18:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38946635&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-3-23 17:54</a>
@@ -21136,25 +14708,13 @@ https://m.weibo.cn/1936366883/4218980304349500
 这次是双线并举了，酷拉皮卡要往下寻找逃离的方法，旅团要往上寻仇夺宝，迟早会相遇的
 
 
-
-
-
-
-
 -----
 
 ####  阿虚家的三味  
 ##### 2470#       发表于 2018-3-23 18:14
 
 
-
-
 结果最后厕所战神不在这船上就搞笑了
-
-
-
-
-
 
 
 -----
@@ -21163,21 +14723,13 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2471#       发表于 2018-3-23 18:17
 
 
-
-
 旅团的人还是挺讲道理的
-
-
-
-
-
 
 
 -----
 
 ####  肩上的乌鸦  
 ##### 2472#       发表于 2018-3-23 18:53
-
 
 
  本帖最后由 肩上的乌鸦 于 2018-3-23 18:54 编辑 
@@ -21191,17 +14743,10 @@ https://m.weibo.cn/1936366883/4218980304349500
 这个篇章最关键的胜负地点会不会就是发生在厕所？有种最后全篇章所有关键人物都会汇集到厕所决胜负的感觉。
 
 
-
-
-
-
-
-
 -----
 
 ####  hardwell  
 ##### 2473#       发表于 2018-3-23 18:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38947295&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-3-23 18:53</a>
@@ -21213,16 +14758,10 @@ https://m.weibo.cn/1936366883/4218980304349500
 都会汇集到厕所，原来他们都是排泄物<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2474#       发表于 2018-3-23 19:00
-
 
 
  本帖最后由 肩上的乌鸦 于 2018-3-23 19:07 编辑 
@@ -21231,16 +14770,10 @@ https://m.weibo.cn/1936366883/4218980304349500
 整条船的排泄排污系统就是船的唯一逃生出口!要逃走就要进粪坑。原来富坚埋的是这个伏笔!
 
 
-
-
-
-
-
 -----
 
 ####  J-002  
 ##### 2475#       发表于 2018-3-23 19:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38947295&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-3-23 18:53</a>
@@ -21252,16 +14785,10 @@ https://m.weibo.cn/1936366883/4218980304349500
 什么发生在厕所，人是在单人房间里死的，作假口供的同伙说人被杀时自己在厕所
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2476#       发表于 2018-3-23 19:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38947420&amp;ptid=1505675" target="_blank">J-002 发表于 2018-3-23 19:03</a>
@@ -21272,16 +14799,10 @@ https://m.weibo.cn/1936366883/4218980304349500
 半月男是在厕所逃跑的嘛。那也差不远。<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  waster112  
 ##### 2477#       发表于 2018-3-23 19:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38946010&amp;ptid=1505675" target="_blank">acejoe 发表于 2018-3-23 16:53</a>
@@ -21292,25 +14813,13 @@ https://m.weibo.cn/1936366883/4218980304349500
 是时候开始休刊了吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  icecry  
 ##### 2478#       发表于 2018-3-23 19:12
 
 
-
-
 描写这么多，新角色还是一股杂鱼炮灰样啊
-
-
-
-
-
 
 
 -----
@@ -21319,14 +14828,7 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2479#       发表于 2018-3-23 19:14
 
 
-
-
 无聊的一话，等于什么都没说
-
-
-
-
-
 
 
 -----
@@ -21335,14 +14837,7 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2480#       发表于 2018-3-23 20:38
 
 
-
-
 牛最多分析出是同伙，空间系能力怎么找？
-
-
-
-
-
 
 
 -----
@@ -21351,16 +14846,10 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2481#       发表于 2018-3-23 21:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38948419&amp;ptid=1505675" target="_blank">cdfjg 发表于 2018-3-23 20:38</a>
 
 牛最多分析出是同伙，空间系能力怎么找？</blockquote>
 因为这帮家伙本身脑洞都大的不行吧……正常人怀疑完那女的就开始考虑他们逃走的方式，这帮家伙直接就往空间系能力上考虑
-
-
-
-
-
 
 
 -----
@@ -21369,17 +14858,10 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2482#       发表于 2018-3-23 22:02
 
 
-
-
 描绘人物神了，前面几格不给正脸单纯叙述被害者，最后一个特写哭了出来还配上台词，然后下一页立刻翻脸卧槽了。
 
 
 碉堡了碉堡了。
-
-
-
-
-
 
 
 -----
@@ -21388,15 +14870,9 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2483#       发表于 2018-3-23 23:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38949315&amp;ptid=1505675" target="_blank">兰开夏 发表于 2018-3-23 22:02</a>
 描绘人物神了，前面几格不给正脸单纯叙述被害者，最后一个特写哭了出来还配上台词，然后下一页立刻翻脸卧槽 ...</blockquote>
 这就是先看情报尴尬的地方，已经知道了……
-
-
-
-
-
 
 
 -----
@@ -21405,14 +14881,7 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2484#       发表于 2018-3-24 07:27
 
 
-
-
 打起来啊 多少话没有动作戏了<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21421,22 +14890,13 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2485#       发表于 2018-3-24 07:57
 
 
-
-
 如果是别的漫画，看到线铺这么开会很兴奋，但是FJ老贼，总是怕什么时候就休刊了，真是到死都看不到结局
-
-
-
-
-
 
 
 -----
 
 ####  C男人  
 ##### 2486#       发表于 2018-3-24 08:09
-
-
 
 
 开始进入推理破案/推理对战的环节，
@@ -21450,17 +14910,10 @@ https://m.weibo.cn/1936366883/4218980304349500
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  jdd4682  
 ##### 2487#       发表于 2018-3-24 08:18
-
 
 
 <blockquote>兰开夏 发表于 2018-3-23 22:02
@@ -21470,17 +14923,10 @@ https://m.weibo.cn/1936366883/4218980304349500
 因为这种连续几个镜头都不露脸的反而是异类，要么是埋伏笔，要么是为了表现其他人物，要么是认为没必要露脸的路人就绝对不露。
 
 
-
-
-
-
-
 -----
 
 ####  就不的  
 ##### 2488#       发表于 2018-3-24 08:25
-
-
 
 
 说真的， 这个破能力很强吗？我一点都不觉得<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
@@ -21489,16 +14935,10 @@ https://m.weibo.cn/1936366883/4218980304349500
 空间系能力像诺布那样可以为整个团队提供巨大帮助，这个就是自己来去自由，只能自己移动，孤独的能力，但是你有了这个能力又决定了你没法跟武斗类型的念能力者刚正面，我想这个能力当个二流杀手倒是比较合适，暗杀完了就消失<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  C男人  
 ##### 2489#       发表于 2018-3-24 09:06
-
 
 
  本帖最后由 C男人 于 2018-3-24 09:38 编辑 
@@ -21517,25 +14957,13 @@ https://m.weibo.cn/1936366883/4218980304349500
 <img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  远古之红  
 ##### 2490#       发表于 2018-3-24 09:19
 
 
-
-
 沒說封閉房間的範圍，整層算一個封閉房間也未必不行
-
-
-
-
-
 
 
 -----
@@ -21544,24 +14972,16 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2491#       发表于 2018-3-24 09:19
 
 
-
-
 所以这月亮脸以后的待遇不得和2公子一样
 
 
 直接关笼子里 然后靠不到墙
 
 
-
-
-
-
-
 -----
 
 ####  哈尔摩尼亚  
 ##### 2492#       发表于 2018-3-24 09:21
-
 
 
  本帖最后由 哈尔摩尼亚 于 2018-3-24 09:23 编辑 
@@ -21574,16 +14994,10 @@ https://m.weibo.cn/1936366883/4218980304349500
 虽然上一话开在了天花板上……
 
 
-
-
-
-
-
 -----
 
 ####  哈尔摩尼亚  
 ##### 2493#       发表于 2018-3-24 09:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38952479&amp;ptid=1505675" target="_blank">jsyyyz 发表于 2018-3-24 09:19</a>
@@ -21595,16 +15009,10 @@ https://m.weibo.cn/1936366883/4218980304349500
 一扇门的单间密室……只要有两扇门他就没办法发动了
 
 
-
-
-
-
-
 -----
 
 ####  C男人  
 ##### 2494#       发表于 2018-3-24 09:30
-
 
 
  本帖最后由 C男人 于 2018-3-24 10:06 编辑 
@@ -21630,16 +15038,10 @@ https://m.weibo.cn/1936366883/4218980304349500
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  哈尔摩尼亚  
 ##### 2495#       发表于 2018-3-24 09:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38952552&amp;ptid=1505675" target="_blank">C男人 发表于 2018-3-24 09:30</a>
@@ -21653,24 +15055,13 @@ https://m.weibo.cn/1936366883/4218980304349500
 要这样旅团第一时间就会反应过来空间能力了，不至于后面还怀疑了一下西索
 
 
-
-
-
-
-
 -----
 
 ####  谢皮利男爵  
 ##### 2496#       发表于 2018-3-24 11:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">富兰克林简直稳如长者一般
-
-
-
-
-
 
 
 -----
@@ -21679,21 +15070,13 @@ https://m.weibo.cn/1936366883/4218980304349500
 ##### 2497#       发表于 2018-3-24 11:29
 
 
-
-
 月亮脸攻击力强吗？他针对的目前都是普通人，好像现在只有到处开洞窥视的功能，如果他袭击的目标是一个比较厉害的武斗派念能力者，对方可以在瞬间反击，他不是也就没可能杀死攻击目标了？
-
-
-
-
-
 
 
 -----
 
 ####  C男人  
 ##### 2498#       发表于 2018-3-24 12:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38953653&amp;ptid=1505675" target="_blank">nxh1999 发表于 2018-3-24 11:29</a>
@@ -21711,33 +15094,19 @@ https://m.weibo.cn/1936366883/4218980304349500
 毕竟信长开着圆都没发现他是怎么动手的。
 
 
-
-
-
-
-
 -----
 
 ####  哈尔摩尼亚  
 ##### 2499#       发表于 2018-3-24 12:17
 
 
-
-
 其实信长的圆不就那么一点大么……说不定只是刚好出界了呢
-
-
-
-
-
 
 
 -----
 
 ####  影子渡客  
 ##### 2500#       发表于 2018-3-24 12:57
-
-
 
 
 位于下层的杀手VS平民VS盗贼VS黑帮VS军方VS民间保全VS协会的大乱斗即将展开。
@@ -21765,16 +15134,10 @@ https://m.weibo.cn/1936366883/4218980304349500
 贴吧吧友@李献计0历险记 提到，诺斯拉家族的根基在小妮子的预言能力，拍卖篇后酷拉他最大的危机就是应对失去这个能力的问题，而酷拉也早就猜想到除念的存在。而直至今日，酷拉还是诺斯拉家少当家=若头(日本黑帮的分法，和本话眼镜若头的职位相同，黑帮中只居于组长和副组长之下，是实际行动中的主管)，单独办公，还能调动家族宝贵的猎人资源，所以大小姐死亡率极低了，被除念的可能性大大的。
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2501#       发表于 2018-3-24 13:29
-
 
 
  本帖最后由 肩上的乌鸦 于 2018-3-24 13:43 编辑 
@@ -21791,18 +15154,10 @@ https://m.weibo.cn/1936366883/4218980304349500
 不过牛牛只要跟黑帮接触，西索旅团的事是肯定能知道的。其余两大黑帮也没必要隐瞒西索旅团的事吧。
 
 
-
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2502#       发表于 2018-3-27 11:43
-
-
 
 
 说起来，妮翁如果真的没死，而是酷拉皮卡替她解除了“盗取”状态，那么酷拉皮卡不去探望小杰的原因也可以解释了吧。因为通过预言诗能知道小杰不会死。
@@ -21814,20 +15169,13 @@ https://m.weibo.cn/1936366883/4218980304349500
 所以酷拉皮卡会愿意用能力剧烈消耗性命，可能是因根据预言，这么做离目标4王子最快最近？
 
 
-
 当然，妮翁可能的确死了，或者没死但失去预言能力了。
-
-
-
-
-
 
 
 -----
 
 ####  nxh1999  
 ##### 2503#       发表于 2018-3-27 14:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38992614&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-3-27 11:43</a>
@@ -21839,16 +15187,10 @@ https://m.weibo.cn/1936366883/4218980304349500
 不过如果妮翁活着当然好，她还蛮可爱的。
 
 
-
-
-
-
-
 -----
 
 ####  影子渡客  
 ##### 2504#       发表于 2018-3-28 12:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38994527&amp;ptid=1505675" target="_blank">nxh1999 发表于 2018-3-27 14:20</a>
@@ -21857,16 +15199,10 @@ https://m.weibo.cn/1936366883/4218980304349500
 不，书页消失还可能 1：对象除念 2满足条件归还（肯定能还的，因为团长本要还侠客能力） 3受到“规则”更上级的能力干涉
 
 
-
-
-
-
-
 -----
 
 ####  acejoe  
 ##### 2505#       发表于 2018-3-28 14:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38994527&amp;ptid=1505675" target="_blank">nxh1999 发表于 2018-03-27 14:20:40</a>
@@ -21876,17 +15212,10 @@ https://m.weibo.cn/1936366883/4218980304349500
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2506#       发表于 2018-3-28 14:55
-
-
 
 
 主要是预言之诗太破坏平衡了，团长就被禁用预言了。
@@ -21901,18 +15230,10 @@ https://m.weibo.cn/1936366883/4218980304349500
 就像蚂蚁篇的蔷薇一样，之前氛围营造得多么紧张恐怖，结果主角方早已经稳操胜券，波澜不惊的做事后分析。而且预言诗有只能预言一个月的缺陷，渡航期则可能持续更长时间，可以在具压倒性优势下，为故事留个悬念。
 
 
-
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2507#         楼主| 发表于 2018-3-29 08:21
-
-
 
 
 Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanwhile, Hunter x Hunter manga is going on hiatus after Shonen Jump Issue 18 (Chapter 380).
@@ -21921,24 +15242,13 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 下周休了
 
 
-
-
-
-
-
 -----
 
 ####  金星  
 ##### 2508#       发表于 2018-3-29 08:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21947,14 +15257,7 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2509#       发表于 2018-3-29 08:29
 
 
-
-
 本话卷末语，富坚不像去年一样写“今年再复刊一次”吗？
-
-
-
-
-
 
 
 -----
@@ -21963,14 +15266,7 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2510#       发表于 2018-3-29 08:37
 
 
-
-
 情报出来了？
-
-
-
-
-
 
 
 -----
@@ -21979,14 +15275,7 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2511#       发表于 2018-3-29 08:44
 
 
-
-
 不意外<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21995,16 +15284,10 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2512#         楼主| 发表于 2018-3-29 08:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39016078&amp;ptid=1505675" target="_blank">加里波第 发表于 2018-3-29 08:37</a>
 
 情报出来了？</blockquote>
 还没有 估计要等下午吧
-
-
-
-
-
 
 
 -----
@@ -22013,14 +15296,7 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2513#       发表于 2018-3-29 09:01
 
 
-
-
 来来来，看看今年会不会再复刊一次<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22029,15 +15305,9 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2514#       发表于 2018-3-29 09:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39015968&amp;ptid=1505675" target="_blank">xingenge 发表于 2018-3-29 08:21</a>
 Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanwhile, Hunter x Hunte ...</blockquote>
 意料之中，但是还是具有惆怅。求今年再复刊一次吧，好不容易又看到熟悉的人物出来了。
-
-
-
-
-
 
 
 -----
@@ -22046,13 +15316,7 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2515#       发表于 2018-3-29 09:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">真是..
-
-
-
-
-
 
 
 -----
@@ -22061,14 +15325,7 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2516#       发表于 2018-3-29 10:40
 
 
-
-
 希望最后一话能把小酷那边的线再推进一下，本次连载果然没有进入第二次晚宴
-
-
-
-
-
 
 
 -----
@@ -22077,14 +15334,7 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2517#       发表于 2018-3-29 11:43
 
 
-
-
 奇杰什么时候登场，好急啊
-
-
-
-
-
 
 
 -----
@@ -22093,14 +15343,7 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2518#       发表于 2018-3-29 11:44
 
 
-
-
 各位2019再见!
-
-
-
-
-
 
 
 -----
@@ -22109,22 +15352,13 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2519#       发表于 2018-3-29 12:44
 
 
-
-
 惯例的10话<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2520#         楼主| 发表于 2018-3-29 16:40
-
-
 
 
 マジで休載 
@@ -22142,16 +15376,10 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 对不起又休载了。我会努力尽快复刊的。
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2521#       发表于 2018-3-29 16:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39021828&amp;ptid=1505675" target="_blank">xingenge 发表于 2018-3-29 16:40</a>
@@ -22164,25 +15392,13 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 对比去年的卷末语，富坚的意思是今年不会复刊吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  陈玉礼  
 ##### 2522#       发表于 2018-3-29 18:15
 
 
-
-
 11直接穿越到3层，还和牛碰面了，剧情飞速进展！
-
-
-
-
-
 
 
 -----
@@ -22191,14 +15407,8 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2523#         楼主| 发表于 2018-3-29 18:31
 
 
-
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fptv7cbsflj22io1w0h54.jpg" referrerpolicy="no-referrer">
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fptv7dpjodj20ux1kw47h.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22207,14 +15417,8 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2524#       发表于 2018-3-29 18:32
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer"></blockquote>
 剧情进展这么快？
-
-
-
-
-
 
 
 -----
@@ -22223,14 +15427,7 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2525#       发表于 2018-3-29 18:41
 
 
-
-
 这么明目张胆的每年凑一本真的好么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22239,14 +15436,7 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2526#       发表于 2018-3-29 18:47
 
 
-
-
 揍敌客这兄弟俩是什么意思？举手投降<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">？？
-
-
-
-
-
 
 
 -----
@@ -22255,14 +15445,7 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2527#       发表于 2018-3-29 21:31
 
 
-
-
 厉害，没想到
-
-
-
-
-
 
 
 -----
@@ -22271,17 +15454,10 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2528#       发表于 2018-3-29 22:57
 
 
-
-
 这是把之前封闭的地图一下子开放了，虽然还是在封闭范围内，这样下去真的是20W人的大逃杀了。<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
 
 上面角色就不少了，下边再掺和进来，这数量，而且11这也危险阿，杀王子可是直接+50级的。
-
-
-
-
-
 
 
 -----
@@ -22290,14 +15466,7 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2529#       发表于 2018-3-30 00:09
 
 
-
-
 所以富坚的腰到底好没好？休刊到底是不是全都因为腰？
-
-
-
-
-
 
 
 -----
@@ -22306,15 +15475,9 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2530#         楼主| 发表于 2018-3-30 11:50
 
 
-
 <img src="http://wx1.sinaimg.cn/large/bcfcde0agy1fpuosm9vfij21b80y6ank.jpg" referrerpolicy="no-referrer">
 <img src="http://wx2.sinaimg.cn/large/bcfcde0agy1fpuosmklcmj20nm0y6wlm.jpg" referrerpolicy="no-referrer">
 <img src="http://wx4.sinaimg.cn/large/bcfcde0agy1fpuoskzrruj20nm0y6af6.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22323,15 +15486,8 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2531#         楼主| 发表于 2018-3-30 15:31
 
 
-
-
 汉化：
 [http://www.ishuhui.com/cartoon/num/11-0-n-380](http://www.ishuhui.com/cartoon/num/11-0-n-380)
-
-
-
-
-
 
 
 -----
@@ -22340,14 +15496,7 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2532#       发表于 2018-3-30 15:46
 
 
-
-
 在少年jump上直接把性行为画出来是不是就老贼一个了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22356,23 +15505,16 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2533#       发表于 2018-3-30 15:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39026825&amp;ptid=1505675" target="_blank">睚眦 发表于 2018-03-30 00:09:38</a>
 所以富坚的腰到底好没好？休刊到底是不是全都因为腰？</blockquote>连载早就不看富奸看编辑了，编辑觉得存稿够就会连续放出，不够就休。
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Snaky  
 ##### 2534#       发表于 2018-3-30 15:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39033739&amp;ptid=1505675" target="_blank">acejoe 发表于 2018-3-30 15:51</a>
@@ -22382,25 +15524,13 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 出处呢？
 
 
-
-
-
-
-
 -----
 
 ####  加里波第  
 ##### 2535#       发表于 2018-3-30 16:00
 
 
-
-
 贴吧说牛和11王子有fz的梗
-
-
-
-
-
 
 
 -----
@@ -22409,23 +15539,15 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2536#       发表于 2018-3-30 16:02
 
 
-
-
 牛哥以为旅团是来找酷拉皮卡麻烦的，这心理活动在读者看来合情合理的同时又太好笑了。从牛哥的分析看来职业猎人信息收集的能力比旅团这群草莽之人的能力强多了。侠客死了好可惜。但是没想到旅团有这么多迷弟，私下里偷偷找他们要签名的小混混，这画面太美了<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
 话说回来，为什么旅团不找酷拉皮卡的麻烦呢，是不是团长身上的念没除干净？
-
-
-
-
-
 
 
 -----
 
 ####  acejoe  
 ##### 2537#       发表于 2018-3-30 16:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39033807&amp;ptid=1505675" target="_blank">Snaky 发表于 2018-3-30 15:58</a>
@@ -22436,16 +15558,10 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 某采访，责编说还存了10话稿，剧情很吊但不能说。
 
 
-
-
-
-
-
 -----
 
 ####  kfc汉堡  
 ##### 2538#       发表于 2018-3-30 16:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39033867&amp;ptid=1505675" target="_blank">acejoe 发表于 2018-3-30 16:03</a>
@@ -22456,16 +15572,10 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 不是下周休刊吗…编辑还能时不时休刊一次？
 
 
-
-
-
-
-
 -----
 
 ####  acejoe  
 ##### 2539#       发表于 2018-3-30 16:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39034102&amp;ptid=1505675" target="_blank">kfc汉堡 发表于 2018-3-30 16:19</a>
@@ -22474,16 +15584,10 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 是说休载的时机是编辑决定的，富奸是在一年内画出个好几话，然后编辑决定什么时候放出来什么时候休载
 
 
-
-
-
-
-
 -----
 
 ####  darkeyes  
 ##### 2540#       发表于 2018-3-30 16:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39034137&amp;ptid=1505675" target="_blank">acejoe 发表于 2018-3-30 16:22</a>
@@ -22492,25 +15596,13 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 够一本单行本就休……一般都是这套路
 
 
-
-
-
-
-
 -----
 
 ####  manyin1  
 ##### 2541#       发表于 2018-3-30 16:32
 
 
-
-
 这几话一点都不带感
-
-
-
-
-
 
 
 -----
@@ -22519,16 +15611,10 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2542#       发表于 2018-3-30 16:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39034137&amp;ptid=1505675" target="_blank">acejoe 发表于 2018-3-30 16:22</a>
 
 是说休载的时机是编辑决定的，富奸是在一年内画出个好几话，然后编辑决定什么时候放出来什么时候休载 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/158.png" referrerpolicy="no-referrer">还有这种操作……
-
-
-
-
-
 
 
 -----
@@ -22537,15 +15623,7 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2543#       发表于 2018-3-30 16:36
 
 
-
-
 感觉这些角色里。。最好跟上的就是牛的思路
-
-
-
-
-
-
 
 
 -----
@@ -22554,15 +15632,7 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2544#       发表于 2018-3-30 16:46
 
 
-
-
 看了本话，我更不认为得伊尔迷是西索乔装的，至少我没觉得有柯特背叛旅团隐瞒西索的理由。
-
-
-
-
-
-
 
 
 -----
@@ -22571,14 +15641,7 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2545#       发表于 2018-3-30 17:02
 
 
-
-
 大哥的vip票是哪来的？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22587,14 +15650,7 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2546#       发表于 2018-3-30 17:06
 
 
-
-
 揍敌客兄弟几人，感觉除了奇犽和许愿机，都是很正常的兄弟关系啊
-
-
-
-
-
 
 
 -----
@@ -22603,14 +15659,7 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2547#       发表于 2018-3-30 17:21
 
 
-
-
 干，好不容易剧一点点展开了结果又休刊
-
-
-
-
-
 
 
 -----
@@ -22619,17 +15668,10 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2548#       发表于 2018-3-30 18:12
 
 
-
-
 富坚真的是厉害，区区一话的篇幅就有了这样千头万绪的展开，给跪了<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
 
 话说俩揍敌客怎么这么配合啊？是因为因反抗而杀人毫无收益么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22638,14 +15680,7 @@ Shonen Jump Issue 19 will have Haikyu!! on the cover and lead color pages. Meanw
 ##### 2549#       发表于 2018-3-30 18:17
 
 
-
-
 fj为啥老是写一堆车轱辘话哟 
-
-
-
-
-
 
 
 -----
@@ -22654,16 +15689,10 @@ fj为啥老是写一堆车轱辘话哟
 ##### 2550#       发表于 2018-3-30 18:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39034684&amp;ptid=1505675" target="_blank">waster112 发表于 2018-3-30 17:02</a>
 
 大哥的vip票是哪来的？</blockquote>
 猎人特权吧
-
-
-
-
-
 
 
 -----
@@ -22672,15 +15701,9 @@ fj为啥老是写一堆车轱辘话哟
 ##### 2551#       发表于 2018-3-30 19:09
 
 
-
  本帖最后由 cdfjg 于 2018-3-30 19:13 编辑 
 
 牛为什么看到揍敌客兄弟就直接问旅团的事，也许是作为揍敌客家族出的任务呢
-
-
-
-
-
 
 
 -----
@@ -22689,23 +15712,16 @@ fj为啥老是写一堆车轱辘话哟
 ##### 2552#       发表于 2018-3-30 19:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39036131&amp;ptid=1505675" target="_blank">cdfjg 发表于 2018-3-30 19:09</a>
 
 牛为什么看到揍敌客兄弟就直接问旅团的事，应该没普通人知道旅团新加这两个人吧 ...</blockquote>
 漫画后面说了协会早已经知道五弟加入了，只是不知道大哥也加入了而已
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2553#       发表于 2018-3-30 19:17
-
 
 
 <blockquote>cdfjg 发表于 2018-3-30 19:09
@@ -22716,26 +15732,15 @@ fj为啥老是写一堆车轱辘话哟
 这么说来，柯特应该已经跟旅团干过几次活动，才会让牛牛列入旅团名单。
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 2554#       发表于 2018-3-30 19:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39036171&amp;ptid=1505675" target="_blank">川川子 发表于 2018-3-30 19:13</a>
 漫画后面说了协会早已经知道五弟加入了，只是不知道大哥也加入了而已</blockquote>
 所以我改了下，他们首先是暗杀家族，我觉得在船上也很正常，就算是旅团身份，也不一定应该觉得是旅团统一行动吧
-
-
-
-
-
 
 
 -----
@@ -22744,14 +15749,7 @@ fj为啥老是写一堆车轱辘话哟
 ##### 2555#       发表于 2018-3-30 19:20
 
 
-
-
 说起来，信长果然是旅团的正常人。“不会白占你们便宜。”
-
-
-
-
-
 
 
 -----
@@ -22760,14 +15758,7 @@ fj为啥老是写一堆车轱辘话哟
 ##### 2556#       发表于 2018-3-30 19:20
 
 
-
-
 比如说马哈（或者杰诺）和科特一起出现在这里，牛还会问旅团的事吗
-
-
-
-
-
 
 
 -----
@@ -22776,14 +15767,7 @@ fj为啥老是写一堆车轱辘话哟
 ##### 2557#       发表于 2018-3-30 19:21
 
 
-
-
 或许牛只是看到柯特顺口问了句旅团来没来，没想到伊尔迷直接爆料了
-
-
-
-
-
 
 
 -----
@@ -22792,23 +15776,15 @@ fj为啥老是写一堆车轱辘话哟
 ##### 2558#       发表于 2018-3-30 19:24
 
 
-
 <blockquote>cdfjg 发表于 2018-3-30 19:20
 比如说马哈（或者杰诺）和科特一起出现在这里，牛还会问旅团的事吗</blockquote>
 估计牛牛知道伊尔迷和前团员西索的关系？
-
-
-
-
-
 
 
 -----
 
 ####  C男人  
 ##### 2559#       发表于 2018-3-30 19:35
-
-
 
 
 之前11王子的剧情是 “一天只能试一次，所以要尽量摸透能力的规则”。
@@ -22819,17 +15795,10 @@ fj为啥老是写一堆车轱辘话哟
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  daizhenye  
 ##### 2560#       发表于 2018-3-30 20:18
-
-
 
 
 暴风搬规模的新人物入场，看的很晕但是很激动
@@ -22844,16 +15813,10 @@ fj为啥老是写一堆车轱辘话哟
 等了一年等到旅团终于行动了，明年大概能看到第10王子的逃跑计划吧，也有可能看牛哥追犯人看一年，然后旅团和西索碰上要三年以后<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  klzxs  
 ##### 2561#       发表于 2018-3-30 23:08
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这次十话全是人物介绍介绍介绍 
@@ -22863,16 +15826,10 @@ fj为啥老是写一堆车轱辘话哟
 这话难得感觉有趣了要开始说事了 休刊
 
 
-
-
-
-
-
 -----
 
 ####  klzxs  
 ##### 2562#       发表于 2018-3-30 23:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39033861&amp;ptid=1505675" target="_blank">nxh1999 发表于 2018-3-30 16:02</a>
@@ -22881,25 +15838,13 @@ fj为啥老是写一堆车轱辘话哟
 他们也不会知道酷拉皮卡在船上吧
 
 
-
-
-
-
-
 -----
 
 ####  傍水伐檀  
 ##### 2563#       发表于 2018-3-31 01:07
 
 
-
-
 按照楼上的说法现在还有存稿，也就是说只要fj加油爆肝画到下一个编辑认为可以断的剧情节点，复刊就指日可待了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22908,23 +15853,15 @@ fj为啥老是写一堆车轱辘话哟
 ##### 2564#       发表于 2018-3-31 10:34
 
 
-
-
 下层被人开口子和上层宴会同时开始
 
 继承战强制进行，四王子全场压制
-
-
-
-
-
 
 
 -----
 
 ####  icecry  
 ##### 2565#       发表于 2018-3-31 10:57
-
 
 
  本帖最后由 icecry 于 2018-3-31 10:59 编辑 
@@ -22935,25 +15872,13 @@ fj为啥老是写一堆车轱辘话哟
 牛哥不会不知道旅团跟西索的事吧，还是西索现在对不知情的人来说是已死状态？
 
 
-
-
-
-
-
 -----
 
 ####  加里波第  
 ##### 2566#       发表于 2018-3-31 11:19
 
 
-
-
 现在有好几个能力可以引爆20万平民暴乱  六王子的洗脑烟  大哥的针人偶  团长的炸弹 私生女的口水传销
-
-
-
-
-
 
 
 -----
@@ -22962,14 +15887,7 @@ fj为啥老是写一堆车轱辘话哟
 ##### 2567#       发表于 2018-3-31 13:06
 
 
-
-
 伊尔迷选举搞了这么多事情居然见到还不抓？
-
-
-
-
-
 
 
 -----
@@ -22978,15 +15896,9 @@ fj为啥老是写一堆车轱辘话哟
 ##### 2568#       发表于 2018-3-31 13:14
 
 
-
 <blockquote>睚眦 发表于 2018-3-30 00:09
 所以富坚的腰到底好没好？休刊到底是不是全都因为腰？</blockquote>
 他己经52岁了，而且身上有大病可能还有各种小病痛，现在猎人就是和他的身体比赛
-
-
-
-
-
 
 
 -----
@@ -22995,16 +15907,9 @@ fj为啥老是写一堆车轱辘话哟
 ##### 2569#       发表于 2018-3-31 13:26
 
 
-
-
 搞不好11王子的能力是许愿式的。通向最能帮助他实现愿望的人。
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -23013,15 +15918,8 @@ fj为啥老是写一堆车轱辘话哟
 ##### 2570#       发表于 2018-3-31 13:44
 
 
-
-
 明明是很多军界的上年纪的人，但好像不知道卡金选王会发生什么事一样，还要外人来点破。
 前段时间还看到说另一部著名漫画里的龙套就会大惊小怪和赞美主角，我看猎人里也一样
-
-
-
-
-
 
 
 -----
@@ -23030,15 +15928,9 @@ fj为啥老是写一堆车轱辘话哟
 ##### 2571#       发表于 2018-3-31 14:41
 
 
-
 <blockquote>cdfjg 发表于 2018-3-30 19:17
 所以我改了下，他们首先是暗杀家族，我觉得在船上也很正常，就算是旅团身份，也不一定应该觉得是旅团统一 ...</blockquote>
 所以他就是问一下，结果大哥主动说了
-
-
-
-
-
 
 
 -----
@@ -23047,14 +15939,7 @@ fj为啥老是写一堆车轱辘话哟
 ##### 2572#       发表于 2018-3-31 14:55
 
 
-
-
 手段高级了点
-
-
-
-
-
 
 
 -----
@@ -23063,17 +15948,10 @@ fj为啥老是写一堆车轱辘话哟
 ##### 2573#       发表于 2018-3-31 18:27
 
 
-
-
 11王子的能力和牛连上了，酷拉皮卡心心念念的逃脱手段get，不过最后肯定要触发念兽的制约要有关要么死自己要么死最喜欢的人
 
 
 旅团那边基本要在这章单独混沌中立了，很多杀人升等的杂兵就由旅团搞定，就看西索这个炸弹怎么了，一出场看肯定就打得全船都要翻
-
-
-
-
-
 
 
 -----
@@ -23082,16 +15960,10 @@ fj为啥老是写一堆车轱辘话哟
 ##### 2574#       发表于 2018-4-2 15:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39046135&amp;ptid=1505675" target="_blank">阿虚家的三味 发表于 2018-3-31 18:27</a>
 
 11王子的能力和牛连上了，酷拉皮卡心心念念的逃脱手段get，不过最后肯定要触发念兽的制约要有关要么死自己 ...</blockquote>
 已经提过空间系需要事先“标记”了，往哪里逃，下层船炸了还不是得逃回一层
-
-
-
-
-
 
 
 -----
@@ -23100,16 +15972,10 @@ fj为啥老是写一堆车轱辘话哟
 ##### 2575#       发表于 2018-4-2 16:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39068407&amp;ptid=1505675" target="_blank">影子渡客 发表于 2018-4-2 15:34</a>
 
 已经提过空间系需要事先“标记”了，往哪里逃，下层船炸了还不是得逃回一层 ...</blockquote>
 11王子逃到3层肯定没标记过啊，那就是一个可能性说不定能直接开门到路过的别的船或者下船，不过应该有别的条件比如有目的地印象什么的
-
-
-
-
-
 
 
 -----
@@ -23118,15 +15984,9 @@ fj为啥老是写一堆车轱辘话哟
 ##### 2576#       发表于 2018-4-2 17:00
 
 
-
 <blockquote>影子渡客 发表于 2018-4-2 15:34
 已经提过空间系需要事先“标记”了，往哪里逃，下层船炸了还不是得逃回一层 ...</blockquote>
 上两话，月牙男分析自己的能力时说了，他的能力能够通往自己抵达过的地方，甚至可能通往船以外的地方。可见，空间系念能力的“标记”可能也分为主动型和被动型吧。
-
-
-
-
-
 
 
 -----
@@ -23135,23 +15995,16 @@ fj为啥老是写一堆车轱辘话哟
 ##### 2577#       发表于 2018-4-2 18:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39069385&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-4-2 17:00</a>
 
 上两话，月牙男分析自己的能力时说了，他的能力能够通往自己抵达过的地方，甚至可能通往船以外的地方。可 ...</blockquote>
 月牙男是在上船后获得能力的……，现在没有通往船外的能力吧。
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2578#       发表于 2018-4-2 18:32
-
 
 
 <blockquote>奇_伢 发表于 2018-4-2 18:16
@@ -23165,32 +16018,19 @@ fj为啥老是写一堆车轱辘话哟
 说起来，上位阶层有各种特权。说不定连逃生船都能占有。我觉得三大黑帮都有私用逃生船也不奇怪。所以私生女那帮感染者才不怕在船上大开杀戒。或许他们全是中二病？
 
 
-
-
-
-
-
 -----
 
 ####  烤鱼饼  
 ##### 2579#       发表于 2018-4-2 20:32
 
 
-
-
 休刊了，标题是不是该改一下了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  阿刚  
 ##### 2580#       发表于 2018-4-2 20:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39070400&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-4-2 18:32</a>
@@ -23202,25 +16042,13 @@ fj为啥老是写一堆车轱辘话哟
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">那帮感染者……怕真的全是脑子有问题的中二病……
 
 
-
-
-
-
-
 -----
 
 ####  我爱喵喵  
 ##### 2581#       发表于 2018-4-2 21:24
 
 
-
-
 十话的快乐时光就这么结束了，下次刊载又要再等一年了吗
-
-
-
-
-
 
 
 -----
@@ -23229,16 +16057,10 @@ fj为啥老是写一堆车轱辘话哟
 ##### 2582#       发表于 2018-4-2 21:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39072183&amp;ptid=1505675" target="_blank">我爱喵喵 发表于 2018-4-2 21:24</a>
 
 十话的快乐时光就这么结束了，下次刊载又要再等一年了吗</blockquote>
 这么乐观吗
-
-
-
-
-
 
 
 -----
@@ -23247,16 +16069,10 @@ fj为啥老是写一堆车轱辘话哟
 ##### 2583#       发表于 2018-4-2 23:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39071678&amp;ptid=1505675" target="_blank">烤鱼饼 发表于 2018-4-2 20:32</a>
 
 休刊了，标题是不是该改一下了</blockquote>
 <img src="https://wx2.sinaimg.cn/mw1024/6f31956bly1fpyqqhnseuj20in0bxjru.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23265,23 +16081,15 @@ fj为啥老是写一堆车轱辘话哟
 ##### 2584#       发表于 2018-4-3 01:33
 
 
-
-
 索性TMD转月刊
 
 大家也有个盼头
-
-
-
-
-
 
 
 -----
 
 ####  晓寒  
 ##### 2585#       发表于 2018-4-5 19:14
-
 
 
  本帖最后由 晓寒 于 2018-4-5 19:15 编辑 
@@ -23291,16 +16099,10 @@ fj为啥老是写一堆车轱辘话哟
 想找时间把之前连载看的蚂蚁篇重新看一遍，好像单行本对画面有修正。找来找去都只有港版的，翻译看不习惯……晚上搜来搜去都找不到完整的台版扫本，华语第一哪位菊苣能给个下载吗？
 
 
-
-
-
-
-
 -----
 
 ####  不想起名字  
 ##### 2586#       发表于 2018-4-5 20:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39104377&amp;ptid=1505675" target="_blank">晓寒 发表于 2018-4-5 19:14</a>
@@ -23313,13 +16115,9 @@ fj为啥老是写一堆车轱辘话哟
 密码sux9
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +2
@@ -23330,12 +16128,7 @@ fj为啥老是写一堆车轱辘话哟
 | 晓寒| + 1|谢谢茄子|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -23344,22 +16137,15 @@ fj为啥老是写一堆车轱辘话哟
 ##### 2587#       发表于 2018-4-5 21:48
 
 
-
  本帖最后由 酷乐 于 2018-4-5 21:56 编辑 
 
 380话那个断面图……请问这船的动力区域在哪……
-
-
-
-
-
 
 
 -----
 
 ####  top2000  
 ##### 2588#       发表于 2018-4-6 05:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39074513&amp;ptid=1505675" target="_blank">kanmanhua 发表于 2018-4-3 01:33</a>
@@ -23369,16 +16155,10 @@ fj为啥老是写一堆车轱辘话哟
 一前也提过 不知道为何fj不转月刊 毕竟年纪大了
 
 
-
-
-
-
-
 -----
 
 ####  top2000  
 ##### 2589#       发表于 2018-4-6 06:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39105843&amp;ptid=1505675" target="_blank">酷乐 发表于 2018-4-5 21:48</a>
@@ -23389,17 +16169,10 @@ fj为啥老是写一堆车轱辘话哟
 船是具现化出来的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2590#       发表于 2018-4-16 15:36
-
-
 
 
 两篇关于富坚访谈的博文很有趣，转过来。3000老师说的富坚开拓jump女性市场的说法应该是出自后藤广喜的书吧。
@@ -23408,7 +16181,6 @@ fj为啥老是写一堆车轱辘话哟
 https://m.weibo.cn/status/4229046222464745?luicode=10000370
 
 https://media.weibo.cn/article?id=2309404229178814821180
-
 
 
 配合展览，第四代JUMP主编后藤广喜出了一本书：「少年ジャンプ」 黄金のキセキ（《少年JUMP》黄金的奇迹）
@@ -23441,11 +16213,7 @@ https://media.weibo.cn/article?id=2309404229178814821180
 4　老贼对JUMP的看法，买了公式图录，内容比较丰富详实。目标今天晚上总结发出来。
 
 
-
-
-
 少年JUMP展VOL.2公式图录富坚义博采访拔萃
-
 
 
 不思议笔记
@@ -23490,26 +16258,13 @@ https://media.weibo.cn/article?id=2309404229178814821180
 ​
 
 
-
-
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2591#         楼主| 发表于 2018-5-1 23:49
 
 
-
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fqw9uifzetj20vj0i8e81.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23518,16 +16273,9 @@ https://media.weibo.cn/article?id=2309404229178814821180
 ##### 2592#       发表于 2018-5-1 23:56
 
 
-
-
 好图啊，可惜蚂蚁侧被挡上了……
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">西索那个❤还真是蛮亮眼的。
-
-
-
-
-
 
 
 -----
@@ -23536,14 +16284,7 @@ https://media.weibo.cn/article?id=2309404229178814821180
 ##### 2593#       发表于 2018-5-2 00:06
 
 
-
-
 心跳都漏了几拍，还以为老贼又开挖了。
-
-
-
-
-
 
 
 -----
@@ -23552,14 +16293,8 @@ https://media.weibo.cn/article?id=2309404229178814821180
 ##### 2594#       发表于 2018-5-2 00:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39444227&amp;ptid=1505675" target="_blank">xingenge 发表于 2018-5-1 23:49</a></blockquote>
 剑道小林这个节目哪里能看得到呢？
-
-
-
-
-
 
 
 -----
@@ -23568,16 +16303,10 @@ https://media.weibo.cn/article?id=2309404229178814821180
 ##### 2595#         楼主| 发表于 2018-5-2 01:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39444533&amp;ptid=1505675" target="_blank">燃夜郎君 发表于 2018-5-2 00:53</a>
 
 剑道小林这个节目哪里能看得到呢？</blockquote>
 可能有人录，不知道会不会放出来
-
-
-
-
-
 
 
 -----
@@ -23586,15 +16315,9 @@ https://media.weibo.cn/article?id=2309404229178814821180
 ##### 2596#       发表于 2018-5-2 06:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39255858&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-4-16 15:36</a>
 两篇关于富坚访谈的博文很有趣，转过来。3000老师说的富坚开拓jump女性市场的说法应该是出自后藤广喜的书吧 ...</blockquote>
 现在调查表对富坚来说没意义了，那也不算乐园了吧
-
-
-
-
-
 
 
 -----
@@ -23603,24 +16326,16 @@ https://media.weibo.cn/article?id=2309404229178814821180
 ##### 2597#       发表于 2018-5-2 08:09
 
 
-
-
 "大二发现自己不适应社会，但是却乐在其中"
 
 
 很羡慕这种这么早能发现自己的人，而且他还很确定
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2598#       发表于 2018-5-2 08:40
-
 
 
 <blockquote>daizhenye 发表于 2018-5-2 08:09
@@ -23631,16 +16346,10 @@ https://media.weibo.cn/article?id=2309404229178814821180
 印象中富坚说过，直到50岁前他都是不善于与外人社交交际的人。不过漫画家这行大多是这样吧。
 
 
-
-
-
-
-
 -----
 
 ####  daizhenye  
 ##### 2599#       发表于 2018-5-2 09:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39445672&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-05-02 08:40:20</a>
@@ -23653,17 +16362,10 @@ https://media.weibo.cn/article?id=2309404229178814821180
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 2600#       发表于 2018-5-25 20:36
-
-
 
 
 https://m.weibo.cn/status/4243572125516978
@@ -23711,32 +16413,20 @@ https://m.weibo.cn/status/4243572125516978
 (出处: TalkOP海道-海贼王论坛)
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 2601#       发表于 2018-5-25 20:39
 
 
-
 <blockquote>可能不是我先死就是猎人先结束</blockquote>
 老贼你还想着刚刚好画下最后一笔然后自己断气么……
-
-
-
-
-
 
 
 -----
 
 ####  cdfjg  
 ##### 2602#       发表于 2018-5-25 21:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39772234&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-5-25 20:36</a>
@@ -23747,16 +16437,10 @@ https://m.weibo.cn/status/4243572125516978
 以前的漫画杂志总喜欢猜富坚不喜欢小杰，更偏爱幻影旅团之类的。我觉得这样有趣角色不会不喜欢吧
 
 
-
-
-
-
-
 -----
 
 ####  mosku  
 ##### 2603#       发表于 2018-5-25 22:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39772234&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-5-25 20:36</a>
@@ -23775,25 +16459,13 @@ https://m.weibo.cn/status/4243572125516978
 = - 很快就会实现你妹啊………………
 
 
-
-
-
-
-
 -----
 
 ####  秘银之厅  
 ##### 2604#       发表于 2018-5-25 22:35
 
 
-
-
 以前还想着兴许10年后猎人就完结了，富奸这劲头是要冲着40年去了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23802,22 +16474,13 @@ https://m.weibo.cn/status/4243572125516978
 ##### 2605#       发表于 2018-5-25 22:50
 
 
-
-
 富坚的意思，是猎人在选举篇小杰见到金就可以当作收尾了吧。之后的故事是他作为作者和读者想继续画的。所以等不了年刊的读者完全可以把选举篇当作结局了。感觉富坚是这个意思。
-
-
-
-
-
-
 
 
 -----
 
 ####  肩上的乌鸦  
 ##### 2606#       发表于 2018-5-25 23:15
-
 
 
 <blockquote>xingenge 发表于 2018-5-1 23:49
@@ -23828,32 +16491,19 @@ https://m.bilibili.com/video/av23890106.html?share_medium=android&amp;share_sour
 生肉出了
 
 
-
-
-
-
-
 -----
 
 ####  Case  
 ##### 2607#       发表于 2018-5-26 00:57
 
 
-
-
 新版动画正好做到了选举篇嘛。和旧版相比确实也可以算作是一个稍微完整一些的故事了。
-
-
-
-
-
 
 
 -----
 
 ####  cdfjg  
 ##### 2608#       发表于 2018-5-28 11:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39773623&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-05-25 23:15:50</a>
@@ -23864,16 +16514,10 @@ https://m.bilibili.com/video/av23890106.html?share_medium=android&amp;share_sour
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Case  
 ##### 2609#       发表于 2018-6-15 11:36
-
 
 
  本帖最后由 Case 于 2018-6-15 11:38 编辑 
@@ -23886,25 +16530,13 @@ https://m.bilibili.com/video/av23890106.html?share_medium=android&amp;share_sour
 老贼左下角这个给JUMP展画的图还挺可爱。可惜没大图。
 
 
-
-
-
-
-
 -----
 
 ####  黑岩泪香  
 ##### 2610#       发表于 2018-6-15 11:39
 
 
-
-
 換換髮型不就是奇犽跟岡嗎？
-
-
-
-
-
 
 
 -----
@@ -23913,16 +16545,10 @@ https://m.bilibili.com/video/av23890106.html?share_medium=android&amp;share_sour
 ##### 2611#       发表于 2018-6-15 11:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39997483&amp;ptid=1505675" target="_blank">黑岩泪香 发表于 2018-6-15 11:39</a>
 
 換換髮型不就是奇犽跟岡嗎？</blockquote>
 就是奇犽和小杰COS的团长和西索啊。
-
-
-
-
-
 
 
 -----
@@ -23931,25 +16557,16 @@ https://m.bilibili.com/video/av23890106.html?share_medium=android&amp;share_sour
 ##### 2612#       发表于 2018-6-15 11:43
 
 
-
-
 看到这个帖子上来心跳都漏了半拍
 
 
 点开之后瞬间平静了
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2613#         楼主| 发表于 2018-7-26 14:41
-
-
 
 
 日常
@@ -23960,25 +16577,13 @@ https://m.bilibili.com/video/av23890106.html?share_medium=android&amp;share_sour
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftn98euwl1j20p00xc46n.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  金星  
 ##### 2614#       发表于 2018-7-26 15:39
 
 
-
-
 富奸吔屎啦<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23987,17 +16592,10 @@ https://m.bilibili.com/video/av23890106.html?share_medium=android&amp;share_sour
 ##### 2615#       发表于 2018-7-26 15:51
 
 
-
-
 画画是什么
 
 
 先把花送了
-
-
-
-
-
 
 
 -----
@@ -24006,14 +16604,7 @@ https://m.bilibili.com/video/av23890106.html?share_medium=android&amp;share_sour
 ##### 2616#       发表于 2018-7-26 17:01
 
 
-
-
 eat shit<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24022,13 +16613,7 @@ eat shit<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" re
 ##### 2617#       发表于 2018-7-26 17:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别这样
-
-
-
-
-
 
 
 -----
@@ -24037,14 +16622,7 @@ eat shit<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" re
 ##### 2618#       发表于 2018-7-26 17:32
 
 
-
-
 又送花了，老贼和这些地方有什么不可告人的关系吗
-
-
-
-
-
 
 
 -----
@@ -24053,14 +16631,7 @@ eat shit<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" re
 ##### 2619#       发表于 2018-7-26 17:47
 
 
-
-
 别到追星追到最后最后出丑闻啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24069,14 +16640,7 @@ eat shit<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" re
 ##### 2620#       发表于 2018-7-26 17:49
 
 
-
-
 吓得我以为宣布年内复刊了。。要不要这样
-
-
-
-
-
 
 
 -----
@@ -24085,13 +16649,7 @@ eat shit<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" re
 ##### 2621#         楼主| 发表于 2018-9-4 23:11
 
 
-
 <img src="http://wx3.sinaimg.cn/large/0068TvVBgy1fuxwr56hbjj30no0thdln.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24100,14 +16658,7 @@ eat shit<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" re
 ##### 2622#       发表于 2018-9-4 23:13
 
 
-
-
 复刊了啊<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24116,13 +16667,7 @@ eat shit<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" re
 ##### 2623#         楼主| 发表于 2018-9-4 23:17
 
 
-
 <img src="http://wx2.sinaimg.cn/large/0068TvVBgy1fuxx18d5eqj30ud0npdpl.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24131,16 +16676,9 @@ eat shit<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" re
 ##### 2624#       发表于 2018-9-4 23:17
 
 
-
-
 隔5个月就复刊！！！
 
 如今几大坑王中最良心的就是富奸了
-
-
-
-
-
 
 
 -----
@@ -24149,14 +16687,7 @@ eat shit<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" re
 ##### 2625#       发表于 2018-9-4 23:19
 
 
-
-
 突然复刊，可以<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24165,14 +16696,7 @@ eat shit<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" re
 ##### 2626#       发表于 2018-9-4 23:31
 
 
-
-
 可以可以
-
-
-
-
-
 
 
 -----
@@ -24181,14 +16705,7 @@ eat shit<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" re
 ##### 2627#       发表于 2018-9-4 23:38
 
 
-
-
 说了年内，我富坚哥哥骗过你么
-
-
-
-
-
 
 
 -----
@@ -24197,14 +16714,7 @@ eat shit<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" re
 ##### 2628#       发表于 2018-9-4 23:44
 
 
-
-
 fj哥哥求求你快让金出场吧<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24213,16 +16723,9 @@ fj哥哥求求你快让金出场吧<img src="https://static.saraba1st.com/image/
 ##### 2629#       发表于 2018-9-4 23:48
 
 
-
-
 来了来了，我赌这次还是十话<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 —— 来自 Meizu 15, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
-
-
-
-
-
 
 
 -----
@@ -24231,14 +16734,7 @@ fj哥哥求求你快让金出场吧<img src="https://static.saraba1st.com/image/
 ##### 2630#       发表于 2018-9-4 23:49
 
 
-
-
 卧槽这个酷拉上色也太惊悚了吧，熟了吗？？
-
-
-
-
-
 
 
 -----
@@ -24247,14 +16743,7 @@ fj哥哥求求你快让金出场吧<img src="https://static.saraba1st.com/image/
 ##### 2631#       发表于 2018-9-4 23:52
 
 
-
-
 我哭了还以为还要等两百多天<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24263,14 +16752,7 @@ fj哥哥求求你快让金出场吧<img src="https://static.saraba1st.com/image/
 ##### 2632#       发表于 2018-9-4 23:53
 
 
-
-
 生活感觉又充满了动力<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24279,14 +16761,7 @@ fj哥哥求求你快让金出场吧<img src="https://static.saraba1st.com/image/
 ##### 2633#       发表于 2018-9-4 23:58
 
 
-
-
 可以看到年底，感觉不错
-
-
-
-
-
 
 
 -----
@@ -24295,16 +16770,9 @@ fj哥哥求求你快让金出场吧<img src="https://static.saraba1st.com/image/
 ##### 2634#       发表于 2018-9-5 00:10
 
 
-
-
 interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
 
 —— 来自 motorola XT1650, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
-
-
-
-
-
 
 
 -----
@@ -24313,15 +16781,8 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2635#       发表于 2018-9-5 00:17
 
 
-
-
 每当一部长篇漫画结束连载，猎人就会复刊。
 因为银魂快要完结，所以猎人撑场了么，我乱说的别信<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24330,14 +16791,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2636#       发表于 2018-9-5 00:44
 
 
-
-
 酷拉皮卡一脸不情愿...
-
-
-
-
-
 
 
 -----
@@ -24346,14 +16800,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2637#       发表于 2018-9-5 00:49
 
 
-
-
 突然坐起）
-
-
-
-
-
 
 
 -----
@@ -24362,21 +16809,13 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2638#       发表于 2018-9-5 00:51
 
 
-
-
 扶我起来
-
-
-
-
-
 
 
 -----
 
 ####  郁夫  
 ##### 2639#       发表于 2018-9-5 01:45
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">肯定是台服影響太大 
@@ -24388,17 +16827,10 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 看獵人的連載
 
 
-
-
-
-
-
 -----
 
 ####  gutzz  
 ##### 2640#       发表于 2018-9-5 04:56
-
-
 
 
 泪，流了下来<img src="https://static.saraba1st.com/image/smiley/carton2017/187.png" referrerpolicy="no-referrer">
@@ -24407,24 +16839,13 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 — from OnePlus ONEPLUS A3010, Android 8.1.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.3
 
 
-
-
-
-
-
 -----
 
 ####  Illidan  
 ##### 2641#       发表于 2018-9-5 05:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">狼来了！
-
-
-
-
-
 
 
 -----
@@ -24433,14 +16854,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2642#       发表于 2018-9-5 06:26
 
 
-
-
 什么？又有十话可以看了？
-
-
-
-
-
 
 
 -----
@@ -24449,14 +16863,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2643#       发表于 2018-9-5 07:30
 
 
-
-
 一年二十话，稳定的节奏<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24465,14 +16872,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2644#       发表于 2018-9-5 07:38
 
 
-
-
 连载再开了，好开心。一年要是能看20话太好了。
-
-
-
-
-
 
 
 -----
@@ -24481,24 +16881,16 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2645#       发表于 2018-9-5 08:11
 
 
-
-
 萨斯噶良心坑王，说年内就年内。
 做猎人厨也有头顶青天的一天<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
 
 —— 来自 HUAWEI JMM-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
 
 
-
-
-
-
-
 -----
 
 ####  daizhenye  
 ##### 2646#       发表于 2018-9-5 08:25
-
 
 
  本帖最后由 daizhenye 于 2018-9-5 08:34 编辑 
@@ -24508,16 +16900,10 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 —— 来自 HUAWEI JMM-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
 
 
-
-
-
-
-
 -----
 
 ####  银翼的维罗西  
 ##### 2647#       发表于 2018-9-5 08:26
-
 
 
  本帖最后由 银翼的维罗西 于 2018-9-5 09:05 编辑 
@@ -24527,26 +16913,13 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 库拉这张图配色有点凄凉啊，那两片落叶不会是凋零的意思吧
 
 
-
-
-
-
-
-
 -----
 
 ####  dbrother  
 ##### 2648#       发表于 2018-9-5 08:27
 
 
-
-
 可以了 四舍五入也算是半月刊了
-
-
-
-
-
 
 
 -----
@@ -24555,14 +16928,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2649#       发表于 2018-9-5 09:04
 
 
-
-
 福建哥哥骗过你么
-
-
-
-
-
 
 
 -----
@@ -24571,16 +16937,9 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2650#       发表于 2018-9-5 09:19
 
 
-
-
 什么，原来是真的！
 
 还以为有人挖坟<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24589,14 +16948,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2651#       发表于 2018-9-5 10:53
 
 
-
-
 我下楼跑三十圈！！！
-
-
-
-
-
 
 
 -----
@@ -24605,16 +16957,9 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2652#       发表于 2018-9-5 11:31
 
 
-
-
 惊了看到楼里还有这个表情<img src="https://static.saraba1st.com/image/smiley/carton2017/187.png" referrerpolicy="no-referrer">
 
 可以，很喜欢。
-
-
-
-
-
 
 
 -----
@@ -24623,14 +16968,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2653#       发表于 2018-9-5 11:34
 
 
-
-
 1年20话，良心坑王！
-
-
-
-
-
 
 
 -----
@@ -24639,13 +16977,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2654#       发表于 2018-9-5 11:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/182.png" referrerpolicy="no-referrer">已经没有什么好怕的了
-
-
-
-
-
 
 
 -----
@@ -24654,16 +16986,9 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2655#       发表于 2018-9-5 11:37
 
 
-
-
 老贼居然没有鸽<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 — from HMD Global Nokia 7 plus, Android 8.1.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.3-play
-
-
-
-
-
 
 
 -----
@@ -24672,14 +16997,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2656#       发表于 2018-9-5 11:57
 
 
-
-
 我说的吧！这十话才是去年画的！之前都是积稿！
-
-
-
-
-
 
 
 -----
@@ -24688,14 +17006,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2657#       发表于 2018-9-5 12:09
 
 
-
-
 一年要是有二十话，等于超过月刊，其实平均一点连载更好吧。
-
-
-
-
-
 
 
 -----
@@ -24704,14 +17015,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2658#       发表于 2018-9-5 12:47
 
 
-
-
 小杰开了那么大的挂都没给写死，库拉皮卡很安全的啦<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24720,13 +17024,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2659#       发表于 2018-9-5 13:00
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">感觉内心已经毫无波动了
-
-
-
-
-
 
 
 -----
@@ -24735,13 +17033,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2660#       发表于 2018-9-5 19:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/181.png" referrerpolicy="no-referrer">←会看到他么？
-
-
-
-
-
 
 
 -----
@@ -24750,14 +17042,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2661#       发表于 2018-9-5 21:26
 
 
-
-
 哎呦，这就就有新的10话了？
-
-
-
-
-
 
 
 -----
@@ -24766,16 +17051,9 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2662#       发表于 2018-9-5 21:36
 
 
-
-
 正好前几天刚温习过之前的剧情，这次不会开头一套哲学三问了吧。
 
 有本事再来一句“蔷薇是有毒的”，然后船沉了。
-
-
-
-
-
 
 
 -----
@@ -24784,16 +17062,10 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2663#       发表于 2018-9-5 22:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40873334&amp;ptid=1505675" target="_blank">光酱 发表于 2018-9-5 19:29</a>
 
 ←会看到他么？</blockquote>
 复刊那期的酱噗封面应该会有他
-
-
-
-
-
 
 
 -----
@@ -24802,16 +17074,10 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2664#       发表于 2018-9-5 22:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40864355&amp;ptid=1505675" target="_blank">Snaky 发表于 2018-9-4 23:58</a>
 
 可以看到年底，感觉不错</blockquote>
 天真，这可是富坚，10话就该知足啦。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24820,14 +17086,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2665#       发表于 2018-9-18 22:52
 
 
-
-
 最新一卷 vol 36的封面出来了，居然是旅团全员的玩偶照，和12卷的封面风格很相似，就是全员表情或怒或悲，都笑不出来了。
-
-
-
-
-
 
 
 -----
@@ -24836,24 +17095,15 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2666#       发表于 2018-9-18 23:04
 
 
-
-
 缺德封面 
 
 等全员死的差不多了还可以再骗一期封面
-
-
-
-
-
 
 
 -----
 
 ####  正乂  
 ##### 2667#       发表于 2018-9-19 08:11
-
-
 
 
 12卷
@@ -24868,13 +17118,9 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 <img src="https://wx3.sinaimg.cn/mw690/7c8d0515gy1fvds60fsokj20tz1c9tif.jpg" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +3
@@ -24885,12 +17131,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 | 冨樫義博| + 1|善|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -24899,14 +17140,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2668#       发表于 2018-9-19 08:18
 
 
-
-
 团灭预定，不如猜非旅团方的存活情况吧
-
-
-
-
-
 
 
 -----
@@ -24915,23 +17149,15 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2669#       发表于 2018-9-19 09:32
 
 
-
-
 侠客库碧派克诺坦那三朵花太缺德了叭<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 — from OnePlus ONEPLUS A3010, Android 8.1.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.3
-
-
-
-
-
 
 
 -----
 
 ####  daizhenye  
 ##### 2670#       发表于 2018-9-19 10:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41008342&amp;ptid=1505675" target="_blank">正乂 发表于 2018-9-19 08:11</a>
@@ -24941,27 +17167,15 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 —— 来自 HUAWEI JMM-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
 
 
-
-
-
-
-
 -----
 
 ####  金星  
 ##### 2671#       发表于 2018-9-19 10:30
 
 
-
-
 有可能出到72吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 —— 来自 motorola XT1650, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
-
-
-
-
-
 
 
 -----
@@ -24970,15 +17184,9 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2672#       发表于 2018-9-19 11:21
 
 
-
 <blockquote>小黑鱼 发表于 2018-9-19 08:18
 团灭预定，不如猜非旅团方的存活情况吧</blockquote>
 除了信长，其他的赶紧死光
-
-
-
-
-
 
 
 -----
@@ -24987,14 +17195,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2673#       发表于 2018-9-19 11:26
 
 
-
-
 不停刷微博刷新情报<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25003,14 +17204,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2674#       发表于 2018-9-19 11:41
 
 
-
-
 我现在非常期待黑暗大陆剧情，有了怪物猎人黑暗之魂荒野之吹，相信富奸创作出一个新大陆的故事毫无问题，就只需要旅团赶紧死，让喜欢冒险的酷拉皮卡赶紧投入新的旅途。
-
-
-
-
-
 
 
 -----
@@ -25019,15 +17213,9 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2675#       发表于 2018-9-19 11:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41008378&amp;ptid=1505675" target="_blank">小黑鱼 发表于 2018-9-19 02:18</a>
 团灭预定，不如猜非旅团方的存活情况吧</blockquote>
 我猜王子至少死四个，二王子死得最早没跑了
-
-
-
-
-
 
 
 -----
@@ -25036,15 +17224,8 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2676#         楼主| 发表于 2018-9-19 14:32
 
 
-
-
 转情报师
 <img src="http://wx1.sinaimg.cn/large/bcfcde0agy1fvetx3eq8bj20p00xc0yj.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25053,14 +17234,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2677#       发表于 2018-9-19 14:50
 
 
-
-
 彩图居然是雷欧力…………这是说明他这十话要当主角吗？或者增加一下戏份。
-
-
-
-
-
 
 
 -----
@@ -25069,15 +17243,9 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2678#       发表于 2018-9-19 14:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41012428&amp;ptid=1505675" target="_blank">nxh1999 发表于 2018-9-19 14:50</a>
 彩图居然是雷欧力…………这是说明他这十话要当主角吗？或者增加一下戏份。 ...</blockquote>
 很久以前蚂蚁篇也有库拉和雷欧力吐槽自己出场机会的彩页
-
-
-
-
-
 
 
 -----
@@ -25086,21 +17254,13 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2679#       发表于 2018-9-19 15:24
 
 
-
-
 我现在甚至觉得这船在黑暗大陆根本靠不了岸，最后得靠王子的那个传送能力把几个人传送过去。
-
-
-
-
-
 
 
 -----
 
 ####  天马流星烈拳  
 ##### 2680#       发表于 2018-9-19 16:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41012790&amp;ptid=1505675" target="_blank">jsyyyz 发表于 2018-9-19 15:24</a>
@@ -25111,16 +17271,10 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 —— 来自 Meizu m1 metal, Android 5.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
 
 
-
-
-
-
-
 -----
 
 ####  ynks  
 ##### 2681#       发表于 2018-9-19 16:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41012455&amp;ptid=1505675" target="_blank">陈玉礼 发表于 2018-09-19 14:51:42</a>
@@ -25130,16 +17284,10 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  丘萤之光  
 ##### 2682#       发表于 2018-9-19 16:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41012428&amp;ptid=1505675" target="_blank">nxh1999 发表于 2018-9-19 08:50</a>
@@ -25147,16 +17295,10 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 这三个因为出不了场所以就放张图给大家看看免得忘记谁是主人公了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 2683#       发表于 2018-9-19 16:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41013257&amp;ptid=1505675" target="_blank">天马流星烈拳 发表于 2018-9-19 16:06</a>
@@ -25170,17 +17312,10 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 总之觉得沉船可能性超高
 
 
-
-
-
-
-
 -----
 
 ####  陈玉礼  
 ##### 2684#       发表于 2018-9-19 16:53
-
-
 
 
 转mimicryryu
@@ -25223,25 +17358,13 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 施設兵の一人
 
 
-
-
-
-
-
 -----
 
 ####  Case  
 ##### 2685#       发表于 2018-9-19 16:54
 
 
-
-
 小杰的号还是被封着呢吧。
-
-
-
-
-
 
 
 -----
@@ -25250,14 +17373,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2686#       发表于 2018-9-19 18:11
 
 
-
-
 雷欧力上边两个小孩是谁？漫画里有这俩人么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25266,24 +17382,16 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2687#       发表于 2018-9-19 18:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41014665&amp;ptid=1505675" target="_blank">waster112 发表于 2018-9-19 18:11</a>
 
 雷欧力上边两个小孩是谁？漫画里有这俩人么？</blockquote>
 我赌五毛，这俩小孩是新作主角<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2688#         楼主| 发表于 2018-9-19 19:34
-
-
 
 
 沒人死
@@ -25293,25 +17401,13 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 八王子念獸被異邦人吃 ​​​​
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2689#         楼主| 发表于 2018-9-19 19:38
 
 
-
-
 のり弁とお菓子が食べたくなり、深夜コンビニへ。独身の様な食事は少々罪悪感＜義博＞ ​​​​
-
-
-
-
-
 
 
 -----
@@ -25320,15 +17416,9 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2690#       发表于 2018-9-19 19:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41010503&amp;ptid=1505675" target="_blank">燃夜郎君 发表于 2018-9-19 11:41</a>
 我现在非常期待黑暗大陆剧情，有了怪物猎人黑暗之魂荒野之吹，相信富奸创作出一个新大陆的故事毫无问题，就 ...</blockquote>
 以目前插的旗看 酷拉八成凉了 旅团估计能剩一到两个 西索很安全
-
-
-
-
-
 
 
 -----
@@ -25337,14 +17427,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2691#       发表于 2018-9-19 19:59
 
 
-
-
 所以老八这算是凉了？不知道念兽有没有反杀的可能
-
-
-
-
-
 
 
 -----
@@ -25353,14 +17436,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2692#       发表于 2018-9-19 20:18
 
 
-
-
 没翻前面就想起来八王子是哪个啦！耶！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25369,22 +17445,13 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2693#       发表于 2018-9-19 20:47
 
 
-
-
 图出来了，感觉老八的念兽随时都会破腹而出啊
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2694#         楼主| 发表于 2018-9-19 20:52
-
-
 
 
 转情报师，前面在敲字忘了发
@@ -25395,33 +17462,19 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 <img src="http://wx4.sinaimg.cn/large/bcfcde0agy1fvf4ewl5j3j20kv0v8qey.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  stygianlunar  
 ##### 2695#       发表于 2018-9-19 22:29
 
 
-
-
 现在隔的时间一长就得重新翻到前面重看一遍，否则看不懂说的什么了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2696#         楼主| 发表于 2018-9-20 10:14
-
-
 
 
 转情报师
@@ -25433,25 +17486,13 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 <img src="http://wx1.sinaimg.cn/large/bcfcde0agy1fvfs7kzh5ij20nm0loajh.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  nxh1999  
 ##### 2697#       发表于 2018-9-20 10:21
 
 
-
-
 最后那一页上的护卫是大王子派到11王子那里的护卫吗？记不清了，只能拿服装区分了。
-
-
-
-
-
 
 
 -----
@@ -25460,14 +17501,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2698#       发表于 2018-9-20 10:32
 
 
-
-
 别啊，小杰和奇牙彻底退场好不好
-
-
-
-
-
 
 
 -----
@@ -25476,14 +17510,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2699#       发表于 2018-9-20 11:18
 
 
-
-
 消费过时主角。我怎么记得是在体内饲养异邦人啊，还是说这个贞子肚子里会孵化出年兽的天敌。如果是全部王子念兽都能通杀怎么办。
-
-
-
-
-
 
 
 -----
@@ -25492,14 +17519,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2700#       发表于 2018-9-20 11:24
 
 
-
-
 异帮人就是从私兵肚子里孵化出来的，孵化条件很苛刻需要私兵自己靠观察推理对象的念能力，推理越正确，孵化出来的念兽就越能克制目标，而且必须是自己推理，被别人告诉都不行
-
-
-
-
-
 
 
 -----
@@ -25508,14 +17528,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2701#       发表于 2018-9-20 12:19
 
 
-
-
 还是等出完5话我再连前面的一块回顾好了
-
-
-
-
-
 
 
 -----
@@ -25524,14 +17537,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2702#       发表于 2018-9-20 13:01
 
 
-
-
 这次只出5话吗
-
-
-
-
-
 
 
 -----
@@ -25540,14 +17546,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2703#       发表于 2018-9-20 16:10
 
 
-
-
 现在这个篇章好迷啊，这么多复杂的设定看来长度至少和蚂蚁篇一样长，但是光去的船上就那么事真到黑暗大陆了岂不是至少要这个篇章的三倍才能够？
-
-
-
-
-
 
 
 -----
@@ -25556,16 +17555,10 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2704#       发表于 2018-9-20 16:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41024979&amp;ptid=1505675" target="_blank">Ton 发表于 2018-9-20 16:10</a>
 
 现在这个篇章好迷啊，这么多复杂的设定看来长度至少和蚂蚁篇一样长，但是光去的船上就那么事真到黑暗大陆了 ...</blockquote>
 我已严重怀疑十几年后才能再看见小杰和奇犽了
-
-
-
-
-
 
 
 -----
@@ -25574,16 +17567,10 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2705#       发表于 2018-9-20 16:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41024979&amp;ptid=1505675" target="_blank">Ton 发表于 2018-9-20 16:10</a>
 
 现在这个篇章好迷啊，这么多复杂的设定看来长度至少和蚂蚁篇一样长，但是光去的船上就那么事真到黑暗大陆了 ...</blockquote>
 我估计这波人没命去黑暗大陆了。。。
-
-
-
-
-
 
 
 -----
@@ -25592,16 +17579,10 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2706#       发表于 2018-9-20 16:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41025166&amp;ptid=1505675" target="_blank">阿刚 发表于 2018-9-20 16:28</a>
 
 我估计这波人没命去黑暗大陆了。。。</blockquote>
 就算酷拉皮卡凉了，金这种级别的人总归能去的。
-
-
-
-
-
 
 
 -----
@@ -25610,24 +17591,16 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2707#       发表于 2018-9-20 16:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41024979&amp;ptid=1505675" target="_blank">Ton 发表于 2018-9-20 16:10</a>
 
 现在这个篇章好迷啊，这么多复杂的设定看来长度至少和蚂蚁篇一样长，但是光去的船上就那么事真到黑暗大陆了 ...</blockquote>
 如果把剩下的13个王子的念兽，大王子手下那些懂念的护卫之间的故事都描述了，再加上旅团，黑帮，协会猎人12支，金和帕里斯通他们，最后还一个西索……看富坚想怎么画了，一个封闭空间的多线并行的故事感觉比蚂蚁篇都复杂多了。
 
 
-
-
-
-
-
 -----
 
 ####  易方世界  
 ##### 2708#       发表于 2018-9-20 17:23
-
-
 
 
 预测一下渡航篇的篇幅吧，考虑到之后还有更为宏大的黑暗大陆篇，我认为这一章的长度应该在十卷左右，也就是一百话<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">，按照富坚目前一年二十话的节奏，五年即可告终
@@ -25639,16 +17612,10 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 奇犽小杰最近应该是不可能见到了，就算出现，也应该是作为「黑暗大陆」篇的引子~那还是很遥远的事<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  gaomingyu  
 ##### 2709#       发表于 2018-9-20 17:27
-
 
 
 [http://hanhuazu.cc/cartoon/post?id=11125](http://hanhuazu.cc/cartoon/post?id=11125)
@@ -25660,26 +17627,15 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 鼠绘汉化已出～～～<img src="https://static.saraba1st.com/image/smiley/carton2017/182.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  火红之眼  
 ##### 2710#       发表于 2018-9-20 17:51
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这话....字好多，好赞233
 
 憋了那么久情报战，总算开始下手了
-
-
-
-
-
 
 
 -----
@@ -25688,14 +17644,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2711#       发表于 2018-9-20 17:53
 
 
-
-
 八王子已经凉了，下一个是谁
-
-
-
-
-
 
 
 -----
@@ -25704,22 +17653,13 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2712#       发表于 2018-9-20 18:01
 
 
-
-
 旋律和老护卫那几格很有韵味啊
-
-
-
-
-
 
 
 -----
 
 ####  盐柱  
 ##### 2713#       发表于 2018-9-20 18:01
-
-
 
 
 不知道八王子是先搞事还是先便当了
@@ -25735,25 +17675,13 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 也就是说单是除掉分身不能完全消除影响。
 
 
-
-
-
-
-
 -----
 
 ####  www151007  
 ##### 2714#       发表于 2018-9-20 18:05
 
 
-
-
 你妈。。我完全看不懂了怎么办。。那个只知道啪啪啪的王子还好理解。。那2个小的。。剧情忘记了啊。。
-
-
-
-
-
 
 
 -----
@@ -25762,14 +17690,7 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2715#       发表于 2018-9-20 20:13
 
 
-
-
 才5话……
-
-
-
-
-
 
 
 -----
@@ -25778,15 +17699,8 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2716#       发表于 2018-9-20 20:21
 
 
-
-
 利寒这个异邦人能力不错，但是这个两天不能用念的代价着实不小。
 无小黑的“令杀人无罪的方法”是发动能力时有20米的限制但是虫射球可以一直跟着对方还是超过20米虫射球就自动解除并且不能对同一目标再次发动？没太看明白，因为20米实在是太短了，准备时间又长可以说并不是“最适合暗杀”的能力。
-
-
-
-
-
 
 
 -----
@@ -25795,21 +17709,13 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 ##### 2717#       发表于 2018-9-20 20:28
 
 
-
-
 富坚并没有说过本次连载的话数，按照往常的惯例就是10话
-
-
-
-
-
 
 
 -----
 
 ####  vbadvance  
 ##### 2718#       发表于 2018-9-20 20:28
-
 
 
  本帖最后由 vbadvance 于 2018-9-20 20:30 编辑 
@@ -25819,16 +17725,10 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 总之肯定是华人系的名字就是了
 
 
-
-
-
-
-
 -----
 
 ####  陈玉礼  
 ##### 2719#       发表于 2018-9-20 20:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41027641&amp;ptid=1505675" target="_blank">仟音一心 发表于 2018-9-20 20:21</a>
@@ -25839,16 +17739,10 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 要被发现并直接移除才不能对同一目标使用，11王子这种超出范围自动解除的情况应该还是可以再用的
 
 
-
-
-
-
-
 -----
 
 ####  陈玉礼  
 ##### 2720#       发表于 2018-9-20 20:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41027694&amp;ptid=1505675" target="_blank">vbadvance 发表于 2018-9-20 20:28</a>
@@ -25859,25 +17753,13 @@ interesting<img src="https://static.saraba1st.com/image/smiley/carton2017/046.pn
 卡金不就是中俄的结合体嘛。这个当年卡金国王第一次出场的时候基本就确定了，鼠绘这么翻估计也是为了避嫌
 
 
-
-
-
-
-
 -----
 
 ####  zuga  
 ##### 2721#       发表于 2018-9-20 20:55
 
 
-
-
 所以是要感谢银魂腰斩吗，又被拉出来救场了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25895,26 +17777,15 @@ Title
 银魂那不能叫“腰斩”吧，第几次说要完结了都完结不了。
 
 
-
-
-
-
-
 -----
 
 ####  仟音一心  
 ##### 2723#       发表于 2018-9-20 21:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41027755&amp;ptid=1505675" target="_blank">陈玉礼 发表于 2018-9-20 20:33</a>
 要被发现并直接移除才不能对同一目标使用，11王子这种超出范围自动解除的情况应该还是可以再用的 ...</blockquote>
 嗯，应该确实是这样，失效了再跑近点发一个就行，但是被对方的念能力者发了就麻烦了。
-
-
-
-
-
 
 
 -----
@@ -25923,14 +17794,7 @@ Title
 ##### 2724#       发表于 2018-9-20 21:45
 
 
-
-
 说的22号出居然早出了。。。看爆
-
-
-
-
-
 
 
 -----
@@ -25939,15 +17803,9 @@ Title
 ##### 2725#       发表于 2018-9-20 22:10
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">字真的太多了
 
 我是觉得一直这样已经有点影响观感了
-
-
-
-
-
 
 
 -----
@@ -25956,14 +17814,7 @@ Title
 ##### 2726#       发表于 2018-9-20 22:23
 
 
-
-
 和旋律交谈的那个戴眼镜的男的是新出来的角色吗？旋律不相信眼镜男，觉得此人的心跳声有问题。如果眼镜男被控制了，是谁控制了他？
-
-
-
-
-
 
 
 -----
@@ -25972,21 +17823,13 @@ Title
 ##### 2727#       发表于 2018-9-20 22:37
 
 
-
-
 偷跑了？1王子手下能人这么多啊 干嘛不早点干死几个竞争者？
-
-
-
-
-
 
 
 -----
 
 ####  Ton  
 ##### 2728#       发表于 2018-9-20 22:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41027641&amp;ptid=1505675" target="_blank">仟音一心 发表于 2018-9-20 20:21</a>
@@ -25997,26 +17840,15 @@ Title
 我记得有一旦被人发现就不能对同一目标再次发动这个限制
 
 
-
-
-
-
-
 -----
 
 ####  陈玉礼  
 ##### 2729#       发表于 2018-9-20 22:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41028842&amp;ptid=1505675" target="_blank">nxh1999 发表于 2018-9-20 22:23</a>
 和旋律交谈的那个戴眼镜的男的是新出来的角色吗？旋律不相信眼镜男，觉得此人的心跳声有问题。如果眼镜男被 ...</blockquote>
 之前出场过，被法庭派到六王妃那里监视的
-
-
-
-
-
 
 
 -----
@@ -26025,15 +17857,9 @@ Title
 ##### 2730#       发表于 2018-9-20 23:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41029120&amp;ptid=1505675" target="_blank">Ton 发表于 2018-9-20 22:55</a>
 我记得有一旦被人发现就不能对同一目标再次发动这个限制</blockquote>
 对，但是就是离开20米自动解除能力应该是可以对同一目标再次发动的，不然就太鸡肋了。
-
-
-
-
-
 
 
 -----
@@ -26042,14 +17868,7 @@ Title
 ##### 2731#       发表于 2018-9-20 23:35
 
 
-
-
 能力设定越来越复杂……有种SCP的感觉
-
-
-
-
-
 
 
 -----
@@ -26058,21 +17877,13 @@ Title
 ##### 2732#       发表于 2018-9-20 23:40
 
 
-
-
 请问猎人现在适合入坑吗，还是等完结再看？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">一直想看可听说总是休刊
-
-
-
-
-
 
 
 -----
 
 ####  klzxs  
 ##### 2733#       发表于 2018-9-20 23:43
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">能力流 特别是还比较注重斗智的作品不可避免的发展
@@ -26083,16 +17894,10 @@ jojo第三部也都是刚健朴实
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">然后第七部大总统最开始展现能力那次到最后我也没搞懂
 
 
-
-
-
-
-
 -----
 
 ####  klzxs  
 ##### 2734#       发表于 2018-9-20 23:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41029518&amp;ptid=1505675" target="_blank">lucky1 发表于 2018-9-20 23:40</a>
@@ -26105,16 +17910,10 @@ jojo第三部也都是刚健朴实
 休刊这事两三次就习惯
 
 
-
-
-
-
-
 -----
 
 ####  Hyzk  
 ##### 2735#       发表于 2018-9-21 00:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41029518&amp;ptid=1505675" target="_blank">lucky1 发表于 2018-9-20 23:40</a>
@@ -26123,25 +17922,13 @@ jojo第三部也都是刚健朴实
 等完结？等你脱宅了都完结不了的好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  风浦可符香(P.N)  
 ##### 2736#       发表于 2018-9-21 00:50
 
 
-
-
 感觉自己活不过富坚，老年痴呆愈发严重，前边好多东西已经忘了^q^ 
-
-
-
-
-
 
 
 -----
@@ -26150,23 +17937,16 @@ jojo第三部也都是刚健朴实
 ##### 2737#       发表于 2018-9-21 08:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41025762&amp;ptid=1505675" target="_blank">易方世界 发表于 2018-9-20 17:23</a>
 
 预测一下渡航篇的篇幅吧，考虑到之后还有更为宏大的黑暗大陆篇，我认为这一章的长度应该在十卷左右，也就是 ...</blockquote>
 怎麽想都覺得不會有黑暗大陸篇了
 
 
-
-
-
-
-
 -----
 
 ####  不想起名字  
 ##### 2738#       发表于 2018-9-21 08:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41029518&amp;ptid=1505675" target="_blank">lucky1 发表于 2018-9-20 23:40</a>
@@ -26177,25 +17957,13 @@ jojo第三部也都是刚健朴实
 我劝你现在就可以看看，以第1话为起点，到漫画339话，刚好是一个有始有终的故事。你可以直接把339当结局都没问题。
 
 
-
-
-
-
-
 -----
 
 ####  谢皮利男爵  
 ##### 2739#       发表于 2018-9-21 10:35
 
 
-
-
 那个之前在酷拉屋里当面暗杀的人找着没呀<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26204,14 +17972,7 @@ jojo第三部也都是刚健朴实
 ##### 2740#       发表于 2018-9-21 10:37
 
 
-
-
 我记得有人分析过之前猎人里能力描写没这么细致，现在只是想写着玩玩之类的
-
-
-
-
-
 
 
 -----
@@ -26220,16 +17981,10 @@ jojo第三部也都是刚健朴实
 ##### 2741#       发表于 2018-9-21 13:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41032668&amp;ptid=1505675" target="_blank">谢皮利男爵 发表于 2018-9-21 10:35</a>
 
 那个之前在酷拉屋里当面暗杀的人找着没呀</blockquote>
 名侦探酷拉皮卡在这期连载里没有戏份<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">……
-
-
-
-
-
 
 
 -----
@@ -26238,14 +17993,7 @@ jojo第三部也都是刚健朴实
 ##### 2742#       发表于 2018-9-21 14:08
 
 
-
-
 人均特质系<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26254,14 +18002,7 @@ jojo第三部也都是刚健朴实
 ##### 2743#       发表于 2018-9-21 14:39
 
 
-
-
 卡金子女里已经有两个无限扩散的能力了，一个杀人升级的，一个控制人心的，说实话，看了卡金这蛊壶之后，觉得蚂蚁确实算不得什么厉害威胁了，怪不得就是个B+，老9那群护卫稍加时日，恐怕可以轻易灭了蚂蚁吧
-
-
-
-
-
 
 
 -----
@@ -26270,16 +18011,9 @@ jojo第三部也都是刚健朴实
 ##### 2744#       发表于 2018-9-21 15:03
 
 
-
-
 我已经看不懂了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi Redmi Note 4X, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
-
-
-
-
-
 
 
 -----
@@ -26288,14 +18022,7 @@ jojo第三部也都是刚健朴实
 ##### 2745#       发表于 2018-9-21 15:16
 
 
-
-
 一口气补到381太精彩了，但今年肯定连载不到周日的晚宴吧，捶地
-
-
-
-
-
 
 
 -----
@@ -26304,13 +18031,7 @@ jojo第三部也都是刚健朴实
 ##### 2746#       发表于 2018-9-21 15:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">每次出连载都要把前面那些翻一翻
-
-
-
-
-
 
 
 -----
@@ -26319,14 +18040,7 @@ jojo第三部也都是刚健朴实
 ##### 2747#       发表于 2018-9-21 16:02
 
 
-
-
 主要是这个篇章确实难懂。人物和势力太多，各个势力都有着墨，线索却没有汇聚，一旦断掉很难回忆起来之前发生了什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26335,21 +18049,13 @@ jojo第三部也都是刚健朴实
 ##### 2748#       发表于 2018-9-21 19:51
 
 
-
-
 这些王子有年龄和婚姻状况的设定吗？
-
-
-
-
-
 
 
 -----
 
 ####  C男人  
 ##### 2749#       发表于 2018-9-21 20:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41027694&amp;ptid=1505675" target="_blank">vbadvance 发表于 2018-9-20 20:28</a>
@@ -26365,25 +18071,13 @@ jojo第三部也都是刚健朴实
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  waster112  
 ##### 2750#       发表于 2018-9-21 23:29
 
 
-
-
 游轮篇的出场人物怕是在整个猎人里第一繁杂的了……有种FJ腰坏了脑子转不停，想到什么全压缩进去的感觉
-
-
-
-
-
 
 
 -----
@@ -26392,21 +18086,13 @@ jojo第三部也都是刚健朴实
 ##### 2751#       发表于 2018-9-22 21:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">原来不是我一个人看不懂
-
-
-
-
-
 
 
 -----
 
 ####  comet1224  
 ##### 2752#       发表于 2018-9-22 21:46
-
-
 
 
 Madhouse何時出新動畫阿
@@ -26424,16 +18110,10 @@ Madhouse何時出新動畫阿
 有夠漫長的劇情
 
 
-
-
-
-
-
 -----
 
 ####  comet1224  
 ##### 2753#       发表于 2018-9-22 21:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41040872&amp;ptid=1505675" target="_blank">waster112 发表于 2018-9-21 23:29</a>
@@ -26446,16 +18126,10 @@ Madhouse何時出新動畫阿
 這居然是官方設定說明 我草
 
 
-
-
-
-
-
 -----
 
 ####  陈玉礼  
 ##### 2754#       发表于 2018-9-22 21:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41048417&amp;ptid=1505675" target="_blank">comet1224 发表于 2018-9-22 21:47</a>
@@ -26465,16 +18139,10 @@ Madhouse何時出新動畫阿
 这已经是最简略的，你可以在微博上搜一搜饭制的完全版<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  comet1224  
 ##### 2755#       发表于 2018-9-22 21:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41048456&amp;ptid=1505675" target="_blank">陈玉礼 发表于 2018-9-22 21:52</a>
@@ -26495,25 +18163,13 @@ Madhouse何時出新動畫阿
 如果這人不是FJ早就被所有人噴死
 
 
-
-
-
-
-
 -----
 
 ####  qwxbtgb  
 ##### 2756#       发表于 2018-9-22 21:57
 
 
-
-
 宫斗剧，负奸也看么?
-
-
-
-
-
 
 
 -----
@@ -26522,25 +18178,16 @@ Madhouse何時出新動畫阿
 ##### 2757#       发表于 2018-9-27 11:14
 
 
-
-
 新情报出来了，第九王子能力爆强，防御有部下之盾，攻击有必杀箭，跟赤龙战役主角一样，献祭一个部下放一发必杀箭，大王子的手下被一发去魂了，然后变成第九王子的手下了。
 
 
 然后上次那个被瞄准的王子也被干掉了。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2758#         楼主| 发表于 2018-9-27 11:18
-
-
 
 
 382　覚醒 
@@ -26652,24 +18299,13 @@ Madhouse何時出新動畫阿
 晩餐会開始
 
 
-
-
-
-
-
 -----
 
 ####  センチ  
 ##### 2759#       发表于 2018-9-27 11:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">完了 这情报全写名字 不知道是几王子了
-
-
-
-
-
 
 
 -----
@@ -26678,15 +18314,8 @@ Madhouse何時出新動畫阿
 ##### 2760#       发表于 2018-9-27 11:25
 
 
-
-
 真的没想到下周就开始晚宴，节奏好快，已经迫不及待想看神回了
 第九王子对准自己开了枪，之后子弹被灵兽挡下？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">能力名：食堂泼辣酱
-
-
-
-
-
 
 
 -----
@@ -26695,14 +18324,7 @@ Madhouse何時出新動畫阿
 ##### 2761#       发表于 2018-9-27 11:34
 
 
-
-
 仔细看了一遍这第九王子的能力也太强了，而且这么轻易就被老国王策反
-
-
-
-
-
 
 
 -----
@@ -26711,14 +18333,7 @@ Madhouse何時出新動畫阿
 ##### 2762#       发表于 2018-9-27 11:41
 
 
-
-
 老九这一脸boss像，所以他本身也是个念能力者？
-
-
-
-
-
 
 
 -----
@@ -26727,14 +18342,7 @@ Madhouse何時出新動畫阿
 ##### 2763#       发表于 2018-9-27 11:47
 
 
-
-
 请教各位一个问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">金他们打算怎么去新大陆啊，他们在船上还是自己又找了条别的船啊
-
-
-
-
-
 
 
 -----
@@ -26743,15 +18351,9 @@ Madhouse何時出新動畫阿
 ##### 2764#       发表于 2018-9-27 11:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41093527&amp;ptid=1505675" target="_blank">骊歌三叠 发表于 2018-9-27 11:47</a>
 请教各位一个问题金他们打算怎么去新大陆啊，他们在船上还是自己又找了条别的船啊 ...</blockquote>
 金和帕里斯通组目前都在船上神隐睡觉
-
-
-
-
-
 
 
 -----
@@ -26760,24 +18362,16 @@ Madhouse何時出新動畫阿
 ##### 2765#       发表于 2018-9-27 12:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41093527&amp;ptid=1505675" target="_blank">骊歌三叠 发表于 2018-9-27 11:47</a>
 
 请教各位一个问题金他们打算怎么去新大陆啊，他们在船上还是自己又找了条别的船啊 ...</blockquote>
 目前无法确定他们在不在船上，金最后一次登场时说会让帕里斯通见识一下自己的手段，所以不在船上的话也是可能的，毕竟他们只要迎回比杨德就行。
 
 
-
-
-
-
-
 -----
 
 ####  nxh1999  
 ##### 2766#       发表于 2018-9-27 12:21
-
-
 
 
 微博上看到老九的能力很厉害啊，就像前两年有人分析得那样，老九也不是什么特别善良的人，也是心中有帝王业的野心家吧。我觉得剧情加速了，连载才第二话就要开始第二次晚宴了。
@@ -26866,25 +18460,13 @@ Madhouse何時出新動畫阿
 出航第八天，晚8时，晚餐会开始了。
 
 
-
-
-
-
-
 -----
 
 ####  光明寺茉衣子  
 ##### 2767#       发表于 2018-9-27 13:04
 
 
-
-
 所以我说了，蚂蚁就是个弟弟
-
-
-
-
-
 
 
 -----
@@ -26893,14 +18475,7 @@ Madhouse何時出新動畫阿
 ##### 2768#       发表于 2018-9-27 13:06
 
 
-
-
 不就是无法防御的精神控制么…
-
-
-
-
-
 
 
 -----
@@ -26909,14 +18484,7 @@ Madhouse何時出新動畫阿
 ##### 2769#       发表于 2018-9-27 13:46
 
 
-
-
 不知道这么搞来的手下有BUFF没
-
-
-
-
-
 
 
 -----
@@ -26925,15 +18493,8 @@ Madhouse何時出新動畫阿
 ##### 2770#         楼主| 发表于 2018-9-27 15:17
 
 
-
-
 转鼠绘
 <img src="http://wx4.sinaimg.cn/large/741fe3e9gy1fvo4bs1uswj20ic1vmaje.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26942,14 +18503,7 @@ Madhouse何時出新動畫阿
 ##### 2771#       发表于 2018-9-27 20:16
 
 
-
-
 蚂蚁真的是菜啊，老九这能力狗屎一样强<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26958,13 +18512,7 @@ Madhouse何時出新動畫阿
 ##### 2772#         楼主| 发表于 2018-9-27 20:34
 
 
-
 <img src="http://wx2.sinaimg.cn/large/bcfcde0agy1fvod9gud9oj20l50budjw.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26973,14 +18521,7 @@ Madhouse何時出新動畫阿
 ##### 2773#       发表于 2018-9-27 20:38
 
 
-
-
 八王子草
-
-
-
-
-
 
 
 -----
@@ -26989,14 +18530,7 @@ Madhouse何時出新動畫阿
 ##### 2774#       发表于 2018-9-27 20:43
 
 
-
-
 没 有 女 人 唱 歌 男 人 也 不 会 死
-
-
-
-
-
 
 
 -----
@@ -27005,22 +18539,13 @@ Madhouse何時出新動畫阿
 ##### 2775#       发表于 2018-9-27 21:35
 
 
-
-
 握草进展飞快啊！第二场晚宴这就要来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  黑岩泪香  
 ##### 2776#       发表于 2018-9-27 21:48
-
-
 
 
 每次提到螞蟻菜不菜的問題，我都想提出長久以來的疑問。
@@ -27032,16 +18557,10 @@ Madhouse何時出新動畫阿
 富奸現在也沒給出過解答。
 
 
-
-
-
-
-
 -----
 
 ####  stygianlunar  
 ##### 2777#       发表于 2018-9-27 22:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41099023&amp;ptid=1505675" target="_blank">黑岩泪香 发表于 2018-9-27 21:48</a>
@@ -27057,16 +18576,10 @@ Madhouse何時出新動畫阿
 不过，这样说来黑暗大陆到底有多么夸张啊<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">，莫非到灾难这个级别根本就是遇到就要1D100然后撕卡
 
 
-
-
-
-
-
 -----
 
 ####  stygianlunar  
 ##### 2778#       发表于 2018-9-27 22:36
-
 
 
  本帖最后由 stygianlunar 于 2018-9-27 22:40 编辑 
@@ -27077,16 +18590,10 @@ Madhouse何時出新動畫阿
 至于能力者之间的对抗，一句话，看谁更脏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以说蚂蚁真不算什么，虽然因为聚集了巨大的生命能量而诞生，天赋强大，但都太单纯了。
 
 
-
-
-
-
-
 -----
 
 ####  没取名啊  
 ##### 2779#       发表于 2018-9-27 22:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41099023&amp;ptid=1505675" target="_blank">黑岩泪香 发表于 2018-09-27 21:48:04</a>
@@ -27096,32 +18603,19 @@ Madhouse何時出新動畫阿
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  qwxbtgb  
 ##### 2780#       发表于 2018-9-27 22:45
 
 
-
-
 蚂蚁那按秒来计算的战斗，这些人有用么?
-
-
-
-
-
 
 
 -----
 
 ####  stygianlunar  
 ##### 2781#       发表于 2018-9-27 22:49
-
 
 
  本帖最后由 stygianlunar 于 2018-9-27 22:52 编辑 
@@ -27133,16 +18627,10 @@ Madhouse何時出新動畫阿
 不过反过来，再不需要算计就是正面怼的情况下，自然是强化系，或者简单粗暴的力量最有效，
 
 
-
-
-
-
-
 -----
 
 ####  黑岩泪香  
 ##### 2782#       发表于 2018-9-27 22:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41099452&amp;ptid=1505675" target="_blank">stygianlunar 发表于 2018-9-27 22:30</a>
@@ -27159,16 +18647,10 @@ Madhouse何時出新動畫阿
 合理一點的情況，要麼是自己的氣量會影響自己的能力效果強弱，要麼是自己氣量弱於對手時會減弱自己能力效果。
 
 
-
-
-
-
-
 -----
 
 ####  stygianlunar  
 ##### 2783#       发表于 2018-9-27 23:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41099660&amp;ptid=1505675" target="_blank">黑岩泪香 发表于 2018-9-27 22:52</a>
@@ -27183,32 +18665,19 @@ Madhouse何時出新動畫阿
 很多时候制约都是因为要弥补不足才能达到目的，但你念量足够大自然就不需要绕那么多弯子就能达成目的，当然制约也代表着一个人的信念或执念以及其个人的本质，有些东西不是你有足够念就能做到的，但念足够强那肯定可以走的更远，要不古云怎么建议小杰和奇亚先不要太早的开发能力。
 
 
-
-
-
-
-
 -----
 
 ####  GOD·Usopp  
 ##### 2784#       发表于 2018-9-27 23:16
 
 
-
-
 看不起蚂蚁等于看不起会长，会长在人类社会这么多年也没缺胳膊少腿，王子们的念再强再险恶，也不会比暗杀专家揍敌客或者帕里斯通加所有协专们要厉害吧，而且卡金只是刚加盟变成成V6的发展中国家？
-
-
-
-
-
 
 
 -----
 
 ####  黑岩泪香  
 ##### 2785#       发表于 2018-9-27 23:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41099763&amp;ptid=1505675" target="_blank">stygianlunar 发表于 2018-9-27 23:05</a>
@@ -27224,16 +18693,10 @@ Madhouse何時出新動畫阿
 這個問題反正富奸也沒給解答。今後我也不認為他會給明確的解答。
 
 
-
-
-
-
-
 -----
 
 ####  acejoe  
 ##### 2786#       发表于 2018-9-27 23:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41099631&amp;ptid=1505675" target="_blank">stygianlunar 发表于 2018-9-27 22:49</a>
@@ -27242,16 +18705,10 @@ Madhouse何時出新動畫阿
 蚂蚁没有对人的社会行为，默认遇到就开打。
 
 
-
-
-
-
-
 -----
 
 ####  lb0windy  
 ##### 2787#       发表于 2018-9-27 23:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41099023&amp;ptid=1505675" target="_blank">黑岩泪香 发表于 2018-9-27 21:48</a>
@@ -27269,16 +18726,10 @@ Madhouse何時出新動畫阿
 更别提蚁王这种光速移动的，根本没出招就被秒了。
 
 
-
-
-
-
-
 -----
 
 ####  黑岩泪香  
 ##### 2788#       发表于 2018-9-27 23:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41099907&amp;ptid=1505675" target="_blank">lb0windy 发表于 2018-9-27 23:23</a>
@@ -27292,24 +18743,13 @@ Madhouse何時出新動畫阿
 但是王子這邊都很玄學了。
 
 
-
-
-
-
-
 -----
 
 ####  阿刚  
 ##### 2789#       发表于 2018-9-27 23:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">念的量估计真的有用……能力的基础还是念量的大小，不然唯我独损就直接按百分比扣蓝了……念能力的基础是生命能量，所以能力再怎么花俏，还是有上限的。最简单的比较，九王子的箭基础也是一个守卫的全部的生命能量，那作为活了近百年的会长，耗尽自己所有生命能量的百式观音零式，肯定是会长的零式要强吧……但就这样打蚁王也只是破了点皮……
-
-
-
-
-
 
 
 -----
@@ -27318,21 +18758,13 @@ Madhouse何時出新動畫阿
 ##### 2790#       发表于 2018-9-27 23:43
 
 
-
-
 户愚吕第：在绝对的力量面前，这些都是没用的。
-
-
-
-
-
 
 
 -----
 
 ####  烤鱼饼  
 ##### 2791#       发表于 2018-9-27 23:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41099949&amp;ptid=1505675" target="_blank">黑岩泪香 发表于 2018-9-27 23:28</a>
@@ -27346,16 +18778,10 @@ Madhouse何時出新動畫阿
 不知道后面会不会出现强化系凭借气量直接打爆特质系的效果
 
 
-
-
-
-
-
 -----
 
 ####  lb0windy  
 ##### 2792#       发表于 2018-9-27 23:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41099949&amp;ptid=1505675" target="_blank">黑岩泪香 发表于 2018-9-27 23:28</a>
@@ -27373,25 +18799,13 @@ Madhouse何時出新動畫阿
 能这么简单被除念，说明强度其实挺低的。
 
 
-
-
-
-
-
 -----
 
 ####  哈尔摩尼亚  
 ##### 2793#       发表于 2018-9-28 00:04
 
 
-
-
 说起来，蚁王是能吃掉人的气的，那死后变强的念被吃了会是什么效果<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27400,15 +18814,9 @@ Madhouse何時出新動畫阿
 ##### 2794#       发表于 2018-9-28 00:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41100246&amp;ptid=1505675" target="_blank">哈尔摩尼亚 发表于 2018-9-28 00:04</a>
 说起来，蚁王是能吃掉人的气的，那死后变强的念被吃了会是什么效果</blockquote>
 真香<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27417,16 +18825,9 @@ Madhouse何時出新動畫阿
 ##### 2795#       发表于 2018-9-28 01:11
 
 
-
-
 念能力的效果相当于武器种类，念的量相当于弹药量——这样考虑比较自然吧。缠绝炼发，再厉害的能力发动都要靠炼出来的念支撑的。另外九王子的能力看起来牛，但对上窝金的大破坏拳把护卫全部秒了就没办法发动了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -27435,14 +18836,7 @@ Madhouse何時出新動畫阿
 ##### 2796#       发表于 2018-9-28 02:26
 
 
-
-
 怎么还是有人不明白，这个篇章的平均战斗力也就贪婪岛水平，所谓的王子护卫，连临时猎人在里面都是大腿，用奇牙爷爷的话说可以在几秒内杀死这里所有人。
-
-
-
-
-
 
 
 -----
@@ -27451,22 +18845,13 @@ Madhouse何時出新動畫阿
 ##### 2797#       发表于 2018-9-28 02:29
 
 
-
-
 王子护卫与精英猎人的差距从半藏秒杀暗杀者就能看的出来，半藏的分身出动用跟绳子就勒死了，这还是个念能力者。
-
-
-
-
-
 
 
 -----
 
 ####  qweqweqwe2  
 ##### 2798#       发表于 2018-9-28 04:39
-
-
 
 
 我认为是相对的。如果一个人有无限的气，必然可以无效所有特质能力。但没人有无限的气。足够的气可以无效特质能力，但多少算足够？
@@ -27480,25 +18865,13 @@ A特质气量1，100倍无效，则气量100可抵抗。
 B特质气量100，10倍无效，则气量1000可抵抗。
 
 
-
-
-
-
-
 -----
 
 ####  Hyzk  
 ##### 2799#       发表于 2018-9-28 08:09
 
 
-
-
 你们想什么呢，别把其他热血漫的战斗理论搬到猎人里来，你们看猎人这么久有哪次玄学能力满足了条件之后没取得应得的结果的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27507,14 +18880,7 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ##### 2800#       发表于 2018-9-28 08:31
 
 
-
-
 战斗漫和智斗漫的战力系统没有可比性啊<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27523,14 +18889,7 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ##### 2801#       发表于 2018-9-28 09:02
 
 
-
-
 从好几条锁链是需要红眼绝对时间才能发动来看，所谓玄学也是需要修炼和气量支持的，不是真的无敌
-
-
-
-
-
 
 
 -----
@@ -27539,22 +18898,15 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ##### 2802#       发表于 2018-9-28 09:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41101121&amp;ptid=1505675" target="_blank">银翼的维罗西 发表于 2018-9-28 02:26</a>
 怎么还是有人不明白，这个篇章的平均战斗力也就贪婪岛水平，所谓的王子护卫，连临时猎人在里面都是大腿，用 ...</blockquote>
 就看旅团和这帮菜鸟是怎么战斗的了
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2803#         楼主| 发表于 2018-9-28 10:40
-
 
 
 <img src="http://wx2.sinaimg.cn/large/bcfcde0agy1fvp1wui05fj21b80y6qv5.jpg" referrerpolicy="no-referrer">
@@ -27564,25 +18916,13 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 <img src="http://wx2.sinaimg.cn/large/bcfcde0agy1fvp1wsp5xcj20nm0y67mn.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  陈玉礼  
 ##### 2804#       发表于 2018-9-28 10:55
 
 
-
-
 花鸟风月的脸突然成熟了
-
-
-
-
-
 
 
 -----
@@ -27591,14 +18931,7 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ##### 2805#       发表于 2018-9-28 11:20
 
 
-
-
 卧槽这背景画的，太细了吧
-
-
-
-
-
 
 
 -----
@@ -27607,15 +18940,9 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ##### 2806#       发表于 2018-9-28 11:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41104281&amp;ptid=1505675" target="_blank">易方世界 发表于 2018-9-28 11:20</a>
 卧槽这背景画的，太细了吧</blockquote>
 感觉像是奥浩哉那种实拍照片修改出来
-
-
-
-
-
 
 
 -----
@@ -27624,14 +18951,7 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ##### 2807#       发表于 2018-9-28 11:39
 
 
-
-
 现在九王子射箭是念兽的能力吗？他是不是已经掌握念了？这速度也太快了吧……另外花鸟风月的眼神变得很坚定呢，是不是这两天彼此又偷偷联络过，准备在晚宴上逃走？现在王子中颜值高的萌妹子也就他们俩了，不要随便收便当啊。
-
-
-
-
-
 
 
 -----
@@ -27640,16 +18960,10 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ##### 2808#       发表于 2018-9-28 11:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41104566&amp;ptid=1505675" target="_blank">nxh1999 发表于 2018-9-28 11:39</a>
 
 现在九王子射箭是念兽的能力吗？他是不是已经掌握念了？这速度也太快了吧……另外花鸟风月的眼神变得很坚定 ...</blockquote>
 不是念兽的能力，念兽能力是集群增强前面已经说明了，我现在最好奇的就是九王子这招是被父王点醒后瞬间领悟，还是一直深藏不露
-
-
-
-
-
 
 
 -----
@@ -27658,14 +18972,7 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ##### 2809#       发表于 2018-9-28 11:48
 
 
-
-
 酷拉皮卡这个背影帅爆了。
-
-
-
-
-
 
 
 -----
@@ -27674,24 +18981,16 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ##### 2810#       发表于 2018-9-28 11:52
 
 
-
-
 实际上猎人里出现过多少真的毫无破绽绝对秒杀的能力？（无视防御、无视距离、无视限制、触发必死）
 
 
 不明物的许愿大概是唯一的吧？
 
 
-
-
-
-
-
 -----
 
 ####  klzxs  
 ##### 2811#       发表于 2018-9-28 14:07
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这些条件也太夸张了 又不是异世界转生的挂壁
@@ -27701,17 +19000,10 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 想杀谁杀谁 万一真杀不掉也至少能关起来 就被随便找个理由削了
 
 
-
-
-
-
-
 -----
 
 ####  relics  
 ##### 2812#       发表于 2018-9-28 14:11
-
-
 
 
 按鼠绘的剧透，老九这个护盾可能只防老九自己不防护卫，那只要暗杀掉护卫老九就废了呀
@@ -27721,25 +19013,13 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 如果这个箭出手就得死一个护卫，护卫数量就是老九的箭矢，一旦MISS次数过多，强度简直是崩盘的
 
 
-
-
-
-
-
 -----
 
 ####  哈尔摩尼亚  
 ##### 2813#       发表于 2018-9-28 14:33
 
 
-
-
 老九这个能力…就算是一击必杀不可防御，瞄准也是个问题。防御面的盾更是怎么看都不靠谱，要多少人的念量才能挡住三护卫的一击啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27748,14 +19028,7 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ##### 2814#       发表于 2018-9-28 14:45
 
 
-
-
 我记得猎人念战斗一直提倡仔细观察拼命思考啊，怎么你们好像提倡大力出奇迹了
-
-
-
-
-
 
 
 -----
@@ -27764,16 +19037,10 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ##### 2815#       发表于 2018-9-28 14:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41106493&amp;ptid=1505675" target="_blank">cowgp01 发表于 2018-9-28 14:45</a>
 
 我记得猎人念战斗一直提倡仔细观察拼命思考啊，怎么你们好像提倡大力出奇迹了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">因为蚂蚁篇，蚁王提升了好几个数量级的念量……
-
-
-
-
-
 
 
 -----
@@ -27782,14 +19049,7 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ##### 2816#       发表于 2018-9-28 15:00
 
 
-
-
 更是因为会长，天下武功，无坚不摧，唯快不破，一切牛鬼蛇神在会长面前都是纸老虎
-
-
-
-
-
 
 
 -----
@@ -27798,14 +19058,7 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ##### 2817#       发表于 2018-9-28 15:01
 
 
-
-
 鼠绘出了，我觉得这就是传说中的神回了（暴言）
-
-
-
-
-
 
 
 -----
@@ -27814,14 +19067,7 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ##### 2818#       发表于 2018-9-28 15:04
 
 
-
-
 九王子的能力果然是瞬间觉醒出来的啊，刺杀国王的时候他还看不见国王的念兽呢
-
-
-
-
-
 
 
 -----
@@ -27830,15 +19076,9 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ##### 2819#       发表于 2018-9-28 15:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41104340&amp;ptid=1505675" target="_blank">shinraku 发表于 2018-9-28 11:24</a>
 感觉像是奥浩哉那种实拍照片修改出来</blockquote>
 ……背景修改出来没这么简陋，更像助手画的
-
-
-
-
-
 
 
 -----
@@ -27847,16 +19087,10 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ##### 2820#       发表于 2018-9-28 15:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41106673&amp;ptid=1505675" target="_blank">陈玉礼 发表于 2018-09-28 15:04:44</a>
 九王子的能力果然是瞬间觉醒出来的啊，刺杀国王的时候他还看不见国王的念兽呢 ...</blockquote>皇家念兽之间彼此都是不可视的吧，这样功能的念能力不可能突然觉醒后就能用的这么熟练
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -27865,21 +19099,13 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ##### 2821#         楼主| 发表于 2018-9-28 15:36
 
 
-
-
 忘更了，汉化来了：[http://www.ishuhui.com/cartoon/num/11-0-n-382](http://www.ishuhui.com/cartoon/num/11-0-n-382)
-
-
-
-
-
 
 
 -----
 
 ####  银翼的维罗西  
 ##### 2822#       发表于 2018-9-28 16:04
-
 
 
  本帖最后由 银翼的维罗西 于 2018-9-28 16:17 编辑 
@@ -27895,26 +19121,13 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 之前楼里有个坛友问现在追猎人合不合适，我觉得欣赏这种级别的艺术品根本无关年限与时代，若不是漫画太小众，不然猎人应该是会像那些经典文学一样流传百年的。
 
 
-
-
-
-
-
-
-
 -----
 
 ####  阿刚  
 ##### 2823#       发表于 2018-9-28 16:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">九王子这个还附带夺舍……这下规则可就变了……不知道念能力能不能一起继承……还有之前看说九王子可能是野心家，这样看根本不是，就是被点醒了……这家伙是真正的改革派，毫不犹豫的给自己一枪，这觉悟已经够了……念能力成长很大的一个前提是觉悟吧
-
-
-
-
-
 
 
 -----
@@ -27923,21 +19136,13 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ##### 2824#       发表于 2018-9-28 16:20
 
 
-
-
 那个长的跟避难所小子一样的王子不是说有重大发表吗，这还没发表呢就挂了{:1465_1692:}这便当发的还真是不含糊
-
-
-
-
-
 
 
 -----
 
 ####  陈玉礼  
 ##### 2825#       发表于 2018-9-28 16:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41106880&amp;ptid=1505675" target="_blank">kokyou 发表于 2018-9-28 15:22</a>
@@ -27947,25 +19152,13 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 对哦 还有这个设定
 
 
-
-
-
-
-
 -----
 
 ####  ACFUNBILI  
 ##### 2826#       发表于 2018-9-28 16:46
 
 
-
-
 这种我不入地狱的观点比烂大街的成王败寇有趣多了
-
-
-
-
-
 
 
 -----
@@ -27974,25 +19167,16 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ##### 2827#       发表于 2018-9-28 16:54
 
 
-
-
 如果9王子接受了“为了改革国家这一代王子都可以牺牲”这一理念，是不是会变成最大反派？
 
 
 不过王位争夺战的淘汰规则还没明朗，我觉得不会到这一步，可能有其他解决方案。
 
 
-
-
-
-
-
 -----
 
 ####  盐柱  
 ##### 2828#       发表于 2018-9-28 17:23
-
-
 
 
 关于九王子
@@ -28009,25 +19193,13 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 八王子的大新闻可能是在会场设置的陷阱，并且因为八王子已死无法轻易解除。也可能自动无效化或者残留机制被人利用
 
 
-
-
-
-
-
 -----
 
 ####  sandrock  
 ##### 2829#       发表于 2018-9-28 18:18
 
 
-
-
 国王感觉不是酒囊饭袋啊 思路很清晰 
-
-
-
-
-
 
 
 -----
@@ -28036,16 +19208,10 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ##### 2830#       发表于 2018-9-28 18:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41108896&amp;ptid=1505675" target="_blank">sandrock 发表于 2018-9-28 18:18</a>
 
 国王感觉不是酒囊饭袋啊 思路很清晰</blockquote>
 国王怎么可能是酒囊饭袋，他本身就是从上一次仪式中存活下来的“虫王”，只不过FJ故意把他画成个滑稽的样子。
-
-
-
-
-
 
 
 -----
@@ -28054,13 +19220,7 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ##### 2831#       发表于 2018-9-28 18:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/288.png" referrerpolicy="no-referrer">被射到夺舍的原本灵魂算被秒了？不过现在看来好像也只是不能防御，想正面射击有准备的人还是挺难的吧
-
-
-
-
-
 
 
 -----
@@ -28069,24 +19229,15 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ##### 2832#       发表于 2018-9-28 18:29
 
 
-
-
 是错觉嘛……字少了感觉作品逼格又回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 不过还是有种熟悉的感觉，这种死路一条然后富坚再给出出人意外的方案的路子……
-
-
-
-
-
 
 
 -----
 
 ####  Elevation  
 ##### 2833#       发表于 2018-9-28 18:36
-
-
 
 
 等下，这不是戈雅的《农神食子》吗？
@@ -28102,12 +19253,6 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 2018-9-28 18:33 上传
 
 
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201809/28/183415lxrsrsserccfxs38.png" referrerpolicy="no-referrer">
 
 
@@ -28118,23 +19263,14 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 2018-9-28 18:34 上传
 
 
-
-
-
-
-
 偏偏放在回锅肉的发言框里，这就有点微妙了啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +2
@@ -28145,12 +19281,7 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 | xing7673| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -28159,21 +19290,13 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ##### 2834#       发表于 2018-9-28 19:15
 
 
-
-
 单体必胜？射国王去啊
-
-
-
-
-
 
 
 -----
 
 ####  杏仁小圆饼  
 ##### 2835#       发表于 2018-9-28 19:29
-
 
 
 <blockquote>Elevation 发表于 2018-9-28 18:36
@@ -28184,16 +19307,10 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 农神阉了他爹，后来又被小儿子干翻，一代更比一代强，不是挺符合继承战养蛊的目的吗
 
 
-
-
-
-
-
 -----
 
 ####  巴尔干炮  
 ##### 2836#       发表于 2018-9-28 19:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41109061&amp;ptid=1505675" target="_blank">Elevation 发表于 2018-9-28 18:36</a>
@@ -28202,16 +19319,10 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 感觉在暗示老国王会被最后一个幸存下来的王子杀死
 
 
-
-
-
-
-
 -----
 
 ####  tioit  
 ##### 2837#       发表于 2018-9-28 19:38
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我觉得这9王子这能力看起来酷炫，但实际上还有不少条件没有明示
@@ -28233,27 +19344,15 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 至少目前来看，这能力适合阴谋暗杀内讧互斗的情景
 
 
-
-
-
-
-
 -----
 
 ####  盐柱  
 ##### 2838#       发表于 2018-9-28 19:39
 
 
-
-
 从九王子视角看来，这幅画就相当于继承仪式的意象？
 
 国王一边让仪式继续进行（农神食子），一边说这些话？
-
-
-
-
-
 
 
 -----
@@ -28262,16 +19361,9 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ##### 2839#       发表于 2018-9-28 20:02
 
 
-
-
 反正9王子那套的解法估计很简单，把随从都干死就完了。现在就是谁出手的问题了，估计是4王子刷时髦值的机会
 
 —— 来自 vivo Xplay6, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
-
-
-
-
-
 
 
 -----
@@ -28280,13 +19372,7 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ##### 2840#       发表于 2018-9-28 20:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">想到了JOJO第三部开头
-
-
-
-
-
 
 
 -----
@@ -28295,24 +19381,16 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ##### 2841#       发表于 2018-9-28 20:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">这话过后我几乎不觉得一二三王子能胜过九王子
 
 感觉能有胜算的也就四
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">但又感觉他这种角色可能会被他想保护的下位王子阴掉
 
 
-
-
-
-
-
 -----
 
 ####  C男人  
 ##### 2842#       发表于 2018-9-28 20:25
-
-
 
 
 关键是我们终于等到晚宴了！
@@ -28323,32 +19401,19 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 2843#       发表于 2018-9-28 20:32
 
 
-
-
 九王子这种设定不就是一身死亡FLAG么，他真活到最后才叫意料之外
-
-
-
-
-
 
 
 -----
 
 ####  nxh1999  
 ##### 2844#       发表于 2018-9-28 20:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41110022&amp;ptid=1505675" target="_blank">C男人 发表于 2018-9-28 20:25</a>
@@ -28361,17 +19426,10 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 下一话如果双胞胎想逃走，他们的能力能逃出这条船吗？跑到三层或者更下面的楼层，好像没什么用，还会被找回来的。甚至三楼更危险，因为三层的黑帮女的23个手下为了升级，可能更急着杀了她们。
 
 
-
-
-
-
-
 -----
 
 ####  kokyou  
 ##### 2845#       发表于 2018-9-28 20:59
-
-
 
 
 从继承战篇开始重新看了一遍，发现350话酷拉皮卡刚去应聘护卫时就有了九王子念能力形态的铺垫，说他拿到过西洋弓世界大赛的银牌
@@ -28379,17 +19437,10 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  waster112  
 ##### 2846#       发表于 2018-9-28 21:25
-
-
 
 
 晚餐会这就到了有点惊讶，不过想想再拖后面真来不及填了
@@ -28399,16 +19450,10 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 这些都处理完，都还没进黑暗大陆
 
 
-
-
-
-
-
 -----
 
 ####  xing7673  
 ##### 2847#       发表于 2018-9-28 22:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41110088&amp;ptid=1505675" target="_blank">cowgp01 发表于 2018-9-28 20:32</a>
@@ -28423,17 +19468,10 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 不如让原本正直的虫变成究极邪恶的大BOSS这样更好。
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 2848#       发表于 2018-9-28 22:23
-
-
 
 
 游戏王是指现场印卡么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
@@ -28442,17 +19480,10 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  Elevation  
 ##### 2849#       发表于 2018-9-28 22:35
-
-
 
 
 老九这能力应该不是早就掌握的吧
@@ -28461,16 +19492,10 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 要不然为啥还拿把枪威胁老回，直接一箭射过去不就万事大吉了吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Snaky  
 ##### 2850#       发表于 2018-9-28 23:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41110088&amp;ptid=1505675" target="_blank">cowgp01 发表于 2018-9-28 20:32</a>
@@ -28479,16 +19504,10 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 明明大王子才是浑身插满了死亡FLAG，相对而言老九还好一点
 
 
-
-
-
-
-
 -----
 
 ####  影子渡客  
 ##### 2851#       发表于 2018-9-29 01:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41099541&amp;ptid=1505675" target="_blank">没取名啊 发表于 2018-09-27 22:39:07</a>
@@ -28497,32 +19516,19 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  jy67  
 ##### 2852#       发表于 2018-9-29 01:24
 
 
-
-
 暂时还不会被安排退场的只有4王子和14王子吧，都是跟酷拉有关的
-
-
-
-
-
 
 
 -----
 
 ####  影子渡客  
 ##### 2853#       发表于 2018-9-29 01:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41099891&amp;ptid=1505675" target="_blank">黑岩泪香 发表于 2018-09-27 23:21:15</a>
@@ -28533,17 +19539,10 @@ B特质气量100，10倍无效，则气量1000可抵抗。
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  FrozenA  
 ##### 2854#       发表于 2018-9-29 20:27
-
-
 
 
 http://www.bilibili.com/video/av32035229
@@ -28553,25 +19552,13 @@ http://www.bilibili.com/video/av32035229
 这个也算纪录片吧，很有意思啊，猎人的担当编剧也透露一点关于猎人/富坚很有意思的事情，有时间可以食用<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">片子只有30分钟，看完真觉得有点不够看
 
 
-
-
-
-
-
 -----
 
 ####  银翼的维罗西  
 ##### 2855#       发表于 2018-9-29 21:50
 
 
-
-
 猎人能看哭的剧情，我记忆里只有九连黑了，王选篇真的有能让人感动的桥段吗？
-
-
-
-
-
 
 
 -----
@@ -28580,23 +19567,15 @@ http://www.bilibili.com/video/av32035229
 ##### 2856#       发表于 2018-9-29 22:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41121285&amp;ptid=1505675" target="_blank">银翼的维罗西 发表于 2018-9-29 21:50</a>
  猎人能看哭的剧情，我记忆里只有九连黑了，王选篇真的有能让人感动的桥段吗？ ...</blockquote>
 10，11王子的死？
-
-
-
-
-
 
 
 -----
 
 ####  comet1224  
 ##### 2857#       发表于 2018-9-30 01:44
-
-
 
 
 這一回總算有劇情了
@@ -28608,17 +19587,10 @@ http://www.bilibili.com/video/av32035229
 熟悉的獵人味回來了
 
 
-
-
-
-
-
 -----
 
 ####  comet1224  
 ##### 2858#       发表于 2018-9-30 01:45
-
-
 
 
 我的媽
@@ -28628,25 +19600,13 @@ http://www.bilibili.com/video/av32035229
 我覺得好像過了一輩子-.-
 
 
-
-
-
-
-
 -----
 
 ####  nxh1999  
 ##### 2859#       发表于 2018-9-30 10:02
 
 
-
-
 假设九王子对上了其它王子，他的能力是不是能把其它王子转成自己的护卫？这样间接可以接手其它王子的一切了……从某种角度讲，也不算是把兄弟姐妹杀了，只不过转成了他自己的实力群体？
-
-
-
-
-
 
 
 -----
@@ -28655,16 +19615,10 @@ http://www.bilibili.com/video/av32035229
 ##### 2860#       发表于 2018-9-30 10:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41124555&amp;ptid=1505675" target="_blank">nxh1999 发表于 2018-9-30 10:02</a>
 
 假设九王子对上了其它王子，他的能力是不是能把其它王子转成自己的护卫？这样间接可以接手其它王子的一切了 ...</blockquote>
 夺舍，就是杀了吧
-
-
-
-
-
 
 
 -----
@@ -28673,21 +19627,13 @@ http://www.bilibili.com/video/av32035229
 ##### 2861#       发表于 2018-9-30 10:21
 
 
-
-
 地球防卫王子
-
-
-
-
-
 
 
 -----
 
 ####  nxh1999  
 ##### 2862#       发表于 2018-9-30 10:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41124660&amp;ptid=1505675" target="_blank">kokyou 发表于 2018-9-30 10:12</a>
@@ -28699,17 +19645,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 也许二王子的死后复活能力对于老九是没用了，在肉体没有死依然活着的情况下，猫就不出来了吧。
 
 
-
-
-
-
-
 -----
 
 ####  Ton  
 ##### 2863#       发表于 2018-9-30 17:32
-
-
 
 
 话说回锅肉国王这次劝说老九的时候真的是搞得好像爱民如子一样啊。
@@ -28719,16 +19658,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 老九这么容易就被他爹洗脑了？
 
 
-
-
-
-
-
 -----
 
 ####  ACFUNBILI  
 ##### 2864#       发表于 2018-9-30 17:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41128913&amp;ptid=1505675" target="_blank">Ton 发表于 2018-9-30 17:32</a>
@@ -28738,16 +19671,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 都朝自己脑袋来一枪了还算洗脑？
 
 
-
-
-
-
-
 -----
 
 ####  GOD·Usopp  
 ##### 2865#       发表于 2018-9-30 21:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41128913&amp;ptid=1505675" target="_blank">Ton 发表于 2018-9-30 17:32</a>
@@ -28755,16 +19682,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 感觉是笨蛋，应该有不杀光所有王子也能达成目的的方法
 
 
-
-
-
-
-
 -----
 
 ####  陈玉礼  
 ##### 2866#       发表于 2018-9-30 21:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41128913&amp;ptid=1505675" target="_blank">Ton 发表于 2018-9-30 17:32</a>
@@ -28774,26 +19695,15 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 不能说洗脑，只是觉悟到，为了改变现在这个状况，无论是政治体制还是继承战，光靠流泪和动嘴皮子恳求是没有意义的，必须得自己亲身下场参与血腥的权力斗争才行
 
 
-
-
-
-
-
 -----
 
 ####  陈玉礼  
 ##### 2867#       发表于 2018-9-30 21:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41130514&amp;ptid=1505675" target="_blank">GOD·Usopp 发表于 2018-9-30 21:11</a>
 感觉是笨蛋，应该有不杀光所有王子也能达成目的的方法</blockquote>
 老王也说过了，对“最终存活”的解释权也在王子手里
-
-
-
-
-
 
 
 -----
@@ -28802,16 +19712,9 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2868#       发表于 2018-9-30 22:12
 
 
-
-
 这话下来反而觉得9王子上限也变低了，可能变成4王子的垫脚石
 
 现在最好奇的就是14王子的漆黑意志。还有猪鼠的进场
-
-
-
-
-
 
 
 -----
@@ -28820,23 +19723,15 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2869#       发表于 2018-9-30 23:12
 
 
-
-
 老九是支持老四的，怎么可能是那种纯粹的善人
 
 —— 来自 Meizu 15, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
-
-
-
-
-
 
 
 -----
 
 ####  银翼的维罗西  
 ##### 2870#       发表于 2018-10-1 00:26
-
 
 
  本帖最后由 银翼的维罗西 于 2018-10-1 00:31 编辑 
@@ -28848,25 +19743,13 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 老九这种单纯的改革派集体主义者能有什么上限，猎人世界上限高的都是中立邪恶极端个人主义的角色，猎人会长，子鼠，金包括主角杰都是这类，老四和这话的回锅肉国王有那么点这个意思。
 
 
-
-
-
-
-
 -----
 
 ####  八云烧鸡鸡  
 ##### 2871#       发表于 2018-10-1 15:19
 
 
-
-
 就算箭是必中必杀的，只要射出来之前干掉就没问题了，详情请参考贪婪之岛篇小杰直接抢掉龙套胖子的咒语卡。
-
-
-
-
-
 
 
 -----
@@ -28875,23 +19758,16 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2872#       发表于 2018-10-1 15:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41136406&amp;ptid=1505675" target="_blank">八云烧鸡鸡 发表于 2018-10-1 15:19</a>
 
 就算箭是必中必杀的，只要射出来之前干掉就没问题了，详情请参考贪婪之岛篇小杰直接抢掉龙套胖子的咒语卡。 ...</blockquote>
 ………………突然发现现在阶段贪婪岛卡的魔法能力逻辑自洽了！！
 
 
-
-
-
-
-
 -----
 
 ####  八云烧鸡鸡  
 ##### 2873#       发表于 2018-10-1 22:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41136543&amp;ptid=1505675" target="_blank">acejoe 发表于 2018-10-1 15:43</a>
@@ -28909,16 +19785,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 在继承战这种环境下，被人知道了自己能力的详细情况，针对手段要多少有多少
 
 
-
-
-
-
-
 -----
 
 ####  郁夫  
 ##### 2874#       发表于 2018-10-2 01:47
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">我突然想起来 
@@ -28926,16 +19796,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 酷拉皮卡那条鱼还没收回来吧?
 
 
-
-
-
-
-
 -----
 
 ####  砂糖天妇罗  
 ##### 2875#       发表于 2018-10-2 03:15
-
 
 
 <blockquote>郁夫 发表于 2018-10-2 01:47
@@ -28945,16 +19809,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 收了。
 
 
-
-
-
-
-
 -----
 
 ####  流愚  
 ##### 2876#       发表于 2018-10-2 07:24
-
 
 
 <blockquote>砂糖天妇罗 发表于 2018-10-2 03:15
@@ -28962,16 +19820,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 这能力感觉没啥用啊，制约大的不得了，用却只能用一次。难道有什么预想外的神奇功效？
 
 
-
-
-
-
-
 -----
 
 ####  北朝论坛NorthDY  
 ##### 2877#       发表于 2018-10-2 07:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41111020&amp;ptid=1505675" target="_blank">midearth 发表于 2018-9-28 22:23</a>
@@ -28993,31 +19845,15 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 2018-10-2 07:43 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  acejoe  
 ##### 2878#       发表于 2018-10-2 09:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41141670&amp;ptid=1505675" target="_blank">北朝论坛NorthDY 发表于 2018-10-2 07:43</a>
 是这个：</blockquote>
 哈哈哈哈哈哈哈哈哈哈哈哈哈哈
-
-
-
-
-
 
 
 -----
@@ -29026,15 +19862,9 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2879#       发表于 2018-10-2 16:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41141670&amp;ptid=1505675" target="_blank">北朝论坛NorthDY 发表于 2018-10-2 07:43</a>
 是这个：</blockquote>
 笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29043,13 +19873,7 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2880#         楼主| 发表于 2018-10-3 10:08
 
 
-
 <img src="http://wx2.sinaimg.cn/large/bcfcde0agy1fvut404oxij20qo0qot9t.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29058,16 +19882,9 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2881#         楼主| 发表于 2018-10-3 10:09
 
 
-
-
 另外，刚刚试了一下，搜索【猎人】搜不到本楼
 
 建议搜索【全职猎人】【hunter】【富坚义博】
-
-
-
-
-
 
 
 -----
@@ -29076,14 +19893,7 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2882#       发表于 2018-10-3 12:07
 
 
-
-
 唉，卡卓还是死了，FJ总是喜欢先拿妹子开刀。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29092,14 +19902,7 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2883#         楼主| 发表于 2018-10-3 12:20
 
 
-
-
 懒得贴翻译了，直接上链接 ：[https://tieba.baidu.com/p/5901496234](https://tieba.baidu.com/p/5901496234)
-
-
-
-
-
 
 
 -----
@@ -29108,14 +19911,7 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2884#       发表于 2018-10-3 12:33
 
 
-
-
 我的心在滴血<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29124,16 +19920,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2885#       发表于 2018-10-3 12:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41151419&amp;ptid=1505675" target="_blank">陈玉礼 发表于 2018-10-3 12:33</a>
 我的心在滴血</blockquote>
 为什么善良无辜的妹子要先死<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">，送走了一个再来第二个？
 死掉老八那样的我一点也不难过。
-
-
-
-
-
 
 
 -----
@@ -29142,14 +19932,7 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2886#       发表于 2018-10-3 12:53
 
 
-
-
 淦嘞<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29158,16 +19941,9 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2887#       发表于 2018-10-3 12:58
 
 
-
-
 虽然早就觉得这两个至少死一个，居然这么快<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
 — from OnePlus ONEPLUS A3010, Android 8.1.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.3
-
-
-
-
-
 
 
 -----
@@ -29176,15 +19952,8 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2888#         楼主| 发表于 2018-10-3 13:06
 
 
-
-
 转情报师
 <img src="http://wx2.sinaimg.cn/large/bcfcde0agy1fvuybh52ohj20xc0irwju.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29193,16 +19962,9 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2889#       发表于 2018-10-3 13:06
 
 
-
-
 为什么死好看的妹子
 
 —— 来自 Xiaomi MI 8 Lite, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
-
-
-
-
-
 
 
 -----
@@ -29211,14 +19973,7 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2890#       发表于 2018-10-3 13:10
 
 
-
-
 富奸套路不是牛逼的死的快吗
-
-
-
-
-
 
 
 -----
@@ -29227,13 +19982,7 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2891#       发表于 2018-10-3 13:10
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">铺垫了几年 终于这两周剧情开始加速了 
-
-
-
-
-
 
 
 -----
@@ -29242,14 +19991,7 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2892#       发表于 2018-10-3 13:16
 
 
-
-
 登场那么多人我还以为能搞很长时间，没想到一个个全死的那么快<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29258,16 +20000,9 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2893#       发表于 2018-10-3 13:22
 
 
-
-
 最后姐姐独自死去的画面，这凄凉感[泪][泪]。双胞胎不想当王，只想自保，但是这可怕的继承战实力证明当逃兵都是不可以的。姐姐的念兽留在妹妹身边，这也是死念了。
 我觉得那个往诡异的壶内滴血的行动就是契约仪式。壶里不知道有什么险恶的东西，签订了契约之后在剩下最后一个人之前就是不死不休。仅仅靠酷拉皮卡一个人终止不了这场继承战。
 上一话错怪了和旋律聊天的协会老猎人，以为他是不想掺合，没想到是有必死的觉悟啊，神回。
-
-
-
-
-
 
 
 -----
@@ -29276,14 +20011,7 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2894#       发表于 2018-10-3 14:48
 
 
-
-
 死的不痛苦很仁慈，之前插的flag够多了，让人喜欢的姐姐角色<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29292,14 +20020,7 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2895#       发表于 2018-10-3 14:53
 
 
-
-
 富坚老贼的功力我还是很服的，这个能力真虐心
-
-
-
-
-
 
 
 -----
@@ -29308,14 +20029,7 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2896#       发表于 2018-10-3 14:57
 
 
-
-
 不死那么快，十几个王子要画十几年么？
-
-
-
-
-
 
 
 -----
@@ -29324,22 +20038,13 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2897#       发表于 2018-10-3 14:57
 
 
-
-
 旋律这能力有点BUG，控场真有情报说的这么牛逼的话配合武斗派基本能歼灭一切想歼灭的目标。
-
-
-
-
-
 
 
 -----
 
 ####  陈玉礼  
 ##### 2898#       发表于 2018-10-3 15:52
-
-
 
 
 在微博上看见有推理猎人协会当时的命令，其实是暗语
@@ -29350,27 +20055,15 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 指令时间13：44是，在四句话中每句截取第几部分（通过词性和成分划分做断句），最后按第一句第1部分、第二句第3部分、第三句第4部分、第四句第4部分这样，提取出来的指令就是「全力支援10和11逃离」，也因此传令者要再「是否需要重复？」←其实是确认是不是get暗号了-_-
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 2899#       发表于 2018-10-3 16:22
 
 
-
-
 果然预料对了，人物关系介绍清楚，能力进行了介绍，那么就要加快节奏了。
 
 但就算是这么快的节奏，短时间内王选篇也不会结束就是了。
-
-
-
-
-
 
 
 -----
@@ -29379,14 +20072,7 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2900#         楼主| 发表于 2018-10-3 17:36
 
 
-
-
 久しぶりに読み直した小説の美しい文体に暫し放心状態。様々な親子を描いた短編&lt;義博&gt; ​​​​
-
-
-
-
-
 
 
 -----
@@ -29395,23 +20081,15 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2901#         楼主| 发表于 2018-10-3 17:43
 
 
-
-
 转鼠绘
 
 <img src="http://wx3.sinaimg.cn/large/741fe3e9gy1fvv690cfafj20ic2imqf1.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  klzxs  
 ##### 2902#       发表于 2018-10-3 17:49
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">不过姐姐的灵兽能力就是以死为前提的
@@ -29421,25 +20099,13 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 死亡不算是这个角色的结束 反而是一个开始
 
 
-
-
-
-
-
 -----
 
 ####  Loony  
 ##### 2903#       发表于 2018-10-3 18:02
 
 
-
-
 富坚又塞私货玩榉坂的梗了
-
-
-
-
-
 
 
 -----
@@ -29448,16 +20114,9 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2904#       发表于 2018-10-3 18:06
 
 
-
-
 也该死个上位王子啦<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 仔细一想上边的心态有点奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29466,14 +20125,7 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2905#       发表于 2018-10-3 18:10
 
 
-
-
 基尼为什么要自杀啊，连个国家都不敢对抗的也配做猎人，猎协里面无法无天的多着呢，协会需要你考虑？换成奇杰这种级别的猎人，想帮王子就帮王子，基尼真是太怂了。
-
-
-
-
-
 
 
 -----
@@ -29482,16 +20134,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2906#       发表于 2018-10-3 18:10
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不便当则已。。这一便当一下就死了几个了
 
 
 木木泽还好。。这8和11一下子就。。
-
-
-
-
-
 
 
 -----
@@ -29500,15 +20146,9 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2907#       发表于 2018-10-3 18:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41153885&amp;ptid=1505675" target="_blank">银翼的维罗西 发表于 2018-10-3 18:10</a>
 基尼为什么要自杀啊，连个国家都不敢对抗的也配做猎人，猎协里面无法无天的多着呢，协会需要你考虑？换成奇 ...</blockquote>
 应该是早就生无可恋了，只是想让自己死的更有价值一些
-
-
-
-
-
 
 
 -----
@@ -29517,15 +20157,9 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2908#       发表于 2018-10-3 18:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">8这种没花什么功夫的明显就是炮灰啊
 
 甚至包括2王子在内的那些用一格就介绍完能力的我也觉得死掉就是分分钟
-
-
-
-
-
 
 
 -----
@@ -29534,17 +20168,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2909#       发表于 2018-10-3 18:19
 
 
-
-
 目前感觉1-5王子是一个档 然后6-11是个档，12-14是个档。
 
 
 现在都快断档了。。
-
-
-
-
-
 
 
 -----
@@ -29553,22 +20180,14 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2910#       发表于 2018-10-3 18:31
 
 
-
-
 所以说现在还不知道十王子是谁杀的…上位王子的手下，或者哪个守护念兽吧
 虽然是瞎勾巴猜，但万一是妹妹的念兽可就太劲爆了<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  流愚  
 ##### 2911#       发表于 2018-10-3 18:45
-
 
 
 <blockquote>哈尔摩尼亚 发表于 2018-10-3 18:31
@@ -29578,26 +20197,15 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 应该是违反了王选的规则被杀的，猜测这个选拔有不能逃跑的规则，不然就会被规则杀死
 
 
-
-
-
-
-
 -----
 
 ####  骊歌三叠  
 ##### 2912#       发表于 2018-10-3 19:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41153885&amp;ptid=1505675" target="_blank">银翼的维罗西 发表于 2018-10-3 18:10</a>
 基尼为什么要自杀啊，连个国家都不敢对抗的也配做猎人，猎协里面无法无天的多着呢，协会需要你考虑？换成奇 ...</blockquote>
 从十二支的表现来看，还是有不少猎人把协会看做自己的归宿的。只有最精锐的少数猎人才是那种只为找个乐子的无法无天的人吧
-
-
-
-
-
 
 
 -----
@@ -29606,15 +20214,9 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2913#       发表于 2018-10-3 19:39
 
 
-
 <blockquote>骊歌三叠 发表于 2018-10-3 19:19
 从十二支的表现来看，还是有不少猎人把协会看做自己的归宿的。只有最精锐的少数猎人才是那种只为找个乐子 ...</blockquote>
 我觉得是这么回事，一个组织必须吸收一些特殊作用的人才才能够在激烈的竞争中生存下去。所以猎人协会里既允许黑社会分子，杀手之类黑暗面的人加入，也可以任由金这种高水平人物胡闹。万一将来协会有难了，这些人说不定能救命呢。但是作为一个守法又和政府有深层联系的组织，协会里的大部分人物又必须是有高度组织性的。这个就是猎人协会的一般和例外吧
-
-
-
-
-
 
 
 -----
@@ -29623,20 +20225,13 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2914#       发表于 2018-10-3 19:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这姐姐真是太果断了……话说总感觉动手的不是其他王子，而是规则本身的样子？因为这个计划其实对其他王子没有实质的影响，反而他们就算知道了也会想看看逃跑的结果
-
-
-
-
-
 
 
 -----
 
 ####  klzxs  
 ##### 2915#       发表于 2018-10-3 19:58
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">这旋律的能力是真的强……对念能力者有没有效先不论
@@ -29646,16 +20241,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 姐妹王子跑路的时候从守备的军队面前过去也没人阻拦
 
 
-
-
-
-
-
 -----
 
 ####  银翼的维罗西  
 ##### 2916#       发表于 2018-10-3 20:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41154772&amp;ptid=1505675" target="_blank">klzxs 发表于 2018-10-3 19:58</a>
@@ -29668,16 +20257,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 这个能力我觉得富坚没考虑好，要么就是像之前诺布一样剧情上不给她使用的机会，只能这种绝对劣势的逃跑情形用用。
 
 
-
-
-
-
-
 -----
 
 ####  klzxs  
 ##### 2917#       发表于 2018-10-3 20:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41154842&amp;ptid=1505675" target="_blank">银翼的维罗西 发表于 2018-10-3 20:10</a>
@@ -29688,32 +20271,19 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 差一点就是让旋律直接死亡 好一点也是雪藏
 
 
-
-
-
-
-
 -----
 
 ####  黑夜守望者  
 ##### 2918#       发表于 2018-10-3 22:46
 
 
-
-
 哭了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">没想到会是这样的结局
-
-
-
-
-
 
 
 -----
 
 ####  黑夜守望者  
 ##### 2919#       发表于 2018-10-3 22:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41154924&amp;ptid=1505675" target="_blank">klzxs 发表于 2018-10-3 20:22</a>
@@ -29724,33 +20294,19 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 不要给旋律插旗啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hardwell  
 ##### 2920#       发表于 2018-10-3 23:04
 
 
-
-
 10的灵兽其实早就有伏笔了，之前让守卫讨厌她，让他们去保护11的时候就知道她可以为了妹妹牺牲自己的，这样算是得其所愿了
-
-
-
-
-
 
 
 -----
 
 ####  hardwell  
 ##### 2921#       发表于 2018-10-3 23:33
-
-
 
 
 猎人吧看到的
@@ -29769,27 +20325,13 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 好虐...好虐...
 
 
-
-
-
-
-
-
-
 -----
 
 ####  老饼饼二世  
 ##### 2922#       发表于 2018-10-4 00:07
 
 
-
-
 富奸应该要给版权费给肥秋
-
-
-
-
-
 
 
 -----
@@ -29798,15 +20340,9 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2923#       发表于 2018-10-4 00:42
 
 
-
 <blockquote>银翼的维罗西 发表于 2018-10-3 20:10
 这个能力我觉得富坚没考虑好，要么就是像之前诺布一样剧情上不给她使用的机会，只能这种绝对劣势的逃跑情 ...</blockquote>
 这个能力带耳塞就能防御，如果被人知道就没用了吧
-
-
-
-
-
 
 
 -----
@@ -29815,22 +20351,13 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2924#       发表于 2018-10-4 09:55
 
 
-
-
 旋律这个能力吟唱时间应该还是有的吧，赶在生效之前让旋律失能应该还是可以有效反制的，如果被妥善保护就很难搞了，团战神器
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2925#         楼主| 发表于 2018-10-4 10:40
-
-
 
 
 转情报师
@@ -29841,25 +20368,13 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 <img src="http://wx1.sinaimg.cn/large/bcfcde0agy1fvvziwd8cvj20dw0dhtfm.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Case  
 ##### 2926#       发表于 2018-10-4 10:41
 
 
-
-
 旋律这张画的真有气势……
-
-
-
-
-
 
 
 -----
@@ -29868,16 +20383,9 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2927#       发表于 2018-10-4 10:47
 
 
-
-
 死相真惨
 
 —— 来自 ZUK Z2121, Android 6.0.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
-
-
-
-
-
 
 
 -----
@@ -29886,14 +20394,7 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2928#       发表于 2018-10-4 10:51
 
 
-
-
 10王子死前很惊恐的样子，大概她看到夺走她生命的某种东西了。死不瞑目啊，她妹妹是不是此时还不清楚姐姐已经离世了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29902,14 +20403,7 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2929#       发表于 2018-10-4 12:01
 
 
-
-
 看表情，大概灵兽变成第十一的样子假装和第十逃跑，然后再那个里面杀了她?
-
-
-
-
-
 
 
 -----
@@ -29918,14 +20412,7 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2930#       发表于 2018-10-4 12:48
 
 
-
-
 老贼真狠，大概11王子离场时还要再虐一次
-
-
-
-
-
 
 
 -----
@@ -29934,14 +20421,7 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2931#       发表于 2018-10-4 12:51
 
 
-
-
 旋律这个是圣斗士奥路菲的招数么
-
-
-
-
-
 
 
 -----
@@ -29950,23 +20430,15 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2932#       发表于 2018-10-4 12:54
 
 
-
 <blockquote>qwxbtgb 发表于 2018-10-4 12:01
 看表情，大概灵兽变成第十一的样子假装和第十逃跑，然后再那个里面杀了她? ...</blockquote>
 不是，那个能力得两人其中死一个才会发动，所以没死前不会发动的。估计是刺客或者壶的规则。
-
-
-
-
-
 
 
 -----
 
 ####  猫睛石  
 ##### 2933#       发表于 2018-10-4 15:29
-
-
 
 
 老猎人的剧情也很感人啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
@@ -29976,32 +20448,19 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  阿刚  
 ##### 2934#       发表于 2018-10-4 16:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">真是很虐了，不过旋律的能力强也一点也是正常，毕竟她能力的来源也是疑似黑暗大陆灾厄的玩意吧，那个魔王交响乐
-
-
-
-
-
 
 
 -----
 
 ####  Snaky  
 ##### 2935#       发表于 2018-10-4 16:47
-
-
 
 
 旋律的能力设定得有点bug 不过也只是为了剧情服务
@@ -30013,17 +20472,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 和上位王子比，下位王子就是养蛊的祭品，没钱没资源没时间，等待着的只有用死亡铺垫新王的霸者之路而已
 
 
-
-
-
-
-
 -----
 
 ####  巴尔干炮  
 ##### 2936#       发表于 2018-10-4 16:53
-
-
 
 
 卡卓身体没有任何外伤，死时表情惊恐，看来是死于规则本身，不是能力者杀的。
@@ -30032,17 +20484,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 估计回锅肉早料到会有王子逃跑，壶中卵仪式里就包括了不能逃跑的规则，当爹的这么狠实在是寒心。
 
 
-
-
-
-
-
 -----
 
 ####  Elevation  
 ##### 2937#       发表于 2018-10-4 17:14
-
-
 
 
 虽然不甘……
@@ -30052,32 +20497,19 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 <img src="https://static.saraba1st.com/image/smiley/face2017/141.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  巴尔干炮  
 ##### 2938#       发表于 2018-10-4 17:49
 
 
-
-
 老国王特地准备了所有王子的“棺材”，而卡卓的尸体孤零零的飘在海上，我倾向于逃走会触发规则导致灵魂被抽走后回到“棺材”。
-
-
-
-
-
 
 
 -----
 
 ####  盐柱  
 ##### 2939#       发表于 2018-10-4 18:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41161472&amp;ptid=1505675" target="_blank">巴尔干炮 发表于 2018-10-4 16:53</a>
@@ -30089,17 +20521,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 规则可能是造壶的先祖定的
 
 
-
-
-
-
-
 -----
 
 ####  盐柱  
 ##### 2940#       发表于 2018-10-4 18:21
-
-
 
 
 旋律的音乐连不在场的12王子也影响到了……感觉接下来可能会被针对了
@@ -30107,16 +20532,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 阻拦两个王子逃跑的很多手想到老国王那边的灵兽，虽然那货也就10只手而已
 
 
-
-
-
-
-
 -----
 
 ####  klzxs  
 ##### 2941#       发表于 2018-10-4 18:51
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">姐姐的能力说的直接点就是两个人多了一条命
@@ -30130,16 +20549,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 还有她作为念兽能不能被其他王子看到（不过十一王子能看到其他人大概也行吧 虽然本来碰面的机会也不多）
 
 
-
-
-
-
-
 -----
 
 ####  结晶の雨  
 ##### 2942#       发表于 2018-10-4 18:58
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">老贼突然虐这么一下就很过分
@@ -30147,16 +20560,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 王子的念兽能力都是反映自己的愿望吧，这种被动防御型（？）的能力也说明这两个王子有多无力
 
 
-
-
-
-
-
 -----
 
 ####  hardwell  
 ##### 2943#       发表于 2018-10-4 19:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41162496&amp;ptid=1505675" target="_blank">klzxs 发表于 2018-10-4 18:51</a>
@@ -30169,25 +20576,13 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 听你这样一讲，这回表面上是杀人，实际上是送挂啊，多了个强力姐姐<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  巴尔干炮  
 ##### 2944#       发表于 2018-10-4 19:13
 
 
-
-
 唉，这话看的真是。。。。看来漫长的铺垫结束了，接下来该过山车了。
-
-
-
-
-
 
 
 -----
@@ -30196,14 +20591,7 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2945#       发表于 2018-10-4 19:28
 
 
-
-
 想到了dq11，也是死姐姐强化妹妹
-
-
-
-
-
 
 
 -----
@@ -30212,14 +20600,7 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2946#       发表于 2018-10-4 19:30
 
 
-
-
 猎人都要多才多艺的吗
-
-
-
-
-
 
 
 -----
@@ -30228,22 +20609,15 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2947#       发表于 2018-10-4 19:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41162816&amp;ptid=1505675" target="_blank">GOD·Usopp 发表于 2018-10-4 19:30</a>
 猎人都要多才多艺的吗</blockquote>
 想想最开始的设定猎人本来就是精英里的精英，会一两门乐器不奇怪吧
-
-
-
-
-
 
 
 -----
 
 ####  klzxs  
 ##### 2948#       发表于 2018-10-4 19:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41162677&amp;ptid=1505675" target="_blank">hardwell 发表于 2018-10-4 19:11</a>
@@ -30254,17 +20628,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 老猎人是真没了
 
 
-
-
-
-
-
 -----
 
 ####  影子渡客  
 ##### 2949#       发表于 2018-10-4 19:33
-
-
 
 
 383【逃脱】观后感
@@ -30276,13 +20643,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ②注意晚宴限定王子阵营的人，连各家的侍从都贡献出来组女团了，我也懂了富奸先安排丑的侍从去跟小酷学艺的用意了。准备演出的人会和自己保护王子的任务发生矛盾，也是敌方很好攻击的点，下次晚宴如果还有什么演出，估计又有幺蛾子了吧。但因为酷拉阵营的猎人除了1013出不去的都表演过了，算是免除了这方面的顾虑。
 
 
-
-
 老贼这么推【欅坂46】，可惜我对日本女团认识浅薄也感统不了什么身受，与剧情无关的彩蛋罢了。。。
 
 
 如果姜文下一部电影狂赛【火箭少女101】的私货，会是啥感觉。
-
 
 
 ③逃生剧情的布局快捷流畅又面面俱到点个赞。期待富奸写出多线齐发的局。
@@ -30294,14 +20658,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 最终两位求仁得仁，十分圆满。
 
 
-
 黑鲸号的制约决定了继承战的结束在到达（伪）新大陆之前，两个月为限，鉴于一周就淘汰了三人，这个业务指标还是很有希望达到的。
 
 
-
 同时这个制约如果对全船的“祭品”有效，又影响到他人离船，必然牵动Beyond &amp; 金 &amp; 帕里斯通 一伙干涉继承战。
-
-
 
 
 风月王子要玩全船躲猫猫了，躲猫猫过程中碰到谁都有可能，等于变成了一条随时可以和其它角色搭上的自由人物线。
@@ -30313,21 +20673,14 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 不过誓约与契约这么强力，参考二王子的百万轮回猫，估计“伪装”效果应该近乎于完美无缺，甚至和真人毫无区别，所以我好奇花鸟灵兽能不能开发念。
 
 
-
 ④最后一个问题，水母谁来认领下？
 <img src="https://pic1.zhimg.com/v2-dfc9df7293f7d97e9e5ffcbc44789b78_r.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  陈玉礼  
 ##### 2950#       发表于 2018-10-4 19:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41162846&amp;ptid=1505675" target="_blank">影子渡客 发表于 2018-10-4 19:33</a>
@@ -30338,25 +20691,13 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 排除法的话，就只有14的灵兽没露面了，当然也有水母是其他灵兽衍生物的可能
 
 
-
-
-
-
-
 -----
 
 ####  默逍  
 ##### 2951#       发表于 2018-10-4 19:53
 
 
-
-
 感觉要开始大规模死人了
-
-
-
-
-
 
 
 -----
@@ -30365,14 +20706,7 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2952#       发表于 2018-10-4 19:54
 
 
-
-
 8王子改变世界的计划到底是啥？8王子虽然挂了，但这个伏笔感觉会让很多人的全盘计划彻底打乱。
-
-
-
-
-
 
 
 -----
@@ -30381,16 +20715,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2953#       发表于 2018-10-4 19:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41162990&amp;ptid=1505675" target="_blank">肩上的乌鸦 发表于 2018-10-4 19:54</a>
 
 8王子改变世界的计划到底是啥？8王子虽然挂了，但这个伏笔感觉会让很多人的全盘计划彻底打乱。 ...</blockquote>
 说是这么说，但现在看不出一点苗头。如果下一话还没发生啥的话，就当这话是吹逼吧
-
-
-
-
-
 
 
 -----
@@ -30399,23 +20727,15 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2954#       发表于 2018-10-4 20:24
 
 
-
-
 卡卓虽然死了
 但是卡卓灵兽是否有意识自己不是卡卓？
 然后卡卓灵兽能否指定妹妹灵兽的回程目标
-
-
-
-
-
 
 
 -----
 
 ####  GOD·Usopp  
 ##### 2955#       发表于 2018-10-4 20:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41163207&amp;ptid=1505675" target="_blank">六连星mk3 发表于 2018-10-4 20:24</a>
@@ -30428,17 +20748,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 已经回了
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 2956#       发表于 2018-10-4 20:50
-
-
 
 
 我一直以为是姐弟。。
@@ -30447,16 +20760,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  hardwell  
 ##### 2957#       发表于 2018-10-4 21:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41162845&amp;ptid=1505675" target="_blank">klzxs 发表于 2018-10-4 19:33</a>
@@ -30467,17 +20774,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 本来就是寻死之人，起码是心满意足地去的
 
 
-
-
-
-
-
 -----
 
 ####  金星  
 ##### 2958#       发表于 2018-10-4 21:08
-
-
 
 
 老贼又开虐了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
@@ -30485,16 +20785,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 —— 来自 motorola XT1650, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
 
 
-
-
-
-
-
 -----
 
 ####  nxh1999  
 ##### 2959#       发表于 2018-10-4 21:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41162846&amp;ptid=1505675" target="_blank">影子渡客 发表于 2018-10-4 19:33</a>
@@ -30506,26 +20800,15 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 如果说是富坚画错了，那这个Bug太大了。也有可能14很小，可塑性强，所以她的念兽形态会变化。
 
 
-
-
-
-
-
 -----
 
 ####  易方世界  
 ##### 2960#       发表于 2018-10-4 22:19
 
 
-
  本帖最后由 易方世界 于 2018-10-4 22:44 编辑 
 
 第十王子勉强的笑看哭了。「你已不在」的能力太虐了，各种意义上的。那么现在的问题在于，「你已不在」产生的念兽究竟是完全拷贝了王子本人的灵魂（姑且用这个字眼），还是单纯只是继承了「执念」……我倾向于是后者，那就更虐了
-
-
-
-
-
 
 
 -----
@@ -30534,15 +20817,9 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2961#       发表于 2018-10-4 22:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">op和hxh同时更我有点脑壳疼 
 
 刚刚笑开的肠又被老贼揉一团了
-
-
-
-
-
 
 
 -----
@@ -30551,16 +20828,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2962#       发表于 2018-10-4 22:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41163366&amp;ptid=1505675" target="_blank">GOD·Usopp 发表于 2018-10-4 20:46</a>
 已经回了</blockquote>
 回程目标是卡卓本体死前设定的
 看下次妹妹灵兽回程设定能不能起效果
-
-
-
-
-
 
 
 -----
@@ -30569,21 +20840,14 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2963#       发表于 2018-10-4 22:45
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">好不爽…有种黏腻，或者说无力恶心的感觉
 我衷心希望天降个蚂蚁之类的公敌来打破这局面，旅团赶紧开杀吧
-
-
-
-
-
 
 
 -----
 
 ####  acejoe  
 ##### 2964#       发表于 2018-10-4 23:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41164346&amp;ptid=1505675" target="_blank">哈尔摩尼亚 发表于 2018-10-4 22:45</a>
@@ -30594,16 +20858,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 天降公敌不就是旅团么，不过更可能上层某个侍卫是西索
 
 
-
-
-
-
-
 -----
 
 ####  hardwell  
 ##### 2965#       发表于 2018-10-4 23:06
-
 
 
 <blockquote>哈尔摩尼亚 发表于 2018-10-4 22:45
@@ -30613,16 +20871,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 还有那些搞事的私生子
 
 
-
-
-
-
-
 -----
 
 ####  hardwell  
 ##### 2966#       发表于 2018-10-4 23:19
-
 
 
 <blockquote>易方世界 发表于 2018-10-4 22:19
@@ -30630,16 +20882,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 11没有觉察出异样，要知道她们可是朝夕相处的，我倾向于第一种
 
 
-
-
-
-
-
 -----
 
 ####  莉洁莉特  
 ##### 2967#       发表于 2018-10-4 23:55
-
 
 
 <img src="http://ww1.sinaimg.cn/large/67381bf4ly1fvwmpxigulj20nh070q4v.jpg" referrerpolicy="no-referrer">
@@ -30649,27 +20895,15 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 很震撼。
 
 
-
-
-
-
-
 -----
 
 ####  gutzz  
 ##### 2968#       发表于 2018-10-4 23:57
 
 
-
-
 明明已经看过情报了，看完这话还是很难受<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 — from OnePlus ONEPLUS A3010, Android 8.1.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.3
-
-
-
-
-
 
 
 -----
@@ -30678,15 +20912,9 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2969#       发表于 2018-10-5 00:05
 
 
-
  本帖最后由 hardwell 于 2018-10-5 00:07 编辑 
 
 话说大家认为11会死在谁的手里？死在路人王子手里作角色铺垫太浪费，个人希望是4，作为大反派仇恨值还不太够，9也不错，大义灭亲的第一个祭品，瞬间拉满仇恨当然最好是能够幸存。。。
-
-
-
-
-
 
 
 -----
@@ -30695,16 +20923,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2970#       发表于 2018-10-5 00:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41164469&amp;ptid=1505675" target="_blank">acejoe 发表于 2018-10-4 23:03</a>
 天降公敌不就是旅团么，不过更可能上层某个侍卫是西索</blockquote>
 其实我觉得旅团就算闹事也还是比较和谐的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 我想看的是蚂蚁那样无差别的杀戮—与其在这种无意义的仪式里当祭品，还不如大家一起死了好
-
-
-
-
-
 
 
 -----
@@ -30713,16 +20935,10 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2971#       发表于 2018-10-5 00:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41164975&amp;ptid=1505675" target="_blank">哈尔摩尼亚 发表于 2018-10-5 00:07</a>
 其实我觉得旅团就算闹事也还是比较和谐的
 我想看的是蚂蚁那样无差别的杀戮—与其在这种无意义的仪 ...</blockquote>
 墨莲那帮扮演的就是这个角色
-
-
-
-
-
 
 
 -----
@@ -30731,15 +20947,8 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2972#       发表于 2018-10-5 00:10
 
 
-
-
 大家都觉得很难以接受的原因可能是其他王子或多或少都有点小九九
 这对姐妹就是只想活命
-
-
-
-
-
 
 
 -----
@@ -30748,21 +20957,13 @@ BB派到九王子那里的那个方脸护卫被念之箭射中之后倒下了，
 ##### 2973#       发表于 2018-10-5 00:10
 
 
-
-
 FJ老贼啊，寥寥数笔让一个角色丰满起来，然后一句话就杀掉一个有着丰富内容的角色，<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  stygianlunar  
 ##### 2974#       发表于 2018-10-5 00:16
-
 
 
  本帖最后由 stygianlunar 于 2018-10-5 00:24 编辑 
@@ -30777,16 +20978,10 @@ FJ老贼啊，寥寥数笔让一个角色丰满起来，然后一句话就杀掉
 顺便，这个仪式这么强也是挺正常的，因为一代代国王都是这么出来的，每次王选恐怕死人都不少，这可不是死几个王室成员，仪式范围内所有人都是蛊。积累了不知道多少代了，这念的凶恶程度恐怕已经是非常恐怖的程度了。
 
 
-
-
-
-
-
 -----
 
 ####  stygianlunar  
 ##### 2975#       发表于 2018-10-5 00:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41154924&amp;ptid=1505675" target="_blank">klzxs 发表于 2018-10-3 20:22</a>
@@ -30797,16 +20992,10 @@ FJ老贼啊，寥寥数笔让一个角色丰满起来，然后一句话就杀掉
 这个能力应该仅仅是对普通人形成暗示和干扰，应该没有太强控制力。
 
 
-
-
-
-
-
 -----
 
 ####  klzxs  
 ##### 2976#       发表于 2018-10-5 00:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41165088&amp;ptid=1505675" target="_blank">stygianlunar 发表于 2018-10-5 00:22</a>
@@ -30819,27 +21008,15 @@ FJ老贼啊，寥寥数笔让一个角色丰满起来，然后一句话就杀掉
 再多的控制也没必要
 
 
-
-
-
-
-
 -----
 
 ####  wbybill  
 ##### 2977#       发表于 2018-10-5 00:45
 
 
-
-
 这个逃出船（一定范围）就立即去世的规则感觉像吃鸡里面的毒圈。
 
 说来也是，玩你死我活的游戏，如果不限定范围，东躲西藏可能永远也结束不了。
-
-
-
-
-
 
 
 -----
@@ -30848,22 +21025,13 @@ FJ老贼啊，寥寥数笔让一个角色丰满起来，然后一句话就杀掉
 ##### 2978#       发表于 2018-10-5 01:16
 
 
-
-
 个人觉得还是有破坏规则离开船的办法的，比如除念除掉灵兽，或者直接破解壶的念，更或者富奸流作弊法根据规则漏洞把场地扩大什么的
-
-
-
-
-
 
 
 -----
 
 ####  klzxs  
 ##### 2979#       发表于 2018-10-5 01:27
-
-
 
 
 最后肯定要破的 有挂壁的酷拉在呢
@@ -30873,16 +21041,10 @@ FJ老贼啊，寥寥数笔让一个角色丰满起来，然后一句话就杀掉
 想让复数王子存活就肯定会破除这个仪式
 
 
-
-
-
-
-
 -----
 
 ####  丘萤之光  
 ##### 2980#       发表于 2018-10-5 01:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41165445&amp;ptid=1505675" target="_blank">klzxs 发表于 2018-10-4 19:27</a>
@@ -30895,17 +21057,10 @@ FJ老贼啊，寥寥数笔让一个角色丰满起来，然后一句话就杀掉
 然而如果后面破了规则让前面那些人渣王子活下来只有最可爱的卡亲死了想想就不能接受，虽然富坚很可能这么玩吧
 
 
-
-
-
-
-
 -----
 
 ####  nuoer  
 ##### 2981#       发表于 2018-10-5 01:33
-
-
 
 
 「在希望近在眼前时感受到的绝望才最美味可口」
@@ -30914,17 +21069,10 @@ FJ老贼啊，寥寥数笔让一个角色丰满起来，然后一句话就杀掉
 —— 来自 Meizu 15, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
 
 
-
-
-
-
-
 -----
 
 ####  top2000  
 ##### 2982#       发表于 2018-10-5 02:33
-
-
 
 
 旋律是在舞台上表演 船舱里有大喇叭扩音器的 而且一个耳塞就无效
@@ -30933,16 +21081,10 @@ FJ老贼啊，寥寥数笔让一个角色丰满起来，然后一句话就杀掉
 — from HMD Global Nokia 7 plus, Android 8.1.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.3-play
 
 
-
-
-
-
-
 -----
 
 ####  kokyou  
 ##### 2983#       发表于 2018-10-5 09:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41165388&amp;ptid=1505675" target="_blank">acejoe 发表于 2018-10-05 01:16:04</a>
@@ -30951,17 +21093,10 @@ FJ老贼啊，寥寥数笔让一个角色丰满起来，然后一句话就杀掉
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 2984#       发表于 2018-10-5 09:26
-
-
 
 
 现在得先明白到底是什么杀死了10王子吧。。
@@ -30973,16 +21108,10 @@ FJ老贼啊，寥寥数笔让一个角色丰满起来，然后一句话就杀掉
 这个不知道怎么解。
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 2985#       发表于 2018-10-5 09:52
-
 
 
 <blockquote>引用第2972楼stygianlunar于2018-10-05 01:40发表的  :
@@ -30994,16 +21123,10 @@ FJ老贼啊，寥寥数笔让一个角色丰满起来，然后一句话就杀掉
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  hardwell  
 ##### 2986#       发表于 2018-10-5 10:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41167892&amp;ptid=1505675" target="_blank">jsyyyz 发表于 2018-10-5 09:26</a>
@@ -31015,16 +21138,10 @@ FJ老贼啊，寥寥数笔让一个角色丰满起来，然后一句话就杀掉
 应该是蛊的念吧，如果人都跑了选拔就进行不下去了。之前有王子的棺材都放在一起的镜头，应该是让蛊回收他们的能力的，这样才会一代更比一代强。杀死10王子的那堆手估计就是死在选拔的亡灵之类的吧
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 2987#       发表于 2018-10-5 10:11
-
 
 
  本帖最后由 amulelernen 于 2018-10-5 10:18 编辑 
@@ -31037,16 +21154,10 @@ FJ老贼啊，寥寥数笔让一个角色丰满起来，然后一句话就杀掉
 PS：看来蚂蚁篇潜入不请旋律来发招亏大了
 
 
-
-
-
-
-
 -----
 
 ####  hardwell  
 ##### 2988#       发表于 2018-10-5 10:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41168189&amp;ptid=1505675" target="_blank">amulelernen 发表于 2018-10-5 10:11</a>
@@ -31063,16 +21174,10 @@ PS：看来蚂蚁篇潜入不请旋律来发招亏大了
 2.不是念能力者的11能看到，应该是具现化系的。后期会变身吗，变成跟其他念兽一个风格的话好期待<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">。姐姐的感情的话应该是有的，不然早被11看出问题了吧，怎么还会一起睡
 
 
-
-
-
-
-
 -----
 
 ####  零崎曲識  
 ##### 2989#       发表于 2018-10-5 11:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41165730&amp;ptid=1505675" target="_blank">top2000 发表于 2018-10-5 02:33</a>
@@ -31083,16 +21188,10 @@ PS：看来蚂蚁篇潜入不请旋律来发招亏大了
 不坏嘛。但是姑且不探讨耳塞的效果，只防备笛子会不会太大意呢
 
 
-
-
-
-
-
 -----
 
 ####  top2000  
 ##### 2990#       发表于 2018-10-5 11:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41168579&amp;ptid=1505675" target="_blank">零崎曲識 发表于 2018-10-5 11:07</a>
@@ -31101,32 +21200,19 @@ PS：看来蚂蚁篇潜入不请旋律来发招亏大了
 我是觉得旋律马上就要遭重了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer"> 对着整个王室展露能力
 
 
-
-
-
-
-
 -----
 
 ####  光明寺茉衣子  
 ##### 2991#       发表于 2018-10-5 11:16
 
 
-
-
 旋律是去黑暗大陆重要的一个人物，怎么会有人觉得她会死在这的？除非黑暗大陆不去了吧，但那猎人还有个鸡毛意思？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  acejoe  
 ##### 2992#       发表于 2018-10-5 11:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41168189&amp;ptid=1505675" target="_blank">amulelernen 发表于 2018-10-5 10:11</a>
@@ -31136,16 +21222,10 @@ PS：看来蚂蚁篇潜入不请旋律来发招亏大了
 对人有用就是对蚂蚁有用了？
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 2993#       发表于 2018-10-5 11:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41168717&amp;ptid=1505675" target="_blank">acejoe 发表于 2018-10-5 11:27</a>
@@ -31154,17 +21234,10 @@ PS：看来蚂蚁篇潜入不请旋律来发招亏大了
 整个蚂蚁篇不就是讲（高级）蚂蚁体内人的部分的变化和觉醒么，我觉得可能还是有用的
 
 
-
-
-
-
-
 -----
 
 ####  MAYUMI  
 ##### 2994#       发表于 2018-10-5 11:46
-
-
 
 
 富坚那么沉迷偶像，会不会画个女团出来呢～
@@ -31173,24 +21246,13 @@ PS：看来蚂蚁篇潜入不请旋律来发招亏大了
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Nelioer  
 ##### 2995#       发表于 2018-10-5 11:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/182.png" referrerpolicy="no-referrer">啊，我已经用不了念了
-
-
-
-
-
 
 
 -----
@@ -31199,22 +21261,13 @@ PS：看来蚂蚁篇潜入不请旋律来发招亏大了
 ##### 2996#       发表于 2018-10-5 11:53
 
 
-
-
 妈了个鸡，海贼那边看完让我热血沸腾，猎人这边又被虐惨了
-
-
-
-
-
 
 
 -----
 
 ####  eufonius  
 ##### 2997#       发表于 2018-10-5 12:24
-
-
 
 
 这一话用10王子的性命完全屏蔽了逃离王选的可能性 
@@ -31225,25 +21278,13 @@ PS：看来蚂蚁篇潜入不请旋律来发招亏大了
 心疼一把这些魅力配角
 
 
-
-
-
-
-
 -----
 
 ####  shinraku  
 ##### 2998#       发表于 2018-10-5 12:32
 
 
-
-
 回锅肉王也是继承战的一部分吗
-
-
-
-
-
 
 
 -----
@@ -31252,14 +21293,7 @@ PS：看来蚂蚁篇潜入不请旋律来发招亏大了
 ##### 2999#       发表于 2018-10-5 12:33
 
 
-
-
 希望11能活久一点吧..
-
-
-
-
-
 
 
 -----
@@ -31268,11 +21302,6 @@ PS：看来蚂蚁篇潜入不请旋律来发招亏大了
 ##### 3000#       发表于 2018-10-5 12:52
 
 
-
-
 新角色我就只记得这几个王子了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
-
-
-
 
 

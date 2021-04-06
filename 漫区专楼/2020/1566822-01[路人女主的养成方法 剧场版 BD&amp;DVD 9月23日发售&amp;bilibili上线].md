@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2020-10-09 12:31** 
 
 
-
 -----
 
 ####  xingenge  
 ##### 1#       楼主       发表于 2017-12-3 20:03
-
 
 
  本帖最后由 xingenge 于 2020-9-17 18:07 编辑 
@@ -17,13 +15,9 @@
 <img src="http://wx1.sinaimg.cn/large/0068TvVBgy1fwftw25v03j30wy0ijqdw.jpg" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -33,12 +27,7 @@
 | kimone| + 1|[c:018]|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -49,20 +38,13 @@
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  xingenge  
 ##### 3#         楼主| 发表于 2017-12-3 20:07
 
 
-
 <img src="https://public.lightpic.info/image/C29C_5A23E8F90.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -71,15 +53,9 @@
 ##### 4#       发表于 2017-12-3 20:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/022.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -88,13 +64,7 @@
 ##### 5#       发表于 2017-12-3 20:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -105,7 +75,6 @@
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  jowawawa  
@@ -114,12 +83,10 @@
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  xingenge  
 ##### 8#         楼主| 发表于 2017-12-3 20:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37896085&amp;ptid=1566822" target="_blank">jowawawa 发表于 2017-12-3 20:10</a>
@@ -128,25 +95,13 @@
 目前好像没说，等续报吧
 
 
-
-
-
-
-
 -----
 
 ####  xdescat01  
 ##### 9#       发表于 2017-12-3 20:13
 
 
-
-
 120分钟第0话福利<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -155,14 +110,7 @@
 ##### 10#       发表于 2017-12-3 20:13
 
 
-
-
 喷了<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -171,15 +119,8 @@
 ##### 11#       发表于 2017-12-3 20:13
 
 
-
-
 路人女主剧场版 英梨梨的逆袭
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -188,14 +129,7 @@
 ##### 12#       发表于 2017-12-3 20:13
 
 
-
-
 你梨最后的表演！
-
-
-
-
-
 
 
 -----
@@ -204,20 +138,13 @@
 ##### 13#       发表于 2017-12-3 20:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">大屏幕上觀看梨之顫抖...
-
-
-
-
-
 
 
 -----
 
 ####  夏织  
 ##### 14#       发表于 2017-12-3 20:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37896122&amp;ptid=1566822" target="_blank">Meiien 发表于 2017-12-3 20:13</a>
@@ -228,25 +155,13 @@
 剧场版第三弹 闪光的加藤惠
 
 
-
-
-
-
-
 -----
 
 ####  温和派缪斯林  
 ##### 15#       发表于 2017-12-3 20:24
 
 
-
-
 逆袭的err！
-
-
-
-
-
 
 
 -----
@@ -255,14 +170,7 @@
 ##### 16#       发表于 2017-12-3 20:25
 
 
-
-
 我就是喜欢这个表情<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -271,14 +179,7 @@
 ##### 17#       发表于 2017-12-3 20:25
 
 
-
-
 我要恋爱节拍器<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -287,13 +188,7 @@
 ##### 18#       发表于 2017-12-3 20:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -302,16 +197,9 @@
 ##### 19#       发表于 2017-12-3 20:26
 
 
-
-
 if线希望<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -320,13 +208,7 @@ if线希望<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gi
 ##### 20#       发表于 2017-12-3 20:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">然后发现是后日谈，跟你梨没半毛钱关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -335,13 +217,7 @@ if线希望<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gi
 ##### 21#       发表于 2017-12-3 20:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">想看发糖部分
-
-
-
-
-
 
 
 -----
@@ -352,13 +228,10 @@ if线希望<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gi
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  midearth  
 ##### 23#       发表于 2017-12-3 20:47
-
-
 
 
 总集篇的话，两期分量貌似有点大，接着做下去光一个剧场版也不够，做gs跟本篇剧情也接不上。。。难道是做那几个外传？
@@ -368,26 +241,15 @@ if线希望<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gi
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.30)
 
 
-
-
-
-
-
 -----
 
 ####  wuliaozheX  
 ##### 24#       发表于 2017-12-3 20:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">情报图都是圣人
 
 这是什么玩法？
-
-
-
-
-
 
 
 -----
@@ -396,14 +258,8 @@ if线希望<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gi
 ##### 25#       发表于 2017-12-3 20:48
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -412,13 +268,7 @@ if线希望<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gi
 ##### 26#       发表于 2017-12-3 20:51
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">放过我梨吧
-
-
-
-
-
 
 
 -----
@@ -429,20 +279,13 @@ if线希望<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gi
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  vassiliev  
 ##### 28#       发表于 2017-12-3 20:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">你梨能有五年后吗
-
-
-
-
-
 
 
 -----
@@ -451,20 +294,13 @@ if线希望<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gi
 ##### 29#       发表于 2017-12-3 20:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  livelive  
 ##### 30#       发表于 2017-12-3 21:00
-
 
 
 <blockquote>zadn 发表于 2017-12-3 20:56
@@ -475,24 +311,13 @@ if线希望<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gi
 从第8本开始每本一部剧场版？
 
 
-
-
-
-
-
 -----
 
 ####  伊莉伊莉雅  
 ##### 31#       发表于 2017-12-3 21:10
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -501,13 +326,7 @@ if线希望<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gi
 ##### 32#       发表于 2017-12-3 21:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">永垂不朽
-
-
-
-
-
 
 
 -----
@@ -516,14 +335,7 @@ if线希望<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gi
 ##### 33#         楼主| 发表于 2017-12-3 21:33
 
 
-
-
 イベントでは、原作のイラストを手がける深崎さんのイラスト展「冴えない彼女の育てかた 深崎暮人展」が2018年に台湾、東京、大阪で開催されることも発表された。
-
-
-
-
-
 
 
 -----
@@ -532,13 +344,7 @@ if线希望<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gi
 ##### 34#       发表于 2017-12-3 21:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">梨坛大震惊!
-
-
-
-
-
 
 
 -----
@@ -547,17 +353,10 @@ if线希望<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gi
 ##### 35#         楼主| 发表于 2017-12-3 21:43
 
 
-
-
 【冴えカノFES♭】
 
 イベントへご来場頂いた皆さん、物販にきてくださった皆さん、ありがとうございました！！！なんと劇場版が決定して、まだまだ皆さんと一緒に冴えカノを楽しむことができます！本当にありがとうございます！出演後のキャストの皆さんと！
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fm3wwbz8raj20m80ia4h3.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -566,14 +365,7 @@ if线希望<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gi
 ##### 36#       发表于 2017-12-3 21:47
 
 
-
-
 WTF?<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -582,15 +374,9 @@ WTF?<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referr
 ##### 37#       发表于 2017-12-3 21:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">终于又可以用这个表情了
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -601,20 +387,13 @@ WTF?<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referr
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  屈江鸟  
 ##### 39#       发表于 2017-12-3 21:56
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -623,13 +402,7 @@ WTF?<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referr
 ##### 40#       发表于 2017-12-3 22:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -638,17 +411,11 @@ WTF?<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referr
 ##### 41#       发表于 2017-12-3 22:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37896400&amp;ptid=1566822" target="_blank">wuliaozheX 发表于 2017-12-3 20:47</a>
 情报图都是圣人
 
 这是什么玩法？</blockquote>
 想了下可能<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">没出场，所以就没情报图了
-
-
-
-
-
 
 
 -----
@@ -659,21 +426,13 @@ WTF?<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referr
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  任天索尼子  
 ##### 43#       发表于 2017-12-3 22:51
 
 
-
-
 反正都是亲女儿的剧情 有意义么
-
-
-
-
-
 
 
 -----
@@ -682,22 +441,13 @@ WTF?<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referr
 ##### 44#       发表于 2017-12-3 23:02
 
 
-
-
 什么！<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  一色いろは  
 ##### 45#       发表于 2017-12-3 23:03
-
-
 
 
 把我梨和学姐的那两卷删了 直接社团重组+你惠剧本+你惠结局
@@ -707,25 +457,13 @@ WTF?<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referr
 GS3的情节估计看不到了<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之领域  
 ##### 46#       发表于 2017-12-3 23:04
 
 
-
-
 if线出OVA比较多吧，剧场版的话，如果不是新剧情就是剪辑总结版。泥潭的病人比较多，还是出学姐或者表姐的剧情比较好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -734,14 +472,7 @@ if线出OVA比较多吧，剧场版的话，如果不是新剧情就是剪辑总
 ##### 47#       发表于 2017-12-3 23:08
 
 
-
-
 剧场版的<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -750,14 +481,7 @@ if线出OVA比较多吧，剧场版的话，如果不是新剧情就是剪辑总
 ##### 48#       发表于 2017-12-3 23:14
 
 
-
-
 惠吊打全场。。。
-
-
-
-
-
 
 
 -----
@@ -766,14 +490,7 @@ if线出OVA比较多吧，剧场版的话，如果不是新剧情就是剪辑总
 ##### 49#       发表于 2017-12-3 23:16
 
 
-
-
 只要有<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">就是极好的
-
-
-
-
-
 
 
 -----
@@ -782,14 +499,7 @@ if线出OVA比较多吧，剧场版的话，如果不是新剧情就是剪辑总
 ##### 50#       发表于 2017-12-3 23:37
 
 
-
-
 怎么回事！<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -800,20 +510,13 @@ if线出OVA比较多吧，剧场版的话，如果不是新剧情就是剪辑总
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  天之叢云  
 ##### 52#       发表于 2017-12-4 00:32
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -822,14 +525,7 @@ if线出OVA比较多吧，剧场版的话，如果不是新剧情就是剪辑总
 ##### 53#       发表于 2017-12-4 00:34
 
 
-
-
 出于剧情需要，我们决定鞭err尸<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -838,16 +534,9 @@ if线出OVA比较多吧，剧场版的话，如果不是新剧情就是剪辑总
 ##### 54#       发表于 2017-12-4 00:52
 
 
-
-
 其它各种野党你们还能活几年了，官方组织惠党来收割你们了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -856,17 +545,10 @@ if线出OVA比较多吧，剧场版的话，如果不是新剧情就是剪辑总
 ##### 55#       发表于 2017-12-4 01:02
 
 
-
-
 封面是你惠，怕是没得打了
 只要 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer"> 就满足了
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -877,20 +559,13 @@ if线出OVA比较多吧，剧场版的话，如果不是新剧情就是剪辑总
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  橙味芬达  
 ##### 57#       发表于 2017-12-4 09:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">好好讲你惠的糖吧，放过我梨吧
-
-
-
-
-
 
 
 -----
@@ -899,13 +574,7 @@ if线出OVA比较多吧，剧场版的话，如果不是新剧情就是剪辑总
 ##### 58#       发表于 2017-12-4 10:00
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">继续鞭尸有意义么
-
-
-
-
-
 
 
 -----
@@ -914,14 +583,7 @@ if线出OVA比较多吧，剧场版的话，如果不是新剧情就是剪辑总
 ##### 59#       发表于 2017-12-4 10:12
 
 
-
-
 莫不是做个大结局<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -930,22 +592,14 @@ if线出OVA比较多吧，剧场版的话，如果不是新剧情就是剪辑总
 ##### 60#         楼主| 发表于 2017-12-4 18:09
 
 
-
-
 『冴えない彼女の育てかた』劇場版告知PV │ 劇場版制作決定!! 
 [http://my.tv.sohu.com/us/315113295/95416219.shtml](http://my.tv.sohu.com/us/315113295/95416219.shtml)
-
-
-
-
-
 
 
 -----
 
 ####  wuliaozheX  
 ##### 61#       发表于 2017-12-4 20:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37903985&amp;ptid=1566822" target="_blank">xingenge 发表于 2017-12-4 18:09</a>
@@ -956,24 +610,13 @@ http://my.tv.sohu.com/us/315113295/95416 ...</blockquote>
 圣人最后樱花红袍镜头不搓大我是不信的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####       娜Nausicaa  
 ##### 62#       发表于 2017-12-4 21:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -982,15 +625,8 @@ http://my.tv.sohu.com/us/315113295/95416 ...</blockquote>
 ##### 63#       发表于 2017-12-9 01:06
 
 
-
-
 可以预见到梨党的哀嚎了么
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -999,14 +635,7 @@ http://my.tv.sohu.com/us/315113295/95416 ...</blockquote>
 ##### 64#         楼主| 发表于 2018-1-20 17:15
 
 
-
-
 路人女主的养成方法剧场版 予定上是 杀必死场景数量会挺多的
-
-
-
-
-
 
 
 -----
@@ -1017,7 +646,6 @@ http://my.tv.sohu.com/us/315113295/95416 ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  光阴冢  
@@ -1026,21 +654,13 @@ http://my.tv.sohu.com/us/315113295/95416 ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  selain.meneth  
 ##### 67#       发表于 2018-1-20 20:56
 
 
-
-
 来个英梨梨IF吧<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1049,16 +669,9 @@ http://my.tv.sohu.com/us/315113295/95416 ...</blockquote>
 ##### 68#         楼主| 发表于 2018-2-7 18:21
 
 
-
-
 路人女主6卷特典 丸户史明暗示剧场版可能与原作不同
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fo81xerqswj20o90xcmz0.jpg" referrerpolicy="no-referrer">
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fo81xepugdj20bv0xcmye.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1067,14 +680,7 @@ http://my.tv.sohu.com/us/315113295/95416 ...</blockquote>
 ##### 69#       发表于 2018-2-7 18:24
 
 
-
-
 有了一丝剧场版是<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">IF线的幻想
-
-
-
-
-
 
 
 -----
@@ -1083,14 +689,7 @@ http://my.tv.sohu.com/us/315113295/95416 ...</blockquote>
 ##### 70#       发表于 2018-2-7 18:35
 
 
-
-
 来个斯特拉斯堡的杀必死。
-
-
-
-
-
 
 
 -----
@@ -1101,23 +700,15 @@ http://my.tv.sohu.com/us/315113295/95416 ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  moekyo  
 ##### 72#       发表于 2018-2-7 18:45
 
 
-
-
 别啊，不想胃疼<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，刚刚心疼完学姐和英莉莉
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -1126,14 +717,7 @@ http://my.tv.sohu.com/us/315113295/95416 ...</blockquote>
 ##### 73#       发表于 2018-2-7 18:51
 
 
-
-
 结果到时候出来是惠换个姿势赢一次<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1142,14 +726,7 @@ http://my.tv.sohu.com/us/315113295/95416 ...</blockquote>
 ##### 74#       发表于 2018-2-7 19:02
 
 
-
-
 23333333333333333
-
-
-
-
-
 
 
 -----
@@ -1158,14 +735,7 @@ http://my.tv.sohu.com/us/315113295/95416 ...</blockquote>
 ##### 75#       发表于 2018-2-7 19:10
 
 
-
-
 换个姿势在虐一次英梨梨而已<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1174,20 +744,13 @@ http://my.tv.sohu.com/us/315113295/95416 ...</blockquote>
 ##### 76#       发表于 2018-2-7 19:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">坐等逆袭
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 77#         楼主| 发表于 2018-2-7 19:53
-
 
 
 [https://forum.gamer.com.tw/C.php?bsn=45274&amp;snA=971&amp;tnum=1](https://forum.gamer.com.tw/C.php?bsn=45274&amp;snA=971&amp;tnum=1)
@@ -1199,26 +762,15 @@ http://my.tv.sohu.com/us/315113295/95416 ...</blockquote>
 （所以劇場版確定是依照已完成的小說內容，還有BD附的特典小說）
 
 
-
-
-
-
-
 -----
 
 ####  矫情大孩  
 ##### 78#       发表于 2018-2-7 20:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">期待反扑
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -1229,13 +781,10 @@ http://my.tv.sohu.com/us/315113295/95416 ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  ReginaldMorgan  
 ##### 80#       发表于 2018-2-7 21:01
-
-
 
 
 不过是换个姿势再轮一遍我梨和学姐而已
@@ -1243,17 +792,10 @@ http://my.tv.sohu.com/us/315113295/95416 ...</blockquote>
 呵，男人.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 81#         楼主| 发表于 2018-7-19 18:08
-
-
 
 
 ドラゴンマガジン11月号予告 
@@ -1271,17 +813,10 @@ http://my.tv.sohu.com/us/315113295/95416 ...</blockquote>
 付録2「メモリアル・クリアシール」 
 
 
-
-
-
-
-
 -----
 
 ####  便宜不贵喵  
 ##### 82#       发表于 2018-7-19 22:18
-
-
 
 
 新剧情？
@@ -1291,25 +826,13 @@ http://my.tv.sohu.com/us/315113295/95416 ...</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  小小陌路人  
 ##### 83#       发表于 2018-7-19 22:54
 
 
-
-
 不会真的是老女人主场吧<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1318,14 +841,7 @@ http://my.tv.sohu.com/us/315113295/95416 ...</blockquote>
 ##### 84#       发表于 2018-7-19 22:55
 
 
-
-
 真是要求求丸戶憋再消費這個IP了！
-
-
-
-
-
 
 
 -----
@@ -1334,16 +850,9 @@ http://my.tv.sohu.com/us/315113295/95416 ...</blockquote>
 ##### 85#       发表于 2018-7-20 01:04
 
 
-
-
 宜将剩勇追穷寇，不可沽名学霸王
 
 丸户，不要放过你的仇人
-
-
-
-
-
 
 
 -----
@@ -1354,7 +863,6 @@ http://my.tv.sohu.com/us/315113295/95416 ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  冬夜女公爵  
@@ -1363,13 +871,10 @@ http://my.tv.sohu.com/us/315113295/95416 ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  xingenge  
 ##### 88#         楼主| 发表于 2018-9-19 20:48
-
-
 
 
 ■富士見ファンタジア文庫
@@ -1399,26 +904,15 @@ http://my.tv.sohu.com/us/315113295/95416 ...</blockquote>
 ひとりで劇場に行ったほうがいいかもしれません
 
 
-
-
-
-
-
 -----
 
 ####  煌焰  
 ##### 89#       发表于 2018-9-19 20:56
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
 主线已经赢得够彻底了，剧场版就给别人留点活路吧，做人留一线日后好相见啊
-
-
-
-
-
 
 
 -----
@@ -1429,20 +923,13 @@ http://my.tv.sohu.com/us/315113295/95416 ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  aaron17  
 ##### 91#       发表于 2018-9-19 21:43
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是在说要是觉得剧场版太无聊别怪我？
-
-
-
-
-
 
 
 -----
@@ -1451,16 +938,10 @@ http://my.tv.sohu.com/us/315113295/95416 ...</blockquote>
 ##### 92#         楼主| 发表于 2018-9-19 22:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41016487&amp;ptid=1566822" target="_blank">aaron17 发表于 2018-9-19 21:43</a>
 
 这是在说要是觉得剧场版太无聊别怪我？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">可能因为斗不起来了？
-
-
-
-
-
 
 
 -----
@@ -1469,22 +950,15 @@ http://my.tv.sohu.com/us/315113295/95416 ...</blockquote>
 ##### 93#         楼主| 发表于 2018-9-22 08:49
 
 
-
 [https://weibo.com/1559698017/GAq ... t#_rnd1537577274879](https://weibo.com/1559698017/GAqrsytpd?type=comment#_rnd1537577274879)
 
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fvi12w8pqjj20kg0ckq7l.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  战机黑手党  
 ##### 94#       发表于 2018-9-22 11:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41042917&amp;ptid=1566822" target="_blank">xingenge 发表于 2018-9-22 08:49</a>
@@ -1502,16 +976,10 @@ https://weibo.com/1559698017/GAqrsytpd?type=comment#_rnd1537577274879</blockquot
 惠说大家不就想看路人女主这样下去吗，所以结婚生孩子什么的都应该是正常展开
 
 
-
-
-
-
-
 -----
 
 ####  水藻  
 ##### 95#       发表于 2018-9-22 12:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37896473&amp;ptid=1566822" target="_blank">wanykai 发表于 2017-12-03 20:59:59</a></blockquote>求头像！
@@ -1519,16 +987,10 @@ https://weibo.com/1559698017/GAqrsytpd?type=comment#_rnd1537577274879</blockquot
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  wanykai  
 ##### 96#       发表于 2018-9-23 20:44
-
 
 
  本帖最后由 wanykai 于 2018-9-23 20:46 编辑 
@@ -1541,11 +1003,6 @@ https://weibo.com/1559698017/GAqrsytpd?type=comment#_rnd1537577274879</blockquot
 —— 来自 OPPO R11s Plus, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
 
 
-
-
-
-
-
 -----
 
 ####  無名の生足  
@@ -1554,23 +1011,15 @@ https://weibo.com/1559698017/GAqrsytpd?type=comment#_rnd1537577274879</blockquot
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  wuliaozheX  
 ##### 98#       发表于 2018-9-23 21:53
 
 
-
-
 不行了，我现在觉得制作组有恶意
 
 真的是打翻在地还要踏上一万只脚<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1579,14 +1028,7 @@ https://weibo.com/1559698017/GAqrsytpd?type=comment#_rnd1537577274879</blockquot
 ##### 99#       发表于 2018-9-23 23:27
 
 
-
-
 惠：无论你穿越了多少条世界线，最终收束的结果，都是我获得最后的胜利。El Psy Congroo
-
-
-
-
-
 
 
 -----
@@ -1595,14 +1037,7 @@ https://weibo.com/1559698017/GAqrsytpd?type=comment#_rnd1537577274879</blockquot
 ##### 100#         楼主| 发表于 2018-10-21 14:30
 
 
-
-
 更新
-
-
-
-
-
 
 
 -----
@@ -1611,14 +1046,8 @@ https://weibo.com/1559698017/GAqrsytpd?type=comment#_rnd1537577274879</blockquot
 ##### 101#         楼主| 发表于 2018-10-21 14:33
 
 
-
 [https://saenai-movie.com/](https://saenai-movie.com/)
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fwftyqmzsuj20xc2dpdof.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1629,22 +1058,15 @@ https://weibo.com/1559698017/GAqrsytpd?type=comment#_rnd1537577274879</blockquot
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  拎壶冲_  
 ##### 103#       发表于 2018-10-21 15:14
 
 
-
 <blockquote>战机黑手党 发表于 2018-9-22 11:05
 实际上是关于剧场版剧情的提案，英梨梨、学姐和惠都提了自己的提案，但是每个人的提案都掺杂了自己的私货 ...</blockquote>
 什么意思，声优的提案?
-
-
-
-
-
 
 
 -----
@@ -1655,23 +1077,16 @@ https://weibo.com/1559698017/GAqrsytpd?type=comment#_rnd1537577274879</blockquot
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  midearth  
 ##### 105#       发表于 2018-10-21 15:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41332983&amp;ptid=1566822" target="_blank">xingenge 发表于 2018-10-21 14:33</a>
 
 https://saenai-movie.com/</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1682,14 +1097,12 @@ https://saenai-movie.com/</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  无聊者X  
 ##### 107#       发表于 2018-10-21 15:40
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -1700,23 +1113,15 @@ https://saenai-movie.com/</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  tenco  
 ##### 109#       发表于 2018-10-23 21:36
 
 
-
-
 唯一值得买的手办
 
 <img src="https://wx3.sinaimg.cn/mw1024/6f31956bly1fwifcfez5aj20m50engn8.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1725,24 +1130,15 @@ https://saenai-movie.com/</blockquote>
 ##### 110#       发表于 2018-10-23 22:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
 梨：我们本子上定胜负！
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 111#         楼主| 发表于 2018-12-24 19:59
-
-
-
 
 
 劇場版「冴えない彼女の育てかた Fine」特報｜2019年秋公開
@@ -1810,11 +1206,6 @@ https://saenai-movie.com/</blockquote>
 波島伊織：柿原徹也
 
 
-
-
-
-
-
 -----
 
 ####  恤兵真綿  
@@ -1823,20 +1214,13 @@ https://saenai-movie.com/</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  xingenge  
 ##### 113#         楼主| 发表于 2018-12-24 20:10
 
 
-
 <img src="http://wx3.sinaimg.cn/large/0068TvVBgy1fyi3e201y4j30fn0m8adk.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1845,14 +1229,8 @@ https://saenai-movie.com/</blockquote>
 ##### 114#       发表于 2018-12-24 20:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42054768&amp;ptid=1566822" target="_blank">xingenge 发表于 2018-12-24 20:10</a></blockquote>
 这个站位………………<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1863,7 +1241,6 @@ https://saenai-movie.com/</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  冬夜女公爵  
@@ -1872,28 +1249,19 @@ https://saenai-movie.com/</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  xingenge  
 ##### 117#         楼主| 发表于 2019-3-8 16:50
 
 
-
 <img src="http://wx4.sinaimg.cn/large/0068TvVBgy1g0vg3e772lj30e20m8q3j.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 118#         楼主| 发表于 2019-3-19 23:06
-
-
 
 
 链接: [https://pan.baidu.com/s/10HHOcVkb-Wg-Yh-MrshNQw](https://pan.baidu.com/s/10HHOcVkb-Wg-Yh-MrshNQw) 提取码: nxra 
@@ -1903,24 +1271,13 @@ https://saenai-movie.com/</blockquote>
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1g18i3fqaw4j20n40nwas2.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  摩天城  
 ##### 119#       发表于 2019-3-20 00:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">生日快乐！
-
-
-
-
-
 
 
 -----
@@ -1929,14 +1286,8 @@ https://saenai-movie.com/</blockquote>
 ##### 120#       发表于 2019-3-20 00:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1945,13 +1296,7 @@ https://saenai-movie.com/</blockquote>
 ##### 121#       发表于 2019-3-20 00:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1960,13 +1305,7 @@ https://saenai-movie.com/</blockquote>
 ##### 122#       发表于 2019-3-20 02:24
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1975,13 +1314,7 @@ https://saenai-movie.com/</blockquote>
 ##### 123#       发表于 2019-3-20 03:34
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1990,13 +1323,7 @@ https://saenai-movie.com/</blockquote>
 ##### 124#       发表于 2019-3-20 03:48
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2005,15 +1332,9 @@ https://saenai-movie.com/</blockquote>
 ##### 125#       发表于 2019-3-20 11:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2022,14 +1343,7 @@ https://saenai-movie.com/</blockquote>
 ##### 126#       发表于 2019-3-21 15:49
 
 
-
-
 又又又迫害英梨梨了，年前补完小说，简直了<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2040,13 +1354,10 @@ https://saenai-movie.com/</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  xingenge  
 ##### 128#         楼主| 发表于 2019-3-23 11:57
-
-
 
 
 劇場版「冴えない彼女の育てかた Fine」予告編｜2019年秋公開
@@ -2054,11 +1365,6 @@ https://saenai-movie.com/</blockquote>
 [https://v.youku.com/v_show/id_XN ... j.8428770.3416059.1](https://v.youku.com/v_show/id_XNDEwNzc5NzcwNA==.html?spm=a2h3j.8428770.3416059.1)
 
 <img src="http://wx2.sinaimg.cn/large/0068TvVBgy1g1claovuljj30qc0y87ck.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2069,29 +1375,20 @@ https://saenai-movie.com/</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  车欠  
 ##### 130#       发表于 2019-3-23 12:39
 
 
-
-
 原来前几天是err生日，想也想不起来。还用她的生日做锁屏密码
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  影冬  
 ##### 131#       发表于 2019-3-23 13:40
-
 
 
  本帖最后由 影冬 于 2019-3-23 13:45 编辑 
@@ -2107,19 +1404,9 @@ https://saenai-movie.com/</blockquote>
 2019-3-23 13:40 上传
 
 
-
-
-
-
-
 圣加藤和伦理闹矛盾
 
 梨潭女神的机会又来了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2128,21 +1415,13 @@ https://saenai-movie.com/</blockquote>
 ##### 132#       发表于 2019-3-23 13:59
 
 
-
-
 我与学姐共存亡！！！！！！！！！
-
-
-
-
-
 
 
 -----
 
 ####  wuliaozheX  
 ##### 133#       发表于 2019-3-23 14:13
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
@@ -2152,25 +1431,13 @@ https://saenai-movie.com/</blockquote>
 圣人这是不是作还不知道哪<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yoshiron  
 ##### 134#       发表于 2019-3-23 14:17
 
 
-
-
 aki公開还行
-
-
-
-
-
 
 
 -----
@@ -2179,21 +1446,13 @@ aki公開还行
 ##### 135#       发表于 2019-3-23 14:57
 
 
-
-
 好！
-
-
-
-
-
 
 
 -----
 
 ####  有口皆悲  
 ##### 136#       发表于 2019-3-23 17:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43009271&amp;ptid=1566822" target="_blank">影冬 发表于 2019-3-23 13:40</a>
@@ -2204,16 +1463,10 @@ aki公開还行
 梨潭女神是谁？err只是潭宠而已<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  战机黑手党  
 ##### 137#       发表于 2019-3-27 19:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43009271&amp;ptid=1566822" target="_blank">影冬 发表于 2019-3-23 13:40</a>
@@ -2224,16 +1477,10 @@ aki公開还行
 你个惠痴还想叛变
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 138#       发表于 2019-3-27 20:11
-
 
 
  本帖最后由 midearth 于 2019-3-27 20:13 编辑 
@@ -2241,16 +1488,10 @@ aki公開还行
 那下甩开手是真的好<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">伦也摘了眼镜是真的帅
 
 
-
-
-
-
-
 -----
 
 ####  性欲モンスター  
 ##### 139#       发表于 2019-3-27 21:28
-
 
 
  本帖最后由 性欲モンスター 于 2019-3-27 21:55 编辑 
@@ -2274,16 +1515,10 @@ aki公開还行
 <img src="https://i.loli.net/2019/03/27/5c9b7aa8e70f7.gif" referrerpolicy="no-referrer"><img src="https://i.loli.net/2019/03/27/5c9b76fd2b8c1.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alcard  
 ##### 140#       发表于 2019-4-5 11:42
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
@@ -2292,25 +1527,13 @@ aki公開还行
 泥潭表情真好玩
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 141#         楼主| 发表于 2019-6-30 18:22
 
 
-
-
 10月26日
-
-
-
-
-
 
 
 -----
@@ -2319,13 +1542,7 @@ aki公開还行
 ##### 142#         楼主| 发表于 2019-6-30 18:24
 
 
-
 <img src="http://wx1.sinaimg.cn/large/0068TvVBgy1g4jct2raf9j30bp0gfgo0.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2334,23 +1551,15 @@ aki公開还行
 ##### 143#       发表于 2019-6-30 18:43
 
 
-
-
 10月26日是什么日子？
 
 —— 来自 HUAWEI PCT-AL10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
 
 ####  nihongkai  
 ##### 144#       发表于 2019-6-30 18:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44336498&amp;ptid=1566822" target="_blank">蓝色的风之精灵 发表于 2019-6-30 18:43</a>
@@ -2362,16 +1571,10 @@ aki公開还行
 剧场版fine日本全国上映，跟我们没啥关系。
 
 
-
-
-
-
-
 -----
 
 ####  蓝色的风之精灵  
 ##### 145#       发表于 2019-6-30 19:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44336575&amp;ptid=1566822" target="_blank">nihongkai 发表于 2019-6-30 18:50</a>
@@ -2381,25 +1584,13 @@ aki公開还行
 —— 来自 HUAWEI PCT-AL10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  奈落的孤火花  
 ##### 146#       发表于 2019-6-30 19:19
 
 
-
-
 这部剧场版怎么憋了这么久....<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2408,15 +1599,9 @@ aki公開还行
 ##### 147#       发表于 2019-6-30 20:18
 
 
-
  本帖最后由 铅笔画 于 2019-6-30 20:20 编辑 
 
 重复编辑
-
-
-
-
-
 
 
 -----
@@ -2425,16 +1610,10 @@ aki公開还行
 ##### 148#       发表于 2019-6-30 20:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44336955&amp;ptid=1566822" target="_blank">奈落的孤火花 发表于 2019-6-30 19:19</a>
 
 这部剧场版怎么憋了这么久....</blockquote>
 你说久eva粉就不想说话了…
-
-
-
-
-
 
 
 -----
@@ -2443,24 +1622,15 @@ aki公開还行
 ##### 149#         楼主| 发表于 2019-7-11 00:13
 
 
-
-
 劇場版「冴えない彼女の育てかた Fine」予告編第2弾
 [https://www.youtube.com/watch?v=JznCzBM2flI](https://www.youtube.com/watch?v=JznCzBM2flI)
 [https://v.youku.com/v_show/id_XN ... j.8428770.3416059.1](https://v.youku.com/v_show/id_XNDI2ODcxOTQyNA==.html?spm=a2h3j.8428770.3416059.1)
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 150#         楼主| 发表于 2019-8-21 22:35
-
-
 
 
 劇場版「冴えない彼女の育てかた Fine」主題歌『glory days』音源解禁
@@ -2484,25 +1654,13 @@ aki公開还行
 <img src="http://wx2.sinaimg.cn/large/0068TvVBgy1g67o4txbzmj30u012s103.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  laiyas  
 ##### 151#       发表于 2019-8-23 14:17
 
 
-
-
 快了
-
-
-
-
-
 
 
 -----
@@ -2511,21 +1669,13 @@ aki公開还行
 ##### 152#         楼主| 发表于 2019-8-28 19:09
 
 
-
 <img src="http://wx2.sinaimg.cn/large/007fR60Lgy1g6flmn2peaj318i0u04hl.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 153#         楼主| 发表于 2019-8-29 00:37
-
-
 
 
 冴えない彼女の育てかた ギャルゲーカバーソングコレクション 視聴動画 ／ 2019.9.25 On Sale
@@ -2627,24 +1777,13 @@ aki公開还行
 ◆深崎暮人描き下ろしジャケット仕様
 
 
-
-
-
-
-
 -----
 
 ####  azbycx4111  
 ##### 154#       发表于 2019-8-29 06:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2653,16 +1792,9 @@ aki公開还行
 ##### 155#         楼主| 发表于 2019-8-29 23:20
 
 
-
-
 劇場版「冴えない彼女の育てかた Fine」本予告 
 [https://www.youtube.com/watch?v=9LDEKv0l4j0](https://www.youtube.com/watch?v=9LDEKv0l4j0)
 [https://v.youku.com/v_show/id_XN ... j.8428770.3416059.1](https://v.youku.com/v_show/id_XNDMzNjE2Njk1Ng==.html?spm=a2h3j.8428770.3416059.1)
-
-
-
-
-
 
 
 -----
@@ -2671,15 +1803,8 @@ aki公開还行
 ##### 156#       发表于 2019-10-3 10:15
 
 
-
-
 龟龟，这也太劲了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 <img src="https://i.loli.net/2019/10/03/bqW9xHJCYsiL4OP.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2688,16 +1813,10 @@ aki公開还行
 ##### 157#       发表于 2019-10-3 10:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45125959&amp;ptid=1566822" target="_blank">朔方原的星 发表于 2019-10-3 10:15</a>
 
 龟龟，这也太劲了</blockquote>
 官方出一个IF路线的OVA吧，三飞剧情
-
-
-
-
-
 
 
 -----
@@ -2706,14 +1825,7 @@ aki公開还行
 ##### 158#       发表于 2019-10-3 11:16
 
 
-
-
 我就要老女人
-
-
-
-
-
 
 
 -----
@@ -2724,28 +1836,19 @@ aki公開还行
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  abckuil678  
 ##### 160#       发表于 2019-10-4 02:28
 
 
-
-
 这是动画化小说第几卷的内容，还是原创剧情
-
-
-
-
-
 
 
 -----
 
 ####  ljy524197227  
 ##### 161#       发表于 2019-10-4 02:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37896234&amp;ptid=1566822" target="_blank">可惜是个变态 发表于 2017-12-3 20:26</a>
@@ -2757,16 +1860,10 @@ if线希望
 if线都是NE
 
 
-
-
-
-
-
 -----
 
 ####  一色いろは  
 ##### 162#       发表于 2019-10-21 03:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45132054&amp;ptid=1566822" target="_blank">abckuil678 发表于 2019-10-4 02:28</a>
@@ -2778,17 +1875,10 @@ if线都是NE
 看剧场版能玩出什么花样吧
 
 
-
-
-
-
-
 -----
 
 ####  奈落的孤火花  
 ##### 163#       发表于 2019-10-24 14:30
-
-
 
 
 劇場版『冴えない彼女の育てかた Fine』安野希世乃さん、大西沙織さん、茅野愛衣さんインタビュー｜ついに完結を迎えるアニメ『冴えカノ』と演じるキャラクターへの想いとは [https://www.animatetimes.com/news/details.php?id=1571812682](https://www.animatetimes.com/news/details.php?id=1571812682)
@@ -2797,27 +1887,15 @@ if线都是NE
 看不动 转一下
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 164#         楼主| 发表于 2019-10-25 17:45
 
 
-
-
 劇場版「冴えない彼女の育てかた Fine」公開直前WEB予告
 [https://www.youtube.com/watch?v=iP3ZuV-TvAg](https://www.youtube.com/watch?v=iP3ZuV-TvAg)
 [https://v.youku.com/v_show/id_XN ... j.8428770.3416059.1](https://v.youku.com/v_show/id_XNDQxMjkxNTA5Ng==.html?spm=a2h3j.8428770.3416059.1)
-
-
-
-
-
 
 
 -----
@@ -2826,14 +1904,7 @@ if线都是NE
 ##### 165#       发表于 2019-10-26 11:19
 
 
-
-
 看完了，太好看了！魔改很多，2刷预定！
-
-
-
-
-
 
 
 -----
@@ -2842,18 +1913,10 @@ if线都是NE
 ##### 166#       发表于 2019-10-26 11:50
 
 
-
-
 剧场版是原作小说改编还是原创故事？
 
 
 求剧透，可以反白
-
-
-
-
-
-
 
 
 -----
@@ -2862,14 +1925,7 @@ if线都是NE
 ##### 167#       发表于 2019-10-26 12:12
 
 
-
-
 基本是原作小说，略有一些小魔改。最后那个妄想neta笑死，响起那音乐的时候全场都要笑翻......
-
-
-
-
-
 
 
 -----
@@ -2878,17 +1934,10 @@ if线都是NE
 ##### 168#       发表于 2019-10-26 12:15
 
 
-
-
 国内有希望引入吗？
 
 
 ----发送自 [HUAWEI VOG-AL00,Android 9](http://stage1.5j4m.com/?1.33)
-
-
-
-
-
 
 
 -----
@@ -2899,12 +1948,10 @@ if线都是NE
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  wwwwwwtl  
 ##### 170#       发表于 2019-10-26 13:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45313561&amp;ptid=1566822" target="_blank">宇宙大爆炸 发表于 2019-10-26 11:50</a>
@@ -2918,32 +1965,19 @@ if线都是NE
 片尾结束之后有很长一段原创步入社会后的剧情，感觉有近10分钟，讲述伦也成立公司blessing soft后邀请学姐和eriri合作新游戏。每个角色发型着装变化都很大（学姐短发，eriri金长直等）。
 
 
-
-
-
-
-
 -----
 
 ####  狸狸狐  
 ##### 171#       发表于 2019-10-26 15:41
 
 
-
-
 不知道到时候国内会不会谁家买版权...
-
-
-
-
-
 
 
 -----
 
 ####  宇宙大爆炸  
 ##### 172#       发表于 2019-10-26 15:51
-
 
 
  本帖最后由 宇宙大爆炸 于 2019-10-26 16:02 编辑 
@@ -2958,17 +1992,10 @@ if线都是NE
 伦也，惠，英梨梨，诗羽，美智留，出海，伊织，朱音，等等
 
 
-
-
-
-
-
-
 -----
 
 ####  wwwwwwtl  
 ##### 173#       发表于 2019-10-26 17:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45315195&amp;ptid=1566822" target="_blank">宇宙大爆炸 发表于 2019-10-26 15:51</a>
@@ -3008,13 +2035,9 @@ if线都是NE
 最后6个人在合宿干杯中end（没有伊织。。）
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 3战斗力 +3
@@ -3026,12 +2049,7 @@ if线都是NE
 | dyzchen| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -3040,21 +2058,13 @@ if线都是NE
 ##### 174#       发表于 2019-10-26 18:08
 
 
-
-
 真他娘劲爆
-
-
-
-
-
 
 
 -----
 
 ####  星野航  
 ##### 175#       发表于 2019-10-26 19:31
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给粉丝发福利这件事上，这帮制作人和丸户还是很懂的
@@ -3064,27 +2074,15 @@ if线都是NE
 还算是不错的，也是一个句点啦
 
 
-
-
-
-
-
 -----
 
 ####  树皮83  
 ##### 176#       发表于 2019-10-26 19:40
 
 
-
-
 学姐开头吃烤肉时候和额日日说我们在剧场版cast表肯定在最底下 结果ed真在最底下了 草草草
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -3093,16 +2091,9 @@ if线都是NE
 ##### 177#       发表于 2019-10-26 19:41
 
 
-
-
 彩蛋一定不能错过 太逗了 唐突东京爱情故事
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -3111,14 +2102,7 @@ if线都是NE
 ##### 178#       发表于 2019-10-26 20:53
 
 
-
-
 感觉引进希望渺茫
-
-
-
-
-
 
 
 -----
@@ -3129,21 +2113,13 @@ if线都是NE
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  ツナシ·タクト  
 ##### 180#       发表于 2019-10-26 21:37
 
 
-
-
 有高賴吗
-
-
-
-
-
 
 
 -----
@@ -3152,14 +2128,7 @@ if线都是NE
 ##### 181#       发表于 2019-10-26 22:12
 
 
-
-
 看完了，作为开服惠党超级满足
-
-
-
-
-
 
 
 -----
@@ -3170,21 +2139,13 @@ if线都是NE
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  鸭梨很大的路人  
 ##### 183#       发表于 2019-10-26 22:43
 
 
-
-
 路人女主算是搞完了，丸户啥时候开新坑啊。
-
-
-
-
-
 
 
 -----
@@ -3193,23 +2154,15 @@ if线都是NE
 ##### 184#       发表于 2019-10-26 22:44
 
 
-
-
 今天才看到的一件轶事
 
 提出让茅野爱衣唱届不到的爱恋这个主意的是画师深崎暮人.....
-
-
-
-
-
 
 
 -----
 
 ####  星野航  
 ##### 185#       发表于 2019-10-26 22:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45318484&amp;ptid=1566822" target="_blank">土旦克007 发表于 2019-10-26 14:44</a>
@@ -3224,16 +2177,10 @@ if线都是NE
 大概深哥洞察力惊人
 
 
-
-
-
-
-
 -----
 
 ####  战机黑手党  
 ##### 186#       发表于 2019-10-26 23:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45313741&amp;ptid=1566822" target="_blank">xsk120 发表于 2019-10-26 12:12</a>
@@ -3242,17 +2189,10 @@ if线都是NE
 ラブストーリーは突然に……可惜不能在现场体验啊，没想到真的把这个梗给用上了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  纯洁溏孓  
 ##### 187#       发表于 2019-10-28 00:21
-
-
 
 
 最后那里有neta白2吧
@@ -3261,17 +2201,10 @@ if线都是NE
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  战机黑手党  
 ##### 188#       发表于 2019-10-28 11:20
-
-
 
 
 さらに、半年ほど前に再びコンビを組んだ新作小説『世界で一番大切な、私のものじゃない君へ』は、発売以降、今までとは異なる客層に爆発的にヒットし、重版に重版を重ね、 っぃ先だって映画化が発表され。
@@ -3283,17 +2216,10 @@ if线都是NE
 学姐和英莉莉的新作叫这个胃痛名字<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  pzy2222  
 ##### 189#       发表于 2019-10-28 11:40
-
-
 
 
 等一波恋爱节拍器动画化<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -3301,16 +2227,10 @@ if线都是NE
 婊人惠一边去啊<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  战机黑手党  
 ##### 190#       发表于 2019-10-28 16:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45316894&amp;ptid=1566822" target="_blank">树皮83 发表于 2019-10-26 19:41</a>
@@ -3325,16 +2245,10 @@ if线都是NE
 没想到最后真的用了原曲，据说去跟小田和正的事务所沟通能不能用，对方当场就答应了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 191#         楼主| 发表于 2019-10-29 17:13
-
 
 
 <img src="http://wx3.sinaimg.cn/large/0068TvVBgy1g8f6gnakn2j30go09kwfn.jpg" referrerpolicy="no-referrer">
@@ -3399,17 +2313,10 @@ if线都是NE
 ※本特典の内容は劇場でご確認ください。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 192#         楼主| 发表于 2019-10-29 17:17
-
-
 
 
 10月26日(土)より全国121館にて公開がスタートした、劇場版『冴えない彼女の育てかた Fine』について、本作の10月28日(月)までの観客動員数は103,434人、興行収入1億5488万円と好スタートを切ったことが明らかになった。
@@ -3418,16 +2325,10 @@ if线都是NE
 「ぴあ映画初日満足度ランキング」では93.0点で堂々の1位(10月26日ぴあ調べ)、「Filmarks初日満足度ランキング」でも1位(10月第4週)の評価を得たほか、週末の動員ランキングは5位を獲得している。
 
 
-
-
-
-
-
 -----
 
 ####  wwwwwwtl  
 ##### 193#       发表于 2019-10-29 17:20
-
 
 
 <blockquote>xingenge 发表于 2019-10-29 17:13
@@ -3439,11 +2340,6 @@ if线都是NE
 好期待，真的一年一个故事，丸户感觉有点意犹未尽啊
 
 
-
-
-
-
-
 -----
 
 ####  无聊者X  
@@ -3452,13 +2348,10 @@ if线都是NE
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  新庄運切  
 ##### 195#       发表于 2019-10-30 09:01
-
-
 
 
 东京爱情故事那个bgm一出来直接喷了，前面还在黑人问号<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -3468,17 +2361,10 @@ if线都是NE
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  tom2002hghg  
 ##### 196#       发表于 2019-11-1 13:35
-
-
 
 
 Memorial2 封面
@@ -3493,11 +2379,6 @@ Memorial2 封面
 2019-11-1 13:34 上传
 
 
-
-
-
-
-
 和第一卷比较
 
 <img src="https://img.saraba1st.com/forum/201911/01/133507rpmk43ok53zofii3.jpg" referrerpolicy="no-referrer">
@@ -3510,19 +2391,6 @@ Memorial2 封面
 2019-11-1 13:35 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  无聊者X  
@@ -3531,21 +2399,13 @@ Memorial2 封面
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  煌·大和  
 ##### 198#       发表于 2019-11-1 15:16
 
 
-
-
 上了第一卷封面就是女主角？杀人还要诛心！
-
-
-
-
-
 
 
 -----
@@ -3554,14 +2414,7 @@ Memorial2 封面
 ##### 199#       发表于 2019-11-1 16:21
 
 
-
-
 泥潭女神历史地位再升格<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3570,16 +2423,10 @@ Memorial2 封面
 ##### 200#       发表于 2019-11-1 16:43
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 下一次是不是就是学姐了
 
 —— 来自 motorola XT1650, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -3588,14 +2435,7 @@ Memorial2 封面
 ##### 201#       发表于 2019-11-1 16:58
 
 
-
-
 讲道理，作者封面这么玩有点过了，感觉英梨梨变成了一个小丑，还是作者充满恶意的那种小丑。
-
-
-
-
-
 
 
 -----
@@ -3604,13 +2444,7 @@ Memorial2 封面
 ##### 202#         楼主| 发表于 2019-11-1 17:38
 
 
-
 <img src="https://files.catbox.moe/dr7fiz.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3621,21 +2455,13 @@ Memorial2 封面
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  奈落的孤火花  
 ##### 204#       发表于 2019-11-4 15:02
 
 
-
-
 集大成にふさわしい、『冴えカノ』のためだけに捧げる曲を──沢井美空さんとタッグを組んだ劇場版主題歌について春奈るなさんが語る [https://www.animatetimes.com/news/details.php?id=1572309748](https://www.animatetimes.com/news/details.php?id=1572309748)
-
-
-
-
-
 
 
 -----
@@ -3644,14 +2470,7 @@ Memorial2 封面
 ##### 205#       发表于 2019-11-11 14:20
 
 
-
-
 ED staff表里有个题字协力:松冈祯丞 茅野爱衣，有谁知道是具体题了什么字吗
-
-
-
-
-
 
 
 -----
@@ -3660,16 +2479,9 @@ ED staff表里有个题字协力:松冈祯丞 茅野爱衣，有谁知道是具�
 ##### 206#       发表于 2019-11-11 14:33
 
 
-
-
 上週看了，不就是冬馬NE又講一遍嗎<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 — from Sony SOV40, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -3678,15 +2490,9 @@ ED staff表里有个题字协力:松冈祯丞 茅野爱衣，有谁知道是具�
 ##### 207#       发表于 2019-11-11 21:14
 
 
-
 <blockquote>supergamer2 发表于 2019-11-11 14:20
 ED staff表里有个题字协力:松冈祯丞 茅野爱衣，有谁知道是具体题了什么字吗</blockquote>
 可能是 冴えない彼女の育て方 最終章 那几个字吧
-
-
-
-
-
 
 
 -----
@@ -3695,23 +2501,13 @@ ED staff表里有个题字协力:松冈祯丞 茅野爱衣，有谁知道是具�
 ##### 208#       发表于 2019-11-11 23:14
 
 
-
-
 劇場版『冴えない彼女の育てかた Fine』の神宮司学プロデューサーに、劇場版の“見どころ”を聞いてみた！「ぜひ観てほしいのは、恋人つなぎのシーンもですが、劇場の大画面に映る恵たちのかわいらしい姿」【インタビュー】 [https://cho-animedia.jp/movie/135581/?tdsourcetag=s_pctim_aiomsg](https://cho-animedia.jp/movie/135581/?tdsourcetag=s_pctim_aiomsg)
-
-
-
-
-
 
 
 -----
 
 ####  战机黑手党  
 ##### 209#       发表于 2019-11-12 11:05
-
-
-
 
 
 终于有官方图透了：
@@ -3727,18 +2523,9 @@ ED staff表里有个题字协力:松冈祯丞 茅野爱衣，有谁知道是具�
 2019-11-12 11:05 上传
 
 
-
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -3748,12 +2535,7 @@ ED staff表里有个题字协力:松冈祯丞 茅野爱衣，有谁知道是具�
 | 无聊者X| + 1|绝了|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -3762,21 +2544,13 @@ ED staff表里有个题字协力:松冈祯丞 茅野爱衣，有谁知道是具�
 ##### 210#       发表于 2019-11-12 11:20
 
 
-
-
 这图透也太缺德了
-
-
-
-
-
 
 
 -----
 
 ####  战机黑手党  
 ##### 211#       发表于 2019-11-12 18:03
-
 
 
  本帖最后由 战机黑手党 于 2019-11-12 18:05 编辑 
@@ -3879,12 +2653,6 @@ ED staff表里有个题字协力:松冈祯丞 茅野爱衣，有谁知道是具�
 丸户：刚刚我也说过了，至少我个人，是带着「这是最后一次写《路人女主》了」的心情来创作的。可能有些朋友看到丧心病狂的到场特典，会灰心失望。但这是最后了，所以请大家陪同……！在内容方面，不仅是我，还有龟井总监督他们制作人员的出力，我敢吹，保证有趣。我相信多刷几遍也肯定能看得开心。这是最后的祭典了，希望可以嗨起来。</blockquote>原文链接：[https://weibo.com/ttarticle/p/show?id=2309404434209002356833](https://weibo.com/ttarticle/p/show?id=2309404434209002356833)</blockquote>
 
 
-
-
-
-
-
-
 -----
 
 ####  无聊者X  
@@ -3893,16 +2661,13 @@ ED staff表里有个题字协力:松冈祯丞 茅野爱衣，有谁知道是具�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  战机黑手党  
 ##### 213#       发表于 2019-11-14 14:19
 
 
-
 剧场版人设
-
 
 
 <img src="https://img.saraba1st.com/forum/201911/14/141826zr0lqddajawl4azp.jpg" referrerpolicy="no-referrer">
@@ -3915,9 +2680,6 @@ ED staff表里有个题字协力:松冈祯丞 茅野爱衣，有谁知道是具�
 2019-11-14 14:18 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201911/14/141825rpzjbgv0bll5zzpm.jpg" referrerpolicy="no-referrer">
 
 
@@ -3926,9 +2688,6 @@ ED staff表里有个题字协力:松冈祯丞 茅野爱衣，有谁知道是具�
 下载附件
 
 2019-11-14 14:18 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201911/14/141824pbbouikdbk47o8eb.jpg" referrerpolicy="no-referrer">
@@ -3941,9 +2700,6 @@ ED staff表里有个题字协力:松冈祯丞 茅野爱衣，有谁知道是具�
 2019-11-14 14:18 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201911/14/141827b3kh2l9pckw9k93y.jpg" referrerpolicy="no-referrer">
 
 
@@ -3952,9 +2708,6 @@ ED staff表里有个题字协力:松冈祯丞 茅野爱衣，有谁知道是具�
 下载附件
 
 2019-11-14 14:18 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201911/14/141826w6w1yrwkrz3wz363.jpg" referrerpolicy="no-referrer">
@@ -3967,9 +2720,6 @@ ED staff表里有个题字协力:松冈祯丞 茅野爱衣，有谁知道是具�
 2019-11-14 14:18 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201911/14/141825f1ifufcu7vsg8vvq.jpg" referrerpolicy="no-referrer">
 
 
@@ -3978,9 +2728,6 @@ ED staff表里有个题字协力:松冈祯丞 茅野爱衣，有谁知道是具�
 下载附件
 
 2019-11-14 14:18 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201911/14/141823ah8n1s2in949a4ev.jpg" referrerpolicy="no-referrer">
@@ -3993,30 +2740,13 @@ ED staff表里有个题字协力:松冈祯丞 茅野爱衣，有谁知道是具�
 2019-11-14 14:18 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  鸭梨很大的路人  
 ##### 214#       发表于 2019-11-14 14:42
 
 
-
-
 人设图来看，金毛败犬变可爱了，其他人不都变丑了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4025,13 +2755,7 @@ ED staff表里有个题字协力:松冈祯丞 茅野爱衣，有谁知道是具�
 ##### 215#       发表于 2019-11-14 15:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哦豁
-
-
-
-
-
 
 
 -----
@@ -4040,14 +2764,7 @@ ED staff表里有个题字协力:松冈祯丞 茅野爱衣，有谁知道是具�
 ##### 216#       发表于 2019-11-17 22:54
 
 
-
-
 短发学姐好像高垣枫<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4056,14 +2773,7 @@ ED staff表里有个题字协力:松冈祯丞 茅野爱衣，有谁知道是具�
 ##### 217#       发表于 2019-11-17 23:17
 
 
-
-
 有点意思
-
-
-
-
-
 
 
 -----
@@ -4072,14 +2782,7 @@ ED staff表里有个题字协力:松冈祯丞 茅野爱衣，有谁知道是具�
 ##### 218#       发表于 2019-11-18 00:03
 
 
-
-
 冬服伦也不就是春哥吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4088,16 +2791,9 @@ ED staff表里有个题字协力:松冈祯丞 茅野爱衣，有谁知道是具�
 ##### 219#         楼主| 发表于 2019-11-18 09:31
 
 
-
-
 忘了在这儿发了
 
 <img src="http://wx3.sinaimg.cn/large/0068TvVBgy1g90a8gg1zej30jp0ruag0.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4106,18 +2802,10 @@ ED staff表里有个题字协力:松冈祯丞 茅野爱衣，有谁知道是具�
 ##### 220#       发表于 2019-11-18 09:42
 
 
-
-
 丸户：伦也，我是以自己为原型的哦。
 
 
-
 不愧是自慰作品,真亏你写得出来.......
-
-
-
-
-
 
 
 -----
@@ -4126,13 +2814,7 @@ ED staff表里有个题字协力:松冈祯丞 茅野爱衣，有谁知道是具�
 ##### 221#       发表于 2019-11-18 09:48
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4141,24 +2823,16 @@ ED staff表里有个题字协力:松冈祯丞 茅野爱衣，有谁知道是具�
 ##### 222#       发表于 2019-11-18 09:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45541466&amp;ptid=1566822" target="_blank">Acatv 发表于 2019-11-17 22:54</a>
 
 短发学姐好像高垣枫</blockquote>
 枫了
 
 
-
-
-
-
-
 -----
 
 ####  战机黑手党  
 ##### 223#       发表于 2019-11-18 15:30
-
-
 
 
 宣传绘（惠）
@@ -4173,23 +2847,10 @@ ED staff表里有个题字协力:松冈祯丞 茅野爱衣，有谁知道是具�
 2019-11-18 15:29 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  战机黑手党  
 ##### 224#       发表于 2019-11-20 16:31
-
 
 
 Memorial2 插图
@@ -4205,9 +2866,6 @@ Memorial2 插图
 2019-11-20 16:30 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201911/20/163024zb5tq7eqr5z5nxzr.jpg" referrerpolicy="no-referrer">
 
 
@@ -4216,9 +2874,6 @@ Memorial2 插图
 下载附件
 
 2019-11-20 16:30 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201911/20/163023wxll6x8o7yx0x6o6.jpg" referrerpolicy="no-referrer">
@@ -4231,11 +2886,6 @@ Memorial2 插图
 2019-11-20 16:30 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201911/20/162958n6dl6lliq3zlv66u.jpg" referrerpolicy="no-referrer">
 
 
@@ -4244,9 +2894,6 @@ Memorial2 插图
 下载附件
 
 2019-11-20 16:29 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201911/20/162958uba5bgytprcnr5pb.jpg" referrerpolicy="no-referrer">
@@ -4259,35 +2906,17 @@ Memorial2 插图
 2019-11-20 16:29 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  仟音一心  
 ##### 225#       发表于 2019-11-21 17:14
 
 
-
-
 学姐三次元爱衣了
-
-
-
-
 
 
 36803FE2-2B68-40EE-B6A0-E97A9C1F7403.jpeg
 (179.11 KB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -4296,31 +2925,13 @@ Memorial2 插图
 2019-11-21 17:13 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201911/21/171321iszseoe4mkkej0ds.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  战机黑手党  
 ##### 226#       发表于 2019-11-22 16:22
-
 
 
  本帖最后由 战机黑手党 于 2019-11-22 16:24 编辑 
@@ -4336,18 +2947,10 @@ Memorial2 插图
 2019-11-22 16:19 上传
 
 
-
-
-
  <blockquote><blockquote>剧场版中惠一些印象深刻的细节：
 
 
 1.在进伦也家前踌躇，拿出镜子仔细捋了捋前发。</blockquote><blockquote>2.给伦也做了早餐三明治但他通宵写剧本没胃口只吃了一半，本来想扔掉伦也吃剩下的一半却又突然一把塞进自己嘴里吃掉了。</blockquote><blockquote>3.说好的生日被放鸽子的时候，听伦也的电话时，抿着最却没说出一句话。</blockquote><blockquote>4.伦也在自己和诗羽+英梨梨之间选择了后者，非常委屈，对伦也说，我可能并不是你的女主角。这件事被美智留她们“挑拨”了之后，与世无争的惠也炸了，对她们说，也许他对你们是特别的，但对我不是。我也不管你们会不会对我降低评价；我只想说，他是属于我的，边说边掉眼泪。</blockquote><blockquote>5.在伦也去了诗羽那边后，无视了伦也所有的line信息也停止了社团活动，但在看完伦也发来的情书之后重开了社团活动，对出海她们说，我只想告诉你们他在不在都一个样。</blockquote><blockquote>6.在伦也家门口边看情书边等他从诗羽那边回来，等看他的时候二话不说又转身走了。伦也追上去想牵手被甩了两次，但是第三次却是由自己牵上去的。</blockquote><blockquote>7.英梨梨问伦也十年前有没有喜欢过自己，伦也说不知道，但是也哭了。英梨梨再去找了加藤惠对她说，他这样"背叛"你你怎么就这样原谅他了，你到底是有多喜欢他。</blockquote><blockquote>8.对英梨梨说，比起你和诗羽来说，你们才华横溢，而他觉得我大概是个很不起眼的普通人。英梨梨说他这样说你，你不生气？加藤惠笑了说，所以他觉得他能追的上我，能跟我一起前进，却追不上你，没法跟你前进。英梨梨傻了</blockquote><blockquote>原文地址 [http://bgm.tv/blog/293513](http://bgm.tv/blog/293513)</blockquote></blockquote>
-
-
-
-
-
 
 
 -----
@@ -4356,16 +2959,9 @@ Memorial2 插图
 ##### 227#       发表于 2019-11-22 16:24
 
 
-
-
 这不萌豚<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 —— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -4374,14 +2970,7 @@ Memorial2 插图
 ##### 228#       发表于 2019-11-22 16:53
 
 
-
-
 第5和第8點看笑了
-
-
-
-
-
 
 
 -----
@@ -4390,10 +2979,7 @@ Memorial2 插图
 ##### 229#       发表于 2019-11-25 22:48
 
 
-
-
 伦惠一起洗澡……美智留和出海还在旁边偷听……靠这什么展开<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
 
 
 <img src="https://img.saraba1st.com/forum/201911/25/224636biu2miw0am0m9mwd.jpg" referrerpolicy="no-referrer">
@@ -4406,17 +2992,6 @@ Memorial2 插图
 2019-11-25 22:46 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  シャスタ  
@@ -4425,12 +3000,10 @@ Memorial2 插图
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  黑丝后的腿毛  
 ##### 231#       发表于 2019-12-10 09:27
-
 
 
 <blockquote>引用第225楼战机黑手党于2019-11-22 16:22发表的  :
@@ -4444,25 +3017,13 @@ Memorial2 插图
 ----发送自 [vivo V1821A,Android 9](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  zhabi  
 ##### 232#       发表于 2019-12-10 17:12
 
 
-
-
 看完酸爆了，除了酸还是酸，老天欠我一个加藤惠<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4471,20 +3032,13 @@ Memorial2 插图
 ##### 233#       发表于 2019-12-11 21:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">左上五年後注目
-
-
-
-
-
 
 
 -----
 
 ####  战机黑手党  
 ##### 234#       发表于 2019-12-31 15:52
-
 
 
  本帖最后由 战机黑手党 于 2019-12-31 15:54 编辑 
@@ -4552,11 +3106,6 @@ Memorial2 插图
 2019-12-31 15:51 上传
 
 
-
-
-
-
-
 “嗯……”
 
 接着，宛如大堤决口一般，两人的嘴唇，激烈地纠缠在了一起。
@@ -4579,25 +3128,14 @@ Memorial2 插图
 “真是的……”</blockquote>
 
 
-
-
-
-
-
 -----
 
 ####  yoshiron  
 ##### 235#       发表于 2020-1-3 20:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46045764&amp;ptid=1566822" target="_blank">战机黑手党 发表于 2019-12-31 15:52</a></blockquote>
 homoya好持久<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4606,14 +3144,7 @@ homoya好持久<img src="https://static.saraba1st.com/image/smiley/face2017/057.
 ##### 236#       发表于 2020-1-21 19:30
 
 
-
-
 《冴えない彼女の育てかた Fine》这剧场版的BD什么时候发售？
-
-
-
-
-
 
 
 -----
@@ -4622,16 +3153,10 @@ homoya好持久<img src="https://static.saraba1st.com/image/smiley/face2017/057.
 ##### 237#         楼主| 发表于 2020-1-21 20:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46213888&amp;ptid=1566822" target="_blank">livelive 发表于 2020-1-21 19:30</a>
 
 《冴えない彼女の育てかた Fine》这剧场版的BD什么时候发售？</blockquote>
 还没宣布
-
-
-
-
-
 
 
 -----
@@ -4640,15 +3165,9 @@ homoya好持久<img src="https://static.saraba1st.com/image/smiley/face2017/057.
 ##### 238#       发表于 2020-1-22 08:23
 
 
-
 <blockquote>yoshiron 发表于 2020-1-3 20:49
 homoya好持久 所以丸户脚本深崎原画的galgame什么时候安排一个</blockquote>
 引擎就用wa重制版的。
-
-
-
-
-
 
 
 -----
@@ -4657,14 +3176,7 @@ homoya好持久 所以丸户脚本深崎原画的galgame什么时候安排一个
 ##### 239#       发表于 2020-1-22 15:08
 
 
-
-
 NS，PS什么的都给我整一个<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4673,14 +3185,7 @@ NS，PS什么的都给我整一个<img src="https://static.saraba1st.com/image/s
 ##### 240#         楼主| 发表于 2020-3-21 23:22
 
 
-
-
 劇場版『冴えない彼女の育てかた Fine』Blu-ray＆DVDが9月23日発売決定
-
-
-
-
-
 
 
 -----
@@ -4689,14 +3194,7 @@ NS，PS什么的都给我整一个<img src="https://static.saraba1st.com/image/s
 ##### 241#       发表于 2020-3-21 23:27
 
 
-
-
 还有半年啊，要死了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4705,14 +3203,7 @@ NS，PS什么的都给我整一个<img src="https://static.saraba1st.com/image/s
 ##### 242#       发表于 2020-3-21 23:39
 
 
-
-
 9. 23是惠的生日<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4721,23 +3212,15 @@ NS，PS什么的都给我整一个<img src="https://static.saraba1st.com/image/s
 ##### 243#       发表于 2020-5-9 14:47
 
 
-
-
 忍不住先看了抢先版，惠党满足了
 
 —— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 244#         楼主| 发表于 2020-6-26 17:36
-
 
 
 [https://event.amnibus.com/saenai-animate/](https://event.amnibus.com/saenai-animate/)
@@ -4748,16 +3231,10 @@ NS，PS什么的都给我整一个<img src="https://static.saraba1st.com/image/s
 <img src="https://files.catbox.moe/4k7uh8.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 245#         楼主| 发表于 2020-7-9 11:19
-
 
 
 [https://t.co/acOYvVm3bw?amp=1](https://t.co/acOYvVm3bw?amp=1)
@@ -4766,17 +3243,10 @@ NS，PS什么的都给我整一个<img src="https://static.saraba1st.com/image/s
 <img src="https://files.catbox.moe/80534d.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 246#         楼主| 发表于 2020-7-29 17:46
-
-
 
 
 [https://saenai-movie.com/package/](https://saenai-movie.com/package/)
@@ -4856,31 +3326,19 @@ NS，PS什么的都给我整一个<img src="https://static.saraba1st.com/image/s
 <img src="https://p.sda1.dev/0/627cfc2109b2b340a8f294f9c7a11571/sub5-29.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 247#         楼主| 发表于 2020-8-12 18:47
 
 
-
 <img src="https://p.sda1.dev/0/6b49798c4383639036a8dbc1ee77737b/FireShot Capture 4943 - Blu-ray_DVD - 劇場版「冴えない彼女の育てかた Fine」 - https___saenai-movie.com_package_.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 248#         楼主| 发表于 2020-8-27 13:36
-
 
 
 [https://event.amnibus.com/saenai-0101-birthday/](https://event.amnibus.com/saenai-0101-birthday/)
@@ -4892,16 +3350,10 @@ NS，PS什么的都给我整一个<img src="https://static.saraba1st.com/image/s
 <img src="https://p.sda1.dev/0/9aa248fd986e629fbfc217caa6ae8dcb/FireShot Capture 5219 - 冴えない彼女の祝いかた in 新宿マルイ メン ｜_ - https___event.amnibus.com_saenai-0101-birthday_.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 249#         楼主| 发表于 2020-9-3 17:17
-
 
 
  本帖最后由 xingenge 于 2020-9-3 18:44 编辑 
@@ -4916,17 +3368,10 @@ NS，PS什么的都给我整一个<img src="https://static.saraba1st.com/image/s
 対象店舗 ANIPLEX+、アニメイト、ゲーマーズ、ソフマップ(BD/DVD取扱店及びドットコム)、とらのあな(一部店舗除く)、TSUTAYAオンライン、WonderGOO/新星堂/ジーストア、楽天ブックス（【楽天ブックス限定先着特典＆先着特典】付きカートのみ対象）、セブンネットショッピング、メロンブックス、HMV、ノイタミナショップ＆カフェシアター、ノイタミナオンラインショップ、カドカワストア、キャラアニ
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 250#         楼主| 发表于 2020-9-16 17:28
-
-
 
 
 劇場版「冴えない彼女の育てかた Fine」特典CD・オリジナルサウンドトラック　試聴ムービー
@@ -4953,33 +3398,19 @@ NS，PS什么的都给我整一个<img src="https://static.saraba1st.com/image/s
 <img src="https://p.sda1.dev/0/c5a07a**e8fd5c76398d845f21c66f/EiBkpi1VoAAtGgG.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 251#         楼主| 发表于 2020-9-17 16:21
 
 
-
-
 B站暗示买了版权
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 252#         楼主| 发表于 2020-9-17 18:07
-
-
 
 
 #路人女主的养成方法 Fine# 将于9月23日（加藤惠生日）在哔哩哔哩独家播出！预约追番：[https://www.bilibili.com/bangumi/play/ss34394](https://www.bilibili.com/bangumi/play/ss34394)
@@ -4994,32 +3425,19 @@ B站暗示买了版权
 英梨梨和诗羽的大作究竟如何？伦也和惠的关系将发生什么变化？blessing software的新作将去向何方？围绕路人女主的青春涂鸦，迎来大结局。 
 
 
-
-
-
-
-
 -----
 
 ####  99mxw  
 ##### 253#       发表于 2020-9-22 12:11
 
 
-
-
 听说bd的盒子很厉害，有没有大哥大嫂拍点开箱让俺饱饱眼福
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 254#         楼主| 发表于 2020-9-22 12:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48813562&amp;ptid=1566822" target="_blank">99mxw 发表于 2020-9-22 12:11</a>
@@ -5035,16 +3453,10 @@ B站暗示买了版权
 <img src="https://p.sda1.dev/0/95437c629c9f1d94a2ecc5d4b4d36d56/EifXKDzVoAAepa7.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  99mxw  
 ##### 255#       发表于 2020-9-22 12:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48813652&amp;ptid=1566822" target="_blank">xingenge 发表于 2020-9-22 12:20</a>
@@ -5054,32 +3466,19 @@ B站暗示买了版权
 <img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">有点真实
 
 
-
-
-
-
-
 -----
 
 ####  爱吃冻鳗的猫  
 ##### 256#       发表于 2020-9-22 16:25
 
 
-
-
 封面真好看
-
-
-
-
-
 
 
 -----
 
 ####  战机黑手党  
 ##### 257#       发表于 2020-9-23 11:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48813652&amp;ptid=1566822" target="_blank">xingenge 发表于 2020-9-22 12:20</a>
@@ -5090,25 +3489,13 @@ B站暗示买了版权
 比WA2里春哥租的那间1LDK贵一倍以上，户型都差不多，都位于交通方便的地段，步行10分钟就到轻轨站。
 
 
-
-
-
-
-
 -----
 
 ####  dstar  
 ##### 258#       发表于 2020-9-23 12:00
 
 
-
-
 b站上线，在看了在看了
-
-
-
-
-
 
 
 -----
@@ -5117,14 +3504,7 @@ b站上线，在看了在看了
 ##### 259#       发表于 2020-9-23 13:36
 
 
-
-
 TV质量的剧场版嘛
-
-
-
-
-
 
 
 -----
@@ -5133,14 +3513,7 @@ TV质量的剧场版嘛
 ##### 260#       发表于 2020-9-23 13:37
 
 
-
-
 真好啊真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5149,14 +3522,7 @@ TV质量的剧场版嘛
 ##### 261#       发表于 2020-9-23 13:48
 
 
-
-
 无弹幕看了一遍，准备弹幕再来一遍
-
-
-
-
-
 
 
 -----
@@ -5165,15 +3531,8 @@ TV质量的剧场版嘛
 ##### 262#       发表于 2020-9-23 15:08
 
 
-
-
 看完了
 满足满足
-
-
-
-
-
 
 
 -----
@@ -5182,14 +3541,7 @@ TV质量的剧场版嘛
 ##### 263#       发表于 2020-9-23 15:25
 
 
-
-
 太幸福了
-
-
-
-
-
 
 
 -----
@@ -5198,21 +3550,13 @@ TV质量的剧场版嘛
 ##### 264#       发表于 2020-9-23 15:27
 
 
-
-
 BGM一响开口就あの日~太喜感了
-
-
-
-
-
 
 
 -----
 
 ####  dstar  
 ##### 265#       发表于 2020-9-23 16:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48826321&amp;ptid=1566822" target="_blank">13. 发表于 2020-9-23 15:27</a>
@@ -5224,25 +3568,13 @@ BGM一响开口就あの日~太喜感了</blockquote>
 青岛俊作：真是个不干脆的男人啊！
 
 
-
-
-
-
-
 -----
 
 ####  酥蕤  
 ##### 266#       发表于 2020-9-23 16:34
 
 
-
-
 加藤惠这个语调总感觉自带阴阳怪气的
-
-
-
-
-
 
 
 -----
@@ -5251,14 +3583,7 @@ BGM一响开口就あの日~太喜感了</blockquote>
 ##### 267#       发表于 2020-9-23 16:42
 
 
-
-
 握个手都能演得这么涩情我喜欢
-
-
-
-
-
 
 
 -----
@@ -5267,14 +3592,7 @@ BGM一响开口就あの日~太喜感了</blockquote>
 ##### 268#       发表于 2020-9-23 17:01
 
 
-
-
 甜度太高，单身狗已产生不适<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5283,24 +3601,16 @@ BGM一响开口就あの日~太喜感了</blockquote>
 ##### 269#       发表于 2020-9-23 17:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48827096&amp;ptid=1566822" target="_blank">酥蕤 发表于 2020-9-23 16:34</a>
 
 加藤惠这个语调总感觉自带阴阳怪气的</blockquote>
 你说对了... 纯情心机婊
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 270#         楼主| 发表于 2020-9-23 17:27
-
-
 
 
 【予約開始】本日9月23日、加藤恵の誕生日を記念して「冴えない彼女の育てかたFine」より『加藤恵 メイドver. 1/7スケールフィギュア』が何と只今より予約受付開始となります！
@@ -5347,25 +3657,13 @@ BGM一响开口就あの日~太喜感了</blockquote>
 皆様からの多数のご応募をお待ちしております！！
 
 
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 271#       发表于 2020-9-23 17:31
 
 
-
-
 丸户算上岸黄油脚本里面动画脚本也不错的少数，剧场版完成度不错
-
-
-
-
-
 
 
 -----
@@ -5374,14 +3672,7 @@ BGM一响开口就あの日~太喜感了</blockquote>
 ##### 272#       发表于 2020-9-23 17:33
 
 
-
-
 喷了,要让松冈再现场唱一次love illusion么
-
-
-
-
-
 
 
 -----
@@ -5390,14 +3681,7 @@ BGM一响开口就あの日~太喜感了</blockquote>
 ##### 273#       发表于 2020-9-23 17:35
 
 
-
-
 我突然发现，其实安艺伦也就是丸户史明的的自我投射啊，还挺爽文取向的
-
-
-
-
-
 
 
 -----
@@ -5406,14 +3690,7 @@ BGM一响开口就あの日~太喜感了</blockquote>
 ##### 274#       发表于 2020-9-23 17:35
 
 
-
-
 “伦也，你以前有喜欢过我吗？十年前，喜欢过我吗？”<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5422,14 +3699,7 @@ BGM一响开口就あの日~太喜感了</blockquote>
 ##### 275#       发表于 2020-9-23 17:38
 
 
-
-
 这手办把深崎画的蓝色发梢都还原了，看着有点怪……
-
-
-
-
-
 
 
 -----
@@ -5438,15 +3708,9 @@ BGM一响开口就あの日~太喜感了</blockquote>
 ##### 276#       发表于 2020-9-23 17:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">怎么感觉就err没长残
 
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
-
-
-
-
-
 
 
 -----
@@ -5455,13 +3719,7 @@ BGM一响开口就あの日~太喜感了</blockquote>
 ##### 277#       发表于 2020-9-23 17:51
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">惠痴落泪
-
-
-
-
-
 
 
 -----
@@ -5470,16 +3728,10 @@ BGM一响开口就あの日~太喜感了</blockquote>
 ##### 278#       发表于 2020-9-23 19:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48827864&amp;ptid=1566822" target="_blank">Icskari 发表于 2020-9-23 17:35</a>
 
 我突然发现，其实安艺伦也就是丸户史明的的自我投射啊，还挺爽文取向的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">才发现吗，我觉得还挺明显的，其实这部整个就是丸户创作历程+妄想总结
-
-
-
-
-
 
 
 -----
@@ -5488,13 +3740,7 @@ BGM一响开口就あの日~太喜感了</blockquote>
 ##### 279#       发表于 2020-9-23 19:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">虽然说剧场版果然还是几集tv合起来的制作，但作为系列收尾也算收的不错了，结尾声优开啤酒也很让人感慨。
-
-
-
-
-
 
 
 -----
@@ -5503,23 +3749,15 @@ BGM一响开口就あの日~太喜感了</blockquote>
 ##### 280#       发表于 2020-9-23 19:39
 
 
-
-
 最后的彩蛋，雪菜街+冬马式登场，真有你的啊丸户。
 
 但是短发学姐我不能接受<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  ElderDriver  
 ##### 281#       发表于 2020-9-23 19:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48828967&amp;ptid=1566822" target="_blank">Acatv 发表于 2020-09-23 19:39:07</a>
@@ -5530,16 +3768,10 @@ BGM一响开口就あの日~太喜感了</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  livelive  
 ##### 282#       发表于 2020-9-23 19:50
-
 
 
 <blockquote>Acatv 发表于 2020-9-23 19:39
@@ -5550,24 +3782,13 @@ BGM一响开口就あの日~太喜感了</blockquote>
 惠和学姐都留长发就没有角色辨识度了，小说卷7的封面你不说的话，我还以为深崎暮人画的是学姐...
 
 
-
-
-
-
-
 -----
 
 ####  言嘉  
 ##### 283#       发表于 2020-9-23 19:51
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会还有人至今觉得惠人畜无害纯情白兔没心机吧，能斗过伊织的女人欸
-
-
-
-
-
 
 
 -----
@@ -5576,14 +3797,7 @@ BGM一响开口就あの日~太喜感了</blockquote>
 ##### 284#       发表于 2020-9-23 20:21
 
 
-
-
 脸有点视角限定，已经订了睡衣学妹了（虽然脸也有点微妙），斩草斩草
-
-
-
-
-
 
 
 -----
@@ -5592,21 +3806,13 @@ BGM一响开口就あの日~太喜感了</blockquote>
 ##### 285#       发表于 2020-9-23 20:22
 
 
-
-
 tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男人就算跟人跑了只要道歉就能快速白给<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，恋爱使人软弱啊（确信）。
-
-
-
-
-
 
 
 -----
 
 ####  星野航  
 ##### 286#       发表于 2020-9-23 20:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48828967&amp;ptid=1566822" target="_blank">Acatv 发表于 2020-9-23 20:39</a>
@@ -5625,16 +3831,10 @@ tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男
 不过丸户肯定再也不是那个写帕露菲跟NG恋的丸户了
 
 
-
-
-
-
-
 -----
 
 ####  JustW  
 ##### 287#       发表于 2020-9-23 20:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48829323&amp;ptid=1566822" target="_blank">daathzero 发表于 2020-9-23 20:22</a>
@@ -5644,16 +3844,10 @@ tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
-
-
-
-
-
 -----
 
 ####  Acatv  
 ##### 288#       发表于 2020-9-23 20:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48829361&amp;ptid=1566822" target="_blank">星野航 发表于 2020-9-23 20:26</a>
@@ -5663,16 +3857,10 @@ tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男
 没看过东爱 准备补一下<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  livelive  
 ##### 289#       发表于 2020-9-23 20:53
-
 
 
 <blockquote>星野航 发表于 2020-9-23 20:26
@@ -5687,16 +3875,10 @@ tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男
 唱起来 *\(^o^)/*
 
 
-
-
-
-
-
 -----
 
 ####  livelive  
 ##### 290#       发表于 2020-9-23 21:00
-
 
 
 <blockquote>Acatv 发表于 2020-9-23 20:46
@@ -5704,16 +3886,10 @@ tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男
 《东京爱情故事》可能是我国21世纪前知名度最高的日剧，没完整看过也往往听过主题曲...
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 291#       发表于 2020-9-23 21:02
-
 
 
  本帖最后由 罗马教皇 于 2020-9-23 21:10 编辑 
@@ -5736,11 +3912,6 @@ tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男
 2020-9-23 21:02 上传
 
 
-
-
-
-
-
 至于伦也道歉之后就原谅了，毕竟是ACG嘛，真要一拍两散，观众老爷们不爱看的
 
 
@@ -5750,16 +3921,10 @@ tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男
 我最反感的就是用雪菜碰瓷加藤惠
 
 
-
-
-
-
-
 -----
 
 ####  一般通过宅宅  
 ##### 292#       发表于 2020-9-23 21:06
-
 
 
  本帖最后由 一般通过宅宅 于 2020-9-23 21:08 编辑 
@@ -5770,16 +3935,10 @@ tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男
 短发学姐真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 293#       发表于 2020-9-23 21:08
-
 
 
  本帖最后由 罗马教皇 于 2020-9-23 21:52 编辑 
@@ -5800,25 +3959,13 @@ tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男
 “我就等于伦也”是丸户自己说的，但是，跟前一个问题联系起来，结论就很微妙了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  falsethen  
 ##### 294#       发表于 2020-9-23 21:11
 
 
-
-
 最后CAST表笑死我了
-
-
-
-
-
 
 
 -----
@@ -5827,15 +3974,9 @@ tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男
 ##### 295#       发表于 2020-9-23 21:17
 
 
-
  本帖最后由 midearth 于 2020-9-23 22:06 编辑 
 
 片里彩蛋好多, 最后玄关还摆了个加藤自己的手办<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5844,21 +3985,13 @@ tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男
 ##### 296#       发表于 2020-9-23 21:17
 
 
-
-
 话说“相乐真由”有在TV和剧场版中登场过吗？
-
-
-
-
-
 
 
 -----
 
 ####  星野航  
 ##### 297#       发表于 2020-9-23 21:18
-
 
 
  本帖最后由 星野航 于 2020-9-23 22:21 编辑 
@@ -5871,25 +4004,13 @@ tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小田和正真是经典啊~，值得一提的是，这段搭配诗羽写得废案真的是很有趣，就能读出这是老贼想要写出来，但是现实不能满足他的感觉所以顺着这个故事，再听这首歌，感觉很不一样
 
 
-
-
-
-
-
 -----
 
 ####  nerugigannte  
 ##### 298#       发表于 2020-9-23 21:18
 
 
-
-
 片里的手办是怎么“画”上去的，看着好真实
-
-
-
-
-
 
 
 -----
@@ -5898,23 +4019,16 @@ tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男
 ##### 299#       发表于 2020-9-23 21:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48829545&amp;ptid=1566822" target="_blank">Acatv 发表于 2020-9-23 21:46</a>
 
 没看过东爱 准备补一下</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">好剧要补，速速出手
 
 
-
-
-
-
-
 -----
 
 ####  daathzero  
 ##### 300#       发表于 2020-9-23 21:20
-
 
 
 <blockquote>罗马教皇 发表于 2020-9-23 21:02
@@ -5926,16 +4040,10 @@ tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男
 拉黑倒是还有点以前那味儿，关键是后面宣誓主权还是暴露了啊，雪菜缠着不放，圣人惠自爆宣言之后真能放下？当然毕竟是两部不同的作品，肯定还是不一样的，只是看到一些既视感感慨一下，同一个作者的作品联想一下也没什么吧。
 
 
-
-
-
-
-
 -----
 
 ####  星野航  
 ##### 301#       发表于 2020-9-23 21:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48829828&amp;ptid=1566822" target="_blank">livelive 发表于 2020-9-23 22:17</a>
@@ -5944,25 +4052,13 @@ tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男
 应该是完全没
 
 
-
-
-
-
-
 -----
 
 ####  rainknine  
 ##### 302#       发表于 2020-9-23 21:23
 
 
-
-
 二刷结尾才发现有打fgo<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5971,16 +4067,10 @@ tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男
 ##### 303#       发表于 2020-9-23 21:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48829323&amp;ptid=1566822" target="_blank">daathzero 发表于 2020-9-23 20:22</a>
 
 tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男人就算跟人跑了只要道歉就能快速白给，恋 ...</blockquote>
 亚萨西机器……你这理解有偏差啊，剧中直接说她“重女”了
-
-
-
-
-
 
 
 -----
@@ -5989,24 +4079,16 @@ tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男
 ##### 304#       发表于 2020-9-23 21:27
 
 
-
-
 甜死了，甜死了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
 真好啊
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 305#       发表于 2020-9-23 21:28
-
 
 
  本帖最后由 罗马教皇 于 2020-9-23 21:52 编辑 
@@ -6102,27 +4184,15 @@ tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男
 她伤心归伤心，但可没缠着不放，雪菜那样做，很难看的。
 
 
-
-
-
-
-
 -----
 
 ####  Acatv  
 ##### 306#       发表于 2020-9-23 21:53
 
 
-
-
 不过想想学姐也不算太亏吧，正传输了伦也但是收了双马尾，外传直接(在真由帮助下)全面胜利。
 
 整个作品里直接称呼学姐为诗羽的应该就两处吧，一个是这次剧场版最后的英梨梨，还有就是恋节最后跟伦也确定关系后，伦也也开始直呼其名了。
-
-
-
-
-
 
 
 -----
@@ -6131,14 +4201,7 @@ tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男
 ##### 307#       发表于 2020-9-23 22:00
 
 
-
-
 英梨梨的败犬释然做得还可以<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6147,16 +4210,10 @@ tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男
 ##### 308#       发表于 2020-9-23 22:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48830274&amp;ptid=1566822" target="_blank">AvengerRideon 发表于 2020-9-23 22:00</a>
 
 英梨梨的败犬释然做得还可以</blockquote>
 几个名场面都有还原到了. 但可惜的是加藤和英梨梨和好的过程还有"写给英梨梨的情书"的剧情没了, 如果能多做一个剧场版就好了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6165,15 +4222,9 @@ tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男
 ##### 309#       发表于 2020-9-23 22:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/238.png" referrerpolicy="no-referrer">恋爱节拍器动画化来一个？
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
-
-
-
-
-
 
 
 -----
@@ -6182,22 +4233,13 @@ tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男
 ##### 310#       发表于 2020-9-23 22:25
 
 
-
-
 加藤惠算不算泥潭说的厂妹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  AC说君  
 ##### 311#       发表于 2020-9-23 22:30
-
-
 
 
 在我个人觉得不含私心的看下来，除了惠出现的地方，其他的时间演出感觉都很无聊
@@ -6211,16 +4253,10 @@ tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男
 《丸户史明你没有心》
 
 
-
-
-
-
-
 -----
 
 ####  星野航  
 ##### 312#       发表于 2020-9-23 22:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48830509&amp;ptid=1566822" target="_blank">JustW 发表于 2020-9-23 23:23</a>
@@ -6234,17 +4270,10 @@ tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男
 对路人厨子来说，确实是一个很值得的ip，毕竟卖得也不错
 
 
-
-
-
-
-
 -----
 
 ####  籁·来·也  
 ##### 313#       发表于 2020-9-23 22:55
-
-
 
 
 其实第二季就可以作为结尾了吧，那个结局感觉更有韵味
@@ -6253,27 +4282,15 @@ tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  车欠  
 ##### 314#       发表于 2020-9-23 23:40
 
 
-
-
 花式撒糖看到我好快乐 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 我永远喜欢加藤惠.jpg
-
-
-
-
-
 
 
 -----
@@ -6282,74 +4299,33 @@ tv里的无情亚萨西机器圣加藤，怎么变成雪菜式小女人了，男
 ##### 315#       发表于 2020-9-24 00:20
 
 
-
-
 变成老板和老板娘了啊  其它几个女人算什么意思
-
-
-
-
 
 
 bili_v_1600873631371.gif
 (42.75 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2020-9-24 00:19 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202009/24/001939bolq535iivv55nw5.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 6814541@1600875330@2.png
 (137.53 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2020-9-24 00:19 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202009/24/001944c06j5j65gcvfdfkz.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -6358,14 +4334,7 @@ bili_v_1600873631371.gif
 ##### 316#       发表于 2020-9-24 00:24
 
 
-
-
 这部动画的女主是劝退流，比起隔壁那一个一个拿钱办事话剧杀青式的谢幕不知道要高到哪里去了。
-
-
-
-
-
 
 
 -----
@@ -6374,22 +4343,13 @@ bili_v_1600873631371.gif
 ##### 317#       发表于 2020-9-24 00:27
 
 
-
-
 看的太舒服了，好久没吃这么甜的糖了，感觉可以假期玩玩冬马te了。
-
-
-
-
-
 
 
 -----
 
 ####  asda  
 ##### 318#       发表于 2020-9-24 01:05
-
-
 
 
 片尾后的歌是不是重配了
@@ -6404,17 +4364,10 @@ bili_v_1600873631371.gif
 还是我已经记错了
 
 
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 319#       发表于 2020-9-24 01:17
-
-
 
 
 认真点评一下，《路学》不愧是《白学》青少年白话文读本，而路学这个剧场版内核，
@@ -6440,16 +4393,10 @@ bili_v_1600873631371.gif
 这剧场版甚至连“生日鸽子”和“生病”都复刻，我看到一半基本上就断定了这是code<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 320#       发表于 2020-9-24 01:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48831707&amp;ptid=1566822" target="_blank">nice女武神 发表于 2020-9-24 00:20</a>
@@ -6458,32 +4405,19 @@ bili_v_1600873631371.gif
 外包乙方<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  可乐杜  
 ##### 321#       发表于 2020-9-24 02:13
 
 
-
-
 我好喜欢惠<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  whzfjk  
 ##### 322#       发表于 2020-9-24 02:57
-
 
 
  本帖最后由 whzfjk 于 2020-9-24 03:07 编辑 
@@ -6507,32 +4441,19 @@ bili_v_1600873631371.gif
 我惠当导演，也算是满足了凤傲天的期盼了。
 
 
-
-
-
-
-
 -----
 
 ####  orangeth  
 ##### 323#       发表于 2020-9-24 04:08
 
 
-
-
 不知道为什么，总把出海看成某国产VTB，明明我也不看套皮纸片人主播啊
-
-
-
-
-
 
 
 -----
 
 ####  病院坂黒猫  
 ##### 324#       发表于 2020-9-24 04:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48832144&amp;ptid=1566822" target="_blank">ziyo 发表于 2020-9-24 01:17</a>
@@ -6543,16 +4464,10 @@ bili_v_1600873631371.gif
 这种对应更像是丸户这个人的“报复”行为 既然有人喜欢说如果怎么怎么样 剧情就会完全一边倒 那我就把这个如果写出来给你看（
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 325#       发表于 2020-9-24 05:33
-
 
 
  本帖最后由 罗马教皇 于 2020-9-24 06:25 编辑 
@@ -6581,25 +4496,13 @@ WA2的正篇cc和coda都是在讲春希怎么自己努力解决事情，有雪�
 默默帮助春希的人，一是身边的武也和依绪，二是上司麻理，但偏偏就不是雪菜，碰瓷加藤惠和里伽子是什么鬼？
 
 
-
-
-
-
-
 -----
 
 ####  sqd  
 ##### 326#       发表于 2020-9-24 08:08
 
 
-
-
 真好啊真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6608,18 +4511,10 @@ WA2的正篇cc和coda都是在讲春希怎么自己努力解决事情，有雪�
 ##### 327#       发表于 2020-9-24 10:28
 
 
-
-
 不会有人只看发色来区分纸片人吧
 
 教皇真有你的，把丸户的一句话截出来标红，就敢宣布金发=英梨梨=雪菜。
 明明丸户下一句话就是“但是这种角色模板也分系统，需要各种元素的混合”，丸户这句话转折的意思那么明显，你解读圣经的时候不看上下文的吗，可能这就是教皇的职业习惯吧。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
@@ -6628,23 +4523,15 @@ WA2的正篇cc和coda都是在讲春希怎么自己努力解决事情，有雪�
 ##### 328#       发表于 2020-9-24 10:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48832587&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 05:33</a>
 很遗憾，丸户亲口说英梨梨=雪菜，或者你想在WA2再找一个金发女主角出来？</blockquote>
 这段首先是在说沟通人设外表，其次什么叫杂合？不要拿些外表细节不同就觉得差别很大，这两人“先遇上，有才华，依靠男主，最终选择事业”就是把冬马拆开来用，英梨梨虽然把雪菜一些角色特点比如“校内校外两面，只有男主知道”这类无关紧要的设定拿了过来，但不影响面对女主时的主要作用“你中途放弃了所以我赢了”
-
-
-
-
-
-
 
 
 -----
 
 ####  罗马教皇  
 ##### 329#       发表于 2020-9-24 11:10
-
 
 
  本帖最后由 罗马教皇 于 2020-9-24 11:12 编辑 
@@ -6663,18 +4550,10 @@ WA2的正篇cc和coda都是在讲春希怎么自己努力解决事情，有雪�
 不要拿些无关紧要的说事，这话还给你，用雪菜来碰瓷加藤惠和里伽子？别侮辱后两位行吗？
 
 
-
-
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 330#       发表于 2020-9-24 11:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48834120&amp;ptid=1566822" target="_blank">Acatv 发表于 2020-9-24 10:28</a>
@@ -6690,27 +4569,10 @@ WA2的正篇cc和coda都是在讲春希怎么自己努力解决事情，有雪�
 没错，从花鸟玲爱，羽山海己，泽嶋姫绪，小木曾雪菜，最后到泽村英梨梨，她们虽然性格、经历有差别，但标志性的金发双马尾就没变过，这是丸户的喜好
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 331#       发表于 2020-9-24 11:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48834672&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 11:10</a>
@@ -6723,16 +4585,10 @@ WA2的正篇cc和coda都是在讲春希怎么自己努力解决事情，有雪�
 至于帮助是什么，你这么轴我就说明白点，丸户这种超人男主模版，只有彻底跪了的时候，替他收拾局面才是帮助，通常也是剧情转折点，没有配角什么事。
 
 
-
-
-
-
-
 -----
 
 ####  星野航  
 ##### 332#       发表于 2020-9-24 11:33
-
 
 
  本帖最后由 星野航 于 2020-9-24 12:35 编辑 
@@ -6745,16 +4601,10 @@ WA2的正篇cc和coda都是在讲春希怎么自己努力解决事情，有雪�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要试图跟教皇讲东西嘛，让他自己沉浸不是挺好么，花时间讲这些实在是不值
 
 
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 333#       发表于 2020-9-24 11:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48834860&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 11:25</a>
@@ -6765,16 +4615,10 @@ WA2的正篇cc和coda都是在讲春希怎么自己努力解决事情，有雪�
 金发可分不了角色是什么科，顶多算是模版排列组合特点之一
 
 
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 334#       发表于 2020-9-24 11:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48834963&amp;ptid=1566822" target="_blank">星野航 发表于 2020-9-24 11:33</a>
@@ -6784,16 +4628,10 @@ WA2的正篇cc和coda都是在讲春希怎么自己努力解决事情，有雪�
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">看出来了，应该是有意的，没有认真探讨的价值
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 335#       发表于 2020-9-24 11:40
-
 
 
  本帖最后由 罗马教皇 于 2020-9-24 11:52 编辑 
@@ -6815,16 +4653,10 @@ WA2的正篇cc和coda都是在讲春希怎么自己努力解决事情，有雪�
 你还有脸来碰瓷？
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 336#       发表于 2020-9-24 11:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48835012&amp;ptid=1566822" target="_blank">ziyo 发表于 2020-9-24 11:37</a>
@@ -6833,16 +4665,10 @@ WA2的正篇cc和coda都是在讲春希怎么自己努力解决事情，有雪�
 你有意见找丸户去，他跟深崎讨论时说的就是英梨梨的根本特征是金发，不服憋着
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 337#       发表于 2020-9-24 11:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48834963&amp;ptid=1566822" target="_blank">星野航 发表于 2020-9-24 11:33</a>
@@ -6853,16 +4679,10 @@ WA2的正篇cc和coda都是在讲春希怎么自己努力解决事情，有雪�
 自己沉浸这话形容你比较合适，丸户的原话都贴出来了，不服的话你何必看丸户的作品呢？
 
 
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 338#       发表于 2020-9-24 11:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48835054&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 11:40</a>
@@ -6874,17 +4694,10 @@ WA2的正篇cc和coda都是在讲春希怎么自己努力解决事情，有雪�
 用惠的话来说“男人选择我是因为追不上你们”
 
 
-
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 339#       发表于 2020-9-24 11:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48835129&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 11:46</a>
@@ -6894,33 +4707,20 @@ WA2的正篇cc和coda都是在讲春希怎么自己努力解决事情，有雪�
 丸户这原话可是在和画师探讨人设外形的角色模版，如果你认为人设外形=角色全部，那也没什么好说的
 
 
-
-
-
-
-
 -----
 
 ####  城市生物  
 ##### 340#       发表于 2020-9-24 12:05
 
 
-
-
 某种意义上《路人女主》相当于帕露菲里的里伽子最终选择了花鸟玲爱，她们俩独立去开店后
 高村仁和不太起眼的雪乃明日香把咖啡店给坚持下来的故事
-
-
-
-
-
 
 
 -----
 
 ####  星野航  
 ##### 341#       发表于 2020-9-24 12:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48835129&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 12:46</a>
@@ -6935,32 +4735,19 @@ WA2的正篇cc和coda都是在讲春希怎么自己努力解决事情，有雪�
 教皇不如高抬贵手放过丸户吧23333
 
 
-
-
-
-
-
 -----
 
 ####  星野航  
 ##### 342#       发表于 2020-9-24 12:07
 
 
-
-
 教皇已经有隔壁呆呆兽面包内味儿了，一个抓着丸户史明薅，一个抓着几原邦彦薅，也是相映成辉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  罗马教皇  
 ##### 343#       发表于 2020-9-24 12:10
-
 
 
  本帖最后由 罗马教皇 于 2020-9-24 12:11 编辑 
@@ -6976,16 +4763,10 @@ WA2的正篇cc和coda都是在讲春希怎么自己努力解决事情，有雪�
 所以金发就是这类角色的底层特征，在这个基础上才会继续研究各自的特点
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 344#       发表于 2020-9-24 12:13
-
 
 
  本帖最后由 罗马教皇 于 2020-9-24 12:35 编辑 
@@ -7002,16 +4783,10 @@ WA2的正篇cc和coda都是在讲春希怎么自己努力解决事情，有雪�
 还有你别倒打一耙，现在是有些人到处用雪菜碰瓷，这是侮辱别的角色，所以我才反驳，因果关系别颠倒
 
 
-
-
-
-
-
 -----
 
 ####  Sunyata  
 ##### 345#       发表于 2020-9-24 12:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48832453&amp;ptid=1566822" target="_blank">whzfjk 发表于 2020-9-24 02:57</a>
@@ -7027,16 +4802,10 @@ WA2的正篇cc和coda都是在讲春希怎么自己努力解决事情，有雪�
 err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么多刀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 346#       发表于 2020-9-24 12:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48835199&amp;ptid=1566822" target="_blank">ziyo 发表于 2020-9-24 11:52</a>
@@ -7049,19 +4818,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 男方追不追，那是男方的事，女方走了，那是女方的事，别混为一谈
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 347#       发表于 2020-9-24 12:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48835409&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 12:10</a>
@@ -7084,16 +4844,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 随便举个例子，找支线女人喝茶是哪些角色的行为特点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 348#       发表于 2020-9-24 12:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48835581&amp;ptid=1566822" target="_blank">ziyo 发表于 2020-9-24 12:23</a>
@@ -7109,16 +4863,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 当然了，你可以尽管觉得丸户理解个P，随便你吧
 
 
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 349#       发表于 2020-9-24 12:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48835547&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 12:21</a>
@@ -7127,16 +4875,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 啊呸，原来这个角色有社会常识啊，一夜情后跑了就是跑了，选择主动放弃了，这里没有选项倒是和路学一样可以比较
 
 
-
-
-
-
-
 -----
 
 ####  Icskari  
 ##### 350#       发表于 2020-9-24 12:34
-
 
 
  本帖最后由 Icskari 于 2020-9-24 12:35 编辑 
@@ -7148,16 +4890,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
   两边都不用费劲敲字了，各看各的不也挺好。
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 351#       发表于 2020-9-24 12:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48835680&amp;ptid=1566822" target="_blank">ziyo 发表于 2020-9-24 12:31</a>
@@ -7169,16 +4905,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 冬马被非议的是分手炮和几年后又抢人，她选择走，本身没问题
 
 
-
-
-
-
-
 -----
 
 ####  星野航  
 ##### 352#       发表于 2020-9-24 12:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48835453&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 13:13</a>
@@ -7192,16 +4922,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 以及我根本就没想跟你聊，你是个什么货色在你其他几个小号哪里都看得很清楚了。只不过劝劝别人不在你这儿浪费时间。倒是你跑哪儿都要蹭两下，不行了还得加粗变红这套怕不是更符合打滚定义嗷
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 353#       发表于 2020-9-24 12:46
-
 
 
  本帖最后由 罗马教皇 于 2020-9-24 12:51 编辑 
@@ -7219,25 +4943,13 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 加粗变红这是常见的划重点做法，当然，你也可以脑补别人不行了，毕竟你也到处蹭两下呢，呵呵。
 
 
-
-
-
-
-
 -----
 
 ####  大气水平运动  
 ##### 354#       发表于 2020-9-24 12:48
 
 
-
-
 以前很喜欢圣人惠和英梨梨的cp，可惜大家全都站学姐和英梨梨。
-
-
-
-
-
 
 
 -----
@@ -7246,23 +4958,16 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 ##### 355#       发表于 2020-9-24 12:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48835835&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 13:46</a>
 
 加藤惠、里伽子经常帮助主人公，丸户着力塑造的就是这种形象；相反，雪菜平时不帮助春希，用雪菜碰瓷，当 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没事，你开心就好。
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 356#       发表于 2020-9-24 12:52
-
 
 
  本帖最后由 罗马教皇 于 2020-9-24 12:53 编辑 
@@ -7272,16 +4977,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 那是，毕竟你想怎样我也拦不住，就这样啦<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 357#       发表于 2020-9-24 12:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48835753&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 12:38</a>
@@ -7293,16 +4992,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 当然有问题，春哥炮都打了，什么选择还用说吗，她自己跑了，主动选择成为英梨梨那个”喜欢过“，以事业为逃避借口，没给男人机会。路学作为通俗读本，很明确很清晰的指出这样选择的结果。
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 358#       发表于 2020-9-24 12:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48835898&amp;ptid=1566822" target="_blank">ziyo 发表于 2020-9-24 12:53</a>
@@ -7314,16 +5007,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 小春有话说哦，春希睡了她那么久也没找雪菜分手，最后因为武也踢了他一脚才肯行动<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 359#       发表于 2020-9-24 12:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48835667&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 12:30</a>
@@ -7338,16 +5025,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 这两个角色后面的行为选择怎么样，路人作为轻小说还有什么理解困难吗
 
 
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 360#       发表于 2020-9-24 13:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48835926&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 12:56</a>
@@ -7359,16 +5040,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 那好歹是行动了，小春也没跑出国五年不见，这叫在台上，冬马叫什么，主动下台关闭选项。
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 361#       发表于 2020-9-24 13:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48835952&amp;ptid=1566822" target="_blank">ziyo 发表于 2020-9-24 12:59</a>
@@ -7383,16 +5058,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 难道你还以为否定了金发角色这个模板？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 362#       发表于 2020-9-24 13:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48835976&amp;ptid=1566822" target="_blank">ziyo 发表于 2020-9-24 13:03</a>
@@ -7407,16 +5076,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 冬马又没有武也帮忙。
 
 
-
-
-
-
-
 -----
 
 ####  Icskari  
 ##### 363#       发表于 2020-9-24 13:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48836005&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 13:06</a>
@@ -7427,16 +5090,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 小木曾并不是金发哦，是茶色的啊
 
 
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 364#       发表于 2020-9-24 13:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48836005&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 13:06</a>
@@ -7452,16 +5109,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 不好意思从后面发展看，<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">和雪菜就是差别巨大。
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 365#       发表于 2020-9-24 13:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48836054&amp;ptid=1566822" target="_blank">Icskari 发表于 2020-9-24 13:09</a>
@@ -7470,16 +5121,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 颜色属于渐变式，大体范围，不需要很精确
 
 
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 366#       发表于 2020-9-24 13:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48836049&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 13:09</a>
@@ -7491,16 +5136,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 我看明白了，你把配角影响当成主角行为的决定性因素，故事主角的行为选择是由什么决定的，我建议你多学多看。
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 367#       发表于 2020-9-24 13:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48836072&amp;ptid=1566822" target="_blank">ziyo 发表于 2020-9-24 13:11</a>
@@ -7515,16 +5154,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 金发是基础特点，在这个基础上再区分其它特点，这就是丸户的意思，你想否认基础就是做梦。
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 368#       发表于 2020-9-24 13:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48836115&amp;ptid=1566822" target="_blank">ziyo 发表于 2020-9-24 13:16</a>
@@ -7535,19 +5168,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 事实就是如果没有武也，春希不会行动，所以春希睡了小春根本不算选择她
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 369#       发表于 2020-9-24 13:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48836179&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 13:23</a>
@@ -7558,16 +5182,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 如果没有xx就不会行动，别扯了这里没给你选项，个人线都是选择之后了
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 370#       发表于 2020-9-24 13:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48836220&amp;ptid=1566822" target="_blank">ziyo 发表于 2020-9-24 13:27</a>
@@ -7576,16 +5194,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 你又在发明奇谈怪论了，进小春线和麻理线的时候，春希连对方喜欢自己都不知道，后来才知道，而春希睡了小春那么久也不找雪菜摊牌，选择？呵呵
 
 
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 371#       发表于 2020-9-24 13:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48836120&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 13:16</a>
@@ -7596,16 +5208,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 噗，你也知道在讨论差别，你是怎么把金发这个模板理解为英梨梨=雪菜的
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 372#       发表于 2020-9-24 13:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48836262&amp;ptid=1566822" target="_blank">ziyo 发表于 2020-9-24 13:31</a>
@@ -7614,16 +5220,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 是啊，丸户在讨论同一模板下不同角色的差别，所以你必须首先承认英梨梨=雪菜这个基本模板，再来讨论她们有什么差别，否则你就是违背作者，说再多也没用
 
 
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 373#       发表于 2020-9-24 13:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48836304&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 13:35</a>
@@ -7632,16 +5232,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 你对角色模板的理解就是发色啊，那也没什么好说的，当然这段说画师的东西你大可以当成全部
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 374#       发表于 2020-9-24 13:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48836370&amp;ptid=1566822" target="_blank">ziyo 发表于 2020-9-24 13:41</a>
@@ -7652,17 +5246,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 丸户没有具体说明，但深崎看了丸户写的剧情，就认为英梨梨应该设计成金发，丸户说深崎理解得非常明白，你看来是觉得丸户也不懂了，呵呵
 
 
-
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 375#       发表于 2020-9-24 13:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48836416&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 13:45</a>
@@ -7677,17 +5264,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 并不影响角色行为选择，你自己理解为是基础而已
 
 
-
-
-
-
-
 -----
 
 ####  言嘉  
 ##### 376#       发表于 2020-9-24 13:58
-
-
 
 
 丸户信者之间的火药味儿真的浓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -7695,17 +5275,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 我永远喜欢里伽子
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 377#       发表于 2020-9-24 13:59
-
-
 
 
 2020年了这也能吵几页,感动.
@@ -7717,16 +5290,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 推特搜索#加藤恵生誕祭 有真相
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 378#       发表于 2020-9-24 14:00
-
 
 
  本帖最后由 罗马教皇 于 2020-9-24 14:03 编辑 
@@ -7745,20 +5312,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 你想歪曲作者原意才是没用的脑补。
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 379#       发表于 2020-9-24 14:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48836581&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 14:00</a>
@@ -7771,16 +5328,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 英梨梨只有发色和一些微末特点符合雪菜，根本不能用=
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 380#       发表于 2020-9-24 14:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48836683&amp;ptid=1566822" target="_blank">ziyo 发表于 2020-9-24 14:12</a>
@@ -7791,16 +5342,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 不好意思，丸户就是说金发角色是模板，原文就摆在那儿，你不喜欢就别看丸户的作品啊，跟我嚼舌头有什么用？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 381#       发表于 2020-9-24 14:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48836716&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 14:15</a>
@@ -7809,16 +5354,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">是模板就能划等号？英梨梨=雪菜？这也是丸户原文？
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 382#       发表于 2020-9-24 14:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48836766&amp;ptid=1566822" target="_blank">ziyo 发表于 2020-9-24 14:21</a>
@@ -7830,16 +5369,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 怎么，你理屈词穷就只能拿写法挑骨头了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 383#       发表于 2020-9-24 14:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48836929&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 14:35</a>
@@ -7851,16 +5384,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喔~你翻一下325楼你第一句是啥，算了，算你简略
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 384#       发表于 2020-9-24 14:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48836953&amp;ptid=1566822" target="_blank">ziyo 发表于 2020-9-24 14:38</a>
@@ -7872,16 +5399,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 劝你别在这上面动脑筋，别人一句简略写法就可以打回去，白费劲<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 385#       发表于 2020-9-24 14:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48836977&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 14:40</a>
@@ -7896,16 +5417,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 还让我再找个金发，你这个金发就能等号的逻辑实在太蠢了。
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 386#       发表于 2020-9-24 15:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48837013&amp;ptid=1566822" target="_blank">ziyo 发表于 2020-9-24 14:43</a>
@@ -7917,16 +5432,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 是啊，我跟着就把丸户的访谈贴上，还红字标出金发角色这部分，做得无懈可击，丸户显然不蠢，那就只可能你蠢
 
 
-
-
-
-
-
 -----
 
 ####  米水  
 ##### 387#       发表于 2020-9-24 15:04
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
@@ -7935,16 +5444,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 —— 来自 smartisan OS105, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.2
 
 
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 388#       发表于 2020-9-24 15:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48837214&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 15:00</a>
@@ -7953,16 +5456,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 <img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">这段访谈哪里说了英梨梨=雪菜，丸户自己还说有系统组合，你不要看到金发就高潮，无视人物在故事中的行为和选择强行就等于
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 389#       发表于 2020-9-24 15:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48837306&amp;ptid=1566822" target="_blank">ziyo 发表于 2020-9-24 15:08</a>
@@ -7971,16 +5468,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 你再嚼舌头也改变不了丸户说系统是模板的下属分支，所以雪菜和英梨梨是同一模板这是铁打的事实，真可怜<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 390#       发表于 2020-9-24 15:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48837258&amp;ptid=1566822" target="_blank">米水 发表于 2020-9-24 15:04</a>
@@ -7992,16 +5483,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">虽然赢不了，还是可以接他业务的
 
 
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 391#       发表于 2020-9-24 15:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48837347&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 15:11</a>
@@ -8010,16 +5495,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 同一模板就划等号了，你帮丸户抄书呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  罗马教皇  
 ##### 392#       发表于 2020-9-24 15:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48837382&amp;ptid=1566822" target="_blank">ziyo 发表于 2020-9-24 15:15</a>
@@ -8028,16 +5507,10 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 呵呵，看来你只剩下复读打滚了，那请便吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 393#       发表于 2020-9-24 15:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48837423&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-24 15:19</a>
@@ -8046,24 +5519,13 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">就你这车轱辘还认为别人打滚，真是浪费时间
 
 
-
-
-
-
-
 -----
 
 ####  rainknine  
 ##### 394#       发表于 2020-9-24 15:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">战争，永远不会停息
-
-
-
-
-
 
 
 -----
@@ -8072,14 +5534,7 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 ##### 395#       发表于 2020-9-25 08:59
 
 
-
-
 问问，七册影院特典的after小说有资源吗？
-
-
-
-
-
 
 
 -----
@@ -8088,23 +5543,16 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 ##### 396#       发表于 2020-9-25 09:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48845990&amp;ptid=1566822" target="_blank">乃木坂裕人 发表于 2020-9-25 08:59</a>
 
 问问，七册影院特典的after小说有资源吗？</blockquote>
 [https://zhanghd.tech/saenai-movie-novelty/](https://zhanghd.tech/saenai-movie-novelty/)<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">这里有
 
 
-
-
-
-
-
 -----
 
 ####  一色いろは  
 ##### 397#       发表于 2020-9-25 10:17
-
 
 
  本帖最后由 一色いろは 于 2020-9-25 10:41 编辑 
@@ -8124,26 +5572,15 @@ err太惨了点，“曾经喜欢过吗”那里打住不好吗，还补那么�
 最后学姐恶搞剧本太CODA了,丸户老贼绝壁是故意的
 
 
-
-
-
-
-
 -----
 
 ####  乃木坂裕人  
 ##### 398#       发表于 2020-9-25 10:20
 
 
-
 <blockquote>妮贝雅 发表于 2020-9-25 09:22
 https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 感谢！
-
-
-
-
-
 
 
 -----
@@ -8152,16 +5589,10 @@ https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 ##### 399#       发表于 2020-9-25 10:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48827864&amp;ptid=1566822" target="_blank">Icskari 发表于 2020-9-23 17:35</a>
 
 我突然发现，其实安艺伦也就是丸户史明的的自我投射啊，还挺爽文取向的</blockquote>
 就是啊，可惜丸户不是男主这种大帅比
-
-
-
-
-
 
 
 -----
@@ -8170,15 +5601,8 @@ https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 ##### 400#       发表于 2020-9-25 11:36
 
 
-
-
 虽然本来就是整部片子的主题，最后的部分真是理想到让单身狗爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 不过印象中惠在被伦也放鸽子之后还说过一次不需要“转”的话，我觉得这句话是不输给“无法成为你的第一女主角”的感情高潮点。
-
-
-
-
-
 
 
 -----
@@ -8187,14 +5611,7 @@ https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 ##### 401#       发表于 2020-9-25 11:41
 
 
-
-
 从始至终感觉对加藤惠最有威胁的还是美智留，是丸户对美咲和依绪的残念
-
-
-
-
-
 
 
 -----
@@ -8203,23 +5620,15 @@ https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 ##### 402#       发表于 2020-9-25 13:28
 
 
-
-
 安艺小说设定里是帅哥吗。
 
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
-
-
-
-
-
 
 
 -----
 
 ####  米兰球迷  
 ##### 403#       发表于 2020-9-25 13:32
-
 
 
 <blockquote>zichuann 发表于 2020-9-25 13:28
@@ -8230,25 +5639,13 @@ https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 隐藏帅哥
 
 
-
-
-
-
-
 -----
 
 ####  秋开  
 ##### 404#       发表于 2020-9-25 13:39
 
 
-
-
 颜狗的胜利
-
-
-
-
-
 
 
 -----
@@ -8257,15 +5654,8 @@ https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 ##### 405#       发表于 2020-9-25 15:40
 
 
-
-
 伦也动画人设戴了眼镜出戏，不戴眼镜也出戏…
 这就是a1男主脸么
-
-
-
-
-
 
 
 -----
@@ -8274,16 +5664,10 @@ https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 ##### 406#       发表于 2020-9-25 17:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48849506&amp;ptid=1566822" target="_blank">米兰球迷 发表于 2020-9-25 13:32</a>
 隐藏帅哥</blockquote>
 但是一直没有明确透露出是隐藏富二代
 总觉得不合情理
-
-
-
-
-
 
 
 -----
@@ -8292,14 +5676,7 @@ https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 ##### 407#       发表于 2020-9-27 12:07
 
 
-
-
 剧情版看完了，感觉一般般，实际从第二季就开始越发没感觉了……第一季确实好顶赞，大概因为后来套路化了吧
-
-
-
-
-
 
 
 -----
@@ -8308,23 +5685,15 @@ https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 ##### 408#       发表于 2020-9-27 13:52
 
 
-
-
 昨天刚看完剧场版，是不是删了最后学姐和伦也的戏份啊，小说最终卷刚出的时候看的记不太清了<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi MIX 3, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
 
 ####  锯子万藏  
 ##### 409#       发表于 2020-9-27 14:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48872471&amp;ptid=1566822" target="_blank">Dreki 发表于 2020-09-27 13:52:21</a>
@@ -8337,16 +5706,10 @@ https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 410#       发表于 2020-9-27 15:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48852442&amp;ptid=1566822" target="_blank">三得利乌龙茶 发表于 2020-9-25 17:45</a>
@@ -8357,16 +5720,10 @@ https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 设定上也不是富二代, 不过实际嘛...
 
 
-
-
-
-
-
 -----
 
 ####  moooooonlight  
 ##### 411#       发表于 2020-9-27 15:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48873191&amp;ptid=1566822" target="_blank">midearth 发表于 2020-09-27 15:00:16</a>
@@ -8375,16 +5732,10 @@ https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  mchan  
 ##### 412#       发表于 2020-9-27 18:26
-
 
 
 <blockquote>三得利乌龙茶 发表于 2020-9-25 17:45
@@ -8394,16 +5745,10 @@ https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 伦也最初打了不知多少份工。至少家庭餐厅和送报纸是明示的。博客能做到轻小说造王者的水平，可以用一篇文章整个造就霞诗子的事业，流量和广告收入想必也不小。到后面帮红坂朱音忙之后直接被朱音开了天价酬劳，吓到伦也非要叫朱音划掉两个零。
 
 
-
-
-
-
-
 -----
 
 ####  mchan  
 ##### 413#       发表于 2020-9-27 18:31
-
 
 
 <blockquote>moooooonlight 发表于 2020-9-27 15:58
@@ -8414,16 +5759,10 @@ https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 游戏收入到不一定了。伦也是给合作者开工资的，游戏卖掉，他给团队发了工资，自己剩下的不会太多。
 
 
-
-
-
-
-
 -----
 
 ####  mchan  
 ##### 414#       发表于 2020-9-27 18:32
-
 
 
  本帖最后由 mchan 于 2020-9-27 18:38 编辑 
@@ -8433,16 +5772,10 @@ https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 话说惠软社招人吗？
 
 
-
-
-
-
-
 -----
 
 ####  moooooonlight  
 ##### 415#       发表于 2020-9-27 18:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48875413&amp;ptid=1566822" target="_blank">mchan 发表于 2020-09-27 18:31:24</a>
@@ -8453,16 +5786,10 @@ https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  mchan  
 ##### 416#       发表于 2020-9-27 18:58
-
 
 
 <blockquote>moooooonlight 发表于 2020-9-27 18:43
@@ -8482,32 +5809,19 @@ https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 不过看剧场版特典，后日谈里面的两套东京池袋的一室户公寓（一套是安艺夫妇家，一套是惠软社办公室）伦也可以分别用自己和会社的存款买下，说明后面业务是越做越大了。
 
 
-
-
-
-
-
 -----
 
 ####  Acatv  
 ##### 417#       发表于 2020-9-27 19:21
 
 
-
-
 说是株式会社……以惠软的规模，除了gal还能做什么游戏啊，他们甚至没有一个正经程序员<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  秋开  
 ##### 418#       发表于 2020-9-27 20:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48875830&amp;ptid=1566822" target="_blank">Acatv 发表于 2020-9-27 19:21</a>
@@ -8517,16 +5831,10 @@ https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 —— 来自 HUAWEI EVA-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  mchan  
 ##### 419#       发表于 2020-9-27 21:06
-
 
 
 <blockquote>Acatv 发表于 2020-9-27 19:21
@@ -8537,16 +5845,10 @@ https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 第一季里面伦也其实是软件开发，到了第二季第二个项目直接沿用了上个项目留下来的祖传代码，伦也才能安心的写剧本。
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 420#       发表于 2020-9-27 21:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48875830&amp;ptid=1566822" target="_blank">Acatv 发表于 2020-9-27 19:21</a>
@@ -8555,16 +5857,10 @@ https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 除了gal他也不想做别的啊.
 
 
-
-
-
-
-
 -----
 
 ####  三得利乌龙茶  
 ##### 421#       发表于 2020-9-27 21:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48877627&amp;ptid=1566822" target="_blank">midearth 发表于 2020-9-27 21:43</a>
@@ -8573,17 +5869,10 @@ https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 可以做手游发大财啊
 
 
-
-
-
-
-
 -----
 
 ####  whzfjk  
 ##### 422#       发表于 2020-9-27 21:57
-
-
 
 
 那不是 Gal 引擎么，代码也就是业务逻辑脚本的程度吧。
@@ -8592,16 +5881,10 @@ https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 其实有种作者是 gal 出身就把 gal 看作天的感觉。哪怕是作为惠软对手的知名 RPG 项目，剧内展现出来的实现规格，都有种商业胡吹的感觉。
 
 
-
-
-
-
-
 -----
 
 ####  orangeth  
 ##### 423#       发表于 2020-9-27 22:05
-
 
 
  本帖最后由 orangeth 于 2020-9-27 22:06 编辑 
@@ -8614,25 +5897,13 @@ https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 而且这个同人版《FSN》还不是《FSN》那种故事，而是个普通galgame故事
 
 
-
-
-
-
-
 -----
 
 ####  feizong  
 ##### 424#       发表于 2020-9-27 22:07
 
 
-
-
 并不是买了两套，都是租的吧，剧场版后面出的7篇短篇里有写
-
-
-
-
-
 
 
 -----
@@ -8641,15 +5912,9 @@ https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 ##### 425#       发表于 2020-9-27 22:10
 
 
-
 <blockquote>midearth 发表于 2020-9-27 21:43
 除了gal他也不想做别的啊.</blockquote>
 除非系统大革新以外，第一季伦也写的那个祖传代码可以一直沿用许许多多年。
-
-
-
-
-
 
 
 -----
@@ -8658,22 +5923,15 @@ https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 ##### 426#       发表于 2020-9-27 22:11
 
 
-
 <blockquote>feizong 发表于 2020-9-27 22:07
 并不是买了两套，都是租的吧，剧场版后面出的7篇短篇里有写</blockquote>
 是租的。手机发帖的时候没有看参考资料，记错了。
-
-
-
-
-
 
 
 -----
 
 ####  mchan  
 ##### 427#       发表于 2020-9-27 22:16
-
 
 
 <blockquote>orangeth 发表于 2020-9-27 22:05
@@ -8683,26 +5941,15 @@ https://zhanghd.tech/saenai-movie-novelty/这里有</blockquote>
 《白学》大战老任某 IP 吧？虽说惠软的蓝本是型月。
 
 
-
-
-
-
-
 -----
 
 ####  三得利乌龙茶  
 ##### 428#       发表于 2020-9-27 22:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48878027&amp;ptid=1566822" target="_blank">mchan 发表于 2020-9-27 22:16</a>
 《白学》大战老任某 IP 吧？虽说惠软的蓝本是型月。</blockquote>
 tm大战法老控吧
-
-
-
-
-
 
 
 -----
@@ -8711,14 +5958,7 @@ tm大战法老控吧
 ##### 429#       发表于 2020-9-27 22:56
 
 
-
-
 有人知道睿站版有没有阉割或者圣光吗
-
-
-
-
-
 
 
 -----
@@ -8727,24 +5967,16 @@ tm大战法老控吧
 ##### 430#       发表于 2020-9-27 23:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48878490&amp;ptid=1566822" target="_blank">朔方原的星 发表于 2020-9-27 22:56</a>
 
 有人知道睿站版有没有阉割或者圣光吗</blockquote>
 没阉割 有圣光（起雾）
 
 
-
-
-
-
-
 -----
 
 ####  moooooonlight  
 ##### 431#       发表于 2020-9-28 19:16
-
-
 
 
 假设全部女角要抢伦也的话是不是这样排胜率
@@ -8754,16 +5986,10 @@ tm大战法老控吧
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Acatv  
 ##### 432#       发表于 2020-9-28 19:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48887719&amp;ptid=1566822" target="_blank">moooooonlight 发表于 2020-9-28 19:16</a>
@@ -8776,33 +6002,20 @@ tm大战法老控吧
 真由至少是高配英梨梨，上限极高，正传里学姐也认为绝对不能让伦也跟真由见面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  rainknine  
 ##### 433#       发表于 2020-9-28 19:48
 
 
-
-
 动画版也删掉了gs2，大概是当初看的时候最喜欢的一卷了。
 不过毕竟不能让第二季结尾的时候惠和err还在冷战，那也没办法了
-
-
-
-
-
 
 
 -----
 
 ####  罗马教皇  
 ##### 434#       发表于 2020-9-28 21:18
-
 
 
  本帖最后由 罗马教皇 于 2020-9-28 21:26 编辑 
@@ -8850,16 +6063,10 @@ tm大战法老控吧
 最后，乐队三人组大概可以跟着美智留喝汤，美智留明确说伦也可以上乐队成员，相比之下，加藤惠显然不许伦也上社团成员。
 
 
-
-
-
-
-
 -----
 
 ####  Acatv  
 ##### 435#       发表于 2020-9-28 22:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48888856&amp;ptid=1566822" target="_blank">罗马教皇 发表于 2020-9-28 21:18</a>
@@ -8870,32 +6077,19 @@ tm大战法老控吧
 您说的对
 
 
-
-
-
-
-
 -----
 
 ####  zakki  
 ##### 436#       发表于 2020-9-29 16:48
 
 
-
-
 虽然删了很多很多的剧情，让剧情逻辑不是那么通顺，但最后实在太甜了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  mchan  
 ##### 437#       发表于 2020-9-29 17:12
-
 
 
 <blockquote>rainknine 发表于 2020-9-28 19:48
@@ -8905,27 +6099,15 @@ tm大战法老控吧
 惠梨和好其实是动画版和原作的一个重大差异：动画版惠梨和好被大幅提前了。
 
 
-
-
-
-
-
 -----
 
 ####  szzyf7  
 ##### 438#       发表于 2020-9-29 17:29
 
 
-
-
 看弹幕说最后主角群的造型都是参考实际声优的？还有最后一幕应该是录音棚杀青实际声音吧
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -8934,14 +6116,7 @@ tm大战法老控吧
 ##### 439#       发表于 2020-10-1 16:27
 
 
-
-
 看完了，英梨梨好惨。不过我觉得包括学姐在内，这两个人也是各种作。只能说求仁得仁。
-
-
-
-
-
 
 
 -----
@@ -8950,22 +6125,13 @@ tm大战法老控吧
 ##### 440#       发表于 2020-10-1 17:32
 
 
-
-
 看完剧场版，系列整体观感就是一群美少女在争夺一个不可回收垃圾
-
-
-
-
-
 
 
 -----
 
 ####  Noth1ng  
 ##### 441#       发表于 2020-10-8 02:11
-
-
 
 
 伪结局：5个美女一生都围着自己转的“ZW”。*（借配角之口将整部作品定性为ZW，可谓恰如其分）
@@ -8975,16 +6141,10 @@ tm大战法老控吧
 定论：《路人女主》是一部披着媚宅外衣的批判现实主义作品
 
 
-
-
-
-
-
 -----
 
 ####  btn5754  
 ##### 442#       发表于 2020-10-8 14:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48983252&amp;ptid=1566822" target="_blank">Noth1ng 发表于 2020-10-8 02:11</a>
@@ -8995,23 +6155,13 @@ tm大战法老控吧
 但是真结局的社畜事件是为了触发学姐线啊，你见过哪个社畜梦想破灭后还有大胸黑长直倒贴学姐来拯救的，这不也是死宅的XX吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  404489039  
 ##### 443#       发表于 2020-10-8 16:54
 
 
-
-
 看完了，太甜了惠太棒了。酸死我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
 
 
                                    

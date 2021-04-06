@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2020-02-11 21:30** 
 
 
-
 -----
 
 ####  dcatzz  
 ##### 3001#       发表于 2019-4-18 13:10
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">狐狸b站有40万关注直播好像一般 是直播少还是路人多呢
@@ -14,16 +12,10 @@
 —— 来自 samsung SM-G9730, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  tiro_finale  
 ##### 3002#       发表于 2019-4-18 13:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43352378&amp;ptid=1823171" target="_blank">dcatzz 发表于 2019-4-17 21:10</a>
@@ -41,26 +33,15 @@
 和茄子一起看片都搞到第二回了，只能说她越来越随心所欲了
 
 
-
-
-
-
-
 -----
 
 ####  SchwarzeKatze  
 ##### 3003#       发表于 2019-4-18 13:32
 
 
-
  本帖最后由 SchwarzeKatze 于 2019-4-18 13:34 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">印象里狐狸除了工商就没B限过吧，整个holo除了阿夸外对B限的理解都是收菜，没一个像静凛那样真想着服务中国观众的
-
-
-
-
-
 
 
 -----
@@ -69,21 +50,13 @@
 ##### 3004#       发表于 2019-4-18 13:32
 
 
-
-
 狐狸悟道了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  dcatzz  
 ##### 3005#       发表于 2019-4-18 13:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43352595&amp;ptid=1823171" target="_blank">tiro_finale 发表于 2019-4-18 13:24</a>
@@ -95,16 +68,10 @@
 —— 来自 samsung SM-G9730, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  jesperliu  
 ##### 3006#       发表于 2019-4-18 13:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43352595&amp;ptid=1823171" target="_blank">tiro_finale 发表于 2019-04-18 13:24:00</a>
@@ -115,16 +82,10 @@
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  dcatzz  
 ##### 3007#       发表于 2019-4-18 13:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43352729&amp;ptid=1823171" target="_blank">SchwarzeKatze 发表于 2019-4-18 13:32</a>
@@ -135,16 +96,10 @@
 —— 来自 samsung SM-G9730, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  SchwarzeKatze  
 ##### 3008#       发表于 2019-4-18 13:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43352762&amp;ptid=1823171" target="_blank">jesperliu 发表于 2019-4-18 13:35</a>
@@ -156,27 +111,15 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看描述容易，试试追直播
 
 
-
-
-
-
-
 -----
 
 ####  椎名mahuyo  
 ##### 3009#       发表于 2019-4-18 13:38
 
 
-
-
 除了夸哥，就夏哥b限比较认真了，收获不少，其他几个感觉就没这么上心了
 
 —— 来自 smartisan OE106, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -185,20 +128,13 @@
 ##### 3010#       发表于 2019-4-18 13:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 老妖狐本来就挺随心所欲的，你看她十万纪念一个人在那里画画，对外联动这方面好像是扔给夏哥了，对内团建丢给三才，她只要接接工商就可以了
-
-
-
-
-
 
 
 -----
 
 ####  SchwarzeKatze  
 ##### 3011#       发表于 2019-4-18 13:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43352790&amp;ptid=1823171" target="_blank">dcatzz 发表于 2019-4-18 13:37</a>
@@ -215,16 +151,10 @@
 当然三下那个另说......
 
 
-
-
-
-
-
 -----
 
 ####  dcatzz  
 ##### 3012#       发表于 2019-4-18 13:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43352904&amp;ptid=1823171" target="_blank">SchwarzeKatze 发表于 2019-4-18 13:44</a>
@@ -237,16 +167,10 @@
 —— 来自 samsung SM-G9730, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  SchwarzeKatze  
 ##### 3013#       发表于 2019-4-18 13:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43352925&amp;ptid=1823171" target="_blank">dcatzz 发表于 2019-4-18 13:46</a>
@@ -258,25 +182,13 @@
 椎名唯华，有兴趣可以补一下她那个奇葩B限<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Igarashi  
 ##### 3014#       发表于 2019-4-18 13:47
 
 
-
-
 接工商多好啊，只要准备一下播完了就有钱拿，吃sc还要看死宅观众老爷脸色
-
-
-
-
-
 
 
 -----
@@ -285,20 +197,13 @@
 ##### 3015#       发表于 2019-4-18 13:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要说观众参与型直播的话三下那次的确是相当的观众参与互动了
-
-
-
-
-
 
 
 -----
 
 ####  dcatzz  
 ##### 3016#       发表于 2019-4-18 13:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43352934&amp;ptid=1823171" target="_blank">SchwarzeKatze 发表于 2019-4-18 13:47</a>
@@ -308,17 +213,10 @@
 —— 来自 samsung SM-G9730, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  ScarletMoon  
 ##### 3017#       发表于 2019-4-18 13:51
-
-
 
 
 冲国这边税好像非常非常高啊
@@ -326,16 +224,10 @@
 超过5万以后要40%税，企业实际到手的只有1*50%*（1-40%）=30%？
 
 
-
-
-
-
-
 -----
 
 ####  tiro_finale  
 ##### 3018#       发表于 2019-4-18 13:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43352737&amp;ptid=1823171" target="_blank">dcatzz 发表于 2019-4-17 21:33</a>
@@ -355,16 +247,10 @@
 不过觉得有必要搞一次认真点的B限，巩固一下人气
 
 
-
-
-
-
-
 -----
 
 ####  free  
 ##### 3019#       发表于 2019-4-18 13:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43353054&amp;ptid=1823171" target="_blank">tiro_finale 发表于 2019-4-18 13:56</a>
@@ -373,16 +259,10 @@
 这是洗粉呀，看绿帽坛的holo楼里还一堆表示看狐狸玩MC就觉得安心的呢
 
 
-
-
-
-
-
 -----
 
 ####  dcatzz  
 ##### 3020#       发表于 2019-4-18 14:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43353054&amp;ptid=1823171" target="_blank">tiro_finale 发表于 2019-4-18 13:56</a>
@@ -393,17 +273,10 @@
 —— 来自 samsung SM-G9730, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  被窝星人  
 ##### 3021#       发表于 2019-4-18 14:01
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/18/140059iozq1bb4wl2bw1fo.jpg" referrerpolicy="no-referrer">
@@ -416,23 +289,13 @@
 2019-4-18 14:00 上传
 
 
-
-
-
-
 万圣节音声复刻
 
 可否让我以为是岩永觉得彩虹社撑不到今年万圣节了？
 
 
-
-
-
-
 Screenshot_20190418-135113_Twitter.jpg
 (715.7 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -441,24 +304,7 @@ Screenshot_20190418-135113_Twitter.jpg
 2019-4-18 14:00 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/18/140036g4fgf5sfu5fimxgq.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -467,22 +313,13 @@ Screenshot_20190418-135113_Twitter.jpg
 ##### 3022#       发表于 2019-4-18 14:02
 
 
-
-
 老狐狸累了 我估摸着可能真成管理层了 前几天看她频道也是摸的不行 活在别人的频道
-
-
-
-
-
 
 
 -----
 
 ####  冰寒之月  
 ##### 3023#       发表于 2019-4-18 14:07
-
-
 
 
 说起来前几天b站限定三才的直播也挺努力的
@@ -492,25 +329,13 @@ Screenshot_20190418-135113_Twitter.jpg
 感觉她再多来几次认真点的b限唱歌说不定中国核心粉能涨到和夏哥阿凛差不多人数
 
 
-
-
-
-
-
 -----
 
 ####  free  
 ##### 3024#       发表于 2019-4-18 14:08
 
 
-
-
 他holo最会演的一个就是恐怖游戏大师，上个四月一日之家的节目，还不忘了说一花姐这年龄设定25岁对我来说太大了，不好演。相比没播了几次就撕皮被人称为腹黑狐的狐狸这种，绿帽坛的holo楼里到现在还一大堆真心实意的觉得她就是yagoo从路边拐来的傻JK呢，只能说他holo这原型机真不是白给的......
-
-
-
-
-
 
 
 -----
@@ -519,24 +344,16 @@ Screenshot_20190418-135113_Twitter.jpg
 ##### 3025#       发表于 2019-4-18 14:10
 
 
-
-
 少主简直是工具人之鉴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">盘活holo之后更虚无了
 这么一想是历史的必然也说不定<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 —— 来自 samsung SM-G9730, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  午前二时野猫  
 ##### 3026#       发表于 2019-4-18 14:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43353138&amp;ptid=1823171" target="_blank">被窝星人 发表于 2019-4-18 14:01</a>
@@ -547,16 +364,10 @@ Screenshot_20190418-135113_Twitter.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">遗憾，记得按照之前dola直播里的说法是有观众反应想要复刻音声，然后说让人都去和本社反应，人够多的话会复刻的。
 
 
-
-
-
-
-
 -----
 
 ####  午前二时野猫  
 ##### 3027#       发表于 2019-4-18 14:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43353225&amp;ptid=1823171" target="_blank">free 发表于 2019-4-18 14:08</a>
@@ -565,32 +376,19 @@ Screenshot_20190418-135113_Twitter.jpg
 和drn一样的，天启不到里面的人那就一直是JK。
 
 
-
-
-
-
-
 -----
 
 ####  Igarashi  
 ##### 3028#       发表于 2019-4-18 14:14
 
 
-
-
 自由老哥这是绿帽坛杏箱推anti啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  童田明治  
 ##### 3029#       发表于 2019-4-18 14:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43353138&amp;ptid=1823171" target="_blank">被窝星人 发表于 2019-04-18 14:01:29</a>
@@ -602,16 +400,10 @@ Screenshot_20190418-135113_Twitter.jpg
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  tiro_finale  
 ##### 3030#       发表于 2019-4-18 14:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43353225&amp;ptid=1823171" target="_blank">free 发表于 2019-4-17 22:08</a>
@@ -626,16 +418,10 @@ Screenshot_20190418-135113_Twitter.jpg
 你说这么一个白板角色，如果年龄还大，那找她是图什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cxj649  
 ##### 3031#       发表于 2019-4-18 14:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43353225&amp;ptid=1823171" target="_blank">free 发表于 2019-4-18 14:08</a>
@@ -644,16 +430,10 @@ Screenshot_20190418-135113_Twitter.jpg
 去年这时候上位势人狼联动，空妈表现精得很
 
 
-
-
-
-
-
 -----
 
 ####  夢月ロア  
 ##### 3032#       发表于 2019-4-18 14:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43353341&amp;ptid=1823171" target="_blank">童田明治 发表于 2019-4-18 14:15</a>
@@ -664,33 +444,19 @@ Screenshot_20190418-135113_Twitter.jpg
 ロアも一緒にハロウィンボイス録りたいのだ
 
 
-
-
-
-
-
 -----
 
 ####  宫藤芳佳  
 ##### 3033#       发表于 2019-4-18 14:18
 
 
-
-
 看早期空妈一路走过来的都不会觉得空妈是在演吧
-
-
-
-
-
 
 
 -----
 
 ####  魔术师梅丽  
 ##### 3034#       发表于 2019-4-18 14:21
-
-
 
 
 少主最近是自己播的也挺少，有种3D爽完了2DL索然无味的感觉。可能也是要给箱内空间？最近不少业务交给三才处理了
@@ -700,16 +466,10 @@ Screenshot_20190418-135113_Twitter.jpg
 得不到少主能量的当然只有去看空岛蘑菇，讲真的看蘑菇吸狐狸还真不错
 
 
-
-
-
-
-
 -----
 
 ####  free  
 ##### 3035#       发表于 2019-4-18 14:22
-
 
 
  本帖最后由 free 于 2019-4-18 14:25 编辑 
@@ -720,27 +480,15 @@ Screenshot_20190418-135113_Twitter.jpg
 哪天真要是特定出来她出道时候是真JK，我就给她打一笔最大的SC去。
 
 
-
-
-
-
-
 -----
 
 ####  poipanchao  
 ##### 3036#       发表于 2019-4-18 14:26
 
 
-
-
 首先得有破绽 
 
 我空妈看的少 要不大佬您说说她有啥破绽 空口就来空妈在演没啥说服力啊
-
-
-
-
-
 
 
 -----
@@ -749,14 +497,7 @@ Screenshot_20190418-135113_Twitter.jpg
 ##### 3037#       发表于 2019-4-18 14:28
 
 
-
-
 油管sc的上限是多少来着
-
-
-
-
-
 
 
 -----
@@ -765,16 +506,10 @@ Screenshot_20190418-135113_Twitter.jpg
 ##### 3038#       发表于 2019-4-18 14:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43353516&amp;ptid=1823171" target="_blank">kuhailz 发表于 2019-4-18 14:28</a>
 
 油管sc的上限是多少来着</blockquote>
 一天500刀
-
-
-
-
-
 
 
 -----
@@ -783,15 +518,9 @@ Screenshot_20190418-135113_Twitter.jpg
 ##### 3039#       发表于 2019-4-18 14:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">20+我信，30+真的有种图啥的感觉了，难道空妈是实质holo股东么，不然为啥不培养年轻的，非得搞个大龄素人
 
 —— 來自 samsung SM-N9500, Android 7.1.1上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -800,14 +529,7 @@ Screenshot_20190418-135113_Twitter.jpg
 ##### 3040#       发表于 2019-4-18 14:31
 
 
-
-
 空妈最多20+的JD之类，30+不太可能，不过阿委那时候30+推测也就因为宅知识过多而已
-
-
-
-
-
 
 
 -----
@@ -816,16 +538,10 @@ Screenshot_20190418-135113_Twitter.jpg
 ##### 3041#       发表于 2019-4-18 14:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43353446&amp;ptid=1823171" target="_blank">free 发表于 2019-4-18 14:22</a>
 
 虚则实之实则虚之，这种演到皮魂合一的是最厉害的，委员长没特定之前，不都觉得是30多岁的老宅女吗，相信空 ...</blockquote>
 阿委被推测30+说白了只是”宅宅相轻“。带有一定”对女性的偏见“的因素
-
-
-
-
-
 
 
 -----
@@ -834,23 +550,15 @@ Screenshot_20190418-135113_Twitter.jpg
 ##### 3042#       发表于 2019-4-18 14:44
 
 
-
-
 阿委雜談中聊的很多都是10年以上的老梗
 
 整天刷nico的小學生和大齡宅女肯定是後者可信度更高一些
-
-
-
-
-
 
 
 -----
 
 ####  Chia  
 ##### 3043#       发表于 2019-4-18 14:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43353745&amp;ptid=1823171" target="_blank">nicholas30 发表于 2019-4-18 14:44</a>
@@ -864,8 +572,6 @@ Screenshot_20190418-135113_Twitter.jpg
 優花鎖那都24
 
 
-
-
 <img src="https://img.saraba1st.com/forum/201904/18/144113pw1vmbfvf12kedwe.png" referrerpolicy="no-referrer">
 
 
@@ -876,24 +582,13 @@ Screenshot_20190418-135113_Twitter.jpg
 2019-4-18 14:41 上传
 
 
-
-
-
-
 像这个05年出道的，现在28
-
-
-
-
-
-
 
 
 -----
 
 ####  nicholas30  
 ##### 3044#       发表于 2019-4-18 14:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43353774&amp;ptid=1823171" target="_blank">Chia 发表于 2019-4-18 14:46</a>
@@ -907,16 +602,10 @@ nico當初就是提供一個給素人表現的平臺，自然很多JC，JK成名
 可是阿委10年前還是JS呢<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 3045#       发表于 2019-4-18 14:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43353941&amp;ptid=1823171" target="_blank">nicholas30 发表于 2019-4-18 14:55</a>
@@ -929,17 +618,10 @@ nico當初就是提供一個給素人表現的平臺，自然很多JC，JK成名
 她们两活动就接近10年了……
 
 
-
-
-
-
-
-
 -----
 
 ####  cxj649  
 ##### 3046#       发表于 2019-4-18 14:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43353745&amp;ptid=1823171" target="_blank">nicholas30 发表于 2019-4-18 14:44</a>
@@ -950,16 +632,10 @@ nico當初就是提供一個給素人表現的平臺，自然很多JC，JK成名
 N站早期一堆JCJK出道，即使小学生不可能，但中学生入宅也是正常，只不过阿宅自动忽略JCJK时期入宅可能（笑
 
 
-
-
-
-
-
 -----
 
 ####  激光2000  
 ##### 3047#       发表于 2019-4-18 15:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43353941&amp;ptid=1823171" target="_blank">nicholas30 发表于 2019-4-18 14:55</a>
@@ -970,25 +646,13 @@ nico當初就是提供一個給素人表現的平臺，自然很多JC，JK成名
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">JS又怎么了，现在上批站的小学生也不少，梗刷的也是飞起，等他们20多岁了，再提到这些梗不也是陈年老梗了，
 
 
-
-
-
-
-
 -----
 
 ####  free  
 ##### 3048#       发表于 2019-4-18 15:00
 
 
-
-
 你们不要觉得我这个是黑空妈啊，我的意思是这种皮魂合一才是对的，把自己的一部分性格特质（温柔母性）抽出来和皮结合，是真的把自己认真努力温柔的一面展示给观众看，而不是费心思去维持一个“设定”，这种才是没有破绽的更高境界，只是我不相信是真JK而已。其实不管她是17岁还是27都不影响我对她的观感，就算真是27，那么大龄女青年通过vtb重回17岁，捡起自己以前对音乐的爱好站在舞台上，这不是一个更有意思的故事么。
-
-
-
-
-
 
 
 -----
@@ -997,21 +661,13 @@ nico當初就是提供一個給素人表現的平臺，自然很多JC，JK成名
 ##### 3049#       发表于 2019-4-18 15:10
 
 
-
-
 nico有个极端的例子りりり  11年开始在nico活动   今年14岁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  tiro_finale  
 ##### 3050#       发表于 2019-4-18 15:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43354037&amp;ptid=1823171" target="_blank">free 发表于 2019-4-17 23:00</a>
@@ -1027,16 +683,10 @@ nico有个极端的例子りりり  11年开始在nico活动   今年14岁<i
 狐狸都能接受，还有什么好怕呢
 
 
-
-
-
-
-
 -----
 
 ####  free  
 ##### 3051#       发表于 2019-4-18 15:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43354220&amp;ptid=1823171" target="_blank">tiro_finale 发表于 2019-4-18 15:12</a>
@@ -1048,16 +698,10 @@ nico有个极端的例子りりり  11年开始在nico活动   今年14岁<i
 算了是不是JK也不重要了，都不会影响我对她的观感的，不过最早的JK组空葵YUA另外俩都30多了，想想要是真JK，和大葵这种大她一轮的能这么玩的一见如故也挺神奇的。
 
 
-
-
-
-
-
 -----
 
 ####  nicholas30  
 ##### 3052#       发表于 2019-4-18 15:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43354028&amp;ptid=1823171" target="_blank">激光2000 发表于 2019-4-18 15:00</a>
@@ -1066,16 +710,10 @@ JS又怎么了，现在上批站的小学生也不少，梗刷的也是飞起，
 這沒有可比性呢，10年前智能手機和pad的普及率哪有現在那麽高<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  空虚澄璃色  
 ##### 3053#       发表于 2019-4-18 15:38
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">隔壁真jk花谱都没这么高讨论度，歌系原罪。
@@ -1083,16 +721,10 @@ JS又怎么了，现在上批站的小学生也不少，梗刷的也是飞起，
 —— 来自 Xiaomi MIX 2, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
 
 
-
-
-
-
-
 -----
 
 ####  雨井绫  
 ##### 3054#       发表于 2019-4-18 15:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43354455&amp;ptid=1823171" target="_blank">nicholas30 发表于 2019-04-18 15:27:10</a>
@@ -1102,16 +734,10 @@ JS又怎么了，现在上批站的小学生也不少，梗刷的也是飞起，
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  激光2000  
 ##### 3055#       发表于 2019-4-18 15:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43354455&amp;ptid=1823171" target="_blank">nicholas30 发表于 2019-4-18 15:27</a>
@@ -1120,32 +746,19 @@ JS又怎么了，现在上批站的小学生也不少，梗刷的也是飞起，
 10年前11区的PC普及率差不多和现在的智能手机差不多吧，发达国家是这样的
 
 
-
-
-
-
-
 -----
 
 ####  zero_death  
 ##### 3056#       发表于 2019-4-18 15:59
 
 
-
-
 前面黑点不是会演么 让举例子怎么一转不是jk也能接受了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  noHentai  
 ##### 3057#       发表于 2019-4-18 16:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43354621&amp;ptid=1823171" target="_blank">空虚澄璃色 发表于 2019-4-18 15:38</a>
@@ -1157,25 +770,13 @@ JS又怎么了，现在上批站的小学生也不少，梗刷的也是飞起，
 花谱原来实锤中之人真JK？
 
 
-
-
-
-
-
 -----
 
 ####  vonkarajan  
 ##### 3058#       发表于 2019-4-18 16:01
 
 
-
-
 花谱是刚升上高中吧。
-
-
-
-
-
 
 
 -----
@@ -1184,22 +785,15 @@ JS又怎么了，现在上批站的小学生也不少，梗刷的也是飞起，
 ##### 3059#       发表于 2019-4-18 16:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43354936&amp;ptid=1823171" target="_blank">noHentai 发表于 2019-4-18 16:00</a>
 花谱原来实锤中之人真JK？</blockquote>
 一个月前还是JC呢
-
-
-
-
-
 
 
 -----
 
 ####  free  
 ##### 3060#       发表于 2019-4-18 16:03
-
 
 
  本帖最后由 free 于 2019-4-18 16:08 编辑 
@@ -1211,16 +805,10 @@ JS又怎么了，现在上批站的小学生也不少，梗刷的也是飞起，
 另外我就是喜欢黑绿帽坛的holo箱推小将，不过holo里的人我都挺喜欢的，空妈可以排到我喜欢的vtb前十吧，黑她干啥，她就是真27了还带着JK的心我更喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zero_death  
 ##### 3061#       发表于 2019-4-18 16:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43354985&amp;ptid=1823171" target="_blank">free 发表于 2019-4-18 16:03</a>
@@ -1229,32 +817,19 @@ JS又怎么了，现在上批站的小学生也不少，梗刷的也是飞起，
 也没人把设定当真啊 只不过你是我第一个看到说空妈最会演的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 3062#       发表于 2019-4-18 16:18
 
 
-
-
 年龄没什么感觉，初始性能倒是肉眼可见的低<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  qw945  
 ##### 3063#       发表于 2019-4-18 16:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43354621&amp;ptid=1823171" target="_blank">空虚澄璃色 发表于 2019-4-18 15:38</a>
@@ -1266,27 +841,15 @@ JS又怎么了，现在上批站的小学生也不少，梗刷的也是飞起，
 —— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  poipanchao  
 ##### 3064#       发表于 2019-4-18 16:25
 
 
-
-
 倒不是说你什么 你首先黑人家nga的holo推天真把空妈当真jk有点蠢 那么就是说你觉得演技才是真相 现在又在说不在意是不是演技的jk，但也没啥证据
 
 我个人觉得 这个逻辑 有点蠢
-
-
-
-
-
 
 
 -----
@@ -1295,16 +858,10 @@ JS又怎么了，现在上批站的小学生也不少，梗刷的也是飞起，
 ##### 3065#       发表于 2019-4-18 16:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43354949&amp;ptid=1823171" target="_blank">lhawp 发表于 2019-4-18 16:01</a>
 
 一个月前还是JC呢</blockquote>
 最近才刚关注花谱，原来角色和中之人竟然是同步的么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1313,24 +870,16 @@ JS又怎么了，现在上批站的小学生也不少，梗刷的也是飞起，
 ##### 3066#       发表于 2019-4-18 16:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43355209&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-18 00:18</a>
 
 年龄没什么感觉，初始性能倒是肉眼可见的低</blockquote>
 年龄方面影响判断最大的还是choco随口喊她そらちゃん，以及aqua被告诫之后依然会蹦そらちゃん，很难想象她会有24以上，往下就讲不太清了，既然性能低，估计值相应下调这样
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 3067#       发表于 2019-4-18 16:30
-
-
 
 
 不是歌系原罪，而是论年青的歌系远远轮不到圈内这些……
@@ -1340,25 +889,13 @@ JS又怎么了，现在上批站的小学生也不少，梗刷的也是飞起，
 [https://www.youtube.com/channel/UCLZ2RXLLVx0jAl0jxe7QzyQ/featured](https://www.youtube.com/channel/UCLZ2RXLLVx0jAl0jxe7QzyQ/featured)
 
 
-
-
-
-
-
 -----
 
 ####  Porsche  
 ##### 3068#       发表于 2019-4-18 16:32
 
 
-
-
 想想claris唱俺妹的时候才多大<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">，这还没算她们在nico开始投稿的时期
-
-
-
-
-
 
 
 -----
@@ -1367,15 +904,8 @@ JS又怎么了，现在上批站的小学生也不少，梗刷的也是飞起，
 ##### 3069#       发表于 2019-4-18 16:32
 
 
-
-
 歌姬要在bmlvr上登场了，这是要全息投影吗？
 <img src="https://ws1.sinaimg.cn/large/007GxOrjly1g26vcyyaetj30u01rce4z.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1384,13 +914,7 @@ JS又怎么了，现在上批站的小学生也不少，梗刷的也是飞起，
 ##### 3070#       发表于 2019-4-18 16:34
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 水桥舞唱神样家族OPED的时候也才14岁来着
-
-
-
-
-
 
 
 -----
@@ -1399,17 +923,10 @@ JS又怎么了，现在上批站的小学生也不少，梗刷的也是飞起，
 ##### 3071#       发表于 2019-4-18 16:35
 
 
-
 [https://twitter.com/yuzukichococh/status/1118765450798624769](https://twitter.com/yuzukichococh/status/1118765450798624769)
 
 
 延期...
-
-
-
-
-
-
 
 
 -----
@@ -1418,23 +935,16 @@ JS又怎么了，现在上批站的小学生也不少，梗刷的也是飞起，
 ##### 3072#       发表于 2019-4-18 16:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43355411&amp;ptid=1823171" target="_blank">SevenYuan23 发表于 2019-4-18 16:32</a>
 歌姬要在bmlvr上登场了，这是要全息投影吗？</blockquote>
 就一个请求，别播片<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 前几天播片就算了，还要把之前说话的场景弄的和播片里一样哄骗小学生们以为真的在生唱
 
 
-
-
-
-
-
 -----
 
 ####  free  
 ##### 3073#       发表于 2019-4-18 16:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43355299&amp;ptid=1823171" target="_blank">poipanchao 发表于 2019-4-18 16:25</a>
@@ -1446,33 +956,19 @@ JS又怎么了，现在上批站的小学生也不少，梗刷的也是飞起，
 不过皮的设定就是设定，不能说相性看着好就当真了，就像修女设定是从小给教会收养的孤儿，没特定前你相信吗，真要入戏当真了，特定出来又喷就没意思了，绿帽坛的小将就傻在没明白不管是AI精灵魔法师外星人兽娘......还是JK都是皮的设定，既然前者当不得真，后者也就看个乐呵，只能说空妈这皮和魂相性确实好罢了。
 
 
-
-
-
-
-
 -----
 
 ####  lbb9432  
 ##### 3074#       发表于 2019-4-18 16:53
 
 
-
-
 讨论年龄没什么意义吧 经常拿来举例的阿委其实初期也是有大龄宅女RP的 不过貌似到了5月(特定之前)大家已经一致认为她是20代前半了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Chia  
 ##### 3075#       发表于 2019-4-18 17:06
-
-
 
 
 年龄暗含着肉体引力，很关键的
@@ -1486,17 +982,10 @@ JS又怎么了，现在上批站的小学生也不少，梗刷的也是飞起，
 基本上25岁+的人灵魂就不有趣了，所以年龄当然是要在意的
 
 
-
-
-
-
-
 -----
 
 ####  ScarletMoon  
 ##### 3076#       发表于 2019-4-18 17:07
-
-
 
 
 老爱又在转爱丽丝推了，是有多喜欢队士啊
@@ -1504,16 +993,10 @@ JS又怎么了，现在上批站的小学生也不少，梗刷的也是飞起，
 不知道老爱怎么看待gibara的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 3077#       发表于 2019-4-18 17:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43355452&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-18 16:35</a>
@@ -1525,26 +1008,15 @@ https://twitter.com/yuzukichococh/status/1118765450798624769
 自肃期间？
 
 
-
-
-
-
-
 -----
 
 ####  空虚澄璃色  
 ##### 3078#       发表于 2019-4-18 17:10
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我阴谋论下是昨天江哥看到对小红帽亚萨溪的世界醋意大发情不自抑又对自己低评价了。
 
 —— 来自 Xiaomi MIX 2, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
-
-
-
-
-
 
 
 -----
@@ -1553,16 +1025,10 @@ https://twitter.com/yuzukichococh/status/1118765450798624769
 ##### 3079#       发表于 2019-4-18 17:13
 
 
-
 [https://twitter.com/hololivetv/status/1118801417701953537](https://twitter.com/hololivetv/status/1118801417701953537)
 
 
 玩着玩着就联动上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1571,17 +1037,10 @@ https://twitter.com/yuzukichococh/status/1118765450798624769
 ##### 3080#       发表于 2019-4-18 17:14
 
 
-
-
 你委真不是素人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 家庭环境、当过导演拍过电影，大学也算是对口专业，和那种声优速成班里出来的完全不能比好么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1590,23 +1049,15 @@ https://twitter.com/yuzukichococh/status/1118765450798624769
 ##### 3081#       发表于 2019-4-18 17:14
 
 
-
-
 啊夸的宽额头为什么在v推特又带了一小波节奏呢，我觉得那剃度贼丑啊。
 
 —— 来自 Xiaomi MIX 2, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
-
-
-
-
-
 
 
 -----
 
 ####  北条早苗  
 ##### 3082#       发表于 2019-4-18 17:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43356067&amp;ptid=1823171" target="_blank">空虚澄璃色 发表于 2019-4-18 17:10</a>
@@ -1616,16 +1067,10 @@ https://twitter.com/yuzukichococh/status/1118765450798624769
 2虐！？
 
 
-
-
-
-
-
 -----
 
 ####  SchwarzeKatze  
 ##### 3083#       发表于 2019-4-18 17:16
-
 
 
  本帖最后由 SchwarzeKatze 于 2019-4-18 17:18 编辑 
@@ -1641,10 +1086,6 @@ https://twitter.com/yuzukichococh/status/1118765450798624769
 2019-4-18 17:18 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/18/171848w9ukv9ukk9os7hf9.png" referrerpolicy="no-referrer">
 
 
@@ -1655,23 +1096,13 @@ https://twitter.com/yuzukichococh/status/1118765450798624769
 2019-4-18 17:18 上传
 
 
-
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">三枝許せねぇ
-
-
-
-
-
 
 
 -----
 
 ####  北条早苗  
 ##### 3084#       发表于 2019-4-18 17:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43356104&amp;ptid=1823171" target="_blank">tiro_finale 发表于 2019-4-18 17:13</a>
@@ -1682,16 +1113,10 @@ https://twitter.com/hololivetv/status/1118801417701953537
 这展，にじ和ホロ的展台是对着的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  free  
 ##### 3085#       发表于 2019-4-18 17:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43356119&amp;ptid=1823171" target="_blank">バーチャルS1er 发表于 2019-4-18 17:14</a>
@@ -1703,16 +1128,10 @@ https://twitter.com/hololivetv/status/1118801417701953537
 毕竟vtb兴起也就不到两年，其实论当vtb大家都是素人，放到17年底没人说得清到底当vtb需要什么技能，听说夏哥那学校还要开vtb课呢，不知道都教些什么东西，声优学校出来的vtb真不一定比委员长这种搞得好就是了。
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 3086#       发表于 2019-4-18 17:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43356167&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-18 17:17</a>
@@ -1721,16 +1140,10 @@ https://twitter.com/hololivetv/status/1118801417701953537
 天下英雄，唯使君与操耳<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  薛定谔的小猫  
 ##### 3087#       发表于 2019-4-18 17:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43356259&amp;ptid=1823171" target="_blank">free 发表于 2019-4-18 17:23</a>
@@ -1738,17 +1151,10 @@ https://twitter.com/hololivetv/status/1118801417701953537
 草，那夏哥岂不是优秀毕业前辈了
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3088#       发表于 2019-4-18 17:30
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/18/173003zsstixxzvokr4vsx.jpg" referrerpolicy="no-referrer">
@@ -1761,21 +1167,10 @@ https://twitter.com/hololivetv/status/1118801417701953537
 2019-4-18 17:30 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  potwater  
 ##### 3089#       发表于 2019-4-18 17:30
-
 
 
 [https://twitter.com/nijisanji_app/status/1118806173220626432](https://twitter.com/nijisanji_app/status/1118806173220626432)
@@ -1800,17 +1195,10 @@ https://twitter.com/hololivetv/status/1118801417701953537
 舞元……没问题吗……
 
 
-
-
-
-
-
 -----
 
 ####  wingzerocos  
 ##### 3090#       发表于 2019-4-18 17:32
-
-
 
 
 偶像部和空妈的轻小说有试读了。
@@ -1818,16 +1206,10 @@ https://twitter.com/hololivetv/status/1118801417701953537
 偶像部那本的作者不知道会不会感到被appland背刺，部室的配置对不上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  椋千寻  
 ##### 3091#       发表于 2019-4-18 17:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43356427&amp;ptid=1823171" target="_blank">wingzerocos 发表于 2019-4-18 17:32</a>
@@ -1866,16 +1248,10 @@ https://twitter.com/hololivetv/status/1118801417701953537
 🐜ばあちゃる学園は女子校なんですけども…(すっとぼけ)
 
 
-
-
-
-
-
 -----
 
 ####  potwater  
 ##### 3092#       发表于 2019-4-18 17:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43356152&amp;ptid=1823171" target="_blank">SchwarzeKatze 发表于 2019-4-18 17:16</a>
@@ -1886,16 +1262,10 @@ https://twitter.com/hololivetv/status/1118801417701953537
 箱里缺这种男女歌联动。
 
 
-
-
-
-
-
 -----
 
 ####  Alphawalker  
 ##### 3093#       发表于 2019-4-18 17:39
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">三银盾种上位
@@ -1904,26 +1274,15 @@ mixup不是用来救底边的嘛<img src="https://static.saraba1st.com/image/smi
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  空虚澄璃色  
 ##### 3094#       发表于 2019-4-18 17:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">舞元和rion怎么是底边了嘛，不过holo能联动到的基本也只有种了。
 
 —— 来自 Xiaomi MIX 2, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
-
-
-
-
-
 
 
 -----
@@ -1932,14 +1291,7 @@ mixup不是用来救底边的嘛<img src="https://static.saraba1st.com/image/smi
 ##### 3095#       发表于 2019-4-18 17:43
 
 
-
-
 最近几期的mixup都有點水，需要上位來拉動人氣<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1948,15 +1300,9 @@ mixup不是用来救底边的嘛<img src="https://static.saraba1st.com/image/smi
 ##### 3096#       发表于 2019-4-18 17:47
 
 
-
  本帖最后由 tiro_finale 于 2019-4-18 01:49 编辑 
 
 少主刚刚说夏天要来上海参加活动，听她口气要本体过来<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1965,13 +1311,7 @@ mixup不是用来救底边的嘛<img src="https://static.saraba1st.com/image/smi
 ##### 3097#       发表于 2019-4-18 17:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mixup是报名制的
-
-
-
-
-
 
 
 -----
@@ -1980,16 +1320,10 @@ mixup不是用来救底边的嘛<img src="https://static.saraba1st.com/image/smi
 ##### 3098#       发表于 2019-4-18 17:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43356651&amp;ptid=1823171" target="_blank">tiro_finale 发表于 2019-4-18 17:47</a>
 
 少主刚刚说夏天要来上海参加活动，听她口气要本体过来</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">  virtual passport   不知道本尊来不来  BML？
-
-
-
-
-
 
 
 -----
@@ -1998,16 +1332,10 @@ mixup不是用来救底边的嘛<img src="https://static.saraba1st.com/image/smi
 ##### 3099#       发表于 2019-4-18 17:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43356651&amp;ptid=1823171" target="_blank">tiro_finale 发表于 2019-4-18 17:47</a>
 
 少主刚刚说夏天要来上海参加活动，听她口气要本体过来</blockquote>
 应该是BML吧   不过现在什么活动还需要本体移动的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2016,23 +1344,16 @@ mixup不是用来救底边的嘛<img src="https://static.saraba1st.com/image/smi
 ##### 3100#       发表于 2019-4-18 17:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43356678&amp;ptid=1823171" target="_blank">zaku11ku 发表于 2019-4-18 17:50</a>
 
 mixup是报名制的</blockquote>
 报名指名都有吧
 
 
-
-
-
-
-
 -----
 
 ####  SchwarzeKatze  
 ##### 3101#       发表于 2019-4-18 17:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43356503&amp;ptid=1823171" target="_blank">potwater 发表于 2019-4-18 17:37</a>
@@ -2043,13 +1364,7 @@ mixup是报名制的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">新人不懂，本来唱歌回就有debuff，再男女联动一般人不是躲都躲不及的吗？
 
 
-
 三枝今晚9点播，要是听了是个卡拉OK选手我就往死里黑
-
-
-
-
-
 
 
 -----
@@ -2058,16 +1373,10 @@ mixup是报名制的</blockquote>
 ##### 3102#       发表于 2019-4-18 17:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43356716&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-18 17:52</a>
 
 报名指名都有吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不是没人报名才会指名的么
-
-
-
-
-
 
 
 -----
@@ -2076,16 +1385,10 @@ mixup是报名制的</blockquote>
 ##### 3103#       发表于 2019-4-18 17:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43356746&amp;ptid=1823171" target="_blank">SchwarzeKatze 发表于 2019-4-18 17:54</a>
 
 新人不懂，本来唱歌回就有debuff，再男女联动一般人不是躲都躲不及的吗？</blockquote>
 他推上不是传了首吗，现在就可以决定了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2094,16 +1397,10 @@ mixup是报名制的</blockquote>
 ##### 3104#       发表于 2019-4-18 17:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43356746&amp;ptid=1823171" target="_blank">SchwarzeKatze 发表于 2019-4-18 17:54</a>
 
 新人不懂，本来唱歌回就有debuff，再男女联动一般人不是躲都躲不及的吗？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">首播有开过嗓
-
-
-
-
-
 
 
 -----
@@ -2112,16 +1409,10 @@ mixup是报名制的</blockquote>
 ##### 3105#       发表于 2019-4-18 17:58
 
 
-
 [https://www.youtube.com/watch?v=yBLsv9hnR00](https://www.youtube.com/watch?v=yBLsv9hnR00)
 
 
 虽然大概能猜到想干什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2130,14 +1421,8 @@ mixup是报名制的</blockquote>
 ##### 3106#       发表于 2019-4-18 17:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43356384&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-18 17:30</a></blockquote>
 4个不良女迫害无辜农民<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2146,23 +1431,16 @@ mixup是报名制的</blockquote>
 ##### 3107#       发表于 2019-4-18 18:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43356798&amp;ptid=1823171" target="_blank">午前二时野猫 发表于 2019-4-18 17:57</a>
 
 他推上不是传了首吗，现在就可以决定了</blockquote>
 投稿跟直播两码事，初配信唱过几句也不是认真唱的
 
 
-
-
-
-
-
 -----
 
 ####  SchwarzeKatze  
 ##### 3108#       发表于 2019-4-18 18:02
-
 
 
  本帖最后由 SchwarzeKatze 于 2019-4-18 18:03 编辑 
@@ -2175,25 +1453,13 @@ mixup是报名制的</blockquote>
 虽说我对男v人唱歌没什么兴趣<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  宫藤芳佳  
 ##### 3109#       发表于 2019-4-18 18:03
 
 
-
-
 唱功好坏不是很关键  关键是选曲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2202,20 +1468,13 @@ mixup是报名制的</blockquote>
 ##### 3110#       发表于 2019-4-18 18:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">男性只要迫害就对了
-
-
-
-
-
 
 
 -----
 
 ####  potwater  
 ##### 3111#       发表于 2019-4-18 18:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43356746&amp;ptid=1823171" target="_blank">SchwarzeKatze 发表于 2019-4-18 17:54</a>
@@ -2228,16 +1487,10 @@ mixup是报名制的</blockquote>
 看两人推特互动好几天前就开始了，都很热情自信的样子，说不定能是个很稀有的组合。
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3112#       发表于 2019-4-18 18:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43356792&amp;ptid=1823171" target="_blank">zaku11ku 发表于 2019-4-18 17:57</a>
@@ -2246,25 +1499,13 @@ mixup是报名制的</blockquote>
 也不一定是没人报名才指名吧  可能特地安排一个上位势也不奇怪
 
 
-
-
-
-
-
 -----
 
 ####  tiro_finale  
 ##### 3113#       发表于 2019-4-18 18:11
 
 
-
-
 第一次看皇女的solo，这BGM一直是这样的吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2273,15 +1514,9 @@ mixup是报名制的</blockquote>
 ##### 3114#       发表于 2019-4-18 18:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43356706&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-18 17:52</a>
 virtual passport   不知道本尊来不来  BML？</blockquote>
 bmlvr吧  战姬确定要上bmlvr了 感觉今年bmlvr要从v家变vtb了
-
-
-
-
-
 
 
 -----
@@ -2290,24 +1525,16 @@ bmlvr吧  战姬确定要上bmlvr了 感觉今年bmlvr要从v家变vtb了
 ##### 3115#       发表于 2019-4-18 18:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43356943&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-18 18:08</a>
 
 也不一定是没人报名才指名吧  可能特地安排一个上位势也不奇怪</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">都是凭直播口胡推断的，实际谁也不知道
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3116#       发表于 2019-4-18 18:30
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/18/182851h19xsxbs9ee14bcz.png" referrerpolicy="no-referrer">
@@ -2320,18 +1547,7 @@ bmlvr吧  战姬确定要上bmlvr了 感觉今年bmlvr要从v家变vtb了
 2019-4-18 18:28 上传
 
 
-
-
-
-
-
-
 还以为要化身狙神  进去看了下好像是消防员（）
-
-
-
-
-
 
 
 -----
@@ -2340,21 +1556,13 @@ bmlvr吧  战姬确定要上bmlvr了 感觉今年bmlvr要从v家变vtb了
 ##### 3117#       发表于 2019-4-18 18:31
 
 
-
-
 王女皇军确定
-
-
-
-
-
 
 
 -----
 
 ####  ScarletMoon  
 ##### 3118#       发表于 2019-4-18 18:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43357224&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-18 18:30</a>
@@ -2365,16 +1573,10 @@ bmlvr吧  战姬确定要上bmlvr了 感觉今年bmlvr要从v家变vtb了
 哈哥和龙妈做过，大福也做过，放送事故没有下文了
 
 
-
-
-
-
-
 -----
 
 ####  noHentai  
 ##### 3119#       发表于 2019-4-18 18:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43357242&amp;ptid=1823171" target="_blank">ScarletMoon 发表于 2019-4-18 18:31</a>
@@ -2383,26 +1585,15 @@ bmlvr吧  战姬确定要上bmlvr了 感觉今年bmlvr要从v家变vtb了
 之前和炼金深夜杂谈里就吹过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Porsche  
 ##### 3120#       发表于 2019-4-18 18:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43356714&amp;ptid=1823171" target="_blank">宫藤芳佳 发表于 2019-4-18 17:52</a>
 应该是BML吧   不过现在什么活动还需要本体移动的</blockquote>
 其实是比bml更早的一个活动<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2411,14 +1602,7 @@ bmlvr吧  战姬确定要上bmlvr了 感觉今年bmlvr要从v家变vtb了
 ##### 3121#       发表于 2019-4-18 19:04
 
 
-
-
 vtb的自走棋《我们那个局》快出现了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2427,22 +1611,14 @@ vtb的自走棋《我们那个局》快出现了<img src="https://static.saraba1
 ##### 3122#       发表于 2019-4-18 19:12
 
 
-
-
 加速进入次世代！
 [http://kikuru.net/members.html](http://kikuru.net/members.html)
-
-
-
-
-
 
 
 -----
 
 ####  神龙小生  
 ##### 3123#       发表于 2019-4-18 19:19
-
 
 
  本帖最后由 神龙小生 于 2019-4-18 19:26 编辑 
@@ -2458,16 +1634,10 @@ http://kikuru.net/members.html</blockquote>
 这网站是还没做好么？名字全部没有改。还是我手机乱码了文本显示不正常。
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 3124#       发表于 2019-4-18 19:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43357779&amp;ptid=1823171" target="_blank">ScarletMoon 发表于 2019-4-18 19:12</a>
@@ -2478,32 +1648,19 @@ http://kikuru.net/members.html</blockquote>
 全员都有一股YUA感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 3125#       发表于 2019-4-18 19:33
 
 
-
-
 yua现在太阿卡林了，玩具地位在国内也被小红帽取代了
-
-
-
-
-
 
 
 -----
 
 ####  神龙小生  
 ##### 3126#       发表于 2019-4-18 20:08
-
 
 
 <blockquote>神龙小生 发表于 2019-4-18 19:19
@@ -2517,24 +1674,13 @@ yua现在太阿卡林了，玩具地位在国内也被小红帽取代了
 西雅姐妹的西雅·菈米（妹）、西雅·薇薇（姐）
 
 
-
-
-
-
-
 -----
 
 ####  天堂懵懂人  
 ##### 3127#       发表于 2019-4-18 20:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">悲报 部长推特15W了<img src="https://s2.ax1x.com/2019/04/18/ESjrwt.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2543,14 +1689,7 @@ yua现在太阿卡林了，玩具地位在国内也被小红帽取代了
 ##### 3128#       发表于 2019-4-18 20:16
 
 
-
-
 晴翔在回归推里回复其他人唯独跳过信姬真是笑死我了
-
-
-
-
-
 
 
 -----
@@ -2559,14 +1698,7 @@ yua现在太阿卡林了，玩具地位在国内也被小红帽取代了
 ##### 3129#       发表于 2019-4-18 20:28
 
 
-
-
 1K7人看傻紫 no signal
-
-
-
-
-
 
 
 -----
@@ -2575,13 +1707,7 @@ yua现在太阿卡林了，玩具地位在国内也被小红帽取代了
 ##### 3130#       发表于 2019-4-18 20:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">重启大法并没有什么屌用
-
-
-
-
-
 
 
 -----
@@ -2590,14 +1716,7 @@ yua现在太阿卡林了，玩具地位在国内也被小红帽取代了
 ##### 3131#       发表于 2019-4-18 20:46
 
 
-
-
 hololive现在真是撞出特色了，夸哥马上又要搞突击<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2606,16 +1725,9 @@ hololive现在真是撞出特色了，夸哥马上又要搞突击<img src="https
 ##### 3132#       发表于 2019-4-18 21:01
 
 
-
-
 hh和holo确定参加BMLVR了
 <img src="https://img.nga.178.com/attachments/mon_201904/18/-zue37Q5-l2olXeZ3tT3cS19a-pj.png" referrerpolicy="no-referrer">
 <img src="https://img.nga.178.com/attachments/mon_201904/18/-zue37Q5-djt6XfZ48T3cS18i-pc.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2624,23 +1736,15 @@ hh和holo确定参加BMLVR了
 ##### 3133#       发表于 2019-4-18 21:02
 
 
-
 [https://youtu.be/ZyZcJjH_uiI](https://youtu.be/ZyZcJjH_uiI)
 
 三枝，歌配信
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3134#       发表于 2019-4-18 21:06
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/18/210500tuknfu800ndfquyu.png" referrerpolicy="no-referrer">
@@ -2653,17 +1757,7 @@ hh和holo确定参加BMLVR了
 2019-4-18 21:05 上传
 
 
-
-
-
-
-
 もう馬鹿にはできねぇか...ホロライブ...
-
-
-
-
-
 
 
 -----
@@ -2672,21 +1766,13 @@ hh和holo确定参加BMLVR了
 ##### 3135#       发表于 2019-4-18 21:06
 
 
-
-
 开场教主还行
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3136#       发表于 2019-4-18 21:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43359173&amp;ptid=1823171" target="_blank">potwater 发表于 2019-4-18 21:02</a>
@@ -2697,24 +1783,13 @@ https://youtu.be/ZyZcJjH_uiI
 高評価だな
 
 
-
-
-
-
-
 -----
 
 ####  TentacleSaya  
 ##### 3137#       发表于 2019-4-18 21:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 安堂今天B限点名赐死推荐了辐射76的粉丝 B社你看看你
-
-
-
-
-
 
 
 -----
@@ -2723,15 +1798,9 @@ https://youtu.be/ZyZcJjH_uiI
 ##### 3138#       发表于 2019-4-18 21:07
 
 
-
 [https://live.bilibili.com/21353871](https://live.bilibili.com/21353871)
 
 这是我看过的最没排面的b限了，气人值200不到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2740,21 +1809,13 @@ https://youtu.be/ZyZcJjH_uiI
 ##### 3139#       发表于 2019-4-18 21:08
 
 
-
-
 今天空妈这直播事故可以确定团队确实有人事变动了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3140#       发表于 2019-4-18 21:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43359225&amp;ptid=1823171" target="_blank">敖轩 发表于 2019-4-18 21:07</a>
@@ -2765,26 +1826,15 @@ https://live.bilibili.com/21353871
 这位我印象中..出道应该还没多久吧  这么急着中国进出吗
 
 
-
-
-
-
-
 -----
 
 ####  宫藤芳佳  
 ##### 3141#       发表于 2019-4-18 21:12
 
 
-
 [https://www.youtube.com/watch?v=hwkAWFw8njM](https://www.youtube.com/watch?v=hwkAWFw8njM)
 
 【黒AZKi】名も無き囚人 歌ってみた AZKi【初音ミク】
-
-
-
-
-
 
 
 -----
@@ -2793,13 +1843,7 @@ https://live.bilibili.com/21353871
 ##### 3142#       发表于 2019-4-18 21:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 重复了
-
-
-
-
-
 
 
 -----
@@ -2808,13 +1852,7 @@ https://live.bilibili.com/21353871
 ##### 3143#       发表于 2019-4-18 21:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没积累的B限并不会有什么效果
-
-
-
-
-
 
 
 -----
@@ -2823,16 +1861,10 @@ https://live.bilibili.com/21353871
 ##### 3144#       发表于 2019-4-18 21:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43359234&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-18 21:08</a>
 
 今天空妈这直播事故可以确定团队确实有人事变动了吧</blockquote>
 原型机就是干这个的嘛......其实也是好事
-
-
-
-
-
 
 
 -----
@@ -2841,14 +1873,7 @@ https://live.bilibili.com/21353871
 ##### 3145#       发表于 2019-4-18 21:18
 
 
-
-
 爱丽丝果然是在vroid捏人
-
-
-
-
-
 
 
 -----
@@ -2857,15 +1882,9 @@ https://live.bilibili.com/21353871
 ##### 3146#       发表于 2019-4-18 21:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43359156&amp;ptid=1823171" target="_blank">胧楼 发表于 2019-4-18 21:01</a>
 hh和holo确定参加BMLVR了</blockquote>
 哪里的消息啊，为啥我去b站也没看到<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2874,15 +1893,9 @@ hh和holo确定参加BMLVR了</blockquote>
 ##### 3147#       发表于 2019-4-18 21:21
 
 
-
  本帖最后由 敖轩 于 2019-4-18 21:26 编辑 
 
 夸哥要玩刺客信条大革命
-
-
-
-
-
 
 
 -----
@@ -2891,16 +1904,10 @@ hh和holo确定参加BMLVR了</blockquote>
 ##### 3148#       发表于 2019-4-18 21:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43359365&amp;ptid=1823171" target="_blank">水原薰 发表于 2019-4-18 21:20</a>
 
 哪里的消息啊，为啥我去b站也没看到</blockquote>
 因为删了
-
-
-
-
-
 
 
 -----
@@ -2909,15 +1916,9 @@ hh和holo确定参加BMLVR了</blockquote>
 ##### 3149#       发表于 2019-4-18 21:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43359408&amp;ptid=1823171" target="_blank">胧楼 发表于 2019-4-18 21:23</a>
 因为删了</blockquote>
 删了还行，我说为啥找不到…不知道是播片还是别的，要是本人来还真想去看看<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2926,14 +1927,7 @@ hh和holo确定参加BMLVR了</blockquote>
 ##### 3150#       发表于 2019-4-18 21:26
 
 
-
-
 看封面以为是启示录，很高兴的点进去发现是acu，点个高评价走了
-
-
-
-
-
 
 
 -----
@@ -2942,21 +1936,13 @@ hh和holo确定参加BMLVR了</blockquote>
 ##### 3151#       发表于 2019-4-18 21:28
 
 
-
-
 斗和什么时候开始的CF..? 一个小时前发推已经集到210W了..  
-
-
-
-
-
 
 
 -----
 
 ####  SchwarzeKatze  
 ##### 3152#       发表于 2019-4-18 21:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43359225&amp;ptid=1823171" target="_blank">敖轩 发表于 2019-4-18 21:07</a>
@@ -2967,16 +1953,10 @@ https://live.bilibili.com/21353871
 没记错的话好像是TONY残那个团的？发展方向就是日本人中国进出吧
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 3153#       发表于 2019-4-18 21:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43359427&amp;ptid=1823171" target="_blank">水原薰 发表于 2019-4-18 21:25</a>
@@ -2985,25 +1965,13 @@ https://live.bilibili.com/21353871
 [https://tieba.baidu.com/p/6105549420](https://tieba.baidu.com/p/6105549420)
 
 
-
-
-
-
-
 -----
 
 ####  SchwarzeKatze  
 ##### 3154#       发表于 2019-4-18 21:31
 
 
-
-
 另外我觉得我可以开始黑三枝了，一起唱你妹，三枝許せねぇ
-
-
-
-
-
 
 
 -----
@@ -3012,14 +1980,7 @@ https://live.bilibili.com/21353871
 ##### 3155#       发表于 2019-4-18 21:33
 
 
-
-
 直接向哈弟告白还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3028,16 +1989,10 @@ https://live.bilibili.com/21353871
 ##### 3156#       发表于 2019-4-18 21:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43359497&amp;ptid=1823171" target="_blank">宫藤芳佳 发表于 2019-4-18 21:33</a>
 
 直接向哈弟告白还行</blockquote>
 告白完直接唱情歌还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3046,14 +2001,7 @@ https://live.bilibili.com/21353871
 ##### 3157#       发表于 2019-4-18 21:34
 
 
-
-
 アキハルてぇてぇ(混乱)
-
-
-
-
-
 
 
 -----
@@ -3062,13 +2010,7 @@ https://live.bilibili.com/21353871
 ##### 3158#       发表于 2019-4-18 21:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">HH今晚的KUSO神祭第三次延迟了，好奇是哪里出了毛病
-
-
-
-
-
 
 
 -----
@@ -3077,21 +2019,13 @@ https://live.bilibili.com/21353871
 ##### 3159#       发表于 2019-4-18 21:42
 
 
-
-
 HH鸽了一个半小时评论聊了一个半小时咖喱
-
-
-
-
-
 
 
 -----
 
 ####  ScarletMoon  
 ##### 3160#       发表于 2019-4-18 21:52
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
@@ -3106,9 +2040,6 @@ HH鸽了一个半小时评论聊了一个半小时咖喱
 2019-4-18 21:51 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/18/215140j2sh6fffnufssxsu.jpg" referrerpolicy="no-referrer">
 
 
@@ -3119,30 +2050,13 @@ HH鸽了一个半小时评论聊了一个半小时咖喱
 2019-4-18 21:51 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 3161#       发表于 2019-4-18 21:52
 
 
-
-
 看了下之前的BMLVR 是V家播片演唱会  不知道这次请了VTB是不是还是全程播片
-
-
-
-
-
 
 
 -----
@@ -3151,14 +2065,7 @@ HH鸽了一个半小时评论聊了一个半小时咖喱
 ##### 3162#       发表于 2019-4-18 21:56
 
 
-
-
 b站有动捕摄影棚吗？
-
-
-
-
-
 
 
 -----
@@ -3167,16 +2074,10 @@ b站有动捕摄影棚吗？
 ##### 3163#       发表于 2019-4-18 21:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43359340&amp;ptid=1823171" target="_blank">free 发表于 2019-4-18 21:17</a>
 原型机就是干这个的嘛......其实也是好事</blockquote>
 这也不是第一次直播了，这次事故还暴露了电脑桌面，还好没有什么危险的信息
 交接工作做得不好啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3185,16 +2086,10 @@ b站有动捕摄影棚吗？
 ##### 3164#       发表于 2019-4-18 21:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43359726&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-18 21:56</a>
 
 b站有动捕摄影棚吗？</blockquote>
 租一个问题不大吧
-
-
-
-
-
 
 
 -----
@@ -3203,14 +2098,7 @@ b站有动捕摄影棚吗？</blockquote>
 ##### 3165#       发表于 2019-4-18 22:02
 
 
-
-
 面包狗收益化过了  两个新gamers都是飞速收益化
-
-
-
-
-
 
 
 -----
@@ -3219,14 +2107,7 @@ b站有动捕摄影棚吗？</blockquote>
 ##### 3166#       发表于 2019-4-18 22:04
 
 
-
-
 三枝这歌回真的挺不错的  有点喜欢他了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3235,14 +2116,7 @@ b站有动捕摄影棚吗？</blockquote>
 ##### 3167#       发表于 2019-4-18 22:05
 
 
-
-
 第一次看三枝，原来是情绪这么高的人啊，唱歌这用力的样子让人有点相信他是真的想上武道馆，订阅订阅<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3251,16 +2125,10 @@ b站有动捕摄影棚吗？</blockquote>
 ##### 3168#       发表于 2019-4-18 22:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43359429&amp;ptid=1823171" target="_blank">alllonginus 发表于 2019-4-18 21:26</a>
 
 看封面以为是启示录，很高兴的点进去发现是acu，点个高评价走了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这个关头玩ac除了大革命还有别的的选择吗？
-
-
-
-
-
 
 
 -----
@@ -3269,22 +2137,15 @@ b站有动捕摄影棚吗？</blockquote>
 ##### 3169#       发表于 2019-4-18 22:09
 
 
-
 [https://idols.events/#/event/121](https://idols.events/#/event/121)
 
 大概率播片了？
-
-
-
-
-
 
 
 -----
 
 ####  古战场亡魂  
 ##### 3170#       发表于 2019-4-18 22:09
-
 
 
  本帖最后由 古战场亡魂 于 2019-4-18 22:15 编辑 
@@ -3304,17 +2165,10 @@ steam上玩的一堆免费游戏。
 省钱省到家了。
 
 
-
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 3171#       发表于 2019-4-18 22:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43359854&amp;ptid=1823171" target="_blank">古战场亡魂 发表于 2019-4-18 22:09</a>
@@ -3327,26 +2181,14 @@ steam上玩的一堆免费游戏。
 为何
 
 
-
-
-
-
-
 -----
 
 ####  ヒトニナル  
 ##### 3172#       发表于 2019-4-18 22:14
 
 
-
-
 三枝说话真的很吵<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 和inui的合唱应该板上钉钉了，期待一个<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3355,20 +2197,13 @@ steam上玩的一堆免费游戏。
 ##### 3173#       发表于 2019-4-18 22:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">卧槽合唱，你们饶了我吧
-
-
-
-
-
 
 
 -----
 
 ####  cxj649  
 ##### 3174#       发表于 2019-4-18 22:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43359854&amp;ptid=1823171" target="_blank">古战场亡魂 发表于 2019-4-18 22:09</a>
@@ -3381,16 +2216,10 @@ steam上玩的一堆免费游戏。
 阿夸的钱不是被夸妈管了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 3175#       发表于 2019-4-18 22:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43359932&amp;ptid=1823171" target="_blank">cxj649 发表于 2019-4-18 22:17</a>
@@ -3399,25 +2228,13 @@ steam上玩的一堆免费游戏。
 所以阿夸才选了免费游戏啊
 
 
-
-
-
-
-
 -----
 
 ####  aisakahammer  
 ##### 3176#       发表于 2019-4-18 22:21
 
 
-
-
   震撼傻夸，这剧情
-
-
-
-
-
 
 
 -----
@@ -3426,14 +2243,7 @@ steam上玩的一堆免费游戏。
 ##### 3177#       发表于 2019-4-18 22:31
 
 
-
-
 8点150分HH终于开播了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3442,14 +2252,7 @@ steam上玩的一堆免费游戏。
 ##### 3178#       发表于 2019-4-18 22:34
 
 
-
-
 Pon子这个真假美猴王太草了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3458,14 +2261,7 @@ Pon子这个真假美猴王太草了<img src="https://static.saraba1st.com/image
 ##### 3179#       发表于 2019-4-18 22:35
 
 
-
-
 传统艺能闪退<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3474,21 +2270,13 @@ Pon子这个真假美猴王太草了<img src="https://static.saraba1st.com/image
 ##### 3180#       发表于 2019-4-18 22:41
 
 
-
-
 震撼傻夸
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3181#       发表于 2019-4-18 22:56
-
 
 
  本帖最后由 いつかの自分 于 2019-4-18 23:03 编辑 
@@ -3502,31 +2290,19 @@ Pon子这个真假美猴王太草了<img src="https://static.saraba1st.com/image
 便利屋 サポートワン  ！？  居然是工商...
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 3182#       发表于 2019-4-18 22:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">感觉阿夸玩这个比玩GTA激动的多啊
-
-
-
-
-
 
 
 -----
 
 ####  oznark  
 ##### 3183#       发表于 2019-4-18 23:02
-
 
 
 [https://www.youtube.com/watch?v=O6MWo0MmOgs](https://www.youtube.com/watch?v=O6MWo0MmOgs)
@@ -3537,17 +2313,10 @@ Pon子这个真假美猴王太草了<img src="https://static.saraba1st.com/image
 【雑談配信】活動再開！ただいまっ！【Vtuber】
 
 
-
-
-
-
-
 -----
 
 ####  free  
 ##### 3184#       发表于 2019-4-18 23:07
-
-
 
 
 今天一天我都没怎么黑他holo了，来编个段子黑一下。
@@ -3582,17 +2351,10 @@ Pon子这个真假美猴王太草了<img src="https://static.saraba1st.com/image
 葵：<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  age45  
 ##### 3185#       发表于 2019-4-18 23:09
-
 
 
 <blockquote>free 发表于 2019-4-18 23:07
@@ -3604,25 +2366,13 @@ Pon子这个真假美猴王太草了<img src="https://static.saraba1st.com/image
 比起黑holo不如说更像黑观众
 
 
-
-
-
-
-
 -----
 
 ####  aisakahammer  
 ##### 3186#       发表于 2019-4-18 23:16
 
 
-
-
  你这不是说B站观众不识货么
-
-
-
-
-
 
 
 -----
@@ -3631,23 +2381,16 @@ Pon子这个真假美猴王太草了<img src="https://static.saraba1st.com/image
 ##### 3187#       发表于 2019-4-18 23:16
 
 
-
 [https://www.youtube.com/watch?v=52BL6f7A5tQ](https://www.youtube.com/watch?v=52BL6f7A5tQ)
 
 
 ばねちゃん！？
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 3188#       发表于 2019-4-18 23:18
-
 
 
  本帖最后由 北条早苗 于 2019-4-18 23:20 编辑 
@@ -3664,27 +2407,15 @@ Pon子这个真假美猴王太草了<img src="https://static.saraba1st.com/image
 顺带还搞了一波音域测试，mid1B～hihiF
 
 
-
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3189#       发表于 2019-4-18 23:24
 
 
-
  本帖最后由 いつかの自分 于 2019-4-18 23:26 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43359684&amp;ptid=1823171" target="_blank">ScarletMoon 发表于 2019-4-18 21:52</a></blockquote>
 有心情拿自己开玩笑也不算坏事吧   刚刚有个问她用词应该注意什么的直接被回问你是anti吗
-
-
-
-
-
 
 
 -----
@@ -3693,24 +2424,16 @@ Pon子这个真假美猴王太草了<img src="https://static.saraba1st.com/image
 ##### 3190#       发表于 2019-4-18 23:29
 
 
-
 [https://twitter.com/sana_natori/status/1118818750751367168](https://twitter.com/sana_natori/status/1118818750751367168)
 
 
 茄子3D..
 
 
-
-
-
-
-
 -----
 
 ####  SchwarzeKatze  
 ##### 3191#       发表于 2019-4-18 23:36
-
-
 
 
 说了三枝要是个卡拉OK选手我就往死里黑，听完一个小时证明确实可以黑。
@@ -3726,17 +2449,10 @@ Pon子这个真假美猴王太草了<img src="https://static.saraba1st.com/image
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  天堂懵懂人  
 ##### 3192#       发表于 2019-4-18 23:38
-
-
 
 
 阿凛玩奶妈了 
@@ -3745,24 +2461,13 @@ Pon子这个真假美猴王太草了<img src="https://static.saraba1st.com/image
 —— 来自 OnePlus ONEPLUS A3010, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  宫藤芳佳  
 ##### 3193#       发表于 2019-4-18 23:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3771,14 +2476,8 @@ Pon子这个真假美猴王太草了<img src="https://static.saraba1st.com/image
 ##### 3194#       发表于 2019-4-18 23:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43360771&amp;ptid=1823171" target="_blank">宫藤芳佳 发表于 2019-4-18 23:38</a></blockquote>
 ptr最强！！
-
-
-
-
-
 
 
 -----
@@ -3787,14 +2486,8 @@ ptr最强！！
 ##### 3195#       发表于 2019-4-18 23:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43360771&amp;ptid=1823171" target="_blank">宫藤芳佳 发表于 2019-4-18 23:38</a></blockquote>
 mkt竟然在asmr上输了？
-
-
-
-
-
 
 
 -----
@@ -3803,14 +2496,7 @@ mkt竟然在asmr上输了？
 ##### 3196#       发表于 2019-4-18 23:41
 
 
-
-
 绿仙妈妈声音真棒啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3819,14 +2505,7 @@ mkt竟然在asmr上输了？
 ##### 3197#       发表于 2019-4-18 23:42
 
 
-
-
 ASMR国家德比
-
-
-
-
-
 
 
 -----
@@ -3835,16 +2514,10 @@ ASMR国家德比
 ##### 3198#       发表于 2019-4-18 23:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43360771&amp;ptid=1823171" target="_blank">宫藤芳佳 发表于 2019-4-18 23:38</a></blockquote>
 asmr是刚需<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 —— 来自 samsung SM-G9730, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -3853,15 +2526,9 @@ asmr是刚需<img src="https://static.saraba1st.com/image/smiley/face2017/035.pn
 ##### 3199#       发表于 2019-4-18 23:44
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mkt没放浮游炮么
 
 —— 來自 samsung SM-N9500, Android 7.1.1上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -3870,14 +2537,7 @@ asmr是刚需<img src="https://static.saraba1st.com/image/smiley/face2017/035.pn
 ##### 3200#       发表于 2019-4-18 23:44
 
 
-
-
 mkt反超了   ptr不要输！！   梅露换个号吧 
-
-
-
-
-
 
 
 -----
@@ -3886,14 +2546,7 @@ mkt反超了   ptr不要输！！   梅露换个号吧
 ##### 3201#       发表于 2019-4-18 23:45
 
 
-
-
 已经逆转了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3902,16 +2555,10 @@ mkt反超了   ptr不要输！！   梅露换个号吧
 ##### 3202#       发表于 2019-4-18 23:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43360786&amp;ptid=1823171" target="_blank">SchwarzeKatze 发表于 2019-4-18 23:40</a>
 
 mkt竟然在asmr上输了？</blockquote>
 反超了，如果开的是利香的号那才真是正面对决<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3920,14 +2567,7 @@ mkt竟然在asmr上输了？</blockquote>
 ##### 3203#       发表于 2019-4-18 23:49
 
 
-
-
 李湘亲传弟子明治呢，ff14asmr配信啊！
-
-
-
-
-
 
 
 -----
@@ -3936,13 +2576,7 @@ mkt竟然在asmr上输了？</blockquote>
 ##### 3204#       发表于 2019-4-18 23:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">摸鱼怪现在ASMR只有500同接了么
-
-
-
-
-
 
 
 -----
@@ -3951,21 +2585,13 @@ mkt竟然在asmr上输了？</blockquote>
 ##### 3205#       发表于 2019-4-18 23:51
 
 
-
-
 反正这几个同接都打不过miyadi<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  SchwarzeKatze  
 ##### 3206#       发表于 2019-4-18 23:51
-
 
 
  本帖最后由 SchwarzeKatze 于 2019-4-18 23:53 编辑 
@@ -3978,16 +2604,10 @@ mkt竟然在asmr上输了？</blockquote>
 其中好几期的封面是一片黑底上书“健康内容”四个白字<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 3207#       发表于 2019-4-18 23:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43360867&amp;ptid=1823171" target="_blank">胧楼 发表于 2019-4-18 23:50</a>
@@ -3998,16 +2618,10 @@ mkt竟然在asmr上输了？</blockquote>
 梅露频道在推送上太吃亏
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3208#       发表于 2019-4-18 23:52
-
 
 
 [https://twitcasting.tv/koga_kmdd](https://twitcasting.tv/koga_kmdd)
@@ -4016,25 +2630,13 @@ mkt竟然在asmr上输了？</blockquote>
 緑仙ママかわいいのだ　すこるのだ
 
 
-
-
-
-
-
 -----
 
 ####  宫藤芳佳  
 ##### 3209#       发表于 2019-4-18 23:55
 
 
-
-
 mkt在油管还是挺克制的 前几天看了下nico限 原来还有足搅ASMR<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4043,16 +2645,10 @@ mkt在油管还是挺克制的 前几天看了下nico限 原来还有足搅ASMR<
 ##### 3210#       发表于 2019-4-18 23:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43360919&amp;ptid=1823171" target="_blank">宫藤芳佳 发表于 2019-4-18 23:55</a>
 
 mkt在油管还是挺克制的 前几天看了下nico限 原来还有足搅ASMR</blockquote>
 足？<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">这耳道得多大啊
-
-
-
-
-
 
 
 -----
@@ -4061,15 +2657,9 @@ mkt在油管还是挺克制的 前几天看了下nico限 原来还有足搅ASMR<
 ##### 3211#       发表于 2019-4-18 23:59
 
 
-
 <img src="https://i.loli.net/2019/04/18/5cb89ed7ac3ff.png" referrerpolicy="no-referrer">
 
 在真正的强者面前你V真是小打小闹<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4078,23 +2668,16 @@ mkt在油管还是挺克制的 前几天看了下nico限 原来还有足搅ASMR<
 ##### 3212#       发表于 2019-4-19 00:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43360950&amp;ptid=1823171" target="_blank">qw945 发表于 2019-4-18 23:59</a>
 
 足？这耳道得多大啊</blockquote>
 摄像机前放根假金金 然后<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ScarletMoon  
 ##### 3213#       发表于 2019-4-19 00:03
-
 
 
 <blockquote>北条早苗 发表于 2019-4-18 23:59
@@ -4104,26 +2687,15 @@ mkt在油管还是挺克制的 前几天看了下nico限 原来还有足搅ASMR<
 深夜1点1.8万你委蛋吻做到过
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 3214#       发表于 2019-4-19 00:04
 
 
-
 [https://twitter.com/hololivetv/status/1118854884592209920](https://twitter.com/hololivetv/status/1118854884592209920)
 
 说起来hh那边也事故了，这还带传染的？
-
-
-
-
-
 
 
 -----
@@ -4132,22 +2704,15 @@ mkt在油管还是挺克制的 前几天看了下nico限 原来还有足搅ASMR<
 ##### 3215#       发表于 2019-4-19 00:05
 
 
-
 <img src="https://i.loli.net/2019/04/19/5cb8a03a5d5d6.jpg" referrerpolicy="no-referrer">
 
 真正的强者<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  北条早苗  
 ##### 3216#       发表于 2019-4-19 00:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43360978&amp;ptid=1823171" target="_blank">ScarletMoon 发表于 2019-4-19 00:03</a>
@@ -4158,16 +2723,10 @@ mkt在油管还是挺克制的 前几天看了下nico限 原来还有足搅ASMR<
 现在已经是纯的时代了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 3217#       发表于 2019-4-19 00:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361000&amp;ptid=1823171" target="_blank">胧楼 发表于 2019-4-19 00:05</a>
@@ -4179,16 +2738,10 @@ mkt在油管还是挺克制的 前几天看了下nico限 原来还有足搅ASMR<
 我们不认<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  qw945  
 ##### 3218#       发表于 2019-4-19 00:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43360969&amp;ptid=1823171" target="_blank">宫藤芳佳 发表于 2019-4-19 00:01</a>
@@ -4197,26 +2750,15 @@ mkt在油管还是挺克制的 前几天看了下nico限 原来还有足搅ASMR<
 是我太狭隘了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">都忘了ASMR不止瓦尔多了
 
 
-
-
-
-
-
 -----
 
 ####  雨井绫  
 ##### 3219#       发表于 2019-4-19 00:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">加藤纯一最强和兄者弟者，同接都日常踩在贵圈头上
 
 不过do葛本社干掉过纯
-
-
-
-
-
 
 
 -----
@@ -4225,15 +2767,9 @@ mkt在油管还是挺克制的 前几天看了下nico限 原来还有足搅ASMR<
 ##### 3220#       发表于 2019-4-19 00:07
 
 
-
 <blockquote>北条早苗 发表于 2019-4-19 00:05
 现在已经是纯的时代了</blockquote>
 我记得上周6万同接呢，纯还是要比弟者低两个级别的
-
-
-
-
-
 
 
 -----
@@ -4242,16 +2778,10 @@ mkt在油管还是挺克制的 前几天看了下nico限 原来还有足搅ASMR<
 ##### 3221#       发表于 2019-4-19 00:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361000&amp;ptid=1823171" target="_blank">胧楼 发表于 2019-4-19 00:05</a>
 
 真正的强者</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">vtuber界有自己给自己刷超火的吗？
-
-
-
-
-
 
 
 -----
@@ -4260,17 +2790,10 @@ mkt在油管还是挺克制的 前几天看了下nico限 原来还有足搅ASMR<
 ##### 3222#       发表于 2019-4-19 00:08
 
 
-
-
 说真的，对ASMR来说live2d不如符合场景的静止画，3D不如真人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
 mkt那个nico限怕是nico那边主动放宽尺度了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4279,23 +2802,15 @@ mkt那个nico限怕是nico那边主动放宽尺度了<img src="https://static.sa
 ##### 3223#       发表于 2019-4-19 00:08
 
 
-
-
 NICO尺度高啊
 
 不过现在也只看天知遥和人妻了
-
-
-
-
-
 
 
 -----
 
 ####  ScarletMoon  
 ##### 3224#       发表于 2019-4-19 00:10
-
 
 
 <blockquote>雨井绫 发表于 2019-4-19 00:07
@@ -4307,16 +2822,10 @@ NICO尺度高啊
 去年天皇天天吊打纯
 
 
-
-
-
-
-
 -----
 
 ####  雨井绫  
 ##### 3225#       发表于 2019-4-19 00:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361043&amp;ptid=1823171" target="_blank">ScarletMoon 发表于 2019-4-19 00:10</a>
@@ -4329,27 +2838,15 @@ NICO尺度高啊
 2月10日的这次，不知道和你说的是不是一次
 
 
-
-
-
-
-
 -----
 
 ####  SevenYuan23  
 ##### 3226#       发表于 2019-4-19 00:12
 
 
-
-
 bmlvr的话，hh还好，小狐狸唱歌没问题吗（，本人过来的话，说明不是播片吧
 
 —— 来自 OnePlus ONEPLUS A6000, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -4358,15 +2855,9 @@ bmlvr的话，hh还好，小狐狸唱歌没问题吗（，本人过来的话，�
 ##### 3227#       发表于 2019-4-19 00:12
 
 
-
 <blockquote>雨井绫 发表于 2019-4-19 00:11
 2月10日的这次，不知道和你说的是不是一次</blockquote>
 哦哦，我说的是上个月的赏花
-
-
-
-
-
 
 
 -----
@@ -4375,23 +2866,16 @@ bmlvr的话，hh还好，小狐狸唱歌没问题吗（，本人过来的话，�
 ##### 3228#       发表于 2019-4-19 00:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361027&amp;ptid=1823171" target="_blank">SchwarzeKatze 发表于 2019-4-19 00:08</a>
 
 vtuber界有自己给自己刷超火的吗？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">刷了有啥用 又不是人气值  感觉也就买买粉了
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 3229#       发表于 2019-4-19 00:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361062&amp;ptid=1823171" target="_blank">SevenYuan23 发表于 2019-4-19 00:12</a>
@@ -4405,25 +2889,13 @@ bmlvr的话，hh还好，小狐狸唱歌没问题吗（，本人过来的话，�
 唱歌没问题 起码过得去
 
 
-
-
-
-
-
 -----
 
 ####  lhawp  
 ##### 3230#       发表于 2019-4-19 00:15
 
 
-
-
 HH半夜直播都这么疯，年轻真好
-
-
-
-
-
 
 
 -----
@@ -4432,16 +2904,10 @@ HH半夜直播都这么疯，年轻真好
 ##### 3231#       发表于 2019-4-19 00:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43360955&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-18 23:59</a>
 
 在真正的强者面前你V真是小打小闹</blockquote>
 真正的强者不是HONDA嘛 16W同接估計很難再有人刷新這個記錄了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4450,23 +2916,16 @@ HH半夜直播都这么疯，年轻真好
 ##### 3232#       发表于 2019-4-19 00:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361136&amp;ptid=1823171" target="_blank">nicholas30 发表于 2019-4-19 00:19</a>
 
 真正的强者不是HONDA嘛 16W同接估計很難再有人刷新這個記錄了</blockquote>
 巴黎圣母院 24W同接<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  swordofsoul1  
 ##### 3233#       发表于 2019-4-19 00:22
-
 
 
 <blockquote>古战场亡魂 发表于 2019-4-18 22:09
@@ -4478,17 +2937,10 @@ HH半夜直播都这么疯，年轻真好
 因为阿夸的钱由她双亲保管
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 3234#       发表于 2019-4-19 00:24
-
-
 
 
 挺佩服纯的，顶着这么差的风评都能搞这么久还能汇集这么多人气和热度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -4497,16 +2949,10 @@ HH半夜直播都这么疯，年轻真好
 和纯一比，我在想V界的这么快就看不到前景是不是因为太依靠一时的噱头和营销了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 3235#       发表于 2019-4-19 00:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361169&amp;ptid=1823171" target="_blank">swordofsoul1 发表于 2019-4-19 00:22</a>
@@ -4515,27 +2961,15 @@ HH半夜直播都这么疯，年轻真好
 零花钱买游戏还是余裕的
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 3236#       发表于 2019-4-19 00:31
 
 
-
-
 刚逛了逛油管，才发现原来那个东京dolls的vtuber频道这几个星期搞了个vtuber增量各种声优角色上阵了，已经先后上了竹达彩奈明坂聪美本泽枫等等声优的vtuber角色（东京dolls的角色）了，以后几周还会继续上各路知名声优角色的vtuber。
 
 https://m.youtube.com/channel/UCmNjDc-wW_nqs4WzEHKyJnw/videos
-
-
-
-
-
 
 
 -----
@@ -4544,22 +2978,15 @@ https://m.youtube.com/channel/UCmNjDc-wW_nqs4WzEHKyJnw/videos
 ##### 3237#       发表于 2019-4-19 00:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361000&amp;ptid=1823171" target="_blank">胧楼 发表于 2019-4-19 00:05</a>
 真正的强者</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">斗鱼这个是真没意思，B站V区好歹看不出什么人工痕迹，礼物封顶之后在线上不去就直接锁了
-
-
-
-
-
 
 
 -----
 
 ####  rita200123  
 ##### 3238#       发表于 2019-4-19 00:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43360745&amp;ptid=1823171" target="_blank">SchwarzeKatze 发表于 2019-4-18 23:36</a>
@@ -4573,16 +3000,10 @@ https://m.youtube.com/channel/UCmNjDc-wW_nqs4WzEHKyJnw/videos
 東京巨蛋不比武道館厲害多了嗎
 
 
-
-
-
-
-
 -----
 
 ####  qianoooo  
 ##### 3239#       发表于 2019-4-19 00:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361136&amp;ptid=1823171" target="_blank">nicholas30 发表于 2019-4-18 12:19</a>
@@ -4591,16 +3012,10 @@ https://m.youtube.com/channel/UCmNjDc-wW_nqs4WzEHKyJnw/videos
 国内还是统计太杂乱，根本不知道有多少人在看
 
 
-
-
-
-
-
 -----
 
 ####  水原薰  
 ##### 3240#       发表于 2019-4-19 00:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361099&amp;ptid=1823171" target="_blank">lhawp 发表于 2019-4-19 00:15</a>
@@ -4608,16 +3023,10 @@ HH半夜直播都这么疯，年轻真好</blockquote>
 体力强者的余裕，毕竟hime是能连续直播24小时的体力怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aisakahammer  
 ##### 3241#       发表于 2019-4-19 00:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361336&amp;ptid=1823171" target="_blank">rita200123 发表于 2019-4-19 00:37</a>
@@ -4628,16 +3037,10 @@ HH半夜直播都这么疯，年轻真好</blockquote>
 巨蛋太贵了吧，武道馆还是可以想的？
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 3242#       发表于 2019-4-19 00:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361336&amp;ptid=1823171" target="_blank">rita200123 发表于 2019-4-19 00:37</a>
@@ -4648,16 +3051,10 @@ HH半夜直播都这么疯，年轻真好</blockquote>
 历史意义更大，当然已经是时代眼泪了，顶级都开蛋巡去了
 
 
-
-
-
-
-
 -----
 
 ####  黑炎  
 ##### 3243#       发表于 2019-4-19 00:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361336&amp;ptid=1823171" target="_blank">rita200123 发表于 2019-4-19 00:37</a>
@@ -4667,16 +3064,10 @@ HH半夜直播都这么疯，年轻真好</blockquote>
 武道馆相对来说好达到，意义也不小
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 3244#       发表于 2019-4-19 00:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361336&amp;ptid=1823171" target="_blank">rita200123 发表于 2019-4-19 00:37</a>
@@ -4689,16 +3080,10 @@ HH半夜直播都这么疯，年轻真好</blockquote>
 然后是底蕴……和无数先辈同台这一步，一般不会跳过
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 3245#       发表于 2019-4-19 00:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361416&amp;ptid=1823171" target="_blank">Chia 发表于 2019-4-19 00:46</a>
@@ -4709,16 +3094,10 @@ HH半夜直播都这么疯，年轻真好</blockquote>
 商业价值…我觉得东蛋大部分都是赔本赚吆喝吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 3246#       发表于 2019-4-19 00:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361433&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-19 00:48</a>
@@ -4732,17 +3111,10 @@ HH半夜直播都这么疯，年轻真好</blockquote>
 大型偶像团本体可能不好赚，但周边可以卖更多
 
 
-
-
-
-
-
 -----
 
 ####  rita200123  
 ##### 3247#       发表于 2019-4-19 00:53
-
-
 
 
 石井館長在漫畫中提過
@@ -4752,17 +3124,10 @@ HH半夜直播都这么疯，年轻真好</blockquote>
 如果客源不夠多很容易賠本
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 3248#       发表于 2019-4-19 00:56
-
-
 
 
 有人抓了个aha~↑出来
@@ -4771,16 +3136,10 @@ HH半夜直播都这么疯，年轻真好</blockquote>
 我觉得还是有点可能的（并没聋
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 3249#       发表于 2019-4-19 00:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361467&amp;ptid=1823171" target="_blank">rita200123 发表于 2019-4-19 00:53</a>
@@ -4793,16 +3152,10 @@ HH半夜直播都这么疯，年轻真好</blockquote>
 本来也不是随意上的……强行镀金很致命
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 3250#       发表于 2019-4-19 01:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361494&amp;ptid=1823171" target="_blank">Chia 发表于 2019-4-19 00:56</a>
@@ -4815,27 +3168,15 @@ https://www.openrec.tv/live/1o8qqv2jy8k?t=5390
 不能是yuiko吧，这声音也差太远了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 3251#       发表于 2019-4-19 01:04
 
 
-
-
 下集超人女子
 
 空媽跟貢貢www
-
-
-
-
-
 
 
 -----
@@ -4844,21 +3185,13 @@ https://www.openrec.tv/live/1o8qqv2jy8k?t=5390
 ##### 3252#       发表于 2019-4-19 01:05
 
 
-
-
 小白的超女V下一次请了空妈，看来要请一圈V管人了
-
-
-
-
-
 
 
 -----
 
 ####  神龙小生  
 ##### 3253#       发表于 2019-4-19 01:05
-
 
 
 <blockquote>lime2001 发表于 2019-4-19 01:04
@@ -4868,17 +3201,10 @@ https://www.openrec.tv/live/1o8qqv2jy8k?t=5390
 可以把与白组关系不错的都轮番上阵吧
 
 
-
-
-
-
-
 -----
 
 ####  wingzerocos  
 ##### 3254#       发表于 2019-4-19 01:07
-
-
 
 
 下期ガリベンガーＶ是金刚和空妈，看来这季确实是会多找社外的参加了。
@@ -4886,16 +3212,10 @@ https://www.openrec.tv/live/1o8qqv2jy8k?t=5390
 剩下应该还有四五期，大葵azulimHH应该也有份？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 3255#       发表于 2019-4-19 01:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361532&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-19 01:03</a>
@@ -4906,20 +3226,13 @@ https://www.openrec.tv/live/1o8qqv2jy8k?t=5390
 这个就没那么远了？
 
 
-
 主要是她这个跨度广度熟练度，我觉得多半是见过的人。既然有人送出来个选项，我就挺乐意认的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  宫藤芳佳  
 ##### 3256#       发表于 2019-4-19 01:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361494&amp;ptid=1823171" target="_blank">Chia 发表于 2019-4-19 00:56</a>
@@ -4932,17 +3245,10 @@ https://www.openrec.tv/live/1o8qqv2jy8k?t=5390
 我觉得不太可能是yuiko  很多年前我经常听她的生放 主要是她唱歌的方式和inui差的有点多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  nimravus  
 ##### 3257#       发表于 2019-4-19 01:12
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/19/011136lupjbrc93f8svsfj.png" referrerpolicy="no-referrer">
@@ -4955,15 +3261,7 @@ https://www.openrec.tv/live/1o8qqv2jy8k?t=5390
 2019-4-19 01:11 上传
 
 
-
-
-
 今天推特最火的这位有什么头绪吗
-
-
-
-
-
 
 
 -----
@@ -4972,15 +3270,9 @@ https://www.openrec.tv/live/1o8qqv2jy8k?t=5390
 ##### 3258#       发表于 2019-4-19 01:13
 
 
-
 [https://twitter.com/garibenV/following](https://twitter.com/garibenV/following)
 
 所以这个看跟随猜嘉宾是有用的？
-
-
-
-
-
 
 
 -----
@@ -4989,15 +3281,9 @@ https://www.openrec.tv/live/1o8qqv2jy8k?t=5390
 ##### 3259#       发表于 2019-4-19 01:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">什么 不是ymd吗
 
 最后那三人大联动不都是等于明说了要一起玩管人了
-
-
-
-
-
 
 
 -----
@@ -5006,16 +3292,10 @@ https://www.openrec.tv/live/1o8qqv2jy8k?t=5390
 ##### 3260#       发表于 2019-4-19 01:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361598&amp;ptid=1823171" target="_blank">宫藤芳佳 发表于 2019-4-19 01:11</a>
 
 我觉得不太可能是yuiko  很多年前我经常听她的生放 主要是她唱歌的方式和inui差的有点多 ...</blockquote>
 我看法差不多的，觉得挺有趣的，留一点可能**。
-
-
-
-
-
 
 
 -----
@@ -5024,24 +3304,16 @@ https://www.openrec.tv/live/1o8qqv2jy8k?t=5390
 ##### 3261#       发表于 2019-4-19 01:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361606&amp;ptid=1823171" target="_blank">nimravus 发表于 2019-4-19 01:12</a>
 
 今天推特最火的这位有什么头绪吗</blockquote>
 小野早稀？犬山和岩本町的视频见过她出现，也v当管人了吗？
 
 
-
-
-
-
-
 -----
 
 ####  ひびき  
 ##### 3262#       发表于 2019-4-19 01:34
-
-
 
 
 夏色祭这三万人订阅纪念预告..........
@@ -5054,16 +3326,10 @@ https://www.openrec.tv/live/1o8qqv2jy8k?t=5390
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 3263#       发表于 2019-4-19 01:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361714&amp;ptid=1823171" target="_blank">ひびき 发表于 2019-4-19 01:34</a>
@@ -5077,16 +3343,10 @@ https://www.openrec.tv/live/1o8qqv2jy8k?t=5390
 来个B5的夏哥看看，好奇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ひびき  
 ##### 3264#       发表于 2019-4-19 01:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361744&amp;ptid=1823171" target="_blank">Chia 发表于 2019-04-19 01:40:58</a>
@@ -5100,25 +3360,13 @@ https://www.openrec.tv/live/1o8qqv2jy8k?t=5390
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  tglals  
 ##### 3265#       发表于 2019-4-19 01:58
 
 
-
-
 狐狸突击卡拉OK 都是好事
-
-
-
-
-
 
 
 -----
@@ -5127,14 +3375,7 @@ https://www.openrec.tv/live/1o8qqv2jy8k?t=5390
 ##### 3266#       发表于 2019-4-19 02:07
 
 
-
-
 梦回三月救箱，不过现在这个时间点少主真是参不透
-
-
-
-
-
 
 
 -----
@@ -5143,14 +3384,7 @@ https://www.openrec.tv/live/1o8qqv2jy8k?t=5390
 ##### 3267#       发表于 2019-4-19 02:07
 
 
-
-
 幸好看了一眼s1，差点错过
-
-
-
-
-
 
 
 -----
@@ -5159,13 +3393,7 @@ https://www.openrec.tv/live/1o8qqv2jy8k?t=5390
 ##### 3268#       发表于 2019-4-19 02:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还好我是卜睡狗
-
-
-
-
-
 
 
 -----
@@ -5174,22 +3402,15 @@ https://www.openrec.tv/live/1o8qqv2jy8k?t=5390
 ##### 3269#       发表于 2019-4-19 02:11
 
 
-
 [https://youtu.be/Q9Mcws7q2QM](https://youtu.be/Q9Mcws7q2QM)
 
 小夜的深夜调试配信
-
-
-
-
-
 
 
 -----
 
 ####  proxima  
 ##### 3270#       发表于 2019-4-19 02:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361606&amp;ptid=1823171" target="_blank">nimravus 发表于 2019-4-19 01:12</a>
@@ -5206,31 +3427,19 @@ https://www.openrec.tv/live/1o8qqv2jy8k?t=5390
 各种迷惑发言，最迷惑的行为是唐突丢了一个玉姬的fanbox链接
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 3271#       发表于 2019-4-19 02:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这狐狸喝假酒了吧  这么兴奋 还咩咩叫
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3272#       发表于 2019-4-19 02:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361842&amp;ptid=1823171" target="_blank">potwater 发表于 2019-4-19 02:11</a>
@@ -5241,16 +3450,10 @@ https://youtu.be/Q9Mcws7q2QM
 德龙也来了..
 
 
-
-
-
-
-
 -----
 
 ####  tiro_finale  
 ##### 3273#       发表于 2019-4-19 02:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43360593&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-18 07:18</a>
@@ -5264,25 +3467,13 @@ https://youtu.be/Q9Mcws7q2QM
 原定的猜动作搞不好比广播还无聊
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 3274#       发表于 2019-4-19 02:34
 
 
-
-
 血赚！！！！！
-
-
-
-
-
 
 
 -----
@@ -5291,14 +3482,7 @@ https://youtu.be/Q9Mcws7q2QM
 ##### 3275#       发表于 2019-4-19 02:46
 
 
-
-
 小狐狸半夜突击也是服了，幸好没睡
-
-
-
-
-
 
 
 -----
@@ -5307,14 +3491,7 @@ https://youtu.be/Q9Mcws7q2QM
 ##### 3276#       发表于 2019-4-19 02:49
 
 
-
-
 完了 我忘记开录制了
-
-
-
-
-
 
 
 -----
@@ -5323,14 +3500,7 @@ https://youtu.be/Q9Mcws7q2QM
 ##### 3277#       发表于 2019-4-19 02:59
 
 
-
-
 ange眼镜右镜片的电焊（？）效果好像没了。估计是app更新删除掉了。
-
-
-
-
-
 
 
 -----
@@ -5339,14 +3509,7 @@ ange眼镜右镜片的电焊（？）效果好像没了。估计是app更新删�
 ##### 3278#       发表于 2019-4-19 03:09
 
 
-
-
 叶师这拉了多少人啊
-
-
-
-
-
 
 
 -----
@@ -5355,24 +3518,16 @@ ange眼镜右镜片的电焊（？）效果好像没了。估计是app更新删�
 ##### 3279#       发表于 2019-4-19 03:10
 
 
-
-
 这狐狸到底吃了什么这么亢奋 全程狐言乱语
 
 
 叶师起来自走棋修行了
 
 
-
-
-
-
-
 -----
 
 ####  买表大户  
 ##### 3280#       发表于 2019-4-19 03:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361937&amp;ptid=1823171" target="_blank">胧楼 发表于 2019-4-19 02:49</a>
@@ -5382,25 +3537,13 @@ ange眼镜右镜片的电焊（？）效果好像没了。估计是app更新删�
 — from Xiaomi MIX 2S, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3281#       发表于 2019-4-19 03:18
 
 
-
-
 香格里拉也挺好的....
-
-
-
-
-
 
 
 -----
@@ -5409,15 +3552,8 @@ ange眼镜右镜片的电焊（？）效果好像没了。估计是app更新删�
 ##### 3282#       发表于 2019-4-19 03:21
 
 
-
-
 香格里拉血赚 
 <img src="https://i.loli.net/2019/04/19/5cb8ce2fdff6b.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5426,15 +3562,9 @@ ange眼镜右镜片的电焊（？）效果好像没了。估计是app更新删�
 ##### 3283#       发表于 2019-4-19 03:45
 
 
-
 <blockquote>今後はこの時間帯の放送になる予定です。</blockquote>
 
 [https://twitter.com/Sayo_Amemori/status/1118963220516151296](https://twitter.com/Sayo_Amemori/status/1118963220516151296)
-
-
-
-
-
 
 
 -----
@@ -5443,14 +3573,7 @@ ange眼镜右镜片的电焊（？）效果好像没了。估计是app更新删�
 ##### 3284#       发表于 2019-4-19 03:48
 
 
-
-
 我有点扛不住了 
-
-
-
-
-
 
 
 -----
@@ -5459,14 +3582,7 @@ ange眼镜右镜片的电焊（？）效果好像没了。估计是app更新删�
 ##### 3285#       发表于 2019-4-19 03:53
 
 
-
-
 感觉狐狸这手调动作大师又进化了 揺头唱歌点头唱歌生动度又高了 动耳朵和眼睛也有控制 
-
-
-
-
-
 
 
 -----
@@ -5475,14 +3591,7 @@ ange眼镜右镜片的电焊（？）效果好像没了。估计是app更新删�
 ##### 3286#       发表于 2019-4-19 03:56
 
 
-
-
 这狐狸终于唱爽了
-
-
-
-
-
 
 
 -----
@@ -5491,21 +3600,13 @@ ange眼镜右镜片的电焊（？）效果好像没了。估计是app更新删�
 ##### 3287#       发表于 2019-4-19 04:02
 
 
-
-
 ClipConverter下不了狐狸这个歌 是因为被隐藏了么
-
-
-
-
-
 
 
 -----
 
 ####  tglals  
 ##### 3288#       发表于 2019-4-19 04:04
-
 
 
  本帖最后由 tglals 于 2019-4-19 04:06 编辑 
@@ -5515,16 +3616,10 @@ ClipConverter下不了狐狸这个歌 是因为被隐藏了么</blockquote>
 看错了
 
 
-
-
-
-
-
 -----
 
 ####  nimravus  
 ##### 3289#       发表于 2019-4-19 04:06
-
 
 
 <blockquote>proxima 发表于 2019-4-19 02:16
@@ -5536,16 +3631,10 @@ ClipConverter下不了狐狸这个歌 是因为被隐藏了么</blockquote>
 最早发言3天，今天突然3000粉，迷.....
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 3290#       发表于 2019-4-19 04:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43362081&amp;ptid=1823171" target="_blank">tglals 发表于 2019-4-19 04:04</a>
@@ -5554,16 +3643,10 @@ https://www.youtube.com/watch?v=_AHGaa4Lrgs</blockquote>
 <img src="https://i.loli.net/2019/04/19/5cb8d8c430312.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3291#       发表于 2019-4-19 05:17
-
 
 
  本帖最后由 いつかの自分 于 2019-4-19 05:28 编辑 
@@ -5581,25 +3664,13 @@ https://www.youtube.com/watch?v=_AHGaa4Lrgs</blockquote>
 贝叔CM
 
 
-
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 3292#       发表于 2019-4-19 05:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看了眼 能下载了 安心休息
-
-
-
-
-
 
 
 -----
@@ -5608,16 +3679,9 @@ https://www.youtube.com/watch?v=_AHGaa4Lrgs</blockquote>
 ##### 3293#       发表于 2019-4-19 09:29
 
 
-
-
 夏哥走歌系不一定比现在好吧，现在不是歌系死路一条么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 不过应该好好保养嗓子是对的，不过夏哥应该比观众更懂吧
-
-
-
-
-
 
 
 -----
@@ -5626,15 +3690,8 @@ https://www.youtube.com/watch?v=_AHGaa4Lrgs</blockquote>
 ##### 3294#       发表于 2019-4-19 09:46
 
 
-
-
 大葵HH不死人都有吃maxend的视频，夏哥自己也不是第一次吃，狐狸这种高烈度用嗓子的都当零食这么吃的，这东西大概没特别辣吧
 或者有实际吃过的现身说法下？
-
-
-
-
-
 
 
 -----
@@ -5643,16 +3700,10 @@ https://www.youtube.com/watch?v=_AHGaa4Lrgs</blockquote>
 ##### 3295#       发表于 2019-4-19 09:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43363739&amp;ptid=1823171" target="_blank">tiro_finale 发表于 2019-4-19 09:46</a>
 
 大葵HH不死人都有吃maxend的视频，夏哥自己也不是第一次吃，狐狸这种高烈度用嗓子的都当零食这么吃的，这东 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">狐狸算例外吧，我记得mio说过狐狸遇到不喜欢吃的东西都会这样没感觉一样的吃下去
-
-
-
-
-
 
 
 -----
@@ -5661,16 +3712,9 @@ https://www.youtube.com/watch?v=_AHGaa4Lrgs</blockquote>
 ##### 3296#       发表于 2019-4-19 09:55
 
 
-
-
 千岁那次差点把自己吃死
 
 然后小红帽马上吃了个2倍还是3倍maxend辣度的地狱担担面 和玩一样  所以还是看人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5679,14 +3723,7 @@ https://www.youtube.com/watch?v=_AHGaa4Lrgs</blockquote>
 ##### 3297#       发表于 2019-4-19 09:55
 
 
-
-
 这突击也够晚的，还好没删档<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5695,21 +3732,13 @@ https://www.youtube.com/watch?v=_AHGaa4Lrgs</blockquote>
 ##### 3298#       发表于 2019-4-19 09:59
 
 
-
-
 歌系不是死路一条……过多繁殖的前提也是因为那确实是条有效的路。
 
 
 之所以让人觉得是死路，是因为她们都是跳出水面在众人眼前窒息而死的。事实上更多的品种在水下就亡了，悄无声息<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
 不过说回来，虽然歌系不是死路，但夏哥走起来大概会死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5718,24 +3747,16 @@ https://www.youtube.com/watch?v=_AHGaa4Lrgs</blockquote>
 ##### 3299#       发表于 2019-4-19 10:03
 
 
-
-
 一般V走歌系其实和原nico唱见区别不是很大了
 
 
 真正用V的概念做歌系还是要靠砸钱  然而投入和收获不成正比<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 3300#       发表于 2019-4-19 10:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43363968&amp;ptid=1823171" target="_blank">宫藤芳佳 发表于 2019-4-19 10:03</a>
@@ -5750,16 +3771,10 @@ https://www.youtube.com/watch?v=_AHGaa4Lrgs</blockquote>
 而歌系-&gt;演唱会，是他们能掌握的方式里最有搞头的了
 
 
-
-
-
-
-
 -----
 
 ####  宫藤芳佳  
 ##### 3301#       发表于 2019-4-19 10:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43364059&amp;ptid=1823171" target="_blank">Chia 发表于 2019-4-19 10:07</a>
@@ -5771,17 +3786,10 @@ https://www.youtube.com/watch?v=_AHGaa4Lrgs</blockquote>
 其实我感觉这条路做到极限大概就egoist那样了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Igarashi  
 ##### 3302#       发表于 2019-4-19 10:12
-
-
 
 
 当然不是死路一条，大物不都混的挺好的么
@@ -5789,16 +3797,10 @@ https://www.youtube.com/watch?v=_AHGaa4Lrgs</blockquote>
 只是这条路走起来难度挺大的
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 3303#       发表于 2019-4-19 10:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43364119&amp;ptid=1823171" target="_blank">宫藤芳佳 发表于 2019-4-19 10:11</a>
@@ -5810,25 +3812,13 @@ https://www.youtube.com/watch?v=_AHGaa4Lrgs</blockquote>
 所以大资本的青睐非常重要。现在，应该是失了先机了……
 
 
-
-
-
-
-
 -----
 
 ####  chaucerling  
 ##### 3304#       发表于 2019-4-19 10:23
 
 
-
-
 Egoist出道时的ryo和现在没法比，无论是能力和名气都是如日中天，还有资本撑腰
-
-
-
-
-
 
 
 -----
@@ -5837,14 +3827,7 @@ Egoist出道时的ryo和现在没法比，无论是能力和名气都是如日�
 ##### 3305#       发表于 2019-4-19 10:35
 
 
-
-
 游戏部事件如果真的平息的话，倒是可以从可可亚频道上看看歌系的tie up潜力，毕竟报价单上和本部是一样的价格，只是她自己到底愿意投入多少精力在管人身份上也是个问题。
-
-
-
-
-
 
 
 -----
@@ -5853,14 +3836,7 @@ Egoist出道时的ryo和现在没法比，无论是能力和名气都是如日�
 ##### 3306#       发表于 2019-4-19 11:30
 
 
-
-
 阿葵的B限dota2来了...
-
-
-
-
-
 
 
 -----
@@ -5869,14 +3845,7 @@ Egoist出道时的ryo和现在没法比，无论是能力和名气都是如日�
 ##### 3307#       发表于 2019-4-19 11:33
 
 
-
-
 没想到这一天真的来了。
-
-
-
-
-
 
 
 -----
@@ -5885,14 +3854,7 @@ Egoist出道时的ryo和现在没法比，无论是能力和名气都是如日�
 ##### 3308#       发表于 2019-4-19 11:39
 
 
-
-
 播dota2还行，据说傻葵水平还可以<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5901,13 +3863,7 @@ Egoist出道时的ryo和现在没法比，无论是能力和名气都是如日�
 ##### 3309#       发表于 2019-4-19 11:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">幸福来的太突然
-
-
-
-
-
 
 
 -----
@@ -5916,14 +3872,7 @@ Egoist出道时的ryo和现在没法比，无论是能力和名气都是如日�
 ##### 3310#       发表于 2019-4-19 11:46
 
 
-
-
 没想到能见证这种都市传说一样的东西变为现实<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5932,14 +3881,7 @@ Egoist出道时的ryo和现在没法比，无论是能力和名气都是如日�
 ##### 3311#       发表于 2019-4-19 11:46
 
 
-
-
 2434捡到宝了
-
-
-
-
-
 
 
 -----
@@ -5948,16 +3890,9 @@ Egoist出道时的ryo和现在没法比，无论是能力和名气都是如日�
 ##### 3312#       发表于 2019-4-19 12:00
 
 
-
-
 傻葵播dota2了 可以的 。说起来只玩过刀1不知道看不看得懂
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -5966,14 +3901,7 @@ Egoist出道时的ryo和现在没法比，无论是能力和名气都是如日�
 ##### 3313#       发表于 2019-4-19 12:00
 
 
-
-
 2434的认真攻势？要来了hololive！<img src="https://static.saraba1st.com/image/smiley/face2017/179.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5982,14 +3910,7 @@ Egoist出道时的ryo和现在没法比，无论是能力和名气都是如日�
 ##### 3314#       发表于 2019-4-19 12:01
 
 
-
-
 dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
-
-
-
-
-
 
 
 -----
@@ -5998,13 +3919,7 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 ##### 3315#       发表于 2019-4-19 12:02
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">最近对vtb热情大幅降低，刷推看到部长，不知道该做什么表情
-
-
-
-
-
 
 
 -----
@@ -6013,16 +3928,9 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 ##### 3316#       发表于 2019-4-19 12:02
 
 
-
-
 傻葵 b限 dota2<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 —— 来自 smartisan OE106, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -6031,14 +3939,7 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 ##### 3317#       发表于 2019-4-19 12:04
 
 
-
-
 所以都说阿葵会玩DOTA，是她直播自己说过还是中之人挖出来有玩？水平如何？
-
-
-
-
-
 
 
 -----
@@ -6047,14 +3948,7 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 ##### 3318#       发表于 2019-4-19 12:05
 
 
-
-
 自己说的 第一次b限那天还聊过
-
-
-
-
-
 
 
 -----
@@ -6063,16 +3957,10 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 ##### 3319#       发表于 2019-4-19 12:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43365854&amp;ptid=1823171" target="_blank">noHentai 发表于 2019-4-19 12:04</a>
 
 所以都说阿葵会玩DOTA，是她直播自己说过还是中之人挖出来有玩？水平如何？ ...</blockquote>
 她出道第一次直播就把dota2放在游戏时间100-4000小时那一栏里的。
-
-
-
-
-
 
 
 -----
@@ -6081,14 +3969,7 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 ##### 3320#       发表于 2019-4-19 12:06
 
 
-
-
 出道直播阿葵写了个玩过的游戏名单，那里有个dota2，不过一直没玩，大家也就猜是真是假
-
-
-
-
-
 
 
 -----
@@ -6097,16 +3978,10 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 ##### 3321#       发表于 2019-4-19 12:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43365876&amp;ptid=1823171" target="_blank">vonkarajan 发表于 2019-4-19 12:06</a>
 
 她出道第一次直播就把dota2放在游戏时间100-4000小时那一栏里的。</blockquote>
 100-4000小时可还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6115,14 +3990,7 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 ##### 3322#       发表于 2019-4-19 12:10
 
 
-
-
 传闻分数4000-5000，不知真假
-
-
-
-
-
 
 
 -----
@@ -6131,16 +3999,10 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 ##### 3323#       发表于 2019-4-19 12:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43365854&amp;ptid=1823171" target="_blank">noHentai 发表于 2019-4-19 12:04</a>
 
 所以都说阿葵会玩DOTA，是她直播自己说过还是中之人挖出来有玩？水平如何？ ...</blockquote>
 前世twich有播过2次能看到记录，不过不知道ID所以也不知道水平
-
-
-
-
-
 
 
 -----
@@ -6149,13 +4011,7 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 ##### 3324#       发表于 2019-4-19 12:12
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">4000的女玩家那也太强了，3000还差不多
-
-
-
-
-
 
 
 -----
@@ -6164,15 +4020,9 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 ##### 3325#       发表于 2019-4-19 12:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43365940&amp;ptid=1823171" target="_blank">野中萌好蓝 发表于 2019-4-19 12:10</a>
 传闻分数4000-5000，不知真假</blockquote>
 咋还越来越高了，4000-5000对一个女玩家来说很高了，感觉傻葵应该有点水平但到不了这么高<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6181,20 +4031,13 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 ##### 3326#       发表于 2019-4-19 12:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以说传闻啊，很早之前NGA看到的，我自己打了七八年都没5000
-
-
-
-
-
 
 
 -----
 
 ####  薛定谔的小猫  
 ##### 3327#       发表于 2019-4-19 12:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43363907&amp;ptid=1823171" target="_blank">Chia 发表于 2019-4-19 09:59</a>
@@ -6206,27 +4049,15 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 只有经过调音的视频回和部分特别适合的曲目能拉一般通过入坑
 
 
-
-
-
-
-
 -----
 
 ####  米德  
 ##### 3328#       发表于 2019-4-19 12:16
 
 
-
-
 4000多分好像是说ow的分？
 反正刀4000-5000肯定不可能<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 而且b站动态也说了好多年没玩了
-
-
-
-
-
 
 
 -----
@@ -6235,16 +4066,10 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 ##### 3329#       发表于 2019-4-19 12:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43365940&amp;ptid=1823171" target="_blank">野中萌好蓝 发表于 2019-4-19 12:10</a>
 
 传闻分数4000-5000，不知真假</blockquote>
 4000-5000？超凡段位女玩家？这么pro的吗<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer"> 日本axx？
-
-
-
-
-
 
 
 -----
@@ -6253,24 +4078,16 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 ##### 3330#       发表于 2019-4-19 12:23
 
 
-
-
 现在都是DOTA4的时代了，几年没玩的就别讨论什么水平了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 等一个“黄点在哪”
 
 
-
-
-
-
-
 -----
 
 ####  薛定谔的小猫  
 ##### 3331#       发表于 2019-4-19 12:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43366024&amp;ptid=1823171" target="_blank">米德 发表于 2019-4-19 12:16</a>
@@ -6280,27 +4097,15 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 那也太强了8，横向对比孙一峰装甲车组排1800
 
 
-
-
-
-
-
 -----
 
 ####  Fingest  
 ##### 3332#       发表于 2019-4-19 12:24
 
 
-
-
 别以讹传讹提高期待捧杀了 看其他游戏表现怎么都不可能很强 
 
 都打预防针几年没玩了
-
-
-
-
-
 
 
 -----
@@ -6309,14 +4114,7 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 ##### 3333#       发表于 2019-4-19 12:24
 
 
-
-
 第一个播刀2的VTB<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">爱了
-
-
-
-
-
 
 
 -----
@@ -6325,13 +4123,7 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 ##### 3334#       发表于 2019-4-19 12:24
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真b限dota2还行，什么时候b限自走棋和叶师联动啊
-
-
-
-
-
 
 
 -----
@@ -6340,15 +4132,9 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 ##### 3335#       发表于 2019-4-19 12:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不知道能不能拱火到峰皇赏饭，不过斗鱼好像也不能宣传敌台来着。
 
 —— 来自 Xiaomi MIX 2, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
-
-
-
-
-
 
 
 -----
@@ -6357,14 +4143,7 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 ##### 3336#       发表于 2019-4-19 12:26
 
 
-
-
 不过播DOTA2这个游戏我有点担心她被弹幕万分大神喷，很容易体验不好
-
-
-
-
-
 
 
 -----
@@ -6373,15 +4152,9 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 ##### 3337#       发表于 2019-4-19 12:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43366172&amp;ptid=1823171" target="_blank">SchwarzeKatze 发表于 2019-4-19 12:26</a>
 不过播DOTA2这个游戏我有点担心她被弹幕万分大神喷，很容易体验不好</blockquote>
 以前mea阿夸播lol不是节目效果挺好的
-
-
-
-
-
 
 
 -----
@@ -6390,15 +4163,9 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 ##### 3338#       发表于 2019-4-19 12:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">什么时候去斗鱼？
 
 —— 来自 samsung SM-G9750, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -6407,16 +4174,10 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 ##### 3339#       发表于 2019-4-19 12:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43366172&amp;ptid=1823171" target="_blank">SchwarzeKatze 发表于 2019-4-19 12:26</a>
 
 不过播DOTA2这个游戏我有点担心她被弹幕万分大神喷，很容易体验不好</blockquote>
 反正看不懂怕啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6425,21 +4186,13 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 ##### 3340#       发表于 2019-4-19 12:28
 
 
-
-
 我估计是打人机。。
-
-
-
-
-
 
 
 -----
 
 ####  gumigumi042  
 ##### 3341#       发表于 2019-4-19 12:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43366196&amp;ptid=1823171" target="_blank">薛定谔的小猫 发表于 2019-4-19 12:27</a>
@@ -6452,26 +4205,15 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 真的不会打起来吗√
 
 
-
-
-
-
-
 -----
 
 ####  水原薰  
 ##### 3342#       发表于 2019-4-19 12:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43366172&amp;ptid=1823171" target="_blank">SchwarzeKatze 发表于 2019-4-19 12:26</a>
 不过播DOTA2这个游戏我有点担心她被弹幕万分大神喷，很容易体验不好</blockquote>
 怕啥，傻葵那个中文水平能看得懂几个字<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6480,14 +4222,7 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 ##### 3343#       发表于 2019-4-19 12:30
 
 
-
-
  傻葵OW4000  怎么变DOTA2也4000了 
-
-
-
-
-
 
 
 -----
@@ -6496,16 +4231,10 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 ##### 3344#       发表于 2019-4-19 12:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43366196&amp;ptid=1823171" target="_blank">薛定谔的小猫 发表于 2019-4-19 12:27</a>
 
 以前mea阿夸播lol不是节目效果挺好的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">论极端那批人dota还是比lol喷得厉害的。meaqua那次B限是战队带妹局，不同观众各取所需，水平上也打过预防针了；对比一下，傻葵这次不知道什么形式，而且她的dota水平民间怎么吹的都有
-
-
-
-
-
 
 
 -----
@@ -6514,14 +4243,7 @@ dota2可还行，我觉得自走棋其实不错，b站看的人还蛮多的
 ##### 3345#       发表于 2019-4-19 12:32
 
 
-
-
 dota2好起来了。4000-5000说真的？傻葵有3000都是高端女玩家了。引来sg老哥真的不能善了。毕竟是男留id女自强的游戏。
-
-
-
-
-
 
 
 -----
@@ -6530,13 +4252,7 @@ dota2好起来了。4000-5000说真的？傻葵有3000都是高端女玩家了�
 ##### 3346#       发表于 2019-4-19 12:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">从她的擅长的英雄来看应该也是经常大哥位，在我玩的那会1号位全程刷钱躺赢上分也是挺正常就是了
-
-
-
-
-
 
 
 -----
@@ -6545,21 +4261,13 @@ dota2好起来了。4000-5000说真的？傻葵有3000都是高端女玩家了�
 ##### 3347#       发表于 2019-4-19 12:33
 
 
-
-
 别乱传捧杀啊，4000是ow
-
-
-
-
-
 
 
 -----
 
 ####  Chia  
 ##### 3348#       发表于 2019-4-19 12:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43366015&amp;ptid=1823171" target="_blank">薛定谔的小猫 发表于 2019-4-19 12:15</a>
@@ -6582,11 +4290,6 @@ dota2好起来了。4000-5000说真的？傻葵有3000都是高端女玩家了�
 2019-4-19 12:26 上传
 
 
-
-
-
-
-
 但是他手里妹妹的声音，就像没泛音那样缺少光泽……
 
 推测1：较大幅度修音过2：高低部分和其他乐器冲撞的频率都砍了。
@@ -6595,17 +4298,9 @@ dota2好起来了。4000-5000说真的？傻葵有3000都是高端女玩家了�
 可以推测圈内的后期侧重点就不太一样。
 
 
-
-
 另外网红这边实力固然重要
 
 想冒头还是得靠独特的风格和主张，次一点可以是过人的表达力或者模仿能力。这些都是很难直接获得的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
@@ -6614,15 +4309,9 @@ dota2好起来了。4000-5000说真的？傻葵有3000都是高端女玩家了�
 ##### 3349#       发表于 2019-4-19 12:34
 
 
-
  本帖最后由 Mika-S 于 2019-4-19 12:35 编辑 
 
 理论上来讲从上次b限后征集游戏好多人说dota2到现在，傻葵的风格来说肯定是中间有准备过的，不说几千分水平起码应该不会问“黄点在哪儿？”这种操作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水平也应该也不会比阿夸lol的水平差吧其实
-
-
-
-
-
 
 
 -----
@@ -6631,15 +4320,9 @@ dota2好起来了。4000-5000说真的？傻葵有3000都是高端女玩家了�
 ##### 3350#       发表于 2019-4-19 12:35
 
 
-
 <blockquote>野中萌好蓝 发表于 2019-4-19 12:33
 从她的擅长的英雄来看应该也是经常大哥位，在我玩的那会1号位全程刷钱躺赢上分也是挺正常就是了 ...</blockquote>
 她说喜欢潮汐 刚被之类的，另外3000的女选手也不那么稀奇
-
-
-
-
-
 
 
 -----
@@ -6648,16 +4331,10 @@ dota2好起来了。4000-5000说真的？傻葵有3000都是高端女玩家了�
 ##### 3351#       发表于 2019-4-19 12:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43366202&amp;ptid=1823171" target="_blank">宫藤芳佳 发表于 2019-4-19 12:28</a>
 
 反正看不懂怕啥</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看不懂是一回事，怕的是评论栏里只顾两拨人打架，到时候互动差感觉直播效果不好估计就没下回了
-
-
-
-
-
 
 
 -----
@@ -6666,13 +4343,7 @@ dota2好起来了。4000-5000说真的？傻葵有3000都是高端女玩家了�
 ##### 3352#       发表于 2019-4-19 12:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我的锅我的锅，果然LGA听来的消息不该随便传，虽然我也没信几成
-
-
-
-
-
 
 
 -----
@@ -6681,16 +4352,9 @@ dota2好起来了。4000-5000说真的？傻葵有3000都是高端女玩家了�
 ##### 3353#       发表于 2019-4-19 12:38
 
 
-
-
 dota不是100h入门么……别抱什么期待了
 
 可能效果还不如下棋<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6699,16 +4363,10 @@ dota不是100h入门么……别抱什么期待了
 ##### 3354#       发表于 2019-4-19 12:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43366302&amp;ptid=1823171" target="_blank">Grasshopetrus 发表于 2019-4-19 12:35</a>
 
 她说喜欢潮汐 刚被之类的，另外3000的女选手也不那么稀奇</blockquote>
 我记得不是喜欢PA血魔什么的吗
-
-
-
-
-
 
 
 -----
@@ -6717,22 +4375,15 @@ dota不是100h入门么……别抱什么期待了
 ##### 3355#       发表于 2019-4-19 12:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43366117&amp;ptid=1823171" target="_blank">gumigumi042 发表于 2019-4-19 00:22</a>
 4000-5000？超凡段位女玩家？这么pro的吗 日本axx？</blockquote>
 想多了 估计就4000水平 几年没打大概现在统帅水平勉强认全英雄的水平
-
-
-
-
-
 
 
 -----
 
 ####  gumigumi042  
 ##### 3356#       发表于 2019-4-19 12:39
-
 
 
  本帖最后由 gumigumi042 于 2019-4-19 12:41 编辑 
@@ -6744,16 +4395,10 @@ dota不是100h入门么……别抱什么期待了
 说到底有人能愿意播这游戏我就已经很开心了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 3357#       发表于 2019-4-19 12:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43366352&amp;ptid=1823171" target="_blank">gumigumi042 发表于 2019-4-19 12:39</a>
@@ -6763,16 +4408,10 @@ dota不是100h入门么……别抱什么期待了
 已经丢了  回复大多数是这是个谁
 
 
-
-
-
-
-
 -----
 
 ####  SchwarzeKatze  
 ##### 3358#       发表于 2019-4-19 12:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43366288&amp;ptid=1823171" target="_blank">Mika-S 发表于 2019-4-19 12:34</a>
@@ -6781,24 +4420,13 @@ dota不是100h入门么……别抱什么期待了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黄点的事就那么一说，希望有点准备吧。但是这几年dota2改动太大，afk时间几年的真不用对水平抱任何希望，放平心态看吧
 
 
-
-
-
-
-
 -----
 
 ####  椎名mahuyo  
 ##### 3359#       发表于 2019-4-19 12:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弹幕狂刷就是了，夸哥玩lol单独B限的时候也是一堆人担忧最后屁事没有
-
-
-
-
-
 
 
 -----
@@ -6807,14 +4435,7 @@ dota不是100h入门么……别抱什么期待了
 ##### 3360#       发表于 2019-4-19 12:43
 
 
-
-
 建议和世界冠军斗鱼一哥联动赏饭。
-
-
-
-
-
 
 
 -----
@@ -6823,21 +4444,13 @@ dota不是100h入门么……别抱什么期待了
 ##### 3361#       发表于 2019-4-19 12:43
 
 
-
-
   DOTA2 铁粉其实比LOL粉丝严格多了，反正你菜就是菜 不管你是男还是女。
-
-
-
-
-
 
 
 -----
 
 ####  SchwarzeKatze  
 ##### 3362#       发表于 2019-4-19 12:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43366332&amp;ptid=1823171" target="_blank">Chia 发表于 2019-4-19 12:38</a>
@@ -6853,25 +4466,13 @@ DOTA2：玩过，有基础，弹幕大神门槛高
 还是DOTA2吧
 
 
-
-
-
-
-
 -----
 
 ####  zhacaizn  
 ##### 3363#       发表于 2019-4-19 12:47
 
 
-
-
 别到sg那种地方引流就好
-
-
-
-
-
 
 
 -----
@@ -6880,22 +4481,15 @@ DOTA2：玩过，有基础，弹幕大神门槛高
 ##### 3364#       发表于 2019-4-19 12:49
 
 
-
 <blockquote>zhacaizn 发表于 2019-4-19 12:47
 别到sg那种地方引流就好</blockquote>
 s1是怎么看傻狗论坛的呢，我还挺好奇的
-
-
-
-
-
 
 
 -----
 
 ####  北条早苗  
 ##### 3365#       发表于 2019-4-19 12:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43361885&amp;ptid=1823171" target="_blank">tiro_finale 发表于 2019-4-19 02:31</a>
@@ -6907,26 +4501,15 @@ s1是怎么看傻狗论坛的呢，我还挺好奇的
 最后就象征式的搞了半小时就关掉了，这工作交接我觉得不行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Mika-S  
 ##### 3366#       发表于 2019-4-19 12:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43366370&amp;ptid=1823171" target="_blank">SchwarzeKatze 发表于 2019-4-19 12:40</a>
 黄点的事就那么一说，希望有点准备吧。但是这几年dota2改动太大，afk时间几年的真不用对水平抱任 ...</blockquote>
 道理是这么个道理，我afk了两三年过年回去跟同学开黑感觉刀都不会补了。不过我还是觉得傻葵肯定做过复健有一定准备了，到时候看吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6935,15 +4518,9 @@ s1是怎么看傻狗论坛的呢，我还挺好奇的
 ##### 3367#       发表于 2019-4-19 12:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43366481&amp;ptid=1823171" target="_blank">Grasshopetrus 发表于 2019-4-19 12:49</a>
 s1是怎么看傻狗论坛的呢，我还挺好奇的</blockquote>
 粪海狂蛆啊，还能有啥别的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6952,15 +4529,9 @@ s1是怎么看傻狗论坛的呢，我还挺好奇的</blockquote>
 ##### 3368#       发表于 2019-4-19 12:57
 
 
-
 [https://twitter.com/ookamimio/status/1119084407824863232](https://twitter.com/ookamimio/status/1119084407824863232)
 
 你也来？你们是唱上瘾了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6969,13 +4540,7 @@ s1是怎么看傻狗论坛的呢，我还挺好奇的</blockquote>
 ##### 3369#       发表于 2019-4-19 12:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">五点钟先玩茶杯头正好当热手了，她这年纪反应和操作应该还是巅峰时期啊，奶一下补刀什么的应该问题不大
-
-
-
-
-
 
 
 -----
@@ -6984,15 +4549,9 @@ s1是怎么看傻狗论坛的呢，我还挺好奇的</blockquote>
 ##### 3370#       发表于 2019-4-19 13:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43366490&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-19 12:50</a>
 那不是肯定的吗，昨晚她这么兴奋的状态挺少见的，从北海道说到Vフェス，从CD说到四月一日家，还提到了skr ...</blockquote>
 从ラジオ状态一下子回归的时候居然不是在抠脚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7001,13 +4560,7 @@ s1是怎么看傻狗论坛的呢，我还挺好奇的</blockquote>
 ##### 3371#       发表于 2019-4-19 13:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">阿葵打dota2有没有节目效果我不知道，但弹幕一定很有节目效果
-
-
-
-
-
 
 
 -----
@@ -7016,14 +4569,7 @@ s1是怎么看傻狗论坛的呢，我还挺好奇的</blockquote>
 ##### 3372#       发表于 2019-4-19 13:19
 
 
-
-
 这游戏差两个版本就要重新适应吧，你们对向日葵有什么误解<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7032,15 +4578,9 @@ s1是怎么看傻狗论坛的呢，我还挺好奇的</blockquote>
 ##### 3373#       发表于 2019-4-19 13:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正肯定是9保1水友赛，你们这么担心干啥。
 
 天梯单排除非傻子王那水平不然真的没啥观赏性。
-
-
-
-
-
 
 
 -----
@@ -7049,15 +4589,9 @@ s1是怎么看傻狗论坛的呢，我还挺好奇的</blockquote>
 ##### 3374#       发表于 2019-4-19 13:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43366505&amp;ptid=1823171" target="_blank">Mika-S 发表于 2019-4-19 12:51</a>
  道理是这么个道理，我afk了两三年过年回去跟同学开黑感觉刀都不会补了。不过我还是觉得傻葵肯定做过复健 ...</blockquote>
 就第一次B限的表现我觉得她还真不一定做了复健
-
-
-
-
-
 
 
 -----
@@ -7066,14 +4600,8 @@ s1是怎么看傻狗论坛的呢，我还挺好奇的</blockquote>
 ##### 3375#       发表于 2019-4-19 14:10
 
 
-
 [https://www.youtube.com/watch?v=LTFNKjlGE3E](https://www.youtube.com/watch?v=LTFNKjlGE3E)
 <img src="https://pbs.twimg.com/media/D4V_gD5U0AEds_H?format=jpg&amp;name=orig" id="aimg_RTldQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-
-
-
-
-
 
 
 -----
@@ -7082,14 +4610,7 @@ s1是怎么看傻狗论坛的呢，我还挺好奇的</blockquote>
 ##### 3376#       发表于 2019-4-19 14:13
 
 
-
-
 凛这人设一直给我一种笹森トモエ老师笔下的人物的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7098,13 +4619,7 @@ s1是怎么看傻狗论坛的呢，我还挺好奇的</blockquote>
 ##### 3377#       发表于 2019-4-19 14:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么哈弟也在自走棋，你们这群人身为FPS玩家的尊严呢？
-
-
-
-
-
 
 
 -----
@@ -7113,14 +4628,7 @@ s1是怎么看傻狗论坛的呢，我还挺好奇的</blockquote>
 ##### 3378#       发表于 2019-4-19 14:59
 
 
-
-
 自走棋病毒严重蔓延
-
-
-
-
-
 
 
 -----
@@ -7129,19 +4637,13 @@ s1是怎么看傻狗论坛的呢，我还挺好奇的</blockquote>
 ##### 3379#       发表于 2019-4-19 15:12
 
 
-
-
 这电台竟然还有一个nico生放档，可以好好吸一下缺失好久的不死能量了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 [https://music.163.com/radio/?id=791954564](https://music.163.com/radio/?id=791954564)
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 6战斗力 +6
@@ -7156,12 +4658,7 @@ s1是怎么看傻狗论坛的呢，我还挺好奇的</blockquote>
 | SchwarzeKatze| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -7170,14 +4667,7 @@ s1是怎么看傻狗论坛的呢，我还挺好奇的</blockquote>
 ##### 3380#       发表于 2019-4-19 15:20
 
 
-
-
 25号雀魂工商，fbk+天开司
-
-
-
-
-
 
 
 -----
@@ -7186,14 +4676,7 @@ s1是怎么看傻狗论坛的呢，我还挺好奇的</blockquote>
 ##### 3381#       发表于 2019-4-19 15:51
 
 
-
-
 真正的中国女王 说来蛋蛋呢
-
-
-
-
-
 
 
 -----
@@ -7202,14 +4685,7 @@ s1是怎么看傻狗论坛的呢，我还挺好奇的</blockquote>
 ##### 3382#       发表于 2019-4-19 16:05
 
 
-
-
 没有蛋蛋不幸福（点哥哥不点头）
-
-
-
-
-
 
 
 -----
@@ -7218,14 +4694,7 @@ s1是怎么看傻狗论坛的呢，我还挺好奇的</blockquote>
 ##### 3383#       发表于 2019-4-19 16:08
 
 
-
-
 我也没看懂，雀魂日服官推第一个互动对象就是蛋蛋。感觉之后总会有相关活动的吧。
-
-
-
-
-
 
 
 -----
@@ -7234,14 +4703,7 @@ s1是怎么看傻狗论坛的呢，我还挺好奇的</blockquote>
 ##### 3384#       发表于 2019-4-19 16:26
 
 
-
-
 给你们看一下妹子打Dota的困难<img src="https://i.loli.net/2019/04/19/5cb985f80a12f.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7250,16 +4712,10 @@ s1是怎么看傻狗论坛的呢，我还挺好奇的</blockquote>
 ##### 3385#       发表于 2019-4-19 16:27
 
 
-
 [https://twitter.com/_KaguyaLuna/status/1119152741341810688](https://twitter.com/_KaguyaLuna/status/1119152741341810688)
 
 
 Luna日常迫害平田
-
-
-
-
-
 
 
 -----
@@ -7268,15 +4724,9 @@ Luna日常迫害平田
 ##### 3386#       发表于 2019-4-19 16:31
 
 
-
 <blockquote>夏溪澪mio 发表于 2019-4-19 16:26
 给你们看一下妹子打Dota的困难</blockquote>
 真是青春啊…
-
-
-
-
-
 
 
 -----
@@ -7285,22 +4735,15 @@ Luna日常迫害平田
 ##### 3387#       发表于 2019-4-19 16:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43369388&amp;ptid=1823171" target="_blank">神龙小生 发表于 2019-4-19 16:31</a>
 真是青春啊…</blockquote>
 重点是那句“看到是妹子寝室号就贼激动，盯着杀”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">盯着杀卧槽
-
-
-
-
-
 
 
 -----
 
 ####  胧楼  
 ##### 3388#       发表于 2019-4-19 16:34
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">姚老板估计对FBK比较熟悉吧 蛋蛋可能是因为.LIVE不许？
@@ -7311,26 +4754,15 @@ HOLO这中国大腿抱的真是舒服  AJ碧蓝雀魂BMLVR 爽死了
 老爱碧蓝联动一次出四个老爱 牌面拉满
 
 
-
-
-
-
-
 -----
 
 ####  FlinN  
 ##### 3389#       发表于 2019-4-19 16:38
 
 
-
  本帖最后由 FlinN 于 2019-4-19 16:39 编辑 
 
 <img src="https://i0.hdslb.com/bfs/album/9d726222edb0612bc8f1c89f9c643d4ff68579aa.png@518w_1e_1c.png" referrerpolicy="no-referrer">">）
-
-
-
-
-
 
 
 -----
@@ -7339,13 +4771,7 @@ HOLO这中国大腿抱的真是舒服  AJ碧蓝雀魂BMLVR 爽死了
 ##### 3390#       发表于 2019-4-19 16:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">很正常啊，身边不少刀狗碰到女玩家都兴奋的不得了——然后盯着喷盯着杀
-
-
-
-
-
 
 
 -----
@@ -7354,22 +4780,15 @@ HOLO这中国大腿抱的真是舒服  AJ碧蓝雀魂BMLVR 爽死了
 ##### 3391#       发表于 2019-4-19 16:46
 
 
-
 <img src="http://wx2.sinaimg.cn/large/403d45c1ly1g281dh0jntj20gc0la0ts.jpg" referrerpolicy="no-referrer">
 
 不容易啊 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3392#       发表于 2019-4-19 16:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43369482&amp;ptid=1823171" target="_blank">FlinN 发表于 2019-4-19 16:38</a>
@@ -7384,16 +4803,10 @@ gibara gibara gibara super chat　🎤（・▽・💠）
 gibara gibara 高収入　🎤（・▽・💠）
 
 
-
-
-
-
-
 -----
 
 ####  SchwarzeKatze  
 ##### 3393#       发表于 2019-4-19 16:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43369413&amp;ptid=1823171" target="_blank">夏溪澪mio 发表于 2019-4-19 16:33</a>
@@ -7402,16 +4815,10 @@ gibara gibara 高収入　🎤（・▽・💠）
 前两条还可以解释成网上人妖多PTSD，最后那个......实在是小学生水平<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  potwater  
 ##### 3394#       发表于 2019-4-19 16:53
-
 
 
 [https://twitter.com/AniMare_cafe/status/1119145534252441602](https://twitter.com/AniMare_cafe/status/1119145534252441602)
@@ -7419,16 +4826,10 @@ gibara gibara 高収入　🎤（・▽・💠）
 啊？
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3395#       发表于 2019-4-19 16:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43369683&amp;ptid=1823171" target="_blank">potwater 发表于 2019-4-19 16:53</a>
@@ -7442,16 +4843,10 @@ https://twitter.com/AniMare_cafe/status/1119145534252441602
 お稲荷!?
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 3396#       发表于 2019-4-19 16:57
-
 
 
 <blockquote>いつかの自分 发表于 2019-4-19 16:54
@@ -7462,17 +4857,10 @@ https://twitter.com/AniMare_cafe/status/1119145534252441602
 ！？
 
 
-
-
-
-
-
 -----
 
 ####  空虚澄璃色  
 ##### 3397#       发表于 2019-4-19 16:58
-
-
 
 
 熊猫人式隐退？
@@ -7480,16 +4868,10 @@ https://twitter.com/AniMare_cafe/status/1119145534252441602
 —— 来自 Xiaomi MIX 2, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
 
 
-
-
-
-
-
 -----
 
 ####  lhawp  
 ##### 3398#       发表于 2019-4-19 16:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43369350&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-19 16:27</a>
@@ -7501,17 +4883,10 @@ Luna日常迫害平田</blockquote>
 后半的本音完全就是P丸
 
 
-
-
-
-
-
 -----
 
 ####  空虚澄璃色  
 ##### 3399#       发表于 2019-4-19 16:59
-
-
 
 
 前面那个gibara的梗没get到
@@ -7519,16 +4894,10 @@ Luna日常迫害平田</blockquote>
 —— 来自 Xiaomi MIX 2, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 3400#       发表于 2019-4-19 16:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43369750&amp;ptid=1823171" target="_blank">空虚澄璃色 发表于 2019-4-19 16:59</a>
@@ -7538,16 +4907,10 @@ Luna日常迫害平田</blockquote>
 搜gibara之歌
 
 
-
-
-
-
-
 -----
 
 ####  proxima  
 ##### 3401#       发表于 2019-4-19 16:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43369683&amp;ptid=1823171" target="_blank">potwater 发表于 2019-4-19 16:53</a>
@@ -7558,27 +4921,15 @@ https://twitter.com/AniMare_cafe/status/1119145534252441602
 别告诉我说的是韩国旅游的蝙蝠妹<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  空虚澄璃色  
 ##### 3402#       发表于 2019-4-19 17:00
 
 
-
-
 gibara之歌知道，是想知道和men project的关系
 
 —— 来自 Xiaomi MIX 2, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
-
-
-
-
-
 
 
 -----
@@ -7587,15 +4938,8 @@ gibara之歌知道，是想知道和men project的关系
 ##### 3403#       发表于 2019-4-19 17:07
 
 
-
-
 11岁诚不欺我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://pbs.twimg.com/media/D4bSQ7zUUAA_nw2?format=jpg&amp;name=orig" id="aimg_IztaV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-
-
-
-
-
 
 
 -----
@@ -7604,21 +4948,13 @@ gibara之歌知道，是想知道和men project的关系
 ##### 3404#       发表于 2019-4-19 17:09
 
 
-
-
 小夜到底是什么环境 她和不死人应该差不多大 可能稍微大一点 大学生宿舍会有舍监吗<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3405#       发表于 2019-4-19 17:10
-
 
 
  本帖最后由 いつかの自分 于 2019-4-19 17:15 编辑 
@@ -7634,16 +4970,10 @@ gibara之歌知道，是想知道和men project的关系
 [ソース](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1823171&amp;pid=43292414)貼っとくね
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 3406#       发表于 2019-4-19 17:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43369683&amp;ptid=1823171" target="_blank">potwater 发表于 2019-4-19 16:53</a>
@@ -7654,25 +4984,13 @@ https://twitter.com/AniMare_cafe/status/1119145534252441602
 anmr要复兴了吗
 
 
-
-
-
-
-
 -----
 
 ####  soranoguiji  
 ##### 3407#       发表于 2019-4-19 17:22
 
 
-
-
 什么红狐狸要回来了？夸哥通宵又有伴了
-
-
-
-
-
 
 
 -----
@@ -7681,16 +4999,9 @@ anmr要复兴了吗
 ##### 3408#       发表于 2019-4-19 17:24
 
 
-
-
 anmr最近全员萎靡，是要靠复刻某人的反复横跳来中兴吗
 
 但仔细想想当时分手并不愉快，和那边情况很不一样啊
-
-
-
-
-
 
 
 -----
@@ -7699,15 +5010,9 @@ anmr最近全员萎靡，是要靠复刻某人的反复横跳来中兴吗
 ##### 3409#       发表于 2019-4-19 17:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">结果是1代目ななし(
 
 就算是お稲荷回来，箱推力也不会有什么变化吧
-
-
-
-
-
 
 
 -----
@@ -7716,13 +5021,7 @@ anmr最近全员萎靡，是要靠复刻某人的反复横跳来中兴吗
 ##### 3410#       发表于 2019-4-19 17:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">去朝鲜旅游的蝙蝠妹回来了吧
-
-
-
-
-
 
 
 -----
@@ -7731,22 +5030,15 @@ anmr最近全员萎靡，是要靠复刻某人的反复横跳来中兴吗
 ##### 3411#       发表于 2019-4-19 17:29
 
 
-
 [https://www.youtube.com/watch?v=2S9uVQTaE_0](https://www.youtube.com/watch?v=2S9uVQTaE_0)
 
 史莱姆
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3412#       发表于 2019-4-19 17:40
-
 
 
 [https://twitter.com/MitoTsukino/status/1119173187512586240](https://twitter.com/MitoTsukino/status/1119173187512586240)
@@ -7756,16 +5048,10 @@ anmr最近全员萎靡，是要靠复刻某人的反复横跳来中兴吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  FlinN  
 ##### 3413#       发表于 2019-4-19 17:50
-
 
 
 <blockquote>空虚澄璃色 发表于 2019-4-19 17:00
@@ -7776,26 +5062,15 @@ gibara之歌知道，是想知道和men project的关系
 点开天宫那位 就能Get到了
 
 
-
-
-
-
-
 -----
 
 ####  空虚澄璃色  
 ##### 3414#       发表于 2019-4-19 17:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">这个好
 
 —— 来自 Xiaomi MIX 2, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
-
-
-
-
-
 
 
 -----
@@ -7804,21 +5079,13 @@ gibara之歌知道，是想知道和men project的关系
 ##### 3415#       发表于 2019-4-19 17:56
 
 
-
-
 蝙蝠妹怎么跟江良勾搭起来了
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3416#       发表于 2019-4-19 17:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43370363&amp;ptid=1823171" target="_blank">椎名mahuyo 发表于 2019-4-19 17:56</a>
@@ -7830,16 +5097,10 @@ gibara之歌知道，是想知道和men project的关系
 这可能就是偶像大师的力量
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3417#       发表于 2019-4-19 17:59
-
 
 
 [https://twitcasting.tv/midori_2434](https://twitcasting.tv/midori_2434)
@@ -7848,25 +5109,13 @@ gibara之歌知道，是想知道和men project的关系
 緑仙　歌ゲリラ
 
 
-
-
-
-
-
 -----
 
 ####  Igarashi  
 ##### 3418#       发表于 2019-4-19 18:01
 
 
-
-
 nns那个应该只是蝙蝠妹回来了吧
-
-
-
-
-
 
 
 -----
@@ -7875,22 +5124,15 @@ nns那个应该只是蝙蝠妹回来了吧
 ##### 3419#       发表于 2019-4-19 18:04
 
 
-
 [https://chokaigi.jp/2019/plan/bilibilivtuberstage.html](https://chokaigi.jp/2019/plan/bilibilivtuberstage.html)
 
 aqua加上ホロ是怕被当作にじ的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3420#       发表于 2019-4-19 18:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43370446&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-19 18:04</a>
@@ -7901,25 +5143,13 @@ aqua加上ホロ是怕被当作にじ的吗 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  “以前经常搜2434出来阿夸 她怎么是hololive的阿？”
 
 
-
-
-
-
-
 -----
 
 ####  Igarashi  
 ##### 3421#       发表于 2019-4-19 18:08
 
 
-
-
 这个（ホロライブ）真的很有灵性
-
-
-
-
-
 
 
 -----
@@ -7928,14 +5158,7 @@ aqua加上ホロ是怕被当作にじ的吗 ...</blockquote>
 ##### 3422#       发表于 2019-4-19 18:11
 
 
-
-
 MEM这边的b限是6点到了但还是调试中…
-
-
-
-
-
 
 
 -----
@@ -7944,22 +5167,15 @@ MEM这边的b限是6点到了但还是调试中…
 ##### 3423#       发表于 2019-4-19 18:12
 
 
-
 [https://www.nicovideo.jp/watch/sm29642276](https://www.nicovideo.jp/watch/sm29642276)
 
 パコレ？
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3424#       发表于 2019-4-19 18:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43370522&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-19 18:12</a>
@@ -7970,25 +5186,13 @@ https://www.nicovideo.jp/watch/sm29642276
 听说昨天就挖出来了   唱个歌就特定 得劲
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 3425#       发表于 2019-4-19 18:19
 
 
-
-
 这holo真的是抱着中国狂吃啊
-
-
-
-
-
 
 
 -----
@@ -7997,13 +5201,11 @@ https://www.nicovideo.jp/watch/sm29642276
 ##### 3426#       发表于 2019-4-19 18:20
 
 
-
  本帖最后由 いつかの自分 于 2019-4-19 18:27 编辑 
 
 [https://www.youtube.com/watch?v=MLqHjxmW_fI](https://www.youtube.com/watch?v=MLqHjxmW_fI)
 
 青高新人吐槽役么
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/19/182708sku33e2qwp8gplzw.png" referrerpolicy="no-referrer">
@@ -8016,24 +5218,13 @@ https://www.nicovideo.jp/watch/sm29642276
 2019-4-19 18:27 上传
 
 
-
-
-
-
-
 痛そう…
-
-
-
-
-
 
 
 -----
 
 ####  宫藤芳佳  
 ##### 3427#       发表于 2019-4-19 18:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43370522&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-19 18:12</a>
@@ -8044,33 +5235,20 @@ https://www.nicovideo.jp/watch/sm29642276
 看了下mylist 选曲挺对我胃口的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Porsche  
 ##### 3428#       发表于 2019-4-19 18:27
 
 
-
-
 部长投稿了
 无视发生过<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  wingzerocos  
 ##### 3429#       发表于 2019-4-19 18:28
-
 
 
  本帖最后由 wingzerocos 于 2019-4-19 18:31 编辑 
@@ -8083,16 +5261,10 @@ aqua加上ホロ是怕被当作にじ的吗 ...</blockquote>
 仔细看了下，对话那边应该是除了2434全都写了所属。
 
 
-
-
-
-
-
 -----
 
 ####  tiro_finale  
 ##### 3430#       发表于 2019-4-19 18:28
-
 
 
  本帖最后由 tiro_finale 于 2019-4-19 02:37 编辑 
@@ -8112,25 +5284,13 @@ aqua加上ホロ是怕被当作にじ的吗 ...</blockquote>
 2019-4-19 18:36 上传
 
 
-
-
-
-
-
 最近OBS好容易出问题
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3431#       发表于 2019-4-19 18:49
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/19/184938nqeu2z2rq1r1lzrq.jpg" referrerpolicy="no-referrer">
@@ -8143,22 +5303,10 @@ aqua加上ホロ是怕被当作にじ的吗 ...</blockquote>
 2019-4-19 18:49 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3432#       发表于 2019-4-19 18:54
-
-
 
 
 Mugi
@@ -8169,26 +5317,15 @@ Mugi
 にじ３Dおひろめです～
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 3433#       发表于 2019-4-19 18:58
 
 
-
 <blockquote>いつかの自分 发表于 2019-4-19 18:49
 </blockquote>
 上海二次三次尸骨未寒…
-
-
-
-
-
 
 
 -----
@@ -8197,22 +5334,15 @@ Mugi
 ##### 3434#       发表于 2019-4-19 19:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43371018&amp;ptid=1823171" target="_blank">神龙小生 发表于 2019-4-19 18:58</a>
 上海二次三次尸骨未寒…</blockquote>
 就是要搞所以上海s二次三次必须死
-
-
-
-
-
 
 
 -----
 
 ####  神龙小生  
 ##### 3435#       发表于 2019-4-19 19:06
-
 
 
  本帖最后由 神龙小生 于 2019-4-19 19:08 编辑 
@@ -8224,26 +5354,15 @@ Mugi
 说来这新企划名字直接又是虚拟现实，马盯六人团用这名字才过去不久。
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 3436#       发表于 2019-4-19 19:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43371109&amp;ptid=1823171" target="_blank">神龙小生 发表于 2019-4-19 19:06</a>
 嘛祝愿他们不会成为二次惨事吧。</blockquote>
 我感觉不成惨事有点难
-
-
-
-
-
 
 
 -----
@@ -8252,14 +5371,8 @@ Mugi
 ##### 3437#       发表于 2019-4-19 19:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43370916&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-19 18:49</a></blockquote>
 二次惨事预感
-
-
-
-
-
 
 
 -----
@@ -8268,23 +5381,15 @@ Mugi
 ##### 3438#       发表于 2019-4-19 19:16
 
 
-
-
 戌亥「三枝歌うまい」
 
 　　「love is overの時めっちゃくすくすしてた」
-
-
-
-
-
 
 
 -----
 
 ####  北条早苗  
 ##### 3439#       发表于 2019-4-19 19:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43370696&amp;ptid=1823171" target="_blank">tiro_finale 发表于 2019-4-19 18:28</a>
@@ -8295,34 +5400,20 @@ https://www.youtube.com/watch?v=1v_lPDw963I
 好像是升级了的原因？昨天小狐狸关不了直播，小学生自动开台，空妈和hh也碰到直播故障
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 3440#       发表于 2019-4-19 19:17
 
 
-
-
 hnst上超会议 holo上超bilibili 
 holo牌面输了
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3441#       发表于 2019-4-19 19:29
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/19/192859yu5ggnn5zpxunrxw.jpg" referrerpolicy="no-referrer">
@@ -8335,16 +5426,7 @@ holo牌面输了
 2019-4-19 19:28 上传
 
 
-
-
-
-
 [https://twitter.com/RKMusic_inc/status/1119194405804527616](https://twitter.com/RKMusic_inc/status/1119194405804527616)
-
-
-
-
-
 
 
 -----
@@ -8353,20 +5435,13 @@ holo牌面输了
 ##### 3442#       发表于 2019-4-19 19:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">INUI下了炼金那边人数没怎么动啊
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3443#       发表于 2019-4-19 19:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43371536&amp;ptid=1823171" target="_blank">SchwarzeKatze 发表于 2019-4-19 19:46</a>
@@ -8378,17 +5453,10 @@ INUI下了炼金那边人数没怎么动啊</blockquote>
 inui粉可能已经和二人组群体不太一样了
 
 
-
-
-
-
-
 -----
 
 ####  ScarletMoon  
 ##### 3444#       发表于 2019-4-19 19:53
-
-
 
 
 为什么炼金杂谈配信这么多啊……你们前世不是实况者吗
@@ -8396,16 +5464,10 @@ inui粉可能已经和二人组群体不太一样了
 皇女因为是皇军还能理解
 
 
-
-
-
-
-
 -----
 
 ####  午前二时野猫  
 ##### 3445#       发表于 2019-4-19 19:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43371619&amp;ptid=1823171" target="_blank">ScarletMoon 发表于 2019-4-19 19:53</a>
@@ -8418,25 +5480,13 @@ inui粉可能已经和二人组群体不太一样了
 慢慢往外掏东西。
 
 
-
-
-
-
-
 -----
 
 ####  nimravus  
 ##### 3446#       发表于 2019-4-19 19:56
 
 
-
-
 vreal这个问了一下b站朋友好像是属于b自己的亲儿子
-
-
-
-
-
 
 
 -----
@@ -8445,13 +5495,7 @@ vreal这个问了一下b站朋友好像是属于b自己的亲儿子
 ##### 3447#       发表于 2019-4-19 19:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">  蛋蛋最后这叫的..我好了
-
-
-
-
-
 
 
 -----
@@ -8460,23 +5504,16 @@ vreal这个问了一下b站朋友好像是属于b自己的亲儿子
 ##### 3448#       发表于 2019-4-19 19:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43371644&amp;ptid=1823171" target="_blank">nimravus 发表于 2019-4-19 19:56</a>
 
 vreal这个问了一下b站朋友好像是属于b自己的亲儿子</blockquote>
 亲儿子阿  那如果抽个SSR说不定有机会呢  毕竟引流问题不用担心了
 
 
-
-
-
-
-
 -----
 
 ####  SchwarzeKatze  
 ##### 3449#       发表于 2019-4-19 19:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43371555&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-19 19:48</a>
@@ -8488,16 +5525,10 @@ inui粉可能已经和二人组群体不太一样了</blockquote>
 捆绑营业再评价？或者说实质上本来也没什么捆绑营业。INUI出道一个月唱歌回6k+，杂谈回4k，游戏回不到2k。她本人对游戏直播也不是很上心做的感觉。这样下去粉丝群确实要跟红蓝组区别开并且固定下来了
 
 
-
-
-
-
-
 -----
 
 ####  SchwarzeKatze  
 ##### 3450#       发表于 2019-4-19 20:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43371638&amp;ptid=1823171" target="_blank">午前二时野猫 发表于 2019-4-19 19:56</a>
@@ -8508,26 +5539,15 @@ inui粉可能已经和二人组群体不太一样了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看了gibara就觉得这种兜里有货慢慢掏的思路其实有待商榷啊
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 3451#       发表于 2019-4-19 20:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43371700&amp;ptid=1823171" target="_blank">SchwarzeKatze 发表于 2019-4-19 20:01</a>
 看了gibara就觉得这种兜里有货慢慢掏的思路其实有待商榷啊</blockquote>
 打地基也没错吧，稳定客群
-
-
-
-
-
 
 
 -----
@@ -8536,16 +5556,9 @@ inui粉可能已经和二人组群体不太一样了</blockquote>
 ##### 3452#       发表于 2019-4-19 20:05
 
 
-
-
 ひま：アンチめじいいね
 
 ？？？
-
-
-
-
-
 
 
 -----
@@ -8554,14 +5567,7 @@ inui粉可能已经和二人组群体不太一样了</blockquote>
 ##### 3453#       发表于 2019-4-19 20:06
 
 
-
-
 傻葵是在大圣之前玩的啊...那真的有点久了
-
-
-
-
-
 
 
 -----
@@ -8570,16 +5576,10 @@ inui粉可能已经和二人组群体不太一样了</blockquote>
 ##### 3454#       发表于 2019-4-19 20:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43371644&amp;ptid=1823171" target="_blank">nimravus 发表于 2019-04-19 19:56:49</a>
 vreal这个问了一下b站朋友好像是属于b自己的亲儿子</blockquote>亲儿子还行，那背后支援大概少不了
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -8588,16 +5588,10 @@ vreal这个问了一下b站朋友好像是属于b自己的亲儿子</blockquote>
 ##### 3455#       发表于 2019-4-19 20:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43371729&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-19 20:03</a>
 
 打地基也没错吧，稳定客群</blockquote>
 两种思路吧。gibara那种一开始全力扩张圈人的方式还是很有借鉴价值
-
-
-
-
-
 
 
 -----
@@ -8606,21 +5600,13 @@ vreal这个问了一下b站朋友好像是属于b自己的亲儿子</blockquote>
 ##### 3456#       发表于 2019-4-19 20:08
 
 
-
-
 Antimeijiいいね<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  午前二时野猫  
 ##### 3457#       发表于 2019-4-19 20:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43371700&amp;ptid=1823171" target="_blank">SchwarzeKatze 发表于 2019-4-19 20:01</a>
@@ -8631,16 +5617,10 @@ Antimeijiいいね<img src="https://static.saraba1st.com/image/smiley/face2017/0
 当然2g要是不那么素，那真的是心很大了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3458#       发表于 2019-4-19 20:11
-
 
 
 [https://www.youtube.com/watch?v=13iddswFRsA](https://www.youtube.com/watch?v=13iddswFRsA)
@@ -8652,25 +5632,13 @@ Antimeijiいいね<img src="https://static.saraba1st.com/image/smiley/face2017/0
 ちまも見るのだ
 
 
-
-
-
-
-
 -----
 
 ####  水原薰  
 ##### 3459#       发表于 2019-4-19 20:12
 
 
-
-
 还真有狙到傻葵的，草，连分数都不知道到底是怎么排到的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8679,14 +5647,7 @@ Antimeijiいいね<img src="https://static.saraba1st.com/image/smiley/face2017/0
 ##### 3460#       发表于 2019-4-19 20:13
 
 
-
-
 这什么破阵容
-
-
-
-
-
 
 
 -----
@@ -8695,15 +5656,9 @@ Antimeijiいいね<img src="https://static.saraba1st.com/image/smiley/face2017/0
 ##### 3461#       发表于 2019-4-19 20:14
 
 
-
 <blockquote>水原薰 发表于 2019-4-19 20:12
 还真有狙到傻葵的，草，连分数都不知道到底是怎么排到的</blockquote>
 不是天梯的话 匹配只要隐藏mmr撞上就好了
-
-
-
-
-
 
 
 -----
@@ -8712,14 +5667,7 @@ Antimeijiいいね<img src="https://static.saraba1st.com/image/smiley/face2017/0
 ##### 3462#       发表于 2019-4-19 20:14
 
 
-
-
 日服排到的全是国人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8728,16 +5676,10 @@ Antimeijiいいね<img src="https://static.saraba1st.com/image/smiley/face2017/0
 ##### 3463#       发表于 2019-4-19 20:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43371774&amp;ptid=1823171" target="_blank">SchwarzeKatze 发表于 2019-4-19 20:06</a>
 两种思路吧。gibara那种一开始全力扩张圈人的方式还是很有借鉴价值</blockquote>
 她就是在钢丝线上跳舞，不能提供同等的刺激被圈进来的人能不能坚持也是个问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 inui的话，还是那句话能说明，いぬいどんどんすきになる
-
-
-
-
-
 
 
 -----
@@ -8746,14 +5688,7 @@ inui的话，还是那句话能说明，いぬいどんどんすきになる
 ##### 3464#       发表于 2019-4-19 20:16
 
 
-
-
 傻葵唱屑女仆的角色曲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8762,13 +5697,7 @@ inui的话，还是那句话能说明，いぬいどんどんすきになる
 ##### 3465#       发表于 2019-4-19 20:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看得出来，傻葵确实是很久没玩了
-
-
-
-
-
 
 
 -----
@@ -8777,21 +5706,13 @@ inui的话，还是那句话能说明，いぬいどんどんすきになる
 ##### 3466#       发表于 2019-4-19 20:19
 
 
-
-
 应该是N局<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  potwater  
 ##### 3467#       发表于 2019-4-19 20:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43371774&amp;ptid=1823171" target="_blank">SchwarzeKatze 发表于 2019-4-19 20:06</a>
@@ -8802,25 +5723,13 @@ inui的话，还是那句话能说明，いぬいどんどんすきになる
 即便是当时已经在观众群稳定下来的椎名，实况去皮伊所吸引来的一堆新参也让她的评论栏乱了不少。
 
 
-
-
-
-
-
 -----
 
 ####  午前二时野猫  
 ##### 3468#       发表于 2019-4-19 20:20
 
 
-
-
 6000局OMG选手表示看上去挺菜的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8829,21 +5738,13 @@ inui的话，还是那句话能说明，いぬいどんどんすきになる
 ##### 3469#       发表于 2019-4-19 20:24
 
 
-
-
 今天战斗吧歌姬新人之前唱歌了么？
-
-
-
-
-
 
 
 -----
 
 ####  SchwarzeKatze  
 ##### 3470#       发表于 2019-4-19 20:26
-
 
 
  本帖最后由 SchwarzeKatze 于 2019-4-19 20:29 编辑 
@@ -8858,27 +5759,15 @@ inui的话，还是那句 ...</blockquote>
 算了不讨论这个了没什么意思，看直播了
 
 
-
-
-
-
-
 -----
 
 ####  ScarletMoon  
 ##### 3471#       发表于 2019-4-19 20:27
 
 
-
-
 今天人气值要上50万了啊
 
 相当成功啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8887,13 +5776,7 @@ inui的话，还是那句 ...</blockquote>
 ##### 3472#       发表于 2019-4-19 20:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这伐木机菜成马了，这把估计是没了
-
-
-
-
-
 
 
 -----
@@ -8902,14 +5785,7 @@ inui的话，还是那句 ...</blockquote>
 ##### 3473#       发表于 2019-4-19 20:28
 
 
-
-
 chima以后周五晚8-10点有时候会有时间直播<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8918,15 +5794,9 @@ chima以后周五晚8-10点有时候会有时间直播<img src="https://static.s
 ##### 3474#       发表于 2019-4-19 20:29
 
 
-
  本帖最后由 Grasshopetrus 于 2019-4-19 20:43 编辑 
 
 意思是冰女能带动了 果然看阵容没卵用
-
-
-
-
-
 
 
 -----
@@ -8935,13 +5805,7 @@ chima以后周五晚8-10点有时候会有时间直播<img src="https://static.s
 ##### 3475#       发表于 2019-4-19 20:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这天怒故意的吧
-
-
-
-
-
 
 
 -----
@@ -8950,14 +5814,7 @@ chima以后周五晚8-10点有时候会有时间直播<img src="https://static.s
 ##### 3476#       发表于 2019-4-19 20:31
 
 
-
-
 。。。。战斗吧歌姬这首波斯猫，我总觉得我老了
-
-
-
-
-
 
 
 -----
@@ -8966,16 +5823,10 @@ chima以后周五晚8-10点有时候会有时间直播<img src="https://static.s
 ##### 3477#       发表于 2019-4-19 20:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372059&amp;ptid=1823171" target="_blank">zhicai618 发表于 2019-4-19 20:31</a>
 
 。。。。战斗吧歌姬这首波斯猫，我总觉得我老了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer"> 唱完了  悲
-
-
-
-
-
 
 
 -----
@@ -8984,14 +5835,7 @@ chima以后周五晚8-10点有时候会有时间直播<img src="https://static.s
 ##### 3478#       发表于 2019-4-19 20:34
 
 
-
-
 傻葵感觉除了好久没玩了水平还是可以啊，技能放的都还行，还知道躲树林<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9000,15 +5844,9 @@ chima以后周五晚8-10点有时候会有时间直播<img src="https://static.s
 ##### 3479#       发表于 2019-4-19 20:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372086&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-19 20:33</a>
 唱完了  悲</blockquote>
 。。咋说呢，挺好听的，但是听起来就是觉得自己老了
-
-
-
-
-
 
 
 -----
@@ -9017,13 +5855,7 @@ chima以后周五晚8-10点有时候会有时间直播<img src="https://static.s
 ##### 3480#       发表于 2019-4-19 20:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">节目效果相当到位好吧
-
-
-
-
-
 
 
 -----
@@ -9032,13 +5864,7 @@ chima以后周五晚8-10点有时候会有时间直播<img src="https://static.s
 ##### 3481#       发表于 2019-4-19 20:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鱼塘局反而能打的有来有回，挺不错的
-
-
-
-
-
 
 
 -----
@@ -9047,14 +5873,7 @@ chima以后周五晚8-10点有时候会有时间直播<img src="https://static.s
 ##### 3482#       发表于 2019-4-19 20:39
 
 
-
-
 别说 傻葵虽然连天赋都不懂，但是感觉还是比队友厉害....
-
-
-
-
-
 
 
 -----
@@ -9063,16 +5882,10 @@ chima以后周五晚8-10点有时候会有时间直播<img src="https://static.s
 ##### 3483#       发表于 2019-4-19 20:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372113&amp;ptid=1823171" target="_blank">zhicai618 发表于 2019-4-19 20:35</a>
 
 。。咋说呢，挺好听的，但是听起来就是觉得自己老了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 你想想她们都三十后半了  会不会觉得自己年轻了一点  　　比較的
-
-
-
-
-
 
 
 -----
@@ -9081,16 +5894,10 @@ chima以后周五晚8-10点有时候会有时间直播<img src="https://static.s
 ##### 3484#       发表于 2019-4-19 20:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">天赋不点经验书不吃，我信你几年没玩了
 
 
 蓝胖NB
-
-
-
-
-
 
 
 -----
@@ -9099,14 +5906,7 @@ chima以后周五晚8-10点有时候会有时间直播<img src="https://static.s
 ##### 3485#       发表于 2019-4-19 20:43
 
 
-
-
 傻葵现在b限这么强了么，人气已经是顶级水平了。
-
-
-
-
-
 
 
 -----
@@ -9115,13 +5915,7 @@ chima以后周五晚8-10点有时候会有时间直播<img src="https://static.s
 ##### 3486#       发表于 2019-4-19 20:44
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">大家为了节目效果都在演啊，温柔的葵熊们
-
-
-
-
-
 
 
 -----
@@ -9130,22 +5924,15 @@ chima以后周五晚8-10点有时候会有时间直播<img src="https://static.s
 ##### 3487#       发表于 2019-4-19 20:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372175&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-19 20:41</a>
 你想想她们都三十后半了  会不会觉得自己年轻了一点  　　比較的</blockquote>
 。。那感觉邓丽君就快来了
-
-
-
-
-
 
 
 -----
 
 ####  SchwarzeKatze  
 ##### 3488#       发表于 2019-4-19 20:45
-
 
 
  本帖最后由 SchwarzeKatze 于 2019-4-19 20:47 编辑 
@@ -9155,16 +5942,10 @@ chima以后周五晚8-10点有时候会有时间直播<img src="https://static.s
 傻葵+DOTA2这波算是传说了，传了不知道多长时间才放出来这一次B限，人气高可以预想到但是没想到这么高
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3489#       发表于 2019-4-19 20:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372191&amp;ptid=1823171" target="_blank">锟斤拷 发表于 2019-4-19 20:43</a>
@@ -9173,25 +5954,13 @@ chima以后周五晚8-10点有时候会有时间直播<img src="https://static.s
 傻葵+DOTA2 是这样的
 
 
-
-
-
-
-
 -----
 
 ####  胡桃丶  
 ##### 3490#       发表于 2019-4-19 20:46
 
 
-
-
 节目效果真不错啊。以后开B限全部打D2就足够了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9200,16 +5969,10 @@ chima以后周五晚8-10点有时候会有时间直播<img src="https://static.s
 ##### 3491#       发表于 2019-4-19 20:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372191&amp;ptid=1823171" target="_blank">锟斤拷 发表于 2019-4-19 20:43</a>
 
 傻葵现在b限这么强了么，人气已经是顶级水平了。</blockquote>
 游戏加成+置顶广告位加成吧
-
-
-
-
-
 
 
 -----
@@ -9218,14 +5981,7 @@ chima以后周五晚8-10点有时候会有时间直播<img src="https://static.s
 ##### 3492#       发表于 2019-4-19 20:47
 
 
-
-
 这bkb就是不开看得我好着急啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9234,21 +5990,13 @@ chima以后周五晚8-10点有时候会有时间直播<img src="https://static.s
 ##### 3493#       发表于 2019-4-19 20:51
 
 
-
-
 大哥蓝胖，出个圣剑上高吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  野中萌好蓝  
 ##### 3494#       发表于 2019-4-19 20:51
-
 
 
  本帖最后由 野中萌好蓝 于 2019-4-19 20:52 编辑 
@@ -9260,16 +6008,10 @@ chima以后周五晚8-10点有时候会有时间直播<img src="https://static.s
 干，刚说完突然想起来插眼了
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3495#       发表于 2019-4-19 20:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372261&amp;ptid=1823171" target="_blank">野中萌好蓝 发表于 2019-4-19 20:51</a>
@@ -9278,25 +6020,13 @@ chima以后周五晚8-10点有时候会有时间直播<img src="https://static.s
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">　刚说就插了
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 3496#       发表于 2019-4-19 20:53
 
 
-
-
 刀狗今天疯狂自发宣传好不好<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9305,16 +6035,10 @@ chima以后周五晚8-10点有时候会有时间直播<img src="https://static.s
 ##### 3497#       发表于 2019-4-19 20:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这波知道BKB留着干什么用了？
 
 
 DD符还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9323,13 +6047,7 @@ DD符还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png"
 ##### 3498#       发表于 2019-4-19 20:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">强 阿葵 强
-
-
-
-
-
 
 
 -----
@@ -9338,14 +6056,7 @@ DD符还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png"
 ##### 3499#       发表于 2019-4-19 20:55
 
 
-
-
 战斗吧歌姬。。she专场。我刚才还想会不会出super star呢，这就来了
-
-
-
-
-
 
 
 -----
@@ -9354,13 +6065,7 @@ DD符还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png"
 ##### 3500#       发表于 2019-4-19 20:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 里是电里是光..
-
-
-
-
-
 
 
 -----
@@ -9369,14 +6074,7 @@ DD符还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png"
 ##### 3501#       发表于 2019-4-19 20:56
 
 
-
-
 Super Star 来了   不过歌姬不是一直是动不动老年歌会么  
-
-
-
-
-
 
 
 -----
@@ -9385,13 +6083,7 @@ Super Star 来了   不过歌姬不是一直是动不动老年歌会么  
 ##### 3502#       发表于 2019-4-19 20:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">完美跳大
-
-
-
-
-
 
 
 -----
@@ -9400,14 +6092,7 @@ Super Star 来了   不过歌姬不是一直是动不动老年歌会么  
 ##### 3503#       发表于 2019-4-19 20:59
 
 
-
-
 好啄啊 交啄
-
-
-
-
-
 
 
 -----
@@ -9416,14 +6101,7 @@ Super Star 来了   不过歌姬不是一直是动不动老年歌会么  
 ##### 3504#       发表于 2019-4-19 20:59
 
 
-
-
 不想长大和中国话安排上了么。。
-
-
-
-
-
 
 
 -----
@@ -9432,14 +6110,7 @@ Super Star 来了   不过歌姬不是一直是动不动老年歌会么  
 ##### 3505#       发表于 2019-4-19 21:01
 
 
-
-
 都55万了，牛掰
-
-
-
-
-
 
 
 -----
@@ -9448,14 +6119,7 @@ Super Star 来了   不过歌姬不是一直是动不动老年歌会么  
 ##### 3506#       发表于 2019-4-19 21:02
 
 
-
-
 居然赢了，草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9464,16 +6128,10 @@ Super Star 来了   不过歌姬不是一直是动不动老年歌会么  
 ##### 3507#       发表于 2019-4-19 21:02
 
 
-
 [https://www.youtube.com/watch?v=E-bSeJeZXBk](https://www.youtube.com/watch?v=E-bSeJeZXBk)
 
 
 緑仙　脱がされる
-
-
-
-
-
 
 
 -----
@@ -9482,14 +6140,7 @@ Super Star 来了   不过歌姬不是一直是动不动老年歌会么  
 ##### 3508#       发表于 2019-4-19 21:02
 
 
-
-
 bkb躲lion大  可以
-
-
-
-
-
 
 
 -----
@@ -9498,14 +6149,7 @@ bkb躲lion大  可以
 ##### 3509#       发表于 2019-4-19 21:02
 
 
-
-
 一把下来看得出明显有底子，不过应该是好久没玩了
-
-
-
-
-
 
 
 -----
@@ -9514,13 +6158,7 @@ bkb躲lion大  可以
 ##### 3510#       发表于 2019-4-19 21:02
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">SKNB，粉了
-
-
-
-
-
 
 
 -----
@@ -9529,13 +6167,7 @@ bkb躲lion大  可以
 ##### 3511#       发表于 2019-4-19 21:02
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我们是冠军
-
-
-
-
-
 
 
 -----
@@ -9544,14 +6176,7 @@ bkb躲lion大  可以
 ##### 3512#       发表于 2019-4-19 21:02
 
 
-
-
 只能说彩虹牛逼，王牌机师来次主页就有引流，holo你行不行啊
-
-
-
-
-
 
 
 -----
@@ -9560,13 +6185,7 @@ bkb躲lion大  可以
 ##### 3513#       发表于 2019-4-19 21:03
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">BKB躲莱恩大 太厉害了
-
-
-
-
-
 
 
 -----
@@ -9575,13 +6194,7 @@ bkb躲lion大  可以
 ##### 3514#       发表于 2019-4-19 21:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">一来就这么强大的刺客，hololive接得住不啊，想起上次小狐狸的虚空事故碧蓝航线了
-
-
-
-
-
 
 
 -----
@@ -9590,14 +6203,7 @@ bkb躲lion大  可以
 ##### 3515#       发表于 2019-4-19 21:05
 
 
-
-
 开场被移到DOTA2区去了，这个虚拟主播区的意义到底在哪呢
-
-
-
-
-
 
 
 -----
@@ -9606,14 +6212,7 @@ bkb躲lion大  可以
 ##### 3516#       发表于 2019-4-19 21:06
 
 
-
-
 一周一到2次B限，不是一般重视啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9622,16 +6221,10 @@ bkb躲lion大  可以
 ##### 3517#       发表于 2019-4-19 21:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372389&amp;ptid=1823171" target="_blank">saybestty 发表于 2019-4-19 21:02</a>
 
 只能说彩虹牛逼，王牌机师来次主页就有引流，holo你行不行啊</blockquote>
 分区主页这几次HOLO的人不都有么…… 几个3D 不是B限都给了
-
-
-
-
-
 
 
 -----
@@ -9640,14 +6233,7 @@ bkb躲lion大  可以
 ##### 3518#       发表于 2019-4-19 21:07
 
 
-
-
 怎么赢了就溜的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9656,21 +6242,13 @@ bkb躲lion大  可以
 ##### 3519#       发表于 2019-4-19 21:07
 
 
-
-
 最后A杖扔背包开大把我乐到了XD
-
-
-
-
-
 
 
 -----
 
 ####  saybestty  
 ##### 3520#       发表于 2019-4-19 21:08
-
 
 
  本帖最后由 saybestty 于 2019-4-19 21:10 编辑 
@@ -9683,32 +6261,19 @@ bkb躲lion大  可以
 这次人气礼物完全不成正比的，可以看出来一般路过非常多，就是这个引流的
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3521#       发表于 2019-4-19 21:08
 
 
-
-
 绿仙Choco...聊起来很熟的样子
-
-
-
-
-
 
 
 -----
 
 ####  午前二时野猫  
 ##### 3522#       发表于 2019-4-19 21:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372380&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-19 21:02</a>
@@ -9720,25 +6285,13 @@ https://www.youtube.com/watch?v=E-bSeJeZXBk
 緑　つよい
 
 
-
-
-
-
-
 -----
 
 ####  SchwarzeKatze  
 ##### 3523#       发表于 2019-4-19 21:08
 
 
-
-
 每周1~2次可以有啊，反正也好混，开DOTA2鱼塘游一圈或者自走棋来两局就过去了，都不用费脑子想企划的
-
-
-
-
-
 
 
 -----
@@ -9747,23 +6300,16 @@ https://www.youtube.com/watch?v=E-bSeJeZXBk
 ##### 3524#       发表于 2019-4-19 21:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372451&amp;ptid=1823171" target="_blank">saybestty 发表于 2019-4-19 21:08</a>
 
 不是啊，是直播首页那5个大推荐位，holo一次也没混上，好歹吸金那么多了，过于丢人 ...</blockquote>
 holo起手就输了啊。彩虹进B站从第一波起就是首页预热+首页宣传，估计是谈好的
 
 
-
-
-
-
-
 -----
 
 ####  mumulyn  
 ##### 3525#       发表于 2019-4-19 21:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372451&amp;ptid=1823171" target="_blank">saybestty 发表于 2019-4-19 21:08</a>
@@ -9774,16 +6320,10 @@ holo起手就输了啊。彩虹进B站从第一波起就是首页预热+首页�
 那个主页阿夸日常转播都会上啊....
 
 
-
-
-
-
-
 -----
 
 ####  午前二时野猫  
 ##### 3526#       发表于 2019-4-19 21:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372452&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-19 21:08</a>
@@ -9792,25 +6332,13 @@ holo起手就输了啊。彩虹进B站从第一波起就是首页预热+首页�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我觉得绿和谁聊都像很熟的样子
 
 
-
-
-
-
-
 -----
 
 ####  lxlyandccc  
 ##### 3527#       发表于 2019-4-19 21:11
 
 
-
-
 歌姬十万粉了
-
-
-
-
-
 
 
 -----
@@ -9819,16 +6347,10 @@ holo起手就输了啊。彩虹进B站从第一波起就是首页预热+首页�
 ##### 3528#       发表于 2019-4-19 21:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372486&amp;ptid=1823171" target="_blank">午前二时野猫 发表于 2019-4-19 21:10</a>
 
 我觉得绿和谁聊都像很熟的样子</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 跟昨天那个租来的朋友tension差别还是有的   像是旧交  尤其Choco 有点限界化了..
-
-
-
-
-
 
 
 -----
@@ -9837,15 +6359,9 @@ holo起手就输了啊。彩虹进B站从第一波起就是首页预热+首页�
 ##### 3529#       发表于 2019-4-19 21:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=43372479&amp;amp;ptid=1823171" target="_blank">mumulyn 发表于 2019-4-19 21:10</a>
 那个主页阿夸日常转播都会上啊....</blockquote>
 不会的……那么多次限定我都看过，木得上主页的
-
-
-
-
-
 
 
 -----
@@ -9854,14 +6370,7 @@ holo起手就输了啊。彩虹进B站从第一波起就是首页预热+首页�
 ##### 3530#       发表于 2019-4-19 21:12
 
 
-
-
 傻葵这dota直播效果还不错啊，水平还是有的，每周来打个一小时dota复健不是美滋滋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9870,16 +6379,10 @@ holo起手就输了啊。彩虹进B站从第一波起就是首页预热+首页�
 ##### 3531#       发表于 2019-4-19 21:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372506&amp;ptid=1823171" target="_blank">saybestty 发表于 2019-4-19 21:12</a>
 
 不会的……那么多次限定我都看过，木得上主页的</blockquote>
 前几天播pubg就上了
-
-
-
-
-
 
 
 -----
@@ -9888,14 +6391,7 @@ holo起手就输了啊。彩虹进B站从第一波起就是首页预热+首页�
 ##### 3532#       发表于 2019-4-19 21:14
 
 
-
-
 设备好真是。。直播跳舞啊
-
-
-
-
-
 
 
 -----
@@ -9904,20 +6400,13 @@ holo起手就输了啊。彩虹进B站从第一波起就是首页预热+首页�
 ##### 3533#       发表于 2019-4-19 21:16
 
 
-
  本帖最后由 a3991912 于 2019-4-19 21:19 编辑 
 
 两千分左右的局 傻葵可能是这十个人里玩得最好的<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
 sk.jpg
 (82.8 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -9926,31 +6415,13 @@ sk.jpg
 2019-4-19 21:15 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/19/211541aitawtwmxzt8mwbi.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  午前二时野猫  
 ##### 3534#       发表于 2019-4-19 21:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372498&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-19 21:11</a>
@@ -9960,26 +6431,15 @@ sk.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">主要是绿和熊猫人第一次聊的时候我也觉得这俩认识
 
 
-
-
-
-
-
 -----
 
 ####  saybestty  
 ##### 3535#       发表于 2019-4-19 21:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=43372526&amp;amp;ptid=1823171" target="_blank">mumulyn 发表于 2019-4-19 21:14</a>
 前几天播pubg就上了</blockquote>
 不是限定没注意……不过限定没有，普通转播有不合常理吧
-
-
-
-
-
 
 
 -----
@@ -9988,16 +6448,10 @@ sk.jpg
 ##### 3536#       发表于 2019-4-19 21:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372451&amp;ptid=1823171" target="_blank">saybestty 发表于 2019-4-19 21:08</a>
 
 不是啊，是直播首页那5个大推荐位，管人好像就京华春晚有次，holo一次也没混上，好歹吸金那么多了，过于 ...</blockquote>
 这个首页HOLO上了很多次了吧……
-
-
-
-
-
 
 
 -----
@@ -10006,23 +6460,16 @@ sk.jpg
 ##### 3537#       发表于 2019-4-19 21:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372540&amp;ptid=1823171" target="_blank">zhicai618 发表于 2019-4-19 21:14</a>
 
 设备好真是。。直播跳舞啊</blockquote>
 清歌日常跳（蒙）舞（混）
 
 
-
-
-
-
-
 -----
 
 ####  mumulyn  
 ##### 3538#       发表于 2019-4-19 21:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372588&amp;ptid=1823171" target="_blank">saybestty 发表于 2019-4-19 21:19</a>
@@ -10033,16 +6480,10 @@ sk.jpg
 之前狗头人用别人的号播只狼都在上面挂了好久.
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3539#       发表于 2019-4-19 21:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372540&amp;ptid=1823171" target="_blank">zhicai618 发表于 2019-4-19 21:14</a>
@@ -10051,26 +6492,15 @@ sk.jpg
 今天算是第一次认真看歌姬直播  感觉生歌和跳舞都还有很大上升空间..期待成长..毕竟有那么好的皮..
 
 
-
-
-
-
-
 -----
 
 ####  野中萌好蓝  
 ##### 3540#       发表于 2019-4-19 21:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">能看得出来阿葵以前会玩的，真的很久没打了而已，反应和操作还保留了一些，而且为了全程保持骚话肯定还是分心了的
 
 以后一周一次要是经常dota的话有的是狙击的机会，就怕复健太快以后一般水友都不是对手了
-
-
-
-
-
 
 
 -----
@@ -10079,15 +6509,9 @@ sk.jpg
 ##### 3541#       发表于 2019-4-19 21:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372640&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-19 21:23</a>
 今天算是第一次认真看歌姬直播  感觉生歌和跳舞都还有很大上升空间..期待成长..毕竟有那么好的皮.. ...</blockquote>
 总有一种下次直播墨西哥或者贝拉就要来一首快乐崇拜或者我的地盘的感觉。。
-
-
-
-
-
 
 
 -----
@@ -10096,14 +6520,7 @@ sk.jpg
 ##### 3542#       发表于 2019-4-19 21:26
 
 
-
-
 不说别的，十几万的订阅还真的不是白来的，弹幕提醒一下，马上就能做出反应，很多主播为了保持面子分心什么的都做不到，
-
-
-
-
-
 
 
 -----
@@ -10112,16 +6529,10 @@ sk.jpg
 ##### 3543#       发表于 2019-4-19 21:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372660&amp;ptid=1823171" target="_blank">zhicai618 发表于 2019-4-19 21:24</a>
 
 总有一种下次直播墨西哥或者贝拉就要来一首快乐崇拜或者我的地盘的感觉。。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 可以把那个时期的歌手的歌全都翻唱一遍  20代大欢喜
-
-
-
-
-
 
 
 -----
@@ -10130,14 +6541,7 @@ sk.jpg
 ##### 3544#       发表于 2019-4-19 21:28
 
 
-
-
 救救阿凛 干掉FF14
-
-
-
-
-
 
 
 -----
@@ -10146,15 +6550,9 @@ sk.jpg
 ##### 3545#       发表于 2019-4-19 21:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372685&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-19 21:27</a>
 可以把那个时期的歌手的歌全都翻唱一遍  20代大欢喜</blockquote>
 别说，我还挺期待来一套的。。布拉格广场什么的。。还挺怀念的
-
-
-
-
-
 
 
 -----
@@ -10163,16 +6561,10 @@ sk.jpg
 ##### 3546#       发表于 2019-4-19 21:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372685&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-19 21:27</a>
 
 可以把那个时期的歌手的歌全都翻唱一遍  20代大欢喜</blockquote>
 你可以关注下清歌应援会 看看里面都啥歌
-
-
-
-
-
 
 
 -----
@@ -10181,15 +6573,9 @@ sk.jpg
 ##### 3547#       发表于 2019-4-19 21:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372645&amp;ptid=1823171" target="_blank">野中萌好蓝 发表于 2019-4-19 21:23</a>
 能看得出来阿葵以前会玩的，真的很久没打了而已，反应和操作还保留了一些，而且为了全程保持骚话肯 ...</blockquote>
 dota打起来还要分心说骚话是挺难的，傻葵那句脱口而出的fuck太有之前自己玩dota的样子了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10198,15 +6584,9 @@ dota打起来还要分心说骚话是挺难的，傻葵那句脱口而出的fuck
 ##### 3548#       发表于 2019-4-19 21:37
 
 
-
 [https://youtu.be/0xfkRdHHHRQ](https://youtu.be/0xfkRdHHHRQ)
 
 【歌ってみた】夢追翔、「完全感覚Dreamer」を歌わせていただきました。【にじさんじ】
-
-
-
-
-
 
 
 -----
@@ -10215,15 +6595,9 @@ dota打起来还要分心说骚话是挺难的，傻葵那句脱口而出的fuck
 ##### 3549#       发表于 2019-4-19 21:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372730&amp;ptid=1823171" target="_blank">胧楼 发表于 2019-4-19 21:31</a>
 你可以关注下清歌应援会 看看里面都啥歌</blockquote>
 我去瞅了眼，我看见了又见炊烟，这歌我就听岳云鹏唱过。。
-
-
-
-
-
 
 
 -----
@@ -10232,16 +6606,9 @@ dota打起来还要分心说骚话是挺难的，傻葵那句脱口而出的fuck
 ##### 3550#       发表于 2019-4-19 21:38
 
 
-
-
 效果比预期好很多，半小时还没缓过来<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 那句应该是back！behind！lion！吧，虽然没什么关系，没人介意
-
-
-
-
-
 
 
 -----
@@ -10250,16 +6617,10 @@ dota打起来还要分心说骚话是挺难的，傻葵那句脱口而出的fuck
 ##### 3551#       发表于 2019-4-19 21:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372730&amp;ptid=1823171" target="_blank">胧楼 发表于 2019-4-19 21:31</a>
 
 你可以关注下清歌应援会 看看里面都啥歌</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 还好吧  一首70年代 其他基本上都是90年代 2000年出头的   
-
-
-
-
-
 
 
 -----
@@ -10268,21 +6629,13 @@ dota打起来还要分心说骚话是挺难的，傻葵那句脱口而出的fuck
 ##### 3552#       发表于 2019-4-19 21:44
 
 
-
-
 最后一点没看到，有说一周一两次b限？不会吧
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3553#       发表于 2019-4-19 21:46
-
 
 
 [https://www.youtube.com/watch?v=iT0KFo5VD2s](https://www.youtube.com/watch?v=iT0KFo5VD2s)
@@ -10310,16 +6663,10 @@ dota打起来还要分心说骚话是挺难的，傻葵那句脱口而出的fuck
 【女性2人で】メリュー/covered by ココツキ【歌ってみた】
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 3554#       发表于 2019-4-19 21:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372859&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-19 21:42</a>
@@ -10328,16 +6675,10 @@ dota打起来还要分心说骚话是挺难的，傻葵那句脱口而出的fuck
 都要70年代就观众都不知道了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ScarletMoon  
 ##### 3555#       发表于 2019-4-19 21:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372878&amp;ptid=1823171" target="_blank">zhacaizn 发表于 2019-4-19 21:44</a>
@@ -10346,26 +6687,15 @@ dota打起来还要分心说骚话是挺难的，傻葵那句脱口而出的fuck
 真的
 
 
-
-
-
-
-
 -----
 
 ####  zhicai618  
 ##### 3556#       发表于 2019-4-19 21:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372908&amp;ptid=1823171" target="_blank">胧楼 发表于 2019-4-19 21:47</a>
 都要70年代就观众都不知道了</blockquote>
 我一直挺好奇这几位科班出身的是刚毕业还是做幕后的。。
-
-
-
-
-
 
 
 -----
@@ -10374,24 +6704,16 @@ dota打起来还要分心说骚话是挺难的，傻葵那句脱口而出的fuck
 ##### 3557#       发表于 2019-4-19 21:49
 
 
-
-
 有栖这个八分音符刷新了我对这游戏的认知
 
 
 原来这游戏还能火箭跳二段跳的，甚至飞出屏幕好几秒才掉下来
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3558#       发表于 2019-4-19 21:51
-
 
 
  本帖最后由 いつかの自分 于 2019-4-19 21:59 编辑 
@@ -10402,25 +6724,13 @@ dota打起来还要分心说骚话是挺难的，傻葵那句脱口而出的fuck
 来当妹妹啊！
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 3559#       发表于 2019-4-19 22:00
 
 
-
-
 大舅子是真的除了大头都回啊  
-
-
-
-
-
 
 
 -----
@@ -10429,23 +6739,16 @@ dota打起来还要分心说骚话是挺难的，傻葵那句脱口而出的fuck
 ##### 3560#       发表于 2019-4-19 22:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43373025&amp;ptid=1823171" target="_blank">胧楼 发表于 2019-4-19 22:00</a>
 
 大舅子是真的除了大头都回啊</blockquote>
 还有琉璃姐（）
 
 
-
-
-
-
-
 -----
 
 ####  qw945  
 ##### 3561#       发表于 2019-4-19 22:07
-
 
 
  本帖最后由 qw945 于 2019-4-19 22:09 编辑 
@@ -10458,18 +6761,10 @@ dota打起来还要分心说骚话是挺难的，傻葵那句脱口而出的fuck
 发完开了……
 
 
-
-
-
-
-
-
 -----
 
 ####  Igarashi  
 ##### 3562#       发表于 2019-4-19 22:07
-
-
 
 
 大舅子是4/15发的推，4/18集中回了一下，大部分都是4/15的评论，其中唯独大头的没有回
@@ -10479,16 +6774,10 @@ dota打起来还要分心说骚话是挺难的，傻葵那句脱口而出的fuck
 大头这事做的真是脑子有坑
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 3563#       发表于 2019-4-19 22:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43373076&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-19 22:06</a>
@@ -10497,16 +6786,10 @@ dota打起来还要分心说骚话是挺难的，傻葵那句脱口而出的fuck
 琉璃发的晚啊
 
 
-
-
-
-
-
 -----
 
 ####  水原薰  
 ##### 3564#       发表于 2019-4-19 22:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43373076&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-19 22:06</a>
@@ -10514,16 +6797,10 @@ dota打起来还要分心说骚话是挺难的，傻葵那句脱口而出的fuck
 不回大头还能理解，琉璃姐是为了啥<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3565#       发表于 2019-4-19 22:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43373087&amp;ptid=1823171" target="_blank">Igarashi 发表于 2019-4-19 22:07</a>
@@ -10534,16 +6811,10 @@ dota打起来还要分心说骚话是挺难的，傻葵那句脱口而出的fuck
 舞元也是18号发 发了两分钟晴翔就回了 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 3566#       发表于 2019-4-19 22:10
-
 
 
 [https://www.youtube.com/watch?v=TGQkhOXyJYM](https://www.youtube.com/watch?v=TGQkhOXyJYM)
@@ -10552,7 +6823,6 @@ dota打起来还要分心说骚话是挺难的，傻葵那句脱口而出的fuck
 
 
 大前辈女优出道！
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/19/221007drodfpx9d5n7ff5o.png" referrerpolicy="no-referrer">
@@ -10565,10 +6835,6 @@ dota打起来还要分心说骚话是挺难的，傻葵那句脱口而出的fuck
 2019-4-19 22:10 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/19/221007tx236kht22ohbx1b.png" referrerpolicy="no-referrer">
 
 
@@ -10579,25 +6845,13 @@ dota打起来还要分心说骚话是挺难的，傻葵那句脱口而出的fuck
 2019-4-19 22:10 上传
 
 
-
-
-
-
-
 金曲确实厉害
-
-
-
-
-
-
 
 
 -----
 
 ####  Igarashi  
 ##### 3567#       发表于 2019-4-19 22:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43373114&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-19 22:09</a>
@@ -10612,16 +6866,10 @@ dota打起来还要分心说骚话是挺难的，傻葵那句脱口而出的fuck
 这两位没什么不回的理由
 
 
-
-
-
-
-
 -----
 
 ####  noHentai  
 ##### 3568#       发表于 2019-4-19 22:14
-
 
 
  本帖最后由 noHentai 于 2019-4-19 22:16 编辑 
@@ -10631,16 +6879,10 @@ dota打起来还要分心说骚话是挺难的，傻葵那句脱口而出的fuck
 [https://ec.toranoana.jp/tora_r/ec/item/040030722751/](https://ec.toranoana.jp/tora_r/ec/item/040030722751/)
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 3569#       发表于 2019-4-19 22:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43373114&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-19 22:09</a>
@@ -10649,16 +6891,10 @@ dota打起来还要分心说骚话是挺难的，傻葵那句脱口而出的fuck
 2324面子大？
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3570#       发表于 2019-4-19 22:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43373163&amp;ptid=1823171" target="_blank">noHentai 发表于 2019-4-19 22:14</a>
@@ -10671,25 +6907,13 @@ https://ec.torano ...</blockquote>
 推荐一本性转的（
 
 
-
-
-
-
-
 -----
 
 ####  free  
 ##### 3571#       发表于 2019-4-19 22:19
 
 
-
-
 一说小青我想起来了，这个四月一日之家是怎么选人的呢，空妈是大物就不说了，小青这里是艾回要推她吗......还有双叶应该也是东京电视台推的新人了吧，除了这个片相关的宣传都没啥动作，就传过一首翻的千本樱，有个初配信自我介绍，然后就没动静了。
-
-
-
-
-
 
 
 -----
@@ -10698,13 +6922,7 @@ https://ec.torano ...</blockquote>
 ##### 3572#       发表于 2019-4-19 22:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">无端推测不会琉璃姐的原因是因为光跟运营有矛盾
-
-
-
-
-
 
 
 -----
@@ -10713,16 +6931,10 @@ https://ec.torano ...</blockquote>
 ##### 3573#       发表于 2019-4-19 22:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43373201&amp;ptid=1823171" target="_blank">free 发表于 2019-4-19 22:19</a>
 
 一说小青我想起来了，这个四月一日之家是怎么选人的呢，空妈是大物就不说了，小青这里是艾回要推她吗...... ...</blockquote>
 最近还有在直播来着 上次直播看了下同接过百
-
-
-
-
-
 
 
 -----
@@ -10731,16 +6943,9 @@ https://ec.torano ...</blockquote>
 ##### 3574#       发表于 2019-4-19 22:24
 
 
-
-
 彩虹社3d这安定的杂鱼感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 —— 来自 samsung SM-G9730, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
-
-
-
-
-
 
 
 -----
@@ -10749,12 +6954,9 @@ https://ec.torano ...</blockquote>
 ##### 3575#       发表于 2019-4-19 22:29
 
 
-
 [https://www.bilibili.com/video/av49803275](https://www.bilibili.com/video/av49803275)
 
 老爱能出单人舰队的样子（舰B
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/19/222840jsahzy147c1rzsr4.jpg" referrerpolicy="no-referrer">
@@ -10767,25 +6969,13 @@ https://ec.torano ...</blockquote>
 2019-4-19 22:28 上传
 
 
-
-
-
-
-
 缺少真格元素……
-
-
-
-
-
 
 
 -----
 
 ####  IDIDID  
 ##### 3576#       发表于 2019-4-19 22:31
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/19/223049mt6msdduhzuuu6gu.png" referrerpolicy="no-referrer">
@@ -10798,22 +6988,13 @@ https://ec.torano ...</blockquote>
 2019-4-19 22:30 上传
 
 
-
-
-
 放松点 至少比1.0好吧<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  北条早苗  
 ##### 3577#       发表于 2019-4-19 22:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43373201&amp;ptid=1823171" target="_blank">free 发表于 2019-4-19 22:19</a>
@@ -10824,25 +7005,13 @@ https://ec.torano ...</blockquote>
 只是现在这时势，要推人是真的不好推
 
 
-
-
-
-
-
 -----
 
 ####  vonkarajan  
 ##### 3578#       发表于 2019-4-19 22:37
 
 
-
-
 舞元也是被迫害役啊，大舅子感同身受
-
-
-
-
-
 
 
 -----
@@ -10851,22 +7020,15 @@ https://ec.torano ...</blockquote>
 ##### 3579#       发表于 2019-4-19 22:41
 
 
-
 <blockquote>vonkarajan 发表于 2019-4-19 22:37
 舞元也是被迫害役啊，大舅子感同身受</blockquote>
 ♂没V权这是常识_(•̀ω•́ 」∠)_
-
-
-
-
-
 
 
 -----
 
 ####  北条早苗  
 ##### 3580#       发表于 2019-4-19 22:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43373121&amp;ptid=1823171" target="_blank">Chia 发表于 2019-4-19 22:10</a>
@@ -10877,17 +7039,10 @@ https://www.youtube.com/watch?v=TGQkhOXyJYM
 也就是奏天组足够惨，ao的待遇才没被削吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  swordofsoul1  
 ##### 3581#       发表于 2019-4-19 22:52
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/19/224943ulffzj4nnqtjtu3u.jpg" referrerpolicy="no-referrer">
@@ -10900,22 +7055,14 @@ https://www.youtube.com/watch?v=TGQkhOXyJYM
 2019-4-19 22:49 上传
 
 
-
-
-
-
 vtuber是什么？
 梦、叶えし者
 [https://www.bilibili.com/video/av10252182](https://www.bilibili.com/video/av10252182)
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 6战斗力 +7
@@ -10930,19 +7077,13 @@ vtuber是什么？
 | lxlyandccc| + 1|真的强|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  Chia  
 ##### 3582#       发表于 2019-4-19 23:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43373460&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-19 22:44</a>
@@ -10954,17 +7095,10 @@ vtuber是什么？
 另一边，AO反正自己会产出，也没给她铺广告，烧不掉多少钱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  雨井绫  
 ##### 3583#       发表于 2019-4-19 23:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43373531&amp;ptid=1823171" target="_blank">swordofsoul1 发表于 2019-04-19 22:52:17</a></blockquote>惊了这碧蓝航线运营好良心啊
@@ -10972,16 +7106,10 @@ vtuber是什么？
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 3584#       发表于 2019-4-19 23:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43373531&amp;ptid=1823171" target="_blank">swordofsoul1 发表于 2019-4-19 22:52</a>
@@ -10994,17 +7122,10 @@ https://www.bilibili.com/video/av10252182</blockquote>
 谜之考据力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 3585#       发表于 2019-4-19 23:03
-
-
 
 
 偶像部一周年纪念大会
@@ -11023,16 +7144,10 @@ https://www.bilibili.com/video/av10252182</blockquote>
 http://twitter.com/dotLIVEyoutuber/status/1119254432112209920
 
 
-
-
-
-
-
 -----
 
 ####  lxlyandccc  
 ##### 3586#       发表于 2019-4-19 23:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43373621&amp;ptid=1823171" target="_blank">雨井绫 发表于 2019-4-19 23:01</a>
@@ -11044,16 +7159,10 @@ http://twitter.com/dotLIVEyoutuber/status/1119254432112209920
 这就是典型的“用了心的联动”了
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 3587#       发表于 2019-4-19 23:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43373531&amp;ptid=1823171" target="_blank">swordofsoul1 发表于 2019-4-19 22:52</a>
@@ -11066,16 +7175,10 @@ https://www.bilibili.com/video/av10252182</blockquote>
 惊了 竟然有考据 可以可以
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 3588#       发表于 2019-4-19 23:07
-
 
 
 <blockquote>swordofsoul1 发表于 2019-4-19 22:52
@@ -11087,32 +7190,19 @@ https://www.bilibili.com/video/av10252182</blockquote>
 那只猫22333
 
 
-
-
-
-
-
 -----
 
 ####  SchwarzeKatze  
 ##### 3589#       发表于 2019-4-19 23:10
 
 
-
-
 叶师打APEX时听说鹦鹉哥自走棋一波连胜枪都乱了，打了一个小时多点匆匆下播，现在出现在鹦鹉的直播间里给鹦鹉送分<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  北条早苗  
 ##### 3590#       发表于 2019-4-19 23:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43373531&amp;ptid=1823171" target="_blank">swordofsoul1 发表于 2019-4-19 22:52</a>
@@ -11125,16 +7215,10 @@ https://www.bilibili.com/video/av10252182</blockquote>
 真上心
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 3591#       发表于 2019-4-19 23:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43373650&amp;ptid=1823171" target="_blank">神龙小生 发表于 2019-4-19 23:03</a>
@@ -11145,31 +7229,17 @@ https://www.bilibili.com/video/av10252182</blockquote>
 爱月的live也是开在这，V管人武道馆？
 
 
-
-
-
-
-
 -----
 
 ####  potwater  
 ##### 3592#       发表于 2019-4-19 23:18
 
 
-
-
 achikita现在也算是种的二军了啊…虽说这月开始配信频度骤减，但还是很稳。种二期出生能保持在这么安定的地步也是不容易。
-
-
-
-
-
 
 
 20190419231357.png
 (131.61 KB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -11178,24 +7248,7 @@ achikita现在也算是种的二军了啊…虽说这月开始配信频度骤减
 2019-4-19 23:14 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/19/231450s6hjfk55sd4d5up6.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -11204,15 +7257,9 @@ achikita现在也算是种的二军了啊…虽说这月开始配信频度骤减
 ##### 3593#       发表于 2019-4-19 23:18
 
 
-
 <blockquote>北条早苗 发表于 2019-4-19 23:16
 爱月的live也是开在这，V管人武道馆？</blockquote>
 不如说有能力有意愿搞V界VR大活动的也就那几馆了。
-
-
-
-
-
 
 
 -----
@@ -11221,22 +7268,15 @@ achikita现在也算是种的二军了啊…虽说这月开始配信频度骤减
 ##### 3594#       发表于 2019-4-19 23:21
 
 
-
 [https://www.youtube.com/watch?v=iRKzm6NR0MU](https://www.youtube.com/watch?v=iRKzm6NR0MU)
 
 アシノ部屋#1【ゲスト・アキロゼさん】生演奏ライブ！
-
-
-
-
-
 
 
 -----
 
 ####  Chia  
 ##### 3595#       发表于 2019-4-19 23:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43373820&amp;ptid=1823171" target="_blank">宫藤芳佳 发表于 2019-4-19 23:21</a>
@@ -11247,25 +7287,13 @@ https://www.youtube.com/watch?v=iRKzm6NR0MU
 没想到啊没想到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  zaku11ku  
 ##### 3596#       发表于 2019-4-19 23:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">メル这个究极虚无直播，30分钟还在重复part1
-
-
-
-
-
 
 
 -----
@@ -11274,16 +7302,9 @@ https://www.youtube.com/watch?v=iRKzm6NR0MU
 ##### 3597#       发表于 2019-4-19 23:30
 
 
-
-
 看隔壁说，阿葵的3D是彩虹第一个自社制作的模型，她自己有监制，大福的模型则是经过leader认证说不错了。
 
 等25日了。
-
-
-
-
-
 
 
 -----
@@ -11292,23 +7313,15 @@ https://www.youtube.com/watch?v=iRKzm6NR0MU
 ##### 3598#       发表于 2019-4-19 23:33
 
 
-
-
 马：配信未定，圆盘未定，周边通贩未定，转卖对策不归我们管。
 
 这破公司什么都不管全扔给yamaha的么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  胧楼  
 ##### 3599#       发表于 2019-4-19 23:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43373797&amp;ptid=1823171" target="_blank">神龙小生 发表于 2019-4-19 23:18</a>
@@ -11318,25 +7331,13 @@ https://www.youtube.com/watch?v=iRKzm6NR0MU
 BMLVR都是梅奔1W8人了
 
 
-
-
-
-
-
 -----
 
 ####  椋千寻  
 ##### 3600#       发表于 2019-4-19 23:39
 
 
-
-
 ガリベンお気持ち表明<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11345,23 +7346,16 @@ BMLVR都是梅奔1W8人了
 ##### 3601#       发表于 2019-4-19 23:39
 
 
-
 [https://sp.live.nicovideo.jp/watch/lv319616188](https://sp.live.nicovideo.jp/watch/lv319616188)
 [https://live.bilibili.com/8899503](https://live.bilibili.com/8899503)
 
 四月一日さん家の ドキドキ前後生放送 #1
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 3602#       发表于 2019-4-19 23:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43373937&amp;ptid=1823171" target="_blank">胧楼 发表于 2019-4-19 23:34</a>
@@ -11372,26 +7366,15 @@ BMLVR都是梅奔1W8人了</blockquote>
 bml对标的是超趴…
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 3603#       发表于 2019-4-19 23:41
 
 
-
  本帖最后由 神龙小生 于 2019-4-19 23:47 编辑 
 
 电视剧四一正片（不是事前）看不了（会员限定）怨念
-
-
-
-
-
 
 
 -----
@@ -11400,16 +7383,10 @@ bml对标的是超趴…
 ##### 3604#       发表于 2019-4-19 23:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43373992&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-19 23:40</a>
 
 bml对标的是超趴…</blockquote>
 也是 脑子抽了 根本不是一个类型的
-
-
-
-
-
 
 
 -----
@@ -11418,17 +7395,10 @@ bml对标的是超趴…</blockquote>
 ##### 3605#       发表于 2019-4-19 23:52
 
 
-
-
 アキロゼ的短板是节奏感啊
 
 
 买鼓还以为是扬长，原来是专项练习，避短来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11437,14 +7407,8 @@ bml对标的是超趴…</blockquote>
 ##### 3606#       发表于 2019-4-19 23:52
 
 
-
 [https://www.bilibili.com/bangumi/play/ep269771](https://www.bilibili.com/bangumi/play/ep269771)
 <img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">开始了开始了
-
-
-
-
-
 
 
 -----
@@ -11453,14 +7417,7 @@ bml对标的是超趴…</blockquote>
 ##### 3607#       发表于 2019-4-19 23:52
 
 
-
-
 来嘞来了来嘞
-
-
-
-
-
 
 
 -----
@@ -11469,14 +7426,7 @@ bml对标的是超趴…</blockquote>
 ##### 3608#       发表于 2019-4-19 23:54
 
 
-
-
 有字幕好评……
-
-
-
-
-
 
 
 -----
@@ -11485,13 +7435,7 @@ bml对标的是超趴…</blockquote>
 ##### 3609#       发表于 2019-4-19 23:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你们在演情景喜剧吗
-
-
-
-
-
 
 
 -----
@@ -11500,14 +7444,7 @@ bml对标的是超趴…</blockquote>
 ##### 3610#       发表于 2019-4-19 23:55
 
 
-
-
 喷了 情景喜剧  我大概十年没看这种自带笑声的剧了
-
-
-
-
-
 
 
 -----
@@ -11516,14 +7453,7 @@ bml对标的是超趴…</blockquote>
 ##### 3611#       发表于 2019-4-19 23:56
 
 
-
-
 编剧是小林阿姨嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11532,16 +7462,9 @@ bml对标的是超趴…</blockquote>
 ##### 3612#       发表于 2019-4-19 23:57
 
 
-
-
 四月一日家一上来就塞一堆日语发音冷笑话……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -11550,14 +7473,7 @@ bml对标的是超趴…</blockquote>
 ##### 3613#       发表于 2019-4-19 23:57
 
 
-
-
 22分钟阿   真的和anime差不多了
-
-
-
-
-
 
 
 -----
@@ -11566,14 +7482,7 @@ bml对标的是超趴…</blockquote>
 ##### 3614#       发表于 2019-4-20 00:00
 
 
-
-
 被会员挡在6分钟门外TT
-
-
-
-
-
 
 
 -----
@@ -11582,16 +7491,10 @@ bml对标的是超趴…</blockquote>
 ##### 3615#       发表于 2019-4-20 00:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43373201&amp;ptid=1823171" target="_blank">free 发表于 2019-4-19 22:19</a>
 
 一说小青我想起来了，这个四月一日之家是怎么选人的呢，空妈是大物就不说了，小青这里是艾回要推她吗...... ...</blockquote>
 这片的制作方是东京电视台和株式会社ハロー，ハロー就是小青的运营公司
-
-
-
-
-
 
 
 -----
@@ -11600,14 +7503,7 @@ bml对标的是超趴…</blockquote>
 ##### 3616#       发表于 2019-4-20 00:01
 
 
-
-
 应该是小青这个模型的问题……她的视线方向总觉得别扭
-
-
-
-
-
 
 
 -----
@@ -11616,14 +7512,7 @@ bml对标的是超趴…</blockquote>
 ##### 3617#       发表于 2019-4-20 00:02
 
 
-
-
 感觉有点卡  掉帧吗？
-
-
-
-
-
 
 
 -----
@@ -11632,14 +7521,7 @@ bml对标的是超趴…</blockquote>
 ##### 3618#       发表于 2019-4-20 00:03
 
 
-
-
 谐音冷笑话有点多……
-
-
-
-
-
 
 
 -----
@@ -11648,15 +7530,9 @@ bml对标的是超趴…</blockquote>
 ##### 3619#       发表于 2019-4-20 00:06
 
 
-
 <img src="http://wx2.sinaimg.cn/large/403d45c1ly1g28e3xz9caj216p0nfqv5.jpg" referrerpolicy="no-referrer">
 
 这头发也太不自然了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11665,14 +7541,7 @@ bml对标的是超趴…</blockquote>
 ##### 3620#       发表于 2019-4-20 00:08
 
 
-
-
 1600人观看 算啥级别？
-
-
-
-
-
 
 
 -----
@@ -11681,13 +7550,7 @@ bml对标的是超趴…</blockquote>
 ##### 3621#       发表于 2019-4-20 00:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11696,14 +7559,7 @@ bml对标的是超趴…</blockquote>
 ##### 3622#       发表于 2019-4-20 00:11
 
 
-
-
 只看了6分钟暂时没有太强的追番欲望，但愿会员只限定一周，到下周能看完整_(´□`」 ∠)_
-
-
-
-
-
 
 
 -----
@@ -11712,17 +7568,10 @@ bml对标的是超趴…</blockquote>
 ##### 3623#       发表于 2019-4-20 00:15
 
 
-
-
 马看后我只想给他打200分……真的不错
 
 
 虽然不会火吧
-
-
-
-
-
 
 
 -----
@@ -11731,15 +7580,9 @@ bml对标的是超趴…</blockquote>
 ##### 3624#       发表于 2019-4-20 00:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">风格真的挺日剧的……日剧式幽默
 
 空妈演的大姐这脑子不太正常吧（
-
-
-
-
-
 
 
 -----
@@ -11748,15 +7591,9 @@ bml对标的是超趴…</blockquote>
 ##### 3625#       发表于 2019-4-20 00:17
 
 
-
  本帖最后由 胧楼 于 2019-4-20 00:18 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">质量可以  但是笑点有点不好get  前面是日语谐音笑话 后面爸变虫子的段子有点get不到 好短啊…… 18分钟就到番外了么
-
-
-
-
-
 
 
 -----
@@ -11765,16 +7602,9 @@ bml对标的是超趴…</blockquote>
 ##### 3626#       发表于 2019-4-20 00:17
 
 
-
-
 挺正统的家庭喜剧，就是駄洒落很多国内这边很多会get不到点吧
 
 最大亮点，处刑ムシキング<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11783,14 +7613,7 @@ bml对标的是超趴…</blockquote>
 ##### 3627#       发表于 2019-4-20 00:19
 
 
-
-
 用不死人的话说老二intonation是坐了火箭的  ↑完了再↑
-
-
-
-
-
 
 
 -----
@@ -11799,20 +7622,13 @@ bml对标的是超趴…</blockquote>
 ##### 3628#       发表于 2019-4-20 00:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">起码比10个马看还好看 就是了
-
-
-
-
-
 
 
 -----
 
 ####  Chia  
 ##### 3629#       发表于 2019-4-20 00:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43374270&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-20 00:17</a>
@@ -11823,16 +7639,10 @@ bml对标的是超趴…</blockquote>
 草，ムシキング界王者被龟龟秒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  SchwarzeKatze  
 ##### 3630#       发表于 2019-4-20 00:21
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全程黑人问号脸，思路清奇
@@ -11841,32 +7651,19 @@ bml对标的是超趴…</blockquote>
 挺好看的
 
 
-
-
-
-
-
 -----
 
 ####  水原薰  
 ##### 3631#       发表于 2019-4-20 00:21
 
 
-
-
 虽然这片子的笑点很冷，那个罐头笑声有点尬，有的时候还觉得挺卡，但有马看在前，居然显得这片子还挺有诚意的，所以马看你到底是怎么把那么好的阵容做的这么屎的<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  SchwarzeKatze  
 ##### 3632#       发表于 2019-4-20 00:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43374270&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-20 00:17</a>
@@ -11877,16 +7674,10 @@ bml对标的是超趴…</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">神转折一下笑喷了
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 3633#       发表于 2019-4-20 00:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43374304&amp;ptid=1823171" target="_blank">水原薰 发表于 2019-4-20 00:21</a>
@@ -11895,17 +7686,10 @@ bml对标的是超趴…</blockquote>
 因为不想好好做啊 毫无诚意
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3634#       发表于 2019-4-20 00:24
-
-
 
 
 不行了 有蚊子为什么不打死   单是听声音我就浑身难受了
@@ -11914,24 +7698,13 @@ bml对标的是超趴…</blockquote>
 空妈这个大姐实际上是不是最天真的那个？
 
 
-
-
-
-
-
 -----
 
 ####  久島鴎  
 ##### 3635#       发表于 2019-4-20 00:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">神经病，什么都是你爹么
-
-
-
-
-
 
 
 -----
@@ -11940,21 +7713,13 @@ bml对标的是超趴…</blockquote>
 ##### 3636#       发表于 2019-4-20 00:27
 
 
-
-
 挺好的 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  北条早苗  
 ##### 3637#       发表于 2019-4-20 00:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43374328&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-20 00:24</a>
@@ -11965,16 +7730,10 @@ bml对标的是超趴…</blockquote>
 空妈这个大姐实际上是不是最天真的那个？ ...</blockquote><blockquote>大学卒業後、アルバイトをしながら声優をしている。 本人はしっかり者のつもりだが、真面目系の天然。心配性の割に、自分の将来のことは心配していない。幼少期、母親が亡くなったときにアニメに救われたため、アニメ好きになり、声優を目指すように。「恋愛より仕事」と常に言っているが、本当は男性に対してどう接して良いかわからない。 </blockquote>
 
 
-
-
-
-
-
 -----
 
 ####  宫藤芳佳  
 ##### 3638#       发表于 2019-4-20 00:31
-
 
 
  本帖最后由 宫藤芳佳 于 2019-4-20 00:33 编辑 
@@ -11984,31 +7743,19 @@ bml对标的是超趴…</blockquote>
 明天中午12点漫画公开  下周NICO生放有嘉宾小鞠
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 3639#       发表于 2019-4-20 00:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">想看到更多这种东西  类似战姬那种动画也可以
-
-
-
-
-
 
 
 -----
 
 ####  北条早苗  
 ##### 3640#       发表于 2019-4-20 00:34
-
 
 
  本帖最后由 北条早苗 于 2019-4-20 01:02 编辑 
@@ -12020,17 +7767,10 @@ bml对标的是超趴…</blockquote>
 时移1:01:30
 
 
-
-
-
-
-
-
 -----
 
 ####  cxj649  
 ##### 3641#       发表于 2019-4-20 00:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43374385&amp;ptid=1823171" target="_blank">胧楼 发表于 2019-4-20 00:33</a>
@@ -12039,25 +7779,13 @@ bml对标的是超趴…</blockquote>
 曾经有个先驱少女的企划，算是第一个有动画的V圈人，也是最早退出（倒闭）者
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3642#       发表于 2019-4-20 00:36
 
 
-
-
 突然想起来记者会见的时候那个P   好像就是ムシキング...
-
-
-
-
-
 
 
 -----
@@ -12066,14 +7794,8 @@ bml对标的是超趴…</blockquote>
 ##### 3643#       发表于 2019-4-20 00:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43374357&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-20 00:29</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 果然
-
-
-
-
-
 
 
 -----
@@ -12082,16 +7804,9 @@ bml对标的是超趴…</blockquote>
 ##### 3644#       发表于 2019-4-20 00:41
 
 
-
-
 小青表现的真不错 MVP了
 
 空妈模型头发跟头有丶问题
-
-
-
-
-
 
 
 -----
@@ -12100,14 +7815,7 @@ bml对标的是超趴…</blockquote>
 ##### 3645#       发表于 2019-4-20 00:42
 
 
-
-
 话说哪里有b站以外可以观看四一的地方，被挡在6分钟门外可能得等一周…
-
-
-
-
-
 
 
 -----
@@ -12116,14 +7824,7 @@ bml对标的是超趴…</blockquote>
 ##### 3646#       发表于 2019-4-20 00:51
 
 
-
-
 6分钟门外+1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天看看花园之类的有没有放流吧
-
-
-
-
-
 
 
 -----
@@ -12132,21 +7833,13 @@ bml对标的是超趴…</blockquote>
 ##### 3647#       发表于 2019-4-20 00:53
 
 
-
-
 花园图书馆都瞅了下 没看到搬的
-
-
-
-
-
 
 
 -----
 
 ####  北条早苗  
 ##### 3648#       发表于 2019-4-20 00:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43374438&amp;ptid=1823171" target="_blank">神龙小生 发表于 2019-4-20 00:42</a>
@@ -12157,29 +7850,17 @@ bml对标的是超趴…</blockquote>
 可能是ip限定
 
 
-
-
-
-
-
 -----
 
 ####  potwater  
 ##### 3649#       发表于 2019-4-20 00:55
 
 
-
 [https://twitter.com/TakamiyaRion/status/1119270727037808641](https://twitter.com/TakamiyaRion/status/1119270727037808641)
-
-
-
-
 
 
 D4hyWv0U0AAWaYx.jpg
 (184.75 KB, 下载次数: 7)
-
-
 
 
 下载附件
@@ -12188,24 +7869,7 @@ D4hyWv0U0AAWaYx.jpg
 2019-4-20 00:55 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/20/005502lk6eiq8y6e8e444g.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -12214,16 +7878,10 @@ D4hyWv0U0AAWaYx.jpg
 ##### 3650#       发表于 2019-4-20 00:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43374516&amp;ptid=1823171" target="_blank">potwater 发表于 2019-4-20 00:55</a>
 
 https://twitter.com/TakamiyaRion/status/1119270727037808641</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">对比起来皇女这个皮也太摸了
-
-
-
-
-
 
 
 -----
@@ -12232,16 +7890,10 @@ https://twitter.com/TakamiyaRion/status/1119270727037808641</blockquote>
 ##### 3651#       发表于 2019-4-20 00:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43374516&amp;ptid=1823171" target="_blank">potwater 发表于 2019-4-20 00:55</a>
 
 https://twitter.com/TakamiyaRion/status/1119270727037808641</blockquote>
 实质帝华组<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12250,24 +7902,15 @@ https://twitter.com/TakamiyaRion/status/1119270727037808641</blockquote>
 ##### 3652#       发表于 2019-4-20 01:02
 
 
-
-
 看完发现居然比我想的要有趣，感觉管人演戏有搞头
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  free  
 ##### 3653#       发表于 2019-4-20 01:05
-
-
 
 
 除了这些谐音冷笑话外，其实算稍微超出我预期了，当然也可能是马看实在太烂了......看评价貌似也不错的。
@@ -12283,30 +7926,13 @@ https://twitter.com/TakamiyaRion/status/1119270727037808641</blockquote>
 2019-4-20 01:05 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  冰寒之月  
 ##### 3654#       发表于 2019-4-20 01:10
 
 
-
-
 这电视剧是只有b站帧数那么低还是全世界都一样的？
-
-
-
-
-
 
 
 -----
@@ -12315,16 +7941,10 @@ https://twitter.com/TakamiyaRion/status/1119270727037808641</blockquote>
 ##### 3655#       发表于 2019-4-20 01:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43374633&amp;ptid=1823171" target="_blank">冰寒之月 发表于 2019-4-20 01:10</a>
 
 这电视剧是只有b站帧数那么低还是全世界都一样的？</blockquote>
 我去对比了一下，b站这边的op估计是拿半成品来凑的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12333,14 +7953,7 @@ https://twitter.com/TakamiyaRion/status/1119270727037808641</blockquote>
 ##### 3656#       发表于 2019-4-20 01:17
 
 
-
-
 pv的时候帧数就低得要死 正片还这样
-
-
-
-
-
 
 
 -----
@@ -12349,14 +7962,7 @@ pv的时候帧数就低得要死 正片还这样
 ##### 3657#       发表于 2019-4-20 01:18
 
 
-
-
 虽然莫名其妙丢在电视剧区  但是番剧区还是给了banner  奇妙
-
-
-
-
-
 
 
 -----
@@ -12365,14 +7971,7 @@ pv的时候帧数就低得要死 正片还这样
 ##### 3658#       发表于 2019-4-20 01:33
 
 
-
-
 四月一日能追 剧本还不错 空妈剧中职业是声优 演技却这么素<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12381,16 +7980,9 @@ pv的时候帧数就低得要死 正片还这样
 ##### 3659#       发表于 2019-4-20 01:42
 
 
-
-
 除了谐音梗get不到，其他都是正常的情景剧展开
 
 一个字稳
-
-
-
-
-
 
 
 -----
@@ -12399,23 +7991,15 @@ pv的时候帧数就低得要死 正片还这样
 ##### 3660#       发表于 2019-4-20 01:44
 
 
-
-
 magnet:?xt=urn:btih:c4a6d49e75019e67e276addc0590e1c042642a80
 
 有源了 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">不知道A卡补帧能不能拯救
-
-
-
-
-
 
 
 -----
 
 ####  free  
 ##### 3661#       发表于 2019-4-20 01:48
-
 
 
  本帖最后由 free 于 2019-4-20 04:24 编辑 
@@ -12440,38 +8024,19 @@ magnet:?xt=urn:btih:c4a6d49e75019e67e276addc0590e1c042642a80
 2019-4-20 01:55 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Mika-S  
 ##### 3662#       发表于 2019-4-20 01:51
 
 
-
-
 我笑点这么低原来，感觉四月一日挺好看的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  沙耶@黑[]剑21  
 ##### 3663#       发表于 2019-4-20 04:51
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 安堂4个小时的apex不获胜不吃饭企划失败后 便利店买了个晚饭 
@@ -12483,16 +8048,10 @@ hana下播后把目前华语圈Vtuber的烂梗都玩了个遍
 为数不多的清楚担当也要远去了吗<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  free  
 ##### 3664#       发表于 2019-4-20 05:46
-
 
 
  本帖最后由 free 于 2019-4-20 05:50 编辑 
@@ -12502,33 +8061,19 @@ hana下播后把目前华语圈Vtuber的烂梗都玩了个遍
 我觉得最搞笑的就是把龟供在老爹灵位前，这边手机播着佛经，姐三个对着那龟拜爹，真是笑出声了
 
 
-
-
-
-
-
 -----
 
 ####  qw945  
 ##### 3665#       发表于 2019-4-20 08:23
 
 
-
-
 补帧也救不回来，这个卡顿是真的难受<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Chia  
 ##### 3666#       发表于 2019-4-20 09:52
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/20/095052pjjodbz3kdeht31d.png" referrerpolicy="no-referrer">
@@ -12541,30 +8086,13 @@ hana下播后把目前华语圈Vtuber的烂梗都玩了个遍
 2019-4-20 09:50 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  aisakahammer  
 ##### 3667#       发表于 2019-4-20 10:01
 
 
-
-
  = =开头不就是设定大姐是25岁声优么，怎么JK感了
-
-
-
-
-
 
 
 -----
@@ -12573,14 +8101,7 @@ hana下播后把目前华语圈Vtuber的烂梗都玩了个遍
 ##### 3668#       发表于 2019-4-20 10:02
 
 
-
-
 ao广受好评，目前的日增已经是平时的三倍了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12589,23 +8110,16 @@ ao广受好评，目前的日增已经是平时的三倍了<img src="https://sta
 ##### 3669#       发表于 2019-4-20 10:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43376427&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-19 18:02</a>
 
 ao广受好评，目前的日增已经是平时的三倍了</blockquote>
 特地去看了一下原来已经第四页了，这描述也太缺德了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  free  
 ##### 3670#       发表于 2019-4-20 10:31
-
 
 
  本帖最后由 free 于 2019-4-20 10:33 编辑 
@@ -12615,16 +8129,10 @@ ao广受好评，目前的日增已经是平时的三倍了</blockquote>
 主要是创作才能这个对于当vtuber总觉得意义不大，七色之风算是我给人推荐vtuber原创歌时候都会提的几首了，问题是......人家不吃这个啊
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 3671#       发表于 2019-4-20 10:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43376642&amp;ptid=1823171" target="_blank">free 发表于 2019-4-20 10:31</a>
@@ -12636,16 +8144,10 @@ AO最魂的肯定是，電子のシンフォニー
 当然该不吃的，还是不会吃的……
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 3672#       发表于 2019-4-20 10:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43376568&amp;ptid=1823171" target="_blank">tiro_finale 发表于 2019-4-20 10:23</a>
@@ -12654,17 +8156,10 @@ AO最魂的肯定是，電子のシンフォニー
 广受好评的是看推上的repo，觉得她吐槽役演得不错，双叶的话独特的轻重音我看本土那边挺受用的
 
 
-
-
-
-
-
 -----
 
 ####  草摩红茶  
 ##### 3673#       发表于 2019-4-20 10:47
-
-
 
 
 看了一眼，就占了一点，买东西填表，店员都没，还不如网上直接买<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
@@ -12675,16 +8170,10 @@ AO最魂的肯定是，電子のシンフォニー
 —— 来自 Sony H9493, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  天堂懵懂人  
 ##### 3674#       发表于 2019-4-20 10:58
-
 
 
 <img src="https://s2.ax1x.com/2019/04/20/E9OX8S.jpg" referrerpolicy="no-referrer">
@@ -12692,16 +8181,10 @@ AO最魂的肯定是，電子のシンフォニー
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">运营你上错号了
 
 
-
-
-
-
-
 -----
 
 ####  f1m15  
 ##### 3675#       发表于 2019-4-20 11:12
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">批站上的怕不是过审版本，为了先审后播用了早期版本
@@ -12713,25 +8196,13 @@ AO最魂的肯定是，電子のシンフォニー
 所以抛开拆腻子特供的低帧数，这个开局应该是能得到好评的
 
 
-
-
-
-
-
 -----
 
 ####  Igarashi  
 ##### 3676#       发表于 2019-4-20 11:23
 
 
-
-
 阿律最近又有什么骚操作么，突然就急上升第一了
-
-
-
-
-
 
 
 -----
@@ -12740,15 +8211,9 @@ AO最魂的肯定是，電子のシンフォニー
 ##### 3677#       发表于 2019-4-20 11:24
 
 
-
 <blockquote>Igarashi 发表于 2019-4-20 11:23
 阿律最近又有什么骚操作么，突然就急上升第一了</blockquote>
 昨天yyut给她引流了
-
-
-
-
-
 
 
 -----
@@ -12757,16 +8222,10 @@ AO最魂的肯定是，電子のシンフォニー
 ##### 3678#       发表于 2019-4-20 11:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43377124&amp;ptid=1823171" target="_blank">SNOWIMEA 发表于 2019-4-20 11:24</a>
 
 昨天yyut给她引流了</blockquote>
 28万订阅大物的力量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12775,16 +8234,10 @@ AO最魂的肯定是，電子のシンフォニー
 ##### 3679#       发表于 2019-4-20 11:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43377136&amp;ptid=1823171" target="_blank">Igarashi 发表于 2019-4-20 11:25</a>
 
 28万订阅大物的力量</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">直播引流，这个是真的骚操作
-
-
-
-
-
 
 
 -----
@@ -12793,16 +8246,10 @@ AO最魂的肯定是，電子のシンフォニー
 ##### 3680#       发表于 2019-4-20 11:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43377136&amp;ptid=1823171" target="_blank">Igarashi 发表于 2019-4-20 11:25</a>
 
 28万订阅大物的力量</blockquote>
 臭归臭，是真的有才华，不止是昨天一天吧，之前也一直有在提律的，初期的偏见也释然了吧。
-
-
-
-
-
 
 
 -----
@@ -12811,16 +8258,10 @@ AO最魂的肯定是，電子のシンフォニー
 ##### 3681#       发表于 2019-4-20 11:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43377151&amp;ptid=1823171" target="_blank">aisakahammer 发表于 2019-4-20 11:27</a>
 
 臭归臭，是真的有才华，不止是昨天一天吧，之前也一直有在提律的，初期的偏见也释然了吧。 ...</blockquote>
 昨天是救救阿律2个半小时专场
-
-
-
-
-
 
 
 -----
@@ -12829,16 +8270,10 @@ AO最魂的肯定是，電子のシンフォニー
 ##### 3682#       发表于 2019-4-20 11:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43377168&amp;ptid=1823171" target="_blank">上坂蓮華黑 发表于 2019-4-20 11:28</a>
 
 昨天是救救阿律2个半小时专场</blockquote>
 反正yyut自称自己只是做自己想做的事的，忽然想通了，发现律不是单纯的蹭他热度的人，算是认可了吧，不喜欢但可以欣赏的人。
-
-
-
-
-
 
 
 -----
@@ -12847,14 +8282,7 @@ AO最魂的肯定是，電子のシンフォニー
 ##### 3683#       发表于 2019-4-20 11:50
 
 
-
-
 马昨天说什么了？怎么感觉ドルスレ好像反应挺大的？
-
-
-
-
-
 
 
 -----
@@ -12863,21 +8291,13 @@ AO最魂的肯定是，電子のシンフォニー
 ##### 3684#       发表于 2019-4-20 11:53
 
 
-
-
 除了一周年派对也没说什么了吧？或者是说提到前几天超V花生引发的事，至少马还是呼吁冷静的。
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3685#       发表于 2019-4-20 11:55
-
 
 
  本帖最后由 いつかの自分 于 2019-4-20 12:11 编辑 
@@ -12899,16 +8319,10 @@ hololive十人联动
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 隔空联动 2VS8
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3686#       发表于 2019-4-20 12:00
-
 
 
 [https://www.youtube.com/watch?v=X7h2EgbeZUk](https://www.youtube.com/watch?v=X7h2EgbeZUk)
@@ -12924,16 +8338,10 @@ hololive十人联动
 【MV】シクラりわ / MOONLIGHT【オリジナル曲】
 
 
-
-
-
-
-
 -----
 
 ####  午前二时野猫  
 ##### 3687#       发表于 2019-4-20 12:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43377429&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-20 11:55</a>
@@ -12945,16 +8353,10 @@ hololive十人联动</blockquote>
 居然是通话的，此处地狱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  椋千寻  
 ##### 3688#       发表于 2019-4-20 12:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43377379&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-20 11:50</a>
@@ -12965,16 +8367,10 @@ hololive十人联动</blockquote>
 花生这次节目效果不好，不少人在nico推特大百科甚至img喷花生和负责剪辑的人，有原教旨ドル厨，有对节目方向不满的节目爱好者，也有5ch趁机入场搅浑水的人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 3689#       发表于 2019-4-20 12:18
-
 
 
 [https://comic-days.com/episode/10834108156650099845](https://comic-days.com/episode/10834108156650099845)
@@ -12983,16 +8379,10 @@ hololive十人联动</blockquote>
 四月一日漫画
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3690#       发表于 2019-4-20 12:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43377637&amp;ptid=1823171" target="_blank">午前二时野猫 发表于 2019-4-20 12:13</a>
@@ -13001,27 +8391,15 @@ hololive十人联动</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">  开了萝卜子那边的之后根本听不见少主三才那对在说什么了  486嗓门真的好大..
 
 
-
-
-
-
-
 -----
 
 ####  魔术师梅丽  
 ##### 3691#       发表于 2019-4-20 12:21
 
 
-
-
 因为是祭典，所以现在乌贼部是4+4+2的组合
 
 10人只有刀塔和lol可以不缺人了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13030,22 +8408,13 @@ hololive十人联动</blockquote>
 ##### 3692#       发表于 2019-4-20 12:24
 
 
-
-
 看了半天才知道aqua原来在的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3693#       发表于 2019-4-20 12:25
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/20/122507errmz7qqroq0ccqy.png" referrerpolicy="no-referrer">
@@ -13058,16 +8427,7 @@ hololive十人联动</blockquote>
 2019-4-20 12:25 上传
 
 
-
-
-
-
 ↑ kksk
-
-
-
-
-
 
 
 -----
@@ -13076,14 +8436,7 @@ hololive十人联动</blockquote>
 ##### 3694#       发表于 2019-4-20 12:34
 
 
-
-
 8人汇合了，烤肉man要疯了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13092,17 +8445,10 @@ hololive十人联动</blockquote>
 ##### 3695#       发表于 2019-4-20 12:36
 
 
-
-
 阿叶在apex的飞机上过银盾了
 
 
 可是我已经回不去了，现在每天下午就等着园长开台
-
-
-
-
-
 
 
 -----
@@ -13111,14 +8457,7 @@ hololive十人联动</blockquote>
 ##### 3696#       发表于 2019-4-20 12:36
 
 
-
-
 叶师在和神田和傻葵的apex突发联动中突然迎来了十万人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13127,14 +8466,7 @@ hololive十人联动</blockquote>
 ##### 3697#       发表于 2019-4-20 12:36
 
 
-
-
 8人同台，不录不烤谢谢
-
-
-
-
-
 
 
 -----
@@ -13143,14 +8475,7 @@ hololive十人联动</blockquote>
 ##### 3698#       发表于 2019-4-20 12:38
 
 
-
-
 另一队好像只有樱巫女开直播..一下多了一两百人
-
-
-
-
-
 
 
 -----
@@ -13159,13 +8484,7 @@ hololive十人联动</blockquote>
 ##### 3699#       发表于 2019-4-20 12:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">hololive这个团建，就看着樱巫女的同接从不到300涨到1000
-
-
-
-
-
 
 
 -----
@@ -13174,14 +8493,7 @@ hololive十人联动</blockquote>
 ##### 3700#       发表于 2019-4-20 13:11
 
 
-
-
 夏哥孤独传说，救救马自立
-
-
-
-
-
 
 
 -----
@@ -13190,17 +8502,10 @@ hololive十人联动</blockquote>
 ##### 3701#       发表于 2019-4-20 13:11
 
 
-
-
 为啥只有夸不播啊，饭皇石锤？
 
 
 看了下小狐狸也没播
-
-
-
-
-
 
 
 -----
@@ -13209,21 +8514,13 @@ hololive十人联动</blockquote>
 ##### 3702#       发表于 2019-4-20 13:14
 
 
-
-
 求你们别黑我夸哥饭皇了，这个说法传播广一些的话holo粉迟早得打起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  tiro_finale  
 ##### 3703#       发表于 2019-4-20 13:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43378229&amp;ptid=1823171" target="_blank">dorasir 发表于 2019-4-19 21:11</a>
@@ -13235,25 +8532,13 @@ hololive十人联动</blockquote>
 引流啊，两个ACE一播其他人还怎么混
 
 
-
-
-
-
-
 -----
 
 ####  feisola  
 ##### 3704#       发表于 2019-4-20 13:17
 
 
-
-
 holo十人联动，夏哥孤独吃鸡，救救夏哥
-
-
-
-
-
 
 
 -----
@@ -13262,16 +8547,10 @@ holo十人联动，夏哥孤独吃鸡，救救夏哥
 ##### 3705#       发表于 2019-4-20 13:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43378247&amp;ptid=1823171" target="_blank">Igarashi 发表于 2019-4-20 13:14</a>
 
 求你们别黑我夸哥饭皇了，这个说法传播广一些的话holo粉迟早得打起来 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">天天黑holo SB、阿夸holo工具人的说什么呢
-
-
-
-
-
 
 
 -----
@@ -13280,22 +8559,13 @@ holo十人联动，夏哥孤独吃鸡，救救夏哥
 ##### 3706#       发表于 2019-4-20 13:18
 
 
-
-
 这次是一边萝卜开另一边狗狗开？
-
-
-
-
-
 
 
 -----
 
 ####  noHentai  
 ##### 3707#       发表于 2019-4-20 13:19
-
-
 
 
 chima昨晚这个歌单emmm……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -13316,17 +8586,10 @@ chima昨晚这个歌单emmm……<img src="https://static.saraba1st.com/image/sm
 蛍の光(1881)
 
 
-
-
-
-
-
 -----
 
 ####  wingzerocos  
 ##### 3708#       发表于 2019-4-20 13:25
-
-
 
 
 其实之前阿委出场的那期ガリベンガーV SP就已经在剪辑上多给阿委戏份了。只不过阿委艺风不拉仇恨+之后又把那期其他部分剪出来又做了一期。这次花生不仅抢其他嘉宾的戏，还妨碍到讲师，比较影响节目效果。
@@ -13334,16 +8597,10 @@ chima昨晚这个歌单emmm……<img src="https://static.saraba1st.com/image/sm
 下一期还有两周时间+嘉宾是空妈，应该不会再出什么问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3709#       发表于 2019-4-20 13:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43378306&amp;ptid=1823171" target="_blank">noHentai 发表于 2019-4-20 13:19</a>
@@ -13358,33 +8615,19 @@ chima昨晚这个歌单emmm……
 很符合我们对她科班出身的猜想啊...没什么emmmm要素吧...
 
 
-
-
-
-
-
 -----
 
 ####  久島鴎  
 ##### 3710#       发表于 2019-4-20 13:43
 
 
-
-
 叶师十万了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  noHentai  
 ##### 3711#       发表于 2019-4-20 13:44
-
-
 
 
 转隔壁
@@ -13405,16 +8648,10 @@ chima昨晚这个歌单emmm……
 神田：我知道 你刚刚跟我说的 
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3712#       发表于 2019-4-20 13:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43378550&amp;ptid=1823171" target="_blank">noHentai 发表于 2019-4-20 13:44</a>
@@ -13429,16 +8666,10 @@ chima昨晚这个歌单emmm……
 已经中毒了
 
 
-
-
-
-
-
 -----
 
 ####  SchwarzeKatze  
 ##### 3713#       发表于 2019-4-20 13:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43378537&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-20 13:42</a>
@@ -13450,16 +8681,10 @@ chima昨晚这个歌单emmm……
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">“唱哪年的歌就是哪代的人”
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3714#       发表于 2019-4-20 13:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43378587&amp;ptid=1823171" target="_blank">SchwarzeKatze 发表于 2019-4-20 13:47</a>
@@ -13468,16 +8693,10 @@ chima昨晚这个歌单emmm……
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">“为什么要学我说话”
 
 
-
-
-
-
-
 -----
 
 ####  SchwarzeKatze  
 ##### 3715#       发表于 2019-4-20 13:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43378550&amp;ptid=1823171" target="_blank">noHentai 发表于 2019-4-20 13:44</a>
@@ -13489,16 +8708,10 @@ chima昨晚这个歌单emmm……
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">讲道理我觉得一窝蜂播自走棋不是什么好事，特别是对两类人：底边、哈弟鹦鹉这些打枪主播
 
 
-
-
-
-
-
 -----
 
 ####  qw945  
 ##### 3716#       发表于 2019-4-20 13:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43376427&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-20 10:02</a>
@@ -13507,25 +8720,13 @@ ao广受好评，目前的日增已经是平时的三倍了</blockquote>
 我怎么觉得是管人金曲的加成<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lccdljfh  
 ##### 3717#       发表于 2019-4-20 14:01
 
 
-
-
 怎么一窝蜂自走棋的，还菜，除了铁粉真有人看他们玩么
-
-
-
-
-
 
 
 -----
@@ -13534,15 +8735,9 @@ ao广受好评，目前的日增已经是平时的三倍了</blockquote>
 ##### 3718#       发表于 2019-4-20 14:01
 
 
-
 <img src="https://s2.ax1x.com/2019/04/20/ECBdiT.png" referrerpolicy="no-referrer">
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这是试着自己配音了的意思吧，声音好软啊
-
-
-
-
-
 
 
 -----
@@ -13551,16 +8746,10 @@ ao广受好评，目前的日增已经是平时的三倍了</blockquote>
 ##### 3719#       发表于 2019-4-20 14:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43378733&amp;ptid=1823171" target="_blank">天堂懵懂人 发表于 2019-4-20 14:01</a>
 
 这是试着自己配音了的意思吧，声音好软啊</blockquote>
 青い空！？
-
-
-
-
-
 
 
 -----
@@ -13569,16 +8758,10 @@ ao广受好评，目前的日增已经是平时的三倍了</blockquote>
 ##### 3720#       发表于 2019-4-20 14:04
 
 
-
 [https://www.youtube.com/watch?v=y4f1A6iNBkY](https://www.youtube.com/watch?v=y4f1A6iNBkY)
 
 
 哈哥这边放了四杯奶茶是要喝四杯吗....
-
-
-
-
-
 
 
 -----
@@ -13587,14 +8770,7 @@ ao广受好评，目前的日增已经是平时的三倍了</blockquote>
 ##### 3721#       发表于 2019-4-20 14:24
 
 
-
-
 唱歌判断没什么用，推荐一个比较有效的基准，提到pm剧场版会说哪个
-
-
-
-
-
 
 
 -----
@@ -13603,13 +8779,7 @@ ao广受好评，目前的日增已经是平时的三倍了</blockquote>
 ##### 3722#       发表于 2019-4-20 14:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">哈哥一回来就做这种虚无企划吗？
-
-
-
-
-
 
 
 -----
@@ -13618,14 +8788,7 @@ ao广受好评，目前的日增已经是平时的三倍了</blockquote>
 ##### 3723#       发表于 2019-4-20 14:32
 
 
-
-
 银猫nns那个公寓最近还有什么新消息么
-
-
-
-
-
 
 
 -----
@@ -13634,23 +8797,16 @@ ao广受好评，目前的日增已经是平时的三倍了</blockquote>
 ##### 3724#       发表于 2019-4-20 14:32
 
 
-
 [https://twitter.com/OtogibaraEra/status/1119486522212765696](https://twitter.com/OtogibaraEra/status/1119486522212765696)
 
 
 ギバラ　今日配信ある！
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3725#       发表于 2019-4-20 14:34
-
 
 
 [https://www.youtube.com/watch?v=CH0gvnx0KnU](https://www.youtube.com/watch?v=CH0gvnx0KnU)
@@ -13663,25 +8819,13 @@ ao广受好评，目前的日增已经是平时的三倍了</blockquote>
 イカスミ　←new!
 
 
-
-
-
-
-
 -----
 
 ####  薛定谔的小猫  
 ##### 3726#       发表于 2019-4-20 15:00
 
 
-
-
 夏哥一杀吃鸡，荣耀下播，可以了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13690,21 +8834,13 @@ ao广受好评，目前的日增已经是平时的三倍了</blockquote>
 ##### 3727#       发表于 2019-4-20 15:07
 
 
-
-
 Roa这漫长暑假何时是个尽头...好想看她播更有趣点的游戏...
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3728#       发表于 2019-4-20 15:17
-
 
 
  本帖最后由 いつかの自分 于 2019-4-20 15:18 编辑 
@@ -13717,7 +8853,6 @@ Roa这漫长暑假何时是个尽头...好想看她播更有趣点的游戏...
 nico太卡看不了..有人看了确定下么
 
 
-
 然后 <blockquote>おはぽえ^p^
 
 きょうは誰がなんといおうと世界がこわれようと
@@ -13727,17 +8862,10 @@ nico太卡看不了..有人看了确定下么
 なにしてあそぼっかなあ～^p^</blockquote>
 
 
-
-
-
-
-
-
 -----
 
 ####  午前二时野猫  
 ##### 3729#       发表于 2019-4-20 15:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43379427&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-20 15:17</a>
@@ -13748,17 +8876,10 @@ https://www.nicovideo.jp/watch/sm34996165
 声音完全不像，看有人说字迹像这就不清楚了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 3730#       发表于 2019-4-20 15:29
-
-
 
 
 拉拉后辈
@@ -13773,24 +8894,11 @@ https://www.nicovideo.jp/watch/sm34996165
 2019-4-20 15:28 上传
 
 
-
-
-
-
 ふわふわ時間
 [https://www.youtube.com/watch?v=VKAdX-9uP-Q](https://www.youtube.com/watch?v=VKAdX-9uP-Q)
 
 
-
 技术力上升中
-
-
-
-
-
-
-
-
 
 
 -----
@@ -13799,21 +8907,13 @@ https://www.nicovideo.jp/watch/sm34996165
 ##### 3731#       发表于 2019-4-20 15:30
 
 
-
-
 我还专门把莉莉姆切出来对比了一下，这视频里的更幼，不过两边都是做出来的声线，就很难判断了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3732#       发表于 2019-4-20 15:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43379561&amp;ptid=1823171" target="_blank">Chia 发表于 2019-4-20 15:29</a>
@@ -13825,25 +8925,14 @@ https://www.nicovideo.jp/watch/sm34996165
 连频道名都改了..
 
 
-
-
-
-
-
 -----
 
 ####  小泉花陽  
 ##### 3733#       发表于 2019-4-20 15:47
 
 
-
 <img src="https://i.loli.net/2019/04/20/5cbace8f7612c.jpg" referrerpolicy="no-referrer">
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13852,16 +8941,10 @@ https://www.nicovideo.jp/watch/sm34996165
 ##### 3734#       发表于 2019-4-20 15:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43379306&amp;ptid=1823171" target="_blank">vonkarajan 发表于 2019-4-20 15:07</a>
 
 Roa这漫长暑假何时是个尽头...好想看她播更有趣点的游戏...</blockquote>
 我也有点不想看这个……不过可爱的女儿爱玩，老父亲也没办法，只能温柔注视<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13870,14 +8953,8 @@ Roa这漫长暑假何时是个尽头...好想看她播更有趣点的游戏...</
 ##### 3735#       发表于 2019-4-20 15:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43379710&amp;ptid=1823171" target="_blank">小泉花陽 发表于 2019-4-20 15:47</a></blockquote>
 地位！名誉！金！
-
-
-
-
-
 
 
 -----
@@ -13886,15 +8963,9 @@ Roa这漫长暑假何时是个尽头...好想看她播更有趣点的游戏...</
 ##### 3736#       发表于 2019-4-20 15:50
 
 
-
 [https://twitter.com/chima_machita23/status/1119504325552685057](https://twitter.com/chima_machita23/status/1119504325552685057)
 
 chima好像在准备下一次歌投稿
-
-
-
-
-
 
 
 -----
@@ -13903,24 +8974,16 @@ chima好像在准备下一次歌投稿
 ##### 3737#       发表于 2019-4-20 15:53
 
 
-
-
 Chima都直播唱德语野玫瑰和意大利语重归苏联托了
 
 
 要不干脆投一首O mio babbino caro或者为艺术为爱情吧，应该还没Vtuber这么干过？
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 3738#       发表于 2019-4-20 15:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43379639&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-20 15:38</a>
@@ -13932,16 +8995,10 @@ Chima都直播唱德语野玫瑰和意大利语重归苏联托了
 后辈的后辈其实还不错的
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 3739#       发表于 2019-4-20 15:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43379762&amp;ptid=1823171" target="_blank">vonkarajan 发表于 2019-4-20 15:53</a>
@@ -13953,32 +9010,19 @@ Chima都直播唱德语野玫瑰和意大利语重归苏联托了
 德语 意大利语，真是科班生专属了…………搞音乐剧的都不太会碰
 
 
-
-
-
-
-
 -----
 
 ####  tglals  
 ##### 3740#       发表于 2019-4-20 15:59
 
 
-
-
 说一下 夏色吹雪在突击喷射部 夏色吹雪相性良好
-
-
-
-
-
 
 
 -----
 
 ####  北条早苗  
 ##### 3741#       发表于 2019-4-20 16:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43379561&amp;ptid=1823171" target="_blank">Chia 发表于 2019-4-20 15:29</a>
@@ -13990,16 +9034,10 @@ Chima都直播唱德语野玫瑰和意大利语重归苏联托了
 听推特上面的一小段音频，微妙有种声优出身的感觉
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 3742#       发表于 2019-4-20 16:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43379903&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-20 16:07</a>
@@ -14019,16 +9057,10 @@ Chima都直播唱德语野玫瑰和意大利语重归苏联托了
 他们是“我全都要”类型的
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3743#       发表于 2019-4-20 16:21
-
 
 
 [https://twitter.com/Ichika_Souya/status/1119181314928697344](https://twitter.com/Ichika_Souya/status/1119181314928697344)
@@ -14050,26 +9082,15 @@ souyaichika.info@gmail.com
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 3744#       发表于 2019-4-20 16:24
 
 
-
 <img src="https://i.loli.net/2019/04/20/5cbad73f5ee0a.png" referrerpolicy="no-referrer">
 
 スプライブ<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14078,13 +9099,7 @@ souyaichika.info@gmail.com
 ##### 3745#       发表于 2019-4-20 16:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叶师被B站扔到自走棋区去了233
-
-
-
-
-
 
 
 -----
@@ -14093,14 +9108,7 @@ souyaichika.info@gmail.com
 ##### 3746#       发表于 2019-4-20 16:36
 
 
-
-
 roa的暑假其实还可以  有事的时候当背景音也挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14109,21 +9117,13 @@ roa的暑假其实还可以  有事的时候当背景音也挺好的<img src="
 ##### 3747#       发表于 2019-4-20 16:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  傻紫已经被猫狗攻略了？ 
-
-
-
-
-
 
 
 -----
 
 ####  Chia  
 ##### 3748#       发表于 2019-4-20 16:45
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/20/164504gvvdgxrmq2kkfegk.png" referrerpolicy="no-referrer">
@@ -14136,17 +9136,7 @@ roa的暑假其实还可以  有事的时候当背景音也挺好的<img src="
 2019-4-20 16:45 上传
 
 
-
-
-
-
-
 两人三角……
-
-
-
-
-
 
 
 -----
@@ -14155,16 +9145,10 @@ roa的暑假其实还可以  有事的时候当背景音也挺好的<img src="
 ##### 3749#       发表于 2019-4-20 16:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43380131&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-20 16:40</a>
 
 傻紫已经被猫狗攻略了？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">猫狗比较乐意配合，满足小学生各种发想
-
-
-
-
-
 
 
 -----
@@ -14173,23 +9157,16 @@ roa的暑假其实还可以  有事的时候当背景音也挺好的<img src="
 ##### 3750#       发表于 2019-4-20 16:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43380131&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-20 00:40</a>
 
 傻紫已经被猫狗攻略了？</blockquote>
 小学生和おかゆ熟的程度可以说是有点异常了，感觉交情不浅，但年纪又不太对得上，很谜
 
 
-
-
-
-
-
 -----
 
 ####  rita200123  
 ##### 3751#       发表于 2019-4-20 16:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43376642&amp;ptid=1823171" target="_blank">free 发表于 2019-4-20 10:31</a>
@@ -14200,16 +9177,10 @@ roa的暑假其实还可以  有事的时候当背景音也挺好的<img src="
 AV梗真的是默名背鍋
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 3752#       发表于 2019-4-20 16:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43380181&amp;ptid=1823171" target="_blank">Chia 发表于 2019-4-20 16:45</a>
@@ -14220,16 +9191,10 @@ AV梗真的是默名背鍋
 送爱趴的门票和有anst，upd8？
 
 
-
-
-
-
-
 -----
 
 ####  魔术师梅丽  
 ##### 3753#       发表于 2019-4-20 17:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43380210&amp;ptid=1823171" target="_blank">tiro_finale 发表于 2019-4-20 16:48</a>
@@ -14240,17 +9205,10 @@ AV梗真的是默名背鍋
 不是熟识就是小学生的迷之人脉
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3754#       发表于 2019-4-20 17:06
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/20/170554km4amgirjmgsa5z6.png" referrerpolicy="no-referrer">
@@ -14263,18 +9221,7 @@ AV梗真的是默名背鍋
 2019-4-20 17:05 上传
 
 
-
-
-
-
-
-
 これぞ姉妹...泣けるわ
-
-
-
-
-
 
 
 -----
@@ -14283,14 +9230,7 @@ AV梗真的是默名背鍋
 ##### 3755#       发表于 2019-4-20 17:19
 
 
-
-
 所以实锤转播是小学生自己的决定了？
-
-
-
-
-
 
 
 -----
@@ -14299,16 +9239,10 @@ AV梗真的是默名背鍋
 ##### 3756#       发表于 2019-4-20 17:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43380457&amp;ptid=1823171" target="_blank">Igarashi 发表于 2019-4-20 17:19</a>
 
 所以实锤转播是小学生自己的决定了？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">就傻紫最近和猫贴的架势来看。也说不定是holo最近的决策导致的
-
-
-
-
-
 
 
 -----
@@ -14317,16 +9251,10 @@ AV梗真的是默名背鍋
 ##### 3757#       发表于 2019-4-20 17:24
 
 
-
 [https://twitter.com/ib_12rasiberry/status/1119527941799464960](https://twitter.com/ib_12rasiberry/status/1119527941799464960)
 
 
 弹丸风Vtuber   可能停止活动 ..被怀疑抄袭画风..
-
-
-
-
-
 
 
 -----
@@ -14335,20 +9263,13 @@ AV梗真的是默名背鍋
 ##### 3758#       发表于 2019-4-20 17:27
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">小学生和dwu也很熟阿，对年上的迷之吸引力吗。
-
-
-
-
-
 
 
 -----
 
 ####  potwater  
 ##### 3759#       发表于 2019-4-20 17:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43380505&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-20 17:24</a>
@@ -14360,16 +9281,10 @@ https://twitter.com/ib_12rasiberry/status/1119527941799464960
 想起微糖…
 
 
-
-
-
-
-
 -----
 
 ####  zero_death  
 ##### 3760#       发表于 2019-4-20 17:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43380250&amp;ptid=1823171" target="_blank">rita200123 发表于 2019-4-20 16:54</a>
@@ -14381,25 +9296,13 @@ AV梗真的是默名背鍋</blockquote>
 —— 来自 HTC 10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 3761#       发表于 2019-4-20 17:38
 
 
-
-
 486和傻紫  迷之社交力
-
-
-
-
-
 
 
 -----
@@ -14408,23 +9311,16 @@ AV梗真的是默名背鍋</blockquote>
 ##### 3762#       发表于 2019-4-20 17:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43380581&amp;ptid=1823171" target="_blank">potwater 发表于 2019-4-20 17:33</a>
 
 想起微糖…</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">  bans新member可能性微存
 
 
-
-
-
-
-
 -----
 
 ####  cxj649  
 ##### 3763#       发表于 2019-4-20 17:40
-
 
 
  本帖最后由 cxj649 于 2019-4-20 17:43 编辑 
@@ -14438,16 +9334,10 @@ AV梗真的是默名背鍋</blockquote>
 对照有同是创作系的药袋，即使摸鱼也爆发升至7w
 
 
-
-
-
-
-
 -----
 
 ####  rita200123  
 ##### 3764#       发表于 2019-4-20 17:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43380638&amp;ptid=1823171" target="_blank">cxj649 发表于 2019-4-20 17:40</a>
@@ -14460,26 +9350,15 @@ AV梗真的是默名背鍋</blockquote>
 搞原創曲的在V界就沒有紅的
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 3765#       发表于 2019-4-20 17:51
 
 
-
 [https://webpon.net/tenant/YUA/index](https://webpon.net/tenant/YUA/index)
 
 YUA抽蛋
-
-
-
-
-
 
 
 -----
@@ -14488,24 +9367,16 @@ YUA抽蛋
 ##### 3766#       发表于 2019-4-20 17:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43380686&amp;ptid=1823171" target="_blank">rita200123 发表于 2019-4-20 17:47</a>
 
 搞原創曲的在V界就沒有紅的</blockquote>
 不是原创曲，是小青初期奇怪的视频太多，没享受到蓝海红利，至于原创曲红不红是后来的问题了
 
 
-
-
-
-
-
 -----
 
 ####  rita200123  
 ##### 3767#       发表于 2019-4-20 17:58
-
-
 
 
 在V界有特色比較吃香
@@ -14515,25 +9386,13 @@ DWU跟花魁訂閱數點擊數可比小青還高
 與其說小青搞av梗所以沒人氣不如說玩得不夠徹底所以沒人氣
 
 
-
-
-
-
-
 -----
 
 ####  斜阳  
 ##### 3768#       发表于 2019-4-20 17:58
 
 
-
-
 ROAx夜廻，晚上10点
-
-
-
-
-
 
 
 -----
@@ -14542,21 +9401,13 @@ ROAx夜廻，晚上10点
 ##### 3769#       发表于 2019-4-20 17:58
 
 
-
-
 既然说到了ao插播一条续报，ao今天已经取得了过去一周的日增了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  cxj649  
 ##### 3770#       发表于 2019-4-20 18:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43380776&amp;ptid=1823171" target="_blank">rita200123 发表于 2019-4-20 17:58</a>
@@ -14569,17 +9420,10 @@ DWU跟花魁訂閱數點擊數可比小青還高
 是的，比较迷，小青总体肯定走清纯路线的，但玩AV梗也“撕皮”不彻底，路线很奇怪
 
 
-
-
-
-
-
 -----
 
 ####  tiro_finale  
 ##### 3771#       发表于 2019-4-20 18:02
-
-
 
 
 小青不光是自我介绍搞这些，后面魔镜号可从来没停过还唱到歌词里
@@ -14589,16 +9433,10 @@ DWU跟花魁訂閱數點擊數可比小青還高
 结果是真的不行
 
 
-
-
-
-
-
 -----
 
 ####  rita200123  
 ##### 3772#       发表于 2019-4-20 18:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43380810&amp;ptid=1823171" target="_blank">tiro_finale 发表于 2019-4-20 18:02</a>
@@ -14609,27 +9447,15 @@ DWU跟花魁訂閱數點擊數可比小青還高
 她本人的本質不夠av
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 3773#       发表于 2019-4-20 18:06
 
 
-
-
 说AV梗不行就是ao自己撑不起avtuber这么一个角色啊
 
 后来换了套造型重新走创作线路大家才发现她是一个有才华的人，觉得她被当初那套企划坑了也是正常
-
-
-
-
-
 
 
 -----
@@ -14638,21 +9464,13 @@ DWU跟花魁訂閱數點擊數可比小青還高
 ##### 3774#       发表于 2019-4-20 18:15
 
 
-
-
 小青别的不提 人脉是绝对不用担心的
-
-
-
-
-
 
 
 -----
 
 ####  北条早苗  
 ##### 3775#       发表于 2019-4-20 18:22
-
 
 
 <img src="https://i.loli.net/2019/04/20/5cbaf2b2183e9.jpg" referrerpolicy="no-referrer">
@@ -14662,16 +9480,10 @@ DWU跟花魁訂閱數點擊數可比小青還高
 skrmk都被放上去了真有面子，阿杏这个ほちょ猫也太草了
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 3776#       发表于 2019-4-20 18:28
-
 
 
 <blockquote>北条早苗 发表于 2019-4-20 18:22
@@ -14681,16 +9493,10 @@ skrmk都被放上去了真有面子，阿杏这个ほちょ猫也太草了 ...</
 混进来一只猫
 
 
-
-
-
-
-
 -----
 
 ####  Igarashi  
 ##### 3777#       发表于 2019-4-20 18:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43380967&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-20 18:22</a>
@@ -14701,16 +9507,10 @@ skrmk都被放上去了真有面子，阿杏这个ほちょ猫也太草了 ...</
 noracat：！？
 
 
-
-
-
-
-
 -----
 
 ####  potwater  
 ##### 3778#       发表于 2019-4-20 18:33
-
 
 
 [https://youtu.be/nsMoN9NvTq4](https://youtu.be/nsMoN9NvTq4)
@@ -14721,16 +9521,10 @@ noracat：！？
 您要解放了吗
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 3779#       发表于 2019-4-20 18:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43380967&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-20 18:22</a>
@@ -14741,16 +9535,10 @@ skrmk都被放上去了真有面子，阿杏这个ほちょ猫也太草了 ...</
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿委这张怎么有种被粉丝后期P过的感觉了
 
 
-
-
-
-
-
 -----
 
 ####  lhawp  
 ##### 3780#       发表于 2019-4-20 18:35
-
 
 
  本帖最后由 lhawp 于 2019-4-20 18:37 编辑 
@@ -14761,16 +9549,10 @@ https://youtu.be/nsMoN9NvTq4
 终于想开了要撕皮了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3781#       发表于 2019-4-20 18:36
-
 
 
  本帖最后由 いつかの自分 于 2019-4-20 18:37 编辑 
@@ -14782,16 +9564,10 @@ skrmk都被放上去了真有面子，阿杏这个ほちょ猫也太草了 ...</
 在nijian看过彩虹holo和anst的一模一样的图   估计就是那群人了
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3782#       发表于 2019-4-20 18:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43381048&amp;ptid=1823171" target="_blank">バーチャルS1er 发表于 2019-4-20 18:34</a>
@@ -14800,16 +9576,10 @@ skrmk都被放上去了真有面子，阿杏这个ほちょ猫也太草了 ...</
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  这张P没P过我不知道  半夜你点进去肯定得吓一跳
 
 
-
-
-
-
-
 -----
 
 ####  cxj649  
 ##### 3783#       发表于 2019-4-20 18:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43381048&amp;ptid=1823171" target="_blank">バーチャルS1er 发表于 2019-4-20 18:34</a>
@@ -14818,32 +9588,19 @@ skrmk都被放上去了真有面子，阿杏这个ほちょ猫也太草了 ...</
 阿委这张就放在阿花推特号里的，她自己发的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  薛定谔的小猫  
 ##### 3784#       发表于 2019-4-20 18:39
 
 
-
-
 出个门就错过一场突击，hololive服了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  ScarletMoon  
 ##### 3785#       发表于 2019-4-20 18:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43380967&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-20 18:22</a>
@@ -14854,25 +9611,13 @@ skrmk都被放上去了真有面子，阿杏这个ほちょ猫也太草了 ...</
 rion信！？
 
 
-
-
-
-
-
 -----
 
 ####  Igarashi  
 ##### 3786#       发表于 2019-4-20 18:42
 
 
-
-
 今晚能看到明酱撕皮了么
-
-
-
-
-
 
 
 -----
@@ -14881,16 +9626,10 @@ rion信！？
 ##### 3787#       发表于 2019-4-20 18:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43381065&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-20 18:36</a>
 在nijian看过彩虹holo和anst的一模一样的图   估计就是那群人了</blockquote>
 アフィガイジ？
 我还以为国内大手子搞的，毕竟这人选有点奇怪
-
-
-
-
-
 
 
 -----
@@ -14899,16 +9638,10 @@ rion信！？
 ##### 3788#       发表于 2019-4-20 18:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43381121&amp;ptid=1823171" target="_blank">ScarletMoon 发表于 2019-4-20 18:41</a>
 
 rion信！？</blockquote>
 角度过于清奇
-
-
-
-
-
 
 
 -----
@@ -14917,14 +9650,7 @@ rion信！？</blockquote>
 ##### 3789#       发表于 2019-4-20 18:42
 
 
-
-
 每次都想说贫乳演巨乳角色是需求，巨乳演贫乳角色是浪费资源。
-
-
-
-
-
 
 
 -----
@@ -14933,16 +9659,10 @@ rion信！？</blockquote>
 ##### 3790#       发表于 2019-4-20 18:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43381130&amp;ptid=1823171" target="_blank">Igarashi 发表于 2019-4-20 18:42</a>
 
 角度过于清奇</blockquote>
 这个选图对rion来说确实亚萨西
-
-
-
-
-
 
 
 -----
@@ -14951,21 +9671,13 @@ rion信！？</blockquote>
 ##### 3791#       发表于 2019-4-20 18:44
 
 
-
-
 除了日常跳劈三下，人选和选图都很讲究，可能是人均美少女论信者
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3792#       发表于 2019-4-20 18:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43381129&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-20 18:42</a>
@@ -14976,16 +9688,10 @@ rion信！？</blockquote>
 某天晚上nijian的狂欢   被别人收起来做了一套吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Igarashi  
 ##### 3793#       发表于 2019-4-20 18:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43381137&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-20 18:43</a>
@@ -14994,25 +9700,13 @@ rion信！？</blockquote>
 这想法也很有力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算艺术照了吧
 
 
-
-
-
-
-
 -----
 
 ####  free  
 ##### 3794#       发表于 2019-4-20 18:50
 
 
-
-
 做这图的和委员长有仇吧，颜值最高的几个太子小明犬山哥没跑了
-
-
-
-
-
 
 
 -----
@@ -15021,23 +9715,16 @@ rion信！？</blockquote>
 ##### 3795#       发表于 2019-4-20 18:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43381144&amp;ptid=1823171" target="_blank">tiro_finale 发表于 2019-4-20 18:44</a>
 
 除了日常跳劈三下，人选和选图都很讲究，可能是人均美少女论信者</blockquote>
 貼醜圖太容易引戰
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3796#       发表于 2019-4-20 18:51
-
 
 
  本帖最后由 いつかの自分 于 2019-4-20 18:55 编辑 
@@ -15051,16 +9738,10 @@ gibara 9点开始  目前55踩
 评论栏都是信者   看来没有战争可以看了
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3797#       发表于 2019-4-20 18:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43381197&amp;ptid=1823171" target="_blank">free 发表于 2019-4-20 18:50</a>
@@ -15069,26 +9750,15 @@ gibara 9点开始  目前55踩
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">  你没看电视台发的推么  那上面有没美颜的犬山
 
 
-
-
-
-
-
 -----
 
 ####  午前二时野猫  
 ##### 3798#       发表于 2019-4-20 18:53
 
 
-
  本帖最后由 午前二时野猫 于 2019-4-20 18:54 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">人均美少女倒是放张drn啊
-
-
-
-
-
 
 
 -----
@@ -15097,14 +9767,7 @@ gibara 9点开始  目前55踩
 ##### 3799#       发表于 2019-4-20 18:55
 
 
-
-
 就等着明治天皇这一天呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过是不是有点急了，感觉这招还能吊久一点再全开啊
-
-
-
-
-
 
 
 -----
@@ -15113,16 +9776,10 @@ gibara 9点开始  目前55踩
 ##### 3800#       发表于 2019-4-20 18:58
 
 
-
 [https://www.youtube.com/watch?v=VbpeijhXU-8](https://www.youtube.com/watch?v=VbpeijhXU-8)
 
 
 あちきた　　強い
-
-
-
-
-
 
 
 -----
@@ -15131,22 +9788,13 @@ gibara 9点开始  目前55踩
 ##### 3801#       发表于 2019-4-20 18:59
 
 
-
-
 奇美拉都撕到meta的层面了，小红帽再撕意义也不大了，我猜就是透透气
-
-
-
-
-
 
 
 -----
 
 ####  木户孝允  
 ##### 3802#       发表于 2019-4-20 19:00
-
-
 
 
 容易引战带节奏的图还是贴去隔壁吧，这楼应该有不少看新闻看实况的
@@ -15156,32 +9804,19 @@ gibara 9点开始  目前55踩
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  ScarletMoon  
 ##### 3803#       发表于 2019-4-20 19:01
 
 
-
-
 低评价火力消减不少了，不过500还是稳的
-
-
-
-
-
 
 
 -----
 
 ####  Igarashi  
 ##### 3804#       发表于 2019-4-20 19:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43381214&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-20 18:51</a>
@@ -15193,16 +9828,10 @@ gibara 9点开始  目前55踩</blockquote>
 肉眼可见上升中
 
 
-
-
-
-
-
 -----
 
 ####  午前二时野猫  
 ##### 3805#       发表于 2019-4-20 19:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43381279&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-20 18:58</a>
@@ -15214,16 +9843,10 @@ https://www.youtube.com/watch?v=VbpeijhXU-8
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">也太追求T-spin了
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3806#       发表于 2019-4-20 19:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43381350&amp;ptid=1823171" target="_blank">午前二时野猫 发表于 2019-4-20 19:07</a>
@@ -15232,16 +9855,10 @@ https://www.youtube.com/watch?v=VbpeijhXU-8
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">　<blockquote>T Spinキメて気持ちよくなりたいだけ</blockquote>
 
 
-
-
-
-
-
 -----
 
 ####  宫藤芳佳  
 ##### 3807#       发表于 2019-4-20 19:29
-
 
 
 [https://www.youtube.com/watch?v=oxjwYtJkxG4](https://www.youtube.com/watch?v=oxjwYtJkxG4)
@@ -15249,16 +9866,10 @@ https://www.youtube.com/watch?v=VbpeijhXU-8
 前前前世 管人必唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  命运の审判官  
 ##### 3808#       发表于 2019-4-20 20:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43372660&amp;ptid=1823171" target="_blank">zhicai618 发表于 2019-4-19 21:24</a>
@@ -15269,16 +9880,10 @@ https://www.youtube.com/watch?v=VbpeijhXU-8
 其实我倒是挺希望她们再唱一遍的，可惜。
 
 
-
-
-
-
-
 -----
 
 ####  potwater  
 ##### 3809#       发表于 2019-4-20 20:06
-
 
 
 [https://youtu.be/f63tdCdWq4w](https://youtu.be/f63tdCdWq4w)
@@ -15289,16 +9894,10 @@ https://www.youtube.com/watch?v=VbpeijhXU-8
 收益化无效后的清唱配信
 
 
-
-
-
-
-
 -----
 
 ####  SchwarzeKatze  
 ##### 3810#       发表于 2019-4-20 20:33
-
 
 
 [https://www.youtube.com/watch?v=kjrpPIeMbmo](https://www.youtube.com/watch?v=kjrpPIeMbmo)
@@ -15308,25 +9907,13 @@ https://www.youtube.com/watch?v=VbpeijhXU-8
 三才卡拉OK
 
 
-
-
-
-
-
 -----
 
 ####  noHentai  
 ##### 3811#       发表于 2019-4-20 20:42
 
 
-
-
 gibara直播间这一排绿名狂刷评论，anti完全不敢出声吧，只能点踩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15335,21 +9922,13 @@ gibara直播间这一排绿名狂刷评论，anti完全不敢出声吧，只能�
 ##### 3812#       发表于 2019-4-20 20:42
 
 
-
-
 静凛食物中毒（发的是emoji就这么解读了），修养至5月4日
-
-
-
-
-
 
 
 -----
 
 ####  dcatzz  
 ##### 3813#       发表于 2019-4-20 20:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43382221&amp;ptid=1823171" target="_blank">FeClaussell 发表于 2019-4-20 20:42</a>
@@ -15359,16 +9938,10 @@ gibara直播间这一排绿名狂刷评论，anti完全不敢出声吧，只能�
 —— 来自 samsung SM-G9730, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  FeClaussell  
 ##### 3814#       发表于 2019-4-20 20:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43382246&amp;ptid=1823171" target="_blank">dcatzz 发表于 2019-4-20 20:46</a>
@@ -15380,16 +9953,10 @@ gibara直播间这一排绿名狂刷评论，anti完全不敢出声吧，只能�
 是（原图我不搬了，全是emoji）
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3815#       发表于 2019-4-20 20:52
-
 
 
  本帖最后由 いつかの自分 于 2019-4-20 20:53 编辑 
@@ -15407,16 +9974,10 @@ gibara直播间这一排绿名狂刷评论，anti完全不敢出声吧，只能�
 5.4记得是2434有那个同人贩卖会吧   是教他们怎么请假的
 
 
-
-
-
-
-
 -----
 
 ####  dcatzz  
 ##### 3816#       发表于 2019-4-20 20:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43382310&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-20 20:52</a>
@@ -15430,26 +9991,15 @@ gibara直播间这一排绿名狂刷评论，anti完全不敢出声吧，只能�
 —— 来自 samsung SM-G9730, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  lhawp  
 ##### 3817#       发表于 2019-4-20 20:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">小红帽的撕皮直播直接撞了本社的一二期生深夜声剧
 
 熊猫人终于要玩乌贼了，然而不是在自己的频道…
-
-
-
-
-
 
 
 -----
@@ -15458,21 +10008,13 @@ gibara直播间这一排绿名狂刷评论，anti完全不敢出声吧，只能�
 ##### 3818#       发表于 2019-4-20 20:56
 
 
-
-
 名取同接只有3000了啊……<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3819#       发表于 2019-4-20 20:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43382358&amp;ptid=1823171" target="_blank">ScarletMoon 发表于 2019-4-20 20:56</a>
@@ -15484,27 +10026,15 @@ gibara直播间这一排绿名狂刷评论，anti完全不敢出声吧，只能�
 虽然上次一周年也只有7000<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zxf66503  
 ##### 3820#       发表于 2019-4-20 21:00
 
 
-
-
 有人给面包狗在月球上买了块地<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 这应该是和上次小星星命名一样的 奇怪国外商业（骗钱）东西吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15513,14 +10043,7 @@ gibara直播间这一排绿名狂刷评论，anti完全不敢出声吧，只能�
 ##### 3821#       发表于 2019-4-20 21:02
 
 
-
-
 这种东西说难听点就是智商税吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15529,16 +10052,9 @@ gibara直播间这一排绿名狂刷评论，anti完全不敢出声吧，只能�
 ##### 3822#       发表于 2019-4-20 21:03
 
 
-
-
 https://youtu.be/ddOHVkIIIXI
 阿委明天动画投稿，不知道又要搞什么
 猜一个新衣服公开
-
-
-
-
-
 
 
 -----
@@ -15547,13 +10063,7 @@ https://youtu.be/ddOHVkIIIXI
 ##### 3823#       发表于 2019-4-20 21:03
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">2g开了，全是绿名在发消息
-
-
-
-
-
 
 
 -----
@@ -15562,14 +10072,7 @@ https://youtu.be/ddOHVkIIIXI
 ##### 3824#       发表于 2019-4-20 21:05
 
 
-
-
 4分钟4K么  回归BUFF还是有的
-
-
-
-
-
 
 
 -----
@@ -15578,14 +10081,7 @@ https://youtu.be/ddOHVkIIIXI
 ##### 3825#       发表于 2019-4-20 21:05
 
 
-
-
 gibara怒涛的sc，集金性能完全是阿夸水平的了吧
-
-
-
-
-
 
 
 -----
@@ -15594,13 +10090,7 @@ gibara怒涛的sc，集金性能完全是阿夸水平的了吧
 ##### 3826#       发表于 2019-4-20 21:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没有sc的歌回，狮子神好惨啊。
-
-
-
-
-
 
 
 -----
@@ -15609,13 +10099,7 @@ gibara怒涛的sc，集金性能完全是阿夸水平的了吧
 ##### 3827#       发表于 2019-4-20 21:12
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今天又是熟悉的copy2g
-
-
-
-
-
 
 
 -----
@@ -15624,15 +10108,9 @@ gibara怒涛的sc，集金性能完全是阿夸水平的了吧
 ##### 3828#       发表于 2019-4-20 21:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43382460&amp;ptid=1823171" target="_blank">ScarletMoon 发表于 2019-4-20 21:05</a>
 gibara怒涛的sc，集金性能完全是阿夸水平的了吧</blockquote>
 2434的凑阿夸已经退环境了，最近的说法是2434的神乐mea<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15641,16 +10119,10 @@ gibara怒涛的sc，集金性能完全是阿夸水平的了吧</blockquote>
 ##### 3829#       发表于 2019-4-20 21:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43382509&amp;ptid=1823171" target="_blank">空虚澄璃色 发表于 2019-4-20 21:11</a>
 
 没有sc的歌回，狮子神好惨啊。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">就算没有sc，但是该唱还是要唱啊。那些久久不能通过收益化的选手还不是想唱就唱
-
-
-
-
-
 
 
 -----
@@ -15659,16 +10131,10 @@ gibara怒涛的sc，集金性能完全是阿夸水平的了吧</blockquote>
 ##### 3830#       发表于 2019-4-20 21:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43382519&amp;ptid=1823171" target="_blank">Mika-S 发表于 2019-4-20 21:12</a>
 
 2434的凑阿夸已经退环境了，最近的说法是2434的神乐mea</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">其实是meaqua糖，这样么
-
-
-
-
-
 
 
 -----
@@ -15677,16 +10143,10 @@ gibara怒涛的sc，集金性能完全是阿夸水平的了吧</blockquote>
 ##### 3831#       发表于 2019-4-20 21:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43382509&amp;ptid=1823171" target="_blank">空虚澄璃色 发表于 2019-4-20 21:11</a>
 
 没有sc的歌回，狮子神好惨啊。</blockquote>
 她下个月有live了   除了收益化这块其他应该在慢慢好起来
-
-
-
-
-
 
 
 -----
@@ -15695,15 +10155,9 @@ gibara怒涛的sc，集金性能完全是阿夸水平的了吧</blockquote>
 ##### 3832#       发表于 2019-4-20 21:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">阿凛昨天FF14的时候咳了几下
 
 估计熬上火了
-
-
-
-
-
 
 
 -----
@@ -15712,15 +10166,8 @@ gibara怒涛的sc，集金性能完全是阿夸水平的了吧</blockquote>
 ##### 3833#       发表于 2019-4-20 21:19
 
 
-
-
 大福的同接+傻葵的会员数+阿夸的sc+哈哥的低评价率
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">这就是新的王吗
-
-
-
-
-
 
 
 -----
@@ -15729,16 +10176,10 @@ gibara怒涛的sc，集金性能完全是阿夸水平的了吧</blockquote>
 ##### 3834#       发表于 2019-4-20 21:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43382509&amp;ptid=1823171" target="_blank">空虚澄璃色 发表于 2019-4-20 21:11</a>
 
 没有sc的歌回，狮子神好惨啊。</blockquote>
 除了要使用大量音源的free live回变得稀有以外，也影响不到其他的。感觉她这方面的心态也没受多少影响。
-
-
-
-
-
 
 
 -----
@@ -15747,15 +10188,9 @@ gibara怒涛的sc，集金性能完全是阿夸水平的了吧</blockquote>
 ##### 3835#       发表于 2019-4-20 21:22
 
 
-
 [https://www.youtube.com/watch?v=AfqtTzZGq1k](https://www.youtube.com/watch?v=AfqtTzZGq1k)
 
 接力三才的あやめ
-
-
-
-
-
 
 
 -----
@@ -15764,13 +10199,7 @@ gibara怒涛的sc，集金性能完全是阿夸水平的了吧</blockquote>
 ##### 3836#       发表于 2019-4-20 21:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 数学音痴RP配信きつい...社配信しろ！！
-
-
-
-
-
 
 
 -----
@@ -15779,14 +10208,7 @@ gibara怒涛的sc，集金性能完全是阿夸水平的了吧</blockquote>
 ##### 3837#       发表于 2019-4-20 21:27
 
 
-
-
 三才音域不算太广，但音质真的好听<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15795,14 +10217,7 @@ gibara怒涛的sc，集金性能完全是阿夸水平的了吧</blockquote>
 ##### 3838#       发表于 2019-4-20 21:27
 
 
-
-
 mio把b站当成练歌房了，期待下次的b限歌单
-
-
-
-
-
 
 
 -----
@@ -15811,16 +10226,10 @@ mio把b站当成练歌房了，期待下次的b限歌单
 ##### 3839#       发表于 2019-4-20 21:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43382657&amp;ptid=1823171" target="_blank">chaucerling 发表于 2019-4-20 21:27</a>
 
 mio把b站当成练歌房了，期待下次的b限歌单</blockquote>
 22日三才b限卡拉ok 24日萝卜子b限apex 之后应该每周都有了
-
-
-
-
-
 
 
 -----
@@ -15829,16 +10238,10 @@ mio把b站当成练歌房了，期待下次的b限歌单</blockquote>
 ##### 3840#       发表于 2019-4-20 21:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43382675&amp;ptid=1823171" target="_blank">tglals 发表于 2019-4-20 21:28</a>
 
 22日三才b限卡拉ok 24日萝卜子b限apex 之后应该每周都有了</blockquote>
 阿葵不也说每周都会有b限吗，不加多频率真的不一定能压住彩虹的正规军进来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15847,21 +10250,13 @@ mio把b站当成练歌房了，期待下次的b限歌单</blockquote>
 ##### 3841#       发表于 2019-4-20 21:35
 
 
-
-
 说真的让小红帽来试试啊 高了开新路子  低了新素材
-
-
-
-
-
 
 
 -----
 
 ####  noHentai  
 ##### 3842#       发表于 2019-4-20 21:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43382694&amp;ptid=1823171" target="_blank">chaucerling 发表于 2019-4-20 21:31</a>
@@ -15872,25 +10267,13 @@ mio把b站当成练歌房了，期待下次的b限歌单</blockquote>
 彩虹有稳定B限的只有阿凛，人气不算特别高。阿葵还没开始得再看看，DOTA那个人气可遇不可求<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zxf66503  
 ##### 3843#       发表于 2019-4-20 21:39
 
 
-
-
 有竞争好啊，不然大多b限都太混了 还是得想点企划的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15899,14 +10282,7 @@ mio把b站当成练歌房了，期待下次的b限歌单</blockquote>
 ##### 3844#       发表于 2019-4-20 21:40
 
 
-
-
 ホロ什么时候会丢掉基本盘就要等什么时候にじ能在国内揭露虚无本质了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15915,14 +10291,7 @@ mio把b站当成练歌房了，期待下次的b限歌单</blockquote>
 ##### 3845#       发表于 2019-4-20 21:41
 
 
-
-
 今晚holo的歌回都互相让路，这不是我认识的上个月5台3歌回的holo<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15931,21 +10300,13 @@ mio把b站当成练歌房了，期待下次的b限歌单</blockquote>
 ##### 3846#       发表于 2019-4-20 21:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">没人评价一下G2这波RP演的如何么？
-
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3847#       发表于 2019-4-20 21:43
-
 
 
 [https://www.youtube.com/watch?v=vu8cCQHuO-E](https://www.youtube.com/watch?v=vu8cCQHuO-E)
@@ -15955,16 +10316,10 @@ mio把b站当成练歌房了，期待下次的b限歌单</blockquote>
 （听说今天hololive唱歌的很多）
 
 
-
-
-
-
-
 -----
 
 ####  noHentai  
 ##### 3848#       发表于 2019-4-20 21:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43382775&amp;ptid=1823171" target="_blank">激光2000 发表于 2019-4-20 21:41</a>
@@ -15973,16 +10328,10 @@ mio把b站当成练歌房了，期待下次的b限歌单</blockquote>
 事实证明不搞炎上操作再假都没人管RP不RP，也没啥意义，节目效果到位就行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3849#       发表于 2019-4-20 21:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43382775&amp;ptid=1823171" target="_blank">激光2000 发表于 2019-4-20 21:41</a>
@@ -15993,16 +10342,10 @@ mio把b站当成练歌房了，期待下次的b限歌单</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">次は　君の番だ
 
 
-
-
-
-
-
 -----
 
 ####  午前二时野猫  
 ##### 3850#       发表于 2019-4-20 21:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43382760&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-20 21:40</a>
@@ -16011,17 +10354,10 @@ mio把b站当成练歌房了，期待下次的b限歌单</blockquote>
 我倒是觉得就是因为虚无才有这么高基本盘，虚无是人类的共通语言之一<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  swordofsoul1  
 ##### 3851#       发表于 2019-4-20 21:53
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/20/215322si5ttn754x05921w.jpg" referrerpolicy="no-referrer">
@@ -16034,15 +10370,7 @@ mio把b站当成练歌房了，期待下次的b限歌单</blockquote>
 2019-4-20 21:53 上传
 
 
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16051,14 +10379,7 @@ mio把b站当成练歌房了，期待下次的b限歌单</blockquote>
 ##### 3852#       发表于 2019-4-20 21:54
 
 
-
-
 也不用管是不是rp了，这算术看得人血压上涨
-
-
-
-
-
 
 
 -----
@@ -16067,14 +10388,8 @@ mio把b站当成练歌房了，期待下次的b限歌单</blockquote>
 ##### 3853#       发表于 2019-4-20 21:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43382904&amp;ptid=1823171" target="_blank">swordofsoul1 发表于 2019-4-20 21:53</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer"> あかん！！
-
-
-
-
-
 
 
 -----
@@ -16083,23 +10398,16 @@ mio把b站当成练歌房了，期待下次的b限歌单</blockquote>
 ##### 3854#       发表于 2019-4-20 21:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43382775&amp;ptid=1823171" target="_blank">激光2000 发表于 2019-4-20 21:41</a>
 
 没人评价一下G2这波RP演的如何么？</blockquote>
 女巫在说谎！<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  age45  
 ##### 3855#       发表于 2019-4-20 21:56
-
 
 
 <blockquote>ScarletMoon 发表于 2019-4-20 21:19
@@ -16109,25 +10417,13 @@ mio把b站当成练歌房了，期待下次的b限歌单</blockquote>
 holo成分混入？
 
 
-
-
-
-
-
 -----
 
 ####  宫藤芳佳  
 ##### 3856#       发表于 2019-4-20 21:57
 
 
-
-
 记得很久之前就看过好像阿望有点偏蕾丝的说法<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16136,16 +10432,10 @@ holo成分混入？
 ##### 3857#       发表于 2019-4-20 21:58
 
 
-
 [https://www.youtube.com/watch?v=AtTkFe6C3tA](https://www.youtube.com/watch?v=AtTkFe6C3tA)
 
 
 holo今天这是歌回接力？
-
-
-
-
-
 
 
 -----
@@ -16154,14 +10444,7 @@ holo今天这是歌回接力？
 ##### 3858#       发表于 2019-4-20 21:58
 
 
-
-
 看hiyoko发现猫又本来准备9：30开歌回？.....调时间到10点了..うたライブ？
-
-
-
-
-
 
 
 -----
@@ -16170,13 +10453,7 @@ holo今天这是歌回接力？
 ##### 3859#       发表于 2019-4-20 21:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我已经搞不懂江哥是RP还是真的丧失基本数学技能了，人都晕了
-
-
-
-
-
 
 
 -----
@@ -16185,14 +10462,7 @@ holo今天这是歌回接力？
 ##### 3860#       发表于 2019-4-20 21:59
 
 
-
-
 这真的不是自搜到然后点赞么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16201,14 +10471,7 @@ holo今天这是歌回接力？
 ##### 3861#       发表于 2019-4-20 21:59
 
 
-
-
 gibara今天两次行动
-
-
-
-
-
 
 
 -----
@@ -16217,14 +10480,7 @@ gibara今天两次行动
 ##### 3862#       发表于 2019-4-20 22:00
 
 
-
-
 所以虚无到底是什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16233,15 +10489,9 @@ gibara今天两次行动
 ##### 3863#       发表于 2019-4-20 22:02
 
 
-
 <blockquote>wangmour 发表于 2019-4-20 22:00
 所以虚无到底是什么啊</blockquote>
 ”这次直播她到底播了什么啊“
-
-
-
-
-
 
 
 -----
@@ -16250,14 +10500,7 @@ gibara今天两次行动
 ##### 3864#       发表于 2019-4-20 22:03
 
 
-
-
 虚无就是绿帽坛的holo箱推小将最喜欢吹嘘的hololive是一个温暖的大家庭
-
-
-
-
-
 
 
 -----
@@ -16266,21 +10509,13 @@ gibara今天两次行动
 ##### 3865#       发表于 2019-4-20 22:04
 
 
-
-
 虚无代表作，看蘑菇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  swordofsoul1  
 ##### 3866#       发表于 2019-4-20 22:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43382955&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-20 21:59</a>
@@ -16297,16 +10532,7 @@ gibara今天两次行动
 2019-4-20 22:03 上传
 
 
-
-
-
-
 可能只是巧合吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16315,16 +10541,10 @@ gibara今天两次行动
 ##### 3867#       发表于 2019-4-20 22:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43383000&amp;ptid=1823171" target="_blank">free 发表于 2019-4-20 22:03</a>
 
 虚无就是绿帽坛的holo箱推小将最喜欢吹嘘的hololive是一个温暖的大家庭</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">温暖大家庭不是彩虹么
-
-
-
-
-
 
 
 -----
@@ -16333,16 +10553,10 @@ gibara今天两次行动
 ##### 3868#       发表于 2019-4-20 22:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43382998&amp;ptid=1823171" target="_blank">age45 发表于 2019-4-20 22:02</a>
 
 ”这次直播她到底播了什么啊“</blockquote>
 那对我这种不懂日语的，杂谈都是虚无的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16351,14 +10565,7 @@ gibara今天两次行动
 ##### 3869#       发表于 2019-4-20 22:10
 
 
-
-
 roa夜廻十分钟7K人...你们.....
-
-
-
-
-
 
 
 -----
@@ -16367,16 +10574,9 @@ roa夜廻十分钟7K人...你们.....
 ##### 3870#       发表于 2019-4-20 22:11
 
 
-
-
 绿仙下周一anisong同好会   jump曲限定
 
 おっさんたちの青春を合わせました
-
-
-
-
-
 
 
 -----
@@ -16385,14 +10585,7 @@ roa夜廻十分钟7K人...你们.....
 ##### 3871#       发表于 2019-4-20 22:12
 
 
-
-
 可爱就是正义，萝莉控不存在的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16401,15 +10594,9 @@ roa夜廻十分钟7K人...你们.....
 ##### 3872#       发表于 2019-4-20 22:15
 
 
-
 <blockquote>wangmour 发表于 2019-4-20 22:07
 那对我这种不懂日语的，杂谈都是虚无的</blockquote>
 所以白少主第一次睿国限定的那个杂谈直播是相当厉害的，你真不要指望她有多少懂日语的观众
-
-
-
-
-
 
 
 -----
@@ -16418,13 +10605,7 @@ roa夜廻十分钟7K人...你们.....
 ##### 3873#       发表于 2019-4-20 22:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">少主的种蘑菇催眠效果还是不错的，真正的虚无我觉得肯定要点静凛的ff14和三才的DQ，每次我都看着睡着。
-
-
-
-
-
 
 
 -----
@@ -16433,24 +10614,16 @@ roa夜廻十分钟7K人...你们.....
 ##### 3874#       发表于 2019-4-20 22:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43383245&amp;ptid=1823171" target="_blank">空虚澄璃色 发表于 2019-4-20 22:26</a>
 
 少主的种蘑菇催眠效果还是不错的，真正的虚无我觉得肯定要点静凛的ff14和三才的DQ，每次我都看着睡 ...</blockquote>
 催眠和看着睡着的区别是什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3875#       发表于 2019-4-20 22:30
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/20/223039fynzpyzkd3pkk3sa.png" referrerpolicy="no-referrer">
@@ -16463,21 +10636,10 @@ roa夜廻十分钟7K人...你们.....
 2019-4-20 22:30 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  午前二时野猫  
 ##### 3876#       发表于 2019-4-20 22:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43383245&amp;ptid=1823171" target="_blank">空虚澄璃色 发表于 2019-4-20 22:26</a>
@@ -16486,24 +10648,13 @@ roa夜廻十分钟7K人...你们.....
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你这不是前后一致吗
 
 
-
-
-
-
-
 -----
 
 ####  SchwarzeKatze  
 ##### 3877#       发表于 2019-4-20 22:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">猫又这个歌回...感觉特别的hololive
-
-
-
-
-
 
 
 -----
@@ -16512,23 +10663,16 @@ roa夜廻十分钟7K人...你们.....
 ##### 3878#       发表于 2019-4-20 22:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43383014&amp;ptid=1823171" target="_blank">swordofsoul1 发表于 2019-4-20 22:04</a>
 
 可能只是巧合吧</blockquote>
 这边倒是有力很多了，V那边的like很多是当已读的，不靠谱
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3879#       发表于 2019-4-20 22:35
-
 
 
  本帖最后由 いつかの自分 于 2019-4-20 22:37 编辑 
@@ -16548,23 +10692,10 @@ roa夜廻十分钟7K人...你们.....
 2019-4-20 22:36 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  午前二时野猫  
 ##### 3880#       发表于 2019-4-20 22:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43383332&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-20 22:35</a>
@@ -16576,25 +10707,13 @@ roa夜廻十分钟7K人...你们.....
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">采石奥数魔刃
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 3881#       发表于 2019-4-20 22:42
 
 
-
-
 黄油op这么没面子的吗，怎么巫女可以随便播原片的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16603,13 +10722,7 @@ roa夜廻十分钟7K人...你们.....
 ##### 3882#       发表于 2019-4-20 22:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">阿夸的APEX看得人越来越少了   快换个游戏吧  我看到APEX直接不点进去了
-
-
-
-
-
 
 
 -----
@@ -16618,13 +10731,7 @@ roa夜廻十分钟7K人...你们.....
 ##### 3883#       发表于 2019-4-20 22:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">阿汤哥唱歌还可以啊，这首夏露露不错
-
-
-
-
-
 
 
 -----
@@ -16633,16 +10740,9 @@ roa夜廻十分钟7K人...你们.....
 ##### 3884#       发表于 2019-4-20 22:47
 
 
-
-
 roa这次游戏选的比她的暑假好看多了，直播封面都特别棒。
 
 下次日本一新作怕不是也要找roa工商了
-
-
-
-
-
 
 
 -----
@@ -16651,23 +10751,15 @@ roa这次游戏选的比她的暑假好看多了，直播封面都特别棒。
 ##### 3885#       发表于 2019-4-20 22:51
 
 
-
-
 コメ「好きな子が多人数コラボだと中々上手くしゃべれなくなってたりするの見てると「あああああああ」ってなる」
 
 緑「それコミ障だよ　卯月コウの悪口やめろ！」
-
-
-
-
-
 
 
 -----
 
 ####  胧楼  
 ##### 3886#       发表于 2019-4-20 23:00
-
 
 
  本帖最后由 胧楼 于 2019-4-20 23:02 编辑 
@@ -16677,26 +10769,15 @@ roa这次游戏选的比她的暑假好看多了，直播封面都特别棒。
 点进去还以为是工商
 
 
-
-
-
-
-
 -----
 
 ####  potwater  
 ##### 3887#       发表于 2019-4-20 23:02
 
 
-
 [https://youtu.be/cZFJZ1EfuDw](https://youtu.be/cZFJZ1EfuDw)
 
 舞元力一#12【ゲスト：雨森小夜】
-
-
-
-
-
 
 
 -----
@@ -16705,21 +10786,13 @@ roa这次游戏选的比她的暑假好看多了，直播封面都特别棒。
 ##### 3888#       发表于 2019-4-20 23:04
 
 
-
-
 啊委明天的内容应该还是歌，可能是之前的新角色歌Jump！！
-
-
-
-
-
 
 
 -----
 
 ####  Chia  
 ##### 3889#       发表于 2019-4-20 23:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43383619&amp;ptid=1823171" target="_blank">胧楼 发表于 2019-4-20 23:00</a>
@@ -16731,17 +10804,10 @@ roa这次游戏选的比她的暑假好看多了，直播封面都特别棒。
 就之前的和野良猫的小联动
 
 
-
-
-
-
-
-
 -----
 
 ####  ScarletMoon  
 ##### 3890#       发表于 2019-4-20 23:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43383660&amp;ptid=1823171" target="_blank">胡桃丶 发表于 2019-4-20 23:04</a>
@@ -16752,25 +10818,13 @@ roa这次游戏选的比她的暑假好看多了，直播封面都特别棒。
 女仆装
 
 
-
-
-
-
-
 -----
 
 ####  Igarashi  
 ##### 3891#       发表于 2019-4-20 23:12
 
 
-
-
 所以今天小红帽还是普通杂谈回？
-
-
-
-
-
 
 
 -----
@@ -16779,14 +10833,7 @@ roa这次游戏选的比她的暑假好看多了，直播封面都特别棒。
 ##### 3892#       发表于 2019-4-20 23:12
 
 
-
-
 小红帽开局聊自新世界，爱了
-
-
-
-
-
 
 
 -----
@@ -16795,13 +10842,7 @@ roa这次游戏选的比她的暑假好看多了，直播封面都特别棒。
 ##### 3893#       发表于 2019-4-20 23:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">狐狸开局就不用萌音了赞
-
-
-
-
-
 
 
 -----
@@ -16810,21 +10851,13 @@ roa这次游戏选的比她的暑假好看多了，直播封面都特别棒。
 ##### 3894#       发表于 2019-4-20 23:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">激战区被撞成菠萝菠萝的小红帽，舒服了
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3895#       发表于 2019-4-20 23:21
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/20/232036x4l5lgsf0t6o5rtv.png" referrerpolicy="no-referrer">
@@ -16837,16 +10870,7 @@ roa这次游戏选的比她的暑假好看多了，直播封面都特别棒。
 2019-4-20 23:20 上传
 
 
-
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16855,16 +10879,9 @@ roa这次游戏选的比她的暑假好看多了，直播封面都特别棒。
 ##### 3896#       发表于 2019-4-20 23:28
 
 
-
-
 雨森「パンティの色」
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">  好老的叫法
-
-
-
-
-
 
 
 -----
@@ -16873,14 +10890,7 @@ roa这次游戏选的比她的暑假好看多了，直播封面都特别棒。
 ##### 3897#       发表于 2019-4-20 23:28
 
 
-
-
 抓到一只基本满资质的干将 可是去哪里找个差不多的莫邪配啊
-
-
-
-
-
 
 
 -----
@@ -16889,14 +10899,7 @@ roa这次游戏选的比她的暑假好看多了，直播封面都特别棒。
 ##### 3898#       发表于 2019-4-20 23:29
 
 
-
-
 今天深夜声剧这阵容放にじさんじ频道半个小时了才7k人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16905,16 +10908,10 @@ roa这次游戏选的比她的暑假好看多了，直播封面都特别棒。
 ##### 3899#       发表于 2019-4-20 23:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43383887&amp;ptid=1823171" target="_blank">宫藤芳佳 发表于 2019-4-20 23:29</a>
 
 今天深夜声剧这阵容放にじさんじ频道半个小时了才7k人</blockquote>
 戦犯ハジメでいい？
-
-
-
-
-
 
 
 -----
@@ -16923,14 +10920,7 @@ roa这次游戏选的比她的暑假好看多了，直播封面都特别棒。
 ##### 3900#       发表于 2019-4-20 23:31
 
 
-
-
 无印大部分人同接早就不行了，怎么还会有人抱有幻想……
-
-
-
-
-
 
 
 -----
@@ -16939,13 +10929,7 @@ roa这次游戏选的比她的暑假好看多了，直播封面都特别棒。
 ##### 3901#       发表于 2019-4-20 23:34
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">喜欢歌牌，有品位
-
-
-
-
-
 
 
 -----
@@ -16954,15 +10938,9 @@ roa这次游戏选的比她的暑假好看多了，直播封面都特别棒。
 ##### 3902#       发表于 2019-4-20 23:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43383480&amp;ptid=1823171" target="_blank">胧楼 发表于 2019-4-20 22:47</a>
 阿夸的APEX看得人越来越少了   快换个游戏吧  我看到APEX直接不点进去了 ...</blockquote>
 这么惨吗，因为太虚无吗还是打的菜（
-
-
-
-
-
 
 
 -----
@@ -16971,19 +10949,11 @@ roa这次游戏选的比她的暑假好看多了，直播封面都特别棒。
 ##### 3903#       发表于 2019-4-20 23:37
 
 
-
-
 从今天起我就是明治信了
-
-
-
-
 
 
 QQ图片20190420233632.png
 (381.72 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -16992,24 +10962,7 @@ QQ图片20190420233632.png
 2019-4-20 23:37 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/20/233742h1hge8mhreqrz0kc.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -17018,23 +10971,16 @@ QQ图片20190420233632.png
 ##### 3904#       发表于 2019-4-20 23:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43383946&amp;ptid=1823171" target="_blank">feisola 发表于 2019-4-20 23:35</a>
 
 这么惨吗，因为太虚无吗还是打的菜（</blockquote>
 播太多了，很多人看烦了
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 3905#       发表于 2019-4-20 23:38
-
 
 
 [https://youtu.be/i8d6oelaUwQ?t=953](https://youtu.be/i8d6oelaUwQ?t=953)
@@ -17047,26 +10993,13 @@ QQ图片20190420233632.png
 唱自己喜欢的歌果然是完全不一样的感觉
 
 
-
-
-
-
-
-
 -----
 
 ####  Igarashi  
 ##### 3906#       发表于 2019-4-20 23:38
 
 
-
-
 日常系有个がっこうぐらし也是草
-
-
-
-
-
 
 
 -----
@@ -17075,14 +11008,7 @@ QQ图片20190420233632.png
 ##### 3907#       发表于 2019-4-20 23:38
 
 
-
-
 狐狸喝高了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17091,16 +11017,9 @@ QQ图片20190420233632.png
 ##### 3908#       发表于 2019-4-20 23:39
 
 
-
-
 明治的这个动画名单，像是s1漫区去除萝卜元素的感觉呢<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -17109,14 +11028,7 @@ QQ图片20190420233632.png
 ##### 3909#       发表于 2019-4-20 23:39
 
 
-
-
 小红帽这个片单不够婆罗门啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17125,21 +11037,13 @@ QQ图片20190420233632.png
 ##### 3910#       发表于 2019-4-20 23:43
 
 
-
-
 这还不够婆罗门就过分了，去掉萝卜基本就是泥潭坛友了
-
-
-
-
-
 
 
 -----
 
 ####  胧楼  
 ##### 3911#       发表于 2019-4-20 23:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43383984&amp;ptid=1823171" target="_blank">童田明治 发表于 2019-4-20 23:39</a>
@@ -17149,25 +11053,13 @@ QQ图片20190420233632.png
 光一个re0就够批倒批臭了你谢谢
 
 
-
-
-
-
-
 -----
 
 ####  kuhailz  
 ##### 3912#       发表于 2019-4-20 23:44
 
 
-
-
 有AB怎么可能婆罗门，最多达利特
-
-
-
-
-
 
 
 -----
@@ -17176,22 +11068,13 @@ QQ图片20190420233632.png
 ##### 3913#       发表于 2019-4-20 23:44
 
 
-
-
 有re0啊，打回去重写<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3914#       发表于 2019-4-20 23:44
-
-
 
 
 緑　ゆめおいage 
@@ -17205,27 +11088,15 @@ QQ图片20190420233632.png
 にもかかわらず　バズれないゆめおいだった
 
 
-
-
-
-
-
 -----
 
 ####  ScarletMoon  
 ##### 3915#       发表于 2019-4-20 23:46
 
 
-
-
 比起叫来了天皇的薯片大会耻辱的1万同接这个不算什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 声剧本来就是同接debuff
-
-
-
-
-
 
 
 -----
@@ -17234,23 +11105,15 @@ QQ图片20190420233632.png
 ##### 3916#       发表于 2019-4-20 23:46
 
 
-
-
 我听小红帽说あくあ还以为在说阿夸
 
 后来听到めぐみ才反应过来是アクア
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3917#       发表于 2019-4-20 23:47
-
 
 
  本帖最后由 いつかの自分 于 2019-4-20 23:51 编辑 
@@ -17264,16 +11127,10 @@ QQ图片20190420233632.png
 小红帽的话她上次自己也说了..不敢说太多关于动画的   会暴露自己にわか的身份...
 
 
-
-
-
-
-
 -----
 
 ####  默逍  
 ##### 3918#       发表于 2019-4-20 23:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43384048&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-20 23:47</a>
@@ -17281,16 +11138,10 @@ QQ图片20190420233632.png
 我超喜欢机器人动画卡拉OK回的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  noHentai  
 ##### 3919#       发表于 2019-4-20 23:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43384009&amp;ptid=1823171" target="_blank">poipanchao 发表于 2019-4-20 23:43</a>
@@ -17301,32 +11152,19 @@ QQ图片20190420233632.png
 说起来就算是阿委，我也不觉得她会反手就推荐十几部八九十年代的OVA什么的。
 
 
-
-
-
-
-
 -----
 
 ####  zhacaizn  
 ##### 3920#       发表于 2019-4-20 23:55
 
 
-
-
 感觉隔壁狐狸倒是应该挺婆的
-
-
-
-
-
 
 
 -----
 
 ####  童田明治  
 ##### 3921#       发表于 2019-4-20 23:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43384016&amp;ptid=1823171" target="_blank">胧楼 发表于 2019-04-20 23:44:09</a>
@@ -17336,24 +11174,13 @@ QQ图片20190420233632.png
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  SchwarzeKatze  
 ##### 3922#       发表于 2019-4-20 23:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">狐狸这个组曲我好爽啊
-
-
-
-
-
 
 
 -----
@@ -17362,14 +11189,7 @@ QQ图片20190420233632.png
 ##### 3923#       发表于 2019-4-21 00:00
 
 
-
-
 这串烧爽死了
-
-
-
-
-
 
 
 -----
@@ -17378,13 +11198,7 @@ QQ图片20190420233632.png
 ##### 3924#       发表于 2019-4-21 00:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 给gibara点踩的精致睡眠的不少啊  那边时间1点开播之后开播了五分钟才90个踩
-
-
-
-
-
 
 
 -----
@@ -17393,14 +11207,7 @@ QQ图片20190420233632.png
 ##### 3925#       发表于 2019-4-21 00:06
 
 
-
-
 狐狸不止可以上组曲，还可以加料<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17409,16 +11216,10 @@ QQ图片20190420233632.png
 ##### 3926#       发表于 2019-4-21 00:10
 
 
-
 [https://twitter.com/Mizushina_Aoi/status/1119625465600208900](https://twitter.com/Mizushina_Aoi/status/1119625465600208900)
 
 
 猫葵好像在自己作词的样子
-
-
-
-
-
 
 
 -----
@@ -17427,13 +11228,7 @@ QQ图片20190420233632.png
 ##### 3927#       发表于 2019-4-21 00:12
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹，这狐狸怎么醋溜便当里加私货的
-
-
-
-
-
 
 
 -----
@@ -17442,14 +11237,7 @@ QQ图片20190420233632.png
 ##### 3928#       发表于 2019-4-21 00:17
 
 
-
-
 艹了还好在刷群 我都关直播间关录制了 谁知道是假下播
-
-
-
-
-
 
 
 -----
@@ -17458,16 +11246,10 @@ QQ图片20190420233632.png
 ##### 3929#       发表于 2019-4-21 00:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43384306&amp;ptid=1823171" target="_blank">胧楼 发表于 2019-4-21 00:17</a>
 
 艹了还好在刷群 我都关直播间关录制了 谁知道是假下播</blockquote>
 谢谢提醒  我真关了..
-
-
-
-
-
 
 
 -----
@@ -17476,16 +11258,9 @@ QQ图片20190420233632.png
 ##### 3930#       发表于 2019-4-21 00:20
 
 
-
-
 哭了，快十几年没听到这歌了
 
 —— 来自 Xiaomi MIX 2, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
-
-
-
-
-
 
 
 -----
@@ -17494,14 +11269,7 @@ QQ图片20190420233632.png
 ##### 3931#       发表于 2019-4-21 00:22
 
 
-
-
 当场改词<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17510,14 +11278,7 @@ QQ图片20190420233632.png
 ##### 3932#       发表于 2019-4-21 00:40
 
 
-
-
 もるにゃう的声线都唱出来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17526,14 +11287,7 @@ QQ图片20190420233632.png
 ##### 3933#       发表于 2019-4-21 00:45
 
 
-
-
 黄油歌会太草了  这人深不可测
-
-
-
-
-
 
 
 -----
@@ -17542,13 +11296,7 @@ QQ图片20190420233632.png
 ##### 3934#       发表于 2019-4-21 00:46
 
 
-
 <img src="http://wx1.sinaimg.cn/large/403d45c1ly1g29kvb79ufj20mg0ixdpq.jpg" referrerpolicy="no-referrer">mkt最强！
-
-
-
-
-
 
 
 -----
@@ -17557,16 +11305,10 @@ QQ图片20190420233632.png
 ##### 3935#       发表于 2019-4-21 00:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43384553&amp;ptid=1823171" target="_blank">宫藤芳佳 发表于 2019-4-21 00:46</a>
 
 mkt最强！</blockquote>
 ギバラ、どうして…
-
-
-
-
-
 
 
 -----
@@ -17575,14 +11317,7 @@ mkt最强！</blockquote>
 ##### 3936#       发表于 2019-4-21 00:55
 
 
-
-
 老狐狸真实老害<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17591,14 +11326,7 @@ mkt最强！</blockquote>
 ##### 3937#       发表于 2019-4-21 00:58
 
 
-
-
 不知道传颂是黄油还行
-
-
-
-
-
 
 
 -----
@@ -17607,22 +11335,13 @@ mkt最强！</blockquote>
 ##### 3938#       发表于 2019-4-21 01:01
 
 
-
-
 组曲把我唱的眼泪掉下来
-
-
-
-
-
 
 
 -----
 
 ####  魔术师梅丽  
 ##### 3939#       发表于 2019-4-21 01:02
-
-
 
 
 很多歌我也只是知道，或者知道出处。nico的黄金时代比较火的歌都清楚吧。
@@ -17632,25 +11351,13 @@ mkt最强！</blockquote>
 感叹一下那个时代黄油**的歌都挺好的
 
 
-
-
-
-
-
 -----
 
 ####  chondriac  
 ##### 3940#       发表于 2019-4-21 01:08
 
 
-
-
 无中生哥小狐狸我佛了
-
-
-
-
-
 
 
 -----
@@ -17659,13 +11366,7 @@ mkt最强！</blockquote>
 ##### 3941#       发表于 2019-4-21 01:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">最后这段真是黄油鉴赏会
-
-
-
-
-
 
 
 -----
@@ -17674,14 +11375,7 @@ mkt最强！</blockquote>
 ##### 3942#       发表于 2019-4-21 01:15
 
 
-
-
 彩虹官号银盾达成。
-
-
-
-
-
 
 
 -----
@@ -17690,14 +11384,7 @@ mkt最强！</blockquote>
 ##### 3943#       发表于 2019-4-21 01:20
 
 
-
-
 小红帽深夜疯狂安利gbf劝人氪金）
-
-
-
-
-
 
 
 -----
@@ -17706,14 +11393,7 @@ mkt最强！</blockquote>
 ##### 3944#       发表于 2019-4-21 01:28
 
 
-
-
 顺带一提，小红帽这个已经是她的纯杂谈配信时长记录了，目测未来一段时间内都不会破（
-
-
-
-
-
 
 
 -----
@@ -17722,14 +11402,7 @@ mkt最强！</blockquote>
 ##### 3945#       发表于 2019-4-21 01:57
 
 
-
-
 哪位解释一下“RP”的意思？有一段时间没有爬楼，梗都看不懂了
-
-
-
-
-
 
 
 -----
@@ -17738,15 +11411,9 @@ mkt最强！</blockquote>
 ##### 3946#       发表于 2019-4-21 01:58
 
 
-
 <blockquote>自宅警备员 发表于 2019-4-21 01:57
 哪位解释一下“RP”的意思？有一段时间没有爬楼，梗都看不懂了</blockquote>
 角色扮演
-
-
-
-
-
 
 
 -----
@@ -17755,21 +11422,13 @@ mkt最强！</blockquote>
 ##### 3947#       发表于 2019-4-21 02:11
 
 
-
-
 最终记录3:04:11，高强度不虚无，不负众望“撕好看”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  慕蓉雪姬  
 ##### 3948#       发表于 2019-4-21 05:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43384505&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-21 00:40</a>
@@ -17781,25 +11440,13 @@ mkt最强！</blockquote>
 然后翻了一眼我的360浏览器收藏夹居然还存过
 
 
-
-
-
-
-
 -----
 
 ####  2black  
 ##### 3949#       发表于 2019-4-21 06:35
 
 
-
-
 早上6点被爱酱的电话叫醒，然后发现爱丽丝开播了。彻底不用睡了
-
-
-
-
-
 
 
 -----
@@ -17808,16 +11455,9 @@ mkt最强！</blockquote>
 ##### 3950#       发表于 2019-4-21 06:44
 
 
-
-
 结果狐狸唱到后面就成单纯的黄油杂谈了，这人居然还记得17岁和哥哥的设定<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 skrmk和aqua有播黄油的常规节目，choco和红心貌似也播过一点，你们干脆组个ホロライブエロゲ部好了
-
-
-
-
-
 
 
 -----
@@ -17826,14 +11466,7 @@ skrmk和aqua有播黄油的常规节目，choco和红心貌似也播过一点，
 ##### 3951#       发表于 2019-4-21 07:33
 
 
-
-
  爱丽丝这个起床演奏太狠
-
-
-
-
-
 
 
 -----
@@ -17842,14 +11475,7 @@ skrmk和aqua有播黄油的常规节目，choco和红心貌似也播过一点，
 ##### 3952#       发表于 2019-4-21 07:39
 
 
-
-
 修女这么早起来唱歌
-
-
-
-
-
 
 
 -----
@@ -17858,14 +11484,7 @@ skrmk和aqua有播黄油的常规节目，choco和红心貌似也播过一点，
 ##### 3953#       发表于 2019-4-21 08:47
 
 
-
-
 最近倒闭消息频出，在一个只偶尔玩玩汉化，本格露娜厨的一般通过眼里，感觉这次gal业界是不是真的药丸了啊，那几个大社还撑得住吗？
-
-
-
-
-
 
 
 -----
@@ -17874,22 +11493,13 @@ skrmk和aqua有播黄油的常规节目，choco和红心貌似也播过一点，
 ##### 3954#       发表于 2019-4-21 09:02
 
 
-
-
 叶师 双倍白给 笑死了
-
-
-
-
-
 
 
 -----
 
 ####  IDIDID  
 ##### 3955#       发表于 2019-4-21 09:30
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/21/093007h6f863ofjuhvhw8m.jpg" referrerpolicy="no-referrer">
@@ -17902,9 +11512,6 @@ skrmk和aqua有播黄油的常规节目，choco和红心貌似也播过一点，
 2019-4-21 09:30 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/21/093013xxef8e3hjk8e0ebt.jpg" referrerpolicy="no-referrer">
 
 
@@ -17915,16 +11522,7 @@ skrmk和aqua有播黄油的常规节目，choco和红心貌似也播过一点，
 2019-4-21 09:30 上传
 
 
-
-
-
-
 眼镜哥捏小夜了 高评价<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17933,16 +11531,10 @@ skrmk和aqua有播黄油的常规节目，choco和红心貌似也播过一点，
 ##### 3956#       发表于 2019-4-21 09:43
 
 
-
 [https://twitter.com/nijisanji_app/status/1119773463483314176](https://twitter.com/nijisanji_app/status/1119773463483314176)
  <blockquote>月ノ美兎から、ある発表が…？？</blockquote>
 
 公式都这样了   大概就是新衣装了把
-
-
-
-
-
 
 
 -----
@@ -17951,15 +11543,9 @@ skrmk和aqua有播黄油的常规节目，choco和红心貌似也播过一点，
 ##### 3957#       发表于 2019-4-21 09:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43386260&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-21 09:43</a>
 https://twitter.com/nijisanji_app/status/1119773463483314176</blockquote>
 上次服装征集的后续吧
-
-
-
-
-
 
 
 -----
@@ -17968,24 +11554,15 @@ https://twitter.com/nijisanji_app/status/1119773463483314176</blockquote>
 ##### 3958#       发表于 2019-4-21 09:48
 
 
-
-
 才···才不是蕾丝呢！
 
 只是单纯的喜欢可爱的年轻的女孩子<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
 
 ####  夢月ロア  
 ##### 3959#       发表于 2019-4-21 10:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43386307&amp;ptid=1823171" target="_blank">春日望 发表于 2019-4-21 09:48</a>
@@ -17998,16 +11575,10 @@ https://twitter.com/nijisanji_app/status/1119773463483314176</blockquote>
 ロアのことも好きなのだ？
 
 
-
-
-
-
-
 -----
 
 ####  ScarletMoon  
 ##### 3960#       发表于 2019-4-21 10:19
-
 
 
 <blockquote>いつかの自分 发表于 2019-4-21 09:43
@@ -18018,25 +11589,13 @@ https://twitter.com/nijisanji_app/status/1119773463483314176
 新衣装怎么会要公式号告知，估计是案件了，玩梗的那种
 
 
-
-
-
-
-
 -----
 
 ####  博丽灵梦的御币  
 ##### 3961#       发表于 2019-4-21 11:17
 
 
-
-
 阿望要真是蕾丝边的话，那设定会输出到老爱身上吗
-
-
-
-
-
 
 
 -----
@@ -18045,15 +11604,9 @@ https://twitter.com/nijisanji_app/status/1119773463483314176
 ##### 3962#       发表于 2019-4-21 11:32
 
 
-
 <blockquote>博丽灵梦的御币 发表于 2019-4-21 11:17
 阿望要真是蕾丝边的话，那设定会输出到老爱身上吗</blockquote>
 人家设定是无性别AI，lgbt全包了
-
-
-
-
-
 
 
 -----
@@ -18062,14 +11615,7 @@ https://twitter.com/nijisanji_app/status/1119773463483314176
 ##### 3963#       发表于 2019-4-21 11:40
 
 
-
-
 过于zzzq，我哭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18078,14 +11624,7 @@ https://twitter.com/nijisanji_app/status/1119773463483314176
 ##### 3964#       发表于 2019-4-21 11:48
 
 
-
-
 这个设定对于海外客群也太完美了吧，难道是计算好的<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18094,22 +11633,13 @@ https://twitter.com/nijisanji_app/status/1119773463483314176
 ##### 3965#       发表于 2019-4-21 12:10
 
 
-
-
 才两岁，性取向也太硬核了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  tiro_finale  
 ##### 3966#       发表于 2019-4-21 12:23
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/20/202229a88zf7s89psxyx7w.jpg" referrerpolicy="no-referrer">
@@ -18122,17 +11652,7 @@ https://twitter.com/nijisanji_app/status/1119773463483314176
 2019-4-21 12:22 上传
 
 
-
-
-
-
-
 5万人記念衣装
-
-
-
-
-
 
 
 -----
@@ -18141,23 +11661,15 @@ https://twitter.com/nijisanji_app/status/1119773463483314176
 ##### 3967#       发表于 2019-4-21 12:26
 
 
-
-
 叶师玩了这么久自走棋怎么还是这水平<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看了一会能气出高血压
 
 —— 来自 vivo NEX S, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
 
 ####  春日望  
 ##### 3968#       发表于 2019-4-21 13:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43386428&amp;ptid=1823171" target="_blank">夢月ロア 发表于 2019-4-21 10:03</a>
@@ -18168,17 +11680,10 @@ https://twitter.com/nijisanji_app/status/1119773463483314176
 ﾛｱﾁｬﾝｽｷｽｷﾁｭﾁｭ ლ(´ڡ`ლ)
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3969#       发表于 2019-4-21 13:59
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/21/135833ss2uqb27tyqnkntk.png" referrerpolicy="no-referrer">
@@ -18191,19 +11696,7 @@ https://twitter.com/nijisanji_app/status/1119773463483314176
 2019-4-21 13:58 上传
 
 
-
-
-
-
-
 新人组学力测试可能性微存？
-
-
-
-
-
-
-
 
 
 -----
@@ -18212,22 +11705,13 @@ https://twitter.com/nijisanji_app/status/1119773463483314176
 ##### 3970#       发表于 2019-4-21 14:18
 
 
-
-
 INUI说想播的游戏居然是模拟人生4，本来还以为真要连连看杂谈了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Chia  
 ##### 3971#       发表于 2019-4-21 14:19
-
-
 
 
 回看了下狐狸昨天直播
@@ -18238,16 +11722,10 @@ INUI说想播的游戏居然是模拟人生4，本来还以为真要连连看杂
 放的是高峰伊織版的
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3972#       发表于 2019-4-21 14:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43389194&amp;ptid=1823171" target="_blank">Chia 发表于 2019-4-21 14:19</a>
@@ -18259,16 +11737,10 @@ INUI说想播的游戏居然是模拟人生4，本来还以为真要连连看杂
 狐狸是粉吧  上次回归直播的时候全程都在
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 3973#       发表于 2019-4-21 14:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43389211&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-21 14:21</a>
@@ -18277,27 +11749,15 @@ INUI说想播的游戏居然是模拟人生4，本来还以为真要连连看杂
 原来如此……她还真是挺婆的，各方面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  free  
 ##### 3974#       发表于 2019-4-21 14:46
 
 
-
-
 突然想起来一个事，上次那个vtuber*music的计划最后咋样了......
 
 [https://vtuber.creofuga.jp/](https://vtuber.creofuga.jp/) 就这个，就没下文了？
-
-
-
-
-
 
 
 -----
@@ -18306,17 +11766,10 @@ INUI说想播的游戏居然是模拟人生4，本来还以为真要连连看杂
 ##### 3975#       发表于 2019-4-21 15:02
 
 
-
-
 这种小小个人爱好也没什么婆不婆的说法吧...
 
 
 不然修女bgm爱之梦，社畜bgm冬岂不是更婆了...
-
-
-
-
-
 
 
 -----
@@ -18325,14 +11778,7 @@ INUI说想播的游戏居然是模拟人生4，本来还以为真要连连看杂
 ##### 3976#       发表于 2019-4-21 15:07
 
 
-
-
 大米这真是ASMR么...
-
-
-
-
-
 
 
 -----
@@ -18341,24 +11787,16 @@ INUI说想播的游戏居然是模拟人生4，本来还以为真要连连看杂
 ##### 3977#       发表于 2019-4-21 15:13
 
 
-
-
 之前就见识过蛋蛋那仿佛把立直棒往耳朵里插的ASMR了，大米这个完全能接受...
 
 
 PTR可算捡起来丢了半个月的TLOU了
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 3978#       发表于 2019-4-21 15:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43389600&amp;ptid=1823171" target="_blank">vonkarajan 发表于 2019-4-21 15:02</a>
@@ -18373,17 +11811,10 @@ PTR可算捡起来丢了半个月的TLOU了
 不过你这例子不太好。具体下比如使用某新锐钢琴家版的爱之梦，然后本人还和他相识这种
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3979#       发表于 2019-4-21 15:18
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/21/151804gbf9mxbzwvqzz7x7.png" referrerpolicy="no-referrer">
@@ -18396,17 +11827,7 @@ PTR可算捡起来丢了半个月的TLOU了
 2019-4-21 15:18 上传
 
 
-
-
-
-
-
 いい...
-
-
-
-
-
 
 
 -----
@@ -18415,16 +11836,10 @@ PTR可算捡起来丢了半个月的TLOU了
 ##### 3980#       发表于 2019-4-21 15:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43389758&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-21 15:18</a>
 
 いい...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以A的确是高性能？
-
-
-
-
-
 
 
 -----
@@ -18433,21 +11848,13 @@ PTR可算捡起来丢了半个月的TLOU了
 ##### 3981#       发表于 2019-4-21 15:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">ノートパソコン→ノーパン
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3982#       发表于 2019-4-21 15:43
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/21/154227rsrsvgs4furu0u9r.png" referrerpolicy="no-referrer">
@@ -18460,25 +11867,13 @@ PTR可算捡起来丢了半个月的TLOU了
 2019-4-21 15:42 上传
 
 
-
-
-
-
-
 大舅子删的推  虽然不知道为什么删  
-
-
-
-
-
 
 
 -----
 
 ####  lbb9432  
 ##### 3983#       发表于 2019-4-21 15:51
-
-
 
 
 委員長「私、クビになっちゃった」
@@ -18488,33 +11883,19 @@ PTR可算捡起来丢了半个月的TLOU了
 还有「私、母になっちゃった」<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3984#       发表于 2019-4-21 15:54
 
 
-
-
 choco先生....待机场所开的太早...已经有100+低评价了...
-
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3985#       发表于 2019-4-21 15:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43390097&amp;ptid=1823171" target="_blank">lbb9432 发表于 2019-4-21 15:51</a>
@@ -18529,16 +11910,10 @@ choco先生....待机场所开的太早...已经有100+低评价了...
 おぎゃっていい？
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 3986#       发表于 2019-4-21 15:57
-
 
 
 <blockquote>午前二时野猫 发表于 2019-4-21 15:39
@@ -18552,16 +11927,10 @@ choco先生....待机场所开的太早...已经有100+低评价了...
 点生活也就算了，现在这箱也太难出头了
 
 
-
-
-
-
-
 -----
 
 ####  lbb9432  
 ##### 3987#       发表于 2019-4-21 15:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43390154&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-21 15:55</a>
@@ -18572,17 +11941,10 @@ choco先生....待机场所开的太早...已经有100+低评价了...
 NTR的快感<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 3988#       发表于 2019-4-21 16:00
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/21/155959qfxc7z1z17tgam0c.png" referrerpolicy="no-referrer">
@@ -18595,25 +11957,13 @@ NTR的快感<img src="https://static.saraba1st.com/image/smiley/face2017/044.png
 2019-4-21 15:59 上传
 
 
-
-
-
-
-
 ツウジ―信さぁ...
-
-
-
-
-
-
 
 
 -----
 
 ####  久島鴎  
 ##### 3989#       发表于 2019-4-21 16:02
-
 
 
  本帖最后由 久島鴎 于 2019-4-21 16:04 编辑 
@@ -18623,32 +11973,19 @@ NTR的快感<img src="https://static.saraba1st.com/image/smiley/face2017/044.png
 原来是WIXOSS案件，索然无味
 
 
-
-
-
-
-
 -----
 
 ####  looptube  
 ##### 3990#       发表于 2019-4-21 16:03
 
 
-
-
 妈啊，是发电视频
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 3991#       发表于 2019-4-21 16:03
-
 
 
  本帖最后由 いつかの自分 于 2019-4-21 16:05 编辑 
@@ -18663,25 +12000,13 @@ NTR的快感</blockquote>
 喷了
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 3992#       发表于 2019-4-21 16:04
 
 
-
-
 wixoss<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18690,14 +12015,7 @@ wixoss<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" refe
 ##### 3993#       发表于 2019-4-21 16:04
 
 
-
-
 刚进去还以为是P的图，结果是光速发电<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18706,14 +12024,7 @@ wixoss<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" refe
 ##### 3994#       发表于 2019-4-21 16:05
 
 
-
-
 安定的案件 白等了
-
-
-
-
-
 
 
 -----
@@ -18722,13 +12033,7 @@ wixoss<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" refe
 ##### 3995#       发表于 2019-4-21 16:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就算是案件也太短了吧
-
-
-
-
-
 
 
 -----
@@ -18737,16 +12042,10 @@ wixoss<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" refe
 ##### 3996#       发表于 2019-4-21 16:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43390264&amp;ptid=1823171" target="_blank">午前二时野猫 发表于 2019-4-21 16:05</a>
 
 就算是案件也太短了吧</blockquote>
 CM一分多钟挺正常的...
-
-
-
-
-
 
 
 -----
@@ -18755,21 +12054,13 @@ CM一分多钟挺正常的...
 ##### 3997#       发表于 2019-4-21 16:09
 
 
-
-
 遗憾，还蛮期待的结果是案件啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  午前二时野猫  
 ##### 3998#       发表于 2019-4-21 16:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43390168&amp;ptid=1823171" target="_blank">Chia 发表于 2019-4-21 15:57</a>
@@ -18781,16 +12072,10 @@ CM一分多钟挺正常的...
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我记得B是确定的，A只能算关系推测下的认定吧，毕竟没有任何关于A的信息。
 
 
-
-
-
-
-
 -----
 
 ####  cxj649  
 ##### 3999#       发表于 2019-4-21 16:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43389641&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-21 15:07</a>
@@ -18799,33 +12084,20 @@ CM一分多钟挺正常的...
 偶像部除了双叶这ASMR特长生外，其他人你就当奇怪的杂谈回就好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lbb9432  
 ##### 4000#       发表于 2019-4-21 16:14
 
 
-
-
 真是想不通彩虹社的案件为什么要到个人的频道里去宣传，你官方频道摆设么？
 大概是嫌月ノ美兎这个招牌死得还不够快
-
-
-
-
-
 
 
 -----
 
 ####  午前二时野猫  
 ##### 4001#       发表于 2019-4-21 16:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43390345&amp;ptid=1823171" target="_blank">lbb9432 发表于 2019-4-21 16:14</a>
@@ -18836,32 +12108,19 @@ CM一分多钟挺正常的...
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">多半是甲方要求吧
 
 
-
-
-
-
-
 -----
 
 ####  ScarletMoon  
 ##### 4002#       发表于 2019-4-21 16:22
 
 
-
-
 之前阿委路人出镜的OVA也是这个WIXOSS吧？
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 4003#       发表于 2019-4-21 16:25
-
 
 
 [https://twitter.com/suzukautako/status/1119877543887171584](https://twitter.com/suzukautako/status/1119877543887171584)
@@ -18872,26 +12131,15 @@ CM一分多钟挺正常的...
 鈴鹿詩子3Dお披露目配信を行います‼️
 
 
-
-
-
-
-
 -----
 
 ####  lbb9432  
 ##### 4004#       发表于 2019-4-21 16:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43390419&amp;ptid=1823171" target="_blank">ScarletMoon 发表于 2019-4-21 16:22</a>
 之前阿委路人出镜的OVA也是这个WIXOSS吧？</blockquote>
 对的<img src="https://i.loli.net/2019/04/21/5cbc292c84f47.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18900,14 +12148,7 @@ CM一分多钟挺正常的...
 ##### 4005#       发表于 2019-4-21 16:30
 
 
-
-
 wixoss亲分不也有献声
-
-
-
-
-
 
 
 -----
@@ -18916,17 +12157,10 @@ wixoss亲分不也有献声
 ##### 4006#       发表于 2019-4-21 16:30
 
 
-
-
 这案件挺好的了
 
 
 wixoss曾经也是中学特别流行的一款，比手游页游强百万倍了……
-
-
-
-
-
 
 
 -----
@@ -18935,23 +12169,15 @@ wixoss曾经也是中学特别流行的一款，比手游页游强百万倍了�
 ##### 4007#       发表于 2019-4-21 16:55
 
 
-
 <blockquote>薛定谔的小猫 发表于 2019-4-21 08:47
 最近倒闭消息频出，在一个只偶尔玩玩汉化，本格露娜厨的一般通过眼里，感觉这次gal业界是不是真的药丸了啊 ...</blockquote>
 你们只看破产不看新设是这样的。这段时间集中倒闭的都是一堆已经快死但是没死或者作死但是拖着当活尸的。实际上现在的新游戏数量和厂商数量都比以前多。等frontwings或者风铃这种死了再说这话
-
-
-
-
-
 
 
 -----
 
 ####  慕蓉雪姬  
 ##### 4008#       发表于 2019-4-21 17:06
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/21/170643dg0e2yn9ing50xso.jpg" referrerpolicy="no-referrer">
@@ -18964,16 +12190,7 @@ wixoss曾经也是中学特别流行的一款，比手游页游强百万倍了�
 2019-4-21 17:06 上传
 
 
-
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">无人观看还行 
-
-
-
-
-
 
 
 -----
@@ -18982,16 +12199,10 @@ wixoss曾经也是中学特别流行的一款，比手游页游强百万倍了�
 ##### 4009#       发表于 2019-4-21 17:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43390819&amp;ptid=1823171" target="_blank">慕蓉雪姬 发表于 2019-4-21 17:06</a>
 
 无人观看还行</blockquote>
 看了下  其实是鸽了 现在还是待机页面
-
-
-
-
-
 
 
 -----
@@ -19000,24 +12211,16 @@ wixoss曾经也是中学特别流行的一款，比手游页游强百万倍了�
 ##### 4010#       发表于 2019-4-21 17:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43390831&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-21 17:08</a>
 
 看了下  其实是鸽了 现在还是待机页面</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没注意 大姐现在好多直播都B站了。。。。
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 4011#       发表于 2019-4-21 17:30
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/21/173024rw7s027j1z0wi555.png" referrerpolicy="no-referrer">
@@ -19030,16 +12233,7 @@ wixoss曾经也是中学特别流行的一款，比手游页游强百万倍了�
 2019-4-21 17:30 上传
 
 
-
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 突然转进
-
-
-
-
-
 
 
 -----
@@ -19048,15 +12242,8 @@ wixoss曾经也是中学特别流行的一款，比手游页游强百万倍了�
 ##### 4012#       发表于 2019-4-21 17:39
 
 
-
-
 emmm……
 <img src="https://i.loli.net/2019/04/21/5cbc3a26de799.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19065,23 +12252,16 @@ emmm……
 ##### 4013#       发表于 2019-4-21 17:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43391143&amp;ptid=1823171" target="_blank">noHentai 发表于 2019-4-21 17:39</a>
 
 emmm……</blockquote>
 再放送やめろ
 
 
-
-
-
-
-
 -----
 
 ####  黑炎  
 ##### 4014#       发表于 2019-4-21 17:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43391143&amp;ptid=1823171" target="_blank">noHentai 发表于 2019-4-21 17:39</a>
@@ -19091,26 +12271,15 @@ emmm……</blockquote>
 事到如今反应这么大很奇怪啊
 
 
-
-
-
-
-
 -----
 
 ####  Persona1  
 ##### 4015#       发表于 2019-4-21 17:56
 
 
-
 <blockquote>noHentai 发表于 2019-4-21 17:39
 emmm……</blockquote>
 大概8点20分发？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19119,13 +12288,7 @@ emmm……</blockquote>
 ##### 4016#       发表于 2019-4-21 17:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">之前晴翔和部长发推的时候怎么没反应的？
-
-
-
-
-
 
 
 -----
@@ -19134,14 +12297,8 @@ emmm……</blockquote>
 ##### 4017#       发表于 2019-4-21 17:59
 
 
-
 <img src="https://i.loli.net/2019/04/21/5cbc3ed16d6b7.jpg" referrerpolicy="no-referrer">
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19150,21 +12307,13 @@ emmm……</blockquote>
 ##### 4018#       发表于 2019-4-21 17:59
 
 
-
-
 你们是有什么期望哦
-
-
-
-
-
 
 
 -----
 
 ####  potwater  
 ##### 4019#       发表于 2019-4-21 18:05
-
 
 
 [https://youtu.be/og4Dn5DBaC4](https://youtu.be/og4Dn5DBaC4)
@@ -19174,16 +12323,10 @@ emmm……</blockquote>
 之前的B限经过剪辑上传youtube了
 
 
-
-
-
-
-
 -----
 
 ####  tiro_finale  
 ##### 4020#       发表于 2019-4-21 18:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43391044&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-21 01:30</a>
@@ -19194,16 +12337,10 @@ emmm……</blockquote>
 不过她都快银盾了却还轮不上3D，这事情本身就相当微妙
 
 
-
-
-
-
-
 -----
 
 ####  tglals  
 ##### 4021#       发表于 2019-4-21 18:14
-
 
 
  本帖最后由 tglals 于 2019-4-21 18:19 编辑 
@@ -19215,25 +12352,13 @@ emmm……</blockquote>
 澳洲心今天又回到祖传480p了 新3d估计就用一两次玩玩了
 
 
-
-
-
-
-
 -----
 
 ####  Igarashi  
 ##### 4022#       发表于 2019-4-21 18:23
 
 
-
-
 所以江哥的anti就是谁和江哥联动就去故意气谁么
-
-
-
-
-
 
 
 -----
@@ -19242,15 +12367,9 @@ emmm……</blockquote>
 ##### 4023#       发表于 2019-4-21 18:24
 
 
-
  本帖最后由 神龙小生 于 2019-4-21 18:31 编辑 
 
 choco这异常高订阅也是老话题了，一般都认为是归功于奥数魔刃招揽很多欧美客群，本身也播得很勤，播得多了也涨得快。嘛，就是反而造成非奥数魔刃就同接不行了。
-
-
-
-
-
 
 
 -----
@@ -19259,21 +12378,13 @@ choco这异常高订阅也是老话题了，一般都认为是归功于奥数魔
 ##### 4024#       发表于 2019-4-21 18:29
 
 
-
-
 这1：2的赞踩率也是吓人，好像江哥粉还没来和黑子战斗
-
-
-
-
-
 
 
 -----
 
 ####  proxima  
 ##### 4025#       发表于 2019-4-21 18:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43391420&amp;ptid=1823171" target="_blank">tiro_finale 发表于 2019-4-21 18:08</a>
@@ -19287,27 +12398,15 @@ choco这异常高订阅也是老话题了，一般都认为是归功于奥数魔
 同接不行说到底还是因为不够有趣，holo新闻、昏睡dbd跟例行体检这三板斧多少还是有点不足的
 
 
-
-
-
-
-
 -----
 
 ####  空虚澄璃色  
 ##### 4026#       发表于 2019-4-21 18:30
 
 
-
-
 巧可略显鸭公嗓的声线怎么asmr很好奇
 
 —— 来自 Xiaomi MIX 2, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
-
-
-
-
-
 
 
 -----
@@ -19316,16 +12415,9 @@ choco这异常高订阅也是老话题了，一般都认为是归功于奥数魔
 ##### 4027#       发表于 2019-4-21 18:33
 
 
-
-
 刚想问利香已经一个月没在她快18万订阅的频道播了难道要盘活那个3w的频道么
 
 突然看到昨天她播了= =
-
-
-
-
-
 
 
 -----
@@ -19334,15 +12426,9 @@ choco这异常高订阅也是老话题了，一般都认为是归功于奥数魔
 ##### 4028#       发表于 2019-4-21 18:36
 
 
-
  本帖最后由 SchwarzeKatze 于 2019-4-21 18:37 编辑 
 
 三才居然也有单人播爆的一天，真正的gamer
-
-
-
-
-
 
 
 -----
@@ -19351,14 +12437,7 @@ choco这异常高订阅也是老话题了，一般都认为是归功于奥数魔
 ##### 4029#       发表于 2019-4-21 18:46
 
 
-
-
 巧可现状也有点难受，二期生订阅最高，但直播同接两极分化，ASMR很高，其他内容的直播就比不上其他四个人了
-
-
-
-
-
 
 
 -----
@@ -19367,14 +12446,7 @@ choco这异常高订阅也是老话题了，一般都认为是归功于奥数魔
 ##### 4030#       发表于 2019-4-21 18:49
 
 
-
-
 这次轻松就更新了社内aqua长期保持的低评价记录<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19383,13 +12455,7 @@ choco这异常高订阅也是老话题了，一般都认为是归功于奥数魔
 ##### 4031#       发表于 2019-4-21 18:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本质上还是欺软怕硬，真惹到有大量gachi的那些，骨灰都给你扬了（
-
-
-
-
-
 
 
 -----
@@ -19398,14 +12464,7 @@ choco这异常高订阅也是老话题了，一般都认为是归功于奥数魔
 ##### 4032#       发表于 2019-4-21 18:55
 
 
-
-
 彩虹这上传油管的B限和PS独占有的一拼
-
-
-
-
-
 
 
 -----
@@ -19414,14 +12473,7 @@ choco这异常高订阅也是老话题了，一般都认为是归功于奥数魔
 ##### 4033#       发表于 2019-4-21 18:56
 
 
-
-
 老干部耐久游戏竟然维持在3000+同接 甚至4K 也是没想到
-
-
-
-
-
 
 
 -----
@@ -19430,14 +12482,7 @@ choco这异常高订阅也是老话题了，一般都认为是归功于奥数魔
 ##### 4034#       发表于 2019-4-21 18:58
 
 
-
-
 没想到老干部能有这么高同接。gamers普遍比无印平均更强么
-
-
-
-
-
 
 
 -----
@@ -19446,13 +12491,7 @@ choco这异常高订阅也是老话题了，一般都认为是归功于奥数魔
 ##### 4035#       发表于 2019-4-21 18:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">这个叫凉风的不停放黑屁好烦哦
-
-
-
-
-
 
 
 -----
@@ -19461,14 +12500,7 @@ choco这异常高订阅也是老话题了，一般都认为是归功于奥数魔
 ##### 4036#       发表于 2019-4-21 19:00
 
 
-
-
 后知后觉  之前看あやん周围一圈朋友全V了 我还在想她怎么没去  原来她早去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19477,16 +12509,10 @@ choco这异常高订阅也是老话题了，一般都认为是归功于奥数魔
 ##### 4037#       发表于 2019-4-21 19:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43391594&amp;ptid=1823171" target="_blank">Igarashi 发表于 2019-4-21 18:29</a>
 
 这1：2的赞踩率也是吓人，好像江哥粉还没来和黑子战斗</blockquote>
 那个转火的指不定就是江哥粉呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19495,20 +12521,13 @@ choco这异常高订阅也是老话题了，一般都认为是归功于奥数魔
 ##### 4038#       发表于 2019-4-21 19:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 老干部这作业抄的挺不错的，耐久加一直没拿大奖节目效果也很好，叫gamers的只要打爆游戏就行
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 4039#       发表于 2019-4-21 19:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43391932&amp;ptid=1823171" target="_blank">wangmour 发表于 2019-4-21 19:04</a>
@@ -19520,31 +12539,19 @@ choco这异常高订阅也是老话题了，一般都认为是归功于奥数魔
 至少 最高ギバラ　プリケツナイト　涼風这三个不是粉噢
 
 
-
-
-
-
-
 -----
 
 ####  星の旅人  
 ##### 4040#       发表于 2019-4-21 19:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">这几个看起来就像是反串的黑，跟泥潭巨魔挺类似的
-
-
-
-
-
 
 
 -----
 
 ####  wangmour  
 ##### 4041#       发表于 2019-4-21 19:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43391965&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-21 19:08</a>
@@ -19556,16 +12563,10 @@ choco这异常高订阅也是老话题了，一般都认为是归功于奥数魔
 那是我想的太黑了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  SchwarzeKatze  
 ##### 4042#       发表于 2019-4-21 19:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43391844&amp;ptid=1823171" target="_blank">胧楼 发表于 2019-4-21 18:56</a>
@@ -19577,16 +12578,10 @@ choco这异常高订阅也是老话题了，一般都认为是归功于奥数魔
 不过同接不重要，重要的是三才这挑个游戏玩了7个小时还越玩越上头的表现，感觉向gamers方向迈出了关键的一步<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 4043#       发表于 2019-4-21 19:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43391989&amp;ptid=1823171" target="_blank">SchwarzeKatze 发表于 2019-4-21 19:10</a>
@@ -19595,16 +12590,10 @@ choco这异常高订阅也是老话题了，一般都认为是归功于奥数魔
 第一步不是DQ11已经迈出了么
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 4044#       发表于 2019-4-21 19:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43391985&amp;ptid=1823171" target="_blank">wangmour 发表于 2019-4-21 19:10</a>
@@ -19617,16 +12606,10 @@ choco这异常高订阅也是老话题了，一般都认为是归功于奥数魔
 凉风 单纯就是来拱火的anti民  有关注Choco的魂推  
 
 
-
-
-
-
-
 -----
 
 ####  SchwarzeKatze  
 ##### 4045#       发表于 2019-4-21 19:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43392035&amp;ptid=1823171" target="_blank">胧楼 发表于 2019-4-21 19:15</a>
@@ -19635,16 +12618,10 @@ choco这异常高订阅也是老话题了，一般都认为是归功于奥数魔
 是个过程<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  wangmour  
 ##### 4046#       发表于 2019-4-21 19:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43392038&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-21 19:15</a>
@@ -19655,25 +12632,13 @@ choco这异常高订阅也是老话题了，一般都认为是归功于奥数魔
 了解了，以前没关注过anti
 
 
-
-
-
-
-
 -----
 
 ####  Igarashi  
 ##### 4047#       发表于 2019-4-21 19:21
 
 
-
-
 你们怎么还关注anti种类的
-
-
-
-
-
 
 
 -----
@@ -19682,22 +12647,15 @@ choco这异常高订阅也是老话题了，一般都认为是归功于奥数魔
 ##### 4048#       发表于 2019-4-21 19:24
 
 
-
 [https://www.youtube.com/watch?v=0OOjdwiHh5Q](https://www.youtube.com/watch?v=0OOjdwiHh5Q)
 
 アウターサイエンス / 緑仙 (Cover)
-
-
-
-
-
 
 
 -----
 
 ####  宫藤芳佳  
 ##### 4049#       发表于 2019-4-21 19:40
-
 
 
 [https://www.youtube.com/watch?v=e2hIH6BYw_s](https://www.youtube.com/watch?v=e2hIH6BYw_s)
@@ -19708,30 +12666,17 @@ choco这异常高订阅也是老话题了，一般都认为是归功于奥数魔
 还原度挺高的
 
 
-
-
-
-
-
 -----
 
 ####  potwater  
 ##### 4050#       发表于 2019-4-21 19:53
 
 
-
-
 运营指示…
-
-
-
-
 
 
 cgchOYZ.png
 (55.65 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -19740,32 +12685,13 @@ cgchOYZ.png
 2019-4-21 19:52 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/21/195211ixdlq0lz4ufcccxl.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  free  
 ##### 4051#       发表于 2019-4-21 19:54
-
-
 
 
 看到你们讨论巧可老师，突然想起来今天还没有例行黑holo，就编个段子辱一下holo先。
@@ -19816,13 +12742,9 @@ cover公司CEO谷乡元昭：可爱是可爱，这个面数也太少了，这连
 谷乡：虽说小空这第一次紧张了，不过福田你们整这个模型也太烂了，这胳膊蒙皮就不能优化下？还有陷到地里这赶快解决一下，小空你说想要个带袖子的模型啊，这个不难，肯定会慢慢优化的，早晚给你穿上带袖子的衣服，有问题我来cover，谷乡哥哥骗过你吗？
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 6战斗力 +6
@@ -19837,20 +12759,13 @@ cover公司CEO谷乡元昭：可爱是可爱，这个面数也太少了，这连
 | cxj649| + 1|欢乐多|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  zaku11ku  
 ##### 4052#       发表于 2019-4-21 20:00
-
-
 
 
 看anti串人间观察可以理解，
@@ -19860,13 +12775,9 @@ cover公司CEO谷乡元昭：可爱是可爱，这个面数也太少了，这连
 ギバラ现在在一般民的认知上风评不好，就是其中所为
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -19876,12 +12787,7 @@ cover公司CEO谷乡元昭：可爱是可爱，这个面数也太少了，这连
 | Fingest| + 2||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -19890,14 +12796,7 @@ cover公司CEO谷乡元昭：可爱是可爱，这个面数也太少了，这连
 ##### 4053#       发表于 2019-4-21 20:02
 
 
-
-
 才发现   2g房间非会员发言时长隔的有点久....
-
-
-
-
-
 
 
 -----
@@ -19906,23 +12805,15 @@ cover公司CEO谷乡元昭：可爱是可爱，这个面数也太少了，这连
 ##### 4054#       发表于 2019-4-21 20:04
 
 
-
-
 天華百劍 短篇 動畫化
 
 日光一文字有機會登場嗎？
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 4055#       发表于 2019-4-21 20:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43392577&amp;ptid=1823171" target="_blank">rita200123 发表于 2019-4-21 20:04</a>
@@ -19933,16 +12824,10 @@ cover公司CEO谷乡元昭：可爱是可爱，这个面数也太少了，这连
 登场了不知道弹幕会是什么样
 
 
-
-
-
-
-
 -----
 
 ####  potwater  
 ##### 4056#       发表于 2019-4-21 20:08
-
 
 
  本帖最后由 potwater 于 2019-4-21 20:19 编辑 
@@ -19958,16 +12843,10 @@ cover公司CEO谷乡元昭：可爱是可爱，这个面数也太少了，这连
 【ゲリラ歌枠】急に歌いたくなった女【VTuber】
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 4057#       发表于 2019-4-21 20:08
-
 
 
  本帖最后由 いつかの自分 于 2019-4-21 20:15 编辑 
@@ -19990,21 +12869,10 @@ cover公司CEO谷乡元昭：可爱是可爱，这个面数也太少了，这连
 2019-4-21 20:15 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  胡桃丶  
 ##### 4058#       发表于 2019-4-21 20:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43391388&amp;ptid=1823171" target="_blank">potwater 发表于 2019-4-21 18:05</a>
@@ -20017,31 +12885,19 @@ https://youtu.be/og4Dn5DBaC4
 不出预料底下的评论全部“是虽然不懂D2但是很有趣”<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  久島鴎  
 ##### 4059#       发表于 2019-4-21 20:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">doto是这样的，亚洲只有中国和东南亚
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 4060#       发表于 2019-4-21 20:36
-
 
 
  本帖最后由 いつかの自分 于 2019-4-21 20:38 编辑 
@@ -20052,16 +12908,10 @@ https://youtu.be/og4Dn5DBaC4
 luna的衣服...还可以
 
 
-
-
-
-
-
 -----
 
 ####  SchwarzeKatze  
 ##### 4061#       发表于 2019-4-21 20:36
-
 
 
  本帖最后由 SchwarzeKatze 于 2019-4-21 20:38 编辑 
@@ -20071,16 +12921,10 @@ doto是这样的，亚洲只有中国和东南亚</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">日本人自己有个服的，上次major还是minor有个日本队还打了SEA的预选
 
 
-
-
-
-
-
 -----
 
 ####  potwater  
 ##### 4062#       发表于 2019-4-21 20:40
-
 
 
 [https://twitter.com/inui_toko/status/1119942310752477185](https://twitter.com/inui_toko/status/1119942310752477185) <blockquote>なにかが起こる予感がする…3週間後くらいに…</blockquote>
@@ -20088,16 +12932,10 @@ doto是这样的，亚洲只有中国和东南亚</blockquote>
 这可太神秘了
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 4063#       发表于 2019-4-21 20:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43392963&amp;ptid=1823171" target="_blank">potwater 发表于 2019-4-21 20:40</a>
@@ -20110,16 +12948,10 @@ https://twitter.com/inui_toko/status/1119942310752477185</blockquote>
 ..缺乏想象力只想得到这些
 
 
-
-
-
-
-
 -----
 
 ####  午前二时野猫  
 ##### 4064#       发表于 2019-4-21 20:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43392963&amp;ptid=1823171" target="_blank">potwater 发表于 2019-4-21 20:40</a>
@@ -20128,16 +12960,10 @@ https://twitter.com/inui_toko/status/1119942310752477185</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">奥数魔刃的装备在路上的意思？
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 4065#       发表于 2019-4-21 20:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43392520&amp;ptid=1823171" target="_blank">zaku11ku 发表于 2019-4-21 20:00</a>
@@ -20149,16 +12975,10 @@ https://twitter.com/inui_toko/status/1119942310752477185</blockquote>
 还是用了哈哥路线，放nico的剪辑威胁挺大的
 
 
-
-
-
-
-
 -----
 
 ####  qw945  
 ##### 4066#       发表于 2019-4-21 20:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43392963&amp;ptid=1823171" target="_blank">potwater 发表于 2019-4-21 20:40</a>
@@ -20167,24 +12987,13 @@ https://twitter.com/inui_toko/status/1119942310752477185</blockquote>
 结合一下楼上的意见，奥术魔刃唱歌好了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  午前二时野猫  
 ##### 4067#       发表于 2019-4-21 20:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">AKZi这是什么精神污染live场面
-
-
-
-
-
 
 
 -----
@@ -20193,22 +13002,15 @@ https://twitter.com/inui_toko/status/1119942310752477185</blockquote>
 ##### 4068#       发表于 2019-4-21 20:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43392431&amp;ptid=1823171" target="_blank">potwater 发表于 2019-4-21 19:53</a>
 运营指示…</blockquote>
 怎么没有“大约八点钟发”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  SchwarzeKatze  
 ##### 4069#       发表于 2019-4-21 20:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43392995&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-21 20:43</a>
@@ -20221,17 +13023,10 @@ https://twitter.com/inui_toko/status/1119942310752477185</blockquote>
 歌投稿除非是原创曲，不然她自己安排一下就录了。联动这么早扔个包出来有点莫名其妙。感觉最有可能的是买了什么东西了，新电脑？
 
 
-
-
-
-
-
-
 -----
 
 ####  zaku11ku  
 ##### 4070#       发表于 2019-4-21 20:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43393060&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-21 20:49</a>
@@ -20240,16 +13035,10 @@ https://twitter.com/inui_toko/status/1119942310752477185</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">日本本土管不着，但是本楼风向都要被带偏不得不说明一下了
 
 
-
-
-
-
-
 -----
 
 ####  zaku11ku  
 ##### 4071#       发表于 2019-4-21 20:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43393070&amp;ptid=1823171" target="_blank">午前二时野猫 发表于 2019-4-21 20:50</a>
@@ -20258,30 +13047,17 @@ AKZi这是什么精神污染live场面</blockquote>
 刚刚背景大幕闪狗眼还卡顿，这首就正常多了
 
 
-
-
-
-
-
 -----
 
 ####  午前二时野猫  
 ##### 4072#       发表于 2019-4-21 21:00
 
 
-
-
 羊头新曲预告
-
-
-
-
 
 
 001.png
 (45.05 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -20290,24 +13066,7 @@ AKZi这是什么精神污染live场面</blockquote>
 2019-4-21 21:00 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/21/210010o52scz6gxmntcoyh.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -20316,23 +13075,16 @@ AKZi这是什么精神污染live场面</blockquote>
 ##### 4073#       发表于 2019-4-21 21:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43393124&amp;ptid=1823171" target="_blank">zaku11ku 发表于 2019-4-21 20:56</a>
 日本本土管不着，但是本楼风向都要被带偏不得不说明一下了</blockquote>
 现在搞事的就是本土啊，泥潭没这个能量，背后本质都是信者内斗和愉悦犯煽动
 ガチアンチ都有本家信和gamers信的影子，一个想法不一定对
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 4074#       发表于 2019-4-21 21:08
-
 
 
  本帖最后由 いつかの自分 于 2019-4-21 21:11 编辑 
@@ -20347,17 +13099,10 @@ AKZi这是什么精神污染live场面</blockquote>
 可能是昨天一片绿的原因之一..
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 4075#       发表于 2019-4-21 21:15
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/21/211415jj29ehjhj1egjnjg.jpg" referrerpolicy="no-referrer">
@@ -20370,20 +13115,10 @@ AKZi这是什么精神污染live场面</blockquote>
 2019-4-21 21:14 上传
 
 
-
-
-
-
-
 明天九点的anisong怀旧曲  jump限定...先宣传一下
 
 
 那位国夫头像的管人也转了推  估计还是他的音源吧
-
-
-
-
-
 
 
 -----
@@ -20392,15 +13127,9 @@ AKZi这是什么精神污染live场面</blockquote>
 ##### 4076#       发表于 2019-4-21 21:23
 
 
-
 [https://www.youtube.com/watch?v=Hfm4bOhOvjc](https://www.youtube.com/watch?v=Hfm4bOhOvjc)    4月21日 22:00
 
 【メンバー発表】第3回学力テスト「#VakaTuberは誰だ 」やります！【因幡はねる / あにまーれ】
-
-
-
-
-
 
 
 -----
@@ -20409,21 +13138,13 @@ AKZi这是什么精神污染live场面</blockquote>
 ##### 4077#       发表于 2019-4-21 21:34
 
 
-
-
 盲猜一个阿夸
-
-
-
-
-
 
 
 -----
 
 ####  北条早苗  
 ##### 4078#       发表于 2019-4-21 21:35
-
 
 
 [https://www.youtube.com/watch?v=KyqnGR7RX08](https://www.youtube.com/watch?v=KyqnGR7RX08)
@@ -20433,16 +13154,10 @@ AKZi这是什么精神污染live场面</blockquote>
 曲目宣传
 
 
-
-
-
-
-
 -----
 
 ####  rita200123  
 ##### 4079#       发表于 2019-4-21 21:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43393399&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-21 21:23</a>
@@ -20455,16 +13170,10 @@ https://www.youtube.com/watch?v=Hfm4bOhOvjc    4月21日 22:00
 在讓太子這種等級的奪冠 有損V界名聲
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 4080#       发表于 2019-4-21 22:03
-
 
 
 [http://anthurium.tokyo/atcv001/](http://anthurium.tokyo/atcv001/)
@@ -20472,17 +13181,10 @@ https://www.youtube.com/watch?v=Hfm4bOhOvjc    4月21日 22:00
 这碟到底是什么情况…
 
 
-
-
-
-
-
 -----
 
 ####  ScarletMoon  
 ##### 4081#       发表于 2019-4-21 22:16
-
-
 
 
 万楽えね♈️VTuber
@@ -20492,25 +13194,13 @@ https://www.youtube.com/watch?v=Hfm4bOhOvjc    4月21日 22:00
 私、万楽えねは3月26日にKANZUME(@yukikagerou)と10年の交際を経て入籍致しました👰これもVtuberを始めた事が結婚に踏み切るキッカケでもあり、ファンの皆さまには感謝しても仕切れません。今後も万楽えねをよろしくおねがい致します💐
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 4082#       发表于 2019-4-21 22:16
 
 
-
-
 犬山  司  惩役太郎   马自立 DWU 德龙..
-
-
-
-
-
 
 
 -----
@@ -20519,20 +13209,13 @@ https://www.youtube.com/watch?v=Hfm4bOhOvjc    4月21日 22:00
 ##### 4083#       发表于 2019-4-21 22:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">第三次vaka有德龙，这是第一次请到彩虹的人吧。也太难得了
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 4084#       发表于 2019-4-21 22:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43393993&amp;ptid=1823171" target="_blank">ScarletMoon 发表于 2019-4-21 22:16</a>
@@ -20545,25 +13228,13 @@ https://www.youtube.com/watch?v=Hfm4bOhOvjc    4月21日 22:00
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">  恭喜了
 
 
-
-
-
-
-
 -----
 
 ####  dongganbenben  
 ##### 4085#       发表于 2019-4-21 22:25
 
 
-
-
 交往10年真的清楚
-
-
-
-
-
 
 
 -----
@@ -20572,14 +13243,7 @@ https://www.youtube.com/watch?v=Hfm4bOhOvjc    4月21日 22:00
 ##### 4086#       发表于 2019-4-21 22:26
 
 
-
-
 看看这次能不能救救anmr吧，最近anmr的数据真是惨
-
-
-
-
-
 
 
 -----
@@ -20588,15 +13252,9 @@ https://www.youtube.com/watch?v=Hfm4bOhOvjc    4月21日 22:00
 ##### 4087#       发表于 2019-4-21 22:33
 
 
-
 豆大福
 
 排泄物组合←NEW!
-
-
-
-
-
 
 
 -----
@@ -20605,24 +13263,16 @@ https://www.youtube.com/watch?v=Hfm4bOhOvjc    4月21日 22:00
 ##### 4088#       发表于 2019-4-21 22:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43394089&amp;ptid=1823171" target="_blank">Igarashi 发表于 2019-4-21 22:26</a>
 
 看看这次能不能救救anmr吧，最近anmr的数据真是惨</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大概救不了,市场都被瓜分完了,除非开辟新市场
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 4089#       发表于 2019-4-21 22:36
-
-
 
 
 ピーナツ　「しぃしぃ」
@@ -20633,26 +13283,15 @@ https://www.youtube.com/watch?v=Hfm4bOhOvjc    4月21日 22:00
 ！？
 
 
-
-
-
-
-
 -----
 
 ####  Persona1  
 ##### 4090#       发表于 2019-4-21 22:42
 
 
-
 <blockquote>いつかの自分 发表于 2019-4-21 22:16
 犬山  司  惩役太郎   马自立 DWU 德龙..</blockquote>
 这次搞男女分组，然后找犬山哥跟玛格萝娜两个八美肉(?)漫画家塞对面中和一下，这个玩法真是天才，不得不说黄兔子就是pro
-
-
-
-
-
 
 
 -----
@@ -20661,15 +13300,7 @@ https://www.youtube.com/watch?v=Hfm4bOhOvjc    4月21日 22:00
 ##### 4091#       发表于 2019-4-21 22:44
 
 
-
-
 はねる　「雪卍中身おっさんみたい」
-
-
-
-
-
-
 
 
 -----
@@ -20678,14 +13309,7 @@ https://www.youtube.com/watch?v=Hfm4bOhOvjc    4月21日 22:00
 ##### 4092#       发表于 2019-4-21 22:45
 
 
-
-
 听了一天的JIN  中午阿夸  晚上绿仙  现在Mia<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20694,13 +13318,7 @@ https://www.youtube.com/watch?v=Hfm4bOhOvjc    4月21日 22:00
 ##### 4093#       发表于 2019-4-21 22:45
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">三下果然对始皇帝知之甚少
-
-
-
-
-
 
 
 -----
@@ -20709,13 +13327,7 @@ https://www.youtube.com/watch?v=Hfm4bOhOvjc    4月21日 22:00
 ##### 4094#       发表于 2019-4-21 22:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">   我怎么感觉三下演的比花生像呢....
-
-
-
-
-
 
 
 -----
@@ -20724,22 +13336,15 @@ https://www.youtube.com/watch?v=Hfm4bOhOvjc    4月21日 22:00
 ##### 4095#       发表于 2019-4-21 22:53
 
 
-
 <img src="https://i.loli.net/2019/04/21/5cbc83f2e02b0.png" referrerpolicy="no-referrer">
 
 hololive gamers再评价？
-
-
-
-
-
 
 
 -----
 
 ####  北条早苗  
 ##### 4096#       发表于 2019-4-21 22:56
-
 
 
 <img src="https://i.loli.net/2019/04/21/5cbc845f61afc.jpg" referrerpolicy="no-referrer">
@@ -20749,26 +13354,15 @@ hololive gamers再评价？
 不知道还有没有机会看绿熊、mico和aqua的顶上对决
 
 
-
-
-
-
-
 -----
 
 ####  上坂蓮華黑  
 ##### 4097#       发表于 2019-4-21 22:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">gamers无法避免的超长耐久
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -20777,16 +13371,10 @@ hololive gamers再评价？
 ##### 4098#       发表于 2019-4-21 23:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43394295&amp;ptid=1823171" target="_blank">午前二时野猫 发表于 2019-4-21 22:45</a>
 
 三下果然对始皇帝知之甚少</blockquote>
 她连“これがバーチャルYouTuberなんだよなぁ……”都不知道的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20795,23 +13383,15 @@ hololive gamers再评价？
 ##### 4099#       发表于 2019-4-21 23:03
 
 
-
-
 开始了，所以点赞数起来了吗
 
 —— 来自 Xiaomi MIX 2, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 4100#       发表于 2019-4-21 23:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43394490&amp;ptid=1823171" target="_blank">空虚澄璃色 发表于 2019-4-21 23:03</a>
@@ -20823,16 +13403,10 @@ hololive gamers再评价？
 起来了   
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 4101#       发表于 2019-4-21 23:08
-
 
 
  本帖最后由 いつかの自分 于 2019-4-21 23:16 编辑 
@@ -20849,25 +13423,13 @@ hololive gamers再评价？
 もうちょっと粘れよ...
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 4102#       发表于 2019-4-21 23:13
 
 
-
-
 这就是彩虹mea的实力吗
-
-
-
-
-
 
 
 -----
@@ -20876,15 +13438,8 @@ hololive gamers再评价？
 ##### 4103#       发表于 2019-4-21 23:17
 
 
-
-
 おっぱいデカいだけだから先生
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20893,23 +13448,16 @@ hololive gamers再评价？
 ##### 4104#       发表于 2019-4-21 23:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43394612&amp;ptid=1823171" target="_blank">nimravus 发表于 2019-4-21 23:17</a>
 
 おっぱいデカいだけだから先生</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">　　私165センチなんだぞ　155センチさん？
 
 
-
-
-
-
-
 -----
 
 ####  Igarashi  
 ##### 4105#       发表于 2019-4-21 23:20
-
 
 
  本帖最后由 Igarashi 于 2019-4-21 23:21 编辑 
@@ -20919,34 +13467,19 @@ hololive gamers再评价？
 噗，原来第一次就是anst全员
 
 
-
-
-
-
-
-
 -----
 
 ####  nimravus  
 ##### 4106#       发表于 2019-4-21 23:21
 
 
-
-
 ​上手に気分転換....新幹線で泣くな？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 4107#       发表于 2019-4-21 23:24
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/21/232429o8s0pofbfhgh8sww.png" referrerpolicy="no-referrer">
@@ -20959,25 +13492,13 @@ hololive gamers再评价？
 2019-4-21 23:24 上传
 
 
-
-
-
-
-
 ホロライブ最強でええか？
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 4108#       发表于 2019-4-21 23:27
-
-
 
 
 「かわいいからな　めっちゃ自撮りしちゃうんだよな」
@@ -20989,26 +13510,15 @@ hololive gamers再评价？
 誤爆待っとります
 
 
-
-
-
-
-
 -----
 
 ####  午前二时野猫  
 ##### 4109#       发表于 2019-4-21 23:27
 
 
-
 [https://www.youtube.com/watch?v=LoPMzyFic4M](https://www.youtube.com/watch?v=LoPMzyFic4M)
 
 塩天使唱歌
-
-
-
-
-
 
 
 -----
@@ -21017,16 +13527,10 @@ hololive gamers再评价？
 ##### 4110#       发表于 2019-4-21 23:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43394671&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-21 23:24</a>
 
 ホロライブ最強でええか？</blockquote>
 ちょこ1000，ギバラ2000，チャイカ最強だぞ？！
-
-
-
-
-
 
 
 -----
@@ -21035,15 +13539,9 @@ hololive gamers再评价？
 ##### 4111#       发表于 2019-4-21 23:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43394710&amp;ptid=1823171" target="_blank">nimravus 发表于 2019-4-21 23:27</a>
 ちょこ1000，ギバラ2000，チャイカ最強だぞ？！</blockquote>
 巧可真的有一千吗（）
-
-
-
-
-
 
 
 -----
@@ -21052,24 +13550,15 @@ hololive gamers再评价？
 ##### 4112#       发表于 2019-4-21 23:28
 
 
-
-
 悲报，葛叶案件消失。
 
 —— 来自 Xiaomi MIX 2, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
-
-
-
-
-
 
 
 -----
 
 ####  ScarletMoon  
 ##### 4113#       发表于 2019-4-21 23:29
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/21/232858xkyl0cspy2a69329.jpg" referrerpolicy="no-referrer">
@@ -21082,21 +13571,10 @@ hololive gamers再评价？
 2019-4-21 23:28 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Igarashi  
 ##### 4114#       发表于 2019-4-21 23:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43394717&amp;ptid=1823171" target="_blank">Mika-S 发表于 2019-4-21 23:28</a>
@@ -21105,32 +13583,20 @@ hololive gamers再评价？
 没有（无感情）
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 4115#       发表于 2019-4-21 23:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43394728&amp;ptid=1823171" target="_blank">ScarletMoon 发表于 2019-4-21 23:29</a></blockquote>
 其实昨天救回来了一点  要不要再改动一下
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 4116#       发表于 2019-4-21 23:35
-
 
 
  本帖最后由 いつかの自分 于 2019-4-21 23:38 编辑 
@@ -21145,25 +13611,13 @@ hololive gamers再评价？
 ゴリスナー！？
 
 
-
-
-
-
-
 -----
 
 ####  tglals  
 ##### 4117#       发表于 2019-4-21 23:35
 
 
-
-
 夏哥t台突击
-
-
-
-
-
 
 
 -----
@@ -21172,21 +13626,13 @@ hololive gamers再评价？
 ##### 4118#       发表于 2019-4-21 23:38
 
 
-
-
 我一看夏哥tc突击直接点开のぞみ的直播间了……
-
-
-
-
-
 
 
 -----
 
 ####  tglals  
 ##### 4119#       发表于 2019-4-21 23:42
-
 
 
  本帖最后由 tglals 于 2019-4-21 23:44 编辑 
@@ -21196,16 +13642,10 @@ hololive gamers再评价？
 推特关注里成堆的灯笼（王者的余裕
 
 
-
-
-
-
-
 -----
 
 ####  Igarashi  
 ##### 4120#       发表于 2019-4-21 23:46
-
 
 
  本帖最后由 Igarashi 于 2019-4-21 23:51 编辑 
@@ -21219,27 +13659,15 @@ hololive gamers再评价？
 去看了一圈发现关注者中华浓度过高
 
 
-
-
-
-
-
-
 -----
 
 ####  宫藤芳佳  
 ##### 4121#       发表于 2019-4-21 23:58
 
 
-
  本帖最后由 宫藤芳佳 于 2019-4-22 00:02 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">真正的T台突击-红心<img src="http://wx4.sinaimg.cn/large/403d45c1ly1g2ap7jkgjzj20ge0f5jtn.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21248,14 +13676,7 @@ hololive gamers再评价？
 ##### 4122#       发表于 2019-4-22 00:00
 
 
-
-
 幼児退行ギバラ可愛い
-
-
-
-
-
 
 
 -----
@@ -21264,14 +13685,7 @@ hololive gamers再评价？
 ##### 4123#       发表于 2019-4-22 00:00
 
 
-
-
 我还以为PKRS放弃前世了呢
-
-
-
-
-
 
 
 -----
@@ -21280,23 +13694,15 @@ hololive gamers再评价？
 ##### 4124#       发表于 2019-4-22 00:10
 
 
-
-
 御伽原江良「ちょこ先生婆じゃん」
 
 ちゃこ先生「何を言ってるんだクソガキ」
-
-
-
-
-
 
 
 -----
 
 ####  大林照人  
 ##### 4125#       发表于 2019-4-22 00:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43391632&amp;ptid=1823171" target="_blank">Igarashi 发表于 2019-4-21 05:33</a>
@@ -21307,16 +13713,10 @@ hololive gamers再评价？
 利香还有第2个频道？
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 4126#       发表于 2019-4-22 00:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43395152&amp;ptid=1823171" target="_blank">大林照人 发表于 2019-4-22 00:11</a>
@@ -21325,16 +13725,10 @@ hololive gamers再评价？
 梅露那个
 
 
-
-
-
-
-
 -----
 
 ####  大林照人  
 ##### 4127#       发表于 2019-4-22 00:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43395161&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-21 11:11</a>
@@ -21343,16 +13737,10 @@ hololive gamers再评价？
 我没看到有3W的频道啊。。。
 
 
-
-
-
-
-
 -----
 
 ####  Igarashi  
 ##### 4128#       发表于 2019-4-22 00:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43395178&amp;ptid=1823171" target="_blank">大林照人 发表于 2019-4-22 00:13</a>
@@ -21361,16 +13749,10 @@ hololive gamers再评价？
 就梅露那个，快4万了，最近holo不错
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 4129#       发表于 2019-4-22 00:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43395178&amp;ptid=1823171" target="_blank">大林照人 发表于 2019-4-22 00:13</a>
@@ -21379,17 +13761,10 @@ hololive gamers再评价？
 估计看了前面数字是3就说3W了吧
 
 
-
-
-
-
-
 -----
 
 ####  free  
 ##### 4130#       发表于 2019-4-22 00:17
-
-
 
 
 四月一日这姐俩27号凌晨电视剧，白天去超会议，晚上给口吃神过生日，是真够忙的，当然他holo又多了一条罪名，逮到一个工具人就用到坏为止......
@@ -21405,30 +13780,13 @@ hololive gamers再评价？
 2019-4-22 00:17 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 4131#       发表于 2019-4-22 00:21
 
 
-
-
 2g这边下了之后老师多了1.5K？   
-
-
-
-
-
 
 
 -----
@@ -21437,16 +13795,10 @@ hololive gamers再评价？
 ##### 4132#       发表于 2019-4-22 00:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43395216&amp;ptid=1823171" target="_blank">free 发表于 2019-4-22 00:17</a>
 
 四月一日这姐俩27号凌晨电视剧，白天去超会议，晚上给口吃神过生日，是真够忙的，当然他holo又多了一条罪名 ...</blockquote>
 小空小剧场gkdgkd
-
-
-
-
-
 
 
 -----
@@ -21455,24 +13807,16 @@ hololive gamers再评价？
 ##### 4133#       发表于 2019-4-22 00:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43395204&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-21 11:16</a>
 
 估计看了前面数字是3就说3W了吧</blockquote>
 是我脑残了。。我TM打开的是柚萌的频道 
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 4134#       发表于 2019-4-22 00:23
-
-
 
 
 和我签订契约，成为virtual singer吧！
@@ -21487,18 +13831,7 @@ hololive gamers再评价？
 2019-4-22 00:23 上传
 
 
-
-
-
-
-
-
 太子亲自证明，歌姬=魔法少女<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21507,15 +13840,7 @@ hololive gamers再评价？
 ##### 4135#       发表于 2019-4-22 00:24
 
 
-
-
 说起来四月一日一家好像还开始每天连载一次1P漫画   作者大概也是每天一换  
-
-
-
-
-
-
 
 
 -----
@@ -21524,16 +13849,10 @@ hololive gamers再评价？
 ##### 4136#       发表于 2019-4-22 00:27
 
 
-
 [https://www.youtube.com/watch?v=IOBAn4wORpI](https://www.youtube.com/watch?v=IOBAn4wORpI)
 
 
 【#BANs】結婚記念記者会見❤【万楽えね】
-
-
-
-
-
 
 
 -----
@@ -21542,13 +13861,7 @@ hololive gamers再评价？
 ##### 4137#       发表于 2019-4-22 00:32
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">高评价数3：1 
-
-
-
-
-
 
 
 -----
@@ -21557,16 +13870,10 @@ hololive gamers再评价？
 ##### 4138#       发表于 2019-4-22 00:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43395259&amp;ptid=1823171" target="_blank">Igarashi 发表于 2019-4-22 00:22</a>
 
 小空小剧场gkdgkd</blockquote>
 下一期小剧场得构思一下，主要是下期想黑萝卜子和一期生了，得准备准备黑材料才行，第一期觉得好玩请给我加鹅<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21575,16 +13882,10 @@ hololive gamers再评价？
 ##### 4139#       发表于 2019-4-22 00:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43395349&amp;ptid=1823171" target="_blank">free 发表于 2019-4-22 00:33</a>
 
 下一期小剧场得构思一下，主要是下期想黑萝卜子和一期生了，得准备准备黑材料才行，第一期觉得好玩请给我 ...</blockquote>
 加了加了，第一次评分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21593,16 +13894,9 @@ hololive gamers再评价？
 ##### 4140#       发表于 2019-4-22 00:40
 
 
-
-
 看诗子玩DDLC。
 
 好像头一次见她这么慌。
-
-
-
-
-
 
 
 -----
@@ -21611,13 +13905,7 @@ hololive gamers再评价？
 ##### 4141#       发表于 2019-4-22 01:10
 
 
-
 <blockquote>以后我们会有更高性能的初号机的</blockquote>原来第一期没有打算黑萝卜子的吗……
-
-
-
-
-
 
 
 -----
@@ -21626,14 +13914,7 @@ hololive gamers再评价？
 ##### 4142#       发表于 2019-4-22 01:14
 
 
-
-
 不过vtb本人还是别黑了，调侃倒是可以，谷乡和福田请加大力度
-
-
-
-
-
 
 
 -----
@@ -21642,16 +13923,10 @@ hololive gamers再评价？
 ##### 4143#       发表于 2019-4-22 01:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43395594&amp;ptid=1823171" target="_blank">proxima 发表于 2019-4-22 01:10</a>
 
 原来第一期没有打算黑萝卜子的吗……</blockquote>
 恭喜你发现了这个伏笔......不管是空妈还是萝卜我都挺喜欢的，不会黑的，下期主要安排的就是谷乡和福田这两个货，当然还有天天吹嘘他holo温暖大家庭的绿帽坛箱推小将们。
-
-
-
-
-
 
 
 -----
@@ -21660,16 +13935,10 @@ hololive gamers再评价？
 ##### 4144#       发表于 2019-4-22 01:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43395667&amp;ptid=1823171" target="_blank">free 发表于 2019-4-22 01:22</a>
 
 恭喜你发现了这个伏笔......不管是空妈还是萝卜我都挺喜欢的，不会黑的，下期主要安排的就是谷乡和福田这 ...</blockquote>
 箱推小将最多的莫过于批站了，而且不光是holo一个箱温暖大家庭，是个箱就是一家人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21678,23 +13947,15 @@ hololive gamers再评价？
 ##### 4145#       发表于 2019-4-22 01:35
 
 
-
-
 写的太棒了，下期请加大力度，多多益善<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  大林照人  
 ##### 4146#       发表于 2019-4-22 03:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43383245&amp;ptid=1823171" target="_blank">空虚澄璃色 发表于 2019-4-20 09:26</a>
@@ -21712,26 +13973,14 @@ hololive gamers再评价？
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">不过追直播的时候还满好玩的
 
 
-
-
-
-
-
 -----
 
 ####  lhawp  
 ##### 4147#       发表于 2019-4-22 03:33
 
 
-
-
 不死人貌似把前世除了歌投稿外的推文都删了？
 她摸了一个星期了，这是怎么了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21740,14 +13989,7 @@ hololive gamers再评价？
 ##### 4148#       发表于 2019-4-22 08:56
 
 
-
-
 现在看狐狸就看字幕组的烤肉和突击唱歌了，烤的起码还是挑过的，不至于太过虚无。
-
-
-
-
-
 
 
 -----
@@ -21756,16 +13998,10 @@ hololive gamers再评价？
 ##### 4149#       发表于 2019-4-22 11:03
 
 
-
 [http://anthurium.tokyo/atcv001/](http://anthurium.tokyo/atcv001/)
 
 
 两首歌：空妈+skrmk、空妈+萝卜子
-
-
-
-
-
 
 
 -----
@@ -21774,16 +14010,10 @@ hololive gamers再评价？
 ##### 4150#       发表于 2019-4-22 12:56
 
 
-
 [https://twitter.com/shirakamifubuki/status/1120186460601106433](https://twitter.com/shirakamifubuki/status/1120186460601106433)
 
 
 直球dissB站抽成，是不是有点嚣张了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21792,15 +14022,9 @@ hololive gamers再评价？
 ##### 4151#       发表于 2019-4-22 12:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正推上说的，无所谓。
 
 你问就说看不到哪些人打了钱感觉有点遗憾（然后B站给弹幕姬更新了统计ID打钱功能
-
-
-
-
-
 
 
 -----
@@ -21809,14 +14033,7 @@ hololive gamers再评价？
 ##### 4152#       发表于 2019-4-22 13:00
 
 
-
-
 要不要来个b站复刻啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21825,14 +14042,7 @@ hololive gamers再评价？
 ##### 4153#       发表于 2019-4-22 13:03
 
 
-
-
 有丶搞笑，在彩虹大举进入的现在是不怕你睿穿小鞋吗
-
-
-
-
-
 
 
 -----
@@ -21841,13 +14051,7 @@ hololive gamers再评价？
 ##### 4154#       发表于 2019-4-22 13:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">小狐狸最近有点嚣张啊，各种阴阳怪气彩虹，现在又diss批站
-
-
-
-
-
 
 
 -----
@@ -21856,16 +14060,9 @@ hololive gamers再评价？
 ##### 4155#       发表于 2019-4-22 13:10
 
 
-
-
 yagoo「やれ」
 
 フブキ「はい…」
-
-
-
-
-
 
 
 -----
@@ -21874,16 +14071,9 @@ yagoo「やれ」
 ##### 4156#       发表于 2019-4-22 13:11
 
 
-
-
 很多牆外人士
 
 都以為她們的發言牆內是不知道
-
-
-
-
-
 
 
 -----
@@ -21892,13 +14082,7 @@ yagoo「やれ」
 ##### 4157#       发表于 2019-4-22 13:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么两面人什么的有在搞吗
-
-
-
-
-
 
 
 -----
@@ -21907,16 +14091,10 @@ yagoo「やれ」
 ##### 4158#       发表于 2019-4-22 13:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43400802&amp;ptid=1823171" target="_blank">六六同学 发表于 2019-4-22 13:13</a>
 
 那么两面人什么的有在搞吗</blockquote>
 至少台灣是很多
-
-
-
-
-
 
 
 -----
@@ -21925,15 +14103,7 @@ yagoo「やれ」
 ##### 4159#       发表于 2019-4-22 13:24
 
 
-
-
 马自立变化球  少主直球还行
-
-
-
-
-
-
 
 
 -----
@@ -21942,14 +14112,7 @@ yagoo「やれ」
 ##### 4160#       发表于 2019-4-22 13:25
 
 
-
-
  少主是不是有点膨胀啊- -还拉上马自立一起发，这算试探B站态度？
-
-
-
-
-
 
 
 -----
@@ -21958,14 +14121,7 @@ yagoo「やれ」
 ##### 4161#       发表于 2019-4-22 13:25
 
 
-
-
 所以说你张京华还是懂得深，别人只能在推上阴阳怪气抽成。这位连唯一指定邮箱都早搞出来了。
-
-
-
-
-
 
 
 -----
@@ -21974,15 +14130,9 @@ yagoo「やれ」
 ##### 4162#       发表于 2019-4-22 13:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43400970&amp;ptid=1823171" target="_blank">xiaoba329 发表于 2019-4-22 13:25</a>
 所以说你张京华还是懂得深，别人只能在推上阴阳怪气抽成。这位连唯一指定邮箱都早搞出来了。 ...</blockquote>
 没怎么看or直播，他们是怎么绕过超管的？
-
-
-
-
-
 
 
 -----
@@ -21991,14 +14141,7 @@ yagoo「やれ」
 ##### 4163#       发表于 2019-4-22 13:30
 
 
-
-
 好事啊，毕竟B站最强箱才有资本怼，造福后人百利无弊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22007,15 +14150,9 @@ yagoo「やれ」
 ##### 4164#       发表于 2019-4-22 13:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=43401018&amp;amp;ptid=1823171" target="_blank">爱护动物抓根宝 发表于 2019-4-22 13:29</a>
 没怎么看or直播，他们是怎么绕过超管的？</blockquote>
 扣扣群流通的，很久前在直播里提了一嘴说是实验用千万别打钱<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22024,13 +14161,7 @@ yagoo「やれ」
 ##### 4165#       发表于 2019-4-22 13:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题来了，要是vtuber在自己的衣服上印个二维码功德箱，会不会被ban
-
-
-
-
-
 
 
 -----
@@ -22039,13 +14170,7 @@ yagoo「やれ」
 ##### 4166#       发表于 2019-4-22 13:32
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">想了下，你holo该找星空学院取经，把送礼物特效搞到直播里，这样你就没理由说我没感谢了，说不定别人看了还死里打
-
-
-
-
-
 
 
 -----
@@ -22054,16 +14179,10 @@ yagoo「やれ」
 ##### 4167#       发表于 2019-4-22 13:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401064&amp;ptid=1823171" target="_blank">椎名mahuyo 发表于 2019-4-22 13:32</a>
 
 想了下，你holo该找星空学院取经，把送礼物特效搞到直播里，这样你就没理由说我没感谢了，说不定别 ...</blockquote>
 这说的不就是b站抽成狠么，你这还鼓励人去b站投钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22072,13 +14191,7 @@ yagoo「やれ」
 ##### 4168#       发表于 2019-4-22 13:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">抽成高你可以放弃这几十万关注的粉丝啊，做不到还说什么
-
-
-
-
-
 
 
 -----
@@ -22087,23 +14200,16 @@ yagoo「やれ」
 ##### 4169#       发表于 2019-4-22 13:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401103&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-22 13:34</a>
 
 这说的不就是b站抽成狠么，你这还鼓励人去b站投钱</blockquote>
 抽的多， 但打钱的人更多，开源了啊
 
 
-
-
-
-
-
 -----
 
 ####  Godless  
 ##### 4170#       发表于 2019-4-22 13:38
-
 
 
 <blockquote>椎名mahuyo 发表于 2019-4-22 12:59
@@ -22113,25 +14219,13 @@ yagoo「やれ」
 其实有今日礼物榜的
 
 
-
-
-
-
-
 -----
 
 ####  第二十三个马甲  
 ##### 4171#       发表于 2019-4-22 13:39
 
 
-
-
 成了，holo傻逼（直球）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22140,16 +14234,10 @@ yagoo「やれ」
 ##### 4172#       发表于 2019-4-22 13:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401103&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-22 13:34</a>
 
 这说的不就是b站抽成狠么，你这还鼓励人去b站投钱</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">抽成问题算是在一大堆推里顺带说的，她明面上说的最大问题还是没法感谢打钱的人，你holo这么搞不就是解决了问题么。至于抽成，你狐狸嫌钱少又不代表她不想要这外快和各种工商活动
-
-
-
-
-
 
 
 -----
@@ -22158,14 +14246,7 @@ yagoo「やれ」
 ##### 4173#       发表于 2019-4-22 13:39
 
 
-
-
 说不定开了源结果抽水之后还没油管多呢
-
-
-
-
-
 
 
 -----
@@ -22174,16 +14255,10 @@ yagoo「やれ」
 ##### 4174#       发表于 2019-4-22 13:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43395349&amp;ptid=1823171" target="_blank">free 发表于 2019-4-22 00:33</a>
 
 下一期小剧场得构思一下，主要是下期想黑萝卜子和一期生了，得准备准备黑材料才行，第一期觉得好玩请给我 ...</blockquote>
 自由老哥出来写文啦，今天一期生给你提供现成的素材了
-
-
-
-
-
 
 
 -----
@@ -22192,20 +14267,13 @@ yagoo「やれ」
 ##### 4175#       发表于 2019-4-22 13:43
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又想恰烂钱又怪这饭恰得不够香
-
-
-
-
-
 
 
 -----
 
 ####  北条早苗  
 ##### 4176#       发表于 2019-4-22 13:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401179&amp;ptid=1823171" target="_blank">椎名mahuyo 发表于 2019-4-22 13:39</a>
@@ -22216,16 +14284,10 @@ b站弄特效，管上没特效，这不是自己坑自己吗<img src="https://s
 明面上的事情看看就好
 
 
-
-
-
-
-
 -----
 
 ####  Godless  
 ##### 4177#       发表于 2019-4-22 13:46
-
 
 
  本帖最后由 Godless 于 2019-4-22 13:47 编辑 
@@ -22235,25 +14297,13 @@ b站弄特效，管上没特效，这不是自己坑自己吗<img src="https://s
 不过估计也没大事，瞬间被推特海埋了
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 4178#       发表于 2019-4-22 13:48
 
 
-
-
 B站过一道手、跨国汇款过一道手、运营过一道手、还要交两份税，跨国直播不是那么好混的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22262,14 +14312,7 @@ B站过一道手、跨国汇款过一道手、运营过一道手、还要交两�
 ##### 4179#       发表于 2019-4-22 13:48
 
 
-
-
 老哥们对holo还真是很严格啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22278,14 +14321,7 @@ B站过一道手、跨国汇款过一道手、运营过一道手、还要交两�
 ##### 4180#       发表于 2019-4-22 13:49
 
 
-
-
 holo要是有本事怼到B站降抽成份额我当然是无条件支持啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22294,17 +14330,10 @@ holo要是有本事怼到B站降抽成份额我当然是无条件支持啦<img s
 ##### 4181#       发表于 2019-4-22 13:51
 
 
-
-
 想知道送礼人的名字可以不关抽奖信息和礼物特效啊，只不过画面就......
 
 
 其他的还是那句话hololive的态度摆明了就是拿阿B当提款机的
-
-
-
-
-
 
 
 -----
@@ -22313,23 +14342,16 @@ holo要是有本事怼到B站降抽成份额我当然是无条件支持啦<img s
 ##### 4182#       发表于 2019-4-22 13:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401330&amp;ptid=1823171" target="_blank">黑炎 发表于 2019-4-22 13:49</a>
 
 holo要是有本事怼到B站降抽成份额我当然是无条件支持啦</blockquote>
 B站：holo你想提高分成？那我还是捧彩虹好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  春风女神狄璐卡  
 ##### 4183#       发表于 2019-4-22 13:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401356&amp;ptid=1823171" target="_blank">バーチャルS1er 发表于 2019-4-22 13:51</a>
@@ -22341,16 +14363,10 @@ B站：holo你想提高分成？那我还是捧彩虹好了</blockquote>
 造一个二刺猿OB天团
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 4184#       发表于 2019-4-22 13:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401349&amp;ptid=1823171" target="_blank">SchwarzeKatze 发表于 2019-4-22 13:51</a>
@@ -22362,27 +14378,15 @@ B站：holo你想提高分成？那我还是捧彩虹好了</blockquote>
 除了管上混不下去的还有不是当提款机的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  tiro_finale  
 ##### 4185#       发表于 2019-4-22 13:54
 
 
-
-
 我转的那条问题推被删了，这件事就这样了吧
 
 其他话还好，只能说是暗示
-
-
-
-
-
 
 
 -----
@@ -22391,22 +14395,15 @@ B站：holo你想提高分成？那我还是捧彩虹好了</blockquote>
 ##### 4186#       发表于 2019-4-22 13:55
 
 
-
 <blockquote>北条早苗 发表于 2019-4-22 13:53
 除了管上混不下去的还有不是当提款机的吗</blockquote>
 问题是管人这业务对你睿站是买方市场。
-
-
-
-
-
 
 
 -----
 
 ####  noHentai  
 ##### 4187#       发表于 2019-4-22 13:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401400&amp;ptid=1823171" target="_blank">tiro_finale 发表于 2019-4-22 13:54</a>
@@ -22417,27 +14414,15 @@ B站：holo你想提高分成？那我还是捧彩虹好了</blockquote>
 我刚刷了一下推，感觉各种直球啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  noHentai  
 ##### 4188#       发表于 2019-4-22 13:57
 
 
-
-
 感觉可能是holo跟B谈什么事结果谈崩了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 <img src="https://i.loli.net/2019/04/22/5cbd578a6290d.png" referrerpolicy="no-referrer">
 <img src="https://i.loli.net/2019/04/22/5cbd578a65b5e.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22446,21 +14431,13 @@ B站：holo你想提高分成？那我还是捧彩虹好了</blockquote>
 ##### 4189#       发表于 2019-4-22 13:57
 
 
-
-
 不怎么看看国内直播，抽奖中奖人比打钱的人的ID显眼是国内平台惯例么？
-
-
-
-
-
 
 
 -----
 
 ####  北条早苗  
 ##### 4190#       发表于 2019-4-22 13:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401413&amp;ptid=1823171" target="_blank">xiaoba329 发表于 2019-4-22 13:55</a>
@@ -22471,16 +14448,10 @@ B站：holo你想提高分成？那我还是捧彩虹好了</blockquote>
 只是刚才那推发的实在是不明智，毕竟把分成都明确说出来了
 
 
-
-
-
-
-
 -----
 
 ####  zhicai618  
 ##### 4191#       发表于 2019-4-22 13:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401442&amp;ptid=1823171" target="_blank">age45 发表于 2019-4-22 13:57</a>
@@ -22488,17 +14459,10 @@ B站：holo你想提高分成？那我还是捧彩虹好了</blockquote>
 是啊。
 
 
-
-
-
-
-
 -----
 
 ####  冰寒之月  
 ##### 4192#       发表于 2019-4-22 13:59
-
-
 
 
 小狐狸删推了
@@ -22510,17 +14474,10 @@ B站：holo你想提高分成？那我还是捧彩虹好了</blockquote>
 holo这连危机公关都不会搞无能说石锤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  932162249  
 ##### 4193#       发表于 2019-4-22 14:01
-
-
 
 
 说实话我要是holo我也肯定不爽啊，彩虹的快速增长至少有b站首页强推狠狠引了一波流，holo就没见b站有什么动作，基本上增长全是靠holo积极b限和字幕组的努力。当然这些企业私底下的操作我们也只能脑补。
@@ -22528,16 +14485,10 @@ holo这连危机公关都不会搞无能说石锤<img src="https://static.saraba
 —— 来自 HUAWEI BKL-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  黑炎  
 ##### 4194#       发表于 2019-4-22 14:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401440&amp;ptid=1823171" target="_blank">noHentai 发表于 2019-4-22 13:57</a>
@@ -22547,32 +14498,19 @@ holo这连危机公关都不会搞无能说石锤<img src="https://static.saraba
 这分成确实黑，但国内现在就这规则，也没办法
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 4195#       发表于 2019-4-22 14:01
 
 
-
-
 反正holo成员里面放个屁也会转进holo无能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  北条早苗  
 ##### 4196#       发表于 2019-4-22 14:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401483&amp;ptid=1823171" target="_blank">冰寒之月 发表于 2019-4-22 13:59</a>
@@ -22587,16 +14525,10 @@ holo这连危机公关都不会搞无能说石锤<img src="https://static.saraba
 这次就是周一开了晨会说到了，所以就拿到推上来说了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  SchwarzeKatze  
 ##### 4197#       发表于 2019-4-22 14:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401384&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-22 13:53</a>
@@ -22608,17 +14540,10 @@ holo这连危机公关都不会搞无能说石锤<img src="https://static.saraba
 拿是否把中国观众当回事划线的话，态度认真直播有趣互动到位的不算，除了工商之外只知道定期搞个固定套路B限割韭菜的算。反正看了这么段时间，彩虹holo的态度对比鲜明
 
 
-
-
-
-
-
 -----
 
 ####  tiro_finale  
 ##### 4198#       发表于 2019-4-22 14:03
-
-
 
 
 平台引导这种事情太忌讳了，力也尸体还挂在那呢
@@ -22628,16 +14553,10 @@ holo这连危机公关都不会搞无能说石锤<img src="https://static.saraba
 好在第一箱还是有一点容错的，删推认怂的话，睿国应该没必要追击
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 4199#       发表于 2019-4-22 14:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401529&amp;ptid=1823171" target="_blank">SchwarzeKatze 发表于 2019-4-22 14:02</a>
@@ -22651,16 +14570,10 @@ b限看得不多，日常彩虹节目有趣度按着holo打没问题啊
 本质不同平台，上升到中国观众是不是就滑坡了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 4200#       发表于 2019-4-22 14:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401538&amp;ptid=1823171" target="_blank">tiro_finale 发表于 2019-4-22 14:03</a>
@@ -22671,25 +14584,13 @@ b限看得不多，日常彩虹节目有趣度按着holo打没问题啊
 本身就是默认油管转播的，平台引导要看合同有没有写了
 
 
-
-
-
-
-
 -----
 
 ####  age45  
 ##### 4201#       发表于 2019-4-22 14:08
 
 
-
-
 holo就是虚无专精啊，也不是真的盐应对的感觉吧
-
-
-
-
-
 
 
 -----
@@ -22698,14 +14599,7 @@ holo就是虚无专精啊，也不是真的盐应对的感觉吧
 ##### 4202#       发表于 2019-4-22 14:09
 
 
-
-
 彩虹那B限还是要看本人，不过感觉彩虹那边也挺谨慎的，阿凛第二次B限熟肉早烤出来了，那边运营卡着不让放。
-
-
-
-
-
 
 
 -----
@@ -22714,23 +14608,15 @@ holo就是虚无专精啊，也不是真的盐应对的感觉吧
 ##### 4203#       发表于 2019-4-22 14:09
 
 
-
-
 不管怎么样这事都不该拿出来说<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 企业在下面有的是谈判的机会，说好听点这叫合作
-
-
-
-
-
 
 
 -----
 
 ####  冰寒之月  
 ##### 4204#       发表于 2019-4-22 14:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401529&amp;ptid=1823171" target="_blank">SchwarzeKatze 发表于 2019-4-22 14:02</a>
@@ -22742,16 +14628,10 @@ holo就是虚无专精啊，也不是真的盐应对的感觉吧
 你是在说大福不把中国观众当回事所以力挺holo吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  noHentai  
 ##### 4205#       发表于 2019-4-22 14:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401625&amp;ptid=1823171" target="_blank">椎名mahuyo 发表于 2019-4-22 14:09</a>
@@ -22760,25 +14640,13 @@ holo就是虚无专精啊，也不是真的盐应对的感觉吧
 不死人的初次歌回都还没放，运营biss<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  saybestty  
 ##### 4206#       发表于 2019-4-22 14:10
 
 
-
-
 在意抽成的观众早就想办法翻出去打了，那么多外币sc难道是大风刮来的，弱智holo
-
-
-
-
-
 
 
 -----
@@ -22787,14 +14655,7 @@ holo就是虚无专精啊，也不是真的盐应对的感觉吧
 ##### 4207#       发表于 2019-4-22 14:10
 
 
-
-
 傻葵跑过来打DOTA搞B限，不知道比每次过来都要唱12fanclub、玩梗的人高到哪里去了。
-
-
-
-
-
 
 
 -----
@@ -22803,14 +14664,7 @@ holo就是虚无专精啊，也不是真的盐应对的感觉吧
 ##### 4208#       发表于 2019-4-22 14:11
 
 
-
-
 怎么这么直球的……还是对国内环境没有认识吧
-
-
-
-
-
 
 
 -----
@@ -22819,14 +14673,7 @@ holo就是虚无专精啊，也不是真的盐应对的感觉吧
 ##### 4209#       发表于 2019-4-22 14:11
 
 
-
-
 来了来了，我最喜欢的holo vs 2434 时间
-
-
-
-
-
 
 
 -----
@@ -22835,14 +14682,7 @@ holo就是虚无专精啊，也不是真的盐应对的感觉吧
 ##### 4210#       发表于 2019-4-22 14:14
 
 
-
-
 2434怎么还不来第二批人啊，看holo一家独大有啥意思
-
-
-
-
-
 
 
 -----
@@ -22851,22 +14691,15 @@ holo就是虚无专精啊，也不是真的盐应对的感觉吧
 ##### 4211#       发表于 2019-4-22 14:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">你还别说，感觉过几天阿夸就要来B限播自走棋了
 
 油管有DEBUFF估计她不想在那边播
-
-
-
-
-
 
 
 -----
 
 ####  SchwarzeKatze  
 ##### 4212#       发表于 2019-4-22 14:15
-
 
 
  本帖最后由 SchwarzeKatze 于 2019-4-22 14:18 编辑 
@@ -22880,16 +14713,10 @@ b限看得不多，日常彩虹节目有趣度按着holo打没问题啊
 不过你一说holo日常就这样我还真是无言以对<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 4213#       发表于 2019-4-22 14:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401674&amp;ptid=1823171" target="_blank">zxf66503 发表于 2019-4-22 14:11</a>
@@ -22898,26 +14725,15 @@ b限看得不多，日常彩虹节目有趣度按着holo打没问题啊
 这楼就是一边倒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  爱护动物抓根宝  
 ##### 4214#       发表于 2019-4-22 14:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401648&amp;ptid=1823171" target="_blank">saybestty 发表于 2019-4-22 14:10</a>
 在意抽成的观众早就想办法翻出去打了，那么多外币sc难道是大风刮来的，弱智holo ...</blockquote>
 可能领导真以为holo在加拿大美利坚两开花吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22926,16 +14742,9 @@ b限看得不多，日常彩虹节目有趣度按着holo打没问题啊
 ##### 4215#       发表于 2019-4-22 14:17
 
 
-
-
 拿b限节目效果敲holo的建议去看下每天的直播，真的就是这股虚无味<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 国内这边靠剪辑片段补的才会对holo产生不切实际的期望
-
-
-
-
-
 
 
 -----
@@ -22944,14 +14753,7 @@ b限看得不多，日常彩虹节目有趣度按着holo打没问题啊
 ##### 4216#       发表于 2019-4-22 14:18
 
 
-
-
 谷乡不会真觉得没国人去油管打钱吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22960,13 +14762,7 @@ b限看得不多，日常彩虹节目有趣度按着holo打没问题啊
 ##### 4217#       发表于 2019-4-22 14:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不知道彩虹下一批会有谁，哈哥能不能来啊，反正油管那边没救了
-
-
-
-
-
 
 
 -----
@@ -22975,20 +14771,13 @@ b限看得不多，日常彩虹节目有趣度按着holo打没问题啊
 ##### 4218#       发表于 2019-4-22 14:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">静凛B限的熟肉出了
-
-
-
-
-
 
 
 -----
 
 ####  バーチャルS1er  
 ##### 4219#       发表于 2019-4-22 14:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401773&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-22 14:17</a>
@@ -22999,16 +14788,10 @@ b限看得不多，日常彩虹节目有趣度按着holo打没问题啊
 说的彩虹大部分好像不虚无一样<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  激光2000  
 ##### 4220#       发表于 2019-4-22 14:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401762&amp;ptid=1823171" target="_blank">爱护动物抓根宝 发表于 2019-4-22 14:17</a>
@@ -23017,16 +14800,10 @@ b限看得不多，日常彩虹节目有趣度按着holo打没问题啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">那加拿带和美利坚人均夜猫子，挺着时差打钱，真实真爱粉
 
 
-
-
-
-
-
 -----
 
 ####  上坂蓮華黑  
 ##### 4221#       发表于 2019-4-22 14:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401777&amp;ptid=1823171" target="_blank">soranoguiji 发表于 2019-4-22 14:18</a>
@@ -23035,16 +14812,10 @@ b限看得不多，日常彩虹节目有趣度按着holo打没问题啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">哈哥直播比holo日常还虚无
 
 
-
-
-
-
-
 -----
 
 ####  zxf66503  
 ##### 4222#       发表于 2019-4-22 14:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401753&amp;ptid=1823171" target="_blank">バーチャルS1er 发表于 2019-4-22 14:16</a>
@@ -23053,16 +14824,10 @@ b限看得不多，日常彩虹节目有趣度按着holo打没问题啊
 哈哈哈，确实 潜水那么久看出来了，其实我倒觉得2434 和 holo的b限都很虚无。 holo放在后台听听歌反而胜过一些虚无游戏呢<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 4223#       发表于 2019-4-22 14:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401774&amp;ptid=1823171" target="_blank">Igarashi 发表于 2019-4-22 14:18</a>
@@ -23071,16 +14836,10 @@ b限看得不多，日常彩虹节目有趣度按着holo打没问题啊
 谷乡很多时候确实挺蠢的，但不是弱智<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  soranoguiji  
 ##### 4224#       发表于 2019-4-22 14:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401805&amp;ptid=1823171" target="_blank">上坂蓮華黑 发表于 2019-4-22 14:19</a>
@@ -23089,26 +14848,15 @@ b限看得不多，日常彩虹节目有趣度按着holo打没问题啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 再怎么也不会比大福那个被观众远程操控逛彩虹村虚无吧
 
 
-
-
-
-
-
 -----
 
 ####  黑炎  
 ##### 4225#       发表于 2019-4-22 14:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401762&amp;ptid=1823171" target="_blank">爱护动物抓根宝 发表于 2019-4-22 14:17</a>
 可能领导真以为holo在加拿大美利坚两开花吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国际巨星湊阿夸
-
-
-
-
-
 
 
 -----
@@ -23117,16 +14865,9 @@ b限看得不多，日常彩虹节目有趣度按着holo打没问题啊
 ##### 4226#       发表于 2019-4-22 14:22
 
 
-
-
 有比holo更神坦的組織嗎
 
 虹社的坦力看起來連holo的一半都沒有
-
-
-
-
-
 
 
 -----
@@ -23135,16 +14876,10 @@ b限看得不多，日常彩虹节目有趣度按着holo打没问题啊
 ##### 4227#       发表于 2019-4-22 14:22
 
 
-
 [https://www.youtube.com/watch?v=9OuCiCJtAyk](https://www.youtube.com/watch?v=9OuCiCJtAyk)
 
 
 chima在唱歌
-
-
-
-
-
 
 
 -----
@@ -23153,16 +14888,10 @@ chima在唱歌
 ##### 4228#       发表于 2019-4-22 14:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401838&amp;ptid=1823171" target="_blank">soranoguiji 发表于 2019-4-22 14:21</a>
 
 再怎么也不会比大福那个被观众远程操控逛彩虹村虚无吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大福那次，人现场指路的观众大概觉得很充实吧
-
-
-
-
-
 
 
 -----
@@ -23171,14 +14900,7 @@ chima在唱歌
 ##### 4229#       发表于 2019-4-22 14:24
 
 
-
-
 远程操作主播不是能满足指示厨观众的需求么，一点都不虚无好不好<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23187,14 +14909,7 @@ chima在唱歌
 ##### 4230#       发表于 2019-4-22 14:24
 
 
-
-
 观众不仅看的开心，参与感还很强，这也叫虚无吗
-
-
-
-
-
 
 
 -----
@@ -23203,15 +14918,9 @@ chima在唱歌
 ##### 4231#       发表于 2019-4-22 14:24
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">等一波b小将爬墙战斗
 
 ：不想来就别来啊摆什么姿态b限卖萌转头去推特bb给钱少<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23220,23 +14929,15 @@ chima在唱歌
 ##### 4232#       发表于 2019-4-22 14:25
 
 
-
-
 其他不说，可能holo真以为推上没啥中国人，所以成员推上介绍都不写b站地址了
 
 只能说 傻 holo 傻 了
-
-
-
-
-
 
 
 -----
 
 ####  北条早苗  
 ##### 4233#       发表于 2019-4-22 14:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401851&amp;ptid=1823171" target="_blank">rita200123 发表于 2019-4-22 14:22</a>
@@ -23249,16 +14950,10 @@ chima在唱歌
 大概就这样吧
 
 
-
-
-
-
-
 -----
 
 ####  age45  
 ##### 4234#       发表于 2019-4-22 14:26
-
 
 
 <blockquote>北条早苗 发表于 2019-4-22 14:25
@@ -23268,32 +14963,19 @@ chima在唱歌
 ？不是在黑少主夏哥里面的人胖么
 
 
-
-
-
-
-
 -----
 
 ####  Godless  
 ##### 4235#       发表于 2019-4-22 14:27
 
 
-
-
 holo好像以前o站m台播是会写地址的
-
-
-
-
-
 
 
 -----
 
 ####  北条早苗  
 ##### 4236#       发表于 2019-4-22 14:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401893&amp;ptid=1823171" target="_blank">椎名mahuyo 发表于 2019-4-22 14:25</a>
@@ -23306,16 +14988,10 @@ holo好像以前o站m台播是会写地址的
 给能上管的人引流去b站，我觉得是真傻
 
 
-
-
-
-
-
 -----
 
 ####  rita200123  
 ##### 4237#       发表于 2019-4-22 14:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401895&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-22 14:25</a>
@@ -23326,33 +15002,19 @@ holo好像以前o站m台播是会写地址的
 在4chan upd8的坦力也蠻強
 
 
-
-
-
-
-
 -----
 
 ####  默逍  
 ##### 4238#       发表于 2019-4-22 14:27
 
 
-
-
 怪，完全不明白发这两条推有什么意义，总不能是真傻吧
-
-
-
-
-
 
 
 -----
 
 ####  tiro_finale  
 ##### 4239#       发表于 2019-4-22 14:27
-
-
 
 
 彩虹能上的人并不多吧，爱丽丝、阿叶、熊猫人
@@ -23363,25 +15025,13 @@ holo好像以前o站m台播是会写地址的
 本来想说拉不死人来唱唱歌的，但......
 
 
-
-
-
-
-
 -----
 
 ####  noHentai  
 ##### 4240#       发表于 2019-4-22 14:28
 
 
-
-
 怎么就一转holo vs 2434了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23390,13 +15040,7 @@ holo好像以前o站m台播是会写地址的
 ##### 4241#       发表于 2019-4-22 14:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 这事还是没吃过亏的关系啊，你看阿夸直播间被封过以后连SC的内容都不读了
-
-
-
-
-
 
 
 -----
@@ -23405,13 +15049,7 @@ holo好像以前o站m台播是会写地址的
 ##### 4242#       发表于 2019-4-22 14:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">应该是脑抽了吧，既然都说得出来油管支持她这种话，肯定是建立在有中国dd看得到基础上说出来的吧
-
-
-
-
-
 
 
 -----
@@ -23420,14 +15058,7 @@ holo好像以前o站m台播是会写地址的
 ##### 4243#       发表于 2019-4-22 14:29
 
 
-
-
 尊妈好啊，我早看那个搬运工不爽了
-
-
-
-
-
 
 
 -----
@@ -23436,16 +15067,10 @@ holo好像以前o站m台播是会写地址的
 ##### 4244#       发表于 2019-4-22 14:30
 
 
-
  本帖最后由 默逍 于 2019-4-22 14:32 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401942&amp;ptid=1823171" target="_blank">noHentai 发表于 2019-4-22 14:28</a>
 怎么就一转holo vs 2434了</blockquote>
 你翻翻4207楼的回复
-
-
-
-
-
 
 
 -----
@@ -23454,24 +15079,16 @@ holo好像以前o站m台播是会写地址的
 ##### 4245#       发表于 2019-4-22 14:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401924&amp;ptid=1823171" target="_blank">默逍 发表于 2019-4-22 14:27</a>
 
 怪，完全不明白发这两条推有什么意义，总不能是真傻吧</blockquote>
 按照holo箱推的理解，你确实可以认为fbk很想记住b站粉丝的名字<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 4246#       发表于 2019-4-22 14:32
-
-
 
 
 彩虹要进出第二批的话，阿叶就挺好的，游戏力足够，也会服务观众
@@ -23481,25 +15098,13 @@ holo好像以前o站m台播是会写地址的
 不管谁来都比三下强就是了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  sinfor  
 ##### 4247#       发表于 2019-4-22 14:33
 
 
-
-
 阿B再烂，你这holo想过河拆桥也是忒不地道
-
-
-
-
-
 
 
 -----
@@ -23508,21 +15113,13 @@ holo好像以前o站m台播是会写地址的
 ##### 4248#       发表于 2019-4-22 14:34
 
 
-
-
 得，以恨铁不成钢怕狐狸被你睿穿小鞋的态度说这事，都能被朋友打成anti也是服气。
-
-
-
-
-
 
 
 -----
 
 ####  椎名mahuyo  
 ##### 4249#       发表于 2019-4-22 14:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401922&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-22 14:27</a>
@@ -23533,24 +15130,13 @@ holo好像以前o站m台播是会写地址的
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">B限的视频，B限直播的时候总要有本土观众知道去哪里看吧，不然真成中国人特供了
 
 
-
-
-
-
-
 -----
 
 ####  激光2000  
 ##### 4250#       发表于 2019-4-22 14:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">可以把大家最喜欢的G2请过来当第二批啊，会玩的游戏多，还会造梗。
-
-
-
-
-
 
 
 -----
@@ -23559,14 +15145,7 @@ holo好像以前o站m台播是会写地址的
 ##### 4251#       发表于 2019-4-22 14:35
 
 
-
-
 在煽动彩虹 vs holo的，真的看彩虹和holo吗<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23575,14 +15154,7 @@ holo好像以前o站m台播是会写地址的
 ##### 4252#       发表于 2019-4-22 14:36
 
 
-
-
 主要是直接提到了分成问题，太容易起节奏了
-
-
-
-
-
 
 
 -----
@@ -23591,15 +15163,9 @@ holo好像以前o站m台播是会写地址的
 ##### 4253#       发表于 2019-4-22 14:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401970&amp;ptid=1823171" target="_blank">clanon 发表于 2019-4-22 14:30</a>
 按照holo箱推的理解，你确实可以认为fbk很想记住b站粉丝的名字</blockquote>
 这种怪话就不要说了吧，你也不傻我也不傻，没意思的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23608,16 +15174,10 @@ holo好像以前o站m台播是会写地址的
 ##### 4254#       发表于 2019-4-22 14:39
 
 
-
 [https://www.youtube.com/watch?v=9OuCiCJtAyk](https://www.youtube.com/watch?v=9OuCiCJtAyk)
 
 
 再发一遍好了，都去听chima唱歌吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23626,15 +15186,9 @@ holo好像以前o站m台播是会写地址的
 ##### 4255#       发表于 2019-4-22 14:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43402058&amp;ptid=1823171" target="_blank">默逍 发表于 2019-4-22 14:36</a>
 这种怪话就不要说了吧，你也不傻我也不傻，没意思的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟傻不傻没关系，看在哪，是什么氛围，隔壁就挺默契的
-
-
-
-
-
 
 
 -----
@@ -23643,14 +15197,7 @@ holo好像以前o站m台播是会写地址的
 ##### 4256#       发表于 2019-4-22 14:41
 
 
-
-
 反正这事情找不到理由是holo指使少主发的，就当少主背锅吧，holo也要骂就是了，放养管理，没教育好
-
-
-
-
-
 
 
 -----
@@ -23659,14 +15206,7 @@ holo好像以前o站m台播是会写地址的
 ##### 4257#       发表于 2019-4-22 14:41
 
 
-
-
 在听了在听了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23675,14 +15215,7 @@ holo好像以前o站m台播是会写地址的
 ##### 4258#       发表于 2019-4-22 14:42
 
 
-
-
 节奏带起来：如果不是睿国你个日本小狐狸能火？没有睿国你们holo还在V圈最底层呢！是睿国人就抵制日本小狐狸和holo!!<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23691,16 +15224,10 @@ holo好像以前o站m台播是会写地址的
 ##### 4259#       发表于 2019-4-22 14:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43402106&amp;ptid=1823171" target="_blank">黑炎 发表于 2019-4-22 14:40</a>
 跟傻不傻没关系，看在哪，是什么氛围，隔壁就挺默契的</blockquote>
 算了，理他是我不对<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 就事论事都做不到总有人想带节奏
-
-
-
-
-
 
 
 -----
@@ -23709,14 +15236,7 @@ holo好像以前o站m台播是会写地址的
 ##### 4260#       发表于 2019-4-22 14:43
 
 
-
-
 冲国人翻脸太快，太君接受不能啊
-
-
-
-
-
 
 
 -----
@@ -23725,14 +15245,7 @@ holo好像以前o站m台播是会写地址的
 ##### 4261#       发表于 2019-4-22 14:44
 
 
-
-
 少主b站也没多少打赏吧，和40w粉丝数没法比，案件倒是接了不少，干嘛要抱怨这个
-
-
-
-
-
 
 
 -----
@@ -23741,14 +15254,7 @@ holo好像以前o站m台播是会写地址的
 ##### 4262#       发表于 2019-4-22 14:50
 
 
-
-
 得罪了方丈还想跑，你睿可是很记仇的，看看直播最高档位的礼物是什么价还敢不敢让方丈记住你<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23757,15 +15263,9 @@ holo好像以前o站m台播是会写地址的
 ##### 4263#       发表于 2019-4-22 14:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43402181&amp;ptid=1823171" target="_blank">ScarletMoon 发表于 2019-4-22 14:44</a>
 少主b站也没多少打赏吧，和40w粉丝数没法比，案件倒是接了不少，干嘛要抱怨这个 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">B限基本都是恰饭，BML也就去了她一个
-
-
-
-
-
 
 
 -----
@@ -23774,16 +15274,10 @@ holo好像以前o站m台播是会写地址的
 ##### 4264#       发表于 2019-4-22 14:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43402145&amp;ptid=1823171" target="_blank">バーチャルS1er 发表于 2019-4-22 14:42</a>
 
 节奏带起来：如果不是睿国你个日本小狐狸能火？没有睿国你们holo还在V圈最底层呢！是睿国人就抵制日本小狐 ...</blockquote>
 没到那个地步，就算中国最火的狐狸和夸神，油管订阅里顶天了有2万中国粉吧，没中国狐狸这会也能银盾，其他人中国粉更少了
-
-
-
-
-
 
 
 -----
@@ -23792,15 +15286,9 @@ holo好像以前o站m台播是会写地址的
 ##### 4265#       发表于 2019-4-22 14:52
 
 
-
 <blockquote>ScarletMoon 发表于 2019-4-22 14:44
 少主b站也没多少打赏吧，和40w粉丝数没法比，案件倒是接了不少，干嘛要抱怨这个 ...</blockquote>
 不是老说股份狐吗？说不定人家狐狸收到谷乡小弟呈上来的上月收入后，眉头一皱，发现小票票被睿叔叔吃了一截，然后...<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23809,23 +15297,15 @@ holo好像以前o站m台播是会写地址的
 ##### 4266#       发表于 2019-4-22 14:57
 
 
-
-
 没实证的脑补还是别来了，现在节奏带得飞快，脑洞开着好玩然后一会就传成真相了
 
 holo没运营的谣言还历历在目呢
-
-
-
-
-
 
 
 -----
 
 ####  魔术师梅丽  
 ##### 4267#       发表于 2019-4-22 14:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43402145&amp;ptid=1823171" target="_blank">バーチャルS1er 发表于 2019-4-22 14:42</a>
@@ -23836,32 +15316,19 @@ holo没运营的谣言还历历在目呢
 抵制的东西反被抵制这节奏也是好吃
 
 
-
-
-
-
-
 -----
 
 ####  xiaoba329  
 ##### 4268#       发表于 2019-4-22 14:58
 
 
-
-
 估计就是实收的一道道手续砍下来的钱和当初统计的睿站打赏有差距，加上睿站抽成本来就高，忍不住用你日特有说话方式diss下睿站
-
-
-
-
-
 
 
 -----
 
 ####  バーチャルS1er  
 ##### 4269#       发表于 2019-4-22 15:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43402181&amp;ptid=1823171" target="_blank">ScarletMoon 发表于 2019-4-22 14:44</a>
@@ -23875,27 +15342,15 @@ B站规矩多，抽成高，而且说不定哪天就不准外国人直播了，
 就算被穿小鞋也有被迫害营业这条路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 4270#       发表于 2019-4-22 15:00
 
 
-
-
 ちま唱的这首ムシキング OP这么棒，troll什么troll，都来听啊
 
 钓鱼还是换个地方吧
-
-
-
-
-
 
 
 -----
@@ -23904,13 +15359,7 @@ B站规矩多，抽成高，而且说不定哪天就不准外国人直播了，
 ##### 4271#       发表于 2019-4-22 15:00
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">指望比比莉莉恰饭这事本来就不靠谱 还是海外带动本土的效果比较实际吧
-
-
-
-
-
 
 
 -----
@@ -23919,21 +15368,13 @@ B站规矩多，抽成高，而且说不定哪天就不准外国人直播了，
 ##### 4272#       发表于 2019-4-22 15:01
 
 
-
-
 想了想神乐mea就没谈过这些问题，然后突然醒悟人家是有愿望单的，果然还是holo罪大恶极不给开愿望单，像黄兔子那样前世挂一个也好啊
-
-
-
-
-
 
 
 -----
 
 ####  yanjunle  
 ##### 4273#       发表于 2019-4-22 15:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43402145&amp;ptid=1823171" target="_blank">バーチャルS1er 发表于 2019-4-22 14:42</a>
@@ -23946,16 +15387,10 @@ B站规矩多，抽成高，而且说不定哪天就不准外国人直播了，
 字幕组带头拱火的脚踏两只船热度也就这么回事。
 
 
-
-
-
-
-
 -----
 
 ####  aisakahammer  
 ##### 4274#       发表于 2019-4-22 15:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43402378&amp;ptid=1823171" target="_blank">yanjunle 发表于 2019-4-22 15:03</a>
@@ -23968,25 +15403,13 @@ B站规矩多，抽成高，而且说不定哪天就不准外国人直播了，
  乐意帮她扑火的人多？
 
 
-
-
-
-
-
 -----
 
 ####  Godless  
 ##### 4275#       发表于 2019-4-22 15:04
 
 
-
-
 小狐狸原文被人截图了，公众人物的确得思考下再说…
-
-
-
-
-
 
 
 -----
@@ -23995,20 +15418,13 @@ B站规矩多，抽成高，而且说不定哪天就不准外国人直播了，
 ##### 4276#       发表于 2019-4-22 15:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这事情都过去了别讨论了，要讨论也要讨论今天晚上夏色吹雪3D互动的时候为啥mio在B限。
-
-
-
-
-
 
 
 -----
 
 ####  Godless  
 ##### 4277#       发表于 2019-4-22 15:06
-
 
 
 <blockquote>椎名mahuyo 发表于 2019-4-22 15:04
@@ -24018,27 +15434,15 @@ B站规矩多，抽成高，而且说不定哪天就不准外国人直播了，
 白学营业超好用！
 
 
-
-
-
-
-
 -----
 
 ####  草蛉  
 ##### 4278#       发表于 2019-4-22 15:07
 
 
-
-
 世界名画
 
 《mio在b限》
-
-
-
-
-
 
 
 -----
@@ -24047,21 +15451,13 @@ B站规矩多，抽成高，而且说不定哪天就不准外国人直播了，
 ##### 4279#       发表于 2019-4-22 15:07
 
 
-
-
 这种话出来了一堆人立马截图扔qq群的，留底是肯定留了的
-
-
-
-
-
 
 
 -----
 
 ####  空派白  
 ##### 4280#       发表于 2019-4-22 15:10
-
 
 
  本帖最后由 空派白 于 2019-4-22 15:12 编辑 
@@ -24079,16 +15475,10 @@ B站规矩多，抽成高，而且说不定哪天就不准外国人直播了，
 一边听chima唱歌一边翻过于有乐子
 
 
-
-
-
-
-
 -----
 
 ####  xiaoba329  
 ##### 4281#       发表于 2019-4-22 15:11
-
 
 
 <blockquote>椎名mahuyo 发表于 2019-4-22 15:04
@@ -24122,27 +15512,15 @@ B站规矩多，抽成高，而且说不定哪天就不准外国人直播了，
 “大神三才在b限定。”画家答道。
 
 
-
-
-
-
-
 -----
 
 ####  tiro_finale  
 ##### 4282#       发表于 2019-4-22 15:12
 
 
-
-
 白学营业不存在的，上次mio在B站唱歌那个高兴劲，我就在油管从没见过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 法外之地念叨了无数遍，这次她带来的歌单估计是足够狂野了
-
-
-
-
-
 
 
 -----
@@ -24151,20 +15529,13 @@ B站规矩多，抽成高，而且说不定哪天就不准外国人直播了，
 ##### 4283#       发表于 2019-4-22 15:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好几天不看vtb结果被这事炸出来了，们hololive果然还是能给人带来快乐
-
-
-
-
-
 
 
 -----
 
 ####  暴走的包子  
 ##### 4284#       发表于 2019-4-22 15:16
-
 
 
  本帖最后由 暴走的包子 于 2019-4-22 15:19 编辑 
@@ -24179,26 +15550,15 @@ B站规矩多，抽成高，而且说不定哪天就不准外国人直播了，
 —— 來自 samsung SM-N9500, Android 7.1.1上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  桶口兼续  
 ##### 4285#       发表于 2019-4-22 15:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">少主写完了就不会读读吗？
 
 虽然是营业，但是整个推文写得都已经不能更阴阳怪气了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24207,22 +15567,13 @@ B站规矩多，抽成高，而且说不定哪天就不准外国人直播了，
 ##### 4286#       发表于 2019-4-22 15:19
 
 
-
-
 绿帽坛V版版务是不是脑子有问题...
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 4287#       发表于 2019-4-22 15:21
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/22/151907ke0eeqjpl0jp5gse.png" referrerpolicy="no-referrer">
@@ -24235,18 +15586,7 @@ B站规矩多，抽成高，而且说不定哪天就不准外国人直播了，
 2019-4-22 15:19 上传
 
 
-
-
-
-
 gibara的discord群主开始排除不明身份的人了…
-
-
-
-
-
-
-
 
 
 -----
@@ -24255,14 +15595,7 @@ gibara的discord群主开始排除不明身份的人了…
 ##### 4288#       发表于 2019-4-22 15:21
 
 
-
-
 夏哥也删那推了,这事情就这样了
-
-
-
-
-
 
 
 -----
@@ -24271,20 +15604,13 @@ gibara的discord群主开始排除不明身份的人了…
 ##### 4289#       发表于 2019-4-22 15:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 说到唱歌翻了下老干部前世的投稿发现她以前和mysk合唱过
-
-
-
-
-
 
 
 -----
 
 ####  theloved  
 ##### 4290#       发表于 2019-4-22 15:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401538&amp;ptid=1823171" target="_blank">tiro_finale 发表于 2019-4-22 14:03</a>
@@ -24294,16 +15620,10 @@ gibara的discord群主开始排除不明身份的人了…
 我男性vtb消息少，力也怎么了？
 
 
-
-
-
-
-
 -----
 
 ####  aisakahammer  
 ##### 4291#       发表于 2019-4-22 15:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43402667&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-22 15:21</a>
@@ -24312,16 +15632,10 @@ gibara的discord群主开始排除不明身份的人了…</blockquote>
  搞的这么核心化？好专业啊
 
 
-
-
-
-
-
 -----
 
 ####  Persona1  
 ##### 4292#       发表于 2019-4-22 15:23
-
 
 
  本帖最后由 Persona1 于 2019-4-22 15:25 编辑 
@@ -24337,13 +15651,9 @@ gibara的discord群主开始排除不明身份的人了…</blockquote>
 你家的阴阳人版主在屎黄色论坛带节奏失败被群众围观查成份，结果你只能做鸵鸟把头埋进沙子里，装作一副什么事都没发生过的样子酸老黄历的事转移视线的样子，真是太搞笑辣<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 11战斗力 +11
@@ -24363,12 +15673,7 @@ gibara的discord群主开始排除不明身份的人了…</blockquote>
 | dorasir| + 1|欢乐多|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -24377,16 +15682,10 @@ gibara的discord群主开始排除不明身份的人了…</blockquote>
 ##### 4293#       发表于 2019-4-22 15:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43402684&amp;ptid=1823171" target="_blank">theloved 发表于 2019-4-22 15:22</a>
 
 我男性vtb消息少，力也怎么了？</blockquote>
 力也在管上宣传敌台，收益化被收了
-
-
-
-
-
 
 
 -----
@@ -24395,16 +15694,10 @@ gibara的discord群主开始排除不明身份的人了…</blockquote>
 ##### 4294#       发表于 2019-4-22 15:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43402684&amp;ptid=1823171" target="_blank">theloved 发表于 2019-4-22 15:22</a>
 
 我男性vtb消息少，力也怎么了？</blockquote>
 之前说了油管不好，就被收回了收益化，只能用彩虹的官方频道收SC
-
-
-
-
-
 
 
 -----
@@ -24413,23 +15706,16 @@ gibara的discord群主开始排除不明身份的人了…</blockquote>
 ##### 4295#       发表于 2019-4-22 15:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43402690&amp;ptid=1823171" target="_blank">aisakahammer 发表于 2019-4-22 15:23</a>
 
 搞的这么核心化？好专业啊</blockquote>
 这个群做的还是很用心的  他应该发现里面有anti埋伏着…之前经常被截图消息到anti串 昨天他们把录像上传的事情也被anti发现了…
 
 
-
-
-
-
-
 -----
 
 ####  Godless  
 ##### 4296#       发表于 2019-4-22 15:26
-
 
 
 <blockquote>theloved 发表于 2019-4-22 15:22
@@ -24439,16 +15725,10 @@ gibara的discord群主开始排除不明身份的人了…</blockquote>
 收益化回收
 
 
-
-
-
-
-
 -----
 
 ####  秘封赛高！  
 ##### 4297#       发表于 2019-4-22 15:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43402684&amp;ptid=1823171" target="_blank">theloved 发表于 2019-04-22 15:22:35</a>
@@ -24457,16 +15737,10 @@ gibara的discord群主开始排除不明身份的人了…</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 4298#       发表于 2019-4-22 15:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43402667&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-22 15:21</a>
@@ -24477,16 +15751,10 @@ gibara的discord群主开始排除不明身份的人了…</blockquote>
 ギバラ这个群组我觉得是火药桶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aisakahammer  
 ##### 4299#       发表于 2019-4-22 15:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43402733&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-22 15:26</a>
@@ -24495,16 +15763,10 @@ gibara的discord群主开始排除不明身份的人了…</blockquote>
 就是之前猜测的有ANTI开了会员混进群，然后信息外流的猜测还是有道理的咯，有点意思。
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 4300#       发表于 2019-4-22 15:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43402740&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-22 15:27</a>
@@ -24515,16 +15777,10 @@ gibara的discord群主开始排除不明身份的人了…</blockquote>
 上次把关于黑人的问题发言拱给官方的也是他们…昨天把隐藏的辛辛鱼公开的也是他们…
 
 
-
-
-
-
-
 -----
 
 ####  mqmh  
 ##### 4301#       发表于 2019-4-22 15:31
-
 
 
 <blockquote>椎名mahuyo 发表于 2019-4-22 15:04
@@ -24534,26 +15790,15 @@ gibara的discord群主开始排除不明身份的人了…</blockquote>
 3D是明天 今晚可能不是
 
 
-
-
-
-
-
 -----
 
 ####  默逍  
 ##### 4302#       发表于 2019-4-22 15:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43402793&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-22 15:31</a>
 上次把关于黑人的问题发言拱给官方的也是他们…昨天把隐藏的辛辛鱼公开的也是他们… ...</blockquote>
 anti是抓不完的，感觉再这么玩下去迟早出大事
-
-
-
-
-
 
 
 -----
@@ -24562,16 +15807,10 @@ anti是抓不完的，感觉再这么玩下去迟早出大事
 ##### 4303#       发表于 2019-4-22 15:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43402796&amp;ptid=1823171" target="_blank">mqmh 发表于 2019-4-22 15:31</a>
 
 3D是明天 今晚可能不是</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看岔了，今天前夜祭
-
-
-
-
-
 
 
 -----
@@ -24580,14 +15819,7 @@ anti是抓不完的，感觉再这么玩下去迟早出大事
 ##### 4304#       发表于 2019-4-22 15:32
 
 
-
-
 感觉gibara这粉群歪一点就会变成浮游炮生产基地，当然作为有争议vliver粉丝想要安静的圈地自萌的想法完全不奇怪就是了
-
-
-
-
-
 
 
 -----
@@ -24596,21 +15828,13 @@ anti是抓不完的，感觉再这么玩下去迟早出大事
 ##### 4305#       发表于 2019-4-22 15:34
 
 
-
-
 草，Q群风云霓虹复刻版？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  バーチャルS1er  
 ##### 4306#       发表于 2019-4-22 15:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43402378&amp;ptid=1823171" target="_blank">yanjunle 发表于 2019-4-22 15:03</a>
@@ -24631,16 +15855,10 @@ anti是抓不完的，感觉再这么玩下去迟早出大事
 自己下场没有天时地利人和讨不了好
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 4307#       发表于 2019-4-22 15:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43402793&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-22 15:31</a>
@@ -24649,26 +15867,15 @@ anti是抓不完的，感觉再这么玩下去迟早出大事
 在串里看到辛辛鱼的存档的聊天截图了，这里都不知道潜伏了多少ガチアンチ吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alllonginus  
 ##### 4308#       发表于 2019-4-22 15:37
 
 
-
  本帖最后由 alllonginus 于 2019-4-22 23:29 编辑 
 
 脑补过度，编辑了
-
-
-
-
-
 
 
 -----
@@ -24677,16 +15884,10 @@ anti是抓不完的，感觉再这么玩下去迟早出大事
 ##### 4309#       发表于 2019-4-22 15:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43402684&amp;ptid=1823171" target="_blank">theloved 发表于 2019-4-22 15:22</a>
 
 我男性vtb消息少，力也怎么了？</blockquote>
 因为在油管直播奉承了一下M台被收回了油管的收益化<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24695,14 +15896,7 @@ anti是抓不完的，感觉再这么玩下去迟早出大事
 ##### 4310#       发表于 2019-4-22 15:41
 
 
-
-
 YuNi专辑发货了<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24711,15 +15905,9 @@ YuNi专辑发货了<img src="https://static.saraba1st.com/image/smiley/face2017/
 ##### 4311#       发表于 2019-4-22 15:42
 
 
-
 <blockquote>alllonginus 发表于 2019-4-22 15:37
 選民思想可还行.....我越来越怕江良这人了...</blockquote>
 关选民思想什么事？群主也说了是持ち出し問題…
-
-
-
-
-
 
 
 -----
@@ -24728,21 +15916,13 @@ YuNi专辑发货了<img src="https://static.saraba1st.com/image/smiley/face2017/
 ##### 4312#       发表于 2019-4-22 15:42
 
 
-
-
 顺便叶师又开始自走棋了
-
-
-
-
-
 
 
 -----
 
 ####  空派白  
 ##### 4313#       发表于 2019-4-22 15:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43402701&amp;ptid=1823171" target="_blank">Persona1 发表于 2019-4-22 15:23</a>
@@ -24761,22 +15941,14 @@ YuNi专辑发货了<img src="https://static.saraba1st.com/image/smiley/face2017/
 2019-4-22 15:41 上传
 
 
-
-
-
-
 我说的就是那个帖子啊
 
 你们天狗查人成分攻击楼主结果是版务组统一意见发帖导致一串红名的样子真是太靓仔辣<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -24786,12 +15958,7 @@ YuNi专辑发货了<img src="https://static.saraba1st.com/image/smiley/face2017/
 | lancasterliang| + 2|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -24800,16 +15967,9 @@ YuNi专辑发货了<img src="https://static.saraba1st.com/image/smiley/face2017/
 ##### 4314#       发表于 2019-4-22 15:44
 
 
-
-
 绿帽坛外来种打架能不能换个地方<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 看不懂帖子标题吗，没人关心你们的过家家政治
-
-
-
-
-
 
 
 -----
@@ -24818,15 +15978,9 @@ YuNi专辑发货了<img src="https://static.saraba1st.com/image/smiley/face2017/
 ##### 4315#       发表于 2019-4-22 15:46
 
 
-
  本帖最后由 SNOWIMEA 于 2019-4-22 15:53 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24835,21 +15989,13 @@ YuNi专辑发货了<img src="https://static.saraba1st.com/image/smiley/face2017/
 ##### 4316#       发表于 2019-4-22 15:48
 
 
-
-
 能不能别在这里倒隔壁的屎啊，隔壁还不够你做阴阳人么
-
-
-
-
-
 
 
 -----
 
 ####  yexuning  
 ##### 4317#       发表于 2019-4-22 15:48
-
 
 
  本帖最后由 yexuning 于 2019-4-22 15:51 编辑 
@@ -24860,24 +16006,13 @@ YuNi专辑发货了<img src="https://static.saraba1st.com/image/smiley/face2017/
 是不是那个修女就是修女的楼主啊，我记得你，挺好笑的，不过外来种滚就是了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  非洲亚马逊鼓手  
 ##### 4318#       发表于 2019-4-22 15:51
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">天狗就不能好好在天狗楼呆着吗
-
-
-
-
-
 
 
 -----
@@ -24886,16 +16021,10 @@ YuNi专辑发货了<img src="https://static.saraba1st.com/image/smiley/face2017/
 ##### 4319#       发表于 2019-4-22 15:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43403069&amp;ptid=1823171" target="_blank">yexuning 发表于 2019-4-22 15:48</a>
 
 是不是那个修女就是修女的楼主啊，我记得你，挺好笑的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">Y开头的老哥，你来了
-
-
-
-
-
 
 
 -----
@@ -24904,15 +16033,9 @@ YuNi专辑发货了<img src="https://static.saraba1st.com/image/smiley/face2017/
 ##### 4320#       发表于 2019-4-22 15:52
 
 
-
 <blockquote>非洲亚马逊鼓手 发表于 2019-4-22 15:51
 天狗就不能好好在天狗楼呆着吗</blockquote>
 不是有troll打滚嘛，就不要怪别人了好不
-
-
-
-
-
 
 
 -----
@@ -24921,21 +16044,13 @@ YuNi专辑发货了<img src="https://static.saraba1st.com/image/smiley/face2017/
 ##### 4321#       发表于 2019-4-22 15:52
 
 
-
-
 mea粉必须在mea楼呆着，但mea黑可以来这里黑屁
-
-
-
-
-
 
 
 -----
 
 ####  六六同学  
 ##### 4322#       发表于 2019-4-22 15:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43402975&amp;ptid=1823171" target="_blank">空派白 发表于 2019-4-22 15:43</a>
@@ -24945,16 +16060,10 @@ mea粉必须在mea楼呆着，但mea黑可以来这里黑屁
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能滚回nga倒屎啊
 
 
-
-
-
-
-
 -----
 
 ####  despotnanoha  
 ##### 4323#       发表于 2019-4-22 15:56
-
 
 
  本帖最后由 despotnanoha 于 2019-4-22 15:57 编辑 
@@ -24966,24 +16075,13 @@ mea粉必须在mea楼呆着，但mea黑可以来这里黑屁
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">哟，死马货又来了啊，引用一下某位云老哥的话啊，既然有什么样的VTB就有什么样的粉，那反过来，是不是意味着，有你这种不要马的铁孤儿粉，就意味着有什么样的VTB啊
 
 
-
-
-
-
-
 -----
 
 ####  ヒトニナル  
 ##### 4324#       发表于 2019-4-22 15:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又到了我第五喜欢的观众掐架时刻
-
-
-
-
-
 
 
 -----
@@ -24992,14 +16090,7 @@ mea粉必须在mea楼呆着，但mea黑可以来这里黑屁
 ##### 4325#       发表于 2019-4-22 15:58
 
 
-
-
 有够无聊的，nga打不成别来这里打好不好<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25008,20 +16099,15 @@ mea粉必须在mea楼呆着，但mea黑可以来这里黑屁
 ##### 4326#       发表于 2019-4-22 15:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43403175&amp;ptid=1823171" target="_blank">despotnanoha 发表于 2019-4-22 15:56</a>
 
 哟，死马货又来了啊，引用一下某位云老哥的话啊，既然有什么样的VTB就有什么样的粉，那反过来，是 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不知道你粉的vtb嘴和你一样也是满嘴喷粪啊
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 3战斗力 +4
@@ -25033,12 +16119,7 @@ mea粉必须在mea楼呆着，但mea黑可以来这里黑屁
 | 离魂仙| + 1|是真的，撕响些|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -25047,20 +16128,13 @@ mea粉必须在mea楼呆着，但mea黑可以来这里黑屁
 ##### 4327#       发表于 2019-4-22 15:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这老哥带节奏真不是盖的，说话之后一击脱离，论坛关闭，谁管你回复了啥。
-
-
-
-
-
 
 
 -----
 
 ####  Persona1  
 ##### 4328#       发表于 2019-4-22 16:00
-
 
 
 <blockquote>バーチャルS1er 发表于 2019-4-22 15:34
@@ -25073,16 +16147,10 @@ mea粉必须在mea楼呆着，但mea黑可以来这里黑屁
 当然holo还是傻逼，会去油管的早去了，不去的你再怎么说也不会去的。
 
 
-
-
-
-
-
 -----
 
 ####  alllonginus  
 ##### 4329#       发表于 2019-4-22 16:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43402972&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-22 15:42</a>
@@ -25093,24 +16161,13 @@ mea粉必须在mea楼呆着，但mea黑可以来这里黑屁
 可能是我想太多
 
 
-
-
-
-
-
 -----
 
 ####  上坂蓮華黑  
 ##### 4330#       发表于 2019-4-22 16:00
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">本来就是阴阳人提出来的理论，理他们干什么。有些傻逼想要转进的先撒泡尿照照镜子
-
-
-
-
-
 
 
 -----
@@ -25119,14 +16176,7 @@ mea粉必须在mea楼呆着，但mea黑可以来这里黑屁
 ##### 4331#       发表于 2019-4-22 16:00
 
 
-
-
 nga来的要打要么滚回自己家去要么去隔壁楼说mea，来V4污染你妈的环境呢？
-
-
-
-
-
 
 
 -----
@@ -25135,15 +16185,9 @@ nga来的要打要么滚回自己家去要么去隔壁楼说mea，来V4污染你
 ##### 4332#       发表于 2019-4-22 16:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43403114&amp;ptid=1823171" target="_blank">非洲亚马逊鼓手 发表于 2019-4-22 15:51</a>
 天狗就不能好好在天狗楼呆着吗</blockquote>
 我也很想请那位巨魔去天狗楼pvp啊，奈何他非要来这边钓鱼
-
-
-
-
-
 
 
 -----
@@ -25152,14 +16196,8 @@ nga来的要打要么滚回自己家去要么去隔壁楼说mea，来V4污染你
 ##### 4333#       发表于 2019-4-22 16:01
 
 
-
 <blockquote>综合楼一直是信息密度较高的vtuber讨论区，希望V4专楼能够延续关注vtuber活动本身、以事实为依据、就事论事的讨论氛围。对于污染环境的行为，尽量少搭理，若违反版规可适当举报，或是活用黑名单功能此功能在好友设置里</blockquote>
 防止不了掐架的  活用黑名单功能吧<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25168,14 +16206,7 @@ nga来的要打要么滚回自己家去要么去隔壁楼说mea，来V4污染你
 ##### 4334#       发表于 2019-4-22 16:01
 
 
-
-
 一水的19年新用户，nga呆的不爽全跑来了，加油加油
-
-
-
-
-
 
 
 -----
@@ -25184,13 +16215,7 @@ nga来的要打要么滚回自己家去要么去隔壁楼说mea，来V4污染你
 ##### 4335#       发表于 2019-4-22 16:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">nga来的又不敢去隔壁楼，自然只能来v4污染环境了
-
-
-
-
-
 
 
 -----
@@ -25199,22 +16224,13 @@ nga来的要打要么滚回自己家去要么去隔壁楼说mea，来V4污染你
 ##### 4336#       发表于 2019-4-22 16:01
 
 
-
-
 绿帽坛这个凡事都要装绅士走流程假正经，真的是憋坏了不少小将，讲真，贵绿帽坛真的应该开一个匿名逃杀楼，愿意怎么黑屁就怎么黑屁，毕竟是令坛的传统艺能不是？看看当年的蝈蝈匿名黑屁骂战 [https://bbs.nga.cn/read.php?tid=13865205](https://bbs.nga.cn/read.php?tid=13865205)，就令坛的这幅德行，怎么还好意思喷S1的？
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 4337#       发表于 2019-4-22 16:03
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/22/160240k9npvv7e1xfynm1e.png" referrerpolicy="no-referrer">
@@ -25227,17 +16243,7 @@ nga来的要打要么滚回自己家去要么去隔壁楼说mea，来V4污染你
 2019-4-22 16:02 上传
 
 
-
-
-
-
-
 第一次看到somunia的广告<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25246,14 +16252,7 @@ nga来的要打要么滚回自己家去要么去隔壁楼说mea，来V4污染你
 ##### 4338#       发表于 2019-4-22 16:03
 
 
-
-
 就一唱一和呗，黑屁的一击脱离了，过来骂人的找到话头了，大家都爽了，你们继续，真有意思<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25262,14 +16261,7 @@ nga来的要打要么滚回自己家去要么去隔壁楼说mea，来V4污染你
 ##### 4339#       发表于 2019-4-22 16:03
 
 
-
-
 明明是在说狐狸却唐突转移火力了……少主自有天佑?
-
-
-
-
-
 
 
 -----
@@ -25278,15 +16270,9 @@ nga来的要打要么滚回自己家去要么去隔壁楼说mea，来V4污染你
 ##### 4340#       发表于 2019-4-22 16:03
 
 
-
 <blockquote>alllonginus 发表于 2019-4-22 16:00
 之前以为江良对自己的粉丝群体有约束能力，像叶队凛fam一样，现在看来好像没有，非常随性，有点担心内部 ...</blockquote>
 那需要长时间的，现在的时间太短了
-
-
-
-
-
 
 
 -----
@@ -25295,14 +16281,7 @@ nga来的要打要么滚回自己家去要么去隔壁楼说mea，来V4污染你
 ##### 4341#       发表于 2019-4-22 16:04
 
 
-
-
 停止输出，比5CH的自演乙还要虚无。继续聊推特和era话题吧，我挺想吃瓜的
-
-
-
-
-
 
 
 -----
@@ -25311,15 +16290,9 @@ nga来的要打要么滚回自己家去要么去隔壁楼说mea，来V4污染你
 ##### 4342#       发表于 2019-4-22 16:06
 
 
-
 [https://twitter.com/AonoYuuki_/status/1120151336119459840](https://twitter.com/AonoYuuki_/status/1120151336119459840)
 
 GF的这只晚上要直播了
-
-
-
-
-
 
 
 -----
@@ -25328,15 +16301,9 @@ GF的这只晚上要直播了
 ##### 4343#       发表于 2019-4-22 16:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43403306&amp;ptid=1823171" target="_blank">proxima 发表于 2019-4-22 16:03</a>
 明明是在说狐狸却唐突转移火力了……少主自有天佑?</blockquote>
 该说的都说完了啊，再说下去又要说到隔壁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25345,16 +16312,10 @@ GF的这只晚上要直播了
 ##### 4344#       发表于 2019-4-22 16:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43403306&amp;ptid=1823171" target="_blank">proxima 发表于 2019-4-22 16:03</a>
 
 明明是在说狐狸却唐突转移火力了……少主自有天佑?</blockquote>
 虚无体质导致以她为话头的战争都会化为虚无吧
-
-
-
-
-
 
 
 -----
@@ -25363,14 +16324,7 @@ GF的这只晚上要直播了
 ##### 4345#       发表于 2019-4-22 16:09
 
 
-
-
 这事又没啥，提了一嘴还删推了，又不是和陈叔叔正面刚人。知道这事的估计都没那么多
-
-
-
-
-
 
 
 -----
@@ -25379,16 +16333,9 @@ GF的这只晚上要直播了
 ##### 4346#       发表于 2019-4-22 16:11
 
 
-
-
 唉，你们绿帽坛的真的烦，要吵自己私信吵架去<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 我之前写的少搭理主要指Y开头的喜欢搬运黑屁的类型，路过直接当竞技场的还是驱离比较有效
-
-
-
-
-
 
 
 -----
@@ -25397,14 +16344,7 @@ GF的这只晚上要直播了
 ##### 4347#       发表于 2019-4-22 16:12
 
 
-
-
 话说era最开始到底是干了啥吸引到黑子的，这帮黑子也是挺有毅力的每个直播都要进来点踩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25413,16 +16353,10 @@ GF的这只晚上要直播了
 ##### 4348#       发表于 2019-4-22 16:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43403465&amp;ptid=1823171" target="_blank">小泉花陽 发表于 2019-4-22 16:12</a>
 
 话说era最开始到底是干了啥吸引到黑子的，这帮黑子也是挺有毅力的每个直播都要进来点踩 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真烧起来是跟爱丽丝跟小红帽联动那会吧，印象里那会激进兔子跳到飞起
-
-
-
-
-
 
 
 -----
@@ -25431,23 +16365,16 @@ GF的这只晚上要直播了
 ##### 4349#       发表于 2019-4-22 16:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43403465&amp;ptid=1823171" target="_blank">小泉花陽 发表于 2019-4-22 16:12</a>
 
 话说era最开始到底是干了啥吸引到黑子的，这帮黑子也是挺有毅力的每个直播都要进来点踩 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">RP信 激 怒
 
 
-
-
-
-
-
 -----
 
 ####  冰寒之月  
 ##### 4350#       发表于 2019-4-22 16:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43403306&amp;ptid=1823171" target="_blank">proxima 发表于 2019-4-22 16:03</a>
@@ -25458,16 +16385,10 @@ GF的这只晚上要直播了
 难怪之前本来是对露易丝的定型文突然大流行
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 4351#       发表于 2019-4-22 16:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43403465&amp;ptid=1823171" target="_blank">小泉花陽 发表于 2019-4-22 16:12</a>
@@ -25480,26 +16401,15 @@ GF的这只晚上要直播了
 争议多，烧起来还有效的玩具自然能吸引anti
 
 
-
-
-
-
-
 -----
 
 ####  Persona1  
 ##### 4352#       发表于 2019-4-22 16:21
 
 
-
 <blockquote>despotnanoha 发表于 2019-4-22 16:15
 真烧起来是跟爱丽丝跟小红帽联动那会吧，印象里那会激进兔子跳到飞起 ...</blockquote>
 其实她干了啥？有人能列个表吗？我沉思月初流行数虐的时候就有人列了个表整理了菜菜姐的几个神奇操作，难不成这位比数虐还要复杂？
-
-
-
-
-
 
 
 -----
@@ -25508,15 +16418,9 @@ GF的这只晚上要直播了
 ##### 4353#       发表于 2019-4-22 16:27
 
 
-
 <blockquote>Persona1 发表于 2019-4-22 16:21
 其实她干了啥？有人能列个表吗？我沉思月初流行数虐的时候就有人列了个表整理了菜菜姐的几个神奇操作，难 ...</blockquote>
 菜菜姐的操作虽然有点迷，但是没怎么惹到其他的信者（贝叔算一次），江哥的几波操作都让其他的信者不开心。
-
-
-
-
-
 
 
 -----
@@ -25525,13 +16429,7 @@ GF的这只晚上要直播了
 ##### 4354#       发表于 2019-4-22 16:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">听说葛叶痴迷自走棋，把dotaplus开了
-
-
-
-
-
 
 
 -----
@@ -25540,21 +16438,13 @@ GF的这只晚上要直播了
 ##### 4355#       发表于 2019-4-22 16:28
 
 
-
-
 狐狸五十万粉要搞一次纪念放送，终于有第二次非发电回了
-
-
-
-
-
 
 
 -----
 
 ####  potwater  
 ##### 4356#       发表于 2019-4-22 16:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43403465&amp;ptid=1823171" target="_blank">小泉花陽 发表于 2019-4-22 16:12</a>
@@ -25567,25 +16457,13 @@ mixup表现不佳→童话组联动暴走→深夜gta配信
 早在首播前深夜推特迷言到首播立下年内十万订阅目标时已经被一堆人盯上了。
 
 
-
-
-
-
-
 -----
 
 ####  星の旅人  
 ##### 4357#       发表于 2019-4-22 16:29
 
 
-
-
 感觉狐狸有点慌
-
-
-
-
-
 
 
 -----
@@ -25594,14 +16472,7 @@ mixup表现不佳→童话组联动暴走→深夜gta配信
 ##### 4358#       发表于 2019-4-22 16:31
 
 
-
-
 小狐狸是不是慌的不行。。。
-
-
-
-
-
 
 
 -----
@@ -25610,21 +16481,13 @@ mixup表现不佳→童话组联动暴走→深夜gta配信
 ##### 4359#       发表于 2019-4-22 16:33
 
 
-
-
 她银盾纪念还是画森，不要抱太大期望比较好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Arirs  
 ##### 4360#       发表于 2019-4-22 16:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43403567&amp;ptid=1823171" target="_blank">冰寒之月 发表于 2019-4-22 16:18</a>
@@ -25635,26 +16498,15 @@ mixup表现不佳→童话组联动暴走→深夜gta配信
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  露·露卡  
 ##### 4361#       发表于 2019-4-22 16:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43403657&amp;ptid=1823171" target="_blank">SchwarzeKatze 发表于 2019-4-22 16:28</a>
 听说葛叶痴迷自走棋，把dotaplus开了</blockquote>
 他是先开的plus 后沉迷的自走棋<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25663,23 +16515,16 @@ mixup表现不佳→童话组联动暴走→深夜gta配信
 ##### 4362#       发表于 2019-4-22 16:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43403735&amp;ptid=1823171" target="_blank">露·露卡 发表于 2019-4-22 16:34</a>
 
 他是先开的plus 后沉迷的自走棋</blockquote>
 啥？葛叶打dota2的？之前没听说啊
 
 
-
-
-
-
-
 -----
 
 ####  小泉花陽  
 ##### 4363#       发表于 2019-4-22 16:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43403576&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-22 16:19</a>
@@ -25690,24 +16535,13 @@ mixup表现不佳→童话组联动暴走→深夜gta配信
 我就是从童话组联动那段时间入坑的，前面的没咋关注，因此说来说去就是这点屁事才导致的招黑咯？我还以为前期还做过啥出格的事才导致被黑子盯上的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  SNOWIMEA  
 ##### 4364#       发表于 2019-4-22 16:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">突然感谢47W，僵硬的不行，应该真的有点慌
-
-
-
-
-
 
 
 -----
@@ -25716,15 +16550,9 @@ mixup表现不佳→童话组联动暴走→深夜gta配信
 ##### 4365#       发表于 2019-4-22 16:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43403786&amp;ptid=1823171" target="_blank">SchwarzeKatze 发表于 2019-4-22 16:37</a>
 啥？葛叶打dota2的？之前没听说啊</blockquote>
 估计以为开plus对玩自走棋也有好处就开了吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 一开始看他自走棋的时候plus就开了
-
-
-
-
-
 
 
 -----
@@ -25733,16 +16561,10 @@ mixup表现不佳→童话组联动暴走→深夜gta配信
 ##### 4366#       发表于 2019-4-22 16:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43403820&amp;ptid=1823171" target="_blank">露·露卡 发表于 2019-4-22 16:39</a>
 
 估计以为开plus对玩自走棋也有好处就开了吧 一开始看他自走棋的时候plus就开了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好吧，看样子这事我理解的没什么问题
-
-
-
-
-
 
 
 -----
@@ -25751,15 +16573,9 @@ mixup表现不佳→童话组联动暴走→深夜gta配信
 ##### 4367#       发表于 2019-4-22 16:42
 
 
-
 [https://twitter.com/ookamimio/status/1120242589343436802](https://twitter.com/ookamimio/status/1120242589343436802)
 
 这个自由就很灵性了
-
-
-
-
-
 
 
 -----
@@ -25768,22 +16584,14 @@ mixup表现不佳→童话组联动暴走→深夜gta配信
 ##### 4368#       发表于 2019-4-22 16:42
 
 
-
-
 前几天这楼奶了一口小野早稀，好像还真给奶下场了……
 
 
 几点证据：生日跟小野一样设定的11.26；推特最早互fo的是小野；有なのだ的口癖；说到底小野一直在转推宣传<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
 Screenshot_2019-04-22-16-29-08-834_com.twitter.android.png
 (299.64 KB, 下载次数: 45)
-
-
 
 
 下载附件
@@ -25792,32 +16600,13 @@ Screenshot_2019-04-22-16-29-08-834_com.twitter.android.png
 2019-4-22 16:35 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/22/163513wzefgnhxc29e4nys.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  ScarletMoon  
 ##### 4369#       发表于 2019-4-22 16:43
-
-
 
 
 1.初配信前一天深夜发了一条“10000人舐めてた”的意义不明的推特（当时推特9xxx？迅速删掉了，现在想来这是最初的撕皮）
@@ -25835,17 +16624,10 @@ Screenshot_2019-04-22-16-29-08-834_com.twitter.android.png
 接下来就是抄作业的开始
 
 
-
-
-
-
-
 -----
 
 ####  tiro_finale  
 ##### 4370#       发表于 2019-4-22 16:43
-
-
 
 
 狐狸是最近嗨过头了没带脑子，事后冷静下来慌也很正常
@@ -25853,16 +16635,10 @@ Screenshot_2019-04-22-16-29-08-834_com.twitter.android.png
 希望这份紧张感能让她给五十万纪念好好做做企划
 
 
-
-
-
-
-
 -----
 
 ####  默逍  
 ##### 4371#       发表于 2019-4-22 16:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43403787&amp;ptid=1823171" target="_blank">小泉花陽 发表于 2019-4-22 16:37</a>
@@ -25873,16 +16649,10 @@ Screenshot_2019-04-22-16-29-08-834_com.twitter.android.png
 <img src="https://i.loli.net/2019/04/22/5cbd7ede5ee48.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 4372#       发表于 2019-4-22 16:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43403918&amp;ptid=1823171" target="_blank">tiro_finale 发表于 2019-4-22 16:43</a>
@@ -25893,25 +16663,13 @@ Screenshot_2019-04-22-16-29-08-834_com.twitter.android.png
 我去查了一下她四月的直播，除了联动和工商，就是看蘑菇，看仙狐，波若心经MC和动物吃鸡，突击了两次唱歌，确实挺放飞自我的
 
 
-
-
-
-
-
 -----
 
 ####  noHentai  
 ##### 4373#       发表于 2019-4-22 16:49
 
 
-
-
 不行了，这慌得一笔的操作看着好想笑啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25920,20 +16678,13 @@ Screenshot_2019-04-22-16-29-08-834_com.twitter.android.png
 ##### 4374#       发表于 2019-4-22 16:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">狐狸最近肯定是有点上头了。对比一下MIO，这一波宣传B限就很有精神了
-
-
-
-
-
 
 
 -----
 
 ####  lhawp  
 ##### 4375#       发表于 2019-4-22 16:50
-
 
 
  本帖最后由 lhawp 于 2019-4-22 16:55 编辑 
@@ -25944,25 +16695,13 @@ Gibara原本我还是喜欢的，她播节奏天国的节目效果真的好
 虽说并不想anti她本人也没点过低评价，但最近围绕她的这堆事确实消减了自己点开她直播间的意愿，vtb不是应该带来快乐的吗.jpg
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 4376#       发表于 2019-4-22 16:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 所以马自立变化球最强么
-
-
-
-
-
-
 
 
 -----
@@ -25971,13 +16710,7 @@ Gibara原本我还是喜欢的，她播节奏天国的节目效果真的好
 ##### 4377#       发表于 2019-4-22 16:51
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 狐狸感觉该反过来和老干部学一些东西了，老干部养人和拉箱两不误，而且对敏感点把握很准，上次放3d卫星她一看苗头不对立马开突击解释加道歉
-
-
-
-
-
 
 
 -----
@@ -25986,14 +16719,7 @@ Gibara原本我还是喜欢的，她播节奏天国的节目效果真的好
 ##### 4378#       发表于 2019-4-22 16:51
 
 
-
-
 狐狸这是给B站看的吧……
-
-
-
-
-
 
 
 -----
@@ -26002,22 +16728,13 @@ Gibara原本我还是喜欢的，她播节奏天国的节目效果真的好
 ##### 4379#       发表于 2019-4-22 16:52
 
 
-
-
 狐狸最近是非常放飞自我 尤其那次假酒歌回 
-
-
-
-
-
 
 
 -----
 
 ####  午前二时野猫  
 ##### 4380#       发表于 2019-4-22 16:52
-
-
 
 
 2g这现状显而易见就是箱内信者战争，anti没有那么大能量的，当然带节奏是少不了。
@@ -26027,16 +16744,10 @@ Gibara原本我还是喜欢的，她播节奏天国的节目效果真的好
 大概在箱里显得过于异类也是被集火的原因之一吧。
 
 
-
-
-
-
-
 -----
 
 ####  Persona1  
 ##### 4381#       发表于 2019-4-22 16:53
-
 
 
 <blockquote>proxima 发表于 2019-4-22 16:42
@@ -26049,25 +16760,13 @@ Gibara原本我还是喜欢的，她播节奏天国的节目效果真的好
 不过小野这个声优牌面貌似可以奶一口四天王模版？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  free  
 ##### 4382#       发表于 2019-4-22 16:53
 
 
-
-
 狐狸就是简单粗暴卖萌吸引了大量的达利特，但是她自己真正的兴趣又太婆罗门了，不可兼得......
-
-
-
-
-
 
 
 -----
@@ -26076,20 +16775,13 @@ Gibara原本我还是喜欢的，她播节奏天国的节目效果真的好
 ##### 4383#       发表于 2019-4-22 16:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">夸哥突然登录b播发了张五等分的P图
-
-
-
-
-
 
 
 -----
 
 ####  逆羽结业  
 ##### 4384#       发表于 2019-4-22 16:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43403903&amp;ptid=1823171" target="_blank">proxima 发表于 2019-4-22 16:42</a>
@@ -26102,16 +16794,10 @@ Gibara原本我还是喜欢的，她播节奏天国的节目效果真的好
 —— 来自 Meizu MX5, Android 5.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  tiro_finale  
 ##### 4385#       发表于 2019-4-22 16:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404049&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-22 00:50</a>
@@ -26123,16 +16809,10 @@ Gibara原本我还是喜欢的，她播节奏天国的节目效果真的好
 还是整天开家庭会议三省吾身的mio最强
 
 
-
-
-
-
-
 -----
 
 ####  暴走的包子  
 ##### 4386#       发表于 2019-4-22 16:56
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夏哥那个推本身很难带节奏的，小狐狸加了句就妥妥的带起来了
@@ -26140,16 +16820,10 @@ Gibara原本我还是喜欢的，她播节奏天国的节目效果真的好
 —— 來自 samsung SM-N9500, Android 7.1.1上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 4387#       发表于 2019-4-22 16:58
-
 
 
  本帖最后由 いつかの自分 于 2019-4-22 17:02 编辑 
@@ -26170,27 +16844,13 @@ Gibara原本我还是喜欢的，她播节奏天国的节目效果真的好
  然后获得了乞食メラ的称号..
 
 
-
-
-
-
-
-
-
 -----
 
 ####  zhicai618  
 ##### 4388#       发表于 2019-4-22 17:00
 
 
-
-
 最近战斗吧歌姬是不是开始动的频繁了。。？
-
-
-
-
-
 
 
 -----
@@ -26199,20 +16859,13 @@ Gibara原本我还是喜欢的，她播节奏天国的节目效果真的好
 ##### 4389#       发表于 2019-4-22 17:02
 
 
-
  本帖最后由 yexuning 于 2019-4-22 17:09 编辑 
 
 这是反串，我的锅
 
 
-
-
-
-
 171397401.jpg
 (11.78 KB, 下载次数: 4)
-
-
 
 
 下载附件
@@ -26221,28 +16874,12 @@ Gibara原本我还是喜欢的，她播节奏天国的节目效果真的好
 2019-4-22 17:04 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/22/170415y5deuxziryg5ky0r.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -26252,19 +16889,13 @@ Gibara原本我还是喜欢的，她播节奏天国的节目效果真的好
 | いつかの自分| + 1|看不出来是反串？|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  proxima  
 ##### 4390#       发表于 2019-4-22 17:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404122&amp;ptid=1823171" target="_blank">逆羽结业 发表于 2019-4-22 16:55</a>
@@ -26276,16 +16907,10 @@ Gibara原本我还是喜欢的，她播节奏天国的节目效果真的好
 高中同学是前一个女儿，这个是新生的
 
 
-
-
-
-
-
 -----
 
 ####  zhicai618  
 ##### 4391#       发表于 2019-4-22 17:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404232&amp;ptid=1823171" target="_blank">yexuning 发表于 2019-4-22 17:02</a>
@@ -26293,16 +16918,10 @@ Gibara原本我还是喜欢的，她播节奏天国的节目效果真的好
 那就不说。这是s1
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 4392#       发表于 2019-4-22 17:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404125&amp;ptid=1823171" target="_blank">tiro_finale 发表于 2019-4-22 16:55</a>
@@ -26314,17 +16933,10 @@ mio最强没问题<img src="https://static.saraba1st.com/image/smiley/face2017/0
 本来插队出道这么争议的身份，现在已经是很自然的少主辅佐位置了，平时编黑屁也编不到她头上
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 4393#       发表于 2019-4-22 17:04
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/22/170401cgssauanjdqqgn3v.png" referrerpolicy="no-referrer">
@@ -26337,24 +16949,13 @@ mio最强没问题<img src="https://static.saraba1st.com/image/smiley/face2017/0
 2019-4-22 17:04 上传
 
 
-
-
-
-
-
 这才是真正的gamers阿...
-
-
-
-
-
 
 
 -----
 
 ####  cxj649  
 ##### 4394#       发表于 2019-4-22 17:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404094&amp;ptid=1823171" target="_blank">Persona1 发表于 2019-4-22 16:53</a>
@@ -26365,24 +16966,13 @@ mio最强没问题<img src="https://static.saraba1st.com/image/smiley/face2017/0
 这种牌面就是YUA模版
 
 
-
-
-
-
-
 -----
 
 ####  despotnanoha  
 ##### 4395#       发表于 2019-4-22 17:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">给你们吃个大瓜，阿B的后台源码被扔到GIT上了，想从人气那倒推同接数的，可以开始动手去看了，年度笑话
-
-
-
-
-
 
 
 -----
@@ -26391,16 +16981,10 @@ mio最强没问题<img src="https://static.saraba1st.com/image/smiley/face2017/0
 ##### 4396#       发表于 2019-4-22 17:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404232&amp;ptid=1823171" target="_blank">yexuning 发表于 2019-4-22 17:02</a>
 
 说到隔壁绿帽论坛，我觉得有些人的思维无法理解，大家看个乐呵就完了 ...</blockquote>
 Y老哥，求求你别来了好不好，我真的佩服你
-
-
-
-
-
 
 
 -----
@@ -26409,14 +16993,7 @@ Y老哥，求求你别来了好不好，我真的佩服你
 ##### 4397#       发表于 2019-4-22 17:07
 
 
-
-
 那群虚假的gamers不要再播自走棋了，又虚无又菜<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26425,15 +17002,9 @@ Y老哥，求求你别来了好不好，我真的佩服你
 ##### 4398#       发表于 2019-4-22 17:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404232&amp;ptid=1823171" target="_blank">yexuning 发表于 2019-4-22 17:02</a>
 说到隔壁绿帽论坛，我觉得有些人的思维无法理解，大家看个乐呵就完了 ...</blockquote>
 你能不能滚远一点？装你妈呢装
-
-
-
-
-
 
 
 -----
@@ -26442,14 +17013,7 @@ Y老哥，求求你别来了好不好，我真的佩服你
 ##### 4399#       发表于 2019-4-22 17:08
 
 
-
-
 傻逼巨魔跑过来说理解不了别人  你自己在几个帖子里上串下跳啥样子当人不知道？
-
-
-
-
-
 
 
 -----
@@ -26458,15 +17022,9 @@ Y老哥，求求你别来了好不好，我真的佩服你
 ##### 4400#       发表于 2019-4-22 17:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404292&amp;ptid=1823171" target="_blank">despotnanoha 发表于 2019-4-22 17:06</a>
 给你们吃个大瓜，阿B的后台源码被扔到GIT上了，想从人气那倒推同接数的，可以开始动手去看了，年度 ...</blockquote>
 。。。不是超能力者，这瓜吃不到
-
-
-
-
-
 
 
 -----
@@ -26475,15 +17033,9 @@ Y老哥，求求你别来了好不好，我真的佩服你
 ##### 4401#       发表于 2019-4-22 17:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404292&amp;ptid=1823171" target="_blank">despotnanoha 发表于 2019-4-22 17:06</a>
 给你们吃个大瓜，阿B的后台源码被扔到GIT上了，想从人气那倒推同接数的，可以开始动手去看了，年度 ...</blockquote>
 给个地址或仓库名字啊
-
-
-
-
-
 
 
 -----
@@ -26492,23 +17044,16 @@ Y老哥，求求你别来了好不好，我真的佩服你
 ##### 4402#       发表于 2019-4-22 17:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404356&amp;ptid=1823171" target="_blank">黑炎 发表于 2019-4-22 17:09</a>
 
 给个地址或仓库名字啊</blockquote>
 [https://github.com/openbilibili/ ... etag=s_pctim_aiomsg](https://github.com/openbilibili/go-common?tdsourcetag=s_pctim_aiomsg) ，下载贼慢，不过开始有分流了
 
 
-
-
-
-
-
 -----
 
 ####  逆羽结业  
 ##### 4403#       发表于 2019-4-22 17:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404239&amp;ptid=1823171" target="_blank">proxima 发表于 2019-4-22 17:03</a>
@@ -26518,32 +17063,19 @@ Y老哥，求求你别来了好不好，我真的佩服你
 —— 来自 Meizu MX5, Android 5.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  age45  
 ##### 4404#       发表于 2019-4-22 17:11
 
 
-
-
 非超能力者等一个洗脑包
-
-
-
-
-
 
 
 -----
 
 ####  Persona1  
 ##### 4405#       发表于 2019-4-22 17:13
-
 
 
 <blockquote>yexuning 发表于 2019-4-22 17:02
@@ -26553,25 +17085,13 @@ Y老哥，求求你别来了好不好，我真的佩服你
 我对那边阴阳人的狗屎脑残发言没兴趣，他们不在我面前拉屎就行，你老母你把屎搬过来什么意思？
 
 
-
-
-
-
-
 -----
 
 ####  tiro_finale  
 ##### 4406#       发表于 2019-4-22 17:13
 
 
-
-
 倒推还得要拿当天礼物舰长数据算的，太麻烦了，等一个他力本愿
-
-
-
-
-
 
 
 -----
@@ -26580,15 +17100,9 @@ Y老哥，求求你别来了好不好，我真的佩服你
 ##### 4407#       发表于 2019-4-22 17:14
 
 
-
  本帖最后由 神龙小生 于 2019-4-22 17:16 编辑 
 
 编辑掉
-
-
-
-
-
 
 
 -----
@@ -26597,21 +17111,13 @@ Y老哥，求求你别来了好不好，我真的佩服你
 ##### 4408#       发表于 2019-4-22 17:15
 
 
-
-
 y老哥实属掏粪工，每天就负责运屎，国内国外两开花
-
-
-
-
-
 
 
 -----
 
 ####  神龙小生  
 ##### 4409#       发表于 2019-4-22 17:15
-
 
 
 <blockquote>proxima 发表于 2019-4-22 16:42
@@ -26627,25 +17133,13 @@ y老哥实属掏粪工，每天就负责运屎，国内国外两开花
 PS:なのだ是阿莱桑的口癖梗么？
 
 
-
-
-
-
-
 -----
 
 ####  zhicai618  
 ##### 4410#       发表于 2019-4-22 17:15
 
 
-
-
 vtb到底是buff还是debuff啊？一个职业选手退役打直播会比他转生成vtb打直播更火么？
-
-
-
-
-
 
 
 -----
@@ -26654,14 +17148,8 @@ vtb到底是buff还是debuff啊？一个职业选手退役打直播会比他转�
 ##### 4411#       发表于 2019-4-22 17:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 <img src="https://i.loli.net/2019/04/22/5cbd862c00c33.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26670,17 +17158,10 @@ vtb到底是buff还是debuff啊？一个职业选手退役打直播会比他转�
 ##### 4412#       发表于 2019-4-22 17:16
 
 
-
-
 问一下，有没有大佬……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 [https://nijisanji.ichikara.co.jp/wp-login.php](https://nijisanji.ichikara.co.jp/wp-login.php)
 
 UserName：nakaatsu0118
-
-
-
-
-
 
 
 -----
@@ -26689,14 +17170,8 @@ UserName：nakaatsu0118
 ##### 4413#       发表于 2019-4-22 17:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404465&amp;ptid=1823171" target="_blank">默逍 发表于 2019-4-22 01:15</a></blockquote>
 为什么还有作弊粉丝量的，粉丝不是有名单吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26705,16 +17180,10 @@ UserName：nakaatsu0118
 ##### 4414#       发表于 2019-4-22 17:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404465&amp;ptid=1823171" target="_blank">默逍 发表于 2019-4-22 17:15</a></blockquote>
 我还以为睿站最多在人气上动手脚<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">签约主播连粉丝数播放数都直接动手
 
 — from Xiaomi MIX 2S, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -26723,15 +17192,9 @@ UserName：nakaatsu0118
 ##### 4415#       发表于 2019-4-22 17:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404504&amp;ptid=1823171" target="_blank">tiro_finale 发表于 2019-4-22 17:18</a>
 为什么还有作弊粉丝量的，粉丝不是有名单吗</blockquote>
 最近关注了一个小up主，似乎是上了推荐位，粉丝列表点进去一水的僵尸粉，跟微博类似吧
-
-
-
-
-
 
 
 -----
@@ -26740,14 +17203,8 @@ UserName：nakaatsu0118
 ##### 4416#       发表于 2019-4-22 17:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404465&amp;ptid=1823171" target="_blank">默逍 发表于 2019-4-22 17:15</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">写的也太直接了点吧
-
-
-
-
-
 
 
 -----
@@ -26756,21 +17213,13 @@ UserName：nakaatsu0118
 ##### 4417#       发表于 2019-4-22 17:19
 
 
-
-
 已经被ban咧，分流完全吗？
-
-
-
-
-
 
 
 -----
 
 ####  买表大户  
 ##### 4418#       发表于 2019-4-22 17:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404504&amp;ptid=1823171" target="_blank">tiro_finale 发表于 2019-4-22 17:18</a>
@@ -26780,16 +17229,10 @@ UserName：nakaatsu0118
 — from Xiaomi MIX 2S, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  ScarletMoon  
 ##### 4419#       发表于 2019-4-22 17:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404457&amp;ptid=1823171" target="_blank">zhicai618 发表于 2019-4-22 17:15</a>
@@ -26803,16 +17246,10 @@ nico那么多从中坚到超大物生主实况主唱见不都跑来转生了吗
 另外，从打赏到案件，vtb的集金能力比同级别的生主实况主强这个是可以确定的。
 
 
-
-
-
-
-
 -----
 
 ####  Persona1  
 ##### 4420#       发表于 2019-4-22 17:23
-
 
 
 <blockquote>默逍 发表于 2019-4-22 17:15
@@ -26820,16 +17257,10 @@ nico那么多从中坚到超大物生主实况主唱见不都跑来转生了吗
 你说这个作弊播放量会不会有负数呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zhicai618  
 ##### 4421#       发表于 2019-4-22 17:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404596&amp;ptid=1823171" target="_blank">ScarletMoon 发表于 2019-4-22 17:22</a>
@@ -26839,16 +17270,10 @@ nico那么多从中坚到超大物生主实况主唱见不都跑来转生了吗
 但是我看本楼好多都是讨论vtb打不过真人实况主来着？
 
 
-
-
-
-
-
 -----
 
 ####  上坂蓮華黑  
 ##### 4422#       发表于 2019-4-22 17:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404627&amp;ptid=1823171" target="_blank">zhicai618 发表于 2019-4-22 17:24</a>
@@ -26857,16 +17282,10 @@ nico那么多从中坚到超大物生主实况主唱见不都跑来转生了吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">所以他说的是同级别啊。打不过的真人实况主那是超级别的
 
 
-
-
-
-
-
 -----
 
 ####  zealotaalbania  
 ##### 4423#       发表于 2019-4-22 17:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404457&amp;ptid=1823171" target="_blank">zhicai618 发表于 2019-4-22 17:15</a>
@@ -26875,25 +17294,13 @@ vtb到底是buff还是debuff啊？一个职业选手退役打直播会比他转�
 不冲突吧，为什么要退役打直播，pubg火的时候v圈现役职业哥也不少啊，像园长这样既是职业选手又是vtb的也混得还可以啊
 
 
-
-
-
-
-
 -----
 
 ####  free  
 ##### 4424#       发表于 2019-4-22 17:27
 
 
-
-
 唱见转生的还没有真正一流下场的，96猫那是来玩游戏的，现在唱见转生最大牌的算是店长还是lon？
-
-
-
-
-
 
 
 -----
@@ -26902,15 +17309,9 @@ vtb到底是buff还是debuff啊？一个职业选手退役打直播会比他转�
 ##### 4425#       发表于 2019-4-22 17:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404640&amp;ptid=1823171" target="_blank">上坂蓮華黑 发表于 2019-4-22 17:25</a>
 所以他说的是同级别啊。打不过的真人实况主那是超级别的</blockquote>
 我就用lol举个例子吧。比如dfm的中路年纪大了，要退役的话选择打直播，是会选择vtb类型的还是真人实况主类型的。
-
-
-
-
-
 
 
 -----
@@ -26919,16 +17320,10 @@ vtb到底是buff还是debuff啊？一个职业选手退役打直播会比他转�
 ##### 4426#       发表于 2019-4-22 17:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404685&amp;ptid=1823171" target="_blank">zhicai618 发表于 2019-4-22 17:27</a>
 
 我就用lol举个例子吧。比如dfm的中路年纪大了，要退役的话选择打直播，是会选择vtb类型的还是真人实况主 ...</blockquote>
 国内名气大的 当然是要真人露脸啊 各种演艺搞笑讲骚话，哪里是LIV2D跟得上的
-
-
-
-
-
 
 
 -----
@@ -26937,16 +17332,10 @@ vtb到底是buff还是debuff啊？一个职业选手退役打直播会比他转�
 ##### 4427#       发表于 2019-4-22 17:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404685&amp;ptid=1823171" target="_blank">zhicai618 发表于 2019-4-22 17:27</a>
 
 我就用lol举个例子吧。比如dfm的中路年纪大了，要退役的话选择打直播，是会选择vtb类型的还是真人实况主 ...</blockquote>
 LOL选手本身也不忌讳露脸，就算退役了应该也是走向真人实况主的路线吧，本来也有足够的粉丝基数
-
-
-
-
-
 
 
 -----
@@ -26955,15 +17344,9 @@ LOL选手本身也不忌讳露脸，就算退役了应该也是走向真人实�
 ##### 4428#       发表于 2019-4-22 17:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404719&amp;ptid=1823171" target="_blank">上坂蓮華黑 发表于 2019-4-22 17:29</a>
 LOL选手本身也不忌讳露脸，就算退役了应该也是走向真人实况主的路线吧，本来也有足够的粉丝基数 ...</blockquote>
 我还以为用vtb能多圈一些粉。
-
-
-
-
-
 
 
 -----
@@ -26972,15 +17355,9 @@ LOL选手本身也不忌讳露脸，就算退役了应该也是走向真人实�
 ##### 4429#       发表于 2019-4-22 17:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404678&amp;ptid=1823171" target="_blank">free 发表于 2019-4-22 17:27</a>
 唱见转生的还没有真正一流下场的，96猫那是来玩游戏的，现在唱见转生最大牌的算是店长还是lon？ ...</blockquote>
 那还是lon最强，还有五月病再生棒
-
-
-
-
-
 
 
 -----
@@ -26989,23 +17366,15 @@ LOL选手本身也不忌讳露脸，就算退役了应该也是走向真人实�
 ##### 4430#       发表于 2019-4-22 17:33
 
 
-
-
 有二刺猿形象是可以吸一波额外的粉，不过相对于选手本身的粉应该可以忽略
 
 —— 來自 samsung SM-N9500, Android 7.1.1上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
 
 ####  zhicai618  
 ##### 4431#       发表于 2019-4-22 17:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404806&amp;ptid=1823171" target="_blank">暴走的包子 发表于 2019-4-22 17:33</a>
@@ -27015,22 +17384,13 @@ LOL选手本身也不忌讳露脸，就算退役了应该也是走向真人实�
 主要是“第一个lol职业vtb”这种噱头不会有加成么。。
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 4432#       发表于 2019-4-22 17:36
 
 
-
-
 看到有说花谱是山田酱的……就觉得这名字眼熟
-
-
 
 
 这图不能有补完的一天吧，已经7（？）个了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -27045,21 +17405,10 @@ LOL选手本身也不忌讳露脸，就算退役了应该也是走向真人实�
 2019-4-22 17:36 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  上坂蓮華黑  
 ##### 4433#       发表于 2019-4-22 17:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404816&amp;ptid=1823171" target="_blank">zhicai618 发表于 2019-4-22 17:34</a>
@@ -27068,32 +17417,19 @@ LOL选手本身也不忌讳露脸，就算退役了应该也是走向真人实�
 <img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">总感觉会被LOL圈鄙视一轮，男性原罪。
 
 
-
-
-
-
-
 -----
 
 ####  plok201  
 ##### 4434#       发表于 2019-4-22 17:40
 
 
-
-
 vtb本身偏二次元，能吸一波二次元的粉，对相貌没有要求能少很多节奏，LOL本身职业就露脸，观众也更关注技术，对二次元脸没特别喜欢
-
-
-
-
-
 
 
 -----
 
 ####  バーチャルS1er  
 ##### 4435#       发表于 2019-4-22 17:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404457&amp;ptid=1823171" target="_blank">zhicai618 发表于 2019-4-22 17:15</a>
@@ -27111,32 +17447,19 @@ ASMR类mkt弄一个模型试两回就不搞了，利香、miyadi这种开分身�
 而且现在vtuber的整体风评又不怎么好，说是debuff也不为过了
 
 
-
-
-
-
-
 -----
 
 ####  free  
 ##### 4436#       发表于 2019-4-22 17:43
 
 
-
-
 梅露那么好的3D模型，就知道天天奥术魔刃......
-
-
-
-
-
 
 
 -----
 
 ####  proxima  
 ##### 4437#       发表于 2019-4-22 17:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404453&amp;ptid=1823171" target="_blank">神龙小生 发表于 2019-4-22 17:15</a>
@@ -27149,31 +17472,19 @@ ASMR类mkt弄一个模型试两回就不搞了，利香、miyadi这种开分身�
 なのだ是阿莱桑的梗没错
 
 
-
-
-
-
-
 -----
 
 ####  上坂蓮華黑  
 ##### 4438#       发表于 2019-4-22 17:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">梅露要抄个点生活的作业，来搞个3D奥术魔刃才有意思啊
-
-
-
-
-
 
 
 -----
 
 ####  noHentai  
 ##### 4439#       发表于 2019-4-22 17:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404855&amp;ptid=1823171" target="_blank">Chia 发表于 2019-4-22 17:36</a>
@@ -27185,32 +17496,19 @@ ASMR类mkt弄一个模型试两回就不搞了，利香、miyadi这种开分身�
 <img src="https://i.loli.net/2019/04/22/5cbd8dfd97aec.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aisakahammer  
 ##### 4440#       发表于 2019-4-22 17:51
 
 
-
-
   蝙蝠妹这个动画歌回，居然开了45分钟了 都没注意
-
-
-
-
-
 
 
 -----
 
 ####  Chia  
 ##### 4441#       发表于 2019-4-22 17:52
-
 
 
 <blockquote>noHentai 发表于 2019-4-22 17:49
@@ -27231,24 +17529,13 @@ ASMR类mkt弄一个模型试两回就不搞了，利香、miyadi这种开分身�
 2.她有个youtube频道的，不过现在把稿都删了
 
 
-
-
-
-
-
 -----
 
 ####  空虚澄璃色  
 ##### 4442#       发表于 2019-4-22 17:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">真神锤了点说密码是明文？我靠b站要不要这么野
-
-
-
-
-
 
 
 -----
@@ -27257,14 +17544,7 @@ ASMR类mkt弄一个模型试两回就不搞了，利香、miyadi这种开分身�
 ##### 4443#       发表于 2019-4-22 18:00
 
 
-
-
 江良频道120人，截止到17:38提交推特自证的有40人...
-
-
-
-
-
 
 
 -----
@@ -27273,23 +17553,15 @@ ASMR类mkt弄一个模型试两回就不搞了，利香、miyadi这种开分身�
 ##### 4444#       发表于 2019-4-22 18:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43404855&amp;ptid=1823171" target="_blank">Chia 发表于 2019-4-22 17:36</a>
 看到有说花谱是山田酱的……就觉得这名字眼熟</blockquote>
 小学生最强！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  SchwarzeKatze  
 ##### 4445#       发表于 2019-4-22 18:05
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/22/180449gr5fa7v7f7hmwhr3.png" referrerpolicy="no-referrer">
@@ -27302,21 +17574,11 @@ ASMR类mkt弄一个模型试两回就不搞了，利香、miyadi这种开分身�
 2019-4-22 18:04 上传
 
 
-
-
-
-
-
 gachi
 
 叶
 
 gachi
-
-
-
-
-
 
 
 -----
@@ -27325,14 +17587,7 @@ gachi
 ##### 4446#       发表于 2019-4-22 18:10
 
 
-
-
 兔头最近怎么了...这直播又没了，推特也没动静
-
-
-
-
-
 
 
 -----
@@ -27341,16 +17596,10 @@ gachi
 ##### 4447#       发表于 2019-4-22 18:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43405373&amp;ptid=1823171" target="_blank">vonkarajan 发表于 2019-4-22 18:10</a>
 
 兔头最近怎么了...这直播又没了，推特也没动静</blockquote>
 发推了
-
-
-
-
-
 
 
 -----
@@ -27359,15 +17608,9 @@ gachi
 ##### 4448#       发表于 2019-4-22 18:11
 
 
-
 [https://www.youtube.com/watch?v=usVldvvMJN0](https://www.youtube.com/watch?v=usVldvvMJN0)
 
 【歌ってみた】YuNi / 透明声彩 ハニストで歌いました♪
-
-
-
-
-
 
 
 -----
@@ -27376,16 +17619,10 @@ gachi
 ##### 4449#       发表于 2019-4-22 18:11
 
 
-
 [https://twitter.com/yuni_vsinger/status/1120267421502173184](https://twitter.com/yuni_vsinger/status/1120267421502173184)
 
 
 太子要去见鹿乃了
-
-
-
-
-
 
 
 -----
@@ -27394,14 +17631,7 @@ gachi
 ##### 4450#       发表于 2019-4-22 18:13
 
 
-
-
 这是天皇亲自对3银盾2上位的mixup处刑吗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27410,15 +17640,9 @@ gachi
 ##### 4451#       发表于 2019-4-22 18:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43405373&amp;ptid=1823171" target="_blank">vonkarajan 发表于 2019-4-22 18:10</a>
 兔头最近怎么了...这直播又没了，推特也没动静</blockquote>
 刚睡醒…
-
-
-
-
-
 
 
 -----
@@ -27427,14 +17651,7 @@ gachi
 ##### 4452#       发表于 2019-4-22 18:14
 
 
-
-
 阿夸这个廉价游戏好无聊
-
-
-
-
-
 
 
 -----
@@ -27443,23 +17660,16 @@ gachi
 ##### 4453#       发表于 2019-4-22 18:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43405418&amp;ptid=1823171" target="_blank">ScarletMoon 发表于 2019-4-22 18:13</a>
 
 这是天皇亲自对3银盾2上位的mixup处刑吗</blockquote>
 估计就播半小时  MIXUP那边都要求其他人关台 不然就同时试听
 
 
-
-
-
-
-
 -----
 
 ####  ScarletMoon  
 ##### 4454#       发表于 2019-4-22 18:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43405448&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-22 18:15</a>
@@ -27472,17 +17682,10 @@ gachi
 阿委就不用说了,那么多企业案件要忙,本身就不存在她需要为mixup让路的道理
 
 
-
-
-
-
-
 -----
 
 ####  GrandAko  
 ##### 4455#       发表于 2019-4-22 18:20
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/22/181936tkkew2a8f92b8ywa.jpg" referrerpolicy="no-referrer">
@@ -27495,20 +17698,10 @@ gachi
 2019-4-22 18:19 上传
 
 
-
-
-
-
-
 麻醉医桑！？<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
 
 （今天搜nar（@masuisi）结果发现这位被冻结了）
-
-
-
-
-
 
 
 -----
@@ -27517,23 +17710,15 @@ gachi
 ##### 4456#       发表于 2019-4-22 18:23
 
 
-
-
 推迟到9点
 
 大福傻葵阿委的三国志来了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  potwater  
 ##### 4457#       发表于 2019-4-22 18:23
-
 
 
 [https://twitter.com/MitoTsukino/status/1120271375283802112](https://twitter.com/MitoTsukino/status/1120271375283802112) <blockquote>MIX UPとの兼ね合いを見て、本日の配信は【《22時〜》】に変更させていただきたく思います。
@@ -27547,28 +17732,15 @@ gachi
 22時00分～ ■月ノ美兎 at:YouTube ※19時から時間変更
 
 
-
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 4458#       发表于 2019-4-22 18:26
 
 
-
-
 那个时间...是地狱啊...还有anisong同好会
 
 皇军 gamers信 种信对决...?
-
-
-
-
-
 
 
 -----
@@ -27577,13 +17749,7 @@ gachi
 ##### 4459#       发表于 2019-4-22 18:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我选择顶着被黑的风险看mio唱歌
-
-
-
-
-
 
 
 -----
@@ -27592,15 +17758,9 @@ gachi
 ##### 4460#       发表于 2019-4-22 18:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43405677&amp;ptid=1823171" target="_blank">空虚澄璃色 发表于 2019-4-22 18:30</a>
 我选择顶着被黑的风险看mio唱歌</blockquote>
 为什么要被黑
-
-
-
-
-
 
 
 -----
@@ -27609,24 +17769,16 @@ gachi
 ##### 4461#       发表于 2019-4-22 18:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43405683&amp;ptid=1823171" target="_blank">胧楼 发表于 2019-4-22 18:31</a>
 
 为什么要被黑</blockquote>
 B后台源码被开源了
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 4462#       发表于 2019-4-22 18:37
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/22/183728ocd5r65yyt3r5grz.jpg" referrerpolicy="no-referrer">
@@ -27639,23 +17791,13 @@ B后台源码被开源了
 2019-4-22 18:37 上传
 
 
-
-
-
-
 [https://twitter.com/magatsu_klab/status/1120273571375222785](https://twitter.com/magatsu_klab/status/1120273571375222785)
-
-
-
-
-
 
 
 -----
 
 ####  Chia  
 ##### 4463#       发表于 2019-4-22 18:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43405775&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-22 18:37</a>
@@ -27667,16 +17809,10 @@ https://twitter.com/magatsu_klab/status/1120273571375222785</blockquote>
 (其实不要救<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  tiro_finale  
 ##### 4464#       发表于 2019-4-22 18:41
-
 
 
 [https://twitter.com/kudou_chitose/status/1120274290291535875](https://twitter.com/kudou_chitose/status/1120274290291535875)
@@ -27685,24 +17821,13 @@ https://twitter.com/magatsu_klab/status/1120273571375222785</blockquote>
 终于活过来了啊
 
 
-
-
-
-
-
 -----
 
 ####  ercai1  
 ##### 4465#       发表于 2019-4-22 18:45
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">看到名单里的犬山哥，我大概想得到ドルアン那边会ガイガイ到个什么程度了
-
-
-
-
-
 
 
 -----
@@ -27711,15 +17836,8 @@ https://twitter.com/magatsu_klab/status/1120273571375222785</blockquote>
 ##### 4466#       发表于 2019-4-22 18:55
 
 
-
-
 楼里是不是有人说梅露摸？
 [https://twitter.com/yozoramel/status/1120268893153452033](https://twitter.com/yozoramel/status/1120268893153452033)
-
-
-
-
-
 
 
 -----
@@ -27728,15 +17846,9 @@ https://twitter.com/magatsu_klab/status/1120273571375222785</blockquote>
 ##### 4467#       发表于 2019-4-22 18:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43405775&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-22 18:37</a>
 https://twitter.com/magatsu_klab/status/1120273571375222785</blockquote>
 那么问题来了，这里有几个是vtuber，有几个是vliver<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27745,16 +17857,10 @@ https://twitter.com/magatsu_klab/status/1120273571375222785</blockquote>
 ##### 4468#       发表于 2019-4-22 19:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43406072&amp;ptid=1823171" target="_blank">北条早苗 发表于 2019-4-22 18:58</a>
 
 那么问题来了，这里有几个是vtuber，有几个是vliver</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer"> 看来staff功课下的还不够
-
-
-
-
-
 
 
 -----
@@ -27763,15 +17869,9 @@ https://twitter.com/magatsu_klab/status/1120273571375222785</blockquote>
 ##### 4469#       发表于 2019-4-22 19:02
 
 
-
 <blockquote>默逍 发表于 2019-4-22 16:44
 图还是在这楼收的</blockquote>
 艹，别让我回想起来啊
-
-
-
-
-
 
 
 -----
@@ -27780,16 +17880,10 @@ https://twitter.com/magatsu_klab/status/1120273571375222785</blockquote>
 ##### 4470#       发表于 2019-4-22 19:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43405889&amp;ptid=1823171" target="_blank">ercai1 发表于 2019-4-22 18:45</a>
 
 看到名单里的犬山哥，我大概想得到ドルアン那边会ガイガイ到个什么程度了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">   表世界都有人冒出来了    
-
-
-
-
-
 
 
 -----
@@ -27798,14 +17892,7 @@ https://twitter.com/magatsu_klab/status/1120273571375222785</blockquote>
 ##### 4471#       发表于 2019-4-22 19:06
 
 
-
-
 鹰宫c位……！？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27814,13 +17901,7 @@ https://twitter.com/magatsu_klab/status/1120273571375222785</blockquote>
 ##### 4472#       发表于 2019-4-22 19:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">是有人集中给hololive的买星星命名证书么，aki也收到了
-
-
-
-
-
 
 
 -----
@@ -27829,15 +17910,9 @@ https://twitter.com/magatsu_klab/status/1120273571375222785</blockquote>
 ##### 4473#       发表于 2019-4-22 19:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43406183&amp;ptid=1823171" target="_blank">上坂蓮華黑 发表于 2019-4-22 19:07</a>
 是有人集中给hololive的买星星命名证书么，aki也收到了</blockquote>
 集体智商税yamero
-
-
-
-
-
 
 
 -----
@@ -27846,16 +17921,10 @@ https://twitter.com/magatsu_klab/status/1120273571375222785</blockquote>
 ##### 4474#       发表于 2019-4-22 19:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43406183&amp;ptid=1823171" target="_blank">上坂蓮華黑 发表于 2019-4-22 19:07</a>
 
 是有人集中给hololive的买星星命名证书么，aki也收到了</blockquote>
 还有月球土地？还是环形坑的命名，  面包狗和小学生都收到了
-
-
-
-
-
 
 
 -----
@@ -27864,22 +17933,15 @@ https://twitter.com/magatsu_klab/status/1120273571375222785</blockquote>
 ##### 4475#       发表于 2019-4-22 19:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43406208&amp;ptid=1823171" target="_blank">胧楼 发表于 2019-4-22 19:09</a>
 集体智商税yamero</blockquote>
 挺好玩的，好像是花不了多少钱弄了个噱头
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 4476#       发表于 2019-4-22 19:15
-
 
 
  本帖最后由 いつかの自分 于 2019-4-22 19:51 编辑 
@@ -27906,16 +17968,10 @@ rion 1kill    德龙1kill  德龙最强..舞元...なじぇ...ちーちゃ�
 騙し合いなんじゃ！vtuber業界は…でろん最強！！！！
 
 
-
-
-
-
-
 -----
 
 ####  午前二时野猫  
 ##### 4477#       发表于 2019-4-22 19:30
-
 
 
  本帖最后由 午前二时野猫 于 2019-4-22 19:56 编辑 
@@ -27928,25 +17984,13 @@ rion 1kill    德龙1kill  德龙最强..舞元...なじぇ...ちーちゃ�
 熊猫人这帽衫就不能找个合适点的模特来吗<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lhawp  
 ##### 4478#       发表于 2019-4-22 19:56
 
 
-
-
 熊猫人外套12000日元一件还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27955,14 +17999,7 @@ rion 1kill    德龙1kill  德龙最强..舞元...なじぇ...ちーちゃ�
 ##### 4479#       发表于 2019-4-22 20:00
 
 
-
-
 感觉可以搞一个cos哪位vtuber成本最高大赛，我举绿仙一票，熊猫太贵
-
-
-
-
-
 
 
 -----
@@ -27971,24 +18008,16 @@ rion 1kill    德龙1kill  德龙最强..舞元...なじぇ...ちーちゃ�
 ##### 4480#       发表于 2019-4-22 20:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43401440&amp;ptid=1823171" target="_blank">noHentai 发表于 2019-04-22 13:57:07</a>
 感觉可能是holo跟B谈什么事结果谈崩了</blockquote>日语不好，老哥能高抬贵手翻译一下吗？
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 4481#       发表于 2019-4-22 20:03
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/22/200049w9nyijs0ru07ihby.jpg" referrerpolicy="no-referrer">
@@ -28001,17 +18030,7 @@ rion 1kill    德龙1kill  德龙最强..舞元...なじぇ...ちーちゃ�
 2019-4-22 20:00 上传
 
 
-
-
-
-
-
 平田！
-
-
-
-
-
 
 
 -----
@@ -28020,22 +18039,13 @@ rion 1kill    德龙1kill  德龙最强..舞元...なじぇ...ちーちゃ�
 ##### 4482#       发表于 2019-4-22 20:04
 
 
-
-
 mio开始了
-
-
-
-
-
 
 
 -----
 
 ####  alllonginus  
 ##### 4483#       发表于 2019-4-22 20:05
-
-
 
 
 20:50
@@ -28050,32 +18060,19 @@ mio开始了
 感觉这验证方法效率过低...
 
 
-
-
-
-
-
 -----
 
 ####  chaucerling  
 ##### 4484#       发表于 2019-4-22 20:06
 
 
-
-
 选曲好评，今晚不用担心了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  北条早苗  
 ##### 4485#       发表于 2019-4-22 20:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43406855&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-22 20:03</a>
@@ -28086,26 +18083,15 @@ mio开始了
 不知道和她姐那零剧本流是不是一样
 
 
-
-
-
-
-
 -----
 
 ####  wingzerocos  
 ##### 4486#       发表于 2019-4-22 20:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43405775&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-4-22 18:37</a>
 https://twitter.com/magatsu_klab/status/1120273571375222785</blockquote>
 这是找一堆人直播看事前直播么，倒是对服务器很有信心啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28114,13 +18100,7 @@ https://twitter.com/magatsu_klab/status/1120273571375222785</blockquote>
 ##### 4487#       发表于 2019-4-22 20:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">？小狐狸炎上b站的没看到，看到个被送了年费大会员然后希望做50w人纪念直播的。
-
-
-
-
-
 
 
 -----
@@ -28129,14 +18109,7 @@ https://twitter.com/magatsu_klab/status/1120273571375222785</blockquote>
 ##### 4488#       发表于 2019-4-22 20:10
 
 
-
-
 怎么还是半首
-
-
-
-
-
 
 
 -----
@@ -28145,14 +18118,7 @@ https://twitter.com/magatsu_klab/status/1120273571375222785</blockquote>
 ##### 4489#       发表于 2019-4-22 20:20
 
 
-
-
 老人歌会真好呢。。。
-
-
-
-
-
 
 
 -----
@@ -28161,22 +18127,15 @@ https://twitter.com/magatsu_klab/status/1120273571375222785</blockquote>
 ##### 4490#       发表于 2019-4-22 20:20
 
 
-
 [https://youtu.be/D9n5f-HYddM](https://youtu.be/D9n5f-HYddM)
 
 【歌ってみた】孤独の果て／光収容（cover 夜霧メイ）【VTuber】
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 4491#       发表于 2019-4-22 20:20
-
 
 
  本帖最后由 いつかの自分 于 2019-4-22 20:22 编辑 
@@ -28197,16 +18156,10 @@ https://twitter.com/magatsu_klab/status/1120273571375222785</blockquote>
 不过这个让B站看到也不太妙
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 4492#       发表于 2019-4-22 20:26
-
 
 
 [https://www.youtube.com/watch?v=XsWvk3OxWzE](https://www.youtube.com/watch?v=XsWvk3OxWzE)
@@ -28214,16 +18167,10 @@ https://twitter.com/magatsu_klab/status/1120273571375222785</blockquote>
 ハルノヒ - あいみょん(Cover) / 星乃めあ【歌ってみた】「映画クレヨンしんちゃん 新婚旅行ハリケーン ～失われたひろし～」主題歌
 
 
-
-
-
-
-
 -----
 
 ####  院长今天又划水  
 ##### 4493#       发表于 2019-4-22 20:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43407077&amp;ptid=1823171" target="_blank">いつかの自分 发表于 2019-04-22 20:20:29</a>
@@ -28235,16 +18182,10 @@ https://twitter.com/magatsu_klab/status/1120273571375222785</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  rita200123  
 ##### 4494#       发表于 2019-4-22 20:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43407194&amp;ptid=1823171" target="_blank">院长今天又划水 发表于 2019-4-22 20:27</a>
@@ -28257,16 +18198,10 @@ B站抽成确实狠，而且税也打的多。我自己就是个透明UP，每�
 直接發到推特上就太不給面子了
 
 
-
-
-
-
-
 -----
 
 ####  上坂蓮華黑  
 ##### 4495#       发表于 2019-4-22 20:31
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">做直播的全职我信，做视频的我可不信全职
@@ -28274,16 +18209,10 @@ B站抽成确实狠，而且税也打的多。我自己就是个透明UP，每�
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 4496#       发表于 2019-4-22 20:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43407194&amp;ptid=1823171" target="_blank">院长今天又划水 发表于 2019-4-22 20:27</a>
@@ -28295,31 +18224,19 @@ B站抽成确实狠，而且税也打的多。我自己就是个透明UP，每�
 直播应该就是固定抽50  
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 4497#       发表于 2019-4-22 20:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> シオン你也会鍋ラップ？
-
-
-
-
-
 
 
 -----
 
 ####  いつかの自分  
 ##### 4498#       发表于 2019-4-22 20:38
-
 
 
  本帖最后由 いつかの自分 于 2019-4-22 20:41 编辑 
@@ -28336,16 +18253,10 @@ AimerさんのI beg youをワンコーラスだけ歌わせて頂きました。
 不死人动了
 
 
-
-
-
-
-
 -----
 
 ####  xiaoba329  
 ##### 4499#       发表于 2019-4-22 20:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43407248&amp;ptid=1823171" target="_blank">rita200123 发表于 2019-4-22 20:30</a>
@@ -28358,16 +18269,10 @@ AimerさんのI beg youをワンコーラスだけ歌わせて頂きました。
 +1，这狐狸是真不怕被穿小鞋吗
 
 
-
-
-
-
-
 -----
 
 ####  いつかの自分  
 ##### 4500#       发表于 2019-4-22 20:42
-
 
 
  本帖最后由 いつかの自分 于 2019-4-22 20:43 编辑 
@@ -28383,15 +18288,7 @@ AimerさんのI beg youをワンコーラスだけ歌わせて頂きました。
 2019-4-22 20:42 上传
 
 
-
-
-
-
-
 涼君きゃわいい...
 [https://twitter.com/OwO__panda/status/1120163549538504704](https://twitter.com/OwO__panda/status/1120163549538504704)
-
-
-
 
 

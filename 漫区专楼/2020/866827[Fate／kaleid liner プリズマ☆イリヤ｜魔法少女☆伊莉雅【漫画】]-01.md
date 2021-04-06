@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2020-02-29 01:47** 
 
 
-
 -----
 
 ####  laoism  
 ##### 1#       楼主       发表于 2012-11-29 20:07
-
 
 
  本帖最后由 laoism 于 2016-7-7 00:06 编辑 
@@ -20,7 +18,6 @@
 原标题：Fate/kaleid liner魔法少女☆伊莉雅3rei 番外篇
 
 原内容：本集只有福利(?)而已。说来这剧情偏离原作多远了？
-
 
 
 Bangumi：[http://bgm.tv/subject/44591](http://bgm.tv/subject/44591)(漫画3rei)
@@ -100,9 +97,7 @@ Bangumi：[http://bgm.tv/subject/44591](http://bgm.tv/subject/44591)(漫画3rei)
 31：干妹妹即是正义，还用想吗。(美游设定揭示)
 
 
-
 现在编号好混乱……这个每回吐槽只能暂停。
-
 
 
 [专楼 《魔法少女☆伊莉雅》第二季制作确定！不要再nico了](http://bbs.saraba1st.com/2b/thread-931137-1-1.html)
@@ -111,19 +106,10 @@ Bangumi：[http://bgm.tv/subject/44591](http://bgm.tv/subject/44591)(漫画3rei)
  *本主题由 hein 于 2019-4-9 11:11 分类* 
 
 
-
-
-
-
-
-
-
 -----
 
 ####  藍染惣右介  
 ##### 2#       发表于 2012-11-29 20:17
-
-
 
 
 早就是永不相交的平行线了<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
@@ -132,25 +118,13 @@ Bangumi：[http://bgm.tv/subject/44591](http://bgm.tv/subject/44591)(漫画3rei)
 这画家的进步真是赏心悦目<img src="https://static.saraba1st.com/image/smiley/face/118.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  子戏星斋  
 ##### 3#       发表于 2012-11-29 20:29
 
 
-
-
 8P的切丝麻婆今天都被人吐槽吐烂了<img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -159,14 +133,7 @@ Bangumi：[http://bgm.tv/subject/44591](http://bgm.tv/subject/44591)(漫画3rei)
 ##### 4#       发表于 2012-11-29 20:46
 
 
-
-
 画风越来越使用了<img src="https://static.saraba1st.com/image/smiley/face/13.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -175,23 +142,16 @@ Bangumi：[http://bgm.tv/subject/44591](http://bgm.tv/subject/44591)(漫画3rei)
 ##### 5#       发表于 2012-11-29 21:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/136.gif" referrerpolicy="no-referrer"> 第六话的情报已出
 
 <img src="http://i50.tinypic.com/yf72f.jpg" referrerpolicy="no-referrer">
 小金你是我们的王(＊゜ー゜)ｂ
 
 
-
-
-
-
-
 -----
 
 ####  囧与otz同在  
 ##### 6#       发表于 2012-11-29 21:43
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/136.gif" referrerpolicy="no-referrer">怎么说……道理讲得还是很贴心的……
@@ -205,16 +165,10 @@ Bangumi：[http://bgm.tv/subject/44591](http://bgm.tv/subject/44591)(漫画3rei)
 <img src="http://ww3.sinaimg.cn/mw690/68f62c64gw1dzbv13r8xnj.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kill_lelouch  
 ##### 7#       发表于 2012-11-29 21:45
-
 
 
 <blockquote>引用第4楼结标淡希于2012-11-29 21:29发表的  :
@@ -224,27 +178,16 @@ Bangumi：[http://bgm.tv/subject/44591](http://bgm.tv/subject/44591)(漫画3rei)
 小金你是我们的王(＊゜ー゜)ｂ <[img src="https://static.saraba1st.com/image/smiley/zdl/158.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hououmon  
 ##### 8#       发表于 2012-11-29 22:07
 
 
-
 <blockquote>引用第6楼kill_lelouch于2012-11-29 21:45发表的  :
 
 这也要变同人绝路了么<img src="https://static.saraba1st.com/image/smiley/zdl/158.gif" referrerpolicy="no-referrer"></blockquote>
 妹神早就绝路了
-
-
-
-
-
 
 
 -----
@@ -255,13 +198,7 @@ Bangumi：[http://bgm.tv/subject/44591](http://bgm.tv/subject/44591)(漫画3rei)
 回 5楼(囧与otz同在) 的帖子
 
 
-
 传勇传吧
-
-
-
-
-
 
 
 -----
@@ -276,25 +213,13 @@ Re:回 5楼(囧与otz同在) 的帖子
 传勇传吧 <[img src="https://static.saraba1st.com/image/smiley/face/09.gif" referrerpolicy="no-referrer">看了看……好偏门的东西……如果之前那个还能用影响较大来解释，这个就只能解释为作者私货啊……
 
 
-
-
-
-
-
 -----
 
 ####  03e7  
 ##### 11#       发表于 2012-11-29 22:20
 
 
-
-
 新命题：田中能不能挡EA
-
-
-
-
-
 
 
 -----
@@ -303,14 +228,8 @@ Re:回 5楼(囧与otz同在) 的帖子
 ##### 12#       发表于 2012-11-29 22:45
 
 
-
 <img src="http://img170.poco.cn/mypoco/myphoto/20121129/22/65784408201211292248542081046144116_000.jpg" referrerpolicy="no-referrer">
 这次最亮的不该是这个么？<img src="https://static.saraba1st.com/image/smiley/zdl/157.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -319,14 +238,7 @@ Re:回 5楼(囧与otz同在) 的帖子
 ##### 13#       发表于 2012-11-29 22:48
 
 
-
-
 美美已经坏掉了<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -335,15 +247,9 @@ Re:回 5楼(囧与otz同在) 的帖子
 ##### 14#       发表于 2012-11-29 22:53
 
 
-
 <blockquote>引用第11楼多克于2012-11-29 22:45发表的  :
 <img src="http://img170.poco.cn/mypoco/myphoto/20121129/22/65784408201211292248542081046144116_000.jpg" referrerpolicy="no-referrer">
 这次最亮的不该是这个么？<img src="https://static.saraba1st.com/image/smiley/zdl/157.gif" referrerpolicy="no-referrer">这漫画本来就很百合……
-
-
-
-
-
 
 
 -----
@@ -352,14 +258,8 @@ Re:回 5楼(囧与otz同在) 的帖子
 ##### 15#       发表于 2012-11-29 22:56
 
 
-
 <img src="http://imgfast.manhua.178.com/f/Fatekaleidliner魔法少女☆伊莉雅/番外篇/番外篇_0002.jpg" referrerpolicy="no-referrer">
 亮点啊，或者说这一整集都是亮点
-
-
-
-
-
 
 
 -----
@@ -368,14 +268,7 @@ Re:回 5楼(囧与otz同在) 的帖子
 ##### 16#       发表于 2012-11-29 22:57
 
 
-
-
 这画风真是实用度满点
-
-
-
-
-
 
 
 -----
@@ -384,16 +277,9 @@ Re:回 5楼(囧与otz同在) 的帖子
 ##### 17#       发表于 2012-11-29 23:08
 
 
-
-
 对了既然有新楼了我问一下，谁有这个系列的本子？看起来很欢乐的样子
 [http://www5d.biglobe.ne.jp/~tukasa/douzin/sutei.html](http://www5d.biglobe.ne.jp/~tukasa/douzin/sutei.html)
 [http://www5d.biglobe.ne.jp/~tukasa/douzin/sst.html](http://www5d.biglobe.ne.jp/~tukasa/douzin/sst.html)
-
-
-
-
-
 
 
 -----
@@ -402,17 +288,10 @@ Re:回 5楼(囧与otz同在) 的帖子
 ##### 18#       发表于 2012-11-30 00:13
 
 
-
-
 昨天这番外更新之后我反复看了3次
 私服的伊莉雅，双马尾的小黑
 …真是，太美了
 好吧今天看到这个帖子我又点进去看了2遍
-
-
-
-
-
 
 
 -----
@@ -421,14 +300,7 @@ Re:回 5楼(囧与otz同在) 的帖子
 ##### 19#       发表于 2012-11-30 15:00
 
 
-
-
 美美已經接觸到了世界的真理
-
-
-
-
-
 
 
 -----
@@ -437,14 +309,7 @@ Re:回 5楼(囧与otz同在) 的帖子
 ##### 20#       发表于 2012-11-30 15:10
 
 
-
-
 这个作者在足上的描绘真是用心……
-
-
-
-
-
 
 
 -----
@@ -453,14 +318,7 @@ Re:回 5楼(囧与otz同在) 的帖子
 ##### 21#       发表于 2012-11-30 15:14
 
 
-
-
 一直不知道 伊利亚的老妈老爸到底在干什么。
-
-
-
-
-
 
 
 -----
@@ -469,22 +327,14 @@ Re:回 5楼(囧与otz同在) 的帖子
 ##### 22#       发表于 2012-11-30 15:21
 
 
-
-
 第6话的锁链用法太棒了
 小金闪(＊゜ー゜)ｂ
-
-
-
-
-
 
 
 -----
 
 ####  songchen_bruce  
 ##### 23#       发表于 2012-11-30 15:22
-
 
 
 <blockquote>引用第20楼革新于2012-11-30 15:14发表的 : 
@@ -495,25 +345,13 @@ Re:回 5楼(囧与otz同在) 的帖子
 以上纯口胡。<img src="https://static.saraba1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  山田西南  
 ##### 24#       发表于 2012-11-30 16:51
 
 
-
-
 我觉得画风和前两期完全不同了，是不是作者现在和某肉一样，自己不画，换助手画了？<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -522,14 +360,8 @@ Re:回 5楼(囧与otz同在) 的帖子
 ##### 25#       发表于 2012-11-30 16:53
 
 
-
 <blockquote>引用第23楼山田西南于2012-11-30 16:51发表的  :
 我觉得画风和前两期完全不同了，是不是作者现在和某肉一样，自己不画，换助手画了？<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -538,14 +370,8 @@ Re:回 5楼(囧与otz同在) 的帖子
 ##### 26#       发表于 2012-11-30 16:54
 
 
-
 <blockquote>引用第23楼山田西南于2012-11-30 16:51发表的  :
 我觉得画风和前两期完全不同了，是不是作者现在和某肉一样，自己不画，换助手画了？<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer"></blockquote>画工进步了吧.....只不过速度有些快，就和鬼月老师一样
-
-
-
-
-
 
 
 -----
@@ -554,13 +380,7 @@ Re:回 5楼(囧与otz同在) 的帖子
 ##### 27#       发表于 2012-11-30 17:48
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -569,15 +389,9 @@ Re:回 5楼(囧与otz同在) 的帖子
 ##### 28#       发表于 2012-11-30 17:59
 
 
-
 <blockquote>引用第26楼山田西南于2012-11-30 17:48发表的  :
 <img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer"></blockquote>
 你敢说第二期巴哥是萌系画风信不信巴哥轰杀你<img src="https://static.saraba1st.com/image/smiley/face/201.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -586,23 +400,15 @@ Re:回 5楼(囧与otz同在) 的帖子
 ##### 29#         楼主| 发表于 2013-1-27 18:25
 
 
-
-
 第07话熟肉出了，更新顶楼。这中文翻译加成…
 
 田中：要么只穿体操服，要么不穿衣服！
-
-
-
-
-
 
 
 -----
 
 ####  结标淡希  
 ##### 30#       发表于 2013-1-27 18:41
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/136.gif" referrerpolicy="no-referrer">我总觉得这个翻译有点乱来，只要998的原文是啥
@@ -619,16 +425,10 @@ Re:回 5楼(囧与otz同在) 的帖子
 <img src="http://2cat.or.tl/~tedc21thc/new/src/1359199450130.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  结标淡希  
 ##### 31#       发表于 2013-1-27 18:44
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/136.gif" referrerpolicy="no-referrer">伊莉雅cos幸运E呆毛王ver lily都没啥太大违和，但是cos R姐就觉得好像少了点啥——果然是因为..（呜哦
@@ -638,24 +438,13 @@ Re:回 5楼(囧与otz同在) 的帖子
 每次都要说：金正太好棒(＊゜ー゜)ｂ
 
 
-
-
-
-
-
 -----
 
 ####  竜騎士07  
 ##### 32#       发表于 2013-1-27 18:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">卧槽lily傻巴  还有自攻自受卧槽 太棒了
-
-
-
-
-
 
 
 -----
@@ -667,11 +456,6 @@ Re:【砖楼】Fate/kaleid liner プリズマ☆イリヤ ドライ!!|魔法
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer"> 现在每次看这个作者的伊莉雅都是尿血状态，美不胜收
-
-
-
-
-
 
 
 -----
@@ -692,11 +476,6 @@ Re:【砖楼】Fate/kaleid liner プリズマ☆イリヤ ドライ!!|魔法
 [http://www.mangahere.com/manga/f ... _prisma_illya_drei/](http://www.mangahere.com/manga/fate_kaleid_liner_prisma_illya_drei/)
 
 
-
-
-
-
-
 -----
 
 ####  秘银mithril  
@@ -705,14 +484,8 @@ Re:【砖楼】Fate/kaleid liner プリズマ☆イリヤ ドライ!!|魔法
 Re:【砖楼】Fate/kaleid liner プリズマ☆イリヤ ドライ!!|魔法
 
 
-
 178下边说“雷神？一发天之锁解决”
 我只看过那几个动画，金闪闪那链子，有神血统的人类也就算了，连真的神都能随便虐？
-
-
-
-
-
 
 
 -----
@@ -723,13 +496,7 @@ Re:【砖楼】Fate/kaleid liner プリズマ☆イリヤ ドライ!!|魔法
 Re:【砖楼】Fate/kaleid liner プリズマ☆イリヤ ドライ!!|魔法
 
 
-
 这漫画里 天之锁被金闪闪用的太万能了。 几乎可以称为独立于ea和王财外最强宝具了。 当然ea已经费了全力对轰输给伊利亚，毁天灭地威力都是吹得
-
-
-
-
-
 
 
 -----
@@ -740,14 +507,8 @@ Re:【砖楼】Fate/kaleid liner プリズマ☆イリヤ ドライ!!|魔法
 Re:【砖楼】Fate/kaleid liner プリズマ☆イリヤ ドライ!!|魔法
 
 
-
 我知道天之锁很强
 我只是突然有点在意 这玩意真的连托尔这种神都能绑么
-
-
-
-
-
 
 
 -----
@@ -758,13 +519,7 @@ Re:【砖楼】Fate/kaleid liner プリズマ☆イリヤ ドライ!!|魔法
 Re:【砖楼】Fate/kaleid liner プリズマ☆イリヤ ドライ!!|魔法
 
 
-
 小黑真的是越来越奔放了
-
-
-
-
-
 
 
 -----
@@ -780,11 +535,6 @@ Re:【砖楼】Fate/kaleid liner プリズマ☆イリヤ ドライ!!|魔法
 现在有一个问题就是，这里的B女用雷神锤时单独一只手臂有变化，很可能梦幻召唤的效果并不是雷神全身而只是一条可以使用锤子的手臂，那天锁绑你个杂种神没商量
 
 
-
-
-
-
-
 -----
 
 ####  03e7  
@@ -793,13 +543,7 @@ Re:【砖楼】Fate/kaleid liner プリズマ☆イリヤ ドライ!!|魔法
 Re:【砖楼】Fate/kaleid liner プリズマ☆イリヤ ドライ!!|魔法
 
 
-
 天鎖是一個，後面還有男人婆在，怎麼看雷神都會死得很慘
-
-
-
-
-
 
 
 -----
@@ -810,13 +554,7 @@ Re:【砖楼】Fate/kaleid liner プリズマ☆イリヤ ドライ!!|魔法
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 反派出来越叼吃瘪越大
-
-
-
-
-
 
 
 -----
@@ -827,13 +565,7 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 这里面的男人婆更猛了的赶脚~~
-
-
-
-
-
 
 
 -----
@@ -844,13 +576,7 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 天之锁这里何止能捆神阿  王财里的宝具他都能捆住不让对面扔出来。
-
-
-
-
-
 
 
 -----
@@ -861,13 +587,7 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 08话熟肉已出。和剧透一样，是余弦大战。还有百合。
-
-
-
-
-
 
 
 -----
@@ -881,18 +601,12 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 <img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">小黑寝技好评
 
 
-
-
-
-
-
 -----
 
 ####  结标淡希  
 ##### 46#       发表于 2013-3-2 08:54
 
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
-
 
 
 09
@@ -911,11 +625,6 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 <img src="http://2cat.or.tl/~tedc21thc/new/src/1361887328004.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  laoism  
@@ -931,11 +640,6 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 于是更新一下顶楼。
 
 
-
-
-
-
-
 -----
 
 ####  laoism  
@@ -944,13 +648,7 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 09话熟肉已出~
-
-
-
-
-
 
 
 -----
@@ -975,11 +673,6 @@ OP：Choucho
 ttp://i.imgur.com/Ikz7zty.jpg
 
 
-
-
-
-
-
 -----
 
 ####  03e7  
@@ -988,13 +681,7 @@ ttp://i.imgur.com/Ikz7zty.jpg
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 田中画的到底是啥，夏洛特？
-
-
-
-
-
 
 
 -----
@@ -1005,13 +692,7 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 求更多出场更多妹子<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1029,11 +710,6 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 ttp://i.imgur.com/rf39K8n.jpg
 
 
-
-
-
-
-
 -----
 
 ####  風駿  
@@ -1042,15 +718,9 @@ ttp://i.imgur.com/rf39K8n.jpg
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 楼上这图是TV人设吧
 
 有正太金闪闪那不是至少要把漫画第二部做完？
-
-
-
-
-
 
 
 -----
@@ -1061,13 +731,7 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 回 52楼(風駿) 的帖子
 
 
-
 是3rei漫画彩图
-
-
-
-
-
 
 
 -----
@@ -1083,11 +747,6 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 小黑和小金真是孽缘啊（赞的意味
 
 
-
-
-
-
-
 -----
 
 ####  katharisis  
@@ -1096,13 +755,7 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 萝莉什么的<img src="https://static.saraba1st.com/image/smiley/zdl/161.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1133,11 +786,6 @@ ttp://i.imgur.com/rf39K8n.jpg <[img src="http://220.196.42.172/2b/images/back.gi
 <img src="https://static.saraba1st.com/image/smiley/face/136.gif" referrerpolicy="no-referrer"> 把一个变成正太一个变成妹子以后，整个就不一样了（
 
 
-
-
-
-
-
 -----
 
 ####  gary76  
@@ -1151,11 +799,6 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 我覺得這張情報圖比較愉悅<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  秋球  
@@ -1166,11 +809,6 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 <img src="http:///i.imgur.com/rf39K8n.jpg" referrerpolicy="no-referrer">
 田中到底是什么人？<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1188,28 +826,16 @@ UBW（盜版專門店）和Avalon（打不死）人格化結合之後的產物�
 （以上大噓）
 
 
-
-
-
-
-
 -----
 
 ####  有马菜菜  
 ##### 62#       发表于 2013-4-25 12:48
 
 
-
-
 昨天补完了。。虽然伊莉娅是本命但是一直没看。
 真是太带感了！！！！不过自攻自受和美游。该支持哪对呢
 
 ----发送自 [samsung GT-I9300,Android 4.2.1](http://stage1.5j4m.com)
-
-
-
-
-
 
 
 -----
@@ -1220,13 +846,7 @@ UBW（盜版專門店）和Avalon（打不死）人格化結合之後的產物�
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 Counter Gardian一类的概念具现化产物?
-
-
-
-
-
 
 
 -----
@@ -1246,11 +866,6 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 <img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">土狼你怎么了土狼
 
 
-
-
-
-
-
 -----
 
 ####  竹井美穗子  
@@ -1259,13 +874,7 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 回 63楼(handing) 的帖子
 
 
-
 觉得伊莉雅声音有点怪啊
-
-
-
-
-
 
 
 -----
@@ -1281,11 +890,6 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 于是不用期待拍第二第三季看金正太了..
 
 
-
-
-
-
-
 -----
 
 ####  土狼  
@@ -1294,13 +898,7 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 脸完全崩坏了啊
-
-
-
-
-
 
 
 -----
@@ -1311,13 +909,7 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 回 63楼(handing) 的帖子
 
 
-
 fsn和fz要是也用这种画风该多好……
-
-
-
-
-
 
 
 -----
@@ -1328,13 +920,7 @@ fsn和fz要是也用这种画风该多好……
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 人设吧 至少没给正脸时还有几张还是挺惊艳的  相比之下之前那堆版权绘才是自黑呢
-
-
-
-
-
 
 
 -----
@@ -1345,13 +931,7 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 土狼你看看你！！ <img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1365,7 +945,6 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
  本帖最后由 laoism 于 2013-11-9 22:26 编辑 
 
 这作画我嗅到了花吻味儿(不懂乱猜的)
-
 
 
 【STAFF】
@@ -1427,11 +1006,6 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 <img src="http://i.imgur.com/Ikz7zty.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
@@ -1440,14 +1014,8 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 既然他们这边是第六次圣杯
 田中可能是第五次圣杯的HF产物
-
-
-
-
-
 
 
 -----
@@ -1474,27 +1042,15 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 FSN HF线凛『摘』回来的那团东西也确实有小薄本描绘成士郎子
 
 
-
-
-
-
-
 -----
 
 ####  有马菜菜  
 ##### 74#       发表于 2013-5-7 23:26
 
 
-
-
 10话布卡更新了。这是什么，当家变身成大人？
 
 ----发送自 [samsung GT-I9300,Android 4.2.1](http://stage1.5j4m.com)
-
-
-
-
-
 
 
 -----
@@ -1505,15 +1061,9 @@ FSN HF线凛『摘』回来的那团东西也确实有小薄本描绘成士郎�
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 冰宫、黑玉皇，还有把带钩的短剑，又到了猜宝具的时间了
 
 田中你那招真的不是卡咩哈咩哈？
-
-
-
-
-
 
 
 -----
@@ -1522,7 +1072,6 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 ##### 76#       发表于 2013-5-8 08:40
 
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
-
 
 
 带钩的短剑没看到，第几页？
@@ -1537,18 +1086,12 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 黑玉皇的注音似乎是绝对王权或者唯我独尊的意思，很适合秦始皇
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 77#       发表于 2013-5-8 08:52
 
 回 72楼(handing) 的帖子
-
 
 
 他这个伤害免疫和阿瓦隆的表现差距有点远啊…而且田中也没有saber魔力支持，当然更重要的是我不认为会刷两个呆毛，既然这边第六次目前刷的人都和第五次不一样
@@ -1558,18 +1101,12 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 嗯，我和另外个月厨认为有这个可能性
 
 
-
-
-
-
-
 -----
 
 ####  eva2000as  
 ##### 78#       发表于 2013-5-8 09:13
 
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
-
 
 
 アブネック・ビューティ
@@ -1589,11 +1126,6 @@ n. 庇隆主义（指以国家复兴和民族解放为主要内容，同时主�
 至于说黑……汉以火德，朝中也尽是黑服。黄=皇这个是宋明理学发展才搞出来的吧？
 
 
-
-
-
-
-
 -----
 
 ####  mkii量产型  
@@ -1602,13 +1134,7 @@ n. 庇隆主义（指以国家复兴和民族解放为主要内容，同时主�
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 这作者绝赞，除了那手画的不怎么样，伊利亚这些loli也就算了，几个成年体的手也是又小又短又园，完全不好看
-
-
-
-
-
 
 
 -----
@@ -1631,11 +1157,6 @@ Re:Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ
 最后的短剑除了外观没有一点情报，太难猜了……
 
 
-
-
-
-
-
 -----
 
 ####  03e7  
@@ -1650,11 +1171,6 @@ n. 庇隆主义（指以国家复兴和民族解放为主要内容，同时主�
 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>是personalism……
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
@@ -1663,15 +1179,9 @@ n. 庇隆主义（指以国家复兴和民族解放为主要内容，同时主�
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 哦哦，冰棺感觉有点靠谱
 不过白雪公主略奇怪吧…
 找找神话里应该也有其他冰棺吧
-
-
-
-
-
 
 
 -----
@@ -1680,7 +1190,6 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 ##### 83#       发表于 2013-5-8 11:53
 
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
-
 
 
 オーソリテリアン 威权主义、专制主义、独裁主义
@@ -1704,14 +1213,8 @@ apneic beaty
 贴吧有人猜是北欧神话冥土与冬之女神赫尔，『无呼吸的美人=死之美人，加上永久冰宫』
 
 
-
 顺便那啥大叔右手一直插口袋里，可能不止一张卡
 都第六次圣杯战争，每次都用卡片的话就留下了不少，更不用说他们还掌握了平行世界旅行
-
-
-
-
-
 
 
 -----
@@ -1720,7 +1223,6 @@ apneic beaty
 ##### 84#       发表于 2013-5-8 14:29
 
 回 79楼(03e7) 的帖子
-
 
 
 玉不一定是实指 
@@ -1735,18 +1237,12 @@ apneic beaty
 从黑这个关键字来看，我觉得还是始皇帝可能最大，至少应该是出自秦汉系
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 85#       发表于 2013-5-8 14:31
 
 回 82楼(handing) 的帖子
-
 
 
 我想应该只有这一次的卡吧…
@@ -1757,18 +1253,12 @@ apneic beaty
 不过美游和土狼可能也有…田中甚至本身可能就是一张卡
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 86#       发表于 2013-5-9 00:57
 
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
-
 
 
 啊，又看了一次11话
@@ -1779,18 +1269,12 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 再加上王权的概念臣服导致的重压与黑色……都指向秦始皇
 
 
-
-
-
-
-
 -----
 
 ####  handing  
 ##### 87#       发表于 2013-5-23 13:07
 
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
-
 
 
 官网大更新
@@ -1807,7 +1291,6 @@ CV
 <img src="http://ww4.sinaimg.cn/bmiddle/6bae1be8jw1e4y53ickz4j208v07lq3i.jpg" referrerpolicy="no-referrer">
 
 
-
 另外第二回人气投票开始了
 
 第二卷封面
@@ -1815,11 +1298,6 @@ CV
 
 
  1话・2话6月22日先行上映会：[http://prisma-illya.jp/portal/archives/122](http://prisma-illya.jp/portal/archives/122)
-
-
-
-
-
 
 
 -----
@@ -1830,14 +1308,8 @@ CV
 回 86楼(handing) 的帖子
 
 
-
 好~
 我看到还要出周边游戏。
-
-
-
-
-
 
 
 -----
@@ -1860,11 +1332,6 @@ CV
 |vgmdb [http://vgmdb.net/album/39388](http://vgmdb.net/album/39388)
 
 
-
-
-
-
-
 -----
 
 ####  trb315  
@@ -1873,13 +1340,7 @@ CV
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 出在3DS上大暴死
-
-
-
-
-
 
 
 -----
@@ -1890,16 +1351,10 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 漫画『魔法少女伊莉雅3rei！！』第4卷限定版将附送原创动画BD（约25分钟），2014年1月25日发售，价格3990円（含税）
 <img src="http://ww1.sinaimg.cn/bmiddle/6bae1be8jw1e4yevpes1ij20i70o9wl5.jpg" referrerpolicy="no-referrer">
 
 本月图透：ttp://s1.gazo.cc/up/53902.jpg
-
-
-
-
-
 
 
 -----
@@ -1910,13 +1365,7 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 美游prpr
-
-
-
-
-
 
 
 -----
@@ -1927,14 +1376,8 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 ttp://s1.gazo.cc/up/53907.jpg
 图透2
-
-
-
-
-
 
 
 -----
@@ -1945,15 +1388,9 @@ ttp://s1.gazo.cc/up/53907.jpg
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 ORZ他到底在做什么
 
 用荆棘扎圣杯是要闹哪样
-
-
-
-
-
 
 
 -----
@@ -1964,15 +1401,9 @@ ORZ他到底在做什么
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 11话熟肉出了``
 倒数第二张这不是某枪兵么...
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer"> 田中就是UBW了吧
-
-
-
-
-
 
 
 -----
@@ -1981,16 +1412,9 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 ##### 96#       发表于 2013-6-4 02:25
 
 
-
-
 有点乱。。
 
 ----发送自 [samsung GT-I9300,Android 4.2.1](http://stage1.5j4m.com)
-
-
-
-
-
 
 
 -----
@@ -2008,11 +1432,6 @@ Re:Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ
 “既不是重力也不是肢體操作”
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
@@ -2021,13 +1440,7 @@ Re:Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ
 回 96楼(03e7) 的帖子
 
 
-
 很多翻译都很奇怪……巴菲特是谁……石油大亨么
-
-
-
-
-
 
 
 -----
@@ -2038,19 +1451,11 @@ Re:Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ
 回 97楼(高等黑暗) 的帖子
 
 
-
 飞橙的翻译不是一向 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer"> 么，隔壁的神知好像就是有人看不下去于是到热情组去参与汉化了
-
-
 
 
 12话生肉 by Paitouch@魔兽之森
 [http://pan.baidu.com/share/link? ... p;amp;uk=1813232883](http://pan.baidu.com/share/link?shareid=563357&amp;amp;uk=1813232883)
-
-
-
-
-
 
 
 -----
@@ -2061,14 +1466,8 @@ Re:Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ
 回 98楼(handing) 的帖子
 
 
-
 (#11)
 那么有别的组也做这个吗？像神知那样…
-
-
-
-
-
 
 
 -----
@@ -2079,15 +1478,9 @@ Re:Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ
 回 99楼(laoism) 的帖子
 
 
-
 因为只有一家所以只能将就下了
 
 不过比以前图源三天两头断源的时候要好多了，至少他家的图源是稳定的，拼图改图还算不错
-
-
-
-
-
 
 
 -----
@@ -2106,18 +1499,12 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 7/6 NICO先行
 
 
-
-
-
-
-
 -----
 
 ####  handing  
 ##### 103#       发表于 2013-6-14 01:04
 
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
-
 
 
 CV追加， 
@@ -2142,11 +1529,6 @@ BD&amp;amp;DVD 发售日期公开，第1卷2013年9月27日发售、第2卷10月
  BD第二卷限定特典：主要声优出演的首都圈大型演出活动优先购入票 ，10月25日发售 |amazon [http://t.cn/zHEfA0n](http://t.cn/zHEfA0n)
 
 
-
-
-
-
-
 -----
 
 ####  handing  
@@ -2157,7 +1539,6 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 <strong>PV2公开</strong>
 [http://www.bilibili.tv/video/av602401/](http://www.bilibili.tv/video/av602401/)
-
 
 
 这2个是剧中剧动画『魔法少女武士道』角色：
@@ -2180,11 +1561,6 @@ BD全卷购入特典 [http://t.cn/zHEHa9j](http://t.cn/zHEHa9j)
 感觉为了卖盘丧心病狂了已经...
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
@@ -2196,11 +1572,6 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 <img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">魔伊拯救大沼心，毫无疑问！
 
 
-
-
-
-
-
 -----
 
 ####  laoism  
@@ -2209,13 +1580,7 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 12话熟肉已出。一些谜题还要等下回分解。
-
-
-
-
-
 
 
 -----
@@ -2226,15 +1591,9 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 看完12话
 脑补了下太太配的美游的声音……
 <img src="https://static.saraba1st.com/image/smiley/dym/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2245,13 +1604,7 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 是7月新番还是10月来着？
-
-
-
-
-
 
 
 -----
@@ -2262,13 +1615,7 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 良心，必须看！！！！！！！！！！！！！！！！<img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2277,16 +1624,9 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 ##### 110#       发表于 2013-6-24 08:52
 
 
-
-
 好棒好棒的，不知蘑菇出了几分力？<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 ----发送自 [Xiaomi MI 2A,Android 4.1.1](http://stage1.5j4m.com)
-
-
-
-
-
 
 
 -----
@@ -2295,7 +1635,6 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 ##### 111#       发表于 2013-6-24 08:58
 
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
-
 
 
 12话勘误 - -
@@ -2319,11 +1658,6 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 先行上映会感想
 
 
-
-
-
-
-
 -----
 
 ####  lotwhite  
@@ -2332,16 +1666,10 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 全卷购入抽奖特典：1/1大小具有发声功能的魔杖 Kaleid ruby &amp;amp; Sapphire.
 
 
 羞耻play新道具么，别说再是麻婆配音的 <img src="https://static.saraba1st.com/image/smiley/face/94.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2356,11 +1684,6 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 这是报应吗？<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  结标淡希  
@@ -2372,11 +1695,6 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 <img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer"> 哈哈哈哈伊莉雅你看看你，玩土狼太多遭报应了吧
 
 
-
-
-
-
-
 -----
 
 ####  熊起  
@@ -2385,13 +1703,7 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 结果动画里他妈还是出不来啊
-
-
-
-
-
 
 
 -----
@@ -2403,11 +1715,6 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">熊孩子真会玩啊！
-
-
-
-
-
 
 
 -----
@@ -2425,11 +1732,6 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 小金uccu（
 
 
-
-
-
-
-
 -----
 
 ####  blueflames001  
@@ -2443,18 +1745,12 @@ Re:Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ
 这是报应吗？<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer"></blockquote>天理循环，报应不爽
 
 
-
-
-
-
-
 -----
 
 ####  handing  
 ##### 119#       发表于 2013-6-29 13:06
 
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
-
 
 
 #13生肉
@@ -2464,14 +1760,8 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 图源 paitouch
 
 
-
 娘TYPE Pin-up 版权绘。萌妹： [https://yande.re/post/show/259385](https://yande.re/post/show/259385) 
 <img src="http://ww3.sinaimg.cn/thumbnail/6bae1be8jw1e64y0ofjzkj215o0skafh.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2485,11 +1775,6 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">值得一用
 
 
-
-
-
-
-
 -----
 
 ####  山风子  
@@ -2498,13 +1783,7 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 这么少女的画风真的没关系么- -
-
-
-
-
-
 
 
 -----
@@ -2515,16 +1794,10 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 我刚才看到新帖才知道先行是现在就出：
 [《Fate/kaleid liner 魔法少女☆伊莉雅》 nico先行第一话 「誕生！魔法少女！」 ](http://bbs.saraba1st.com/2b/read-htm-tid-931137.html)
 
 话说，动画漫画砖楼分开或许比较好？
-
-
-
-
-
 
 
 -----
@@ -2535,13 +1808,7 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 我也觉得。漫画和动画分开比较好，毕竟有些人会只看其中一样吧——像我一般就只看漫画<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2550,7 +1817,6 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 ##### 124#       发表于 2013-7-25 01:14
 
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
-
 
 
 那麼我貼回來這邊吧
@@ -2562,11 +1828,6 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 蒼哥罪孽深重！！！！（咦？
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
@@ -2575,15 +1836,9 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 
 
-
 @handing
 今期的生肉有没有流出！
 （其实生肉都是哪来的？
-
-
-
-
-
 
 
 -----
@@ -2592,7 +1847,6 @@ Re:【砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid linerプリズマ☆
 ##### 126#       发表于 2013-7-31 19:23
 
 回 124楼(高等黑暗) 的帖子
-
 
 
 @高等黑暗 
@@ -2609,11 +1863,6 @@ beast&amp;#39;s lair的源，似乎k岛某人也有个生肉源而且比这快�
 k岛那位似乎也有单行本生肉扫图也不知来源，估计是哪里内部分享的图
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
@@ -2622,20 +1871,13 @@ k岛那位似乎也有单行本生肉扫图也不知来源，估计是哪里内�
 回 125楼(handing) 的帖子
 
 
-
 怒谢生肉
-
-
-
-
-
 
 
 -----
 
 ####  handing  
 ##### 128#       发表于 2013-8-29 16:45
-
 
 
 [http://tieba.baidu.com/p/2561972779](http://tieba.baidu.com/p/2561972779)
@@ -2646,16 +1888,10 @@ k岛那位似乎也有单行本生肉扫图也不知来源，估计是哪里内�
 终于有人忍受不了抢坑了
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 129#       发表于 2013-8-29 16:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=22895553&amp;ptid=866827" target="_blank">handing 发表于 2013-8-29 16:45</a>
@@ -2666,32 +1902,19 @@ http://tieba.baidu.com/p/2561972779
 生肉流出那么早烤熟那么慢还错漏百出，早该抢啦！
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 130#       发表于 2013-8-29 16:55
 
 
-
-
 卖萌装傻剧情太多了 多走点主线行么。。。。第3季靠卖萌拖剧情比第2季还厉害。
-
-
-
-
-
 
 
 -----
 
 ####  高等黑暗  
 ##### 131#       发表于 2013-8-29 17:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=22895657&amp;ptid=866827" target="_blank">革新 发表于 2013-8-29 16:55</a>
@@ -2704,25 +1927,13 @@ http://tieba.baidu.com/p/2561972779
 别要求那么多，有更多伊莉雅看不是很好么！
 
 
-
-
-
-
-
 -----
 
 ####  laoism  
 ##### 132#         楼主| 发表于 2013-8-31 18:00
 
 
-
-
 动漫之家14话熟肉也换了家：[http://www.dmzj.com/fklmfsnyly/26153.shtml](http://www.dmzj.com/fklmfsnyly/26153.shtml)
-
-
-
-
-
 
 
 -----
@@ -2731,23 +1942,15 @@ http://tieba.baidu.com/p/2561972779
 ##### 133#       发表于 2013-8-31 18:59
 
 
-
-
 话说15话的生肉出了没
 
 前几天在微博好像看到情报图了
-
-
-
-
-
 
 
 -----
 
 ####  laoism  
 ##### 134#         楼主| 发表于 2013-8-31 19:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=22915164&amp;ptid=866827" target="_blank">高等黑暗 发表于 2013-8-31 18:59</a>
@@ -2758,33 +1961,19 @@ http://tieba.baidu.com/p/2561972779
 情报图是布偶挥魔杖那个吗？最近为了防止被剧透#15我贴吧都不开了…
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 135#       发表于 2013-8-31 19:32
 
 
-
-
 有生肉自食才能免除被剧透的苦恼啊！请问有生肉么！
-
-
-
-
-
 
 
 -----
 
 ####  handing  
 ##### 136#       发表于 2013-9-4 08:57
-
-
 
 
 15#
@@ -2794,25 +1983,13 @@ http://tieba.baidu.com/p/2561972779
 15生，scan by Paitouch，今早出了
 
 
-
-
-
-
-
 -----
 
 ####  03e7  
 ##### 137#       发表于 2013-9-4 10:32
 
 
-
-
 233333魔法玩偶伊莉娅
-
-
-
-
-
 
 
 -----
@@ -2821,13 +1998,7 @@ http://tieba.baidu.com/p/2561972779
 ##### 138#       发表于 2013-9-4 11:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/02.gif" referrerpolicy="no-referrer">魔法玩偶
-
-
-
-
-
 
 
 -----
@@ -2836,16 +2007,9 @@ http://tieba.baidu.com/p/2561972779
 ##### 139#       发表于 2013-9-4 11:46
 
 
-
-
 话说现在依利雅本体成无口属性了••••
 
 prpr！
-
-
-
-
-
 
 
 -----
@@ -2854,15 +2018,9 @@ prpr！
 ##### 140#       发表于 2013-9-4 11:47
 
 
-
  本帖最后由 stewie 于 2013-9-4 11:48 编辑 
 
 连击••••
-
-
-
-
-
 
 
 -----
@@ -2871,14 +2029,7 @@ prpr！
 ##### 141#       发表于 2013-9-4 16:27
 
 
-
-
 3rei超好看，这剧情特别适合出小本子！
-
-
-
-
-
 
 
 -----
@@ -2887,16 +2038,10 @@ prpr！
 ##### 142#       发表于 2013-9-6 11:57
 
 
-
 [http://pan.baidu.com/share/link? ... 45&amp;uk=808714138](http://pan.baidu.com/share/link?shareid=565477545&amp;uk=808714138)
 
 
 这次汉化飞快…
-
-
-
-
-
 
 
 -----
@@ -2905,15 +2050,8 @@ prpr！
 ##### 143#         楼主| 发表于 2013-9-13 16:42
 
 
-
-
 #15蛤蛤蛤蛤蛤蛤蛤
 [http://www.dmzj.com/fklmfsnyly/26358.shtml](http://www.dmzj.com/fklmfsnyly/26358.shtml)
-
-
-
-
-
 
 
 -----
@@ -2922,14 +2060,7 @@ prpr！
 ##### 144#       发表于 2013-9-13 17:29
 
 
-
-
 闪闪娘离开后艾丽卡一脸兴致地看着伊莉雅的身体，后面大概就是各种换装play了
-
-
-
-
-
 
 
 -----
@@ -2938,21 +2069,13 @@ prpr！
 ##### 145#         楼主| 发表于 2013-10-3 13:56
 
 
-
-
 今天出了番外篇2熟肉：[http://www.dmzj.com/fklmfsnyly/26646.shtml](http://www.dmzj.com/fklmfsnyly/26646.shtml)
-
-
-
-
-
 
 
 -----
 
 ####  莉洁莉特  
 ##### 146#       发表于 2013-10-3 20:00
-
 
 
  本帖最后由 莉洁莉特 于 2013-11-9 23:32 编辑 
@@ -2962,16 +2085,10 @@ prpr！
 小黑大人好姿势<img src="https://static.saraba1st.com/image/smiley/goose/58.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  laoism  
 ##### 147#         楼主| 发表于 2013-10-3 21:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=23195331&amp;ptid=866827" target="_blank">莉洁莉特 发表于 2013-10-3 20:00</a>
@@ -2982,16 +2099,10 @@ prpr！
 虽然没看到图不过你指的应该是那个好像jojo的姿势吧。
 
 
-
-
-
-
-
 -----
 
 ####  莉洁莉特  
 ##### 148#       发表于 2013-10-3 21:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=23196027&amp;ptid=866827" target="_blank">laoism 发表于 2013-10-3 21:41</a>
@@ -3002,16 +2113,10 @@ prpr！
 为啥我能刷出来
 
 
-
-
-
-
-
 -----
 
 ####  laoism  
 ##### 149#         楼主| 发表于 2013-11-9 22:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=23196132&amp;ptid=866827" target="_blank">莉洁莉特 发表于 2013-10-3 21:57</a>
@@ -3020,17 +2125,10 @@ prpr！
 你好像换图床了，不过“空间过期 请及时续费…”
 
 
-
-
-
-
-
 -----
 
 ####  laoism  
 ##### 150#         楼主| 发表于 2013-11-9 22:21
-
-
 
 
 台角版3rei!!单行本1出了在线：
@@ -3039,24 +2137,13 @@ prpr！
 番外6和后记值得一看…
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 151#       发表于 2013-11-9 22:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/159.jpg" referrerpolicy="no-referrer">年收1亿可娶作者
-
-
-
-
-
 
 
 -----
@@ -3065,14 +2152,7 @@ prpr！
 ##### 152#       发表于 2013-11-9 22:50
 
 
-
-
 作者的妹神也更新了， 这个作者画漫画节奏实在是慢
-
-
-
-
-
 
 
 -----
@@ -3081,16 +2161,10 @@ prpr！
 ##### 153#         楼主| 发表于 2013-11-9 23:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=23548773&amp;ptid=866827" target="_blank">magnuslux 发表于 2013-11-9 22:54</a>
 
 作者真的是自画像里的美女么……</blockquote>
 [广山弘](http://bgm.tv/person/9280)，性别：男
-
-
-
-
-
 
 
 -----
@@ -3099,16 +2173,10 @@ prpr！
 ##### 154#       发表于 2013-11-9 23:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=23548439&amp;ptid=866827" target="_blank">laoism 发表于 2013-11-9 22:19</a>
 
 你好像换图床了，不过“空间过期 请及时续费…”</blockquote>
 我都快忘了这是啥图了
-
-
-
-
-
 
 
 -----
@@ -3117,15 +2185,9 @@ prpr！
 ##### 155#       发表于 2013-11-10 00:12
 
 
-
  本帖最后由 莉洁莉特 于 2013-11-10 00:15 编辑 
 
 还以为三期我没出场机会了呢，结果在番外里露了一小脸<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">可怜的塞拉 自己胸部好像有变大了
-
-
-
-
-
 
 
 -----
@@ -3134,14 +2196,7 @@ prpr！
 ##### 156#         楼主| 发表于 2013-12-11 03:31
 
 
-
-
 16话熟肉出~[http://manhua.dmzj.com/fklmfsnyly/27796.shtml](http://manhua.dmzj.com/fklmfsnyly/27796.shtml)
-
-
-
-
-
 
 
 -----
@@ -3150,21 +2205,13 @@ prpr！
 ##### 157#       发表于 2013-12-11 05:02
 
 
-
-
 伊利亚拿蓝宝石也能变？没契约过吧？
-
-
-
-
-
 
 
 -----
 
 ####  卡蓮  
 ##### 158#       发表于 2013-12-11 05:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=23853933&amp;ptid=866827" target="_blank">altauro 发表于 2013-12-11 05:02</a>
@@ -3181,24 +2228,13 @@ prpr！
 2013-12-11 05:54 上传
 
 
-
-
-
-
 2期最终卷
-
-
-
-
-
 
 
 -----
 
 ####  高等黑暗  
 ##### 159#       发表于 2013-12-11 10:10
-
-
 
 
 契约只是一个长期认证
@@ -3208,32 +2244,19 @@ prpr！
 比如两魔法大妈就在打saber的时候临时认证过
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 160#       发表于 2013-12-11 10:10
 
 
-
-
 话说这次熟肉出得快还是生肉没流出！我想跪舔都没机会！
-
-
-
-
-
 
 
 -----
 
 ####  臼沢塞  
 ##### 161#       发表于 2013-12-29 15:08
-
 
 
 <img src="http://ww2.sinaimg.cn/bmiddle/87c7e3b3jw1ec0kpe2sqdj20b40bg414.jpg" referrerpolicy="no-referrer">
@@ -3251,25 +2274,13 @@ prpr！
 <img src="https://static.saraba1st.com/image/smiley/face/136.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  结标淡希  
 ##### 162#       发表于 2013-12-29 15:14
 
 
-
-
 小金好萌（
-
-
-
-
-
 
 
 -----
@@ -3278,14 +2289,7 @@ prpr！
 ##### 163#       发表于 2013-12-29 15:39
 
 
-
-
 求生肉地址
-
-
-
-
-
 
 
 -----
@@ -3294,13 +2298,7 @@ prpr！
 ##### 164#       发表于 2013-12-29 21:28
 
 
-
 [@臼沢塞](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=258769) 求生肉 
-
-
-
-
-
 
 
 -----
@@ -3309,24 +2307,16 @@ prpr！
 ##### 165#       发表于 2013-12-30 04:37
 
 
-
-
 番外二兩個超明顯梗是jojo立和arms啊
 
 
 ----发送自 [Sony C6903,Android 4.3](http://stage1.5j4m.com)
 
 
-
-
-
-
-
 -----
 
 ####  臼沢塞  
 ##### 166#       发表于 2014-1-9 22:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=24041228&amp;ptid=866827" target="_blank">高等黑暗 发表于 2013-12-29 21:28</a>
@@ -3337,25 +2327,13 @@ prpr！
 。虽然是去年的贴了，不过某确实是现在才看到生肉。。
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 167#       发表于 2014-1-9 22:59
 
 
-
-
 这么一说就有好久远的感觉………………2cat打不开图啊！
-
-
-
-
-
 
 
 -----
@@ -3364,17 +2342,10 @@ prpr！
 ##### 168#       发表于 2014-2-6 00:33
 
 
-
-
 18话熟肉出了
 
 
 剧情朝着钢之大地直直的突进啊？！
-
-
-
-
-
 
 
 -----
@@ -3383,17 +2354,10 @@ prpr！
 ##### 169#       发表于 2014-2-6 00:55
 
 
-
-
 美游世界有几个地方已经是钢之大陆了吧，连sin都跑出来了
 
 
 顺便还提了下mooncell
-
-
-
-
-
 
 
 -----
@@ -3402,14 +2366,7 @@ prpr！
 ##### 170#         楼主| 发表于 2014-2-6 14:40
 
 
-
-
 #18，暗杀者造型的伊莉雅感觉不错？
-
-
-
-
-
 
 
 -----
@@ -3418,14 +2375,7 @@ prpr！
 ##### 171#       发表于 2014-2-19 15:46
 
 
-
-
 这转折…………卫宫家还真是必然遇上这种两难选择啊
-
-
-
-
-
 
 
 -----
@@ -3434,23 +2384,15 @@ prpr！
 ##### 172#       发表于 2014-2-19 16:43
 
 
-
-
 选屁啦
 
 杀姬友？叔可忍婶不可忍<img src="https://static.saraba1st.com/image/smiley/face/05.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  zechins  
 ##### 173#       发表于 2014-3-1 14:22
-
 
 
  本帖最后由 zechins 于 2014-3-1 14:26 编辑 
@@ -3466,17 +2408,10 @@ prpr！
 嘴炮开得飞起的一话，打得风生水起，小黑prpr，又是开大又是大计数投影，估计这段打完又该补魔了(ry
 
 
-
-
-
-
-
 -----
 
 ####  结标淡希  
 ##### 174#       发表于 2014-3-1 14:29
-
-
 
 
 肯定是小金来收尾刀回收自己的卡片啦
@@ -3488,25 +2423,13 @@ prpr！
 打loli屁股激赞（
 
 
-
-
-
-
-
 -----
 
 ####  卡蓮  
 ##### 175#       发表于 2014-3-1 15:48
 
 
-
-
 两边都救什么的，特别像某个红头发会做的事情吧
-
-
-
-
-
 
 
 -----
@@ -3515,14 +2438,7 @@ prpr！
 ##### 176#       发表于 2014-3-1 20:29
 
 
-
-
 为什么伊利亚越来越像士狼了，。。。。
-
-
-
-
-
 
 
 -----
@@ -3531,14 +2447,7 @@ prpr！
 ##### 177#       发表于 2014-3-1 20:31
 
 
-
-
 球最后土狼过来狂霸酷拽叼炸天的虐翻全场<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3547,15 +2456,9 @@ prpr！
 ##### 178#         楼主| 发表于 2014-3-4 04:57
 
 
-
 [#19熟肉](http://manhua.dmzj.com/fklmfsnyly/29091.shtml)出，原来暗杀者卡是藏在内…
 
 p12被拍屁股的表情…话说这集裸飘略多=_,=
-
-
-
-
-
 
 
 -----
@@ -3564,16 +2467,10 @@ p12被拍屁股的表情…话说这集裸飘略多=_,=
 ##### 179#       发表于 2014-3-8 15:49
 
 
-
 [http://www.bilibili.tv/video/av998987/](http://www.bilibili.tv/video/av998987/)
 
 
 ova小学生跳舞还真不错，可惜画面颜色太av了
-
-
-
-
-
 
 
 -----
@@ -3582,7 +2479,6 @@ ova小学生跳舞还真不错，可惜画面颜色太av了
 ##### 180#       发表于 2014-3-8 17:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=24719832&amp;ptid=866827" target="_blank">革新 发表于 2014-3-8 15:49</a>
 
 http://www.bilibili.tv/video/av998987/
@@ -3593,11 +2489,6 @@ ova小学生跳舞还真不错，可惜画面颜色太av了 ...</blockquote>
 
 
 不过还真敢玩hellsing的梗啊……
-
-
-
-
-
 
 
 -----
@@ -3606,7 +2497,6 @@ ova小学生跳舞还真不错，可惜画面颜色太av了 ...</blockquote>
 ##### 181#       发表于 2014-3-8 17:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=24719832&amp;ptid=866827" target="_blank">革新 发表于 2014-3-8 15:49</a>
 
 http://www.bilibili.tv/video/av998987/
@@ -3619,16 +2509,10 @@ ova小学生跳舞还真不错，可惜画面颜色太av了 ...</blockquote>
 不过还真敢玩hellsing的梗啊……
 
 
-
-
-
-
-
 -----
 
 ####  kerorokun  
 ##### 182#       发表于 2014-3-8 17:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=24720550&amp;ptid=866827" target="_blank">卡蓮 发表于 2014-3-8 17:23</a>
@@ -3640,16 +2524,10 @@ ova小学生跳舞还真不错，可惜画面颜色太av了 ...</blockquote>
 hellsing啥梗?
 
 
-
-
-
-
-
 -----
 
 ####  卡蓮  
 ##### 183#       发表于 2014-3-9 00:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=24720736&amp;ptid=866827" target="_blank">kerorokun 发表于 2014-3-8 17:48</a>
@@ -3658,17 +2536,10 @@ hellsing啥梗?</blockquote>
 龙子的search and destroy, search and destroy，那段明显就是吧
 
 
-
-
-
-
-
 -----
 
 ####  sauron.j  
 ##### 184#       发表于 2014-3-9 04:11
-
-
 
 
 下了BD才发现原画质量真的很高，明明给人印象是低预算的动画，总作画监督我们做朋友好不好嘛
@@ -3677,32 +2548,20 @@ hellsing啥梗?</blockquote>
 <img src="http://i31.photobucket.com/albums/c354/545454_/66B498CE622A56FE201438262257789_zps6baa74f6.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zechins  
 ##### 185#       发表于 2014-3-28 12:37
 
 
-
 [http://2cat.or.tl/~tedc21thc/new/pixmicat.php?res=1206675](http://2cat.or.tl/~tedc21thc/new/pixmicat.php?res=1206675)
 这个月是卖萌日常番外篇…
-
-
-
-
-
 
 
 -----
 
 ####  高等黑暗  
 ##### 186#       发表于 2014-4-30 21:06
-
 
 
 <img src="http://ww1.sinaimg.cn/large/87c7e3b3jw1efxbbfgq0ij20b405tt9t.jpg" referrerpolicy="no-referrer">
@@ -3714,25 +2573,13 @@ hellsing啥梗?</blockquote>
 www在另外那本小说里面明明是最强职阶
 
 
-
-
-
-
-
 -----
 
 ####  laoism  
 ##### 187#         楼主| 发表于 2014-5-3 18:47
 
 
-
-
 楼主失格，今天才看到漫画3季20话。附带好多TM广告的样子。
-
-
-
-
-
 
 
 -----
@@ -3741,16 +2588,9 @@ www在另外那本小说里面明明是最强职阶
 ##### 188#       发表于 2014-5-3 18:47
 
 
-
-
 熟肉也出了
 
 赞
-
-
-
-
-
 
 
 -----
@@ -3759,17 +2599,10 @@ www在另外那本小说里面明明是最强职阶
 ##### 189#       发表于 2014-5-3 18:54
 
 
-
-
 Rule Breaker真是好东西，遇到什么问题插一下准没错
 
 
 恭喜真男主小金再次怒攒时髦值（
-
-
-
-
-
 
 
 -----
@@ -3778,18 +2611,10 @@ Rule Breaker真是好东西，遇到什么问题插一下准没错
 ##### 190#       发表于 2014-5-3 19:40
 
 
-
-
 小金人气投票第三，怒压被绑架的小公主美游一头
 
 
-
 不过说实话，的确帅哭了，求你一辈子别长大了
-
-
-
-
-
 
 
 -----
@@ -3798,14 +2623,7 @@ Rule Breaker真是好东西，遇到什么问题插一下准没错
 ##### 191#       发表于 2014-5-3 19:54
 
 
-
-
 小公主人气不够是因为第三季到目前为止一直是被监禁哭哭状态啦<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3814,13 +2632,7 @@ Rule Breaker真是好东西，遇到什么问题插一下准没错
 ##### 192#       发表于 2014-5-3 23:52
 
 
-
 <img src="http://ww3.sinaimg.cn/large/67381bf4jw1eg1iv1okzvj20fg0bx76p.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3829,14 +2641,7 @@ Rule Breaker真是好东西，遇到什么问题插一下准没错
 ##### 193#       发表于 2014-5-4 00:09
 
 
-
-
 楼上这个改图是什么梗？
-
-
-
-
-
 
 
 -----
@@ -3845,14 +2650,7 @@ Rule Breaker真是好东西，遇到什么问题插一下准没错
 ##### 194#       发表于 2014-5-4 00:20
 
 
-
-
 最近总算走正经剧情不买萌拖戏了挺好。  这次boss身上到底有什么东西这么nb
-
-
-
-
-
 
 
 -----
@@ -3861,14 +2659,7 @@ Rule Breaker真是好东西，遇到什么问题插一下准没错
 ##### 195#       发表于 2014-5-4 01:08
 
 
-
-
 牛逼倒说不好，我怀疑是置换了黑泥或者sin
-
-
-
-
-
 
 
 -----
@@ -3877,16 +2668,10 @@ Rule Breaker真是好东西，遇到什么问题插一下准没错
 ##### 196#       发表于 2014-5-4 01:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=25267598&amp;ptid=866827" target="_blank">高等黑暗 发表于 2014-5-4 00:09</a>
 
 楼上这个改图是什么梗？</blockquote>
 迈克杰克逊的《dangerous》
-
-
-
-
-
 
 
 -----
@@ -3895,13 +2680,7 @@ Rule Breaker真是好东西，遇到什么问题插一下准没错
 ##### 197#       发表于 2014-5-4 02:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">明明上一话还觉得是死局，这话那么豪爽的展开反而有一切大丈夫的感觉
-
-
-
-
-
 
 
 -----
@@ -3910,13 +2689,7 @@ Rule Breaker真是好东西，遇到什么问题插一下准没错
 ##### 198#       发表于 2014-5-4 08:12
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer">这种飒爽又豪快的展开才好看（
-
-
-
-
-
 
 
 -----
@@ -3925,16 +2698,9 @@ Rule Breaker真是好东西，遇到什么问题插一下准没错
 ##### 199#       发表于 2014-5-4 08:32
 
 
-
-
 “我所爱的人，会踩着七彩祥云飞来救我……”
 
 这段子好熟啊！这真不是转成姬佬漫了？
-
-
-
-
-
 
 
 -----
@@ -3943,14 +2709,7 @@ Rule Breaker真是好东西，遇到什么问题插一下准没错
 ##### 200#       发表于 2014-5-4 08:37
 
 
-
-
 面对这梦幻召唤与限定展开的组合技，英灵本尊们不知道会是什么心情
-
-
-
-
-
 
 
 -----
@@ -3959,21 +2718,13 @@ Rule Breaker真是好东西，遇到什么问题插一下准没错
 ##### 201#       发表于 2014-5-4 08:59
 
 
-
-
 这次进攻是小黑策划的吧，十分精彩，凛大姐你可以下岗乖乖当打手了
-
-
-
-
-
 
 
 -----
 
 ####  高等黑暗  
 ##### 202#       发表于 2014-5-4 10:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=25268763&amp;ptid=866827" target="_blank">風駿 发表于 2014-5-4 08:37</a>
@@ -3984,27 +2735,15 @@ Rule Breaker真是好东西，遇到什么问题插一下准没错
 打起来好看啊谁管你什么心情！
 
 
-
-
-
-
-
 -----
 
 ####  03e7  
 ##### 203#       发表于 2014-5-4 10:20
 
 
-
-
 一直想吐槽，美狄亚一个魔术屌炸天体术战五渣的魔女，给她一把破魔的短剑这是何等的恶意。
 
 更别说那个EX级的装饰品金羊毛
-
-
-
-
-
 
 
 -----
@@ -4013,14 +2752,7 @@ Rule Breaker真是好东西，遇到什么问题插一下准没错
 ##### 204#       发表于 2014-5-4 10:27
 
 
-
-
 assassin到底有多弱啊，这游戏还能不能玩
-
-
-
-
-
 
 
 -----
@@ -4029,21 +2761,13 @@ assassin到底有多弱啊，这游戏还能不能玩
 ##### 205#       发表于 2014-5-4 10:31
 
 
-
-
 看小金的帽子还以为看到月光条例主角了
-
-
-
-
-
 
 
 -----
 
 ####  高等黑暗  
 ##### 206#       发表于 2014-5-4 11:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=25269724&amp;ptid=866827" target="_blank">03e7 发表于 2014-5-4 10:20</a>
@@ -4058,16 +2782,10 @@ assassin到底有多弱啊，这游戏还能不能玩
 所以美狄亚必须体术战五渣，通过计策才能发挥宝具威力，否则就天下无敌了
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 207#       发表于 2014-5-4 11:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=25269806&amp;ptid=866827" target="_blank">sandro 发表于 2014-5-4 10:27</a>
@@ -4078,25 +2796,14 @@ asn在隔壁伪典圣杯里可是被称为最强职阶，只要选择asn就代�
 因为哈桑人数有限，圣杯战争被重复太多次导致所有哈桑的宝具技能早就是公开之密，还有专门的应对技巧，就算这样哈桑还是夺得圣杯最多的职阶。。。。。。。
 
 
-
-
-
-
-
 -----
 
 ####  zechins  
 ##### 208#       发表于 2014-5-24 12:35
 
 
-
 <img src="http://ww2.sinaimg.cn/large/87c7e3b3jw1egp8quodavj20a70g5gn4.jpg" referrerpolicy="no-referrer">
 美遊哥放出来了-。-
-
-
-
-
-
 
 
 -----
@@ -4105,14 +2812,7 @@ asn在隔壁伪典圣杯里可是被称为最强职阶，只要选择asn就代�
 ##### 209#         楼主| 发表于 2014-6-4 20:57
 
 
-
-
 21：2333333333…
-
-
-
-
-
 
 
 -----
@@ -4121,14 +2821,7 @@ asn在隔壁伪典圣杯里可是被称为最强职阶，只要选择asn就代�
 ##### 210#       发表于 2014-6-4 21:00
 
 
-
-
 土狼必须死。。<img src="https://static.saraba1st.com/image/smiley/face/32.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4137,21 +2830,13 @@ asn在隔壁伪典圣杯里可是被称为最强职阶，只要选择asn就代�
 ##### 211#       发表于 2014-6-4 21:34
 
 
-
-
 希望士狼直接出来变红a
-
-
-
-
-
 
 
 -----
 
 ####  zechins  
 ##### 212#       发表于 2014-7-28 13:45
-
 
 
  本帖最后由 zechins 于 2014-7-28 13:48 编辑 
@@ -4162,16 +2847,10 @@ asn在隔壁伪典圣杯里可是被称为最强职阶，只要选择asn就代�
 caster的卡被捏爆了，以后没有美遊ver的可以看了，哭哭
 
 
-
-
-
-
-
 -----
 
 ####  laoism  
 ##### 213#         楼主| 发表于 2014-8-9 19:27
-
 
 
 <blockquote>zechins 发表于 2014-7-28 13:45
@@ -4183,16 +2862,10 @@ caster的卡被捏爆了，以后没有美遊ver的可以 ...</blockquote>
 我今天才看到汉化，22话只有9页？
 
 
-
-
-
-
-
 -----
 
 ####  chiman  
 ##### 214#       发表于 2014-8-9 20:48
-
 
 
 <blockquote>引用第213楼laoism于2014-08-09 19:27发表的  :
@@ -4206,16 +2879,10 @@ caster的卡被捏爆了，以后没有美遊ver的可以 ...</blockquote>
 ----发送自 [Sony C6903,Android 4.4.4](http://stage1.5j4m.com/?1.15) 
 
 
-
-
-
-
-
 -----
 
 ####  zechins  
 ##### 215#       发表于 2014-8-25 07:16
-
 
 
  本帖最后由 zechins 于 2014-8-25 07:18 编辑 
@@ -4225,16 +2892,10 @@ caster的卡被捏爆了，以后没有美遊ver的可以 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">这下小黑的阿茶属性被抢了，真不舒服。。
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 216#       发表于 2014-8-25 07:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26425771&amp;ptid=866827" target="_blank">zechins 发表于 2014-8-25 07:16</a>
@@ -4245,17 +2906,10 @@ caster的卡被捏爆了，以后没有美遊ver的可以 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/05.gif" referrerpolicy="no-referrer">喜闻乐见发展
 
 
-
-
-
-
-
 -----
 
 ####  風駿  
 ##### 217#       发表于 2014-8-25 07:40
-
-
 
 
 本来就觉得小黑早晚要消失回本体
@@ -4264,25 +2918,13 @@ caster的卡被捏爆了，以后没有美遊ver的可以 ...</blockquote>
 现在士郎一出感觉就更不妙了……
 
 
-
-
-
-
-
 -----
 
 ####  结标淡希  
 ##### 218#       发表于 2014-8-25 07:41
 
 
-
-
 土狼这一出来就开盾...跟小黑战斗属性重复了，只能干掉一个了（<img src="https://static.saraba1st.com/image/smiley/face/201.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4291,13 +2933,7 @@ caster的卡被捏爆了，以后没有美遊ver的可以 ...</blockquote>
 ##### 219#       发表于 2014-8-25 07:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer"> 你们没想过小黑和士郎合体这一路线么，小黑本体是圣杯嘛
-
-
-
-
-
 
 
 -----
@@ -4306,20 +2942,13 @@ caster的卡被捏爆了，以后没有美遊ver的可以 ...</blockquote>
 ##### 220#       发表于 2014-8-25 08:10
 
 
-
 <img src="http://image16.poco.cn/mypoco/myphoto/20140824/22/5561546120140824225053042.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  we89623  
 ##### 221#       发表于 2014-8-25 08:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26425771&amp;ptid=866827" target="_blank">zechins 发表于 2014-8-25 07:16</a>
@@ -4330,17 +2959,10 @@ caster的卡被捏爆了，以后没有美遊ver的可以 ...</blockquote>
 小黑迟迟不给放UBW的原因就是在这啦，而娘闪也对小黑说过红A卡不是这么用的..所以坐等士郎放UBW吧。
 
 
-
-
-
-
-
 -----
 
 ####  Archlich  
 ##### 222#       发表于 2014-8-25 08:19
-
-
 
 
 魔法少女伊莉雅剧场版新篇（笑）
@@ -4349,16 +2971,10 @@ caster的卡被捏爆了，以后没有美遊ver的可以 ...</blockquote>
 没准儿真的会这么搞……
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 223#       发表于 2014-8-25 11:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26425952&amp;ptid=866827" target="_blank">Archlich 发表于 2014-8-25 08:19</a>
@@ -4370,25 +2986,13 @@ caster的卡被捏爆了，以后没有美遊ver的可以 ...</blockquote>
 简直！跪求！
 
 
-
-
-
-
-
 -----
 
 ####  eilot  
 ##### 224#       发表于 2014-8-25 12:18
 
 
-
-
 好吧，出完2季動畫後，將3季弄成劇場版但分兩集播?
-
-
-
-
-
 
 
 -----
@@ -4397,24 +3001,16 @@ caster的卡被捏爆了，以后没有美遊ver的可以 ...</blockquote>
 ##### 225#       发表于 2014-8-25 14:23
 
 
-
-
 http://mangapark.com/manga/fatekaleid-liner-prisma-e2-98-86illya-3rei/s2/c23/1 英文肉，paitouch现在不放生肉了似乎
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.15)
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 226#       发表于 2014-8-25 14:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26429546&amp;ptid=866827" target="_blank">handing 发表于 2014-8-25 14:23</a>
@@ -4425,25 +3021,13 @@ http://mangapark.com/manga/fatekaleid-liner-prisma-e2-98-86illya-3rei/s2/c23/1 �
 就像台词说的为了美游可以化身为邪恶，而所谓的BOSS（爱因兹华斯）在他眼里才是正义的使者。
 
 
-
-
-
-
-
 -----
 
 ####  trb315  
 ##### 227#       发表于 2014-8-25 14:44
 
 
-
-
 要是美游被异世界的土狼NTR了那可如何是好，又要杀自己了吗<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4452,16 +3036,10 @@ http://mangapark.com/manga/fatekaleid-liner-prisma-e2-98-86illya-3rei/s2/c23/1 �
 ##### 228#       发表于 2014-8-25 14:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26429766&amp;ptid=866827" target="_blank">trb315 发表于 2014-8-25 14:44</a>
 
 要是美游被异世界的土狼NTR了那可如何是好，又要杀自己了吗</blockquote>
 这集伊莉雅被一脸NTR的感觉..而且是被美游<img src="https://static.saraba1st.com/image/smiley/dym/155.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4470,13 +3048,7 @@ http://mangapark.com/manga/fatekaleid-liner-prisma-e2-98-86illya-3rei/s2/c23/1 �
 ##### 229#       发表于 2014-8-25 15:27
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">无论哪个世界 土狼都是妹控么
-
-
-
-
-
 
 
 -----
@@ -4485,14 +3057,8 @@ http://mangapark.com/manga/fatekaleid-liner-prisma-e2-98-86illya-3rei/s2/c23/1 �
 ##### 230#       发表于 2014-8-25 15:46
 
 
-
 <blockquote>we89623 发表于 2014-8-25 14:37 这个世界的士郎眼里貌似只有美游。。。 就像台词说的为了美游可以化身为邪恶，而所谓的BOSS（爱因兹华斯 ...</blockquote>
 手机看不到生肉只看过图透，这个土狼应该是跟HF线作出了一样的选择，所以那句正义的味方不是说爱因兹华斯做得对，而是对对方"杀一救万"的做法表明立场而已。
-
-
-
-
-
 
 
 -----
@@ -4501,14 +3067,7 @@ http://mangapark.com/manga/fatekaleid-liner-prisma-e2-98-86illya-3rei/s2/c23/1 �
 ##### 231#       发表于 2014-8-25 15:49
 
 
-
-
 总算知道红A跑回来杀自己的真正原因了
-
-
-
-
-
 
 
 -----
@@ -4517,14 +3076,7 @@ http://mangapark.com/manga/fatekaleid-liner-prisma-e2-98-86illya-3rei/s2/c23/1 �
 ##### 232#       发表于 2014-8-25 15:50
 
 
-
-
 这个世界的士郎战斗力整个吊炸天，不靠英灵手臂就能这么打
-
-
-
-
-
 
 
 -----
@@ -4533,23 +3085,16 @@ http://mangapark.com/manga/fatekaleid-liner-prisma-e2-98-86illya-3rei/s2/c23/1 �
 ##### 233#       发表于 2014-8-25 16:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26430530&amp;ptid=866827" target="_blank">jackyhuang 发表于 2014-8-25 15:50</a>
 
 这个世界的士郎战斗力整个吊炸天，不靠英灵手臂就能这么打</blockquote>
 我猜他Install过红A的英灵卡。。。。
 
 
-
-
-
-
-
 -----
 
 ####  wangandh  
 ##### 234#       发表于 2014-8-25 16:05
-
 
 
 <blockquote>we89623 发表于 2014-8-25 14:37
@@ -4559,26 +3104,15 @@ http://mangapark.com/manga/fatekaleid-liner-prisma-e2-98-86illya-3rei/s2/c23/1 �
 吃饭睡觉婊正义，简直够了
 
 
-
-
-
-
-
 -----
 
 ####  wangandh  
 ##### 235#       发表于 2014-8-25 16:06
 
 
-
 <blockquote>03e7 发表于 2014-8-25 15:46
 手机看不到生肉只看过图透，这个土狼应该是跟HF线作出了一样的选择，所以那句正义的味方不是说爱因兹华斯 ...</blockquote>
 我倒觉得艾因兹华斯家主的做法怎么看也不像正义……
-
-
-
-
-
 
 
 -----
@@ -4587,16 +3121,9 @@ http://mangapark.com/manga/fatekaleid-liner-prisma-e2-98-86illya-3rei/s2/c23/1 �
 ##### 236#       发表于 2014-8-25 17:42
 
 
-
-
 看完动画才来补漫画，熟肉一般什么时候有？
 
 美游她哥是原作里最喜欢的HF线人格的士郎简直太棒了
-
-
-
-
-
 
 
 -----
@@ -4605,14 +3132,7 @@ http://mangapark.com/manga/fatekaleid-liner-prisma-e2-98-86illya-3rei/s2/c23/1 �
 ##### 237#       发表于 2014-8-25 17:52
 
 
-
-
 这部樱是彻底神隐了是吧
-
-
-
-
-
 
 
 -----
@@ -4621,13 +3141,7 @@ http://mangapark.com/manga/fatekaleid-liner-prisma-e2-98-86illya-3rei/s2/c23/1 �
 ##### 238#       发表于 2014-8-25 18:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">看了生肉士狼真帅。 可怜伊利亚本身世界里的士狼被废了。。。和平生活不是好事啊魔法才能都埋没了， 
-
-
-
-
-
 
 
 -----
@@ -4636,16 +3150,10 @@ http://mangapark.com/manga/fatekaleid-liner-prisma-e2-98-86illya-3rei/s2/c23/1 �
 ##### 239#       发表于 2014-8-25 19:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26432148&amp;ptid=866827" target="_blank">革新 发表于 2014-8-25 18:41</a>
 
 看了生肉士狼真帅。 可怜伊利亚本身世界里的士狼被废了。。。和平生活不是好事啊魔法才能都 ...</blockquote>
 不和平对伊莉雅可不是什么好事<img src="https://static.saraba1st.com/image/smiley/normal/058.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4654,16 +3162,10 @@ http://mangapark.com/manga/fatekaleid-liner-prisma-e2-98-86illya-3rei/s2/c23/1 �
 ##### 240#       发表于 2014-8-25 19:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26432148&amp;ptid=866827" target="_blank">革新 发表于 2014-8-25 18:41</a>
 
 看了生肉士狼真帅。 可怜伊利亚本身世界里的士狼被废了。。。和平生活不是好事啊魔法才能都 ...</blockquote>
 和平生活后宫随便开的才是神人
-
-
-
-
-
 
 
 -----
@@ -4672,23 +3174,16 @@ http://mangapark.com/manga/fatekaleid-liner-prisma-e2-98-86illya-3rei/s2/c23/1 �
 ##### 241#       发表于 2014-8-25 19:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26432526&amp;ptid=866827" target="_blank">trb315 发表于 2014-8-25 19:24</a>
 
 和平生活后宫随便开的才是神人</blockquote>
  那只是单纯的后宫男罢了。。。  不能变成背影男的士狼不配开后宫。
 
 
-
-
-
-
-
 -----
 
 ####  03e7  
 ##### 242#       发表于 2014-8-25 21:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26430651&amp;ptid=866827" target="_blank">高等黑暗 发表于 2014-8-25 16:02</a>
@@ -4699,16 +3194,10 @@ http://mangapark.com/manga/fatekaleid-liner-prisma-e2-98-86illya-3rei/s2/c23/1 �
 UBW線的土狼能學UBW，這個世界的土狼也一樣可以
 
 
-
-
-
-
-
 -----
 
 ####  reader  
 ##### 243#       发表于 2014-8-25 21:26
-
 
 
  本帖最后由 reader 于 2014-8-25 21:29 编辑 
@@ -4722,16 +3211,10 @@ UBW線的土狼能學UBW，這個世界的土狼也一樣可以
 UBW线能开是得到红A的经验，fate线打完圣杯战争的士郎需要磨练十年才能开UBW
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 244#       发表于 2014-8-25 21:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26433389&amp;ptid=866827" target="_blank">03e7 发表于 2014-8-25 21:10</a>
@@ -4746,16 +3229,10 @@ UBW线的土狗的UBW里面没多少储备武器的。。。比如和金闪闪�
 这次用了七天圆环，虽然也有大量的生产英灵卡而看过原物的可能性，不过最大的可能还是自己插自己的卡学会吧。。。。。
 
 
-
-
-
-
-
 -----
 
 ####  altauro  
 ##### 245#       发表于 2014-8-25 21:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26433495&amp;ptid=866827" target="_blank">reader 发表于 2014-8-25 21:26</a>
@@ -4764,25 +3241,13 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 伊利亚的土狼显然不是过了十几年的和平日子，从他坐牢就看的出他经历了怎样的修罗场，现在一上来就能投射杀百头、花瓣盾，显然和UBW的土狼是一个路子。
 
 
-
-
-
-
-
 -----
 
 ####  卡蓮  
 ##### 246#       发表于 2014-8-26 00:08
 
 
-
-
 花瓣盾还好说，射杀百头是HF的腕士狼才用的出来的招，我觉得他是装过红A卡了，至少见过黑红A了
-
-
-
-
-
 
 
 -----
@@ -4791,16 +3256,10 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 ##### 247#       发表于 2014-8-26 00:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26434786&amp;ptid=866827" target="_blank">卡蓮 发表于 2014-8-26 00:08</a>
 
 花瓣盾还好说，射杀百头是HF的腕士狼才用的出来的招，我觉得他是装过红A卡了，至少见过黑红A了 ...</blockquote>
 其实我个人还有个观点是，这个土狼很明显是HF线的梗，所以比起通过学习看到那么多东西copy下来我觉得还是装过红A卡靠谱点
-
-
-
-
-
 
 
 -----
@@ -4809,14 +3268,7 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 ##### 248#       发表于 2014-8-26 08:24
 
 
-
-
 有可能是另类hf线的士狼，只是这个世界不存在樱，守护是美游。这样许多事情就说得通了。
-
-
-
-
-
 
 
 -----
@@ -4825,13 +3277,7 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 ##### 249#       发表于 2014-8-26 09:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/136.gif" referrerpolicy="no-referrer">射杀百头只是亮了个相就消失不见了，所以说浪费魔力投影斧剑干嘛啦，就为了刷下时髦吗
-
-
-
-
-
 
 
 -----
@@ -4840,14 +3286,7 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 ##### 250#       发表于 2014-8-28 07:57
 
 
-
-
 这集这两货不会就这么死了吧？要是真死了就XX作了<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">   这两货藏在树里露着屁股真喜感。
-
-
-
-
-
 
 
 -----
@@ -4856,16 +3295,10 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 ##### 251#       发表于 2014-8-28 08:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26455697&amp;ptid=866827" target="_blank">shenhao 发表于 2014-8-28 07:57</a>
 
 这集这两货不会就这么死了吧？要是真死了就XX作了   这两货藏在树里露着屁股真喜感。 ...</blockquote>
 怎么会。这场战斗说实话，很莫名其妙没必要的。
-
-
-
-
-
 
 
 -----
@@ -4874,14 +3307,7 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 ##### 252#       发表于 2014-9-1 01:23
 
 
-
-
 伊莉雅被双重NTR真是惨无人道23333
-
-
-
-
-
 
 
 -----
@@ -4890,16 +3316,10 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 ##### 253#       发表于 2014-9-1 03:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26491229&amp;ptid=866827" target="_blank">宏 发表于 2014-9-1 01:23</a>
 
 伊莉雅被双重NTR真是惨无人道23333</blockquote>
 她做出很震惊的表情才是对隔壁的士郞惨无人道啊，看到酷炫开挂的人家的哥哥就忘了自己家里那个贤惠的哥哥了么……平行世界的同一人物终究是两个个体，就好像小黑和伊莉雅是从同一人中分裂出来的两个个体一样
-
-
-
-
-
 
 
 -----
@@ -4908,15 +3328,9 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 ##### 254#       发表于 2014-9-1 08:19
 
 
-
 <blockquote>革新 发表于 2014-8-25 18:41
 看了生肉士狼真帅。 可怜伊利亚本身世界里的士狼被废了。。。和平生活不是好事啊魔法才能都 ...</blockquote>
 在和平的世界过着平凡的日子怎么看都比在三天两头就要末日降临的世界里当苦逼的英雄强
-
-
-
-
-
 
 
 -----
@@ -4925,14 +3339,7 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 ##### 255#       发表于 2014-9-1 12:42
 
 
-
-
 熟肉看完后只能说土狼在这条线上怎么被抓这点真是很感兴趣,是BOSS亲自动手还是两个妹子一起上抓到的,对猜后面打斗的结果挺有影响的
-
-
-
-
-
 
 
 -----
@@ -4941,23 +3348,16 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 ##### 256#       发表于 2014-9-1 12:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26491931&amp;ptid=866827" target="_blank">gogo3721 发表于 2014-9-1 08:19</a>
 
 在和平的世界过着平凡的日子怎么看都比在三天两头就要末日降临的世界里当苦逼的英雄强 ...</blockquote>
 和平年代怎么成为正义使者。开后宫不是士狼的第一志愿啊
 
 
-
-
-
-
-
 -----
 
 ####  结标淡希  
 ##### 257#       发表于 2014-9-1 13:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26494884&amp;ptid=866827" target="_blank">pq123 发表于 2014-9-1 12:42</a>
@@ -4969,17 +3369,10 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 这边的土狼连神造兵器都能投（虽然只有外形），几乎就是红A了...结果小金还是对盗版商有不满啊（
 
 
-
-
-
-
-
 -----
 
 ####  克洛伊~  
 ##### 258#       发表于 2014-9-1 13:24
-
-
 
 
 下一集就要被揍了，现在买工伤险还来得及吗？<img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">
@@ -4988,16 +3381,10 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 顺便，这年头当管家的都是行伍出身才行吗？仔细想想当初没和那个老爷子对上也算是万幸了..............
 
 
-
-
-
-
-
 -----
 
 ####  zerocount  
 ##### 259#       发表于 2014-9-1 14:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26495271&amp;ptid=866827" target="_blank">结标淡希 发表于 2014-9-1 13:13</a>
@@ -5009,16 +3396,10 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 坐看3dm和游侠对掐？
 
 
-
-
-
-
-
 -----
 
 ####  结标淡希  
 ##### 260#       发表于 2014-9-1 14:58
-
 
 
  本帖最后由 结标淡希 于 2014-9-1 15:10 编辑 
@@ -5035,27 +3416,15 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 2333非常形象，那么小金闪可以当育碧恶心一下3dm
 
 
-
-
-
-
-
 -----
 
 ####  风清天蓝  
 ##### 261#       发表于 2014-9-1 21:11
 
 
-
-
 看着要被boss刷时髦的节奏啊
 
 ——— 来自[Stage1st Reader For iOS](http://itunes.apple.com/us/app/stage1st-reader/id509916119?mt=8)
-
-
-
-
-
 
 
 -----
@@ -5064,14 +3433,7 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 ##### 262#       发表于 2014-9-1 23:13
 
 
-
-
 看士郎的头发有一点变白，皮肤也有好几块变成Archer那种深色泽了。所以算是转变中的士郎吧。
-
-
-
-
-
 
 
 -----
@@ -5080,16 +3442,9 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 ##### 263#       发表于 2014-9-1 23:23
 
 
-
-
 贴吧看到的外传升逼格系列
 <img src="http://t.williamgates.net/image-B57C_54048F35.jpg" referrerpolicy="no-referrer">
 <img src="http://t.williamgates.net/image-512B_54048F35.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5098,16 +3453,10 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 ##### 264#       发表于 2014-9-2 00:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26501380&amp;ptid=866827" target="_blank">pgain2004 发表于 2014-9-1 23:13</a>
 
 看士郎的头发有一点变白，皮肤也有好几块变成Archer那种深色泽了。所以算是转变中的士郎吧。 ...</blockquote>
 这土狗明显是走HF线那种选择的，和红A最后成为正义伙伴不同
-
-
-
-
-
 
 
 -----
@@ -5116,14 +3465,7 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 ##### 265#       发表于 2014-9-2 00:05
 
 
-
-
 3rei原来看着越来越脱离原作但是这展开真是燃<img src="https://static.saraba1st.com/image/smiley/face/132.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5132,14 +3474,7 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 ##### 266#         楼主| 发表于 2014-9-2 00:31
 
 
-
-
 所以说土狼必须…
-
-
-
-
-
 
 
 -----
@@ -5148,21 +3483,14 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 ##### 267#       发表于 2014-9-3 09:40
 
 
-
 <blockquote>高等黑暗 发表于 2014-9-2 00:02 这土狗明显是走HF线那种选择的，和红A最后成为正义伙伴不同</blockquote>
 土狼又不是只有红A一条路线才能用固有结界,本身的资质在那摆着，只要契机合适就能开UBW
-
-
-
-
-
 
 
 -----
 
 ####  高等黑暗  
 ##### 268#       发表于 2014-9-3 09:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26512926&amp;ptid=866827" target="_blank">03e7 发表于 2014-9-3 09:40</a>
@@ -5173,16 +3501,10 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 英灵红A的观念反而是更偏向于朱利安或者切嗣的，为了全而牺牲一，甚至不在意那个一是不是自己的亲人或者是不是自己
 
 
-
-
-
-
-
 -----
 
 ####  kxh007458  
 ##### 269#       发表于 2014-9-3 11:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26491499&amp;ptid=866827" target="_blank">printer22 发表于 2014-9-1 03:28</a>
@@ -5191,16 +3513,10 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 伊里亚之前没见过这个世界的土狼，隔着门说过话但没见过长相。虽然知道美游有个哥和自己哥长得像，但谁知道一模一样。突然有个和自己哥哥长得一样，名字一样的人出来，把他当自己哥哥很正常吧。而对位于家庭最低层的哥哥突然间狂霸眩酷屌炸天感到很震惊也是很正常的吧。
 
 
-
-
-
-
-
 -----
 
 ####  reader  
 ##### 270#       发表于 2014-9-3 13:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26513062&amp;ptid=866827" target="_blank">高等黑暗 发表于 2014-9-3 09:57</a>
@@ -5211,17 +3527,10 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 红A生前也是见到谁都救的理想主义者，成为英灵以后才转变的。
 
 
-
-
-
-
-
 -----
 
 ####  03e7  
 ##### 271#       发表于 2014-10-2 02:35
-
-
 
 
 24话熟肉已出
@@ -5231,17 +3540,10 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 这剧情到底还能反转几次
 
 
-
-
-
-
-
 -----
 
 ####  满月诗篇  
 ##### 272#       发表于 2014-10-2 02:38
-
-
 
 
 能投影或者能开不管真假旺财的人好多噢
@@ -5250,16 +3552,10 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 两边都互相啪啪啪啪啪的射来射去的，看看还有没有啥新鲜的表现方式了
 
 
-
-
-
-
-
 -----
 
 ####  03e7  
 ##### 273#       发表于 2014-10-2 02:41
-
 
 
  本帖最后由 03e7 于 2014-10-2 02:42 编辑 
@@ -5270,27 +3566,15 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 估计田中过来刚好赶上娘闪闪放EA？
 
 
-
-
-
-
-
 -----
 
 ####  风清天蓝  
 ##### 274#       发表于 2014-10-2 09:40
 
 
-
-
 看着挺燃的，可我看的少有点不明白，伊利亚二期结尾都能一炮扛翻EA了，怎么三期这么废？也没啥战术什么的，比如小黑先扛一波宝具，然后伊莉亚趁硬直再来轰一发之类的…
 
 ——— 来自[Stage1st Reader For iOS](http://itunes.apple.com/us/app/stage1st-reader/id509916119?mt=8)
-
-
-
-
-
 
 
 -----
@@ -5299,21 +3583,13 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 ##### 275#       发表于 2014-10-2 09:47
 
 
-
-
 这战斗场面好棒！这才是英灵战（虽然里面的就一个闪闪）应有的战斗场面
-
-
-
-
-
 
 
 -----
 
 ####  高等黑暗  
 ##### 276#       发表于 2014-10-2 11:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26801547&amp;ptid=866827" target="_blank">风清天蓝 发表于 2014-10-2 09:40</a>
@@ -5326,16 +3602,10 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 而且娘闪手上不止一张卡。。。她和小金打的时候拿出过一堆卡
 
 
-
-
-
-
-
 -----
 
 ####  sekair  
 ##### 277#       发表于 2014-10-2 14:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26801547&amp;ptid=866827" target="_blank">风清天蓝 发表于 2014-10-2 09:40</a>
@@ -5344,25 +3614,13 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 算上副作用合体炮应该只能打一发，是打黑化英灵群还是至少有四张卡的娘闪闪还是不知道有多少卡的大boss?
 
 
-
-
-
-
-
 -----
 
 ####  alialex  
 ##### 278#       发表于 2014-10-2 15:31
 
 
-
-
 本话士郎后宫力全开，就算是异次元另一个自己的后宫也是后宫
-
-
-
-
-
 
 
 -----
@@ -5371,14 +3629,7 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 ##### 279#       发表于 2014-10-2 17:01
 
 
-
-
 小黑被士狼吐槽有伤风化了， 这里的士狼战斗力不差不过为什么不全开ubw只是单纯的投影对射肯定打不过娘闪闪的
-
-
-
-
-
 
 
 -----
@@ -5387,17 +3638,10 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 ##### 280#       发表于 2014-10-2 17:52
 
 
-
-
 3期开始就在打酱油，连搞笑役都做不了。。。
 
 
 这种漫画腰斩算了<img src="https://static.saraba1st.com/image/smiley/normal/052.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5406,16 +3650,10 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 ##### 281#       发表于 2014-10-2 18:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26804744&amp;ptid=866827" target="_blank">革新 发表于 2014-10-2 17:01</a>
 
 小黑被士狼吐槽有伤风化了， 这里的士狼战斗力不差不过为什么不全开ubw只是单纯的投影对射肯定打不过娘闪闪 ...</blockquote>
 上一场打完一直被监禁身子骨废了，有一幕是想开UBW但承受不了
-
-
-
-
-
 
 
 -----
@@ -5424,16 +3662,10 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 ##### 282#       发表于 2014-10-2 18:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26804744&amp;ptid=866827" target="_blank">革新 发表于 2014-10-2 17:01</a>
 
 小黑被士狼吐槽有伤风化了， 这里的士狼战斗力不差不过为什么不全开ubw只是单纯的投影对射肯定打不过娘闪闪 ...</blockquote>
 被吐槽的是美游啦
-
-
-
-
-
 
 
 -----
@@ -5442,24 +3674,16 @@ UBW线能开是得到红A的经验，正常打完圣杯战争的士郎需要磨�
 ##### 283#       发表于 2014-10-2 19:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26804744&amp;ptid=866827" target="_blank">革新 发表于 2014-10-2 17:01</a>
 
 小黑被士狼吐槽有伤风化了， 这里的士狼战斗力不差不过为什么不全开ubw只是单纯的投影对射肯定打不过娘闪闪 ...</blockquote>
 UBW身体吃不消了，这话有好几幕都在说这点的
 
 
-
-
-
-
-
 -----
 
 ####  asda  
 ##### 284#       发表于 2014-10-2 19:48
-
-
 
 
 红A可以使用投影宝具的真名 
@@ -5469,16 +3693,10 @@ UBW身体吃不消了，这话有好几幕都在说这点的
 然后开金闪闪的宝库......
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 285#       发表于 2014-10-2 22:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26805640&amp;ptid=866827" target="_blank">界塚いなほ 发表于 2014-10-2 19:25</a>
@@ -5487,16 +3705,10 @@ UBW身体吃不消了，这话有好几幕都在说这点的</blockquote>
 刚又看了一下粗略汉化版 借来的回路容器身体承受不了， 八成这个是移植红A手臂的士狼。
 
 
-
-
-
-
-
 -----
 
 ####  eyeego  
 ##### 286#       发表于 2014-10-2 22:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26804744&amp;ptid=866827" target="_blank">革新 发表于 2014-10-2 17:01</a>
@@ -5505,16 +3717,10 @@ UBW身体吃不消了，这话有好几幕都在说这点的</blockquote>
 中间不是有提过么 再放一次UBW身体就撑不住了 对面还只是个中BOSS 而且确实想放了 结果咏唱到一半开始爆回路
 
 
-
-
-
-
-
 -----
 
 ####  king520kyo  
 ##### 287#       发表于 2014-10-2 22:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26805815&amp;ptid=866827" target="_blank">asda 发表于 2014-10-2 19:48</a>
@@ -5527,32 +3733,19 @@ UBW身体吃不消了，这话有好几幕都在说这点的</blockquote>
 想多了 王财这个宝具是建立在金闪闪拥有一切这个概念的基础上的 你光投个王财有什么用…
 
 
-
-
-
-
-
 -----
 
 ####  stygianlunar  
 ##### 288#       发表于 2014-10-2 23:48
 
 
-
-
 总觉得田中，会不会就是“此世间全部的恶”
-
-
-
-
-
 
 
 -----
 
 ####  laoism  
 ##### 289#         楼主| 发表于 2014-10-4 18:25
-
 
 
 <blockquote>sk86 发表于 2014-10-2 17:52
@@ -5565,16 +3758,10 @@ UBW身体吃不消了，这话有好几幕都在说这点的</blockquote>
 你穿的戏服是？
 
 
-
-
-
-
-
 -----
 
 ####  lxlyandccc  
 ##### 290#       发表于 2014-10-4 18:34
-
 
 
  本帖最后由 lxlyandccc 于 2014-10-4 18:35 编辑 
@@ -5588,16 +3775,10 @@ UBW身体吃不消了，这话有好几幕都在说这点的</blockquote>
 确切的说，以前是有头像的，不过上次S1抽风……
 
 
-
-
-
-
-
 -----
 
 ####  iamwar  
 ##### 291#       发表于 2014-10-4 18:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26807295&amp;ptid=866827" target="_blank">king520kyo 发表于 2014-10-2 22:59</a>
@@ -5606,32 +3787,20 @@ UBW身体吃不消了，这话有好几幕都在说这点的</blockquote>
 对，历史上的金闪闪没有他时代之后的那些宝具。被召唤的概念条件下才有，这是他作为英灵的一个条件bug利用，就像C姐自己还能再召一个英灵一样。
 
 
-
-
-
-
-
 -----
 
 ####  03e7  
 ##### 292#       发表于 2014-10-4 18:39
 
 
-
 <blockquote>sk86 发表于 2014-10-2 17:52 3期开始就在打酱油，连搞笑役都做不了。。。 这种漫画腰斩算了</blockquote>
 解说役有什么不好
-
-
-
-
-
 
 
 -----
 
 ####  结标淡希  
 ##### 293#       发表于 2014-10-24 09:46
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/136.gif" referrerpolicy="no-referrer">本月的伊莉雅依然安定的打酱油
@@ -5645,17 +3814,10 @@ UBW身体吃不消了，这话有好几幕都在说这点的</blockquote>
 这边世界的樱或者干脆**的樱？这是大BOSS范啊。看下面的形状像是兰斯洛特的头盔，如果是黑樱来用的话，很糟糕的情况呐
 
 
-
-
-
-
-
-
 -----
 
 ####  03e7  
 ##### 294#       发表于 2014-10-24 10:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26805815&amp;ptid=866827" target="_blank">asda 发表于 2014-10-2 19:48</a>
@@ -5668,16 +3830,10 @@ UBW身体吃不消了，这话有好几幕都在说这点的</blockquote>
 先不说能不能投影王财，首先王财只是个宝物库，里面的东西是金闪闪的私人物品，拿不到那些宝具所有权的话，就算能投影出来也只会是个里面什么都没有的空壳
 
 
-
-
-
-
-
 -----
 
 ####  03e7  
 ##### 295#       发表于 2014-10-24 10:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26807082&amp;ptid=866827" target="_blank">革新 发表于 2014-10-2 22:33</a>
@@ -5689,27 +3845,15 @@ HF线土狼移植红A手臂不能开UBW的原因是两人的心象风景不同�
 除非作者又改设定了。
 
 
-
-
-
-
-
 -----
 
 ####  耳朵  
 ##### 296#       发表于 2014-10-24 11:58
 
 
-
-
 旺财是用王律键开的吧～不知道能不能投王律键～
 
 ——— 来自[Stage1st Reader For iOS](http://itunes.apple.com/us/app/stage1st-reader/id509916119?mt=8)
-
-
-
-
-
 
 
 -----
@@ -5718,23 +3862,15 @@ HF线土狼移植红A手臂不能开UBW的原因是两人的心象风景不同�
 ##### 297#       发表于 2014-10-24 12:04
 
 
-
-
 推测，士狼在HF不能投影UBW是因为他不能通过左手来开，和红A的心像风景不同
 
 但是假以时日他自己能用自己的心像风景来开UBW的话这点就不矛盾了
-
-
-
-
-
 
 
 -----
 
 ####  高等黑暗  
 ##### 298#       发表于 2014-10-24 13:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27017771&amp;ptid=866827" target="_blank">耳朵 发表于 2014-10-24 11:58</a>
@@ -5746,25 +3882,13 @@ HF线土狼移植红A手臂不能开UBW的原因是两人的心象风景不同�
 那把钥匙是个打开自己宝物库的东西，而金闪闪默认拥有一切宝物所以旺财才那么屌，土狗拿了钥匙也只能开出一张几万日元的存折吧
 
 
-
-
-
-
-
 -----
 
 ####  yyu0918  
 ##### 299#       发表于 2014-10-24 14:51
 
 
-
-
 没人讨论情报图么。。樱变身成兰斯洛特砍了士郎，说明什么。。<img src="http://imgsrc.baidu.com/forum/w%3D580/sign=87e3fd730af79052ef1f47363cf2d738/32bb313fb80e7becf3a08d812c2eb9389a506b96.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5773,14 +3897,7 @@ HF线土狼移植红A手臂不能开UBW的原因是两人的心象风景不同�
 ##### 300#       发表于 2014-10-24 14:57
 
 
-
-
 金闪闪碰到士狼吃瘪 已经是必然了<img src="https://static.saraba1st.com/image/smiley/face/18.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5789,14 +3906,7 @@ HF线土狼移植红A手臂不能开UBW的原因是两人的心象风景不同�
 ##### 301#       发表于 2014-10-24 15:15
 
 
-
-
 樱路人很久之后黑化废了土狼也是定律了...
-
-
-
-
-
 
 
 -----
@@ -5805,14 +3915,7 @@ HF线土狼移植红A手臂不能开UBW的原因是两人的心象风景不同�
 ##### 302#       发表于 2014-10-24 15:23
 
 
-
-
 土狼时髦了一秒就躺了<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5821,14 +3924,7 @@ HF线土狼移植红A手臂不能开UBW的原因是两人的心象风景不同�
 ##### 303#       发表于 2014-10-24 18:03
 
 
-
-
 只在番外露过脸的角色一出场竟然有这么大的爆点
-
-
-
-
-
 
 
 -----
@@ -5837,16 +3933,10 @@ HF线土狼移植红A手臂不能开UBW的原因是两人的心象风景不同�
 ##### 304#       发表于 2014-10-24 19:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27019425&amp;ptid=866827" target="_blank">yyu0918 发表于 2014-10-24 14:51</a>
 
 没人讨论情报图么。。樱变身成兰斯洛特砍了士郎，说明什么。。</blockquote>
 说明这已经是第三个berserker了
-
-
-
-
-
 
 
 -----
@@ -5866,16 +3956,10 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 对了，这集的熟肉最近出了。
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 306#       发表于 2014-11-4 23:26
-
 
 
 <blockquote>yyu0918 发表于 2014-10-24 14:51
@@ -5888,16 +3972,10 @@ NTR之怒。
 现在伊莉雅美游还有樱已经三个小圣杯了要怎么走啊剧情。
 
 
-
-
-
-
-
 -----
 
 ####  鱼缸  
 ##### 307#       发表于 2014-11-5 00:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27126333&amp;ptid=866827" target="_blank">消防 发表于 2014-11-4 23:26</a>
@@ -5916,17 +3994,10 @@ NTR之怒。
 CCC那骚狐传漫画不是樱five全员登场了吗   而且BB还穿了废案里的洋装  真是满足<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  结标淡希  
 ##### 308#       发表于 2015-1-27 09:04
-
-
 
 
 本周继续虐美游兄妹，从来都是帅不过三秒系列。金皮卡不愧是古往今来第一中二，黑闪的肉体都没了照样在污染英灵的黑泥中保有意识....不过一个全裸的中二（形象）出现loli身后还想要夺取她的肉体，怎么看都很糟糕啊....可怜的美游根本没威起来就被BOSS“背入”（字面意义）了
@@ -5935,24 +4006,13 @@ CCC那骚狐传漫画不是樱five全员登场了吗   而且BB还穿了废案
 好消息是关键时刻真男主小金来救场了，坏消息是小金用恩奇都”袭胸“美游以后把卡拿回来了.....变回完全体后高达八成会变回中二闪<img src="https://static.saraba1st.com/image/smiley/face/90.gif" referrerpolicy="no-referrer">正太闪明明那么赞的，不要成长啊
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 309#       发表于 2015-1-27 09:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">TMD闪闪要长大？QNMLGB啊……
-
-
-
-
-
 
 
 -----
@@ -5961,14 +4021,7 @@ CCC那骚狐传漫画不是樱five全员登场了吗   而且BB还穿了废案
 ##### 310#       发表于 2015-1-27 09:36
 
 
-
-
 顺便求图源（…
-
-
-
-
-
 
 
 -----
@@ -5977,14 +4030,7 @@ CCC那骚狐传漫画不是樱five全员登场了吗   而且BB还穿了废案
 ##### 311#       发表于 2015-1-27 09:39
 
 
-
-
 贴吧去看了，这种情况下正太闪还原应该不会再老马了吧，全力全开金闪闪再临？
-
-
-
-
-
 
 
 -----
@@ -5993,16 +4039,10 @@ CCC那骚狐传漫画不是樱five全员登场了吗   而且BB还穿了废案
 ##### 312#       发表于 2015-1-27 09:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27894275&amp;ptid=866827" target="_blank">高等黑暗 发表于 2015-1-27 09:36</a>
 
 顺便求图源（…</blockquote>
 [http://tieba.baidu.com/p/3550105260?pn=1](http://tieba.baidu.com/p/3550105260?pn=1)
-
-
-
-
-
 
 
 -----
@@ -6011,16 +4051,10 @@ CCC那骚狐传漫画不是樱five全员登场了吗   而且BB还穿了废案
 ##### 313#       发表于 2015-1-27 09:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27894284&amp;ptid=866827" target="_blank">風駿 发表于 2015-1-27 09:39</a>
 
 贴吧去看了，这种情况下正太闪还原应该不会再老马了吧，全力全开金闪闪再临？ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/136.gif" referrerpolicy="no-referrer">只要长大了，他就会老马（
-
-
-
-
-
 
 
 -----
@@ -6029,16 +4063,9 @@ CCC那骚狐传漫画不是樱five全员登场了吗   而且BB还穿了废案
 ##### 314#       发表于 2015-1-27 09:55
 
 
-
-
 昨天忘了把英文版转过来了。
 
 拿回卡那幕帅到爆炸，但是不要变成青年闪啊，变成十四五的少年怎么样？
-
-
-
-
-
 
 
 -----
@@ -6047,22 +4074,13 @@ CCC那骚狐传漫画不是樱five全员登场了吗   而且BB还穿了废案
 ##### 315#       发表于 2015-1-27 10:07
 
 
-
-
 期待半裸王的金閃閃出場
-
-
-
-
-
 
 
 -----
 
 ####  03e7  
 ##### 316#       发表于 2015-1-27 11:01
-
-
 
 
 结果这一话伊莉娅和小黑都在打酱油？
@@ -6072,32 +4090,19 @@ CCC那骚狐传漫画不是樱five全员登场了吗   而且BB还穿了废案
 凛要给土狼治疗，是准备用项链了吧
 
 
-
-
-
-
-
 -----
 
 ####  風駿  
 ##### 317#       发表于 2015-1-27 11:25
 
 
-
-
 其实想想美游用金闪闪卡对兰斯樱这幕还原的也够简单粗暴
-
-
-
-
-
 
 
 -----
 
 ####  结标淡希  
 ##### 318#       发表于 2015-1-27 11:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27895192&amp;ptid=866827" target="_blank">03e7 发表于 2015-1-27 11:01</a>
@@ -6113,16 +4118,10 @@ CCC那骚狐传漫画不是樱five全员登场了吗   而且BB还穿了废案
 还特意再强调一遍不擅长治疗魔术，八成是要用项链了
 
 
-
-
-
-
-
 -----
 
 ####  03e7  
 ##### 319#       发表于 2015-1-27 11:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27895532&amp;ptid=866827" target="_blank">结标淡希 发表于 2015-1-27 11:29</a>
@@ -6140,7 +4139,6 @@ CCC那骚狐传漫画不是樱five全员登场了吗   而且BB还穿了废案
 ##### 320#       发表于 2015-1-27 11:46
 
 
-
  本帖最后由 消防 于 2015-1-27 11:48 编辑 
 <blockquote>03e7 发表于 2015-1-27 11:35
 其实最好的办法是让土狼装saber卡，当然前提是这个土狼的身体里得有剑鞘。
@@ -6154,16 +4152,10 @@ CCC那骚狐传漫画不是樱five全员登场了吗   而且BB还穿了废案
 阿瓦隆也该用出来了吧，既然当年收黑saber这么牛逼哄哄，目前对面又有好几个帝皇或者主神级别的卡
 
 
-
-
-
-
-
 -----
 
 ####  结标淡希  
 ##### 321#       发表于 2015-1-27 12:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27895604&amp;ptid=866827" target="_blank">03e7 发表于 2015-1-27 11:35</a>
@@ -6175,35 +4167,22 @@ CCC那骚狐传漫画不是樱five全员登场了吗   而且BB还穿了废案
 现场好几个小圣杯呢，要救土狼都不需要操心的。该操心的是怎么对付BOSS和一个坏掉的小圣杯，以及随时可能老马的最强队友....
 
 
-
-
-
-
-
 -----
 
 ####  Futanari  
 ##### 322#       发表于 2015-2-1 11:59
 
 
-
 [http://manhua.dmzj.com/fklmfsnyly/37954.shtml](http://manhua.dmzj.com/fklmfsnyly/37954.shtml)
 
 
-
 居然是3d骑士樱。 正太金太抢戏了。我想看士郎拯救世界啊。
-
-
-
-
-
 
 
 -----
 
 ####  asda  
 ##### 323#       发表于 2015-2-1 12:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27895604&amp;ptid=866827" target="_blank">03e7 发表于 2015-1-27 11:35</a>
@@ -6218,25 +4197,13 @@ CCC那骚狐传漫画不是樱five全员登场了吗   而且BB还穿了废案
 然后给土狼补魔就成了
 
 
-
-
-
-
-
 -----
 
 ####  耳朵  
 ##### 324#       发表于 2015-2-1 12:22
 
 
-
-
 闪闪太棒了！！不愧是亲儿子！<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6245,16 +4212,10 @@ CCC那骚狐传漫画不是樱five全员登场了吗   而且BB还穿了废案
 ##### 325#       发表于 2015-2-1 12:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27948455&amp;ptid=866827" target="_blank">Futanari 发表于 2015-2-1 11:59</a>
 
 http://manhua.dmzj.com/fklmfsnyly/37954.shtml</blockquote>
 幼闪闪这是明显的不能再明显的老马Flag啊。
-
-
-
-
-
 
 
 -----
@@ -6263,21 +4224,13 @@ http://manhua.dmzj.com/fklmfsnyly/37954.shtml</blockquote>
 ##### 326#       发表于 2015-2-1 12:55
 
 
-
-
 土狼用傻巴卡也行啊 换装成樱13那版就行 反正这漫没有什么不可能 幼闪闪好歹这次变成FHA里的全力全开半裸闪吧 这次时髦刷够了 后面也就随便了 毕竟这漫画不叫魔法少男吉尔酱
-
-
-
-
-
 
 
 -----
 
 ####  03e7  
 ##### 327#       发表于 2015-2-1 13:02
-
 
 
  本帖最后由 03e7 于 2015-2-1 13:07 编辑 
@@ -6287,25 +4240,13 @@ http://manhua.dmzj.com/fklmfsnyly/37954.shtml</blockquote>
 这剧情再反转4、5次绝对没问题
 
 
-
-
-
-
-
 -----
 
 ####  mierin  
 ##### 328#       发表于 2015-2-1 13:10
 
 
-
-
 土狼这边重大劣势，难道要变红A么
-
-
-
-
-
 
 
 -----
@@ -6314,14 +4255,7 @@ http://manhua.dmzj.com/fklmfsnyly/37954.shtml</blockquote>
 ##### 329#         楼主| 发表于 2015-2-3 01:17
 
 
-
-
 话说这26话第一页写的标题是“25话”，这是怎么回事？
-
-
-
-
-
 
 
 -----
@@ -6330,16 +4264,9 @@ http://manhua.dmzj.com/fklmfsnyly/37954.shtml</blockquote>
 ##### 330#       发表于 2015-2-3 05:18
 
 
-
-
 安洁莉卡就这么被友军过河拆桥了。。。。<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 美游用了闪闪卡不满一话就被卡片反噬了，这么想想看这个位面的艾因兹华斯家的人造人出乎意料的强，之前安洁莉卡长期维持梦幻召唤状态都没反噬，比小圣杯不知道强到哪里去了。。。。又或者闪卡只是之前不屑于夺人造人的舍？
-
-
-
-
-
 
 
 -----
@@ -6348,16 +4275,9 @@ http://manhua.dmzj.com/fklmfsnyly/37954.shtml</blockquote>
 ##### 331#       发表于 2015-2-3 08:34
 
 
-
-
 安洁莉卡会不会在战后被捡回去（
 
 蛮喜欢这家伙的造型的
-
-
-
-
-
 
 
 -----
@@ -6366,23 +4286,16 @@ http://manhua.dmzj.com/fklmfsnyly/37954.shtml</blockquote>
 ##### 332#       发表于 2015-2-3 08:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27964657&amp;ptid=866827" target="_blank">laoism 发表于 2015-2-3 01:17</a>
 
 话说这26话第一页写的标题是“25话”，这是怎么回事？</blockquote>
 魔伊漫画序号混乱已经是月经了，习惯就好
 
 
-
-
-
-
-
 -----
 
 ####  03e7  
 ##### 333#       发表于 2015-2-3 09:38
-
 
 
  本帖最后由 03e7 于 2015-2-3 10:33 编辑 
@@ -6393,17 +4306,10 @@ http://manhua.dmzj.com/fklmfsnyly/37954.shtml</blockquote>
 话说魔伊每话页数差好多，从30+到10+都有
 
 
-
-
-
-
-
 -----
 
 ####  chiman  
 ##### 334#       发表于 2015-2-3 15:30
-
-
 
 
 幼閃閃帥到沒朋友啊，希望下一話不要老馬
@@ -6414,32 +4320,19 @@ http://manhua.dmzj.com/fklmfsnyly/37954.shtml</blockquote>
 ----发送自 [Sony D6653,Android 4.4.4](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  hzhh95963  
 ##### 335#       发表于 2015-2-3 16:03
 
 
-
-
 看过FZ应该就知道了吧……3D骑士和吉尔伽美什打得有来有回，土狼这个赝品被压制也算合理……
-
-
-
-
-
 
 
 -----
 
 ####  克洛伊~  
 ##### 336#       发表于 2015-2-3 17:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27895532&amp;ptid=866827" target="_blank">结标淡希 发表于 2015-1-27 11:29</a>
@@ -6451,16 +4344,10 @@ http://manhua.dmzj.com/fklmfsnyly/37954.shtml</blockquote>
 我姐......额.....伊利亚那丫头除了第一部不得不亲力亲为之外，就只剩下剧情杀了吧？顺便这部戏我从头带到尾，挡枪输出的是我，吐槽卖肉的也是我........偶尔掉线一级也没啥吧？<img src="https://static.saraba1st.com/image/smiley/nq/007.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  结标淡希  
 ##### 337#       发表于 2015-2-3 18:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27971568&amp;ptid=866827" target="_blank">克洛伊~ 发表于 2015-2-3 17:41</a>
@@ -6472,16 +4359,10 @@ http://manhua.dmzj.com/fklmfsnyly/37954.shtml</blockquote>
 掉线这不是一集，一季都不止了...
 
 
-
-
-
-
-
 -----
 
 ####  克洛伊~  
 ##### 338#       发表于 2015-2-3 18:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27971957&amp;ptid=866827" target="_blank">结标淡希 发表于 2015-2-3 18:18</a>
@@ -6493,17 +4374,10 @@ http://manhua.dmzj.com/fklmfsnyly/37954.shtml</blockquote>
 哼...........对着低龄男生的臀部发情的家伙（碎碎念
 
 
-
-
-
-
-
 -----
 
 ####  skyuni  
 ##### 339#       发表于 2015-2-3 22:13
-
-
 
 
 小黑的时髦值一直很高,伊利亚在第一期完全沾她的光
@@ -6511,16 +4385,10 @@ http://manhua.dmzj.com/fklmfsnyly/37954.shtml</blockquote>
 美游这边是完全刷不起来...
 
 
-
-
-
-
-
 -----
 
 ####  椿美絵  
 ##### 340#       发表于 2015-2-3 22:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27973873&amp;ptid=866827" target="_blank">skyuni 发表于 2015-2-3 22:13</a>
@@ -6531,16 +4399,10 @@ http://manhua.dmzj.com/fklmfsnyly/37954.shtml</blockquote>
 ARCHER的时髦值总是比魔法少女高吗……
 
 
-
-
-
-
-
 -----
 
 ####  jabal  
 ##### 341#       发表于 2015-2-4 00:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27973873&amp;ptid=866827" target="_blank">skyuni 发表于 2015-2-3 22:13</a>
@@ -6551,16 +4413,10 @@ ARCHER的时髦值总是比魔法少女高吗……
 第一季有小黑么
 
 
-
-
-
-
-
 -----
 
 ####  skyuni  
 ##### 342#       发表于 2015-2-4 00:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27974951&amp;ptid=866827" target="_blank">jabal 发表于 2015-2-4 00:04</a>
@@ -6569,16 +4425,10 @@ ARCHER的时髦值总是比魔法少女高吗……
 后面小黑不是在说战黑saber的时候是伊莉雅在借力么
 
 
-
-
-
-
-
 -----
 
 ####  结标淡希  
 ##### 343#       发表于 2015-2-28 09:00
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/136.gif" referrerpolicy="no-referrer">预想的小金大战烂死骆驼樱没有出现，对面一个幻术土狼就把樱搞回去了
@@ -6590,16 +4440,10 @@ ARCHER的时髦值总是比魔法少女高吗……
 美游又被触手了，那腿那身段（
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 344#       发表于 2015-2-28 10:23
-
 
 
 <blockquote>结标淡希 发表于 2015-2-28 09:00
@@ -6612,16 +4456,10 @@ ARCHER的时髦值总是比魔法少女高吗……
 看图透伊莉雅开誓约炮？田中阿瓦隆(？)该上线了吧。
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 345#       发表于 2015-2-28 11:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=28199710&amp;ptid=866827" target="_blank">结标淡希 发表于 2015-2-28 09:00</a>
@@ -6635,17 +4473,10 @@ ARCHER的时髦值总是比魔法少女高吗……
 如果是生肉的话求地址（
 
 
-
-
-
-
-
 -----
 
 ####  结标淡希  
 ##### 346#       发表于 2015-3-2 16:32
-
-
 
 
 英文肉：[http://tieba.baidu.com/p/3612170657](http://tieba.baidu.com/p/3612170657)
@@ -6660,24 +4491,13 @@ ARCHER的时髦值总是比魔法少女高吗……
 伊莉雅重新上线的代价就是美游被触手了一话，知道都是小圣杯以后戏份活跃度就难以共存了吗（
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 347#       发表于 2015-3-2 16:43
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6686,16 +4506,9 @@ ARCHER的时髦值总是比魔法少女高吗……
 ##### 348#       发表于 2015-3-2 18:28
 
 
-
-
 哦不  黑樱好不容易出场了一下
 
 又被浸猪笼了
-
-
-
-
-
 
 
 -----
@@ -6704,23 +4517,15 @@ ARCHER的时髦值总是比魔法少女高吗……
 ##### 349#       发表于 2015-3-25 13:21
 
 
-
 <img src="http://ww4.sinaimg.cn/large/87c7e3b3jw1eqhw9qnwdoj20go0m8n2p.jpg" referrerpolicy="no-referrer">
 <img src="http://ww4.sinaimg.cn/large/87c7e3b3jw1eqhw554gcjj20a90dnab0.jpg" referrerpolicy="no-referrer">
 险些看成○嘿颜，看来该挂眼科了
-
-
-
-
-
 
 
 -----
 
 ####  发财就手  
 ##### 350#       发表于 2015-3-25 15:36
-
-
 
 
 最新的UBWBD附带的访谈有这样一段
@@ -6735,13 +4540,7 @@ ARCHER的时髦值总是比魔法少女高吗……
 奈：当然。有人完成了自己做不到的事情。人类真是太棒了！
 
 
-
 这算是官方承认魔伊是伊莉亚线了吗？
-
-
-
-
-
 
 
 -----
@@ -6750,16 +4549,10 @@ ARCHER的时髦值总是比魔法少女高吗……
 ##### 351#       发表于 2015-3-25 15:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/136.gif" referrerpolicy="no-referrer">蘑菇口胡而已，这根本不可能是伊莉雅线。
 
 
 当做第二法发动造成的另一个世界好了
-
-
-
-
-
 
 
 -----
@@ -6768,16 +4561,10 @@ ARCHER的时髦值总是比魔法少女高吗……
 ##### 352#       发表于 2015-3-27 09:33
 
 
-
 <img src="http://ww3.sinaimg.cn/large/87c7e3b3jw1eqjzihppkmj20zk1f610g.jpg" referrerpolicy="no-referrer">
 <img src="http://ww3.sinaimg.cn/large/87c7e3b3jw1eqjzpvhavej20zk1g6gvl.jpg" referrerpolicy="no-referrer">
 <img src="http://ww3.sinaimg.cn/large/87c7e3b3jw1eqjznedgrdj20u00n0q8l.jpg" referrerpolicy="no-referrer"><blockquote>基本就是田中救場但劇情沒甚麼進展的一回</blockquote>
 说帅气台词不要配合美背美臀啦，这样谁还会去管你台词呀，prprhshs
-
-
-
-
-
 
 
 -----
@@ -6786,24 +4573,16 @@ ARCHER的时髦值总是比魔法少女高吗……
 ##### 353#       发表于 2015-3-27 11:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=28476066&amp;ptid=866827" target="_blank">zechins 发表于 2015-3-27 09:33</a>
 
 说帅气台词不要配合美背美臀啦，这样谁还会去管你台词呀，prprhshs</blockquote>
 这臀……梅川内酷？
 
 
-
-
-
-
-
 -----
 
 ####  eilot  
 ##### 354#       发表于 2015-3-27 12:00
-
-
 
 
 剛看完，果然是準備用兩個聖杯，可惜是小金閃閃沒有變大
@@ -6813,16 +4592,10 @@ ARCHER的时髦值总是比魔法少女高吗……
 CAST OFF 版就...小金閃閃已經做過類似效果了...
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 355#       发表于 2015-3-27 12:30
-
 
 
 <blockquote>eilot 发表于 2015-3-27 12:00
@@ -6834,16 +4607,10 @@ CAST OFF 版就... ...</blockquote>
 一个实力超强的半裸男青年出现在萝莉主打基本没有其他成年男性的魔法少女作品还戏份吃重想想都觉得太糟糕了，还是在旁边看戏吧。
 
 
-
-
-
-
-
 -----
 
 ####  eilot  
 ##### 356#       发表于 2015-3-27 13:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=28458164&amp;ptid=866827" target="_blank">发财就手 发表于 2015-3-25 15:36</a>
@@ -6856,17 +4623,10 @@ http://tieba.baidu.com/p/3657899547
 這根本只是蘑菇懶吧
 
 
-
-
-
-
-
 -----
 
 ####  eilot  
 ##### 357#       发表于 2015-3-27 13:52
-
-
 
 
 Ｑ：Berserker的宝具「十二试练」有针对受过一次的伤害来赋予抗性的效果，赋予抗性的条件是要先「死过」一次吗？　假设同样的攻击，只要他还没死就能每次都生效吗？
@@ -6881,16 +4641,10 @@ http://tieba.baidu.com/p/3657899547
 變得沒有效果，和無效不同...果然又是文字遊戲來
 
 
-
-
-
-
-
 -----
 
 ####  结标淡希  
 ##### 358#       发表于 2015-3-27 13:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=28476066&amp;ptid=866827" target="_blank">zechins 发表于 2015-3-27 09:33</a>
@@ -6899,25 +4653,13 @@ http://tieba.baidu.com/p/3657899547
 现在的魔法少女越来越不成体统了，no胖
 
 
-
-
-
-
-
 -----
 
 ####  pq123  
 ##### 359#       发表于 2015-4-1 23:24
 
 
-
-
 汉化刚看完,这刚开主角光环没多久就又送外挂来了,现在好奇的是那把看起来叼炸天的剑是什么来历了,有没人可以科普下
-
-
-
-
-
 
 
 -----
@@ -6926,14 +4668,7 @@ http://tieba.baidu.com/p/3657899547
 ##### 360#       发表于 2015-4-2 00:13
 
 
-
-
 说实话已经有点太长了，过山车的弯不是越多越好，是时候搞定了吧。
-
-
-
-
-
 
 
 -----
@@ -6942,14 +4677,7 @@ http://tieba.baidu.com/p/3657899547
 ##### 361#         楼主| 发表于 2015-4-19 11:48
 
 
-
-
 居然两集没看，我今天才发现出了标着26话的28话。这序数好乱啊。
-
-
-
-
-
 
 
 -----
@@ -6958,14 +4686,7 @@ http://tieba.baidu.com/p/3657899547
 ##### 362#       发表于 2015-5-1 03:56
 
 
-
-
 29话出了，这就打完了？樱貌似被留下了，修罗场啊修罗场
-
-
-
-
-
 
 
 -----
@@ -6974,14 +4695,7 @@ http://tieba.baidu.com/p/3657899547
 ##### 363#       发表于 2015-5-1 09:05
 
 
-
-
 不管哪个世界哪条线土狼都是这么拼……
-
-
-
-
-
 
 
 -----
@@ -6990,16 +4704,10 @@ http://tieba.baidu.com/p/3657899547
 ##### 364#       发表于 2015-5-1 09:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=28825517&amp;ptid=866827" target="_blank">lcn 发表于 2015-5-1 09:05</a>
 
 不管哪个世界哪条线土狼都是这么拼……</blockquote>
 还有红宝石救命
-
-
-
-
-
 
 
 -----
@@ -7008,14 +4716,7 @@ http://tieba.baidu.com/p/3657899547
 ##### 365#       发表于 2015-5-1 12:10
 
 
-
-
 感觉3季里最后就是为了救美游和世界选择变成英灵<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">三季绝壁土狼刷时髦
-
-
-
-
-
 
 
 -----
@@ -7024,14 +4725,7 @@ http://tieba.baidu.com/p/3657899547
 ##### 366#       发表于 2015-5-1 12:20
 
 
-
-
 留下的是女闪闪，那个双马尾。
-
-
-
-
-
 
 
 -----
@@ -7040,16 +4734,9 @@ http://tieba.baidu.com/p/3657899547
 ##### 367#       发表于 2015-5-1 12:33
 
 
-
-
 看了最新的一话,田中是世界的法则?
 
 各种意义上非常好奇田中是什么了
-
-
-
-
-
 
 
 -----
@@ -7058,14 +4745,7 @@ http://tieba.baidu.com/p/3657899547
 ##### 368#       发表于 2015-5-1 12:40
 
 
-
-
 留下来的是女闪闪还是樱啊？
-
-
-
-
-
 
 
 -----
@@ -7074,20 +4754,13 @@ http://tieba.baidu.com/p/3657899547
 ##### 369#       发表于 2015-5-1 13:32
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer"> 漫画这结局有点那啥。。 翻盘太容易
-
-
-
-
-
 
 
 -----
 
 ####  万花筒之杖  
 ##### 370#       发表于 2015-5-2 16:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=28827379&amp;ptid=866827" target="_blank">革新 发表于 2015-5-1 13:32</a>
@@ -7101,17 +4774,10 @@ http://tieba.baidu.com/p/3657899547
 <img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  wangandh  
 ##### 371#       发表于 2015-5-2 16:42
-
-
 
 
 这尿性
@@ -7126,16 +4792,10 @@ BOSS居然卷铺盖跑路了
 跑你妹啊
 
 
-
-
-
-
-
 -----
 
 ####  Joseph.Fourier  
 ##### 372#       发表于 2015-5-2 16:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=28836309&amp;ptid=866827" target="_blank">wangandh 发表于 2015-5-2 16:42</a>
@@ -7148,17 +4808,10 @@ BOSS居然卷铺盖跑路了
 很有可能最后的解决方案是把残存的人类都不负责任的挪到这边。然后第四部的日常可以乱得崩天....
 
 
-
-
-
-
-
 -----
 
 ####  Archlich  
 ##### 373#       发表于 2015-5-2 18:05
-
-
 
 
 伊莉雅系列的剧本似乎没有一部不是以动画化为前提写的，这一次也不例外。虽然洋洋洒洒和第二部一样的篇幅，那些曲折和动作归纳一下实际就是部电影的内容。
@@ -7167,16 +4820,10 @@ BOSS居然卷铺盖跑路了
 可以静待三期剧场版啦。
 
 
-
-
-
-
-
 -----
 
 ####  十五式試作艦戦  
 ##### 374#       发表于 2015-5-7 03:12
-
 
 
  本帖最后由 十五式試作艦戦 于 2015-5-7 03:15 编辑 
@@ -7189,24 +4836,13 @@ BOSS居然卷铺盖跑路了
 话说现在正反全员都细软跑了，最后一格子里安杰丽卡还是没人捡回去，这是算是给谁的伏笔。。。
 
 
-
-
-
-
-
 -----
 
 ####  qixinno2  
 ##### 375#       发表于 2015-5-7 05:25
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">没了中二卡所以变成软妹子这桥段如何
-
-
-
-
-
 
 
 -----
@@ -7215,14 +4851,7 @@ BOSS居然卷铺盖跑路了
 ##### 376#         楼主| 发表于 2015-5-7 19:42
 
 
-
-
 你们有没有觉得那个东西像变形金刚的火种源…
-
-
-
-
-
 
 
 -----
@@ -7231,16 +4860,9 @@ BOSS居然卷铺盖跑路了
 ##### 377#       发表于 2015-5-20 02:34
 
 
-
-
 以为田中要出来刷时髦,没先到只有一只手出来了,而且威力还叼炸天,随便挥一下就相当于放合体炮的伊莉雅
 
 最后看到那个红宝石真是感叹这就是世界线的收束么,土狼又被这项链救了<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7249,14 +4871,7 @@ BOSS居然卷铺盖跑路了
 ##### 378#       发表于 2015-5-26 11:11
 
 
-
-
 看了30话剧透不由感叹，美游好好一个大小姐，唯一的亲人生死未卜，流亡到人生地不熟的平行世界。到凭毅力与坚持要弥补穿越副作用的锅（四散的卡牌），为了生计放下架子给人做女仆，实在不易。但她不仅完成了不可能的回收卡牌任务，还用真诚换来了亲情友情，俘获了爱因兹贝伦姐妹的芳心。真是励志教材，落难公主的典范
-
-
-
-
-
 
 
 -----
@@ -7265,22 +4880,13 @@ BOSS居然卷铺盖跑路了
 ##### 379#       发表于 2015-6-1 00:56
 
 
-
-
 30话熟肉更新了,福利回
-
-
-
-
-
 
 
 -----
 
 ####  king520kyo  
 ##### 380#       发表于 2015-6-1 01:00
-
-
 
 
 果然那手是田中的 不过田中相关还是啥都没说我是没料到…
@@ -7290,25 +4896,13 @@ BOSS居然卷铺盖跑路了
 美游线的土狼看起来和FATE本身世界线的比较接近 性格啥的 和美游两个人对话那里真温馨…如果FATE本篇有伊利亚线应该就是这种感觉吧
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 381#       发表于 2015-6-1 01:52
 
 
-
-
 那个土狗是HF线（里面被合并的伊莉雅线）土狗早就是板上钉钉的事实啦！
-
-
-
-
-
 
 
 -----
@@ -7317,16 +4911,10 @@ BOSS居然卷铺盖跑路了
 ##### 382#       发表于 2015-6-1 01:55
 
 
-
  本帖最后由 Crazy_Knife 于 2015-6-1 01:58 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">小黑的睡衣感觉好大胆啊，直接露出那么多，舔舔舔
 <img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7335,14 +4923,7 @@ BOSS居然卷铺盖跑路了
 ##### 383#       发表于 2015-6-1 02:11
 
 
-
-
 伊莉雅！<img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7351,16 +4932,9 @@ BOSS居然卷铺盖跑路了
 ##### 384#       发表于 2015-6-1 08:19
 
 
-
-
 这个世界线的土狗微妙地走育儿战争保姆archer路线了，全程面不改色正经得不行。餐桌茶话会上除了幼女，土狗1p装的摔跤女，散发凛和衬衫巴姐都刀剑神域得不行。还有只穿男装衬衫的女闪闪……
 
 我看这全员除了巴泽特（头发太短）都要被土狗的梳头神技攻略了
-
-
-
-
-
 
 
 -----
@@ -7369,14 +4943,7 @@ BOSS居然卷铺盖跑路了
 ##### 385#       发表于 2015-6-1 09:02
 
 
-
-
 和服美人大赞，然后这个世界的士郎也是妹控仔细想想也是理所当然
-
-
-
-
-
 
 
 -----
@@ -7385,21 +4952,13 @@ BOSS居然卷铺盖跑路了
 ##### 386#       发表于 2015-6-1 09:12
 
 
-
-
 小黑和幼闪闪是因为同为被生造才降世的英灵所以有共感吧。话说这么看原来世界的卫宫家是被切丝papa卖了？
-
-
-
-
-
 
 
 -----
 
 ####  卡蓮  
 ##### 387#       发表于 2015-6-1 09:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29120669&amp;ptid=866827" target="_blank">king520kyo 发表于 2015-6-1 01:00</a>
@@ -7410,26 +4969,15 @@ BOSS居然卷铺盖跑路了
 都暗示了那么明显了，盖亚侧的抑制力八九不离十了吧
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 388#       发表于 2015-6-1 09:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29121895&amp;amp;ptid=866827" target="_blank">AlienFromEarth 发表于 2015-6-1 09:12</a>
 小黑和幼闪闪是因为同为被生造才降世的英灵所以有共感吧。话说这么看原来世界的卫宫家是被切丝papa卖了？ ...</blockquote>
 应该是就是没造吧
-
-
-
-
-
 
 
 -----
@@ -7438,16 +4986,9 @@ BOSS居然卷铺盖跑路了
 ##### 389#       发表于 2015-6-1 09:37
 
 
-
-
 这话福利回<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">伊利亚还是那么棒啊！
 
 这个士郎画的我好想舔啊，作者不考虑出一个弓士的本子吗<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7456,14 +4997,7 @@ BOSS居然卷铺盖跑路了
 ##### 390#       发表于 2015-6-1 10:01
 
 
-
-
 美游的和服装真是萌的不要不要的
-
-
-
-
-
 
 
 -----
@@ -7472,16 +5006,10 @@ BOSS居然卷铺盖跑路了
 ##### 391#       发表于 2015-6-1 11:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29121956&amp;ptid=866827" target="_blank">卡蓮 发表于 2015-6-1 09:19</a>
 
 都暗示了那么明显了，盖亚侧的抑制力八九不离十了吧</blockquote>
 指不定哪天田中就变成了白狗
-
-
-
-
-
 
 
 -----
@@ -7490,14 +5018,7 @@ BOSS居然卷铺盖跑路了
 ##### 392#       发表于 2015-6-1 11:30
 
 
-
-
 女金闪闪GJ
-
-
-
-
-
 
 
 -----
@@ -7506,14 +5027,7 @@ BOSS居然卷铺盖跑路了
 ##### 393#       发表于 2015-6-1 12:44
 
 
-
-
 话说这个土狼会死吧，肯定会死吧
-
-
-
-
-
 
 
 -----
@@ -7522,14 +5036,7 @@ BOSS居然卷铺盖跑路了
 ##### 394#       发表于 2015-6-1 15:18
 
 
-
-
 这话的福利实在太棒！小黑！！！！
-
-
-
-
-
 
 
 -----
@@ -7538,17 +5045,10 @@ BOSS居然卷铺盖跑路了
 ##### 395#       发表于 2015-6-1 15:23
 
 
-
-
 這次福利好棒
 
 
 ----发送自 [Sony D6653,Android 4.4.4](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -7557,21 +5057,13 @@ BOSS居然卷铺盖跑路了
 ##### 396#       发表于 2015-6-1 17:01
 
 
-
-
 伊莉雅说的奇怪开关,说的是想推到美游吧,哈斯哈斯眼神都变了<img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  骈儿  
 ##### 397#       发表于 2015-6-1 17:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29124107&amp;ptid=866827" target="_blank">AlienFromEarth 发表于 2015-6-1 12:44</a>
@@ -7584,16 +5076,10 @@ BOSS居然卷铺盖跑路了
 不过我还是希望士郎能活下来<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  chiman  
 ##### 398#       发表于 2015-6-1 17:10
-
 
 
 <blockquote>引用第396楼skyuni于2015-06-01 17:01发表的  :
@@ -7607,25 +5093,13 @@ BOSS居然卷铺盖跑路了
 ----发送自 [Sony D6653,Android 4.4.4](http://stage1.5j4m.com/?1.17) 
 
 
-
-
-
-
-
 -----
 
 ####  skyuni  
 ##### 399#       发表于 2015-6-1 17:11
 
 
-
-
 平行世界的土狼活下来的话,美游肯定就不回去了,不知道结局是个什么走向
-
-
-
-
-
 
 
 -----
@@ -7634,23 +5108,16 @@ BOSS居然卷铺盖跑路了
 ##### 400#       发表于 2015-6-1 17:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29126693&amp;ptid=866827" target="_blank">skyuni 发表于 2015-6-1 17:01</a>
 
 伊莉雅说的奇怪开关,说的是想推到美游吧,哈斯哈斯眼神都变了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/105.gif" referrerpolicy="no-referrer">奇怪的开关具体可以参考第一季伊莉雅推倒妹抖服美游嘛
 
 
-
-
-
-
-
 -----
 
 ####  laoism  
 ##### 401#         楼主| 发表于 2015-6-14 20:45
-
 
 
  本帖最后由 laoism 于 2015-6-14 20:46 编辑 
@@ -7664,25 +5131,13 @@ BOSS居然卷铺盖跑路了
 头一次见到Archlich被关小黑屋。原因只是因为某词<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  akasier  
 ##### 402#       发表于 2015-6-21 10:34
 
 
-
-
 田中很明显是抑制力派来的。土狼每个平行世界都开后宫，还越开越大，折算世界线收束么
-
-
-
-
-
 
 
 -----
@@ -7691,15 +5146,9 @@ BOSS居然卷铺盖跑路了
 ##### 403#       发表于 2015-6-21 10:49
 
 
-
 <blockquote>akasier 发表于 2015-6-21 10:34
 田中很明显是抑制力派来的。土狼每个平行世界都开后宫，还越开越大，折算世界线收束么 ...</blockquote>
 按空境的解释，抑制力也不会凭空捏个人出来干翻你的，只会制造各种巧合，给你的对手上buff最后造成你的失败
-
-
-
-
-
 
 
 -----
@@ -7708,14 +5157,7 @@ BOSS居然卷铺盖跑路了
 ##### 404#       发表于 2015-7-23 21:51
 
 
-
-
 切嗣终于露脸了。。。
-
-
-
-
-
 
 
 -----
@@ -7724,14 +5166,7 @@ BOSS居然卷铺盖跑路了
 ##### 405#       发表于 2015-7-23 22:12
 
 
-
-
 看剧透这切嗣怎么看着跟他爹似的，搞不好死在士郎手里啊
-
-
-
-
-
 
 
 -----
@@ -7740,23 +5175,15 @@ BOSS居然卷铺盖跑路了
 ##### 406#       发表于 2015-7-23 22:18
 
 
-
-
 剧透里的切嗣看着应该是没有经历过第四次圣杯战争的那个切嗣的感觉吧
 
 为了多数而牺牲少数，所以为了拯救世界毫无犹豫的牺牲美游
-
-
-
-
-
 
 
 -----
 
 ####  wangph5118  
 ##### 407#       发表于 2015-7-24 08:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29634121&amp;ptid=866827" target="_blank">高等黑暗 发表于 2015-7-23 22:18</a>
@@ -7767,16 +5194,10 @@ BOSS居然卷铺盖跑路了
 那士郎难道要学习切嗣走上弑父之旅。。。
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 408#       发表于 2015-7-24 08:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29636251&amp;ptid=866827" target="_blank">wangph5118 发表于 2015-7-24 08:12</a>
@@ -7785,16 +5206,10 @@ BOSS居然卷铺盖跑路了
 HF线土狼和切嗣我觉得还是差别不小的…具体什么剧情走向不好说
 
 
-
-
-
-
-
 -----
 
 ####  Joseph.Fourier  
 ##### 409#       发表于 2015-7-24 08:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29126785&amp;ptid=866827" target="_blank">skyuni 发表于 2015-6-1 17:11</a>
@@ -7803,27 +5218,15 @@ HF线土狼和切嗣我觉得还是差别不小的…具体什么剧情走向不
 一个救世方案就是全都挪到另一个世界去。
 
 
-
-
-
-
-
-
 -----
 
 ####  pgain2004  
 ##### 410#       发表于 2015-7-24 09:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29319226&amp;ptid=866827" target="_blank">03e7 发表于 2015-6-21 10:49</a>
 按空境的解释，抑制力也不会凭空捏个人出来干翻你的，只会制造各种巧合，给你的对手上buff最后造成你的失 ...</blockquote>
 签了契约的红A士郎不也是在类似场合发挥作用的么，空境毕竟算早期作品，越往后抑止力的表现形式越多样化也是可能的吧？
-
-
-
-
-
 
 
 -----
@@ -7832,14 +5235,7 @@ HF线土狼和切嗣我觉得还是差别不小的…具体什么剧情走向不
 ##### 411#       发表于 2015-7-24 10:47
 
 
-
-
 还没开播么？都快被遗忘了。
-
-
-
-
-
 
 
 -----
@@ -7848,22 +5244,15 @@ HF线土狼和切嗣我觉得还是差别不小的…具体什么剧情走向不
 ##### 412#       发表于 2015-7-24 12:04
 
 
-
 [http://webm.host/e7421/vid.webm](http://webm.host/e7421/vid.webm)
 
 尺度呢<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  03e7  
 ##### 413#       发表于 2015-7-24 12:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29122367&amp;ptid=866827" target="_blank">xiaoboost 发表于 2015-6-1 10:01</a>
@@ -7875,16 +5264,10 @@ HF线土狼和切嗣我觉得还是差别不小的…具体什么剧情走向不
 烧！烧！烧！
 
 
-
-
-
-
-
 -----
 
 ####  crazymarky  
 ##### 414#       发表于 2015-7-24 12:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29638652&amp;ptid=866827" target="_blank">周愚 发表于 2015-7-24 12:04</a>
@@ -7895,31 +5278,19 @@ http://webm.host/e7421/vid.webm
 <img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">节 操 丧 失
 
 
-
-
-
-
-
 -----
 
 ####  crazymarky  
 ##### 415#       发表于 2015-7-24 12:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">其实想到小黑跟486、吼少侠同是千和太太就出戏啊
-
-
-
-
-
 
 
 -----
 
 ####  高等黑暗  
 ##### 416#       发表于 2015-7-24 12:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29638652&amp;ptid=866827" target="_blank">周愚 发表于 2015-7-24 12:04</a>
@@ -7930,16 +5301,10 @@ http://webm.host/e7421/vid.webm
 <img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">我已经
 
 
-
-
-
-
-
 -----
 
 ####  卡蓮  
 ##### 417#       发表于 2015-7-24 12:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29638652&amp;ptid=866827" target="_blank">周愚 发表于 2015-7-24 12:04</a>
@@ -7950,32 +5315,19 @@ http://webm.host/e7421/vid.webm
 这是哪里的<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zhaoyanggolden  
 ##### 418#       发表于 2015-7-24 12:50
 
 
-
-
 我的妈呀，你跟我说这是表番动画……<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  7450  
 ##### 419#       发表于 2015-7-24 12:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29638652&amp;ptid=866827" target="_blank">周愚 发表于 2015-7-24 12:04</a>
@@ -7986,16 +5338,10 @@ http://webm.host/e7421/vid.webm
 <img src="https://static.saraba1st.com/image/smiley/face/104.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  skyuni  
 ##### 420#       发表于 2015-7-24 12:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29638652&amp;ptid=866827" target="_blank">周愚 发表于 2015-7-24 12:04</a>
@@ -8008,32 +5354,19 @@ http://webm.host/e7421/vid.webm
 比漫画色气度高300%<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  skyuni  
 ##### 421#       发表于 2015-7-24 12:56
 
 
-
-
 伊利亚已经阿黑颜了,这真的没问题么<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  crazymarky  
 ##### 422#       发表于 2015-7-24 12:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29639201&amp;ptid=866827" target="_blank">卡蓮 发表于 2015-7-24 12:50</a>
@@ -8047,16 +5380,10 @@ http://webm.host/e7421/vid.webm
 还neta了乒乓
 
 
-
-
-
-
-
 -----
 
 ####  dawning  
 ##### 423#       发表于 2015-7-24 13:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29639296&amp;ptid=866827" target="_blank">crazymarky 发表于 2015-7-24 12:58</a>
@@ -8069,17 +5396,10 @@ http://www.bilibili.com/video/av2619081/
 回家看，自攻自受，伊莉雅最高
 
 
-
-
-
-
-
 -----
 
 ####  黑雪姫  
 ##### 424#       发表于 2015-7-25 01:24
-
-
 
 
 本月漫画情报
@@ -8093,32 +5413,19 @@ http://www.bilibili.com/video/av2619081/
 已知士郎选择了美游，而切丝应该是选择了世界，又已知现在切丝已经不再了，我看士郎这是要....................<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  风清天蓝  
 ##### 425#       发表于 2015-7-25 08:38
 
 
-
-
 被吻到阿黑颜……实在不能想象如果被“哔——”会是什么样子……
-
-
-
-
-
 
 
 -----
 
 ####  laoism  
 ##### 426#         楼主| 发表于 2015-7-26 20:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29639296&amp;ptid=866827" target="_blank">crazymarky 发表于 2015-7-24 12:58</a>
@@ -8131,16 +5438,10 @@ http://www.bilibili.com/video/av2619081/
 熟肉也出了：
 
 
-
-
-
-
-
 -----
 
 ####  handing  
 ##### 427#       发表于 2015-7-26 22:27
-
 
 
 [http://bosel.blog64.fc2.com/blog-entry-3812.html](http://bosel.blog64.fc2.com/blog-entry-3812.html)
@@ -8161,8 +5462,6 @@ http://www.bilibili.com/video/av2619081/
 それは士郎が正義の味方（切嗣）に憧れるということだ。
 
 
-
-
 士郎は何度も切嗣を正義の味方と呼び、切嗣は毎度それを否定している。
 
 そんなことを続けて人類救済の手段を求めてやってきたのは冬木だった。また冬木か
@@ -8174,15 +5473,11 @@ http://www.bilibili.com/video/av2619081/
 型月ファンとしてはどうしてもhollowの「天の逆月」を連想しちゃいますよね。
 
 
-
-
 今まで士郎と切嗣は何度も人類救済の手段を求めて旅をしたが全てが空振り。
 
 だから今回の「神稚児」の能力なんてそれほど期待はしてなかったのだが
 
 二人が目にしたのは予想以上のものだった。
-
-
 
 
 圧倒的な国をも覆いかねない闇と、それを消し去った神々し光。
@@ -8192,9 +5487,6 @@ http://www.bilibili.com/video/av2619081/
 士郎はその朔月家に向かって一直線に走り、出会ったのは本物の「神稚児」であったという話。
 
 その名は朔月美遊。現在の美遊ちゃんである。
-
-
-
 
 
 美遊ちゃんの力が本物なのは読者もご存知ですが、切嗣は朔月家を家探ししてその事実を確信する。
@@ -8210,8 +5502,6 @@ http://www.bilibili.com/video/av2619081/
 お馴染みの衛宮邸で家族が暮らしているのに全然暖かくないその光景はとても寂しい。
 
 
-
-
 そしてここで美遊ちゃんが誕生日を祝う習慣を知らなかった経緯が明らかに。
 
 伝承では「神稚児」は七歳になったら人になるという。
@@ -8223,8 +5513,6 @@ http://www.bilibili.com/video/av2619081/
 能力を消失したらそこから出て人間として生活できるというわけである。
 
 あと一ヶ月でそれも完了するはずだったのだが、切嗣は間に合ってしまった。
-
-
 
 
 その結界も災害で消え、能力がどうなるかは未知数なんですが
@@ -8245,8 +5533,6 @@ http://www.bilibili.com/video/av2619081/
 やっぱり探求において寿命の問題はクリアせねばならない案件だね（矩賢さん並感）
 
 
-
-
 士郎も切嗣が正しいのは理解しているが心がついてこない。
 
 情を抱いてはいけないと思うものの、そんな簡単に割り切れないのが士郎である。
@@ -8258,7 +5544,6 @@ http://www.bilibili.com/video/av2619081/
 蒼銀のフラグメンツの巽くんも言ってましたね「子供を殺して、正義もないだろ」と。
 
 こうして士郎は切嗣と美遊の間で板挟みになっていく。
-
 
 
 次あたりからエインズワースの影が見えるようになるのかな。
@@ -8279,25 +5564,13 @@ http://www.bilibili.com/video/av2619081/
 <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  多看书  
 ##### 428#       发表于 2015-7-31 03:54
 
 
-
-
 为啥在爱撕衣人气这么低？说好的萝莉控论坛呢？
-
-
-
-
-
 
 
 -----
@@ -8306,14 +5579,7 @@ http://www.bilibili.com/video/av2619081/
 ##### 429#       发表于 2015-8-1 01:11
 
 
-
-
 次回預告 什么鬼...
-
-
-
-
-
 
 
 -----
@@ -8322,15 +5588,9 @@ http://www.bilibili.com/video/av2619081/
 ##### 430#       发表于 2015-8-1 01:14
 
 
-
  本帖最后由 黑雪姫 于 2015-8-1 01:26 编辑 
 
 下集番外，不加入漫画第三部的剧情，番外原创是必然的结果，动画第二季10话就拍了漫画第二部前3卷的内容，而且依然还加入了一些原创剧情来拖时间. 剩下漫画两卷不加入大量原创或者番外来拖时间这次第三季动画根本就不够拍的.
-
-
-
-
-
 
 
 -----
@@ -8339,14 +5599,7 @@ http://www.bilibili.com/video/av2619081/
 ##### 431#       发表于 2015-8-1 01:19
 
 
-
-
 肯定要原创的漫画也是拖得不行当然是给各种服务画面和装傻恶意卖萌
-
-
-
-
-
 
 
 -----
@@ -8355,14 +5608,7 @@ http://www.bilibili.com/video/av2619081/
 ##### 432#       发表于 2015-8-1 01:51
 
 
-
-
 比起第三季的热血魔法少女，给我更多的小学生福利吧
-
-
-
-
-
 
 
 -----
@@ -8371,14 +5617,7 @@ http://www.bilibili.com/video/av2619081/
 ##### 433#       发表于 2015-8-4 11:51
 
 
-
-
 奈叶何时出场啊
-
-
-
-
-
 
 
 -----
@@ -8387,22 +5626,13 @@ http://www.bilibili.com/video/av2619081/
 ##### 434#       发表于 2015-8-8 01:34
 
 
-
-
 这集笑成狗了，看的很开心，但是下集依旧原创。。。我想看泥闪闪啊教练
-
-
-
-
-
 
 
 -----
 
 ####  skyuni  
 ##### 435#       发表于 2015-8-11 16:01
-
-
 
 
 3rei的31话出了
@@ -8414,25 +5644,13 @@ LS几位,2WEI的专楼在这里哦
 [http://bbs.saraba1st.com/2b/thread-1137399-1-1.html](http://bbs.saraba1st.com/2b/thread-1137399-1-1.html)
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 436#       发表于 2015-8-11 16:23
 
 
-
-
 幼女美游prpr回
-
-
-
-
-
 
 
 -----
@@ -8441,14 +5659,7 @@ LS几位,2WEI的专楼在这里哦
 ##### 437#       发表于 2015-8-11 16:26
 
 
-
-
 幼女才是正义，没有伊莉雅的切嗣你是不会懂的...
-
-
-
-
-
 
 
 -----
@@ -8457,23 +5668,15 @@ LS几位,2WEI的专楼在这里哦
 ##### 438#       发表于 2015-8-11 16:38
 
 
-
-
 等一下，扶额……那这个世界线的依莉雅呢？
 
 艾因兹贝伦就不存在了是么？
-
-
-
-
-
 
 
 -----
 
 ####  dent  
 ##### 439#       发表于 2015-8-11 16:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29826287&amp;ptid=866827" target="_blank">风清天蓝 发表于 2015-8-11 16:38</a>
@@ -8484,16 +5687,10 @@ LS几位,2WEI的专楼在这里哦
 其实从Zwei开始就有暗示了，美游可以看成平行世界的伊莉雅，所以其实3个都是伊莉雅……
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 440#       发表于 2015-8-11 16:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29826287&amp;ptid=866827" target="_blank">风清天蓝 发表于 2015-8-11 16:38</a>
@@ -8506,16 +5703,10 @@ LS几位,2WEI的专楼在这里哦
 艾因兹华斯相当于艾因兹贝伦，但是具体是什么情况还没讲
 
 
-
-
-
-
-
 -----
 
 ####  无敌のpeach  
 ##### 441#       发表于 2015-8-11 16:44
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">切丝还是不懂幼女的好。
@@ -8524,16 +5715,10 @@ LS几位,2WEI的专楼在这里哦
 话说土狼作为助手跟着切丝满世界跑的，难怪战斗力这么强。
 
 
-
-
-
-
-
 -----
 
 ####  452231234  
 ##### 442#       发表于 2015-8-11 16:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29826357&amp;ptid=866827" target="_blank">高等黑暗 发表于 2015-8-11 16:43</a>
@@ -8546,16 +5731,10 @@ LS几位,2WEI的专楼在这里哦
 难道是平行世界的切丝没生女儿所以对幼女无感？
 
 
-
-
-
-
-
 -----
 
 ####  eyeego  
 ##### 443#       发表于 2015-8-11 17:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29826536&amp;ptid=866827" target="_blank">452231234 发表于 2015-8-11 16:59</a>
@@ -8568,16 +5747,10 @@ LS几位,2WEI的专楼在这里哦
 然而麻婆依旧安定在世纪末横行卖麻婆拉面 就算有四战肯定也跟FZ的不一样啦<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 444#       发表于 2015-8-11 17:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29826536&amp;ptid=866827" target="_blank">452231234 发表于 2015-8-11 16:59</a>
@@ -8594,33 +5767,19 @@ FZ切嗣只是为了自己的理想去改变世界，在得知黑圣杯的污染
 而平行世界的切嗣面对的是十分现实且实际的世界毁灭危机，为了拯救世界牺牲一个幼女在所不惜啦（而且还不是自己的女儿
 
 
-
-
-
-
-
 -----
 
 ####  deviljz  
 ##### 445#       发表于 2015-8-11 19:17
 
 
-
-
 结论：妹妹才是正义
-
-
-
-
-
 
 
 -----
 
 ####  岸波白野  
 ##### 446#       发表于 2015-8-11 19:17
-
-
 
 
 魔伊平行世界这个切嗣就是变相的魔术师思维，要拿来类比的也不是FZ中的他自己，而是他爹卫宫矩贤那样的人
@@ -8630,32 +5789,19 @@ FZ切嗣只是为了自己的理想去改变世界，在得知黑圣杯的污染
 还有朱利安（当时是借他爹的脸）当时说现在这个状况已经算是六战了，但现在来讲平行世界四五战什么时候发生结果如何线索还太少，回忆篇也八成还能拖个一阵子吧（广山你到时候别把某紫发路人忘了啊喂）
 
 
-
-
-
-
-
 -----
 
 ####  歇洛克波洛  
 ##### 447#       发表于 2015-8-12 02:58
 
 
-
-
 朱利安和这里切嗣的眼神一摸一样，目标也一样，爱因兹华斯家族和切嗣肯定有一腿。土狼脸上没疤，八成是跟切嗣或艾家撕逼的时候留的。故事发生在五年九个月前，艾丽卡看样子不到六岁，大概就是切嗣找到用神稚儿拯救世界的具体方法后，联合艾家创造的人造人？<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  高等黑暗  
 ##### 448#       发表于 2015-8-12 08:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29831161&amp;ptid=866827" target="_blank">歇洛克波洛 发表于 2015-8-12 02:58</a>
@@ -8678,27 +5824,15 @@ FZ切嗣只是为了自己的理想去改变世界，在得知黑圣杯的污染
 不过实际上这段质问在HF里也有啦，拯救世界牺牲樱还是拯救樱的问题
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 449#       发表于 2015-8-12 08:26
 
 
-
-
 至于五战
 
 我觉得可能就是指土狼插红A卡大战艾因兹华斯，把美游送走到平行世界的那一战。。。。
-
-
-
-
-
 
 
 -----
@@ -8707,14 +5841,7 @@ FZ切嗣只是为了自己的理想去改变世界，在得知黑圣杯的污染
 ##### 450#       发表于 2015-8-12 08:32
 
 
-
-
 作者笔下的幼女是越来越棒了
-
-
-
-
-
 
 
 -----
@@ -8723,14 +5850,7 @@ FZ切嗣只是为了自己的理想去改变世界，在得知黑圣杯的污染
 ##### 451#       发表于 2015-8-12 08:38
 
 
-
-
 为什么觉得魔伊比本传剧情还要好。。。
-
-
-
-
-
 
 
 -----
@@ -8739,21 +5859,13 @@ FZ切嗣只是为了自己的理想去改变世界，在得知黑圣杯的污染
 ##### 452#       发表于 2015-8-12 08:55
 
 
-
-
 艾丽卡从黑泥里出来后不止身体御姐化，眼神也完全变了，不晓得是双重人格还是被什么附身了
-
-
-
-
-
 
 
 -----
 
 ####  猫?魔铃  
 ##### 453#       发表于 2015-8-12 16:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29831785&amp;ptid=866827" target="_blank">零崎不识 发表于 2015-8-12 08:38</a>
@@ -8764,25 +5876,13 @@ FZ切嗣只是为了自己的理想去改变世界，在得知黑圣杯的污染
 像UBW那样续续叨叨，反反复的说废话这才是异端。
 
 
-
-
-
-
-
 -----
 
 ####  zhaoyanggolden  
 ##### 454#       发表于 2015-8-12 16:51
 
 
-
-
 切嗣竟然逃了……性格怎么变得这么大？
-
-
-
-
-
 
 
 -----
@@ -8791,16 +5891,10 @@ FZ切嗣只是为了自己的理想去改变世界，在得知黑圣杯的污染
 ##### 455#       发表于 2015-8-12 18:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29831743&amp;ptid=866827" target="_blank">風駿 发表于 2015-8-12 08:32</a>
 
 作者笔下的幼女是越来越棒了</blockquote>
 这次那张彩页好棒
-
-
-
-
-
 
 
 -----
@@ -8809,14 +5903,7 @@ FZ切嗣只是为了自己的理想去改变世界，在得知黑圣杯的污染
 ##### 456#       发表于 2015-8-12 20:13
 
 
-
-
 回忆篇估计得连载好一段时间了,美游在这个时间段,和人偶差不多,主角宝座得重新落在土狼身上
-
-
-
-
-
 
 
 -----
@@ -8825,20 +5912,13 @@ FZ切嗣只是为了自己的理想去改变世界，在得知黑圣杯的污染
 ##### 457#       发表于 2015-8-12 20:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">又开始拖剧情了，不过看土狼开无双也好
-
-
-
-
-
 
 
 -----
 
 ####  handing  
 ##### 458#       发表于 2015-8-12 20:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29836572&amp;ptid=866827" target="_blank">zhaoyanggolden 发表于 2015-8-12 16:51</a>
@@ -8853,27 +5933,15 @@ FZ切嗣只是为了自己的理想去改变世界，在得知黑圣杯的污染
 当然也和切嗣病重有关系
 
 
-
-
-
-
-
-
 -----
 
 ####  laoism  
 ##### 459#         楼主| 发表于 2015-8-13 11:17
 
 
-
 <blockquote>deviljz 发表于 2015-8-12 18:46
 这次那张彩页好棒</blockquote>
 我还以为开错漫画了。
-
-
-
-
-
 
 
 -----
@@ -8882,15 +5950,9 @@ FZ切嗣只是为了自己的理想去改变世界，在得知黑圣杯的污染
 ##### 460#         楼主| 发表于 2015-8-13 11:19
 
 
-
 <blockquote>deviljz 发表于 2015-8-11 19:17
 结论：妹妹才是正义</blockquote>
 或者说，干妹妹即是正义。
-
-
-
-
-
 
 
 -----
@@ -8899,21 +5961,13 @@ FZ切嗣只是为了自己的理想去改变世界，在得知黑圣杯的污染
 ##### 461#       发表于 2015-8-25 19:51
 
 
-
-
 逛贴吧看到了32的情报…就不剧透了,感觉料有点多，有兴趣的自己摸过去看两眼吧[http://tieba.baidu.com/p/3997292359](http://tieba.baidu.com/p/3997292359)
-
-
-
-
-
 
 
 -----
 
 ####  chiman  
 ##### 462#       发表于 2015-8-26 12:23
-
 
 
 <blockquote>引用第461楼Crazy_Knife于2015-08-25 19:51发表的  :
@@ -8927,25 +5981,13 @@ julian是一成？
 ----发送自 [Sony D6653,Android 4.4.4](http://stage1.5j4m.com/?1.17) 
 
 
-
-
-
-
-
 -----
 
 ####  yinfu  
 ##### 463#       发表于 2015-8-26 12:31
 
 
-
-
 这故事让几个小腐女知道了那还了得
-
-
-
-
-
 
 
 -----
@@ -8954,21 +5996,13 @@ julian是一成？
 ##### 464#       发表于 2015-8-26 12:44
 
 
-
-
 你们没看K岛那个剧透么如果是真的那更吓人
-
-
-
-
-
 
 
 -----
 
 ####  alialex  
 ##### 465#       发表于 2015-8-26 13:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29972632&amp;ptid=866827" target="_blank">岸波白野 发表于 2015-8-26 12:44</a>
@@ -8979,16 +6013,10 @@ julian是一成？
 话说我樱终于正式出场了！板载！板载！板载！
 
 
-
-
-
-
-
 -----
 
 ####  岸波白野  
 ##### 466#       发表于 2015-8-26 13:19
-
 
 
  本帖最后由 岸波白野 于 2015-8-27 10:20 编辑 
@@ -8996,16 +6024,10 @@ julian是一成？
 又被坑了2333
 
 
-
-
-
-
-
 -----
 
 ####  alialex  
 ##### 467#       发表于 2015-8-26 13:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29973061&amp;ptid=866827" target="_blank">岸波白野 发表于 2015-8-26 13:19</a>
@@ -9016,25 +6038,13 @@ julian是一成？
 这么说的话这边的小樱其实还是处？
 
 
-
-
-
-
-
 -----
 
 ####  路过一下  
 ##### 468#       发表于 2015-8-26 13:48
 
 
-
-
 这个樱，我可以（
-
-
-
-
-
 
 
 -----
@@ -9043,22 +6053,15 @@ julian是一成？
 ##### 469#       发表于 2015-8-26 14:41
 
 
-
  本帖最后由 dilinghaoshitu 于 2015-8-26 14:46 编辑 
 
 怪不得当初朱利安第一个捏碎c妈那张卡片，原来如此，一成，你也有今天<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">你终于得到了可以对抗那母狐狸的力量，照这种平行世界人物置换法来说，搞不好这个世界的美缀可能是两仪式也说不定
-
-
-
-
-
 
 
 -----
 
 ####  Crazy_Knife  
 ##### 470#       发表于 2015-8-26 15:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29972380&amp;ptid=866827" target="_blank">chiman 发表于 2015-8-26 12:23</a>
@@ -9069,16 +6072,10 @@ julian是一成？</blockquote>
 应该就是平行世界的一成了，难怪这么捣乱也只是把土狼关起来也没宰了他
 
 
-
-
-
-
-
 -----
 
 ####  结标淡希  
 ##### 471#       发表于 2015-8-26 15:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29974544&amp;ptid=866827" target="_blank">Crazy_Knife 发表于 2015-8-26 15:44</a>
@@ -9087,16 +6084,10 @@ julian是一成？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/136.gif" referrerpolicy="no-referrer">但看土狼那一身伤指不定艹了他（
 
 
-
-
-
-
-
 -----
 
 ####  Crazy_Knife  
 ##### 472#       发表于 2015-8-26 16:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29974649&amp;ptid=866827" target="_blank">结标淡希 发表于 2015-8-26 15:53</a>
@@ -9105,25 +6096,13 @@ julian是一成？</blockquote>
 肯定是看土狼变成个死妹控所以一成和樱才因爱生恨把他关起来玩SM才那么多伤的呀，平行世界的土狼也是罪孽深重啊
 
 
-
-
-
-
-
 -----
 
 ####  satanas  
 ##### 473#       发表于 2015-8-26 16:18
 
 
-
-
 但是这个世界无远板却有樱 樱是替换掉慎2那个间桐家独子的位置？（虽然伊利亚世界里的樱和凛也无什么关系的样子
-
-
-
-
-
 
 
 -----
@@ -9132,14 +6111,7 @@ julian是一成？</blockquote>
 ##### 474#       发表于 2015-8-26 16:55
 
 
-
-
 宝石翁什么时候会出现然后碾压全场？
-
-
-
-
-
 
 
 -----
@@ -9148,16 +6120,10 @@ julian是一成？</blockquote>
 ##### 475#       发表于 2015-8-26 17:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29831785&amp;ptid=866827" target="_blank">零崎不识 发表于 2015-8-12 08:38</a>
 
 为什么觉得魔伊比本传剧情还要好。。。</blockquote>
 因为本传是蘑菇写的啊
-
-
-
-
-
 
 
 -----
@@ -9166,16 +6132,10 @@ julian是一成？</blockquote>
 ##### 476#       发表于 2015-8-26 17:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29974934&amp;ptid=866827" target="_blank">satanas 发表于 2015-8-26 16:18</a>
 
 但是这个世界无远板却有樱 樱是替换掉慎2那个间桐家独子的位置？（虽然伊利亚世界里的樱和凛也无什么关系的 ...</blockquote>
 八成这样，之前切嗣对圣杯战争解决方案就是不和某一派合作参与，直接IED和炸弹和狙击，把几个参与的魔法家族和捣乱的法师都搞死了。然后樱被另外的家系收养留在日本。间桐家什么的已经被炸成灰了，士郎等是附带伤害落难被救。爱因家因为没有这个战争没有造新的圣女出来。麻婆回来后听闻父亲被狙击而死，加上老婆最近也死了，心灰意冷，放弃当教士。入俗当了拉面店老板。
-
-
-
-
-
 
 
 -----
@@ -9184,16 +6144,10 @@ julian是一成？</blockquote>
 ##### 477#       发表于 2015-8-26 19:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29974934&amp;ptid=866827" target="_blank">satanas 发表于 2015-8-26 16:18</a>
 
 但是这个世界无远板却有樱 樱是替换掉慎2那个间桐家独子的位置？（虽然伊利亚世界里的樱和凛也无什么关系的 ...</blockquote>
 伊利亚世界有樱么？好像没出场过
-
-
-
-
-
 
 
 -----
@@ -9202,16 +6156,10 @@ julian是一成？</blockquote>
 ##### 478#       发表于 2015-8-26 19:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29831785&amp;ptid=866827" target="_blank">零崎不识 发表于 2015-8-12 08:38</a>
 
 为什么觉得魔伊比本传剧情还要好。。。</blockquote>
 魔伊套用了多少本传人物的剧情和性格 嘉年华再好那也是靠着原作的基础才做出来的 魔伊同理 这几集的剧情完全就是把切嗣土狼月下对谈加HF土狼揉把揉把到一起出来的 你让广山原创个什么漫画再说吧
-
-
-
-
-
 
 
 -----
@@ -9220,16 +6168,10 @@ julian是一成？</blockquote>
 ##### 479#       发表于 2015-8-26 19:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29976693&amp;ptid=866827" target="_blank">alialex 发表于 2015-8-26 19:12</a>
 
 伊利亚世界有樱么？好像没出场过</blockquote>
 2wei的番外篇里，金钻头和家计簿把土狼炸到趴地上时，樱出场把土狼捡走了
-
-
-
-
-
 
 
 -----
@@ -9238,15 +6180,9 @@ julian是一成？</blockquote>
 ##### 480#       发表于 2015-8-26 19:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29976951&amp;amp;ptid=866827" target="_blank">碳. 发表于 2015-8-26 19:39</a>
 2wei的番外篇里，金钻头和家计簿把土狼炸到趴地上时，樱出场把土狼捡走了 ...</blockquote>
 噗，特意去回顾了一下，不是破鞋的樱，真是太棒了
-
-
-
-
-
 
 
 -----
@@ -9255,16 +6191,10 @@ julian是一成？</blockquote>
 ##### 481#       发表于 2015-8-26 20:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29976843&amp;ptid=866827" target="_blank">任天索尼子 发表于 2015-8-26 19:28</a>
 
 魔伊套用了多少本传人物的剧情和性格 嘉年华再好那也是靠着原作的基础才做出来的 魔伊同理 这几集的剧情 ...</blockquote>
 天国的《妹神》在看着你。第三部开头一次潜入一次被掳到艾因兹华斯的脑洞你又不是没见过，这几集只是致敬而已，还真当作者江郎才尽了？
-
-
-
-
-
 
 
 -----
@@ -9273,17 +6203,10 @@ julian是一成？</blockquote>
 ##### 482#       发表于 2015-8-26 20:32
 
 
-
-
 天国的妹神…塑料瓶那一话青梅竹马两姐妹那色气度简直让人舔裂玻璃膜了<img src="https://static.saraba1st.com/image/smiley/face/32.gif" referrerpolicy="no-referrer">
 
 
 ----发送自 [Sony D5833,Android 4.4.4](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -9292,16 +6215,10 @@ julian是一成？</blockquote>
 ##### 483#       发表于 2015-8-26 20:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29977292&amp;ptid=866827" target="_blank">qhcn 发表于 2015-8-26 20:14</a>
 
 天国的《妹神》在看着你。第三部开头一次潜入一次被掳到艾因兹华斯的脑洞你又不是没见过，这几集只是致敬 ...</blockquote>
 说到底还是打着fate的招牌 凛 路维亚 土狼 太太 这些主要角色的性格和设定都是原作就有的 没有这些故事根本就无从展开 非要说原创的不错的人物我觉得就是那几个女同学 原作完全没有 日常剧情表现也不错
-
-
-
-
-
 
 
 -----
@@ -9310,16 +6227,10 @@ julian是一成？</blockquote>
 ##### 484#       发表于 2015-8-26 23:41
 
 
-
 <img src="http://i3.tietuku.com/913446e52a14554d.jpg" referrerpolicy="no-referrer">
 
 
 你跟我说是一个人？别逗啦。
-
-
-
-
-
 
 
 -----
@@ -9328,14 +6239,7 @@ julian是一成？</blockquote>
 ##### 485#       发表于 2015-8-27 02:58
 
 
-
-
 反派大boss和中boss都是爱着士郎的人，平行世界根本就是士郎后宫撕逼
-
-
-
-
-
 
 
 -----
@@ -9344,14 +6248,7 @@ julian是一成？</blockquote>
 ##### 486#       发表于 2015-8-27 02:58
 
 
-
-
 反派大boss和中boss都是爱着士郎的人，平行世界根本就是士郎后宫撕逼
-
-
-
-
-
 
 
 -----
@@ -9360,14 +6257,7 @@ julian是一成？</blockquote>
 ##### 487#       发表于 2015-8-27 02:58
 
 
-
-
 反派大boss和中boss都是爱着士郎的人，平行世界根本就是士郎后宫撕逼
-
-
-
-
-
 
 
 -----
@@ -9376,16 +6266,10 @@ julian是一成？</blockquote>
 ##### 488#       发表于 2015-8-27 10:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29980122&amp;ptid=866827" target="_blank">yinfu 发表于 2015-8-27 02:58</a>
 
 反派大boss和中boss都是爱着士郎的人，平行世界根本就是士郎后宫撕逼</blockquote>
 雀花&amp;美美头顶青天
-
-
-
-
-
 
 
 -----
@@ -9394,23 +6278,16 @@ julian是一成？</blockquote>
 ##### 489#       发表于 2015-8-27 10:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29981560&amp;ptid=866827" target="_blank">03e7 发表于 2015-8-27 10:00</a>
 
 雀花&amp;美美头顶青天</blockquote>
 腐力达到升华到第二法的境界了冲破次元壁
 
 
-
-
-
-
-
 -----
 
 ####  03e7  
 ##### 490#       发表于 2015-8-27 10:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29977511&amp;ptid=866827" target="_blank">任天索尼子 发表于 2015-8-26 20:41</a>
@@ -9422,32 +6299,19 @@ julian是一成？</blockquote>
 原作的美由在哪里，娘闪闪和锤子女又在哪里？
 
 
-
-
-
-
-
 -----
 
 ####  LMBS  
 ##### 491#       发表于 2015-8-27 18:39
 
 
-
-
 其实也就套了个设定吧，伊莉雅跟原作的也根本不是一个人了
-
-
-
-
-
 
 
 -----
 
 ####  任天索尼子  
 ##### 492#       发表于 2015-8-27 18:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29982256&amp;ptid=866827" target="_blank">03e7 发表于 2015-8-27 10:50</a>
@@ -9459,16 +6323,10 @@ julian是一成？</blockquote>
 所以某些人非要强行割裂啊 拿魔伊婊原作的楼里又不止一个 没有fate这块招牌你觉得还会有多少人关注这作品？
 
 
-
-
-
-
-
 -----
 
 ####  deviljz  
 ##### 493#       发表于 2015-8-27 19:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29977292&amp;ptid=866827" target="_blank">qhcn 发表于 2015-8-26 20:14</a>
@@ -9477,16 +6335,10 @@ julian是一成？</blockquote>
 妹神挺有意思的，说起来好久没更新了
 
 
-
-
-
-
-
 -----
 
 ####  岸波白野  
 ##### 494#       发表于 2015-8-27 19:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29987786&amp;ptid=866827" target="_blank">任天索尼子 发表于 2015-8-27 18:45</a>
@@ -9495,16 +6347,10 @@ julian是一成？</blockquote>
 看前几天fsf那帖子，真正打着fate牌子的对路人和某些资深粉来讲已经是臭不可闻了，再者fsf国内传播力度不行所以可以直接一棍子打死， 这魔伊的情况跟其他fate衍生作有相似也有相反，好歹动画化国内有受众前面两季跟其他fate衍生作格调也能很好的区别开，所以路人爱拿来当枪使，3rei漫画现在这解构原作的展开又可以让他们获得“又是你月那调调不想看好无聊”的优越感
 
 
-
-
-
-
-
 -----
 
 ####  卡蓮  
 ##### 495#       发表于 2015-8-27 20:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29988097&amp;ptid=866827" target="_blank">岸波白野 发表于 2015-8-27 19:18</a>
@@ -9513,16 +6359,10 @@ julian是一成？</blockquote>
 而且根据小道消息制作方夸口herz第七话的到底要赶超UFO，如果真做得到的话又是一顿嘲讽了
 
 
-
-
-
-
-
 -----
 
 ####  椿美絵  
 ##### 496#       发表于 2015-8-27 20:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29988097&amp;ptid=866827" target="_blank">岸波白野 发表于 2015-8-27 19:18</a>
@@ -9531,26 +6371,14 @@ julian是一成？</blockquote>
 几天没看错过了，求地址
 
 
-
-
-
-
-
 -----
 
 ####  LMBS  
 ##### 497#       发表于 2015-9-5 04:13
 
 
-
-
 32话熟肉出来了
 手办买买买
-
-
-
-
-
 
 
 -----
@@ -9559,14 +6387,7 @@ julian是一成？</blockquote>
 ##### 498#       发表于 2015-9-5 14:31
 
 
-
-
 32话,死妹控诞生的瞬间<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9575,14 +6396,7 @@ julian是一成？</blockquote>
 ##### 499#       发表于 2015-9-5 14:38
 
 
-
-
 这几款手办没问题吗？
-
-
-
-
-
 
 
 -----
@@ -9591,15 +6405,9 @@ julian是一成？</blockquote>
 ##### 500#       发表于 2015-9-5 15:23
 
 
-
 <blockquote>skyuni 发表于 2015-9-5 14:31
 32话,死妹控诞生的瞬间</blockquote>
 上一话就点题了，妹妹才是正义！
-
-
-
-
-
 
 
 -----
@@ -9608,17 +6416,10 @@ julian是一成？</blockquote>
 ##### 501#       发表于 2015-9-5 15:25
 
 
-
-
 这几个手办<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">
 
 
 谁能告诉我什么时候能买到
-
-
-
-
-
 
 
 -----
@@ -9627,14 +6428,7 @@ julian是一成？</blockquote>
 ##### 502#       发表于 2015-9-5 17:22
 
 
-
-
 士狼这个世界线 突然变得很有头脑了
-
-
-
-
-
 
 
 -----
@@ -9643,14 +6437,7 @@ julian是一成？</blockquote>
 ##### 503#       发表于 2015-9-5 19:06
 
 
-
-
 看完第32话，平行世界土狼变成妹控的原因之一，就是兄控美游自己向自己许愿造成的结果吧。。。
-
-
-
-
-
 
 
 -----
@@ -9659,16 +6446,10 @@ julian是一成？</blockquote>
 ##### 504#         楼主| 发表于 2015-9-5 23:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29975484&amp;ptid=866827" target="_blank">trb315 发表于 2015-8-26 17:05</a>
 
 因为本传是蘑菇写的啊</blockquote>
 最佳回复<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9677,14 +6458,7 @@ julian是一成？</blockquote>
 ##### 505#       发表于 2015-9-6 01:37
 
 
-
-
 猜错一大堆，没想到在这映射原作，冤枉切嗣了<img src="https://static.saraba1st.com/image/smiley/face/177.gif" referrerpolicy="no-referrer">艾丽卡也不是因美游而生的人造人。我把魔伊想的太黑了
-
-
-
-
-
 
 
 -----
@@ -9693,24 +6467,16 @@ julian是一成？</blockquote>
 ##### 506#       发表于 2015-9-6 02:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29988567&amp;ptid=866827" target="_blank">卡蓮 发表于 2015-8-27 20:04</a>
 
 而且根据小道消息制作方夸口herz第七话的到底要赶超UFO，如果真做得到的话又是一顿嘲讽了 ...</blockquote>
 赶超可以，但是我在想如果要做3rei要怎么办
 
 
-
-
-
-
-
 -----
 
 ####  yinfu  
 ##### 507#       发表于 2015-9-6 03:22
-
-
 
 
 这个世界的切嗣没彻底心死就把士郎当弟子养的吧，结果就是变得跟魔术师杀手一样
@@ -9721,17 +6487,10 @@ julian是一成？</blockquote>
 说起来这里面士郎认真起来的样子都挺帅炸的，射箭吸引妹子比跳高合理多了啊。。。。
 
 
-
-
-
-
-
 -----
 
 ####  eos12345  
 ##### 508#       发表于 2015-9-6 05:32
-
-
 
 
 既然会特意问到间桐
@@ -9739,16 +6498,10 @@ julian是一成？</blockquote>
 那两边都没表现出来嘛
 
 
-
-
-
-
-
 -----
 
 ####  風駿  
 ##### 509#       发表于 2015-9-6 06:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30072886&amp;ptid=866827" target="_blank">eos12345 发表于 2015-9-6 05:32</a>
@@ -9761,25 +6514,13 @@ julian是一成？</blockquote>
 伊利亚侧世界线变动点在四次前切嗣的行动，所以间桐家肯定存在，反而是美游侧变化有些大，担心那边的樱不如在意那边的凛去了哪里
 
 
-
-
-
-
-
 -----
 
 ####  wilkyway  
 ##### 510#       发表于 2015-9-7 04:30
 
 
-
-
 话说这漫画的编号是单行本删了两话还是怎么回事..之前一直没注意过
-
-
-
-
-
 
 
 -----
@@ -9788,16 +6529,10 @@ julian是一成？</blockquote>
 ##### 511#       发表于 2015-9-7 07:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30082299&amp;ptid=866827" target="_blank">wilkyway 发表于 2015-9-7 04:30</a>
 
 话说这漫画的编号是单行本删了两话还是怎么回事..之前一直没注意过</blockquote>
 作者记性不好（
-
-
-
-
-
 
 
 -----
@@ -9806,14 +6541,7 @@ julian是一成？</blockquote>
 ##### 512#       发表于 2015-9-7 08:08
 
 
-
-
 作者19-20记错2话之后一直将错就错，所以我倒很想知道单行本怎么修正（…以及修正不修正
-
-
-
-
-
 
 
 -----
@@ -9822,14 +6550,7 @@ julian是一成？</blockquote>
 ##### 513#       发表于 2015-9-7 08:12
 
 
-
-
 其他的魔术世家都不知道，嘿嘿，这一侧的间桐绝对有问题口牙！
-
-
-
-
-
 
 
 -----
@@ -9838,14 +6559,7 @@ julian是一成？</blockquote>
 ##### 514#       发表于 2015-9-7 09:10
 
 
-
-
 只有我觉得土狼只是听到美游的许愿后终于下决心保护美游，而不是被圣杯的力量变成妹控？
-
-
-
-
-
 
 
 -----
@@ -9854,16 +6568,10 @@ julian是一成？</blockquote>
 ##### 515#       发表于 2015-9-7 09:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30083032&amp;ptid=866827" target="_blank">03e7 发表于 2015-9-7 09:10</a>
 
 只有我觉得土狼只是听到美游的许愿后终于下决心保护美游，而不是被圣杯的力量变成妹控？ ...</blockquote>
 两者都有吧 那一瞬间美游的眼睛明显变色了的
-
-
-
-
-
 
 
 -----
@@ -9872,25 +6580,16 @@ julian是一成？</blockquote>
 ##### 516#       发表于 2015-9-7 19:19
 
 
-
-
 說起來美遊許願之後　是連DNA也變成士郎家的嗎<img src="https://static.saraba1st.com/image/smiley/zdl/156.gif" referrerpolicy="no-referrer">
 
 
 這樣算的話 美遊和士郎不就是社會風俗上可以、生物學上不可以的兄妹嗎？<img src="https://static.saraba1st.com/image/smiley/zdl/157.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  deviljz  
 ##### 517#       发表于 2015-9-7 19:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30089098&amp;ptid=866827" target="_blank">八舞－Yamai 发表于 2015-9-7 19:19</a>
@@ -9902,17 +6601,10 @@ julian是一成？</blockquote>
 能干的实妹，好棒<img src="https://static.saraba1st.com/image/smiley/zdl/157.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  结标淡希  
 ##### 518#       发表于 2015-9-25 08:11
-
-
 
 
 本月的伊莉雅，即使在平行世界，樱的过去也是悲惨到她不愿意想起.....
@@ -9921,17 +6613,10 @@ julian是一成？</blockquote>
 更可悲的是她现在已经长江化了
 
 
-
-
-
-
-
 -----
 
 ####  神户⑨小鸟  
 ##### 519#       发表于 2015-9-26 02:45
-
-
 
 
 看来没有第4季了...
@@ -9942,16 +6627,10 @@ julian是一成？</blockquote>
 完全接不上漫画了
 
 
-
-
-
-
-
 -----
 
 ####  卡蓮  
 ##### 520#       发表于 2015-9-26 09:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30269670&amp;ptid=866827" target="_blank">神户⑨小鸟 发表于 2015-9-26 02:45</a>
@@ -9966,16 +6645,10 @@ julian是一成？</blockquote>
 然而没卵用，最终话垃圾的一塌糊涂<img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  eyeego  
 ##### 521#       发表于 2015-9-26 10:57
-
 
 
  本帖最后由 eyeego 于 2015-9-26 10:59 编辑 
@@ -9992,16 +6665,10 @@ julian是一成？</blockquote>
 回不了 那就再也没有然后了 前两季最后我印象都有制作决定的字样的
 
 
-
-
-
-
-
 -----
 
 ####  卡蓮  
 ##### 522#       发表于 2015-9-26 11:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30271224&amp;ptid=866827" target="_blank">eyeego 发表于 2015-9-26 10:57</a>
@@ -10017,16 +6684,10 @@ julian是一成？</blockquote>
 哦，好像有。反正我这边的小道消息是已经立项了就是
 
 
-
-
-
-
-
 -----
 
 ####  wancnm  
 ##### 523#       发表于 2015-9-26 11:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30269670&amp;ptid=866827" target="_blank">神户⑨小鸟 发表于 2015-9-26 02:45</a>
@@ -10039,25 +6700,13 @@ julian是一成？</blockquote>
 <img src="http://ww1.sinaimg.cn/large/735bcd72gw1ewf78r33zcj20gn09d0sq.jpg" referrerpolicy="no-referrer"></blockquote>
 
 
-
-
-
-
-
 -----
 
 ####  卡蓮  
 ##### 524#       发表于 2015-9-26 13:00
 
 
-
-
 官网3rei消息已确定
-
-
-
-
-
 
 
 -----
@@ -10066,14 +6715,7 @@ julian是一成？</blockquote>
 ##### 525#       发表于 2015-9-26 13:24
 
 
-
-
 十年后再来看银链，会不会和UFO并列21世纪前十年最有情怀的动画公司<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10082,24 +6724,15 @@ julian是一成？</blockquote>
 ##### 526#       发表于 2015-9-27 01:46
 
 
-
-
 动画看完直接补完3rei漫画，还真刺激。。不过你们之前对啪啪那么悲观，我感觉只是这点伏笔，想圆的话也很容易啊。。
 
 —— 来自 OnePlus A0001, Android 5.1.1
-
-
-
-
-
 
 
 -----
 
 ####  ENDCARD  
 ##### 527#       发表于 2015-9-27 17:06
-
-
 
 
 ENDCARD
@@ -10165,25 +6798,13 @@ KEN
 <img src="http://i.minus.com/i6g6Y9Ck39vZ1.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  laoism  
 ##### 528#         楼主| 发表于 2015-10-8 21:29
 
 
-
-
 漫画目前是7卷33话的进度。
-
-
-
-
-
 
 
 -----
@@ -10192,22 +6813,13 @@ KEN
 ##### 529#         楼主| 发表于 2015-11-7 20:32
 
 
-
-
 #34好愉悦啊。
-
-
-
-
-
 
 
 -----
 
 ####  skyuni  
 ##### 530#       发表于 2015-12-8 22:42
-
-
 
 
 #35
@@ -10217,25 +6829,13 @@ KEN
 平行世界直接人体召唤,前几次全灭,结局更加悲惨
 
 
-
-
-
-
-
 -----
 
 ####  laoism  
 ##### 531#         楼主| 发表于 2015-12-11 00:17
 
 
-
-
 编号好混乱，目前标的还是#33。
-
-
-
-
-
 
 
 -----
@@ -10244,14 +6844,7 @@ KEN
 ##### 532#       发表于 2015-12-11 00:34
 
 
-
-
 圣杯战争还是要麻婆解说才带感
-
-
-
-
-
 
 
 -----
@@ -10260,14 +6853,7 @@ KEN
 ##### 533#       发表于 2015-12-11 00:45
 
 
-
-
 回忆篇感觉反而没啥好讨论的
-
-
-
-
-
 
 
 -----
@@ -10276,14 +6862,7 @@ KEN
 ##### 534#       发表于 2015-12-11 00:45
 
 
-
-
 回忆篇感觉反而没啥好讨论的
-
-
-
-
-
 
 
 -----
@@ -10292,14 +6871,7 @@ KEN
 ##### 535#       发表于 2015-12-11 04:53
 
 
-
-
 现在看起来土狼是和红A直接合体了吗…
-
-
-
-
-
 
 
 -----
@@ -10308,17 +6880,10 @@ KEN
 ##### 536#       发表于 2015-12-11 08:55
 
 
-
-
 所以長江櫻是幫美遊哥擋刀死掉囉？
 
 
 ----发送自 [Sony E6853,Android 5.1.1](http://stage1.5j4m.com/?1.19)
-
-
-
-
-
 
 
 -----
@@ -10327,14 +6892,7 @@ KEN
 ##### 537#       发表于 2015-12-11 09:35
 
 
-
-
 前辈，我抽到了4星从者……和你这种只有黑键的人是不一样的
-
-
-
-
-
 
 
 -----
@@ -10343,14 +6901,7 @@ KEN
 ##### 538#       发表于 2015-12-11 09:35
 
 
-
-
 前辈，我抽到了4星从者……和你这种只有黑键的人是不一样的
-
-
-
-
-
 
 
 -----
@@ -10359,14 +6910,7 @@ KEN
 ##### 539#       发表于 2015-12-11 09:35
 
 
-
-
 前辈，我抽到了4星从者……和你这种只有黑键的人是不一样的
-
-
-
-
-
 
 
 -----
@@ -10375,14 +6919,7 @@ KEN
 ##### 540#       发表于 2015-12-11 09:35
 
 
-
-
 前辈，我抽到了4星从者……和你这种只有黑键的人是不一样的
-
-
-
-
-
 
 
 -----
@@ -10391,16 +6928,10 @@ KEN
 ##### 541#       发表于 2015-12-11 13:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30993223&amp;ptid=866827" target="_blank">红莲滴叹息 发表于 2015-12-11 09:35</a>
 
 前辈，我抽到了4星从者……和你这种只有黑键的人是不一样的</blockquote>
 土狼：劳资自己就是四星，虽然这宝具卡色不对<img src="https://static.saraba1st.com/image/smiley/face/53.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10409,16 +6940,10 @@ KEN
 ##### 542#       发表于 2015-12-27 10:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">结果樱抽到的不是四星，是五星啊。虽然宝具很水枪但好歹是五星archer啊
 
 
 这个世界的土狼真是个loli控，你说你这时候左手在往前一点稍微抱一下樱后面不就没那么多事了。刚想拒绝樱二爷就来送助攻，不愧是好朋友
-
-
-
-
-
 
 
 -----
@@ -10427,17 +6952,10 @@ KEN
 ##### 543#       发表于 2015-12-27 11:36
 
 
-
-
 最新出了？哪裡有得看？
 
 
 ----发送自 [Sony E6853,Android 5.1.1](http://stage1.5j4m.com/?1.19)
-
-
-
-
-
 
 
 -----
@@ -10446,14 +6964,7 @@ KEN
 ##### 544#       发表于 2015-12-27 11:50
 
 
-
-
 闪卡很强，但用了容易噬主啊，不知道会不会还原原作樱吞了闪闪把自己也直接撑崩坏的剧情(英雄王卡土狼这个太惊悚了不予考虑)
-
-
-
-
-
 
 
 -----
@@ -10462,14 +6973,7 @@ KEN
 ##### 545#       发表于 2015-12-28 09:26
 
 
-
-
 前面朱利安抢美游那里安杰丽卡用梦幻召唤把美游哥打倒了，这会儿樱又拿出张闪闪卡。感觉樱不像是朱利安派来的，那么闪闪一开始就被分成了两张卡？
-
-
-
-
-
 
 
 -----
@@ -10478,14 +6982,7 @@ KEN
 ##### 546#         楼主| 发表于 2016-1-7 17:44
 
 
-
-
 #34(?)死变态的请神上身召唤造型真是…
-
-
-
-
-
 
 
 -----
@@ -10494,14 +6991,7 @@ KEN
 ##### 547#       发表于 2016-1-7 19:07
 
 
-
-
 金闪闪土狼！这个可能性完全没想过！真是崭新的脑洞，不知道会合体出个什么性格扭曲的人。
-
-
-
-
-
 
 
 -----
@@ -10510,14 +7000,7 @@ KEN
 ##### 548#       发表于 2016-1-7 19:29
 
 
-
-
 这个世界线上的土狼,投影的兵器不会都是用闪闪卡时候COPY的吧
-
-
-
-
-
 
 
 -----
@@ -10526,14 +7009,7 @@ KEN
 ##### 549#       发表于 2016-1-7 19:51
 
 
-
-
 这剧本实在写的不错，把萌片生生改的碾压正传，好一个曲线救国
-
-
-
-
-
 
 
 -----
@@ -10542,16 +7018,10 @@ KEN
 ##### 550#       发表于 2016-1-7 19:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31245964&amp;ptid=866827" target="_blank">七千星 发表于 2016-1-7 19:07</a>
 
 金闪闪土狼！这个可能性完全没想过！真是崭新的脑洞，不知道会合体出个什么性格扭曲的人。 ...</blockquote>
 之前幼闪特意去找他，估计是熟人
-
-
-
-
-
 
 
 -----
@@ -10560,14 +7030,7 @@ KEN
 ##### 551#       发表于 2016-1-7 20:25
 
 
-
-
 心疼樱,送装备还被甩,后面还黑化
-
-
-
-
-
 
 
 -----
@@ -10576,16 +7039,10 @@ KEN
 ##### 552#       发表于 2016-1-23 18:20
 
 
-
 <img src="http://ww1.sinaimg.cn/large/6bae1be8gw1f09kp959ofj20h20ctdhn.jpg" referrerpolicy="no-referrer">
 
 
 双刀、披风加上蒙眼，可惜月世界不看时髦值定胜负
-
-
-
-
-
 
 
 -----
@@ -10594,14 +7051,7 @@ KEN
 ##### 553#       发表于 2016-1-23 19:09
 
 
-
-
 这要是时髦神土狼的战斗力得能排前三了感觉<img src="https://static.saraba1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10610,17 +7060,10 @@ KEN
 ##### 554#       发表于 2016-1-23 19:34
 
 
-
-
 这胳膊太细了，跟五星礼装的麒麟臂比起来整整差了三个维度以上
 
 
 樱被穿胸了，心疼
-
-
-
-
-
 
 
 -----
@@ -10629,14 +7072,7 @@ KEN
 ##### 555#       发表于 2016-1-23 20:50
 
 
-
-
 ………这火影还是海贼王
-
-
-
-
-
 
 
 -----
@@ -10645,14 +7081,7 @@ KEN
 ##### 556#       发表于 2016-1-23 23:14
 
 
-
-
 人设图明明很傻的，实际效果居然这么好
-
-
-
-
-
 
 
 -----
@@ -10661,14 +7090,7 @@ KEN
 ##### 557#       发表于 2016-1-24 01:48
 
 
-
-
 有时候看到漫展COSER中FATE的角色在一起拍照，时不时要花个几秒钟反应那个橙色头发的是土狼而不是黑崎一护。最近出了绔礼装就更混搭了，整个开卍解似的<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10685,27 +7107,15 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 幼闪闪说得是有听说过土狼，但见面还是第一次
 
 
-
-
-
-
-
 -----
 
 ####  laoism  
 ##### 559#         楼主| 发表于 2016-2-16 21:16
 
 
-
-
 动画V2S2特典5，截2图：
 <img src="http://ww4.sinaimg.cn/large/7016afdcjw9f11his50tpj20zk0k0n4f.jpg" referrerpolicy="no-referrer">
 <img src="http://ww1.sinaimg.cn/large/7016afdcjw9f11hj3za1pj20zk0k0108.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10714,14 +7124,7 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 ##### 560#       发表于 2016-2-17 00:05
 
 
-
-
 这种废人已经没救了，谁去把她埋了吧
-
-
-
-
-
 
 
 -----
@@ -10730,14 +7133,7 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 ##### 561#       发表于 2016-2-17 00:29
 
 
-
-
 讲道理樱被穿胸躺下，土狼怎么不管人跑去捡卡片啊…
-
-
-
-
-
 
 
 -----
@@ -10746,14 +7142,7 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 ##### 562#       发表于 2016-2-17 01:22
 
 
-
-
 可以自己召唤自己么，。。。
-
-
-
-
-
 
 
 -----
@@ -10762,14 +7151,7 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 ##### 563#       发表于 2016-2-17 01:25
 
 
-
-
 居然是召唤自己上自己的身
-
-
-
-
-
 
 
 -----
@@ -10778,16 +7160,10 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 ##### 564#       发表于 2016-2-17 01:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31589406&amp;ptid=866827" target="_blank">x五更琉璃 发表于 2016-2-17 00:29</a>
 
 讲道理樱被穿胸躺下，土狼怎么不管人跑去捡卡片啊…</blockquote>
 樱被一堆黑丝带包住消失了，士郎要去抱她没抱到只握到遗留下来的空卡
-
-
-
-
-
 
 
 -----
@@ -10796,17 +7172,10 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 ##### 565#       发表于 2016-2-17 03:17
 
 
-
-
 求肉，生熟皆可
 
 
 ----发送自 [Sony E6853,Android 5.1.1](http://stage1.5j4m.com/?1.19)
-
-
-
-
-
 
 
 -----
@@ -10815,15 +7184,9 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 ##### 566#       发表于 2016-2-17 07:46
 
 
-
 <blockquote>七千星 发表于 2016-2-17 01:30
 樱被一堆黑丝带包住消失了，士郎要去抱她没抱到只握到遗留下来的空卡</blockquote>
 我还以为那是心脏来的…
-
-
-
-
-
 
 
 -----
@@ -10832,22 +7195,13 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 ##### 567#       发表于 2016-2-17 09:25
 
 
-
-
 土狼一下召唤出两个自己上了身啊。。。
-
-
-
-
-
 
 
 -----
 
 ####  风清天蓝  
 ##### 568#       发表于 2016-2-17 09:38
-
-
 
 
 应该正因为红A就是士郎自己所以才可以超过一般卡片召唤的法则召唤出自己的英灵吧。
@@ -10858,16 +7212,10 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 话说圣杯战争就算了，小范围的大逃杀，魔术师手段多，而且还有英灵这个人体兵器能用，这样还有合纵连横的。这正反派大撕逼，主角弱菜一个，还只靠自己一个人在那瞎搞，这世界的人都死光了么？
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 569#       发表于 2016-2-17 09:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31590857&amp;ptid=866827" target="_blank">风清天蓝 发表于 2016-2-17 09:38</a>
@@ -10880,32 +7228,19 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 忘了前面么，救出美游那会黑泥泄露，这个城市从那时候开始就半个鬼城了
 
 
-
-
-
-
-
 -----
 
 ####  東雲千夜子  
 ##### 570#       发表于 2016-2-17 10:11
 
 
-
-
 于是，实际上红A卡才是多出来的第8张
-
-
-
-
-
 
 
 -----
 
 ####  eilot  
 ##### 571#       发表于 2016-2-17 11:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31591037&amp;ptid=866827" target="_blank">高等黑暗 发表于 2016-2-17 09:58</a>
@@ -10920,25 +7255,13 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 否則也不會想到要改變全物種生存方式這種極端來求生
 
 
-
-
-
-
-
 -----
 
 ####  koanmiller31  
 ##### 572#       发表于 2016-2-17 11:40
 
 
-
-
 最后土狼召唤出来的是啥？红a
-
-
-
-
-
 
 
 -----
@@ -10947,14 +7270,7 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 ##### 573#       发表于 2016-2-17 11:40
 
 
-
-
 最后土狼召唤出来的是啥？红a
-
-
-
-
-
 
 
 -----
@@ -10963,14 +7279,7 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 ##### 574#       发表于 2016-2-17 11:41
 
 
-
-
 但怎么还绑着一个头戴，看起来是小安啊
-
-
-
-
-
 
 
 -----
@@ -10979,14 +7288,7 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 ##### 575#       发表于 2016-2-17 12:28
 
 
-
-
 看到一种说法是Avenger+Archer
-
-
-
-
-
 
 
 -----
@@ -10995,21 +7297,13 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 ##### 576#       发表于 2016-2-17 12:43
 
 
-
-
 最后召唤出来的是啥，UBW回忆里头中东战神版红A？<img src="https://static.saraba1st.com/image/smiley/normal/033.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  gpx234  
 ##### 577#       发表于 2016-2-17 12:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31592662&amp;ptid=866827" target="_blank">cl776 发表于 2016-2-17 12:43</a>
@@ -11021,25 +7315,13 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 被巴姐打翻的有头巾的红A就是这样啊
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 578#       发表于 2016-2-17 13:14
 
 
-
-
 这个世界的切丝好像有让侍郎提前做准备。不像其原月世界什么都不说
-
-
-
-
-
 
 
 -----
@@ -11048,14 +7330,7 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 ##### 579#       发表于 2016-2-17 13:30
 
 
-
-
 我怎么看着有点糊涂了，土狼这早就知道自己是红A了？！怎么还说“身体还在”这样的话。
-
-
-
-
-
 
 
 -----
@@ -11064,21 +7339,13 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 ##### 580#       发表于 2016-2-17 17:39
 
 
-
-
 感觉头巾确实有点像Avenger。
-
-
-
-
-
 
 
 -----
 
 ####  laoism  
 ##### 581#         楼主| 发表于 2016-2-19 18:58
-
 
 
  本帖最后由 laoism 于 2016-2-19 18:59 编辑 
@@ -11089,25 +7356,13 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 你问变态杀妹的感觉…
 
 
-
-
-
-
-
 -----
 
 ####  laoism  
 ##### 582#         楼主| 发表于 2016-2-28 14:59
 
 
-
-
 #38有张彩页。
-
-
-
-
-
 
 
 -----
@@ -11116,14 +7371,7 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 ##### 583#       发表于 2016-2-28 17:52
 
 
-
-
 页数好少<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11132,14 +7380,7 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 ##### 584#       发表于 2016-3-4 15:04
 
 
-
-
 尼玛,樱死的真惨,胸口被花式贯穿
-
-
-
-
-
 
 
 -----
@@ -11148,22 +7389,13 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 ##### 585#       发表于 2016-3-5 12:52
 
 
-
-
 彻底变成魔法少男★土狼了。就是看着不过瘾-.-
-
-
-
-
-
 
 
 -----
 
 ####  chiman  
 ##### 586#       发表于 2016-3-7 10:09
-
-
 
 
 魔法少男士郎的時髦值是要突破天際啊
@@ -11175,17 +7407,10 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 ----发送自 [Sony E6853,Android 5.1.1](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  莉洁莉特  
 ##### 587#       发表于 2016-3-23 11:35
-
-
 
 
 动画3rei。
@@ -11194,16 +7419,10 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 我在想能做到哪里……
 
 
-
-
-
-
-
 -----
 
 ####  七千星  
 ##### 588#       发表于 2016-3-26 17:17
-
 
 
 [http://tieba.baidu.com/p/4437123000](http://tieba.baidu.com/p/4437123000)
@@ -11215,16 +7434,10 @@ RE: 砖楼】魔法少女☆伊莉雅3rei|Fate/kaleid liner プリズマ☆イ�
 美游士朗这技能用法感觉魔力储备好多，打个二爷插了一堆干将莫邪然后魔力引爆
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 589#       发表于 2016-3-26 17:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31943146&amp;ptid=866827" target="_blank">七千星 发表于 2016-3-26 17:17</a>
@@ -11236,17 +7449,10 @@ http://tieba.baidu.com/p/4437123000
 这个世界的土狼应该是全程正规法爷训练+继承了切嗣的刻印的版本？
 
 
-
-
-
-
-
 -----
 
 ####  aaron17  
 ##### 590#       发表于 2016-3-26 23:13
-
-
 
 
 39熟肉已出，最后一页简直<img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">
@@ -11255,25 +7461,13 @@ http://tieba.baidu.com/p/4437123000
 ----发送自 [Sony E5823,Android 6.0](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  萨拉丁  
 ##### 591#       发表于 2016-3-27 00:06
 
 
-
-
 这章打得真好看。妈的比起硕学剧情看现在魔伊的士郎篇爽多了。
-
-
-
-
-
 
 
 -----
@@ -11282,17 +7476,10 @@ http://tieba.baidu.com/p/4437123000
 ##### 592#       发表于 2016-3-27 01:14
 
 
-
-
 “这份理应为全人类而使用的力量  我发誓  只为了仅仅一人而使用”
 
 
 美游士郎哥的妹控属性已经突破天际了，去他娘的正义的伙伴！
-
-
-
-
-
 
 
 -----
@@ -11301,14 +7488,7 @@ http://tieba.baidu.com/p/4437123000
 ##### 593#         楼主| 发表于 2016-3-27 08:41
 
 
-
-
 还有人记得这是魔法少女漫吗…
-
-
-
-
-
 
 
 -----
@@ -11317,21 +7497,13 @@ http://tieba.baidu.com/p/4437123000
 ##### 594#       发表于 2016-3-27 08:45
 
 
-
-
 Fate正统在魔伊！
-
-
-
-
-
 
 
 -----
 
 ####  烟花缭乱  
 ##### 595#       发表于 2016-3-27 09:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31946765&amp;ptid=866827" target="_blank">we89623 发表于 2016-3-27 01:14</a>
@@ -11345,25 +7517,13 @@ Fate正统在魔伊！
 再凹个fate的装备出来就是真三线合一史上最强土狼啦
 
 
-
-
-
-
-
 -----
 
 ####  stygianlunar  
 ##### 596#       发表于 2016-3-27 09:46
 
 
-
-
 感觉这根本就是依莉雅线的节奏吧，如果真会做依莉雅线。<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11372,14 +7532,7 @@ Fate正统在魔伊！
 ##### 597#       发表于 2016-3-27 09:48
 
 
-
-
 最好玩的是，这种心意可能是被美游圣杯扭曲的结果，所以也能解释为啥土狼魔力这么多
-
-
-
-
-
 
 
 -----
@@ -11388,17 +7541,10 @@ Fate正统在魔伊！
 ##### 598#       发表于 2016-3-27 09:59
 
 
-
-
 这杀伐果断的男人是谁？！
 
 
 不过从后面的剧情看，这就是一个把土狼引入觉醒，从而使美游成为圣杯的圈套吧。
-
-
-
-
-
 
 
 -----
@@ -11407,16 +7553,10 @@ Fate正统在魔伊！
 ##### 599#       发表于 2016-3-27 10:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31948079&amp;ptid=866827" target="_blank">stygianlunar 发表于 2016-3-27 09:46</a>
 
 感觉这根本就是依莉雅线的节奏吧，如果真会做依莉雅线。</blockquote>
 整个魔伊不就是个分支分的比较早的伊莉雅线么<img src="https://static.saraba1st.com/image/smiley/normal/037.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11425,14 +7565,7 @@ Fate正统在魔伊！
 ##### 600#       发表于 2016-3-27 11:14
 
 
-
-
 和fate线这就接上了<img src="https://static.saraba1st.com/image/smiley/normal/045.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11441,14 +7574,7 @@ Fate正统在魔伊！
 ##### 601#       发表于 2016-3-27 12:03
 
 
-
-
 现在就差一把Ex咖喱棒了
-
-
-
-
-
 
 
 -----
@@ -11457,15 +7583,9 @@ Fate正统在魔伊！
 ##### 602#       发表于 2016-3-27 12:32
 
 
-
 <blockquote>AlienFromEarth 发表于 2016-3-27 09:48
 最好玩的是，这种心意可能是被美游圣杯扭曲的结果，所以也能解释为啥土狼魔力这么多 ...</blockquote>
 士郎现在的红眼和美游许愿当士郎妹妹前的神子状态的眼睛一模一样，说不定真是这样。
-
-
-
-
-
 
 
 -----
@@ -11474,14 +7594,7 @@ Fate正统在魔伊！
 ##### 603#       发表于 2016-3-27 12:52
 
 
-
-
 这是士郎叼炸天啦,再来个咖喱棒就能针灸世界了
-
-
-
-
-
 
 
 -----
@@ -11490,13 +7603,7 @@ Fate正统在魔伊！
 ##### 604#       发表于 2016-3-27 13:44
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">史上最帅的土狼
-
-
-
-
-
 
 
 -----
@@ -11505,16 +7612,9 @@ Fate正统在魔伊！
 ##### 605#       发表于 2016-3-28 11:55
 
 
-
-
 我现在想，伊莉雅跟小黑回去后会怎么看他们那个废柴哥哥
 
 哦，还有双马尾和金钻头
-
-
-
-
-
 
 
 -----
@@ -11523,23 +7623,15 @@ Fate正统在魔伊！
 ##### 606#       发表于 2016-3-28 13:13
 
 
-
-
 这杀伐果断的帅哥你哪位啊？
 
 不过士郎的头巾怎么解释，捏他小安？
-
-
-
-
-
 
 
 -----
 
 ####  x五更琉璃  
 ##### 607#       发表于 2016-3-28 13:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31962115&amp;ptid=866827" target="_blank">東雲千夜子 发表于 2016-3-28 11:55</a>
@@ -11550,32 +7642,19 @@ Fate正统在魔伊！
 亚撒西啊<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  風駿  
 ##### 608#       发表于 2016-3-28 13:23
 
 
-
-
 两边的士郞都是雅撒西呕泥浆，没差
-
-
-
-
-
 
 
 -----
 
 ####  chiman  
 ##### 609#       发表于 2016-3-30 21:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31947785&amp;ptid=866827" target="_blank">烟花缭乱 发表于 2016-3-27 09:02</a>
@@ -11586,25 +7665,13 @@ hf的觉悟，ubw的神功
 随时三个圣杯合力搞个幻想乡出来给miyu哥上无限电力外挂啊
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 610#       发表于 2016-3-30 21:34
 
 
-
-
 真是最帅士狼啊
-
-
-
-
-
 
 
 -----
@@ -11613,14 +7680,7 @@ hf的觉悟，ubw的神功
 ##### 611#       发表于 2016-3-30 21:54
 
 
-
-
 不纠结的土狼一点意思都么有
-
-
-
-
-
 
 
 -----
@@ -11629,15 +7689,9 @@ hf的觉悟，ubw的神功
 ##### 612#       发表于 2016-3-30 23:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31994786&amp;ptid=866827" target="_blank">sk86 发表于 2016-3-30 21:54</a>
 不纠结的土狼一点意思都么有</blockquote>
 再纠结一下，这部剧就可以改名为fate/magic emiya了
-
-
-
-
-
 
 
 -----
@@ -11646,15 +7700,9 @@ hf的觉悟，ubw的神功
 ##### 613#       发表于 2016-3-30 23:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31994786&amp;ptid=866827" target="_blank">sk86 发表于 2016-3-30 21:54</a>
 不纠结的土狼一点意思都么有</blockquote>
 再纠结一下，这部剧就可以改名为fate/magical emiya了
-
-
-
-
-
 
 
 -----
@@ -11663,15 +7711,9 @@ hf的觉悟，ubw的神功
 ##### 614#       发表于 2016-4-24 12:37
 
 
-
  本帖最后由 we89623 于 2016-4-24 12:39 编辑 
 
 单刷6人集齐7卡，这条线的士郎碉堡了....
-
-
-
-
-
 
 
 -----
@@ -11680,14 +7722,7 @@ hf的觉悟，ubw的神功
 ##### 615#       发表于 2016-4-24 13:13
 
 
-
-
 魔法少年士郎 ，无双传
-
-
-
-
-
 
 
 -----
@@ -11696,14 +7731,7 @@ hf的觉悟，ubw的神功
 ##### 616#       发表于 2016-4-24 13:50
 
 
-
-
 士狼好歹是升格英灵的人
-
-
-
-
-
 
 
 -----
@@ -11712,14 +7740,7 @@ hf的觉悟，ubw的神功
 ##### 617#       发表于 2016-4-24 14:34
 
 
-
-
 士朗一人一夜结束圣杯战争？<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11728,21 +7749,13 @@ hf的觉悟，ubw的神功
 ##### 618#       发表于 2016-4-24 16:45
 
 
-
-
 卫宫少侠真是厉害。。
-
-
-
-
-
 
 
 -----
 
 ####  chiman  
 ##### 619#       发表于 2016-4-24 21:41
-
 
 
 <blockquote>引用第614楼we89623于2016-04-24 12:37发表的  :
@@ -11756,16 +7769,10 @@ hf的觉悟，ubw的神功
 ----发送自 [Sony E6853,Android 6.0](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  J-002  
 ##### 620#       发表于 2016-4-24 21:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32230244&amp;ptid=866827" target="_blank">chiman 发表于 2016-4-24 21:41</a>
@@ -11776,16 +7783,10 @@ hf的觉悟，ubw的神功
 贴吧有图透，只有三四页
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
 ##### 621#       发表于 2016-4-24 21:53
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">再屌还不是被朱利安监禁PLAY，妹妹夜夜被调教了...
@@ -11794,16 +7795,10 @@ hf的觉悟，ubw的神功
 所以现在回过头来看这段剧情觉得超级微妙啊
 
 
-
-
-
-
-
 -----
 
 ####  8aa8aa8aa  
 ##### 622#       发表于 2016-4-24 21:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32230377&amp;ptid=866827" target="_blank">路德维嘉 发表于 2016-4-24 21:53</a>
@@ -11814,16 +7809,10 @@ hf的觉悟，ubw的神功
 士郎把他妹妹送走了啊，就是人算不如天算，被人跨世界抓回去而已
 
 
-
-
-
-
-
 -----
 
 ####  東雲千夜子  
 ##### 623#       发表于 2016-4-25 12:05
-
 
 
  本帖最后由 東雲千夜子 于 2016-4-25 12:07 编辑 
@@ -11843,16 +7832,10 @@ hf的觉悟，ubw的神功
 所以接下来大概就是土狼开UBW强行解除城堡的置换，战翻娘闪闪救出美游，去地下大空洞许愿送走美游和卡片，为了拖时间肉身开UBW自爆被抓。
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 624#       发表于 2016-4-26 01:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32235441&amp;ptid=866827" target="_blank">東雲千夜子 发表于 2016-4-25 12:05</a>
@@ -11861,16 +7844,10 @@ hf的觉悟，ubw的神功
 我记得娘闪是没有EA的
 
 
-
-
-
-
-
 -----
 
 ####  cy19900716  
 ##### 625#       发表于 2016-4-26 01:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32242081&amp;ptid=866827" target="_blank">we89623 发表于 2016-4-26 01:06</a>
@@ -11881,16 +7858,10 @@ hf的觉悟，ubw的神功
 而回收卡之后巴比伦的武器算是有一部分在幼闪闪手里的，没有EA可以理解。
 
 
-
-
-
-
-
 -----
 
 ####  chiman  
 ##### 626#       发表于 2016-4-26 02:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32230315&amp;ptid=866827" target="_blank">J-002 发表于 2016-4-24 21:46</a>
@@ -11899,25 +7870,13 @@ hf的觉悟，ubw的神功
 求搬运
 
 
-
-
-
-
-
 -----
 
 ####  克洛伊~  
 ##### 627#       发表于 2016-4-26 09:05
 
 
-
-
 .............我了个槽我了个槽这货不是我哥这货不是我哥..........
-
-
-
-
-
 
 
 -----
@@ -11926,14 +7885,7 @@ hf的觉悟，ubw的神功
 ##### 628#       发表于 2016-4-26 10:11
 
 
-
-
 K岛生肉看完，这边士郎的时髦值又上一层楼
-
-
-
-
-
 
 
 -----
@@ -11942,16 +7894,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 629#       发表于 2016-4-26 10:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32242450&amp;ptid=866827" target="_blank">chiman 发表于 2016-4-26 02:47</a>
 
 求搬运</blockquote>
 红a一夜战6人，好强！[40 熟肉](http://tieba.baidu.com/p/4506387004)
-
-
-
-
-
 
 
 -----
@@ -11960,14 +7906,7 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 630#       发表于 2016-4-26 10:49
 
 
-
-
 无压力单刷，虽然看着打得很艰难
-
-
-
-
-
 
 
 -----
@@ -11976,14 +7915,7 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 631#       发表于 2016-4-26 11:25
 
 
-
-
 小学生戏份已然不多啊
-
-
-
-
-
 
 
 -----
@@ -11992,14 +7924,7 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 632#       发表于 2016-4-26 11:57
 
 
-
-
 看来青王的正确打法不是抗正面，而是她开大的时候按A或D
-
-
-
-
-
 
 
 -----
@@ -12008,16 +7933,9 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 633#       发表于 2016-4-26 12:03
 
 
-
-
 美游哥屌爆了，躲掉咖喱棒同时还放出幻想崩坏，这反应<img src="https://static.saraba1st.com/image/smiley/zdl/160.gif" referrerpolicy="no-referrer">
 
 话说基友他爹装saber卡真是够丑的<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12026,14 +7944,7 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 634#       发表于 2016-4-26 12:17
 
 
-
-
 朱利安这就有点丧心病狂了，别人死了不关自己事，亵渎就亵渎了。连自己爹的人偶也要做，怀的是什么心
-
-
-
-
-
 
 
 -----
@@ -12042,14 +7953,7 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 635#       发表于 2016-4-26 13:54
 
 
-
-
 晕，小黑画的也太美了吧，差点没认出来。
-
-
-
-
-
 
 
 -----
@@ -12058,14 +7962,7 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 636#       发表于 2016-4-26 14:11
 
 
-
-
 核弹剑仙的真正实力
-
-
-
-
-
 
 
 -----
@@ -12074,14 +7971,7 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 637#       发表于 2016-4-26 14:14
 
 
-
-
 屠龙剑圣小次郎说不定真的屠过龙<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12090,14 +7980,7 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 638#       发表于 2016-4-26 14:58
 
 
-
-
 哈桑卡的人偶是海带头，幸运E卡的人偶是主任，蓝傻吧卡的人偶是朱利安的老爹，可惜R姐卡，B叔卡，C妈卡的人偶都没提到，算上土狼的伪卡刚好是七张。女闪闪和雷神的卡都是额外，看来应该是土狼去抢美游的时候把女闪闪给揍了一顿，面对朱利安的人偶军团，用圣杯的愿望（最后的波纹之力）把美游和8张卡片传送到了伊莉雅的世界。
-
-
-
-
-
 
 
 -----
@@ -12106,16 +7989,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 639#       发表于 2016-4-26 15:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32246873&amp;ptid=866827" target="_blank">tansapple 发表于 2016-4-26 14:58</a>
 
 哈桑卡的人偶是海带头，幸运E卡的人偶是主任，蓝傻吧卡的人偶是朱利安的老爹，可惜R姐卡，B叔卡，C妈卡的人 ...</blockquote>
 但是美游不知道第八张卡的存在
-
-
-
-
-
 
 
 -----
@@ -12124,21 +8001,13 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 640#       发表于 2016-4-26 15:41
 
 
-
-
 大概是因为美游只知道圣杯系统的存在和7张卡片争斗的设定，但是不知道朱利安能随便印卡吧<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  chiman  
 ##### 641#       发表于 2016-4-26 19:04
-
 
 
 <blockquote>引用第629楼diyihaoshitu于2016-04-26 10:37发表的  :
@@ -12156,25 +8025,13 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ----发送自 [Sony E6853,Android 6.0](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  pq123  
 ##### 642#       发表于 2016-4-26 19:23
 
 
-
-
 目测这集里凛跟樱还是姐妹的可能是存在的,特意给一个镜头应该是伏笔
-
-
-
-
-
 
 
 -----
@@ -12183,14 +8040,7 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 643#       发表于 2016-4-26 19:32
 
 
-
-
 但是我要开小学生搞百合啊。。。简直诈骗一样
-
-
-
-
-
 
 
 -----
@@ -12199,14 +8049,7 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 644#       发表于 2016-4-26 19:43
 
 
-
-
 主要是对面都是插着卡的人偶，战斗力比正牌英灵差太多了吧
-
-
-
-
-
 
 
 -----
@@ -12215,14 +8058,7 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 645#       发表于 2016-4-26 19:51
 
 
-
-
 那saber的衣服怎么看都是旧剑……
-
-
-
-
-
 
 
 -----
@@ -12231,22 +8067,15 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 646#       发表于 2016-4-26 21:25
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">别的不说 可不可以认为 圣杯战争扣除掉可有可无的结盟 吹水 装逼放人
 
 全部战斗都是正面硬干的情况 打起来就是这么爽快利落。。。。。。。。。
-
-
-
-
-
 
 
 -----
 
 ####  gpx234  
 ##### 647#       发表于 2016-4-26 21:45
-
 
 
  本帖最后由 gpx234 于 2016-4-26 21:49 编辑 
@@ -12261,24 +8090,16 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 晚上12点学校碰头，不死不归，一周不到就能打完了
 
 
-
 不然用比武大会的形式抽签对决
 
 
-
 动歪主意的还不是自己抽到的英灵不够强
-
-
-
-
-
 
 
 -----
 
 ####  cy19900716  
 ##### 648#       发表于 2016-4-26 23:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32250281&amp;ptid=866827" target="_blank">gpx234 发表于 2016-4-26 21:45</a>
@@ -12296,25 +8117,13 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 而6人都是发癫的人偶，这块来看也就没啥策略可言了，不要怂就是干。
 
 
-
-
-
-
-
 -----
 
 ####  catspace  
 ##### 649#       发表于 2016-4-26 23:01
 
 
-
-
 人偶插卡究竟比正牌英灵削弱了多少，原版士郎都打过好几个英灵了。
-
-
-
-
-
 
 
 -----
@@ -12323,14 +8132,7 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 650#       发表于 2016-4-26 23:30
 
 
-
-
 没人觉得朱利安老爸版的旧剑很像黑魂里的亚尔特留斯吗
-
-
-
-
-
 
 
 -----
@@ -12339,16 +8141,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 651#         楼主| 发表于 2016-4-27 06:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32244278&amp;ptid=866827" target="_blank">diyihaoshitu 发表于 2016-4-26 10:37</a>
 
 红a一夜战6人，好强！40 熟肉</blockquote>
 赫然写着第36话（确实需要看看单行本这到多少话了）
-
-
-
-
-
 
 
 -----
@@ -12357,16 +8153,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 652#       发表于 2016-4-27 07:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32250825&amp;ptid=866827" target="_blank">catspace 发表于 2016-4-26 23:01</a>
 
 人偶插卡究竟比正牌英灵削弱了多少，原版士郎都打过好几个英灵了。</blockquote>
 主要是那些人偶大概大多和二爷一样半疯状态吧，本来就是死人
-
-
-
-
-
 
 
 -----
@@ -12375,22 +8165,14 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 653#       发表于 2016-4-27 08:10
 
 
-
-
 还有两个月就有能动的卫宫少侠出场，不过他的回忆肯定放到第五季了吧
 老老实实按漫画内容做，他的回忆能做半季吧，如果加点内容，灌一灌水，做满整季无压力啊
-
-
-
-
-
 
 
 -----
 
 ####  diyihaoshitu  
 ##### 654#       发表于 2016-4-27 08:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32260815&amp;ptid=866827" target="_blank">8aa8aa8aa 发表于 2016-4-27 08:10</a>
@@ -12401,16 +8183,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 按漫画剧情来看，第四季里补魔的戏份不多啊，但是打戏很丰富，这也不错，虽然我更想看幼女补魔···
 
 
-
-
-
-
-
 -----
 
 ####  七千星  
 ##### 655#       发表于 2016-4-27 17:47
-
 
 
 <blockquote>diyihaoshitu 发表于 2016-4-27 08:45
@@ -12418,11 +8194,6 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 田中换衣服，学校里短暂的休息，闪闪的温泉浴
 
 想塞福利还是有的
-
-
-
-
-
 
 
 -----
@@ -12431,7 +8202,6 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 656#       发表于 2016-4-27 17:47
 
 
-
 <blockquote>diyihaoshitu 发表于 2016-4-27 08:45
 按漫画剧情来看，第四季里补魔的戏份不多啊，但是打戏很丰富，这也不错，虽然我更想看幼女补魔··· ...</blockquote>
 田中换衣服，学校里短暂的休息，闪闪的温泉浴
@@ -12439,16 +8209,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 想塞福利还是有的
 
 
-
-
-
-
-
 -----
 
 ####  gpx234  
 ##### 657#       发表于 2016-4-27 19:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32250818&amp;ptid=866827" target="_blank">cy19900716 发表于 2016-4-26 23:01</a>
@@ -12462,17 +8226,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 一个字“干”
 
 
-
-
-
-
-
-
 -----
 
 ####  chiman  
 ##### 658#       发表于 2016-4-27 20:08
-
 
 
 <blockquote>引用第657楼gpx234于2016-04-27 19:17发表的  :
@@ -12490,16 +8247,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ----发送自 [Sony E6853,Android 6.0](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  diyihaoshitu  
 ##### 659#       发表于 2016-4-27 20:31
-
 
 
  本帖最后由 diyihaoshitu 于 2016-4-27 20:40 编辑 
@@ -12511,25 +8262,13 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 说实话这些加起来也不如小黑舌吻伊莉雅来的简单粗暴，其实幼女补魔情节在漫画里并不重要，动画里的舌吻激情戏基本是制作组原创的。所以我现在非常期待第四季的福利，像是小黑她们拉上田中一起3p呀、美游的**play呀、朱利安 调 教 凌 辱 美游呀，这些福利制作组都可以去试一试。
 
 
-
-
-
-
-
 -----
 
 ####  碳.  
 ##### 660#       发表于 2016-5-26 09:53
 
 
-
-
 41话出了，无敌妹控土狼帅炸天
-
-
-
-
-
 
 
 -----
@@ -12538,14 +8277,7 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 661#       发表于 2016-5-26 10:35
 
 
-
-
 妹控毁灭世界
-
-
-
-
-
 
 
 -----
@@ -12554,14 +8286,7 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 662#       发表于 2016-5-26 10:35
 
 
-
-
 帅炸了
-
-
-
-
-
 
 
 -----
@@ -12570,14 +8295,7 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 663#       发表于 2016-5-26 10:50
 
 
-
-
 下集能开UBW了吧
-
-
-
-
-
 
 
 -----
@@ -12586,21 +8304,13 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 664#       发表于 2016-5-26 11:05
 
 
-
-
 卫宫少侠帅到屌炸
-
-
-
-
-
 
 
 -----
 
 ####  猥琐酱  
 ##### 665#       发表于 2016-5-26 11:30
-
 
 
  本帖最后由 猥琐酱 于 2016-5-26 11:39 编辑 
@@ -12610,25 +8320,13 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 啊！！美游躺着的时候穿的是一层纱啊-.-我好兴奋啊！！话说朱利安这边的人穿衣服的品味都好时髦。
 
 
-
-
-
-
-
 -----
 
 ####  hitlerjun  
 ##### 666#       发表于 2016-5-26 11:59
 
 
-
-
 下一话就要讲闪闪卡怎么被打飞了吧
-
-
-
-
-
 
 
 -----
@@ -12637,14 +8335,7 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 667#       发表于 2016-5-26 13:02
 
 
-
-
 感觉下一话又是打打打的节奏了吧,动画要是有做到这里的情况的话,真是烧经费的时期,也很考验声优在这时候的表现了
-
-
-
-
-
 
 
 -----
@@ -12653,16 +8344,9 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 668#       发表于 2016-5-26 13:14
 
 
-
-
 之后应该就能演到金闪卡怎么被打飞的了，我猜是妹控开UBW和娘闪同归于尽了吧。
 
 这样就能解释士郎坚持到美游传送去另外一个世界，闪卡为啥被打飞，还有为啥最后士郎被抓了。
-
-
-
-
-
 
 
 -----
@@ -12671,14 +8355,7 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 669#       发表于 2016-5-26 13:17
 
 
-
-
 美游prpr，史上最帅士郎。
-
-
-
-
-
 
 
 -----
@@ -12687,14 +8364,7 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 670#       发表于 2016-5-26 13:30
 
 
-
-
 若是同归于尽，那么有不好的预感，现在的卫宫少侠也是人偶？<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12703,15 +8373,9 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 671#       发表于 2016-5-26 16:27
 
 
-
 <blockquote>stygianlunar 发表于 2016-5-26 13:30
 若是同归于尽，那么有不好的预感，现在的卫宫少侠也是人偶？</blockquote>
 虽然觉得不可能，不过这样一来美游是否会回到伊莉雅世界的问题就解决了
-
-
-
-
-
 
 
 -----
@@ -12720,14 +8384,7 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 672#       发表于 2016-5-26 16:32
 
 
-
-
 说起来圣杯如果能完全实现愿望的话，“变成能让美游幸福的世界”这个愿望其实可以一并拯救这个世界了？一个快完蛋的世界肯定不能让美游幸福啊
-
-
-
-
-
 
 
 -----
@@ -12736,14 +8393,7 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 673#       发表于 2016-5-26 17:21
 
 
-
-
 士朗已经把Archer献祭出去了，变身不了了吧
-
-
-
-
-
 
 
 -----
@@ -12752,16 +8402,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 674#       发表于 2016-5-26 18:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32533256&amp;ptid=866827" target="_blank">stygianlunar 发表于 2016-5-26 13:30</a>
 若是同归于尽，那么有不好的预感，现在的卫宫少侠也是人偶？</blockquote>
 就算是人偶，那也是接近完美的，不受朱利安控制的人偶
 骑士有可能现在是人偶，或者下面的章节变人偶，来对应HF结局得梗
-
-
-
-
-
 
 
 -----
@@ -12770,14 +8414,7 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 675#       发表于 2016-5-26 20:28
 
 
-
-
 这肯定是史上最帅的士郎<img src="https://static.saraba1st.com/image/smiley/zdl/157.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12786,23 +8423,16 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 676#       发表于 2016-5-26 21:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32533256&amp;ptid=866827" target="_blank">stygianlunar 发表于 2016-5-26 13:30</a>
 
 若是同归于尽，那么有不好的预感，现在的卫宫少侠也是人偶？</blockquote>
 不太可能，回忆到这里为止身上还没有伤疤，应该要到打完这场才有伤疤，如果直接同归于尽应该不会做个状态这么差的人偶
 
 
-
-
-
-
-
 -----
 
 ####  suebin  
 ##### 677#       发表于 2016-5-26 21:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32535393&amp;ptid=866827" target="_blank">七千星 发表于 2016-5-26 17:21</a>
@@ -12813,17 +8443,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 看看之前剧情 都能直接都投影宝具了。。。。。。。。。
 
 
-
-
-
-
-
 -----
 
 ####  滚丁肉  
 ##### 678#       发表于 2016-5-26 21:22
-
-
 
 
 怎么就这样放士郎过去了，拦一下会掉逼格么？
@@ -12831,16 +8454,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 大boss都放过去，怎么金闪卡还要出来碍事？
 
 
-
-
-
-
-
 -----
 
 ####  evangelina  
 ##### 679#       发表于 2016-5-26 21:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32537238&amp;ptid=866827" target="_blank">滚丁肉 发表于 2016-5-26 21:22</a>
@@ -12853,32 +8470,19 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 向圣杯祈愿后卡都没了，才能让安杰丽卡去捡个人头
 
 
-
-
-
-
-
 -----
 
 ####  schneehertz  
 ##### 680#       发表于 2016-5-26 21:49
 
 
-
-
 士郎，帅炸了
-
-
-
-
-
 
 
 -----
 
 ####  滚丁肉  
 ##### 681#       发表于 2016-5-26 22:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32537368&amp;ptid=866827" target="_blank">evangelina 发表于 2016-5-26 21:42</a>
@@ -12893,25 +8497,13 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 连Fate本篇都不会老老实实地集齐七个去许愿，金闪闪都知道直接拔了小圣杯的心脏搞肉泥圣杯。
 
 
-
-
-
-
-
 -----
 
 ####  高达tw44  
 ##### 682#       发表于 2016-5-26 22:56
 
 
-
-
 土狼帅得炸裂，实在是太叼了
-
-
-
-
-
 
 
 -----
@@ -12920,22 +8512,14 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 683#       发表于 2016-5-27 02:07
 
 
-
-
 最近幼女不够啊
 还是想看萌萌伊利亚
-
-
-
-
-
 
 
 -----
 
 ####  we89623  
 ##### 684#       发表于 2016-6-23 19:28
-
 
 
  本帖最后由 we89623 于 2016-6-23 19:53 编辑 
@@ -12962,16 +8546,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 .<img src="http://ww1.sinaimg.cn/mw1024/41628a93jw1f55dz0tmpnj20l50fctbu.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cy19900716  
 ##### 685#       发表于 2016-6-23 19:48
-
 
 
  本帖最后由 cy19900716 于 2016-6-23 19:58 编辑 
@@ -12994,16 +8572,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 这里各种叫好的土狼在魔伊吧不受吧主待见？
 
 
-
-
-
-
-
 -----
 
 ####  黑雪姫  
 ##### 686#       发表于 2016-6-23 20:06
-
 
 
  本帖最后由 黑雪姫 于 2016-6-23 20:11 编辑 
@@ -13017,16 +8589,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 这三种场景应该说明了三人不同的内心吧....
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 687#       发表于 2016-6-23 20:07
-
 
 
  本帖最后由 we89623 于 2016-6-23 20:18 编辑 
@@ -13039,32 +8605,19 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 能不能别再专楼发这些撕逼的发言 好好讨论作品本身不好吗<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  桥田至  
 ##### 688#       发表于 2016-6-24 10:28
 
 
-
-
 不行，太TM帅了，雪景UBW 想想就感觉逼格好高，期待动画啊！！！！！！！
-
-
-
-
-
 
 
 -----
 
 ####  sandro  
 ##### 689#       发表于 2016-6-24 10:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32749187&amp;ptid=866827" target="_blank">cy19900716 发表于 2016-6-23 19:48</a>
@@ -13076,16 +8629,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 池浅王八多
 
 
-
-
-
-
-
 -----
 
 ####  rance  
 ##### 690#       发表于 2016-6-24 11:26
-
 
 
 <blockquote>cy19900716 发表于 2016-6-23 19:48
@@ -13097,16 +8644,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 這吧主絕對是小學生
 
 
-
-
-
-
-
 -----
 
 ####  schrdinger  
 ##### 691#       发表于 2016-6-24 12:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32749308&amp;ptid=866827" target="_blank">黑雪姫 发表于 2016-6-23 20:06</a>
@@ -13118,20 +8659,13 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 正义伙伴——没有反应只是一个gal男主角——正义之敌
 
 
-
 不知道小黑的无限剑制会是怎么样的
-
-
-
-
-
 
 
 -----
 
 ####  黑雪姫  
 ##### 692#       发表于 2016-6-24 14:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32755614&amp;ptid=866827" target="_blank">schrdinger 发表于 2016-6-24 12:44</a>
@@ -13143,17 +8677,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 而且你说的跟心象风景没蛋点关系
 
 
-
-
-
-
-
 -----
 
 ####  chiman  
 ##### 693#       发表于 2016-6-24 18:04
-
-
 
 
 臥槽帥死了啊
@@ -13166,16 +8693,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ----发送自 [Sony E6853,Android 6.0.1](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  cxj649  
 ##### 694#       发表于 2016-6-24 18:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32757798&amp;ptid=866827" target="_blank">chiman 发表于 2016-6-24 18:04</a>
@@ -13187,16 +8708,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 不算
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 695#       发表于 2016-6-24 18:17
-
 
 
  本帖最后由 we89623 于 2016-6-24 18:25 编辑 
@@ -13220,32 +8735,19 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 另外UBW的咏唱词貌似变了，因为心象风景不一样吗
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 696#       发表于 2016-6-24 18:21
 
 
-
-
 美游哥哥这么酷帅这么牛逼，伊利亚回去之后要怎么面对她那迟钝后宫男哥哥啊
-
-
-
-
-
 
 
 -----
 
 ####  we89623  
 ##### 697#       发表于 2016-6-24 20:52
-
 
 
  本帖最后由 we89623 于 2016-6-24 20:56 编辑 
@@ -13273,7 +8775,6 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 我全身仍是无限之剑制
 
 
-
 身体为剑所成 钢为吾身 炎为吾血
 
 曾手制千余之剑 从未终结 亦未起始 
@@ -13283,25 +8784,13 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 但 吾之火焰永不熄灭 吾身永远为无限之剑制成
 
 
-
-
-
-
-
 -----
 
 ####  asdfg  
 ##### 698#       发表于 2016-6-24 21:54
 
 
-
-
 日文部分不论，这英文绝对秒杀了原本的两段UBW…………
-
-
-
-
-
 
 
 -----
@@ -13310,14 +8799,7 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 699#       发表于 2016-6-24 22:00
 
 
-
-
 魔法少年土狼 这开挂开的一点意思都没 一张卡就比原本的世界线三线都强 过于都合  还没什么副作用 帅到是挺帅没的说
-
-
-
-
-
 
 
 -----
@@ -13326,21 +8808,13 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 700#       发表于 2016-6-24 22:03
 
 
-
-
 美游哥这么犀利，动画画风能hold住吗
-
-
-
-
-
 
 
 -----
 
 ####  we89623  
 ##### 701#       发表于 2016-6-24 22:04
-
 
 
  本帖最后由 we89623 于 2016-6-24 22:09 编辑 
@@ -13356,18 +8830,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 <img src="http://img.2cat.org/%7Etedc21thc/new/src/1466700788529.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 702#       发表于 2016-6-24 22:13
-
 
 
  本帖最后由 消防 于 2016-6-24 22:15 编辑 
@@ -13380,16 +8846,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 不过美游已经跑了应该准备收监土狼了
 
 
-
-
-
-
-
 -----
 
 ####  黑雪姫  
 ##### 703#       发表于 2016-6-24 22:19
-
 
 
  本帖最后由 黑雪姫 于 2016-6-24 22:26 编辑 
@@ -13402,17 +8862,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 <img src="http://img.2cat.org/~tedc21thc/new/src/1466774015917.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  任天索尼子  
 ##### 704#       发表于 2016-6-24 22:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32759606&amp;ptid=866827" target="_blank">we89623 发表于 2016-6-24 22:04</a>
@@ -13424,16 +8877,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 单从漫画来看看不出来哪里弱了 有HF的投影运用能力 也能开UBW 至于副作用 前面漫画里面写的魔术回路负荷多大怎么样怎样结果打完了屁事没有完全没表现出来 和HF那种随时会断气的感觉也完全不一样
 
 
-
-
-
-
-
 -----
 
 ####  eyeego  
 ##### 705#       发表于 2016-6-24 22:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32759678&amp;ptid=866827" target="_blank">消防 发表于 2016-6-24 22:13</a>
@@ -13443,16 +8890,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 结合之前的剧情 娘闪的卡肯定被土狼爆出来飞到对面世界去了
 
 
-
-
-
-
-
 -----
 
 ####  任天索尼子  
 ##### 706#       发表于 2016-6-24 22:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32759606&amp;ptid=866827" target="_blank">we89623 发表于 2016-6-24 22:04</a>
@@ -13464,26 +8905,15 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 不 你没理解我的意思 就算卡片飞了 他以后直接连卡片都不用就能百分百继承力量 HF好歹还是接上手臂而且要死要活的 这还不够开挂<img src="https://static.saraba1st.com/image/smiley/face/112.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  eyeego  
 ##### 707#       发表于 2016-6-24 22:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32759769&amp;ptid=866827" target="_blank">任天索尼子 发表于 2016-6-24 22:22</a>
 单从漫画来看看不出来哪里弱了 有HF的投影运用能力 也能开UBW 至于副作用 前面漫画里面写的魔术回路负荷 ...</blockquote>
 打完屁事没有那是被穷老婆一颗宝石吊命了啊
-
-
-
-
-
 
 
 -----
@@ -13492,16 +8922,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 708#       发表于 2016-6-24 22:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32759769&amp;ptid=866827" target="_blank">任天索尼子 发表于 2016-6-24 22:22</a>
 
 单从漫画来看看不出来哪里弱了 有HF的投影运用能力 也能开UBW 至于副作用 前面漫画里面写的魔术回路负荷 ...</blockquote>
 开不了UBW，这次的UBW不是靠卡开的，现在士郎什么没卡
-
-
-
-
-
 
 
 -----
@@ -13510,23 +8934,16 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 709#       发表于 2016-6-24 22:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32759794&amp;ptid=866827" target="_blank">eyeego 发表于 2016-6-24 22:25</a>
 
 打完屁事没有那是被穷老婆一颗宝石吊命了啊</blockquote>
 一颗宝石就能掉命说明伤的还是不够厉害 HF用了第三魔法才勉强没死 这里一颗宝石就SAFE了 
 
 
-
-
-
-
-
 -----
 
 ####  gary76  
 ##### 710#       发表于 2016-6-24 22:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32759786&amp;amp;ptid=866827" target="_blank">任天索尼子 发表于 2016-6-24 22:24</a>
@@ -13536,16 +8953,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 而且對身體負擔也大得多，要不窮老婆也不用上寶石吊命了
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 711#       发表于 2016-6-24 22:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32759769&amp;ptid=866827" target="_blank">任天索尼子 发表于 2016-6-24 22:22</a>
@@ -13554,32 +8965,19 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 这还不是没打完吗....
 
 
-
-
-
-
-
 -----
 
 ####  任天索尼子  
 ##### 712#       发表于 2016-6-24 22:30
 
 
-
-
 算了 反正世界观都不一样 我还是太代入本篇了如果没有本篇估计这都不是事 不过广山自己也是各种混乱 前面投影神造 后面又说金皮卡对波没出全力 明显是剧情需要又想和本篇套近乎圆不回来了只能硬着头皮解释了 都魔法少女了就不能直接说爱的力量大于EA吗<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  任天索尼子  
 ##### 713#       发表于 2016-6-24 22:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32759829&amp;ptid=866827" target="_blank">gary76 发表于 2016-6-24 22:29</a>
@@ -13591,16 +8989,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 所以说啊 HF用了第三魔法才救回来 这里才用一颗宝石 你跟我说比HF伤的还厉害？
 
 
-
-
-
-
-
 -----
 
 ####  任天索尼子  
 ##### 714#       发表于 2016-6-24 22:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32759811&amp;ptid=866827" target="_blank">黑雪姫 发表于 2016-6-24 22:26</a>
@@ -13609,16 +9001,10 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 你还是没理解 按理说卡没了就应该失去能力了 然而这个货用了一次卡片 就把卡片的所有能力完全继承了 以后都不需要了 HF好歹还是用了英灵肉体的一部分 还只能用六次投影 这里一张卡片就会了HF的所有技能 连HF都不会的幻想崩坏都能用出来 不过我也说了是我太在意本篇设定 其实平行世界强一点没什么所谓 是我自己钻牛角尖
 
 
-
-
-
-
-
 -----
 
 ####  黑雪姫  
 ##### 715#       发表于 2016-6-24 22:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32759884&amp;ptid=866827" target="_blank">任天索尼子 发表于 2016-6-24 22:35</a>
@@ -13627,27 +9013,15 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 士郎能开UBW是因为他是士郎， 并不是因为卡强，你看小黑就开不了
 
 
-
-
-
-
-
 -----
 
 ####  道  
 ##### 716#       发表于 2016-6-24 22:43
 
 
-
-
 这部美游哥直接从卡片抽的经验，大概相当于肉体不会被从者力量侵蚀的HF模式，当然强，而且对手比原作弱个几段。
 
 另外这个士郎因为彻彻底底地背弃理想走了相反的道路（HF救樱和救世界没这部那么对立，一个破契刀就把樱和世界之恶的关系斩断了，而这部救美游是真真正正断了一条拯救世界的路），得到了超越原作的执念，戾气更重，这也是他强大的原因，就像上面说的原作的士郎嘴没那么欠
-
-
-
-
-
 
 
 -----
@@ -13656,23 +9030,16 @@ K岛生肉看完，这边士郎的时髦值又上一层楼
 ##### 717#       发表于 2016-6-24 22:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32759952&amp;ptid=866827" target="_blank">道 发表于 2016-6-24 22:43</a>
 
 这部美游哥直接从卡片抽的经验，大概相当于肉体不会被从者力量侵蚀的HF模式，当然强，而且对手比原作弱个几 ...</blockquote>
 原作也有点 UBW和R姐过几招的时候也嘴炮过 不过和这个没法比
 
 
-
-
-
-
-
 -----
 
 ####  gary76  
 ##### 718#       发表于 2016-6-24 22:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32759861&amp;amp;ptid=866827" target="_blank">任天索尼子 发表于 2016-6-24 22:33</a>
@@ -13682,16 +9049,10 @@ HF的情況已經是過負荷再過負荷了吧，這邊的傷未到HF的程度�
 不能說這次只用一顆就忽略潮士郎所受是足以讓身體組織崩潰的，沒法用一般劑量的寶石來救治的傷
 
 
-
-
-
-
-
 -----
 
 ####  任天索尼子  
 ##### 719#       发表于 2016-6-24 22:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32759952&amp;ptid=866827" target="_blank">道 发表于 2016-6-24 22:43</a>
@@ -13700,16 +9061,10 @@ HF的情況已經是過負荷再過負荷了吧，這邊的傷未到HF的程度�
 所以我说了看起来比原作要强 限制还比原作小 
 
 
-
-
-
-
-
 -----
 
 ####  任天索尼子  
 ##### 720#       发表于 2016-6-24 22:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32759984&amp;ptid=866827" target="_blank">gary76 发表于 2016-6-24 22:48</a>
@@ -13721,16 +9076,10 @@ HF的情況已經是過負荷再過負荷了吧，這邊的傷未到HF的程度�
 所以我说伤并没有比HF严重啊 我一直都说的伤没有HF重 说这个比HF伤重的不是你吗
 
 
-
-
-
-
-
 -----
 
 ####  任天索尼子  
 ##### 721#       发表于 2016-6-24 22:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32759984&amp;ptid=866827" target="_blank">gary76 发表于 2016-6-24 22:48</a>
@@ -13742,25 +9091,13 @@ HF的情況已經是過負荷再過負荷了吧，這邊的傷未到HF的程度�
 力量比HF要强 限制比HF要小 副作用也比HF要小 这不就是我的观点吗 我的观点就是开挂比HF要厉害 不知道你为什么要和我说这些<img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  道  
 ##### 722#       发表于 2016-6-24 23:07
 
 
-
-
 HF情况比较特殊，直接接从者肉体，两边灵格不一样每次投影会加快侵蚀相比起来美游士郎学习环境还是好太多了，艾因华兹制造无副作用凭依红A卡片，还提供连续六场能力运用教学的战斗，不比本篇强对不起这升级条件
-
-
-
-
-
 
 
 -----
@@ -13769,23 +9106,16 @@ HF情况比较特殊，直接接从者肉体，两边灵格不一样每次投影
 ##### 723#       发表于 2016-6-24 23:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32760136&amp;ptid=866827" target="_blank">道 发表于 2016-6-24 23:07</a>
 
 HF情况比较特殊，直接接从者肉体，两边灵格不一样每次投影会加快侵蚀相比起来美游士郎学习环境还是好太多了 ...</blockquote>
 我的意思就是比本篇要强啊 只不过本篇太惨这里一对比感到开挂太强
 
 
-
-
-
-
-
 -----
 
 ####  gary76  
 ##### 724#       发表于 2016-6-24 23:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32760010&amp;amp;ptid=866827" target="_blank">任天索尼子 发表于 2016-6-24 22:52</a>
@@ -13800,16 +9130,10 @@ HF情况比较特殊，直接接从者肉体，两边灵格不一样每次投影
 但魔術侵蝕的度，這邊應該是比HF那邊重，畢竟沒有紅茶的手臂做緩衝
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 725#       发表于 2016-6-25 01:34
-
 
 
  本帖最后由 we89623 于 2016-6-25 01:39 编辑 
@@ -13828,16 +9152,10 @@ UBW的场景真的是暴风雪的夜晚，雪+夜 感觉逼格好高，比齿轮
 <img src="http://ww4.sinaimg.cn/mw1024/41628a93jw1f56u40aez7j20u0172k4c.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 726#       发表于 2016-6-25 01:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32760010&amp;ptid=866827" target="_blank">任天索尼子 发表于 2016-6-24 22:52</a>
@@ -13848,32 +9166,19 @@ UBW的场景真的是暴风雪的夜晚，雪+夜 感觉逼格好高，比齿轮
 HF的关键是土狼自己丢了一条手，只能上英灵手，所以才被侵蚀，UBW偷窥红A放大领悟到UBW根本没那么多事，魔伊这个还是直接上身领悟的呢，比UBW的学法靠谱多了
 
 
-
-
-
-
-
 -----
 
 ####  耳朵  
 ##### 727#       发表于 2016-6-25 02:41
 
 
-
-
 我觉得这娘闪是要给美游士郎配对的赶脚…
-
-
-
-
-
 
 
 -----
 
 ####  突发性哮喘病患  
 ##### 728#       发表于 2016-6-25 03:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32760573&amp;ptid=866827" target="_blank">gary76 发表于 2016-6-24 23:59</a>
@@ -13886,16 +9191,10 @@ HF的关键是土狼自己丢了一条手，只能上英灵手，所以才被侵
 HF哪里是因为肉体还是本来的状态只有手臂被置换了所以承受有限或者说有排斥反应才会损伤更大吧，并且脑的损害比肉体更加严重
 
 
-
-
-
-
-
 -----
 
 ####  suebin  
 ##### 729#       发表于 2016-6-25 09:02
-
 
 
  本帖最后由 suebin 于 2016-6-25 09:04 编辑 
@@ -13912,25 +9211,13 @@ HF哪里是因为肉体还是本来的状态只有手臂被置换了所以承受
 我觉得作者绝对是玩了巫师3……
 
 
-
-
-
-
-
 -----
 
 ####  莉莉橙  
 ##### 730#       发表于 2016-6-25 17:27
 
 
-
-
 这条线是以人体为基础降灵，所以比起UBW线的见习观摩和HF线的半抵抗半利用来，对红A能力的体会自然是要深得多。再加上士郎自己对战斗也没什么迷茫，目的性明确，没有需要怜悯的对手也没有需要攻略的妹子，失去了一切有且只有一个战字，不去拼的话最后一点幸福的寄托都夺不回来，这情况下培养出的战斗意志和对自身潜能的发掘程度自然不是本篇可以比的
-
-
-
-
-
 
 
 -----
@@ -13939,21 +9226,13 @@ HF哪里是因为肉体还是本来的状态只有手臂被置换了所以承受
 ##### 731#       发表于 2016-6-25 19:29
 
 
-
-
 其实反过来看本篇的土狼要是有魔伊里面这种性格的话,本篇的结局也不一定会走HF路线,感觉会是新的一种结局
-
-
-
-
-
 
 
 -----
 
 ####  powerpyc  
 ##### 732#       发表于 2016-6-25 19:46
-
 
 
  本帖最后由 powerpyc 于 2016-6-25 19:54 编辑 
@@ -13965,16 +9244,10 @@ HF哪里是因为肉体还是本来的状态只有手臂被置换了所以承受
 大兄弟你的发帖数为啥是0
 
 
-
-
-
-
-
 -----
 
 ####  handing  
 ##### 733#       发表于 2016-6-25 19:48
-
 
 
  本帖最后由 handing 于 2016-6-25 19:49 编辑 
@@ -13987,25 +9260,13 @@ HF哪里是因为肉体还是本来的状态只有手臂被置换了所以承受
 漫画这个二爷就是个一登场杀了和自己不错的妹子的路人，态度自然不一样
 
 
-
-
-
-
-
 -----
 
 ####  王平  
 ##### 734#       发表于 2016-6-25 21:30
 
 
-
-
 卫宫巨侠帅出新高度 期待动画表现
-
-
-
-
-
 
 
 -----
@@ -14014,14 +9275,7 @@ HF哪里是因为肉体还是本来的状态只有手臂被置换了所以承受
 ##### 735#       发表于 2016-6-25 21:36
 
 
-
-
 魔法少年卫宫士郎
-
-
-
-
-
 
 
 -----
@@ -14030,14 +9284,7 @@ HF哪里是因为肉体还是本来的状态只有手臂被置换了所以承受
 ##### 736#       发表于 2016-6-25 23:29
 
 
-
-
 这个士郎帅到爆炸了<img src="https://static.saraba1st.com/image/smiley/zdl/157.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14046,13 +9293,7 @@ HF哪里是因为肉体还是本来的状态只有手臂被置换了所以承受
 ##### 737#       发表于 2016-6-26 00:02
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/200.gif" referrerpolicy="no-referrer">雪夜的UBW的BGM会是什么样的emiya？小提琴版？
-
-
-
-
-
 
 
 -----
@@ -14061,13 +9302,7 @@ HF哪里是因为肉体还是本来的状态只有手臂被置换了所以承受
 ##### 738#         楼主| 发表于 2016-6-26 18:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">卫宫巨侠。
-
-
-
-
-
 
 
 -----
@@ -14076,14 +9311,7 @@ HF哪里是因为肉体还是本来的状态只有手臂被置换了所以承受
 ##### 739#       发表于 2016-6-26 19:46
 
 
-
-
 真的是超级帅，伊利亚世界的土狼好像还只是普通后宫男？感觉后面说不定也会神展开一下
-
-
-
-
-
 
 
 -----
@@ -14092,16 +9320,10 @@ HF哪里是因为肉体还是本来的状态只有手臂被置换了所以承受
 ##### 740#       发表于 2016-6-26 20:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32774123&amp;ptid=866827" target="_blank">requiem116 发表于 2016-6-26 19:46</a>
 
 真的是超级帅，伊利亚世界的土狼好像还只是普通后宫男？感觉后面说不定也会神展开一下 ...</blockquote>
 我也觉得后面两个土狼会双剑合并。
-
-
-
-
-
 
 
 -----
@@ -14110,16 +9332,10 @@ HF哪里是因为肉体还是本来的状态只有手臂被置换了所以承受
 ##### 741#       发表于 2016-6-26 20:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32774123&amp;ptid=866827" target="_blank">requiem116 发表于 2016-6-26 19:46</a>
 
 真的是超级帅，伊利亚世界的土狼好像还只是普通后宫男？感觉后面说不定也会神展开一下 ...</blockquote>
 目前两个死旗高挂的，一个是美游士郎另一个是小黑，两个都是怎么看都不可能活下来的样子
-
-
-
-
-
 
 
 -----
@@ -14128,16 +9344,10 @@ HF哪里是因为肉体还是本来的状态只有手臂被置换了所以承受
 ##### 742#       发表于 2016-6-26 20:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32774258&amp;ptid=866827" target="_blank">風駿 发表于 2016-6-26 20:06</a>
 
 目前两个死旗高挂的，一个是美游士郎另一个是小黑，两个都是怎么看都不可能活下来的样子 ...</blockquote>
 為何小黑會有死旗???<img src="https://static.saraba1st.com/image/smiley/face/22.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14146,16 +9356,10 @@ HF哪里是因为肉体还是本来的状态只有手臂被置换了所以承受
 ##### 743#       发表于 2016-6-26 20:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32774432&amp;ptid=866827" target="_blank">chickenhead 发表于 2016-6-26 20:31</a>
 
 為何小黑會有死旗???</blockquote>
 小黑整个存在都是非常不安定的，一个不小心就会飞
-
-
-
-
-
 
 
 -----
@@ -14164,14 +9368,7 @@ HF哪里是因为肉体还是本来的状态只有手臂被置换了所以承受
 ##### 744#       发表于 2016-6-26 20:35
 
 
-
-
 田中到底是什么人？回忆结束后该填坑了吧。
-
-
-
-
-
 
 
 -----
@@ -14180,14 +9377,7 @@ HF哪里是因为肉体还是本来的状态只有手臂被置换了所以承受
 ##### 745#       发表于 2016-6-26 20:38
 
 
-
-
 看fate吧去看先行放送的人说，第四季第二话内容已经到漫画第四话了，追得有点快啊...本季结尾要做到回到卫宫宅？
-
-
-
-
-
 
 
 -----
@@ -14196,15 +9386,9 @@ HF哪里是因为肉体还是本来的状态只有手臂被置换了所以承受
 ##### 746#       发表于 2016-6-26 20:40
 
 
-
 <blockquote>七千星 发表于 2016-6-26 20:38
 看fate吧去看先行放送的人说，第四季第二话内容已经到漫画第四话了，追得有点快啊...本季结尾要做到回到卫 ...</blockquote>
 不原创的话有希望做到，另外据说士郎人设比原先的好一些了
-
-
-
-
-
 
 
 -----
@@ -14213,24 +9397,16 @@ HF哪里是因为肉体还是本来的状态只有手臂被置换了所以承受
 ##### 747#       发表于 2016-6-26 20:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32774446&amp;ptid=866827" target="_blank">卡蓮 发表于 2016-6-26 20:34</a>
 
 小黑整个存在都是非常不安定的，一个不小心就会飞</blockquote>
 但在愛與正義的魔法少女番中, 小黑的地位應該不算是危險的吧? 美游哥倒是很危險就是了<img src="https://static.saraba1st.com/image/smiley/face/111.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yinfu  
 ##### 748#       发表于 2016-6-26 20:45
-
-
 
 
 k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战起来hf和ubw线的时髦值了
@@ -14240,16 +9416,10 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 再时髦就进入红A的领域了
 
 
-
-
-
-
-
 -----
 
 ####  chickenhead  
 ##### 749#       发表于 2016-6-26 20:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32774490&amp;ptid=866827" target="_blank">風駿 发表于 2016-6-26 20:42</a>
@@ -14258,16 +9428,10 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 但我認為這些 "現實性質的條件" 在"愛與正義的魔法少女番"中是最沒意義的.......<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  chiman  
 ##### 750#       发表于 2016-6-26 21:07
-
 
 
 <blockquote>引用第740楼猥琐酱于2016-06-26 20:03发表的  :
@@ -14281,26 +9445,15 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 ----发送自 [Sony E6853,Android 6.0.1](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  七千星  
 ##### 751#       发表于 2016-6-26 22:08
 
 
-
  本帖最后由 七千星 于 2016-6-26 22:10 编辑 
 
 重看了前面，才发现美游哥被救出来后打安杰丽卡的那一场，想开UBW开不出来，右臂直接被红A侵蚀变色，看着死旗高挂啊<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14309,21 +9462,13 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 ##### 752#       发表于 2016-6-26 22:15
 
 
-
-
 话说红A土狼时髦值和性格感觉比正传三线里的都要高啊
-
-
-
-
-
 
 
 -----
 
 ####  we89623  
 ##### 753#       发表于 2016-6-26 23:28
-
 
 
  本帖最后由 we89623 于 2016-6-26 23:33 编辑 
@@ -14335,16 +9480,10 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 但人家可是真真正正的后宫男啊   撇去伊利亚不说，塞拉明显就是个傲娇吧
 
 
-
-
-
-
-
 -----
 
 ####  東雲千夜子  
 ##### 754#       发表于 2016-6-27 09:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32774446&amp;ptid=866827" target="_blank">卡蓮 发表于 2016-6-26 20:34</a>
@@ -14353,25 +9492,13 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 华怜老师你什么时候才再出场啊
 
 
-
-
-
-
-
 -----
 
 ####  破鞋三公主  
 ##### 755#       发表于 2016-6-27 10:21
 
 
-
-
 小黑现在作为魔法少女，什么FLAG都不会有事的
-
-
-
-
-
 
 
 -----
@@ -14380,23 +9507,16 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 ##### 756#       发表于 2016-6-27 12:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32778302&amp;ptid=866827" target="_blank">破鞋三公主 发表于 2016-6-27 10:21</a>
 
 小黑现在作为魔法少女，什么FLAG都不会有事的</blockquote>
 不拿法杖，拿双刀砍人的魔法少女…怪怪的
 
 
-
-
-
-
-
 -----
 
 ####  chickenhead  
 ##### 757#       发表于 2016-6-27 14:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32779821&amp;ptid=866827" target="_blank">七千星 发表于 2016-6-27 12:30</a>
@@ -14406,25 +9526,13 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 這點在fsn本篇紅茶出現的時候就沒甚麼大不了了(主用 "雙刀" 的 "弓兵")<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  wthall  
 ##### 758#       发表于 2016-6-27 15:07
 
 
-
-
 话说为啥这个女的用金闪闪的力量用的那么起劲还能那么舔着脸喊别人faker呢？
-
-
-
-
-
 
 
 -----
@@ -14433,15 +9541,9 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 ##### 759#       发表于 2016-6-27 15:32
 
 
-
 <blockquote>wthall 发表于 2016-6-27 15:07
 话说为啥这个女的用金闪闪的力量用的那么起劲还能那么舔着脸喊别人faker呢？ ...</blockquote>
 思维和说话方式被影响了吧，美游用闪卡的时候都无法保持自我了
-
-
-
-
-
 
 
 -----
@@ -14450,23 +9552,16 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 ##### 760#       发表于 2016-6-27 15:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32781689&amp;ptid=866827" target="_blank">xseed01 发表于 2016-6-27 15:32</a>
 
 思维和说话方式被影响了吧，美游用闪卡的时候都无法保持自我了</blockquote>
 但是这女的后来面对幼闪也是这幅吊样子啊，一脸我是正版你邹凯的表情
 
 
-
-
-
-
-
 -----
 
 ####  cy19900716  
 ##### 761#       发表于 2016-6-27 15:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32781418&amp;ptid=866827" target="_blank">wthall 发表于 2016-6-27 15:07</a>
@@ -14481,26 +9576,15 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 而幼闪对她来说不过是卡片暴走衍生出来的副产物，归根到底也还是她主子搞出来的，没必要有什么尊敬之意。
 
 
-
-
-
-
-
 -----
 
 ####  xseed01  
 ##### 762#       发表于 2016-6-27 15:43
 
 
-
 <blockquote>wthall 发表于 2016-6-27 15:35
 但是这女的后来面对幼闪也是这幅吊样子啊，一脸我是正版你邹凯的表情</blockquote>
 插着卡就被卡影响，打幼闪时卡还在身上。美游受影响后被朱利安拔卡就正常了。现在在听美游哥讲故事的安洁莉卡就挺沉默的。
-
-
-
-
-
 
 
 -----
@@ -14509,16 +9593,10 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 ##### 763#       发表于 2016-6-27 15:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32781733&amp;ptid=866827" target="_blank">wthall 发表于 2016-6-27 15:35</a>
 
 但是这女的后来面对幼闪也是这幅吊样子啊，一脸我是正版你邹凯的表情</blockquote>
 然后就被显露大闪性格的幼闪婊回去“这种说话方式不适合你”
-
-
-
-
-
 
 
 -----
@@ -14527,13 +9605,7 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 ##### 764#       发表于 2016-6-27 15:45
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">幸好现在魔依打戏超级棒，要不然不知道弃坑多久了
-
-
-
-
-
 
 
 -----
@@ -14542,24 +9614,16 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 ##### 765#       发表于 2016-6-28 22:30
 
 
-
-
 第三季的动画要来了，这季人设换了感觉比以前好点。
 [pv3](http://weibo.com/1864696473/DClwbaTWW?from=page_1005051864696473_profile&amp;wvr=6&amp;mod=weibotime&amp;type=comment)
 
 可惜没我出场了<img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  卡蓮  
 ##### 766#       发表于 2016-6-28 22:34
-
 
 
  本帖最后由 卡蓮 于 2016-6-28 22:35 编辑 
@@ -14569,17 +9633,10 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 这个世界的冬木有言峰，估计要等他死了或者退场才行
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 767#       发表于 2016-6-28 22:42
-
-
 
 
 根据去看先行的同志们汇报，进度应该蛮快的，第二集结尾接做到幼闪VS娘闪了。
@@ -14590,32 +9647,19 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 另外听说士郎的人设变了，而且变的很大，是那种跟伊利亚他们站一起就充满违和感的变化。
 
 
-
-
-
-
-
 -----
 
 ####  collincollin  
 ##### 768#       发表于 2016-6-28 22:47
 
 
-
-
 蓝宝石：嘉数由美
-
-
-
-
-
 
 
 -----
 
 ####  消防  
 ##### 769#       发表于 2016-6-28 23:11
-
 
 
 <blockquote>we89623 发表于 2016-6-28 22:42
@@ -14627,24 +9671,13 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 这片目前好像也没出现几个成年男性，这季一下子来朱利安土狼和麻婆，大概感觉都会蛮奇怪的
 
 
-
-
-
-
-
 -----
 
 ####  jijiuuo  
 ##### 770#       发表于 2016-7-2 00:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/74.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14653,24 +9686,16 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 ##### 771#         楼主| 发表于 2016-7-3 14:35
 
 
-
-
 今天的新闻。[超健全公仔開箱《伊莉亞＋小黑泳裝組合》不怕死的勇者才敢擺出來……](https://news.gamme.com.tw/1420920)
 
 
 感觉哪里不对劲。比如说肚子有问题，虽然不是平滑的但这解剖结构…这样处理不太好。
 
 
-
-
-
-
-
 -----
 
 ####  Byarlant  
 ##### 772#       发表于 2016-7-3 15:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32843987&amp;ptid=866827" target="_blank">laoism 发表于 2016-7-3 14:35</a>
@@ -14688,16 +9713,10 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 新闻里面发现了FBI除了假设服务器和加班少女聊天之外，开发了在eb上卖幼女手办这条钓鱼执法的路子...
 
 
-
-
-
-
-
 -----
 
 ####  chiman  
 ##### 773#       发表于 2016-7-3 20:20
-
 
 
 <blockquote>引用第771楼laoism于2016-07-03 14:35发表的  :
@@ -14713,16 +9732,10 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 ----发送自 [Sony E6853,Android 6.0.1](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  laoism  
 ##### 774#         楼主| 发表于 2016-7-3 21:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32846599&amp;ptid=866827" target="_blank">chiman 发表于 2016-7-3 20:20</a>
@@ -14735,32 +9748,19 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 我并没提到臀。
 
 
-
-
-
-
-
 -----
 
 ####  chiman  
 ##### 775#       发表于 2016-7-4 10:29
 
 
-
-
 后面不是指臀？
-
-
-
-
-
 
 
 -----
 
 ####  laoism  
 ##### 776#         楼主| 发表于 2016-7-6 19:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32844260&amp;ptid=866827" target="_blank">Byarlant 发表于 2016-7-3 15:14</a>
@@ -14776,16 +9776,10 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 你觉得这个效果怎么样。
 
 
-
-
-
-
-
 -----
 
 ####  laoism  
 ##### 777#         楼主| 发表于 2016-7-6 19:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32850908&amp;ptid=866827" target="_blank">chiman 发表于 2016-7-4 10:29</a>
@@ -14797,16 +9791,10 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 我在#775所指的是肚子及附近区域微妙的凹凸，如#777的那张图。
 
 
-
-
-
-
-
 -----
 
 ####  laoism  
 ##### 778#         楼主| 发表于 2016-7-6 19:15
-
 
 
 [保险套改造《伊莉亚＋小黑泳装公仔》](https://news.gamme.com.tw/1421235)
@@ -14814,16 +9802,10 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 喷了。
 
 
-
-
-
-
-
 -----
 
 ####  cy19900716  
 ##### 779#       发表于 2016-7-6 19:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32876862&amp;ptid=866827" target="_blank">laoism 发表于 2016-7-6 19:15</a>
@@ -14834,17 +9816,10 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 可以，很强
 
 
-
-
-
-
-
 -----
 
 ####  chiman  
 ##### 780#       发表于 2016-7-6 20:49
-
-
 
 
 可以這很健全
@@ -14853,25 +9828,13 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 ----发送自 [Sony E6853,Android 6.0.1](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  alialex  
 ##### 781#       发表于 2016-7-6 21:07
 
 
-
-
 日本是10點放吧？國內哪裡有直播么？ 
-
-
-
-
-
 
 
 -----
@@ -14880,23 +9843,15 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 ##### 782#       发表于 2016-7-6 22:26
 
 
-
-
 福圓美里！福圓美里！福圓美里！
 
 小黑我不要了，請給我田中！ 
-
-
-
-
-
 
 
 -----
 
 ####  aaron17  
 ##### 783#       发表于 2016-7-6 22:27
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">1话节奏略慢啊。。想用日常骗骗观众吗
@@ -14906,16 +9861,10 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 福圆的田中好评<img src="https://static.saraba1st.com/image/smiley/face/13.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 784#       发表于 2016-7-6 22:31
-
 
 
  本帖最后由 we89623 于 2016-7-6 22:32 编辑 
@@ -14926,25 +9875,13 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 另外看OP进度妥妥要做完美游夺还， 少侠的劈山剑都出来了
 
 
-
-
-
-
-
 -----
 
 ####  七千星  
 ##### 785#       发表于 2016-7-6 22:38
 
 
-
-
 好好好，能连续打打打！少侠的劈山剑扫黑泥，合体技双人鹤翼第四集应该能看到吧<img src="https://static.saraba1st.com/image/smiley/face/07.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14953,14 +9890,7 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 ##### 786#       发表于 2016-7-6 22:46
 
 
-
-
 直播结束了？ 哪里有下载啊？
-
-
-
-
-
 
 
 -----
@@ -14969,14 +9899,7 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 ##### 787#       发表于 2016-7-6 22:54
 
 
-
-
 卫宫巨侠的气场让卫宫少侠都变帅了<img src="https://static.saraba1st.com/image/smiley/zdl/157.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14985,16 +9908,9 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 ##### 788#         楼主| 发表于 2016-7-6 23:19
 
 
-
-
 呃其实这儿有动画专楼：[http://bbs.saraba1st.com/2b/thread-1296627-1-1.html](http://bbs.saraba1st.com/2b/thread-1296627-1-1.html)
 
 我去顶顶。
-
-
-
-
-
 
 
 -----
@@ -15003,14 +9919,7 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 ##### 789#       发表于 2016-7-6 23:31
 
 
-
-
 娘闪闪这是欠作画钱了么，画得比其他角色差一个档次
-
-
-
-
-
 
 
 -----
@@ -15019,16 +9928,9 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 ##### 790#       发表于 2016-7-6 23:42
 
 
-
  本帖最后由 七千星 于 2016-7-6 23:52 编辑 
 
 271熟肉出了<img src="https://static.saraba1st.com/image/smiley/face/166.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
@@ -15037,22 +9939,13 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 ##### 791#       发表于 2016-7-7 00:27
 
 
-
-
 怎么两边都没什么人啊
-
-
-
-
-
 
 
 -----
 
 ####  消防  
 ##### 792#       发表于 2016-7-7 01:19
-
-
 
 
 冬天森林里头跑的伊莉雅终于能联系上本篇那个伊莉雅了，田中真可爱。
@@ -15066,16 +9959,10 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 看到娘闪的腿甲激灵了一下，但果然还是在玩COS的伪物……嗯幼闪闪在下集。
 
 
-
-
-
-
-
 -----
 
 ####  Byarlant  
 ##### 793#       发表于 2016-7-7 17:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32876806&amp;ptid=866827" target="_blank">laoism 发表于 2016-7-6 19:09</a>
@@ -15087,16 +9974,10 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 顺便黑色不太达，模拟用来强化关节着色的肉粉渐变色用在泳装上可能更好，当然这些布条依然是多余的。
 
 
-
-
-
-
-
 -----
 
 ####  laoism  
 ##### 794#         楼主| 发表于 2016-7-7 17:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32886160&amp;ptid=866827" target="_blank">Byarlant 发表于 2016-7-7 17:37</a>
@@ -15108,16 +9989,10 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 黑布并不是原图的一部分，原图无法直接发S1<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Byarlant  
 ##### 795#       发表于 2016-7-7 18:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32886334&amp;ptid=866827" target="_blank">laoism 发表于 2016-7-7 17:54</a>
@@ -15135,16 +10010,10 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 可能会更好一点，个人意见。
 
 
-
-
-
-
-
 -----
 
 ####  風駿  
 ##### 796#       发表于 2016-7-7 18:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32879408&amp;ptid=866827" target="_blank">消防 发表于 2016-7-7 01:19</a>
@@ -15155,35 +10024,22 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 钉宫这个疯子卖萌起来也很要命的……
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 797#       发表于 2016-7-9 17:00
 
 
-
 [http://manhua.dmzj.com/fklmfsnyly/55376.shtml#@page=1](http://manhua.dmzj.com/fklmfsnyly/55376.shtml#@page=1)
 
 
-
 卫宫少侠，，你帅炸了啊， 不过那句你还挺可爱的 不要一边打一边撩娘闪闪好吗
-
-
-
-
-
 
 
 -----
 
 ####  laoism  
 ##### 798#         楼主| 发表于 2016-7-12 18:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32886461&amp;ptid=866827" target="_blank">Byarlant 发表于 2016-7-7 18:06</a>
@@ -15198,16 +10054,10 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 “跨线”是什么？
 
 
-
-
-
-
-
 -----
 
 ####  Byarlant  
 ##### 799#       发表于 2016-7-14 15:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32922097&amp;ptid=866827" target="_blank">laoism 发表于 2016-7-12 18:45</a>
@@ -15219,33 +10069,19 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 就是你举例的那个链接里面那幅画的腹缝延伸线后面非常隐约的被髂骨撑起的那条线到胯部的曲线延伸效果。
 
 
-
-
-
-
-
 -----
 
 ####  skyuni  
 ##### 800#       发表于 2016-7-19 20:12
 
 
-
-
 卫宫巨侠叼炸天，限定版雪飘特效UBW
-
-
-
-
-
 
 
 -----
 
 ####  黑雪姫  
 ##### 801#       发表于 2016-7-23 20:47
-
-
 
 
 本月魔伊：ea对ubw，卫宫巨侠已超神。
@@ -15256,26 +10092,13 @@ k岛的讨论也是一开始一群死宅对着潮士郎gao丸排卵接着就战�
 <img src="http://ww3.sinaimg.cn/mw1024/41628a93jw1f644ot4yu2j20ga0c60tq.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  deviljz  
 ##### 802#       发表于 2016-7-23 20:57
 
 
-
-
 ea搞不好要变战斗力单位了
-
-
-
-
-
 
 
 -----
@@ -15284,21 +10107,13 @@ ea搞不好要变战斗力单位了
 ##### 803#       发表于 2016-7-23 21:03
 
 
-
-
 卫宫巨侠，强，无敌
-
-
-
-
-
 
 
 -----
 
 ####  消防  
 ##### 804#       发表于 2016-7-23 21:26
-
 
 
  本帖最后由 消防 于 2016-7-23 22:21 编辑 
@@ -15308,16 +10123,10 @@ EA历史地位下降。
 之前有朋友提问当红茶无限魔力无限理解是否可以无限投影屌翻全场冠绝英灵，好吧你赢了。<img src="https://static.saraba1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  结标淡希  
 ##### 805#       发表于 2016-7-23 21:36
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">原来这个土狼这么屌是因为之前一直有小圣杯美游提供魔力支援吗....
@@ -15326,25 +10135,13 @@ EA历史地位下降。
 但他的时髦度依然历届最高
 
 
-
-
-
-
-
 -----
 
 ####  xiaoboost  
 ##### 806#       发表于 2016-7-23 22:10
 
 
-
-
 这漫画的武力值膨胀的太快了点吧
-
-
-
-
-
 
 
 -----
@@ -15353,21 +10150,13 @@ EA历史地位下降。
 ##### 807#       发表于 2016-7-23 22:42
 
 
-
-
 我前面说这个士郎过于龙傲天 战斗力和本篇比过于跳跃  前面还有各种人洗地 笑了
-
-
-
-
-
 
 
 -----
 
 ####  reader  
 ##### 808#       发表于 2016-7-23 22:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33041398&amp;ptid=866827" target="_blank">结标淡希 发表于 2016-7-23 21:36</a>
@@ -15379,16 +10168,10 @@ EA历史地位下降。
 虽然UBW可以吹的空间的很大，不过还是这个圣杯战争上限太低了，对于真正英灵来说比较麻烦的UBW对于这边来说就变成专治不服的大杀器。
 
 
-
-
-
-
-
 -----
 
 ####  3996038abc  
 ##### 809#       发表于 2016-7-24 21:00
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">这飘雪的剑丘就是剑风传奇里吉特给鹰团修的剑の丘那一幕啊，尤其是那个  “剑就像墓碑一样”   也是那一页的台词啊……
@@ -15397,16 +10180,10 @@ EA历史地位下降。
 看看对比
 
 
-
-
-
-
-
 -----
 
 ####  cxj649  
 ##### 810#       发表于 2016-7-24 21:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33041659&amp;ptid=866827" target="_blank">xiaoboost 发表于 2016-7-23 22:10</a>
@@ -15415,25 +10192,13 @@ EA历史地位下降。
 没有，只是把EA打出原型而已
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 811#       发表于 2016-7-24 21:30
 
 
-
-
 之前喵喵锤轰出的雷柱都被巨侠给打断了，这帮卡片人偶肯定比原版差多了
-
-
-
-
-
 
 
 -----
@@ -15442,14 +10207,7 @@ EA历史地位下降。
 ##### 812#       发表于 2016-7-24 21:48
 
 
-
-
 卫宫巨侠有说过啊，他是无限接近英灵的卡片使用者，其他卡片使用者却是降级版，所以他才能这片场当卫宫傲天。<img src="https://static.saraba1st.com/image/smiley/face/05.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15458,16 +10216,9 @@ EA历史地位下降。
 ##### 813#       发表于 2016-7-25 17:52
 
 
-
-
 其他卡片使用者已经被人偶替代，同步率比起本人使用大概还能高点。不过考虑到身体强度、同步率、本体的战斗意识等等，能有原版英灵七成的能力就算不错了吧？而且看索尔的使用者，卡片还有更高一级的使用方法，能令使用者的能力更加接近英灵。但那帮人偶应该没有这种权限。
 
 卫宫少侠不管哪条线都会因为跟未来的自己同步，只要靠近英灵士郎就会无限升级。这条线上因为有卡片的缘故，跟英灵士郎的联系或许没有hf线那么直接，但胜在安全可控，卡片还可以提供英灵的经验力量支持，外加小时候跟着切嗣到处跑，实战经验也远高于fate三线。有卡片的时候强度应该能有原版九成以上。没卡片之后直接开始置换，战斗力虽然下降了，但也超过一般的卡片使用者了。
-
-
-
-
-
 
 
 -----
@@ -15476,16 +10227,10 @@ EA历史地位下降。
 ##### 814#       发表于 2016-7-25 18:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33041912&amp;ptid=866827" target="_blank">任天索尼子 发表于 2016-7-23 22:42</a>
 
 我前面说这个士郎过于龙傲天 战斗力和本篇比过于跳跃  前面还有各种人洗地 笑了 ...</blockquote>
 不不不 我们就喜欢看士郎龙傲天<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15494,16 +10239,10 @@ EA历史地位下降。
 ##### 815#       发表于 2016-7-25 19:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33059757&amp;ptid=866827" target="_blank">桥田至 发表于 2016-7-25 18:48</a>
 
 不不不 我们就喜欢看士郎龙傲天</blockquote>
 我又没说喜不喜欢看 好不好看和我又没关系  我只说战斗力比起本篇膨胀太多 然后各种理由就来了 
-
-
-
-
-
 
 
 -----
@@ -15512,16 +10251,10 @@ EA历史地位下降。
 ##### 816#       发表于 2016-7-25 19:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33060218&amp;ptid=866827" target="_blank">任天索尼子 发表于 2016-7-25 19:38</a>
 
 我又没说喜不喜欢看 好不好看和我又没关系  我只说战斗力比起本篇膨胀太多 然后各种理由就来了  ...</blockquote>
 没有膨胀，不如说本篇表现太弱了。
-
-
-
-
-
 
 
 -----
@@ -15530,23 +10263,16 @@ EA历史地位下降。
 ##### 817#       发表于 2016-7-25 19:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33060287&amp;ptid=866827" target="_blank">cxj649 发表于 2016-7-25 19:46</a>
 
 没有膨胀，不如说本篇表现太弱了。</blockquote>
 表现力是另一码事 总不能说一个外传的权威性比本篇还要高吧？HF士郎直接用了英灵手臂 还是搭上性命 也不能用UBW 表现出来的战斗力有魔伊的一半吗？这就是战力膨胀 
 
 
-
-
-
-
-
 -----
 
 ####  cxj649  
 ##### 818#       发表于 2016-7-25 20:04
-
 
 
  本帖最后由 cxj649 于 2016-7-25 20:06 编辑 
@@ -15556,16 +10282,10 @@ EA历史地位下降。
 这边也是部分英灵土狼的身体……顺便，你不说FZ和FGO以及其他战力膨胀？
 
 
-
-
-
-
-
 -----
 
 ####  suebin  
 ##### 819#       发表于 2016-7-25 20:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33060351&amp;ptid=866827" target="_blank">任天索尼子 发表于 2016-7-25 19:55</a>
@@ -15580,32 +10300,19 @@ EA历史地位下降。
 想不到都2016年了 还有FSN原教旨主义者。。。。。。。。。。。。。
 
 
-
-
-
-
-
 -----
 
 ####  桥田至  
 ##### 820#       发表于 2016-7-26 03:42
 
 
-
-
 看完生肉了，感觉美游兄要比本篇士郎狠多了，招招本着要害去的，如果不是安吉莉卡特有的转移魔术，换成本篇的二闪早就被砍头了...
-
-
-
-
-
 
 
 -----
 
 ####  任天索尼子  
 ##### 821#       发表于 2016-7-26 04:02
-
 
 
 <blockquote>suebin 发表于 2016-7-25 20:14
@@ -15617,32 +10324,19 @@ EA历史地位下降。
 所以说战力膨胀有问题？我哪句话说了不允许膨胀还是怎么着？
 
 
-
-
-
-
-
 -----
 
 ####  突发性哮喘病患  
 ##### 822#       发表于 2016-7-26 16:51
 
 
-
-
 该篇间接论证了无限魔红A的战斗力
-
-
-
-
-
 
 
 -----
 
 ####  消防  
 ##### 823#       发表于 2016-7-26 17:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33063178&amp;ptid=866827" target="_blank">桥田至 发表于 2016-7-26 03:42</a>
@@ -15653,25 +10347,13 @@ EA历史地位下降。
 安洁莉卡就是个用着卡片的普通人而已，感情伊莉雅COS了大狗就把她当娘枪么。
 
 
-
-
-
-
-
 -----
 
 ####  戒不掉  
 ##### 824#       发表于 2016-7-26 17:19
 
 
-
-
 所以最后就真的就是脸接EA不死，这防御力有点高啊
-
-
-
-
-
 
 
 -----
@@ -15680,16 +10362,10 @@ EA历史地位下降。
 ##### 825#       发表于 2016-7-26 18:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33063178&amp;ptid=866827" target="_blank">桥田至 发表于 2016-7-26 03:42</a>
 
 看完生肉了，感觉美游兄要比本篇士郎狠多了，招招本着要害去的，如果不是安吉莉卡特有的转移魔术，换成本篇 ...</blockquote>
 本篇金皮也还是能把红A吊着打的，而且最重要的问题，卡片要比本人要弱啊（幼闪除外
-
-
-
-
-
 
 
 -----
@@ -15698,23 +10374,16 @@ EA历史地位下降。
 ##### 826#       发表于 2016-7-26 18:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33063178&amp;ptid=866827" target="_blank">桥田至 发表于 2016-7-26 03:42</a>
 
 看完生肉了，感觉美游兄要比本篇士郎狠多了，招招本着要害去的，如果不是安吉莉卡特有的转移魔术，换成本篇 ...</blockquote>
 本篇金皮也还是能把红A吊着打的，而且最重要的问题，卡片要比本人要弱啊（幼闪除外
 
 
-
-
-
-
-
 -----
 
 ####  桥田至  
 ##### 827#       发表于 2016-7-26 18:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33069872&amp;ptid=866827" target="_blank">消防 发表于 2016-7-26 17:00</a>
@@ -15725,17 +10394,10 @@ EA历史地位下降。
 没理解我意思 我是说UBW那一幕 换成美游哥就不是剁手了
 
 
-
-
-
-
-
-
 -----
 
 ####  周刊麻将Sunday  
 ##### 828#       发表于 2016-7-26 18:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33063178&amp;ptid=866827" target="_blank">桥田至 发表于 2016-7-26 03:42</a>
@@ -15744,16 +10406,10 @@ EA历史地位下降。
 剁手就是怕EA，之后没蓝了才没继续下手的，土狼一直也没怎么手下留情吧，葛木那时候就说如果他是Caster的Master的话Saber就直接杀掉他。
 
 
-
-
-
-
-
 -----
 
 ####  桥田至  
 ##### 829#       发表于 2016-7-26 18:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33070677&amp;ptid=866827" target="_blank">周刊麻将Sunday 发表于 2016-7-26 18:20</a>
@@ -15762,16 +10418,10 @@ EA历史地位下降。
 我不觉得头没了金皮卡还能放出EA....不过当时情况砍手的确是正确的<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 830#       发表于 2016-7-26 18:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33070647&amp;ptid=866827" target="_blank">桥田至 发表于 2016-7-26 18:15</a>
@@ -15785,26 +10435,15 @@ EA历史地位下降。
 如果土狼一上来就大杀四方自然也不可能慢心MAX了。
 
 
-
-
-
-
-
 -----
 
 ####  镜八重  
 ##### 831#       发表于 2016-7-26 18:34
 
 
-
 <blockquote>桥田至 发表于 2016-7-26 03:42
 看完生肉了，感觉美游兄要比本篇士郎狠多了，招招本着要害去的，如果不是安吉莉卡特有的转移魔术，换成本篇 ...</blockquote>
 本篇士郎剁手阻止EA之后趁势又向前一刀是直接斜劈肩的，闪闪后跳躲开（还是伤了）了，要不然也是致命一刀。哪个世界的士郎似乎都不是那种在生死之战里会想着避开要害的人。
-
-
-
-
-
 
 
 -----
@@ -15813,14 +10452,7 @@ EA历史地位下降。
 ##### 832#         楼主| 发表于 2016-7-26 19:03
 
 
-
-
 这算万剑归宗吗？
-
-
-
-
-
 
 
 -----
@@ -15829,14 +10461,7 @@ EA历史地位下降。
 ##### 833#       发表于 2016-7-26 19:11
 
 
-
-
 卫宫巨侠的能力有水分的，原来是靠圣杯（美游）无限隔空补魔
-
-
-
-
-
 
 
 -----
@@ -15845,14 +10470,7 @@ EA历史地位下降。
 ##### 834#       发表于 2016-7-26 19:17
 
 
-
-
 卫宫巨侠够强原来是因为无限魔啊 但是仗着无限魔透支未来太多 侵蚀的已经差不多了吧
-
-
-
-
-
 
 
 -----
@@ -15861,14 +10479,7 @@ EA历史地位下降。
 ##### 835#       发表于 2016-7-26 19:35
 
 
-
-
 卫宫巨侠的便当材料都准备好了
-
-
-
-
-
 
 
 -----
@@ -15877,22 +10488,13 @@ EA历史地位下降。
 ##### 836#       发表于 2016-7-26 19:43
 
 
-
-
 现在美游走兄嫁还是走伊利亚嫁路线是个问题
-
-
-
-
-
 
 
 -----
 
 ####  猥琐酱  
 ##### 837#       发表于 2016-7-26 21:00
-
-
 
 
 我曹,这太屌了!!下巴都看掉了我.与其说美游兄嫁,不如说士郎仅仅靠着妹控之魂就实现了隔空补魔实在太BUG了.
@@ -15904,16 +10506,10 @@ EA历史地位下降。
 目前一个圣杯=一个EA.
 
 
-
-
-
-
-
 -----
 
 ####  周刊麻将Sunday  
 ##### 838#       发表于 2016-7-26 21:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33072157&amp;ptid=866827" target="_blank">猥琐酱 发表于 2016-7-26 21:00</a>
@@ -15926,16 +10522,10 @@ EA历史地位下降。
 毕竟安洁莉卡风格太正派，不是大Boss一定能洗白
 
 
-
-
-
-
-
 -----
 
 ####  cy19900716  
 ##### 839#       发表于 2016-7-26 22:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33072157&amp;ptid=866827" target="_blank">猥琐酱 发表于 2016-7-26 21:00</a>
@@ -15948,16 +10538,10 @@ EA历史地位下降。
 所以和娘闪打的时候才会被置换侵蚀的。
 
 
-
-
-
-
-
 -----
 
 ####  维吉尔的眼泪  
 ##### 840#       发表于 2016-7-26 22:29
-
 
 
 <blockquote>消防 发表于 2016-7-26 17:00
@@ -15969,25 +10553,13 @@ EA历史地位下降。
 圣杯加持的二楼横走，无限剑丢出去如果美游没走估计就接个无限幻崩反杀了
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 841#       发表于 2016-7-26 22:47
 
 
-
-
 卫宫巨侠开始犯傻的时候怎么没被人喷，他要是听老爸话把美游藏好点，学妹不会死，学生会基友不会跳反，伊莉雅可以继续当她的萌萌脑残小学生，天塌了也有高个的顶，比现在过得要好多了吧
-
-
-
-
-
 
 
 -----
@@ -15996,14 +10568,7 @@ EA历史地位下降。
 ##### 842#       发表于 2016-7-26 23:28
 
 
-
-
 这漫画告诉我们，设定厨口中无敌逆天的认真的闪闪，也就这种水平而已。。。
-
-
-
-
-
 
 
 -----
@@ -16012,14 +10577,7 @@ EA历史地位下降。
 ##### 843#       发表于 2016-7-26 23:29
 
 
-
-
 说什么卫宫少侠死旗高挂的，这是爱与希望满溢的魔法少女漫画啊，红A的置换侵蚀什么的，转移到小黑身上就好了嘛，本来就是基于红A卡片存在的小黑，跟红A的相性肯定不是一般的好，直接让小黑获得安定的肉体顺便实力再提升可以放UBW，简直顺理成章水到渠成
-
-
-
-
-
 
 
 -----
@@ -16028,14 +10586,7 @@ EA历史地位下降。
 ##### 844#       发表于 2016-7-27 00:27
 
 
-
-
 巨侠X娘闪这CP可以有<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16044,16 +10595,10 @@ EA历史地位下降。
 ##### 845#       发表于 2016-7-27 00:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33073548&amp;ptid=866827" target="_blank">莉莉橙 发表于 2016-7-26 23:29</a>
 
 说什么卫宫少侠死旗高挂的，这是爱与希望满溢的魔法少女漫画啊，红A的置换侵蚀什么的，转移到小黑身上就好 ...</blockquote>
 卫宫巨侠打架从来不要命，早晚要透支完的
-
-
-
-
-
 
 
 -----
@@ -16062,14 +10607,7 @@ EA历史地位下降。
 ##### 846#       发表于 2016-7-27 00:56
 
 
-
-
 伊利亚第三季 全靠卫宫巨侠撑场面了啊。。 卫宫没有推到娘闪闪遗憾
-
-
-
-
-
 
 
 -----
@@ -16078,14 +10616,7 @@ EA历史地位下降。
 ##### 847#       发表于 2016-7-27 01:37
 
 
-
-
 Woc卫宫巨侠传完了？土狼这逼一装也是装了快一年啊…
-
-
-
-
-
 
 
 -----
@@ -16094,22 +10625,15 @@ Woc卫宫巨侠传完了？土狼这逼一装也是装了快一年啊…
 ##### 848#       发表于 2016-7-27 02:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=33074365&amp;amp;ptid=866827" target="_blank">warjuggler 发表于 2016-7-27 01:37</a>
 Woc卫宫巨侠传完了？土狼这逼一装也是装了快一年啊…</blockquote>
 一年？差一个月两年... 不算监狱里那段 巨侠出来耍时髦的是2014年8月刊....
-
-
-
-
-
 
 
 -----
 
 ####  Joseph.Fourier  
 ##### 849#       发表于 2016-7-27 09:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33073535&amp;ptid=866827" target="_blank">pf67 发表于 2016-7-26 23:28</a>
@@ -16121,25 +10645,13 @@ Woc卫宫巨侠传完了？土狼这逼一装也是装了快一年啊…</blockq
 没有乖离剑，估计连兰斯洛特都打不过（无论什么阶级召唤的）。
 
 
-
-
-
-
-
 -----
 
 ####  iqbsh38  
 ##### 850#       发表于 2016-7-27 10:23
 
 
-
-
 论核电池（美游）南孚（凛）和纽扣电池（FATE本转士郎）的区别
-
-
-
-
-
 
 
 -----
@@ -16148,16 +10660,9 @@ Woc卫宫巨侠传完了？土狼这逼一装也是装了快一年啊…</blockq
 ##### 851#       发表于 2016-7-27 10:55
 
 
-
-
 你们怎么看出ubw胜过ea了？不是万剑归宗被ea轰散了吗？巨侠还想负隅顽抗结果魔力断了
 
 不过娘闪和巨侠这cp感真是....胸大收了吧
-
-
-
-
-
 
 
 -----
@@ -16166,23 +10671,15 @@ Woc卫宫巨侠传完了？土狼这逼一装也是装了快一年啊…</blockq
 ##### 852#       发表于 2016-7-27 11:41
 
 
-
-
 魔伊的卫宫巨侠没有剑鞘开不了理想乡，正面刚ea是没希望的。不知道连发花瓣盾能不能硬顶。
 
 不过巨侠本来就只是打着拖时间的目的吧，打不过但只要拖到愿望实现就算赢了。
-
-
-
-
-
 
 
 -----
 
 ####  reader  
 ##### 853#       发表于 2016-7-27 12:17
-
 
 
 <blockquote>icesha 发表于 2016-7-27 11:41
@@ -16192,25 +10689,13 @@ Woc卫宫巨侠传完了？土狼这逼一装也是装了快一年啊…</blockq
 进入跟ea拼出力的阶段就已经输一半了，尽可能让对方拿不出ea才有希望打赢。
 
 
-
-
-
-
-
 -----
 
 ####  嵐濤  
 ##### 854#       发表于 2016-7-27 14:11
 
 
-
-
 这话看到一半我还在想巨侠会不会说我现在只有一成功力...
-
-
-
-
-
 
 
 -----
@@ -16219,21 +10704,13 @@ Woc卫宫巨侠传完了？土狼这逼一装也是装了快一年啊…</blockq
 ##### 855#       发表于 2016-7-27 14:46
 
 
-
-
 话说这个世界线伊莉雅哥有没有剑鞘啊，等幼闪变中二之后大概又是反派，大概要等另一个巨侠出来救场？<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  東雲千夜子  
 ##### 856#       发表于 2016-7-27 16:58
-
 
 
  本帖最后由 東雲千夜子 于 2016-7-27 17:08 编辑 
@@ -16253,31 +10730,19 @@ HF不能开UBW是因为那是红A的UBW，土狼的心境已经不同了才没�
 另外美游的无线供魔也是一个原因，你看救出美游时巨侠连UBW都放不出了，这可是他自己的UBW
 
 
-
-
-
-
-
 -----
 
 ####  qixinno2  
 ##### 857#       发表于 2016-7-27 17:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">如果再拿到剑鞘对面就该被三线合体巨侠吊着打了
-
-
-
-
-
 
 
 -----
 
 ####  icesha  
 ##### 858#       发表于 2016-7-27 19:06
-
 
 
  本帖最后由 icesha 于 2016-7-27 19:13 编辑 
@@ -16292,32 +10757,19 @@ HF不能开UBW是因为那是红A的UBW，土狼的心境已经不同了才没�
 这边的世界还是跟fate本体差别很大，不好一概而论。
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 859#       发表于 2016-7-27 19:48
 
 
-
-
 美游的世界卫宫巨侠是士狼 。伊利亚世界的卫宫巨侠是切嗣 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xseed01  
 ##### 860#       发表于 2016-7-27 20:55
-
 
 
 <blockquote>icesha 发表于 2016-7-27 19:06
@@ -16328,32 +10780,19 @@ HF不能开UBW是因为那是红A的UBW，土狼的心境已经不同了才没�
 切嗣救到美游那个时间点就是第四次圣杯战争最终吧？
 
 
-
-
-
-
-
 -----
 
 ####  yixiaqqq  
 ##### 861#       发表于 2016-7-27 21:15
 
 
-
-
 EA果然是打不死人的<img src="https://static.saraba1st.com/image/smiley/face/32.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  forzen  
 ##### 862#       发表于 2016-7-27 21:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33081529&amp;ptid=866827" target="_blank">東雲千夜子 发表于 2016-7-27 16:58</a>
@@ -16365,16 +10804,10 @@ EA果然是打不死人的<img src="https://static.saraba1st.com/image/smiley/fa
 我觉得那不是侵蚀而是按漫画的说法，置换，这边的巨侠之所以这么能打是因为技术回路等等对战力比较重要的东西都已经置换成红A的东西了，换言之巨侠拼到最后差不多就是个披着狼皮的红A。。既然是英灵卫宫，而且还是无限魔的英灵卫宫，那么能打不要太正常了。。
 
 
-
-
-
-
-
 -----
 
 ####  laoism  
 ##### 863#         楼主| 发表于 2016-7-27 22:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33079560&amp;ptid=866827" target="_blank">嵐濤 发表于 2016-7-27 14:11</a>
@@ -16383,25 +10816,13 @@ EA果然是打不死人的<img src="https://static.saraba1st.com/image/smiley/fa
 卫宫师忽<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  icesha  
 ##### 864#       发表于 2016-7-27 22:31
 
 
-
-
 时间线的关系应该是这样：四次圣杯战争发生→全灭结局（间桐家只剩下樱）→切嗣救起十年前的士郎→士郎作为助手随切嗣环游世界→五年以内碰到黑暗吞噬城镇及不到7岁的美游→五年前切嗣去世
-
-
-
-
-
 
 
 -----
@@ -16410,16 +10831,10 @@ EA果然是打不死人的<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 865#       发表于 2016-7-27 22:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33083920&amp;ptid=866827" target="_blank">yixiaqqq 发表于 2016-7-27 21:15</a>
 
 EA果然是打不死人的</blockquote>
 小水枪而已，看看乳上圣枪的威力<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16428,16 +10843,10 @@ EA果然是打不死人的</blockquote>
 ##### 866#       发表于 2016-7-28 00:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33083177&amp;ptid=866827" target="_blank">革新 发表于 2016-7-27 19:48</a>
 
 美游的世界卫宫巨侠是士狼 。伊利亚世界的卫宫巨侠是切嗣</blockquote>
 所以，时不时应该出F/KLZ呢，看看想通了的切嗣怎么在圣杯战争开始前直接SOLO的。这可是直接让很多人都获得了幸福的人生啊<img src="https://static.saraba1st.com/image/smiley/normal/098.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16446,15 +10855,9 @@ EA果然是打不死人的</blockquote>
 ##### 867#       发表于 2016-7-28 00:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=33085748&amp;amp;ptid=866827" target="_blank">stygianlunar 发表于 2016-7-28 00:41</a>
 所以，时不时应该出F/KLZ呢，看看想通了的切嗣怎么在圣杯战争开始前直接SOLO的。这可是直接让很多人都获 ...</blockquote>
 就是女儿生的有点晚
-
-
-
-
-
 
 
 -----
@@ -16463,14 +10866,7 @@ EA果然是打不死人的</blockquote>
 ##### 868#       发表于 2016-7-28 01:41
 
 
-
-
 等等。。。。。美游那个平行世界的伊利亚呢？去哪呢？我好像一直没看到她出场啊？
-
-
-
-
-
 
 
 -----
@@ -16479,23 +10875,16 @@ EA果然是打不死人的</blockquote>
 ##### 869#       发表于 2016-7-28 02:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33086023&amp;ptid=866827" target="_blank">悲风而泣 发表于 2016-7-28 01:41</a>
 
 等等。。。。。美游那个平行世界的伊利亚呢？去哪呢？我好像一直没看到她出场啊？ ...</blockquote>
 感觉美游世界的切嗣参没参加四战都不一定吧，而且四战过程都不同，说不定是无后的情况。
 
 
-
-
-
-
-
 -----
 
 ####  starrin  
 ##### 870#       发表于 2016-7-28 03:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33086023&amp;ptid=866827" target="_blank">悲风而泣 发表于 2016-7-28 01:41</a>
@@ -16506,25 +10895,13 @@ EA果然是打不死人的</blockquote>
 —— 来自 HUAWEI KNT-AL10, Android 6.0
 
 
-
-
-
-
-
 -----
 
 ####  風駿  
 ##### 871#       发表于 2016-7-28 03:24
 
 
-
-
 美游=依莉雅，这点很明确了吧
-
-
-
-
-
 
 
 -----
@@ -16533,22 +10910,15 @@ EA果然是打不死人的</blockquote>
 ##### 872#       发表于 2016-7-28 04:14
 
 
-
 <blockquote>pf67 发表于 2016-7-26 23:28
 这漫画告诉我们，设定厨口中无敌逆天的认真的闪闪，也就这种水平而已。。。 ...</blockquote>
 你口中的无敌逆天的认真闪可以从没蓝没宝具的幼闪的战斗力推一下。拿安捷利卡推才叫搞笑……被幼闪吊着揍
-
-
-
-
-
 
 
 -----
 
 ####  维吉尔的眼泪  
 ##### 873#       发表于 2016-7-28 04:15
-
 
 
 <blockquote>Joseph.Fourier 发表于 2016-7-27 09:40
@@ -16559,16 +10929,10 @@ EA果然是打不死人的</blockquote>
 维摩那下剑雨就问你怎么破吧
 
 
-
-
-
-
-
 -----
 
 ####  東雲千夜子  
 ##### 874#       发表于 2016-7-28 08:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33086023&amp;ptid=866827" target="_blank">悲风而泣 发表于 2016-7-28 01:41</a>
@@ -16577,16 +10941,10 @@ EA果然是打不死人的</blockquote>
 这个世界就没有爱因兹贝伦家，只有爱因斯华兹
 
 
-
-
-
-
-
 -----
 
 ####  東雲千夜子  
 ##### 875#       发表于 2016-7-28 09:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33084676&amp;ptid=866827" target="_blank">icesha 发表于 2016-7-27 22:31</a>
@@ -16597,26 +10955,15 @@ EA果然是打不死人的</blockquote>
 所以切嗣压根没参加圣杯战争，甚至可以说连听都没听说过
 
 
-
-
-
-
-
 -----
 
 ####  diyihaoshitu  
 ##### 876#       发表于 2016-7-28 09:04
 
 
-
  本帖最后由 diyihaoshitu 于 2016-7-28 09:24 编辑 
 
 能克制ea的宝具我看只有老君的精钢镯了，不知蘑菇敢不敢让西游记或封神榜里的宝具出现，里面随便拿出一样，感觉可以吊打全场，更不要说那几样镇洞之宝（混元金斗、太极图、风火蒲团）
-
-
-
-
-
 
 
 -----
@@ -16625,17 +10972,10 @@ EA果然是打不死人的</blockquote>
 ##### 877#       发表于 2016-7-28 09:59
 
 
-
-
 看了下漫画，那么切嗣救起巨侠是在四战之前的事。四战是五年前。
 
 
 另外看麻婆神父的样子多半也没有参与四战。这是没有遇到切嗣，没有参与四战的神父。
-
-
-
-
-
 
 
 -----
@@ -16644,23 +10984,16 @@ EA果然是打不死人的</blockquote>
 ##### 878#       发表于 2016-7-28 11:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33084548&amp;ptid=866827" target="_blank">laoism 发表于 2016-7-27 22:17</a>
 
 卫宫师忽</blockquote>
 所以本月休刊是为了去买日翻风云想接下来的剧情走向吗....
 
 
-
-
-
-
-
 -----
 
 ####  Joseph.Fourier  
 ##### 879#       发表于 2016-7-28 16:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33087780&amp;ptid=866827" target="_blank">icesha 发表于 2016-7-28 09:59</a>
@@ -16676,34 +11009,19 @@ EA果然是打不死人的</blockquote>
 美游世界：切嗣一开始就不和爱因兹贝伦魔术师们合作，解决掉他觉得危险的隐患，所以太太什么的这些可能连被造出来的机会都没有，但这样也同时和很多圣杯相关的人物没有交集了，然后因为因缘收养了士郎，然后就是后续的剧情。因为诸多业界变化的情况导致了世界观的更大连锁反应。因为爱因兹贝伦可能早在不知道什么时候被切嗣还是什么人炸掉了，所以爱因斯华兹崛起了。
 
 
-
-
-
-
-
 -----
 
 ####  tansapple  
 ##### 880#       发表于 2016-7-28 17:00
 
 
-
-
 美游世界的爱因斯华兹应该就是其他世界的爱因兹贝伦，因为同样的都是圣杯战争游戏规则的制定者的存在。而且从卫宫巨侠的回忆里，麻婆给巨侠讲解规则的时候，就说明这种以卡牌凭依的方式进行的圣杯战争在以前就举办过。
-
-
-
-
-
-
 
 
 -----
 
 ####  icesha  
 ##### 881#       发表于 2016-7-29 08:29
-
-
 
 
 爱因斯华兹跟爱因兹贝伦也是相似又相异。同样是追求圣杯，同样也是御三家之一，同样是圣杯战争系统的制造者。但一来这边采用的是卡片系统，二来爱因斯华兹在建立工房之后比爱因兹贝伦能打太多。
@@ -16713,16 +11031,10 @@ EA果然是打不死人的</blockquote>
 不过四战到底发生啥还是个未知之数。作者多半是偷懒，直接给不想画的来了个全灭，想画的才留下来考虑后继剧情……
 
 
-
-
-
-
-
 -----
 
 ####  東雲千夜子  
 ##### 882#       发表于 2016-7-29 08:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33098034&amp;ptid=866827" target="_blank">icesha 发表于 2016-7-29 08:29</a>
@@ -16731,25 +11043,13 @@ EA果然是打不死人的</blockquote>
 四战最后黑暗扩散，估计跟朱利安手上那个黑方块脱不了干系
 
 
-
-
-
-
-
 -----
 
 ####  commanderyuri  
 ##### 883#       发表于 2016-7-29 19:48
 
 
-
-
 回忆杀终于结束了<img src="https://static.saraba1st.com/image/smiley/face/185.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16758,16 +11058,10 @@ EA果然是打不死人的</blockquote>
 ##### 884#       发表于 2016-7-29 19:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33086261&amp;ptid=866827" target="_blank">風駿 发表于 2016-7-28 03:24</a>
 
 美游=依莉雅，这点很明确了吧</blockquote>
 因为伊利亚不存在了，所以才诞生的另一种圣杯吧。和伊利亚是互斥关系，一个世界只能有其中之一。
-
-
-
-
-
 
 
 -----
@@ -16776,16 +11070,10 @@ EA果然是打不死人的</blockquote>
 ##### 885#       发表于 2016-7-29 20:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33087067&amp;ptid=866827" target="_blank">diyihaoshitu 发表于 2016-7-28 09:04</a>
 
 能克制ea的宝具我看只有老君的精钢镯了，不知蘑菇敢不敢让西游记或封神榜里的宝具出现，里面随便拿出一样， ...</blockquote>
 其实只要原创个磁铁性质的东西能不能让王财起不到大作用
-
-
-
-
-
 
 
 -----
@@ -16794,22 +11082,15 @@ EA果然是打不死人的</blockquote>
 ##### 886#       发表于 2016-7-29 20:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33106138&amp;ptid=866827" target="_blank">iamwar 发表于 2016-7-29 19:53</a>
 因为伊利亚不存在了，所以才诞生的另一种圣杯吧。和伊利亚是互斥关系，一个世界只能有其中之一。 ...</blockquote>
 闪闪说要实现愿望需要两个圣杯
-
-
-
-
-
 
 
 -----
 
 ####  海马  
 ##### 887#       发表于 2016-7-29 21:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33106266&amp;ptid=866827" target="_blank">commanderyuri 发表于 2016-7-29 20:05</a>
@@ -16821,16 +11102,10 @@ EA果然是打不死人的</blockquote>
 大圣杯是机器猫……
 
 
-
-
-
-
-
 -----
 
 ####  eilot  
 ##### 888#       发表于 2016-7-29 21:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33098034&amp;ptid=866827" target="_blank">icesha 发表于 2016-7-29 08:29</a>
@@ -16851,33 +11126,19 @@ EA果然是打不死人的</blockquote>
 人妻開的車、在日本的居所的資金是如何來?這些都是不知道
 
 
-
-
-
-
-
 -----
 
 ####  xseed01  
 ##### 889#       发表于 2016-7-29 21:48
 
 
-
-
 伊莉雅世界中的切嗣和太太很有可能在后续剧情中来到美游世界；伊莉雅哥能否过来是个谜，在美游世界爱因斯华兹像是“置换”了爱因兹贝伦一样，太太不存在，远坂家估计五年前全灭，两个士郎大概是平行世界中唯一活着的“同一存在”了？
-
-
-
-
-
 
 
 -----
 
 ####  icesha  
 ##### 890#       发表于 2016-7-29 22:05
-
-
 
 
 总之两个世界都是fate本篇的平行世界啊。
@@ -16887,26 +11148,15 @@ EA果然是打不死人的</blockquote>
 而美游的世界，是卫宫巨侠可以没有任何顾忌走上妹控线还能全力耍帅的世界。
 
 
-
-
-
-
-
 -----
 
 ####  8aa8aa8aa  
 ##### 891#       发表于 2016-7-29 22:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33106138&amp;ptid=866827" target="_blank">iamwar 发表于 2016-7-29 19:53</a>
 因为伊利亚不存在了，所以才诞生的另一种圣杯吧。和伊利亚是互斥关系，一个世界只能有其中之一。 ...</blockquote>
 按本编的设定，圣杯从全世界的范围来说并不是什么特别稀有的东西，这种东西简直满地都是。而且也只有HF线的春天归来结局真正完成了圣杯
-
-
-
-
-
 
 
 -----
@@ -16915,16 +11165,10 @@ EA果然是打不死人的</blockquote>
 ##### 892#       发表于 2016-7-30 22:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33107078&amp;ptid=866827" target="_blank">xseed01 发表于 2016-7-29 21:48</a>
 
 伊莉雅世界中的切嗣和太太很有可能在后续剧情中来到美游世界；伊莉雅哥能否过来是个谜，在美游世界爱因斯华 ...</blockquote>
 如果还有其他人从原来世界穿越过来的话，从理由和条件看最可能的是宝石翁
-
-
-
-
-
 
 
 -----
@@ -16933,23 +11177,16 @@ EA果然是打不死人的</blockquote>
 ##### 893#       发表于 2016-7-31 00:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33107078&amp;ptid=866827" target="_blank">xseed01 发表于 2016-7-29 21:48</a>
 
 伊莉雅世界中的切嗣和太太很有可能在后续剧情中来到美游世界；伊莉雅哥能否过来是个谜，在美游世界爱因斯华 ...</blockquote>
 远坂凛在听到巨侠的说明后态度很奇怪啊，她在考虑樱的什么事？
 
 
-
-
-
-
-
 -----
 
 ####  xseed01  
 ##### 894#       发表于 2016-7-31 16:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33118163&amp;ptid=866827" target="_blank">碳. 发表于 2016-7-31 00:21</a>
@@ -16960,25 +11197,13 @@ EA果然是打不死人的</blockquote>
 不知道凛能不能联想到长江樱的事情。
 
 
-
-
-
-
-
 -----
 
 ####  deviljz  
 ##### 895#       发表于 2016-8-6 01:47
 
 
-
-
 突然想到个问题，回忆到这里就结束了，那么闪闪卡到底怎么过去伊莉亚的世界的？
-
-
-
-
-
 
 
 -----
@@ -16987,16 +11212,10 @@ EA果然是打不死人的</blockquote>
 ##### 896#       发表于 2016-8-6 02:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33182644&amp;ptid=866827" target="_blank">deviljz 发表于 2016-8-6 01:47</a>
 
 突然想到个问题，回忆到这里就结束了，那么闪闪卡到底怎么过去伊莉亚的世界的？ ...</blockquote>
 丢到次元夹缝里面 然后会自动找到美游所在的平行世界定位
-
-
-
-
-
 
 
 -----
@@ -17005,24 +11224,16 @@ EA果然是打不死人的</blockquote>
 ##### 897#       发表于 2016-8-6 12:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33182707&amp;ptid=866827" target="_blank">iqbsh38 发表于 2016-8-6 02:06</a>
 
 丢到次元夹缝里面 然后会自动找到美游所在的平行世界定位</blockquote>
 就是说为啥会丢到次元夹缝里的，娘闪闪也没被卫宫巨侠日翻，更不可能自己主动丢
 
 
-
-
-
-
-
 -----
 
 ####  xiaoboost  
 ##### 898#       发表于 2016-8-30 00:26
-
-
 
 
 我突然间想起来……
@@ -17038,32 +11249,19 @@ EA果然是打不死人的</blockquote>
 话说，这个反派为什么成长成这样，感觉以后也会洗白……
 
 
-
-
-
-
-
 -----
 
 ####  laoism  
 ##### 899#         楼主| 发表于 2016-9-9 10:18
 
 
-
-
 动漫之家更新了个关于本季动画配音的sp.
-
-
-
-
-
 
 
 -----
 
 ####  eilot  
 ##### 900#       发表于 2016-9-9 10:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33424994&amp;ptid=866827" target="_blank">xiaoboost 发表于 2016-8-30 00:26</a>
@@ -17078,16 +11276,10 @@ EA果然是打不死人的</blockquote>
 也不會搞到最後這地步，半數婦聯要坐牢，甚至成為美帝通緝犯簡直就是一個笑話
 
 
-
-
-
-
-
 -----
 
 ####  forzen  
 ##### 901#       发表于 2016-9-9 11:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33527511&amp;ptid=866827" target="_blank">eilot 发表于 2016-9-9 10:41</a>
@@ -17101,16 +11293,10 @@ EA果然是打不死人的</blockquote>
 从世界规模来说朱利安的行动或许对得上正义的味方，但从动机来说朱利安只是个跟巨侠一样为了妹妹选择牺牲其他的“恶役”吧
 
 
-
-
-
-
-
 -----
 
 ####  xiaoboost  
 ##### 902#       发表于 2016-9-9 11:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33527511&amp;ptid=866827" target="_blank">eilot 发表于 2016-9-9 10:41</a>
@@ -17123,25 +11309,13 @@ EA果然是打不死人的</blockquote>
 Boss当然是做不到这一步，但是从以往的剧情里面可以看出，他的强制洗脑技术已经相当成熟，给美游洗脑应该是没有难度的。即便是圣杯需要美游这个容器的自我意识，我觉得像那个小Loli做的，把美游的自我意识和身体分开来保存会更好一点吧，要制作神话的时候再合起来不是更安全吗……
 
 
-
-
-
-
-
 -----
 
 ####  pq123  
 ##### 903#       发表于 2016-9-26 12:38
 
 
-
-
 这个月的漫画汉化出了,居然要洗白的节奏,土狼跟安洁莉卡真的有CP感的样子
-
-
-
-
-
 
 
 -----
@@ -17150,14 +11324,7 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 ##### 904#       发表于 2016-9-26 13:36
 
 
-
-
 伊莉雅开始诉说的时候,背景里展示了广山老师的画技进化图.
-
-
-
-
-
 
 
 -----
@@ -17166,14 +11333,7 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 ##### 905#       发表于 2016-9-26 13:45
 
 
-
-
 果然朱利安也要洗白啊……
-
-
-
-
-
 
 
 -----
@@ -17182,14 +11342,7 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 ##### 906#       发表于 2016-9-26 13:55
 
 
-
-
 全员洗白中....
-
-
-
-
-
 
 
 -----
@@ -17198,14 +11351,7 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 ##### 907#       发表于 2016-9-26 14:19
 
 
-
-
 娘闪闪，真女主！
-
-
-
-
-
 
 
 -----
@@ -17214,16 +11360,9 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 ##### 908#       发表于 2016-9-26 14:25
 
 
-
-
 有点在意这样洗白之后打败完达利乌斯就回伊莉雅世界还是修正美游世界.
 
 美游哥和伊莉雅哥会不会见面啊(
-
-
-
-
-
 
 
 -----
@@ -17232,17 +11371,10 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 ##### 909#       发表于 2016-9-26 14:42
 
 
-
-
 娘閃的奶子！
 
 
 ----发送自 [samsung SM-G930F,Android 6.0.1](http://stage1.5j4m.com/?1.21)
-
-
-
-
-
 
 
 -----
@@ -17251,13 +11383,7 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 ##### 910#       发表于 2016-9-26 14:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">难道会出现两个土狼开合体技的机战式展开么
-
-
-
-
-
 
 
 -----
@@ -17266,16 +11392,10 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 ##### 911#         楼主| 发表于 2016-9-26 19:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33693979&amp;ptid=866827" target="_blank">tansapple 发表于 2016-9-26 14:42</a>
 
 难道会出现两个土狼开合体技的机战式展开么</blockquote>
 不能想象<img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17284,14 +11404,7 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 ##### 912#       发表于 2016-9-27 09:35
 
 
-
-
 看起来田中是被盖亚派来，冲着达利乌斯来的。人偶分两种？一种是伊莉雅被置换的那种，没有本尊意识只是模拟人格，一种是樱和安洁莉卡这样的，人偶身上是（缺失一部分东西的）死者的意识
-
-
-
-
-
 
 
 -----
@@ -17300,24 +11413,16 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 ##### 913#       发表于 2016-9-30 16:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">这奶子
 
 
 ----发送自 [Sony F5122,Android 6.0.1](http://stage1.5j4m.com/?1.21)
 
 
-
-
-
-
-
 -----
 
 ####  斯卡哈  
 ##### 914#       发表于 2016-10-24 20:37
-
-
 
 
 <img src="http://img.saraba1st.com/forum/201610/24/203714l9izy6aho68w66wr.jpg" referrerpolicy="no-referrer">
@@ -17330,10 +11435,6 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 2016-10-24 20:37 上传
 
 
-
-
-
-
 <img src="http://img.saraba1st.com/forum/201610/24/203716vpiaw19aig4c9o17.jpg" referrerpolicy="no-referrer">
 
 
@@ -17342,10 +11443,6 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 下载附件
 
 2016-10-24 20:37 上传
-
-
-
-
 
 
 <img src="http://img.saraba1st.com/forum/201610/24/203719d6xmqll3u08mjufi.jpg" referrerpolicy="no-referrer">
@@ -17358,17 +11455,7 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 2016-10-24 20:37 上传
 
 
-
-
-
-
-
 本月的魔伊。巨侠负责打，伊莉雅负责说得，成功收服娘闪
-
-
-
-
-
 
 
 -----
@@ -17377,16 +11464,10 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 ##### 915#       发表于 2016-10-25 21:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">伊莉雅你这召唤技能原来是用来打雪仗了吗
 
 
 顺便本期的封面超赞的，小学生最棒了（
-
-
-
-
-
 
 
 -----
@@ -17395,14 +11476,7 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 ##### 916#       发表于 2016-10-25 21:56
 
 
-
-
 伊利亚好萌好萌，国服法特狗我必须攒石头等一年后的伊利亚了
-
-
-
-
-
 
 
 -----
@@ -17411,14 +11485,7 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 ##### 917#       发表于 2016-10-25 22:09
 
 
-
-
 娘闪现在卡片被幼闪回收了，没战斗力了，专职卖肉加卖萌吧
-
-
-
-
-
 
 
 -----
@@ -17427,14 +11494,7 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 ##### 918#       发表于 2016-10-25 22:29
 
 
-
-
 伊莉雅手上还有好几张卡呢...可惜C妈卡被捏碎了
-
-
-
-
-
 
 
 -----
@@ -17443,22 +11503,13 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 ##### 919#       发表于 2016-10-25 22:57
 
 
-
-
 娘闪其实是另一个世界的女仆长吧
-
-
-
-
-
 
 
 -----
 
 ####  猥琐酱  
 ##### 920#       发表于 2016-10-26 15:57
-
-
 
 
 印象中小黑这还是第一次展现符合自身年龄的样子,看到雪这么兴奋.
@@ -17468,25 +11519,13 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 士郎看样子是从伊莉雅的身上悟到嘴炮技能,接下来又能打又能放嘴炮的巨侠就问你怕未?
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 921#       发表于 2016-10-26 16:01
 
 
-
-
 娘闪闪怎么这么快就成了伊利亚的人了。。
-
-
-
-
-
 
 
 -----
@@ -17495,16 +11534,9 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 ##### 922#       发表于 2016-10-26 16:04
 
 
-
-
 娘闪闪+芭姊做伊利亚的召喚獸
 
 教練，這場戰鬥根本沒得打。。。
-
-
-
-
-
 
 
 -----
@@ -17513,13 +11545,7 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 ##### 923#       发表于 2016-10-26 16:12
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">就这种日常才舒服啊，谁要看卫宫巨侠
-
-
-
-
-
 
 
 -----
@@ -17528,13 +11554,7 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 ##### 924#       发表于 2016-10-26 16:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/38.gif" referrerpolicy="no-referrer">伊利亚up毒池历历在目，不过这期封面太好舔了
-
-
-
-
-
 
 
 -----
@@ -17543,16 +11563,10 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 ##### 925#       发表于 2016-10-26 17:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33979570&amp;ptid=866827" target="_blank">无敌のpeach 发表于 2016-10-26 16:55</a>
 
 伊利亚up毒池历历在目，不过这期封面太好舔了</blockquote>
 让我想起那绝望的6单了，没有美游礼装，没有伊利亚
-
-
-
-
-
 
 
 -----
@@ -17561,14 +11575,7 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 ##### 926#       发表于 2016-10-26 17:52
 
 
-
-
 那么，伊利雅为何会觉得第一次见到的雪很怀念？
-
-
-
-
-
 
 
 -----
@@ -17577,14 +11584,7 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 ##### 927#       发表于 2016-10-26 17:57
 
 
-
-
 會覺得雪很懷念，大概是因為能分享到平行世界在艾因茲貝倫本家待過的FSN伊莉雅的感情吧
-
-
-
-
-
 
 
 -----
@@ -17593,15 +11593,9 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 ##### 928#       发表于 2016-10-26 17:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=33979962&amp;amp;ptid=866827" target="_blank">影后喵酱 发表于 2016-10-26 17:42</a>
 让我想起那绝望的6单了，没有美游礼装，没有伊利亚</blockquote>
 卧槽，六单。。那无克非洲人岂不是走远了
-
-
-
-
-
 
 
 -----
@@ -17610,16 +11604,10 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 ##### 929#       发表于 2016-10-26 18:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33980111&amp;ptid=866827" target="_blank">sandro 发表于 2016-10-26 17:59</a>
 
 卧槽，六单。。那无克非洲人岂不是走远了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">也有7张DS就出的脸帝，看你是什么属性咯
-
-
-
-
-
 
 
 -----
@@ -17628,16 +11616,10 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 ##### 930#       发表于 2016-10-26 18:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33980111&amp;ptid=866827" target="_blank">sandro 发表于 2016-10-26 17:59</a>
 
 卧槽，六单。。那无克非洲人岂不是走远了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/136.gif" referrerpolicy="no-referrer">看玄学的（
-
-
-
-
-
 
 
 -----
@@ -17646,15 +11628,9 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 ##### 931#       发表于 2016-10-26 18:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=33980193&amp;amp;ptid=866827" target="_blank">姬塔 发表于 2016-10-26 18:07</a>
 也有7张DS就出的脸帝，看你是什么属性咯</blockquote>
 那没戏了，一年后我乖乖舔小黑了
-
-
-
-
-
 
 
 -----
@@ -17663,23 +11639,16 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 ##### 932#       发表于 2016-10-26 18:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33979962&amp;ptid=866827" target="_blank">影后喵酱 发表于 2016-10-26 17:42</a>
 
 让我想起那绝望的6单了，没有美游礼装，没有伊利亚</blockquote>
 同6单，美游6张。。
 
 
-
-
-
-
-
 -----
 
 ####  卡蓮  
 ##### 933#       发表于 2016-10-26 19:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33980056&amp;ptid=866827" target="_blank">風駿 发表于 2016-10-26 17:52</a>
@@ -17691,32 +11660,19 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 目测朱丽安要被巨侠说得了
 
 
-
-
-
-
-
 -----
 
 ####  laoism  
 ##### 934#         楼主| 发表于 2016-10-27 12:32
 
 
-
-
 真的要相互理解吗。
-
-
-
-
-
 
 
 -----
 
 ####  钛白  
 ##### 935#       发表于 2016-10-27 13:02
-
 
 
 [麻将脸高清化系列](http://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1340589&amp;pid=33978532)——[做了一批毛色泛指麻将脸](http://bbs.saraba1st.com/2b/thread-1342002-1-1.html)，过来打广告：
@@ -17727,17 +11683,10 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 颜色参考：<img src="http://ww2.sinaimg.cn/large/006xHUHGgw1f95ohsm6kgj30dg0riq61.jpg" referrerpolicy="no-referrer"> 和楼主提供的颜色。
 
 
-
-
-
-
-
 -----
 
 ####  pq123  
 ##### 936#       发表于 2016-11-26 12:28
-
-
 
 
 新的一话出来了，起源弹是啥?
@@ -17745,16 +11694,10 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 可以召唤切嗣吗
 
 
-
-
-
-
-
 -----
 
 ####  starrin  
 ##### 937#       发表于 2016-11-26 13:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34295983&amp;ptid=866827" target="_blank">pq123 发表于 2016-11-26 12:28</a>
@@ -17764,25 +11707,13 @@ Boss当然是做不到这一步，但是从以往的剧情里面可以看出，�
 FZ里切嗣用过的杀手锏，切嗣取了两根肋骨磨成粉填在子弹里面。魔术师全力发动时如果挨了一发这个能毁掉全身的魔力回路，变成废人。
 
 
-
-
-
-
-
 -----
 
 ####  cxxx  
 ##### 938#       发表于 2016-11-26 13:27
 
 
-
-
 还真能作为召唤emiya（assassin）的圣遗物<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17791,14 +11722,7 @@ FZ里切嗣用过的杀手锏，切嗣取了两根肋骨磨成粉填在子弹里
 ##### 939#       发表于 2016-11-26 13:30
 
 
-
-
 红A用起源弹也太作弊了吧
-
-
-
-
-
 
 
 -----
@@ -17807,14 +11731,7 @@ FZ里切嗣用过的杀手锏，切嗣取了两根肋骨磨成粉填在子弹里
 ##### 940#       发表于 2016-11-26 13:32
 
 
-
-
 saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
-
-
-
-
-
 
 
 -----
@@ -17823,17 +11740,10 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 941#       发表于 2016-11-26 13:32
 
 
-
-
 切絲招出來是作為Archer還是assassin呢？
 
 
 ----发送自 [Sony E6853,Android 6.0.1](http://stage1.5j4m.com/?1.22)
-
-
-
-
-
 
 
 -----
@@ -17842,14 +11752,7 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 942#       发表于 2016-11-26 13:57
 
 
-
-
 最近的伊莉雅漫画真是越来越骚了<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17858,14 +11761,7 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 943#       发表于 2016-11-26 14:26
 
 
-
-
 虽然不想让银链再毁这部漫画了，但这一话里巨侠和小黑的文戏我还是真心希望能让千和演绎出来，哪怕OVA、哪怕广播剧也可以
-
-
-
-
-
 
 
 -----
@@ -17874,16 +11770,9 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 944#       发表于 2016-11-26 16:38
 
 
-
-
 鼻血乱流的一话.
 
 不过开头的两位女性我真的差点没认出来.
-
-
-
-
-
 
 
 -----
@@ -17892,14 +11781,7 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 945#       发表于 2016-11-26 16:56
 
 
-
-
 小黑一句话就把巨侠的死旗拔了个一干二净
-
-
-
-
-
 
 
 -----
@@ -17908,16 +11790,10 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 946#       发表于 2016-11-26 17:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34297889&amp;ptid=866827" target="_blank">莉莉橙 发表于 2016-11-26 16:56</a>
 
 小黑一句话就把巨侠的死旗拔了个一干二净</blockquote>
 小黑完美带入fsn小姐姐伊莉雅的角色
-
-
-
-
-
 
 
 -----
@@ -17926,14 +11802,7 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 947#       发表于 2016-11-26 18:33
 
 
-
-
 起源弹真是魔术师杀手武器。。。   虽然英灵战斗用处不大。
-
-
-
-
-
 
 
 -----
@@ -17942,20 +11811,13 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 948#         楼主| 发表于 2016-11-26 21:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">你们有没有……看惯动画人设后，觉得漫画脸越来越尖了？
-
-
-
-
-
 
 
 -----
 
 ####  chiman  
 ##### 949#       发表于 2016-11-26 22:29
-
 
 
 <blockquote>引用第948楼laoism于2016-11-26 21:37发表的  :
@@ -17969,16 +11831,10 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ----发送自 [Sony E6853,Android 6.0.1](http://stage1.5j4m.com/?1.22)
 
 
-
-
-
-
-
 -----
 
 ####  dent  
 ##### 950#       发表于 2016-11-26 22:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34297889&amp;ptid=866827" target="_blank">莉莉橙 发表于 2016-11-26 16:56</a>
@@ -17987,32 +11843,19 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 这俩不是在互插死旗么……
 
 
-
-
-
-
-
 -----
 
 ####  6030sylar  
 ##### 951#       发表于 2016-11-27 00:34
 
 
-
-
 哥哥姐姐互相拔旗
-
-
-
-
-
 
 
 -----
 
 ####  chiman  
 ##### 952#       发表于 2016-11-27 09:28
-
 
 
 <blockquote>引用第950楼dent于2016-11-26 22:42发表的  :
@@ -18026,25 +11869,13 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ----发送自 [Sony E6853,Android 6.0.1](http://stage1.5j4m.com/?1.22) 
 
 
-
-
-
-
-
 -----
 
 ####  猥琐酱  
 ##### 953#       发表于 2016-12-26 23:09
 
 
-
-
 精分艾丽卡已经变成M体质了。果然大家都是妹控啊...
-
-
-
-
-
 
 
 -----
@@ -18053,14 +11884,7 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 954#       发表于 2016-12-26 23:19
 
 
-
-
 我怎么都不知道要怎么圆这些坑，感觉只有钢之大地这个剧本
-
-
-
-
-
 
 
 -----
@@ -18069,14 +11893,7 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 955#         楼主| 发表于 2016-12-27 11:36
 
 
-
-
 看到[一个说法](http://dic.pixiv.net/a/%E7%94%B0%E4%B8%AD%28%E3%83%97%E3%83%AA%E3%82%BA%E3%83%9E%E2%98%86%E3%82%A4%E3%83%AA%E3%83%A4%29)，田中怀疑是[罗摩](http://dic.pixiv.net/a/%E3%83%A9%E3%83%BC%E3%83%9E%28Fate%29)。
-
-
-
-
-
 
 
 -----
@@ -18085,16 +11902,10 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 956#       发表于 2016-12-27 12:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34613613&amp;ptid=866827" target="_blank">laoism 发表于 2016-12-27 11:36</a>
 
 看到一个说法，田中怀疑是罗摩。</blockquote>
 怎么讲
-
-
-
-
-
 
 
 -----
@@ -18103,16 +11914,10 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 957#         楼主| 发表于 2016-12-27 14:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34614121&amp;ptid=866827" target="_blank">莉莉橙 发表于 2016-12-27 12:25</a>
 
 怎么讲</blockquote>
 链接中的p站百科。我不懂日文，是我理解错了吗<img src="https://static.saraba1st.com/image/smiley/normal/039.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18121,14 +11926,7 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 958#       发表于 2016-12-27 15:29
 
 
-
-
 仔细一想既然连琥珀和翡翠都有了，干脆恩兹华斯就是罗亚，然后田中就是这个世界的爱尔奎特，不也挺好吗<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18137,22 +11935,15 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 959#       发表于 2016-12-27 15:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">不懂那么多，我只要有伊莉雅舔就好了
 
 —— 来自 Sony F5122, Android 6.0.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases)
-
-
-
-
-
 
 
 -----
 
 ####  高等黑暗  
 ##### 960#       发表于 2016-12-27 15:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34615159&amp;ptid=866827" target="_blank">laoism 发表于 2016-12-27 14:20</a>
@@ -18164,26 +11955,15 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 不过我觉得捕风捉影多一点吧。。。。田中太逗逼了不像罗摩
 
 
-
-
-
-
-
 -----
 
 ####  漆黑之花  
 ##### 961#       发表于 2016-12-27 15:57
 
 
-
 <blockquote>laoism 发表于 2016-12-27 11:36
 看到一个说法，田中怀疑是罗摩。</blockquote>
 苏鲁特更有可能，这一章那么多北欧梗
-
-
-
-
-
 
 
 -----
@@ -18192,22 +11972,15 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 962#       发表于 2016-12-27 16:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">日常不是挺好的吗
 <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">突然感觉又要推主线了
 <img src="https://static.saraba1st.com/image/smiley/face/158.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  laoism  
 ##### 963#         楼主| 发表于 2016-12-27 17:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34616048&amp;ptid=866827" target="_blank">漆黑之花 发表于 2016-12-27 15:57</a>
@@ -18218,17 +11991,10 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 话说到现在不知道有多少猜测了，这样穷举下去总有一个能撞上吧。
 
 
-
-
-
-
-
 -----
 
 ####  结标淡希  
 ##### 964#       发表于 2017-1-26 10:30
-
-
 
 
 本月的伊莉雅：[http://tieba.baidu.com/p/4955913432?pn=1](http://tieba.baidu.com/p/4955913432?pn=1)
@@ -18240,25 +12006,13 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 以及，巨侠被巨嫂的奶子所征服，童贞杀手装效果拔群（
 
 
-
-
-
-
-
 -----
 
 ####  collincollin  
 ##### 965#       发表于 2017-1-26 11:29
 
 
-
-
 凛越来越像是原装的巴泽特了
-
-
-
-
-
 
 
 -----
@@ -18267,17 +12021,10 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 966#       发表于 2017-1-26 11:32
 
 
-
-
 这样一来所谓救世的夙愿又成谜了，究竟是想利用盒子里的希望救世，还是想打开盒子散布绝望
 
 
 然后就牵涉到那个胡子大叔形态是不是某种走偏了路的执念或者诅咒，正太朱利安才是继承了艾因斯华兹悲愿……这洗白flag立得高高的
-
-
-
-
-
 
 
 -----
@@ -18286,14 +12033,7 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 967#       发表于 2017-1-26 11:56
 
 
-
-
 總感覺最後正太朱利安的死旗FLAG立得非常高，最後會自我犧性做真正的拯救世界及大家的行為
-
-
-
-
-
 
 
 -----
@@ -18302,14 +12042,7 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 968#       发表于 2017-1-26 12:01
 
 
-
-
 童贞杀手好强
-
-
-
-
-
 
 
 -----
@@ -18318,14 +12051,7 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 969#       发表于 2017-1-26 12:28
 
 
-
-
 这么快就被删了
-
-
-
-
-
 
 
 -----
@@ -18334,14 +12060,7 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 970#       发表于 2017-1-26 13:14
 
 
-
-
 当年那小萝莉居然变这么SAO，我觉得已经和朱利安互相理解了<img src="https://static.saraba1st.com/image/smiley/face/104.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18350,13 +12069,7 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 971#       发表于 2017-1-26 13:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">最后田中挽救全世界应该是定局了吧……
-
-
-
-
-
 
 
 -----
@@ -18365,14 +12078,7 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 972#       发表于 2017-1-26 13:31
 
 
-
-
 何等可怕的女人（们）……
-
-
-
-
-
 
 
 -----
@@ -18381,14 +12087,7 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 973#       发表于 2017-1-26 14:54
 
 
-
-
 这个平行世界分叉分得挺早
-
-
-
-
-
 
 
 -----
@@ -18397,14 +12096,7 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 974#       发表于 2017-1-26 16:01
 
 
-
-
 朱利安怎么看都是一诚啊！
-
-
-
-
-
 
 
 -----
@@ -18413,14 +12105,7 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 975#       发表于 2017-1-26 16:11
 
 
-
-
 等等，已经钦定巨嫂了？长江樱怎么办。。。。。。。。
-
-
-
-
-
 
 
 -----
@@ -18429,16 +12114,10 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 976#       发表于 2017-1-26 16:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35025232&amp;ptid=866827" target="_blank">坂木静香 发表于 2017-1-26 16:11</a>
 
 等等，已经钦定巨嫂了？长江樱怎么办。。。。。。。。</blockquote>
 已经死了....
-
-
-
-
-
 
 
 -----
@@ -18447,17 +12126,10 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 977#       发表于 2017-1-26 17:27
 
 
-
-
 田中是火神吧？
 
 
 ----发送自 [Sony E6853,Android 6.0.1](http://stage1.5j4m.com/?1.22)
-
-
-
-
-
 
 
 -----
@@ -18466,14 +12138,7 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 978#       发表于 2017-1-26 18:27
 
 
-
-
 钻头的紧身毛衣太色情了！！
-
-
-
-
-
 
 
 -----
@@ -18482,14 +12147,7 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 979#       发表于 2017-1-26 18:59
 
 
-
-
 为啥说是童贞杀手？
-
-
-
-
-
 
 
 -----
@@ -18498,15 +12156,9 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 980#       发表于 2017-1-26 19:02
 
 
-
 <blockquote>嵐濤 发表于 2017-1-26 16:37
 已经死了....</blockquote>
 安洁莉卡也已经死了
-
-
-
-
-
 
 
 -----
@@ -18515,22 +12167,13 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 981#       发表于 2017-1-26 19:17
 
 
-
-
 灌了那么长时间的水，终于进入主线了，这一话好看，人物也好剧情也好
-
-
-
-
-
 
 
 -----
 
 ####  hououmon  
 ##### 982#       发表于 2017-1-26 22:56
-
-
 
 
 这一话真的是棒到飞起
@@ -18542,25 +12185,13 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 真是太厉害了
 
 
-
-
-
-
-
 -----
 
 ####  桥田至  
 ##### 983#       发表于 2017-1-26 23:46
 
 
-
-
 我觉得剧场版会停在这一话....
-
-
-
-
-
 
 
 -----
@@ -18569,21 +12200,13 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 984#       发表于 2017-1-27 00:34
 
 
-
-
 万万没想到时隔多年我竟然在这部漫画里再度看到月世界里能被称作剧情的东西 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  终极答案42  
 ##### 985#       发表于 2017-1-27 00:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35025838&amp;ptid=866827" target="_blank">chiman 发表于 2017-1-26 17:27</a>
@@ -18595,25 +12218,13 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 说了是世界修正力，那么应该是原本开了箱子的潘多拉
 
 
-
-
-
-
-
 -----
 
 ####  欧阳明  
 ##### 986#       发表于 2017-1-27 01:30
 
 
-
-
 我问一下，之前有人猜到艾丽卡和潘多拉有关吗
-
-
-
-
-
 
 
 -----
@@ -18622,16 +12233,10 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 987#       发表于 2017-1-27 01:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35029038&amp;ptid=866827" target="_blank">欧阳明 发表于 2017-1-27 01:30</a>
 
 我问一下，之前有人猜到艾丽卡和潘多拉有关吗</blockquote>
 好像某栋楼里有一位？记不清是什么时候
-
-
-
-
-
 
 
 -----
@@ -18640,23 +12245,16 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 988#         楼主| 发表于 2017-1-27 07:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35023383&amp;ptid=866827" target="_blank">deviljz 发表于 2017-1-26 12:28</a>
 
 这么快就被删了</blockquote>
 ？
 
 
-
-
-
-
-
 -----
 
 ####  chiman  
 ##### 989#       发表于 2017-1-27 07:39
-
 
 
 <blockquote>引用第978楼猥琐酱于2017-01-26 18:27发表的  :
@@ -18670,16 +12268,10 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ----发送自 [Sony E6853,Android 6.0.1](http://stage1.5j4m.com/?1.22) 
 
 
-
-
-
-
-
 -----
 
 ####  chiman  
 ##### 990#       发表于 2017-1-27 07:41
-
 
 
 <blockquote>引用第985楼终极答案42于2017-01-27 00:46发表的  :
@@ -18693,32 +12285,19 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ----发送自 [Sony E6853,Android 6.0.1](http://stage1.5j4m.com/?1.22) 
 
 
-
-
-
-
-
 -----
 
 ####  戒不掉  
 ##### 991#       发表于 2017-1-27 12:29
 
 
-
-
 推理应该不会就这样全对了，感觉总会出一些纰漏，比如说艾丽卡是使用置换魔术的潘多拉本人，而不是作为英灵召唤出来的这样？
-
-
-
-
-
 
 
 -----
 
 ####  欧阳明  
 ##### 992#       发表于 2017-1-27 12:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35031165&amp;ptid=866827" target="_blank">戒不掉 发表于 2017-1-27 12:29</a>
@@ -18729,25 +12308,13 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 要用一年的朱利安回忆来讲
 
 
-
-
-
-
-
 -----
 
 ####  AlienFromEarth  
 ##### 993#       发表于 2017-1-27 14:32
 
 
-
-
 箱子没开，换句话说原本这个世界是没灾难的？
-
-
-
-
-
 
 
 -----
@@ -18756,14 +12323,7 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 994#       发表于 2017-1-27 15:52
 
 
-
-
 金发双马尾巨乳情趣人偶，。。。我也想要
-
-
-
-
-
 
 
 -----
@@ -18772,24 +12332,16 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 995#       发表于 2017-1-27 18:30
 
 
-
-
 也就是说，朱利安和美游的士郎其实是面对一样的问题的<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">，但朱利安比较悲剧点，而且没有士郎这么义无反顾。
 
 
 顺便，那么美游的世界从某种意义来说，或许算是个特异点吧<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">，说不定这达里乌斯其实就是从别的世界过来的。
 
 
-
-
-
-
-
 -----
 
 ####  hououmon  
 ##### 996#       发表于 2017-1-27 21:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35029038&amp;ptid=866827" target="_blank">欧阳明 发表于 2017-1-27 01:30</a>
@@ -18800,16 +12352,10 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 27话里汉化组都直接在容器隔壁注释跟潘多拉有关了
 
 
-
-
-
-
-
 -----
 
 ####  欧阳明  
 ##### 997#       发表于 2017-1-27 21:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35033602&amp;ptid=866827" target="_blank">stygianlunar 发表于 2017-1-27 18:30</a>
@@ -18824,13 +12370,7 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 朱利安面对着失去了大部分感情的，实际上是死人的姐姐，不自觉地逃避问题，认为自己从来没有过姐姐，有的是妹妹
 
 
-
 我觉得这样很galgame
-
-
-
-
-
 
 
 -----
@@ -18839,16 +12379,10 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 998#       发表于 2017-1-27 21:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35033602&amp;ptid=866827" target="_blank">stygianlunar 发表于 2017-1-27 18:30</a>
 
 也就是说，朱利安和美游的士郎其实是面对一样的问题的，但朱利安比较悲剧点，而且没有士郎这么义无 ...</blockquote>
 这必须再联动次fgo了，送巨嫂抽美游
-
-
-
-
-
 
 
 -----
@@ -18857,15 +12391,9 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 999#       发表于 2017-1-27 22:36
 
 
-
 <blockquote>AlienFromEarth 发表于 2017-1-27 14:32
 箱子没开，换句话说原本这个世界是没灾难的？</blockquote>
 神**箱不是大问题，现代就不一样了
-
-
-
-
-
 
 
 -----
@@ -18874,21 +12402,13 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 1000#       发表于 2017-1-28 18:33
 
 
-
-
 等下，潘多拉魔盒都没开这么大的事情，这个平行世界真的不会被量子固定纪录带剪掉吗<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  AlienFromEarth  
 ##### 1001#       发表于 2017-1-28 18:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35036990&amp;ptid=866827" target="_blank">シャル 发表于 2017-1-27 22:36</a>
@@ -18900,17 +12420,10 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 要么是开了也会有其他东西逆转，所以潘多拉魔盒没啥好怕的
 
 
-
-
-
-
-
 -----
 
 ####  莉莉橙  
 ##### 1002#       发表于 2017-1-28 19:35
-
-
 
 
 假设1，历史自我修正功能让其他灾厄代替了潘多拉盒子原本的功能
@@ -18922,25 +12435,13 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 假设3、其实作者忘了平行世界剪除修正这回事
 
 
-
-
-
-
-
 -----
 
 ####  handing  
 ##### 1003#       发表于 2017-1-28 19:50
 
 
-
-
 灵子固定带是fate无双新出的设定，别用来套好几年前就规划好的作者都不一样的漫画剧情啊喂<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18949,15 +12450,9 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 1004#       发表于 2017-1-28 21:22
 
 
-
  本帖最后由 reader 于 2017-1-28 23:22 编辑 
 
 也有可能是想出一个新设定把量子固定记录带圆过去
-
-
-
-
-
 
 
 -----
@@ -18966,16 +12461,10 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 1005#         楼主| 发表于 2017-1-28 21:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35043897&amp;ptid=866827" target="_blank">里村紅葉 发表于 2017-1-28 18:33</a>
 
 等下，潘多拉魔盒都没开这么大的事情，这个平行世界真的不会被量子固定纪录带剪掉吗 ...</blockquote>
 没玩过fgo，搜了下“量子固定纪录带”，感觉好像跟量子力学没关系<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18984,15 +12473,9 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 1006#       发表于 2017-1-28 22:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=35045246&amp;amp;ptid=866827" target="_blank">laoism 发表于 2017-1-28 21:30</a>
 没玩过fgo，搜了下“量子固定纪录带”，感觉好像跟量子力学没关系</blockquote>
 简单点说就是月世界中与主线相差较大的其他世界线会被咔嚓掉，无法发展到差距过大的状况。
-
-
-
-
-
 
 
 -----
@@ -19001,16 +12484,10 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 1007#       发表于 2017-1-28 23:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35045246&amp;ptid=866827" target="_blank">laoism 发表于 2017-1-28 21:30</a>
 
 没玩过fgo，搜了下“量子固定纪录带”，感觉好像跟量子力学没关系</blockquote>
 就是个吃书反悔系统<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19019,16 +12496,10 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 1008#       发表于 2017-1-28 23:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35045246&amp;ptid=866827" target="_blank">laoism 发表于 2017-1-28 21:30</a>
 
 没玩过fgo，搜了下“量子固定纪录带”，感觉好像跟量子力学没关系</blockquote>
 就是如果某条线和正式冲突太大或者某些作品里的设定吃书吃的太厉害了，就用“这是剪定事项”给糊弄过去的究极吃书系统
-
-
-
-
-
 
 
 -----
@@ -19037,16 +12508,10 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 1009#       发表于 2017-1-29 01:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35046501&amp;ptid=866827" target="_blank">卡蓮 发表于 2017-1-28 23:57</a>
 
 就是如果某条线和正式冲突太大或者某些作品里的设定吃书吃的太厉害了，就用“这是剪定事项”给糊弄过去的 ...</blockquote>
 量子：关我P事！
-
-
-
-
-
 
 
 -----
@@ -19055,13 +12520,7 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 1010#       发表于 2017-2-24 13:00
 
 
-
 <img src="http://wx3.sinaimg.cn/mw690/d63ab74bly1fd1gub8smdj20az0hsjub.jpg" referrerpolicy="no-referrer">剧场版这个图的脸好多了。
-
-
-
-
-
 
 
 -----
@@ -19070,14 +12529,7 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 1011#       发表于 2017-2-24 14:36
 
 
-
-
 有点微妙得不像漫画了
-
-
-
-
-
 
 
 -----
@@ -19086,14 +12538,7 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 1012#       发表于 2017-2-24 15:13
 
 
-
-
 伊莉雅这么帅但没戏份啊
-
-
-
-
-
 
 
 -----
@@ -19102,14 +12547,7 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 1013#       发表于 2017-2-24 20:44
 
 
-
-
 封面欺诈
-
-
-
-
-
 
 
 -----
@@ -19118,17 +12556,10 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 1014#       发表于 2017-2-24 22:16
 
 
-
-
 巨俠傳關伊利亞屁事啊。。。
 
 
 ----发送自 [Sony E6853,Android 6.0.1](http://stage1.5j4m.com/?1.22)
-
-
-
-
-
 
 
 -----
@@ -19137,14 +12568,7 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 1015#       发表于 2017-2-25 00:13
 
 
-
-
 日文版更新了。魔盒骑脸，感觉安杰丽卡一身死旗，众人不让巨侠参战，但是长江樱妥妥的要巨侠解脱啊。感觉巨侠也是死旗高挂
-
-
-
-
-
 
 
 -----
@@ -19153,16 +12577,9 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 1016#       发表于 2017-2-25 21:59
 
 
-
-
 居然不让最强战力参战，那打个屁<img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">
 
 伊利亚的第二性征怎么好像发育了<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19171,14 +12588,7 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 1017#         楼主| 发表于 2017-3-26 00:12
 
 
-
-
 呃？动漫之家才汉化到“50”话（写作46话）
-
-
-
-
-
 
 
 -----
@@ -19187,17 +12597,9 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 1018#       发表于 2017-3-26 10:46
 
 
-
-
 群众还是喜欢看巨侠，7.8两卷回忆篇刷新整个第三部的单行本销量（或者可能被刷新的不只有第三部，之前两部销量不清楚，可能第三部的第8卷是整部作品销量最高的
 
 <img src="http://wx1.sinaimg.cn/mw1024/41628a93ly1fe01nacn87j20tq09kac2.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
@@ -19206,21 +12608,13 @@ saber用破万物匕首，红A掏出了起源弹，真是怎么作弊怎么来
 ##### 1019#       发表于 2017-3-26 12:34
 
 
-
-
 怎么突然感觉节奏加快了好多
-
-
-
-
-
 
 
 -----
 
 ####  laoism  
 ##### 1020#         楼主| 发表于 2017-3-26 21:49
-
 
 
 [[周常]没品+4chan笑话集/20170326](https://bbs.saraba1st.com/2b/thread-1486822-1-1.html)
@@ -19230,26 +12624,14 @@ Fate/kaleid liner プリズマ☆イリヤ ツヴァイ! OAD
 <img src="https://as.bitinn.net/upload/cj0qqq05t0016bo5n9y6rfcz8.1200.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  laoism  
 ##### 1021#         楼主| 发表于 2017-3-26 22:03
 
 
-
-
 什么时候S1可以直接贴.webm视频就好了。
 <img src="http://ww1.sinaimg.cn/large/6c33508agw1eueawi0k1cg20a005mb2a.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19258,14 +12640,7 @@ Fate/kaleid liner プリズマ☆イリヤ ツヴァイ! OAD
 ##### 1022#       发表于 2017-4-26 08:50
 
 
-
-
 安杰莉卡居然能给卡片加代码
-
-
-
-
-
 
 
 -----
@@ -19274,14 +12649,7 @@ Fate/kaleid liner プリズマ☆イリヤ ツヴァイ! OAD
 ##### 1023#       发表于 2017-4-26 10:31
 
 
-
-
 职介融合，戈尔贡出场！！
-
-
-
-
-
 
 
 -----
@@ -19290,16 +12658,9 @@ Fate/kaleid liner プリズマ☆イリヤ ツヴァイ! OAD
 ##### 1024#       发表于 2017-4-26 10:39
 
 
-
-
 一话多了两形态，最后那个狂阶美杜莎fgo里有嘛。
 
 —— 来自 samsung GT-I9300, Android 4.3上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
-
-
-
-
-
 
 
 -----
@@ -19308,21 +12669,13 @@ Fate/kaleid liner プリズマ☆イリヤ ツヴァイ! OAD
 ##### 1025#       发表于 2017-4-26 10:58
 
 
-
-
 有，fgo里的av阶R姐
-
-
-
-
-
 
 
 -----
 
 ####  sakaki59  
 ##### 1026#       发表于 2017-4-26 11:26
-
 
 
 <blockquote>千叶的黎明 发表于 2017-4-26 10:39
@@ -19333,27 +12686,15 @@ Fate/kaleid liner プリズマ☆イリヤ ツヴァイ! OAD
 复仇阶的戈尔贡，美杜莎吞了俩姐姐的怪物形态
 
 
-
-
-
-
-
 -----
 
 ####  卡蓮  
 ##### 1027#       发表于 2017-4-26 11:35
 
 
-
-
 合卡这个新玩法出来之后又能搞出好多东西了…
 
 —— 来自 HUAWEI MHA-AL00, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
-
-
-
-
-
 
 
 -----
@@ -19362,14 +12703,7 @@ Fate/kaleid liner プリズマ☆イリヤ ツヴァイ! OAD
 ##### 1028#       发表于 2017-4-26 11:44
 
 
-
-
 美游那边可以期待大狗美游和阿萨辛美游了
-
-
-
-
-
 
 
 -----
@@ -19378,14 +12712,7 @@ Fate/kaleid liner プリズマ☆イリヤ ツヴァイ! OAD
 ##### 1029#       发表于 2017-4-26 13:32
 
 
-
-
 这下是不是就能名正言顺的出各种alter形态了...
-
-
-
-
-
 
 
 -----
@@ -19394,14 +12721,7 @@ Fate/kaleid liner プリズマ☆イリヤ ツヴァイ! OAD
 ##### 1030#       发表于 2017-4-26 14:21
 
 
-
-
 b叔形态的依莉雅真好看
-
-
-
-
-
 
 
 -----
@@ -19410,14 +12730,7 @@ b叔形态的依莉雅真好看
 ##### 1031#         楼主| 发表于 2017-4-26 14:23
 
 
-
-
 神仙打架<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19426,15 +12739,8 @@ b叔形态的依莉雅真好看
 ##### 1032#       发表于 2017-4-26 14:53
 
 
-
-
 小黑给自己上个狂融合是不是就能用大流士lily(黑土狼)了…
 美游使用狗+狂融合是不是就能用黑狗形态了？
-
-
-
-
-
 
 
 -----
@@ -19443,14 +12749,7 @@ b叔形态的依莉雅真好看
 ##### 1033#       发表于 2017-4-26 14:55
 
 
-
-
 有变身就好，舔舔舔。
-
-
-
-
-
 
 
 -----
@@ -19459,14 +12758,7 @@ b叔形态的依莉雅真好看
 ##### 1034#       发表于 2017-4-26 15:00
 
 
-
-
 竟然还有这种操作，这漫画又开始有意思了
-
-
-
-
-
 
 
 -----
@@ -19475,16 +12767,10 @@ b叔形态的依莉雅真好看
 ##### 1035#       发表于 2017-4-26 15:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=35774020&amp;amp;ptid=866827" target="_blank">mithralmask 发表于 2017-4-26 14:53</a>
 小黑给自己上个狂融合是不是就能用大流士lily(黑土狼)了…
 美游使用狗+狂融合是不是就能用黑狗形态了？ ...</blockquote>
 出来的肯定狂狗了，黑狗和狂狗不一样的
-
-
-
-
-
 
 
 -----
@@ -19493,14 +12779,7 @@ b叔形态的依莉雅真好看
 ##### 1036#       发表于 2017-4-26 15:22
 
 
-
-
 伊莉雅超帅
-
-
-
-
-
 
 
 -----
@@ -19509,14 +12788,7 @@ b叔形态的依莉雅真好看
 ##### 1037#       发表于 2017-4-26 16:43
 
 
-
-
 理解错了，还以为会出正常职阶的海叔<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19525,14 +12797,7 @@ b叔形态的依莉雅真好看
 ##### 1038#       发表于 2017-4-26 21:30
 
 
-
-
 这算融合还是超量<img src="https://static.saraba1st.com/image/smiley/carton2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19541,15 +12806,8 @@ b叔形态的依莉雅真好看
 ##### 1039#       发表于 2017-4-26 22:03
 
 
-
-
 真会玩…
 大招是收集七个职介变尺子么…
-
-
-
-
-
 
 
 -----
@@ -19558,14 +12816,7 @@ b叔形态的依莉雅真好看
 ##### 1040#       发表于 2017-4-26 22:03
 
 
-
-
 超量吧，两张叠放然后召唤了黑卡<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19574,14 +12825,7 @@ b叔形态的依莉雅真好看
 ##### 1041#       发表于 2017-4-26 22:04
 
 
-
-
 想看铁拳圣女版伊莉雅
-
-
-
-
-
 
 
 -----
@@ -19590,14 +12834,7 @@ b叔形态的依莉雅真好看
 ##### 1042#       发表于 2017-4-27 00:47
 
 
-
-
 cosplay的新篇章<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19606,13 +12843,7 @@ cosplay的新篇章<img src="https://static.saraba1st.com/image/smiley/face2017/
 ##### 1043#       发表于 2017-4-27 01:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不懂设定 我觉得完全体的B叔比复仇美杜莎更强啊
-
-
-
-
-
 
 
 -----
@@ -19621,23 +12852,16 @@ cosplay的新篇章<img src="https://static.saraba1st.com/image/smiley/face2017/
 ##### 1044#       发表于 2017-4-27 02:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35779605&amp;ptid=866827" target="_blank">qixinno2 发表于 2017-4-27 01:31</a>
 
 不懂设定 我觉得完全体的B叔比复仇美杜莎更强啊</blockquote>
 再怎么说，美杜莎是神，B叔只是半神啊....
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 1045#       发表于 2017-4-27 08:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35779605&amp;ptid=866827" target="_blank">qixinno2 发表于 2017-4-27 01:31</a>
@@ -19648,32 +12872,19 @@ cosplay的新篇章<img src="https://static.saraba1st.com/image/smiley/face2017/
 当然也可以用FGO来理解，就是地克天，天克人，人克地
 
 
-
-
-
-
-
 -----
 
 ####  回收不入烟云  
 ##### 1046#       发表于 2017-4-27 11:05
 
 
-
-
 伊莉雅更新的太慢了。我等的花都谢了。话说伊莉雅变身后的尾巴感觉好奇怪
-
-
-
-
-
 
 
 -----
 
 ####  deviljz  
 ##### 1047#       发表于 2017-4-27 11:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35780460&amp;ptid=866827" target="_blank">高等黑暗 发表于 2017-4-27 08:07</a>
@@ -19684,16 +12895,10 @@ cosplay的新篇章<img src="https://static.saraba1st.com/image/smiley/face2017/
 fatego是 天&gt;地&gt;人&gt;天
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 1048#       发表于 2017-4-27 13:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35782379&amp;ptid=866827" target="_blank">deviljz 发表于 2017-4-27 11:26</a>
@@ -19704,16 +12909,10 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 这个相克我记得之前反转过一次
 
 
-
-
-
-
-
 -----
 
 ####  由比ケ浜結衣  
 ##### 1049#       发表于 2017-4-27 13:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35779605&amp;ptid=866827" target="_blank">qixinno2 发表于 2017-4-27 01:31</a>
@@ -19722,16 +12921,10 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 因为托尔传说里是被被巨蛇耶梦加得毒死的
 
 
-
-
-
-
-
 -----
 
 ####  deviljz  
 ##### 1050#       发表于 2017-4-27 19:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35783572&amp;ptid=866827" target="_blank">高等黑暗 发表于 2017-4-27 13:20</a>
@@ -19740,16 +12933,10 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 一开始解包数据和这个是反的，后来某章剧情里给出说明是 天&gt;地&gt;人&gt;天，然后没多久庄司发现游戏设置和设定反了，把游戏设置里的也改成天地人天。
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 1051#       发表于 2017-4-27 23:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35787485&amp;ptid=866827" target="_blank">deviljz 发表于 2017-4-27 19:49</a>
@@ -19758,16 +12945,10 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">嘛，反正就那么个意思…
 
 
-
-
-
-
-
 -----
 
 ####  猥琐酱  
 ##### 1052#       发表于 2017-5-21 22:21
-
 
 
 <img src="https://ooo.0o0.ooo/2017/05/21/5921a234c32bb.png" referrerpolicy="no-referrer">
@@ -19776,32 +12957,19 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 老师的画技向其他的方向进化了
 
 
-
-
-
-
-
 -----
 
 ####  pq123  
 ##### 1053#       发表于 2017-5-26 12:47
 
 
-
-
 这话好短,雷神有点太强了吧,要是没有后招的话,要虐啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  斯卡哈  
 ##### 1054#       发表于 2017-5-26 13:15
-
 
 
  本帖最后由 斯卡哈 于 2017-5-26 13:16 编辑 
@@ -19812,17 +12980,10 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 顺便下期休刊（
 
 
-
-
-
-
-
 -----
 
 ####  莉莉橙  
 ##### 1055#       发表于 2017-5-26 13:17
-
-
 
 
 后招：变黑狗
@@ -19831,17 +12992,10 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 ----发送自 [HUAWEI FRD-AL10,Android 7.0](http://stage1.5j4m.com/?1.22)
 
 
-
-
-
-
-
 -----
 
 ####  deviljz  
 ##### 1056#       发表于 2017-5-26 14:00
-
-
 
 
 差不多田中该出来救场了吧
@@ -19850,25 +13004,13 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 然后田中真身是火巨人斯鲁特？
 
 
-
-
-
-
-
 -----
 
 ####  桥田至  
 ##### 1057#       发表于 2017-5-27 00:31
 
 
-
-
 不知不觉魔伊已经连载快十年了...我记得是07年末开始连载的...<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19877,15 +13019,8 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 ##### 1058#       发表于 2017-5-27 00:48
 
 
-
-
 我怀疑钉宫是那个偷过锤子的冰巨人
 扯远点的话，六耳<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19894,14 +13029,7 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 ##### 1059#       发表于 2017-5-27 08:52
 
 
-
-
 直接招尺子马达就好了
-
-
-
-
-
 
 
 -----
@@ -19910,14 +13038,7 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 ##### 1060#       发表于 2017-5-27 09:05
 
 
-
-
 伊莉雅后背PRPR
-
-
-
-
-
 
 
 -----
@@ -19926,14 +13047,7 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 ##### 1061#       发表于 2017-5-27 09:26
 
 
-
-
 什么？又休刊啊。。
-
-
-
-
-
 
 
 -----
@@ -19942,14 +13056,7 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 ##### 1062#       发表于 2017-5-27 09:56
 
 
-
-
 雷神喜欢吃香蕉吗
-
-
-
-
-
 
 
 -----
@@ -19958,14 +13065,7 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 ##### 1063#       发表于 2017-9-26 11:47
 
 
-
-
 如此正统的对拳魔法少女
-
-
-
-
-
 
 
 -----
@@ -19974,14 +13074,7 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 ##### 1064#       发表于 2017-9-26 12:47
 
 
-
-
 魔法少女变成拳拳互殴了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19990,22 +13083,13 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 ##### 1065#       发表于 2017-9-26 15:47
 
 
-
-
 拳拳到肉啊，有没有可能雷神才是朱利安到妹妹？
-
-
-
-
-
 
 
 -----
 
 ####  hououmon  
 ##### 1066#       发表于 2017-11-25 13:05
-
-
 
 
 终于打完雷神了....
@@ -20015,25 +13099,13 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
  之前一直以为2wei就是巴姐人生的巅峰，没想到这次吃了那么多瘪以后居然还能弑神
 
 
-
-
-
-
-
 -----
 
 ####  hac0101  
 ##### 1067#       发表于 2017-11-25 13:09
 
 
-
-
 所以樱的卡里是不是也塞了个南丁格尔<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20042,14 +13114,7 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 ##### 1068#       发表于 2017-11-25 13:11
 
 
-
-
 真的没想到会是曼尼。明明是最有可能的半神<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，北欧神话腰斩害的他太冷门了
-
-
-
-
-
 
 
 -----
@@ -20058,16 +13123,9 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 ##### 1069#       发表于 2017-11-25 13:14
 
 
-
-
 贝阿子感觉还能抢救一下，毕竟还有跟朱利安的纠结
 
 以及如果就这样没了，那伊莉雅前几话喊的话不都白费了吗
-
-
-
-
-
 
 
 -----
@@ -20076,15 +13134,7 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 ##### 1070#       发表于 2017-11-25 13:25
 
 
-
-
 真是想不到，又有怪手又持短鎚子，原本都是想到那兩位矮人
-
-
-
-
-
-
 
 
 -----
@@ -20093,14 +13143,7 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 ##### 1071#       发表于 2017-11-25 13:28
 
 
-
-
 说好的BOSS入队弱三分呢，巴泽特逆光在手天下我有
-
-
-
-
-
 
 
 -----
@@ -20109,14 +13152,7 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 ##### 1072#       发表于 2017-11-25 13:29
 
 
-
-
 说起来，又要休刊了，淦！
-
-
-
-
-
 
 
 -----
@@ -20125,14 +13161,7 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 ##### 1073#       发表于 2017-11-25 13:35
 
 
-
-
 魔伊太怂了吧，搞个新英灵还以为是要出索尔这种大名鼎鼎，结果来了个毫无名气的儿子
-
-
-
-
-
 
 
 -----
@@ -20141,14 +13170,7 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 ##### 1074#       发表于 2017-11-25 13:38
 
 
-
-
 那么逆光剑是专门用来弑神用的吗,如果朱利安也放大招,会有效果不<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20157,14 +13179,7 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 ##### 1075#       发表于 2017-11-25 14:02
 
 
-
-
 “听都没听过他谁啊”hhhhhhhhhhhhh
-
-
-
-
-
 
 
 -----
@@ -20173,14 +13188,7 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 ##### 1076#       发表于 2017-11-25 14:54
 
 
-
-
 但是托尔他儿子实力是属于青出于蓝的那种啊
-
-
-
-
-
 
 
 -----
@@ -20189,16 +13197,10 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 ##### 1077#       发表于 2017-11-25 14:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37826695&amp;ptid=866827" target="_blank">pq123 发表于 2017-11-25 13:38</a>
 那么逆光剑是专门用来弑神用的吗,如果朱利安也放大招,会有效果不</blockquote>
 只要是必杀就能触发后发先至的因果律。然后就看敌方有没有被动防御类判定了。
 然后巴姐来到美游世界最多一个多月，来不及做第二发了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20207,23 +13209,16 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 ##### 1078#       发表于 2017-11-25 15:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37826673&amp;ptid=866827" target="_blank">shuai901 发表于 2017-11-25 13:35</a>
 
 魔伊太怂了吧，搞个新英灵还以为是要出索尔这种大名鼎鼎，结果来了个毫无名气的儿子 ...</blockquote>
 这属于八奇领域的写法了，是托尔的话大概合卡就能搞定了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  eilot  
 ##### 1079#       发表于 2017-11-25 16:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37827435&amp;ptid=866827" target="_blank">yixiaqqq 发表于 2017-11-25 15:22</a>
@@ -20242,16 +13237,10 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 諸神黃昏後的版本也太多民間改版了，也更難找到原典，麼伊中理論上雜學更高的遠板也不知，反而是大小姐才想起
 
 
-
-
-
-
-
 -----
 
 ####  eilot  
 ##### 1080#       发表于 2017-11-25 16:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37826695&amp;ptid=866827" target="_blank">pq123 发表于 2017-11-25 13:38</a>
@@ -20264,27 +13253,15 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 那就會出現判定問題而達到雙方都死亡，這在FATE的格鬥遊戲(家用版及手機版才能用到巴姊)也有重現
 
 
-
-
-
-
-
 -----
 
 ####  卡蓮  
 ##### 1081#       发表于 2017-11-25 17:12
 
 
-
-
 巴姐这分镜帅的掉渣，路人了那么久居然还能跑出来收人头
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -20293,23 +13270,15 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 ##### 1082#       发表于 2017-11-25 17:19
 
 
-
-
 每次我觉得魔伊是燃到爆的王道作品， 官方都要泼我一凉水告诉我这作品儿童瑟轻的本质<img src="https://static.saraba1st.com/image/smiley/goose2017/039.png" referrerpolicy="no-referrer">
 
 <img src="https://2cat.ml/~tedc21thc/new/src/1511580630131.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  水原薰  
 ##### 1083#       发表于 2017-11-25 17:36
-
 
 
 <blockquote>we89623 发表于 2017-11-25 17:19
@@ -20320,16 +13289,10 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 伊莉雅和小黑的看到好多遍，没想到美游的居然也有？
 
 
-
-
-
-
-
 -----
 
 ####  天界AB胶  
 ##### 1084#       发表于 2017-11-25 17:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37828079&amp;ptid=866827" target="_blank">we89623 发表于 2017-11-25 17:19</a>
@@ -20343,16 +13306,10 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 还是不如小学生来钱快啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  sekai-R  
 ##### 1085#       发表于 2017-11-25 19:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37826506&amp;ptid=866827" target="_blank">hououmon 发表于 2017-11-25 13:14</a>
@@ -20365,16 +13322,10 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 伊利亚之前放出要拯救所有人的狠话结果刚开始动手就弄死了一个，这样打脸可以成为主角后面成长的动力
 
 
-
-
-
-
-
 -----
 
 ####  hououmon  
 ##### 1086#       发表于 2017-11-25 19:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37828079&amp;ptid=866827" target="_blank">we89623 发表于 2017-11-25 17:19</a>
@@ -20386,25 +13337,13 @@ fatego是 天&gt;地&gt;人&gt;天</blockquote>
 这美游画风不对啊，脸好微妙....
 
 
-
-
-
-
-
 -----
 
 ####  nakedsnake  
 ##### 1087#       发表于 2017-11-25 20:47
 
 
-
-
 mad广山这货什么时候能把妹神继续画下去啊，我想看给力的小可耶<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20413,23 +13352,16 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 ##### 1088#       发表于 2017-11-25 21:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37829353&amp;ptid=866827" target="_blank">nakedsnake 发表于 2017-11-25 20:47</a>
 
 mad广山这货什么时候能把妹神继续画下去啊，我想看给力的小可耶</blockquote>
 杂志没了
 
 
-
-
-
-
-
 -----
 
 ####  阿提拉  
 ##### 1089#       发表于 2017-11-25 21:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37828038&amp;ptid=866827" target="_blank">卡蓮 发表于 2017-11-25 17:12</a>
@@ -20441,25 +13373,13 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 <img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">那什么时候再有你的戏份（
 
 
-
-
-
-
-
 -----
 
 ####  smcheny  
 ##### 1090#       发表于 2017-11-25 22:10
 
 
-
-
 妈呀，广山这个巴姐吹，时髦值刷破天了
-
-
-
-
-
 
 
 -----
@@ -20468,21 +13388,13 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 ##### 1091#       发表于 2017-11-25 22:23
 
 
-
-
 虽然条件限定，但神都可以一击秒，这时髦值<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  王平  
 ##### 1092#       发表于 2017-11-25 22:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37828823&amp;ptid=866827" target="_blank">sekai-R 发表于 2017-11-25 19:20</a>
@@ -20493,32 +13405,19 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 人偶不算人（）
 
 
-
-
-
-
-
 -----
 
 ####  花堕  
 ##### 1093#       发表于 2017-11-25 22:44
 
 
-
-
 巴姐帅炸<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  卡蓮  
 ##### 1094#       发表于 2017-11-26 00:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37829661&amp;ptid=866827" target="_blank">阿提拉 发表于 2017-11-25 21:38</a>
@@ -20530,17 +13429,10 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 大概只有最后全员回归伊利亚世界的时候我才会再次登场吧
 
 
-
-
-
-
-
 -----
 
 ####  autapomorphy  
 ##### 1095#       发表于 2017-11-26 01:22
-
-
 
 
 如果用的是B叔卡就不会死了啊
@@ -20548,16 +13440,10 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 果然B叔才是王道
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 1096#       发表于 2017-11-26 01:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37830934&amp;ptid=866827" target="_blank">autapomorphy 发表于 2017-11-26 01:22</a>
@@ -20568,16 +13454,10 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 钉宫之前用的卡牌就是B叔的..然后她碰上了巨侠，美游兄正面肉搏肛不过跑了，然后远距离一发幻崩把钉宫炸的四分五裂（原话），靠着12试炼才得以存活，但卡片弹出被巨侠拿走许愿去了（出自雪下誓言的特典设定集）
 
 
-
-
-
-
-
 -----
 
 ####  autapomorphy  
 ##### 1097#       发表于 2017-11-26 01:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37831009&amp;ptid=866827" target="_blank">we89623 发表于 2017-11-26 01:42</a>
@@ -20588,16 +13468,10 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 用B叔卡的话就不会死，而且卡片弹出来之后也没有战斗力，伊莉雅就能继续做思想工作了
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 1098#       发表于 2017-11-26 01:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37831026&amp;ptid=866827" target="_blank">autapomorphy 发表于 2017-11-26 01:45</a>
@@ -20608,17 +13482,10 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 就是因为没有B叔卡了啊，巨侠拿走后许愿卡掉到伊莉雅世界，然后被伊莉雅收集到，现在B叔卡在伊莉雅手里...
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 1099#       发表于 2017-11-26 08:05
-
-
 
 
 不过之前美游用rider卡打巴姐的时候中了逆光剑，结果也只是变身解除而已吧……
@@ -20626,16 +13493,10 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 —— 来自 HUAWEI BLN-AL40, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1
 
 
-
-
-
-
-
 -----
 
 ####  chaoslee  
 ##### 1100#       发表于 2017-11-26 08:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37831510&amp;ptid=866827" target="_blank">蕾丝 发表于 2017-11-26 08:05:51</a>
@@ -20646,16 +13507,10 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  lixianfyss  
 ##### 1101#       发表于 2017-11-26 12:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37831653&amp;ptid=866827" target="_blank">chaoslee 发表于 2017-11-26 08:58</a>
@@ -20667,16 +13522,10 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 正常起效的逆光剑的威力跟幻想崩坏相比如何？
 
 
-
-
-
-
-
 -----
 
 ####  维吉尔的眼泪  
 ##### 1102#       发表于 2017-11-26 12:09
-
 
 
 <blockquote>lixianfyss 发表于 2017-11-26 12:02
@@ -20684,16 +13533,10 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 红a投影a宝具崩的威力大的多
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1103#       发表于 2017-11-26 12:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37832718&amp;ptid=866827" target="_blank">lixianfyss 发表于 2017-11-26 12:02</a>
@@ -20704,16 +13547,10 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 对人宝具毕竟不能跟对军去比啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  莉洁莉特  
 ##### 1104#       发表于 2017-11-26 15:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37828171&amp;ptid=866827" target="_blank">水原薰 发表于 2017-11-25 17:36</a>
@@ -20722,25 +13559,13 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 刚出的，还送底座。
 
 
-
-
-
-
-
 -----
 
 ####  莉洁莉特  
 ##### 1105#       发表于 2017-11-26 15:39
 
 
-
-
 吃瓜看戏。
-
-
-
-
-
 
 
 -----
@@ -20749,21 +13574,13 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 ##### 1106#       发表于 2017-11-26 23:36
 
 
-
-
 逆光剑有威力上限，第二部时候打黑闪闪就失败了
-
-
-
-
-
 
 
 -----
 
 ####  萨拉丁  
 ##### 1107#       发表于 2017-11-27 00:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37828079&amp;ptid=866827" target="_blank">we89623 发表于 2017-11-25 17:19</a>
@@ -20775,16 +13592,10 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 魔法少女，王道燃系，幼女瑟清并不矛盾啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1108#       发表于 2017-11-27 00:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37837441&amp;ptid=866827" target="_blank">cl776 发表于 2017-11-26 23:36</a>
@@ -20793,16 +13604,10 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 闪闪那是用宝具防，里面大概有能抵挡因果攻击的吧……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  eilot  
 ##### 1109#       发表于 2017-11-27 01:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37831510&amp;ptid=866827" target="_blank">蕾丝 发表于 2017-11-26 08:05</a>
@@ -20814,13 +13619,7 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 [http://manhua.dmzj.com/mfsnyly2/16094.shtml#@page=138](http://manhua.dmzj.com/mfsnyly2/16094.shtml#@page=138)
 
 
-
 因為不是由美遊「本人」使用，所以才死不去，變相藍寶石硬吃了這一招才解除RIDER卡片變身
-
-
-
-
-
 
 
 -----
@@ -20829,15 +13628,9 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 ##### 1110#       发表于 2017-11-27 01:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37837441&amp;ptid=866827" target="_blank">cl776 发表于 2017-11-26 23:36</a>
 逆光剑有威力上限，第二部时候打黑闪闪就失败了</blockquote>
 旺财不会触发逆光剑的特效，巴姐投掷的那3发只是相当于c级的普通宝具
-
-
-
-
-
 
 
 -----
@@ -20846,23 +13639,15 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 ##### 1111#       发表于 2017-11-27 08:43
 
 
-
-
 傲娇双马尾不在，金钻头不在，小学生也不再，没有傻吧，没有樱
 
 真是碍事的人都消失了，保健医生将成为旧世界的女主角的节奏啊
-
-
-
-
-
 
 
 -----
 
 ####  hououmon  
 ##### 1112#       发表于 2017-11-27 09:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37838894&amp;ptid=866827" target="_blank">hyhaha 发表于 2017-11-27 08:43</a>
@@ -20873,25 +13658,13 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 旧世界有樱啊，某个外传里还趁凛跟金钻头互殴的时候把士郎捡尸体了
 
 
-
-
-
-
-
 -----
 
 ####  失落之翼  
 ##### 1113#       发表于 2017-11-27 09:19
 
 
-
-
 所以伊莉雅这场战斗最差情况就是拖到贝阿子附身太久脑袋上火开宝具由巴姐收人头啊...只是伊莉雅要以德（物理）服人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20900,23 +13673,16 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 ##### 1114#       发表于 2017-11-27 11:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37839238&amp;ptid=866827" target="_blank">失落之翼 发表于 2017-11-27 09:19</a>
 
 所以伊莉雅这场战斗最差情况就是拖到贝阿子附身太久脑袋上火开宝具由巴姐收人头啊...只是伊莉雅要以德（物 ...</blockquote>
 这是Normal end，贝阿子平A拍死小学生和女狂战才是Bad end
 
 
-
-
-
-
-
 -----
 
 ####  键圣  
 ##### 1115#       发表于 2017-11-27 11:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37828079&amp;ptid=866827" target="_blank">we89623 发表于 2017-11-25 17:19</a>
@@ -20928,16 +13694,10 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 有个专门测评塑料小人的老外评价这系列的肚子太奇怪了。
 
 
-
-
-
-
-
 -----
 
 ####  東雲千夜子  
 ##### 1116#       发表于 2017-11-29 10:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37839099&amp;ptid=866827" target="_blank">hououmon 发表于 2017-11-27 09:06</a>
@@ -20946,16 +13706,10 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 还有个控制不了力道的奈菜巳
 
 
-
-
-
-
-
 -----
 
 ####  Louis417  
 ##### 1117#       发表于 2017-11-29 10:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37832718&amp;ptid=866827" target="_blank">lixianfyss 发表于 2017-11-26 12:02</a>
@@ -20968,25 +13722,13 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 本来就是靠特效吃饭的。
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 1118#       发表于 2018-1-26 17:19
 
 
-
-
 看来樱最后还得要死在巨侠手上啊
-
-
-
-
-
 
 
 -----
@@ -20995,24 +13737,16 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 ##### 1119#       发表于 2018-3-4 13:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38360179&amp;ptid=866827" target="_blank">we89623 发表于 2018-1-26 17:19</a>
 
 看来樱最后还得要死在巨侠手上啊</blockquote>
 这不是被美游捅到一边去了，当然这枪一般是杀不死人。
 
 
-
-
-
-
-
 -----
 
 ####  evanchenyu  
 ##### 1120#       发表于 2018-3-27 14:56
-
-
 
 
 更新了
@@ -21026,33 +13760,19 @@ mad广山这货什么时候能把妹神继续画下去啊，我想看给力的�
 ps：好gay的体位啊
 
 
-
-
-
-
-
 -----
 
 ####  yellow0507  
 ##### 1121#       发表于 2018-3-27 15:03
 
 
-
-
 B叔无论在哪都守护着伊利亚啊
-
-
-
-
-
 
 
 -----
 
 ####  天涯夹心人  
 ##### 1122#       发表于 2018-5-28 11:00
-
-
 
 
 60话宝具是这样么。
@@ -21065,25 +13785,13 @@ B叔无论在哪都守护着伊利亚啊
 真神了。
 
 
-
-
-
-
-
 -----
 
 ####  hououmon  
 ##### 1123#       发表于 2018-8-20 08:15
 
 
-
-
 说起来之前还那么多人猜田中是苏尔特，结果隔壁fgo苏尔特本尊都出来了，所以田中到底是个啥
-
-
-
-
-
 
 
 -----
@@ -21092,16 +13800,10 @@ B叔无论在哪都守护着伊利亚啊
 ##### 1124#       发表于 2018-8-20 09:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40701159&amp;ptid=866827" target="_blank">hououmon 发表于 2018-8-20 08:15</a>
 
 说起来之前还那么多人猜田中是苏尔特，结果隔壁fgo苏尔特本尊都出来了，所以田中到底是个啥 ...</blockquote>
 要不是老哥把这帖子顶上来，我还以为被删了。田中好长时间没出场了。
-
-
-
-
-
 
 
 -----
@@ -21110,15 +13812,9 @@ B叔无论在哪都守护着伊利亚啊
 ##### 1125#       发表于 2018-8-20 09:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40701562&amp;ptid=866827" target="_blank">lixianfyss 发表于 2018-8-20 09:09</a>
 要不是老哥把这帖子顶上来，我还以为被删了。田中好长时间没出场了。</blockquote>
 不是田中好久没登场，是广田无心更新，专心摸鱼画fgo本子。好几个月都没更新了
-
-
-
-
-
 
 
 -----
@@ -21127,16 +13823,10 @@ B叔无论在哪都守护着伊利亚啊
 ##### 1126#       发表于 2018-8-20 13:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40701992&amp;ptid=866827" target="_blank">8aa8aa8aa 发表于 2018-8-20 09:51</a>
 
 不是田中好久没登场，是广田无心更新，专心摸鱼画fgo本子。好几个月都没更新了 ...</blockquote>
 素质不行啊，月更都摸鱼成这样，太不敬业。
-
-
-
-
-
 
 
 -----
@@ -21145,16 +13835,10 @@ B叔无论在哪都守护着伊利亚啊
 ##### 1127#       发表于 2018-8-20 14:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40704329&amp;ptid=866827" target="_blank">lixianfyss 发表于 2018-8-20 13:12</a>
 
 素质不行啊，月更都摸鱼成这样，太不敬业。</blockquote>
 不是听说生病住院了么
-
-
-
-
-
 
 
 -----
@@ -21163,16 +13847,10 @@ B叔无论在哪都守护着伊利亚啊
 ##### 1128#       发表于 2018-8-20 14:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40704885&amp;ptid=866827" target="_blank">团子SAMA 发表于 2018-8-20 14:02</a>
 不是听说生病住院了么</blockquote>
 <img src="https://i.loli.net/2018/08/20/5b7a5bb978e36.jpg" referrerpolicy="no-referrer">
 有没住院不清楚，本子画的挺欢的
-
-
-
-
-
 
 
 -----
@@ -21181,15 +13859,9 @@ B叔无论在哪都守护着伊利亚啊
 ##### 1129#       发表于 2018-8-20 14:17
 
 
-
 <blockquote>8aa8aa8aa 发表于 2018-8-20 14:12
 有没住院不清楚，本子画的挺欢的</blockquote>
 绅士上好像没看到啊？
-
-
-
-
-
 
 
 -----
@@ -21198,14 +13870,7 @@ B叔无论在哪都守护着伊利亚啊
 ##### 1130#       发表于 2018-8-20 16:27
 
 
-
-
 腱鞘炎不需要住院吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21214,23 +13879,15 @@ B叔无论在哪都守护着伊利亚啊
 ##### 1131#       发表于 2018-9-28 20:30
 
 
-
-
 这话就8页，又是几乎什么内容没讲
 
 — from Google Pixel 2, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.3-play
-
-
-
-
-
 
 
 -----
 
 ####  evanchenyu  
 ##### 1132#       发表于 2018-9-28 21:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40705037&amp;ptid=866827" target="_blank">团子SAMA 发表于 2018-8-20 14:17</a>
@@ -21241,16 +13898,10 @@ B叔无论在哪都守护着伊利亚啊
 直接dmzj搜心跳迦勒底
 
 
-
-
-
-
-
 -----
 
 ####  团子SAMA  
 ##### 1133#       发表于 2018-9-29 13:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41110671&amp;ptid=866827" target="_blank">evanchenyu 发表于 2018-9-28 21:41</a>
@@ -21261,17 +13912,10 @@ B叔无论在哪都守护着伊利亚啊
 当时没有<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  deviljz  
 ##### 1134#       发表于 2019-1-26 21:15
-
-
 
 
 fatego 新出的美游最终再临的造型貌似剧透了魔伊后面<img src="https://i83.photobucket.com/albums/j284/deviljz/QQ20190126210730.jpg" referrerpolicy="no-referrer">
@@ -21287,19 +13931,10 @@ fatego 新出的美游最终再临的造型貌似剧透了魔伊后面<img src="
 就是说这个法杖不是蓝宝石，和伊莉亚第二部最后一样是双杖
 
 
-
-
-
-
-
-
-
 -----
 
 ####  ac死或生  
 ##### 1135#       发表于 2019-12-29 02:14
-
-
 
 
 这个漫画也越来越pussy了，太他妈能拖了
@@ -21307,13 +13942,9 @@ fatego 新出的美游最终再临的造型貌似剧透了魔伊后面<img src="
 —— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 -1
@@ -21323,12 +13954,7 @@ fatego 新出的美游最终再临的造型貌似剧透了魔伊后面<img src="
 | kodo|-1|欢乐多|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -21337,14 +13963,7 @@ fatego 新出的美游最终再临的造型貌似剧透了魔伊后面<img src="
 ##### 1136#       发表于 2019-12-29 10:23
 
 
-
-
 我感觉广山怕被蘑菇被刺，不敢画了
-
-
-
-
-
 
 
 -----
@@ -21353,21 +13972,13 @@ fatego 新出的美游最终再临的造型貌似剧透了魔伊后面<img src="
 ##### 1137#       发表于 2019-12-29 11:04
 
 
-
-
 魔伊不画，也没出之前那本fgo同人的完整版，纯粹是在摸鱼吧
-
-
-
-
-
 
 
 -----
 
 ####  天涯夹心人  
 ##### 1138#       发表于 2019-12-31 17:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46021009&amp;ptid=866827" target="_blank">Aeroblast 发表于 2019-12-29 11:04</a>
@@ -21378,25 +13989,13 @@ fatego 新出的美游最终再临的造型貌似剧透了魔伊后面<img src="
 另外就是制作方应该也乐于见到连载拖一拖别完结，银链小厂每年指着魔伊卖货。
 
 
-
-
-
-
-
 -----
 
 ####  PLD  
 ##### 1139#       发表于 2020-1-14 08:17
 
 
-
-
 最新剧情里，美游世界的樱得救了吗
-
-
-
-
-
 
 
 -----
@@ -21405,16 +14004,10 @@ fatego 新出的美游最终再临的造型貌似剧透了魔伊后面<img src="
 ##### 1140#       发表于 2020-1-14 11:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46177756&amp;ptid=866827" target="_blank">PLD 发表于 2020-1-14 08:17</a>
 
 最新剧情里，美游世界的樱得救了吗</blockquote>
 还在洗泥巴浴。
-
-
-
-
-
 
 
 -----
@@ -21423,14 +14016,9 @@ fatego 新出的美游最终再临的造型貌似剧透了魔伊后面<img src="
 ##### 1141#       发表于 2020-1-14 11:54
 
 
-
-
 看到顶上来我还以为广山终于不摸鱼了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony H8166, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
 
 
            

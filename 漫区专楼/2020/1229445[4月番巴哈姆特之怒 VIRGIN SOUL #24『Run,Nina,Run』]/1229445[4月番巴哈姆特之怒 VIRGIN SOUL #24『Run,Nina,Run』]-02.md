@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2020-02-28 20:52** 
 
 
-
 -----
 
 ####  xiaomajia2000  
 ##### 1501#       发表于 2017-5-27 10:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36070907&amp;ptid=1229445" target="_blank">nage560 发表于 2017-5-27 09:42</a>
@@ -15,16 +13,10 @@
 现在剧情看感觉是天使和人类互相算计，恶魔遭殃，没办法谁让恶魔带团的不行
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 1502#       发表于 2017-5-27 10:16
-
 
 
  本帖最后由 nage560 于 2017-5-27 10:18 编辑 
@@ -34,25 +26,13 @@
 天使是想让人类重执信仰，人皇是想屠尽天使和恶魔，但恶魔实在太弱，现在莫得凯这批都被杀光，估计恶魔剩下的人不多，就狗妹那边可能还有些人吧。
 
 
-
-
-
-
-
 -----
 
 ####  saturnus  
 ##### 1503#       发表于 2017-5-27 10:23
 
 
-
-
 我只想问一季的考哥去哪咯？技术性掉线？还是被国王做成肥皂了？
-
-
-
-
-
 
 
 -----
@@ -61,15 +41,9 @@
 ##### 1504#       发表于 2017-5-27 10:27
 
 
-
 <blockquote>saturnus 发表于 2017-5-27 10:23
 我只想问一季的考哥去哪咯？技术性掉线？还是被国王做成肥皂了？</blockquote>
 经费烧不起。出场估计也不动。
-
-
-
-
-
 
 
 -----
@@ -78,14 +52,7 @@
 ##### 1505#       发表于 2017-5-27 10:37
 
 
-
-
 这次直接华丽到无法出场了吧
-
-
-
-
-
 
 
 -----
@@ -94,21 +61,13 @@
 ##### 1506#       发表于 2017-5-27 11:40
 
 
-
-
 法瓦罗居然在坐牢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  EdmundPZhang  
 ##### 1507#       发表于 2017-5-27 12:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36070907&amp;ptid=1229445" target="_blank">nage560 发表于 2017-5-27 09:42</a>
@@ -118,16 +77,10 @@
 —— 来自 Xiaomi MI 6, Android 7.1.1上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  pzk  
 ##### 1508#       发表于 2017-5-27 12:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36070907&amp;ptid=1229445" target="_blank">nage560 发表于 2017-5-27 09:42</a>
@@ -136,17 +89,10 @@
 ……妮娜认出来了吗？
 
 
-
-
-
-
-
 -----
 
 ####  pzk  
 ##### 1509#       发表于 2017-5-27 12:29
-
-
 
 
 不知道该夸国王战力强好还是说阿萨谢尔弱鸡好了，凯撒这个搅局的水平感觉非常低，虽然三人斗剑是很酷啦……然后转头就被绑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -155,16 +101,10 @@
 贞德十年前就已经不是圣女了，妮娜那时候才六七岁，但她却（看起来像）认识贞德，难道贞德曾经是妮娜的偶像<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 1510#       发表于 2017-5-27 12:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36072562&amp;ptid=1229445" target="_blank">EdmundPZhang 发表于 2017-5-27 12:19</a>
@@ -176,16 +116,10 @@
 发型只是换了下发型，这样都没有认出来吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">？作为妮娜第一个喜欢的人换下发型应该认出来了吧？
 
 
-
-
-
-
-
 -----
 
 ####  pzk  
 ##### 1511#       发表于 2017-5-27 12:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36072661&amp;ptid=1229445" target="_blank">nage560 发表于 2017-5-27 12:30</a>
@@ -194,16 +128,10 @@
 没有戴眼镜，而且审判的时候站在阴影里，游行时她根本没看国王的脸，认不出的啦
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 1512#       发表于 2017-5-27 12:37
-
 
 
  本帖最后由 nage560 于 2017-5-27 12:43 编辑 
@@ -213,25 +141,13 @@
 好吧，那我担心妮娜知道真面目后的态度了，应该还是不会变迷妹选择帮国王的吧......
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 1513#       发表于 2017-5-27 13:12
 
 
-
-
 还是不懂凯撒为什么这么拼命的帮着啊酱,闹事的魔族一个也没抓到还干涉国王杀阿酱,真的可以改名叫凯子了
-
-
-
-
-
 
 
 -----
@@ -240,16 +156,10 @@
 ##### 1514#       发表于 2017-5-27 13:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36073052&amp;ptid=1229445" target="_blank">567844 发表于 2017-5-27 13:12</a>
 
 还是不懂凯撒为什么这么拼命的帮着啊酱,闹事的魔族一个也没抓到还干涉国王杀阿酱,真的可以改名叫凯子了 ...</blockquote>
 凯撒的思想：人魔共存（当然坏的恶魔还是得杀），人皇思想：屠神灭魔（管你好的坏的都杀光或者抓来做奴隶）。
-
-
-
-
-
 
 
 -----
@@ -258,14 +168,7 @@
 ##### 1515#       发表于 2017-5-27 13:20
 
 
-
-
 法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！法瓦罗！
-
-
-
-
-
 
 
 -----
@@ -274,16 +177,10 @@
 ##### 1516#       发表于 2017-5-27 13:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36073052&amp;ptid=1229445" target="_blank">567844 发表于 2017-5-27 13:12</a>
 
 还是不懂凯撒为什么这么拼命的帮着啊酱,闹事的魔族一个也没抓到还干涉国王杀阿酱,真的可以改名叫凯子了 ...</blockquote>
 因为巴哈姆特车得人神魔肝胆欲裂时凯撒就在它头顶啊，亲眼见识到那种破坏力的凯撒认为只靠人族就算有禁忌力量也车不过巴哈姆特吧
-
-
-
-
-
 
 
 -----
@@ -292,22 +189,13 @@
 ##### 1517#       发表于 2017-5-27 13:29
 
 
-
-
 这一集并没有酋长啊。不过法瓦罗还是那个熟悉的丑萌<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  古桥一浩  
 ##### 1518#       发表于 2017-5-27 13:30
-
-
 
 
 因为恐惧，
@@ -357,16 +245,10 @@ PS：
 阿姆罗应该交代下世界观以及妮娜的真实身份了吧。。
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 1519#       发表于 2017-5-27 13:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36072695&amp;ptid=1229445" target="_blank">pzk 发表于 2017-5-27 12:33</a>
@@ -375,16 +257,10 @@ PS：
 你当国王是新鸡巴么
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 1520#       发表于 2017-5-27 13:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36073100&amp;ptid=1229445" target="_blank">nage560 发表于 2017-5-27 13:18</a>
@@ -393,16 +269,10 @@ PS：
 但是那些恶魔手里不少血债吧,被人类操纯属活该
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 1521#       发表于 2017-5-27 13:43
-
 
 
  本帖最后由 nage560 于 2017-5-27 13:52 编辑 
@@ -412,33 +282,19 @@ PS：
 那也该找那些作恶的艹啊，有很多不和人类为敌的恶魔也杀光就做太过了。而且连天使也要杀光，这点无论怎样都无法洗了吧。
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1522#       发表于 2017-5-27 13:45
 
 
-
-
 认不出来也没什么好奇怪的，国王偷跑出来的时候本来就是遮个全套连眼镜都带上了，气质也差不要太多，这次妮娜气上心头又背光还时不时被按着头，能认出来那才叫真迷妹
-
-
-
-
-
 
 
 -----
 
 ####  RevModusTollens  
 ##### 1523#       发表于 2017-5-27 14:06
-
-
 
 
 这一集剧本感觉怪怪的.
@@ -450,18 +306,10 @@ PS：
 阿酱被抓和死了有什么区别. 有意义吗?
 
 
-
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1524#       发表于 2017-5-27 14:15
-
-
 
 
 凯撒当时已经把国王打服气了，要跑是没问题的，后面各种突发情况乱入也是没办法
@@ -470,17 +318,10 @@ PS：
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 1525#       发表于 2017-5-27 14:46
-
-
 
 
 其实我觉得妮娜怒斥国王那段，大臣们一脸恐惧实在费解。
@@ -488,16 +329,10 @@ PS：
 离国王艹翻恶魔还没过去几年，这批人随便都可以报出当年恶魔是怎么对人类的把妮娜怼回去。
 
 
-
-
-
-
-
 -----
 
 ####  pzk  
 ##### 1526#       发表于 2017-5-27 14:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36073857&amp;ptid=1229445" target="_blank">望月凝香 发表于 2017-5-27 14:46</a>
@@ -508,17 +343,10 @@ PS：
 是的，这个嘴炮威力不够，却没人反驳，硬要解释的话大概就是大臣们看出了国王看妮娜的眼神不一般所以没有打断她<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ml1642879  
 ##### 1527#       发表于 2017-5-27 15:15
-
-
 
 
 这集演出有点问题，但是，法瓦罗~~！
@@ -526,16 +354,10 @@ PS：
 —— 来自 Sony E5823, Android 6.0.1上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 1528#       发表于 2017-5-27 15:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36073857&amp;ptid=1229445" target="_blank">望月凝香 发表于 2017-5-27 14:46</a>
@@ -546,17 +368,10 @@ PS：
 这些大臣家里还养着奴隶过来的恶魔少年少女吧，甚至有些还拿来肢解或者各种满足变态嗜好？被妮娜这么一怒斥恐惧不稀奇。什么你说拿恶魔做的什么破事怼回去？关这些养尊处优的大臣什么事？受那些恶魔骚扰出事的也是没有能力保护自己的平民百姓，关这些有保镖士兵保护的大臣什么事？真对国王有异议的忠义大臣估计都像贞德凯撒一样关在牢里呢，剩下无异议不都是一些只关心自己利益管你屁民生死谁做皇帝的大臣而已。
 
 
-
-
-
-
-
 -----
 
 ####  xiaomajia2000  
 ##### 1529#       发表于 2017-5-27 15:20
-
-
 
 
 妮娜憋了好久的大招放不出来，看到这就觉得这剧严肃不起来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -566,16 +381,10 @@ PS：
 监狱里拷问那段不自主联想到了剑风，话说拷问之前难道不先把翅膀给断了吗，可是跑路的大杀器，还是说找不到藏哪里了
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 1530#       发表于 2017-5-27 15:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36073920&amp;ptid=1229445" target="_blank">pzk 发表于 2017-5-27 14:52</a>
@@ -584,25 +393,13 @@ PS：
 都是些前面那几集残杀恶魔少年少女的高官土豪，被妮娜这么一喊心虚了吧。即使没有这些变态嗜好，奴隶贩子能随意运恶魔进城贩卖人口，这些高官也肯定收了不少油水。可能国王这么偏激要杀尽恶魔，平时也有这些高官煽风点火呢，为了多几个恶魔少年少女供自己享用或者多捞油水。
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 1531#       发表于 2017-5-27 15:32
 
 
-
-
 想想幽游白书就有过人类残杀弱小无害恶魔族的片段，那里直接把仙水这样憎恨恶魔的大好青年变成了想毁灭人类的报社青年。凯撒也给阿萨谢尔带去看过类似的场景，凯撒没有像仙水那样疯但怎么也是会觉得这做法极端不对了。而且巴哈的世界观还是要人魔神合力对抗巴哈姆特的，不知道为什么这么多人喷凯撒人奸圣母了。
-
-
-
-
-
 
 
 -----
@@ -611,21 +408,13 @@ PS：
 ##### 1532#       发表于 2017-5-27 15:43
 
 
-
-
 B站不更新这破楼都没人来水了
-
-
-
-
-
 
 
 -----
 
 ####  新屋  
 ##### 1533#       发表于 2017-5-27 15:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36073920&amp;ptid=1229445" target="_blank">pzk 发表于 2017-5-27 14:52</a>
@@ -637,25 +426,13 @@ B站不更新这破楼都没人来水了
 不过我认为大臣们感到恐惧的是这个村姑居然敢怼皇帝，又可怜这么小年纪的孩子可能会被处决。
 
 
-
-
-
-
-
 -----
 
 ####  Yeaha123  
 ##### 1534#       发表于 2017-5-27 16:04
 
 
-
-
 下一话，皇都生化危机
-
-
-
-
-
 
 
 -----
@@ -664,16 +441,10 @@ B站不更新这破楼都没人来水了
 ##### 1535#       发表于 2017-5-27 16:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36073305&amp;ptid=1229445" target="_blank">nage560 发表于 2017-5-27 13:43</a>
 
 那也该找那些作恶的艹啊，有很多不和人类为敌的恶魔也杀光就做太过了。而且连天使也要杀光，这点无论怎样 ...</blockquote>
 但是一阿酱为首的这批叛乱份子全部枪毙掉没一个冤枉的,尤其是阿酱砍了那么多人绝对属于死了活该的,话说凯子前几话还被阿酱吊打怎么一下子战力提升那么多
-
-
-
-
-
 
 
 -----
@@ -682,16 +453,10 @@ B站不更新这破楼都没人来水了
 ##### 1536#       发表于 2017-5-27 16:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36074311&amp;ptid=1229445" target="_blank">nage560 发表于 2017-5-27 15:32</a>
 
 想想幽游白书就有过人类残杀弱小无害恶魔族的片段，那里直接把仙水这样憎恨恶魔的大好青年变成了想毁灭人类 ...</blockquote>
 帮恶魔可以帮阿酱就是屁股问题
-
-
-
-
-
 
 
 -----
@@ -700,14 +465,7 @@ B站不更新这破楼都没人来水了
 ##### 1537#       发表于 2017-5-27 16:40
 
 
-
-
 别忘了巴哈的神魔分类很广，丽塔这种也属于魔族
-
-
-
-
-
 
 
 -----
@@ -716,21 +474,13 @@ B站不更新这破楼都没人来水了
 ##### 1538#       发表于 2017-5-27 16:43
 
 
-
-
 所以说如果女主的血统有魔龙族的话，算是魔族也不奇怪
-
-
-
-
-
 
 
 -----
 
 ####  nage560  
 ##### 1539#       发表于 2017-5-27 17:07
-
 
 
  本帖最后由 nage560 于 2017-5-27 17:11 编辑 
@@ -740,25 +490,13 @@ B站不更新这破楼都没人来水了
 阿萨这季杀的都是贩卖恶魔，拿弱小恶魔做残忍实验的高官有钱人。就算阿萨是死了活该，怠惰魔一行人怎么算死了活该，怠惰魔一开始是作为人质被绑住的，剩下那些都是老弱残兵也看不出之前怎么残害人类。真要按死了活该来算，最该死不是把种族矛盾激化到这地步的国王么，又要杀神又要屠魔，给人类积了多少仇恨值。国王的思想是恶魔是天使都该死，这集也是知道妮娜是红龙就要关进大牢无期徒刑，丽塔等被查出来迟早也得进去。
 
 
-
-
-
-
-
 -----
 
 ####  水無燈里  
 ##### 1540#       发表于 2017-5-27 17:14
 
 
-
-
 看到進監獄就想到法瓦羅，果然~<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -767,16 +505,10 @@ B站不更新这破楼都没人来水了
 ##### 1541#       发表于 2017-5-27 17:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36074887&amp;ptid=1229445" target="_blank">567844 发表于 2017-5-27 16:23</a>
 
 帮恶魔可以帮阿酱就是屁股问题</blockquote>
 要是拿屁股问题套11区动画的话，那就有无数多的动画存在屁股问题要打你的脸了。
-
-
-
-
-
 
 
 -----
@@ -785,14 +517,7 @@ B站不更新这破楼都没人来水了
 ##### 1542#       发表于 2017-5-27 17:41
 
 
-
-
 恶魔是怎么从第一季吊打两男主到第二季被凯撒吊打的，中间发生了什么，
-
-
-
-
-
 
 
 -----
@@ -801,16 +526,10 @@ B站不更新这破楼都没人来水了
 ##### 1543#       发表于 2017-5-27 18:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36075318&amp;ptid=1229445" target="_blank">nage560 发表于 2017-5-27 17:07</a>
 
 阿萨这季杀的都是贩卖恶魔，拿弱小恶魔做残忍实验的高官有钱人。就算阿萨是死了活该，怠惰魔一行人怎么算 ...</blockquote>
 妹子炸桥了啊,阿酱可是第一季就差点把王都拆掉的不知悔改的死硬份子
-
-
-
-
-
 
 
 -----
@@ -819,15 +538,9 @@ B站不更新这破楼都没人来水了
 ##### 1544#       发表于 2017-5-27 18:08
 
 
-
 <blockquote>567844 发表于 2017-5-27 18:05
 妹子炸桥了啊,阿酱可是第一季就差点把王都拆掉的不知悔改的死硬份子</blockquote>
 第一季打王都记得是因为恶魔钥匙和神之钥匙吧 ，恶魔的不知道去向，神的那把的确在人类那，当然黑幕是苍蝇王和那个变态了。
-
-
-
-
-
 
 
 -----
@@ -836,23 +549,16 @@ B站不更新这破楼都没人来水了
 ##### 1545#       发表于 2017-5-27 18:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36075855&amp;ptid=1229445" target="_blank">567844 发表于 2017-5-27 18:05</a>
 
 妹子炸桥了啊,阿酱可是第一季就差点把王都拆掉的不知悔改的死硬份子</blockquote>
 阿萨真要说的话是该死。怠惰魔的老家被毁，自己也被人类抓起来（不知道有没有被凌辱过）。炸桥是阿萨带头的计划，本身是为了阻止国王逃跑，不是为了杀无辜平民（虽然也杀死了几个），这种情况看各人愿不愿意钻牛角尖追究到底了，国王事先知道情况不疏散平民，恶魔为了报仇也不会考虑会不会把平民卷入去。1是国王把恶魔天使都屠杀干净，2是国王为自己的极端付出代价，要不以后还会出现很多这种无辜人受苦的情景。
 
 
-
-
-
-
-
 -----
 
 ####  新屋  
 ##### 1546#       发表于 2017-5-27 18:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36075614&amp;ptid=1229445" target="_blank">xiaomajia2000 发表于 2017-5-27 17:41</a>
@@ -865,16 +571,10 @@ B站不更新这破楼都没人来水了
 成为继圣女贞德的下任奥尔良团的团长必然武艺至极。
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 1547#       发表于 2017-5-27 18:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36075988&amp;ptid=1229445" target="_blank">nage560 发表于 2017-5-27 18:17</a>
@@ -883,16 +583,10 @@ B站不更新这破楼都没人来水了
 但是凯子是骑士团长,于公于私都不应该帮阿酱啊,他这么干自己进了大牢手下也风评被害完全是吃里扒外么
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 1548#       发表于 2017-5-27 18:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36076071&amp;ptid=1229445" target="_blank">567844 发表于 2017-5-27 18:26</a>
@@ -901,16 +595,10 @@ B站不更新这破楼都没人来水了
 这个是有点不合逻辑，估计凯撒和贞德交情好，受过贞德影响，贞德被国王抓，本来对国王就不满了。给阿萨带去看到恶魔的惨况加深了这点，再加上丽塔点通了自己，放飞思想，按自己所愿去做，所以才会这样吧。就是凯撒卵用没有，找不出恶魔，也阻止不了恶魔搞事。
 
 
-
-
-
-
-
 -----
 
 ####  断裂的歌谣  
 ##### 1549#       发表于 2017-5-27 18:31
-
 
 
  本帖最后由 断裂的歌谣 于 2017-5-27 18:52 编辑 
@@ -922,13 +610,9 @@ B站不更新这破楼都没人来水了
 其实说到底就是编剧水平不行，第一季说穿了就是勇者拯救世界的老套剧情中间加了点调料还看得过去，第二季上升到多种族并存这种高度就显得剧情拖制作的后腿了。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -938,12 +622,7 @@ B站不更新这破楼都没人来水了
 | 半分幻の庭师| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -952,24 +631,16 @@ B站不更新这破楼都没人来水了
 ##### 1550#       发表于 2017-5-27 18:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36076121&amp;ptid=1229445" target="_blank">nage560 发表于 2017-5-27 18:31</a>
 
 这个是有点不合逻辑，估计凯撒和贞德交情好，受过贞德影响，贞德被国王抓，本来对国王就不满了。给阿萨带 ...</blockquote>
 同情和帮应该有个度,现在感觉凯子立场太偏向于恶魔了而且还拿着国王的工资帮恶魔,知道了恶魔要搞事还tm没什么卵用于是剧情就变成了凯子脑子和屁股都不正常
 
 
-
-
-
-
-
 -----
 
 ####  Renes  
 ##### 1551#       发表于 2017-5-27 18:38
-
-
 
 
 凯撒作为一个见证过联邦和吉翁合力推开阿克西斯的人 视野早就不一样了 你指望这样的人在拍拍屁股说干死吉翁/联邦 那是不可能的 凯撒就是要为人与人之间的可能性奋斗 在巴哈的世界里就是3个智慧种族人神魔
@@ -984,16 +655,10 @@ B站不更新这破楼都没人来水了
 反正现在应该就是 巴哈关着关着肯定还会醒 那么大家一起韬光养晦闷声发大财比较好 要不撕着撕着 巴哈一醒大家都玩完
 
 
-
-
-
-
-
 -----
 
 ####  xiaomajia2000  
 ##### 1552#       发表于 2017-5-27 18:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36076178&amp;ptid=1229445" target="_blank">Renes 发表于 2017-5-27 18:38</a>
@@ -1002,32 +667,19 @@ B站不更新这破楼都没人来水了
 国王看着比恶魔力量还大，怕不是个混血
 
 
-
-
-
-
-
 -----
 
 ####  xiaomajia2000  
 ##### 1553#       发表于 2017-5-27 18:48
 
 
-
-
 不理解凯撒的，第一季凯撒可是连僵尸都舍不得杀的，虽然也可能免不了自己是个萝莉控
-
-
-
-
-
 
 
 -----
 
 ####  567844  
 ##### 1554#       发表于 2017-5-27 18:49
-
 
 
  本帖最后由 567844 于 2017-5-27 18:50 编辑 
@@ -1037,16 +689,10 @@ B站不更新这破楼都没人来水了
 我倒不觉得有什么私仇,对恶魔这种事情只是单纯的人性丑恶,毕竟这种事情在历史上是斯通见惯的,国王也没有有计划的高人种灭绝
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 1555#       发表于 2017-5-27 18:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36076238&amp;ptid=1229445" target="_blank">xiaomajia2000 发表于 2017-5-27 18:45</a>
@@ -1055,32 +701,19 @@ B站不更新这破楼都没人来水了
 我觉得也有可能后面爆出国王是人魔混血儿什么的内幕，然后知道自己也是恶魔后就理解自己的做法极端偏激了，然后还有拥有打败巴哈的潜质天赋，打倒巴哈将功补过顺利洗白<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">。
 
 
-
-
-
-
-
 -----
 
 ####  灵魂收割机  
 ##### 1556#       发表于 2017-5-27 19:06
 
 
-
-
 阿酱看怠堕魔的时候眼睛里的画面到底是怎么个结构，就看见一团头发了<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Chia  
 ##### 1557#       发表于 2017-5-27 19:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36076403&amp;ptid=1229445" target="_blank">灵魂收割机 发表于 2017-5-27 19:06</a>
@@ -1092,17 +725,10 @@ B站不更新这破楼都没人来水了
 恶魔的身体真结实……
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 1558#       发表于 2017-5-27 19:24
-
-
 
 
 告示板上写逮捕了XXXXX人
@@ -1114,16 +740,10 @@ B站不更新这破楼都没人来水了
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  云梦泽岸  
 ##### 1559#       发表于 2017-5-27 20:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36076403&amp;ptid=1229445" target="_blank">灵魂收割机 发表于 2017-5-27 19:06</a>
@@ -1145,27 +765,15 @@ B站不更新这破楼都没人来水了
 魔族要是再不出来个能打的，自己就灭亡了。
 
 
-
-
-
-
-
-
 -----
 
 ####  新屋  
 ##### 1560#       发表于 2017-5-27 20:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36074782&amp;amp;ptid=1229445" target="_blank">567844 发表于 2017-5-27 16:15</a>
 但是一阿酱为首的这批叛乱份子全部枪毙掉没一个冤枉的,尤其是阿酱砍了那么多人绝对属于死了活该的,话说凯 ...</blockquote>
 当时凯撒没打算动手。阿萨嘴上威胁但也没动手打人。哪有吊打。
-
-
-
-
-
 
 
 -----
@@ -1174,16 +782,9 @@ B站不更新这破楼都没人来水了
 ##### 1561#       发表于 2017-5-27 20:33
 
 
-
-
 这集亮点全在爆炸头出场了，太无聊的一集
 
 凯撒想法是好，但是做法是在太傻了，说句不好听的像是拦车的狗厨<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1192,23 +793,16 @@ B站不更新这破楼都没人来水了
 ##### 1562#       发表于 2017-5-27 20:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36072695&amp;ptid=1229445" target="_blank">pzk 发表于 2017-5-27 12:33</a>
 
 没有戴眼镜，而且审判的时候站在阴影里，游行时她根本没看国王的脸，认不出的啦 ...</blockquote>
 这时候就要回忆一下第一季里爆炸头能瞬间跑到国王面前，那谜一样的距离了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  darkangel0224  
 ##### 1563#       发表于 2017-5-27 20:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36073857&amp;ptid=1229445" target="_blank">望月凝香 发表于 2017-5-27 14:46</a>
@@ -1219,25 +813,13 @@ B站不更新这破楼都没人来水了
 你该回忆一下国王进城时，骑士团里可是有人咂嘴，飞机头回瞪这个细节；显然是存在反皇派的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  reficul  
 ##### 1564#       发表于 2017-5-27 20:37
 
 
-
-
 话说御前卫兵真是无能，要是在古代有这种人对着皇上乱喊的话第一句话没说完就被打翻在地上嘴里塞抹布了吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1246,24 +828,15 @@ B站不更新这破楼都没人来水了
 ##### 1565#       发表于 2017-5-27 20:40
 
 
-
-
 我猜是国王让妮娜说话，所以手下不会喊打码累
 
 上一集大臣说话国王就说打马累
-
-
-
-
-
 
 
 -----
 
 ####  哥特式lolita  
 ##### 1566#       发表于 2017-5-27 20:41
-
-
 
 
 尼娜嘴炮引起霸道总裁注意的桥段简直越来越乙女番了。。。
@@ -1274,16 +847,10 @@ B站不更新这破楼都没人来水了
 姆加罗这次的套路又像阿米拉了。。。到底是谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  darkangel0224  
 ##### 1567#       发表于 2017-5-27 20:44
-
 
 
  本帖最后由 darkangel0224 于 2017-5-27 21:54 编辑 
@@ -1295,16 +862,10 @@ B站不更新这破楼都没人来水了
 要国王是天生神力，在米迦勒出来给全场debuff的时候，别说飞机头，就算剑被打掉也是妥妥空手能干死血皮的逗13的，好不好 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  darkangel0224  
 ##### 1568#       发表于 2017-5-27 20:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36076874&amp;ptid=1229445" target="_blank">云梦泽岸 发表于 2017-5-27 20:13</a>
@@ -1316,16 +877,10 @@ B站不更新这破楼都没人来水了
 逗13被氪星石骑士团吊打，那是从头一直表现到尾的；被人抓着脚腕摔，也是米迦勒被带走后，氪星团回复战斗力的时候 
 
 
-
-
-
-
-
 -----
 
 ####  darkangel0224  
 ##### 1569#       发表于 2017-5-27 20:55
-
 
 
  本帖最后由 darkangel0224 于 2017-5-27 20:58 编辑 
@@ -1335,25 +890,13 @@ B站不更新这破楼都没人来水了
 气氛表现也是甚为尴尬（比如飞机头搅局，妹子嘴炮皇帝），尤其是妹子憋气想变龙那里，我是理解了导演想表现出星战里卢克练原力那段的失落感，然而没人给你肝镜头和细节，这一分多钟的效果简直惨呐——大概当时导演的心境就是，你说我能怎么办，没人肝，我也很绝望啊 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 1570#       发表于 2017-5-27 20:55
 
 
-
-
 这集平民给妮娜说了句好话，立马就给士兵拿枪指着威胁，对恶魔天使真是恨之入骨，哪怕你帮囚犯说一句话都得关进大牢。
-
-
-
-
-
 
 
 -----
@@ -1362,17 +905,10 @@ B站不更新这破楼都没人来水了
 ##### 1571#       发表于 2017-5-27 20:58
 
 
-
-
 阿酱明明又坑了下妮娜
 
 
 法瓦罗<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1381,14 +917,7 @@ B站不更新这破楼都没人来水了
 ##### 1572#       发表于 2017-5-27 21:03
 
 
-
-
 本来妮娜对国王就不满意了，第4集看了恶魔的惨况就说出国王是个糟糕的国王，第7话看礼典被平民告知国王过去了后说我才不是为了看国王，充分表现出对国王的轻蔑。这集更是一口气爆发对国王的不满。
-
-
-
-
-
 
 
 -----
@@ -1397,14 +926,7 @@ B站不更新这破楼都没人来水了
 ##### 1573#       发表于 2017-5-27 21:04
 
 
-
-
 法瓦罗这造型真是跟ed里妮娜顶在头上那坨一毛一样啊
-
-
-
-
-
 
 
 -----
@@ -1413,14 +935,7 @@ B站不更新这破楼都没人来水了
 ##### 1574#       发表于 2017-5-27 21:05
 
 
-
-
 3人斗剑那里很帅，就是太短。
-
-
-
-
-
 
 
 -----
@@ -1429,24 +944,16 @@ B站不更新这破楼都没人来水了
 ##### 1575#       发表于 2017-5-27 21:08
 
 
-
-
 法瓦罗！！！！！！！！
 
 法瓦罗在监狱倒是不意外，ed里面的形象就是监狱里的
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">国王已经达成了把上季男一男二全关起来的成就，坐等他被联手反杀
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 1576#       发表于 2017-5-27 21:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36076874&amp;ptid=1229445" target="_blank">云梦泽岸 发表于 2017-5-27 20:13</a>
@@ -1458,16 +965,10 @@ B站不更新这破楼都没人来水了
 要不是路西法太华丽动不了的话
 
 
-
-
-
-
-
 -----
 
 ####  darkangel0224  
 ##### 1577#       发表于 2017-5-27 21:18
-
 
 
  本帖最后由 darkangel0224 于 2017-5-27 21:19 编辑 
@@ -1477,16 +978,10 @@ B站不更新这破楼都没人来水了
 这个镜头本来可能是想表现一下被砸成肉饼，不成“魔”形的意思（注意一下上集高达砸下去时候，那里有个特别奇特的音效）；然而从上全身个镜头里看，整个面部是被一块碎石板遮住了，除非逗13趴着看，不然是看不到脸的。所以，你可以认为逗13眼里那个倒影其实是mappa没动力肝，乱画的 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  darkangel0224  
 ##### 1578#       发表于 2017-5-27 21:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36076122&amp;ptid=1229445" target="_blank">断裂的歌谣 发表于 2017-5-27 18:31</a>
@@ -1497,27 +992,15 @@ B站不更新这破楼都没人来水了
 这集连最基本的人物站位都搞错了（三人斗剑），根本没余力管气氛把控了 <img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Katara  
 ##### 1579#       发表于 2017-5-27 21:27
 
 
-
-
 其实演出一直都有点怪吧，轮到这一集才雪崩了
 
 上一季也有类似的问题，Mappa就没有不高开低走过
-
-
-
-
-
 
 
 -----
@@ -1526,21 +1009,13 @@ B站不更新这破楼都没人来水了
 ##### 1580#       发表于 2017-5-27 22:10
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这片里不跟贞德站一队的国王可是很危险的
-
-
-
-
-
 
 
 -----
 
 ####  Chia  
 ##### 1581#       发表于 2017-5-27 22:15
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201705/27/221515a1asc6pqhaszeqs7.jpg" referrerpolicy="no-referrer">
@@ -1553,17 +1028,7 @@ B站不更新这破楼都没人来水了
 2017-5-27 22:15 上传
 
 
-
-
-
-
-
 收录现场看起来还挺厉害
-
-
-
-
-
 
 
 -----
@@ -1572,16 +1037,10 @@ B站不更新这破楼都没人来水了
 ##### 1582#       发表于 2017-5-27 22:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36077636&amp;ptid=1229445" target="_blank">ardito 发表于 2017-5-27 22:10</a>
 
 这片里不跟贞德站一队的国王可是很危险的</blockquote>
 问题是贞德现在也只信孩子他爹，不知道该插到哪个势力中
-
-
-
-
-
 
 
 -----
@@ -1590,23 +1049,16 @@ B站不更新这破楼都没人来水了
 ##### 1583#       发表于 2017-5-27 22:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36077688&amp;ptid=1229445" target="_blank">Chia 发表于 2017-5-27 22:17</a>
 
 问题是贞德现在也只信孩子他爹，不知道该插到哪个势力中</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">至少不会插到屠神灭魔
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 1584#       发表于 2017-5-27 22:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36077734&amp;ptid=1229445" target="_blank">ardito 发表于 2017-5-27 22:24</a>
@@ -1622,16 +1074,10 @@ B站不更新这破楼都没人来水了
 <img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ardito  
 ##### 1585#       发表于 2017-5-27 22:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36077858&amp;ptid=1229445" target="_blank">Chia 发表于 2017-5-27 22:42</a>
@@ -1643,32 +1089,19 @@ B站不更新这破楼都没人来水了
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">有本事再演一遍嘛，那我是服的
 
 
-
-
-
-
-
 -----
 
 ####  c88711611  
 ##### 1586#       发表于 2017-5-27 22:52
 
 
-
-
 某人又开始了，哈哈，女主这圣母发言真是太少女漫了，看后面怎么发展
-
-
-
-
-
 
 
 -----
 
 ####  83913536  
 ##### 1587#       发表于 2017-5-27 22:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36075318&amp;ptid=1229445" target="_blank">nage560 发表于 2017-5-27 17:07</a>
@@ -1679,32 +1112,19 @@ B站不更新这破楼都没人来水了
 主要责任肯定是阿酱的，知道国王贯彻三光政策，还带手下为数不多的战斗力去送死...这下城市的恶魔更难过了
 
 
-
-
-
-
-
 -----
 
 ####  c88711611  
 ##### 1588#       发表于 2017-5-27 22:56
 
 
-
-
 凯撒作为骑士团长居然在国王被恶魔袭击后还能站恶魔一边，只能说这人物非常之迷，太tm少女漫了，还不如第一季呢，另外真不是故意关进监狱岛的，凯撒关在法瓦罗对面，女主关在贞德对面？这tm也太巧了吧
-
-
-
-
-
 
 
 -----
 
 ####  nage560  
 ##### 1589#       发表于 2017-5-27 23:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36077954&amp;ptid=1229445" target="_blank">83913536 发表于 2017-5-27 22:55</a>
@@ -1715,16 +1135,10 @@ B站不更新这破楼都没人来水了
 主要责任当然是阿萨，但根本原因是国王要屠尽魔族。这集国王逼问阿萨交代剩下的恶魔在哪里，然后说以后迟早会歼灭天使，国王就是想先屠尽魔族再杀天使，这集能100%确认这点了。接下来的剧情估计就是监狱里那几个主角配角一起越狱阻止国王了。
 
 
-
-
-
-
-
 -----
 
 ####  c88711611  
 ##### 1590#       发表于 2017-5-27 23:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36077954&amp;ptid=1229445" target="_blank">83913536 发表于 2017-5-27 22:55</a>
@@ -1735,16 +1149,10 @@ B站不更新这破楼都没人来水了
 国王必须对想杀自己的恐怖分子手下留情，玻璃心萌豚的心理你别猜，猜不透的，上周恶魔小姐姐死了，他已经发过一次疯了，
 
 
-
-
-
-
-
 -----
 
 ####  83913536  
 ##### 1591#       发表于 2017-5-27 23:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36077969&amp;ptid=1229445" target="_blank">c88711611 发表于 2017-5-27 22:56</a>
@@ -1753,17 +1161,10 @@ B站不更新这破楼都没人来水了
 国王：来，快来干我
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 1592#       发表于 2017-5-27 23:09
-
-
 
 
 其实这集我对凯撒还是有改观的
@@ -1780,26 +1181,14 @@ B站不更新这破楼都没人来水了
 特别生硬
 
 
-
-
-
-
-
 -----
 
 ####  killbillwillil  
 ##### 1593#       发表于 2017-5-27 23:09
 
 
-
-
 这话一句台词很好表现了我从中盘开始的心情：
 <img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">“——那人到底想干嘛啊”
-
-
-
-
-
 
 
 -----
@@ -1808,16 +1197,10 @@ B站不更新这破楼都没人来水了
 ##### 1594#       发表于 2017-5-27 23:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36077969&amp;ptid=1229445" target="_blank">c88711611 发表于 2017-5-27 22:56</a>
 
 凯撒作为骑士团长居然在国王被恶魔袭击后还能站恶魔一边，只能说这人物非常之迷，太tm少女漫了，还不如第一 ...</blockquote>
 凯撒不就是女主角吗？<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1826,16 +1209,10 @@ B站不更新这破楼都没人来水了
 ##### 1595#       发表于 2017-5-27 23:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36077996&amp;ptid=1229445" target="_blank">nage560 发表于 2017-5-27 23:00</a>
 
 主要责任当然是阿萨，但根本原因是国王要屠尽魔族。这集国王逼问阿萨交代剩下的恶魔在哪里，然后说以后迟 ...</blockquote>
 国王可没有要屠魔,真把模组屠了谁来干活这次是阿酱自己打上门来死了活该
-
-
-
-
-
 
 
 -----
@@ -1844,16 +1221,10 @@ B站不更新这破楼都没人来水了
 ##### 1596#       发表于 2017-5-27 23:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36078144&amp;ptid=1229445" target="_blank">567844 发表于 2017-5-27 23:16</a>
 
 国王可没有要屠魔,真把模组屠了谁来干活这次是阿酱自己打上门来死了活该 ...</blockquote>
 有力量有威胁的已经屠的差不多了，或者被抓去斗技场供娱乐。无力量有力气的恶魔抓去当奴隶，无力量又无力气的幼年恶魔送给高官土豪当玩具。这集严刑拷打是逼问阿萨剩下的恶魔在哪里躲着（就是第4集出现的那些老弱病残），恶魔是没有杀尽，但比杀掉还惨。
-
-
-
-
-
 
 
 -----
@@ -1862,16 +1233,10 @@ B站不更新这破楼都没人来水了
 ##### 1597#       发表于 2017-5-27 23:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36077998&amp;ptid=1229445" target="_blank">c88711611 发表于 2017-5-27 23:00</a>
 
 国王必须对想杀自己的恐怖分子手下留情，玻璃心萌豚的心理你别猜，猜不透的，上周恶魔小姐姐死了，他已经 ...</blockquote>
 不站国王队，就是感慨下一干大众脸的惨况死伤渲染半天还是要死个妹子才能爆发，说实在的国王动机也挺迷不知道后面剧情能说通吗
-
-
-
-
-
 
 
 -----
@@ -1880,16 +1245,10 @@ B站不更新这破楼都没人来水了
 ##### 1598#       发表于 2017-5-27 23:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36078221&amp;ptid=1229445" target="_blank">83913536 发表于 2017-5-27 23:25</a>
 
 不站国王队，就是感慨下一干大众脸的惨况死伤渲染半天还是要死个妹子才能爆发，说实在的国王动机也挺迷不 ...</blockquote>
 动机倒不迷，没见着他没事就去个坟墓面前站着么？肯定是10年前巴哈姆特闹王都时至亲之人死了呗，而且多半是他妈。然后把问题归咎于神魔两族，决定干死神魔。
-
-
-
-
-
 
 
 -----
@@ -1898,22 +1257,15 @@ B站不更新这破楼都没人来水了
 ##### 1599#       发表于 2017-5-27 23:55
 
 
-
  本帖最后由 nage560 于 2017-5-28 00:01 编辑 
 
 某人还抓着我是因为怠惰魔死才对国王转恨的萌豚玻璃心？第一集开始我就觉得国王做法不对太极端。之前我也解释过了竟然还抓着这点不放。还有即使真是因为怠惰魔死了对国王路人转黑就是萌豚玻璃心？隔壁rec魔法少女死了，专楼里面全是从军姬粉转军姬黑的难道都是萌豚玻璃心了？
-
-
-
-
-
 
 
 -----
 
 ####  临界点  
 ##### 1600#       发表于 2017-5-28 00:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36077954&amp;ptid=1229445" target="_blank">83913536 发表于 2017-5-27 22:55</a>
@@ -1924,16 +1276,10 @@ B站不更新这破楼都没人来水了
 平时国王根本不出来（微服私访那种不算） 这次是最好的机会了  不赌一把  也都要死光了
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 1601#       发表于 2017-5-28 00:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36078072&amp;ptid=1229445" target="_blank">Chia 发表于 2017-5-27 23:09</a>
@@ -1946,16 +1292,10 @@ B站不更新这破楼都没人来水了
 以妮娜的视角来说很正常吧   
 
 
-
-
-
-
-
 -----
 
 ####  EdmundPZhang  
 ##### 1602#       发表于 2017-5-28 00:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36075614&amp;ptid=1229445" target="_blank">xiaomajia2000 发表于 2017-5-27 17:41</a>
@@ -1965,16 +1305,10 @@ B站不更新这破楼都没人来水了
 —— 来自 Xiaomi MI 6, Android 7.1.1上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  战场公主希维尔  
 ##### 1603#       发表于 2017-5-28 00:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36078449&amp;ptid=1229445" target="_blank">nage560 发表于 2017-5-27 23:55</a>
@@ -1983,16 +1317,10 @@ B站不更新这破楼都没人来水了
 我艹，在这里还能被剧透隔壁！
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 1604#       发表于 2017-5-28 00:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36076360&amp;ptid=1229445" target="_blank">nage560 发表于 2017-5-27 18:59</a>
@@ -2001,16 +1329,10 @@ B站不更新这破楼都没人来水了
 他肯定不是人魔混血  要不也会被那绿石控制了
 
 
-
-
-
-
-
 -----
 
 ####  Charizard  
 ##### 1605#       发表于 2017-5-28 00:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36078449&amp;ptid=1229445" target="_blank">nage560 发表于 2017-5-27 23:55</a>
@@ -2021,16 +1343,10 @@ B站不更新这破楼都没人来水了
 以及现在<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">没有站在（被一季人物凯撒贞德法瓦罗阿萨谢尔联手反对的）英明神武的人皇一边就有被扣帽子的可能啦
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 1606#       发表于 2017-5-28 00:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36078596&amp;ptid=1229445" target="_blank">临界点 发表于 2017-5-28 00:12</a>
@@ -2051,16 +1367,10 @@ B站不更新这破楼都没人来水了
 不但让之前的形象变成了脸谱，还给人一种现在又换了一个的错位感<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 1607#       发表于 2017-5-28 00:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36078694&amp;ptid=1229445" target="_blank">Chia 发表于 2017-5-28 00:28</a>
@@ -2074,32 +1384,19 @@ B站不更新这破楼都没人来水了
 再说国王一直不都是这个调调吗  他跟凯撒也没嘴炮过   都是很简单直接的    而且他对妮娜还是感兴趣的  
 
 
-
-
-
-
-
 -----
 
 ####  candygunbilly  
 ##### 1608#       发表于 2017-5-28 00:35
 
 
-
-
 演出太尴尬了 有种编剧写好剧本直接让画师开工的尴尬感<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  临界点  
 ##### 1609#       发表于 2017-5-28 00:36
-
 
 
 [https://ddnavi.com/news/377512/a/](https://ddnavi.com/news/377512/a/)
@@ -2120,17 +1417,10 @@ B站不更新这破楼都没人来水了
 &gt;姆伽羅之後會漸漸表現出人情味（欲望）
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1610#       发表于 2017-5-28 00:37
-
-
 
 
 国王明显中意这妹子才放任嘴炮的，以克里斯名义出城的时候也是好说话到不行，一回来直接对大臣板个脸叫他闭嘴，缺的也就是国王的过往经历这包袱了
@@ -2139,32 +1429,19 @@ B站不更新这破楼都没人来水了
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  大晓尧  
 ##### 1611#       发表于 2017-5-28 00:40
 
 
-
-
 虽然这集有好几个我喜欢的小段落，不过剧情有点点暴走的迹象？想表现三族混战但切入点太小了一点，魔族那边除了好惨其余都没有刻画，大家对魔族的印象还是传统的杀人干坏事的恶魔，但像丽塔那样温和的魔族也挺多的不是吗？神族那边刻画的就更少了，所以根本没展现好三族原来微妙的平衡被打破的感觉，原来我一直以为编剧后面会圆，但都到三族快混战的样子也没圆好前面该圆的世界观就不指望了......国王应该是认出妮娜了所以才没打断她的发言，但如果这一段发言就把国王打动了的话就真的很儿戏了，我希望国王要么坚定立场走到底，要么被焦作人后转变观念，而不是轻轻松松嘴炮或则感化就轻易变了念头。目前国王角色错位感太强了。
-
-
-
-
-
 
 
 -----
 
 ####  Chia  
 ##### 1612#       发表于 2017-5-28 00:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36078722&amp;ptid=1229445" target="_blank">临界点 发表于 2017-5-28 00:33</a>
@@ -2175,22 +1452,15 @@ B站不更新这破楼都没人来水了
 可能我表述的不对一个杀伐果断的独裁者会吃完整段嘴炮不还手给人感觉就很生硬。
 
 
-
 说起来，国王最后强调了一遍“你是红龙么”
 
 越发怀疑他有测谎能力了
-
-
-
-
-
 
 
 -----
 
 ####  Charizard  
 ##### 1613#       发表于 2017-5-28 00:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36078743&amp;ptid=1229445" target="_blank">临界点 发表于 2017-5-28 00:36</a>
@@ -2201,16 +1471,10 @@ https://ddnavi.com/news/377512/a/
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">对夏利欧斯这形容……看来我想看人皇吃瘪的愿望很难实现呀
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 1614#       发表于 2017-5-28 00:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36078761&amp;ptid=1229445" target="_blank">大晓尧 发表于 2017-5-28 00:40</a>
@@ -2221,16 +1485,10 @@ https://ddnavi.com/news/377512/a/
 没展现好三族原来微妙的平衡被打破的感觉是什么意思？第一季人类靠神族打魔族   这季人类屠魔灭神还不算打破怎么才算？
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 1615#       发表于 2017-5-28 00:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36078767&amp;ptid=1229445" target="_blank">Chia 发表于 2017-5-28 00:40</a>
@@ -2241,23 +1499,16 @@ https://ddnavi.com/news/377512/a/
 问妮娜是红龙么   是因为在意她啊
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 1616#       发表于 2017-5-28 01:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36078883&amp;ptid=1229445" target="_blank">临界点 发表于 2017-5-28 00:52</a>
 
 前几集他跟妮娜的戏白看了？  虽然是独裁但他内心很明显并不是那种真正绝情的人   这是他在王位上不得不 ...</blockquote>
 你说的有理，我知道这个要素存在但转接的生硬了
-
 
 
 另一个是因为动画经常给皇帝质问一个简单句子的特写，然后给个高深莫测的眼神
@@ -2268,16 +1519,10 @@ https://ddnavi.com/news/377512/a/
 结合他本体就不正常的战斗力，我觉得他也有一些特异能力吧
 
 
-
-
-
-
-
 -----
 
 ####  大晓尧  
 ##### 1617#       发表于 2017-5-28 01:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36078836&amp;ptid=1229445" target="_blank">临界点 发表于 2017-5-28 00:48</a>
@@ -2288,17 +1533,10 @@ https://ddnavi.com/news/377512/a/
 打动是指国王开始反省自己的作为啦，我注意到国王有几个沉思的镜头。明明现在是人族吊打神魔，神族目前没有看出联合恶魔打人类的打算（目前仅是想恢复信仰）。关于微妙的平衡我是这么理解的，上一季因为神之钥引发三族混战，但看得出三族不是完全对立的，恶魔参与进来的主要是别西朴，被忽悠的阿酱等，路西法完全没理，并不是所有魔族都攻击人类。天使帮助人类，但主要目的是守护神之钥，而非消灭魔族，唤醒巴哈姆特的是人类愉悦犯，最后大家一起齐心打巴哈。彼此之间的并非你死我活的关系，而是共存偶尔互相打打的三国鼎立状态。但这一季对于魔族和神族的刻画有点片面了，不是说没展现好“打破”，而是没承接上一季的“平衡刻画”，这个平衡不是指战力大小，而是各族状态更深入的刻画。
 
 
-
-
-
-
-
 -----
 
 ####  glrzhy  
 ##### 1618#       发表于 2017-5-28 01:08
-
-
 
 
 到第8集红毛才登场，这季男主其实是凯撒吧，最后走向就是人类至上屠神灭魔吗……<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
@@ -2307,16 +1545,10 @@ https://ddnavi.com/news/377512/a/
 说实话从第一季神魔的表现看，要站人类屁股这边凯撒还真是人类希望之主了。现在唯一问题在于神魔战力加起来都打不过龙族啊。
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 1619#       发表于 2017-5-28 01:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36079061&amp;ptid=1229445" target="_blank">glrzhy 发表于 2017-5-28 01:08</a>
@@ -2333,16 +1565,10 @@ https://ddnavi.com/news/377512/a/
 我看巴哈当狱卒都够呛<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zxc786  
 ##### 1620#       发表于 2017-5-28 01:16
-
 
 
 <blockquote>glrzhy 发表于 2017-5-28 01:08
@@ -2353,16 +1579,10 @@ https://ddnavi.com/news/377512/a/
 女主应该不是普通的龙，怕不是大表哥转世，其他龙战斗力可能没这么强。
 
 
-
-
-
-
-
 -----
 
 ####  zxc786  
 ##### 1621#       发表于 2017-5-28 01:17
-
 
 
 <blockquote>Chia 发表于 2017-5-28 01:13
@@ -2374,32 +1594,19 @@ https://ddnavi.com/news/377512/a/
 万一女主就是大表哥呢,,(滑稽。
 
 
-
-
-
-
-
 -----
 
 ####  yanbo8502  
 ##### 1622#       发表于 2017-5-28 03:30
 
 
-
-
 法瓦罗出来了，进了监狱，一看就是有计划，那肯定是和阿蜜拉有关啊，能让法瓦罗认真的也只有阿蜜拉了，这一季莫非就是俩巴哈姆特的小号（阿蜜拉和妮娜）的力量怼天使+国王？
-
-
-
-
-
 
 
 -----
 
 ####  yanbo8502  
 ##### 1623#       发表于 2017-5-28 03:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36079087&amp;ptid=1229445" target="_blank">Chia 发表于 2017-5-28 01:13</a>
@@ -2411,16 +1618,10 @@ https://ddnavi.com/news/377512/a/
 贞德没了神的加护，被凯撒随便虐
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 1624#       发表于 2017-5-28 06:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36078676&amp;ptid=1229445" target="_blank">Charizard 发表于 2017-5-28 00:26</a>
@@ -2431,16 +1632,10 @@ https://ddnavi.com/news/377512/a/
 后面国王要被打脸的时候，我就怕国王控要大喊编剧喂翔3观不正了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">。
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 1625#       发表于 2017-5-28 06:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36078630&amp;ptid=1229445" target="_blank">临界点 发表于 2017-5-28 00:18</a>
@@ -2449,26 +1644,15 @@ https://ddnavi.com/news/377512/a/
 还不知道人魔受不受氪石影响，比如妮娜人龙混血就不受影响。
 
 
-
-
-
-
-
 -----
 
 ####  灵魂收割机  
 ##### 1626#       发表于 2017-5-28 08:05
 
 
-
 <blockquote>nage560 发表于 2017-5-27 23:55
 某人还抓着我是因为怠惰魔死才对国王转恨的萌豚玻璃心？第一集开始我就觉得国王做法不对太极端。之前我也解 ...</blockquote>
 杀个角色多正常的事情，还不一定杀得死。军服黑主要是因为军服时髦值跌穿了。
-
-
-
-
-
 
 
 -----
@@ -2477,14 +1661,7 @@ https://ddnavi.com/news/377512/a/
 ##### 1627#       发表于 2017-5-28 08:13
 
 
-
-
 笑死了，你真当别人都是跟你一样是只看角色的？故事讲得好我就看，至于你，还国王控，你是哪里来的给啊？男性角色你也能说出控这个字，我是不知道这是什么心态
-
-
-
-
-
 
 
 -----
@@ -2493,16 +1670,10 @@ https://ddnavi.com/news/377512/a/
 ##### 1628#       发表于 2017-5-28 09:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36078449&amp;ptid=1229445" target="_blank">nage560 发表于 2017-5-27 23:55</a>
 
 某人还抓着我是因为怠惰魔死才对国王转恨的萌豚玻璃心？第一集开始我就觉得国王做法不对太极端。之前我也解 ...</blockquote>
 那人在这贴子里的发言根本不能看，一直在围绕着凯撒是人奸这点批，你说什么他都无视，然后就是一直在说少女漫毁逼格，完全就是在对少女漫发泄不满情绪，不知道他都看什么有逼格的动画
-
-
-
-
-
 
 
 -----
@@ -2511,16 +1682,10 @@ https://ddnavi.com/news/377512/a/
 ##### 1629#       发表于 2017-5-28 09:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36081515&amp;ptid=1229445" target="_blank">xiaomajia2000 发表于 2017-5-28 09:21</a>
 
 那人在这贴子里的发言根本不能看，一直在围绕着凯撒是人奸这点批，你说什么他都无视，然后就是一直在说少 ...</blockquote>
 之前他还发过一贴rec的政府不干事，结果过了1话就被打脸了。反正我觉得他是想带节奏，别理他就行。
-
-
-
-
-
 
 
 -----
@@ -2529,22 +1694,13 @@ https://ddnavi.com/news/377512/a/
 ##### 1630#       发表于 2017-5-28 09:29
 
 
-
-
 开个脑洞，法瓦罗是国王一派的，至少他俩的某些目的一样 
-
-
-
-
-
 
 
 -----
 
 ####  foraiur  
 ##### 1631#       发表于 2017-5-28 09:47
-
-
 
 
 妮娜开始嘴炮就快进了
@@ -2554,16 +1710,10 @@ https://ddnavi.com/news/377512/a/
 真的
 
 
-
-
-
-
-
 -----
 
 ####  新屋  
 ##### 1632#       发表于 2017-5-28 09:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36081648&amp;amp;ptid=1229445" target="_blank">foraiur 发表于 2017-5-28 09:47</a>
@@ -2575,32 +1725,19 @@ https://ddnavi.com/news/377512/a/
 她本就是个见识少不懂规矩凭直观感受的小孩，能指望她说出什么言简意赅条理清晰的话
 
 
-
-
-
-
-
 -----
 
 ####  xxlol  
 ##### 1633#       发表于 2017-5-28 10:07
 
 
-
-
 这不合理那不合理的，感觉你们不是看动画是在看世界名著，还有喷女主嘴炮的，就因为俗套就不能用？反正我觉得女主的爆发点特别正常，一开始就以为自己状况外竟然会被判无期，再联想到之前的所闻是个人都会愤怒，设定就是个乡巴佬，偏让人家拼演技，
-
-
-
-
-
 
 
 -----
 
 ####  darkangel0224  
 ##### 1634#       发表于 2017-5-28 10:15
-
 
 
 <blockquote>xxlol 发表于 2017-5-28 10:07
@@ -2612,32 +1749,19 @@ https://ddnavi.com/news/377512/a/
 这里就是mappa没肝力的锅了，表现出的氛围太糟糕了
 
 
-
-
-
-
-
 -----
 
 ####  xxlol  
 ##### 1635#       发表于 2017-5-28 10:17
 
 
-
-
  突然冒出这么多喷女主的，不是他妈傻逼腐女又混进来了 <img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xxlol  
 ##### 1636#       发表于 2017-5-28 10:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36081837&amp;ptid=1229445" target="_blank">darkangel0224 发表于 2017-5-28 10:15</a>
@@ -2648,25 +1772,13 @@ https://ddnavi.com/news/377512/a/
 腐女看到两个男人铜矿不需要桥段尬聊也他妈能high起来，换成个女的多BB两句就他妈嫌烦了
 
 
-
-
-
-
-
 -----
 
 ####  半自动式宅  
 ##### 1637#       发表于 2017-5-28 10:24
 
 
-
-
 法瓦罗这毛发量……这是被关了多久
-
-
-
-
-
 
 
 -----
@@ -2675,14 +1787,7 @@ https://ddnavi.com/news/377512/a/
 ##### 1638#       发表于 2017-5-28 10:24
 
 
-
-
 妮娜本来就是村姑，还是直肠子，这顿嘴炮很符合她本身的角色性格啊。
-
-
-
-
-
 
 
 -----
@@ -2691,17 +1796,10 @@ https://ddnavi.com/news/377512/a/
 ##### 1639#       发表于 2017-5-28 10:35
 
 
-
-
  妮娜嘴炮是蠢，但是国王干笑几声很好啊，比楼上某人说的沉默扇耳光高到不知哪里去了。这集感觉就是过渡回整篇水过去了，所有东西都是顺理成章，阿萨蠢角团灭卖队友，凯撒当二五被抓，妮娜傻大姑乱讲话，国王偏袒妮娜，天使她们也早就盯着“转世灵童”了。不合理的地方也就是妮娜嘴炮开的太轻松和押送人员过少而已。
 
 
 法瓦的大胡子真是猥琐哈哈哈。
-
-
-
-
-
 
 
 -----
@@ -2710,14 +1808,7 @@ https://ddnavi.com/news/377512/a/
 ##### 1640#       发表于 2017-5-28 11:03
 
 
-
-
 法瓦罗你现在丑爆啦！哈哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2726,21 +1817,13 @@ https://ddnavi.com/news/377512/a/
 ##### 1641#       发表于 2017-5-28 11:16
 
 
-
-
 主角是女性太好了，各种颜艺
-
-
-
-
-
 
 
 -----
 
 ####  haozi513  
 ##### 1642#       发表于 2017-5-28 11:49
-
 
 
  本帖最后由 haozi513 于 2017-5-28 11:51 编辑 
@@ -2750,26 +1833,15 @@ https://ddnavi.com/news/377512/a/
 几年吧 估计来帝都找女主被抓的
 
 
-
-
-
-
-
 -----
 
 ####  tamying  
 ##### 1643#       发表于 2017-5-28 12:40
 
 
-
 <blockquote>xxlol 发表于 2017-5-28 10:22
 腐女看到两个男人铜矿不需要桥段尬聊也他妈能high起来，换成个女的多BB两句就他妈嫌烦了 ...</blockquote>
 不好意思这位，我是腐女但也是女主控，希望你来地图炮能注意点。突然被波及也是很无语的。
-
-
-
-
-
 
 
 -----
@@ -2778,15 +1850,9 @@ https://ddnavi.com/news/377512/a/
 ##### 1644#       发表于 2017-5-28 12:47
 
 
-
 <blockquote>xxlol 发表于 2017-5-28 10:17
 突然冒出这么多喷女主的，不是他妈傻逼腐女又混进来了</blockquote>
 不要甩锅腐女，是这桥段太霸道总裁爱上我了
-
-
-
-
-
 
 
 -----
@@ -2797,7 +1863,6 @@ https://ddnavi.com/news/377512/a/
 提示: 该帖被管理员或版主屏蔽
 
 
-
 -----
 
 ####  xxlol  
@@ -2806,13 +1871,10 @@ https://ddnavi.com/news/377512/a/
 提示: 该帖被管理员或版主屏蔽
 
 
-
 -----
 
 ####  大晓尧  
 ##### 1647#       发表于 2017-5-28 13:20
-
-
 
 
 地图炮那位大家就跨栏吧，除了他前面没人提过某群体，这话题和巴哈有什么关系啊。明显引战的就不要回复破坏专楼讨论剧情的了。
@@ -2822,25 +1884,13 @@ https://ddnavi.com/news/377512/a/
 以及我一直以为穆迦罗是米迦勒的化身，但这集加百利居然对她用了“母亲诱骗”这招，还知道她真名（虽然有点怀疑这个名字是编来骗穆迦罗的），那双方看上去是毫不认识的状态，米迦勒化身论有点站不住脚了。
 
 
-
-
-
-
-
 -----
 
 ####  xxlol  
 ##### 1648#       发表于 2017-5-28 13:33
 
 
-
-
 泥潭逸站后花园，不喷傻逼腐女对不起这集冒出来的骂女主党
-
-
-
-
-
 
 
 -----
@@ -2849,16 +1899,10 @@ https://ddnavi.com/news/377512/a/
 ##### 1649#       发表于 2017-5-28 13:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36083177&amp;ptid=1229445" target="_blank">大晓尧 发表于 2017-5-28 13:20</a>
 
 地图炮那位大家就跨栏吧，除了他前面没人提过某群体，这话题和巴哈有什么关系啊。明显引战的就不要回复破坏 ...</blockquote>
 基督圣子呗
-
-
-
-
-
 
 
 -----
@@ -2867,16 +1911,10 @@ https://ddnavi.com/news/377512/a/
 ##### 1650#       发表于 2017-5-28 13:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36083177&amp;ptid=1229445" target="_blank">大晓尧 发表于 2017-5-28 13:20</a>
 
 地图炮那位大家就跨栏吧，除了他前面没人提过某群体，这话题和巴哈有什么关系啊。明显引战的就不要回复破坏 ...</blockquote>
 好奇去看了他发的一个主题后我陷入了深思<img src="https://static.saraba1st.com/image/smiley/carton2017/055.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2885,16 +1923,10 @@ https://ddnavi.com/news/377512/a/
 ##### 1651#       发表于 2017-5-28 13:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36083304&amp;ptid=1229445" target="_blank">anubismk2 发表于 2017-5-28 13:35</a>
 
 基督圣子呗</blockquote>
 这剧情确实基督圣子感，不过穆迦罗不是女的？不对，性别现在还不能完全盖棺定论......感觉制作组有意模糊TA的性别，哪怕TA穿上裙子还是有种正太感，但散发露眼的时候那种可爱的女孩子的感觉也很强。
-
-
-
-
-
 
 
 -----
@@ -2903,16 +1935,10 @@ https://ddnavi.com/news/377512/a/
 ##### 1652#       发表于 2017-5-28 13:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36083177&amp;ptid=1229445" target="_blank">大晓尧 发表于 2017-5-28 13:20</a>
 
 地图炮那位大家就跨栏吧，除了他前面没人提过某群体，这话题和巴哈有什么关系啊。明显引战的就不要回复破坏 ...</blockquote>
 以法瓦罗的性格可能只是单纯的没钱还在酒店的赊账被抓起来了……当然也可能是为了救出贞德故意被捕什么的
-
-
-
-
-
 
 
 -----
@@ -2921,16 +1947,10 @@ https://ddnavi.com/news/377512/a/
 ##### 1653#       发表于 2017-5-28 13:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36083317&amp;ptid=1229445" target="_blank">Katara 发表于 2017-5-28 13:37</a>
 
 好奇去看了他发的一个主题后我陷入了深思</blockquote>
 二次元的话题别转移焦点，我发现你们女人就不能就事论事，女人被强奸了是不是还要人肉一下她的私生活，没少走这个思路替罪犯辩护吧
-
-
-
-
-
 
 
 -----
@@ -2939,16 +1959,10 @@ https://ddnavi.com/news/377512/a/
 ##### 1654#       发表于 2017-5-28 14:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36083412&amp;ptid=1229445" target="_blank">HLGG2 发表于 2017-5-28 13:53</a>
 
 以法瓦罗的性格可能只是单纯的没钱还在酒店的赊账被抓起来了……当然也可能是为了救出贞德故意被捕什么的 ...</blockquote>
 才赊个账不至于就就被扔进监狱岛啦，起码像凯撒一样犯个有辱圣上英明的罪才行。看法瓦罗的胡子头发都留的很长了，应该是关了很久，如果是救贞德以他能力性格应该会速战速决，要么是贞德不愿意走要么就是有更深层需要留下来的原因吧。
-
-
-
-
-
 
 
 -----
@@ -2957,20 +1971,13 @@ https://ddnavi.com/news/377512/a/
 ##### 1655#       发表于 2017-5-28 14:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">平心而论，这故事最近看起来真的有点崩
-
-
-
-
-
 
 
 -----
 
 ####  Katara  
 ##### 1656#       发表于 2017-5-28 14:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36083430&amp;ptid=1229445" target="_blank">xxlol 发表于 2017-5-28 13:56</a>
@@ -2981,16 +1988,10 @@ https://ddnavi.com/news/377512/a/
 一副疯狗样，挺女主的人都被你吓跑了
 
 
-
-
-
-
-
 -----
 
 ####  xxlol  
 ##### 1657#       发表于 2017-5-28 15:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36083771&amp;ptid=1229445" target="_blank">Katara 发表于 2017-5-28 14:46</a>
@@ -3001,16 +2002,10 @@ https://ddnavi.com/news/377512/a/
 噢原形毕露了开始泼妇骂街了  之前装的一副伪善样演戏呢
 
 
-
-
-
-
-
 -----
 
 ####  xxlol  
 ##### 1658#       发表于 2017-5-28 15:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36083771&amp;ptid=1229445" target="_blank">Katara 发表于 2017-5-28 14:46</a>
@@ -3021,17 +2016,10 @@ https://ddnavi.com/news/377512/a/
 披着张皮还装给女主撑腰，原来又是个腐蛆，被人发现开始骂街了，真他妈跟绿畜一个样 
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 1659#       发表于 2017-5-28 16:24
-
-
 
 
  这贴可不是垃圾堆   要人身攻击的人另外开楼去
@@ -3054,16 +2042,10 @@ https://ddnavi.com/news/377512/a/
 6第8、9话的制作事宜全部由另一名总作监羽山担当。还有就是起到关键转折的13话里，安排了“一堆好戏”，格外出彩。不过到了20话附近会有一段像《GENESIS》那样阴暗沉重的戏份
 
 
-
-
-
-
-
 -----
 
 ####  Katara  
 ##### 1660#       发表于 2017-5-28 16:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36084071&amp;ptid=1229445" target="_blank">xxlol 发表于 2017-5-28 15:36</a>
@@ -3074,25 +2056,13 @@ https://ddnavi.com/news/377512/a/
 另外我只是路过棒打疯狗，从来没装过好人，人身攻击已举报，谢谢合作
 
 
-
-
-
-
-
 -----
 
 ####  sta777  
 ##### 1661#       发表于 2017-5-28 16:29
 
 
-
-
 其实我对女主嘴炮这段还是挺知足的。。之前人魔神三族明枪暗箭不亦乐乎，七话过后女主却还只是逛街购物看帅哥，这好不容易站出来表明了一下立场，终于可以期待后面的故事由她带动剧情了，这还有什么不满意的。
-
-
-
-
-
 
 
 -----
@@ -3101,14 +2071,7 @@ https://ddnavi.com/news/377512/a/
 ##### 1662#       发表于 2017-5-28 16:37
 
 
-
-
 另外这片的格局简直比上一部还小，人族就靠一招吃遍天 能打的个体除了国王 剩下的也就剩监狱那几位了吧，魔族除了阿某人别的都死绝了？神族更low，把翻盘寄托于几个阿姨围一圈忽悠一个小朋友，难道不是趁着小朋友把人族武装无效化的时候一波A上去砍了国王更有效率嘛
-
-
-
-
-
 
 
 -----
@@ -3117,15 +2080,9 @@ https://ddnavi.com/news/377512/a/
 ##### 1663#       发表于 2017-5-28 16:59
 
 
-
  本帖最后由 幽香 于 2017-5-28 17:00 编辑 
 
 这剧情比起上一作拖到爆炸了，所以为什么要换编剧。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">另外这编剧到底是男是女，这第二部剧情感觉偏女性向啊
-
-
-
-
-
 
 
 -----
@@ -3134,23 +2091,16 @@ https://ddnavi.com/news/377512/a/
 ##### 1664#       发表于 2017-5-28 17:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36082191&amp;ptid=1229445" target="_blank">蓝莲安 发表于 2017-5-28 11:03</a>
 
 法瓦罗你现在丑爆啦！哈哈哈哈哈哈</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">胡说，发瓦罗现在烈焰红唇被大胡子遮住了很帅很帅的好伐。。。
 
 
-
-
-
-
-
 -----
 
 ####  Charizard  
 ##### 1665#       发表于 2017-5-28 17:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36084578&amp;ptid=1229445" target="_blank">幽香 发表于 2017-5-28 16:59</a>
@@ -3161,16 +2111,10 @@ https://ddnavi.com/news/377512/a/
 我没看过她写的日剧，不过据开播前的讨论，这是个以狗血贵乱著名的编剧
 
 
-
-
-
-
-
 -----
 
 ####  幽香  
 ##### 1666#       发表于 2017-5-28 17:11
-
 
 
  本帖最后由 幽香 于 2017-5-28 17:12 编辑 
@@ -3182,16 +2126,10 @@ https://ddnavi.com/news/377512/a/
 翻了下前面贴得采访这女的还好意思说，前作看完根本不知道说的啥，至少比第二部”霸道总裁爱上我”这种早就连我国三流小说偶像电视剧都已经不入流的调调要好得多吧。所以这男人之间的争斗果然也是女性视角，难怪看着这么别扭
 
 
-
-
-
-
-
 -----
 
 ####  xiaomajia2000  
 ##### 1667#       发表于 2017-5-28 17:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36084662&amp;ptid=1229445" target="_blank">幽香 发表于 2017-5-28 17:11</a>
@@ -3200,16 +2138,10 @@ https://ddnavi.com/news/377512/a/
 女性视角怎么了
 
 
-
-
-
-
-
 -----
 
 ####  幽香  
 ##### 1668#       发表于 2017-5-28 17:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36084703&amp;ptid=1229445" target="_blank">xiaomajia2000 发表于 2017-5-28 17:18</a>
@@ -3218,27 +2150,16 @@ https://ddnavi.com/news/377512/a/
 烂
 
 
-
-
-
-
-
 -----
 
 ####  xiaomajia2000  
 ##### 1669#       发表于 2017-5-28 17:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36084728&amp;ptid=1229445" target="_blank">幽香 发表于 2017-5-28 17:22</a>
 
 看不上呗</blockquote>
 为什么啊
-
-
-
-
-
 
 
 -----
@@ -3249,23 +2170,16 @@ https://ddnavi.com/news/377512/a/
 提示: 该帖被管理员或版主屏蔽
 
 
-
 -----
 
 ####  xiaomajia2000  
 ##### 1671#       发表于 2017-5-28 17:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36084737&amp;ptid=1229445" target="_blank">幽香 发表于 2017-5-28 17:23</a>
 
 关你屁事</blockquote>
 问问啊  不懂男女视角的区别啊
-
-
-
-
-
 
 
 -----
@@ -3276,12 +2190,10 @@ https://ddnavi.com/news/377512/a/
 提示: 该帖被管理员或版主屏蔽
 
 
-
 -----
 
 ####  xiaomajia2000  
 ##### 1673#       发表于 2017-5-28 17:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36084755&amp;ptid=1229445" target="_blank">幽香 发表于 2017-5-28 17:26</a>
@@ -3290,25 +2202,13 @@ https://ddnavi.com/news/377512/a/
 噢我看你回复别人了，以为你不介意被人回复呢，既然说了我就知道了，抱歉
 
 
-
-
-
-
-
 -----
 
 ####  大晓尧  
 ##### 1674#       发表于 2017-5-28 17:29
 
 
-
-
 好不容易送走一个地图炮人生攻击的，怎么又来一个？觉得剧情不好就好好列举不对劲的地方，而不是直接地图炮。不想和专楼里的人好好讨论就出去另外开贴。
-
-
-
-
-
 
 
 -----
@@ -3317,24 +2217,16 @@ https://ddnavi.com/news/377512/a/
 ##### 1675#       发表于 2017-5-28 17:32
 
 
-
-
 人家说的是不知道重点在哪所以希望这次写得直白一点，至于前作剧本已经自己反省过了，新剧本也是人家主动请来的，当然剧本也有参与
 
 
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  Charizard  
 ##### 1676#       发表于 2017-5-28 17:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36084662&amp;ptid=1229445" target="_blank">幽香 发表于 2017-5-28 17:11</a>
@@ -3344,16 +2236,10 @@ https://ddnavi.com/news/377512/a/
 <img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">效果好不好就是另一回事了
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1677#       发表于 2017-5-28 17:36
-
 
 
 <blockquote>引用第1664楼大晓尧于2017-05-28 13:20发表的  :
@@ -3365,25 +2251,13 @@ https://ddnavi.com/news/377512/a/
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  哥特式lolita  
 ##### 1678#       发表于 2017-5-28 17:38
 
 
-
-
 节奏慢＋1  一期尤其是头几集每集都信息爆炸能很好的演出一个完整的故事当然也可能是只有一季的容量的原因，也导致最后太多交代不清草草完结，二季容量充足了，但是没有很好的继承一季的节奏。另外女性视角往往更能讲好一个BG故事，但是就目前看来大石静这个霸道总裁路线塑造的完全不如一季的法瓦罗和阿米拉。能看出妮娜和国王的形象完全是为了吸引一期被人设赶跑的观众
-
-
-
-
-
 
 
 -----
@@ -3392,23 +2266,16 @@ https://ddnavi.com/news/377512/a/
 ##### 1679#       发表于 2017-5-28 17:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36084432&amp;ptid=1229445" target="_blank">sta777 发表于 2017-5-28 16:37</a>
 
 另外这片的格局简直比上一部还小，人族就靠一招吃遍天 能打的个体除了国王 剩下的也就剩监狱那几位了吧，魔 ...</blockquote>
 上季也就是抢个钥匙啊，格局哪里大了，不懂为什么对上季的印象比这季好这么多。
 
 
-
-
-
-
-
 -----
 
 ####  哥特式lolita  
 ##### 1680#       发表于 2017-5-28 17:42
-
 
 
 <blockquote>ulir 发表于 2017-5-28 17:36
@@ -3418,17 +2285,10 @@ https://ddnavi.com/news/377512/a/
 唔，莫名觉得这次CY和mappa没准还是没抓好观众G点，又要得罪一帮了wwwwww
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1681#       发表于 2017-5-28 17:45
-
-
 
 
 这次毕竟长度翻倍，上一季的问题可以去看之前某个访谈，当然不是说无条件支持这次的节奏，照这样看来第九话也是作画回，看13话能不能保证质量了
@@ -3437,16 +2297,10 @@ https://ddnavi.com/news/377512/a/
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  Charizard  
 ##### 1682#       发表于 2017-5-28 17:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36084871&amp;ptid=1229445" target="_blank">酒瓶止迁 发表于 2017-5-28 17:40</a>
@@ -3455,16 +2309,10 @@ https://ddnavi.com/news/377512/a/
 上季毕竟是公路片，比这季一直在一个小城里撕逼看起来好一点
 
 
-
-
-
-
-
 -----
 
 ####  酒瓶止迁  
 ##### 1683#       发表于 2017-5-28 17:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36084908&amp;ptid=1229445" target="_blank">Charizard 发表于 2017-5-28 17:45</a>
@@ -3473,33 +2321,19 @@ https://ddnavi.com/news/377512/a/
 确实该出城了
 
 
-
-
-
-
-
 -----
 
 ####  幽香  
 ##### 1684#       发表于 2017-5-28 17:46
 
 
-
-
 说起来这一季又是“找妈妈”能来点有新意的阴毛嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Charizard  
 ##### 1685#       发表于 2017-5-28 17:47
-
-
 
 
 都消消气，看看newtype的海报吧
@@ -3512,16 +2346,10 @@ https://ddnavi.com/news/377512/a/
 [img] <img src="http://ww1.sinaimg.cn/large/9e5923fcgy1fg17x7hcpnj20rs0iltel.jpg" referrerpolicy="no-referrer">[/img]
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1686#       发表于 2017-5-28 17:52
-
 
 
 <blockquote>引用第1697楼哥特式lolita于2017-05-28 17:42发表的  :
@@ -3533,16 +2361,10 @@ https://ddnavi.com/news/377512/a/
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  大晓尧  
 ##### 1687#       发表于 2017-5-28 17:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36084923&amp;ptid=1229445" target="_blank">Charizard 发表于 2017-5-28 17:47</a>
@@ -3555,16 +2377,10 @@ https://twitter.com/artbooksNat</blockquote>
 这张阿酱好帅，以及国王穿上黑西装之后更霸道总裁了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1688#       发表于 2017-5-28 17:57
-
 
 
 <blockquote>引用第1702楼Charizard于2017-05-28 17:47发表的  :
@@ -3576,16 +2392,10 @@ https://twitter.com/artbooksNat</blockquote>
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  慕小骨  
 ##### 1689#       发表于 2017-5-28 17:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36084923&amp;amp;ptid=1229445" target="_blank">Charizard 发表于 2017-5-28 17:47</a>
@@ -3597,17 +2407,10 @@ https://twitter.com/artbooksNat</blockquote>
 四人跨页那张图，凯撒这脸上的红晕怎么这么好笑，法瓦罗和其他人横向对比也太沧桑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  新屋  
 ##### 1690#       发表于 2017-5-28 18:00
-
-
 
 
 法瓦罗真够丑的，真心无法认同他。一想起阿米拉给了他简直好白菜被猪拱了。
@@ -3615,16 +2418,10 @@ https://twitter.com/artbooksNat</blockquote>
 鬼冢英吉虽然也是痞子，但也至少高大强壮不丑。
 
 
-
-
-
-
-
 -----
 
 ####  Katara  
 ##### 1691#       发表于 2017-5-28 18:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36084827&amp;ptid=1229445" target="_blank">ulir 发表于 2017-5-28 17:36</a>
@@ -3635,16 +2432,10 @@ https://twitter.com/artbooksNat</blockquote>
 我好奇点开了他发过的主题，我猜他可能被颜控女/腐女深深伤害过
 
 
-
-
-
-
-
 -----
 
 ####  Charizard  
 ##### 1692#       发表于 2017-5-28 18:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36084997&amp;ptid=1229445" target="_blank">慕小骨 发表于 2017-5-28 17:58</a>
@@ -3655,16 +2446,10 @@ https://twitter.com/artbooksNat</blockquote>
 法瓦罗大牢不知道蹲了几年，老得快也正常
 
 
-
-
-
-
-
 -----
 
 ####  darkangel0224  
 ##### 1693#       发表于 2017-5-28 18:04
-
 
 
 <blockquote>sta777 发表于 2017-5-28 16:37
@@ -3680,16 +2465,10 @@ https://twitter.com/artbooksNat</blockquote>
 显然是有龙帮我们抢人最好；即使不变龙，也不能先动手撕破脸皮硬抢，另寻对策（按照和逗B之后的对话）
 
 
-
-
-
-
-
 -----
 
 ####  Katara  
 ##### 1694#       发表于 2017-5-28 18:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36084923&amp;ptid=1229445" target="_blank">Charizard 发表于 2017-5-28 17:47</a>
@@ -3702,25 +2481,13 @@ https://twitter.com/artbooksNat</blockquote>
 妮娜和版权绘有仇吧，每一次都画她的颜艺<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xiaomajia2000  
 ##### 1695#       发表于 2017-5-28 18:08
 
 
-
-
 俊男美女的爱情多美好，不懂为什么现在其他番都是屌丝配美女
-
-
-
-
-
 
 
 -----
@@ -3729,23 +2496,16 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1696#       发表于 2017-5-28 18:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36084997&amp;ptid=1229445" target="_blank">慕小骨 发表于 2017-5-28 17:58</a>
 
 四人跨页那张图，凯撒这脸上的红晕怎么这么好笑，法瓦罗和其他人横向对比也太沧桑了 ...</blockquote>
 沧桑是男人的浪漫啊哈哈，法瓦罗真的越来越有年长引导者的感觉了。我觉得他PV里有胡子露脸的那个镜头比第一季都还要帅。
 
 
-
-
-
-
-
 -----
 
 ####  beer  
 ##### 1697#       发表于 2017-5-28 18:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36084990&amp;ptid=1229445" target="_blank">ulir 发表于 2017-5-28 17:57</a>
@@ -3755,25 +2515,13 @@ https://twitter.com/artbooksNat</blockquote>
 感觉比较看得舒服的版权绘都放NT上去了
 
 
-
-
-
-
-
 -----
 
 ####  アキモト  
 ##### 1698#       发表于 2017-5-28 18:41
 
 
-
-
 阿酱西装很帅啊 国王果然肉食系
-
-
-
-
-
 
 
 -----
@@ -3782,21 +2530,13 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1699#       发表于 2017-5-28 19:00
 
 
-
-
 抓不抓得住观众G点这话有待商榷，好像只是抓不住你们某些人的G点而已。我看海外反应都很好。我个人是觉得一半一半吧，剧情越来越迷但还是挺吸引我的。
-
-
-
-
-
 
 
 -----
 
 ####  567844  
 ##### 1700#       发表于 2017-5-28 19:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36085007&amp;ptid=1229445" target="_blank">新屋 发表于 2017-5-28 18:00</a>
@@ -3807,25 +2547,13 @@ https://twitter.com/artbooksNat</blockquote>
 你可以黑法瓦罗的发型抽但是论身材那是刚刚的
 
 
-
-
-
-
-
 -----
 
 ####  今村耕平  
 ##### 1701#       发表于 2017-5-28 19:03
 
 
-
-
 凯撒居然这么强，最后那下装逼还蛮帅的
-
-
-
-
-
 
 
 -----
@@ -3834,16 +2562,10 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1702#       发表于 2017-5-28 19:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36085458&amp;ptid=1229445" target="_blank">今村耕平 发表于 2017-5-28 19:03</a>
 
 凯撒居然这么强，最后那下装逼还蛮帅的</blockquote>
 然而恶魔叛乱份子一个也抓不到
-
-
-
-
-
 
 
 -----
@@ -3852,14 +2574,7 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1703#       发表于 2017-5-28 20:02
 
 
-
-
 一开始我以为是靠实力KO神魔的，现在好像是靠那个绿石头的原因啊？？这不行啊，图样
-
-
-
-
-
 
 
 -----
@@ -3868,24 +2583,15 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1704#       发表于 2017-5-28 20:08
 
 
-
-
 我感觉国王到现在都还没玩脱。关牢里也是觉得妮娜这只小猫咪逃不出自己的大棋。
 
 至于说法瓦罗关牢里是不是下大棋，我只想说他的智商能去下大棋吗？说不定就只是摸了个包被关进来了。
-
-
-
-
-
 
 
 -----
 
 ####  C男人  
 ##### 1705#       发表于 2017-5-28 20:40
-
-
 
 
 写作“监狱”，读作“井冈山”吗？
@@ -3899,16 +2605,10 @@ https://twitter.com/artbooksNat</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  阿虚家的三味  
 ##### 1706#       发表于 2017-5-28 20:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36086235&amp;ptid=1229445" target="_blank">C男人 发表于 2017-5-28 20:40</a>
@@ -3920,25 +2620,13 @@ https://twitter.com/artbooksNat</blockquote>
 剩下的就是国王自信过头吃瘪，监狱一塌，大家反攻了么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Yeaha123  
 ##### 1707#       发表于 2017-5-28 21:10
 
 
-
-
 原来阿萨谢尔是真飞鸟役
-
-
-
-
-
 
 
 -----
@@ -3947,16 +2635,10 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1708#       发表于 2017-5-28 21:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36085495&amp;ptid=1229445" target="_blank">567844 发表于 2017-5-28 19:08</a>
 
 然而恶魔叛乱份子一个也抓不到</blockquote>
 他的目的是阻止  又不是抓人  再说等他到的时候都只剩下一个了
-
-
-
-
-
 
 
 -----
@@ -3965,16 +2647,10 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1709#       发表于 2017-5-28 21:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36085846&amp;ptid=1229445" target="_blank">纯狐 发表于 2017-5-28 20:02</a>
 
 一开始我以为是靠实力KO神魔的，现在好像是靠那个绿石头的原因啊？？这不行啊，图样 ...</blockquote>
 这一开始就表现得很清楚了吧  对话里面也出现了很多次了啊  到现在才理解？
-
-
-
-
-
 
 
 -----
@@ -3983,13 +2659,7 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1710#       发表于 2017-5-28 21:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">傻逼导演，恶魔小姐姐死了。
-
-
-
-
-
 
 
 -----
@@ -3998,15 +2668,9 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1711#       发表于 2017-5-28 22:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36085441&amp;ptid=1229445" target="_blank">567844 发表于 2017-5-28 19:01</a>
 你可以黑法瓦罗的发型抽但是论身材那是刚刚的</blockquote>
 发型？上一期湿身（头）截图啊！
-
-
-
-
-
 
 
 -----
@@ -4015,16 +2679,10 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1712#       发表于 2017-5-28 23:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36086653&amp;ptid=1229445" target="_blank">临界点 发表于 2017-5-28 21:31</a>
 
 这一开始就表现得很清楚了吧  对话里面也出现了很多次了啊  到现在才理解？ ...</blockquote>
 。。。不是那种喜欢钻研动漫的人，一般都是很随性的观看，可能是我看漏了哪里吧
-
-
-
-
-
 
 
 -----
@@ -4033,21 +2691,13 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1713#       发表于 2017-5-29 00:22
 
 
-
-
 二期有不停吃瘪的阿酱，还有什么不满                 从我看来阿酱和路西法很像，为什么大家都觉得路西法大帅b阿酱是个逗比←_←
-
-
-
-
-
 
 
 -----
 
 ####  DOACAON  
 ##### 1714#       发表于 2017-5-29 00:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36088051&amp;ptid=1229445" target="_blank">哆啦b梦 发表于 2017-5-28 11:22</a>
@@ -4058,16 +2708,10 @@ https://twitter.com/artbooksNat</blockquote>
 另外到隔壁GBF戏棚里客串的路西法（未堕落版）也是逼格飞起，跟阿酱的搞笑定位完全不同
 
 
-
-
-
-
-
 -----
 
 ####  HLGG2  
 ##### 1715#       发表于 2017-5-29 02:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36085495&amp;ptid=1229445" target="_blank">567844 发表于 2017-5-28 19:08</a>
@@ -4076,25 +2720,13 @@ https://twitter.com/artbooksNat</blockquote>
 恶魔差不多死光了怎么抓……不过凯撒放走阿酱是太鲁莽了等阿酱被抓后偷偷去劫狱 不是更好吗……
 
 
-
-
-
-
-
 -----
 
 ####  collincollin  
 ##### 1716#       发表于 2017-5-29 05:02
 
 
-
-
 写作监狱，读作婚介所
-
-
-
-
-
 
 
 -----
@@ -4103,15 +2735,9 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1717#       发表于 2017-5-29 07:42
 
 
-
  本帖最后由 xiaomajia2000 于 2017-5-29 08:21 编辑 
 
 阿萨谢尔好像跟他们关的不是一个地方
-
-
-
-
-
 
 
 -----
@@ -4120,24 +2746,16 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1718#       发表于 2017-5-29 09:01
 
 
-
-
 凯撒实力爆表啊。妮娜要变龙那段和嘴炮那段的确尬的很。
 皇帝监狱里的话是灭完恶魔要灭天使啊，氪石对天使应该是没有效果的，靠武力直接干翻的？
 
 现在最大的疑点就是皇帝的身份了
 
 
-
-
-
-
-
 -----
 
 ####  蓝莲安  
 ##### 1719#       发表于 2017-5-29 11:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36085007&amp;ptid=1229445" target="_blank">新屋 发表于 2017-5-28 18:00</a>
@@ -4150,16 +2768,10 @@ https://twitter.com/artbooksNat</blockquote>
 <img src="http://ww2.sinaimg.cn/mw1024/7ef1b3bfgw1env5qluf0ej20r80glgnu.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  蓝莲安  
 ##### 1720#       发表于 2017-5-29 11:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36084614&amp;ptid=1229445" target="_blank">mumubear 发表于 2017-5-28 17:04</a>
@@ -4168,16 +2780,10 @@ https://twitter.com/artbooksNat</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你问问见到皇帝前的女主角，看到法瓦罗会不会变身的
 
 
-
-
-
-
-
 -----
 
 ####  HLGG2  
 ##### 1721#       发表于 2017-5-29 11:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36090578&amp;ptid=1229445" target="_blank">蓝莲安 发表于 2017-5-29 11:38</a>
@@ -4186,16 +2792,10 @@ https://twitter.com/artbooksNat</blockquote>
 因为他得了犽羽獠那种表情严肃超过三秒就会崩掉的病<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 1722#       发表于 2017-5-29 11:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36089398&amp;ptid=1229445" target="_blank">ai-至死の病 发表于 2017-5-29 09:01</a>
@@ -4206,16 +2806,10 @@ https://twitter.com/artbooksNat</blockquote>
 氪石对天使有效啊 忘记第1集灭神殿了吗    
 
 
-
-
-
-
-
 -----
 
 ####  青夢  
 ##### 1723#       发表于 2017-5-29 12:10
-
 
 
  本帖最后由 青夢 于 2017-5-29 12:14 编辑 
@@ -4225,32 +2819,19 @@ https://twitter.com/artbooksNat</blockquote>
 最后想了想，被轮毫无波动的角色应该是男的啊，TMD，把妮娜恶魔国王性转，贱民，魔女，女王，真是喜闻乐见的模板，这游戏受众女性居多吗，女性片直说呀，真是日了poi。
 
 
-
-
-
-
-
 -----
 
 ####  青夢  
 ##### 1724#       发表于 2017-5-29 12:12
 
 
-
-
 删
-
-
-
-
-
 
 
 -----
 
 ####  tamying  
 ##### 1725#       发表于 2017-5-29 12:59
-
 
 
 <blockquote>青夢 发表于 2017-5-29 12:10
@@ -4260,26 +2841,15 @@ https://twitter.com/artbooksNat</blockquote>
 死宅真恶心。你适合看的只有爱情打戏蟹蟹。
 
 
-
-
-
-
-
 -----
 
 ####  钚核  
 ##### 1726#       发表于 2017-5-29 15:23
 
 
-
 <blockquote>蓝莲安 发表于 2017-5-29 11:38
 其实这货的最大问题是不肯好好收拾自己</blockquote>
 凯撒和法瓦罗都是一淋水就变帅哥啊。
-
-
-
-
-
 
 
 -----
@@ -4288,15 +2858,9 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1727#       发表于 2017-5-29 16:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36092335&amp;ptid=1229445" target="_blank">钚核 发表于 2017-5-29 15:23</a>
 凯撒和法瓦罗都是一淋水就变帅哥啊。</blockquote>
 五行缺水<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4305,14 +2869,7 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1728#       发表于 2017-5-29 16:58
 
 
-
-
 这都8集了剧情才有点起色，和第一季差距也太大了
-
-
-
-
-
 
 
 -----
@@ -4321,15 +2878,9 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1729#       发表于 2017-5-29 17:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36090695&amp;amp;ptid=1229445" target="_blank">临界点 发表于 2017-5-29 11:52</a>
 氪石对天使有效啊 忘记第1集灭神殿了吗</blockquote>
 这集拉菲把伽姆罗带走的时候把伽姆罗封印的时候，氪石就把阿酱给压制了，拉菲还是能飞走的。
-
-
-
-
-
 
 
 -----
@@ -4338,16 +2889,10 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1730#       发表于 2017-5-29 17:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36092335&amp;ptid=1229445" target="_blank">钚核 发表于 2017-5-29 15:23</a>
 
 凯撒和法瓦罗都是一淋水就变帅哥啊。</blockquote>
 凯撒主要发型太蠢了，脸一直是可以的
-
-
-
-
-
 
 
 -----
@@ -4356,14 +2901,7 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1731#       发表于 2017-5-29 18:07
 
 
-
-
 法瓦罗设定上就不是帅哥，没必要非把他安一个隐藏帅哥的属性
-
-
-
-
-
 
 
 -----
@@ -4372,17 +2910,10 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1732#       发表于 2017-5-29 19:42
 
 
-
-
 氪石当时是恢复了，但并没有出力，这个不是场地型是需要控制才有压制效果的，可以看围剿阿酱还有奴隶主那次
 
 
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
-
-
-
-
-
 
 
 -----
@@ -4391,16 +2922,10 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1733#       发表于 2017-5-29 20:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36093220&amp;ptid=1229445" target="_blank">ai-至死の病 发表于 2017-5-29 17:08</a>
 
 这集拉菲把伽姆罗带走的时候把伽姆罗封印的时候，氪石就把阿酱给压制了，拉菲还是能飞走的。 ...</blockquote>
 对付拉菲这种大天使  这么远的距离怎么可能有用  再说那时候也没有发力
-
-
-
-
-
 
 
 -----
@@ -4409,15 +2934,8 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1734#       发表于 2017-5-29 21:46
 
 
-
-
 全剧最佩服便是法瓦罗，为什么就不能领略他的魅力？
 <img src="http://imglf1.nosdn.127.net/img/VHBsVmc4NTdSVTFLQW1TTmNEVDhNVFFQNFdHZGRlYTNyYmRFS1Zhcjd2d05mV1g2d0wzMTBnPT0.jpg?imageView&amp;thumbnail=500x0&amp;quality=96&amp;stripmeta=0&amp;type=jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4426,21 +2944,13 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1735#       发表于 2017-5-30 00:18
 
 
-
-
 在k岛看到监督发的图  魔族的精锐还在的样子  估计在等破解氪石能力后再出手？
-
-
-
-
-
 
 
 -----
 
 ####  darkangel0224  
 ##### 1736#       发表于 2017-5-30 00:32
-
 
 
 <blockquote>ulir 发表于 2017-5-29 19:42
@@ -4450,16 +2960,10 @@ https://twitter.com/artbooksNat</blockquote>
 详细你可以仔细倒回去看看第一集里氪星石高达的战斗力。
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 1737#       发表于 2017-5-30 00:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36097334&amp;ptid=1229445" target="_blank">darkangel0224 发表于 2017-5-30 00:32</a>
@@ -4470,17 +2974,10 @@ https://twitter.com/artbooksNat</blockquote>
 那是打小兵  就算第1集的那个小头目还得几个人才能压制呢
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1738#       发表于 2017-5-30 00:44
-
-
 
 
 高达不能这样比，阿酱可以顶着场地DEBUFF单刷，高达锤小姐姐和打红龙都得靠站桩
@@ -4489,26 +2986,15 @@ https://twitter.com/artbooksNat</blockquote>
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 1739#       发表于 2017-5-30 06:50
 
 
-
 <blockquote>藤田有静 发表于 2017-5-29 21:46
 全剧最佩服便是法瓦罗，为什么就不能领略他的魅力？</blockquote>
 这明亮的眼睛，处理的挺好的
-
-
-
-
-
 
 
 -----
@@ -4517,14 +3003,7 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1740#       发表于 2017-5-30 08:14
 
 
-
-
 法瓦罗这种8，00年代性格（好色，不按常规出牌，混乱善良）的男主的确是稀有品了，现在男主不是亚撒西就是龙傲天。
-
-
-
-
-
 
 
 -----
@@ -4533,14 +3012,7 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1741#       发表于 2017-5-30 08:24
 
 
-
-
 其实法瓦罗也算好色，哪里好色了
-
-
-
-
-
 
 
 -----
@@ -4549,16 +3021,9 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1742#       发表于 2017-5-30 08:26
 
 
-
-
 痴女岂是池中物，一遇帅哥便化龙。
 
 九霄龙吟惊天变，逗比际会浅水游。
-
-
-
-
-
 
 
 -----
@@ -4567,16 +3032,10 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1743#       发表于 2017-5-30 08:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36099256&amp;ptid=1229445" target="_blank">wtwtwt22 发表于 2017-5-30 08:24</a>
 
 其实法瓦罗也算好色，哪里好色了</blockquote>
 法瓦罗不算好色的话，怎样的男主才算好色？
-
-
-
-
-
 
 
 -----
@@ -4585,14 +3044,7 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1744#       发表于 2017-5-30 09:00
 
 
-
-
 你们眼中的法瓦罗是幻想中的法瓦罗吧，各种往高大上的设定上按，比二期剧本都乙女
-
-
-
-
-
 
 
 -----
@@ -4601,16 +3053,10 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1745#       发表于 2017-5-30 09:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36099256&amp;ptid=1229445" target="_blank">wtwtwt22 发表于 2017-5-30 08:24</a>
 
 其实法瓦罗也算好色，哪里好色了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你怕是忘了他一开始对阿米拉动手动脚的情节
-
-
-
-
-
 
 
 -----
@@ -4619,16 +3065,10 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1746#       发表于 2017-5-30 09:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36099293&amp;ptid=1229445" target="_blank">nage560 发表于 2017-5-30 08:33</a>
 
 法瓦罗不算好色的话，怎样的男主才算好色？</blockquote>
 诸星当啊
-
-
-
-
-
 
 
 -----
@@ -4637,16 +3077,10 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1747#       发表于 2017-5-30 09:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36099544&amp;ptid=1229445" target="_blank">wtwtwt22 发表于 2017-5-30 09:18</a>
 
 诸星当啊</blockquote>
 福星小子没有看过，不过这男主有法瓦罗这样，赚到钱就去找小姐吃喝玩乐当天把钱花光吗？
-
-
-
-
-
 
 
 -----
@@ -4655,16 +3089,10 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1748#       发表于 2017-5-30 09:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36099293&amp;ptid=1229445" target="_blank">nage560 发表于 2017-5-30 08:33</a>
 
 法瓦罗不算好色的话，怎样的男主才算好色？</blockquote>
 有男人不好色？
-
-
-
-
-
 
 
 -----
@@ -4673,23 +3101,16 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1749#       发表于 2017-5-30 09:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36099584&amp;ptid=1229445" target="_blank">藤田有静 发表于 2017-5-30 09:27</a>
 
 有男人不好色？</blockquote>
 还是有的，至少终末后宫里就有一个阳痿男<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
 
 
-
-
-
-
-
 -----
 
 ####  lesangel  
 ##### 1750#       发表于 2017-5-30 09:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36090850&amp;ptid=1229445" target="_blank">青夢 发表于 2017-5-29 12:10</a>
@@ -4700,16 +3121,10 @@ https://twitter.com/artbooksNat</blockquote>
 你这种发言证明你只适合看黄片
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1751#       发表于 2017-5-30 09:49
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么每话都有些觉得自己阅片无数的人跳出来说片子就该怎么怎么拍的冷场发言
@@ -4718,33 +3133,20 @@ https://twitter.com/artbooksNat</blockquote>
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1752#       发表于 2017-5-30 19:21
 
 
-
-
 巴哈姆特
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fg3lfo2w8pj22mf3t2npe.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  8aa8aa8aa  
 ##### 1753#       发表于 2017-5-30 19:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36099256&amp;ptid=1229445" target="_blank">wtwtwt22 发表于 2017-5-30 08:24</a>
@@ -4756,17 +3158,10 @@ https://twitter.com/artbooksNat</blockquote>
 —— 来自 samsung SM-G9300, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  古畑任三郎2015  
 ##### 1754#       发表于 2017-5-30 19:57
-
-
 
 
 法瓦罗怎么看都是鲁邦三世那个调调啊
@@ -4774,16 +3169,10 @@ https://twitter.com/artbooksNat</blockquote>
 —— 来自 Sony E6683, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  C男人  
 ##### 1755#       发表于 2017-5-30 20:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36099554&amp;ptid=1229445" target="_blank">nage560 发表于 2017-5-30 09:20</a>
@@ -4800,16 +3189,10 @@ https://twitter.com/artbooksNat</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  新屋  
 ##### 1756#       发表于 2017-5-30 21:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36103897&amp;amp;ptid=1229445" target="_blank">8aa8aa8aa 发表于 2017-5-30 19:55</a>
@@ -4818,17 +3201,10 @@ https://twitter.com/artbooksNat</blockquote>
 没准一直惦记着阿米拉。一个信念崇高的理想主义者。
 
 
-
-
-
-
-
 -----
 
 ####  bandage_n2_ki  
 ##### 1757#       发表于 2017-5-30 21:17
-
-
 
 
 😅嘛…感觉酒神和大姐姐那段表现得相当准确到位…特别是天使大姐姐那种恨铁不成钢？的感觉？？？
@@ -4836,16 +3212,10 @@ https://twitter.com/artbooksNat</blockquote>
     —— from [S1 Nyan](http://126.am/S1Nyan) (Microsoft Lumia 640XL)来自: WindowsPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 1758#       发表于 2017-5-30 21:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36104116&amp;ptid=1229445" target="_blank">C男人 发表于 2017-5-30 20:17</a>
@@ -4857,25 +3227,13 @@ https://twitter.com/artbooksNat</blockquote>
 那这男主观感可以啊，8,90年代的男主不怂就是好<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">。
 
 
-
-
-
-
-
 -----
 
 ####  风声雨声炒菜声  
 ##### 1759#       发表于 2017-5-30 21:24
 
 
-
-
 法瓦罗回归，这剧终于又有看头了
-
-
-
-
-
 
 
 -----
@@ -4884,21 +3242,13 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1760#       发表于 2017-5-30 22:48
 
 
-
-
 法瓦罗终于上线了好诶好诶好诶<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  战场公主希维尔  
 ##### 1761#       发表于 2017-5-30 22:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36097334&amp;ptid=1229445" target="_blank">darkangel0224 发表于 2017-5-30 00:32</a>
@@ -4909,17 +3259,10 @@ https://twitter.com/artbooksNat</blockquote>
 你去看看第一季阿酱的部下都能秒高达。没氪石的话，在场的天使恶魔都能灭城。
 
 
-
-
-
-
-
 -----
 
 ####  白影  
 ##### 1762#       发表于 2017-5-31 00:16
-
-
 
 
 我一直以为这一季可能法瓦罗再也没机会出场呢
@@ -4930,16 +3273,10 @@ https://twitter.com/artbooksNat</blockquote>
 话说人类到手的这克制天使恶魔的玩意到底哪儿，怎么入手的呢
 
 
-
-
-
-
-
 -----
 
 ####  HLGG2  
 ##### 1763#       发表于 2017-5-31 00:24
-
 
 
  本帖最后由 HLGG2 于 2017-5-31 00:28 编辑 
@@ -4949,24 +3286,13 @@ https://twitter.com/artbooksNat</blockquote>
 阿当在拉姆面前简直怂到爆…对其她女性也只是表面上放得开记得有一回真撩到妹子时他立马就想到拉姆然后自己怂了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1764#       发表于 2017-5-31 01:16
 
 
-
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fg3w2xgmj1j22od3qb1ky.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4975,14 +3301,8 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1765#       发表于 2017-5-31 17:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36106386&amp;ptid=1229445" target="_blank">xingenge 发表于 2017-5-31 01:16</a></blockquote>
 妮娜好可爱<img src="https://static.saraba1st.com/image/smiley/carton2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4991,23 +3311,16 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1766#       发表于 2017-5-31 21:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36090578&amp;ptid=1229445" target="_blank">蓝莲安 发表于 2017-5-29 11:38</a>
 
 其实这货的最大问题是不肯好好收拾自己</blockquote>
 这简直可以女装<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  darkangel0224  
 ##### 1767#       发表于 2017-5-31 22:10
-
 
 
 <blockquote>ulir 发表于 2017-5-30 00:44
@@ -5018,16 +3331,10 @@ https://twitter.com/artbooksNat</blockquote>
 第二季这高达多了一招锥形aoe：丢氪星能量球，谁碰谁死，虽然只在第一集里用了一次。
 
 
-
-
-
-
-
 -----
 
 ####  darkangel0224  
 ##### 1768#       发表于 2017-5-31 22:12
-
 
 
 <blockquote>战场公主希维尔 发表于 2017-5-30 22:51
@@ -5036,16 +3343,10 @@ https://twitter.com/artbooksNat</blockquote>
 就那逗B的部下可是在第二季的回忆里直接被平A死了（第一季里同样被圣女平A过），一点悬念都没有。而且氪星版高达的火力输出在第一集里可是表现强劲。
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1769#       发表于 2017-5-31 22:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36114750&amp;ptid=1229445" target="_blank">darkangel0224 发表于 2017-5-31 22:10</a>
@@ -5054,17 +3355,10 @@ https://twitter.com/artbooksNat</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">我感觉你有点钻牛角尖了，第一集的时候是去raid神族的办事处，后面都是刷魔族副本，配置都不一样，不然红龙早就被撸死了而不是吃一发多人集合的大师球，阿酱也当场gg
 
 
-
-
-
-
-
 -----
 
 ####  高达age  
 ##### 1770#       发表于 2017-6-1 19:49
-
-
 
 
 我忍不住看了看自己胸口的锥形age单元……
@@ -5075,17 +3369,10 @@ https://twitter.com/artbooksNat</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/bundam2017/034.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1771#       发表于 2017-6-1 23:52
-
-
 
 
 ■#9「Same Old, Same Old」あらすじ
@@ -5104,25 +3391,13 @@ https://twitter.com/artbooksNat</blockquote>
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fg64wsvzzej216y0o77wh.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 1772#       发表于 2017-6-2 00:23
 
 
-
-
 这两集作画看起来真一般  是换了作画监督的缘故还是外包了？
-
-
-
-
-
 
 
 -----
@@ -5131,17 +3406,10 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1773#       发表于 2017-6-2 07:28
 
 
-
-
 看来妮娜第一次看见法瓦罗的时候还是变过龙的<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
-
-
-
-
-
 
 
 -----
@@ -5150,16 +3418,10 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1774#       发表于 2017-6-2 11:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36126180&amp;ptid=1229445" target="_blank">临界点 发表于 2017-6-2 00:23</a>
 
 这两集作画看起来真一般  是换了作画监督的缘故还是外包了？</blockquote>
 第8集是监制不在 
-
-
-
-
-
 
 
 -----
@@ -5168,21 +3430,13 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1775#       发表于 2017-6-2 12:22
 
 
-
-
 法瓦罗刮了胡子年轻了30岁的感觉。
-
-
-
-
-
 
 
 -----
 
 ####  新屋  
 ##### 1776#       发表于 2017-6-2 14:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36127183&amp;amp;ptid=1229445" target="_blank">ulir 发表于 2017-6-2 07:28</a>
@@ -5193,24 +3447,13 @@ https://twitter.com/artbooksNat</blockquote>
 一开始说见到年轻男子就上头，后来撸点变高了，见阿萨都没感觉。
 
 
-
-
-
-
-
 -----
 
 ####  pzk  
 ##### 1777#       发表于 2017-6-2 15:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">亚历山大这是看到谁了？贞德吗
-
-
-
-
-
 
 
 -----
@@ -5219,14 +3462,7 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1778#       发表于 2017-6-2 17:02
 
 
-
-
 法瓦罗这有胡子没胡子两张连着放差距太大了233简直是父亲和儿子的差别。
-
-
-
-
-
 
 
 -----
@@ -5235,22 +3471,14 @@ https://twitter.com/artbooksNat</blockquote>
 ##### 1779#       发表于 2017-6-2 20:22
 
 
-
-
 BD赠品情报出了…送SSR妮娜和SSR必得…
 又在GBF里送
-
-
-
-
-
 
 
 -----
 
 ####  ulir  
 ##### 1780#       发表于 2017-6-2 20:31
-
 
 
 <blockquote>引用第1795楼大晓尧于2017-06-02 17:02发表的  :
@@ -5262,17 +3490,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  新屋  
 ##### 1781#       发表于 2017-6-2 21:33
-
-
 
 
 阿萨真挺讨厌
@@ -5283,16 +3504,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 阿萨谢尔就是这样一个又浪又蠢还坏的人。
 
 
-
-
-
-
-
 -----
 
 ####  灵魂收割机  
 ##### 1782#       发表于 2017-6-2 21:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36135408&amp;ptid=1229445" target="_blank">新屋 发表于 2017-6-2 21:33</a>
@@ -5305,27 +3520,15 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 他一直是这样，人设又没崩坏<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  shadow001  
 ##### 1783#       发表于 2017-6-3 01:25
 
 
-
-
 酋長也出來了,竟然在王都開夜店<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 下集要越獄了
-
-
-
-
-
 
 
 -----
@@ -5334,16 +3537,9 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1784#       发表于 2017-6-3 01:26
 
 
-
-
 09 END CARD
 
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fg7dbm854bj20xc0ir79u.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5352,13 +3548,7 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1785#       发表于 2017-6-3 01:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">地狱看门狗归来 地狱的女酱油还有藤田茜 和隔壁形成了蜜汁互动
-
-
-
-
-
 
 
 -----
@@ -5367,24 +3557,16 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1786#       发表于 2017-6-3 04:17
 
 
-
-
 the way she was
 
 
 看好贞德再日次天<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  坚果大爷  
 ##### 1787#       发表于 2017-6-3 06:13
-
 
 
 <blockquote>新屋 发表于 2017-6-2 21:33
@@ -5396,16 +3578,10 @@ the way she was
 所以看他吃瘪格外愉快
 
 
-
-
-
-
-
 -----
 
 ####  fange  
 ##### 1788#       发表于 2017-6-3 07:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36134893&amp;ptid=1229445" target="_blank">17cc 发表于 2017-6-2 20:22</a>
@@ -5416,32 +3592,19 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 竟然不是抽而是要买BD才能拿到，CY为了BD销量也是拼了，之前阿米拉就不来这出
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 1789#       发表于 2017-6-3 08:38
 
 
-
-
 狗妹沦落到做陪酒女，路西法会不会去做牛郎了......魔族真是惨爆了。
-
-
-
-
-
 
 
 -----
 
 ####  pzk  
 ##### 1790#       发表于 2017-6-3 08:44
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">怎么感觉狗妹兔子们还挺开心的
@@ -5452,15 +3615,7 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 <img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">丽塔就一个人来劫狱了吗，真是艺高人胆大
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">贞德法瓦罗凯撒全都进去了，国王这是有意在坑巴哈战的老将吧
-
-
-
-
-
-
-
 
 
 -----
@@ -5469,21 +3624,13 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1791#       发表于 2017-6-3 08:51
 
 
-
-
 还真被大家猜中了，法瓦罗进去是国王要抢法瓦罗的功劳？狗妹是强颜欢笑吧，不好好招呼客人狗妹和那批恶魔姐姐可能就是在第一集怠惰魔那样的待遇了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">。
-
-
-
-
-
 
 
 -----
 
 ####  pzk  
 ##### 1792#       发表于 2017-6-3 08:51
-
 
 
  本帖最后由 pzk 于 2017-6-3 08:56 编辑 
@@ -5496,17 +3643,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 神巴必得券是在神巴角色里抽吗……？狗妹斑比斑特雷迅卿路西法龙妹，不知道召唤石算不算（好像很毒）
 
 
-
-
-
-
-
 -----
 
 ####  LilithMardin  
 ##### 1793#       发表于 2017-6-3 09:11
-
-
 
 
 这两集观感太差了，节奏非常乱而且尴尬，新一集逃狱鼓掌我整个人都尴尬癌了。
@@ -5515,25 +3655,13 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 这片现在烂到想要打死这个监督。
 
 
-
-
-
-
-
 -----
 
 ####  thez  
 ##### 1794#       发表于 2017-6-3 09:12
 
 
-
-
 贞德老公是谁？为啥入狱？这之前有交待过么？第一季看了太久都忘了
-
-
-
-
-
 
 
 -----
@@ -5542,23 +3670,15 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1795#       发表于 2017-6-3 09:29
 
 
-
-
 当年也算魔族一名大将的狗妹现在在陪酒，太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 丽塔太帅了！！嫁我！！<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  567844  
 ##### 1796#       发表于 2017-6-3 09:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36138080&amp;ptid=1229445" target="_blank">LilithMardin 发表于 2017-6-3 09:11</a>
@@ -5569,25 +3689,14 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 人类沙文主义者表示好顶赞国王散发着耀眼的人性光芒
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 1797#       发表于 2017-6-3 09:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36106386&amp;ptid=1229445" target="_blank">xingenge 发表于 2017-5-31 01:16</a></blockquote>
 没有颜艺这是假妮娜
-
-
-
-
-
 
 
 -----
@@ -5596,23 +3705,15 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1798#       发表于 2017-6-3 09:44
 
 
-
-
 制作组萝莉控，小妮娜和姆伽罗，丽塔都画的超级可爱prpr
 
 这集贞德太美了
-
-
-
-
-
 
 
 -----
 
 ####  pzk  
 ##### 1799#       发表于 2017-6-3 09:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36138085&amp;ptid=1229445" target="_blank">thez 发表于 2017-6-3 09:12</a>
@@ -5623,27 +3724,15 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 为什么入狱第一季也没说过
 
 
-
-
-
-
-
 -----
 
 ####  梦落凡  
 ##### 1800#       发表于 2017-6-3 10:03
 
 
-
-
 这集还行，主要男主出来了嘛。。。期待越狱
 
 —— 来自 samsung SM-G9350, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
-
-
-
-
-
 
 
 -----
@@ -5652,14 +3741,7 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1801#       发表于 2017-6-3 10:11
 
 
-
-
 姆伽罗是怎么从金毛变成黑发的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这染发剂也太牛了吧
-
-
-
-
-
 
 
 -----
@@ -5668,15 +3750,9 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1802#       发表于 2017-6-3 10:22
 
 
-
  本帖最后由 amulelernen 于 2017-6-3 10:51 编辑 
 
 最后那个鼓掌……周星驰的九品芝麻官既视感,这个时候犯人应该果断举报啊……话说贞德你照顾小孩不帮人家洗澡的吗，是男是女都不知？
-
-
-
-
-
 
 
 -----
@@ -5685,22 +3761,13 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1803#       发表于 2017-6-3 10:33
 
 
-
-
 鼓掌跟上回妮娜嘴炮一样尬住我了
-
-
-
-
-
 
 
 -----
 
 ####  新屋  
 ##### 1804#       发表于 2017-6-3 10:52
-
-
 
 
 法瓦罗因为恶魔尾巴被百姓举报被抓，当了一段恶魔奴隶，还送到竞技场。
@@ -5721,25 +3788,13 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 贞德得知凯撒也关进来后发了一阵呆，脑子里想的什么。
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 1805#       发表于 2017-6-3 10:57
 
 
-
-
 这集有个亮点，法瓦罗被剪去头发后，长回来还是爆炸头的样子，看来爆炸头发型是天生的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
-
-
-
-
-
 
 
 -----
@@ -5748,15 +3803,9 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1806#       发表于 2017-6-3 11:00
 
 
-
 <blockquote>amulelernen 发表于 2017-6-3 10:22
 最后那个鼓掌……周星驰的九品芝麻官既视感,这个时候犯人应该果断举报啊……话说贞德你照顾小孩不帮人家洗 ...</blockquote>
 妮娜都帮过这些犯人，而且贞德的事。
-
-
-
-
-
 
 
 -----
@@ -5765,14 +3814,7 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1807#       发表于 2017-6-3 11:08
 
 
-
-
 搞不好国王是巴哈
-
-
-
-
-
 
 
 -----
@@ -5781,14 +3823,7 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1808#       发表于 2017-6-3 11:37
 
 
-
-
 路西法是店长吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5797,16 +3832,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1809#       发表于 2017-6-3 12:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36138809&amp;ptid=1229445" target="_blank">nage560 发表于 2017-6-3 10:57</a>
 
 这集有个亮点，法瓦罗被剪去头发后，长回来还是爆炸头的样子，看来爆炸头发型是天生的。 ...</blockquote>
 天赋异禀 不服不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5815,16 +3844,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1810#       发表于 2017-6-3 12:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36138201&amp;ptid=1229445" target="_blank">567844 发表于 2017-6-3 09:34</a>
 
 人类沙文主义者表示好顶赞国王散发着耀眼的人性光芒</blockquote>
 “人类沙文主义者”跟“白人至上主义者”“皇汉”等群体的区别在哪里？
-
-
-
-
-
 
 
 -----
@@ -5833,14 +3856,7 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1811#       发表于 2017-6-3 12:23
 
 
-
-
 狗妹都沦落到当妈妈桑了……
-
-
-
-
-
 
 
 -----
@@ -5849,16 +3865,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1812#       发表于 2017-6-3 12:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36139416&amp;ptid=1229445" target="_blank">灵魂收割机 发表于 2017-6-3 12:16</a>
 
 “人类沙文主义者”跟“白人至上主义者”“皇汉”等群体的区别在哪里？ ...</blockquote>
 后面两个是政治不正确种族主义者
-
-
-
-
-
 
 
 -----
@@ -5867,16 +3877,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1813#       发表于 2017-6-3 12:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36138470&amp;ptid=1229445" target="_blank">北风游骑兵 发表于 2017-6-3 10:11</a>
 
 姆伽罗是怎么从金毛变成黑发的这染发剂也太牛了吧</blockquote>
 问题是贞德一个黄毛和米迦勒一个红毛怎么生出一个黑猫
-
-
-
-
-
 
 
 -----
@@ -5885,24 +3889,15 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1814#       发表于 2017-6-3 12:34
 
 
-
-
 前面不知道是剧透还是某位朋友的观点，说魔族的主力部队还在，
 
 狗妹这批不过是“隐居”起来逢场作戏罢了，而且和之前魔族强势的时候没什么不同啊，一样风花雪月。
-
-
-
-
-
 
 
 -----
 
 ####  古桥一浩  
 ##### 1815#       发表于 2017-6-3 13:00
-
-
 
 
 靠法瓦罗和妮娜的颜艺撑过这无聊的一集过渡回。。
@@ -5912,16 +3907,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 内容略枯燥。。
 
 
-
-
-
-
-
 -----
 
 ####  83913536  
 ##### 1816#       发表于 2017-6-3 13:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36139416&amp;ptid=1229445" target="_blank">灵魂收割机 发表于 2017-6-3 12:16</a>
@@ -5930,17 +3919,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 动漫论坛上扯皮别这么较真啊，现实又没除人类以外的种族，就是刻意说出来玩的而已。
 
 
-
-
-
-
-
 -----
 
 ####  吃货红毛  
 ##### 1817#       发表于 2017-6-3 13:35
-
-
 
 
 居然当陪酒女 怕不是要被带绿宝石的大老板玩点特殊服务
@@ -5949,16 +3931,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 赶紧越狱 铁球什么的分分钟被妮娜手撕了
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 1818#       发表于 2017-6-3 13:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36139815&amp;ptid=1229445" target="_blank">古桥一浩 发表于 2017-6-3 13:00</a>
@@ -5971,16 +3947,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 这集料够多的了吧  你到底想看啥  难道一上来就越狱不成？
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 1819#       发表于 2017-6-3 13:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36138540&amp;ptid=1229445" target="_blank">amulelernen 发表于 2017-6-3 10:22</a>
@@ -5989,32 +3959,19 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 天使没性别的设定？  其实两人的关系到现在也没摆明  到底是生活过一段时间还是只是相遇了没多久
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 1820#       发表于 2017-6-3 13:59
 
 
-
-
 话说结尾丽塔的作画很少女呢<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  qwxbtgb  
 ##### 1821#       发表于 2017-6-3 14:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36138080&amp;ptid=1229445" target="_blank">LilithMardin 发表于 2017-6-3 09:11</a>
@@ -6025,16 +3982,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 第一集最开始就说了，从神那抢来的，最开始有2个高达搬一个绿色的石板，还有爆炸头和飞机头在挖氪石？
 
 
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 1822#       发表于 2017-6-3 14:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36140269&amp;ptid=1229445" target="_blank">临界点 发表于 2017-6-3 13:53</a>
@@ -6065,16 +4016,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 也不能这么慢吧。。
 
 
-
-
-
-
-
 -----
 
 ####  哥特式lolita  
 ##### 1823#       发表于 2017-6-3 14:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36138761&amp;ptid=1229445" target="_blank">新屋 发表于 2017-6-3 10:52</a>
@@ -6094,16 +4039,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 节奏太慢+1 看来故事本身不够撑2季，1季又不够
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 1824#       发表于 2017-6-3 14:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36140439&amp;ptid=1229445" target="_blank">古桥一浩 发表于 2017-6-3 14:17</a>
@@ -6120,16 +4059,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 现在还剩起码15集左右   要那么快干嘛    隔壁魔女也是两季  到第9集的时候也没讲多少东西      再说内容其实也不少了  前因后果每个族群的矛盾对立角色铺垫也都讲得七七八八了  后续就是怎么改变这个局面的事了   还剩三分之二左右的时间我觉得还充裕了呢
 
 
-
-
-
-
-
 -----
 
 ####  shadow001  
 ##### 1825#       发表于 2017-6-3 14:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36138761&amp;ptid=1229445" target="_blank">新屋 发表于 2017-6-3 10:52</a>
@@ -6140,32 +4073,19 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 爆炸頭早就沒尾巴了,被捉多數是因為他是傳說中的騎士,國王想試試他的能力,結果...<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  qwxbtgb  
 ##### 1826#       发表于 2017-6-3 14:42
 
 
-
-
 我觉得可以吧，搞不清性别的是妮娜吧。
-
-
-
-
-
 
 
 -----
 
 ####  临界点  
 ##### 1827#       发表于 2017-6-3 14:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36140509&amp;ptid=1229445" target="_blank">哥特式lolita 发表于 2017-6-3 14:26</a>
@@ -6179,16 +4099,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 感觉你们完全是按季番的标准在看
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 1828#       发表于 2017-6-3 14:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36140590&amp;ptid=1229445" target="_blank">shadow001 发表于 2017-6-3 14:41</a>
@@ -6199,16 +4113,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 爆炸头估计是赏金猎人的身份被抓吧   估计现在人类用的这个力量跟赏金猎人的那个能把恶魔变成卡片的能力有点关系
 
 
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 1829#       发表于 2017-6-3 14:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36140578&amp;ptid=1229445" target="_blank">临界点 发表于 2017-6-3 14:39</a>
@@ -6231,32 +4139,19 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 但故事讲的给我感觉就是拖。
 
 
-
-
-
-
-
 -----
 
 ####  qwxbtgb  
 ##### 1830#       发表于 2017-6-3 14:58
 
 
-
-
 主要现在弄来弄去还在王都，希望能快点去到处走走。
-
-
-
-
-
 
 
 -----
 
 ####  临界点  
 ##### 1831#       发表于 2017-6-3 15:04
-
 
 
  本帖最后由 临界点 于 2017-6-3 15:10 编辑 
@@ -6272,16 +4167,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 这季我是觉得剧情其实算紧凑的了  只是这一季人物刻花的时间相对比较多些 有可以再压缩但基本没有可以删减的地方     再说了剧情要这么急是打算要干嘛   真的3-4集讲完这些事还有20多集后面怎么发展   再注水吗
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 1832#       发表于 2017-6-3 15:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36140710&amp;ptid=1229445" target="_blank">qwxbtgb 发表于 2017-6-3 14:58</a>
@@ -6290,16 +4179,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 这季主要矛盾都在王都这边  不像第一季女主要寻找身世之谜才到处跑   估计后续剧情展开也不会离王都太远
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 1833#       发表于 2017-6-3 15:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36140294&amp;ptid=1229445" target="_blank">临界点 发表于 2017-6-3 13:58</a>
@@ -6308,32 +4191,19 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 吐槽而已，看这片就图个乐子和作画，我也去不深究什么。
 
 
-
-
-
-
-
 -----
 
 ####  yanbo8502  
 ##### 1834#       发表于 2017-6-3 15:22
 
 
-
-
 看法瓦罗这样子，阿米拉恐怕出不来了。。。
-
-
-
-
-
 
 
 -----
 
 ####  古桥一浩  
 ##### 1835#       发表于 2017-6-3 15:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36140742&amp;ptid=1229445" target="_blank">临界点 发表于 2017-6-3 15:04</a>
@@ -6348,16 +4218,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 3.为什么说我急呢？有的矛盾和人物性格的刻画随剧情发展自然就可以融入其中了，单拎出来讲或者凸显，不觉得繁琐吗，好故事应该让观众感觉坠入爱河一样，什么也不考虑就被拖着走，而我察觉到异样，就说明要么我看的不用心，要么是讲故事的人口才有问题，亦或是故事本身不精彩了=。=
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 1836#       发表于 2017-6-3 16:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36140899&amp;ptid=1229445" target="_blank">古桥一浩 发表于 2017-6-3 15:25</a>
@@ -6366,11 +4230,6 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 
 2 ...</blockquote>
 还有可能你的欣赏水平不够
-
-
-
-
-
 
 
 -----
@@ -6379,16 +4238,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1837#       发表于 2017-6-3 16:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36141362&amp;ptid=1229445" target="_blank">567844 发表于 2017-6-3 16:29</a>
 
 还有可能你的欣赏水平不够</blockquote>
 在泥潭装逼这么快就要被打脸吗<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6397,21 +4250,13 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1838#       发表于 2017-6-3 16:49
 
 
-
-
 骑士桑头上有点绿啊<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  567844  
 ##### 1839#       发表于 2017-6-3 17:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36140899&amp;ptid=1229445" target="_blank">古桥一浩 发表于 2017-6-3 15:25</a>
@@ -6422,25 +4267,13 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 还有可能你的欣赏水平不够
 
 
-
-
-
-
-
 -----
 
 ####  qwxbtgb  
 ##### 1840#       发表于 2017-6-3 17:18
 
 
-
-
 没人介绍下，夜店的恶魔妹子都是谁？
-
-
-
-
-
 
 
 -----
@@ -6449,14 +4282,7 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1841#       发表于 2017-6-3 17:19
 
 
-
-
 这集法瓦罗和妮娜的回忆杀好评啊，这两人真可爱，我觉得第二季还这种日常部分看的开心多了。上周奶错了法瓦罗进监狱的理由了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">以及万万没想到鸡翅团没了两任团长，部下都沦丧到集体混夜店去了，药丸药丸。狗妹怂恿亚历山大当团长是什么目的啊，单纯起哄还是预谋搞事啊/
-
-
-
-
-
 
 
 -----
@@ -6465,21 +4291,13 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1842#       发表于 2017-6-3 17:26
 
 
-
-
 这国王挺有意思啊，有可能影响他的人族都抓号子里，倒是也不担心谋反
-
-
-
-
-
 
 
 -----
 
 ####  darkangel0224  
 ##### 1843#       发表于 2017-6-3 17:32
-
 
 
  本帖最后由 darkangel0224 于 2017-6-3 17:39 编辑 
@@ -6496,25 +4314,13 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 演出内容的尴尬比上一集变本加厉，比方说狗仔忽悠黄毛当团长，这段要放谍报片里就是飙演技的部分，然而要在这种工程量和进度上，让动画肝表情什么的，着实勉为其难
 
 
-
-
-
-
-
 -----
 
 ####  c88711611  
 ##### 1844#       发表于 2017-6-3 17:37
 
 
-
-
 女魔族夜店坐标在哪里？急，在线等
-
-
-
-
-
 
 
 -----
@@ -6523,14 +4329,7 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1845#       发表于 2017-6-3 17:39
 
 
-
-
 狗妹兔子感觉就是干起老本行了，开心的一逼
-
-
-
-
-
 
 
 -----
@@ -6539,22 +4338,15 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1846#       发表于 2017-6-3 17:48
 
 
-
  本帖最后由 HLGG2 于 2017-6-3 17:59 编辑 
 
 皇帝是真的想怀柔贞德吗关起来都算了这样的VIP还让她和普通犯人一样做苦工？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  darkangel0224  
 ##### 1847#       发表于 2017-6-3 18:02
-
 
 
  本帖最后由 darkangel0224 于 2017-6-3 18:04 编辑 
@@ -6564,16 +4356,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 你看国王都给你配女性狱卒避免了rape flag，我大圣女袒护狱友也没按惯例直接遭一顿鞭打+白眼+唾沫，透露越狱计划狱友鼓掌响应还不引来狱卒，这怎么就不是VIP待遇了哦（笑
 
 
-
-
-
-
-
 -----
 
 ####  哥特式lolita  
 ##### 1848#       发表于 2017-6-3 19:09
-
 
 
 <blockquote>shadow001 发表于 2017-6-3 14:41
@@ -6581,16 +4367,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 一季最后有摸屁股，我觉得尾巴还有没有有待考察
 
 
-
-
-
-
-
 -----
 
 ####  アルメリア  
 ##### 1849#       发表于 2017-6-3 19:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36140439&amp;ptid=1229445" target="_blank">古桥一浩 发表于 2017-06-03 14:17:12</a>
@@ -6621,16 +4401,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 也不能这么慢吧。。</blockquote>上一季中期开始也是这个调调
 
 
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 1850#       发表于 2017-6-3 19:33
-
 
 
 <blockquote>引用第1864楼darkangel0224于2017-06-03 18:02发表的  :
@@ -6644,16 +4418,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ----发送自 [asus ASUS_Z00ADA,Android 5.0](http://stage1.5j4m.com/?1.22)
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 1851#       发表于 2017-6-3 19:38
-
 
 
  本帖最后由 临界点 于 2017-6-3 19:46 编辑 
@@ -6668,16 +4436,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 狗仔忽悠黄毛当团长 本来就是搞笑桥段（当然也可能是小伏笔，不过这家伙当团长对她们也没啥意义啊）  还要她彪演技？  你是不是对她的定位有什么错误的理解？再说都喝醉还需要彪啥演技啊
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 1852#       发表于 2017-6-3 19:44
-
 
 
  本帖最后由 临界点 于 2017-6-3 19:48 编辑 
@@ -6691,25 +4453,13 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 按你的节奏标准不拖的片子是什么样的  列几部出来看看？
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 1853#       发表于 2017-6-3 19:53
 
 
-
-
 我倒是觉得第一季公路打打打片+只有12集导致塑造人物不行，只有几个主角塑造得还行。第二季因为半年番留了更多时间塑造人物，导致主角配角的形象都塑造得不错。
-
-
-
-
-
 
 
 -----
@@ -6718,21 +4468,13 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1854#       发表于 2017-6-3 19:56
 
 
-
-
 我知道为什么大家对这一集不满意了,其实是大家没看到阿酱吃瘪很不爽而已
-
-
-
-
-
 
 
 -----
 
 ####  古桥一浩  
 ##### 1855#       发表于 2017-6-3 19:57
-
 
 
 <blockquote>引用第1869楼临界点于2017-06-03 19:44发表的  :
@@ -6746,16 +4488,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ----发送自 [asus ASUS_Z00ADA,Android 5.0](http://stage1.5j4m.com/?1.22)
 
 
-
-
-
-
-
 -----
 
 ####  darkangel0224  
 ##### 1856#       发表于 2017-6-3 20:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36142944&amp;ptid=1229445" target="_blank">临界点 发表于 2017-6-3 19:38</a>
@@ -6771,16 +4507,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 我就再这么举个例子吧，爆炸头讲自己被抓那段，完全可以不需要用画面展示出来，而靠自己口述带过去。楼上那位所说的拖戏，其实就是这么个排戏效果差的体现。
 
 
-
-
-
-
-
 -----
 
 ####  灵魂收割机  
 ##### 1857#       发表于 2017-6-3 20:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36143185&amp;ptid=1229445" target="_blank">darkangel0224 发表于 2017-6-3 20:06</a>
@@ -6789,16 +4519,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 这些都不重要。解决拖戏最好的办法是加剧情，整集就那点信息量的前提下，挪来挪去也没啥实质改进，搞不好还不如现状。
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 1858#       发表于 2017-6-3 20:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36143185&amp;ptid=1229445" target="_blank">darkangel0224 发表于 2017-6-3 20:06</a>
@@ -6807,16 +4531,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 用口述怎么表现出英勇奋战,珍贵之物被夺取这些重要内容
 
 
-
-
-
-
-
 -----
 
 ####  darkangel0224  
 ##### 1859#       发表于 2017-6-3 20:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36143279&amp;ptid=1229445" target="_blank">灵魂收割机 发表于 2017-6-3 20:17</a>
@@ -6825,16 +4543,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 我最上面的回复里不就是写了给圣女和女主角接触+建立信任关系腾空间了么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  darkangel0224  
 ##### 1860#       发表于 2017-6-3 20:22
-
 
 
  本帖最后由 darkangel0224 于 2017-6-3 20:23 编辑 
@@ -6844,17 +4556,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 那种搞笑戏份完全可以在后面找个机会来打爆炸头一贯吹牛的脸 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  p35535  
 ##### 1861#       发表于 2017-6-3 20:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36143315&amp;ptid=1229445" target="_blank">darkangel0224 发表于 2017-6-3 20:22</a>
@@ -6863,17 +4568,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 我就很喜欢这种搞笑剧情啊，其实巴哈姆特这片从来都是搞笑正剧并重，而且有些东西真是动起来才有趣，要剧情密度不如去看剧本大纲好了，西幻小说也是好选择，用来要求动画就太干了。
 
 
-
-
-
-
-
 -----
 
 ####  C男人  
 ##### 1862#       发表于 2017-6-3 20:47
-
-
 
 
 路西法店长，请收下我们的膝盖！ <img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
@@ -6896,16 +4594,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 包村干部就不管管吗？！
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 1863#       发表于 2017-6-3 20:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36143185&amp;ptid=1229445" target="_blank">darkangel0224 发表于 2017-6-3 20:06</a>
@@ -6914,16 +4606,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 为什么要这样压缩呢  急着这集就要越狱成功吗？    那画面跟他的说法不同还不是为了搞笑然后再次让观众回想起这个角色喜欢吹牛跟做事没心机的特点
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 1864#       发表于 2017-6-3 20:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36143315&amp;ptid=1229445" target="_blank">darkangel0224 发表于 2017-6-3 20:22</a>
@@ -6932,16 +4618,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 不逗比的爆炸头就和不吃憋的阿酱一样无趣
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 1865#       发表于 2017-6-3 20:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36143304&amp;ptid=1229445" target="_blank">darkangel0224 发表于 2017-6-3 20:21</a>
@@ -6950,16 +4630,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 这种剧情哪里有法瓦罗的搞笑段子重要
 
 
-
-
-
-
-
 -----
 
 ####  mumubear  
 ##### 1866#       发表于 2017-6-3 20:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36143516&amp;ptid=1229445" target="_blank">C男人 发表于 2017-6-3 20:47</a>
@@ -6971,25 +4645,13 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 所以只要稍个信会龙村，国王的黑铠甲军队就被艹翻了？。。。听起来好带感的样子。。。
 
 
-
-
-
-
-
 -----
 
 ####  异界送  
 ##### 1867#       发表于 2017-6-3 21:04
 
 
-
-
 现在最关心的就是第一季的女主会不会出现了。
-
-
-
-
-
 
 
 -----
@@ -6998,16 +4660,9 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1868#       发表于 2017-6-3 21:34
 
 
-
-
 呸！什么路西法店长 头牌牛郎路西法还差不多。
 
 哎这个牛郎店在哪我要去给路路开香槟塔了。
-
-
-
-
-
 
 
 -----
@@ -7016,14 +4671,7 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1869#       发表于 2017-6-3 22:08
 
 
-
-
 才发现4卷24话啊
-
-
-
-
-
 
 
 -----
@@ -7032,23 +4680,15 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1870#       发表于 2017-6-3 22:23
 
 
-
-
 路西法店长虽然很戏剧，但不太可能
 
 他要在皇都，不会眼睁睁看着至交阿酱（兄弟？）去送的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  8aa8aa8aa  
 ##### 1871#       发表于 2017-6-3 22:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36143315&amp;ptid=1229445" target="_blank">darkangel0224 发表于 2017-6-3 20:22</a>
@@ -7058,16 +4698,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 —— 来自 samsung SM-G9300, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  皇神樂耶  
 ##### 1872#       发表于 2017-6-3 22:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36143940&amp;ptid=1229445" target="_blank">楽園のエル 发表于 2017-6-3 21:34</a>
@@ -7080,16 +4714,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 真的能嫖到路西法？！<img src="https://static.saraba1st.com/image/smiley/face/53.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  C男人  
 ##### 1873#       发表于 2017-6-3 22:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36143580&amp;ptid=1229445" target="_blank">mumubear 发表于 2017-6-3 20:53</a>
@@ -7101,32 +4729,19 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 难怪妮娜最近写给妈妈的信都没寄出去，伏笔啊，伏笔！ <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  超阳电子炮  
 ##### 1874#       发表于 2017-6-3 22:42
 
 
-
-
 想什么来什么，湿透的法瓦罗好好好啊！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  楽園のエル  
 ##### 1875#       发表于 2017-6-3 23:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36144461&amp;ptid=1229445" target="_blank">皇神樂耶 发表于 2017-6-3 22:41</a>
@@ -7140,16 +4755,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 哎不说了只能打开GBF舔一舔。
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 1876#       发表于 2017-6-3 23:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36144304&amp;ptid=1229445" target="_blank">Chia 发表于 2017-6-3 09:23</a>
@@ -7160,26 +4769,15 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 上一季阿酱被别西卜当枪使，差一点在贞德手上交代了的时候，也没见路西法劝过他一句啊
 
 
-
-
-
-
-
 -----
 
 ####  夜翼  
 ##### 1877#       发表于 2017-6-4 00:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36083412&amp;amp;ptid=1229445" target="_blank">HLGG2 发表于 2017-5-28 13:53</a>
 以法瓦罗的性格可能只是单纯的没钱还在酒店的赊账被抓起来了……当然也可能是为了救出贞德故意被捕什么的 ...</blockquote>
 法瓦罗被抓的时候来的是熬夜骑士团，应该不是单纯的赊账吧
-
-
-
-
-
 
 
 -----
@@ -7188,17 +4786,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1878#       发表于 2017-6-4 00:06
 
 
-
-
 狗妹的夜店，好棒<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
 下一回胜利大逃亡，还是丽塔靠谱。
-
-
-
-
-
 
 
 -----
@@ -7207,14 +4798,7 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1879#       发表于 2017-6-4 00:09
 
 
-
-
 国王把这帮人全放一个监狱，这是自信过头了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7223,14 +4807,7 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1880#       发表于 2017-6-4 01:34
 
 
-
-
 丽塔果断飞过来救老公
-
-
-
-
-
 
 
 -----
@@ -7239,14 +4816,7 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1881#       发表于 2017-6-4 01:35
 
 
-
-
 我同意节奏有点慢，但是是季番我觉得还能理解的，想起上次的马三角...巴哈的节奏算平均了。
-
-
-
-
-
 
 
 -----
@@ -7255,14 +4825,7 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1882#       发表于 2017-6-4 03:22
 
 
-
-
 没有一干女将里应外合，前代男一和男二就打算在这普通的不能再普通的牢房里住下去了
-
-
-
-
-
 
 
 -----
@@ -7271,17 +4834,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1883#       发表于 2017-6-4 06:16
 
 
-
-
 買神擊的BD送GBF的角色
 
 
 原來這部也是GBF廣告片
-
-
-
-
-
 
 
 -----
@@ -7290,14 +4846,7 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1884#       发表于 2017-6-4 06:19
 
 
-
-
 这片总共24集，那这个节奏还蛮正常的吧，等于说现在还在跑序章咯…（赞美湿身法瓦罗，真美啊…
-
-
-
-
-
 
 
 -----
@@ -7306,14 +4855,7 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1885#       发表于 2017-6-4 08:21
 
 
-
-
 我觉得你不喜欢剧情可以理解，教人怎么拍自认为比人家拍得更好要不是大师级别的真有那个实力，要么就是想要装B装大了
-
-
-
-
-
 
 
 -----
@@ -7322,14 +4864,7 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1886#       发表于 2017-6-4 08:28
 
 
-
-
 这监狱关了这么多大佬，怕是下集就要原地爆炸了
-
-
-
-
-
 
 
 -----
@@ -7338,22 +4873,13 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1887#       发表于 2017-6-4 08:37
 
 
-
-
 我为什么觉得贞德的儿子婴儿时期金发时和国王超级像。难道....
-
-
-
-
-
 
 
 -----
 
 ####  七里ヶ浜雨音  
 ##### 1888#       发表于 2017-6-4 09:38
-
-
 
 
 快住手！这样的根本不是监狱，而是井冈山啊<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">国王你是故意的还是故意的呢
@@ -7365,25 +4891,13 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 还有为什么这么多人讨论路西法，我没发现他
 
 
-
-
-
-
-
 -----
 
 ####  Nico_Minoru  
 ##### 1889#       发表于 2017-6-4 09:52
 
 
-
-
 请问能不能求下丽塔的BGM
-
-
-
-
-
 
 
 -----
@@ -7392,16 +4906,9 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1890#       发表于 2017-6-4 09:56
 
 
-
-
 法瓦罗从温泉里被妮娜追出来的路上发型就恢复爆炸头了，绝壁天然卷啊。
 
 矿井里开采的难道是黑矿和绿石？
-
-
-
-
-
 
 
 -----
@@ -7410,14 +4917,7 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1891#       发表于 2017-6-4 11:23
 
 
-
-
 这集明明这么好看，不是很懂泥潭
-
-
-
-
-
 
 
 -----
@@ -7426,13 +4926,7 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1892#       发表于 2017-6-4 11:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">每集我看完挺开心跑来一刷专楼，回复都是一派苦大仇深
-
-
-
-
-
 
 
 -----
@@ -7441,14 +4935,7 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1893#       发表于 2017-6-4 11:37
 
 
-
-
 这集明明看的很开心啊，妮娜小天使
-
-
-
-
-
 
 
 -----
@@ -7457,24 +4944,16 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1894#       发表于 2017-6-4 11:46
 
 
-
-
 根据访谈，之前国王和阿酱的对话，这话贞德和索菲的反应，以及回忆里的神族圣光和现在模样的反差，贞德应该自己都不知道小孩伪装后的样子
 
 
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  8aa8aa8aa  
 ##### 1895#       发表于 2017-6-4 12:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36147784&amp;ptid=1229445" target="_blank">迪米特里 发表于 2017-6-4 09:56</a>
@@ -7487,25 +4966,13 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 —— 来自 samsung SM-G9300, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  绞刑架  
 ##### 1896#       发表于 2017-6-4 12:02
 
 
-
-
 感觉发瓦罗刚剃完头不久的毛寸样子是真正的绝佳美颜，近的说有隔壁太子火影的大佬风范，远的说拿个篮球就可以直接去演灌篮高手了
-
-
-
-
-
 
 
 -----
@@ -7514,16 +4981,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1897#       发表于 2017-6-4 14:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36145192&amp;ptid=1229445" target="_blank">漫区专号 发表于 2017-6-4 00:09</a>
 
 国王把这帮人全放一个监狱，这是自信过头了吧。</blockquote>
 这是王都最好的监狱 而且还是孤岛  要是没丽塔来搭救他们肯定逃不出去的  贞德 爆炸头  凯撒都是普通人而已  又没外挂    倒是对妮娜的限制太随便了吧     感觉她想逃的话倒是比较容易
-
-
-
-
-
 
 
 -----
@@ -7532,15 +4993,9 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1898#       发表于 2017-6-4 15:24
 
 
-
 <blockquote>ulir 发表于 2017-6-4 11:46
 根据访谈，之前国王和阿酱的对话，这话贞德和索菲的反应，以及回忆里的神族圣光和现在模样的反差，贞德应该 ...</blockquote>
 所以伪装成的女孩子？
-
-
-
-
-
 
 
 -----
@@ -7549,14 +5004,7 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1899#       发表于 2017-6-4 17:01
 
 
-
-
 同开心，法瓦罗的回忆就很有趣啊，看到了怀念的角色再出场就更开心了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7565,23 +5013,16 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1900#       发表于 2017-6-4 17:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36150262&amp;ptid=1229445" target="_blank">临界点 发表于 2017-6-4 14:31</a>
 
 这是王都最好的监狱 而且还是孤岛  要是没丽塔来搭救他们肯定逃不出去的  贞德 爆炸头  凯撒都是普通人而 ...</blockquote>
 其实对妮娜的限制还是比别人多的，脚镣比别人重（那个球比贞德的大了一倍不止），牢房也是特别加深了一层。（虽然将信将疑，国王也是有防着她的）虽然妮娜是红龙，但不变成龙的时候也只是力气很大，身体很好，脑子不太灵光的女孩子而已，况且这监狱也没有让她变龙的条件。
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1901#       发表于 2017-6-4 18:43
-
 
 
 <blockquote>引用第1915楼哥特式lolita于2017-06-04 15:24发表的  :
@@ -7595,16 +5036,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  浅野  
 ##### 1902#       发表于 2017-6-4 19:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36144304&amp;ptid=1229445" target="_blank">Chia 发表于 2017-6-3 22:23</a>
@@ -7618,16 +5053,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 走到哪里都是自己的上司下属搞大新闻的路路<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 1903#       发表于 2017-6-4 19:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36151779&amp;ptid=1229445" target="_blank">大晓尧 发表于 2017-6-4 04:46</a>
@@ -7636,25 +5065,13 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 然而回忆里妮娜不变身也能徒手碎大石，这监狱墙壁怎么看都没有大石硬吧
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1904#       发表于 2017-6-4 19:46
 
 
-
-
 碎大石那是真心想越狱了，还怕骑士团不知道么
-
-
-
-
-
 
 
 -----
@@ -7663,21 +5080,13 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1905#       发表于 2017-6-4 20:05
 
 
-
-
 妮娜明显是既来之则安之的性格，都没考虑过要越狱吧
-
-
-
-
-
 
 
 -----
 
 ####  Chia  
 ##### 1906#       发表于 2017-6-4 20:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36152493&amp;ptid=1229445" target="_blank">浅野 发表于 2017-6-4 19:14</a>
@@ -7691,15 +5100,9 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 阿酱有句台词就是，要继承你的意志云云，所以背叛应该不是吧<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
 
-
 有意思的是在shadowverse里，路西法因为是运营最早配送的虹卡，人手一张
 
 人送外号“无料男”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7708,15 +5111,9 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1907#       发表于 2017-6-4 20:38
 
 
-
 <blockquote>ulir 发表于 2017-6-4 18:43
 穆加罗是说 心是天使，那可以反推一下身体不是，回忆里的翅膀和圣光现在只能在头发看出少许，阿酱说声音和 ...</blockquote>
 会不会是和恶魔呆久了，要变堕天使了？
-
-
-
-
-
 
 
 -----
@@ -7725,23 +5122,16 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1908#       发表于 2017-6-4 21:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36152703&amp;ptid=1229445" target="_blank">DOACAON 发表于 2017-6-4 19:40</a>
 
 然而回忆里妮娜不变身也能徒手碎大石，这监狱墙壁怎么看都没有大石硬吧 ...</blockquote>
 其实监狱里那么多石头感觉是在山里内部，监狱也不是像单单一块石头那么好对付。当然她要跑肯定还是能成功的，她和法瓦罗这一堆人都是A+幸运值附身。更何况还有主角光环
 
 
-
-
-
-
-
 -----
 
 ####  浅野  
 ##### 1909#       发表于 2017-6-4 21:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36153081&amp;ptid=1229445" target="_blank">Chia 发表于 2017-6-4 20:25</a>
@@ -7752,17 +5142,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">运营有本事也在gbf送啊
 
 
-
-
-
-
-
 -----
 
 ####  云梦泽岸  
 ##### 1910#       发表于 2017-6-4 23:04
-
-
 
 
 我想了一下，这部动画应该是搞笑片。
@@ -7780,32 +5163,19 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 唯一一个念着国恨家仇、励精图治的阿酱，还没脑子，大家就等着看他出丑，他也不负众望。
 
 
-
-
-
-
-
 -----
 
 ####  心灵的乳头  
 ##### 1911#       发表于 2017-6-4 23:26
 
 
-
-
 这集看下来，过得最滋润的就是凯撒手下这俩副官啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Charizard  
 ##### 1912#       发表于 2017-6-4 23:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36154465&amp;ptid=1229445" target="_blank">云梦泽岸 发表于 2017-6-4 23:04</a>
@@ -7823,16 +5193,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 讲道理，这种二季原创一个新角色把一季主要角色全关起来的动画，我也是第一次见到
 
 
-
-
-
-
-
 -----
 
 ####  EdmundPZhang  
 ##### 1913#       发表于 2017-6-5 00:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36138080&amp;ptid=1229445" target="_blank">LilithMardin 发表于 2017-6-3 09:11</a>
@@ -7843,16 +5207,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 —— 来自 Xiaomi MI 6, Android 7.1.1上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  芳清源77  
 ##### 1914#       发表于 2017-6-5 10:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36138080&amp;ptid=1229445" target="_blank">LilithMardin 发表于 2017-6-3 09:11</a>
@@ -7863,16 +5221,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 这哪里烂了，大众都说好看。不符合你的意 就说烂片  你这样发出来误导别人  这番本来就够冷的
 
 
-
-
-
-
-
 -----
 
 ####  芳清源77  
 ##### 1915#       发表于 2017-6-5 10:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36139815&amp;ptid=1229445" target="_blank">古桥一浩 发表于 2017-6-3 13:00</a>
@@ -7885,16 +5237,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 我觉得亮点满满啊，一整集都很丰富  也不太会拉进度条。这是半年番   节奏太快 后面很容易崩  
 
 
-
-
-
-
-
 -----
 
 ####  芳清源77  
 ##### 1916#       发表于 2017-6-5 10:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36141880&amp;ptid=1229445" target="_blank">darkangel0224 发表于 2017-6-3 17:32</a>
@@ -7906,16 +5252,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 为什么我觉得比上集好看很多，多刷几遍都不会腻
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 1917#       发表于 2017-6-5 10:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36154465&amp;ptid=1229445" target="_blank">云梦泽岸 发表于 2017-6-4 23:04</a>
@@ -7928,16 +5268,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 你才发现吗，妮娜这种预见帅哥才变龙的设定就已经很搞笑了啊，和之前那个美女死神还我h之魂一样一样的。
 
 
-
-
-
-
-
 -----
 
 ####  芳清源77  
 ##### 1918#       发表于 2017-6-5 10:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36145192&amp;ptid=1229445" target="_blank">漫区专号 发表于 2017-6-4 00:09</a>
@@ -7946,16 +5280,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 他怎么知道他们认识
 
 
-
-
-
-
-
 -----
 
 ####  芳清源77  
 ##### 1919#       发表于 2017-6-5 10:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36154465&amp;ptid=1229445" target="_blank">云梦泽岸 发表于 2017-6-4 23:04</a>
@@ -7968,16 +5296,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 搞笑聚集
 
 
-
-
-
-
-
 -----
 
 ####  云梦泽岸  
 ##### 1920#       发表于 2017-6-5 12:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36158244&amp;ptid=1229445" target="_blank">amulelernen 发表于 2017-6-5 10:36</a>
@@ -7986,17 +5308,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 主要是看之前大家在一起婊国王有些不理解：这不是个搞笑剧么？万一国王屠神灭魔的原因只是因为阿酱瞅了眼自己的金丝眼镜呢？
 
 
-
-
-
-
-
 -----
 
 ####  C男人  
 ##### 1921#       发表于 2017-6-5 12:54
-
-
 
 
 接下来就是僵尸奶奶稳定输出，
@@ -8007,16 +5322,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 <img src="https://static.saraba1st.com/image/smiley/face/114.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  青夢  
 ##### 1922#       发表于 2017-6-5 13:50
-
 
 
  本帖最后由 青夢 于 2017-6-5 13:54 编辑 
@@ -8030,16 +5339,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 这是小瞧凯撒了，他可是胸怀“圣母心”并以“相互理解”方式付诸行动的人物，对王上拔剑而不死，人脉广，朝中有金大腿老上司（下狱了），又结识草莽豪杰（劳改了），神（谪迁高官东窗事发了）魔（败类废物刑拘了）都有交情，还有强力僵尸后援（情人？），两手下也是不凡角色，团长以恶魔事下狱，还能轻轻松松嫖宿恶魔，可谓泰山崩于前而面不改色，细思恐极<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xiaomajia2000  
 ##### 1923#       发表于 2017-6-5 14:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36160567&amp;ptid=1229445" target="_blank">青夢 发表于 2017-6-5 13:50</a>
@@ -8048,17 +5351,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 听起来好像后宫男主角啊→_→
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1924#       发表于 2017-6-5 14:34
-
-
 
 
 婊国王的真的没几个，大部分人也还是半调侃的谈剧情啦
@@ -8067,32 +5363,19 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  wtwtwt22  
 ##### 1925#       发表于 2017-6-5 14:42
 
 
-
-
 这几集感觉就是在拖进度，第一季的节奏要好很多
-
-
-
-
-
 
 
 -----
 
 ####  83913536  
 ##### 1926#       发表于 2017-6-5 14:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36154664&amp;ptid=1229445" target="_blank">心灵的乳头 发表于 2017-6-4 23:26</a>
@@ -8103,16 +5386,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 绿石力量之后肯定是要玩完的，奥尔良骑士团作为人类阵营的主要战斗力从上到下沉迷恶魔不可自拔，就连人皇怕也要惨遭龙族村姑毒手。
 
 
-
-
-
-
-
 -----
 
 ####  心灵的乳头  
 ##### 1927#       发表于 2017-6-5 15:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36161119&amp;ptid=1229445" target="_blank">83913536 发表于 2017-6-5 14:46</a>
@@ -8123,16 +5400,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 看片尾，起码村姑一血给了国王，来个屌爆的混血出第三季，我看可以<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  83913536  
 ##### 1928#       发表于 2017-6-5 15:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36161509&amp;ptid=1229445" target="_blank">心灵的乳头 发表于 2017-6-5 15:24</a>
@@ -8141,26 +5412,15 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 说起来龙族和巴哈姆特什么关系？单纯的远亲？按理说一个世界最终BOSS是龙的情况下，龙族居然屁事不干地建个小村子整日划水，其他人也不在乎下？
 
 
-
-
-
-
-
 -----
 
 ####  mcq_2  
 ##### 1929#       发表于 2017-6-5 16:31
 
 
-
 <blockquote>83913536 发表于 2017-6-5 15:29
 说起来龙族和巴哈姆特什么关系？单纯的远亲？按理说一个世界最终BOSS是龙的情况下，龙族居然屁事不干地建 ...</blockquote>
 不能太纠结世界观。
-
-
-
-
-
 
 
 -----
@@ -8169,13 +5429,7 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1930#       发表于 2017-6-5 17:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">这集也就是说国王是个大大的心机BOY呀！
-
-
-
-
-
 
 
 -----
@@ -8184,16 +5438,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1931#       发表于 2017-6-5 18:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36161569&amp;ptid=1229445" target="_blank">83913536 发表于 2017-6-5 15:29</a>
 
 说起来龙族和巴哈姆特什么关系？单纯的远亲？按理说一个世界最终BOSS是龙的情况下，龙族居然屁事不干地建 ...</blockquote>
 巴哈可能是上位种，龙族只是下位种，而妮娜算混血亚种，我这么猜想。
-
-
-
-
-
 
 
 -----
@@ -8202,14 +5450,7 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1932#       发表于 2017-6-5 22:25
 
 
-
-
 有没有人脑洞妮娜她爸是巴哈姆特，毕竟人家说了爸爸是龙妈妈是人，既然是第二季主角，光环总得来头大些
-
-
-
-
-
 
 
 -----
@@ -8218,23 +5459,16 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ##### 1933#       发表于 2017-6-5 22:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36161569&amp;ptid=1229445" target="_blank">83913536 发表于 2017-6-5 15:29</a>
 
 说起来龙族和巴哈姆特什么关系？单纯的远亲？按理说一个世界最终BOSS是龙的情况下，龙族居然屁事不干地建 ...</blockquote>
 你把巴哈看作一种天灾比较适合，巴哈世界观的龙族一般都被划分到魔和神外加被人骑的算人，不能算是一个单一种族
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1934#       发表于 2017-6-6 01:22
-
 
 
 <blockquote>引用第1949楼ynfsynfs于2017-06-05 22:25发表的  :
@@ -8246,16 +5480,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 1935#       发表于 2017-6-7 00:25
-
 
 
 [http://www.anitama.cn/article/04c2662c21f1d1bb](http://www.anitama.cn/article/04c2662c21f1d1bb)
@@ -8276,16 +5504,10 @@ BD赠品情报出了…送SSR妮娜和SSR必得…
 除此之外，奥尔良骑士团的亚历山大给大石留下了印象。虽说以现在的时间点看，这是个可有可无，偶尔露面的路人角色。因为涉及剧透，大石在此不便细说，只说，此人的一生令人唏嘘。再有就是姆伽洛，今后会越来越看到这孩子富有人情，或者说展露欲望的一面。
 
 
-
-
-
-
-
 -----
 
 ####  83913536  
 ##### 1936#       发表于 2017-6-7 00:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36178038&amp;ptid=1229445" target="_blank">临界点 发表于 2017-6-7 00:25</a>
@@ -8299,16 +5521,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 亚历山大这就过了一生？便当预定
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 1937#       发表于 2017-6-7 00:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36178038&amp;ptid=1229445" target="_blank">临界点 发表于 2017-6-7 00:25</a>
@@ -8325,16 +5541,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 美男么
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 1938#       发表于 2017-6-7 00:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36178083&amp;ptid=1229445" target="_blank">83913536 发表于 2017-6-7 00:32</a>
@@ -8350,16 +5560,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 后面贞德回来了，想想就尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 1939#       发表于 2017-6-7 00:57
-
 
 
  本帖最后由 临界点 于 2017-6-7 00:59 编辑 
@@ -8371,16 +5575,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 就是凯撒在骑士团的那个年轻跟班吧   这个没办法判断后面会不会死
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 1940#       发表于 2017-6-7 01:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36178165&amp;ptid=1229445" target="_blank">Chia 发表于 2017-6-7 00:45</a>
@@ -8392,16 +5590,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 之前有转过k岛的简单翻译  这次是完整版
 
 
-
-
-
-
-
 -----
 
 ####  83913536  
 ##### 1941#       发表于 2017-6-7 01:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36178224&amp;ptid=1229445" target="_blank">临界点 发表于 2017-6-7 00:57</a>
@@ -8410,16 +5602,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 没，我只是想吐糟忧郁熟男阿酱，完美男子人皇....
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 1942#       发表于 2017-6-7 01:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36178273&amp;ptid=1229445" target="_blank">83913536 发表于 2017-6-7 01:06</a>
@@ -8428,17 +5614,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 皇帝除了立场外 确实挺完美的啊     阿酱就真的是.......    大石静这是被制作团队坑了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1943#       发表于 2017-6-7 02:43
-
-
 
 
 这翻译硬是转换成第三人称显得有点别扭，大石说她没看懂所以希望这次写得浅显易懂一点(当然反效果是节奏显得比较拖
@@ -8449,25 +5628,13 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  xiaomajia2000  
 ##### 1944#       发表于 2017-6-7 10:59
 
 
-
-
 贴吧早就出这篇访谈的翻译了
-
-
-
-
-
 
 
 -----
@@ -8476,14 +5643,7 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1945#       发表于 2017-6-7 22:57
 
 
-
-
 于是阿酱是怎么变成现在这样的吃瘪担当的
-
-
-
-
-
 
 
 -----
@@ -8492,16 +5652,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1946#       发表于 2017-6-7 23:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36188931&amp;ptid=1229445" target="_blank">567844 发表于 2017-6-7 22:57</a>
 
 于是阿酱是怎么变成现在这样的吃瘪担当的</blockquote>
 第一部被马车辗过之后就已经完成这种定位了<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8510,21 +5664,13 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1947#       发表于 2017-6-7 23:52
 
 
-
-
 看完访谈后我十分担心这部毁在大石手里。夏利欧斯这种活生生的霸道总裁可能会成为第一个黑点。
-
-
-
-
-
 
 
 -----
 
 ####  临界点  
 ##### 1948#       发表于 2017-6-8 00:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36189480&amp;ptid=1229445" target="_blank">断裂的歌谣 发表于 2017-6-7 23:52</a>
@@ -8535,26 +5681,15 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 在这片子里面她只是负责填充细节  大纲剧情方向都是制作人定好了的
 
 
-
-
-
-
-
 -----
 
 ####  皇神樂耶  
 ##### 1949#       发表于 2017-6-8 01:30
 
 
-
 <blockquote>ynfsynfs 发表于 2017-6-5 22:25
 有没有人脑洞妮娜她爸是巴哈姆特，毕竟人家说了爸爸是龙妈妈是人，既然是第二季主角，光环总得来头大些 ...</blockquote>
 的确很奇怪，妮娜为什么从没想过投靠出外打工的亲爹？
-
-
-
-
-
 
 
 -----
@@ -8563,23 +5698,16 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1950#       发表于 2017-6-8 02:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36190108&amp;ptid=1229445" target="_blank">皇神樂耶 发表于 2017-6-8 01:30</a>
 
 的确很奇怪，妮娜为什么从没想过投靠出外打工的亲爹？</blockquote>
 并不是所有人都喜欢投靠父母的啊  更不用说她是被爆炸头的故事吸引了想当赏金猎人 更不可能去找亲爹
 
 
-
-
-
-
-
 -----
 
 ####  皇神樂耶  
 ##### 1951#       发表于 2017-6-8 09:32
-
 
 
 <blockquote>临界点 发表于 2017-6-8 02:10
@@ -8589,16 +5717,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 给我一种她爸爸已经走了的感觉
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 1952#       发表于 2017-6-8 10:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36191691&amp;ptid=1229445" target="_blank">皇神樂耶 发表于 2017-6-8 09:32</a>
@@ -8609,25 +5731,13 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 她爸很早就出去了吧 而且写信回家也就只有妈妈能收到 提爸爸干嘛呢   
 
 
-
-
-
-
-
 -----
 
 ####  芳清源77  
 ##### 1953#       发表于 2017-6-9 10:23
 
 
-
-
 为什么今天没有先行图，你们知道吗
-
-
-
-
-
 
 
 -----
@@ -8636,14 +5746,7 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1954#       发表于 2017-6-9 10:27
 
 
-
-
 然后 新的一集没有什么消息么 周五了哎
-
-
-
-
-
 
 
 -----
@@ -8652,14 +5755,7 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1955#       发表于 2017-6-9 10:58
 
 
-
-
 总集回吗
-
-
-
-
-
 
 
 -----
@@ -8668,16 +5764,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1956#       发表于 2017-6-9 11:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36204723&amp;ptid=1229445" target="_blank">xiaomajia2000 发表于 2017-6-9 10:58</a>
 
 总集回吗</blockquote>
 总集回是什么意思？
-
-
-
-
-
 
 
 -----
@@ -8686,16 +5776,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1957#       发表于 2017-6-9 11:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36204723&amp;ptid=1229445" target="_blank">xiaomajia2000 发表于 2017-6-9 10:58</a>
 
 总集回吗</blockquote>
 应该不会吧，现在才第10集而且剧情铺垫了两集刚准备进入一个小高潮现在来个总集不怕被观众喷死
-
-
-
-
-
 
 
 -----
@@ -8704,23 +5788,16 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1958#       发表于 2017-6-9 16:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36205186&amp;ptid=1229445" target="_blank">HLGG2 发表于 2017-6-9 11:32</a>
 
 应该不会吧，现在才第10集而且剧情铺垫了两集刚准备进入一个小高潮现在来个总集不怕被观众喷死 ...</blockquote>
 但是到现在都没有先行图(哭)
 
 
-
-
-
-
-
 -----
 
 ####  shadow001  
 ##### 1959#       发表于 2017-6-10 02:46
-
 
 
  本帖最后由 shadow001 于 2017-6-10 04:15 编辑 
@@ -8737,17 +5814,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 下集應該真的逃獄吧,看來妮娜這邊有獄卒幫助
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 1960#       发表于 2017-6-10 03:07
-
-
 
 
 有点像堕天使化了？
@@ -8758,25 +5828,13 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 还有这禁忌力真tm猛，索菲也是被吊打的命，这游戏还能玩？Timba<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xiaomajia2000  
 ##### 1961#       发表于 2017-6-10 07:46
 
 
-
-
 生肉没看懂，贞德这孩子是入梦受孕？米迦勒大丧失<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8785,14 +5843,7 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1962#       发表于 2017-6-10 09:01
 
 
-
-
 你们在哪里看的
-
-
-
-
-
 
 
 -----
@@ -8801,14 +5852,7 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1963#       发表于 2017-6-10 10:23
 
 
-
-
 米迦勒亲爹，艾尔麻吉天使，贞德真是个坚强的母亲<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8817,15 +5861,8 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1964#       发表于 2017-6-10 12:28
 
 
-
-
 上集结尾才越狱鼓掌，这集回牢房说往事，太尴尬了。
 贞德秘传的染发配方也是没谁了。
-
-
-
-
-
 
 
 -----
@@ -8834,22 +5871,14 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1965#       发表于 2017-6-10 12:29
 
 
-
-
 上集结尾才越狱鼓掌，这集回牢房说往事，太尴尬了。
 贞德秘传的染发配方也是没谁了。
-
-
-
-
-
 
 
 -----
 
 ####  pzk  
 ##### 1966#       发表于 2017-6-10 12:35
-
 
 
  本帖最后由 pzk 于 2017-6-10 12:37 编辑 
@@ -8864,25 +5893,13 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 阿萨谢尔说姆加洛被奴隶主割了翅膀和喉咙，但姆加洛说不定是因为受的刺激过大，惊吓失声，以后还有说话的可能性？
 
 
-
-
-
-
-
 -----
 
 ####  吃货红毛  
 ##### 1967#       发表于 2017-6-10 12:48
 
 
-
-
 阿萨谢顶233
-
-
-
-
-
 
 
 -----
@@ -8891,15 +5908,9 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1968#       发表于 2017-6-10 12:51
 
 
-
  本帖最后由 dayuii 于 2017-6-10 12:58 编辑 
 
 这贞德是不是最弱贞德 弱鸡成这样看着来气啊ps 同一天看巴哈和剑风是最蛋疼的 有钱没好故事和好故事没钱
-
-
-
-
-
 
 
 -----
@@ -8908,22 +5919,13 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1969#       发表于 2017-6-10 12:53
 
 
-
-
 国王给自己加冕太帅了
-
-
-
-
-
 
 
 -----
 
 ####  qhcn  
 ##### 1970#       发表于 2017-6-10 12:54
-
-
 
 
 妹的一帮人欺负一个寡妇可真仗义啊！
@@ -8935,17 +5937,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 或者和阿米拉有关系
 
 
-
-
-
-
-
 -----
 
 ####  半自动式宅  
 ##### 1971#       发表于 2017-6-10 12:56
-
-
 
 
 贞德这十年太惨了，然后放过监狱吧，监狱是无辜的<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
@@ -8953,16 +5948,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 [  -- 来自 Stage1官球 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
 
 
-
-
-
-
-
 -----
 
 ####  哆来咪  
 ##### 1972#       发表于 2017-6-10 13:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36216097&amp;ptid=1229445" target="_blank">pzk 发表于 2017-6-10 12:35</a>
@@ -8973,26 +5962,15 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 没神（外）迹（挂）加持的女性打不过男性士兵，没什么不对的
 
 
-
-
-
-
-
 -----
 
 ####  ynfsynfs  
 ##### 1973#       发表于 2017-6-10 13:26
 
 
-
 <blockquote>吃货红毛 发表于 2017-6-10 12:48
 阿萨谢顶233</blockquote>
 丈母娘和女婿的互相调侃XD
-
-
-
-
-
 
 
 -----
@@ -9001,17 +5979,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1974#       发表于 2017-6-10 13:28
 
 
-
-
 我满心期待本周终于可以上演精彩越狱大戏了结果却给我来了个一整集的回忆！
 
 
 还有照这节奏下去后面国王会被怼得很惨
-
-
-
-
-
 
 
 -----
@@ -9020,21 +5991,13 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1975#       发表于 2017-6-10 13:35
 
 
-
-
 似李！米迦勒！果然是米迦勒的种。神交那里笑疯了。
-
-
-
-
-
 
 
 -----
 
 ####  p35535  
 ##### 1976#       发表于 2017-6-10 14:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36216257&amp;ptid=1229445" target="_blank">dayuii 发表于 2017-6-10 12:51</a>
@@ -9045,27 +6008,15 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 这才是真村姑啊，很真实233。  巴哈剧情还行吧，至少看完想来专楼逛逛，也没有弃番的想法，我还是超期待后面的展开的。
 
 
-
-
-
-
-
 -----
 
 ####  只爱小国  
 ##### 1977#       发表于 2017-6-10 14:13
 
 
-
-
 怀孕生子过程是不是太快了点...
 
 贞德实在太苦了
-
-
-
-
-
 
 
 -----
@@ -9074,22 +6025,13 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1978#       发表于 2017-6-10 14:20
 
 
-
-
 贞德母子俩真的好惨啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  七里ヶ浜雨音  
 ##### 1979#       发表于 2017-6-10 14:26
-
-
 
 
 剪断翅膀后镜头向上抬，出现了被用木条封上的玫瑰花窗，这才发现屠杀恶魔的地方是废弃的教堂。
@@ -9100,13 +6042,9 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 不过这么沉重的故事最后却以狱卒关爱智障的眼神结尾，这一季怎么都严肃不起来了吧
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -9116,12 +6054,7 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 | 松冈茉优| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -9130,14 +6063,7 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1980#       发表于 2017-6-10 14:27
 
 
-
-
 一剪子把后背的丁丁剪掉了！
-
-
-
-
-
 
 
 -----
@@ -9146,21 +6072,13 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1981#       发表于 2017-6-10 14:37
 
 
-
-
 村姑贞德美如画,没想到没了神力真的变成村姑了
-
-
-
-
-
 
 
 -----
 
 ####  Nico_Minoru  
 ##### 1982#       发表于 2017-6-10 14:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36216289&amp;ptid=1229445" target="_blank">qhcn 发表于 2017-6-10 12:54</a>
@@ -9171,27 +6089,15 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 这个故事很眼熟，索菲不会是上季元帅的定位吧
 
 
-
-
-
-
-
 -----
 
 ####  アキモト  
 ##### 1983#       发表于 2017-6-10 15:10
 
 
-
-
 剪翅膀那里看哭了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 阿萨谢顶wwww
-
-
-
-
-
 
 
 -----
@@ -9200,22 +6106,13 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1984#       发表于 2017-6-10 15:20
 
 
-
-
 这话把贞德塑造得太赞了，第一季还只是个打打打的女战士，第二季是真正有血有肉的人了。
-
-
-
-
-
 
 
 -----
 
 ####  Yacha  
 ##### 1985#       发表于 2017-6-10 15:30
-
-
 
 
 艾尔真的好可爱，母子那一段太温馨了…越是温馨想到后面的展开就越是难过<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
@@ -9225,25 +6122,13 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 — from Google Pixel, Android 7.1.2 of [S1 Next Goose](https://play.google.com/store/apps/details?id=me.ykrank.s1next) v1.2.1
 
 
-
-
-
-
-
 -----
 
 ####  xiaomajia2000  
 ##### 1986#       发表于 2017-6-10 15:39
 
 
-
-
 幼儿期的艾尔好萌啊，俩小翅膀好萌哦，真小天使，为什么要长那么快
-
-
-
-
-
 
 
 -----
@@ -9252,17 +6137,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1987#       发表于 2017-6-10 15:47
 
 
-
-
 剪翅膀看哭了，还是这么个充满神性的构图，妈呀……
 
 
 小天使艾尔太可爱了，胖乎乎的，就是西方油画里的那种小天使啊……啊，太可爱了妈呀，羡慕贞德能生个这样的<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9271,14 +6149,7 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1988#       发表于 2017-6-10 15:47
 
 
-
-
 那么艾尔小天使到底是男是女,反正我没看到欧金金
-
-
-
-
-
 
 
 -----
@@ -9287,14 +6158,7 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1989#       发表于 2017-6-10 16:00
 
 
-
-
 这集炸裂，音乐太棒，贞德美如画。
-
-
-
-
-
 
 
 -----
@@ -9303,21 +6167,13 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1990#       发表于 2017-6-10 16:07
 
 
-
-
 真想抱着艾尔小天使啾咪一口……
-
-
-
-
-
 
 
 -----
 
 ####  567844  
 ##### 1991#       发表于 2017-6-10 16:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36217776&amp;ptid=1229445" target="_blank">韩子 发表于 2017-6-10 15:47</a>
@@ -9329,25 +6185,13 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 严格意义上来说不是生出来的啊
 
 
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 1992#       发表于 2017-6-10 16:39
 
 
-
-
 有钱没故事。
-
-
-
-
-
 
 
 -----
@@ -9356,16 +6200,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1993#       发表于 2017-6-10 16:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36218126&amp;ptid=1229445" target="_blank">567844 发表于 2017-6-10 16:38</a>
 
 严格意义上来说不是生出来的啊</blockquote>
 只是生出来的方式跟我们凡人不一样而已，但还是她生出来的啊……
-
-
-
-
-
 
 
 -----
@@ -9374,14 +6212,7 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1994#       发表于 2017-6-10 16:46
 
 
-
-
 比接吻怀孕还过分。
-
-
-
-
-
 
 
 -----
@@ -9390,21 +6221,13 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1995#       发表于 2017-6-10 16:47
 
 
-
-
 话说之前国王叫贞德跟他联手干嘛，已经没有战力了，鉴于系构访谈的话又不能往人妻控之类的去想
-
-
-
-
-
 
 
 -----
 
 ####  Chia  
 ##### 1996#       发表于 2017-6-10 16:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36218187&amp;ptid=1229445" target="_blank">beer 发表于 2017-6-10 16:47</a>
@@ -9416,25 +6239,13 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 贞德是她们精神领袖，站个队就很有用了
 
 
-
-
-
-
-
 -----
 
 ####  玛基  
 ##### 1997#       发表于 2017-6-10 17:19
 
 
-
-
 这禁忌之力屠神灭魔的怕不是巴哈的碎块之类的玩意……
-
-
-
-
-
 
 
 -----
@@ -9443,16 +6254,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1998#       发表于 2017-6-10 17:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36218164&amp;ptid=1229445" target="_blank">韩子 发表于 2017-6-10 16:45</a>
 
 只是生出来的方式跟我们凡人不一样而已，但还是她生出来的啊……</blockquote>
 但是我想看贞德挺着个大肚子锄大地啊
-
-
-
-
-
 
 
 -----
@@ -9461,14 +6266,7 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 1999#       发表于 2017-6-10 17:32
 
 
-
-
 前面气氛正悲伤着呢，C part一秒转搞笑片，妮娜破坏气氛的能力真是巴哈级的
-
-
-
-
-
 
 
 -----
@@ -9477,14 +6275,7 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 2000#       发表于 2017-6-10 17:53
 
 
-
-
 但是我看完贞德的故事跟妮娜是一个反应的<img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9493,16 +6284,9 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 2001#       发表于 2017-6-10 17:57
 
 
-
-
 还是没解释国王依靠的究竟是什么力量，那些绿光到底是什么？
 
 还有为什么艾尔会有克制这些力量的能力
-
-
-
-
-
 
 
 -----
@@ -9511,17 +6295,9 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 2002#       发表于 2017-6-10 18:23
 
 
-
  本帖最后由 临界点 于 2017-6-10 18:26 编辑 
 
 虽然剧情基本都能猜到（毕竟前面都有伏笔了）  但后面这段演出还是真的挺给力的
-
-
-
-
-
-
-
 
 
 -----
@@ -9530,23 +6306,16 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 2003#       发表于 2017-6-10 18:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36218444&amp;ptid=1229445" target="_blank">玛基 发表于 2017-6-10 17:19</a>
 
 这禁忌之力屠神灭魔的怕不是巴哈的碎块之类的玩意……</blockquote>
 姆伽罗要真能封印巴哈碎片就更复杂了
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 2004#       发表于 2017-6-10 18:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36218645&amp;ptid=1229445" target="_blank">hyjsttt 发表于 2017-6-10 17:57</a>
@@ -9557,16 +6326,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 现在还没到一半得剧情呢  都说清楚了后面讲啥？
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 2005#       发表于 2017-6-10 18:31
-
 
 
  本帖最后由 临界点 于 2017-6-10 18:32 编辑 
@@ -9580,16 +6343,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 巴哈这集又没啥打戏  扯有钱没钱干嘛  论演出效果到目前为止这季就我在追的片子里面还没超过后面这段的  就故事而言在这季原创里面也算说不错的了   
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 2006#       发表于 2017-6-10 18:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36218963&amp;ptid=1229445" target="_blank">临界点 发表于 2017-6-10 18:31</a>
@@ -9600,27 +6357,15 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 我记得ova里说过和boss学过剑术,我原来还以为是怀孕造成战斗力下降,结果穆佳罗就这么生出来了
 
 
-
-
-
-
-
 -----
 
 ####  断裂的歌谣  
 ##### 2007#       发表于 2017-6-10 20:29
 
 
-
-
 喊着三族并存的凯撒连一个无辜的孩子都保不住，手上沾满鲜血的国王至少能让王都再不用担心恶魔来袭。
 
 虽然我知道按这个展开一定是国王被打脸人神魔互相理解斗巴哈，但再凶残的实干家也比喊口号的善人强。
-
-
-
-
-
 
 
 -----
@@ -9629,14 +6374,7 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 2008#       发表于 2017-6-10 20:30
 
 
-
-
 不能这样算，回忆里这个恶魔就算是所谓的受伤了，也要凯撒和大叔两个人一起解决，眼镜那种说法本身就是诡辩，而且摔倒后贞德想站起来立刻就头晕了，故意去刺激身心都受伤的人根本没啥好说的
-
-
-
-
-
 
 
 -----
@@ -9645,14 +6383,7 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 2009#       发表于 2017-6-10 20:32
 
 
-
-
 这话真不错，贞德生小天使到母子分离配合背景音乐看的太带感了，等BD出来就订向土豪势力低头
-
-
-
-
-
 
 
 -----
@@ -9661,14 +6392,7 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 2010#       发表于 2017-6-10 20:36
 
 
-
-
 凯撒在做恶魔猎人杀了多少恶魔保护多少村子不说，光他是杀死巴哈的功臣之一，这点就比只会因为私怨（个人猜国王肯定有什么黑历史导致这么恨神魔）而利用整个王国搞种族屠杀，到后面还要遭报应可能还连累百姓的国王强1万倍吧。
-
-
-
-
-
 
 
 -----
@@ -9677,14 +6401,7 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 2011#       发表于 2017-6-10 20:39
 
 
-
-
 哈？凯撒是喊口号的圣人？上季是谁牺牲了一只手干掉了巴哈？吹人皇也不是这么吹的吧
-
-
-
-
-
 
 
 -----
@@ -9693,23 +6410,16 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 2012#       发表于 2017-6-10 20:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36220094&amp;ptid=1229445" target="_blank">nage560 发表于 2017-6-10 20:36</a>
 
 凯撒在做恶魔猎人杀了多少恶魔保护多少村子不说，光他是杀死巴哈的功臣之一，这点就比只会因为私怨（个人猜 ...</blockquote>
 我发现有些人为了吹人皇谁都能黑，凯撒这种上季主要功臣在他们眼里就是个只会喊口号的
 
 
-
-
-
-
-
 -----
 
 ####  灵魂收割机  
 ##### 2013#       发表于 2017-6-10 20:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36220014&amp;ptid=1229445" target="_blank">断裂的歌谣 发表于 2017-6-10 20:29</a>
@@ -9720,25 +6430,13 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 把国王丢到凯撒当时站的那个地方一样保不下那小孩。
 
 
-
-
-
-
-
 -----
 
 ####  thez  
 ##### 2014#       发表于 2017-6-10 20:43
 
 
-
-
 第一季故事基本忘光了，贞德这话说他杀死了神是指啥？
-
-
-
-
-
 
 
 -----
@@ -9747,16 +6445,9 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 2015#       发表于 2017-6-10 20:44
 
 
-
-
 唉？话说贞德叫小天使艾尔那穆迦罗是阿酱起的名字？
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (Microsoft Lumia 640XL)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
@@ -9765,16 +6456,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 2016#       发表于 2017-6-10 20:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36220123&amp;ptid=1229445" target="_blank">Charizard 发表于 2017-6-10 20:39</a>
 
 我发现有些人为了吹人皇谁都能黑，凯撒这种上季主要功臣在他们眼里就是个只会喊口号的 ...</blockquote>
 凯撒恰好是和喊口号无关系的那种人，有些人黑得太过了，无视就好。
-
-
-
-
-
 
 
 -----
@@ -9783,16 +6468,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 2017#       发表于 2017-6-10 20:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36220155&amp;ptid=1229445" target="_blank">thez 发表于 2017-6-10 20:43</a>
 
 第一季故事基本忘光了，贞德这话说他杀死了神是指啥？</blockquote>
 黑化后捅死了自己的信仰米迦勒，后者死前让贞德恢复了
-
-
-
-
-
 
 
 -----
@@ -9801,16 +6480,9 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 2018#       发表于 2017-6-10 20:48
 
 
-
-
 这么说起来穆迦罗这名字的发音听起来就像米迦勒…
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (Microsoft Lumia 640XL)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
@@ -9819,16 +6491,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 2019#       发表于 2017-6-10 20:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36220155&amp;ptid=1229445" target="_blank">thez 发表于 2017-6-10 20:43</a>
 
 第一季故事基本忘光了，贞德这话说他杀死了神是指啥？</blockquote>
 贞德黑化的时候干掉了四大天使里的三个
-
-
-
-
-
 
 
 -----
@@ -9837,23 +6503,15 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 ##### 2020#       发表于 2017-6-10 20:48
 
 
-
-
 我在这说三族并存你们扯巴哈，是不是搞笑了点？
 
 凯撒从第二季开始做成了什么？保受虐待恶魔没保住，拦阿萨谢尔没拦住，阻止恐怖攻击没阻止住，唯二的成就不就是拦住暴走妮娜(还是人家自己停的手)和救下阿萨谢尔一条命？国王是混蛋不假，但你问问普通民众，是让人民再不用生活在恶魔攻城的梦魇里的国王伟大还是奥尔良骑士团团长伟大？说到底一上升到种族这种高度，还谈什么善恶？广岛长崎的民众当然悲惨，但究竟为什么核弹会落下来？
-
-
-
-
-
 
 
 -----
 
 ####  断裂的歌谣  
 ##### 2021#       发表于 2017-6-10 20:49
-
 
 
  本帖最后由 断裂的歌谣 于 2017-6-10 20:51 编辑 
@@ -9863,16 +6521,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 国王确实保不下小孩但他能让小孩身边再无恶魔出现，这是国王的义务。
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2022#       发表于 2017-6-10 20:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36220168&amp;ptid=1229445" target="_blank">bandage_n2_ki 发表于 2017-6-10 20:44</a>
@@ -9883,16 +6535,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 如果小天使没有自带识字能力的话，怀疑是当时阿酱从口型上猜的，但如何会出现和米迦勒类似的名字就不好说了
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2023#       发表于 2017-6-10 21:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36220196&amp;ptid=1229445" target="_blank">断裂的歌谣 发表于 2017-6-10 20:48</a>
@@ -9907,16 +6553,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 这在贞德时代是不可能的，可见这个年代的骑士团在人民心中已经毫无地位了
 
 
-
-
-
-
-
 -----
 
 ####  断裂的歌谣  
 ##### 2024#       发表于 2017-6-10 21:14
-
 
 
  本帖最后由 断裂的歌谣 于 2017-6-10 21:25 编辑 
@@ -9931,16 +6571,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 说起来，就算在贞德时代，骑士团也谈不上压制魔族(赏金猎人手头单子可不少)，但民众还是支持骑士团顺带崇拜神，无非就是骑士团给了民众在这黑暗世界里活下去的希望。国王的做法就相当于告诉民众“用不着崇拜神，咱们人族有力量”，民众也就不太把神和骑士团当回事了。
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2025#       发表于 2017-6-10 21:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36220417&amp;ptid=1229445" target="_blank">断裂的歌谣 发表于 2017-6-10 21:14</a>
@@ -9953,33 +6587,19 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 还有就是，他显然不是真心对了人民。只是碰巧做着符合人民的利益的事情
 
 
-
-
-
-
-
 -----
 
 ####  超阳电子炮  
 ##### 2026#       发表于 2017-6-10 21:29
 
 
-
-
 这集真好啊！好心疼贞德啊，怎么遭罪的都是她，特别是她剪掉艾尔翅膀的时候，心都要cei成八瓣了吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  新屋  
 ##### 2027#       发表于 2017-6-10 21:33
-
-
 
 
 国王对贞德的态度过分了，贞德是功勋元老，善良公正，拯救过很多人。只因为不肯同国王合作就把她打成身无分文的白丁。还好贞德还年轻，要是个老头这么下乡根本活不了多久。
@@ -9991,16 +6611,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 凯撒跟那个副队长真是骑士团最后的良心。副队长在夜店里从始至终都坐怀不乱。
 
 
-
-
-
-
-
 -----
 
 ####  断裂的歌谣  
 ##### 2028#       发表于 2017-6-10 21:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36220524&amp;ptid=1229445" target="_blank">Chia 发表于 2017-6-10 21:25</a>
@@ -10013,16 +6627,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 至于安全性问题，按这个剧情来看肯定是国王玩脱的起点。但我觉得这个其实很像核技术，确实高风险，但人类要是不点这条科技树，化石能源迟早有用完的一天。只要风险控制在一个合理的范围内，人们其实是不太在意的。飞机极少出事但一旦出事九死一生，现在头顶上照样有几百架飞机飞着呢。
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 2029#       发表于 2017-6-10 21:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36220606&amp;ptid=1229445" target="_blank">新屋 发表于 2017-6-10 21:33</a>
@@ -10033,17 +6641,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 还有，考虑到这一季的逗比属性……可能那个年轻的骑士会是最后的关键。搞不好他会因为热爱贞德而爆发哦。
 
 
-
-
-
-
-
 -----
 
 ####  新屋  
 ##### 2030#       发表于 2017-6-10 21:59
-
-
 
 
 凯撒确实品德崇高。为人态度挑不出毛病。
@@ -10055,16 +6656,10 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 片中的魔族已经沦为奴隶了，而人皇还是随随便便滥杀，以阿萨这样的刺儿头不造反才怪。
 
 
-
-
-
-
-
 -----
 
 ####  新屋  
 ##### 2031#       发表于 2017-6-10 22:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36220771&amp;amp;ptid=1229445" target="_blank">amulelernen 发表于 2017-6-10 21:54</a>
@@ -10075,25 +6670,13 @@ http://www.anitama.cn/article/04c2662c21f1d1bb
 应该是欧皇要公开摆明一种态度，跟神明势不两立撇清关系。从贞德开始，以后有敢跟神扯上关系的人，就是这下场。
 
 
-
-
-
-
-
 -----
 
 ####  eternum  
 ##### 2032#       发表于 2017-6-10 22:09
 
 
-
-
 jojo打恶魔我能理解，jojo打神又是为什么呢
-
-
-
-
-
 
 
 -----
@@ -10102,14 +6685,7 @@ jojo打恶魔我能理解，jojo打神又是为什么呢
 ##### 2033#       发表于 2017-6-10 22:12
 
 
-
-
 感觉现在国王的这个技术肯定是跟米迦勒有关吧
-
-
-
-
-
 
 
 -----
@@ -10118,22 +6694,15 @@ jojo打恶魔我能理解，jojo打神又是为什么呢
 ##### 2034#       发表于 2017-6-10 22:14
 
 
-
 <blockquote>eternum 发表于 2017-6-10 22:09
 jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 如果不是私人恩怨，那就是为了重塑信仰吧。大抵和破佛灭法相似？
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 2035#       发表于 2017-6-10 22:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36220871&amp;ptid=1229445" target="_blank">新屋 发表于 2017-6-10 22:06</a>
@@ -10144,16 +6713,10 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 对啊我就是这个意思，看得出这个国王非常激进，要彻底切割开人和神之前的那种关系，为我所用可以，要不然就对立。贞德打回村姑反而是因为有功不好下重手，要不然可能都被做掉或者直接关押了。不过后面大家过的滋润了，貌似也没什么人记挂贞德了。
 
 
-
-
-
-
-
 -----
 
 ####  断裂的歌谣  
 ##### 2036#       发表于 2017-6-10 22:19
-
 
 
 <blockquote>新屋 发表于 2017-6-10 21:59
@@ -10163,17 +6726,10 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 这才是国王的黑点。高压下的魔族要是针对普通民众展开恐怖袭击，就算国王能一一碾平百姓肯定死伤惨重。这种情况把恶魔收为二等公民而保障其生命安全应该是更好的选择
 
 
-
-
-
-
-
 -----
 
 ####  韩子  
 ##### 2037#       发表于 2017-6-10 22:24
-
-
 
 
 哎哟太后知后觉了……才发现“艾尔”这个其实是取全名后两个字的简称
@@ -10185,16 +6741,10 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 （该不会根本不是米伽勒和贞德神交生的儿子，而是米伽勒自己的灵魂借贞德的身体投胎了？但是没有上辈子的记忆，就是个纯真小天使……
 
 
-
-
-
-
-
 -----
 
 ####  agion117  
 ##### 2038#       发表于 2017-6-10 22:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36220983&amp;ptid=1229445" target="_blank">断裂的歌谣 发表于 2017-6-10 22:19</a>
@@ -10203,25 +6753,13 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 你的观点是国王应该学赵匡胤杯酒释兵权吗？
 
 
-
-
-
-
-
 -----
 
 ####  qwxbtgb  
 ##### 2039#       发表于 2017-6-10 22:25
 
 
-
-
 氪石是国王从神那抢来的，国王是怎么知道的？这石头米迦勒看样子可以把它无效化，就算这样，神也不拿来用，看样子还有其他问题了。
-
-
-
-
-
 
 
 -----
@@ -10230,23 +6768,16 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 ##### 2040#       发表于 2017-6-10 22:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36220897&amp;ptid=1229445" target="_blank">eternum 发表于 2017-6-10 22:09</a>
 
 jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 一个是为了抢石头，另一个是为了削弱民众对神的信仰吧
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2041#       发表于 2017-6-10 22:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36221030&amp;ptid=1229445" target="_blank">韩子 发表于 2017-6-10 22:24</a>
@@ -10268,25 +6799,16 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
      由此可推出天使名的尾音“尔”带有光辉的意思，而这正是天使的特征。
 
 
-
-
 这是完全粘贴的，希望可以解答。。。
 
 
-
 这是完全粘贴的，希望可以解答。。。
-
-
-
-
-
 
 
 -----
 
 ####  nage560  
 ##### 2042#       发表于 2017-6-10 22:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36221030&amp;ptid=1229445" target="_blank">韩子 发表于 2017-6-10 22:24</a>
@@ -10298,27 +6820,15 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 这设定有点像山田风太郎的魔界转生淡口味版。
 
 
-
-
-
-
-
 -----
 
 ####  bandage_n2_ki  
 ##### 2043#       发表于 2017-6-10 22:45
 
 
-
-
 说起来…妮娜牢房在贞德对面…这安排莫非是国王找贞德喝茶b时顺便还能看眼妮娜？的心机？（并没有）
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (Microsoft Lumia 640XL)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
@@ -10327,16 +6837,10 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 ##### 2044#       发表于 2017-6-10 22:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36221142&amp;ptid=1229445" target="_blank">Chia 发表于 2017-6-10 22:34</a>
 
 几乎所有使徒/天使都是以'尔'(el、elle etc.)等为名号的尾字，这究竟是什么意思呢？'尔'就是'天使'的意思 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10345,23 +6849,16 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 ##### 2045#       发表于 2017-6-11 00:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36221127&amp;ptid=1229445" target="_blank">ulir 发表于 2017-6-10 22:33</a>
 
 一个是为了抢石头，另一个是为了削弱民众对神的信仰吧</blockquote>
 皇帝要贞德一起去攻打神殿的时候已经出现黑士兵    我觉得应该是他能当上皇帝靠的也是这个  没有绿石之前去攻打神殿怎么可能打得过  估计去神殿是抢另外的东西    
 
 
-
-
-
-
-
 -----
 
 ####  大厨麦当牛  
 ##### 2046#       发表于 2017-6-11 00:05
-
 
 
 <blockquote>韩子 发表于 2017-6-10 22:24
@@ -10376,16 +6873,10 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 星际争霸里自称神之长子的星灵的母星也叫艾尔。
 
 
-
-
-
-
-
 -----
 
 ####  韩子  
 ##### 2047#       发表于 2017-6-11 00:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36221970&amp;ptid=1229445" target="_blank">大厨麦当牛 发表于 2017-6-11 00:05</a>
@@ -10398,27 +6889,15 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 上面已经有大大回答啦……是有宗教意味的来着
 
 
-
-
-
-
-
 -----
 
 ####  cat1230  
 ##### 2048#       发表于 2017-6-11 00:28
 
 
-
-
 这集内容非常好啊，感情渲染到位，一个坚强母亲的形象屹立于大地之上<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 哪里是有钱没故事嘛，再说单这集也看不出有钱没钱。
-
-
-
-
-
 
 
 -----
@@ -10427,16 +6906,9 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 ##### 2049#       发表于 2017-6-11 00:32
 
 
-
-
 等等，这集也能算没故事么
 
 泥潭这水平怕不是还不如某站，后花园失格呢
-
-
-
-
-
 
 
 -----
@@ -10445,21 +6917,13 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 ##### 2050#       发表于 2017-6-11 00:39
 
 
-
-
 话说这片一直都看得很顺畅，算是少有的能让人开心追的番。有人说没故事，我不能理解<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  韩子  
 ##### 2051#       发表于 2017-6-11 00:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36222152&amp;ptid=1229445" target="_blank">哆来咪 发表于 2017-6-11 00:32</a>
@@ -10470,16 +6934,10 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 无论在泥潭还是某站，说有钱没故事和“水了一集”的都是少数啦……（后者后面跟着一群骂他的弹幕2333
 
 
-
-
-
-
-
 -----
 
 ####  哆来咪  
 ##### 2052#       发表于 2017-6-11 00:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36222202&amp;ptid=1229445" target="_blank">韩子 发表于 2017-6-11 00:39</a>
@@ -10491,16 +6949,10 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 后来确认了下，发现是我把“水”作为关键字屏蔽了XD
 
 
-
-
-
-
-
 -----
 
 ####  韩子  
 ##### 2053#       发表于 2017-6-11 00:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36222224&amp;ptid=1229445" target="_blank">哆来咪 发表于 2017-6-11 00:41</a>
@@ -10512,32 +6964,19 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 我在中途那个用户屏蔽了，之后都再也没看到有人说水，但时不时就弹出十几个追着骂“这都能叫水”的，看来应该就那一个人233
 
 
-
-
-
-
-
 -----
 
 ####  muderx  
 ##### 2054#       发表于 2017-6-11 05:21
 
 
-
-
 这一集把第二季拔高了档
-
-
-
-
-
 
 
 -----
 
 ####  mumubear  
 ##### 2055#       发表于 2017-6-11 05:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36221242&amp;ptid=1229445" target="_blank">bandage_n2_ki 发表于 2017-6-10 22:45</a>
@@ -10548,25 +6987,13 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 妮娜只是碰巧力气太大了才关在看守最严密的牢房里吧。。。你看妮娜脚上锁了炮弹照样龙精虎猛得跳来跳去。。。越狱什么的。。。洒洒水啦。。。
 
 
-
-
-
-
-
 -----
 
 ####  北风游骑兵  
 ##### 2056#       发表于 2017-6-11 08:11
 
 
-
-
 虽然是作为文戏的回忆，但演出效果爆表，既解释了之前的一些疑惑，又埋了一些新线索，为啥有人觉得这叫没故事？
-
-
-
-
-
 
 
 -----
@@ -10575,16 +7002,10 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 ##### 2057#       发表于 2017-6-11 10:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36223104&amp;ptid=1229445" target="_blank">mumubear 发表于 2017-6-11 05:24</a>
 
 妮娜只是碰巧力气太大了才关在看守最严密的牢房里吧。。。你看妮娜脚上锁了炮弹照样龙精虎猛得跳来跳去。 ...</blockquote>
 那监狱是个孤岛 除非她能变龙 要不光靠她一个人还是逃不掉的
-
-
-
-
-
 
 
 -----
@@ -10593,16 +7014,10 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 ##### 2058#       发表于 2017-6-11 10:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36223441&amp;ptid=1229445" target="_blank">北风游骑兵 发表于 2017-6-11 08:11</a>
 
 虽然是作为文戏的回忆，但演出效果爆表，既解释了之前的一些疑惑，又埋了一些新线索，为啥有人觉得这叫没故 ...</blockquote>
 对有些人来说没越狱=没故事
-
-
-
-
-
 
 
 -----
@@ -10611,20 +7026,13 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 ##### 2059#       发表于 2017-6-11 10:32
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没按某些人的想法拍就叫水
-
-
-
-
-
 
 
 -----
 
 ####  EdmundPZhang  
 ##### 2060#       发表于 2017-6-11 10:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36216257&amp;ptid=1229445" target="_blank">dayuii 发表于 2017-6-10 12:51</a>
@@ -10636,32 +7044,19 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 —— 来自 Xiaomi MI 6, Android 7.1.1上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2061#       发表于 2017-6-11 10:38
 
 
-
-
 说水的有几个也不是第一次说水了，直接忽视就好了
-
-
-
-
-
 
 
 -----
 
 ####  EdmundPZhang  
 ##### 2062#       发表于 2017-6-11 10:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36216289&amp;ptid=1229445" target="_blank">qhcn 发表于 2017-6-10 12:54</a>
@@ -10673,27 +7068,15 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 —— 来自 Xiaomi MI 6, Android 7.1.1上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  厨厨光波  
 ##### 2063#       发表于 2017-6-11 11:17
 
 
-
-
 这下恶魔干死了个萝莉
 
 之前那些个“死了个恶魔妞就大喊国王必须死”的人咧？<img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10702,22 +7085,14 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 ##### 2064#       发表于 2017-6-11 11:51
 
 
-
-
 忘了上一季贞德杀了哪个神了，是米迦勒吗？
 有没有帮忙回忆下的。
-
-
-
-
-
 
 
 -----
 
 ####  新屋  
 ##### 2065#       发表于 2017-6-11 11:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36225084&amp;ptid=1229445" target="_blank">ai-至死の病 发表于 2017-6-11 11:51</a>
@@ -10728,16 +7103,10 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 三个大天使，一刀一个。米迦勒是其中之一。
 
 
-
-
-
-
-
 -----
 
 ####  Uruviel  
 ##### 2066#       发表于 2017-6-11 11:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36225084&amp;ptid=1229445" target="_blank">ai-至死の病 发表于 2017-6-11 11:51</a>
@@ -10748,16 +7117,10 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 是米迦勒，然后米迦勒还吻了贞德算是送了种吧…而且虽然说天使应该无性别，但是这个故事里四大天使里只有米迦勒是男性体征，其他全是妹子，前面如果说艾尔是米迦勒转世还是暗示的话，这集应该算是个明示了。
 
 
-
-
-
-
-
 -----
 
 ####  战场公主希维尔  
 ##### 2067#       发表于 2017-6-11 12:00
-
 
 
 <blockquote>厨厨光波 发表于 2017-6-11 11:17
@@ -10767,16 +7130,10 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 那个恶魔死了啊。
 
 
-
-
-
-
-
 -----
 
 ####  xiaomajia2000  
 ##### 2068#       发表于 2017-6-11 12:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36224777&amp;ptid=1229445" target="_blank">厨厨光波 发表于 2017-6-11 11:17</a>
@@ -10787,25 +7144,13 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 别胡搅蛮缠了，就事论事，那个杀人的恶魔已经死了 
 
 
-
-
-
-
-
 -----
 
 ####  HLGG2  
 ##### 2069#       发表于 2017-6-11 12:36
 
 
-
-
 第10集当然不是水但节奏有点怪，贞德和妮娜加深认识——产生友情——联手越狱这样不是更顺吗，不知道为什么要把贞德宣布越狱的部分放在上集<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10814,13 +7159,7 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 ##### 2070#       发表于 2017-6-11 12:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还真回去当村姑了
-
-
-
-
-
 
 
 -----
@@ -10829,15 +7168,9 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 ##### 2071#       发表于 2017-6-11 12:59
 
 
-
 <blockquote>临界点 发表于 2017-6-11 10:19
 对有些人来说没越狱=没故事</blockquote>
 是没打架=没内容
-
-
-
-
-
 
 
 -----
@@ -10846,21 +7179,13 @@ jojo打恶魔我能理解，jojo打神又是为什么呢</blockquote>
 ##### 2072#       发表于 2017-6-11 13:18
 
 
-
-
 看了这一集竟然还有人洗白恶魔黑国王,恶魔本来就不是什么好鸟,现在被虐是最有应得,凯撒反对国王虐杀是对的,办事不利是蠢的,救阿酱更是脑子进水
-
-
-
-
-
 
 
 -----
 
 ####  DOACAON  
 ##### 2073#       发表于 2017-6-11 13:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36221142&amp;ptid=1229445" target="_blank">Chia 发表于 2017-6-10 09:34</a>
@@ -10870,25 +7195,13 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 [https://en.wikipedia.org/wiki/El_(deity)](https://en.wikipedia.org/wiki/El_(deity))
 
 
-
-
-
-
-
 -----
 
 ####  千叶铁矢  
 ##### 2074#       发表于 2017-6-11 14:28
 
 
-
-
 这集演出有点厉害啊
-
-
-
-
-
 
 
 -----
@@ -10897,14 +7210,7 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 ##### 2075#       发表于 2017-6-11 14:28
 
 
-
-
 这集演出有点厉害啊
-
-
-
-
-
 
 
 -----
@@ -10913,14 +7219,7 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 ##### 2076#       发表于 2017-6-11 15:04
 
 
-
-
 这集质量好高，把巴哈从打打打直接拔高到有神性。贞德的表现可以说是一个真正的圣徒，形象立即高大丰满起来。
-
-
-
-
-
 
 
 -----
@@ -10929,24 +7228,16 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 ##### 2077#       发表于 2017-6-11 15:40
 
 
-
-
 这届贞德是我见过最惨的一届...第一季和第二季都在虐她,对母子感情渲染的真到位.
 
 
 话说泥潭水平怎么感觉一天不如一天,制作组画大力气塑造的这些人物不是让你们非黑即白的,每集都要说洗白抹黑这种车轱辘话不觉得无聊么,国王是个复杂的人,绝不是一两句黑白能概括的,这么多元化的一个形象只能看出好人坏人那真是白看了.
 
 
-
-
-
-
-
 -----
 
 ####  哥特式lolita  
 ##### 2078#       发表于 2017-6-11 15:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36221280&amp;ptid=1229445" target="_blank">韩子 发表于 2017-6-10 22:49</a>
@@ -10963,16 +7254,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 妮娜就是个傻子，只有她觉得是女生还信誓旦旦的糊了那么多人。。。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 2079#       发表于 2017-6-11 15:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36227277&amp;ptid=1229445" target="_blank">KuonjiClara 发表于 2017-6-11 15:40</a>
@@ -10984,25 +7269,13 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 你谈不是只剩下扭曲的钓鱼宅么
 
 
-
-
-
-
-
 -----
 
 ####  藤田有静  
 ##### 2080#       发表于 2017-6-11 16:53
 
 
-
-
 那些人皇吹得挺像一回事，我就继续吃瓜
-
-
-
-
-
 
 
 -----
@@ -11011,14 +7284,7 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 ##### 2081#       发表于 2017-6-11 17:03
 
 
-
-
 又回去看了一遍短篇OVA2，贞德在上季结束后是短发，也不是团长。她应该是后来又由于某些原因重回团长位置的，发型也恢复了。
-
-
-
-
-
 
 
 -----
@@ -11027,15 +7293,9 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 ##### 2082#       发表于 2017-6-11 18:09
 
 
-
 <blockquote>大晓尧 发表于 2017-6-4 17:46
 其实对妮娜的限制还是比别人多的，脚镣比别人重（那个球比贞德的大了一倍不止），牢房也是特别加深了一层 ...</blockquote>
 唯一能洗洗的也就脚镣（毕竟能换），从审判开始狱卒能勉强压住女主角；牢门前后不统一（还涉及角色的行动问题），就知道这里导演没有统筹好，下面的人做出来效果自然就不统一
-
-
-
-
-
 
 
 -----
@@ -11044,14 +7304,7 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 ##### 2083#       发表于 2017-6-11 18:13
 
 
-
-
 这集换贞德主氛围立马不一样了，想想为什么前面几集这么2都是女主的锅吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11060,21 +7313,13 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 ##### 2084#       发表于 2017-6-11 18:26
 
 
-
-
 “恶魔血染发剂，一次染黑，终身受用，大天使亲身试用，强力推荐！”<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  darkangel0224  
 ##### 2085#       发表于 2017-6-11 18:29
-
 
 
 <blockquote>LilithMardin 发表于 2017-6-10 12:28
@@ -11086,16 +7331,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 但是，这安排得确实很别扭。
 
 
-
-
-
-
-
 -----
 
 ####  darkangel0224  
 ##### 2086#       发表于 2017-6-11 18:32
-
 
 
 <blockquote>青夢 发表于 2017-6-5 13:50
@@ -11103,16 +7342,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 这说法能让人笑好长一段时间
 
 
-
-
-
-
-
 -----
 
 ####  darkangel0224  
 ##### 2087#       发表于 2017-6-11 18:34
-
 
 
 <blockquote>pzk 发表于 2017-6-10 12:35
@@ -11122,16 +7355,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 哥们儿，你倒回去看被带回去的一段，正太脖子上有伤疤（囧
 
 
-
-
-
-
-
 -----
 
 ####  darkangel0224  
 ##### 2088#       发表于 2017-6-11 18:37
-
 
 
 <blockquote>七里ヶ浜雨音 发表于 2017-6-10 14:26
@@ -11141,16 +7368,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 和楼上某人说的一样，这细节一想之下确实是个搞笑片
 
 
-
-
-
-
-
 -----
 
 ####  darkangel0224  
 ##### 2089#       发表于 2017-6-11 18:40
-
 
 
 <blockquote>临界点 发表于 2017-6-10 18:31
@@ -11160,16 +7381,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 又不是武戏才烧钱，人物脸型修正，光影修正也是钱
 
 
-
-
-
-
-
 -----
 
 ####  darkangel0224  
 ##### 2090#       发表于 2017-6-11 19:23
-
 
 
 <blockquote>HLGG2 发表于 2017-6-11 12:36
@@ -11177,17 +7392,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 可能是制作组出于强化贞德这个角色形象的目的，单独要求出一话。这确实导致了前后两集节奏别扭。按上一季的做法，这段回忆可以由贞德和正太两个角色分别带出来。
 
 
-
-
-
-
-
 -----
 
 ####  darkangel0224  
 ##### 2091#       发表于 2017-6-11 19:41
-
-
 
 
 这一集也是越看越迷
@@ -11207,32 +7415,19 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 人皇再三强调要要弄下正太，打一个大波波也只要两个氪星石单位，结果第八集里有主场优势还是没轰下来，迷
 
 
-
-
-
-
-
 -----
 
 ####  糊状物  
 ##### 2092#       发表于 2017-6-11 21:11
 
 
-
-
 贞德前前后后做团长很久了吧，一失业就这么惨，积蓄难不成全捐教会了，宗教真是可怕啊！
-
-
-
-
-
 
 
 -----
 
 ####  DOACAON  
 ##### 2093#       发表于 2017-6-11 21:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36230043&amp;ptid=1229445" target="_blank">糊状物 发表于 2017-6-11 08:11</a>
@@ -11243,25 +7438,13 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 倒是第一季里有这么个情节：国王想赏赐贞德，贞德说我不要赏赐，但请国王恢复凯撒的骑士身份。由此可以推测贞德很可能把大量的钱花在骑士团上了，包括招新人和发抚恤金很可能都是贞德自掏腰包的。
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 2094#       发表于 2017-6-11 21:32
 
 
-
-
 不去种地哪有美美的散发村姑造型给我舔
-
-
-
-
-
 
 
 -----
@@ -11270,16 +7453,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 ##### 2095#       发表于 2017-6-11 21:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36228776&amp;ptid=1229445" target="_blank">darkangel0224 发表于 2017-6-11 18:40</a>
 
 又不是武戏才烧钱，人物脸型修正，光影修正也是钱</blockquote>
 原画都是按镜头数给钱  这集就是普通水准 没必要扯有钱没钱的
-
-
-
-
-
 
 
 -----
@@ -11288,23 +7465,15 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 ##### 2096#       发表于 2017-6-11 21:41
 
 
-
-
 想起了上一季阿米拉的村姑造型。 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 <img src="http://image15.poco.cn/mypoco/myphoto/20141231/21/66148682201412312132262038699815658_008.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Charizard  
 ##### 2097#       发表于 2017-6-11 21:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36229331&amp;ptid=1229445" target="_blank">darkangel0224 发表于 2017-6-11 19:41</a>
@@ -11317,16 +7486,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 <img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">这片的世界观确实不能深究，能把手游编出个完整的故事已经算超水平了
 
 
-
-
-
-
-
 -----
 
 ####  云梦泽岸  
 ##### 2098#       发表于 2017-6-11 21:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36230135&amp;ptid=1229445" target="_blank">DOACAON 发表于 2017-6-11 21:22</a>
@@ -11337,16 +7500,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 自己养的骑士团里一堆二五仔，嘿呀好气呀！
 
 
-
-
-
-
-
 -----
 
 ####  beer  
 ##### 2099#       发表于 2017-6-11 23:24
-
 
 
  本帖最后由 beer 于 2017-6-11 23:25 编辑 
@@ -11362,25 +7519,13 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 <img src="https://ooo.0o0.ooo/2017/06/11/593d6075a3060.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Renes  
 ##### 2100#       发表于 2017-6-11 23:57
 
 
-
-
 这么一想 如果氪石是放在神族那的 是不是用来镇压巴哈姆特的东西 为了长时间的镇压巴哈姆特 神没法用也不打算用到其他地方 这下皇帝偷氪石 氪石不够用了 巴哈的棺材板就压不住了
-
-
-
-
-
 
 
 -----
@@ -11389,16 +7534,9 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 ##### 2101#       发表于 2017-6-12 02:43
 
 
-
-
 感应生子也太厉害了，直接跳过怀孕分娩婴幼儿阶段，刷刷两下凭空捏出个能跑能跳口吐人言的大儿子来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 恶魔血上色持久性那么好？不然想想小天使每天晚上暗搓搓给自己染发，也是不能好了。。。
-
-
-
-
-
 
 
 -----
@@ -11407,16 +7545,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 ##### 2102#       发表于 2017-6-12 09:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36231755&amp;ptid=1229445" target="_blank">Renes 发表于 2017-6-11 23:57</a>
 
 这么一想 如果氪石是放在神族那的 是不是用来镇压巴哈姆特的东西 为了长时间的镇压巴哈姆特 神没法用也不打 ...</blockquote>
 有可能，故事总得和巴哈姆特有点关系才是
-
-
-
-
-
 
 
 -----
@@ -11425,14 +7557,8 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 ##### 2103#       发表于 2017-6-12 09:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36231418&amp;ptid=1229445" target="_blank">beer 发表于 2017-6-11 23:24</a></blockquote>
 啊啊啊啊啊啊我的心脏！！！！！！（可爱到手抖
-
-
-
-
-
 
 
 -----
@@ -11441,16 +7567,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 ##### 2104#       发表于 2017-6-12 13:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36234232&amp;ptid=1229445" target="_blank">韩子 发表于 2017-6-12 09:35</a>
 
 啊啊啊啊啊啊我的心脏！！！！！！（可爱到手抖</blockquote>
 真的是天使啊！
-
-
-
-
-
 
 
 -----
@@ -11459,23 +7579,16 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 ##### 2105#       发表于 2017-6-12 13:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36236736&amp;ptid=1229445" target="_blank">beer 发表于 2017-6-12 13:24</a>
 
 真的是天使啊！</blockquote>
 港真可能是在日本动画里看到的最像天使的天使了………………（
 
 
-
-
-
-
-
 -----
 
 ####  luckey2  
 ##### 2106#       发表于 2017-6-12 14:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36223104&amp;amp;ptid=1229445" target="_blank">mumubear 发表于 2017-6-11 05:24</a>
@@ -11485,16 +7598,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 这脚链怕不是只能算个挂饰
 
 
-
-
-
-
-
 -----
 
 ####  流彩飞舞  
 ##### 2107#       发表于 2017-6-12 14:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36141880&amp;amp;ptid=1229445" target="_blank">darkangel0224 发表于 2017-6-3 17:32</a>
@@ -11507,16 +7614,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 我不介意拜读一下
 
 
-
-
-
-
-
 -----
 
 ####  流彩飞舞  
 ##### 2108#       发表于 2017-6-12 14:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36143113&amp;amp;ptid=1229445" target="_blank">古桥一浩 发表于 2017-6-3 19:57</a>
@@ -11528,16 +7629,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 何来客观一说？
 
 
-
-
-
-
-
 -----
 
 ####  流彩飞舞  
 ##### 2109#       发表于 2017-6-12 15:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36220613&amp;amp;ptid=1229445" target="_blank">断裂的歌谣 发表于 2017-6-10 21:33</a>
@@ -11547,17 +7642,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 民粹主义要不得
 
 
-
-
-
-
-
 -----
 
 ####  貓巫  
 ##### 2110#       发表于 2017-6-12 15:57
-
-
 
 
 萌死了 这集太赞 我都看哭了 
@@ -11569,16 +7657,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 不要因为看不懂就说剧情迷
 
 
-
-
-
-
-
 -----
 
 ####  貓巫  
 ##### 2111#       发表于 2017-6-12 16:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36229331&amp;ptid=1229445" target="_blank">darkangel0224 发表于 2017-6-11 19:41</a>
@@ -11599,16 +7681,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 皇帝没抓住神子 一是神子的力量当时绿石都没效了 二是后来又恢复的时候早就快送到天界的门了 三是皇帝自己其实很自信，觉得大不了把神殿打掉就好
 
 
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 2112#       发表于 2017-6-12 17:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36237592&amp;ptid=1229445" target="_blank">流彩飞舞 发表于 2017-6-12 14:41</a>
@@ -11635,16 +7711,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 多说无益。
 
 
-
-
-
-
-
 -----
 
 ####  芳清源77  
 ##### 2113#       发表于 2017-6-12 18:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36228541&amp;ptid=1229445" target="_blank">candygunbilly 发表于 2017-06-11 18:13:44</a>
@@ -11653,17 +7723,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 [  -- 来自 Stage1官球 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
 
 
-
-
-
-
-
 -----
 
 ####  蓝莲安  
 ##### 2114#       发表于 2017-6-12 20:40
-
-
 
 
 我记得小天使是哑巴？
@@ -11671,16 +7734,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 但这集没有把他弄哑的戏份啊，还是我记错了？
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2115#       发表于 2017-6-12 20:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36241212&amp;ptid=1229445" target="_blank">蓝莲安 发表于 2017-6-12 20:40</a>
@@ -11694,16 +7751,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 还有PTSD实例也有很多出现语言障碍的
 
 
-
-
-
-
-
 -----
 
 ####  darkangel0224  
 ##### 2116#       发表于 2017-6-12 20:46
-
 
 
 <blockquote>貓巫 发表于 2017-6-12 16:07
@@ -11725,16 +7776,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 所以我就说坑很多，很迷
 
 
-
-
-
-
-
 -----
 
 ####  蓝莲安  
 ##### 2117#       发表于 2017-6-12 22:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36241241&amp;ptid=1229445" target="_blank">Chia 发表于 2017-6-12 20:43</a>
@@ -11746,16 +7791,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">可怜的小天使
 
 
-
-
-
-
-
 -----
 
 ####  p35535  
 ##### 2118#       发表于 2017-6-12 23:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36241260&amp;ptid=1229445" target="_blank">darkangel0224 发表于 2017-6-12 20:46</a>
@@ -11768,16 +7807,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 其次片中都说了把贞德引向皇城，围三缺一不懂吗，这时还能怎么逃，进城还能借一下地形，其实最好的方法是回头突围，可惜没了神力贞德也就是个受过训练的普通士兵水平，还带着孩子，正面打单挑没胜算的。
 
 
-
-
-
-
-
 -----
 
 ####  新屋  
 ##### 2119#       发表于 2017-6-12 23:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36230135&amp;amp;ptid=1229445" target="_blank">DOACAON 发表于 2017-6-11 21:22</a>
@@ -11790,17 +7823,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 连凯撒都站着一动不动，确定是欧皇针对贞德，不准别人帮她。不然凯撒早就送她些盘缠。
 
 
-
-
-
-
-
 -----
 
 ####  Enfer  
 ##### 2120#       发表于 2017-6-13 00:42
-
-
 
 
 一口气补了四话，感觉最新话贞德回的水准才有了巴哈味，前边总觉得处理上有点不够爽利
@@ -11824,16 +7850,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 偏偏看访谈说大石静就是负责写这些细节，我……嗯，谨慎乐观，希望以后会越来越好吧。
 
 
-
-
-
-
-
 -----
 
 ####  Renes  
 ##### 2121#       发表于 2017-6-13 00:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36243292&amp;ptid=1229445" target="_blank">Enfer 发表于 2017-6-13 00:42</a>
@@ -11844,16 +7864,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 那句对不起主要是指阿酱喊她变红龙救姆伽洛但是她变不了没救成 再就是因为没变成 也让阿酱被抓了 后面被判刑的时候已经说了 不赞同国王的做法 那她对被抓的阿酱和姆伽洛有歉意是自然的 顺意变龙大闹妮娜是不会做的 但是救眼前的人这种事还是会做的
 
 
-
-
-
-
-
 -----
 
 ####  灵魂收割机  
 ##### 2122#       发表于 2017-6-13 00:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36243292&amp;ptid=1229445" target="_blank">Enfer 发表于 2017-6-13 00:42</a>
@@ -11864,16 +7878,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 本来妮娜当时就准备变龙帮助阿酱，结果失败，导致阿酱被抓，她心里过不去说得通。
 
 
-
-
-
-
-
 -----
 
 ####  新屋  
 ##### 2123#       发表于 2017-6-13 06:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36243292&amp;amp;ptid=1229445" target="_blank">Enfer 发表于 2017-6-13 00:42</a>
@@ -11888,17 +7896,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 连凯撒都非常不满阿萨把这个小姑娘牵扯进事件。
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2124#       发表于 2017-6-13 09:08
-
-
 
 
 妮娜本来就想变龙，一边说难道她莫非觉得愧对阿酱没有大杀特杀，一边说原本人家就没心没肺，还把妮娜嘴炮国王那段吞了当没发生过，也别扯什么细节了
@@ -11909,16 +7910,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  颠茄小蛋糕  
 ##### 2125#       发表于 2017-6-13 11:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36244207&amp;ptid=1229445" target="_blank">新屋 发表于 2017-6-13 06:18</a>
@@ -11939,33 +7934,19 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 对于阿酱我觉得还是不要有太多恶意的猜测，我觉得剧情已经足够清晰的表明了这货真的纯粹是个一根筋的笨蛋，尤其在利用人心的层面上一窍不通，考虑他有什么阴谋都是在浪费时间。
 
 
-
-
-
-
-
 -----
 
 ####  酒瓶止迁  
 ##### 2126#       发表于 2017-6-14 13:47
 
 
-
-
 这集挺好看啊，集集抱怨的心理预期到底有多高
-
-
-
-
-
 
 
 -----
 
 ####  Enfer  
 ##### 2127#       发表于 2017-6-14 21:09
-
-
 
 
 先感谢上边认真讨论的各路同好
@@ -11979,17 +7960,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 现在重看一次，感觉应该是第一种理解较为符合编剧意图……不过我这人天线长期长歪，嘛，习惯了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2128#       发表于 2017-6-15 23:21
-
-
 
 
 #11「Declaration of War」
@@ -12008,33 +7982,19 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fgmaofa3ynj216y0o71kx.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  灵魂收割机  
 ##### 2129#       发表于 2017-6-15 23:33
 
 
-
-
 洛基太牛逼了，为什么一只手成僵尸之后会这么聪明？？？
-
-
-
-
-
 
 
 -----
 
 ####  shadow001  
 ##### 2130#       发表于 2017-6-17 01:34
-
-
 
 
 妮娜你倆越獄前就不會先把腳鐐解開嗎?
@@ -12045,16 +8005,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 <img src="http://wx1.sinaimg.cn/large/be7b05ccgy1fgnk4uq6upj21hc0u07ca.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  pzk  
 ##### 2131#       发表于 2017-6-17 07:44
-
 
 
  本帖最后由 pzk 于 2017-6-17 07:48 编辑 
@@ -12067,26 +8021,15 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 看片中民众的反应，大概是有钱去得起斗兽场的中上层支持国王（想了想这个结论违反了贝叶斯定理，毕竟当时喜欢看魔族角斗的人大概率支持国王），住边缘的贫下中农支持贞德
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2132#       发表于 2017-6-17 08:15
 
 
-
  本帖最后由 nage560 于 2017-6-17 08:17 编辑 
 
 这集已经可以肯定国王是因为私怨而不是为苍生着想屠神灭魔的了吧，民众这集都说了国王要和神开战我们这些民众怎么办。还有很多信神的民众知道贞德被抓了后去抗议立马被军队镇压。国王压根就不是把平民的命放在第一位，而是把屠神灭魔放在第一位。
-
-
-
-
-
 
 
 -----
@@ -12095,21 +8038,13 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 ##### 2133#       发表于 2017-6-17 09:32
 
 
-
-
 莉塔真的是越看越可爱，想看莉塔的番外......
-
-
-
-
-
 
 
 -----
 
 ####  鱼缸  
 ##### 2134#       发表于 2017-6-17 09:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36293444&amp;ptid=1229445" target="_blank">pzk 发表于 2017-6-17 07:44</a>
@@ -12124,17 +8059,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 可想而知之前的神族是个什么样的处境（）
 
 
-
-
-
-
-
 -----
 
 ####  zmw_831110  
 ##### 2135#       发表于 2017-6-17 09:38
-
-
 
 
 太棒了！好看！
@@ -12142,16 +8070,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 —— 来自 LENOVO Lenovo X3c50, Android 6.0.1上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 2136#       发表于 2017-6-17 09:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36292616&amp;ptid=1229445" target="_blank">shadow001 发表于 2017-6-17 01:34</a>
@@ -12164,16 +8086,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 构图的艺术~~~
 
 
-
-
-
-
-
 -----
 
 ####  cat1230  
 ##### 2137#       发表于 2017-6-17 09:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36292616&amp;ptid=1229445" target="_blank">shadow001 发表于 2017-6-17 01:34</a>
@@ -12186,17 +8102,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 解开铁链就不能cos陈国汉无双了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  云梦泽岸  
 ##### 2138#       发表于 2017-6-17 10:03
-
-
 
 
 明明一个死灵法师，丽塔是什么时候转职成为刺客的，这一手太溜。
@@ -12206,16 +8115,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 不过国王也有些情种的样子，这时候还要调个情，staff偏爱的角色待遇就是不一样啊。
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2139#       发表于 2017-6-17 10:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36294186&amp;ptid=1229445" target="_blank">cat1230 发表于 2017-6-17 09:57</a>
@@ -12224,26 +8127,15 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 妮娜无双的时候我在想那些守卫不会被揍死吗？这可是铁球+妮娜的怪力双重打击啊。
 
 
-
-
-
-
-
 -----
 
 ####  耳耳女  
 ##### 2140#       发表于 2017-6-17 10:22
 
 
-
  本帖最后由 耳耳女 于 2017-6-17 10:24 编辑 
 
 国王除了智商感人以外，其他的确很“完美”。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">也不知道是怎么个“宫斗”法上位的。
-
-
-
-
-
 
 
 -----
@@ -12252,21 +8144,13 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 ##### 2141#       发表于 2017-6-17 11:58
 
 
-
-
 凯撒的手比他有用。
-
-
-
-
-
 
 
 -----
 
 ####  mhfdt  
 ##### 2142#       发表于 2017-6-17 12:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36294368&amp;ptid=1229445" target="_blank">耳耳女 发表于 2017-6-17 03:22</a>
@@ -12277,16 +8161,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 宫什么斗，巴哈战前恶魔袭城该死的都死光了，没死的也成废人了
 
 
-
-
-
-
-
 -----
 
 ####  流彩飞舞  
 ##### 2143#       发表于 2017-6-17 12:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36239800&amp;amp;ptid=1229445" target="_blank">古桥一浩 发表于 2017-6-12 17:47</a>
@@ -12301,16 +8179,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 你也有脸说
 
 
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 2144#       发表于 2017-6-17 12:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36295359&amp;ptid=1229445" target="_blank">流彩飞舞 发表于 2017-6-17 12:19</a>
@@ -12325,16 +8197,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 有趣。
 
 
-
-
-
-
-
 -----
 
 ####  流彩飞舞  
 ##### 2145#       发表于 2017-6-17 12:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36266403&amp;amp;ptid=1229445" target="_blank">Enfer 发表于 2017-6-14 21:09</a>
@@ -12347,16 +8213,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 有个心态上变化
 
 
-
-
-
-
-
 -----
 
 ####  qhcn  
 ##### 2146#       发表于 2017-6-17 12:30
-
 
 
  本帖最后由 qhcn 于 2017-6-17 12:40 编辑 
@@ -12366,17 +8226,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 妮娜的铁球简直是绑定流星锤
 
 
-
-
-
-
-
 -----
 
 ####  Charizard  
 ##### 2147#       发表于 2017-6-17 12:32
-
-
 
 
 凯撒的小手为什么这么可爱！
@@ -12384,16 +8237,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 以及这话总算有写底层民众对国王的看法了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  流彩飞舞  
 ##### 2148#       发表于 2017-6-17 12:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36295404&amp;amp;ptid=1229445" target="_blank">古桥一浩 发表于 2017-6-17 12:24</a>
@@ -12407,16 +8254,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 我觉得你错了还不能说你错了？
 
 
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 2149#       发表于 2017-6-17 12:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36295501&amp;ptid=1229445" target="_blank">流彩飞舞 发表于 2017-6-17 12:33</a>
@@ -12429,25 +8270,13 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 多说无益。
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2150#       发表于 2017-6-17 13:02
 
 
-
-
 看这集还说到了恶魔部队，估计国王弄竞技场不止为了娱乐，还是集结强力的恶魔，准备打天使啊。
-
-
-
-
-
 
 
 -----
@@ -12456,16 +8285,9 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 ##### 2151#       发表于 2017-6-17 13:32
 
 
-
-
 国王在监狱岛地下造的核弹行不行啊……
 
 这集真是仁慈，只死了一个恶魔，守卫应该是都没死，不愧是妮娜线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12474,13 +8296,7 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 ##### 2152#       发表于 2017-6-17 13:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我开始信他们起码做完了前20集才上映的了，监狱岛下面的应该是pv里那个迷之物质了吧
-
-
-
-
-
 
 
 -----
@@ -12489,22 +8305,13 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 ##### 2153#       发表于 2017-6-17 14:00
 
 
-
-
 这集再次证实我之前的猜测，国王只顾着屠神灭魔，哪里会考虑会不会波及平民的安全，从之前凯撒事先警告恶魔袭击国王不理就看出来了，这其实很容易看出来，但国王粉一直装作不懂或者无视。
-
-
-
-
-
 
 
 -----
 
 ####  nage560  
 ##### 2154#       发表于 2017-6-17 14:08
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201706/17/140706x6hzcwghgy1rypy0.jpg" referrerpolicy="no-referrer">
@@ -12517,16 +8324,7 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 2017-6-17 14:07 上传
 
 
-
-
-
-
 这集魔奸有个特写，看来是人类样子的，不知道是不是伏笔，是不是第一季出现的某个恶魔高层？
-
-
-
-
-
 
 
 -----
@@ -12535,13 +8333,7 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 ##### 2155#       发表于 2017-6-17 14:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">小天使长成爹样了，到底是不是投胎
-
-
-
-
-
 
 
 -----
@@ -12550,14 +8342,7 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 ##### 2156#       发表于 2017-6-17 14:17
 
 
-
-
 贞德怕蜘蛛的表情好萌,好想在在贞德的盔甲里放蜘蛛
-
-
-
-
-
 
 
 -----
@@ -12566,16 +8351,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 ##### 2157#       发表于 2017-6-17 14:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">是儿子还是老公都无所谓，现在想看小天使以后帮贞德把加百列击杀的成就也解锁掉
 
 
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
-
-
-
-
-
 
 
 -----
@@ -12584,21 +8363,13 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 ##### 2158#       发表于 2017-6-17 15:08
 
 
-
-
 全场最佳——僵尸妹丽塔，以及凯撒的手为什么比凯撒还要能干靠谱......妮娜说变成龙那里凯撒大概OK吧，为什么凯撒没有像法瓦罗那样受发型影响？妮娜是认为就算凯撒梳那个奇怪发型也算美男子的意思吗？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  炎武重黎  
 ##### 2159#       发表于 2017-6-17 15:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36296611&amp;ptid=1229445" target="_blank">ulir 发表于 2017-6-17 14:31</a>
@@ -12610,17 +8381,10 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 天使有做什么“坏事”吗？反而被人族各种攻破神殿，抢走禁忌之物，哪怕小天使的能力本来就是属于神族的。
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2160#       发表于 2017-6-17 17:15
-
-
 
 
 皇帝可是有主角光环的……至少活到最后一集
@@ -12629,27 +8393,15 @@ El就是“神”的意思，天使名字以el结尾是因为他们都是以“�
 加百列也这么玩怕是要<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  bandage_n2_ki  
 ##### 2161#       发表于 2017-6-17 18:27
 
 
-
-
 Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋从此不能变春丽（划掉）成龙？？？？不过国王应该没想那么多（=_）
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (Microsoft Lumia 640XL)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
@@ -12658,17 +8410,10 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 ##### 2162#       发表于 2017-6-17 18:56
 
 
-
-
 粉毛天使真是长着一副**的身体<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
 
 ----发送自 [Xiaomi MI 4LTE,Android 6.0.1](http://stage1.5j4m.com/?1.27)
-
-
-
-
-
 
 
 -----
@@ -12677,14 +8422,7 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 ##### 2163#       发表于 2017-6-17 19:24
 
 
-
-
 论一个优秀的母亲对孩子成长的重要性 
-
-
-
-
-
 
 
 -----
@@ -12693,14 +8431,7 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 ##### 2164#       发表于 2017-6-17 20:48
 
 
-
-
 唉，国王和妮娜的感情戏真是多余，破坏氛围
-
-
-
-
-
 
 
 -----
@@ -12709,14 +8440,7 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 ##### 2165#       发表于 2017-6-17 21:24
 
 
-
-
 还是丽塔可靠<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12725,15 +8449,9 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 ##### 2166#       发表于 2017-6-17 21:50
 
 
-
  本帖最后由 HLGG2 于 2017-6-17 21:52 编辑 
 
 不知道凯撒和法瓦罗那边有没有什么行动，这两个合流后不搞点事的话总觉得缺了什么
-
-
-
-
-
 
 
 -----
@@ -12742,14 +8460,7 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 ##### 2167#       发表于 2017-6-17 21:54
 
 
-
-
 神真是拿了个王牌就开始得瑟了，设定上神接受人类的供奉还是说人类的信仰对神有益？现在许多人已经不信仰神了感觉也没变弱还是怎样，难道就是单纯喜欢控制人类吗= =
-
-
-
-
-
 
 
 -----
@@ -12758,16 +8469,9 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 ##### 2168#       发表于 2017-6-17 22:35
 
 
-
-
 凯撒的手比他本人有用多了hhhhhh
 
 贞德真可爱死了我要给村姑打call<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12776,16 +8480,10 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 ##### 2169#       发表于 2017-6-17 23:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36299905&amp;ptid=1229445" target="_blank">henry8848 发表于 2017-6-17 20:48</a>
 
 唉，国王和妮娜的感情戏真是多余，破坏氛围</blockquote>
 我也这么觉得，瞬间出戏
-
-
-
-
-
 
 
 -----
@@ -12794,14 +8492,7 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 ##### 2170#       发表于 2017-6-17 23:53
 
 
-
-
 这个加巴列智商搞不好还没隔壁的废天使加百利高……
-
-
-
-
-
 
 
 -----
@@ -12810,23 +8501,15 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 ##### 2171#       发表于 2017-6-18 00:35
 
 
-
-
 所以说谁给的这帮天使自信啊,这么浪不怕把自己浪死啊...
 
 小艾尔还是不说话时候可爱点.
-
-
-
-
-
 
 
 -----
 
 ####  Byarlant  
 ##### 2172#       发表于 2017-6-18 01:15
-
 
 
  本帖最后由 Byarlant 于 2017-6-18 01:28 编辑 
@@ -12836,25 +8519,13 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 这黑的并不合适，因为城池就是最安全的地方，不然疏散到野外去喂狼吗？当然是全民抗战，被天使或恶魔占了上风，人类都没好日子过。国王自己在第一线，民众也没有什么立场缩着，要不然去像贞德一样到危险贫苦的郊外生活吧。错的是入侵者，而不是王。
 
 
-
-
-
-
-
 -----
 
 ####  dc19881121010  
 ##### 2173#       发表于 2017-6-18 01:52
 
 
-
-
 这+4+3怕不是这一季要挂，这传销搞的……
-
-
-
-
-
 
 
 -----
@@ -12863,21 +8534,13 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 ##### 2174#       发表于 2017-6-18 02:18
 
 
-
-
 把人类换成二战的日本很多情节就可以理解了
-
-
-
-
-
 
 
 -----
 
 ####  nage560  
 ##### 2175#       发表于 2017-6-18 06:33
-
 
 
  本帖最后由 nage560 于 2017-6-18 06:47 编辑 
@@ -12887,17 +8550,10 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 神**黑，最好办法就是不开战，天使占上风请问对人类有什么危害了？你非要去屠杀光别人不顾自己平民死活才是正确的？
 
 
-
-
-
-
-
 -----
 
 ####  新屋  
 ##### 2176#       发表于 2017-6-18 07:40
-
-
 
 
 欧皇对游行的镇压也只是驱散，拳打脚踹的对象也是那些先袭警的人。
@@ -12911,17 +8567,10 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 是屠神灭魔这点偏离主流作品旋律太远。
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2177#       发表于 2017-6-18 07:52
-
-
 
 
 皇帝打神是因为要他们不肯交出的东西
@@ -12938,32 +8587,19 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 更可能是继承某人的遗愿
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2178#       发表于 2017-6-18 08:04
 
 
-
-
 继承某人遗愿怎么会把事情做得这么极端，国王现在这怨妇样和极端行为肯定有私怨或者黑历史什么的。
-
-
-
-
-
 
 
 -----
 
 ####  Chia  
 ##### 2179#       发表于 2017-6-18 08:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36303314&amp;ptid=1229445" target="_blank">nage560 发表于 2017-6-18 08:04</a>
@@ -12979,16 +8615,10 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 我是没觉得他有什么怨妇行为:.....
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2180#       发表于 2017-6-18 08:30
-
 
 
  本帖最后由 nage560 于 2017-6-18 08:31 编辑 
@@ -13002,16 +8632,10 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 小时候被看不起，长大后要把人类带上顶峰，所以屠神灭魔，顺便还不管期间会波及多少平民死亡，就为了肃清对人类毫无害处的天使。真这样刻画国王就和那些有精神病的BOSS一个样了，还不如因为私怨黑历史走极端啊，比如全家被恶魔逼近绝境，祈求天使帮忙，结果天使说我很忙无空管你们，然后全家被杀，自己幸运活下来。但因为这件事导致极度怨恨恶魔和不帮忙的天使，认为人类要真正的强大，把天使恶魔都铲除掉。说怨妇行为是形容错了，说国王一脸苦大仇深的确很像。
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2181#       发表于 2017-6-18 08:48
-
 
 
 <blockquote>nage560 发表于 2017-6-18 08:30
@@ -13023,25 +8647,13 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 故事的主要矛盾也在于与巴哈本身的世界观冲突上。
 
 
-
-
-
-
-
 -----
 
 ####  qwxbtgb  
 ##### 2182#       发表于 2017-6-18 10:42
 
 
-
-
 最跳的不是国王么，抢了神族的东西，就开始耀武扬威了
-
-
-
-
-
 
 
 -----
@@ -13050,23 +8662,16 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 ##### 2183#       发表于 2017-6-18 11:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36299905&amp;ptid=1229445" target="_blank">henry8848 发表于 2017-06-17 20:48:02</a>
 唉，国王和妮娜的感情戏真是多余，破坏氛围</blockquote>不多余谢谢，讨论最高的也是这对cp
 
 [  -- 来自 Stage1官球 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 2184#       发表于 2017-6-18 11:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36294228&amp;ptid=1229445" target="_blank">云梦泽岸 发表于 2017-6-17 10:03</a>
@@ -13077,16 +8682,10 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 丽塔本来就是第一季主要角色中除了巴哈姆特最强的。实力未必最强，但是别的都有冲动冒失/迂腐/太小经验严重匮乏/太华丽于是不能动之类的毛病。
 
 
-
-
-
-
-
 -----
 
 ####  Byarlant  
 ##### 2185#       发表于 2017-6-18 12:51
-
 
 
  本帖最后由 Byarlant 于 2017-6-18 20:09 编辑 
@@ -13111,16 +8710,10 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 简言之，不屠神灭魔人类才无安全可言，贞德队长时代连个牛头都无法抵御。
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2186#       发表于 2017-6-18 13:16
-
 
 
  本帖最后由 nage560 于 2017-6-18 13:20 编辑 
@@ -13130,16 +8723,10 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 洗脑贞德儿子？？？不知道是谁瞎？加百利说的人皇抓了你母亲，又搞屠神灭魔这套是个暴君，哪里说错了？贞德被神信仰的洗脑？米迦勒这些人为了给一个凡人村姑洗脑连自己四大炽天使的命都不要了？四大炽天使的三个都被贞德干掉了，天使不要贞德的命反而叫姆伽罗去救他母亲？嘛，反正都是为了洗脑装出来的演技对不？为了洗脑一个村姑全部天使去死都值得对吧？ 恶魔袭击人类天使不来帮忙？先不说天使在第一季为了封印巴哈姆特成批成批的死，这个死了下一个马上顶上去，命贱得还不如一个蟑螂。这时候人类在做什么？就算天使没有遭受这么大的牺牲，真以为天使是万能，恶魔袭击人类都能面面俱到？因为你不下来帮我所以我要屠光你们？你3观棒棒地好。说我为黑人皇不讲逻辑？我觉得是你为了袒护国王不带3观了，感觉和你价值观3观上不同无讨论的必要了，要不让坛友来评价下你说的这段话吧。
 
 
-
-
-
-
-
 -----
 
 ####  Byarlant  
 ##### 2187#       发表于 2017-6-18 13:24
-
 
 
  本帖最后由 Byarlant 于 2017-6-18 13:26 编辑 
@@ -13170,16 +8757,10 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 而剧情如此明显的描写大天使的黑暗和利用贞德儿子和部下要为贞德人情而反水，所以之后官方剧情安排就是要啪啪啪的打你的脸呀，你现在这样嘴硬真的没问题吗？
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2188#       发表于 2017-6-18 13:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36305823&amp;ptid=1229445" target="_blank">Byarlant 发表于 2017-6-18 13:24</a>
@@ -13191,16 +8772,10 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 首先姆伽罗极可能是米迦勒的转世，或者是米迦勒把自己的力量借贞德转世出来，怎么说姆伽罗也是注定要回天界的人（不然米迦勒就是纯为了给贞德添个儿子让她别这么闷？）。作为天界炽天使之一米迦勒的寄托姆伽罗，是肯定要为了天界和准备屠杀天使的人皇战斗的，只不过这里加百利利用了贞德让他有个更直接的理由去干人皇（这里就显出加百利的愚蠢了，做多余的事，等姆伽罗恢复前世记忆再干人皇更好）。然后你说的天使不救贞德，关住贞德的大牢有大量的氪石军队把守，天使没有姆伽罗就想救贞德？？？你不看看索菲这个近卫面对两个氪石士兵都被当猴子耍了。其次，天使即便不救贞德又怎么了？贞德说到底也是干掉3个炽天使的人，天使不恨她已经很不错了，不救她完全不用觉得惭愧。立场转换一下，如果换成天使黑化干掉了人皇的兄弟姐妹，我看你这国王控会怎么想？即便加百利是利用了姆伽罗救母心切来消灭人皇，这TM不是人皇该有的结局吗？为了偷氪石屠杀天使，偷了氪石后准备屠戮干净天使。按你的逻辑是天使该坐以待毙洗干净脖子等国王宰咯？天使打又打不过有了氪石的人皇，这时候有了姆伽罗能压制人皇，不借他的力量还能怎么办？况且姆伽罗本来就是天界的人。如果立场转换，换成天使偷了国王的黑科技准备屠杀干净人类，然后这时候人皇掌握了一个拥有压制天使力量的人类，你会怎么想？按你说的，不能因为人类别灭就利用小孩子啊对不？
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2189#       发表于 2017-6-18 13:49
-
 
 
  本帖最后由 nage560 于 2017-6-18 13:50 编辑 
@@ -13208,16 +8783,10 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 再说一句，加百利即便是有黑点（也仅仅是利用同为天界的姆伽罗去打人皇），但比起国王的黑点来说，加百利的黑点连啥都不是，除非编剧后面爆出加百利被巴哈操纵，想屠尽3族什么的邪恶目的，不然我觉得加百利再怎么自私也比不上人皇吧。
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2190#       发表于 2017-6-18 13:52
-
 
 
  本帖最后由 nage560 于 2017-6-18 13:53 编辑 
@@ -13230,34 +8799,19 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 还有你可别忘了国王知道姆伽罗的力量后可是从追杀索菲改为追杀姆伽罗了哦，你真以为国王会放过姆伽罗这个威胁？你真以为国王会屠杀完天使后就放贞德两母子安静地生活？
 
 
-
-
-
-
-
 -----
 
 ####  须原秋纪  
 ##### 2191#       发表于 2017-6-18 16:59
 
 
-
-
 第二部从PV预告开始就说了是“恋爱和破坏的故事”，怎么现在人家主角小姑娘谈个恋爱碍着你们眼睛了，妮娜和石油王的感情线肯定会发展到故事最后一刻，并且因为妮娜是游离于目前的剧情主要冲突（人魔神斗争）之外的龙族，但是又拥有可以影响这个冲突的强大力量，她对于石油王作为一个恋爱对象的看法和作为一个人类国王的看法必然会决定她之后的行为和剧情走向
-
-
-
-
-
-
 
 
 -----
 
 ####  厨厨光波  
 ##### 2192#       发表于 2017-6-18 17:10
-
-
 
 
 我的天，要不要出去开个人皇anti楼啊<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
@@ -13267,17 +8821,10 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 现在非要揪着不放，可别最后黑出感情来啊
 
 
-
-
-
-
-
 -----
 
 ####  半自动式宅  
 ##### 2193#       发表于 2017-6-18 17:18
-
-
 
 
 看到一条弹幕“hr面人面了一半出去撩个妹，回来继续面”
@@ -13285,16 +8832,10 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 [  -- 来自 Stage1官球 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
 
 
-
-
-
-
-
 -----
 
 ####  须原秋纪  
 ##### 2194#       发表于 2017-6-18 17:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36307726&amp;ptid=1229445" target="_blank">厨厨光波 发表于 2017-6-18 17:10</a>
@@ -13307,16 +8848,10 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 建议开一个石油王anti楼和一个这里是石油王的真爱楼，喜欢的请天天来顶，剩下的人可以相安无事在这里舔丽塔<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Byarlant  
 ##### 2195#       发表于 2017-6-18 20:03
-
 
 
  本帖最后由 Byarlant 于 2017-6-18 20:07 编辑 
@@ -13335,17 +8870,10 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 其实包括之前凯撒顾虑的问题，人皇都想得到。这集展示了人皇有自己的一套恶魔“解放”方案，就是让有能力的恶魔角斗参军组织恶魔战团，一来不怕贞德儿子遏制黑骑士后没有人可用（毕竟恶魔和天使不对付），二来如果恶魔军团可以派上用场，那么就可以建立荣誉恶魔市民或佣兵制度；所以，故事中人皇的解决方案时类似罗马帝国和日耳曼雇佣兵的方式，然后没准阿酱也让他说服加入恶魔军团也未可知。所以，实际上人皇有自己的一套平衡标准，大体就是准备打到一定程度，以人类帝国体制为轴心，建立一套体系。
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2196#       发表于 2017-6-18 20:10
-
-
 
 
 就说一句，当初剧本侠还说妮娜怕是要变成弥海砂第二无脑支持国王各种悲剧，当然讨厌的地方不在这里而是全程都一副我很懂剧本要怎么演的态度，现在改思路直接黑国王好像钦点妮娜这事从来没发生过，简直可以去当时事占卜师
@@ -13354,32 +8882,19 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  qwxbtgb  
 ##### 2197#       发表于 2017-6-18 20:18
 
 
-
-
 难道不是吹人皇的不要脸么？至于艾尔，米迦勒选这个时候生艾尔明显就是为了阻止人皇了。
-
-
-
-
-
 
 
 -----
 
 ####  C男人  
 ##### 2198#       发表于 2017-6-18 20:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36302644&amp;ptid=1229445" target="_blank">83913536 发表于 2017-6-18 02:18</a>
@@ -13396,16 +8911,10 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 <img src="https://static.saraba1st.com/image/smiley/face/114.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  iamwar  
 ##### 2199#       发表于 2017-6-18 21:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36309264&amp;ptid=1229445" target="_blank">Byarlant 发表于 2017-6-18 20:03</a>
@@ -13414,16 +8923,10 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 诶，这么一说还真有点罗马帝国转轨的味道。皇帝本身套用了盖乌斯·屋大维和拿破仑的双重模板吧。不过凯撒真是无谋，从恶魔军来看皇帝对恶魔的关系处理确实不是没想法的放任式奴役，而是拉开阶级，培养荣誉从属阶层的恶魔。
 
 
-
-
-
-
-
 -----
 
 ####  高龙  
 ##### 2200#       发表于 2017-6-18 21:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36310245&amp;ptid=1229445" target="_blank">iamwar 发表于 2017-6-18 21:46</a>
@@ -13432,25 +8935,13 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 我觉得目前的人类和皇帝明显是拿破仑战争时期的套用，皇帝就是拿破仑，然后后门不管是对天使还是第三势力，必然要败一次滑铁卢，然后被民众和大臣出卖，你看关拿破仑的监狱岛都有现成的对应。然后再体现主角群体的价值。
 
 
-
-
-
-
-
 -----
 
 ####  芳清源77  
 ##### 2201#       发表于 2017-6-19 11:47
 
 
-
-
 神特么的美国 日本  我列个去 哈哈哈哈哈哈哈哈好 编剧压根就没想到那里去 简直就是另一个世界 人神魔共处 还有巴哈永远死不了的BOSS 
-
-
-
-
-
 
 
 -----
@@ -13459,16 +8950,10 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 ##### 2202#       发表于 2017-6-19 11:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36309330&amp;ptid=1229445" target="_blank">ulir 发表于 2017-6-18 20:10</a>
 
 就说一句，当初剧本侠还说妮娜怕是要变成弥海砂第二无脑支持国王各种悲剧，当然讨厌的地方不在这里而是全程 ...</blockquote>
 他们就编剧 是监制  是作画人  只要有键盘就是无所不能  前期各种带节奏说这编剧药丸 一定是乙女漫，到了现在就说这些剧情不是编剧的功劳  都是一开始监督人都整好了剧情大概  那你特么前期那么使劲黑编剧是干啥子
-
-
-
-
-
 
 
 -----
@@ -13477,13 +8962,7 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 ##### 2203#       发表于 2017-6-19 12:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">gay蓝出了个村姑贞德也太应景了，不过太软了总觉得哪里不对（x
-
-
-
-
-
 
 
 -----
@@ -13492,16 +8971,10 @@ Ummmmmmmm…如果国王已经算到妮娜变龙的方法所以让妮娜失恋�
 ##### 2204#       发表于 2017-6-19 12:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36319370&amp;ptid=1229445" target="_blank">ulir 发表于 2017-6-19 12:35</a>
 
 gay蓝出了个村姑贞德也太应景了，不过太软了总觉得哪里不对（x</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">那个是幼年期贞德吧，还没被选为圣女的时候
-
-
-
-
-
 
 
 -----
@@ -13510,14 +8983,7 @@ gay蓝出了个村姑贞德也太应景了，不过太软了总觉得哪里不�
 ##### 2205#       发表于 2017-6-19 17:21
 
 
-
-
 国王不是典型的红脖子鹰牌人物么,反正国王上台以后,人民日子好过了,原来被恶魔操现在可以上夜店操恶魔,你还敢说国王是坏人
-
-
-
-
-
 
 
 -----
@@ -13526,16 +8992,9 @@ gay蓝出了个村姑贞德也太应景了，不过太软了总觉得哪里不�
 ##### 2206#       发表于 2017-6-19 23:38
 
 
-
-
 几发yolo券没抽到，好气啊
 
 sr角色又不好超不好井，真的好气啊
-
-
-
-
-
 
 
 -----
@@ -13544,16 +9003,10 @@ sr角色又不好超不好井，真的好气啊
 ##### 2207#       发表于 2017-6-19 23:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36301722&amp;ptid=1229445" target="_blank">废基 发表于 2017-6-17 23:53</a>
 
 这个加巴列智商搞不好还没隔壁的废天使加百利高……</blockquote>
 她这集做法明明很高明啊 一方面挑动了人类内部矛盾  另一方面也引导了小天使帮她 比某恶魔厉害多了
-
-
-
-
-
 
 
 -----
@@ -13562,22 +9015,15 @@ sr角色又不好超不好井，真的好气啊
 ##### 2208#       发表于 2017-6-20 12:54
 
 
-
  本帖最后由 c88711611 于 2017-6-20 12:56 编辑 
 
 玻璃心萌豚真影响观感
-
-
-
-
-
 
 
 -----
 
 ####  HLGG2  
 ##### 2209#       发表于 2017-6-22 12:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36326375&amp;ptid=1229445" target="_blank">临界点 发表于 2017-6-19 23:43</a>
@@ -13588,17 +9034,10 @@ sr角色又不好超不好井，真的好气啊
 只是人皇那边有编剧的关爱与一直不督破的禁忌力量在秒天使就是一句话的事<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2210#       发表于 2017-6-22 23:26
-
-
 
 
 ■#12「The Great Escape」
@@ -13618,32 +9057,19 @@ sr角色又不好超不好井，真的好气啊
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fgue7x2xnqj21720o9h6r.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  小猫鼬  
 ##### 2211#       发表于 2017-6-23 10:04
 
 
-
-
 所以 到底改叫小天使 弟弟 还是 妹妹
-
-
-
-
-
 
 
 -----
 
 ####  shadow001  
 ##### 2212#       发表于 2017-6-24 01:27
-
 
 
  本帖最后由 shadow001 于 2017-6-24 01:33 编辑 
@@ -13655,16 +9081,10 @@ sr角色又不好超不好井，真的好气啊
 ENDCARD的BAHABAHA是DAOKO(ED的歌手)?
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2213#       发表于 2017-6-24 02:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36371896&amp;ptid=1229445" target="_blank">shadow001 发表于 2017-6-24 01:27</a>
@@ -13682,17 +9102,10 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 叫Cinderella什么的，还是daoko
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2214#       发表于 2017-6-24 02:54
-
-
 
 
 最后那大力神杯是什么哦<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">长得像失落文明
@@ -13701,17 +9114,10 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 话说加百列真是个狠人<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  鱼缸  
 ##### 2215#       发表于 2017-6-24 06:04
-
-
 
 
 这是第几集那个OP里表现得超主角的角色没有登场了
@@ -13719,16 +9125,10 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 没有出现天使捅平民真是奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer"> 还是说平民全员都顺利疏散了？
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2216#       发表于 2017-6-24 08:34
-
 
 
  本帖最后由 nage560 于 2017-6-24 08:39 编辑 
@@ -13741,32 +9141,19 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 是国王凶狠屠杀天使在先啊，如果国王的大杀器完成了拿去屠天使的时候，你这集看到的场面就是反转了。而且加百利也事先警告国王交出氪石就了了这件事了。国王不肯，那当然是打你了。
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2217#       发表于 2017-6-24 08:35
 
 
-
-
 国王不都是顾着自己打仗么，没有事先疏散平民，不止上几集，这集平民集体逃跑的对话更看出对国王的不满了。国王这大杀器一启动，狱卒是逃光了，那些囚犯估计要死很多人了。国王这大杀器不知道是不是纯对空，如果也对地的话整个城都得毁了吧。还有这大杀器还没有完成还很多隐患就拿出来用了，不知道隐患是什么，会自爆吗？还有丽塔在凯撒的手安装了**，防出轨吗?细思极恐<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">。
-
-
-
-
-
 
 
 -----
 
 ####  nage560  
 ##### 2218#       发表于 2017-6-24 08:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36372464&amp;ptid=1229445" target="_blank">鱼缸 发表于 2017-6-24 06:04</a>
@@ -13777,16 +9164,10 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 为什么你觉得会捅平民？天使要做的就是捅死国王和他的氪兵而已。
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2219#       发表于 2017-6-24 09:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36372884&amp;ptid=1229445" target="_blank">nage560 发表于 2017-6-24 08:34</a>
@@ -13798,16 +9179,10 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 加百利和国王完全是一类人，有一个目的，其他原则都可以放一边的神那边要善了只能期待索菲了
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2220#       发表于 2017-6-24 09:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36373028&amp;ptid=1229445" target="_blank">Chia 发表于 2017-6-24 09:02</a>
@@ -13819,16 +9194,10 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 这应该算谈判啊。挑衅是不留任何和解的机会怂恿对方来和我战一百个回合，加百利是双重准备吧，如果国王愿意交出氪石就和平解决，不愿意就借此让艾尔帮忙。加百利可能是和国王一类性格，但是一类人吗？是国王先捅人家老窝杀别人的，加百利现在打回去也算错？
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2221#       发表于 2017-6-24 09:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36373077&amp;ptid=1229445" target="_blank">nage560 发表于 2017-6-24 09:10</a>
@@ -13847,16 +9216,10 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 找了几年艾尔，一到手立刻让他觉醒了，然后迫不及待就开打了……<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2222#       发表于 2017-6-24 09:29
-
 
 
  本帖最后由 nage560 于 2017-6-24 09:32 编辑 
@@ -13869,16 +9232,10 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 本来就是国王有错在先，天使一开始陈述国王的暴行无错啊。而且天使说话不是一贯这种风格么？第一季米迦勒也是这种说话风格啊。如果天使居高临下说话是挑事的话，其他漫画的天使不全都该死了。我觉得你有点点针对巴哈的天使了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">。还有就是找艾尔找了几年还没有找到，找到才要尽快开战啊，本来就是自己人不断被杀的情况下（从索菲事件能看出），终于有机会反击出这口乌气了还不反击吗？而且等国王的大杀器完成到时候可能连艾尔也无卵用了。
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2223#       发表于 2017-6-24 09:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36373187&amp;ptid=1229445" target="_blank">nage560 发表于 2017-6-24 09:29</a>
@@ -13896,16 +9253,10 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 至少这两集，肯定是为了表现加百列神性外的一面的
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2224#       发表于 2017-6-24 09:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36373239&amp;ptid=1229445" target="_blank">Chia 发表于 2017-6-24 09:39</a>
@@ -13922,32 +9273,19 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 客套话？你杀了我这么多族人，还是抢了我的氪石来杀我族人，这时候不立马干你算不错了，这时候还需要说客套话吗？有天使存在的日漫有几部不是神权至上的？咋巴哈的天使这么干就是罪了呢？米迦勒的时候还要跪，这次跪都不跪，加百利也没有喊大胆无礼刁民啊，这不是很平和了吗？
 
 
-
-
-
-
-
 -----
 
 ####  须原秋纪  
 ##### 2225#       发表于 2017-6-24 10:00
 
 
-
-
 师徒组真可爱XD
-
-
-
-
-
 
 
 -----
 
 ####  Chia  
 ##### 2226#       发表于 2017-6-24 10:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36373350&amp;ptid=1229445" target="_blank">nage560 发表于 2017-6-24 09:55</a>
@@ -13968,16 +9306,10 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 我承认道义上是人不对在先，但就这几集要表现的，完全是“加百列也不是善茬”这点
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2227#       发表于 2017-6-24 10:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36373350&amp;ptid=1229445" target="_blank">nage560 发表于 2017-6-24 09:55</a>
@@ -13995,16 +9327,10 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 权利和利益的抗争，肯定是各有对错的
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2228#       发表于 2017-6-24 10:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36373393&amp;ptid=1229445" target="_blank">Chia 发表于 2017-6-24 10:01</a>
@@ -14016,16 +9342,10 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 加百利可能是心机婊，但目前还没有她不是善茬的表现，你觉得动画表情表现有时候也可能是错的，加百利本来就长着一张恶人脸，第一季的时候她就这表情结果也没有搞什么坏事，第二季至少目前看不出她要搞什么坏事。举个刚完结的铁血2期，就有黄毛的迷之微笑，动画的表情特写表现有时候不一定是你认为的那样。
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2229#       发表于 2017-6-24 10:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36373530&amp;ptid=1229445" target="_blank">nage560 发表于 2017-6-24 10:17</a>
@@ -14040,22 +9360,15 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 最后三个领便当也是她不在前线
 
 
-
 这个问题我一开就说了，观点肯定是主观的，没法说服确信其他的人……
 
 具体还是等剧情展开吧
-
-
-
-
-
 
 
 -----
 
 ####  nage560  
 ##### 2230#       发表于 2017-6-24 10:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36373648&amp;ptid=1229445" target="_blank">Chia 发表于 2017-6-24 10:28</a>
@@ -14068,25 +9381,13 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 你能说她自私，傲慢，不是善人。但也不算恶人吧，至少目前看不出来，利用艾尔这点，艾尔本来也是天界的人，他也是被国王追杀才这么惨的，在公在私艾尔都该干国王。当然加百利不好好和艾尔说，偏要搞得像传xiao一样是她的错。
 
 
-
-
-
-
-
 -----
 
 ####  skullgreymon  
 ##### 2231#       发表于 2017-6-24 10:34
 
 
-
-
 美国爸爸开航母，奈何三胖有核弹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14095,14 +9396,7 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 ##### 2232#       发表于 2017-6-24 10:43
 
 
-
-
 加百利可能的黑点就是艾尔的能力没有完全搞清就和国王开战，这点和国王的大杀器不稳定就拿来用一样，到时候可能是双双玩脱导致巴哈复活什么的展开。
-
-
-
-
-
 
 
 -----
@@ -14111,17 +9405,10 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 ##### 2233#       发表于 2017-6-24 10:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36373702&amp;ptid=1229445" target="_blank">nage560 发表于 2017-6-24 10:33</a>
 
 你能说她自私，傲慢，不是善人。但也不算恶人吧，至少目前看不出来，利用艾尔这点，艾尔本来也是天界的人 ...</blockquote>
 我的意思是，没有了绝对正确的圣母角色后，评价角色就可以剖析开看了，不存在单纯的善恶之分。比如小加加，她目前的形象就是“维护神权和利益的脍子手”，既然以这个姿态入局了，就没什么善恶了。
-
-
-
-
-
-
 
 
 -----
@@ -14130,14 +9417,7 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 ##### 2234#       发表于 2017-6-24 10:51
 
 
-
-
 心疼丽塔一秒钟，我个人是非常支持弄死凯撒的<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">。
-
-
-
-
-
 
 
 -----
@@ -14146,14 +9426,7 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 ##### 2235#       发表于 2017-6-24 10:53
 
 
-
-
 这集一股没预算的感觉
-
-
-
-
-
 
 
 -----
@@ -14162,23 +9435,15 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 ##### 2236#       发表于 2017-6-24 11:03
 
 
-
-
 凯撒和贞德的之间感情真是纯粹的革命友谊吗？
 
 感觉超过一般的朋友和上下级的感情，也不像恋人。双方脸不红眼睛不闪，阔别很久也不拥抱。
-
-
-
-
-
 
 
 -----
 
 ####  Chia  
 ##### 2237#       发表于 2017-6-24 11:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36373957&amp;ptid=1229445" target="_blank">新屋 发表于 2017-6-24 11:03</a>
@@ -14201,21 +9466,14 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 不知道是单指法瓦罗，还是包括凯撒。反正结果凯撒离圣骑士更近吧……
 
 
-
 所以要细说，这两个人交情就很深
 <img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  炎武重黎  
 ##### 2238#       发表于 2017-6-24 11:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36305823&amp;ptid=1229445" target="_blank">Byarlant 发表于 2017-6-18 13:24</a>
@@ -14239,17 +9497,10 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 所以单从上帝视角看，人族所作所为是已经划边很多，神族的反击合情合理。
 
 
-
-
-
-
-
-
 -----
 
 ####  炎武重黎  
 ##### 2239#       发表于 2017-6-24 11:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36372199&amp;ptid=1229445" target="_blank">Chia 发表于 2017-6-24 02:54</a>
@@ -14261,16 +9512,10 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 看起来像某种生物的蛋。
 
 
-
-
-
-
-
 -----
 
 ####  炎武重黎  
 ##### 2240#       发表于 2017-6-24 12:09
-
 
 
  本帖最后由 炎武重黎 于 2017-6-24 12:25 编辑 
@@ -14284,24 +9529,13 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 最离谱王都外那个最终决战兵器。。。得花费多少资源啊，有这能力是不是能把王都都变成钢铁之都。
 
 
-
-
-
-
-
 -----
 
 ####  notromeo  
 ##### 2241#       发表于 2017-6-24 12:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">全部看作剧情火星兵
-
-
-
-
-
 
 
 -----
@@ -14310,14 +9544,7 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 ##### 2242#       发表于 2017-6-24 12:35
 
 
-
-
 这黑球不会是巴哈的蛋吧
-
-
-
-
-
 
 
 -----
@@ -14326,22 +9553,15 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 ##### 2243#       发表于 2017-6-24 12:45
 
 
-
 <blockquote>炎武重黎 发表于 2017-6-24 12:09
 说起来我一直想说。。。这巴哈姆特世界里，人类的生产力和军事实力也太不匹配了吧，看王都也没有多大，发展 ...</blockquote>
 强行圆的话，都是靠抢？也不对头。算了，随便吧……
-
-
-
-
-
 
 
 -----
 
 ####  pzk  
 ##### 2244#       发表于 2017-6-24 12:45
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这是啥玩意造型也忒反派了。岛上那些囚犯狱卒估计都死绝了……
@@ -14353,26 +9573,14 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 思忖了一下神的环形移动堡垒为什么不直接空降在王都上空呢？片里离王都还有好远的距离呢
 
 
-
-
-
-
-
 -----
 
 ####  万物为玄一  
 ##### 2245#       发表于 2017-6-24 12:46
 
 
-
-
 就喜欢这种正面刚的剧情，资辞国王，干死神魔。
 但一想到后面肯定会有相互理解的剧情就感觉恶心<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14381,14 +9589,7 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 ##### 2246#       发表于 2017-6-24 12:51
 
 
-
-
 加百列的F2A计划也太莽了。不过这一战之后神魔人三边都势必吃瘪，那么谁获利呢？
-
-
-
-
-
 
 
 -----
@@ -14397,14 +9598,7 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 ##### 2247#       发表于 2017-6-24 12:52
 
 
-
-
 这是还剩一集了吗
-
-
-
-
-
 
 
 -----
@@ -14413,16 +9607,10 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 ##### 2248#       发表于 2017-6-24 13:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36374880&amp;ptid=1229445" target="_blank">zypyong 发表于 2017-6-24 12:52</a>
 
 这是还剩一集了吗</blockquote>
 半年番,早了
-
-
-
-
-
 
 
 -----
@@ -14431,14 +9619,7 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 ##### 2249#       发表于 2017-6-24 13:06
 
 
-
-
 我现在有一种+4+3要在这一季死佐的感觉
-
-
-
-
-
 
 
 -----
@@ -14447,21 +9628,13 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 ##### 2250#       发表于 2017-6-24 13:14
 
 
-
-
 人皇真是从一开始就没有好感啊，第一季变态反派，第二季轮到男猪人皇，两个不相上下
-
-
-
-
-
 
 
 -----
 
 ####  废基  
 ##### 2251#       发表于 2017-6-24 13:17
-
 
 
  本帖最后由 废基 于 2017-6-24 13:21 编辑 
@@ -14471,17 +9644,10 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 对了，阿酱掉线好几话了
 
 
-
-
-
-
-
 -----
 
 ####  半自动式宅  
 ##### 2252#       发表于 2017-6-24 13:19
-
-
 
 
 这蛋像是狒狒14开场cg里穿越过来的，凯撒好歹先喊了一声莉塔，这次就原谅他吧
@@ -14489,17 +9655,10 @@ ENDCARD的BAHABAHA是DAOKO(ED的歌手)?</blockquote>
 [  -- 来自 Stage1官球 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
 
 
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 2253#       发表于 2017-6-24 13:32
-
-
 
 
 The Great Escape？
@@ -14517,25 +9676,13 @@ The Great Escape？
 是不是没钱啦！？
 
 
-
-
-
-
-
 -----
 
 ####  大晓尧  
 ##### 2254#       发表于 2017-6-24 13:57
 
 
-
-
 凯撒的手还真是花样多......丽塔究极在凯撒身上开发了多少黑科技啊。
-
-
-
-
-
 
 
 -----
@@ -14544,16 +9691,9 @@ The Great Escape？
 ##### 2255#       发表于 2017-6-24 14:44
 
 
-
-
 凯撒真是，不管假手真手都比他本人有用hhhhhh
 
 国王的秘密武器开始还以为是个史莱姆，结果没想到是个使徒（×
-
-
-
-
-
 
 
 -----
@@ -14562,16 +9702,9 @@ The Great Escape？
 ##### 2256#       发表于 2017-6-24 14:47
 
 
-
-
 很想知道天使对人皇的大招有没有预案
 
 氪石本来是天使的东西，能有多大威力天使究竟心里有没有数呢
-
-
-
-
-
 
 
 -----
@@ -14580,14 +9713,7 @@ The Great Escape？
 ##### 2257#       发表于 2017-6-24 15:01
 
 
-
-
 看起来就像个鸟巢和蛋，估计要孵化的是人造最高位神就是人造巴哈
-
-
-
-
-
 
 
 -----
@@ -14596,22 +9722,13 @@ The Great Escape？
 ##### 2258#       发表于 2017-6-24 16:48
 
 
-
-
 太好了這就是我要看的奇幻<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  新屋  
 ##### 2259#       发表于 2017-6-24 16:50
-
-
 
 
 欧皇拷打阿萨时就说有把握击败有女装大佬的神族。
@@ -14624,32 +9741,19 @@ The Great Escape？
 最后巴哈姆特打败欧皇，世界重新回归平衡。
 
 
-
-
-
-
-
 -----
 
 ####  bandage_n2_ki  
 ##### 2260#       发表于 2017-6-24 17:14
 
 
-
-
 嗯…话说那类似使徒的玩意儿…如果是蛋的话也太圆了吧，像摁着shift生出来的<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  断裂的歌谣  
 ##### 2261#       发表于 2017-6-24 17:30
-
 
 
  本帖最后由 断裂的歌谣 于 2017-6-24 18:10 编辑 
@@ -14663,25 +9767,13 @@ The Great Escape？
 另外这集制作真好。
 
 
-
-
-
-
-
 -----
 
 ####  c88711611  
 ##### 2262#       发表于 2017-6-24 18:22
 
 
-
-
 人皇才是真一将功成万骨枯，如果按我国总裁文写就是国王一路屠神灭魔，然后因为女主妥协，最后一起打巴哈姆特啥巴拉巴拉的
-
-
-
-
-
 
 
 -----
@@ -14690,21 +9782,13 @@ The Great Escape？
 ##### 2263#       发表于 2017-6-24 18:58
 
 
-
-
 大片！比电影大片还好看！
-
-
-
-
-
 
 
 -----
 
 ####  nage560  
 ##### 2264#       发表于 2017-6-24 19:04
-
 
 
  本帖最后由 nage560 于 2017-6-24 19:15 编辑 
@@ -14721,9 +9805,6 @@ The Great Escape？
 2017-6-24 19:15 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201706/24/191542ak330kotxk0q0w5z.png" referrerpolicy="no-referrer">
 
 
@@ -14734,21 +9815,10 @@ The Great Escape？
 2017-6-24 19:15 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 2265#       发表于 2017-6-24 22:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36373885&amp;ptid=1229445" target="_blank">muderx 发表于 2017-6-24 10:53</a>
@@ -14757,26 +9827,15 @@ The Great Escape？
 这集也叫没预算那这季其他动画算什么
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 2266#       发表于 2017-6-24 22:40
 
 
-
  本帖最后由 临界点 于 2017-6-24 22:49 编辑 
 
 话说这集根本就是科幻电影的外星人大战啊  现在才到一半这战事真不知道打算怎么收尾 之前PV2好像有神族飞碟被打下来的画面 看来这片子真是做完了再播的
-
-
-
-
-
 
 
 -----
@@ -14785,14 +9844,7 @@ The Great Escape？
 ##### 2267#       发表于 2017-6-24 22:59
 
 
-
-
 话说结尾图是DAOKO画的耶,然后最后一句bahabahabahasoul也是她说的?
-
-
-
-
-
 
 
 -----
@@ -14801,16 +9853,10 @@ The Great Escape？
 ##### 2268#       发表于 2017-6-24 23:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36379358&amp;ptid=1229445" target="_blank">KuonjiClara 发表于 2017-6-24 22:59</a>
 
 话说结尾图是DAOKO画的耶,然后最后一句bahabahabahasoul也是她说的?</blockquote>
 图好像是妮娜抱着蛋  暗示这集的蛋破壳之后妮娜巴哈附体再次灭世？
-
-
-
-
-
 
 
 -----
@@ -14819,16 +9865,9 @@ The Great Escape？
 ##### 2269#       发表于 2017-6-24 23:34
 
 
-
-
 看得好爽
 
 国王这最终决战兵器<img src="https://static.saraba1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14837,14 +9876,7 @@ The Great Escape？
 ##### 2270#       发表于 2017-6-24 23:49
 
 
-
-
 有钱任性
-
-
-
-
-
 
 
 -----
@@ -14853,16 +9885,10 @@ The Great Escape？
 ##### 2271#       发表于 2017-6-24 23:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36379571&amp;ptid=1229445" target="_blank">临界点 发表于 2017-6-24 23:26</a>
 
 图好像是妮娜抱着蛋  暗示这集的蛋破壳之后妮娜巴哈附体再次灭世？</blockquote>
 最好是唤醒阿米拉灭世,爽到
-
-
-
-
-
 
 
 -----
@@ -14871,14 +9897,7 @@ The Great Escape？
 ##### 2272#       发表于 2017-6-25 00:22
 
 
-
-
 看pv3，还真的很像妮娜变龙暴走。国王刚好站在旁边。
-
-
-
-
-
 
 
 -----
@@ -14887,14 +9906,7 @@ The Great Escape？
 ##### 2273#       发表于 2017-6-25 00:29
 
 
-
-
 下一集就是人族光线炮怒怼神族飞天大车轮了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14903,16 +9915,10 @@ The Great Escape？
 ##### 2274#       发表于 2017-6-25 00:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36380101&amp;ptid=1229445" target="_blank">心灵的乳头 发表于 2017-6-25 00:29</a>
 
 下一集就是人族光线炮怒怼神族飞天大车轮了吧</blockquote>
 这个节奏八成是光线炮秒了神族风火轮然后因为未完成就启动所以自爆了吧，然后巴哈姆特也是时候醒过来了
-
-
-
-
-
 
 
 -----
@@ -14921,17 +9927,10 @@ The Great Escape？
 ##### 2275#       发表于 2017-6-25 01:05
 
 
-
-
 人族科技已经插满flag了，不暴走才有鬼<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
 黑叔叔天使真鸡儿强，没有熬夜团的人类根本没法抗衡，想想圣经里也很多这样的，因为某某国君民不贤不信仰耶和华，于是整个国家都被灭了，要是没有夏莉欧就是灭国end吧（虽然没有夏莉欧不一定会去怼神族
-
-
-
-
-
 
 
 -----
@@ -14940,16 +9939,10 @@ The Great Escape？
 ##### 2276#       发表于 2017-6-25 02:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36373702&amp;ptid=1229445" target="_blank">nage560 发表于 2017-6-24 10:33</a>
 
 你能说她自私，傲慢，不是善人。但也不算恶人吧，至少目前看不出来，利用艾尔这点，艾尔本来也是天界的人 ...</blockquote>
 因为宗教信仰的本质 就是传销啊 
-
-
-
-
-
 
 
 -----
@@ -14958,14 +9951,7 @@ The Great Escape？
 ##### 2277#       发表于 2017-6-25 02:51
 
 
-
-
 我就关心夜店的小姐姐还有某个地牢里的阿萨谢尔就准备这么酱油到底了？
-
-
-
-
-
 
 
 -----
@@ -14974,14 +9960,7 @@ The Great Escape？
 ##### 2278#       发表于 2017-6-25 03:11
 
 
-
-
 果然遭殃的都是平民大众脸
-
-
-
-
-
 
 
 -----
@@ -14990,16 +9969,10 @@ The Great Escape？
 ##### 2279#       发表于 2017-6-25 03:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36318807&amp;ptid=1229445" target="_blank">芳清源77 发表于 2017-6-19 11:47</a>
 
 神特么的美国 日本  我列个去 哈哈哈哈哈哈哈哈好 编剧压根就没想到那里去 简直就是另一个世界 人神魔共处  ...</blockquote>
 说的也是，那现实的历史价值观生搬硬套也没意思，看得爽就好了
-
-
-
-
-
 
 
 -----
@@ -15008,14 +9981,7 @@ The Great Escape？
 ##### 2280#       发表于 2017-6-25 04:13
 
 
-
-
 这是场拼挂的战争，战场上的卒子只需要期待本方老大的挂比对面多一个就好了
-
-
-
-
-
 
 
 -----
@@ -15024,16 +9990,10 @@ The Great Escape？
 ##### 2281#       发表于 2017-6-25 04:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36373885&amp;ptid=1229445" target="_blank">muderx 发表于 2017-6-24 10:53</a>
 
 这集一股没预算的感觉</blockquote>
 我知道你是想说相对第一季对吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15042,14 +10002,7 @@ The Great Escape？
 ##### 2282#       发表于 2017-6-25 10:24
 
 
-
-
 惊觉已经一个月没看动画了……
-
-
-
-
-
 
 
 -----
@@ -15058,16 +10011,9 @@ The Great Escape？
 ##### 2283#       发表于 2017-6-25 10:57
 
 
-
-
 最近2集看着好傻的样子，看个爽就是了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 —— 来自 Qisda Harrier from EE, Android 5.1.1上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next) v1.2.1
-
-
-
-
-
 
 
 -----
@@ -15076,14 +10022,7 @@ The Great Escape？
 ##### 2284#       发表于 2017-6-25 11:28
 
 
-
-
 12话就开始人神决战，还有一半该讲什么？
-
-
-
-
-
 
 
 -----
@@ -15092,16 +10031,9 @@ The Great Escape？
 ##### 2285#       发表于 2017-6-25 12:41
 
 
-
-
 不知道说没lv预算的是什么心态
 
 —— 来自 samsung SM-G9350, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
-
-
-
-
-
 
 
 -----
@@ -15110,20 +10042,13 @@ The Great Escape？
 ##### 2286#       发表于 2017-6-25 13:51
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哇这个黑科技真的不是从隔壁艾欧泽亚走私过来的么，简直阿拉戈帝国一脉相承，打到一半失控然后蹦出个巴哈姆特我都不会奇怪
-
-
-
-
-
 
 
 -----
 
 ####  C男人  
 ##### 2287#       发表于 2017-6-27 21:23
-
 
 
  本帖最后由 C男人 于 2017-6-27 21:39 编辑 
@@ -15141,7 +10066,6 @@ The Great Escape？
 <img src="http://i1.buimg.com/592959/3184898daff4f419.jpg" referrerpolicy="no-referrer">
 
 
-
 然而这一集的人皇部队，
 
 
@@ -15153,17 +10077,10 @@ The Great Escape？
 <img src="https://static.saraba1st.com/image/smiley/face/53.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  新屋  
 ##### 2288#       发表于 2017-6-27 21:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36409225&amp;amp;ptid=1229445" target="_blank">C男人 发表于 2017-6-27 21:23</a>
@@ -15176,16 +10093,10 @@ The Great Escape？
 欧皇灭神族破天都那集BGM最好是《1492征服天堂》
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 2289#       发表于 2017-6-27 23:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36409225&amp;ptid=1229445" target="_blank">C男人 发表于 2017-6-27 21:23</a>
@@ -15197,16 +10108,10 @@ The Great Escape？
 你再仔细看一下第一集  一般的神族士兵并不用绿光捆就能无力化根本没抵抗力哪能1V1   
 
 
-
-
-
-
-
 -----
 
 ####  HLGG2  
 ##### 2290#       发表于 2017-6-28 00:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36382467&amp;ptid=1229445" target="_blank">故事会 发表于 2017-6-25 11:28</a>
@@ -15215,17 +10120,10 @@ The Great Escape？
 人神决战两败俱伤惊醒巴哈姆特把世界又车了一遍，被皇帝折腾得精疲力竭的三族发现这次就算联手也压不住老巴了，下一季讲的就是主角队怎么活跃去收拾这个烂摊子
 
 
-
-
-
-
-
 -----
 
 ####  啤酒与面包  
 ##### 2291#       发表于 2017-6-28 01:47
-
-
 
 
 话说第一话开头 人族入侵神族神殿时 已经拥有一定数量的绿石部队 入侵的目的也是为了抢一块嵌了绿石的黑石板
@@ -15239,21 +10137,10 @@ The Great Escape？
 上季路西法到哪里去了 狗妹去陪酒了 路西法去做牛郎了么?
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  83913536  
 ##### 2292#       发表于 2017-6-28 01:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36411423&amp;ptid=1229445" target="_blank">啤酒与面包 发表于 2017-6-28 01:47</a>
@@ -15262,25 +10149,13 @@ The Great Escape？
 相信后面会出来某个黑幕来背锅表示是故意教人类使用绿石，一切尽在掌握之中。
 
 
-
-
-
-
-
 -----
 
 ####  shimotsuki14  
 ##### 2293#       发表于 2017-6-29 20:41
 
 
-
-
 一个半月未看，从阿酱翻车开始连补六集，突出一个爽字。
-
-
-
-
-
 
 
 -----
@@ -15289,23 +10164,15 @@ The Great Escape？
 ##### 2294#       发表于 2017-6-29 20:44
 
 
-
 <blockquote>啤酒与面包 发表于 2017-6-28 01:47
 话说第一话开头 人族入侵神族神殿时 已经拥有一定数量的绿石部队 入侵的目的也是为了抢一块嵌了绿石的黑石 ...</blockquote>
 第一话开头是最近的事了。
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2295#       发表于 2017-6-30 00:05
-
-
 
 
 ■#13「A Farewell to Arms」
@@ -15324,17 +10191,10 @@ The Great Escape？
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fh2h6ef9ibj216y0o4e81.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2296#       发表于 2017-6-30 07:53
-
-
 
 
 人王是要吃瘪了么！在意标题和丽塔，儿子‘好像不在身边
@@ -15343,25 +10203,13 @@ The Great Escape？
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  stormist  
 ##### 2297#       发表于 2017-6-30 09:10
 
 
-
-
 凯撒君可以保持这种非主流发型帅了这么多集也是难得<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15370,16 +10218,9 @@ The Great Escape？
 ##### 2298#       发表于 2017-6-30 10:33
 
 
-
-
 图片预告了。
 
 文字说跟没说一样。
-
-
-
-
-
 
 
 -----
@@ -15388,21 +10229,13 @@ The Great Escape？
 ##### 2299#       发表于 2017-6-30 10:54
 
 
-
-
 贞德：突然年轻
-
-
-
-
-
 
 
 -----
 
 ####  HLGG2  
 ##### 2300#       发表于 2017-6-30 11:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36436763&amp;ptid=1229445" target="_blank">ulir 发表于 2017-6-30 07:53</a>
@@ -15414,17 +10247,10 @@ The Great Escape？
 大杀器刚开出来呢起码前半集还是可以秀一把的，不过后半集应该就是皇帝彻底玩脱的开始<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2301#       发表于 2017-6-30 12:03
-
-
 
 
 标志性的头盔都没了，就看到底是谁打的脸了<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
@@ -15433,25 +10259,13 @@ The Great Escape？
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 2302#       发表于 2017-6-30 17:46
 
 
-
-
 凯撒为什么这么少女
-
-
-
-
-
 
 
 -----
@@ -15460,15 +10274,9 @@ The Great Escape？
 ##### 2303#       发表于 2017-6-30 18:18
 
 
-
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fh2h667rfej216y0o57vj.jpg" referrerpolicy="no-referrer">
 
 不想让贞德一辈子铁处女的话，请让她和凯撒结为连理。
-
-
-
-
-
 
 
 -----
@@ -15477,24 +10285,16 @@ The Great Escape？
 ##### 2304#       发表于 2017-6-30 18:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36442746&amp;ptid=1229445" target="_blank">新屋 发表于 2017-6-30 18:18</a>
 
 不想让贞德一辈子铁处女的话，请让她和凯撒结为连理。</blockquote>
 有妻有子的还要跟女上司乱搞，天诛！
 
 
-
-
-
-
-
 -----
 
 ####  shadow001  
 ##### 2305#       发表于 2017-7-1 01:30
-
-
 
 
 大殺器竟然跟巴哈同級,射了一發就瞎了左眼,而且左手似乎也有後遺症,看來最後人皇就算不死也要變廢人
@@ -15504,16 +10304,10 @@ The Great Escape？
 <img src="http://wx2.sinaimg.cn/large/be7b05ccgy1fh3qpygfsoj21hc0u0410.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  啤酒与面包  
 ##### 2306#       发表于 2017-7-1 03:30
-
 
 
  本帖最后由 啤酒与面包 于 2017-7-1 03:39 编辑 
@@ -15522,17 +10316,10 @@ The Great Escape？
   神族优势很大 神族a了上去 神族打出gg
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2307#       发表于 2017-7-1 04:54
-
-
 
 
 baha
@@ -15541,25 +10328,13 @@ baha
 备用[https://public.lightpic.info/image/7692_5956B7EF0.jpg](https://public.lightpic.info/image/7692_5956B7EF0.jpg)
 
 
-
-
-
-
-
 -----
 
 ####  sevencoolmax  
 ##### 2308#       发表于 2017-7-1 10:41
 
 
-
-
 剧情和第一季比真是差不少……
-
-
-
-
-
 
 
 -----
@@ -15568,14 +10343,7 @@ baha
 ##### 2309#       发表于 2017-7-1 12:00
 
 
-
-
 这贴今天没什么人讨论啊。。。果然B站不更就没人看了嘛。。。。果然后花园。。。。顺便头顶巨像好评。。。
-
-
-
-
-
 
 
 -----
@@ -15584,14 +10352,7 @@ baha
 ##### 2310#       发表于 2017-7-1 12:17
 
 
-
-
 熟肉还没出来吗？
-
-
-
-
-
 
 
 -----
@@ -15600,14 +10361,7 @@ baha
 ##### 2311#       发表于 2017-7-1 15:04
 
 
-
-
 凯撒真的辛苦了…还有之前还说天使比魔族有脑现在看来也就是稍微有点战术意识的水平，本质上还是群肌肉脑兽人嘛<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15616,16 +10370,10 @@ baha
 ##### 2312#       发表于 2017-7-1 15:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36449476&amp;ptid=1229445" target="_blank">HLGG2 发表于 2017-7-1 15:04</a>
 
 凯撒真的辛苦了…还有之前还说天使比魔族有脑现在看来也就是稍微有点战术意识的水平，本质上还是群肌肉脑兽 ...</blockquote>
 这片第一季开头不是还有奥丁嘛。。。。你把天使啊魔族啊当成外星人来看不就好了。。。
-
-
-
-
-
 
 
 -----
@@ -15634,14 +10382,7 @@ baha
 ##### 2313#       发表于 2017-7-1 16:18
 
 
-
-
 那个熟肉呢
-
-
-
-
-
 
 
 -----
@@ -15650,18 +10391,10 @@ baha
 ##### 2314#       发表于 2017-7-1 17:08
 
 
-
-
 下流死的那个手环周围的皮肤都坏死了. 是大杀器搞得, 还是平时使用的?
 
 
 Nina真是天使, 希望有个好结局.
-
-
-
-
-
-
 
 
 -----
@@ -15670,16 +10403,10 @@ Nina真是天使, 希望有个好结局.
 ##### 2315#       发表于 2017-7-1 17:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36447456&amp;ptid=1229445" target="_blank">sevencoolmax 发表于 2017-7-1 10:41</a>
 
 剧情和第一季比真是差不少……</blockquote>
 第一季剧情很好吗？ZZ一样的别西卜和国王，毫无铺垫的黑化队长。不如自己的意就非要拿第一季踩第二季
-
-
-
-
-
 
 
 -----
@@ -15688,14 +10415,7 @@ Nina真是天使, 希望有个好结局.
 ##### 2316#       发表于 2017-7-1 17:53
 
 
-
-
 那些说加百利心机婊的这集都被打脸了，结果是艾尔蠢不肯撤退，最后不是妮娜一屁股撞了国王一下， 估计全死了。
-
-
-
-
-
 
 
 -----
@@ -15704,16 +10424,10 @@ Nina真是天使, 希望有个好结局.
 ##### 2317#       发表于 2017-7-1 17:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36449476&amp;ptid=1229445" target="_blank">HLGG2 发表于 2017-7-1 15:04</a>
 
 凯撒真的辛苦了…还有之前还说天使比魔族有脑现在看来也就是稍微有点战术意识的水平，本质上还是群肌肉脑兽 ...</blockquote>
 从大将到手下都不听指挥，叫撤退都不肯撤退，加百利不是蠢，领导力不行。
-
-
-
-
-
 
 
 -----
@@ -15722,23 +10436,16 @@ Nina真是天使, 希望有个好结局.
 ##### 2318#       发表于 2017-7-1 18:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">神仙打架看得好爽
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">凯撒和爆炸头已经一心同体了
 
 预告里的国王怕是脑子也坏掉一半了
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2319#       发表于 2017-7-1 18:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36450368&amp;ptid=1229445" target="_blank">RevModusTollens 发表于 2017-7-1 17:08</a>
@@ -15750,32 +10457,19 @@ Nina真是天使, 希望有个好结局.</blockquote>
 应该是大杀器，妮娜飞过来那一撞搞不好还顺便救了国王的命
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2320#       发表于 2017-7-1 18:11
 
 
-
-
 现在天使和恶魔都GG了，以后的剧情怎么编啊，还有差不多一季的集数啊。
-
-
-
-
-
 
 
 -----
 
 ####  shadow001  
 ##### 2321#       发表于 2017-7-1 18:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36450688&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-1 17:54</a>
@@ -15790,16 +10484,10 @@ Nina真是天使, 希望有个好结局.</blockquote>
 手下不撤,自己就馬上撤,掉下所有手下不管,典型的無能惡役
 
 
-
-
-
-
-
 -----
 
 ####  Renes  
 ##### 2322#       发表于 2017-7-1 18:33
-
 
 
 <blockquote>HLGG2 发表于 2017-7-1 15:04
@@ -15807,16 +10495,10 @@ Nina真是天使, 希望有个好结局.</blockquote>
 这帮神魔都是天生神力 一直靠神力A过去就够了 当然没必要动脑子也养不成动脑子的习惯 只有人类这种天生的弱者才需要动脑子生存 所以其实都很正常
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2323#       发表于 2017-7-1 18:45
-
 
 
  本帖最后由 nage560 于 2017-7-1 18:46 编辑 
@@ -15830,16 +10512,10 @@ Nina真是天使, 希望有个好结局.</blockquote>
 可以，想黑一个人怎么都能想到法子的。我看加百利选择留下然后和天使一起GG，你肯定又要说这厮蠢爆连逃跑都不懂就这样和手下一起GG了。照你这种苛刻挑刺的标准，很多日漫男主连畜生都不如了。
 
 
-
-
-
-
-
 -----
 
 ####  HLGG2  
 ##### 2324#       发表于 2017-7-1 19:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36450824&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-1 18:11</a>
@@ -15848,16 +10524,10 @@ Nina真是天使, 希望有个好结局.</blockquote>
 当然是轮到人类玩脱被巴哈姆特碾压然后主角队伍出马收拾烂摊子啦
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2325#       发表于 2017-7-1 19:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36451170&amp;ptid=1229445" target="_blank">HLGG2 发表于 2017-7-1 19:00</a>
@@ -15866,16 +10536,10 @@ Nina真是天使, 希望有个好结局.</blockquote>
 除非把巴哈削成狗，不然我不知道现在还怎么打得赢巴哈<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">。
 
 
-
-
-
-
-
 -----
 
 ####  HLGG2  
 ##### 2326#       发表于 2017-7-1 19:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36451224&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-1 19:07</a>
@@ -15884,27 +10548,16 @@ Nina真是天使, 希望有个好结局.</blockquote>
 我猜之后的发展应该是人族被车翻后主角队穿针引线说服三族合作再次封印巴哈姆特，毕竟阿米拉还在老巴体内只要能把法瓦罗送到巴哈姆特上面应该能叫阿米拉出来吧……但是考虑到第二季主角是妮娜最后封印肯定是要妮娜主场的看故事怎么编了，还有皇帝和神魔两族梁子结得这么深了结局会怎么收场也是个问题
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2327#       发表于 2017-7-1 19:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36451265&amp;ptid=1229445" target="_blank">HLGG2 发表于 2017-7-1 19:12</a>
 
 我猜之后的发展应该是人族被车翻后主角队穿针引线说服三族合作再次封印巴哈姆特，毕竟阿米拉还在老巴体内 ...</blockquote>
 就是因为有这个结梁子如果再扯上巴哈，我怕11区编剧的能力会控制不好导致烂尾<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">。
-
-
-
-
-
 
 
 -----
@@ -15921,25 +10574,13 @@ Nina真是天使, 希望有个好结局.</blockquote>
 是否能让结局收尾得合情合理这个就看编剧功力了，我也有点不放心……
 
 
-
-
-
-
-
 -----
 
 ####  须原秋纪  
 ##### 2329#       发表于 2017-7-1 19:52
 
 
-
-
 我第一反应还以为石油王的眼睛是被妮娜撞瞎的<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15948,14 +10589,7 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2330#       发表于 2017-7-1 19:59
 
 
-
-
 看了超武能么牛逼国王有点浪还是比较合理的,感觉神族实际上也就那样,当年人族跟神族混的时候被阿酱操了老家,好歹国王拿了石头以后直接把狗妹都抓来陪酒了,国王就是个枭雄
-
-
-
-
-
 
 
 -----
@@ -15964,14 +10598,7 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2331#       发表于 2017-7-1 20:05
 
 
-
-
 你们在哪看的熟肉啊......
-
-
-
-
-
 
 
 -----
@@ -15980,15 +10607,9 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2332#       发表于 2017-7-1 20:16
 
 
-
 <blockquote>lazior 发表于 2017-7-1 20:05
 你们在哪看的熟肉啊......</blockquote>
 我也想问，虽然看过生肉，不过看得一知半解不说，而且高糊啊
-
-
-
-
-
 
 
 -----
@@ -15997,14 +10618,7 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2333#       发表于 2017-7-1 22:34
 
 
-
-
 话说这集巴哈什么情况,极影和大马哈鱼都没出,片源给抓了?
-
-
-
-
-
 
 
 -----
@@ -16013,16 +10627,10 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2334#       发表于 2017-7-1 22:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36451589&amp;ptid=1229445" target="_blank">567844 发表于 2017-7-1 19:59</a>
 
 看了超武能么牛逼国王有点浪还是比较合理的,感觉神族实际上也就那样,当年人族跟神族混的时候被阿酱操了老家 ...</blockquote>
 狗妹不是被抓去的，而是看形势不好，索性拉上姐妹去开个夜总会避避风头。国王的原则是不会对境内有能力干活且有利的恶魔清剿。不过可惜恶魔角斗士部队没能派上用场。本以为会杀天使杂兵们一个措手不及给国王争取时间的。
-
-
-
-
-
 
 
 -----
@@ -16031,15 +10639,9 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2335#       发表于 2017-7-1 23:11
 
 
-
 <blockquote>nage560 发表于 2017-7-1 18:11
 现在天使和恶魔都GG了，以后的剧情怎么编啊，还有差不多一季的集数啊。</blockquote>
 神的老家不是还没被攻破吗？
-
-
-
-
-
 
 
 -----
@@ -16048,16 +10650,10 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2336#       发表于 2017-7-1 23:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36453107&amp;ptid=1229445" target="_blank">故事会 发表于 2017-7-1 23:11</a>
 
 神的老家不是还没被攻破吗？</blockquote>
 主力全完蛋了，老家还在又有卵用......
-
-
-
-
-
 
 
 -----
@@ -16066,16 +10662,10 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2337#       发表于 2017-7-1 23:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36453157&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-1 23:16</a>
 
 主力全完蛋了，老家还在又有卵用......</blockquote>
 神魔主力都还没出啊，这种世界不就看高端战力么。
-
-
-
-
-
 
 
 -----
@@ -16084,23 +10674,16 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2338#       发表于 2017-7-1 23:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36453276&amp;ptid=1229445" target="_blank">战场公主希维尔 发表于 2017-7-1 23:30</a>
 
 神魔主力都还没出啊，这种世界不就看高端战力么。</blockquote>
 那些高位神魔都飞升羽化了（误），可以说是不问人间往事，即使天使恶魔全被杀了估计它们也不在乎？只有巴哈这种威胁到自己生命的生物才会出来干活<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">。
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 2339#       发表于 2017-7-1 23:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36409321&amp;ptid=1229445" target="_blank">新屋 发表于 2017-6-27 21:34</a>
@@ -16112,25 +10695,13 @@ Nina真是天使, 希望有个好结局.</blockquote>
 +10086,不过范吉利斯的电音已经不流行（应该说是用烂了），最好换成audiomachine的Sol Invictus（不可战胜之太阳神，玩过十字军之王的mod都知道）更好
 
 
-
-
-
-
-
 -----
 
 ####  白马  
 ##### 2340#       发表于 2017-7-2 00:33
 
 
-
-
 现在还没有熟肉啊。。。
-
-
-
-
-
 
 
 -----
@@ -16139,14 +10710,7 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2341#       发表于 2017-7-2 00:39
 
 
-
-
 现在是三方领导是三个肌肉脑蛮子
-
-
-
-
-
 
 
 -----
@@ -16155,17 +10719,10 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2342#       发表于 2017-7-2 00:46
 
 
-
-
 很多作品里，神仙魔王级角色出手都是坚持刚正面，并保持不紧不慢的节奏，从容不迫气定神闲堂堂正正的姿态。都很有身为关底boss的自觉，变得不动脑子。不像人类，穷则思变。
 
 圣斗士的睡神死神，自新世界的镝木肆星，fsn的英雄王。
 这里的神族也是如此，虽然不久前还被人族欺负，但骄横了万千年之久，所以还是大爷打法。
-
-
-
-
-
 
 
 -----
@@ -16174,16 +10731,10 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2343#       发表于 2017-7-2 01:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36452928&amp;ptid=1229445" target="_blank">高龙 发表于 2017-7-1 22:57</a>
 
 狗妹不是被抓去的，而是看形势不好，索性拉上姐妹去开个夜总会避避风头。国王的原则是不会对境内有能力干 ...</blockquote>
 天使杂兵都能把魔族力战斗力较高的杂兵秒杀，当年神魔怎么能相持的。。。
-
-
-
-
-
 
 
 -----
@@ -16192,14 +10743,7 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2344#       发表于 2017-7-2 01:36
 
 
-
-
 上集我还想才一半剧情大boss就出来了，第一季干掉巴哈姆特也就两集，我还想后面十多集怎么演。现在看来，应该是重新整合力量，继续练级，然后结尾几集才是真的大战吧。。。
-
-
-
-
-
 
 
 -----
@@ -16208,14 +10752,7 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2345#       发表于 2017-7-2 01:38
 
 
-
-
 追看的片少，上次看主角求对手放过还是铁血第二季时的团长。当然相比之下妮娜这次的处理好得多，但后续问题又来了，皇帝这么一抱感情线上倒是迈进了，但坑死多少无辜士兵。。   
-
-
-
-
-
 
 
 -----
@@ -16224,14 +10761,7 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2346#       发表于 2017-7-2 02:36
 
 
-
-
 卧槽夏利欧斯这撩妹技术是与生俱来的吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16240,23 +10770,16 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2347#       发表于 2017-7-2 08:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36454225&amp;ptid=1229445" target="_blank">sta777 发表于 2017-7-2 01:38</a>
 
 追看的片少，上次看主角求对手放过还是铁血第二季时的团长。当然相比之下妮娜这次的处理好得多，但后续问题 ...</blockquote>
 怪女编剧吧，这还是打仗呢，妮娜也是来搞事的，突然对方叫你抱一下你就面带温柔地一把抱住，和监狱那谈判的时候去撩妮娜一样尴尬无比。
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2348#       发表于 2017-7-2 08:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36454473&amp;ptid=1229445" target="_blank">Chia 发表于 2017-7-2 02:36</a>
@@ -16267,16 +10790,10 @@ Nina真是天使, 希望有个好结局.</blockquote>
 女编剧生硬强加的撩妹剧情   O
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2349#       发表于 2017-7-2 09:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36455249&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-2 08:24</a>
@@ -16287,16 +10804,10 @@ Nina真是天使, 希望有个好结局.</blockquote>
 抓紧时间句句带撩也是天赋……<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2350#       发表于 2017-7-2 09:29
-
 
 
  本帖最后由 nage560 于 2017-7-2 10:13 编辑 
@@ -16306,17 +10817,10 @@ Nina真是天使, 希望有个好结局.</blockquote>
 别给大石静洗地了，这种氛围下还撩妹国王真的是给大石静下了降智光环了。而且还给妮娜加开大buff干死自己的得力士兵和巨石像......我只希望后面十几集的剧情大石静hold住。
 
 
-
-
-
-
-
 -----
 
 ####  ai-至死の病  
 ##### 2351#       发表于 2017-7-2 09:59
-
-
 
 
 妮娜要皇帝抱那段简直zz，打成这样了还撩妹撩汉。
@@ -16324,16 +10828,10 @@ Nina真是天使, 希望有个好结局.</blockquote>
 紫发天使的欧派太prpr了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lazior  
 ##### 2352#       发表于 2017-7-2 10:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36455952&amp;ptid=1229445" target="_blank">ai-至死の病 发表于 2017-07-02 09:59:39</a>
@@ -16344,25 +10842,13 @@ Nina真是天使, 希望有个好结局.</blockquote>
 [  -- 来自 Stage1官球 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
 
 
-
-
-
-
-
 -----
 
 ####  辻君  
 ##### 2353#       发表于 2017-7-2 10:14
 
 
-
-
 能毁灭世界的东西太多了吧...世界是怎么活到现在的啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16371,14 +10857,7 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2354#       发表于 2017-7-2 11:07
 
 
-
-
 结尾放thomas bergersen的homcoming就好了
-
-
-
-
-
 
 
 -----
@@ -16387,74 +10866,33 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2355#       发表于 2017-7-2 11:11
 
 
-
-
 莉塔真是太太太太太帅了！
-
-
-
-
 
 
 1.png
 (506.51 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2017-7-2 11:11 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/02/111118ees7bavkbvbaa0zb.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 2.png
 (510.43 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2017-7-2 11:11 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/02/111132rgw5loj5gnlgonoq.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -16463,14 +10901,7 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2356#       发表于 2017-7-2 11:20
 
 
-
-
 国王似乎到这一集才知道妮娜变身的条件，说给妮娜加buff不妥吧
-
-
-
-
-
 
 
 -----
@@ -16479,14 +10910,7 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2357#       发表于 2017-7-2 11:38
 
 
-
-
 神族平时都是怎么训练部队的哦，部队不听命令，领导直接跑路，神族还是快点亡吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16495,14 +10919,7 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2358#       发表于 2017-7-2 11:38
 
 
-
-
 完蛋了，艾尔成了天使的独苗了，今后肯定扛不住<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16511,15 +10928,9 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2359#       发表于 2017-7-2 11:45
 
 
-
 <blockquote>半自动式宅 发表于 2017-7-2 11:11
 莉塔真是太太太太太帅了！</blockquote>
 果然从一开始就只看莉塔是完全正确的
-
-
-
-
-
 
 
 -----
@@ -16528,14 +10939,7 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2360#       发表于 2017-7-2 11:52
 
 
-
-
 这集国王各种小细节好评，该说不愧是专写言情剧的编剧嘛
-
-
-
-
-
 
 
 -----
@@ -16544,16 +10948,9 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2361#       发表于 2017-7-2 12:06
 
 
-
-
 丽塔简直亲女儿，各种帅气
 
 —— 来自 samsung SM-G9350, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
-
-
-
-
-
 
 
 -----
@@ -16562,22 +10959,13 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2362#       发表于 2017-7-2 12:06
 
 
-
-
 播了一半了，剧情目前还算稳，后半段千万别崩啊。妈蛋现在看个原创番提心吊胆的生怕哪一天剧情瞬间爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  ulir  
 ##### 2363#       发表于 2017-7-2 12:25
-
-
 
 
 剧本和阅历无数的自己设想的不对就无脑黑是某些人惯例了不用在意
@@ -16588,16 +10976,10 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  mumubear  
 ##### 2364#       发表于 2017-7-2 12:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36456724&amp;ptid=1229445" target="_blank">万物为玄一 发表于 2017-7-2 11:38</a>
@@ -16606,16 +10988,10 @@ Nina真是天使, 希望有个好结局.</blockquote>
 神族的地盘以前龙族随便去。。。现在人族开着战舰也能去了。。。不知怎么回事。。。。我倒很感兴趣。。。巴哈里面有宙斯，有奥丁，有索尔。。。巴拉巴拉神仙一大堆。。。天使的头头是哪位莫不是那个说要有光就有光的上帝。。。
 
 
-
-
-
-
-
 -----
 
 ####  炎武重黎  
 ##### 2365#       发表于 2017-7-2 12:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36456039&amp;ptid=1229445" target="_blank">辻君 发表于 2017-7-2 10:14</a>
@@ -16624,16 +11000,10 @@ Nina真是天使, 希望有个好结局.</blockquote>
 所以这个世界已经毁灭了一次，所谓旧时代。
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2366#       发表于 2017-7-2 12:43
-
 
 
  本帖最后由 nage560 于 2017-7-2 13:07 编辑 
@@ -16643,16 +11013,10 @@ Nina真是天使, 希望有个好结局.</blockquote>
 最后这集果不其然曝光大杀器有毁灭世界的隐患，而且还有幕后黑手操纵，所以国王极有可能是导致世界走向毁灭的凶手不说，还只是一只被利用的棋子，到时候看国王控们怎么洗地了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
 
 
-
-
-
-
-
 -----
 
 ####  macos  
 ##### 2367#       发表于 2017-7-2 12:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36456727&amp;ptid=1229445" target="_blank">skullgreymon 发表于 2017-7-2 11:38</a>
@@ -16661,25 +11025,13 @@ Nina真是天使, 希望有个好结局.</blockquote>
 为了拯救天界，只能再忍几十年，掏空L身体后，又带着新一代天使反攻
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2368#       发表于 2017-7-2 12:56
 
 
-
-
 神特么赢了后抱个妹子放松一下。不去指挥部队搜索天使头头加百利艾尔，反而在这边抱妹子撩妹，结果氪兵就只抓到了凯撒。还有国王真喜欢妮娜到要在战场撩的程度，前面为什么要无期徒刑妮娜呢？看妮娜在狱中受的苦（连铁球都比别人大几倍），一点也不像国王在臣下面前做戏才做个表面功夫抓妮娜。这前后行为逻辑不通只能让我觉得大石静玛丽苏心爆炸强加的戏。
-
-
-
-
-
 
 
 -----
@@ -16688,17 +11040,10 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2369#       发表于 2017-7-2 12:59
 
 
-
-
 欧皇击败了女装大佬和神族母舰，就基本上完成了任务，所以接下来调情聊会天。剩下的神族交给漆黑兵轻松歼灭。
 
 欧皇知道妮娜有变身的嫌疑，所以他也想看看究竟。
 之前阿萨谢尔曝光妮娜会变身时，欧皇当时也没干预，就看着她会不会真变。
-
-
-
-
-
 
 
 -----
@@ -16707,22 +11052,13 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2370#       发表于 2017-7-2 13:04
 
 
-
-
 僵尸会武术谁也挡不住啊么原来艾尔小天使是钉宫,果然钉宫的正太音才是最萌的
-
-
-
-
-
 
 
 -----
 
 ####  567844  
 ##### 2371#       发表于 2017-7-2 13:10
-
-
 
 
 国王:老子飞龙骑脸还怎么输,聊一下妹先
@@ -16732,25 +11068,13 @@ Nina真是天使, 希望有个好结局.</blockquote>
 (ಥ_ಥ)怎么真的飞龙骑脸了
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 2372#       发表于 2017-7-2 13:10
 
 
-
-
 不过妮娜那是地形龙吧没看她飞过
-
-
-
-
-
 
 
 -----
@@ -16759,16 +11083,10 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2373#       发表于 2017-7-2 13:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36457414&amp;ptid=1229445" target="_blank">新屋 发表于 2017-7-2 12:59</a>
 
 欧皇击败了女装大佬和神族母舰，就基本上完成了任务，所以接下来调情聊会天。剩下的神族交给漆黑兵轻松歼灭 ...</blockquote>
 就为了看妮娜会不会变龙，害死了一群重要战力氪兵和一个巨神兵，甚至还置自己于生命危险的境遇。这人皇是傻缺吗？
-
-
-
-
-
 
 
 -----
@@ -16777,23 +11095,16 @@ Nina真是天使, 希望有个好结局.</blockquote>
 ##### 2374#       发表于 2017-7-2 13:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36457526&amp;ptid=1229445" target="_blank">567844 发表于 2017-7-2 13:10</a>
 
 不过妮娜那是地形龙吧没看她飞过</blockquote>
 妮娜这个畸形种不知道是种类还是混血又或者是剧本还不能说的原因导致的，老家看起来蛮多都能飞的
 
 
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 2375#       发表于 2017-7-2 13:15
-
 
 
  本帖最后由 古桥一浩 于 2017-7-2 13:19 编辑 
@@ -16812,12 +11123,6 @@ Nina真是天使, 希望有个好结局.</blockquote>
 2017-7-2 13:13 上传
 
 
-
-
-
-
-
-
 小姐姐我想
 
 <img src="https://img.saraba1st.com/forum/201707/02/131336pc6809bzqzqb8qfn.jpg" referrerpolicy="no-referrer">
@@ -16830,11 +11135,6 @@ Nina真是天使, 希望有个好结局.</blockquote>
 2017-7-2 13:13 上传
 
 
-
-
-
-
-
 这一话丽塔真是帅爆了
 
 <img src="https://img.saraba1st.com/forum/201707/02/131403wspdkydqwdn4at2t.jpg" referrerpolicy="no-referrer">
@@ -16845,11 +11145,6 @@ Nina真是天使, 希望有个好结局.</blockquote>
 下载附件
 
 2017-7-2 13:14 上传
-
-
-
-
-
 
 
 之前的伏笔收回了，
@@ -16872,17 +11167,10 @@ PS：
 刚出狱遇到大混战还没说两句话就被吹飞了。。
 
 
-
-
-
-
-
 -----
 
 ####  musovzky  
 ##### 2376#       发表于 2017-7-2 13:21
-
-
 
 
 人皇竟然不惜废掉巨神兵也要当众示范撩妹技巧，而且看上去毫无阴谋、发自真心……
@@ -16891,17 +11179,10 @@ PS：
 不管了，苏菲sama放开那个孩子让我来啊！
 
 
-
-
-
-
-
 -----
 
 ####  shimotsuki14  
 ##### 2377#       发表于 2017-7-2 13:32
-
-
 
 
 莉塔全程良心！
@@ -16911,25 +11192,13 @@ PS：
 皇帝这左眼和手腕不知道伏的什么笔，不过空手变了条龙出来，破坏兵器的操作台是不是炸裂了啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  saitop999  
 ##### 2378#       发表于 2017-7-2 13:33
 
 
-
-
 围攻红龙的修仙团不是全掉塘里去了么
-
-
-
-
-
 
 
 -----
@@ -16938,23 +11207,15 @@ PS：
 ##### 2379#       发表于 2017-7-2 13:34
 
 
-
-
 绿手刚开炮时，艾尔的光墙是能顶住的
 
 难道只有我认为是妮娜的袭击使人皇分心，没掌控好绿手，出力过大打穿光墙，自己也废了一只眼
-
-
-
-
-
 
 
 -----
 
 ####  nage560  
 ##### 2380#       发表于 2017-7-2 13:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36457707&amp;ptid=1229445" target="_blank">henry8848 发表于 2017-7-2 13:34</a>
@@ -16965,17 +11226,10 @@ PS：
 真这样的话，国王撩妮娜这段就显得更智障了，所以不可能。
 
 
-
-
-
-
-
 -----
 
 ####  silvle  
 ##### 2381#       发表于 2017-7-2 13:39
-
-
 
 
 作为种族大战来说，确实描写上有硬伤，人皇准备了歼灭神族的最终兵器，却是出于“防卫”“被迫”发动歼灭战争，虽然这样处理剧情确实比较容易被默认站在人族或者”第三方中立“视角的观众接受，但是还是可以隐约感受到这是出自日本的动画
@@ -16990,32 +11244,19 @@ PS：
 至于，该在的时候在，不需要的时候不当电灯泡的副官，以及战场调情这种浪漫主义的场面，我觉得还是挺容易接受的，这次的主角是富有喜剧色彩的妮娜，观众大多也不会完全以一个严肃的态度来看带这么多有趣的展开
 
 
-
-
-
-
-
 -----
 
 ####  saitop999  
 ##### 2382#       发表于 2017-7-2 13:42
 
 
-
-
 还有红龙到底是地龙还是幼年体呢……如果是成年龙感觉比原谅巨神兵之类的强但是还不到大杀器的程度，但如果是翅膀没长好的幼龙那还有很大的提升空间啊
-
-
-
-
-
 
 
 -----
 
 ####  mumubear  
 ##### 2383#       发表于 2017-7-2 13:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36457707&amp;ptid=1229445" target="_blank">henry8848 发表于 2017-7-2 13:34</a>
@@ -17026,16 +11267,10 @@ PS：
 不会，人皇说了。。。就算有贞德儿子天使也照输不误。。。而且。。。人皇瞎眼烂手眉头都不皱一下。。。显然是知道些什么的。。。
 
 
-
-
-
-
-
 -----
 
 ####  云梦泽岸  
 ##### 2384#       发表于 2017-7-2 13:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36457707&amp;ptid=1229445" target="_blank">henry8848 发表于 2017-7-2 13:34</a>
@@ -17048,16 +11283,10 @@ PS：
 你们不要被大场面蒙蔽了才是，言情剧啦。
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 2385#       发表于 2017-7-2 14:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36457136&amp;ptid=1229445" target="_blank">mumubear 发表于 2017-7-1 23:27</a>
@@ -17068,27 +11297,15 @@ PS：
 某种意义上这也可以解释为什么高阶天使大多是女的
 
 
-
-
-
-
-
 -----
 
 ####  zmw_831110  
 ##### 2386#       发表于 2017-7-2 14:16
 
 
-
-
 绿毛这里最后的镜头崩的好厉害，就感觉是原本是远景被剪切放大的结果，这不应该啊，附近的几卡明明就没问题啊
 
 —— 来自 LENOVO Lenovo X3c50, Android 6.0.1上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
-
-
-
-
-
 
 
 -----
@@ -17097,24 +11314,15 @@ PS：
 ##### 2387#       发表于 2017-7-2 14:17
 
 
-
-
 为什么撕人皇啊……我倒是觉得这一集看的很爽<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
 战场发糖不是很贴合这一季的罗曼蒂克风吗，这一话各种细节都挺甜的，战斗也不错。
-
-
-
-
-
 
 
 -----
 
 ####  ulir  
 ##### 2388#       发表于 2017-7-2 14:31
-
-
 
 
 极影不知道是不是翻错一句，妮娜想下去救人的时候国王那句意思应该是你再下去帮忙就没办法帮你开脱罪行了
@@ -17124,16 +11332,10 @@ PS：
 配合后面他对妮娜的几个细节感觉又绅士又城府极深，真是认真写的话感觉包袱不比妮娜少
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 2389#       发表于 2017-7-2 14:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36457533&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-2 13:11</a>
@@ -17142,17 +11344,10 @@ PS：
 本质上人皇和阿酱还有绿毛都是一样的肌肉脑,但是人皇要狡猾多了
 
 
-
-
-
-
-
 -----
 
 ####  厨厨光波  
 ##### 2390#       发表于 2017-7-2 14:43
-
-
 
 
 我的天，人家请的这个女编剧就说了要做言情剧了，霸道总裁撩撩小龙女，背景弄点biubiubiu爆炸一下
@@ -17162,25 +11357,13 @@ PS：
 真的接受不了这个角色的旁友，答应我就不要再接着看这片折磨自己了好吗<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  须原秋纪  
 ##### 2391#       发表于 2017-7-2 15:00
 
 
-
-
 这都到13集了还有觉得男女主角谈恋爱尬，人两还要继续谈13集恋爱，怕是要把你们尬上天。巴哈姆特之怒第二部的主角是妮娜和夏利欧斯，这对就是上天入地都在谈恋爱那也是这个故事的主线剧情，人魔神斗争是男主角的事业支线，麻烦某些观众搞清楚谁主谁次。觉得恋爱剧碍你眼尬你心就别看啊。还有那位高谈阔论指点江山的，我觉得夏利欧斯比之你真是不及万分之一，这人王应该给你当，大石静比之你真是自惭形愧，巴哈脚本应该请你撰写（rbq，rbq.jpg）
-
-
-
-
-
 
 
 -----
@@ -17189,24 +11372,16 @@ PS：
 ##### 2392#       发表于 2017-7-2 15:02
 
 
-
-
 这已经不是不理他自己消失的级别了，看样子不把这楼变成国王黑楼是不放手了。
 
 
 想清静看楼页面顶部有黑名单功能，强烈推荐。
 
 
-
-
-
-
-
 -----
 
 ####  须原秋纪  
 ##### 2393#       发表于 2017-7-2 15:04
-
 
 
 <blockquote>tewaku 发表于 2017-7-2 15:02
@@ -17217,16 +11392,10 @@ PS：
 感谢指路
 
 
-
-
-
-
-
 -----
 
 ####  新屋  
 ##### 2394#       发表于 2017-7-2 15:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36457533&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-2 13:11</a>
@@ -17248,16 +11417,10 @@ PS：
 至于几个亲兵的性命，统治者有必要特别对待、重视和珍惜吗？
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2395#       发表于 2017-7-2 15:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36458359&amp;ptid=1229445" target="_blank">tewaku 发表于 2017-7-2 15:02</a>
@@ -17269,16 +11432,10 @@ PS：
 欢迎黑名单，强烈推荐。
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2396#       发表于 2017-7-2 15:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36456039&amp;ptid=1229445" target="_blank">辻君 发表于 2017-7-2 10:14</a>
@@ -17290,25 +11447,13 @@ PS：
 巴哈看起来各种拽，实际上还是留了空间的
 
 
-
-
-
-
-
 -----
 
 ####  废基  
 ##### 2397#       发表于 2017-7-2 15:16
 
 
-
-
 要是把天使也拉下来开妓院我也兹磁人皇啊
-
-
-
-
-
 
 
 -----
@@ -17317,23 +11462,16 @@ PS：
 ##### 2398#       发表于 2017-7-2 15:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36458340&amp;ptid=1229445" target="_blank">须原秋纪 发表于 2017-7-2 15:00</a>
 
 这都到13集了还有觉得男女主角谈恋爱尬，人两还要继续谈13集恋爱，怕是要把你们尬上天。巴哈姆特之怒第二部 ...</blockquote>
 这番又不是仅仅服务喜欢恋爱套路的观众。PV1，2，3的标题明确了CY是要讨好各种观众。而且前面13集看出这番就是群像剧，然后夹带相当部分恋爱要素。咋给你说得好像这就是部恋爱番，不爽别看了。而且这恋爱插入的确生硬，我觉得恶心，你觉得我的话恶心到你喜欢的国王，又做不到无视我，可以效仿你的楼下黑名单我，谢谢，免得互相恶心对不。
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2399#       发表于 2017-7-2 15:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36458383&amp;ptid=1229445" target="_blank">新屋 发表于 2017-7-2 15:05</a>
@@ -17344,17 +11482,10 @@ PS：
 真想弄懂红龙之谜，妮娜在监狱的时候就该一对一找妮娜问个清楚吧，那时候阿酱的话就该确信妮娜是龙了才对。还有人皇统治者，让士兵送死应该的话。那加百利叫天使们撤退不听自己想走却被喷感觉双标了。
 
 
-
-
-
-
-
 -----
 
 ####  红丽  
 ##### 2400#       发表于 2017-7-2 15:30
-
-
 
 
 我觉得这恋爱谈得挺好的啊23333
@@ -17364,25 +11495,13 @@ PS：
 我支持皇帝把到手，也算付出了不少了
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2401#       发表于 2017-7-2 15:43
 
 
-
-
 国王现在这处境和鲁鲁修差不多，而且还插满了flag，很可能结局也是鲁鲁修那样。刚好也效仿第一季，两主角死一个留一个。
-
-
-
-
-
 
 
 -----
@@ -17391,22 +11510,15 @@ PS：
 ##### 2402#       发表于 2017-7-2 15:44
 
 
-
  本帖最后由 nage560 于 2017-7-2 15:46 编辑 
 
 风怒，编辑掉。
-
-
-
-
-
 
 
 -----
 
 ####  新屋  
 ##### 2403#       发表于 2017-7-2 15:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36458516&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-2 15:27</a>
@@ -17426,16 +11538,10 @@ PS：
 触发了红龙剧情，让士兵迎击红龙就是让士兵送死？ 
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2404#       发表于 2017-7-2 16:00
-
 
 
 <blockquote>新屋 发表于 2017-7-2 15:44
@@ -17449,16 +11555,10 @@ PS：
 算了也不想争这点了，这下争下去无然无了。而且这点小毛病问题不大，第二季的主线还是很精彩的。
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 2405#       发表于 2017-7-2 16:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36458647&amp;ptid=1229445" target="_blank">半分幻の庭师 发表于 2017-7-2 15:53</a>
@@ -17467,16 +11567,10 @@ PS：
 灭神理由不够屠魔还要理由么,阿酱攻城的时候你们忘记了
 
 
-
-
-
-
-
 -----
 
 ####  新屋  
 ##### 2406#       发表于 2017-7-2 16:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36457746&amp;ptid=1229445" target="_blank">silvle 发表于 2017-7-2 13:39</a>
@@ -17492,16 +11586,10 @@ PS：
 两次都是看似被迫防卫，但是欧皇掌握的信息量远远多于敌人。
 
 
-
-
-
-
-
 -----
 
 ####  nicheng  
 ##### 2407#       发表于 2017-7-2 16:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36458359&amp;ptid=1229445" target="_blank">tewaku 发表于 2017-7-2 15:02</a>
@@ -17513,27 +11601,15 @@ PS：
 谢谢推荐，总算可以清静点看专楼了
 
 
-
-
-
-
-
 -----
 
 ####  大晓尧  
 ##### 2408#       发表于 2017-7-2 16:34
 
 
-
-
 这集对妮娜好感度大增，龙形战斗真帅。以及我觉得国王也不是为了套情报才放任妮娜的，他的表情更像没预料这个情况，所以一时不知道怎么面对。前面的剧情看着好像妮娜恋爱脑，但其实国王才更恋爱脑吧，妮娜喊他抱就抱，结果妮娜变成龙反将他一军，万万没想到是妮娜利用国王了，国王这波小翻车看的真爽，给妮娜打CALL。
 
 以及凯撒是不是已经沦为搞笑役了？丽塔特地跑来找他，结果他第一句问法瓦罗，第二句喊贞德，心疼僵尸妹。
-
-
-
-
-
 
 
 -----
@@ -17542,14 +11618,7 @@ PS：
 ##### 2409#       发表于 2017-7-2 17:02
 
 
-
-
 哪里有熟肉。。。
-
-
-
-
-
 
 
 -----
@@ -17558,14 +11627,7 @@ PS：
 ##### 2410#       发表于 2017-7-2 17:07
 
 
-
-
 极影已经出了啊，找找就有
-
-
-
-
-
 
 
 -----
@@ -17574,14 +11636,7 @@ PS：
 ##### 2411#       发表于 2017-7-2 17:12
 
 
-
-
 逸国有上传了
-
-
-
-
-
 
 
 -----
@@ -17590,13 +11645,7 @@ PS：
 ##### 2412#       发表于 2017-7-2 17:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">加百列表现确实不济，你倒是说下撤退的原因啊，“大好形势”下这么唐突来句撤退，是个天使都懵逼啊，何况依赖的王牌还是才来不久的孩子
-
-
-
-
-
 
 
 -----
@@ -17605,17 +11654,10 @@ PS：
 ##### 2413#       发表于 2017-7-2 17:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36459086&amp;ptid=1229445" target="_blank">notromeo 发表于 2017-7-2 17:02</a>
 
 哪里有熟肉。。。</blockquote>
 b站就有啊，这片因为没版权，番剧主题经常不索引的，直接搜名字+13能搜到，上午就有了
-
-
-
-
-
-
 
 
 -----
@@ -17624,24 +11666,16 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ##### 2414#       发表于 2017-7-2 18:02
 
 
-
-
 这集最大的疑问还是加百列不说撤退原因转头就跑到底是剧本要求猪队友还是真的就这么又坏又怂
 
 
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  新屋  
 ##### 2415#       发表于 2017-7-2 18:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36459560&amp;ptid=1229445" target="_blank">ulir 发表于 2017-7-2 18:02</a>
@@ -17653,16 +11687,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 没时间解释了 快上车
 
 
-
-
-
-
-
 -----
 
 ####  sta777  
 ##### 2416#       发表于 2017-7-2 18:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36459478&amp;ptid=1229445" target="_blank">notromeo 发表于 2017-7-2 17:50</a>
@@ -17671,16 +11699,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 确实，跟紫毛说的一套一套的  跟其他天使就变成了先天性语言障碍
 
 
-
-
-
-
-
 -----
 
 ####  etiq  
 ##### 2417#       发表于 2017-7-2 19:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36459560&amp;ptid=1229445" target="_blank">ulir 发表于 2017-7-2 18:02</a>
@@ -17695,16 +11717,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 这种觉得优势很大，连命令都不听的小兵，你解释“对面有大杀器，我们打不过”也不会信的。
 
 
-
-
-
-
-
 -----
 
 ####  云梦泽岸  
 ##### 2418#       发表于 2017-7-2 19:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36460460&amp;ptid=1229445" target="_blank">etiq 发表于 2017-7-2 19:37</a>
@@ -17716,25 +11732,13 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 当大爷当惯了，只会无脑虐虫族。
 
 
-
-
-
-
-
 -----
 
 ####  哥特式lolita  
 ##### 2419#       发表于 2017-7-2 20:24
 
 
-
-
 霸道总裁连台词都完全小言风了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17743,14 +11747,7 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ##### 2420#       发表于 2017-7-2 20:49
 
 
-
-
 我说你们还没看明白吗，皇帝是编剧罩着的完美男人一切和皇帝作对的角色和势力会被强行套上降智光环以方便被皇帝碾压而不管其行为是否合理，加百利只是最大的一个牺牲品而已<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17759,13 +11756,7 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ##### 2421#       发表于 2017-7-2 20:52
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉神皇要一路威风到结局了，毕竟是编剧钦点的完美无缺的男人
-
-
-
-
-
 
 
 -----
@@ -17774,20 +11765,13 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ##### 2422#       发表于 2017-7-2 20:56
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">哪有，大家目前主流观点就是皇帝最终会吃瘪，只是什么时候才会吃的问题
-
-
-
-
-
 
 
 -----
 
 ####  HLGG2  
 ##### 2423#       发表于 2017-7-2 21:06
-
 
 
  本帖最后由 HLGG2 于 2017-7-2 21:16 编辑 
@@ -17797,16 +11781,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 现在也有点不肯定皇帝会吃瘪了，让我想起了年初铁血被冈妈爱着的大舅子<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2424#       发表于 2017-7-2 21:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36458127&amp;ptid=1229445" target="_blank">ulir 发表于 2017-7-2 14:31</a>
@@ -17820,17 +11798,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 前面那句翻译，我也觉得翻错了
 
 
-
-
-
-
-
 -----
 
 ####  花样作死小能手  
 ##### 2425#       发表于 2017-7-2 21:28
-
-
 
 
 伤残是洗白的第一步，国王要开始卖惨了吗？
@@ -17842,33 +11813,19 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 要开启龙之故里副本了！
 
 
-
-
-
-
-
 -----
 
 ####  水無燈里  
 ##### 2426#       发表于 2017-7-2 22:01
 
 
-
-
 戀愛劇我都當笑料看，適時插播一下能讓節奏鬆弛有度
-
-
-
-
-
 
 
 -----
 
 ####  C男人  
 ##### 2427#       发表于 2017-7-2 22:16
-
-
 
 
 漆黑兵克制美国大兵的情节基本没表现出来吧？
@@ -17882,17 +11839,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 今天击坠数最高的是绿墙。
 
 
-
-
-
-
-
 -----
 
 ####  bandage_n2_ki  
 ##### 2428#       发表于 2017-7-2 22:17
-
-
 
 
 妮娜变成龙后的毛发毛发是灰色瞳色是金色…和国王一样…你别最后告诉我他们是失散多年的亲兄妹就行…另外国王靠烧生命使用最终兵器我是真没想到…你也是灰烬人么…
@@ -17900,17 +11850,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
     —— from [S1 Nyan](http://126.am/S1Nyan) (Microsoft Lumia 640XL)来自: WindowsPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  C男人  
 ##### 2429#       发表于 2017-7-2 22:20
-
-
 
 
 女编剧、恋爱剧什么的，就知足吧，
@@ -17927,16 +11870,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 “我亲眼见她腌鸡翅时用过！”
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2430#       发表于 2017-7-2 22:33
-
 
 
 <blockquote>引用第2438楼etiq于2017-07-02 01:37发表的  :
@@ -17948,16 +11885,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2431#       发表于 2017-7-2 22:39
-
 
 
 <blockquote>引用第2441楼HLGG2于2017-07-02 02:49发表的  :
@@ -17969,17 +11900,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  AgieClover  
 ##### 2432#       发表于 2017-7-2 22:54
-
-
 
 
 人皇这撩妹技能已经完全满点了
@@ -17987,16 +11911,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 丽塔不愧为我方第一战力
 
 
-
-
-
-
-
 -----
 
 ####  心灵的乳头  
 ##### 2433#       发表于 2017-7-2 22:58
-
 
 
  本帖最后由 心灵的乳头 于 2017-7-2 23:13 编辑 
@@ -18008,16 +11926,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 另，有一帧，神族最大战力艾尔被背刺，是圣女的未来视？
 
 
-
-
-
-
-
 -----
 
 ####  cat1230  
 ##### 2434#       发表于 2017-7-2 23:12
-
 
 
  本帖最后由 cat1230 于 2017-7-2 23:13 编辑 
@@ -18027,16 +11939,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 怎么说呢，你开始给下面人搞传销式洗脑想一波流，临阵想叫大家跑路哪那么容易，都热血上头了。这大杀器开放还没完成，搞的有副作用吧，想起以前看的传勇传，用一次剑少只胳膊腿儿什么的。
 
 
-
-
-
-
-
 -----
 
 ####  心灵的乳头  
 ##### 2435#       发表于 2017-7-2 23:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36457707&amp;ptid=1229445" target="_blank">henry8848 发表于 2017-7-2 13:34</a>
@@ -18047,16 +11953,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 我倒觉得，黑科技光线炮输出到底有多大，皇帝这边也是不知道的，他就是个山寨人形插件，负责接通流路+瞄准。
 
 
-
-
-
-
-
 -----
 
 ####  Renes  
 ##### 2436#       发表于 2017-7-2 23:58
-
 
 
  本帖最后由 Renes 于 2017-7-3 00:01 编辑 
@@ -18073,25 +11973,13 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 另外国王这人是个闷骚啊 肯定是外表霸道总裁 内心向往单纯平凡的生活 预告里那个逗比呀 那些光束嗖嗖嗖的！
 
 
-
-
-
-
-
 -----
 
 ####  cao1rui2  
 ##### 2437#       发表于 2017-7-3 00:02
 
 
-
-
 这集我看的时候笑死了，和预告风格挺契合的呀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18100,14 +11988,7 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ##### 2438#       发表于 2017-7-3 00:18
 
 
-
-
 加百列专业坑神族啊，第一季三个大天使也算是间接被她坑死的。
-
-
-
-
-
 
 
 -----
@@ -18116,14 +11997,7 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ##### 2439#       发表于 2017-7-3 00:32
 
 
-
-
 天使杂兵怎么这么傻，一个一个去自杀式的撞墙，一开始觉得自己优势很大自信满满冲过去被干掉了还可以理解，后面的人就及时撤退啊，之前被别人干了那么多次不长记性？还是说加百列自己撤了，母舰没了，这帮天使杂兵根本回不去神界了，所以不得比自杀性的奋力一搏？
-
-
-
-
-
 
 
 -----
@@ -18132,17 +12006,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ##### 2440#       发表于 2017-7-3 00:38
 
 
-
-
 凯撒跳出来掩护队友真是迷一般，看后续对方根本没有击坠飞行器的手段（人王不出手的话），而且自己也根本没有起到如何掩护的作用。。。
 
 
 神族士兵单个个体太强了所以有这种无视军纪的行为吧，想想如果是人王在攻打神界时宣布撤退，我觉得漆黑兵肯定乖乖直接撤，骑士团可能有怨言但也跟着撤，所以打仗起来根本没有加百列什么事嘛。。。
-
-
-
-
-
 
 
 -----
@@ -18151,14 +12018,7 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ##### 2441#       发表于 2017-7-3 00:42
 
 
-
-
 顺便人王越来越帅了是不是我的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18167,14 +12027,7 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ##### 2442#       发表于 2017-7-3 00:47
 
 
-
-
 加百利的领导力只有1吗，撤退到是果断，结果根本没一个人听她的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18183,16 +12036,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ##### 2443#       发表于 2017-7-3 00:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36463295&amp;ptid=1229445" target="_blank">yanbo8502 发表于 2017-7-3 00:32</a>
 
 天使杂兵怎么这么傻，一个一个去自杀式的撞墙，一开始觉得自己优势很大自信满满冲过去被干掉了还可以理解， ...</blockquote>
 万岁冲锋，日本人写的剧本，没毛病
-
-
-
-
-
 
 
 -----
@@ -18201,14 +12048,7 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ##### 2444#       发表于 2017-7-3 01:08
 
 
-
-
 我就一个问题，王的左手上是赏金猎人的手镯？
-
-
-
-
-
 
 
 -----
@@ -18217,14 +12057,7 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ##### 2445#       发表于 2017-7-3 02:26
 
 
-
-
 人皇肯定会吃瘪，只不过看吃完瘪妮娜能否用主角光环给他续命，或者是搭上自己的命给人皇续（参见ED左上角命数减一），当然也可能续命失败（毕竟上一季她师傅可是失败了），徒弟能不能青出于蓝拭目以待咯
-
-
-
-
-
 
 
 -----
@@ -18233,16 +12066,9 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ##### 2446#       发表于 2017-7-3 08:39
 
 
-
-
 片名都叫 巴哈姆特之怒 virgin soul …你不想看谈恋爱要么不想看大型奇幻大制作…你还要我怎样（唱）~
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (Microsoft Lumia 640XL)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
@@ -18251,16 +12077,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ##### 2447#       发表于 2017-7-3 11:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36453877&amp;ptid=1229445" target="_blank">新屋 发表于 2017-7-2 00:46</a>
 
 很多作品里，神仙魔王级角色出手都是坚持刚正面，并保持不紧不慢的节奏，从容不迫气定神闲堂堂正正的姿态。 ...</blockquote>
 镝木肆星不是不动脑子啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，他是假装气定神闲刚正面，实际上恶鬼出现时镝木肆星就已经知道自己难逃一死，所以一直做些大场面迷惑恶鬼。本质是在拖延时间。（但好像没有很多村民领悟只有觉看出来了？） 倒是那个日野光风符合这个标准。
-
-
-
-
-
 
 
 -----
@@ -18269,23 +12089,15 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ##### 2448#       发表于 2017-7-3 11:36
 
 
-
-
 艾尔还是闭着嘴时候比较可爱,长出翅膀后整个人都不正常了.
 
 加百列和阿酱的区别就是,加百列人多.
-
-
-
-
-
 
 
 -----
 
 ####  Byarlant  
 ##### 2449#       发表于 2017-7-3 11:36
-
 
 
  本帖最后由 Byarlant 于 2017-7-3 11:39 编辑 
@@ -18301,17 +12113,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 况且旁边的湖里还藏了一台强化巨象兵。
 
 
-
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2450#       发表于 2017-7-3 12:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36466617&amp;ptid=1229445" target="_blank">KuonjiClara 发表于 2017-7-3 11:36</a>
@@ -18329,17 +12134,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 这集真是被黑惨了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  烦恼寺  
 ##### 2451#       发表于 2017-7-3 12:34
-
-
 
 
 毕竟天使军团的头领是米迦勒，加百列在米迦勒去了之后只能算个代理。。。乳虽然巨，但那些黑叔根本不懂得欣赏啊
@@ -18348,16 +12146,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.21)
 
 
-
-
-
-
-
 -----
 
 ####  遅刻魔  
 ##### 2452#       发表于 2017-7-3 12:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36466617&amp;ptid=1229445" target="_blank">KuonjiClara 发表于 2017-7-3 11:36</a>
@@ -18368,16 +12160,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 艾尔觉醒之前能力能不用就不用，觉醒之后就是一副“cnm啊啊啊啊啊啊啊啊！”的样子，也不知道怎么转变的<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ai-至死の病  
 ##### 2453#       发表于 2017-7-3 13:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36467317&amp;ptid=1229445" target="_blank">遅刻魔 发表于 2017-7-3 12:36</a>
@@ -18388,16 +12174,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 加百列让他回去的时候他也说了，还没有救出妈妈。
 
 
-
-
-
-
-
 -----
 
 ####  遅刻魔  
 ##### 2454#       发表于 2017-7-3 13:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36467625&amp;ptid=1229445" target="_blank">ai-至死の病 发表于 2017-7-3 13:04</a>
@@ -18408,16 +12188,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 就感觉发怒的对象搞错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过算了，毕竟是小孩子
 
 
-
-
-
-
-
 -----
 
 ####  新屋  
 ##### 2455#       发表于 2017-7-3 13:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36466562&amp;ptid=1229445" target="_blank">艾歌echo 发表于 2017-7-3 11:32</a>
@@ -18426,16 +12200,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 动画看上去就是给村民们示范表演如何铲除这个妖魔，然后那些获救的村民好多在围观。
 
 
-
-
-
-
-
 -----
 
 ####  zerocount  
 ##### 2456#       发表于 2017-7-3 13:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36462543&amp;ptid=1229445" target="_blank">心灵的乳头 发表于 2017-7-2 22:58</a>
@@ -18450,16 +12218,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 这段是砍米迦勒的记忆 
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2457#       发表于 2017-7-3 14:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36467317&amp;ptid=1229445" target="_blank">遅刻魔 发表于 2017-7-3 12:36</a>
@@ -18468,26 +12230,15 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 其实不光是艾尔，你想想加百列开打前那段演讲，原因都不提要他们直接撤兵谁会服气<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  万物为玄一  
 ##### 2458#       发表于 2017-7-3 14:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36468234&amp;ptid=1229445" target="_blank">ulir 发表于 2017-7-3 14:07</a>
 其实不光是艾尔，你想想加百列开打前那段演讲，原因都不提要他们直接撤兵谁会服气 ...</blockquote>
 我觉得士兵在战场上应该服从命令，要理由可以等撤退之后再质问，战场上直接质疑领导命令不是拿自己和战友的生命开玩笑吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18496,16 +12247,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ##### 2459#       发表于 2017-7-3 14:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36467728&amp;ptid=1229445" target="_blank">遅刻魔 发表于 2017-7-3 13:15</a>
 
 就感觉发怒的对象搞错了不过算了，毕竟是小孩子</blockquote>
 其实还是加百列坑啊...忽悠艾尔去打首都...你要救贞德直接空降监狱岛把绿石机器还没开就被拆了...也不用那么多损失...
-
-
-
-
-
 
 
 -----
@@ -18514,16 +12259,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ##### 2460#       发表于 2017-7-3 15:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36468519&amp;ptid=1229445" target="_blank">万物为玄一 发表于 2017-7-3 14:33</a>
 
 我觉得士兵在战场上应该服从命令，要理由可以等撤退之后再质问，战场上直接质疑领导命令不是拿自己和战友 ...</blockquote>
 他们当时一路都快屠完了哪来的生命危险<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">细节得问剧本是不是真的要表达加百列是又坏又怂了
-
-
-
-
-
 
 
 -----
@@ -18532,24 +12271,15 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ##### 2461#       发表于 2017-7-3 16:05
 
 
-
-
 有一点比较在意…目前知道能让妮娜变龙的人除了国王自己（当然他可能不知道是心动变龙）以外主角队伍里还有谁。或者说主角队伍中有谁是清楚妮娜在和国王谈恋爱的…可能唯一知道的就是贞德？但又感觉贞德没嫩得太明白…还有妮娜回到故里后见到帅哥就不会变龙了，不知道乡亲们会怎么看…
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (Microsoft Lumia 640XL)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
 
 ####  新屋  
 ##### 2462#       发表于 2017-7-3 16:44
-
-
 
 
 加百列人不坏啊，一直很温柔慈爱。
@@ -18564,16 +12294,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 说加百列坏的都是结合她的领导身份和现实作品人心套路然后过度理解。
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2463#       发表于 2017-7-3 17:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36469540&amp;ptid=1229445" target="_blank">bandage_n2_ki 发表于 2017-7-3 16:05</a>
@@ -18585,32 +12309,19 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 谈个恋爱破个处（误）有什么好大惊小怪的，搞不好还恭喜一番呢
 
 
-
-
-
-
-
 -----
 
 ####  c88711611  
 ##### 2464#       发表于 2017-7-3 17:19
 
 
-
-
 看来第二季还真是总裁文小言？？？按国内小言的套路，国王是不可能吃瘪的，想看国王吃瘪可以洗洗睡了，前提是这个第二季真是小言套路
-
-
-
-
-
 
 
 -----
 
 ####  bandage_n2_ki  
 ##### 2465#       发表于 2017-7-3 17:30
-
 
 
 <blockquote>ulir 发表于 2017-7-3 17:17
@@ -18621,16 +12332,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 嗯…我是指丽塔现在看没看出来之前来摊上吃鸡翅的帅哥是敌对阵营的国王…以及法瓦罗和凯撒还不知道妮娜和把他们关进去的国王看对眼了吧…七大姑八大姨都还不一定同意这门亲事呢（
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2466#       发表于 2017-7-3 17:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36470544&amp;ptid=1229445" target="_blank">bandage_n2_ki 发表于 2017-7-3 17:30</a>
@@ -18642,16 +12347,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 同不同意不是要看妮娜自己的意思吗，万一真有那种if女高中生结局妮娜变个龙跟人家私奔也没人拦得住啊（
 
 
-
-
-
-
-
 -----
 
 ####  bandage_n2_ki  
 ##### 2467#       发表于 2017-7-3 17:42
-
 
 
 <blockquote>ulir 发表于 2017-7-3 17:36
@@ -18662,13 +12361,9 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 正好国王的手也不行了…莫非是传说中的…杨过和小龙女？！
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -18678,12 +12373,7 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 | zorya| + 2|欢乐多|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -18692,14 +12382,7 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ##### 2468#       发表于 2017-7-3 17:54
 
 
-
-
 话说国王把手伸进去大球就变成手，把妮娜伸进去是不是就变成巴哈姆特了23333
-
-
-
-
-
 
 
 -----
@@ -18708,16 +12391,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ##### 2469#       发表于 2017-7-3 18:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36470403&amp;ptid=1229445" target="_blank">c88711611 发表于 2017-7-3 17:19</a>
 
 看来第二季还真是总裁文小言？？？按国内小言的套路，国王是不可能吃瘪的，想看国王吃瘪可以洗洗睡了，前提 ...</blockquote>
 国王眼睛都瞎了一只，再打下去民众估计也不挺他了，孤家寡人；后半生怕不是要坐个轮椅，妮娜天天打工养他<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18726,22 +12403,15 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ##### 2470#       发表于 2017-7-3 18:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">国王这都瞎了一只眼了，还不算吃瘪么？
 
 我觉得这片结尾弄不好就是国王坐在轮椅上，妮娜后面推着她
-
-
-
-
-
 
 
 -----
 
 ####  musicat  
 ##### 2471#       发表于 2017-7-3 19:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36470791&amp;ptid=1229445" target="_blank">北风游骑兵 发表于 2017-7-3 17:54</a>
@@ -18752,16 +12422,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 感觉真搞不好，妮娜就是这样变成了巴哈，然后神皇狗血的去救他而死。
 
 
-
-
-
-
-
 -----
 
 ####  83913536  
 ##### 2472#       发表于 2017-7-3 19:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36463295&amp;ptid=1229445" target="_blank">yanbo8502 发表于 2017-7-3 00:32</a>
@@ -18770,16 +12434,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 你大概忘记阿萨谢尔也是堕天使了，想想阿酱的优秀表现，就可以理解天使杂兵的行为了！
 
 
-
-
-
-
-
 -----
 
 ####  beer  
 ##### 2473#       发表于 2017-7-3 22:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36471206&amp;ptid=1229445" target="_blank">文文情报屋 发表于 2017-7-3 18:42</a>
@@ -18791,32 +12449,19 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 有点带感啊，总裁文的最期。要是真这样上季有人断手这季有人瞎，还都是男的。另外不知道阿米拉的去向还填不填坑。
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 2474#       发表于 2017-7-4 14:41
 
 
-
-
 丽塔是本作两期的实力和逼格担当。
-
-
-
-
-
 
 
 -----
 
 ####  鱼缸  
 ##### 2475#       发表于 2017-7-4 14:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36478961&amp;ptid=1229445" target="_blank">望月凝香 发表于 2017-7-4 14:41</a>
@@ -18827,16 +12472,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 这种不卖萌不废话不嘴炮直接行动的萝莉身熊妈妈心真是太赞了
 
 
-
-
-
-
-
 -----
 
 ####  Byarlant  
 ##### 2476#       发表于 2017-7-4 15:11
-
 
 
  本帖最后由 Byarlant 于 2017-7-4 15:13 编辑 
@@ -18849,34 +12488,19 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 基本上，后面的剧情人皇有七成可能变成不能走了，然后对尼娜说出“我已经不能再陪你跳舞了”这样的台词，然后再升华一次二人感情。
 
 
-
-
-
-
-
-
-
 -----
 
 ####  八云烧鸡鸡  
 ##### 2477#       发表于 2017-7-4 15:32
 
 
-
-
 人皇是被球吸瞎的吗？还以为是被妮娜撞瞎的
-
-
-
-
-
 
 
 -----
 
 ####  HyperBazooka  
 ##### 2478#       发表于 2017-7-4 16:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36463412&amp;ptid=1229445" target="_blank">amulelernen 发表于 2017-7-3 00:49</a>
@@ -18890,27 +12514,15 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 领导叫撤也不听罢了
 
 
-
-
-
-
-
 -----
 
 ####  文文情报屋  
 ##### 2479#       发表于 2017-7-4 18:55
 
 
-
-
 话说国王也算是身先士卒了吧
 
 这玩意对身体消耗这么大，如果坏一点，让别人替自己上去轰不就得了
-
-
-
-
-
 
 
 -----
@@ -18919,16 +12531,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ##### 2480#       发表于 2017-7-4 22:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36478961&amp;ptid=1229445" target="_blank">望月凝香 发表于 2017-7-4 14:41</a>
 
 丽塔是本作两期的实力和逼格担当。</blockquote>
 这集她的作画得特别好
-
-
-
-
-
 
 
 -----
@@ -18937,16 +12543,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ##### 2481#       发表于 2017-7-4 23:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36454187&amp;ptid=1229445" target="_blank">yanbo8502 发表于 2017-7-2 01:33</a>
 
 天使杂兵都能把魔族力战斗力较高的杂兵秒杀，当年神魔怎么能相持的。。。 ...</blockquote>
 魔族其实高级战士不少，这方面有优势，比如阿酱三头狗甚至袭击皇帝被干掉那两，而角斗魔族战士能力应该不差，我觉得他们的策略不好，选了埋伏在门那边，被一锅端了。
-
-
-
-
-
 
 
 -----
@@ -18955,24 +12555,16 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ##### 2482#       发表于 2017-7-4 23:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36455734&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-2 09:29</a>
 
 别给大石静洗地了，这种氛围下还撩妹国王真的是给大石静下了降智光环了。而且还给妮娜加开大buff干死自己 ...</blockquote>
 我看到你前面站队天使股，然后秒崩了，现在为黑而黑没意思。不按照你的意愿让天使屠宰人类，吊死神皇就黑安排感情戏是剧作有问题。为黑而黑。皇帝从头到尾都是这种因为极度自信放纵形势然后再应对的性格，没有突然变成这样。
 
 
-
-
-
-
-
 -----
 
 ####  枇杷树  
 ##### 2483#       发表于 2017-7-4 23:22
-
-
 
 
 这集很好看啊
@@ -18982,16 +12574,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 看国王抱妹被龙炸飞笑死了
 
 
-
-
-
-
-
 -----
 
 ####  浅野  
 ##### 2484#       发表于 2017-7-4 23:36
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">挺好看的！
@@ -18999,17 +12585,10 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 路西神隐也算间接保住逼格（不是）<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2485#       发表于 2017-7-6 23:28
-
-
 
 
 ■#14「Homecoming」
@@ -19030,25 +12609,13 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fhaky7r9gdj216y0o4b0e.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  欧阳明  
 ##### 2486#       发表于 2017-7-7 01:35
 
 
-
-
 温泉回<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19057,14 +12624,7 @@ b站就有啊，这片因为没版权，番剧主题经常不索引的，直接�
 ##### 2487#       发表于 2017-7-7 02:11
 
 
-
-
 ED的毛球居然出场了？
-
-
-
-
-
 
 
 -----
@@ -19073,17 +12633,10 @@ ED的毛球居然出场了？
 ##### 2488#       发表于 2017-7-7 04:39
 
 
-
-
 狗妹之前那剧透图居然是这里的，这集看起来挺稳的然后开始铺线了么
 
 
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
-
-
-
-
-
 
 
 -----
@@ -19092,16 +12645,10 @@ ED的毛球居然出场了？
 ##### 2489#       发表于 2017-7-7 08:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36505197&amp;ptid=1229445" target="_blank">DOACAON 发表于 2017-7-7 02:11</a>
 
 ED的毛球居然出场了？</blockquote>
 一看就是压力山大小哥又去逛窑子了......
-
-
-
-
-
 
 
 -----
@@ -19110,14 +12657,7 @@ ED的毛球居然出场了？</blockquote>
 ##### 2490#       发表于 2017-7-7 08:48
 
 
-
-
 对，这一话应该改oped了。期待cinderella step
-
-
-
-
-
 
 
 -----
@@ -19126,14 +12666,7 @@ ED的毛球居然出场了？</blockquote>
 ##### 2491#       发表于 2017-7-7 16:11
 
 
-
-
 非常期待OP和ED  希望妮娜镜头多一点
-
-
-
-
-
 
 
 -----
@@ -19142,16 +12675,10 @@ ED的毛球居然出场了？</blockquote>
 ##### 2492#       发表于 2017-7-7 16:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36471658&amp;ptid=1229445" target="_blank">83913536 发表于 2017-7-3 19:31</a>
 
 你大概忘记阿萨谢尔也是堕天使了，想想阿酱的优秀表现，就可以理解天使杂兵的行为了！ ...</blockquote>
 就是雄性天使都自带昭和属性的意思对吧。
-
-
-
-
-
 
 
 -----
@@ -19160,16 +12687,10 @@ ED的毛球居然出场了？</blockquote>
 ##### 2493#       发表于 2017-7-7 17:03
 
 
-
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fhaky7r9gdj216y0o4b0e.jpg" referrerpolicy="no-referrer">
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fhaky2w4kgj216y0o14p2.jpg" referrerpolicy="no-referrer">
 
 毫无违和感
-
-
-
-
-
 
 
 -----
@@ -19178,15 +12699,9 @@ ED的毛球居然出场了？</blockquote>
 ##### 2494#       发表于 2017-7-7 17:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36511752&amp;ptid=1229445" target="_blank">83913536 发表于 2017-7-7 17:03</a>
 毫无违和感</blockquote>
 没想到你是这样的国王<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19195,24 +12710,16 @@ ED的毛球居然出场了？</blockquote>
 ##### 2495#       发表于 2017-7-7 23:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36511752&amp;ptid=1229445" target="_blank">83913536 发表于 2017-7-7 17:03</a>
 
 毫无违和感</blockquote>
 2333333
 
 
-
-
-
-
-
 -----
 
 ####  shadow001  
 ##### 2496#       发表于 2017-7-8 01:37
-
-
 
 
 新OP,ED
@@ -19222,25 +12729,13 @@ OP竟然有路西法
 予告的龍,原來是悟空<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  浅野  
 ##### 2497#       发表于 2017-7-8 01:47
 
 
-
-
 路西法的翅膀少了……是简化作画吗。<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">还我六翼大天使……
-
-
-
-
-
 
 
 -----
@@ -19249,14 +12744,7 @@ OP竟然有路西法
 ##### 2498#       发表于 2017-7-8 02:17
 
 
-
-
 看完14话，后半这看着仿佛是男女主拿错对方剧本的高达片展开……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19265,21 +12753,13 @@ OP竟然有路西法
 ##### 2499#       发表于 2017-7-8 04:38
 
 
-
-
 龙族的男人都出去打工这事越发可疑了啊，龙族这么简单的生活有什么不能自给自足的？
-
-
-
-
-
 
 
 -----
 
 ####  airsfly  
 ##### 2500#       发表于 2017-7-8 04:51
-
 
 
  本帖最后由 airsfly 于 2017-7-8 06:05 编辑 
@@ -19289,16 +12769,10 @@ OP竟然有路西法
 新ED没有之前的可爱啊，不过歌词倒是正面了很多
 
 
-
-
-
-
-
 -----
 
 ####  83913536  
 ##### 2501#       发表于 2017-7-8 05:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36515898&amp;ptid=1229445" target="_blank">DOACAON 发表于 2017-7-8 04:38</a>
@@ -19307,33 +12781,19 @@ OP竟然有路西法
 老婆
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2502#       发表于 2017-7-8 05:35
 
 
-
-
 OP除了角色配置都太TM高达了不知道该说什么好，ED虽然歌有点遗憾但我是真的笑出来了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Chia  
 ##### 2503#       发表于 2017-7-8 06:06
-
-
 
 
 阿酱一厢情愿地觉得龙也是魔族……结果完全没这回事吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
@@ -19344,16 +12804,10 @@ OP除了角色配置都太TM高达了不知道该说什么好，ED虽然歌有�
 结果还是得拼上命才能挡下巴哈随手一击<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mumubear  
 ##### 2504#       发表于 2017-7-8 06:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36515898&amp;ptid=1229445" target="_blank">DOACAON 发表于 2017-7-8 04:38</a>
@@ -19362,24 +12816,13 @@ OP除了角色配置都太TM高达了不知道该说什么好，ED虽然歌有�
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">龙不是喜欢金银财宝嘛。。。他们说打工。。。也许是抢钱呢？。。。
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2505#       发表于 2017-7-8 06:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说来按照妮娜会心动的那个范围，老爹人形莫非还挺年轻的？
-
-
-
-
-
 
 
 -----
@@ -19388,16 +12831,10 @@ OP除了角色配置都太TM高达了不知道该说什么好，ED虽然歌有�
 ##### 2506#       发表于 2017-7-8 07:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36515980&amp;ptid=1229445" target="_blank">ulir 发表于 2017-7-8 06:16</a>
 
 说来按照妮娜会心动的那个范围，老爹人形莫非还挺年轻的？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">奶奶2000年前背着神回神殿，妮娜的爹应该也是几百年甚至上千年依然年轻的妖孽
-
-
-
-
-
 
 
 -----
@@ -19406,16 +12843,10 @@ OP除了角色配置都太TM高达了不知道该说什么好，ED虽然歌有�
 ##### 2507#       发表于 2017-7-8 07:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">贞德真棒啊，JJYYD。同样是裸体，妮娜的就充斥着一股智障气息
 
 
 看OP里贞德是要加入天使们的阵营而不是拉着儿子就跑吗<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19424,14 +12855,7 @@ OP除了角色配置都太TM高达了不知道该说什么好，ED虽然歌有�
 ##### 2508#       发表于 2017-7-8 08:50
 
 
-
-
 丽塔注定孤独一生了，流下了伤心的泪水<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19440,14 +12864,7 @@ OP除了角色配置都太TM高达了不知道该说什么好，ED虽然歌有�
 ##### 2509#       发表于 2017-7-8 09:27
 
 
-
-
 国王去艾伯斯干嘛，准备召唤巴哈姆特？？？
-
-
-
-
-
 
 
 -----
@@ -19456,21 +12873,13 @@ OP除了角色配置都太TM高达了不知道该说什么好，ED虽然歌有�
 ##### 2510#       发表于 2017-7-8 09:36
 
 
-
-
 我看到现在才发现贞德是之前小魔女的亚可。。。差太多了吧。。。
-
-
-
-
-
 
 
 -----
 
 ####  Byarlant  
 ##### 2511#       发表于 2017-7-8 09:40
-
 
 
  本帖最后由 Byarlant 于 2017-7-8 11:09 编辑 
@@ -19483,25 +12892,13 @@ OP除了角色配置都太TM高达了不知道该说什么好，ED虽然歌有�
 或者其实他们一族的综合食量非常的大....
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2512#       发表于 2017-7-8 10:30
 
 
-
-
 亚历山大竟然想娶狗妹<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">。
-
-
-
-
-
 
 
 -----
@@ -19510,14 +12907,7 @@ OP除了角色配置都太TM高达了不知道该说什么好，ED虽然歌有�
 ##### 2513#       发表于 2017-7-8 10:41
 
 
-
-
 ed那个老年迪斯科<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19526,13 +12916,7 @@ ed那个老年迪斯科<img src="https://static.saraba1st.com/image/smiley/face2
 ##### 2514#       发表于 2017-7-8 10:56
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">哎呦我路 我路化妆终于画完了可以出场了吗。感觉翅膀缩水了啊你们对我的路路做了什么！？
-
-
-
-
-
 
 
 -----
@@ -19541,16 +12925,10 @@ ed那个老年迪斯科<img src="https://static.saraba1st.com/image/smiley/face2
 ##### 2515#       发表于 2017-7-8 11:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36516645&amp;ptid=1229445" target="_blank">soulatomy 发表于 2017-7-8 09:36</a>
 
 我看到现在才发现贞德是之前小魔女的亚可。。。差太多了吧。。。</blockquote>
 你发现了盲点...我是第一季就记住贞德是潘惠美配的了,到小魔女那里反而有些不习惯.
-
-
-
-
-
 
 
 -----
@@ -19559,22 +12937,13 @@ ed那个老年迪斯科<img src="https://static.saraba1st.com/image/smiley/face2
 ##### 2516#       发表于 2017-7-8 11:08
 
 
-
-
 OP剧透！店长回归，加百利小姐姐怕不是凶多吉少了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  厨厨光波  
 ##### 2517#       发表于 2017-7-8 11:23
-
-
 
 
 OP那个女跑男泪真是<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
@@ -19584,16 +12953,10 @@ ED的礼服蹦迪<img src="https://static.saraba1st.com/image/smiley/face2017/06
 好评！
 
 
-
-
-
-
-
 -----
 
 ####  Byarlant  
 ##### 2518#       发表于 2017-7-8 11:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36517143&amp;ptid=1229445" target="_blank">KuonjiClara 发表于 2017-7-8 11:02</a>
@@ -19602,25 +12965,13 @@ ED的礼服蹦迪<img src="https://static.saraba1st.com/image/smiley/face2017/06
 她的典型角色不是猎人的小杰吗？
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2519#       发表于 2017-7-8 11:29
 
 
-
-
 看最后，疑似巴哈要复活啊，国王最后眉头一皱，看来清楚自己闯的锅。
-
-
-
-
-
 
 
 -----
@@ -19629,16 +12980,10 @@ ED的礼服蹦迪<img src="https://static.saraba1st.com/image/smiley/face2017/06
 ##### 2520#       发表于 2017-7-8 11:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36517398&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-8 11:29</a>
 
 看最后，疑似巴哈要复活啊，国王最后眉头一皱，看来清楚自己闯的锅。</blockquote>
 你真是够了，从头到尾都是为黑而黑，还没说清那是什么你就急着黑，怎么不是天使入侵导致战局恶化？天使对人类的大屠杀还杀上瘾了不撤退怎么算？又是人皇不该抵抗人类就该为奴是吧？
-
-
-
-
-
 
 
 -----
@@ -19647,15 +12992,7 @@ ED的礼服蹦迪<img src="https://static.saraba1st.com/image/smiley/face2017/06
 ##### 2521#       发表于 2017-7-8 11:44
 
 
-
-
 第二季真的是塑造了一个有血有肉的贞德，贞德太棒了！
-
-
-
-
-
-
 
 
 -----
@@ -19664,14 +13001,7 @@ ED的礼服蹦迪<img src="https://static.saraba1st.com/image/smiley/face2017/06
 ##### 2522#       发表于 2017-7-8 11:49
 
 
-
-
 天使小姐姐能不能穿的再少一些<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19680,16 +13010,10 @@ ED的礼服蹦迪<img src="https://static.saraba1st.com/image/smiley/face2017/06
 ##### 2523#       发表于 2017-7-8 11:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36517527&amp;ptid=1229445" target="_blank">Byarlant 发表于 2017-7-8 11:42</a>
 
 你真是够了，从头到尾都是为黑而黑，还没说清那是什么你就急着黑，怎么不是天使入侵导致战局恶化？天使对 ...</blockquote>
 看看他的过往帖子，其实未必是想黑国王，但巴哈就是喜欢套路乱来（虽然他们第二季也反省过），所以套路侠会化身怨妇也是很正常的事，无视就好
-
-
-
-
-
 
 
 -----
@@ -19698,24 +13022,16 @@ ED的礼服蹦迪<img src="https://static.saraba1st.com/image/smiley/face2017/06
 ##### 2524#       发表于 2017-7-8 11:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36517527&amp;ptid=1229445" target="_blank">Byarlant 发表于 2017-7-8 11:42</a>
 
 你真是够了，从头到尾都是为黑而黑，还没说清那是什么你就急着黑，怎么不是天使入侵导致战局恶化？天使对 ...</blockquote>
 我觉得你对加百利才是为黑而黑。天使屠杀人类？天使因为第一集被人皇屠杀族人，然后抢走神器到你嘴边就是人皇为了人类强大做的谋略。人皇制造大杀器害死无数囚犯，人皇为了搞清妮娜真相就让自己士兵送死在你嘴边就是他是国王，有权决定臣下生死。现在天使和人类开战，人类打不过，死得还多是人皇派去做先锋的恶魔，竟然就变成天使大屠杀人类？可以可以，不知道是谁为黑而黑。杀上瘾不撤退？人皇迫害天使这么久杀他不是应该的？
 
 
-
-
-
-
-
 -----
 
 ####  reficul  
 ##### 2525#       发表于 2017-7-8 11:53
-
-
 
 
 第一季贞德在晚上和法瓦罗谈话时我觉得这个人物就已经很丰满了，不卑不亢不持才傲物
@@ -19726,16 +13042,10 @@ ED的礼服蹦迪<img src="https://static.saraba1st.com/image/smiley/face2017/06
 OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结果只出现在OP里
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2526#       发表于 2017-7-8 11:55
-
 
 
  本帖最后由 nage560 于 2017-7-8 12:06 编辑 
@@ -19745,16 +13055,10 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 人类为奴？你自己脑补的人类为奴？12集臣下都说过大杀器的隐患，还有13集加百利说过的大杀器对世界的灾难性危害，在14集最后的画面很难不想象就是大杀器隐患带来的后果。是我黑还是你这国王粉把国王干的破事都美化或者选择性无视，然后把人皇脑补成高大全的人了？
 
 
-
-
-
-
-
 -----
 
 ####  Byarlant  
 ##### 2527#       发表于 2017-7-8 12:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36517617&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-8 11:53</a>
@@ -19769,25 +13073,13 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 拆了天使一座庙就在成了“迫害天使那么久”，你的脑补能力真强大。
 
 
-
-
-
-
-
 -----
 
 ####  Yeaha123  
 ##### 2528#       发表于 2017-7-8 12:17
 
 
-
-
 有点水啊这集
-
-
-
-
-
 
 
 -----
@@ -19796,21 +13088,13 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 ##### 2529#       发表于 2017-7-8 12:20
 
 
-
-
 居然是飞过去，我还以为有个传送门什么的，感情天使恶魔的世界就是高点而已？
-
-
-
-
-
 
 
 -----
 
 ####  Byarlant  
 ##### 2530#       发表于 2017-7-8 12:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36517635&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-8 11:55</a>
@@ -19822,16 +13106,10 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 不用脑补，人皇就是本作正牌亲儿子+男主+女主恋人，而且又是女作家笔下的霸道总裁，人家还留着“悲惨过去”和“深谋远虑”两张牌可打，跟天使和恶魔那些杂鱼势力的角色格调就不在一个层面。站低人皇股没有未来。而且相比人皇势力，而且其它阵营都太烂，更不要说站在人类视角恶魔和天使不过是凶兽和压迫者。
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2531#       发表于 2017-7-8 12:26
-
 
 
  本帖最后由 nage560 于 2017-7-8 12:28 编辑 
@@ -19841,16 +13119,10 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 真是笑喷我了。你自己再看看你说的这几句话，谁才是带有色眼镜黑我觉得不用多说什么了。拆了天使一座庙原来就不算迫害？后面追杀索菲，追杀姆伽罗原来不算长久迫害？所以说你这龙傲天国王控已经把某人美化得太厉害了。
 
 
-
-
-
-
-
 -----
 
 ####  Byarlant  
 ##### 2532#       发表于 2017-7-8 12:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36517865&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-8 12:26</a>
@@ -19859,16 +13131,10 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 又在东拉西扯，从危害性和被天使长洗脑来，追捕是完全正确的，什么都白莲花似的就是像贞德那样无力的看着小女孩被魔族碾成肉渣；而且上次我说后面的剧情很快会打你的脸，你捧天使黑人皇，然后天使那个战法残虐然后不听命令输的那个难看呀，然后之后你就是打滚挣扎一番。现在我也不多说了，后面的剧情会再次粉碎你的各种无脑黑。然后我再回来。你这完全是毒奶。
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2533#       发表于 2017-7-8 12:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36517846&amp;ptid=1229445" target="_blank">Byarlant 发表于 2017-7-8 12:22</a>
@@ -19880,16 +13146,10 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 国王是主角又如何，主角就一定漂漂亮亮活到最后？冈妈写的铁血，大河内的作品，宇宙骑士的轮椅。男主结局悲剧的作品不要太多。鲁路修够龙傲天霸道总裁了吧？做了那么多破事最后也是靠死了才援救口碑。好吧即使大石静3观不正，让国王屠神灭魔顺带主神路西法这些都被他灭了，全世界只剩人族，那又如何？就一定要控国王？就可以不考虑那人的作为单纯谁是赢家控谁？那难怪冈妈给你们做了一个冈达铁血来打你们脸。
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2534#       发表于 2017-7-8 12:38
-
 
 
  本帖最后由 nage560 于 2017-7-8 12:43 编辑 
@@ -19899,16 +13159,10 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 还天使长洗脑，看来所有有神存在的作品都是在对洗脑，他们都是必须死的存在咯？圣斗士雅典娜天天洗脑圣斗士，就该全部圣斗士联合起来干死雅典娜，然后等着被波塞冬或者哈迪斯干死全人类，起码咱们死了，但没有被洗脑对不？我在后面打滚？在13集开播前我早就说了从PV2看出天使要被干翻了，天使被干翻我一点都不意外，这是第二季开播前就注定的东西，当然你为了黑我肯定无视这点。我喷的是后面国王突然撩妹违和，然后被你们抓着这点不放说我因为天使输了就上蹿下跳死抓着国王玛丽苏这点不放，我就是吐槽一下这集国王这表现不合情理玛丽苏而已，这是我看这集的观感我还不能说。要说我上蹿下跳，也该是我后面集集都拿13集国王玛丽苏这点轮才对吧？
 
 
-
-
-
-
-
 -----
 
 ####  Byarlant  
 ##### 2535#       发表于 2017-7-8 12:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36517955&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-8 12:38</a>
@@ -19923,16 +13177,10 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 你这已经是癔症了。
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2536#       发表于 2017-7-8 12:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36517992&amp;ptid=1229445" target="_blank">Byarlant 发表于 2017-7-8 12:43</a>
@@ -19941,33 +13189,19 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 也不知道谁成瘾了。你自己本身就是觉得巴哈的天使是罪该万死，十恶不赦，就像天元突破兽人那种万年压迫人类的存在，我说什么也没有用。人皇是千万人民的福音，那些游行示威的都是贱民，坐牢被害死的也是贱民，反正信人皇得永生，后面干死天使恶魔后，巴哈复活也无所谓，还有大杀器，即使有隐患会毁灭世界，或者会瞎眼断手也无所谓，反正就是能赢。
 
 
-
-
-
-
-
 -----
 
 ####  yanbo8502  
 ##### 2537#       发表于 2017-7-8 12:50
 
 
-
-
 这么看国王的目标不只是消灭神魔，制造巨大决战兵器的目的还包括彻底消灭巴哈姆特？一下子就成正面英雄了
-
-
-
-
-
 
 
 -----
 
 ####  古桥一浩  
 ##### 2538#       发表于 2017-7-8 13:04
-
-
 
 
 法瓦罗。。
@@ -19984,16 +13218,10 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 我不会信了。<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 2539#       发表于 2017-7-8 13:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36518142&amp;ptid=1229445" target="_blank">古桥一浩 发表于 2017-7-8 13:04</a>
@@ -20006,32 +13234,19 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 现在才发现？我看完第一集就发现了
 
 
-
-
-
-
-
 -----
 
 ####  cat1230  
 ##### 2540#       发表于 2017-7-8 13:21
 
 
-
-
 悟空边龙真帅，妮娜变的龙是这款造型就好了
-
-
-
-
-
 
 
 -----
 
 ####  古桥一浩  
 ##### 2541#       发表于 2017-7-8 13:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36518206&amp;ptid=1229445" target="_blank">amulelernen 发表于 2017-7-8 13:13</a>
@@ -20042,16 +13257,10 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 真香.jpg
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2542#       发表于 2017-7-8 13:32
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">旧op本来就没有法瓦罗何来欺诈一说
@@ -20060,16 +13269,10 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  Byarlant  
 ##### 2543#       发表于 2017-7-8 13:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36518035&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-8 12:50</a>
@@ -20087,16 +13290,10 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 另外，对巴哈有点了解的人都该知道，巴哈就是定期复活的。人皇恐怕就是针对这个事情才追求力量的。所以我才说你又要被打脸了。
 
 
-
-
-
-
-
 -----
 
 ####  Byarlant  
 ##### 2544#       发表于 2017-7-8 13:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36518298&amp;ptid=1229445" target="_blank">古桥一浩 发表于 2017-7-8 13:27</a>
@@ -20107,16 +13304,10 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 新OP的欺诈是，这是一部魔法高达片吧....其实高达可以拍一部魔幻题材的。没准永野护还愿意回来画几个机设。
 
 
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 2545#       发表于 2017-7-8 13:40
-
 
 
  本帖最后由 古桥一浩 于 2017-7-8 13:43 编辑 
@@ -20129,14 +13320,8 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 旧宣传海报有啊！还在前排。
 
 
-
-
-
-
 微信截图_20170708134124.png
 (555.52 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -20145,31 +13330,13 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 2017-7-8 13:42 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/08/134235rah0kayhdlb1kw1d.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  古桥一浩  
 ##### 2546#       发表于 2017-7-8 13:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36518345&amp;ptid=1229445" target="_blank">Byarlant 发表于 2017-7-8 13:36</a>
@@ -20182,16 +13349,10 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 真香.jpg
 
 
-
-
-
-
-
 -----
 
 ####  Uruviel  
 ##### 2547#       发表于 2017-7-8 13:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36518259&amp;ptid=1229445" target="_blank">cat1230 发表于 2017-7-8 13:21</a>
@@ -20200,16 +13361,10 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 奶奶长了几千年才这样，妮娜才十几岁，还有得长……不过龙要是都这么长寿，这人龙恋岂不也是注定没有好结果<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2548#       发表于 2017-7-8 13:45
-
 
 
  本帖最后由 nage560 于 2017-7-8 13:58 编辑 
@@ -20224,26 +13379,13 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 3，巴哈是会定期复活，但哪有才过10年就复活的了？每10年复活一次的话神人魔早都死光了。如果是上次封印不完全的话，那第一季死了那么多天使恶魔都封印不完全的话，这季都不用玩了，大家一起GG都行了。很可能是国王的大杀器造成的副作用导致封印无效了。当然也有可能大石静不惜把设定写崩也要棒人皇的风险，把所有高位主神和路西法等高位恶魔合力才封印的巴哈改成封印不完全，然后让人皇一个人搞定，最后大家感恩戴德感谢人皇拯救3界，之前你杀我的那些族人一笔勾销。
 
 
-
-
-
-
-
-
 -----
 
 ####  楽園のエル  
 ##### 2549#       发表于 2017-7-8 13:49
 
 
-
-
 龙傲天皇帝看着的小沙堆不就是GBF里开小巴用的星之砂么。怕不是要开小巴车×
-
-
-
-
-
 
 
 -----
@@ -20252,23 +13394,16 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 ##### 2550#       发表于 2017-7-8 14:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36518356&amp;ptid=1229445" target="_blank">古桥一浩 发表于 2017-7-8 13:40</a>
 
 旧宣传海报有啊！还在前排。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">站在中间的可是妮娜啊，这种逆后宫一般的构图还以为会有法瓦罗第二期的你太甜了
 
 
-
-
-
-
-
 -----
 
 ####  Byarlant  
 ##### 2551#       发表于 2017-7-8 14:01
-
 
 
  本帖最后由 Byarlant 于 2017-7-8 14:03 编辑 
@@ -20278,26 +13413,15 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 实际上，这一季度和人皇比，天使恶魔都弱爆了。人皇之前轰天使的武器对巴哈也是同样有效相当效果的（没准就是2000年前封掉巴哈的主力武器之一），这些是他的准备之一。虽然最终解决问题会看主角一行，不过人皇的时髦度还要刷下去，而天使势力什么的已经崩盘退市了（剩下的人将作为贞德的跟班NPC）。这季度最终解决Boss，人皇也必然是参与的主力NPC，所以没什么恶魔天使联合的事情了，那么多年都不成长只会作威作福的势力，退市实属活该，而且天使是什么都是把主力武器相关的技术封存起来，自己不用也不准人类用，最后自己被这武器干掉，如果巴哈近期要复活，更证明人皇的激进措施是有道理的。动画里面有个彼细节就是人皇对自己的部队和武力“对龙战”方面的能力很好奇，半推半就放任尼娜觉醒有这方面因素，所以很可能人皇的各项行动都是在围绕跟巴哈之类的东西有关的事情上。
 
 
-
-
-
-
-
 -----
 
 ####  beer  
 ##### 2552#       发表于 2017-7-8 14:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36518403&amp;ptid=1229445" target="_blank">楽園のエル 发表于 2017-7-8 13:49</a>
 龙傲天皇帝看着的小沙堆不就是GBF里开小巴用的星之砂么。怕不是要开小巴车× ...</blockquote>
 开车什么情况，巴哈能骑？
-
-
-
-
-
 
 
 -----
@@ -20306,14 +13430,7 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 ##### 2553#       发表于 2017-7-8 14:06
 
 
-
-
 狗妹按说也是恶魔，居然完全没有身为奴隶的状况
-
-
-
-
-
 
 
 -----
@@ -20322,23 +13439,16 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 ##### 2554#       发表于 2017-7-8 14:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36518480&amp;ptid=1229445" target="_blank">beer 发表于 2017-7-8 14:04</a>
 
 开车什么情况，巴哈能骑？</blockquote>
 就是开巴哈讨伐本的意思。
 
 
-
-
-
-
-
 -----
 
 ####  浅野  
 ##### 2555#       发表于 2017-7-8 14:09
-
 
 
  本帖最后由 浅野 于 2017-7-8 14:11 编辑 
@@ -20350,16 +13460,10 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 阿米拉贞德路，前排都凑好了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2556#       发表于 2017-7-8 14:14
-
 
 
  本帖最后由 nage560 于 2017-7-8 14:17 编辑 
@@ -20369,17 +13473,10 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 结果我之前问你的，关于国王拿到大杀器是对付巴哈而不是屠族的问题你又选择性无视了。好，就拿你转移话题的问题回答。1， 天使恶魔弱，是因为氪石的原因。2，天使恶魔“作威作福”这么多年也不成长，那是因为第一季死得七七八八了，你选择性无视我就给你提一下。3，天使把主力武器藏起来，自己不用也不给人类用，这问题就更是搞笑，13集都说过原因，你也能问出这蠢问题。加百利说的很清楚，大杀器的技术是古神制造的，人神魔都搞不懂，谁也无法拼合起来使用，国王为什么掌握这技术后面肯定要交代。然后这大杀器对天使有克制作用当然不会交给人类，最后最重要的是这大杀器对世界会带来毁灭性灾难。
 
 
-
-
-
-
-
-
 -----
 
 ####  Byarlant  
 ##### 2557#       发表于 2017-7-8 14:17
-
 
 
  本帖最后由 Byarlant 于 2017-7-8 14:18 编辑 
@@ -20395,16 +13492,10 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 你这是继续洗白天使无脑黑。不管再怎么洗，天使表现难看，输的难看，已经退市了。
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2558#       发表于 2017-7-8 14:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36518548&amp;ptid=1229445" target="_blank">Byarlant 发表于 2017-7-8 14:17</a>
@@ -20416,16 +13507,10 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 越和你说下去，越觉得你带的有色眼镜的色彩越来越鲜艳。编剧都通过加百利的嘴说出大杀器的隐患了，你去质疑编剧去。反正在你眼中国王做的一切都是好都该名颂千古，天使恶魔就该洗净脖子等着给国王屠个净，如果反抗的话呼吸都是罪。
 
 
-
-
-
-
-
 -----
 
 ####  Byarlant  
 ##### 2559#       发表于 2017-7-8 14:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36518566&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-8 14:21</a>
@@ -20434,16 +13519,10 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 天使的隐患是针对他们自己的。而且，那个炮台似乎是一次性的，恐怕暂时用不起来了。所以国王开始焦虑那边的问题。国王是不是该名垂千古不知道。不过剧中的这波天使恶魔该给人类屠个干净是完全没错的，这里面没几个好东西，就算有....可以丢到皇城夜总会去....。
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2560#       发表于 2017-7-8 14:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36518586&amp;ptid=1229445" target="_blank">Byarlant 发表于 2017-7-8 14:25</a>
@@ -20452,17 +13531,10 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 有好好看原话？你脑补的只针对天使它们自己的吧？对的，上一季这些天使恶魔就该死光，然后巴哈一发火球把人类全干死才对。
 
 
-
-
-
-
-
 -----
 
 ####  ardito  
 ##### 2561#       发表于 2017-7-8 14:32
-
-
 
 
 港道理啊，之前说恶魔就算了，神族之前可没跟人类交恶啊，这季先手偷摸到别人神殿杀人抢东西都变成是天使该死了？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">了不起了不起
@@ -20471,16 +13543,10 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">不过看这新oped感觉皇帝还真要巨稳无比了
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2562#       发表于 2017-7-8 14:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36518369&amp;ptid=1229445" target="_blank">Uruviel 发表于 2017-7-8 13:41</a>
@@ -20489,16 +13555,10 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 看结尾那段话，皇帝搞不好都是烧命在玩，马上就不行了
 
 
-
-
-
-
-
 -----
 
 ####  ardito  
 ##### 2563#       发表于 2017-7-8 14:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36518548&amp;ptid=1229445" target="_blank">Byarlant 发表于 2017-7-8 14:17</a>
@@ -20510,25 +13570,13 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 除了这季打王都这一次天使飞碟还在哪里屠城了你给我数数？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2564#       发表于 2017-7-8 15:00
 
 
-
-
 少女情怀业不错。ED很美。<img src="https://static.saraba1st.com/image/smiley/carton2017/090.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20537,14 +13585,7 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 ##### 2565#       发表于 2017-7-8 15:01
 
 
-
-
 贞德真好啊，哭的我心都跟着碎了，贞德这么好能不能少虐她啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20553,16 +13594,10 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 ##### 2566#       发表于 2017-7-8 15:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36517527&amp;ptid=1229445" target="_blank">Byarlant 发表于 2017-7-8 11:42</a>
 
 你真是够了，从头到尾都是为黑而黑，还没说清那是什么你就急着黑，怎么不是天使入侵导致战局恶化？天使对 ...</blockquote>
 这片在B站各种大屠杀的时候都有一片弹幕叫好的，颇有围观杀头的喜感
-
-
-
-
-
 
 
 -----
@@ -20571,23 +13606,16 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 ##### 2567#       发表于 2017-7-8 15:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36518624&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-8 14:31</a>
 
 有好好看原话？你脑补的只针对天使它们自己的吧？对的，上一季这些天使恶魔就该死光，然后巴哈一发火球把 ...</blockquote>
 你们这吵的一点意思都没，他站人类视角觉得人屠其他种族没错天使屠人类就得黑，你又是人皇有点风吹草动就先盖口锅给人皇，早点放空大脑用心舔角色不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 2568#       发表于 2017-7-8 15:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36518460&amp;ptid=1229445" target="_blank">ulir 发表于 2017-7-8 14:00</a>
@@ -20610,16 +13638,8 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 欺诈也不带这样的。。
 
 
-
-
-
-
-
-
 微信截图_20170708134124.png
 (555.52 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -20628,314 +13648,137 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 2017-7-8 15:28 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/08/152804ucdfcmdkjbjfs7df.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 微信截图_20170708152333.png
 (766.56 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2017-7-8 15:28 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/08/152807epik48eesetac3i2.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 微信截图_20170708152345.png
 (554.28 KB, 下载次数: 1)
 
 
-
-
 下载附件
 
 
 2017-7-8 15:28 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/08/152808db6eeusuwnenjl2s.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 微信截图_20170708152450.png
 (703.6 KB, 下载次数: 1)
 
 
-
-
 下载附件
 
 
 2017-7-8 15:28 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/08/152809x7xq3ozoymrx7xut.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 微信截图_20170708152508.png
 (464.67 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2017-7-8 15:28 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/08/152810ssuzrg7bartvgg6s.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 微信截图_20170708152528.png
 (721 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2017-7-8 15:28 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/08/152812ai1frplcwpzrreqb.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 微信截图_20170708152540.png
 (765.83 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2017-7-8 15:28 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/08/152813zz22llxx3l3zxjoo.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 微信截图_20170708152626.png
 (633.84 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2017-7-8 15:28 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/08/152815tjlwezuddte6e2wj.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 微信截图_20170708152637.png
 (800.52 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2017-7-8 15:28 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/08/152816ud11ctbcxclncxx7.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 微信截图_20170708152647.png
 (730.33 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2017-7-8 15:28 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/08/152818s57khcdddt332dsx.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 微信截图_20170708152700.png
 (684.84 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2017-7-8 15:28 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/08/152819smt22xxprbxvx0rp.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -20944,21 +13787,13 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 ##### 2569#       发表于 2017-7-8 15:33
 
 
-
-
 天使这帮子人吧，这一季里面开始靠着几位巨乳还是有点人气的。然后等到开展后，没有观众期待的中性美人军团，而是一群黑叔叔兄贵，还丫的都昭和的一B，加上大败和兵力全灭，这阵营就崩了。
-
-
-
-
-
 
 
 -----
 
 ####  アキモト  
 ##### 2570#       发表于 2017-7-8 15:45
-
 
 
  本帖最后由 アキモト 于 2017-7-8 15:47 编辑 
@@ -20968,16 +13803,10 @@ OPED都好喜欢，B站封面是路西法，我还以为这集有路西法，结
 ed蹦迪一股今晚赵小姐味儿233
 
 
-
-
-
-
-
 -----
 
 ####  KuonjiClara  
 ##### 2571#       发表于 2017-7-8 16:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36517396&amp;ptid=1229445" target="_blank">Byarlant 发表于 2017-7-8 11:29</a>
@@ -20986,27 +13815,15 @@ ed蹦迪一股今晚赵小姐味儿233
 没看过猎人...
 
 
-
-
-
-
-
 -----
 
 ####  zmw_831110  
 ##### 2572#       发表于 2017-7-8 16:59
 
 
-
-
 过渡回都做的这么好看。
 
 —— 来自 LENOVO Lenovo X3c50, Android 6.0.1上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
-
-
-
-
-
 
 
 -----
@@ -21015,13 +13832,7 @@ ed蹦迪一股今晚赵小姐味儿233
 ##### 2573#       发表于 2017-7-8 17:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这季贞德主角感觉
-
-
-
-
-
 
 
 -----
@@ -21030,14 +13841,7 @@ ed蹦迪一股今晚赵小姐味儿233
 ##### 2574#       发表于 2017-7-8 17:37
 
 
-
-
 觉得难看就放过自己吧，什么人皇去死，什么天使去死啊，不都是被剧情牵着鼻子走，这个番是完整构成后两个男制片请大石静来润色的，不知道大石静是谁的日本雅虎搜一下不难吧，什么喷逆后宫，除了人皇，剩下几个男的，哪个对妮娜有恋心？凯撒追着贞德跑，身边有个丽塔。爆炸头和阿米拉。阿萨谢尔想借助妮娜的力量，控制她帮他复仇。也就人皇对妮娜隐约有箭头这他妈叫逆后宫？知道逆后宫什么意思吗？不知道的话，知道后宫片什么意思吗？学个新名词到处卖弄，跟外野动不动就智商税一个德行，怕不是傻的？逮住大石静喷的看过大石静几部剧？她最称道的市井百态人物刻画，去年卖房剧看过吗？喷她专写逆后宫？不要二次元脑好吗？她专写日剧就是专写逆恋爱剧？大周末别黑来黑去了。还不是信息不对称被俩制片牵着鼻子走。
-
-
-
-
-
 
 
 -----
@@ -21046,14 +13850,7 @@ ed蹦迪一股今晚赵小姐味儿233
 ##### 2575#       发表于 2017-7-8 17:45
 
 
-
-
 ED1里那个棕色的毛球我还以为是法瓦罗剃下来的“假发”。结果竟然是真有这么一个生物。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21062,14 +13859,7 @@ ED1里那个棕色的毛球我还以为是法瓦罗剃下来的“假发”。�
 ##### 2576#       发表于 2017-7-8 18:02
 
 
-
-
 不不，贞德没再剪发，只是扎了起来吧
-
-
-
-
-
 
 
 -----
@@ -21078,16 +13868,10 @@ ED1里那个棕色的毛球我还以为是法瓦罗剃下来的“假发”。�
 ##### 2577#       发表于 2017-7-8 18:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36518403&amp;ptid=1229445" target="_blank">楽園のエル 发表于 2017-7-8 00:49</a>
 
 龙傲天皇帝看着的小沙堆不就是GBF里开小巴用的星之砂么。怕不是要开小巴车× ...</blockquote>
 这么说的话，一季里法瓦罗拿了那根小巴角开了大巴车……这还真说得通诶
-
-
-
-
-
 
 
 -----
@@ -21096,14 +13880,7 @@ ED1里那个棕色的毛球我还以为是法瓦罗剃下来的“假发”。�
 ##### 2578#       发表于 2017-7-8 18:07
 
 
-
-
 新OPED国王稳如狗，这还能洗白，恐怕结局不是玛丽苏到喂屎
-
-
-
-
-
 
 
 -----
@@ -21112,21 +13889,13 @@ ED1里那个棕色的毛球我还以为是法瓦罗剃下来的“假发”。�
 ##### 2579#       发表于 2017-7-8 18:25
 
 
-
-
 喷玛丽苏的够了，说的一期就很好那样。本人不黑卡米拉，但一期女主设定成心智5岁思想单纯颜值爆表巨乳美声，一出场立马贴过来给爆炸头送吻，这配置就不是给宅男代入脑补yy了？现在二期从男主本位换成女主本位的主角，就是玛丽苏？？？讲道理女主就算是看到帅哥就不行的体质，她对国王也没到为了男人就不管朋友抛弃底线的地步吧？
-
-
-
-
-
 
 
 -----
 
 ####  ulir  
 ##### 2580#       发表于 2017-7-8 18:46
-
 
 
 <blockquote>引用第2589楼古桥一浩于2017-07-07 21:31发表的  :
@@ -21138,16 +13907,10 @@ ED1里那个棕色的毛球我还以为是法瓦罗剃下来的“假发”。�
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  哥特式lolita  
 ##### 2581#       发表于 2017-7-8 18:51
-
 
 
 <blockquote>sowhatah 发表于 2017-7-8 18:25
@@ -21160,16 +13923,10 @@ ED1里那个棕色的毛球我还以为是法瓦罗剃下来的“假发”。�
 总裁文不都是别人说啥做啥总裁毫无兴趣，女主做了同样的事立马吸引总裁目光。。。目前我的观感就是这样了
 
 
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 2582#       发表于 2017-7-8 18:52
-
 
 
 <blockquote>引用第2601楼ulir于2017-07-08 18:46发表的  :
@@ -21182,16 +13939,10 @@ ED1里那个棕色的毛球我还以为是法瓦罗剃下来的“假发”。�
 ----发送自 [asus ASUS_Z00ADA,Android 5.0](http://stage1.5j4m.com/?1.22)
 
 
-
-
-
-
-
 -----
 
 ####  notromeo  
 ##### 2583#       发表于 2017-7-8 18:52
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">看了op，担心丽塔
@@ -21199,16 +13950,10 @@ ED1里那个棕色的毛球我还以为是法瓦罗剃下来的“假发”。�
 国王男主无疑了，一代看来只能陪衬了
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2584#       发表于 2017-7-8 19:03
-
 
 
 <blockquote>引用第2603楼古桥一浩于2017-07-08 00:52发表的  :
@@ -21220,16 +13965,10 @@ ED1里那个棕色的毛球我还以为是法瓦罗剃下来的“假发”。�
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  lillianjr  
 ##### 2585#       发表于 2017-7-8 19:06
-
 
 
 <blockquote>哥特式lolita 发表于 2017-7-8 18:51
@@ -21237,16 +13976,10 @@ ED1里那个棕色的毛球我还以为是法瓦罗剃下来的“假发”。�
 毫无理由的原因就因为我们和制作组的信息不对称。目前来看，掰手腕居然被甩出去算是引起注意。街上偶遇解围看她表现得前后矛盾算是加深了印象。既然这片子是完整拍好再放送，俩制片构想故事目前只给我们透露了这么多，国王的赏金猎人手镯和几次独自去看的石碑都是伏笔。我们也不晓得他过去有没有跟可以变成龙的人接触过。
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2586#       发表于 2017-7-8 19:11
-
 
 
 <blockquote>引用第2602楼哥特式lolita于2017-07-08 00:51发表的  :
@@ -21258,25 +13991,13 @@ ED1里那个棕色的毛球我还以为是法瓦罗剃下来的“假发”。�
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  qwxbtgb  
 ##### 2587#       发表于 2017-7-8 19:12
 
 
-
-
 国王抢黑科技是要打巴哈的样子，那墓该不会是他亲人的吧，死于十年前巴哈火球。
-
-
-
-
-
 
 
 -----
@@ -21285,13 +14006,7 @@ ED1里那个棕色的毛球我还以为是法瓦罗剃下来的“假发”。�
 ##### 2588#       发表于 2017-7-8 19:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我还没看过总裁文里总裁特地把女主角丢监狱的
-
-
-
-
-
 
 
 -----
@@ -21300,22 +14015,15 @@ ED1里那个棕色的毛球我还以为是法瓦罗剃下来的“假发”。�
 ##### 2589#       发表于 2017-7-8 19:21
 
 
-
  本帖最后由 c88711611 于 2017-7-8 19:23 编辑 
 
 某个玻璃心萌豚自从魔族小姐姐死了之后就各种脑补黑国王，真影响观感，泥潭什么时候出黑名单？哦发现了，世界清净了
-
-
-
-
-
 
 
 -----
 
 ####  哥特式lolita  
 ##### 2590#       发表于 2017-7-8 19:24
-
 
 
 <blockquote>lillianjr 发表于 2017-7-8 19:06
@@ -21329,16 +14037,10 @@ ED1里那个棕色的毛球我还以为是法瓦罗剃下来的“假发”。�
 拜托国王你也是见过世面的吧。。。
 
 
-
-
-
-
-
 -----
 
 ####  c88711611  
 ##### 2591#       发表于 2017-7-8 19:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36520376&amp;ptid=1229445" target="_blank">欧阳明 发表于 2017-7-8 19:20</a>
@@ -21347,16 +14049,10 @@ ED1里那个棕色的毛球我还以为是法瓦罗剃下来的“假发”。�
 总裁文虐女主角的不要太多，何况妮娜这个逗比关监狱也没啥虐不虐的吧
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 2592#       发表于 2017-7-8 19:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36515628&amp;ptid=1229445" target="_blank">浅野 发表于 2017-7-8 01:47</a>
@@ -21365,17 +14061,10 @@ ED1里那个棕色的毛球我还以为是法瓦罗剃下来的“假发”。�
 这不是恰恰说明出场机会会增多吗
 
 
-
-
-
-
-
 -----
 
 ####  notromeo  
 ##### 2593#       发表于 2017-7-8 19:30
-
-
 
 
 本集最大看点觉得就是op和ed了，正剧又在过渡。。。
@@ -21383,16 +14072,10 @@ ED1里那个棕色的毛球我还以为是法瓦罗剃下来的“假发”。�
 op一股高达大战外星人的感觉，boss会是谁呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lillianjr  
 ##### 2594#       发表于 2017-7-8 19:46
-
 
 
 <blockquote>哥特式lolita 发表于 2017-7-8 19:24
@@ -21402,17 +14085,10 @@ op一股高达大战外星人的感觉，boss会是谁呢<img src="https://stati
 是啊。说实在的，设定都是领主制的大统领了，要他平易近人，喜怒形于色也不符合常理吧。而且总裁不就是president？我想到最近热播的军师联盟，人妻曹教训儿子说，成了人君就不能再把死蚂蚁当朋友推心置腹了。要明白孤家寡人是什么意思。其实啊，不管玛丽苏杰克苏，游戏也好，动画也罢，这些载体里大部分故事不都是各种梗和套路，要不怎么分出那么多类型来，也就操作时看有趣不有趣吧。
 
 
-
-
-
-
-
 -----
 
 ####  woshenc  
 ##### 2595#       发表于 2017-7-8 19:47
-
-
 
 
 这集的感想就是贞德画的真美
@@ -21420,16 +14096,10 @@ op一股高达大战外星人的感觉，boss会是谁呢<img src="https://stati
 假设你是凯撒你肯定也迷贞德而忽视丽塔的，萝莉僵尸输的不冤
 
 
-
-
-
-
-
 -----
 
 ####  哥特式lolita  
 ##### 2596#       发表于 2017-7-8 19:58
-
 
 
 <blockquote>lillianjr 发表于 2017-7-8 19:46
@@ -21439,16 +14109,10 @@ op一股高达大战外星人的感觉，boss会是谁呢<img src="https://stati
 你觉得孤家寡人的曹操会有迷恋路边健气烤翅女还the one么。。。顶多扔到后宫做洗脚婢。。。
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2597#       发表于 2017-7-8 20:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36520399&amp;ptid=1229445" target="_blank">哥特式lolita 发表于 2017-7-8 19:24</a>
@@ -21459,25 +14123,13 @@ op一股高达大战外星人的感觉，boss会是谁呢<img src="https://stati
 国王把妮娜关监狱无期徒刑，逃狱时那些狱卒也是下狠手要杀她的，明显国王没有和手下说要特别关照妮娜，这里国王是把妮娜当初重犯看待的。但是妮娜在狱中逃狱都跑去撩了妮娜，真的摸不透这霸道总裁的脑回路（或者摸不透大石静的脑回路）。
 
 
-
-
-
-
-
 -----
 
 ####  废基  
 ##### 2598#       发表于 2017-7-8 20:15
 
 
-
-
 加百利虽然是蠢了点，但是目前天使们还没做过坏事，怎么就该死。也就加百利应该被人类拉去窑子而已。
-
-
-
-
-
 
 
 -----
@@ -21486,15 +14138,9 @@ op一股高达大战外星人的感觉，boss会是谁呢<img src="https://stati
 ##### 2599#       发表于 2017-7-8 20:28
 
 
-
 <blockquote>nage560 发表于 2017-7-8 20:00
 国王把妮娜关监狱无期徒刑，逃狱时那些狱卒也是下狠手要杀她的，明显国王没有和手下说要特别关照妮娜，这 ...</blockquote>
 是你拿衣服，不懂总裁套路，总裁不端着点怎么叫霸道总裁，怎么和以后得温柔掉泪产生反差萌
-
-
-
-
-
 
 
 -----
@@ -21503,16 +14149,10 @@ op一股高达大战外星人的感觉，boss会是谁呢<img src="https://stati
 ##### 2600#       发表于 2017-7-8 20:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36520761&amp;ptid=1229445" target="_blank">废基 发表于 2017-7-8 20:15</a>
 
 加百利虽然是蠢了点，但是目前天使们还没做过坏事，怎么就该死。也就加百利应该被人类拉去窑子而已。 ...</blockquote>
 别拿上帝视角看加百利  要不是国王开挂她的策略明明就很成功
-
-
-
-
-
 
 
 -----
@@ -21521,14 +14161,7 @@ op一股高达大战外星人的感觉，boss会是谁呢<img src="https://stati
 ##### 2601#       发表于 2017-7-8 20:34
 
 
-
-
 楼上某位根本在这部动画前根本不知道大石静是谁的（我看到你前面的发言了）大叔，别老the one她了好吗？看到是个女编剧就上头脑补都是她的错。明明作品整个剧情都两个男制片定下了，定调就是恋爱与毁灭，又是大女主戏，他们才找的日剧女编剧来完善，怎么他妈算是她的锅了？
-
-
-
-
-
 
 
 -----
@@ -21537,21 +14170,13 @@ op一股高达大战外星人的感觉，boss会是谁呢<img src="https://stati
 ##### 2602#       发表于 2017-7-8 20:35
 
 
-
-
 四斋蒸鹅心……
-
-
-
-
-
 
 
 -----
 
 ####  lillianjr  
 ##### 2603#       发表于 2017-7-8 20:43
-
 
 
 <blockquote>哥特式lolita 发表于 2017-7-8 19:58
@@ -21561,16 +14186,10 @@ op一股高达大战外星人的感觉，boss会是谁呢<img src="https://stati
 所以神作少嘛。动画里人物环境不都是理想化罗曼蒂克了，真完全照搬常理，皇帝别说18岁，就15，16时早就立后立妃了吧。当然电视剧也是，军师里面出了伏皇后我就没看到曹操身边出现第二个女人，也许我看漏了233
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2604#       发表于 2017-7-8 20:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36520849&amp;ptid=1229445" target="_blank">临界点 发表于 2017-7-8 20:28</a>
@@ -21588,32 +14207,19 @@ op一股高达大战外星人的感觉，boss会是谁呢<img src="https://stati
 结果皇帝的外挂最牢靠，毕竟主角光环<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  qwxbtgb  
 ##### 2605#       发表于 2017-7-8 20:59
 
 
-
-
 为啥老扯凯撒贞德，凯撒明显是认为贞德是鸡翅团唯一的团长，顺便骑士大叔真是稳的不行。
-
-
-
-
-
 
 
 -----
 
 ####  Chia  
 ##### 2606#       发表于 2017-7-8 21:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36521088&amp;ptid=1229445" target="_blank">qwxbtgb 发表于 2017-7-8 20:59</a>
@@ -21624,25 +14230,13 @@ op一股高达大战外星人的感觉，boss会是谁呢<img src="https://stati
 不知会有什么戏剧性的东西出现<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  云梦泽岸  
 ##### 2607#       发表于 2017-7-8 21:07
 
 
-
-
 ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是掩盖了正剧里的狼狈。
-
-
-
-
-
 
 
 -----
@@ -21651,16 +14245,9 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 ##### 2608#       发表于 2017-7-8 21:08
 
 
-
-
 怜爱一波大石静，监督制作人包括她自己的采访里都非常明确地说过剧情都是由那两位男性定下，她主要负责台词方面，采访的原文和翻译这楼里面都贴过，有些人永远一副我不看我不看甚至都懒得搜索一下听到个女性编剧的身份就开始高潮，所有制作人员只知道一个大石静，拜托对剧情和角色不满也喷对正主好吗？
 
 另外，第一季女主第一集就主动献吻更不用提后面有这位美女只有五岁智商等设定，我也觉得套路到不行，倒是没几个人到处高喊杰克苏的啊。
-
-
-
-
-
 
 
 -----
@@ -21669,15 +14256,9 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 ##### 2609#       发表于 2017-7-8 21:08
 
 
-
  本帖最后由 水無燈里 于 2017-7-8 21:13 编辑 
 
 等等...那是路西法...當我沒說
-
-
-
-
-
 
 
 -----
@@ -21686,16 +14267,10 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 ##### 2610#       发表于 2017-7-8 21:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36520847&amp;ptid=1229445" target="_blank">哥特式lolita 发表于 2017-7-8 20:28</a>
 
 是你拿衣服，不懂总裁套路，总裁不端着点怎么叫霸道总裁，怎么和以后得温柔掉泪产生反差萌 ...</blockquote>
 的确，想了想总裁文是这个套路<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，但我希望后面少点这种尴尬桥段。
-
-
-
-
-
 
 
 -----
@@ -21704,23 +14279,16 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 ##### 2611#       发表于 2017-7-8 21:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36517798&amp;ptid=1229445" target="_blank">Byarlant 发表于 2017-7-8 12:15</a>
 
 那翅膀母猪都沦落到那德行了，还用黑吗？要是人族可以上天，这厮现在估计也在皇城夜总会当技师了。天使族 ...</blockquote>
 你肯定没认真看，拆的可不是一座天使庙啊，连索菲亚这种老天使都被修仙骑士团追杀。
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 2612#       发表于 2017-7-8 21:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36521016&amp;ptid=1229445" target="_blank">Chia 发表于 2017-7-8 20:49</a>
@@ -21733,16 +14301,10 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 哪里一样了  国王的兵器是古文明的  威力根本不是其他人能比的   虽然能自己控制 但副作用也是最大的
 
 
-
-
-
-
-
 -----
 
 ####  83913536  
 ##### 2613#       发表于 2017-7-8 21:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36521016&amp;ptid=1229445" target="_blank">Chia 发表于 2017-7-8 20:49</a>
@@ -21755,16 +14317,10 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 把希望寄托在人身上和寄托在兵器上是不一样的，好歹兵器是自己控制的吧
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2614#       发表于 2017-7-8 21:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36521358&amp;ptid=1229445" target="_blank">临界点 发表于 2017-7-8 21:30</a>
@@ -21778,16 +14334,10 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 但是他们实际上都是莽了一波，结果上确实是皇帝高一招
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2615#       发表于 2017-7-8 21:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36521496&amp;ptid=1229445" target="_blank">83913536 发表于 2017-7-8 21:49</a>
@@ -21798,17 +14348,10 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 但是无证驾驶古代兵器……怎么也是情急下的豪赌了
 
 
-
-
-
-
-
 -----
 
 ####  83913536  
 ##### 2616#       发表于 2017-7-8 21:59
-
-
 
 
 古文明是啥，和巴哈游戏剧情有关吗？
@@ -21820,16 +14363,10 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 然后古文明吃货某日突发奇想想吃巴哈姆特...惨遭灭族<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  sowhatah  
 ##### 2617#       发表于 2017-7-8 22:04
-
 
 
  本帖最后由 sowhatah 于 2017-7-8 22:06 编辑 
@@ -21840,16 +14377,10 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 另外，说的好像浪子叔叔捡个心智是萝莉肉体是完美女性的桥段不是套路一样，我是没看出来比总裁文优越到哪里了233
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2618#       发表于 2017-7-8 22:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36521568&amp;ptid=1229445" target="_blank">83913536 发表于 2017-7-8 21:59</a>
@@ -21871,16 +14402,10 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 所以这规格外兵器，后面随便口胡一个就能说的通<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  浅野  
 ##### 2619#       发表于 2017-7-8 22:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36520409&amp;ptid=1229445" target="_blank">临界点 发表于 2017-7-8 19:25</a>
@@ -21889,16 +14414,10 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 话是这么说，<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">但如果还是游戏设定的话，翅膀是路的力量的象征，在意是把翅膀收起来了，还是被拆了。cy总是和他的羽毛过不去。
 
 
-
-
-
-
-
 -----
 
 ####  哥特式lolita  
 ##### 2620#       发表于 2017-7-8 22:19
-
 
 
 <blockquote>sowhatah 发表于 2017-7-8 22:04
@@ -21912,16 +14431,10 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 另外我要说我觉得吧法瓦罗官配是凯撒，从一期开始一直就没放弃服务女观众
 
 
-
-
-
-
-
 -----
 
 ####  Uruviel  
 ##### 2621#       发表于 2017-7-8 22:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36521718&amp;ptid=1229445" target="_blank">哥特式lolita 发表于 2017-7-8 22:19</a>
@@ -21930,26 +14443,15 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 我看这只是各人观感不同，二期从头到尾看得很开心，大概是因为我手握大量皇帝股<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  qwxbtgb  
 ##### 2622#       发表于 2017-7-8 22:28
 
 
-
 <blockquote>浅野 发表于 2017-7-8 22:13
 话是这么说，但如果还是游戏设定的话，翅膀是路的力量的象征，在意是把翅膀收起来了，还是被拆了 ...</blockquote>
 明明是他的翅膀和作画过不去。
-
-
-
-
-
 
 
 -----
@@ -21958,15 +14460,9 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 ##### 2623#       发表于 2017-7-8 22:34
 
 
-
 <blockquote>哥特式lolita 发表于 2017-7-8 22:19
 套路大家都有，就看是否写的好，一期感情线随着剧情铺到最后并不突兀，而这里总裁刻意撩妹的桥段实在太尬 ...</blockquote>
 法瓦罗官配是凯撒，哈哈哈哈哈哈哈哈哈哈哈哈，我挺想知道一期是服务了哪部分观看的女观众，要知道别人也是挑的好吧，且不说人设之类，第一集光美女献吻的剧情就可以让吃你所谓的“官配”的女观众跑光了好吗？
-
-
-
-
-
 
 
 -----
@@ -21975,23 +14471,16 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 ##### 2624#       发表于 2017-7-8 22:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36520302&amp;ptid=1229445" target="_blank">ulir 发表于 2017-7-8 19:11</a>
 
 要说的话，先拉到国王仇恨的其实是鸭子的嘲讽…国王拿小辣椒那话也能大致推测出他出城都是偷偷摸摸的，妮 ...</blockquote>
 国王的武力值在人类方来说应该算数一数二，大概只有凯撒能一战，然后凯撒vs貞德是个什么情况你也看到了…这世界观设定就是人类女性天生力量不及男性，所以扳手腕能把国王扳飞的女性印象不深刻也挺难的……当然一出来就断定这是总裁套路的人是看不见的啦XD
 
 
-
-
-
-
-
 -----
 
 ####  哥特式lolita  
 ##### 2625#       发表于 2017-7-8 22:55
-
 
 
 <blockquote>nicheng 发表于 2017-7-8 22:34
@@ -22001,16 +14490,10 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 另外你没看到最后策马奔腾向远方的的是谁俩嘛
 
 
-
-
-
-
-
 -----
 
 ####  须原秋纪  
 ##### 2626#       发表于 2017-7-8 22:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36521718&amp;ptid=1229445" target="_blank">哥特式lolita 发表于 2017-7-8 22:19</a>
@@ -22022,16 +14505,10 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 好不好看这种主观看法没什么好说的了，尴不尴尬这个问题我只是还是希望有更多人能理解人王和妮娜这对，确实不是霸总模式也不是玛丽苏。
 
 
-
-
-
-
-
 -----
 
 ####  楽園のエル  
 ##### 2627#       发表于 2017-7-8 22:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36521662&amp;ptid=1229445" target="_blank">浅野 发表于 2017-7-8 22:13</a>
@@ -22043,16 +14520,10 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 顺便开播前曾有人跟我讲这季动画会说到路路堕天的缘由不知道是不是真的……【那时候甚至宣传片里都没路出场啊？？？不知道他哪来的消息
 
 
-
-
-
-
-
 -----
 
 ####  sowhatah  
 ##### 2628#       发表于 2017-7-8 23:00
-
 
 
  本帖最后由 sowhatah 于 2017-7-8 23:02 编辑 
@@ -22064,16 +14535,10 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 讲真我一期第一集对卡米拉很期待的，然后告诉我心智只有5岁……唉
 
 
-
-
-
-
-
 -----
 
 ####  nicheng  
 ##### 2629#       发表于 2017-7-8 23:22
-
 
 
 <blockquote>哥特式lolita 发表于 2017-7-8 22:55
@@ -22087,17 +14552,10 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 这部不论一期二期都是明显的不能再明显的bg剧情官配存在，这都能成服务吃法瓦罗凯撒的女观众，你是不是没看过服务这部分女观众的剧啊？
 
 
-
-
-
-
-
 -----
 
 ####  bandage_n2_ki  
 ##### 2630#       发表于 2017-7-8 23:23
-
-
 
 
 毛球球终于出现了…太可爱了！只是毛球会跟着妮娜去天界为啥不陪着妮娜去城里打工啊…
@@ -22107,16 +14565,10 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
     —— from [S1 Nyan](http://126.am/S1Nyan) (Microsoft Lumia 640XL)来自: WindowsPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  哥特式lolita  
 ##### 2631#       发表于 2017-7-8 23:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36522039&amp;ptid=1229445" target="_blank">须原秋纪 发表于 2017-7-8 22:56</a>
@@ -22127,32 +14579,19 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 但是就是写的太尬导致太刻意了，并没有和故事很好的相融，还有妮娜的花痴属性放进霸道总裁路线里会显得这套路更蠢，本来这种套路里女方就弱气
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 2632#       发表于 2017-7-8 23:43
 
 
-
-
 话说国王下巴光光的刮毛的胡子啊
-
-
-
-
-
 
 
 -----
 
 ####  哥特式lolita  
 ##### 2633#       发表于 2017-7-8 23:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36522078&amp;ptid=1229445" target="_blank">sowhatah 发表于 2017-7-8 23:00</a>
@@ -22163,11 +14602,6 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 正是这5岁设定才让她轻易被骗以及以后同行产生感情说的通，要是心智成熟的御姐这么容易被骗还一路产生感情，那才是倒贴的套路
 
 
-
-
-
-
-
 -----
 
 ####  567844  
@@ -22176,12 +14610,10 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 提示: 该帖被管理员或版主屏蔽
 
 
-
 -----
 
 ####  mae.w  
 ##### 2635#       发表于 2017-7-8 23:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36522392&amp;ptid=1229445" target="_blank">567844 发表于 2017-7-8 23:43</a>
@@ -22192,16 +14624,10 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 监督特地在推上说明了这个问题！
 
 
-
-
-
-
-
 -----
 
 ####  哥特式lolita  
 ##### 2636#       发表于 2017-7-8 23:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36522240&amp;ptid=1229445" target="_blank">nicheng 发表于 2017-7-8 23:22</a>
@@ -22216,25 +14642,13 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 弥补人设当然是把一期吓跑的关注拉回来啊
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 2637#       发表于 2017-7-8 23:50
 
 
-
-
 凯撒他们就不能光着上身穿条裤子么,那件连衣裙实在看的我尴尬啊
-
-
-
-
-
 
 
 -----
@@ -22243,23 +14657,16 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 ##### 2638#       发表于 2017-7-8 23:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36521162&amp;ptid=1229445" target="_blank">nicheng 发表于 2017-7-8 21:08</a>
 
 怜爱一波大石静，监督制作人包括她自己的采访里都非常明确地说过剧情都是由那两位男性定下，她主要负责台词 ...</blockquote>
 第一季我还真无看出哪里杰克苏了，真正杰克苏的片男的喷的比女的还多好吧？比如种命，08ms。
 
 
-
-
-
-
-
 -----
 
 ####  nicheng  
 ##### 2639#       发表于 2017-7-8 23:53
-
 
 
 <blockquote>哥特式lolita 发表于 2017-7-8 23:44
@@ -22269,25 +14676,13 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 你吃得下的设定就是合情合理感情自然，你吃不下的就是尴尬刻意，双重标准的一点都不明显呢
 
 
-
-
-
-
-
 -----
 
 ####  KuonjiClara  
 ##### 2640#       发表于 2017-7-8 23:57
 
 
-
-
 怎么初代都杰克苏了,捧2代也不是这么个捧法吧.
-
-
-
-
-
 
 
 -----
@@ -22296,23 +14691,16 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 ##### 2641#       发表于 2017-7-8 23:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36522461&amp;ptid=1229445" target="_blank">nicheng 发表于 2017-7-8 23:53</a>
 
 你吃得下的设定就是合情合理感情自然，你吃不下的就是尴尬刻意，双重标准的一点都不明显呢 ...</blockquote>
 你真的不觉得刚瞎了一只眼还说我一只眼也能看着你，背景一片爆炸各种末日景象，这种不尬嘛。。。难道真的觉得苏嘛。。。。
 
 
-
-
-
-
-
 -----
 
 ####  nicheng  
 ##### 2642#       发表于 2017-7-9 00:00
-
 
 
  本帖最后由 nicheng 于 2017-7-9 00:15 编辑 
@@ -22325,26 +14713,15 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 就现在二期的剧情和人设一点都吸引不到吃法瓦罗凯撒这种的女观众
 
 
-
-
-
-
-
 -----
 
 ####  nicheng  
 ##### 2643#       发表于 2017-7-9 00:04
 
 
-
 <blockquote>哥特式lolita 发表于 2017-7-8 23:59
 你真的不觉得刚瞎了一只眼还说我一只眼也能看着你，背景一片爆炸各种末日景象，这种不尬嘛。。。难道真的 ...</blockquote>
 你自己去微博搜搜看多少人喊苏截图的，有人把这集国王妮娜戏份cut出来，或者直接就去b站评论下看看喽
-
-
-
-
-
 
 
 -----
@@ -22353,23 +14730,16 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 ##### 2644#       发表于 2017-7-9 00:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36522412&amp;ptid=1229445" target="_blank">567844 发表于 2017-7-8 23:46</a>
 
 某个女人都没怎么接触过的国王黑能不能滚出砖楼,让我们静静的舔国王</blockquote>
 我说我的碍着你了？不爽我为什么不是你滚出专楼呢？或者闭嘴专心舔你的国王OK？搞人身攻击显得你很有道德？
 
 
-
-
-
-
-
 -----
 
 ####  nicheng  
 ##### 2645#       发表于 2017-7-9 00:11
-
 
 
  本帖最后由 nicheng 于 2017-7-9 00:18 编辑 
@@ -22380,32 +14750,19 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 记得下次吐槽剧情应该去喷监督佐藤敬一，吐槽角色去喷角色设计恩田尚之，这两位都是自己领过锅的
 
 
-
-
-
-
-
 -----
 
 ####  sta777  
 ##### 2646#       发表于 2017-7-9 00:17
 
 
-
-
 我倒是觉得舔国王的你们可以单建个角色楼去舔啊，动不动就让人滚出专楼是从贴吧继承来的毛病？
-
-
-
-
-
 
 
 -----
 
 ####  浅野  
 ##### 2647#       发表于 2017-7-9 00:23
-
 
 
  本帖最后由 浅野 于 2017-7-9 00:26 编辑 
@@ -22417,16 +14774,10 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 炽天使路人设动画化………<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  哥特式lolita  
 ##### 2648#       发表于 2017-7-9 00:35
-
 
 
  本帖最后由 哥特式lolita 于 2017-7-9 00:38 编辑 
@@ -22441,18 +14792,10 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 我造霸道总裁路线是很有受众的，尤其我朝
 
 
-
-
-
-
-
-
-
 -----
 
 ####  哥特式lolita  
 ##### 2649#       发表于 2017-7-9 00:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36522506&amp;ptid=1229445" target="_blank">nicheng 发表于 2017-7-9 00:00</a>
@@ -22461,16 +14804,10 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 因为巴哈制作在这之前啊
 
 
-
-
-
-
-
 -----
 
 ####  nicheng  
 ##### 2650#       发表于 2017-7-9 00:49
-
 
 
 <blockquote>哥特式lolita 发表于 2017-7-9 00:35
@@ -22484,16 +14821,10 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 你倒是知道叫我不要把我的标准扣给别人啊，你自己呢，现在还不是依旧用着自己的标准扣给别人。
 
 
-
-
-
-
-
 -----
 
 ####  sowhatah  
 ##### 2651#       发表于 2017-7-9 00:56
-
 
 
  本帖最后由 sowhatah 于 2017-7-9 00:59 编辑 
@@ -22508,16 +14839,10 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 这点我不喷一期的编剧，因为我知道篇幅限制的确也挺难发挥的，但这种弱化女主心智才能让这段感情顺理成章的做法还要拿来强行吹真是……
 
 
-
-
-
-
-
 -----
 
 ####  nicheng  
 ##### 2652#       发表于 2017-7-9 00:56
-
 
 
  本帖最后由 nicheng 于 2017-7-9 01:02 编辑 
@@ -22528,32 +14853,20 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 我强烈建议你去了解看过之后再开口
 
 
-
-
-
-
-
 -----
 
 ####  须原秋纪  
 ##### 2653#       发表于 2017-7-9 01:17
 
 
-
  本帖最后由 须原秋纪 于 2017-7-9 07:29 编辑 
 <blockquote>风怒、风怒</blockquote>
-
-
-
-
-
 
 
 -----
 
 ####  须原秋纪  
 ##### 2654#       发表于 2017-7-9 02:21
-
 
 
  本帖最后由 须原秋纪 于 2017-7-9 07:29 编辑 
@@ -22564,13 +14877,7 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 本来进专楼是想找个地方讨论剧情发展、看点官方情报或者别人的脑洞之类，结果每次新一集出来总是小言、霸道总裁、玛丽苏、女编剧巴拉巴拉、感情戏巴拉巴拉、尴尬、撩妹这些评论。刚进楼还想妮娜她爸因为巴哈死的，人王老盯着的那个碑也（疑似）因巴哈死的，虽然十年前因为巴哈而死的人魔神（可能还包括龙）挺多的，但是这两位逝者会不会最后有什么关联（类似于法瓦罗他爸、凯撒他爸、阿酱的事情）。结果看完新的一圈帖子我又控制不住自己跟着上火，我有罪<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
 
-
 新OP里丽塔也流泪了，等着看是谁害的<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22579,13 +14886,7 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 ##### 2655#       发表于 2017-7-9 02:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22594,21 +14895,13 @@ ED这个妮娜版的仙德瑞拉太甜，几位帅哥一脸王牌牛郎像也是
 ##### 2656#       发表于 2017-7-9 03:02
 
 
-
-
 REC专楼在集数过半后讨论逐渐步入正轨了 这里的讨论却还是这德性 忍不住让人吐槽
-
-
-
-
-
 
 
 -----
 
 ####  Byarlant  
 ##### 2657#       发表于 2017-7-9 06:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36521291&amp;ptid=1229445" target="_blank">炎武重黎 发表于 2017-7-8 21:23</a>
@@ -22619,17 +14912,10 @@ REC专楼在集数过半后讨论逐渐步入正轨了 这里的讨论却还是�
 开始说了，拆了几座庙凑启动素材，不过那是她变装潜入王城调查人皇再搞什么然后被追杀。基本看目前的情况，人皇非要凑那上古炮台的启动机关就是冲着快要破封的巴哈姆特之类的，灭魔族也于此有关吧，不过反正魔族散兵总是来袭击，不灭也不安泰。天使阵营基本教义上不会肯把那个拿出来用。而且有那个古代炮台基本就算实现对人族而言的首都绝对防御圈了。不过现在已经因为和天使的战斗废掉了。所以后面如果巴哈真钻出来，还是要一起去灭。
 
 
-
-
-
-
-
 -----
 
 ####  厨厨光波  
 ##### 2658#       发表于 2017-7-9 09:17
-
-
 
 
 喷了，自从一个恶魔女给一拳锤爆以后这专楼已经是一团乱了，到现在我tm对这专楼已经没有期待了
@@ -22645,16 +14931,10 @@ REC专楼在集数过半后讨论逐渐步入正轨了 这里的讨论却还是�
 我支持国王，谈恋爱一点不尬，这片剧情很好
 
 
-
-
-
-
-
 -----
 
 ####  哥特式lolita  
 ##### 2659#       发表于 2017-7-9 10:02
-
 
 
 <blockquote>nicheng 发表于 2017-7-9 00:49
@@ -22664,16 +14944,10 @@ REC专楼在集数过半后讨论逐渐步入正轨了 这里的讨论却还是�
 我只是在说自己的感受，上来扣双标的不是你
 
 
-
-
-
-
-
 -----
 
 ####  红丽  
 ##### 2660#       发表于 2017-7-9 10:02
-
 
 
  本帖最后由 红丽 于 2017-7-9 10:09 编辑 
@@ -22685,16 +14959,10 @@ REC专楼在集数过半后讨论逐渐步入正轨了 这里的讨论却还是�
 顺便我现在唯一比较担心的就是妮娜会不会跟阿米拉一样最后下场不太好……其他倒是没啥不满的orz不要拿妮娜来虐国王啊，这等于虐观众好吗……
 
 
-
-
-
-
-
 -----
 
 ####  哥特式lolita  
 ##### 2661#       发表于 2017-7-9 10:07
-
 
 
 <blockquote>nicheng 发表于 2017-7-9 00:56
@@ -22704,16 +14972,10 @@ REC专楼在集数过半后讨论逐渐步入正轨了 这里的讨论却还是�
 你也了解一下mappa之前一直都是走的这种形式，虽然效果都没后来那个好
 
 
-
-
-
-
-
 -----
 
 ####  哥特式lolita  
 ##### 2662#       发表于 2017-7-9 10:13
-
 
 
 <blockquote>sowhatah 发表于 2017-7-9 00:56
@@ -22725,17 +14987,10 @@ REC专楼在集数过半后讨论逐渐步入正轨了 这里的讨论却还是�
 我觉得不伦御姐还是萝莉行为符合设定合理就好
 
 
-
-
-
-
-
 -----
 
 ####  henry8848  
 ##### 2663#       发表于 2017-7-9 10:48
-
-
 
 
 感觉还是在什么场景干什么样的事的问题
@@ -22745,16 +15000,10 @@ REC专楼在集数过半后讨论逐渐步入正轨了 这里的讨论却还是�
 但是最近几集，越狱失败被擒说你还会和我跳舞，决战之后相互脸红，都是跟当时紧张的氛围不符，个人觉得有不协调的地方
 
 
-
-
-
-
-
 -----
 
 ####  战场公主希维尔  
 ##### 2664#       发表于 2017-7-9 11:02
-
 
 
 <blockquote>Byarlant 发表于 2017-7-8 12:15
@@ -22762,16 +15011,10 @@ REC专楼在集数过半后讨论逐渐步入正轨了 这里的讨论却还是�
 神经病。
 
 
-
-
-
-
-
 -----
 
 ####  新屋  
 ##### 2665#       发表于 2017-7-9 11:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36524583&amp;ptid=1229445" target="_blank">henry8848 发表于 2017-7-9 10:48</a>
@@ -22786,17 +15029,10 @@ REC专楼在集数过半后讨论逐渐步入正轨了 这里的讨论却还是�
 而对待贞德这种政治色彩浓厚的就完全另一副毫不留情的冷面孔。
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 2666#       发表于 2017-7-9 11:46
-
-
 
 
 人王（这名字听着老想到阿拉贡）屠神灭魔看起来牛逼哄哄，但献祭了眼睛的手炮威力感觉就是巴哈流星雨的其中一发，感觉压根就没法打巴哈啊……
@@ -22804,16 +15040,10 @@ REC专楼在集数过半后讨论逐渐步入正轨了 这里的讨论却还是�
 能想得到唯一可能平衡巴哈的办法大概还真只有让妮娜变龙穿圆球，变成巴哈一个体型再来一发龙息。至于这个五分钟BUFF要献祭什么代价，搭上人王的命？最后人王已逝军力衰退，世界重回三族斗争状态。第三季2000年后再把巴哈拉出来车一边（估计可能性不大）
 
 
-
-
-
-
-
 -----
 
 ####  素裸天狐  
 ##### 2667#       发表于 2017-7-9 13:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36523236&amp;ptid=1229445" target="_blank">须原秋纪 发表于 2017-7-9 02:21</a>
@@ -22846,16 +15076,10 @@ OP里人皇势力巨像突击不知道是要跟谁打，现在神魔都没有这
 这集最后又表示艾伯丝要有大事发生，好在意之后的发展
 
 
-
-
-
-
-
 -----
 
 ####  c88711611  
 ##### 2668#       发表于 2017-7-9 13:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36525553&amp;ptid=1229445" target="_blank">素裸天狐 发表于 2017-7-9 13:05</a>
@@ -22866,25 +15090,13 @@ OP里人皇势力巨像突击不知道是要跟谁打，现在神魔都没有这
 自从某恶魔被一拳锤死后这楼就不能看了
 
 
-
-
-
-
-
 -----
 
 ####  KuonjiClara  
 ##### 2669#       发表于 2017-7-9 13:31
 
 
-
-
 这片挺正常的叙事节奏也很稳,这楼怎么就这么狂躁哪...
-
-
-
-
-
 
 
 -----
@@ -22893,15 +15105,9 @@ OP里人皇势力巨像突击不知道是要跟谁打，现在神魔都没有这
 ##### 2670#       发表于 2017-7-9 13:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36525724&amp;ptid=1229445" target="_blank">KuonjiClara 发表于 2017-7-9 13:31</a>
 这片挺正常的叙事节奏也很稳,这楼怎么就这么狂躁哪...</blockquote>
 缺啥补啥
-
-
-
-
-
 
 
 -----
@@ -22910,16 +15116,9 @@ OP里人皇势力巨像突击不知道是要跟谁打，现在神魔都没有这
 ##### 2671#       发表于 2017-7-9 14:21
 
 
-
-
 谈个恋爱泥潭专楼就急得跳脚…可以说是非常符合国情了…
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (Microsoft Lumia 640XL)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
@@ -22928,14 +15127,7 @@ OP里人皇势力巨像突击不知道是要跟谁打，现在神魔都没有这
 ##### 2672#       发表于 2017-7-9 15:31
 
 
-
-
 对啊谈个恋爱怎么了，还有十二集的总裁说：“只有一只眼睛也能看到你”，“无论到世界哪个角落都能找到你”可以看喔，是不是还有些小兴奋<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22944,16 +15136,9 @@ OP里人皇势力巨像突击不知道是要跟谁打，现在神魔都没有这
 ##### 2673#       发表于 2017-7-9 15:36
 
 
-
-
 看新ED这片就打算做妮娜人王好好谈恋爱的
 
 看不顺眼一直跳脚黑的狂躁症患者早点弃番行不行
-
-
-
-
-
 
 
 -----
@@ -22962,14 +15147,7 @@ OP里人皇势力巨像突击不知道是要跟谁打，现在神魔都没有这
 ##### 2674#       发表于 2017-7-9 15:55
 
 
-
-
 你们是怎么看出阿米拉和法瓦罗有恋爱关系的，如果她再次出场身体缩水成萝莉，爆炸头你还能下手吗
-
-
-
-
-
 
 
 -----
@@ -22978,21 +15156,13 @@ OP里人皇势力巨像突击不知道是要跟谁打，现在神魔都没有这
 ##### 2675#       发表于 2017-7-9 16:03
 
 
-
-
 我没有的东西，他怎么可以有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  567844  
 ##### 2676#       发表于 2017-7-9 16:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36525003&amp;ptid=1229445" target="_blank">新屋 发表于 2017-7-9 11:43</a>
@@ -23003,17 +15173,10 @@ OP里人皇势力巨像突击不知道是要跟谁打，现在神魔都没有这
 国王明明是很宽容仁厚了妮娜凯子这两个人都造反了也不过就关起来没砍死,这集被刮胡子大叔划开脸也没什么,国王明明明事理,性宽厚,能力强,杀伐果断,偏偏被某些人黑成那样
 
 
-
-
-
-
-
 -----
 
 ####  独角兽高达  
 ##### 2677#       发表于 2017-7-9 20:52
-
-
 
 
 新OP终于不是《神击的阿萨谢尔》啦。
@@ -23027,16 +15190,10 @@ OP里人皇势力巨像突击不知道是要跟谁打，现在神魔都没有这
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  C男人  
 ##### 2678#       发表于 2017-7-9 20:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36528703&amp;ptid=1229445" target="_blank">独角兽高达 发表于 2017-7-9 20:52</a>
@@ -23057,16 +15214,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 毕竟灰姑娘最后是当了王妃的嘛。
 
 
-
-
-
-
-
 -----
 
 ####  红王  
 ##### 2679#       发表于 2017-7-9 20:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36526647&amp;ptid=1229445" target="_blank">drilleye 发表于 2017-7-9 15:55</a>
@@ -23075,32 +15226,19 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 他俩第一季都接吻了啊！ 还要怀疑恋爱关系吗？ 嘴对嘴嘞！
 
 
-
-
-
-
-
 -----
 
 ####  心灵的乳头  
 ##### 2680#       发表于 2017-7-9 21:34
 
 
-
-
 人皇洗白不可避<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  drilleye  
 ##### 2681#       发表于 2017-7-10 07:58
-
 
 
  本帖最后由 drilleye 于 2017-7-10 08:18 编辑 
@@ -23110,16 +15248,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 除了结尾的这个就没其他铺垫了啊，虽然结尾有点强行不过我也承认他们有暧昧关系。只是本来第一季无论哪对都没什么恋爱剧情，凯撒和莉塔也没第二季那么暧昧，结尾接吻也就迎合下观众口味吧。至于第二季的尼娜和国王的恋爱关系比起迎合观众，串联主役和反派役的功能性更主要吧。毕竟第二季大量在王都的日常故事，如果要分开描写正反双方的话故事就更散了，从这个角度看国王和尼娜谈恋爱挺合理的。
 
 
-
-
-
-
-
 -----
 
 ####  偎  
 ##### 2682#       发表于 2017-7-10 09:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36526647&amp;ptid=1229445" target="_blank">drilleye 发表于 2017-7-9 15:55</a>
@@ -23136,25 +15268,13 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 最后那个吻也不像是爱情
 
 
-
-
-
-
-
 -----
 
 ####  芳清源77  
 ##### 2683#       发表于 2017-7-10 09:51
 
 
-
-
 这集很赞的，有点催泪 尤其是洗澡那里说的话。
-
-
-
-
-
 
 
 -----
@@ -23163,14 +15283,7 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2684#       发表于 2017-7-10 11:15
 
 
-
-
 据说昨晚在影院一举播了1-15集？   下集应该还是铺垫  每个阵营都要有所动作了
-
-
-
-
-
 
 
 -----
@@ -23179,14 +15292,7 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2685#       发表于 2017-7-10 11:20
 
 
-
-
 接下来会不会神魔联合干人类？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23195,23 +15301,16 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2686#       发表于 2017-7-10 11:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36534079&amp;ptid=1229445" target="_blank">文文情报屋 发表于 2017-7-10 11:20</a>
 
 接下来会不会神魔联合干人类？</blockquote>
 不好说 不过最终战肯定还是联合打巴哈  毕竟铺垫这么久了
 
 
-
-
-
-
-
 -----
 
 ####  文文情报屋  
 ##### 2687#       发表于 2017-7-10 20:43
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我觉得吧……洗白大概是这么个套路，以下全是个人猜测：
@@ -23244,33 +15343,20 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 然而大概是封印快完蛋了，国王没时间了
 
 
-
-
-
-
-
 -----
 
 ####  ai-至死の病  
 ##### 2688#       发表于 2017-7-10 21:49
 
 
-
-
 ed怎么一股乙女番的样子<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 等路西法等得到吗，魔族的脸都被阿酱丢光了。
-
-
-
-
-
 
 
 -----
 
 ####  mumubear  
 ##### 2689#       发表于 2017-7-10 22:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36539847&amp;ptid=1229445" target="_blank">ai-至死の病 发表于 2017-7-10 21:49</a>
@@ -23281,16 +15367,10 @@ ed怎么一股乙女番的样子
 你把副标题翻译一下。。。第二季本来就是乙女番啊。。。。
 
 
-
-
-
-
-
 -----
 
 ####  mae.w  
 ##### 2690#       发表于 2017-7-10 23:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36528737&amp;ptid=1229445" target="_blank">C男人 发表于 2017-7-9 20:56</a>
@@ -23309,33 +15389,19 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 全剧终（
 
 
-
-
-
-
-
 -----
 
 ####  hirty  
 ##### 2691#       发表于 2017-7-11 01:11
 
 
-
-
 这两集的狗粮简直塞了一嘴，不过味道还不错，新的OP和ED的质量惊人，手游大厂有钱真好<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  TheOccuria  
 ##### 2692#       发表于 2017-7-11 14:19
-
-
 
 
 前面怎么还有脑补神族反攻消耗掉国王灭巴哈武器的
@@ -23347,32 +15413,19 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 你现在说神族破坏计划这不是打了你国王的帅脸了
 
 
-
-
-
-
-
 -----
 
 ####  tamying  
 ##### 2693#       发表于 2017-7-12 03:45
 
 
-
-
 有些死宅吃相真难看，长得帅有人舔还成黑点了。也不看自己舔老婆的时候什么德行。
-
-
-
-
-
 
 
 -----
 
 ####  TheOccuria  
 ##### 2694#       发表于 2017-7-12 09:26
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">帽子扣的6啊，要不要搜下我的发言哪里说过舔老婆了
@@ -23382,32 +15435,19 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 说到底他所谓的一些计策不就是“皇国兴废只此一战”么，好了好了我知道你的挂刚好牛逼了一下，其余就不要吹了
 
 
-
-
-
-
-
 -----
 
 ####  灵魂收割机  
 ##### 2695#       发表于 2017-7-12 10:40
 
 
-
-
 请问这里是晋江吗？
-
-
-
-
-
 
 
 -----
 
 ####  Charizard  
 ##### 2696#       发表于 2017-7-12 10:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36553002&amp;ptid=1229445" target="_blank">TheOccuria 发表于 2017-7-12 09:26</a>
@@ -23418,25 +15458,13 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 楼里围绕国王战了这么久，我只学到了一点，国王厨扣帽子的功夫绝对是一流的，甘拜下风
 
 
-
-
-
-
-
 -----
 
 ####  柒月WUG  
 ##### 2697#       发表于 2017-7-12 11:25
 
 
-
-
 我是觉得虽然黑国王的人说了一些国王不好的话，但大部分都是基于目前剧情所表现出来的东西说的，也有一定的道理，而黑天使的大部分都是靠想象中的以后的剧情就把天使变成了毁灭世界的罪人把国王变成了拯救世界的救世主，这实在是有点。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23445,17 +15473,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2698#       发表于 2017-7-12 11:33
 
 
-
-
 别拿想象中的剧情这种说法甩锅了，两边都是挂个屁股的名义脑洞大开使劲黑然后地图炮，队友滤镜就省省吧
 
 
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
-
-
-
-
-
 
 
 -----
@@ -23464,16 +15485,9 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2699#       发表于 2017-7-12 11:44
 
 
-
-
 天使不用黑，天使尤其是加百列是傻逼这点动画剧情讲得清清楚楚
 
 我只是说一句国王也是傻逼而已，目前来看他和天使的唯一区别就是他有总裁光环
-
-
-
-
-
 
 
 -----
@@ -23482,24 +15496,15 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2700#       发表于 2017-7-12 17:00
 
 
-
-
 明明是温泉福利回+新OP ED，竟然都没什么人讨论这些……
 
 国王这算塑造成功吗，引起这么多讨论
-
-
-
-
-
 
 
 -----
 
 ####  文文情报屋  
 ##### 2701#       发表于 2017-7-13 14:00
-
-
 
 
 我觉得塑造的挺成功的吧
@@ -23512,32 +15517,19 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 其实我觉得大部分角色塑造的都不错
 
 
-
-
-
-
-
 -----
 
 ####  muderx  
 ##### 2702#       发表于 2017-7-13 14:07
 
 
-
-
 这么棒的妹子、温泉、御姐、萝莉还有没出场的阿米拉，你们居然在为一个男人是黑是白争论不休。
-
-
-
-
-
 
 
 -----
 
 ####  Byarlant  
 ##### 2703#       发表于 2017-7-13 15:13
-
 
 
  本帖最后由 Byarlant 于 2017-7-13 15:16 编辑 
@@ -23555,16 +15547,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 游戏世界观中有超神级巨像兵吧。
 
 
-
-
-
-
-
 -----
 
 ####  文文情报屋  
 ##### 2704#       发表于 2017-7-13 15:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36566704&amp;ptid=1229445" target="_blank">muderx 发表于 2017-7-13 14:07</a>
@@ -23573,16 +15559,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 毕竟是同**友论坛<img src="https://static.saraba1st.com/image/smiley/face2017/198.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  airsfly  
 ##### 2705#       发表于 2017-7-13 17:39
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">  妮娜妹子真是意外地戳到萌点，而且越看越觉得可爱~
@@ -23592,25 +15572,13 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 对比一下隔壁的笨女孩的智障女主，真觉得这才是17岁少女味啊
 
 
-
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2706#       发表于 2017-7-13 17:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">官方说过了，人家是正儿八经的女高中生
-
-
-
-
-
 
 
 -----
@@ -23619,14 +15587,7 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2707#       发表于 2017-7-13 19:56
 
 
-
-
 这片里诸星小妹妹是女主？戏份多吗？
-
-
-
-
-
 
 
 -----
@@ -23635,16 +15596,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2708#       发表于 2017-7-13 20:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36569942&amp;ptid=1229445" target="_blank">hgcg-w 发表于 2017-7-13 19:56</a>
 
 这片里诸星小妹妹是女主？戏份多吗？</blockquote>
 主角当然多啦。
-
-
-
-
-
 
 
 -----
@@ -23653,16 +15608,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2709#       发表于 2017-7-13 21:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36569942&amp;ptid=1229445" target="_blank">hgcg-w 发表于 2017-7-13 19:56</a>
 
 这片里诸星小妹妹是女主？戏份多吗？</blockquote>
 男主角级待遇的多和重要
-
-
-
-
-
 
 
 -----
@@ -23671,13 +15620,7 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2710#       发表于 2017-7-13 21:48
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">那大家觉得诸星小妹妹的声音好听吗
-
-
-
-
-
 
 
 -----
@@ -23686,16 +15629,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2711#       发表于 2017-7-13 22:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36570839&amp;ptid=1229445" target="_blank">hgcg-w 发表于 2017-7-13 21:48</a>
 
 那大家觉得诸星小妹妹的声音好听吗</blockquote>
 最新一话的口音腔可爱得不行<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23704,24 +15641,16 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2712#       发表于 2017-7-13 22:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36529084&amp;ptid=1229445" target="_blank">心灵的乳头 发表于 2017-7-9 21:34</a>
 
 人皇洗白不可避</blockquote>
 是啊，ED已经正面的不得了啦。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2713#       发表于 2017-7-13 23:21
-
-
 
 
 ■#15「City of the Gods, Part 1」あらすじ
@@ -23740,25 +15669,13 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fhiny1fda7j216x0o3e81.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Byarlant  
 ##### 2714#       发表于 2017-7-13 23:28
 
 
-
-
 其实我又看了一遍OP2，产生了这样一个想法，其实这片的设计构架改过一次，本来尼娜是男主，当然其觉醒模式也有所不同，而人皇的原设是一个哈曼风格的女王。
-
-
-
-
-
 
 
 -----
@@ -23767,14 +15684,7 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2715#       发表于 2017-7-13 23:33
 
 
-
-
 阿酱!阿酱你又回来了!
-
-
-
-
-
 
 
 -----
@@ -23783,14 +15693,7 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2716#       发表于 2017-7-13 23:40
 
 
-
-
 巴哈要复活，那阿木拉出场时板上钉钉了吧
-
-
-
-
-
 
 
 -----
@@ -23799,15 +15702,9 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2717#       发表于 2017-7-13 23:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36571663&amp;ptid=1229445" target="_blank">Byarlant 发表于 2017-7-13 23:28</a>
 其实我又看了一遍OP2，产生了这样一个想法，其实这片的设计构架改过一次，本来尼娜是男主，当然其觉醒模式 ...</blockquote>
 我之前也想过国王和尼娜这对性转的话，不就标准的媚宅cp了
-
-
-
-
-
 
 
 -----
@@ -23816,14 +15713,7 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2718#       发表于 2017-7-13 23:46
 
 
-
-
 艾尔这小眼神<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23832,16 +15722,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2719#       发表于 2017-7-13 23:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36571802&amp;ptid=1229445" target="_blank">drilleye 发表于 2017-7-13 23:45</a>
 
 我之前也想过国王和尼娜这对性转的话，不就标准的媚宅cp了</blockquote>
 不过和1的CP设计会有重复感。
-
-
-
-
-
 
 
 -----
@@ -23850,23 +15734,15 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2720#       发表于 2017-7-13 23:54
 
 
-
-
 加百列这笑还行<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
 是找回初心了，还是干脆失了智<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  liy41  
 ##### 2721#       发表于 2017-7-14 00:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36571708&amp;ptid=1229445" target="_blank">KuonjiClara 发表于 2017-7-13 23:33</a>
@@ -23877,25 +15753,13 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 众人：“但是你绿了...”
 
 
-
-
-
-
-
 -----
 
 ####  废基  
 ##### 2722#       发表于 2017-7-14 00:43
 
 
-
-
 加百利要白回來了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23904,14 +15768,7 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2723#       发表于 2017-7-14 01:03
 
 
-
-
 等不及要看下一级，加百利怕不是坏掉了
-
-
-
-
-
 
 
 -----
@@ -23920,16 +15777,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2724#       发表于 2017-7-14 08:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36571663&amp;ptid=1229445" target="_blank">Byarlant 发表于 2017-7-13 23:28</a>
 
 其实我又看了一遍OP2，产生了这样一个想法，其实这片的设计构架改过一次，本来尼娜是男主，当然其觉醒模式 ...</blockquote>
 那不就类似于朱总和哈曼...
-
-
-
-
-
 
 
 -----
@@ -23938,16 +15789,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2725#       发表于 2017-7-14 11:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36571096&amp;ptid=1229445" target="_blank">airsfly 发表于 2017-7-13 22:19</a>
 
 最新一话的口音腔可爱得不行</blockquote>
 听了,笨草莓好可爱
-
-
-
-
-
 
 
 -----
@@ -23956,14 +15801,7 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2726#       发表于 2017-7-14 12:21
 
 
-
-
 加百利我觉得白不回来了，op里都没她的位置了- -
-
-
-
-
-
 
 
 -----
@@ -23972,16 +15810,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2727#       发表于 2017-7-14 12:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36576063&amp;ptid=1229445" target="_blank">文文情报屋 发表于 2017-7-14 12:21</a>
 
 加百利我觉得白不回来了，op里都没她的位置了- -</blockquote>
 白不白跟OP有没有位置有什么关系？  再说了她就没黑过什么时候需要白了？   
-
-
-
-
-
 
 
 -----
@@ -23990,21 +15822,13 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2728#       发表于 2017-7-14 16:23
 
 
-
-
 阿萨谢尔又进群了
-
-
-
-
-
 
 
 -----
 
 ####  airsfly  
 ##### 2729#       发表于 2017-7-14 18:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36571663&amp;ptid=1229445" target="_blank">Byarlant 发表于 2017-7-13 23:28</a>
@@ -24021,16 +15845,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 得不偿失的感觉……
 
 
-
-
-
-
-
 -----
 
 ####  Byarlant  
 ##### 2730#       发表于 2017-7-14 18:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36579416&amp;ptid=1229445" target="_blank">airsfly 发表于 2017-7-14 18:13</a>
@@ -24041,32 +15859,19 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 只有新的男女主，和其它角色没关系，其它人物的性别第一季就定了。所以实际上就是可能把原有的小法瓦罗改掉了。这个角色应该设定上是法瓦罗的徒弟，长期跟着那种。
 
 
-
-
-
-
-
 -----
 
 ####  素裸天狐  
 ##### 2731#       发表于 2017-7-14 19:07
 
 
-
-
 ……为什么这楼里对角色评价都是非黑即白的
-
-
-
-
-
 
 
 -----
 
 ####  AgieClover  
 ##### 2732#       发表于 2017-7-14 19:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36579416&amp;ptid=1229445" target="_blank">airsfly 发表于 2017-7-14 18:13</a>
@@ -24077,16 +15882,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 你忘了好清纯不做作的阿萨妹子
 
 
-
-
-
-
-
 -----
 
 ####  厨厨光波  
 ##### 2733#       发表于 2017-7-14 19:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36579416&amp;ptid=1229445" target="_blank">airsfly 发表于 2017-7-14 18:13</a>
@@ -24097,16 +15896,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 谁要性转大凶天使姐姐我第一个不同意<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mumubear  
 ##### 2734#       发表于 2017-7-14 19:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36579416&amp;ptid=1229445" target="_blank">airsfly 发表于 2017-07-14 18:13:19</a>
@@ -24117,16 +15910,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 [  -- 来自带麻将脸的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
 
 
-
-
-
-
-
 -----
 
 ####  shimotsuki14  
 ##### 2735#       发表于 2017-7-14 23:06
-
 
 
  本帖最后由 shimotsuki14 于 2017-7-14 23:39 编辑 
@@ -24134,17 +15921,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 大意了，上周居然忘看，新歌果然不差钱贞德新装美极！
 
 
-
-
-
-
-
 -----
 
 ####  mdk11223344  
 ##### 2736#       发表于 2017-7-14 23:42
-
-
 
 
 有个很在意的地方
@@ -24159,11 +15939,6 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 2017-7-14 23:25 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/14/232610g8nlrlyl90c0hncl.jpg" referrerpolicy="no-referrer">
 
 
@@ -24174,11 +15949,6 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 2017-7-14 23:26 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/14/232628fe6zbg8lk1bjugq3.jpg" referrerpolicy="no-referrer">
 
 
@@ -24187,11 +15957,6 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 下载附件
 
 2017-7-14 23:26 上传
-
-
-
-
-
 
 
 贞德的新服装看起来下面应该是大白腿套长筒靴（刀剑神域<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">）
@@ -24207,17 +15972,7 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 2017-7-14 23:27 上传
 
 
-
-
-
-
-
 但是这幅画面又显示是短裤加长筒靴，难道是作画错误？
-
-
-
-
-
 
 
 -----
@@ -24226,23 +15981,16 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2737#       发表于 2017-7-15 01:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36582138&amp;ptid=1229445" target="_blank">mdk11223344 发表于 2017-7-14 23:42</a>
 
 有个很在意的地方</blockquote>
 你的关注点和你的头像很吻合<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  shadow001  
 ##### 2738#       发表于 2017-7-15 01:43
-
 
 
  本帖最后由 shadow001 于 2017-7-15 01:44 编辑 
@@ -24256,26 +16004,15 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 沒C PART
 
 
-
-
-
-
-
 -----
 
 ####  airsfly  
 ##### 2739#       发表于 2017-7-15 03:32
 
 
-
  本帖最后由 airsfly 于 2017-7-15 03:38 编辑 
 
 女主的颜艺表情包又丰富了这次ed后的声优竟然这么正常
-
-
-
-
-
 
 
 -----
@@ -24284,14 +16021,7 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2740#       发表于 2017-7-15 03:57
 
 
-
-
 小天使都是真天使啊。本以为加百利就很迷，艾尔真是深藏不露。神界地位越高越任性
-
-
-
-
-
 
 
 -----
@@ -24300,13 +16030,7 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2741#       发表于 2017-7-15 05:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">路西法：现在还不到动的时候
-
-
-
-
-
 
 
 -----
@@ -24315,21 +16039,13 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2742#       发表于 2017-7-15 07:36
 
 
-
-
 诸星小妹妹太棒了
-
-
-
-
-
 
 
 -----
 
 ####  pzk  
 ##### 2743#       发表于 2017-7-15 07:56
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">艾尔你怎么这么威啊，已经开始瞧不起加百利大妈了
@@ -24340,16 +16056,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">真想知道路西法这十年都读的什么东西，宅到要生褥疮了吧
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2744#       发表于 2017-7-15 08:08
-
 
 
  本帖最后由 nage560 于 2017-7-15 09:33 编辑 
@@ -24360,27 +16070,13 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 法瓦罗都吹飞了3集了，这是吹出大气层了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
 -----
 
 ####  eternum  
 ##### 2745#       发表于 2017-7-15 09:27
 
 
-
-
 这个洗白太生硬了吧......<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24389,21 +16085,13 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2746#       发表于 2017-7-15 10:14
 
 
-
-
 人、神、魔各种立flag，看好人族翻车、神二次翻车，魔族n次翻车，心疼阿萨谢尔，为了拯救族人结果却落得个这个下场，艾尔这是到中二期了还是米迦勒的力量开始觉醒了？？
-
-
-
-
-
 
 
 -----
 
 ####  Byarlant  
 ##### 2747#       发表于 2017-7-15 10:14
-
 
 
  本帖最后由 Byarlant 于 2017-7-15 10:20 编辑 
@@ -24422,16 +16110,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 作为跟天使的一个对比就是尼娜的龙族，和那些神族排不上用场的炮灰想必，尼娜的龙族才是在漫长的反巴哈姆特战争中鞠躬尽瘁的，而且作为世界上最强大的阵营之一，没有要求任何特权，乐观富足的自给自足生活。由此可见那些挟持前辈成绩自以为拥有荣耀和特权的天使是多么恶心。而且，实际上，目前天使就是在阻碍世界上唯一（或者唯二）在准备对抗巴哈姆特的救亡势力。
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2748#       发表于 2017-7-15 10:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584008&amp;ptid=1229445" target="_blank">Byarlant 发表于 2017-7-15 10:14</a>
@@ -24440,16 +16122,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 我已经懒得和你说了......你继续黑天使，我继续“黑”人皇吧。
 
 
-
-
-
-
-
 -----
 
 ####  Byarlant  
 ##### 2749#       发表于 2017-7-15 10:21
-
 
 
  本帖最后由 Byarlant 于 2017-7-15 10:27 编辑 
@@ -24459,18 +16135,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 这集人皇和黑骑士团的立意升华到全无私心和后路准备的自我牺牲境界了。你还要怎么“黑”呢？
 
 
-
-
-
-
-
-
 -----
 
 ####  新屋  
 ##### 2750#       发表于 2017-7-15 10:37
-
-
 
 
 路西法是睿智的保守党，懂得避其锋芒；魔族都不知道装逼犯已被关在帝都。
@@ -24482,16 +16150,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 这话贞德的表现，看出他跟凯撒一样，都很反对人神战争。反对欧皇扩大战争。
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2751#       发表于 2017-7-15 10:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584078&amp;ptid=1229445" target="_blank">Byarlant 发表于 2017-7-15 10:21</a>
@@ -24502,25 +16164,13 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 你自己都觉得天使第一季的死毫无意义，毫无贡献，全是靠爆炸头等人的功劳，而人皇用大杀器屠神灭魔后，要打巴哈就是视死如归，还有什么话好说的？
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 2752#       发表于 2017-7-15 10:42
 
 
-
-
 加百利崩了那么多集的脸总算好看了
-
-
-
-
-
 
 
 -----
@@ -24529,16 +16179,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2753#       发表于 2017-7-15 10:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584209&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-15 10:40</a>
 
 感情因为他要打巴哈，之前做的破事就能一笔勾销了？这集艾尔喉咙被人皇手下烫，旁边的奴隶恶魔缩着发抖不 ...</blockquote>
 魔族不是咎由自取么,天使照着的时候人类被魔族拆老家,要不是蒋努萨玛给力现在就是人皇在魔族老家当牛郎了,现在人皇在可以让狗妹给你陪酒你有什么不满
-
-
-
-
-
 
 
 -----
@@ -24547,16 +16191,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2754#       发表于 2017-7-15 11:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584284&amp;ptid=1229445" target="_blank">567844 发表于 2017-7-15 10:53</a>
 
 魔族不是咎由自取么,天使照着的时候人类被魔族拆老家,要不是蒋努萨玛给力现在就是人皇在魔族老家当牛郎了 ...</blockquote>
 照这么说，人皇和大杀器被灭，人族翻盘，路西法等人屠杀无辜人类平民的时候，也是人族咎由自取？
-
-
-
-
-
 
 
 -----
@@ -24565,16 +16203,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2755#       发表于 2017-7-15 11:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584284&amp;ptid=1229445" target="_blank">567844 发表于 2017-7-15 10:53</a>
 
 魔族不是咎由自取么,天使照着的时候人类被魔族拆老家,要不是蒋努萨玛给力现在就是人皇在魔族老家当牛郎了 ...</blockquote>
 上季人魔的冲突更多不是魔族那几个搞屎棍搞事么？最后不都死了？魔族很多恶人是该死，人皇连无辜平民幼儿都迫害就的确是做过了。魔族又不是哥布林杀手里面那些只懂杀与艹的畜生哥布林，无必要真做到灭族这种地步。
-
-
-
-
-
 
 
 -----
@@ -24583,16 +16215,9 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2756#       发表于 2017-7-15 11:07
 
 
-
-
 路西法的翅膀不仅少了怎么还小了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 堕天使brother<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24601,21 +16226,13 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2757#       发表于 2017-7-15 11:13
 
 
-
-
 路西法好歹还有书看，周围一圈是站了10年吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  楽園のエル  
 ##### 2758#       发表于 2017-7-15 11:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584373&amp;ptid=1229445" target="_blank">哥特式lolita 发表于 2017-7-15 11:07</a>
@@ -24631,17 +16248,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 嘛大概是十年前封印大巴消耗大了只好宅着装逼了。
 
 
-
-
-
-
-
 -----
 
 ####  reficul  
 ##### 2759#       发表于 2017-7-15 11:14
-
-
 
 
 预告的相声明明没有笑点，但是就是想笑
@@ -24652,17 +16262,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 贞德把天使带去人间各处大墓地再把同样的话说一遍好了
 
 
-
-
-
-
-
 -----
 
 ####  今天不守尸  
 ##### 2760#       发表于 2017-7-15 11:19
-
-
 
 
 这就是典型的白左思想吧
@@ -24674,16 +16277,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 把恶魔换成绿绿一点违和感都没有。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  skullgreymon  
 ##### 2761#       发表于 2017-7-15 11:21
-
 
 
  本帖最后由 skullgreymon 于 2017-7-15 11:24 编辑 
@@ -24699,22 +16296,13 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 2017-7-15 11:20 上传
 
 
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  nage560  
 ##### 2762#       发表于 2017-7-15 11:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584414&amp;ptid=1229445" target="_blank">reficul 发表于 2017-7-15 11:14</a>
@@ -24726,16 +16314,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 是这样，没有第一季天使一死一大遍的拼命封印，大概死的人类就不止是被火球砸死的数量，而是全灭了。没有天使不断牺牲争取时间拖延巴哈复活，爆炸头阿米拉还有那些主神就不可能成功，3族全部GG。第一季人类死是被动被巴哈的火球砸死，天使是自愿牺牲，第一季的天使就是个封印巴哈而数值法的死法，这两者之间的觉悟区别差了天和地。而在这牺牲上，人皇第二季还来偷袭打劫杀人，这不能骂你人皇难道还该歌颂他做得好？
 
 
-
-
-
-
-
 -----
 
 ####  浅野  
 ##### 2763#       发表于 2017-7-15 11:28
-
 
 
  本帖最后由 浅野 于 2017-7-15 11:34 编辑 
@@ -24752,32 +16334,19 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 堕天使brother之前互吹美丽的羽毛，这次情绪低落了好多<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  qwxbtgb  
 ##### 2764#       发表于 2017-7-15 11:31
 
 
-
-
 动都不动的角色，这也是少有的。
-
-
-
-
-
 
 
 -----
 
 ####  楽園のエル  
 ##### 2765#       发表于 2017-7-15 11:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584499&amp;ptid=1229445" target="_blank">浅野 发表于 2017-7-15 11:28</a>
@@ -24793,16 +16362,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 哎又看了几遍路的小翅膀太可爱了想摸……<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 2766#       发表于 2017-7-15 11:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584372&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-15 11:07</a>
@@ -24811,16 +16374,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 魔族杀萝莉的事情你选择性遗忘了么,再说哪里哟种族灭绝,先给老子干活长得漂亮的要好好用肉体偿还以前犯下的罪孽懂么
 
 
-
-
-
-
-
 -----
 
 ####  Byarlant  
 ##### 2767#       发表于 2017-7-15 11:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584209&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-15 10:40</a>
@@ -24838,16 +16395,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 倒不如说，第一部天使就有可以对付巴哈的武器，而且就是古代天使的祖先造的，因为他们的封闭自守，白坑了自一堆神族送死，第二季天使索性根本不管对抗恶魔和监视巴哈的事情了。要是天使能继续管事，何需人皇和黑骑士团来烧命费这个力气。换言之，天使放弃了作为上位种族的责任，却要保持地位，巴哈活了人族先死，所以人皇等人当然不顾一起的准备了，所以天使的现状正是他们自己的封闭自守和养尊处优造成的。这不，又把贞德儿子折腾进来坑自己了，贞德儿子中二昭和反骨了可是巨乳等天使洗脑的结果吧。
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 2768#       发表于 2017-7-15 11:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584349&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-15 11:03</a>
@@ -24856,16 +16407,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 落后就要挨打
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2769#       发表于 2017-7-15 11:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584574&amp;ptid=1229445" target="_blank">567844 发表于 2017-7-15 11:40</a>
@@ -24874,16 +16419,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 那个魔物是杀了LOLI，但那个魔物最后不是死了么？然后这样还不够，还要再把所有恶魔幼儿抓来给人类残虐玩耍？然后我就要把你所有魔族有武力的都抓去竞技场生死相搏，无武力的抓去做苦力，幼儿抓去残虐？
 
 
-
-
-
-
-
 -----
 
 ####  Byarlant  
 ##### 2770#       发表于 2017-7-15 11:47
-
 
 
  本帖最后由 Byarlant 于 2017-7-15 11:49 编辑 
@@ -24899,17 +16438,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 实际上，整个世界观下，之前神魔不过把人族当成两脚羊，不过一个狩猎一个圈养罢了。神族也是为了自保才去对抗巴哈而不是为了人类。
 
 
-
-
-
-
-
 -----
 
 ####  新屋  
 ##### 2771#       发表于 2017-7-15 11:57
-
-
 
 
 欧皇想让人类强大战胜一切。
@@ -24922,25 +16454,13 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 凯撒喜欢阿米拉，故同情恶魔。
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 2772#       发表于 2017-7-15 12:02
 
 
-
-
 为什么神也要带眼睛
-
-
-
-
-
 
 
 -----
@@ -24949,23 +16469,16 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2773#       发表于 2017-7-15 12:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584640&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-15 11:47</a>
 
 那个魔物是杀了LOLI，但那个魔物最后不是死了么？然后这样还不够，还要再把所有恶魔幼儿抓来给人类残虐玩 ...</blockquote>
 以牙还牙以眼还眼出来混总是要还的
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2774#       发表于 2017-7-15 12:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584642&amp;ptid=1229445" target="_blank">Byarlant 发表于 2017-7-15 11:47</a>
@@ -24978,16 +16491,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 第二季很明显的大前提就是人皇得了氪石攻打神魔屠杀神魔，明显地把国王放在侵略者的角度，剧中所有主角都和国王对立冲突，就你这脑残粉觉得国王做的都是对事。
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2775#       发表于 2017-7-15 12:06
-
 
 
  本帖最后由 nage560 于 2017-7-15 12:08 编辑 
@@ -24997,16 +16504,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 所以人皇迟早要还咯？人类也要为国王干的破事还债咯？
 
 
-
-
-
-
-
 -----
 
 ####  浅野  
 ##### 2776#       发表于 2017-7-15 12:08
-
 
 
  本帖最后由 浅野 于 2017-7-15 12:14 编辑 
@@ -25020,25 +16521,13 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 要是再附赠暗路皮肤就更好了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  shimotsuki14  
 ##### 2777#       发表于 2017-7-15 12:10
 
 
-
-
 贞德：多年不见，重逢发现儿子被带坏了，怎么办，在线等，急。
-
-
-
-
-
 
 
 -----
@@ -25047,16 +16536,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2778#       发表于 2017-7-15 12:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584642&amp;ptid=1229445" target="_blank">Byarlant 发表于 2017-7-15 11:47</a>
 
 这里面的魔族和哥布林比，就是危害更大而已，魔族里找出一两种不危害人类的或者长大不危害人类的？人类被 ...</blockquote>
 你一边把天使说成巴哈世界观下3族平等，不是其他作品真正的天使和神，一边又把魔族脑补成其他作品那些真正邪恶十恶不赦的恶魔，这是不是有点双标？
-
-
-
-
-
 
 
 -----
@@ -25065,16 +16548,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2779#       发表于 2017-7-15 12:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584803&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-15 12:06</a>
 
 所以人皇迟早要还咯？人类也要为国王干的破事还债咯？</blockquote>
 国王的支持者科不少,那么被恶魔屠的人类上哪里说理去,国王把恶魔屠了不就是省的哪天翻车了被清算么
-
-
-
-
-
 
 
 -----
@@ -25083,23 +16560,16 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2780#       发表于 2017-7-15 12:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36583395&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-15 08:08</a>
 
 妮娜开始插flag，结合OP，看来真的要替国王死了？还有艾尔得到力量后太膨胀了，被打瘪一次还不吸取教训[f:0 ...</blockquote>
 你这么一说，上季ED里Life2→1……
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2781#       发表于 2017-7-15 12:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584836&amp;ptid=1229445" target="_blank">shimotsuki14 发表于 2017-7-15 12:10</a>
@@ -25115,16 +16585,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 小正太以前不是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  shimotsuki14  
 ##### 2782#       发表于 2017-7-15 12:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584869&amp;ptid=1229445" target="_blank">Chia 发表于 2017-7-15 12:15</a>
@@ -25136,16 +16600,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 敢让贞德献身我就寄刀片！
 
 
-
-
-
-
-
 -----
 
 ####  Byarlant  
 ##### 2783#       发表于 2017-7-15 12:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584791&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-15 12:05</a>
@@ -25154,16 +16612,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 你为了黑人皇，自我带入神族就算了，还自我带入魔族了。第一季看过没，魔族对人类的危害看不到吗？而且，看到了，你实际上对巴哈姆特的世界观一无所知，就看了两眼动画（似乎第一季都没仔细看过的样子）。所以完全就是无知下的为黑而可以洗白魔族喽。女魅魔的设定就这样，技能都叫“吸精之吻”。巴哈姆特的游戏框架很多，但是单位设计是共通的，你自己去查一下很简单。
 
 
-
-
-
-
-
 -----
 
 ####  浅野  
 ##### 2784#       发表于 2017-7-15 12:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584185&amp;ptid=1229445" target="_blank">新屋 发表于 2017-7-15 10:37</a>
@@ -25174,16 +16626,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 狗妹是负责情报收集的，阿酱在竞技场出场后不久后风声就会通过狗妹传到魔族那边去吧。
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 2785#       发表于 2017-7-15 12:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584903&amp;ptid=1229445" target="_blank">Byarlant 发表于 2017-7-15 12:20</a>
@@ -25192,33 +16638,20 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 那个人已经动画看多了被互相理解洗脑了没救了
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2786#       发表于 2017-7-15 12:23
 
 
-
-
 艾尔思路很简单的，之前可是亲手帮阿酱缠的绷带，加百列眼前直接丢下所有人跑路，加上本来也是靠他才去跟国王硬刚正面，评价自然差了不知几个级别
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">神魔再度合作的转机说不定就靠阿酱了
-
-
-
-
-
 
 
 -----
 
 ####  Byarlant  
 ##### 2787#       发表于 2017-7-15 12:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584847&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-15 12:12</a>
@@ -25230,16 +16663,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 尤其是第一季剧情阶段，到第二季人皇上来之前，魔族对人类而言当然十恶不赦不用脑补，天族和人类是阶级问题，魔族那是食物链问题了，以人类为食物的魔族和喜欢袭击人类的魔族都很多。
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2788#       发表于 2017-7-15 12:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584588&amp;ptid=1229445" target="_blank">Byarlant 发表于 2017-7-15 11:42</a>
@@ -25253,16 +16680,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 你下面这段话更显得可笑了。动画都提了N次大杀器的隐患了你还装作不知道，而说是天使封闭自守？天使不管对抗恶魔和监视巴哈？先看看是因为什么原因导致这样的，不都是人皇打过来了吗？索菲这种级别天使下凡界都被追杀差点死掉，其他低级天使怎么下去监视巴哈封印，那里有人皇大军守着呢。说到艾尔就更可笑了，被人皇的手下迫害到这地步，一路被追杀，被迫减掉翅膀，被毁了喉咙，被迫做奴隶这么多年，他能不想干死人皇？只是一直没有这能力而已，从加百利那里得回能力想报仇就甩锅成被洗脑，反倒是不关人皇一直以来的迫害政策什么事了。
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2789#       发表于 2017-7-15 12:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584849&amp;ptid=1229445" target="_blank">567844 发表于 2017-7-15 12:12</a>
@@ -25271,16 +16692,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 被恶魔屠的人类第一季一直有恶魔猎人在处理，还有贞德从神界获得的力量在追杀恶魔。那些残杀人类的恶魔当然该死啊，但把与世无争无害的也杀掉不就是国王的错？最后，我不认为国王能把三族之一的恶魔都屠干净，或者俘虏干净，看看那几个魔族大佬还逍遥法外等着国王翻盘呢，搞成现在这种僵局最后只能强行洗白国王让天使和恶魔都不计较了。
 
 
-
-
-
-
-
 -----
 
 ####  Byarlant  
 ##### 2790#       发表于 2017-7-15 12:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584935&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-15 12:25</a>
@@ -25301,16 +16716,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 然后你作为局外的人类，站在不断袭击了剧中人类的恶魔身上，大谈对人类反攻成功后是迫害恶魔，真是荒唐透了。<strong>人皇太仁慈，没有把见到的恶魔全都宰了才是问题。</strong>我觉得<strong>你到哥布林杀手的那帖里面去闹白左还更显眼一点。</strong>
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2791#       发表于 2017-7-15 12:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36585009&amp;ptid=1229445" target="_blank">Byarlant 发表于 2017-7-15 12:33</a>
@@ -25323,25 +16732,13 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 天使和恶魔都强调大杀器对世界带来的灾难，所以派索菲去交涉拿回大杀器，结果被氪石兵追着杀。天使是不是无人监视，然后人皇才去监视这点，后面还有很多集，请看完再说。天使不是不关注巴哈，而是被你的人皇一直铁血手腕打压无空关心。最后你觉得天使恶魔会想到上一季牺牲那么大封印的巴哈为什么那么早就解封了？反倒是国王为什么第一个注意到？这中间还很多疑问，等动画解释咯。
 
 
-
-
-
-
-
 -----
 
 ####  大晓尧  
 ##### 2792#       发表于 2017-7-15 13:18
 
 
-
-
 阿~酱~你终于出场了~虽然每次都开玩笑说喜欢看阿酱翻车，真看到了这集还是心疼他，为了生存被迫和同族自相残杀，以及解放力量的艾尔和穆迦罗简直两个人，这解放力量还带洗脑的吗？路西法看上去知道什么内情，希望后面剧情不要为了映衬国王再让敌方强行掉智商了......
-
-
-
-
-
 
 
 -----
@@ -25350,22 +16747,13 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2793#       发表于 2017-7-15 13:18
 
 
-
-
 路西法不愧是读书人，眼光就是长远<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  北风游骑兵  
 ##### 2794#       发表于 2017-7-15 13:21
-
-
 
 
 天使和恶魔上季损失惨重，这季都被追杀得躲起来了，还怎么去监视巴哈？
@@ -25377,16 +16765,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 当然，现在下定论还太早，看后面编剧怎么写，不过估计不会写出神魔各种下绊子，只有国王英明神武这种蛋疼的剧情吧
 
 
-
-
-
-
-
 -----
 
 ####  厨厨光波  
 ##### 2795#       发表于 2017-7-15 13:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584640&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-15 11:47</a>
@@ -25399,16 +16781,10 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 偏偏鬼畜李梅将军还被日本颁了奖章<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  83913536  
 ##### 2796#       发表于 2017-7-15 13:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36584922&amp;ptid=1229445" target="_blank">567844 发表于 2017-7-15 12:23</a>
@@ -25417,25 +16793,13 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ...我看你们就彼此彼此啊
 
 
-
-
-
-
-
 -----
 
 ####  83913536  
 ##### 2797#       发表于 2017-7-15 13:53
 
 
-
-
 这年头“反政治正确”都蔓延到死宅群体了？
-
-
-
-
-
 
 
 -----
@@ -25444,14 +16808,7 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2798#       发表于 2017-7-15 14:19
 
 
-
-
 天使怎么看都是一副药丸的样子，人族也处在玩脱边缘，目前最稳的还是魔族<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25460,22 +16817,15 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2799#       发表于 2017-7-15 14:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">说到堕天使兄弟出道我就想起雷迅卿哔哩哔哩了
 
 明明他和路西法也是卖腐兄弟，为什么就没能出个场呢，感觉人族少一大将啊
-
-
-
-
-
 
 
 -----
 
 ####  silvle  
 ##### 2800#       发表于 2017-7-15 14:32
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">本来就是屁股问题，长期被恶魔欺压，人族拿到黑科技当然会反过来报复，这是普遍的行为。过激的报复导致人性的缺失，作为局外人，站在一边谴责另一边并不正确也不公允。
@@ -25487,25 +16837,13 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 有人把人族虐待恶魔的责任也扔给人皇，那是人族普遍的心理反应，人皇最多是不制止助纣为虐，只要没有妨碍到自身目的的达成，都可以听之任之，毕竟人皇的目的并不是建立一个三族和谐共处的世界，这也没什么好黑的。
 
 
-
-
-
-
-
 -----
 
 ####  万物为玄一  
 ##### 2801#       发表于 2017-7-15 14:37
 
 
-
-
 个人猜测结局：不会真的屠神灭魔，但最后三族会和解，人族会和神魔两族有真正平等的地位，毕竟平等的地位是靠自己打出来而不是别人施舍出来的<img src="https://static.saraba1st.com/image/smiley/face2017/179.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25514,23 +16852,16 @@ OP、ED 里还有阿酱，制作组目前还没彻底忘了他。
 ##### 2802#       发表于 2017-7-15 14:41
 
 
-
  本帖最后由 hgcg-w 于 2017-7-15 15:09 编辑 
 
 我以为专楼里刷妮娜是声优梗……
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1fhkl5n62tbj20m80p6q8m.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 2803#       发表于 2017-7-15 14:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36585791&amp;ptid=1229445" target="_blank">pzk 发表于 2017-7-15 01:30</a>
@@ -25544,25 +16875,13 @@ bilibili身份毕竟是个骑士团长（虽然这骑士团就剩下5个人了�
 另外本作女性平均上围已经很高了，再让bilibili把三姐妹带出来丽塔就要哭了啊<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  qhcn  
 ##### 2804#       发表于 2017-7-15 15:03
 
 
-
-
 加百列这脑子有坑的把艾尔也带坏了，要是没有外力帮忙的话神族这边要玩完
-
-
-
-
-
 
 
 -----
@@ -25571,15 +16890,9 @@ bilibili身份毕竟是个骑士团长（虽然这骑士团就剩下5个人了�
 ##### 2805#       发表于 2017-7-15 15:08
 
 
-
 <blockquote>DOACAON 发表于 2017-7-15 14:59
 bilibili身份毕竟是个骑士团长（虽然这骑士团就剩下5个人了），他出场就意味着人类不止有一个国家，人王 ...</blockquote>
 就动画这个世界观表现的能力巴哈那群人类别说神魔了...估计动画的巴哈都能被手撕了....
-
-
-
-
-
 
 
 -----
@@ -25588,14 +16901,7 @@ bilibili身份毕竟是个骑士团长（虽然这骑士团就剩下5个人了�
 ##### 2806#       发表于 2017-7-15 15:11
 
 
-
-
 我都要恍惚了，怎么贞德这么可爱啊……这几集把贞德塑造的真是太棒了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25604,14 +16910,7 @@ bilibili身份毕竟是个骑士团长（虽然这骑士团就剩下5个人了�
 ##### 2807#       发表于 2017-7-15 15:34
 
 
-
-
 加百列到底是脑子真的有坑还是和别西卜一样另有企图？这邪魅一笑我看不透啊
-
-
-
-
-
 
 
 -----
@@ -25620,21 +16919,13 @@ bilibili身份毕竟是个骑士团长（虽然这骑士团就剩下5个人了�
 ##### 2808#       发表于 2017-7-15 15:46
 
 
-
-
 专楼跟外面简直不是一个世界，这楼里好多代入人类的，各种真情实感要艹神灭魔，洋洋得意，或者只是单纯的国王粉？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">楼上那个跟她们来回车轱辘也是有毅力，敬你是条汉子
-
-
-
-
-
 
 
 -----
 
 ####  厨厨光波  
 ##### 2809#       发表于 2017-7-15 15:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36585560&amp;ptid=1229445" target="_blank">83913536 发表于 2017-7-15 13:53</a>
@@ -25647,25 +16938,13 @@ bilibili身份毕竟是个骑士团长（虽然这骑士团就剩下5个人了�
 理解个p辣，拿出意大利炮来，干他丫挺的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  喝水先  
 ##### 2810#       发表于 2017-7-15 16:17
 
 
-
-
 这剧的爱情主线就是城里霸道总裁和乡下纯朴村姑的爱恨纠葛吧？
-
-
-
-
-
 
 
 -----
@@ -25674,15 +16953,9 @@ bilibili身份毕竟是个骑士团长（虽然这骑士团就剩下5个人了�
 ##### 2811#       发表于 2017-7-15 16:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36585560&amp;ptid=1229445" target="_blank">83913536 发表于 2017-7-15 13:53</a>
 这年头“反政治正确”都蔓延到死宅群体了？</blockquote>
 故事中不是政治，而是決定生死，人類跟惡魔在巴哈世界便很難共存，因為其中一方直接視另一方為食物，而一般人類村莊根本擋不了惡魔，直到人類能發明一個普通人也可以輕易幹掉惡魔的武器前，為求自保人類只有把惡魔掉。
-
-
-
-
-
 
 
 -----
@@ -25691,14 +16964,7 @@ bilibili身份毕竟是个骑士团长（虽然这骑士团就剩下5个人了�
 ##### 2812#       发表于 2017-7-15 16:41
 
 
-
-
 其实我觉得女主的声音有时很像水树7
-
-
-
-
-
 
 
 -----
@@ -25707,24 +16973,16 @@ bilibili身份毕竟是个骑士团长（虽然这骑士团就剩下5个人了�
 ##### 2813#       发表于 2017-7-15 16:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36586515&amp;ptid=1229445" target="_blank">Gooddays 发表于 2017-7-15 16:34</a>
 
 故事中不是政治，而是決定生死，人類跟惡魔在巴哈世界便很難共存，因為其中一方直接視另一方為食物，而一 ...</blockquote>
 故事怎么讲早就不重要了，各种瞎带立场臆测剧情，光讨论故事就不会有人对骂“白左”、“纳粹”了。
 
 
-
-
-
-
-
-
 -----
 
 ####  83913536  
 ##### 2814#       发表于 2017-7-15 17:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36586282&amp;ptid=1229445" target="_blank">厨厨光波 发表于 2017-7-15 15:57</a>
@@ -25737,16 +16995,10 @@ bilibili身份毕竟是个骑士团长（虽然这骑士团就剩下5个人了�
 个人什么立场无所谓，我是指一言不合就给人贴标签的。
 
 
-
-
-
-
-
 -----
 
 ####  楽園のエル  
 ##### 2815#       发表于 2017-7-15 17:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36585951&amp;ptid=1229445" target="_blank">DOACAON 发表于 2017-7-15 14:59</a>
@@ -25761,25 +17013,13 @@ bilibili身份毕竟是个骑士团长（虽然这骑士团就剩下5个人了�
 【快出跟路路一起出道的偶像皮肤！！！
 
 
-
-
-
-
-
 -----
 
 ####  notromeo  
 ##### 2816#       发表于 2017-7-15 17:45
 
 
-
-
 这楼毫无营养，一堆喷子键盘党在卖屁股<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25788,14 +17028,7 @@ bilibili身份毕竟是个骑士团长（虽然这骑士团就剩下5个人了�
 ##### 2817#       发表于 2017-7-15 17:47
 
 
-
-
 這一集怎麼那麼二呀
-
-
-
-
-
 
 
 -----
@@ -25804,14 +17037,7 @@ bilibili身份毕竟是个骑士团长（虽然这骑士团就剩下5个人了�
 ##### 2818#       发表于 2017-7-15 18:05
 
 
-
-
 天使都只剩老头和没经验的年轻人了。<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25820,16 +17046,10 @@ bilibili身份毕竟是个骑士团长（虽然这骑士团就剩下5个人了�
 ##### 2819#       发表于 2017-7-15 18:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36586909&amp;ptid=1229445" target="_blank">notromeo 发表于 2017-7-15 17:45</a>
 
 这楼毫无营养，一堆喷子键盘党在卖屁股</blockquote>
 就是，吵什么吵，草莓多可爱
-
-
-
-
-
 
 
 -----
@@ -25838,17 +17058,10 @@ bilibili身份毕竟是个骑士团长（虽然这骑士团就剩下5个人了�
 ##### 2820#       发表于 2017-7-15 18:41
 
 
-
-
 加百列现在看起来脑子有坑的可能性大一点，天使现在也这个情况了，艾尔虽然也中二发作但质疑加百列的那几句还是有道理的，米迦勒带队的时候真是没话说，加百列算下来已经两次跑路了，责任心不是没有，但感觉真像搅浑水的高级公务员
 
 
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
-
-
-
-
-
 
 
 -----
@@ -25857,14 +17070,7 @@ bilibili身份毕竟是个骑士团长（虽然这骑士团就剩下5个人了�
 ##### 2821#       发表于 2017-7-15 21:12
 
 
-
-
 果然有古罗马之风，战败民族男的上斗兽场，女的下窑子。和kirakira的阿宅路西法一比，更显得阿酱可怜了。
-
-
-
-
-
 
 
 -----
@@ -25873,15 +17079,8 @@ bilibili身份毕竟是个骑士团长（虽然这骑士团就剩下5个人了�
 ##### 2822#       发表于 2017-7-15 21:34
 
 
-
-
 不对啊为什么儿子的声优要比妈妈大牌
 <img src="http://wx2.sinaimg.cn/large/9657fdc2gy1fhkw8yuwv0j20zk0k0jt7.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25890,14 +17089,7 @@ bilibili身份毕竟是个骑士团长（虽然这骑士团就剩下5个人了�
 ##### 2823#       发表于 2017-7-15 22:16
 
 
-
-
 这楼在某个恶魔死后就炸了，得益于某个玻璃心萌豚不遗余力的自我带入脑补黑国王
-
-
-
-
-
 
 
 -----
@@ -25906,23 +17098,15 @@ bilibili身份毕竟是个骑士团长（虽然这骑士团就剩下5个人了�
 ##### 2824#       发表于 2017-7-15 22:27
 
 
-
-
 目测法瓦罗再登场要等巴哈解除封印了
 
 [  -- 来自能订阅的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
-
-
-
-
-
 
 
 -----
 
 ####  DOACAON  
 ##### 2825#       发表于 2017-7-15 22:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36588305&amp;ptid=1229445" target="_blank">hgcg-w 发表于 2017-7-15 08:34</a>
@@ -25935,16 +17119,10 @@ bilibili身份毕竟是个骑士团长（虽然这骑士团就剩下5个人了�
 而El在希伯来语里就是“神”
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2826#       发表于 2017-7-15 23:32
-
 
 
  本帖最后由 Chia 于 2017-7-15 23:43 编辑 
@@ -25961,16 +17139,10 @@ bilibili身份毕竟是个骑士团长（虽然这骑士团就剩下5个人了�
 GBF的钉宫不是pi酱么，还有斑比酱，贞德信的哪个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 2827#       发表于 2017-7-15 23:37
-
 
 
  本帖最后由 DOACAON 于 2017-7-15 10:39 编辑 
@@ -25987,16 +17159,10 @@ GBF的钉宫不是pi酱么，还有斑比酱，贞德信的哪个<img src="https
 另外引用也请记得反白
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2828#       发表于 2017-7-15 23:45
-
 
 
  本帖最后由 Chia 于 2017-7-15 23:47 编辑 
@@ -26020,16 +17186,10 @@ GBF的钉宫不是pi酱么，还有斑比酱，贞德信的哪个<img src="https
 编辑过了，不过这东西会涉及剧透么
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 2829#       发表于 2017-7-15 23:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36587280&amp;ptid=1229445" target="_blank">ulir 发表于 2017-7-15 18:41</a>
@@ -26038,16 +17198,10 @@ GBF的钉宫不是pi酱么，还有斑比酱，贞德信的哪个<img src="https
 加百列又不是主角  你能让她怎么样  就像我前面说的  以她的视角跟情报来看  她也就只能这样了  要不学路西法一样当宅吗
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2830#       发表于 2017-7-16 00:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36589201&amp;ptid=1229445" target="_blank">临界点 发表于 2017-7-15 23:51</a>
@@ -26059,17 +17213,10 @@ GBF的钉宫不是pi酱么，还有斑比酱，贞德信的哪个<img src="https
 把艾尔骗上战场，出事后责任归他（软禁）。直接往恶役去了
 
 
-
-
-
-
-
 -----
 
 ####  文文情报屋  
 ##### 2831#       发表于 2017-7-16 00:13
-
-
 
 
 加百利脑子肯定有坑
@@ -26081,16 +17228,10 @@ GBF的钉宫不是pi酱么，还有斑比酱，贞德信的哪个<img src="https
 才给了贞德同学一捅三的机会
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 2832#       发表于 2017-7-16 00:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36589175&amp;ptid=1229445" target="_blank">Chia 发表于 2017-7-15 10:45</a>
@@ -26104,7 +17245,6 @@ GBF的钉宫不是pi酱么，还有斑比酱，贞德信的哪个<img src="https
 ##### 2833#       发表于 2017-7-16 00:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36589372&amp;ptid=1229445" target="_blank">DOACAON 发表于 2017-7-16 00:16</a>
 
 我查了一圈，貌似是07年开始流行的说法？特别是Gateway of the Gods这本书
@@ -26113,17 +17253,10 @@ GBF的钉宫不是pi酱么，还有斑比酱，贞德信的哪个<img src="https
 了解了，考据力赞一下<img src="https://static.saraba1st.com/image/smiley/face2017/173.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  KuonjiClara  
 ##### 2834#       发表于 2017-7-16 00:29
-
-
 
 
 编剧把加百列这名字给她是有理由的,不愧是知名二五仔,坑的很.
@@ -26133,16 +17266,10 @@ GBF的钉宫不是pi酱么，还有斑比酱，贞德信的哪个<img src="https
 贞德知道阿酱是儿子救命恩人后突出一个尴尬...
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2835#       发表于 2017-7-16 00:35
-
 
 
  本帖最后由 nage560 于 2017-7-16 09:04 编辑 
@@ -26152,16 +17279,10 @@ GBF的钉宫不是pi酱么，还有斑比酱，贞德信的哪个<img src="https
 PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴哈了，原来也不算怕死，就是比较蠢......
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2836#       发表于 2017-7-16 02:11
-
 
 
 <blockquote>引用第2850楼临界点于2017-07-15 05:51发表的  :
@@ -26173,32 +17294,19 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  keledou2b  
 ##### 2837#       发表于 2017-7-16 02:41
 
 
-
-
 怎么人皇也要拯救世界了 难不成要一切都是为了打幕后大BOSS的套路洗白白然后大家开开心心回家结婚<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  hgcg-w  
 ##### 2838#       发表于 2017-7-16 06:18
-
 
 
 <blockquote>keledou2b 发表于 2017-7-16 02:41
@@ -26210,17 +17318,10 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 我觉得最后是草莓变完全体的龙然后把三派都摆平"听我的别打了"然后三派的帅哥为了争夺她继续打
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2839#       发表于 2017-7-16 07:02
-
-
 
 
 国王我不认为他想那么远大要拯救人类，不过之前零零散散的细节，还有这次在封印前的对话算是比较明显了
@@ -26233,25 +17334,13 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 路西法真是看得清，反正你们人类耗不过我，当几年死宅比被抄家划算多了
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2840#       发表于 2017-7-16 07:36
 
 
-
-
 首先国王怎么觉得大杀器能干死巴哈这点动画还没有交代，连2000年前的宙斯和撒旦牺牲自己才能勉强封住巴哈，国王凭什么觉得这个大杀器就能一炮干死巴哈？而且这玩意还有严重的灾难性副作用。然后国王怎么知道组合使用大杀器也是未解之谜，可能他的氪石由来也是这条线索。
-
-
-
-
-
 
 
 -----
@@ -26260,20 +17349,13 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 ##### 2841#       发表于 2017-7-16 07:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">人皇肯定是男主待遇不是BOSS役啊，这片基准不就是男主必须是残疾人才可以有妹子抱么，所以阿酱是彻底没戏了……
-
-
-
-
-
 
 
 -----
 
 ####  hgcg-w  
 ##### 2842#       发表于 2017-7-16 07:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36590474&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-16 07:36</a>
@@ -26286,16 +17368,10 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 现在是一只手，没准最后是一整套盔甲，变成巨大萝卜
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2843#       发表于 2017-7-16 07:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36590481&amp;ptid=1229445" target="_blank">hgcg-w 发表于 2017-7-16 07:39</a>
@@ -26308,16 +17384,10 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 这不就和机械降神差不多......为了抬人皇把第一季塑造出来的战力系统世界观都搞屎了......
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 2844#       发表于 2017-7-16 09:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36589498&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-16 00:35</a>
@@ -26326,16 +17396,10 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 领导无能就是最大的邪恶
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 2845#       发表于 2017-7-16 09:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36590383&amp;ptid=1229445" target="_blank">ulir 发表于 2017-7-16 07:02</a>
@@ -26346,16 +17410,10 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 典型的硬派肌肉脑红脖子,三方领导阿酱,加百列都是清一色肌肉脑,也就华丽的不能动的某位大人领的清
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2846#       发表于 2017-7-16 09:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36590773&amp;ptid=1229445" target="_blank">567844 发表于 2017-7-16 09:02</a>
@@ -26364,26 +17422,15 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 是领导无能，但比起人皇这种偏激的领导好一万倍吧。现在人皇挑起的事彻底造成三族关系破裂，不死不休，除非人皇真能彻底消灭神魔两族，不然神魔两族不可能就这样放过人类了。
 
 
-
-
-
-
-
 -----
 
 ####  松冈茉优  
 ##### 2847#       发表于 2017-7-16 09:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36590793&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-16 09:07</a>
 是领导无能，但比起人皇这种偏激的领导好一万倍吧。现在人皇挑起的事彻底造成三族关系破裂，不死不休，除 ...</blockquote>
 反正都有黑点 还不如看国王搞事<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26392,16 +17439,10 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 ##### 2848#       发表于 2017-7-16 09:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36590793&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-16 09:07</a>
 
 是领导无能，但比起人皇这种偏激的领导好一万倍吧。现在人皇挑起的事彻底造成三族关系破裂，不死不休，除 ...</blockquote>
 人皇在可以玩狗妹杀恶魔妇孺,人皇不在就要死萝莉你选吧
-
-
-
-
-
 
 
 -----
@@ -26410,16 +17451,10 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 ##### 2849#       发表于 2017-7-16 09:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36590981&amp;ptid=1229445" target="_blank">567844 发表于 2017-7-16 09:36</a>
 
 人皇在可以玩狗妹杀恶魔妇孺,人皇不在就要死萝莉你选吧</blockquote>
 你说的玩狗妹不就是爽一把就死嘛？你人皇能活千年万年一直守着人类（我看他插满flag不死也残），人皇能把神魔全都屠了？你结下了梁子，最后自己死了，留下个烂摊子让平民百姓自己收拾？
-
-
-
-
-
 
 
 -----
@@ -26428,16 +17463,10 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 ##### 2850#       发表于 2017-7-16 09:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36591007&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-16 09:40</a>
 
 你说的玩狗妹不就是爽一把就死嘛？你人皇能活千年万年一直守着人类（我看他插满flag不死也残），人皇能把 ...</blockquote>
 反正人皇不在一样挨恶魔操
-
-
-
-
-
 
 
 -----
@@ -26446,16 +17475,9 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 ##### 2851#       发表于 2017-7-16 10:04
 
 
-
-
 小天使🆚妮娜这么可爱，为什么是要讨论政治，不讨论剧情呢
 
 —— 来自 samsung SM-G9300, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
-
-
-
-
-
 
 
 -----
@@ -26464,23 +17486,16 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 ##### 2852#       发表于 2017-7-16 10:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36591075&amp;ptid=1229445" target="_blank">567844 发表于 2017-7-16 09:53</a>
 
 反正人皇不在一样挨恶魔操</blockquote>
 人皇不在，起码不会上升到种族灭绝的程度。这下好了，人类和神魔不搞到其中一方死绝这仗都难完结。
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2853#       发表于 2017-7-16 10:14
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">其实我觉得搞不好就是当年贞德黑化那事给了国王启发，他自己也是摸爬滚打过日子的，还有就是加百列在那之后到底有没有好好干活，不过包袱这么多我看到了20都抖不完
@@ -26491,16 +17506,10 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 2854#       发表于 2017-7-16 10:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36591222&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-16 10:12</a>
@@ -26509,16 +17518,10 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 反正这么多年也没看魔族把人类灭掉,不服来战啊
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2855#       发表于 2017-7-16 10:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36591346&amp;ptid=1229445" target="_blank">567844 发表于 2017-7-16 10:34</a>
@@ -26527,16 +17530,10 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 那是因为平时3族是小摩擦，魔族的大佬都待在边远地区优哉游哉呢。平时都是那些极度邪恶的恶魔或者没有智力的大型恶魔出来搞事，然后就是人族的赏金猎人出动剿灭。现在人皇搞成这样子，魔族大佬们还能忍？看看15集那几个魔族首领都喊着要去打人类，不过被路西法喊停了，这次魔族可是不同以往，要全面发动战争搞人类了。再说这次人皇还和天使结下这个仇，天使就这样放过人类？现在这僵局你觉得还是以前那样的小摩擦？
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 2856#       发表于 2017-7-16 10:49
-
 
 
 <blockquote>DOACAON 发表于 2017-7-8 04:38
@@ -26544,16 +17541,10 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 口粮
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 2857#       发表于 2017-7-16 11:26
-
 
 
  本帖最后由 临界点 于 2017-7-16 11:31 编辑 
@@ -26563,16 +17554,10 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 当然有 她既不是主角又不是BOSS 目前这个阶段当然只能吃瘪  面对人皇造出来的古文明兵器你倒是说说她还有什么更好的做法？至于叫不动人 那是领导力跟剧本的要求 跟脑子有什么关系  至于那分镜 那得问演出监督  或许想让她往恶役发展 当目前来说她并没有做什么出格的事
 
 
-
-
-
-
-
 -----
 
 ####  HLGG2  
 ##### 2858#       发表于 2017-7-16 11:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36590503&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-16 07:45</a>
@@ -26581,16 +17566,10 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 辛苦收集了一套金卡结果官方搞个更新后跟你说不好意思以前的卡全是垃圾新推出的绿卡才是秒天秒地不服憋着<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 2859#       发表于 2017-7-16 12:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36591429&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-16 10:47</a>
@@ -26599,16 +17578,10 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 魔族大佬集体出动估计人皇要笑出来了,魔族可没小天使
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2860#       发表于 2017-7-16 12:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36591995&amp;ptid=1229445" target="_blank">567844 发表于 2017-7-16 12:04</a>
@@ -26617,16 +17590,10 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 对啊，被路西法叫住了，路西法说了等人皇自取灭亡后再去干人类。
 
 
-
-
-
-
-
 -----
 
 ####  83913536  
 ##### 2861#       发表于 2017-7-16 12:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36590480&amp;ptid=1229445" target="_blank">Boliva 发表于 2017-7-16 07:38</a>
@@ -26635,16 +17602,10 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 精神病也是可以领残疾证的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  文文情报屋  
 ##### 2862#       发表于 2017-7-16 13:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36590481&amp;ptid=1229445" target="_blank">hgcg-w 发表于 2017-7-16 07:39</a>
@@ -26657,16 +17618,10 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 巨大萝卜好啊！我支持巨大萝卜的展开！<img src="https://static.saraba1st.com/image/smiley/bundam2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 2863#       发表于 2017-7-16 13:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36591449&amp;ptid=1229445" target="_blank">hgcg-w 发表于 2017-7-15 21:49</a>
@@ -26677,16 +17632,10 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 退一步说不想破坏自己周边的生态环境，那龙族也可以飞个几十里出去打猎再飞回来嘛
 
 
-
-
-
-
-
 -----
 
 ####  henry8848  
 ##### 2864#       发表于 2017-7-16 14:06
-
 
 
  本帖最后由 henry8848 于 2017-7-16 14:56 编辑 
@@ -26696,32 +17645,19 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 足足盯着ED CARD看了五分钟
 
 
-
-
-
-
-
 -----
 
 ####  枇杷树  
 ##### 2865#       发表于 2017-7-16 14:35
 
 
-
-
 看到路西法没有沦落到做牛郎真是松了一口气哈哈
-
-
-
-
-
 
 
 -----
 
 ####  Chia  
 ##### 2866#       发表于 2017-7-16 14:48
-
 
 
 <blockquote>henry8848 发表于 2017-7-16 14:06
@@ -26736,25 +17672,13 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 要体现相互理解的过程，她是最适合被妮娜带下人间体验生活的
 
 
-
-
-
-
-
 -----
 
 ####  longcj  
 ##### 2867#       发表于 2017-7-16 15:34
 
 
-
-
 这翅膀不能忍
-
-
-
-
-
 
 
 -----
@@ -26763,22 +17687,15 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 ##### 2868#       发表于 2017-7-16 15:51
 
 
-
 <blockquote>水無燈里 发表于 2017-7-15 17:47
 這一集怎麼那麼二呀</blockquote>
 这两集满满的乙方按照甲方要求，草草做完交差的感觉，填充细节确保连贯的事儿都没了
-
-
-
-
-
 
 
 -----
 
 ####  浅野  
 ##### 2869#       发表于 2017-7-16 15:55
-
 
 
  本帖最后由 浅野 于 2017-7-16 19:06 编辑 
@@ -26795,16 +17712,10 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">有说法说，gbf世界是神击世界的反转世界……有些角色而这边在要封印or打巴哈，另外一边都是巴哈的使徒。
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 2870#       发表于 2017-7-16 17:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36593514&amp;ptid=1229445" target="_blank">浅野 发表于 2017-7-16 02:55</a>
@@ -26813,25 +17724,13 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 你自己反白的时候也别忘了给引用的部分反白啊
 
 
-
-
-
-
-
 -----
 
 ####  心灵的乳头  
 ##### 2871#       发表于 2017-7-16 17:56
 
 
-
-
 这期片尾路西法和阿尔萨谢的声音给给的啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26840,15 +17739,9 @@ PS：重看了下第一季最后一集，发现加百利最后亲自上阵打巴
 ##### 2872#       发表于 2017-7-16 18:09
 
 
-
 <blockquote>浅野 发表于 2017-7-16 15:55
 肯定是在玩梗吧。cy游戏很多都是围绕着巴哈转。公式选游戏原作角色过来动画这边都是有考量的。有剧透的地 ...</blockquote>
 cy这龙癌是不是因为原se成员比较多的原因。
-
-
-
-
-
 
 
 -----
@@ -26857,23 +17750,16 @@ cy这龙癌是不是因为原se成员比较多的原因。
 ##### 2873#       发表于 2017-7-16 18:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36594409&amp;ptid=1229445" target="_blank">qwxbtgb 发表于 2017-7-16 18:09</a>
 
 cy这龙癌是不是因为原se成员比较多的原因。</blockquote>
 因为se大佬妹子画得不如小辈萌，所以把重心转向巨兽了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 2874#       发表于 2017-7-16 18:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36592743&amp;ptid=1229445" target="_blank">DOACAON 发表于 2017-7-16 13:51</a>
@@ -26886,16 +17772,10 @@ cy这龙癌是不是因为原se成员比较多的原因。</blockquote>
 中国也好日本也罢，哪里的农村不是青壮年都进城务工，村里只有老人和留守儿童
 
 
-
-
-
-
-
 -----
 
 ####  浅野  
 ##### 2875#       发表于 2017-7-16 19:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36594220&amp;ptid=1229445" target="_blank">DOACAON 发表于 2017-7-16 17:46</a>
@@ -26904,16 +17784,10 @@ cy这龙癌是不是因为原se成员比较多的原因。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">编辑了！！谢谢提醒
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 2876#       发表于 2017-7-16 19:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36594749&amp;ptid=1229445" target="_blank">hgcg-w 发表于 2017-7-16 05:59</a>
@@ -26924,16 +17798,10 @@ cy这龙癌是不是因为原se成员比较多的原因。</blockquote>
 现实是工业社会，片中是农业社会谢谢
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 2877#       发表于 2017-7-16 19:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36594409&amp;ptid=1229445" target="_blank">qwxbtgb 发表于 2017-7-16 18:09</a>
@@ -26942,21 +17810,13 @@ cy这龙癌是不是因为原se成员比较多的原因。</blockquote>
 其实……神击的巴哈姆特虽然是这个名字但整个游戏剧情和基本和巴哈姆特没一点关系……纯粹是背景板的一类东西
 
 
-
-
 以前有传闻是cy社长非常喜欢巴哈……不过cy社长渡边更一这人低调到爆炸
-
-
-
-
-
 
 
 -----
 
 ####  hgcg-w  
 ##### 2878#       发表于 2017-7-16 19:23
-
 
 
  本帖最后由 hgcg-w 于 2017-7-16 19:27 编辑 
@@ -26968,16 +17828,10 @@ cy这龙癌是不是因为原se成员比较多的原因。</blockquote>
 还有你见过高达到处走的农业社会？
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 2879#       发表于 2017-7-16 19:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36593514&amp;ptid=1229445" target="_blank">浅野 发表于 2017-7-16 15:55</a>
@@ -26986,20 +17840,13 @@ cy这龙癌是不是因为原se成员比较多的原因。</blockquote>
 应该没啥深意，多半是随便找了几个代表性角色而已路的设定完全是没丝毫关系的，那边堕落的路西法可是苦大仇深一心灭世.米斯塔路西亚被路西法毁了无数次了都……
 
 
-
 另外GBF那头这些玩意都是星晶兽，再强还是被星民奴役的存在，比巴哈里的差太多了……
-
-
-
-
-
 
 
 -----
 
 ####  DOACAON  
 ##### 2880#       发表于 2017-7-16 19:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36594913&amp;ptid=1229445" target="_blank">hgcg-w 发表于 2017-7-16 06:23</a>
@@ -27012,16 +17859,10 @@ cy这龙癌是不是因为原se成员比较多的原因。</blockquote>
 动画里为什么不能讲社会学了？“正常”的奇幻世界观里不会有一整个村的青壮全在外打工的状况，除非是打仗被拉壮丁——更不要说这村里的每个男人少说也能顶几十个普通人类
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 2881#       发表于 2017-7-16 19:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36595039&amp;ptid=1229445" target="_blank">DOACAON 发表于 2017-7-16 19:40</a>
@@ -27038,16 +17879,10 @@ cy这龙癌是不是因为原se成员比较多的原因。</blockquote>
 算了，你开心就好
 
 
-
-
-
-
-
 -----
 
 ####  楽園のエル  
 ##### 2882#       发表于 2017-7-16 19:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36594962&amp;ptid=1229445" target="_blank">センコウ 发表于 2017-7-16 19:30</a>
@@ -27059,16 +17894,10 @@ GBF还不好说 感觉角色路召唤路和路西法是三个独立的存在。
 神巴的堕天路我感觉还是被动堕天的？玩家穿越时空救了一次。【没玩过神巴 只看过一些剧情对话截图……有没有玩过的科普一下？<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Renes  
 ##### 2883#       发表于 2017-7-16 19:53
-
 
 
  本帖最后由 Renes 于 2017-7-16 19:58 编辑 
@@ -27080,16 +17909,10 @@ GBF还不好说 感觉角色路召唤路和路西法是三个独立的存在。
 首先 他们居住的地方目前看并没有耕地 而且也不像有适合农耕的大面积土地 多半他们的信仰也不允许毁掉森林开垦农田 同时 女性完全可以胜任所有重体力劳动 包括建造耕耘狩猎 甚至效率可以数倍于人类成年男性了 正常龙族男性外出务工赚钱 怎么也比窝在重体力劳力过剩的家乡待着强啊 大部分女性不方便外出主要还是在于照看孩子的问题上 像妮娜的母亲作为普通人就会帮双亲都外出的家庭照料孩子 这帮龙一个人就是一辆拖拉机+起重机+卡车+飞机啥啥啥的了 
 
 
-
-
-
-
-
 -----
 
 ####  qwxbtgb  
 ##### 2884#       发表于 2017-7-16 19:56
-
 
 
 <blockquote>DOACAON 发表于 2017-7-16 19:40
@@ -27099,16 +17922,10 @@ GBF还不好说 感觉角色路召唤路和路西法是三个独立的存在。
 每个男人，没说男的全是龙吧，说不定男的上龙呢。
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 2885#       发表于 2017-7-16 19:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36595114&amp;ptid=1229445" target="_blank">hgcg-w 发表于 2017-7-16 06:52</a>
@@ -27121,16 +17938,10 @@ GBF还不好说 感觉角色路召唤路和路西法是三个独立的存在。
 什么较真？我的意思是这也许是一个伏笔
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 2886#       发表于 2017-7-16 20:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36595139&amp;ptid=1229445" target="_blank">qwxbtgb 发表于 2017-7-16 06:56</a>
@@ -27143,16 +17954,10 @@ GBF还不好说 感觉角色路召唤路和路西法是三个独立的存在。
 而且妮娜家不就是爸爸是龙？
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 2887#       发表于 2017-7-16 20:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36595168&amp;ptid=1229445" target="_blank">DOACAON 发表于 2017-7-16 20:00</a>
@@ -27165,22 +17970,15 @@ GBF还不好说 感觉角色路召唤路和路西法是三个独立的存在。
 对啊，所以全家力气最大的男龙都进城打工去了呗
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 2888#       发表于 2017-7-16 20:05
 
 
-
  本帖最后由 センコウ 于 2017-7-16 20:08 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36595120&amp;ptid=1229445" target="_blank">楽園のエル 发表于 2017-7-16 19:53</a></blockquote>
 巴哈我就不反白了，反正古老物也不怕剧透了
-
 
 
 路开始是早期的最终boss类角色，后续扯出来当时大天使时候的上司绝对神アルビテル，在幕后操纵ミスタルシア的黑幕
@@ -27189,29 +17987,19 @@ GBF还不好说 感觉角色路召唤路和路西法是三个独立的存在。
 路堕天也是因为他搞的，于是苦大仇深的要灭世。然后3周年活动就是路西法灭世，ミスタルシア被拆了无数次，然后就是莫妮卡啥的来找主角然后穿越时空跑回路西法堕落前搞清楚前因后果，最后大家联手干翻アルビテル大团圆
 
 
-
 现在的路已经是个送主角自己的羽毛的好基友了
-
 
 
 之后大BOSS就是4周年的混沌之暗（已洗白），然后5周年的跑出ミスタルシア到了新世界，出来个大boss外界の理
 
 
-
-
 至于在GBF那剧情关键的巴哈在神击里面真是个背景板而已……
-
-
-
-
-
 
 
 -----
 
 ####  DOACAON  
 ##### 2889#       发表于 2017-7-16 20:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36595124&amp;ptid=1229445" target="_blank">Renes 发表于 2017-7-16 06:53</a>
@@ -27222,26 +18010,15 @@ GBF还不好说 感觉角色路召唤路和路西法是三个独立的存在。
 出门务工却又不提升家人的生活水平，那出门有什么意思吗？村里劳动力过剩，那可以三天打鱼两天晒网啊，摸个鱼又不会饿死
 
 
-
-
-
-
-
 -----
 
 ####  Renes  
 ##### 2890#       发表于 2017-7-16 20:14
 
 
-
 <blockquote>DOACAON 发表于 2017-7-16 20:07
 问题在于龙的生活水平并没有比普通村民高，最多也不过是吃得多点，但也就是3～5个人饭量的程度，不是一条 ...</blockquote>
 为什么你会觉得他们的生活水平不高？这个社会背景下衣食住全能满足还能再怎么好 而这个满足就是外出务工赚来的 他们那也不是与世隔绝 也是挨着村子镇子的 起码以他们的脚力 去附近买个东西还是轻松的 我飞到附近的城镇可以买烤好的肉种出来的蔬菜水果新烤的面包 为什么还要狩猎采集啊…而买这些的钱不就是外出打工赚来的…他们那地方没有农业没有工艺 钱不就靠干活赚吗
-
-
-
-
-
 
 
 -----
@@ -27250,23 +18027,16 @@ GBF还不好说 感觉角色路召唤路和路西法是三个独立的存在。
 ##### 2891#       发表于 2017-7-16 20:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36595196&amp;ptid=1229445" target="_blank">センコウ 发表于 2017-7-16 20:05</a>
 
 巴哈我就不反白了，反正古老物也不怕剧透了</blockquote>
 多谢！穿越时空活动剧情看过截图 是送炽天使路？那炽天使路和堕天路在神巴并存吗……
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 2892#       发表于 2017-7-16 20:30
-
 
 
  本帖最后由 センコウ 于 2017-7-16 20:35 编辑 
@@ -27276,22 +18046,15 @@ GBF还不好说 感觉角色路召唤路和路西法是三个独立的存在。
 天使路是抽的
 
 
-
 毕竟是过去的时间点……
 
 记得好像是改了几次时间线发现都是badending，然后折腾到最后大团圆还是堕天的
-
-
-
-
-
 
 
 -----
 
 ####  浅野  
 ##### 2893#       发表于 2017-7-16 20:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36594962&amp;ptid=1229445" target="_blank">センコウ 发表于 2017-7-16 19:30</a>
@@ -27301,16 +18064,10 @@ GBF还不好说 感觉角色路召唤路和路西法是三个独立的存在。
 <img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">星晶路要和星之民路之后要打起来的节奏。
 
 
-
-
-
-
-
 -----
 
 ####  Byarlant  
 ##### 2894#       发表于 2017-7-16 20:43
-
 
 
  本帖最后由 Byarlant 于 2017-7-16 20:48 编辑 
@@ -27326,16 +18083,10 @@ GBF还不好说 感觉角色路召唤路和路西法是三个独立的存在。
 巴哈是CY的产品轴心，用来粘合很多作品的。
 
 
-
-
-
-
-
 -----
 
 ####  Byarlant  
 ##### 2895#       发表于 2017-7-16 20:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36590503&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-16 07:45</a>
@@ -27344,16 +18095,10 @@ GBF还不好说 感觉角色路召唤路和路西法是三个独立的存在。
 补强是应该的，按照游戏早期标准，人类阵营的实力也要再飙升几个级数，只能说第一季定位太低了。
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2896#       发表于 2017-7-16 21:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36591775&amp;ptid=1229445" target="_blank">HLGG2 发表于 2017-7-16 11:37</a>
@@ -27362,16 +18107,10 @@ GBF还不好说 感觉角色路召唤路和路西法是三个独立的存在。
 现在的剧情来看就是这感觉<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">。
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2897#       发表于 2017-7-16 21:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36595447&amp;ptid=1229445" target="_blank">Byarlant 发表于 2017-7-16 20:43</a>
@@ -27380,16 +18119,10 @@ GBF还不好说 感觉角色路召唤路和路西法是三个独立的存在。
 游戏和动画完全不是一个战力设定，为啥你全拿游戏套......游戏里比宙斯和撒旦强的神魔一大堆，动画里是宙斯撒旦默认神魔最强，现在动画建立了一套自己的战力排位和设定，你不能拿游戏套吧。很多游戏改的动画都和原著出入很大，这不是业界的平常事么。
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 2898#       发表于 2017-7-16 21:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36595568&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-16 21:04</a>
@@ -27398,16 +18131,10 @@ GBF还不好说 感觉角色路召唤路和路西法是三个独立的存在。
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">其实游戏里比撒旦强的没几个，只是撒旦已经彻底成捏他角色了每年大晦日拖出来打一顿……
 
 
-
-
-
-
-
 -----
 
 ####  浅野  
 ##### 2899#       发表于 2017-7-16 21:08
-
 
 
  本帖最后由 浅野 于 2017-7-16 21:09 编辑 
@@ -27422,16 +18149,10 @@ GBF还不好说 感觉角色路召唤路和路西法是三个独立的存在。
 <img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">照这个道理BD特典SSR确定卷的神击池up的召唤石路？
 
 
-
-
-
-
-
 -----
 
 ####  楽園のエル  
 ##### 2900#       发表于 2017-7-16 21:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36595363&amp;ptid=1229445" target="_blank">センコウ 发表于 2017-7-16 20:30</a>
@@ -27440,26 +18161,14 @@ GBF还不好说 感觉角色路召唤路和路西法是三个独立的存在。
 23333 骑士为了收后宫也是很拼×【顿时很想去玩神巴×
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 2901#       发表于 2017-7-16 21:45
 
 
-
-
 草莓声优出道要比小公主早……
 <img src="http://wx2.sinaimg.cn/large/9657fdc2gy1fhm25fbbtdj20zk0k0dhx.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27468,16 +18177,10 @@ GBF还不好说 感觉角色路召唤路和路西法是三个独立的存在。
 ##### 2902#       发表于 2017-7-16 21:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36595594&amp;ptid=1229445" target="_blank">浅野 发表于 2017-7-16 21:08</a>
 
 gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的意思还是指神击的绝对神），天司长路，星 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">角色路的武器自带堕天FLAG。总感觉是路西奥被大巴甩了以后收拾烂摊子蹲成怨妇，然后把负面部分切了丢掉成了路西法 路西法发挥本体自恋的极致做了路西菲尔以下略……路西奥自称原役者也有种不愿继续扮演原来既定的角色的味道在里面
-
-
-
-
-
 
 
 -----
@@ -27486,16 +18189,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 ##### 2903#       发表于 2017-7-16 22:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36585327&amp;ptid=1229445" target="_blank">干了个爽之后 发表于 2017-7-15 13:18</a>
 
 路西法不愧是读书人，眼光就是长远</blockquote>
 读书读到脑壳坏掉的巧克力也曾经忽悠过一堆人。
-
-
-
-
-
 
 
 -----
@@ -27504,23 +18201,16 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 ##### 2904#       发表于 2017-7-16 22:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36595591&amp;ptid=1229445" target="_blank">センコウ 发表于 2017-7-16 21:07</a>
 
 其实游戏里比撒旦强的没几个，只是撒旦已经彻底成捏他角色了每年大晦日拖出来打一顿…… ...</blockquote>
 其实我就是想说不能太过拿游戏的设定来套动画。
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 2905#       发表于 2017-7-16 22:17
-
 
 
  本帖最后由 DOACAON 于 2017-7-16 09:18 编辑 
@@ -27535,32 +18225,19 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 另外谁说龙族没工艺的？妮娜妈妈做的编织，以及族长奶奶家的那些挂毯（？）都显示了龙族也是祖传的编织工艺的
 
 
-
-
-
-
-
 -----
 
 ####  蓝莲安  
 ##### 2906#       发表于 2017-7-16 23:08
 
 
-
-
 迟了两周的感慨：<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">ED里的龙真可爱
-
-
-
-
-
 
 
 -----
 
 ####  bandage_n2_ki  
 ##### 2907#       发表于 2017-7-17 08:08
-
 
 
 <blockquote>DOACAON 发表于 2017-7-16 22:17
@@ -27570,16 +18247,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 编制啊挂毯啊在城里人看来粗糙程度接近磨砂纸了吧。
 
 
-
-
-
-
-
 -----
 
 ####  Renes  
 ##### 2908#       发表于 2017-7-17 10:55
-
 
 
  本帖最后由 Renes 于 2017-7-17 11:05 编辑 
@@ -27597,17 +18268,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 另外妮娜应该有把钱寄给家里 她自己本身又是没有奢侈欲望的单纯性格 又不需要买房对好看的衣服和首饰也没兴趣 还吃的多 但至少从她给艾尔买东西来看 她并不是没钱 只是她自己只要吃饱开心就好
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2909#       发表于 2017-7-17 11:20
-
-
 
 
 打猎或者自家工艺品直接拿去卖这的收获大家都知道比市价低得多，直接换了稳定的货币买买买，而且体力劳动又不是大事，选择出去务工不是很正常的思路吗
@@ -27616,32 +18280,19 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  新屋  
 ##### 2910#       发表于 2017-7-17 11:39
 
 
-
-
 龙族出去当雇佣兵喷一圈都比搬砖挣得多
-
-
-
-
-
 
 
 -----
 
 ####  hgcg-w  
 ##### 2911#       发表于 2017-7-17 12:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36599974&amp;ptid=1229445" target="_blank">新屋 发表于 2017-7-17 11:39</a>
@@ -27654,16 +18305,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 还是搬砖这种多快好省心安理得
 
 
-
-
-
-
-
 -----
 
 ####  TheOccuria  
 ##### 2912#       发表于 2017-7-19 09:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36591007&amp;ptid=1229445" target="_blank">nage560 发表于 2017-7-16 09:40</a>
@@ -27676,16 +18321,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 当然，国王毕竟是总裁，这集艾尔也犯中二了，等妮娜拯救人类好了
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2913#       发表于 2017-7-19 15:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36618696&amp;ptid=1229445" target="_blank">TheOccuria 发表于 2017-7-19 09:16</a>
@@ -27694,17 +18333,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 现在看样子很可能是妮娜帮国王赎罪。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2914#       发表于 2017-7-20 23:45
-
-
 
 
 ◆#16「City of the Gods, Part 2」あらすじ
@@ -27724,27 +18356,15 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fhqs2g8quij20hs0a0wfz.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  bandage_n2_ki  
 ##### 2915#       发表于 2017-7-20 23:53
 
 
-
-
 鸭鸭可爱
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (Microsoft Lumia 640XL)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
@@ -27753,15 +18373,8 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 ##### 2916#       发表于 2017-7-21 00:08
 
 
-
-
 把阿萨谢尔这个装逼犯送竞技场还好，笑料不少。
 把凯撒也送竞技场过分了，当众羞辱骑士。
-
-
-
-
-
 
 
 -----
@@ -27770,17 +18383,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 ##### 2917#       发表于 2017-7-21 03:26
 
 
-
-
 凯撒之前已经被普通骑士群殴了…
 
 
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
-
-
-
-
-
 
 
 -----
@@ -27789,14 +18395,7 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 ##### 2918#       发表于 2017-7-21 07:14
 
 
-
-
 凯撒和阿萨谢尔打，皇帝坐上面看吗😂
-
-
-
-
-
 
 
 -----
@@ -27805,16 +18404,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 ##### 2919#       发表于 2017-7-21 10:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36639487&amp;ptid=1229445" target="_blank">薛定谔的助手 发表于 2017-7-21 07:14</a>
 
 凯撒和阿萨谢尔打，皇帝坐上面看吗😂</blockquote>
 估计是，皇帝少有的乐趣就是看那些和自己理念相勃的人自己吃瘪。让救恶魔的角斗杀恶魔，然后嚷嚷互相理解的那个也去角斗一下吧。不过估计最后二人协作逃了。
-
-
-
-
-
 
 
 -----
@@ -27823,14 +18416,7 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 ##### 2920#       发表于 2017-7-21 10:50
 
 
-
-
 阿,眼镜娘天使好看
-
-
-
-
-
 
 
 -----
@@ -27839,21 +18425,13 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 ##### 2921#       发表于 2017-7-21 22:40
 
 
-
-
 眼镜娘天使颇有兰斯世界的风格
-
-
-
-
-
 
 
 -----
 
 ####  HGCG3  
 ##### 2922#       发表于 2017-7-22 01:32
-
 
 
  本帖最后由 HGCG3 于 2017-7-22 01:45 编辑 
@@ -27867,16 +18445,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 <img src="https://wx4.sinaimg.cn/large/9657fdc2gy1fhs13rrkkpj20zk0k040p.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2923#       发表于 2017-7-22 04:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36649507&amp;ptid=1229445" target="_blank">HGCG3 发表于 2017-7-22 01:32</a>
@@ -27885,16 +18457,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 是女装大佬
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2924#       发表于 2017-7-22 04:32
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">不过不考虑胸罩的问题我真的觉得他们俩互换衣服后还比较好看
@@ -27905,32 +18471,19 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 法瓦罗活蹦乱跳屁事没有都可以额外搞个番外了
 
 
-
-
-
-
-
 -----
 
 ####  dafangwoo  
 ##### 2925#       发表于 2017-7-22 05:09
 
 
-
-
 第三张图看着像是上色失误？
-
-
-
-
-
 
 
 -----
 
 ####  pzk  
 ##### 2926#       发表于 2017-7-22 07:07
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">怎么还要把手还回去的
@@ -27944,26 +18497,14 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 大概能从黑甲兵没有及时阻止法瓦罗推断出国王身边的兵力已经不多了？
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 2927#       发表于 2017-7-22 07:48
 
 
-
-
 转眼8年了
 <img src="http://wx1.sinaimg.cn/large/9657fdc2gy1fhsbpmych0j20cg0e5jsk.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27972,14 +18513,7 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 ##### 2928#       发表于 2017-7-22 10:35
 
 
-
-
 这集进展不多，两拨人逃跑，这国王怎么又一股一切尽在掌握的样子，你手腕都快变异了还不急<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27988,21 +18522,13 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 ##### 2929#       发表于 2017-7-22 10:49
 
 
-
-
 国王老是一副尽在掌握在的表情，好像看国王吃瘪啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  567844  
 ##### 2930#       发表于 2017-7-22 10:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36596047&amp;ptid=1229445" target="_blank">DOACAON 发表于 2017-7-16 22:17</a>
@@ -28013,16 +18539,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 你觉得周围的野兽狗这帮变态打的么
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 2931#       发表于 2017-7-22 11:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36651295&amp;ptid=1229445" target="_blank">567844 发表于 2017-7-21 21:55</a>
@@ -28031,16 +18551,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 如果不够，就说明龙这种生物是个笑话——在野生条件下他们能把自己饿死，是不依附于人类就生活不下去的寄生虫
 
 
-
-
-
-
-
 -----
 
 ####  HGCG3  
 ##### 2932#       发表于 2017-7-22 11:58
-
 
 
 <blockquote>DOACAON 发表于 2017-7-22 11:25
@@ -28052,27 +18566,15 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 为了论证自己凭空的一个"伏笔"，都上纲上线了，简直荒唐可笑
 
 
-
-
-
-
-
 -----
 
 ####  bandage_n2_ki  
 ##### 2933#       发表于 2017-7-22 12:07
 
 
-
-
 嗯妮娜衣服的罩杯是硬的
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (Microsoft Lumia 640XL)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
@@ -28081,21 +18583,13 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 ##### 2934#       发表于 2017-7-22 12:22
 
 
-
-
 拍脑子想出来的东西就让它去了吧，漫区这种玩意数不胜数，再拉出来提的人也是同罪
-
-
-
-
-
 
 
 -----
 
 ####  木帜  
 ##### 2935#       发表于 2017-7-22 12:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36650133&amp;ptid=1229445" target="_blank">pzk 发表于 2017-7-22 07:07</a>
@@ -28107,32 +18601,19 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 我也奇怪，之前欧皇看比赛好像没有黑甲兵护驾
 
 
-
-
-
-
-
 -----
 
 ####  agion117  
 ##### 2936#       发表于 2017-7-22 12:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">总觉得这走向越来越奇怪了……两边打到最后又要相互理解吗
-
-
-
-
-
 
 
 -----
 
 ####  shimotsuki14  
 ##### 2937#       发表于 2017-7-22 13:18
-
-
 
 
 下一集要点个题了吗……
@@ -28142,32 +18623,19 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 留了贞德一个人在天界，好惨啊
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2938#       发表于 2017-7-22 13:23
 
 
-
-
 按照編劇的德性，VIRGIN指的是啥還真不好說
-
-
-
-
-
 
 
 -----
 
 ####  DOACAON  
 ##### 2939#       发表于 2017-7-22 13:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36651753&amp;ptid=1229445" target="_blank">HGCG3 发表于 2017-7-21 22:58</a>
@@ -28184,32 +18652,19 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 你要说“凭空”那还真是彼此彼此，动画都明确拍出了龙族进食的场景，还是有人偏要臆想一个村的龙就能把山吃空或是他们还要吃些村子里弄不到的食物
 
 
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 2940#       发表于 2017-7-22 14:05
 
 
-
-
 我相信酒神和鸭皇一定是装睡的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  hgcg-w  
 ##### 2941#       发表于 2017-7-22 16:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36652658&amp;ptid=1229445" target="_blank">DOACAON 发表于 2017-7-22 13:53</a>
@@ -28224,16 +18679,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 信不信环卫工人车间职工工地民工一人一巴掌拍死你？
 
 
-
-
-
-
-
 -----
 
 ####  Renes  
 ##### 2942#       发表于 2017-7-22 17:55
-
 
 
 <blockquote>DOACAON 发表于 2017-7-22 13:53
@@ -28243,16 +18692,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 哪怕是石器时代的原始人 也经常在某个地方猎物捕杀到一定程度+人口规模扩大时选择迁徙 古代人类迁徙除了环境气候变化就是寻找更多资源 你既不知道龙族的历史和发展情况 也不知道他们周边的生存环境这些是不是在随着时间变化 张嘴就来打工不如狩猎 照你这么说人类发明了弓箭和**后干嘛还要养殖啊 就算山吃不空 去文明社会打工赚钱买东西也比靠山吃山狩猎采摘这种不稳定又麻烦的方式活的舒服的多 还可以长时间的定居在一个地方 反正龙族现在外出打工赚钱 家乡好吃好喝 他们既然选择 不用你在那脑补操心人家怎么能活的更好 还寄生虫？自己干活丰衣足食叫什么寄生虫？
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 2943#       发表于 2017-7-22 18:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36654262&amp;ptid=1229445" target="_blank">Renes 发表于 2017-7-22 17:55</a>
@@ -28261,16 +18704,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 说明他暴露了自己歧视基层劳动者的心态
 
 
-
-
-
-
-
 -----
 
 ####  Nico_Minoru  
 ##### 2944#       发表于 2017-7-22 18:15
-
 
 
  本帖最后由 Nico_Minoru 于 2017-7-22 18:18 编辑 
@@ -28282,16 +18719,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 行了，不会光合作用和化能合成作用的都是寄生虫！？
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 2945#       发表于 2017-7-22 18:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36653843&amp;ptid=1229445" target="_blank">hgcg-w 发表于 2017-7-22 03:50</a>
@@ -28307,16 +18738,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 有眼疾请尽早就医，把工人排除出人类之外信不信工人一人一巴掌拍死你？
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 2946#       发表于 2017-7-22 18:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36654589&amp;ptid=1229445" target="_blank">DOACAON 发表于 2017-7-22 18:37</a>
@@ -28334,16 +18759,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 你倒不用就医了，有的毛病一辈子治不好
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 2947#       发表于 2017-7-22 19:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36654262&amp;ptid=1229445" target="_blank">Renes 发表于 2017-7-22 04:55</a>
@@ -28362,16 +18781,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 当然，最主要的原因——看OP，妮娜那画面的背景是爸爸牺牲。通常来说，既然能上OP就说明“幼年丧父”是妮娜这个人物的重要元素。既然如此，理应在回乡剧情中让妮娜家和其他人家进行对比。然而实际上，全村都是留守家庭，不管是有爹的孩子还是没爹的孩子都跟没爹一样，这反而是弱化了妮娜丧父这个元素。如果不是OP制作组和编剧之间交流有差错，那就只能是编剧水平不行和编剧有意为之这二选一了。
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 2948#       发表于 2017-7-22 19:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36654373&amp;ptid=1229445" target="_blank">hgcg-w 发表于 2017-7-22 05:09</a>
@@ -28380,17 +18793,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 恩，“猎人是比劳工高层次的劳动者”，你有本事把这句话对着劳工的面说一声试试
 
 
-
-
-
-
-
 -----
 
 ####  bandage_n2_ki  
 ##### 2949#       发表于 2017-7-22 19:21
-
-
 
 
 本集Cpart……让我产生了凯撒在走通了法瓦罗线和阿萨谢谢顶线后攻略国王线了的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -28400,17 +18806,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 心疼一波丽塔<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  尔冬  
 ##### 2950#       发表于 2017-7-22 19:25
-
-
 
 
 8年23333
@@ -28424,16 +18823,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 这话看得特别开心啊，很喜欢钉宫救妮娜那里，难得天空接手戏感觉很自然
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 2951#       发表于 2017-7-22 19:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36654909&amp;ptid=1229445" target="_blank">DOACAON 发表于 2017-7-22 19:19</a>
@@ -28464,16 +18857,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 别KY了
 
 
-
-
-
-
-
 -----
 
 ####  Renes  
 ##### 2952#       发表于 2017-7-22 19:45
-
 
 
  本帖最后由 Renes 于 2017-7-22 20:00 编辑 
@@ -28500,17 +18887,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 你非要一意孤行的觉得龙就应该自给自足 不和人类社会接触也能过的好 而无视人家现在就是融入人类社会 工作拿钱买食物活的还很好的事实 那我只能说你开心就好 
 
 
-
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 2953#       发表于 2017-7-22 20:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36654963&amp;ptid=1229445" target="_blank">hgcg-w 发表于 2017-7-22 06:27</a>
@@ -28529,16 +18909,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 看演出看表演看作画看剧情？那你倒是说说这剧情把一个丧父的女主放到一群留守家庭之间算什么意思？这种弱化妮娜丧父的举动已经相当刻意了，你要讨论剧情倒是给这个来个解释呢？你要看演出那解释一下OP为什么突出这点呢？你倒是看了啥了？
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 2954#       发表于 2017-7-22 20:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36655084&amp;ptid=1229445" target="_blank">Renes 发表于 2017-7-22 06:45</a>
@@ -28553,16 +18927,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 同理，你非要觉得编剧把一个丧父少女塞到一群留守儿童中是很正常的，那我也只能随便你。我不觉得大石静会那么欠考虑，你不能接受这个想法那这话题就结了吧。
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 2955#       发表于 2017-7-22 20:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36655202&amp;ptid=1229445" target="_blank">DOACAON 发表于 2017-7-22 20:01</a>
@@ -28577,16 +18945,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 你应该为自己的无知感到羞愧
 
 
-
-
-
-
-
 -----
 
 ####  Nico_Minoru  
 ##### 2956#       发表于 2017-7-22 20:33
-
 
 
  本帖最后由 Nico_Minoru 于 2017-7-22 20:39 编辑 
@@ -28595,16 +18957,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 不是滑坡到植物层面，化能合成一般是微生物的。我用的是和，也就是滑坡到万物皆寄生啦。另外寄生的定义还是自己好好查查吧，和捕食、共生、竞争等生态学概念最好区分清楚
 
 
-
-
-
-
-
 -----
 
 ####  Renes  
 ##### 2957#       发表于 2017-7-22 20:48
-
 
 
 <blockquote>DOACAON 发表于 2017-7-22 20:15
@@ -28621,17 +18977,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 顺便 我真不觉得丧父少女和留守儿童在一起有什么不妥 一个设定只要有可以合理实现的条件和假设 那他就是合理的 其他一切不可能的条件和假设都是无意义的 因为归根结底 这些东西都不需要在剧中交代
 
 
-
-
-
-
-
 -----
 
 ####  旁路母线断路器  
 ##### 2958#       发表于 2017-7-22 21:15
-
-
 
 
 健忘症患者问一句，洛基身（？）上这个疤痕的来历是什么？
@@ -28640,16 +18989,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 <img src="http://photo.weibo.com/1278374282/wbphotos/large/mid/4132420292715954/pid/4c32718agy1fhsz0azqqfj20nx0frdrm" id="aimg_u1AnG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
-
-
-
-
-
 -----
 
 ####  Renes  
 ##### 2959#       发表于 2017-7-22 21:36
-
 
 
 <blockquote>旁路母线断路器 发表于 2017-7-22 21:15
@@ -28661,25 +19004,13 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 手断了以后必须得咬一口才能变僵尸啊
 
 
-
-
-
-
-
 -----
 
 ####  望月狐  
 ##### 2960#       发表于 2017-7-22 22:29
 
 
-
-
 万万没想到，你们居然都是凯撒的后宫 XDD
-
-
-
-
-
 
 
 -----
@@ -28688,14 +19019,7 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 ##### 2961#       发表于 2017-7-22 22:31
 
 
-
-
 妮娜你个浓眉大眼的吃嫩草也是很行的嘛。
-
-
-
-
-
 
 
 -----
@@ -28704,16 +19028,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 ##### 2962#       发表于 2017-7-22 22:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36656423&amp;ptid=1229445" target="_blank">云梦泽岸 发表于 2017-7-22 22:31</a>
 
 妮娜你个浓眉大眼的吃嫩草也是很行的嘛。</blockquote>
 这是妮娜上辈子和阿尔方斯的缘分你不要乱说
-
-
-
-
-
 
 
 -----
@@ -28722,16 +19040,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 ##### 2963#       发表于 2017-7-22 23:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36656423&amp;ptid=1229445" target="_blank">云梦泽岸 发表于 2017-7-22 22:31</a>
 
 妮娜你个浓眉大眼的吃嫩草也是很行的嘛。</blockquote>
 睡也睡过了，两个人衣服都换过了，还有什么不能……<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28740,14 +19052,7 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 ##### 2964#       发表于 2017-7-23 00:02
 
 
-
-
 好不容易某个国王黑不出声了你们怎么又撕逼了
-
-
-
-
-
 
 
 -----
@@ -28756,24 +19061,15 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 ##### 2965#       发表于 2017-7-23 02:08
 
 
-
-
 看reddit说第17话Virgin Soul标题杀，国王又是シャリオス17世，突然明白了什么<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 感觉很大可能是类似贞德那样的国王个人回？
-
-
-
-
-
 
 
 -----
 
 ####  断裂的歌谣  
 ##### 2966#       发表于 2017-7-23 02:26
-
-
 
 
 现在脉络已经很清晰了，猜一下接下来的走向吧。
@@ -28795,16 +19091,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 全剧终。
 
 
-
-
-
-
-
 -----
 
 ####  collincollin  
 ##### 2967#       发表于 2017-7-23 02:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36657953&amp;ptid=1229445" target="_blank">断裂的歌谣 发表于 2017-7-23 02:26</a>
@@ -28817,16 +19107,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 阿米拉呢
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 2968#       发表于 2017-7-23 05:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36655317&amp;ptid=1229445" target="_blank">hgcg-w 发表于 2017-7-22 07:18</a>
@@ -28851,16 +19135,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 我不知道你对自己的生物有多少自信，但似乎你常在做翻译，那么请你先学会使用中文。
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 2969#       发表于 2017-7-23 06:30
-
 
 
 <blockquote>断裂的歌谣 发表于 2017-7-23 02:26
@@ -28883,20 +19161,13 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 路西法削了特效，但还是太imba。目测依旧是最后才露脸的待遇...
 
 
-
 比较好奇为什么大石静还特别提一句压力山大的悲剧一生...动画只剩1/3了，现有的铺垫还远不够吧
-
-
-
-
-
 
 
 -----
 
 ####  DOACAON  
 ##### 2970#       发表于 2017-7-23 06:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36655558&amp;ptid=1229445" target="_blank">Renes 发表于 2017-7-22 07:48</a>
@@ -28916,16 +19187,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 试想如果剧本中其他龙族孩子都在父亲身边，唯独妮娜单亲，却依然让她保持乐观，这才能强调这个角色的性格。但在现在这个剧本中，观众就无法否定“反正大家都不怎么见得到父亲，所以妮娜也就不太在乎”这个解释的可能性。一个理应被强化的剧情反而被有没有无所谓的设定弱化了，如果这不是编剧别有所图的话，我只能认为这是编剧水平不佳的标志了——但这不应该是一个资深编剧会犯的错误啊。
 
 
-
-
-
-
-
 -----
 
 ####  HGCG3  
 ##### 2971#       发表于 2017-7-23 06:33
-
 
 
  本帖最后由 HGCG3 于 2017-7-23 06:56 编辑 
@@ -28959,32 +19224,19 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 破绽百出的思路被不止一个人反驳，自己还自鸣得意
 
 
-
-
-
-
-
 -----
 
 ####  枇杷树  
 ##### 2972#       发表于 2017-7-23 08:25
 
 
-
-
 上集艾尔的中二发言中二到我都看尴尬了，这集一看，还是逃走了比较好，加百列这种坑货领导躲远点才对
-
-
-
-
-
 
 
 -----
 
 ####  Renes  
 ##### 2973#       发表于 2017-7-23 10:06
-
 
 
  本帖最后由 Renes 于 2017-7-23 10:37 编辑 
@@ -29003,17 +19255,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 至于男人外出打工有什么用？很有用啊 说明龙族不是一个保守封闭的种族 愿意外出交流愿意学习新东西 同时和平友善愿意和其他种族共存 比起窝在那满世界渔猎 更愿意去接触吸收别的文化和生活方式 最重要的是 没有这种风气 妮娜也不会那么顺理成章的出去闯荡 而妮娜父亲的死 更多的可能是要给妮娜和巴哈一种关系性 或者说对巴哈灾害一种具体的认知 
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 2974#       发表于 2017-7-23 10:48
-
-
 
 
 既然要扯生物学，那就应该知道，很多群体性动物中，雄性成年后都要离群的，目的是防止近亲交配
@@ -29027,16 +19272,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 觉得龙族生老病死都要在村里，要么你家也是一个村里世代通婚下来的
 
 
-
-
-
-
-
 -----
 
 ####  厨厨光波  
 ##### 2975#       发表于 2017-7-23 10:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36657113&amp;ptid=1229445" target="_blank">567844 发表于 2017-7-23 00:02</a>
@@ -29045,25 +19284,13 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 “必须要有一个巫妖王”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  HLGG2  
 ##### 2976#       发表于 2017-7-23 11:19
 
 
-
-
 这集逃跑看得好儿戏，魔族那边还有个脑子正常的路西法怎么天使这边从上到下都被弄得那么蠢呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29072,21 +19299,13 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 ##### 2977#       发表于 2017-7-23 11:49
 
 
-
-
 这话观感真好，可能两边脱逃的细节还差点，可能在某些人眼里有点gay，但大抵上所有人的动机交待的合情合理，且主角们终于难得的集体发挥了一次主观能动性
-
-
-
-
-
 
 
 -----
 
 ####  霧亥  
 ##### 2978#       发表于 2017-7-23 12:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36659592&amp;ptid=1229445" target="_blank">HLGG2 发表于 2017-7-23 11:19</a>
@@ -29096,26 +19315,15 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 —— 来自 samsung SM-G9500, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next) v1.2.1
 
 
-
-
-
-
-
 -----
 
 ####  Renes  
 ##### 2979#       发表于 2017-7-23 12:41
 
 
-
 <blockquote>HLGG2 发表于 2017-7-23 11:19
 这集逃跑看得好儿戏，魔族那边还有个脑子正常的路西法怎么天使这边从上到下都被弄得那么蠢呢 ...</blockquote>
 因为最聪明的三个天使因为做了正确的选择而被魔化的贞德捅死了
-
-
-
-
-
 
 
 -----
@@ -29124,17 +19332,10 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 ##### 2980#       发表于 2017-7-23 19:40
 
 
-
-
 结果发现原来凯撒是团队的核心人物。
 
 
 还有。。。。钉宫竟然开口说话了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29143,14 +19344,7 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 ##### 2981#       发表于 2017-7-23 22:53
 
 
-
-
 加百列梳毛笑死我了，有钱能在剧中表现这些看似“冗余”的细节画面真好
-
-
-
-
-
 
 
 -----
@@ -29159,14 +19353,7 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 ##### 2982#       发表于 2017-7-23 22:56
 
 
-
-
 另外妮娜艾尔配一脸有没有 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29175,103 +19362,46 @@ gbf能做到召唤石路（简介还是神击炽天使路的模板，主子的�
 ##### 2983#       发表于 2017-7-24 04:16
 
 
-
-
 龙村的其他人年龄生长速度到底什么样？重看前面几集，发现看妮娜小时候回忆，好几个小伙伴的发型发色，都和现在村子的小孩差不多。到底是龙二代，还是说就是长得慢的小伙伴？
-
-
-
-
 
 
 Screenshot_2017-07-24-04-10-18-893_tv.danmaku.bili.png
 (295.9 KB, 下载次数: 1)
 
 
-
-
 下载附件
 
 
 2017-7-24 04:13 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/24/041336sk6i5n6vuygk6ktn.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 Screenshot_2017-07-24-04-08-50-215_tv.danmaku.bili.png
 (295.27 KB, 下载次数: 1)
 
 
-
-
 下载附件
 
 
 2017-7-24 04:13 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/24/041346txolidpxxzcxo0o3.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 Screenshot_2017-07-24-04-09-33-224_tv.danmaku.bili.png
 (283.25 KB, 下载次数: 3)
 
 
-
-
 下载附件
 
 
 2017-7-24 04:13 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/24/041355jwwwgig43igmgwvw.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -29280,21 +19410,13 @@ Screenshot_2017-07-24-04-09-33-224_tv.danmaku.bili.png
 ##### 2984#       发表于 2017-7-24 13:53
 
 
-
-
 给里给气,凯撒撩妹子不会,撩男人一撩一个准.
-
-
-
-
-
 
 
 -----
 
 ####  素裸天狐  
 ##### 2985#       发表于 2017-7-24 14:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36660213&amp;ptid=1229445" target="_blank">Renes 发表于 2017-7-23 12:41</a>
@@ -29307,16 +19429,10 @@ Screenshot_2017-07-24-04-09-33-224_tv.danmaku.bili.png
 然而加百列在老家对着天使军“现在最需要警惕的是魔族”
 
 
-
-
-
-
-
 -----
 
 ####  Renes  
 ##### 2986#       发表于 2017-7-25 16:08
-
 
 
 <blockquote>漫区专号 发表于 2017-7-23 19:40
@@ -29327,17 +19443,10 @@ Screenshot_2017-07-24-04-09-33-224_tv.danmaku.bili.png
 毕竟也只有凯撒这性格适合干这事了 一个傲娇逗比恶魔一个今朝有酒今朝醉的赏金猎人 这俩哪个都不像是会出来主动团结队伍的 法瓦罗只适合当关键先生 不适合挑头 顺便法瓦罗明显是假装要溜走逗逗凯撒吧
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2987#       发表于 2017-7-27 23:56
-
-
 
 
 ■#17「Virgin Souls」
@@ -29355,25 +19464,13 @@ Screenshot_2017-07-24-04-09-33-224_tv.danmaku.bili.png
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fhyvol0t7xj20hs0a0780.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  shimotsuki14  
 ##### 2988#       发表于 2017-7-28 00:21
 
 
-
-
 惊了，鸭皇穿衣服了，莉塔这又是什么造型
-
-
-
-
-
 
 
 -----
@@ -29382,14 +19479,7 @@ Screenshot_2017-07-24-04-09-33-224_tv.danmaku.bili.png
 ##### 2989#       发表于 2017-7-28 00:25
 
 
-
-
 鸭皇你光穿个上衣有个卵用啊……欧金金还在外面啊
-
-
-
-
-
 
 
 -----
@@ -29398,16 +19488,10 @@ Screenshot_2017-07-24-04-09-33-224_tv.danmaku.bili.png
 ##### 2990#       发表于 2017-7-28 00:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36682577&amp;ptid=1229445" target="_blank">Renes 发表于 2017-7-25 16:08</a>
 
 毕竟也只有凯撒这性格适合干这事了 一个傲娇逗比恶魔一个今朝有酒今朝醉的赏金猎人 这俩哪个都不像是会出 ...</blockquote>
 凯撒那耿直又重情义的性格的确是适合当领队的料，背景和动机都这么复杂的队伍靠法瓦罗和莉塔都是团结不了的，不过后两者在各方面上也是凯撒必不可少的辅助
-
-
-
-
-
 
 
 -----
@@ -29416,25 +19500,16 @@ Screenshot_2017-07-24-04-09-33-224_tv.danmaku.bili.png
 ##### 2991#       发表于 2017-7-28 05:16
 
 
-
-
 丽塔！！！
 
 
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  bandage_n2_ki  
 ##### 2992#       发表于 2017-7-28 12:43
-
-
 
 
 丽塔这是什么杀生院造型…？
@@ -29444,25 +19519,13 @@ Screenshot_2017-07-24-04-09-33-224_tv.danmaku.bili.png
     —— from [S1 Nyan](http://126.am/S1Nyan) (Microsoft Lumia 640XL)来自: WindowsPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  大晓尧  
 ##### 2993#       发表于 2017-7-28 13:14
 
 
-
-
 丽塔的新造型看上去有点小恶魔，还挺可爱的。以及16集观感很好啊，我看巴哈的过渡集和日常集比看大战好看多了，这一帮人就不适合苦大仇深，以及凯撒的手到底是什么情况，能干不拖后腿及时送挂，仿佛有了自我意识，丽塔改造僵尸手还附带赋予灵识嘛。
-
-
-
-
-
 
 
 -----
@@ -29471,13 +19534,7 @@ Screenshot_2017-07-24-04-09-33-224_tv.danmaku.bili.png
 ##### 2994#       发表于 2017-7-28 13:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我赌结局是艾尔有了两个妈妈
-
-
-
-
-
 
 
 -----
@@ -29486,14 +19543,7 @@ Screenshot_2017-07-24-04-09-33-224_tv.danmaku.bili.png
 ##### 2995#       发表于 2017-7-28 22:57
 
 
-
-
 清纯可爱的莉德小天使真是各方面都太对我胃口了，简直天使界的一股清流
-
-
-
-
-
 
 
 -----
@@ -29502,14 +19552,7 @@ Screenshot_2017-07-24-04-09-33-224_tv.danmaku.bili.png
 ##### 2996#       发表于 2017-7-28 23:10
 
 
-
-
 利德第一眼看上去好像胡德<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29518,14 +19561,7 @@ Screenshot_2017-07-24-04-09-33-224_tv.danmaku.bili.png
 ##### 2997#       发表于 2017-7-29 01:23
 
 
-
-
 草莓被夺走了初吻！草莓获得了自由变身的能力！人皇成为了龙骑士！ ​​
-
-
-
-
-
 
 
 -----
@@ -29534,16 +19570,9 @@ Screenshot_2017-07-24-04-09-33-224_tv.danmaku.bili.png
 ##### 2998#       发表于 2017-7-29 01:29
 
 
-
-
 妮娜長大了
 
 下集8月18日
-
-
-
-
-
 
 
 -----
@@ -29552,16 +19581,9 @@ Screenshot_2017-07-24-04-09-33-224_tv.danmaku.bili.png
 ##### 2999#       发表于 2017-7-29 04:04
 
 
-
-
 哈哈哈哈我要笑成傻逼了！夏利欧斯•真•龙骑士！！
 
 鬼佬们手速超快，那段剪辑把bgm换成the whole new world，就是迪斯尼动画阿拉丁神灯的主题曲，简直毫无违和<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29570,14 +19592,10 @@ Screenshot_2017-07-24-04-09-33-224_tv.danmaku.bili.png
 ##### 3000#       发表于 2017-7-29 05:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">啊，两个妈妈给艾尔双倍的母爱，不也挺好吗
 
 我支持她们<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 <img src="http://wx1.sinaimg.cn/mw690/e5620a13gy1fi0a995jc2j21hc0u0dlt.jpg" referrerpolicy="no-referrer">
 <img src="http://wx4.sinaimg.cn/mw690/e5620a13gy1fi0a9bbda7j21hc0u0grz.jpg" referrerpolicy="no-referrer">
-
-
-
 
 

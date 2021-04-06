@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2020-06-22 10:06** 
 
 
-
 -----
 
 ####  天門  
 ##### 1#       楼主       发表于 2020-5-30 02:46
-
 
 
  本帖最后由 天門 于 2020-5-30 08:51 编辑 
@@ -28,16 +26,10 @@
 <img src="http://wx1.sinaimg.cn/mw690/00847kOGgy1geqqotruvzj30u01hcqv7.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  天門  
 ##### 2#         楼主| 发表于 2020-5-30 02:48
-
 
 
  本帖最后由 天門 于 2020-5-30 14:34 编辑 
@@ -71,17 +63,10 @@ SiS《美丽新世界》：[https://www.bilibili.com/video/B ... 396582129301259
 <img src="http://wx3.sinaimg.cn/mw690/00847kOGgy1gf9dqnshxmj31o02yonpe.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  凶猛打脸  
 ##### 3#       发表于 2020-5-30 02:50
-
-
 
 
 人忒多看不过来
@@ -89,16 +74,10 @@ SiS《美丽新世界》：[https://www.bilibili.com/video/B ... 396582129301259
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  天門  
 ##### 4#         楼主| 发表于 2020-5-30 02:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47609935&amp;ptid=1938520" target="_blank">凶猛打脸 发表于 2020-5-30 02:50</a>
@@ -110,16 +89,10 @@ SiS《美丽新世界》：[https://www.bilibili.com/video/B ... 396582129301259
 这不是有你家wxj吗，你看她就好了。
 
 
-
-
-
-
-
 -----
 
 ####  天門  
 ##### 5#         楼主| 发表于 2020-5-30 03:14
-
 
 
  本帖最后由 天門 于 2020-5-30 03:20 编辑 
@@ -136,26 +109,13 @@ SiS《美丽新世界》：[https://www.bilibili.com/video/B ... 396582129301259
 <img src="http://wx4.sinaimg.cn/large/c0fc3a45ly1gf9qrr67osj21hc0u0q9d.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  imba419  
 ##### 6#       发表于 2020-5-30 07:41
 
 
-
-
 昨天看着还挺舒服的 商业胡吹也有但不是很过分
-
-
-
-
-
 
 
 -----
@@ -164,21 +124,13 @@ SiS《美丽新世界》：[https://www.bilibili.com/video/B ... 396582129301259
 ##### 7#       发表于 2020-5-30 08:01
 
 
-
-
 好多人都猜火箭就是给壶团当垫脚石的。
-
-
-
-
-
 
 
 -----
 
 ####  BISSBISS  
 ##### 8#       发表于 2020-5-30 08:17
-
 
 
 <blockquote>本异末同 发表于 2020-5-30 08:01
@@ -188,16 +140,10 @@ SiS《美丽新世界》：[https://www.bilibili.com/video/B ... 396582129301259
 这节目肯定有剧本的，壶团同样镜头录了好几遍，炒团一遍过😬。
 
 
-
-
-
-
-
 -----
 
 ####  天門  
 ##### 9#         楼主| 发表于 2020-5-30 08:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610561&amp;ptid=1938520" target="_blank">本异末同 发表于 2020-5-30 08:01</a>
@@ -207,17 +153,10 @@ SiS《美丽新世界》：[https://www.bilibili.com/video/B ... 396582129301259
 —— 来自 Xiaomi Mi9 Pro 5G, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  天門  
 ##### 10#         楼主| 发表于 2020-5-30 08:46
-
-
 
 
 赛制是两连败出局。
@@ -227,31 +166,19 @@ SiS《美丽新世界》：[https://www.bilibili.com/video/B ... 396582129301259
 —— 来自 Xiaomi Mi9 Pro 5G, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  宁静中的沉默  
 ##### 11#       发表于 2020-5-30 08:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">盘尼西林？？？？
-
-
-
-
-
 
 
 -----
 
 ####  天門  
 ##### 12#         楼主| 发表于 2020-5-30 08:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610782&amp;ptid=1938520" target="_blank">宁静中的沉默 发表于 2020-5-30 08:46</a>
@@ -261,16 +188,10 @@ SiS《美丽新世界》：[https://www.bilibili.com/video/B ... 396582129301259
 —— 来自 Xiaomi Mi9 Pro 5G, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  天門  
 ##### 13#         楼主| 发表于 2020-5-30 08:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610477&amp;ptid=1938520" target="_blank">imba419 发表于 2020-5-30 07:41</a>
@@ -280,17 +201,10 @@ SiS《美丽新世界》：[https://www.bilibili.com/video/B ... 396582129301259
 —— 来自 Xiaomi Mi9 Pro 5G, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  STIGGY  
 ##### 14#       发表于 2020-5-30 09:40
-
-
 
 
 女团全部淘汰也是搞笑 本质不就是个捧R1的节目么 没啥意思
@@ -298,16 +212,10 @@ SiS《美丽新世界》：[https://www.bilibili.com/video/B ... 396582129301259
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  天門  
 ##### 15#         楼主| 发表于 2020-5-30 09:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611223&amp;ptid=1938520" target="_blank">STIGGY 发表于 2020-5-30 09:40</a>
@@ -319,25 +227,13 @@ SiS《美丽新世界》：[https://www.bilibili.com/video/B ... 396582129301259
 —— 来自 Xiaomi Mi9 Pro 5G, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  回旋球忧郁  
 ##### 16#       发表于 2020-5-30 09:56
 
 
-
-
 盘尼西林不丢人吗，以后在圈里还怎么混，还是他们已经破罐破摔了？想当偶像想疯了？
-
-
-
-
-
 
 
 -----
@@ -346,21 +242,13 @@ SiS《美丽新世界》：[https://www.bilibili.com/video/B ... 396582129301259
 ##### 17#       发表于 2020-5-30 09:59
 
 
-
-
 阿里八娃还不错嘛（跟腾讯的亲儿子比
-
-
-
-
-
 
 
 -----
 
 ####  STIGGY  
 ##### 18#       发表于 2020-5-30 10:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611249&amp;ptid=1938520" target="_blank">天門 发表于 2020-5-30 09:44</a>
@@ -372,17 +260,10 @@ SiS《美丽新世界》：[https://www.bilibili.com/video/B ... 396582129301259
 都是炮灰吧
 
 
-
-
-
-
-
 -----
 
 ####  moearan  
 ##### 19#       发表于 2020-5-30 10:22
-
-
 
 
 昨天最大的惊喜是ba，真的高级，节目里说是他们自己编的，很列害。sis输在编曲，1+1+1小于3，她们三个清唱都能比昨天的效果好。
@@ -390,16 +271,10 @@ SiS《美丽新世界》：[https://www.bilibili.com/video/B ... 396582129301259
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  天門  
 ##### 20#         楼主| 发表于 2020-5-30 10:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611570&amp;ptid=1938520" target="_blank">moearan 发表于 2020-5-30 10:22</a>
@@ -409,16 +284,10 @@ ba非常牛逼，相比之下壶就是想法太多而有点不分主次。
 —— 来自 Xiaomi Mi9 Pro 5G, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  天門  
 ##### 21#         楼主| 发表于 2020-5-30 10:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611538&amp;ptid=1938520" target="_blank">STIGGY 发表于 2020-5-30 10:18</a>
@@ -428,26 +297,14 @@ ba非常牛逼，相比之下壶就是想法太多而有点不分主次。
 —— 来自 Xiaomi Mi9 Pro 5G, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  贝贝熊  
 ##### 22#       发表于 2020-5-30 10:32
 
 
-
-
 昨天河那个表演我真的觉得不错 0比3太挫了
 实在get不到摇滚乐队的点<img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -456,14 +313,7 @@ ba非常牛逼，相比之下壶就是想法太多而有点不分主次。
 ##### 23#       发表于 2020-5-30 10:33
 
 
-
-
 讲真，消音姐怎么看着有些幼齿，都认不出来了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -472,16 +322,10 @@ ba非常牛逼，相比之下壶就是想法太多而有点不分主次。
 ##### 24#       发表于 2020-5-30 10:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611570&amp;ptid=1938520" target="_blank">moearan 发表于 2020-5-30 10:22</a>
 
 昨天最大的惊喜是ba，真的高级，节目里说是他们自己编的，很列害。sis输在编曲，1+1+1小于3，她们三个清唱 ...</blockquote>
 阿里八娃里的AJ、奶茶都是有真才实学的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -490,22 +334,15 @@ ba非常牛逼，相比之下壶就是想法太多而有点不分主次。
 ##### 25#       发表于 2020-5-30 10:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611676&amp;ptid=1938520" target="_blank">Ra_Cailum 发表于 2020-5-30 10:33</a>
 讲真，消音姐怎么看着有些幼齿，都认不出来了</blockquote>
 孔鹅最棒了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  HedyL  
 ##### 26#       发表于 2020-5-30 10:41
-
 
 
  本帖最后由 HedyL 于 2020-5-30 10:42 编辑 
@@ -515,16 +352,10 @@ ba非常牛逼，相比之下壶就是想法太多而有点不分主次。
 还有就是张曼乐实在是太好笑了，他一张嘴我就想笑，建议整个观众投票众筹夏之光打小乐彩蛋环节
 
 
-
-
-
-
-
 -----
 
 ####  天門  
 ##### 27#         楼主| 发表于 2020-5-30 10:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611751&amp;ptid=1938520" target="_blank">HedyL 发表于 2020-5-30 10:41</a>
@@ -537,16 +368,10 @@ ba非常牛逼，相比之下壶就是想法太多而有点不分主次。
 —— 来自 Xiaomi Mi9 Pro 5G, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  天門  
 ##### 28#         楼主| 发表于 2020-5-30 10:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611668&amp;ptid=1938520" target="_blank">贝贝熊 发表于 2020-5-30 10:32</a>
@@ -557,16 +382,10 @@ ba非常牛逼，相比之下壶就是想法太多而有点不分主次。
 —— 来自 Xiaomi Mi9 Pro 5G, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  天門  
 ##### 29#         楼主| 发表于 2020-5-30 10:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611345&amp;ptid=1938520" target="_blank">回旋球忧郁 发表于 2020-5-30 09:56</a>
@@ -578,30 +397,17 @@ ba非常牛逼，相比之下壶就是想法太多而有点不分主次。
 —— 来自 Xiaomi Mi9 Pro 5G, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 30#       发表于 2020-5-30 10:54
 
 
-
-
 看到个中青报记者评级壶
-
-
-
-
 
 
 Screenshot_2020-05-30-10-53-01-567_com.weico.international.png
 (332.98 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -610,31 +416,13 @@ Screenshot_2020-05-30-10-53-01-567_com.weico.international.png
 2020-5-30 10:53 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202005/30/105359wyjpy549yp9p1299.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  天門  
 ##### 31#         楼主| 发表于 2020-5-30 10:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611886&amp;ptid=1938520" target="_blank">肩上的乌鸦 发表于 2020-5-30 10:54</a>
@@ -644,36 +432,22 @@ Screenshot_2020-05-30-10-53-01-567_com.weico.international.png
 —— 来自 Xiaomi Mi9 Pro 5G, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 32#       发表于 2020-5-30 11:04
 
 
-
-
 阿里八娃是不错。
 
 
-
 说起来，这企划我怎么感觉是《由你榜》失败后，鹅厂想尝试用比赛形式推舞台的节目。
-
-
-
-
-
 
 
 -----
 
 ####  天門  
 ##### 33#         楼主| 发表于 2020-5-30 11:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611986&amp;ptid=1938520" target="_blank">肩上的乌鸦 发表于 2020-5-30 11:04</a>
@@ -685,17 +459,10 @@ Screenshot_2020-05-30-10-53-01-567_com.weico.international.png
 —— 来自 Xiaomi Mi9 Pro 5G, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  Sextans  
 ##### 34#       发表于 2020-5-30 11:07
-
-
 
 
 同样唱新裤子的歌，《你要跳舞吗》比创的《手扶拖拉机斯基》要好。创改得实在太垮了
@@ -703,16 +470,10 @@ Screenshot_2020-05-30-10-53-01-567_com.weico.international.png
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  天門  
 ##### 35#         楼主| 发表于 2020-5-30 11:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612015&amp;ptid=1938520" target="_blank">Sextans 发表于 2020-5-30 11:07</a>
@@ -726,32 +487,19 @@ Screenshot_2020-05-30-10-53-01-567_com.weico.international.png
 —— 来自 Xiaomi Mi9 Pro 5G, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  pokemankind  
 ##### 36#       发表于 2020-5-30 11:11
 
 
-
-
 摇滚圈算个几把，除了几个old ass，混到一线也捞不到几个钱，青霉素靠恶名出圈恰饭才是真爽到了
-
-
-
-
-
 
 
 -----
 
 ####  肩上的乌鸦  
 ##### 37#       发表于 2020-5-30 11:13
-
 
 
 <blockquote>天門 发表于 2020-5-30 11:05
@@ -767,16 +515,10 @@ Screenshot_2020-05-30-10-53-01-567_com.weico.international.png
 就是沧搞糊了。。。。。。
 
 
-
-
-
-
-
 -----
 
 ####  天門  
 ##### 38#         楼主| 发表于 2020-5-30 11:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612080&amp;ptid=1938520" target="_blank">肩上的乌鸦 发表于 2020-5-30 11:13</a>
@@ -790,16 +532,10 @@ Screenshot_2020-05-30-10-53-01-567_com.weico.international.png
 —— 来自 Xiaomi Mi9 Pro 5G, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 39#       发表于 2020-5-30 11:19
-
 
 
 <blockquote>天門 发表于 2020-5-30 11:15
@@ -810,34 +546,19 @@ Screenshot_2020-05-30-10-53-01-567_com.weico.international.png
 之前看一业内的音乐博主吐槽：创3这项目，估计里面有不少人A钱。。。。。
 
 
-
-
-
-
-
-
-
 -----
 
 ####  kina  
 ##### 40#       发表于 2020-5-30 11:21
 
 
-
-
 sing的表演比河的好多了，ba也比r1se要好，盘尼西林破罐子破摔了吧
-
-
-
-
-
 
 
 -----
 
 ####  天門  
 ##### 41#         楼主| 发表于 2020-5-30 11:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612176&amp;ptid=1938520" target="_blank">kina 发表于 2020-5-30 11:21</a>
@@ -851,17 +572,10 @@ sing的表演比河的好多了，ba也比r1se要好，盘尼西林破罐子破�
 —— 来自 Xiaomi Mi9 Pro 5G, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  天門  
 ##### 42#         楼主| 发表于 2020-5-30 11:37
-
-
 
 
 河现在四个舞台里，第一期是吴哲晗C，剩下的好像是陆婷孔肖吟各C一次，然后还有一个古风舞台是沈梦瑶青钰雯双C。
@@ -871,17 +585,10 @@ sing的表演比河的好多了，ba也比r1se要好，盘尼西林破罐子破�
 —— 来自 Xiaomi Mi9 Pro 5G, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  天門  
 ##### 43#         楼主| 发表于 2020-5-30 13:49
-
-
 
 
 第一期B站
@@ -911,25 +618,13 @@ BlackACE《Bad Guy》：[https://www.bilibili.com/video/B ... =69024099480163406
 SiS《美丽新世界》：[https://www.bilibili.com/video/B ... 3965821293012593633](https://www.bilibili.com/video/BV1Ag4y1z7H5?from=search&amp;seid=13965821293012593633)
 
 
-
-
-
-
-
 -----
 
 ####  偶像101  
 ##### 44#       发表于 2020-5-30 14:27
 
 
-
-
 吴哲晗整就一个又大又粗的呆木头，河里哪个想不开的让她站C，把整个表演的观赏性搞下去一半，太丑了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -938,14 +633,7 @@ SiS《美丽新世界》：[https://www.bilibili.com/video/B ... 396582129301259
 ##### 45#       发表于 2020-5-30 14:29
 
 
-
-
 声入人心来的人里有仝卓吗，有的话不会因为那事，把整个组合剪了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -954,16 +642,10 @@ SiS《美丽新世界》：[https://www.bilibili.com/video/B ... 396582129301259
 ##### 46#       发表于 2020-5-30 14:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613958&amp;ptid=1938520" target="_blank">偶像101 发表于 2020-05-30 14:27:02</a>
 吴哲晗整就一个又大又粗的呆木头，河里哪个想不开的让她站C，把整个表演的观赏性搞下去一半，太丑了 ...</blockquote>总选排名最高<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -972,13 +654,7 @@ SiS《美丽新世界》：[https://www.bilibili.com/video/B ... 396582129301259
 ##### 47#       发表于 2020-5-30 14:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么东西。塞纳河能把新裤子改成傻白甜女高中生，可真能。瞧下面盘尼西林脸臭的吧。
-
-
-
-
-
 
 
 -----
@@ -987,16 +663,10 @@ SiS《美丽新世界》：[https://www.bilibili.com/video/B ... 396582129301259
 ##### 48#       发表于 2020-5-30 14:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614045&amp;ptid=1938520" target="_blank">msfan 发表于 2020-5-30 14:36</a>
 
 R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么东西。塞纳河能把新裤子改成傻白甜女高中 ...</blockquote>
 “你们比彭磊唱得好多了"<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1005,14 +675,7 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 ##### 49#       发表于 2020-5-30 14:46
 
 
-
-
 然而体感这节目有是个由你音乐榜…压根没什么讨论度和关注度。
-
-
-
-
-
 
 
 -----
@@ -1021,14 +684,7 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 ##### 50#       发表于 2020-5-30 14:57
 
 
-
-
 不听摇滚的问一句啊 盘尼西林和新裤子什么恩怨 
-
-
-
-
-
 
 
 -----
@@ -1037,16 +693,10 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 ##### 51#       发表于 2020-5-30 15:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611345&amp;ptid=1938520" target="_blank">回旋球忧郁 发表于 2020-5-30 09:56</a>
 
 盘尼西林不丢人吗，以后在圈里还怎么混，还是他们已经破罐破摔了？想当偶像想疯了？ ...</blockquote>
 青霉素当时搞掉九连真人，路人粉就直接败光了，留下都是粉圈小姐姐，上这种节目正好。
-
-
-
-
-
 
 
 -----
@@ -1055,21 +705,13 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 ##### 52#       发表于 2020-5-30 15:15
 
 
-
-
 盘尼西林草，感觉好混搭啊，但是一点都不搭
-
-
-
-
-
 
 
 -----
 
 ####  本异末同  
 ##### 53#       发表于 2020-5-30 15:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611998&amp;ptid=1938520" target="_blank">天門 发表于 2020-5-30 11:05</a>
@@ -1081,16 +723,10 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 《全球中文音乐榜上榜》还活着。
 
 
-
-
-
-
-
 -----
 
 ####  法外狂徒S1娘  
 ##### 54#       发表于 2020-5-30 15:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614237&amp;ptid=1938520" target="_blank">imba419 发表于 2020-5-30 14:57</a>
@@ -1099,16 +735,10 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 没啥恩怨啊。新裤子直播阴阳了两句盘尼，但是彭磊老说批话而且滚圈阴阳盘尼不是日常吗
 
 
-
-
-
-
-
 -----
 
 ####  天門  
 ##### 55#         楼主| 发表于 2020-5-30 15:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614431&amp;ptid=1938520" target="_blank">本异末同 发表于 2020-5-30 15:18</a>
@@ -1117,16 +747,10 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 然而并没有什么人在乎CCTV音乐（。
 
 
-
-
-
-
-
 -----
 
 ####  本异末同  
 ##### 56#       发表于 2020-5-30 15:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612080&amp;ptid=1938520" target="_blank">肩上的乌鸦 发表于 2020-5-30 11:13</a>
@@ -1137,16 +761,10 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 都是杜华的错。
 
 
-
-
-
-
-
 -----
 
 ####  本异末同  
 ##### 57#       发表于 2020-5-30 15:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614440&amp;ptid=1938520" target="_blank">天門 发表于 2020-5-30 15:19</a>
@@ -1155,16 +773,10 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 我倒是觉得他们能一直初心不忘，坚持做纯正的打歌节目，这份心是指的赞许的。
 
 
-
-
-
-
-
 -----
 
 ####  天門  
 ##### 58#         楼主| 发表于 2020-5-30 15:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614456&amp;ptid=1938520" target="_blank">本异末同 发表于 2020-5-30 15:20</a>
@@ -1176,16 +788,10 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 恕我直言，舞台设计也很差。
 
 
-
-
-
-
-
 -----
 
 ####  天門  
 ##### 59#         楼主| 发表于 2020-5-30 15:22
-
 
 
  本帖最后由 天門 于 2020-5-30 15:23 编辑 
@@ -1198,16 +804,10 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 其实我更想听赵泰会说什么，但是赵泰估计根本不会给上偶像节目的乐队一个眼神。
 
 
-
-
-
-
-
 -----
 
 ####  法外狂徒S1娘  
 ##### 60#       发表于 2020-5-30 15:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614481&amp;ptid=1938520" target="_blank">天門 发表于 2020-5-30 15:22</a>
@@ -1219,16 +819,10 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这吃相比新裤子还难看
 
 
-
-
-
-
-
 -----
 
 ####  天門  
 ##### 61#         楼主| 发表于 2020-5-30 15:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614518&amp;ptid=1938520" target="_blank">法外狂徒S1娘 发表于 2020-5-30 15:26</a>
@@ -1240,25 +834,13 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 另外我觉得其实盘尼西林来这地方，估计也不会有什么后果。
 
 
-
-
-
-
-
 -----
 
 ####  lucifer5455  
 ##### 62#       发表于 2020-5-30 15:46
 
 
-
-
 我是真的相信鹅有这份打造idol音乐市场，破圈让大众接受的心，但我也真的对这个市场不乐观。希望我是错的吧。
-
-
-
-
-
 
 
 -----
@@ -1276,16 +858,10 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 <img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">比彭磊唱得好多正常。再说通告费还搁兜里没揣热呢。
 
 
-
-
-
-
-
 -----
 
 ####  天門  
 ##### 64#         楼主| 发表于 2020-5-30 16:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614770&amp;ptid=1938520" target="_blank">msfan 发表于 2020-5-30 15:55</a>
@@ -1294,16 +870,10 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 谣传塞纳河第二期开始突然超用心就是因为第一期拿到了巨额通告费，于是成员们决心撑到决赛。
 
 
-
-
-
-
-
 -----
 
 ####  本异末同  
 ##### 65#       发表于 2020-5-30 16:21
-
 
 
  本帖最后由 本异末同 于 2020-5-30 16:22 编辑 
@@ -1316,16 +886,10 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 不过好像要改版了，今天他们的微信公众号发了消息。还说演钱三一的郭俊辰要来唱歌。
 
 
-
-
-
-
-
 -----
 
 ####  本异末同  
 ##### 66#       发表于 2020-5-30 16:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614681&amp;ptid=1938520" target="_blank">lucifer5455 发表于 2020-5-30 15:46</a>
@@ -1334,33 +898,19 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 偶像歌曲我是真的喜欢秋元康那一套。
 
 
-
-
-
-
-
 -----
 
 ####  回旋球忧郁  
 ##### 67#       发表于 2020-5-30 16:52
 
 
-
-
 你要跳舞吗这个编排还挺喜欢的，练习室版比现场好，要是再多加些人在大型晚会的户外广场上配合灯光应该效果非常好的，青春活力正能量<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  飞了  
 ##### 68#       发表于 2020-5-30 16:57
-
-
 
 
 然而这个节目还是有点糊
@@ -1372,25 +922,13 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 然后再加上火箭少女，这样才有爆的可能
 
 
-
-
-
-
-
 -----
 
 ####  天青月白  
 ##### 69#       发表于 2020-5-30 17:52
 
 
-
-
 盘尼西林草，属实有态度
-
-
-
-
-
 
 
 -----
@@ -1399,21 +937,13 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 ##### 70#       发表于 2020-5-30 19:07
 
 
-
-
 我快得大碗宽面ptsd了，这么一破歌成天瞎tm改到处都是
-
-
-
-
-
 
 
 -----
 
 ####  天門  
 ##### 71#         楼主| 发表于 2020-5-30 21:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47615300&amp;ptid=1938520" target="_blank">飞了 发表于 2020-5-30 16:57</a>
@@ -1429,16 +959,10 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 —— 来自 Xiaomi Mi9 Pro 5G, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  天門  
 ##### 72#         楼主| 发表于 2020-5-30 21:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47616605&amp;ptid=1938520" target="_blank">给我加个鹅吧 发表于 2020-5-30 19:07</a>
@@ -1448,16 +972,10 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 —— 来自 Xiaomi Mi9 Pro 5G, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  天門  
 ##### 73#         楼主| 发表于 2020-5-30 21:29
-
 
 
  本帖最后由 天門 于 2020-5-30 21:30 编辑 
@@ -1465,16 +983,10 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 风怒
 
 
-
-
-
-
-
 -----
 
 ####  萤尘  
 ##### 74#       发表于 2020-5-31 01:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611676&amp;ptid=1938520" target="_blank">Ra_Cailum 发表于 2020-5-30 10:33</a>
@@ -1484,25 +996,13 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 —— 来自 Google Pixel 4, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  老岳  
 ##### 75#       发表于 2020-5-31 01:25
 
 
-
-
 塞纳河那个舞，好几个动作是登美丘高校那个DANCING HERO里来的吧
-
-
-
-
-
 
 
 -----
@@ -1511,13 +1011,7 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 ##### 76#       发表于 2020-5-31 02:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这节目愿不愿意把婧拉来？自家的创要是能赶上，拉来也成。
-
-
-
-
-
 
 
 -----
@@ -1526,16 +1020,10 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 ##### 77#         楼主| 发表于 2020-5-31 02:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47621319&amp;ptid=1938520" target="_blank">msfan 发表于 2020-5-31 02:11</a>
 
 这节目愿不愿意把婧拉来？自家的创要是能赶上，拉来也成。</blockquote>
 现在没空位吧。
-
-
-
-
-
 
 
 -----
@@ -1544,16 +1032,10 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 ##### 78#         楼主| 发表于 2020-5-31 16:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47621045&amp;ptid=1938520" target="_blank">老岳 发表于 2020-5-31 01:25</a>
 
 塞纳河那个舞，好几个动作是登美丘高校那个DANCING HERO里来的吧</blockquote>
 就复古迪斯科风格嘛，也不一定是抄她们。
-
-
-
-
-
 
 
 -----
@@ -1562,14 +1044,7 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 ##### 79#       发表于 2020-5-31 17:09
 
 
-
-
 不是吧  sing第一个出局
-
-
-
-
-
 
 
 -----
@@ -1578,14 +1053,7 @@ R1SE看的出有几个人强，C尤其出挑，但是这选歌和编排是什么
 ##### 80#       发表于 2020-5-31 17:26
 
 
-
-
 sis那标志挺像淫纹的...
-
-
-
-
-
 
 
 -----
@@ -1594,21 +1062,13 @@ sis那标志挺像淫纹的...
 ##### 81#       发表于 2020-5-31 21:20
 
 
-
-
 srds，确实比糊创好看，听说河苟到了后边 也是不容易
-
-
-
-
-
 
 
 -----
 
 ####  天門  
 ##### 82#         楼主| 发表于 2020-5-31 21:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47626906&amp;ptid=1938520" target="_blank">萌二 发表于 2020-5-31 17:09</a>
@@ -1618,25 +1078,13 @@ srds，确实比糊创好看，听说河苟到了后边 也是不容易
 —— 来自 Xiaomi Mi9 Pro 5G, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  艾弗森哦  
 ##### 83#       发表于 2020-5-31 22:19
 
 
-
-
 WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-
-
-
-
-
 
 
 -----
@@ -1645,14 +1093,7 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 ##### 84#       发表于 2020-5-31 22:21
 
 
-
-
 女团全败…讲真男团还是有性别优势啊
-
-
-
-
-
 
 
 -----
@@ -1661,22 +1102,13 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 ##### 85#       发表于 2020-5-31 22:31
 
 
-
-
 青霉素是不想混滚圈了？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Moodyblue  
 ##### 86#       发表于 2020-6-1 10:03
-
-
 
 
 摇滚乐队出来挣钱有什么问题，不太懂。
@@ -1686,16 +1118,10 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 咋不说梁龙都上去当导师了
 
 
-
-
-
-
-
 -----
 
 ####  Ra_Cailum  
 ##### 87#       发表于 2020-6-1 10:26
-
 
 
 <blockquote>Moodyblue 发表于 2020-6-1 10:03
@@ -1707,27 +1133,15 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 朴树也去明日之子了，😄
 
 
-
-
-
-
-
 -----
 
 ####  yinfu  
 ##### 88#       发表于 2020-6-1 11:14
 
 
-
-
 盘尼西林果然是偶像团体
 
 乐夏强捧已经有那味儿了
-
-
-
-
-
 
 
 -----
@@ -1736,14 +1150,7 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 ##### 89#       发表于 2020-6-1 11:45
 
 
-
-
 乐队在那装逼显得格格不入，别人的表演也不关注，来干啥的，就是来装逼的吗
-
-
-
-
-
 
 
 -----
@@ -1752,24 +1159,16 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 ##### 90#       发表于 2020-6-1 19:30
 
 
-
-
 就冲硬舔青霉素这劲🤢
 
 
 活该被人看不起<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yzyz121  
 ##### 91#       发表于 2020-6-1 23:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610871&amp;ptid=1938520" target="_blank">天門 发表于 2020-5-30 08:55</a>
@@ -1781,25 +1180,13 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 壶有这个价值？明年壶也要解散了吧。感觉完全没有什么浪花。
 
 
-
-
-
-
-
 -----
 
 ####  油执的岚人  
 ##### 92#       发表于 2020-6-1 23:28
 
 
-
-
 这节目我当了一期云观众，不得不感概云录制给节目组提供了多少方便，想让你看啥就给你看啥，不给你看谁赢了还要让你为获胜队欢呼做表情
-
-
-
-
-
 
 
 -----
@@ -1808,23 +1195,16 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 ##### 93#       发表于 2020-6-1 23:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47630397&amp;ptid=1938520" target="_blank">松岡茉優 发表于 2020-5-31 22:31</a>
 
 青霉素是不想混滚圈了？</blockquote>
 摇滚圈有什么好混的，一群拉胯青年自嗨。
 
 
-
-
-
-
-
 -----
 
 ####  肩上的乌鸦  
 ##### 94#       发表于 2020-6-1 23:32
-
 
 
 <blockquote>油执的岚人 发表于 2020-6-1 23:28
@@ -1835,16 +1215,10 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 说说内幕。
 
 
-
-
-
-
-
 -----
 
 ####  油执的岚人  
 ##### 95#       发表于 2020-6-1 23:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47644113&amp;ptid=1938520" target="_blank">肩上的乌鸦 发表于 2020-6-1 23:32</a>
@@ -1860,16 +1234,10 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 真不知道他们为什么那么大胆的放repo
 
 
-
-
-
-
-
 -----
 
 ####  沉睡的羊羔  
 ##### 96#       发表于 2020-6-1 23:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47644175&amp;ptid=1938520" target="_blank">油执的岚人 发表于 2020-6-1 23:37</a>
@@ -1880,16 +1248,10 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 据说是炙热的STF放的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  本异末同  
 ##### 97#       发表于 2020-6-1 23:57
-
 
 
 <blockquote>油执的岚人 发表于 2020-6-1 23:37
@@ -1899,16 +1261,10 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 第三期是哪天录的？
 
 
-
-
-
-
-
 -----
 
 ####  油执的岚人  
 ##### 98#       发表于 2020-6-2 00:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47644385&amp;ptid=1938520" target="_blank">本异末同 发表于 2020-6-1 23:57</a>
@@ -1917,26 +1273,15 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 5/11晚上
 
 
-
-
-
-
-
 -----
 
 ####  本异末同  
 ##### 99#       发表于 2020-6-2 00:10
 
 
-
 <blockquote>油执的岚人 发表于 2020-6-2 00:03
 5/11晚上</blockquote>
 谢谢。
-
-
-
-
-
 
 
 -----
@@ -1945,14 +1290,7 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 ##### 100#       发表于 2020-6-2 08:12
 
 
-
-
 超绝可爱王天草！
-
-
-
-
-
 
 
 -----
@@ -1961,16 +1299,10 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 ##### 101#         楼主| 发表于 2020-6-2 09:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47645906&amp;ptid=1938520" target="_blank">玉树临疯啊备用 发表于 2020-6-2 08:12</a>
 
 超绝可爱王天草！</blockquote>
 本楼已经出现两个草球了。
-
-
-
-
-
 
 
 -----
@@ -1979,16 +1311,10 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 ##### 102#       发表于 2020-6-2 09:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47644052&amp;ptid=1938520" target="_blank">油执的岚人 发表于 2020-6-1 23:28</a>
 
 这节目我当了一期云观众，不得不感概云录制给节目组提供了多少方便，想让你看啥就给你看啥，不给你看谁赢了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">全自动了
-
-
-
-
-
 
 
 -----
@@ -1997,14 +1323,7 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 ##### 103#       发表于 2020-6-2 09:33
 
 
-
-
 这个节目不是默认壶的团综嘛，就看个乐好了。
-
-
-
-
-
 
 
 -----
@@ -2013,16 +1332,10 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 ##### 104#       发表于 2020-6-2 11:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47646261&amp;ptid=1938520" target="_blank">天門 发表于 2020-6-2 09:03</a>
 
 本楼已经出现两个草球了。</blockquote>
 那个大哥不是推LLF和FQ的么。
-
-
-
-
-
 
 
 -----
@@ -2031,23 +1344,16 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 ##### 105#       发表于 2020-6-2 11:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47643936&amp;ptid=1938520" target="_blank">yzyz121 发表于 2020-6-1 23:18</a>
 
 壶有这个价值？明年壶也要解散了吧。感觉完全没有什么浪花。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">壶前两天出的周边礼包一天卖掉700万，而且是只在FC售卖的，这粉丝忠诚度和购买力国内任何一个团都比不了
 
 
-
-
-
-
-
 -----
 
 ####  天門  
 ##### 106#         楼主| 发表于 2020-6-2 12:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47648009&amp;ptid=1938520" target="_blank">玉树临疯啊备用 发表于 2020-6-2 11:35</a>
@@ -2057,25 +1363,13 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 —— 来自 Xiaomi Mi9 Pro 5G, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  imba419  
 ##### 107#       发表于 2020-6-5 21:23
 
 
-
-
 这节目凉了……
-
-
-
-
-
 
 
 -----
@@ -2084,16 +1378,10 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 ##### 108#         楼主| 发表于 2020-6-5 21:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47691464&amp;ptid=1938520" target="_blank">imba419 发表于 2020-6-5 21:23</a>
 
 这节目凉了……</blockquote>
 肯定凉的啦...
-
-
-
-
-
 
 
 -----
@@ -2102,13 +1390,7 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 ##### 109#       发表于 2020-6-5 22:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">盘尼西林太好笑了，唱了个撩骚歌，结果输的底裤都没了。
-
-
-
-
-
 
 
 -----
@@ -2117,15 +1399,9 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 ##### 110#       发表于 2020-6-5 22:30
 
 
-
  本帖最后由 msfan 于 2020-6-5 23:08 编辑 
 
 风怒编辑
-
-
-
-
-
 
 
 -----
@@ -2134,14 +1410,7 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 ##### 111#       发表于 2020-6-7 01:34
 
 
-
-
 后期是放弃修音了吗，口型都对不上，直接拿预录的顶上了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2150,14 +1419,7 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 ##### 112#       发表于 2020-6-12 19:55
 
 
-
-
 笑死了，直播录制的时候炒团半个团都没声音，今天播了想看看修成什么样，杨超越一开口果然是全是电
-
-
-
-
-
 
 
 -----
@@ -2166,14 +1428,7 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 ##### 113#       发表于 2020-6-12 20:00
 
 
-
-
 炒解散杨超越也解脱了吧，再也不用跑这类舞台了
-
-
-
-
-
 
 
 -----
@@ -2182,15 +1437,9 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 ##### 114#       发表于 2020-6-12 21:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47782019&amp;ptid=1938520" target="_blank">夜光铃 发表于 2020-6-12 20:00</a>
 炒解散杨超越也解脱了吧，再也不用跑这类舞台了</blockquote>
 决赛还有可能参加，挖机为了捧亲儿子不做人
-
-
-
-
-
 
 
 -----
@@ -2199,14 +1448,7 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 ##### 115#       发表于 2020-6-12 21:25
 
 
-
-
 火少这次的打歌服也太丑了，那个造型师小白还没换掉吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2215,14 +1457,7 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 ##### 116#       发表于 2020-6-12 21:30
 
 
-
-
 盘这次这歌怎么回事，这歌怎么这么马赛克？
-
-
-
-
-
 
 
 -----
@@ -2231,15 +1466,9 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 ##### 117#       发表于 2020-6-12 21:56
 
 
-
  本帖最后由 msfan 于 2020-6-12 22:05 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">壶除了C，剩下的rap担加一起能比yamy强吗？这个比分，反正火少也要解散了，就给壶抬轿子呗？
-
-
-
-
-
 
 
 -----
@@ -2248,23 +1477,16 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 ##### 118#       发表于 2020-6-12 22:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47781967&amp;ptid=1938520" target="_blank">油执的岚人 发表于 2020-6-12 19:55</a>
 
 笑死了，直播录制的时候炒团半个团都没声音，今天播了想看看修成什么样，杨超越一开口果然是全是电 ...</blockquote>
 都谁有声音啊？
 
 
-
-
-
-
-
 -----
 
 ####  lucifer5455  
 ##### 119#       发表于 2020-6-12 22:58
-
 
 
 <blockquote>油执的岚人 发表于 2020-6-12 19:55
@@ -2276,16 +1498,10 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" l
 https://bbs.hupu.com/35942300.html?is_reflow=1&amp;cid=50869621&amp;bddid=60218446646&amp;puid=&amp;client=a8f9eea963c972a4
 
 
-
-
-
-
-
 -----
 
 ####  本异末同  
 ##### 120#       发表于 2020-6-12 23:05
-
 
 
  本帖最后由 本异末同 于 2020-6-12 23:07 编辑 
@@ -2297,26 +1513,15 @@ https://bbs.hupu.com/35942300.html?is_reflow=1&amp;cid=50869621&amp;bddid=602184
 感谢，微博上看到好多太阳星在说无修版，一直没找到。顺便问一下，有其他团的无修音版吗？尤其是壶的。
 
 
-
-
-
-
-
 -----
 
 ####  lucifer5455  
 ##### 121#       发表于 2020-6-12 23:10
 
 
-
 <blockquote>本异末同 发表于 2020-6-12 23:05
 感谢，微博上看到好多太阳星在说无修版，一直没找到。</blockquote>
 感觉就是一段舞蹈以后紫宁的气跟不上，导致声音劈了，后面跟着的紫婷也就跟着飘了，这俩站那vocal是不错的，但跳完了唱确实还是不稳，红色开水壶也是差不多这么来的。
-
-
-
-
-
 
 
 -----
@@ -2325,16 +1530,10 @@ https://bbs.hupu.com/35942300.html?is_reflow=1&amp;cid=50869621&amp;bddid=602184
 ##### 122#       发表于 2020-6-12 23:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784079&amp;ptid=1938520" target="_blank">lucifer5455 发表于 2020-6-12 23:10</a>
 
 感觉就是一段舞蹈以后紫宁的气跟不上，导致声音劈了，后面跟着的紫婷也就跟着飘了，这俩站那vocal是不错 ...</blockquote>
 对照视频版看了一下，一大段剧烈的舞蹈动作之后回来立马唱歌，有些刺了也很正常啊，那些粉丝拿这个拼命骂自己的团完全不理解是什么想法。
-
-
-
-
-
 
 
 -----
@@ -2343,15 +1542,9 @@ https://bbs.hupu.com/35942300.html?is_reflow=1&amp;cid=50869621&amp;bddid=602184
 ##### 123#       发表于 2020-6-12 23:20
 
 
-
 <blockquote>本异末同 发表于 2020-6-12 23:12
 对照视频版看了一下，一大段剧烈的舞蹈动作之后回来立马唱歌，有些刺了也很正常啊，那些粉丝拿这个拼命骂 ...</blockquote>
 所以你也要明白，为什么是这俩唱这段。因为这俩算是vocal组里最稳的，然而劈了就是劈了。剩下粉圈嘲人那点小心思不必深究。
-
-
-
-
-
 
 
 -----
@@ -2360,16 +1553,10 @@ https://bbs.hupu.com/35942300.html?is_reflow=1&amp;cid=50869621&amp;bddid=602184
 ##### 124#       发表于 2020-6-12 23:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784196&amp;ptid=1938520" target="_blank">lucifer5455 发表于 2020-6-12 23:20</a>
 
 所以你也要明白，为什么是这俩唱这段。因为这俩算是vocal组里最稳的，然而劈了就是劈了。剩下粉圈嘲人那 ...</blockquote>
 你说得好有道理，之前我还没往这方面想，就硬捧亲儿子呗。
-
-
-
-
-
 
 
 -----
@@ -2378,15 +1565,9 @@ https://bbs.hupu.com/35942300.html?is_reflow=1&amp;cid=50869621&amp;bddid=602184
 ##### 125#       发表于 2020-6-12 23:27
 
 
-
 <blockquote>本异末同 发表于 2020-6-12 23:22
 你说得好有道理，之前我还没往这方面想，就硬捧亲儿子呗。</blockquote>
 懒得说，那个是叫夏之光的吧，最起码2次很明显的失误。但3：0？好吧，早淘汰挺好。
-
-
-
-
-
 
 
 -----
@@ -2395,14 +1576,7 @@ https://bbs.hupu.com/35942300.html?is_reflow=1&amp;cid=50869621&amp;bddid=602184
 ##### 126#       发表于 2020-6-13 20:38
 
 
-
-
 夏之光killing part 3个动作失误俩，就这还3：0<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2411,16 +1585,10 @@ https://bbs.hupu.com/35942300.html?is_reflow=1&amp;cid=50869621&amp;bddid=602184
 ##### 127#       发表于 2020-6-13 21:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47792486&amp;ptid=1938520" target="_blank">温和派缪斯林 发表于 2020-6-13 20:38</a>
 
 夏之光killing part 3个动作失误俩，就这还3：0</blockquote>
 而且还没给火箭killing part的机会。
-
-
-
-
-
 
 
 -----
@@ -2429,14 +1597,7 @@ https://bbs.hupu.com/35942300.html?is_reflow=1&amp;cid=50869621&amp;bddid=602184
 ##### 128#       发表于 2020-6-13 21:18
 
 
-
-
 果然我坛会有看表演的，我就是去看节目组怎么树新蜂的，101有前传女团后记创始人们，明日之女龙酵母也出来树了。
-
-
-
-
-
 
 
 -----
@@ -2445,14 +1606,7 @@ https://bbs.hupu.com/35942300.html?is_reflow=1&amp;cid=50869621&amp;bddid=602184
 ##### 129#       发表于 2020-6-13 22:05
 
 
-
-
 看到一个消息，说这个节目工作人员在r1se超话公开招募评审，而火箭粉丝主动联系，结果他们理都不理。本来我还在想公证处监督的情况下应该不太可能作弊，现在看来他们是从源头动手，合法作弊。
-
-
-
-
-
 
 
 -----
@@ -2461,16 +1615,10 @@ https://bbs.hupu.com/35942300.html?is_reflow=1&amp;cid=50869621&amp;bddid=602184
 ##### 130#       发表于 2020-6-14 01:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611345&amp;ptid=1938520" target="_blank">回旋球忧郁 发表于 2020-5-30 09:56</a>
 
 盘尼西林不丢人吗，以后在圈里还怎么混，还是他们已经破罐破摔了？想当偶像想疯了？ ...</blockquote>
 他们在乐队的夏天已经丢够了，不在意的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2479,23 +1627,15 @@ https://bbs.hupu.com/35942300.html?is_reflow=1&amp;cid=50869621&amp;bddid=602184
 ##### 131#       发表于 2020-6-14 01:30
 
 
-
-
 sis有句讲句每次的舞台都还挺有意思，想到下次就要淘汰掉了实在可惜
 
 还是要归结到这狗屁赛制上，3人组合还给拿掉一个那还怎么表演，特别是拿掉的还是最强的洪一诺，没了这个令和中森明菜，那还看个屁的sis啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  温和派缪斯林  
 ##### 132#       发表于 2020-6-14 01:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47793696&amp;ptid=1938520" target="_blank">本异末同 发表于 2020-6-13 22:05</a>
@@ -2507,17 +1647,10 @@ sis有句讲句每次的舞台都还挺有意思，想到下次就要淘汰掉�
 隔壁唱作人人家完全公布姓名和社交帐号的
 
 
-
-
-
-
-
 -----
 
 ####  温和派缪斯林  
 ##### 133#       发表于 2020-6-14 02:12
-
-
 
 
 果然如此啊，R1SE谁碰谁死<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -2525,16 +1658,10 @@ sis有句讲句每次的舞台都还挺有意思，想到下次就要淘汰掉�
 [https://www.douban.com/group/topic/180099685/](https://www.douban.com/group/topic/180099685/)
 
 
-
-
-
-
-
 -----
 
 ####  油执的岚人  
 ##### 134#       发表于 2020-6-14 10:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47783934&amp;ptid=1938520" target="_blank">lucifer5455 发表于 2020-6-12 22:58</a>
@@ -2555,31 +1682,15 @@ sis有句讲句每次的舞台都还挺有意思，想到下次就要淘汰掉�
 2020-6-14 10:54 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  本异末同  
 ##### 135#       发表于 2020-6-14 10:58
 
 
-
 <blockquote>油执的岚人 发表于 2020-6-14 10:56
 我只是说杨超越修的明显一开口就听出来了都不行吗，无修源我也有，我就是这期观众，炒团直播的时候半个团 ...</blockquote>
 能放到网上吗？
-
-
-
-
-
 
 
 -----
@@ -2588,16 +1699,10 @@ sis有句讲句每次的舞台都还挺有意思，想到下次就要淘汰掉�
 ##### 136#       发表于 2020-6-14 10:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47798259&amp;ptid=1938520" target="_blank">本异末同 发表于 2020-6-14 10:58</a>
 
 能放到网上吗？</blockquote>
 不能，我不愿意承担泄露信息的后果
-
-
-
-
-
 
 
 -----
@@ -2606,24 +1711,16 @@ sis有句讲句每次的舞台都还挺有意思，想到下次就要淘汰掉�
 ##### 137#       发表于 2020-6-19 19:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47798274&amp;ptid=1938520" target="_blank">油执的岚人 发表于 2020-6-14 10:59</a>
 
 不能，我不愿意承担泄露信息的后果</blockquote>
 今天总算完整的看了一下糊团上次的表演，从头到尾总共也没几句正儿八经的唱，说啥稳不稳的。
 
 
-
-
-
-
-
 -----
 
 ####  偶像101  
 ##### 138#       发表于 2020-6-19 20:27
-
-
 
 
 火少这期的舞台谁给排的，观感真不行<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
@@ -2633,16 +1730,10 @@ sis有句讲句每次的舞台都还挺有意思，想到下次就要淘汰掉�
 壶果然是亲儿子，不管表演的什么东西对手是谁，结果都是赢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  天門  
 ##### 139#         楼主| 发表于 2020-6-21 04:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47867527&amp;ptid=1938520" target="_blank">偶像101 发表于 2020-6-19 20:27</a>
@@ -2654,25 +1745,13 @@ sis有句讲句每次的舞台都还挺有意思，想到下次就要淘汰掉�
 河这期塞的东西太多...
 
 
-
-
-
-
-
 -----
 
 ####  imba419  
 ##### 140#       发表于 2020-6-21 08:48
 
 
-
-
 选个逍遥叹杵那干唱也好 这歌实在不行
-
-
-
-
-
 
 
 -----
@@ -2681,15 +1760,9 @@ sis有句讲句每次的舞台都还挺有意思，想到下次就要淘汰掉�
 ##### 141#       发表于 2020-6-21 09:09
 
 
-
 [https://www.douban.com/group/topic/181135982/](https://www.douban.com/group/topic/181135982/)
 
 龙丹妮真不是人。
-
-
-
-
-
 
 
 -----
@@ -2698,15 +1771,9 @@ sis有句讲句每次的舞台都还挺有意思，想到下次就要淘汰掉�
 ##### 142#       发表于 2020-6-21 09:28
 
 
-
 <blockquote>本异末同 发表于 2020-6-19 19:39
 今天总算完整的看了一下糊团上次的表演，从头到尾总共也没几句正儿八经的唱，说啥稳不稳的。 ...</blockquote>
 你听他说啥呢，壶团白天练完美滋滋睡觉，炒熬大夜，毕竟亲儿子。wj也不怕再出个高以翔事件，这群畜生。
-
-
-
-
-
 
 
 -----
@@ -2715,14 +1782,7 @@ sis有句讲句每次的舞台都还挺有意思，想到下次就要淘汰掉�
 ##### 143#       发表于 2020-6-21 18:02
 
 
-
-
 河这期舞蹈可以，歌我觉得唱的太弱了，要是有点力度就好了
-
-
-
-
-
 
 
 -----
@@ -2731,14 +1791,7 @@ sis有句讲句每次的舞台都还挺有意思，想到下次就要淘汰掉�
 ##### 144#       发表于 2020-6-21 22:09
 
 
-
-
 不过sis离开了确实好可惜，我还挺喜欢他们上一期的表演
-
-
-
-
-
 
 
 -----
@@ -2747,16 +1800,9 @@ sis有句讲句每次的舞台都还挺有意思，想到下次就要淘汰掉�
 ##### 145#       发表于 2020-6-21 23:08
 
 
-
-
 这个破节目直接把冠军给壶儿子，别人都退赛就完事了，还有什么比的必要吗
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -2765,14 +1811,7 @@ sis有句讲句每次的舞台都还挺有意思，想到下次就要淘汰掉�
 ##### 146#       发表于 2020-6-22 00:06
 
 
-
-
 我还挺喜欢这期开头他们两个团聚在一起聊天的环节，火少感觉感情还挺好的，粉丝天天撕的那么厉害
-
-
-
-
-
 
 
 -----
@@ -2781,14 +1820,7 @@ sis有句讲句每次的舞台都还挺有意思，想到下次就要淘汰掉�
 ##### 147#       发表于 2020-6-22 08:37
 
 
-
-
 到底多少人吃了**包啊… 火少半夜下班  壶团就不是么？ 各家站姐都有啊  另外还有什么因为有火少所以才有赞助的… 拜托 这里又不是豆瓣  这节目一开始招商是打算全男团的 摇也谈了没谈拢 也比韩国那个团战节目ppt出的早  潮音战记那么糊都有百事赞助 雪碧赞助个音乐综艺怎么就不行了？火少行程安排不合理有疫情的关系 也可能有公司的安排不合理 可是为啥非要嘲讽壶？ 就大家欣赏舞台不好么？ 这节目本身请那么多团 
-
-
-
-
-
 
 
 -----
@@ -2797,14 +1829,7 @@ sis有句讲句每次的舞台都还挺有意思，想到下次就要淘汰掉�
 ##### 148#       发表于 2020-6-22 08:42
 
 
-
-
 这节目本身请那么多团 （虽然我本身只是其中一个人的粉丝）我很多都能get到亮点  甚至真心实意的会去安利 不是挺好的么 大家为啥很多阴谋论啊 另外不知道你们看没看过创造营2019的500g 真的 除非直播 否则不要以播出效果来评价  镜头剪辑修音 后期能做的事太多了 看的开心就完事了呗  
-
-
-
-
-
 
 
 -----
@@ -2813,15 +1838,9 @@ sis有句讲句每次的舞台都还挺有意思，想到下次就要淘汰掉�
 ##### 149#       发表于 2020-6-22 09:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898844&amp;ptid=1938520" target="_blank">taozijiaozhu 发表于 2020-6-22 08:42</a>
 这节目本身请那么多团 （虽然我本身只是其中一个人的粉丝）我很多都能get到亮点  甚至真心实意的会去安利  ...</blockquote>
 壶妹你好，你们壶每天从几点练到几点不是只有你们壶妹知道
-
-
-
-
-
 
 
 -----
@@ -2830,14 +1849,7 @@ sis有句讲句每次的舞台都还挺有意思，想到下次就要淘汰掉�
 ##### 150#       发表于 2020-6-22 09:27
 
 
-
-
 大团综都招不到商的团就别说什么抗商务了
-
-
-
-
-
 
 
 -----
@@ -2846,14 +1858,10 @@ sis有句讲句每次的舞台都还挺有意思，想到下次就要淘汰掉�
 ##### 151#       发表于 2020-6-22 09:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898812&amp;ptid=1938520" target="_blank">taozijiaozhu 发表于 2020-6-22 08:37</a>
 
 到底多少人吃了**包啊… 火少半夜下班  壶团就不是么？ 各家站姐都有啊  另外还有什么因为有火少所以才有赞 ...</blockquote>
 火少都快解散了，被拉到无锡两个月天天黑白颠倒的录个冠军早就内定的破节目，录到有人病重不能参加自己的告别典礼，而且大概率解散后还要继续录这节目，不好意思火少粉做不到精准点艹。
-
-
-
 
 
                                             

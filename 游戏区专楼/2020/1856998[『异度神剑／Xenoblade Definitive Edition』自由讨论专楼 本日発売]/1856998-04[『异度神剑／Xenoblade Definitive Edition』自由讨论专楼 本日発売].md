@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2020-08-07 00:11** 
 
 
-
 -----
 
 ####  misaki_d  
 ##### 4501#       发表于 2020-6-10 02:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47741681&amp;ptid=1856998" target="_blank">NameLess2501 发表于 2020-6-9 23:09</a>
@@ -18,27 +16,15 @@
 哈哈哈，就该加这段剧情，mmk 活了下来回去把 9 号殖民地又血洗一遍，然后修赶回去制止了 mmk 并与他互相理解
 
 
-
-
-
-
-
 -----
 
 ####  yth329  
 ##### 4502#       发表于 2020-6-10 02:29
 
 
-
-
 利奇的英配实在太......
 
 鬼佬吉祥物是不是都喜欢这么配音
-
-
-
-
-
 
 
 -----
@@ -47,16 +33,10 @@
 ##### 4503#       发表于 2020-6-10 07:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47742857&amp;ptid=1856998" target="_blank">XXlong 发表于 2020-6-10 01:06</a>
 
 推上贺图蛮多得#Xenoblade_fes20。</blockquote>
 图二算是严重剧透了
-
-
-
-
-
 
 
 -----
@@ -65,14 +45,7 @@
 ##### 4504#       发表于 2020-6-10 07:10
 
 
-
-
 正常游戏行进到工厂，王都的小莫怎么打，有没有不用刷好感度/装备的攻略法
-
-
-
-
-
 
 
 -----
@@ -81,23 +54,16 @@
 ##### 4505#       发表于 2020-6-10 07:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47741519&amp;ptid=1856998" target="_blank">电风扇 发表于 2020-06-09 22:56:47</a>
 我觉得女朋友被杀了能当悬疑片看的人都是混蛋</blockquote>但是挡刀时候已经发现女友也没这么死吧，这样复仇动力也小了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  NameLess2501  
 ##### 4506#       发表于 2020-6-10 07:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47743198&amp;ptid=1856998" target="_blank">misaki_d 发表于 2020-6-10 02:09</a>
@@ -110,16 +76,10 @@
 （埃吉尔内心：你牛逼，我服了。）
 
 
-
-
-
-
-
 -----
 
 ####  memphiseme  
 ##### 4507#       发表于 2020-6-10 08:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47742717&amp;ptid=1856998" target="_blank">66367749 发表于 2020-6-10 00:49</a></blockquote>
@@ -128,26 +88,15 @@
 —— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  lypylf  
 ##### 4508#       发表于 2020-6-10 08:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47743617&amp;ptid=1856998" target="_blank">yth329 发表于 2020-6-10 07:10</a>
 正常游戏行进到工厂，王都的小莫怎么打，有没有不用刷好感度/装备的攻略法 ...</blockquote>
 你翻下148页，有很多关于要塞式机神兵打法的讨论
-
-
-
-
-
 
 
 -----
@@ -156,22 +105,13 @@
 ##### 4509#       发表于 2020-6-10 09:02
 
 
-
-
 '喰'有什么高光时刻吗，拿了之后感觉...用不上？('喰'的特效果然还是适合灭的那一把)
-
-
-
-
-
 
 
 -----
 
 ####  bird-lay  
 ##### 4510#       发表于 2020-6-10 09:05
-
-
 
 
 最后打zanza的时候进了四五次连锁，只有一次连到第五下<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
@@ -181,16 +121,10 @@
 第三把monado不能拿出来用用吗。。。复制品太难看了
 
 
-
-
-
-
-
 -----
 
 ####  lypylf  
 ##### 4511#       发表于 2020-6-10 09:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47744312&amp;ptid=1856998" target="_blank">bird-lay 发表于 2020-6-10 09:05</a>
@@ -203,16 +137,10 @@
 可以幻化
 
 
-
-
-
-
-
 -----
 
 ####  hotstar  
 ##### 4512#       发表于 2020-6-10 09:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47744312&amp;ptid=1856998" target="_blank">bird-lay 发表于 2020-6-10 09:05</a>
@@ -224,16 +152,10 @@
 请2周目
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 4513#       发表于 2020-6-10 09:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47744343&amp;ptid=1856998" target="_blank">lypylf 发表于 2020-6-10 09:07</a>
@@ -242,16 +164,10 @@
 是要二周目才能改外观吗？
 
 
-
-
-
-
-
 -----
 
 ####  Errey  
 ##### 4514#       发表于 2020-6-10 09:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47741577&amp;ptid=1856998" target="_blank">mjzs07 发表于 2020-06-09 23:01:07</a>
@@ -260,27 +176,15 @@
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  findpkq  
 ##### 4515#       发表于 2020-6-10 09:24
 
 
-
-
 官方这十周年贺图可以啊
 
 艾尔玛C位实属面子
-
-
-
-
-
 
 
 -----
@@ -289,16 +193,9 @@
 ##### 4516#       发表于 2020-6-10 09:27
 
 
-
-
 菲奥伦是不是挺强的？我一直带着上场，但是没操作过
 
 她的技能树限制好大，感觉不少很有用的技能她都连不上。。。
-
-
-
-
-
 
 
 -----
@@ -307,21 +204,13 @@
 ##### 4517#       发表于 2020-6-10 09:27
 
 
-
-
 XBX这太牌面了直接C位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">重制版或续作看来不远了
-
-
-
-
-
 
 
 -----
 
 ####  kos_mos  
 ##### 4518#       发表于 2020-6-10 09:44
-
 
 
  本帖最后由 kos_mos 于 2020-6-10 09:45 编辑 
@@ -331,26 +220,15 @@ XB和XB2是对称关系，所以XBX就放中间了。
 CHOCO还发了张梅莉娅。
 
 
-
-
-
-
-
 -----
 
 ####  Tackstone  
 ##### 4519#       发表于 2020-6-10 09:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47744604&amp;ptid=1856998" target="_blank">LamdaHT 发表于 2020-6-10 09:27</a>
 XBX这太牌面了直接C位重制版或续作看来不远了</blockquote>
 毕竟在xb2里也是最强blade<img src="https://static.saraba1st.com/image/smiley/carton2017/157.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -359,16 +237,10 @@ XBX这太牌面了直接C位重制版或续作看来不远了</blockquote>
 ##### 4520#       发表于 2020-6-10 10:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47744791&amp;ptid=1856998" target="_blank">Tackstone 发表于 2020-6-10 09:44</a>
 
 毕竟在xb2里也是最强blade</blockquote>
 而且感觉大概是唯一一个不会被喷圣母的主角<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -377,14 +249,7 @@ XBX这太牌面了直接C位重制版或续作看来不远了</blockquote>
 ##### 4521#       发表于 2020-6-10 10:08
 
 
-
-
 这游戏二周目有啥乐子吗，一周目本篇四大天王打完了追加剧情和完美通关了，二周目没啥乐子就该封盘了
-
-
-
-
-
 
 
 -----
@@ -393,15 +258,9 @@ XBX这太牌面了直接C位重制版或续作看来不远了</blockquote>
 ##### 4522#       发表于 2020-6-10 10:18
 
 
-
  本帖最后由 zpsw00000 于 2020-6-10 10:19 编辑 
 
 这游戏二周目就是为了完美存档啊，什么全关系网什么的
-
-
-
-
-
 
 
 -----
@@ -410,16 +269,10 @@ XBX这太牌面了直接C位重制版或续作看来不远了</blockquote>
 ##### 4523#       发表于 2020-6-10 10:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47745000&amp;ptid=1856998" target="_blank">LamdaHT 发表于 2020-6-10 10:02</a>
 
 而且感觉大概是唯一一个不会被喷圣母的主角</blockquote>
 因为X里大佐是举枪的那个，挡枪的换成了13岁和工具人自捏<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -428,13 +281,7 @@ XBX这太牌面了直接C位重制版或续作看来不远了</blockquote>
 ##### 4524#       发表于 2020-6-10 10:24
 
 
-
 <img src="https://i.loli.net/2020/06/10/UxfMA2nbwdrIgkO.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -443,13 +290,7 @@ XBX这太牌面了直接C位重制版或续作看来不远了</blockquote>
 ##### 4525#       发表于 2020-6-10 10:25
 
 
-
 <img src="https://i.loli.net/2020/06/10/9J7eMz1aATjLQIG.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -458,14 +299,7 @@ XBX这太牌面了直接C位重制版或续作看来不远了</blockquote>
 ##### 4526#       发表于 2020-6-10 10:46
 
 
-
-
 MOMO社:男人，那是什么。
-
-
-
-
-
 
 
 -----
@@ -474,16 +308,10 @@ MOMO社:男人，那是什么。
 ##### 4527#       发表于 2020-6-10 10:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47744030&amp;ptid=1856998" target="_blank">lypylf 发表于 2020-6-10 08:35</a>
 
 你翻下148页，有很多关于要塞式机神兵打法的讨论</blockquote>
 谢谢，之前网上查到的都是秒杀视频或是倒转流无限控BOSS的，结果试了半天要么抵抗要么MISS，最后卡高台手控奶qiang活活奶死了
-
-
-
-
-
 
 
 -----
@@ -492,16 +320,10 @@ MOMO社:男人，那是什么。
 ##### 4528#       发表于 2020-6-10 11:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47745779&amp;ptid=1856998" target="_blank">yth329 发表于 2020-6-10 10:56</a>
 
 谢谢，之前网上查到的都是秒杀视频或是倒转流无限控BOSS的，结果试了半天要么抵抗要么MISS，最后卡高台手 ...</blockquote>
 百四式都免疫转倒的，应该是查的功略有误
-
-
-
-
-
 
 
 -----
@@ -510,15 +332,9 @@ MOMO社:男人，那是什么。
 ##### 4529#       发表于 2020-6-10 11:24
 
 
-
 <img src="http://wx1.sinaimg.cn/large/006OLR7Hly1gfmxffbc75j312k1kwtn4.jpg" referrerpolicy="no-referrer">
 
 C位的原因是她的武器是双剑这样比较对称吧？
-
-
-
-
-
 
 
 -----
@@ -527,14 +343,7 @@ C位的原因是她的武器是双剑这样比较对称吧？
 ##### 4530#       发表于 2020-6-10 11:32
 
 
-
-
 他们挺喜欢用图暗示的，上次高桥组招人就上了个高清机神，这次贺图xbx要素过浓了
-
-
-
-
-
 
 
 -----
@@ -543,14 +352,7 @@ C位的原因是她的武器是双剑这样比较对称吧？
 ##### 4531#       发表于 2020-6-10 11:39
 
 
-
-
 本来这段时间是有E3的，没准也许大概是要放E3公布的
-
-
-
-
-
 
 
 -----
@@ -559,20 +361,13 @@ C位的原因是她的武器是双剑这样比较对称吧？
 ##### 4532#       发表于 2020-6-10 11:44
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想多要点儿传送点直接来一句推荐云，这么爱跑路有种别用传送啊。
-
-
-
-
-
 
 
 -----
 
 ####  misaki_d  
 ##### 4533#       发表于 2020-6-10 12:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47740030&amp;ptid=1856998" target="_blank">yuwe0714 发表于 2020-6-9 20:40</a>
@@ -587,26 +382,15 @@ C位的原因是她的武器是双剑这样比较对称吧？
 这演出把我看麻了
 
 
-
-
-
-
-
 -----
 
 ####  mjzs07  
 ##### 4534#       发表于 2020-6-10 12:37
 
 
-
 <blockquote>Errey 发表于 2020-6-10 09:15
 修尔克又不是朋友这种第三者身份，是最直接的恋爱关系啊，另一个是家人身份；作为最大受害者之一，不进行报 ...</blockquote>
 没有不报复啊已经把黑脸打趴下了，我已经说过了，就算你捅了凶手，警察抓到你在了解动机之前也不会把你枪毙，再且你为你老婆报仇雪恨了，但你老婆真的希望你这样做吗
-
-
-
-
-
 
 
 -----
@@ -617,21 +401,13 @@ C位的原因是她的武器是双剑这样比较对称吧？
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Troywest  
 ##### 4536#       发表于 2020-6-10 13:25
 
 
-
-
 同求，感觉买了很多装备， 但是也不解锁服装啊
-
-
-
-
-
 
 
 -----
@@ -640,16 +416,10 @@ C位的原因是她的武器是双剑这样比较对称吧？
 ##### 4537#       发表于 2020-6-10 13:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47747134&amp;ptid=1856998" target="_blank">mjzs07 发表于 2020-06-10 12:37:33</a>
 没有不报复啊已经把黑脸打趴下了，我已经说过了，就算你捅了凶手，警察抓到你在了解动机之前也不会把你枪 ...</blockquote>别人捅你全家还只是干趴下就算了，不得不说真的划算
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -658,22 +428,13 @@ C位的原因是她的武器是双剑这样比较对称吧？
 ##### 4538#       发表于 2020-6-10 13:49
 
 
-
-
 武器服装很多同模的，幻化全收集对着攻略查就是了
-
-
-
-
-
 
 
 -----
 
 ####  arx-7  
 ##### 4539#       发表于 2020-6-10 14:04
-
-
 
 
 老婆没有死 但被敌人控制了 不认识我 
@@ -685,29 +446,19 @@ C位的原因是她的武器是双剑这样比较对称吧？
 反正我手持神剑无所不能对不对？
 
 
-
-
-
-
-
 -----
 
 ####  蓮華  
 ##### 4540#       发表于 2020-6-10 14:23
 
 
-
 <img src="https://i.loli.net/2020/06/10/s1hyQXqSdI9Ka2A.jpg" referrerpolicy="no-referrer">
 突然笑出声
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -717,12 +468,7 @@ C位的原因是她的武器是双剑这样比较对称吧？
 | caicaistar| + 1|喜欢修尔克，还有大家|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -731,14 +477,7 @@ C位的原因是她的武器是双剑这样比较对称吧？
 ##### 4541#       发表于 2020-6-10 14:38
 
 
-
-
 虽然这么讲好像有些对不起巨神界的大家，但是我还是想着要是有更多颜色(或者说种类)的'费斯'就好了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -747,21 +486,13 @@ C位的原因是她的武器是双剑这样比较对称吧？
 ##### 4542#       发表于 2020-6-10 14:42
 
 
-
-
 这名句以后要刻在DNA里了<img src="https://static.saraba1st.com/image/smiley/carton2017/246.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  shkillone1  
 ##### 4543#       发表于 2020-6-10 15:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47748183&amp;ptid=1856998" target="_blank">arx-7 发表于 2020-6-10 14:04</a>
@@ -774,13 +505,7 @@ C位的原因是她的武器是双剑这样比较对称吧？
 主要问题不就是修他没这么表达，他要说留个活口，为了救回菲奥伦，估计反感的人就不多了
 
 
-
 其实对艾机尔的描写就能看出，修尔克的行为符合想要表达的主题，就是从主题上否定仇恨驱动
-
-
-
-
-
 
 
 -----
@@ -789,22 +514,15 @@ C位的原因是她的武器是双剑这样比较对称吧？
 ##### 4544#       发表于 2020-6-10 15:05
 
 
-
 <blockquote>RUANHYC 发表于 2020-6-10 14:38
 虽然这么讲好像有些对不起巨神界的大家，但是我还是想着要是有更多颜色(或者说种类)的'费斯'就好了 ...</blockquote>
 穆穆卡、伽德这种霍姆斯精英才有专用式样Face，一般的全部只有量产型了。
-
-
-
-
-
 
 
 -----
 
 ####  arx-7  
 ##### 4545#       发表于 2020-6-10 15:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47748970&amp;ptid=1856998" target="_blank">shkillone1 发表于 2020-6-10 15:04</a>
@@ -823,32 +541,19 @@ C位的原因是她的武器是双剑这样比较对称吧？
 我是觉得大家已经有点日式原谅PTSD了 所以看到挡刀当场暴怒 并没仔细看对话<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zero33333  
 ##### 4546#       发表于 2020-6-10 15:26
 
 
-
-
 道具交换有无什么要求，随便拿什么都能换？
-
-
-
-
-
 
 
 -----
 
 ####  秋月孝三  
 ##### 4547#       发表于 2020-6-10 15:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47749185&amp;ptid=1856998" target="_blank">arx-7 发表于 2020-6-10 15:19</a>
@@ -859,16 +564,10 @@ C位的原因是她的武器是双剑这样比较对称吧？
 就是因为剧情里对于他「最后几句话怎么出口」+「之前的一系列行动」的铺垫过少玩家才暴怒的，给人一种缺了半章详细描写他心境是如何转变的感觉。就现在这种省笔墨的写法不像在是写一个主人公。反倒是大舅子塑造上佳，结果在快要报得国仇家恨之时被挡下来，被迫给主人公让路，玩家就更暴怒了。
 
 
-
-
-
-
-
 -----
 
 ####  deathomega  
 ##### 4548#       发表于 2020-6-10 15:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47748643&amp;ptid=1856998" target="_blank">RUANHYC 发表于 2020-6-10 14:38</a>
@@ -877,16 +576,10 @@ C位的原因是她的武器是双剑这样比较对称吧？
 20000多只至少，只是种类太少，量产的好多都是锤子吧
 
 
-
-
-
-
-
 -----
 
 ####  thomaszyj  
 ##### 4549#       发表于 2020-6-10 16:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47746161&amp;ptid=1856998" target="_blank">HGCG 发表于 2020-6-10 11:24</a>
@@ -895,25 +588,13 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 这是在暗示大佐吗，毕竟是唯一一个有肉身的，搞不好也是个神棍
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 4550#       发表于 2020-6-10 17:06
 
 
-
-
 才发现未来视触发期间造成与未来视警示技能属性相反的属性伤害会有50%的增伤，国内的帖子好像都没提到这点..
-
-
-
-
-
 
 
 -----
@@ -922,23 +603,15 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 ##### 4551#       发表于 2020-6-10 17:15
 
 
-
-
 后传的公主真好看<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 以及勇者不是欠的钱够多就能当的吗？傻孩子被骗了吧
-
-
-
-
-
 
 
 -----
 
 ####  秋月孝三  
 ##### 4552#       发表于 2020-6-10 17:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47750570&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-10 17:06</a>
@@ -956,21 +629,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 2020-6-10 17:18 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 4553#       发表于 2020-6-10 17:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47750751&amp;ptid=1856998" target="_blank">秋月孝三 发表于 2020-06-10 17:18:45</a>
@@ -979,16 +641,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 4554#       发表于 2020-6-10 17:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47750751&amp;ptid=1856998" target="_blank">秋月孝三 发表于 2020-6-10 17:18</a>
@@ -997,16 +653,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 意思就是说如果敌人是天赋技能就没有倍增了?
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 4555#       发表于 2020-6-10 17:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47750864&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-06-10 17:24:42</a>
@@ -1015,16 +665,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 4556#       发表于 2020-6-10 17:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47750926&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-10 17:28</a>
@@ -1036,16 +680,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">好的
 
 
-
-
-
-
-
 -----
 
 ####  秋月孝三  
 ##### 4557#       发表于 2020-6-10 17:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47750926&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-10 17:28</a>
@@ -1057,16 +695,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 我贴的官方攻略上右边写的是天赋武技没有反属性，本身有属性我知道，比如120的天赋武技是筋力
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 4558#       发表于 2020-6-10 17:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47750954&amp;ptid=1856998" target="_blank">秋月孝三 发表于 2020-06-10 17:30:32</a>
@@ -1075,17 +707,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  xzhychris  
 ##### 4559#       发表于 2020-6-10 17:35
-
-
 
 
 打完机械皇都了，某个老二五仔果然有问题……
@@ -1093,16 +718,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 想越级打怪提升命中的话，除了夜间命中宝石和全部堆敏外还有啥办法，我怎么感觉我丹邦带了50敏宝石，然后性格把敏捷全链接上，带了个3级夜间命中宝石，越级打怪还是全miss啊。。。
 
 
-
-
-
-
-
 -----
 
 ####  bad_alloc  
 ##### 4560#       发表于 2020-6-10 17:40
-
 
 
  本帖最后由 bad_alloc 于 2020-6-10 17:42 编辑 
@@ -1114,16 +733,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 利奇隐藏性格有个背后加命中的链接上试试? 不过这样就要主控丹邦而且不打T位了.
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 4561#       发表于 2020-6-10 17:41
-
 
 
  本帖最后由 Arccueid 于 2020-6-10 17:44 编辑 
@@ -1137,16 +750,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  xzhychris  
 ##### 4562#       发表于 2020-6-10 17:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47751115&amp;ptid=1856998" target="_blank">bad_alloc 发表于 2020-6-10 17:40</a>
@@ -1155,16 +762,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 那其他坦克靠啥拉怪呢。。。难道卡尔纳穿重装靠治疗仇恨么…… 我看越级挑战视频里怎么他们都那么轻松的命中
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 4563#       发表于 2020-6-10 17:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47751044&amp;ptid=1856998" target="_blank">xzhychris 发表于 2020-6-10 17:35</a>
@@ -1175,16 +776,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 炼点宝石吧,夜间命中应该能练出四级宝石了.
 
 
-
-
-
-
-
 -----
 
 ####  bad_alloc  
 ##### 4564#       发表于 2020-6-10 17:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47751137&amp;ptid=1856998" target="_blank">xzhychris 发表于 2020-6-10 17:41</a>
@@ -1196,16 +791,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 要不然干脆以太队算了, 我搞出6级的夜间命中之前越级战斗一路都是以太队打的, 不过也是要刷技能书保证命中.
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 4565#       发表于 2020-6-10 17:44
-
 
 
  本帖最后由 Arccueid 于 2020-6-10 17:46 编辑 
@@ -1217,16 +806,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  秋月孝三  
 ##### 4566#       发表于 2020-6-10 17:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47750975&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-10 17:31</a>
@@ -1238,16 +821,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 我开原版揍了下120确实无效，有发动条件的影响伤害的技能我全卸了，应该没问题
 
 
-
-
-
-
-
 -----
 
 ####  狸狸狐  
 ##### 4567#       发表于 2020-6-10 17:52
-
 
 
 <blockquote>xzhychris 发表于 2020-6-10 17:35
@@ -1257,16 +834,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 开幕敏捷技能，减重技能，敏捷下降宝石，公主三风挂机（技能栏拆到只剩风球），不想占用宝石位的可以试试莱恩的减敏捷连击，另外可以多用以太攻击，公主的以太命中率技能点亮。
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 4568#       发表于 2020-6-10 17:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47751275&amp;ptid=1856998" target="_blank">秋月孝三 发表于 2020-06-10 17:49:02</a>
@@ -1275,17 +846,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  xzhychris  
 ##### 4569#       发表于 2020-6-10 17:54
-
-
 
 
 开幕敏捷，敏捷宝石，夜间命中都带了的，可能等级还不够。
@@ -1293,16 +857,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 我试试用以太毒队去打打大怪看看，目前想去刷80多的龙人刷终极武器都打不过。。。
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 4570#       发表于 2020-6-10 17:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47751379&amp;ptid=1856998" target="_blank">xzhychris 发表于 2020-06-10 17:54:51</a>
@@ -1313,16 +871,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  zjoi  
 ##### 4571#       发表于 2020-6-10 18:04
-
 
 
  本帖最后由 zjoi 于 2020-6-10 18:05 编辑 
@@ -1347,32 +899,19 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 你得想办法把你的敏捷值凑到235，这样加上满夜间命中后，才能保证战技100%命中，平砍65%命中
 
 
-
-
-
-
-
 -----
 
 ####  巨馍蘸酱  
 ##### 4572#       发表于 2020-6-10 18:07
 
 
-
-
 草，17章梅丽娅和菲欧伦那段对话充满了败犬气息
-
-
-
-
-
 
 
 -----
 
 ####  森田美位子  
 ##### 4573#       发表于 2020-6-10 18:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47751379&amp;ptid=1856998" target="_blank">xzhychris 发表于 2020-6-10 17:54</a>
@@ -1383,16 +922,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 不记得谁的毕业武器必须要刷80多的龙人？
 
 
-
-
-
-
-
 -----
 
 ####  xzhychris  
 ##### 4574#       发表于 2020-6-10 18:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47751645&amp;ptid=1856998" target="_blank">森田美位子 发表于 2020-6-10 18:10</a>
@@ -1403,17 +936,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 我开休闲模式去打了一下，出了龙虎风云刀
 
 
-
-
-
-
-
 -----
 
 ####  zjoi  
 ##### 4575#       发表于 2020-6-10 18:25
-
-
 
 
 堆敏捷的途径：
@@ -1439,17 +965,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 算上决定版新增的12级战技等级上限，不考虑羁绊点数问题的。。理论上1级的初始敏捷都能保证100%的战技命中，还溢出4%的命中率。。
 
 
-
-
-
-
-
-
 -----
 
 ####  bad_alloc  
 ##### 4576#       发表于 2020-6-10 18:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47751858&amp;ptid=1856998" target="_blank">zjoi 发表于 2020-6-10 18:25</a>
@@ -1461,17 +980,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 12级上限是不是要打完fc之后才能换？
 
 
-
-
-
-
-
 -----
 
 ####  xzhychris  
 ##### 4577#       发表于 2020-6-10 18:27
-
-
 
 
 大仙人什么时候才会卖书啊
@@ -1479,16 +991,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 我这进度只有卖装备
 
 
-
-
-
-
-
 -----
 
 ####  秋月孝三  
 ##### 4578#       发表于 2020-6-10 18:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47751882&amp;ptid=1856998" target="_blank">xzhychris 发表于 2020-6-10 18:27</a>
@@ -1500,16 +1006,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 — from HUAWEI VIE-AL10, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  zjoi  
 ##### 4579#       发表于 2020-6-10 18:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47751881&amp;ptid=1856998" target="_blank">bad_alloc 发表于 2020-6-10 18:27</a>
@@ -1518,16 +1018,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 通了FC之后再回本篇来买就行了
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 4580#       发表于 2020-6-10 18:31
-
 
 
  本帖最后由 森田美位子 于 2020-6-10 18:32 编辑 
@@ -1544,17 +1038,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 喷了，连拆字都不行
 
 
-
-
-
-
-
 -----
 
 ####  zjoi  
 ##### 4581#       发表于 2020-6-10 18:33
-
-
 
 
 所以可以预见，未来XB1也应该会有1级杀100级+的视频了。。。
@@ -1565,16 +1052,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 话说，这么精准的数值对应。。正好1级就够，感觉是制作组计算好的？
 
 
-
-
-
-
-
 -----
 
 ####  zjoi  
 ##### 4582#       发表于 2020-6-10 18:43
-
 
 
  本帖最后由 zjoi 于 2020-6-10 18:44 编辑 
@@ -1600,23 +1081,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 2020-6-10 18:42 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 4583#       发表于 2020-6-10 18:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47752083&amp;ptid=1856998" target="_blank">zjoi 发表于 2020-6-10 18:43</a>
@@ -1629,16 +1097,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 ...草
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 4584#       发表于 2020-6-10 18:51
-
 
 
  本帖最后由 Arccueid 于 2020-6-10 18:52 编辑 
@@ -1653,16 +1115,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 现在还在支线地狱中，然后加上剩下的主线低通还能估计打100小时左右..
 
 
-
-
-
-
-
 -----
 
 ####  秋月孝三  
 ##### 4585#       发表于 2020-6-10 19:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47752201&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-10 18:51</a>
@@ -1673,16 +1129,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 [https://www.nicovideo.jp/watch/sm36325551](https://www.nicovideo.jp/watch/sm36325551)
 
 
-
-
-
-
-
 -----
 
 ####  zjoi  
 ##### 4586#       发表于 2020-6-10 19:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47752201&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-10 18:51</a>
@@ -1699,13 +1149,7 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 反正通关了，再全员升到61级学全战技降回来再玩各种讨论和花样
 
 
-
 其实还是希望他们能更新点挑战任务和多种类型的怪物，四天王确实不够打了
-
-
-
-
-
 
 
 -----
@@ -1716,12 +1160,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Arccueid  
 ##### 4588#       发表于 2020-6-10 19:16
-
 
 
  本帖最后由 Arccueid 于 2020-6-10 19:18 编辑 
@@ -1733,26 +1175,15 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 天雷转转转其实对没有练度的队伍也不算很强，而且有些精英群只有这种打法才有一丝能过的机会，也不算很broken吧。(简单例子就是要塞主线路上的浪漫的修罗姆，压6级以上正常根本扛不住群怪，只有天雷转转转才有能过的机会)
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 4589#       发表于 2020-6-10 19:24
 
 
-
  本帖最后由 栗悟饭177 于 2020-6-10 19:37 编辑 
 
 打到最后BOSS发现打不过，想出去打点怪升级出不去？好吧，打完了
-
-
-
-
-
 
 
 -----
@@ -1761,23 +1192,16 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 ##### 4590#       发表于 2020-6-10 19:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47752708&amp;ptid=1856998" target="_blank">栗悟饭177 发表于 2020-6-10 19:24</a>
 
 打到最后BOSS发现打不过，想出去打点怪升级出不去？</blockquote>
 哈哈哈完美中招。当问你要不要上去时就该好好想想，结果现在打倒数第二个BOSS的努力全都白费。
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 4591#       发表于 2020-6-10 19:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47752828&amp;ptid=1856998" target="_blank">NameLess2501 发表于 2020-6-10 19:31</a>
@@ -1788,16 +1212,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 多试了几次总算过了
 
 
-
-
-
-
-
 -----
 
 ####  zjoi  
 ##### 4592#       发表于 2020-6-10 19:38
-
 
 
  本帖最后由 zjoi 于 2020-6-10 19:40 编辑 
@@ -1813,32 +1231,19 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 而且可以一只一只引过来打。。如果引到多的，开连携强杀以后跑路，只要不换场景，不会刷新。。主要有利奇在，开局满槽让战术自由度很大
 
 
-
-
-
-
-
 -----
 
 ####  chiefshi  
 ##### 4593#       发表于 2020-6-10 19:52
 
 
-
-
 冈扎雷斯背后的那个任务道具一定要打死他才能拿到吗，不能从柱子底部上来了
-
-
-
-
-
 
 
 -----
 
 ####  Arccueid  
 ##### 4594#       发表于 2020-6-10 19:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47752946&amp;ptid=1856998" target="_blank">zjoi 发表于 2020-6-10 19:38</a>
@@ -1849,16 +1254,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 一个一个杀最后单挑确实没难度，至于纯磨就太鬼畜了，我感觉还没有阳炎无限团队槽或者清完小怪单挑有意义，只能感谢官方调级金手指了。
 
 
-
-
-
-
-
 -----
 
 ####  NameLess2501  
 ##### 4595#       发表于 2020-6-10 19:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47752945&amp;ptid=1856998" target="_blank">栗悟饭177 发表于 2020-6-10 19:38</a>
@@ -1869,16 +1268,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 差10级能过还挺强的。
 
 
-
-
-
-
-
 -----
 
 ####  zjoi  
 ##### 4596#       发表于 2020-6-10 19:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47753214&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-10 19:52</a>
@@ -1889,27 +1282,15 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 甚至还可以MAX连携下，壮汉和丹巴双转。。一次死一片。。
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 4597#       发表于 2020-6-10 19:55
 
 
-
-
 这菲奥伦是怎么变回人的？
 
 我看漏了？
-
-
-
-
-
 
 
 -----
@@ -1918,23 +1299,15 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 ##### 4598#       发表于 2020-6-10 20:06
 
 
-
-
 你们说的“幻化”是啥
 
 我玩日文版不知道对应哪个
-
-
-
-
-
 
 
 -----
 
 ####  mamamiya  
 ##### 4599#       发表于 2020-6-10 20:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47753442&amp;ptid=1856998" target="_blank">HGCG 发表于 2020-6-10 20:06</a>
@@ -1944,16 +1317,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 装备下面的纸娃娃造型
 
 
-
-
-
-
-
 -----
 
 ####  多看书  
 ##### 4600#       发表于 2020-6-10 20:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47753201&amp;ptid=1856998" target="_blank">chiefshi 发表于 2020-6-10 19:52</a>
@@ -1962,17 +1329,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 不用啊，这个任务不是叫你去采矿场找到三个炸药么，找到三个炸药就可以从下面钻上去了。
 
 
-
-
-
-
-
 -----
 
 ####  kos_mos  
 ##### 4601#       发表于 2020-6-10 20:13
-
-
 
 
 梅莉娅的声优勝田詩織，梅娜丝的声优梅田未央，剧本的竹田裕一郎祝贺Xenoblade 10周年
@@ -1995,16 +1355,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 清田愛未对XBDEアレンジ曲的解说 [https://note.com/manamikiyota/n/na7dd0237be3f](https://note.com/manamikiyota/n/na7dd0237be3f)
 
 
-
-
-
-
-
 -----
 
 ####  秋月孝三  
 ##### 4602#       发表于 2020-6-10 20:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47753442&amp;ptid=1856998" target="_blank">HGCG 发表于 2020-6-10 20:06</a>
@@ -2015,17 +1369,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 ファッション装備
 
 
-
-
-
-
-
 -----
 
 ####  阿卵真是牛逼  
 ##### 4603#       发表于 2020-6-10 20:24
-
-
 
 
 鸡神界人的村落晚上一老头找东西，控制梅丽娅去对话，“这事对男人开不了口”
@@ -2036,25 +1383,13 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  封面杀手  
 ##### 4604#       发表于 2020-6-10 20:26
 
 
-
-
 高桥是不是真甩了好基友田中久仁彦
-
-
-
-
-
 
 
 -----
@@ -2063,16 +1398,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 ##### 4605#       发表于 2020-6-10 20:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47753757&amp;ptid=1856998" target="_blank">封面杀手 发表于 2020-6-10 20:26</a>
 
 高桥是不是真甩了好基友田中久仁彦</blockquote>
 之前田中有发过KOS-MOS Re:的figure箱绘可能是自己为Xeno系列最后一次画。
-
-
-
-
-
 
 
 -----
@@ -2081,16 +1410,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 ##### 4606#       发表于 2020-6-10 20:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47753499&amp;ptid=1856998" target="_blank">多看书 发表于 2020-6-10 20:09</a>
 
 不用啊，这个任务不是叫你去采矿场找到三个炸药么，找到三个炸药就可以从下面钻上去了。 ...</blockquote>
 原来炸药是后续炸石头的，感谢
-
-
-
-
-
 
 
 -----
@@ -2099,24 +1422,16 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 ##### 4607#       发表于 2020-6-10 20:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47753838&amp;ptid=1856998" target="_blank">kos_mos 发表于 2020-6-10 20:31</a>
 
 之前田中有发过KOS-MOS Re:的figure箱绘可能是自己为Xeno系列最后一次画。</blockquote>
 别啊。。我还指望什么时候MONO做大了，重制XG呢。。
 
 
-
-
-
-
-
 -----
 
 ####  kos_mos  
 ##### 4608#       发表于 2020-6-10 20:39
-
-
 
 
 雲海KORO助 @ Korosuke_1201 ·21時間
@@ -2136,25 +1451,13 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 <img src="http://wx4.sinaimg.cn/large/8165d3c2gy1gfnh5o0mo8j21410u0x3r.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 4609#       发表于 2020-6-10 21:31
 
 
-
-
 地域评价值在哪里看数值啊
-
-
-
-
-
 
 
 -----
@@ -2163,16 +1466,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 ##### 4610#       发表于 2020-6-10 21:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47754801&amp;ptid=1856998" target="_blank">sandro 发表于 2020-6-10 21:31</a>
 
 地域评价值在哪里看数值啊</blockquote>
 数值没有吧，貌似是1个星星2K
-
-
-
-
-
 
 
 -----
@@ -2181,20 +1478,13 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 ##### 4611#       发表于 2020-6-10 21:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，白色face不会是卡露娜的那谁吧
-
-
-
-
-
 
 
 -----
 
 ####  mjzs07  
 ##### 4612#       发表于 2020-6-10 22:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47747814&amp;ptid=1856998" target="_blank">Errey 发表于 2020-6-10 13:36</a>
@@ -2209,25 +1499,13 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 我不介意复制粘贴多一次，你先想明白人类为什么总是愿意去寻找真相。如果你是我的朋友，我也会劝你不要因愤怒去捅人，真的。
 
 
-
-
-
-
-
 -----
 
 ####  阿卵真是牛逼  
 ##### 4613#       发表于 2020-6-10 22:26
 
 
-
-
 莫纳德技能不能卸下来也太弱智了，AI修尔克碰到机神兵只会打斩，一场打下来也没一个机，麻了。
-
-
-
-
-
 
 
 -----
@@ -2236,16 +1514,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 ##### 4614#       发表于 2020-6-10 22:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47754979&amp;ptid=1856998" target="_blank">deathomega 发表于 2020-6-10 21:43</a>
 
 数值没有吧，貌似是1个星星2K</blockquote>
 我现在c9四星接不到修尔克弱气任务，好气啊
-
-
-
-
-
 
 
 -----
@@ -2254,13 +1526,7 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 ##### 4615#       发表于 2020-6-10 22:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">叫巴恩的都是坏人，范达尔都得遭中，2代好多1代梗
-
-
-
-
-
 
 
 -----
@@ -2269,21 +1535,13 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 ##### 4616#       发表于 2020-6-10 22:52
 
 
-
-
 喷了，后日谈的两只诺彭是师从莱恩和迦尔纳吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  deathomega  
 ##### 4617#       发表于 2020-6-10 22:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47755694&amp;ptid=1856998" target="_blank">sandro 发表于 2020-6-10 22:37</a>
@@ -2300,16 +1558,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 我一度以为所有人的第4性格都这么难搞，还好后面菲奥伦和丹巴的简单死了……
 
 
-
-
-
-
-
 -----
 
 ####  deathomega  
 ##### 4618#       发表于 2020-6-10 22:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47755139&amp;ptid=1856998" target="_blank">名守居 发表于 2020-6-10 21:53</a>
@@ -2324,25 +1576,13 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 你再猜
 
 
-
-
-
-
-
 -----
 
 ####  RUANHYC  
 ##### 4619#       发表于 2020-6-10 23:57
 
 
-
-
 不小心勾引到高级怪的那个瞬间2代的回忆涌上心头<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2353,7 +1593,6 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  亚瑟邓特  
@@ -2362,12 +1601,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Zhangsmallquan  
 ##### 4622#       发表于 2020-6-11 00:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47755555&amp;ptid=1856998" target="_blank">阿卵真是牛逼 发表于 2020-6-10 22:26</a>
@@ -2376,16 +1613,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 确实，我人均机神武器，AI还一直放机浪费技能。还好战斗之魂可以拆下，感觉ai很喜欢用这个换天赋，血线经常很危险
 
 
-
-
-
-
-
 -----
 
 ####  莉拉厨  
 ##### 4623#       发表于 2020-6-11 01:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47755139&amp;ptid=1856998" target="_blank">名守居 发表于 2020-06-10 21:53:09</a>
@@ -2394,17 +1625,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  memphiseme  
 ##### 4624#       发表于 2020-6-11 01:06
-
-
 
 
 熬夜通关了，通关后好像没有xb2那样的彩蛋啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer"> 
@@ -2423,9 +1647,6 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 2020-6-11 01:03 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/202006/11/010354po4offkbxpbd7fmk.png" referrerpolicy="no-referrer">
 
 
@@ -2436,22 +1657,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 2020-6-11 01:03 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  deathomega  
 ##### 4625#       发表于 2020-6-11 01:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47756678&amp;ptid=1856998" target="_blank">Zhangsmallquan 发表于 2020-6-11 00:12</a>
@@ -2460,16 +1669,10 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 link一下半血+敏捷，半血+防御……稳得一批
 
 
-
-
-
-
-
 -----
 
 ####  LamdaHT  
 ##### 4626#       发表于 2020-6-11 01:34
-
 
 
  本帖最后由 LamdaHT 于 2020-6-11 01:36 编辑 
@@ -2482,25 +1685,13 @@ link一下半血+敏捷，半血+防御……稳得一批
 尼娅跟吼姆啦关系那么好，赖着跟三人一块住说不定还能好吃好喝供着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  DARK_HGCG  
 ##### 4627#       发表于 2020-6-11 02:22
 
 
-
-
 哪些人应该重装备？
-
-
-
-
-
 
 
 -----
@@ -2509,14 +1700,7 @@ link一下半血+敏捷，半血+防御……稳得一批
 ##### 4628#       发表于 2020-6-11 03:11
 
 
-
-
 梅娜丝为什么这么菜啊，因为她不肯吃机神界的人吗？从一开始的附身登场那么酷炫，后期在菲奥伦身体里充满神秘感，结果真身出来后被赞扎一个终结十字就给秒了……理论上来说，梅娜丝消失后菲奥伦应该不用或者很少用终结十字了，毕竟电池被拔了，这招看着还特像漏电攻击，电都快没了还放电呢。（但是幸好没有按照剧情弄下去，这招是真的猛）
-
-
-
-
-
 
 
 -----
@@ -2525,16 +1709,9 @@ link一下半血+敏捷，半血+防御……稳得一批
 ##### 4629#       发表于 2020-6-11 03:14
 
 
-
-
 截止异度之刃12结束时间点，三位异刃的时髦值还是小绿最高吧，拿到了克劳乌斯的最高权限，阿尔维斯感觉只是ob，灭哥哥更是丢人被阿光吊打
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -2543,23 +1720,16 @@ link一下半血+敏捷，半血+防御……稳得一批
 ##### 4630#       发表于 2020-6-11 03:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47757643&amp;ptid=1856998" target="_blank">UyNad 发表于 2020-06-11 03:11:01</a>
 梅娜丝为什么这么菜啊，因为她不肯吃机神界的人吗？从一开始的附身登场那么酷炫，后期在菲奥伦身体里充满神 ...</blockquote>梅娜斯思想比较像二代的克劳乌斯
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  体质的错  
 ##### 4631#       发表于 2020-6-11 03:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47757651&amp;ptid=1856998" target="_blank">穿着熊 发表于 2020-6-10 15:14</a>
@@ -2569,16 +1739,10 @@ link一下半血+敏捷，半血+防御……稳得一批
 一人血@书XB3讲三台电脑的故事！
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 4632#       发表于 2020-6-11 03:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47757523&amp;ptid=1856998" target="_blank">DARK_HGCG 发表于 2020-6-11 02:22</a>
@@ -2589,25 +1753,13 @@ link一下半血+敏捷，半血+防御……稳得一批
 不过，我自己都懒得弄，莱因都穿中装备了事
 
 
-
-
-
-
-
 -----
 
 ####  UyNad  
 ##### 4633#       发表于 2020-6-11 03:45
 
 
-
-
 （虽然赞扎是个完完全全的弟弟臭**但我还挺吃他的脸和声线的，要死）
-
-
-
-
-
 
 
 -----
@@ -2616,15 +1768,9 @@ link一下半血+敏捷，半血+防御……稳得一批
 ##### 4634#       发表于 2020-6-11 07:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47756678&amp;ptid=1856998" target="_blank">Zhangsmallquan 发表于 2020-6-11 00:12</a>
 确实，我人均机神武器，AI还一直放机浪费技能。还好战斗之魂可以拆下，感觉ai很喜欢用这个换天赋，血线经 ...</blockquote>
 是的，那招已经被我卸了
-
-
-
-
-
 
 
 -----
@@ -2633,14 +1779,7 @@ link一下半血+敏捷，半血+防御……稳得一批
 ##### 4635#       发表于 2020-6-11 07:29
 
 
-
-
 自己用卡尔娜的话，绝招怎么配？
-
-
-
-
-
 
 
 -----
@@ -2649,16 +1788,10 @@ link一下半血+敏捷，半血+防御……稳得一批
 ##### 4636#       发表于 2020-6-11 07:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47756678&amp;ptid=1856998" target="_blank">Zhangsmallquan 发表于 2020-6-11 00:12</a>
 
 确实，我人均机神武器，AI还一直放机浪费技能。还好战斗之魂可以拆下，感觉ai很喜欢用这个换天赋，血线经 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">机加伤害啊，战魂就更别说了，人用那都是几乎CD好了就开，除了天赋量，更加为了触发大量的半血BUFF，再后点得了轰之后就知道留天赋打防御简直浪费
-
-
-
-
-
 
 
 -----
@@ -2667,14 +1800,7 @@ link一下半血+敏捷，半血+防御……稳得一批
 ##### 4637#       发表于 2020-6-11 08:09
 
 
-
-
 后日谈这修尔克戴上帽子从后面看一股林克味
-
-
-
-
-
 
 
 -----
@@ -2683,21 +1809,13 @@ link一下半血+敏捷，半血+防御……稳得一批
 ##### 4638#       发表于 2020-6-11 08:20
 
 
-
-
 后传12个诺彭好热闹，带奇诺上场的时候根本看不出在哪<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  蓝雉  
 ##### 4639#       发表于 2020-6-11 08:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47753276&amp;ptid=1856998" target="_blank">栗悟饭177 发表于 2020-6-10 19:55</a>
@@ -2707,26 +1825,15 @@ link一下半血+敏捷，半血+防御……稳得一批
 官方小说有解释
 
 
-
-
-
-
-
 -----
 
 ####  mcq_2  
 ##### 4640#       发表于 2020-6-11 08:36
 
 
-
 <blockquote>bird-lay 发表于 2020-6-11 08:20
 后传12个诺彭好热闹，带奇诺上场的时候根本看不出在哪</blockquote>
 别说了，后转又卡又糊，怀疑就是诺鹏太多了
-
-
-
-
-
 
 
 -----
@@ -2735,15 +1842,9 @@ link一下半血+敏捷，半血+防御……稳得一批
 ##### 4641#       发表于 2020-6-11 08:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47758251&amp;ptid=1856998" target="_blank">bird-lay 发表于 2020-6-11 08:20</a>
 后传12个诺彭好热闹，带奇诺上场的时候根本看不出在哪</blockquote>
 一开始拖着几只尾巴还觉得挺好玩的，集齐之后场面真是太乱了
-
-
-
-
-
 
 
 -----
@@ -2752,15 +1853,8 @@ link一下半血+敏捷，半血+防御……稳得一批
 ##### 4642#       发表于 2020-6-11 08:58
 
 
-
-
 力奇也收到了 有什么好上手又比较有操作感的队伍build吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">最好是能练梅利亚羁绊的
-
-
-
-
-
 
 
 -----
@@ -2769,23 +1863,16 @@ link一下半血+敏捷，半血+防御……稳得一批
 ##### 4643#       发表于 2020-6-11 09:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47758251&amp;ptid=1856998" target="_blank">bird-lay 发表于 2020-6-11 08:20</a>
 
 后传12个诺彭好热闹，带奇诺上场的时候根本看不出在哪</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我反而嫌烦，卡得掉帧，这就是压力测试吗
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 4644#       发表于 2020-6-11 09:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47758651&amp;ptid=1856998" target="_blank">LamdaHT 发表于 2020-6-11 09:04</a>
@@ -2796,11 +1883,6 @@ link一下半血+敏捷，半血+防御……稳得一批
 用修尔克就是我在打谁谁在打我完全看不清<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  亚瑟邓特  
@@ -2809,12 +1891,10 @@ link一下半血+敏捷，半血+防御……稳得一批
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  蓝雉  
 ##### 4646#       发表于 2020-6-11 09:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47758887&amp;ptid=1856998" target="_blank">亚瑟邓特 发表于 2020-6-11 09:28</a>
@@ -2824,27 +1904,15 @@ link一下半血+敏捷，半血+防御……稳得一批
 贴吧有，搜一下就好了
 
 
-
-
-
-
-
 -----
 
 ####  穿着熊  
 ##### 4647#       发表于 2020-6-11 09:35
 
 
-
-
 1代最后这一段第一人称结尾牛逼的一塌糊涂，结果最后菲奥伦换了个假小子短发瞬间看麻了
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -2853,17 +1921,10 @@ link一下半血+敏捷，半血+防御……稳得一批
 ##### 4648#       发表于 2020-6-11 09:38
 
 
-
-
 草第一时间想到的是化物语，一看果然是2009 2010年的东西
 这最后一段怕不是因为物语火爆所以跟着搞成短发的吧
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -2872,17 +1933,11 @@ link一下半血+敏捷，半血+防御……稳得一批
 ##### 4649#       发表于 2020-6-11 09:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47737049&amp;ptid=1856998" target="_blank">红魔馆的糖 发表于 2020-6-9 16:34</a>
 莱茵桃花也不错啊美人痣黑皮寡妇，无法拒绝</blockquote>
 而且莱茵18岁，未亡人21岁，女大三抱金砖了
 
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -2893,12 +1948,10 @@ link一下半血+敏捷，半血+防御……稳得一批
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  sandro  
 ##### 4651#       发表于 2020-6-11 10:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47755895&amp;ptid=1856998" target="_blank">deathomega 发表于 2020-6-10 22:53</a>
@@ -2910,16 +1963,10 @@ link一下半血+敏捷，半血+防御……稳得一批
 感谢，说了圈话果然就有了
 
 
-
-
-
-
-
 -----
 
 ####  caicaistar  
 ##### 4652#       发表于 2020-6-11 10:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47759265&amp;ptid=1856998" target="_blank">亚瑟邓特 发表于 2020-6-11 09:55</a>
@@ -2931,16 +1978,10 @@ link一下半血+敏捷，半血+防御……稳得一批
 [https://tieba.baidu.com/p/3563784866](https://tieba.baidu.com/p/3563784866)
 
 
-
-
-
-
-
 -----
 
 ####  thomaszyj  
 ##### 4653#       发表于 2020-6-11 10:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47757523&amp;ptid=1856998" target="_blank">DARK_HGCG 发表于 2020-6-11 02:22</a>
@@ -2949,25 +1990,13 @@ link一下半血+敏捷，半血+防御……稳得一批
 莱恩需要，因为他肯定是做t的，用来防一些主要打物理大招的精英怪很有用，其他人没太大必要
 
 
-
-
-
-
-
 -----
 
 ####  Ditfran  
 ##### 4654#       发表于 2020-6-11 10:39
 
 
-
-
  今天试了试炒饭老师的大姐当T的打法，发现真是好用呀，全员70级把那只90的不动猩猩给干死了
-
-
-
-
-
 
 
 -----
@@ -2976,14 +2005,7 @@ link一下半血+敏捷，半血+防御……稳得一批
 ##### 4655#       发表于 2020-6-11 10:45
 
 
-
-
 话说莱恩，卡露娜和梅莉亚组队有个战后对话有一组是莱恩说错话气得梅莉亚让卡露娜爆莱恩的头，可惜听不太懂具体说了啥，不知道有没有人整理一代的战后对话
-
-
-
-
-
 
 
 -----
@@ -2992,21 +2014,13 @@ link一下半血+敏捷，半血+防御……稳得一批
 ##### 4656#       发表于 2020-6-11 10:56
 
 
-
-
 大剑峡谷那个第三门后面的精英牛逼，才57级就逼迫更换宝石了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  秋月孝三  
 ##### 4657#       发表于 2020-6-11 10:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47759917&amp;ptid=1856998" target="_blank">蓝雉 发表于 2020-6-11 10:45</a>
@@ -3026,31 +2040,19 @@ link一下半血+敏捷，半血+防御……稳得一批
 [https://w.atwiki.jp/xenoblade/pages/64.html](https://w.atwiki.jp/xenoblade/pages/64.html) ，战后对话这里可以找到，官方设定集上也有
 
 
-
-
-
-
-
 -----
 
 ####  多看书  
 ##### 4658#       发表于 2020-6-11 10:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩到40级还是完全没玩明白，宝石一次都没炼过，打精英怪吃力的很。有没有个攻略贴观摩一下啊，专楼爬了半天也没看到。
-
-
-
-
-
 
 
 -----
 
 ####  红魔馆的糖  
 ##### 4659#       发表于 2020-6-11 11:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47759205&amp;ptid=1856998" target="_blank">南宫月汐 发表于 2020-6-11 09:52</a>
@@ -3061,16 +2063,10 @@ link一下半血+敏捷，半血+防御……稳得一批
 莱茵:我才是男主
 
 
-
-
-
-
-
 -----
 
 ####  蓝雉  
 ##### 4660#       发表于 2020-6-11 11:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47760089&amp;ptid=1856998" target="_blank">秋月孝三 发表于 2020-6-11 10:57</a>
@@ -3082,16 +2078,10 @@ link一下半血+敏捷，半血+防御……稳得一批
 多谢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  bad_alloc  
 ##### 4661#       发表于 2020-6-11 11:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47760115&amp;ptid=1856998" target="_blank">多看书 发表于 2020-6-11 10:59</a>
@@ -3102,16 +2092,10 @@ link一下半血+敏捷，半血+防御……稳得一批
 坛友攻略, 挺好的
 
 
-
-
-
-
-
 -----
 
 ####  bad_alloc  
 ##### 4662#       发表于 2020-6-11 11:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47760089&amp;ptid=1856998" target="_blank">秋月孝三 发表于 2020-6-11 10:57</a>
@@ -3124,16 +2108,10 @@ link一下半血+敏捷，半血+防御……稳得一批
 梅梅/卡露娜/摸摸摸的战后对话也特别搞
 
 
-
-
-
-
-
 -----
 
 ####  Troywest  
 ##### 4663#       发表于 2020-6-11 11:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47760143&amp;ptid=1856998" target="_blank">红魔馆的糖 发表于 2020-6-11 11:02</a>
@@ -3146,16 +2124,10 @@ link一下半血+敏捷，半血+防御……稳得一批
 加德毕竟不是主角团，死了就死了，回不来。只能说大姐能和莱茵在一起也不错。Jojo也很喜欢莱茵，感觉一家子能过的很融洽。
 
 
-
-
-
-
-
 -----
 
 ####  LamdaHT  
 ##### 4664#       发表于 2020-6-11 11:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47760302&amp;ptid=1856998" target="_blank">Troywest 发表于 2020-6-11 11:13</a>
@@ -3168,16 +2140,10 @@ link一下半血+敏捷，半血+防御……稳得一批
 加德也是对得起自己的机甲配色。
 
 
-
-
-
-
-
 -----
 
 ####  Troywest  
 ##### 4665#       发表于 2020-6-11 11:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47760411&amp;ptid=1856998" target="_blank">LamdaHT 发表于 2020-6-11 11:23</a>
@@ -3185,17 +2151,10 @@ link一下半血+敏捷，半血+防御……稳得一批
 所以羡慕莱茵，女大三抱金砖，爽死了
 
 
-
-
-
-
-
 -----
 
 ####  Asukalangley33  
 ##### 4666#       发表于 2020-6-11 12:02
-
-
 
 
 问一下仇恨系统的问题
@@ -3208,16 +2167,10 @@ link一下半血+敏捷，半血+防御……稳得一批
 打精英怪时的问题在于我总会不停OT，明明有故意停手放缓节奏也没什么改善<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mcq_2  
 ##### 4667#       发表于 2020-6-11 12:11
-
 
 
 <blockquote>Asukalangley33 发表于 2020-6-11 12:02
@@ -3229,16 +2182,10 @@ link一下半血+敏捷，半血+防御……稳得一批
 能力不够不要引怪，一个个打
 
 
-
-
-
-
-
 -----
 
 ####  dren_zheng  
 ##### 4668#       发表于 2020-6-11 12:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47760905&amp;ptid=1856998" target="_blank">Asukalangley33 发表于 2020-6-11 12:02</a>
@@ -3261,16 +2208,10 @@ link一下半血+敏捷，半血+防御……稳得一批
 顺便，莱恩前期就有很多范围技能，拉怪群坦要比大舅子好的
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 4669#       发表于 2020-6-11 12:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47760905&amp;ptid=1856998" target="_blank">Asukalangley33 发表于 2020-6-11 12:02</a>
@@ -3282,16 +2223,10 @@ link一下半血+敏捷，半血+防御……稳得一批
 奶确实吸仇恨，用奶当t稳得一比
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 4670#       发表于 2020-6-11 12:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47760905&amp;ptid=1856998" target="_blank">Asukalangley33 发表于 2020-6-11 12:02</a>
@@ -3303,16 +2238,10 @@ link一下半血+敏捷，半血+防御……稳得一批
 把那个减伤害加防御的光环去掉，要群嘲换狂战士光环
 
 
-
-
-
-
-
 -----
 
 ####  NameLess2501  
 ##### 4671#       发表于 2020-6-11 13:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47760905&amp;ptid=1856998" target="_blank">Asukalangley33 发表于 2020-6-11 12:02</a>
@@ -3329,25 +2258,13 @@ link一下半血+敏捷，半血+防御……稳得一批
 — from OPPO CPH1851, Android 8.1.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  モナド  
 ##### 4672#       发表于 2020-6-11 14:03
 
 
-
-
 推荐莱恩丹邦一起上，换下修尔克，完美解决仇恨问题
-
-
-
-
-
 
 
 -----
@@ -3356,14 +2273,7 @@ link一下半血+敏捷，半血+防御……稳得一批
 ##### 4673#       发表于 2020-6-11 14:05
 
 
-
-
 没有墓碑和图鉴太不方便了，哪个精英打没打都分不清
-
-
-
-
-
 
 
 -----
@@ -3372,14 +2282,7 @@ link一下半血+敏捷，半血+防御……稳得一批
 ##### 4674#       发表于 2020-6-11 14:06
 
 
-
-
 游戏里征服王亚齐尼有什么背景介绍么，本篇有他的坟墓，后日谈有他的出生之地和空中庭院遗迹
-
-
-
-
-
 
 
 -----
@@ -3388,16 +2291,9 @@ link一下半血+敏捷，半血+防御……稳得一批
 ##### 4675#       发表于 2020-6-11 14:56
 
 
-
-
 114精英怪怎么打
 
 那种范围攻击一直不懂怎么应对
-
-
-
-
-
 
 
 -----
@@ -3406,16 +2302,10 @@ link一下半血+敏捷，半血+防御……稳得一批
 ##### 4676#       发表于 2020-6-11 14:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47761539&amp;ptid=1856998" target="_blank">sandro 发表于 2020-6-11 12:47</a>
 
 奶确实吸仇恨，用奶当t稳得一比</blockquote>
 以太队，妹子队我都是用奶穿重甲当T，反正仇恨也没人抢得过……
-
-
-
-
-
 
 
 -----
@@ -3424,14 +2314,7 @@ link一下半血+敏捷，半血+防御……稳得一批
 ##### 4677#       发表于 2020-6-11 15:24
 
 
-
-
 原版的武器攻击力bug修正了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3440,14 +2323,7 @@ link一下半血+敏捷，半血+防御……稳得一批
 ##### 4678#       发表于 2020-6-11 15:54
 
 
-
-
 相连的未来，有个替勇者力奇还债的任务，最后叫我在古代都市里找个厨师做布丁，然后任务怎么没有指引啊，找不到这个叫塔希的人，他在哪啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3456,22 +2332,13 @@ link一下半血+敏捷，半血+防御……稳得一批
 ##### 4679#       发表于 2020-6-11 15:55
 
 
-
-
-
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  Arccueid  
 ##### 4680#       发表于 2020-6-11 15:55
-
 
 
  本帖最后由 Arccueid 于 2020-6-11 15:56 编辑 
@@ -3485,27 +2352,15 @@ link一下半血+敏捷，半血+防御……稳得一批
 如果用铠能抗住就用铠就行。
 
 
-
-
-
-
-
 -----
 
 ####  穿着熊  
 ##### 4681#       发表于 2020-6-11 15:57
 
 
-
-
 在对比相连和未来战斗曲和黄金之国伊拉时发现伊拉在56s开始一段东方味太浓了，一股风神录的感觉
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -3514,23 +2369,16 @@ link一下半血+敏捷，半血+防御……稳得一批
 ##### 4682#       发表于 2020-6-11 16:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47763341&amp;ptid=1856998" target="_blank">秋月孝三 发表于 2020-6-11 15:24</a>
 
 原版的武器攻击力bug修正了</blockquote>
 是攻击力上限那个bug吗?
 
 
-
-
-
-
-
 -----
 
 ####  秋月孝三  
 ##### 4683#       发表于 2020-6-11 16:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47764115&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-6-11 16:23</a>
@@ -3540,26 +2388,15 @@ link一下半血+敏捷，半血+防御……稳得一批
 — from HUAWEI VIE-AL10, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  沈经文  
 ##### 4684#       发表于 2020-6-11 17:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47763709&amp;ptid=1856998" target="_blank">蓮華 发表于 2020-6-11 15:54</a>
 相连的未来，有个替勇者力奇还债的任务，最后叫我在古代都市里找个厨师做布丁，然后任务怎么没有指引啊，找 ...</blockquote>
 要先做别的支线这npc才出来
-
-
-
-
-
 
 
 -----
@@ -3568,21 +2405,13 @@ link一下半血+敏捷，半血+防御……稳得一批
 ##### 4685#       发表于 2020-6-11 17:19
 
 
-
-
 一开始还以为莫纳德会有个群奶的功能呢，可惜没有
-
-
-
-
-
 
 
 -----
 
 ####  yzqray  
 ##### 4686#       发表于 2020-6-11 18:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47763051&amp;ptid=1856998" target="_blank">中泽君 发表于 2020-6-11 14:56</a>
@@ -3592,16 +2421,10 @@ link一下半血+敏捷，半血+防御……稳得一批
 后期boss秒杀技基本都有发招前摇，看boss出招名了直接倒地就可以打断，比如公主踢
 
 
-
-
-
-
-
 -----
 
 ####  zjoi  
 ##### 4687#       发表于 2020-6-11 18:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47763051&amp;ptid=1856998" target="_blank">中泽君 发表于 2020-6-11 14:56</a>
@@ -3617,26 +2440,15 @@ link一下半血+敏捷，半血+防御……稳得一批
 另外，这种开场未来视的怪，不要太舒服，活用仇恨转移，可以轻松就把士气抬高到最高
 
 
-
-
-
-
-
 -----
 
 ####  蓮華  
 ##### 4688#       发表于 2020-6-11 18:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47764894&amp;ptid=1856998" target="_blank">沈经文 发表于 2020-6-11 17:15</a>
 要先做别的支线这npc才出来</blockquote>
 谢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3645,23 +2457,16 @@ link一下半血+敏捷，半血+防御……稳得一批
 ##### 4689#       发表于 2020-6-11 18:49
 
 
-
 <img src="https://p.sda1.dev/0/b0adcddd18097af8a04977442a80a4dd/IMG_0AE4FCF7858FE89113F99B4E7812AC1E.jpeg" referrerpolicy="no-referrer">
 这图标没注意过，看贴吧讨论才注意到。联动某贴这算反派的UI吗
 
 —— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 4690#       发表于 2020-6-11 18:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47764277&amp;ptid=1856998" target="_blank">秋月孝三 发表于 2020-6-11 16:35</a>
@@ -3673,16 +2478,10 @@ link一下半血+敏捷，半血+防御……稳得一批
 那攻击上下限差距大的武器.............
 
 
-
-
-
-
-
 -----
 
 ####  狸狸狐  
 ##### 4691#       发表于 2020-6-11 18:57
-
 
 
 [https://www.youtube.com/watch?v=pd-a_yYPoiY](https://www.youtube.com/watch?v=pd-a_yYPoiY)
@@ -3690,16 +2489,10 @@ link一下半血+敏捷，半血+防御……稳得一批
 任天堂油管账号发了一段Nintendo power，里面半小时内容是讨论XB1D的，有兴趣可以看看
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 4692#       发表于 2020-6-11 19:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47766217&amp;ptid=1856998" target="_blank">狸狸狐 发表于 2020-6-11 18:57</a>
@@ -3714,17 +2507,9 @@ XBDE1_CY双语.srt
 (428.02 KB, 下载次数: 18)
 
 
-
 2020-6-11 19:12 上传
 
 点击文件名下载附件
-
-
-
-
-
-
-
 
 
 彩云双语机翻
@@ -3735,34 +2520,18 @@ XBDE1.srt
 (119.05 KB, 下载次数: 15)
 
 
-
 2020-6-11 19:12 上传
 
 点击文件名下载附件
 
 
-
-
-
-
-
-
-
 古狗双语机翻
-
-
-
-
-
-
-
 
 
 -----
 
 ####  bighand3714  
 ##### 4693#       发表于 2020-6-11 19:44
-
 
 
  本帖最后由 bighand3714 于 2020-6-11 19:46 编辑 
@@ -3779,27 +2548,15 @@ XBDE1.srt
 现在就等着NS PRO或模拟器完善后到游戏里截图了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  蓮華  
 ##### 4694#       发表于 2020-6-11 19:55
 
 
-
 <img src="https://i.loli.net/2020/06/11/wHnfM7dem1Q2FpR.jpg" referrerpolicy="no-referrer">
 
 通关！
-
-
-
-
-
 
 
 -----
@@ -3808,14 +2565,7 @@ XBDE1.srt
 ##### 4695#       发表于 2020-6-11 20:02
 
 
-
-
 那些对崩和倒地有抗性的该怎么办？有专门的抗性宝石吗？还是提升技能等级就可以？
-
-
-
-
-
 
 
 -----
@@ -3824,15 +2574,9 @@ XBDE1.srt
 ##### 4696#       发表于 2020-6-11 20:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47766853&amp;ptid=1856998" target="_blank">蓮華 发表于 2020-6-11 19:55</a>
 通关！</blockquote>
 你们……都不上班的么，这么肝<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3841,15 +2585,9 @@ XBDE1.srt
 ##### 4697#       发表于 2020-6-11 20:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47763709&amp;ptid=1856998" target="_blank">蓮華 发表于 2020-6-11 15:54</a>
 相连的未来，有个替勇者力奇还债的任务，最后叫我在古代都市里找个厨师做布丁，然后任务怎么没有指引啊，找 ...</blockquote>
 要快结束的时候这货才会出来，你还得先帮他做任务<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3858,16 +2596,10 @@ XBDE1.srt
 ##### 4698#       发表于 2020-6-11 20:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47766955&amp;ptid=1856998" target="_blank">Ditfran 发表于 2020-6-11 20:02</a>
 
 那些对崩和倒地有抗性的该怎么办？有专门的抗性宝石吗？还是提升技能等级就可以？ ...</blockquote>
 进连锁可以无视抗性，使控制技能100%生效Melia或丹邦这种需要前置技能的类型也可以用 第一招&gt;开连锁&gt;第二招 的方式来使高回避/高抗性的怪强制倒地
-
-
-
-
-
 
 
 -----
@@ -3876,14 +2608,7 @@ XBDE1.srt
 ##### 4699#       发表于 2020-6-11 20:49
 
 
-
-
 这游戏对等级还真的要求挺严的，加德25级，我23级团灭了两次，跑外面练了两级回来就轻松多了………………
-
-
-
-
-
 
 
 -----
@@ -3892,16 +2617,10 @@ XBDE1.srt
 ##### 4700#       发表于 2020-6-11 20:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47767076&amp;ptid=1856998" target="_blank">电风扇 发表于 2020-6-11 20:13</a>
 
 进连锁可以无视抗性，使控制技能100%生效Melia或丹邦这种需要前置技能的类型也可以用 第一招&gt;开连锁&gt;第二 ...</blockquote>
 多谢
-
-
-
-
-
 
 
 -----
@@ -3910,16 +2629,10 @@ XBDE1.srt
 ##### 4701#       发表于 2020-6-11 20:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47767556&amp;ptid=1856998" target="_blank">xifeilu 发表于 2020-6-11 20:49</a>
 
 这游戏对等级还真的要求挺严的，加德25级，我23级团灭了两次，跑外面练了两级回来就轻松多了……………… ...</blockquote>
 3级内基本没影响啊
-
-
-
-
-
 
 
 -----
@@ -3928,24 +2641,16 @@ XBDE1.srt
 ##### 4702#       发表于 2020-6-11 20:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47767631&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-11 20:53</a>
 
 3级内基本没影响啊</blockquote>
 但是我23级就团灭25级就打过了，打法差不多，顶多就是练级时候又刷到两件防更高一丢丢德装备换了一下，总体之前怎么打之后还是怎么打…………
 
 
-
-
-
-
-
 -----
 
 ####  forzeroer  
 ##### 4703#       发表于 2020-6-11 20:56
-
-
 
 
 拖拖拉拉今天终于14小时完美通关相连未来了说点感想。
@@ -3961,27 +2666,15 @@ XBDE1.srt
 那个冰王冠虽说有点想牛角，戴梅丽娅头上还挺好看的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 4704#       发表于 2020-6-11 21:20
 
 
-
-
 后传没了未来视好难打，不过雾乃王倒是挺菜的
 
 修尔克怕不是最后都不知道梅丽娅喜欢他<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3990,16 +2683,10 @@ XBDE1.srt
 ##### 4705#       发表于 2020-6-11 21:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47767658&amp;ptid=1856998" target="_blank">xifeilu 发表于 2020-6-11 20:55</a>
 
 但是我23级就团灭25级就打过了，打法差不多，顶多就是练级时候又刷到两件防更高一丢丢德装备换了一下，总 ...</blockquote>
 不过前期属性成长也不少，只是等级差补正这方面没有影响
-
-
-
-
-
 
 
 -----
@@ -4008,20 +2695,13 @@ XBDE1.srt
 ##### 4706#       发表于 2020-6-11 21:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">刷诺彭水晶现在最效率的方法只能6400奖励的雾乃兽任务15秒一次么，这效率和2代比太差了，2万一本的书不知道啥时候才能收集齐……
-
-
-
-
-
 
 
 -----
 
 ####  xifeilu  
 ##### 4707#       发表于 2020-6-11 21:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47768284&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-11 21:38</a>
@@ -4032,25 +2712,13 @@ XBDE1.srt
 差别就是之前的BOSS都是一遍过得，这个第一次卡住了，我以为我这种支线做德挺勤劳的人等级不会跟主线BOSS差太多，没想到这次还拉下两级
 
 
-
-
-
-
-
 -----
 
 ####  柳柳昭陵  
 ##### 4708#       发表于 2020-6-11 22:05
 
 
-
-
 艹，机神村这打怪任务变本加厉了。
-
-
-
-
-
 
 
 -----
@@ -4059,16 +2727,10 @@ XBDE1.srt
 ##### 4709#       发表于 2020-6-11 22:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47766135&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-6-11 18:50</a>
 
 那攻击上下限差距大的武器.............</blockquote>
 攻击力强化彻底咸鱼翻身
-
-
-
-
-
 
 
 -----
@@ -4077,16 +2739,10 @@ XBDE1.srt
 ##### 4710#       发表于 2020-6-11 22:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47768868&amp;ptid=1856998" target="_blank">秋月孝三 发表于 2020-6-11 22:21</a>
 
 攻击力强化彻底咸鱼翻身</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那攻击稳定岂不是...
-
-
-
-
-
 
 
 -----
@@ -4095,16 +2751,9 @@ XBDE1.srt
 ##### 4711#       发表于 2020-6-11 22:27
 
 
-
-
 进入17章了，随便接一个支线都是90+的怪太刺激了。66级在灰烬洞窟一路跑酷绕过几个精英怪，最后把一个普通小怪耗死了拿任务物品，太刺激了。顺路毛到几个究极火之结晶爽到，VI力量宝石有了
 
 另外一个支线去了海恩塔王都，里面全是特蕾西亚真吓人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，但是城内传送门失效了，查了一下原来还得做前置任务才能上楼，为什么不设置成先接前置才能接这个啊
-
-
-
-
-
 
 
 -----
@@ -4113,16 +2762,10 @@ XBDE1.srt
 ##### 4712#       发表于 2020-6-11 22:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47768868&amp;ptid=1856998" target="_blank">秋月孝三 发表于 2020-6-11 22:21</a>
 
 攻击力强化彻底咸鱼翻身</blockquote>
 意思是现在攻击上限能打出来了吗，不是那种最低+100什么的？
-
-
-
-
-
 
 
 -----
@@ -4131,20 +2774,15 @@ XBDE1.srt
 ##### 4713#       发表于 2020-6-11 22:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47768998&amp;ptid=1856998" target="_blank">Zhangsmallquan 发表于 2020-6-11 22:29</a>
 
 意思是现在攻击上限能打出来了吗，不是那种最低+100什么的？</blockquote>
 没有下限+99的限制了
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -4154,19 +2792,13 @@ XBDE1.srt
 | Rarity5| + 1|厉害了|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  绿冰  
 ##### 4714#       发表于 2020-6-11 23:51
-
 
 
  本帖最后由 绿冰 于 2020-6-12 00:09 编辑 
@@ -4176,17 +2808,10 @@ XBDE1.srt
 奇诺的青木发套和青木背心始终拿不到，有啥知道怎么弄吗
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 4715#       发表于 2020-6-12 00:11
-
-
 
 
 有孔的武器都能刷到3孔的版本吗？
@@ -4194,16 +2819,10 @@ XBDE1.srt
 想弄一个力奇的三孔流星群，怎么都刷不出来<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 4716#       发表于 2020-6-12 00:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47769992&amp;ptid=1856998" target="_blank">绿冰 发表于 2020-6-11 23:51</a>
@@ -4214,16 +2833,10 @@ XBDE1.srt
 禅洞门接一个找东西的任务的奖励
 
 
-
-
-
-
-
 -----
 
 ####  komoechan  
 ##### 4717#       发表于 2020-6-12 00:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770228&amp;ptid=1856998" target="_blank">bird-lay 发表于 2020-6-12 00:11</a>
@@ -4234,13 +2847,9 @@ XBDE1.srt
 特定地图特定敌人能刷出的孔数是固定的，如果刷不出来代表选择的敌人不对
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -4250,12 +2859,7 @@ XBDE1.srt
 | bird-lay| + 1|谢谢|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -4264,21 +2868,13 @@ XBDE1.srt
 ##### 4718#       发表于 2020-6-12 00:23
 
 
-
-
 力奇对绿帽仙人说还是孤身一人太搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  memphiseme  
 ##### 4719#       发表于 2020-6-12 01:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47766853&amp;ptid=1856998" target="_blank">蓮華 发表于 2020-6-11 19:55</a>
@@ -4288,16 +2884,10 @@ XBDE1.srt
 —— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  绿冰  
 ##### 4720#       发表于 2020-6-12 01:10
-
 
 
  本帖最后由 绿冰 于 2020-6-12 01:59 编辑 
@@ -4308,16 +2898,10 @@ XBDE1.srt
 诺彭战队的任务完成后，翻宝箱还能拿到干干的蘑菇，但貌似没啥用
 
 
-
-
-
-
-
 -----
 
 ####  隔壁老黄  
 ##### 4721#       发表于 2020-6-12 01:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47760302&amp;ptid=1856998" target="_blank">Troywest 发表于 2020-6-11 11:13</a>
@@ -4329,16 +2913,10 @@ XBDE1.srt
 —— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  隔壁老黄  
 ##### 4722#       发表于 2020-6-12 01:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47756529&amp;ptid=1856998" target="_blank">RUANHYC 发表于 2020-6-10 23:57</a>
@@ -4348,27 +2926,15 @@ XBDE1.srt
 —— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  pf67  
 ##### 4723#       发表于 2020-6-12 10:58
 
 
-
-
 诺鹏大仙要满足啥条件才能兑换殖民地6的素材啊？
 
 雪山的冰冻高丽菜刷吐了
-
-
-
-
-
 
 
 -----
@@ -4377,14 +2943,7 @@ XBDE1.srt
 ##### 4724#       发表于 2020-6-12 11:56
 
 
-
-
 八九十级的普通怪会不会比精英怪好打，现在五十多级刚出落腕，不知道现在的build跨不跨得动
-
-
-
-
-
 
 
 -----
@@ -4393,21 +2952,13 @@ XBDE1.srt
 ##### 4725#       发表于 2020-6-12 12:00
 
 
-
-
 公主，勇者和大舅子，应该可以打。大舅子拉仇恨，另外两个投毒
-
-
-
-
-
 
 
 -----
 
 ####  蓮華  
 ##### 4726#       发表于 2020-6-12 12:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770745&amp;ptid=1856998" target="_blank">memphiseme 发表于 2020-6-12 01:02</a>
@@ -4421,16 +2972,10 @@ XBDE1.srt
 不想玩二周目了，燃烧殆尽
 
 
-
-
-
-
-
 -----
 
 ####  mamamiya  
 ##### 4727#       发表于 2020-6-12 12:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47775239&amp;ptid=1856998" target="_blank">pf67 发表于 2020-6-12 10:58</a>
@@ -4440,25 +2985,13 @@ XBDE1.srt
 冰冻高丽菜是17章雪山鸟人换的吧
 
 
-
-
-
-
-
 -----
 
 ####  夜_乌鸦  
 ##### 4728#       发表于 2020-6-12 12:07
 
 
-
-
 矿场有个恋爱舞鹤怎么拿啊？已经爆炸了，刷不出来了
-
-
-
-
-
 
 
 -----
@@ -4467,15 +3000,9 @@ XBDE1.srt
 ##### 4729#       发表于 2020-6-12 12:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776224&amp;ptid=1856998" target="_blank">夜_乌鸦 发表于 2020-6-12 12:07</a>
 矿场有个恋爱舞鹤怎么拿啊？已经爆炸了，刷不出来了</blockquote>
 存档，关游戏，读档，位置立刻刷新，能刷到在外面的。
-
-
-
-
-
 
 
 -----
@@ -4484,16 +3011,10 @@ XBDE1.srt
 ##### 4730#       发表于 2020-6-12 12:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776191&amp;ptid=1856998" target="_blank">mamamiya 发表于 2020-6-12 12:04</a>
 
 冰冻高丽菜是17章雪山鸟人换的吧</blockquote>
 我看攻略上说所有素材都可以找大仙换
-
-
-
-
-
 
 
 -----
@@ -4502,15 +3023,9 @@ XBDE1.srt
 ##### 4731#       发表于 2020-6-12 13:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776684&amp;ptid=1856998" target="_blank">pf67 发表于 2020-6-12 12:43</a>
 我看攻略上说所有素材都可以找大仙换</blockquote>
 挑战那个啊。。。我以为说是绿帽仙人
-
-
-
-
-
 
 
 -----
@@ -4519,14 +3034,7 @@ XBDE1.srt
 ##### 4732#       发表于 2020-6-12 13:49
 
 
-
-
 每次主线归来再用修尔克总觉得好分裂，这个CV为啥战斗时候的语音跟剧情语音差这么多，怪不得会有、修尔克热血青年的说法，八成是云了一下视频听到战斗语音误会的吧。真的战斗时候很呱噪笑得特别大声，那个哈哈哈哈听得我…………然而主线又是个比较闷的机械宅。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4535,16 +3043,10 @@ XBDE1.srt
 ##### 4733#       发表于 2020-6-12 15:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47777378&amp;ptid=1856998" target="_blank">mamamiya 发表于 2020-6-12 13:40</a>
 
 挑战那个啊。。。我以为说是绿帽仙人</blockquote>
 但是我找他只有武器防具和宝石啊
-
-
-
-
-
 
 
 -----
@@ -4553,23 +3055,16 @@ XBDE1.srt
 ##### 4734#       发表于 2020-6-12 15:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776224&amp;ptid=1856998" target="_blank">夜_乌鸦 发表于 2020-6-12 12:07</a>
 
 矿场有个恋爱舞鹤怎么拿啊？已经爆炸了，刷不出来了</blockquote>
 在传送点附近，有个叫xx的梅林的精英怪的湖里会刷
 
 
-
-
-
-
-
 -----
 
 ####  arx-7  
 ##### 4735#       发表于 2020-6-12 16:07
-
 
 
  本帖最后由 arx-7 于 2020-6-12 16:09 编辑 
@@ -4598,13 +3093,9 @@ XBDE1.srt
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -4614,12 +3105,7 @@ XBDE1.srt
 | RUANHYC| + 1|梅希望|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -4628,21 +3114,13 @@ XBDE1.srt
 ##### 4736#       发表于 2020-6-12 16:08
 
 
-
-
 偷偷的爱慕
-
-
-
-
-
 
 
 -----
 
 ####  bird-lay  
 ##### 4737#       发表于 2020-6-12 16:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47779259&amp;ptid=1856998" target="_blank">arx-7 发表于 2020-6-12 16:07</a>
@@ -4653,26 +3131,15 @@ XBDE1.srt
 服装描述里说是游戏收集品的那个赛利欧银莲花，一共三种换色，对应的花语白色是希望，黑色是未来，金色是调和
 
 
-
-
-
-
-
 -----
 
 ####  zyxsqw  
 ##### 4738#       发表于 2020-6-12 16:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47778760&amp;ptid=1856998" target="_blank">pf67 发表于 2020-6-12 15:36</a>
 但是我找他只有武器防具和宝石啊</blockquote>
 收集品兑换应该是本体通关之后开放的
-
-
-
-
-
 
 
 -----
@@ -4681,15 +3148,9 @@ XBDE1.srt
 ##### 4739#       发表于 2020-6-12 17:11
 
 
-
  本帖最后由 ckl80 于 2020-6-12 17:13 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4698,14 +3159,7 @@ XBDE1.srt
 ##### 4740#       发表于 2020-6-12 17:51
 
 
-
-
 公主的毒和勇者的毒能叠加吗？
-
-
-
-
-
 
 
 -----
@@ -4714,15 +3168,9 @@ XBDE1.srt
 ##### 4741#       发表于 2020-6-12 18:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47780677&amp;ptid=1856998" target="_blank">xzhychris 发表于 2020-6-12 17:51</a>
 公主的毒和勇者的毒能叠加吗？</blockquote>
 可以
-
-
-
-
-
 
 
 -----
@@ -4731,16 +3179,9 @@ XBDE1.srt
 ##### 4742#       发表于 2020-6-12 20:00
 
 
-
-
 儿子的遗物这个任务，最后一把小刀在哪儿
 
 我怎么开了导航也不给我显示路线，只显示了区域：鳞光之地扎托尔，这是哪里啊？
-
-
-
-
-
 
 
 -----
@@ -4749,21 +3190,13 @@ XBDE1.srt
 ##### 4743#       发表于 2020-6-12 20:14
 
 
-
-
 后传修尔克和梅利亚糖太少了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  deathomega  
 ##### 4744#       发表于 2020-6-12 20:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47782020&amp;ptid=1856998" target="_blank">xifeilu 发表于 2020-6-12 20:00</a>
@@ -4774,16 +3207,10 @@ XBDE1.srt
 在那个毒坑边上
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 4745#       发表于 2020-6-12 20:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47782172&amp;ptid=1856998" target="_blank">冬马总冠军 发表于 2020-6-12 20:14</a>
@@ -4792,16 +3219,10 @@ XBDE1.srt
 不木头的话...等着黄毛妹家暴吧.
 
 
-
-
-
-
-
 -----
 
 ####  zjoi  
 ##### 4746#       发表于 2020-6-12 20:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47779766&amp;ptid=1856998" target="_blank">zyxsqw 发表于 2020-6-12 16:41</a>
@@ -4812,25 +3233,13 @@ XBDE1.srt
 为什么不设计成只要拿到了一个，就解锁对应的兑换呢。。
 
 
-
-
-
-
-
 -----
 
 ####  FSS  
 ##### 4747#       发表于 2020-6-12 21:22
 
 
-
-
 热量消退5级结晶只有105太古掉吗?
-
-
-
-
-
 
 
 -----
@@ -4839,16 +3248,10 @@ XBDE1.srt
 ##### 4748#       发表于 2020-6-12 21:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47782192&amp;ptid=1856998" target="_blank">deathomega 发表于 2020-6-12 20:16</a>
 
 在那个毒坑边上</blockquote>
 毒坑在哪儿？我现在就是找不到磷光之地这个地方，地图上看了一遍哪里都没有，有没有地图截图可看看？
-
-
-
-
-
 
 
 -----
@@ -4857,17 +3260,10 @@ XBDE1.srt
 ##### 4749#       发表于 2020-6-12 22:06
 
 
-
-
 相连未来里力奇死了？怎么回事
 还有梅同志到底行不行啊，修尔克一副你可以A上来了的阵势梅同志一点不为所动，就这表现用头打机娘？
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -4876,23 +3272,16 @@ XBDE1.srt
 ##### 4750#       发表于 2020-6-12 22:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47782950&amp;ptid=1856998" target="_blank">xifeilu 发表于 2020-6-12 21:30</a>
 
 毒坑在哪儿？我现在就是找不到磷光之地这个地方，地图上看了一遍哪里都没有，有没有地图截图可看看？ ...</blockquote>
 磷光之地是一个大区域，该不会主线还没到那边吧
 
 
-
-
-
-
-
 -----
 
 ####  xifeilu  
 ##### 4751#       发表于 2020-6-12 22:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47783427&amp;ptid=1856998" target="_blank">BQlin 发表于 2020-6-12 22:11</a>
@@ -4903,25 +3292,13 @@ XBDE1.srt
 以后是知道了，没导航就先推进度了
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 4752#       发表于 2020-6-12 22:31
 
 
-
-
 嗼村酿酒任务我接任务时候有其中一条线的任务物品就没法交另一条线的了？我把任务物品卖了还是显示回去交任务
-
-
-
-
-
 
 
 -----
@@ -4930,14 +3307,7 @@ XBDE1.srt
 ##### 4753#       发表于 2020-6-12 22:32
 
 
-
-
 奶妈这个隐藏性格“爱情” 竟然会完全错过……日，只能二周目了
-
-
-
-
-
 
 
 -----
@@ -4946,22 +3316,15 @@ XBDE1.srt
 ##### 4754#       发表于 2020-6-12 22:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47783652&amp;ptid=1856998" target="_blank">xzhychris 发表于 2020-6-12 22:32</a>
 奶妈这个隐藏性格“爱情” 竟然会完全错过……日，只能二周目了</blockquote>
 只是很烦，17章才开始复兴一样做。
-
-
-
-
-
 
 
 -----
 
 ####  zyxsqw  
 ##### 4755#       发表于 2020-6-12 22:55
-
 
 
  本帖最后由 zyxsqw 于 2020-6-12 22:57 编辑 
@@ -4971,32 +3334,19 @@ XBDE1.srt
 没救的，这游戏任务物品数量够了的情况下，会直接从你包里扣掉任务要的数量，等于已经上缴了。虚空提货，非常坑爹。
 
 
-
-
-
-
-
 -----
 
 ####  蓮華  
 ##### 4756#       发表于 2020-6-12 22:58
 
 
-
-
 奶妈这个爱情性格感觉移居妹妹比较好做，姐姐的CP 奥尔克洪要建筑4特殊4，肯定要第二次进巨神胎内了才能做了。妹妹的CP帕比只要建筑4就能移居了
-
-
-
-
-
 
 
 -----
 
 ####  deathomega  
 ##### 4757#       发表于 2020-6-12 23:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47782950&amp;ptid=1856998" target="_blank">xifeilu 发表于 2020-6-12 21:30</a>
@@ -5011,16 +3361,10 @@ XBDE1.srt
 你如果还没有看到磷光之地，那说明你进度还没到这里，这是后面的地图了
 
 
-
-
-
-
-
 -----
 
 ####  bad_alloc  
 ##### 4758#       发表于 2020-6-13 00:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47783933&amp;ptid=1856998" target="_blank">蓮華 发表于 2020-6-12 22:58</a>
@@ -5029,16 +3373,10 @@ XBDE1.srt
 但无论姐姐妹妹移居都要建筑5啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 再看一下建筑5的材料, 虽然蝙蝠翅膀跟猩猩兽的素材并没有进度要求, 但这70~80级的怪要是能在第二次进巨神胎内就弄出来那也是挺肝的, 除非你做终极越级哥(
 
 
-
-
-
-
-
 -----
 
 ####  蓮華  
 ##### 4759#       发表于 2020-6-13 00:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784607&amp;ptid=1856998" target="_blank">bad_alloc 发表于 2020-6-13 00:08</a>
@@ -5047,25 +3385,13 @@ XBDE1.srt
 前天封盘的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 4760#       发表于 2020-6-13 00:17
 
 
-
-
 服了，怎么皇都的以太炉修好了都不给传送的，真当跑这张地图很好玩吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5074,23 +3400,16 @@ XBDE1.srt
 ##### 4761#       发表于 2020-6-13 00:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784642&amp;ptid=1856998" target="_blank">蓮華 发表于 2020-6-13 00:13</a>
 
 前天封盘的</blockquote>
 艹,这一天得玩几个小时<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 4762#       发表于 2020-6-13 00:37
-
 
 
  本帖最后由 bird-lay 于 2020-6-13 00:57 编辑 
@@ -5100,32 +3419,19 @@ XBDE1.srt
 还打着帮朋友解脱的名义
 
 
-
-
-
-
-
 -----
 
 ####  Zhangsmallquan  
 ##### 4763#       发表于 2020-6-13 00:52
 
 
-
-
 想问一下丹邦和莱恩那种信春哥的灵气是怎么用的啊，为什么我开着九死一生接大招还是死了，并没有复活
-
-
-
-
-
 
 
 -----
 
 ####  Ditfran  
 ##### 4764#       发表于 2020-6-13 00:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47783363&amp;ptid=1856998" target="_blank">穿着熊 发表于 2020-6-12 22:06</a>
@@ -5136,27 +3442,15 @@ XBDE1.srt
 —— 来自 OnePlus HD1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0-alpha
 
 
-
-
-
-
-
 -----
 
 ####  莉拉厨  
 ##### 4765#       发表于 2020-6-13 00:56
 
 
-
-
 问下 作为战斗成员有效，连的那个人也要上场是吗？比如力奇的那个背面命中必须力奇也上场才能提高命中吗？
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -5165,14 +3459,7 @@ XBDE1.srt
 ##### 4766#       发表于 2020-6-13 00:58
 
 
-
-
 打到艾机尔开机甲了，72级，我才67级，全是miss咋办，命中宝石装了也没用，机神届的支线也做完了，这哪里去升级啊
-
-
-
-
-
 
 
 -----
@@ -5181,16 +3468,10 @@ XBDE1.srt
 ##### 4767#       发表于 2020-6-13 01:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784859&amp;ptid=1856998" target="_blank">Ditfran 发表于 2020-06-13 00:53:22</a>
 你该不会看了贴吧那个胡说八道的帖子了吧，大结局可是大团圆 v2.3.0-alpha</blockquote>不是 相连未来里面力奇的儿子说爸爸妈妈都不在了啊
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -5199,23 +3480,16 @@ XBDE1.srt
 ##### 4768#       发表于 2020-6-13 01:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47785028&amp;ptid=1856998" target="_blank">穿着熊 发表于 2020-06-13 01:23:58</a>
 不是 相连未来里面力奇的儿子说爸爸妈妈都不在了啊</blockquote>开头剧情有说粉的是亲生的绿的是捡来的
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  deathomega  
 ##### 4769#       发表于 2020-6-13 01:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784896&amp;ptid=1856998" target="_blank">朱自清 发表于 2020-6-13 00:58</a>
@@ -5225,25 +3499,13 @@ XBDE1.srt
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  红魔馆的糖  
 ##### 4770#       发表于 2020-6-13 01:25
 
 
-
-
 两口子一起觉醒这里剧情虽然不咋地，但是pose有燃到我<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5252,14 +3514,7 @@ XBDE1.srt
 ##### 4771#       发表于 2020-6-13 02:12
 
 
-
-
 本篇通关了，菲奥伦的短发我<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5268,16 +3523,9 @@ XBDE1.srt
 ##### 4772#       发表于 2020-6-13 02:16
 
 
-
-
 一周目是弄不齐菲奥伦的造型装备的？
 
 商店不卖的要去哪里弄，以物换物吗？
-
-
-
-
-
 
 
 -----
@@ -5286,16 +3534,10 @@ XBDE1.srt
 ##### 4773#       发表于 2020-6-13 02:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784856&amp;ptid=1856998" target="_blank">Zhangsmallquan 发表于 2020-6-13 00:52</a>
 
 想问一下丹邦和莱恩那种信春哥的灵气是怎么用的啊，为什么我开着九死一生接大招还是死了，并没有复活 ...</blockquote>
 吃了多段伤害？
-
-
-
-
-
 
 
 -----
@@ -5304,23 +3546,15 @@ XBDE1.srt
 ##### 4774#       发表于 2020-6-13 03:10
 
 
-
-
 大仙人那自由模式课题 诺彭水晶怎么双倍奖励啊？
 
 偶然打了次黑色费斯给了14400水晶，之后怎么打都是7200水晶<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  森田美位子  
 ##### 4775#       发表于 2020-6-13 03:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784856&amp;ptid=1856998" target="_blank">Zhangsmallquan 发表于 2020-6-13 00:52</a>
@@ -5331,16 +3565,10 @@ XBDE1.srt
 举个例子，你残血敌人放技能触发未来视，你找丹邦放九死一杀。虽然未来视的时间流逝完之前，怪是不会再放技能，但是普攻是不会停的（除了极个别没普攻的）。在未来视期间，怪的普攻就把丹邦打死触发了九死一杀效果，那么等到怪再放原本那个触发未来视的技能，如果血量不够依然会被打死。因为信春哥的效果已经用掉了
 
 
-
-
-
-
-
 -----
 
 ####  Zhangsmallquan  
 ##### 4776#       发表于 2020-6-13 03:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47785432&amp;ptid=1856998" target="_blank">森田美位子 发表于 2020-6-13 03:11</a>
@@ -5353,16 +3581,10 @@ XBDE1.srt
 这样的话感觉这灵气就不太好用了
 
 
-
-
-
-
-
 -----
 
 ####  LamdaHT  
 ##### 4777#       发表于 2020-6-13 04:00
-
 
 
  本帖最后由 LamdaHT 于 2020-6-13 04:08 编辑 
@@ -5372,26 +3594,15 @@ XBDE1.srt
 本篇都写成那样了你们为什么还会对相连的未来抱有期待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  冬马总冠军  
 ##### 4778#       发表于 2020-6-13 05:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47785489&amp;ptid=1856998" target="_blank">LamdaHT 发表于 2020-6-13 04:00</a>
 本篇都写成那样了你们为什么还会对相连的未来抱有期待以修尔克那情商肯定想不出“还有大家”这种照 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没办法，机娘初始好感度太高了。跳崖那段看得我一愣一愣的
-
-
-
-
-
 
 
 -----
@@ -5400,15 +3611,9 @@ XBDE1.srt
 ##### 4779#       发表于 2020-6-13 05:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47782310&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-6-12 20:25</a>
 不木头的话...等着黄毛妹家暴吧.</blockquote>
 梅利亚也没啥表示，我感觉她已经死心了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个新的事业型女人正在诞生
-
-
-
-
-
 
 
 -----
@@ -5417,16 +3622,10 @@ XBDE1.srt
 ##### 4780#       发表于 2020-6-13 09:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47783900&amp;ptid=1856998" target="_blank">zyxsqw 发表于 2020-6-12 22:55</a>
 
 没救的，这游戏任务物品数量够了的情况下，会直接从你包里扣掉任务要的数量，等于已经上缴了。虚空提货， ...</blockquote>
 我日。。。。我看攻略会破坏两个npc的关系，就没法补救了？
-
-
-
-
-
 
 
 -----
@@ -5435,17 +3634,10 @@ XBDE1.srt
 ##### 4781#       发表于 2020-6-13 09:36
 
 
-
-
 进了中央采矿场之后回第9殖民地瞎逛对话，碰到一个路人npc说有一个叫佐德的有名铁匠，整天喜欢拿着铁锤敲敲敲，但是在一年前的袭击中丧命了。
 
 
 没想到游戏里这么早就有提示啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5454,15 +3646,9 @@ XBDE1.srt
 ##### 4782#       发表于 2020-6-13 09:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47786323&amp;ptid=1856998" target="_blank">sandro 发表于 2020-6-13 09:29</a>
 我日。。。。我看攻略会破坏两个npc的关系，就没法补救了？</blockquote>
 只能读接任务前的档了。我发现这设定的时候已经完全没救了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5471,16 +3657,10 @@ XBDE1.srt
 ##### 4783#       发表于 2020-6-13 09:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47786394&amp;ptid=1856998" target="_blank">zyxsqw 发表于 2020-6-13 09:39</a>
 
 只能读接任务前的档了。我发现这设定的时候已经完全没救了</blockquote>
 。。心态崩了，支线随缘了
-
-
-
-
-
 
 
 -----
@@ -5489,16 +3669,10 @@ XBDE1.srt
 ##### 4784#       发表于 2020-6-13 09:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47779766&amp;ptid=1856998" target="_blank">zyxsqw 发表于 2020-6-12 16:41</a>
 
 收集品兑换应该是本体通关之后开放的</blockquote>
 不用通关，主线到监狱岛最后一个大房间门口有个TA模式传送点，这个时候就可以换C6复兴素材了
-
-
-
-
-
 
 
 -----
@@ -5507,16 +3681,10 @@ XBDE1.srt
 ##### 4785#       发表于 2020-6-13 10:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47785489&amp;ptid=1856998" target="_blank">LamdaHT 发表于 2020-06-13 04:00:53</a></blockquote>生草
 按你这么说莱老板双商爆表，短短一句话就把尼娅打发了
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -5525,16 +3693,10 @@ XBDE1.srt
 ##### 4786#       发表于 2020-6-13 10:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47786438&amp;ptid=1856998" target="_blank">秋月孝三 发表于 2020-6-13 09:46</a>
 
 不用通关，主线到监狱岛最后一个大房间门口有个TA模式传送点，这个时候就可以换C6复兴素材了 ...</blockquote>
 原来是这样
-
-
-
-
-
 
 
 -----
@@ -5543,23 +3705,15 @@ XBDE1.srt
 ##### 4787#       发表于 2020-6-13 10:18
 
 
-
-
 牵绊图里最后所有npc都会连起来吗？还是有些注定天煞孤星的
 
 我现在还剩九号殖民地的研究员、诺彭村里的女仆、鸟人姐姐原定的男朋友没连起来，是还漏了任务和对话吗？
-
-
-
-
-
 
 
 -----
 
 ####  zyxsqw  
 ##### 4788#       发表于 2020-6-13 10:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47786713&amp;ptid=1856998" target="_blank">bird-lay 发表于 2020-6-13 10:18</a>
@@ -5570,16 +3724,10 @@ XBDE1.srt
 另外两个都有人可以连，但是姐妹俩的男朋友好像真的就是注定有一个要天煞孤星了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 4789#       发表于 2020-6-13 10:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47786754&amp;ptid=1856998" target="_blank">zyxsqw 发表于 2020-6-13 10:22</a>
@@ -5588,25 +3736,13 @@ XBDE1.srt
 这也太惨了。。。我跟他对话他每次都还说要把六号殖民地建设得更好
 
 
-
-
-
-
-
 -----
 
 ####  红魔馆的糖  
 ##### 4790#       发表于 2020-6-13 11:09
 
 
-
-
 相连的未来全清大概多长，想控制下时间打美末
-
-
-
-
-
 
 
 -----
@@ -5615,22 +3751,13 @@ XBDE1.srt
 ##### 4791#       发表于 2020-6-13 11:40
 
 
-
-
 为啥泰坦重踏不出未来视直接秒了我啊，好几次了
-
-
-
-
-
 
 
 -----
 
 ####  笛普达克范太希  
 ##### 4792#       发表于 2020-6-13 11:48
-
-
 
 
 有大佬分享下毕业装备和宝石选择的经验吗<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
@@ -5640,26 +3767,15 @@ XBDE1.srt
 另外武器选择方面没有攻击力下限+99的bug之后会带来一些变化吗，比如绝望乡会不会和以太V躯干配合得更好？刚刚看到玩TA模式速通的大佬说流星群咬咬比英雄咬咬好很多，也是这次bug修正带来的变化吗
 
 
-
-
-
-
-
 -----
 
 ####  mcq_2  
 ##### 4793#       发表于 2020-6-13 11:54
 
 
-
 <blockquote>红魔馆的糖 发表于 2020-6-13 11:09
 相连的未来全清大概多长，想控制下时间打美末</blockquote>
 十个小时左右
-
-
-
-
-
 
 
 -----
@@ -5668,23 +3784,15 @@ XBDE1.srt
 ##### 4794#       发表于 2020-6-13 12:33
 
 
-
-
 巨人族的宝藏简直就是糊弄人呀，东跑西跑做了这么多任务，结果打开宝箱直接傻眼了，还没C9的npc给的东西好<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 —— 来自 OnePlus HD1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0-alpha
-
-
-
-
-
 
 
 -----
 
 ####  Arccueid  
 ##### 4795#       发表于 2020-6-13 12:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47785432&amp;ptid=1856998" target="_blank">森田美位子 发表于 2020-06-13 03:11:30</a>
@@ -5695,16 +3803,10 @@ XBDE1.srt
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 4796#       发表于 2020-6-13 12:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47786373&amp;ptid=1856998" target="_blank">黒濑黒江 发表于 2020-06-13 09:36:58</a>
@@ -5713,16 +3815,10 @@ XBDE1.srt
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  名守居  
 ##### 4797#       发表于 2020-6-13 13:26
-
 
 
  本帖最后由 名守居 于 2020-6-13 13:35 编辑 
@@ -5730,16 +3826,10 @@ XBDE1.srt
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">翻了下日文的，发现被中文化攻略写成4误导了
 
 
-
-
-
-
-
 -----
 
 ####  mhfdt  
 ##### 4798#       发表于 2020-6-13 13:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784607&amp;ptid=1856998" target="_blank">bad_alloc 发表于 2020-6-13 00:08</a>
@@ -5750,25 +3840,13 @@ XBDE1.srt
 猩猩可以推，蝙蝠确实要跨级打，开个休闲处理一下命中，问题不大
 
 
-
-
-
-
-
 -----
 
 ####  mhfdt  
 ##### 4799#       发表于 2020-6-13 13:59
 
 
-
-
 然后我进17章了，想处理下经验等级装备，有没有指南？
-
-
-
-
-
 
 
 -----
@@ -5777,15 +3855,9 @@ XBDE1.srt
 ##### 4800#       发表于 2020-6-13 14:16
 
 
-
  本帖最后由 yuigahamayuki 于 2020-6-13 14:21 编辑 
 
 想入日版豪华版（欧版黑胶唱片好帅，但价格贵好多QAQ），有推荐的店铺吗（最好是带店头的钥匙扣）？
-
-
-
-
-
 
 
 -----
@@ -5794,14 +3866,7 @@ XBDE1.srt
 ##### 4801#       发表于 2020-6-13 14:57
 
 
-
-
 请问一下蓝色光点刷新机制到底怎么样的 实在刷不出来七色海参和黑豆肝这两个东西了
-
-
-
-
-
 
 
 -----
@@ -5810,21 +3875,13 @@ XBDE1.srt
 ##### 4802#       发表于 2020-6-13 14:59
 
 
-
-
 请问一下蓝色光点刷新机制到底是什么 实在刷不出来七色海参和黑豆肝这两个东西了
-
-
-
-
-
 
 
 -----
 
 ####  秋月孝三  
 ##### 4803#       发表于 2020-6-13 15:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47789254&amp;ptid=1856998" target="_blank">成濑未亚 发表于 2020-6-13 14:57</a>
@@ -5834,16 +3891,10 @@ XBDE1.srt
 — from HUAWEI VIE-AL10, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  成濑未亚  
 ##### 4804#       发表于 2020-6-13 15:06
-
 
 
 <blockquote>秋月孝三 发表于 2020-6-13 15:03
@@ -5854,16 +3905,10 @@ XBDE1.srt
 谢谢...才发现退游戏重进能刷新 直接读档不能
 
 
-
-
-
-
-
 -----
 
 ####  绿冰  
 ##### 4805#       发表于 2020-6-13 15:17
-
 
 
 <blockquote>bird-lay 发表于 2020-6-13 10:18
@@ -5873,25 +3918,13 @@ XBDE1.srt
 记得是可以，好像要最后的剧情了，磷光之地来着？可能要做任务
 
 
-
-
-
-
-
 -----
 
 ####  椎名mahuyo  
 ##### 4806#       发表于 2020-6-13 15:18
 
 
-
-
 我是不推荐大退的 直接存档读档 等1分钟光点就出来了 大退按着累
-
-
-
-
-
 
 
 -----
@@ -5900,16 +3933,9 @@ XBDE1.srt
 ##### 4807#       发表于 2020-6-13 15:36
 
 
-
-
 梅莉娅那个剧情是怎么触发的？我大剑溪谷图都舔完了才进的机神村也没见到，现在人在13章，是不是已经错过了？
 
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -5918,16 +3944,10 @@ XBDE1.srt
 ##### 4808#       发表于 2020-6-13 16:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47789552&amp;ptid=1856998" target="_blank">南宫月汐 发表于 2020-6-13 15:36</a>
 
 梅莉娅那个剧情是怎么触发的？我大剑溪谷图都舔完了才进的机神村也没见到，现在人在13章，是不是已经错过了 ...</blockquote>
 17章开头调时间到半夜去对话
-
-
-
-
-
 
 
 -----
@@ -5936,15 +3956,9 @@ XBDE1.srt
 ##### 4809#       发表于 2020-6-13 16:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47789273&amp;ptid=1856998" target="_blank">成濑未亚 发表于 2020-6-13 14:59</a>
 请问一下蓝色光点刷新机制到底是什么 实在刷不出来七色海参和黑豆肝这两个东西了 ...</blockquote>
 海参我是夜晚天涯指尖那个精英怪脚下那块的蓝点刷的，还挺多的。黑豆肝是真没捡到过，大仙人那乖乖换了几个
-
-
-
-
-
 
 
 -----
@@ -5953,24 +3967,16 @@ XBDE1.srt
 ##### 4810#       发表于 2020-6-13 16:30
 
 
-
-
 收集手册那个其他是怎么收集的？
 
 
 别的地区的收集齐了，就差这个了。
 
 
-
-
-
-
-
 -----
 
 ####  zyxsqw  
 ##### 4811#       发表于 2020-6-13 16:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47789968&amp;ptid=1856998" target="_blank">memphiseme 发表于 2020-6-13 16:30</a>
@@ -5981,25 +3987,13 @@ XBDE1.srt
 那几个都是npc交换物品，只能交换
 
 
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 4812#       发表于 2020-6-13 16:55
 
 
-
-
 话说，那些有名字的村民是每个人都有不同的脸吗
-
-
-
-
-
 
 
 -----
@@ -6008,16 +4002,10 @@ XBDE1.srt
 ##### 4813#       发表于 2020-6-13 17:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47788046&amp;ptid=1856998" target="_blank">Ditfran 发表于 2020-6-13 12:33</a>
 
 巨人族的宝藏简直就是糊弄人呀，东跑西跑做了这么多任务，结果打开宝箱直接傻眼了，还没C9的npc给的东西好[ ...</blockquote>
 巨人族宝箱一共8个，后面监狱塔里面有6个，里面防具可能是限定的，那个恩典套装我一共就凑齐了1套。
-
-
-
-
-
 
 
 -----
@@ -6026,14 +4014,7 @@ XBDE1.srt
 ##### 4814#       发表于 2020-6-13 17:14
 
 
-
-
 本体和外传都破关了，没得玩了，梦醒了，接下来只能希望能早日搜到菲奥伦的本子
-
-
-
-
-
 
 
 -----
@@ -6042,14 +4023,7 @@ XBDE1.srt
 ##### 4815#       发表于 2020-6-13 17:32
 
 
-
-
 话说为啥梅丽娅把人救起来直接能回一大截血。。？每次都这样 我看了下被动只有被拉起来多回10%血啊
-
-
-
-
-
 
 
 -----
@@ -6058,16 +4032,10 @@ XBDE1.srt
 ##### 4816#       发表于 2020-6-13 17:36
 
 
-
  本帖最后由 mamamiya 于 2020-6-13 17:38 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47789254&amp;ptid=1856998" target="_blank">成濑未亚 发表于 2020-6-13 14:57</a>
 请问一下蓝色光点刷新机制到底怎么样的 实在刷不出来七色海参和黑豆肝这两个东西了 ...</blockquote>
 我感觉这两个刷新图随缘捡不如去大仙人那换，黑豆肝看英文wiki有几个点8%概率出，我大概刷了5轮才满2个。
-
-
-
-
-
 
 
 -----
@@ -6076,16 +4044,9 @@ XBDE1.srt
 ##### 4817#       发表于 2020-6-13 17:50
 
 
-
-
 慢慢做了一周终于把七个人第一隐藏性格都解锁了，可以继续主线了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -6094,16 +4055,10 @@ XBDE1.srt
 ##### 4818#       发表于 2020-6-13 17:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47790492&amp;ptid=1856998" target="_blank">双刀少女 发表于 2020-06-13 17:32:46</a>
 话说为啥梅丽娅把人救起来直接能回一大截血。。？每次都这样 我看了下被动只有被拉起来多回10%血啊 ...</blockquote>你是不是链了别人的性格
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -6112,13 +4067,7 @@ XBDE1.srt
 ##### 4819#       发表于 2020-6-13 18:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这后传好像并没有讲什么东西
-
-
-
-
-
 
 
 -----
@@ -6127,15 +4076,9 @@ XBDE1.srt
 ##### 4820#       发表于 2020-6-13 18:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47789957&amp;ptid=1856998" target="_blank">蓮華 发表于 2020-6-13 16:28</a>
 海参我是夜晚天涯指尖那个精英怪脚下那块的蓝点刷的，还挺多的。黑豆肝是真没捡到过，大仙人那乖乖换了几 ...</blockquote>
 黑豆去胎内最后一个传送点，是一个丁字路口，一竖是来的路，右转是去打boss的房间。左转是一段很短的死路，尽头必会刷新一个蓝点，在这里SL
-
-
-
-
-
 
 
 -----
@@ -6144,22 +4087,14 @@ XBDE1.srt
 ##### 4821#       发表于 2020-6-13 18:12
 
 
-
-
 摸了70多个小时刚到机神重启，自从菲奥伦入队后，皇女就没几句台词，存在感稀薄，太惨了。
 梅办法，赢不了
-
-
-
-
-
 
 
 -----
 
 ####  bad_alloc  
 ##### 4822#       发表于 2020-6-13 18:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47790867&amp;ptid=1856998" target="_blank">索非亚 发表于 2020-6-13 18:12</a>
@@ -6170,17 +4105,10 @@ XBDE1.srt
 但是梅梅有全游戏唯一一个有全语音过场动画演出的支线
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 4823#       发表于 2020-6-13 18:35
-
-
 
 
 这个恋爱舞鹤真是XXXX
@@ -6188,17 +4116,10 @@ XBDE1.srt
 采石场明明能看到进不去
 
 
-
-
-
-
-
 -----
 
 ####  穿着熊  
 ##### 4824#       发表于 2020-6-13 19:05
-
-
 
 
 草 草 草
@@ -6208,17 +4129,10 @@ XBDE1.srt
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  穿着熊  
 ##### 4825#       发表于 2020-6-13 19:37
-
-
 
 
 打完了，刚到boss门口气晕了，看完过场截了几张梅丽娅镜头后，内心一直有个声音劝我算了算了，我tm是服的
@@ -6227,16 +4141,10 @@ XBDE1.srt
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Errey  
 ##### 4826#       发表于 2020-6-13 19:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47791388&amp;ptid=1856998" target="_blank">穿着熊 发表于 2020-6-13 19:05</a>
@@ -6254,16 +4162,10 @@ XBDE1.srt
 享受过本篇的我相信去玩后传会被恶心得喘不过气来
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 4827#       发表于 2020-6-13 20:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47791099&amp;ptid=1856998" target="_blank">叶雾 发表于 2020-06-13 18:35:59</a>
@@ -6274,16 +4176,10 @@ XBDE1.srt
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  mjzs07  
 ##### 4828#       发表于 2020-6-13 20:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47790190&amp;ptid=1856998" target="_blank">达达葱2 发表于 2020-6-13 16:55</a>
@@ -6292,25 +4188,13 @@ XBDE1.srt
 都不同
 
 
-
-
-
-
-
 -----
 
 ####  shkillone1  
 ##### 4829#       发表于 2020-6-13 20:07
 
 
-
-
 牵绊太高是不是就没有什么办法有效分离那些精华了
-
-
-
-
-
 
 
 -----
@@ -6319,23 +4203,16 @@ XBDE1.srt
 ##### 4830#       发表于 2020-6-13 20:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47792164&amp;ptid=1856998" target="_blank">shkillone1 发表于 2020-06-13 20:07:48</a>
 牵绊太高是不是就没有什么办法有效分离那些精华了</blockquote>是的，不过羁绊高基本上120%左右就随便300了
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  bad_alloc  
 ##### 4831#       发表于 2020-6-13 20:13
-
 
 
  本帖最后由 bad_alloc 于 2020-6-13 20:15 编辑 
@@ -6345,25 +4222,13 @@ XBDE1.srt
 而且实在不能接受利奇女儿这种捏着嗓子的配音, 听起来很难受
 
 
-
-
-
-
-
 -----
 
 ####  kilkilo  
 ##### 4832#       发表于 2020-6-13 20:14
 
 
-
-
 打倒王城了，不知道是高台的影响还是珠子的影响(插了几颗4，5级的珠子)，相同的队伍66级打70级王城比57级同级打恶戏简单太多，全程没有团灭的危机，对面就一直掉血<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6372,14 +4237,7 @@ XBDE1.srt
 ##### 4833#       发表于 2020-6-13 20:16
 
 
-
-
 外传主要是这剧情太拉了，这雾乃王全程不知道干啥的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧情平淡的很
-
-
-
-
-
 
 
 -----
@@ -6388,20 +4246,13 @@ XBDE1.srt
 ##### 4834#       发表于 2020-6-13 20:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我就有一个问题，有没有选项把伤害数字调整成以前Wii版本那种字体，默认的字体和2代的一样，太廉价了看着
-
-
-
-
-
 
 
 -----
 
 ####  kos_mos  
 ##### 4835#       发表于 2020-6-13 20:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47792164&amp;ptid=1856998" target="_blank">shkillone1 发表于 2020-6-13 20:07</a>
@@ -6412,16 +4263,10 @@ XBDE1.srt
 Wii版时用到的，现在还在初期没去试。
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 4836#       发表于 2020-6-13 21:06
-
 
 
  本帖最后由 塔奇克马 于 2020-6-13 21:13 编辑 
@@ -6431,16 +4276,10 @@ Wii版时用到的，现在还在初期没去试。
 <img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">挖坑嗼?
 
 
-
-
-
-
-
 -----
 
 ####  xifeilu  
 ##### 4837#       发表于 2020-6-13 21:10
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">额，刚进入第六章，因为想先清支线就传走清任务去了
@@ -6448,16 +4287,10 @@ Wii版时用到的，现在还在初期没去试。
 现在回来打主线依然要找扎托尔这个地方，但是没导航啊………………这我到哪里继续主线任务？<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 4838#       发表于 2020-6-13 21:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47792896&amp;ptid=1856998" target="_blank">xifeilu 发表于 2020-6-13 21:10</a>
@@ -6468,16 +4301,10 @@ Wii版时用到的，现在还在初期没去试。
 殖民地6向下走"迷雾街道"进去就是了.
 
 
-
-
-
-
-
 -----
 
 ####  xifeilu  
 ##### 4839#       发表于 2020-6-13 21:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47792997&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-6-13 21:16</a>
@@ -6486,16 +4313,10 @@ Wii版时用到的，现在还在初期没去试。
 感谢，顺便吐槽一下去B站找了下主线攻略，结果怎么走的过程每个视频都剪掉了………………完全找不到参考<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Zhangsmallquan  
 ##### 4840#       发表于 2020-6-13 21:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47792896&amp;ptid=1856998" target="_blank">xifeilu 发表于 2020-6-13 21:10</a>
@@ -6506,17 +4327,10 @@ Wii版时用到的，现在还在初期没去试。
 ZR+左右切换导航，可能当前选的是空白支线，所以没导航，主线全程都有导航的
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 4841#       发表于 2020-6-13 21:27
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202006/13/212736e8i9k99lbkd2l86q.jpg" referrerpolicy="no-referrer">
@@ -6529,17 +4343,7 @@ ZR+左右切换导航，可能当前选的是空白支线，所以没导航，�
 2020-6-13 21:27 上传
 
 
-
-
-
 怎个意思嗼?
-
-
-
-
-
-
-
 
 
 -----
@@ -6548,16 +4352,10 @@ ZR+左右切换导航，可能当前选的是空白支线，所以没导航，�
 ##### 4842#       发表于 2020-6-13 22:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47792252&amp;ptid=1856998" target="_blank">kilkilo 发表于 2020-06-13 20:14:46</a>
 打倒王城了，不知道是高台的影响还是珠子的影响(插了几颗4，5级的珠子)，相同的队伍66级打70级王城比57级同 ...</blockquote>全游戏最难的精英怪可以说就是恶戏了，因为在那个时候很难出好的打机甲的武器，带男主又容易死<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -6566,16 +4364,9 @@ ZR+左右切换导航，可能当前选的是空白支线，所以没导航，�
 ##### 4843#       发表于 2020-6-13 22:45
 
 
-
-
 问下旧版移民任务那对鸟人族父女是不是必须在16章前清完任务才能全部移民？新版这里改了没？
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -6584,23 +4375,16 @@ ZR+左右切换导航，可能当前选的是空白支线，所以没导航，�
 ##### 4844#       发表于 2020-6-13 22:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47793197&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-6-13 21:27</a>
 
 怎个意思嗼?</blockquote>
 你发现了世界的真相嗼
 
 
-
-
-
-
-
 -----
 
 ####  kilkilo  
 ##### 4845#       发表于 2020-6-13 22:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47793654&amp;ptid=1856998" target="_blank">thomaszyj 发表于 2020-6-13 22:01</a>
@@ -6610,16 +4394,10 @@ ZR+左右切换导航，可能当前选的是空白支线，所以没导航，�
 确实到现在为止精英怪恶戏是卡我最久的，团灭技太多了，不过修尔克还是必带的，莫纳德技能保命<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Troywest  
 ##### 4846#       发表于 2020-6-13 22:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47793654&amp;ptid=1856998" target="_blank">thomaszyj 发表于 2020-6-13 22:01</a>
@@ -6631,26 +4409,15 @@ ZR+左右切换导航，可能当前选的是空白支线，所以没导航，�
 我是用以太队伍，站高台用勇者的毒慢慢耗死的。手控寡妇治疗。
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 4847#       发表于 2020-6-13 23:30
 
 
-
  本帖最后由 Arccueid 于 2020-6-14 00:46 编辑 
 
 因为恶戏是相对最硬件的BOSS，血厚不容易吃控技能频繁，没办法偷鸡，如果不想用特别变态的打法秒他就是纯耗了。相比其他类型的精英大多数都有办法控制针对打断未来视，压力小太多了。(真要打断用丹邦链利奇打背命中+无心之悟满命中天雷也可以，但是也算一种无限控打法很broken)
-
-
-
-
-
 
 
 -----
@@ -6659,16 +4426,10 @@ ZR+左右切换导航，可能当前选的是空白支线，所以没导航，�
 ##### 4848#       发表于 2020-6-14 00:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47793197&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-6-13 21:27</a>
 
 怎个意思嗼?</blockquote>
 原本的收费dlc嗼？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6677,14 +4438,7 @@ ZR+左右切换导航，可能当前选的是空白支线，所以没导航，�
 ##### 4849#       发表于 2020-6-14 00:24
 
 
-
-
 请问丹邦中级技能书千刃天翔在哪里买？主线到皇都了，商店里都没有找到，6号移民地商业建设3级了，商店里也没有，其他技能都有卖，唯独差这个，求指点
-
-
-
-
-
 
 
 -----
@@ -6693,21 +4447,13 @@ ZR+左右切换导航，可能当前选的是空白支线，所以没导航，�
 ##### 4850#       发表于 2020-6-14 00:24
 
 
-
-
 寡妇索尼娅是迪因的初恋，迪因还对她贼心不死，这么悲伤的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  LamdaHT  
 ##### 4851#       发表于 2020-6-14 00:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47786607&amp;ptid=1856998" target="_blank">穿着熊 发表于 2020-6-13 10:08</a>
@@ -6718,25 +4464,13 @@ ZR+左右切换导航，可能当前选的是空白支线，所以没导航，�
 Rex情场老手了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  LamdaHT  
 ##### 4852#       发表于 2020-6-14 00:38
 
 
-
-
 外传确实拉垮，系统完全就是**版，感觉不是很上心，单纯作为一个噱头了，不过毕竟是免费的，不玩白不玩，也没必要为这个生气<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6745,23 +4479,16 @@ Rex情场老手了<img src="https://static.saraba1st.com/image/smiley/face2017/0
 ##### 4853#       发表于 2020-6-14 00:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47794763&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-13 23:30</a>
 
 因为恶戏是相对最硬件的BOSS，血厚不容易吃控技能频繁，没办法偷鸡，如果不想用特别变态的打法秒他就是纯耗 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">其实恶戏给了丹巴偷鸡法能过，后面两排小怪随便让你转跟天雷
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 4854#       发表于 2020-6-14 00:48
-
 
 
  本帖最后由 Arccueid 于 2020-6-14 01:44 编辑 
@@ -6773,25 +4500,14 @@ Rex情场老手了<img src="https://static.saraba1st.com/image/smiley/face2017/0
 最主要问题还是aoe过于频繁还不是天赋技能，血又厚又不基本不吃控制，如果即使是单体伤害频繁靠未来视通知或者用正常公主二连打断等都有很多方式应付，这种实在是没什么好办法。(这里不能不说三风拉满敏捷和命中的公主打-6以上的低通太好用了，提供常驻敏捷还能稳定断技能，不过需要拉满spike防御，用5级就够了)
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 4855#       发表于 2020-6-14 01:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">修尔克:"让梅里亚幸福的未来"
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6800,15 +4516,9 @@ Rex情场老手了<img src="https://static.saraba1st.com/image/smiley/face2017/0
 ##### 4856#       发表于 2020-6-14 01:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795810&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-06-14 01:15:08</a></blockquote>讲道理有寿命论，跟小受怎么都没法幸福起来，还是百合吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -6817,23 +4527,15 @@ Rex情场老手了<img src="https://static.saraba1st.com/image/smiley/face2017/0
 ##### 4857#       发表于 2020-6-14 01:21
 
 
-
-
 C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞克都没时间搞研究了，就配给了阿道夫，阿道夫也是个用MI药的，很般配<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 之后半夜1点目睹莫妮卡尾随艾瑞克走进他俩以前幽会的小巷，偷看他看了2小时，嘴上说没有什么恋恋不舍，有点同情阿道夫了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Arccueid  
 ##### 4858#       发表于 2020-6-14 01:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795861&amp;ptid=1856998" target="_blank">66367749 发表于 2020-06-14 01:21:14</a>
@@ -6844,16 +4546,10 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  lucky95  
 ##### 4859#       发表于 2020-6-14 01:32
-
 
 
  本帖最后由 lucky95 于 2020-6-14 07:53 编辑 
@@ -6867,26 +4563,15 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 — from HUAWEI ANA-NX9, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  memphiseme  
 ##### 4860#       发表于 2020-6-14 01:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">插满6级宝石，114 死了2个小时，换各种队伍都打不过，摸了摸了。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这qte越来越快，年纪大了反应跟不上了
-
-
-
-
-
 
 
 -----
@@ -6895,21 +4580,13 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 ##### 4861#       发表于 2020-6-14 01:48
 
 
-
-
 丹邦加入后的30限制挑战怎么打，次次都是b
-
-
-
-
-
 
 
 -----
 
 ####  mamamiya  
 ##### 4862#       发表于 2020-6-14 01:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47796049&amp;ptid=1856998" target="_blank">memphiseme 发表于 2020-6-14 01:47</a>
@@ -6920,31 +4597,19 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 受克学完第五性格的话114 120配好宝石应该都能随便过吧
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 4863#       发表于 2020-6-14 02:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本传里蜥蜴人是和蜘蛛同流合污的吗?怎么外传这两个物种搞在一起了?
-
-
-
-
-
 
 
 -----
 
 ####  66367749  
 ##### 4864#       发表于 2020-6-14 02:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795949&amp;ptid=1856998" target="_blank">lucky95 发表于 2020-6-14 01:32</a>
@@ -6954,32 +4619,19 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 外传的大招qte我就摁满槽过1次，3个qte还是变速的，有必要么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  66367749  
 ##### 4865#       发表于 2020-6-14 02:40
 
 
-
-
 风怒
-
-
-
-
-
 
 
 -----
 
 ####  lucky95  
 ##### 4866#       发表于 2020-6-14 03:11
-
 
 
  本帖最后由 lucky95 于 2020-6-14 03:15 编辑 
@@ -6997,16 +4649,10 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 — from HUAWEI ANA-NX9, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  mhfdt  
 ##### 4867#       发表于 2020-6-14 09:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47796058&amp;ptid=1856998" target="_blank">mjzs07 发表于 2020-6-14 01:48</a>
@@ -7026,32 +4672,19 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 就是实践起来还有问题
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 4868#       发表于 2020-6-14 10:11
 
 
-
-
 菲奥伦是真的强，有些限制挑战打得我要死要活的，最后那个挑战我一进去发现一大波精英怪感觉要凉，没想到随便打就s了
-
-
-
-
-
 
 
 -----
 
 ####  bad_alloc  
 ##### 4869#       发表于 2020-6-14 10:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47796049&amp;ptid=1856998" target="_blank">memphiseme 发表于 2020-6-14 01:47</a>
@@ -7063,24 +4696,13 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 每个人倒地威力/倒地时间/夜间命中/敏捷/反噬防御插满，战前利奇刷满连携槽，修尔克/丹邦/莱恩/菲奥伦四选三随便打啊
 
 
-
-
-
-
-
 -----
 
 ####  椎名mahuyo  
 ##### 4870#       发表于 2020-6-14 10:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">大剑溪谷那第三大门怎么开啊...
-
-
-
-
-
 
 
 -----
@@ -7089,16 +4711,10 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 ##### 4871#       发表于 2020-6-14 10:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47798049&amp;ptid=1856998" target="_blank">椎名mahuyo 发表于 2020-6-14 10:38</a>
 
 大剑溪谷那第三大门怎么开啊...</blockquote>
 以太储藏区的要塞有个精英的后面
-
-
-
-
-
 
 
 -----
@@ -7107,16 +4723,10 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 ##### 4872#       发表于 2020-6-14 10:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47798049&amp;ptid=1856998" target="_blank">椎名mahuyo 发表于 2020-6-14 10:38</a>
 
 大剑溪谷那第三大门怎么开啊...</blockquote>
 往南的管理基地有开关，精英怪平稳的摩拉克斯身后
-
-
-
-
-
 
 
 -----
@@ -7125,23 +4735,15 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 ##### 4873#       发表于 2020-6-14 11:06
 
 
-
-
 小黄毛和梅里亚ai太捉急了，又不想拿对机神兵武器<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  塔奇克马  
 ##### 4874#       发表于 2020-6-14 11:45
-
 
 
  本帖最后由 塔奇克马 于 2020-6-14 11:48 编辑 
@@ -7151,27 +4753,13 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 <img src="https://static.saraba1st.com/image/smiley/face2017/238.png" referrerpolicy="no-referrer">梅里亚:为什么喜欢研究的人都喜欢自话自说
 
 
-
-
-
-
-
-
-
 -----
 
 ####  ckl80  
 ##### 4875#       发表于 2020-6-14 11:54
 
 
-
-
 崩耐性是怎么算的，不进连携是必不中还是概率不中？进了连携会不中吗？我好像试过好几次进连携打出伤害了但却没有崩
-
-
-
-
-
 
 
 -----
@@ -7180,14 +4768,7 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 ##### 4876#       发表于 2020-6-14 11:54
 
 
-
-
 崩耐性是怎么算的，不进连携是必不中还是概率不中？进了连携会不中吗？我好像试过好几次进连携打出伤害了但却没有崩
-
-
-
-
-
 
 
 -----
@@ -7196,14 +4777,7 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 ##### 4877#       发表于 2020-6-14 12:10
 
 
-
-
 阿尔维斯具体什么来头？？？？？？？？
-
-
-
-
-
 
 
 -----
@@ -7212,15 +4786,9 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 ##### 4878#       发表于 2020-6-14 12:21
 
 
-
 <blockquote>godless2020 发表于 2020-6-14 12:10
 阿尔维斯具体什么来头？？？？？？？？</blockquote>
 没玩2代？玩了应该都知道吧
-
-
-
-
-
 
 
 -----
@@ -7229,15 +4797,9 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 ##### 4879#       发表于 2020-6-14 12:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47799080&amp;ptid=1856998" target="_blank">godless2020 发表于 2020-6-14 12:10</a>
 阿尔维斯具体什么来头？？？？？？？？</blockquote>
 2代老婆的兄弟
-
-
-
-
-
 
 
 -----
@@ -7246,14 +4808,7 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 ##### 4880#       发表于 2020-6-14 12:51
 
 
-
-
 诺鹏村顶部梅莉亚和丹邦的牵绊对话有点意思，丹邦早就看出来梅莉亚对修尔克有意思了，带着这个去看后面丹邦与利奇的海边的对话，感觉就变得另有深意了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7262,16 +4817,10 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 ##### 4881#       发表于 2020-6-14 12:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47799080&amp;ptid=1856998" target="_blank">godless2020 发表于 2020-6-14 12:10</a>
 
 阿尔维斯具体什么来头？？？？？？？？</blockquote>
 你看他赋予受克的能力就能猜到他和光灭的关系了吧
-
-
-
-
-
 
 
 -----
@@ -7280,15 +4829,9 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 ##### 4882#       发表于 2020-6-14 13:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">玩了二看他第一次出场的胸口就感觉被剧透了
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -7297,13 +4840,7 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 ##### 4883#       发表于 2020-6-14 13:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">链接未来里还要给力奇还债,我服了.
-
-
-
-
-
 
 
 -----
@@ -7312,23 +4849,15 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 ##### 4884#       发表于 2020-6-14 13:12
 
 
-
-
 力奇在相连未来里的戏份过于足了，不过花这大力气塑造的好爹形象还真是立得直直的
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  lucky95  
 ##### 4885#       发表于 2020-6-14 13:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47799808&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-6-14 13:08</a>
@@ -7338,16 +4867,10 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 — from HUAWEI ANA-NX9, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  mjzs07  
 ##### 4886#       发表于 2020-6-14 13:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47797400&amp;ptid=1856998" target="_blank">mhfdt 发表于 2020-6-14 09:19</a>
@@ -7360,25 +4883,13 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 对喔，我就是集中打的，试下分散
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 4887#       发表于 2020-6-14 13:52
 
 
-
-
 勇者在后传里的形象和本篇差距过大我有点接受不来。。。
-
-
-
-
-
 
 
 -----
@@ -7387,23 +4898,16 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 ##### 4888#       发表于 2020-6-14 14:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47800418&amp;ptid=1856998" target="_blank">bird-lay 发表于 2020-6-14 13:52</a>
 
 勇者在后传里的形象和本篇差距过大我有点接受不来。。。</blockquote>
 不矛盾啊，后传就是说他爱孩子吧，要养一家十口？也是不容易呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lucky95  
 ##### 4889#       发表于 2020-6-14 14:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47800418&amp;ptid=1856998" target="_blank">bird-lay 发表于 2020-6-14 13:52</a>
@@ -7413,16 +4917,10 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 — from HUAWEI ANA-NX9, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 4890#       发表于 2020-6-14 14:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47800650&amp;ptid=1856998" target="_blank">mjzs07 发表于 2020-6-14 14:16</a>
@@ -7431,17 +4929,10 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 力奇在本篇卖萌太成功我老是想不起来他四十岁了
 
 
-
-
-
-
-
 -----
 
 ####  kos_mos  
 ##### 4891#       发表于 2020-6-14 14:57
-
-
 
 
 豆知识：二者同一中の人 ​​​​
@@ -7449,16 +4940,10 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 <img src="http://wx3.sinaimg.cn/large/8165d3c2gy1gfrtqnhdvtj20rh1pcu0x.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  铅笔  
 ##### 4892#       发表于 2020-6-14 15:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47799080&amp;ptid=1856998" target="_blank">godless2020 发表于 2020-6-14 12:10</a>
@@ -7470,17 +4955,10 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 二代的设定，其实原本的世界分裂成两个啦，原来一共是三个AI，世界分裂之后阿尔维斯搞丢了，剩下来两个ai分别是灭跟小绿。然后小绿又分裂啦。
 
 
-
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 4893#       发表于 2020-6-14 15:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47800418&amp;ptid=1856998" target="_blank">bird-lay 发表于 2020-6-14 13:52</a>
@@ -7489,16 +4967,10 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 不矛盾啊,本篇对话里他自己说了已经养了好几代孩子成年了,而且表面上卖萌胆实际上...
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 4894#       发表于 2020-6-14 15:24
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
@@ -7509,32 +4981,19 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  crosz  
 ##### 4895#       发表于 2020-6-14 15:31
 
 
-
-
 力奇和公主怎么配装啊，伸手党求个配置
-
-
-
-
-
 
 
 -----
 
 ####  Arccueid  
 ##### 4896#       发表于 2020-6-14 16:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47801303&amp;ptid=1856998" target="_blank">crosz 发表于 2020-6-14 15:31</a>
@@ -7546,25 +5005,13 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 可以参考下[https://www.bilibili.com/video/BV1xV411k7z3](https://www.bilibili.com/video/BV1xV411k7z3)
 
 
-
-
-
-
-
 -----
 
 ####  HGCG  
 ##### 4897#       发表于 2020-6-14 16:28
 
 
-
-
 女主的那招倒地特效的绝招是只对绿色符号的倒地有效还是连晕眩也算的？
-
-
-
-
-
 
 
 -----
@@ -7573,23 +5020,16 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 ##### 4898#       发表于 2020-6-14 16:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47801819&amp;ptid=1856998" target="_blank">HGCG 发表于 2020-6-14 16:28</a>
 
 女主的那招倒地特效的绝招是只对绿色符号的倒地有效还是连晕眩也算的？</blockquote>
 倒地之后晕的有效，丹邦强行晕的无效
 
 
-
-
-
-
-
 -----
 
 ####  HGCG  
 ##### 4899#       发表于 2020-6-14 16:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47801891&amp;ptid=1856998" target="_blank">moonblackwh 发表于 2020-6-14 16:39</a>
@@ -7600,24 +5040,13 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 顺便主控女主的话怎么配队伍？
 
 
-
-
-
-
-
 -----
 
 ####  椎名mahuyo  
 ##### 4900#       发表于 2020-6-14 17:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">88岁老太婆真的赢不了，老实当工具人比较好
-
-
-
-
-
 
 
 -----
@@ -7626,23 +5055,16 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 ##### 4901#       发表于 2020-6-14 17:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795591&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-06-14 00:48:26</a>
 对啊，你不正常打拉7+小怪无限阳炎进连携或者链以太命中两个性格(无心之悟和打背50%)用天雷无限打断都很 ...</blockquote>恶戏这一次进阶模式开荒，47级干死了，感觉不用连携bug和天雷的话，还是力奇，丹邦和莱恩稳，这三都有信春哥刚泰坦践踏
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 4902#       发表于 2020-6-14 17:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47802007&amp;ptid=1856998" target="_blank">HGCG 发表于 2020-6-14 16:55</a>
@@ -7653,25 +5075,13 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 主控女主推图的话配丹邦和利奇，压力不大利奇可以换主角
 
 
-
-
-
-
-
 -----
 
 ####  ckl80  
 ##### 4903#       发表于 2020-6-14 17:33
 
 
-
-
 刷出两颗6级转倒时间宝石后游戏体验直线上升，只要吃崩真的就一次躺下就起不来了。不过感觉后期这些套路不管菜刀还是dot最关键还是把好感刷上去，不然连携次数上不去啥都展开不了
-
-
-
-
-
 
 
 -----
@@ -7680,14 +5090,7 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 ##### 4904#       发表于 2020-6-14 17:34
 
 
-
-
 梅莉亚用属性伤害宝珠好像有Bug？我安插了雷、毒属性强化宝珠但元素伤害不增加。力奇倒是正常。
-
-
-
-
-
 
 
 -----
@@ -7696,15 +5099,9 @@ C9的莫妮卡本来想配艾瑞克，但这家伙竟然想下MI药而且艾瑞�
 ##### 4905#       发表于 2020-6-14 17:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47802375&amp;ptid=1856998" target="_blank">heresiarch 发表于 2020-6-14 17:34</a>
 梅莉亚用属性伤害宝珠好像有Bug？我安插了雷、毒属性强化宝珠但元素伤害不增加。力奇倒是正常。 ...</blockquote>
 dot是加的
-
-
-
-
-
 
 
 -----
@@ -7713,14 +5110,7 @@ dot是加的
 ##### 4906#       发表于 2020-6-14 17:59
 
 
-
-
 大舅子半血加15%敏捷的性格链接力奇半血加20%敏捷这种是叠加还是乘法啊
-
-
-
-
-
 
 
 -----
@@ -7729,15 +5119,9 @@ dot是加的
 ##### 4907#       发表于 2020-6-14 18:00
 
 
-
 <blockquote>椎名mahuyo 发表于 2020-6-14 17:59
 大舅子半血加15%敏捷的性格链接力奇半血加20%敏捷这种是叠加还是乘法啊</blockquote>
 加法
-
-
-
-
-
 
 
 -----
@@ -7746,16 +5130,10 @@ dot是加的
 ##### 4908#       发表于 2020-6-14 18:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47802358&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-14 17:32</a>
 
 主控女主推图的话配丹邦和利奇，压力不大利奇可以换主角</blockquote>
 利奇用轻装就行？
-
-
-
-
-
 
 
 -----
@@ -7764,23 +5142,16 @@ dot是加的
 ##### 4909#       发表于 2020-6-14 18:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47802913&amp;ptid=1856998" target="_blank">HGCG 发表于 2020-6-14 18:27</a>
 
 利奇用轻装就行？</blockquote>
 用啥都行，硬了没缺点，问题只在于硬币不够用
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 4910#       发表于 2020-6-14 18:45
-
 
 
  本帖最后由 Arccueid 于 2020-6-14 18:46 编辑 
@@ -7790,17 +5161,10 @@ dot是加的
 都可以，这队有丹邦可以安心轻装，这样重量也低，这队毕竟是物理队，敏捷还是很重要的。
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 4911#       发表于 2020-6-14 19:02
-
-
 
 
 对了想问一下通关的，莫纳德3是不是必须二周目才能用，造型也太帅了，就算能幻化也好啊..
@@ -7809,16 +5173,10 @@ dot是加的
 不太想进二周目了，一周目能干的都干了不想再来一遍了。
 
 
-
-
-
-
-
 -----
 
 ####  秋月孝三  
 ##### 4912#       发表于 2020-6-14 19:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47803306&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-14 19:02</a>
@@ -7831,16 +5189,10 @@ dot是加的
 — from HUAWEI VIE-AL10, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 4913#       发表于 2020-6-14 19:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47803400&amp;ptid=1856998" target="_blank">秋月孝三 发表于 2020-6-14 19:11</a>
@@ -7852,32 +5204,19 @@ dot是加的
 <img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">好吧
 
 
-
-
-
-
-
 -----
 
 ####  godless2020  
 ##### 4914#       发表于 2020-6-14 19:15
 
 
-
-
 菲奥伦纯真性格喷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">...............
-
-
-
-
-
 
 
 -----
 
 ####  绿冰  
 ##### 4915#       发表于 2020-6-14 19:15
-
 
 
  本帖最后由 绿冰 于 2020-6-14 19:16 编辑 
@@ -7891,16 +5230,10 @@ dot是加的
 通关了就能换蒙纳多的造型，有个进过2周目的存档，1周目的存档应该就能用造型装备了
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 4916#       发表于 2020-6-14 19:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47803427&amp;ptid=1856998" target="_blank">绿冰 发表于 2020-6-14 19:15</a>
@@ -7911,32 +5244,19 @@ dot是加的
 但是修尔克不能幻化武器吧，难道通关可以？哦看到了，那我到时候试试。
 
 
-
-
-
-
-
 -----
 
 ####  モナド  
 ##### 4917#       发表于 2020-6-14 19:20
 
 
-
-
 通关档也不能幻化monado，必须继承新游戏的档才行
-
-
-
-
-
 
 
 -----
 
 ####  绿冰  
 ##### 4918#       发表于 2020-6-14 19:21
-
 
 
  本帖最后由 绿冰 于 2020-6-14 19:22 编辑 
@@ -7949,25 +5269,13 @@ dot是加的
 难道蒙纳多的幻化完全只看追加内容通关……
 
 
-
-
-
-
-
 -----
 
 ####  superlink  
 ##### 4919#       发表于 2020-6-14 19:44
 
 
-
-
 这后传诺彭队一字排开还是过于喜感
-
-
-
-
-
 
 
 -----
@@ -7976,22 +5284,15 @@ dot是加的
 ##### 4920#       发表于 2020-6-14 20:25
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">话说打完本篇我还是不懂莫纳多到底是什么东西，谁能解释一下
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">另外本篇的配音是新录的还是用回原版的吗？
-
-
-
-
-
 
 
 -----
 
 ####  塔奇克马  
 ##### 4921#       发表于 2020-6-14 20:30
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">未来篇又是一堆无主墓碑...喜欢欢乐的我又开始阴郁起来了......
@@ -8001,16 +5302,10 @@ dot是加的
 明明希望后日谈阳光一些为什么会这样呢?
 
 
-
-
-
-
-
 -----
 
 ####  kyolanaya  
 ##### 4922#       发表于 2020-6-14 20:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47804190&amp;ptid=1856998" target="_blank">肛之练筋士 发表于 2020-6-14 20:25</a>
@@ -8022,26 +5317,14 @@ dot是加的
 莫纳德是改变未来的意志的具现化，源自哲学名词“单子”(意味构成事物的最小单位)，通过操作以太这个构成世界的最基本元素来预知未来和改变因果。“阿尔维斯”的意思是[所有人的意志]。
 
 
-
-
-
-
-
 -----
 
 ####  findpkq  
 ##### 4923#       发表于 2020-6-14 21:05
 
 
-
-
 nico上的病娇妹的二次创作是什么时候的事了，有人翻了XB版的老物<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">群口相声
 [https://www.bilibili.com/video/BV18C4y1a7ky](https://www.bilibili.com/video/BV18C4y1a7ky)
-
-
-
-
-
 
 
 -----
@@ -8050,14 +5333,7 @@ nico上的病娇妹的二次创作是什么时候的事了，有人翻了XB版�
 ##### 4924#       发表于 2020-6-14 21:39
 
 
-
-
 第八章的时候皇都那个塔迪德纳斯没有邀请到第六殖民地，现在17章了，皇都已经莫得了，莱茵的急躁性格还有救不<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8066,16 +5342,10 @@ nico上的病娇妹的二次创作是什么时候的事了，有人翻了XB版�
 ##### 4925#       发表于 2020-6-14 21:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47805358&amp;ptid=1856998" target="_blank">Leona_Akari 发表于 2020-6-14 21:39</a>
 
 第八章的时候皇都那个塔迪德纳斯没有邀请到第六殖民地，现在17章了，皇都已经莫得了，莱茵的急躁性格还有救 ...</blockquote>
 在巨神脚营地
-
-
-
-
-
 
 
 -----
@@ -8084,23 +5354,16 @@ nico上的病娇妹的二次创作是什么时候的事了，有人翻了XB版�
 ##### 4926#       发表于 2020-6-14 21:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47805358&amp;ptid=1856998" target="_blank">Leona_Akari 发表于 2020-06-14 21:39:10</a>
 第八章的时候皇都那个塔迪德纳斯没有邀请到第六殖民地，现在17章了，皇都已经莫得了，莱茵的急躁性格还有救 ...</blockquote>在巨神脚 逃生艇营地
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 4927#       发表于 2020-6-14 21:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47805358&amp;ptid=1856998" target="_blank">Leona_Akari 发表于 2020-6-14 21:39</a>
@@ -8110,25 +5373,13 @@ nico上的病娇妹的二次创作是什么时候的事了，有人翻了XB版�
 是这位吗?
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 4928#       发表于 2020-6-14 21:49
 
 
-
-
 好的，谢谢各位
-
-
-
-
-
 
 
 -----
@@ -8137,14 +5388,7 @@ nico上的病娇妹的二次创作是什么时候的事了，有人翻了XB版�
 ##### 4929#       发表于 2020-6-14 21:49
 
 
-
-
 所以光灭阿尔维斯各欠缺一个功能的原因是币不够用？还是好感度不高？
-
-
-
-
-
 
 
 -----
@@ -8153,22 +5397,13 @@ nico上的病娇妹的二次创作是什么时候的事了，有人翻了XB版�
 ##### 4930#       发表于 2020-6-14 21:55
 
 
-
-
 75级以后去哪里练级快啊
-
-
-
-
-
 
 
 -----
 
 ####  HGCG  
 ##### 4931#       发表于 2020-6-14 21:56
-
-
 
 
 阿尔维斯：喜欢美少年
@@ -8181,25 +5416,13 @@ nico上的病娇妹的二次创作是什么时候的事了，有人翻了XB版�
 我怀疑当年加拉蒂雅偷偷用研究所的电脑看女性向本子
 
 
-
-
-
-
-
 -----
 
 ####  椎名mahuyo  
 ##### 4932#       发表于 2020-6-14 22:01
 
 
-
-
 女主约定之剑那任务要去手掌当初莱恩和卡露娜苏醒的地方，怎么去啊
-
-
-
-
-
 
 
 -----
@@ -8208,16 +5431,9 @@ nico上的病娇妹的二次创作是什么时候的事了，有人翻了XB版�
 ##### 4933#       发表于 2020-6-14 22:07
 
 
-
-
 后知后觉
 
 机神兵精英怪的名字是不是都和亚瑟王传说有关的
-
-
-
-
-
 
 
 -----
@@ -8226,16 +5442,10 @@ nico上的病娇妹的二次创作是什么时候的事了，有人翻了XB版�
 ##### 4934#       发表于 2020-6-14 22:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47805602&amp;ptid=1856998" target="_blank">JC_AR 发表于 2020-6-14 21:55</a>
 
 75级以后去哪里练级快啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">22级以内其实可以去打原生林96级恐龙，然后过渡到99级恐龙
-
-
-
-
-
 
 
 -----
@@ -8244,16 +5454,10 @@ nico上的病娇妹的二次创作是什么时候的事了，有人翻了XB版�
 ##### 4935#       发表于 2020-6-14 22:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47805712&amp;ptid=1856998" target="_blank">椎名mahuyo 发表于 2020-6-14 22:01</a>
 
 女主约定之剑那任务要去手掌当初莱恩和卡露娜苏醒的地方，怎么去啊</blockquote>
 墙边上有个开关，按一下会出爬梯
-
-
-
-
-
 
 
 -----
@@ -8262,14 +5466,7 @@ nico上的病娇妹的二次创作是什么时候的事了，有人翻了XB版�
 ##### 4936#       发表于 2020-6-14 22:41
 
 
-
-
 梅莉亚和力奇的战斗语音里有一个リキ、ふわふわのモコモコを触ってもよいか，这里的もこもこ指的是哪个部位，肚子吗？
-
-
-
-
-
 
 
 -----
@@ -8278,21 +5475,13 @@ nico上的病娇妹的二次创作是什么时候的事了，有人翻了XB版�
 ##### 4937#       发表于 2020-6-14 23:08
 
 
-
-
 移动速度上升的宝珠是只能装在操作的那个人身上才有效还是只要队伍里随便一个装上就行？
-
-
-
-
-
 
 
 -----
 
 ####  Zhangsmallquan  
 ##### 4938#       发表于 2020-6-14 23:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47806222&amp;ptid=1856998" target="_blank">Ditfran 发表于 2020-6-14 22:41</a>
@@ -8303,16 +5492,10 @@ nico上的病娇妹的二次创作是什么时候的事了，有人翻了XB版�
 当时就很想问这是哪啊
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 4939#       发表于 2020-6-14 23:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47806540&amp;ptid=1856998" target="_blank">crosz 发表于 2020-6-14 23:08</a>
@@ -8321,17 +5504,10 @@ nico上的病娇妹的二次创作是什么时候的事了，有人翻了XB版�
 只对那个人有效
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 4940#       发表于 2020-6-14 23:24
-
-
 
 
 planning
@@ -8341,17 +5517,10 @@ planning
 这位主要具体负责什么啊?
 
 
-
-
-
-
-
 -----
 
 ####  kos_mos  
 ##### 4941#       发表于 2020-6-14 23:40
-
-
 
 
 刷SP看队伍平均等级差
@@ -8396,32 +5565,19 @@ SPの稼ぎについてちょっと検証してました。
 <img src="http://wx2.sinaimg.cn/large/8165d3c2gy1gfs8uztqyyj21hc0u0qa8.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  红魔馆的糖  
 ##### 4942#       发表于 2020-6-14 23:52
 
 
-
-
 后日谈感觉有点儿无聊，全程打哈欠<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，短发菲奥伦多给点儿戏多好，虽然是梅莉亚主场
-
-
-
-
-
 
 
 -----
 
 ####  穿着熊  
 ##### 4943#       发表于 2020-6-14 23:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47804190&amp;ptid=1856998" target="_blank">肛之练筋士 发表于 2020-06-14 20:25:48</a>
@@ -8433,16 +5589,10 @@ SPの稼ぎについてちょっと検証してました。
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  memphiseme  
 ##### 4944#       发表于 2020-6-15 00:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47798042&amp;ptid=1856998" target="_blank">bad_alloc 发表于 2020-6-14 10:36</a>
@@ -8455,33 +5605,19 @@ SPの稼ぎについてちょっと検証してました。
 —— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  mjzs07  
 ##### 4945#       发表于 2020-6-15 01:22
 
 
-
-
 力奇的英配完全就是个奸诈大叔声线
-
-
-
-
-
 
 
 -----
 
 ####  Troywest  
 ##### 4946#       发表于 2020-6-15 01:36
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202006/15/013617cg3gpbgw3ppi6mil.jpg" referrerpolicy="no-referrer">
@@ -8494,16 +5630,7 @@ SPの稼ぎについてちょっと検証してました。
 2020-6-15 01:36 上传
 
 
-
-
-
-
 永远都放不出技能的114，想想也是有点可怜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8512,15 +5639,9 @@ SPの稼ぎについてちょっと検証してました。
 ##### 4947#       发表于 2020-6-15 01:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47807652&amp;ptid=1856998" target="_blank">Troywest 发表于 2020-06-15 01:36:52</a></blockquote>吃倒地的命运都只有一条<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -8529,14 +5650,7 @@ SPの稼ぎについてちょっと検証してました。
 ##### 4948#       发表于 2020-6-15 08:23
 
 
-
-
 若本最后竟然没一点戏份吗，还以为再出场一下的
-
-
-
-
-
 
 
 -----
@@ -8545,14 +5659,7 @@ SPの稼ぎについてちょっと検証してました。
 ##### 4949#       发表于 2020-6-15 10:09
 
 
-
-
 暴帝好难打啊，感觉有一大半的攻击都被miss了。敏捷+夜间命中都加满了，还是各种打不到。只能DOT流了么<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8561,22 +5668,15 @@ SPの稼ぎについてちょっと検証してました。
 ##### 4950#       发表于 2020-6-15 10:09
 
 
-
 [https://www.bilibili.com/video/BV1mz4y1Q7bh](https://www.bilibili.com/video/BV1mz4y1Q7bh)
 
 好凶的莱恩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">光是10级技能就有剑刃驱动600%+狂战士力量200%+弹药填充x4.2
-
-
-
-
-
 
 
 -----
 
 ####  塔奇克马  
 ##### 4951#       发表于 2020-6-15 11:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47809408&amp;ptid=1856998" target="_blank">笛普达克范太希 发表于 2020-6-15 10:09</a>
@@ -8587,16 +5687,10 @@ https://www.bilibili.com/video/BV1mz4y1Q7bh
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">开连携max再想象下伤害?!
 
 
-
-
-
-
-
 -----
 
 ####  LamdaHT  
 ##### 4952#       发表于 2020-6-15 11:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47806946&amp;ptid=1856998" target="_blank">红魔馆的糖 发表于 2020-6-14 23:52</a>
@@ -8607,17 +5701,10 @@ https://www.bilibili.com/video/BV1mz4y1Q7bh
 不过我觉得后日谈要是整成所以正篇女性角色+力奇女儿，应该会更有趣一些。
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 4953#       发表于 2020-6-15 11:33
-
-
 
 
 后传ed可以看到菲奥伦吃醋全过程<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
@@ -8625,16 +5712,10 @@ https://www.bilibili.com/video/BV1mz4y1Q7bh
 修尔克和公主出去是不是都没跟菲奥伦说一声…
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 4954#       发表于 2020-6-15 11:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47810371&amp;ptid=1856998" target="_blank">bird-lay 发表于 2020-6-15 11:33</a>
@@ -8646,16 +5727,10 @@ https://www.bilibili.com/video/BV1mz4y1Q7bh
 —— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  oylrcc  
 ##### 4955#       发表于 2020-6-15 11:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47810371&amp;ptid=1856998" target="_blank">bird-lay 发表于 2020-06-15 11:33:08</a>
@@ -8666,16 +5741,10 @@ https://www.bilibili.com/video/BV1mz4y1Q7bh
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 4956#       发表于 2020-6-15 11:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47810412&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-6-15 11:36</a>
@@ -8687,16 +5756,10 @@ https://www.bilibili.com/video/BV1mz4y1Q7bh
 按鸟人的寿命，感觉公主对修尔克的孙子下手都不晚
 
 
-
-
-
-
-
 -----
 
 ####  LamdaHT  
 ##### 4957#       发表于 2020-6-15 12:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47810455&amp;ptid=1856998" target="_blank">bird-lay 发表于 2020-6-15 11:41</a>
@@ -8705,16 +5768,10 @@ https://www.bilibili.com/video/BV1mz4y1Q7bh
 修尔克1世梅希望了，但可以有修尔克2世，3世<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 4958#       发表于 2020-6-15 12:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47810919&amp;ptid=1856998" target="_blank">LamdaHT 发表于 2020-6-15 12:14</a>
@@ -8723,16 +5780,10 @@ https://www.bilibili.com/video/BV1mz4y1Q7bh
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">基因不纯了.建议得到修尔克的基因克隆一个,从小开始培养.
 
 
-
-
-
-
-
 -----
 
 ####  mjzs07  
 ##### 4959#       发表于 2020-6-15 12:21
-
 
 
 <blockquote>LamdaHT 发表于 2020-6-15 11:29
@@ -8742,16 +5793,10 @@ https://www.bilibili.com/video/BV1mz4y1Q7bh
 跟菲奥雷说了也不会带她去吧，这身体战斗力估计还不如力奇儿子
 
 
-
-
-
-
-
 -----
 
 ####  xzhychris  
 ##### 4960#       发表于 2020-6-15 12:21
-
 
 
  本帖最后由 xzhychris 于 2020-6-15 12:29 编辑 
@@ -8761,16 +5806,10 @@ https://www.bilibili.com/video/BV1mz4y1Q7bh
 不是要王都招过来的人吗。。。我看攻略要找的那个什么安银，都是王都的啊这王都现在也都是怪物了
 
 
-
-
-
-
-
 -----
 
 ####  LamdaHT  
 ##### 4961#       发表于 2020-6-15 12:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47811035&amp;ptid=1856998" target="_blank">mjzs07 发表于 2020-6-15 12:21</a>
@@ -8779,16 +5818,10 @@ https://www.bilibili.com/video/BV1mz4y1Q7bh
 XB2的那个看对话，就是本篇复原后的，不存在战斗力问题
 
 
-
-
-
-
-
 -----
 
 ####  LamdaHT  
 ##### 4962#       发表于 2020-6-15 12:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47810978&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-6-15 12:17</a>
@@ -8797,26 +5830,15 @@ XB2的那个看对话，就是本篇复原后的，不存在战斗力问题
 这次，换我做你的青梅竹马<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  狸狸狐  
 ##### 4963#       发表于 2020-6-15 12:39
 
 
-
 <blockquote>mjzs07 发表于 2020-6-15 12:21
 跟菲奥雷说了也不会带她去吧，这身体战斗力估计还不如力奇儿子</blockquote>
 人类形态战斗力是XB2世界最强存在，什么天之圣杯花JD神八都要靠边
-
-
-
-
-
 
 
 -----
@@ -8825,16 +5847,10 @@ XB2的那个看对话，就是本篇复原后的，不存在战斗力问题
 ##### 4964#       发表于 2020-6-15 12:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47811268&amp;ptid=1856998" target="_blank">狸狸狐 发表于 2020-6-15 12:39</a>
 
 人类形态战斗力是XB2世界最强存在，什么天之圣杯花JD神八都要靠边</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新tier表出了，花JD让其他人靠边
-
-
-
-
-
 
 
 -----
@@ -8843,23 +5859,16 @@ XB2的那个看对话，就是本篇复原后的，不存在战斗力问题
 ##### 4965#       发表于 2020-6-15 12:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47811123&amp;ptid=1856998" target="_blank">LamdaHT 发表于 2020-6-15 12:27</a>
 
 这次，换我做你的青梅竹马</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">以后就是姐姐 和 梅梅 各报一个小正太结婚(
 
 
-
-
-
-
-
 -----
 
 ####  mamamiya  
 ##### 4966#       发表于 2020-6-15 12:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47811045&amp;ptid=1856998" target="_blank">xzhychris 发表于 2020-6-15 12:21</a>
@@ -8869,26 +5878,15 @@ XB2的那个看对话，就是本篇复原后的，不存在战斗力问题
 你看的攻略不行，皇城移民都跑出去避难了。<img src="https://p.sda1.dev/0/be915e59312fcc745da5613b9d355d0b/IMG_816BACE5573C2B7DC337EA3BF90D13EE.jpeg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  nerugigannte  
 ##### 4967#       发表于 2020-6-15 13:43
 
 
-
  本帖最后由 nerugigannte 于 2020-6-15 13:45 编辑 
 
 后排提个问，这作日版有中文吗，想买个日版的试试日文啊能玩得动，玩会片假名看得头疼的话就切回中文搓了
-
-
-
-
-
 
 
 -----
@@ -8897,23 +5895,16 @@ XB2的那个看对话，就是本篇复原后的，不存在战斗力问题
 ##### 4968#       发表于 2020-6-15 13:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47812099&amp;ptid=1856998" target="_blank">nerugigannte 发表于 2020-6-15 13:43</a>
 
 后排提个问，这作日版有中文吗，想买个日版的试试日文啊能玩得动，玩会片假名看得头疼的话就切回中文搓了 ...</blockquote>
 全区全版本都有中文
 
 
-
-
-
-
-
 -----
 
 ####  言嘉  
 ##### 4969#       发表于 2020-6-15 13:51
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">慢吞吞打到梅希望老家了，看着那一片海就眼前一黑，说几件流程里的破事：
@@ -8931,16 +5922,10 @@ NPC在不同时间点出现说是为了有真实感——没有，我没有任�
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">真的强迫症和全清党要好好调整心态，我自认玩得够仔细了，可是素材从来没够用过，次次被任务打脸
 
 
-
-
-
-
-
 -----
 
 ####  椎名mahuyo  
 ##### 4970#       发表于 2020-6-15 14:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47812206&amp;ptid=1856998" target="_blank">言嘉 发表于 2020-6-15 13:51</a>
@@ -8951,32 +5936,19 @@ NPC在不同时间点出现说是为了有真实感——没有，我没有任�
 真强迫症建议直接查泥潭xb2支线全攻略，查着表清以后感觉真的省时省心(
 
 
-
-
-
-
-
 -----
 
 ####  蓮華  
 ##### 4971#       发表于 2020-6-15 14:27
 
 
-
-
 讲真，这游戏npc按照时间固定的行动真给我一种矛盾螺旋的公寓感觉，让我背脊凉凉的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  stoiorz  
 ##### 4972#       发表于 2020-6-15 14:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47812206&amp;ptid=1856998" target="_blank">言嘉 发表于 2020-6-15 13:51</a>
@@ -8994,16 +5966,10 @@ NPC在不同时间点出现说是为了有真实感——没有，我没有任�
 3，复兴任务基本查攻略，别和自己过不去了。<img src="https://static.saraba1st.com/image/smiley/carton2017/246.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  deathomega  
 ##### 4973#       发表于 2020-6-15 14:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47812206&amp;ptid=1856998" target="_blank">言嘉 发表于 2020-6-15 13:51</a>
@@ -9025,16 +5991,10 @@ NPC在不同时间点出现说是为了有真实感——没有，我没有任�
 但是真的，很让人抓狂，还是看攻略吧
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 4974#       发表于 2020-6-15 15:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47812590&amp;ptid=1856998" target="_blank">蓮華 发表于 2020-6-15 14:27</a>
@@ -9044,25 +6004,13 @@ NPC在不同时间点出现说是为了有真实感——没有，我没有任�
 —— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  RUANHYC  
 ##### 4975#       发表于 2020-6-15 15:36
 
 
-
-
 EH上的XB1本子好像没多少啊，就找到几本梅利亚的<img src="https://static.saraba1st.com/image/smiley/carton2017/246.gif" referrerpolicy="no-referrer">还有就是为什么雷老板和齐格的gay本这么多？<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9071,22 +6019,15 @@ EH上的XB1本子好像没多少啊，就找到几本梅利亚的<img src="https
 ##### 4976#       发表于 2020-6-15 16:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47813456&amp;ptid=1856998" target="_blank">RUANHYC 发表于 2020-6-15 15:36</a>
 EH上的XB1本子好像没多少啊，就找到几本梅利亚的还有就是为什么雷老板和齐格的gay本这么多？ ...</blockquote>
 Gay本看画风应该都是同一个人画的，还有你别说雷老板那开裆裤确实能戳到某些人XP<img src="https://static.saraba1st.com/image/smiley/carton2017/240.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  隔壁老黄  
 ##### 4977#       发表于 2020-6-15 16:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47811045&amp;ptid=1856998" target="_blank">xzhychris 发表于 2020-6-15 12:21</a>
@@ -9097,16 +6038,10 @@ Gay本看画风应该都是同一个人画的，还有你别说雷老板那开�
 一样能招，逃难去其他地方了
 
 
-
-
-
-
-
 -----
 
 ####  红魔馆的糖  
 ##### 4978#       发表于 2020-6-15 18:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47810312&amp;ptid=1856998" target="_blank">LamdaHT 发表于 2020-6-15 11:29</a>
@@ -9114,11 +6049,6 @@ Gay本看画风应该都是同一个人画的，还有你别说雷老板那开�
 
 不过我觉得后日 ...</blockquote>
 主要是巨神肩这图趟遍了也没啥特色，剧情也一般般，玩起来没啥味道
-
-
-
-
-
 
 
 -----
@@ -9129,12 +6059,10 @@ Gay本看画风应该都是同一个人画的，还有你别说雷老板那开�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Arccueid  
 ##### 4980#       发表于 2020-6-15 19:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47812099&amp;ptid=1856998" target="_blank">nerugigannte 发表于 2020-6-15 13:43</a>
@@ -9143,16 +6071,10 @@ Gay本看画风应该都是同一个人画的，还有你别说雷老板那开�
 有，我就是日版的
 
 
-
-
-
-
-
 -----
 
 ####  mjzs07  
 ##### 4981#       发表于 2020-6-15 19:44
-
 
 
 <blockquote>ww-stl 发表于 2020-6-15 19:17
@@ -9163,16 +6085,10 @@ Gay本看画风应该都是同一个人画的，还有你别说雷老板那开�
 因为阿尔维斯，不然修尔克早死翘翘
 
 
-
-
-
-
-
 -----
 
 ####  HGCG  
 ##### 4982#       发表于 2020-6-15 20:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47816478&amp;ptid=1856998" target="_blank">ww-stl 发表于 2020-6-15 19:17</a>
@@ -9186,16 +6102,10 @@ Gay本看画风应该都是同一个人画的，还有你别说雷老板那开�
 改变了以太流向就能改变未来
 
 
-
-
-
-
-
 -----
 
 ####  zpsw00000  
 ##### 4983#       发表于 2020-6-15 20:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47816478&amp;ptid=1856998" target="_blank">ww-stl 发表于 2020-6-15 19:17</a>
@@ -9207,32 +6117,19 @@ Gay本看画风应该都是同一个人画的，还有你别说雷老板那开�
 因为他看到的未来是修尔克被他脱离之后就完犊子了的未来，而修尔克反水的未来被阿尔维斯隐藏了
 
 
-
-
-
-
-
 -----
 
 ####  AincradWanderer  
 ##### 4984#       发表于 2020-6-15 21:14
 
 
-
-
 坠落巨臂的动力管道旧址要怎么回去啊？
-
-
-
-
-
 
 
 -----
 
 ####  椎名mahuyo  
 ##### 4985#       发表于 2020-6-15 21:18
-
 
 
  本帖最后由 椎名mahuyo 于 2020-6-15 21:23 编辑 
@@ -9242,16 +6139,10 @@ Gay本看画风应该都是同一个人画的，还有你别说雷老板那开�
 昨天我问了这问题，他们汇合那个房间墙上有个开关，打开以后有新路
 
 
-
-
-
-
-
 -----
 
 ####  AincradWanderer  
 ##### 4986#       发表于 2020-6-15 21:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47817950&amp;ptid=1856998" target="_blank">椎名mahuyo 发表于 2020-6-15 21:18</a>
@@ -9260,16 +6151,10 @@ Gay本看画风应该都是同一个人画的，还有你别说雷老板那开�
 绝了，真有个和背景融为一体的开关，地图上还完全没有标示<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  deathomega  
 ##### 4987#       发表于 2020-6-15 21:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47816478&amp;ptid=1856998" target="_blank">ww-stl 发表于 2020-6-15 19:17</a>
@@ -9286,25 +6171,13 @@ Gay本看画风应该都是同一个人画的，还有你别说雷老板那开�
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  可知歌者也奈何  
 ##### 4988#       发表于 2020-6-15 21:51
 
 
-
-
 请教下，了解到二周目不继承牵绊图和任务，打算快速通关一周目，有什么东西是一周目最好先完成的？目前只知道做出人物的隐藏性格，杀尽精英怪拿硬币，各种幻化外观，除此之外还有呢
-
-
-
-
-
 
 
 -----
@@ -9313,17 +6186,10 @@ Gay本看画风应该都是同一个人画的，还有你别说雷老板那开�
 ##### 4989#       发表于 2020-6-15 22:06
 
 
-
-
 发现这个帖子好危险，感觉50%的人是多年以来一早通关了的那批人，30%的是第一次玩但速通的人，只有我还在慢悠悠地玩<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
 
 我现在真老婆正式加入了（幼驯染和兄妹重聚的演出冲击力莫名其妙的厉害，太可爱感人了），准备爬手臂上去，我现在流程大概在百分之几呢？
-
-
-
-
-
 
 
 -----
@@ -9332,15 +6198,9 @@ Gay本看画风应该都是同一个人画的，还有你别说雷老板那开�
 ##### 4990#       发表于 2020-6-15 22:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47818536&amp;ptid=1856998" target="_blank">heresiarch 发表于 2020-6-15 22:06</a>
 发现这个帖子好危险，感觉50%的人是多年以来一早通关了的那批人，30%的是第一次玩但速通的人，只有我还在慢 ...</blockquote>
 70%多吧
-
-
-
-
-
 
 
 -----
@@ -9349,15 +6209,9 @@ Gay本看画风应该都是同一个人画的，还有你别说雷老板那开�
 ##### 4991#       发表于 2020-6-15 22:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47818556&amp;ptid=1856998" target="_blank">哈尔摩尼亚N 发表于 2020-6-15 22:08</a>
 70%多吧</blockquote>
 自信点，把“吧”去掉
-
-
-
-
-
 
 
 -----
@@ -9366,16 +6220,10 @@ Gay本看画风应该都是同一个人画的，还有你别说雷老板那开�
 ##### 4992#       发表于 2020-6-15 22:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47818556&amp;ptid=1856998" target="_blank">哈尔摩尼亚N 发表于 2020-6-15 22:08</a>
 
 70%多吧</blockquote>
 感觉好像比2代流程要短了？已经略感到有点不舍了，虽然隔壁P5乱战和P4G都在跟我招手了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9384,16 +6232,10 @@ Gay本看画风应该都是同一个人画的，还有你别说雷老板那开�
 ##### 4993#       发表于 2020-6-15 22:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47818676&amp;ptid=1856998" target="_blank">heresiarch 发表于 2020-6-15 22:18</a>
 
 感觉好像比2代流程要短了？已经略感到有点不舍了，虽然隔壁P5乱战和P4G都在跟我招手了 ...</blockquote>
 其实比2代长哦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9402,16 +6244,10 @@ Gay本看画风应该都是同一个人画的，还有你别说雷老板那开�
 ##### 4994#       发表于 2020-6-15 23:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47818334&amp;ptid=1856998" target="_blank">可知歌者也奈何 发表于 2020-6-15 21:51</a>
 
 请教下，了解到二周目不继承牵绊图和任务，打算快速通关一周目，有什么东西是一周目最好先完成的？目前只知 ...</blockquote>
 要全性格，基本要把大半任务清了，不如直接全任务一步到位，否则就别碰支线，速通看剧情
-
-
-
-
-
 
 
 -----
@@ -9420,15 +6256,9 @@ Gay本看画风应该都是同一个人画的，还有你别说雷老板那开�
 ##### 4995#       发表于 2020-6-15 23:13
 
 
-
  本帖最后由 3D烧 于 2020-6-15 23:18 编辑 
 
 本篇通关了，接下来比较忙，不知道什么时候才能通关相连的未来。这个打完又不知道什么时候才能玩到新作，二周目打算留到lite pro再玩。异度3的战斗系统希望继续在xb1上改良，更多的战技选择，更多可操控的增减效果，对我来说才能更有意思。异度1最喜欢的就是这个地图了，从巨神脚爬到巨神头，再爬到机神身上，最后再回到巨神望向机神，特别喜欢这种“旅行”的感觉，希望异度3能延续，异度2那种多个阿鲁斯的感觉还是稍差点。
-
-
-
-
-
 
 
 -----
@@ -9437,14 +6267,7 @@ Gay本看画风应该都是同一个人画的，还有你别说雷老板那开�
 ##### 4996#       发表于 2020-6-15 23:31
 
 
-
-
 仔细想一想，wii之后每代机器，wiiu 3ds ns都可以玩异度神剑，ns2会不会接上啊，再搞个后传任天堂你说好不好，我没玩过瘾啊，或者你再搞个修尔克为主角的续作<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9453,23 +6276,16 @@ Gay本看画风应该都是同一个人画的，还有你别说雷老板那开�
 ##### 4997#       发表于 2020-6-16 02:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47816051&amp;ptid=1856998" target="_blank">红魔馆的糖 发表于 2020-6-15 18:42</a>
 
 主要是巨神肩这图趟遍了也没啥特色，剧情也一般般，玩起来没啥味道</blockquote>
 毕竟是免费的粉丝福利，仔细想想也不可能用心做，主要还是宣传的时候拿出来当噱头拉高了期待度
 
 
-
-
-
-
-
 -----
 
 ####  LamdaHT  
 ##### 4998#       发表于 2020-6-16 02:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47819549&amp;ptid=1856998" target="_blank">3D烧 发表于 2020-6-15 23:31</a>
@@ -9480,16 +6296,10 @@ Gay本看画风应该都是同一个人画的，还有你别说雷老板那开�
 不过可以期待一下类似在交叉领域计划这样的游戏里客串<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 4999#       发表于 2020-6-16 02:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47818334&amp;ptid=1856998" target="_blank">可知歌者也奈何 发表于 2020-6-15 21:51</a>
@@ -9498,26 +6308,15 @@ Gay本看画风应该都是同一个人画的，还有你别说雷老板那开�
 隐藏性格二周目解吧，我为了解隐藏性格基本上已经全清支线了，之后干脆就全清了，因为剩的太少
 
 
-
-
-
-
-
 -----
 
 ####  ZyLintheMax  
 ##### 5000#       发表于 2020-6-16 02:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47819318&amp;ptid=1856998" target="_blank">3D烧 发表于 2020-6-15 23:13</a>
 本篇通关了，接下来比较忙，不知道什么时候才能通关相连的未来。这个打完又不知道什么时候才能玩到新作，二 ...</blockquote>
 XB3如果是接一和二的世界观续写下去的话，应该不太可能继续在巨大生物的身上冒险了
-
-
-
-
-
 
 
 -----
@@ -9526,16 +6325,9 @@ XB3如果是接一和二的世界观续写下去的话，应该不太可能继�
 ##### 5001#       发表于 2020-6-16 04:49
 
 
-
-
 才发现交换得到宝石数值是浮动的，难怪要写??%，我还以为只是没拿到的宝石不告诉你多少。
 
 因为不存在4级晶体，现在又还没打四天王拿5级结晶，本来想换3个夜间命中5过度用，一看38-42每个都不同有点烦
-
-
-
-
-
 
 
 -----
@@ -9544,14 +6336,7 @@ XB3如果是接一和二的世界观续写下去的话，应该不太可能继�
 ##### 5002#       发表于 2020-6-16 07:21
 
 
-
-
 以太队过了暴帝<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9560,21 +6345,13 @@ XB3如果是接一和二的世界观续写下去的话，应该不太可能继�
 ##### 5003#       发表于 2020-6-16 08:51
 
 
-
-
 阿加雷斯:"我好像有点惨啊，这就被夺舍了"<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  NameLess2501  
 ##### 5004#       发表于 2020-6-16 09:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47821162&amp;ptid=1856998" target="_blank">Zhangsmallquan 发表于 2020-6-16 04:49</a>
@@ -9586,17 +6363,10 @@ XB3如果是接一和二的世界观续写下去的话，应该不太可能继�
 — from OPPO CPH1851, Android 8.1.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  莉拉厨  
 ##### 5005#       发表于 2020-6-16 09:30
-
-
 
 
 有没有人研究过雾乃王低通最低几级，我看到有人72通的
@@ -9604,16 +6374,10 @@ XB3如果是接一和二的世界观续写下去的话，应该不太可能继�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Zhangsmallquan  
 ##### 5006#       发表于 2020-6-16 09:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47822220&amp;ptid=1856998" target="_blank">NameLess2501 发表于 2020-6-16 09:28</a>
@@ -9625,17 +6389,10 @@ XB3如果是接一和二的世界观续写下去的话，应该不太可能继�
 只要有结晶，自己炼肯定都炼到最大值啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过有好多特殊宝石都没有中低级的结晶就是了
 
 
-
-
-
-
-
 -----
 
 ####  Zhangsmallquan  
 ##### 5007#       发表于 2020-6-16 09:39
-
-
 
 
 一直清支线现在才进监狱岛，最后那个99级限制模式试炼太离谱了吧<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">精英怪7连，最后一波还是114+120的组合
@@ -9643,16 +6400,10 @@ XB3如果是接一和二的世界观续写下去的话，应该不太可能继�
 三个女人毫无连招都不知道怎么打到最后的，只剩一个飞龙，然后就被一个大秒了，绝了
 
 
-
-
-
-
-
 -----
 
 ####  NameLess2501  
 ##### 5008#       发表于 2020-6-16 10:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47822289&amp;ptid=1856998" target="_blank">Zhangsmallquan 发表于 2020-6-16 09:35</a>
@@ -9662,16 +6413,10 @@ XB3如果是接一和二的世界观续写下去的话，应该不太可能继�
 — from OPPO CPH1851, Android 8.1.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  名守居  
 ##### 5009#       发表于 2020-6-16 10:20
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">采矿4个条都是90+，这TM该怎么分离出4个90+啊
@@ -9679,16 +6424,10 @@ XB3如果是接一和二的世界观续写下去的话，应该不太可能继�
 只能考虑折损一两条换其他吗
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 5010#       发表于 2020-6-16 10:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47822766&amp;ptid=1856998" target="_blank">名守居 发表于 2020-6-16 10:20</a>
@@ -9699,25 +6438,13 @@ XB3如果是接一和二的世界观续写下去的话，应该不太可能继�
 卡尔娜/第七人+力奇，两个人都是计量条相关技能
 
 
-
-
-
-
-
 -----
 
 ####  wildarm  
 ##### 5011#       发表于 2020-6-16 11:08
 
 
-
-
 流程获取大量高级别晶石时，低级别是不是废品处理卖掉，例如1级那些
-
-
-
-
-
 
 
 -----
@@ -9726,13 +6453,7 @@ XB3如果是接一和二的世界观续写下去的话，应该不太可能继�
 ##### 5012#       发表于 2020-6-16 11:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">队友们好感高了 就算第七人和利奇0好感 搞分离还是容易破百
-
-
-
-
-
 
 
 -----
@@ -9741,14 +6462,7 @@ XB3如果是接一和二的世界观续写下去的话，应该不太可能继�
 ##### 5013#       发表于 2020-6-16 11:20
 
 
-
-
 不是怕分离条不够，是怕随随便便出个队友支援就爆了
-
-
-
-
-
 
 
 -----
@@ -9757,21 +6471,13 @@ XB3如果是接一和二的世界观续写下去的话，应该不太可能继�
 ##### 5014#       发表于 2020-6-16 11:21
 
 
-
-
 4个90几这种是真的蛋疼，选一两个有用的属性直接炼就行了，上200就好 不指望300
-
-
-
-
-
 
 
 -----
 
 ####  绿冰  
 ##### 5015#       发表于 2020-6-16 11:26
-
 
 
 <blockquote>莉拉厨 发表于 2020-6-16 09:30
@@ -9782,17 +6488,10 @@ XB3如果是接一和二的世界观续写下去的话，应该不太可能继�
 71级应该是可以的，只是第二阶段的容错率实在是低
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5016#       发表于 2020-6-16 11:53
-
-
 
 
 实际上好感高了87%都能轻松冲300+，绰绰有余。
@@ -9802,16 +6501,10 @@ XB3如果是接一和二的世界观续写下去的话，应该不太可能继�
 保持第七人和利奇最低好感就行，然后SL出一次不爆自己想要的瓶子就ok了。
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5017#       发表于 2020-6-16 11:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47823499&amp;ptid=1856998" target="_blank">wildarm 发表于 2020-6-16 11:08</a>
@@ -9820,26 +6513,15 @@ XB3如果是接一和二的世界观续写下去的话，应该不太可能继�
 3级以下都能卖，基本上毫无用处。
 
 
-
-
-
-
-
 -----
 
 ####  mjzs07  
 ##### 5018#       发表于 2020-6-16 12:09
 
 
-
 <blockquote>椎名mahuyo 发表于 2020-6-16 11:21
 4个90几这种是真的蛋疼，选一两个有用的属性直接炼就行了，上200就好 不指望300 ...</blockquote>
 这才极品啊，直接分离，修尔克莱恩很容易冲三百
-
-
-
-
-
 
 
 -----
@@ -9848,14 +6530,7 @@ XB3如果是接一和二的世界观续写下去的话，应该不太可能继�
 ##### 5019#       发表于 2020-6-16 12:19
 
 
-
-
 https://b23.tv/BV1e54y1Q73W 练珠可以看这个，最重点的就是菲奥雷梅里亚好感越越低越好
-
-
-
-
-
 
 
 -----
@@ -9864,22 +6539,13 @@ https://b23.tv/BV1e54y1Q73W 练珠可以看这个，最重点的就是菲奥雷�
 ##### 5020#       发表于 2020-6-16 12:21
 
 
-
-
 四个都高的直接两个一起小火炖吧，损失就损失点了，多来几趟
-
-
-
-
-
 
 
 -----
 
 ####  苍蓝之枪  
 ##### 5021#       发表于 2020-6-16 12:30
-
-
 
 
 我倒是想问问一般要做哪些宝石，常备多少件
@@ -9889,17 +6555,10 @@ https://b23.tv/BV1e54y1Q73W 练珠可以看这个，最重点的就是菲奥雷�
 别的都没怎么做，这宝石换装也太累了
 
 
-
-
-
-
-
 -----
 
 ####  古畑任三郎2015  
 ##### 5022#       发表于 2020-6-16 12:44
-
-
 
 
 话说剧情里是不是没介绍三个使徒的来源和经历啊
@@ -9910,16 +6569,10 @@ https://b23.tv/BV1e54y1Q73W 练珠可以看这个，最重点的就是菲奥雷�
 来自: iPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  言嘉  
 ##### 5023#       发表于 2020-6-16 12:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47824825&amp;ptid=1856998" target="_blank">古畑任三郎2015 发表于 2020-6-16 12:44</a>
@@ -9934,16 +6587,10 @@ https://b23.tv/BV1e54y1Q73W 练珠可以看这个，最重点的就是菲奥雷�
 但是阿尔维斯胸口挂的那个吊坠不是出场剧透么？（前提是玩过XB2）
 
 
-
-
-
-
-
 -----
 
 ####  ZyLintheMax  
 ##### 5024#       发表于 2020-6-16 12:51
-
 
 
  本帖最后由 ZyLintheMax 于 2020-6-16 12:59 编辑 
@@ -9957,16 +6604,10 @@ https://b23.tv/BV1e54y1Q73W 练珠可以看这个，最重点的就是菲奥雷�
 阿尔维斯是真神啊，赞扎自然窥探不了阿尔维斯屏蔽掉的未来
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5025#       发表于 2020-6-16 12:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47824825&amp;ptid=1856998" target="_blank">古畑任三郎2015 发表于 2020-6-16 12:44</a>
@@ -9979,16 +6620,10 @@ https://b23.tv/BV1e54y1Q73W 练珠可以看这个，最重点的就是菲奥雷�
 <img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">棋盘上的棋子怎么知道谁是棋手呢?
 
 
-
-
-
-
-
 -----
 
 ####  言嘉  
 ##### 5026#       发表于 2020-6-16 12:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47824825&amp;ptid=1856998" target="_blank">古畑任三郎2015 发表于 2020-6-16 12:44</a>
@@ -10006,17 +6641,10 @@ https://b23.tv/BV1e54y1Q73W 练珠可以看这个，最重点的就是菲奥雷�
 莫纳德等于这个CPU赐予的权限钥匙
 
 
-
-
-
-
-
-
 -----
 
 ####  言嘉  
 ##### 5027#       发表于 2020-6-16 12:58
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -10027,16 +6655,10 @@ https://b23.tv/BV1e54y1Q73W 练珠可以看这个，最重点的就是菲奥雷�
 “公司老板微服私访，把自以为是的蛀虫领导赶下台，并提拔了自己看上的精神小伙上位，担任公司总经理”
 
 
-
-
-
-
-
 -----
 
 ####  mamamiya  
 ##### 5028#       发表于 2020-6-16 13:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47822766&amp;ptid=1856998" target="_blank">名守居 发表于 2020-6-16 10:20</a>
@@ -10046,16 +6668,10 @@ https://b23.tv/BV1e54y1Q73W 练珠可以看这个，最重点的就是菲奥雷�
 这种要提纯需要力奇和其他6个人一点好感都没，不过4个90+的都是大路货，没这个必要。
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5029#       发表于 2020-6-16 13:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47824986&amp;ptid=1856998" target="_blank">言嘉 发表于 2020-6-16 12:58</a>
@@ -10068,17 +6684,10 @@ https://b23.tv/BV1e54y1Q73W 练珠可以看这个，最重点的就是菲奥雷�
 —— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  古畑任三郎2015  
 ##### 5030#       发表于 2020-6-16 13:24
-
-
 
 
 不是，我知道阿尔维斯的身份
@@ -10086,16 +6695,10 @@ https://b23.tv/BV1e54y1Q73W 练珠可以看这个，最重点的就是菲奥雷�
 还有就是这三个使徒是怎么传承的，这个剧情里没提啊，阿尔维斯说是历代家族式，罗兰迪克森没交代，如果如他所说那就是轮回转世xg那一套了，那岂不是比赞扎自己还牛来自: iPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  言嘉  
 ##### 5031#       发表于 2020-6-16 13:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825291&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-6-16 13:20</a>
@@ -10107,16 +6710,10 @@ https://b23.tv/BV1e54y1Q73W 练珠可以看这个，最重点的就是菲奥雷�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  言嘉  
 ##### 5032#       发表于 2020-6-16 13:33
-
 
 
  本帖最后由 言嘉 于 2020-6-16 13:40 编辑 
@@ -10132,28 +6729,16 @@ https://b23.tv/BV1e54y1Q73W 练珠可以看这个，最重点的就是菲奥雷�
 赞扎就一打工的，他就算用未来视看到了老板的阴谋，阿尔维斯顺手就可以把这种可能抹杀掉，默认不存在，（最大的可能性就是阿尔维斯顺手设置了权限把自己本体的情报给屏蔽了，就算有未来视，想看也看不了）这种权限上的降维打击赞扎根本一点办法都没有，讲白了就是老板要炒一个打工的打工的还能翻天不成？你跟老板讲道理，老板会跟你讲道理吗？
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5033#       发表于 2020-6-16 13:41
 
 
-
-
 不知道xb3会不会有大场面宇宙飞船乱战什么的..
 
 诺彭社好像很长时间没做这种了吧.
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10164,12 +6749,10 @@ https://b23.tv/BV1e54y1Q73W 练珠可以看这个，最重点的就是菲奥雷�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  魔王候补77号  
 ##### 5035#       发表于 2020-6-16 13:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825448&amp;ptid=1856998" target="_blank">言嘉 发表于 2020-6-16 13:33</a>
@@ -10183,16 +6766,10 @@ https://b23.tv/BV1e54y1Q73W 练珠可以看这个，最重点的就是菲奥雷�
 怎么赞扎这边反而被本质反客为主了？
 
 
-
-
-
-
-
 -----
 
 ####  电风扇  
 ##### 5036#       发表于 2020-6-16 13:51
-
 
 
 <blockquote>名守居 发表于 2020-6-16 10:20
@@ -10202,17 +6779,10 @@ https://b23.tv/BV1e54y1Q73W 练珠可以看这个，最重点的就是菲奥雷�
 如果你利奇已经和别人建立了好感度，就只有存档拼脸了
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5037#       发表于 2020-6-16 13:51
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202006/16/135146tz0jchtotr0zkkpl.jpg" referrerpolicy="no-referrer">
@@ -10225,21 +6795,10 @@ https://b23.tv/BV1e54y1Q73W 练珠可以看这个，最重点的就是菲奥雷�
 2020-6-16 13:51 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  言嘉  
 ##### 5038#       发表于 2020-6-16 14:04
-
 
 
  本帖最后由 言嘉 于 2020-6-16 14:12 编辑 
@@ -10256,16 +6815,10 @@ https://b23.tv/BV1e54y1Q73W 练珠可以看这个，最重点的就是菲奥雷�
 如果单纯站在1的角度上看，可能编剧当年就没想那么多（至少天之圣杯这个设定绝对是后面加的，灵魂本质这个倒是未必），只是先挖个坑再说（
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5039#       发表于 2020-6-16 14:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825671&amp;ptid=1856998" target="_blank">魔王候补77号 发表于 2020-6-16 13:50</a>
@@ -10277,32 +6830,19 @@ https://b23.tv/BV1e54y1Q73W 练珠可以看这个，最重点的就是菲奥雷�
 一个是在原有的世界改变一点规则,一个是在虚无中生成新的世界,当然是不一样的.
 
 
-
-
-
-
-
 -----
 
 ####  yth329  
 ##### 5040#       发表于 2020-6-16 14:19
 
 
-
-
 这作通关后最遗憾的就是没有操控主角团驾驶巨大机神与巨神对K的游戏环节
-
-
-
-
-
 
 
 -----
 
 ####  NameLess2501  
 ##### 5041#       发表于 2020-6-16 14:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47822766&amp;ptid=1856998" target="_blank">名守居 发表于 2020-6-16 10:20</a>
@@ -10315,16 +6855,10 @@ https://b23.tv/BV1e54y1Q73W 练珠可以看这个，最重点的就是菲奥雷�
 — from OPPO CPH1851, Android 8.1.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  ZyLintheMax  
 ##### 5042#       发表于 2020-6-16 14:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825671&amp;ptid=1856998" target="_blank">魔王候补77号 发表于 2020-6-16 13:50</a>
@@ -10335,25 +6869,13 @@ https://b23.tv/BV1e54y1Q73W 练珠可以看这个，最重点的就是菲奥雷�
 其实2代克劳斯也只是借助GATE的力量干涉世界而已，灵魂和理性是他造出来的道具权限没他高很正常，1代整个世界说白了其实就是GATE生成的电脑世界，本质作为处理器到了里面自然就承担起了整个世界的运算工作。
 
 
-
-
-
-
-
 -----
 
 ####  ckl80  
 ##### 5043#       发表于 2020-6-16 15:10
 
 
-
-
 一代世界的本质是什么是哪里提到的？想不起来2代有没有提过，光看一代更像是平行宇宙啥的吧，之前看贴吧还有说是虚数空间。
-
-
-
-
-
 
 
 -----
@@ -10362,15 +6884,9 @@ https://b23.tv/BV1e54y1Q73W 练珠可以看这个，最重点的就是菲奥雷�
 ##### 5044#       发表于 2020-6-16 15:46
 
 
-
  本帖最后由 塔奇克马 于 2020-6-16 15:56 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">链接未来好像不是链接xb1而是xbx,结尾有特雷西亚穿越多了裂缝中.
-
-
-
-
-
 
 
 -----
@@ -10379,22 +6895,15 @@ https://b23.tv/BV1e54y1Q73W 练珠可以看这个，最重点的就是菲奥雷�
 ##### 5045#       发表于 2020-6-16 15:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47827203&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-6-16 15:46</a>
 链接未来好像不是链接xb1而是xbx,结尾有特雷西亚穿越多了裂缝中.</blockquote>
 裂缝可以方便搞个三世同堂了，诺彭大仙人诚不欺我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  RUANHYC  
 ##### 5046#       发表于 2020-6-16 16:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825611&amp;ptid=1856998" target="_blank">亚瑟邓特 发表于 2020-6-16 13:46</a>
@@ -10406,16 +6915,10 @@ https://b23.tv/BV1e54y1Q73W 练珠可以看这个，最重点的就是菲奥雷�
 EH上我是没找到菲奥伦的本子，单张的图有一点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其他涩图软件可能有收录吧
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5047#       发表于 2020-6-16 16:22
-
 
 
  本帖最后由 塔奇克马 于 2020-6-16 16:27 编辑 
@@ -10428,16 +6931,10 @@ EH上我是没找到菲奥伦的本子，单张的图有一点<img src="https://
 (如果不是虚数理论的话.)
 
 
-
-
-
-
-
 -----
 
 ####  言嘉  
 ##### 5048#       发表于 2020-6-16 16:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47827635&amp;ptid=1856998" target="_blank">RUANHYC 发表于 2020-6-16 16:21</a>
@@ -10446,16 +6943,10 @@ EH上我是没找到菲奥伦的本子，单张的图有一点其他涩图软件
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">XB2的本子也不多啊，有人说雷总和齐格的BL本子多，但其实就一个人在画吧，本质小IP
 
 
-
-
-
-
-
 -----
 
 ####  モナド  
 ##### 5049#       发表于 2020-6-16 17:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47822766&amp;ptid=1856998" target="_blank">名守居 发表于 2020-6-16 10:20</a>
@@ -10466,16 +6957,10 @@ EH上我是没找到菲奥伦的本子，单张的图有一点其他涩图软件
 凑俩90+，用梅莉亚+菲奥伦，直接小火煮爆
 
 
-
-
-
-
-
 -----
 
 ####  モナド  
 ##### 5050#       发表于 2020-6-16 17:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826696&amp;ptid=1856998" target="_blank">ckl80 发表于 2020-6-16 15:10</a>
@@ -10491,16 +6976,10 @@ EH上我是没找到菲奥伦的本子，单张的图有一点其他涩图软件
 可是 本质随时空转移现象一同消失了
 
 
-
-
-
-
-
 -----
 
 ####  wildarm  
 ##### 5051#       发表于 2020-6-16 17:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47824176&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-16 11:54</a>
@@ -10509,16 +6988,10 @@ EH上我是没找到菲奥伦的本子，单张的图有一点其他涩图软件
 全清了，口袋宽松多了，第八章70多万，除了买技能书，钱好像没啥卵用
 
 
-
-
-
-
-
 -----
 
 ####  椎名mahuyo  
 ##### 5052#       发表于 2020-6-16 17:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47828511&amp;ptid=1856998" target="_blank">wildarm 发表于 2020-6-16 17:24</a>
@@ -10527,16 +7000,10 @@ EH上我是没找到菲奥伦的本子，单张的图有一点其他涩图软件
 复兴6号殖民地挺花钱的，另外后期买某人装备和机斩武器还挺贵的
 
 
-
-
-
-
-
 -----
 
 ####  wildarm  
 ##### 5053#       发表于 2020-6-16 17:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47828603&amp;ptid=1856998" target="_blank">椎名mahuyo 发表于 2020-6-16 17:31</a>
@@ -10545,26 +7012,15 @@ EH上我是没找到菲奥伦的本子，单张的图有一点其他涩图软件
 殖民6素材地图刷怪可以达成吧？武器刷大宝箱，难道有商店限定的？
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 5054#       发表于 2020-6-16 17:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47828686&amp;ptid=1856998" target="_blank">wildarm 发表于 2020-6-16 17:39</a>
 殖民6素材地图刷怪可以达成吧？武器刷大宝箱，难道有商店限定的？</blockquote>
 兄弟啊，复兴殖民地不止要材料，还要钱的……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10573,16 +7029,10 @@ EH上我是没找到菲奥伦的本子，单张的图有一点其他涩图软件
 ##### 5055#       发表于 2020-6-16 17:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47828697&amp;ptid=1856998" target="_blank">Leona_Akari 发表于 2020-6-16 17:40</a>
 
 兄弟啊，复兴殖民地不止要材料，还要钱的……</blockquote>
 没仔细看，还真要钱，不知不觉花出去了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10591,14 +7041,7 @@ EH上我是没找到菲奥伦的本子，单张的图有一点其他涩图软件
 ##### 5056#       发表于 2020-6-16 18:05
 
 
-
-
 有打完的老哥说一下Beyond the sky重新编曲了么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10607,16 +7050,10 @@ EH上我是没找到菲奥伦的本子，单张的图有一点其他涩图软件
 ##### 5057#       发表于 2020-6-16 18:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47828511&amp;ptid=1856998" target="_blank">wildarm 发表于 2020-6-16 17:24</a>
 
 全清了，口袋宽松多了，第八章70多万，除了买技能书，钱好像没啥卵用</blockquote>
 买全装备巨款，还有复兴，几十万不够花的。
-
-
-
-
-
 
 
 -----
@@ -10625,14 +7062,7 @@ EH上我是没找到菲奥伦的本子，单张的图有一点其他涩图软件
 ##### 5058#       发表于 2020-6-16 19:22
 
 
-
-
 一路狂奔到心脏，休闲模式也打不过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么看xb2简单多了
-
-
-
-
-
 
 
 -----
@@ -10641,14 +7071,7 @@ EH上我是没找到菲奥伦的本子，单张的图有一点其他涩图软件
 ##### 5059#       发表于 2020-6-16 19:36
 
 
-
-
 ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是真的强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10657,23 +7080,16 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5060#       发表于 2020-6-16 20:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47829271&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-06-16 18:40:09</a>
 买全装备巨款，还有复兴，几十万不够花的。</blockquote>灰烬洞穴有个地底湖，传送坐标左上角有一片岩石挡着进不了，需要什么条件炸开，导航指着能进去
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  zyxsqw  
 ##### 5061#       发表于 2020-6-16 20:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47830642&amp;ptid=1856998" target="_blank">wildarm 发表于 2020-6-16 20:51</a>
@@ -10685,32 +7101,19 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 后面主线剧情推进炸开的
 
 
-
-
-
-
-
 -----
 
 ####  mjzs07  
 ##### 5062#       发表于 2020-6-16 20:57
 
 
-
-
 啥都要钱，复兴还要问我拿钱，这代又没有打捞
-
-
-
-
-
 
 
 -----
 
 ####  隔壁老黄  
 ##### 5063#       发表于 2020-6-16 21:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47830642&amp;ptid=1856998" target="_blank">wildarm 发表于 2020-6-16 20:51</a>
@@ -10722,27 +7125,15 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 里面都是一堆一堆的90级以上主动攻击怪，甚至在近距离两只精英怪+三只自动反击96级杂兵配置，先把级数练上去再去吧，不然都不知道怎么死的
 
 
-
-
-
-
-
 -----
 
 ####  秋月孝三  
 ##### 5064#       发表于 2020-6-16 21:02
 
 
-
-
 嗼嗼水晶才是最缺的<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
 — from HUAWEI VIE-AL10, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -10751,14 +7142,7 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5065#       发表于 2020-6-16 21:05
 
 
-
-
 熔炼晶石那里，好感度不是啥大问题，力奇+寡妇组合能够最大程度压低晶石成型，当然你全是70+那肯定压不住了。所以后期基本就是淘纯度低的石头用力奇寡妇加工成试管，再让修尔克和莱恩精炼到300以上
-
-
-
-
-
 
 
 -----
@@ -10767,16 +7151,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5066#       发表于 2020-6-16 21:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47830722&amp;ptid=1856998" target="_blank">mjzs07 发表于 2020-6-16 20:57</a>
 
 啥都要钱，复兴还要问我拿钱，这代又没有打捞</blockquote>
 后期压根不缺钱，我现在都200多万了没处可用
-
-
-
-
-
 
 
 -----
@@ -10785,14 +7163,7 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5067#       发表于 2020-6-16 22:04
 
 
-
-
 17章后机神界精英怪掉的技能书是不是没救了？大仙人换12级技能书好像要通相连未来才开放？
-
-
-
-
-
 
 
 -----
@@ -10801,23 +7172,16 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5068#       发表于 2020-6-16 22:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47831491&amp;ptid=1856998" target="_blank">苍蓝之枪 发表于 2020-6-16 22:04</a>
 
 17章后机神界精英怪掉的技能书是不是没救了？大仙人换12级技能书好像要通相连未来才开放？ ...</blockquote>
 所有书都有好几个掉落点的，没有只在机神界掉的
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5069#       发表于 2020-6-16 22:37
-
 
 
  本帖最后由 塔奇克马 于 2020-6-16 22:49 编辑 
@@ -10833,25 +7197,13 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 恶戏都变成菜鸡了,骨灰都给它攘了.
 
 
-
-
-
-
-
 -----
 
 ####  Zhangsmallquan  
 ##### 5070#       发表于 2020-6-16 22:38
 
 
-
-
 嗼嗼水晶才缺+1，这玩意也太难刷了，一次几千，随便一个服装就两三万，听说技能书也是2w一本，这他妈7人*16技能得刷到何年何月
-
-
-
-
-
 
 
 -----
@@ -10860,16 +7212,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5071#       发表于 2020-6-16 22:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47831491&amp;ptid=1856998" target="_blank">苍蓝之枪 发表于 2020-6-16 22:04</a>
 
 17章后机神界精英怪掉的技能书是不是没救了？大仙人换12级技能书好像要通相连未来才开放？ ...</blockquote>
 普通怪也会掉, 不过要先刷出金箱子, 比精英怪刷起来麻烦点
-
-
-
-
-
 
 
 -----
@@ -10878,16 +7224,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5072#       发表于 2020-6-16 22:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47823701&amp;ptid=1856998" target="_blank">椎名mahuyo 发表于 2020-6-16 11:21</a>
 
 4个90几这种是真的蛋疼，选一两个有用的属性直接炼就行了，上200就好 不指望300 ...</blockquote>
 这种找两堆90+水晶，嗼嗼+机娘直接开炼就行了，运气好一半能上300
-
-
-
-
-
 
 
 -----
@@ -10896,14 +7236,7 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5073#       发表于 2020-6-16 23:43
 
 
-
-
 本篇70多小时终于通关了，除了复兴以及后期4天王等挑战没打，该清的都清了，个人打9.5分吧，0.5是扣在复兴上，太繁琐了，其他高清还有支线简化都很满意<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">，相连的未来进去看了一下，梅丽娅好啊，而且走的更舒服了
-
-
-
-
-
 
 
 -----
@@ -10912,15 +7245,9 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5074#       发表于 2020-6-16 23:43
 
 
-
  本帖最后由 kilkilo 于 2020-6-16 23:45 编辑 
 
 继续期待mono社新作<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10929,14 +7256,7 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5075#       发表于 2020-6-16 23:55
 
 
-
-
 游戏里好多天气限定讨伐任务是只能干等吗……………………调时间下雨打雷什么的也得看脸<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10945,16 +7265,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5076#       发表于 2020-6-16 23:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47832530&amp;ptid=1856998" target="_blank">kilkilo 发表于 2020-6-16 23:43</a>
 
 本篇70多小时终于通关了，除了复兴以及后期4天王等挑战没打，该清的都清了，个人打9.5分吧，0.5是扣在复兴 ...</blockquote>
 复兴直接刷挑战换其实是最效率的..特别有一个高级关卡十几秒最多就一把了，很快。
-
-
-
-
-
 
 
 -----
@@ -10963,14 +7277,7 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5077#       发表于 2020-6-17 00:01
 
 
-
-
 打到皇都了，虽然离结束还早，但我还是要来发表点感想。这个地图设计也过于牛逼了吧，离开新手村之后，大平原、磷光之地、原始森林、云海，这每个地图怎么都那么漂亮，以至于清那些无聊的支线的过程都因为风景过于漂亮而感到乐趣，不得不说mono真的是点了地图设计专精，能做出这样的地图的公司现在真是不多见了
-
-
-
-
-
 
 
 -----
@@ -10979,16 +7286,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5078#       发表于 2020-6-17 00:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47831909&amp;ptid=1856998" target="_blank">Zhangsmallquan 发表于 2020-6-16 22:38</a>
 
 嗼嗼水晶才缺+1，这玩意也太难刷了，一次几千，随便一个服装就两三万，听说技能书也是2w一本，这他妈7人*16 ...</blockquote>
 我刷完了，只有一个技巧，放空大脑……<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10997,14 +7298,7 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5079#       发表于 2020-6-17 01:35
 
 
-
-
 服了，到现在连携还是不稳，经常第三位就断了，这概率是有上限的吗，还是我好感度太低了？按公式好像至少得有1w好感才稳
-
-
-
-
-
 
 
 -----
@@ -11013,16 +7307,9 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5080#       发表于 2020-6-17 01:41
 
 
-
-
 刷水晶最快的就是学fumo的打法速刷80级无限制挑战吧，十几秒一轮，收益6400到12800（似乎是无伤奖励）
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -11031,16 +7318,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5081#       发表于 2020-6-17 02:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47833269&amp;ptid=1856998" target="_blank">ckl80 发表于 2020-6-17 01:35</a>
 
 服了，到现在连携还是不稳，经常第三位就断了，这概率是有上限的吗，还是我好感度太低了？按公式好像至少得 ...</blockquote>
 好感上限5000，这个公式要全部条件满足才刚好100%
-
-
-
-
-
 
 
 -----
@@ -11049,22 +7330,15 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5082#       发表于 2020-6-17 02:27
 
 
-
 <blockquote>モナド 发表于 2020-6-17 02:12
 好感上限5000，这个公式要全部条件满足才刚好100%</blockquote>
 那菲奥伦链接不了15%那个，然后第三到第四没qte加成，算下来只有60%概率，只能赌脸了
-
-
-
-
-
 
 
 -----
 
 ####  Arccueid  
 ##### 5083#       发表于 2020-6-17 02:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47833269&amp;ptid=1856998" target="_blank">ckl80 发表于 2020-6-17 01:35</a>
@@ -11075,32 +7349,19 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 不过性格都太贵了，基本上等全清精英或者二周目才链的起，链好后只要能每次都完美QTE那就是100%无限连携到所有技能打完了。
 
 
-
-
-
-
-
 -----
 
 ####  Booorunestud  
 ##### 5084#       发表于 2020-6-17 02:59
 
 
-
-
 原版我记得丹邦眩晕屁在要塞的下面就可以直接放？刚才打王都莫德雷德怎么蹭都找不到位置，有人有经验吗
-
-
-
-
-
 
 
 -----
 
 ####  Arccueid  
 ##### 5085#       发表于 2020-6-17 03:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47833519&amp;ptid=1856998" target="_blank">Booorunestud 发表于 2020-6-17 02:59</a>
@@ -11111,27 +7372,15 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 你要坦就只能背对来天雷了
 
 
-
-
-
-
-
 -----
 
 ####  Zhangsmallquan  
 ##### 5086#       发表于 2020-6-17 04:25
 
 
-
-
 草，连续两次在最终boss第二形态前报错闪退了，我要吐了，又不能存档，每次都得重打<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 有没有人遇到过这种情况，一调整完装备退出菜单就报错了，数字版
-
-
-
-
-
 
 
 -----
@@ -11140,14 +7389,7 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5087#       发表于 2020-6-17 05:45
 
 
-
-
 挺希望XB3能像XBX那样搞真开放世界+开高达的，再整点高科技的活，让我体验一下人上人的生活不想当下界文明了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11156,14 +7398,7 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5088#       发表于 2020-6-17 07:32
 
 
-
-
 皇都一共有几个有姓名的居民？
-
-
-
-
-
 
 
 -----
@@ -11172,23 +7407,16 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5089#       发表于 2020-6-17 07:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47830748&amp;ptid=1856998" target="_blank">隔壁老黄 发表于 2020-06-16 21:00:41</a>
 里面都是一堆一堆的90级以上主动攻击怪，甚至在近距离两只精英怪+三只自动反击96级杂兵配置，先把级数练 ...</blockquote>海恩塔皇墓，第二层地图，有个向下爬墙才能进入机关房间需要梅利亚才能通过，可是尽头墙上的机关开不了，求方法。还有只发现第二宝库室，第一在哪？
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 5090#       发表于 2020-6-17 07:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47833917&amp;ptid=1856998" target="_blank">wildarm 发表于 2020-6-17 07:34</a>
@@ -11199,25 +7427,13 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 王家宝物库记得是中间那一段会出机器人的路有缺口可以进去，看看哪个机器人待机的光柱后面有路
 
 
-
-
-
-
-
 -----
 
 ####  jbjack1215  
 ##### 5091#       发表于 2020-6-17 09:16
 
 
-
-
 梅利亞的天賦技能除了釋放元素球有沒有加快積累的辦法？我連結菲奧倫的造成傷害2%直接填滿天賦的技能，感覺完全沒用，好像DOT是無法觸發的
-
-
-
-
-
 
 
 -----
@@ -11226,14 +7442,7 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5092#       发表于 2020-6-17 09:18
 
 
-
-
 另外主控梅利亚，是不是意味着没有太好的办法能够快速积累队伍槽
-
-
-
-
-
 
 
 -----
@@ -11242,16 +7451,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5093#       发表于 2020-6-17 09:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47834701&amp;ptid=1856998" target="_blank">jbjack1215 发表于 2020-06-17 09:18:42</a>
 另外主控梅利亚，是不是意味着没有太好的办法能够快速积累队伍槽</blockquote>力奇:高兴嗼
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -11260,16 +7463,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5094#       发表于 2020-6-17 09:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47834682&amp;ptid=1856998" target="_blank">jbjack1215 发表于 2020-06-17 09:16:57</a>
 梅利亞的天賦技能除了釋放元素球有沒有加快積累的辦法？我連結菲奧倫的造成傷害2%直接填滿天賦的技能，感覺 ...</blockquote>荣光未来一择，以太队非常依赖突发qte获得队伍槽，至于突发qte的触发方法其中就有攻击miss跟攻击暴击，倒转中以太伤害更加是必定暴击，所以自己选择吧
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -11278,23 +7475,15 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5095#       发表于 2020-6-17 09:53
 
 
-
-
 主控梅里亚老吸引仇恨啥情况，是不是插个降仇恨的宝石会好点？
 
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0
-
-
-
-
-
 
 
 -----
 
 ####  lazycat233  
 ##### 5096#       发表于 2020-6-17 09:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47835112&amp;ptid=1856998" target="_blank">EdSheeran 发表于 2020-06-17 09:53:25</a>
@@ -11305,16 +7494,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Errey  
 ##### 5097#       发表于 2020-6-17 10:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47835112&amp;ptid=1856998" target="_blank">EdSheeran 发表于 2020-06-17 09:53:25</a>
@@ -11325,25 +7508,13 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  RUANHYC  
 ##### 5098#       发表于 2020-6-17 10:16
 
 
-
-
 幸好听了泥潭坛友的话先把C6复兴了，不然看过场守着一堆废墟确实尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11352,14 +7523,7 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5099#       发表于 2020-6-17 10:26
 
 
-
-
 菲奥伦性格怎么这么难练，正常流程下来再小刷了一下，其他人5个性格都满了，唯独菲奥伦还差一条线
-
-
-
-
-
 
 
 -----
@@ -11368,16 +7532,9 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5100#       发表于 2020-6-17 10:27
 
 
-
-
 话说每周目羁绊硬币最多拿多少......本来我以为只有参战人员的技能链接有效，原来是都有效的
 
 那硬币需求量就很大了，极端点可以所有格子填满？
-
-
-
-
-
 
 
 -----
@@ -11386,23 +7543,16 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5101#       发表于 2020-6-17 10:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47835487&amp;ptid=1856998" target="_blank">苍蓝之枪 发表于 2020-06-17 10:26:11</a>
 菲奥伦性格怎么这么难练，正常流程下来再小刷了一下，其他人5个性格都满了，唯独菲奥伦还差一条线 ...</blockquote>优先左边两条，开幕全能力强化跟狗粮线可以快速形成倒转连协体系，其他随便
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  wildarm  
 ##### 5102#       发表于 2020-6-17 10:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47834037&amp;ptid=1856998" target="_blank">笛普达克范太希 发表于 2020-6-17 07:59</a>
@@ -11413,16 +7563,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 机器人缺口那条路已开，尽头有精英怪。另一个地方就是我说爬墙下去，看到一个徽章墙，按键说机关不能开，用梅里亚也不行
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5103#       发表于 2020-6-17 10:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47835507&amp;ptid=1856998" target="_blank">苍蓝之枪 发表于 2020-06-17 10:27:42</a>
@@ -11433,16 +7577,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  BQlin  
 ##### 5104#       发表于 2020-6-17 11:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47835792&amp;ptid=1856998" target="_blank">wildarm 发表于 2020-6-17 10:54</a>
@@ -11451,16 +7589,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 那个门好像要很后期才能进去，不过可以靠穿墙bug提前卡进去
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 5105#       发表于 2020-6-17 11:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47835507&amp;ptid=1856998" target="_blank">苍蓝之枪 发表于 2020-6-17 10:27</a>
@@ -11471,16 +7603,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 一周目等级98枚+精英怪157枚，二周目开始精英能重复拿，想要999上限的话满打满算要六周目
 
 
-
-
-
-
-
 -----
 
 ####  苍蓝之枪  
 ##### 5106#       发表于 2020-6-17 11:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47835806&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-17 10:55</a>
@@ -11492,16 +7618,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 居然还差了20多只精英怪漏打
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 5107#       发表于 2020-6-17 11:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47835792&amp;ptid=1856998" target="_blank">wildarm 发表于 2020-6-17 10:54</a>
@@ -11511,17 +7631,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 [https://www.bilibili.com/video/BV1cz4y1R75q](https://www.bilibili.com/video/BV1cz4y1R75q)
 
 
-
-
-
-
-
 -----
 
 ####  xzhychris  
 ##### 5108#       发表于 2020-6-17 11:18
-
-
 
 
 打完本传了，先玩的2,  1之前wii上的画面太差了玩了个开头，谈点感想
@@ -11550,16 +7663,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 4.那两使徒（除了阿尔维斯）是boss造出来的最早的一批生命么？难道是我漏了下剧情吗
 
 
-
-
-
-
-
 -----
 
 ####  秋月孝三  
 ##### 5109#       发表于 2020-6-17 11:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47833289&amp;ptid=1856998" target="_blank">oylrcc 发表于 2020-6-17 01:41</a>
@@ -11571,33 +7678,19 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 — from HUAWEI VIE-AL10, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  燃烧的石头  
 ##### 5110#       发表于 2020-6-17 11:34
 
 
-
-
 一周目打了254个硬币，根本找不到自己漏了哪个精英怪，难受的要死
-
-
-
-
-
 
 
 -----
 
 ####  苍蓝之枪  
 ##### 5111#       发表于 2020-6-17 11:41
-
-
 
 
 反复刷精英怪不得不承认2代的墓碑形式真的是好太多了，不用看脸
@@ -11609,16 +7702,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 还有机神界限定那些后面都没法补了
 
 
-
-
-
-
-
 -----
 
 ####  Errey  
 ##### 5112#       发表于 2020-6-17 11:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47836321&amp;ptid=1856998" target="_blank">苍蓝之枪 发表于 2020-06-17 11:41:03</a>
@@ -11631,17 +7718,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  苍蓝之枪  
 ##### 5113#       发表于 2020-6-17 11:56
-
-
 
 
 我其实很讨厌那种剧情推到最后有些地方就去不了的设计
@@ -11649,16 +7729,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 但是结合剧情却又是需要，做游戏的这方面应该怎么取舍呢？
 
 
-
-
-
-
-
 -----
 
 ####  Errey  
 ##### 5114#       发表于 2020-6-17 12:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47836477&amp;ptid=1856998" target="_blank">苍蓝之枪 发表于 2020-06-17 11:56:17</a>
@@ -11669,16 +7743,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  ZyLintheMax  
 ##### 5115#       发表于 2020-6-17 12:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47836477&amp;ptid=1856998" target="_blank">苍蓝之枪 发表于 2020-6-17 11:56</a>
@@ -11688,16 +7756,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 通关后选章节可解
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5116#       发表于 2020-6-17 12:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47836477&amp;ptid=1856998" target="_blank">苍蓝之枪 发表于 2020-6-17 11:56</a>
@@ -11710,25 +7772,13 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 对,有这种设定可以大胆点现实世界场景可以全毁灭.黑深残也可以随便来了.
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 5117#       发表于 2020-6-17 12:26
 
 
-
-
 说起来我还以为巨神机神打起来之后巨神右臂的雪山地图也会变，结果一点变化都没有…
-
-
-
-
-
 
 
 -----
@@ -11737,16 +7787,9 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5118#       发表于 2020-6-17 12:29
 
 
-
-
 13章，幸好进来看了一下贴<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 是真的强迫症不友好游戏
-
-
-
-
-
 
 
 -----
@@ -11755,22 +7798,15 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5119#       发表于 2020-6-17 12:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47836828&amp;ptid=1856998" target="_blank">bird-lay 发表于 2020-6-17 12:26</a>
 说起来我还以为巨神机神打起来之后巨神右臂的雪山地图也会变，结果一点变化都没有… ...</blockquote>
 出口封了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  oylrcc  
 ##### 5120#       发表于 2020-6-17 12:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47836088&amp;ptid=1856998" target="_blank">秋月孝三 发表于 2020-06-17 11:19:23</a>
@@ -11781,16 +7817,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5121#       发表于 2020-6-17 12:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47836071&amp;ptid=1856998" target="_blank">xzhychris 发表于 2020-6-17 11:18</a>
@@ -11803,16 +7833,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 (为啥没有人画这种图呢?)
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 5122#       发表于 2020-6-17 12:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47836875&amp;ptid=1856998" target="_blank">suituski 发表于 2020-6-17 12:29</a>
@@ -11821,25 +7845,13 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 只封了去大剑溪谷的口，我还以为会震塌一些东西或者开新区域之类的
 
 
-
-
-
-
-
 -----
 
 ####  mjzs07  
 ##### 5123#       发表于 2020-6-17 13:09
 
 
-
-
 分享下村陽子的单曲《Time to Fight! (Bionis' Shoulder) 》: http://music.163.com/song/1452668027/?userid=108514594 (来自@网易云音乐)
-
-
-
-
-
 
 
 -----
@@ -11848,16 +7860,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5124#       发表于 2020-6-17 13:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47836875&amp;ptid=1856998" target="_blank">suituski 发表于 2020-6-17 12:29</a>
 
 出口封了</blockquote>
 非但封了还塞了只四天王吓你一跳
-
-
-
-
-
 
 
 -----
@@ -11866,15 +7872,9 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5125#       发表于 2020-6-17 14:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47834859&amp;ptid=1856998" target="_blank">Errey 发表于 2020-6-17 09:32</a>
 荣光未来一择，以太队非常依赖突发qte获得队伍槽，至于突发qte的触发方法其中就有攻击miss跟攻击暴击，倒转 ...</blockquote>
 感觉队伍槽也就这种办法了，那天赋技能槽有没有其他巧取的办法？
-
-
-
-
-
 
 
 -----
@@ -11883,14 +7883,7 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5126#       发表于 2020-6-17 14:08
 
 
-
-
 四天王打完了，本篇就到此为止了。不得不说跨级打最关键的还是满级铠+出未来视满槽的性格，可以大幅降低暴毙的概率，转倒没跟上也可以苟到团队槽满。打120的时候刚开始用的是修丹菲，结果连携经常接不上导致翻车，后来把菲奥伦换成莱恩稳了好多，菲奥伦不能链接15%实在是硬伤，而且ai天赋技难以控制，经常max了却没高输出的招，莱恩直接攒着来发剑刃驱动就行了。
-
-
-
-
-
 
 
 -----
@@ -11899,23 +7892,16 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5127#       发表于 2020-6-17 14:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47837821&amp;ptid=1856998" target="_blank">jbjack1215 发表于 2020-06-17 14:03:34</a>
 感觉队伍槽也就这种办法了，那天赋技能槽有没有其他巧取的办法？</blockquote>天赋加速up宝石，但越级情况同样没卵用，梅丽娅的元素发射总是伴随着风险的
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  jbjack1215  
 ##### 5128#       发表于 2020-6-17 14:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47837870&amp;ptid=1856998" target="_blank">ckl80 发表于 2020-6-17 14:08</a>
@@ -11928,16 +7914,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 问题也是那15％连携机率
 
 
-
-
-
-
-
 -----
 
 ####  ckl80  
 ##### 5129#       发表于 2020-6-17 14:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47837821&amp;ptid=1856998" target="_blank">jbjack1215 发表于 2020-6-17 14:03</a>
@@ -11946,16 +7926,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 只能先攒满然后开场射一发进元素爆发然后尽量保持超高士气尽量别掉回去。其实玩dot的话开场连携高倍率射一发基本都够毒死大部分精英怪了
 
 
-
-
-
-
-
 -----
 
 ####  jbjack1215  
 ##### 5130#       发表于 2020-6-17 15:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47837962&amp;ptid=1856998" target="_blank">ckl80 发表于 2020-6-17 14:15</a>
@@ -11963,16 +7937,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 我的元素爆发有时只能用一次，有时可以用两次，这是因为士气的关系？
 
 
-
-
-
-
-
 -----
 
 ####  椎名mahuyo  
 ##### 5131#       发表于 2020-6-17 15:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47838956&amp;ptid=1856998" target="_blank">jbjack1215 发表于 2020-6-17 15:30</a>
@@ -11983,31 +7951,19 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 所以链接菲奥娜元气爆发需要金币多，但是值得
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5132#       发表于 2020-6-17 15:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">海恩塔的墓地不是不让人进入吗?为啥有人知道望远镜配件在墓地里?
-
-
-
-
-
 
 
 -----
 
 ####  syz726  
 ##### 5133#       发表于 2020-6-17 15:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47836071&amp;ptid=1856998" target="_blank">xzhychris 发表于 2020-6-17 11:18</a>
@@ -12024,16 +7980,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 4.迪克森看样子应该是赞扎上个肉身，机身盟主好基友那个巨人的部下，然后向赞扎宣誓效忠了；罗兰个人推测应该是赞扎捏出来当祖传内鬼用的第一个鸟人。
 
 
-
-
-
-
-
 -----
 
 ####  jbjack1215  
 ##### 5134#       发表于 2020-6-17 16:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47839095&amp;ptid=1856998" target="_blank">椎名mahuyo 发表于 2020-6-17 15:40</a>
@@ -12047,16 +7997,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 有什么光环相关的连结被动值得一连吗
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5135#       发表于 2020-6-17 16:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47839635&amp;ptid=1856998" target="_blank">jbjack1215 发表于 2020-06-17 16:25:10</a>
@@ -12067,24 +8011,13 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5136#       发表于 2020-6-17 17:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">丹邦是上来就知道梅里亚喜欢修尔克了,剧情里好像完全没表现出来?
-
-
-
-
-
 
 
 -----
@@ -12093,14 +8026,7 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5137#       发表于 2020-6-17 17:29
 
 
-
-
 问个剧情上的问题，为什么阿尔维斯身为cpu之一，却被赞札认为他是自己的使徒，这段剧情有交代吗？
-
-
-
-
-
 
 
 -----
@@ -12109,16 +8035,10 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5138#       发表于 2020-6-17 17:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47840514&amp;ptid=1856998" target="_blank">jbjack1215 发表于 2020-6-17 17:29</a>
 
 问个剧情上的问题，为什么阿尔维斯身为cpu之一，却被赞札认为他是自己的使徒，这段剧情有交代吗？ ...</blockquote>
 阿尔维斯能影响赞扎的未来视，假装自己是个有点预知能力的荷姆斯投奔赞扎大概就行了
-
-
-
-
-
 
 
 -----
@@ -12127,22 +8047,15 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5139#       发表于 2020-6-17 17:40
 
 
-
 <blockquote>jbjack1215 发表于 2020-6-17 17:29
 问个剧情上的问题，为什么阿尔维斯身为cpu之一，却被赞札认为他是自己的使徒，这段剧情有交代吗？ ...</blockquote>
 没有，他作为cpu，要骗赞扎有的是办法，毕竟连篡改未来视都能做到
-
-
-
-
-
 
 
 -----
 
 ####  Errey  
 ##### 5140#       发表于 2020-6-17 17:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47839635&amp;ptid=1856998" target="_blank">jbjack1215 发表于 2020-06-17 16:25:10</a>
@@ -12153,26 +8066,15 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  jbjack1215  
 ##### 5141#       发表于 2020-6-17 18:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47840742&amp;ptid=1856998" target="_blank">Errey 发表于 2020-6-17 17:49</a>
 士气最高轮不到你说进不进，主要看怪给不给你未来视；梅丽娅考的是各种技能的利用率，算是整个游戏设计得最 ...</blockquote>
 我现在进超高士气都是靠菲奥伦的元气大爆发，只要开局150士气，再使用天赋技能就能从高士气跃进超高士气，其实像是莱恩、梅利亚都很容易进超高士气，只是梅利亚的问题是得留一个武器镶嵌空位给拔刀士气宝石
-
-
-
-
-
 
 
 -----
@@ -12181,22 +8083,15 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5142#       发表于 2020-6-17 18:20
 
 
-
 <blockquote>jbjack1215 发表于 2020-6-17 18:07
 我现在进超高士气都是靠菲奥伦的元气大爆发，只要开局150士气，再使用天赋技能就能从高士气跃进超高士气 ...</blockquote>
 拔刀士气可以装防具上啊
-
-
-
-
-
 
 
 -----
 
 ####  名守居  
 ##### 5143#       发表于 2020-6-17 18:26
-
 
 
  本帖最后由 名守居 于 2020-6-17 18:28 编辑 
@@ -12210,10 +8105,6 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 下载附件
 
 2020-6-17 18:23 上传
-
-
-
-
 
 
 找到个地方，一次10来只，可惜要17章之后才会有怪
@@ -12232,10 +8123,6 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 2020-6-17 18:23 上传
 
 
-
-
-
-
 因为是听力怪，所以只要等级低到会被自动索敌带上25%移动速度只管在外圈跑就完事了
 
 蛋会路过会自动孵化，所以也不用管，继续绕着外圈跑
@@ -12252,15 +8139,7 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 2020-6-17 18:23 上传
 
 
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">爽的一批，不知道还有哪里会有这么多怪
-
-
-
-
-
 
 
 -----
@@ -12269,21 +8148,13 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 ##### 5144#       发表于 2020-6-17 18:33
 
 
-
-
 元素爆发感觉释放时间太长了……我现在卸了把位置空出来装梅利亚飞踢<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  笛普达克范太希  
 ##### 5145#       发表于 2020-6-17 18:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47841197&amp;ptid=1856998" target="_blank">名守居 发表于 2020-6-17 18:26</a>
@@ -12296,26 +8167,15 @@ ucg刚出的黄金眼，介绍xbde也直接剧透糊脸，和ign一个样，是�
 AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 
 
-
-
-
-
-
 -----
 
 ####  Tackstone  
 ##### 5146#       发表于 2020-6-17 19:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47840742&amp;ptid=1856998" target="_blank">Errey 发表于 2020-6-17 17:49</a>
 士气最高轮不到你说进不进，主要看怪给不给你未来视；梅丽娅考的是各种技能的利用率，算是整个游戏设计得最 ...</blockquote>
 梅丽雅有元气大爆发最高士气是稳定的，毕竟天赋技能随便放。
-
-
-
-
-
 
 
 -----
@@ -12324,22 +8184,15 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5147#       发表于 2020-6-17 19:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47841124&amp;ptid=1856998" target="_blank">ckl80 发表于 2020-6-17 18:20</a>
 拔刀士气可以装防具上啊</blockquote>
 梅丽雅武器上没什么好的宝石装的吧。
-
-
-
-
-
 
 
 -----
 
 ####  jbjack1215  
 ##### 5148#       发表于 2020-6-17 19:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47841670&amp;ptid=1856998" target="_blank">Tackstone 发表于 2020-6-17 19:02</a>
@@ -12349,25 +8202,13 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 镶嵌位还是不够用
 
 
-
-
-
-
-
 -----
 
 ####  Ditfran  
 ##### 5149#       发表于 2020-6-17 19:18
 
 
-
-
 等级的牵绊币是怎么算的，全员升到99后才会给你第98个硬币吗？今天下午把所有地图的boss都舔了一遍（C6的支线还没做完），才247个，现在力奇98级，其他人都是95左右
-
-
-
-
-
 
 
 -----
@@ -12376,14 +8217,7 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5150#       发表于 2020-6-17 19:24
 
 
-
-
 每升一级一个，每个精英一个，一共似乎是98+157=255个
-
-
-
-
-
 
 
 -----
@@ -12392,14 +8226,7 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5151#       发表于 2020-6-17 19:49
 
 
-
-
 谢谢，搞懂了，原来每个人都是单独算的，力奇比其他人多出几个
-
-
-
-
-
 
 
 -----
@@ -12408,16 +8235,9 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5152#       发表于 2020-6-17 19:51
 
 
-
-
 这ta模式外面就是云海吧，还不让我跳下去<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 — from HUAWEI VIE-AL10, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -12426,14 +8246,7 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5153#       发表于 2020-6-17 20:12
 
 
-
-
 菲奥伦给的限制真是太多了，又不能连15连携率也不能连无心领悟，虽然很喜欢她，但怎么玩都差口气
-
-
-
-
-
 
 
 -----
@@ -12442,14 +8255,7 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5154#       发表于 2020-6-17 20:20
 
 
-
-
 我打四天王的时候梅莉亚连接修尔克的未来视时满天赋，光环状态就没接触过
-
-
-
-
-
 
 
 -----
@@ -12458,16 +8264,10 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5155#       发表于 2020-6-17 20:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47839106&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-6-17 15:40</a>
 
 海恩塔的墓地不是不让人进入吗?为啥有人知道望远镜配件在墓地里?</blockquote>
 那个墓地就最后那道DNA验证里面才是真的墓，其他都是造着玩的，甚至还给盗墓的设计一大堆试炼
-
-
-
-
-
 
 
 -----
@@ -12476,14 +8276,7 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5156#       发表于 2020-6-17 20:57
 
 
-
-
 晶石熔炼有点不会搞有没有人讲解一下或者哪里有攻略看看
-
-
-
-
-
 
 
 -----
@@ -12492,14 +8285,7 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5157#       发表于 2020-6-17 21:48
 
 
-
-
 晶矿的刷新机制是啥呀？查到有说是等现实时间几分钟，但是等了几分钟没刷呀，游戏内传送调时间都试了也没用
-
-
-
-
-
 
 
 -----
@@ -12508,19 +8294,14 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5158#       发表于 2020-6-17 21:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47843700&amp;ptid=1856998" target="_blank">空虚的祈祷 发表于 2020-6-17 21:48</a>
 晶矿的刷新机制是啥呀？查到有说是等现实时间几分钟，但是等了几分钟没刷呀，游戏内传送调时间都试了也没用 ...</blockquote>
 确实是现实时间几分钟，或者说是游戏内时间自然的度过几个小时。游戏里你到处跑也行，直接站在矿面前等也行。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -12530,12 +8311,7 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 | 空虚的祈祷| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -12544,16 +8320,10 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5159#       发表于 2020-6-17 22:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47843769&amp;ptid=1856998" target="_blank">zyxsqw 发表于 2020-6-17 21:55</a>
 
 确实是现实时间几分钟，或者说是游戏内时间自然的度过几个小时。游戏里你到处跑也行，直接站在矿面前等也 ...</blockquote>
 啊，明白了，之前是返回桌面去等了，原来是要在游戏内等几分钟，多谢了
-
-
-
-
-
 
 
 -----
@@ -12562,14 +8332,7 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5160#       发表于 2020-6-17 22:19
 
 
-
-
 突然想起一个问题，虽然实际应该是没关系的，但为什么克劳乌斯会跟修尔克长得一样<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12578,23 +8341,15 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5161#       发表于 2020-6-17 23:22
 
 
-
-
 开始相连的未来了，这地图和音乐真美啊，牵绊对话也有配音了，宝石直接出都蛮舒服的。
 
 不过战斗系统太无聊了，系统删减，新角色还是纯换皮，太没劲了。没了未来视和连锁感觉非常被动。不知道剧情如何，目前跑图看风景看演出体验还不错
-
-
-
-
-
 
 
 -----
 
 ####  塔奇克马  
 ##### 5162#       发表于 2020-6-17 23:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47844027&amp;ptid=1856998" target="_blank">ckl80 发表于 2020-6-17 22:19</a>
@@ -12607,17 +8362,10 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 之后一个人消失了
 
 
-
-
-
-
-
 -----
 
 ####  Zhangsmallquan  
 ##### 5163#       发表于 2020-6-18 05:02
-
-
 
 
 这后传的嗼嗼探险队也太烦了，一个个站得离传送点超远，还给各种更远的往返跑路打怪捡东西任务<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">加上2代糟粕版的不分层小地图，这体验太屎了
@@ -12625,16 +8373,10 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 没他们这本来就**的战斗更没法打，准备开休闲模式看剧情了，有点遭不住
 
 
-
-
-
-
-
 -----
 
 ####  Zhangsmallquan  
 ##### 5164#       发表于 2020-6-18 05:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47845877&amp;ptid=1856998" target="_blank">Zhangsmallquan 发表于 2020-6-18 05:02</a>
@@ -12647,26 +8389,15 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 这都啥玩意啊，我对XBDE好印象要被消磨光了
 
 
-
-
-
-
-
 -----
 
 ####  帕林马哲理  
 ##### 5165#       发表于 2020-6-18 07:29
 
 
-
 <img src="https://p.sda1.dev/0/ccb833b1957d308c731aeb9f6d8d29d5/IMG_C7623184A1F69D71911DC0C78B44413D.jpeg" referrerpolicy="no-referrer">
 
 不知道为什么感觉机器菲奥伦特别的性感<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">明明也有不少这类设定的角色，就只有菲奥伦特别色。
-
-
-
-
-
 
 
 -----
@@ -12675,15 +8406,9 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5166#       发表于 2020-6-18 07:54
 
 
-
 <blockquote>Zhangsmallquan 发表于 2020-6-18 05:02
 这后传的嗼嗼探险队也太烦了，一个个站得离传送点超远，还给各种更远的往返跑路打怪捡东西任务加上2 ...</blockquote>
 凑3色可以连携放强制昏厥就行了，基本是用来救急躲大招
-
-
-
-
-
 
 
 -----
@@ -12692,14 +8417,7 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5167#       发表于 2020-6-18 08:26
 
 
-
-
 高利贷任务那男的是真舔狗，想救他都就不了，还有好几个二选一的任务因为能看到未来也好纠结
-
-
-
-
-
 
 
 -----
@@ -12708,14 +8426,7 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5168#       发表于 2020-6-18 08:49
 
 
-
-
 一周目通关了，给力。可惜渣渣太菜，还没路边的恐龙有挑战性<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12724,15 +8435,9 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5169#       发表于 2020-6-18 09:02
 
 
-
 <blockquote>ckl80 发表于 2020-6-17 22:19
 突然想起一个问题，虽然实际应该是没关系的，但为什么克劳乌斯会跟修尔克长得一样 ...</blockquote>
 应该说是死去的修尔克的肉体被作为赞扎的容器之后外貌开始向克劳乌斯靠拢吧
-
-
-
-
-
 
 
 -----
@@ -12741,14 +8446,7 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5170#       发表于 2020-6-18 09:26
 
 
-
-
 好哥哥们有加点推荐吗？
-
-
-
-
-
 
 
 -----
@@ -12757,13 +8455,7 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5171#       发表于 2020-6-18 10:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">梅希望是全队的妈，我爱她
-
-
-
-
-
 
 
 -----
@@ -12772,20 +8464,13 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5172#       发表于 2020-6-18 10:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">一开始直升50级太爽了一路砍瓜切菜，结果到挑战模式吃瘪了
-
-
-
-
-
 
 
 -----
 
 ####  秋月孝三  
 ##### 5173#       发表于 2020-6-18 11:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47844027&amp;ptid=1856998" target="_blank">ckl80 发表于 2020-6-17 22:19</a>
@@ -12795,16 +8480,10 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 — from HUAWEI VIE-AL10, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  superlink  
 ##### 5174#       发表于 2020-6-18 11:11
-
 
 
 <blockquote>mjzs07 发表于 2020-6-18 08:26
@@ -12812,16 +8491,10 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 老家的高利贷任务？我记得那男的是记着，后面反杀勒索王
 
 
-
-
-
-
-
 -----
 
 ####  faust123  
 ##### 5175#       发表于 2020-6-18 11:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47846093&amp;ptid=1856998" target="_blank">帕林马哲理 发表于 2020-6-18 07:29</a>
@@ -12832,27 +8505,15 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 青梅竹马这是皮都扒了
 
 
-
-
-
-
-
 -----
 
 ####  苍蓝之枪  
 ##### 5176#       发表于 2020-6-18 11:31
 
 
-
-
 感觉急需一份中文的道具/宝石入手对应方式/怪物表
 
 想刷的东西多，但是都一时间不知道去刷哪个
-
-
-
-
-
 
 
 -----
@@ -12861,14 +8522,7 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5177#       发表于 2020-6-18 11:56
 
 
-
-
 最后一个挑战的限制模式思路是什么，战斗比较胶着，打了几次都是B
-
-
-
-
-
 
 
 -----
@@ -12877,16 +8531,9 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5178#       发表于 2020-6-18 12:11
 
 
-
-
 最后一关限制不是随便砍都能S么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 — from HUAWEI VIE-AL10, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -12895,23 +8542,15 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5179#       发表于 2020-6-18 12:31
 
 
-
 <blockquote>superlink 发表于 2020-6-18 11:11
 老家的高利贷任务？我记得那男的是记着，后面反杀勒索王</blockquote>
 女人合谋高利贷坑钱，向男人揭发后反而变成亲密的恋人
-
-
-
-
-
 
 
 -----
 
 ####  塔奇克马  
 ##### 5180#       发表于 2020-6-18 13:19
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202006/18/131838clim496g4q4uiz4g.jpg" referrerpolicy="no-referrer">
@@ -12924,17 +8563,7 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 2020-6-18 13:18 上传
 
 
-
-
-
 啊?!
-
-
-
-
-
-
-
 
 
 -----
@@ -12943,15 +8572,9 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5181#       发表于 2020-6-18 16:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">请问下那个自带加速的荣光护臂哪里掉的
 
 明明记得以前看过资料 再找找不到了
-
-
-
-
-
 
 
 -----
@@ -12960,23 +8583,16 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5182#       发表于 2020-6-18 17:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47849284&amp;ptid=1856998" target="_blank">mjzs07 发表于 2020-6-18 12:31</a>
 
 女人合谋高利贷坑钱，向男人揭发后反而变成亲密的恋人</blockquote>
 但是向男的揭发之后勒索王就会从牵绊图上消失…
 
 
-
-
-
-
-
 -----
 
 ####  秋月孝三  
 ##### 5183#       发表于 2020-6-18 17:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47852083&amp;ptid=1856998" target="_blank">脱出型Q娃 发表于 2020-6-18 16:19</a>
@@ -12987,13 +8603,9 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 四天王+三大贤者之顶上面那群杂鱼都掉（杂鱼金箱限定）
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -13003,19 +8615,13 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 | 脱出型Q娃| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  fallanger  
 ##### 5184#       发表于 2020-6-18 19:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47836071&amp;ptid=1856998" target="_blank">xzhychris 发表于 2020-6-17 11:18</a>
@@ -13032,26 +8638,15 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 4、只能说猜测是的
 
 
-
-
-
-
-
 -----
 
 ####  朱自清  
 ##### 5185#       发表于 2020-6-18 19:28
 
 
-
  本帖最后由 朱自清 于 2020-6-18 19:30 编辑 
 
 赞扎变身后怎么打啊，77级，主控卡露娜，招出小怪阶段稳定崩 盘，感觉已经很完美了，还是打不过，又不能去外面练级，难道要读档吗，崩溃啊！！
-
-
-
-
-
 
 
 -----
@@ -13060,14 +8655,7 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5186#       发表于 2020-6-18 19:28
 
 
-
-
 风怒。       
-
-
-
-
-
 
 
 -----
@@ -13076,16 +8664,10 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5187#       发表于 2020-6-18 19:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47854297&amp;ptid=1856998" target="_blank">朱自清 发表于 2020-6-18 19:28</a>
 
 赞扎变身后怎么打啊，77级，主控卡露娜，招出小怪阶段稳定崩 盘，感觉已经很完美了，还是打不过，又不能去 ...</blockquote>
 休闲模式了解一下
-
-
-
-
-
 
 
 -----
@@ -13094,16 +8676,10 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5188#       发表于 2020-6-18 19:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47854337&amp;ptid=1856998" target="_blank">fallanger 发表于 2020-6-18 19:31</a>
 
 休闲模式了解一下</blockquote>
 还没开过休闲模式，不像破处啊
-
-
-
-
-
 
 
 -----
@@ -13112,15 +8688,9 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5189#       发表于 2020-6-18 19:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47854337&amp;ptid=1856998" target="_blank">fallanger 发表于 2020-6-18 19:31</a>
 休闲模式了解一下</blockquote>
 刚刚通关，一路刷宝石，杀精英，刷sp，等级已经99了，特地降到80左右去杀的。在成型的菜刀队面前真的不经打，进连携连锁max下，随便扔两个技能就秒了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13129,21 +8699,13 @@ AP获取量跟怪物等级挂钩的，这边就是最效率的刷ap场所
 ##### 5190#       发表于 2020-6-18 19:50
 
 
-
-
 回不去的地点，做收集品手册的话只能交换了吗（收集品都有介绍好评）
-
-
-
-
-
 
 
 -----
 
 ####  yyf1940  
 ##### 5191#       发表于 2020-6-18 19:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47854297&amp;ptid=1856998" target="_blank">朱自清 发表于 2020-6-18 19:28</a>
@@ -13155,16 +8717,10 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 你现在没法练级的情况下，估计只能读档了…<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  隔壁老黄  
 ##### 5192#       发表于 2020-6-18 19:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47854495&amp;ptid=1856998" target="_blank">3D烧 发表于 2020-6-18 19:50</a>
@@ -13173,16 +8729,10 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 是的
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5193#       发表于 2020-6-18 20:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47854297&amp;ptid=1856998" target="_blank">朱自清 发表于 2020-6-18 19:28</a>
@@ -13191,25 +8741,13 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 不管以太队还是菜刀队都是暴力直接带走的啊..有小怪就是给你打连锁的。
 
 
-
-
-
-
-
 -----
 
 ####  3D烧  
 ##### 5194#       发表于 2020-6-18 20:31
 
 
-
-
 打完xbde，更想知道当时做xb2的时候有多赶，e3的说明图鉴都没了，ui上的各种小细节也没，比如零钱的小图标之类的，甚至血条都不会变色的
-
-
-
-
-
 
 
 -----
@@ -13218,21 +8756,13 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 ##### 5195#       发表于 2020-6-18 20:47
 
 
-
-
 6号殖民地这个诺彭里克贱不贱呐<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">不喜欢和漂亮大姐姐住在一起说什么自己的家是天空大地是自由，帮他被赶出家门之后又说自己比起自由更喜欢被人保护的安全感，太贱了啊！不知道给鸟人大姐告密会是什么发展
-
-
-
-
-
 
 
 -----
 
 ####  Arccueid  
 ##### 5196#       发表于 2020-6-18 21:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47855117&amp;ptid=1856998" target="_blank">黒濑黒江 发表于 2020-6-18 20:47</a>
@@ -13243,25 +8773,13 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 不过大姐感觉是当宠物养的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  萨拉丁  
 ##### 5197#       发表于 2020-6-18 21:54
 
 
-
-
 问下限定版的画册值不值多花这点钱，当初原作OST已经买了，所以OST不是我购入限定版的动力。
-
-
-
-
-
 
 
 -----
@@ -13270,16 +8788,10 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 ##### 5198#       发表于 2020-6-18 22:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47854297&amp;ptid=1856998" target="_blank">朱自清 发表于 2020-6-18 19:28</a>
 
 赞扎变身后怎么打啊，77级，主控卡露娜，招出小怪阶段稳定崩 盘，感觉已经很完美了，还是打不过，又不能去 ...</blockquote>
 奶不强啊，换个人吧，可以带，但是不要主控啊
-
-
-
-
-
 
 
 -----
@@ -13288,15 +8800,9 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 ##### 5199#       发表于 2020-6-18 23:13
 
 
-
 <blockquote>黒濑黒江 发表于 2020-6-18 20:47
 6号殖民地这个诺彭里克贱不贱呐不喜欢和漂亮大姐姐住在一起说什么自己的家是天空大地是自由，帮他被 ...</blockquote>
 诺朋不是大部分巨婴巨魔么
-
-
-
-
-
 
 
 -----
@@ -13305,15 +8811,9 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 ##### 5200#       发表于 2020-6-18 23:14
 
 
-
 <blockquote>3D烧 发表于 2020-6-18 20:31
 打完xbde，更想知道当时做xb2的时候有多赶，e3的说明图鉴都没了，ui上的各种小细节也没，比如零钱的小图标 ...</blockquote>
 我前几天回去打开xb2看了下，那个地图ui应该是外包无误，如果不是外包，那做这个的哥们估计滚去做边角料了。易用性差太多了
-
-
-
-
-
 
 
 -----
@@ -13322,15 +8822,9 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 ##### 5201#       发表于 2020-6-18 23:25
 
 
-
 <blockquote>superlink 发表于 2020-6-18 23:14
 我前几天回去打开xb2看了下，那个地图ui应该是外包无误，如果不是外包，那做这个的哥们估计滚去做边角料 ...</blockquote>
 至少xbde证明了这块能做到没有问题，我现在就想看看xb3会是啥样的作品，这次不赶工期，人手够，资金够，ns用来开发也练的差不多了。
-
-
-
-
-
 
 
 -----
@@ -13339,16 +8833,10 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 ##### 5202#       发表于 2020-6-18 23:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47856723&amp;ptid=1856998" target="_blank">3D烧 发表于 2020-6-18 23:25</a>
 
 至少xbde证明了这块能做到没有问题，我现在就想看看xb3会是啥样的作品，这次不赶工期，人手够，资金够，n ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不可能不赶工~别做梦了.
-
-
-
-
-
 
 
 -----
@@ -13357,23 +8845,16 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 ##### 5203#       发表于 2020-6-18 23:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47856865&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-6-18 23:37</a>
 
 不可能不赶工~别做梦了.</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">应该是不会赶了
 
 
-
-
-
-
-
 -----
 
 ####  NameLess2501  
 ##### 5204#       发表于 2020-6-19 00:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47848420&amp;ptid=1856998" target="_blank">faust123 发表于 2020-6-18 11:26</a>
@@ -13385,16 +8866,10 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 — from OPPO CPH1851, Android 8.1.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  モナド  
 ##### 5205#       发表于 2020-6-19 00:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47856614&amp;ptid=1856998" target="_blank">superlink 发表于 2020-6-18 23:14</a>
@@ -13405,25 +8880,13 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 2的场景相比1要立体很多，地图应该是偷懒直接用场景模型投影出来的，解包素材里有一堆地图的图片半成品
 
 
-
-
-
-
-
 -----
 
 ####  mjzs07  
 ##### 5206#       发表于 2020-6-19 00:58
 
 
-
-
 鸟人皇宫的守卫还分两班倒的，牛逼
-
-
-
-
-
 
 
 -----
@@ -13432,13 +8895,7 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 ##### 5207#       发表于 2020-6-19 01:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">皇宫这群守卫的人际关系是最坑的。当年买了设定集翻开一看，直接回了40小时档
-
-
-
-
-
 
 
 -----
@@ -13447,21 +8904,13 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 ##### 5208#       发表于 2020-6-19 01:12
 
 
-
-
 以后如果能把地图都整成botw城堡和四神兽的那种立体地图就好了，平面地图还是不适合这种地形复杂分多层的场景。
-
-
-
-
-
 
 
 -----
 
 ####  隔壁老黄  
 ##### 5209#       发表于 2020-6-19 01:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47855117&amp;ptid=1856998" target="_blank">黒濑黒江 发表于 2020-6-18 20:47</a>
@@ -13473,16 +8922,10 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 —— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  隔壁老黄  
 ##### 5210#       发表于 2020-6-19 01:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47857627&amp;ptid=1856998" target="_blank">酱油毛玉 发表于 2020-6-19 01:12</a>
@@ -13492,16 +8935,10 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 —— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  翼宿一  
 ##### 5211#       发表于 2020-6-19 01:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47855779&amp;ptid=1856998" target="_blank">萨拉丁 发表于 2020-6-18 21:54</a>
@@ -13514,16 +8951,10 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 比起还没放过的原声，那个 CD 铁盒倒是做工挺好的……而且这个画册即便内容不太丰富，封面也是值回票价的，封面的机神和封底的巨神都画得很棒。
 
 
-
-
-
-
-
 -----
 
 ####  翼宿一  
 ##### 5212#       发表于 2020-6-19 01:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47854297&amp;ptid=1856998" target="_blank">朱自清 发表于 2020-6-18 19:28</a>
@@ -13534,16 +8965,10 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 最终阶段反而没什么压力，轮番输出压着就过了……小怪彻底没有了存在感。
 
 
-
-
-
-
-
 -----
 
 ####  大喇叭花田  
 ##### 5213#       发表于 2020-6-19 01:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47855779&amp;ptid=1856998" target="_blank">萨拉丁 发表于 2020-6-18 21:54</a>
@@ -13552,26 +8977,15 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 限定版画册加盒子加CD不要游戏的话，咸鱼300就能收到，有什么值不值？我都买了两份了。
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5214#       发表于 2020-6-19 02:09
 
 
-
 <img src="https://p.sda1.dev/0/d4facf9dd7ae4e314c2b52e75e805e74/EaM9Y6iWoAUJ31E.jpeg" referrerpolicy="no-referrer">有梅丽娅手机壁纸吗，这张太往下了
 
 —— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -13580,22 +8994,15 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 ##### 5215#       发表于 2020-6-19 02:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47854297&amp;ptid=1856998" target="_blank">朱自清 发表于 2020-6-18 19:28</a>
 赞扎变身后怎么打啊，77级，主控卡露娜，招出小怪阶段稳定崩 盘，感觉已经很完美了，还是打不过，又不能去 ...</blockquote>
 菜刀队，手控丹邦，开阳炎，千刃转转转，小怪来了很快就能赚满槽然后进连携，连携第一下也是千刃转转乐，槽又涨了大半，顺利连到第四下丹邦开天赋技打爆发。
-
-
-
-
-
 
 
 -----
 
 ####  jbjack1215  
 ##### 5216#       发表于 2020-6-19 11:17
-
 
 
  本帖最后由 jbjack1215 于 2020-6-19 11:18 编辑 
@@ -13611,16 +9018,10 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 补充一下，打114经常被抵抗dot，如果命中拉高能避免吗
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5217#       发表于 2020-6-19 11:24
-
 
 
  本帖最后由 塔奇克马 于 2020-6-19 11:25 编辑 
@@ -13636,16 +9037,10 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 我记得就这几个吧.敏捷和以太命中无关
 
 
-
-
-
-
-
 -----
 
 ####  AincradWanderer  
 ##### 5218#       发表于 2020-6-19 20:13
-
 
 
 <img src="https://s1.ax1x.com/2020/06/19/NMCGcV.png" referrerpolicy="no-referrer">
@@ -13654,16 +9049,10 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 这个傻**NPC到底在什么时间点出现在什么地方，我现在14章，6号殖民地复兴等级5443，集中清理支线时发现他一人关系到两个支线，找半天又找不到，就很烦<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5219#       发表于 2020-6-19 20:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47867356&amp;ptid=1856998" target="_blank">AincradWanderer 发表于 2020-6-19 20:13</a>
@@ -13672,16 +9061,10 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 这个NPC需要 失踪的同居者         梅奇希里亚        殖民地6 复兴本部        7AM~3PM         跟着指引        "·8章以后 ·梅奇希里亚（皇都2L商店边 10AM，住宅lv2） 移住殖民地6后 ·殖民地6特殊复兴LV2以上"        4500        2000        锁定抵抗4        100 复制代码
 
 
-
-
-
-
-
 -----
 
 ####  绿冰  
 ##### 5220#       发表于 2020-6-19 20:16
-
 
 
 <blockquote>朱自清 发表于 2020-6-18 19:28
@@ -13689,16 +9072,10 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 你有给卡露娜装散热片吗
 
 
-
-
-
-
-
 -----
 
 ####  AincradWanderer  
 ##### 5221#       发表于 2020-6-19 20:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47867383&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-6-19 20:15</a>
@@ -13710,24 +9087,13 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 总之谢谢啦
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5222#       发表于 2020-6-19 20:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">刷新下,翻页bug又看不到帖子了
-
-
-
-
-
 
 
 -----
@@ -13736,14 +9102,7 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 ##### 5223#       发表于 2020-6-19 20:32
 
 
-
-
 外传这鸡肋连携也太无语了，直接三个qte，对于我这种qte苦手来说太痛苦了，而且没有高连锁的情况下梅丽娅的毒直接废了，全程只能受克当dps
-
-
-
-
-
 
 
 -----
@@ -13752,15 +9111,8 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 ##### 5224#       发表于 2020-6-19 23:55
 
 
-
-
 哈哈哈哈
 <img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gfy0uoe8zrj20hx0ap4de.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13769,21 +9121,13 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 ##### 5225#       发表于 2020-6-20 00:46
 
 
-
-
 是不是我错觉......[反击]这曲子里是不是有[与敌人对峙]的旋律......<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  绿冰  
 ##### 5226#       发表于 2020-6-20 00:50
-
 
 
 <blockquote>yyf1940 发表于 2020-6-19 20:32
@@ -13793,16 +9137,10 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 梅莉雅老老实实雷元素打炮或buff吧
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5227#       发表于 2020-6-20 00:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47867583&amp;ptid=1856998" target="_blank">yyf1940 发表于 2020-6-19 20:32</a>
@@ -13811,17 +9149,10 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">垃圾游戏嗼!打大龙一个甩尾接着喷火直接over.
 
 
-
-
-
-
-
 -----
 
 ####  HGCG2  
 ##### 5228#       发表于 2020-6-20 02:56
-
-
 
 
 后传的战斗曲
@@ -13831,26 +9162,15 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 居然让我想起了西游记主题曲
 
 
-
-
-
-
-
 -----
 
 ####  LSDN  
 ##### 5229#       发表于 2020-6-20 03:14
 
 
-
 <blockquote>RUANHYC 发表于 2020-6-20 00:46
 是不是我错觉......[反击]这曲子里是不是有[与敌人对峙]的旋律......</blockquote>
 不是错觉，反击不就是热血版的对峙嘛
-
-
-
-
-
 
 
 -----
@@ -13859,14 +9179,7 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 ##### 5230#       发表于 2020-6-20 09:16
 
 
-
-
 请问下 ， mi.huan.yao这东西，需要用什么才能换？
-
-
-
-
-
 
 
 -----
@@ -13875,23 +9188,15 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 ##### 5231#       发表于 2020-6-20 10:43
 
 
-
-
 外传也通了，支线就差80龙，不练级估计打不过。采石场的精英蜥蜴人也很猛，不高兴打了，把牵绊对话补补外传就这么收工算了。
 
 有没有暖暖攻略啊，机娘和梅丽娅的衣服太美了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  秋月孝三  
 ##### 5232#       发表于 2020-6-20 10:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47872324&amp;ptid=1856998" target="_blank">樱桐 发表于 2020-6-20 09:16</a>
@@ -13901,25 +9206,13 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 — from HUAWEI VIE-AL10, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  hugosol  
 ##### 5233#       发表于 2020-6-20 13:00
 
 
-
-
 机神崩坏之后那些收集品就拿不到了？现在有个支线要青铜树，查了下能换那个npc头像已经灰了，只能下周目见了吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13928,15 +9221,9 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 ##### 5234#       发表于 2020-6-20 13:04
 
 
-
 <blockquote>hugosol 发表于 2020-6-20 13:00
 机神崩坏之后那些收集品就拿不到了？现在有个支线要青铜树，查了下能换那个npc头像已经灰了，只能下周目见 ...</blockquote>
 机神界的收集品都可以在6号殖民地捡
-
-
-
-
-
 
 
 -----
@@ -13945,21 +9232,13 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 ##### 5235#       发表于 2020-6-20 13:24
 
 
-
-
 6的大门附近公园路灯下有2-3个光点凑一起的 体感那里出机神界好东西几率高
-
-
-
-
-
 
 
 -----
 
 ####  hugosol  
 ##### 5236#       发表于 2020-6-20 13:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47874978&amp;ptid=1856998" target="_blank">燃烧的石头 发表于 2020-6-20 13:04</a>
@@ -13970,27 +9249,15 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 不过刚发现错过了限时任务死了npc还是有点不爽<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  jbjack1215  
 ##### 5237#       发表于 2020-6-20 13:45
 
 
-
-
 有什么道具可以把牵绊直接拉满吗？
 
 二周目的玩点大概是什么，现在除了清理菁英外，想不出来还能做什么，支线也都懒得跑了
-
-
-
-
-
 
 
 -----
@@ -13999,14 +9266,7 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 ##### 5238#       发表于 2020-6-20 14:53
 
 
-
-
 后面剧情节奏直接开法拉利，没刹车就通关了。
-
-
-
-
-
 
 
 -----
@@ -14015,22 +9275,15 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 ##### 5239#       发表于 2020-6-20 14:55
 
 
-
 <blockquote>yyf1940 发表于 2020-6-20 10:43
 外传也通了，支线就差80龙，不练级估计打不过。采石场的精英蜥蜴人也很猛，不高兴打了，把牵绊对话补补外传 ...</blockquote>
 80级的打完还有个衣服
-
-
-
-
-
 
 
 -----
 
 ####  燃烧的石头  
 ##### 5240#       发表于 2020-6-20 14:55
-
 
 
 <blockquote>hugosol 发表于 2020-6-20 13:33
@@ -14040,27 +9293,15 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 机神界那个NPC做了支线就不会死
 
 
-
-
-
-
-
 -----
 
 ####  mjzs07  
 ##### 5241#       发表于 2020-6-20 15:11
 
 
-
-
 复兴素材 [https://www.gamersky.com/handbook/202005/1292676.shtml](https://www.gamersky.com/handbook/202005/1292676.shtml)
 
 有主播为了找素材都换日文玩了
-
-
-
-
-
 
 
 -----
@@ -14069,15 +9310,9 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 ##### 5242#       发表于 2020-6-20 15:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这诺彭真贱啊,梅酱酱非要用丹邦说服,很帅的人说就可以了其他人吊的都不**,换公主直接问你喝不喝啊,快喝
 
 梅酱酱"你这是什么态度嗼"
-
-
-
-
-
 
 
 -----
@@ -14086,15 +9321,9 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 ##### 5243#       发表于 2020-6-20 15:14
 
 
-
 <blockquote>RUANHYC 发表于 2020-6-20 00:46
 是不是我错觉......[反击]这曲子里是不是有[与敌人对峙]的旋律......</blockquote>
 不是错觉，反击主旋律用的就是对峙后半段啊啊啊女声的背景旋律
-
-
-
-
-
 
 
 -----
@@ -14103,15 +9332,9 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 ##### 5244#       发表于 2020-6-20 15:45
 
 
-
  本帖最后由 ZyLintheMax 于 2020-6-20 15:48 编辑 
 
 相连的未来是真的短，一下子就通了，事件过于鸡毛蒜皮跟支线内容差不多，做成独立篇章权当粉丝福利和续作预告了，不过公主最后的笑颜感觉一切都值了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14120,23 +9343,15 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 ##### 5245#       发表于 2020-6-20 16:57
 
 
-
-
 慢悠悠地终于把本篇通关了，最后菲奥伦没留回长发，遗憾
 
 —— 来自 OnePlus IN2010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
 
 ####  Arccueid  
 ##### 5246#       发表于 2020-6-20 16:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47877492&amp;ptid=1856998" target="_blank">鷹書たかしょ 发表于 2020-06-20 16:57:36</a>
@@ -14147,16 +9362,10 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5247#       发表于 2020-6-20 17:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47877500&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-20 16:58</a>
@@ -14168,16 +9377,10 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 <img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">具体是怎么做的,我记得泡半年长好,头发不是应该更长变成贞子那样吗?
 
 
-
-
-
-
-
 -----
 
 ####  3D烧  
 ##### 5248#       发表于 2020-6-20 17:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47877623&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-6-20 17:08</a>
@@ -14186,26 +9389,15 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 营养当然是全用来长身体了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ZyLintheMax  
 ##### 5249#       发表于 2020-6-20 17:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47877623&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-6-20 17:08</a>
 具体是怎么做的,我记得泡半年长好,头发不是应该更长变成贞子那样吗? ...</blockquote>
 推测是泡完出来后有过一段时间长发然后剪了，不然也不会结尾问受克合不合适
-
-
-
-
-
 
 
 -----
@@ -14214,14 +9406,7 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 ##### 5250#       发表于 2020-6-20 17:18
 
 
-
-
 力奇勇者性格要什么前置，为什么最后一个任务做不了
-
-
-
-
-
 
 
 -----
@@ -14230,15 +9415,8 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 ##### 5251#       发表于 2020-6-20 18:27
 
 
-
-
 从15章之后一口气打完了，好爽啊。16章以后怒涛展开，真带劲，尾声部分做得也是超级圆满，满足了。
 不过有一点不是很满意，1代原来是把赞扎打死之后阿尔维斯再蹦出来解释他上辈子克劳乌斯那些破事的。总感觉这一段和之前的世界观描写是割裂的，联系非常薄弱。整个这一段就解释了俩事情，巨神机神是怎么来的，还有阿尔维斯是谁。如果只是要说这个的话，其实你随便编一个故事都可以，也没必要一转科幻。2代就好很多了，毕竟是主世界，莫尔斯之地，世界，树乐园，云海，异刃和巨神兽，都和世界的本质是有联系的，一环套一环，解释出来之后有理清了思绪的爽感。来自: iPhone客户端
-
-
-
-
-
 
 
 -----
@@ -14247,21 +9425,13 @@ dot流成型很快，只要有六级毒强化，然后在高连锁下释放，�
 ##### 5252#       发表于 2020-6-20 18:32
 
 
-
-
 XB2登场时头发已经长了（有多处明显是本篇后的台词），也算是对菲奥伦那句问题的交代。
-
-
-
-
-
 
 
 -----
 
 ####  sslink  
 ##### 5253#       发表于 2020-6-20 18:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47878487&amp;ptid=1856998" target="_blank">没取名啊 发表于 2020-6-20 18:27</a>
@@ -14272,16 +9442,10 @@ XB2登场时头发已经长了（有多处明显是本篇后的台词），也�
 觉得当时1代阿尔维斯这里主要是想要和整个异度系列世界观扯上的意思，但又不敢写明，2就直接gate都整出来了
 
 
-
-
-
-
-
 -----
 
 ####  ZyLintheMax  
 ##### 5254#       发表于 2020-6-20 18:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47878487&amp;ptid=1856998" target="_blank">没取名啊 发表于 2020-6-20 18:27</a>
@@ -14290,16 +9454,10 @@ XB2登场时头发已经长了（有多处明显是本篇后的台词），也�
 地球消失那个镜头就是明着告诉你这就是XS所谓的“失落的耶路撒冷”了，高桥即使换了东家还是想继续写他的太空科幻。不过也就寥寥几句没有深入，毕竟系列第一作还不知道能不能活下去。
 
 
-
-
-
-
-
 -----
 
 ####  EigenVesper  
 ##### 5255#       发表于 2020-6-20 19:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47877727&amp;ptid=1856998" target="_blank">七氷 发表于 2020-6-20 17:18</a>
@@ -14308,25 +9466,13 @@ XB2登场时头发已经长了（有多处明显是本篇后的台词），也�
 riki的前置全是诺彭仙人那个支线吧，顺着全做了就好了
 
 
-
-
-
-
-
 -----
 
 ####  yth329  
 ##### 5256#       发表于 2020-6-20 19:20
 
 
-
-
 刷高级技能书也太痛苦了，特别是一堆5%左右掉率的，这游戏不适合强迫症玩<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14335,23 +9481,16 @@ riki的前置全是诺彭仙人那个支线吧，顺着全做了就好了
 ##### 5257#       发表于 2020-6-20 19:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47879113&amp;ptid=1856998" target="_blank">yth329 发表于 2020-6-20 19:20</a>
 
 刷高级技能书也太痛苦了，特别是一堆5%左右掉率的，这游戏不适合强迫症玩 ...</blockquote>
 没必要特地去刷技能书，之后总得通关dlc去大仙人那里买12级技能书
 
 
-
-
-
-
-
 -----
 
 ####  3123  
 ##### 5258#       发表于 2020-6-20 19:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47879113&amp;ptid=1856998" target="_blank">yth329 发表于 2020-6-20 19:20</a>
@@ -14361,16 +9500,10 @@ riki的前置全是诺彭仙人那个支线吧，顺着全做了就好了
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  电风扇  
 ##### 5259#       发表于 2020-6-20 19:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47879113&amp;ptid=1856998" target="_blank">yth329 发表于 2020-6-20 19:20</a>
@@ -14379,16 +9512,10 @@ riki的前置全是诺彭仙人那个支线吧，顺着全做了就好了
 直接刷挑战换12级书吧，不然10级刷完了你还得接着刷
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5260#       发表于 2020-6-20 19:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47879113&amp;ptid=1856998" target="_blank">yth329 发表于 2020-6-20 19:20</a>
@@ -14397,26 +9524,15 @@ riki的前置全是诺彭仙人那个支线吧，顺着全做了就好了
 通了dlc挑战刷dlc关卡换是最快的，这游戏真要刷的只有AP，SP和好感基本上好好玩都差不多要满了
 
 
-
-
-
-
-
 -----
 
 ####  七氷  
 ##### 5261#       发表于 2020-6-20 20:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47879101&amp;ptid=1856998" target="_blank">EigenVesper 发表于 2020-6-20 19:18</a>
 riki的前置全是诺彭仙人那个支线吧，顺着全做了就好了</blockquote>
 我看攻略，就差这最后一个任务了，仙人说时候未到<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14425,14 +9541,7 @@ riki的前置全是诺彭仙人那个支线吧，顺着全做了就好了</block
 ##### 5262#       发表于 2020-6-20 21:00
 
 
-
-
 绝了，查装备才知道机娘的最强浮翼被我卖了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14441,16 +9550,10 @@ riki的前置全是诺彭仙人那个支线吧，顺着全做了就好了</block
 ##### 5263#       发表于 2020-6-20 21:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47880527&amp;ptid=1856998" target="_blank">七氷 发表于 2020-6-20 20:58</a>
 
 我看攻略，就差这最后一个任务了，仙人说时候未到</blockquote>
 你是不是没打到17章，第二隐藏性格17章才能解
-
-
-
-
-
 
 
 -----
@@ -14459,15 +9562,9 @@ riki的前置全是诺彭仙人那个支线吧，顺着全做了就好了</block
 ##### 5264#       发表于 2020-6-20 21:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47880527&amp;ptid=1856998" target="_blank">七氷 发表于 2020-6-20 20:58</a>
 我看攻略，就差这最后一个任务了，仙人说时候未到</blockquote>
 进17章了吗，有些任务17章以后才能继续做
-
-
-
-
-
 
 
 -----
@@ -14476,23 +9573,15 @@ riki的前置全是诺彭仙人那个支线吧，顺着全做了就好了</block
 ##### 5265#       发表于 2020-6-20 21:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47880573&amp;ptid=1856998" target="_blank">yyf1940 发表于 2020-6-20 21:01</a>
 进17章了吗，有些任务17章以后才能继续做</blockquote>
 都通关了
-
-
-
-
-
 
 
 -----
 
 ####  whzfjk  
 ##### 5266#       发表于 2020-6-20 21:05
-
-
 
 
 FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
@@ -14505,16 +9594,10 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 为什么已经收集了4、5个诺彭了还是不能放必杀？
 
 
-
-
-
-
-
 -----
 
 ####  ckl80  
 ##### 5267#       发表于 2020-6-20 21:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47880527&amp;ptid=1856998" target="_blank">七氷 发表于 2020-6-20 20:58</a>
@@ -14523,16 +9606,10 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 地域值不够吧
 
 
-
-
-
-
-
 -----
 
 ####  莉拉厨  
 ##### 5268#       发表于 2020-6-20 21:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47880587&amp;ptid=1856998" target="_blank">七氷 发表于 2020-06-20 21:02:30</a>
@@ -14541,16 +9618,10 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5269#       发表于 2020-6-20 21:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47880877&amp;ptid=1856998" target="_blank">莉拉厨 发表于 2020-6-20 21:20</a>
@@ -14562,32 +9633,19 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我记得做第一隐藏就要5000地域值吧，所以可能默认了
 
 
-
-
-
-
-
 -----
 
 ####  mjzs07  
 ##### 5270#       发表于 2020-6-20 21:33
 
 
-
-
 恋爱成就男女你们选哪个，好似都挺糟糕的
-
-
-
-
-
 
 
 -----
 
 ####  绿冰  
 ##### 5271#       发表于 2020-6-20 21:35
-
 
 
 <blockquote>whzfjk 发表于 2020-6-20 21:05
@@ -14599,16 +9657,10 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 天赋战技依然和本篇一样有比较长的蓄力时间，蓄力时怪没动作吸红光
 
 
-
-
-
-
-
 -----
 
 ####  モナド  
 ##### 5272#       发表于 2020-6-20 21:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47880554&amp;ptid=1856998" target="_blank">yyf1940 发表于 2020-6-20 21:00</a>
@@ -14616,16 +9668,10 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 剑刃X没洞，多数情况还不如剑刃2带洞的
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5273#       发表于 2020-6-20 21:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47881072&amp;ptid=1856998" target="_blank">mjzs07 发表于 2020-6-20 21:33</a>
@@ -14636,25 +9682,13 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 反正机械宅不要女人也能过日子
 
 
-
-
-
-
-
 -----
 
 ####  嘲风  
 ##### 5274#       发表于 2020-6-21 01:25
 
 
-
-
 想问下说终极版里没有武器最高威力等于最小伤害+99这个bug了是么？
-
-
-
-
-
 
 
 -----
@@ -14663,16 +9697,10 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 ##### 5275#       发表于 2020-6-21 01:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47884019&amp;ptid=1856998" target="_blank">嘲风 发表于 2020-06-21 01:25:35</a>
 想问下说终极版里没有武器最高威力等于最小伤害+99这个bug了是么？</blockquote>没了
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -14681,16 +9709,9 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 ##### 5276#       发表于 2020-6-21 01:33
 
 
-
-
 做了一堆宝石，然后发现面板最高的武器和防具都自带宝石了......而且并不是我想要的能力，好坑啊
 
 有没有最高面板的全孔装备？还是必须面板和宝石作取舍？
-
-
-
-
-
 
 
 -----
@@ -14699,23 +9720,16 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 ##### 5277#       发表于 2020-6-21 01:39
 
 
-
  本帖最后由 kilkilo 于 2020-6-21 11:22 编辑 
 
 相连的未来通了，支线全清，80级龙也打死了，不放必杀一直放铠就行，只要不死就能奶回来，最后血量差不多一波带走，不过唯一的遗憾是错过了跟塔露卡的两个羁绊对话，也不知道有没有办法补，最后，梅丽娅真美阿<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 编辑:傻了，操纵梅丽娅直接去羁绊点对话就行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5278#       发表于 2020-6-21 01:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47884103&amp;ptid=1856998" target="_blank">苍蓝之枪 发表于 2020-06-21 01:33:50</a>
@@ -14730,17 +9744,10 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5279#       发表于 2020-6-21 01:57
-
-
 
 
 https://tieba.baidu.com/p/6761194797?lp=5028&amp;mo_device=1&amp;is_jingpost=0&amp;pn=0&amp;
@@ -14751,16 +9758,10 @@ https://tieba.baidu.com/p/6761194797?lp=5028&amp;mo_device=1&amp;is_jingpost=0&a
 —— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5280#       发表于 2020-6-21 01:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47884301&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-6-21 01:57</a>
@@ -14775,16 +9776,10 @@ https://tieba.baidu.com/p/6761194797?lp=5028&amp;mo_device=1&amp;is_jingpost=0&a
 一代就有视频
 
 
-
-
-
-
-
 -----
 
 ####  AyaneLin  
 ##### 5281#       发表于 2020-6-21 02:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47880630&amp;ptid=1856998" target="_blank">whzfjk 发表于 2020-6-20 21:05</a>
@@ -14794,16 +9789,10 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 好像是要集三个还是四个同色的才可以吧，通关好久了记不太清，你再抓两只试试
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5282#       发表于 2020-6-21 02:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47884311&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-21 01:59</a>
@@ -14816,16 +9805,10 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 —— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5283#       发表于 2020-6-21 02:07
-
 
 
  本帖最后由 Arccueid 于 2020-6-21 02:34 编辑 
@@ -14841,25 +9824,13 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 实际上绕起来也不难啊，带个修尔克然后靠出未来视的时间疯狂输出，上反射解决未来视伤害，然后继续绕，玩起来刺激多了，要求也不是很高。
 
 
-
-
-
-
-
 -----
 
 ####  Zhangsmallquan  
 ##### 5284#       发表于 2020-6-21 06:42
 
 
-
-
 诺彭大仙人那能换后传的收集品吗？想拿集齐给的时装，巨神肩最后一个不明物和皇都的第一个小动物，反复刷了半小时的完全见不到，太恶心了
-
-
-
-
-
 
 
 -----
@@ -14868,14 +9839,7 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 ##### 5285#       发表于 2020-6-21 10:57
 
 
-
-
 外传的翼龙精英怎么拉过来，完全够不到，就那个制空的莱森巴赫
-
-
-
-
-
 
 
 -----
@@ -14884,14 +9848,7 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 ##### 5286#       发表于 2020-6-21 11:20
 
 
-
-
 相连的未来里的收集品有毒吧。。。不明里的倒数第二个哪里有机会获得啊？
-
-
-
-
-
 
 
 -----
@@ -14900,22 +9857,15 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 ##### 5287#       发表于 2020-6-21 11:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47886893&amp;ptid=1856998" target="_blank">回贴用 发表于 2020-6-21 10:57</a>
 外传的翼龙精英怎么拉过来，完全够不到，就那个制空的莱森巴赫</blockquote>
 跟着他的路线走，后面有个可以引的坡
-
-
-
-
-
 
 
 -----
 
 ####  樱桐  
 ##### 5288#       发表于 2020-6-21 11:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47885256&amp;ptid=1856998" target="_blank">Zhangsmallquan 发表于 2020-6-21 06:42</a>
@@ -14927,17 +9877,10 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 倒数第二个哪里出？
 
 
-
-
-
-
-
 -----
 
 ####  HGCG2  
 ##### 5289#       发表于 2020-6-21 17:50
-
-
 
 
 这个叫フーディ的怪，中文版叫啥？名字的来源是啥？
@@ -14946,16 +9889,10 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 还有スピカル，也不知道名字的由来
 
 
-
-
-
-
-
 -----
 
 ####  古畑任三郎2015  
 ##### 5290#       发表于 2020-6-21 17:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47891957&amp;ptid=1856998" target="_blank">HGCG2 发表于 2020-6-21 17:50</a>
@@ -14966,16 +9903,10 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 兜帽族
 
 
-
-
-
-
-
 -----
 
 ####  HGCG2  
 ##### 5291#       发表于 2020-6-21 18:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47891981&amp;ptid=1856998" target="_blank">古畑任三郎2015 发表于 2020-6-21 17:52</a>
@@ -14986,16 +9917,10 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 谢谢，原来是“ hood”过来的
 
 
-
-
-
-
-
 -----
 
 ####  Ditfran  
 ##### 5292#       发表于 2020-6-21 18:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47891957&amp;ptid=1856998" target="_blank">HGCG2 发表于 2020-6-21 17:50</a>
@@ -15009,25 +9934,13 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 这个网站倒是有研究命名的规则，虽然有些命名我还是无法跟外形联系上
 
 
-
-
-
-
-
 -----
 
 ####  风水回廊  
 ##### 5293#       发表于 2020-6-21 18:19
 
 
-
-
 终于到17章了，看着接的那些90多级的支线，要开始调整技能树硬上了。
-
-
-
-
-
 
 
 -----
@@ -15036,15 +9949,9 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 ##### 5294#       发表于 2020-6-21 19:00
 
 
-
 <blockquote>回贴用 发表于 2020-6-21 10:57
 外传的翼龙精英怎么拉过来，完全够不到，就那个制空的莱森巴赫</blockquote>
 去墓地的半路上扔石头，有只鹰转悠的那个石头，往回一点的坡道
-
-
-
-
-
 
 
 -----
@@ -15053,16 +9960,9 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 ##### 5295#       发表于 2020-6-21 19:13
 
 
-
-
 话说
 
 机械伦招敌不是扔石头是手指比个手**？
-
-
-
-
-
 
 
 -----
@@ -15071,14 +9971,7 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 ##### 5296#       发表于 2020-6-21 21:18
 
 
-
-
 打玩机神界一连串主线任务到剧情再回皇都，地图上怪的等级跳跃到85+，我才70出头，等级落差怎么这么大<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15087,14 +9980,7 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 ##### 5297#       发表于 2020-6-21 21:24
 
 
-
-
 话说迪克森最后那句话是什么意思？感觉他的感情挺复杂的，没太品明白来自: iPhone客户端
-
-
-
-
-
 
 
 -----
@@ -15103,14 +9989,7 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 ##### 5298#       发表于 2020-6-21 22:21
 
 
-
-
 后期，求快速刷羁绊的方法，元素挂机这个也太慢了
-
-
-
-
-
 
 
 -----
@@ -15119,14 +9998,7 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 ##### 5299#       发表于 2020-6-21 22:54
 
 
-
-
 十七章，怎么刷机界零件大，在堕落巨臂打流星机器人，只有普通木箱子出，把力奇的宝箱技能取了也是不停出银箱子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15135,21 +10007,13 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 ##### 5300#       发表于 2020-6-21 22:56
 
 
-
-
 求问前中期越级打怪指南，我用三基友都带上敏捷4和夜视4，40级去打C9的70鸟还是各种miss,是要把敏捷性格都连接上，再带上梅利亚上风球才可以么，dot流带满以太上升和毒宝石的话开场三连能毒死高级小怪么（我还没出到梅利亚以太技能命中率那个性格所以还没试）
-
-
-
-
-
 
 
 -----
 
 ####  Troywest  
 ##### 5301#       发表于 2020-6-21 22:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47894670&amp;ptid=1856998" target="_blank">没取名啊 发表于 2020-6-21 21:24</a>
@@ -15160,16 +10024,10 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 总之玩了以后感觉就很唏嘘。
 
 
-
-
-
-
-
 -----
 
 ####  syz726  
 ##### 5302#       发表于 2020-6-21 23:00
-
 
 
  本帖最后由 syz726 于 2020-6-21 23:05 编辑 
@@ -15183,16 +10041,10 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 他要真对修尔克有什么父子情那就不至于机神界结束背后崩一枪召唤赞扎出来了（以他那个赞扎脑残粉的性格怕是觉得蛐蛐一个空壳容器也配叫人），而且后面他骑着特蕾西亚过来各种骑脸可没任何手下留情，不像阿尔维斯就差把“我单推你修尔克哦”写脸上了（GM就是这么任性）
 
 
-
-
-
-
-
 -----
 
 ####  ckl80  
 ##### 5303#       发表于 2020-6-21 23:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47895772&amp;ptid=1856998" target="_blank">暗黑の命运 发表于 2020-6-21 22:56</a>
@@ -15201,25 +10053,14 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 能毒死，dot伤害有三四千就够了
 
 
-
-
-
-
-
 -----
 
 ####  没取名啊  
 ##### 5304#       发表于 2020-6-21 23:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47895815&amp;ptid=1856998" target="_blank"> syz726 发表于 2020-6-21 23:00</a>  本帖最后由 syz726 于 2020-6-21 23:05 编辑  引用:没取名啊 发表于 2020-6-21 21:24 话说迪克森最后那句话是什么意思？感觉他的感情挺复杂的，没太品明白 简单来说，跪舔赞扎也就到他这程度为止了，修尔克不跪舔甚至还想反杀赞扎，然后把他迪克森砍死了，就是比活了不知道多少岁的他牛太多。 至于感情，没那么多复杂的，你就理解成一个卖猪肉的屠户杀了一辈子猪，临死这回倒霉 </blockquote>
 我是觉得迪克森这人本质一个放浪仔，卧底期间穿得胡里花哨还全世界乱跑，跟着赞扎也是因为老板待遇好可以让他有能力随便浪，没啥忠诚心。这货也是个唯力量论者，所以之前对修尔克不屑一顾。结果这小子居然打过他了，于是可能就在认可他实力的同时也不把他之前的话当放屁了。来自: iPhone客户端
-
-
-
-
-
 
 
 -----
@@ -15228,21 +10069,13 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 ##### 5305#       发表于 2020-6-21 23:55
 
 
-
-
 求问越级毒高级小怪的话需要刷利器和梅利亚的羁绊吗，开场连协直接紫+双毒就能毒死么，还是要连协到第二圈再上毒
-
-
-
-
-
 
 
 -----
 
 ####  阿卵真是牛逼  
 ##### 5306#       发表于 2020-6-21 23:57
-
 
 
  本帖最后由 阿卵真是牛逼 于 2020-6-22 00:01 编辑 
@@ -15253,16 +10086,10 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 是修皇都以太炉的支线吗，坠落巨臂废品号外面有npc可以换。
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5307#       发表于 2020-6-22 00:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47896491&amp;ptid=1856998" target="_blank">暗黑の命运 发表于 2020-06-21 23:55:33</a>
@@ -15271,16 +10098,10 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  ckl80  
 ##### 5308#       发表于 2020-6-22 00:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47896491&amp;ptid=1856998" target="_blank">暗黑の命运 发表于 2020-6-21 23:55</a>
@@ -15289,16 +10110,10 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 小怪一轮就够了，普遍就10w血左右。
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5309#       发表于 2020-6-22 00:18
-
 
 
  本帖最后由 Arccueid 于 2020-6-22 01:04 编辑 
@@ -15325,33 +10140,19 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 都有了之后基本上这个游戏就没有对手了，其实也没太大意思。所以剧情低通建议用纯物理队，然后不要用倒转延长宝石，其他敏捷/夜间命中/尖刺防御和全DEBUFF防御可以拉满，也不要用铠，纯靠未来视互动来应对技能，压低10+级推，乐趣会高很多。最近在玩别的游戏，晚点录个12章商店装不靠阳炎无限连携/无修尔克/非连携秒杀/纯物理队最低级击杀恶戏的视频。
 
 
-
-
-
-
-
 -----
 
 ####  暗黑の命运  
 ##### 5310#       发表于 2020-6-22 00:48
 
 
-
-
 谢谢楼上**，果然不愧是神之吐息
-
-
-
-
-
 
 
 -----
 
 ####  苍蓝之枪  
 ##### 5311#       发表于 2020-6-22 00:52
-
-
 
 
 试着倒转流去打了下114，失败
@@ -15363,16 +10164,10 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 说起来打105中间偶尔也容易断倒转翻车......
 
 
-
-
-
-
-
 -----
 
 ####  Zhangsmallquan  
 ##### 5312#       发表于 2020-6-22 01:35
-
 
 
  本帖最后由 Zhangsmallquan 于 2020-6-22 01:40 编辑 
@@ -15389,16 +10184,10 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 [https://miketendo64.com/2020/06/01/guide-future-connected-collectopaedia/](https://miketendo64.com/2020/06/01/guide-future-connected-collectopaedia/)
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5313#       发表于 2020-6-22 01:41
-
 
 
  本帖最后由 Arccueid 于 2020-6-22 01:43 编辑 
@@ -15415,17 +10204,10 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 105不用倒地延长宝石都可以随便压着打 ，因为周围太多低级小怪了，靠连锁无限保持阳炎打队伍槽和倒地剑终结小怪他基本上就起不来了。
 
 
-
-
-
-
-
 -----
 
 ####  Endle  
 ##### 5314#       发表于 2020-6-22 07:01
-
-
 
 
 刚开始玩，感觉各种卡关，基本遇到机神兵都要反复尝试很多次。现在刚摸到6号殖民地
@@ -15433,16 +10215,10 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 是不是我玩的姿势哪里不对？
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5315#       发表于 2020-6-22 07:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898321&amp;ptid=1856998" target="_blank">Endle 发表于 2020-06-22 07:01:45</a>
@@ -15453,16 +10229,10 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Endle  
 ##### 5316#       发表于 2020-6-22 07:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898331&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-22 07:05</a>
@@ -15474,16 +10244,10 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 那我去练练级试试看，之前落后了一两级
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5317#       发表于 2020-6-22 07:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898333&amp;ptid=1856998" target="_blank">Endle 发表于 2020-06-22 07:06:52</a>
@@ -15492,25 +10256,13 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  hugosol  
 ##### 5318#       发表于 2020-6-22 08:11
 
 
-
-
 说起来赞扎的三圣除了阿尔维斯跟迪克森还有谁……
-
-
-
-
-
 
 
 -----
@@ -15519,15 +10271,9 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 ##### 5319#       发表于 2020-6-22 08:13
 
 
-
 <blockquote>hugosol 发表于 2020-6-22 08:11
 说起来赞扎的三圣除了阿尔维斯跟迪克森还有谁……</blockquote>
 罗兰
-
-
-
-
-
 
 
 -----
@@ -15536,21 +10282,13 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 ##### 5320#       发表于 2020-6-22 10:12
 
 
-
-
 菲奥伦的武器是不是都能直接砍机神兵？
-
-
-
-
-
 
 
 -----
 
 ####  天涯夹心人  
 ##### 5321#       发表于 2020-6-22 10:16
-
 
 
  本帖最后由 天涯夹心人 于 2020-6-22 10:23 编辑 
@@ -15569,28 +10307,15 @@ FC 没有未来视后不主控修尔克都防不住有威胁的天赋战技
 xb果然还是纸娃娃好啊，雷克斯那平平无奇的脸+锁死的服装，xb2要是有铠甲什么的我绝对换上去，遮一遮了。
 
 
-
-
-
-
-
-
 -----
 
 ####  xzhychris  
 ##### 5322#       发表于 2020-6-22 10:21
 
 
-
-
 114那个倒地spike伤害倒地有多高啊。。。
 
 另外菲奥伦伤害比她哥伤害高太多，ot怎么办。。。已经上了降普攻仇恨的宝石了，还是不成
-
-
-
-
-
 
 
 -----
@@ -15599,23 +10324,15 @@ xb果然还是纸娃娃好啊，雷克斯那平平无奇的脸+锁死的服装�
 ##### 5323#       发表于 2020-6-22 10:50
 
 
-
-
 本篇感觉都刷完了，装备宝石主要技能都满了，牵绊图除了一根线因为没对话而错过也齐了，150成就也解完了，可是差3个羁绊币<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi MI 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
 
 ####  syz726  
 ##### 5324#       发表于 2020-6-22 11:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900152&amp;ptid=1856998" target="_blank">xzhychris 发表于 2020-6-22 10:21</a>
@@ -15630,17 +10347,10 @@ xb果然还是纸娃娃好啊，雷克斯那平平无奇的脸+锁死的服装�
 最欢乐的玩法还是干脆家庭队，她加她哥加负责塞狗粮的修尔克三把菜刀直接剁，只要能解决命中问题，打谁都是奥利给开加速剁就完了，管他对面仇恨在兄妹俩谁身上呢，反正别打弱不禁风的修尔克就好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  本职是魔法使  
 ##### 5325#       发表于 2020-6-22 11:03
-
-
 
 
 今天一出门就是大猩猩，我曹这是monolith传统艺能吗
@@ -15648,16 +10358,10 @@ xb果然还是纸娃娃好啊，雷克斯那平平无奇的脸+锁死的服装�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  狸狸狐  
 ##### 5326#       发表于 2020-6-22 11:24
-
 
 
 <blockquote>本职是魔法使 发表于 2020-6-22 11:03
@@ -15668,16 +10372,10 @@ xb果然还是纸娃娃好啊，雷克斯那平平无奇的脸+锁死的服装�
 因为XB1这只81给很多人留下了深刻印象，XBX和XB2都在新手村旁边放了一只（还有那个不动的冈萨雷斯）
 
 
-
-
-
-
-
 -----
 
 ####  风水回廊  
 ##### 5327#       发表于 2020-6-22 11:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900529&amp;ptid=1856998" target="_blank">kzf 发表于 2020-6-22 10:50</a>
@@ -15688,16 +10386,10 @@ xb果然还是纸娃娃好啊，雷克斯那平平无奇的脸+锁死的服装�
 这里面容易漏。
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5328#       发表于 2020-6-22 14:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900529&amp;ptid=1856998" target="_blank">kzf 发表于 2020-6-22 10:50</a>
@@ -15706,16 +10398,10 @@ xb果然还是纸娃娃好啊，雷克斯那平平无奇的脸+锁死的服装�
 确实，都改了那么多加个碑不好吗，搞得杀死黑龙后想再杀几次玩玩得原地SL一万年。
 
 
-
-
-
-
-
 -----
 
 ####  deathomega  
 ##### 5329#       发表于 2020-6-22 18:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900152&amp;ptid=1856998" target="_blank">xzhychris 发表于 2020-6-22 10:21</a>
@@ -15727,17 +10413,10 @@ xb果然还是纸娃娃好啊，雷克斯那平平无奇的脸+锁死的服装�
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  AincradWanderer  
 ##### 5330#       发表于 2020-6-22 21:01
-
-
 
 
 今晚第一次见到了本作的BUG，也是第一次一小时内连续出BUG<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -15749,16 +10428,10 @@ xb果然还是纸娃娃好啊，雷克斯那平平无奇的脸+锁死的服装�
 之后接了支线去蜘蛛洞打两只蜘蛛，打完挡路的超大猩猩冠名者后，打目标蜘蛛时主控的梅莉亚武器又消失了，我看着屏幕里的梅莉亚，梅莉亚看着空荡荡的双手发呆，无法移动也无法释放技能<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5331#       发表于 2020-6-22 21:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47909218&amp;ptid=1856998" target="_blank">AincradWanderer 发表于 2020-6-22 21:01</a>
@@ -15770,16 +10443,10 @@ xb果然还是纸娃娃好啊，雷克斯那平平无奇的脸+锁死的服装�
 梅救了
 
 
-
-
-
-
-
 -----
 
 ####  kzf  
 ##### 5332#       发表于 2020-6-23 12:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900529&amp;ptid=1856998" target="_blank">kzf 发表于 2020-6-22 10:50</a>
@@ -15789,32 +10456,19 @@ xb果然还是纸娃娃好啊，雷克斯那平平无奇的脸+锁死的服装�
 —— 来自 Xiaomi MI 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 5333#       发表于 2020-6-23 14:35
 
 
-
-
 谁能讲讲巴恩怎么无处不在吗
-
-
-
-
-
 
 
 -----
 
 ####  绿冰  
 ##### 5334#       发表于 2020-6-23 14:56
-
 
 
 <blockquote>本职是魔法使 发表于 2020-6-22 11:03
@@ -15827,26 +10481,15 @@ xb果然还是纸娃娃好啊，雷克斯那平平无奇的脸+锁死的服装�
 另外两作都是跑步的
 
 
-
-
-
-
-
 -----
 
 ####  superlink  
 ##### 5335#       发表于 2020-6-23 15:05
 
 
-
 <blockquote>狸狸狐 发表于 2020-6-22 11:24
 因为XB1这只81给很多人留下了深刻印象，XBX和XB2都在新手村旁边放了一只（还有那个不动的冈萨雷斯） ...</blockquote>
 不动那个贼搞，我记得正好有个任务，直接传送风洞，咣，一个大猩猩站你面前
-
-
-
-
-
 
 
 -----
@@ -15855,14 +10498,7 @@ xb果然还是纸娃娃好啊，雷克斯那平平无奇的脸+锁死的服装�
 ##### 5336#       发表于 2020-6-23 15:52
 
 
-
-
 终于通了，感觉主角团就莱恩塑造最不讨喜，首先长得丑，其次疯狂吃那个加德的醋也让人很不适，感觉整个人都很大男子主义(或者说是粗放)，前期就俩人的时候也挺没存在感的
-
-
-
-
-
 
 
 -----
@@ -15871,21 +10507,13 @@ xb果然还是纸娃娃好啊，雷克斯那平平无奇的脸+锁死的服装�
 ##### 5337#       发表于 2020-6-23 16:02
 
 
-
-
 我遇到比较神奇的是好想有人的羁绊硬币比其他人少了1个的样子，没道理啊，都满级了
-
-
-
-
-
 
 
 -----
 
 ####  kyolanaya  
 ##### 5338#       发表于 2020-6-23 16:37
-
 
 
  本帖最后由 kyolanaya 于 2020-6-23 16:40 编辑 
@@ -15895,25 +10523,13 @@ xb果然还是纸娃娃好啊，雷克斯那平平无奇的脸+锁死的服装�
 。。。我的天，居然还要先问过安银
 
 
-
-
-
-
-
 -----
 
 ####  zero33333  
 ##### 5339#       发表于 2020-6-23 17:14
 
 
-
-
 恋爱成就这个支线怎么选啊，纠结
-
-
-
-
-
 
 
 -----
@@ -15922,16 +10538,9 @@ xb果然还是纸娃娃好啊，雷克斯那平平无奇的脸+锁死的服装�
 ##### 5340#       发表于 2020-6-23 17:46
 
 
-
-
 Xb1的连锁攻击这个伤害真不习惯，特别是2玩多了以后
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -15940,15 +10549,9 @@ Xb1的连锁攻击这个伤害真不习惯，特别是2玩多了以后
 ##### 5341#       发表于 2020-6-23 18:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47919640&amp;ptid=1856998" target="_blank">superlink 发表于 2020-6-23 15:05</a>
 不动那个贼搞，我记得正好有个任务，直接传送风洞，咣，一个大猩猩站你面前 ...</blockquote>
 从下面爬上去 有石头堵着 同期还有个任务做火药 炸开路就能上去采集
-
-
-
-
-
 
 
 -----
@@ -15957,13 +10560,7 @@ Xb1的连锁攻击这个伤害真不习惯，特别是2玩多了以后
 ##### 5342#       发表于 2020-6-23 18:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15972,14 +10569,7 @@ Xb1的连锁攻击这个伤害真不习惯，特别是2玩多了以后
 ##### 5343#       发表于 2020-6-23 22:00
 
 
-
-
 黑豆肝这东西是真难刷，半小时了就一个<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15988,22 +10578,15 @@ Xb1的连锁攻击这个伤害真不习惯，特别是2玩多了以后
 ##### 5344#       发表于 2020-6-23 22:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47925096&amp;ptid=1856998" target="_blank">AincradWanderer 发表于 2020-6-23 22:00</a>
 黑豆肝这东西是真难刷，半小时了就一个</blockquote>
 有这时间大仙人那早换好了
-
-
-
-
-
 
 
 -----
 
 ####  塔奇克马  
 ##### 5345#       发表于 2020-6-24 02:44
-
 
 
  本帖最后由 塔奇克马 于 2020-6-24 02:55 编辑 
@@ -16021,26 +10604,15 @@ Xb1的连锁攻击这个伤害真不习惯，特别是2玩多了以后
 巴恩者家伙真是死性不改,而且是什么惩罚啊.做了那么多坏事竟然..还只是惩罚?
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5346#       发表于 2020-6-24 03:08
 
 
-
  本帖最后由 塔奇克马 于 2020-6-24 03:13 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">原来利奇这种总是跪老婆啊......诺彭族的跪姿还见过呢?不会像某些支线被饿晕了那样吧?小屁股向上翘...
-
-
-
-
-
 
 
 -----
@@ -16049,14 +10621,7 @@ Xb1的连锁攻击这个伤害真不习惯，特别是2玩多了以后
 ##### 5347#       发表于 2020-6-24 07:15
 
 
-
-
 来了来了，下次俄罗斯方块活动主题是xbde的
-
-
-
-
-
 
 
 -----
@@ -16065,19 +10630,11 @@ Xb1的连锁攻击这个伤害真不习惯，特别是2玩多了以后
 ##### 5348#       发表于 2020-6-24 07:15
 
 
-
-
 冲啊
-
-
-
-
 
 
 Screenshot_2020-06-24-07-14-31-22_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 (78.84 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -16086,24 +10643,7 @@ Screenshot_2020-06-24-07-14-31-22_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 2020-6-24 07:15 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202006/24/071541hts822shsjiiios6.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -16112,19 +10652,11 @@ Screenshot_2020-06-24-07-14-31-22_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5349#       发表于 2020-6-24 07:18
 
 
-
-
 被你击杀的是破，其他阵亡的是斩
-
-
-
-
 
 
 Screenshot_2020-06-24-07-16-42-69_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 (83.95 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -16133,24 +10665,7 @@ Screenshot_2020-06-24-07-16-42-69_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 2020-6-24 07:17 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202006/24/071757qyqpzz2zlkla0tey.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -16159,19 +10674,11 @@ Screenshot_2020-06-24-07-16-42-69_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5350#       发表于 2020-6-24 07:23
 
 
-
-
 活动时间是下周周五到周日，话说这就第14回主题活动了，过的真快啊
-
-
-
-
 
 
 Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 (85.2 KB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -16180,24 +10687,7 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 2020-6-24 07:22 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202006/24/072238y0rzhbawuw9la212.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -16206,14 +10696,7 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5351#       发表于 2020-6-24 08:47
 
 
-
-
 这活动有啥奖励吗
-
-
-
-
-
 
 
 -----
@@ -16222,15 +10705,9 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5352#       发表于 2020-6-24 08:57
 
 
-
 <blockquote>zero33333 发表于 2020-6-24 08:47
 这活动有啥奖励吗</blockquote>
 活动期间打到100分永久获得主题（然后活动期间还有排名，前多少名可以获得eshop金币），主题这次没有获得的话，以后过一段时间会加入商店，用游戏里的钱换就行
-
-
-
-
-
 
 
 -----
@@ -16239,14 +10716,7 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5353#       发表于 2020-6-24 11:36
 
 
-
-
 想问一下力奇和梅莉娅先后上毒这个毒伤害是叠算还是只取后者啊<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16255,23 +10725,16 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5354#       发表于 2020-6-24 11:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47931446&amp;ptid=1856998" target="_blank">大空魔术 发表于 2020-06-24 11:36:57</a>
 想问一下力奇和梅莉娅先后上毒这个毒伤害是叠算还是只取后者啊</blockquote>不同人的毒是不会覆盖的
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  大空魔术  
 ##### 5355#       发表于 2020-6-24 11:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47931564&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-24 11:43</a>
@@ -16283,25 +10746,13 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 感谢，那我这就去试试以太dot队<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  水龙头君  
 ##### 5356#       发表于 2020-6-24 12:38
 
 
-
-
 问一下迷恋药要用什么换啊？其他的收集品都齐了就差这一个 好难受
-
-
-
-
-
 
 
 -----
@@ -16310,14 +10761,7 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5357#       发表于 2020-6-24 13:05
 
 
-
-
 [cp]#Tetris99# #俄罗斯方块99#【来参加俄罗斯方块吃鸡 赢取主题吧】第 14 弹   《俄罗斯方块 99》新一轮「王者杯」之「异度神剑合作祭！」中文预告片公开。此次为第 14 次王者杯活动（香港为第 9 次），活动时期为 2020 年 7 月 3 日（五）15:00 ～ 2020 年 7 月 7 日（二）14:59（中国时间）。  99 人同时对战的经典方块游戏「TETRIS®」以大混战游戏形式登场， Nintendo Switch Online 加入者限定游戏软件《TETRIS® 99》将举办「TETRIS® 王者杯」第 9 回！活动期间，累积达 100 PT 即可获得主题「异度神剑 终极版」，可以在「自定主题」里使用。  &lt;活动名称&gt; 「TETRIS®王者杯」第9回： 异度神剑合作祭！  &lt;活动期间&gt; 2020 年 7 月 3 日（五）15:00 ～ 2020 年 7 月 7 日（二）14:59（中国时间）  &lt;活动概要&gt; 活动期间，依最后排名派发活动分数（※）！累积达 100 PT 即可获得主题「异度神剑 终极版」，可以在「自订主题」里使用。  ※依排名派发的活动点数： 第 1 位：100 PT 第 2 位：50 PT 第 3 位：30 PT 第 4～10 位：20 PT 第 11～30 位：15 PT 第 31～50 位：10 PT 第 51～90 位：5 PT 第 91～99 位：1 PT  http://t.cn/A6LHqcot[/cp]
-
-
-
-
-
 
 
 -----
@@ -16326,23 +10770,15 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5358#       发表于 2020-6-24 14:07
 
 
-
-
 什么？相连的未来 也有漏掉不能补的东西？
 
 相连未来能开二周目？
-
-
-
-
-
 
 
 -----
 
 ####  goohao  
 ##### 5359#       发表于 2020-6-24 16:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47933762&amp;ptid=1856998" target="_blank">苍蓝之枪 发表于 2020-6-24 14:07</a>
@@ -16357,16 +10793,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 假如有会漏的 我就开新档了
 
 
-
-
-
-
-
 -----
 
 ####  苍蓝之枪  
 ##### 5360#       发表于 2020-6-24 16:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47935805&amp;ptid=1856998" target="_blank">goohao 发表于 2020-6-24 16:18</a>
@@ -16379,16 +10809,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 我看到有人说有时限任务，具体我也不知道，因为我压根没见到时限任务
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5361#       发表于 2020-6-24 17:02
-
 
 
  本帖最后由 塔奇克马 于 2020-6-24 17:03 编辑 
@@ -16406,16 +10830,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 当初虽然过了,但是这里稀里糊涂的.
 
 
-
-
-
-
-
 -----
 
 ####  南宫月汐  
 ##### 5362#       发表于 2020-6-24 17:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47936415&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-6-24 17:02</a>
@@ -16429,16 +10847,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5363#       发表于 2020-6-24 17:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47936415&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-06-24 17:02:07</a>
@@ -16453,16 +10865,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5364#       发表于 2020-6-24 17:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47936438&amp;ptid=1856998" target="_blank">南宫月汐 发表于 2020-6-24 17:04</a>
@@ -16476,32 +10882,19 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 那么最先提高好感度的两个人选择谁啊
 
 
-
-
-
-
-
 -----
 
 ####  乱山残照  
 ##### 5365#       发表于 2020-6-24 18:09
 
 
-
-
 15章刚开头，能看见的感叹号都清了，结果只有机神的那个村5星了，6号殖民地复兴也只有几个人一栋房一直没动静，是因为有村民没对话过吗？现在开始做迟不迟？迟了就直接主线通关算了
-
-
-
-
-
 
 
 -----
 
 ####  希望之异热同心  
 ##### 5366#       发表于 2020-6-24 18:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47937360&amp;ptid=1856998" target="_blank">乱山残照 发表于 2020-6-24 18:09</a>
@@ -16511,16 +10904,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 —— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  南宫月汐  
 ##### 5367#       发表于 2020-6-24 19:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47936446&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-6-24 17:05</a>
@@ -16532,16 +10919,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  JC_AR  
 ##### 5368#       发表于 2020-6-24 22:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47937360&amp;ptid=1856998" target="_blank">乱山残照 发表于 2020-6-24 18:09</a>
@@ -16549,16 +10930,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 这个吊游戏充满了那个时代的古早味，除了时间以外还有做完新的任务，更新羁绊以后需要再和其他npc对话才能刷新的任务。所以你以为全清了，其实并没有
 
 
-
-
-
-
-
 -----
 
 ####  AincradWanderer  
 ##### 5369#       发表于 2020-6-24 23:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47936446&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-6-24 17:05</a>
@@ -16570,16 +10945,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  乱山残照  
 ##### 5370#       发表于 2020-6-25 02:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47940497&amp;ptid=1856998" target="_blank">JC_AR 发表于 2020-6-24 22:10</a>
@@ -16587,16 +10956,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 我之前能看到感叹号的都清过了，然后怕剧情发展错过每个章节都特意回去调两次时间看看有没有新任务，我是没想到还得先聊个天才能发展后续任务，现在一个个地方回去找人吹逼打过挺烦的，好在这堆要聊天的支线比之前弱智感叹号做得要好很多
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5371#       发表于 2020-6-25 02:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47942916&amp;ptid=1856998" target="_blank">乱山残照 发表于 2020-6-25 02:05</a>
@@ -16607,27 +10970,15 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 清完然后一个一个对发现一个没漏，完成checklist的快感就来了
 
 
-
-
-
-
-
 -----
 
 ####  kzf  
 ##### 5372#       发表于 2020-6-25 08:32
 
 
-
-
 支线触发还并不是最糟心的，糟心的是支线完成后，还要特定时间与npc对话，才能在牵绊图上连线或者更新关系，更糟心的是c6限时任务里，孙子那个任务也要这样，才能将塔兹和那个小孩连上线，我错过了，到了c6就再也不能触发了，虽然不影响全人物互联，但就是少了根线<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi MI 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -16636,14 +10987,7 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5373#       发表于 2020-6-25 09:13
 
 
-
-
 在打艾机尔前在废品号上接了个菲奥伦武器的支线，可是这时候没法传送，然后去打艾机尔，结果主线怒涛展开连续过两章都不放我出去，最后出来一看整个机神界都无法进入了……所以这个任务是我接太晚了？是不是应该在帝都第一次找艾机尔前就要做完啊……md一个任务在眼前错过了感觉好难受
-
-
-
-
-
 
 
 -----
@@ -16652,23 +10996,16 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5374#       发表于 2020-6-25 09:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47943995&amp;ptid=1856998" target="_blank">空虚的祈祷 发表于 2020-6-25 09:13</a>
 
 在打艾机尔前在废品号上接了个菲奥伦武器的支线，可是这时候没法传送，然后去打艾机尔，结果主线怒涛展开连 ...</blockquote>
 是啊 打完他会有一大堆任务都不再能做了。
 
 
-
-
-
-
-
 -----
 
 ####  AincradWanderer  
 ##### 5375#       发表于 2020-6-25 09:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47943995&amp;ptid=1856998" target="_blank">空虚的祈祷 发表于 2020-6-25 09:13</a>
@@ -16678,16 +11015,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  zyxsqw  
 ##### 5376#       发表于 2020-6-25 09:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47943995&amp;ptid=1856998" target="_blank">空虚的祈祷 发表于 2020-6-25 09:13</a>
@@ -16695,16 +11026,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 那个任务其实是要在那段时间跑路过去做的，没法传送，但可以走楼梯走管道下去。不过那个武器其实怪也会掉就是了。
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5377#       发表于 2020-6-25 09:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47944037&amp;ptid=1856998" target="_blank">AincradWanderer 发表于 2020-6-25 09:19</a>
@@ -16716,16 +11041,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 其实任务还好，如果机神界的精英没杀全比较亏，那等于一周目255币就到达不了了
 
 
-
-
-
-
-
 -----
 
 ####  空虚的祈祷  
 ##### 5378#       发表于 2020-6-25 09:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47944069&amp;ptid=1856998" target="_blank">zyxsqw 发表于 2020-6-25 09:23</a>
@@ -16736,16 +11055,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 机神界那么大张地图感情就只是张限时迷宫啊......
 
 
-
-
-
-
-
 -----
 
 ####  七氷  
 ##### 5379#       发表于 2020-6-25 09:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47944134&amp;ptid=1856998" target="_blank">空虚的祈祷 发表于 2020-6-25 09:31</a>
@@ -16753,16 +11066,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 跟着保姆线
 
 
-
-
-
-
-
 -----
 
 ####  AincradWanderer  
 ##### 5380#       发表于 2020-6-25 09:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47944119&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-25 09:29</a>
@@ -16772,27 +11079,15 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  Dreki  
 ##### 5381#       发表于 2020-6-25 15:54
 
 
-
-
 刚通关，之前看有人最终boss打不过我专门炼了一小时珠子才去打，结果压在77级就一通乱按技能滚死了......有点索然无味<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -16801,15 +11096,9 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5382#       发表于 2020-6-25 15:59
 
 
-
 <blockquote>Dreki 发表于 2020-6-25 15:54
 刚通关，之前看有人最终boss打不过我专门炼了一小时珠子才去打，结果压在77级就一通乱按技能滚死了......有 ...</blockquote>
 下调几级
-
-
-
-
-
 
 
 -----
@@ -16818,16 +11107,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5383#       发表于 2020-6-25 16:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47948070&amp;ptid=1856998" target="_blank">Dreki 发表于 2020-6-25 15:54</a>
 
 刚通关，之前看有人最终boss打不过我专门炼了一小时珠子才去打，结果压在77级就一通乱按技能滚死了......有 ...</blockquote>
 他82级，你77级刚好没有6级的惩罚，基本就是乱打了
-
-
-
-
-
 
 
 -----
@@ -16836,23 +11119,15 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5384#       发表于 2020-6-25 16:36
 
 
-
-
 说到机神界的精英怪......圆桌骑士齐了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 (感觉b格最高的还是加拉哈德，直接拿来命名要塞)
-
-
-
-
-
 
 
 -----
 
 ####  AincradWanderer  
 ##### 5385#       发表于 2020-6-25 17:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47948447&amp;ptid=1856998" target="_blank">RUANHYC 发表于 2020-6-25 16:36</a>
@@ -16864,17 +11139,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  cmnewfan  
 ##### 5386#       发表于 2020-6-25 17:32
-
-
 
 
 70级之后去哪里练级？要么是低级的，要么就是90多级吓死人的。。。
@@ -16884,26 +11152,15 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 —— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next) v1.2.1-debug
 
 
-
-
-
-
-
 -----
 
 ####  希望之异热同心  
 ##### 5387#       发表于 2020-6-25 17:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">不邪道练级经验真的好少啊，64级打加德砍不动砍不中，是不是带点命中宝石好点，天赋和物理战技靠莫纳德还赶得上躲。。但以太战技没技能躲只能用恺减伤。。是不是要去练练级打？
 
 —— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -16912,24 +11169,15 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5388#       发表于 2020-6-25 17:56
 
 
-
-
 60多级多调配下技能和宝石，通关是没问题的。
 
 这游戏我看了两个人的直播，一个是泥潭唯一指定，一个是叫哈尼他姐的女主播，都是直接莽完的。
-
-
-
-
-
 
 
 -----
 
 ####  乱山残照  
 ##### 5389#       发表于 2020-6-25 17:57
-
-
 
 
 麻了，做了一天支线和复兴，结果打到建筑4那古董二极管没法拿，进不了机神界就算了，给个NPC殖民地6 5星以后才能换我还换个锤子，建筑不到4星救不了皇都人，还救nmb，主线通了不玩了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
@@ -16939,16 +11187,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 但是游玩体验7分不能再多了
 
 
-
-
-
-
-
 -----
 
 ####  風卷豹  
 ##### 5390#       发表于 2020-6-25 18:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47949070&amp;ptid=1856998" target="_blank">cmnewfan 发表于 2020-6-25 17:32</a>
@@ -16960,16 +11202,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 —— 来自 blackshark SKR-A0, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  风水回廊  
 ##### 5391#       发表于 2020-6-25 18:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47949356&amp;ptid=1856998" target="_blank">乱山残照 发表于 2020-6-25 17:57</a>
@@ -16980,27 +11216,15 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 如果是同步流程做完全支线那完全可以无视机神区小怪的，或者说等级上可以无视任何流程小怪。我做全支线，流程中的小怪从来都是想打就打，不想打直接贴脸走。
 
 
-
-
-
-
-
 -----
 
 ####  椎名mahuyo  
 ##### 5392#       发表于 2020-6-25 18:18
 
 
-
-
 70级跟着主线去巨神内部刷怪了，80级巨神脚刷猩猩
 
 其实你做支线和复兴总能找到些你等级打着适合的怪
-
-
-
-
-
 
 
 -----
@@ -17009,21 +11233,13 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5393#       发表于 2020-6-25 18:32
 
 
-
-
 通关了，前面把17章前的支线照着攻略都做的差不多了，殖民地6复兴一个5，3个4，想想把隐藏性格全开了就封盘了
-
-
-
-
-
 
 
 -----
 
 ####  乱山残照  
 ##### 5394#       发表于 2020-6-25 18:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47949564&amp;ptid=1856998" target="_blank">风水回廊 发表于 2020-6-25 18:14</a>
@@ -17033,16 +11249,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 主要是不知道先得吹个逼才能开后续任务，我还纳闷宝珠爷爷这要我复兴殖民地没地去，昨天才跟朱朱对话才出，进机神界之后大概级数跟小怪差不太多吧，为了控制等级我也是只打支线怪和精英，到工厂那看见小怪等级跟我差不多了干脆把经验清了进阶模式关了。帝都清完支线过了主线出来也才68，不知道是不是前期压经验满了，进雪山的时候压在42级用梅里亚摸图的时候没注意到了主线附近没存档被穆穆卡一顿暴揍过。到了机神界想捡东西或者调查结果被追着捡不了，或者想打精英/支线怪也把别的一起拉过来了
 
 
-
-
-
-
-
 -----
 
 ####  椎名mahuyo  
 ##### 5395#       发表于 2020-6-25 21:49
-
 
 
  本帖最后由 椎名mahuyo 于 2020-6-25 21:52 编辑 
@@ -17052,27 +11262,15 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 艹 找到了 钢板下面，应该这游戏最容易错过的NPC了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  苍蓝之枪  
 ##### 5396#       发表于 2020-6-25 22:01
 
 
-
-
 目标把所有宝石做4个，部分做6个
 
 还差五个
-
-
-
-
-
 
 
 -----
@@ -17081,14 +11279,7 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5397#       发表于 2020-6-25 22:03
 
 
-
-
 请问巨人族的三大秘宝都集齐了，这个有什么用？
-
-
-
-
-
 
 
 -----
@@ -17097,23 +11288,16 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5398#       发表于 2020-6-25 22:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47952431&amp;ptid=1856998" target="_blank">西多士 发表于 2020-6-25 22:03</a>
 
 请问巨人族的三大秘宝都集齐了，这个有什么用？</blockquote>
 用来开各种门,之前各种地图上打不开的那些
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5399#       发表于 2020-6-25 22:59
-
 
 
  本帖最后由 塔奇克马 于 2020-6-25 23:01 编辑 
@@ -17129,33 +11313,19 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 但是这些没多少人会注意到.
 
 
-
-
-
-
-
-
 -----
 
 ####  Dreki  
 ##### 5400#       发表于 2020-6-25 23:51
 
 
-
-
 通关之后重温了下xb2剧情，看到好多人说rex捡的身份证是梅纳斯的，这个的依据是在哪？
-
-
-
-
-
 
 
 -----
 
 ####  乱山残照  
 ##### 5401#       发表于 2020-6-26 02:58
-
 
 
  本帖最后由 乱山残照 于 2020-6-26 03:23 编辑 
@@ -17167,17 +11337,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 通完马上开了相连的未来，这羁绊对话一点开就有真是泪目，矿也能直接挖石头出来了也没有人物羁绊图了，力奇的孩子也好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  本职是魔法使  
 ##### 5402#       发表于 2020-6-26 03:12
-
-
 
 
 那个什么菲奥伦，在修尔克心中很重要么.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">虽然卡姐和大舅子疯狂助攻，还是梅机会
@@ -17185,17 +11348,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  mjzs07  
 ##### 5403#       发表于 2020-6-26 03:59
-
-
 
 
 梅里亚接任务
@@ -17206,16 +11362,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Hieda  
 ##### 5404#       发表于 2020-6-26 08:45
-
 
 
  本帖最后由 Hieda 于 2020-6-26 08:46 编辑 
@@ -17224,25 +11374,14 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 但很费解的是都玩到通关了也没找到菲奥伦剩下几个技能的二层解锁书<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  没取名啊  
 ##### 5405#       发表于 2020-6-26 09:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47949356&amp;ptid=1856998" target="_blank"> 乱山残照 发表于 2020-6-25 17:57</a> 麻了，做了一天支线和复兴，结果打到建筑4那古董二极管没法拿，进不了机神界就算了，给个NPC殖民地6 5星以后才能换我还换个锤子，建筑不到4星救不了皇都人，还救nmb，主线通了不玩了 数了一下这弱智支线我都做了357个了，支线做多了又怕影响难度来来回回调级，进了机神界那堆机器密度也太大了，几个飞行器仇恨真是穷追不舍。一下打一堆打完又怕经验溢出，还得照顾不同队友的羁绊。 传送点那么少跑图真的好累，我喜 </blockquote>
 梅娜斯不挡的话大伙就要被干掉了吧，和小王子那种开了防护罩还往外跑的更合理一些来自: iPhone客户端
-
-
-
-
-
 
 
 -----
@@ -17251,16 +11390,9 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5406#       发表于 2020-6-26 10:57
 
 
-
-
 防具上打抗性宝石应该上哪些？
 
 —— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -17269,21 +11401,13 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5407#       发表于 2020-6-26 11:02
 
 
-
-
 全异常抗性可以覆盖绝大多说，然后视情况要不要带倒地抗性
-
-
-
-
-
 
 
 -----
 
 ####  deathomega  
 ##### 5408#       发表于 2020-6-26 11:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47949356&amp;ptid=1856998" target="_blank">乱山残照 发表于 2020-6-25 17:57</a>
@@ -17294,16 +11418,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  LT_Harry  
 ##### 5409#       发表于 2020-6-26 11:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47956328&amp;ptid=1856998" target="_blank">Hieda 发表于 2020-6-26 08:45</a>
@@ -17314,25 +11432,13 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 技能书有些要靠 9 号殖民地提升商业等级解锁，或者不断挑战特定的敌人等掉落物（可以直接升到10级上限），或者更省事——找诺彭大仙人拿水晶一口气换到极限等级。
 
 
-
-
-
-
-
 -----
 
 ####  hugosol  
 ##### 5410#       发表于 2020-6-26 11:10
 
 
-
-
 感觉地图引导做得太好也没意思……要是支线那些东西只把位置标出来不显示路线的话，感觉探索的乐趣可能会好很多……
-
-
-
-
-
 
 
 -----
@@ -17341,15 +11447,9 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5411#       发表于 2020-6-26 11:12
 
 
-
 <blockquote>hugosol 发表于 2020-6-26 11:10
 感觉地图引导做得太好也没意思……要是支线那些东西只把位置标出来不显示路线的话，感觉探索的乐趣可能会好 ...</blockquote>
 引导线可以关的，“按＋”→“选项”→“显示设定”
-
-
-
-
-
 
 
 -----
@@ -17358,16 +11458,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5412#       发表于 2020-6-26 11:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47957542&amp;ptid=1856998" target="_blank">3D烧 发表于 2020-6-26 11:12</a>
 
 引导线可以关的，“按＋”→“选项”→“显示设定”</blockquote>
 自己屏蔽掉就有点掩耳盗铃的味道了……虽然大概明白这是面向轻度玩家群体来妥协，但我感觉支线这类本来就是引导你去探索地图的内容，做得太傻瓜式了反而就剥夺了乐趣
-
-
-
-
-
 
 
 -----
@@ -17376,15 +11470,9 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5413#       发表于 2020-6-26 11:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">总算本体dlc都通了，dlc结局里菲奥伦是吃醋了吗还是母性发作一直担心出事结果在那里闹别扭了
 
 —— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -17393,15 +11481,9 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5414#       发表于 2020-6-26 11:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47956697&amp;ptid=1856998" target="_blank">没取名啊 发表于 2020-6-26 09:37</a>
 梅娜斯不挡的话大伙就要被干掉了吧，和小王子那种开了防护罩还往外跑的更合理一些 ...</blockquote>
 我说的是前面帮穆穆卡挡那一刀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然知道用意，但是感觉表现出来还是有点突兀了
-
-
-
-
-
 
 
 -----
@@ -17410,14 +11492,7 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5415#       发表于 2020-6-26 11:31
 
 
-
-
 感觉梅里亚因为性格原因真就全压在心里不说啊，我怀疑修尔克那雷达根本感觉不到梅里亚喜欢他，加上菲奥伦这么主动，完全梅希望。尼亚至少A了一波啊
-
-
-
-
-
 
 
 -----
@@ -17426,15 +11501,9 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5416#       发表于 2020-6-26 11:40
 
 
-
 <blockquote>hugosol 发表于 2020-6-26 11:19
 自己屏蔽掉就有点掩耳盗铃的味道了……虽然大概明白这是面向轻度玩家群体来妥协，但我感觉支线这类本来就 ...</blockquote>
 关掉就是你要的效果了，只显示位置，不显示引导路线。而且任务说明里会有一些位置的提示。
-
-
-
-
-
 
 
 -----
@@ -17443,23 +11512,16 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5417#       发表于 2020-6-26 11:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47957740&amp;ptid=1856998" target="_blank">乱山残照 发表于 2020-6-26 11:31</a>
 
 感觉梅里亚因为性格原因真就全压在心里不说啊，我怀疑修尔克那雷达根本感觉不到梅里亚喜欢他，加上菲奥伦这 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她不说我也看不出来
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5418#       发表于 2020-6-26 11:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47957740&amp;ptid=1856998" target="_blank">乱山残照 发表于 2020-6-26 11:31</a>
@@ -17472,16 +11534,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 "呵"
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5419#       发表于 2020-6-26 11:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47957620&amp;ptid=1856998" target="_blank">hugosol 发表于 2020-6-26 11:19</a>
@@ -17490,16 +11546,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 但是也没啥好的办法啊，给你选择也比没有好了，想想看支线如果没有指引根本没法做下去。
 
 
-
-
-
-
-
 -----
 
 ####  hugosol  
 ##### 5420#       发表于 2020-6-26 12:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47957740&amp;ptid=1856998" target="_blank">乱山残照 发表于 2020-6-26 11:31</a>
@@ -17508,25 +11558,13 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 主角队里除了修尔克其他人都知道梅利亚喜欢他吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mjzs07  
 ##### 5421#       发表于 2020-6-26 12:22
 
 
-
-
 丹邦跟梅里亚在诺鹏村顶部对话，可以选修尔克的话题，然后梅里亚就急了
-
-
-
-
-
 
 
 -----
@@ -17535,23 +11573,16 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5422#       发表于 2020-6-26 12:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47958276&amp;ptid=1856998" target="_blank">hugosol 发表于 2020-6-26 12:18</a>
 
 主角队里除了修尔克其他人都知道梅利亚喜欢他吧</blockquote>
 除了莱恩这个铁憨憨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">在皇宫有个牵绊对话还对梅莉亚说当初是我怂恿大家去墓地找你的（不是修尔克），梅莉亚听后大失所望
 
 
-
-
-
-
-
 -----
 
 ####  乱山残照  
 ##### 5423#       发表于 2020-6-26 12:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47958276&amp;ptid=1856998" target="_blank">hugosol 发表于 2020-6-26 12:18</a>
@@ -17562,16 +11593,10 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 最后一个人看着大海发呆有够心疼的，爹没了哥哥没了故乡也没了
 
 
-
-
-
-
-
 -----
 
 ####  秋月孝三  
 ##### 5424#       发表于 2020-6-26 12:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47957639&amp;ptid=1856998" target="_blank">reimei 发表于 2020-6-26 11:20</a>
@@ -17585,25 +11610,13 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 没想到两个人在巨神肩玩了大半个月才回去<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Troywest  
 ##### 5425#       发表于 2020-6-26 12:49
 
 
-
-
 话说梅利亚加冕后应该就住在巨神肩了吧，意思是彻底没戏了？
-
-
-
-
-
 
 
 -----
@@ -17612,14 +11625,7 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5426#       发表于 2020-6-26 12:58
 
 
-
-
 掉落在殖民地9的运输船是不是三圣搞的鬼?
-
-
-
-
-
 
 
 -----
@@ -17628,15 +11634,8 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5427#       发表于 2020-6-26 13:28
 
 
-
-
 雷恩和卡露娜的好感对后期有影响吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这大块头看见了个胸大寡妇就不正常了，羁绊对话选项好想让他滚远点
-
-
-
-
-
 
 
 -----
@@ -17645,23 +11644,15 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5428#       发表于 2020-6-26 13:33
 
 
-
-
 宝石刷挑战找大仙人换其实效率最高？
 
 —— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
 
 ####  秋月孝三  
 ##### 5429#       发表于 2020-6-26 13:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47958966&amp;ptid=1856998" target="_blank">希望之异热同心 发表于 2020-6-26 13:33</a>
@@ -17673,27 +11664,15 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 大仙人那里最高只能换到数值最低的5级宝石
 
 
-
-
-
-
-
 -----
 
 ####  BQlin  
 ##### 5430#       发表于 2020-6-26 14:03
 
 
-
-
 十七章的支线也太多了，前面几章在机神界那边都没什么支线
 
 跟小怪的等级差距也变得很大，虽然单挑并不难打
-
-
-
-
-
 
 
 -----
@@ -17702,16 +11681,9 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5431#       发表于 2020-6-26 14:09
 
 
-
-
 后期修尔克开了英雄性格最后一个性格感觉就无敌了，只要出了未来视我就开技能挡住，用这招80几级把几个95左右的任务怪都耗死了
 
 等级差得大真的难受，以太技能就算连了无心都各种被抵抗，全靠苟
-
-
-
-
-
 
 
 -----
@@ -17720,16 +11692,9 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5432#       发表于 2020-6-26 15:39
 
 
-
-
 对地图清了一遍精英怪，差4个，估计是漏在机神界了.....
 
 这打没打过都不知道
-
-
-
-
-
 
 
 -----
@@ -17738,21 +11703,13 @@ Screenshot_2020-06-24-07-18-51-72_0b2fce7a16bf2b728d6ffa28c8d60efb.png
 ##### 5433#       发表于 2020-6-26 16:05
 
 
-
-
 fc太无聊了，速度通关回本篇了
-
-
-
-
-
 
 
 -----
 
 ####  Arccueid  
 ##### 5434#       发表于 2020-6-26 16:16
-
 
 
  本帖最后由 Arccueid 于 2020-6-26 16:17 编辑 
@@ -17764,16 +11721,10 @@ fc太无聊了，速度通关回本篇了
 没办法，没墓碑只有对着一个一个清了。其实如果认真玩的话基本只会漏前期的冠名，因为前期等级低手段少基本上不会专门舔图杀冠名。从机神界开始基本上都会有印象，后期高级的更不用说了。
 
 
-
-
-
-
-
 -----
 
 ####  AincradWanderer  
 ##### 5435#       发表于 2020-6-26 18:53
-
 
 
 <img src="https://s1.ax1x.com/2020/06/26/Ns16hQ.jpg" referrerpolicy="no-referrer">
@@ -17787,33 +11738,19 @@ fc太无聊了，速度通关回本篇了
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">路漫漫其修远兮
 
 
-
-
-
-
-
-
 -----
 
 ####  kzf  
 ##### 5436#       发表于 2020-6-26 18:59
 
 
-
-
 楼上的重量都太重啦，赶紧到性格里选减轻的吧，一身重甲重量零才对嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Arccueid  
 ##### 5437#       发表于 2020-6-26 19:02
-
 
 
  本帖最后由 Arccueid 于 2020-6-26 19:08 编辑 
@@ -17828,19 +11765,10 @@ fc太无聊了，速度通关回本篇了
 还有重量确实太重了，靠性格减到0的性价比比常驻敏捷性格还要高的多
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  AincradWanderer  
 ##### 5438#       发表于 2020-6-26 19:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47962074&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-26 19:02</a>
@@ -17852,16 +11780,10 @@ fc太无聊了，速度通关回本篇了
 反噬防御这个确实可以考虑，当初让我下决心开休闲模式的就是海恩塔墓地的塔鲁可+特雷西亚战<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5439#       发表于 2020-6-26 19:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47962211&amp;ptid=1856998" target="_blank">AincradWanderer 发表于 2020-6-26 19:16</a>
@@ -17872,16 +11794,10 @@ fc太无聊了，速度通关回本篇了
 印象中开休闲模式是没有等级差的命中惩罚的
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5440#       发表于 2020-6-26 19:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47959342&amp;ptid=1856998" target="_blank">椎名mahuyo 发表于 2020-6-26 14:09</a>
@@ -17892,25 +11808,13 @@ fc太无聊了，速度通关回本篇了
 而且连锁打dot流两次毒前面前戏都是上睡眠，保证毒必暴，被睡眠的怪本身就是必中，睡眠这个技能也是必中，所以只要没有睡眠抵抗的怪物用以太流打连携秒杀基本上就算不链无心也是两次毒max必中的。
 
 
-
-
-
-
-
 -----
 
 ####  苍蓝之枪  
 ##### 5441#       发表于 2020-6-26 19:25
 
 
-
-
 刷大仙人点数有没有什么操作量比较小的刷法么，虽然打一局30秒也不算长，但是要专注操作，本想同时看个片的
-
-
-
-
-
 
 
 -----
@@ -17919,14 +11823,7 @@ fc太无聊了，速度通关回本篇了
 ##### 5442#       发表于 2020-6-26 19:29
 
 
-
-
 夜间命中是从哪挖的
-
-
-
-
-
 
 
 -----
@@ -17935,16 +11832,10 @@ fc太无聊了，速度通关回本篇了
 ##### 5443#       发表于 2020-6-26 19:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47962363&amp;ptid=1856998" target="_blank">3D烧 发表于 2020-6-26 19:29</a>
 
 夜间命中是从哪挖的</blockquote>
 挖不到，太古的迪达拉掉
-
-
-
-
-
 
 
 -----
@@ -17953,16 +11844,10 @@ fc太无聊了，速度通关回本篇了
 ##### 5444#       发表于 2020-6-26 19:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47962363&amp;ptid=1856998" target="_blank">3D烧 发表于 2020-6-26 19:29</a>
 
 夜间命中是从哪挖的</blockquote>
 夜间命中只有4级和6级有差别，4级大森林就有，2颗拉满。6级只有太古掉，1颗拉满。
-
-
-
-
-
 
 
 -----
@@ -17971,23 +11856,16 @@ fc太无聊了，速度通关回本篇了
 ##### 5445#       发表于 2020-6-26 19:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47962363&amp;ptid=1856998" target="_blank">3D烧 发表于 2020-6-26 19:29</a>
 
 夜间命中是从哪挖的</blockquote>
 17章-坠落巨臂-残骸海滨-105级机神兵冠名者掉落
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5446#       发表于 2020-6-26 19:35
-
 
 
  本帖最后由 Arccueid 于 2020-6-26 19:38 编辑 
@@ -18000,25 +11878,13 @@ fc太无聊了，速度通关回本篇了
 如果控制好点上打背6宝石，绕背可以直接秒，一把十秒左右。队友上两个物抗减6，全程只用按4个键，开战qte-狂战士-换弹-剑刃。
 
 
-
-
-
-
-
 -----
 
 ####  3D烧  
 ##### 5447#       发表于 2020-6-26 19:36
 
 
-
-
 好的，谢谢
-
-
-
-
-
 
 
 -----
@@ -18027,21 +11893,13 @@ fc太无聊了，速度通关回本篇了
 ##### 5448#       发表于 2020-6-26 19:38
 
 
-
-
 不用加命中的感觉打死暴君亚森（兔子）已经就是极限了，雪山那个又厚又疼了，士气一低太难搞了
-
-
-
-
-
 
 
 -----
 
 ####  Arccueid  
 ##### 5449#       发表于 2020-6-26 19:40
-
 
 
  本帖最后由 Arccueid 于 2020-6-26 19:44 编辑 
@@ -18051,17 +11909,10 @@ fc太无聊了，速度通关回本篇了
 120吗？士气其实让利奇点满勇气嗼无限开光环就不会掉了，然后主控修尔克天赋爆破宝石无限覆盖铠，这应该是最平民的非无限倒转/连携秒杀的击杀方式。不过命中本身是需要夜间命中宝石的，否则不管士气打不到也打不死。
 
 
-
-
-
-
-
-
 -----
 
 ####  苍蓝之枪  
 ##### 5450#       发表于 2020-6-26 19:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47962423&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-26 19:35</a>
@@ -18070,32 +11921,19 @@ fc太无聊了，速度通关回本篇了
 难道是我配装不对？试了下按你说的这套配置背斩一刀也就打半血啊
 
 
-
-
-
-
-
 -----
 
 ####  AincradWanderer  
 ##### 5451#       发表于 2020-6-26 20:03
 
 
-
-
 草，菲奥伦唯一的加速装备速度V型骨架被我卖掉了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Arccueid  
 ##### 5452#       发表于 2020-6-26 20:05
-
 
 
  本帖最后由 Arccueid 于 2020-6-26 20:11 编辑 
@@ -18110,26 +11948,15 @@ fc太无聊了，速度通关回本篇了
 流程可以参考fumo的[https://www.bilibili.com/video/BV1mz4y1Q7bh?p=2](https://www.bilibili.com/video/BV1mz4y1Q7bh?p=2)，enel也录了差不多的，连刷3把基本最多不超过15秒，很稳定。
 
 
-
-
-
-
-
 -----
 
 ####  3D烧  
 ##### 5453#       发表于 2020-6-26 20:08
 
 
-
 <blockquote>Arccueid 发表于 2020-6-26 19:40
 120吗？士气其实让利奇点满勇气嗼无限开光环就不会掉了，然后主控修尔克天赋爆破宝石无限覆盖铠，这应该是 ...</blockquote>
 草，太古的迪达拉打到最后狂暴了，翻车了。。
-
-
-
-
-
 
 
 -----
@@ -18138,16 +11965,10 @@ fc太无聊了，速度通关回本篇了
 ##### 5454#       发表于 2020-6-26 20:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47962822&amp;ptid=1856998" target="_blank">3D烧 发表于 2020-6-26 20:08</a>
 
 草，太古的迪达拉打到最后狂暴了，翻车了。。</blockquote>
 太古直接用倒地流打最简单，去找85的战鹰刷点倒地延长宝石。
-
-
-
-
-
 
 
 -----
@@ -18156,16 +11977,10 @@ fc太无聊了，速度通关回本篇了
 ##### 5455#       发表于 2020-6-26 20:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47962762&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-26 20:05</a>
 
 哦，漏了倒地。基本配置99级，最高的武器，装备宝石必备两个力量6，加速6护腕，武器上天赋爆破6，打背6， ...</blockquote>
 太可怕了，调整了下一刀2/3，我看看还欠缺了些啥
-
-
-
-
-
 
 
 -----
@@ -18174,14 +11989,7 @@ fc太无聊了，速度通关回本篇了
 ##### 5456#       发表于 2020-6-26 20:23
 
 
-
-
 还差1/10没秒掉，再找找还有啥增伤手段
-
-
-
-
-
 
 
 -----
@@ -18190,23 +11998,16 @@ fc太无聊了，速度通关回本篇了
 ##### 5457#       发表于 2020-6-26 20:36
 
 
-
 <img src="https://s1.ax1x.com/2020/06/26/NsDEWt.png" referrerpolicy="no-referrer">
 
 
 龟龟，我都忘了加速宝石是可以刷出来的，这样看来最高增速应该是50%了
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5458#       发表于 2020-6-26 20:39
-
 
 
  本帖最后由 Arccueid 于 2020-6-26 20:41 编辑 
@@ -18218,16 +12019,10 @@ fc太无聊了，速度通关回本篇了
 一颗6级就满了，用护腕就够了，优势在不占武器的槽。具体满不满你如果懒得查可以看人物面板右下角，绿色就是满了。基本上常用的宝石里，只有热量消退，尖刺防御，力量/以太是要2颗，其他基本上都是一颗满。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  AincradWanderer  
 ##### 5459#       发表于 2020-6-26 20:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47963221&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-26 20:39</a>
@@ -18236,16 +12031,10 @@ fc太无聊了，速度通关回本篇了
 确实，仔细一看加速宝石是武器限定宝石，武器孔位本身就够紧张了，还是用荣耀护腕吧
 
 
-
-
-
-
-
 -----
 
 ####  BigLittle1999  
 ##### 5460#       发表于 2020-6-26 23:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47943995&amp;ptid=1856998" target="_blank">空虚的祈祷 发表于 2020-6-25 09:13</a>
@@ -18254,17 +12043,10 @@ fc太无聊了，速度通关回本篇了
 我也是被这个任务给坑了，对着excel做全支线就差这个和帝都的历史，那个excel没写要早点接啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  绿冰  
 ##### 5461#       发表于 2020-6-26 23:13
-
-
 
 
 主线到了艾尔特海，对照了半天也搞不明白巨神肩的方位
@@ -18274,17 +12056,10 @@ fc太无聊了，速度通关回本篇了
 那么皇都在崩落后是飞到另一面吗，修尔克是怎么推测出位置的
 
 
-
-
-
-
-
 -----
 
 ####  空虚的祈祷  
 ##### 5462#       发表于 2020-6-26 23:35
-
-
 
 
 通关主线了，106小时，看到的支线全刷完了，所有地区牵绊也升满了，因为早期没想太多就去把全员牵绊刷满，结果后来意识到这样就没法分离宝珠了，于是放弃追求强度上的完美了，四天王也不打了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -18296,16 +12071,10 @@ fc太无聊了，速度通关回本篇了
 该去打梅希望扳回一城又被反杀的后传了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5463#       发表于 2020-6-26 23:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965588&amp;ptid=1856998" target="_blank">空虚的祈祷 发表于 2020-6-26 23:35</a>
@@ -18314,16 +12083,10 @@ fc太无聊了，速度通关回本篇了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实可以降好感的，送东西 
 
 
-
-
-
-
-
 -----
 
 ####  空虚的祈祷  
 ##### 5464#       发表于 2020-6-26 23:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965619&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-26 23:37</a>
@@ -18332,16 +12095,10 @@ fc太无聊了，速度通关回本篇了
 从满好感降下来那得送多少东西啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5465#       发表于 2020-6-26 23:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965653&amp;ptid=1856998" target="_blank">空虚的祈祷 发表于 2020-6-26 23:40</a>
@@ -18350,18 +12107,10 @@ fc太无聊了，速度通关回本篇了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一颗心是10还是20，算算呗
 
 
-
-
-
-
-
-
 -----
 
 ####  BigLittle1999  
 ##### 5466#       发表于 2020-6-26 23:44
-
-
 
 
 提几个问题，一周目剧情通关之后，是要先把那些新的任务和boss打了，还是直接进后日谈？听说后日谈能把技能升级到12级（？），这个对本体的技能等级有影响吗
@@ -18371,16 +12120,10 @@ fc太无聊了，速度通关回本篇了
 最顶级的宝珠是打怪掉的还是自己熔的？现在就合出来一个六级攻击，加80点，好像还不是满的？
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5467#       发表于 2020-6-26 23:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965714&amp;ptid=1856998" target="_blank">BigLittle1999 发表于 2020-6-26 23:44</a>
@@ -18392,13 +12135,9 @@ fc太无聊了，速度通关回本篇了
 除非绑定宝石的U型装备会有自带6级，正常用的最高级必须自己做，不过素材大部分是高级怪掉的，少部分是后期图或者复兴自然5挖矿得到的。只要练到300%就必然是满的，反正要炼6级至少也要200%，要求也不高。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -18408,12 +12147,7 @@ fc太无聊了，速度通关回本篇了
 | BigLittle1999| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -18422,14 +12156,7 @@ fc太无聊了，速度通关回本篇了
 ##### 5468#       发表于 2020-6-26 23:51
 
 
-
-
 喷了，研究了一下发现梅里亚还有把武器必须第十章上飞船之前找哥哥对话才能拿，这游戏对强迫症患者也太不友好了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18438,16 +12165,9 @@ fc太无聊了，速度通关回本篇了
 ##### 5469#       发表于 2020-6-27 00:11
 
 
-
-
 断断续续玩了快一个月了，还在帝都。
 
 这个游戏真是消磨时间利器，剧情还真比2代更正统，更回味些。虽然设计一言难尽，有时根本不敢推主线
-
-
-
-
-
 
 
 -----
@@ -18456,14 +12176,7 @@ fc太无聊了，速度通关回本篇了
 ##### 5470#       发表于 2020-6-27 00:20
 
 
-
-
 端午节高强度刷支线快要昏迷了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18472,14 +12185,7 @@ fc太无聊了，速度通关回本篇了
 ##### 5471#       发表于 2020-6-27 00:24
 
 
-
-
 把主线通了，这代战斗系统还是多喜欢的，希望续作能把二代音游爽和一代技能连协都结合起来的系统，这代后期用游戏机制打高等级的怪还蛮过瘾的。以后有3代的话支线希望能每个大地图搞个告示牌，接任务能瞬移过去接，不夸张的说，这代我用在接任务的时间都搞了五六个小时了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18488,23 +12194,15 @@ fc太无聊了，速度通关回本篇了
 ##### 5472#       发表于 2020-6-27 00:48
 
 
-
-
 还有两个人技能书没刷，明天应该可以刷完
 
 20秒一把，60局还是有点精污的
-
-
-
-
-
 
 
 -----
 
 ####  zjoi  
 ##### 5473#       发表于 2020-6-27 01:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965588&amp;ptid=1856998" target="_blank">空虚的祈祷 发表于 2020-6-26 23:35</a>
@@ -18518,17 +12216,10 @@ fc太无聊了，速度通关回本篇了
 即便是一开始的晶体纯度太高，也可以多塞点其他垃圾晶体进去凑数，来回SL几次，也能分离出来的
 
 
-
-
-
-
-
 -----
 
 ####  穿着熊  
 ##### 5474#       发表于 2020-6-27 10:09
-
-
 
 
 新改的冠名曲里的小号估计是仿的ff7战斗闘う者达，一个味
@@ -18537,17 +12228,10 @@ fc太无聊了，速度通关回本篇了
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  本职是魔法使  
 ##### 5475#       发表于 2020-6-27 11:21
-
-
 
 
 我现在碰到boss的等级都高我4-5级了，我是不是该刷支线了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
@@ -18555,16 +12239,10 @@ fc太无聊了，速度通关回本篇了
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5476#       发表于 2020-6-27 11:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47969295&amp;ptid=1856998" target="_blank">本职是魔法使 发表于 2020-6-27 11:21</a>
@@ -18576,25 +12254,13 @@ fc太无聊了，速度通关回本篇了
 炼点宝石高6级内都是砍瓜切菜.
 
 
-
-
-
-
-
 -----
 
 ####  ZyLintheMax  
 ##### 5477#       发表于 2020-6-27 14:09
 
 
-
-
 求问加速6护腕刷哪里掉？
-
-
-
-
-
 
 
 -----
@@ -18603,16 +12269,10 @@ fc太无聊了，速度通关回本篇了
 ##### 5478#       发表于 2020-6-27 14:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47971025&amp;ptid=1856998" target="_blank">ZyLintheMax 发表于 2020-6-27 14:09</a>
 
 求问加速6护腕刷哪里掉？</blockquote>
 那个松鼠的四天王和雪山黑龙旁边的那个巨人精英
-
-
-
-
-
 
 
 -----
@@ -18621,15 +12281,9 @@ fc太无聊了，速度通关回本篇了
 ##### 5479#       发表于 2020-6-27 14:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47971152&amp;ptid=1856998" target="_blank">Ditfran 发表于 2020-6-27 14:19</a>
 那个松鼠的四天王和雪山黑龙旁边的那个巨人精英</blockquote>
 好的谢谢
-
-
-
-
-
 
 
 -----
@@ -18638,23 +12292,15 @@ fc太无聊了，速度通关回本篇了
 ##### 5480#       发表于 2020-6-27 16:13
 
 
-
-
 机神里面那只王城的xxxx精英怪怎么打。。。有一招aoe物理战技怎么躲。。。又不给击倒
 
 —— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
 
 ####  塔奇克马  
 ##### 5481#       发表于 2020-6-27 16:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47972200&amp;ptid=1856998" target="_blank">希望之异热同心 发表于 2020-6-27 16:13</a>
@@ -18666,16 +12312,10 @@ fc太无聊了，速度通关回本篇了
 —— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  椎名mahuyo  
 ##### 5482#       发表于 2020-6-27 16:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47972200&amp;ptid=1856998" target="_blank">希望之异热同心 发表于 2020-6-27 16:13</a>
@@ -18687,16 +12327,10 @@ fc太无聊了，速度通关回本篇了
 我是上铠硬扛的
 
 
-
-
-
-
-
 -----
 
 ####  Ditfran  
 ##### 5483#       发表于 2020-6-27 16:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47972200&amp;ptid=1856998" target="_blank">希望之异热同心 发表于 2020-6-27 16:13</a>
@@ -18708,16 +12342,10 @@ fc太无聊了，速度通关回本篇了
 最简单的方法就是站旁边高台打，就吃不到那招aoe
 
 
-
-
-
-
-
 -----
 
 ####  希望之异热同心  
 ##### 5484#       发表于 2020-6-27 17:08
-
 
 
  本帖最后由 希望之异热同心 于 2020-6-27 17:09 编辑 
@@ -18727,16 +12355,10 @@ fc太无聊了，速度通关回本篇了
 —— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5485#       发表于 2020-6-27 17:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47972792&amp;ptid=1856998" target="_blank">希望之异热同心 发表于 2020-6-27 17:08</a>
@@ -18750,32 +12372,19 @@ fc太无聊了，速度通关回本篇了
 你这等级差距不大,才这么点,性格连一连应该能补上去了
 
 
-
-
-
-
-
 -----
 
 ####  Ferb2012  
 ##### 5486#       发表于 2020-6-27 17:31
 
 
-
-
 请问有办法提高跑步速度吗，地图太大跑起来感觉比2代累多了
-
-
-
-
-
 
 
 -----
 
 ####  AincradWanderer  
 ##### 5487#       发表于 2020-6-27 17:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47973058&amp;ptid=1856998" target="_blank">Ferb2012 发表于 2020-6-27 17:31</a>
@@ -18785,16 +12394,10 @@ fc太无聊了，速度通关回本篇了
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  希望之异热同心  
 ##### 5488#       发表于 2020-6-27 17:57
-
 
 
  本帖最后由 希望之异热同心 于 2020-6-27 17:59 编辑 
@@ -18807,16 +12410,10 @@ fc太无聊了，速度通关回本篇了
 —— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  shawenn  
 ##### 5489#       发表于 2020-6-27 18:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599366&amp;ptid=1856998" target="_blank">tom2002hghg 发表于 2020-5-29 11:09</a>
@@ -18827,26 +12424,15 @@ fc太无聊了，速度通关回本篇了
 实在不好意思，但是权限不够，只能这里问您了，新人冬马党想问一下，是大佬您写的和纱短篇同人《护身符》吗？
 
 
-
-
-
-
-
 -----
 
 ####  绿冰  
 ##### 5490#       发表于 2020-6-27 18:42
 
 
-
 <blockquote>Ferb2012 发表于 2020-6-27 17:31
 请问有办法提高跑步速度吗，地图太大跑起来感觉比2代累多了</blockquote>
 移动速度的宝石，也可以链接力奇的技能
-
-
-
-
-
 
 
 -----
@@ -18855,22 +12441,14 @@ fc太无聊了，速度通关回本篇了
 ##### 5491#       发表于 2020-6-27 19:50
 
 
-
-
 第一次玩后知后觉我就是想吐槽下，这死人的地方的演出也太二了，人都要死了队友趴在地上就那么看着，还大喊呀咩咯，就是站不起来，然后人死了，你丫的站起来了活蹦乱跳没事了。
 我知道剧情上能自圆其说但是还是吃屎感萦绕不散。就不能改成被击飞了，太远了没赶上或者被小兵拖住了么，或者更好的是boss被突击给引走了来给主角回复的时间，非要弄这种脑残桥段恶心人
-
-
-
-
-
 
 
 -----
 
 ####  塔奇克马  
 ##### 5492#       发表于 2020-6-27 20:04
-
 
 
  本帖最后由 塔奇克马 于 2020-6-27 20:07 编辑 
@@ -18882,17 +12460,10 @@ fc太无聊了，速度通关回本篇了
 这厮无限招小怪,好像就有这么设计的意味
 
 
-
-
-
-
-
-
 -----
 
 ####  kiokio  
 ##### 5493#       发表于 2020-6-27 20:13
-
 
 
  本帖最后由 kiokio 于 2020-6-27 20:15 编辑 
@@ -18902,18 +12473,10 @@ fc太无聊了，速度通关回本篇了
 全队70级，她75级，物理砍不疼，上了梅莉亚起手一个召唤就OT，梅莉亚装了几个减仇恨宝石，莱恩已经减了重量加了命中，就是不用嘲讽，只要BOSS目标是梅莉亚一个单体技能就躺，还有个叫横扫的技能一出就全员倒地，梅莉亚血量不满也是秒。
 
 
-
-
-
-
-
-
 -----
 
 ####  BQlin  
 ##### 5494#       发表于 2020-6-27 20:19
-
-
 
 
 把任务清得差不多了，精英也只剩下监狱岛那边的
@@ -18926,17 +12489,10 @@ fc太无聊了，速度通关回本篇了
 还好是前期的一个天气限定怪，没花太多时间
 
 
-
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5495#       发表于 2020-6-27 20:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47975335&amp;ptid=1856998" target="_blank">kiokio 发表于 2020-6-27 20:13</a>
@@ -18956,25 +12512,13 @@ fc太无聊了，速度通关回本篇了
 不过可以参考下的
 
 
-
-
-
-
-
 -----
 
 ####  3D烧  
 ##### 5496#       发表于 2020-6-27 22:12
 
 
-
-
 114的贝加萨斯也打过了，用的丹邦 修尔克 力奇，愣生生从夜间打到白天，中间怪还狂暴了三次，每次都在翻车的边缘，最后硬生生用四个异常磨死了
-
-
-
-
-
 
 
 -----
@@ -18983,22 +12527,13 @@ fc太无聊了，速度通关回本篇了
 ##### 5497#       发表于 2020-6-27 22:35
 
 
-
-
 我佛了，未亡人最后一个性格好麻烦，还要绑定殖民地6的复兴度<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  苍蓝之枪  
 ##### 5498#       发表于 2020-6-27 23:59
-
-
 
 
 草死，二周目第一次打姆姆卡无限循环了，好像被倒转就锁血了
@@ -19008,17 +12543,10 @@ fc太无聊了，速度通关回本篇了
 感觉可以挂机鞭尸个半个小时
 
 
-
-
-
-
-
 -----
 
 ####  苍蓝之枪  
 ##### 5499#       发表于 2020-6-28 00:08
-
-
 
 
 我114和120都只打过去一次，120我菜刀队试了一次根本不行，晕不住，最后只能上力奇控
@@ -19026,16 +12554,10 @@ fc太无聊了，速度通关回本篇了
 前两个和这俩根本不是一个难度，暴君亚森最丢人，一套连锁下去直接只剩1/3血，我方还是满状态
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 5500#       发表于 2020-6-28 00:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47975335&amp;ptid=1856998" target="_blank">kiokio 发表于 2020-6-27 20:13</a>
@@ -19048,16 +12570,10 @@ fc太无聊了，速度通关回本篇了
 三菜刀队的以太速杀
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5501#       发表于 2020-6-28 00:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47978424&amp;ptid=1856998" target="_blank">苍蓝之枪 发表于 2020-6-28 00:08</a>
@@ -19068,16 +12584,10 @@ fc太无聊了，速度通关回本篇了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">120其实也挺菜的，利奇可以solo
 
 
-
-
-
-
-
 -----
 
 ####  zjoi  
 ##### 5502#       发表于 2020-6-28 01:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47978448&amp;ptid=1856998" target="_blank">森田美位子 发表于 2020-6-28 00:10</a>
@@ -19088,16 +12598,10 @@ https://youtu.be/vR9tuMawptQ
 他是这个怎么破罗兰的100%物理耐性的啊。。
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 5503#       发表于 2020-6-28 01:46
-
 
 
  本帖最后由 森田美位子 于 2020-6-28 01:47 编辑 
@@ -19107,26 +12611,15 @@ https://youtu.be/vR9tuMawptQ
 开场连携的几个攻击技能除了千刃天翔都是以太伤害，仔细看丹邦在普通状态下放千刃天翔前，能看到他身后的几个元素怪都空血了，然后一个千刃天翔就全部收走了4个小怪。如果连携状态下的那次千刃天翔没有被格挡（chain 4 状态下攻击中止），连携结束的时候罗兰就已经破防了
 
 
-
-
-
-
-
 -----
 
 ####  燃烧的石头  
 ##### 5504#       发表于 2020-6-28 01:51
 
 
-
 <blockquote>zjoi 发表于 2020-6-28 01:32
 他是这个怎么破罗兰的100%物理耐性的啊。。</blockquote>
 罗兰的物理耐性把旁边的小怪打了就会消了
-
-
-
-
-
 
 
 -----
@@ -19135,24 +12628,16 @@ https://youtu.be/vR9tuMawptQ
 ##### 5505#       发表于 2020-6-28 01:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47979261&amp;ptid=1856998" target="_blank">森田美位子 发表于 2020-6-28 01:46</a>
 
 开场连携的几个攻击技能除了千刃天翔都是以太伤害，仔细看丹邦在普通状态下放千刃天翔前，能看到他身后的 ...</blockquote>
 原来如此。。。
 
 
-
-
-
-
-
 -----
 
 ####  Zhangsmallquan  
 ##### 5506#       发表于 2020-6-28 03:28
-
-
 
 
 断断续续的终于把支线全部做完了。准备开始刷宝石清理精英怪硬币了，12级技能书纠结刷不刷好，感觉工程量好大。。。
@@ -19162,16 +12647,10 @@ https://youtu.be/vR9tuMawptQ
 虽然还没真的打完就已经开始有点空虚了，好想玩XB新作啊<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  希望之异热同心  
 ##### 5507#       发表于 2020-6-28 07:42
-
 
 
  本帖最后由 希望之异热同心 于 2020-6-28 07:43 编辑 
@@ -19184,16 +12663,10 @@ https://youtu.be/vR9tuMawptQ
 —— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  苍蓝之枪  
 ##### 5508#       发表于 2020-6-28 09:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47980042&amp;ptid=1856998" target="_blank">希望之异热同心 发表于 2020-6-28 07:42</a>
@@ -19205,25 +12678,13 @@ https://youtu.be/vR9tuMawptQ
 让队友停手后它还倒了5分钟，这倒地时间还能一直叠加的 
 
 
-
-
-
-
-
 -----
 
 ####  大喇叭花田  
 ##### 5509#       发表于 2020-6-28 11:05
 
 
-
-
 现在限定版的价格彻底崩了，没收的可以去收了。
-
-
-
-
-
 
 
 -----
@@ -19232,21 +12693,13 @@ https://youtu.be/vR9tuMawptQ
 ##### 5510#       发表于 2020-6-28 11:20
 
 
-
-
 可恶，定居点9的恋爱成就我到底应该帮谁……？
-
-
-
-
-
 
 
 -----
 
 ####  塔奇克马  
 ##### 5511#       发表于 2020-6-28 11:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47982123&amp;ptid=1856998" target="_blank">HGCG2 发表于 2020-6-28 11:20</a>
@@ -19256,17 +12709,10 @@ https://youtu.be/vR9tuMawptQ
 —— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  nerugigannte  
 ##### 5512#       发表于 2020-6-28 11:33
-
-
 
 
 打到森林那梅里亚刚入队
@@ -19274,16 +12720,10 @@ https://youtu.be/vR9tuMawptQ
 人物31-32级，唯一正常等级怪遇到有难度就是巨人墓地前的蜥蜴国王了，其他都是按着技能顺序感叹号按，其他技能随便按按就过了，我设置里看了圈也没看到难度选项，不想玩休闲难度，一般这样正常吗
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5513#       发表于 2020-6-28 11:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47982301&amp;ptid=1856998" target="_blank">nerugigannte 发表于 2020-6-28 11:33</a>
@@ -19294,16 +12734,10 @@ https://youtu.be/vR9tuMawptQ
 <img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">过去.基本相当于新人杀手.这个等级其他怪都是菜鸡没错了
 
 
-
-
-
-
-
 -----
 
 ####  绿冰  
 ##### 5514#       发表于 2020-6-28 11:38
-
 
 
 <blockquote>HGCG2 发表于 2020-6-28 11:20
@@ -19317,16 +12751,10 @@ https://youtu.be/vR9tuMawptQ
 （其实这种同一个道具交给谁的，存档看一下再读档就是了，不费事）
 
 
-
-
-
-
-
 -----
 
 ####  nerugigannte  
 ##### 5515#       发表于 2020-6-28 11:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47982347&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-6-28 11:37</a>
@@ -19335,16 +12763,10 @@ https://youtu.be/vR9tuMawptQ
 原来和小怪一起打比较容易吗，我是先激活小怪的仇恨把小怪给清了，国王坐那动都不带动，再单挑国王。死了几次全死在最后发怒身体变红阶段，能把满血的三人瞬间个个击倒，导致我连携都不太敢用，用了就不能复活队友了，最后靠着运气过的
 
 
-
-
-
-
-
 -----
 
 ####  绿冰  
 ##### 5516#       发表于 2020-6-28 11:46
-
 
 
  本帖最后由 绿冰 于 2020-6-28 11:49 编辑 
@@ -19361,16 +12783,10 @@ https://youtu.be/vR9tuMawptQ
 觉得太简单就开进阶玩家选项，不会结算支线和地标的经验，再适当降几级
 
 
-
-
-
-
-
 -----
 
 ####  Troywest  
 ##### 5517#       发表于 2020-6-28 11:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47982454&amp;ptid=1856998" target="_blank">nerugigannte 发表于 2020-6-28 11:45</a>
@@ -19378,16 +12794,10 @@ https://youtu.be/vR9tuMawptQ
 丹邦阳炎加暴击，在怪物堆里转转转，团队槽，天赋槽加的快，可以一直爽
 
 
-
-
-
-
-
 -----
 
 ####  qweqweqwe4  
 ##### 5518#       发表于 2020-6-28 11:51
-
 
 
 <blockquote>穿着熊 发表于 2020-6-27 10:09
@@ -19398,16 +12808,10 @@ https://youtu.be/vR9tuMawptQ
 异度装甲里黄飞鸿的精神分裂和恢复，同克劳德的精神分裂和恢复是异曲同工之妙。
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5519#       发表于 2020-6-28 11:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47982454&amp;ptid=1856998" target="_blank">nerugigannte 发表于 2020-6-28 11:45</a>
@@ -19416,16 +12820,10 @@ https://youtu.be/vR9tuMawptQ
 大剑溪谷第六门"恶戏"是全游戏最难的精英也是这么过的.<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Ferb2012  
 ##### 5520#       发表于 2020-6-28 12:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47973108&amp;ptid=1856998" target="_blank">AincradWanderer 发表于 2020-6-27 17:34</a>
@@ -19437,16 +12835,10 @@ https://youtu.be/vR9tuMawptQ
 好的，谢谢
 
 
-
-
-
-
-
 -----
 
 ####  Ferb2012  
 ##### 5521#       发表于 2020-6-28 12:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47974077&amp;ptid=1856998" target="_blank">绿冰 发表于 2020-6-27 18:42</a>
@@ -19455,25 +12847,13 @@ https://youtu.be/vR9tuMawptQ
 谢谢
 
 
-
-
-
-
-
 -----
 
 ####  水宝宝  
 ##### 5522#       发表于 2020-6-28 13:30
 
 
-
-
 萌新来问下最终BOSSザンザ该怎么打啊也太难了，每次都是轻松愉快打到半血左右就被那什么蒙纳多交叉给一招团灭，根本没有反抗余地完全不讲道理啊？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 总不至于我修尔克要全程给队友上盾这么打吧……
-
-
-
-
-
 
 
 -----
@@ -19482,16 +12862,9 @@ https://youtu.be/vR9tuMawptQ
 ##### 5523#       发表于 2020-6-28 13:36
 
 
-
-
 羁绊硬币真的是大坑，6周目才能刷满是吧.....
 
 从实用角度看一般要多少个呢？反正一周目250个技能肯定还得有取舍地装
-
-
-
-
-
 
 
 -----
@@ -19500,23 +12873,16 @@ https://youtu.be/vR9tuMawptQ
 ##### 5524#       发表于 2020-6-28 13:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47983768&amp;ptid=1856998" target="_blank">水宝宝 发表于 2020-6-28 13:30</a>
 
 萌新来问下最终BOSSザンザ该怎么打啊也太难了，每次都是轻松愉快打到半血左右就被那什么蒙纳多交叉给一招团 ...</blockquote>
 上一次盾可以抵一次，BOSS又不会连续用这招...
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5525#       发表于 2020-6-28 13:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47983815&amp;ptid=1856998" target="_blank">苍蓝之枪 发表于 2020-6-28 13:36</a>
@@ -19527,16 +12893,10 @@ https://youtu.be/vR9tuMawptQ
 2周目拉满基本就随便了吧
 
 
-
-
-
-
-
 -----
 
 ####  水宝宝  
 ##### 5526#       发表于 2020-6-28 13:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47983852&amp;ptid=1856998" target="_blank">胖达君 发表于 2020-6-28 13:40</a>
@@ -19545,32 +12905,19 @@ https://youtu.be/vR9tuMawptQ
 问题是有的时候预知不到这招等我看到顶上字出来我已经没了……就算预知到的时候感觉也就预知后两三秒他就发出来了，有时候选择在别的武技上切回来上盾都赶不上<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 5527#       发表于 2020-6-28 15:15
 
 
-
-
 其实最后会不会是一代和两代的世界合并了
-
-
-
-
-
 
 
 -----
 
 ####  塔奇克马  
 ##### 5528#       发表于 2020-6-28 15:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47984944&amp;ptid=1856998" target="_blank">达达葱2 发表于 2020-6-28 15:15</a>
@@ -19581,16 +12928,10 @@ https://youtu.be/vR9tuMawptQ
 被分裂的失落的耶路撒冷终将合二为一.
 
 
-
-
-
-
-
 -----
 
 ####  kyolanaya  
 ##### 5529#       发表于 2020-6-28 15:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47984944&amp;ptid=1856998" target="_blank">达达葱2 发表于 2020-6-28 15:15</a>
@@ -19599,16 +12940,10 @@ https://youtu.be/vR9tuMawptQ
 雾乃兽不能被攻击很像异度传说里的格诺西斯啊
 
 
-
-
-
-
-
 -----
 
 ####  苍蓝之枪  
 ##### 5530#       发表于 2020-6-28 16:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47983866&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-28 13:42</a>
@@ -19617,32 +12952,19 @@ https://youtu.be/vR9tuMawptQ
 我也没仔细看，印象里有特定几个技能消耗量巨大
 
 
-
-
-
-
-
 -----
 
 ####  3D烧  
 ##### 5531#       发表于 2020-6-28 16:57
 
 
-
-
 120的即死该怎么弄啊，翻了翻身上好像没有即死防御的宝珠
-
-
-
-
-
 
 
 -----
 
 ####  塔奇克马  
 ##### 5532#       发表于 2020-6-28 17:14
-
 
 
  本帖最后由 塔奇克马 于 2020-6-28 17:16 编辑 
@@ -19654,16 +12976,10 @@ https://youtu.be/vR9tuMawptQ
 那修尔克还能秽土转生不成?
 
 
-
-
-
-
-
 -----
 
 ####  不垃圾屌丝  
 ##### 5533#       发表于 2020-6-28 17:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47986373&amp;ptid=1856998" target="_blank">3D烧 发表于 2020-6-28 16:57</a>
@@ -19673,27 +12989,15 @@ https://youtu.be/vR9tuMawptQ
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  不垃圾屌丝  
 ##### 5534#       发表于 2020-6-28 17:50
 
 
-
-
 说起来以前wii上好像有公主卡地形杀120的打法？现在还能用吗？
 
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -19702,23 +13006,16 @@ https://youtu.be/vR9tuMawptQ
 ##### 5535#       发表于 2020-6-28 17:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47986373&amp;ptid=1856998" target="_blank">3D烧 发表于 2020-06-28 16:57:33</a>
 120的即死该怎么弄啊，翻了翻身上好像没有即死防御的宝珠</blockquote>做全debuff防御，打98恐龙
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  syz726  
 ##### 5536#       发表于 2020-6-28 18:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47986617&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-6-28 17:14</a>
@@ -19739,16 +13036,10 @@ https://youtu.be/vR9tuMawptQ
 谁知道最后聪明反被聪明误，阿尔维斯表示不好意思我比你权限大哦，二分之一的老爹。
 
 
-
-
-
-
-
 -----
 
 ####  nerugigannte  
 ##### 5537#       发表于 2020-6-28 18:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47982614&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-6-28 11:57</a>
@@ -19759,16 +13050,10 @@ https://youtu.be/vR9tuMawptQ
 几个伤害技能和给自己加buff的还都是单体的，就个天下无双是群体提升士气还有给自己筋立up
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5538#       发表于 2020-6-28 18:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47987925&amp;ptid=1856998" target="_blank">nerugigannte 发表于 2020-06-28 18:47:56</a>
@@ -19779,16 +13064,10 @@ https://youtu.be/vR9tuMawptQ
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  nerugigannte  
 ##### 5539#       发表于 2020-6-28 18:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47988028&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-28 18:52</a>
@@ -19800,25 +13079,13 @@ https://youtu.be/vR9tuMawptQ
 噢噢噢，原来这么后面才学得到呢啊，我看他说打蜥蜴王就用这两招，可蜥蜴王才31j
 
 
-
-
-
-
-
 -----
 
 ####  shkillone1  
 ##### 5540#       发表于 2020-6-28 18:55
 
 
-
-
 没有二周目，17章后大剑+机神界没打的精英是不是就没法打了
-
-
-
-
-
 
 
 -----
@@ -19827,16 +13094,9 @@ https://youtu.be/vR9tuMawptQ
 ##### 5541#       发表于 2020-6-28 18:56
 
 
-
-
 有人说XB2回忆杀里面的这两个女的可能是双子ミァン <img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gg878r1kq7j20730art9h.jpg" referrerpolicy="no-referrer">
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gg8755xjhwj20hy0a30wp.jpg" referrerpolicy="no-referrer">
 <img src="http://wx1.sinaimg.cn/mw690/9657fdc2gy1gg875q730xj209p0fjwpg.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19845,16 +13105,10 @@ https://youtu.be/vR9tuMawptQ
 ##### 5542#       发表于 2020-6-28 19:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47988064&amp;ptid=1856998" target="_blank">shkillone1 发表于 2020-06-28 18:55:04</a>
 没有二周目，17章后大剑+机神界没打的精英是不是就没法打了</blockquote>对
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -19863,14 +13117,7 @@ https://youtu.be/vR9tuMawptQ
 ##### 5543#       发表于 2020-6-28 19:13
 
 
-
-
 求个连同伴性格技能的建议
-
-
-
-
-
 
 
 -----
@@ -19879,23 +13126,16 @@ https://youtu.be/vR9tuMawptQ
 ##### 5544#       发表于 2020-6-28 19:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47985811&amp;ptid=1856998" target="_blank">苍蓝之枪 发表于 2020-6-28 16:19</a>
 
 我也没仔细看，印象里有特定几个技能消耗量巨大</blockquote>
 主要只有修尔克新性格还有菲奥伦隐藏性格比较常用而且消耗大，其他都一般吧
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5545#       发表于 2020-6-28 19:18
-
 
 
  本帖最后由 Arccueid 于 2020-6-29 13:35 编辑 
@@ -19922,18 +13162,10 @@ https://youtu.be/vR9tuMawptQ
 防御方面，优先链丹邦/卡尔纳/菲奥伦的耐性相关的，再看自身装备防御多少选择链加装备效果或者直接防御效果，后期币多能链上修尔克的全队物理/以太防御增加就都链上。T可以把半血系的都链上，便宜又强大。
 
 
-
-
-
-
-
-
-
 -----
 
 ####  HGCG2  
 ##### 5546#       发表于 2020-6-28 19:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47988364&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-28 19:18</a>
@@ -19948,16 +13180,10 @@ https://youtu.be/vR9tuMawptQ
 要去哪里练级比较好
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5547#       发表于 2020-6-28 19:29
-
 
 
  本帖最后由 Arccueid 于 2020-6-28 19:45 编辑 
@@ -19973,24 +13199,13 @@ https://youtu.be/vR9tuMawptQ
 性格看我上面说的就差不多了。
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5548#       发表于 2020-6-28 19:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这.....黑豆肝要换好贵啊..
-
-
-
-
-
 
 
 -----
@@ -19999,22 +13214,13 @@ https://youtu.be/vR9tuMawptQ
 ##### 5549#       发表于 2020-6-28 19:53
 
 
-
-
 黑豆肝巨神胎内左上角静脉末端那边有个3个分出来的小支端很容易出，有一次逛3个拿了2个黑豆肝
-
-
-
-
-
 
 
 -----
 
 ####  AincradWanderer  
 ##### 5550#       发表于 2020-6-28 20:02
-
-
 
 
 关了休闲模式尝试60级打罗兰，修尔克+丹邦+菲奥伦的组合总是暴毙，monado轰打召唤的元素怪一大片-0，物理战技平均命中率大概只有50%
@@ -20025,16 +13231,10 @@ https://youtu.be/vR9tuMawptQ
 我太菜了.jpg
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5551#       发表于 2020-6-28 20:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47988973&amp;ptid=1856998" target="_blank">AincradWanderer 发表于 2020-6-28 20:02</a>
@@ -20046,16 +13246,10 @@ https://youtu.be/vR9tuMawptQ
 直接用铠覆盖到满连携，然后2次aoe清光小怪就赢了。
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5552#       发表于 2020-6-28 20:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47988973&amp;ptid=1856998" target="_blank">AincradWanderer 发表于 2020-6-28 20:02</a>
@@ -20074,32 +13268,19 @@ https://youtu.be/vR9tuMawptQ
 主控奶妈旁边看戏
 
 
-
-
-
-
-
 -----
 
 ####  hugosol  
 ##### 5553#       发表于 2020-6-28 20:47
 
 
-
-
 梅利亚常驻天赋技打连携太省心了，连上元气大爆发之后分分钟就进超强气，不去第三人的位置真是浪费了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Arccueid  
 ##### 5554#       发表于 2020-6-28 20:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47989563&amp;ptid=1856998" target="_blank">hugosol 发表于 2020-6-28 20:47</a>
@@ -20110,17 +13291,10 @@ https://youtu.be/vR9tuMawptQ
 不过一个人超强对连携的帮助不大，还是起手未来视睡/改变仇恨全员进比较有用。
 
 
-
-
-
-
-
 -----
 
 ####  Arthur___  
 ##### 5555#       发表于 2020-6-28 21:04
-
-
 
 
 玩到13章了，有两个问题
@@ -20130,16 +13304,10 @@ https://youtu.be/vR9tuMawptQ
 2.宝石提炼有攻略吗？目前我还处于修尔克+莱茵瞎炼一通的状态
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5556#       发表于 2020-6-28 21:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47989753&amp;ptid=1856998" target="_blank">Arthur___ 发表于 2020-6-28 21:04</a>
@@ -20155,16 +13323,10 @@ https://youtu.be/vR9tuMawptQ
 练宝石就是用菲奥伦+利奇最低好感分离，然后同一纯度到130%以上就用主角+莱恩/丹邦练到300%就行了
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5557#       发表于 2020-6-28 21:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47989753&amp;ptid=1856998" target="_blank">Arthur___ 发表于 2020-6-28 21:04</a>
@@ -20177,17 +13339,10 @@ https://youtu.be/vR9tuMawptQ
 通关主线就算都不解锁也不太影响.等级压制就完事了.
 
 
-
-
-
-
-
 -----
 
 ####  BQlin  
 ##### 5558#       发表于 2020-6-28 21:16
-
-
 
 
 通关本篇了，梅莉亚输出太猛导致打赞赞T了将近全程，疯狂暴毙
@@ -20202,17 +13357,10 @@ https://youtu.be/vR9tuMawptQ
 主要是赞赞太喜欢放aoe了，最开始队友去T经常被波及到，才用这个奇怪的方式打的
 
 
-
-
-
-
-
 -----
 
 ####  AincradWanderer  
 ##### 5559#       发表于 2020-6-28 21:41
-
-
 
 
 嗨，我还是等以后开二周目牵绊金币多了再考虑压级挑战吧，目前过了前30秒buff期虽然勉强还能打，但各种吃瘪很不爽<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
@@ -20221,16 +13369,10 @@ https://youtu.be/vR9tuMawptQ
 游戏应该是带来快乐的，现在就先放弃努力吧<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5560#       发表于 2020-6-28 21:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47990218&amp;ptid=1856998" target="_blank">AincradWanderer 发表于 2020-06-28 21:41:41</a>
@@ -20241,16 +13383,10 @@ https://youtu.be/vR9tuMawptQ
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  AincradWanderer  
 ##### 5561#       发表于 2020-6-28 22:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47990313&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-28 21:49</a>
@@ -20262,25 +13398,13 @@ https://youtu.be/vR9tuMawptQ
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  西多士  
 ##### 5562#       发表于 2020-6-29 00:30
 
 
-
-
 羁绊硬币有个疑问， 升级的时候会给硬币，那么通过进阶模式调经验值发生的升级，会给硬币么？
-
-
-
-
-
 
 
 -----
@@ -20289,16 +13413,10 @@ https://youtu.be/vR9tuMawptQ
 ##### 5563#       发表于 2020-6-29 00:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47992092&amp;ptid=1856998" target="_blank">西多士 发表于 2020-6-29 00:30</a>
 
 羁绊硬币有个疑问， 升级的时候会给硬币，那么通过进阶模式调经验值发生的升级，会给硬币么？ ...</blockquote>
 会给的
-
-
-
-
-
 
 
 -----
@@ -20309,23 +13427,15 @@ https://youtu.be/vR9tuMawptQ
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  丹德里恩  
 ##### 5565#       发表于 2020-6-29 09:04
 
 
-
-
 问一下，物物交换的时候，要给出去的物品列表里是空的，是因为要交换的东西价格太高我没有等值的玩意么....
 
 那些几万块的东西要拿什么换啊<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20334,16 +13444,10 @@ https://youtu.be/vR9tuMawptQ
 ##### 5566#       发表于 2020-6-29 09:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47993542&amp;ptid=1856998" target="_blank">丹德里恩 发表于 2020-6-29 09:04</a>
 
 问一下，物物交换的时候，要给出去的物品列表里是空的，是因为要交换的东西价格太高我没有等值的玩意么.... ...</blockquote>
 力奇和修尔克都有提升我方物品价值的性格能力，但最多只能叠到25%，所以还是要多捡垃圾多刷高级怪
-
-
-
-
-
 
 
 -----
@@ -20352,16 +13456,10 @@ https://youtu.be/vR9tuMawptQ
 ##### 5567#       发表于 2020-6-29 09:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47993542&amp;ptid=1856998" target="_blank">丹德里恩 发表于 2020-6-29 09:04</a>
 
 问一下，物物交换的时候，要给出去的物品列表里是空的，是因为要交换的东西价格太高我没有等值的玩意么.... ...</blockquote>
 打最强的精英会掉落最贵的素材
-
-
-
-
-
 
 
 -----
@@ -20370,14 +13468,7 @@ https://youtu.be/vR9tuMawptQ
 ##### 5568#       发表于 2020-6-29 09:46
 
 
-
-
 丹邦的不穿防具天赋投入回报比如何？
-
-
-
-
-
 
 
 -----
@@ -20386,14 +13477,7 @@ https://youtu.be/vR9tuMawptQ
 ##### 5569#       发表于 2020-6-29 10:28
 
 
-
-
 二周目初期个位数等级在9号殖民地打了几个越级精英怪，能倒地的都好说，麻烦就是那些不能倒地的，还有初期不知道是不是技能连接没有的关系，使劲堆敏捷和夜间命中还是一直miss
-
-
-
-
-
 
 
 -----
@@ -20402,15 +13486,9 @@ https://youtu.be/vR9tuMawptQ
 ##### 5570#       发表于 2020-6-29 10:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47984944&amp;ptid=1856998" target="_blank">达达葱2 发表于 2020-6-28 15:15</a>
 其实最后会不会是一代和两代的世界合并了</blockquote>
 看FC新世界初成的状况是未合并，或许是合并中，裂缝也没解释，看XB3填坑了
-
-
-
-
-
 
 
 -----
@@ -20419,15 +13497,9 @@ https://youtu.be/vR9tuMawptQ
 ##### 5571#       发表于 2020-6-29 11:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47993974&amp;ptid=1856998" target="_blank">大喇叭花田 发表于 2020-6-29 09:46</a>
 丹邦的不穿防具天赋投入回报比如何？</blockquote>
 没意义的
-
-
-
-
-
 
 
 -----
@@ -20436,16 +13508,10 @@ https://youtu.be/vR9tuMawptQ
 ##### 5572#       发表于 2020-6-29 12:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47993974&amp;ptid=1856998" target="_blank">大喇叭花田 发表于 2020-06-29 09:46:15</a>
 丹邦的不穿防具天赋投入回报比如何？</blockquote>不是最强，但是对于不需要全debuff抵抗/尖刺防御的怪是可以玩的
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -20454,16 +13520,9 @@ https://youtu.be/vR9tuMawptQ
 ##### 5573#       发表于 2020-6-29 12:21
 
 
-
-
 求分享中文素材掉落攻略，目前17章，支线都是跨级命中不足，网上搜都是6级的，还要跨级刷怪，不想调休闲模式刷
 
 —— 来自 Xiaomi Mi 10 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -20472,17 +13531,11 @@ https://youtu.be/vR9tuMawptQ
 ##### 5574#       发表于 2020-6-29 12:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47993486&amp;ptid=1856998" target="_blank">亚瑟邓特 发表于 2020-6-29 08:58</a>
 https://ecchi.iwara.tv/videos/89epecqzaeslvzqep
 
 —— 来自 Xiaomi MI 6, Android 9上的 S1Next- ...</blockquote>
 我草，感觉1的角色比2骚好多啊，光焰绿都比不过机娘
-
-
-
-
-
 
 
 -----
@@ -20493,12 +13546,10 @@ https://ecchi.iwara.tv/videos/89epecqzaeslvzqep
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  martinium  
 ##### 5576#       发表于 2020-6-29 13:05
-
 
 
  本帖最后由 martinium 于 2020-6-29 13:06 编辑 
@@ -20508,16 +13559,10 @@ https://ecchi.iwara.tv/videos/89epecqzaeslvzqep
 — from Google Pixel 2, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5577#       发表于 2020-6-29 13:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47995952&amp;ptid=1856998" target="_blank">chiziru 发表于 2020-06-29 12:21:31</a>
@@ -20528,31 +13573,19 @@ https://ecchi.iwara.tv/videos/89epecqzaeslvzqep
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5578#       发表于 2020-6-29 13:24
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">这散热片只有50%好坑啊..
-
-
-
-
-
 
 
 -----
 
 ####  空虚的祈祷  
 ##### 5579#       发表于 2020-6-29 13:25
-
 
 
 <blockquote>martinium 发表于 2020-6-29 13:05
@@ -20563,16 +13596,10 @@ https://ecchi.iwara.tv/videos/89epecqzaeslvzqep
 衣服读档后也保留的呀，其实可以不用花钱的……想我就是每发现一个商店就存档然后买空所有装备再读档，还有大仙人那里我也是用读档的方法白嫖了梅里亚菲奥伦的全套泳装……
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5580#       发表于 2020-6-29 13:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47996572&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-06-29 13:24:57</a>
@@ -20581,16 +13608,10 @@ https://ecchi.iwara.tv/videos/89epecqzaeslvzqep
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5581#       发表于 2020-6-29 13:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47996659&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-29 13:32</a>
@@ -20602,16 +13623,10 @@ https://ecchi.iwara.tv/videos/89epecqzaeslvzqep
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">想一想好像也是..毕竟都是最高级宝石了..孔位需求急剧减少..而且未亡人..武器宝石都没啥用..
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5582#       发表于 2020-6-29 13:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47996694&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-06-29 13:37:14</a>
@@ -20620,17 +13635,10 @@ https://ecchi.iwara.tv/videos/89epecqzaeslvzqep
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  zxs123678  
 ##### 5583#       发表于 2020-6-29 13:41
-
-
 
 
 对本强迫症游戏小白来说这游戏实在是太累了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
@@ -20640,16 +13648,10 @@ https://ecchi.iwara.tv/videos/89epecqzaeslvzqep
 拖了好久才打到第十七章，这后面还有多少任务支线要做啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  椎名mahuyo  
 ##### 5584#       发表于 2020-6-29 13:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47996730&amp;ptid=1856998" target="_blank">zxs123678 发表于 2020-6-29 13:41</a>
@@ -20659,27 +13661,15 @@ https://ecchi.iwara.tv/videos/89epecqzaeslvzqep
 终章了，也没多少了，基本都是endgame内容了，第二隐藏性格，隐藏宝箱相关，打高等级怪物地区
 
 
-
-
-
-
-
 -----
 
 ####  FCY2303  
 ##### 5585#       发表于 2020-6-29 14:02
 
 
-
-
 为啥殖民地复兴任务都做完了复兴度还是只有60%？
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -20688,16 +13678,10 @@ https://ecchi.iwara.tv/videos/89epecqzaeslvzqep
 ##### 5586#       发表于 2020-6-29 14:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47996916&amp;ptid=1856998" target="_blank">FCY2303 发表于 2020-06-29 14:02:32</a>
 为啥殖民地复兴任务都做完了复兴度还是只有60%？</blockquote>很多npc你没拉过来吧
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -20706,15 +13690,9 @@ https://ecchi.iwara.tv/videos/89epecqzaeslvzqep
 ##### 5587#       发表于 2020-6-29 14:05
 
 
-
  本帖最后由 塔奇克马 于 2020-6-29 14:08 编辑 
 
 巨人族真的拉跨,第一代巨人征服了白蜘蛛但是后代战斗力就下降了,为了避免和白蜘蛛争斗只能献上祭品因此导致巨人族人口逐渐减少最后都没法抗衡,结果就是只能躲在庇护所里瑟瑟发抖....<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20723,14 +13701,7 @@ https://ecchi.iwara.tv/videos/89epecqzaeslvzqep
 ##### 5588#       发表于 2020-6-29 16:27
 
 
-
-
 求一个全服装收集的攻略，很多衣服我都只有一个颜色，其他的颜色是怎么获得？
-
-
-
-
-
 
 
 -----
@@ -20739,23 +13710,15 @@ https://ecchi.iwara.tv/videos/89epecqzaeslvzqep
 ##### 5589#       发表于 2020-6-29 16:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用50级利奇队伍偷死了95级落腕大龙..
 
 没带装死真吃瘪,一奶就OT..不过还好磨死了.
-
-
-
-
-
 
 
 -----
 
 ####  UyNad  
 ##### 5590#       发表于 2020-6-29 19:06
-
-
 
 
 思维巨魔一点，其实梅娜丝才是本作的最纯圣母吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
@@ -20773,16 +13736,10 @@ https://ecchi.iwara.tv/videos/89epecqzaeslvzqep
 PS：进入机神皇都后，巴涅雅曾经解释，附身一定要选菲奥伦是因为她是“修尔克亲近的人”。但是雪山过场里，梅娜丝版菲奥伦一副“你是谁，我是谁，你怎么知道我是谁”的三无样，是不是有些矛盾？还是说菲奥伦红眼的时候梅娜丝才完全睡醒，之前只是……梦游？所以巴涅雅说的话她出门就忘了，并且战斗力还菜到被MMK和艾机尔先后吊打？
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5591#       发表于 2020-6-29 19:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48000792&amp;ptid=1856998" target="_blank">UyNad 发表于 2020-06-29 19:06:32</a>
@@ -20794,16 +13751,10 @@ PS：进入机神皇都后，巴涅雅曾经解释，附身一定要选菲奥伦
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  UyNad  
 ##### 5592#       发表于 2020-6-29 19:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48000806&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-29 19:07</a>
@@ -20815,16 +13766,10 @@ PS：进入机神皇都后，巴涅雅曾经解释，附身一定要选菲奥伦
 这么重要的事情，巴涅雅不可能不告诉梅娜丝本人吧。赞扎那边好歹有个使徒看着，梅娜丝总不能随便找个黄毛丫头就OK我行
 
 
-
-
-
-
-
 -----
 
 ####  syz726  
 ##### 5593#       发表于 2020-6-29 19:46
-
 
 
  本帖最后由 syz726 于 2020-6-29 20:11 编辑 
@@ -20847,26 +13792,13 @@ PS2：估计梅纳斯在雪山那儿只知道自己是“修尔克重要的人�
 艾吉尔的金菲斯因为要连接机神所以是特别制造的（顺便一提里面塞了不知道多少个荷姆斯的尸块，出力跟别的菲斯不是一个级别）；而梅纳斯这边借菲奥伦身体开白菲斯首先就被削弱一轮了，然后真跟艾吉尔对打的时候白菲斯早为了救修尔克一行人摔坏了，再被削弱一轮的她的确没有资本跟艾吉尔对肛了。只能寄希望于艾吉尔这个不肖子孙只是一时糊涂，还能听听她这个女神劝一句。然而艾吉尔那态度明显是“今天要么我死要么巨神全家死，没得商量”，所以只能吃瘪。
 
 
-
-
-
-
-
-
 -----
 
 ####  debrisvector  
 ##### 5594#       发表于 2020-6-29 20:00
 
 
-
-
 萌新问下力奇要怎么用，是当主输出么
-
-
-
-
-
 
 
 -----
@@ -20875,23 +13807,16 @@ PS2：估计梅纳斯在雪山那儿只知道自己是“修尔克重要的人�
 ##### 5595#       发表于 2020-6-29 20:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48001356&amp;ptid=1856998" target="_blank">debrisvector 发表于 2020-6-29 20:00</a>
 
 萌新问下力奇要怎么用，是当主输出么</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">勇者是全能哒
 
 
-
-
-
-
-
 -----
 
 ####  椎名mahuyo  
 ##### 5596#       发表于 2020-6-29 20:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48001356&amp;ptid=1856998" target="_blank">debrisvector 发表于 2020-6-29 20:00</a>
@@ -20902,26 +13827,15 @@ PS2：估计梅纳斯在雪山那儿只知道自己是“修尔克重要的人�
 加血技能范围理想，堆堆以太当上DEBUFF的奶妈很爽
 
 
-
-
-
-
-
 -----
 
 ####  debrisvector  
 ##### 5597#       发表于 2020-6-29 20:20
 
 
-
 <blockquote>丹德里恩 发表于 2020-6-29 20:10
 勇者是全能哒</blockquote>
 能仔细讲讲么，或者有没有相关的链接什么的，比如力奇和谁配合比较好，怎么打，我现在还处于刚拿到力奇的情况
-
-
-
-
-
 
 
 -----
@@ -20930,23 +13844,16 @@ PS2：估计梅纳斯在雪山那儿只知道自己是“修尔克重要的人�
 ##### 5598#       发表于 2020-6-29 20:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48001593&amp;ptid=1856998" target="_blank">debrisvector 发表于 2020-6-29 20:20</a>
 
 能仔细讲讲么，或者有没有相关的链接什么的，比如力奇和谁配合比较好，怎么打，我现在还处于刚拿到力奇的 ...</blockquote>
 新手建议力奇AP优先点治疗技能，代替卡露娜当奶妈，至少伤害和连锁要比卡露娜强一大截，大多数情况那点治疗量够用了，然后点增加队伍槽的技能，带上拔刀士气宝石，可以让队伍槽在开战前就满
 
 
-
-
-
-
-
 -----
 
 ####  绿冰  
 ##### 5599#       发表于 2020-6-29 20:44
-
 
 
 <blockquote>debrisvector 发表于 2020-6-29 20:20
@@ -20960,27 +13867,15 @@ PS2：估计梅纳斯在雪山那儿只知道自己是“修尔克重要的人�
 总之就是要啥有啥，虽然都不算很顶尖
 
 
-
-
-
-
-
 -----
 
 ####  hugosol  
 ##### 5600#       发表于 2020-6-29 20:46
 
 
-
-
 想搞个夜间命中6解放一下配装，但是带满夜间命中打落腕的105都整天miss怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 目前试了机娘倒地流和修尔克笱命流，好不容易磨到3分之一血就开始狂暴然后把我方一拳一个，死于普攻居然是连莫纳多都无法看穿的未来吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20989,15 +13884,9 @@ PS2：估计梅纳斯在雪山那儿只知道自己是“修尔克重要的人�
 ##### 5601#       发表于 2020-6-29 21:08
 
 
-
 <blockquote>モナド 发表于 2020-6-29 20:37
 新手建议力奇AP优先点治疗技能，代替卡露娜当奶妈，至少伤害和连锁要比卡露娜强一大截，大多数情况那点治 ...</blockquote>
 好的，谢谢聚聚
-
-
-
-
-
 
 
 -----
@@ -21006,14 +13895,7 @@ PS2：估计梅纳斯在雪山那儿只知道自己是“修尔克重要的人�
 ##### 5602#       发表于 2020-6-29 21:13
 
 
-
-
 我知道了，关键是能倒一次之后，倒地期间再用倒地攻击都是必中的了，带上倒地时间延长就行，字面意义上的按在地上摩擦<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21022,27 +13904,13 @@ PS2：估计梅纳斯在雪山那儿只知道自己是“修尔克重要的人�
 ##### 5603#       发表于 2020-6-29 21:37
 
 
-
-
-
 通关了...虽然是个存在各种问题的老游戏，但它讲了个好故事，本身也足够好玩，所以我才会沉迷其中吧...<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  deathomega  
 ##### 5604#       发表于 2020-6-29 21:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48000792&amp;ptid=1856998" target="_blank">UyNad 发表于 2020-6-29 19:06</a>
@@ -21057,16 +13925,10 @@ PS2：估计梅纳斯在雪山那儿只知道自己是“修尔克重要的人�
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  冰比冰水冰  
 ##### 5605#       发表于 2020-6-29 23:27
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">墓地那个双BOSS怎么打 40级打不过38级
@@ -21076,26 +13938,14 @@ PS2：估计梅纳斯在雪山那儿只知道自己是“修尔克重要的人�
 救女2那个剧情
 
 
-
-
-
-
-
 -----
 
 ####  Troywest  
 ##### 5606#       发表于 2020-6-29 23:28
 
 
-
-
 用修尔克，莱茵，丹邦，降级到20，去挑战暴帝，怎么都打不过。直到我想到可以用鬼斩刃击破旁边的小白兔，让暴帝强行倒地<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">然后就这么愉快的过了。
 丹邦，yyds
-
-
-
-
-
 
 
 -----
@@ -21104,22 +13954,13 @@ PS2：估计梅纳斯在雪山那儿只知道自己是“修尔克重要的人�
 ##### 5607#       发表于 2020-6-30 00:16
 
 
-
-
 在巨神脚打了几个越级，感觉还是麻烦在命中上，只要成功破防倒地，之后就是打到死，但是如果一直倒地miss就容易翻车
-
-
-
-
-
 
 
 -----
 
 ####  hugosol  
 ##### 5608#       发表于 2020-6-30 00:56
-
-
 
 
 雪山120已经是最强的吗？打起来太过瘾了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -21131,16 +13972,10 @@ PS2：估计梅纳斯在雪山那儿只知道自己是“修尔克重要的人�
 流程里的特蕾西亚压迫感还是太弱了，四天王这种级别的狂暴了之后不及时封印掉分分钟就被普攻打死，如果最终boss有这强度就爽了<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5609#       发表于 2020-6-30 01:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48003919&amp;ptid=1856998" target="_blank">冰比冰水冰 发表于 2020-6-29 23:27</a>
@@ -21154,16 +13989,10 @@ PS2：估计梅纳斯在雪山那儿只知道自己是“修尔克重要的人�
 —— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 5610#       发表于 2020-6-30 01:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48003919&amp;ptid=1856998" target="_blank">冰比冰水冰 发表于 2020-6-29 23:27</a>
@@ -21176,16 +14005,10 @@ PS2：估计梅纳斯在雪山那儿只知道自己是“修尔克重要的人�
 上莱因换狂战士光环，因为更容易群嘲。奶妈如果学会了装备重装备，就穿重装备。如果没学会或者数量不够，尽量穿中装备
 
 
-
-
-
-
-
 -----
 
 ####  绿冰  
 ##### 5611#       发表于 2020-6-30 01:09
-
 
 
  本帖最后由 绿冰 于 2020-6-30 01:11 编辑 
@@ -21202,16 +14025,10 @@ PS2：估计梅纳斯在雪山那儿只知道自己是“修尔克重要的人�
 大恐龙以太攻击多，以太防御别太低，另一个会倒地还是昏厥，注意拉队友一把
 
 
-
-
-
-
-
 -----
 
 ####  绿冰  
 ##### 5612#       发表于 2020-6-30 01:10
-
 
 
 <blockquote>hugosol 发表于 2020-6-30 00:56
@@ -21221,16 +14038,10 @@ PS2：估计梅纳斯在雪山那儿只知道自己是“修尔克重要的人�
 等级最高的，但不是最强的（
 
 
-
-
-
-
-
 -----
 
 ####  martinium  
 ##### 5613#       发表于 2020-6-30 01:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47996578&amp;ptid=1856998" target="_blank">空虚的祈祷 发表于 2020-6-29 13:25</a>
@@ -21240,16 +14051,10 @@ PS2：估计梅纳斯在雪山那儿只知道自己是“修尔克重要的人�
 — from Google Pixel 2, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5614#       发表于 2020-6-30 03:41
-
 
 
  本帖最后由 Arccueid 于 2020-6-30 03:44 编辑 
@@ -21258,18 +14063,10 @@ PS2：估计梅纳斯在雪山那儿只知道自己是“修尔克重要的人�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  nerugigannte  
 ##### 5615#       发表于 2020-6-30 08:15
-
-
 
 
 丹拜那个+10秒buff持续时间的太神了
@@ -21279,16 +14076,10 @@ PS2：估计梅纳斯在雪山那儿只知道自己是“修尔克重要的人�
 还有求问如果前期32j，打那只差了5J的精英怪最优解应该是什么，这玩意还不能打倒地，看了眼背包也没防反伤的宝石
 
 
-
-
-
-
-
 -----
 
 ####  lypylf  
 ##### 5616#       发表于 2020-6-30 09:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48005939&amp;ptid=1856998" target="_blank">nerugigannte 发表于 2020-6-30 08:15</a>
@@ -21299,16 +14090,10 @@ PS2：估计梅纳斯在雪山那儿只知道自己是“修尔克重要的人�
 可以倒地的，进连携崩转倒。
 
 
-
-
-
-
-
 -----
 
 ####  nerugigannte  
 ##### 5617#       发表于 2020-6-30 09:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48006678&amp;ptid=1856998" target="_blank">lypylf 发表于 2020-6-30 09:27</a>
@@ -21317,25 +14102,13 @@ PS2：估计梅纳斯在雪山那儿只知道自己是“修尔克重要的人�
 那为什么我用丹邦单人打不出倒地，小怪和有的精英怪能行的，是buff在某些精英怪身上持续时间太短了吗
 
 
-
-
-
-
-
 -----
 
 ####  RUANHYC  
 ##### 5618#       发表于 2020-6-30 09:40
 
 
-
-
 有丹邦那招天雷的使用心得吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21344,23 +14117,16 @@ PS2：估计梅纳斯在雪山那儿只知道自己是“修尔克重要的人�
 ##### 5619#       发表于 2020-6-30 10:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48006788&amp;ptid=1856998" target="_blank">nerugigannte 发表于 2020-6-30 09:35</a>
 
 那为什么我用丹邦单人打不出倒地，小怪和有的精英怪能行的，是buff在某些精英怪身上持续时间太短了吗 ...</blockquote>
 很多怪有常时崩免疫，需要在连携里打上崩状态。转倒免疫的怪很少，大概就百四式和各种飞行怪吧
 
 
-
-
-
-
-
 -----
 
 ####  UyNad  
 ##### 5620#       发表于 2020-6-30 10:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48001207&amp;ptid=1856998" target="_blank">syz726 发表于 2020-6-29 19:46</a>
@@ -21380,16 +14146,10 @@ PS:二周目又打到雪山这段剧情太草了，梅娜丝（菲奥伦）被�
 PS2:梅娜丝高估了十八岁小屁孩的智商，干嘛陪伴他冒险长大，直接把刀子架自己脖子上逼修尔克自毁莫纳多，起码这个轮回是梅娜丝赢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 5621#       发表于 2020-6-30 10:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48005939&amp;ptid=1856998" target="_blank">nerugigannte 发表于 2020-6-30 08:15</a>
@@ -21400,16 +14160,10 @@ PS2:梅娜丝高估了十八岁小屁孩的智商，干嘛陪伴他冒险长大�
 3菜刀能打，虽然转倒不能一直维持，不过也够用了。春风有崩耐性，进连携再转倒。开场前可以用利奇攒满团队槽。莱因主坦，出未来视团队槽满就连携，不满莱因用战复
 
 
-
-
-
-
-
 -----
 
 ####  LT_Harry  
 ##### 5622#       发表于 2020-6-30 11:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48005939&amp;ptid=1856998" target="_blank">nerugigannte 发表于 2020-6-30 08:15</a>
@@ -21423,16 +14177,10 @@ PS2:梅娜丝高估了十八岁小屁孩的智商，干嘛陪伴他冒险长大�
 队伍槽靠触发特效也可以快速积累，修尔克带特效技能多所以控制稳了就很快。
 
 
-
-
-
-
-
 -----
 
 ####  syz726  
 ##### 5623#       发表于 2020-6-30 11:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48007329&amp;ptid=1856998" target="_blank">UyNad 发表于 2020-6-30 10:14</a>
@@ -21447,16 +14195,10 @@ PS2:梅娜丝高估了十八岁小屁孩的智商，干嘛陪伴他冒险长大�
 顺便一提，没不做人的姆姆卡还吃过菲奥伦做的饭呢，这货忘恩负义这点都是基本性格了。或者说，只要能恶心丹邦，啥事儿他都能干得出来。
 
 
-
-
-
-
-
 -----
 
 ####  UyNad  
 ##### 5624#       发表于 2020-6-30 13:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48008283&amp;ptid=1856998" target="_blank">syz726 发表于 2020-6-30 11:23</a>
@@ -21470,16 +14212,10 @@ PS2:梅娜丝高估了十八岁小屁孩的智商，干嘛陪伴他冒险长大�
 MMK和菲奥伦的三生三世恩怨情仇我也发现了，MMK要是帅点说不定还有人能吃得下这相爱（？？）相杀的CP，虽然一股子R18的味儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5625#       发表于 2020-6-30 13:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48006860&amp;ptid=1856998" target="_blank">RUANHYC 发表于 2020-06-30 09:40:21</a>
@@ -21488,13 +14224,9 @@ MMK和菲奥伦的三生三世恩怨情仇我也发现了，MMK要是帅点说�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -21504,19 +14236,13 @@ MMK和菲奥伦的三生三世恩怨情仇我也发现了，MMK要是帅点说�
 | RUANHYC| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  hugosol  
 ##### 5626#       发表于 2020-6-30 13:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48006860&amp;ptid=1856998" target="_blank">RUANHYC 发表于 2020-6-30 09:40</a>
@@ -21527,13 +14253,9 @@ MMK和菲奥伦的三生三世恩怨情仇我也发现了，MMK要是帅点说�
 特殊情况下直接收刀往后走一步也可以，不过按起来太麻烦
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -21543,19 +14265,13 @@ MMK和菲奥伦的三生三世恩怨情仇我也发现了，MMK要是帅点说�
 | RUANHYC| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  Arccueid  
 ##### 5627#       发表于 2020-6-30 13:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48009982&amp;ptid=1856998" target="_blank">hugosol 发表于 2020-06-30 13:31:40</a>
@@ -21566,16 +14282,10 @@ MMK和菲奥伦的三生三世恩怨情仇我也发现了，MMK要是帅点说�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  syz726  
 ##### 5628#       发表于 2020-6-30 15:45
-
 
 
  本帖最后由 syz726 于 2020-6-30 17:23 编辑 
@@ -21591,16 +14301,10 @@ MMK和菲奥伦的三生三世恩怨情仇我也发现了，MMK要是帅点说�
 PS：大舅哥表示我妹跟受克这CP早锁死了，不服的过来接我一套樱花乱舞再说<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5629#       发表于 2020-6-30 18:54
-
 
 
 <img src="https://p.sda1.dev/0/9d60fc1a195ba2ffc8cb49d31835219a/1593513849462.jpg" referrerpolicy="no-referrer">贴图一样的？所以那个时间段身体也死了？
@@ -21608,16 +14312,10 @@ PS：大舅哥表示我妹跟受克这CP早锁死了，不服的过来接我一�
 —— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  syz726  
 ##### 5630#       发表于 2020-6-30 19:00
-
 
 
  本帖最后由 syz726 于 2020-6-30 19:02 编辑 
@@ -21636,33 +14334,19 @@ PS：大舅哥表示我妹跟受克这CP早锁死了，不服的过来接我一�
 PS：考虑到DE版后传那个雾乃王用的也是异形王的造型，细思极恐啊；难不成是梅纳斯，啊不，加拉蒂娅的残余怨念从二代世界漏过来了？
 
 
-
-
-
-
-
-
 -----
 
 ####  kos_mos  
 ##### 5631#       发表于 2020-6-30 19:14
 
 
-
-
 赞扎进攻雪山，雪山群魔乱舞，100、114、120打不过，赞扎，卒。
-
-
-
-
-
 
 
 -----
 
 ####  syz726  
 ##### 5632#       发表于 2020-6-30 19:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48014209&amp;ptid=1856998" target="_blank">kos_mos 发表于 2020-6-30 19:14</a>
@@ -21675,16 +14359,10 @@ PS：考虑到DE版后传那个雾乃王用的也是异形王的造型，细思�
 跟我斗，你们还嫩点！抱歉，主神就是可以这么不要脸<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  AincradWanderer  
 ##### 5633#       发表于 2020-6-30 21:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48014209&amp;ptid=1856998" target="_blank">kos_mos 发表于 2020-6-30 19:14</a>
@@ -21693,16 +14371,10 @@ PS：考虑到DE版后传那个雾乃王用的也是异形王的造型，细思�
 经典哲学问题：无敌的神能创造出压死自己的石头吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kos_mos  
 ##### 5634#       发表于 2020-6-30 21:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48015462&amp;ptid=1856998" target="_blank">AincradWanderer 发表于 2020-6-30 21:21</a>
@@ -21713,26 +14385,15 @@ PS：考虑到DE版后传那个雾乃王用的也是异形王的造型，细思�
 事实上确实被霍姆斯的少年砍死了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5635#       发表于 2020-6-30 21:46
 
 
-
  本帖最后由 塔奇克马 于 2020-6-30 21:47 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">四天王里那三只可能就是赞扎弄出来脱离控制的失败品因为没有形成智慧就索性不管了,但是没想到出现了修尔克这个更失败的.导致直接翻车.
-
-
-
-
-
 
 
 -----
@@ -21741,14 +14402,8 @@ PS：考虑到DE版后传那个雾乃王用的也是异形王的造型，细思�
 ##### 5636#       发表于 2020-6-30 21:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48015462&amp;ptid=1856998" target="_blank"> AincradWanderer 发表于 2020-6-30 21:21</a> 引用:kos_mos 发表于 2020-6-30 19:14 赞扎进攻雪山，雪山群魔乱舞，100、114、120打不过，赞扎，卒。 经典哲学问题：无敌的神能创造出压死自己的石头吗 </blockquote>
 赞扎这弟弟就别无敌了，要再活一个千年就得这么大费周章。看看机神界那帮寿星们，三百年前都是最近来自: iPhone客户端
-
-
-
-
-
 
 
 -----
@@ -21757,16 +14412,10 @@ PS：考虑到DE版后传那个雾乃王用的也是异形王的造型，细思�
 ##### 5637#       发表于 2020-6-30 22:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48015462&amp;ptid=1856998" target="_blank">AincradWanderer 发表于 2020-06-30 21:21:14</a>
 经典哲学问题：无敌的神能创造出压死自己的石头吗</blockquote>可惜只是自认为的神，权限不是最高，力量的来源也并非本身
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -21775,14 +14424,7 @@ PS：考虑到DE版后传那个雾乃王用的也是异形王的造型，细思�
 ##### 5638#       发表于 2020-6-30 22:20
 
 
-
-
 Monado封印在雪山→赞扎（阿伽雷斯的身体）在雪山被偶然路过的豪雪のベルガザス撞飞或雪檻のアバーシ打下悬崖脑袋着地气绝，Monado脱手→那时候留守海恩塔遗迹的海恩塔卫士发现这是天赐良机，把Monado封印把赞扎用担架抬到监狱岛说
-
-
-
-
-
 
 
 -----
@@ -21791,21 +14433,13 @@ Monado封印在雪山→赞扎（阿伽雷斯的身体）在雪山被偶然路�
 ##### 5639#       发表于 2020-6-30 22:38
 
 
-
-
 这个战斗后的对话看着笑死了，尤其是最后一个。勇者你这么多奇怪的发言真的合适么<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  deathomega  
 ##### 5640#       发表于 2020-6-30 22:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48016035&amp;ptid=1856998" target="_blank">kos_mos 发表于 2020-6-30 22:20</a>
@@ -21815,16 +14449,10 @@ Monado封印在雪山→赞扎（阿伽雷斯的身体）在雪山被偶然路�
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5641#       发表于 2020-6-30 23:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48016225&amp;ptid=1856998" target="_blank">Troywest 发表于 2020-6-30 22:38</a>
@@ -21836,16 +14464,10 @@ Monado封印在雪山→赞扎（阿伽雷斯的身体）在雪山被偶然路�
 不过还有一个实战价值比趣味性高的战斗语音提示，比如说天赋技好了的时候，每个人都有不一样的。方便你知道什么开连携能最大化伤害。
 
 
-
-
-
-
-
 -----
 
 ####  阿卵真是牛逼  
 ##### 5642#       发表于 2020-6-30 23:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48016225&amp;ptid=1856998" target="_blank">Troywest 发表于 2020-6-30 22:38</a>
@@ -21853,16 +14475,10 @@ Monado封印在雪山→赞扎（阿伽雷斯的身体）在雪山被偶然路�
 文盲莱茵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5643#       发表于 2020-6-30 23:45
-
 
 
  本帖最后由 Arccueid 于 2020-6-30 23:54 编辑 
@@ -21874,13 +14490,11 @@ Monado封印在雪山→赞扎（阿伽雷斯的身体）在雪山被偶然路�
 今なら……やれそうだ！（100%）
 
 
-
 菲奥伦：
 
 身体に……力が （50%）
 
 私……今ならやれる気がするの！（100%）
-
 
 
 莱恩：
@@ -21890,13 +14504,11 @@ Monado封印在雪山→赞扎（阿伽雷斯的身体）在雪山被偶然路�
 俺に任せろ！（100%）
 
 
-
 卡尔纳：
 
 銃身が熱くなってきたわね…… （50%）
 
 銃身が溶けそうに熱いわ！（100%）
-
 
 
 丹邦：
@@ -21906,13 +14518,11 @@ Monado封印在雪山→赞扎（阿伽雷斯的身体）在雪山被偶然路�
 好機……到来っ！（100%）
 
 
-
 公主：
 
 エーテルが満ちてきたようだな…… （50%）
 
 エーテルが……内より溢れてくる！（100%）
-
 
 
 利奇：
@@ -21922,16 +14532,10 @@ Monado封印在雪山→赞扎（阿伽雷斯的身体）在雪山被偶然路�
 ノポン流のスゴ技、見せてやるも～！（100%）</blockquote>
 
 
-
-
-
-
-
 -----
 
 ####  syz726  
 ##### 5644#       发表于 2020-6-30 23:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48016465&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-6-30 23:05</a>
@@ -21947,16 +14551,10 @@ Monado封印在雪山→赞扎（阿伽雷斯的身体）在雪山被偶然路�
 这兄妹俩加戏能力真是高到爆炸啊……
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5645#       发表于 2020-7-1 00:05
-
 
 
  本帖最后由 Arccueid 于 2020-7-1 00:08 编辑 
@@ -21971,25 +14569,13 @@ Monado封印在雪山→赞扎（阿伽雷斯的身体）在雪山被偶然路�
 翻译:[http://www.vgtime.com/forum/1078417.jhtml](http://www.vgtime.com/forum/1078417.jhtml)
 
 
-
-
-
-
-
 -----
 
 ####  UyNad  
 ##### 5646#       发表于 2020-7-1 00:44
 
 
-
-
 一直觉得官方小说这种故事才应该是XB1里支线该有的样子。XB1角色为了推主线发展，超出自己章节就没戏份了，支线不就是用来补充“主线之外的队友故事”的么。就像所有crpg都会有的队友专属豪华任务。出了皇都后梅莉亚cv就下班了，菲奥伦入队后直到名场面之前都没和她有正面交流，搞得好像为了修尔克暗中敌对一样。实际上这两人应该能成为挺可爱的朋友吧，一个十八岁直言不讳的野猪系（？）村姑，一个八十八岁摆架子但总是不知不觉放下来的皇太子BBA（？）这百合起来太香了，ao3上菲奥伦梅莉亚拉娘文学也一堆，人民群众喜闻乐见的文学就是好文学
-
-
-
-
-
 
 
 -----
@@ -21998,16 +14584,10 @@ Monado封印在雪山→赞扎（阿伽雷斯的身体）在雪山被偶然路�
 ##### 5647#       发表于 2020-7-1 01:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48016225&amp;ptid=1856998" target="_blank">Troywest 发表于 2020-6-30 22:38</a>
 
 这个战斗后的对话看着笑死了，尤其是最后一个。勇者你这么多奇怪的发言真的合适么 https://b23.tv/i ...</blockquote>
 草笑死，莱恩这么丈育的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">得罪女人后梅莉亚叫卡露娜“瞄着头打”还行
-
-
-
-
-
 
 
 -----
@@ -22016,22 +14596,15 @@ Monado封印在雪山→赞扎（阿伽雷斯的身体）在雪山被偶然路�
 ##### 5648#       发表于 2020-7-1 01:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">到了17章是不是只能砍怪练级了。。。。。68级进心脏看到75级罗兰表示告辞，在外面砍了n久怪全部拉到70级，用力奇把罗兰毒死，差点翻车，大舅子全打敏捷宝石才砍得中boss，其他菜刀全miss，真的蛋疼
 
 —— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
 
 ####  塔奇克马  
 ##### 5649#       发表于 2020-7-1 02:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48017975&amp;ptid=1856998" target="_blank">希望之异热同心 发表于 2020-7-1 01:59</a>
@@ -22043,26 +14616,15 @@ Monado封印在雪山→赞扎（阿伽雷斯的身体）在雪山被偶然路�
 不行就开休闲大概能去灰烬洞窟找一堆96蜘蛛练级
 
 
-
-
-
-
-
 -----
 
 ####  椎名mahuyo  
 ##### 5650#       发表于 2020-7-1 02:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48017975&amp;ptid=1856998" target="_blank">希望之异热同心 发表于 2020-7-1 01:59</a>
 到了17章是不是只能砍怪练级了。。。。。68级进心脏看到75级罗兰表示告辞，在外面砍了n久怪全部拉到 ...</blockquote>
 灰烬洞穴还有新地图，跑酷地标有经验，17章支线有几个经验多的，但是很多有前置而且都是90级怪的地方。查掉想要升级技能书的精英怪，然后一直刷吧，刷着升级蛮快的，刷出来的很多装备和书基本都能用到死了
-
-
-
-
-
 
 
 -----
@@ -22071,16 +14633,10 @@ Monado封印在雪山→赞扎（阿伽雷斯的身体）在雪山被偶然路�
 ##### 5651#       发表于 2020-7-1 02:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48017975&amp;ptid=1856998" target="_blank">希望之异热同心 发表于 2020-07-01 01:59:29</a>
 v2.2.2.1</blockquote>不想折腾开下休闲模式去连携杀蜘蛛练级就好了，等级压制是最简单的解决方法
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -22089,16 +14645,10 @@ v2.2.2.1</blockquote>不想折腾开下休闲模式去连携杀蜘蛛练级就�
 ##### 5652#       发表于 2020-7-1 02:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48017529&amp;ptid=1856998" target="_blank">UyNad 发表于 2020-7-1 00:44</a>
 
 一直觉得官方小说这种故事才应该是XB1里支线该有的样子。XB1角色为了推主线发展，超出自己章节就没戏份了， ...</blockquote>
 这种我觉得只是单纯的游戏赶工没有做完。本来应该有很多支线啊、剧情对话啊什么的来丰富队友关系的
-
-
-
-
-
 
 
 -----
@@ -22107,23 +14657,16 @@ v2.2.2.1</blockquote>不想折腾开下休闲模式去连携杀蜘蛛练级就�
 ##### 5653#       发表于 2020-7-1 03:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48018126&amp;ptid=1856998" target="_blank">dren_zheng 发表于 2020-07-01 02:50:00</a>
 这种我觉得只是单纯的游戏赶工没有做完。本来应该有很多支线啊、剧情对话啊什么的来丰富队友关系的 ...</blockquote>其实现有支线带名字npc的也有不少有意思的，还有平时的对话也会因为你做支线或者跟其他npc的关系改变，已经很大工程量了
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  希望之异热同心  
 ##### 5654#       发表于 2020-7-1 08:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48018013&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-7-1 02:08</a>
@@ -22136,16 +14679,10 @@ dot系确实比菜刀好，不用管命中问题，不过这队伍要怎么躲�
 —— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5655#       发表于 2020-7-1 08:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48018957&amp;ptid=1856998" target="_blank">希望之异热同心 发表于 2020-7-1 08:41</a>
@@ -22157,16 +14694,10 @@ dot系确实比菜刀好，不用管命中问题，不过这队伍要怎么躲�
 睡/眩晕/连携
 
 
-
-
-
-
-
 -----
 
 ####  希望之异热同心  
 ##### 5656#       发表于 2020-7-1 09:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48018995&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-7-1 08:47</a>
@@ -22175,16 +14706,10 @@ dot系确实比菜刀好，不用管命中问题，不过这队伍要怎么躲�
 睡眠能睡到精英怪么。。。感觉丢过去完全没生效的样子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5657#       发表于 2020-7-1 09:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48019323&amp;ptid=1856998" target="_blank">希望之异热同心 发表于 2020-07-01 09:19:28</a>
@@ -22193,16 +14718,10 @@ dot系确实比菜刀好，不用管命中问题，不过这队伍要怎么躲�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  UyNad  
 ##### 5658#       发表于 2020-7-1 09:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48018242&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-7-1 03:53</a>
@@ -22217,17 +14736,10 @@ XB1主线流程的队友刻画内容比XB2少多了，XB1缺的是队友的story
 反正我现在最期待的游戏不是异度神剑3，而是异度无双，做不成P5S那样的话火纹无双的水平总行吧（）
 
 
-
-
-
-
-
 -----
 
 ####  言嘉  
 ##### 5659#       发表于 2020-7-1 10:01
-
-
 
 
 断断续续快打完了
@@ -22277,32 +14789,20 @@ XB1主线流程的队友刻画内容比XB2少多了，XB1缺的是队友的story
 没必要好吧。
 
 
-
-
-
-
-
 -----
 
 ####  没取名啊  
 ##### 5660#       发表于 2020-7-1 10:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48019774&amp;ptid=1856998" target="_blank"> 言嘉 发表于 2020-7-1 10:01</a> 断断续续快打完了 感想就是这个编剧实在不适合写日系中二剧情，也不会编排中二人设，说更不客气一点就是不适合搞JRPG 正常剧情和正常角色还没暴露出太多短板 赞扎和美娜斯正式开搞后直接喷了  两个混了几千年的真神就这？ 美娜斯虽然感觉不到神性，但至少还能看出健全的人格，不至于让人出戏 赞扎完全就是个纯度100000%的究极巨婴 在他的low比光环对比下连又low又蠢的艾吉尔都被反衬得光辉四射了，服了  </blockquote>
 梅娜斯这种善到没变的性格也挺有那种母神味儿的吧来自: iPhone客户端
-
-
-
-
-
 
 
 -----
 
 ####  言嘉  
 ##### 5661#       发表于 2020-7-1 10:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48019850&amp;ptid=1856998" target="_blank">没取名啊 发表于 2020-7-1 10:08</a>
@@ -22327,16 +14827,10 @@ XB1主线流程的队友刻画内容比XB2少多了，XB1缺的是队友的story
 这些神神怪怪的中二设定交给黄油写手和老牌中二大厂去搞就好
 
 
-
-
-
-
-
 -----
 
 ####  血狂毘沙门  
 ##### 5662#       发表于 2020-7-1 10:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48019774&amp;ptid=1856998" target="_blank">言嘉 发表于 2020-7-1 10:01</a>
@@ -22347,16 +14841,10 @@ XB1主线流程的队友刻画内容比XB2少多了，XB1缺的是队友的story
 赞扎是巨婴就对了啊 按2的设定来看 赞扎就是个少半拉身体的不完整人格
 
 
-
-
-
-
-
 -----
 
 ####  Troywest  
 ##### 5663#       发表于 2020-7-1 10:42
-
 
 
  本帖最后由 Troywest 于 2020-7-1 10:44 编辑 
@@ -22364,16 +14852,10 @@ XB1主线流程的队友刻画内容比XB2少多了，XB1缺的是队友的story
 从二代来看，克劳乌斯的善保留在了2的世界，恶穿越到了1的世界；而加拉提亚正好反过来，本体都变成了怪物了；所以一代的巨神的坏和机神的善都过于直白，可能就是因为这样的设定吧。当然，根本原因应该还是一代后期为了赶工，人物没法子细细刻画，所以到了二代，稍微补全一下设定。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  希望之异热同心  
 ##### 5664#       发表于 2020-7-1 12:55
-
 
 
  本帖最后由 希望之异热同心 于 2020-7-1 13:01 编辑 
@@ -22386,16 +14868,10 @@ XB1主线流程的队友刻画内容比XB2少多了，XB1缺的是队友的story
 —— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5665#       发表于 2020-7-1 13:28
-
 
 
  本帖最后由 Arccueid 于 2020-7-1 15:21 编辑 
@@ -22412,16 +14888,10 @@ v2.2.2.1</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  hugosol  
 ##### 5666#       发表于 2020-7-1 14:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48022279&amp;ptid=1856998" target="_blank">希望之异热同心 发表于 2020-7-1 12:55</a>
@@ -22437,16 +14907,10 @@ v2.2.2.1</blockquote>
 特别是修尔克，由于本身敏捷不高，越级打普攻基本就是砍空气，但是由于本身有三个超短cd又简单无脑的特效技能，后期就靠那三招无缝连接代替普攻快速打出团队槽，还可以防止普攻miss太多导致士气下降<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5667#       发表于 2020-7-1 14:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48023323&amp;ptid=1856998" target="_blank">hugosol 发表于 2020-7-1 14:23</a>
@@ -22455,16 +14919,10 @@ v2.2.2.1</blockquote>
 防止士气下降上个利奇就行了，勇气嗼AI可以无缝覆盖的
 
 
-
-
-
-
-
 -----
 
 ####  希望之异热同心  
 ##### 5668#       发表于 2020-7-1 14:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48023323&amp;ptid=1856998" target="_blank">hugosol 发表于 2020-7-1 14:23</a>
@@ -22476,16 +14934,10 @@ v2.2.2.1</blockquote>
 看来拯救世界还是要靠勇者力奇嗼！通关之后直接开二周目培养好了
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5669#       发表于 2020-7-1 14:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48023481&amp;ptid=1856998" target="_blank">希望之异热同心 发表于 2020-7-1 14:35</a>
@@ -22494,32 +14946,19 @@ v2.2.2.1</blockquote>
 开休闲模式，去灰烬洞穴杀蝙蝠，10分钟就能80级了吧。
 
 
-
-
-
-
-
 -----
 
 ####  西多士  
 ##### 5670#       发表于 2020-7-1 21:30
 
 
-
-
 刷菲奥伦羁绊的怪物有推荐吗？丛林那只星云等级太低了，调到最低40级还是能打到，求推荐合适的怪
-
-
-
-
-
 
 
 -----
 
 ####  Arccueid  
 ##### 5671#       发表于 2020-7-1 21:34
-
 
 
  本帖最后由 Arccueid 于 2020-7-1 21:50 编辑 
@@ -22534,25 +14973,13 @@ v2.2.2.1</blockquote>
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5672#       发表于 2020-7-1 21:39
 
 
-
-
 这翻页BUG也太蠢了
-
-
-
-
-
 
 
 -----
@@ -22561,22 +14988,15 @@ v2.2.2.1</blockquote>
 ##### 5673#       发表于 2020-7-1 23:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48028094&amp;ptid=1856998" target="_blank">西多士 发表于 2020-7-1 21:30</a>
 刷菲奥伦羁绊的怪物有推荐吗？丛林那只星云等级太低了，调到最低40级还是能打到，求推荐合适的怪 ...</blockquote>
 我刷的雪山的冰星云，不过就是有减速，效率略低。现在想来雪山的火星云应该也不错
-
-
-
-
-
 
 
 -----
 
 ####  塔奇克马  
 ##### 5674#       发表于 2020-7-1 23:09
-
 
 
  本帖最后由 塔奇克马 于 2020-7-1 23:21 编辑 
@@ -22593,22 +15013,10 @@ v2.2.2.1</blockquote>
 2020-7-1 23:21 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  syz726  
 ##### 5675#       发表于 2020-7-1 23:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48029142&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-7-1 23:09</a>
@@ -22621,16 +15029,10 @@ v2.2.2.1</blockquote>
 然后这么多年终于聪明反被聪明误，强力终被强力欺的被受克文字意义上的一刀两断了
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5676#       发表于 2020-7-1 23:26
-
 
 
  本帖最后由 塔奇克马 于 2020-7-1 23:29 编辑 
@@ -22649,26 +15051,13 @@ v2.2.2.1</blockquote>
 甚至于我觉得如果觉得太孤独做出来的陪伴自己的不一定需要实体.而作为自己容器的家伙可以不需要智慧.
 
 
-
-
-
-
-
-
 -----
 
 ####  空虚的祈祷  
 ##### 5677#       发表于 2020-7-1 23:30
 
 
-
-
 相连的未来也通关了，xbde这个游戏算是彻底结束了，基本可以算是这两年来我玩的最沉迷的游戏之一了，无比期待mono社下一个作品<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22677,16 +15066,9 @@ v2.2.2.1</blockquote>
 ##### 5678#       发表于 2020-7-1 23:37
 
 
-
-
 刚在6号殖民地门口捡到塔鲁可，本篇最惨不是梅梅是老皇帝吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 —— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -22695,21 +15077,13 @@ v2.2.2.1</blockquote>
 ##### 5679#       发表于 2020-7-2 00:20
 
 
-
-
 草，把修尔克那句“more enemies”听成“more anime”了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  UyNad  
 ##### 5680#       发表于 2020-7-2 10:26
-
 
 
  本帖最后由 UyNad 于 2020-7-2 10:28 编辑 
@@ -22727,17 +15101,10 @@ v2.2.2.1</blockquote>
 所以和姐姐一起挺好的，姐姐和她寿命差不多，（而且相连未来里变得靠谱又好看，还是本作唯一指定纯正傲娇）
 
 
-
-
-
-
-
 -----
 
 ####  UyNad  
 ##### 5681#       发表于 2020-7-2 10:35
-
-
 
 
 其实梅里亚在海恩塔里感觉也就17岁左右吧，未成年青涩少女。体型也非常瘦弱，比人类菲奥伦还细
@@ -22750,16 +15117,10 @@ v2.2.2.1</blockquote>
 虽然非常想看到梅里亚长大后的样子，但她长大就意味着修尔克菲奥伦已经死了。真难
 
 
-
-
-
-
-
 -----
 
 ####  Errey  
 ##### 5682#       发表于 2020-7-2 10:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48029142&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-07-01 23:09:39</a></blockquote>韭菜们发展科技起来了就不好割了，剧情实际上也指出了这部分，但是的确太没手段了
@@ -22767,16 +15128,10 @@ v2.2.2.1</blockquote>
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5683#       发表于 2020-7-2 12:46
-
 
 
  本帖最后由 Arccueid 于 2020-7-2 14:09 编辑 
@@ -22792,14 +15147,9 @@ v2.2.2.1</blockquote>
 </blockquote>
 
 
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 4战斗力 +4
@@ -22812,12 +15162,7 @@ v2.2.2.1</blockquote>
 | AincradWanderer| + 1|强！|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -22826,15 +15171,9 @@ v2.2.2.1</blockquote>
 ##### 5684#       发表于 2020-7-2 13:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48034925&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-7-2 12:46</a>
 成功在1周目13章进度下，用20级裸体丹邦+22级利奇+1级莱恩正常干死了57级恶戏，真的是至今打的最爽一次战斗 ...</blockquote>
 Mark留名，下来好好研究下<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22843,21 +15182,13 @@ Mark留名，下来好好研究下<img src="https://static.saraba1st.com/image/s
 ##### 5685#       发表于 2020-7-2 13:09
 
 
-
-
 想知道诺彭族对勇者这个称号到底什么看法。看村里人天天催力奇还钱，但也有称赞勇者的时候来自: iPhone客户端
-
-
-
-
-
 
 
 -----
 
 ####  CURE_HGCG  
 ##### 5686#       发表于 2020-7-2 15:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48035213&amp;ptid=1856998" target="_blank">没取名啊 发表于 2020-7-2 13:09</a>
@@ -22870,16 +15201,10 @@ Mark留名，下来好好研究下<img src="https://static.saraba1st.com/image/s
 长老利用这点让他白干活抵债
 
 
-
-
-
-
-
 -----
 
 ####  zjoi  
 ##### 5687#       发表于 2020-7-2 15:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48034925&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-7-2 12:46</a>
@@ -22888,26 +15213,15 @@ Mark留名，下来好好研究下<img src="https://static.saraba1st.com/image/s
 这个的原理是什么，裸体加敏捷的性格？
 
 
-
-
-
-
-
 -----
 
 ####  Troywest  
 ##### 5688#       发表于 2020-7-2 16:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48036743&amp;ptid=1856998" target="_blank">zjoi 发表于 2020-7-2 15:20</a>
 这个的原理是什么，裸体加敏捷的性格？</blockquote>
 大舅子有一个性格是裸体加敏捷
-
-
-
-
-
 
 
 -----
@@ -22916,24 +15230,16 @@ Mark留名，下来好好研究下<img src="https://static.saraba1st.com/image/s
 ##### 5689#       发表于 2020-7-2 16:35
 
 
-
-
 http://tieba.baidu.com/p/6784874152
 原来还有这种细节吗，长见识了
 
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  zjoi  
 ##### 5690#       发表于 2020-7-2 16:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48037690&amp;ptid=1856998" target="_blank">Troywest 发表于 2020-7-2 16:32</a>
@@ -22944,16 +15250,10 @@ http://tieba.baidu.com/p/6784874152
 但是裸体加敏捷只有30%，插孔是50点敏捷，20级的丹巴，裸体的加的敏捷数，好像不如衣服插孔的50点多吧
 
 
-
-
-
-
-
 -----
 
 ####  zjoi  
 ##### 5691#       发表于 2020-7-2 16:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48037729&amp;ptid=1856998" target="_blank">不垃圾屌丝 发表于 2020-7-2 16:35</a>
@@ -22966,16 +15266,10 @@ http://tieba.baidu.com/p/6784874152
 特别是机神界，其实有大量捷径来躲避战斗
 
 
-
-
-
-
-
 -----
 
 ####  狸狸狐  
 ##### 5692#       发表于 2020-7-2 16:59
-
 
 
 <blockquote>不垃圾屌丝 发表于 2020-7-2 16:35
@@ -22988,16 +15282,10 @@ http://tieba.baidu.com/p/6784874152
 记得寂静岭3有个结局是杀满多少怪就会黑化，类似的这个如果设计成杀多少有脸直接黑化赞扎附体就好玩了。
 
 
-
-
-
-
-
 -----
 
 ####  不垃圾屌丝  
 ##### 5693#       发表于 2020-7-2 17:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48038090&amp;ptid=1856998" target="_blank">狸狸狐 发表于 2020-7-2 16:59</a>
@@ -23009,16 +15297,10 @@ http://tieba.baidu.com/p/6784874152
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  秋月孝三  
 ##### 5694#       发表于 2020-7-2 17:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48037729&amp;ptid=1856998" target="_blank">不垃圾屌丝 发表于 2020-7-2 16:35</a>
@@ -23029,16 +15311,10 @@ http://tieba.baidu.com/p/6784874152
 想多了。face击破以后是一个淡出的效果，普通机神兵是爆炸。100%掉落的非要求素材也不止染血face
 
 
-
-
-
-
-
 -----
 
 ####  AincradWanderer  
 ##### 5695#       发表于 2020-7-2 17:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48038066&amp;ptid=1856998" target="_blank">zjoi 发表于 2020-7-2 16:58</a>
@@ -23049,32 +15325,19 @@ http://tieba.baidu.com/p/6784874152
 帝都4个开关楼下的费斯也可以绕开？
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5696#       发表于 2020-7-2 17:39
 
 
-
-
 还是希望诺彭社出一作给与玩家选择能让主角手上沾满鲜血甚至灭世的作品.<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  zjoi  
 ##### 5697#       发表于 2020-7-2 17:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48038352&amp;ptid=1856998" target="_blank">AincradWanderer 发表于 2020-7-2 17:14</a>
@@ -23085,16 +15348,10 @@ http://tieba.baidu.com/p/6784874152
 特别是地上迷彩和空中迷彩装满后就更简单了
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5698#       发表于 2020-7-2 19:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48038044&amp;ptid=1856998" target="_blank">zjoi 发表于 2020-07-02 16:56:46</a>
@@ -23105,16 +15362,10 @@ http://tieba.baidu.com/p/6784874152
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5699#       发表于 2020-7-2 19:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48038090&amp;ptid=1856998" target="_blank">狸狸狐 发表于 2020-7-2 16:59</a>
@@ -23125,16 +15376,10 @@ http://tieba.baidu.com/p/6784874152
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可惜没做成这种有实质意义的
 
 
-
-
-
-
-
 -----
 
 ####  zjoi  
 ##### 5700#       发表于 2020-7-2 20:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48039694&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-7-2 19:01</a>
@@ -23148,16 +15393,10 @@ http://tieba.baidu.com/p/6784874152
 牛~~
 
 
-
-
-
-
-
 -----
 
 ####  zjoi  
 ##### 5701#       发表于 2020-7-2 20:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48039694&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-7-2 19:01</a>
@@ -23176,16 +15415,10 @@ http://tieba.baidu.com/p/6784874152
 有兴趣的可以试试能不能在决定版的新机制下进行下优化和扩展~~
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5702#       发表于 2020-7-2 20:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48040478&amp;ptid=1856998" target="_blank">zjoi 发表于 2020-07-02 20:11:30</a>
@@ -23195,22 +15428,15 @@ http://tieba.baidu.com/p/6784874152
 这里有一套以前研究的信春哥无限复活的SOLO套路，也比较有趣
 
 
-
  ...</blockquote>利奇solo黑龙之后肯定会去试的，不过这套路主要还是利奇的偷在天赋宝石加速后太imba了，开场敏捷和以太什么都偷完之后配合死队友的性格buff几乎无敌<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  zjoi  
 ##### 5703#       发表于 2020-7-2 20:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48040607&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-7-2 20:23</a>
@@ -23222,16 +15448,10 @@ http://tieba.baidu.com/p/6784874152
 因为利奇装死，丹巴阳炎，使得即便面对没有反弹的怪，也能让队友送死，从而可以让这个思路广泛化的应用
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5704#       发表于 2020-7-2 20:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48040668&amp;ptid=1856998" target="_blank">zjoi 发表于 2020-07-02 20:29:42</a>
@@ -23240,16 +15460,10 @@ http://tieba.baidu.com/p/6784874152
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  zjoi  
 ##### 5705#       发表于 2020-7-2 20:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48040718&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-7-2 20:33</a>
@@ -23263,32 +15477,19 @@ http://tieba.baidu.com/p/6784874152
 二周目，又感觉羁绊币太多了点~
 
 
-
-
-
-
-
 -----
 
 ####  AincradWanderer  
 ##### 5706#       发表于 2020-7-2 21:10
 
 
-
-
 相连的未来也通关了，真好啊，弥补了本篇后期梅莉亚基本神隐的的瑕疵，没有给出新作的暗示算是个小小的遗憾，不过在梅莉亚的好结局前这完全不重要<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Arccueid  
 ##### 5707#       发表于 2020-7-2 21:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48041128&amp;ptid=1856998" target="_blank">AincradWanderer 发表于 2020-07-02 21:10:40</a>
@@ -23298,16 +15499,10 @@ http://tieba.baidu.com/p/6784874152
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  sslink  
 ##### 5708#       发表于 2020-7-2 21:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48041128&amp;ptid=1856998" target="_blank">AincradWanderer 发表于 2020-7-2 21:10</a>
@@ -23316,16 +15511,10 @@ http://tieba.baidu.com/p/6784874152
 裂缝和雾乃王算是新坑了
 
 
-
-
-
-
-
 -----
 
 ####  AincradWanderer  
 ##### 5709#       发表于 2020-7-2 21:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48041347&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-7-2 21:30</a>
@@ -23336,16 +15525,10 @@ http://tieba.baidu.com/p/6784874152
 大舅哥我记得有支线NPC表示过好感啊，能不能转正就要看造化了，比如相连的未来里对塔鲁可用美食攻略的那个厨师NPC<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5710#       发表于 2020-7-2 21:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48041462&amp;ptid=1856998" target="_blank">AincradWanderer 发表于 2020-07-02 21:40:47</a>
@@ -23354,17 +15537,10 @@ http://tieba.baidu.com/p/6784874152
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  nerugigannte  
 ##### 5711#       发表于 2020-7-2 22:47
-
-
 
 
 在清殖民地9的支线发现个问题
@@ -23372,16 +15548,10 @@ http://tieba.baidu.com/p/6784874152
 有个任务叫出色的帕欧拉。前置任务也都做了，说要和她对话后才能触发任务，但之前有个关于她的任务需要女性之间达到紫色羁绊，和她对话只有关于那个任务的，是不是这个任务不做完，出色的帕欧拉就触发不了
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5712#       发表于 2020-7-2 22:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48042225&amp;ptid=1856998" target="_blank">nerugigannte 发表于 2020-07-02 22:47:34</a>
@@ -23392,16 +15562,10 @@ http://tieba.baidu.com/p/6784874152
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Zhangsmallquan  
 ##### 5713#       发表于 2020-7-3 01:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48034925&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-7-2 12:46</a>
@@ -23410,16 +15574,10 @@ http://tieba.baidu.com/p/6784874152
 太强了，可惜已经17章了不能再挑战要塞了，不然也想再回头研究下
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5714#       发表于 2020-7-3 01:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48043564&amp;ptid=1856998" target="_blank">Zhangsmallquan 发表于 2020-7-3 01:16</a>
@@ -23430,25 +15588,13 @@ http://tieba.baidu.com/p/6784874152
 现在帝都能拿个天赋爆破3的宝石，我去琢磨琢磨利奇单挑王城看看
 
 
-
-
-
-
-
 -----
 
 ####  nerugigannte  
 ##### 5715#       发表于 2020-7-3 08:23
 
 
-
-
 这作是不是天赋只要学会了，更换路线别的路线上的天赋也能用，我看老版的攻略说不行，我决定版试了下更换到没中装备的路线，发现还是能穿中装备
-
-
-
-
-
 
 
 -----
@@ -23457,16 +15603,10 @@ http://tieba.baidu.com/p/6784874152
 ##### 5716#       发表于 2020-7-3 08:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48044958&amp;ptid=1856998" target="_blank">nerugigannte 发表于 2020-7-3 08:23</a>
 
 这作是不是天赋只要学会了，更换路线别的路线上的天赋也能用，我看老版的攻略说不行，我决定版试了下更换到 ...</blockquote>
 点亮就行了，跟二代的人物环是一样的，都会了之后选分支性格主要是加成不一样。
-
-
-
-
-
 
 
 -----
@@ -23475,14 +15615,7 @@ http://tieba.baidu.com/p/6784874152
 ##### 5717#       发表于 2020-7-3 08:37
 
 
-
-
 今天下午3点，俄罗斯方块99的异度神剑终极版主题活动开始
-
-
-
-
-
 
 
 -----
@@ -23491,22 +15624,13 @@ http://tieba.baidu.com/p/6784874152
 ##### 5718#       发表于 2020-7-3 15:03
 
 
-
-
 俄罗斯方块99主题活动开始了
-
-
-
-
-
 
 
 -----
 
 ####  BQlin  
 ##### 5719#       发表于 2020-7-3 17:54
-
-
 
 
 后传打通了，boss的难度也太低了，没了一身神装也是随便打打就过了
@@ -23517,17 +15641,10 @@ http://tieba.baidu.com/p/6784874152
 梅里亚在过场里面放技能太卖家秀了，召唤/发射元素那叫一个行云流水，实际游玩起来大部分时间都是站桩
 
 
-
-
-
-
-
 -----
 
 ####  秋月孝三  
 ##### 5720#       发表于 2020-7-3 18:02
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202007/03/180219ibanu0rdck50ekvj.jpg" referrerpolicy="no-referrer">
@@ -23540,19 +15657,9 @@ http://tieba.baidu.com/p/6784874152
 2020-7-3 18:02 上传
 
 
-
-
-
 [https://hyperts.net/xenobladede-book/](https://hyperts.net/xenobladede-book/)
 
 是时候把原版那本换掉了<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 -----
@@ -23561,23 +15668,15 @@ http://tieba.baidu.com/p/6784874152
 ##### 5721#       发表于 2020-7-4 07:27
 
 
-
-
 全牵绊图在哪对照啊？感觉能对话的都差不多了，就是不知道成就要怎么拿，估计可能之前漏了几个。
 
 — from Google Pixel 2, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
-
-
-
-
-
 
 
 -----
 
 ####  Arccueid  
 ##### 5722#       发表于 2020-7-4 09:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48053049&amp;ptid=1856998" target="_blank">秋月孝三 发表于 2020-7-3 18:02</a>
@@ -23588,32 +15687,19 @@ https://hyperts.net/xenobladede-book/
 看了下只是新加了幻化，挑战，后传相关的新内容，其他好像没什么改动..
 
 
-
-
-
-
-
 -----
 
 ####  HGCG-闪  
 ##### 5723#       发表于 2020-7-5 00:28
 
 
-
-
 机械伦的强制倒地技能，有啥快用的方法吗
-
-
-
-
-
 
 
 -----
 
 ####  塔奇克马  
 ##### 5724#       发表于 2020-7-5 00:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48071199&amp;ptid=1856998" target="_blank">HGCG-闪 发表于 2020-7-5 00:28</a>
@@ -23623,16 +15709,10 @@ https://hyperts.net/xenobladede-book/
 —— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  HGCG-闪  
 ##### 5725#       发表于 2020-7-5 01:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48071257&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-7-5 00:32</a>
@@ -23646,16 +15726,10 @@ https://hyperts.net/xenobladede-book/
 怎么快速续满情绪呢
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5726#       发表于 2020-7-5 01:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48071684&amp;ptid=1856998" target="_blank">HGCG-闪 发表于 2020-7-5 01:11</a>
@@ -23667,27 +15741,15 @@ https://hyperts.net/xenobladede-book/
 —— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5727#       发表于 2020-7-5 01:25
 
 
-
-
 拔刀 用那个增加士气红色aoe技能  还有元气大爆发狂用天赋用一次涨一阶
 
 —— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -23696,21 +15758,13 @@ https://hyperts.net/xenobladede-book/
 ##### 5728#       发表于 2020-7-5 01:36
 
 
-
-
 增加士气红色aoe技能 的 技能书哪里拿？
-
-
-
-
-
 
 
 -----
 
 ####  塔奇克马  
 ##### 5729#       发表于 2020-7-5 01:43
-
 
 
  本帖最后由 塔奇克马 于 2020-7-5 01:47 编辑 
@@ -23727,16 +15781,10 @@ https://xenoblade.fandom.com/wiki/Magnificent_Digalus?file=Deinos_Sauros.jpg
 —— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5730#       发表于 2020-7-5 10:52
-
 
 
  本帖最后由 Arccueid 于 2020-7-5 12:14 编辑 
@@ -23753,26 +15801,14 @@ https://xenoblade.fandom.com/wiki/Magnificent_Digalus?file=Deinos_Sauros.jpg
 做到这次击杀的硬件要求其实不是很高，装备只要有孔就行(反正都是被秒的伤害)，需要的最高级武器/6级宝石都是很好弄的东西。队友性格只要有增加连携几率/连携伤害/夜间力量/武器上下限/暴伤/开幕系力量和全能力就够了，敏捷和命中不需要，只有丹邦需要同时拉满敏捷系能力保证弥补一定命中，最主要还是满足所有条件的概率。顺便一说这个冠名很好风筝满30秒，而且对睡和降以太耐性没抗性，以太队DOT流可以随便逛街击杀，仅仅是菜刀队的爹。</blockquote>
 
 
-
-
-
-
-
-
 -----
 
 ####  秋月孝三  
 ##### 5731#       发表于 2020-7-5 11:36
 
 
-
 [https://twitter.com/nakigara_game/status/1279276301375860736](https://twitter.com/nakigara_game/status/1279276301375860736)
 <img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">这bug过于缺德
-
-
-
-
-
 
 
 -----
@@ -23781,16 +15817,10 @@ https://xenoblade.fandom.com/wiki/Magnificent_Digalus?file=Deinos_Sauros.jpg
 ##### 5732#       发表于 2020-7-5 12:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48074111&amp;ptid=1856998" target="_blank">秋月孝三 发表于 2020-07-05 11:36:29</a>
 这bug过于缺德</blockquote>草 吓到我了
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -23799,23 +15829,15 @@ https://xenoblade.fandom.com/wiki/Magnificent_Digalus?file=Deinos_Sauros.jpg
 ##### 5733#       发表于 2020-7-5 13:31
 
 
-
-
 这bug之前也看到别人触发过，这之后修鲁克就一直站着，包括梅莉娅隐藏剧情那里也是。
 
 意外的是修鲁克也有设定作为NPC时去对话的语音。
-
-
-
-
-
 
 
 -----
 
 ####  塔奇克马  
 ##### 5734#       发表于 2020-7-5 13:34
-
 
 
  本帖最后由 塔奇克马 于 2020-7-5 13:36 编辑 
@@ -23830,16 +15852,10 @@ https://xenoblade.fandom.com/wiki/Magnificent_Digalus?file=Deinos_Sauros.jpg
 这个要怎么兑?
 
 
-
-
-
-
-
 -----
 
 ####  nerugigannte  
 ##### 5735#       发表于 2020-7-5 18:58
-
 
 
  本帖最后由 nerugigannte 于 2020-7-5 19:00 编辑 
@@ -23847,16 +15863,10 @@ https://xenoblade.fandom.com/wiki/Magnificent_Digalus?file=Deinos_Sauros.jpg
 我等级调到34去打监狱塔40j的元素刷个羁绊一颗星就要5分钟了，这速度正常吗
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5736#       发表于 2020-7-5 19:09
-
 
 
  本帖最后由 Arccueid 于 2020-7-5 19:13 编辑 
@@ -23868,17 +15878,10 @@ https://xenoblade.fandom.com/wiki/Magnificent_Digalus?file=Deinos_Sauros.jpg
 不过还是去艾尔特海找80+那个蜥蜴人冠名快一点，所有人调到高他6级然后换最低级武器和去掉伤害战技就行，自己带一个全DEBUFF抵抗6或者昏睡抵抗6，因为每次普攻都会被睡，然后就能救(记得先用主控角色宰了旁边的2个小弟)。比你正常用双重攻击+攻速+士气变动也要3下普攻打出来才能到低士气才能支援效率快多了。
 
 
-
-
-
-
-
-
 -----
 
 ####  kzf  
 ##### 5737#       发表于 2020-7-5 19:14
-
 
 
  本帖最后由 kzf 于 2020-7-5 19:15 编辑 
@@ -23891,17 +15894,10 @@ https://xenoblade.fandom.com/wiki/Magnificent_Digalus?file=Deinos_Sauros.jpg
 —— 来自 Xiaomi MI 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  tdkrgj  
 ##### 5738#       发表于 2020-7-5 19:27
-
-
 
 
 巨神肩收集手册第二个小动物是啥？在哪里刷？95%就差这一个了
@@ -23909,16 +15905,10 @@ https://xenoblade.fandom.com/wiki/Magnificent_Digalus?file=Deinos_Sauros.jpg
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5739#       发表于 2020-7-5 19:28
-
 
 
  本帖最后由 Arccueid 于 2020-7-5 19:34 编辑 
@@ -23933,17 +15923,10 @@ https://xenoblade.fandom.com/wiki/Magnificent_Digalus?file=Deinos_Sauros.jpg
 不过你最稀有的可爱蛛都有了竟然没有断崖萤火虫...为了可爱蛛我SL了一个小时才出
 
 
-
-
-
-
-
-
 -----
 
 ####  tdkrgj  
 ##### 5740#       发表于 2020-7-5 19:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48079435&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-07-05 19:28:19</a>
@@ -23954,16 +15937,10 @@ https://xenoblade.fandom.com/wiki/Magnificent_Digalus?file=Deinos_Sauros.jpg
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5741#       发表于 2020-7-5 19:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48079780&amp;ptid=1856998" target="_blank">tdkrgj 发表于 2020-7-5 19:54</a>
@@ -23978,16 +15955,10 @@ dlc的巨神肩，，，满收集送梅利亚的度假3一套
 DLC我看几个老wiki也没更新，无能为力了
 
 
-
-
-
-
-
 -----
 
 ####  椎名mahuyo  
 ##### 5742#       发表于 2020-7-5 20:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48079412&amp;ptid=1856998" target="_blank">tdkrgj 发表于 2020-7-5 19:27</a>
@@ -24001,16 +15972,10 @@ DLC我看几个老wiki也没更新，无能为力了
 后期有个支线做了增加光点刷新数
 
 
-
-
-
-
-
 -----
 
 ####  tdkrgj  
 ##### 5743#       发表于 2020-7-5 20:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48079936&amp;ptid=1856998" target="_blank">椎名mahuyo 发表于 2020-07-05 20:02:01</a>
@@ -24021,31 +15986,19 @@ DLC我看几个老wiki也没更新，无能为力了
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  BigLittle1999  
 ##### 5744#       发表于 2020-7-5 22:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">全精英怪有像全支线那样的excel吗，对着地图一个一个舔感觉容易漏
-
-
-
-
-
 
 
 -----
 
 ####  AincradWanderer  
 ##### 5745#       发表于 2020-7-5 23:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48082272&amp;ptid=1856998" target="_blank">BigLittle1999 发表于 2020-7-5 22:47</a>
@@ -24057,16 +16010,10 @@ https://pan.baidu.com/s/17uOwrq6nYdj3fems8PzAbw  提取码: a9qv
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  BigLittle1999  
 ##### 5746#       发表于 2020-7-5 23:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48082551&amp;ptid=1856998" target="_blank">AincradWanderer 发表于 2020-7-5 23:04</a>
@@ -24078,26 +16025,15 @@ https://pan.baidu.com/s/17uOwrq6nYdj3fems8PzAbw  提取码: a9qv
 这个压缩包其实我下过，但我在里面没找到全支线那样能一个一个打卡的excel<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">，对着图片除非一口气打完不然漏几个就很难受，我打算自己打的时候用个excel记一下了
 
 
-
-
-
-
-
 -----
 
 ####  绿冰  
 ##### 5747#       发表于 2020-7-5 23:34
 
 
-
 <blockquote>BigLittle1999 发表于 2020-7-5 22:47
 全精英怪有像全支线那样的excel吗，对着地图一个一个舔感觉容易漏</blockquote>
 https://xenoblade.cn/%E7%8F%8D%E7%A8%80%E7%A7%8D
-
-
-
-
-
 
 
 -----
@@ -24106,17 +16042,13 @@ https://xenoblade.cn/%E7%8F%8D%E7%A8%80%E7%A7%8D
 ##### 5748#       发表于 2020-7-5 23:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48082907&amp;ptid=1856998" target="_blank">BigLittle1999 发表于 2020-7-5 23:29</a>
 
 这个压缩包其实我下过，但我在里面没找到全支线那样能一个一个打卡的excel，对着图片除非一口气打 ...</blockquote>
 附件传了，来源贴吧，对着清记录方便
 
 
-
-
 <img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
-
 
 
 异度神剑 决定版 攻略.xlsx
@@ -24126,24 +16058,12 @@ https://xenoblade.cn/%E7%8F%8D%E7%A8%80%E7%A7%8D
 点击文件名下载附件
 
 
-
-
 123.9 KB, 下载次数: 51
-
-
-
-
-
-
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -24153,12 +16073,7 @@ https://xenoblade.cn/%E7%8F%8D%E7%A8%80%E7%A7%8D
 | BigLittle1999| + 1|感谢|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -24167,23 +16082,15 @@ https://xenoblade.cn/%E7%8F%8D%E7%A8%80%E7%A7%8D
 ##### 5749#       发表于 2020-7-6 02:37
 
 
-
-
 开了二周目发现菲奥伦出场之后只有10级，其实第一章的菲奥伦和后面的菲奥伦在游戏里是2个不同的单位吧
 
 —— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
 
 ####  suituski  
 ##### 5750#       发表于 2020-7-6 07:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48084386&amp;ptid=1856998" target="_blank">希望之异热同心 发表于 2020-7-6 02:37</a>
@@ -24193,16 +16100,10 @@ https://xenoblade.cn/%E7%8F%8D%E7%A8%80%E7%A7%8D
 我也发现le，然后升到50级再进第二章<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  绿冰  
 ##### 5751#       发表于 2020-7-6 08:05
-
 
 
 <blockquote>希望之异热同心 发表于 2020-7-6 02:37
@@ -24215,25 +16116,13 @@ https://xenoblade.cn/%E7%8F%8D%E7%A8%80%E7%A7%8D
 这次把这个bug修正了
 
 
-
-
-
-
-
 -----
 
 ####  剑起苍斓  
 ##### 5752#       发表于 2020-7-6 22:54
 
 
-
-
 终于打通了，支线随便做的，皇都那个白学鸟人支线是我做的最欢乐的一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24242,21 +16131,13 @@ https://xenoblade.cn/%E7%8F%8D%E7%A8%80%E7%A7%8D
 ##### 5753#       发表于 2020-7-6 23:36
 
 
-
-
 咦俩飞奥伦第一章那只的泳装就只能期间限定用用？
-
-
-
-
-
 
 
 -----
 
 ####  syz726  
 ##### 5754#       发表于 2020-7-6 23:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48097018&amp;ptid=1856998" target="_blank">恶意之刃 发表于 2020-7-6 23:36</a>
@@ -24269,16 +16150,10 @@ https://xenoblade.cn/%E7%8F%8D%E7%A8%80%E7%A7%8D
 高桥：其实要按着我兴趣来的话，菲奥伦只能前两章+最终章用的；结果竹田先生就吼着“你给我适可而止一点”，然后就成现在这样啦。
 
 
-
-
-
-
-
 -----
 
 ####  syz726  
 ##### 5755#       发表于 2020-7-6 23:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48085061&amp;ptid=1856998" target="_blank">绿冰 发表于 2020-7-6 08:05</a>
@@ -24291,27 +16166,15 @@ https://xenoblade.cn/%E7%8F%8D%E7%A8%80%E7%A7%8D
 于是二周目开场剧情还是过于生草，提前叛变什么的。
 
 
-
-
-
-
-
 -----
 
 ####  kiokio  
 ##### 5756#       发表于 2020-7-7 00:43
 
 
-
-
 现在打后日谈，74级打77的蜥蜴人 讨灭的安丕尔彼斯安，有一招好像叫旋风斩打出后就除了T都死了，不死也倒地，只要它出到这招肯定团灭，队伍槽满也进不了连击做不到无限倒地换修尔克上也没用，这要怎么打啊？
 
 这种一招高伤害灭团的情况本篇也会遇到，这有什么办法应对呢？
-
-
-
-
-
 
 
 -----
@@ -24320,21 +16183,13 @@ https://xenoblade.cn/%E7%8F%8D%E7%A8%80%E7%A7%8D
 ##### 5757#       发表于 2020-7-7 00:47
 
 
-
-
 https://m.weibo.cn/6343702933/4523843336690693瞎写的，关于xbde的ui的改良与进步，还没写完，今天先写了一点
-
-
-
-
-
 
 
 -----
 
 ####  翼宿一  
 ##### 5758#       发表于 2020-7-7 00:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48097204&amp;ptid=1856998" target="_blank">syz726 发表于 2020-7-6 23:58</a>
@@ -24347,16 +16202,10 @@ https://m.weibo.cn/6343702933/4523843336690693瞎写的，关于xbde的ui的改�
 反而是玩了一会才意识到丹邦和迪克森服装也都换了
 
 
-
-
-
-
-
 -----
 
 ####  绿冰  
 ##### 5759#       发表于 2020-7-7 01:12
-
 
 
  本帖最后由 绿冰 于 2020-7-7 01:13 编辑 
@@ -24376,13 +16225,9 @@ https://m.weibo.cn/6343702933/4523843336690693瞎写的，关于xbde的ui的改�
 硬吃的话，宁宁带上倒地抗性
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -24392,12 +16237,7 @@ https://m.weibo.cn/6343702933/4523843336690693瞎写的，关于xbde的ui的改�
 | kiokio| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -24406,20 +16246,15 @@ https://m.weibo.cn/6343702933/4523843336690693瞎写的，关于xbde的ui的改�
 ##### 5760#       发表于 2020-7-7 01:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48097578&amp;ptid=1856998" target="_blank">kiokio 发表于 2020-7-7 00:43</a>
 现在打后日谈，74级打77的蜥蜴人 讨灭的安丕尔彼斯安，有一招好像叫旋风斩打出后就除了T都死了，不死也倒地 ...</blockquote>
 打晕就会换招，看准时机就好
 也可以梅里亚开反射，自己不倒就能把队友拉起来
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -24429,12 +16264,7 @@ https://m.weibo.cn/6343702933/4523843336690693瞎写的，关于xbde的ui的改�
 | kiokio| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -24443,21 +16273,13 @@ https://m.weibo.cn/6343702933/4523843336690693瞎写的，关于xbde的ui的改�
 ##### 5761#       发表于 2020-7-7 01:51
 
 
-
-
 感谢楼上2位，看来上修尔克会好点，梅莉亚出招太慢，看到对面蓄力了想踢晕都来不及
-
-
-
-
-
 
 
 -----
 
 ####  martinium  
 ##### 5762#       发表于 2020-7-7 07:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48079201&amp;ptid=1856998" target="_blank">kzf 发表于 2020-7-5 19:14</a>
@@ -24467,17 +16289,10 @@ https://m.weibo.cn/6343702933/4523843336690693瞎写的，关于xbde的ui的改�
 — from Google Pixel 2, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  yongze  
 ##### 5763#       发表于 2020-7-7 08:40
-
-
 
 
 玩到17章看了剧情后想起来海恩塔还有个殖民地6移民因为没达到建筑5级没拉过来，那海恩塔都沦陷了还能拉来吗，移民的都是混血是不是像2代教皇国一样避难到巨神界各处去了？
@@ -24485,16 +16300,10 @@ https://m.weibo.cn/6343702933/4523843336690693瞎写的，关于xbde的ui的改�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  绿冰  
 ##### 5764#       发表于 2020-7-7 08:51
-
 
 
  本帖最后由 绿冰 于 2020-7-7 08:52 编辑 
@@ -24513,16 +16322,10 @@ https://m.weibo.cn/6343702933/4523843336690693瞎写的，关于xbde的ui的改�
 要耍赖一点就在附近打杂弄到3队伍槽，开战qte成功5个诺彭战队士气高昂，直接红黄两个连携攻击再输出一轮都基本打死了
 
 
-
-
-
-
-
 -----
 
 ####  FSS  
 ##### 5765#       发表于 2020-7-7 09:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48098909&amp;ptid=1856998" target="_blank">yongze 发表于 2020-7-7 08:40</a>
@@ -24531,16 +16334,10 @@ https://m.weibo.cn/6343702933/4523843336690693瞎写的，关于xbde的ui的改�
 能移民的都到其他地方避难了.
 
 
-
-
-
-
-
 -----
 
 ####  syz726  
 ##### 5766#       发表于 2020-7-7 09:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48097672&amp;ptid=1856998" target="_blank">翼宿一 发表于 2020-7-7 00:57</a>
@@ -24553,16 +16350,10 @@ https://m.weibo.cn/6343702933/4523843336690693瞎写的，关于xbde的ui的改�
 二周目开始开场那盘直接大舅哥迪克森姆姆卡自带永续附魔；三人团那场……抱歉，莫纳德在修尔克手里呢，还是莫纳德3……
 
 
-
-
-
-
-
 -----
 
 ####  UyNad  
 ##### 5767#       发表于 2020-7-7 09:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48084386&amp;ptid=1856998" target="_blank">希望之异热同心 发表于 2020-7-6 02:37</a>
@@ -24576,16 +16367,10 @@ https://m.weibo.cn/6343702933/4523843336690693瞎写的，关于xbde的ui的改�
 菲奥伦死前修尔克四舍五入是赞扎，所以这游戏前半段是《赞扎和菲奥伦》，后半段是《修尔克和梅娜丝》，大小号混搭成了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">（无端联想请适可而止）
 
 
-
-
-
-
-
 -----
 
 ####  丹德里恩  
 ##### 5768#       发表于 2020-7-7 09:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48083122&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-7-5 23:44</a>
@@ -24596,16 +16381,10 @@ https://m.weibo.cn/6343702933/4523843336690693瞎写的，关于xbde的ui的改�
 昨天刷了半天没出任务npc，一查才知道要先搞6号复兴，素材一排0，想死。
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5769#       发表于 2020-7-7 09:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48099620&amp;ptid=1856998" target="_blank">丹德里恩 发表于 2020-07-07 09:55:30</a>
@@ -24618,25 +16397,13 @@ https://m.weibo.cn/6343702933/4523843336690693瞎写的，关于xbde的ui的改�
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  胖达君  
 ##### 5770#       发表于 2020-7-7 10:04
 
 
-
-
 这游戏没有设计怪物图鉴，前面我精英怪都是随缘打得，现在想回头补完都不知道哪些打过哪些没打过，只能按照资料一个个找过去<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24645,22 +16412,15 @@ https://m.weibo.cn/6343702933/4523843336690693瞎写的，关于xbde的ui的改�
 ##### 5771#       发表于 2020-7-7 10:33
 
 
-
 <blockquote>胖达君 发表于 2020-7-7 10:04
 这游戏没有设计怪物图鉴，前面我精英怪都是随缘打得，现在想回头补完都不知道哪些打过哪些没打过，只能按照 ...</blockquote>
 没有的。而且因为精英怪没有坟墓可以辨别，回去清地图有时候遇到刷新的精英都不记得打没打过，除非打死看硬币。只能手动对着列表打勾了……
-
-
-
-
-
 
 
 -----
 
 ####  丹德里恩  
 ##### 5772#       发表于 2020-7-7 10:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48099659&amp;ptid=1856998" target="_blank">Arccueid 发表于 2020-7-7 09:58</a>
@@ -24672,26 +16432,15 @@ https://m.weibo.cn/6343702933/4523843336690693瞎写的，关于xbde的ui的改�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这楼太高了不好爬，先谢了
 
 
-
-
-
-
-
 -----
 
 ####  绿冰  
 ##### 5773#       发表于 2020-7-7 10:55
 
 
-
 <blockquote>丹德里恩 发表于 2020-7-7 10:33
 这楼太高了不好爬，先谢了</blockquote>
 https://xenoblade.cn/%E4%BB%BB%E5%8A%A1
-
-
-
-
-
 
 
 -----
@@ -24700,23 +16449,16 @@ https://xenoblade.cn/%E4%BB%BB%E5%8A%A1
 ##### 5774#       发表于 2020-7-7 10:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48100286&amp;ptid=1856998" target="_blank">绿冰 发表于 2020-7-7 10:55</a>
 
 https://xenoblade.cn/%E4%BB%BB%E5%8A%A1</blockquote>
 3ks
 
 
-
-
-
-
-
 -----
 
 ####  翼宿一  
 ##### 5775#       发表于 2020-7-7 11:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48099437&amp;ptid=1856998" target="_blank">syz726 发表于 2020-7-7 09:40</a>
@@ -24728,16 +16470,10 @@ https://xenoblade.cn/%E4%BB%BB%E5%8A%A1</blockquote>
 —— 来自 Google Pixel 3, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  syz726  
 ##### 5776#       发表于 2020-7-7 11:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48100874&amp;ptid=1856998" target="_blank">翼宿一 发表于 2020-7-7 11:28</a>
@@ -24750,16 +16486,10 @@ https://xenoblade.cn/%E4%BB%BB%E5%8A%A1</blockquote>
 二周目爽就完了不要在意细节<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5777#       发表于 2020-7-7 11:40
-
 
 
  本帖最后由 塔奇克马 于 2020-7-7 11:47 编辑 
@@ -24768,16 +16498,10 @@ https://xenoblade.cn/%E4%BB%BB%E5%8A%A1</blockquote>
 感觉这段写出来也是很有戏剧性的,对应实验室莱恩失控砍人那段.
 
 
-
-
-
-
-
 -----
 
 ####  syz726  
 ##### 5778#       发表于 2020-7-7 11:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48101086&amp;ptid=1856998" target="_blank">塔奇克马 发表于 2020-7-7 11:40</a>
@@ -24788,16 +16512,10 @@ https://xenoblade.cn/%E4%BB%BB%E5%8A%A1</blockquote>
 要不怎么监狱岛事后阿尔维斯评价这事儿是：早知道会这样我帮你演戏不完了，你还非得亲自下场。
 
 
-
-
-
-
-
 -----
 
 ####  翼宿一  
 ##### 5779#       发表于 2020-7-7 12:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48101006&amp;ptid=1856998" target="_blank">syz726 发表于 2020-7-7 11:35</a>
@@ -24809,16 +16527,10 @@ https://xenoblade.cn/%E4%BB%BB%E5%8A%A1</blockquote>
 —— 来自 Google Pixel 3, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  秋月孝三  
 ##### 5780#       发表于 2020-7-7 12:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48101689&amp;ptid=1856998" target="_blank">翼宿一 发表于 2020-7-7 12:12</a>
@@ -24835,16 +16547,7 @@ https://xenoblade.cn/%E4%BB%BB%E5%8A%A1</blockquote>
 2020-7-7 12:27 上传
 
 
-
-
-
-
 原版就是两个，谁造谣说是一个的<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24853,17 +16556,13 @@ https://xenoblade.cn/%E4%BB%BB%E5%8A%A1</blockquote>
 ##### 5781#       发表于 2020-7-7 12:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48100079&amp;ptid=1856998" target="_blank">丹德里恩 发表于 2020-7-7 10:33</a>
 
 这楼太高了不好爬，先谢了</blockquote>
 传了，出处是楼里
 
 
-
-
 <img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
-
 
 
 Xenoblade de 全任务.xlsx
@@ -24873,24 +16572,12 @@ Xenoblade de 全任务.xlsx
 点击文件名下载附件
 
 
-
-
 96.17 KB, 下载次数: 19
-
-
-
-
-
-
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -24900,12 +16587,7 @@ Xenoblade de 全任务.xlsx
 | 丹德里恩| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -24914,23 +16596,16 @@ Xenoblade de 全任务.xlsx
 ##### 5782#       发表于 2020-7-7 13:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48101999&amp;ptid=1856998" target="_blank">秋月孝三 发表于 2020-7-7 12:30</a>
 
 原版就是两个，谁造谣说是一个的</blockquote>
 上边看到说有 bug 所以才改成两个独立单位的，不确定说的是哪一方面，但技能树上这两个还是同一个的 <img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  秋月孝三  
 ##### 5783#       发表于 2020-7-7 14:04
-
 
 
  本帖最后由 秋月孝三 于 2020-7-7 14:07 编辑 
@@ -24940,17 +16615,10 @@ Xenoblade de 全任务.xlsx
 那是原版一个会引起死机的bug，和技能树有关，一般也不容易碰到。DE版修了这个bug，和是不是独立单位没关系。
 
 
-
-
-
-
-
 -----
 
 ####  BQlin  
 ##### 5784#       发表于 2020-7-7 19:38
-
-
 
 
 莫纳德已到手，没想到实物挺大的，官图没个参照物都不好对比
@@ -24961,17 +16629,10 @@ Xenoblade de 全任务.xlsx
 两百多挺值的，虽然不敢摆或者挂出来，看完就回盒了
 
 
-
-
-
-
-
 -----
 
 ####  HGCG-闪  
 ##### 5785#       发表于 2020-7-8 07:33
-
-
 
 
 问下
@@ -24979,16 +16640,10 @@ Xenoblade de 全任务.xlsx
 场上没男主的情况下，怎么对付大恐龙的读心？
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5786#       发表于 2020-7-8 07:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48111805&amp;ptid=1856998" target="_blank">HGCG-闪 发表于 2020-07-08 07:33:57</a>
@@ -24999,16 +16654,10 @@ Xenoblade de 全任务.xlsx
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  哈尔摩尼亚N  
 ##### 5787#       发表于 2020-7-8 07:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48111805&amp;ptid=1856998" target="_blank">HGCG-闪 发表于 2020-7-8 07:33</a>
@@ -25018,25 +16667,13 @@ Xenoblade de 全任务.xlsx
 梅丽亚的大招也可以
 
 
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 5788#       发表于 2020-7-8 10:48
 
 
-
-
 声优里有没有远藤绫？
-
-
-
-
-
 
 
 -----
@@ -25045,14 +16682,7 @@ Xenoblade de 全任务.xlsx
 ##### 5789#       发表于 2020-7-8 10:51
 
 
-
-
 梅里亚战技封印要元素爆发状态吧？感觉时机有点难把握啊。。
-
-
-
-
-
 
 
 -----
@@ -25061,15 +16691,9 @@ Xenoblade de 全任务.xlsx
 ##### 5790#       发表于 2020-7-8 10:53
 
 
-
 <blockquote>希望之异热同心 发表于 2020-7-8 10:51
 梅里亚战技封印要元素爆发状态吧？感觉时机有点难把握啊。。</blockquote>
 有啥难把握的，不停的放球，把天赋槽打满就进入元素爆裂了
-
-
-
-
-
 
 
 -----
@@ -25078,16 +16702,10 @@ Xenoblade de 全任务.xlsx
 ##### 5791#       发表于 2020-7-8 10:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48113786&amp;ptid=1856998" target="_blank">3D烧 发表于 2020-7-8 10:53</a>
 
 有啥难把握的，不停的放球，把天赋槽打满就进入元素爆裂了</blockquote>
 元素爆裂之后总不能不发射元素吧，打完元素爆发之后来个未来视/灵气状态就觉得很蛋疼
-
-
-
-
-
 
 
 -----
@@ -25096,16 +16714,10 @@ Xenoblade de 全任务.xlsx
 ##### 5792#       发表于 2020-7-8 11:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48113816&amp;ptid=1856998" target="_blank">希望之异热同心 发表于 2020-07-08 10:55:08</a>
 元素爆裂之后总不能不发射元素吧，打完元素爆发之后来个未来视/灵气状态就觉得很蛋疼 ...</blockquote>直接打破未来视进超高士气就随便射了基本上
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -25114,15 +16726,8 @@ Xenoblade de 全任务.xlsx
 ##### 5793#       发表于 2020-7-8 15:09
 
 
-
-
 125小时通关，地域值全五星，人物性格全开，武器晶石幻化通通搞定，完美补上了以前的遗憾。
 相连的未来，开始！<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25131,21 +16736,13 @@ Xenoblade de 全任务.xlsx
 ##### 5794#       发表于 2020-7-8 18:14
 
 
-
-
 考拉买的monade到货了，做工跟XB2的usb一样感人<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"><img src="https://s1.ax1x.com/2020/07/08/UVjouD.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Arthur___  
 ##### 5795#       发表于 2020-7-8 18:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48118976&amp;ptid=1856998" target="_blank">Ditfran 发表于 2020-7-8 18:14</a>
@@ -25156,32 +16753,19 @@ Xenoblade de 全任务.xlsx
 monado中间突出的那些东西是干嘛的？
 
 
-
-
-
-
-
 -----
 
 ####  nerugigannte  
 ##### 5796#       发表于 2020-7-8 23:35
 
 
-
-
 玩到第十四章不想用男主打机神兵了，换了个男主老婆玩玩，筋力都堆到730了，怎么伤害低得要死，腿装备剑部件上个buff大招打下来一套伤害不超过2w，我修尔克一个莫纳德斩就3w多了
-
-
-
-
-
 
 
 -----
 
 ####  hugosol  
 ##### 5797#       发表于 2020-7-8 23:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48123080&amp;ptid=1856998" target="_blank">nerugigannte 发表于 2020-7-8 23:35</a>
@@ -25192,17 +16776,10 @@ monado中间突出的那些东西是干嘛的？
 我武器一般是带双重攻击和天赋槽增加，身体用自带加速的骨架，打起来非常爽快
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 5798#       发表于 2020-7-8 23:54
-
-
 
 
 100小时打完
@@ -25219,16 +16796,10 @@ monado中间突出的那些东西是干嘛的？
 唯独好感度数值不合理，我最后仍然有一半的支援对话看不到
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5799#       发表于 2020-7-8 23:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48123312&amp;ptid=1856998" target="_blank">叶雾 发表于 2020-7-8 23:54</a>
@@ -25242,27 +16813,15 @@ monado中间突出的那些东西是干嘛的？
 <img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">亲测.
 
 
-
-
-
-
-
 -----
 
 ####  kyolanaya  
 ##### 5800#       发表于 2020-7-9 00:09
 
 
-
-
 看了贴吧攻略本的新加的东西，高桥老色批了，喜欢的是机娘露屁股的速度型，2代里那个小绿的镜头也是高桥故意的吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 还有，双神来到新的世界没有前世的记忆，梅纳斯对赞扎有特殊感情<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25271,14 +16830,7 @@ monado中间突出的那些东西是干嘛的？
 ##### 5801#       发表于 2020-7-9 05:18
 
 
-
-
 三神器的任务，小怪都是90级……70多级能直接上吗？
-
-
-
-
-
 
 
 -----
@@ -25287,16 +16839,10 @@ monado中间突出的那些东西是干嘛的？
 ##### 5802#       发表于 2020-7-9 05:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48124778&amp;ptid=1856998" target="_blank">新HGCG 发表于 2020-7-9 05:18</a>
 三神器的任务，小怪都是90级……70多级能直接上吗？</blockquote>
 以太队或者菜刀队堆满命中都能打，都是些杂兵小怪
 而且我记得3种素材有两种可以交换得到
-
-
-
-
-
 
 
 -----
@@ -25305,14 +16851,7 @@ monado中间突出的那些东西是干嘛的？
 ##### 5803#       发表于 2020-7-9 10:59
 
 
-
-
 修正补丁更新了什么？
-
-
-
-
-
 
 
 -----
@@ -25321,21 +16860,13 @@ monado中间突出的那些东西是干嘛的？
 ##### 5804#       发表于 2020-7-9 11:47
 
 
-
-
 二周目对攻略小心翼翼弄关系网.....结果发现皇都的攻略写得好潦草......
-
-
-
-
-
 
 
 -----
 
 ####  HGCG-闪  
 ##### 5805#       发表于 2020-7-9 11:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48124788&amp;ptid=1856998" target="_blank">32767 发表于 2020-7-9 05:26</a>
@@ -25346,16 +16877,10 @@ monado中间突出的那些东西是干嘛的？
 菜刀队是谁和谁和谁
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5806#       发表于 2020-7-9 11:47
-
 
 
  本帖最后由 Arccueid 于 2020-7-9 12:06 编辑 
@@ -25370,16 +16895,10 @@ monado中间突出的那些东西是干嘛的？
 其次简单的打法是对吃倒地的怪物，用倒地菜刀队打，用菲奥伦/修尔克-丹邦-莱恩都可以，需要3个倒地延长6宝石，以及前两位打倒地的人拉满夜间命中宝石和敏捷宝石，起手还是用利奇拉满团队槽，然后进去直接开连携，第一人破防，丹邦倒地，莱恩倒地，之后对面就是个木桩随便让你打了，记得要看倒地时间补一下倒地技能就行。
 
 
-
-
-
-
-
 -----
 
 ####  秋月孝三  
 ##### 5807#       发表于 2020-7-9 11:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48123473&amp;ptid=1856998" target="_blank">kyolanaya 发表于 2020-7-9 00:09</a>
@@ -25397,30 +16916,13 @@ monado中间突出的那些东西是干嘛的？
 2020-7-9 11:48 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  椎名mahuyo  
 ##### 5808#       发表于 2020-7-9 11:52
 
 
-
-
 70级建议农精英怪刷技能书了 核心技能最后3级的提升非常大刷着刷着就85了 大部分怪都能打了
-
-
-
-
-
 
 
 -----
@@ -25429,21 +16931,13 @@ monado中间突出的那些东西是干嘛的？
 ##### 5809#       发表于 2020-7-9 12:00
 
 
-
-
 71级打艾机儿打不过，怎么办，未来视出斩巨神以后，会刷出几个蜘蛛怪，伤害特别高，几下就把全队打死了，而且飞不出去，只能艰难的练到72级，还是很难打，试过手操主角，勇者跟公主AI，或者手操公主，勇者跟奶妈AI，都抗不过第二阶段
-
-
-
-
-
 
 
 -----
 
 ####  Arccueid  
 ##### 5810#       发表于 2020-7-9 12:03
-
 
 
  本帖最后由 Arccueid 于 2020-7-9 12:09 编辑 
@@ -25455,17 +16949,10 @@ monado中间突出的那些东西是干嘛的？
 当然..其实你都72级了，用丹邦换点好的装备拉上仇恨直接无视小怪去打柱子就行了，没必要清杂兵。
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 5811#       发表于 2020-7-17 23:16
-
-
 
 
 那啥，后传在后期有啥刷等级的地方吗？
@@ -25473,17 +16960,10 @@ monado中间突出的那些东西是干嘛的？
 墓地里的龙80级太强了打不过去
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 5812#       发表于 2020-7-17 23:17
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202007/17/231440b986x713ll116d55.jpg" referrerpolicy="no-referrer">
@@ -25496,23 +16976,13 @@ monado中间突出的那些东西是干嘛的？
 2020-7-17 23:14 上传
 
 
-
-
-
-
 微要素捕捉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">把临港新城幻视成落腕也没什么问题
-
-
-
-
-
 
 
 -----
 
 ####  霸王向小受  
 ##### 5813#       发表于 2020-7-17 23:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48137674&amp;ptid=1856998" target="_blank">hgcg-w 发表于 2020-7-17 23:16</a>
@@ -25522,17 +16992,10 @@ monado中间突出的那些东西是干嘛的？
 诺朋战队最终任务那只吗，我记得最终战前去打等级就差不多了
 
 
-
-
-
-
-
 -----
 
 ####  秋月孝三  
 ##### 5814#       发表于 2020-7-17 23:24
-
-
 
 
 泥潭自主规制期间叉刀1DE也迈入了新的领域
@@ -25547,31 +17010,13 @@ monado中间突出的那些东西是干嘛的？
 2020-7-17 23:24 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  椎名mahuyo  
 ##### 5815#       发表于 2020-7-17 23:37
 
 
-
-
 黑龙难就难在有反噬伤害，我是给T堆反噬防御堆到顶以后用梅尼娅集火弄掉的
-
-
-
-
-
 
 
 -----
@@ -25580,24 +17025,15 @@ monado中间突出的那些东西是干嘛的？
 ##### 5816#       发表于 2020-7-17 23:55
 
 
-
-
 我发现决定版的dot buff是能叠的，和初版攻略写的不一样
 
 泥潭封的这一周正好全支线全精英通关了，成型菜刀队太爽快了，连机娘最后条性格一个都没开，给机娘带个LV6双击宝石上个Buff蹭蹭几秒连携槽就满了
-
-
-
-
-
 
 
 -----
 
 ####  Arccueid  
 ##### 5817#       发表于 2020-7-18 00:45
-
-
 
 
 泥潭闭关的时候也整了几个活，现在开了可以发发<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -25615,92 +17051,45 @@ monado中间突出的那些东西是干嘛的？
 [https://www.bilibili.com/video/BV1q54y1q7FY](https://www.bilibili.com/video/BV1q54y1q7FY)
 
 
-
-
-
-
-
 -----
 
 ####  3D烧  
 ##### 5818#       发表于 2020-7-18 01:12
 
 
-
-
 异度神剑终极版，奶奶级玩家都爱的游戏！https://m.youtube.com/watch?v=0VpkwEGLm6s
-
-
-
-
 
 
 Screenshot_2020-07-15-22-23-49-85.png
 (175.19 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2020-7-18 01:11 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202007/18/011106riisrirmpuusiilu.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 Screenshot_2020-07-15-20-16-49-83.png
 (44.98 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2020-7-18 01:11 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202007/18/011140lf00yq3x5jqjgii0.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  七氷  
 ##### 5819#       发表于 2020-7-18 08:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48137674&amp;ptid=1856998" target="_blank">hgcg-w 发表于 2020-7-17 23:16</a>
@@ -25710,24 +17099,13 @@ Screenshot_2020-07-15-20-16-49-83.png
 把铠拉满，带上反噬防御，平a就好了
 
 
-
-
-
-
-
 -----
 
 ####  丹德里恩  
 ##### 5820#       发表于 2020-7-18 10:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">65级那个限制挑战我打了整整3天才运气好打出一次S，为什么和别人的差距那么大啊....
-
-
-
-
-
 
 
 -----
@@ -25736,15 +17114,9 @@ Screenshot_2020-07-15-20-16-49-83.png
 ##### 5821#       发表于 2020-7-18 10:55
 
 
-
 <blockquote>丹德里恩 发表于 2020-7-18 10:53
 65级那个限制挑战我打了整整3天才运气好打出一次S，为什么和别人的差距那么大啊.... ...</blockquote>
 90级那个限制，我打上19200水晶，还是B。。。
-
-
-
-
-
 
 
 -----
@@ -25753,14 +17125,7 @@ Screenshot_2020-07-15-20-16-49-83.png
 ##### 5822#       发表于 2020-7-18 12:16
 
 
-
-
 水一水<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25769,15 +17134,9 @@ Screenshot_2020-07-15-20-16-49-83.png
 ##### 5823#       发表于 2020-7-18 12:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48139379&amp;ptid=1856998" target="_blank">3D烧 发表于 2020-7-18 01:12</a>
 异度神剑终极版，奶奶级玩家都爱的游戏！https://m.youtube.com/watch?v=0VpkwEGLm6s</blockquote>
 这视频看过，背后沙发上有个咪西玩偶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">咪西西~
-
-
-
-
-
 
 
 -----
@@ -25786,14 +17145,7 @@ Screenshot_2020-07-15-20-16-49-83.png
 ##### 5824#       发表于 2020-7-18 12:43
 
 
-
-
 最后先做了巴恩的任务把等级拉到79级再过关……
-
-
-
-
-
 
 
 -----
@@ -25802,14 +17154,7 @@ Screenshot_2020-07-15-20-16-49-83.png
 ##### 5825#       发表于 2020-7-19 10:34
 
 
-
-
 没看攻略进了十五章发现机神界去不了了，还能复兴6号殖民地吗<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25818,16 +17163,10 @@ Screenshot_2020-07-15-20-16-49-83.png
 ##### 5826#       发表于 2020-7-19 10:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48149632&amp;ptid=1856998" target="_blank">a526428377 发表于 2020-7-19 10:34</a>
 
 没看攻略进了十五章发现机神界去不了了，还能复兴6号殖民地吗</blockquote>
 殖民地6可以捡机神界的素材
-
-
-
-
-
 
 
 -----
@@ -25836,16 +17175,10 @@ Screenshot_2020-07-15-20-16-49-83.png
 ##### 5827#       发表于 2020-7-19 10:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48149632&amp;ptid=1856998" target="_blank">a526428377 发表于 2020-7-19 10:34</a>
 
 没看攻略进了十五章发现机神界去不了了，还能复兴6号殖民地吗</blockquote>
 打到第二次进巨神胎内后，能去诺鹏大仙人那里换所有素材
-
-
-
-
-
 
 
 -----
@@ -25854,21 +17187,13 @@ Screenshot_2020-07-15-20-16-49-83.png
 ##### 5828#       发表于 2020-7-19 11:58
 
 
-
-
 话说这游戏真的能17章前城镇发展5星吗，我9号殖民地和边境村对话按到手软了还是四星，没新的任务出现<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  绿冰  
 ##### 5829#       发表于 2020-7-19 12:04
-
 
 
 <blockquote>a526428377 发表于 2020-7-19 11:58
@@ -25884,25 +17209,13 @@ Screenshot_2020-07-15-20-16-49-83.png
 9号殖民地就比较难，17章之前必须做一点批量任务才够5星
 
 
-
-
-
-
-
 -----
 
 ####  苍蓝之枪  
 ##### 5830#       发表于 2020-7-19 19:27
 
 
-
-
 二周目对着地图清精英怪怎么还是漏了一个，而且漏哪都不知道，醉了
-
-
-
-
-
 
 
 -----
@@ -25911,16 +17224,10 @@ Screenshot_2020-07-15-20-16-49-83.png
 ##### 5831#       发表于 2020-7-19 20:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48150274&amp;ptid=1856998" target="_blank">a526428377 发表于 2020-7-19 11:58</a>
 
 话说这游戏真的能17章前城镇发展5星吗，我9号殖民地和边境村对话按到手软了还是四星，没新的任务出现[f:097 ...</blockquote>
 14章的时候除了上层(皇都)全五星了，全清支线
-
-
-
-
-
 
 
 -----
@@ -25929,14 +17236,7 @@ Screenshot_2020-07-15-20-16-49-83.png
 ##### 5832#       发表于 2020-7-19 20:10
 
 
-
-
 相连的未来全语言的羁绊对话真棒
-
-
-
-
-
 
 
 -----
@@ -25945,14 +17245,7 @@ Screenshot_2020-07-15-20-16-49-83.png
 ##### 5833#       发表于 2020-7-19 20:57
 
 
-
-
 限制挑战打不来，求作业
-
-
-
-
-
 
 
 -----
@@ -25961,21 +17254,13 @@ Screenshot_2020-07-15-20-16-49-83.png
 ##### 5834#       发表于 2020-7-20 22:57
 
 
-
-
 为什么我99级的挑战任务都出了，80级的挑战任务还没出？出BUG了？
-
-
-
-
-
 
 
 -----
 
 ####  塔奇克马  
 ##### 5835#       发表于 2020-7-20 23:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48168552&amp;ptid=1856998" target="_blank">大喇叭花田 发表于 2020-7-20 22:57</a>
@@ -25985,16 +17270,10 @@ Screenshot_2020-07-15-20-16-49-83.png
 —— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5836#       发表于 2020-7-20 23:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48154844&amp;ptid=1856998" target="_blank">苍蓝之枪 发表于 2020-7-19 20:57</a>
@@ -26005,26 +17284,15 @@ https://b23.tv/BV1AC4y1h7rH/p1
 —— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  zjoi  
 ##### 5837#       发表于 2020-7-24 16:16
 
 
-
 [https://tieba.baidu.com/p/6834657031](https://tieba.baidu.com/p/6834657031)
 
 又有同志开发出新战术了
-
-
-
-
-
 
 
 -----
@@ -26033,14 +17301,7 @@ https://b23.tv/BV1AC4y1h7rH/p1
 ##### 5838#       发表于 2020-7-24 16:44
 
 
-
-
 卡露娜应该是所有同伴里被低估最厉害的了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26049,14 +17310,7 @@ https://b23.tv/BV1AC4y1h7rH/p1
 ##### 5839#       发表于 2020-7-24 18:13
 
 
-
-
 有了武技gacha之后已经没有弱角色了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26065,15 +17319,9 @@ https://b23.tv/BV1AC4y1h7rH/p1
 ##### 5840#       发表于 2020-7-25 08:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48149688&amp;ptid=1856998" target="_blank">HGCG2 发表于 2020-7-19 10:41</a>
 打到第二次进巨神胎内后，能去诺鹏大仙人那里换所有素材</blockquote>
 打到第二次进胎内了，大仙人那里没有素材换啊，还是只有装备宝石，难道需要先通相连未来？
-
-
-
-
-
 
 
 -----
@@ -26082,21 +17330,13 @@ https://b23.tv/BV1AC4y1h7rH/p1
 ##### 5841#       发表于 2020-7-25 08:30
 
 
-
-
 通关了，相连的未来如何？听说剧情有点无聊
-
-
-
-
-
 
 
 -----
 
 ####  瑕在瑾中  
 ##### 5842#       发表于 2020-7-25 10:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48150274&amp;ptid=1856998" target="_blank">a526428377 发表于 2020-7-19 11:58</a>
@@ -26106,16 +17346,10 @@ https://b23.tv/BV1AC4y1h7rH/p1
 —— 来自 Xiaomi MIX 2, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  Arccueid  
 ##### 5843#       发表于 2020-7-25 12:14
-
 
 
  本帖最后由 Arccueid 于 2020-7-25 12:22 编辑 
@@ -26127,86 +17361,39 @@ https://b23.tv/BV1AC4y1h7rH/p1
 主要还是天赋技的问题，超速光环大量甩技能本身能成型时期就挺晚了，技能甩多了还必须要降热片处理，上限就更低了，如果改成装备能用都还好，武器宝石位太紧张了。
 
 
-
-
-
-
-
-
 -----
 
 ####  suituski  
 ##### 5844#       发表于 2020-7-28 00:44
 
 
-
-
 原来十五章前就能全五星了，是真滴肝
-
-
-
-
 
 
 B581906B-9C51-4D81-961C-DB096E704463.jpeg
 (93.42 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2020-7-28 00:43 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202007/28/004303vjjw7wa87bxbf5n5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 E12E9875-7FCE-4DB5-AB7A-4494A0DAC703.jpeg
 (86.33 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2020-7-28 00:43 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202007/28/004322pxfzazxsy5adpli2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -26215,23 +17402,15 @@ E12E9875-7FCE-4DB5-AB7A-4494A0DAC703.jpeg
 ##### 5845#       发表于 2020-7-28 00:47
 
 
-
-
 看到顶上来了顺便问问，相连的未来 迈向未来者这个最后的支线没接到是不是真的没救了？
 
 这不让开二周目，重打实在是.....
-
-
-
-
-
 
 
 -----
 
 ####  BigLittle1999  
 ##### 5846#       发表于 2020-7-28 01:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48234431&amp;ptid=1856998" target="_blank">苍蓝之枪 发表于 2020-7-28 00:47</a>
@@ -26242,16 +17421,10 @@ E12E9875-7FCE-4DB5-AB7A-4494A0DAC703.jpeg
 为什么会接不到<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">通关完之后就再读档不可以么
 
 
-
-
-
-
-
 -----
 
 ####  苍蓝之枪  
 ##### 5847#       发表于 2020-7-28 09:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48234664&amp;ptid=1856998" target="_blank">BigLittle1999 发表于 2020-7-28 01:52</a>
@@ -26260,17 +17433,10 @@ E12E9875-7FCE-4DB5-AB7A-4494A0DAC703.jpeg
 黑龙任务做掉后那NPC在哪我都找不到了
 
 
-
-
-
-
-
 -----
 
 ####  我王  
 ##### 5848#       发表于 2020-7-28 20:11
-
-
 
 
 刚进第八章皇女离队了，啥时候回来？逛皇都把支线全接完，不想把皇女的apsp浪费掉(指不在队伍里)
@@ -26278,16 +17444,10 @@ E12E9875-7FCE-4DB5-AB7A-4494A0DAC703.jpeg
 —— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  塔奇克马  
 ##### 5849#       发表于 2020-7-28 20:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48242297&amp;ptid=1856998" target="_blank">我王 发表于 2020-7-28 20:11</a>
@@ -26299,25 +17459,13 @@ E12E9875-7FCE-4DB5-AB7A-4494A0DAC703.jpeg
 皇女通过试炼就回来了,继续推主线吧
 
 
-
-
-
-
-
 -----
 
 ####  暗黑の命运  
 ##### 5850#       发表于 2020-7-31 18:51
 
 
-
-
 我感觉第七人开高速以后平砍没有wii版快，而且双重攻击有一个抽搐的动作，我记得WII版是一直砍不停的，比决定版强很多，是我记错了么？
-
-
-
-
-
 
 
 -----
@@ -26326,16 +17474,9 @@ E12E9875-7FCE-4DB5-AB7A-4494A0DAC703.jpeg
 ##### 5851#       发表于 2020-8-3 17:04
 
 
-
-
 问一下，我知道dot伤害是每个人分开叠加的，那么debuff是怎么算的？特别是武器上带的能力下降类的宝石，是三个人都带敏捷下降宝石还是其实只要有其中一个人带了就够了？
 
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -26344,16 +17485,9 @@ E12E9875-7FCE-4DB5-AB7A-4494A0DAC703.jpeg
 ##### 5852#       发表于 2020-8-3 17:46
 
 
-
-
 楼太高吞帖了？
 
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -26362,21 +17496,13 @@ E12E9875-7FCE-4DB5-AB7A-4494A0DAC703.jpeg
 ##### 5853#       发表于 2020-8-4 00:25
 
 
-
-
 隔了好久打完追加故事。 boss到底啥来头
-
-
-
-
-
 
 
 -----
 
 ####  塔奇克马  
 ##### 5854#       发表于 2020-8-4 00:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48310184&amp;ptid=1856998" target="_blank">喵**格勒 发表于 2020-8-4 00:25</a>
@@ -26386,16 +17512,10 @@ E12E9875-7FCE-4DB5-AB7A-4494A0DAC703.jpeg
 —— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  喵咪咪格勒  
 ##### 5855#       发表于 2020-8-4 00:41
-
 
 
  本帖最后由 喵咪咪格勒 于 2020-8-4 00:45 编辑 
@@ -26411,9 +17531,6 @@ E12E9875-7FCE-4DB5-AB7A-4494A0DAC703.jpeg
 2020-8-4 00:44 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/202008/04/004428jzll2vh4hiln12j4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
 
@@ -26422,9 +17539,6 @@ E12E9875-7FCE-4DB5-AB7A-4494A0DAC703.jpeg
 下载附件
 
 2020-8-4 00:44 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202008/04/004444ov8agv23ava6asv8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
@@ -26437,22 +17551,13 @@ E12E9875-7FCE-4DB5-AB7A-4494A0DAC703.jpeg
 2020-8-4 00:44 上传
 
 
-
-
-
 皇女这
-
-
-
-
-
 
 
 -----
 
 ####  鷹書たかしょ  
 ##### 5856#       发表于 2020-8-5 02:19
-
 
 
  本帖最后由 鷹書たかしょ 于 2020-8-5 10:58 编辑 
@@ -26464,32 +17569,19 @@ E12E9875-7FCE-4DB5-AB7A-4494A0DAC703.jpeg
 而上臂和肘部的褶皱则更显纤细，配上背部和腰部镂空处裸露的肌肤，端庄又诱人
 
 
-
-
-
-
-
 -----
 
 ####  七氷  
 ##### 5857#       发表于 2020-8-5 14:18
 
 
-
-
 梅莉雅为啥不会飞
-
-
-
-
-
 
 
 -----
 
 ####  AincradWanderer  
 ##### 5858#       发表于 2020-8-5 14:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48324997&amp;ptid=1856998" target="_blank">七氷 发表于 2020-8-5 14:18</a>
@@ -26499,17 +17591,10 @@ E12E9875-7FCE-4DB5-AB7A-4494A0DAC703.jpeg
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  新八  
 ##### 5859#       发表于 2020-8-5 21:43
-
-
 
 
 请问梅里亚的dot跟力气的会不会叠加？看图标的话同种dot只有一个图标，但好像都说能叠加
@@ -26520,17 +17605,10 @@ E12E9875-7FCE-4DB5-AB7A-4494A0DAC703.jpeg
 翻了一下，好像确实能叠加
 
 
-
-
-
-
-
 -----
 
 ####  希望之异热同心  
 ##### 5860#       发表于 2020-8-6 00:46
-
-
 
 
 越级打怪（越5级以上）是不是只有丹邦上夜间命中开了明镜止水之后才能命中？然后其余靠队友以太伤害输出？
@@ -26538,16 +17616,10 @@ E12E9875-7FCE-4DB5-AB7A-4494A0DAC703.jpeg
 —— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  Ditfran  
 ##### 5861#       发表于 2020-8-6 01:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48331100&amp;ptid=1856998" target="_blank">希望之异热同心 发表于 2020-8-6 00:46</a>
@@ -26558,16 +17630,10 @@ E12E9875-7FCE-4DB5-AB7A-4494A0DAC703.jpeg
 影响物理命中的要素还挺多的，比如怪的敏捷，还有被动的百分比提成什么的，具体计算可以看一下这个：[https://www.gamersky.com/handbook/202006/1297055.shtml](https://www.gamersky.com/handbook/202006/1297055.shtml)
 
 
-
-
-
-
-
 -----
 
 ####  绿冰  
 ##### 5862#       发表于 2020-8-6 01:04
-
 
 
  本帖最后由 绿冰 于 2020-8-6 01:06 编辑 
@@ -26588,33 +17654,19 @@ E12E9875-7FCE-4DB5-AB7A-4494A0DAC703.jpeg
 以太攻击的和敏捷无关，基本链接梅莉雅的无心之悟就行，力奇和梅莉雅下毒打法的基本上扛得住就能无视等级迟早磨死
 
 
-
-
-
-
-
 -----
 
 ####  蓮華  
 ##### 5863#       发表于 2020-8-6 15:43
 
 
-
-
 XBDE132W，为诺彭社开心，XBXDE和新作快安排上<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  秋月孝三  
 ##### 5864#       发表于 2020-8-6 15:55
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202008/06/155344meecrzw5zkvnztw9.jpg" referrerpolicy="no-referrer">
@@ -26627,15 +17679,7 @@ XBDE132W，为诺彭社开心，XBXDE和新作快安排上<img src="https://stat
 2020-8-6 15:53 上传
 
 
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的感觉还挺准的，200w应该有戏。
-
-
-
-
-
 
 
 -----
@@ -26644,15 +17688,9 @@ XBDE132W，为诺彭社开心，XBXDE和新作快安排上<img src="https://stat
 ##### 5865#       发表于 2020-8-6 15:57
 
 
-
 <blockquote>秋月孝三 发表于 2020-8-6 15:55
 我的感觉还挺准的，200w应该有戏。</blockquote>
 首发型游戏，应该是150万差不多了，也足够优秀了
-
-
-
-
-
 
 
 -----
@@ -26661,16 +17699,9 @@ XBDE132W，为诺彭社开心，XBXDE和新作快安排上<img src="https://stat
 ##### 5866#       发表于 2020-8-6 16:03
 
 
-
-
 XBDE：132万+XB2（NS）173万+XBX（WiiU）90万+XB（3DS）60万+XB（Wii）90万=545w
 
 XB系列销量500w也是达成了
-
-
-
-
-
 
 
 -----
@@ -26679,14 +17710,7 @@ XB系列销量500w也是达成了
 ##### 5867#       发表于 2020-8-6 16:31
 
 
-
-
 才两个月就132w了，很可怕好吧
-
-
-
-
-
 
 
 -----
@@ -26695,16 +17719,9 @@ XB系列销量500w也是达成了
 ##### 5868#       发表于 2020-8-6 16:33
 
 
-
-
 好啊好啊，实质上还是冷饭也能卖那么多。
 
 当然这游戏质量也在那里，XB3赶紧的！
-
-
-
-
-
 
 
 -----
@@ -26713,14 +17730,7 @@ XB系列销量500w也是达成了
 ##### 5869#       发表于 2020-8-6 17:12
 
 
-
-
 XB3销量能上个新台阶吗，200万还是300万？
-
-
-
-
-
 
 
 -----
@@ -26729,16 +17739,10 @@ XB3销量能上个新台阶吗，200万还是300万？
 ##### 5870#       发表于 2020-8-6 18:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48337903&amp;ptid=1856998" target="_blank">hugosol 发表于 2020-8-6 16:31</a>
 
 才两个月就132w了，很可怕好吧</blockquote>
 是截止6月30日的财报，所以是一个月
-
-
-
-
-
 
 
 -----
@@ -26747,13 +17751,7 @@ XB3销量能上个新台阶吗，200万还是300万？
 ##### 5871#       发表于 2020-8-6 18:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">想到还是在这糊糊主机上出新作我就有点兴趣缺缺= =
-
-
-
-
-
 
 
 -----
@@ -26762,16 +17760,10 @@ XB3销量能上个新台阶吗，200万还是300万？
 ##### 5872#       发表于 2020-8-6 18:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48339103&amp;ptid=1856998" target="_blank">zjoi 发表于 2020-8-6 18:05</a>
 
 是截止6月30日的财报，所以是一个月</blockquote>
 那就更恐怖了，我记得日本首周只有10w左右的样子，之前我就想这数字会不会是海外占大头了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26780,14 +17772,7 @@ XB3销量能上个新台阶吗，200万还是300万？
 ##### 5873#       发表于 2020-8-6 18:50
 
 
-
-
 贡献了三份的路过 只要人人献出一点爱 XB1决定版的决定版就会在十年内再次到来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26796,14 +17781,7 @@ XB3销量能上个新台阶吗，200万还是300万？
 ##### 5874#       发表于 2020-8-6 19:00
 
 
-
-
 可喜可贺可喜可贺，希望下一作也能稳步提升<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26812,21 +17790,13 @@ XB3销量能上个新台阶吗，200万还是300万？
 ##### 5875#       发表于 2020-8-6 19:15
 
 
-
-
 xb3、xbxde、xbx2、小红帽，摩多摩多<img src="https://static.saraba1st.com/image/smiley/carton2017/246.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  zjoi  
 ##### 5876#       发表于 2020-8-6 19:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48339492&amp;ptid=1856998" target="_blank">hugosol 发表于 2020-8-6 18:46</a>
@@ -26840,25 +17810,13 @@ xb3、xbxde、xbx2、小红帽，摩多摩多<img src="https://static.saraba1st.
 欧美市场大概是日本的5倍，而这次本土销量却超过了海外的1/4，平均购买率其实已经超过欧美了
 
 
-
-
-
-
-
 -----
 
 ####  AincradWanderer  
 ##### 5877#       发表于 2020-8-6 19:39
 
 
-
-
 真好，高桥这会儿已经开香槟了吧，确实值得庆贺<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26867,21 +17825,13 @@ xb3、xbxde、xbx2、小红帽，摩多摩多<img src="https://static.saraba1st.
 ##### 5878#       发表于 2020-8-6 19:58
 
 
-
-
 可喜可贺可喜可贺，期待新作
-
-
-
-
-
 
 
 -----
 
 ####  rhocas  
 ##### 5879#       发表于 2020-8-6 20:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48339410&amp;ptid=1856998" target="_blank">lemon鱿鱼 发表于 2020-8-6 18:36</a>
@@ -26895,16 +17845,10 @@ b站看过一个4k分辨率下的视频片段
 [https://www.bilibili.com/video/BV1GT4y1E7Qw](https://www.bilibili.com/video/BV1GT4y1E7Qw)
 
 
-
-
-
-
-
 -----
 
 ####  kos_mos  
 ##### 5880#       发表于 2020-8-6 21:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48324997&amp;ptid=1856998" target="_blank">七氷 发表于 2020-8-5 14:18</a>
@@ -26913,17 +17857,10 @@ b站看过一个4k分辨率下的视频片段
 有长翼NPC说过，有翅膀但并不能飞，但是有经过训练的话就说不准了。
 
 
-
-
-
-
-
 -----
 
 ####  oylrcc  
 ##### 5881#       发表于 2020-8-6 21:24
-
-
 
 
 高桥大大，你看玩家都这么支持，xbx加料重制版是不是安排一下
@@ -26931,16 +17868,10 @@ b站看过一个4k分辨率下的视频片段
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  lemon鱿鱼  
 ##### 5882#       发表于 2020-8-6 22:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48340539&amp;ptid=1856998" target="_blank">rhocas 发表于 2020-8-6 20:19</a>
@@ -26960,16 +17891,10 @@ b站看过一个4k分辨率下的视频片段</blockquote>
 ns可是720p都能掉帧= =
 
 
-
-
-
-
-
 -----
 
 ####  findpkq  
 ##### 5883#       发表于 2020-8-6 23:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48337411&amp;ptid=1856998" target="_blank">秋月孝三 发表于 2020-8-6 15:55</a>
@@ -26979,17 +17904,10 @@ ns可是720p都能掉帧= =
 —— 来自 Xiaomi Redmi Note 3, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  宛若青空  
 ##### 5884#       发表于 2020-8-6 23:53
-
-
 
 
 前两天看到XB2打折岳父还发了推宣传，刚又看到岳父祝贺XBDE卖出132万，saitom真的很爱xb啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（以及他推上置顶居然还是18年10月30日他发的“xb2发售中”的宣传推）
@@ -27002,15 +17920,6 @@ ns可是720p都能掉帧= =
 下载附件
 
 2020-8-6 23:48 上传
-
-
-
-
-
-
-
-
-
 
 
    

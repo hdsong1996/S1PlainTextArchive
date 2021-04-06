@@ -1,18 +1,15 @@
 > ## **本文件最后更新于2020-08-05 16:17** 
 
 
-
 -----
 
 ####  佛狗  
 ##### 1#       楼主       发表于 2017-5-25 22:29
 
 
-
  本帖最后由 佛狗 于 2017-5-26 21:53 编辑 
 
 目前已经突破十万，官方开启了新的众筹目标，14W会加入中/日文语言
-
 
 
 《亵渎/Blasphemous》是一款由曾经推出了优秀克苏鲁题材游戏《最后一扇门》的开发小组The Game Kitchen打造的一款黑暗风格像素画风的横版过关游戏，游戏主要以黑暗宗教为主题，内容较为阴暗暴力，这款游戏此前登陆了Kickstarter众筹，其目标金额为五万美金。
@@ -50,31 +47,15 @@ KS:[https://www.kickstarter.com/proj ... non-linear-platform](https://www.kickst
 <img src="http://wx4.sinaimg.cn/large/4cfd52a7gy1ffxyzzg0ssg20iw0b4qlx.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  一炮交友  
 ##### 2#       发表于 2017-5-25 22:33
 
 
-
-
 哦 19年Q1还行  
 
 拜拜
-
-
-
-
-
 
 
 -----
@@ -83,16 +64,9 @@ KS:[https://www.kickstarter.com/proj ... non-linear-platform](https://www.kickst
 ##### 3#       发表于 2017-5-25 22:36
 
 
-
-
 soul head们进来呀！
 
 你们要的魂味！
-
-
-
-
-
 
 
 -----
@@ -101,14 +75,7 @@ soul head们进来呀！
 ##### 4#       发表于 2017-5-25 22:52
 
 
-
-
 之前在gaf看到，众筹这么快就搞定了确实没想到。另外还有个克风2d类恶魔城游戏，做jotun那个组做的sundered，7月份就出了。
-
-
-
-
-
 
 
 -----
@@ -119,21 +86,13 @@ soul head们进来呀！
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  SENKON  
 ##### 6#       发表于 2017-5-25 23:08
 
 
-
-
 The Last Door精致……那大色块儿吗
-
-
-
-
-
 
 
 -----
@@ -142,13 +101,7 @@ The Last Door精致……那大色块儿吗
 ##### 7#       发表于 2017-5-26 06:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">不收paypal啊
-
-
-
-
-
 
 
 -----
@@ -159,21 +112,13 @@ The Last Door精致……那大色块儿吗
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  cot495  
 ##### 9#       发表于 2017-5-26 07:45
 
 
-
-
 哇这美术风格，非常棒<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -182,14 +127,7 @@ The Last Door精致……那大色块儿吗
 ##### 10#       发表于 2017-5-26 08:03
 
 
-
-
 这个风格比魂更血腥，更接近烙印战士了吧
-
-
-
-
-
 
 
 -----
@@ -198,14 +136,7 @@ The Last Door精致……那大色块儿吗
 ##### 11#       发表于 2017-5-26 08:11
 
 
-
-
 视频最后躺在雕像手里的羊头，你不是劳伦斯么？
-
-
-
-
-
 
 
 -----
@@ -214,15 +145,9 @@ The Last Door精致……那大色块儿吗
 ##### 12#       发表于 2017-5-26 08:35
 
 
-
 <blockquote>hootao 发表于 2017-5-26 08:11
 视频最后躺在雕像手里的羊头，你不是劳伦斯么？</blockquote>
 起源是米开朗基罗的圣母怜子像,当然到这里应该还是捏了劳伦斯
-
-
-
-
-
 
 
 -----
@@ -231,14 +156,7 @@ The Last Door精致……那大色块儿吗
 ##### 13#       发表于 2017-5-26 08:39
 
 
-
-
 比起死亡细胞更优雅了呢
-
-
-
-
-
 
 
 -----
@@ -247,17 +165,10 @@ The Last Door精致……那大色块儿吗
 ##### 14#       发表于 2017-5-26 11:24
 
 
-
-
 这尖头盔让我有两个联想：一、前田利家入侵黑魂世界；二、快使用本田的头槌……哈哈哈
 
 
 不过砍人动作挺有力度的，看起来不错呢！
-
-
-
-
-
 
 
 -----
@@ -266,14 +177,7 @@ The Last Door精致……那大色块儿吗
 ##### 15#       发表于 2017-5-26 11:29
 
 
-
-
 带感，带感
-
-
-
-
-
 
 
 -----
@@ -282,16 +186,9 @@ The Last Door精致……那大色块儿吗
 ##### 16#       发表于 2017-5-26 11:38
 
 
-
-
 美工强啊
 
 —— 来自 Meizu MX5, Android 5.1上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
-
-
-
-
-
 
 
 -----
@@ -300,14 +197,7 @@ The Last Door精致……那大色块儿吗
 ##### 17#       发表于 2017-5-26 12:27
 
 
-
-
 造型有点像街舞队
-
-
-
-
-
 
 
 -----
@@ -316,14 +206,7 @@ The Last Door精致……那大色块儿吗
 ##### 18#       发表于 2017-5-26 12:36
 
 
-
-
 这类风格游戏看来市场越来越大了，已经不能算小众了？
-
-
-
-
-
 
 
 -----
@@ -332,21 +215,13 @@ The Last Door精致……那大色块儿吗
 ##### 19#       发表于 2017-5-26 12:37
 
 
-
-
 感觉不错<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Die毛玉  
 ##### 20#       发表于 2017-5-26 13:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36061276&amp;ptid=1505430" target="_blank">螺旋打桩 发表于 2017-5-26 11:24</a>
@@ -358,11 +233,6 @@ The Last Door精致……那大色块儿吗
 我的第一反应是法兰街舞队……
 
 
-
-
-
-
-
 -----
 
 ####  首领  
@@ -371,21 +241,13 @@ The Last Door精致……那大色块儿吗
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  葛雷新  
 ##### 22#       发表于 2017-5-26 13:16
 
 
-
-
 这美术风格，好精致啊。艺术品等级的
-
-
-
-
-
 
 
 -----
@@ -394,14 +256,7 @@ The Last Door精致……那大色块儿吗
 ##### 23#         楼主| 发表于 2017-5-26 19:27
 
 
-
-
 目前已经突破十万，官方开启了新的众筹目标，14W会加入中/日文语言
-
-
-
-
-
 
 
 -----
@@ -410,15 +265,9 @@ The Last Door精致……那大色块儿吗
 ##### 24#       发表于 2017-5-26 19:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">那个羊头什么毛病，有人来打扰他睡觉，他就起来把自己床砸了？
 
 如果宰了入侵者，上哪睡觉去？
-
-
-
-
-
 
 
 -----
@@ -427,13 +276,7 @@ The Last Door精致……那大色块儿吗
 ##### 25#       发表于 2017-5-27 00:24
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/07.gif" referrerpolicy="no-referrer">哦！喜欢！我来看看要不给帮点钱
-
-
-
-
-
 
 
 -----
@@ -444,12 +287,10 @@ The Last Door精致……那大色块儿吗
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  周愚  
 ##### 27#       发表于 2017-5-27 01:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36062515&amp;ptid=1505430" target="_blank">首领 发表于 2017-5-26 13:13</a>
@@ -462,16 +303,10 @@ The Last Door精致……那大色块儿吗
 这游戏西班牙本土风很重，尖帽子是当地天主教非常常见的惩罚与忏悔的象征。
 
 
-
-
-
-
-
 -----
 
 ####  玄戈  
 ##### 28#       发表于 2017-5-27 01:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36066619&amp;ptid=1505430" target="_blank">crazymarky 发表于 2017-5-26 19:55</a>
@@ -482,16 +317,10 @@ The Last Door精致……那大色块儿吗
 在基督教文化里这个场景比较有亵圣的意味。
 
 
-
-
-
-
-
 -----
 
 ####  sagogolf  
 ##### 29#       发表于 2017-5-27 01:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36069098&amp;ptid=1505430" target="_blank">周愚 发表于 2017-5-27 01:26</a>
@@ -502,16 +331,10 @@ The Last Door精致……那大色块儿吗
 可能太少見了，我覺得這個造型真的特別有意思
 
 
-
-
-
-
-
 -----
 
 ####  周愚  
 ##### 30#       发表于 2017-5-27 01:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36069167&amp;ptid=1505430" target="_blank">sagogolf 发表于 2017-5-27 01:44</a>
@@ -521,26 +344,13 @@ The Last Door精致……那大色块儿吗
 <img src="http://wx1.sinaimg.cn/mw690/71fec969gy1ffzarkuqgrj20go1ocndd.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  空调q太郎  
 ##### 31#       发表于 2017-5-27 02:03
 
 
-
-
 dos味太浓
-
-
-
-
-
 
 
 -----
@@ -551,21 +361,13 @@ dos味太浓
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  tyauto  
 ##### 33#       发表于 2017-5-27 11:05
 
 
-
-
 暴力血腥都有了怎么没有黄呢？算什么黑暗风啊..<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -576,12 +378,10 @@ dos味太浓
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  トリスタン  
 ##### 35#       发表于 2017-6-9 15:29
-
 
 
  本帖最后由 トリスタン 于 2017-6-9 15:53 编辑 
@@ -589,11 +389,6 @@ dos味太浓
 
 这种ryona游戏主角为什么是男人而不是美少女？</blockquote>
 拿下头盔来也许和萨姆斯一样啊并没有，PV一开始就是大叔脸
-
-
-
-
-
 
 
 -----
@@ -604,7 +399,6 @@ dos味太浓
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  拆骨羊肉  
@@ -613,13 +407,10 @@ dos味太浓
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  干将莫邪  
 ##### 38#       发表于 2017-6-9 19:38
-
-
 
 
 看到众筹两个字就害怕
@@ -628,24 +419,13 @@ dos味太浓
 lamulana2也还没做好
 
 
-
-
-
-
-
 -----
 
 ####  StrayWolf  
 ##### 39#       发表于 2017-6-9 19:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">按这组做LAST DOOR的速度....我觉得这个等2025年能不能出来都还是问题.......
-
-
-
-
-
 
 
 -----
@@ -654,14 +434,7 @@ lamulana2也还没做好
 ##### 40#       发表于 2017-6-9 20:20
 
 
-
-
 啥时候开payapl啊
-
-
-
-
-
 
 
 -----
@@ -670,21 +443,13 @@ lamulana2也还没做好
 ##### 41#       发表于 2017-6-9 21:01
 
 
-
-
 众酬来的资金的具体使用情况制作组会公布吗？
-
-
-
-
-
 
 
 -----
 
 ####  周愚  
 ##### 42#       发表于 2017-6-10 00:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36210379&amp;ptid=1505430" target="_blank">塞利斯 发表于 2017-6-9 21:01</a>
@@ -704,33 +469,19 @@ lamulana2也还没做好
 此外，实体奖励需要包括实体产品制作费、国际邮费、各种额外费用。
 
 
-
-
-
-
-
 -----
 
 ####  thoutzan  
 ##### 43#       发表于 2017-6-10 00:26
 
 
-
-
 一看截图喷了，大！司！机！
-
-
-
-
-
 
 
 -----
 
 ####  setree  
 ##### 44#       发表于 2017-6-10 04:28
-
-
 
 
 这个组给留下的印象不太好
@@ -746,32 +497,19 @@ lamulana2也还没做好
 <img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">不过谁知道呢，看看咯
 
 
-
-
-
-
-
 -----
 
 ####  ntlv0  
 ##### 45#       发表于 2017-6-22 19:48
 
 
-
-
 众筹结束，$333,246/$50,000=666%，这是不是早有预谋
-
-
-
-
-
 
 
 -----
 
 ####  ntlv0  
 ##### 46#       发表于 2017-7-20 10:21
-
 
 
  本帖最后由 ntlv0 于 2017-7-20 10:41 编辑 
@@ -781,25 +519,13 @@ lamulana2也还没做好
 看到boss就结束了，打都不打<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
 
 
-
-
-
-
-
 -----
 
 ####  septer  
 ##### 47#       发表于 2017-7-20 10:40
 
 
-
-
 这风格超有味道，但是要到2019年上旬……
-
-
-
-
-
 
 
 -----
@@ -808,16 +534,10 @@ lamulana2也还没做好
 ##### 48#       发表于 2017-7-20 10:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36630598&amp;ptid=1505430" target="_blank">septer 发表于 2017-7-20 10:40</a>
 
 这风格超有味道，但是要到2019年上旬……</blockquote>
 （据说）2018年血污就发售了，metroidvania类游戏再画饼就是不好的了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -826,14 +546,7 @@ lamulana2也还没做好
 ##### 49#       发表于 2017-7-21 11:44
 
 
-
-
 满满月下既视感<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -842,16 +555,9 @@ lamulana2也还没做好
 ##### 50#       发表于 2017-7-21 13:07
 
 
-
-
 贴个试玩版的视频 [www.youtube.com/watch?v=QFi1apfsF9s](http://www.youtube.com/watch?v=QFi1apfsF9s)
 
 死亡时的you died<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -860,14 +566,7 @@ lamulana2也还没做好
 ##### 51#       发表于 2017-7-21 18:21
 
 
-
-
 感觉像素风未必适合啊，不如手绘风来的合适
-
-
-
-
-
 
 
 -----
@@ -876,14 +575,7 @@ lamulana2也还没做好
 ##### 52#       发表于 2017-7-21 20:16
 
 
-
-
 魂...魂味儿！<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -892,21 +584,13 @@ lamulana2也还没做好
 ##### 53#       发表于 2017-7-21 20:28
 
 
-
-
 拿到钱和山本一样来个发言怎么办？
-
-
-
-
-
 
 
 -----
 
 ####  外骨骼  
 ##### 54#       发表于 2019-6-5 09:07
-
 
 
  本帖最后由 外骨骼 于 2019-6-5 09:09 编辑 
@@ -916,27 +600,15 @@ lamulana2也还没做好
 [http://t.cn/Ai9YG2MD?m=4379728619951105&amp;u=1980569103](http://t.cn/Ai9YG2MD?m=4379728619951105&amp;u=1980569103)
 
 
-
-
-
-
-
 -----
 
 ####  vf503  
 ##### 55#       发表于 2019-6-5 09:29
 
 
-
-
 圣母怜子 那个不会被宗教人士抗议？
 
 曾经《亲切的金子》用这个就出事了 这个更加亵渎10倍了 
-
-
-
-
-
 
 
 -----
@@ -945,21 +617,13 @@ lamulana2也还没做好
 ##### 56#       发表于 2019-6-5 09:44
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">啥时候更新
-
-
-
-
-
 
 
 -----
 
 ####  naclken.  
 ##### 57#       发表于 2019-6-5 09:45
-
-
 
 
 盐与避难所的重口加强版啊
@@ -970,32 +634,19 @@ lamulana2也还没做好
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫坤  
 ##### 58#       发表于 2019-6-5 09:53
 
 
-
-
 完美衔接黑暗献祭
-
-
-
-
-
 
 
 -----
 
 ####  我就再氪一单  
 ##### 59#       发表于 2019-6-5 09:56
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">ks刚众筹那会我虽然对于主角那个设定有点不爽，基本就是圣骑士爷爷+镜子骑士混搭，但还是挺期待的
@@ -1006,17 +657,10 @@ lamulana2也还没做好
 要 来 了 要 来 了 
 
 
-
-
-
-
-
 -----
 
 ####  藤井紫  
 ##### 60#       发表于 2019-6-5 10:25
-
-
 
 
 感觉是死策的同素异构
@@ -1026,27 +670,15 @@ lamulana2也还没做好
 —— 来自 Xiaomi MI 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  volanta  
 ##### 61#       发表于 2019-6-5 10:33
 
 
-
-
 别只说coming soon啊，给个准日子呀
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -1055,17 +687,10 @@ lamulana2也还没做好
 ##### 62#       发表于 2019-6-5 11:49
 
 
-
-
 不是19年1q吗？
 
 
 这2q都快完了
-
-
-
-
-
 
 
 -----
@@ -1074,14 +699,7 @@ lamulana2也还没做好
 ##### 63#       发表于 2019-6-5 11:50
 
 
-
-
 查了下，官网也404了啊
-
-
-
-
-
 
 
 -----
@@ -1090,14 +708,7 @@ lamulana2也还没做好
 ##### 64#       发表于 2019-6-5 11:56
 
 
-
-
 感觉不错，实际等上手后体验下手感和音乐水平再决定买不买
-
-
-
-
-
 
 
 -----
@@ -1106,21 +717,13 @@ lamulana2也还没做好
 ##### 65#       发表于 2019-6-5 12:07
 
 
-
-
 喷了，官网怎么还403了
-
-
-
-
-
 
 
 -----
 
 ####  pgain2004  
 ##### 66#       发表于 2019-6-5 12:25
-
 
 
  本帖最后由 pgain2004 于 2019-6-5 12:28 编辑 
@@ -1133,26 +736,14 @@ lamulana2也还没做好
 这个的宣传片里动作看起来就比较流畅了，希望手感(?)能跟上。
 
 
-
-
-
-
-
 -----
 
 ####  pgain2004  
 ##### 67#       发表于 2019-6-5 12:31
 
 
-
-
 另外还有一个17分钟的gameplay演示
 [https://www.youtube.com/watch?v=lTyIE3GEGiI](https://www.youtube.com/watch?v=lTyIE3GEGiI)
-
-
-
-
-
 
 
 -----
@@ -1161,13 +752,7 @@ lamulana2也还没做好
 ##### 68#       发表于 2019-6-5 12:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别的不说这一刀砍下去卡顿感 感觉不赖
-
-
-
-
-
 
 
 -----
@@ -1176,14 +761,7 @@ lamulana2也还没做好
 ##### 69#       发表于 2019-6-5 13:52
 
 
-
-
 游戏的画面风格和背景设定喜欢死了，出了必买。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1192,15 +770,9 @@ lamulana2也还没做好
 ##### 70#       发表于 2019-6-6 14:34
 
 
-
  本帖最后由 yayoi801 于 2019-6-5 23:02 编辑 
 
 看了演示主角把boss的血灌进那个尖头盔里然后把头盔戴上去了...戴上去了<img src="https://static.saraba1st.com/image/smiley/face2017/129.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1209,21 +781,13 @@ lamulana2也还没做好
 ##### 71#       发表于 2019-6-6 15:24
 
 
-
-
 宣传片看完了，做的真好。像素也能做的这么血腥，这玩意国内肯定不能播。
-
-
-
-
-
 
 
 -----
 
 ####  膝盖君  
 ##### 72#       发表于 2019-8-19 21:53
-
 
 
  本帖最后由 膝盖君 于 2019-8-19 22:55 编辑 
@@ -1233,17 +797,10 @@ lamulana2也还没做好
 9月10
 
 
-
-
-
-
-
-
 -----
 
 ####  yuwe0714  
 ##### 73#       发表于 2019-8-19 22:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44970425&amp;ptid=1505430" target="_blank">膝盖君 发表于 2019-8-19 21:53</a>
@@ -1252,16 +809,10 @@ lamulana2也还没做好
 现在有说有没有中文吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  佛狗  
 ##### 74#         楼主| 发表于 2019-8-19 23:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44970520&amp;ptid=1505430" target="_blank">yuwe0714 发表于 2019-8-19 22:04</a>
@@ -1270,13 +821,9 @@ lamulana2也还没做好
 中日文都有
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -1286,12 +833,7 @@ lamulana2也还没做好
 | yuwe0714| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -1300,14 +842,7 @@ lamulana2也还没做好
 ##### 75#       发表于 2019-8-20 01:31
 
 
-
-
 看了几个实机pv感觉很好，全裸待机了。
-
-
-
-
-
 
 
 -----
@@ -1316,16 +851,9 @@ lamulana2也还没做好
 ##### 76#       发表于 2019-8-20 02:00
 
 
-
-
 卧槽，出了必买
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -1334,14 +862,7 @@ lamulana2也还没做好
 ##### 77#       发表于 2019-8-20 03:23
 
 
-
-
 看着非常吸引人
-
-
-
-
-
 
 
 -----
@@ -1350,14 +871,7 @@ lamulana2也还没做好
 ##### 78#       发表于 2019-8-20 07:03
 
 
-
-
 先马克一记
-
-
-
-
-
 
 
 -----
@@ -1366,14 +880,7 @@ lamulana2也还没做好
 ##### 79#       发表于 2019-8-20 07:05
 
 
-
-
 可是憋出来了,等了它这么久<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1382,14 +889,7 @@ lamulana2也还没做好
 ##### 80#       发表于 2019-8-20 08:30
 
 
-
-
 看起来不错，等来份NS版的
-
-
-
-
-
 
 
 -----
@@ -1398,14 +898,7 @@ lamulana2也还没做好
 ##### 81#       发表于 2019-8-20 10:33
 
 
-
-
 b站看了点视频，感觉很微妙啊，风格是挺好，动作有点怪，扒拉悬崖和弹反看着都怪怪的
-
-
-
-
-
 
 
 -----
@@ -1414,16 +907,9 @@ b站看了点视频，感觉很微妙啊，风格是挺好，动作有点怪，�
 ##### 82#       发表于 2019-8-20 10:40
 
 
-
-
 跟猛汉IB撞车了啊，短时间内肯定没时间玩，虽然很喜欢，先看评价吧
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -1432,14 +918,7 @@ b站看了点视频，感觉很微妙啊，风格是挺好，动作有点怪，�
 ##### 83#       发表于 2019-8-20 20:40
 
 
-
-
 NS版中文是全区么？
-
-
-
-
-
 
 
 -----
@@ -1448,14 +927,7 @@ NS版中文是全区么？
 ##### 84#       发表于 2019-8-20 23:01
 
 
-
-
 以为动作会很笨重的，没想到这么快
-
-
-
-
-
 
 
 -----
@@ -1466,29 +938,19 @@ NS版中文是全区么？
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  卡鲁修特  
 ##### 86#       发表于 2019-9-30 22:23
 
 
-
-
 综合水平还行吧。。 但剧情实在太意识流
-
-
-
-
-
 
 
 -----
 
 ####  percivale  
 ##### 87#       发表于 2019-9-30 23:04
-
-
 
 
 怎么说呢……
@@ -1498,17 +960,10 @@ NS版中文是全区么？
 比盐和避难所还要不银河城一点
 
 
-
-
-
-
-
 -----
 
 ####  lhh_ah  
 ##### 88#       发表于 2019-9-30 23:08
-
-
 
 
 地图设计比较恶意
@@ -1517,25 +972,13 @@ NS版中文是全区么？
 —— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  sosgame67  
 ##### 89#       发表于 2019-10-1 00:11
 
 
-
-
 银河城加元组洛克人的微妙体验，武器的手感比空洞要好但是人物性能僵硬多了（突出在跳跃上..另外上来不走焦容修道院路线直接少一个念珠这也太old school了，传送点位置微妙让我后期的开图体验非常蛋疼，虽然缺点虽然非常明显可我还是吃这套剑风+西班牙宗教裁判混搭的魂类设定，游戏时长已经接近血污了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1544,14 +987,7 @@ NS版中文是全区么？
 ##### 90#       发表于 2019-10-1 00:43
 
 
-
-
 跳跃手感很差，地图杀还多，岔路隔的远，来回跑时间长，地图杀多，跳跃手感差……无限循环
-
-
-
-
-
 
 
 -----
@@ -1560,14 +996,7 @@ NS版中文是全区么？
 ##### 91#       发表于 2019-10-1 00:45
 
 
-
-
 我想说这游戏边缘跳跃根本就没做好，在边上起跳有时根本就不行，感觉跟换脚的时机还有关系（可能是错觉）。这种游戏的难度应该体现在关卡设计上，而不是严格的迷之判定，建议这些开发者都好好向Celeste的开发者学习一下，什么叫人性化设计。除了这一点外其他还行，美术很好。
-
-
-
-
-
 
 
 -----
@@ -1576,15 +1005,8 @@ NS版中文是全区么？
 ##### 92#       发表于 2019-10-1 00:46
 
 
-
-
 即死地形太多，没有二段跳，收集道具的能力都是支线还藏得賊深，冲这些就要给差评
 也就招架打铁手感挺不错，一些杂兵和boss弹刀还蛮爽的
-
-
-
-
-
 
 
 -----
@@ -1593,16 +1015,9 @@ NS版中文是全区么？
 ##### 93#       发表于 2019-10-1 00:49
 
 
-
-
 除了boss战和不太好说的美术，这游戏就没什么优点了，非常不推荐
 
 这年头好游戏这么多，没必要玩这破游戏
-
-
-
-
-
 
 
 -----
@@ -1611,24 +1026,15 @@ NS版中文是全区么？
 ##### 94#       发表于 2019-10-1 00:52
 
 
-
-
 跳楼梯和钉墙做得太蠢了，而且在墙板边想砍怪变成钉墙还很难下来这种事也太蠢了
 
 地图杀实在太多，甚至开个捷径都要放一堆地图杀至于吗，走捷径都要受苦吗
-
-
-
-
-
 
 
 -----
 
 ####  永远的访客  
 ##### 95#       发表于 2019-10-1 01:51
-
-
 
 
 old school式手感，关卡设计很精妙，各种乱七八糟的地形陷阱，大部分敌人都故意放在最能恶心到你的地方
@@ -1640,16 +1046,10 @@ old school式手感，关卡设计很精妙，各种乱七八糟的地形陷阱�
 这游戏就是cult风，喜欢的会喜欢得不得了，不喜欢的也会非常厌恶。
 
 
-
-
-
-
-
 -----
 
 ####  leitingkai  
 ##### 96#       发表于 2019-10-1 01:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45107049&amp;ptid=1505430" target="_blank">永远的访客 发表于 2019-10-1 01:51</a>
@@ -1661,16 +1061,10 @@ old school式手感，关卡设计很精妙，各种乱七八糟的地形陷阱�
 你打到地图右上角的部分会发现目前为止的地形杀和敌人的位置还是小意思，右上角那块儿的地刺多到暴毙还塞一堆能朝9个方向射子弹的飞头，太恶心了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mandora  
 ##### 97#       发表于 2019-10-1 02:36
-
 
 
  本帖最后由 mandora 于 2019-10-1 02:40 编辑 
@@ -1691,17 +1085,10 @@ boss设计挺水的 招式套路单一跟主角出招没互动 远不如空洞
 结果这游戏却能因为某个角色有一对好看能抖得奈子就收获了不少好评 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  joichim  
 ##### 98#       发表于 2019-10-1 06:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45107209&amp;ptid=1505430" target="_blank">mandora 发表于 2019-10-1 02:36</a>
@@ -1713,17 +1100,10 @@ boss设计挺水的 招式套路单一跟主角出招没互动 远不如空洞
 —— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  joichim  
 ##### 99#       发表于 2019-10-1 06:44
-
-
 
 
 先推一下自己做的全收集视频https://b23.tv/av68245345/p1。游戏挺不错的，美术，音乐都很赞。动作方面存在一点问题，上面别人提到了跳起来打人变钉墙；还有跳着爬梯子到顶部总是落不到平台；钉墙不能攻击可以理解，爬梯子也不能攻击就不知道在想啥了；下落斩很难在空中不空挥一刀的情况下完成；大硬直无敌保护时间太多短，在墙角容易被屈死，有时候感觉连续两三次受伤大硬直后无敌保护时间会增加，不过基本也空血了；手柄右摇杆可以观察周围地形，范围太小且有时候会失灵，印象最深的就是寂静台阶的某个地刺，就是观察不到；没有二段跳这一点反而很喜欢，能想象中期有了二段跳，后期的关卡和boss们打起来有多欢乐么？而且圣物的说明是增加对世界的认识，和血源的灵视差不多，比如原来星星点点的红色变成平台，和死人说话，跳崖等，怎么可能突然认识到自己可以跳两下？关卡设计上按剧情第一个去焦容圣母院是有点莫名其妙，难度远大于慈悲梦境，沉睡画布和教堂顶容易掉地刺，但是说实话沉睡画布观察两轮斧子真的是随便跳，教堂顶子弹小兵只有在从上往下开图的时候威胁大，而且手残的人估计早就三次召唤薇薇迪雅娜拿到了她的护身技能了。游戏的开门类地图解密很不错，一些具体的谜题也很有意思，推荐有耐心喜欢这类风格的来尝试一下。
@@ -1731,16 +1111,10 @@ boss设计挺水的 招式套路单一跟主角出招没互动 远不如空洞
 —— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  永远的访客  
 ##### 100#       发表于 2019-10-1 09:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45107529&amp;ptid=1505430" target="_blank">joichim 发表于 2019-10-1 06:15</a>
@@ -1755,25 +1129,13 @@ boss设计挺水的 招式套路单一跟主角出招没互动 远不如空洞
 不过带来的附作用是英文版比中文还晦涩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  非典型叶子  
 ##### 101#       发表于 2019-10-1 09:08
 
 
-
-
 挺好玩的其实。。。不过扒墙那个问题确实不爽的很
-
-
-
-
-
 
 
 -----
@@ -1782,14 +1144,7 @@ boss设计挺水的 招式套路单一跟主角出招没互动 远不如空洞
 ##### 102#       发表于 2019-10-1 10:15
 
 
-
-
 这游戏的物品说明比魂系列的lore还晦涩不明，大部分念珠的效果只能装上去盲目尝试，不然完全不知道是啥效果，但是各个遗骨的背景说明和圣歌的注释还有其他收集物给我的沉浸感体验要比魂3和盐与避难所好的多..
-
-
-
-
-
 
 
 -----
@@ -1798,21 +1153,13 @@ boss设计挺水的 招式套路单一跟主角出招没互动 远不如空洞
 ##### 103#       发表于 2019-10-1 10:19
 
 
-
-
 另外目前最大的缺点是没有继承内容的二周目，缺了树人的任务念珠只能开档重来，虽然少一个念珠也能100%但总觉得缺了啥,te的结局最终boss也没有任何变化（洛克人x西格玛既视感..
-
-
-
-
-
 
 
 -----
 
 ####  syndrome2032  
 ##### 104#       发表于 2019-12-1 19:31
-
 
 
  本帖最后由 syndrome2032 于 2019-12-1 19:57 编辑 
@@ -1836,16 +1183,10 @@ boss战最恶心的是监狱的裁判boss，中了落地踩后起身太慢没有
 哦，对，还有一个问题。任务道具给掉以后就从道具栏消失了，想再看下道具的导言都不能。月之子我都没法确定手上缺那几个所以干脆懒得去找了。。
 
 
-
-
-
-
-
 -----
 
 ####  cristoforo  
 ##### 105#       发表于 2019-12-1 19:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45679499&amp;ptid=1505430" target="_blank">syndrome2032 发表于 2019-12-1 19:31</a>
@@ -1857,16 +1198,10 @@ boss战最恶心的是监狱的裁判boss，中了落地踩后起身太慢没有
 中空管就是树人给你的任务道具,打完焦容圣母BOSS,在后面的房间用来装油的
 
 
-
-
-
-
-
 -----
 
 ####  syndrome2032  
 ##### 106#       发表于 2019-12-1 19:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45679593&amp;ptid=1505430" target="_blank">cristoforo 发表于 2019-12-1 19:40</a>
@@ -1874,16 +1209,10 @@ boss战最恶心的是监狱的裁判boss，中了落地踩后起身太慢没有
 我知道，我做完了浇油。。然后又多捡到一个中空金管。。
 
 
-
-
-
-
-
 -----
 
 ####  pgain2004  
 ##### 107#       发表于 2019-12-1 19:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45679499&amp;ptid=1505430" target="_blank">syndrome2032 发表于 2019-12-1 19:31</a>
@@ -1894,16 +1223,10 @@ boss战最恶心的是监狱的裁判boss，中了落地踩后起身太慢没有
 你搜搜官方漫画，有提到主角和女骑士的龃龉。
 
 
-
-
-
-
-
 -----
 
 ####  adretyu67  
 ##### 108#       发表于 2020-7-26 11:40
-
 
 
  本帖最后由 adretyu67 于 2020-7-26 11:52 编辑 
@@ -1927,16 +1250,10 @@ new game+
 难度选择
 
 
-
-
-
-
-
 -----
 
 ####  sosgame67  
 ##### 109#       发表于 2020-7-26 11:55
-
 
 
  本帖最后由 sosgame67 于 2020-7-26 11:58 编辑 
@@ -1944,16 +1261,10 @@ new game+
 不声不响准备dlc了，想想我还差不少收集，看看能不能补齐，看预告他们还加了派系誓约进去？乍看很像是技能树
 
 
-
-
-
-
-
 -----
 
 ####  adretyu67  
 ##### 110#       发表于 2020-7-26 12:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48218894&amp;ptid=1505430" target="_blank">sosgame67 发表于 2020-7-26 11:55</a>
@@ -1972,16 +1283,10 @@ new game+
 看右边介绍不知道还能往下拉不。不然右边那个惩罚也太夸张了。
 
 
-
-
-
-
-
 -----
 
 ####  sosgame67  
 ##### 111#       发表于 2020-7-26 12:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48218976&amp;ptid=1505430" target="_blank">adretyu67 发表于 2020-7-26 12:07</a>
@@ -1993,26 +1298,15 @@ new game+
 整这么多花里胡哨的还不如改善一下跑路体验，后期大部分死亡是死于摇摆铡刀+钉刺，这游戏的手感比老式洛克人还要古旧..
 
 
-
-
-
-
-
 -----
 
 ####  pgain2004  
 ##### 112#       发表于 2020-7-26 13:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48219057&amp;ptid=1505430" target="_blank">sosgame67 发表于 2020-7-26 12:19</a>
 整这么多花里胡哨的还不如改善一下跑路体验，后期大部分死亡是死于摇摆铡刀+钉刺，这游戏的手感比老式洛 ...</blockquote>
 看特质就知道制作组听取的玩家意见是“还不够受苦”啊<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2021,24 +1315,15 @@ new game+
 ##### 113#       发表于 2020-7-26 14:28
 
 
-
-
 手感我能接受，oldschool 要的就是这味道，问题一是这游戏的恶性BUG让人难受。我打了三次流程，两次是遭遇BUG不得不重来。
 
 —— 来自 OPPO PCAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
 
 ####  pgain2004  
 ##### 114#       发表于 2020-8-5 11:18
-
-
 
 
 出了，这次DLC有好的一面，主要是对以往功能的强化，提高了便利性，新NPC的支线也蛮有趣
@@ -2049,26 +1334,16 @@ new game+
 打完后感觉并不值得为这DLC开NG+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  000000  
 ##### 115#       发表于 2020-8-5 11:27
 
 
-
-
 这游戏做的是真好，设定是闭环饱满，细节拉满，润物细无声
 
 
 DLC内容量也足
-
-
-
 
 
                                               

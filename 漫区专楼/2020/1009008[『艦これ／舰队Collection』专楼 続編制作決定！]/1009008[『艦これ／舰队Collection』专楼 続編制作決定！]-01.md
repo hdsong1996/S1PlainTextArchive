@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2020-02-28 18:28** 
 
 
-
 -----
 
 ####  岛风  
 ##### 1#       楼主       发表于 2014-3-22 11:27
-
 
 
  本帖最后由 岛风 于 2015-3-26 00:37 编辑 
@@ -27,16 +25,10 @@
 <img src="http://ww4.sinaimg.cn/large/8252a54ejw1eqhl9gdznfj20gq0kg0z1.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  岛风  
 ##### 2#         楼主| 发表于 2014-3-22 11:36
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/13.gif" referrerpolicy="no-referrer">
@@ -46,25 +38,13 @@
 <img src="http://ww2.sinaimg.cn/large/eccb88edgw1eeodk3q41yj20p00ieju7.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  冬夜女公爵  
 ##### 3#       发表于 2014-3-22 11:37
 
 
-
-
 人设比原作好。不过原作一个，，声优配一群，动画准备出场多少条
-
-
-
-
-
 
 
 -----
@@ -73,15 +53,8 @@
 ##### 4#         楼主| 发表于 2014-3-22 11:41
 
 
-
-
 声优桑<img src="https://static.saraba1st.com/image/smiley/face/13.gif" referrerpolicy="no-referrer">
 <img src="http://ww3.sinaimg.cn/large/eccb88edgw1eeodp9npa0j20qo0k0gpx.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -90,14 +63,7 @@
 ##### 5#       发表于 2014-3-22 11:45
 
 
-
-
 霸权！！！！！！政委prpr！
-
-
-
-
-
 
 
 -----
@@ -106,14 +72,7 @@
 ##### 6#       发表于 2014-3-22 11:47
 
 
-
-
 那么谁来拍，不是水岛努？
-
-
-
-
-
 
 
 -----
@@ -122,14 +81,7 @@
 ##### 7#       发表于 2014-3-22 11:48
 
 
-
-
 prpr
-
-
-
-
-
 
 
 -----
@@ -138,14 +90,7 @@ prpr
 ##### 8#       发表于 2014-3-22 11:50
 
 
-
-
 井口prpr！
-
-
-
-
-
 
 
 -----
@@ -154,21 +99,13 @@ prpr
 ##### 9#       发表于 2014-3-22 11:51
 
 
-
-
 下巴能刻石碑
-
-
-
-
-
 
 
 -----
 
 ####  D-JoeII  
 ##### 10#       发表于 2014-3-22 11:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=24854206&amp;ptid=1009008" target="_blank">alitonx 发表于 2014-3-22 11:47</a>
@@ -179,13 +116,7 @@ prpr
 花田系列構成
 
 
-
 怕了沒?嗯,我怕了
-
-
-
-
-
 
 
 -----
@@ -194,14 +125,7 @@ prpr
 ##### 11#       发表于 2014-3-22 11:56
 
 
-
-
 照狗日那节奏拍就没问题
-
-
-
-
-
 
 
 -----
@@ -210,14 +134,7 @@ prpr
 ##### 12#       发表于 2014-3-22 11:58
 
 
-
-
 楼主的人设还没出吗
-
-
-
-
-
 
 
 -----
@@ -226,14 +143,7 @@ prpr
 ##### 13#       发表于 2014-3-22 12:00
 
 
-
-
 完爆原作画师
-
-
-
-
-
 
 
 -----
@@ -242,14 +152,7 @@ prpr
 ##### 14#       发表于 2014-3-22 12:00
 
 
-
-
 泡面还是正常番？
-
-
-
-
-
 
 
 -----
@@ -258,14 +161,7 @@ prpr
 ##### 15#       发表于 2014-3-22 12:06
 
 
-
-
 谁要看什么吹雪，我们要看LZ还有金刚
-
-
-
-
-
 
 
 -----
@@ -274,14 +170,7 @@ prpr
 ##### 16#       发表于 2014-3-22 12:06
 
 
-
-
 藤田咲...我似乎又看到了一个痴女
-
-
-
-
-
 
 
 -----
@@ -290,21 +179,13 @@ prpr
 ##### 17#       发表于 2014-3-22 12:07
 
 
-
-
 人设能做到这个地步，喜出望外
-
-
-
-
-
 
 
 -----
 
 ####  ティグル  
 ##### 18#       发表于 2014-3-22 12:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=24854255&amp;ptid=1009008" target="_blank">D-JoeII 发表于 2014-3-22 11:54</a>
@@ -317,25 +198,13 @@ prpr
 但是花田大先生，嘿嘿嘿
 
 
-
-
-
-
-
 -----
 
 ####  Quetzacoatl  
 ##### 19#       发表于 2014-3-22 12:12
 
 
-
-
 东山援交舰队什么时候放出？
-
-
-
-
-
 
 
 -----
@@ -344,14 +213,7 @@ prpr
 ##### 20#       发表于 2014-3-22 12:13
 
 
-
-
 主炮填充完毕，等待舰娘们入渠
-
-
-
-
-
 
 
 -----
@@ -360,14 +222,7 @@ prpr
 ##### 21#       发表于 2014-3-22 12:22
 
 
-
-
 op ed让那珂酱演唱就好了(
-
-
-
-
-
 
 
 -----
@@ -376,17 +231,10 @@ op ed让那珂酱演唱就好了(
 ##### 22#       发表于 2014-3-22 12:24
 
 
-
-
 吹雪终于不是包子脸了……
 
 
 等大东山舰队
-
-
-
-
-
 
 
 -----
@@ -395,14 +243,7 @@ op ed让那珂酱演唱就好了(
 ##### 23#       发表于 2014-3-22 12:31
 
 
-
-
 喷了，花田！给我水岛努和吉田玲子好吗……
-
-
-
-
-
 
 
 -----
@@ -411,16 +252,10 @@ op ed让那珂酱演唱就好了(
 ##### 24#       发表于 2014-3-22 13:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=24854350&amp;ptid=1009008" target="_blank">fraseal 发表于 2014-3-22 12:06</a>
 
 藤田咲...我似乎又看到了一个痴女</blockquote>
 痴女？那是扶桑山城，赤城你只会看到吃女
-
-
-
-
-
 
 
 -----
@@ -429,14 +264,7 @@ op ed让那珂酱演唱就好了(
 ##### 25#       发表于 2014-3-22 13:20
 
 
-
-
 求更多！
-
-
-
-
-
 
 
 -----
@@ -445,14 +273,7 @@ op ed让那珂酱演唱就好了(
 ##### 26#       发表于 2014-3-22 13:28
 
 
-
-
 教练我要看翔鹤和瑞鹤！
-
-
-
-
-
 
 
 -----
@@ -461,14 +282,7 @@ op ed让那珂酱演唱就好了(
 ##### 27#       发表于 2014-3-22 13:30
 
 
-
-
 包子脸都有这么多人舔，你们竟然说比原人设要好<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -477,14 +291,7 @@ op ed让那珂酱演唱就好了(
 ##### 28#       发表于 2014-3-22 13:36
 
 
-
-
 吹雪不路人，赤城不吃货，还好加贺还原了
-
-
-
-
-
 
 
 -----
@@ -493,14 +300,7 @@ op ed让那珂酱演唱就好了(
 ##### 29#       发表于 2014-3-22 13:38
 
 
-
-
 哦哦，是这个味
-
-
-
-
-
 
 
 -----
@@ -509,14 +309,7 @@ op ed让那珂酱演唱就好了(
 ##### 30#       发表于 2014-3-22 13:38
 
 
-
-
 嗯？这是WUG的cosplay节目？林田蓝里cos吹雪？<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -525,14 +318,7 @@ op ed让那珂酱演唱就好了(
 ##### 31#       发表于 2014-3-22 13:48
 
 
-
-
 上坂政委竟然不是响爷？
-
-
-
-
-
 
 
 -----
@@ -541,17 +327,10 @@ op ed让那珂酱演唱就好了(
 ##### 32#       发表于 2014-3-22 13:53
 
 
-
-
 太太更年轻了，小学生更少女了。包子脸没了。
 
 
 只能说，实用性更强了！
-
-
-
-
-
 
 
 -----
@@ -560,22 +339,15 @@ op ed让那珂酱演唱就好了(
 ##### 33#       发表于 2014-3-22 13:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 话说，上坂堇不是纯种毛棍么。。。。。。。。。为啥不留着她配另外一个。。。。。。。。？
-
-
-
-
-
 
 
 -----
 
 ####  yanbo8502  
 ##### 34#       发表于 2014-3-22 13:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=24855272&amp;ptid=1009008" target="_blank">johnkamsar 发表于 2014-3-22 13:54</a>
@@ -586,24 +358,13 @@ op ed让那珂酱演唱就好了(
 原创故事的话应该会确定几个主角。
 
 
-
-
-
-
-
 -----
 
 ####  風見一姫  
 ##### 35#       发表于 2014-3-22 13:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer"> 草，主角你怎么了主角。
-
-
-
-
-
 
 
 -----
@@ -612,14 +373,7 @@ op ed让那珂酱演唱就好了(
 ##### 36#       发表于 2014-3-22 14:07
 
 
-
-
 主角和吃撑不习惯，加贺PRPR<img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -628,17 +382,9 @@ op ed让那珂酱演唱就好了(
 ##### 37#       发表于 2014-3-22 14:08
 
 
-
-
 这人设...加贺的大腿好棒的样子....<img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer">
 
 坐等援交军团
-
-
-
-
-
-
 
 
 -----
@@ -647,17 +393,10 @@ op ed让那珂酱演唱就好了(
 ##### 38#       发表于 2014-3-22 14:11
 
 
-
-
 这吹雪完全就是另外一个人...一航战感觉到时还可以
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?null)
-
-
-
-
-
 
 
 -----
@@ -666,13 +405,7 @@ op ed让那珂酱演唱就好了(
 ##### 39#       发表于 2014-3-22 14:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/87.gif" referrerpolicy="no-referrer">大概没机会露脸
-
-
-
-
-
 
 
 -----
@@ -681,14 +414,7 @@ op ed让那珂酱演唱就好了(
 ##### 40#       发表于 2014-3-22 14:13
 
 
-
-
 游戏里的一航战画得太惨了，动画好评<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -697,14 +423,7 @@ op ed让那珂酱演唱就好了(
 ##### 41#       发表于 2014-3-22 14:30
 
 
-
-
 只有我看到加贺好像看到了三日月夜空吗。。
-
-
-
-
-
 
 
 -----
@@ -713,16 +432,9 @@ op ed让那珂酱演唱就好了(
 ##### 42#       发表于 2014-3-22 14:45
 
 
-
-
 続いては「どうなる!?　アニメ艦隊これくしょん」と題して、ゲストたちがアニメの内容を予想。藤田さん、井口さんともに、まだ詳しい内容は知らされていないということで、自分たちの要望を草川監督にぶつけることに。藤田さんは「赤城さんが鎮守府をめぐり、海軍カレーを食べ比べる珍道中」を提案。提督たちの間でいつの間にか定着してしまった、赤城の大食いキャラを全面に押し出したネタに、草川監督もニッコリ。アニメ本編でも、このアイディアが採用される可能性を匂わせた。一方、井口さんは「加賀がミニバス（ミニバスケットボール）をはじめる」という、某作品のパロディを発表。ギリギリのラインを攻める危険なネタに、草川監督も思わず苦笑いを浮かべた。さらに、司会の上坂さんも事前に用意していたアイディアを披露。その内容はなんと「吹雪第1話で轟沈」!!　この大胆なアイディアには、会場からも「ええーっ!!」という驚きの声が上がった。上坂さんは「一度は轟沈した吹雪が修復され、改造を受けてパワーアップ！」という王道展開、もしくは悪堕ちを期待しているとのこと。草川監督も、その斬新さに戸惑い気味……。
 
 [http://okmusic.jp/#!/news/34547](http://okmusic.jp/#!/news/34547)
-
-
-
-
-
 
 
 -----
@@ -731,23 +443,15 @@ op ed让那珂酱演唱就好了(
 ##### 43#       发表于 2014-3-22 14:46
 
 
-
-
 你们都这么开心么？
 
 我只觉得原作至少不全是一个脸<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  无动于衷  
 ##### 44#       发表于 2014-3-22 14:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=24854266&amp;ptid=1009008" target="_blank">v2c 发表于 2014-3-22 11:56</a>
@@ -759,25 +463,13 @@ op ed让那珂酱演唱就好了(
 要是按着幻影太阳......
 
 
-
-
-
-
-
 -----
 
 ####  C.W.Nimitz  
 ##### 45#       发表于 2014-3-22 14:59
 
 
-
-
 都是渣渣，准备感受我们太平洋舰队的触手吧
-
-
-
-
-
 
 
 -----
@@ -786,16 +478,9 @@ op ed让那珂酱演唱就好了(
 ##### 46#       发表于 2014-3-22 15:07
 
 
-
-
 居然有觉得好的么
 
 明明包子脸才是精髓好吧，完爆动画版
-
-
-
-
-
 
 
 -----
@@ -804,21 +489,13 @@ op ed让那珂酱演唱就好了(
 ##### 47#       发表于 2014-3-22 15:08
 
 
-
-
 也就不玩游戏的觉得这人设好
-
-
-
-
-
 
 
 -----
 
 ####  枫紫  
 ##### 48#       发表于 2014-3-22 15:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=24855692&amp;ptid=1009008" target="_blank">posthoc 发表于 2014-3-22 14:46</a>
@@ -832,16 +509,10 @@ op ed让那珂酱演唱就好了(
 这些难道不是一张脸么
 
 
-
-
-
-
-
 -----
 
 ####  hellgate11  
 ##### 49#       发表于 2014-3-22 15:11
-
 
 
  本帖最后由 hellgate11 于 2014-3-22 15:19 编辑 
@@ -863,30 +534,13 @@ op ed让那珂酱演唱就好了(
 2014-3-22 15:19 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  少女趣味  
 ##### 50#       发表于 2014-3-22 15:14
 
 
-
-
 这人设明明透着一股子廉价味道<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -895,25 +549,16 @@ op ed让那珂酱演唱就好了(
 ##### 51#       发表于 2014-3-22 15:21
 
 
-
-
 教练，这主角不够土啊
 
 
 顺便楼上说声优的，前一阵官方公布的游戏100+船只有22个cv
 
 
-
-
-
-
-
 -----
 
 ####  hellgate11  
 ##### 52#       发表于 2014-3-22 15:24
-
-
 
 
 <img src="http://img.saraba1st.com/forum/201403/22/152418bo5f1phbh91fjzbp.jpg" referrerpolicy="no-referrer">
@@ -926,17 +571,7 @@ op ed让那珂酱演唱就好了(
 2014-3-22 15:24 上传
 
 
-
-
-
-
-
 当然游戏里克隆人军团的重灾区还是在小学生，大船的情况好一点
-
-
-
-
-
 
 
 -----
@@ -945,14 +580,7 @@ op ed让那珂酱演唱就好了(
 ##### 53#       发表于 2014-3-22 15:28
 
 
-
-
 这人设真是太平庸了
-
-
-
-
-
 
 
 -----
@@ -961,21 +589,13 @@ op ed让那珂酱演唱就好了(
 ##### 54#       发表于 2014-3-22 15:28
 
 
-
-
 咋一看关口脸以为制作公司换了
-
-
-
-
-
 
 
 -----
 
 ####  SAGA0Arcueid  
 ##### 55#       发表于 2014-3-22 15:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=24855218&amp;ptid=1009008" target="_blank">cowgp01 发表于 2014-3-22 13:48</a>
@@ -987,25 +607,13 @@ op ed让那珂酱演唱就好了(
 于是响爷被吓得又变回来了
 
 
-
-
-
-
-
 -----
 
 ####  BloodWingS  
 ##### 56#       发表于 2014-3-22 15:41
 
 
-
-
 包子脸虽然看着地味，变化其实还是蛮多的，六驱那个画师那才叫千人一面
-
-
-
-
-
 
 
 -----
@@ -1014,16 +622,10 @@ op ed让那珂酱演唱就好了(
 ##### 57#       发表于 2014-3-22 15:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=24855796&amp;ptid=1009008" target="_blank">C.W.Nimitz 发表于 2014-3-22 14:59</a>
 
 都是渣渣，准备感受我们太平洋舰队的触手吧</blockquote>
 期待阁下成为C86舰女人的男主角！！
-
-
-
-
-
 
 
 -----
@@ -1032,16 +634,10 @@ op ed让那珂酱演唱就好了(
 ##### 58#       发表于 2014-3-22 15:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=24855796&amp;ptid=1009008" target="_blank">C.W.Nimitz 发表于 2014-3-22 14:59</a>
 
 都是渣渣，准备感受我们太平洋舰队的触手吧</blockquote>
 愤怒，编辑掉
-
-
-
-
-
 
 
 -----
@@ -1050,14 +646,7 @@ op ed让那珂酱演唱就好了(
 ##### 59#       发表于 2014-3-22 15:45
 
 
-
-
 加贺妹子不错
-
-
-
-
-
 
 
 -----
@@ -1066,14 +655,7 @@ op ed让那珂酱演唱就好了(
 ##### 60#       发表于 2014-3-22 15:49
 
 
-
-
 咦？没岛风吗？
-
-
-
-
-
 
 
 -----
@@ -1082,15 +664,9 @@ op ed让那珂酱演唱就好了(
 ##### 61#       发表于 2014-3-22 15:54
 
 
-
  本帖最后由 D-JoeII 于 2014-3-22 15:56 编辑 
 
 錯帖
-
-
-
-
-
 
 
 -----
@@ -1099,22 +675,13 @@ op ed让那珂酱演唱就好了(
 ##### 62#       发表于 2014-3-22 15:57
 
 
-
-
 看到赤城的时候 我想说"这TM不是XX“ 下巴能杀人. 原画的略婴儿肥呢? 而且还被改的有点垂眼角. <img src="https://static.saraba1st.com/image/smiley/face/178.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  ciokex  
 ##### 63#       发表于 2014-3-22 15:59
-
-
 
 
 这主角完全是另外一个人了<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
@@ -1124,16 +691,10 @@ op ed让那珂酱演唱就好了(
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?null)
 
 
-
-
-
-
-
 -----
 
 ####  SAGA0Arcueid  
 ##### 64#       发表于 2014-3-22 15:59
-
 
 
  本帖最后由 SAGA0Arcueid 于 2014-3-22 16:07 编辑 
@@ -1141,14 +702,7 @@ op ed让那珂酱演唱就好了(
 続いては「どうなる!?　アニメ舰队これくしょん」と题して、ゲストたちがアニメの内容を予想。藤田さん、井口さんともに、まだ详しい内容は知らされていないということで、自分たちの要望を草川监督にぶつけることに。藤田さんは「赤城さんが镇守府をめぐり、海军カレーを食べ比べる珍道中」を提案。提督たちの间でいつの间にか定着してしまった、赤城の大食いキャラを全面に押し出したネタに、草川监督もニッコリ。アニメ本编でも、このアイディアが采用される可能性を匂わせた。一方、井口さんは「加贺がミニバス（ミニバスケットボール）をはじめる」という、某作品のパロディを発表。ギリギリのラインを攻める危険なネタに、草川监督も思わず苦笑いを浮かべた。さらに、司会の上坂さんも事前に用意していたアイディアを披露。その内容はなんと「吹雪第1话で轰沈」!!　この大胆なアイディアには、会场からも「ええーっ!!」という惊きの声が上がった。上坂さんは「一度は轰沈した吹雪が修复され、改造を受けてパワーアップ！」という王道展开、もしくは悪堕ちを期待しているとのこと。草川监督も、その斩新さに戸惑い気味……。
 
 
-
-
 这算不算第一话就使坏了
-
-
-
-
-
 
 
 -----
@@ -1157,14 +711,7 @@ op ed让那珂酱演唱就好了(
 ##### 65#       发表于 2014-3-22 16:03
 
 
-
-
 我要包子脸，这什么破人设！
-
-
-
-
-
 
 
 -----
@@ -1173,16 +720,10 @@ op ed让那珂酱演唱就好了(
 ##### 66#       发表于 2014-3-22 16:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/171.gif" referrerpolicy="no-referrer">
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?null)
-
-
-
-
-
 
 
 -----
@@ -1191,21 +732,13 @@ op ed让那珂酱演唱就好了(
 ##### 67#       发表于 2014-3-22 16:16
 
 
-
-
 这人设怎么看着像量产脸
-
-
-
-
-
 
 
 -----
 
 ####  posthoc  
 ##### 68#       发表于 2014-3-22 16:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=24855876&amp;ptid=1009008" target="_blank">hellgate11 发表于 2014-3-21 23:11</a>
@@ -1216,25 +749,13 @@ op ed让那珂酱演唱就好了(
 其实感觉加贺还好 虽然微妙地有种轻空母的感觉
 
 
-
-
-
-
-
 -----
 
 ####  yugure  
 ##### 69#       发表于 2014-3-22 16:21
 
 
-
-
 所以说动画人设谁啊
-
-
-
-
-
 
 
 -----
@@ -1243,14 +764,7 @@ op ed让那珂酱演唱就好了(
 ##### 70#       发表于 2014-3-22 16:26
 
 
-
-
 脸盲了。。。。要完
-
-
-
-
-
 
 
 -----
@@ -1259,14 +773,7 @@ op ed让那珂酱演唱就好了(
 ##### 71#       发表于 2014-3-22 17:04
 
 
-
-
 我更喜欢包子脸吃货啊<img src="https://static.saraba1st.com/image/smiley/dym/154.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1275,14 +782,7 @@ op ed让那珂酱演唱就好了(
 ##### 72#       发表于 2014-3-22 17:05
 
 
-
-
 风怒 编辑掉
-
-
-
-
-
 
 
 -----
@@ -1291,14 +791,7 @@ op ed让那珂酱演唱就好了(
 ##### 73#       发表于 2014-3-22 17:16
 
 
-
-
 人设满赞啊，期待动画播出后，能收更多的本子<img src="https://static.saraba1st.com/image/smiley/carton/172.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1307,14 +800,7 @@ op ed让那珂酱演唱就好了(
 ##### 74#       发表于 2014-3-22 18:13
 
 
-
-
 嗯。。。真的很像哇咕<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1323,14 +809,7 @@ op ed让那珂酱演唱就好了(
 ##### 75#       发表于 2014-3-22 18:23
 
 
-
-
 感觉比起游戏变幼了点
-
-
-
-
-
 
 
 -----
@@ -1339,17 +818,10 @@ op ed让那珂酱演唱就好了(
 ##### 76#       发表于 2014-3-22 19:56
 
 
-
-
 人设比游戏更骚想干了，但就是有点变味<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
 
 
 ----发送自 [Meizu M356,Android 4.2.1](http://stage1.5j4m.com/?null)
-
-
-
-
-
 
 
 -----
@@ -1358,14 +830,7 @@ op ed让那珂酱演唱就好了(
 ##### 77#       发表于 2014-3-22 20:31
 
 
-
-
 东山文化舰队？
-
-
-
-
-
 
 
 -----
@@ -1374,16 +839,10 @@ op ed让那珂酱演唱就好了(
 ##### 78#       发表于 2014-3-22 20:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=24855876&amp;ptid=1009008" target="_blank">hellgate11 发表于 2014-3-22 15:11</a>
 
 不看发型和舰装的话，你觉得原作里的脸辨识度很高吗？</blockquote>
 游戏人设其实风格是基本一样的，觉得有区别只是因为表情差异，比如有的是歪着头，有的笑有的严肃有的睁大眼睛。。
-
-
-
-
-
 
 
 -----
@@ -1392,16 +851,9 @@ op ed让那珂酱演唱就好了(
 ##### 79#       发表于 2014-3-22 20:46
 
 
-
-
 第一话吹雪就被轰沉？
 
 等等？怎么体现轰沉呢？这是要做日常搞笑剧还是有战争场面？不知道是少女肉搏还是少女指挥真正的船玩战争游戏。。
-
-
-
-
-
 
 
 -----
@@ -1410,22 +862,13 @@ op ed让那珂酱演唱就好了(
 ##### 80#       发表于 2014-3-22 21:02
 
 
-
-
 怎么没LZ？<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  regular  
 ##### 81#       发表于 2014-3-22 21:05
-
-
 
 
 加贺桑好评，另外两个有点微妙，主人公怎样都好，
@@ -1435,24 +878,13 @@ op ed让那珂酱演唱就好了(
 等着看四大金刚再说。
 
 
-
-
-
-
-
 -----
 
 ####  麻倉もも  
 ##### 82#       发表于 2014-3-23 06:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/normal/024.gif" referrerpolicy="no-referrer">来瞻仰年度霸权的人设
-
-
-
-
-
 
 
 -----
@@ -1461,20 +893,13 @@ op ed让那珂酱演唱就好了(
 ##### 83#       发表于 2014-3-23 08:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer">希望动画有ぽいぽい
-
-
-
-
-
 
 
 -----
 
 ####  D-JoeII  
 ##### 84#       发表于 2014-3-24 02:30
-
 
 
  本帖最后由 D-JoeII 于 2014-3-24 07:55 编辑 
@@ -1511,25 +936,13 @@ op ed让那珂酱演唱就好了(
 ＞アニメ展開に合わせてゲームの方でもイベントを開催する予定 
 
 
-
-
-
-
-
 -----
 
 ####  飞翼高达  
 ##### 85#       发表于 2014-3-24 07:52
 
 
-
-
 暴死！暴死！暴死！我要看萝卜娘！
-
-
-
-
-
 
 
 -----
@@ -1538,25 +951,16 @@ op ed让那珂酱演唱就好了(
 ##### 86#       发表于 2014-3-24 08:47
 
 
-
-
 这片没舰队爱抖露还能看吗！
 
 
-
 ——— 来自[Stage1st Reader For iOS](http://itunes.apple.com/us/app/stage1st-reader/id509916119?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  reekilynn  
 ##### 87#       发表于 2014-3-24 09:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=24869767&amp;ptid=1009008" target="_blank">D-JoeII 发表于 2014-3-24 02:30</a>
@@ -1568,16 +972,10 @@ op ed让那珂酱演唱就好了(
 这是故事模式的节奏？我还是先去看四格吧……不敢抱太大期待
 
 
-
-
-
-
-
 -----
 
 ####  croix  
 ##### 88#       发表于 2014-3-24 09:48
-
 
 
  本帖最后由 croix 于 2014-3-24 09:51 编辑 
@@ -1587,16 +985,10 @@ op ed让那珂酱演唱就好了(
 全世界都想知道！！！
 
 
-
-
-
-
-
 -----
 
 ####  eaglet_loki  
 ##### 89#       发表于 2014-3-24 10:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=24856086&amp;ptid=1009008" target="_blank">storm 发表于 2014-3-22 15:41</a>
@@ -1605,25 +997,13 @@ op ed让那珂酱演唱就好了(
 我怎么觉得主角群会是企业大妈的儿子们
 
 
-
-
-
-
-
 -----
 
 ####  hello0607  
 ##### 90#       发表于 2014-3-24 10:14
 
 
-
-
 什么垃圾人设，我不承认啊
-
-
-
-
-
 
 
 -----
@@ -1632,14 +1012,7 @@ op ed让那珂酱演唱就好了(
 ##### 91#       发表于 2014-3-24 10:58
 
 
-
-
 这更像太太不像赤城啊，到底是几月番啊
-
-
-
-
-
 
 
 -----
@@ -1648,25 +1021,16 @@ op ed让那珂酱演唱就好了(
 ##### 92#       发表于 2014-3-24 11:19
 
 
-
-
 感觉这赤城没原来那么能吃了
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?null)
 
 
-
-
-
-
-
 -----
 
 ####  nylonchina1  
 ##### 93#       发表于 2014-3-24 11:35
-
-
 
 
 加贺不是包子脸就行
@@ -1677,25 +1041,14 @@ op ed让那珂酱演唱就好了(
 现在这个不错
 
 
-
-
-
-
-
 -----
 
 ####  nylonchina1  
 ##### 94#       发表于 2014-3-24 12:02
 
 
-
 <blockquote>alitonx 发表于 2014-3-22 11:47  那么谁来拍，不是水岛努？</blockquote>
 花田大老师
-
-
-
-
-
 
 
 -----
@@ -1704,21 +1057,13 @@ op ed让那珂酱演唱就好了(
 ##### 95#       发表于 2014-3-24 12:04
 
 
-
-
 哪个公司制作？
-
-
-
-
-
 
 
 -----
 
 ####  nylonchina1  
 ##### 96#       发表于 2014-3-24 12:08
-
 
 
 <blockquote>？？？？？ 发表于 2014-3-22 14:13  游戏里的一航战画得太惨了，动画好评</blockquote>
@@ -1728,32 +1073,19 @@ op ed让那珂酱演唱就好了(
 现在改成正常脸……没有那种憨厚的感觉了
 
 
-
-
-
-
-
 -----
 
 ####  坂御美琴  
 ##### 97#       发表于 2014-3-24 12:10
 
 
-
-
 浓浓的PA脸<img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  nylonchina1  
 ##### 98#       发表于 2014-3-24 12:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=24872711&amp;ptid=1009008" target="_blank">坂御美琴 发表于 2014-3-24 12:10</a>
@@ -1765,16 +1097,10 @@ pa脸+1
 但pa应该不接这个活吧
 
 
-
-
-
-
-
 -----
 
 ####  坂御美琴  
 ##### 99#       发表于 2014-3-24 12:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=24872852&amp;ptid=1009008" target="_blank">nylonchina1 发表于 2014-3-24 12:24</a>
@@ -1789,16 +1115,10 @@ pa脸+1
 吓死我我以为人设又是关口可奈妹呢<img src="https://static.saraba1st.com/image/smiley/normal/037.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ？？？？？  
 ##### 100#       发表于 2014-3-24 12:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=24872691&amp;ptid=1009008" target="_blank">nylonchina1 发表于 2014-3-24 12:08</a>
@@ -1810,16 +1130,10 @@ pa脸+1
 把游戏里你的立绘换掉一看，简直骚想干<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  nylonchina1  
 ##### 101#       发表于 2014-3-24 13:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=24873214&amp;ptid=1009008" target="_blank">？？？？？ 发表于 2014-3-24 12:57</a>
@@ -1834,16 +1148,10 @@ pa脸+1
 现在的这个人设把加贺认真的个性体现出来了，而且大腿真棒，能看到黑丝的勒痕
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 102#       发表于 2014-3-24 17:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=24872656&amp;ptid=1009008" target="_blank">nylonchina1 发表于 2014-3-24 12:04</a>
@@ -1852,16 +1160,10 @@ pa脸+1
 [http://ja.wikipedia.org/wiki/%E3 ... 7%E3%82%A3%E3%82%A2](http://ja.wikipedia.org/wiki/%E3%83%87%E3%82%A3%E3%82%AA%E3%83%A1%E3%83%87%E3%82%A3%E3%82%A2)
 
 
-
-
-
-
-
 -----
 
 ####  kuhailangzi  
 ##### 103#       发表于 2014-4-2 20:27
-
 
 
  本帖最后由 kuhailangzi 于 2014-4-2 20:29 编辑 
@@ -1869,14 +1171,8 @@ pa脸+1
 看到这两张图笑死了..
 
 
-
-
-
-
 234439bxxibx0g3gbbqxox.jpg
 (50.07 KB, 下载次数: 34)
-
-
 
 
 下载附件
@@ -1885,28 +1181,13 @@ pa脸+1
 2014-4-2 20:25 上传
 
 
-
-
-
-
-
-
 先是有人吊打动画版人设
 
 <img src="http://img.saraba1st.com/forum/201404/02/202537dls7zszpa6cs632l.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
 23451872yz7b261b7rtygb.jpg
 (15.04 KB, 下载次数: 23)
-
-
 
 
 下载附件
@@ -1915,25 +1196,9 @@ pa脸+1
 2014-4-2 20:26 上传
 
 
-
-
-
-
-
-
 然后有人回了他一张
 
 <img src="http://img.saraba1st.com/forum/201404/02/202642r7oydmd755zmjnjj.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -1942,14 +1207,7 @@ pa脸+1
 ##### 104#       发表于 2014-4-2 21:32
 
 
-
-
 这人设..三癞子么？    加贺感觉没骚气了
-
-
-
-
-
 
 
 -----
@@ -1958,14 +1216,8 @@ pa脸+1
 ##### 105#         楼主| 发表于 2014-6-27 14:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
 <img src="http://ww2.sinaimg.cn/large/eccb88edgw1ehsmw35zbmj20m80gon1u.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1974,14 +1226,7 @@ pa脸+1
 ##### 106#       发表于 2014-6-27 14:06
 
 
-
-
 岛风我觉得还是很骚啊
-
-
-
-
-
 
 
 -----
@@ -1990,16 +1235,10 @@ pa脸+1
 ##### 107#       发表于 2014-6-27 14:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/animal/142.gif" referrerpolicy="no-referrer">
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.14)
-
-
-
-
-
 
 
 -----
@@ -2008,14 +1247,7 @@ pa脸+1
 ##### 108#       发表于 2014-6-27 14:18
 
 
-
-
 事实证明只有包子脸不好画。。
-
-
-
-
-
 
 
 -----
@@ -2024,15 +1256,8 @@ pa脸+1
 ##### 109#       发表于 2014-6-27 14:21
 
 
-
-
 大概就是海猫原作游戏和动画之间的感觉吧   一航战都很漂亮呀 当然原作看着也很顺眼了  加贺老师侧马尾赞 
 麻痹 谁来爆我黑历史 劳资就群里弄死他
-
-
-
-
-
 
 
 -----
@@ -2041,14 +1266,7 @@ pa脸+1
 ##### 110#       发表于 2014-6-27 14:37
 
 
-
-
 岛风够sao
-
-
-
-
-
 
 
 -----
@@ -2057,14 +1275,7 @@ pa脸+1
 ##### 111#       发表于 2014-6-27 14:49
 
 
-
-
 舰队的偶像在哪里？
-
-
-
-
-
 
 
 -----
@@ -2073,14 +1284,7 @@ pa脸+1
 ##### 112#       发表于 2014-6-27 14:49
 
 
-
-
 会有rj吗？我要看众人裱rj
-
-
-
-
-
 
 
 -----
@@ -2089,19 +1293,12 @@ pa脸+1
 ##### 113#       发表于 2014-6-27 14:50
 
 
-
 <blockquote>多多天下 发表于 2014-6-27 14:49
 舰队的偶像在哪里？</blockquote>
 一出场就一堆2411的弹幕吗…………
 
 
-
 话说会不会有改二的出来？
-
-
-
-
-
 
 
 -----
@@ -2110,15 +1307,8 @@ pa脸+1
 ##### 114#       发表于 2014-6-27 14:53
 
 
-
-
 所以说包子脸是业（舰）界毒瘤，你看几个包子脸改二全部吧包子脸换掉了
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">有岛风了，那么会有天津风和祥瑞吗？
-
-
-
-
-
 
 
 -----
@@ -2127,14 +1317,8 @@ pa脸+1
 ##### 115#       发表于 2014-6-27 14:56
 
 
-
 <blockquote>9616777 发表于 2014-6-27 14:50 一出场就一堆2411的弹幕吗………… </blockquote>
 。比如那珂酱改二唱OP，ED时，川内改二神通改二探照灯负责舞台灯光，照明弹负责焰火
-
-
-
-
-
 
 
 -----
@@ -2143,16 +1327,9 @@ pa脸+1
 ##### 116#       发表于 2014-6-27 15:00
 
 
-
-
 再次
 
 东山舰队在哪里，全世界都想知道
-
-
-
-
-
 
 
 -----
@@ -2161,18 +1338,10 @@ pa脸+1
 ##### 117#       发表于 2014-6-27 15:03
 
 
-
-
 那个连装炮酱.................
 
 
-
 一脸愉悦的样子
-
-
-
-
-
 
 
 -----
@@ -2181,17 +1350,10 @@ pa脸+1
 ##### 118#       发表于 2014-6-27 15:19
 
 
-
-
 我想看电
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.14)
-
-
-
-
-
 
 
 -----
@@ -2200,14 +1362,7 @@ pa脸+1
 ##### 119#       发表于 2014-6-27 15:31
 
 
-
-
 一般萌豚脸，没特色
-
-
-
-
-
 
 
 -----
@@ -2216,14 +1371,7 @@ pa脸+1
 ##### 120#       发表于 2014-6-27 15:43
 
 
-
-
 佐仓大法好！
-
-
-
-
-
 
 
 -----
@@ -2232,16 +1380,9 @@ pa脸+1
 ##### 121#       发表于 2014-6-27 15:53
 
 
-
-
 这岛风。。。湖南江西啊。。<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
 
 求出能登大凤
-
-
-
-
-
 
 
 -----
@@ -2250,14 +1391,7 @@ pa脸+1
 ##### 122#       发表于 2014-6-27 15:55
 
 
-
-
 快给我来几个雷压压惊
-
-
-
-
-
 
 
 -----
@@ -2266,14 +1400,7 @@ pa脸+1
 ##### 123#       发表于 2014-6-27 16:02
 
 
-
-
 楼主呢<img src="https://static.saraba1st.com/image/smiley/nq/002.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2282,14 +1409,7 @@ pa脸+1
 ##### 124#       发表于 2014-6-27 16:06
 
 
-
-
 不是包子脸的吃货 加贺简直不能看，这画风真卜喜
-
-
-
-
-
 
 
 -----
@@ -2298,13 +1418,7 @@ pa脸+1
 ##### 125#       发表于 2014-6-27 16:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">啥时候才公布撑伞大姐姐还有四傻的人设啦
-
-
-
-
-
 
 
 -----
@@ -2313,14 +1427,7 @@ pa脸+1
 ##### 126#       发表于 2014-6-27 16:11
 
 
-
-
 楼主的屁股<img src="https://static.saraba1st.com/image/smiley/dym/148.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2329,22 +1436,15 @@ pa脸+1
 ##### 127#       发表于 2014-6-27 18:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/13.gif" referrerpolicy="no-referrer">虽然说量产脸了 不过还是觉得楼主好萌 小学生的话祥瑞和六驱估计是必出的 
 
 你说天津风？所谓骚想干人设也被小仓唯声音拉低好感度 出不出无所谓啦 反正还有更想干的大姐姐们在呢
-
-
-
-
-
 
 
 -----
 
 ####  枫紫  
 ##### 128#       发表于 2014-6-27 18:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=25882176&amp;ptid=1009008" target="_blank">gearbox 发表于 2014-6-27 14:53</a>
@@ -2355,25 +1455,13 @@ pa脸+1
 换包子脸的结果就是全员变黑妹
 
 
-
-
-
-
-
 -----
 
 ####  傅潇逍  
 ##### 129#       发表于 2014-6-27 18:58
 
 
-
-
 虽然刚玩了不到一周舰娘，但我仍要说动画版这加贺没神韵
-
-
-
-
-
 
 
 -----
@@ -2382,14 +1470,7 @@ pa脸+1
 ##### 130#       发表于 2014-6-27 19:16
 
 
-
-
 东山在哪里
-
-
-
-
-
 
 
 -----
@@ -2398,13 +1479,7 @@ pa脸+1
 ##### 131#       发表于 2014-6-27 19:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">那个一脸爽歪歪的连装炮是怎么回事..
-
-
-
-
-
 
 
 -----
@@ -2413,16 +1488,10 @@ pa脸+1
 ##### 132#       发表于 2014-6-27 19:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=25885093&amp;ptid=1009008" target="_blank">傅潇逍 发表于 2014-6-27 18:58</a>
 
 虽然刚玩了不到一周舰娘，但我仍要说动画版这加贺没神韵</blockquote>
 包子脸航母比较有味道
-
-
-
-
-
 
 
 -----
@@ -2431,16 +1500,10 @@ pa脸+1
 ##### 133#       发表于 2014-6-27 21:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=25882208&amp;ptid=1009008" target="_blank">zechins 发表于 2014-6-27 14:56</a>
 
 。比如那珂酱改二唱OP，ED时，川内改二神通改二探照灯负责舞台灯光，照明弹负责焰火 ...</blockquote>
 然后对面开幕空袭和开幕雷击都打在偶像身上吗
-
-
-
-
-
 
 
 -----
@@ -2449,14 +1512,7 @@ pa脸+1
 ##### 134#       发表于 2014-6-27 22:13
 
 
-
-
 包子脸就像龙骑士07 ，会中毒<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2465,14 +1521,7 @@ pa脸+1
 ##### 135#       发表于 2014-6-27 23:07
 
 
-
-
 还我包子脸啊！！
-
-
-
-
-
 
 
 -----
@@ -2481,14 +1530,7 @@ pa脸+1
 ##### 136#       发表于 2014-6-28 00:28
 
 
-
-
 连装炮酱被摸爽了吧<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2497,24 +1539,16 @@ pa脸+1
 ##### 137#       发表于 2014-6-28 01:33
 
 
-
-
 没有太太必须差评<img src="https://static.saraba1st.com/image/smiley/normal/027.gif" referrerpolicy="no-referrer">
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.14)
 
 
-
-
-
-
-
 -----
 
 ####  warlock228  
 ##### 138#       发表于 2014-7-8 13:42
-
 
 
 <img src="http://image16.poco.cn/mypoco/myphoto/20140708/13/5876154720140708133816051.jpg?392x581_120" id="aimg_v6Ktk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
@@ -2524,16 +1558,10 @@ pa脸+1
 最近沉迷矢矧失身不能自拔
 
 
-
-
-
-
-
 -----
 
 ####  夜宵  
 ##### 139#       发表于 2014-7-8 13:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26002884&amp;ptid=1009008" target="_blank">warlock228 发表于 2014-7-8 13:42</a>
@@ -2544,16 +1572,10 @@ pa脸+1
 撑伞的大姐姐我来帮你提袜子
 
 
-
-
-
-
-
 -----
 
 ####  王师  
 ##### 140#       发表于 2014-7-8 14:00
-
 
 
 <img src="http://pic.yupoo.com/meijunwangshi/DTe6p8sJ/iyCY1.jpg" referrerpolicy="no-referrer">
@@ -2562,32 +1584,19 @@ pa脸+1
 美如画！要是大和改就更好看了
 
 
-
-
-
-
-
 -----
 
 ####  多多天下  
 ##### 141#       发表于 2014-7-8 15:22
 
 
-
-
 大姐姐的伞的比例真心没问题吗
-
-
-
-
-
 
 
 -----
 
 ####  warlock228  
 ##### 142#       发表于 2014-7-8 18:46
-
 
 
  本帖最后由 warlock228 于 2014-7-8 18:56 编辑 
@@ -2597,17 +1606,10 @@ pa脸+1
 <img src="http://image227.poco.cn/mypoco/myphoto/20140708/18/5876154720140708184310040.png?793x1024_120" id="aimg_vuPUd" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="http://image227.poco.cn/mypoco/myphoto/20140708/18/5876154720140708185549095.png?238x292_130" id="aimg_y0hwz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
-
-
-
-
-
-
 -----
 
 ####  多多天下  
 ##### 143#       发表于 2014-7-8 18:56
-
 
 
 <blockquote>warlock228 发表于 2014-7-8 18:46
@@ -2615,16 +1617,10 @@ pa脸+1
 看来是我暴露自己是个非提了
 
 
-
-
-
-
-
 -----
 
 ####  warlock228  
 ##### 144#       发表于 2014-7-8 19:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26005697&amp;ptid=1009008" target="_blank">多多天下 发表于 2014-7-8 18:56</a>
@@ -2635,26 +1631,15 @@ pa脸+1
 准备抱着一堆东山级过一辈子了
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 145#       发表于 2014-7-8 19:07
 
 
-
 <img src="http://ww1.sinaimg.cn/bmiddle/e4beb8aegw1ei5lepmch4j20go0m8whv.jpg" referrerpolicy="no-referrer">
 
 动画版金刚人设，还是改二的
-
-
-
-
-
 
 
 -----
@@ -2663,14 +1648,7 @@ pa脸+1
 ##### 146#       发表于 2014-7-8 19:08
 
 
-
-
 伞面和原案比，好象是小了一些，原案的伞面直径接近两个人物头部的高度了
-
-
-
-
-
 
 
 -----
@@ -2679,16 +1657,9 @@ pa脸+1
 ##### 147#       发表于 2014-7-8 19:09
 
 
-
-
 不够傻，差评
 
 不过就改二来说比游戏好
-
-
-
-
-
 
 
 -----
@@ -2697,14 +1668,7 @@ pa脸+1
 ##### 148#       发表于 2014-7-8 19:09
 
 
-
-
 卧槽，东山舰队发现！
-
-
-
-
-
 
 
 -----
@@ -2713,16 +1677,9 @@ pa脸+1
 ##### 149#       发表于 2014-7-8 19:11
 
 
-
-
 为什么会有大和！！！！！！！！
 
 你们要这样伤害部落的兄弟吗！！！！！！！！！！！！！！！！！
-
-
-
-
-
 
 
 -----
@@ -2731,14 +1688,7 @@ pa脸+1
 ##### 150#       发表于 2014-7-8 19:13
 
 
-
-
 所以说到底是泡面番还是什么- -
-
-
-
-
-
 
 
 -----
@@ -2747,14 +1697,7 @@ pa脸+1
 ##### 151#       发表于 2014-7-8 19:14
 
 
-
-
 怎么看出来是改二的？
-
-
-
-
-
 
 
 -----
@@ -2763,21 +1706,13 @@ pa脸+1
 ##### 152#       发表于 2014-7-8 19:16
 
 
-
-
 头上两侧的电探……
-
-
-
-
-
 
 
 -----
 
 ####  Inle  
 ##### 153#       发表于 2014-7-8 19:17
-
 
 
 <blockquote><a href="httphttp://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26005862&amp;ptid=1009008" target="_blank">傅潇逍 发表于 2014-7-8 19:14</a>
@@ -2787,25 +1722,13 @@ pa脸+1
 背后的舣装和电探
 
 
-
-
-
-
-
 -----
 
 ####  kadija  
 ##### 154#       发表于 2014-7-8 19:27
 
 
-
-
 那小天使是改二人设吗……（会有小天使吗……
-
-
-
-
-
 
 
 -----
@@ -2814,16 +1737,10 @@ pa脸+1
 ##### 155#       发表于 2014-7-8 19:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26005987&amp;ptid=1009008" target="_blank">kadija 发表于 2014-7-8 19:27</a>
 
 那小天使是改二人设吗……（会有小天使吗……</blockquote>
 请务必等小天使二改后再出人设 小天使当然有了  不过出场率很高的伊势姐妹还没出人设...
-
-
-
-
-
 
 
 -----
@@ -2832,14 +1749,7 @@ pa脸+1
 ##### 156#       发表于 2014-7-8 19:32
 
 
-
-
 RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2848,14 +1758,7 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 157#       发表于 2014-7-8 20:15
 
 
-
-
 期待小穴生舰队出场
-
-
-
-
-
 
 
 -----
@@ -2864,20 +1767,13 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 158#       发表于 2014-7-28 19:14
 
 
-
 <img src="http://ww2.sinaimg.cn/large/eccb88edgw1eisq46vjpij20go0m8q94.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  nylonchina1  
 ##### 159#       发表于 2014-7-28 19:23
-
 
 
  本帖最后由 nylonchina1 于 2014-7-28 19:31 编辑 
@@ -2887,16 +1783,10 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 村雨很像缪雪儿呢
 
 
-
-
-
-
-
 -----
 
 ####  FCS-31  
 ##### 160#       发表于 2014-7-28 19:36
-
 
 
  本帖最后由 FCS-31 于 2014-7-28 19:41 编辑 
@@ -2909,25 +1799,13 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 <[img src="http://t.williamgates.net/image-3998_53D6363D.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  死字怎么写  
 ##### 161#       发表于 2014-7-28 19:39
 
 
-
-
 夕立的官配不是祥瑞二号吗
-
-
-
-
-
 
 
 -----
@@ -2936,14 +1814,7 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 162#       发表于 2014-7-28 20:08
 
 
-
-
 扶桑姐姐呢...
-
-
-
-
-
 
 
 -----
@@ -2952,21 +1823,14 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 163#       发表于 2014-7-28 20:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=25881639&amp;ptid=1009008" target="_blank">岛风 发表于 2014-6-27 14:05</a></blockquote>
 岛风一出来就肉片节奏了
-
-
-
-
-
 
 
 -----
 
 ####  nylonchina1  
 ##### 164#       发表于 2014-7-28 20:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26217471&amp;ptid=1009008" target="_blank">cs0111 发表于 2014-7-28 20:19</a>
@@ -2978,25 +1842,13 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 本来大家都穿着衣服还能好好讲个故事，出来个痴女，讲个毛线，撸吧
 
 
-
-
-
-
-
 -----
 
 ####  Inle  
 ##### 165#       发表于 2014-7-28 20:55
 
 
-
-
 我以前一直脑补夕立把头上绳子一扯就会人格转换变狂犬
-
-
-
-
-
 
 
 -----
@@ -3005,13 +1857,7 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 166#       发表于 2014-7-28 21:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">不是改二差评  还怎么玩所罗门老娘回来了的梗！
-
-
-
-
-
 
 
 -----
@@ -3020,15 +1866,9 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 167#       发表于 2014-8-3 20:19
 
 
-
  本帖最后由 zechins 于 2014-8-3 20:21 编辑 
 
 <img src="http://ww1.sinaimg.cn/large/87c7e3b3gw1eizpqp1j4zj212w12ctjm.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3037,24 +1877,16 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 168#       发表于 2014-8-3 20:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26250971&amp;ptid=1009008" target="_blank">zechins 发表于 2014-8-3 20:19</a></blockquote>
 第一眼把吹雪看成了最上
 
 是不是没救了
 
 
-
-
-
-
-
 -----
 
 ####  osore  
 ##### 169#       发表于 2014-8-3 20:28
-
-
 
 
 打伞的大姐姐你玩什么shaft角度啊
@@ -3064,16 +1896,10 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 主角旁边那个是睦月？头上那玩意儿没了差点认不出来
 
 
-
-
-
-
-
 -----
 
 ####  yanbo8502  
 ##### 170#       发表于 2014-8-3 21:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26216968&amp;ptid=1009008" target="_blank">ギャラ子 发表于 2014-7-28 19:14</a></blockquote>
@@ -3083,32 +1909,19 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 顺便二改后的四傻都变幼齿了，胸都没了，小天使人设用哪个无所谓，但胸不能和改二一样缩水
 
 
-
-
-
-
-
 -----
 
 ####  yanbo8502  
 ##### 171#       发表于 2014-8-3 21:11
 
 
-
-
 部分舰娘改二后变化过大，为了平衡观众的喜好，我觉得可以让改二在动画里作为“变身”特技出现啊。
-
-
-
-
-
 
 
 -----
 
 ####  zechins  
 ##### 172#       发表于 2014-8-28 18:50
-
 
 
  本帖最后由 zechins 于 2014-8-28 18:57 编辑 
@@ -3118,31 +1931,19 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ↓ <img src="http://ww4.sinaimg.cn/large/87c7e3b3jw1ejsjjeejurj20zk0k0mz1.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  warlock228  
 ##### 173#       发表于 2014-8-28 20:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/13.gif" referrerpolicy="no-referrer">六驱prpr 雷电重巡何在
-
-
-
-
-
 
 
 -----
 
 ####  sagajytc  
 ##### 174#       发表于 2014-8-28 20:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26462138&amp;ptid=1009008" target="_blank">zechins 发表于 2014-8-28 18:50</a>
@@ -3156,27 +1957,15 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 不，一百杯！
 
 
-
-
-
-
-
 -----
 
 ####  ghostinnet  
 ##### 175#       发表于 2014-8-28 20:26
 
 
-
-
 来来来，我的鱼雷已经准备好了<img src="https://static.saraba1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer">
 
 要等到明年去了，可惜了神战中那么多本子还不能看..........<img src="https://static.saraba1st.com/image/smiley/face/01.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3185,13 +1974,7 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 176#       发表于 2014-8-31 20:10
 
 
-
 <img src="http://i.pixs.ru/storage/1/5/5/7bwsKTkPoh_4399695_13288155.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3200,15 +1983,9 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 177#       发表于 2014-9-5 16:08
 
 
-
 <img src="http://ww1.sinaimg.cn/bmiddle/e4beb8aegw1ek1m97ou52j20go0m8n0x.jpg" referrerpolicy="no-referrer">
 
 陆奥
-
-
-
-
-
 
 
 -----
@@ -3217,23 +1994,15 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 178#       发表于 2014-9-5 16:16
 
 
-
-
 啊啦啊啦够骚 棒棒棒 佐仓大法要开无双了
 
 ——— 来自[Stage1st Reader For iOS](http://itunes.apple.com/us/app/stage1st-reader/id509916119?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  nylonchina1  
 ##### 179#       发表于 2014-9-5 16:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26462138&amp;ptid=1009008" target="_blank">zechins 发表于 2014-8-28 18:50</a>
@@ -3245,16 +2014,10 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 在晓的水平线上刻下胜利
 
 
-
-
-
-
-
 -----
 
 ####  nylonchina1  
 ##### 180#       发表于 2014-9-5 16:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26536133&amp;ptid=1009008" target="_blank">reekilynn 发表于 2014-9-5 16:08</a>
@@ -3263,24 +2026,13 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 这肉奥，sxg！
 
 
-
-
-
-
-
 -----
 
 ####  萨尤克  
 ##### 181#       发表于 2014-9-5 16:32
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">むっちゃん骚爆了
-
-
-
-
-
 
 
 -----
@@ -3289,14 +2041,7 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 182#       发表于 2014-9-5 16:52
 
 
-
-
 感觉这人设不错，可以期待
-
-
-
-
-
 
 
 -----
@@ -3305,13 +2050,7 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 183#       发表于 2014-9-5 19:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">卧槽，这肉奥简直……
-
-
-
-
-
 
 
 -----
@@ -3320,15 +2059,9 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 184#       发表于 2014-9-11 10:48
 
 
-
 <img src="http://image16.poco.cn/mypoco/myphoto/20140911/10/5876154720140911104096.jpg?580x773_120" id="aimg_Z5S7n" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 雷和电出来几天了没人贴啊.....
-
-
-
-
-
 
 
 -----
@@ -3337,15 +2070,8 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 185#       发表于 2014-9-20 10:25
 
 
-
-
 愛宕
 <img src="http://ww3.sinaimg.cn/large/eccb88edgw1ekiqabf0qij20lc0sgac6.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3354,14 +2080,7 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 186#       发表于 2014-9-20 10:29
 
 
-
-
 东山势力决战机体<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3370,24 +2089,15 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 187#       发表于 2014-9-20 10:39
 
 
-
-
 爱宕胸不够大，要求退货ˊ_&gt;ˋ
 
 ——— 来自[Stage1st Reader For iOS](http://itunes.apple.com/us/app/stage1st-reader/id509916119?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  女人开车  
 ##### 188#       发表于 2014-9-20 11:07
-
-
 
 
 东山准备一个人配几个？
@@ -3399,16 +2109,10 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 广播剧不是也有A声优在动画里被换成B声优的事么
 
 
-
-
-
-
-
 -----
 
 ####  lancerhd  
 ##### 189#       发表于 2014-9-20 14:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26680292&amp;ptid=1009008" target="_blank">女人开车 发表于 2014-9-20 11:07</a>
@@ -3420,25 +2124,13 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 东山在广播剧里就是一人八役了
 
 
-
-
-
-
-
 -----
 
 ####  sagajytc  
 ##### 190#       发表于 2014-9-20 14:39
 
 
-
-
 都说是东山级了 你把金刚四姐妹不让东山配肯定我等舰狗不买账
-
-
-
-
-
 
 
 -----
@@ -3447,15 +2139,8 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 191#       发表于 2014-9-24 18:32
 
 
-
-
 北上、大井
 <img src="http://ww4.sinaimg.cn/large/eccb88edgw1eknqjj3ogzj20mq0zkgqc.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3464,16 +2149,10 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 192#       发表于 2014-9-24 18:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26726347&amp;ptid=1009008" target="_blank">ギャラ子 发表于 2014-9-24 18:32</a>
 
 北上、大井</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">游戏换这人设多好………………
-
-
-
-
-
 
 
 -----
@@ -3482,21 +2161,13 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 193#       发表于 2014-9-24 18:51
 
 
-
-
 大井这一脸ガチレズ感<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  萌即正义  
 ##### 194#       发表于 2014-9-24 19:17
-
 
 
  本帖最后由 萌即正义 于 2014-9-24 19:20 编辑 
@@ -3507,25 +2178,13 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 游戏里包子脸看不出来
 
 
-
-
-
-
-
 -----
 
 ####  女人开车  
 ##### 195#       发表于 2014-9-25 00:11
 
 
-
-
 大井好棒好棒的！
-
-
-
-
-
 
 
 -----
@@ -3534,15 +2193,8 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 196#       发表于 2014-9-27 18:26
 
 
-
-
 大淀
 <img src="http://ww3.sinaimg.cn/large/eccb88edgw1ekr7jqmhl5j206x0crmy1.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3551,16 +2203,9 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 197#       发表于 2014-9-27 18:45
 
 
-
-
 大淀感觉年轻了十岁
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (NOKIA Lumia 920)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
@@ -3569,16 +2214,10 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 198#       发表于 2014-9-27 23:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26757789&amp;ptid=1009008" target="_blank">ギャラ子 发表于 2014-9-27 18:26</a>
 
 大淀</blockquote>
 黑化的学生会眼镜娘
-
-
-
-
-
 
 
 -----
@@ -3587,16 +2226,9 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 199#       发表于 2014-9-28 00:02
 
 
-
-
 还是游戏里的大淀改立绘好
 
 解体拳
-
-
-
-
-
 
 
 -----
@@ -3605,14 +2237,7 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 200#       发表于 2014-9-28 00:38
 
 
-
-
 每天拆2条船
-
-
-
-
-
 
 
 -----
@@ -3621,14 +2246,7 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 201#       发表于 2014-9-28 00:58
 
 
-
-
 大淀变幼了
-
-
-
-
-
 
 
 -----
@@ -3642,24 +2260,13 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 <img src="http://acgspace.wsfun.com/kancolle/src/1412676869471.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  warlock228  
 ##### 203#       发表于 2014-10-10 06:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">大傻改二二傻不改二这是什么路数
-
-
-
-
-
 
 
 -----
@@ -3668,21 +2275,14 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 204#       发表于 2014-10-10 07:00
 
 
-
 <img src="https://i.imgur.com/XMDmFP5.jpg" referrerpolicy="no-referrer">
 <img src="https://static.saraba1st.com/image/smiley/face/84.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  女人开车  
 ##### 205#       发表于 2014-10-10 10:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26873067&amp;ptid=1009008" target="_blank">warlock228 发表于 2014-10-10 06:26</a>
@@ -3694,25 +2294,14 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 改二之后大家都<img src="https://static.saraba1st.com/image/smiley/nq/015.gif" referrerpolicy="no-referrer">了
 
 
-
-
-
-
-
 -----
 
 ####  jy1986  
 ##### 206#       发表于 2014-10-10 11:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26873134&amp;ptid=1009008" target="_blank">村雨零 发表于 2014-10-10 07:00</a></blockquote>
 什么意思，看不懂
-
-
-
-
-
 
 
 -----
@@ -3721,16 +2310,10 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 207#       发表于 2014-10-10 11:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26588088&amp;ptid=1009008" target="_blank">warlock228 发表于 2014-9-11 10:48</a>
 
 雷和电出来几天了没人贴啊.....</blockquote>
 看不到图？
-
-
-
-
-
 
 
 -----
@@ -3739,16 +2322,10 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 208#       发表于 2014-10-10 12:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26875082&amp;ptid=1009008" target="_blank">jy1986 发表于 2014-10-10 11:06</a>
 
 什么意思，看不懂</blockquote>
 目前流传着改造后一半胸会变大的玄学  典型案例五十铃                
-
-
-
-
-
 
 
 -----
@@ -3757,16 +2334,10 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 209#       发表于 2014-10-10 12:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26875082&amp;ptid=1009008" target="_blank">jy1986 发表于 2014-10-10 11:06</a>
 
 什么意思，看不懂</blockquote>
 目前流传着改造后胸会变大的玄学  典型案例五十铃                
-
-
-
-
-
 
 
 -----
@@ -3775,23 +2346,16 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 ##### 210#       发表于 2014-10-10 12:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26875906&amp;ptid=1009008" target="_blank">lancerhd 发表于 2014-10-10 12:18</a>
 
 目前流传着改造后胸会变大的玄学  典型案例五十铃</blockquote>
 那应该是捂住上面啊，怎么会是遮住下面呢
 
 
-
-
-
-
-
 -----
 
 ####  warlock228  
 ##### 211#       发表于 2014-10-10 12:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26875659&amp;ptid=1009008" target="_blank">lxlyandccc 发表于 2014-10-10 11:54</a>
@@ -3802,16 +2366,10 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 之前的发图系统好像有点问题?嘛反正这楼里好像没人贴雷和电的,再贴一次
 
 
-
-
-
-
-
 -----
 
 ####  loll  
 ##### 212#       发表于 2014-10-10 12:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26875926&amp;ptid=1009008" target="_blank">jy1986 发表于 2014-10-10 12:19</a>
@@ -3820,17 +2378,10 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 <img src="https://static.saraba1st.com/image/smiley/nq/016.gif" referrerpolicy="no-referrer">比睿纯爷们啊，当然要捂下面
 
 
-
-
-
-
-
 -----
 
 ####  superbigd  
 ##### 213#       发表于 2014-10-10 13:21
-
-
 
 
 小学生们简直棒
@@ -3841,16 +2392,10 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 人设是个控小学生的M提吧!
 
 
-
-
-
-
-
 -----
 
 ####  jy1986  
 ##### 214#       发表于 2014-10-10 13:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26876217&amp;ptid=1009008" target="_blank">loll 发表于 2014-10-10 12:47</a>
@@ -3859,16 +2404,10 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 - -遮下面，难道是有小JJ？
 
 
-
-
-
-
-
 -----
 
 ####  村雨零  
 ##### 215#       发表于 2014-10-10 16:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26875082&amp;ptid=1009008" target="_blank">jy1986 发表于 2014-10-10 04:06</a>
@@ -3882,32 +2421,19 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 <img src="https://static.saraba1st.com/image/smiley/face/84.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  灼眼艾莉亚  
 ##### 216#       发表于 2014-10-10 16:39
 
 
-
-
 动画版出现初春之时，就是你舰大暴死之日！<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  jy1986  
 ##### 217#       发表于 2014-10-10 17:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26878940&amp;ptid=1009008" target="_blank">村雨零 发表于 2014-10-10 16:37</a>
@@ -3919,24 +2445,13 @@ RJ请务必是二改形态，小学生最棒了<img src="https://static.saraba1s
 RY是啥了？老是不记得某些词的缩写
 
 
-
-
-
-
-
 -----
 
 ####  村雨零  
 ##### 218#       发表于 2014-10-30 17:59
 
 
-
 <img src="http://acgspace.wsfun.com/kancolle/src/1414551750030.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3945,13 +2460,7 @@ RY是啥了？老是不记得某些词的缩写
 ##### 219#       发表于 2014-10-30 18:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/167.gif" referrerpolicy="no-referrer">楼主连主视觉图都没上去 惨
-
-
-
-
-
 
 
 -----
@@ -3960,16 +2469,10 @@ RY是啥了？老是不记得某些词的缩写
 ##### 220#       发表于 2014-11-1 01:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=26876163&amp;ptid=1009008" target="_blank">warlock228 发表于 2014-10-10 12:41</a>
 
 之前的发图系统好像有点问题?嘛反正这楼里好像没人贴雷和电的,再贴一次 ...</blockquote>
 小学生好棒好棒的
-
-
-
-
-
 
 
 -----
@@ -3978,13 +2481,7 @@ RY是啥了？老是不记得某些词的缩写
 ##### 221#       发表于 2014-11-6 20:39
 
 
-
 <img src="http://acgspace.wsfun.com/kancolle/src/1415270434984.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3993,13 +2490,7 @@ RY是啥了？老是不记得某些词的缩写
 ##### 222#       发表于 2014-11-6 20:43
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">吃撑这表情又没吃饱  给点干劲啊
-
-
-
-
-
 
 
 -----
@@ -4008,14 +2499,7 @@ RY是啥了？老是不记得某些词的缩写
 ##### 223#       发表于 2014-11-6 21:05
 
 
-
-
 怎么有种加贺老师是本作男主角的感觉
-
-
-
-
-
 
 
 -----
@@ -4024,14 +2508,7 @@ RY是啥了？老是不记得某些词的缩写
 ##### 224#       发表于 2014-11-6 22:06
 
 
-
-
 吹吹好棒好棒的
-
-
-
-
-
 
 
 -----
@@ -4040,13 +2517,7 @@ RY是啥了？老是不记得某些词的缩写
 ##### 225#       发表于 2014-11-12 18:16
 
 
-
 <img src="https://files.yande.re/image/991ada64fccf67eca62a4bb190eb056a/yande.re%20303356%20anthropomorphization%20fubuki_%28kancolle%29%20kantai_collection%20kongou_%28kancolle%29%20thighhighs.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4055,16 +2526,9 @@ RY是啥了？老是不记得某些词的缩写
 ##### 226#       发表于 2014-12-5 20:06
 
 
-
-
 动画「艦隊これくしょん -艦これ-」番宣CM。OP：「海色（みいろ）」 AKINO from bless4、ED：「吹雪」 西沢幸奏。 1月7日播放开始。[http://t.cn/RzKVGTG](http://t.cn/RzKVGTG)
 
 新cm来了
-
-
-
-
-
 
 
 -----
@@ -4073,14 +2537,7 @@ RY是啥了？老是不记得某些词的缩写
 ##### 227#       发表于 2014-12-5 20:23
 
 
-
-
 吹吹的存在感
-
-
-
-
-
 
 
 -----
@@ -4089,13 +2546,7 @@ RY是啥了？老是不记得某些词的缩写
 ##### 228#       发表于 2014-12-8 19:04
 
 
-
 <img src="http://acgspace.wsfun.com/kancolle/src/1417861429724.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4104,13 +2555,7 @@ RY是啥了？老是不记得某些词的缩写
 ##### 229#       发表于 2014-12-12 02:27
 
 
-
 <img src="http://pbs.twimg.com/media/B4ecY1CCMAEhYxJ.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4119,24 +2564,16 @@ RY是啥了？老是不记得某些词的缩写
 ##### 230#       发表于 2014-12-12 23:26
 
 
-
 [http://kancolle-anime.jp/news/pre_event](http://kancolle-anime.jp/news/pre_event)
 <img src="http://kancolle-anime.jp/img/news/20141212.jpg" referrerpolicy="no-referrer">
 
 12/27先行上映
 
 
-
-
-
-
-
 -----
 
 ####  悠二  
 ##### 231#       发表于 2014-12-18 23:17
-
-
 
 
 不送船药丸的节奏
@@ -4163,25 +2600,13 @@ RY是啥了？老是不记得某些词的缩写
     映像特典：ノンクレジットOP
 
 
-
-
-
-
-
 -----
 
 ####  nylonchina1  
 ##### 232#       发表于 2014-12-19 00:04
 
 
-
-
 这下无法霸权啦
-
-
-
-
-
 
 
 -----
@@ -4190,21 +2615,13 @@ RY是啥了？老是不记得某些词的缩写
 ##### 233#       发表于 2014-12-19 00:07
 
 
-
-
 送船也不行的，除非可以送深海船
-
-
-
-
-
 
 
 -----
 
 ####  里村紅葉  
 ##### 234#       发表于 2014-12-19 00:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27481100&amp;ptid=1009008" target="_blank">村雨零 发表于 2014-12-12 23:26</a>
@@ -4216,16 +2633,10 @@ http://kancolle-anime.jp/news/pre_event
 左边那个男孩子特么是谁<img src="https://static.saraba1st.com/image/smiley/dym/155.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  早苗面包  
 ##### 235#       发表于 2014-12-19 00:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27537963&amp;ptid=1009008" target="_blank">里村紅葉 发表于 2014-12-19 00:23</a>
@@ -4234,16 +2645,10 @@ http://kancolle-anime.jp/news/pre_event
 睦月，哪里男孩子了<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  jy1986  
 ##### 236#       发表于 2014-12-19 01:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27537963&amp;ptid=1009008" target="_blank">里村紅葉 发表于 2014-12-19 00:23</a>
@@ -4252,16 +2657,10 @@ http://kancolle-anime.jp/news/pre_event
 人家不过是长的男孩子气多了点
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 237#       发表于 2014-12-19 01:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27537963&amp;ptid=1009008" target="_blank">里村紅葉 发表于 2014-12-19 00:23</a>
@@ -4270,16 +2669,10 @@ http://kancolle-anime.jp/news/pre_event
 秋山優花里
 
 
-
-
-
-
-
 -----
 
 ####  ギャラ子  
 ##### 238#       发表于 2014-12-19 11:21
-
 
 
 <img src="http://ww2.sinaimg.cn/large/8252a54ejw1enetnujtq8j209q08fwg8.jpg" referrerpolicy="no-referrer">
@@ -4325,17 +2718,10 @@ TVアニメーション『艦隊これくしょん　-艦これ-』
     発売日 : 2015年2月18日
 
 
-
-
-
-
-
 -----
 
 ####  wchx_1989  
 ##### 239#       发表于 2014-12-19 11:45
-
-
 
 
 不送船，暴死预定。
@@ -4343,17 +2729,10 @@ TVアニメーション『艦隊これくしょん　-艦これ-』
 准备开追悼会啦
 
 
-
-
-
-
-
 -----
 
 ####  accqingying  
 ##### 240#       发表于 2014-12-19 12:17
-
-
 
 
 上架势头不错啊，提督们真是给力
@@ -4373,24 +2752,13 @@ TVアニメーション『艦隊これくしょん　-艦これ-』
 *20位/*21位★(***,**0 pt)[*,**0予约]15/03/27舰队これくしょん –舰これ- 第1巻 限定版 [Blu-ray]
 
 
-
-
-
-
-
 -----
 
 ####  warlock228  
 ##### 241#       发表于 2014-12-19 12:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/106.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4399,13 +2767,7 @@ TVアニメーション『艦隊これくしょん　-艦これ-』
 ##### 242#       发表于 2014-12-20 19:35
 
 
-
 <img src="http://www.tu265.com/di-423bc230c99e6cb94f51c70debfd413b.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4414,20 +2776,13 @@ TVアニメーション『艦隊これくしょん　-艦これ-』
 ##### 243#       发表于 2014-12-20 19:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">小姨的脸还原度真高不愧是艹川的老婆<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  村雨零  
 ##### 244#       发表于 2014-12-21 19:05
-
 
 
  本帖最后由 村雨零 于 2014-12-21 12:08 编辑 
@@ -4437,25 +2792,13 @@ TVアニメーション『艦隊これくしょん　-艦これ-』
 <img src="http://acgspace.wsfun.com/kancolle/src/1419063081149.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ruio  
 ##### 245#       发表于 2014-12-21 19:18
 
 
-
-
 大井这眼神太危险了
-
-
-
-
-
 
 
 -----
@@ -4464,14 +2807,7 @@ TVアニメーション『艦隊これくしょん　-艦これ-』
 ##### 246#       发表于 2014-12-21 19:20
 
 
-
-
 大井的痴女力爆表
-
-
-
-
-
 
 
 -----
@@ -4480,14 +2816,7 @@ TVアニメーション『艦隊これくしょん　-艦これ-』
 ##### 247#       发表于 2014-12-21 21:05
 
 
-
-
 my favourite lesbian
-
-
-
-
-
 
 
 -----
@@ -4496,14 +2825,7 @@ my favourite lesbian
 ##### 248#       发表于 2014-12-21 21:27
 
 
-
-
 不送船不送震电改二等着爆死
-
-
-
-
-
 
 
 -----
@@ -4512,15 +2834,7 @@ my favourite lesbian
 ##### 249#       发表于 2014-12-22 17:54
 
 
-
-
 BD发售CM，有部分新画面
-
-
-
-
-
-
 
 
 -----
@@ -4529,13 +2843,7 @@ BD发售CM，有部分新画面
 ##### 250#       发表于 2014-12-23 06:50
 
 
-
 <img src="http://acgspace.wsfun.com/kancolle/src/1419231240240.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4544,14 +2852,8 @@ BD发售CM，有部分新画面
 ##### 251#       发表于 2014-12-23 16:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27573945&amp;ptid=1009008" target="_blank">村雨零 发表于 2014-12-23 06:50</a></blockquote>
 如月prpr<img src="https://static.saraba1st.com/image/smiley/dym/148.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4560,14 +2862,7 @@ BD发售CM，有部分新画面
 ##### 252#       发表于 2014-12-23 17:12
 
 
-
-
 国内版权被土豆网买了，谁说的没人敢买简直图样图森破ww
-
-
-
-
-
 
 
 -----
@@ -4576,14 +2871,7 @@ BD发售CM，有部分新画面
 ##### 253#       发表于 2014-12-23 17:42
 
 
-
-
 感觉要大右肩……
-
-
-
-
-
 
 
 -----
@@ -4592,14 +2880,7 @@ BD发售CM，有部分新画面
 ##### 254#       发表于 2014-12-23 17:45
 
 
-
-
 没JK么  我的意思是没熊铃的图么
-
-
-
-
-
 
 
 -----
@@ -4608,14 +2889,8 @@ BD发售CM，有部分新画面
 ##### 255#       发表于 2014-12-23 20:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27573945&amp;ptid=1009008" target="_blank">村雨零 发表于 2014-12-23 06:50</a></blockquote>
 哎哟这腿，棒棒舔舔
-
-
-
-
-
 
 
 -----
@@ -4624,16 +2899,9 @@ BD发售CM，有部分新画面
 ##### 256#       发表于 2014-12-23 21:59
 
 
-
-
 听说土豆买下了播放权
 
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">坐看举报大潮
-
-
-
-
-
 
 
 -----
@@ -4642,15 +2910,9 @@ BD发售CM，有部分新画面
 ##### 257#       发表于 2014-12-24 03:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27579947&amp;ptid=1009008" target="_blank">★ARCHER☆ 发表于 2014-12-23 10:45</a>
 
 没JK么  我的意思是没熊铃的图么</blockquote><img src="http://acgspace.wsfun.com/kancolle/src/1418843634254.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4659,14 +2921,8 @@ BD发售CM，有部分新画面
 ##### 258#       发表于 2014-12-24 08:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27584024&amp;ptid=1009008" target="_blank">村雨零 发表于 2014-12-24 03:38</a></blockquote>
 哦  多谢多谢  女子力就是正义啊
-
-
-
-
-
 
 
 -----
@@ -4675,21 +2931,13 @@ BD发售CM，有部分新画面
 ##### 259#       发表于 2014-12-24 09:13
 
 
-
-
 这个图除了证明コニシ没有死。。。好像是漫画的特典把，本身跟tv好像关系不大。虽然我也希望bitch组进tv，不过目前消息不明朗。
-
-
-
-
-
 
 
 -----
 
 ####  warlock228  
 ##### 260#       发表于 2014-12-24 17:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=27584742&amp;amp;ptid=1009008" target="_blank">doas9 发表于 2014-12-24 09:13</a>
@@ -4699,24 +2947,13 @@ BDCM有蜜瓜说明布拉惠美有来 熊爷不清楚但铃谷人气是一线的
 ——— 来自[Stage1st Reader For iOS](http://itunes.apple.com/us/app/stage1st-reader/id509916119?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  节操何在  
 ##### 261#       发表于 2014-12-24 19:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/175.gif" referrerpolicy="no-referrer">对于各位欧提我只想说三个字：买！买！买！
-
-
-
-
-
 
 
 -----
@@ -4725,14 +2962,7 @@ BDCM有蜜瓜说明布拉惠美有来 熊爷不清楚但铃谷人气是一线的
 ##### 262#       发表于 2014-12-24 20:44
 
 
-
-
 bitch组是啥？夕张铃谷熊野？啥梗？
-
-
-
-
-
 
 
 -----
@@ -4741,21 +2971,14 @@ bitch组是啥？夕张铃谷熊野？啥梗？
 ##### 263#       发表于 2014-12-25 01:21
 
 
-
 <blockquote>傅潇逍 发表于 2014-12-24 20:44  bitch组是啥？夕张铃谷熊野？啥梗？</blockquote>
 高中生吧，然后配音特轻浮，有种援阿交的感觉
-
-
-
-
-
 
 
 -----
 
 ####  村雨零  
 ##### 264#       发表于 2014-12-25 08:11
-
 
 
  本帖最后由 村雨零 于 2014-12-25 01:13 编辑 
@@ -4860,25 +3083,13 @@ Blu-ray限定版・DVD限定版
 描き下ろし全巻収納BOX</blockquote>
 
 
-
-
-
-
-
 -----
 
 ####  烂菊花  
 ##### 265#       发表于 2014-12-25 08:21
 
 
-
-
 老家dmm特点居然是ic卡贴，活该一辈子小黄碟
-
-
-
-
-
 
 
 -----
@@ -4887,16 +3098,9 @@ Blu-ray限定版・DVD限定版
 ##### 266#       发表于 2014-12-25 10:44
 
 
-
-
 亚马逊那张特典不对啊
 
 大和的91pad怎么可能这么软？！
-
-
-
-
-
 
 
 -----
@@ -4905,16 +3109,9 @@ Blu-ray限定版・DVD限定版
 ##### 267#       发表于 2014-12-25 12:54
 
 
-
-
 有种公司完全不想从舰娘动画身上赚钱的想法
 
 明明送点游戏内的物品就能海啸，却放过了
-
-
-
-
-
 
 
 -----
@@ -4923,25 +3120,16 @@ Blu-ray限定版・DVD限定版
 ##### 268#       发表于 2014-12-25 13:08
 
 
-
-
 我很期待东**央..........不累死她
 
 
-
 东山   奈央
-
-
-
-
-
 
 
 -----
 
 ####  林照人  
 ##### 269#       发表于 2014-12-25 14:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27597540&amp;ptid=1009008" target="_blank">ggmk2 发表于 2014-12-24 23:54</a>
@@ -4952,25 +3140,13 @@ Blu-ray限定版・DVD限定版
 我只能说 幸好如此 不然双号党又要多掏钱了。。
 
 
-
-
-
-
-
 -----
 
 ####  红夜殇雨  
 ##### 270#       发表于 2014-12-25 14:56
 
 
-
-
 舰娘大法好
-
-
-
-
-
 
 
 -----
@@ -4979,21 +3155,13 @@ Blu-ray限定版・DVD限定版
 ##### 271#       发表于 2014-12-25 14:56
 
 
-
-
 舰娘大法好
-
-
-
-
-
 
 
 -----
 
 ####  osore  
 ##### 272#       发表于 2014-12-25 15:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27596030&amp;ptid=1009008" target="_blank">evan19900716 发表于 2014-12-25 10:44</a>
@@ -5004,16 +3172,10 @@ Blu-ray限定版・DVD限定版
 搞姬的时候没戴呗
 
 
-
-
-
-
-
 -----
 
 ####  村雨零  
 ##### 273#       发表于 2014-12-26 18:43
-
 
 
 <img src="http://acgspace.wsfun.com/kancolle/src/1419558642375.jpg" referrerpolicy="no-referrer">
@@ -5022,25 +3184,13 @@ Blu-ray限定版・DVD限定版
 大暴死预定（？）
 
 
-
-
-
-
-
 -----
 
 ####  gain  
 ##### 274#       发表于 2014-12-26 19:06
 
 
-
-
 国之将亡 遍地舰娘
-
-
-
-
-
 
 
 -----
@@ -5049,15 +3199,12 @@ Blu-ray限定版・DVD限定版
 ##### 275#         楼主| 发表于 2014-12-27 18:38
 
 
-
-
 第一話上映終了。
 
 
 非常に素晴らしい出来でした。
 
 艦娘は、スケートみたく、波間を移動するんですね。
-
 
 
 艦これ1話
@@ -5087,16 +3234,10 @@ Blu-ray限定版・DVD限定版
 朝潮、大潮、満潮、白露、時雨、村雨、陽炎、五月雨、飛龍、蒼龍 
 
 
-
-
-
-
-
 -----
 
 ####  lancerhd  
 ##### 276#       发表于 2014-12-27 19:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27611199&amp;ptid=1009008" target="_blank">村雨零 发表于 2014-12-26 18:43</a>
@@ -5105,32 +3246,19 @@ Blu-ray限定版・DVD限定版
 欠雷这痴女表情......不怕被加贺轰炸吗....
 
 
-
-
-
-
-
 -----
 
 ####  maxwell_goblin  
 ##### 277#       发表于 2014-12-27 19:32
 
 
-
-
 有木有人考虑过七万吨的大和压在2000吨左右的特驱身上应该是什么效果……
-
-
-
-
-
 
 
 -----
 
 ####  lancerhd  
 ##### 278#       发表于 2014-12-27 19:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27619586&amp;ptid=1009008" target="_blank">maxwell_goblin 发表于 2014-12-27 19:32</a>
@@ -5141,24 +3269,13 @@ Blu-ray限定版・DVD限定版
 天津风算毛  欠雷才是装甲最厚小学生
 
 
-
-
-
-
-
 -----
 
 ####  村雨零  
 ##### 279#       发表于 2014-12-27 19:37
 
 
-
 <img src="http://i1.wp.com/otakomu.jp/wp-content/uploads/2014/12/B5231gKCEAAiSQA.png-large.jpg?resize=960%2C720" height="600" id="aimg_a3z44" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-
-
-
-
-
 
 
 -----
@@ -5167,14 +3284,7 @@ Blu-ray限定版・DVD限定版
 ##### 280#       发表于 2014-12-27 19:46
 
 
-
-
 上左二是角川亲女儿？
-
-
-
-
-
 
 
 -----
@@ -5183,23 +3293,15 @@ Blu-ray限定版・DVD限定版
 ##### 281#       发表于 2014-12-27 19:47
 
 
-
-
 隔壁全宇宙首发了，赞美苦力。
 
 比想象中好的多。
-
-
-
-
-
 
 
 -----
 
 ####  maxwell_goblin  
 ##### 282#       发表于 2014-12-27 19:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27619633&amp;ptid=1009008" target="_blank">lancerhd 发表于 2014-12-27 19:36</a>
@@ -5213,17 +3315,10 @@ Blu-ray限定版・DVD限定版
 -- (C86) [GOLD RUSH (Suzuki Address)] Yamato (Kantai Collection -KanColle-)
 
 
-
-
-
-
-
 -----
 
 ####  nylonchina1  
 ##### 283#       发表于 2014-12-27 20:15
-
-
 
 
 这促销完全不给力
@@ -5232,16 +3327,10 @@ Blu-ray限定版・DVD限定版
 日本人完全不会做生意啊
 
 
-
-
-
-
-
 -----
 
 ####  aliciafa  
 ##### 284#       发表于 2014-12-27 20:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27619719&amp;ptid=1009008" target="_blank">doas9 发表于 2014-12-27 19:47</a>
@@ -5252,25 +3341,13 @@ Blu-ray限定版・DVD限定版
 求密码
 
 
-
-
-
-
-
 -----
 
 ####  zechins  
 ##### 285#       发表于 2014-12-27 21:53
 
 
-
-
 。佐仓一人八役，我好兴奋（
-
-
-
-
-
 
 
 -----
@@ -5279,21 +3356,13 @@ Blu-ray限定版・DVD限定版
 ##### 286#       发表于 2014-12-27 22:28
 
 
-
-
 五月雨凉风各种哭晕在厕所·····
-
-
-
-
-
 
 
 -----
 
 ####  村雨零  
 ##### 287#       发表于 2014-12-28 02:53
-
 
 
  本帖最后由 村雨零 于 2014-12-28 07:04 编辑 
@@ -5306,16 +3375,10 @@ zx327s
 DDiT
 
 
-
-
-
-
-
 -----
 
 ####  东方永鵺抄  
 ##### 288#       发表于 2014-12-28 03:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27622297&amp;ptid=1009008" target="_blank">村雨零 发表于 2014-12-28 02:53</a>
@@ -5324,16 +3387,10 @@ ywwuyi</blockquote>
 喷了，义乌哈里发。
 
 
-
-
-
-
-
 -----
 
 ####  十五式試作艦戦  
 ##### 289#       发表于 2014-12-28 04:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27619470&amp;ptid=1009008" target="_blank">lancerhd 发表于 2014-12-27 19:19</a>
@@ -5344,33 +3401,19 @@ ywwuyi</blockquote>
 <img src="https://geekpics.net/images/2014/12/27/8sHW2TrN.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  林照人  
 ##### 290#       发表于 2014-12-28 06:44
 
 
-
-
 这动画第一集的质量保持下去，破10W都很轻松啊
-
-
-
-
-
 
 
 -----
 
 ####  Inle  
 ##### 291#       发表于 2014-12-28 10:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27620089&amp;ptid=1009008" target="_blank">aliciafa 发表于 2014-12-27 20:38</a>
@@ -5387,16 +3430,10 @@ ywwuyi</blockquote>
 赤城看到飞机被打掉了表情严肃……舰战也能肛深海驱逐真不愧是欧提的舰战
 
 
-
-
-
-
-
 -----
 
 ####  烂菊花  
 ##### 292#       发表于 2014-12-28 11:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27623190&amp;ptid=1009008" target="_blank">Inle 发表于 2014-12-28 10:08</a>
@@ -5408,16 +3445,10 @@ ywwuyi</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">为什么大小写混合变最好猜了
 
 
-
-
-
-
-
 -----
 
 ####  Inle  
 ##### 293#       发表于 2014-12-28 11:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27623767&amp;ptid=1009008" target="_blank">烂菊花 发表于 2014-12-28 11:41</a>
@@ -5426,16 +3457,10 @@ ywwuyi</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">因为就是LZ
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 294#       发表于 2014-12-28 12:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27620889&amp;ptid=1009008" target="_blank">CNFH1984 发表于 2014-12-27 22:28</a>
@@ -5444,24 +3469,13 @@ ywwuyi</blockquote>
 这俩真是太可怜了,明明都是白露级,待遇差太远了
 
 
-
-
-
-
-
 -----
 
 ####  帝蓝  
 ##### 295#       发表于 2014-12-28 12:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">第一话质量相当棒 
-
-
-
-
-
 
 
 -----
@@ -5470,13 +3484,7 @@ ywwuyi</blockquote>
 ##### 296#       发表于 2014-12-28 12:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">虽然吐槽点不少，但是第一话质量比想象的要好不少。
-
-
-
-
-
 
 
 -----
@@ -5485,14 +3493,7 @@ ywwuyi</blockquote>
 ##### 297#       发表于 2014-12-28 13:03
 
 
-
-
 一月霸权确定？
-
-
-
-
-
 
 
 -----
@@ -5501,14 +3502,7 @@ ywwuyi</blockquote>
 ##### 298#       发表于 2014-12-28 13:27
 
 
-
-
 在哪能下第一话？求地址
-
-
-
-
-
 
 
 -----
@@ -5517,14 +3511,7 @@ ywwuyi</blockquote>
 ##### 299#       发表于 2014-12-28 13:38
 
 
-
-
 五月雨凉风这两天不用清理舰装还是很开心的，估计不用哭……
-
-
-
-
-
 
 
 -----
@@ -5533,15 +3520,9 @@ ywwuyi</blockquote>
 ##### 300#       发表于 2014-12-28 13:45
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">吹姬穿装备的时候组装机枪兵的既视感
 
 就差吹吹说句 海尔这是阿包特泰姆
-
-
-
-
-
 
 
 -----
@@ -5550,21 +3531,13 @@ ywwuyi</blockquote>
 ##### 301#       发表于 2014-12-28 13:57
 
 
-
-
 海外党表示太卡了。。。土豆这是作死呢
-
-
-
-
-
 
 
 -----
 
 ####  storm  
 ##### 302#       发表于 2014-12-28 14:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27624756&amp;ptid=1009008" target="_blank">warlock228 发表于 2014-12-28 13:45</a>
@@ -5575,16 +3548,10 @@ ywwuyi</blockquote>
 同意，那装备的样子，配上自由之翼的台词无违和。吃喝组穿舰装到时笑死，吃撑的形象啊....这么正经完全不对头
 
 
-
-
-
-
-
 -----
 
 ####  萨尤克  
 ##### 303#       发表于 2014-12-28 14:12
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">长门大姐头太池了
@@ -5593,16 +3560,10 @@ ywwuyi</blockquote>
 要是接下来还是这质量霸权妥妥的？
 
 
-
-
-
-
-
 -----
 
 ####  warlock228  
 ##### 304#       发表于 2014-12-28 14:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27624901&amp;ptid=1009008" target="_blank">storm 发表于 2014-12-28 14:06</a>
@@ -5613,25 +3574,13 @@ ywwuyi</blockquote>
 要不要这么忠实还原  舰女人们皮泡烂了没<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  提督  
 ##### 305#       发表于 2014-12-28 15:06
 
 
-
-
 一月霸权已定
-
-
-
-
-
 
 
 -----
@@ -5640,16 +3589,10 @@ ywwuyi</blockquote>
 ##### 306#       发表于 2014-12-28 15:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27624831&amp;ptid=1009008" target="_blank">kerorokun 发表于 2014-12-28 13:57</a>
 
 海外党表示太卡了。。。土豆这是作死呢</blockquote>
 求个土豆链PM，谢谢<img src="https://static.saraba1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5658,21 +3601,13 @@ ywwuyi</blockquote>
 ##### 307#       发表于 2014-12-28 15:46
 
 
-
-
 不知1月4開diomedea撐不撐得下去這質量
-
-
-
-
-
 
 
 -----
 
 ####  maxwell_goblin  
 ##### 308#       发表于 2014-12-28 16:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27625579&amp;ptid=1009008" target="_blank">xk1370 发表于 2014-12-28 15:41</a>
@@ -5683,16 +3618,10 @@ nga那边
 密码在前一页
 
 
-
-
-
-
-
 -----
 
 ####  xk1370  
 ##### 309#       发表于 2014-12-28 16:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27625750&amp;ptid=1009008" target="_blank">maxwell_goblin 发表于 2014-12-28 16:03</a>
@@ -5703,17 +3632,10 @@ nga那边
 多谢，炸裂了（
 
 
-
-
-
-
-
 -----
 
 ####  doas9  
 ##### 310#       发表于 2014-12-28 17:07
-
-
 
 
 除了nga的剧透我再透些细节吧。
@@ -5741,25 +3663,13 @@ nga那边
 买买买，30份起！
 
 
-
-
-
-
-
 -----
 
 ####  maxwell_goblin  
 ##### 311#       发表于 2014-12-28 17:20
 
 
-
-
 大淀谁听出来是哪个？东山还是川澄？
-
-
-
-
-
 
 
 -----
@@ -5768,14 +3678,7 @@ nga那边
 ##### 312#       发表于 2014-12-28 17:24
 
 
-
-
 川澄
-
-
-
-
-
 
 
 -----
@@ -5784,14 +3687,7 @@ nga那边
 ##### 313#       发表于 2014-12-28 17:59
 
 
-
-
 真是炸裂，15霸权！
-
-
-
-
-
 
 
 -----
@@ -5800,24 +3696,16 @@ nga那边
 ##### 314#       发表于 2014-12-28 18:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27626343&amp;ptid=1009008" target="_blank">maxwell_goblin 发表于 2014-12-28 17:20</a>
 
 大淀谁听出来是哪个？东山还是川澄？</blockquote>
 东山的那个任务娘台词是流用鸟海的
 
 
-
-
-
-
-
 -----
 
 ####  yeran  
 ##### 315#       发表于 2014-12-28 18:37
-
-
 
 
 国之将亡 遍地舰娘
@@ -5829,25 +3717,13 @@ nga那边
 保持下去，一月霸主。
 
 
-
-
-
-
-
 -----
 
 ####  dc5281  
 ##### 316#       发表于 2014-12-28 18:41
 
 
-
-
 第一话看完了 现在期待爆表 霸权起航
-
-
-
-
-
 
 
 -----
@@ -5856,16 +3732,9 @@ nga那边
 ##### 317#       发表于 2014-12-28 19:05
 
 
-
-
 片子里面说的第三水雷战队说的好象是第三舰队是水雷战队的意思
 
 和川内带着11驱的三水战含义不一样
-
-
-
-
-
 
 
 -----
@@ -5874,24 +3743,16 @@ nga那边
 ##### 318#       发表于 2014-12-28 21:08
 
 
-
-
 求地址！
 
 
 ----发送自 [YuLong Coolpad 8675,Android 4.4.2](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  烂菊花  
 ##### 319#       发表于 2014-12-28 21:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27628195&amp;ptid=1009008" target="_blank">loyoki 发表于 2014-12-28 21:08</a>
@@ -5903,25 +3764,13 @@ nga那边
 [http://bbs.ngacn.cc/read.php?tid=7690626](http://bbs.ngacn.cc/read.php?tid=7690626)
 
 
-
-
-
-
-
 -----
 
 ####  佐佐风守  
 ##### 320#       发表于 2014-12-28 23:17
 
 
-
-
 这空母不加强！？
-
-
-
-
-
 
 
 -----
@@ -5930,14 +3779,7 @@ nga那边
 ##### 321#       发表于 2014-12-28 23:44
 
 
-
-
 果然是一月霸权番！买买买！！
-
-
-
-
-
 
 
 -----
@@ -5946,24 +3788,16 @@ nga那边
 ##### 322#       发表于 2014-12-29 00:43
 
 
-
-
 舰娘的早期预约特典要怎么入手？
 
 
 我是说第二卷那个长门陆奥闪卡。
 
 
-
-
-
-
-
 -----
 
 ####  Inle  
 ##### 323#       发表于 2014-12-29 00:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27630075&amp;ptid=1009008" target="_blank">shihomasturi 发表于 2014-12-29 00:43</a>
@@ -5975,17 +3809,10 @@ nga那边
 在下方列出的店铺里预订第二卷就可以了
 
 
-
-
-
-
-
 -----
 
 ####  sekicool  
 ##### 324#       发表于 2014-12-29 11:28
-
-
 
 
 霸权无误!
@@ -5993,16 +3820,10 @@ nga那边
 欠雷竟然拿赤城来当做目标和偶像，再看看我们家的赤城，唉…………
 
 
-
-
-
-
-
 -----
 
 ####  SAGA0Arcueid  
 ##### 325#       发表于 2014-12-29 12:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27632895&amp;ptid=1009008" target="_blank">sekicool 发表于 2014-12-29 11:28</a>
@@ -6016,16 +3837,10 @@ nga那边
 谁知道同人倒逼官方搞得连官方四格都开始默认赤城是个吃货了，最后就是游戏里也开始毁形象
 
 
-
-
-
-
-
 -----
 
 ####  sekicool  
 ##### 326#       发表于 2014-12-29 13:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27633238&amp;ptid=1009008" target="_blank">SAGA0Arcueid 发表于 2014-12-29 12:01</a>
@@ -6041,25 +3856,13 @@ nga那边
 入坑晚，不知道最早入坑的都怎么看待赤城
 
 
-
-
-
-
-
 -----
 
 ####  warlock228  
 ##### 327#       发表于 2014-12-29 13:16
 
 
-
-
 由一个系统BUG引发的二设深入民心倒逼官方承认也是业界首创吧
-
-
-
-
-
 
 
 -----
@@ -6068,14 +3871,7 @@ nga那边
 ##### 328#       发表于 2014-12-29 13:19
 
 
-
-
 霸权杨帆起航了 
-
-
-
-
-
 
 
 -----
@@ -6084,21 +3880,13 @@ nga那边
 ##### 329#       发表于 2014-12-29 14:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer"> 因为刚开服那会“赤城”是非洲人最早获得的大船，加上有bug，“赤城”的高消耗在当时看来非常吓人，吃货之名也是由此而来的。
-
-
-
-
-
 
 
 -----
 
 ####  请给我羽川翼  
 ##### 330#       发表于 2014-12-29 14:30
-
-
 
 
 变吃货犹能忍 逗比化不可恕
@@ -6111,17 +3899,10 @@ nga那边
 顺便“空母太弱了 我们在动画里加强一下”？
 
 
-
-
-
-
-
 -----
 
 ####  十六夜pad长  
 ##### 331#       发表于 2014-12-29 14:51
-
-
 
 
 现在来看明显留了poi改二大变身的口子，完全逗比化的poi…
@@ -6131,32 +3912,19 @@ nga那边
     —— from [S1 Nyan](http://126.am/S1Nyan) (NOKIA Lumia 1020)来自: WindowsPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  風見一姫  
 ##### 332#       发表于 2014-12-29 15:01
 
 
-
-
 poi一改在游戏里也就算个吉祥物，二改则是中二少女www
-
-
-
-
-
 
 
 -----
 
 ####  zechins  
 ##### 333#       发表于 2014-12-31 19:28
-
 
 
 <img src="http://ww4.sinaimg.cn/large/87c7e3b3jw1ent2r9pufjj215o0qb7gc.jpg" referrerpolicy="no-referrer">
@@ -6166,16 +3934,10 @@ poi一改在游戏里也就算个吉祥物，二改则是中二少女www
 萝莉控太正经，真不习惯……
 
 
-
-
-
-
-
 -----
 
 ####  sgpt55  
 ##### 334#       发表于 2014-12-31 19:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27658716&amp;ptid=1009008" target="_blank">zechins 发表于 2014-12-31 19:28</a>
@@ -6184,25 +3946,13 @@ poi一改在游戏里也就算个吉祥物，二改则是中二少女www
 长萌那开火的炮的位置……让我想起这届CM的cos<img src="https://static.saraba1st.com/image/smiley/face/158.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  SAGA0Arcueid  
 ##### 335#       发表于 2014-12-31 19:52
 
 
-
-
 说实话也是好久没见过狂犬大人以前纯真大小姐的状态了
-
-
-
-
-
 
 
 -----
@@ -6211,17 +3961,9 @@ poi一改在游戏里也就算个吉祥物，二改则是中二少女www
 ##### 336#       发表于 2014-12-31 21:01
 
 
-
-
-
 话说有个低清的MV第一集部分画面  给我药给我药 
 
 还有7天真漫长啊<img src="https://static.saraba1st.com/image/smiley/face/185.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6230,16 +3972,9 @@ poi一改在游戏里也就算个吉祥物，二改则是中二少女www
 ##### 337#       发表于 2015-1-1 15:07
 
 
-
-
 对了，去土豆看了一圈，貌似没有买舰C的动画阿，正版那里没有看见。
 
 所以上次说土豆买了是造谣了？所以到最后还是没人买舰C的版权是吧。
-
-
-
-
-
 
 
 -----
@@ -6248,22 +3983,14 @@ poi一改在游戏里也就算个吉祥物，二改则是中二少女www
 ##### 338#       发表于 2015-1-3 16:58
 
 
-
-
 单纵阵……
 <img src="http://ww4.sinaimg.cn/mw1024/afdc790bgw1enw9cvictbg20ao07o4qq.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  coolffcat  
 ##### 339#       发表于 2015-1-3 17:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27634843&amp;ptid=1009008" target="_blank">请给我羽川翼 发表于 2014-12-29 14:30</a>
@@ -6276,27 +4003,16 @@ poi一改在游戏里也就算个吉祥物，二改则是中二少女www
 大哥你老婆哪位啊
 
 
-
-
-
-
-
 -----
 
 ####  ruio  
 ##### 340#       发表于 2015-1-3 17:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27680746&amp;ptid=1009008" target="_blank">ccloli 发表于 2015-1-3 16:58</a>
 
 单纵阵……</blockquote>
 我能够笑吗
-
-
-
-
-
 
 
 -----
@@ -6305,16 +4021,10 @@ poi一改在游戏里也就算个吉祥物，二改则是中二少女www
 ##### 341#       发表于 2015-1-3 17:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27680746&amp;ptid=1009008" target="_blank">ccloli 发表于 2015-1-3 16:58</a>
 
 单纵阵……</blockquote>
 我能够笑吗
-
-
-
-
-
 
 
 -----
@@ -6323,14 +4033,7 @@ poi一改在游戏里也就算个吉祥物，二改则是中二少女www
 ##### 342#       发表于 2015-1-3 17:45
 
 
-
-
 果然是魔法少女吧，活脱脱的军版狗日
-
-
-
-
-
 
 
 -----
@@ -6339,17 +4042,10 @@ poi一改在游戏里也就算个吉祥物，二改则是中二少女www
 ##### 343#       发表于 2015-1-7 12:33
 
 
-
-
 今天开播！！！
 
 
 ----发送自 [YuLong Coolpad 8675,Android 4.4.2](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -6358,14 +4054,7 @@ poi一改在游戏里也就算个吉祥物，二改则是中二少女www
 ##### 344#       发表于 2015-1-7 13:05
 
 
-
-
 能分出单纵单横的估计只有金刚级
-
-
-
-
-
 
 
 -----
@@ -6374,14 +4063,7 @@ poi一改在游戏里也就算个吉祥物，二改则是中二少女www
 ##### 345#       发表于 2015-1-7 13:42
 
 
-
-
 对岸应该播出了吧 这边还没熟肉？
-
-
-
-
-
 
 
 -----
@@ -6390,14 +4072,7 @@ poi一改在游戏里也就算个吉祥物，二改则是中二少女www
 ##### 346#       发表于 2015-1-7 13:45
 
 
-
-
 对岸应该播出了吧 这边还没熟肉？
-
-
-
-
-
 
 
 -----
@@ -6406,16 +4081,10 @@ poi一改在游戏里也就算个吉祥物，二改则是中二少女www
 ##### 347#       发表于 2015-1-7 13:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27713936&amp;ptid=1009008" target="_blank">sgpt55 发表于 2015-1-7 13:45</a>
 
 对岸应该播出了吧 这边还没熟肉？</blockquote>
 今晚半夜 
-
-
-
-
-
 
 
 -----
@@ -6424,14 +4093,7 @@ poi一改在游戏里也就算个吉祥物，二改则是中二少女www
 ##### 348#       发表于 2015-1-7 15:04
 
 
-
-
 占个座留个名 今晚就算吃饭也绝对不喝酒了  一定要看 一定要看！
-
-
-
-
-
 
 
 -----
@@ -6440,14 +4102,7 @@ poi一改在游戏里也就算个吉祥物，二改则是中二少女www
 ##### 349#       发表于 2015-1-7 15:07
 
 
-
-
 我已经预测到明天的弹幕了：各种认老婆认女儿还有各种论战...............
-
-
-
-
-
 
 
 -----
@@ -6456,14 +4111,7 @@ poi一改在游戏里也就算个吉祥物，二改则是中二少女www
 ##### 350#       发表于 2015-1-7 15:20
 
 
-
-
 明天的弹幕肯定是打倒日本帝国主义，小日本亡我大中华之心不死
-
-
-
-
-
 
 
 -----
@@ -6472,14 +4120,7 @@ poi一改在游戏里也就算个吉祥物，二改则是中二少女www
 ##### 351#       发表于 2015-1-7 16:13
 
 
-
-
 不知道生肉几点能出
-
-
-
-
-
 
 
 -----
@@ -6488,16 +4129,10 @@ poi一改在游戏里也就算个吉祥物，二改则是中二少女www
 ##### 352#       发表于 2015-1-7 16:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27714496&amp;ptid=1009008" target="_blank">满月诗篇 发表于 2015-1-7 15:20</a>
 
 明天的弹幕肯定是打倒日本帝国主义，小日本亡我大中华之心不死</blockquote>
 没说错啊这两句
-
-
-
-
-
 
 
 -----
@@ -6506,14 +4141,7 @@ poi一改在游戏里也就算个吉祥物，二改则是中二少女www
 ##### 353#       发表于 2015-1-7 16:31
 
 
-
-
 你们是多喜欢二设...
-
-
-
-
-
 
 
 -----
@@ -6522,21 +4150,13 @@ poi一改在游戏里也就算个吉祥物，二改则是中二少女www
 ##### 354#       发表于 2015-1-7 16:59
 
 
-
-
 cm上说的是1.7凌晨1:05，那么直播时间应该是UTC+8 1.8 0:05？
-
-
-
-
-
 
 
 -----
 
 ####  D-JoeII  
 ##### 355#       发表于 2015-1-7 17:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27715078&amp;ptid=1009008" target="_blank">maxwell_goblin 发表于 2015-1-7 16:59</a>
@@ -6547,25 +4167,13 @@ cm上说的是1.7凌晨1:05，那么直播时间应该是UTC+8 1.8 0:05？</bloc
 其實艦娘的首播時間就是接棺姬的檔期
 
 
-
-
-
-
-
 -----
 
 ####  xuesong1105  
 ##### 356#       发表于 2015-1-7 17:17
 
 
-
-
 占座，加贺老婆prpr
-
-
-
-
-
 
 
 -----
@@ -6574,14 +4182,7 @@ cm上说的是1.7凌晨1:05，那么直播时间应该是UTC+8 1.8 0:05？</bloc
 ##### 357#       发表于 2015-1-7 17:45
 
 
-
-
 能有好心情看动画的是不是都是欧洲人？
-
-
-
-
-
 
 
 -----
@@ -6590,14 +4191,7 @@ cm上说的是1.7凌晨1:05，那么直播时间应该是UTC+8 1.8 0:05？</bloc
 ##### 358#       发表于 2015-1-7 17:48
 
 
-
-
 我也来占个座~  晚上看完再睡
-
-
-
-
-
 
 
 -----
@@ -6606,21 +4200,13 @@ cm上说的是1.7凌晨1:05，那么直播时间应该是UTC+8 1.8 0:05？</bloc
 ##### 359#       发表于 2015-1-7 17:53
 
 
-
-
 占座，土豆能同步么
-
-
-
-
-
 
 
 -----
 
 ####  sauron.j  
 ##### 360#       发表于 2015-1-7 18:13
-
 
 
  本帖最后由 sauron.j 于 2015-1-7 18:15 编辑 
@@ -6630,16 +4216,10 @@ cm上说的是1.7凌晨1:05，那么直播时间应该是UTC+8 1.8 0:05？</bloc
 别的不提，你说的这两句还就是真相，没法洗
 
 
-
-
-
-
-
 -----
 
 ####  loyoki  
 ##### 361#       发表于 2015-1-7 18:41
-
 
 
 <blockquote>引用第348楼coolffcat于2015-01-07 15:07发表的  :
@@ -6653,32 +4233,19 @@ cm上说的是1.7凌晨1:05，那么直播时间应该是UTC+8 1.8 0:05？</bloc
 ----发送自 [YuLong Coolpad 8675,Android 4.4.2](http://stage1.5j4m.com/?1.17) 
 
 
-
-
-
-
-
 -----
 
 ####  KATE  
 ##### 362#       发表于 2015-1-7 19:01
 
 
-
-
 有下载嘛
-
-
-
-
-
 
 
 -----
 
 ####  coolffcat  
 ##### 363#       发表于 2015-1-7 19:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27715727&amp;ptid=1009008" target="_blank">loyoki 发表于 2015-1-7 18:41</a>
@@ -6689,32 +4256,19 @@ cm上说的是1.7凌晨1:05，那么直播时间应该是UTC+8 1.8 0:05？</bloc
 还有欧洲提督俱乐部 亚洲提督联合会 非洲酋长大部落.................
 
 
-
-
-
-
-
 -----
 
 ####  omin2  
 ##### 364#       发表于 2015-1-7 19:04
 
 
-
-
 还有5小时，先求个直播网站。太久没看直播了都不知去哪看了
-
-
-
-
-
 
 
 -----
 
 ####  maxwell_goblin  
 ##### 365#       发表于 2015-1-7 19:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27715727&amp;ptid=1009008" target="_blank">loyoki 发表于 2015-1-7 18:41</a>
@@ -6725,25 +4279,13 @@ cm上说的是1.7凌晨1:05，那么直播时间应该是UTC+8 1.8 0:05？</bloc
 第一集应该还有太太 爱宕 球磨 多磨 利根 大淀 间宫 欠雷
 
 
-
-
-
-
-
 -----
 
 ####  虫王戮蛊  
 ##### 366#       发表于 2015-1-7 19:31
 
 
-
-
 can't wait until night!!!
-
-
-
-
-
 
 
 -----
@@ -6752,15 +4294,9 @@ can't wait until night!!!
 ##### 367#       发表于 2015-1-7 19:48
 
 
-
 <blockquote>傅潇逍 发表于 2015-1-7 17:45
 能有好心情看动画的是不是都是欧洲人？</blockquote>
 s1不应该都是双大武逼毕业么
-
-
-
-
-
 
 
 -----
@@ -6769,14 +4305,7 @@ s1不应该都是双大武逼毕业么
 ##### 368#       发表于 2015-1-7 20:20
 
 
-
-
 S1舰娘群（自称（其实是千年群 和专楼里，入坑半年以上全毕业的人应该已经不少了
-
-
-
-
-
 
 
 -----
@@ -6785,16 +4314,10 @@ S1舰娘群（自称（其实是千年群 和专楼里，入坑半年以上全�
 ##### 369#       发表于 2015-1-7 20:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27715842&amp;ptid=1009008" target="_blank">omin2 发表于 2015-1-7 19:04</a>
 
 还有5小时，先求个直播网站。太久没看直播了都不知去哪看了</blockquote>
 [http://www.douyutv.com/meizhi](http://www.douyutv.com/meizhi)
-
-
-
-
-
 
 
 -----
@@ -6803,23 +4326,16 @@ S1舰娘群（自称（其实是千年群 和专楼里，入坑半年以上全�
 ##### 370#       发表于 2015-1-7 20:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27716317&amp;ptid=1009008" target="_blank">warlock228 发表于 2015-1-7 20:24</a>
 
 http://www.douyutv.com/meizhi</blockquote>
 感谢，边去1-5捞山云边待机
 
 
-
-
-
-
-
 -----
 
 ####  loyoki  
 ##### 371#       发表于 2015-1-7 20:51
-
 
 
 <blockquote>引用第367楼xuesong1105于2015-01-07 19:48发表的  :
@@ -6833,24 +4349,13 @@ http://www.douyutv.com/meizhi</blockquote>
 ----发送自 [YuLong Coolpad 8675,Android 4.4.2](http://stage1.5j4m.com/?1.17) 
 
 
-
-
-
-
-
 -----
 
 ####  Inle  
 ##### 372#       发表于 2015-1-7 21:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">边打5-5边待机
-
-
-
-
-
 
 
 -----
@@ -6859,16 +4364,10 @@ http://www.douyutv.com/meizhi</blockquote>
 ##### 373#       发表于 2015-1-7 22:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27716565&amp;ptid=1009008" target="_blank">Inle 发表于 2015-1-7 21:05</a>
 
 边打5-5边待机</blockquote>
 Inle dalao 建个新群吧  需要一个不脱离主题太远舰C群....
-
-
-
-
-
 
 
 -----
@@ -6877,14 +4376,7 @@ Inle dalao 建个新群吧  需要一个不脱离主题太远舰C群....
 ##### 374#       发表于 2015-1-7 23:13
 
 
-
-
 那个千年群现在还玩舰娘么？退了半年了
-
-
-
-
-
 
 
 -----
@@ -6893,21 +4385,13 @@ Inle dalao 建个新群吧  需要一个不脱离主题太远舰C群....
 ##### 375#       发表于 2015-1-7 23:17
 
 
-
-
 赶在开播前几天上任我真是英明 虽然现在还没能认全谁是谁<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Inle  
 ##### 376#       发表于 2015-1-7 23:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27716941&amp;ptid=1009008" target="_blank">纯夏 发表于 2015-1-7 22:06</a>
@@ -6919,27 +4403,15 @@ Inle dalao 建个新群吧  需要一个不脱离主题太远舰C群....</bloc
 其实论坛挺好的……
 
 
-
-
-
-
-
 -----
 
 ####  zcrptx  
 ##### 377#       发表于 2015-1-7 23:23
 
 
-
-
 今天播出？
 
 ——— 来自[Stage1st Reader For iOS](http://itunes.apple.com/us/app/stage1st-reader/id509916119?mt=8)
-
-
-
-
-
 
 
 -----
@@ -6948,14 +4420,7 @@ Inle dalao 建个新群吧  需要一个不脱离主题太远舰C群....</bloc
 ##### 378#       发表于 2015-1-7 23:25
 
 
-
-
 需要一个我是管理员 看到聊千年屎长直接飞的群！<img src="https://static.saraba1st.com/image/smiley/face/26.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6964,13 +4429,7 @@ Inle dalao 建个新群吧  需要一个不脱离主题太远舰C群....</bloc
 ##### 379#       发表于 2015-1-7 23:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">这片国内没视频站买版权?
-
-
-
-
-
 
 
 -----
@@ -6979,14 +4438,7 @@ Inle dalao 建个新群吧  需要一个不脱离主题太远舰C群....</bloc
 ##### 380#       发表于 2015-1-7 23:43
 
 
-
-
 还有20多分钟了。
-
-
-
-
-
 
 
 -----
@@ -6995,16 +4447,10 @@ Inle dalao 建个新群吧  需要一个不脱离主题太远舰C群....</bloc
 ##### 381#       发表于 2015-1-7 23:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27716941&amp;ptid=1009008" target="_blank">纯夏 发表于 2015-1-7 22:06</a>
 
 Inle dalao 建个新群吧  需要一个不脱离主题太远舰C群....</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7013,18 +4459,10 @@ Inle dalao 建个新群吧  需要一个不脱离主题太远舰C群....</bloc
 ##### 382#       发表于 2015-1-7 23:50
 
 
-
-
 不要脸毛跳上大衣柜,等着午夜的广场上无数一个狗聚集.智慧手机,平板电脑,连成徐徐跃动的波浪,潮汐腾空而起,relativistic effect,费尔班极光,Indradhanush,菩萨蛮.人群洄旋,滚动,翻滚,胯下换手,直到所有菲洛蒙fade away.人潮退去,重新回到太平洋,苍蝇一样直搓手,攒铝,结婚,歌颂社会主义生活 
 
 
-
 仿锤片预热
-
-
-
-
-
 
 
 -----
@@ -7033,15 +4471,9 @@ Inle dalao 建个新群吧  需要一个不脱离主题太远舰C群....</bloc
 ##### 383#       发表于 2015-1-7 23:57
 
 
-
  本帖最后由 白武男 于 2015-1-7 23:58 编辑 
 
 话说有爷爷辈的亲人在淞沪会战中被加贺的舰载机炸死的人看了这片会什么感想？
-
-
-
-
-
 
 
 -----
@@ -7050,16 +4482,10 @@ Inle dalao 建个新群吧  需要一个不脱离主题太远舰C群....</bloc
 ##### 384#       发表于 2015-1-8 00:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27717647&amp;ptid=1009008" target="_blank">白武男 发表于 2015-1-7 23:57</a>
 
 话说有爷爷辈的亲人在淞沪会战中被加贺的舰载机炸死的人看了这片会什么感想？ ...</blockquote>
 他怎么知道是加贺舰载机？
-
-
-
-
-
 
 
 -----
@@ -7068,13 +4494,7 @@ Inle dalao 建个新群吧  需要一个不脱离主题太远舰C群....</bloc
 ##### 385#       发表于 2015-1-8 00:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">赶上开播前雷爷放行本月5-5最后一格成功进入boss
-
-
-
-
-
 
 
 -----
@@ -7083,16 +4503,10 @@ Inle dalao 建个新群吧  需要一个不脱离主题太远舰C群....</bloc
 ##### 386#       发表于 2015-1-8 00:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27716103&amp;ptid=1009008" target="_blank">xuesong1105 发表于 2015-1-7 19:48</a>
 
 s1不应该都是双大武逼毕业么</blockquote>
 我不止去不了欧洲，还被驱逐出了S1，更没心情看动画了
-
-
-
-
-
 
 
 -----
@@ -7101,16 +4515,10 @@ s1不应该都是双大武逼毕业么</blockquote>
 ##### 387#       发表于 2015-1-8 00:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27717707&amp;ptid=1009008" target="_blank">非洲提督 发表于 2015-1-8 00:05</a>
 
 他怎么知道是加贺舰载机？</blockquote>
 最多就是凤翔、龙骧咯？就算不是被飞机炸死的也是被同伙的日军打死的呀。
-
-
-
-
-
 
 
 -----
@@ -7119,15 +4527,9 @@ s1不应该都是双大武逼毕业么</blockquote>
 ##### 388#       发表于 2015-1-8 00:18
 
 
-
  本帖最后由 革新 于 2015-1-8 00:23 编辑 
 
 爱岩还原度不错嘛 还特意突出了胸部   加贺也很好认
-
-
-
-
-
 
 
 -----
@@ -7136,14 +4538,7 @@ s1不应该都是双大武逼毕业么</blockquote>
 ##### 389#       发表于 2015-1-8 00:30
 
 
-
-
 出击画面做的很好，气氛出来了。
-
-
-
-
-
 
 
 -----
@@ -7152,14 +4547,7 @@ s1不应该都是双大武逼毕业么</blockquote>
 ##### 390#       发表于 2015-1-8 00:36
 
 
-
-
 一航战赛高!!!
-
-
-
-
-
 
 
 -----
@@ -7168,14 +4556,7 @@ s1不应该都是双大武逼毕业么</blockquote>
 ##### 391#       发表于 2015-1-8 00:36
 
 
-
-
 看完了 整体好棒   练个1级吹雪 提督真是拼啊 （笑······
-
-
-
-
-
 
 
 -----
@@ -7184,14 +4565,7 @@ s1不应该都是双大武逼毕业么</blockquote>
 ##### 392#       发表于 2015-1-8 00:38
 
 
-
-
 看来提督是不会露脸了 放心状态
-
-
-
-
-
 
 
 -----
@@ -7200,14 +4574,7 @@ s1不应该都是双大武逼毕业么</blockquote>
 ##### 393#       发表于 2015-1-8 00:38
 
 
-
-
 太好看了！！！！
-
-
-
-
-
 
 
 -----
@@ -7216,17 +4583,10 @@ s1不应该都是双大武逼毕业么</blockquote>
 ##### 394#       发表于 2015-1-8 00:38
 
 
-
-
 不错！！！！
 
 
 ----发送自 [YuLong Coolpad 8675,Android 4.4.2](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -7235,14 +4595,7 @@ s1不应该都是双大武逼毕业么</blockquote>
 ##### 395#       发表于 2015-1-8 00:39
 
 
-
-
 出击太酷炫<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7251,14 +4604,7 @@ s1不应该都是双大武逼毕业么</blockquote>
 ##### 396#       发表于 2015-1-8 00:40
 
 
-
-
 赤城被各种二设洗脑，看到动画里的女神范儿，满满的违和感<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7267,14 +4613,7 @@ s1不应该都是双大武逼毕业么</blockquote>
 ##### 397#       发表于 2015-1-8 00:40
 
 
-
-
 6个澡堂子的提督，果然不差铝，那珂开幕雷，舰战打驱逐<img src="https://static.saraba1st.com/image/smiley/face/32.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7283,14 +4622,7 @@ s1不应该都是双大武逼毕业么</blockquote>
 ##### 398#       发表于 2015-1-8 00:40
 
 
-
-
 这就是一航战的荣耀啊   用资源（经费）燃烧的荣耀就是棒！！<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7299,14 +4631,7 @@ s1不应该都是双大武逼毕业么</blockquote>
 ##### 399#       发表于 2015-1-8 00:41
 
 
-
-
 7分日常 3分战斗 每次战斗都能保持这个水准 肯定可以霸权 就看制作方肯不肯砸钱了
-
-
-
-
-
 
 
 -----
@@ -7315,16 +4640,9 @@ s1不应该都是双大武逼毕业么</blockquote>
 ##### 400#       发表于 2015-1-8 00:41
 
 
-
-
 加贺老师不棒，辣鸡！<img src="https://static.saraba1st.com/image/smiley/nq/002.gif" referrerpolicy="no-referrer">
 
 poi挺不错的，其他的听起来总感觉有股违和感<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">不过作画啥都都挺好。
-
-
-
-
-
 
 
 -----
@@ -7333,13 +4651,7 @@ poi挺不错的，其他的听起来总感觉有股违和感<img src="https://st
 ##### 401#       发表于 2015-1-8 00:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/dym/148.gif" referrerpolicy="no-referrer">看完脑子里第一个感想就是.....简直太有钱了!
-
-
-
-
-
 
 
 -----
@@ -7348,13 +4660,7 @@ poi挺不错的，其他的听起来总感觉有股违和感<img src="https://st
 ##### 402#       发表于 2015-1-8 00:44
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">  为啥选吹雪做女主呢？？  她很好用潜力大么？
-
-
-
-
-
 
 
 -----
@@ -7363,16 +4669,9 @@ poi挺不错的，其他的听起来总感觉有股违和感<img src="https://st
 ##### 403#       发表于 2015-1-8 00:44
 
 
-
-
 终于知道为什么特典不送游戏道具了
 
 因为这动画 真~特~么~的~好~看！！
-
-
-
-
-
 
 
 -----
@@ -7381,14 +4680,7 @@ poi挺不错的，其他的听起来总感觉有股违和感<img src="https://st
 ##### 404#       发表于 2015-1-8 00:45
 
 
-
-
 这换舰装的方式好粗暴好奇怪啊，万一铁链甩到了非大破不可！
-
-
-
-
-
 
 
 -----
@@ -7397,21 +4689,13 @@ poi挺不错的，其他的听起来总感觉有股违和感<img src="https://st
 ##### 405#       发表于 2015-1-8 00:45
 
 
-
-
 别人家的赤城好大小姐啊!!!!!!!
-
-
-
-
-
 
 
 -----
 
 ####  loyoki  
 ##### 406#       发表于 2015-1-8 00:45
-
 
 
 <blockquote>引用第401楼革新于2015-01-08 00:44发表的  :
@@ -7425,16 +4709,10 @@ poi挺不错的，其他的听起来总感觉有股违和感<img src="https://st
 ----发送自 [YuLong Coolpad 8675,Android 4.4.2](http://stage1.5j4m.com/?1.17) 
 
 
-
-
-
-
-
 -----
 
 ####  ★ARCHER☆  
 ##### 407#       发表于 2015-1-8 00:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27717892&amp;ptid=1009008" target="_blank">eternum 发表于 2015-1-8 00:41</a>
@@ -7445,16 +4723,10 @@ poi挺不错的，其他的听起来总感觉有股违和感不过作画啥都�
 愚蠢！  加贺老湿明显是大后期 先是赤城女神迷倒一波  再是加贺老湿反差萌补刀（我跟你讲 去年是双马尾霸权 今年是侧马尾的时代了）    销量就UPUP  这就是一航战的战术啊！
 
 
-
-
-
-
-
 -----
 
 ####  Inle  
 ##### 408#       发表于 2015-1-8 00:48
-
 
 
  本帖最后由 Inle 于 2015-1-8 00:49 编辑 
@@ -7468,25 +4740,13 @@ poi挺不错的，其他的听起来总感觉有股违和感不过作画啥都�
 不知道动画节奏如何，什么时候打夏活伞姐何时登场啊
 
 
-
-
-
-
-
 -----
 
 ####  非洲提督  
 ##### 409#       发表于 2015-1-8 00:48
 
 
-
-
 我相信赤城后面一定会逗逼的！现在的女神都是为了将来的反差埋下的种子！
-
-
-
-
-
 
 
 -----
@@ -7495,15 +4755,9 @@ poi挺不错的，其他的听起来总感觉有股违和感不过作画啥都�
 ##### 410#       发表于 2015-1-8 00:48
 
 
-
  本帖最后由 leander_z 于 2015-1-8 00:50 编辑 
 
 <img src="http://ww4.sinaimg.cn/large/6c33508agw1eo1ftdap67j21hc0u010e.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7512,16 +4766,10 @@ poi挺不错的，其他的听起来总感觉有股违和感不过作画啥都�
 ##### 411#       发表于 2015-1-8 00:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27717881&amp;ptid=1009008" target="_blank">屈江鸟 发表于 2015-1-8 00:40</a>
 
 赤城被各种二设洗脑，看到动画里的女神范儿，满满的违和感</blockquote>
 估计帅不过三集……
-
-
-
-
-
 
 
 -----
@@ -7530,13 +4778,7 @@ poi挺不错的，其他的听起来总感觉有股违和感不过作画啥都�
 ##### 412#       发表于 2015-1-8 00:51
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">我现在加贺已经各种脑补上季那个kuma控
-
-
-
-
-
 
 
 -----
@@ -7545,14 +4787,7 @@ poi挺不错的，其他的听起来总感觉有股违和感不过作画啥都�
 ##### 413#       发表于 2015-1-8 00:51
 
 
-
-
 瞧这最上，期待挨个还原大破<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7561,14 +4796,7 @@ poi挺不错的，其他的听起来总感觉有股违和感不过作画啥都�
 ##### 414#       发表于 2015-1-8 00:52
 
 
-
-
 深海驱逐太大了  那主炮都赶上BB了<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7577,16 +4805,10 @@ poi挺不错的，其他的听起来总感觉有股违和感不过作画啥都�
 ##### 415#       发表于 2015-1-8 00:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27717906&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-8 00:44</a>
 
 为啥选吹雪做女主呢？？  她很好用潜力大么？</blockquote>
 因为欠雷游戏和漫画都是主角……你现在把它换了……
-
-
-
-
-
 
 
 -----
@@ -7595,20 +4817,13 @@ poi挺不错的，其他的听起来总感觉有股违和感不过作画啥都�
 ##### 416#       发表于 2015-1-8 00:52
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  maxwell_goblin  
 ##### 417#       发表于 2015-1-8 00:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27717906&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-8 00:44</a>
@@ -7621,16 +4836,10 @@ poi挺不错的，其他的听起来总感觉有股违和感不过作画啥都�
 之前官方的四格叫《加油！吹雪》，大概也是这个原因
 
 
-
-
-
-
-
 -----
 
 ####  erlic  
 ##### 418#       发表于 2015-1-8 00:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27717887&amp;ptid=1009008" target="_blank">★ARCHER☆ 发表于 2015-1-8 00:40</a>
@@ -7639,16 +4848,10 @@ poi挺不错的，其他的听起来总感觉有股违和感不过作画啥都�
 也难怪你刚出加贺就喂给赤城了
 
 
-
-
-
-
-
 -----
 
 ####  ★ARCHER☆  
 ##### 419#       发表于 2015-1-8 00:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27717965&amp;ptid=1009008" target="_blank">erlic 发表于 2015-1-8 00:54</a>
@@ -7657,16 +4860,10 @@ poi挺不错的，其他的听起来总感觉有股违和感不过作画啥都�
 这种黑历史就不要再提起了··· 话说 我还没回家 在外看的动画  休息下回家···
 
 
-
-
-
-
-
 -----
 
 ####  ynkpd  
 ##### 420#       发表于 2015-1-8 00:59
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/13.gif" referrerpolicy="no-referrer">看了生肉好赞！！期待之后保持这个水准！！
@@ -7675,32 +4872,19 @@ poi挺不错的，其他的听起来总感觉有股违和感不过作画啥都�
 就是我头像这两位不会真的没有戏份吧……好歹也算是挺有人气的组合啦……<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  algorithms  
 ##### 421#       发表于 2015-1-8 01:04
 
 
-
-
 变身那段笑死我了。。。
-
-
-
-
-
 
 
 -----
 
 ####  虫之诗歌  
 ##### 422#       发表于 2015-1-8 01:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27717995&amp;ptid=1009008" target="_blank">ynkpd 发表于 2015-1-8 00:59</a>
@@ -7712,25 +4896,13 @@ poi挺不错的，其他的听起来总感觉有股违和感不过作画啥都�
 很有可能真的变成路过打酱油的
 
 
-
-
-
-
-
 -----
 
 ####  加賀  
 ##### 423#       发表于 2015-1-8 01:04
 
 
-
-
 不愧是我家赤城。
-
-
-
-
-
 
 
 -----
@@ -7739,24 +4911,16 @@ poi挺不错的，其他的听起来总感觉有股违和感不过作画啥都�
 ##### 424#       发表于 2015-1-8 01:09
 
 
-
  本帖最后由 村雨零 于 2015-1-7 18:13 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27717647&amp;ptid=1009008" target="_blank">白武男 发表于 2015-1-7 16:57</a>
 
 话说有爷爷辈的亲人在淞沪会战中被加贺的舰载机炸死的人看了这片会什么感想？ </blockquote>大概和有爷爷辈的亲人在南京大屠杀中被第六师团的熊本兵杀害的人看到熊本县贸易协会上海代表处成立仪式上的くまモン的感想差不多吧。<img src="https://static.saraba1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 425#       发表于 2015-1-8 01:10
-
-
 
 
 我看了下動畫版的設定
@@ -7792,16 +4956,10 @@ poi挺不错的，其他的听起来总感觉有股违和感不过作画啥都�
 吹雪の、そして艦娘たちの物語が、今始まります。
 
 
-
-
-
-
-
 -----
 
 ####  gary76  
 ##### 426#       发表于 2015-1-8 01:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27718017&amp;ptid=1009008" target="_blank">加賀 发表于 2015-1-8 01:04</a>
@@ -7810,25 +4968,13 @@ poi挺不错的，其他的听起来总感觉有股违和感不过作画啥都�
 加賀老師你全裸待機了一年多啊！
 
 
-
-
-
-
-
 -----
 
 ####  len曦  
 ##### 427#       发表于 2015-1-8 01:12
 
 
-
-
 wo酱帅炸了！
-
-
-
-
-
 
 
 -----
@@ -7837,14 +4983,7 @@ wo酱帅炸了！
 ##### 428#       发表于 2015-1-8 01:13
 
 
-
-
 拿个开玩笑很sb。
-
-
-
-
-
 
 
 -----
@@ -7853,16 +4992,9 @@ wo酱帅炸了！
 ##### 429#       发表于 2015-1-8 01:14
 
 
-
-
 快把游戏里那个蓝孩子立绘换了！<img src="https://static.saraba1st.com/image/smiley/face/01.gif" referrerpolicy="no-referrer">
 
 <img src="http://ww4.sinaimg.cn/mw690/abbcfc23jw1eo1gigyeluj213d1f4aj6.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7871,23 +5003,15 @@ wo酱帅炸了！
 ##### 430#       发表于 2015-1-8 01:18
 
 
-
-
 坐等anti厨引战（棒）
 
 あくしろよ
-
-
-
-
-
 
 
 -----
 
 ####  飞饼  
 ##### 431#       发表于 2015-1-8 01:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27718052&amp;ptid=1009008" target="_blank">D-JoeII 发表于 2015-1-8 01:10</a>
@@ -7898,32 +5022,19 @@ wo酱帅炸了！
 隔壁的黑科技太猛了啊，真实系和超级系的差距，拿伊欧娜推图不要太爽
 
 
-
-
-
-
-
 -----
 
 ####  萨尤克  
 ##### 432#       发表于 2015-1-8 01:23
 
 
-
-
 第一话感觉就是长门=提督，陆奥=秘书舰，真提督也可以不用出来啦…
-
-
-
-
-
 
 
 -----
 
 ####  ynkpd  
 ##### 433#       发表于 2015-1-8 01:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27718016&amp;ptid=1009008" target="_blank">虫之诗歌 发表于 2015-1-8 01:04</a>
@@ -7934,25 +5045,13 @@ wo酱帅炸了！
 就怕和第一话一样完全没出场……
 
 
-
-
-
-
-
 -----
 
 ####  orangee  
 ##### 434#       发表于 2015-1-8 01:34
 
 
-
-
 真没叢云什么事啊……就翻出击牌子的时候看到闪过去了……暴死吧暴死吧……
-
-
-
-
-
 
 
 -----
@@ -7961,14 +5060,7 @@ wo酱帅炸了！
 ##### 435#       发表于 2015-1-8 01:40
 
 
-
-
 天津风居然没出场，暴死吧
-
-
-
-
-
 
 
 -----
@@ -7977,14 +5069,7 @@ wo酱帅炸了！
 ##### 436#       发表于 2015-1-8 01:50
 
 
-
-
 天津风会有的 丛云也会有的 嘛嘛……
-
-
-
-
-
 
 
 -----
@@ -7993,21 +5078,13 @@ wo酱帅炸了！
 ##### 437#       发表于 2015-1-8 01:55
 
 
-
-
 我这种只靠本子认舰娘的，你们说的有些船我都没听过……
-
-
-
-
-
 
 
 -----
 
 ####  蕾咪莉亚  
 ##### 438#       发表于 2015-1-8 01:57
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">大凤萝莉你在哪里
@@ -8019,25 +5096,13 @@ wo酱帅炸了！
 非提的血泪<img src="https://static.saraba1st.com/image/smiley/dym/147.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  断头台  
 ##### 439#       发表于 2015-1-8 02:00
 
 
-
-
 就看过本子得到表示，划水战斗太二了
-
-
-
-
-
 
 
 -----
@@ -8046,20 +5111,13 @@ wo酱帅炸了！
 ##### 440#       发表于 2015-1-8 02:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">佐仓8役 东山5役
-
-
-
-
-
 
 
 -----
 
 ####  sgpt55  
 ##### 441#       发表于 2015-1-8 02:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27718220&amp;ptid=1009008" target="_blank">蕾咪莉亚 发表于 2015-1-8 01:57</a>
@@ -8073,32 +5131,19 @@ wo酱帅炸了！
 不过最近一次连打造战舰出的都是傻级就是了
 
 
-
-
-
-
-
 -----
 
 ####  あかつき  
 ##### 442#       发表于 2015-1-8 02:09
 
 
-
-
 誰に言ってるのかしら<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  蕾咪莉亚  
 ##### 443#       发表于 2015-1-8 02:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27718248&amp;ptid=1009008" target="_blank">sgpt55 发表于 2015-1-8 02:08</a>
@@ -8112,32 +5157,19 @@ wo酱帅炸了！
 部落的辛酸苦泪你们懂吗<img src="https://static.saraba1st.com/image/smiley/nq/001.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  王师  
 ##### 444#       发表于 2015-1-8 02:21
 
 
-
-
 赤城这完全就是驱逐舰们的女神嘛
-
-
-
-
-
 
 
 -----
 
 ####  sgpt55  
 ##### 445#       发表于 2015-1-8 02:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27718260&amp;ptid=1009008" target="_blank">蕾咪莉亚 发表于 2015-1-8 02:14</a>
@@ -8151,16 +5183,10 @@ wo酱帅炸了！
 话说1-5的明石掉落是不是秋活过后就取消了？本想再捞一艘
 
 
-
-
-
-
-
 -----
 
 ####  maxwell_goblin  
 ##### 446#       发表于 2015-1-8 02:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27718248&amp;ptid=1009008" target="_blank">sgpt55 发表于 2015-1-8 02:08</a>
@@ -8171,16 +5197,10 @@ wo酱帅炸了！
 主要是耗铝，连续若干发不出之后让人受不了
 
 
-
-
-
-
-
 -----
 
 ####  Futanari  
 ##### 447#       发表于 2015-1-8 02:23
-
 
 
  本帖最后由 Futanari 于 2015-1-8 02:25 编辑 
@@ -8191,25 +5211,13 @@ wo酱帅炸了！
 希望动画里的深海舰队给力点 ，集集让舰娘大破出服务画面。
 
 
-
-
-
-
-
 -----
 
 ####  eva02eva02  
 ##### 448#       发表于 2015-1-8 02:25
 
 
-
-
 娇喘真有钱，是不是能看到天叢雲劍了<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8218,23 +5226,16 @@ wo酱帅炸了！
 ##### 449#       发表于 2015-1-8 02:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27718279&amp;ptid=1009008" target="_blank">maxwell_goblin 发表于 2015-1-8 02:23</a>
 
 主要是耗铝，连续若干发不出之后让人受不了</blockquote>
 是啊 我现在20w弹药 1w铝…… 弹药永远不可能在紫菜和铝之前用完 不过我很少远征跑铝就是了
 
 
-
-
-
-
-
 -----
 
 ####  sgpt55  
 ##### 450#       发表于 2015-1-8 02:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27718260&amp;ptid=1009008" target="_blank">蕾咪莉亚 发表于 2015-1-8 02:14</a>
@@ -8246,16 +5247,10 @@ wo酱帅炸了！
 话说我出大凤之前没听过语音 也不是很熟悉能登的声音 结果一上来感觉声音和脑补的不大一样还有点失望<img src="https://static.saraba1st.com/image/smiley/face/145.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  虫之诗歌  
 ##### 451#       发表于 2015-1-8 02:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27718294&amp;ptid=1009008" target="_blank">sgpt55 发表于 2015-1-8 02:29</a>
@@ -8264,16 +5259,10 @@ wo酱帅炸了！
 其实大凤和大鲸换一下CV我觉得比较好<img src="https://static.saraba1st.com/image/smiley/face/18.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  sgpt55  
 ##### 452#       发表于 2015-1-8 02:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27718304&amp;ptid=1009008" target="_blank">虫之诗歌 发表于 2015-1-8 02:34</a>
@@ -8282,25 +5271,13 @@ wo酱帅炸了！
 No&gt;&gt;大仓唯 亚达
 
 
-
-
-
-
-
 -----
 
 ####  Futanari  
 ##### 453#       发表于 2015-1-8 02:38
 
 
-
-
 妹魔王都有了，舰娘没生肉？
-
-
-
-
-
 
 
 -----
@@ -8309,23 +5286,16 @@ No&gt;&gt;大仓唯 亚达
 ##### 454#       发表于 2015-1-8 02:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27718310&amp;ptid=1009008" target="_blank">Futanari 发表于 2015-1-8 02:38</a>
 
 妹魔王都有了，舰娘没生肉？</blockquote>
 极影应该有了
 
 
-
-
-
-
-
 -----
 
 ####  三千院飒  
 ##### 455#       发表于 2015-1-8 02:41
-
 
 
 <blockquote>Futanari 发表于 2015-1-8 02:38
@@ -8335,24 +5305,13 @@ http://pan.baidu.com/s/1gdKku5d
 这个算的话 向日葵上也有
 
 
-
-
-
-
-
 -----
 
 ####  早乙女亂馬  
 ##### 456#       发表于 2015-1-8 02:52
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/26.gif" referrerpolicy="no-referrer">动画给了我好久没有的兴奋感觉
-
-
-
-
-
 
 
 -----
@@ -8361,14 +5320,7 @@ http://pan.baidu.com/s/1gdKku5d
 ##### 457#       发表于 2015-1-8 03:22
 
 
-
-
 这看到后来反倒更加同情泊地栖姬啊……
-
-
-
-
-
 
 
 -----
@@ -8377,14 +5329,7 @@ http://pan.baidu.com/s/1gdKku5d
 ##### 458#       发表于 2015-1-8 03:36
 
 
-
-
 明明是13年的春活，但是头脑派和红茶厨是改二的，翔鹤也实装了.......
-
-
-
-
-
 
 
 -----
@@ -8393,17 +5338,10 @@ http://pan.baidu.com/s/1gdKku5d
 ##### 459#       发表于 2015-1-8 04:16
 
 
-
-
 看完，屌爆，霸权，爆卖
 
 
 一整年的周期没白花，这什么大片啊！
-
-
-
-
-
 
 
 -----
@@ -8412,14 +5350,7 @@ http://pan.baidu.com/s/1gdKku5d
 ##### 460#       发表于 2015-1-8 04:48
 
 
-
-
 好像把岛风和连装炮酱的出场砍了？
-
-
-
-
-
 
 
 -----
@@ -8428,13 +5359,7 @@ http://pan.baidu.com/s/1gdKku5d
 ##### 461#       发表于 2015-1-8 05:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">微博上看见有人开始喷3d建模渣的了 一fans向明显的番那么较真干嘛
-
-
-
-
-
 
 
 -----
@@ -8443,14 +5368,7 @@ http://pan.baidu.com/s/1gdKku5d
 ##### 462#       发表于 2015-1-8 05:13
 
 
-
-
 所以为什么有人黑卖拷贝！
-
-
-
-
-
 
 
 -----
@@ -8459,14 +5377,7 @@ http://pan.baidu.com/s/1gdKku5d
 ##### 463#       发表于 2015-1-8 06:19
 
 
-
-
 永远不要以为弹药永远不可能在紫菜和铝之前用完
-
-
-
-
-
 
 
 -----
@@ -8475,16 +5386,10 @@ http://pan.baidu.com/s/1gdKku5d
 ##### 464#       发表于 2015-1-8 07:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27718565&amp;ptid=1009008" target="_blank">Inle 发表于 2015-1-8 06:19</a>
 
 永远不要以为弹药永远不可能在紫菜和铝之前用完</blockquote>
 求dalao明示
-
-
-
-
-
 
 
 -----
@@ -8493,16 +5398,10 @@ http://pan.baidu.com/s/1gdKku5d
 ##### 465#       发表于 2015-1-8 07:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27718410&amp;ptid=1009008" target="_blank">8号鸡 发表于 2015-1-8 03:36</a>
 
 明明是13年的春活，但是头脑派和红茶厨是改二的，翔鹤也实装了.......</blockquote>
 雾岛没改二,就金刚,看头饰就能分出
-
-
-
-
-
 
 
 -----
@@ -8511,16 +5410,10 @@ http://pan.baidu.com/s/1gdKku5d
 ##### 466#       发表于 2015-1-8 07:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27717952&amp;ptid=1009008" target="_blank">mg3x1234 发表于 2015-1-8 00:52</a>
 
 深海驱逐太大了  那主炮都赶上BB了</blockquote>
 你怎么不吐糟川内神通的炮<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8529,14 +5422,7 @@ http://pan.baidu.com/s/1gdKku5d
 ##### 467#       发表于 2015-1-8 07:17
 
 
-
-
 当初说好的要把提督给做出来的呢....
-
-
-
-
-
 
 
 -----
@@ -8545,14 +5431,7 @@ http://pan.baidu.com/s/1gdKku5d
 ##### 468#       发表于 2015-1-8 07:34
 
 
-
-
 打泊地栖姬的时候那是联合舰队阵型了吧，吹雪竟然还想给赤城护航，到了晚上你们水雷舰队就是爸爸好吗
-
-
-
-
-
 
 
 -----
@@ -8561,16 +5440,9 @@ http://pan.baidu.com/s/1gdKku5d
 ##### 469#       发表于 2015-1-8 07:52
 
 
-
-
 [澄空学园&amp;华盟字幕社][1月新番] 舰队Collection 第01话 MP4 720p http://t.cn/RZMhU12 华盟澄空联合舰队，拔锚启航！
 
 熟肉
-
-
-
-
-
 
 
 -----
@@ -8579,14 +5451,7 @@ http://pan.baidu.com/s/1gdKku5d
 ##### 470#       发表于 2015-1-8 08:02
 
 
-
-
 Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8595,15 +5460,9 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 471#       发表于 2015-1-8 08:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=27718635&amp;amp;ptid=1009008" target="_blank">森兰丸 发表于 2015-1-8 07:17</a>
 当初说好的要把提督给做出来的呢....</blockquote>
 动画做出来的感觉是屏幕前的看官老爷都是提督 看吹雪最后回头喊司令官时那个特写 就是对屏幕外的人说的
-
-
-
-
-
 
 
 -----
@@ -8612,13 +5471,7 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 472#       发表于 2015-1-8 08:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">5航就那么点戏份...肯定大暴死。
-
-
-
-
-
 
 
 -----
@@ -8627,22 +5480,13 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 473#       发表于 2015-1-8 08:32
 
 
-
-
 只要不断出击弹药就能耗光啊，比如我现在肝夕立弹药估计要归零了
-
-
-
-
-
 
 
 -----
 
 ####  坂御美琴  
 ##### 474#       发表于 2015-1-8 08:42
-
-
 
 
 我会告诉你们我入坑这一个半月沉了3艘船，2艘是poi吗？
@@ -8656,27 +5500,15 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 <img src="https://static.saraba1st.com/image/smiley/face/38.gif" referrerpolicy="no-referrer">我操我继续肝一个poi去
 
 
-
-
-
-
-
 -----
 
 ####  winglace  
 ##### 475#       发表于 2015-1-8 08:47
 
 
-
-
 好看，碉堡，霸权！
 
 不过设定真奇怪，舰娘到底算啥玩意
-
-
-
-
-
 
 
 -----
@@ -8685,14 +5517,7 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 476#       发表于 2015-1-8 08:47
 
 
-
-
 比我想象的好看多了。。。
-
-
-
-
-
 
 
 -----
@@ -8701,22 +5526,15 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 477#       发表于 2015-1-8 08:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=27718760&amp;amp;ptid=1009008" target="_blank">samq 发表于 2015-1-8 08:13</a>
 5航就那么点戏份...肯定大暴死。</blockquote>
 草川说过他本命就是小姨 田中吐槽果监督给小姨加了不少戏份
-
-
-
-
-
 
 
 -----
 
 ####  charlygaol  
 ##### 478#       发表于 2015-1-8 09:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=27718891&amp;amp;ptid=1009008" target="_blank">winglace 发表于 2015-1-8 08:47</a>
@@ -8726,16 +5544,10 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 这只是一个服务fans的片，就不要深究什么设定和合理性了，只要能上船就好
 
 
-
-
-
-
-
 -----
 
 ####  winglace  
 ##### 479#       发表于 2015-1-8 09:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27718968&amp;ptid=1009008" target="_blank">charlygaol 发表于 2015-1-8 09:01</a>
@@ -8744,26 +5556,15 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 嗯，除了莫名其妙的设定以外其余都不错，谢解答
 
 
-
-
-
-
-
 -----
 
 ####  hac0101  
 ##### 480#       发表于 2015-1-8 09:17
 
 
-
  本帖最后由 hac0101 于 2015-1-8 09:18 编辑 
 
 泊地栖[姬](http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E6%B3%8A%E5%9C%B0%E6%A3%B2%E5%A7%AC)好美，现在叛变到敌方不算迟吧。
-
-
-
-
-
 
 
 -----
@@ -8772,14 +5573,7 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 481#       发表于 2015-1-8 09:17
 
 
-
-
 没戏份哭哭哦
-
-
-
-
-
 
 
 -----
@@ -8788,14 +5582,7 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 482#       发表于 2015-1-8 09:21
 
 
-
-
 深海提督招聘，对抗舰娘暴政，守护海洋环境。现在加入送北方幼女一只
-
-
-
-
-
 
 
 -----
@@ -8804,14 +5591,7 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 483#       发表于 2015-1-8 09:21
 
 
-
-
 深海提督招聘，对抗舰娘暴政，守护海洋环境。现在加入送北方幼女一只
-
-
-
-
-
 
 
 -----
@@ -8820,16 +5600,10 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 484#       发表于 2015-1-8 09:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=27719018&amp;amp;ptid=1009008" target="_blank">winglace 发表于 2015-1-8 09:09</a>
 嗯，除了莫名其妙的设定以外其余都不错，谢解答</blockquote>
 全部套用飞天小裤裤的设定没任何问题
 把501换成联合舰队 把异型军换成深海军 把飞行脚换成舣装即可
-
-
-
-
-
 
 
 -----
@@ -8838,14 +5612,7 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 485#       发表于 2015-1-8 09:32
 
 
-
-
 会动的舰娘好棒好棒，别的完全无所谓啦
-
-
-
-
-
 
 
 -----
@@ -8854,14 +5621,7 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 486#       发表于 2015-1-8 09:35
 
 
-
-
 初动如L，累平如e，起航如阳，不动如箱，一月霸权，当属舰娘
-
-
-
-
-
 
 
 -----
@@ -8870,16 +5630,10 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 487#       发表于 2015-1-8 09:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27719066&amp;ptid=1009008" target="_blank">武蔵 发表于 2015-1-8 09:17</a>
 
 没戏份哭哭哦</blockquote>
 你有戏份了该换长门哭哭了
-
-
-
-
-
 
 
 -----
@@ -8888,14 +5642,7 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 488#       发表于 2015-1-8 09:42
 
 
-
-
 动画做的很好，不过角色台词生搬硬套花田你个傻逼<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8904,16 +5651,10 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 489#       发表于 2015-1-8 09:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27719211&amp;ptid=1009008" target="_blank">chenyedgg 发表于 2015-1-8 09:42</a>
 
 动画做的很好，不过角色台词生搬硬套花田你个傻逼</blockquote>
 同感
-
-
-
-
-
 
 
 -----
@@ -8922,16 +5663,9 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 490#       发表于 2015-1-8 09:52
 
 
-
-
 佐仓大法好
 
 ——— 来自[Stage1st Reader For iOS](http://itunes.apple.com/us/app/stage1st-reader/id509916119?mt=8)
-
-
-
-
-
 
 
 -----
@@ -8940,14 +5674,7 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 491#       发表于 2015-1-8 09:56
 
 
-
-
 还没看，先马克跑个远征<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8956,14 +5683,7 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 492#       发表于 2015-1-8 10:02
 
 
-
-
 东山大法好~
-
-
-
-
-
 
 
 -----
@@ -8972,23 +5692,16 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 493#       发表于 2015-1-8 10:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=27719211&amp;amp;ptid=1009008" target="_blank">chenyedgg 发表于 2015-1-8 09:42</a>
 动画做的很好，不过角色台词生搬硬套花田你个傻逼</blockquote>
 同感+10086
 老师就三句台词 有两句是一样的 还特么是游戏台词 
 
 
-
-
-
-
-
 -----
 
 ####  Inle  
 ##### 494#       发表于 2015-1-8 10:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27719211&amp;ptid=1009008" target="_blank">chenyedgg 发表于 2015-1-8 09:42</a>
@@ -8998,25 +5711,13 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 当初我说side 金刚同样有这个问题时还被人喷这是还原游戏……不过目前动画第一集来看还算可接受
 
 
-
-
-
-
-
 -----
 
 ####  欧洲提督  
 ##### 495#       发表于 2015-1-8 10:12
 
 
-
-
 全是99舰爆的非提
-
-
-
-
-
 
 
 -----
@@ -9025,15 +5726,9 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 496#       发表于 2015-1-8 10:19
 
 
-
  本帖最后由 fantuanhtr 于 2015-1-8 10:22 编辑 
 
 真正滑行打架看着还是挺搞笑的....做的是很不错，出击让我想起樱战（虽然很不同）。但是花田大大，真的是垃圾。
-
-
-
-
-
 
 
 -----
@@ -9042,16 +5737,9 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 497#       发表于 2015-1-8 10:46
 
 
-
-
 这STAFF靠脑洞硬凹出来的出击演出简直是……
 
 好时髦啊！<img src="https://static.saraba1st.com/image/smiley/face/74.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9060,16 +5748,9 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 498#       发表于 2015-1-8 10:46
 
 
-
-
 加贺这声音……
 
 对原作台词有意见是因为你们玩太多了，一般人才听不出来呢！
-
-
-
-
-
 
 
 -----
@@ -9078,15 +5759,9 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 499#       发表于 2015-1-8 10:58
 
 
-
 <blockquote>武蔵 发表于 2015-1-8 09:17
 没戏份哭哭哦</blockquote>
 按照游戏进度来说。。先得是你姐姐，大和到任
-
-
-
-
-
 
 
 -----
@@ -9095,16 +5770,10 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 500#       发表于 2015-1-8 10:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27719066&amp;ptid=1009008" target="_blank">武蔵 发表于 2015-1-8 09:17</a>
 
 没戏份哭哭哦</blockquote>
 大胸眼镜快到碗里来。
-
-
-
-
-
 
 
 -----
@@ -9113,23 +5782,15 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 501#       发表于 2015-1-8 11:02
 
 
-
-
 佐仓你好忙啊，除了曾哥全到齐了...<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 顺便这个舾装的安装方式...你确定大船不会被当场撞出内伤？<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  warlock228  
 ##### 502#       发表于 2015-1-8 11:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=27719769&amp;amp;ptid=1009008" target="_blank">里村紅葉 发表于 2015-1-8 11:02</a>
@@ -9139,16 +5800,10 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 扶桑山城会死在弹射台
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 503#       发表于 2015-1-8 11:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27718304&amp;ptid=1009008" target="_blank">虫之诗歌 发表于 2015-1-8 02:34</a>
@@ -9157,16 +5812,10 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 你和大凤是多大仇?要让老仓唯去配大凤?
 
 
-
-
-
-
-
 -----
 
 ####  しまかぜ  
 ##### 504#       发表于 2015-1-8 11:15
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">真TM好看
@@ -9175,33 +5824,19 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  maxwell_goblin  
 ##### 505#       发表于 2015-1-8 11:15
 
 
-
-
 原来大鲸鱼声优是小仓唯……
-
-
-
-
-
 
 
 -----
 
 ####  浴缸子  
 ##### 506#       发表于 2015-1-8 11:17
-
-
 
 
 没玩游戏的表示很不错啊，滑水的动作变多了以后感觉看着舒服了不少，出击那段和钢铁侠挺像的。不过一直以为是类似苍蓝那样的军舰变成人，没想到是小裤裤那样的人披上军舰的外皮啊，挺意外的。
@@ -9213,17 +5848,10 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 弓道场赤城那一箭，是想表达飞机打不了正前方的目标么？
 
 
-
-
-
-
-
 -----
 
 ####  佐仓绫音  
 ##### 507#       发表于 2015-1-8 11:24
-
-
 
 
 小菜一碟
@@ -9232,17 +5860,10 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  东山奈央  
 ##### 508#       发表于 2015-1-8 11:24
-
-
 
 
 嘛嘛……
@@ -9251,17 +5872,10 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  上坂堇  
 ##### 509#       发表于 2015-1-8 11:25
-
-
 
 
 哈哈哈哈哈哈哈 哈啦…………
@@ -9270,25 +5884,13 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  上条とま  
 ##### 510#       发表于 2015-1-8 11:28
 
 
-
-
 作画质量意外的不错，不过能保持几集就不知道了
-
-
-
-
-
 
 
 -----
@@ -9297,13 +5899,7 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 511#       发表于 2015-1-8 11:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/dym/148.gif" referrerpolicy="no-referrer"> 这么展示戏服也是酷炫
-
-
-
-
-
 
 
 -----
@@ -9312,22 +5908,13 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 512#       发表于 2015-1-8 11:29
 
 
-
-
 佐仓你拿了井口的台词本了吧……
-
-
-
-
-
 
 
 -----
 
 ####  omin2  
 ##### 513#       发表于 2015-1-8 11:41
-
-
 
 
 真好看，会动的舰娘已经令人泪流满面了，而且日常和战斗画面做得也好看，赞!!
@@ -9339,25 +5926,13 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 再说装备，这时候的提督应该还是菜鸟，使用的装备没有什么高级货，炮都是小炮/单装炮，鱼雷只有4连装，飞机都是什么九九式，九七式，零戦21之类的，反而高速战舰们用上了彻甲弹倒是不错。不过本话提督过了春活，应该会拿到震电改了，真羡慕
 
 
-
-
-
-
-
 -----
 
 ####  源·千华留  
 ##### 514#       发表于 2015-1-8 11:47
 
 
-
-
 东山太累了 这么多人
-
-
-
-
-
 
 
 -----
@@ -9366,14 +5941,7 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 515#       发表于 2015-1-8 12:00
 
 
-
-
 昨晚看到个WO级的截图，我还看啥舰娘啊投敌不可避…T_T
-
-
-
-
-
 
 
 -----
@@ -9382,14 +5950,7 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 516#       发表于 2015-1-8 12:00
 
 
-
-
 昨晚看到个WO级的截图，我还看啥舰娘啊投敌不可避…T_T
-
-
-
-
-
 
 
 -----
@@ -9398,14 +5959,7 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 517#       发表于 2015-1-8 12:16
 
 
-
-
 大家都好可爱啊！<img src="https://static.saraba1st.com/image/smiley/face/13.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9414,14 +5968,7 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 518#       发表于 2015-1-8 12:17
 
 
-
-
 画面什么的还能接受，台词实在太蠢了，完全前言不搭后语像是在看大型mad，尤其是响爷那句
-
-
-
-
-
 
 
 -----
@@ -9430,14 +5977,7 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 519#       发表于 2015-1-8 12:29
 
 
-
-
 好看也 加贺老师穿舰装的时候真的帅帅帅ww 好想看poi 川内 木曾改二
-
-
-
-
-
 
 
 -----
@@ -9446,14 +5986,7 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 520#       发表于 2015-1-8 12:34
 
 
-
-
 比想象中有趣，本来不抱啥期望的
-
-
-
-
-
 
 
 -----
@@ -9462,14 +5995,7 @@ Wo酱prpr<img src="https://static.saraba1st.com/image/smiley/face/119.gif" refer
 ##### 521#       发表于 2015-1-8 12:37
 
 
-
-
 poi熊太可爱了poi
-
-
-
-
-
 
 
 -----
@@ -9478,22 +6004,13 @@ poi熊太可爱了poi
 ##### 522#       发表于 2015-1-8 12:58
 
 
-
-
 虽然提督没露脸，但是已经定性为“坑蒙拐骗未成年无知少女上战场”的丑恶形象了
-
-
-
-
-
 
 
 -----
 
 ####  九十九尾  
 ##### 523#       发表于 2015-1-8 12:59
-
-
 
 
 哎哟我天这好评如潮，真是大霸权啊
@@ -9515,16 +6032,10 @@ poi熊太可爱了poi
 碟，我认为带活动抽选的第1卷可能能卖个几千左右，其他可能也顶多就是1~2千吧
 
 
-
-
-
-
-
 -----
 
 ####  loyoki  
 ##### 524#       发表于 2015-1-8 12:59
-
 
 
 <blockquote>引用第482楼nowaki于2015-01-08 09:21发表的  :
@@ -9538,16 +6049,10 @@ poi熊太可爱了poi
 ----发送自 [YuLong Coolpad 8675,Android 4.4.2](http://stage1.5j4m.com/?1.17) 
 
 
-
-
-
-
-
 -----
 
 ####  winglace  
 ##### 525#       发表于 2015-1-8 13:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27720633&amp;ptid=1009008" target="_blank">九十九尾 发表于 2015-1-8 12:59</a>
@@ -9560,16 +6065,10 @@ poi熊太可爱了poi
 我没玩过游戏，所以觉得第一话看得有点不明所以，就像一万块的寿司，一口气给你塞十个到嘴里，根本嚼不过来。但回过头来想一下，论时髦值和画面水准，就当个MV看了也不亏（当然买不买还要另说）。
 
 
-
-
-
-
-
 -----
 
 ####  gary76  
 ##### 526#       发表于 2015-1-8 13:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27718870&amp;ptid=1009008" target="_blank">坂御美琴 发表于 2015-1-8 08:42</a>
@@ -9581,16 +6080,10 @@ poi熊太可爱了poi
 還好我入坑一年沉的都是死庫水23333
 
 
-
-
-
-
-
 -----
 
 ####  shihomasturi  
 ##### 527#       发表于 2015-1-8 13:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27720633&amp;ptid=1009008" target="_blank">九十九尾 发表于 2015-1-8 12:59</a>
@@ -9603,16 +6096,10 @@ poi熊太可爱了poi
 邮局港剧，舰娘把游戏玩家服务好，估计这个群体就比其他深夜番要大了。
 
 
-
-
-
-
-
 -----
 
 ####  虫之诗歌  
 ##### 528#       发表于 2015-1-8 13:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27720440&amp;ptid=1009008" target="_blank">吃货红毛 发表于 2015-1-8 12:29</a>
@@ -9621,31 +6108,19 @@ poi熊太可爱了poi
 球磨级5只就差曾哥了，我估计曾哥会直接改二造型出场
 
 
-
-
-
-
-
 -----
 
 ####  yone0000  
 ##### 529#       发表于 2015-1-8 14:02
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton/172.jpg" referrerpolicy="no-referrer">虽然变身画面战斗画面很良心但总感觉这样一本正经的打妻舰好羞耻啊……
-
-
-
-
-
 
 
 -----
 
 ####  九十九尾  
 ##### 530#       发表于 2015-1-8 14:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27720820&amp;ptid=1009008" target="_blank">shihomasturi 发表于 2015-1-8 13:26</a>
@@ -9664,32 +6139,19 @@ poi熊太可爱了poi
 水上滑行、变身、射箭、核爆等等地方不如说是搞笑值
 
 
-
-
-
-
-
 -----
 
 ####  sinfor  
 ##### 531#       发表于 2015-1-8 14:17
 
 
-
-
 女主是不是太小白？ 我比较喜欢那种出场能力值就超高的魔王级女主
-
-
-
-
-
 
 
 -----
 
 ####  shihomasturi  
 ##### 532#       发表于 2015-1-8 14:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27721051&amp;ptid=1009008" target="_blank">九十九尾 发表于 2015-1-8 14:04</a>
@@ -9702,16 +6164,10 @@ poi熊太可爱了poi
 官方数据是现在登录的账号有240w。
 
 
-
-
-
-
-
 -----
 
 ####  解読不能  
 ##### 533#       发表于 2015-1-8 14:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27721148&amp;ptid=1009008" target="_blank">sinfor 发表于 2015-1-8 14:17</a>
@@ -9720,25 +6176,13 @@ poi熊太可爱了poi
 女主是阿卡林，在游戏里就是拿来开图鉴然后喂掉甚至初选妹子里也不被人推荐的存在，不过明天改二....会是什么样子还很难说
 
 
-
-
-
-
-
 -----
 
 ####  易烊千玺  
 ##### 534#       发表于 2015-1-8 14:31
 
 
-
-
 523楼是不是回错楼了 百合熊的楼在隔壁
-
-
-
-
-
 
 
 -----
@@ -9747,16 +6191,10 @@ poi熊太可爱了poi
 ##### 535#       发表于 2015-1-8 14:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27721190&amp;ptid=1009008" target="_blank">shihomasturi 发表于 2015-1-8 14:25</a>
 
 官方数据是现在登录的账号有240w。</blockquote>
 日语的“登録”=注册
-
-
-
-
-
 
 
 -----
@@ -9765,14 +6203,7 @@ poi熊太可爱了poi
 ##### 536#       发表于 2015-1-8 14:36
 
 
-
-
 讨论受众和销量请去销量串谢谢，好好一个动画楼，进来个阴阳怪气钓鱼的你们也咬钩<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9781,21 +6212,13 @@ poi熊太可爱了poi
 ##### 537#       发表于 2015-1-8 14:38
 
 
-
-
 棒棒棒！今年就靠这个活了
-
-
-
-
-
 
 
 -----
 
 ####  sephal  
 ##### 538#       发表于 2015-1-8 14:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27720633&amp;ptid=1009008" target="_blank">九十九尾 发表于 2015-1-8 12:59</a>
@@ -9817,25 +6240,13 @@ poi熊太可爱了poi
 决定再看两集看能不能接受设定，不行就弃了
 
 
-
-
-
-
-
 -----
 
 ####  lovehinalove  
 ##### 539#       发表于 2015-1-8 14:45
 
 
-
-
 为什么爱宕那画面是3d的！为！什！么！
-
-
-
-
-
 
 
 -----
@@ -9844,21 +6255,13 @@ poi熊太可爱了poi
 ##### 540#       发表于 2015-1-8 14:45
 
 
-
-
 爱露屁股……´д` 
-
-
-
-
-
 
 
 -----
 
 ####  蕾咪莉亚  
 ##### 541#       发表于 2015-1-8 14:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27720346&amp;ptid=1009008" target="_blank">大和 发表于 2015-1-8 12:16</a>
@@ -9870,25 +6273,13 @@ poi熊太可爱了poi
 非提喜极而泣<img src="https://static.saraba1st.com/image/smiley/face/181.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  BloodWingS  
 ##### 542#       发表于 2015-1-8 14:46
 
 
-
-
 群里有人说过这个问题，每天登陆只打演习跑远征0出击累积到战果1后排名1W8，可以视作本服有1W8每天登陆的活跃玩家，那么19个服务器至少20-30W活跃人数应该是没跑的
-
-
-
-
-
 
 
 -----
@@ -9897,21 +6288,13 @@ poi熊太可爱了poi
 ##### 543#       发表于 2015-1-8 14:48
 
 
-
-
 第一集打掉了13年春活，下面日常两话是不是就该打夏活了，然后伞姐出场？
-
-
-
-
-
 
 
 -----
 
 ####  sgpt55  
 ##### 544#       发表于 2015-1-8 14:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27721330&amp;ptid=1009008" target="_blank">蕾咪莉亚 发表于 2015-1-8 14:46</a>
@@ -9923,16 +6306,10 @@ poi熊太可爱了poi
 恭喜脱离部落 我还没大和呢 今天低保连打8发又出了阿贺野哭哭
 
 
-
-
-
-
-
 -----
 
 ####  winglace  
 ##### 545#       发表于 2015-1-8 14:51
-
 
 
  本帖最后由 winglace 于 2015-1-8 15:01 编辑 
@@ -9951,17 +6328,10 @@ poi熊太可爱了poi
 时髦值方面水中出击、变身还有武装设计我觉得点子都不错，至少在少女兵器题材里算是第一次见。我觉得搞笑和时髦应该不是一个概念（我自己挺不能接受的，因为片子里根本就没解释这东西到底咋回事）。
 
 
-
-
-
-
-
 -----
 
 ####  nekomi  
 ##### 546#       发表于 2015-1-8 14:59
-
-
 
 
 没玩过原作（但知道是个什么游戏）表示不知道为什么就是看得很爽，追了
@@ -9969,16 +6339,10 @@ poi熊太可爱了poi
 台词的话没觉得有违和_(:з」∠)_
 
 
-
-
-
-
-
 -----
 
 ####  非洲提督  
 ##### 547#       发表于 2015-1-8 15:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27721330&amp;ptid=1009008" target="_blank">蕾咪莉亚 发表于 2015-1-8 14:46</a>
@@ -9990,16 +6354,10 @@ poi熊太可爱了poi
 叛徒！<img src="https://static.saraba1st.com/image/smiley/face/74.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  王师  
 ##### 548#       发表于 2015-1-8 15:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27721270&amp;ptid=1009008" target="_blank">charlygaol 发表于 2015-1-8 14:36</a>
@@ -10008,16 +6366,10 @@ poi熊太可爱了poi
 这楼会绝对会讨论销量的
 
 
-
-
-
-
-
 -----
 
 ####  九十九尾  
 ##### 549#       发表于 2015-1-8 15:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27721365&amp;ptid=1009008" target="_blank">winglace 发表于 2015-1-8 14:51</a>
@@ -10044,16 +6396,10 @@ poi熊太可爱了poi
 那动画楼讨论啥，动画楼就是夸夸夸，赞赞赞的帖子呗？
 
 
-
-
-
-
-
 -----
 
 ####  大和  
 ##### 550#       发表于 2015-1-8 15:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27721330&amp;ptid=1009008" target="_blank">蕾咪莉亚 发表于 2015-1-8 14:46</a>
@@ -10065,16 +6411,10 @@ poi熊太可爱了poi
 感谢惠顾。<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  shihomasturi  
 ##### 551#       发表于 2015-1-8 15:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27721333&amp;ptid=1009008" target="_blank">BloodWingS 发表于 2015-1-8 14:46</a>
@@ -10083,16 +6423,10 @@ poi熊太可爱了poi
 你这么算肯定不准，两个月前我登别人11战果的号在我们服（塔威塔威）还有2w3的排名呢，每个服务器情况都不同。
 
 
-
-
-
-
-
 -----
 
 ####  winglace  
 ##### 552#       发表于 2015-1-8 15:21
-
 
 
 <blockquote>九十九尾 发表于 1 分钟前<[img src="static/image/common/back.gif" referrerpolicy="no-referrer">
@@ -10105,17 +6439,10 @@ poi熊太可爱了poi
 ——发送自[S1 Pluto](https://itunes.apple.com/cn/app/s1-pluto/id889820003?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  storm  
 ##### 553#       发表于 2015-1-8 15:25
-
-
 
 
 那么问题来了，这个镇守府的初始舰是谁呢？
@@ -10131,16 +6458,10 @@ poi熊太可爱了poi
 第一艘初始舰和第一艘婚舰队玩家都是最特殊的
 
 
-
-
-
-
-
 -----
 
 ####  xuesong1105  
 ##### 554#       发表于 2015-1-8 15:34
-
 
 
 <blockquote>storm 发表于 2015-1-8 15:25
@@ -10152,17 +6473,10 @@ poi熊太可爱了poi
 五月雨那酱油打的，怎么看都是电吧。除非这个提督以前是个粪提，新上任的其实是吹雪二号机→_→
 
 
-
-
-
-
-
 -----
 
 ####  thez  
 ##### 555#       发表于 2015-1-8 15:35
-
-
 
 
 本来对这片没啥兴趣，但看了截图又感兴趣了，求字幕组推荐<img src="https://static.saraba1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer">
@@ -10171,32 +6485,19 @@ poi熊太可爱了poi
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  collincollin  
 ##### 556#       发表于 2015-1-8 15:36
 
 
-
-
 榊原女王这酱油打的
-
-
-
-
-
 
 
 -----
 
 ####  xuesong1105  
 ##### 557#       发表于 2015-1-8 15:37
-
 
 
 <blockquote>thez 发表于 2015-1-8 15:35
@@ -10207,16 +6508,10 @@ poi熊太可爱了poi
 千夏，基本都是提督大佬在做字幕
 
 
-
-
-
-
-
 -----
 
 ####  九十九尾  
 ##### 558#       发表于 2015-1-8 15:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27721544&amp;ptid=1009008" target="_blank">winglace 发表于 2015-1-8 15:21</a>
@@ -10239,16 +6534,10 @@ poi熊太可爱了poi
 右下角上标上“完”就完美了
 
 
-
-
-
-
-
 -----
 
 ####  wchx_1989  
 ##### 559#       发表于 2015-1-8 15:44
-
 
 
 <blockquote>shihomasturi 发表于 2015-1-8 17:20
@@ -10268,16 +6557,10 @@ poi熊太可爱了poi
 大概就这样
 
 
-
-
-
-
-
 -----
 
 ####  shihomasturi  
 ##### 560#       发表于 2015-1-8 15:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27721651&amp;ptid=1009008" target="_blank">thez 发表于 2015-1-8 15:35</a>
@@ -10289,25 +6572,13 @@ poi熊太可爱了poi
 千夏是目前评价最好的，和NGA那帮舰人合作搞得，翻译和注释均为目前表现最好。
 
 
-
-
-
-
-
 -----
 
 ####  半自动式宅  
 ##### 561#       发表于 2015-1-8 15:48
 
 
-
-
 第一话不错，游戏去年就退坑了
-
-
-
-
-
 
 
 -----
@@ -10316,21 +6587,13 @@ poi熊太可爱了poi
 ##### 562#       发表于 2015-1-8 15:50
 
 
-
-
 回家过年缺钱，先订第一卷
-
-
-
-
-
 
 
 -----
 
 ####  ★ARCHER☆  
 ##### 563#       发表于 2015-1-8 15:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27720104&amp;ptid=1009008" target="_blank">omin2 发表于 2015-1-8 11:41</a>
@@ -10342,16 +6605,10 @@ poi熊太可爱了poi
 醒醒 代入太深 快出去领药吃····
 
 
-
-
-
-
-
 -----
 
 ####  shihomasturi  
 ##### 564#       发表于 2015-1-8 15:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27721729&amp;ptid=1009008" target="_blank">wchx_1989 发表于 2015-1-8 15:44</a>
@@ -10364,17 +6621,10 @@ poi熊太可爱了poi
 你这么算的话还是没量化新老服务器的差别，只是根据自己的感觉来算。但是比上面那个和官方说的50w每天登陆还是更接近了。
 
 
-
-
-
-
-
 -----
 
 ####  ccloli  
 ##### 565#       发表于 2015-1-8 15:57
-
-
 
 
 动画版可以啊，cv表简直精分现场……
@@ -10383,25 +6633,13 @@ poi熊太可爱了poi
 鱼雷队打前锋跑那么远真不是送？
 
 
-
-
-
-
-
 -----
 
 ####  夏天的幻影  
 ##### 566#       发表于 2015-1-8 16:02
 
 
-
-
 看完偷跑版的时候就剁手全卷预定了，第一话唯一的缺点就是用游戏台词过于生硬吧(´•_•`)
-
-
-
-
-
 
 
 -----
@@ -10410,14 +6648,7 @@ poi熊太可爱了poi
 ##### 567#       发表于 2015-1-8 16:04
 
 
-
-
 话说是不是应该BUFF一波航空支援了 逗比雷击支援我是不觉得娇喘会BUFF..
-
-
-
-
-
 
 
 -----
@@ -10426,14 +6657,7 @@ poi熊太可爱了poi
 ##### 568#       发表于 2015-1-8 16:06
 
 
-
-
 空中支援的最大问题还是舰载机损失，在油弹消耗的基础上还要花费补充舰载机的铝，估计如果不是效率特别高没多少提督愿意干。
-
-
-
-
-
 
 
 -----
@@ -10442,15 +6666,9 @@ poi熊太可爱了poi
 ##### 569#       发表于 2015-1-8 16:09
 
 
-
 <blockquote>shihomasturi 发表于 2015-1-8 17:56
 你这么算的话还是没量化新老服务器的差别，只是根据自己的感觉来算。但是比上面那个和官方说的50w每天登 ...</blockquote>
 嘛，其实一个服一个像我这样的闲人测试就可以了.可惜没找到跟我一样闲的人，摊手
-
-
-
-
-
 
 
 -----
@@ -10459,16 +6677,9 @@ poi熊太可爱了poi
 ##### 570#       发表于 2015-1-8 16:10
 
 
-
-
 铝……这个动画世界中存在油弹钢铝资源的东西吗我怀疑
 
 坐着妖精的战斗机被坠落了，用铝就可以复原，那这世界算啥啊
-
-
-
-
-
 
 
 -----
@@ -10477,14 +6688,7 @@ poi熊太可爱了poi
 ##### 571#       发表于 2015-1-8 16:11
 
 
-
-
 动画版意外的好看，话说那珂酱怎么先发鱼雷了，求实装……
-
-
-
-
-
 
 
 -----
@@ -10493,15 +6697,9 @@ poi熊太可爱了poi
 ##### 572#       发表于 2015-1-8 16:12
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">好好好好好，买买买买买
 
 欠雷游戏立绘换成动画版我立马买戒指肝到99结婚啊！！
-
-
-
-
-
 
 
 -----
@@ -10510,14 +6708,7 @@ poi熊太可爱了poi
 ##### 573#       发表于 2015-1-8 16:21
 
 
-
-
 心血来潮上线看了下，现在有什么值得赌的么？afk快一年了<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10526,23 +6717,15 @@ poi熊太可爱了poi
 ##### 574#       发表于 2015-1-8 16:22
 
 
-
-
 poi没二改，没啥感觉啊。。
 
 不过动画确实做得不错
-
-
-
-
-
 
 
 -----
 
 ####  shihomasturi  
 ##### 575#       发表于 2015-1-8 16:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27721934&amp;ptid=1009008" target="_blank">九十九尾 发表于 2015-1-8 16:10</a>
@@ -10553,16 +6736,10 @@ poi没二改，没啥感觉啊。。
 你家舰载机才不是用铝造出来的呢，787之前大部分飞机主体都有各种铝合金构成，不要把无知当个性。
 
 
-
-
-
-
-
 -----
 
 ####  saberin  
 ##### 576#       发表于 2015-1-8 16:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27722013&amp;ptid=1009008" target="_blank">飞饼 发表于 2015-1-8 16:21</a>
@@ -10571,16 +6748,10 @@ poi没二改，没啥感觉啊。。
 ALL7000 100直接赌
 
 
-
-
-
-
-
 -----
 
 ####  shihomasturi  
 ##### 577#       发表于 2015-1-8 16:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27721717&amp;ptid=1009008" target="_blank">九十九尾 发表于 2015-1-8 15:43</a>
@@ -10589,16 +6760,10 @@ ALL7000 100直接赌
 又见拿单帧来谈“崩”，你这么说的话每部动画我都能给你找出崩坏来。动画本来就是动起来看的，不是给你一边暂停一边截图看的。
 
 
-
-
-
-
-
 -----
 
 ####  leonlin  
 ##### 578#       发表于 2015-1-8 16:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27721934&amp;ptid=1009008" target="_blank">九十九尾 发表于 2015-1-8 16:10</a>
@@ -10611,17 +6776,10 @@ ALL7000 100直接赌
 妖精是会自己回来的
 
 
-
-
-
-
-
 -----
 
 ####  我就是那条龙  
 ##### 579#       发表于 2015-1-8 16:41
-
-
 
 
 游戏没玩过 只看过几个游戏视频 
@@ -10633,25 +6791,13 @@ ALL7000 100直接赌
 还有人太多不好认啊 每人出场加个字幕介绍不好么。。搞得像打麻将全国篇。。都没什么点数提示 弄得很乱的样子
 
 
-
-
-
-
-
 -----
 
 ####  夏天的幻影  
 ##### 580#       发表于 2015-1-8 16:49
 
 
-
-
 介绍之类的会放在日常内容吧大概~_~
-
-
-
-
-
 
 
 -----
@@ -10660,16 +6806,10 @@ ALL7000 100直接赌
 ##### 581#       发表于 2015-1-8 16:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27722031&amp;ptid=1009008" target="_blank">saberin 发表于 2015-1-8 16:23</a>
 
 ALL7000 100直接赌</blockquote>
 all in全跪<img src="https://static.saraba1st.com/image/smiley/dym/151.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10678,14 +6818,7 @@ all in全跪<img src="https://static.saraba1st.com/image/smiley/dym/151.gif" ref
 ##### 582#       发表于 2015-1-8 16:53
 
 
-
-
 你上当了呀，当然要按公式来的o_O
-
-
-
-
-
 
 
 -----
@@ -10694,23 +6827,16 @@ all in全跪<img src="https://static.saraba1st.com/image/smiley/dym/151.gif" ref
 ##### 583#       发表于 2015-1-8 16:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27720878&amp;ptid=1009008" target="_blank">虫之诗歌 发表于 2015-1-8 13:34</a>
 
 球磨级5只就差曾哥了，我估计曾哥会直接改二造型出场</blockquote>
 木曾老公真的改二出来就一本满足了 果断买买买
 
 
-
-
-
-
-
 -----
 
 ####  九十九尾  
 ##### 584#       发表于 2015-1-8 17:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27722042&amp;ptid=1009008" target="_blank">shihomasturi 发表于 2015-1-8 16:24</a>
@@ -10733,32 +6859,19 @@ all in全跪<img src="https://static.saraba1st.com/image/smiley/dym/151.gif" ref
 妖精会自己回来是动画说明了还是游戏说明了？
 
 
-
-
-
-
-
 -----
 
 ####  shenhao  
 ##### 585#       发表于 2015-1-8 17:06
 
 
-
-
 就第一集来看个人感觉不如苍钢
-
-
-
-
-
 
 
 -----
 
 ####  反击的马沙  
 ##### 586#       发表于 2015-1-8 17:09
-
 
 
 <blockquote>引用第584楼shenhao于2015-01-08 17:06发表的  :
@@ -10772,25 +6885,13 @@ all in全跪<img src="https://static.saraba1st.com/image/smiley/dym/151.gif" ref
 ----发送自 [Sony L50t,Android 4.4.2](http://stage1.5j4m.com/?1.17) 
 
 
-
-
-
-
-
 -----
 
 ####  yellowboat  
 ##### 587#       发表于 2015-1-8 17:14
 
 
-
-
 没玩过游戏，看的时候感觉到处都能听到佐仓小姐的声音，结果ED一看配了八个人。。。红蓝两弓手出击时叉着腰滑水的姿势好像花样滑冰的热身动作。
-
-
-
-
-
 
 
 -----
@@ -10799,16 +6900,10 @@ all in全跪<img src="https://static.saraba1st.com/image/smiley/dym/151.gif" ref
 ##### 588#       发表于 2015-1-8 17:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27722212&amp;ptid=1009008" target="_blank">飞饼 发表于 2015-1-8 16:50</a>
 
 all in全跪</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/dym/155.gif" referrerpolicy="no-referrer">非洲永远是提督温暖的家
-
-
-
-
-
 
 
 -----
@@ -10817,21 +6912,13 @@ all in全跪</blockquote>
 ##### 589#       发表于 2015-1-8 17:32
 
 
-
-
 看到划水，想了想，娇喘真应该给舰娘增加一个湿身的图鉴，黄脸时出现，衣衫尽湿强行进击易大破
-
-
-
-
-
 
 
 -----
 
 ####  posthoc  
 ##### 590#       发表于 2015-1-8 17:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27722274&amp;ptid=1009008" target="_blank">九十九尾 发表于 2015-1-8 01:00</a>
@@ -10842,16 +6929,10 @@ all in全跪</blockquote>
 想看妖精志愿入伍然后被打得肠子跑出来之类您应该是选错片子了。
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 591#       发表于 2015-1-8 17:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27722484&amp;ptid=1009008" target="_blank">saberin 发表于 2015-1-8 17:32</a>
@@ -10860,32 +6941,19 @@ all in全跪</blockquote>
 你最好去看看雪风中破
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 592#       发表于 2015-1-8 18:13
 
 
-
-
  吃喝哪个更厉害一点？ 大凤是最强的么？
-
-
-
-
-
 
 
 -----
 
 ####  maxwell_goblin  
 ##### 593#       发表于 2015-1-8 18:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27722802&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-8 18:13</a>
@@ -10896,25 +6964,13 @@ all in全跪</blockquote>
 大凤火力高中破可以参加炮击战，加贺搭载数目高，各有所长
 
 
-
-
-
-
-
 -----
 
 ####  多多天下  
 ##### 594#       发表于 2015-1-8 18:23
 
 
-
-
 大凤飞龙改二能拼第二，第一位稳稳的加贺老师
-
-
-
-
-
 
 
 -----
@@ -10923,16 +6979,9 @@ all in全跪</blockquote>
 ##### 595#       发表于 2015-1-8 18:23
 
 
-
-
 蓝
 
 蓝和粉屁哪个强一点要分情况 如果我选还是粉屁吧 一个账面一个中破出击
-
-
-
-
-
 
 
 -----
@@ -10941,23 +6990,16 @@ all in全跪</blockquote>
 ##### 596#       发表于 2015-1-8 18:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27722802&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-8 18:13</a>
 
 吃喝哪个更厉害一点？ 大凤是最强的么？</blockquote>
 现在航母的作用就是夺取制空权给炮战增加buff，自己的那点航空炸弹和鱼雷也就那么回事，所以搭载量最大的加贺是最强的，其次是大凤（游戏里已魔改，比史实的搭载量大了很多），但是大凤有个能力就是在中破时还能放飞机输出，其余航母都不成。
 
 
-
-
-
-
-
 -----
 
 ####  shihomasturi  
 ##### 597#       发表于 2015-1-8 18:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27722274&amp;ptid=1009008" target="_blank">九十九尾 发表于 2015-1-8 17:00</a>
@@ -10968,16 +7010,10 @@ all in全跪</blockquote>
 谁告诉你飞机摔了直接靠铝就能“复原”的？我们只是在谈舰载机的补给问题而已。
 
 
-
-
-
-
-
 -----
 
 ####  飞饼  
 ##### 598#       发表于 2015-1-8 18:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27722423&amp;ptid=1009008" target="_blank">saberin 发表于 2015-1-8 17:25</a>
@@ -10986,16 +7022,10 @@ all in全跪</blockquote>
 真爱早就有了，上线看着一堆闲置资源不花掉不舒服而已，大丈夫<img src="https://static.saraba1st.com/image/smiley/face/18.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xuesong1105  
 ##### 599#       发表于 2015-1-8 18:39
-
 
 
 <blockquote>革新 发表于 2015-1-8 18:13
@@ -11003,16 +7033,10 @@ all in全跪</blockquote>
 当然是老婆加贺厉害，有搭载入手容易外冷內热简直把持不住。
 
 
-
-
-
-
-
 -----
 
 ####  九十九尾  
 ##### 600#       发表于 2015-1-8 18:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27722895&amp;ptid=1009008" target="_blank">shihomasturi 发表于 2015-1-8 18:25</a>
@@ -11042,16 +7066,10 @@ all in全跪</blockquote>
 我的疑问源自于动画的设定不明了，要是飞机的设定跟游戏一样铝一充就满了，那这世界那真是太搞笑了，是游戏世界吧
 
 
-
-
-
-
-
 -----
 
 ####  多多天下  
 ##### 601#       发表于 2015-1-8 18:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27721836&amp;ptid=1009008" target="_blank">ccloli 发表于 2015-1-8 15:57</a>
@@ -11063,32 +7081,19 @@ all in全跪</blockquote>
 主力舰形成战列线对轰后DD、CL的水雷战队就是冲上前放鱼雷的，缩在线上反而容易中弹
 
 
-
-
-
-
-
 -----
 
 ####  jhutu  
 ##### 602#       发表于 2015-1-8 19:00
 
 
-
-
 果然我还是觉得奇怪，萌妹子背大炮静态图可舔动起来实在是别扭。
-
-
-
-
-
 
 
 -----
 
 ####  musicat  
 ##### 603#       发表于 2015-1-8 19:03
-
 
 
  本帖最后由 musicat 于 2015-1-8 19:11 编辑 
@@ -11113,16 +7118,10 @@ all in全跪</blockquote>
 因为帖子不需要说明而直接定性“舰娘是垃圾游戏”，是否有理由怀疑你是带着有色眼镜看舰娘动画的呢？而过于吹毛求疵了。
 
 
-
-
-
-
-
 -----
 
 ####  shihomasturi  
 ##### 604#       发表于 2015-1-8 19:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27723023&amp;ptid=1009008" target="_blank">九十九尾 发表于 2015-1-8 18:46</a>
@@ -11135,25 +7134,13 @@ all in全跪</blockquote>
 动画哪里表现妖精的战机摔了直接用铝就可以复原？没有那你说个屁，自己竖靶子自己打么？
 
 
-
-
-
-
-
 -----
 
 ####  superbigd  
 ##### 605#       发表于 2015-1-8 19:13
 
 
-
-
 不就是机动联合舰队编成模式嘛,第二队小船先打,不过怎么支援舰队也大破了,233
-
-
-
-
-
 
 
 -----
@@ -11162,14 +7149,7 @@ all in全跪</blockquote>
 ##### 606#       发表于 2015-1-8 19:14
 
 
-
-
 一帮少女边划水 边拿着枪炮biubiu   看上去更像是文艺表演，一时半会儿还接受不了这种设定<img src="https://static.saraba1st.com/image/smiley/face/167.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11178,21 +7158,13 @@ all in全跪</blockquote>
 ##### 607#       发表于 2015-1-8 19:18
 
 
-
-
 原来是傻屌玩不过游戏来反串的 辛苦了
-
-
-
-
-
 
 
 -----
 
 ####  shihomasturi  
 ##### 608#       发表于 2015-1-8 19:24
-
 
 
  本帖最后由 shihomasturi 于 2015-1-8 19:26 编辑 
@@ -11210,25 +7182,13 @@ all in全跪</blockquote>
 咱俩到底是谁在不懂装懂？以为会个日语词就能出来坑蒙拐骗了？
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 609#       发表于 2015-1-8 19:44
 
 
-
-
 第一次看到cv表可以这么排列<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11237,17 +7197,10 @@ all in全跪</blockquote>
 ##### 610#       发表于 2015-1-8 19:45
 
 
-
-
 没玩游戏也没收过本子，今天第一次接触。感觉上……很一般，作为第一集来说，出场人物实在太多了，名字都记不住。而且海战的画面果然是……不够炫酷啊。
 
 
 用甘城最后一集的台词来说，就是该有的要素都有了，但是无法让人兴奋起来，……看来监督也是一个无聊的庸人啊。
-
-
-
-
-
 
 
 -----
@@ -11256,14 +7209,7 @@ all in全跪</blockquote>
 ##### 611#       发表于 2015-1-8 19:51
 
 
-
-
 佐仓小姐是不是一个人领八份工资呢
-
-
-
-
-
 
 
 -----
@@ -11272,24 +7218,16 @@ all in全跪</blockquote>
 ##### 612#       发表于 2015-1-8 19:52
 
 
-
-
 话说动画结尾 提督干了什么让吹雪又有干劲了。
 
 
 这次cm舰娘本子有点分散啊。跟之前岛风天津风扎堆出不一样。
 
 
-
-
-
-
-
 -----
 
 ####  storm  
 ##### 613#       发表于 2015-1-8 20:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27723417&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-8 19:52</a>
@@ -11301,33 +7239,19 @@ all in全跪</blockquote>
 提督：你明天改二！
 
 
-
-
-
-
-
 -----
 
 ####  starfisher  
 ##### 614#       发表于 2015-1-8 20:32
 
 
-
-
 美少女划水打炮的设定实在牵强的很……这属于废萌片吧？
-
-
-
-
-
 
 
 -----
 
 ####  厨厨光波  
 ##### 615#       发表于 2015-1-8 20:44
-
-
 
 
 非玩家，不过嗅到了废萌的味道我就来惹
@@ -11337,16 +7261,10 @@ all in全跪</blockquote>
 提督不露脸好评<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  镜hinata  
 ##### 616#       发表于 2015-1-8 20:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27720633&amp;ptid=1009008" target="_blank">九十九尾 发表于 2015-1-8 12:59</a>
@@ -11362,16 +7280,10 @@ all in全跪</blockquote>
 塑料盘逼格这么高的玩意哪有资格卖个几千
 
 
-
-
-
-
-
 -----
 
 ####  ccloli  
 ##### 617#       发表于 2015-1-8 20:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27723092&amp;ptid=1009008" target="_blank">多多天下 发表于 2015-1-8 18:56</a>
@@ -11380,25 +7292,13 @@ all in全跪</blockquote>
 可是这火力组还没就位鱼雷队就冲上去抢人头了啊……第一波啊……
 
 
-
-
-
-
-
 -----
 
 ####  laoism  
 ##### 618#       发表于 2015-1-8 20:56
 
 
-
-
 各位如何理解“在[晓](http://bgm.tv/character/21344)的水平线上刻下胜利”？
-
-
-
-
-
 
 
 -----
@@ -11407,18 +7307,10 @@ all in全跪</blockquote>
 ##### 619#       发表于 2015-1-8 21:02
 
 
-
-
 说实在的，真用舰装打炮什么的，看着还是挺傻的，关键是身体没什么动作姿势也没逼格，
 
 
 发鱼雷射箭的画面就好一些。还有偶像你犯规了。
-
-
-
-
-
-
 
 
 -----
@@ -11427,14 +7319,7 @@ all in全跪</blockquote>
 ##### 620#       发表于 2015-1-8 21:08
 
 
-
-
 不是玩家，看过第一集之后也不想跳坑了，除了继续追番（以及本子）之外，决定把战斗位置太平洋给打通，再看看太平洋战争史。
-
-
-
-
-
 
 
 -----
@@ -11443,16 +7328,10 @@ all in全跪</blockquote>
 ##### 621#       发表于 2015-1-8 21:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27723769&amp;ptid=1009008" target="_blank">laoism 发表于 2015-1-8 20:56</a>
 
 各位如何理解“在晓的水平线上刻下胜利”？</blockquote>
 你不说我还没想歪_,
-
-
-
-
-
 
 
 -----
@@ -11461,16 +7340,10 @@ all in全跪</blockquote>
 ##### 622#       发表于 2015-1-8 21:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27723769&amp;ptid=1009008" target="_blank">laoism 发表于 2015-1-8 20:56</a>
 
 各位如何理解“在晓的水平线上刻下胜利”？</blockquote>
 你不说我还没想歪_,
-
-
-
-
-
 
 
 -----
@@ -11479,14 +7352,7 @@ all in全跪</blockquote>
 ##### 623#       发表于 2015-1-8 21:13
 
 
-
-
 K岛惯用梗，在晓的裙子上撒下滚烫的胜利
-
-
-
-
-
 
 
 -----
@@ -11495,16 +7361,10 @@ K岛惯用梗，在晓的裙子上撒下滚烫的胜利
 ##### 624#       发表于 2015-1-8 21:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27723763&amp;ptid=1009008" target="_blank">ccloli 发表于 2015-1-8 20:55</a>
 
 可是这火力组还没就位鱼雷队就冲上去抢人头了啊……第一波啊……</blockquote>
 水雷战队就是冲前边反潜和丢第一波水雷的
-
-
-
-
-
 
 
 -----
@@ -11513,16 +7373,10 @@ K岛惯用梗，在晓的裙子上撒下滚烫的胜利
 ##### 625#       发表于 2015-1-8 21:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27723894&amp;ptid=1009008" target="_blank">飞饼 发表于 2015-1-8 21:18</a>
 
 水雷战队就是冲前边反潜和丢第一波水雷的</blockquote>
 哦去查了查当年的鱼雷艇算是高敏高输出单位，就是抢人头的存在……鱼雷打完就该跑拼什么主炮……
-
-
-
-
-
 
 
 -----
@@ -11531,15 +7385,8 @@ K岛惯用梗，在晓的裙子上撒下滚烫的胜利
 ##### 626#       发表于 2015-1-8 21:35
 
 
-
-
 我一直以为舰娘是苍钢那类型的……
 看了动画才知道是内裤魔女这类啊……
-
-
-
-
-
 
 
 -----
@@ -11548,21 +7395,13 @@ K岛惯用梗，在晓的裙子上撒下滚烫的胜利
 ##### 627#       发表于 2015-1-8 21:35
 
 
-
-
 当然是在晓的衣服上乱涂乱画啦！
-
-
-
-
-
 
 
 -----
 
 ####  九十九尾  
 ##### 628#       发表于 2015-1-8 21:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27723142&amp;ptid=1009008" target="_blank">musicat 发表于 2015-1-8 19:03</a>
@@ -11621,16 +7460,10 @@ K岛惯用梗，在晓的裙子上撒下滚烫的胜利
 你是专家大懂特懂没装懂，那么有自信，那还请麻烦你解释清楚下
 
 
-
-
-
-
-
 -----
 
 ####  maxwell_goblin  
 ##### 629#       发表于 2015-1-8 21:41
-
 
 
  本帖最后由 maxwell_goblin 于 2015-1-8 21:43 编辑 
@@ -11640,16 +7473,10 @@ K岛惯用梗，在晓的裙子上撒下滚烫的胜利
 只能看清 “美 少 女 俱 乐 部” 几个字
 
 
-
-
-
-
-
 -----
 
 ####  新庄・運切  
 ##### 630#       发表于 2015-1-8 21:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27724003&amp;ptid=1009008" target="_blank">九十九尾 发表于 2015-1-8 21:40</a>
@@ -11660,16 +7487,10 @@ K岛惯用梗，在晓的裙子上撒下滚烫的胜利
 动画的具体设定不是和现在出的3部小说一模一样么，舰娘游戏的设定？那是啥？
 
 
-
-
-
-
-
 -----
 
 ####  傅潇逍  
 ##### 631#       发表于 2015-1-8 21:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27719066&amp;ptid=1009008" target="_blank">武蔵 发表于 2015-1-8 09:17</a>
@@ -11680,16 +7501,10 @@ K岛惯用梗，在晓的裙子上撒下滚烫的胜利
 “呜呜呜，那个提督欺负我！他有武藏，还让他的武藏对着我笑！”
 
 
-
-
-
-
-
 -----
 
 ####  九十九尾  
 ##### 632#       发表于 2015-1-8 22:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27724026&amp;ptid=1009008" target="_blank">新庄・運切 发表于 2015-1-8 21:44</a>
@@ -11698,16 +7513,10 @@ K岛惯用梗，在晓的裙子上撒下滚烫的胜利
 可3个小说的设定都完全不一样呢
 
 
-
-
-
-
-
 -----
 
 ####  lyflyflxf  
 ##### 633#       发表于 2015-1-8 22:09
-
 
 
  本帖最后由 lyflyflxf 于 2015-1-8 22:13 编辑 
@@ -11723,17 +7532,10 @@ K岛惯用梗，在晓的裙子上撒下滚烫的胜利
 偶像真可爱！声线有点高槻弥生的感觉，海报上的又像天海春香
 
 
-
-
-
-
-
 -----
 
 ####  nylonchina1  
 ##### 634#       发表于 2015-1-8 22:16
-
-
 
 
 求各位看一下这张图，这3d效果真的大丈夫？？
@@ -11751,30 +7553,13 @@ K岛惯用梗，在晓的裙子上撒下滚烫的胜利
 2015-1-8 22:16 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  華鳥風月  
 ##### 635#       发表于 2015-1-8 22:27
 
 
-
-
 岛风戏份可怜啊，雪风更惨出场都不出 加贺大凤游戏里都魔改了
-
-
-
-
-
 
 
 -----
@@ -11783,22 +7568,15 @@ K岛惯用梗，在晓的裙子上撒下滚烫的胜利
 ##### 636#       发表于 2015-1-8 22:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27723841&amp;ptid=1009008" target="_blank">云梦泽岸 发表于 2015-1-8 21:08</a>
 
 不是玩家，看过第一集之后也不想跳坑了，除了继续追番（以及本子）之外，决定把战斗位置太平洋给打通，再看 ...</blockquote>
 战斗位置太平洋这游戏真挺好玩的，自由度还高。
 
 
-
 没玩游戏，但是觉得动画还不错，看得下去。
 
 看东山、佐仓她们精分也挺有乐趣，佐仓你辛苦了<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11807,17 +7585,10 @@ K岛惯用梗，在晓的裙子上撒下滚烫的胜利
 ##### 637#       发表于 2015-1-8 22:35
 
 
-
-
 在海上溜冰打架果然远远不如天上狗斗好看....
 
 
 话说海陆空三军的女主性格真是几乎一个模板，不过这次的不会再是扮猪吃虎类型的吧
-
-
-
-
-
 
 
 -----
@@ -11826,16 +7597,10 @@ K岛惯用梗，在晓的裙子上撒下滚烫的胜利
 ##### 638#       发表于 2015-1-8 22:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27724150&amp;ptid=1009008" target="_blank">lyflyflxf 发表于 2015-1-8 22:09</a>
 
 可见这片子应该走的是废萌校园剧的套路，战斗固然重要，但也要让位给少女卖萌。女主在战场上基本就是全程 ...</blockquote>
 欠雷是0练度1级新人，还真不能要求太多了
-
-
-
-
-
 
 
 -----
@@ -11844,23 +7609,15 @@ K岛惯用梗，在晓的裙子上撒下滚烫的胜利
 ##### 639#       发表于 2015-1-8 22:49
 
 
-
-
 照搬游戏台词该说是生硬还是羞耻呢……流畅度还不如……
 
 有点担心之后的聊天喝茶能不能做的有趣，毕竟不是为了打打打来看这片子
-
-
-
-
-
 
 
 -----
 
 ####  三千院飒  
 ##### 640#       发表于 2015-1-8 22:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=27724329&amp;amp;ptid=1009008" target="_blank">sauron.j 发表于 2015-1-8 22:35</a>
@@ -11871,27 +7628,15 @@ K岛惯用梗，在晓的裙子上撒下滚烫的胜利
 什么，欠雷有扮猪吃老虎的资本
 
 
-
-
-
-
-
 -----
 
 ####  hesijie00  
 ##### 641#       发表于 2015-1-8 23:09
 
 
-
-
 未免有太多字幕组在做了吧……
 
 想请教一下有哪些组做的带较全注解和坑掉的可能性之类的介绍
-
-
-
-
-
 
 
 -----
@@ -11900,22 +7645,15 @@ K岛惯用梗，在晓的裙子上撒下滚烫的胜利
 ##### 642#       发表于 2015-1-8 23:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=27724378&amp;amp;ptid=1009008" target="_blank">虫之诗歌 发表于 2015-1-8 22:40</a>
 欠雷是0练度1级新人，还真不能要求太多了</blockquote>
 所以说让女主从零开始成长就挺顺理成章的。再加上吹雪在游戏里不受待见，二设也少，也就便于编剧发挥
-
-
-
-
-
 
 
 -----
 
 ####  镜hinata  
 ##### 643#       发表于 2015-1-8 23:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27724620&amp;ptid=1009008" target="_blank">hesijie00 发表于 2015-1-8 23:09</a>
@@ -11929,33 +7667,19 @@ K岛惯用梗，在晓的裙子上撒下滚烫的胜利
 今天B站看得我吃屎一样
 
 
-
-
-
-
-
 -----
 
 ####  大鳳·改  
 ##### 644#       发表于 2015-1-8 23:20
 
 
-
-
 舾装都还算对，舰装是个什么鬼<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  ahsammas  
 ##### 645#       发表于 2015-1-8 23:44
-
-
 
 
 远景3D和手绘切换有点生硬
@@ -11965,25 +7689,13 @@ K岛惯用梗，在晓的裙子上撒下滚烫的胜利
 这舾装安装像魔法少女变身就算了，有必要搞这么夸张么。。。
 
 
-
-
-
-
-
 -----
 
 ####  rodineye  
 ##### 646#       发表于 2015-1-8 23:47
 
 
-
-
 作画很好，但是水上作战看着始终别扭，还是多拍些日常吧……
-
-
-
-
-
 
 
 -----
@@ -11992,23 +7704,16 @@ K岛惯用梗，在晓的裙子上撒下滚烫的胜利
 ##### 647#       发表于 2015-1-8 23:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27721921&amp;ptid=1009008" target="_blank">wchx_1989 发表于 2015-1-8 16:09</a>
 
 嘛，其实一个服一个像我这样的闲人测试就可以了.可惜没找到跟我一样闲的人，摊手 ...</blockquote>
 塔威服，因为刷山云现在4战果，不然应该0的……现在排位2W2
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 648#       发表于 2015-1-8 23:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27724620&amp;ptid=1009008" target="_blank">hesijie00 发表于 2015-1-8 23:09</a>
@@ -12024,17 +7729,10 @@ NGA舰娘区现已和千夏字幕组合作，为其提供考据等监修工作
 在线熟肉：[http://www.acfun.tv/v/ac1660770_2](http://www.acfun.tv/v/ac1660770_2)
 
 
-
-
-
-
-
 -----
 
 ####  nylonchina1  
 ##### 649#       发表于 2015-1-8 23:53
-
-
 
 
 加贺老师好棒好棒的
@@ -12046,32 +7744,19 @@ NGA舰娘区现已和千夏字幕组合作，为其提供考据等监修工作
 加贺老师的女主身份只能去本子里找
 
 
-
-
-
-
-
 -----
 
 ####  sagajytc  
 ##### 650#       发表于 2015-1-8 23:55
 
 
-
-
 这提督太非了，一点代入感都没有，而且我大六驱镜头又太少，不暴死根本不客观！
-
-
-
-
-
 
 
 -----
 
 ####  飞霞精灵  
 ##### 651#       发表于 2015-1-9 00:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27724952&amp;ptid=1009008" target="_blank">sagajytc 发表于 2015-1-8 23:55</a>
@@ -12087,17 +7772,10 @@ NGA舰娘区现已和千夏字幕组合作，为其提供考据等监修工作
 时雨才给个远景镜头，不仔细看都注意不到…………
 
 
-
-
-
-
-
-
 -----
 
 ####  飞霞精灵  
 ##### 652#       发表于 2015-1-9 00:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27724329&amp;ptid=1009008" target="_blank">sauron.j 发表于 2015-1-8 22:35</a>
@@ -12111,27 +7789,15 @@ NGA舰娘区现已和千夏字幕组合作，为其提供考据等监修工作
 夜战里驱逐舰推倒敌方大BOSS超容易。
 
 
-
-
-
-
-
 -----
 
 ####  kalamazoo  
 ##### 653#       发表于 2015-1-9 00:44
 
 
-
-
 感觉还是2D和3D混合比较好，苍蓝哪种全3D还是有点不喜欢
 
 最近刚开始玩游戏，好想多来几只战舰……
-
-
-
-
-
 
 
 -----
@@ -12140,16 +7806,10 @@ NGA舰娘区现已和千夏字幕组合作，为其提供考据等监修工作
 ##### 654#       发表于 2015-1-9 00:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27724952&amp;ptid=1009008" target="_blank">sagajytc 发表于 2015-1-8 23:55</a>
 
 这提督太非了，一点代入感都没有，而且我大六驱镜头又太少，不暴死根本不客观！ ...</blockquote>
 搞没搞错？2013年春活时候有长门陆奥一二航战全套的那是顶级的欧洲提督。何况这提督还有E3送的翔鹤。。。。这第一集结束已经是震电大佬了，你居然敢看不起？
-
-
-
-
-
 
 
 -----
@@ -12158,15 +7818,9 @@ NGA舰娘区现已和千夏字幕组合作，为其提供考据等监修工作
 ##### 655#       发表于 2015-1-9 00:56
 
 
-
 <blockquote>華鳥風月 发表于 2015-1-8 22:27
 岛风戏份可怜啊，雪风更惨出场都不出 加贺大凤游戏里都魔改了</blockquote>
 佐仓再加戏得过劳死不可
-
-
-
-
-
 
 
 -----
@@ -12175,25 +7829,16 @@ NGA舰娘区现已和千夏字幕组合作，为其提供考据等监修工作
 ##### 656#       发表于 2015-1-9 01:04
 
 
-
-
 吹雪为什么叫欠雷？
 
 
 弹幕总刷吃撑智商和铝土是什么意思？
 
 
-
-
-
-
-
 -----
 
 ####  8号鸡  
 ##### 657#       发表于 2015-1-9 01:13
-
-
 
 
 虽然背景是13年的春活，因为已经有E3奖励的翔鹤，所以确定她们在攻略E4....当时瑞鹤只能靠活动捞，根据TV之前瑞鹤的情报，估计是捞到了....13年春季就有新人之证，已经欧到没朋友了。
@@ -12210,8 +7855,6 @@ NGA舰娘区现已和千夏字幕组合作，为其提供考据等监修工作
 这次活动实用了14年夏季才实装的联合舰队，第二舰队的最上被打到中破了，说明了第二舰队不是支援任务，蜜瓜作为轻巡参与联合舰队的组成也是个强力佐证；
 
 蜜瓜在游戏中整天表示自己很慢，第二舰队单纵前进的时候..蜜瓜明显没跟上大伙的步伐；
-
-
 
 
 TV没告诉直接你的黑暗第五格：
@@ -12231,18 +7874,10 @@ poi和陆月也是缺乏足够的战斗经验，也是新来的.....
 结论：他们根本就是一群弃子战术用的狗粮队.....
 
 
-
-
-
-
-
-
-
 -----
 
 ####  飞霞精灵  
 ##### 658#       发表于 2015-1-9 01:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27725346&amp;ptid=1009008" target="_blank">Futanari 发表于 2015-1-9 01:04</a>
@@ -12268,25 +7903,13 @@ poi和陆月也是缺乏足够的战斗经验，也是新来的.....
 这次赤城直接最后战BOSS倒是智商上线…………
 
 
-
-
-
-
-
-
 -----
 
 ####  Inle  
 ##### 659#       发表于 2015-1-9 01:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">那艘后期爹还是精英级，游戏都没实装
-
-
-
-
-
 
 
 -----
@@ -12295,15 +7918,8 @@ poi和陆月也是缺乏足够的战斗经验，也是新来的.....
 ##### 660#       发表于 2015-1-9 01:22
 
 
-
-
 “智商”是很多人瞧不起赤城，因为他是任务送的，每人都有，嫌弃他老是道中被一炮大破因而劝退，或者常年中破ob全场。
 <strong>这些都是对赤城毫无根据的污蔑，一航战时最棒的航母，其他的什么X鹤 O龙都是辣鸡！</strong><img src="https://static.saraba1st.com/image/smiley/nq/002.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12312,23 +7928,16 @@ poi和陆月也是缺乏足够的战斗经验，也是新来的.....
 ##### 661#       发表于 2015-1-9 01:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27725387&amp;ptid=1009008" target="_blank">8号鸡 发表于 2015-1-9 01:13</a>
 
 虽然背景是13年的春活，因为已经有E3奖励的翔鹤，所以确定她们在攻略E4....当时瑞鹤只能靠活动捞，根据TV之 ...</blockquote>
 原来你的狗粮大破幸存后还回来入渠，真人性化！
 
 
-
-
-
-
-
 -----
 
 ####  8号鸡  
 ##### 662#       发表于 2015-1-9 01:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27725438&amp;ptid=1009008" target="_blank">sagajytc 发表于 2015-1-9 01:27</a>
@@ -12340,32 +7949,19 @@ poi和陆月也是缺乏足够的战斗经验，也是新来的.....
 <img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">不过下周要是没登场，可能真的被拆了（笑
 
 
-
-
-
-
-
 -----
 
 ####  Quetzacoatl  
 ##### 663#       发表于 2015-1-9 01:45
 
 
-
-
 吃撑怎么一副冷艳高贵的样子，这世界线不对啊
-
-
-
-
-
 
 
 -----
 
 ####  omin2  
 ##### 664#       发表于 2015-1-9 01:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27724195&amp;ptid=1009008" target="_blank">nylonchina1 发表于 2015-1-8 22:16</a>
@@ -12380,33 +7976,19 @@ poi和陆月也是缺乏足够的战斗经验，也是新来的.....
 话说动画版栖舰方真厉害，竟然连护罩都有了，想必是苍钢联动活动时从雾舰队那里学回来的
 
 
-
-
-
-
-
 -----
 
 ####  sagajytc  
 ##### 665#       发表于 2015-1-9 01:56
 
 
-
-
 想做成高大上的萝卜（？）片就是大船流，日常卖萌番就是小船流，里番就是赤城偷吃铝被吹雪发现然后为了保密而被迫接受各种调教
-
-
-
-
-
 
 
 -----
 
 ####  LichEnd  
 ##### 666#       发表于 2015-1-9 02:30
-
-
 
 
 赤城这个样子完全没有吃货属性的萌点了啊
@@ -12417,16 +7999,10 @@ poi和陆月也是缺乏足够的战斗经验，也是新来的.....
 某次拿赤城当秘书舰，突然听到她来一句：“啊喏，提督，吃饭……啊，不，出击的时间到了么？”笑的我一口水喷出来
 
 
-
-
-
-
-
 -----
 
 ####  gary76  
 ##### 667#       发表于 2015-1-9 03:11
-
 
 
 [http://www.nicovideo.jp/watch/sm25300098](http://www.nicovideo.jp/watch/sm25300098)
@@ -12435,25 +8011,13 @@ poi和陆月也是缺乏足够的战斗经验，也是新来的.....
 Seed的出擊配樂果然還是一等一的
 
 
-
-
-
-
-
 -----
 
 ####  Risa  
 ##### 668#       发表于 2015-1-9 04:17
 
 
-
-
 还算不错，要说缺点的话，剧情太乱，铺垫不够，第一话就莫名其妙的强行上战斗了，战斗过程也乱打一气，另外大傻的声音好奇怪，强行对游戏语音太毁动画的投入感,感觉就像生生把人从动画故事里拉回来，让人脱戏。
-
-
-
-
-
 
 
 -----
@@ -12462,17 +8026,10 @@ Seed的出擊配樂果然還是一等一的
 ##### 669#       发表于 2015-1-9 04:19
 
 
-
-
 不打旗舰一部分是因为旗舰援护系统的缘故，另一部分是玩家心理补偿的原因
 
 
 1级吹吹去打活动图boss确实是件西斯空及的事情啊
-
-
-
-
-
 
 
 -----
@@ -12481,22 +8038,13 @@ Seed的出擊配樂果然還是一等一的
 ##### 670#       发表于 2015-1-9 04:51
 
 
-
-
 艹船提督……草川监督
-
-
-
-
-
 
 
 -----
 
 ####  hurtwind  
 ##### 671#       发表于 2015-1-9 05:15
-
-
 
 
 我已经大概猜到结局了
@@ -12510,16 +8058,10 @@ Seed的出擊配樂果然還是一等一的
 你们姿瓷不姿瓷？
 
 
-
-
-
-
-
 -----
 
 ####  warlock228  
 ##### 672#       发表于 2015-1-9 07:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27724008&amp;ptid=1009008" target="_blank">maxwell_goblin 发表于 2015-1-8 21:41</a>
@@ -12532,25 +8074,14 @@ Seed的出擊配樂果然還是一等一的
  ---来自NGA的考据
 
 
-
-
-
-
-
 -----
 
 ####  storm  
 ##### 673#       发表于 2015-1-9 07:46
 
 
-
 <blockquote>Futanari 发表于 2015-1-9 01:04 吹雪为什么叫欠雷？ 弹幕总刷吃撑智商和铝土是什么意思？</blockquote>
 欠雷的原因是游戏里吹雪很影薄，玩家都故意说错她的名字。吹水？欠雷？吹雨，主人公到底叫啥来着？
-
-
-
-
-
 
 
 -----
@@ -12559,14 +8090,7 @@ Seed的出擊配樂果然還是一等一的
 ##### 674#       发表于 2015-1-9 07:48
 
 
-
-
 欠雷还差一次D败经验就70了，三艘驱逐旗舰1-5到70还没捞到山云，月月都是这种心情……
-
-
-
-
-
 
 
 -----
@@ -12575,13 +8099,7 @@ Seed的出擊配樂果然還是一等一的
 ##### 675#       发表于 2015-1-9 07:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">我有一句台词耶。
-
-
-
-
-
 
 
 -----
@@ -12590,23 +8108,16 @@ Seed的出擊配樂果然還是一等一的
 ##### 676#       发表于 2015-1-9 09:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27724637&amp;ptid=1009008" target="_blank">lyflyflxf 发表于 2015-1-8 23:11</a>
 
 所以说让女主从零开始成长就挺顺理成章的。再加上吹雪在游戏里不受待见，二设也少，也就便于编剧发挥 ...</blockquote>
 不过官方4格是日常训练开始，动画上来就拉去联合舰队，这不是坑人么<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  虫之诗歌  
 ##### 677#       发表于 2015-1-9 09:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27724876&amp;ptid=1009008" target="_blank">ahsammas 发表于 2015-1-8 23:44</a>
@@ -12618,25 +8129,13 @@ Seed的出擊配樂果然還是一等一的
 长门和加贺的演出我觉得还不错，挺符合人设性格了
 
 
-
-
-
-
-
 -----
 
 ####  clanfurt  
 ##### 678#       发表于 2015-1-9 09:16
 
 
-
-
 看回睦月和POI谈实战经验那段，只出击2次而且都是前辈自己搞定，怎么看都是作为挡枪狗粮去1-1陪人刷闪的吧<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12645,17 +8144,10 @@ Seed的出擊配樂果然還是一等一的
 ##### 679#       发表于 2015-1-9 09:20
 
 
-
-
 那么认真的陆奥是谁啊喂！
 
 
 开场就是联合舰队，直接吓CRY
-
-
-
-
-
 
 
 -----
@@ -12664,23 +8156,15 @@ Seed的出擊配樂果然還是一等一的
 ##### 680#       发表于 2015-1-9 09:42
 
 
-
-
 陆奥明明一副骚想干的小秘样，哪里认真了
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (NOKIA Lumia 920)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
 
 ####  lyflyflxf  
 ##### 681#       发表于 2015-1-9 09:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27726474&amp;ptid=1009008" target="_blank">虫之诗歌 发表于 2015-1-9 09:04</a>
@@ -12692,16 +8176,10 @@ Seed的出擊配樂果然還是一等一的
 看来动画和官方四格的关系也不紧密。看下周剧情吧，那时就能确定全篇的套路是火影还是轻音了
 
 
-
-
-
-
-
 -----
 
 ####  虫之诗歌  
 ##### 682#       发表于 2015-1-9 10:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27726767&amp;ptid=1009008" target="_blank">osore 发表于 2015-1-9 09:42</a>
@@ -12712,16 +8190,10 @@ Seed的出擊配樂果然還是一等一的
 你头像那位也是一脸“小学生真是太棒了”样
 
 
-
-
-
-
-
 -----
 
 ####  虫之诗歌  
 ##### 683#       发表于 2015-1-9 10:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27726779&amp;ptid=1009008" target="_blank">lyflyflxf 发表于 2015-1-9 09:43</a>
@@ -12733,16 +8205,10 @@ Seed的出擊配樂果然還是一等一的
 初战各种假摔就是不破
 
 
-
-
-
-
-
 -----
 
 ####  lyflyflxf  
 ##### 684#       发表于 2015-1-9 10:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27726961&amp;ptid=1009008" target="_blank">虫之诗歌 发表于 2015-1-9 10:08</a>
@@ -12751,16 +8217,10 @@ Seed的出擊配樂果然還是一等一的
 假摔等于玩水洗澡滚地躲闪当然不会破啦
 
 
-
-
-
-
-
 -----
 
 ####  SAGA0Arcueid  
 ##### 685#       发表于 2015-1-9 10:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27726474&amp;ptid=1009008" target="_blank">虫之诗歌 发表于 2015-1-9 09:04</a>
@@ -12769,16 +8229,10 @@ Seed的出擊配樂果然還是一等一的
 要是按照四格来走最出彩的就是日向姐妹了，也能提高下人气啊
 
 
-
-
-
-
-
 -----
 
 ####  SAGA0Arcueid  
 ##### 686#       发表于 2015-1-9 10:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27724455&amp;ptid=1009008" target="_blank">三千院飒 发表于 2015-1-8 22:49</a>
@@ -12790,16 +8244,10 @@ Seed的出擊配樂果然還是一等一的
 说真的换成动画版造型绝对拿来当作主力用
 
 
-
-
-
-
-
 -----
 
 ####  早乙女亂馬  
 ##### 687#       发表于 2015-1-9 11:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27726124&amp;ptid=1009008" target="_blank">いかずち 发表于 2015-1-9 07:55</a>
@@ -12808,16 +8256,10 @@ Seed的出擊配樂果然還是一等一的
 你在海上拿着锚一脸坏笑的样子。
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 688#       发表于 2015-1-9 11:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27723769&amp;ptid=1009008" target="_blank">laoism 发表于 2015-1-8 20:56</a>
@@ -12826,17 +8268,10 @@ Seed的出擊配樂果然還是一等一的
 叫我么,我就是在晓的水平线上刻下胜利的人(完成时)
 
 
-
-
-
-
-
 -----
 
 ####  林照人  
 ##### 689#       发表于 2015-1-9 11:20
-
-
 
 
 安利下
@@ -12844,16 +8279,10 @@ Seed的出擊配樂果然還是一等一的
 我签名 S1纯粹舰娘群 远离屎长千年
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 690#       发表于 2015-1-9 11:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27725346&amp;ptid=1009008" target="_blank">Futanari 发表于 2015-1-9 01:04</a>
@@ -12865,17 +8294,10 @@ Seed的出擊配樂果然還是一等一的
 蠢到头的黑话而已,也不知道发扬光大的人什么心态,既不好打,又突出自己没文化
 
 
-
-
-
-
-
 -----
 
 ####  wilsonvii  
 ##### 691#       发表于 2015-1-9 11:47
-
-
 
 
 来专楼问一句，有没有知道舰女人国内谁引进了？还是谁都没引进？
@@ -12886,16 +8308,10 @@ Seed的出擊配樂果然還是一等一的
 <img src="http://img.dwstatic.com/3ds/1501/284728995654/1420775253649.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  maxwell_goblin  
 ##### 692#       发表于 2015-1-9 11:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27726543&amp;ptid=1009008" target="_blank">clanfurt 发表于 2015-1-9 09:16</a>
@@ -12906,16 +8322,10 @@ Seed的出擊配樂果然還是一等一的
 吹吹练度 = 0,提督只是想看吹吹暴衣吧
 
 
-
-
-
-
-
 -----
 
 ####  虫之诗歌  
 ##### 693#       发表于 2015-1-9 11:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27727828&amp;ptid=1009008" target="_blank">maxwell_goblin 发表于 2015-1-9 11:51</a>
@@ -12926,16 +8336,10 @@ Seed的出擊配樂果然還是一等一的
 poi改二还是能用一用的，虽然没她姐妹时雨更实用<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  maxwell_goblin  
 ##### 694#       发表于 2015-1-9 11:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27727843&amp;ptid=1009008" target="_blank">虫之诗歌 发表于 2015-1-9 11:53</a>
@@ -12944,16 +8348,10 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 这两次活动poi打前面的图，时雨留着打后面的boss，风头差不多，都能活跃一番
 
 
-
-
-
-
-
 -----
 
 ####  Inle  
 ##### 695#       发表于 2015-1-9 12:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27727843&amp;ptid=1009008" target="_blank">虫之诗歌 发表于 2015-1-9 11:53</a>
@@ -12962,16 +8360,10 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 我POI能肛飞机场，时雨当时还在搬砖
 
 
-
-
-
-
-
 -----
 
 ####  早乙女亂馬  
 ##### 696#       发表于 2015-1-9 13:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27727788&amp;ptid=1009008" target="_blank">wilsonvii 发表于 2015-1-9 11:47</a>
@@ -12984,16 +8376,10 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 既然土豆没有播，应该就没有引进的了，引也是作死
 
 
-
-
-
-
-
 -----
 
 ####  shihomasturi  
 ##### 697#       发表于 2015-1-9 13:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27727788&amp;ptid=1009008" target="_blank">wilsonvii 发表于 2015-1-9 11:47</a>
@@ -13006,25 +8392,13 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 早就辟谣了，土豆动漫官微后来自己说要是引进了他就不在这了。
 
 
-
-
-
-
-
 -----
 
 ####  shihomasturi  
 ##### 698#       发表于 2015-1-9 13:17
 
 
-
-
 拿游戏梗开开玩笑还行，用动画去生搬硬套游戏还是算了吧。除了沿用游戏的一些设定以外，动画的战斗表现肯定会和现实更接近一些，泊地棲姐姐总不能让你刷几十遍吧？
-
-
-
-
-
 
 
 -----
@@ -13033,16 +8407,10 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 699#       发表于 2015-1-9 13:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27728487&amp;ptid=1009008" target="_blank">shihomasturi 发表于 2015-1-9 13:17</a>
 
 拿游戏梗开开玩笑还行，用动画去生搬硬套游戏还是算了吧。除了沿用游戏的一些设定以外，动画的战斗表现肯定 ...</blockquote>
 不用接近现实啥的，只要够萌就行<img src="https://static.saraba1st.com/image/smiley/normal/030.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13051,16 +8419,10 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 700#       发表于 2015-1-9 13:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27726902&amp;ptid=1009008" target="_blank">虫之诗歌 发表于 2015-1-9 10:02</a>
 
 你头像那位也是一脸“小学生真是太棒了”样</blockquote>
 醒醒，吃撑都女神了，是时候抛开对萝莉控的偏见了
-
-
-
-
-
 
 
 -----
@@ -13069,16 +8431,10 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 701#       发表于 2015-1-9 14:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27728789&amp;ptid=1009008" target="_blank">osore 发表于 2015-1-9 13:53</a>
 
 醒醒，吃撑都女神了，是时候抛开对萝莉控的偏见了</blockquote>
 别挣扎了，难道不是萝莉控延迟发作嘛？<img src="https://static.saraba1st.com/image/smiley/face/169.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13087,13 +8443,7 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 702#       发表于 2015-1-9 14:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">好多船不叫名字都认不出来。2333
-
-
-
-
-
 
 
 -----
@@ -13102,16 +8452,9 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 703#       发表于 2015-1-9 14:18
 
 
-
-
 说萝莉控的是不是吹吹被从后面伸出的双手玩弄小脸蛋的时候都下意识地以为是长门？
 
 已经被事实打脸了为什么你们还不悔改！
-
-
-
-
-
 
 
 -----
@@ -13120,14 +8463,7 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 704#       发表于 2015-1-9 14:20
 
 
-
-
 川内和长门里面的人一样的，放弃无谓的挣扎吧
-
-
-
-
-
 
 
 -----
@@ -13136,14 +8472,7 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 705#       发表于 2015-1-9 14:24
 
 
-
-
 萝莉控也不是误读吗!只不过是对旗舰位置被抢附带的怨念<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13152,16 +8481,9 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 706#       发表于 2015-1-9 14:35
 
 
-
-
 动画最终boss是雪亲王。
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (NOKIA Lumia 526)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
@@ -13170,23 +8492,16 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 707#       发表于 2015-1-9 14:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27729008&amp;ptid=1009008" target="_blank">maxwell_goblin 发表于 2015-1-9 14:20</a>
 
 川内和长门里面的人一样的，放弃无谓的挣扎吧</blockquote>
 我靠，CV梗也来，那珂的锅是不是也要长门来背啊
 
 
-
-
-
-
-
 -----
 
 ####  maxwell_goblin  
 ##### 708#       发表于 2015-1-9 14:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27729207&amp;ptid=1009008" target="_blank">osore 发表于 2015-1-9 14:44</a>
@@ -13197,16 +8512,10 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 这样一想是不是很带感
 
 
-
-
-
-
-
 -----
 
 ####  Inle  
 ##### 709#       发表于 2015-1-9 15:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27729243&amp;ptid=1009008" target="_blank">maxwell_goblin 发表于 2015-1-9 14:48</a>
@@ -13217,27 +8526,15 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 长门：胸部很热
 
 
-
-
-
-
-
 -----
 
 ####  eva02eva02  
 ##### 710#       发表于 2015-1-9 15:36
 
 
-
-
 我要看撑伞大姐姐的拔锚<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
 
 大和未改正常拔锚，改1踩手提箱<img src="https://static.saraba1st.com/image/smiley/face/26.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13246,17 +8543,10 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 711#       发表于 2015-1-9 16:20
 
 
-
-
 拖着快进看了一集，对不上电波
 
 
 我果然老了，这种玩意儿还是交给下一代吧
-
-
-
-
-
 
 
 -----
@@ -13265,16 +8555,10 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 712#       发表于 2015-1-9 17:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27727588&amp;ptid=1009008" target="_blank">枫紫 发表于 2015-1-9 11:25</a>
 
 蠢到头的黑话而已,也不知道发扬光大的人什么心态,既不好打,又突出自己没文化 ...</blockquote>
 等等……欠雷不是因为吹雪本体根本没装过酸素鱼雷但是台词里却有调侃的吗……
-
-
-
-
-
 
 
 -----
@@ -13283,23 +8567,16 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 713#       发表于 2015-1-9 17:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27730308&amp;ptid=1009008" target="_blank">depthlee 发表于 2015-1-9 17:24</a>
 
 等等……欠雷不是因为吹雪本体根本没装过酸素鱼雷但是台词里却有调侃的吗…… ...</blockquote>
 那棒各 爱岩 业云这种发展来的黑话呢<img src="https://static.saraba1st.com/image/smiley/face/77.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 714#       发表于 2015-1-9 17:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27728994&amp;ptid=1009008" target="_blank">osore 发表于 2015-1-9 14:18</a>
@@ -13310,16 +8587,10 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 有些人被二设洗脑的没救了
 
 
-
-
-
-
-
 -----
 
 ####  sungoldy  
 ##### 715#       发表于 2015-1-9 17:48
-
 
 
 <blockquote>osore 发表于 2015-1-9 14:18
@@ -13329,32 +8600,19 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 其实官漫里，夜战笨蛋是更加萝莉控的，长门谁让你这么有名呢。
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 716#       发表于 2015-1-9 17:57
 
 
-
-
 欠雷的来源不是因为吹吹是(原)空气主角的调侃嘛
-
-
-
-
-
 
 
 -----
 
 ####  omin2  
 ##### 717#       发表于 2015-1-9 18:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27728994&amp;ptid=1009008" target="_blank">osore 发表于 2015-1-9 14:18</a>
@@ -13365,25 +8623,13 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 那镜头很恶意，反正我看那时就认为是长门了，我去反省一下
 
 
-
-
-
-
-
 -----
 
 ####  sungoldy  
 ##### 718#       发表于 2015-1-9 18:05
 
 
-
-
 不来看妹子卖萌和声优精分，讨论世界设定是什么鬼？官方出了不少小说和漫画都没吧世界观整合起来，你们居然对动画抱有这样的希望？你们吧动画当成什么啦
-
-
-
-
-
 
 
 -----
@@ -13392,14 +8638,7 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 719#       发表于 2015-1-9 20:21
 
 
-
-
 总感觉不来感啊动画- -
-
-
-
-
-
 
 
 -----
@@ -13408,16 +8647,10 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 720#       发表于 2015-1-9 20:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27729207&amp;ptid=1009008" target="_blank">osore 发表于 2015-1-9 14:44</a>
 
 我靠，CV梗也来，那珂的锅是不是也要长门来背啊</blockquote>
 没事啦....我就等着你在 晓 的水平线上乱涂乱画啦<img src="https://static.saraba1st.com/image/smiley/dym/148.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13426,16 +8659,10 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 721#       发表于 2015-1-9 20:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27726124&amp;ptid=1009008" target="_blank">いかずち 发表于 2015-1-9 07:55</a>
 
 我有一句台词耶。</blockquote>
 说起来你拿着那个锚....是准备抡飞机场吗....
-
-
-
-
-
 
 
 -----
@@ -13444,22 +8671,13 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 722#       发表于 2015-1-9 21:15
 
 
-
-
 这片就是拍给舰娘厨看的吧，但是舰娘厨会买塑料片吗
-
-
-
-
-
 
 
 -----
 
 ####  sinfor  
 ##### 723#       发表于 2015-1-9 23:49
-
-
 
 
 光第一话剧情看不出个所以然
@@ -13473,25 +8691,13 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 而且这个监督每季度好像还是三开<img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xpl1993  
 ##### 724#       发表于 2015-1-10 00:38
 
 
-
-
 拖着进度条看完第一集，战斗部分太雷了<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">，这片还是留给fans看吧
-
-
-
-
-
 
 
 -----
@@ -13500,14 +8706,7 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 725#       发表于 2015-1-10 00:49
 
 
-
-
 当小裤裤片看不就行了 想那么多干什么......什么 你们觉得不如小裤裤露的多？那当我没说好了
-
-
-
-
-
 
 
 -----
@@ -13516,15 +8715,8 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 726#       发表于 2015-1-10 01:22
 
 
-
-
 第一话一本正经的打妻舰感觉太羞耻啦
 <img src="https://static.saraba1st.com/image/smiley/carton/172.jpg" referrerpolicy="no-referrer">不如像官方四格一样喝茶玩梗好了
-
-
-
-
-
 
 
 -----
@@ -13533,14 +8725,7 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 727#       发表于 2015-1-10 02:03
 
 
-
-
 目测要暴死，历史背景限制，剧情不好搞
-
-
-
-
-
 
 
 -----
@@ -13549,14 +8734,7 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 728#       发表于 2015-1-10 14:10
 
 
-
-
 在水上像溜冰那样倒好，但是一对镜头就是站平地上一样超违和
-
-
-
-
-
 
 
 -----
@@ -13565,14 +8743,7 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 729#       发表于 2015-1-10 14:14
 
 
-
-
 终于可以好好正经的了解下之前只在本子里看见的各位妹子了
-
-
-
-
-
 
 
 -----
@@ -13581,14 +8752,7 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 730#       发表于 2015-1-10 15:38
 
 
-
-
 变身还是很棒的，循环了好几次，尤其是一航战，那个飒爽的感觉
-
-
-
-
-
 
 
 -----
@@ -13597,16 +8761,10 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 731#       发表于 2015-1-10 19:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27736456&amp;ptid=1009008" target="_blank">nylonchina1 发表于 2015-1-10 15:38</a>
 
 变身还是很棒的，循环了好几次，尤其是一航战，那个飒爽的感觉</blockquote>
 可是你头像虽然飒爽但是好像什么都没干啊...
-
-
-
-
-
 
 
 -----
@@ -13615,16 +8773,9 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 732#       发表于 2015-1-10 20:20
 
 
-
-
 吃撑那么拼不就是为了抢mvp换点吃的吗？加贺老师不跟她抢很正常啊
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (NOKIA Lumia 920)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
@@ -13633,17 +8784,10 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 733#       发表于 2015-1-10 20:50
 
 
-
-
 还好太太没有崩<img src="https://static.saraba1st.com/image/smiley/normal/048.jpg" referrerpolicy="no-referrer">
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -13652,24 +8796,13 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 734#       发表于 2015-1-10 21:40
 
 
-
-
 比睿的舰装可以折叠成大傻的船型，感觉和19的三马尾一样观众欺骗啊<img src="https://static.saraba1st.com/image/smiley/face/74.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 -----
 
 ####  虫之诗歌  
 ##### 735#       发表于 2015-1-10 21:46
-
-
 
 
 比睿的舰装可以折叠成大傻的船型，感觉和19的三马尾一样观众欺骗啊<img src="https://static.saraba1st.com/image/smiley/face/74.gif" referrerpolicy="no-referrer">
@@ -13685,9 +8818,6 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 2015-1-10 21:40 上传
 
 
-
-
-
 <img src="http://img.saraba1st.com/forum/201501/10/214016x65qfupuz5k11ak1.jpg" referrerpolicy="no-referrer">
 
 
@@ -13696,9 +8826,6 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 下载附件
 
 2015-1-10 21:40 上传
-
-
-
 
 
 <img src="http://img.saraba1st.com/forum/201501/10/214017pr7nvwhl73tn6rt1.jpg" referrerpolicy="no-referrer">
@@ -13711,21 +8838,10 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 2015-1-10 21:40 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  nylonchina1  
 ##### 736#       发表于 2015-1-10 22:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27737696&amp;ptid=1009008" target="_blank">lancerhd 发表于 2015-1-10 19:04</a>
@@ -13734,16 +8850,10 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 没办法，台词太少，连赤城都这么多台词……
 
 
-
-
-
-
-
 -----
 
 ####  lh4122  
 ##### 737#       发表于 2015-1-10 23:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27725346&amp;ptid=1009008" target="_blank">Futanari 发表于 2015-1-9 01:04</a>
@@ -13755,27 +8865,15 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 吃撑算是官方梗了
 
 
-
-
-
-
-
 -----
 
 ####  angelooo  
 ##### 738#       发表于 2015-1-11 00:30
 
 
-
-
 这片看个P的剧情
 
 我需要更多的深海妻<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13784,16 +8882,10 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 739#       发表于 2015-1-11 01:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27729008&amp;ptid=1009008" target="_blank">maxwell_goblin 发表于 2015-1-9 14:20</a>
 
 川内和长门里面的人一样的，放弃无谓的挣扎吧</blockquote>
 其实夜战笨蛋本身也是LOLI控，为此还吃了密瓜的大破踢
-
-
-
-
-
 
 
 -----
@@ -13802,14 +8894,7 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 740#       发表于 2015-1-11 01:31
 
 
-
-
 第一话看完，看的我都有点想去玩看舰娘了，话说片里那个开炮一口一个LOVE，FIRE的舰娘挺萌的啊
-
-
-
-
-
 
 
 -----
@@ -13818,16 +8903,10 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 741#       发表于 2015-1-11 02:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27739919&amp;ptid=1009008" target="_blank">lh4122 发表于 2015-1-11 01:10</a>
 
 其实夜战笨蛋本身也是LOLI控，为此还吃了密瓜的大破踢</blockquote>
 夜战笨蛋坐实lolicon的是下雨那话，说喜欢看驱逐舰们被淋湿，透过湿透的衣服隐约看到她们的肌肤什么的
-
-
-
-
-
 
 
 -----
@@ -13836,16 +8915,10 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 742#       发表于 2015-1-11 02:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27740068&amp;ptid=1009008" target="_blank">Kuas0079 发表于 2015-1-11 01:31</a>
 
 第一话看完，看的我都有点想去玩看舰娘了，话说片里那个开炮一口一个LOVE，FIRE的舰娘挺萌的啊 ...</blockquote>
 海歸子女都有特殊的萌點
-
-
-
-
-
 
 
 -----
@@ -13854,23 +8927,16 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 743#       发表于 2015-1-11 02:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27730516&amp;ptid=1009008" target="_blank">北条早苗 发表于 2015-1-9 17:57</a>
 
 欠雷的来源不是因为吹吹是(原)空气主角的调侃嘛</blockquote>
 是因為影薄記不住名字，所以產生了欠雷這些誤讀
 
 
-
-
-
-
-
 -----
 
 ####  skyhigh  
 ##### 744#       发表于 2015-1-11 03:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27725563&amp;ptid=1009008" target="_blank">omin2 发表于 2015-1-9 01:54</a>
@@ -13882,16 +8948,10 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 用不着侵蚀鱼雷打，防护罩一盒就是多一层装甲
 
 
-
-
-
-
-
 -----
 
 ####  T神教民  
 ##### 745#       发表于 2015-1-11 06:07
-
 
 
 我以为欠雷的说法是这么来的
@@ -13904,17 +8964,10 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 欠    雷
 
 
-
-
-
-
-
-
 -----
 
 ####  zechins  
 ##### 746#       发表于 2015-1-11 08:49
-
 
 
 <img src="http://ww3.sinaimg.cn/large/87c7e3b3jw1eo59qiiernj20j20lkqcm.jpg" referrerpolicy="no-referrer">
@@ -13925,25 +8978,14 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 话说动画要是出阳炎拔锚的剧情就好了……
 
 
-
-
-
-
-
 -----
 
 ####  nylonchina1  
 ##### 747#       发表于 2015-1-11 09:04
 
 
-
 <blockquote>Kuas0079 发表于 2015-1-11 01:31  第一话看完，看的我都有点想去玩看舰娘了，话说片里那个开炮一口一个LOVE，FIRE的舰娘挺萌的啊 ...</blockquote>
 金刚嘛，人设讨喜，又是提督love势№001，nico上有个金刚台词rap，看完让人不喜欢金刚都难
-
-
-
-
-
 
 
 -----
@@ -13952,16 +8994,10 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 748#       发表于 2015-1-11 10:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27725563&amp;ptid=1009008" target="_blank">omin2 发表于 2015-1-9 01:54</a>
 
 如果我的理解没错，这组镜头里ri姐是中弹直前开了护罩想挡，所以画面上的六边形和三角形其实是护罩的形状 ...</blockquote>
 感觉护罩应该是游戏里的击破-&gt;斩杀的体现，因为动画没法来回车同一个图，就把几轮道中点的战斗用护罩的形式体现了
-
-
-
-
-
 
 
 -----
@@ -13970,14 +9006,7 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 749#       发表于 2015-1-11 10:50
 
 
-
-
 第一话那些无来由的原作语音台词真是太违和
-
-
-
-
-
 
 
 -----
@@ -13986,14 +9015,7 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 750#       发表于 2015-1-11 13:55
 
 
-
-
 其实第一话看到LV1刚来镇守府没多久就得打这种级别的战斗，这真不是《明日边缘》么...我想欠雷的出场应该是突然醒来，然后某个轻巡抱着鱼雷踢了她一脚“站起来，废物！”
-
-
-
-
-
 
 
 -----
@@ -14002,23 +9024,16 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 ##### 751#       发表于 2015-1-11 14:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27742823&amp;ptid=1009008" target="_blank">金钱与民主 发表于 2015-1-11 13:55</a>
 
 其实第一话看到LV1刚来镇守府没多久就得打这种级别的战斗，这真不是《明日边缘》么...我想欠雷的出场应该是 ...</blockquote>
 这脑洞<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lyz1196  
 ##### 752#       发表于 2015-1-11 15:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27740693&amp;ptid=1009008" target="_blank">T神教民 发表于 2015-1-11 06:07</a>
@@ -14031,16 +9046,10 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 无处不在的NTR<img src="https://static.saraba1st.com/image/smiley/normal/024.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lancerhd  
 ##### 753#       发表于 2015-1-11 15:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27740693&amp;ptid=1009008" target="_blank">T神教民 发表于 2015-1-11 06:07</a>
@@ -14053,17 +9062,10 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 难道不是这样？
 
 
-
-
-
-
-
 -----
 
 ####  alialex  
 ##### 754#       发表于 2015-1-12 10:57
-
-
 
 
 第一话看完，做得一般。当成魔法少女片看有点粗糙了不如苍蓝，当成海战片看就很无语了，特别是那炫酷的出击画面，几百吨的装备直接砸人背上是怎么想的，在基地里又不是紧急出击老老实实斗上去啊，就算是高达也只会在战场上临时换装才这么干。
@@ -14075,16 +9077,10 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 最后：我家睦月长歪了啊！
 
 
-
-
-
-
-
 -----
 
 ####  alialex  
 ##### 755#       发表于 2015-1-12 11:15
-
 
 
  本帖最后由 alialex 于 2015-1-12 11:18 编辑 
@@ -14094,17 +9090,10 @@ poi改二还是能用一用的，虽然没她姐妹时雨更实用</blockquote>
 P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=48077452)
 
 
-
-
-
-
-
 -----
 
 ####  虫之诗歌  
 ##### 756#       发表于 2015-1-12 11:38
-
-
 
 
 没事闲着撸张图，スーパー天龍さま
@@ -14120,37 +9109,19 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 2015-1-12 11:38 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  早乙女亂馬  
 ##### 757#       发表于 2015-1-12 13:31
 
 
-
-
 天龙和雷必须有近身格斗镜头啊！
-
-
-
-
-
 
 
 -----
 
 ####  多多天下  
 ##### 758#       发表于 2015-1-12 14:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27740927&amp;ptid=1009008" target="_blank">zechins 发表于 2015-1-11 08:49</a>
@@ -14161,16 +9132,10 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 阳炎拔锚是这么多舰娘衍生产物里看到最惊艳的作品了，动画还是格局铺太大，如果集中在少数几个舰娘上剧情反倒更好展开（隔壁的灰姑娘）
 
 
-
-
-
-
-
 -----
 
 ####  奶油小吉  
 ##### 759#       发表于 2015-1-12 14:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27741508&amp;ptid=1009008" target="_blank">北条早苗 发表于 2015-1-11 10:50</a>
@@ -14179,16 +9144,10 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 除了响那句“不死鸟”确实很违和，其余还凑合吧至少符合当时语境和人物个性。
 
 
-
-
-
-
-
 -----
 
 ####  coolffcat  
 ##### 760#       发表于 2015-1-12 15:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27748491&amp;ptid=1009008" target="_blank">alialex 发表于 2015-1-12 10:57</a>
@@ -14197,27 +9156,16 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 除了战列舰，你从游戏里面本来就看不出什么厚重感..................至于什么几百吨的装备，设定说过有几百吨吗
 
 
-
-
-
-
-
 -----
 
 ####  lancerhd  
 ##### 761#       发表于 2015-1-12 15:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27748491&amp;ptid=1009008" target="_blank">alialex 发表于 2015-1-12 10:57</a>
 
 第一话看完，做得一般。当成魔法少女片看有点粗糙了不如苍蓝，当成海战片看就很无语了，特别是那炫酷的出击 ...</blockquote>
 重了在穿装备的时候就砸死了....
-
-
-
-
-
 
 
 -----
@@ -14226,16 +9174,10 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 ##### 762#       发表于 2015-1-12 15:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27748491&amp;ptid=1009008" target="_blank">alialex 发表于 2015-1-12 10:57</a>
 
 第一话看完，做得一般。当成魔法少女片看有点粗糙了不如苍蓝，当成海战片看就很无语了，特别是那炫酷的出击 ...</blockquote>
 重了在穿装备的时候就砸死了....
-
-
-
-
-
 
 
 -----
@@ -14244,16 +9186,10 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 ##### 763#       发表于 2015-1-12 16:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27751359&amp;ptid=1009008" target="_blank">lancerhd 发表于 2015-1-12 15:46</a>
 
 重了在穿装备的时候就砸死了....</blockquote>
 死在弹射台上的山城扶桑伊势日向大和武藏么<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14262,15 +9198,9 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 ##### 764#       发表于 2015-1-12 16:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=27751752&amp;amp;ptid=1009008" target="_blank">虫之诗歌 发表于 2015-1-12 16:34</a>
 死在弹射台上的山城扶桑伊势日向大和武藏么</blockquote>
 高速船要高速组装 低速船肯定慢慢组装好之后慢悠悠的晃出去啦
-
-
-
-
-
 
 
 -----
@@ -14279,16 +9209,10 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 ##### 765#       发表于 2015-1-12 16:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27751774&amp;ptid=1009008" target="_blank">warlock228 发表于 2015-1-12 16:36</a>
 
 高速船要高速组装 低速船肯定慢慢组装好之后慢悠悠的晃出去啦</blockquote>
 要说伊势日向那俩倒是说得过去，低速高油耗跑不过小学生<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14297,16 +9221,10 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 ##### 766#       发表于 2015-1-12 17:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27751774&amp;ptid=1009008" target="_blank">warlock228 发表于 2015-1-12 16:36</a>
 
 高速船要高速组装 低速船肯定慢慢组装好之后慢悠悠的晃出去啦</blockquote>
 慢悠悠晃出去没时髦值啊。反派倒是可以学星际争霸1某CG中人族步兵做充满金属和机油味的组装，并念叨着“自由是有代价的”什么的……可惜这种风格和现在舰娘的清新飒爽不搭调
-
-
-
-
-
 
 
 -----
@@ -14315,23 +9233,15 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 ##### 767#       发表于 2015-1-12 17:18
 
 
-
-
 只有一部分组装好看
 
 金刚就一艘船拍过来？五月雨有啥？这种估计就不会做
-
-
-
-
-
 
 
 -----
 
 ####  虫之诗歌  
 ##### 768#       发表于 2015-1-12 17:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27752185&amp;ptid=1009008" target="_blank">maxwell_goblin 发表于 2015-1-12 17:18</a>
@@ -14342,32 +9252,19 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 金刚级的都能变形，不信看比睿开炮的镜头<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  amusitelang  
 ##### 769#       发表于 2015-1-12 17:39
 
 
-
-
 想看从云 天龙的高达变形出击
-
-
-
-
-
 
 
 -----
 
 ####  darkangel0224  
 ##### 770#       发表于 2015-1-12 19:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27748491&amp;ptid=1009008" target="_blank">alialex 发表于 2015-1-12 10:57</a>
@@ -14380,16 +9277,10 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 <img src="http://ww1.sinaimg.cn/mw690/5638564bgw1eo6yrwsnxjj20hs1y04qq.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  darkangel0224  
 ##### 771#       发表于 2015-1-12 19:58
-
 
 
  本帖最后由 darkangel0224 于 2015-1-12 20:00 编辑 
@@ -14402,32 +9293,19 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 我就举个去年4月番的例子：《希德尼亚的骑士》从接到出击命令到四掌机位，整整三分多钟，一点都不会觉得枯燥。
 
 
-
-
-
-
-
 -----
 
 ####  regular  
 ##### 772#       发表于 2015-1-12 19:59
 
 
-
-
 这就是个脑洞片，大的没边的那种，不是提督还能往下看的人真心应该佩服。
-
-
-
-
-
 
 
 -----
 
 ####  lyflyflxf  
 ##### 773#       发表于 2015-1-12 20:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27753701&amp;ptid=1009008" target="_blank">darkangel0224 发表于 2015-1-12 19:58</a>
@@ -14439,16 +9317,10 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 的确，出击准备动作如果要丰富，就需要大量的脑补，满载的细节。没有原作而靠花田大先生……算了吧
 
 
-
-
-
-
-
 -----
 
 ####  alialex  
 ##### 774#       发表于 2015-1-12 21:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27753641&amp;ptid=1009008" target="_blank">darkangel0224 发表于 2015-1-12 19:50</a>
@@ -14459,16 +9331,10 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 短腿低敏重甲...夕张居然能活到现在真不容易啊
 
 
-
-
-
-
-
 -----
 
 ####  nailuo1993  
 ##### 775#       发表于 2015-1-12 21:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27742823&amp;ptid=1009008" target="_blank">金钱与民主 发表于 2015-1-11 13:55</a>
@@ -14485,31 +9351,15 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 2015-1-12 21:19 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  lyflyflxf  
 ##### 776#       发表于 2015-1-12 22:13
 
 
-
 <blockquote>nailuo1993 发表于 2015-1-12 21:19
 </blockquote>
 所以说“我会”什么啊？还有下文吗？太吊胃口了o(╯□╰)o
-
-
-
-
-
 
 
 -----
@@ -14518,16 +9368,10 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 ##### 777#       发表于 2015-1-12 22:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27754352&amp;ptid=1009008" target="_blank">alialex 发表于 2015-1-12 21:15</a>
 
 短腿低敏重甲...夕张居然能活到现在真不容易啊</blockquote>
 夕张在最上挨炮的镜头里，没有做任何防护动作用脸挡子弹；结果后面又是一个和最上一起看天空的镜头里，连衣服都没破。我已经超级不想吐槽了。
-
-
-
-
-
 
 
 -----
@@ -14536,16 +9380,10 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 ##### 778#       发表于 2015-1-12 23:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27754942&amp;ptid=1009008" target="_blank">darkangel0224 发表于 2015-1-12 22:27</a>
 
 夕张在最上挨炮的镜头里，没有做任何防护动作用脸挡子弹；结果后面又是一个和最上一起看天空的镜头里，连 ...</blockquote>
 小破不会爆衫的啦（
-
-
-
-
-
 
 
 -----
@@ -14554,14 +9392,7 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 ##### 779#       发表于 2015-1-12 23:15
 
 
-
-
 夕张真的出声了？除了中弹那点声音？声优真的就凭这个能领工资？
-
-
-
-
-
 
 
 -----
@@ -14570,14 +9401,7 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 ##### 780#       发表于 2015-1-12 23:19
 
 
-
-
 另外原来游戏的BGM也颇有一些挺不错的，不知为何没有用上
-
-
-
-
-
 
 
 -----
@@ -14586,15 +9410,9 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 ##### 781#       发表于 2015-1-12 23:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=27755345&amp;amp;ptid=1009008" target="_blank">storm 发表于 2015-1-12 23:15</a>
 夕张真的出声了？除了中弹那点声音？声优真的就凭这个能领工资？</blockquote>
 听说就算只有一句台词，声优也要在片场呆很长时间
-
-
-
-
-
 
 
 -----
@@ -14603,16 +9421,9 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 ##### 782#       发表于 2015-1-12 23:43
 
 
-
-
 夕张是不是说了句 akagi san
 
 还是最上说的？
-
-
-
-
-
 
 
 -----
@@ -14621,14 +9432,7 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 ##### 783#       发表于 2015-1-13 09:45
 
 
-
-
 那是最上说的
-
-
-
-
-
 
 
 -----
@@ -14637,16 +9441,10 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 ##### 784#       发表于 2015-1-13 21:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27754855&amp;ptid=1009008" target="_blank">lyflyflxf 发表于 2015-1-12 22:13</a>
 
 所以说“我会”什么啊？还有下文吗？太吊胃口了o(╯□╰)o</blockquote>
 没了....
-
-
-
-
-
 
 
 -----
@@ -14655,15 +9453,8 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 ##### 785#       发表于 2015-1-13 22:00
 
 
-
-
 话说最近看了个本子，加贺老师和小提督在干一些哈子卡西的事情然后感到自己被排斥在外的赤城在门外自扣，完全可以发展成舰女人版的白本2<img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer">
 (C86) [Shikitenshi (Shironeko Sanbou)] Shikisokuzekuu Ikkousen wa Mita 
-
-
-
-
-
 
 
 -----
@@ -14672,16 +9463,10 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 ##### 786#       发表于 2015-1-13 22:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27764500&amp;ptid=1009008" target="_blank">冰狼芬里尔 发表于 2015-1-13 22:00</a>
 
 话说最近看了个本子，加贺老师和小提督在干一些哈子卡西的事情然后感到自己被排斥在外的赤城在门外自扣，完 ...</blockquote>
 加贺老师的本子很多都是和小提督
-
-
-
-
-
 
 
 -----
@@ -14690,13 +9475,7 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 ##### 787#       发表于 2015-1-14 22:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">还有两小时开播了  上浮一下吧
-
-
-
-
-
 
 
 -----
@@ -14705,13 +9484,7 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 ##### 788#       发表于 2015-1-14 22:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">这话大概是川内型的主场？
-
-
-
-
-
 
 
 -----
@@ -14720,21 +9493,13 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 ##### 789#       发表于 2015-1-14 22:23
 
 
-
-
 今晚必然热闹了
-
-
-
-
-
 
 
 -----
 
 ####  反击的马沙  
 ##### 790#       发表于 2015-1-14 22:34
-
 
 
 <blockquote>引用第785楼冰狼芬里尔于2015-01-13 22:00发表的  :
@@ -14748,25 +9513,13 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 ----发送自 [Sony L50t,Android 4.4.2](http://stage1.5j4m.com/?1.17) 
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 791#       发表于 2015-1-14 22:44
 
 
-
-
 加贺本子也算比较多的了。 不过大部分都是主动服务。。
-
-
-
-
-
 
 
 -----
@@ -14775,15 +9528,9 @@ P站链接：[http://www.pixiv.net/member_illu ... ;illust_id=48077452](http://w
 ##### 792#       发表于 2015-1-14 22:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer">这集希望伞姐能出场
 
 BD第一卷封面有个伞姐你跟我说前三话没她怎么玩<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14792,23 +9539,15 @@ BD第一卷封面有个伞姐你跟我说前三话没她怎么玩<img src="https
 ##### 793#       发表于 2015-1-14 23:05
 
 
-
-
 第一卷封面是吹吹
 
 伞姐只是密林特典
-
-
-
-
-
 
 
 -----
 
 ####  飞霞精灵  
 ##### 794#       发表于 2015-1-14 23:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27764500&amp;ptid=1009008" target="_blank">冰狼芬里尔 发表于 2015-1-13 22:00</a>
@@ -14822,25 +9561,13 @@ BD第一卷封面有个伞姐你跟我说前三话没她怎么玩<img src="https
 最近digital lover的新正太提督本的女主就是加贺……
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 795#       发表于 2015-1-15 00:02
 
 
-
-
 马上就要开始了<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14849,16 +9576,10 @@ BD第一卷封面有个伞姐你跟我说前三话没她怎么玩<img src="https
 ##### 796#       发表于 2015-1-15 00:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27775858&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-15 00:02</a>
 
 马上就要开始了</blockquote>
 有直播地址否？<img src="https://static.saraba1st.com/image/smiley/zdl/158.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14867,18 +9588,10 @@ BD第一卷封面有个伞姐你跟我说前三话没她怎么玩<img src="https
 ##### 797#       发表于 2015-1-15 00:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27775870&amp;ptid=1009008" target="_blank">taostin 发表于 2015-1-15 00:04</a>
 
 有直播地址否？</blockquote>
 [http://www.douyutv.com/meizhi](http://www.douyutv.com/meizhi)
-
-
-
-
-
-
-
 
 
 -----
@@ -14887,13 +9600,7 @@ BD第一卷封面有个伞姐你跟我说前三话没她怎么玩<img src="https
 ##### 798#       发表于 2015-1-15 00:10
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">伞姐在OP登场了
-
-
-
-
-
 
 
 -----
@@ -14902,14 +9609,7 @@ BD第一卷封面有个伞姐你跟我说前三话没她怎么玩<img src="https
 ##### 799#       发表于 2015-1-15 00:11
 
 
-
-
 直播里一大票人在刷70W梗。。
-
-
-
-
-
 
 
 -----
@@ -14918,14 +9618,7 @@ BD第一卷封面有个伞姐你跟我说前三话没她怎么玩<img src="https
 ##### 800#       发表于 2015-1-15 00:12
 
 
-
-
 op战斗画面都是第一集内容，。。 op有加贺脸红歪嘴的图 吃醋了？
-
-
-
-
-
 
 
 -----
@@ -14934,21 +9627,13 @@ op战斗画面都是第一集内容，。。 op有加贺脸红歪嘴的图 吃�
 ##### 801#       发表于 2015-1-15 00:12
 
 
-
-
 我终于出境啦！<img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  革新  
 ##### 802#       发表于 2015-1-15 00:15
-
 
 
  本帖最后由 革新 于 2015-1-15 00:22 编辑 
@@ -14963,24 +9648,13 @@ op战斗画面都是第一集内容，。。 op有加贺脸红歪嘴的图 吃�
 修复是泡澡堂子泡绿色液体，。。。
 
 
-
-
-
-
-
 -----
 
 ####  屈江鸟  
 ##### 803#       发表于 2015-1-15 00:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14989,14 +9663,7 @@ op战斗画面都是第一集内容，。。 op有加贺脸红歪嘴的图 吃�
 ##### 804#       发表于 2015-1-15 00:25
 
 
-
-
 赤城帅不过一集……
-
-
-
-
-
 
 
 -----
@@ -15005,22 +9672,13 @@ op战斗画面都是第一集内容，。。 op有加贺脸红歪嘴的图 吃�
 ##### 805#       发表于 2015-1-15 00:26
 
 
-
-
 吹雪不行的原因 纯粹是被这帮逗比带坏了吧。。。
-
-
-
-
-
 
 
 -----
 
 ####  大和  
 ##### 806#       发表于 2015-1-15 00:30
-
-
 
 
 总觉得大家的属性都开始暴露了...
@@ -15030,25 +9688,13 @@ akagiさん的节操只保持了一话！
 <img src="https://static.saraba1st.com/image/smiley/face/13.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  屈江鸟  
 ##### 807#       发表于 2015-1-15 00:33
 
 
-
-
 大井这从头到尾的怨妇范<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15057,14 +9703,7 @@ akagiさん的节操只保持了一话！
 ##### 808#       发表于 2015-1-15 00:34
 
 
-
-
 弱弱的问一个小白问题，为什么感觉日本的舰船名字起的都那么好听？日本海军的命名方式是什么样的？
-
-
-
-
-
 
 
 -----
@@ -15073,16 +9712,10 @@ akagiさん的节操只保持了一话！
 ##### 809#       发表于 2015-1-15 00:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27776041&amp;ptid=1009008" target="_blank">Kuas0079 发表于 2015-1-15 00:34</a>
 
 弱弱的问一个小白问题，为什么感觉日本的舰船名字起的都那么好听？日本海军的命名方式是什么样的？ ...</blockquote>
 无非是人名地名，好听是因为字你看得懂，但是意思你不懂。。。
-
-
-
-
-
 
 
 -----
@@ -15091,14 +9724,7 @@ akagiさん的节操只保持了一话！
 ##### 810#       发表于 2015-1-15 00:36
 
 
-
-
 感觉第二话质量就降了不少啊……
-
-
-
-
-
 
 
 -----
@@ -15107,14 +9733,7 @@ akagiさん的节操只保持了一话！
 ##### 811#       发表于 2015-1-15 00:37
 
 
-
-
 看直播卡得跟狗一样<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15123,16 +9742,10 @@ akagiさん的节操只保持了一话！
 ##### 812#       发表于 2015-1-15 00:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27775885&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-15 00:06</a>
 
 http://www.douyutv.com/meizhi</blockquote>
 多谢！
-
-
-
-
-
 
 
 -----
@@ -15141,13 +9754,7 @@ http://www.douyutv.com/meizhi</blockquote>
 ##### 813#       发表于 2015-1-15 00:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/26.gif" referrerpolicy="no-referrer"> 吹雪在日文中就是暴风雪的意思，你看改成“暴雪”是不是就不太一样了呢
-
-
-
-
-
 
 
 -----
@@ -15156,14 +9763,7 @@ http://www.douyutv.com/meizhi</blockquote>
 ##### 814#       发表于 2015-1-15 00:38
 
 
-
-
 这片看来也就是内裤魔女翻版了。。。 动画化能把吹雪人气捧起来么？毕竟是官方主角。本子却那么少，用的人也不多
-
-
-
-
-
 
 
 -----
@@ -15172,14 +9772,7 @@ http://www.douyutv.com/meizhi</blockquote>
 ##### 815#       发表于 2015-1-15 00:39
 
 
-
-
 吹雪是人气很高的舰娘吗？整个片都是围绕她的…
-
-
-
-
-
 
 
 -----
@@ -15188,24 +9781,16 @@ http://www.douyutv.com/meizhi</blockquote>
 ##### 816#       发表于 2015-1-15 00:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27776041&amp;ptid=1009008" target="_blank">Kuas0079 发表于 2015-1-15 00:34</a>
 
 弱弱的问一个小白问题，为什么感觉日本的舰船名字起的都那么好听？日本海军的命名方式是什么样的？ ...</blockquote>
 其实一点也不好听，，，
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 817#       发表于 2015-1-15 00:40
-
-
 
 
 人物远景（尤其没台词的）崩的有点严重
@@ -15215,16 +9800,10 @@ http://www.douyutv.com/meizhi</blockquote>
 ——— 来自[Stage1st Reader For iOS](http://itunes.apple.com/us/app/stage1st-reader/id509916119?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  warlock228  
 ##### 818#       发表于 2015-1-15 00:40
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/01.gif" referrerpolicy="no-referrer">竟然是沐浴剂！
@@ -15234,25 +9813,13 @@ http://www.douyutv.com/meizhi</blockquote>
 不过  这样的吃撑才是最萌的<img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 819#       发表于 2015-1-15 00:40
 
 
-
-
 嗯 ed不咋样 还是op好听。
-
-
-
-
-
 
 
 -----
@@ -15261,21 +9828,13 @@ http://www.douyutv.com/meizhi</blockquote>
 ##### 820#       发表于 2015-1-15 00:40
 
 
-
-
 回归本色的吃撑…赤城，依旧很棒。
-
-
-
-
-
 
 
 -----
 
 ####  Kuas0079  
 ##### 821#       发表于 2015-1-15 00:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27776052&amp;ptid=1009008" target="_blank">wzp2853 发表于 2015-1-15 00:36</a>
@@ -15286,16 +9845,10 @@ http://www.douyutv.com/meizhi</blockquote>
 感觉日本人给武器起名挺好听的，但好像其他国家都是像你说的城市名人名之类的........为什么日本会这样
 
 
-
-
-
-
-
 -----
 
 ####  maxwell_goblin  
 ##### 822#       发表于 2015-1-15 00:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27776041&amp;ptid=1009008" target="_blank">Kuas0079 发表于 2015-1-15 00:34</a>
@@ -15304,16 +9857,10 @@ http://www.douyutv.com/meizhi</blockquote>
 传统上战舰用古国名，重巡用山名，轻巡用河名，驱逐用自然现象
 
 
-
-
-
-
-
 -----
 
 ####  gary76  
 ##### 823#       发表于 2015-1-15 00:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27776041&amp;ptid=1009008" target="_blank">Kuas0079 发表于 2015-1-15 00:34</a>
@@ -15322,16 +9869,10 @@ http://www.douyutv.com/meizhi</blockquote>
 戰艦看來是令制國國名，戰巡重巡是山名，輕巡和部分重巡是是河名，然後驅逐就是自然現象名
 
 
-
-
-
-
-
 -----
 
 ####  nylonchina1  
 ##### 824#       发表于 2015-1-15 00:43
-
 
 
 <blockquote>sinfor 发表于 2015-1-15 00:39  吹雪是人气很高的舰娘吗？整个片都是围绕她的…</blockquote>
@@ -15341,16 +9882,10 @@ http://www.douyutv.com/meizhi</blockquote>
 在各类排行里都不算人气高的，其实出名方式和阿拉林差不多……
 
 
-
-
-
-
-
 -----
 
 ####  Inle  
 ##### 825#       发表于 2015-1-15 00:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27776087&amp;ptid=1009008" target="_blank">Kuas0079 发表于 2015-1-15 00:41</a>
@@ -15359,33 +9894,19 @@ http://www.douyutv.com/meizhi</blockquote>
 [http://ja.wikipedia.org/wiki/%E8 ... #.E6.B5.B7.E8.BB.8D](http://ja.wikipedia.org/wiki/%E8%88%B9%E5%90%8D#.E6.B5.B7.E8.BB.8D)
 
 
-
-
-
-
-
 -----
 
 ####  wyjbnb  
 ##### 826#       发表于 2015-1-15 00:44
 
 
-
-
 吃撑的泡泡纸，原来蹲厕所是在干这个啊
-
-
-
-
-
 
 
 -----
 
 ####  len曦  
 ##### 827#       发表于 2015-1-15 00:44
-
-
 
 
 只活在oped的金刚<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
@@ -15400,16 +9921,10 @@ http://www.douyutv.com/meizhi</blockquote>
 长门估计就一直在小树林看着驱逐舰吧<img src="https://static.saraba1st.com/image/smiley/normal/056.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  warlock228  
 ##### 828#       发表于 2015-1-15 00:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27776041&amp;ptid=1009008" target="_blank">Kuas0079 发表于 2015-1-15 00:34</a>
@@ -15424,33 +9939,19 @@ http://www.douyutv.com/meizhi</blockquote>
 大致这样
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 829#       发表于 2015-1-15 00:45
 
 
-
-
 感覺有點悶...
-
-
-
-
-
 
 
 -----
 
 ####  gameseve  
 ##### 830#       发表于 2015-1-15 00:46
-
-
 
 
 有点过分fans向啊。。
@@ -15461,16 +9962,10 @@ http://www.douyutv.com/meizhi</blockquote>
 第二集也不够有趣， 只能说展开很稳定
 
 
-
-
-
-
-
 -----
 
 ####  nylonchina1  
 ##### 831#       发表于 2015-1-15 00:46
-
 
 
 <blockquote>革新 发表于 2015-1-14 22:44  加贺本子也算比较多的了。 不过大部分都是主动服务。。</blockquote>
@@ -15480,16 +9975,10 @@ http://www.douyutv.com/meizhi</blockquote>
 推荐你看一下彩社长的加贺本，应该是我最早看到的闷骚加贺本吧
 
 
-
-
-
-
-
 -----
 
 ####  京都不是城  
 ##### 832#       发表于 2015-1-15 00:49
-
 
 
 <blockquote>gameseve 发表于 2015-1-15 00:46
@@ -15501,31 +9990,19 @@ http://www.douyutv.com/meizhi</blockquote>
 我觉得反过来了，既然找来了花田做脚本，日常部分无趣是必然的
 
 
-
-
-
-
-
 -----
 
 ####  風見一姫  
 ##### 833#       发表于 2015-1-15 00:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">说实话，动画版不如按官方四格的剧情跟风格做
-
-
-
-
-
 
 
 -----
 
 ####  大和  
 ##### 834#       发表于 2015-1-15 00:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27776041&amp;ptid=1009008" target="_blank">Kuas0079 发表于 2015-1-15 00:34</a>
@@ -15552,32 +10029,19 @@ http://www.douyutv.com/meizhi</blockquote>
 其他辅助舰有以岛屿、海峡、山岬、名胜古迹和旧时的船名等等命名方式。
 
 
-
-
-
-
-
 -----
 
 ####  八岐游助  
 ##### 835#       发表于 2015-1-15 00:51
 
 
-
-
 动画又让POI的萌度上升了几分
-
-
-
-
-
 
 
 -----
 
 ####  warlock228  
 ##### 836#       发表于 2015-1-15 00:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27776123&amp;ptid=1009008" target="_blank">nylonchina1 发表于 2015-1-15 00:46</a>
@@ -15591,16 +10055,10 @@ http://www.douyutv.com/meizhi</blockquote>
 然后就是各种忽略老公弄得老公没精神然后主动服务的展开了
 
 
-
-
-
-
-
 -----
 
 ####  Kuas0079  
 ##### 837#       发表于 2015-1-15 00:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27776146&amp;ptid=1009008" target="_blank">大和 发表于 2015-1-15 00:50</a>
@@ -15613,16 +10071,10 @@ http://www.douyutv.com/meizhi</blockquote>
 原来如此，受教了
 
 
-
-
-
-
-
 -----
 
 ####  wyjbnb  
 ##### 838#       发表于 2015-1-15 00:52
-
 
 
 <blockquote>大和 发表于 2015-1-15 00:50
@@ -15634,25 +10086,13 @@ http://www.douyutv.com/meizhi</blockquote>
 我今天又大建了一发，你怎么还不过来？大建开了一年了啊！
 
 
-
-
-
-
-
 -----
 
 ####  warlock228  
 ##### 839#       发表于 2015-1-15 00:53
 
 
-
-
 所以说  就这剧情  暴死的锅全部是花田背就对了
-
-
-
-
-
 
 
 -----
@@ -15661,13 +10101,7 @@ http://www.douyutv.com/meizhi</blockquote>
 ##### 840#       发表于 2015-1-15 00:56
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer"> 吹雪二改后能用么？
-
-
-
-
-
 
 
 -----
@@ -15676,17 +10110,10 @@ http://www.douyutv.com/meizhi</blockquote>
 ##### 841#       发表于 2015-1-15 00:58
 
 
-
-
 不能拿花田老师背锅啊
 
 
 明显是制作组整体都在追求一个稳定。不想玩的太激进。所以才造成目前这个样子。。
-
-
-
-
-
 
 
 -----
@@ -15695,14 +10122,7 @@ http://www.douyutv.com/meizhi</blockquote>
 ##### 842#       发表于 2015-1-15 00:59
 
 
-
-
 放心啦，舰娘暴死不了。<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15711,14 +10131,7 @@ http://www.douyutv.com/meizhi</blockquote>
 ##### 843#       发表于 2015-1-15 01:04
 
 
-
-
 花田真是一個好鍋民
-
-
-
-
-
 
 
 -----
@@ -15727,22 +10140,15 @@ http://www.douyutv.com/meizhi</blockquote>
 ##### 844#       发表于 2015-1-15 01:08
 
 
-
  本帖最后由 革新 于 2015-1-15 01:09 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face/14.gif" referrerpolicy="no-referrer"> 仔细对照了了一下第一集 动画里人物画的最好的就是吹雪。。。特别是这集ed......建模比其她人质量都精细一个档次。。。   主角待遇还是很好的
-
-
-
-
-
 
 
 -----
 
 ####  lyflyflxf  
 ##### 845#       发表于 2015-1-15 01:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=27776190&amp;amp;ptid=1009008" target="_blank">革新 发表于 2015-1-15 00:56</a>
@@ -15752,17 +10158,10 @@ http://www.douyutv.com/meizhi</blockquote>
 反正战斗力还是不突出
 
 
-
-
-
-
-
 -----
 
 ####  kalamazoo  
 ##### 846#       发表于 2015-1-15 01:26
-
-
 
 
 向日葵卡成狗，明早起来再看吧…
@@ -15771,25 +10170,13 @@ http://www.douyutv.com/meizhi</blockquote>
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  镜hinata  
 ##### 847#       发表于 2015-1-15 01:40
 
 
-
-
 我觉得ED比OP好听多了
-
-
-
-
-
 
 
 -----
@@ -15798,14 +10185,7 @@ http://www.douyutv.com/meizhi</blockquote>
 ##### 848#       发表于 2015-1-15 01:46
 
 
-
-
 15小时的吃撑入渠时间，笑死我了
-
-
-
-
-
 
 
 -----
@@ -15814,21 +10194,13 @@ http://www.douyutv.com/meizhi</blockquote>
 ##### 849#       发表于 2015-1-15 02:14
 
 
-
-
 感觉不如官方四格
-
-
-
-
-
 
 
 -----
 
 ####  kitagawa  
 ##### 850#       发表于 2015-1-15 02:18
-
 
 
  本帖最后由 kitagawa 于 2015-1-15 03:29 编辑 
@@ -15838,19 +10210,10 @@ http://www.douyutv.com/meizhi</blockquote>
 原来楼主这么可爱<img src="http://i.imgur.com/FSako2w.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
 -----
 
 ####  斜阳  
 ##### 851#       发表于 2015-1-15 02:35
-
-
 
 
 咖喱画的略恶心……<img src="https://static.saraba1st.com/image/smiley/face/23.gif" referrerpolicy="no-referrer">
@@ -15858,16 +10221,10 @@ http://www.douyutv.com/meizhi</blockquote>
 不多说不多说……
 
 
-
-
-
-
-
 -----
 
 ####  32767  
 ##### 852#       发表于 2015-1-15 04:00
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">川内三姐妹和长门对话的时候看弹幕各种刷自演乙笑尿，佐仓还真是辛苦……
@@ -15877,32 +10234,19 @@ http://www.douyutv.com/meizhi</blockquote>
 作为游戏党来看总体感觉不好不坏，没啥特别大的亮点，也没有啥太大的黑点的感觉
 
 
-
-
-
-
-
 -----
 
 ####  storm  
 ##### 853#       发表于 2015-1-15 08:23
 
 
-
-
 op里金刚打着伞那幕，难道就是大建的真相？打伞的大姐姐金刚
-
-
-
-
-
 
 
 -----
 
 ####  downforce  
 ##### 854#       发表于 2015-1-15 08:27
-
 
 
 <blockquote>引用第754楼alialex于2015-01-12 10:57发表的  :
@@ -15914,25 +10258,13 @@ op里金刚打着伞那幕，难道就是大建的真相？打伞的大姐姐金
 ----发送自 [Sony L36h,Android 4.1.2](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  lqn870727  
 ##### 855#       发表于 2015-1-15 09:12
 
 
-
-
 战斗还好，日常我觉得不如官方四格，像四格这样玩梗其实要更有趣点
-
-
-
-
-
 
 
 -----
@@ -15941,14 +10273,7 @@ op里金刚打着伞那幕，难道就是大建的真相？打伞的大姐姐金
 ##### 856#       发表于 2015-1-15 09:31
 
 
-
-
 半夜向日葵吃生肉，末尾第三集预告标题是W岛，然后一群威克岛，和如月击沉的弹幕。检验三集定律的时候到了啊。
-
-
-
-
-
 
 
 -----
@@ -15957,16 +10282,10 @@ op里金刚打着伞那幕，难道就是大建的真相？打伞的大姐姐金
 ##### 857#       发表于 2015-1-15 10:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27776052&amp;ptid=1009008" target="_blank">wzp2853 发表于 2015-1-15 00:36</a>
 
 无非是人名地名，好听是因为字你看得懂，但是意思你不懂。。。</blockquote>
 对比北洋水师的命名，现在舰艇的名字是真那啥<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15975,14 +10294,7 @@ op里金刚打着伞那幕，难道就是大建的真相？打伞的大姐姐金
 ##### 858#       发表于 2015-1-15 10:30
 
 
-
-
 所以说为啥不能直接把官方四格弄成个泡面番呢...
-
-
-
-
-
 
 
 -----
@@ -15991,14 +10303,7 @@ op里金刚打着伞那幕，难道就是大建的真相？打伞的大姐姐金
 ##### 859#       发表于 2015-1-15 10:33
 
 
-
-
 槽点太多，最大的槽点是阿达沟的板载脱衣<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16007,15 +10312,9 @@ op里金刚打着伞那幕，难道就是大建的真相？打伞的大姐姐金
 ##### 860#       发表于 2015-1-15 10:45
 
 
-
  本帖最后由 besta9188 于 2015-1-15 10:49 编辑 
 
 看完一集突然发现舰娘的世界好残酷，得了提督欢心可以当秘书舰，但是舰种的鸿沟是无法跨越的，吹雪再怎么找赤城学习，她还是个驱逐舰……
-
-
-
-
-
 
 
 -----
@@ -16024,14 +10323,7 @@ op里金刚打着伞那幕，难道就是大建的真相？打伞的大姐姐金
 ##### 861#       发表于 2015-1-15 10:53
 
 
-
-
 高速修复那里应该作出泡泡浴效果，浮空的每个泡泡上倒映一个吃撑的高潮脸是多么有说服力的演出啊……单单把可疑琥珀色液体倒进去完全没有泡澡的实感
-
-
-
-
-
 
 
 -----
@@ -16040,23 +10332,16 @@ op里金刚打着伞那幕，难道就是大建的真相？打伞的大姐姐金
 ##### 862#       发表于 2015-1-15 10:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27778126&amp;ptid=1009008" target="_blank">besta9188 发表于 2015-1-15 10:45</a>
 
 看完一集突然发现舰娘的世界好残酷，得了提督欢心可以当秘书舰，但是舰种的鸿沟是无法跨越的…… ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">让长门当秘书舰确实有点怪，把这么突出一个战力丢去做秘书舰还把她妹妹留下来做啦啦队是不是有点打压她的意思。而且长门性格也不太合适，论分析能力应该叫雾岛做秘书。还有一种可能就是秘书舰不是永久性的，过一段时期由另一个人做
 
 
-
-
-
-
-
 -----
 
 ####  besta9188  
 ##### 863#       发表于 2015-1-15 10:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27778218&amp;ptid=1009008" target="_blank">奶油小吉 发表于 2015-1-15 10:55</a>
@@ -16068,25 +10353,13 @@ op里金刚打着伞那幕，难道就是大建的真相？打伞的大姐姐金
 但问题是动画里面出于各种各样的原因不好让提督出场，所以只能让前联合舰队旗舰来担任这个指挥角色了……
 
 
-
-
-
-
-
 -----
 
 ####  posthoc  
 ##### 864#       发表于 2015-1-15 11:01
 
 
-
-
 一点都不怪好吗，赌得弹尽粮绝赌出长门的时候放在秘书舰恨不得10秒钟戳一下立绘的心情欧洲人是不会懂的<img src="https://static.saraba1st.com/image/smiley/face/01.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16095,21 +10368,13 @@ op里金刚打着伞那幕，难道就是大建的真相？打伞的大姐姐金
 ##### 865#       发表于 2015-1-15 11:01
 
 
-
-
 其实我觉得官方四格挺无聊的，每次都是新舰娘加入打招呼随便玩点梗。一些就有趣多了，比如田中谦介画的那个。
-
-
-
-
-
 
 
 -----
 
 ####  musicat  
 ##### 866#       发表于 2015-1-15 11:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27776190&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-15 00:56</a>
@@ -16122,25 +10387,13 @@ op里金刚打着伞那幕，难道就是大建的真相？打伞的大姐姐金
 （秋月 吹雪 时雨）
 
 
-
-
-
-
-
 -----
 
 ####  神無月悠也  
 ##### 867#       发表于 2015-1-15 11:11
 
 
-
-
 op好评。又是少女奋斗记 <img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">提督还是没脸
-
-
-
-
-
 
 
 -----
@@ -16149,23 +10402,15 @@ op好评。又是少女奋斗记 <img src="https://static.saraba1st.com/image/sm
 ##### 868#       发表于 2015-1-15 11:13
 
 
-
-
 ed什么鬼，op不错。。。
 
 poi一直在卖萌，好评！
-
-
-
-
-
 
 
 -----
 
 ####  奶油小吉  
 ##### 869#       发表于 2015-1-15 11:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27778243&amp;ptid=1009008" target="_blank">besta9188 发表于 2015-1-15 10:58</a>
@@ -16177,25 +10422,13 @@ poi一直在卖萌，好评！
 <img src="https://static.saraba1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">脑洞一下，按照说镇守府提督都应该加大力度培养自己的嫡系，先把最强几个战斗力的培养成亲信分一些权力让她们管下面那些驱逐舰一个镇守府的提督用不着事必躬亲，再让一部分比较适合做文书工作的比如雾岛、高雄这些做情报分析。再把一些执行力比较高的舰女人培养成自己的嫡系部队比如不知火、加贺、滨风这种，补给资源都优先给这部队，顺便给其他的舰女人做榜样告诉她们将来表现突出的话也能进去，而金刚这种忠诚心高但不够聪明的就担任一些名誉性高但没什么实权的职务。
 
 
-
-
-
-
-
 -----
 
 ####  raistlin2  
 ##### 870#       发表于 2015-1-15 11:24
 
 
-
-
 按官方四格，雾岛是自称头脑派啊233，她很冲动的，秘书舰还是大淀这样
-
-
-
-
-
 
 
 -----
@@ -16204,15 +10437,8 @@ poi一直在卖萌，好评！
 ##### 871#       发表于 2015-1-15 11:29
 
 
-
-
 会精分的CV太出戏了，澡堂里的还是扶桑，出来一看到咖喱就变成雪风了<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 等等，那赤城是谁
-
-
-
-
-
 
 
 -----
@@ -16221,14 +10447,7 @@ poi一直在卖萌，好评！
 ##### 872#       发表于 2015-1-15 11:32
 
 
-
-
 头重脚轻这说的就是鬼子的中小水面舰艇普遍的强化火力造成适航性差的梗。
-
-
-
-
-
 
 
 -----
@@ -16237,23 +10456,16 @@ poi一直在卖萌，好评！
 ##### 873#       发表于 2015-1-15 11:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27778477&amp;ptid=1009008" target="_blank">raistlin2 发表于 2015-1-15 11:24</a>
 
 按官方四格，雾岛是自称头脑派啊233，她很冲动的，秘书舰还是大淀这样</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/180.gif" referrerpolicy="no-referrer">上战场冲动不代表做情报分析工作冲动，大不了让鸟海做她副手压一下她的冲动脾气
 
 
-
-
-
-
-
 -----
 
 ####  warlock228  
 ##### 874#       发表于 2015-1-15 11:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27778218&amp;ptid=1009008" target="_blank">奶油小吉 发表于 2015-1-15 10:55</a>
@@ -16264,16 +10476,10 @@ poi一直在卖萌，好评！
 当然不排除把伞姐弄成隐世高人的角色来联欢一下就走<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  奶油小吉  
 ##### 875#       发表于 2015-1-15 11:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27778688&amp;ptid=1009008" target="_blank">warlock228 发表于 2015-1-15 11:44</a>
@@ -16284,27 +10490,15 @@ poi一直在卖萌，好评！
 伞级来做联欢就走？不能忍啊！<img src="https://static.saraba1st.com/image/smiley/face/57.gif" referrerpolicy="no-referrer">你让那么多非提在现实中苦逼就算了，连在动画中做欧提的机会都不给吗？
 
 
-
-
-
-
-
 -----
 
 ####  契卡  
 ##### 876#       发表于 2015-1-15 12:17
 
 
-
-
 作为一名提督，看到这些熟悉的梗搬上银幕还是开心的。
 
 但是嘛，这一集真的一点都不好看啊。花田背锅吧<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16313,14 +10507,7 @@ poi一直在卖萌，好评！
 ##### 877#       发表于 2015-1-15 12:43
 
 
-
-
 第二集后半作画有点蹦啊
-
-
-
-
-
 
 
 -----
@@ -16329,14 +10516,7 @@ poi一直在卖萌，好评！
 ##### 878#       发表于 2015-1-15 12:48
 
 
-
-
 没潜艇。
-
-
-
-
-
 
 
 -----
@@ -16345,14 +10525,7 @@ poi一直在卖萌，好评！
 ##### 879#       发表于 2015-1-15 13:02
 
 
-
-
 为什么我觉得这片子拍得对没玩过游戏的观众一点都不友好？？
-
-
-
-
-
 
 
 -----
@@ -16361,16 +10534,10 @@ poi一直在卖萌，好评！
 ##### 880#       发表于 2015-1-15 13:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27779504&amp;ptid=1009008" target="_blank">terry666 发表于 2015-1-15 13:02</a>
 
 为什么我觉得这片子拍得对没玩过游戏的观众一点都不友好？？</blockquote>
 因为本来就是FAN向作品
-
-
-
-
-
 
 
 -----
@@ -16379,21 +10546,13 @@ poi一直在卖萌，好评！
 ##### 881#       发表于 2015-1-15 13:17
 
 
-
-
 舰娘哪家字幕组最好？？？ 做的组太多了 不知道那个更好点？
-
-
-
-
-
 
 
 -----
 
 ####  warlock228  
 ##### 882#       发表于 2015-1-15 13:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27779666&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-15 13:17</a>
@@ -16404,25 +10563,13 @@ poi一直在卖萌，好评！
 熟悉游戏的话 看其他都差不多的样子 都是求快没啥注释
 
 
-
-
-
-
-
 -----
 
 ####  Archlich  
 ##### 883#       发表于 2015-1-15 13:24
 
 
-
-
 挺好看。这回三个原画，分别是动作指导、怪物设计和特效总监，工期果然够长www
-
-
-
-
-
 
 
 -----
@@ -16431,16 +10578,10 @@ poi一直在卖萌，好评！
 ##### 884#       发表于 2015-1-15 13:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27776063&amp;ptid=1009008" target="_blank">風見一姫 发表于 2015-1-15 00:37</a>
 
 吹雪在日文中就是暴风雪的意思，你看改成“暴雪”是不是就不太一样了呢 ...</blockquote>
 怪不得穿个舰装弄的跟SC2一般<img src="https://static.saraba1st.com/image/smiley/carton/172.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16449,14 +10590,7 @@ poi一直在卖萌，好评！
 ##### 885#       发表于 2015-1-15 13:39
 
 
-
-
 我没玩过游戏觉得蛮好看的。
-
-
-
-
-
 
 
 -----
@@ -16465,17 +10599,10 @@ poi一直在卖萌，好评！
 ##### 886#       发表于 2015-1-15 13:42
 
 
-
-
 虽然没玩过游戏，但是那个高修复液就是在宣传氪金吧。
 
 
 从没玩过游戏的角度看，戏份最多的反倒不是像岛风长门赤城之类经常能看到的，感觉不太好。
-
-
-
-
-
 
 
 -----
@@ -16484,21 +10611,13 @@ poi一直在卖萌，好评！
 ##### 887#       发表于 2015-1-15 13:50
 
 
-
-
 川内级太抢眼 目前就是整个第三水雷战队的日常故事  从中参插一些其他舰娘乱入 节奏这样控制的好处是没玩过游戏的看官也能慢慢接受卖萌    下话就是作战了 坐等支援部队刷时髦
-
-
-
-
-
 
 
 -----
 
 ####  maxwell_goblin  
 ##### 888#       发表于 2015-1-15 13:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27779937&amp;ptid=1009008" target="_blank">浴缸子 发表于 2015-1-15 13:42</a>
@@ -16510,16 +10629,10 @@ poi一直在卖萌，好评！
 那个不用课金，每天任务和远征能拿到不少的
 
 
-
-
-
-
-
 -----
 
 ####  posthoc  
 ##### 889#       发表于 2015-1-15 13:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27779937&amp;ptid=1009008" target="_blank">浴缸子 发表于 2015-1-14 21:42</a>
@@ -16531,25 +10644,13 @@ poi一直在卖萌，好评！
 修复材最不缺了，真正需要课金的是她们每天去吃饭的间宫
 
 
-
-
-
-
-
 -----
 
 ####  守财奴  
 ##### 890#       发表于 2015-1-15 14:36
 
 
-
-
 这集大井亲真好玩……
-
-
-
-
-
 
 
 -----
@@ -16558,23 +10659,15 @@ poi一直在卖萌，好评！
 ##### 891#       发表于 2015-1-15 14:39
 
 
-
-
 打伞大姐姐（半藏）<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 等着金刚回
-
-
-
-
-
 
 
 -----
 
 ####  gary76  
 ##### 892#       发表于 2015-1-15 14:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27779937&amp;ptid=1009008" target="_blank">浴缸子 发表于 2015-1-15 13:42</a>
@@ -16588,16 +10681,10 @@ poi一直在卖萌，好评！
 真正吃氪金的是家具職人和改修資材2333
 
 
-
-
-
-
-
 -----
 
 ####  gary76  
 ##### 893#       发表于 2015-1-15 14:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27780103&amp;ptid=1009008" target="_blank">posthoc 发表于 2015-1-15 13:59</a>
@@ -16606,16 +10693,10 @@ poi一直在卖萌，好评！
 差點忘了還有間宮和伊良湖姐姐的供應站…………
 
 
-
-
-
-
-
 -----
 
 ####  shihomasturi  
 ##### 894#       发表于 2015-1-15 14:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27780103&amp;ptid=1009008" target="_blank">posthoc 发表于 2015-1-15 13:59</a>
@@ -16625,32 +10706,19 @@ poi一直在卖萌，好评！
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  土旦克007  
 ##### 895#       发表于 2015-1-15 15:00
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">看到吹雪，我直接想起了去年秋季活动我E2结束拿到的秋月，然后到了冲击E4，1级秋月直接扛上装备到水雷战队旗舰位置跟水鬼拼命
-
-
-
-
-
-
 
 
 -----
 
 ####  posthoc  
 ##### 896#       发表于 2015-1-15 15:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27780570&amp;ptid=1009008" target="_blank">shihomasturi 发表于 2015-1-14 22:47</a>
@@ -16663,16 +10731,10 @@ poi一直在卖萌，好评！
 现在都是备着四五十个水桶，真的一口气修起来反而是钢比较告急
 
 
-
-
-
-
-
 -----
 
 ####  死神之月  
 ##### 897#       发表于 2015-1-15 15:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27779937&amp;ptid=1009008" target="_blank">浴缸子 发表于 2015-1-15 13:42</a>
@@ -16684,16 +10746,10 @@ poi一直在卖萌，好评！
 修复桶这个是可以捞的，这游戏真正要氪金的地方其实就是船位（有些人氪澡堂），100船位玩到110+的提督也有
 
 
-
-
-
-
-
 -----
 
 ####  Corruptwing  
 ##### 898#       发表于 2015-1-15 15:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27780570&amp;ptid=1009008" target="_blank">shihomasturi 发表于 2015-1-15 14:47</a>
@@ -16708,17 +10764,10 @@ poi一直在卖萌，好评！
 稍微省一点一个月能攒100个左右吧
 
 
-
-
-
-
-
 -----
 
 ####  maze  
 ##### 899#       发表于 2015-1-15 15:21
-
-
 
 
 玩得久的谁不是几百个桶啊，专楼里好多人都是上千桶
@@ -16728,24 +10777,13 @@ poi一直在卖萌，好评！
 还不够隔壁的手游抽两单…
 
 
-
-
-
-
-
 -----
 
 ####  辻君  
 ##### 900#       发表于 2015-1-15 15:24
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">经常能看见两三千桶的dalao,嗯，应该是不缺桶吧
-
-
-
-
-
 
 
 -----
@@ -16754,14 +10792,7 @@ poi一直在卖萌，好评！
 ##### 901#       发表于 2015-1-15 15:31
 
 
-
-
 3000桶那是长期就打打日常，不怎么打排位吧。不然每个月3-5、5-4、5-5一百多个桶怎么也得扔下去。
-
-
-
-
-
 
 
 -----
@@ -16770,14 +10801,7 @@ poi一直在卖萌，好评！
 ##### 902#       发表于 2015-1-15 15:40
 
 
-
-
 岛风每集出来打个酱油？没艹过船，没想到岛风居然是毒舌，越来越喜欢了!
-
-
-
-
-
 
 
 -----
@@ -16786,14 +10810,7 @@ poi一直在卖萌，好评！
 ##### 903#       发表于 2015-1-15 15:45
 
 
-
-
 第二话感觉还不错啊，月初刚开始玩游戏，现在弹药最缺
-
-
-
-
-
 
 
 -----
@@ -16802,14 +10819,7 @@ poi一直在卖萌，好评！
 ##### 904#       发表于 2015-1-15 15:55
 
 
-
-
 从云才是真毒舌啊<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16818,14 +10828,7 @@ poi一直在卖萌，好评！
 ##### 905#       发表于 2015-1-15 16:12
 
 
-
-
 从云也是政委，想要戏份多只能期待换主角了
-
-
-
-
-
 
 
 -----
@@ -16834,16 +10837,9 @@ poi一直在卖萌，好评！
 ##### 906#       发表于 2015-1-15 16:18
 
 
-
-
 弃坑的时候还有百来多的桶呢<img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer">
 
 群里的人都说我把这个当经营游戏玩了
-
-
-
-
-
 
 
 -----
@@ -16852,17 +10848,10 @@ poi一直在卖萌，好评！
 ##### 907#       发表于 2015-1-15 16:22
 
 
-
-
 这集为什么觉得不好看呢？ 
 
 
 原来是金刚没出场。。。
-
-
-
-
-
 
 
 -----
@@ -16871,25 +10860,16 @@ poi一直在卖萌，好评！
 ##### 908#       发表于 2015-1-15 16:29
 
 
-
-
 玩过几个月后真不缺 不冲排名不太脸黑基本每月都剩下几百个
 
 
 ----发送自 [Xiaomi MI 4LTE,Android 4.4.4](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  解読不能  
 ##### 909#       发表于 2015-1-15 16:30
-
-
 
 
 S1这么多白皮估计大多都在游戏楼不怎么跑这边来，作为一个长期在非洲从事打猎工作的土著就献丑下展示下游戏吧。
@@ -16900,14 +10880,8 @@ S1这么多白皮估计大多都在游戏楼不怎么跑这边来，作为一个
 中间那位田园风妹子就是秘书舰，就是放置在第一舰队第一个船的那位。基本就是这样
 
 
-
-
-
-
 KanColle-150115-16171537.png
 (811.69 KB, 下载次数: 13)
-
-
 
 
 下载附件
@@ -16916,32 +10890,15 @@ KanColle-150115-16171537.png
 2015-1-15 16:18 上传
 
 
-
-
-
-
-
-
 11111
 
 <img src="http://img.saraba1st.com/forum/201501/15/161842m8rlf9zk5o7ccxiz.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  gary76  
 ##### 910#       发表于 2015-1-15 16:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27780570&amp;ptid=1009008" target="_blank">shihomasturi 发表于 2015-1-15 14:47</a>
@@ -16952,16 +10909,10 @@ KanColle-150115-16171537.png
 因為你沒有明石（1s
 
 
-
-
-
-
-
 -----
 
 ####  boss510510  
 ##### 911#       发表于 2015-1-15 16:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27781718&amp;ptid=1009008" target="_blank">解読不能 发表于 2015-1-15 16:30</a>
@@ -16970,16 +10921,10 @@ S1这么多白皮估计大多都在游戏楼不怎么跑这边来，作为一个
 花式晒船，我报警了
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 912#       发表于 2015-1-15 16:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27776190&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-15 00:56</a>
@@ -16988,16 +10933,10 @@ S1这么多白皮估计大多都在游戏楼不怎么跑这边来，作为一个
 立绘还不如改前,但是作为牧场可用
 
 
-
-
-
-
-
 -----
 
 ####  解読不能  
 ##### 913#       发表于 2015-1-15 16:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27781819&amp;ptid=1009008" target="_blank">boss510510 发表于 2015-1-15 16:38</a>
@@ -17006,16 +10945,10 @@ S1这么多白皮估计大多都在游戏楼不怎么跑这边来，作为一个
 大佬饶命，我哪有晒船了，明明是普通的邻家少女<img src="https://static.saraba1st.com/image/smiley/flash/127.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ★ARCHER☆  
 ##### 914#       发表于 2015-1-15 16:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27781855&amp;ptid=1009008" target="_blank">解読不能 发表于 2015-1-15 16:42</a>
@@ -17024,16 +10957,10 @@ S1这么多白皮估计大多都在游戏楼不怎么跑这边来，作为一个
 晒 继续晒 平凡少女是吧 田园风是吧 下次是不是要说是4672的副产品！
 
 
-
-
-
-
-
 -----
 
 ####  warlock228  
 ##### 915#       发表于 2015-1-15 16:54
-
 
 
 <blockquote>引用第914楼解読不能于2015-01-15 16:42发表的  :
@@ -17045,16 +10972,10 @@ S1这么多白皮估计大多都在游戏楼不怎么跑这边来，作为一个
 ----发送自 [Xiaomi MI 4LTE,Android 4.4.4](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  解読不能  
 ##### 916#       发表于 2015-1-15 17:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27781951&amp;ptid=1009008" target="_blank">★ARCHER☆ 发表于 2015-1-15 16:51</a>
@@ -17063,17 +10984,10 @@ S1这么多白皮估计大多都在游戏楼不怎么跑这边来，作为一个
 <img src="https://static.saraba1st.com/image/smiley/flash/131.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hsyg  
 ##### 917#       发表于 2015-1-15 17:04
-
-
 
 
 舰娘骗人入坑的地方就是基础道具完全不会缺
@@ -17091,16 +11005,10 @@ S1这么多白皮估计大多都在游戏楼不怎么跑这边来，作为一个
 这些课起来就是各种钱了  但是玩到这地步了 才放弃的人 绝对是少数了
 
 
-
-
-
-
-
 -----
 
 ####  奶油小吉  
 ##### 918#       发表于 2015-1-15 17:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27781718&amp;ptid=1009008" target="_blank">解読不能 发表于 2015-1-15 16:30</a>
@@ -17109,16 +11017,10 @@ S1这么多白皮估计大多都在游戏楼不怎么跑这边来，作为一个
 呔，欧洲人拿起你的剑我要用我的长矛跟你决斗！<img src="https://static.saraba1st.com/image/smiley/face/01.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 919#       发表于 2015-1-15 17:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27782075&amp;ptid=1009008" target="_blank">解読不能 发表于 2015-1-15 17:02</a>
@@ -17127,16 +11029,10 @@ dalao你好激动啊，我要晒船的话晒小黑皮干嘛，正在2-3偷油就
 可是动画里这位提督貌似没有多少稀有船啊
 
 
-
-
-
-
-
 -----
 
 ####  解読不能  
 ##### 920#       发表于 2015-1-15 17:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27782128&amp;ptid=1009008" target="_blank">枫紫 发表于 2015-1-15 17:07</a>
@@ -17147,16 +11043,10 @@ dalao你好激动啊，我要晒船的话晒小黑皮干嘛，正在2-3偷油就
 有人评价过这个提督是个肝度一般的氪金欧提了。当然你不能用现在的欧提标准去看以前的了
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 921#       发表于 2015-1-15 17:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27782160&amp;ptid=1009008" target="_blank">解読不能 发表于 2015-1-15 17:10</a>
@@ -17165,17 +11055,10 @@ dalao你好激动啊，我要晒船的话晒小黑皮干嘛，正在2-3偷油就
 醒醒,这集有弥生,已经是苍钢活动后了,然后现在401没出场,你懂的
 
 
-
-
-
-
-
 -----
 
 ####  lanslort  
 ##### 922#       发表于 2015-1-15 17:14
-
-
 
 
 这话明明挺好看的，那么多人让花田强行背锅；不就是走少女奋斗记的路线吗，当成小裤裤看也没违和
@@ -17183,16 +11066,10 @@ dalao你好激动啊，我要晒船的话晒小黑皮干嘛，正在2-3偷油就
 虽然我家二驱白露级除了POI外存在感基本为零<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  解読不能  
 ##### 923#       发表于 2015-1-15 17:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27782187&amp;ptid=1009008" target="_blank">枫紫 发表于 2015-1-15 17:11</a>
@@ -17203,16 +11080,10 @@ dalao你好激动啊，我要晒船的话晒小黑皮干嘛，正在2-3偷油就
 不过下一话W作战据说史实是如月沉船了？倒是看花田打算怎么玩了
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 924#       发表于 2015-1-15 17:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27782228&amp;ptid=1009008" target="_blank">解読不能 发表于 2015-1-15 17:15</a>
@@ -17221,16 +11092,10 @@ dalao你好激动啊，我要晒船的话晒小黑皮干嘛，正在2-3偷油就
 <img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">那怎么会是遨游多,明显是任务娘嘛
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 925#       发表于 2015-1-15 17:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27782092&amp;ptid=1009008" target="_blank">hsyg 发表于 2015-1-15 17:04</a>
@@ -17250,16 +11115,10 @@ dalao你好激动啊，我要晒船的话晒小黑皮干嘛，正在2-3偷油就
 活动方面女神只是会稍微降一点的难度，并没有本质的区别，或者说，不靠女神打活动的我觉得99%以上。
 
 
-
-
-
-
-
 -----
 
 ####  解読不能  
 ##### 926#       发表于 2015-1-15 17:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27782289&amp;ptid=1009008" target="_blank">枫紫 发表于 2015-1-15 17:21</a>
@@ -17270,14 +11129,8 @@ dalao你好激动啊，我要晒船的话晒小黑皮干嘛，正在2-3偷油就
 あははーっ、佐祐理にはわかりません<img src="https://static.saraba1st.com/image/smiley/flash/125.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
 11111.jpg
 (30.2 KB, 下载次数: 3)
-
-
 
 
 下载附件
@@ -17286,24 +11139,7 @@ dalao你好激动啊，我要晒船的话晒小黑皮干嘛，正在2-3偷油就
 2015-1-15 17:26 上传
 
 
-
-
-
-
-
-
-
 <img src="http://img.saraba1st.com/forum/201501/15/172637keuekwkz2w8d22dk.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -17312,16 +11148,10 @@ dalao你好激动啊，我要晒船的话晒小黑皮干嘛，正在2-3偷油就
 ##### 927#       发表于 2015-1-15 17:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer"> 401真没啥好晒的，毕竟13年冬活是个人都能过，拿到401不要太轻松，至于之后入坑的新提督，大建也就那么一回事，该有的总会有。
 
 
 何况，现在活动图也好常规图也好，都有401的掉落。
-
-
-
-
-
 
 
 -----
@@ -17330,14 +11160,7 @@ dalao你好激动啊，我要晒船的话晒小黑皮干嘛，正在2-3偷油就
 ##### 928#       发表于 2015-1-15 17:44
 
 
-
-
 不想看吹雪奋斗史，来点欢乐日常不好吗？
-
-
-
-
-
 
 
 -----
@@ -17346,23 +11169,16 @@ dalao你好激动啊，我要晒船的话晒小黑皮干嘛，正在2-3偷油就
 ##### 929#       发表于 2015-1-15 17:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27781994&amp;ptid=1009008" target="_blank">warlock228 发表于 2015-1-15 16:54</a>
 
 哈哈哈哈UCCU叫你秘书不用萝莉控 </blockquote>
 <img src="https://static.saraba1st.com/image/smiley/flash/127.gif" referrerpolicy="no-referrer">我是怕游戏里的立绘会消灭一小部分群众的幻想
 
 
-
-
-
-
-
 -----
 
 ####  hsyg  
 ##### 930#       发表于 2015-1-15 18:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27782313&amp;ptid=1009008" target="_blank">musicat 发表于 2015-1-15 17:23</a>
@@ -17402,25 +11218,13 @@ dalao你好激动啊，我要晒船的话晒小黑皮干嘛，正在2-3偷油就
 况且现在装备栏这么紧缺 要装也不容易
 
 
-
-
-
-
-
 -----
 
 ####  鱼雷  
 ##### 931#       发表于 2015-1-15 18:11
 
 
-
-
 我记得这动画里出现的船都比较好拿，记得是13年夏获后入的坑，第四发BB公式就出的长门，玩了几个月就没玩了。 
-
-
-
-
-
 
 
 -----
@@ -17429,21 +11233,13 @@ dalao你好激动啊，我要晒船的话晒小黑皮干嘛，正在2-3偷油就
 ##### 932#       发表于 2015-1-15 18:31
 
 
-
-
 废人漫画家是最后七天女神平推铁底吧，他也是古参提督了
-
-
-
-
-
 
 
 -----
 
 ####  warlock228  
 ##### 933#       发表于 2015-1-15 18:40
-
 
 
 <blockquote>引用第930楼解読不能于2015-01-15 17:51发表的  :
@@ -17455,25 +11251,13 @@ dalao你好激动啊，我要晒船的话晒小黑皮干嘛，正在2-3偷油就
 ----发送自 [Xiaomi MI 4LTE,Android 4.4.4](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  shihomasturi  
 ##### 934#       发表于 2015-1-15 19:11
 
 
-
-
 说来我当年铁底最后怒氪了10个出击包，然后过了，想想从精神层面来讲以后的活动都比不过铁底了（。<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17482,22 +11266,13 @@ dalao你好激动啊，我要晒船的话晒小黑皮干嘛，正在2-3偷油就
 ##### 935#       发表于 2015-1-15 19:24
 
 
-
-
 楼里人都不喜欢看吹雪奋斗史么？好歹她是官方主角啊，也挺萌的
-
-
-
-
-
 
 
 -----
 
 ####  厨厨光波  
 ##### 936#       发表于 2015-1-15 20:17
-
-
 
 
 非玩家的我觉得这集挺好看的
@@ -17509,25 +11284,13 @@ ED也挺好听挺燃的
 佐仓真是辛苦了
 
 
-
-
-
-
-
 -----
 
 ####  屈江鸟  
 ##### 937#       发表于 2015-1-15 20:29
 
 
-
-
 POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17536,16 +11299,10 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊<img src=
 ##### 938#       发表于 2015-1-15 20:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27783869&amp;ptid=1009008" target="_blank">屈江鸟 发表于 2015-1-15 20:29</a>
 
 POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockquote>
 祥瑞同样可以作用于销量<img src="https://static.saraba1st.com/image/smiley/carton/172.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17554,23 +11311,16 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 ##### 939#       发表于 2015-1-15 20:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27782571&amp;ptid=1009008" target="_blank">解読不能 发表于 2015-1-15 17:51</a>
 
 我是怕游戏里的立绘会消灭一小部分群众的幻想</blockquote>
 不上赤城 这楼应该塌不了····
 
 
-
-
-
-
-
 -----
 
 ####  小阪千寻  
 ##### 940#       发表于 2015-1-15 20:43
-
 
 
  本帖最后由 小阪千寻 于 2015-1-15 20:44 编辑 
@@ -17580,25 +11330,13 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 是活动还剩7天入坑，然后3天拿到武藏吧<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">然而，直到现在依然没赌出大和
 
 
-
-
-
-
-
 -----
 
 ####  yellowboat  
 ##### 941#       发表于 2015-1-15 20:54
 
 
-
-
 四个佐仓互相聊天好欢乐。幻想下佐仓小姐在四个话筒间跑来跑去装四个人的场景就更欢乐了。
-
-
-
-
-
 
 
 -----
@@ -17607,21 +11345,13 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 ##### 942#       发表于 2015-1-15 21:03
 
 
-
-
 舰娘游戏没玩，所谓的“推图”是不是就跟炉石传说开荒NAXX英雄模式差不多？当时忘了是冰龙区还是哪个区熬了一整夜才试过去。
-
-
-
-
-
 
 
 -----
 
 ####  osore  
 ##### 943#       发表于 2015-1-15 21:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27784141&amp;ptid=1009008" target="_blank">jacklibran 发表于 2015-1-15 21:03</a>
@@ -17632,16 +11362,10 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 你想象一下NAXX单机，11111，打累了随时休息，那还不轻松
 
 
-
-
-
-
-
 -----
 
 ####  charlygaol  
 ##### 944#       发表于 2015-1-15 21:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27784141&amp;ptid=1009008" target="_blank">jacklibran 发表于 2015-1-15 21:03</a>
@@ -17653,32 +11377,19 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 2-4，3-4，5-3并称常规图三大疯人院，不过突破之后的回报也是很高
 
 
-
-
-
-
-
 -----
 
 ####  maxwell_goblin  
 ##### 945#       发表于 2015-1-15 21:26
 
 
-
-
 损管有用的啊，去年夏活E6带路轻母就是带损管的，还有春活E4也会带个损管保险一下
-
-
-
-
-
 
 
 -----
 
 ####  jacklibran  
 ##### 946#       发表于 2015-1-15 21:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27784209&amp;ptid=1009008" target="_blank">osore 发表于 2015-1-15 21:15</a>
@@ -17689,27 +11400,15 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 我说的是炉石的NAXX啊，也算是单机了
 
 
-
-
-
-
-
 -----
 
 ####  osore  
 ##### 947#       发表于 2015-1-15 21:51
 
 
-
-
 那是我看错。但舰女人战斗可以一边看动画一边玩 ，不是棋牌类游戏可比的
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (NOKIA Lumia 920)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
@@ -17718,24 +11417,16 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 ##### 948#       发表于 2015-1-15 21:57
 
 
-
-
 这片的看点,不就是操船党追了N话,自己心中的老婆终于PRPR地出场了几秒,然后对着撸个爽么?
 
 
 那么对于不玩舰女人的人来说看点何在?就那点清淡的百合,CP党争不激烈也没什么爆点.
 
 
-
-
-
-
-
 -----
 
 ####  shihomasturi  
 ##### 949#       发表于 2015-1-15 22:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27784499&amp;ptid=1009008" target="_blank">osore 发表于 2015-1-15 21:51</a>
@@ -17746,16 +11437,10 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 一边看动画一边玩，感觉容易大破进击（。<img src="https://static.saraba1st.com/image/smiley/face/08.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  飞霞精灵  
 ##### 950#       发表于 2015-1-15 22:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27778218&amp;ptid=1009008" target="_blank">奶油小吉 发表于 2015-1-15 10:55</a>
@@ -17764,16 +11449,10 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 把长门带入提督，陆奥带入成秘书舰就完美了……………………
 
 
-
-
-
-
-
 -----
 
 ####  奶油小吉  
 ##### 951#       发表于 2015-1-15 22:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27784746&amp;ptid=1009008" target="_blank">飞霞精灵 发表于 2015-1-15 22:18</a>
@@ -17782,16 +11461,10 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 就目前来说陆奥的作用还没看出来，除了当应声虫之外。
 
 
-
-
-
-
-
 -----
 
 ####  云梦泽岸  
 ##### 952#       发表于 2015-1-15 22:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27784563&amp;ptid=1009008" target="_blank">冬夜女公爵 发表于 2015-1-15 21:57</a>
@@ -17803,17 +11476,10 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 看本子也可以先了解下背景啊。
 
 
-
-
-
-
-
 -----
 
 ####  飞霞精灵  
 ##### 953#       发表于 2015-1-15 22:45
-
-
 
 
 1，金刚四傻VS六驱四萌，好像的确微妙地哪里都有些相似……
@@ -17845,16 +11511,10 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 13，依旧还是浓重的女排五号和飞跃巅峰式的日系女子学园风作品的感觉…………
 
 
-
-
-
-
-
 -----
 
 ####  飞霞精灵  
 ##### 954#       发表于 2015-1-15 22:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27784831&amp;ptid=1009008" target="_blank">奶油小吉 发表于 2015-1-15 22:29</a>
@@ -17865,27 +11525,15 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 当然陆奥第一话连台词基本都没有…………
 
 
-
-
-
-
-
 -----
 
 ####  stuka1942  
 ##### 955#       发表于 2015-1-15 22:52
 
 
-
-
 这话日常真是挺不错的，OPED也好听，大家都好棒<img src="https://static.saraba1st.com/image/smiley/dym/148.gif" referrerpolicy="no-referrer">
 
 佐仓又满满的精分了一集，应该加工钱<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17894,22 +11542,14 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 ##### 956#       发表于 2015-1-15 22:52
 
 
-
-
 这个深海舰娘挺酷挺萌的 希望动画里做的能打一点不要像第一话那么废
 <img src="http://v2.freep.cn/3tb_150115225232hdtr512293.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  烂菊花  
 ##### 957#       发表于 2015-1-15 22:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27784563&amp;ptid=1009008" target="_blank">冬夜女公爵 发表于 2015-1-15 21:57</a>
@@ -17921,16 +11561,10 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 这片历史考据做得相当不错的，很多只出现几帧的小细节都能做出来（比如彻甲弹着色标记之类的），跟小裤裤属同类片
 
 
-
-
-
-
-
 -----
 
 ####  奶油小吉  
 ##### 958#       发表于 2015-1-15 23:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27785087&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-15 22:52</a>
@@ -17939,16 +11573,10 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 这货看起来是挺酷的，但其实是一个呆萌的。
 
 
-
-
-
-
-
 -----
 
 ####  一夜四次羊  
 ##### 959#       发表于 2015-1-15 23:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27785087&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-15 22:52</a>
@@ -17957,16 +11585,10 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">白板wo还是很废啊 要蓝色的才厉害
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 960#       发表于 2015-1-15 23:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27785270&amp;ptid=1009008" target="_blank">一夜四次羊 发表于 2015-1-15 23:07</a>
@@ -17975,16 +11597,10 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 <img src="https://static.saraba1st.com/image/smiley/face/08.gif" referrerpolicy="no-referrer"> 只是个杂鱼么？还以为是舰娘最终boss呢，，，  这眼神身段多酷啊比哪些舰娘萌
 
 
-
-
-
-
-
 -----
 
 ####  storm  
 ##### 961#       发表于 2015-1-15 23:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27785332&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-15 23:13</a>
@@ -17993,16 +11609,10 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 杂鱼？目前游戏常规图最难的一个图的boss就是她，当然还有一个最可怕的超弩级重雷装航空战列舰给她当保镖。而且在官方活动图里她换了圆滚滚的舰载机.....那一点不好笑。
 
 
-
-
-
-
-
 -----
 
 ####  しまかぜ  
 ##### 962#       发表于 2015-1-15 23:19
-
 
 
 <blockquote>引用第950楼shihomasturi于2015-01-15 22:03发表的  :
@@ -18014,16 +11624,10 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  Inle  
 ##### 963#       发表于 2015-1-15 23:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27785332&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-15 23:13</a>
@@ -18034,17 +11638,10 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 像楼上说的那样后期有黑岩射手改型和新舰载机搭载型之后轮到我方变杂鱼<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  warlock228  
 ##### 964#       发表于 2015-1-15 23:29
-
-
 
 
 讲真  动画里的WO酱难看......游戏立绘看那个是个帽子
@@ -18054,16 +11651,10 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 反而撸酱和莉莉好看了很多  尤其莉莉 简直整容
 
 
-
-
-
-
-
 -----
 
 ####  lordvv  
 ##### 965#       发表于 2015-1-15 23:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27785471&amp;ptid=1009008" target="_blank">warlock228 发表于 2015-1-15 23:29</a>
@@ -18074,16 +11665,10 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 看了本子后总觉得wo级的帽子会说话
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 966#       发表于 2015-1-15 23:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27785471&amp;ptid=1009008" target="_blank">warlock228 发表于 2015-1-15 23:29</a>
@@ -18094,16 +11679,10 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 <img src="https://static.saraba1st.com/image/smiley/face/17.gif" referrerpolicy="no-referrer"> 我觉得挺好的  求来发两张游戏里的立绘看看
 
 
-
-
-
-
-
 -----
 
 ####  warlock228  
 ##### 967#       发表于 2015-1-15 23:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27785584&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-15 23:42</a>
@@ -18114,16 +11693,10 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 中间点开折叠
 
 
-
-
-
-
-
 -----
 
 ####  storm  
 ##### 968#       发表于 2015-1-15 23:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27785584&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-15 23:42</a>
@@ -18135,32 +11708,19 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 萌娘百科里有详细，wo级是深海侧的偶像，虽然现在人气被北方栖姬抢走了。
 
 
-
-
-
-
-
 -----
 
 ####  maze  
 ##### 969#       发表于 2015-1-15 23:51
 
 
-
-
 我也很好奇足柄不是应该去找提督逼婚吗联什么谊
-
-
-
-
-
 
 
 -----
 
 ####  隐藏路人  
 ##### 970#       发表于 2015-1-15 23:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27783330&amp;ptid=1009008" target="_blank">Futanari 发表于 2015-1-15 19:24</a>
@@ -18172,16 +11732,10 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 所以我都不知道这片的监督脚本到底想干啥了。
 
 
-
-
-
-
-
 -----
 
 ####  飞霞精灵  
 ##### 971#       发表于 2015-1-15 23:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27785332&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-15 23:13</a>
@@ -18190,16 +11744,10 @@ POI存在感刷满了，官方CP时雨怎么全是远景给个脑袋啊</blockqu
 我跟你讲，漂到镇守府来的萝莉wo酱可萌了………………
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 972#       发表于 2015-1-15 23:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27785660&amp;ptid=1009008" target="_blank">warlock228 发表于 2015-1-15 23:50</a>
@@ -18213,16 +11761,10 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 对比下感觉动画里的没有立绘成熟。。
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 973#       发表于 2015-1-15 23:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27785698&amp;ptid=1009008" target="_blank">飞霞精灵 发表于 2015-1-15 23:55</a>
@@ -18231,16 +11773,10 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer"> 体型个头看一点也不loli。。。 是很大一只
 
 
-
-
-
-
-
 -----
 
 ####  飞霞精灵  
 ##### 974#       发表于 2015-1-16 00:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27785714&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-15 23:58</a>
@@ -18257,17 +11793,10 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 深海目前唯一的标准萝莉是北方………………
 
 
-
-
-
-
-
 -----
 
 ####  hurtwind  
 ##### 975#       发表于 2015-1-16 01:32
-
-
 
 
 我有点不太明白
@@ -18281,17 +11810,10 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 航母除了在弓道部摆酷是不是也就没事了？
 
 
-
-
-
-
-
 -----
 
 ####  大鳳·改  
 ##### 976#       发表于 2015-1-16 01:43
-
-
 
 
 和强袭魔女类似吧，平时大魔王和莉涅要上课训练，其他人算是军官了不出击的话爱干嘛干嘛有空去训练场插两脚
@@ -18305,25 +11827,13 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 清霜该去远征咯
 
 
-
-
-
-
-
 -----
 
 ####  alialex  
 ##### 977#       发表于 2015-1-16 02:05
 
 
-
-
 这集其实不错啊，看川内级欺负欠雷怎么就不是日常了
-
-
-
-
-
 
 
 -----
@@ -18332,21 +11842,13 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 ##### 978#       发表于 2015-1-16 02:14
 
 
-
-
 没玩过游戏但是设定超有趣    本子里看过不少舰娘   但是看到能动的舰娘感觉好带感停不下来啊<img src="https://static.saraba1st.com/image/smiley/dym/151.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Prolun  
 ##### 979#       发表于 2015-1-16 02:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=27717939&amp;amp;ptid=1009008" target="_blank">maxwell_goblin 发表于 2015-1-8 00:49</a>
@@ -18356,16 +11858,10 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 ——— 来自[Stage1st Reader For iOS](http://itunes.apple.com/us/app/stage1st-reader/id509916119?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Prolun  
 ##### 980#       发表于 2015-1-16 02:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=27718248&amp;amp;ptid=1009008" target="_blank">sgpt55 发表于 2015-1-8 02:08</a>
@@ -18377,11 +11873,6 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 ——— 来自[Stage1st Reader For iOS](http://itunes.apple.com/us/app/stage1st-reader/id509916119?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  wsotaku  
@@ -18390,12 +11881,10 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 提示: 该帖被管理员或版主屏蔽
 
 
-
 -----
 
 ####  H大魔王  
 ##### 982#       发表于 2015-1-16 04:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27786277&amp;ptid=1009008" target="_blank">hurtwind 发表于 2015-1-16 01:32</a>
@@ -18410,16 +11899,10 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 而重巡战舰这些事主力，一般会确保安全，所以都是老油条，作为前辈教导新肉也是正常的
 
 
-
-
-
-
-
 -----
 
 ####  反击的马沙  
 ##### 983#       发表于 2015-1-16 07:22
-
 
 
 <blockquote>引用第983楼H大魔王于2015-01-16 04:41发表的  :
@@ -18433,16 +11916,10 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 ----发送自 [Sony L50t,Android 4.4.2](http://stage1.5j4m.com/?1.17) 
 
 
-
-
-
-
-
 -----
 
 ####  反击的马沙  
 ##### 984#       发表于 2015-1-16 07:23
-
 
 
 <blockquote>引用第983楼H大魔王于2015-01-16 04:41发表的  :
@@ -18456,25 +11933,13 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 ----发送自 [Sony L50t,Android 4.4.2](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  武蔵  
 ##### 985#       发表于 2015-1-16 09:03
 
 
-
-
 大和都露脸卖萌了！我还是没戏份！格差社会太不公平了…
-
-
-
-
-
 
 
 -----
@@ -18483,14 +11948,7 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 ##### 986#       发表于 2015-1-16 09:47
 
 
-
-
 记得北上好像是不屑驱逐的？响你两话都只有同一句哈啦咻，夕立你不想时雨吗？话说这片到底打不打算开放二改，我想看响和狂犬二改啊......动画现在看样子是准备中规中矩不过不失到最后了，好想跪求水岛努监督啊！！！
-
-
-
-
-
 
 
 -----
@@ -18499,25 +11957,16 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 ##### 987#       发表于 2015-1-16 09:52
 
 
-
-
 精分佐仓大好评！
 
 
 迎面撞上一座东山哈哈哈哈www
 
 
-
-
-
-
-
 -----
 
 ####  huoguoshan23  
 ##### 988#       发表于 2015-1-16 10:04
-
-
 
 
 足柄这个联谊晚婚二设加进来没问题么？那延伸下来问题会好多啊
@@ -18527,16 +11976,10 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 硬要做一本正经的正剧还非要把一堆卖萌的二设全加进来，我到要看花田大老师怎么圆
 
 
-
-
-
-
-
 -----
 
 ####  虫之诗歌  
 ##### 989#       发表于 2015-1-16 10:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27788135&amp;ptid=1009008" target="_blank">huoguoshan23 发表于 2015-1-16 10:04</a>
@@ -18547,16 +11990,10 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 比如维修工场技术部主任什么的<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ctier123  
 ##### 990#       发表于 2015-1-16 10:21
-
 
 
 <blockquote>huoguoshan23 发表于 2015-1-16 10:04
@@ -18566,16 +12003,10 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 一般人能艹的动千吨称的船？至少得是局座级别的
 
 
-
-
-
-
-
 -----
 
 ####  奶油小吉  
 ##### 991#       发表于 2015-1-16 10:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27788135&amp;ptid=1009008" target="_blank">huoguoshan23 发表于 2015-1-16 10:04</a>
@@ -18586,25 +12017,13 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 舰女人这动画应该不会深究舰娘的社会属性真的深究起来不是一部卖萌动画可以承受的，在动画表现足柄喜欢联谊只是博得正在看的死宅会心一笑的，因为足柄的二设是由死宅脑补出来的这样会使死宅认为自己已经影响了这个游戏（动画）的设定。
 
 
-
-
-
-
-
 -----
 
 ####  莉莉橙  
 ##### 992#       发表于 2015-1-16 10:25
 
 
-
-
 开播前就猜测动画版会不会在一些世界观问题上给出相对严谨和成体系的设定，结果现在看来是想到哪做到哪，不仅提供不了论据，还会向二设梗妥协，大失望
-
-
-
-
-
 
 
 -----
@@ -18613,16 +12032,10 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 ##### 993#       发表于 2015-1-16 10:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27788392&amp;ptid=1009008" target="_blank">奶油小吉 发表于 2015-1-16 10:24</a>
 
 舰女人这动画应该不会深究舰娘的社会属性真的深究起来不是一部卖萌动画可以承受的，在动画表现足柄喜欢联 ...</blockquote>
 吃撑的吃货属性也是二设好不好，原设定可是完美大姐姐............二设被官方采纳有何不妥，群众喜闻乐见大家皆大欢喜不很好吗
-
-
-
-
-
 
 
 -----
@@ -18631,24 +12044,16 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 ##### 994#       发表于 2015-1-16 10:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27788523&amp;ptid=1009008" target="_blank">coolffcat 发表于 2015-1-16 10:35</a>
 
 吃撑的吃货属性也是二设好不好，原设定可是完美大姐姐............二设被官方采纳有何不妥，群众喜闻乐见 ...</blockquote>
 我没说不好啊，官方采用二设就是使死宅们认为他们已经影响了官方从而加大死宅对舰女人的认同感啊。
 
 
-
-
-
-
-
 -----
 
 ####  huoguoshan23  
 ##### 995#       发表于 2015-1-16 11:14
-
-
 
 
 所以说既然讨好死宅要把这堆卖萌二设全都加进来那就像官方四格那样弄个日常搞笑类好了啦，舰队拟人各种设定随便玩带着深海舰一起来卖卖萌大家开心又不用较真
@@ -18658,16 +12063,10 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 照这2集的剧情后面怕不是吹雪一路演习出击炸鱼经历迷茫坎坷后终成改二，最后中途岛帮吃撑怒挡一发炮弹后一发带走院长成为镇守府传说后深藏功与名<img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  奶油小吉  
 ##### 996#       发表于 2015-1-16 11:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27789000&amp;ptid=1009008" target="_blank">huoguoshan23 发表于 2015-1-16 11:14</a>
@@ -18676,24 +12075,13 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 做成喝茶片的话就会遇到另外一个问题，国家花大价钱（？）养起来的舰女人成天喝茶卖萌为什么不抓她们解体
 
 
-
-
-
-
-
 -----
 
 ####  坂御美琴  
 ##### 997#       发表于 2015-1-16 11:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer"> 等下休息了慢慢看
-
-
-
-
-
 
 
 -----
@@ -18702,16 +12090,10 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 ##### 998#       发表于 2015-1-16 11:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27788404&amp;ptid=1009008" target="_blank">莉莉橙 发表于 2015-1-16 10:25</a>
 
 开播前就猜测动画版会不会在一些世界观问题上给出相对严谨和成体系的设定，结果现在看来是想到哪做到哪，不 ...</blockquote>
 这游戏连设定和游戏性都不分你还能指望动画能把设定统一了？几本官方小说和漫画之间都南辕北辙的一塌糊涂好不好...
-
-
-
-
-
 
 
 -----
@@ -18720,23 +12102,16 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 ##### 999#       发表于 2015-1-16 11:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27788523&amp;ptid=1009008" target="_blank">coolffcat 发表于 2015-1-16 10:35</a>
 
 吃撑的吃货属性也是二设好不好，原设定可是完美大姐姐............二设被官方采纳有何不妥，群众喜闻乐见 ...</blockquote>
 也是有不喜欢二设吃货属性的赤城粉存在的,所以皆大欢喜我觉得说不上
 
 
-
-
-
-
-
 -----
 
 ####  云梦泽岸  
 ##### 1000#       发表于 2015-1-16 12:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27788135&amp;ptid=1009008" target="_blank">huoguoshan23 发表于 2015-1-16 10:04</a>
@@ -18747,17 +12122,10 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 或许还有坦克大叔的设定？
 
 
-
-
-
-
-
 -----
 
 ####  露娜玛利亚  
 ##### 1001#       发表于 2015-1-16 13:11
-
-
 
 
 <img src="http://img.saraba1st.com/forum/201501/16/131113o2samrycd8uar2r8.jpg" referrerpolicy="no-referrer">
@@ -18770,11 +12138,6 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 2015-1-16 13:11 上传
 
 
-
-
-
-
-
 <img src="http://img.saraba1st.com/forum/201501/16/131120bsgss01gwvr6kv22.jpg" referrerpolicy="no-referrer">
 
 
@@ -18785,17 +12148,7 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 2015-1-16 13:11 上传
 
 
-
-
-
-
-
 少个空军，你们谁找一下宫藤芳佳这种表情的图片
-
-
-
-
-
 
 
 -----
@@ -18804,14 +12157,7 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 ##### 1002#       发表于 2015-1-16 13:25
 
 
-
-
 现在知道东方为什么宁愿过气也不做动画了
-
-
-
-
-
 
 
 -----
@@ -18820,14 +12166,7 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 ##### 1003#       发表于 2015-1-16 13:55
 
 
-
-
 要是真有船沉掉就神作了<img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18836,23 +12175,16 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 ##### 1004#       发表于 2015-1-16 14:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27790362&amp;ptid=1009008" target="_blank">露娜玛利亚 发表于 2015-1-16 13:11</a>
 
 少个空军，你们谁找一下宫藤芳佳这种表情的图片</blockquote>
 飞天小裤裤哭晕在厕所
 
 
-
-
-
-
-
 -----
 
 ####  warlock228  
 ##### 1005#       发表于 2015-1-16 14:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27790479&amp;ptid=1009008" target="_blank">美术民工 发表于 2015-1-16 13:25</a>
@@ -18863,32 +12195,19 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 最终新人看不懂老人不待见
 
 
-
-
-
-
-
 -----
 
 ####  烂菊花  
 ##### 1006#       发表于 2015-1-16 14:41
 
 
-
-
 毕竟舰女人初期还是有很多军宅玩家的（不论真伪），动画军事类考据相当到位也是为这类人服务的。
-
-
-
-
-
 
 
 -----
 
 ####  sinfor  
 ##### 1007#       发表于 2015-1-16 14:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27790479&amp;ptid=1009008" target="_blank">美术民工 发表于 2015-1-16 13:25</a>
@@ -18899,33 +12218,19 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 当时影响恶劣不说，就连zun在制作妖精大战争之前，也得与角川商量
 
 
-
-
-
-
-
-
 -----
 
 ####  nylonchina1  
 ##### 1008#       发表于 2015-1-16 15:03
 
 
-
-
 原作厨真恶心！
-
-
-
-
-
 
 
 -----
 
 ####  nanaciel  
 ##### 1009#       发表于 2015-1-16 15:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27791279&amp;ptid=1009008" target="_blank">sinfor 发表于 2015-1-16 14:41</a>
@@ -18936,32 +12241,19 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 求详细
 
 
-
-
-
-
-
 -----
 
 ####  jackerp  
 ##### 1010#       发表于 2015-1-16 15:21
 
 
-
-
 只是个设定的细微差别而已，又不会带来多大抵触。该看不还是会看。
-
-
-
-
-
 
 
 -----
 
 ####  sinfor  
 ##### 1011#       发表于 2015-1-16 15:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27791610&amp;ptid=1009008" target="_blank">nanaciel 发表于 2015-1-16 15:16</a>
@@ -18972,16 +12264,10 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 这种删稿事件，11区的宅宅们得闹成什么样你也懂得。。。。。
 
 
-
-
-
-
-
 -----
 
 ####  lancerhd  
 ##### 1012#       发表于 2015-1-16 15:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27788351&amp;ptid=1009008" target="_blank">虫之诗歌 发表于 2015-1-16 10:21</a>
@@ -18990,16 +12276,10 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 <img src="https://static.saraba1st.com/image/smiley/dym/151.gif" referrerpolicy="no-referrer"> 
 
 
-
-
-
-
-
 -----
 
 ####  虫之诗歌  
 ##### 1013#       发表于 2015-1-16 16:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27791997&amp;ptid=1009008" target="_blank">lancerhd 发表于 2015-1-16 15:59</a>
@@ -19008,16 +12288,10 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 <img src="https://static.saraba1st.com/image/smiley/face/80.gif" referrerpolicy="no-referrer">忘了那厮那时候还没实装
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 1014#       发表于 2015-1-16 16:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27790800&amp;ptid=1009008" target="_blank">stage4th 发表于 2015-1-16 14:55</a>
@@ -19026,16 +12300,10 @@ http://zh.moegirl.org/%E8%88%B0%E9%98%9FCollection:%E7%A9%BA%E6%AF%8D%E3%83%B2%E
 op里那个瞬间是赤城前世的话.....嘛 我料制片组也不敢沉 就算给了死亡flag也要用女神原地复活w
 
 
-
-
-
-
-
 -----
 
 ####  gary76  
 ##### 1015#       发表于 2015-1-16 16:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27792009&amp;ptid=1009008" target="_blank">虫之诗歌 发表于 2015-1-16 16:01</a>
@@ -19044,16 +12312,10 @@ op里那个瞬间是赤城前世的话.....嘛 我料制片组也不敢沉 就�
 但是明石姐姐一直都在賣素材和船位啊23333
 
 
-
-
-
-
-
 -----
 
 ####  虫之诗歌  
 ##### 1016#       发表于 2015-1-16 16:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27792571&amp;ptid=1009008" target="_blank">gary76 发表于 2015-1-16 16:54</a>
@@ -19062,33 +12324,19 @@ op里那个瞬间是赤城前世的话.....嘛 我料制片组也不敢沉 就�
 因为没实装才还呆在那位置啊<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  西之莉芙路  
 ##### 1017#       发表于 2015-1-16 18:37
 
 
-
-
 说真的，第三话掉头走史实路线的可能性有么
-
-
-
-
-
 
 
 -----
 
 ####  傅潇逍  
 ##### 1018#       发表于 2015-1-16 18:50
-
-
 
 
 看完第二话，问题来了
@@ -19100,16 +12348,10 @@ op里那个瞬间是赤城前世的话.....嘛 我料制片组也不敢沉 就�
 2、那珂和吹雪在台上时，小学生中间有两只中学生，是谁来着我没认出来，只觉得其中一个可能是青叶
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 1019#       发表于 2015-1-16 18:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27793542&amp;ptid=1009008" target="_blank">西之莉芙路 发表于 2015-1-16 18:37</a>
@@ -19118,16 +12360,10 @@ op里那个瞬间是赤城前世的话.....嘛 我料制片组也不敢沉 就�
 <img src="https://static.saraba1st.com/image/smiley/face/77.gif" referrerpolicy="no-referrer">和我家如月多大仇...嘛,要是真跑史实我倒是不反对啦,但只是为了玩沉船就让船沉了估计他们也不敢搞
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 1020#       发表于 2015-1-16 18:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27793658&amp;ptid=1009008" target="_blank">傅潇逍 发表于 2015-1-16 18:50</a>
@@ -19139,16 +12375,10 @@ op里那个瞬间是赤城前世的话.....嘛 我料制片组也不敢沉 就�
 青叶和衣笠
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 1021#       发表于 2015-1-16 19:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27793658&amp;ptid=1009008" target="_blank">傅潇逍 发表于 2015-1-16 18:50</a>
@@ -19162,32 +12392,19 @@ op里那个瞬间是赤城前世的话.....嘛 我料制片组也不敢沉 就�
 2.那个大概是...加古吧....
 
 
-
-
-
-
-
 -----
 
 ####  maxwell_goblin  
 ##### 1022#       发表于 2015-1-16 19:06
 
 
-
-
 按照没有中破粗略算了一下，估计是婚船……
-
-
-
-
-
 
 
 -----
 
 ####  shihomasturi  
 ##### 1023#       发表于 2015-1-16 19:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27793658&amp;ptid=1009008" target="_blank">傅潇逍 发表于 2015-1-16 18:50</a>
@@ -19199,25 +12416,13 @@ op里那个瞬间是赤城前世的话.....嘛 我料制片组也不敢沉 就�
 LV130以上的吃货小破修个15小时很正常。
 
 
-
-
-
-
-
 -----
 
 ####  litshetyran  
 ##### 1024#       发表于 2015-1-16 19:35
 
 
-
-
 看完第二话，感觉就是：我好兴奋啊，我好兴奋啊，我好兴奋啊。
-
-
-
-
-
 
 
 -----
@@ -19226,14 +12431,7 @@ LV130以上的吃货小破修个15小时很正常。
 ##### 1025#       发表于 2015-1-16 21:11
 
 
-
-
 连这种页游改也能有原作党……<img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19242,14 +12440,7 @@ LV130以上的吃货小破修个15小时很正常。
 ##### 1026#       发表于 2015-1-16 21:37
 
 
-
-
 话说舰女人动画,会不会是佐仓历史地位升格的一作?
-
-
-
-
-
 
 
 -----
@@ -19258,16 +12449,10 @@ LV130以上的吃货小破修个15小时很正常。
 ##### 1027#       发表于 2015-1-16 21:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27790800&amp;ptid=1009008" target="_blank">stage4th 发表于 2015-1-16 13:55</a>
 
 要是真有船沉掉就神作了    突然觉得脚本不是老虚好可惜</blockquote>
 如果是老虚的话，我猜第一，二话先来上任，日常。第三话先是威风堂堂的出撃，最后给你来一个命运的五分钟，接下来按照史实发展，所罗门海战，玛莉安纳海战，箂特湾，冲绳，吴港空袭等等顺序送上，最终话A Bpart来玉音放送，C part后日谈，主轴是长门看到的光...........怎么想都是大爆死的节奏啊
-
-
-
-
-
 
 
 -----
@@ -19276,13 +12461,7 @@ LV130以上的吃货小破修个15小时很正常。
 ##### 1028#       发表于 2015-1-16 23:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">为啥能拍的这么无聊
-
-
-
-
-
 
 
 -----
@@ -19291,14 +12470,7 @@ LV130以上的吃货小破修个15小时很正常。
 ##### 1029#       发表于 2015-1-16 23:28
 
 
-
-
 第二集这日常努力话竟然能拍得这么无聊。。
-
-
-
-
-
 
 
 -----
@@ -19307,14 +12479,7 @@ LV130以上的吃货小破修个15小时很正常。
 ##### 1030#       发表于 2015-1-16 23:31
 
 
-
-
 我倒对第二话挺满意的，有萌点有笑点，比较安定的过渡回。
-
-
-
-
-
 
 
 -----
@@ -19323,14 +12488,7 @@ LV130以上的吃货小破修个15小时很正常。
 ##### 1031#       发表于 2015-1-16 23:57
 
 
-
-
 没有美帝黑叔叔的出场，必然暴死啊
-
-
-
-
-
 
 
 -----
@@ -19339,14 +12497,7 @@ LV130以上的吃货小破修个15小时很正常。
 ##### 1032#       发表于 2015-1-17 10:38
 
 
-
-
 ==我想问一句，这个动画的带字幕版你们是在哪里看的？A站B站都没有啊。。
-
-
-
-
-
 
 
 -----
@@ -19355,14 +12506,7 @@ LV130以上的吃货小破修个15小时很正常。
 ##### 1033#       发表于 2015-1-17 11:14
 
 
-
-
 想看Wo酱虐全场的画面第三集能做出来么
-
-
-
-
-
 
 
 -----
@@ -19371,16 +12515,10 @@ LV130以上的吃货小破修个15小时很正常。
 ##### 1034#       发表于 2015-1-17 11:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27798210&amp;ptid=1009008" target="_blank">葛雷新 发表于 2015-1-16 18:38</a>
 
 ==我想问一句，这个动画的带字幕版你们是在哪里看的？A站B站都没有啊。。</blockquote>
 B有啊，需要会员登录。
-
-
-
-
-
 
 
 -----
@@ -19389,16 +12527,10 @@ B有啊，需要会员登录。
 ##### 1035#       发表于 2015-1-17 11:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27798210&amp;ptid=1009008" target="_blank">葛雷新 发表于 2015-1-17 10:38</a>
 
 ==我想问一句，这个动画的带字幕版你们是在哪里看的？A站B站都没有啊。。</blockquote>
 会员.....
-
-
-
-
-
 
 
 -----
@@ -19407,16 +12539,10 @@ B有啊，需要会员登录。
 ##### 1036#       发表于 2015-1-17 11:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27798210&amp;ptid=1009008" target="_blank">葛雷新 发表于 2015-1-17 10:38</a>
 
 ==我想问一句，这个动画的带字幕版你们是在哪里看的？A站B站都没有啊。。</blockquote>
 [http://www.bilibili.com/sp/%E8%88%B0%E9%98%9FCOLLECTION](http://www.bilibili.com/sp/%E8%88%B0%E9%98%9FCOLLECTION)
-
-
-
-
-
 
 
 -----
@@ -19425,24 +12551,16 @@ B有啊，需要会员登录。
 ##### 1037#       发表于 2015-1-17 11:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27794978&amp;ptid=1009008" target="_blank">冬夜女公爵 发表于 2015-1-16 21:37</a>
 
 话说舰女人动画,会不会是佐仓历史地位升格的一作?</blockquote>
 四个佐仓一台戏
 
 
-
-
-
-
-
 -----
 
 ####  osore  
 ##### 1038#       发表于 2015-1-17 12:53
-
-
 
 
 吃撑不是说她从昨天开始就在泡了吗
@@ -19452,16 +12570,10 @@ B有啊，需要会员登录。
 这么长时间都舍不得用桶，这提督得多抠门，肯定是喜欢用鱼礁战术的粪提！
 
 
-
-
-
-
-
 -----
 
 ####  早苗面包  
 ##### 1039#       发表于 2015-1-17 13:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27799129&amp;ptid=1009008" target="_blank">osore 发表于 2015-1-17 12:53</a>
@@ -19474,32 +12586,19 @@ B有啊，需要会员登录。
 <img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">你们够了呀！艺术表现！28小时泡到15小时了，结果用了个桶，只能证明提督深井冰
 
 
-
-
-
-
-
 -----
 
 ####  robbielj  
 ##### 1040#       发表于 2015-1-17 13:11
 
 
-
-
 放置play你们都不懂
-
-
-
-
-
 
 
 -----
 
 ####  Futanari  
 ##### 1041#       发表于 2015-1-17 13:15
-
 
 
 <blockquote>osore 发表于 2015-1-17 12:53
@@ -19511,17 +12610,10 @@ B有啊，需要会员登录。
 其实提督一直在偷看。结果吹雪跑进来了为了加深舰娘之间交流才赶紧扔了一通
 
 
-
-
-
-
-
 -----
 
 ####  hxy1987326  
 ##### 1042#       发表于 2015-1-17 13:17
-
-
 
 
 也许前一天其他人把澡堂占满了啊
@@ -19529,16 +12621,10 @@ B有啊，需要会员登录。
 我都是睡前把修理时间小于八小时的泡上，早起接了任务给十几小时的丢桶
 
 
-
-
-
-
-
 -----
 
 ####  osore  
 ##### 1043#       发表于 2015-1-17 13:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27799259&amp;ptid=1009008" target="_blank">早苗面包 发表于 2015-1-17 13:10</a>
@@ -19549,32 +12635,19 @@ B有啊，需要会员登录。
 比如我临时起义要推图，然后发现烈风都在吃撑的肚子里，不给桶就不放人
 
 
-
-
-
-
-
 -----
 
 ####  jacklibran  
 ##### 1044#       发表于 2015-1-17 13:32
 
 
-
-
 新任提督，昨天抢到的号到今天连捞带建得出了有七十多条驱逐舰……就在我要觉得自己不光是非洲指挥官还是非洲提督的时候，300/30/400/300的配方出翔鹤了<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  maze  
 ##### 1045#       发表于 2015-1-17 15:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=27799421&amp;amp;ptid=1009008" target="_blank">jacklibran 发表于 2015-1-17 13:32</a>
@@ -19584,16 +12657,10 @@ B有啊，需要会员登录。
 说起来我家赤城也很久没有出击过了
 
 
-
-
-
-
-
 -----
 
 ####  coolffcat  
 ##### 1046#       发表于 2015-1-17 16:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27799421&amp;ptid=1009008" target="_blank">jacklibran 发表于 2015-1-17 13:32</a>
@@ -19602,31 +12669,19 @@ B有啊，需要会员登录。
 还不如加贺..........
 
 
-
-
-
-
-
 -----
 
 ####  華鳥風月  
 ##### 1047#       发表于 2015-1-17 17:12
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/136.gif" referrerpolicy="no-referrer"> wo不如立绘好看 
-
-
-
-
-
 
 
 -----
 
 ####  Inle  
 ##### 1048#       发表于 2015-1-17 18:30
-
 
 
  本帖最后由 Inle 于 2015-1-17 18:31 编辑 
@@ -19638,17 +12693,10 @@ B有啊，需要会员登录。
 从仓库挖出来发现只有80，这下练级的时候可以拿来好好玩一下了<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  tinytime  
 ##### 1049#       发表于 2015-1-18 00:28
-
-
 
 
 话说之前忘了在哪里看到的本子，有个舰娘向路过的提督搭话问“是否需要幼女X服务”，末了“请务必指名我”
@@ -19656,16 +12704,10 @@ B有啊，需要会员登录。
 就是忘了是哪艘船了………………能方便说个关键字么我拼命找都找不到……
 
 
-
-
-
-
-
 -----
 
 ####  Stuka  
 ##### 1050#       发表于 2015-1-18 08:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27804448&amp;ptid=1009008" target="_blank">tinytime 发表于 2015-1-18 00:28</a>
@@ -19676,16 +12718,10 @@ B有啊，需要会员登录。
 应该是个朝潮的本子
 
 
-
-
-
-
-
 -----
 
 ####  lancerhd  
 ##### 1051#       发表于 2015-1-18 09:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27794788&amp;ptid=1009008" target="_blank">夜游的树 发表于 2015-1-16 21:11</a>
@@ -19694,16 +12730,10 @@ B有啊，需要会员登录。
 <img src="https://static.saraba1st.com/image/smiley/dym/155.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  warlock228  
 ##### 1052#       发表于 2015-1-18 11:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27805968&amp;ptid=1009008" target="_blank">lancerhd 发表于 2015-1-18 09:04</a>
@@ -19712,16 +12742,10 @@ B有啊，需要会员登录。
 不就跟小裤裤的异型军一样嘛 突然出现 来源不明是啥都不清楚反正就是打打打
 
 
-
-
-
-
-
 -----
 
 ####  lancerhd  
 ##### 1053#       发表于 2015-1-18 14:51
-
 
 
  本帖最后由 lancerhd 于 2015-1-18 14:52 编辑 
@@ -19733,16 +12757,10 @@ B有啊，需要会员登录。
 是潮  然后是改图  原版是岛风少女 之类的一本官方漫画然后要潮的本子的话推荐这个[http://manhua.dmzj.com/moxingzhichao/](http://manhua.dmzj.com/moxingzhichao/)
 
 
-
-
-
-
-
 -----
 
 ####  laoism  
 ##### 1054#       发表于 2015-1-18 22:39
-
 
 
 <img src="http://ww1.sinaimg.cn/large/7016afdcjw9eodznveplsg208w050k0l.gif" referrerpolicy="no-referrer">
@@ -19756,16 +12774,10 @@ B有啊，需要会员登录。
 想不起来我上次做动图是什么时候了。
 
 
-
-
-
-
-
 -----
 
 ####  Futanari  
 ##### 1055#       发表于 2015-1-18 22:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27807085&amp;ptid=1009008" target="_blank">warlock228 发表于 2015-1-18 11:49</a>
@@ -19774,32 +12786,19 @@ B有啊，需要会员登录。
 不就是美军嘛，
 
 
-
-
-
-
-
 -----
 
 ####  Wiki_ki  
 ##### 1056#       发表于 2015-1-18 22:50
 
 
-
-
 感觉路人场景做的不行啊，那珂偶像宣言那段，路人（时雨，大潮，五月雨？等一动不动，场景也没变化，只有非洲巅峰一个在动，有点逗比啊），佐仓存在感爆表
-
-
-
-
-
 
 
 -----
 
 ####  飞霞精灵  
 ##### 1057#       发表于 2015-1-19 00:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27812400&amp;ptid=1009008" target="_blank">Futanari 发表于 2015-1-18 22:46</a>
@@ -19814,18 +12813,10 @@ B有啊，需要会员登录。
 春活E2基本上确定就是深海侧的春雨。
 
 
-
-
-
-
-
-
 -----
 
 ####  gary76  
 ##### 1058#       发表于 2015-1-21 02:13
-
-
 
 
 艦これのOPが万能か検証してみた　前編
@@ -19846,13 +12837,7 @@ B有啊，需要会员登录。
 アクセル/SAO/モーパイ/ヤマト/アルペジオ/リトバスEX/俺ツイ/ファフナー/アンジュ/シドニア/ダイミダラー/グレンラガン/アクエリオンEVOL/??
 
 
-
 臥槽，這簡直各種高能
-
-
-
-
-
 
 
 -----
@@ -19861,14 +12846,7 @@ B有啊，需要会员登录。
 ##### 1059#       发表于 2015-1-21 09:34
 
 
-
-
 今天晚上就有新药了
-
-
-
-
-
 
 
 -----
@@ -19877,14 +12855,7 @@ B有啊，需要会员登录。
 ##### 1060#       发表于 2015-1-21 09:45
 
 
-
-
 看看三集定律会不会成立
-
-
-
-
-
 
 
 -----
@@ -19893,13 +12864,7 @@ B有啊，需要会员登录。
 ##### 1061#       发表于 2015-1-21 13:21
 
 
-
 虽然有点坏但不知为何好期待沉船<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19908,16 +12873,10 @@ B有啊，需要会员登录。
 ##### 1062#       发表于 2015-1-21 13:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27812400&amp;ptid=1009008" target="_blank">Futanari 发表于 2015-1-18 22:46</a>
 
 不就是美军嘛，</blockquote>
 之前各种映射王师 最近改成往日怨灵了
-
-
-
-
-
 
 
 -----
@@ -19926,21 +12885,13 @@ B有啊，需要会员登录。
 ##### 1063#       发表于 2015-1-21 14:37
 
 
-
-
 那么往日的怨灵是怎么来的
-
-
-
-
-
 
 
 -----
 
 ####  神無月悠也  
 ##### 1064#       发表于 2015-1-21 15:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27838462&amp;ptid=1009008" target="_blank">nanaciel 发表于 2015-1-21 14:37</a>
@@ -19951,16 +12902,10 @@ B有啊，需要会员登录。
 老实说影射王师的设定更带感
 
 
-
-
-
-
-
 -----
 
 ####  lyflyflxf  
 ##### 1065#       发表于 2015-1-21 16:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27838462&amp;ptid=1009008" target="_blank">nanaciel 发表于 2015-1-21 14:37</a>
@@ -19969,27 +12914,15 @@ B有啊，需要会员登录。
 第一个失足淹死在水里的人……
 
 
-
-
-
-
-
 -----
 
 ####  grx  
 ##### 1066#       发表于 2015-1-21 17:31
 
 
-
-
 也不能说现在就没有映射王师了，毕竟地狱猫也搞出来了，活动的历史原型也是跟王师打的。
 
 感觉娇喘根本没想过要把设定说圆，现是貌似是沉船怨念+王师装备的样子
-
-
-
-
-
 
 
 -----
@@ -19998,23 +12931,16 @@ B有啊，需要会员登录。
 ##### 1067#       发表于 2015-1-21 18:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27837694&amp;ptid=1009008" target="_blank">stage4th 发表于 2015-1-21 13:21</a>
 
 虽然有点坏但不知为何好期待沉船</blockquote>
 我也好期待<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 1068#       发表于 2015-1-21 19:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27840267&amp;ptid=1009008" target="_blank">grx 发表于 2015-1-21 17:31</a>
@@ -20030,25 +12956,13 @@ B有啊，需要会员登录。
 到后期没船可出的时候，看看娇喘有没有魄力洗白以企业号（？）为原型的wo酱了。
 
 
-
-
-
-
-
 -----
 
 ####  烟花缭乱  
 ##### 1069#       发表于 2015-1-21 22:30
 
 
-
-
 斗鱼直播有固定地址吗
-
-
-
-
-
 
 
 -----
@@ -20057,24 +12971,16 @@ B有啊，需要会员登录。
 ##### 1070#       发表于 2015-1-21 22:40
 
 
-
-
 不如赌这回谁死
 
 
 我觉得神通或者川内很危险啊
 
 
-
-
-
-
-
 -----
 
 ####  storm  
 ##### 1071#       发表于 2015-1-21 22:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27842919&amp;ptid=1009008" target="_blank">nylonchina1 发表于 2015-1-21 22:40</a>
@@ -20088,16 +12994,10 @@ B有啊，需要会员登录。
 因为史实如月在威克岛沉了
 
 
-
-
-
-
-
 -----
 
 ####  镜hinata  
 ##### 1072#       发表于 2015-1-21 22:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27842856&amp;ptid=1009008" target="_blank">烟花缭乱 发表于 2015-1-21 22:30</a>
@@ -20106,25 +13006,13 @@ B有啊，需要会员登录。
 [http://www.douyutv.com/meizhi](http://www.douyutv.com/meizhi)
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 1073#       发表于 2015-1-21 23:54
 
 
-
-
 裸体待机
-
-
-
-
-
 
 
 -----
@@ -20133,17 +13021,10 @@ B有啊，需要会员登录。
 ##### 1074#       发表于 2015-1-22 00:16
 
 
-
-
 演习时被友军撞沉怨气肯定大啊
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -20152,14 +13033,7 @@ B有啊，需要会员登录。
 ##### 1075#       发表于 2015-1-22 00:18
 
 
-
-
 吹雪就不能强气点么<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20168,14 +13042,7 @@ B有啊，需要会员登录。
 ##### 1076#       发表于 2015-1-22 00:18
 
 
-
-
 这话如月存在略高，旗子立得飞起啊<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20184,14 +13051,7 @@ B有啊，需要会员登录。
 ##### 1077#       发表于 2015-1-22 00:18
 
 
-
-
 一股死亡flag的味道
-
-
-
-
-
 
 
 -----
@@ -20200,14 +13060,7 @@ B有啊，需要会员登录。
 ##### 1078#       发表于 2015-1-22 00:19
 
 
-
-
 睡前立个沉船FLAG<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20216,14 +13069,7 @@ B有啊，需要会员登录。
 ##### 1079#       发表于 2015-1-22 00:23
 
 
-
-
 這旗插到天邊去了啊………………
-
-
-
-
-
 
 
 -----
@@ -20232,14 +13078,7 @@ B有啊，需要会员登录。
 ##### 1080#       发表于 2015-1-22 00:23
 
 
-
-
 flag立满了。=
-
-
-
-
-
 
 
 -----
@@ -20248,14 +13087,7 @@ flag立满了。=
 ##### 1081#       发表于 2015-1-22 00:23
 
 
-
-
 flag立满了。=
-
-
-
-
-
 
 
 -----
@@ -20264,14 +13096,7 @@ flag立满了。=
 ##### 1082#       发表于 2015-1-22 00:24
 
 
-
-
 蜜瓜出声了
-
-
-
-
-
 
 
 -----
@@ -20280,21 +13105,13 @@ flag立满了。=
 ##### 1083#       发表于 2015-1-22 00:24
 
 
-
-
 啊啊啊啊啊，沉船不可避，最不能说的话都说了...
-
-
-
-
-
 
 
 -----
 
 ####  Inle  
 ##### 1084#       发表于 2015-1-22 00:26
-
 
 
  本帖最后由 Inle 于 2015-1-22 00:27 编辑 
@@ -20305,25 +13122,13 @@ flag立满了。=
 索敌机未归还……
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 1085#       发表于 2015-1-22 00:28
 
 
-
-
 上半集这么多回忆 感觉下半要沉船啊 吃撑估计悬了
-
-
-
-
-
 
 
 -----
@@ -20332,14 +13137,7 @@ flag立满了。=
 ##### 1086#       发表于 2015-1-22 00:30
 
 
-
-
 轟..........
-
-
-
-
-
 
 
 -----
@@ -20348,14 +13146,7 @@ flag立满了。=
 ##### 1087#       发表于 2015-1-22 00:31
 
 
-
-
 沈
-
-
-
-
-
 
 
 -----
@@ -20364,14 +13155,7 @@ flag立满了。=
 ##### 1088#       发表于 2015-1-22 00:32
 
 
-
-
 沉了！！！！！神作！！！！！！！！！
-
-
-
-
-
 
 
 -----
@@ -20380,14 +13164,7 @@ flag立满了。=
 ##### 1089#       发表于 2015-1-22 00:33
 
 
-
-
 卧槽……
-
-
-
-
-
 
 
 -----
@@ -20396,14 +13173,7 @@ flag立满了。=
 ##### 1090#       发表于 2015-1-22 00:33
 
 
-
-
 我擦！
-
-
-
-
-
 
 
 -----
@@ -20412,14 +13182,7 @@ flag立满了。=
 ##### 1091#       发表于 2015-1-22 00:33
 
 
-
-
 次回金剛姉妹.....等等 女神呢提督.......你干毛呢TT
-
-
-
-
-
 
 
 -----
@@ -20428,14 +13191,7 @@ flag立满了。=
 ##### 1092#       发表于 2015-1-22 00:33
 
 
-
-
 我了个草，真沉了……？
-
-
-
-
-
 
 
 -----
@@ -20444,14 +13200,7 @@ flag立满了。=
 ##### 1093#       发表于 2015-1-22 00:34
 
 
-
-
 我勒个去<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20460,14 +13209,7 @@ flag立满了。=
 ##### 1094#       发表于 2015-1-22 00:34
 
 
-
-
 干 这沉船做的恶心，，还不如正面被击破呢 这叫什么事 自己大意把自己弄沉了。。。
-
-
-
-
-
 
 
 -----
@@ -20476,14 +13218,7 @@ flag立满了。=
 ##### 1095#       发表于 2015-1-22 00:34
 
 
-
-
 刀片不可避！！！
-
-
-
-
-
 
 
 -----
@@ -20492,14 +13227,7 @@ flag立满了。=
 ##### 1096#       发表于 2015-1-22 00:34
 
 
-
-
 不帶這樣玩的啊！！！
-
-
-
-
-
 
 
 -----
@@ -20508,14 +13236,7 @@ flag立满了。=
 ##### 1097#       发表于 2015-1-22 00:35
 
 
-
-
 真沉了<img src="https://static.saraba1st.com/image/smiley/face/145.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20524,14 +13245,7 @@ flag立满了。=
 ##### 1098#       发表于 2015-1-22 00:36
 
 
-
-
 弃番弃番，我擦为什么要屎提督玩游戏啦滚啦！
-
-
-
-
-
 
 
 -----
@@ -20540,20 +13254,13 @@ flag立满了。=
 ##### 1099#       发表于 2015-1-22 00:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">娇喘刀片厂开门啦
-
-
-
-
-
 
 
 -----
 
 ####  besta9188  
 ##### 1100#       发表于 2015-1-22 00:36
-
 
 
  本帖最后由 besta9188 于 2015-1-22 00:38 编辑 
@@ -20564,25 +13271,13 @@ flag立满了。=
 我开始拷问自己什么时候产生了这片子是喝茶片的错觉得……
 
 
-
-
-
-
-
 -----
 
 ####  辽汀  
 ##### 1101#       发表于 2015-1-22 00:37
 
 
-
-
 下集是我女神出场？
-
-
-
-
-
 
 
 -----
@@ -20591,13 +13286,7 @@ flag立满了。=
 ##### 1102#       发表于 2015-1-22 00:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer"> 暴死不可避
-
-
-
-
-
 
 
 -----
@@ -20606,13 +13295,7 @@ flag立满了。=
 ##### 1103#       发表于 2015-1-22 00:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/zdl/157.gif" referrerpolicy="no-referrer">我艹还真沉了  难道不是喝茶片吗
-
-
-
-
-
 
 
 -----
@@ -20621,14 +13304,7 @@ flag立满了。=
 ##### 1104#       发表于 2015-1-22 00:37
 
 
-
-
 满血沉船这是bug！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！
-
-
-
-
-
 
 
 -----
@@ -20637,16 +13313,9 @@ flag立满了。=
 ##### 1105#       发表于 2015-1-22 00:37
 
 
-
-
 这集脚本是吉野。。
 
 爆炸啦！
-
-
-
-
-
 
 
 -----
@@ -20655,16 +13324,10 @@ flag立满了。=
 ##### 1106#       发表于 2015-1-22 00:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27843860&amp;ptid=1009008" target="_blank">depthlee 发表于 2015-1-22 00:36</a>
 
 弃番弃番，我擦为什么要屎提督玩游戏啦滚啦！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer"> 喂 这种沉法能怪提督么 分明是这位舰娘自己傻吧。。。
-
-
-
-
-
 
 
 -----
@@ -20673,14 +13336,7 @@ flag立满了。=
 ##### 1107#       发表于 2015-1-22 00:37
 
 
-
-
 整个人都不好了  3集定律这个片也适用？？？  真的要花田绕着走了····
-
-
-
-
-
 
 
 -----
@@ -20689,16 +13345,9 @@ flag立满了。=
 ##### 1108#       发表于 2015-1-22 00:37
 
 
-
-
 说好的喝茶片呢<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 还让不让人愉快的看片了？
-
-
-
-
-
 
 
 -----
@@ -20707,14 +13356,7 @@ flag立满了。=
 ##### 1109#       发表于 2015-1-22 00:37
 
 
-
-
 花田十辉!!!!!!!!!!老子跟你不共戴天!!!!
-
-
-
-
-
 
 
 -----
@@ -20723,13 +13365,7 @@ flag立满了。=
 ##### 1110#       发表于 2015-1-22 00:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">CNM真沉了！
-
-
-
-
-
 
 
 -----
@@ -20738,13 +13374,7 @@ flag立满了。=
 ##### 1111#       发表于 2015-1-22 00:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">睦月插旗如月遭殃，最后还不把话说死，吉野大先生是不是打算先喂屎再强行吐出来？
-
-
-
-
-
 
 
 -----
@@ -20753,14 +13383,7 @@ flag立满了。=
 ##### 1112#       发表于 2015-1-22 00:38
 
 
-
-
 真不愧是吉野大老湿!!!!!!
-
-
-
-
-
 
 
 -----
@@ -20769,15 +13392,9 @@ flag立满了。=
 ##### 1113#       发表于 2015-1-22 00:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
 
 这周脚本是吉野？ 可以黑一辈子了<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20786,14 +13403,7 @@ flag立满了。=
 ##### 1114#       发表于 2015-1-22 00:38
 
 
-
-
 我眼神不好如月之前大破进击了？这样也能沉？以后谁敢说录像防沉就拿这集糊他一脸
-
-
-
-
-
 
 
 -----
@@ -20802,17 +13412,10 @@ flag立满了。=
 ##### 1115#       发表于 2015-1-22 00:38
 
 
-
-
 三话强行喂屎 角川你家炸了 连喝茶片都看不了了
 
 
 这集剧本还是吉野弘幸那个傻逼<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20821,14 +13424,7 @@ flag立满了。=
 ##### 1116#       发表于 2015-1-22 00:39
 
 
-
-
 哎哟我去求俺叢云别出场了……这没中破就沉……
-
-
-
-
-
 
 
 -----
@@ -20837,16 +13433,10 @@ flag立满了。=
 ##### 1117#       发表于 2015-1-22 00:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27843875&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-22 00:37</a>
 
 喂 这种沉法能怪提督么 分明是这位舰娘自己傻吧。。。</blockquote>
 总得找个人背锅！
-
-
-
-
-
 
 
 -----
@@ -20855,14 +13445,7 @@ flag立满了。=
 ##### 1118#       发表于 2015-1-22 00:39
 
 
-
-
 卧槽真的沉了啊
-
-
-
-
-
 
 
 -----
@@ -20871,24 +13454,16 @@ flag立满了。=
 ##### 1119#       发表于 2015-1-22 00:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27843875&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-22 00:37</a>
 
 喂 这种沉法能怪提督么 分明是这位舰娘自己傻吧。。。</blockquote>
 总得找个人背锅！
 
 
-
-
-
-
-
 -----
 
 ####  jacklibran  
 ##### 1120#       发表于 2015-1-22 00:39
-
-
 
 
 卧槽，前面立FLAG的时候我都要笑出来了，还想着这年头怎么还有人用这么刻意的FLAG当笑点
@@ -20899,25 +13474,13 @@ flag立满了。=
 怎么说呢，幸好我没练如月……
 
 
-
-
-
-
-
 -----
 
 ####  shihomasturi  
 ##### 1121#       发表于 2015-1-22 00:39
 
 
-
-
 你们先别激动，下集是不是还有回旋的余地？
-
-
-
-
-
 
 
 -----
@@ -20926,14 +13489,7 @@ flag立满了。=
 ##### 1122#       发表于 2015-1-22 00:39
 
 
-
-
 最后没找到尸体放弃搜索了  也就是说  大概一个月之后有可能看到深海如月？
-
-
-
-
-
 
 
 -----
@@ -20942,16 +13498,10 @@ flag立满了。=
 ##### 1123#       发表于 2015-1-22 00:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/normal/024.gif" referrerpolicy="no-referrer">本来以为是校园向励志喜剧，结果第三集就有出人意料的展开啊。
 
 
 其实我刚开始玩的时候不知道大破进击会沉，沉了艘川内
-
-
-
-
-
 
 
 -----
@@ -20960,16 +13510,9 @@ flag立满了。=
 ##### 1124#       发表于 2015-1-22 00:39
 
 
-
-
 刀片不可避
 
 ——— 来自[Stage1st Reader For iOS](http://itunes.apple.com/us/app/stage1st-reader/id509916119?mt=8)
-
-
-
-
-
 
 
 -----
@@ -20978,14 +13521,7 @@ flag立满了。=
 ##### 1125#       发表于 2015-1-22 00:39
 
 
-
-
 药片！大暴死！角川你妈炸了！
-
-
-
-
-
 
 
 -----
@@ -20994,14 +13530,7 @@ flag立满了。=
 ##### 1126#       发表于 2015-1-22 00:40
 
 
-
-
 这尼玛什么鬼，随便做个喝茶片都不会吗<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21010,14 +13539,7 @@ flag立满了。=
 ##### 1127#       发表于 2015-1-22 00:40
 
 
-
-
 咩哈哈 炸裂 沉船 炸裂 买买买 
-
-
-
-
-
 
 
 -----
@@ -21026,14 +13548,7 @@ flag立满了。=
 ##### 1128#       发表于 2015-1-22 00:40
 
 
-
-
 沉船不是不能接受 就是沉的方式太二了。。。。好歹正面奋战不敌或者同归于尽走向多好。。。都tmd大胜了 然后自己犯傻。。。被击沉太让人不爽了
-
-
-
-
-
 
 
 -----
@@ -21042,22 +13557,13 @@ flag立满了。=
 ##### 1129#       发表于 2015-1-22 00:40
 
 
-
-
 满血沉船<img src="https://static.saraba1st.com/image/smiley/face/26.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  儚き永遠  
 ##### 1130#       发表于 2015-1-22 00:40
-
-
 
 
 如月：是吗，我救了你
@@ -21067,25 +13573,13 @@ flag立满了。=
 如月：不，我完全不知道，大概，因为我已经是第三个了吧。
 
 
-
-
-
-
-
 -----
 
 ####  arx-7  
 ##### 1131#       发表于 2015-1-22 00:41
 
 
-
-
 这口屎我吃得不服！
-
-
-
-
-
 
 
 -----
@@ -21094,13 +13588,7 @@ flag立满了。=
 ##### 1132#       发表于 2015-1-22 00:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">如月初代小騷包我還特意練了一段時間的
-
-
-
-
-
 
 
 -----
@@ -21109,14 +13597,7 @@ flag立满了。=
 ##### 1133#       发表于 2015-1-22 00:41
 
 
-
-
 没想到真沉了。。。。。。
-
-
-
-
-
 
 
 -----
@@ -21125,13 +13606,7 @@ flag立满了。=
 ##### 1134#       发表于 2015-1-22 00:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">这屎喂得太恶意了，不能为了表现沉船而沉船……
-
-
-
-
-
 
 
 -----
@@ -21140,17 +13615,10 @@ flag立满了。=
 ##### 1135#       发表于 2015-1-22 00:42
 
 
-
-
 啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face/74.gif" referrerpolicy="no-referrer">
 
 
 这不是喝茶片么<img src="https://static.saraba1st.com/image/smiley/face/74.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21159,14 +13627,7 @@ flag立满了。=
 ##### 1136#       发表于 2015-1-22 00:42
 
 
-
-
 接下来该赤城了 果然OP那一瞬间不是开玩笑的....?
-
-
-
-
-
 
 
 -----
@@ -21175,14 +13636,7 @@ flag立满了。=
 ##### 1137#       发表于 2015-1-22 00:42
 
 
-
-
 简直强行喂屎<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21191,17 +13645,10 @@ flag立满了。=
 ##### 1138#       发表于 2015-1-22 00:43
 
 
-
-
 5时37分，如月被威克岛守军的F4F野猫式战机以.50口径机枪扫射而受损，尔后被Henry T. Elrod上尉所驾驶的F4F战机投下的100磅炸弹命中舰艉并诱爆了舰上所搭载的深水炸弹。5时42分在威克岛东南方向30英里处爆炸沉没，全舰无人生还。1942年1月10日除籍。该舰也是第一条战沉的睦月级驱逐舰。
 
 
  再这样玩历史沉船梗   可以弃片了
-
-
-
-
-
 
 
 -----
@@ -21210,14 +13657,7 @@ flag立满了。=
 ##### 1139#       发表于 2015-1-22 00:44
 
 
-
-
 按照现在的地图进度IJN还剩几艘船233
-
-
-
-
-
 
 
 -----
@@ -21226,16 +13666,10 @@ flag立满了。=
 ##### 1140#       发表于 2015-1-22 00:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27843927&amp;ptid=1009008" target="_blank">erlic 发表于 2015-1-22 00:41</a>
 
 没想到真沉了。。。。。。</blockquote>
 缺铁可以说 给你寄刀片就是 但缺心眼  这片是药丸 监督提督都得死
-
-
-
-
-
 
 
 -----
@@ -21244,14 +13678,7 @@ flag立满了。=
 ##### 1141#       发表于 2015-1-22 00:44
 
 
-
-
 其实我觉得我们可以期待一下白魔法
-
-
-
-
-
 
 
 -----
@@ -21260,15 +13687,9 @@ flag立满了。=
 ##### 1142#       发表于 2015-1-22 00:44
 
 
-
  本帖最后由 besta9188 于 2015-1-22 00:47 编辑 
 
 结局是长门吃核弹就神作了，每一卷我买十份
-
-
-
-
-
 
 
 -----
@@ -21277,14 +13698,7 @@ flag立满了。=
 ##### 1143#       发表于 2015-1-22 00:44
 
 
-
-
 哈哈哈UCCU
-
-
-
-
-
 
 
 -----
@@ -21293,15 +13707,9 @@ flag立满了。=
 ##### 1144#       发表于 2015-1-22 00:44
 
 
-
  本帖最后由 oooops 于 2015-1-22 00:47 编辑 
 
 这nm满满恶意
-
-
-
-
-
 
 
 -----
@@ -21310,15 +13718,8 @@ flag立满了。=
 ##### 1145#       发表于 2015-1-22 00:45
 
 
-
-
 可怕。。。。想弃了。。。。
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21327,16 +13728,9 @@ flag立满了。=
 ##### 1146#       发表于 2015-1-22 00:46
 
 
-
-
 这样的话倒数第二话大和特攻最后一话十字路口行动（
 
 ——— 来自[Stage1st Reader For iOS](http://itunes.apple.com/us/app/stage1st-reader/id509916119?mt=8)
-
-
-
-
-
 
 
 -----
@@ -21345,21 +13739,13 @@ flag立满了。=
 ##### 1147#       发表于 2015-1-22 00:46
 
 
-
-
 全死光时来提醒我补补<img src="https://static.saraba1st.com/image/smiley/face/13.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  kitagawa  
 ##### 1148#       发表于 2015-1-22 00:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27843875&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-22 01:37</a>
@@ -21370,16 +13756,10 @@ flag立满了。=
 结果动画的提督只是在坐班....
 
 
-
-
-
-
-
 -----
 
 ####  ★ARCHER☆  
 ##### 1149#       发表于 2015-1-22 00:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27843936&amp;ptid=1009008" target="_blank">warlock228 发表于 2015-1-22 00:43</a>
@@ -21388,16 +13768,10 @@ flag立满了。=
 快上第三次所罗门海战 看完无双我就滚 
 
 
-
-
-
-
-
 -----
 
 ####  beersun  
 ##### 1150#       发表于 2015-1-22 00:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27843904&amp;ptid=1009008" target="_blank">eternum 发表于 2015-1-21 16:39</a>
@@ -21406,25 +13780,13 @@ flag立满了。=
 沉了带着烈风改的赤诚
 
 
-
-
-
-
-
 -----
 
 ####  eva02eva02  
 ##### 1151#       发表于 2015-1-22 00:47
 
 
-
-
 看来吹雪也要死了<img src="https://static.saraba1st.com/image/smiley/face/26.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21433,14 +13795,7 @@ flag立满了。=
 ##### 1152#       发表于 2015-1-22 00:47
 
 
-
-
 这要是全史实剧情我觉得可以接受
-
-
-
-
-
 
 
 -----
@@ -21449,14 +13804,7 @@ flag立满了。=
 ##### 1153#       发表于 2015-1-22 00:48
 
 
-
-
 劳资玩了这么久一直以0沉船为自豪的<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21465,21 +13813,13 @@ flag立满了。=
 ##### 1154#       发表于 2015-1-22 00:48
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">卧槽这风向，我特么的只是想看个喝茶片而已，结果友奈跟舰女人都这么搞……
-
-
-
-
-
 
 
 -----
 
 ####  delta-h  
 ##### 1155#       发表于 2015-1-22 00:48
-
-
 
 
 如月确实实在威克岛被炸弹炸沉,
@@ -21489,16 +13829,10 @@ flag立满了。=
 说好的战斗30%日常70%呢?<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  辽汀  
 ##### 1156#       发表于 2015-1-22 00:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27843965&amp;ptid=1009008" target="_blank">kitagawa 发表于 2015-1-22 00:47</a>
@@ -21509,25 +13843,13 @@ flag立满了。=
 脑补了长门背着提督上战场的场景，笑了
 
 
-
-
-
-
-
 -----
 
 ####  七月飞沙  
 ##### 1157#       发表于 2015-1-22 00:48
 
 
-
-
 吉野大师的饲料，就是这个味儿~
-
-
-
-
-
 
 
 -----
@@ -21536,20 +13858,10 @@ flag立满了。=
 ##### 1158#       发表于 2015-1-22 00:49
 
 
-
-
 吉野吃屎啊！！！！尼玛啊！！！
 
 
-
-
-
 那么来想想便当的顺序吧？
-
-
-
-
-
 
 
 -----
@@ -21558,21 +13870,13 @@ flag立满了。=
 ##### 1159#       发表于 2015-1-22 00:49
 
 
-
-
 要是按历史走也行，，那么之后的剧情是全程被深海舰队吊打么？一口气沉十几条日子都有啊
-
-
-
-
-
 
 
 -----
 
 ####  besta9188  
 ##### 1160#       发表于 2015-1-22 00:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27843979&amp;ptid=1009008" target="_blank">露娜玛利亚 发表于 2015-1-22 00:48</a>
@@ -21584,25 +13888,13 @@ flag立满了。=
 可恶，居然放松警惕了。
 
 
-
-
-
-
-
 -----
 
 ####  nailuo1993  
 ##### 1161#       发表于 2015-1-22 00:50
 
 
-
-
 期待中途岛<img src="https://static.saraba1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21611,16 +13903,10 @@ flag立满了。=
 ##### 1162#       发表于 2015-1-22 00:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27843943&amp;ptid=1009008" target="_blank">jacklibran 发表于 2015-1-22 00:44</a>
 
 其实我觉得我们可以期待一下白魔法</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/32.gif" referrerpolicy="no-referrer">你以为白魔法就是原来那艘如月吗？当提督都是傻比吗。暴死
-
-
-
-
-
 
 
 -----
@@ -21629,21 +13915,13 @@ flag立满了。=
 ##### 1163#       发表于 2015-1-22 00:51
 
 
-
-
 我草泥马 我不能忍 我这么喜欢如月
-
-
-
-
-
 
 
 -----
 
 ####  二本逆反  
 ##### 1164#       发表于 2015-1-22 00:52
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">[s:165]
@@ -21653,24 +13931,13 @@ flag立满了。=
 花田吉野快点去死吧
 
 
-
-
-
-
-
 -----
 
 ####  xk1370  
 ##### 1165#       发表于 2015-1-22 00:52
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">开头以为花田老师用力过猛，结果吉野大师强行喂大便，厉害
-
-
-
-
-
 
 
 -----
@@ -21679,14 +13946,7 @@ flag立满了。=
 ##### 1166#       发表于 2015-1-22 00:52
 
 
-
-
 制作感觉一话不如一话，制作组是想要强行挑起话题来保证销量呢
-
-
-
-
-
 
 
 -----
@@ -21695,14 +13955,7 @@ flag立满了。=
 ##### 1167#       发表于 2015-1-22 00:52
 
 
-
-
 这看到最后只剩长门了吧……这镇守府里……
-
-
-
-
-
 
 
 -----
@@ -21711,16 +13964,10 @@ flag立满了。=
 ##### 1168#       发表于 2015-1-22 00:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27843936&amp;ptid=1009008" target="_blank">warlock228 发表于 2015-1-22 01:43</a>
 
 5时37分，如月被威克岛守军的F4F野猫式战机以.50口径机枪扫射而受损，尔后被Henry T. Elrod上尉所驾驶的F4F ...</blockquote>
 还好这片子没出现扶桑姐妹....要被虐死的....
-
-
-
-
-
 
 
 -----
@@ -21729,16 +13976,9 @@ flag立满了。=
 ##### 1169#       发表于 2015-1-22 00:53
 
 
-
-
 坊之岬—》吴港空袭—》十字路口
 
 这个顺序比较悲情
-
-
-
-
-
 
 
 -----
@@ -21747,14 +13987,7 @@ flag立满了。=
 ##### 1170#       发表于 2015-1-22 00:53
 
 
-
-
 哈哈哈，敢史实中途岛么<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21763,17 +13996,10 @@ flag立满了。=
 ##### 1171#       发表于 2015-1-22 00:53
 
 
-
-
 可惜对手不是美帝黑叔叔
 
 
 话说这算反战片了不？
-
-
-
-
-
 
 
 -----
@@ -21782,22 +14008,15 @@ flag立满了。=
 ##### 1172#       发表于 2015-1-22 00:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844003&amp;ptid=1009008" target="_blank">天天座理世 发表于 2015-1-22 00:50</a>
 
 你以为白魔法就是原来那艘如月吗？当提督都是傻比吗。暴死</blockquote>
 这尼玛监督不是用的是仲谷的灵感吧   待风止浪息······
 
 
-
 睦：别说了 你不是我的如月酱
 
 如’：我····（但你是我的第一个睦月酱）
-
-
-
-
-
 
 
 -----
@@ -21806,23 +14025,16 @@ flag立满了。=
 ##### 1173#       发表于 2015-1-22 00:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844003&amp;ptid=1009008" target="_blank">天天座理世 发表于 2015-1-22 00:50</a>
 
 你以为白魔法就是原来那艘如月吗？当提督都是傻比吗。暴死</blockquote>
 我觉得花田大先生完全写得出如月变成深海后又被爱感化重回舰队的“王道”剧情<img src="https://static.saraba1st.com/image/smiley/nq/016.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  delta-h  
 ##### 1174#       发表于 2015-1-22 00:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27843980&amp;ptid=1009008" target="_blank">delta-h 发表于 2015-1-22 01:48</a>
@@ -21835,32 +14047,19 @@ flag立满了。=
 这样想想长门是因为终战都没沉才当了秘书舰吧
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 1175#       发表于 2015-1-22 00:55
 
 
-
-
 还是那句话沉船不是问题。开播前一大堆人都想看沉船剧情呢我就是其中之一。问题是沉船方式不能这么屎...............上半集主动立flag下半集为沉船而沉船。。。剧情演出太傻了
-
-
-
-
-
 
 
 -----
 
 ####  coolffcat  
 ##### 1176#       发表于 2015-1-22 00:55
-
 
 
  本帖最后由 coolffcat 于 2015-1-22 00:56 编辑 
@@ -21872,25 +14071,13 @@ flag立满了。=
 苍蝇：都说雷级屌，他会闭幕空袭吗！
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 1177#       发表于 2015-1-22 00:55
 
 
-
-
 所以這集前面一大半不停插旗就是為了弄死如月啊
-
-
-
-
-
 
 
 -----
@@ -21899,16 +14086,10 @@ flag立满了。=
 ##### 1178#       发表于 2015-1-22 00:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844036&amp;ptid=1009008" target="_blank">coolffcat 发表于 2015-1-22 00:55</a>
 
 历史上确实是被炸弹炸沉的，还原历史，MI作战何在</blockquote>
 不是被机枪打沉的么？
-
-
-
-
-
 
 
 -----
@@ -21917,14 +14098,7 @@ flag立满了。=
 ##### 1179#       发表于 2015-1-22 00:57
 
 
-
-
 按历史的话下集是不是可以坐等赤城加贺被开膛破肚了？？？？
-
-
-
-
-
 
 
 -----
@@ -21933,14 +14107,7 @@ flag立满了。=
 ##### 1180#       发表于 2015-1-22 00:57
 
 
-
-
 突然变成年度最佳反战作品候补了
-
-
-
-
-
 
 
 -----
@@ -21949,16 +14116,10 @@ flag立满了。=
 ##### 1181#       发表于 2015-1-22 00:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844013&amp;ptid=1009008" target="_blank">sinfor 发表于 2015-1-22 00:52</a>
 
 制作感觉一话不如一话，制作组是想要强行挑起话题来保证销量呢</blockquote>
 这样的话题能有销量就是鬼了
-
-
-
-
-
 
 
 -----
@@ -21967,16 +14128,10 @@ flag立满了。=
 ##### 1182#       发表于 2015-1-22 00:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844013&amp;ptid=1009008" target="_blank">sinfor 发表于 2015-1-22 00:52</a>
 
 制作感觉一话不如一话，制作组是想要强行挑起话题来保证销量呢</blockquote>
 这样的话题能有销量就是鬼了
-
-
-
-
-
 
 
 -----
@@ -21985,16 +14140,10 @@ flag立满了。=
 ##### 1183#       发表于 2015-1-22 00:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844030&amp;ptid=1009008" target="_blank">jacklibran 发表于 2015-1-22 00:54</a>
 
 我觉得花田大先生完全写得出如月变成深海后又被爱感化重回舰队的“王道”剧情 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">八成就是这种搞笑大片展开，反正吐不吐都是喂屎程度的区别罢了麻痹
-
-
-
-
-
 
 
 -----
@@ -22003,21 +14152,13 @@ flag立满了。=
 ##### 1184#       发表于 2015-1-22 00:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">等等。。如果真还原历史我就买片支持。。。。 
-
-
-
-
-
 
 
 -----
 
 ####  vazoe  
 ##### 1185#       发表于 2015-1-22 01:00
-
-
 
 
 人家提督的takao<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">
@@ -22030,25 +14171,13 @@ flag立满了。=
 这话3D脸部特写简直了......（还这么糙，真没问题？
 
 
-
-
-
-
-
 -----
 
 ####  契卡  
 ##### 1186#       发表于 2015-1-22 01:00
 
 
-
-
 大暴死！醉了醉了！这药效
-
-
-
-
-
 
 
 -----
@@ -22057,13 +14186,7 @@ flag立满了。=
 ##### 1187#       发表于 2015-1-22 01:01
 
 
-
 <img src="http://ww1.sinaimg.cn/mw1024/62fb8899gw1eohmolksqsj208c07ljrx.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22072,14 +14195,7 @@ flag立满了。=
 ##### 1188#       发表于 2015-1-22 01:01
 
 
-
-
 这陆奥要怎么办？在司令部里突然爆炸？
-
-
-
-
-
 
 
 -----
@@ -22088,14 +14204,7 @@ flag立满了。=
 ##### 1189#       发表于 2015-1-22 01:01
 
 
-
-
 你TM敢MI么?敢第三次所罗门海战么?
-
-
-
-
-
 
 
 -----
@@ -22104,21 +14213,13 @@ flag立满了。=
 ##### 1190#       发表于 2015-1-22 01:01
 
 
-
-
 群里看到消息说有个国人分镜画师说要沉十几艘船...<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  besta9188  
 ##### 1191#       发表于 2015-1-22 01:01
-
 
 
  本帖最后由 besta9188 于 2015-1-22 01:04 编辑 
@@ -22134,25 +14235,14 @@ flag立满了。=
 长门吃核弹两套
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 1192#       发表于 2015-1-22 01:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844086&amp;ptid=1009008" target="_blank">dc19881121010 发表于 2015-1-22 01:01</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/05.gif" referrerpolicy="no-referrer"> 哦艹 看来真要花钱买片支持了。。 
-
-
-
-
-
 
 
 -----
@@ -22161,22 +14251,13 @@ flag立满了。=
 ##### 1193#       发表于 2015-1-22 01:02
 
 
-
-
 如果後面陸奧突然莫名其妙爆炸死了我會買BD的
-
-
-
-
-
 
 
 -----
 
 ####  土旦克007  
 ##### 1194#       发表于 2015-1-22 01:03
-
-
 
 
 .....刚下班回来，然后没看直播，然后回来一刷微博，彻底炸裂了.
@@ -22186,25 +14267,14 @@ flag立满了。=
 强行喂屎！！！！！说好的fans向呢！
 
 
-
-
-
-
-
 -----
 
 ####  fragilestar  
 ##### 1195#       发表于 2015-1-22 01:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844086&amp;ptid=1009008" target="_blank">dc19881121010 发表于 2015-1-22 01:01</a></blockquote>
 吓得我坐在了地上。。。。
-
-
-
-
-
 
 
 -----
@@ -22213,14 +14283,7 @@ flag立满了。=
 ##### 1196#       发表于 2015-1-22 01:04
 
 
-
-
 还几吧个一月最强，我看呀这直接自爆啦没救了
-
-
-
-
-
 
 
 -----
@@ -22229,14 +14292,7 @@ flag立满了。=
 ##### 1197#       发表于 2015-1-22 01:04
 
 
-
-
 那么问题来了 究竟是花田傻逼还是吉野自己加了私货
-
-
-
-
-
 
 
 -----
@@ -22245,16 +14301,9 @@ flag立满了。=
 ##### 1198#       发表于 2015-1-22 01:04
 
 
-
-
 睦月这满世界立flag的表现我都以为他是雪风假扮的，如月被她坑死也正常，另外我日语不好长门和提督那段话确定是说沉了吧？别下集被潜水艇捞出来欺骗人感情……那第几水雷舰队留下来又捞了艘如月倒还……还是<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
 
 根据史实下一个沉的是谁来着？
-
-
-
-
-
 
 
 -----
@@ -22263,14 +14312,7 @@ flag立满了。=
 ##### 1199#       发表于 2015-1-22 01:05
 
 
-
-
 可是吹雪萨沃岛海战就沉了啊，大和还要几年后突击冲绳才沉呢<img src="https://static.saraba1st.com/image/smiley/normal/062.gif" referrerpolicy="no-referrer">没主角了还要继续拍么...
-
-
-
-
-
 
 
 -----
@@ -22279,15 +14321,9 @@ flag立满了。=
 ##### 1200#       发表于 2015-1-22 01:05
 
 
-
  本帖最后由 ramiel 于 2015-1-22 01:10 编辑 
 
 得，军国主义大毒草这下成了给世界反法西斯战争胜利70周年献礼了<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22296,14 +14332,7 @@ flag立满了。=
 ##### 1201#       发表于 2015-1-22 01:05
 
 
-
-
 莫慌，这种粉丝向游戏，连高速维修都晒出来了，我觉得这话是在晒损管……只不过搞个大新闻欺骗下感情<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22312,14 +14341,7 @@ flag立满了。=
 ##### 1202#       发表于 2015-1-22 01:05
 
 
-
-
 然后下集跳一台新的如月出来补充 像某些本子画的那样 沉了哪个就补哪个 然后大家都还是当没事一样继续 最后吹雪发现自己来之前已经沉一次吹雪 这样如何？
-
-
-
-
-
 
 
 -----
@@ -22328,14 +14350,7 @@ flag立满了。=
 ##### 1203#       发表于 2015-1-22 01:06
 
 
-
-
 尼玛好歹保护下睦月之类的沉了也好啊……这尼玛站着吹风莫名其妙就沉了逗我呢……2话那么无聊3话又来这么一坨shi！
-
-
-
-
-
 
 
 -----
@@ -22344,22 +14359,13 @@ flag立满了。=
 ##### 1204#       发表于 2015-1-22 01:06
 
 
-
-
 卧槽，把监督炸了……<img src="https://static.saraba1st.com/image/smiley/nq/001.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  十五式試作艦戦  
 ##### 1205#       发表于 2015-1-22 01:07
-
-
 
 
 问题这“还原历史”也是硬凑出来的
@@ -22371,16 +14377,10 @@ flag立满了。=
 现在这个完全是为了喂翔而喂翔硬发个便当出来<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  orangee  
 ##### 1206#       发表于 2015-1-22 01:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844116&amp;ptid=1009008" target="_blank">eden_hazard 发表于 2015-1-22 01:04</a>
@@ -22389,16 +14389,10 @@ flag立满了。=
 现在游戏登场的里面应该是除了深雪以外最早沉的……所以请支持自己的本命不要出现在动画里好了
 
 
-
-
-
-
-
 -----
 
 ####  宫森葵  
 ##### 1207#       发表于 2015-1-22 01:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844115&amp;ptid=1009008" target="_blank">cat122802501 发表于 2015-1-22 01:04</a>
@@ -22409,25 +14403,13 @@ flag立满了。=
 具体这一话flag立得飞起然后强行便当，那就是吉野背锅了。
 
 
-
-
-
-
-
 -----
 
 ####  maxwell_goblin  
 ##### 1208#       发表于 2015-1-22 01:08
 
 
-
-
 睡了一觉怎么世界线不对了？
-
-
-
-
-
 
 
 -----
@@ -22436,23 +14418,16 @@ flag立满了。=
 ##### 1209#       发表于 2015-1-22 01:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844121&amp;ptid=1009008" target="_blank">eternum 发表于 2015-1-22 01:05</a>
 
 可是吹雪萨沃岛海战就沉了啊，大和还要几年后突击冲绳才沉呢没主角了还要继续拍么... ...</blockquote>
 一億艦碎！
 
 
-
-
-
-
-
 -----
 
 ####  besta9188  
 ##### 1210#       发表于 2015-1-22 01:08
-
 
 
  本帖最后由 besta9188 于 2015-1-22 01:10 编辑 
@@ -22468,16 +14443,10 @@ flag立满了。=
 但是如果真是沉10几艘船那就是另一个层面的问题了
 
 
-
-
-
-
-
 -----
 
 ####  dc19881121010  
 ##### 1211#       发表于 2015-1-22 01:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844121&amp;ptid=1009008" target="_blank">eternum 发表于 2015-1-22 01:05</a>
@@ -22491,27 +14460,15 @@ flag立满了。=
 是否很合理
 
 
-
-
-
-
-
 -----
 
 ####  FuwaAika  
 ##### 1212#       发表于 2015-1-22 01:09
 
 
-
-
 我不能接受！我他妈又被强行喂屎了！
 
 ——— 来自[Stage1st Reader For iOS](http://itunes.apple.com/us/app/stage1st-reader/id509916119?mt=8)
-
-
-
-
-
 
 
 -----
@@ -22520,24 +14477,16 @@ flag立满了。=
 ##### 1213#       发表于 2015-1-22 01:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844115&amp;ptid=1009008" target="_blank">cat122802501 发表于 2015-1-22 01:04</a>
 
 那么问题来了 究竟是花田傻逼还是吉野自己加了私货</blockquote>
 宁可错杀不放过  都是傻逼！
 
 
-
-
-
-
-
 -----
 
 ####  aliciafa  
 ##### 1214#       发表于 2015-1-22 01:09
-
-
 
 
 下集把大傻沉了剩下的观众就是忠实拥趸了吧
@@ -22547,25 +14496,13 @@ flag立满了。=
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">什么被爱感化和沉了重新捞回来有什么不一样，根本粪提做法啦
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1215#       发表于 2015-1-22 01:09
 
 
-
-
 完蛋了我还订了重装大和这是要硬喂我吃屎么
-
-
-
-
-
 
 
 -----
@@ -22574,14 +14511,7 @@ flag立满了。=
 ##### 1216#       发表于 2015-1-22 01:09
 
 
-
-
 下一話絕壁沉大傻<img src="https://static.saraba1st.com/image/smiley/face/26.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22590,13 +14520,7 @@ flag立满了。=
 ##### 1217#       发表于 2015-1-22 01:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer"> 雪风厨笑到最后
-
-
-
-
-
 
 
 -----
@@ -22605,23 +14529,15 @@ flag立满了。=
 ##### 1218#       发表于 2015-1-22 01:12
 
 
-
-
 ijn历史上第一个被米帝弄沉的就是如月
 
 那么问题来了，第三次所罗门海战过去之后就是雪风主角了？
-
-
-
-
-
 
 
 -----
 
 ####  ★ARCHER☆  
 ##### 1219#       发表于 2015-1-22 01:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844147&amp;ptid=1009008" target="_blank">dc19881121010 发表于 2015-1-22 01:08</a>
@@ -22633,27 +14549,15 @@ ijn历史上第一个被米帝弄沉的就是如月
 ”依照令咒 自爆吧 丹阳“  
 
 
-
-
-
-
-
 -----
 
 ####  dc5281  
 ##### 1220#       发表于 2015-1-22 01:13
 
 
-
-
 会不会变成待风止浪息那种展开呢！感觉比还原历史更有看头！
 
 脑洞停不下来
-
-
-
-
-
 
 
 -----
@@ -22662,16 +14566,10 @@ ijn历史上第一个被米帝弄沉的就是如月
 ##### 1221#       发表于 2015-1-22 01:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844134&amp;ptid=1009008" target="_blank">orangee 发表于 2015-1-22 01:07</a>
 
 现在游戏登场的里面应该是除了深雪以外最早沉的……所以请支持自己的本命不要出现在动画里好了 ...</blockquote>
 中间还有一批德国船
-
-
-
-
-
 
 
 -----
@@ -22680,14 +14578,7 @@ ijn历史上第一个被米帝弄沉的就是如月
 ##### 1222#       发表于 2015-1-22 01:13
 
 
-
-
 我就喜欢看大家吃屎<img src="https://static.saraba1st.com/image/smiley/normal/056.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22696,13 +14587,7 @@ ijn历史上第一个被米帝弄沉的就是如月
 ##### 1223#       发表于 2015-1-22 01:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">说如月没人气的真的捞到过如月么
-
-
-
-
-
 
 
 -----
@@ -22711,16 +14596,10 @@ ijn历史上第一个被米帝弄沉的就是如月
 ##### 1224#       发表于 2015-1-22 01:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844087&amp;ptid=1009008" target="_blank">东方永鵺抄 发表于 2015-1-22 01:01</a>
 
 这陆奥要怎么办？在司令部里突然爆炸？</blockquote>
 入渠的时候被浇了一桶诺贝尔
-
-
-
-
-
 
 
 -----
@@ -22729,16 +14608,10 @@ ijn历史上第一个被米帝弄沉的就是如月
 ##### 1225#       发表于 2015-1-22 01:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844115&amp;ptid=1009008" target="_blank">cat122802501 发表于 2015-1-22 01:04</a>
 
 那么问题来了 究竟是花田傻逼还是吉野自己加了私货</blockquote>
 这种大方向问题上怎么可能是单集脚本加的私货，大方案肯定都是脚本会议定好的。
-
-
-
-
-
 
 
 -----
@@ -22747,15 +14620,8 @@ ijn历史上第一个被米帝弄沉的就是如月
 ##### 1226#       发表于 2015-1-22 01:16
 
 
-
-
 本集感想：
 <img src="http://i.imgur.com/3vHN1ep.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22764,14 +14630,7 @@ ijn历史上第一个被米帝弄沉的就是如月
 ##### 1227#       发表于 2015-1-22 01:18
 
 
-
-
 满血沉船这是bug啊
-
-
-
-
-
 
 
 -----
@@ -22780,23 +14639,15 @@ ijn历史上第一个被米帝弄沉的就是如月
 ##### 1228#       发表于 2015-1-22 01:18
 
 
-
-
 其实我觉得敢在这种开播前已经关注度很高的动画里玩“神”展开真的需要很大的勇气（而且还是在小圆脸这么玩过之后）
 
 某种意义上还是有点佩服STAFF的，太屌
-
-
-
-
-
 
 
 -----
 
 ####  kitagawa  
 ##### 1229#       发表于 2015-1-22 01:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844134&amp;ptid=1009008" target="_blank">orangee 发表于 2015-1-22 02:07</a>
@@ -22807,25 +14658,13 @@ ijn历史上第一个被米帝弄沉的就是如月
 本命扶桑姐妹都未出现在动画里.....我已进入上帝视角....
 
 
-
-
-
-
-
 -----
 
 ####  maxwell_goblin  
 ##### 1230#       发表于 2015-1-22 01:18
 
 
-
-
 第一卷碟片CM还是大傻呢，你们第二卷就想把她弄沉啊=，=
-
-
-
-
-
 
 
 -----
@@ -22834,15 +14673,9 @@ ijn历史上第一个被米帝弄沉的就是如月
 ##### 1231#       发表于 2015-1-22 01:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
 
 你麻痹
-
-
-
-
-
 
 
 -----
@@ -22851,21 +14684,13 @@ ijn历史上第一个被米帝弄沉的就是如月
 ##### 1232#       发表于 2015-1-22 01:19
 
 
-
-
 如月沉下去了，发饰飘上来了。你们不用指望了<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  早苗面包  
 ##### 1233#       发表于 2015-1-22 01:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844144&amp;ptid=1009008" target="_blank">besta9188 发表于 2015-1-22 01:08</a>
@@ -22877,25 +14702,14 @@ ijn历史上第一个被米帝弄沉的就是如月
 不可能的，角川神经病，玩一下三话神展开的梗。FLAG插的太明显，下一话肯定，哈哈我逗你们玩的，如月带了损管。……我赌5毛
 
 
-
-
-
-
-
 -----
 
 ####  vazoe  
 ##### 1234#       发表于 2015-1-22 01:21
 
 
-
 <blockquote>v.youku.com/v_show/id_XODY4NjE1MzMy</blockquote>
 只鱼礁十几艘哪够看<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22904,14 +14718,7 @@ ijn历史上第一个被米帝弄沉的就是如月
 ##### 1235#       发表于 2015-1-22 01:22
 
 
-
-
 老提督的如月一般等级都是蛮高的 毕竟月级 吃的少 天天远征
-
-
-
-
-
 
 
 -----
@@ -22920,21 +14727,13 @@ ijn历史上第一个被米帝弄沉的就是如月
 ##### 1236#       发表于 2015-1-22 01:22
 
 
-
-
 我想了想完全史实模式肯定没法往下拍，而且大家都知道套路了也没意思，估计还是会原创+史实接合？
-
-
-
-
-
 
 
 -----
 
 ####  都谷捻柏  
 ##### 1237#       发表于 2015-1-22 01:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844116&amp;ptid=1009008" target="_blank">eden_hazard 发表于 2015-1-22 01:04</a>
@@ -22945,32 +14744,19 @@ ijn历史上第一个被米帝弄沉的就是如月
 借地问一下，2ch是不是需要翻墙？
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 1238#       发表于 2015-1-22 01:24
 
 
-
-
 完全史实就是全程被辗
-
-
-
-
-
 
 
 -----
 
 ####  kitagawa  
 ##### 1239#       发表于 2015-1-22 01:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844182&amp;ptid=1009008" target="_blank">aliciafa 发表于 2015-1-22 02:14</a>
@@ -22981,27 +14767,15 @@ ijn历史上第一个被米帝弄沉的就是如月
 「みてみて～、この輝く肌。あはっ、もっと近くで見てよ」完全就是小薄本般的台词w
 
 
-
-
-
-
-
 -----
 
 ####  maxwell_goblin  
 ##### 1240#       发表于 2015-1-22 01:24
 
 
-
-
 损管是在舰娘轰沉画面后发动的
 
 要是动画真玩这个梗就寄刀片
-
-
-
-
-
 
 
 -----
@@ -23010,21 +14784,13 @@ ijn历史上第一个被米帝弄沉的就是如月
 ##### 1241#       发表于 2015-1-22 01:25
 
 
-
-
 马上睦月就要捡到如月的发饰了<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  eden_hazard  
 ##### 1242#       发表于 2015-1-22 01:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844134&amp;ptid=1009008" target="_blank">orangee 发表于 2015-1-22 01:07</a>
@@ -23035,16 +14801,10 @@ ijn历史上第一个被米帝弄沉的就是如月
 本命是小天使的表示哈鲁纳带胶布迪斯
 
 
-
-
-
-
-
 -----
 
 ####  Inle  
 ##### 1243#       发表于 2015-1-22 01:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844265&amp;ptid=1009008" target="_blank">eva02eva02 发表于 2015-1-22 01:25</a>
@@ -23053,25 +14813,14 @@ ijn历史上第一个被米帝弄沉的就是如月
 难怪这集安排弥生出场，原来还有一手
 
 
-
-
-
-
-
 -----
 
 ####  gary76  
 ##### 1244#       发表于 2015-1-22 01:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844086&amp;ptid=1009008" target="_blank">dc19881121010 发表于 2015-1-22 01:01</a></blockquote>
 這是藥丸！！！藥丸啊！！給我藥！！！給我藥！！！
-
-
-
-
-
 
 
 -----
@@ -23080,13 +14829,7 @@ ijn历史上第一个被米帝弄沉的就是如月
 ##### 1245#       发表于 2015-1-22 01:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer"> 反正根据某群截图 大和是要沉得的所以估计按时间顺序的话最少要沉一大半吧。。。
-
-
-
-
-
 
 
 -----
@@ -23095,16 +14838,10 @@ ijn历史上第一个被米帝弄沉的就是如月
 ##### 1246#       发表于 2015-1-22 01:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844030&amp;ptid=1009008" target="_blank">jacklibran 发表于 2015-1-22 00:54</a>
 
 我觉得花田大先生完全写得出如月变成深海后又被爱感化重回舰队的“王道”剧情 ...</blockquote>
 这是吉野的领域
-
-
-
-
-
 
 
 -----
@@ -23113,14 +14850,7 @@ ijn历史上第一个被米帝弄沉的就是如月
 ##### 1247#       发表于 2015-1-22 01:31
 
 
-
-
 本话差评 1、如月轰沉    2、离岛没出场，随便上了几个杂鱼就打发了<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23129,17 +14859,10 @@ ijn历史上第一个被米帝弄沉的就是如月
 ##### 1248#       发表于 2015-1-22 01:31
 
 
-
-
 还原历史？原来你pon历史中的船都会说话
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -23148,20 +14871,13 @@ ijn历史上第一个被米帝弄沉的就是如月
 ##### 1249#       发表于 2015-1-22 01:32
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">我还是不想看沉船了    给我回归日常！！！！
-
-
-
-
-
 
 
 -----
 
 ####  eden_hazard  
 ##### 1250#       发表于 2015-1-22 01:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844257&amp;ptid=1009008" target="_blank">都谷捻柏 发表于 2015-1-22 01:23</a>
@@ -23176,16 +14892,10 @@ ijn历史上第一个被米帝弄沉的就是如月
 2ch我没怎么去过不清楚，不过从这贴来看[http://bbs.saraba1st.com/2b/thread-1089114-1-1.html](http://bbs.saraba1st.com/2b/thread-1089114-1-1.html)据说在日本也不怎么稳定，可能要双重代理才行
 
 
-
-
-
-
-
 -----
 
 ####  少女人形  
 ##### 1251#       发表于 2015-1-22 01:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844285&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-22 01:29</a>
@@ -23194,25 +14904,13 @@ ijn历史上第一个被米帝弄沉的就是如月
 那个小组画卡分镜外包给国人的笑话看看就好
 
 
-
-
-
-
-
 -----
 
 ####  舞园さやか  
 ##### 1252#       发表于 2015-1-22 01:34
 
 
-
-
 这一口被强喂的粪导致的冲击太大，咱都没闲情去prpr这话里睡觉抢走电酱枕头的雷酱了
-
-
-
-
-
 
 
 -----
@@ -23221,13 +14919,7 @@ ijn历史上第一个被米帝弄沉的就是如月
 ##### 1253#       发表于 2015-1-22 01:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/26.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23236,22 +14928,15 @@ ijn历史上第一个被米帝弄沉的就是如月
 ##### 1254#       发表于 2015-1-22 01:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">麻花藤有一句名言，咳咳，你们都懂的
 
 下一话肯定他妈的是应急修理要员发动= =
-
-
-
-
-
 
 
 -----
 
 ####  kitagawa  
 ##### 1255#       发表于 2015-1-22 01:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844265&amp;ptid=1009008" target="_blank">eva02eva02 发表于 2015-1-22 02:25</a>
@@ -23262,26 +14947,13 @@ ijn历史上第一个被米帝弄沉的就是如月
 沉船不可避<img src="https://static.saraba1st.com/image/smiley/normal/028.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  土旦克007  
 ##### 1256#       发表于 2015-1-22 01:38
 
 
-
-
 角川还打算下月开新活动吸引新人入坑呢，现在搞成这样，如果下集不反转，怎么吸引新人？？？？？？？
-
-
-
-
-
 
 
 -----
@@ -23290,14 +14962,7 @@ ijn历史上第一个被米帝弄沉的就是如月
 ##### 1257#       发表于 2015-1-22 01:38
 
 
-
-
 错过了……哪里能看到生肉？多谢
-
-
-
-
-
 
 
 -----
@@ -23306,16 +14971,10 @@ ijn历史上第一个被米帝弄沉的就是如月
 ##### 1258#       发表于 2015-1-22 01:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844303&amp;ptid=1009008" target="_blank">少女人形 发表于 2015-1-22 01:33</a>
 
 那个小组画卡分镜外包给国人的笑话看看就好</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">鉴于Mf女王崩坏前车之鉴，能不能当笑话只有看到最后才能确定啊。。。 希望是笑话吧
-
-
-
-
-
 
 
 -----
@@ -23324,16 +14983,10 @@ ijn历史上第一个被米帝弄沉的就是如月
 ##### 1259#       发表于 2015-1-22 01:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844326&amp;ptid=1009008" target="_blank">碳. 发表于 2015-1-22 01:38</a>
 
 错过了……哪里能看到生肉？多谢</blockquote>
 [http://himado.in/256075](http://himado.in/256075)
-
-
-
-
-
 
 
 -----
@@ -23342,23 +14995,15 @@ ijn历史上第一个被米帝弄沉的就是如月
 ##### 1260#       发表于 2015-1-22 01:40
 
 
-
-
 大晚上就别看生肉了，我是已经睡不着了
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (NOKIA Lumia 526)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
 
 ####  Prolun  
 ##### 1261#       发表于 2015-1-22 01:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=27844326&amp;amp;ptid=1009008" target="_blank">碳. 发表于 2015-1-22 01:38</a>
@@ -23369,16 +15014,10 @@ NGA上有人录了斗鱼源
 ——— 来自[Stage1st Reader For iOS](http://itunes.apple.com/us/app/stage1st-reader/id509916119?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  碳.  
 ##### 1262#       发表于 2015-1-22 01:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844335&amp;ptid=1009008" target="_blank">besta9188 发表于 2015-1-22 01:40</a>
@@ -23389,25 +15028,13 @@ NGA上有人录了斗鱼源
 不玩舰娘所以不担心2333
 
 
-
-
-
-
-
 -----
 
 ####  459677298  
 ##### 1263#       发表于 2015-1-22 01:42
 
 
-
-
 反法西斯战争胜利70周年献礼大作
-
-
-
-
-
 
 
 -----
@@ -23416,19 +15043,11 @@ NGA上有人录了斗鱼源
 ##### 1264#       发表于 2015-1-22 01:43
 
 
-
-
 K岛看到的
-
-
-
-
 
 
 1421861557467.jpg
 (155.29 KB, 下载次数: 21)
-
-
 
 
 下载附件
@@ -23437,31 +15056,13 @@ K岛看到的
 2015-1-22 01:42 上传
 
 
-
-
-
-
-
-
-
 <img src="http://img.saraba1st.com/forum/201501/22/014245rzwq5ibs7fx59xx3.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  碳.  
 ##### 1265#       发表于 2015-1-22 01:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844341&amp;ptid=1009008" target="_blank">Prolun 发表于 2015-1-22 01:40</a>
@@ -23472,16 +15073,10 @@ NGA上有人录了斗鱼源</blockquote>
 谢谢，直接从楼上的向日葵看了
 
 
-
-
-
-
-
 -----
 
 ####  wsotaku  
 ##### 1266#       发表于 2015-1-22 01:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844350&amp;ptid=1009008" target="_blank">459677298 发表于 2015-1-22 01:42</a>
@@ -23490,25 +15085,13 @@ NGA上有人录了斗鱼源</blockquote>
 好顶转！
 
 
-
-
-
-
-
 -----
 
 ####  lanslort  
 ##### 1267#       发表于 2015-1-22 01:44
 
 
-
-
 之后会不会有大破了然后为了不变成深海栖舰吃友军鱼雷处分的情节<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23517,16 +15100,10 @@ NGA上有人录了斗鱼源</blockquote>
 ##### 1268#       发表于 2015-1-22 01:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844356&amp;ptid=1009008" target="_blank">stage4th 发表于 2015-1-22 01:43</a>
 
 K岛看到的</blockquote>
 這個擺明假的
-
-
-
-
-
 
 
 -----
@@ -23535,14 +15112,7 @@ K岛看到的</blockquote>
 ##### 1269#       发表于 2015-1-22 01:45
 
 
-
-
 要沉你就全都沉了，最后留下长门走向核爆区我就不黑了
-
-
-
-
-
 
 
 -----
@@ -23551,23 +15121,15 @@ K岛看到的</blockquote>
 ##### 1270#       发表于 2015-1-22 01:46
 
 
-
-
 @stage4th
 
 天龙出场了？我忘记了.....还是说今后会出场....<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer"> 
-
-
-
-
-
 
 
 -----
 
 ####  ynkpd  
 ##### 1271#       发表于 2015-1-22 01:46
-
 
 
  本帖最后由 ynkpd 于 2015-1-22 01:48 编辑 
@@ -23581,26 +15143,13 @@ K岛看到的</blockquote>
 天龙至少到现在第三话为止完全没出场……
 
 
-
-
-
-
-
-
 -----
 
 ####  127702  
 ##### 1272#       发表于 2015-1-22 01:48
 
 
-
-
 周五是如月二改啦，一切都是DMM的阴谋
-
-
-
-
-
 
 
 -----
@@ -23609,14 +15158,8 @@ K岛看到的</blockquote>
 ##### 1273#       发表于 2015-1-22 01:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">我不看了
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23625,15 +15168,9 @@ K岛看到的</blockquote>
 ##### 1274#       发表于 2015-1-22 01:49
 
 
-
 <blockquote>俾斯麥 发表于 2015-1-22 01:45
 要沉你就全都沉了，最后留下长门走向核爆区我就不黑了</blockquote>
 别管长门了，你看见天边的那架剑鱼了吗233
-
-
-
-
-
 
 
 -----
@@ -23642,17 +15179,10 @@ K岛看到的</blockquote>
 ##### 1275#       发表于 2015-1-22 01:49
 
 
-
-
 半夜楼炸了<img src="https://static.saraba1st.com/image/smiley/face/74.gif" referrerpolicy="no-referrer">
 
 
 不过这也难怪，本来好好当喝茶片喝茶，发现里面被强喂那啥了啊<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23661,16 +15191,10 @@ K岛看到的</blockquote>
 ##### 1276#       发表于 2015-1-22 01:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844356&amp;ptid=1009008" target="_blank">stage4th 发表于 2015-1-22 01:43</a>
 
 K岛看到的</blockquote>
 这是P站上的同人啦。
-
-
-
-
-
 
 
 -----
@@ -23679,13 +15203,7 @@ K岛看到的</blockquote>
 ##### 1277#       发表于 2015-1-22 01:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">按顺序的话 吃喝组活不过3话了，，，
-
-
-
-
-
 
 
 -----
@@ -23694,16 +15212,10 @@ K岛看到的</blockquote>
 ##### 1278#       发表于 2015-1-22 01:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844367&amp;ptid=1009008" target="_blank">俾斯麥 发表于 2015-1-22 01:45</a>
 
 要沉你就全都沉了，最后留下长门走向核爆区我就不黑了</blockquote>
 你妹妹还不是一样陪着吃核弹……
-
-
-
-
-
 
 
 -----
@@ -23712,21 +15224,13 @@ K岛看到的</blockquote>
 ##### 1279#       发表于 2015-1-22 01:53
 
 
-
-
 一路沉下去 纪念反法西斯战争<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  sinmean  
 ##### 1280#       发表于 2015-1-22 01:55
-
 
 
 [http://www.pixiv.net/member_illu ... ;illust_id=48037943](http://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=48037943)
@@ -23736,24 +15240,13 @@ K岛看到的</blockquote>
 。。。这一集真是太屎了
 
 
-
-
-
-
-
 -----
 
 ####  samq  
 ##### 1281#       发表于 2015-1-22 01:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">是不是强行弄爆炸性话题？
-
-
-
-
-
 
 
 -----
@@ -23762,21 +15255,13 @@ K岛看到的</blockquote>
 ##### 1282#       发表于 2015-1-22 02:00
 
 
-
-
 booooooooooooooooooooom！！！！！！！
-
-
-
-
-
 
 
 -----
 
 ####  都谷捻柏  
 ##### 1283#       发表于 2015-1-22 02:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844301&amp;ptid=1009008" target="_blank">eden_hazard 发表于 2015-1-22 01:33</a>
@@ -23787,17 +15272,10 @@ booooooooooooooooooooom！！！！！！！
 非常感谢，问题已解决
 
 
-
-
-
-
-
 -----
 
 ####  posthoc  
 ##### 1284#       发表于 2015-1-22 02:01
-
-
 
 
 响爷命硬，从云不出场，个人来说已经没有什么好怕的了
@@ -23806,26 +15284,15 @@ booooooooooooooooooooom！！！！！！！
 这话音监表现不错啊，分镜、演出也流畅，没有前两集的冷场感觉。
 
 
-
-
-
-
-
 -----
 
 ####  碳.  
 ##### 1285#       发表于 2015-1-22 02:04
 
 
-
 <blockquote>俾斯麥 发表于 2015-1-22 01:45
 要沉你就全都沉了，最后留下长门走向核爆区我就不黑了</blockquote>
 雪风不担心2333
-
-
-
-
-
 
 
 -----
@@ -23834,18 +15301,10 @@ booooooooooooooooooooom！！！！！！！
 ##### 1286#       发表于 2015-1-22 02:05
 
 
-
 [http://www.nicovideo.jp/watch/sm24827191](http://www.nicovideo.jp/watch/sm24827191)
 
 
 Band of Kancolle OP
-
-
-
-
-
-
-
 
 
 -----
@@ -23854,16 +15313,10 @@ Band of Kancolle OP
 ##### 1287#       发表于 2015-1-22 02:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844450&amp;ptid=1009008" target="_blank">碳. 发表于 2015-1-22 02:04</a>
 
 雪风不担心2333</blockquote>
 雪风变成了只会说娘希匹的船<img src="https://static.saraba1st.com/image/smiley/face/170.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23872,15 +15325,9 @@ Band of Kancolle OP
 ##### 1288#       发表于 2015-1-22 02:06
 
 
-
 <blockquote>革新 发表于 2015-1-22 01:50
 按顺序的话 吃喝组活不过3话了，，，</blockquote>
 难道op一闪那个画面要成真。。
-
-
-
-
-
 
 
 -----
@@ -23889,16 +15336,9 @@ Band of Kancolle OP
 ##### 1289#       发表于 2015-1-22 02:07
 
 
-
-
 哈哈哈，看个热闹
 
 论坛和推特的反应都好好玩<img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23907,13 +15347,7 @@ Band of Kancolle OP
 ##### 1290#       发表于 2015-1-22 02:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer"> 2ch和k岛那边是不是也炸锅了？  他们是高呼神作还是要寄刀弃番那个更多？ 
-
-
-
-
-
 
 
 -----
@@ -23922,14 +15356,7 @@ Band of Kancolle OP
 ##### 1291#       发表于 2015-1-22 02:09
 
 
-
-
 叢雲有天叢雲劍的吧<img src="https://static.saraba1st.com/image/smiley/face/26.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23938,14 +15365,7 @@ Band of Kancolle OP
 ##### 1292#       发表于 2015-1-22 02:10
 
 
-
-
 原来四年前的今天正好是小圆第三集？<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23954,16 +15374,10 @@ Band of Kancolle OP
 ##### 1293#       发表于 2015-1-22 02:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844379&amp;ptid=1009008" target="_blank">ramiel 发表于 2015-1-22 01:49</a>
 
 别管长门了，你看见天边的那架剑鱼了吗233</blockquote>
 我肯定没出场机会的
-
-
-
-
-
 
 
 -----
@@ -23972,21 +15386,13 @@ Band of Kancolle OP
 ##### 1294#       发表于 2015-1-22 02:12
 
 
-
-
 坐等poi索罗门海战红眼模式爆种大杀特杀，然后轰沉.....药！我还要更多的药！
-
-
-
-
-
 
 
 -----
 
 ####  俾斯麥  
 ##### 1295#       发表于 2015-1-22 02:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844388&amp;ptid=1009008" target="_blank">maxwell_goblin 发表于 2015-1-22 01:51</a>
@@ -23997,16 +15403,10 @@ Band of Kancolle OP
 这样也可以，那孩子至少没见识过真正的惨烈就逝去，没那么多痛苦
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 1296#       发表于 2015-1-22 02:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844469&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-22 02:09</a>
@@ -24018,25 +15418,13 @@ Band of Kancolle OP
 感覺其實不太滿意的樣子
 
 
-
-
-
-
-
 -----
 
 ####  posthoc  
 ##### 1297#       发表于 2015-1-22 02:16
 
 
-
-
 讲真抛开剧情不谈这集比前两集好看得多，最后夕阳下奔跑的睦月那段完成度真高，goodbye切到睦月的脸特写看得心里暖洋洋的<img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24045,14 +15433,7 @@ Band of Kancolle OP
 ##### 1298#       发表于 2015-1-22 02:17
 
 
-
-
 不是说好的3成战斗7成喝茶吗 搞了半天3成战斗就是各种沉船
-
-
-
-
-
 
 
 -----
@@ -24061,16 +15442,10 @@ Band of Kancolle OP
 ##### 1299#       发表于 2015-1-22 02:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844502&amp;ptid=1009008" target="_blank">posthoc 发表于 2015-1-22 02:16</a>
 
 讲真抛开剧情不谈这集比前两集好看得多，最后夕阳下奔跑的睦月那段完成度真高，goodbye切到睦月的脸特写看 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">沉船的方式实在太傻，当然看了如果真是还原历史的黑色幽默，这集质量确实比第二集高。
-
-
-
-
-
 
 
 -----
@@ -24079,24 +15454,16 @@ Band of Kancolle OP
 ##### 1300#       发表于 2015-1-22 02:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844303&amp;ptid=1009008" target="_blank">少女人形 发表于 2015-1-22 01:33</a>
 
 那个小组画卡分镜外包给国人的笑话看看就好</blockquote>
 求头像出处
 
 
-
-
-
-
-
 -----
 
 ####  敷波  
 ##### 1301#       发表于 2015-1-22 02:28
-
-
 
 
 首先感叹一下，一艘二战时期的日本军舰沉了，引来战胜国的宅们一片哀鸿遍野，鬼子们的洗脑功力真不是盖的
@@ -24116,16 +15483,10 @@ Band of Kancolle OP
 不过本人是早就决定这话如月沉了就扔片的 所以后面发生什么也关系不大了
 
 
-
-
-
-
-
 -----
 
 ####  posthoc  
 ##### 1302#       发表于 2015-1-22 02:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844516&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-21 10:20</a>
@@ -24134,27 +15495,15 @@ Band of Kancolle OP
 这种先辈角色会老马不是定番吗，真的正面打不过挂掉反而掉价
 
 
-
-
-
-
-
 -----
 
 ####  敷波  
 ##### 1303#       发表于 2015-1-22 02:30
 
 
-
-
 最后鉴于上面说的原因 这个戏服转让 毕竟戏服里面的提督已经afk几个月了 估计不会再有啥用这个戏服发言的机会了
 
 有意者请PM
-
-
-
-
-
 
 
 -----
@@ -24163,16 +15512,10 @@ Band of Kancolle OP
 ##### 1304#       发表于 2015-1-22 02:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844552&amp;ptid=1009008" target="_blank">posthoc 发表于 2015-1-22 02:30</a>
 
 这种先辈角色会老马不是定番吗，真的正面打不过挂掉反而掉价</blockquote>
 打不过可以把锅甩给提督排兵布阵失格， 我方大胜情况下自己老马被干掉时髦跌为负.......... 锅没得甩
-
-
-
-
-
 
 
 -----
@@ -24181,23 +15524,16 @@ Band of Kancolle OP
 ##### 1305#       发表于 2015-1-22 02:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844469&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-22 02:09</a>
 
 2ch和k岛那边是不是也炸锅了？  他们是高呼神作还是要寄刀弃番那个更多？  ...</blockquote>
 看了下钓鱼的肥宅比较多<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Futanari  
 ##### 1306#       发表于 2015-1-22 02:42
-
 
 
  本帖最后由 Futanari 于 2015-1-22 02:54 编辑 
@@ -24207,16 +15543,10 @@ Band of Kancolle OP
 不过我觉得之后会发展成如月变深海舰娘发展吧。
 
 
-
-
-
-
-
 -----
 
 ####  碳.  
 ##### 1307#       发表于 2015-1-22 02:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27843979&amp;ptid=1009008" target="_blank">露娜玛利亚 发表于 2015-1-22 00:48</a>
@@ -24225,17 +15555,10 @@ Band of Kancolle OP
 友奈OP一出就知道病得不轻……这片可没预兆啊
 
 
-
-
-
-
-
 -----
 
 ####  maxwell_goblin  
 ##### 1308#       发表于 2015-1-22 03:01
-
-
 
 
 腰不粗的高雄，放水侦，水侦妖精那么萌都没人看，都是这大新闻搞的
@@ -24254,24 +15577,13 @@ Band of Kancolle OP
 如月的评论是被刷暴了吗，居然被关闭了……
 
 
-
-
-
-
-
 -----
 
 ####  20024jok  
 ##### 1309#       发表于 2015-1-22 03:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">三集沉船其集删号
-
-
-
-
-
 
 
 -----
@@ -24280,14 +15592,7 @@ Band of Kancolle OP
 ##### 1310#       发表于 2015-1-22 03:27
 
 
-
-
 都说了是3成（沉）战斗……第三集沉船的战斗
-
-
-
-
-
 
 
 -----
@@ -24296,22 +15601,15 @@ Band of Kancolle OP
 ##### 1311#       发表于 2015-1-22 03:31
 
 
-
  本帖最后由 D-JoeII 于 2015-1-22 03:33 编辑 
 
 從日本反應來看似乎起了反效果,制作組應該要想想這不是原創片啊,而且別說大破,如月這集連中破都沒有吧
-
-
-
-
-
 
 
 -----
 
 ####  舞园さやか  
 ##### 1312#       发表于 2015-1-22 03:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844603&amp;ptid=1009008" target="_blank">碳. 发表于 2015-1-22 02:52</a>
@@ -24329,17 +15627,10 @@ Band of Kancolle OP
  败北，水底，沉眠”
 
 
-
-
-
-
-
 -----
 
 ####  hurtwind  
 ##### 1313#       发表于 2015-1-22 03:44
-
-
 
 
 毫无征兆啊
@@ -24355,13 +15646,7 @@ Band of Kancolle OP
 “你我都知道那已经不是原来的她了”
 
 
-
 还有我很喜欢这只吹雪不是第一只的脑洞啊
-
-
-
-
-
 
 
 -----
@@ -24370,17 +15655,10 @@ Band of Kancolle OP
 ##### 1314#       发表于 2015-1-22 04:03
 
 
-
-
 真这么一路走史实线，下一话小姨子拖着重伤的太太回来，再下一话赤贺双龙全得沉。问题是主角也撑不了几集，所罗门那里就跪了，后面主角换雪风？
 
 
 ----发送自 [HUAWEI H60-L01,Android 4.4.2](http://stage1.5j4m.com/?1.15)
-
-
-
-
-
 
 
 -----
@@ -24389,16 +15667,9 @@ Band of Kancolle OP
 ##### 1315#       发表于 2015-1-22 04:07
 
 
-
-
 日本终战仅14船存活
 
 这真按史实里这动画后面没几个角色可以画了
-
-
-
-
-
 
 
 -----
@@ -24407,16 +15678,9 @@ Band of Kancolle OP
 ##### 1316#       发表于 2015-1-22 04:35
 
 
-
-
 别看响爷话不多
 
 欠雷死了就是响爷是主角
-
-
-
-
-
 
 
 -----
@@ -24425,14 +15689,7 @@ Band of Kancolle OP
 ##### 1317#       发表于 2015-1-22 04:56
 
 
-
-
 写剧本的人出来，保证不打死你
-
-
-
-
-
 
 
 -----
@@ -24441,21 +15698,13 @@ Band of Kancolle OP
 ##### 1318#       发表于 2015-1-22 04:58
 
 
-
-
 其实很多人都想看大破和沉船什么样吧，楼里人就不少。
-
-
-
-
-
 
 
 -----
 
 ####  Archlich  
 ##### 1319#       发表于 2015-1-22 05:06
-
 
 
  本帖最后由 Archlich 于 2015-1-22 05:14 编辑 
@@ -24466,32 +15715,19 @@ Band of Kancolle OP
 死不见尸，小心打脸……
 
 
-
-
-
-
-
 -----
 
 ####  おつの  
 ##### 1320#       发表于 2015-1-22 05:07
 
 
-
-
 我可以弃片了 = =
-
-
-
-
-
 
 
 -----
 
 ####  kerorokun  
 ##### 1321#       发表于 2015-1-22 05:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844787&amp;ptid=1009008" target="_blank">Archlich 发表于 2015-1-22 05:06</a>
@@ -24503,16 +15739,10 @@ Band of Kancolle OP
 放弃搜索了，所以算MIA了吧。。。。一般MIA了除非有黄大和这种。。。不然都是KIA了- -
 
 
-
-
-
-
-
 -----
 
 ####  Archlich  
 ##### 1322#       发表于 2015-1-22 05:32
-
 
 
  本帖最后由 Archlich 于 2015-1-22 05:35 编辑 
@@ -24523,17 +15753,10 @@ Band of Kancolle OP
 我虽不懂舰，却也要劝各位舰友一句：如月赶紧练起来，小心突然开改二！
 
 
-
-
-
-
-
 -----
 
 ####  飞霞精灵  
 ##### 1323#       发表于 2015-1-22 05:39
-
-
 
 
 虽然不能排除吐便当或者深海化之后救回来的可能性，
@@ -24544,16 +15767,10 @@ Band of Kancolle OP
 不是死了人观众就能买账喊神作的。
 
 
-
-
-
-
-
 -----
 
 ####  碳.  
 ##### 1324#       发表于 2015-1-22 05:39
-
 
 
 <blockquote>舞园さやか 发表于 2015-1-22 03:43
@@ -24565,16 +15782,10 @@ Band of Kancolle OP
 不像，曲调太积极了这段
 
 
-
-
-
-
-
 -----
 
 ####  十五式試作艦戦  
 ##### 1325#       发表于 2015-1-22 05:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844697&amp;ptid=1009008" target="_blank">舞园さやか 发表于 2015-1-22 03:43</a>
@@ -24589,17 +15800,10 @@ Band of Kancolle OP
 不过那时候也就想着撑死烧酒战车一类，从鶸到王牌的成长日记式“正剧”而已。。。。
 
 
-
-
-
-
-
-
 -----
 
 ####  反击的马沙  
 ##### 1326#       发表于 2015-1-22 05:59
-
 
 
 <blockquote>引用第1250楼stage4th于2015-01-22 01:32发表的  :
@@ -24613,16 +15817,10 @@ Band of Kancolle OP
 ----发送自 [Sony L50t,Android 4.4.2](http://stage1.5j4m.com/?1.17) 
 
 
-
-
-
-
-
 -----
 
 ####  十五式試作艦戦  
 ##### 1327#       发表于 2015-1-22 06:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844787&amp;ptid=1009008" target="_blank">Archlich 发表于 2015-1-22 05:06</a>
@@ -24637,32 +15835,19 @@ Band of Kancolle OP
 最好的发展也就是如月变深海栖舰，然后“一定把伙伴带回来”的王道展开，第二次再遭遇战时强制洗白————被这种己方尸变后再ntr的桥段虐一遍，与其说这是药倒不如说这才是恶意最大化的体现。。。
 
 
-
-
-
-
-
 -----
 
 ####  ccloli  
 ##### 1328#       发表于 2015-1-22 06:15
 
 
-
-
 哈哈哈真炸了，还炸沉了……
-
-
-
-
-
 
 
 -----
 
 ####  十五式試作艦戦  
 ##### 1329#       发表于 2015-1-22 06:26
-
 
 
  本帖最后由 十五式試作艦戦 于 2015-1-22 06:29 编辑 
@@ -24681,26 +15866,13 @@ Band of Kancolle OP
 弄成现在这个两头不讨好的样子，除了死它扶专门喂翔想搞恶意炒作想不出什么理由
 
 
-
-
-
-
-
-
 -----
 
 ####  posthoc  
 ##### 1330#       发表于 2015-1-22 06:37
 
 
-
-
 损管还是有可能的，虽然游戏里是自动发动但是动画有个表现方式的问题，指不定下周就有几只妖精带着破破烂烂的如月游上来。到时候你们这些骂粪提的都得给这位给小学生课损管的绅士谢罪。
-
-
-
-
-
 
 
 -----
@@ -24709,13 +15881,7 @@ Band of Kancolle OP
 ##### 1331#       发表于 2015-1-22 06:47
 
 
-
 <img src="http://ww3.sinaimg.cn/large/8252a54ejw1eohwtbmyv3j20ga1qggwg.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24724,21 +15890,13 @@ Band of Kancolle OP
 ##### 1332#       发表于 2015-1-22 06:47
 
 
-
-
 给小学生上损管不是很正常吗，首先你在打32的时候能获得5个损管（略
-
-
-
-
-
 
 
 -----
 
 ####  飞霞精灵  
 ##### 1333#       发表于 2015-1-22 06:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844847&amp;ptid=1009008" target="_blank">十五式試作艦戦 发表于 2015-1-22 06:26</a>
@@ -24756,16 +15914,10 @@ Band of Kancolle OP
 到时候真BD暴死就太好玩了。
 
 
-
-
-
-
-
 -----
 
 ####  反击的马沙  
 ##### 1334#       发表于 2015-1-22 06:50
-
 
 
 <blockquote>引用第1332楼三根皮带于2015-01-22 06:47发表的  :</blockquote>
@@ -24777,25 +15929,13 @@ Band of Kancolle OP
 ----发送自 [Sony L50t,Android 4.4.2](http://stage1.5j4m.com/?1.17) 
 
 
-
-
-
-
-
 -----
 
 ####  Flamma  
 ##### 1335#       发表于 2015-1-22 06:50
 
 
-
-
 喂人吃屎的排行榜上 吉野当第一已经无悬念了吧
-
-
-
-
-
 
 
 -----
@@ -24804,16 +15944,10 @@ Band of Kancolle OP
 ##### 1336#       发表于 2015-1-22 06:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27843979&amp;ptid=1009008" target="_blank">露娜玛利亚 发表于 2015-1-22 00:48</a>
 
 卧槽这风向，我特么的只是想看个喝茶片而已，结果友奈跟舰女人都这么搞…… ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/111.gif" referrerpolicy="no-referrer">友奈OP这么病，居然没打预防针吗？
-
-
-
-
-
 
 
 -----
@@ -24822,14 +15956,7 @@ Band of Kancolle OP
 ##### 1337#       发表于 2015-1-22 06:58
 
 
-
-
 这片子你要么全程卖萌，要么走史实，完喽.....bd销量完蛋了
-
-
-
-
-
 
 
 -----
@@ -24838,16 +15965,10 @@ Band of Kancolle OP
 ##### 1338#       发表于 2015-1-22 07:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844907&amp;ptid=1009008" target="_blank">storm 发表于 2015-1-22 06:58</a>
 
 这片子你要么全程卖萌，要么走史实，完喽.....bd销量完蛋了</blockquote>
 现在不是虐妹子越多BD卖的越好么
-
-
-
-
-
 
 
 -----
@@ -24856,14 +15977,7 @@ Band of Kancolle OP
 ##### 1339#       发表于 2015-1-22 07:03
 
 
-
-
 “上一次中国提督这么想干掉吉野还是甲午海战” ——by 微博某提督
-
-
-
-
-
 
 
 -----
@@ -24872,23 +15986,15 @@ Band of Kancolle OP
 ##### 1340#       发表于 2015-1-22 07:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">OP的歌词就不像一个日常喝茶片会用的
 
 <img src="https://static.saraba1st.com/image/smiley/face/09.gif" referrerpolicy="no-referrer">只是没想到便当发的如此强行
-
-
-
-
-
 
 
 -----
 
 ####  posthoc  
 ##### 1341#       发表于 2015-1-22 07:41
-
-
 
 
 总之还是祭奠一下
@@ -24900,25 +16006,13 @@ Band of Kancolle OP
 （[reddit](http://www.reddit.com/r/anime/comments/2t727a/spoilers_kantai_collection_kancolle_episode_3) ）
 
 
-
-
-
-
-
 -----
 
 ####  lzh1993  
 ##### 1342#       发表于 2015-1-22 07:50
 
 
-
-
 娇喘你妈飞了 弃了
-
-
-
-
-
 
 
 -----
@@ -24927,14 +16021,7 @@ Band of Kancolle OP
 ##### 1343#       发表于 2015-1-22 08:29
 
 
-
-
 以后绫波沉了再造回来可以用“我是第三艘”的梗了
-
-
-
-
-
 
 
 -----
@@ -24943,14 +16030,7 @@ Band of Kancolle OP
 ##### 1344#       发表于 2015-1-22 08:47
 
 
-
-
 除了吃的多一些外，赤城还是一副女神样 + 人生导师的形象
-
-
-
-
-
 
 
 -----
@@ -24959,21 +16039,13 @@ Band of Kancolle OP
 ##### 1345#       发表于 2015-1-22 08:50
 
 
-
-
 我说一觉醒来怎么漫区发帖又超外野了<img src="https://static.saraba1st.com/image/smiley/nq/001.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  YMS16M  
 ##### 1346#       发表于 2015-1-22 08:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844890&amp;ptid=1009008" target="_blank">飞霞精灵 发表于 2015-1-22 06:48</a>
@@ -24990,25 +16062,13 @@ Band of Kancolle OP
 或者说恶意一点我们决定在BD里送改二如月如何？
 
 
-
-
-
-
-
 -----
 
 ####  angelooo  
 ##### 1347#       发表于 2015-1-22 08:57
 
 
-
-
 我是说过剧情无所谓，结果你给我看这个？！看如月最后的镜头，要是一直找不回来的话深海化不可避了吧
-
-
-
-
-
 
 
 -----
@@ -25017,17 +16077,10 @@ Band of Kancolle OP
 ##### 1348#       发表于 2015-1-22 08:57
 
 
-
-
 我操  不是说好的 吃饭练级洗澡澡 开心的打小怪升级吗  
 
 
 怎么沉船了 <img src="https://static.saraba1st.com/image/smiley/face/74.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25036,14 +16089,7 @@ Band of Kancolle OP
 ##### 1349#       发表于 2015-1-22 08:58
 
 
-
-
 你国提督真是玻璃心 ，事已至此，你吃不吃，药都在那里…
-
-
-
-
-
 
 
 -----
@@ -25052,14 +16098,7 @@ Band of Kancolle OP
 ##### 1350#       发表于 2015-1-22 09:06
 
 
-
-
 哈哈哈，开播前我就说过走史实我就败十套，太爽快啦
-
-
-
-
-
 
 
 -----
@@ -25068,17 +16107,10 @@ Band of Kancolle OP
 ##### 1351#       发表于 2015-1-22 09:06
 
 
-
-
 总感觉官方不会玩的这么high的
 
 
 下话捞上来/深海化预感
-
-
-
-
-
 
 
 -----
@@ -25087,14 +16119,7 @@ Band of Kancolle OP
 ##### 1352#       发表于 2015-1-22 09:06
 
 
-
-
 突然理解了秘书艦是长门的用意
-
-
-
-
-
 
 
 -----
@@ -25103,14 +16128,7 @@ Band of Kancolle OP
 ##### 1353#       发表于 2015-1-22 09:06
 
 
-
-
 突然理解了秘书艦是长门的用意
-
-
-
-
-
 
 
 -----
@@ -25119,24 +16137,16 @@ Band of Kancolle OP
 ##### 1354#       发表于 2015-1-22 09:07
 
 
-
-
 总感觉官方不会玩的这么high的
 
 
 下话捞上来/深海化预感
 
 
-
-
-
-
-
 -----
 
 ####  warlock228  
 ##### 1355#       发表于 2015-1-22 09:10
-
 
 
 <blockquote>引用第1350楼武蔵于2015-01-22 08:58发表的  :
@@ -25149,17 +16159,10 @@ Band of Kancolle OP
 ----发送自 [Xiaomi MI 4LTE,Android 4.4.4](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  rodineye  
 ##### 1356#       发表于 2015-1-22 09:12
-
-
 
 
 如月这莫名其妙的仗打完了给暗算死，staff在想什么呀
@@ -25169,16 +16172,10 @@ Band of Kancolle OP
 就算是俗套的姐姐救妹妹被击沉，都比这个样子好吧
 
 
-
-
-
-
-
 -----
 
 ####  虚  
 ##### 1357#       发表于 2015-1-22 09:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27845433&amp;ptid=1009008" target="_blank">warlock228 发表于 2015-1-22 09:10</a>
@@ -25189,32 +16186,19 @@ Band of Kancolle OP
 何况大和级二号的武藏本身死因就是开嘲讽怒坦然后被
 
 
-
-
-
-
-
 -----
 
 ####  ahsammas  
 ##### 1358#       发表于 2015-1-22 09:22
 
 
-
-
 这一集沉船下一集说带了应急损管？
-
-
-
-
-
 
 
 -----
 
 ####  虫之诗歌  
 ##### 1359#       发表于 2015-1-22 09:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844630&amp;ptid=1009008" target="_blank">maxwell_goblin 发表于 2015-1-22 03:01</a>
@@ -25227,16 +16211,10 @@ Band of Kancolle OP
 突如其来的沉船冲击力太大了，导致我没心情prprpr高雄<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 1360#       发表于 2015-1-22 09:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844603&amp;ptid=1009008" target="_blank">碳. 发表于 2015-1-22 03:52</a>
@@ -25245,16 +16223,10 @@ Band of Kancolle OP
 Op沉船一闪而过 我还调侃呢....不算征兆吗
 
 
-
-
-
-
-
 -----
 
 ####  虫之诗歌  
 ##### 1361#       发表于 2015-1-22 09:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27845342&amp;ptid=1009008" target="_blank">武蔵 发表于 2015-1-22 08:58</a>
@@ -25263,25 +16235,13 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 看来黑皮大姐姐你不上动画真是个明智的选择<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  辻君  
 ##### 1362#       发表于 2015-1-22 09:30
 
 
-
-
 暴  死  不  可  避
-
-
-
-
-
 
 
 -----
@@ -25290,14 +16250,7 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1363#       发表于 2015-1-22 09:42
 
 
-
-
 别想什么损管了，真带了损管还搜索个P啊，坐等复活不就成了？
-
-
-
-
-
 
 
 -----
@@ -25306,14 +16259,7 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1364#       发表于 2015-1-22 09:46
 
 
-
-
 没看之前还以为玻璃心的提督太多，结果一看正片，这上门喂屎的展开只能说祝暴死了。
-
-
-
-
-
 
 
 -----
@@ -25322,14 +16268,7 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1365#       发表于 2015-1-22 09:48
 
 
-
-
 二战结束70周年的纪念片，这才是这片的意义所在，不走史实路线谁看！
-
-
-
-
-
 
 
 -----
@@ -25338,13 +16277,7 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1366#       发表于 2015-1-22 09:51
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/nq/009.gif" referrerpolicy="no-referrer"> 请注意第一和第二集提督视角都是观看者，然后第三集相当于观看者自己沉船的，这屎喂的不错。
-
-
-
-
-
 
 
 -----
@@ -25353,15 +16286,7 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1367#       发表于 2015-1-22 09:55
 
 
-
-
 别这样，指不定下一集就是潜艇队拖着回来了……
-
-
-
-
-
-
 
 
 -----
@@ -25370,14 +16295,7 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1368#       发表于 2015-1-22 09:55
 
 
-
-
 这书学姐掉头四周年纪念啊
-
-
-
-
-
 
 
 -----
@@ -25386,14 +16304,7 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1369#       发表于 2015-1-22 09:59
 
 
-
-
 说起来爱宕给吹雪的护身符是啥，难道真的是0079梗里的阴毛？
-
-
-
-
-
 
 
 -----
@@ -25402,22 +16313,13 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1370#       发表于 2015-1-22 10:01
 
 
-
-
 护身符里放阴毛不是常识吗
-
-
-
-
-
 
 
 -----
 
 ####  huoguoshan23  
 ##### 1371#       发表于 2015-1-22 10:03
-
-
 
 
 大 炎 上 不 可 避
@@ -25427,26 +16329,14 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 他们不是想要加“一点”正剧进来，他们一开始就是奔着喂阿宅吃屎来的<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  いかずち  
 ##### 1372#       发表于 2015-1-22 10:05
 
 
-
-
 唔...不知道为什么总觉得跟着一二航战出击不太妙。吹雪酱，中途岛那一话护卫舰的位置让给你了，我和电请个假。
 [@吹雪](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=226606) 
-
-
-
-
-
 
 
 -----
@@ -25455,21 +16345,13 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1373#       发表于 2015-1-22 10:08
 
 
-
-
 大早上爬起来补番，被喂翔喂得清醒了
-
-
-
-
-
 
 
 -----
 
 ####  xhghost  
 ##### 1374#       发表于 2015-1-22 10:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844836&amp;ptid=1009008" target="_blank">十五式試作艦戦 发表于 2015-1-22 06:07</a>
@@ -25481,24 +16363,13 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 这样的话就完全仿馒头卡的剧情了啊
 
 
-
-
-
-
-
 -----
 
 ####  dilinghaoshitu  
 ##### 1375#       发表于 2015-1-22 10:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25507,14 +16378,7 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1376#       发表于 2015-1-22 10:27
 
 
-
-
 作为非提看剧情再这样发展下去的话，连游戏都要弃掉了。
-
-
-
-
-
 
 
 -----
@@ -25523,16 +16387,10 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1377#       发表于 2015-1-22 10:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844048&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-22 00:57</a>
 
 不是被机枪打沉的么？</blockquote>
 先被机枪射伤，然后挨了一发炸弹，诱爆了深水炸弹才是致命伤....
-
-
-
-
-
 
 
 -----
@@ -25541,17 +16399,10 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1378#       发表于 2015-1-22 10:32
 
 
-
-
 出现下抽自己脸,和我如月多大仇,人气低就能随便玩是吧<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
 怒弃片,等一航战/大和沉了我再捡起来
-
-
-
-
-
 
 
 -----
@@ -25560,17 +16411,10 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1379#       发表于 2015-1-22 10:33
 
 
-
-
 运 营 爆 破 不 可 避
 
 
 这不是日常百合卖萌番吗？！！！<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25579,21 +16423,13 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1380#       发表于 2015-1-22 10:33
 
 
-
-
 我要看中途岛，莱特湾，哈哈
-
-
-
-
-
 
 
 -----
 
 ####  雾夏影  
 ##### 1381#       发表于 2015-1-22 10:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27846031&amp;ptid=1009008" target="_blank">xhghost 发表于 2015-1-22 10:12</a>
@@ -25608,32 +16444,19 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 我挺喜欢驱逐栖姬的
 
 
-
-
-
-
-
 -----
 
 ####  tj8m23le  
 ##### 1382#       发表于 2015-1-22 10:37
 
 
-
-
 全还原历史娇喘我就信你一辈子
-
-
-
-
-
 
 
 -----
 
 ####  暴走的包子  
 ##### 1383#       发表于 2015-1-22 10:44
-
 
 
 <blockquote>hurtwind 发表于 2015-1-22 03:44
@@ -25645,17 +16468,10 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 6驅永遠都是好朋友哦
 
 
-
-
-
-
-
 -----
 
 ####  西之莉芙路  
 ##### 1384#       发表于 2015-1-22 10:49
-
-
 
 
 看到个脑洞，如果按这个拍如何？
@@ -25667,17 +16483,10 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 最终吹雪被击沉成了深海栖舰，目睹悲剧不断重复，最终被画面回到第一话吹雪0距离打深海栖舰那一瞬间，成为深海栖舰的吹雪想扑上去告诉已经不知道是第几个吹雪的自己事情真相，被吹雪N号一炮轰死，全剧终
 
 
-
-
-
-
-
 -----
 
 ####  青空序曲  
 ##### 1385#       发表于 2015-1-22 10:52
-
-
 
 
 其实理性分析一下 按照以往日本动画片死人的尿性来看
@@ -25687,24 +16496,13 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 如果如月确实沉船的话那么这话的结尾应该是睦月她们得到了如月沉船的消息放声痛哭才对
 
 
-
-
-
-
-
 -----
 
 ####  吃货红毛  
 ##### 1386#       发表于 2015-1-22 10:53
 
 
-
 <img src="http://pic3.178.com/1655/16558434/month_1501/af32befdfc36d38060f239efc78be3eb.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25713,15 +16511,8 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1387#       发表于 2015-1-22 10:55
 
 
-
-
 惊闻如月沉了...ummmmm.毕竟光在765里就已经不要不要的了,更何况灰姑娘的巨乳舰队...要知道765最强的梓姐也进不了灰姑娘的前10...能到现在才沉她已经很努力了...（我TM在说什么
 <img src="http://ww1.sinaimg.cn/bmiddle/a27ec3a3jw1eoi066ebuej20ww0x4aid.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25730,14 +16521,7 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1388#       发表于 2015-1-22 10:56
 
 
-
-
 模仿小圆三话死人太恶意~不过flag竖的飞起~我一猜就有人得沉
-
-
-
-
-
 
 
 -----
@@ -25746,14 +16530,7 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1389#       发表于 2015-1-22 10:56
 
 
-
-
 妈b，下集如果是欢乐的日常回怎么看的下去？吃完屎给你喂块蛋糕？怎么可能有胃口？
-
-
-
-
-
 
 
 -----
@@ -25762,14 +16539,7 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1390#       发表于 2015-1-22 11:01
 
 
-
-
 运营爆破不可避免，预祝动画大宝石。    感觉这样一写，制作组把自己逼到很尴尬的场面。假如按史实去做，那到后面一堆人气舰都要便当，提督门肯定不卖帐，哪个提督想看自己喜欢的舰领便当。另一方面假如后面又不发便当，那动画党或者想看史实的人又吐槽这什么玩意，说好中途岛一航战全领便当呢？而如月厨的提督门更是暴怒，凭什么就我家的如月领便当。接果就是两边都不讨好。
-
-
-
-
-
 
 
 -----
@@ -25778,14 +16548,7 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1391#       发表于 2015-1-22 11:01
 
 
-
-
 运营爆破不可避免，预祝动画大宝石。    感觉这样一写，制作组把自己逼到很尴尬的场面。假如按史实去做，那到后面一堆人气舰都要便当，提督门肯定不卖帐，哪个提督想看自己喜欢的舰领便当。另一方面假如后面又不发便当，那动画党或者想看史实的人又吐槽这什么玩意，说好中途岛一航战全领便当呢？而如月厨的提督门更是暴怒，凭什么就我家的如月领便当。接果就是两边都不讨好。
-
-
-
-
-
 
 
 -----
@@ -25794,14 +16557,7 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1392#       发表于 2015-1-22 11:02
 
 
-
-
 哈哈哈哈哈哈哈哈哈，真还原历史就大好评败BD！
-
-
-
-
-
 
 
 -----
@@ -25810,14 +16566,7 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1393#       发表于 2015-1-22 11:04
 
 
-
-
 快快！我要看雷击处分！
-
-
-
-
-
 
 
 -----
@@ -25826,14 +16575,7 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1394#       发表于 2015-1-22 11:06
 
 
-
-
 那边苍穹法芙娜这种明显一箱便当的片都没发出来去 这边的萌豚片已经爆炸了 2333
-
-
-
-
-
 
 
 -----
@@ -25842,14 +16584,7 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1395#       发表于 2015-1-22 11:08
 
 
-
-
 我的观点是制作者是试探观众对沉船的看法，长门的话没有说死，第四集找回来也不是不可能，大家淡定
-
-
-
-
-
 
 
 -----
@@ -25858,13 +16593,7 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1396#       发表于 2015-1-22 11:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">有花田老师在，药片不可避，今天又学了一手强行灌药的方式
-
-
-
-
-
 
 
 -----
@@ -25873,21 +16602,13 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1397#       发表于 2015-1-22 11:08
 
 
-
-
 给小学生发便当，这是得有多蠢<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">，前有飞天小裤裤，抄都不会抄
-
-
-
-
-
 
 
 -----
 
 ####  十五式試作艦戦  
 ##### 1398#       发表于 2015-1-22 11:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27846361&amp;ptid=1009008" target="_blank">西之莉芙路 发表于 2015-1-22 10:49</a>
@@ -25911,17 +16632,10 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 又是一部药片
 
 
-
-
-
-
-
-
 -----
 
 ####  sinmean  
 ##### 1399#       发表于 2015-1-22 11:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27846520&amp;ptid=1009008" target="_blank">王平 发表于 2015-1-22 11:06</a>
@@ -25932,32 +16646,19 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 要演历史弄什么近未来SF设定。。。不伦不类的
 
 
-
-
-
-
-
 -----
 
 ####  邪眼紫瞳  
 ##### 1400#       发表于 2015-1-22 11:10
 
 
-
-
 2战的护卫舰有那么纸能被机枪射伤？
-
-
-
-
-
 
 
 -----
 
 ####  coolffcat  
 ##### 1401#       发表于 2015-1-22 11:12
-
 
 
  本帖最后由 coolffcat 于 2015-1-22 11:13 编辑 
@@ -25967,25 +16668,13 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 被飞机炸坏了舵机的宰相和被炸弹震坏了零件导致主炮卡住的黑皮大姐内牛满面，我们还是战列舰啊
 
 
-
-
-
-
-
 -----
 
 ####  葉月翠名  
 ##### 1402#       发表于 2015-1-22 11:12
 
 
-
-
 我觉得你们是不是反应过度了。
-
-
-
-
-
 
 
 -----
@@ -25994,14 +16683,7 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1403#       发表于 2015-1-22 11:15
 
 
-
-
 战斗三分，日常七分，余下九十分是沉船。这原来是一部纪念反法西斯战争胜利70周年的纪念动画<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26010,16 +16692,10 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1404#       发表于 2015-1-22 11:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27846596&amp;ptid=1009008" target="_blank">葉月翠名 发表于 2015-1-22 11:12</a>
 
 我觉得你们是不是反应过度了。</blockquote>
 这就是编剧要的效果吧，下一集吐便当继续带节奏
-
-
-
-
-
 
 
 -----
@@ -26028,16 +16704,10 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1405#       发表于 2015-1-22 11:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27846565&amp;ptid=1009008" target="_blank">邪眼紫瞳 发表于 2015-1-22 11:10</a>
 
 2战的护卫舰有那么纸能被机枪射伤？</blockquote>
 历史上如月是被打中了舰艉引发深弹连环爆炸沉没的
-
-
-
-
-
 
 
 -----
@@ -26046,23 +16716,16 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1406#       发表于 2015-1-22 11:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27846565&amp;ptid=1009008" target="_blank">邪眼紫瞳 发表于 2015-1-22 11:10</a>
 
 2战的护卫舰有那么纸能被机枪射伤？</blockquote>
 灵竹，哦不对岛风就是被机关枪打沉的
 
 
-
-
-
-
-
 -----
 
 ####  露娜玛利亚  
 ##### 1407#       发表于 2015-1-22 11:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27846361&amp;ptid=1009008" target="_blank">西之莉芙路 发表于 2015-1-22 10:49</a>
@@ -26073,16 +16736,10 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 卧槽这设定好顶赞，买买买买买
 
 
-
-
-
-
-
 -----
 
 ####  leokai8988  
 ##### 1408#       发表于 2015-1-22 11:22
-
 
 
 <blockquote>邪眼紫瞳 发表于 2015-1-22 11:10
@@ -26090,16 +16747,10 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 如果是本子的就有可能，本子的驱逐舰都是头重脚轻，在甲板上放了一大堆武器同时又要保持高速度，结果就是在吨位不能改边的同时，只能放弃防御力。
 
 
-
-
-
-
-
 -----
 
 ####  默默4476  
 ##### 1409#       发表于 2015-1-22 11:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27846361&amp;ptid=1009008" target="_blank">西之莉芙路 发表于 2015-1-22 10:49</a>
@@ -26110,16 +16761,10 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 看了一遍想了想  这不是恐怖游轮的剧情吗...
 
 
-
-
-
-
-
 -----
 
 ####  tj8m23le  
 ##### 1410#       发表于 2015-1-22 11:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27846565&amp;ptid=1009008" target="_blank">邪眼紫瞳 发表于 2015-1-22 11:10</a>
@@ -26128,16 +16773,10 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 被一颗45kg砸中了船尾。。。。但是尼玛船尾有深水炸弹。。。直接殉爆。。。
 
 
-
-
-
-
-
 -----
 
 ####  maxwell_goblin  
 ##### 1411#       发表于 2015-1-22 11:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27846641&amp;ptid=1009008" target="_blank">13712345678 发表于 2015-1-22 11:17</a>
@@ -26146,25 +16785,13 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 最后是锅炉爆炸沉的
 
 
-
-
-
-
-
 -----
 
 ####  127702  
 ##### 1412#       发表于 2015-1-22 11:35
 
 
-
-
 依稀记得这集舰娘们被空袭时有护罩的，怎么如月被一发爆弹穿过护罩再来记满血击沉，不科学<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26173,14 +16800,7 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1413#       发表于 2015-1-22 11:37
 
 
-
-
 感想就是 制作太渣 staff太烂 做不了战车魔女 就想学小圆 真是画虎不成反类犬
-
-
-
-
-
 
 
 -----
@@ -26189,16 +16809,10 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1414#       发表于 2015-1-22 11:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27846408&amp;ptid=1009008" target="_blank">望月凝香 发表于 2015-1-22 10:55</a>
 
 惊闻如月沉了...ummmmm.毕竟光在765里就已经不要不要的了,更何况灰姑娘的巨乳舰队...要知道765最强的梓姐也 ...</blockquote>
 只要72正面迎敌就是全跳蛋无敌状态！72不要怂，就是刚！（拖
-
-
-
-
-
 
 
 -----
@@ -26207,23 +16821,16 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗
 ##### 1415#       发表于 2015-1-22 11:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27845572&amp;ptid=1009008" target="_blank">kitagawa 发表于 2015-1-22 09:25</a>
 
 Op沉船一闪而过 我还调侃呢....不算征兆吗</blockquote>
 本来就是一群鬼魂这也没啥，毕竟直说了有前世
 
 
-
-
-
-
-
 -----
 
 ####  不灭的旋律  
 ##### 1416#       发表于 2015-1-22 11:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27846361&amp;ptid=1009008" target="_blank">西之莉芙路 发表于 2015-1-22 10:49</a>
@@ -26234,13 +16841,7 @@ Op沉船一闪而过 我还调侃呢....不算征兆吗</blockquote>
 R-TYPE　夏の夕暮れ？
 
 
-
 看片前手贱瞄了一眼nico被透，结果严重影响观感<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26249,14 +16850,7 @@ R-TYPE　夏の夕暮れ？
 ##### 1417#       发表于 2015-1-22 11:47
 
 
-
-
 右上角版图还不换嘛？这么大的新闻嘢
-
-
-
-
-
 
 
 -----
@@ -26265,15 +16859,9 @@ R-TYPE　夏の夕暮れ？
 ##### 1418#       发表于 2015-1-22 11:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/zdl/156.gif" referrerpolicy="no-referrer">不爽不要看，不服中途岛
 
 还原历史！
-
-
-
-
-
 
 
 -----
@@ -26282,14 +16870,7 @@ R-TYPE　夏の夕暮れ？
 ##### 1419#       发表于 2015-1-22 11:56
 
 
-
-
 说起来，历史上明明是威克岛500勇士孤军奋战到最后一刻，结果这里黑得和那啥似的...
-
-
-
-
-
 
 
 -----
@@ -26298,14 +16879,7 @@ R-TYPE　夏の夕暮れ？
 ##### 1420#       发表于 2015-1-22 11:56
 
 
-
-
 爱宕的护身符里放的是阴毛吗<img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26314,16 +16888,9 @@ R-TYPE　夏の夕暮れ？
 ##### 1421#       发表于 2015-1-22 12:08
 
 
-
-
 sb staff 
 
 画虎不成反类犬
-
-
-
-
-
 
 
 -----
@@ -26332,23 +16899,16 @@ sb staff
 ##### 1422#       发表于 2015-1-22 12:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27846616&amp;ptid=1009008" target="_blank">guillotina 发表于 2015-1-22 11:15</a>
 
 战斗三分，日常七分，余下九十分是沉船。这原来是一部纪念反法西斯战争胜利70周年的纪念动画 ...</blockquote>
 这么说土豆恐成最大赢家了？
 
 
-
-
-
-
-
 -----
 
 ####  俾斯麥  
 ##### 1423#       发表于 2015-1-22 12:12
-
 
 
  本帖最后由 俾斯麥 于 2015-1-22 12:15 编辑 
@@ -26360,16 +16920,10 @@ sb staff
 现在是不光中国，日本那边都一片骂声，看后面怎么补救，救不回来BD妥妥暴死，这不是一个打算做第二季的制作组应有的水平
 
 
-
-
-
-
-
 -----
 
 ####  武蔵  
 ##### 1424#       发表于 2015-1-22 12:14
-
 
 
 <blockquote>虚 发表于 2015-1-22 09:20
@@ -26377,16 +16931,10 @@ sb staff
 哎呀生死看淡不服就干，总比泡在港里最后当靶舰好点
 
 
-
-
-
-
-
 -----
 
 ####  chenyedgg  
 ##### 1425#       发表于 2015-1-22 12:20
-
 
 
  本帖最后由 chenyedgg 于 2015-1-22 12:22 编辑 
@@ -26397,16 +16945,10 @@ sb staff
 这部垃圾编剧的动画彻底成为黑历史
 
 
-
-
-
-
-
 -----
 
 ####  omin2  
 ##### 1426#       发表于 2015-1-22 12:20
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
@@ -26429,25 +16971,13 @@ sb staff
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  肮脏的哈里  
 ##### 1427#       发表于 2015-1-22 12:21
 
 
-
-
 这个世界的恶意实在太多了
-
-
-
-
-
 
 
 -----
@@ -26456,14 +16986,7 @@ sb staff
 ##### 1428#       发表于 2015-1-22 12:31
 
 
-
-
 睦月你这前前后后奶了十几口非要把自己姐妹舰奶死实在太炸裂
-
-
-
-
-
 
 
 -----
@@ -26472,21 +16995,13 @@ sb staff
 ##### 1429#       发表于 2015-1-22 12:36
 
 
-
-
 陆奥在宿舍睡觉时爆炸死了一片小学生，BD给我来三套
-
-
-
-
-
 
 
 -----
 
 ####  十五式試作艦戦  
 ##### 1430#       发表于 2015-1-22 12:38
-
 
 
  本帖最后由 十五式試作艦戦 于 2015-1-22 12:51 编辑 
@@ -26504,28 +17019,15 @@ sb staff
 这话感觉被黑得最惨的就是王师，绝地反击被黑成了一盘好棋下成渣，有些人不知道看了这话没就跟风扯还原历史实在<img src="https://static.saraba1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  maxwell_goblin  
 ##### 1431#       发表于 2015-1-22 12:38
 
 
-
-
 这次还是13年春活好像
 
 13年夏活是历史上哪场作战？
-
-
-
-
-
 
 
 -----
@@ -26534,23 +17036,15 @@ sb staff
 ##### 1432#       发表于 2015-1-22 12:42
 
 
-
-
 想起这个老视频了
 
 求莱特湾
-
-
-
-
-
 
 
 -----
 
 ####  Inle  
 ##### 1433#       发表于 2015-1-22 12:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27847436&amp;ptid=1009008" target="_blank">maxwell_goblin 发表于 2015-1-22 12:38</a>
@@ -26561,16 +17055,10 @@ sb staff
 13春夏都是架空的
 
 
-
-
-
-
-
 -----
 
 ####  戏谑二次元  
 ##### 1434#       发表于 2015-1-22 12:45
-
 
 
 <blockquote>引用第1018楼西之莉芙路于2015-01-16 18:37发表的  :
@@ -26582,16 +17070,10 @@ sb staff
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  十五式試作艦戦  
 ##### 1435#       发表于 2015-1-22 12:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27847436&amp;ptid=1009008" target="_blank">maxwell_goblin 发表于 2015-1-22 12:38</a>
@@ -26605,26 +17087,13 @@ sb staff
 威克岛是14年春，威克岛被娇喘掰扯成了有超弩级院长护驾的离岛飞机场姬，只不过这次TV里似乎鬼隐了
 
 
-
-
-
-
-
-
 -----
 
 ####  阳光之下  
 ##### 1436#       发表于 2015-1-22 12:53
 
 
-
-
 又一次证明花田纯傻逼<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26633,15 +17102,9 @@ sb staff
 ##### 1437#       发表于 2015-1-22 12:58
 
 
-
  本帖最后由 hyjsttt 于 2015-1-22 12:59 编辑 
 
 如果这部片算是战争题材的话，死人是不是正常的？
-
-
-
-
-
 
 
 -----
@@ -26650,18 +17113,11 @@ sb staff
 ##### 1438#       发表于 2015-1-22 13:03
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
-
-
-
-
 
 
 124845pr1vbhht9g0bcgmg.jpg
 (25 KB, 下载次数: 19)
-
-
 
 
 下载附件
@@ -26670,32 +17126,13 @@ sb staff
 2015-1-22 13:02 上传
 
 
-
-
-
-
-
-
-
 <img src="http://img.saraba1st.com/forum/201501/22/130237x04diyv99pk944vi.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  饼脸遥  
 ##### 1439#       发表于 2015-1-22 13:05
-
-
 
 
 前两话拍成那样还硬是分类成战争类也是醉了
@@ -26705,25 +17142,14 @@ sb staff
 不爱看自然就滚 但口碑和销量的锅制作组要自己背
 
 
-
-
-
-
-
 -----
 
 ####  taostin  
 ##### 1440#       发表于 2015-1-22 13:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27847762&amp;ptid=1009008" target="_blank">震荡波 发表于 2015-1-22 13:03</a></blockquote>
 史实，炸裂
-
-
-
-
-
 
 
 -----
@@ -26732,14 +17158,7 @@ sb staff
 ##### 1441#       发表于 2015-1-22 13:07
 
 
-
-
 竟然真有沉船，这便是没想到啊。
-
-
-
-
-
 
 
 -----
@@ -26748,14 +17167,7 @@ sb staff
 ##### 1442#       发表于 2015-1-22 13:07
 
 
-
-
 竟然真有沉船，这便是没想到啊。
-
-
-
-
-
 
 
 -----
@@ -26764,23 +17176,16 @@ sb staff
 ##### 1443#       发表于 2015-1-22 13:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27847188&amp;ptid=1009008" target="_blank">俾斯麥 发表于 2015-1-22 12:12</a>
 
 虐妹子也要有根有据，明摆的想玩三话梗但是铺垫没铺好，如月这个连中破都没有就一发轰沉，就是史实也是战 ...</blockquote>
 什么？这片子真有第二季？
 
 
-
-
-
-
-
 -----
 
 ####  cghhj  
 ##### 1444#       发表于 2015-1-22 13:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27846565&amp;ptid=1009008" target="_blank">邪眼紫瞳 发表于 2015-1-22 11:10</a>
@@ -26792,25 +17197,14 @@ sb staff
 美帝用的又是二战最强大口径机枪之一的勃朗宁M2
 
 
-
-
-
-
-
 -----
 
 ####  奶油小吉  
 ##### 1445#       发表于 2015-1-22 13:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27847762&amp;ptid=1009008" target="_blank">震荡波 发表于 2015-1-22 13:03</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">这个假的吧如果是真的话那真是一路沉船啊。这已经不能用炸裂来形容了
-
-
-
-
-
 
 
 -----
@@ -26819,16 +17213,9 @@ sb staff
 ##### 1446#       发表于 2015-1-22 13:10
 
 
-
-
 1443L那个什么情况，求来源围观一下
 
 如果真的按照这个标题来搞，那舰女人可就变成名副其实的1月甚至全年霸权了（笑
-
-
-
-
-
 
 
 -----
@@ -26837,14 +17224,7 @@ sb staff
 ##### 1447#       发表于 2015-1-22 13:14
 
 
-
-
 不提史实，我一直认为吃撑第一个沉。她flag比如月还高
-
-
-
-
-
 
 
 -----
@@ -26853,23 +17233,16 @@ sb staff
 ##### 1448#       发表于 2015-1-22 13:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27847838&amp;ptid=1009008" target="_blank">lyflyflxf 发表于 2015-1-22 13:08</a>
 
 什么？这片子真有第二季？</blockquote>
 传闻，不过现在来看这个是不是真的不重要了
 
 
-
-
-
-
-
 -----
 
 ####  かしこま  
 ##### 1449#       发表于 2015-1-22 13:14
-
 
 
 <blockquote>奶油小吉 发表于 2015-1-22 13:09
@@ -26879,32 +17252,19 @@ sb staff
 就怕半吊子
 
 
-
-
-
-
-
 -----
 
 ####  nanaciel  
 ##### 1450#       发表于 2015-1-22 13:17
 
 
-
-
 要沉也没问题，先FLAG乱立再用这么蠢的一发直接沉只能说花田是SB了
-
-
-
-
-
 
 
 -----
 
 ####  D-JoeII  
 ##### 1451#       发表于 2015-1-22 13:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27847864&amp;ptid=1009008" target="_blank">demonawen 发表于 2015-1-22 13:10</a>
@@ -26915,16 +17275,10 @@ sb staff
 看後面標題風格就知觀眾想像的標題了有需要問來源嗎...
 
 
-
-
-
-
-
 -----
 
 ####  kingfree  
 ##### 1452#       发表于 2015-1-22 13:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27846408&amp;ptid=1009008" target="_blank">望月凝香 发表于 2015-1-22 10:55</a>
@@ -26933,17 +17287,10 @@ sb staff
 黝黑72
 
 
-
-
-
-
-
 -----
 
 ####  koisawa  
 ##### 1453#       发表于 2015-1-22 13:22
-
-
 
 
 非常期待收视率，尤其是下周跟下下周的。
@@ -26951,16 +17298,10 @@ sb staff
 还有BD预订数。
 
 
-
-
-
-
-
 -----
 
 ####  lyflyflxf  
 ##### 1454#       发表于 2015-1-22 13:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27847925&amp;ptid=1009008" target="_blank">かしこま 发表于 2015-1-22 13:14</a>
@@ -26971,33 +17312,19 @@ sb staff
 脑洞一下，最后一集长门替吹雪挡了一发原子弹，沉，大破的吹雪回到镇守府，发现提督已经率领大家投降，等待吹雪的是解体的命运……中国正式引进动画《舰队COLLECTION》
 
 
-
-
-
-
-
 -----
 
 ####  jy1986  
 ##### 1455#       发表于 2015-1-22 13:24
 
 
-
-
 看看下一话，是讲金刚4傻的什么事情了
-
-
-
-
-
 
 
 -----
 
 ####  阿虚家的三味  
 ##### 1456#       发表于 2015-1-22 13:25
-
-
 
 
 谁来给我科普下系列构成和每集的脚本哪个能决定单集的走向
@@ -27009,16 +17336,10 @@ sb staff
 这毕竟关系后面走向嘛
 
 
-
-
-
-
-
 -----
 
 ####  maxwell_goblin  
 ##### 1457#       发表于 2015-1-22 13:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27847997&amp;ptid=1009008" target="_blank">lyflyflxf 发表于 2015-1-22 13:22</a>
@@ -27027,16 +17348,10 @@ sb staff
 挡了一发原子弹……
 
 
-
-
-
-
-
 -----
 
 ####  守财奴  
 ##### 1458#       发表于 2015-1-22 13:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27848018&amp;ptid=1009008" target="_blank">jy1986 发表于 2015-1-22 13:24</a>
@@ -27045,25 +17360,13 @@ sb staff
 说金刚4个一路跪的故事，放完了制作组被寄刀片（大雾
 
 
-
-
-
-
-
 -----
 
 ####  maxwell_goblin  
 ##### 1459#       发表于 2015-1-22 13:29
 
 
-
-
 谁来分析一下这话是什么时候做的？
-
-
-
-
-
 
 
 -----
@@ -27072,14 +17375,7 @@ sb staff
 ##### 1460#       发表于 2015-1-22 13:30
 
 
-
-
 铺垫说得那些话，感觉后面还是会有沉船的
-
-
-
-
-
 
 
 -----
@@ -27088,21 +17384,13 @@ sb staff
 ##### 1461#       发表于 2015-1-22 13:33
 
 
-
-
 咦 前几天发帖子查wo酱 有人说这家伙原型是企业号？ 真还原历史的话看来我之前期待的wo酱大杀特杀马上就要实现了？
-
-
-
-
-
 
 
 -----
 
 ####  bluekof  
 ##### 1462#       发表于 2015-1-22 13:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27846693&amp;ptid=1009008" target="_blank">leokai8988 发表于 2015-1-22 11:22</a>
@@ -27115,32 +17403,19 @@ sb staff
 驱逐舰在狭窄的舰体上堆满了深水炸弹 鱼雷之类的易燃易爆物 被机枪小破 大破 击沉很正常 
 
 
-
-
-
-
-
 -----
 
 ####  mikelin  
 ##### 1463#       发表于 2015-1-22 13:34
 
 
-
-
 好差的一集，强行学人三话，节奏完全就不对，一点没入戏。
-
-
-
-
-
 
 
 -----
 
 ####  三千院飒  
 ##### 1464#       发表于 2015-1-22 13:37
-
 
 
 <blockquote>阿虚家的三味 发表于 2015-1-22 13:25
@@ -27152,16 +17427,10 @@ sb staff
 如月会死是构成的错，死得这么傻逼是脚本的错
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 1465#       发表于 2015-1-22 13:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27844182&amp;ptid=1009008" target="_blank">aliciafa 发表于 2015-1-22 01:14</a>
@@ -27170,25 +17439,13 @@ sb staff
 拍肩,国内提督大部分是跟风舔船,不是所有人都对小学生有爱的
 
 
-
-
-
-
-
 -----
 
 ####  meforice  
 ##### 1466#       发表于 2015-1-22 13:38
 
 
-
-
 当初入史实股的人现在绝对笑翻了<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27197,14 +17454,7 @@ sb staff
 ##### 1467#       发表于 2015-1-22 13:39
 
 
-
-
 我现在特别想看这一集NICO生放送后面那个评价...
-
-
-
-
-
 
 
 -----
@@ -27213,23 +17463,16 @@ sb staff
 ##### 1468#       发表于 2015-1-22 13:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27848101&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-22 13:33</a>
 
 咦 前几天发帖子查wo酱 有人说这家伙原型是企业号？ 真还原历史的话看来我之前期待的wo酱大杀特杀马上就要 ...</blockquote>
 目前没有明显的证据说WO酱是企业号，估计是玩家自己脑补的。
 
 
-
-
-
-
-
 -----
 
 ####  eternum  
 ##### 1469#       发表于 2015-1-22 13:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27848101&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-22 13:33</a>
@@ -27240,16 +17483,10 @@ sb staff
 <img src="http://image16.poco.cn/mypoco/myphoto/20150122/13/5983723320150122134008037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  leokai8988  
 ##### 1470#       发表于 2015-1-22 13:42
-
 
 
 <blockquote>阿虚家的三味 发表于 2015-1-22 13:25
@@ -27261,17 +17498,10 @@ sb staff
 一般来说是系构。准确来说是整个制作组，毕竟一部动画的剧情来说不可能一个人来决定，还有监督阿，制作人等等的意见。
 
 
-
-
-
-
-
 -----
 
 ####  koisawa  
 ##### 1471#       发表于 2015-1-22 13:43
-
-
 
 
 MI E3中空母棲鬼的BOSS點編隊名為「任務部隊(Y群)」，而在E4中同時出現了Y群、E群和H群，顯然是指Yorktown（約克城）、Enterprise（企業）和Hornet（大黃蜂）（雖然E4中的Y群沒有空母棲鬼或空母棲姬）。
@@ -27285,16 +17515,10 @@ E3 E 群:
 wo flagship
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 1472#       发表于 2015-1-22 13:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27848175&amp;ptid=1009008" target="_blank">eternum 发表于 2015-1-22 13:40</a>
@@ -27306,16 +17530,10 @@ wo flagship
 wiki说这个对应的约克城号么？
 
 
-
-
-
-
-
 -----
 
 ####  stage4th  
 ##### 1473#       发表于 2015-1-22 13:52
-
 
 
  本帖最后由 stage4th 于 2015-1-22 14:02 编辑 
@@ -27327,19 +17545,10 @@ wiki说这个对应的约克城号么？
 <img src="http://pic.yupoo.com/stage4th/Enlrdj75/cu18w.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  eternum  
 ##### 1474#       发表于 2015-1-22 13:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27848250&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-22 13:47</a>
@@ -27350,17 +17559,10 @@ wiki说这个对应的约克城号么？</blockquote>
 任務部隊(E群)neta的是企业，确实是一艘flagship的wo。
 
 
-
-
-
-
-
 -----
 
 ####  越后屋  
 ##### 1475#       发表于 2015-1-22 14:01
-
-
 
 
 真按战史走向来
@@ -27369,16 +17571,10 @@ wiki说这个对应的约克城号么？</blockquote>
 呵呵，该剧堪称史上第一屠妹番啦
 
 
-
-
-
-
-
 -----
 
 ####  哒哒哒ver1.01  
 ##### 1476#       发表于 2015-1-22 14:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27848299&amp;ptid=1009008" target="_blank">stage4th 发表于 2015-1-22 13:52</a>
@@ -27387,17 +17583,10 @@ wiki说这个对应的约克城号么？</blockquote>
 就是太紧张了吧~
 
 
-
-
-
-
-
 -----
 
 ####  klsh  
 ##### 1477#       发表于 2015-1-22 14:05
-
-
 
 
 这尿性，后面欠雷要对大破的吃撑补刀了吧
@@ -27405,16 +17594,10 @@ wiki说这个对应的约克城号么？</blockquote>
 雷击处分不可避！！！
 
 
-
-
-
-
-
 -----
 
 ####  斩月无双  
 ##### 1478#       发表于 2015-1-22 14:05
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">遨游，A站和B站都是直接放了遗像，被图透。。。
@@ -27427,24 +17610,13 @@ wiki说这个对应的约克城号么？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">这番还要跟老虚学一下，真是猜不透。。。
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 1479#       发表于 2015-1-22 14:12
 
 
-
 <img src="http://i.imgur.com/dv09A1W.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27453,16 +17625,10 @@ wiki说这个对应的约克城号么？</blockquote>
 ##### 1480#       发表于 2015-1-22 14:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27848194&amp;ptid=1009008" target="_blank">koisawa 发表于 2015-1-22 13:43</a>
 
 MI E3中空母棲鬼的BOSS點編隊名為「任務部隊(Y群)」，而在E4中同時出現了Y群、E群和H群，顯然是指Yorktown ...</blockquote>
 但是这样的话，FWO在Y群和H群里同样作为旗舰存在，而且经常一场战斗有复数个同时存在。所以与其说FWO是大E，还不如说官方就没有做这么精确地映射，直接用FWO这个路人脸去顶了大家的位置。
-
-
-
-
-
 
 
 -----
@@ -27471,24 +17637,16 @@ MI E3中空母棲鬼的BOSS點編隊名為「任務部隊(Y群)」，而在E4中
 ##### 1481#       发表于 2015-1-22 14:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27843913&amp;ptid=1009008" target="_blank">革新 发表于 2015-1-22 00:40</a>
 
 沉船不是不能接受 就是沉的方式太二了。。。。好歹正面奋战不敌或者同归于尽走向多好。。。都tmd大胜了 然 ...</blockquote>
 历史如月被一颗45公斤爆了水雷直接殉爆。。。
 
 
-
-
-
-
-
 -----
 
 ####  帕帕盖诺  
 ##### 1482#       发表于 2015-1-22 14:19
-
-
 
 
 强行喂屎也是醉了<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
@@ -27500,25 +17658,13 @@ MI E3中空母棲鬼的BOSS點編隊名為「任務部隊(Y群)」，而在E4中
 真要还原史实的话，我觉得像P站连载漫画《驱逐舰的命运》那样的背景最好，只要稍微改编一下，将米帝的戏份由深海方来演，然后魔改美化一下诸舰娘的战斗与沉船场景（棲鬼棲姬WO酱等深海方也一样，来个宿敌同归于尽模式），搞个半季番，力求照顾到大部分舰娘。同时将节节败退的史实改编成在舰娘们的牺牲下终于突破到了深海方的大本营，最后仅剩的舰娘全体出动发动一亿玉碎，大和和BOSS南方同归，长门自（核）爆，深海方彻底消灭，只留下雪风和响等人活了下来……
 
 
-
-
-
-
-
 -----
 
 ####  哒哒哒ver1.01  
 ##### 1483#       发表于 2015-1-22 14:25
 
 
-
-
 所以说欠雷现在那么憧憬吃撑的意义就在于后面的雷击处分么
-
-
-
-
-
 
 
 -----
@@ -27527,14 +17673,7 @@ MI E3中空母棲鬼的BOSS點編隊名為「任務部隊(Y群)」，而在E4中
 ##### 1484#       发表于 2015-1-22 14:25
 
 
-
-
 舰女人要是真的都沉了，激起日本宅民回顾战败历史，反思下次大战一定要打赢了报仇雪恨，这不是给军国主义招魂吗？如果沉了又复活了，这不明摆着复活军国主义吗？总之作为军国主义象征的大日本帝国海军的象征，死去的舰女人才是好的舰女人。一定要活的话，还是活在本子里比较好，阉割过的军国主义基本无害。来自: Android客户端
-
-
-
-
-
 
 
 -----
@@ -27543,14 +17682,7 @@ MI E3中空母棲鬼的BOSS點編隊名為「任務部隊(Y群)」，而在E4中
 ##### 1485#       发表于 2015-1-22 14:26
 
 
-
-
 还原历史好评，求更多
-
-
-
-
-
 
 
 -----
@@ -27559,14 +17691,8 @@ MI E3中空母棲鬼的BOSS點編隊名為「任務部隊(Y群)」，而在E4中
 ##### 1486#       发表于 2015-1-22 14:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27848471&amp;ptid=1009008" target="_blank">D-JoeII 发表于 2015-1-22 14:12</a></blockquote>
 哈哈哈 战雷党笑尿了
-
-
-
-
-
 
 
 -----
@@ -27575,16 +17701,9 @@ MI E3中空母棲鬼的BOSS點編隊名為「任務部隊(Y群)」，而在E4中
 ##### 1487#       发表于 2015-1-22 14:26
 
 
-
-
 看到专楼突然爆炸式增长，原来是萌豚片三集变药片，甚至屎片呐。
 
 果然是要什么都不想地看这种片子才好。
-
-
-
-
-
 
 
 -----
@@ -27593,14 +17712,7 @@ MI E3中空母棲鬼的BOSS點編隊名為「任務部隊(Y群)」，而在E4中
 ##### 1488#       发表于 2015-1-22 14:29
 
 
-
-
 这和说好的不一样！
-
-
-
-
-
 
 
 -----
@@ -27609,15 +17721,9 @@ MI E3中空母棲鬼的BOSS點編隊名為「任務部隊(Y群)」，而在E4中
 ##### 1489#       发表于 2015-1-22 14:34
 
 
-
  本帖最后由 金钱与民主 于 2015-1-22 14:35 编辑 
 
 击沉如月的那架野猫的飞行员叫亨利，数日后在威克岛阵亡。
-
-
-
-
-
 
 
 -----
@@ -27626,23 +17732,16 @@ MI E3中空母棲鬼的BOSS點編隊名為「任務部隊(Y群)」，而在E4中
 ##### 1490#       发表于 2015-1-22 14:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27848594&amp;ptid=1009008" target="_blank">tj8m23le 发表于 2015-1-22 14:26</a>
 
 哈哈哈 战雷党笑尿了</blockquote>
 可惜按战雷的话野猫携弹量炸不烂DD把？没有炸中弹药舱殉爆的设定
 
 
-
-
-
-
-
 -----
 
 ####  zanber  
 ##### 1491#       发表于 2015-1-22 14:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27848684&amp;ptid=1009008" target="_blank">wsotaku 发表于 2015-1-22 14:36</a>
@@ -27653,16 +17752,10 @@ MI E3中空母棲鬼的BOSS點編隊名為「任務部隊(Y群)」，而在E4中
 任务关里，就算是吃撑和加贺也是SDB一颗就带走。打伞的大姐姐中一枚鱼雷也走了。
 
 
-
-
-
-
-
 -----
 
 ####  大江户战士  
 ##### 1492#       发表于 2015-1-22 14:45
-
 
 
  本帖最后由 大江户战士 于 2015-1-22 14:48 编辑 
@@ -27672,18 +17765,10 @@ MI E3中空母棲鬼的BOSS點編隊名為「任務部隊(Y群)」，而在E4中
 太平洋戦争を通じて、同じウェーク島攻略戦で先に沈没した駆逐艦「疾風」に次ぎ、帝国海軍で2隻目の戦没艦であった。
 
 
-
-
-
-
-
-
-
 -----
 
 ####  九十九尾  
 ##### 1493#       发表于 2015-1-22 14:46
-
 
 
  本帖最后由 九十九尾 于 2015-1-22 15:11 编辑 
@@ -27724,25 +17809,14 @@ MI E3中空母棲鬼的BOSS點編隊名為「任務部隊(Y群)」，而在E4中
 “而且还请教了对“这个角色会做这个行动和台词吗？”这样角色定位的问题的判断，使得脚本能安心地制作下来了。”
 
 
-
-
-
-
-
 -----
 
 ####  十五式試作艦戦  
 ##### 1494#       发表于 2015-1-22 14:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27848471&amp;ptid=1009008" target="_blank">D-JoeII 发表于 2015-1-22 14:12</a></blockquote>
 wt那个太平洋包里的威克岛战役，毛子在炸如月那关发明起历史简直狂气，刨掉两条被强发便当的运输船，油咖喱和双龙被硬拔高成CA，DD得击沉五六条才算过关。。。。
-
-
-
-
-
 
 
 -----
@@ -27751,17 +17825,10 @@ wt那个太平洋包里的威克岛战役，毛子在炸如月那关发明起历
 ##### 1495#       发表于 2015-1-22 14:49
 
 
-
-
 先看的论坛，都在说屎我一看果然真够屎的，我既不是提督又不太了解历史…可是制作组既然想要3集沉如月那为何不在前两话丰满一下这个人物？以为依学姐画如月观众就买帐？只能说监督纱布制作组纱布了！
 另：这片已经让我养成了周四必定去个能上外网还能看视频的客户单位的习惯了…
 
 ——— 来自[Stage1st Reader For iOS](http://itunes.apple.com/us/app/stage1st-reader/id509916119?mt=8)
-
-
-
-
-
 
 
 -----
@@ -27770,14 +17837,7 @@ wt那个太平洋包里的威克岛战役，毛子在炸如月那关发明起历
 ##### 1496#       发表于 2015-1-22 14:54
 
 
-
-
 BD暴死不可避免
-
-
-
-
-
 
 
 -----
@@ -27786,14 +17846,7 @@ BD暴死不可避免
 ##### 1497#       发表于 2015-1-22 15:03
 
 
-
-
 这小学生沉的也太突兀了吧<img src="https://static.saraba1st.com/image/smiley/face/74.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27802,13 +17855,7 @@ BD暴死不可避免
 ##### 1498#       发表于 2015-1-22 15:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">麻痹,作为提督我还挺喜欢如月的呢
-
-
-
-
-
 
 
 -----
@@ -27817,14 +17864,7 @@ BD暴死不可避免
 ##### 1499#       发表于 2015-1-22 15:12
 
 
-
-
 未来有希望看到雪风猪队友，其后沦为肉便器最终惨遭活体解剖的经历吗？
-
-
-
-
-
 
 
 -----
@@ -27833,12 +17873,6 @@ BD暴死不可避免
 ##### 1500#       发表于 2015-1-22 15:13
 
 
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer"> 别招惹美国下场会很惨的
-
-
-
 
 

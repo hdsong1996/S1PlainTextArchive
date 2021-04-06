@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2021-01-04 18:29** 
 
 
-
 -----
 
 ####  白龙  
 ##### 1#       楼主       发表于 2020-12-31 03:24
-
 
 
  本帖最后由 白龙 于 2020-12-31 03:28 编辑 
@@ -55,8 +53,6 @@
 效果真的爆炸
 
 
-
-
 这波，完全就是资本碾压，感觉和之前的其他Vtuber比起来，这实力都能让人感受到代差
 
 
@@ -81,26 +77,13 @@
 只能说，意识到技术重要性的娱乐资本，是真的可怕。
 
 
-
-
-
-
-
-
 -----
 
 ####  lichuan325  
 ##### 2#       发表于 2020-12-31 03:26
 
 
-
-
 能不能去v版
-
-
-
-
-
 
 
 -----
@@ -109,14 +92,7 @@
 ##### 3#       发表于 2020-12-31 03:33
 
 
-
-
 流量公司又来卓明谷打广告了，你给S1娘上供了没有……
-
-
-
-
-
 
 
 -----
@@ -125,14 +101,7 @@
 ##### 4#       发表于 2020-12-31 03:38
 
 
-
-
 vtuber能不能不发...是版主啊，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -141,14 +110,7 @@ vtuber能不能不发...是版主啊，那没事了<img src="https://static.sara
 ##### 5#       发表于 2020-12-31 03:39
 
 
-
-
 画面像以前一个3d hgame 忘记名字
-
-
-
-
-
 
 
 -----
@@ -157,14 +119,7 @@ vtuber能不能不发...是版主啊，那没事了<img src="https://static.sara
 ##### 6#       发表于 2020-12-31 03:42
 
 
-
-
 平时不看的并没有看出有啥区别。。。。
-
-
-
-
-
 
 
 -----
@@ -173,14 +128,7 @@ vtuber能不能不发...是版主啊，那没事了<img src="https://static.sara
 ##### 7#       发表于 2020-12-31 03:45
 
 
-
-
 嘉然是高质量高素质高抗压的中之人，高技术皮对她来说只是锦上添花，其他几个观感差别还是挺明显的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -189,14 +137,7 @@ vtuber能不能不发...是版主啊，那没事了<img src="https://static.sara
 ##### 8#       发表于 2020-12-31 03:46
 
 
-
-
 看起来还不如始皇帝绊爱呢
-
-
-
-
-
 
 
 -----
@@ -205,14 +146,7 @@ vtuber能不能不发...是版主啊，那没事了<img src="https://static.sara
 ##### 9#       发表于 2020-12-31 03:47
 
 
-
-
 我已经看了半个月，泥哥鸵鸟一个月，现在v8和泥哥正在大战中。
-
-
-
-
-
 
 
 -----
@@ -221,14 +155,7 @@ vtuber能不能不发...是版主啊，那没事了<img src="https://static.sara
 ##### 10#       发表于 2020-12-31 03:53
 
 
-
-
 vtb模型质量从来不是重点，再高也没当年SE搞的那个偶像团体技术力高，还不是死了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -237,14 +164,7 @@ vtb模型质量从来不是重点，再高也没当年SE搞的那个偶像团体
 ##### 11#       发表于 2020-12-31 03:55
 
 
-
-
 技术力有p用，真有人看管人是为了看那张皮的？
-
-
-
-
-
 
 
 -----
@@ -253,14 +173,7 @@ vtb模型质量从来不是重点，再高也没当年SE搞的那个偶像团体
 ##### 12#       发表于 2020-12-31 04:06
 
 
-
-
 视频没点，单看评论区里的老哥们还挺乐呵的
-
-
-
-
-
 
 
 -----
@@ -269,23 +182,15 @@ vtb模型质量从来不是重点，再高也没当年SE搞的那个偶像团体
 ##### 13#       发表于 2020-12-31 04:09
 
 
-
-
 场景和角色是分开的，场景就一块视角变动靠摄像，角色是即时渲染的，角色背景是绿幕，合成到场景。这样做很麻烦，每次直播都还要别人帮忙设置
 
 看上去效果不错，但性价比真的不高，vtb终究是一个小众市场，假设顶流vtb能年入三百万，对于个人是很多，但对乐华这样的公司，就显得不多了
-
-
-
-
-
 
 
 -----
 
 ####  石化金鱼  
 ##### 14#       发表于 2020-12-31 04:32
-
 
 
  本帖最后由 石化金鱼 于 2020-12-31 04:35 编辑 
@@ -295,17 +200,10 @@ vtb模型质量从来不是重点，再高也没当年SE搞的那个偶像团体
 点进去看了一下，好像可以秒杀吧
 
 
-
-
-
-
-
 -----
 
 ####  苏西踩我了  
 ##### 15#       发表于 2020-12-31 04:55
-
-
 
 
 vtb是该提升效果，之所以现在如此小众，就是因为效果实在一般，那些知名v就是个单薄纸片人，所以我不看日v，偶尔看看直播效果更好的欧美v （但欧美真的没日v可爱……）
@@ -328,14 +226,7 @@ vtb是该提升效果，之所以现在如此小众，就是因为效果实在�
 2020-12-31 04:16 上传
 
 
-
-
-
-
-
-
 还有个特别简单的方案，就是用vrchat直播，欧美有很多vtb在这么干，无论是直播势还是视频势，效果都极好，我曾考虑开个帖子具体介绍，但后来我上个号进小黑屋90天就放弃了……
-
 
 
 总之，vtb终究是该提升效果，降低投入的成本，抖音快手之所以能成，就是把直播的难度降到了最低，有个手机就行，彩虹社也是，给成员配个iphone x和2d live的形象（共约1w rmb）
@@ -344,17 +235,9 @@ vtb是该提升效果，之所以现在如此小众，就是因为效果实在�
 哔哩哔哩对标抖音快手，也应该搭建让用户做vtb的软件了，像游戏一样能捏人，手机端能面捕，pc端能搭配leap motion或全身动捕
 
 
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 4战斗力 +5
@@ -367,19 +250,13 @@ vtb是该提升效果，之所以现在如此小众，就是因为效果实在�
 | 白龙| + 2|我去看看|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  白龙  
 ##### 16#         楼主| 发表于 2020-12-31 05:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49894632&amp;ptid=1980451" target="_blank">苏西踩我了 发表于 2020-12-31 04:55</a>
@@ -391,25 +268,13 @@ fofmat这个关键词油管、google上搜不出来
 有没有她油管账号地址？
 
 
-
-
-
-
-
 -----
 
 ####  from1926  
 ##### 17#       发表于 2020-12-31 05:29
 
 
-
-
 碾压个锤子，不说超过同等级的都好几家（se，cy，mhy），还有这套东西是字节做的
-
-
-
-
-
 
 
 -----
@@ -418,14 +283,7 @@ fofmat这个关键词油管、google上搜不出来
 ##### 18#       发表于 2020-12-31 05:57
 
 
-
-
 有这个钱给冰霜巨人不好
-
-
-
-
-
 
 
 -----
@@ -434,13 +292,7 @@ fofmat这个关键词油管、google上搜不出来
 ##### 19#       发表于 2020-12-31 06:02
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">vtb始皇帝从头到今都是3d模型，不还是被彩虹和木口的2d皮随便干
-
-
-
-
-
 
 
 -----
@@ -449,14 +301,7 @@ fofmat这个关键词油管、google上搜不出来
 ##### 20#       发表于 2020-12-31 06:08
 
 
-
-
 有个🐔用，现在那个vtb是靠优质皮套赢的？有这个钱还不如整内娱圈老套路整点粉圈粉头wash脑到处出征整黑料打击异己来的效果好
-
-
-
-
-
 
 
 -----
@@ -465,17 +310,10 @@ fofmat这个关键词油管、google上搜不出来
 ##### 21#       发表于 2020-12-31 06:12
 
 
-
-
 时至今日我就没见过效果比绊爱好的
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.36)
-
-
-
-
-
 
 
 -----
@@ -484,14 +322,7 @@ fofmat这个关键词油管、google上搜不出来
 ##### 22#       发表于 2020-12-31 06:34
 
 
-
-
 vtb不是靠皮套就能赢得。
-
-
-
-
-
 
 
 -----
@@ -500,14 +331,7 @@ vtb不是靠皮套就能赢得。
 ##### 23#       发表于 2020-12-31 06:52
 
 
-
-
 看得出来对VTB的发展没有很清晰的认知，如果说高技术就能让别的虚拟<strong>主播</strong>产生危机感的话，那拥有3D技术的绊爱和国内那个叫战斗吧歌姬的组合一开始就已经赢完了
-
-
-
-
-
 
 
 -----
@@ -516,14 +340,7 @@ vtb不是靠皮套就能赢得。
 ##### 24#       发表于 2020-12-31 07:02
 
 
-
-
 相声这皮套比vtb不知道低到哪里去，说明vtb也是讲究说学逗唱，皮套只是装饰，二刺螈小丑不会明白的
-
-
-
-
-
 
 
 -----
@@ -532,15 +349,8 @@ vtb不是靠皮套就能赢得。
 ##### 25#       发表于 2020-12-31 07:13
 
 
-
-
 到现在还有人没意识到vtb的本质就是批皮女主播吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 花这种没用的钱还不如发挥艺人经纪公司的长处目色几个开朗漂亮的宅圈公主加以偶像培训，当成虚拟偶像团体推出
-
-
-
-
-
 
 
 -----
@@ -549,14 +359,7 @@ vtb不是靠皮套就能赢得。
 ##### 26#       发表于 2020-12-31 07:52
 
 
-
-
 vtb能不能火什么时候变成靠技术竞争了，从这产业短短几年发展来看从来都是被恶俗烂人制造话题引流火起来的好吧。
-
-
-
-
-
 
 
 -----
@@ -565,16 +368,10 @@ vtb能不能火什么时候变成靠技术竞争了，从这产业短短几年�
 ##### 27#       发表于 2020-12-31 07:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49894756&amp;ptid=1980451" target="_blank">kanaviz 发表于 2020-12-31 07:13</a>
 到现在还有人没意识到vtb的本质就是批皮女主播吗
 花这种没用的钱还不如发挥艺人经纪公司的长处目色 ...</blockquote>
 这不是战斗吧歌姬那套吗 然后还不是被日本v乱干
-
-
-
-
-
 
 
 -----
@@ -583,14 +380,7 @@ vtb能不能火什么时候变成靠技术竞争了，从这产业短短几年�
 ##### 28#       发表于 2020-12-31 08:04
 
 
-
-
 草，评论区里全员运营anti，连粉圈生态都没搞起来，就这怎么打樱花妹
-
-
-
-
-
 
 
 -----
@@ -599,15 +389,9 @@ vtb能不能火什么时候变成靠技术竞争了，从这产业短短几年�
 ##### 29#       发表于 2020-12-31 08:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你知道国内有个全员动捕的虚拟主播组合战斗吧歌姬吗？
 
 —— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -616,16 +400,10 @@ vtb能不能火什么时候变成靠技术竞争了，从这产业短短几年�
 ##### 30#       发表于 2020-12-31 08:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49894889&amp;ptid=1980451" target="_blank">花生酱神侃 发表于 2020-12-31 08:04</a>
 
 草，评论区里全员运营anti，连粉圈生态都没搞起来，就这怎么打樱花妹</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑粉也是粉。嘉然评论区比视频好看多了
-
-
-
-
-
 
 
 -----
@@ -634,14 +412,7 @@ vtb能不能火什么时候变成靠技术竞争了，从这产业短短几年�
 ##### 31#       发表于 2020-12-31 08:17
 
 
-
-
 讲日语的话，热度会高一点<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -650,14 +421,7 @@ vtb能不能火什么时候变成靠技术竞争了，从这产业短短几年�
 ##### 32#       发表于 2020-12-31 08:17
 
 
-
-
 乐华也是腾讯系吧？
-
-
-
-
-
 
 
 -----
@@ -666,22 +430,13 @@ vtb能不能火什么时候变成靠技术竞争了，从这产业短短几年�
 ##### 33#       发表于 2020-12-31 08:21
 
 
-
-
 单指技术方面VTB不是典型的劣币驱逐良币
-
-
-
-
-
 
 
 -----
 
 ####  夜空疾走  
 ##### 34#       发表于 2020-12-31 08:31
-
-
 
 
 我最开始也以为VTB是一门先进工业娱乐，其中的部件包括中之人都可以像损耗件一样换。
@@ -693,26 +448,15 @@ vtb能不能火什么时候变成靠技术竞争了，从这产业短短几年�
 然后传播力度大的都是会整活的，跟皮好不好看其实没太多关系。娱乐公司投入这么大，乐意让艺人随意整活？
 
 
-
-
-
-
-
 -----
 
 ####  花生酱神侃  
 ##### 35#       发表于 2020-12-31 08:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49894940&amp;ptid=1980451" target="_blank">粉色猛男 发表于 2020-12-31 08:16</a>
 黑粉也是粉。嘉然评论区比视频好看多了</blockquote>
 刚了解了下，读鼠人日记也太走心了，运营这不是很懂吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -721,14 +465,7 @@ vtb能不能火什么时候变成靠技术竞争了，从这产业短短几年�
 ##### 36#       发表于 2020-12-31 08:36
 
 
-
-
 3D势不就早就被证明不如2D了吗？你看现在主流都是Live2D，日常杂谈或者游戏实况只露半身的根本用不到3D，3D只在露全身比如跳舞VR联动整活之类的时候用。
-
-
-
-
-
 
 
 -----
@@ -737,15 +474,9 @@ vtb能不能火什么时候变成靠技术竞争了，从这产业短短几年�
 ##### 37#       发表于 2020-12-31 08:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">HH的动捕这么牛逼，还不是常年被各路live2d吊打，优势只体现在MV和py各路vtb上
 
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -754,22 +485,13 @@ vtb能不能火什么时候变成靠技术竞争了，从这产业短短几年�
 ##### 38#       发表于 2020-12-31 08:55
 
 
-
-
 我觉得2d吊打3d纯粹是因为样本太少，而且这个圈子太过于借鉴🇯🇵人的想法了
-
-
-
-
-
 
 
 -----
 
 ####  kurararara  
 ##### 39#       发表于 2020-12-31 08:57
-
-
 
 
 不是，真的这么多人觉得嘉然技术力强吗
@@ -779,25 +501,13 @@ vtb能不能火什么时候变成靠技术竞争了，从这产业短短几年�
 也就是个动捕能看。。。。。。
 
 
-
-
-
-
-
 -----
 
 ####  CrayS1  
 ##### 40#       发表于 2020-12-31 09:00
 
 
-
-
 技术的进化对观众来说肯定是好事儿啊 怎么会没用。
-
-
-
-
-
 
 
 -----
@@ -806,14 +516,7 @@ vtb能不能火什么时候变成靠技术竞争了，从这产业短短几年�
 ##### 41#       发表于 2020-12-31 09:03
 
 
-
-
 新网游综合讨论区是哪个区啊<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -822,21 +525,13 @@ vtb能不能火什么时候变成靠技术竞争了，从这产业短短几年�
 ##### 42#       发表于 2020-12-31 09:05
 
 
-
-
 太油腻了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不够二次元
-
-
-
-
-
 
 
 -----
 
 ####  未来起航  
 ##### 43#       发表于 2020-12-31 09:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49895187&amp;ptid=1980451" target="_blank">无念 发表于 2020-12-31 08:54</a>
@@ -848,25 +543,13 @@ HH的动捕这么牛逼，还不是常年被各路live2d吊打，优势只体现
 —— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  baoer  
 ##### 44#       发表于 2020-12-31 09:17
 
 
-
-
 好家伙评论区各种经典老活全整一遍
-
-
-
-
-
 
 
 -----
@@ -875,20 +558,13 @@ HH的动捕这么牛逼，还不是常年被各路live2d吊打，优势只体现
 ##### 45#       发表于 2020-12-31 09:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">回忆了下狐叔，emmm。。。感叹V圈思想变化真的快
-
-
-
-
-
 
 
 -----
 
 ####  千里夜雨  
 ##### 46#       发表于 2020-12-31 09:32
-
 
 
  本帖最后由 千里夜雨 于 2020-12-31 09:48 编辑 
@@ -925,25 +601,13 @@ qnmd我干嘛不一开始就看真人
 并非不能实现，但既然如此，离谱的事还能说少吗？
 
 
-
-
-
-
-
 -----
 
 ####  半点孤灯  
 ##### 47#       发表于 2020-12-31 10:43
 
 
-
-
 皮套只是V的一部分，再生动也要中之人能说学逗唱，不能整活没看头<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -952,16 +616,10 @@ qnmd我干嘛不一开始就看真人
 ##### 48#       发表于 2020-12-31 10:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49894564&amp;ptid=1980451" target="_blank">Lucio 发表于 2020-12-31 03:47</a>
 
 我已经看了半个月，泥哥鸵鸟一个月，现在v8和泥哥正在大战中。</blockquote>
 求尅 鸵鸟一个月是什么意思，   大战详情是什么<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -970,16 +628,10 @@ qnmd我干嘛不一开始就看真人
 ##### 49#       发表于 2020-12-31 10:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49894738&amp;ptid=1980451" target="_blank">晩韶华 发表于 2020-12-31 07:02</a>
 
 相声这皮套比vtb不知道低到哪里去，说明vtb也是讲究说学逗唱，皮套只是装饰，二刺螈小丑不会明白的 ...</blockquote>
 vtb说学逗唱就会一个骚字。
-
-
-
-
-
 
 
 -----
@@ -988,22 +640,13 @@ vtb说学逗唱就会一个骚字。
 ##### 50#       发表于 2020-12-31 10:50
 
 
-
-
 还以为乐华搞的是kda那种，居然就是一般的vtb么，如果是kda那种我还有点兴趣
-
-
-
-
-
 
 
 -----
 
 ####  prattwhitney  
 ##### 51#       发表于 2020-12-31 10:52
-
-
 
 
 上半年因为公司转型的原因研究过管人的技术，结论是没有门槛，个人的话不花一分钱能搭起来全管线，上限也就几万块这个级别，其实最大的技术问题还是捏人，2D角色其实有完全现成的工具，3D的话要做到epic的Siren那个级别的话捏人就要大几十万，这是专门的影视级别的公司在负责的
@@ -1015,17 +658,10 @@ vtb说学逗唱就会一个骚字。
 但问题仍然还是运营本身，技术没有门槛就意味着根本不赚钱，就现在的管人市场可能搞个垄断公司大概能够支撑得起来这么套管线，想要靠技术收钱，基本没戏
 
 
-
-
-
-
-
 -----
 
 ####  Zurlg  
 ##### 52#       发表于 2020-12-31 11:08
-
-
 
 
 V重要的还是机师啊，当年holo一堆2d皮靠切片吊打b站，就是因为夸、狐坦这批机师玩得好
@@ -1037,25 +673,13 @@ V重要的还是机师啊，当年holo一堆2d皮靠切片吊打b站，就是因
 所以国V要想火，皮真不是太重要的事情
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 53#       发表于 2020-12-31 11:10
 
 
-
-
 技术偏好的宅宅偏理性，没几个月就拔吊无情了，和培养饭圈犯冲，不看好
-
-
-
-
-
 
 
 -----
@@ -1064,14 +688,7 @@ V重要的还是机师啊，当年holo一堆2d皮靠切片吊打b站，就是因
 ##### 54#       发表于 2020-12-31 11:22
 
 
-
-
 那个穿越火线的虚拟直播技术不比这个强多了，什么狐狸什么的。
-
-
-
-
-
 
 
 -----
@@ -1080,14 +697,7 @@ V重要的还是机师啊，当年holo一堆2d皮靠切片吊打b站，就是因
 ##### 55#       发表于 2020-12-31 11:23
 
 
-
-
 你们管人没有自己的论坛嘛
-
-
-
-
-
 
 
 -----
@@ -1096,21 +706,13 @@ V重要的还是机师啊，当年holo一堆2d皮靠切片吊打b站，就是因
 ##### 56#       发表于 2020-12-31 11:27
 
 
-
-
 底下的评论区太搞笑了，虽然虚拟主播只看过新科娘之类的不太懂他们的梗，但那股阴阳巨魔味把我整乐了
-
-
-
-
-
 
 
 -----
 
 ####  rubinliu  
 ##### 57#       发表于 2020-12-31 11:31
-
 
 
 <blockquote>kanaviz 发表于 2020-12-31 07:13
@@ -1122,16 +724,10 @@ V重要的还是机师啊，当年holo一堆2d皮靠切片吊打b站，就是因
 宅圈公主可以吗？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  扎克远山  
 ##### 58#       发表于 2020-12-31 11:51
-
 
 
 <blockquote>midearth 发表于 2020-12-31 06:12
@@ -1142,17 +738,10 @@ V重要的还是机师啊，当年holo一堆2d皮靠切片吊打b站，就是因
 以我看的Vtuber来说，姬雏就比爱酱要好，至少不穿模
 
 
-
-
-
-
-
 -----
 
 ####  敖轩  
 ##### 59#       发表于 2020-12-31 11:54
-
-
 
 
 嘉然确实顶，我已经是嘉人了。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
@@ -1160,17 +749,10 @@ V重要的还是机师啊，当年holo一堆2d皮靠切片吊打b站，就是因
 —— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  与太郎  
 ##### 60#       发表于 2020-12-31 12:23
-
-
 
 
 有关设备和软件的内容是有可靠信源还是lz推测，有信源的话方便贴一下吗？我的认识和lz的说法有出入（比如说，穿模还是会穿的）。
@@ -1182,26 +764,15 @@ V重要的还是机师啊，当年holo一堆2d皮靠切片吊打b站，就是因
 不过只要a-soul的各位能经常直播我就很高兴了🥰🥰🥰
 
 
-
-
-
-
-
 -----
 
 ####  SuperCK  
 ##### 61#       发表于 2020-12-31 12:39
 
 
-
  本帖最后由 SuperCK 于 2020-12-31 12:44 编辑 
 
 何必移到v版，这帖子留在外野也挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1210,17 +781,10 @@ V重要的还是机师啊，当年holo一堆2d皮靠切片吊打b站，就是因
 ##### 62#       发表于 2020-12-31 13:01
 
 
-
-
 这是不是近期Asoul的流量文主攻方向啊，目标群体还是不怎么看v的…且不说HH老爱之类的特化大山，本身技术也还没超越虹（杏由于中之人太菜看不出什么名堂），拿什么吹橄榄，连本土隔壁RV都比不起，尬不尬啊。你Asoul但凡看到了这楼能不能回去反思一下自己脑子里装的什么水<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 不是没有亮点，嘉然和向晚的评论区和弹幕区都特别巨魔味儿，互动效果意外的不错，我觉得算是直播效果的一部分，但是弹幕ping太高了。本身内容不是特别喜欢，剧本味太浓，只能自己滤镜了。以及几次直播下来可以发现成员技能水平，呃只能说有亮点（
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -1229,16 +793,9 @@ V重要的还是机师啊，当年holo一堆2d皮靠切片吊打b站，就是因
 ##### 63#       发表于 2020-12-31 13:09
 
 
-
-
 能告诉我为什么战斗吧歌姬才这点粉丝吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
-
 
 
 -----
@@ -1247,13 +804,7 @@ V重要的还是机师啊，当年holo一堆2d皮靠切片吊打b站，就是因
 ##### 64#       发表于 2020-12-31 14:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">楼主想表达啥啊，想讨论技术可以一起聊聊。
-
-
-
-
-
 
 
 -----
@@ -1262,23 +813,15 @@ V重要的还是机师啊，当年holo一堆2d皮靠切片吊打b站，就是因
 ##### 65#       发表于 2020-12-31 14:16
 
 
-
-
 不知道小希小桃那种的技术怎么样，活儿倒是挺好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 —— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
 
 ####  白龙  
 ##### 66#         楼主| 发表于 2020-12-31 14:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49898451&amp;ptid=1980451" target="_blank">伊可费斯 发表于 2020-12-31 14:04</a>
@@ -1290,17 +833,10 @@ V重要的还是机师啊，当年holo一堆2d皮靠切片吊打b站，就是因
 但了解了一下发现，个人难以低成本复现
 
 
-
-
-
-
-
-
 -----
 
 ####  OldGlory  
 ##### 67#       发表于 2020-12-31 15:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49898720&amp;ptid=1980451" target="_blank">白龙 发表于 2020-12-31 14:32</a>
@@ -1312,32 +848,19 @@ V重要的还是机师啊，当年holo一堆2d皮靠切片吊打b站，就是因
 乐华现在每开一场直播都在亏钱
 
 
-
-
-
-
-
 -----
 
 ####  cheatdeath3  
 ##### 68#       发表于 2020-12-31 15:08
 
 
-
-
 最后还是移到了v区。hh和歌姬算是技术力的代表吧？但放眼望去全头部v是纸片人。
-
-
-
-
-
 
 
 -----
 
 ####  苏西踩我了  
 ##### 69#       发表于 2020-12-31 15:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49894639&amp;ptid=1980451" target="_blank">白龙 发表于 2020-12-31 05:04</a>
@@ -1349,16 +872,10 @@ fofmat这个关键词油管、google上搜不出来
 是我打错了……她账号是Fofamit
 
 
-
-
-
-
-
 -----
 
 ####  szrxs  
 ##### 70#       发表于 2020-12-31 15:48
-
 
 
  本帖最后由 szrxs 于 2020-12-31 15:52 编辑 
@@ -1368,16 +885,10 @@ VTB大家2D化不就是因为3D设备昂贵所产生的劣化版，而且3D在�
 看V就图一个轻松娱乐，还有偶尔挖到宝藏的惊喜感，这些东西跟2D或者3D没有直接关联，不存在什么吊打不吊打
 
 
-
-
-
-
-
 -----
 
 ####  Lucio  
 ##### 71#       发表于 2020-12-31 15:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49896369&amp;ptid=1980451" target="_blank">Magifish 发表于 2020-12-31 10:44</a>
@@ -1388,17 +899,10 @@ VTB大家2D化不就是因为3D设备昂贵所产生的劣化版，而且3D在�
 昨天晚上是嘉然第3回独播节目效果，单单论台本放🌸妹那里切得出起码4个神回。节目效果实在太好了，一群人纷纷上船打大SC。由于之前尼哥的抵制，提到asoul，马上就是🔒，切片二创团队对于尼哥无不抱有很强的敌意。神回之后再也憋不住，防空洞给干崩了。被正面打穿。
 
 
-
-
-
-
-
 -----
 
 ####  qw945  
 ##### 72#       发表于 2020-12-31 16:11
-
-
 
 
 歌姬顶着3d皮有事没事就和纸片人联动画画，我人都看麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怕不是钱多
@@ -1406,16 +910,10 @@ VTB大家2D化不就是因为3D设备昂贵所产生的劣化版，而且3D在�
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  白龙  
 ##### 73#         楼主| 发表于 2020-12-31 16:27
-
 
 
  本帖最后由 白龙 于 2020-12-31 16:30 编辑 
@@ -1428,16 +926,10 @@ VTB大家2D化不就是因为3D设备昂贵所产生的劣化版，而且3D在�
 所以直接就麻爪了
 
 
-
-
-
-
-
 -----
 
 ####  AEmpire  
 ##### 74#       发表于 2020-12-31 17:52
-
 
 
 [https://www.bilibili.com/video/BV1JK4y1f7bL](https://www.bilibili.com/video/BV1JK4y1f7bL)
@@ -1449,26 +941,15 @@ twitch上倒是有不少深耕3D技术的个人V，其中比较强的可以提�
 动捕服13500刀（半价）+配套动捕软件9000刀/年，面部设备用的是iPhone X（1000刀）+Live Link Face（免费），楼主可以看看
 
 
-
-
-
-
-
 -----
 
 ####  LamdaHT  
 ##### 75#       发表于 2021-1-4 08:18
 
 
-
  本帖最后由 LamdaHT 于 2021-1-4 08:23 编辑 
 
 感觉很多讨论A-Soul的可能真的连看都没看过。嘉然的机师技术都算差，想知道他们能看得上哪些机师<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">另外怎么就黑粉也是粉了，主动切片，主动找民间切片的怎么也不能说黑粉吧，难道真的MMR入脑感觉提改进意见都是黑了？
-
-
-
-
-
 
 
 -----
@@ -1477,14 +958,7 @@ twitch上倒是有不少深耕3D技术的个人V，其中比较强的可以提�
 ##### 76#       发表于 2021-1-4 10:01
 
 
-
-
 问题是乐华到底有没有变现手法<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1493,16 +967,9 @@ twitch上倒是有不少深耕3D技术的个人V，其中比较强的可以提�
 ##### 77#       发表于 2021-1-4 10:46
 
 
-
-
 我关注的玩小众卡牌游戏的up也开始剪这asoul的视屏了，还以为是看错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 这家的东西是真厉害，但她们吸引到的观众应该有相当一部分之前不看虚拟主播吧。能够稳定观看她们直播、视屏成为粉丝的，以后也可能看其他vtbvup，这么想其实也挺好的。
-
-
-
-
-
 
 
 -----
@@ -1511,22 +978,15 @@ twitch上倒是有不少深耕3D技术的个人V，其中比较强的可以提�
 ##### 78#       发表于 2021-1-4 10:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49931745&amp;ptid=1980451" target="_blank">Sakaiyuki 发表于 2021-1-4 10:01</a>
 问题是乐华到底有没有变现手法</blockquote>
 这种体量的公司怎么会去追求短期利益<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  seki_m  
 ##### 79#       发表于 2021-1-4 10:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49932112&amp;ptid=1980451" target="_blank">四口神 发表于 2021-1-4 10:46</a>
@@ -1537,16 +997,10 @@ twitch上倒是有不少深耕3D技术的个人V，其中比较强的可以提�
 <img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">拓圈当然好，只是看乐华进来的观众还能不能看得上live2d这种cylx
 
 
-
-
-
-
-
 -----
 
 ####  四口神  
 ##### 80#       发表于 2021-1-4 10:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49932179&amp;ptid=1980451" target="_blank">seki_m 发表于 2021-1-4 10:53</a>
@@ -1555,26 +1009,14 @@ twitch上倒是有不少深耕3D技术的个人V，其中比较强的可以提�
 本来不看虚拟主播的话多一个来看也是多啊，l2d的二次元浓度高一些，多少也会有人来看的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  poipanchao  
 ##### 81#       发表于 2021-1-4 10:56
 
 
-
-
 vtuber被彩虹原罪拉低到纸片人
 被乐华重新拉回去不也挺好
-
-
-
-
-
 
 
 -----
@@ -1583,16 +1025,10 @@ vtuber被彩虹原罪拉低到纸片人
 ##### 82#       发表于 2021-1-4 11:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49932158&amp;ptid=1980451" target="_blank">伊可费斯 发表于 2021-1-4 10:51</a>
 
 这种体量的公司怎么会去追求短期利益</blockquote>
 总得有点吧……这也不是个搞练习生的路子啊
-
-
-
-
-
 
 
 -----
@@ -1601,14 +1037,7 @@ vtuber被彩虹原罪拉低到纸片人
 ##### 83#       发表于 2021-1-4 11:11
 
 
-
-
 看一天算一天吧，说不定哪天就撤项了
-
-
-
-
-
 
 
 -----
@@ -1617,22 +1046,15 @@ vtuber被彩虹原罪拉低到纸片人
 ##### 84#       发表于 2021-1-4 11:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49932391&amp;ptid=1980451" target="_blank">Sakaiyuki 发表于 2021-1-4 11:10</a>
 总得有点吧……这也不是个搞练习生的路子啊</blockquote>
 要说怎么变现，日v也没啥啊，还是传统ip路子，有人气了周边，线下live，工商。
-
-
-
-
-
 
 
 -----
 
 ####  斯大林的拖拉机  
 ##### 85#       发表于 2021-1-4 11:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49932158&amp;ptid=1980451" target="_blank">伊可费斯 发表于 2021-01-04 10:51:24</a>
@@ -1642,27 +1064,15 @@ vtuber被彩虹原罪拉低到纸片人
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  kikiwalu  
 ##### 86#       发表于 2021-1-4 11:58
 
 
-
-
 乐华有带来啥歌姬没搞过的内容吗，歌姬都处于半扑街状态乐华哪来的自信不会继续扑<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -1671,14 +1081,7 @@ vtuber被彩虹原罪拉低到纸片人
 ##### 87#       发表于 2021-1-4 13:59
 
 
-
-
 以前企业势都是流行这种3D的v，好是好，问题只有一个，回不了本，成本太贵了
-
-
-
-
-
 
 
 -----
@@ -1687,14 +1090,7 @@ vtuber被彩虹原罪拉低到纸片人
 ##### 88#       发表于 2021-1-4 14:40
 
 
-
-
 然后油管头部樱花妹都是纸片人<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">3D成本还是太高了，想要做出好效果更是费钱，不知道乐华能撑多久。。
-
-
-
-
-
 
 
 -----
@@ -1703,14 +1099,7 @@ vtuber被彩虹原罪拉低到纸片人
 ##### 89#       发表于 2021-1-4 14:53
 
 
-
-
 且看就完事了，我一直是抱着asoul下个月就被乐华砍毕业的预期看她们直播的<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1719,21 +1108,13 @@ vtuber被彩虹原罪拉低到纸片人
 ##### 90#       发表于 2021-1-4 14:56
 
 
-
-
 目前来看变现确实不大容易，现在基本上就是播一场亏一场。不过别学尼哥贷款吃屎那一套了，现在直播效果好看就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  smy20011  
 ##### 91#       发表于 2021-1-4 16:01
-
 
 
 <blockquote>AEmpire 发表于 2020-12-31 17:52
@@ -1744,25 +1125,13 @@ twitch上倒是有不少深耕3D技术的个人V，其中比较强的可以提 .
 主要是动捕软件贵。。
 
 
-
-
-
-
-
 -----
 
 ####  MAO_DREAMER  
 ##### 92#       发表于 2021-1-4 17:04
 
 
-
-
 我比较期待以后她们主流出道的样子<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1771,15 +1140,11 @@ twitch上倒是有不少深耕3D技术的个人V，其中比较强的可以提 .
 ##### 93#       发表于 2021-1-4 17:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49932112&amp;ptid=1980451" target="_blank">四口神 发表于 2021-1-4 10:46</a>
 我关注的玩小众卡牌游戏的up也开始剪这asoul的视屏了，还以为是看错了
 
 这家的东西是真厉害，但她们 ...</blockquote>
 啊这 说的是我了
-
-
-
 
 
                                               

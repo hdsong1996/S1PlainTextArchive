@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2020-02-12 20:28** 
 
 
-
 -----
 
 ####  盖娅  
 ##### 1#       楼主       发表于 2016-5-9 19:39
-
 
 
  本帖最后由 盖娅 于 2018-12-7 13:17 编辑 
@@ -28,7 +26,6 @@
 [https://www.bilibili.com/video/a ... 7985336977742947336](https://www.bilibili.com/video/av36413248?from=search&amp;seid=17985336977742947336)
 
 
-
 ----------------------------------------------------------------------------------------------------------------
 
 2018.5.23
@@ -37,10 +34,8 @@
 [https://www.bilibili.com/video/av23799034](https://www.bilibili.com/video/av23799034)
 
 
-
 [开发团队] Niven更新（2.1.0）发布[总和校验码01a9]【群星吧】_百度贴吧
 [https://tieba.baidu.com/p/5711635465](https://tieba.baidu.com/p/5711635465)
-
 
 
 2018.2.22
@@ -50,7 +45,6 @@
 
 【中文字幕】群星:启示录 - 发售_单机游戏_游戏_bilibili_哔哩哔哩
 [https://www.bilibili.com/video/av19923689/](https://www.bilibili.com/video/av19923689/)
-
 
 
 2018.1.11
@@ -94,7 +88,6 @@ p社在steam发行商周末！随同群星与eu 新dlc 发售 一起打折，想
 为被奴役的种族选择特定角色，最大限度地提高奴役制度的效益。使他们作为家奴为其他 Pops 服务，作为战斗奴隶为帝国而战，也可以将其作为家畜圈养，以便为你的人民提供食物。
 先进的政府:
 为你的政府设立独特的民政和权力机构。充当狂热的净化者，并避免所有外交，形成蜂巢思维，避免政治纷争，或者通过共同进化创造多种族帝国。
-
 
 
 ↑--------------------------------------------------------------------------2017-4-8 
@@ -145,29 +138,15 @@ Stellaris百度贴吧
 -------------------------------------------------------------------------
 
 
-
-
-
-
-
-
-
 -----
 
 ####  dxx9665  
 ##### 2#       发表于 2016-5-9 19:52
 
 
-
-
 杉果入了
 
 今晚试试看怎么样
-
-
-
-
-
 
 
 -----
@@ -176,14 +155,7 @@ Stellaris百度贴吧
 ##### 3#       发表于 2016-5-9 19:53
 
 
-
-
 先观望
-
-
-
-
-
 
 
 -----
@@ -192,14 +164,7 @@ Stellaris百度贴吧
 ##### 4#       发表于 2016-5-9 19:54
 
 
-
-
 买了nova版，安心等下载。
-
-
-
-
-
 
 
 -----
@@ -208,14 +173,7 @@ Stellaris百度贴吧
 ##### 5#       发表于 2016-5-9 19:59
 
 
-
-
 p社的游戏不是要等2-3个dlc才能玩吗
-
-
-
-
-
 
 
 -----
@@ -224,14 +182,7 @@ p社的游戏不是要等2-3个dlc才能玩吗
 ##### 6#       发表于 2016-5-9 20:00
 
 
-
-
 设定来看，没有汉化，一般的英文水平很难玩的样子。。。
-
-
-
-
-
 
 
 -----
@@ -240,14 +191,7 @@ p社的游戏不是要等2-3个dlc才能玩吗
 ##### 7#       发表于 2016-5-9 20:07
 
 
-
-
 现在是付费内测阶段<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -256,14 +200,7 @@ p社的游戏不是要等2-3个dlc才能玩吗
 ##### 8#       发表于 2016-5-9 20:14
 
 
-
-
 P社的游戏我还是等3个DLC再看……
-
-
-
-
-
 
 
 -----
@@ -272,13 +209,7 @@ P社的游戏我还是等3个DLC再看……
 ##### 9#       发表于 2016-5-9 20:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">等几个版本再玩
-
-
-
-
-
 
 
 -----
@@ -287,14 +218,7 @@ P社的游戏我还是等3个DLC再看……
 ##### 10#       发表于 2016-5-9 20:21
 
 
-
-
 还是等汉化先
-
-
-
-
-
 
 
 -----
@@ -303,21 +227,13 @@ P社的游戏我还是等3个DLC再看……
 ##### 11#       发表于 2016-5-9 20:25
 
 
-
-
 等几个dlc下个汉化整合版(￣▽￣)"
-
-
-
-
-
 
 
 -----
 
 ####  Inquisitor  
 ##### 12#       发表于 2016-5-9 20:42
-
 
 
 <blockquote>引用第4楼zerg12345于2016-05-09 19:59发表的  :
@@ -331,25 +247,13 @@ p社的游戏不是要等2-3个dlc才能玩吗</blockquote>
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  RGm  
 ##### 13#       发表于 2016-5-9 20:56
 
 
-
-
 虽然不太可能但还是希望BUG能少点
-
-
-
-
-
 
 
 -----
@@ -358,14 +262,7 @@ p社的游戏不是要等2-3个dlc才能玩吗</blockquote>
 ##### 14#       发表于 2016-5-9 21:39
 
 
-
-
 p社这个小作坊简直了，连个预载都没有
-
-
-
-
-
 
 
 -----
@@ -374,13 +271,7 @@ p社这个小作坊简直了，连个预载都没有
 ##### 15#       发表于 2016-5-9 21:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">虽然买了但是还要等汉化……
-
-
-
-
-
 
 
 -----
@@ -389,14 +280,7 @@ p社这个小作坊简直了，连个预载都没有
 ##### 16#       发表于 2016-5-9 21:59
 
 
-
-
 等试毒……这些历史厂做的太空作都有点虚……
-
-
-
-
-
 
 
 -----
@@ -405,23 +289,15 @@ p社这个小作坊简直了，连个预载都没有
 ##### 17#       发表于 2016-5-9 22:06
 
 
-
-
 等试毒+1
 
 p社的无印版，外加新题材，得观望啊……
-
-
-
-
-
 
 
 -----
 
 ####  卖哥  
 ##### 18#       发表于 2016-5-9 23:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32382662&amp;ptid=1275523" target="_blank">Inquisitor 发表于 2016-5-9 20:42</a>
@@ -432,25 +308,13 @@ p社的无印版，外加新题材，得观望啊……
 音乐包、小说、头像包什么就不要算了，现在这个买银河版都有4个这种DLC。
 
 
-
-
-
-
-
 -----
 
 ####  奈良円光  
 ##### 19#       发表于 2016-5-9 23:53
 
 
-
-
 别提预载了…现在还不能开始安装……
-
-
-
-
-
 
 
 -----
@@ -459,14 +323,7 @@ p社的无印版，外加新题材，得观望啊……
 ##### 20#       发表于 2016-5-10 00:18
 
 
-
-
 明天起来搞，今晚先睡了<img src="https://static.saraba1st.com/image/smiley/normal/055.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -475,14 +332,7 @@ p社的无印版，外加新题材，得观望啊……
 ##### 21#       发表于 2016-5-10 00:23
 
 
-
-
 给Youtube和Twitch上那些实况主测试的结果是挖出了很多bug和不完善的地方，像是现在奴隶制和集体主义过强，个人主义完全没有能看的科技和加成，用怪招可以轻易和FE打出白和平。既然有P社信徒大量预购，我还是等几个DLC打折再买好了。
-
-
-
-
-
 
 
 -----
@@ -491,14 +341,7 @@ p社的无印版，外加新题材，得观望啊……
 ##### 22#       发表于 2016-5-10 00:26
 
 
-
-
 等打折再买<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -507,14 +350,7 @@ p社的无印版，外加新题材，得观望啊……
 ##### 23#       发表于 2016-5-10 00:33
 
 
-
-
 完全蒙逼了，不知道该干啥，明天再说吧
-
-
-
-
-
 
 
 -----
@@ -523,21 +359,13 @@ p社的无印版，外加新题材，得观望啊……
 ##### 24#         楼主| 发表于 2016-5-10 00:34
 
 
-
-
 根据玩家初步透露，游戏初期玩法感觉比较像文明、太阳帝国等，看深入下去怎么样
-
-
-
-
-
 
 
 -----
 
 ####  cools  
 ##### 25#       发表于 2016-5-10 00:35
-
 
 
  本帖最后由 cools 于 2018-5-22 10:11 编辑 
@@ -547,28 +375,16 @@ p社的无印版，外加新题材，得观望啊……
 还在下载游戏的看着直播眼馋
 
 
-
-
-
-
-
 -----
 
 ####  stargazer093  
 ##### 26#       发表于 2016-5-10 00:53
 
 
-
-
 总之目前出的评测除了ign主机猴子给了6.3，别的都是大好评
 
 
 妈蛋，好想赶快回家！
-
-
-
-
-
 
 
 -----
@@ -577,17 +393,10 @@ p社的无印版，外加新题材，得观望啊……
 ##### 27#       发表于 2016-5-10 00:53
 
 
-
-
 总之目前出的评测除了ign主机猴子给了6.3，别的都是大好评
 
 
 妈蛋，好想赶快回家！
-
-
-
-
-
 
 
 -----
@@ -596,21 +405,13 @@ p社的无印版，外加新题材，得观望啊……
 ##### 28#       发表于 2016-5-10 01:00
 
 
-
-
 好好好买买买
-
-
-
-
-
 
 
 -----
 
 ####  畜男不是人  
 ##### 29#       发表于 2016-5-10 01:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32383864&amp;amp;ptid=1275523" target="_blank">cools 发表于 2016-5-10 00:35</a>
@@ -620,16 +421,10 @@ p社的无印版，外加新题材，得观望啊……
 求个群号
 
 
-
-
-
-
-
 -----
 
 ####  cools  
 ##### 30#       发表于 2016-5-10 01:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32384058&amp;ptid=1275523" target="_blank">畜男不是人 发表于 2016-5-10 01:18</a>
@@ -638,25 +433,13 @@ p社的无印版，外加新题材，得观望啊……
 <img src="https://static.saraba1st.com/image/smiley/nq/013.gif" referrerpolicy="no-referrer">看楼主签名
 
 
-
-
-
-
-
 -----
 
 ####  bwjx88  
 ##### 31#       发表于 2016-5-10 02:18
 
 
-
-
 先观望 感觉好复杂
-
-
-
-
-
 
 
 -----
@@ -665,22 +448,13 @@ p社的无印版，外加新题材，得观望啊……
 ##### 32#       发表于 2016-5-10 03:19
 
 
-
-
 弱问，怎么给船编队。。。 看上来默认有1234，自己造了新的怎么编，不是ctrl+数字好不开心
-
-
-
-
-
 
 
 -----
 
 ####  wangchaowind  
 ##### 33#       发表于 2016-5-10 06:55
-
-
 
 
 试了一下改 
@@ -690,25 +464,13 @@ p社的无印版，外加新题材，得观望啊……
 然后。。。。。大概。。汉字显示又得搞字库了
 
 
-
-
-
-
-
 -----
 
 ####  g54088  
 ##### 34#       发表于 2016-5-10 07:48
 
 
-
-
 早上玩了一个多小时，感觉还不错。开局一条战斗力快200的虫子穿越到母星边上，我都准备重开档了它自己跑了......
-
-
-
-
-
 
 
 -----
@@ -717,14 +479,7 @@ p社的无印版，外加新题材，得观望啊……
 ##### 35#       发表于 2016-5-10 08:17
 
 
-
-
 高分辨率不能调整ui大小 非常蛋疼，开4k分辨率眼睛要瞎
-
-
-
-
-
 
 
 -----
@@ -733,14 +488,7 @@ p社的无印版，外加新题材，得观望啊……
 ##### 36#       发表于 2016-5-10 08:56
 
 
-
-
 目前看起来，只惊艳了半小时（
-
-
-
-
-
 
 
 -----
@@ -749,14 +497,7 @@ p社的无印版，外加新题材，得观望啊……
 ##### 37#       发表于 2016-5-10 09:14
 
 
-
-
 感觉又是个大坑啊
-
-
-
-
-
 
 
 -----
@@ -765,16 +506,9 @@ p社的无印版，外加新题材，得观望啊……
 ##### 38#       发表于 2016-5-10 09:58
 
 
-
-
 等中文补丁...
 
 P社的游戏啃英文原版太累了...
-
-
-
-
-
 
 
 -----
@@ -783,14 +517,7 @@ P社的游戏啃英文原版太累了...
 ##### 39#       发表于 2016-5-10 11:10
 
 
-
-
 玩过vic2，eu4和文明全系列。群星玩了2小时，感觉挺好上手的，并没有什么特别难懂的地方。但是一些元素比较繁杂，界面交互上最好还能改进，现在倒是觉得一些操作上不够顺手，等整个文明规模扩大之后不知道会不会有太烦琐的感觉。
-
-
-
-
-
 
 
 -----
@@ -799,14 +526,7 @@ P社的游戏啃英文原版太累了...
 ##### 40#       发表于 2016-5-10 11:10
 
 
-
-
 玩过vic2，eu4和文明全系列。群星玩了2小时，感觉挺好上手的，并没有什么特别难懂的地方。但是一些元素比较繁杂，界面交互上最好还能改进，现在倒是觉得一些操作上不够顺手，等整个文明规模扩大之后不知道会不会有太烦琐的感觉。
-
-
-
-
-
 
 
 -----
@@ -815,14 +535,7 @@ P社的游戏啃英文原版太累了...
 ##### 41#       发表于 2016-5-10 11:15
 
 
-
-
 战斗画面有增强吗？或者还是和EU4一样 靠脑补
-
-
-
-
-
 
 
 -----
@@ -831,15 +544,9 @@ P社的游戏啃英文原版太累了...
 ##### 42#       发表于 2016-5-10 11:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32386620&amp;amp;ptid=1275523" target="_blank">战列驱逐舰POI 发表于 2016-5-10 11:15</a>
 战斗画面有增强吗？或者还是和EU4一样 靠脑补</blockquote>
 有舰队交战的实际画面，你的舰队遇到敌人就会自动贴上去无缝交战。我目前最低科技看到的是船飞来飞去然后射来射去。
-
-
-
-
-
 
 
 -----
@@ -848,23 +555,15 @@ P社的游戏啃英文原版太累了...
 ##### 43#       发表于 2016-5-10 11:19
 
 
-
-
 有舰队互biu和登陆舱降下的场面。听说早期招惹失落帝国就会导致家园星系瞬间被传13k的舰队，肥肠刺激
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (NOKIA Lumia 920)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
 
 ####  Sopp  
 ##### 44#       发表于 2016-5-10 11:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32384392&amp;ptid=1275523" target="_blank">halfelf_ronin 发表于 2016-5-10 03:19</a>
@@ -875,17 +574,10 @@ P社的游戏啃英文原版太累了...
 是ctrl+数字啊…………
 
 
-
-
-
-
-
 -----
 
 ####  战列驱逐舰POI  
 ##### 45#       发表于 2016-5-10 11:24
-
-
 
 
 先观望下 好玩就买个
@@ -893,16 +585,10 @@ P社的游戏啃英文原版太累了...
 中文没个大半年出不来
 
 
-
-
-
-
-
 -----
 
 ####  g54088  
 ##### 46#       发表于 2016-5-10 11:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32386669&amp;amp;ptid=1275523" target="_blank">大哀之君 发表于 2016-5-10 11:19</a>
@@ -913,27 +599,15 @@ P社的游戏啃英文原版太累了...
 我现在开了阿米巴虫群任务链，不知道会有什么效果。
 
 
-
-
-
-
-
 -----
 
 ####  大哀之君  
 ##### 47#       发表于 2016-5-10 11:32
 
 
-
-
 太空阿米巴？我记得维基上写的是解锁生体战舰的建造？
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (NOKIA Lumia 920)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
@@ -942,16 +616,9 @@ P社的游戏啃英文原版太累了...
 ##### 48#       发表于 2016-5-10 12:21
 
 
-
-
 杉果预购
 
 游戏已下载，今天晚上正式体验
-
-
-
-
-
 
 
 -----
@@ -960,14 +627,7 @@ P社的游戏啃英文原版太累了...
 ##### 49#       发表于 2016-5-10 12:47
 
 
-
-
 果然不是历史题材三大妈就准备入场汉化了。
-
-
-
-
-
 
 
 -----
@@ -976,17 +636,10 @@ P社的游戏啃英文原版太累了...
 ##### 50#       发表于 2016-5-10 12:49
 
 
-
-
 回家去steam上买
 
 
 欢迎大家加主楼的群劝群主女装（咦
-
-
-
-
-
 
 
 -----
@@ -995,14 +648,7 @@ P社的游戏啃英文原版太累了...
 ##### 51#       发表于 2016-5-10 13:34
 
 
-
-
 不说了，等第十个dlc出了再拉我起来<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1011,13 +657,7 @@ P社的游戏啃英文原版太累了...
 ##### 52#       发表于 2016-5-10 13:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">玩了一中午，被ai帝国日的不要不要的，他600多战斗力的舰队，我才400多，加上空间站还是打不过……
-
-
-
-
-
 
 
 -----
@@ -1026,14 +666,7 @@ P社的游戏啃英文原版太累了...
 ##### 53#       发表于 2016-5-10 13:44
 
 
-
-
 4X游戏先种地，战争不能占星就没多大利益
-
-
-
-
-
 
 
 -----
@@ -1042,14 +675,7 @@ P社的游戏啃英文原版太累了...
 ##### 54#       发表于 2016-5-10 14:15
 
 
-
-
 存档还是明码吗，全科技还能直接复制粘贴出来吗……
-
-
-
-
-
 
 
 -----
@@ -1058,14 +684,7 @@ P社的游戏啃英文原版太累了...
 ##### 55#       发表于 2016-5-10 14:21
 
 
-
-
 昨晚下载好了，下午可以来玩玩看了
-
-
-
-
-
 
 
 -----
@@ -1074,22 +693,15 @@ P社的游戏啃英文原版太累了...
 ##### 56#       发表于 2016-5-10 14:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32388353&amp;amp;ptid=1275523" target="_blank">naclken 发表于 2016-5-10 14:15</a>
 存档还是明码吗，全科技还能直接复制粘贴出来吗……</blockquote>
 应该还是明码，已经有人把初始点数改成999了。
-
-
-
-
-
 
 
 -----
 
 ####  johnjacksonlin  
 ##### 57#       发表于 2016-5-10 14:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32386669&amp;ptid=1275523" target="_blank">大哀之君 发表于 2016-5-10 11:19</a>
@@ -1100,32 +712,19 @@ P社的游戏啃英文原版太累了...
 之前P社自己搞的内部32人联机开始就是这样13k舰队，然后门口转一圈走了，哈哈哈哈哈
 
 
-
-
-
-
-
 -----
 
 ####  驴和标签  
 ##### 58#       发表于 2016-5-10 15:58
 
 
-
-
 操笔，锁区了，杉果买的没法玩。<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  redsibyl  
 ##### 59#       发表于 2016-5-10 17:11
-
 
 
  本帖最后由 redsibyl 于 2016-5-10 17:13 编辑 
@@ -1138,16 +737,10 @@ sentient AI那个科技。。。会有啥负面效果
 喷了会起义
 
 
-
-
-
-
-
 -----
 
 ####  fkinway  
 ##### 60#       发表于 2016-5-10 17:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32388439&amp;ptid=1275523" target="_blank">g54088 发表于 2016-5-10 14:24</a>
@@ -1156,25 +749,13 @@ sentient AI那个科技。。。会有啥负面效果
 还要改存档，p社这次终于把控制台删了？
 
 
-
-
-
-
-
 -----
 
 ####  丘萤之光  
 ##### 61#       发表于 2016-5-10 17:48
 
 
-
-
 好好好，等dlc，等汉化，等打折
-
-
-
-
-
 
 
 -----
@@ -1183,16 +764,10 @@ sentient AI那个科技。。。会有啥负面效果
 ##### 62#       发表于 2016-5-10 18:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32389335&amp;ptid=1275523" target="_blank">驴和标签 发表于 2016-5-10 15:58</a>
 
 操笔，锁区了，杉果买的没法玩。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">我刚买你别吓我...........
-
-
-
-
-
 
 
 -----
@@ -1201,16 +776,10 @@ sentient AI那个科技。。。会有啥负面效果
 ##### 63#       发表于 2016-5-10 19:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32390565&amp;ptid=1275523" target="_blank">ambivalence 发表于 2016-5-10 18:23</a>
 
 我刚买你别吓我...........</blockquote>
 steam毫无问题
-
-
-
-
-
 
 
 -----
@@ -1219,22 +788,13 @@ steam毫无问题
 ##### 64#       发表于 2016-5-10 19:13
 
 
-
-
 宇宙真小
-
-
-
-
-
 
 
 -----
 
 ####  wormz  
 ##### 65#       发表于 2016-5-10 19:46
-
-
 
 
 感觉操作有点烦
@@ -1244,16 +804,10 @@ steam毫无问题
 领土和影响力的限制感觉不错，爆铺流收到了很大的限制
 
 
-
-
-
-
-
 -----
 
 ####  驴和标签  
 ##### 66#       发表于 2016-5-10 19:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32390565&amp;ptid=1275523" target="_blank">ambivalence 发表于 2016-5-10 18:23</a>
@@ -1264,16 +818,10 @@ steam毫无问题
 如果你地理位置正常没有问题
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 67#       发表于 2016-5-10 19:55
-
 
 
 [http://live.bilibili.com/161053](http://live.bilibili.com/161053)
@@ -1282,25 +830,13 @@ steam毫无问题
 推荐直播 新手教学
 
 
-
-
-
-
-
 -----
 
 ####  kxh007458  
 ##### 68#       发表于 2016-5-10 20:06
 
 
-
-
 这随机科技真TM是屎一般的设定，第一个档打到最后被人灭都TM造不了驱逐舰，只能靠最初的那个船型来打，别人两三千的军力值我TM造满船位也就一千多一点，武器系统等级倒是上去了，但动力系统迟迟不能研发，炮没法全上最高级的，护盾也上不了。手握着几千资源根本花不掉。虽然做好要重开几次档的准备但还是被恶心到不行。
-
-
-
-
-
 
 
 -----
@@ -1309,22 +845,13 @@ steam毫无问题
 ##### 69#       发表于 2016-5-10 20:20
 
 
-
-
 确实随机科技挺吃屎的，所以加可选科技的种族优势就体现出来了
-
-
-
-
-
 
 
 -----
 
 ####  neunundneunzig  
 ##### 70#       发表于 2016-5-10 20:48
-
-
 
 
 星区和征服的机制还不是很理解
@@ -1351,17 +878,10 @@ steam毫无问题
 玩得还是有点摸不着头脑
 
 
-
-
-
-
-
 -----
 
 ####  大哀之君  
 ##### 71#       发表于 2016-5-11 07:02
-
-
 
 
 一个教训，收到外星信号不要忙着破译。占用自己的科研时间不说，还可能导致科研船被卡在犄角旮旯动弹不得
@@ -1369,16 +889,10 @@ steam毫无问题
     —— from [S1 Nyan](http://126.am/S1Nyan) (NOKIA Lumia 920)来自: WindowsPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  naclken  
 ##### 72#       发表于 2016-5-11 10:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32390198&amp;ptid=1275523" target="_blank">fkinway 发表于 2016-5-10 17:33</a>
@@ -1389,17 +903,10 @@ steam毫无问题
 存档直接复制粘贴一次全搞定了。
 
 
-
-
-
-
-
 -----
 
 ####  战列驱逐舰POI  
 ##### 73#       发表于 2016-5-11 11:46
-
-
 
 
 我记得有个软件是可以截屏翻译的？有谁知道吗
@@ -1407,16 +914,10 @@ steam毫无问题
 让我手打翻译  估计看完一个时间就要半小时
 
 
-
-
-
-
-
 -----
 
 ####  wormz  
 ##### 74#       发表于 2016-5-11 15:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32396580&amp;ptid=1275523" target="_blank">战列驱逐舰POI 发表于 2016-5-11 11:46</a>
@@ -1427,17 +928,10 @@ steam毫无问题
 google translate手机应用？
 
 
-
-
-
-
-
 -----
 
 ####  dxx9665  
 ##### 75#       发表于 2016-5-11 16:01
-
-
 
 
 微软必应词典
@@ -1449,17 +943,10 @@ google translate手机应用？
 玩游戏学英语
 
 
-
-
-
-
-
 -----
 
 ####  半分宅  
 ##### 76#       发表于 2016-5-12 06:08
-
-
 
 
 皮蛇对中文化作了一个回应：
@@ -1469,17 +956,10 @@ blabla一通之后，“the community is doing a pretty good job at making local
 “你们自己去汉化吧”
 
 
-
-
-
-
-
 -----
 
 ####  normalli  
 ##### 77#       发表于 2016-5-12 11:06
-
-
 
 
 目前基本弄明白主要的系统了，但具体玩法上还是一头雾水。
@@ -1489,25 +969,13 @@ blabla一通之后，“the community is doing a pretty good job at making local
 我觉得完全随机的开局虽然每局都不太一样，但不可控性太大，我觉得这游戏最好还是出个剧本模式或者剧情模式，不然上来才从0开始很多系统都没有出场机会可能我就弃档了，欧陆风云几乎所有国家都能破局，但stellaris你连自己是不是已经死局都没法判断，吃着火锅唱着歌外星人就来把你灭了。
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 78#       发表于 2016-5-12 11:17
 
 
-
-
 玩了一晚上还是在前期种田阶段，外交遇上的两个邻居都是上来就敌对就没管他们了。
-
-
-
-
-
 
 
 -----
@@ -1516,23 +984,16 @@ blabla一通之后，“the community is doing a pretty good job at making local
 ##### 79#       发表于 2016-5-12 12:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">我没玩过P社的游戏，第一个档20年还没随出移民船科技是我脸太黑了吗？
 
 
 还有就是直辖行星最多是只能有五个之后就必须划星区了是吗。。。
 
 
-
-
-
-
-
 -----
 
 ####  normalli  
 ##### 80#       发表于 2016-5-12 12:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32406444&amp;amp;ptid=1275523" target="_blank">路德维嘉 发表于 2016-5-12 12:05</a>
@@ -1543,32 +1004,19 @@ blabla一通之后，“the community is doing a pretty good job at making local
 一般开局必出新世界协议，没遇到没出的情况，但你要不研究就得等到猴年马月了
 
 
-
-
-
-
-
 -----
 
 ####  g54088  
 ##### 81#       发表于 2016-5-12 12:32
 
 
-
-
 殖民星球根本不需要多，扩展地盘靠边境卫星就可以了。我现在一大片地盘也才用了4个殖民星球名额。
-
-
-
-
-
 
 
 -----
 
 ####  neunundneunzig  
 ##### 82#       发表于 2016-5-12 12:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32406732&amp;ptid=1275523" target="_blank">g54088 发表于 2016-5-12 12:32</a>
@@ -1579,32 +1027,19 @@ blabla一通之后，“the community is doing a pretty good job at making local
 造一个减一点影响力收入啊
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 83#       发表于 2016-5-12 12:52
 
 
-
-
 影响力太缺 能源找不到地方用
-
-
-
-
-
 
 
 -----
 
 ####  卖哥  
 ##### 84#       发表于 2016-5-12 12:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32405803&amp;ptid=1275523" target="_blank">normalli 发表于 2016-5-12 11:06</a>
@@ -1617,17 +1052,10 @@ blabla一通之后，“the community is doing a pretty good job at making local
 我的建议是侦察范围内的星自动开图，有资源的、可能殖民的、有调查价值的会给个问号标识，科考船去具体调查用不着每个都跑。
 
 
-
-
-
-
-
 -----
 
 ####  ayarinwen  
 ##### 85#       发表于 2016-5-12 13:08
-
-
 
 
 有日语mod
@@ -1637,16 +1065,10 @@ blabla一通之后，“the community is doing a pretty good job at making local
 <img src="http://ww3.sinaimg.cn/large/7b4ccb27gw1f3sirj555mj211y0lcwj2.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  normalli  
 ##### 86#       发表于 2016-5-12 13:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32407100&amp;ptid=1275523" target="_blank">ayarinwen 发表于 2016-5-12 13:08</a>
@@ -1655,16 +1077,10 @@ blabla一通之后，“the community is doing a pretty good job at making local
 这次支持utf8编码，汉化方便了很多，hoi4也支持
 
 
-
-
-
-
-
 -----
 
 ####  大哀之君  
 ##### 87#       发表于 2016-5-12 13:42
-
 
 
 <blockquote>neunundneunzig 发表于 2016-5-12 12:44
@@ -1674,16 +1090,10 @@ blabla一通之后，“the community is doing a pretty good job at making local
 听说你把前哨站所在星系划给星区，这笔影响力就不用你自己支出了。可以试试
 
 
-
-
-
-
-
 -----
 
 ####  Anarkia  
 ##### 88#       发表于 2016-5-12 13:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32406732&amp;ptid=1275523" target="_blank">g54088 发表于 2016-5-12 12:32</a>
@@ -1694,25 +1104,13 @@ blabla一通之后，“the community is doing a pretty good job at making local
 殖民开疆需要做的就是观察离边境合适的距离上有没有可殖民星球，后期可殖民星球类型多了以后一般问题不大，只有某片星区没有可殖民星球而资源又颇丰富/战略位置重要的情况下我才会用哨站圈地
 
 
-
-
-
-
-
 -----
 
 ####  dxx9665  
 ##### 89#       发表于 2016-5-12 13:59
 
 
-
-
 殖民星球不是有上限么？
-
-
-
-
-
 
 
 -----
@@ -1721,14 +1119,7 @@ blabla一通之后，“the community is doing a pretty good job at making local
 ##### 90#       发表于 2016-5-12 14:19
 
 
-
-
 那个开始选项里面的FTL起什么作用？
-
-
-
-
-
 
 
 -----
@@ -1737,16 +1128,10 @@ blabla一通之后，“the community is doing a pretty good job at making local
 ##### 91#       发表于 2016-5-12 14:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32407595&amp;ptid=1275523" target="_blank">dxx9665 发表于 2016-5-12 13:59</a>
 
 殖民星球不是有上限么？</blockquote>
 那是直辖区上限，殖民可以一直殖。
-
-
-
-
-
 
 
 -----
@@ -1755,16 +1140,10 @@ blabla一通之后，“the community is doing a pretty good job at making local
 ##### 92#       发表于 2016-5-12 16:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32407852&amp;ptid=1275523" target="_blank">卖哥 发表于 2016-5-12 14:33</a>
 
 那是直辖区上限，殖民可以一直殖。</blockquote>
 直辖区和殖民这个能讲讲么？
-
-
-
-
-
 
 
 -----
@@ -1773,15 +1152,9 @@ blabla一通之后，“the community is doing a pretty good job at making local
 ##### 93#       发表于 2016-5-12 16:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32408575&amp;amp;ptid=1275523" target="_blank">dxx9665 发表于 2016-5-12 16:02</a>
 直辖区和殖民这个能讲讲么？</blockquote>
 类似ck2封地，管区会自己建设，给你上税，但会造反
-
-
-
-
-
 
 
 -----
@@ -1790,16 +1163,9 @@ blabla一通之后，“the community is doing a pretty good job at making local
 ##### 94#       发表于 2016-5-12 16:38
 
 
-
-
 为什么ai发展这么快，船总是没别人多。。。
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (NOKIA Lumia 920T)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
@@ -1808,21 +1174,13 @@ blabla一通之后，“the community is doing a pretty good job at making local
 ##### 95#       发表于 2016-5-12 17:12
 
 
-
-
 划给星区的哨站不需要影响力维护，但是200影响在初期还是挺大的一笔开支，后期要用影响力的地方也不少
-
-
-
-
-
 
 
 -----
 
 ####  wlyj  
 ##### 96#       发表于 2016-5-12 19:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32407744&amp;ptid=1275523" target="_blank">战列驱逐舰POI 发表于 2016-5-12 14:19</a>
@@ -1855,16 +1213,10 @@ FTL方式
 从3大妈看到的
 
 
-
-
-
-
-
 -----
 
 ####  战列驱逐舰POI  
 ##### 97#       发表于 2016-5-12 20:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32410414&amp;ptid=1275523" target="_blank">wlyj 发表于 2016-5-12 19:44</a>
@@ -1878,16 +1230,10 @@ FTL方式
 不是指的自定义帝国里面的选择三种旅行方式
 
 
-
-
-
-
-
 -----
 
 ####  卖哥  
 ##### 98#       发表于 2016-5-12 20:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32410590&amp;ptid=1275523" target="_blank">战列驱逐舰POI 发表于 2016-5-12 20:10</a>
@@ -1898,16 +1244,10 @@ FTL方式
 如果选了单一方式就全部人都只能采用这一种方式
 
 
-
-
-
-
-
 -----
 
 ####  战列驱逐舰POI  
 ##### 99#       发表于 2016-5-12 20:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32410704&amp;ptid=1275523" target="_blank">卖哥 发表于 2016-5-12 20:25</a>
@@ -1918,25 +1258,13 @@ FTL方式
 要重开档了
 
 
-
-
-
-
-
 -----
 
 ####  g54088  
 ##### 100#       发表于 2016-5-12 21:49
 
 
-
-
 被失落帝国刷了40k在首都，30k在主要出兵点，gg……
-
-
-
-
-
 
 
 -----
@@ -1945,16 +1273,10 @@ FTL方式
 ##### 101#       发表于 2016-5-12 23:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32411330&amp;ptid=1275523" target="_blank">g54088 发表于 2016-5-12 21:49</a>
 
 被失落帝国刷了40k在首都，30k在主要出兵点，gg……</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/114.gif" referrerpolicy="no-referrer">我也是，简直惨....往回读几年的档也救不回来....
-
-
-
-
-
 
 
 -----
@@ -1963,21 +1285,13 @@ FTL方式
 ##### 102#       发表于 2016-5-13 01:57
 
 
-
-
 谁能给说下 原版 nova版和galaxy版 有什么不同？
-
-
-
-
-
 
 
 -----
 
 ####  Ithilien  
 ##### 103#       发表于 2016-5-13 02:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32407744&amp;ptid=1275523" target="_blank">战列驱逐舰POI 发表于 2016-5-12 14:19</a>
@@ -2010,18 +1324,10 @@ wormhole
     升级：只需要研发科技就能自动升级，不需要更改飞船设计，效果是增加范围和减少起跳时间
 
 
-
-
-
-
-
-
 -----
 
 ####  半分宅  
 ##### 104#       发表于 2016-5-13 05:55
-
-
 
 
 今天在官方论坛看到，航母的小飞机攻击范围差不多少打一个0。官方说以后会修正。
@@ -2029,16 +1335,10 @@ wormhole
 Sector的机制也有一堆问题，像是把奴隶人口扔去造实验室的地块。这就变成了开发日志中担心的“故意搞破坏”的状况。还是等几个DLC把问题都修正，再入正版好了。
 
 
-
-
-
-
-
 -----
 
 ####  cools  
 ##### 105#       发表于 2016-5-13 06:48
-
 
 
  本帖最后由 cools 于 2016-5-13 06:50 编辑 
@@ -2054,16 +1354,10 @@ ui交互上的一些问题让前期非常有趣的游戏体验到后期开始变
 急需操作上的优化 至少打仗要能做到框框A
 
 
-
-
-
-
-
 -----
 
 ####  杨的退休金  
 ##### 106#       发表于 2016-5-13 08:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32391396&amp;ptid=1275523" target="_blank">chaoswing 发表于 2016-5-10 20:20</a>
@@ -2072,25 +1366,13 @@ ui交互上的一些问题让前期非常有趣的游戏体验到后期开始变
 人类那个科技？1200的科研点研究的蛋疼。。
 
 
-
-
-
-
-
 -----
 
 ####  ymfss  
 ##### 107#       发表于 2016-5-13 08:57
 
 
-
-
 没有汉化
-
-
-
-
-
 
 
 -----
@@ -2099,16 +1381,10 @@ ui交互上的一些问题让前期非常有趣的游戏体验到后期开始变
 ##### 108#       发表于 2016-5-13 09:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">玩了游戏时间56年觉得还不错啊，随机科技和探索到的特殊科技模拟了科技发展的随机性本来就是游戏的一个亮点之一吧。
 
 
 最大的诟病可能就是盟友和电脑AI太低了，还有附庸国并没有什么卵用...
-
-
-
-
-
 
 
 -----
@@ -2117,22 +1393,15 @@ ui交互上的一些问题让前期非常有趣的游戏体验到后期开始变
 ##### 109#       发表于 2016-5-13 11:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">研究了危险科技跳跃引擎之后搭载跳跃引擎的船只可以长距离高速跳跃
 
 还有几个旁的危险科技，人工智能啥的，不知道到底“危险”在什么地方....
-
-
-
-
-
 
 
 -----
 
 ####  normalli  
 ##### 110#       发表于 2016-5-13 11:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32415608&amp;amp;ptid=1275523" target="_blank">路德维嘉 发表于 2016-5-13 11:06</a>
@@ -2145,16 +1414,10 @@ Ai研究会导致机器人起义
 而且即使你不作死，ai也会作死
 
 
-
-
-
-
-
 -----
 
 ####  FCS-31  
 ##### 111#       发表于 2016-5-13 11:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32415608&amp;ptid=1275523" target="_blank">路德维嘉 发表于 2016-5-13 11:06</a>
@@ -2168,17 +1431,10 @@ Ai研究会导致机器人起义
 要是在一个遥远的国度研究出来....你麻烦就大了
 
 
-
-
-
-
-
 -----
 
 ####  卖哥  
 ##### 112#       发表于 2016-5-13 14:21
-
-
 
 
 外交不会玩，有谁有经验的可以告诉我一下。
@@ -2194,16 +1450,10 @@ Ai研究会导致机器人起义
 我还是不清楚怎么让收归的外星人安分一点，为啥都整个星快乐见底不干活持续加造反进度条，点媚外主义我精神上不能接受呀……
 
 
-
-
-
-
-
 -----
 
 ####  g54088  
 ##### 113#       发表于 2016-5-13 14:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32417344&amp;amp;ptid=1275523" target="_blank">卖哥 发表于 2016-5-13 14:21</a>
@@ -2214,16 +1464,10 @@ Ai研究会导致机器人起义
 移到好感度条上，你就能看到外星人对你哪些政策有不满。
 
 
-
-
-
-
-
 -----
 
 ####  Illidan  
 ##### 114#       发表于 2016-5-13 15:31
-
 
 
  本帖最后由 Illidan 于 2016-5-13 15:33 编辑 
@@ -2237,26 +1481,15 @@ Ai研究会导致机器人起义
 这就是2375年，一个和平、民主、平等以科技为主导的宇宙联盟。谢谢你P社，我对未来充满了信心。
 
 
-
-
-
-
-
 -----
 
 ####  normalli  
 ##### 115#       发表于 2016-5-13 17:50
 
 
-
  本帖最后由 normalli 于 2016-5-13 17:51 编辑 
 
 玩这个游戏真是涨姿势，尤其是知道了purge这个词
-
-
-
-
-
 
 
 -----
@@ -2265,14 +1498,7 @@ Ai研究会导致机器人起义
 ##### 116#       发表于 2016-5-13 18:04
 
 
-
-
 好几次行星探索发现山一样大的远古生物残骸了，这种东西有没有活物出来给玩家干？
-
-
-
-
-
 
 
 -----
@@ -2281,14 +1507,7 @@ Ai研究会导致机器人起义
 ##### 117#       发表于 2016-5-13 18:07
 
 
-
-
 太空乌贼和阿米巴都不比山小吧（
-
-
-
-
-
 
 
 -----
@@ -2297,24 +1516,16 @@ Ai研究会导致机器人起义
 ##### 118#       发表于 2016-5-13 22:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32418030&amp;ptid=1275523" target="_blank">Illidan 发表于 2016-5-13 15:31</a>
 
 4天40小时。Hard模式下800星系扩张胜利（控制40%星球）。政体是Illuminated Technocracy（科学联盟），种群 ...</blockquote>
 其实我一直觉得，stellaris以后可以出基地剧情MOD
 
 
-
-
-
-
-
 -----
 
 ####  backwardhiker  
 ##### 119#       发表于 2016-5-14 00:42
-
-
 
 
 玩了几天了，谈谈感想
@@ -2353,17 +1564,10 @@ sector的设定，好像没有均衡发展这个选项？经常搞偏科（大�
 p社上上心，多出些补丁和dlc，在这个类别里应该能算上独树一帜
 
 
-
-
-
-
-
 -----
 
 ####  backwardhiker  
 ##### 120#       发表于 2016-5-14 00:48
-
-
 
 
 哦对，问个问题
@@ -2377,16 +1581,10 @@ p社上上心，多出些补丁和dlc，在这个类别里应该能算上独树�
 这该怎么办？还是说是个bug？
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 121#       发表于 2016-5-14 01:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32422101&amp;amp;ptid=1275523" target="_blank">backwardhiker 发表于 2016-5-14 00:48</a>
@@ -2398,16 +1596,10 @@ p社上上心，多出些补丁和dlc，在这个类别里应该能算上独树�
 貌似可以uplift，我科技研究了但忘记哪颗行星有了，不知道怎么弄
 
 
-
-
-
-
-
 -----
 
 ####  夜莺0093  
 ##### 122#       发表于 2016-5-14 02:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32421326&amp;ptid=1275523" target="_blank">johnjacksonlin 发表于 2016-5-13 22:43</a>
@@ -2416,16 +1608,10 @@ p社上上心，多出些补丁和dlc，在这个类别里应该能算上独树�
 有个后期政体的领导人就被称为第一发言人
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 123#       发表于 2016-5-14 04:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32422101&amp;amp;ptid=1275523" target="_blank">backwardhiker 发表于 2016-5-14 00:48</a>
@@ -2437,16 +1623,10 @@ p社上上心，多出些补丁和dlc，在这个类别里应该能算上独树�
 发现外交界面里有一页种族，里面可以提携小弟种族，所在星球直接变成殖民地加入，还会有一串事件增加种族特征
 
 
-
-
-
-
-
 -----
 
 ####  cools  
 ##### 124#       发表于 2016-5-14 09:15
-
 
 
  本帖最后由 cools 于 2016-5-14 09:18 编辑 
@@ -2456,16 +1636,10 @@ uplift的过程还没做好，一开始完成uplift后星球归属改变时候�
 感觉设计上应该不是这个意图（哪有能基因工程改造全体种群，却不能解决其吃饭问题的...），不过uplifted特性增加20%幸福的特性非常强悍，制造出的种族就没见过造反的
 
 
-
-
-
-
-
 -----
 
 ####  johnjacksonlin  
 ##### 125#       发表于 2016-5-14 09:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32422462&amp;ptid=1275523" target="_blank">夜莺0093 发表于 2016-5-14 02:19</a>
@@ -2474,16 +1648,10 @@ uplift的过程还没做好，一开始完成uplift后星球归属改变时候�
 哈哈哈！是吗？
 
 
-
-
-
-
-
 -----
 
 ####  backwardhiker  
 ##### 126#       发表于 2016-5-14 13:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32422355&amp;ptid=1275523" target="_blank">sandro 发表于 2016-5-14 01:41</a>
@@ -2492,17 +1660,10 @@ uplift的过程还没做好，一开始完成uplift后星球归属改变时候�
 是有这么个科技，但是科技随机，我有这个问题的档没开到这个科技……
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
 ##### 127#       发表于 2016-5-14 18:43
-
-
 
 
 用修改器攀了几个文明的科技树
@@ -2512,16 +1673,10 @@ uplift的过程还没做好，一开始完成uplift后星球归属改变时候�
 有些档就死活开不出某些科技，很奇怪 。。。
 
 
-
-
-
-
-
 -----
 
 ####  dc19881121010  
 ##### 128#       发表于 2016-5-14 19:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32427324&amp;ptid=1275523" target="_blank">路德维嘉 发表于 2016-5-14 18:43</a>
@@ -2534,32 +1689,19 @@ uplift的过程还没做好，一开始完成uplift后星球归属改变时候�
 文明主体意识形态和政体形态对科技牌库有权重的……比如你唯物主义就死活不出灵能
 
 
-
-
-
-
-
 -----
 
 ####  大哀之君  
 ##### 129#       发表于 2016-5-14 19:19
 
 
-
-
 如果遇见母星是Tomb World的低等生物，请不要犹豫，务必将它们Uplifting。生于核战废土，其它任何能支撑生命的星球对它们来说都是Tier 1，再加上自带20%幸福度，简直就是星际帝国的黄金P民
-
-
-
-
-
 
 
 -----
 
 ####  路德维嘉  
 ##### 130#       发表于 2016-5-14 19:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32427472&amp;ptid=1275523" target="_blank">dc19881121010 发表于 2016-5-14 19:03</a>
@@ -2570,25 +1712,13 @@ uplift的过程还没做好，一开始完成uplift后星球归属改变时候�
 有几个科技感觉蛮重要的...死活出不来好烦- -
 
 
-
-
-
-
-
 -----
 
 ####  nightraven  
 ##### 131#       发表于 2016-5-14 19:59
 
 
-
-
 玩了一天，唯一感想就是能源太缺了<img src="https://static.saraba1st.com/image/smiley/face/38.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2597,8 +1727,6 @@ uplift的过程还没做好，一开始完成uplift后星球归属改变时候�
 ##### 132#       发表于 2016-5-14 20:20
 
 
-
-
 问几个问题
 
 工程船自动设施建造和科学舰自动探索怎么弄？p社没做的话有mod吗？
@@ -2612,11 +1740,6 @@ tomb world我死活没有是什么魔法
 post human和human天天互干怎么办
 
 除了爆铺铺满宇宙和打爆28家完全征服还有其他胜利吗
-
-
-
-
-
 
 
 -----
@@ -2625,8 +1748,6 @@ post human和human天天互干怎么办
 ##### 133#       发表于 2016-5-14 20:20
 
 
-
-
 问几个问题
 
 工程船自动设施建造和科学舰自动探索怎么弄？p社没做的话有mod吗？
@@ -2642,17 +1763,10 @@ post human和human天天互干怎么办
 除了爆铺铺满宇宙和打爆28家完全征服还有其他胜利吗
 
 
-
-
-
-
-
 -----
 
 ####  eno_emos  
 ##### 134#       发表于 2016-5-14 20:39
-
-
 
 
 连续三个档都是七十年左右被电脑联军平推
@@ -2665,16 +1779,10 @@ post human和human天天互干怎么办
 我眼泪都出来了
 
 
-
-
-
-
-
 -----
 
 ####  dxx9665  
 ##### 135#       发表于 2016-5-14 23:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32428069&amp;ptid=1275523" target="_blank">你的全家 发表于 2016-5-14 20:20</a>
@@ -2694,16 +1802,10 @@ post human和human天天互干怎么办
 思想钢印是后期的一个科技，可以在每个星球的太空站上添加部件
 
 
-
-
-
-
-
 -----
 
 ####  dxx9665  
 ##### 136#       发表于 2016-5-14 23:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32428216&amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-14 20:39</a>
@@ -2716,16 +1818,10 @@ post human和human天天互干怎么办
 要提前研究太空站科技，然后升级太空站等级，然后才能造高级船
 
 
-
-
-
-
-
 -----
 
 ####  杨的退休金  
 ##### 137#       发表于 2016-5-14 23:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32428216&amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-14 20:39</a>
@@ -2736,16 +1832,10 @@ post human和human天天互干怎么办
 出太空站升级就要不停的升，6级空间站出战列。
 
 
-
-
-
-
-
 -----
 
 ####  杨的退休金  
 ##### 138#       发表于 2016-5-14 23:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32422059&amp;ptid=1275523" target="_blank">backwardhiker 发表于 2016-5-14 00:42</a>
@@ -2759,25 +1849,13 @@ post human和human天天互干怎么办
 大船是输出的，配置装备合理的战列舰一般都是站定不动输出的，护卫舰和驱逐舰才是当肉的。
 
 
-
-
-
-
-
 -----
 
 ####  hanchen999  
 ##### 139#       发表于 2016-5-14 23:51
 
 
-
-
 驱逐护卫海打对面都是大船太有优势了
-
-
-
-
-
 
 
 -----
@@ -2786,22 +1864,13 @@ post human和human天天互干怎么办
 ##### 140#       发表于 2016-5-15 00:05
 
 
-
-
 驱逐舰当肉要堆血堆甲？我闪避50%1000血的驱逐舰打fallen empire的主力舰队成片死，战列舰一个没损失，驱逐舰队就爆完了，连带还死了个技能加闪避的英雄。。。
-
-
-
-
-
 
 
 -----
 
 ####  你的全家  
 ##### 141#       发表于 2016-5-15 00:14
-
-
 
 
 远古大帝国真他妈屌
@@ -2831,33 +1900,19 @@ post human和human天天互干怎么办
 不过获得了一个叫天堂王座的盖亚世界 可以容纳25人口 适应性好到爆炸 爽到
 
 
-
-
-
-
-
 -----
 
 ####  dxx9665  
 ##### 142#       发表于 2016-5-15 00:56
 
 
-
-
 星球改造真心好麻烦，星际殖民2的那个改造更舒服一点
-
-
-
-
-
 
 
 -----
 
 ####  心动的公车  
 ##### 143#       发表于 2016-5-15 01:52
-
-
 
 
 现在的能源有什么用？除了交维护费，和开荒地，没处用，矿石很缺，到处要用，影响力更是奇缺
@@ -2867,16 +1922,10 @@ post human和human天天互干怎么办
 一开始还以为是收费公测版bug了，任务收获的科技点没用，结果发现到后面出来的某些3000多点的科技，已经有1000多点的进度了。。。。
 
 
-
-
-
-
-
 -----
 
 ####  卖哥  
 ##### 144#       发表于 2016-5-15 03:12
-
 
 
 <blockquote>心动的公车 发表于 2016-5-15 01:52
@@ -2886,17 +1935,10 @@ post human和human天天互干怎么办
 科研点不是即时到账的，类似网游的蓝条，没用光之前科研双倍速度。
 
 
-
-
-
-
-
 -----
 
 ####  shinjiikari  
 ##### 145#       发表于 2016-5-15 04:54
-
-
 
 
 作死开了个最大星系, 39个AI 的图
@@ -2908,17 +1950,10 @@ post human和human天天互干怎么办
 不过这是我的P社最容易上手的SLG, 但是想到DLCs 就怎么高兴不起来 OTL
 
 
-
-
-
-
-
 -----
 
 ####  eno_emos  
 ##### 146#       发表于 2016-5-15 09:22
-
-
 
 
 虽然说有个EU在前面是个很好的参考
@@ -2929,26 +1964,13 @@ post human和human天天互干怎么办
 我打外星人为什么也要等十年？什么狗屁原理啊这是
 
 
-
-
-
-
-
-
 -----
 
 ####  rinkzea  
 ##### 147#       发表于 2016-5-15 09:27
 
 
-
-
 uplit和modify后出来的事件都没法研究……科研船卡在星球外围一开始研究就自动移动，不断重复，然后时限就到了
-
-
-
-
-
 
 
 -----
@@ -2957,23 +1979,15 @@ uplit和modify后出来的事件都没法研究……科研船卡在星球外围
 ##### 148#       发表于 2016-5-15 09:46
 
 
-
-
 对了有个事件，发生在你所殖民的星球上。要求四星以上科学家赶在时限内完成研究否则炸星，你们谁遇见过
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (NOKIA Lumia 920)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
 
 ####  dc19881121010  
 ##### 149#       发表于 2016-5-15 10:05
-
 
 
  本帖最后由 dc19881121010 于 2016-5-15 10:07 编辑 
@@ -2985,16 +1999,10 @@ uplit和modify后出来的事件都没法研究……科研船卡在星球外围
 真不愧是p社，这游戏太好玩了
 
 
-
-
-
-
-
 -----
 
 ####  Ny  
 ##### 150#       发表于 2016-5-15 11:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32431762&amp;ptid=1275523" target="_blank">rinkzea 发表于 2016-5-15 09:27</a>
@@ -3006,17 +2014,10 @@ uplit和modify后出来的事件都没法研究……科研船卡在星球外围
 我还碰到个bug是护卫舰打不到敌方的防御站 傻站在那被防御站打死
 
 
-
-
-
-
-
 -----
 
 ####  八九点钟的太阳  
 ##### 151#       发表于 2016-5-15 11:32
-
-
 
 
 刚开始玩，有几个问题：
@@ -3037,17 +2038,10 @@ uplit和modify后出来的事件都没法研究……科研船卡在星球外围
 5. 舰船怎么搭配比例合理？我现在已经开发出battleship。
 
 
-
-
-
-
-
 -----
 
 ####  大哀之君  
 ##### 152#       发表于 2016-5-15 11:54
-
-
 
 
 Uplift是提升非智慧种族，你可以自选该种族特质，提升完毕后自动加入你的帝国。Enlightment是启示低科技土著成为星际种族，启示后该种族成为附庸国。我自己只启示那些跟我意识形态相同的种族，别的都是太空白眼狼。
@@ -3057,16 +2051,10 @@ Sector你必须给它一笔启动资金，不然它什么基建都不会搞。�
     —— from [S1 Nyan](http://126.am/S1Nyan) (NOKIA Lumia 920)来自: WindowsPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  你的全家  
 ##### 153#       发表于 2016-5-15 12:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32432631&amp;ptid=1275523" target="_blank">八九点钟的太阳 发表于 2016-5-15 11:32</a>
@@ -3090,25 +2078,13 @@ Sector你必须给它一笔启动资金，不然它什么基建都不会搞。�
 5 大船遭不住集火但是火力非常足 所以自己决定 我目前是dd海（
 
 
-
-
-
-
-
 -----
 
 ####  huhu0007  
 ##### 154#       发表于 2016-5-15 12:01
 
 
-
-
 这次3大妈的汉化出的好快啊，都2.4了，试用了一下，翻译质量还行，竟然不完全是机翻<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3117,23 +2093,16 @@ Sector你必须给它一笔启动资金，不然它什么基建都不会搞。�
 ##### 155#       发表于 2016-5-15 12:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32432773&amp;ptid=1275523" target="_blank">大哀之君 发表于 2016-5-15 11:54</a>
 
 Uplift是提升非智慧种族，你可以自选该种族特质，提升完毕后自动加入你的帝国。Enlightment是启示低科技土 ...</blockquote>
 提升智慧种族需要的技术怎么都刷不出来啊
 
 
-
-
-
-
-
 -----
 
 ####  Ny  
 ##### 156#       发表于 2016-5-15 12:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32432631&amp;ptid=1275523" target="_blank">八九点钟的太阳 发表于 2016-5-15 11:32</a>
@@ -3151,16 +2120,10 @@ Uplift是提升非智慧种族，你可以自选该种族特质，提升完毕�
 我都是直接扔给sector 自己开发麻烦死了 你自己开发也是一样要输血 sector不会勘探也不会造工程船开发领区内的资源 全要自己动手 这点我也很烦 甚至应该还能让他自己殖民领区内的星球 吗的全要老子干 要你何用
 
 
-
-
-
-
-
 -----
 
 ####  无心而死  
 ##### 157#       发表于 2016-5-15 12:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32432832&amp;ptid=1275523" target="_blank">Ny 发表于 2016-5-15 12:02</a>
@@ -3174,17 +2137,10 @@ sector就是猪
 所以你得建好了才委任不然变得和废土一样了，主要就是为了甩掉各种减分的包袱
 
 
-
-
-
-
-
 -----
 
 ####  八九点钟的太阳  
 ##### 158#       发表于 2016-5-15 13:14
-
-
 
 
 谢谢楼上们的解答！
@@ -3193,16 +2149,10 @@ sector就是猪
 刚在某极地殖民地的主流种族进化成了寒冷适应型种族，然后和这个殖民地上剩下的主流种族开片内斗了，这特么都什么情况，怎么让国内各种族和平共处<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  huhu0007  
 ##### 159#       发表于 2016-5-15 13:19
-
 
 
 <blockquote>八九点钟的太阳 发表于 2016-5-15 11:32
@@ -3213,25 +2163,13 @@ sector就是猪
 据贴吧的人说，研究危险科技都是一人作死，全银河系都跟着受害的。什么机器人叛乱，高纬维度恶魔，虫群入侵啥的。。。。
 
 
-
-
-
-
-
 -----
 
 ####  normalli  
 ##### 160#       发表于 2016-5-15 13:20
 
 
-
-
 据说渗透后原子时代的星球会产生xcom一类的组织，把本文**格成星级文明，不过然并卵，很容易被其他帝国轻松捏死
-
-
-
-
-
 
 
 -----
@@ -3240,21 +2178,13 @@ sector就是猪
 ##### 161#       发表于 2016-5-15 13:24
 
 
-
-
 没有汉化，好痛苦啊，cet6好多都看不懂<img src="https://static.saraba1st.com/image/smiley/face/02.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  卖哥  
 ##### 162#       发表于 2016-5-15 13:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32432825&amp;ptid=1275523" target="_blank">huhu0007 发表于 2016-5-15 12:02</a>
@@ -3281,16 +2211,10 @@ sector就是猪
 所以想早点有，选择媚外吧……
 
 
-
-
-
-
-
 -----
 
 ####  卖哥  
 ##### 163#       发表于 2016-5-15 13:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32433487&amp;ptid=1275523" target="_blank">huhu0007 发表于 2016-5-15 13:19</a>
@@ -3299,16 +2223,10 @@ sector就是猪
 不过是日落入侵的强度而已，几个灾难事件除了堕落帝国可能很早就爆直接GG外，其他的一般出事的时间玩家也拥有小半个银河可以随便按死了。
 
 
-
-
-
-
-
 -----
 
 ####  盈袖浮香  
 ##### 164#       发表于 2016-5-15 13:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32433537&amp;ptid=1275523" target="_blank">虫王戮蛊 发表于 2016-5-15 13:24</a>
@@ -3317,17 +2235,10 @@ sector就是猪
 3DM有汉化了，，，刚试了下，居然不是机翻，感觉能玩下去
 
 
-
-
-
-
-
 -----
 
 ####  你的全家  
 ##### 165#       发表于 2016-5-15 14:00
-
-
 
 
 灭国战争
@@ -3354,25 +2265,13 @@ sector就是猪
 我选择死亡
 
 
-
-
-
-
-
 -----
 
 ####  喵咪咪格勒  
 ##### 166#       发表于 2016-5-15 16:03
 
 
-
-
 那个寻找风信子的信号任务是不是有bug？
-
-
-
-
-
 
 
 -----
@@ -3381,22 +2280,13 @@ sector就是猪
 ##### 167#       发表于 2016-5-15 16:21
 
 
-
-
 这个版本的很多任务都有bug，今天看到说找寻Cybrex的任务链也是烂尾。
-
-
-
-
-
 
 
 -----
 
 ####  你的全家  
 ##### 168#       发表于 2016-5-15 16:23
-
-
 
 
 先驱者-尤特（yuht大概是？）的0/6遗物有人做了吗
@@ -3408,17 +2298,10 @@ sector就是猪
 半个银河都没有
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 169#       发表于 2016-5-15 16:36
-
-
 
 
 这版本BUG还有非常多，但是完成度还是可以的，嘛，P社游戏的日常。
@@ -3433,16 +2316,10 @@ sector就是猪
 几个DLC版本后会非常好玩的节奏，超级期待。
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 170#       发表于 2016-5-15 16:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32431718&amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-15 09:22</a>
@@ -3454,25 +2331,13 @@ sector就是猪
 银河系文明社会，虽然有鸟人和**人，但他们也是人，你看打宇宙怪兽就不需要宣战
 
 
-
-
-
-
-
 -----
 
 ####  无须关怀  
 ##### 171#       发表于 2016-5-15 16:46
 
 
-
-
 太惨了，被海量舰队淹死……
-
-
-
-
-
 
 
 -----
@@ -3481,16 +2346,9 @@ sector就是猪
 ##### 172#       发表于 2016-5-15 16:50
 
 
-
-
 我开了一局极端集体+军国。 结果我的右边4个比我小的国家（70%的国土）结成联邦。
 
 二个是联盟创造者  二个是民主斗士  对我都是-200
-
-
-
-
-
 
 
 -----
@@ -3499,15 +2357,9 @@ sector就是猪
 ##### 173#       发表于 2016-5-15 17:50
 
 
-
 <blockquote>大哀之君 发表于 2016-5-14 19:19
 如果遇见母星是Tomb World的低等生物，请不要犹豫，务必将它们Uplifting。生于核战废土，其它任何能支撑生 ...</blockquote>
 据说可以碰到满是智能辐射蟑螂的废土地球。。。。
-
-
-
-
-
 
 
 -----
@@ -3516,22 +2368,15 @@ sector就是猪
 ##### 174#       发表于 2016-5-15 17:50
 
 
-
 <blockquote>大哀之君 发表于 2016-5-14 19:19
 如果遇见母星是Tomb World的低等生物，请不要犹豫，务必将它们Uplifting。生于核战废土，其它任何能支撑生 ...</blockquote>
 据说可以碰到满是智能辐射蟑螂的废土地球。。。。
-
-
-
-
-
 
 
 -----
 
 ####  eno_emos  
 ##### 175#       发表于 2016-5-15 18:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32434779&amp;ptid=1275523" target="_blank">你的全家 发表于 2016-5-15 16:23</a>
@@ -3547,16 +2392,10 @@ sector就是猪
 实际上那几个收集全都是异常……
 
 
-
-
-
-
-
 -----
 
 ####  你的全家  
 ##### 176#       发表于 2016-5-15 18:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32435431&amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-15 18:02</a>
@@ -3572,25 +2411,13 @@ sector就是猪
 问题就是没有mark on map。。。。
 
 
-
-
-
-
-
 -----
 
 ####  近距离作战  
 ##### 177#       发表于 2016-5-15 18:37
 
 
-
-
 先驱者-第一联盟的异常太好玩了，各种生活气息
-
-
-
-
-
 
 
 -----
@@ -3599,22 +2426,13 @@ sector就是猪
 ##### 178#       发表于 2016-5-15 19:49
 
 
-
-
 左下角的热键被我无意中右键消除了，怎么把热键恢复回来？
-
-
-
-
-
 
 
 -----
 
 ####  美利坚大老爹  
 ##### 179#       发表于 2016-5-15 19:57
-
-
 
 
 观察智慧星球也很好玩，被动观察一个星球，结果这个星球在核时代互丢核弹，整个星球变成废墟了。
@@ -3626,26 +2444,14 @@ sector就是猪
 超有趣，停不下来。
 
 
-
-
-
-
-
 -----
 
 ####  chaoswing  
 ##### 180#       发表于 2016-5-15 20:07
 
 
-
-
 irassian任务线到最后，找到irass母星，调查发现一个树，能延寿或者加快乐度
 这个应该就是任务线最后的报酬了吧，但任务还是显示未完成
-
-
-
-
-
 
 
 -----
@@ -3654,23 +2460,16 @@ irassian任务线到最后，找到irass母星，调查发现一个树，能延�
 ##### 181#       发表于 2016-5-15 20:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32436100&amp;ptid=1275523" target="_blank">高扎古 发表于 2016-5-15 19:49</a>
 
 左下角的热键被我无意中右键消除了，怎么把热键恢复回来？</blockquote>
 点选目标，然后ctrl+数字编队就行了
 
 
-
-
-
-
-
 -----
 
 ####  PIN  
 ##### 182#       发表于 2016-5-15 20:14
-
 
 
  本帖最后由 PIN 于 2016-5-15 20:30 编辑 
@@ -3686,16 +2485,10 @@ irassian任务线到最后，找到irass母星，调查发现一个树，能延�
 另外这游戏terraforming好坑爹，只能改造能定居的星球不说需要的资源也好难找，我基本占领了一整条旋臂才算凑齐把海洋星球改成大陆星球所需的资源……<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">好在这颗星球人比较少，掀不起什么波浪来
 
 
-
-
-
-
-
 -----
 
 ####  squallx2  
 ##### 183#       发表于 2016-5-15 20:34
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/nq/001.gif" referrerpolicy="no-referrer">一不小心玩了20个小时根本停不下来玛德又被P社谋害人参了
@@ -3704,16 +2497,10 @@ irassian任务线到最后，找到irass母星，调查发现一个树，能延�
 触发土著事件拐了个科学家出来 一看初始就4星和研发速度+10技能 这是拐了个爱因斯坦吗<img src="https://static.saraba1st.com/image/smiley/nq/013.gif" referrerpolicy="no-referrer"> 这个种族有前途 开始提升了
 
 
-
-
-
-
-
 -----
 
 ####  你的全家  
 ##### 184#       发表于 2016-5-15 20:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32436226&amp;ptid=1275523" target="_blank">chaoswing 发表于 2016-5-15 20:07</a>
@@ -3722,16 +2509,10 @@ irassian任务线到最后，找到irass母星，调查发现一个树，能延�
 那个树应该是一个随机任务之类的 我也有
 
 
-
-
-
-
-
 -----
 
 ####  你的全家  
 ##### 185#       发表于 2016-5-15 20:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32436270&amp;ptid=1275523" target="_blank">PIN 发表于 2016-5-15 20:14</a>
@@ -3739,16 +2520,10 @@ irassian任务线到最后，找到irass母星，调查发现一个树，能延�
 星球改造类型还固定 我他妈要死了
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 186#       发表于 2016-5-15 20:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32436270&amp;ptid=1275523" target="_blank">PIN 发表于 2016-5-15 20:14</a>
@@ -3769,32 +2544,19 @@ irassian任务线到最后，找到irass母星，调查发现一个树，能延�
 最恶心的还有被观察的文明突然变成了国家，然后没注意，莫名其妙加入了别人的联盟，被别人保护了。好了，开战吧，周围一圈全部要打一遍。而且秉承了P社传统的胜利点模式，一场战争要打赢好烦啊。
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 187#       发表于 2016-5-15 20:56
 
 
-
-
 这次terraforming太坑爹了，真还不如基因改造然后洗脑光线
-
-
-
-
-
 
 
 -----
 
 ####  美利坚大老爹  
 ##### 188#       发表于 2016-5-15 20:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32436410&amp;ptid=1275523" target="_blank">squallx2 发表于 2016-5-15 20:34</a>
@@ -3809,16 +2571,10 @@ irassian任务线到最后，找到irass母星，调查发现一个树，能延�
 这游戏超多各类科幻小说和电影的梗，uplift用的也是提升之战的猩猩当科技图，而且，玩着玩着，就停不下来了
 
 
-
-
-
-
-
 -----
 
 ####  chaoswing  
 ##### 189#       发表于 2016-5-15 21:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32436490&amp;ptid=1275523" target="_blank">你的全家 发表于 2016-5-15 20:46</a>
@@ -3829,16 +2585,10 @@ irassian任务线到最后，找到irass母星，调查发现一个树，能延�
 现在光写这找到母星，然后我找到，就没有下文了……
 
 
-
-
-
-
-
 -----
 
 ####  你的全家  
 ##### 190#       发表于 2016-5-15 21:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32436658&amp;ptid=1275523" target="_blank">chaoswing 发表于 2016-5-15 21:09</a>
@@ -3850,17 +2600,10 @@ irassian任务线到最后，找到irass母星，调查发现一个树，能延�
 臭名远播有什么关系 我因为常年持续的种族灭绝和侵略在所有国家的平均声望是-1000 并不影响黄金舰队的战争步伐
 
 
-
-
-
-
-
 -----
 
 ####  你的全家  
 ##### 191#       发表于 2016-5-15 21:16
-
-
 
 
 问个问题 我当时打了失落帝国之后在他们某个星系内找到一个被封印的星球 解封之前我看说是个封印所以在周边准备了50k的舰队包围圈
@@ -3870,16 +2613,10 @@ irassian任务线到最后，找到irass母星，调查发现一个树，能延�
 不过几十年过去了什么都没有发生 有谁知道后续吗
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 192#       发表于 2016-5-15 21:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32436674&amp;ptid=1275523" target="_blank">你的全家 发表于 2016-5-15 21:12</a>
@@ -3891,16 +2628,10 @@ irassian任务线到最后，找到irass母星，调查发现一个树，能延�
 <img src="https://static.saraba1st.com/image/smiley/nq/001.gif" referrerpolicy="no-referrer">维持舰队很烧钱的啊……
 
 
-
-
-
-
-
 -----
 
 ####  你的全家  
 ##### 193#       发表于 2016-5-15 21:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32436716&amp;ptid=1275523" target="_blank">美利坚大老爹 发表于 2016-5-15 21:17</a>
@@ -3908,16 +2639,10 @@ irassian任务线到最后，找到irass母星，调查发现一个树，能延�
 奴役他们 杀光他们  军事政体降低维护费 地盘够大就养的起
 
 
-
-
-
-
-
 -----
 
 ####  chaoswing  
 ##### 194#       发表于 2016-5-15 21:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32436674&amp;ptid=1275523" target="_blank">你的全家 发表于 2016-5-15 21:12</a>
@@ -3932,16 +2657,10 @@ irassian任务线到最后，找到irass母星，调查发现一个树，能延�
 这个irassian也是precursor的一种，我已经凑齐了六种异常准备召唤神龙，结果卡住了
 
 
-
-
-
-
-
 -----
 
 ####  PIN  
 ##### 195#       发表于 2016-5-15 21:50
-
 
 
  本帖最后由 PIN 于 2016-5-15 21:54 编辑 
@@ -3949,17 +2668,10 @@ irassian任务线到最后，找到irass母星，调查发现一个树，能延�
 卧槽，科技树出了个培育xenomorph做陆战单位的科技，好怕怕不敢点，我还不想变铁血战士啊……<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dxx9664  
 ##### 196#       发表于 2016-5-15 21:54
-
-
 
 
 其实只要改造你控制范围内的星球就好啦~
@@ -3971,16 +2683,10 @@ irassian任务线到最后，找到irass母星，调查发现一个树，能延�
 如果类型不太对20年能改造好就不错了
 
 
-
-
-
-
-
 -----
 
 ####  PIN  
 ##### 197#       发表于 2016-5-15 22:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32436716&amp;ptid=1275523" target="_blank">美利坚大老爹 发表于 2016-5-15 21:17</a>
@@ -3989,16 +2695,10 @@ irassian任务线到最后，找到irass母星，调查发现一个树，能延�
 舰队靠宇宙港维持费-25%，宇宙港船员宿舍模块-10%，工程船坞模块再减10%外加有船坞的宇宙港造的船自带维持费-10%buff，这就是砍掉超过一半维持费了，不过舰队一出港预算就血崩……<img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 198#       发表于 2016-5-15 22:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32437161&amp;ptid=1275523" target="_blank">PIN 发表于 2016-5-15 22:09</a>
@@ -4013,16 +2713,10 @@ irassian任务线到最后，找到irass母星，调查发现一个树，能延�
 P社游戏，总会忍不住用控制台，用了控制台就没Steam成就了，哭哭……
 
 
-
-
-
-
-
 -----
 
 ####  chaoswing  
 ##### 199#       发表于 2016-5-15 22:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32437199&amp;ptid=1275523" target="_blank">美利坚大老爹 发表于 2016-5-15 22:13</a>
@@ -4034,25 +2728,13 @@ P社游戏，总会忍不住用控制台，用了控制台就没Steam成就了�
 虫洞这点上比较好，快速响应，范围大
 
 
-
-
-
-
-
 -----
 
 ####  安姆闲人  
 ##### 200#       发表于 2016-5-15 22:29
 
 
-
-
 问下Galaxy Edition送的两本BOOK对英文一窍不通的人来说值得买么？一本没表示EBOOK，是实体？
-
-
-
-
-
 
 
 -----
@@ -4061,23 +2743,16 @@ P社游戏，总会忍不住用控制台，用了控制台就没Steam成就了�
 ##### 201#       发表于 2016-5-15 22:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32437312&amp;ptid=1275523" target="_blank">安姆闲人 发表于 2016-5-15 22:29</a>
 
 问下Galaxy Edition送的两本BOOK对英文一窍不通的人来说值得买么？一本没表示EBOOK，是实体？ ...</blockquote>
 都是数字版，貌似一本小说一本设定画册
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 202#       发表于 2016-5-15 22:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32437312&amp;ptid=1275523" target="_blank">安姆闲人 发表于 2016-5-15 22:29</a>
@@ -4095,16 +2770,10 @@ P社游戏，总会忍不住用控制台，用了控制台就没Steam成就了�
 话说我是人类开局，只有FTL和Warp。虫洞不知道怎么研究。
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 203#       发表于 2016-5-15 22:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32437312&amp;ptid=1275523" target="_blank">安姆闲人 发表于 2016-5-15 22:29</a>
@@ -4113,16 +2782,10 @@ P社游戏，总会忍不住用控制台，用了控制台就没Steam成就了�
 刚买了个银河版翻了下，画集不错，小说慢慢看不过画集里也很多讲怎么做出这些概念设计的
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 204#       发表于 2016-5-15 23:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32437433&amp;amp;ptid=1275523" target="_blank">美利坚大老爹 发表于 2016-5-15 22:43</a>
@@ -4134,32 +2797,19 @@ ftl的方式开头选好貌似就限死了，我warp到最后科技只剩可以�
 jump drive不知道是不是只有虫洞的才能研究
 
 
-
-
-
-
-
 -----
 
 ####  伊贝里的巴里安  
 ##### 205#       发表于 2016-5-15 23:14
 
 
-
-
 其实还行 4x大杂烩 但缺点还是很多
-
-
-
-
-
 
 
 -----
 
 ####  美利坚大老爹  
 ##### 206#       发表于 2016-5-15 23:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32437592&amp;ptid=1275523" target="_blank">sandro 发表于 2016-5-15 23:03</a>
@@ -4173,16 +2823,10 @@ jump drive不知道是 ...</blockquote>
 好像宇宙舰队深入对方领土也没有惩罚，补充战损只要后方生产了舰队过来合并就可以了。
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 207#       发表于 2016-5-15 23:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32437694&amp;ptid=1275523" target="_blank">伊贝里的巴里安 发表于 2016-5-15 23:14</a>
@@ -4200,17 +2844,10 @@ jump drive不知道是 ...</blockquote>
 打个比方，如果记录一直可以延续下去（P社这个想法其实很不错的），那么从四大文明早期，一直到存档到地球联邦，一定很好玩。这可是比文明模拟还要有趣的一件事情。
 
 
-
-
-
-
-
 -----
 
 ####  八九点钟的太阳  
 ##### 208#       发表于 2016-5-15 23:34
-
-
 
 
 刚兴冲冲地探索圈地，撞上了又一个Fallen Empire，核心居然是恒星环，太壮观了，而且环里的每片区（分别叫Trade District, Industrial District，等等）都是肥得流油25块地<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
@@ -4221,17 +2858,10 @@ jump drive不知道是 ...</blockquote>
 ……不过面对32K的异次元舰队现在我还是只有服软撤退的份<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 209#       发表于 2016-5-15 23:48
-
-
 
 
 没想到后续还有那么多Event，我才玩了30小时，还大部分时间靠控制台过日子，地图是很大，但是没遇到过Fallen Empire，应该说，就自己那么一小块地，连打出去的可能都没有。
@@ -4243,32 +2873,19 @@ jump drive不知道是 ...</blockquote>
 20K打大联盟差点被反推，读档乖乖做人，越后期，联盟越大，越难打
 
 
-
-
-
-
-
 -----
 
 ####  huhu0007  
 ##### 210#       发表于 2016-5-15 23:51
 
 
-
-
 怎么弹压异族反对派啊，这群人一直闹着要回归母国，到处烧建筑，驻军不能干涉简直了。我国政策又不允许净化异族，难道要等他们起义才能收拾？
-
-
-
-
-
 
 
 -----
 
 ####  eno_emos  
 ##### 211#       发表于 2016-5-15 23:54
-
 
 
 <img src="http://ww2.sinaimg.cn/large/e8ef8283gw1f3wiag1lhbj20d60akgmb.jpg" referrerpolicy="no-referrer">
@@ -4284,17 +2901,10 @@ sol III，也就是地球，基本上是每个档都会出现
 顺便提一下，创意工房里那些萌化补丁效果太好了，美少女舰队大杀四方
 
 
-
-
-
-
-
 -----
 
 ####  eno_emos  
 ##### 212#       发表于 2016-5-16 00:03
-
-
 
 
 喔，另外就是交换星图有一定可能会导致那些需要进入指定星系探索的任务出bug无法完成
@@ -4304,16 +2914,10 @@ sol III，也就是地球，基本上是每个档都会出现
 如果是任务触发时未探索但是通过交换星图完成探索……这个任务就永远都没法做了
 
 
-
-
-
-
-
 -----
 
 ####  你的全家  
 ##### 213#       发表于 2016-5-16 00:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32438025&amp;ptid=1275523" target="_blank">huhu0007 发表于 2016-5-15 23:51</a>
@@ -4333,33 +2937,19 @@ sol III，也就是地球，基本上是每个档都会出现
 不愿意弄死的话 轨道洗脑激光 然后政策洗脑分歧度幸福度 然后修虚拟竞技场和纯净纪念碑
 
 
-
-
-
-
-
 -----
 
 ####  伊贝里的巴里安  
 ##### 214#       发表于 2016-5-16 00:05
 
 
-
-
 反正目前感慨是 外交依旧真是蠢到不行，我是无力吐槽那ai傻到爆的智障 一言不合就-1000 亚空间恶魔入侵 我绕路过去干掉2个星系的恶魔据点，ai势力的影响力回复到了 研究船想过去扫一下，然后要民间通行权 竟然-1000 md 我拯救与你的国家与水火之中你ym让我过个路都不行，然后我立马撤军 看着恶魔干死了这个不识相的国家。虽然那恶魔。。。是我引来的。。外交方面的确是大战略游戏里比较难做的，做的太复杂难忘 做的简单又zz。随机科技这方面我记得星际之剑好像玩过，模糊科技树这东西不是什么新鲜玩意。然后随机势力入侵遥远的世界也有，奴隶人口遥远的世界也出现过，但是把各方面综合在一起的群星应该算是第一个，唯一遗憾是没学星际之剑的z轴地图，虽然更复杂但或许会很有趣。近几年太空4x拼的就是创意，星际殖民 star ruler 天马座 无尽空间 dw 银河文明 新银河霸主等等，都是各有特色。群星嘛，杂了很多，还行，嗯，我特别喜欢抓原始人研究怎么变成美少女
-
-
-
-
-
 
 
 -----
 
 ####  你的全家  
 ##### 215#       发表于 2016-5-16 00:14
-
-
 
 
 AI崛起：
@@ -4401,16 +2991,10 @@ AI崛起：
 即将诞生机械帝国 请等待后续repo（
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 216#       发表于 2016-5-16 00:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32438025&amp;ptid=1275523" target="_blank">huhu0007 发表于 2016-5-15 23:51</a>
@@ -4419,16 +3003,10 @@ AI崛起：
 用影响力可以融入自己的社会，但是需要很多，很多，很多影响力，分几次投入才行
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 217#       发表于 2016-5-16 00:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32438055&amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-15 23:54</a>
@@ -4439,16 +3017,10 @@ sol III，也就是地球，基本上是每个档都会出现
 我这个版本的solIII自己飞天了，然后被某个帝国保护。
 
 
-
-
-
-
-
 -----
 
 ####  你的全家  
 ##### 218#       发表于 2016-5-16 00:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32438122&amp;ptid=1275523" target="_blank">伊贝里的巴里安 发表于 2016-5-16 00:05</a>
@@ -4460,16 +3032,10 @@ sol III，也就是地球，基本上是每个档都会出现
 我开了psi jump drive好多年了没触发
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 219#       发表于 2016-5-16 00:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32438122&amp;ptid=1275523" target="_blank">伊贝里的巴里安 发表于 2016-5-16 00:05</a>
@@ -4487,16 +3053,10 @@ sol III，也就是地球，基本上是每个档都会出现
 群星也糅合了非常多的科幻小说的设定，有时候感觉非常亲切，我本人就非常喜欢看提升系列，很容易找到代入感。很多EVENT也有那些科幻名作的影子，
 
 
-
-
-
-
-
 -----
 
 ####  伊贝里的巴里安  
 ##### 220#       发表于 2016-5-16 00:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32438202&amp;ptid=1275523" target="_blank">你的全家 发表于 2016-5-16 00:18</a>
@@ -4508,16 +3068,10 @@ sol III，也就是地球，基本上是每个档都会出现
 我是曲速引擎 所以估计是研发了特定科技引发的，而且在入侵前会有事件提示，当时我就做好了扩军备战的准备。不过听说恶魔入侵概率小，虫族入侵概率更大
 
 
-
-
-
-
-
 -----
 
 ####  伊贝里的巴里安  
 ##### 221#       发表于 2016-5-16 00:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32438238&amp;ptid=1275523" target="_blank">美利坚大老爹 发表于 2016-5-16 00:25</a>
@@ -4526,16 +3080,10 @@ sol III，也就是地球，基本上是每个档都会出现
 这次一大乐趣是看事件故事，还有观察落合种族时触发了的故事。比如我一个特工爱上了落后种族的女人，然后叛逃了。还和我视频通话说我是邪恶帝国，这么正直为了宇宙和平着想的国家怎么会是邪恶国家呢。于是我让我的星际马鹿登陆占领星球 然后种族清洗了<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  你的全家  
 ##### 222#       发表于 2016-5-16 01:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32438269&amp;ptid=1275523" target="_blank">伊贝里的巴里安 发表于 2016-5-16 00:30</a>
@@ -4547,17 +3095,10 @@ sol III，也就是地球，基本上是每个档都会出现
 我也想要世界爆炸event
 
 
-
-
-
-
-
 -----
 
 ####  你的全家  
 ##### 223#       发表于 2016-5-16 01:03
-
-
 
 
 我有个问题
@@ -4569,17 +3110,10 @@ sol III，也就是地球，基本上是每个档都会出现
 我要死了
 
 
-
-
-
-
-
 -----
 
 ####  战列驱逐舰POI  
 ##### 224#       发表于 2016-5-16 01:22
-
-
 
 
 强化舰船设计，丰富舰队战要素（比如CK2的各种战术等等）DLC 9.99美元
@@ -4589,17 +3123,10 @@ sol III，也就是地球，基本上是每个档都会出现
 戴森环 DLC 9.99美元
 
 
-
-
-
-
-
 -----
 
 ####  chaoswing  
 ##### 225#       发表于 2016-5-16 01:36
-
-
 
 
 问个问题
@@ -4609,16 +3136,10 @@ sol III，也就是地球，基本上是每个档都会出现
 为什么后来遇到新的就不行了？比如编号靠后的如Xi Alien
 
 
-
-
-
-
-
 -----
 
 ####  eno_emos  
 ##### 226#       发表于 2016-5-16 01:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32438635&amp;ptid=1275523" target="_blank">chaoswing 发表于 2016-5-16 01:36</a>
@@ -4631,16 +3152,10 @@ sol III，也就是地球，基本上是每个档都会出现
 你得去追上他们的舰队近距离接触并呆一段时间才有
 
 
-
-
-
-
-
 -----
 
 ####  PIN  
 ##### 227#       发表于 2016-5-16 02:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32438114&amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-16 00:03</a>
@@ -4651,16 +3166,10 @@ sol III，也就是地球，基本上是每个档都会出现
 哈哈，我探索3个临近恒星的教学任务就因为这个完不成了
 
 
-
-
-
-
-
 -----
 
 ####  PIN  
 ##### 228#       发表于 2016-5-16 02:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32438647&amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-16 01:40</a>
@@ -4669,16 +3178,10 @@ sol III，也就是地球，基本上是每个档都会出现
 喷了，我说怎么时不时在我星区高速通过的迷之150强度外星物体没法研究<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  eno_emos  
 ##### 229#       发表于 2016-5-16 02:26
-
 
 
  本帖最后由 eno_emos 于 2016-5-16 02:39 编辑 
@@ -4703,16 +3206,10 @@ sol III，也就是地球，基本上是每个档都会出现
 而且这小强好厉害
 
 
-
-
-
-
-
 -----
 
 ####  PIN  
 ##### 230#       发表于 2016-5-16 02:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32438816&amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-16 02:26</a>
@@ -4727,16 +3224,10 @@ sol III，也就是地球，基本上是每个档都会出现
 一开始和你图里的蟑螂长得一样，但是被我uplift以后就变样了。而且它所在的星球还在失落帝国边境上，我现在只有20k出头的舰队，和失落帝国起边境摩擦会不会被捏死啊……<img src="https://static.saraba1st.com/image/smiley/face/09.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  eno_emos  
 ##### 231#       发表于 2016-5-16 02:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32438849&amp;ptid=1275523" target="_blank">PIN 发表于 2016-5-16 02:38</a>
@@ -4745,16 +3236,10 @@ sol III，也就是地球，基本上是每个档都会出现
 你这是小强星人，还不是很正宗……
 
 
-
-
-
-
-
 -----
 
 ####  无心而死  
 ##### 232#       发表于 2016-5-16 03:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32438114&amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-16 00:03</a>
@@ -4771,25 +3256,13 @@ sol III，也就是地球，基本上是每个档都会出现
 不得不说外交太呆比，各么我打外星人还有宣战冷却————我就不能不要脸吗
 
 
-
-
-
-
-
 -----
 
 ####  无心而死  
 ##### 233#       发表于 2016-5-16 03:25
 
 
-
-
 对了球大大们发萌豚mod   
-
-
-
-
-
 
 
 -----
@@ -4798,21 +3271,13 @@ sol III，也就是地球，基本上是每个档都会出现
 ##### 234#       发表于 2016-5-16 04:34
 
 
-
-
 这游戏潜力无敌强啊！疯狂期待自制MOD！ 完全可以做一个战锤40kmod。
-
-
-
-
-
 
 
 -----
 
 ####  nxmonitor  
 ##### 235#       发表于 2016-5-16 06:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32438816&amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-16 02:26</a>
@@ -4823,16 +3288,10 @@ sol III，也就是地球，基本上是每个档都会出现
 这小强除了坟墓世界，其他星球适应都60%，再加你这个自己带的20%，还有满意度加成，宇宙帝国的黄金屁民……
 
 
-
-
-
-
-
 -----
 
 ####  nxmonitor  
 ##### 236#       发表于 2016-5-16 06:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32436270&amp;ptid=1275523" target="_blank">PIN 发表于 2016-5-15 20:14</a>
@@ -4841,16 +3300,10 @@ sol III，也就是地球，基本上是每个档都会出现
 先建立观察站，然后再改造星球，再殖民就没有问题……
 
 
-
-
-
-
-
 -----
 
 ####  nxmonitor  
 ##### 237#       发表于 2016-5-16 06:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32436561&amp;ptid=1275523" target="_blank">美利坚大老爹 发表于 2016-5-15 20:54</a>
@@ -4862,16 +3315,10 @@ sol III，也就是地球，基本上是每个档都会出现
 可以用机器人去殖民那些星球……就是有AI灾难……
 
 
-
-
-
-
-
 -----
 
 ####  双叶杏  
 ##### 238#       发表于 2016-5-16 06:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32438849&amp;ptid=1275523" target="_blank">PIN 发表于 2016-5-16 02:38</a>
@@ -4880,26 +3327,15 @@ sol III，也就是地球，基本上是每个档都会出现
 会，失落帝国兵力80k打底，当然如果你小弟多的话，也能打。昨天我50k去打，结果小弟来了40k也给我打过了
 
 
-
-
-
-
-
 -----
 
 ####  十六夜pad长  
 ##### 239#       发表于 2016-5-16 07:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32438279&amp;amp;ptid=1275523" target="_blank">伊贝里的巴里安 发表于 2016-5-16 00:32</a>
 这次一大乐趣是看事件故事，还有观察落合种族时触发了的故事。比如我一个特工爱上了落后种族的女人，然后 ...</blockquote>
 朋友，听说过阿凡达吗～?
-
-
-
-
-
 
 
 -----
@@ -4908,14 +3344,7 @@ sol III，也就是地球，基本上是每个档都会出现
 ##### 240#       发表于 2016-5-16 09:06
 
 
-
-
 这游戏是不是比P社其他几作简单一点？不用一块地一块地打，不用搞联姻继承权，不用攒开化点数，就是探索扩张战争。
-
-
-
-
-
 
 
 -----
@@ -4924,24 +3353,16 @@ sol III，也就是地球，基本上是每个档都会出现
 ##### 241#       发表于 2016-5-16 09:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32439135&amp;ptid=1275523" target="_blank">nxmonitor 发表于 2016-5-16 06:12</a>
 
 这小强除了坟墓世界，其他星球适应都60%，再加你这个自己带的20%，还有满意度加成，宇宙帝国的黄金屁民… ...</blockquote>
 唯一问题就是长得有点恶心，看久了总觉得背后发麻
 
 
-
-
-
-
-
 -----
 
 ####  你次元小报社  
 ##### 242#       发表于 2016-5-16 10:16
-
-
 
 
 可惜Uplift不能提升地球物种，这游戏后续说不定会很给力，才出了没几天，创意工坊就一堆好玩的Mod。P社Event系统能给整个作品带来翻天覆地的变化，比如通过事件增加新物种，uplift猩猩，狗娘，猫娘啊。
@@ -4953,25 +3374,13 @@ sol III，也就是地球，基本上是每个档都会出现
 P社的大框架本身就是可玩性所在，不同于其他4X，群星完完全全可以披上任何科幻小说设定的皮，甚至连深渊上的火里面的三界设定也是能够勉强复原的。一方面是期待DLC的发力，和P社传统上的不断改进。一方面则是期待玩家社区带来的各种好玩的事件和MOD。
 
 
-
-
-
-
-
 -----
 
 ####  jxst941970  
 ##### 243#       发表于 2016-5-16 10:30
 
 
-
-
 选种族只影响外观，这一点真是遗憾呀，好像这类游戏都是这样子的？真希望不同种族都分别有着完全不同的体系呀
-
-
-
-
-
 
 
 -----
@@ -4980,17 +3389,10 @@ P社的大框架本身就是可玩性所在，不同于其他4X，群星完完�
 ##### 244#       发表于 2016-5-16 10:31
 
 
-
-
 昨晚上把邻居干成附庸国了，但是感觉没什么好处啊，找他要地要粮还臭着张脸不给，妈蛋老子是你宗主国，你这么叼不合适吧
 
 
 ----发送自 [HUAWEI HUAWEI ALE-CL00,Android 4.4.4](http://stage1.5j4m.com/?1.19)
-
-
-
-
-
 
 
 -----
@@ -4999,16 +3401,10 @@ P社的大框架本身就是可玩性所在，不同于其他4X，群星完完�
 ##### 245#       发表于 2016-5-16 10:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32440624&amp;ptid=1275523" target="_blank">jxst941970 发表于 2016-5-16 10:30</a>
 
 选种族只影响外观，这一点真是遗憾呀，好像这类游戏都是这样子的？真希望不同种族都分别有着完全不同的体系 ...</blockquote>
 DLC 19.99$
-
-
-
-
-
 
 
 -----
@@ -5017,14 +3413,7 @@ DLC 19.99$
 ##### 246#       发表于 2016-5-16 10:52
 
 
-
-
 讲道理，不想花钱还有创意工坊嘛，P社的DLC非关键性的也可以不买，虽说是DLC地狱，但很多只是加点时髦值。
-
-
-
-
-
 
 
 -----
@@ -5033,15 +3422,9 @@ DLC 19.99$
 ##### 247#       发表于 2016-5-16 10:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32440640&amp;amp;ptid=1275523" target="_blank">western1031 发表于 2016-5-16 10:31</a>
 昨晚上把邻居干成附庸国了，但是感觉没什么好处啊，找他要地要粮还臭着张脸不给，妈蛋老子是你宗主国，你这 ...</blockquote>
 可以花影响力用几十年把它给吞并了
-
-
-
-
-
 
 
 -----
@@ -5050,22 +3433,13 @@ DLC 19.99$
 ##### 248#       发表于 2016-5-16 11:10
 
 
-
-
 种族至少还影响适居类型吧
-
-
-
-
-
 
 
 -----
 
 ####  路德维嘉  
 ##### 249#       发表于 2016-5-16 11:17
-
-
 
 
 发现了一个堕落帝国，母星是一个戴森环，环上有四个世界.....
@@ -5075,24 +3449,13 @@ DLC 19.99$
 然而这个活体金属没办法采集啊....<img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">,环上的轨道空间不能造任何东西....
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
 ##### 250#       发表于 2016-5-16 11:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/38.gif" referrerpolicy="no-referrer">还有就是我的国家政体不能开净化政策，那么我是不是没有办法杀死帝国境内的外星人人口呢...
-
-
-
-
-
 
 
 -----
@@ -5101,24 +3464,16 @@ DLC 19.99$
 ##### 251#       发表于 2016-5-16 11:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32441189&amp;ptid=1275523" target="_blank">路德维嘉 发表于 2016-5-16 11:19</a>
 
 还有就是我的国家政体不能开净化政策，那么我是不是没有办法杀死帝国境内的外星人人口呢... ...</blockquote>
 找个星球，拆光粮食建筑，把不爽的人移民过去
 
 
-
-
-
-
-
 -----
 
 ####  大哀之君  
 ##### 252#       发表于 2016-5-16 11:27
-
-
 
 
 对落后种族缺一个影响他思潮的办法，你们看这样好不好：
@@ -5130,16 +3485,10 @@ DLC 19.99$
     —— from [S1 Nyan](http://126.am/S1Nyan) (NOKIA Lumia 920)来自: WindowsPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  十六夜pad长  
 ##### 253#       发表于 2016-5-16 11:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32441189&amp;amp;ptid=1275523" target="_blank">路德维嘉 发表于 2016-5-16 11:19</a>
@@ -5151,25 +3500,13 @@ DLC 19.99$
 下一个档开极端军国集体主义的希灵帝国…
 
 
-
-
-
-
-
 -----
 
 ####  huhu0007  
 ##### 254#       发表于 2016-5-16 11:30
 
 
-
-
 用民主政体，各种伟光正普世价值，结果治下出现一个外星人派系要求实行奴隶制。。这种刁民还得好吃好喝安抚着，让你顿生一种欧洲白左对待绿绿那种无可奈何的感觉。。。
-
-
-
-
-
 
 
 -----
@@ -5178,23 +3515,16 @@ DLC 19.99$
 ##### 255#       发表于 2016-5-16 11:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32441274&amp;ptid=1275523" target="_blank">卖哥 发表于 2016-5-16 11:27</a>
 
 找个星球，拆光粮食建筑，把不爽的人移民过去</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/133.gif" referrerpolicy="no-referrer">原来还可以这么玩，感谢感谢
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
 ##### 256#       发表于 2016-5-16 11:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32441291&amp;ptid=1275523" target="_blank">十六夜pad长 发表于 2016-5-16 11:29</a>
@@ -5208,17 +3538,10 @@ DLC 19.99$
 看了一下净化政策需要排外主义...
 
 
-
-
-
-
-
 -----
 
 ####  你次元小报社  
 ##### 257#       发表于 2016-5-16 11:37
-
-
 
 
 讲道理，这个游戏很容易变成种族主义者，外星人那么丑，必须肉体上净化。
@@ -5230,16 +3553,10 @@ DLC 19.99$
 轨道部队不能执行三光政策估计也是考虑到了玩家最后都会选择干死所有外星人吧。
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
 ##### 258#       发表于 2016-5-16 11:39
-
 
 
 <img src="http://i2.buimg.com/568be9c4044a3cb3.png" referrerpolicy="no-referrer">
@@ -5247,16 +3564,10 @@ DLC 19.99$
 这个鬼东西哪位大大见过，要怎么搞才能弄到手...
 
 
-
-
-
-
-
 -----
 
 ####  Ny  
 ##### 259#       发表于 2016-5-16 12:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32441332&amp;ptid=1275523" target="_blank">路德维嘉 发表于 2016-5-16 11:33</a>
@@ -5282,16 +3593,10 @@ purge实在是太好用了 只需6个月就能清理整个星球的人口 高效
 最终整个银河系只有一个种族 一种价值观 一种意识形态 再也没有什么派别 叛乱 内战了  多么融洽 和谐 完美
 
 
-
-
-
-
-
 -----
 
 ####  Ny  
 ##### 260#       发表于 2016-5-16 12:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32441390&amp;ptid=1275523" target="_blank">你次元小报社 发表于 2016-5-16 11:37</a>
@@ -5309,16 +3614,10 @@ purge实在是太好用了 只需6个月就能清理整个星球的人口 高效
 对付智慧生物更麻烦 必须激励他们缓慢进化到太空时代 然后释放附庸 再等个10年才能宣战 最后打下来再purge
 
 
-
-
-
-
-
 -----
 
 ####  eno_emos  
 ##### 261#       发表于 2016-5-16 12:40
-
 
 
  本帖最后由 eno_emos 于 2016-5-21 02:13 编辑 
@@ -5341,17 +3640,10 @@ purge实在是太好用了 只需6个月就能清理整个星球的人口 高效
 572L放出一站式解决方案，附带了几个小mod
 
 
-
-
-
-
-
-
 -----
 
 ####  Firvox  
 ##### 262#       发表于 2016-5-16 12:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32441760&amp;ptid=1275523" target="_blank">Ny 发表于 2016-5-16 12:19</a>
@@ -5363,16 +3655,10 @@ purge实在是太好用了 只需6个月就能清理整个星球的人口 高效
 卡酷一，满满的最终大BOSS范儿！！
 
 
-
-
-
-
-
 -----
 
 ####  十六夜pad长  
 ##### 263#       发表于 2016-5-16 13:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32441390&amp;amp;ptid=1275523" target="_blank">你次元小报社 发表于 2016-5-16 11:37</a>
@@ -5385,16 +3671,10 @@ purge实在是太好用了 只需6个月就能清理整个星球的人口 高效
 但是宇宙外星人就没压力了啊，牛头？砍了！爬虫？烧了！
 
 
-
-
-
-
-
 -----
 
 ####  jkphni  
 ##### 264#       发表于 2016-5-16 13:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32441171&amp;ptid=1275523" target="_blank">路德维嘉 发表于 2016-5-16 11:17</a>
@@ -5405,27 +3685,15 @@ purge实在是太好用了 只需6个月就能清理整个星球的人口 高效
 活体金属的科技研发之后要去其他星球探索啊w 和其他稀有资源一样的
 
 
-
-
-
-
-
 -----
 
 ####  allenz  
 ##### 265#       发表于 2016-5-16 13:06
 
 
-
-
 这游戏是不是还没接上成就系统～
 
 —— 来自 HUAWEI NXT-AL10, Android 6.0
-
-
-
-
-
 
 
 -----
@@ -5434,23 +3702,15 @@ purge实在是太好用了 只需6个月就能清理整个星球的人口 高效
 ##### 266#       发表于 2016-5-16 13:06
 
 
-
-
 怎么开星区？观察站远被动和主动有什么不同？
 
 —— 来自 HUAWEI NXT-AL10, Android 6.0
-
-
-
-
-
 
 
 -----
 
 ####  normalli  
 ##### 267#       发表于 2016-5-16 13:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32442202&amp;ptid=1275523" target="_blank">allenz 发表于 2016-5-16 13:06</a>
@@ -5462,16 +3722,10 @@ purge实在是太好用了 只需6个月就能清理整个星球的人口 高效
 p社惯例，做成就要开铁人模式，我觉得能把欧陆风云全成就的真心牛逼，挪威森林，三山帝国这种不作弊感觉基本没戏
 
 
-
-
-
-
-
 -----
 
 ####  eno_emos  
 ##### 268#       发表于 2016-5-16 13:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32442213&amp;ptid=1275523" target="_blank">allenz 发表于 2016-5-16 13:06</a>
@@ -5490,16 +3744,10 @@ p社惯例，做成就要开铁人模式，我觉得能把欧陆风云全成就�
 成就好像是要无mod+铁人模式才有……
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
 ##### 269#       发表于 2016-5-16 13:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32442165&amp;ptid=1275523" target="_blank">jkphni 发表于 2016-5-16 13:02</a>
@@ -5508,17 +3756,10 @@ p社惯例，做成就要开铁人模式，我觉得能把欧陆风云全成就�
 我是在戴森环上发现的活体金属，开发不能....
 
 
-
-
-
-
-
 -----
 
 ####  你次元小报社  
 ##### 270#       发表于 2016-5-16 13:59
-
-
 
 
 不作弊有时候真憋屈到不行，国内礼崩乐坏，国外强敌环视。舰队数和你帝国大小有关，养舰队和你国内资源有关，然后影响力影响你各方面。
@@ -5527,32 +3768,19 @@ p社惯例，做成就要开铁人模式，我觉得能把欧陆风云全成就�
 控制台也有控制台的乐趣，P社游戏怎么玩都非常有意思。
 
 
-
-
-
-
-
 -----
 
 ####  belatedeffort  
 ##### 271#       发表于 2016-5-16 14:09
 
 
-
-
 宣战和外交系统感觉还是弱了点，能做得像eu那样就好了
-
-
-
-
-
 
 
 -----
 
 ####  eno_emos  
 ##### 272#       发表于 2016-5-16 14:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32442702&amp;ptid=1275523" target="_blank">你次元小报社 发表于 2016-5-16 13:59</a>
@@ -5563,16 +3791,10 @@ p社惯例，做成就要开铁人模式，我觉得能把欧陆风云全成就�
 但是开出来百万巨舰未必养的起……
 
 
-
-
-
-
-
 -----
 
 ####  你次元小报社  
 ##### 273#       发表于 2016-5-16 14:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32442783&amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-16 14:10</a>
@@ -5583,17 +3805,10 @@ p社惯例，做成就要开铁人模式，我觉得能把欧陆风云全成就�
 打仗花钱如流水啊，大舰队不开还能窝空间站里降低维护费，开起来，那每一天都在烧钱
 
 
-
-
-
-
-
 -----
 
 ####  愚妓米露露  
 ##### 274#       发表于 2016-5-16 15:25
-
-
 
 
 请问对付落后文明只能观察吗？
@@ -5603,16 +3818,10 @@ p社惯例，做成就要开铁人模式，我觉得能把欧陆风云全成就�
 先富带动后富也是星际文明的责任之一啊，文艺复兴的文明一下被带进核聚变和曲率引擎时代那是多么好的事情啊
 
 
-
-
-
-
-
 -----
 
 ####  squallx2  
 ##### 275#       发表于 2016-5-16 15:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32443520&amp;ptid=1275523" target="_blank">愚妓米露露 发表于 2016-5-16 15:25</a>
@@ -5625,25 +3834,13 @@ p社惯例，做成就要开铁人模式，我觉得能把欧陆风云全成就�
 国策里面要调成干涉
 
 
-
-
-
-
-
 -----
 
 ####  wuzhino1  
 ##### 276#       发表于 2016-5-16 16:27
 
 
-
-
 你们都是开着最高速玩的么？
-
-
-
-
-
 
 
 -----
@@ -5652,15 +3849,9 @@ p社惯例，做成就要开铁人模式，我觉得能把欧陆风云全成就�
 ##### 277#       发表于 2016-5-16 16:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32444175&amp;ptid=1275523" target="_blank">wuzhino1 发表于 2016-5-16 16:27</a>
 你们都是开着最高速玩的么？</blockquote>
 e3v5 3.65G卡成死狗 不开高速不知道怎么玩
-
-
-
-
-
 
 
 -----
@@ -5669,16 +3860,10 @@ e3v5 3.65G卡成死狗 不开高速不知道怎么玩
 ##### 278#       发表于 2016-5-16 16:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32444217&amp;ptid=1275523" target="_blank">你的全家 发表于 2016-5-16 16:30</a>
 
 e3v5 3.65G卡成死狗 不开高速不知道怎么玩</blockquote>
 卡倒是不卡，就是开快速进度很慢
-
-
-
-
-
 
 
 -----
@@ -5687,16 +3872,10 @@ e3v5 3.65G卡成死狗 不开高速不知道怎么玩</blockquote>
 ##### 279#       发表于 2016-5-16 16:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32444217&amp;ptid=1275523" target="_blank">你的全家 发表于 2016-5-16 16:30</a>
 
 e3v5 3.65G卡成死狗 不开高速不知道怎么玩</blockquote>
 卡倒是不卡，就是开快速进度很慢
-
-
-
-
-
 
 
 -----
@@ -5705,14 +3884,7 @@ e3v5 3.65G卡成死狗 不开高速不知道怎么玩</blockquote>
 ##### 280#       发表于 2016-5-16 16:35
 
 
-
-
 话说有哪些MOD值得装？
-
-
-
-
-
 
 
 -----
@@ -5721,24 +3893,16 @@ e3v5 3.65G卡成死狗 不开高速不知道怎么玩</blockquote>
 ##### 281#       发表于 2016-5-16 17:17
 
 
-
-
 后期高速和普通没什么区别，高速就是一卡一卡的普通速度。
 
 
 E3 1230V3 32G，流畅度还可以，只能说还可以。
 
 
-
-
-
-
-
 -----
 
 ####  你次元小报社  
 ##### 282#       发表于 2016-5-16 17:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32444268&amp;ptid=1275523" target="_blank">wuzhino1 发表于 2016-5-16 16:35</a>
@@ -5762,16 +3926,10 @@ sol＋ 扩大太阳系可殖民星球，这个甚好，虽然很破坏游戏平�
 事件MOD还不多，因为大家都在玩，还没人静下心来好好做事件
 
 
-
-
-
-
-
 -----
 
 ####  你的全家  
 ##### 283#       发表于 2016-5-16 17:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32444682&amp;ptid=1275523" target="_blank">你次元小报社 发表于 2016-5-16 17:17</a>
@@ -5782,16 +3940,10 @@ E3 1230V3 32G，流畅度还可以，只能说还可以。 ...</blockquote>
 ……动一小会卡10秒 看着任务管理器只有一个核心跑满的就我吗
 
 
-
-
-
-
-
 -----
 
 ####  wuzhino1  
 ##### 284#       发表于 2016-5-16 17:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32444747&amp;ptid=1275523" target="_blank">你次元小报社 发表于 2016-5-16 17:23</a>
@@ -5800,25 +3952,13 @@ sol＋ 扩大太阳系可殖民星球，这个甚好，虽然很破坏游戏平�
 谢谢，不过不是很吸引人，有没有简化操作的mod
 
 
-
-
-
-
-
 -----
 
 ####  喵咪咪格勒  
 ##### 285#       发表于 2016-5-16 17:52
 
 
-
-
 p社游戏都扔ssd里玩
-
-
-
-
-
 
 
 -----
@@ -5827,13 +3967,7 @@ p社游戏都扔ssd里玩
 ##### 286#       发表于 2016-5-16 18:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">这游戏都这么简单了还要简化操作？
-
-
-
-
-
 
 
 -----
@@ -5842,16 +3976,10 @@ p社游戏都扔ssd里玩
 ##### 287#       发表于 2016-5-16 18:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32440927&amp;ptid=1275523" target="_blank">sandro 发表于 2016-5-16 10:57</a>
 
 可以花影响力用几十年把它给吞并了</blockquote>
 请问怎么吞并啊，找不到这个选项
-
-
-
-
-
 
 
 -----
@@ -5860,15 +3988,9 @@ p社游戏都扔ssd里玩
 ##### 288#       发表于 2016-5-16 18:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32445312&amp;amp;ptid=1275523" target="_blank">逻辑自闭症 发表于 2016-5-16 18:33</a>
 请问怎么吞并啊，找不到这个选项</blockquote>
 记得应该是在外交界面的一个角落里，不知道跟政体有没有关系
-
-
-
-
-
 
 
 -----
@@ -5877,16 +3999,10 @@ p社游戏都扔ssd里玩
 ##### 289#       发表于 2016-5-16 18:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32445312&amp;ptid=1275523" target="_blank">逻辑自闭症 发表于 2016-5-16 18:33</a>
 
 请问怎么吞并啊，找不到这个选项</blockquote>
 外交最下面一个选项
-
-
-
-
-
 
 
 -----
@@ -5895,15 +4011,9 @@ p社游戏都扔ssd里玩
 ##### 290#       发表于 2016-5-16 18:45
 
 
-
 <blockquote>sdefrfg 发表于 2016-5-15 17:50
 据说可以碰到满是智能辐射蟑螂的废土地球。。。。</blockquote>
 我已经碰到了
-
-
-
-
-
 
 
 -----
@@ -5912,15 +4022,9 @@ p社游戏都扔ssd里玩
 ##### 291#       发表于 2016-5-16 18:45
 
 
-
 <blockquote>sdefrfg 发表于 2016-5-15 17:50
 据说可以碰到满是智能辐射蟑螂的废土地球。。。。</blockquote>
 我已经碰到了
-
-
-
-
-
 
 
 -----
@@ -5929,15 +4033,9 @@ p社游戏都扔ssd里玩
 ##### 292#       发表于 2016-5-16 18:45
 
 
-
 <blockquote>sdefrfg 发表于 2016-5-15 17:50
 据说可以碰到满是智能辐射蟑螂的废土地球。。。。</blockquote>
 我已经碰到了
-
-
-
-
-
 
 
 -----
@@ -5946,14 +4044,7 @@ p社游戏都扔ssd里玩
 ##### 293#       发表于 2016-5-16 18:48
 
 
-
-
 好气呀，我游戏里有人类，母星地球，是不是没机会碰到废土蟑螂了。。。
-
-
-
-
-
 
 
 -----
@@ -5962,24 +4053,15 @@ p社游戏都扔ssd里玩
 ##### 294#       发表于 2016-5-16 18:59
 
 
-
-
 找到了个金盘，开启任务线：太阳系坐标<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
 
 然而过去一看已经只剩蟑螂了
-
-
-
-
-
 
 
 -----
 
 ####  又土又笨曾阿芬  
 ##### 295#       发表于 2016-5-16 20:06
-
-
 
 
 请问改造类地星球的技术到底什么时候能出？
@@ -5989,16 +4071,10 @@ p社游戏都扔ssd里玩
 而且文明之间价值观怎么还不如中世纪，CK2征服一圈有个名号给你，这我就灭了一个讨厌我的螃蟹人，接着所有文明就都讨厌我了
 
 
-
-
-
-
-
 -----
 
 ####  逻辑自闭症  
 ##### 296#       发表于 2016-5-16 20:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32445376&amp;ptid=1275523" target="_blank">endlesssin 发表于 2016-5-16 18:42</a>
@@ -6007,16 +4083,10 @@ p社游戏都扔ssd里玩
 好的，谢谢
 
 
-
-
-
-
-
 -----
 
 ####  dxx9665  
 ##### 297#       发表于 2016-5-16 21:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32446030&amp;ptid=1275523" target="_blank">又土又笨曾阿芬 发表于 2016-5-16 20:06</a>
@@ -6029,16 +4099,10 @@ p社游戏都扔ssd里玩
 你用工程舰在可以殖民的星球上修附属设施看看有没有转化空间站这个选项
 
 
-
-
-
-
-
 -----
 
 ####  又土又笨曾阿芬  
 ##### 298#       发表于 2016-5-16 21:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32446494&amp;ptid=1275523" target="_blank">dxx9665 发表于 2016-5-16 21:06</a>
@@ -6049,17 +4113,10 @@ p社游戏都扔ssd里玩
 我估计是什么地方漏掉了，登陆部队不知道在什么地方，地球化科技也没出来
 
 
-
-
-
-
-
 -----
 
 ####  卖哥  
 ##### 299#       发表于 2016-5-16 21:49
-
-
 
 
 科技看脸
@@ -6076,16 +4133,10 @@ p社游戏都扔ssd里玩
 基础概率75，研究员不是新世界专长乘以0.33。
 
 
-
-
-
-
-
 -----
 
 ####  zmxlegend  
 ##### 300#       发表于 2016-5-16 21:49
-
 
 
  本帖最后由 zmxlegend 于 2016-5-16 21:55 编辑 
@@ -6107,16 +4158,10 @@ As long as enough players keep buying paid content for the game, we promise to k
 你们有人买我就会继续出dlc（不买我就不做了）
 
 
-
-
-
-
-
 -----
 
 ####  PIN  
 ##### 301#       发表于 2016-5-16 21:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32445434&amp;ptid=1275523" target="_blank">sandro 发表于 2016-5-16 18:48</a>
@@ -6125,16 +4170,10 @@ As long as enough players keep buying paid content for the game, we promise to k
 貌似游戏里可以碰到多个sol，reddit上有人反映最多整个银河碰到过3个……
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 302#       发表于 2016-5-16 21:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32446812&amp;amp;ptid=1275523" target="_blank">PIN 发表于 2016-5-16 21:52</a>
@@ -6144,16 +4183,10 @@ As long as enough players keep buying paid content for the game, we promise to k
 喷了，这都可以
 
 
-
-
-
-
-
 -----
 
 ####  卖哥  
 ##### 303#       发表于 2016-5-16 22:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32446791&amp;ptid=1275523" target="_blank">zmxlegend 发表于 2016-5-16 21:49</a>
@@ -6168,26 +4201,15 @@ https://forum.paradoxplaza.com/f ... iden-voyage.932668/
 初版故意保留游戏系统保留得太明显了呀。
 
 
-
-
-
-
-
 -----
 
 ####  薛定谔的包裹  
 ##### 304#       发表于 2016-5-16 22:39
 
 
-
  本帖最后由 薛定谔的包裹 于 2016-5-16 22:54 编辑 
 
 要加入奴隶林登万了。外交系统改进，种族灭绝估计也不敢那么随心所欲了。还是洗脑靠谱。
-
-
-
-
-
 
 
 -----
@@ -6196,22 +4218,15 @@ https://forum.paradoxplaza.com/f ... iden-voyage.932668/
 ##### 305#       发表于 2016-5-16 23:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32447122&amp;ptid=1275523" target="_blank">薛定谔的包裹 发表于 2016-5-16 22:39</a>
 要加入奴隶林登万了。外交系统改进，种族灭绝估计也不敢那么随心所欲了。还是洗脑靠谱。 ...</blockquote>
 steam workshop目前好像有人在做玻璃球mod 所以这并不是问题(
-
-
-
-
-
 
 
 -----
 
 ####  eno_emos  
 ##### 306#       发表于 2016-5-17 00:07
-
 
 
  本帖最后由 eno_emos 于 2016-5-17 00:09 编辑 
@@ -6228,16 +4243,10 @@ steam workshop目前好像有人在做玻璃球mod 所以这并不是问题(
 而且还是没FTL跳跃的？
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 307#       发表于 2016-5-17 00:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32447740&amp;amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-17 00:07</a>
@@ -6249,16 +4258,10 @@ steam workshop目前好像有人在做玻璃球mod 所以这并不是问题(
 野生的结晶怪啊
 
 
-
-
-
-
-
 -----
 
 ####  你的全家  
 ##### 308#       发表于 2016-5-17 03:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32447740&amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-17 00:07</a>
@@ -6270,25 +4273,13 @@ steam workshop目前好像有人在做玻璃球mod 所以这并不是问题(
 当地瞎jb逛的野怪 派兵剿灭即可
 
 
-
-
-
-
-
 -----
 
 ####  发呆的龙虾  
 ##### 309#       发表于 2016-5-17 07:04
 
 
-
-
 所有用科幻作家命名的升级包都是免费的好像。
-
-
-
-
-
 
 
 -----
@@ -6297,14 +4288,7 @@ steam workshop目前好像有人在做玻璃球mod 所以这并不是问题(
 ##### 310#       发表于 2016-5-17 09:11
 
 
-
-
 怎么能扩大边境啊，有个殖民星球离帝国有点远，中间都断开了。造前哨站又要影响力，不够用了。<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6313,15 +4297,9 @@ steam workshop目前好像有人在做玻璃球mod 所以这并不是问题(
 ##### 311#       发表于 2016-5-17 09:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32449404&amp;ptid=1275523" target="_blank">monono 发表于 2016-5-17 09:11</a>
 怎么能扩大边境啊，有个殖民星球离帝国有点远，中间都断开了。造前哨站又要影响力，不够用了。 ...</blockquote>
 星区很有用, 把之前造出来所有的前哨站全部扔给星区管, 影响力不缺的
-
-
-
-
-
 
 
 -----
@@ -6330,14 +4308,7 @@ steam workshop目前好像有人在做玻璃球mod 所以这并不是问题(
 ##### 312#       发表于 2016-5-17 09:32
 
 
-
-
 话说我第一次开局选了螺旋宇宙，是不是只剩血腥的小鱼吃虾米，吃成中鱼吃小鱼这一条路了。这届宇宙不行啊。
-
-
-
-
-
 
 
 -----
@@ -6346,16 +4317,10 @@ steam workshop目前好像有人在做玻璃球mod 所以这并不是问题(
 ##### 313#       发表于 2016-5-17 09:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32440505&amp;ptid=1275523" target="_blank">你次元小报社 发表于 2016-5-15 21:16</a>
 
 可惜Uplift不能提升地球物种，这游戏后续说不定会很给力，才出了没几天，创意工坊就一堆好玩的Mod。P社Even ...</blockquote>
 我去了steam的Stellaris创意工坊，怎么没有你说的那些啊？
-
-
-
-
-
 
 
 -----
@@ -6364,14 +4329,7 @@ steam workshop目前好像有人在做玻璃球mod 所以这并不是问题(
 ##### 314#       发表于 2016-5-17 09:51
 
 
-
-
 这游戏最大到战列舰吗？
-
-
-
-
-
 
 
 -----
@@ -6380,14 +4338,7 @@ steam workshop目前好像有人在做玻璃球mod 所以这并不是问题(
 ##### 315#       发表于 2016-5-17 09:56
 
 
-
-
 不愧是DLC社
-
-
-
-
-
 
 
 -----
@@ -6396,16 +4347,10 @@ steam workshop目前好像有人在做玻璃球mod 所以这并不是问题(
 ##### 316#       发表于 2016-5-17 10:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32449762&amp;ptid=1275523" target="_blank">Stage1st论坛 发表于 2016-5-17 09:50</a>
 
 我去了steam的Stellaris创意工坊，怎么没有你说的那些啊？</blockquote>
 有一些是我想象中的，艹猫的有
-
-
-
-
-
 
 
 -----
@@ -6414,14 +4359,7 @@ steam workshop目前好像有人在做玻璃球mod 所以这并不是问题(
 ##### 317#       发表于 2016-5-17 10:03
 
 
-
-
 有人知道瞬移控制台指令怎么用么，后期调动一次舰队要1，2年，玩不动了
-
-
-
-
-
 
 
 -----
@@ -6430,14 +4368,7 @@ steam workshop目前好像有人在做玻璃球mod 所以这并不是问题(
 ##### 318#       发表于 2016-5-17 10:11
 
 
-
-
 初版叫银河版的话，估计以后有多星系地图
-
-
-
-
-
 
 
 -----
@@ -6446,16 +4377,10 @@ steam workshop目前好像有人在做玻璃球mod 所以这并不是问题(
 ##### 319#       发表于 2016-5-17 10:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32449899&amp;ptid=1275523" target="_blank">midearth 发表于 2016-5-17 10:03</a>
 
 有人知道瞬移控制台指令怎么用么，后期调动一次舰队要1，2年，玩不动了</blockquote>
 瞬移不知道怎么弄，不过可以搞psi jump drive出来，如同开挂般一跳一两个旋臂
-
-
-
-
-
 
 
 -----
@@ -6464,15 +4389,9 @@ steam workshop目前好像有人在做玻璃球mod 所以这并不是问题(
 ##### 320#       发表于 2016-5-17 10:33
 
 
-
 <blockquote>monono 发表于 2016-5-17 09:11
 怎么能扩大边境啊，有个殖民星球离帝国有点远，中间都断开了。造前哨站又要影响力，不够用了。 ...</blockquote>
 星球人口和科技可以扩大边境。
-
-
-
-
-
 
 
 -----
@@ -6481,23 +4400,16 @@ steam workshop目前好像有人在做玻璃球mod 所以这并不是问题(
 ##### 321#       发表于 2016-5-17 10:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32449773&amp;ptid=1275523" target="_blank">榨汁姬 发表于 2016-5-17 09:51</a>
 
 这游戏最大到战列舰吗？</blockquote>
 是的 但是打仗还是要多造Corvette级的，大船抗不了伤害，需要小船当炮灰
 
 
-
-
-
-
-
 -----
 
 ####  eno_emos  
 ##### 322#       发表于 2016-5-17 11:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32448021&amp;ptid=1275523" target="_blank">sandro 发表于 2016-5-17 00:54</a>
@@ -6518,16 +4430,10 @@ steam workshop目前好像有人在做玻璃球mod 所以这并不是问题(
 这帮石器时代的野蛮人到底做了什么？居然能有一队行星际宇宙飞船
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 323#       发表于 2016-5-17 11:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32450889&amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-17 11:37</a>
@@ -6538,32 +4444,19 @@ steam workshop目前好像有人在做玻璃球mod 所以这并不是问题(
 咦，没注意，好神奇啊
 
 
-
-
-
-
-
 -----
 
 ####  cmyk1234  
 ##### 324#       发表于 2016-5-17 11:50
 
 
-
-
 日后会不会有一=全部～全部=一的领导基层不分家体系，且p2p的无首都=全是首都政体，且只要有任意一个星球就能原地复活兼所有功能保存的势力？
-
-
-
-
-
 
 
 -----
 
 ####  cools  
 ##### 325#       发表于 2016-5-17 12:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32450889&amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-17 11:37</a>
@@ -6576,27 +4469,15 @@ steam workshop目前好像有人在做玻璃球mod 所以这并不是问题(
 这还没啥，有一次我自己的母星被显示成属于某个土著文明了
 
 
-
-
-
-
-
 -----
 
 ####  allenz  
 ##### 326#       发表于 2016-5-17 12:21
 
 
-
-
 感觉外交好难，同盟一开始就负50点，就算关系好稍微有点属性不合基本不可能，交战中还不能结盟，宣战要事先选择目标，而且有点数限制，打下了星球也不算是你的，附庸国没吊用……
 
 —— 来自 HUAWEI NXT-AL10, Android 6.0
-
-
-
-
-
 
 
 -----
@@ -6605,16 +4486,10 @@ steam workshop目前好像有人在做玻璃球mod 所以这并不是问题(
 ##### 327#       发表于 2016-5-17 13:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32451352&amp;ptid=1275523" target="_blank">allenz 发表于 2016-5-17 12:21</a>
 
 感觉外交好难，同盟一开始就负50点，就算关系好稍微有点属性不合基本不可能，交战中还不能结盟，宣战要事先 ...</blockquote>
 战争政策要一致，然后有共同敌人，可以在国力没有优势的情况下拉到盟友，不然基本就要自己是大腿才拉得动。
-
-
-
-
-
 
 
 -----
@@ -6623,21 +4498,13 @@ steam workshop目前好像有人在做玻璃球mod 所以这并不是问题(
 ##### 328#       发表于 2016-5-17 14:10
 
 
-
-
 舰队战战争分数太低了，一般来说，主力舰队消灭后，一国就任人宰割了，结果消灭主力舰队，战争分数没涨多少。
-
-
-
-
-
 
 
 -----
 
 ####  PIN  
 ##### 329#       发表于 2016-5-17 14:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32451326&amp;ptid=1275523" target="_blank">cools 发表于 2016-5-17 12:19</a>
@@ -6648,26 +4515,14 @@ steam workshop目前好像有人在做玻璃球mod 所以这并不是问题(
 猩球崛起咩？<img src="https://static.saraba1st.com/image/smiley/face/05.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  chaoswing  
 ##### 330#       发表于 2016-5-17 14:49
 
 
-
-
 p社祖传控制台很好玩，可以play xx来扮演ai控制的势力，比如标准设置的中等地图，有17个电脑的时候，就可以play 18或者19或者20来扮演失落帝国啦
 play 21开始就是野怪了
-
-
-
-
-
 
 
 -----
@@ -6676,21 +4531,13 @@ play 21开始就是野怪了
 ##### 331#       发表于 2016-5-17 15:00
 
 
-
-
 这游戏看着挺有意思的<img src="https://static.saraba1st.com/image/smiley/face/55.gif" referrerpolicy="no-referrer">配置要求高吗？5代i7+8G内存和核显能玩吗？
-
-
-
-
-
 
 
 -----
 
 ####  卖哥  
 ##### 332#       发表于 2016-5-17 15:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32452833&amp;ptid=1275523" target="_blank">我来自一中 发表于 2016-5-17 15:00</a>
@@ -6701,25 +4548,13 @@ play 21开始就是野怪了
 想极大图全程流畅，CPU的单线程性能目测得是目前人类科技水平的3倍吧……
 
 
-
-
-
-
-
 -----
 
 ####  liangjiami2  
 ##### 333#       发表于 2016-5-17 15:20
 
 
-
-
 优化水平无敌
-
-
-
-
-
 
 
 -----
@@ -6728,14 +4563,7 @@ play 21开始就是野怪了
 ##### 334#       发表于 2016-5-17 15:43
 
 
-
-
 p社这游戏算是优化得最好的一部了 后期会卡不是画面卡 只是时间流逝得慢而已
-
-
-
-
-
 
 
 -----
@@ -6744,13 +4572,7 @@ p社这游戏算是优化得最好的一部了 后期会卡不是画面卡 只�
 ##### 335#       发表于 2016-5-17 15:51
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">乱七八糟的要素好多，居然还有被封印的世界，解开封印后里面是一团虚空云...
-
-
-
-
-
 
 
 -----
@@ -6759,17 +4581,10 @@ p社这游戏算是优化得最好的一部了 后期会卡不是画面卡 只�
 ##### 336#       发表于 2016-5-17 16:51
 
 
-
-
 把别人打成附庸之后满十年融合这个策略有没有什么风险啊？还有对新占领星球的不满人口，可以迁移到自己其他核心星球上嘛，分化后独立派系几十年都不不涨一点的
 
 
 ----发送自 [HUAWEI HUAWEI ALE-CL00,Android 4.4.4](http://stage1.5j4m.com/?1.19)
-
-
-
-
-
 
 
 -----
@@ -6778,15 +4593,9 @@ p社这游戏算是优化得最好的一部了 后期会卡不是画面卡 只�
 ##### 337#       发表于 2016-5-17 16:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32453256&amp;amp;ptid=1275523" target="_blank">路德维嘉 发表于 2016-5-17 15:51</a>
 乱七八糟的要素好多，居然还有被封印的世界，解开封印后里面是一团虚空云... ...</blockquote>
 感觉这游戏开一盘然后记录下来脑洞润色一下就是一部不错的中篇太空歌剧
-
-
-
-
-
 
 
 -----
@@ -6795,14 +4604,7 @@ p社这游戏算是优化得最好的一部了 后期会卡不是画面卡 只�
 ##### 338#       发表于 2016-5-17 17:18
 
 
-
-
 这个飞船改造有问题，运兵的运输船不能改，导致运兵速度慢得惊人
-
-
-
-
-
 
 
 -----
@@ -6811,16 +4613,10 @@ p社这游戏算是优化得最好的一部了 后期会卡不是画面卡 只�
 ##### 339#       发表于 2016-5-17 17:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32453782&amp;ptid=1275523" target="_blank">western1031 发表于 2016-5-17 16:51</a>
 
 把别人打成附庸之后满十年融合这个策略有没有什么风险啊？还有对新占领星球的不满人口，可以迁移到自己其他 ...</blockquote>
 几十几百的外星屁民还是会有政治上的压力的，三观也不一定正，搞不好过几年不满意又扯大旗拉虎皮闹独立了
-
-
-
-
-
 
 
 -----
@@ -6829,14 +4625,7 @@ p社这游戏算是优化得最好的一部了 后期会卡不是画面卡 只�
 ##### 340#       发表于 2016-5-17 17:23
 
 
-
-
 依旧只支持单核单线程，无语了……
-
-
-
-
-
 
 
 -----
@@ -6845,23 +4634,15 @@ p社这游戏算是优化得最好的一部了 后期会卡不是画面卡 只�
 ##### 341#       发表于 2016-5-17 17:32
 
 
-
-
 而且空间站什么的默认武器都是最垃圾的而且不能升级
 
 捉急啊
-
-
-
-
-
 
 
 -----
 
 ####  你的全家  
 ##### 342#       发表于 2016-5-17 18:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32454135&amp;ptid=1275523" target="_blank">又土又笨曾阿芬 发表于 2016-5-17 17:32</a>
@@ -6871,16 +4652,10 @@ p社这游戏算是优化得最好的一部了 后期会卡不是画面卡 只�
 空间站武器直接自动跟科技升的 我打堕落帝国的时候 他们空间站1k……
 
 
-
-
-
-
-
 -----
 
 ####  你的全家  
 ##### 343#       发表于 2016-5-17 18:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32452833&amp;ptid=1275523" target="_blank">我来自一中 发表于 2016-5-17 15:00</a>
@@ -6892,17 +4667,10 @@ cpu只看单线程 我在想上古的8G amd比现代i7要厉害
 6代e3只敢开小图 中等到2380年就基本等于死机了（不过可以干其他的 不影响）
 
 
-
-
-
-
-
 -----
 
 ####  你次元小报社  
 ##### 344#       发表于 2016-5-17 18:28
-
-
 
 
 P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就是一卡一卡，控制台kill几个国家会好一点。
@@ -6911,25 +4679,13 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 还是执行效率问题，能多核的话，就好了
 
 
-
-
-
-
-
 -----
 
 ####  薛定谔的包裹  
 ##### 345#       发表于 2016-5-17 18:40
 
 
-
-
 事件中有一个星际文明用亚光速引擎扩张了45万年，以后会不会有亚光速dlc<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6938,16 +4694,10 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 ##### 346#       发表于 2016-5-17 18:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32454007&amp;ptid=1275523" target="_blank">又土又笨曾阿芬 发表于 2016-5-17 17:18</a>
 
 这个飞船改造有问题，运兵的运输船不能改，导致运兵速度慢得惊人</blockquote>
 舰船设计画面左下角那个自动设计点几次试试
-
-
-
-
-
 
 
 -----
@@ -6956,17 +4706,10 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 ##### 347#       发表于 2016-5-17 18:55
 
 
-
-
 运兵船好像要MOD才能改造，舰队决战的战争点数太低，反复打仗就是烧钱，但是怎么想都是干掉别人的主力舰队，敌人的星球想怎么轰炸怎么轰炸。
 
 
 问题是P社还是要你去乖乖登陆，打文明战争，不爽。
-
-
-
-
-
 
 
 -----
@@ -6975,13 +4718,7 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 ##### 348#       发表于 2016-5-17 18:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">感觉不错，想入，然而英文苦手，有推荐的汉化吗
-
-
-
-
-
 
 
 -----
@@ -6990,16 +4727,10 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 ##### 349#       发表于 2016-5-17 18:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32454706&amp;ptid=1275523" target="_blank">薛定谔的包裹 发表于 2016-5-17 18:40</a>
 
 事件中有一个星际文明用亚光速引擎扩张了45万年，以后会不会有亚光速dlc ...</blockquote>
 有这个DLC的话，那就变成能搞界区了，深渊上的火。
-
-
-
-
-
 
 
 -----
@@ -7008,24 +4739,15 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 ##### 350#       发表于 2016-5-17 19:04
 
 
-
-
 遇到了一个bug，登陆部队在非战争目标星球交战，同时接受了对方的投降，然后这只部队就在这个星球卡住了，由于这个星球不是己方控制也不能启航。
 
 准备等停战期过后再宣一次试试，看下这只部队能否来个里应外合。
-
-
-
-
-
-
 
 
 -----
 
 ####  western1031  
 ##### 351#       发表于 2016-5-17 19:30
-
 
 
 <blockquote>引用第338楼sandro于2016-05-17 17:23发表的  :
@@ -7039,16 +4761,10 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 ----发送自 [HUAWEI HUAWEI ALE-CL00,Android 4.4.4](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  Ny  
 ##### 352#       发表于 2016-5-17 19:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32453782&amp;amp;ptid=1275523" target="_blank">western1031 发表于 2016-5-17 16:51</a>
@@ -7056,17 +4772,10 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 迁移一个人口消耗50点影响力啊 一年才几十点 不是长久之计
 
 
-
-
-
-
-
 -----
 
 ####  厨厨光波  
 ##### 353#       发表于 2016-5-17 19:50
-
-
 
 
 上手局，commonwealth of men刷了快40小时
@@ -7114,17 +4823,10 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 无敌是多么寂寞<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  你次元小报社  
 ##### 354#       发表于 2016-5-17 21:38
-
-
 
 
 上了舰娘和waifu MOD，整个游戏变了……
@@ -7139,17 +4841,10 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 最关键的有人诟病，P社第一个脱离历史的游戏，然而因为脱离了常规历史，反而可以玩更多有趣的东西。
 
 
-
-
-
-
-
 -----
 
 ####  fkinway  
 ##### 355#       发表于 2016-5-17 22:00
-
-
 
 
 这游戏真浪费时间。再开把新的
@@ -7161,16 +4856,10 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 剧情简直就是uc+ce<img src="https://static.saraba1st.com/image/smiley/zdl/157.gif" referrerpolicy="no-referrer">，p社肯定喜欢高达
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 356#       发表于 2016-5-17 22:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32455120&amp;ptid=1275523" target="_blank">western1031 发表于 2016-5-17 19:30</a>
@@ -7181,16 +4870,10 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 我是开信息管制+每个星球造洗脑光线，洗脑光线造出来之前都快独立了，分裂分子支持率高得一比，洗脑光线一造完就好了
 
 
-
-
-
-
-
 -----
 
 ####  愚妓米露露  
 ##### 357#       发表于 2016-5-17 22:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32456243&amp;ptid=1275523" target="_blank">fkinway 发表于 2016-5-17 22:00</a>
@@ -7205,17 +4888,10 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 后来有寒冷星球就把这个族运过去殖民，好用的很
 
 
-
-
-
-
-
 -----
 
 ####  你次元小报社  
 ##### 358#       发表于 2016-5-17 22:45
-
-
 
 
 你会看到很多很多科幻小说的影子……
@@ -7224,32 +4900,19 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 第一把玩民主，各种不满。现在这把银河帝国，三光外星人。
 
 
-
-
-
-
-
 -----
 
 ####  你次元小报社  
 ##### 359#       发表于 2016-5-17 22:47
 
 
-
-
 这一把初始任务有回收探测器，非常三体……
-
-
-
-
-
 
 
 -----
 
 ####  PIN  
 ##### 360#       发表于 2016-5-17 23:01
-
 
 
  本帖最后由 PIN 于 2016-5-17 23:02 编辑 
@@ -7259,16 +4922,10 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 现在只能开局5行星憋舰队憋科技看看能不能反杀……<img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  你的全家  
 ##### 361#       发表于 2016-5-17 23:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32456243&amp;ptid=1275523" target="_blank">fkinway 发表于 2016-5-17 22:00</a>
@@ -7278,17 +4935,10 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 你开了基因改造就会有这个问题
 
 
-
-
-
-
-
 -----
 
 ####  战列驱逐舰POI  
 ##### 362#       发表于 2016-5-17 23:30
-
-
 
 
 集体军国
@@ -7298,25 +4948,13 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 本族人改变了道德的统统净化
 
 
-
-
-
-
-
 -----
 
 ####  你次元小报社  
 ##### 363#       发表于 2016-5-17 23:46
 
 
-
-
 总觉得这游戏玩到后面，每个人都会发现自己成了极端种族主义者
-
-
-
-
-
 
 
 -----
@@ -7325,16 +4963,10 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 ##### 364#       发表于 2016-5-17 23:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32456929&amp;ptid=1275523" target="_blank">你次元小报社 发表于 2016-5-17 23:46</a>
 
 总觉得这游戏玩到后面，每个人都会发现自己成了极端种族主义者</blockquote>
 用萌豚mod就不会了吧
-
-
-
-
-
 
 
 -----
@@ -7343,16 +4975,10 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 ##### 365#       发表于 2016-5-18 00:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32456944&amp;ptid=1275523" target="_blank">sandro 发表于 2016-5-17 23:49</a>
 
 用萌豚mod就不会了吧</blockquote>
 用了更会啊，杀光丑陋的外星人
-
-
-
-
-
 
 
 -----
@@ -7361,16 +4987,9 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 ##### 366#       发表于 2016-5-18 00:55
 
 
-
-
 萌豚mod不好使欸
 
 相等六月促销看看有没有折扣再买的
-
-
-
-
-
 
 
 -----
@@ -7379,25 +4998,16 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 ##### 367#       发表于 2016-5-18 02:09
 
 
-
-
 可以用啊，多了很多萌系头像而已，不太会导致崩溃。
 
 
 第二把地图弄小了，流畅多了。
 
 
-
-
-
-
-
 -----
 
 ####  qwased  
 ##### 368#       发表于 2016-5-18 03:34
-
-
 
 
 玩起来有rouge like的感觉，随机性很强，不知道为什么总觉得有ftl的即视感<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
@@ -7408,25 +5018,13 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  xk1370  
 ##### 369#       发表于 2016-5-18 04:16
 
 
-
-
 仔细想来想，这次最吊的势力是swarm，我花了2个小时试图清理干净，没卵用，几个10K舰队顶多把虫子母星打平，行星被菌毯了还没法登陆，根本就灭不掉，加上虫群不要资源有个女王就能慢慢再生出来，估计我的民主共和国未来要过上每百年就得farm一圈边疆虫子的幸福生活了<img src="https://static.saraba1st.com/image/smiley/dym/148.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7435,23 +5033,16 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 ##### 370#       发表于 2016-5-18 04:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32457829&amp;ptid=1275523" target="_blank">xk1370 发表于 2016-5-18 04:16</a>
 
 仔细想来想，这次最吊的势力是swarm，我花了2个小时试图清理干净，没卵用，几个10K舰队顶多把虫子母星打平 ...</blockquote>
 每个swarm行星上蹲一个corvette轰炸星球，然后等patch吧。。。
 
 
-
-
-
-
-
 -----
 
 ####  zeroblaze44  
 ##### 371#       发表于 2016-5-18 04:37
-
 
 
  本帖最后由 zeroblaze44 于 2016-5-18 05:58 编辑 
@@ -7466,24 +5057,13 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 拿一堆小船压着就行……不过一堆小船的图标看着好闹心
 
 
-
-
-
-
-
 -----
 
 ####  squallx2  
 ##### 372#       发表于 2016-5-18 06:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/nq/005.gif" referrerpolicy="no-referrer">净化有什么意思 毫无乐趣啊 每个星球上都放个洗脑光波 ** 社会保障 三管齐下 就算是绿绿级的一样洗成伟光正的普世良民 这才是政治正确的最高境界
-
-
-
-
-
 
 
 -----
@@ -7492,16 +5072,10 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 ##### 373#       发表于 2016-5-18 08:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32454822&amp;ptid=1275523" target="_blank">七千星 发表于 2016-5-17 18:55</a>
 
 感觉不错，想入，然而英文苦手，有推荐的汉化吗</blockquote>
 3大妈还是可用的 基本能看得懂  虽然又很多地方翻译不是特别正确
-
-
-
-
-
 
 
 -----
@@ -7510,14 +5084,7 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 ##### 374#       发表于 2016-5-18 08:49
 
 
-
-
 话说我之前找到了一群原始人，现在怎么检查他们的位置啊。。星星太多了
-
-
-
-
-
 
 
 -----
@@ -7526,15 +5093,9 @@ P社为啥不搞多核呢？过了200年，大图1000星，满国家，目前就
 ##### 375#       发表于 2016-5-18 08:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32452742&amp;ptid=1275523" target="_blank">chaoswing 发表于 2016-5-17 14:49</a>
 p社祖传控制台很好玩，可以play xx来扮演ai控制的势力，比如标准设置的中等地图，有17个电脑的时候，就可以 ...</blockquote>
 请问play xx 命令中，哪个代码控制虫群？
-
-
-
-
-
 
 
 -----
@@ -7543,15 +5104,9 @@ p社祖传控制台很好玩，可以play xx来扮演ai控制的势力，比如�
 ##### 376#       发表于 2016-5-18 08:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32458498&amp;amp;ptid=1275523" target="_blank">神手之兔 发表于 2016-5-18 08:49</a>
 话说我之前找到了一群原始人，现在怎么检查他们的位置啊。。星星太多了</blockquote>
 没文明的在种族里，有文明的在外交关系里
-
-
-
-
-
 
 
 -----
@@ -7560,21 +5115,13 @@ p社祖传控制台很好玩，可以play xx来扮演ai控制的势力，比如�
 ##### 377#       发表于 2016-5-18 09:01
 
 
-
-
 昨天之前那局灭了，转化吃下家太急迫了。结果自爆，自爆的时候下面一家强势乘机宣了我一波，遂卒。下一局老实先打椭圆
-
-
-
-
-
 
 
 -----
 
 ####  western1031  
 ##### 378#       发表于 2016-5-18 09:15
-
 
 
 <blockquote>引用第355楼sandro于2016-05-17 22:12发表的  :
@@ -7590,32 +5137,19 @@ p社祖传控制台很好玩，可以play xx来扮演ai控制的势力，比如�
 ----发送自 [HUAWEI HUAWEI ALE-CL00,Android 4.4.4](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  monono  
 ##### 379#       发表于 2016-5-18 09:16
 
 
-
-
 国家里面的伦理可以换么？
-
-
-
-
-
 
 
 -----
 
 ####  western1031  
 ##### 380#       发表于 2016-5-18 09:24
-
 
 
 <blockquote>引用第351楼Ny于2016-05-17 19:35发表的  :
@@ -7632,16 +5166,10 @@ p社祖传控制台很好玩，可以play xx来扮演ai控制的势力，比如�
 ----发送自 [HUAWEI HUAWEI ALE-CL00,Android 4.4.4](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 381#       发表于 2016-5-18 10:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32458861&amp;ptid=1275523" target="_blank">western1031 发表于 2016-5-18 09:24</a>
@@ -7663,16 +5191,10 @@ Purge简单高效，但是政治上是灾难。
 还有一个办法，宣附庸国，好像战争结束还可以宣母国。
 
 
-
-
-
-
-
 -----
 
 ####  western1031  
 ##### 382#       发表于 2016-5-18 11:21
-
 
 
 <blockquote>引用第380楼美利坚大老爹于2016-05-18 10:39发表的  :
@@ -7690,16 +5212,10 @@ Purge简单高效，但是政治上是灾难。
 ----发送自 [HUAWEI HUAWEI ALE-CL00,Android 4.4.4](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  chaoswing  
 ##### 383#       发表于 2016-5-18 11:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32458509&amp;ptid=1275523" target="_blank">cmyk1234 发表于 2016-5-18 08:50</a>
@@ -7710,16 +5226,10 @@ Purge简单高效，但是政治上是灾难。
 而且如果你还没触发虫群事件的话，可能还不能扮演
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 384#       发表于 2016-5-18 13:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32458744&amp;ptid=1275523" target="_blank">western1031 发表于 2016-5-18 09:15</a>
@@ -7739,25 +5249,13 @@ Purge简单高效，但是政治上是灾难。
 [http://www.stellariswiki.com/Policies#Migration](http://www.stellariswiki.com/Policies#Migration)
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 385#       发表于 2016-5-18 14:23
 
 
-
-
 看了下开发者日志，1.1更新里corvette要砍啊，赶紧趁没砍多爽爽。。。
-
-
-
-
-
 
 
 -----
@@ -7766,14 +5264,7 @@ Purge简单高效，但是政治上是灾难。
 ##### 386#       发表于 2016-5-18 14:25
 
 
-
-
 如果能扮演宇宙大怪兽殴打其它智能生物就好了。
-
-
-
-
-
 
 
 -----
@@ -7782,24 +5273,15 @@ Purge简单高效，但是政治上是灾难。
 ##### 387#       发表于 2016-5-18 14:31
 
 
-
-
 噢噢噢噢噢噢噢噢！！这游戏太棒了！！
 
 今天中午装上开了一局，选了人类联合国，那种探索宇宙茫茫未知的感觉太好了，每踏入一个新的星系探索一颗新的行星遭遇一个未知的种族都是那么地让人兴奋！！虽然只是游戏，但却有种真正圆了小时候探索星空的梦的感觉。之前玩EVE，总觉得有种宇宙已经被探索过，缺乏边境开拓者的情怀的感觉，这个游戏则是真正地让你去探索一次银河系，感觉太好了
-
-
-
-
-
 
 
 -----
 
 ####  美利坚大老爹  
 ##### 388#       发表于 2016-5-18 14:39
-
-
 
 
 这游戏的机制目前还是只有大框架，还非常不完善的感觉，合并附庸国，如果遇到大点的，需要30-40年时间。
@@ -7811,16 +5293,10 @@ Purge简单高效，但是政治上是灾难。
 总感觉胜利点设计的还是有点不合理。
 
 
-
-
-
-
-
 -----
 
 ####  eglath  
 ##### 389#       发表于 2016-5-18 14:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32461826&amp;ptid=1275523" target="_blank">美利坚大老爹 发表于 2016-5-18 14:39</a>
@@ -7831,33 +5307,19 @@ Purge简单高效，但是政治上是灾难。
 P社首发是这样的, 放个一年再回来玩应该就比较完善了
 
 
-
-
-
-
-
 -----
 
 ####  liangjiami2  
 ##### 390#       发表于 2016-5-18 15:05
 
 
-
-
 不能殖民的星球太多又只能做个资源站好浪费的感觉
-
-
-
-
-
 
 
 -----
 
 ####  jinjinyizu  
 ##### 391#       发表于 2016-5-18 15:14
-
-
 
 
 边境摩擦是不是过分了点啊，我和盟友处了100年，共同瓜分了两个邻近的宿敌后，我和它接壤了十几个星系，摩擦减了-150的关系，我想试试投票组个联邦都被他否决了<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
@@ -7867,26 +5329,15 @@ P社首发是这样的, 放个一年再回来玩应该就比较完善了
 盟友之间摩擦还这么严重，还结个P盟，好像还不能踢他出去？ “离开同盟”就是我一个人滚蛋的意思吗！？
 
 
-
-
-
-
-
 -----
 
 ####  normalli  
 ##### 392#       发表于 2016-5-18 15:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32462075&amp;amp;ptid=1275523" target="_blank">jinjinyizu 发表于 2016-5-18 15:14</a>
 边境摩擦是不是过分了点啊，我和盟友处了100年，共同瓜分了两个邻近的宿敌后，我和它接壤了十几个星系，摩 ...</blockquote>
 人情dlc已经上路，欧陆里两个大国接壤又不想结仇只能靠favor把trust拉到90以上
-
-
-
-
-
 
 
 -----
@@ -7895,14 +5346,7 @@ P社首发是这样的, 放个一年再回来玩应该就比较完善了
 ##### 393#       发表于 2016-5-18 15:47
 
 
-
-
 基因改造加顺从，洗脑光线，再信息管制下。超大帝国不同种族根本不是问题。
-
-
-
-
-
 
 
 -----
@@ -7911,14 +5355,7 @@ P社首发是这样的, 放个一年再回来玩应该就比较完善了
 ##### 394#       发表于 2016-5-18 15:53
 
 
-
-
 现在有没有质量好点的汉化补丁？英文实在吃不消
-
-
-
-
-
 
 
 -----
@@ -7927,14 +5364,7 @@ P社首发是这样的, 放个一年再回来玩应该就比较完善了
 ##### 395#       发表于 2016-5-18 16:13
 
 
-
-
 外交有问题，和人翻脸太容易了。
-
-
-
-
-
 
 
 -----
@@ -7943,14 +5373,7 @@ P社首发是这样的, 放个一年再回来玩应该就比较完善了
 ##### 396#       发表于 2016-5-18 16:13
 
 
-
-
 外交有问题，和人翻脸太容易了。
-
-
-
-
-
 
 
 -----
@@ -7959,24 +5382,15 @@ P社首发是这样的, 放个一年再回来玩应该就比较完善了
 ##### 397#       发表于 2016-5-18 16:48
 
 
-
-
 而且远古文明正常游戏打不过啊
 
 我开**一路绝尘，资源和地盘和远古文明差不多，科技比他还先进不少，能支持的舰队不够人家喝一壶的，最后一气造了60多战列才打赢了，一赢了立刻解散舰队，不然不开资源无限立刻就破产了
-
-
-
-
-
 
 
 -----
 
 ####  美利坚大老爹  
 ##### 398#       发表于 2016-5-18 16:54
-
-
 
 
 我来告诉你们几个好秘笈
@@ -7991,17 +5405,10 @@ P社首发是这样的, 放个一年再回来玩应该就比较完善了
 可以给自己加一点点优势玩
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
 ##### 399#       发表于 2016-5-18 17:34
-
-
 
 
 失落帝国是有黑科技的，建筑生产的资源都比你多得多，舰队自然也多
@@ -8009,16 +5416,10 @@ P社首发是这样的, 放个一年再回来玩应该就比较完善了
 我上次碰见一个住在戴森环上的失落帝国，只有5个居住行星（分别在两个环上），但是支撑了60K+的舰队...
 
 
-
-
-
-
-
 -----
 
 ####  PIN  
 ##### 400#       发表于 2016-5-18 17:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32463280&amp;ptid=1275523" target="_blank">路德维嘉 发表于 2016-5-18 17:34</a>
@@ -8029,26 +5430,15 @@ P社首发是这样的, 放个一年再回来玩应该就比较完善了
 但是失落帝国之所以是失落帝国，就是因为他们的科技已经丢了，只能用剩下现成的，所以也不会补兵，舰队打光了就是打光了……
 
 
-
-
-
-
-
 -----
 
 ####  我来自一中  
 ##### 401#       发表于 2016-5-18 17:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32463320&amp;amp;ptid=1275523" target="_blank">PIN 发表于 2016-5-18 17:38</a>
 但是失落帝国之所以是失落帝国，就是因为他们的科技已经丢了，只能用剩下现成的，所以也不会补兵，舰队打 ...</blockquote>
 理解为工业链断环了比较好，大概是生产初级原料和生活资料的黑科技还留着，但舰体一体成型之类的某些中间环节科技彻底丢了，不然早饿死了
-
-
-
-
-
 
 
 -----
@@ -8057,23 +5447,16 @@ P社首发是这样的, 放个一年再回来玩应该就比较完善了
 ##### 402#       发表于 2016-5-18 17:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32463339&amp;ptid=1275523" target="_blank">我来自一中 发表于 2016-5-18 17:41</a>
 
 理解为工业链断环了比较好，大概是生产初级原料和生活资料的黑科技还留着，但舰体一体成型之类的某些中间 ...</blockquote>
 大概类似锤子40k的人类帝国那样吧，基础的科技还是有一些，但是高等科技都被类似机械神教的逗逼们把持，导致科技无法恢复发展，否则没法解释为什么失落帝国连低等级的新船都造不出了
 
 
-
-
-
-
-
 -----
 
 ####  eno_emos  
 ##### 403#       发表于 2016-5-18 18:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32463280&amp;ptid=1275523" target="_blank">路德维嘉 发表于 2016-5-18 17:34</a>
@@ -8088,17 +5471,10 @@ P社首发是这样的, 放个一年再回来玩应该就比较完善了
 没戴森环的普通失落帝国反而好打一点，戴森环暴兵能力很夸张
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 404#       发表于 2016-5-18 19:24
-
-
 
 
 Hotfix 1.0.3 P社应该是觉得这个项目有希望，更新听勤快的。
@@ -8130,24 +5506,13 @@ Hotfix 1.0.3 P社应该是觉得这个项目有希望，更新听勤快的。
 再等P社几个DLC
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
 ##### 405#       发表于 2016-5-18 19:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">采矿和科研站也应该可以强化一下。。。。
-
-
-
-
-
 
 
 -----
@@ -8156,14 +5521,7 @@ Hotfix 1.0.3 P社应该是觉得这个项目有希望，更新听勤快的。
 ##### 406#       发表于 2016-5-18 19:50
 
 
-
-
 那个风信子号的bug修了吗
-
-
-
-
-
 
 
 -----
@@ -8172,13 +5530,7 @@ Hotfix 1.0.3 P社应该是觉得这个项目有希望，更新听勤快的。
 ##### 407#       发表于 2016-5-18 20:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">邻居的地图颜色和我一样也就罢了，另个邻居启蒙了一个落后文明种族形象居然和我一样，还是接壤的.....外交弹出来时看位置差点以为自己边境独立了，一看种族名和特性都不一样
-
-
-
-
-
 
 
 -----
@@ -8187,16 +5539,9 @@ Hotfix 1.0.3 P社应该是觉得这个项目有希望，更新听勤快的。
 ##### 408#       发表于 2016-5-18 20:30
 
 
-
-
 居然没修航母舰载机范围？
 
 没人提意见么……
-
-
-
-
-
 
 
 -----
@@ -8205,23 +5550,15 @@ Hotfix 1.0.3 P社应该是觉得这个项目有希望，更新听勤快的。
 ##### 409#       发表于 2016-5-18 21:34
 
 
-
-
 强烈推荐大家更新1.03
 
 后期基本也不会出现时间流逝太慢 或者一天一卡的情况了 丝般顺滑
-
-
-
-
-
 
 
 -----
 
 ####  normalli  
 ##### 410#       发表于 2016-5-18 21:46
-
 
 
 <blockquote>美利坚大老爹 发表于 2016-5-18 19:24
@@ -8232,16 +5569,10 @@ Hotfix 1.0.3 P社应该是觉得这个项目有希望，更新听勤快的。
 群星销量不错，钢4都不一定能比过，这次吸引了一些4x玩家
 
 
-
-
-
-
-
 -----
 
 ####  你的全家  
 ##### 411#       发表于 2016-5-18 21:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32465227&amp;ptid=1275523" target="_blank">Ny 发表于 2016-5-18 21:34</a>
@@ -8255,25 +5586,13 @@ Hotfix 1.0.3 P社应该是觉得这个项目有希望，更新听勤快的。
 不要用大星区 拆成几个小的。。。
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 412#       发表于 2016-5-18 22:01
 
 
-
-
 BUG还是有不少，坐等慢慢修了，有个事件的加成是多一条法令，然而并没有。
-
-
-
-
-
 
 
 -----
@@ -8282,22 +5601,13 @@ BUG还是有不少，坐等慢慢修了，有个事件的加成是多一条法�
 ##### 413#       发表于 2016-5-18 22:54
 
 
-
-
 你们有没有遇到这种情况。我和盟友一起去打一个国家，打着打着好像那个国家突然分裂了成新国家了。。。然后我好不容易占的一个星球瞬间就没了，连在新国家境内的军队都强制撤退。。。。
-
-
-
-
-
 
 
 -----
 
 ####  愚妓米露露  
 ##### 414#       发表于 2016-5-18 23:16
-
-
 
 
 这个游戏我觉得配置要求比ck2三哥版低一些
@@ -8309,16 +5619,10 @@ BUG还是有不少，坐等慢慢修了，有个事件的加成是多一条法�
 远古文明要是可以设计成有非堕落型，紧密观察其他文明，谁蹦得高就出大舰队消灭就好了，可以正常发展军队，科技正常游戏玩家不可能追赶上。也可能表现好的人远古文明就给个糖吃
 
 
-
-
-
-
-
 -----
 
 ####  jinjinyizu  
 ##### 415#       发表于 2016-5-18 23:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32465821&amp;ptid=1275523" target="_blank">monono 发表于 2016-5-18 22:54</a>
@@ -8329,16 +5633,10 @@ BUG还是有不少，坐等慢慢修了，有个事件的加成是多一条法�
 你这情况也有可能是那个星球上有独立叛军？难道AI学精了直接同意叛军独立，死也不让你割<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  PIN  
 ##### 416#       发表于 2016-5-18 23:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32465821&amp;ptid=1275523" target="_blank">monono 发表于 2016-5-18 22:54</a>
@@ -8347,16 +5645,10 @@ BUG还是有不少，坐等慢慢修了，有个事件的加成是多一条法�
 你盟友提得宣战条件是解放星球吧，对面架不住了同意了条件战争就结束了，解放的星球会变成一个新的国家，国家意识形态和宣战方一样。
 
 
-
-
-
-
-
 -----
 
 ####  PIN  
 ##### 417#       发表于 2016-5-19 00:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32465984&amp;ptid=1275523" target="_blank">愚妓米露露 发表于 2016-5-18 23:16</a>
@@ -8367,33 +5659,19 @@ BUG还是有不少，坐等慢慢修了，有个事件的加成是多一条法�
 失落帝国有你说的这种类型，我现在遇到过3种类型的失落帝国。第一种就是普通的军国排外战狂，看谁不顺眼就削，第二种是宗教型在银河各处有圣地行星，有人在他们的圣地殖民他们就会炸，第三种就是你说的这种正义使者，玩家种族灭绝做的太过火就会被他们找上门。
 
 
-
-
-
-
-
 -----
 
 ####  warerest  
 ##### 418#       发表于 2016-5-19 00:17
 
 
-
-
 我刚把门口两个宿敌灭门了，发现在上面有个观察型的远古文明，要求我装孙子几十年，我当然是不肯的，然后就gg了。。。
-
-
-
-
-
 
 
 -----
 
 ####  你的全家  
 ##### 419#       发表于 2016-5-19 01:05
-
-
 
 
 1.03真的非常非常非常有效的解决了卡顿问题 现在不影响游戏体验了
@@ -8414,16 +5692,10 @@ BUG还是有不少，坐等慢慢修了，有个事件的加成是多一条法�
 AI反叛在彻底触发之前40%殖民胜利了 于是不想打了。。。
 
 
-
-
-
-
-
 -----
 
 ####  tyrantblood  
 ##### 420#       发表于 2016-5-19 01:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32456525&amp;ptid=1275523" target="_blank">你次元小报社 发表于 2016-5-17 22:47</a>
@@ -8437,16 +5709,10 @@ AI反叛在彻底触发之前40%殖民胜利了 于是不想打了。。。
 相反Cybrex的任务倒不是每次都能遇到。
 
 
-
-
-
-
-
 -----
 
 ####  eno_emos  
 ##### 421#       发表于 2016-5-19 01:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32466308&amp;ptid=1275523" target="_blank">PIN 发表于 2016-5-19 00:00</a>
@@ -8500,16 +5766,10 @@ AI反叛在彻底触发之前40%殖民胜利了 于是不想打了。。。
 人类联邦万岁！
 
 
-
-
-
-
-
 -----
 
 ####  eno_emos  
 ##### 422#       发表于 2016-5-19 01:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32466717&amp;ptid=1275523" target="_blank">tyrantblood 发表于 2016-5-19 01:11</a>
@@ -8527,16 +5787,10 @@ AI反叛在彻底触发之前40%殖民胜利了 于是不想打了。。。
 其他的一些文明还没玩过，不知道有没有什么特殊任务……
 
 
-
-
-
-
-
 -----
 
 ####  你的全家  
 ##### 423#       发表于 2016-5-19 01:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32466717&amp;ptid=1275523" target="_blank">tyrantblood 发表于 2016-5-19 01:11</a>
@@ -8547,16 +5801,10 @@ AI反叛在彻底触发之前40%殖民胜利了 于是不想打了。。。
 我的神蛤赛艇队触发了Cyberex 找到了最后去处Cyberex Alpha 一个完全毁灭的戴森环 这任务就到此为止？
 
 
-
-
-
-
-
 -----
 
 ####  PIN  
 ##### 424#       发表于 2016-5-19 02:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32466760&amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-19 01:21</a>
@@ -8570,26 +5818,13 @@ AI反叛在彻底触发之前40%殖民胜利了 于是不想打了。。。
 可能跟我教学任务“扫描临近三个恒星系”出bug卡住有关系？
 
 
-
-
-
-
-
-
 -----
 
 ####  squallx2  
 ##### 425#       发表于 2016-5-19 02:28
 
 
-
-
 虚空之云任务链跑到最后一个点后怎么啥反应都没有任务链直接消失了
-
-
-
-
-
 
 
 -----
@@ -8598,23 +5833,15 @@ AI反叛在彻底触发之前40%殖民胜利了 于是不想打了。。。
 ##### 426#       发表于 2016-5-19 02:39
 
 
-
-
 妈的刚把对面堵路的打完想要好好发展下，结果打下来的城市直接蹦出个unbidden，我就日了狗了！
 
 这东西是全随机出的吗，我能SL大法避免么？
-
-
-
-
-
 
 
 -----
 
 ####  你的全家  
 ##### 427#       发表于 2016-5-19 03:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32466992&amp;ptid=1275523" target="_blank">ramiel 发表于 2016-5-19 02:39</a>
@@ -8624,17 +5851,10 @@ AI反叛在彻底触发之前40%殖民胜利了 于是不想打了。。。
 那个是亚空间恶魔 你还是干爆他吧
 
 
-
-
-
-
-
 -----
 
 ####  lieproject  
 ##### 428#       发表于 2016-5-19 03:04
-
-
 
 
 导弹鱼雷什么的太难用了，舰载机也是个迷，速子长矛和轨道炮才是正义，战列舰堆满血甲，排满速子长矛带上回血，20K战力可以无伤灭对面17K的入侵，攒够70K可以推平一切。不过后面舰队决战其实不算事，最烦的还是宣了对面，结果来一堆游击队给你满地图跑，追也追不上，不管又打你矿，感觉除了母星周围插重力井蹲点以外几乎无解。
@@ -8649,16 +5869,10 @@ AI反叛在彻底触发之前40%殖民胜利了 于是不想打了。。。
 开局玩民主共和什么的太糟心了，心思全都放在外交和压制国内党派冲突，影响力光镇压派系都不够用的，隔几年还弹窗选举一次让你钦定，后期简直能烦死人，出击一趟把钱烧完，回头一看窝里反了，这是想让人都当宇宙希特勒嘛。
 
 
-
-
-
-
-
 -----
 
 ####  PIN  
 ##### 429#       发表于 2016-5-19 03:12
-
 
 
  本帖最后由 PIN 于 2016-5-19 03:15 编辑 
@@ -8668,16 +5882,10 @@ AI反叛在彻底触发之前40%殖民胜利了 于是不想打了。。。
 鱼雷可以100%穿盾啊，这就等于对面船的血量减半了。各种Lance系列武器算比较后期吧，前期用鱼雷还是挺不错的。另外psi drive要唯心主义意识形态+虫洞FTL才比较好出，唯物的帝国很难刷出来。最后邻居实力没你强确实不会宣你，但是它们会为了宣你抱团建立联盟联邦。
 
 
-
-
-
-
-
 -----
 
 ####  你的全家  
 ##### 430#       发表于 2016-5-19 03:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32467054&amp;ptid=1275523" target="_blank">PIN 发表于 2016-5-19 03:12</a>
@@ -8687,16 +5895,10 @@ AI反叛在彻底触发之前40%殖民胜利了 于是不想打了。。。
 我是唯心虫洞 这个出的比ai还靠后……
 
 
-
-
-
-
-
 -----
 
 ####  PIN  
 ##### 431#       发表于 2016-5-19 03:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32467065&amp;ptid=1275523" target="_blank">你的全家 发表于 2016-5-19 03:21</a>
@@ -8708,16 +5910,10 @@ AI反叛在彻底触发之前40%殖民胜利了 于是不想打了。。。
 我ai出的比各种lance武器还早，科技树还是看脸啊……
 
 
-
-
-
-
-
 -----
 
 ####  蓝德罗夫  
 ##### 432#       发表于 2016-5-19 05:43
-
 
 
  本帖最后由 蓝德罗夫 于 2016-5-19 05:45 编辑 
@@ -8731,16 +5927,10 @@ PS：我走唯物主义+崇外，再另外配个集体也好，配个人也好�
 PS2：集体+唯物有负道德分歧没幸福，空有地盘大人口多产能不高；唯物+个人有幸福核心地盘产能很高但是凑负道德分歧太难，不好吸收征服的民族，很难办啊，可就是不想玩唯心……<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">（军国对我没啥用，种田200年可能就打1、2仗……）
 
 
-
-
-
-
-
 -----
 
 ####  sagogolf  
 ##### 433#       发表于 2016-5-19 07:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32438279&amp;ptid=1275523" target="_blank">伊贝里的巴里安 发表于 2016-5-16 00:32</a>
@@ -8754,16 +5944,10 @@ PS2：集体+唯物有负道德分歧没幸福，空有地盘大人口多产能�
 一個陣營裡的船艦種類有多少???
 
 
-
-
-
-
-
 -----
 
 ####  大哀之君  
 ##### 434#       发表于 2016-5-19 07:13
-
 
 
 <blockquote>sagogolf 发表于 2016-5-19 07:03
@@ -8775,16 +5959,10 @@ PS2：集体+唯物有负道德分歧没幸福，空有地盘大人口多产能�
 舰种是玩家自己在底盘上插武器模块设计出来的。大致分成轻护，驱逐，巡洋和战列四级。但舰队战系统还需要打磨，目前不平衡
 
 
-
-
-
-
-
 -----
 
 ####  sagogolf  
 ##### 435#       发表于 2016-5-19 07:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32467418&amp;ptid=1275523" target="_blank">大哀之君 发表于 2016-5-19 07:13</a>
@@ -8795,16 +5973,10 @@ PS2：集体+唯物有负道德分歧没幸福，空有地盘大人口多产能�
 話說怎麼沒航母類型
 
 
-
-
-
-
-
 -----
 
 ####  我就是那条龙  
 ##### 436#       发表于 2016-5-19 07:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32467458&amp;ptid=1275523" target="_blank">sagogolf 发表于 2016-5-19 07:26</a>
@@ -8818,25 +5990,13 @@ PS2：集体+唯物有负道德分歧没幸福，空有地盘大人口多产能�
 搭载的装备自定 外形大家都差不多
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 437#       发表于 2016-5-19 08:29
 
 
-
-
 这随机科技真的是个败笔，不看攻略你连存在这个科技都不知道
-
-
-
-
-
 
 
 -----
@@ -8845,14 +6005,7 @@ PS2：集体+唯物有负道德分歧没幸福，空有地盘大人口多产能�
 ##### 438#       发表于 2016-5-19 08:36
 
 
-
-
 卧槽，感觉跟你们玩的都不是同一个游戏啊，什么净化种族之类的都在什么地方啊
-
-
-
-
-
 
 
 -----
@@ -8861,21 +6014,13 @@ PS2：集体+唯物有负道德分歧没幸福，空有地盘大人口多产能�
 ##### 439#       发表于 2016-5-19 08:46
 
 
-
-
 那个外交界面的力量对比是什么意思，舰队数量这个我懂，海军力量是什么意思？
-
-
-
-
-
 
 
 -----
 
 ####  cools  
 ##### 440#       发表于 2016-5-19 08:55
-
 
 
  本帖最后由 cools 于 2016-5-19 08:57 编辑 
@@ -8891,16 +6036,10 @@ naval capacity，海军上限
 显示在游戏界面的右上角
 
 
-
-
-
-
-
 -----
 
 ####  cools  
 ##### 441#       发表于 2016-5-19 09:05
-
 
 
  本帖最后由 cools 于 2016-5-19 09:08 编辑 
@@ -8917,16 +6056,10 @@ naval capacity，海军上限
 也就是说群星的命运很可能在第1-2个expansion中决定，如果这些expansion满足了官坛网友主流意见和诉求（目前的诉求集中于完善现有游戏机制的各个方面而不是开辟新内容，就好象CK2的亚伯拉罕dlc），则成为第五萌没什么问题，如果像印度列王dlc一样完全无视社群意见只顾自high，则这个游戏可能迅速退热
 
 
-
-
-
-
-
 -----
 
 ####  eno_emos  
 ##### 442#       发表于 2016-5-19 09:07
-
 
 
 <blockquote>PIN 发表于 2016-5-19 03:12
@@ -8945,16 +6078,10 @@ psi是除了唯物以外都会出，如果运气好出了灵能科技基本就�
 这游戏跟eve不一样，没有甲抗……
 
 
-
-
-
-
-
 -----
 
 ####  cools  
 ##### 443#       发表于 2016-5-19 09:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32468045&amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-19 09:07</a>
@@ -8967,16 +6094,10 @@ psi是除了唯物以外都会出，如果运气好出了灵能科技基本就�
 有时速子矛前期可以靠海盗残骸研究解出来，具体原因不明
 
 
-
-
-
-
-
 -----
 
 ####  你次元小报社  
 ##### 444#       发表于 2016-5-19 09:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32467730&amp;ptid=1275523" target="_blank">midearth 发表于 2016-5-19 08:29</a>
@@ -8991,16 +6112,10 @@ psi是除了唯物以外都会出，如果运气好出了灵能科技基本就�
 讲道理，我个人认为随机科技是亮点
 
 
-
-
-
-
-
 -----
 
 ####  PIN  
 ##### 445#       发表于 2016-5-19 09:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32468045&amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-19 09:07</a>
@@ -9013,16 +6128,10 @@ psi是除了唯物以外都会出，如果运气好出了灵能科技基本就�
 这游戏除了直接加船体耐久的装甲板还是有减伤的装甲的，比如中子物质装甲可以抵消50%到80%的伤害，中期银河危机事件出来的虫群装甲都是中子物质装甲等级，如果没有穿甲武器打起来会比较痛苦
 
 
-
-
-
-
-
 -----
 
 ####  你次元小报社  
 ##### 446#       发表于 2016-5-19 09:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32468026&amp;ptid=1275523" target="_blank">cools 发表于 2016-5-19 09:05</a>
@@ -9042,16 +6151,10 @@ psi是除了唯物以外都会出，如果运气好出了灵能科技基本就�
 星球和政体越多，也体现出了目前系统的不完善，靠军事征服，肯定不现实，靠和平演变，现在的模式又太简陋。也就中等大小星图，20政体以内，才玩军国主义玩的溜。1000星，30多政体，加上还有很多中间会成立的政体，动不动就是四分之一星图国家结盟，军国主义玩不溜，早期再怎么啃图，也占不了四分之一。单一国家四分之一，控制台勉强打打大联盟。
 
 
-
-
-
-
-
 -----
 
 ####  你次元小报社  
 ##### 447#       发表于 2016-5-19 09:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32468045&amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-19 09:07</a>
@@ -9070,16 +6173,10 @@ psi是除了唯物以外都会出，如果运气好出了灵能科技基本就�
 10K被人7K完爆的教训……
 
 
-
-
-
-
-
 -----
 
 ####  cools  
 ##### 448#       发表于 2016-5-19 09:31
-
 
 
  本帖最后由 cools 于 2016-5-19 09:37 编辑 
@@ -9093,16 +6190,10 @@ psi是除了唯物以外都会出，如果运气好出了灵能科技基本就�
 初版完成度低下bug多是p社的日常，玩家群体也见怪不怪，只是后续发展别偏离玩家群体期望太远，不然就算买dlc如流水的p社核心饭也有耐心耗尽的一天
 
 
-
-
-
-
-
 -----
 
 ####  karloku  
 ##### 449#       发表于 2016-5-19 09:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32468275&amp;amp;ptid=1275523" target="_blank">你次元小报社 发表于 2016-5-19 09:29</a>
@@ -9113,16 +6204,10 @@ psi是除了唯物以外都会出，如果运气好出了灵能科技基本就�
 植入hp配回血结构抗!
 
 
-
-
-
-
-
 -----
 
 ####  你次元小报社  
 ##### 450#       发表于 2016-5-19 09:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32468302&amp;ptid=1275523" target="_blank">cools 发表于 2016-5-19 09:31</a>
@@ -9140,16 +6225,10 @@ Hotfix 1.0.3还是听了很多社区意见的。
 可以这么说，应该谁也没想到P社的这套引擎，还是让4X类游戏翻出花样来，更别说，这套系统自己开发创意工坊的要求也不高，能够激发社群的无限潜力
 
 
-
-
-
-
-
 -----
 
 ####  你次元小报社  
 ##### 451#       发表于 2016-5-19 09:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32468322&amp;ptid=1275523" target="_blank">karloku 发表于 2016-5-19 09:34</a>
@@ -9167,33 +6246,19 @@ Hotfix 1.0.3还是听了很多社区意见的。
 结构抗其实很吃亏，回结构我个人感觉不如回盾，但是结构抗武器槽可以高输出。
 
 
-
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 452#       发表于 2016-5-19 09:50
 
 
-
-
 现在成就不能用mod太不爽了
-
-
-
-
-
 
 
 -----
 
 ####  lieproject  
 ##### 453#       发表于 2016-5-19 10:14
-
 
 
  本帖最后由 lieproject 于 2016-5-19 10:18 编辑 
@@ -9210,16 +6275,10 @@ Hotfix 1.0.3还是听了很多社区意见的。
 现在还有个大问题就是大舰队要升级一次太慢了，除了拆开在几个星球一起升级以外好像也没别的好办法，还有经常任务链指示会跑到银河中心，根本无法继续…看后续补丁了
 
 
-
-
-
-
-
 -----
 
 ####  你次元小报社  
 ##### 454#       发表于 2016-5-19 10:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32468732&amp;ptid=1275523" target="_blank">lieproject 发表于 2016-5-19 10:14</a>
@@ -9231,17 +6290,10 @@ Hotfix 1.0.3还是听了很多社区意见的。
 船搭配要合理，没有万灵丹，各种船都要配一点。目前还没有阵型设置，我个人觉得加个阵型的话，会让战斗部分更有意思。
 
 
-
-
-
-
-
-
 -----
 
 ####  karloku  
 ##### 455#       发表于 2016-5-19 10:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32468488&amp;amp;ptid=1275523" target="_blank">sandro 发表于 2016-5-19 09:50</a>
@@ -9250,16 +6302,10 @@ p社游戏一向不让你用改变游戏内容的mod拿成就
 拿成就只能用兼容铁人的mod, 像是UI, 字体, 地图纹理之类的
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 456#       发表于 2016-5-19 10:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32469145&amp;ptid=1275523" target="_blank">karloku 发表于 2016-5-19 10:51</a>
@@ -9270,16 +6316,10 @@ p社游戏一向不让你用改变游戏内容的mod拿成就
 以前的也就算了，让面目可憎的外星人变美少女的萌豚mod没法用真是要了老命了
 
 
-
-
-
-
-
 -----
 
 ####  karloku  
 ##### 457#       发表于 2016-5-19 11:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32469196&amp;amp;ptid=1275523" target="_blank">sandro 发表于 2016-5-19 10:54</a>
@@ -9287,16 +6327,10 @@ p社游戏一向不让你用改变游戏内容的mod拿成就
 种族皮肤兼容铁人啊
 
 
-
-
-
-
-
 -----
 
 ####  你次元小报社  
 ##### 458#       发表于 2016-5-19 11:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32469196&amp;ptid=1275523" target="_blank">sandro 发表于 2016-5-19 10:54</a>
@@ -9308,16 +6342,10 @@ p社游戏一向不让你用改变游戏内容的mod拿成就
 听不下来
 
 
-
-
-
-
-
 -----
 
 ####  PIN  
 ##### 459#       发表于 2016-5-19 11:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32469196&amp;ptid=1275523" target="_blank">sandro 发表于 2016-5-19 10:54</a>
@@ -9326,16 +6354,10 @@ p社游戏一向不让你用改变游戏内容的mod拿成就
 蘑菇人明明很可爱的好不好～<img src="https://static.saraba1st.com/image/smiley/face/05.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  eno_emos  
 ##### 460#       发表于 2016-5-19 11:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32468889&amp;ptid=1275523" target="_blank">你次元小报社 发表于 2016-5-19 10:29</a>
@@ -9351,16 +6373,10 @@ P社这个祖传引擎打架部分就是数值对撞，阵型顶多给你个百�
 想看到一群舰队自己摆出八卦六合阵……估计难咯
 
 
-
-
-
-
-
 -----
 
 ####  你次元小报社  
 ##### 461#       发表于 2016-5-19 12:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32469941&amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-19 11:55</a>
@@ -9376,16 +6392,10 @@ P社这个祖传引擎打架部分就是数值对撞，阵型顶多给你个百�
 所以还不清楚机制。
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 462#       发表于 2016-5-19 12:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32469941&amp;amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-19 11:55</a>
@@ -9397,26 +6407,15 @@ P社这个祖传引擎打架部分就是数值对撞，阵型顶多给你个百�
 应该是有影响的，能看出集火领头的船，而且开发者日志里也讲将来可能会加入阵型
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
 ##### 463#       发表于 2016-5-19 12:34
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">唯物主义只要有擅长灵能研究的科学家也可以出PSI跳跃引擎
 
 然而我刷了两个小时也没刷出来擅长灵能研究的科学家...<img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9425,14 +6424,7 @@ P社这个祖传引擎打架部分就是数值对撞，阵型顶多给你个百�
 ##### 464#       发表于 2016-5-19 12:42
 
 
-
-
 还有高维入侵几率大不大，我用psi跳了五六十年了，一点迹象都没有啊，全图的失落帝国都被我车完了
-
-
-
-
-
 
 
 -----
@@ -9441,14 +6433,7 @@ P社这个祖传引擎打架部分就是数值对撞，阵型顶多给你个百�
 ##### 465#       发表于 2016-5-19 12:52
 
 
-
-
 还有加结构的护甲？我只开发出减伤的
-
-
-
-
-
 
 
 -----
@@ -9457,15 +6442,9 @@ P社这个祖传引擎打架部分就是数值对撞，阵型顶多给你个百�
 ##### 466#       发表于 2016-5-19 12:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32470435&amp;amp;ptid=1275523" target="_blank">榨汁姬 发表于 2016-5-19 12:52</a>
 还有加结构的护甲？我只开发出减伤的</blockquote>
 精英结晶怪的尸体研究的
-
-
-
-
-
 
 
 -----
@@ -9474,23 +6453,15 @@ P社这个祖传引擎打架部分就是数值对撞，阵型顶多给你个百�
 ##### 467#       发表于 2016-5-19 13:02
 
 
-
-
 话说到底有没有AOE武器？
 
 网传雷云是AOE的，而武器说明还有wiki上却没提及
-
-
-
-
-
 
 
 -----
 
 ####  eno_emos  
 ##### 468#       发表于 2016-5-19 13:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32470435&amp;ptid=1275523" target="_blank">榨汁姬 发表于 2016-5-19 12:52</a>
@@ -9501,31 +6472,19 @@ plating和armor是不一样的
 镀层是结构抗，装甲是减伤
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
 ##### 469#       发表于 2016-5-19 13:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">控制台那个add trait leader[&lt;leader id&gt;][&lt;trait key of index&gt;]的指令是怎么用的...
-
-
-
-
-
 
 
 -----
 
 ####  sandro  
 ##### 470#       发表于 2016-5-19 13:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32470529&amp;ptid=1275523" target="_blank">卖哥 发表于 2016-5-19 13:02</a>
@@ -9536,27 +6495,15 @@ plating和armor是不一样的
 arc emitter号称是aoe，但reddit上看人说有人测试了不是，找不到测试帖在哪
 
 
-
-
-
-
-
 -----
 
 ####  战列驱逐舰POI  
 ##### 471#       发表于 2016-5-19 13:16
 
 
-
-
 DLC应该会加个什么船针对什么条件的船打的UI
 
 玩太空帝国的时候 就可以设置鱼雷舰专门打对门的大船 等等
-
-
-
-
-
 
 
 -----
@@ -9565,14 +6512,7 @@ DLC应该会加个什么船针对什么条件的船打的UI
 ##### 472#       发表于 2016-5-19 13:18
 
 
-
-
 精英结晶怪是指红色的那种？另外海军力量有个1000的上限？
-
-
-
-
-
 
 
 -----
@@ -9581,16 +6521,10 @@ DLC应该会加个什么船针对什么条件的船打的UI
 ##### 473#       发表于 2016-5-19 14:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32470672&amp;ptid=1275523" target="_blank">榨汁姬 发表于 2016-5-19 13:18</a>
 
 精英结晶怪是指红色的那种？另外海军力量有个1000的上限？</blockquote>
 颜色没注意过，名字就叫elite crystalline entities
-
-
-
-
-
 
 
 -----
@@ -9599,23 +6533,15 @@ DLC应该会加个什么船针对什么条件的船打的UI
 ##### 474#       发表于 2016-5-19 14:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32470672&amp;amp;ptid=1275523" target="_blank">榨汁姬 发表于 2016-5-19 13:18</a>
 精英结晶怪是指红色的那种？另外海军力量有个1000的上限？</blockquote>
 就是那个，遭遇就会开启任务链，海军力量超过1000就会百分比增加军费，其实1000军力的战列舰基干舰队就够撵平全图了，关键问题是怎么把地盘一点点吃下来…三个三个宣太慢，吞附庸国就更慢了，打仗还不能靠舰队决战，非要登陆才行
-
-
-
-
-
 
 
 -----
 
 ####  卖哥  
 ##### 475#       发表于 2016-5-19 14:49
-
-
 
 
 后期护卫能堆出110，1000舰队有110K的兵力
@@ -9626,16 +6552,10 @@ DLC应该会加个什么船针对什么条件的船打的UI
 80K就足够平推掉末日事件和堕落帝国了
 
 
-
-
-
-
-
 -----
 
 ####  belatedeffort  
 ##### 476#       发表于 2016-5-19 15:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32468302&amp;ptid=1275523" target="_blank">cools 发表于 2016-5-19 09:31</a>
@@ -9646,16 +6566,10 @@ DLC应该会加个什么船针对什么条件的船打的UI
 不过我倒是好奇HOI4跳票跳成这鸟样是不是跟P社更重视群星有关系
 
 
-
-
-
-
-
 -----
 
 ####  belatedeffort  
 ##### 477#       发表于 2016-5-19 15:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32468467&amp;ptid=1275523" target="_blank">你次元小报社 发表于 2016-5-19 09:48</a>
@@ -9664,25 +6578,13 @@ DLC应该会加个什么船针对什么条件的船打的UI
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">为什么我每次拆矿井换地形改造都会被AI抢先建好
 
 
-
-
-
-
-
 -----
 
 ####  榨汁姬  
 ##### 478#       发表于 2016-5-19 15:53
 
 
-
-
 没有传统的图表好不习惯，想找个特定的人口有点麻烦
-
-
-
-
-
 
 
 -----
@@ -9691,23 +6593,15 @@ DLC应该会加个什么船针对什么条件的船打的UI
 ##### 479#       发表于 2016-5-19 20:50
 
 
-
-
 我怎么觉得调查灭绝文明这些个任务都在明里暗里讽刺地球，什么全球变暖核大战之类的
 
 就是终于发现太阳系，人类还在前太空时代挺激动的，立刻降临把全人类从卫星时代一下带到从真空获得能源的时代真的很有成就感
-
-
-
-
-
 
 
 -----
 
 ####  cools  
 ##### 480#       发表于 2016-5-19 20:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32474002&amp;ptid=1275523" target="_blank">又土又笨曾阿芬 发表于 2016-5-19 20:50</a>
@@ -9718,16 +6612,10 @@ DLC应该会加个什么船针对什么条件的船打的UI
 <img src="https://static.saraba1st.com/image/smiley/nq/013.gif" referrerpolicy="no-referrer">游戏中玩家可以遇到的太阳系不止有一种状态，还有中世纪，文艺复兴，二战和已经核大战自灭的版本
 
 
-
-
-
-
-
 -----
 
 ####  jinjinyizu  
 ##### 481#       发表于 2016-5-19 21:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32474031&amp;ptid=1275523" target="_blank">cools 发表于 2016-5-19 20:54</a>
@@ -9737,16 +6625,10 @@ DLC应该会加个什么船针对什么条件的船打的UI
 <img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">明明是群跟地球八杆子打不着关系的软体生物，强行套上西欧文明史，P社5萌是不是共用同一位历史顾问哦
 
 
-
-
-
-
-
 -----
 
 ####  cools  
 ##### 482#       发表于 2016-5-19 21:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32474167&amp;ptid=1275523" target="_blank">jinjinyizu 发表于 2016-5-19 21:14</a>
@@ -9759,16 +6641,10 @@ This civilization is currently experiencing the equivalent of a Renaissance Age.
 看描述，强调的是科学理想思想开始占据社会主导地位和火药的普及，这倒也不是只可能发生在地球的事情
 
 
-
-
-
-
-
 -----
 
 ####  eno_emos  
 ##### 483#       发表于 2016-5-19 21:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32474167&amp;ptid=1275523" target="_blank">jinjinyizu 发表于 2016-5-19 21:14</a>
@@ -9780,16 +6656,10 @@ Renaissance这个词又不是只有西欧文艺复兴一个意思……
 [https://en.wikipedia.org/wiki/Renaissance_%28disambiguation%29](https://en.wikipedia.org/wiki/Renaissance_%28disambiguation%29)
 
 
-
-
-
-
-
 -----
 
 ####  又土又笨曾阿芬  
 ##### 484#       发表于 2016-5-19 21:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32474031&amp;ptid=1275523" target="_blank">cools 发表于 2016-5-19 20:54</a>
@@ -9800,17 +6670,10 @@ Renaissance这个词又不是只有西欧文艺复兴一个意思……
 但找到太阳系确实激动了一把
 
 
-
-
-
-
-
 -----
 
 ####  又土又笨曾阿芬  
 ##### 485#       发表于 2016-5-19 21:39
-
-
 
 
 缺点：
@@ -9824,16 +6687,10 @@ Renaissance这个词又不是只有西欧文艺复兴一个意思……
 而且为什么白送人家资源拉拉关系人家都不要，直接给我一个-1000
 
 
-
-
-
-
-
 -----
 
 ####  jinjinyizu  
 ##### 486#       发表于 2016-5-19 21:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32474280&amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-19 21:26</a>
@@ -9848,17 +6705,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 咱国内现在也是马克思的唯物史观一家独大，其实那也是快两百年前的老古董了<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  藤岛鸣海  
 ##### 487#       发表于 2016-5-19 22:12
-
-
 
 
 超级武器dlc什么时候出啊。现在这战争方式也太原始了，打多了很无聊。横跨银河的大帝国打个仗和封建时代感觉差不多。。。。奸星炮级别的武器应该有几个吧。再说都能改造星球到处殖民了，气象武器应该易如反掌吧。能改地形也能创造地形吧，一言不合就拍火山。生化武器也不是啥高科技，全星球撒枯萎剂不难吧。
@@ -9869,24 +6719,13 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 ----发送自 [Meizu PRO 5,Android 5.1](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  lancerhd2  
 ##### 488#       发表于 2016-5-19 22:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">我碰到的太阳系还在打二战来着....想想还是不殖民看看会不会蹦出什么有趣的结果...
-
-
-
-
-
 
 
 -----
@@ -9895,13 +6734,7 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 ##### 489#       发表于 2016-5-19 22:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">我碰到的太阳系还在打二战来着....想想还是不殖民看看会不会蹦出什么有趣的结果...
-
-
-
-
-
 
 
 -----
@@ -9910,21 +6743,13 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 ##### 490#       发表于 2016-5-20 00:36
 
 
-
-
 卧槽，我15k的舰队卡在超空间传送的路上了，点不着，走不了，只能在面板上看到。这他妈正在打仗呢，直接GG。
-
-
-
-
-
 
 
 -----
 
 ####  你次元小报社  
 ##### 491#       发表于 2016-5-20 00:40
-
 
 
 [http://steamspy.com/](http://steamspy.com/)
@@ -9936,17 +6761,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 而且和当初捡垃圾4一样，平均游戏时间也是爆表级别。MOD的作者应该都在玩游戏，还没空出品高质量的MOD
 
 
-
-
-
-
-
 -----
 
 ####  我来自一中  
 ##### 492#       发表于 2016-5-20 01:20
-
-
 
 
 萌新求问：
@@ -9957,17 +6775,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 3:怎样提高舰队保有上限？
 
 
-
-
-
-
-
 -----
 
 ####  jkphni  
 ##### 493#       发表于 2016-5-20 01:31
-
-
 
 
 探索到了可殖民星球大几率社会科技roll到这个的解锁，2，空间站选项在行星页面的最后一个，选择三种基本模块建设即可。大概花费300矿石，3，和空间站数量，总人口有关
@@ -9976,16 +6787,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 ----发送自 [samsung SM-N9009,Android 4.3](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  fmketchup  
 ##### 494#       发表于 2016-5-20 09:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32475813&amp;ptid=1275523" target="_blank">我来自一中 发表于 2016-5-20 01:20</a>
@@ -9998,16 +6803,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 科技池初始是3个，以后会有提高的科技，科技寡头政体也有加成
 
 
-
-
-
-
-
 -----
 
 ####  我来自一中  
 ##### 495#       发表于 2016-5-20 10:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32477125&amp;amp;ptid=1275523" target="_blank">fmketchup 发表于 2016-5-20 09:21</a>
@@ -10017,16 +6816,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 昨天开了一局到处浪，回头一看影响力都用完了，增长为0，连新科学家都招募不了，只能看着国内一群七八十岁的廉颇、赵子龙老死后饮恨当了蜀汉……<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  g54088  
 ##### 496#       发表于 2016-5-20 10:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32477637&amp;amp;ptid=1275523" target="_blank">我来自一中 发表于 2016-5-20 10:09</a>
@@ -10036,16 +6829,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 前期主要来源是宿敌，然后是科技和建筑。
 
 
-
-
-
-
-
 -----
 
 ####  kamiruding  
 ##### 497#       发表于 2016-5-20 10:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32477637&amp;ptid=1275523" target="_blank">我来自一中 发表于 2016-5-20 10:09</a>
@@ -10059,16 +6846,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 另外开局点殖民科技  会缺影响力？ 和文明一样5球 先爆扑好 再慢慢发展啦
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 498#       发表于 2016-5-20 11:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32477637&amp;ptid=1275523" target="_blank">我来自一中 发表于 2016-5-20 10:09</a>
@@ -10080,25 +6861,13 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 为了活命长，加了两个负面属性，续命120年，然后科技也能加好几十年，超长待机的好处简直了……
 
 
-
-
-
-
-
 -----
 
 ####  blastoderm00  
 ##### 499#       发表于 2016-5-20 11:11
 
 
-
-
 昨天才发现打仗可以坑盟友。 一般不是得在战争目标给盟友让利吗。 比如说战争目标里总该有几个割让分给盟友，然后盟友主动性一般很差，就是部队跟着你最大的舰队跑。 然后你就可以带着盟友的部队狐假虎威在别人老家烧杀抢掠，甚至占领星球都用盟友的陆战队，自己不带，然后你把你自己目标里几个星球占占，再打点舰队凑个100。然后就可以强行要求敌人投降，把你自己目标里几个星球强制割让停战。然后盟友目标里那几个，哎呀不好意思，没占下来啊，没法割。
-
-
-
-
-
 
 
 -----
@@ -10107,14 +6876,7 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 ##### 500#       发表于 2016-5-20 11:21
 
 
-
-
 我宣了三个0.2的宿敌，然后每月影响多加3，这是bug还是故意的。。。
-
-
-
-
-
 
 
 -----
@@ -10123,23 +6885,16 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 ##### 501#       发表于 2016-5-20 11:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32477718&amp;amp;ptid=1275523" target="_blank">g54088 发表于 2016-5-20 10:17</a>
 前期主要来源是宿敌，然后是科技和建筑。</blockquote>
 就是要宣战一个邻居吗？<img src="https://static.saraba1st.com/image/smiley/face/57.gif" referrerpolicy="no-referrer">
 不过邻居们看起来都很能打的样子不会被焦作人吗？？<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  我来自一中  
 ##### 502#       发表于 2016-5-20 11:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32477860&amp;amp;ptid=1275523" target="_blank">kamiruding 发表于 2016-5-20 10:30</a>
@@ -10151,16 +6906,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 我roll了几十年才roll出了个热带星球殖民科技<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  大哀之君  
 ##### 503#       发表于 2016-5-20 12:17
-
 
 
 <blockquote>我来自一中 发表于 2016-5-20 11:28
@@ -10173,11 +6922,6 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 宿敌就是文明5的谴责，外交界面点选即可。外交关系大幅降低，但未必真的开战
 
 哨站建成后尽早划归星区管理，不用自己掏维护费。还有你到底为什么会几十年两球啊，玩家出生点附近不是照例会刷三四个与Homeworld气候类型相同行星吗
-
-
-
-
-
 
 
 -----
@@ -10204,17 +6948,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 然后你扩张实在需要 就建造观察站 一定要保持+3影响力 低于这个的时候就要划分星区 吧观察站丢出去另外你早期 开了其他类型的殖民星球 也不合算的。适合度比较低 影响幸福指数的
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 505#       发表于 2016-5-20 12:34
-
-
 
 
 这游戏地形改造那么麻烦，费用高，一个目的就是让你不要搞种族灭绝。
@@ -10232,16 +6969,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 系统不平衡归不平衡，各阶段一环套一环玩法还是挺多样的
 
 
-
-
-
-
-
 -----
 
 ####  我来自一中  
 ##### 506#       发表于 2016-5-20 12:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32479119&amp;amp;ptid=1275523" target="_blank">大哀之君 发表于 2016-5-20 12:17</a>
@@ -10251,16 +6982,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 并没有啊，能殖民的就不多，也都是些废土世界、极地世界和海洋世界，好不容易才找到一个大陆世界，还总roll不到行星改造和移民科技<img src="https://static.saraba1st.com/image/smiley/face/125.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  我来自一中  
 ##### 507#       发表于 2016-5-20 12:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32479152&amp;amp;ptid=1275523" target="_blank">kamiruding 发表于 2016-5-20 12:20</a>
@@ -10272,16 +6997,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 我一开局就是科考船前面探路、工程船随后铺矿的玩法，但总找不到宜居星球……都是些0%，20%宜居性的地狱星……没殖民星没空间站舰队也只能是橡皮鸭水准，打个结晶生命体还要战战兢兢的……
 
 
-
-
-
-
-
 -----
 
 ####  卖哥  
 ##### 508#       发表于 2016-5-20 12:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32479405&amp;ptid=1275523" target="_blank">我来自一中 发表于 2016-5-20 12:42</a>
@@ -10294,16 +7013,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 需要开出新的殖民类型了才能铺两球的话，这局已经太难玩了。
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 509#       发表于 2016-5-20 12:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32479355&amp;ptid=1275523" target="_blank">我来自一中 发表于 2016-5-20 12:38</a>
@@ -10315,25 +7028,13 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 所以嘛，不走控制台路线，也只能乖乖伺候少民
 
 
-
-
-
-
-
 -----
 
 ####  ahsammas  
 ##### 510#       发表于 2016-5-20 12:50
 
 
-
-
 玩了几个小时，觉得这游戏有点像太阳帝国的原罪
-
-
-
-
-
 
 
 -----
@@ -10342,21 +7043,13 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 ##### 511#       发表于 2016-5-20 12:53
 
 
-
-
 这游戏加入了别人的联盟就不能宣战了？
-
-
-
-
-
 
 
 -----
 
 ####  夏影  
 ##### 512#       发表于 2016-5-20 13:03
-
 
 
  本帖最后由 夏影 于 2016-5-20 13:49 编辑 
@@ -10376,32 +7069,19 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 特质可以寿命选个+30年就差不多了，科技能跟上根本不会死，负面可以选个-25%经验的，小飞船经验嗖嗖的根本不缺
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
 ##### 513#       发表于 2016-5-20 13:10
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">我一般升变都是给自己加个变通效果，10%宜居度，配上科技10%中期基本上海洋和热带行星殖民起来一点问题都没有的
-
-
-
-
-
 
 
 -----
 
 ####  chaoswing  
 ##### 514#       发表于 2016-5-20 13:17
-
-
 
 
 抓其他种族去移民啊
@@ -10414,25 +7094,13 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 要注意的是即使你有对某种星球高适性的种族，没有对应的殖民科技还是不能殖民的……
 
 
-
-
-
-
-
 -----
 
 ####  榨汁姬  
 ##### 515#       发表于 2016-5-20 14:00
 
 
-
-
 有了基因改造后划星区他们自己会适应地形自己改造，这样就不用忍受奇葩外星人了
-
-
-
-
-
 
 
 -----
@@ -10441,23 +7109,16 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 ##### 516#       发表于 2016-5-20 14:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32480233&amp;ptid=1275523" target="_blank">榨汁姬 发表于 2016-5-20 14:00</a>
 
 有了基因改造后划星区他们自己会适应地形自己改造，这样就不用忍受奇葩外星人了 ...</blockquote>
 然后会变成new type对旧人类。。。
 
 
-
-
-
-
-
 -----
 
 ####  blastoderm00  
 ##### 517#       发表于 2016-5-20 14:04
-
 
 
 <blockquote>薛帕德 发表于 2016-5-20 12:53
@@ -10469,25 +7130,13 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 然后有的情况下盟友是坚决不打的，虽然我还没摸透是什么道理。但是选的目标肯定有关系，还有可能ai判断现在自己没做好战争准备，反正有你好处全塞别人，但是盟友就是不打的时候。至于一旦打起来就可以坑盟友了，操作方法看我上面回帖。
 
 
-
-
-
-
-
 -----
 
 ####  我来自一中  
 ##### 518#       发表于 2016-5-20 14:08
 
 
-
-
 又开了一局新的，还是选人类，这局的太阳系无比贫瘠<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10496,22 +7145,15 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 ##### 519#       发表于 2016-5-20 14:14
 
 
-
 <blockquote>我来自一中 发表于 2016-5-20 14:08
 又开了一局新的，还是选人类，这局的太阳系无比贫瘠整个星系加起来只有三点能量两点矿，外出探索不到 ...</blockquote>
 你不要把开始那个星系太当回事。 这个游戏现在这个版本的精髓是爆铺。你所有在宇宙空间觉得不够的资源都可以从殖民地补。你唯一要想的是不断的走出去，有地方铺殖民地就铺。我选随机初始星系类型随机，老家才总计4点资源，也完全无所谓。
-
-
-
-
-
 
 
 -----
 
 ####  jinjinyizu  
 ##### 520#       发表于 2016-5-20 14:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32479512&amp;ptid=1275523" target="_blank">薛帕德 发表于 2016-5-20 12:53</a>
@@ -10524,16 +7166,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 如果想独占胜利果实，就只能自己带头宣战，但不占领盟友的目标星球，自己想割的登陆后迅速谈判
 
 
-
-
-
-
-
 -----
 
 ####  我来自一中  
 ##### 521#       发表于 2016-5-20 14:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32480373&amp;amp;ptid=1275523" target="_blank">blastoderm00 发表于 2016-5-20 14:14</a>
@@ -10542,16 +7178,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 只有四条护卫舰硬着头冲过去，HUI DENG提督壮烈牺牲<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 522#       发表于 2016-5-20 14:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32480233&amp;ptid=1275523" target="_blank">榨汁姬 发表于 2016-5-20 14:00</a>
@@ -10563,32 +7193,19 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 而且我不知道是不是bug了，改造了自己的种族，自己就变外星人了，buff一样上，不算主体民族了。
 
 
-
-
-
-
-
 -----
 
 ####  榨汁姬  
 ##### 523#       发表于 2016-5-20 14:44
 
 
-
-
 四种领袖里面最右边那个是干啥的？
-
-
-
-
-
 
 
 -----
 
 ####  藤岛鸣海  
 ##### 524#       发表于 2016-5-20 14:46
-
 
 
 <blockquote>引用第520楼我来自一中于2016-05-20 14:19发表的  :
@@ -10602,26 +7219,15 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 ----发送自 [Meizu PRO 5,Android 5.1](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 525#       发表于 2016-5-20 14:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32480643&amp;amp;ptid=1275523" target="_blank">榨汁姬 发表于 2016-5-20 14:44</a>
 四种领袖里面最右边那个是干啥的？</blockquote>
 地面战的
-
-
-
-
-
 
 
 -----
@@ -10630,17 +7236,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 ##### 526#       发表于 2016-5-20 14:53
 
 
-
-
 后期打联盟大概需要地面战，早期打小国家，灭了主力舰队就差不多100%了
 
 
 后期打联盟，决定性战役打了几回，灭了几国联军舰队，也只能加到35%
-
-
-
-
-
 
 
 -----
@@ -10649,17 +7248,11 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 ##### 527#       发表于 2016-5-20 14:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32480651&amp;amp;ptid=1275523" target="_blank">藤岛鸣海 发表于 2016-5-20 14:46</a>
 @我来自一中
 
 海盗不用怕吧。你再造两条护卫舰加上本来的一起打就行了。加一起才一百多块钱。</blockquote>
 主要是没料到会这么快，本来打算第一个盖亚世界殖民了再发展初级的舰队力量，结果本来打算造殖民船的预算砸进去做急造舰队了不说，还被炸掉了几座矿，心疼啊<img src="https://static.saraba1st.com/image/smiley/face/125.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10668,7 +7261,6 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 ##### 528#       发表于 2016-5-20 14:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32480651&amp;amp;ptid=1275523" target="_blank">藤岛鸣海 发表于 2016-5-20 14:46</a>
 @我来自一中
 
@@ -10676,16 +7268,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 主要是没料到会这么快，本来打算第一个盖亚世界殖民了再发展初级的舰队力量，结果本来打算造殖民船的预算砸进去做急造舰队了不说，还被炸掉了几座矿，心疼啊<img src="https://static.saraba1st.com/image/smiley/face/125.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  blastoderm00  
 ##### 529#       发表于 2016-5-20 15:16
-
 
 
 <blockquote>我来自一中 发表于 2016-5-20 14:57
@@ -10695,16 +7281,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 你自己该铺殖民地就铺，不要为这么点小事乱了节奏。
 
 
-
-
-
-
-
 -----
 
 ####  kamiruding  
 ##### 530#       发表于 2016-5-20 15:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32480949&amp;ptid=1275523" target="_blank">blastoderm00 发表于 2016-5-20 15:16</a>
@@ -10713,25 +7293,13 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 同意   其实你补个 3到4条护卫舰就OK了。。
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 531#       发表于 2016-5-20 16:15
 
 
-
-
 殖民地比星系采矿收益高多了。
-
-
-
-
-
 
 
 -----
@@ -10740,23 +7308,15 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 ##### 532#       发表于 2016-5-20 16:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32479512&amp;ptid=1275523" target="_blank">薛帕德 发表于 2016-5-20 12:53</a>
 这游戏加入了别人的联盟就不能宣战了？</blockquote>
 主席可以宣
-
-
-
-
-
 
 
 -----
 
 ####  zephyrus99  
 ##### 533#       发表于 2016-5-20 16:45
-
-
 
 
 刚好不容易一局打得不错，七八个殖民地，加上七八个哨站，其中一半给AI管理了
@@ -10766,17 +7326,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 是不是看到失落帝国之后就不往他那边发展，在家憋战舰？ 问题我的能源也就＋40左右，战力憋起来，能源就不足啊
 
 
-
-
-
-
-
 -----
 
 ####  你的全家  
 ##### 534#       发表于 2016-5-20 16:46
-
-
 
 
 准备开个档打机械帝国 国内主体民族在出了AI之后就彻底消灭 AI公民权和领导权赋予防止造反
@@ -10786,16 +7339,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 劣势：妈的好贵
 
 
-
-
-
-
-
 -----
 
 ####  你的全家  
 ##### 535#       发表于 2016-5-20 16:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32481736&amp;ptid=1275523" target="_blank">zephyrus99 发表于 2016-5-20 16:45</a>
@@ -10805,16 +7352,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 你大概殖民了圣地/在边境线殖民/搞种族灭绝 了
 
 
-
-
-
-
-
 -----
 
 ####  zephyrus99  
 ##### 536#       发表于 2016-5-20 16:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32481759&amp;ptid=1275523" target="_blank">你的全家 发表于 2016-5-20 16:47</a>
@@ -10825,16 +7366,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 我只有打过一个星系里面有一千多战力的舰队的，不是海盗也不是外星生物，难不成是那个？
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 537#       发表于 2016-5-20 17:06
-
 
 
  本帖最后由 sandro 于 2016-5-20 17:07 编辑 
@@ -10848,16 +7383,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 在行星状态栏里有显示
 
 
-
-
-
-
-
 -----
 
 ####  blastoderm00  
 ##### 538#       发表于 2016-5-20 17:10
-
 
 
 <blockquote>zephyrus99 发表于 2016-5-20 16:54
@@ -10869,16 +7398,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 但是对几个玩意恨之入骨，种族灭绝（包括各种你觉得是虫子的玩意，在老大哥眼里你和他们是一样的）。AI，包括各种沾点边的小科技。
 
 
-
-
-
-
-
 -----
 
 ####  belatedeffort  
 ##### 539#       发表于 2016-5-20 17:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32481810&amp;ptid=1275523" target="_blank">zephyrus99 发表于 2016-5-20 16:54</a>
@@ -10889,16 +7412,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 你不针对但是边界碰到了就会宣，所以看到FE是军国主义的一定不要犹豫赶紧丢大使
 
 
-
-
-
-
-
 -----
 
 ####  萨尤克  
 ##### 540#       发表于 2016-5-20 18:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32481748&amp;ptid=1275523" target="_blank">你的全家 发表于 2016-5-20 16:46</a>
@@ -10910,17 +7427,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">这么玩要是被AI势力作死点出机械科技然后造反你就完了....
 
 
-
-
-
-
-
 -----
 
 ####  我来自一中  
 ##### 541#       发表于 2016-5-20 18:21
-
-
 
 
 领导不够用了！！<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
@@ -10928,16 +7438,10 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 要怎样才能增加领导上限？是要研发什么科技吗？
 
 
-
-
-
-
-
 -----
 
 ####  大哀之君  
 ##### 542#       发表于 2016-5-20 18:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32482580&amp;ptid=1275523" target="_blank">我来自一中 发表于 2016-5-20 18:21</a>
@@ -10949,27 +7453,15 @@ Late Medieval Age 中世纪晚期总归是西欧一家的了吧
 刷科技
 
 
-
-
-
-
-
 -----
 
 ####  fzlong  
 ##### 543#       发表于 2016-5-20 18:35
 
 
-
-
 护卫舰用单武器的模块插个密集阵别的槽全插血当肉盾
 
 bb全用速子长矛打黑枪好像不错啊<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10978,16 +7470,10 @@ bb全用速子长矛打黑枪好像不错啊<img src="https://static.saraba1st.c
 ##### 544#       发表于 2016-5-20 18:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32482500&amp;ptid=1275523" target="_blank">萨尤克 发表于 2016-5-20 18:12</a>
 
 这么玩要是被AI势力作死点出机械科技然后造反你就完了....</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">……我这边就算100%顺民 他们造反我也要完蛋的？
-
-
-
-
-
 
 
 -----
@@ -10996,15 +7482,9 @@ bb全用速子长矛打黑枪好像不错啊<img src="https://static.saraba1st.c
 ##### 545#       发表于 2016-5-20 18:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32482660&amp;amp;ptid=1275523" target="_blank">大哀之君 发表于 2016-5-20 18:31</a>
 刷科技</blockquote>
 那舰队可以合并吗？就是我想把没有指挥官的舰队编入到另一支有提督的舰队之下可以吗？
-
-
-
-
-
 
 
 -----
@@ -11013,16 +7493,10 @@ bb全用速子长矛打黑枪好像不错啊<img src="https://static.saraba1st.c
 ##### 546#       发表于 2016-5-20 18:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32482700&amp;ptid=1275523" target="_blank">我来自一中 发表于 2016-5-20 18:36</a>
 
 那舰队可以合并吗？就是我想把没有指挥官的舰队编入到另一支有提督的舰队之下可以吗？ ...</blockquote>
 同时选中两支舰队，右下角拖动你要合并的战舰图标
-
-
-
-
-
 
 
 -----
@@ -11031,14 +7505,7 @@ bb全用速子长矛打黑枪好像不错啊<img src="https://static.saraba1st.c
 ##### 547#       发表于 2016-5-20 18:56
 
 
-
-
 提督好像可以同时指挥两只舰队。
-
-
-
-
-
 
 
 -----
@@ -11047,14 +7514,7 @@ bb全用速子长矛打黑枪好像不错啊<img src="https://static.saraba1st.c
 ##### 548#       发表于 2016-5-20 19:03
 
 
-
-
 领导似乎科技一次加一个上限，和球数一样增长的办法
-
-
-
-
-
 
 
 -----
@@ -11063,15 +7523,9 @@ bb全用速子长矛打黑枪好像不错啊<img src="https://static.saraba1st.c
 ##### 549#       发表于 2016-5-20 19:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32482937&amp;amp;ptid=1275523" target="_blank">愚妓米露露 发表于 2016-5-20 19:03</a>
 领导似乎科技一次加一个上限，和球数一样增长的办法</blockquote>
 有什么前置科技要先注意点的吗？
-
-
-
-
-
 
 
 -----
@@ -11080,23 +7534,16 @@ bb全用速子长矛打黑枪好像不错啊<img src="https://static.saraba1st.c
 ##### 550#       发表于 2016-5-20 19:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32482739&amp;ptid=1275523" target="_blank">大哀之君 发表于 2016-5-20 18:39</a>
 
 同时选中两支舰队，右下角拖动你要合并的战舰图标</blockquote>
 同时选中两支舰队，左上角直接就有个合并按钮……
 
 
-
-
-
-
-
 -----
 
 ####  卖哥  
 ##### 551#       发表于 2016-5-20 19:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32482697&amp;ptid=1275523" target="_blank">你的全家 发表于 2016-5-20 18:36</a>
@@ -11107,17 +7554,10 @@ bb全用速子长矛打黑枪好像不错啊<img src="https://static.saraba1st.c
 你把造反AI的老家端掉你的机器人就继续顺民了，所以和其他灾难不同，其他灾难你不希望爆在自己家，希望电脑帮你消耗前几波火星兵，但机器灾难你却希望爆在自己家能及早掐死。
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
 ##### 552#       发表于 2016-5-20 20:11
-
-
 
 
 老大哥也是分不同种类的...
@@ -11129,27 +7569,15 @@ bb全用速子长矛打黑枪好像不错啊<img src="https://static.saraba1st.c
 最后一种就是别占他家圣地行星就好了。。。。。
 
 
-
-
-
-
-
 -----
 
 ####  又土又笨曾阿芬  
 ##### 553#       发表于 2016-5-20 20:17
 
 
-
-
 请问上古文明的数量是不是玩家开图的时候不能决定啊？
 
 我把开图文明数下面那个高级文明什么什么的给划成0了，结果上古文明就不出现了，可那项明明说了和堕落文明无关的
-
-
-
-
-
 
 
 -----
@@ -11158,23 +7586,16 @@ bb全用速子长矛打黑枪好像不错啊<img src="https://static.saraba1st.c
 ##### 554#       发表于 2016-5-20 20:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32482877&amp;ptid=1275523" target="_blank">发呆的龙虾 发表于 2016-5-20 18:56</a>
 
 提督好像可以同时指挥两只舰队。</blockquote>
 提督这个是bug吧，撤也撤不掉，还会分身术。还是说只能在空间站轨道里时换？好像有这个说明来着
 
 
-
-
-
-
-
 -----
 
 ####  jinjinyizu  
 ##### 555#       发表于 2016-5-20 20:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32483535&amp;ptid=1275523" target="_blank">又土又笨曾阿芬 发表于 2016-5-20 20:17</a>
@@ -11185,16 +7606,10 @@ bb全用速子长矛打黑枪好像不错啊<img src="https://static.saraba1st.c
 advance选项应该确实跟失落文明无关的。根据玩家反馈，失落文明出现的几率似乎跟玩家政体有关，选了军国唯物独裁之类有可能触老大哥G点的开局，周围星域极有可能就出现失落文明来限制玩家
 
 
-
-
-
-
-
 -----
 
 ####  又土又笨曾阿芬  
 ##### 556#       发表于 2016-5-20 21:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32483673&amp;ptid=1275523" target="_blank">jinjinyizu 发表于 2016-5-20 20:33</a>
@@ -11205,27 +7620,15 @@ advance选项应该确实跟失落文明无关的。根据玩家反馈，失落�
 估计是没找到，或者是这个设定随机性比较大
 
 
-
-
-
-
-
 -----
 
 ####  又土又笨曾阿芬  
 ##### 557#       发表于 2016-5-20 21:15
 
 
-
-
 这个游戏我发现干坏事要趁早，在其他文明没建立联系之前，上来先干杀人越货种族屠杀的事
 
 中后期大家联盟搞起来就拉不下脸了，否则所有人一起鄙视你，没法混
-
-
-
-
-
 
 
 -----
@@ -11234,18 +7637,12 @@ advance选项应该确实跟失落文明无关的。根据玩家反馈，失落�
 ##### 558#       发表于 2016-5-20 21:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32483006&amp;ptid=1275523" target="_blank">卖哥 发表于 2016-5-20 19:09</a>
 
 你可以理解为那个造反AI散播了“杀光有机体”的电脑病毒
 
 你把造反AI的老家端掉你的机器人就继续顺民了， ...</blockquote>
 异次元入侵也最好爆在自己家吧，刚出来就34K的部队，我慢了点也就打51K的部队，自己就死了10K的样子。虫子没见过刚出来是啥样。
-
-
-
-
-
 
 
 -----
@@ -11254,7 +7651,6 @@ advance选项应该确实跟失落文明无关的。根据玩家反馈，失落�
 ##### 559#       发表于 2016-5-20 21:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32483006&amp;ptid=1275523" target="_blank">卖哥 发表于 2016-5-20 19:09</a>
 
 你可以理解为那个造反AI散播了“杀光有机体”的电脑病毒
@@ -11263,16 +7659,10 @@ advance选项应该确实跟失落文明无关的。根据玩家反馈，失落�
 异次元入侵也最好爆在自己家吧，刚出来就34K的部队，我慢了点也就打51K的部队，自己就死了10K的样子。虫子没见过刚出来是啥样。
 
 
-
-
-
-
-
 -----
 
 ####  kxh007458  
 ##### 560#       发表于 2016-5-20 21:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32483535&amp;ptid=1275523" target="_blank">又土又笨曾阿芬 发表于 2016-5-20 20:17</a>
@@ -11283,16 +7673,10 @@ advance选项应该确实跟失落文明无关的。根据玩家反馈，失落�
 那个是翻译问题，其实就是增加其他AI的出生优势。
 
 
-
-
-
-
-
 -----
 
 ####  zephyrus99  
 ##### 561#       发表于 2016-5-20 21:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32482062&amp;ptid=1275523" target="_blank">belatedeffort 发表于 2016-5-20 17:21</a>
@@ -11301,27 +7685,15 @@ advance选项应该确实跟失落文明无关的。根据玩家反馈，失落�
 那么请问，大使是什么？ 怎么丢？丢了咋用？
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
 ##### 562#       发表于 2016-5-20 21:35
 
 
-
-
 大使你可以理解成一个外交选项，直接在外交界面里派
 
 会随着时间增加外交点数，最高+100
-
-
-
-
-
 
 
 -----
@@ -11330,14 +7702,7 @@ advance选项应该确实跟失落文明无关的。根据玩家反馈，失落�
 ##### 563#       发表于 2016-5-20 21:40
 
 
-
-
 现在想想为什么这次3DM的机器翻译汉化为什么还不错了，因为这次专用术语科学名词多，而历史上的多义词、名词、人名地名什么的很少，所以机器翻译准确度还可以。。。
-
-
-
-
-
 
 
 -----
@@ -11346,24 +7711,16 @@ advance选项应该确实跟失落文明无关的。根据玩家反馈，失落�
 ##### 564#       发表于 2016-5-20 22:41
 
 
-
-
 加120年真有用，一个领导可以用250年以上，一直贯穿早中晚期。
 
 
 相比较负面BUFF可以忽略不计
 
 
-
-
-
-
-
 -----
 
 ####  leolodge  
 ##### 565#       发表于 2016-5-20 22:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32441976&amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-16 12:40</a>
@@ -11376,27 +7733,15 @@ advance选项应该确实跟失落文明无关的。根据玩家反馈，失落�
 萌化MOD是只萌化己方吗？遇到其他的还是原版，不晓得是不是自己mod设置的问题。解压包里的.mod文件解压显示错误。
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
 ##### 566#       发表于 2016-5-20 22:53
 
 
-
-
 对方的话你要自己创建自定义的萌豚帝国，然后锁死金鹰，这样AI就100%会在游戏里使用这个帝国
 
 <img src="https://static.saraba1st.com/image/smiley/face/77.gif" referrerpolicy="no-referrer">MOD不都是压缩包吗....?
-
-
-
-
-
 
 
 -----
@@ -11405,17 +7750,10 @@ advance选项应该确实跟失落文明无关的。根据玩家反馈，失落�
 ##### 567#       发表于 2016-5-20 23:05
 
 
-
-
 创意工坊，无脑添加，启动器开启。
 
 
 萌化就算不点，也会随机生产，我遇到低等种族有萌豚，帝国也有萌豚，奴役得不要不要的脑补好带感
-
-
-
-
-
 
 
 -----
@@ -11424,21 +7762,13 @@ advance选项应该确实跟失落文明无关的。根据玩家反馈，失落�
 ##### 568#       发表于 2016-5-20 23:27
 
 
-
-
 游戏到后期简直卡到不能玩.......这个问题有生之年能解决么......
-
-
-
-
-
 
 
 -----
 
 ####  卖哥  
 ##### 569#       发表于 2016-5-20 23:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32484968&amp;ptid=1275523" target="_blank">angelseele 发表于 2016-5-20 23:27</a>
@@ -11449,16 +7779,10 @@ advance选项应该确实跟失落文明无关的。根据玩家反馈，失落�
 所以……等下一代引擎吧……
 
 
-
-
-
-
-
 -----
 
 ####  卖哥  
 ##### 570#       发表于 2016-5-21 00:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32484594&amp;ptid=1275523" target="_blank">你次元小报社 发表于 2016-5-20 22:41</a>
@@ -11472,16 +7796,10 @@ advance选项应该确实跟失落文明无关的。根据玩家反馈，失落�
 我觉得花4点买真不值得，领导等级除了异常探索比较重要之外，其他用途主要看领导特性的。
 
 
-
-
-
-
-
 -----
 
 ####  你次元小报社  
 ##### 571#       发表于 2016-5-21 01:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32485240&amp;ptid=1275523" target="_blank">卖哥 发表于 2016-5-21 00:02</a>
@@ -11495,16 +7813,10 @@ advance选项应该确实跟失落文明无关的。根据玩家反馈，失落�
 领导的加成比种族特性加成要好看
 
 
-
-
-
-
-
 -----
 
 ####  eno_emos  
 ##### 572#       发表于 2016-5-21 02:11
-
 
 
  本帖最后由 eno_emos 于 2016-5-21 02:15 编辑 
@@ -11547,16 +7859,10 @@ advance选项应该确实跟失落文明无关的。根据玩家反馈，失落�
 这关键字屏蔽太迷了……
 
 
-
-
-
-
-
 -----
 
 ####  YMS16M  
 ##### 573#       发表于 2016-5-21 04:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32482739&amp;ptid=1275523" target="_blank">大哀之君 发表于 2016-5-20 18:39</a>
@@ -11565,17 +7871,10 @@ advance选项应该确实跟失落文明无关的。根据玩家反馈，失落�
 合并不是点左上么。。。
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 574#       发表于 2016-5-21 09:01
-
-
 
 
 合并慢，还要等飞船飞过去，在同一个星球上直接拖图标瞬间就完成了，算是个bug吧
@@ -11584,16 +7883,10 @@ advance选项应该确实跟失落文明无关的。根据玩家反馈，失落�
 寿命我觉得加30年足够了，只需要一点属性，剩下的只要猛冲科技是死不了人的
 
 
-
-
-
-
-
 -----
 
 ####  yanghuangu  
 ##### 575#       发表于 2016-5-21 09:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32484968&amp;ptid=1275523" target="_blank">angelseele 发表于 2016-5-20 23:27</a>
@@ -11602,26 +7895,15 @@ advance选项应该确实跟失落文明无关的。根据玩家反馈，失落�
 不是说1.03版有改善吗？
 
 
-
-
-
-
-
 -----
 
 ####  johnjacksonlin  
 ##### 576#       发表于 2016-5-21 09:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">出差几天回来，发现工坊又多了好多2333大帝国都来了...
 
 stellaris以后MOD剧情化潜力无限，比如银英就不用再自己出游戏了，好多科幻小说都可以移植
-
-
-
-
-
 
 
 -----
@@ -11630,21 +7912,13 @@ stellaris以后MOD剧情化潜力无限，比如银英就不用再自己出游�
 ##### 577#       发表于 2016-5-21 09:54
 
 
-
-
 来个大补丁或者dlc把经济系统和外交系统完善下这游戏基本就完美了。剩下的船模啦事件啦科技啦通通可以靠mod解决了。
-
-
-
-
-
 
 
 -----
 
 ####  你次元小报社  
 ##### 578#       发表于 2016-5-21 11:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32487021&amp;ptid=1275523" target="_blank">johnjacksonlin 发表于 2016-5-21 09:38</a>
@@ -11658,17 +7932,10 @@ stellaris以后MOD剧情化潜力无限，比如银英 ...</blockquote>
 后续潜力无限啊，至少大部分太空歌剧都可以套
 
 
-
-
-
-
-
 -----
 
 ####  你次元小报社  
 ##### 579#       发表于 2016-5-21 11:22
-
-
 
 
 创意工坊看了一下，现在已经呈爆炸性发展了…………
@@ -11677,17 +7944,10 @@ stellaris以后MOD剧情化潜力无限，比如银英 ...</blockquote>
 才那么几天功夫已经1200个了……虽然很多是不同语言作者的功能性重复玩意儿
 
 
-
-
-
-
-
 -----
 
 ####  战列驱逐舰POI  
 ##### 580#       发表于 2016-5-21 13:19
-
-
 
 
 这游戏的人口惩罚太严重了
@@ -11695,17 +7955,10 @@ stellaris以后MOD剧情化潜力无限，比如银英 ...</blockquote>
 为了圈地盘殖民，前期的人口全部投资在食物上，又没科技产出。结果科技分母唰唰的往上涨
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 581#       发表于 2016-5-21 13:44
-
-
 
 
 30K战斗力基本就能推下一家堕落帝国，电脑还是挺弱的，战前
@@ -11715,16 +7968,10 @@ stellaris以后MOD剧情化潜力无限，比如银英 ...</blockquote>
 <img src="http://ww2.sinaimg.cn/mw690/7e8b2857gw1f42yesq08tj20qn0jzgqq.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  卖哥  
 ##### 582#       发表于 2016-5-21 13:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32488766&amp;ptid=1275523" target="_blank">战列驱逐舰POI 发表于 2016-5-21 13:19</a>
@@ -11737,25 +7984,13 @@ stellaris以后MOD剧情化潜力无限，比如银英 ...</blockquote>
 虽然人口多了圈会大一点，但是真想圈地，2个1人口星圈进来的东西要比1个2人口星多得多。
 
 
-
-
-
-
-
 -----
 
 ####  你次元小报社  
 ##### 583#       发表于 2016-5-21 14:30
 
 
-
-
 打堕落要先发制人，否则被满地图炮恶心你就很不爽了
-
-
-
-
-
 
 
 -----
@@ -11764,24 +7999,16 @@ stellaris以后MOD剧情化潜力无限，比如银英 ...</blockquote>
 ##### 584#       发表于 2016-5-21 14:35
 
 
-
  本帖最后由 夏影 于 2016-5-21 14:37 编辑 
 
 单城300科研
 <img src="http://ww3.sinaimg.cn/mw690/7e8b2857gw1f42zygokkfj20va0ldgyb.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  卖哥  
 ##### 585#       发表于 2016-5-21 14:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32489281&amp;ptid=1275523" target="_blank">夏影 发表于 2016-5-21 14:35</a>
@@ -11792,32 +8019,19 @@ stellaris以后MOD剧情化潜力无限，比如银英 ...</blockquote>
 拿来发电才是最碉的
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 586#       发表于 2016-5-21 14:41
 
 
-
-
 你们怎么招惹堕落的，纯种田根本就没人管我，天天有人找我结盟我都懒的理，浪费我影响力
-
-
-
-
-
 
 
 -----
 
 ####  夏影  
 ##### 587#       发表于 2016-5-21 14:46
-
 
 
  本帖最后由 夏影 于 2016-5-21 15:24 编辑 
@@ -11834,33 +8048,19 @@ stellaris以后MOD剧情化潜力无限，比如银英 ...</blockquote>
 <img src="http://ww1.sinaimg.cn/mw690/7e8b2857gw1f430o4im60j20am07475j.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  demonawen  
 ##### 588#       发表于 2016-5-21 15:08
 
 
-
-
 萌新问一下，怎么把对手打趴下？有些弱一点的敌人我推到一半就投降了，有些我把建筑拆了也不投降，反复和我游击
-
-
-
-
-
 
 
 -----
 
 ####  qwased  
 ##### 589#       发表于 2016-5-21 15:19
-
-
 
 
 在想这游戏出个三体mod会不会挺好玩的？加入技术爆炸这个概念，可以随机抽到生产力加几倍的科技，不趁早捏死敌人说不定过几年他就能捏死你，再加入灭星系武器，地图扩大到万多个星系就可以玩了
@@ -11870,17 +8070,10 @@ stellaris以后MOD剧情化潜力无限，比如银英 ...</blockquote>
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  qwased  
 ##### 590#       发表于 2016-5-21 15:26
-
-
 
 
 流浪文明依靠蛀空行星（虫子那样，早期），拆解行星（中期）拆解恒星（后期）来永久毁灭星球/星系并一次性获取大量资源，惩罚是生产能力较低且人民幸福度上限降低，平民生活船航速低等等<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">感觉有搞头啊
@@ -11889,16 +8082,10 @@ stellaris以后MOD剧情化潜力无限，比如银英 ...</blockquote>
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  chaoswing  
 ##### 591#       发表于 2016-5-21 15:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32489643&amp;amp;ptid=1275523" target="_blank">qwased 发表于 2016-5-21 15:26</a>
@@ -11906,16 +8093,10 @@ stellaris以后MOD剧情化潜力无限，比如银英 ...</blockquote>
 这样子mod应该不行吧，要dlc从系统层面加了
 
 
-
-
-
-
-
 -----
 
 ####  tyrantblood  
 ##### 592#       发表于 2016-5-21 16:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32466760&amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-19 01:21</a>
@@ -11929,16 +8110,10 @@ stellaris以后MOD剧情化潜力无限，比如银英 ...</blockquote>
 我选其他种族同样能够随机到探测器任务。
 
 
-
-
-
-
-
 -----
 
 ####  战列驱逐舰POI  
 ##### 593#       发表于 2016-5-21 16:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32489030&amp;ptid=1275523" target="_blank">卖哥 发表于 2016-5-21 13:58</a>
@@ -11949,33 +8124,19 @@ stellaris以后MOD剧情化潜力无限，比如银英 ...</blockquote>
 我圈进来就丢给星区了  他们自己会长人口
 
 
-
-
-
-
-
 -----
 
 ####  愚妓米露露  
 ##### 594#       发表于 2016-5-21 19:03
 
 
-
-
 应该把殖民船重新设计，改成一个运输工具，可以运人口。
-
-
-
-
-
 
 
 -----
 
 ####  愚妓米露露  
 ##### 595#       发表于 2016-5-21 19:15
-
-
 
 
 然后就是武器技术和能源技术还有空间技术不匹配
@@ -11985,17 +8146,10 @@ stellaris以后MOD剧情化潜力无限，比如银英 ...</blockquote>
 不过这也是科幻小说多少年的通病
 
 
-
-
-
-
-
 -----
 
 ####  古斯塔夫设备  
 ##### 596#       发表于 2016-5-21 19:34
-
-
 
 
 这游戏紧急跳跃的设定非常恶心，你打他把 他从各个不同方向偷袭你后方，还分成几只舰队打游击拆你空间站。你回援他就来回跳着跑，被追上了打两下接着跳，满地图躲猫猫太恶心了。
@@ -12005,32 +8159,19 @@ stellaris以后MOD剧情化潜力无限，比如银英 ...</blockquote>
 歼敌无数忙活了几十年最后点数是负的 <img src="https://static.saraba1st.com/image/smiley/face/121.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  银河将军  
 ##### 597#       发表于 2016-5-21 20:17
 
 
-
-
 虫子舰队消灭了。但星球无法占领怎么办
-
-
-
-
-
 
 
 -----
 
 ####  夏影  
 ##### 598#       发表于 2016-5-21 20:25
-
 
 
  本帖最后由 夏影 于 2016-5-21 21:07 编辑 
@@ -12041,16 +8182,10 @@ stellaris以后MOD剧情化潜力无限，比如银英 ...</blockquote>
 躲猫猫也没什么难度，拿个小舰队做诱饵，比如2艘轻型防卫那种，你在旁边星球等着，等他过来吃你小部队的时候就直接迁越到它脸上
 
 
-
-
-
-
-
 -----
 
 ####  我来自一中  
 ##### 599#       发表于 2016-5-21 20:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32491419&amp;amp;ptid=1275523" target="_blank">古斯塔夫设备 发表于 2016-5-21 19:34</a>
@@ -12059,17 +8194,10 @@ HIT AND RUN嘛<img src="https://static.saraba1st.com/image/smiley/face/116.gif" 
 我自己有时也用这招，头也不回就瞄准空间站去，炸了马上撤退，一年后再来一发，过几年之后双方再碰头就有种二战后期US NAVY打IJN的感觉了<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  モノ江  
 ##### 600#       发表于 2016-5-21 20:34
-
-
 
 
 楼上升1.03吧，1.02有BUG无法消灭感染星球，1.03炸完了星球就自动变成荒漠星球了
@@ -12081,17 +8209,10 @@ HIT AND RUN嘛<img src="https://static.saraba1st.com/image/smiley/face/116.gif" 
 玩到2417年，800星地图，资源都爆表了，舰队规模也爆表了，两位老大哥也被我拉着一群小弟踏平了，胜利进程去到一半就整个卡到不行，已经没动力玩下去了
 
 
-
-
-
-
-
 -----
 
 ####  天衣いちご  
 ##### 601#       发表于 2016-5-21 20:59
-
-
 
 
 外星人好烦，因为开始没有点对天赋，无法采用净化什么的，怎么办，我好丫的想把那些家伙都屠了，老是叛变……
@@ -12101,16 +8222,10 @@ HIT AND RUN嘛<img src="https://static.saraba1st.com/image/smiley/face/116.gif" 
 都有太空蘑菇了，为啥不能蘑菇洗一个星球的地，把一个族打回石器时代，然后再建个观测站看他们成长（圈养）呢，我好想这样玩……
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
 ##### 602#       发表于 2016-5-21 21:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32491992&amp;ptid=1275523" target="_blank">天衣いちご 发表于 2016-5-21 20:59</a>
@@ -12123,16 +8238,10 @@ HIT AND RUN嘛<img src="https://static.saraba1st.com/image/smiley/face/116.gif" 
 有两项最终科技分别加部队的攻和血，不过感觉并没有资源能投到这里面就是了
 
 
-
-
-
-
-
 -----
 
 ####  天衣いちご  
 ##### 603#       发表于 2016-5-21 21:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32492033&amp;ptid=1275523" target="_blank">路德维嘉 发表于 2016-5-21 21:03</a>
@@ -12147,16 +8256,10 @@ HIT AND RUN嘛<img src="https://static.saraba1st.com/image/smiley/face/116.gif" 
 登陆部队那里我依然只见到攻击军或者防御军啊？因为我还没升科技？
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
 ##### 604#       发表于 2016-5-21 21:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32492102&amp;ptid=1275523" target="_blank">天衣いちご 发表于 2016-5-21 21:10</a>
@@ -12173,25 +8276,13 @@ PSI科技有灵能部队
 其他的还有乱七八糟的奴隶部队啥的...
 
 
-
-
-
-
-
 -----
 
 ####  逻辑自闭症  
 ##### 605#       发表于 2016-5-21 21:50
 
 
-
-
 点选登录登陆部队，右边的小方框里能装备插件，外星坐骑或者政委之类的
-
-
-
-
-
 
 
 -----
@@ -12200,21 +8291,13 @@ PSI科技有灵能部队
 ##### 606#       发表于 2016-5-21 21:51
 
 
-
-
 点选登录登陆部队，右边的小方框里能装备插件，外星坐骑或者政委之类的
-
-
-
-
-
 
 
 -----
 
 ####  johnjacksonlin  
 ##### 607#       发表于 2016-5-21 23:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32487739&amp;ptid=1275523" target="_blank">你次元小报社 发表于 2016-5-21 11:14</a>
@@ -12226,24 +8309,13 @@ PSI科技有灵能部队
 哈哈，是的我很期待
 
 
-
-
-
-
-
 -----
 
 ####  天衣いちご  
 ##### 608#       发表于 2016-5-22 00:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">我方的星域AI简直是最大的敌人，正事不干，就会党争闹分裂
-
-
-
-
-
 
 
 -----
@@ -12252,21 +8324,13 @@ PSI科技有灵能部队
 ##### 609#       发表于 2016-5-22 03:47
 
 
-
-
 军国主义好难玩，铺不过ai，结果我军国主义还没有和平的军队多。我只是想把全银河非人类都杀光而已就这么难吗。。
-
-
-
-
-
 
 
 -----
 
 ####  亡灵的彼岸  
 ##### 610#       发表于 2016-5-22 06:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32494455&amp;ptid=1275523" target="_blank">Inquisitor 发表于 2016-5-22 03:47</a>
@@ -12279,24 +8343,13 @@ PSI科技有灵能部队
 好好的一个铁人存档就这么完蛋了，唯一一次遇到家门口两个盖亚星球的图<img src="https://static.saraba1st.com/image/smiley/carton/177.gif" referrerpolicy="no-referrer">。
 
 
-
-
-
-
-
 -----
 
 ####  59式坦克  
 ##### 611#       发表于 2016-5-22 10:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">7K打5K，被打得全灭，对面还有3K。。。。。。疯狂电脑太厉害了。。。
-
-
-
-
-
 
 
 -----
@@ -12305,22 +8358,15 @@ PSI科技有灵能部队
 ##### 612#       发表于 2016-5-22 10:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32495833&amp;amp;ptid=1275523" target="_blank">59式坦克 发表于 2016-5-22 10:46</a>
 7K打5K，被打得全灭，对面还有3K。。。。。。疯狂电脑太厉害了。。。</blockquote>
 对面的提督是杨威利吗……<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  qwased  
 ##### 613#       发表于 2016-5-22 11:00
-
 
 
 <blockquote>引用第610楼59式坦克于2016-05-22 10:46发表的  :
@@ -12334,16 +8380,10 @@ PSI科技有灵能部队
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  59式坦克  
 ##### 614#       发表于 2016-5-22 11:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32495879&amp;ptid=1275523" target="_blank">我来自一中 发表于 2016-5-22 10:52</a>
@@ -12354,16 +8394,10 @@ PSI科技有灵能部队
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">刚刚那一战和亚斯提会战相似<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  59式坦克  
 ##### 615#       发表于 2016-5-22 11:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32495951&amp;ptid=1275523" target="_blank">qwased 发表于 2016-5-22 11:00</a>
@@ -12374,16 +8408,10 @@ PSI科技有灵能部队
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer"> 舰队配置没问题，基本驱逐舰护卫舰为主，很少量的巡洋舰，还没出到战列
 
 
-
-
-
-
-
 -----
 
 ####  卖哥  
 ##### 616#       发表于 2016-5-22 11:08
-
 
 
 <blockquote>59式坦克 发表于 2016-5-22 11:03
@@ -12393,16 +8421,10 @@ PSI科技有灵能部队
 被克了吧
 
 
-
-
-
-
-
 -----
 
 ####  59式坦克  
 ##### 617#       发表于 2016-5-22 11:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32496002&amp;ptid=1275523" target="_blank">卖哥 发表于 2016-5-22 11:08</a>
@@ -12411,16 +8433,10 @@ PSI科技有灵能部队
 有可能，毕竟我偷懒点自动设计出来的甲抗鱼雷。。。
 
 
-
-
-
-
-
 -----
 
 ####  卖哥  
 ##### 618#       发表于 2016-5-22 11:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32496045&amp;ptid=1275523" target="_blank">59式坦克 发表于 2016-5-22 11:16</a>
@@ -12429,16 +8445,10 @@ PSI科技有灵能部队
 鱼雷容易被电脑克，后期AI的大船基本都有点防御
 
 
-
-
-
-
-
 -----
 
 ####  离魂仙  
 ##### 619#       发表于 2016-5-22 11:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32496045&amp;ptid=1275523" target="_blank">59式坦克 发表于 2016-5-22 11:16</a>
@@ -12449,16 +8459,10 @@ PSI科技有灵能部队
 而且也不能类型单一，护卫舰要至少两种，一类装能量武器光矛，一类装点防御和鱼雷。这样能攻能守，不会被克制
 
 
-
-
-
-
-
 -----
 
 ####  卖哥  
 ##### 620#       发表于 2016-5-22 11:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32496337&amp;ptid=1275523" target="_blank">离魂仙 发表于 2016-5-22 11:54</a>
@@ -12469,16 +8473,10 @@ PSI科技有灵能部队
 如果能拿到15%闪避15速度的国家buff，是可以堆出必闪小船的，然后就没有别的什么需求了，带满点防御磨死一切敌人。
 
 
-
-
-
-
-
 -----
 
 ####  古斯塔夫设备  
 ##### 621#       发表于 2016-5-22 12:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32496337&amp;ptid=1275523" target="_blank">离魂仙 发表于 2016-5-22 11:54</a>
@@ -12493,16 +8491,10 @@ PSI科技有灵能部队
 如果30艘轻护  很可能20艘击毁  10艘重伤  最后只能剩10艘~
 
 
-
-
-
-
-
 -----
 
 ####  离魂仙  
 ##### 622#       发表于 2016-5-22 13:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32496687&amp;ptid=1275523" target="_blank">古斯塔夫设备 发表于 2016-5-22 12:40</a>
@@ -12517,16 +8509,10 @@ PSI科技有灵能部队
 这一刻AI体会到了被xcom2命中率支配的恐惧
 
 
-
-
-
-
-
 -----
 
 ####  卖哥  
 ##### 623#       发表于 2016-5-22 14:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32496687&amp;ptid=1275523" target="_blank">古斯塔夫设备 发表于 2016-5-22 12:40</a>
@@ -12546,36 +8532,22 @@ PSI科技有灵能部队
 当然跟人玩这套是有办法破的，但是AI不存在这种搭配，会被这单一配置全克，打同样强度的AI配置，对方全灭这边上百艘小船只损个位数。
 
 
-
-
-
-
-
 -----
 
 ####  Inquisitor  
 ##### 624#       发表于 2016-5-22 19:04
 
 
-
-
 辛苦往左殖民几个星球，结果一个堕落帝国过来警告，让我拆了。我嘴硬没拆，结果他就派了超多舰队来，乖乖拆了。。。然后往右探了几步，神特么又一个堕落帝国……满地图就2个堕落帝国，一左一右给我护驾，p社你大爷！
 
 
-
 再问一下力量对比里，舰队、海军、科技三项，这舰队和海军到底什么区别啊
-
-
-
-
-
 
 
 -----
 
 ####  g54088  
 ##### 625#       发表于 2016-5-22 19:06
-
 
 
 <blockquote>引用第623楼Inquisitor于2016-05-22 19:04发表的  :
@@ -12589,32 +8561,19 @@ PSI科技有灵能部队
 ----发送自 [HUAWEI PE-CL00,Android 6.0](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  Inquisitor  
 ##### 626#       发表于 2016-5-22 19:39
 
 
-
-
 直辖上限指的是星系还是星球？比如说一个星系里有3个宜居星球，我都殖民了，占几个直辖上限？
-
-
-
-
-
 
 
 -----
 
 ####  卖哥  
 ##### 627#       发表于 2016-5-22 19:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32499319&amp;ptid=1275523" target="_blank">Inquisitor 发表于 2016-5-22 19:39</a>
@@ -12625,17 +8584,10 @@ PSI科技有灵能部队
 占3个
 
 
-
-
-
-
-
 -----
 
 ####  又土又笨曾阿芬  
 ##### 628#       发表于 2016-5-22 22:07
-
-
 
 
 你们别乱探索啊，上古文明不知道你存在你就可以干坏事了
@@ -12645,16 +8597,10 @@ PSI科技有灵能部队
 上来就和上古文明接触，那一举一动就被人看住了
 
 
-
-
-
-
-
 -----
 
 ####  卖哥  
 ##### 629#       发表于 2016-5-22 22:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32500325&amp;ptid=1275523" target="_blank">又土又笨曾阿芬 发表于 2016-5-22 22:07</a>
@@ -12667,16 +8613,10 @@ PSI科技有灵能部队
 初期殖民扩张发展比战争快得多，为了不碰到堕落帝国而不探索不值得。
 
 
-
-
-
-
-
 -----
 
 ####  又土又笨曾阿芬  
 ##### 630#       发表于 2016-5-22 23:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32500634&amp;ptid=1275523" target="_blank">卖哥 发表于 2016-5-22 22:48</a>
@@ -12691,16 +8631,10 @@ PSI科技有灵能部队
 只要旁边不是上古文明，没必要出去找揍，你不联系他干什么坏事他不知道也不会来理你
 
 
-
-
-
-
-
 -----
 
 ####  卖哥  
 ##### 631#       发表于 2016-5-22 23:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32500752&amp;ptid=1275523" target="_blank">又土又笨曾阿芬 发表于 2016-5-22 23:05</a>
@@ -12713,17 +8647,10 @@ PSI科技有灵能部队
 就算矿足军事科技顺，战斗力也要800战力才适合打邻居，这已经不是开局了。
 
 
-
-
-
-
-
 -----
 
 ####  laulucreast  
 ##### 632#       发表于 2016-5-22 23:49
-
-
 
 
 这是看脸啊，我遇到的是观察者型的堕落帝国，还是媚外。
@@ -12733,16 +8660,10 @@ PSI科技有灵能部队
 我现在推了半个宇宙，老大哥也没来找我麻烦<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  eragons1  
 ##### 633#       发表于 2016-5-23 02:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32491992&amp;ptid=1275523" target="_blank">天衣いちご 发表于 2016-5-21 20:59</a>
@@ -12751,25 +8672,13 @@ PSI科技有灵能部队
 现在已经有灭绝令mod了，是想烧玻璃还是核平任君挑选。<img src="https://static.saraba1st.com/image/smiley/normal/056.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  allenz  
 ##### 634#       发表于 2016-5-23 12:37
 
 
-
-
 电力不够，星区AI特别低发展缓慢，老缺电，怎么搞
-
-
-
-
-
 
 
 -----
@@ -12778,14 +8687,7 @@ PSI科技有灵能部队
 ##### 635#       发表于 2016-5-23 12:43
 
 
-
-
 要么在星区里造专门的电星，要么手动输血啊
-
-
-
-
-
 
 
 -----
@@ -12794,22 +8696,13 @@ PSI科技有灵能部队
 ##### 636#       发表于 2016-5-23 15:32
 
 
-
-
 管理行星和星域那个界面有按钮可以调成让星域AI侧重生产能源。
-
-
-
-
-
 
 
 -----
 
 ####  美利坚大老爹  
 ##### 637#       发表于 2016-5-23 17:21
-
-
 
 
 说实话，初期和中期真的挺好玩的，到了后期，就比较恶心了，而且星星和国家越多越恶心。
@@ -12821,16 +8714,10 @@ PSI科技有灵能部队
 现在应该热度降低一点了，MOD作者们也有空闲做MOD了吧
 
 
-
-
-
-
-
 -----
 
 ####  johnjacksonlin  
 ##### 638#       发表于 2016-5-23 17:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32504777&amp;ptid=1275523" target="_blank">路德维嘉 发表于 2016-5-23 12:43</a>
@@ -12839,16 +8726,10 @@ PSI科技有灵能部队
 无视本地资源的话AI就会自己最大限度发电了吧
 
 
-
-
-
-
-
 -----
 
 ####  无须关怀  
 ##### 639#       发表于 2016-5-23 18:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32504713&amp;ptid=1275523" target="_blank">allenz 发表于 2016-5-23 12:37</a>
@@ -12860,25 +8741,13 @@ PSI科技有灵能部队
 反正上限低得很你也存不了几个电，还不如支边了
 
 
-
-
-
-
-
 -----
 
 ####  榨汁姬  
 ##### 640#       发表于 2016-5-23 18:24
 
 
-
-
 能靠外交科技或者军事干涉他国意识形态就好了，这样可以扮演堕落帝国对其他落后文明说Too young,Too simple
-
-
-
-
-
 
 
 -----
@@ -12887,23 +8756,15 @@ PSI科技有灵能部队
 ##### 641#       发表于 2016-5-23 20:49
 
 
-
-
 得饥荒多久才能饿死人啊 
 
 洗脑科技是哪条线上的啊
-
-
-
-
-
 
 
 -----
 
 ####  Inquisitor  
 ##### 642#       发表于 2016-5-23 21:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32501051&amp;ptid=1275523" target="_blank">laulucreast 发表于 2016-5-22 23:49</a>
@@ -12916,17 +8777,10 @@ PSI科技有灵能部队
 观察者型只要不作死一般不来找你麻烦。作死一是净化，二是研发ai
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
 ##### 643#       发表于 2016-5-23 22:01
-
-
 
 
 净化最多-100
@@ -12936,16 +8790,10 @@ PSI科技有灵能部队
 完全无所谓
 
 
-
-
-
-
-
 -----
 
 ####  zephyrus99  
 ##### 644#       发表于 2016-5-23 23:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32491419&amp;ptid=1275523" target="_blank">古斯塔夫设备 发表于 2016-5-21 19:34</a>
@@ -12956,16 +8804,10 @@ PSI科技有灵能部队
 你把这东西修一个放边境，再放个舰队，敌人往你腹地跳的时候，会被吸到这里来，你的舰队守株待兔就可以
 
 
-
-
-
-
-
 -----
 
 ####  PIN  
 ##### 645#       发表于 2016-5-24 00:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32509942&amp;ptid=1275523" target="_blank">zephyrus99 发表于 2016-5-23 23:41</a>
@@ -12976,17 +8818,10 @@ PSI科技有灵能部队
 那个是武装空间站，默认是带亚空间陷阱，可以把ftl跳到这个恒星系的敌人舰队直接拉到空间站边上。这个空间站是像战舰一样可以在舰船设计画面更改设计的。还可以把默认的亚空间陷阱模块换成加盾加血或者减慢敌人射速的模块。
 
 
-
-
-
-
-
 -----
 
 ####  悲伤的风中云  
 ##### 646#       发表于 2016-5-24 00:10
-
-
 
 
 我刚吸完这个游戏出来 连续 30多个小时没睡觉 现在躺在床上还是睡不着
@@ -13000,18 +8835,10 @@ PSI科技有灵能部队
 套路我也看出来的 就是星际的狂狗流搭血牛 那些巡洋舰 驱逐舰 都是纸老虎 血的教训告诉我 大家都是5-7K战斗力 哗啦一看我这边 30+护卫搭几十台驱逐加3台巡洋舰 对上电脑的80多的小狂狗 被咬的灭过一次全主力重开档
 
 
-
-
-
-
-
-
-
 -----
 
 ####  悲伤的风中云  
 ##### 647#       发表于 2016-5-24 00:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32509942&amp;amp;ptid=1275523" target="_blank">zephyrus99 发表于 2016-5-23 23:41</a>
@@ -13021,16 +8848,10 @@ PSI科技有灵能部队
 军事平台的一个科技分支 只要有敌人经过你有平台范围内的星系就毁被吸过来 在领域内对方减速 你舰队在领域内攻速+20%
 
 
-
-
-
-
-
 -----
 
 ####  hellgate22  
 ##### 648#       发表于 2016-5-24 00:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32510111&amp;ptid=1275523" target="_blank">悲伤的风中云 发表于 2016-5-24 00:10</a>
@@ -13042,17 +8863,10 @@ PSI科技有灵能部队
 前哨站划归星区的话，是不会消耗影响力的
 
 
-
-
-
-
-
 -----
 
 ####  悲伤的风中云  
 ##### 649#       发表于 2016-5-24 00:22
-
-
 
 
 不消耗虽然OK 但是每次建一个还是要花150还是180影响力啊 前期拿来这么多
@@ -13060,16 +8874,10 @@ PSI科技有灵能部队
 当然了 如果是军国注意 找个200-300距离远的菜比宣一下竞争对手骗影响也是可以的
 
 
-
-
-
-
-
 -----
 
 ####  卖哥  
 ##### 650#       发表于 2016-5-24 01:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32510111&amp;ptid=1275523" target="_blank">悲伤的风中云 发表于 2016-5-24 00:10</a>
@@ -13081,17 +8889,10 @@ PSI科技有灵能部队
 那些你看不上的星也是值得殖民的，就当是拿来开地图的好了，殖民后直接丢星区。
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
 ##### 651#       发表于 2016-5-24 02:20
-
-
 
 
 殖民不建议殖10格以下的
@@ -13099,16 +8900,10 @@ PSI科技有灵能部队
 说实话10格以下的也不是很多....
 
 
-
-
-
-
-
 -----
 
 ####  卖哥  
 ##### 652#       发表于 2016-5-24 02:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32510649&amp;ptid=1275523" target="_blank">路德维嘉 发表于 2016-5-24 02:20</a>
@@ -13119,17 +8914,10 @@ PSI科技有灵能部队
 能开疆土的话就是值得的，只是不要在领地内殖这种。
 
 
-
-
-
-
-
 -----
 
 ####  天衣いちご  
 ##### 653#       发表于 2016-5-24 02:59
-
-
 
 
 之前开了个档，集体+军国，奴隶和净化，满图对我好感度都是红色的，这就算了，隔壁的还是些什么宗教狂热，种族歧视，默认-100，-1000，完全不说人话，夹在中间生存了好久，开战时被另一家爆菊全军覆没……
@@ -13141,17 +8929,10 @@ PSI科技有灵能部队
 开局好迷啊……
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 654#       发表于 2016-5-24 07:02
-
-
 
 
 新档发现周围都是和我一样的唯心主义，对我各种好感爆棚。拉了两个大国做同盟（挡箭牌）之后躲在后方专心种地
@@ -13164,25 +8945,13 @@ PSI科技有灵能部队
 ----发送自 [HUAWEI Che1-CL10,Android 4.4.4](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  sliencer  
 ##### 655#       发表于 2016-5-24 07:59
 
 
-
-
 前几天开的游戏，选的默认的UNE，前期用小船海灭掉了左右两边的国家，左边的国家后来发动叛乱(前期没电没影响压制**)，我放置play了20年后直接进攻占领就没事了。在之后是加入了附近五个国家组建的联邦并且安定参与种田工作(期间右半星系的两个联邦国家已经打的不可开交)。到2375年的时候ai盟友触发了虫子，上来45k的舰队直接造成波及区两个联盟主体国家被灭成灰。与此同时我退出了联邦对我左上角的两个联邦国家发动战争并获得胜利，直接让其附庸(此时舰队规模是40k)。然后我继续发展爆兵出了50k的舰队，联合14k的附庸国舰队北上灭虫(其实是先把沦陷区北面的国家先宣战了然后调动的)，经历了10年之后彻底灭虫。接着将之前宣战的国家一并收拾了(这里ai好像保存实力了，并没有派出所有舰队来拦截我)，我占了5个球并把其帝国内残留的虫子灭掉后对方头像，此时加上刚附庸的，全国总兵力已经达到了110k(宗主国舰队55w)，此时右边的两个联邦除了主体国舰队雄厚以外，其他已经不成气候，在我升级完战舰之后趁火打劫拿下了两个小国，最后聚拢军队直接对最近的联邦主体国发动攻击使其附庸，游戏结束。大概花了快400年的时间，最后占领了140个星球/目标110个，我国宗主国舰队达96w，附庸国舰队总数达135w……感觉这规模拉去打fallen empire都够了
-
-
-
-
-
 
 
 -----
@@ -13191,13 +8960,7 @@ PSI科技有灵能部队
 ##### 656#       发表于 2016-5-24 08:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer"> 你们玩这卡吗？ 我1000星，29家高智能AI，疯狂难度，66年就直接卡住了一个舰队
-
-
-
-
-
 
 
 -----
@@ -13206,21 +8969,13 @@ PSI科技有灵能部队
 ##### 657#       发表于 2016-5-24 08:03
 
 
-
-
 哦后期舰队军力单位不对，应该是k，w也太过分了www
-
-
-
-
-
 
 
 -----
 
 ####  我来自一中  
 ##### 658#       发表于 2016-5-24 09:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32511206&amp;amp;ptid=1275523" target="_blank">sliencer 发表于 2016-5-24 07:59</a>
@@ -13233,16 +8988,10 @@ UNE必须政治正确，不能奴役不能净化打完仗超麻烦<img src="http
 最有意思的是那群鸟国人，扛过了反叛期，再把鸟国残部也收进来以后马上就老实了<img src="https://static.saraba1st.com/image/smiley/face/20.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  sliencer  
 ##### 659#       发表于 2016-5-24 09:21
-
 
 
 <blockquote>我来自一中 发表于 2016-5-24 09:08
@@ -13252,16 +9001,10 @@ UNE必须政治正确，不能奴役不能净化打完仗超麻烦
 我前期也是直接选择割地，后来发现这招不行，于是先让星球独立跳一阵变成小附属国，然后再吞并。还有如果打大国，轻易不要割地，直接附属，反正附属国的星球算你的。有几个大国当附属国的好处就是真打仗了军力充沛你还不用维护太多，我最后一场战争最后打的时候基本上对方上啥都gg
 
 
-
-
-
-
-
 -----
 
 ####  我来自一中  
 ##### 660#       发表于 2016-5-24 10:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32511747&amp;amp;ptid=1275523" target="_blank">sliencer 发表于 2016-5-24 09:21</a>
@@ -13271,17 +9014,10 @@ UNE必须政治正确，不能奴役不能净化打完仗超麻烦
 话说昨晚没留意看，吸收成附庸的国家能让它纳岁币吗<img src="https://static.saraba1st.com/image/smiley/face/55.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 661#       发表于 2016-5-24 10:48
-
-
 
 
 感觉群星少了一个重要的东西是贸易路线……少了贸易船和民间船的银河一点也不热闹，来来回回都是那几种船
@@ -13290,16 +9026,10 @@ UNE必须政治正确，不能奴役不能净化打完仗超麻烦
 当然优化就是个大问题了。。
 
 
-
-
-
-
-
 -----
 
 ####  sliencer  
 ##### 662#       发表于 2016-5-24 10:51
-
 
 
 <blockquote>我来自一中 发表于 2016-5-24 10:13
@@ -13307,16 +9037,10 @@ UNE必须政治正确，不能奴役不能净化打完仗超麻烦
 不能，但你养个面积大点的附属国二三十年，等你跟外国宣战的时候就有惊喜了(免费炮灰)
 
 
-
-
-
-
-
 -----
 
 ####  western1031  
 ##### 663#       发表于 2016-5-24 10:55
-
 
 
 <blockquote>引用第658楼sliencer于2016-05-24 09:21发表的  :
@@ -13336,17 +9060,10 @@ UNE必须政治正确，不能奴役不能净化打完仗超麻烦
 ----发送自 [HUAWEI HUAWEI ALE-CL00,Android 4.4.4](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  western1031  
 ##### 664#       发表于 2016-5-24 11:04
-
-
 
 
 对了，战略资源丢给星区了还是不是全帝国共享？怎么我把直辖的战略资源建筑丢给星区之后就报告战略资源不足了呢……
@@ -13355,16 +9072,10 @@ UNE必须政治正确，不能奴役不能净化打完仗超麻烦
 ----发送自 [HUAWEI HUAWEI ALE-CL00,Android 4.4.4](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  sliencer  
 ##### 665#       发表于 2016-5-24 11:04
-
 
 
 <blockquote>western1031 发表于 2016-5-24 10:55
@@ -13374,16 +9085,10 @@ UNE必须政治正确，不能奴役不能净化打完仗超麻烦
 本身吞并还需要考虑到你直辖上限和星区上限，后期10%的能源削减惩罚不是盖的……在这种状态下维持一只较大规模的舰队，需要增加产收和减少维护这两种同时上(我UNE最多现在就7直辖9星区，开战前都是6/6)。所以中后期其实更看你的leader和法令，主体工业星上草根行动，总统选减舰队维护or加能源产出，海军上将/提督选减能的，都可以有效保证后期军费开支
 
 
-
-
-
-
-
 -----
 
 ####  sliencer  
 ##### 666#       发表于 2016-5-24 11:08
-
 
 
 <blockquote>蕾丝 发表于 2016-5-24 10:48
@@ -13394,25 +9099,13 @@ UNE必须政治正确，不能奴役不能净化打完仗超麻烦
 加上这个的话就有点像全战了，不过加上了之后可以玩禁海饥饿战术来控制对方，不失为好方法
 
 
-
-
-
-
-
 -----
 
 ####  licence  
 ##### 667#       发表于 2016-5-24 11:09
 
 
-
-
 我靠谁说的附庸了之后外星人就是嘴上骂骂不会给我乱搞的。我打了两家附庸没多久一个就叛变了，诉求是解放另一个附庸。我了个靠来
-
-
-
-
-
 
 
 -----
@@ -13421,15 +9114,9 @@ UNE必须政治正确，不能奴役不能净化打完仗超麻烦
 ##### 668#       发表于 2016-5-24 11:11
 
 
-
 <blockquote>licence 发表于 2016-5-24 11:09
 我靠谁说的附庸了之后外星人就是嘴上骂骂不会给我乱搞的。我打了两家附庸没多久一个就叛变了，诉求是解放另 ...</blockquote>
 你那是没有镇压反对势力吧，不镇压肯定诉求独立
-
-
-
-
-
 
 
 -----
@@ -13438,23 +9125,15 @@ UNE必须政治正确，不能奴役不能净化打完仗超麻烦
 ##### 669#       发表于 2016-5-24 11:18
 
 
-
-
 有种族不想要又不愿意脏了手，把他们人口挨个拖到偏远垃圾星系再打包送人是否具有可行性
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (NOKIA Lumia 920)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
 
 ####  western1031  
 ##### 670#       发表于 2016-5-24 11:32
-
 
 
 <blockquote>引用第668楼大哀之君于2016-05-24 11:18发表的  :
@@ -13468,32 +9147,19 @@ UNE必须政治正确，不能奴役不能净化打完仗超麻烦
 ----发送自 [HUAWEI HUAWEI ALE-CL00,Android 4.4.4](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  zikimi  
 ##### 671#       发表于 2016-5-24 11:39
 
 
-
-
 两个版本有啥区别啊，nova和银河版？
-
-
-
-
-
 
 
 -----
 
 ####  western1031  
 ##### 672#       发表于 2016-5-24 11:51
-
 
 
 <blockquote>引用第664楼sliencer于2016-05-24 11:04发表的  :
@@ -13506,20 +9172,13 @@ UNE必须政治正确，不能奴役不能净化打完仗超麻烦
 感觉强制移民要是改成持续支付就好了，移民持续十几二十个月，每个月支出一影响度和一些资源，这样人口控制就要好很多了
 
 
-
 ----发送自 [HUAWEI HUAWEI ALE-CL00,Android 4.4.4](http://stage1.5j4m.com/?1.19)
-
-
-
-
-
 
 
 -----
 
 ####  qwased  
 ##### 673#       发表于 2016-5-24 11:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32513308&amp;ptid=1275523" target="_blank">zikimi 发表于 2016-5-24 11:39</a>
@@ -13530,16 +9189,10 @@ UNE必须政治正确，不能奴役不能净化打完仗超麻烦
 nova多一个dlc和ost
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 674#       发表于 2016-5-24 12:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32512905&amp;ptid=1275523" target="_blank">sliencer 发表于 2016-5-24 11:08</a>
@@ -13551,16 +9204,10 @@ nova多一个dlc和ost
 在星海中，运输业才是真正的生命线口牙
 
 
-
-
-
-
-
 -----
 
 ####  无须关怀  
 ##### 675#       发表于 2016-5-24 17:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32512736&amp;ptid=1275523" target="_blank">western1031 发表于 2016-5-24 10:55</a>
@@ -13573,16 +9220,10 @@ nova多一个dlc和ost
 但堕落帝国没法附庸，日掉以后只能清洗了，谁叫你排外呢，不能怪我啊。你看隔壁不排外的堕落帝国子民归化后不还在他们盖亚老家上自由地啪啪啪吗，还到处移民……
 
 
-
-
-
-
-
 -----
 
 ####  无须关怀  
 ##### 676#       发表于 2016-5-24 17:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32512850&amp;ptid=1275523" target="_blank">western1031 发表于 2016-5-24 11:04</a>
@@ -13591,16 +9232,10 @@ nova多一个dlc和ost
 是共享的，你看看你的星区是不是没电了，没电他们可挖不了矿。这个时候你需要送电下乡。
 
 
-
-
-
-
-
 -----
 
 ####  tyrantblood  
 ##### 677#       发表于 2016-5-24 17:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32513030&amp;ptid=1275523" target="_blank">大哀之君 发表于 2016-5-24 11:18</a>
@@ -13613,32 +9248,19 @@ nova多一个dlc和ost
 当然，这需要很长时间。
 
 
-
-
-
-
-
 -----
 
 ####  我来自一中  
 ##### 678#       发表于 2016-5-24 17:35
 
 
-
-
 话说如果在攻占行星阶段，用轨道轰炸反反复复把星球表面的人口炸空了，那在占领后还会生出新的原住民人口吗？
-
-
-
-
-
 
 
 -----
 
 ####  lancerhd2  
 ##### 679#       发表于 2016-5-24 17:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32512646&amp;ptid=1275523" target="_blank">蕾丝 发表于 2016-5-24 10:48</a>
@@ -13650,16 +9272,10 @@ nova多一个dlc和ost
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">P社这优化  打仗都卡的我不敢看...你这贸易船跑来跑去我连自己星系都没法看了
 
 
-
-
-
-
-
 -----
 
 ####  Inquisitor  
 ##### 680#       发表于 2016-5-24 17:44
-
 
 
 <blockquote>引用第668楼大哀之君于2016-05-24 11:18发表的  :
@@ -13673,16 +9289,10 @@ nova多一个dlc和ost
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  lancerhd2  
 ##### 681#       发表于 2016-5-24 17:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32512646&amp;ptid=1275523" target="_blank">蕾丝 发表于 2016-5-24 10:48</a>
@@ -13694,16 +9304,10 @@ nova多一个dlc和ost
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">P社这优化  打仗都卡的我不敢看...你这贸易船跑来跑去我连自己星系都没法看了
 
 
-
-
-
-
-
 -----
 
 ####  大哀之君  
 ##### 682#       发表于 2016-5-24 18:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32517004&amp;ptid=1275523" target="_blank">Inquisitor 发表于 2016-5-24 17:44</a>
@@ -13714,16 +9318,10 @@ nova多一个dlc和ost
 pop没有寿命吧，只是不增加而已
 
 
-
-
-
-
-
 -----
 
 ####  western1031  
 ##### 683#       发表于 2016-5-24 19:12
-
 
 
 <blockquote>引用第681楼大哀之君于2016-05-24 18:25发表的  :
@@ -13738,17 +9336,10 @@ pop没有寿命吧，只是不增加而已
 ----发送自 [HUAWEI HUAWEI ALE-CL00,Android 4.4.4](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  demonawen  
 ##### 684#       发表于 2016-5-24 19:35
-
-
 
 
 我之前没玩过P社的游戏，群星玩了1周，很多东西都一头雾水
@@ -13764,16 +9355,10 @@ pop没有寿命吧，只是不增加而已
 5、求一个通往wiki的诱导
 
 
-
-
-
-
-
 -----
 
 ####  hellgate22  
 ##### 685#       发表于 2016-5-24 21:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32517895&amp;ptid=1275523" target="_blank">demonawen 发表于 2016-5-24 19:35</a>
@@ -13788,16 +9373,10 @@ pop没有寿命吧，只是不增加而已
 你可以在外交界面里试试勒索，不过下场多半是被骂成臭头
 
 
-
-
-
-
-
 -----
 
 ####  nxmonitor  
 ##### 686#       发表于 2016-5-24 22:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32517895&amp;ptid=1275523" target="_blank">demonawen 发表于 2016-5-24 19:35</a>
@@ -13808,25 +9387,13 @@ pop没有寿命吧，只是不增加而已
 直接搜 stellaris wiki……
 
 
-
-
-
-
-
 -----
 
 ####  袜子的诱惑  
 ##### 687#       发表于 2016-5-24 23:09
 
 
-
-
 遇到个恶性BUG直接弃挡了，貌似叫什么防御战争目的，我都把对方全部占领了居然还给我不停涨负分，真是日了。。
-
-
-
-
-
 
 
 -----
@@ -13835,16 +9402,10 @@ pop没有寿命吧，只是不增加而已
 ##### 688#       发表于 2016-5-24 23:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32519589&amp;ptid=1275523" target="_blank">袜子的诱惑 发表于 2016-5-24 23:09</a>
 
 遇到个恶性BUG直接弃挡了，貌似叫什么防御战争目的，我都把对方全部占领了居然还给我不停涨负分，真是日了 ...</blockquote>
 认输割地结束战争也不行吗？想开点，我殖民的有点靠近失落爸爸，失落爸爸一声令下，我乖乖拆了6个殖民地也没弃档啊
-
-
-
-
-
 
 
 -----
@@ -13853,14 +9414,7 @@ pop没有寿命吧，只是不增加而已
 ##### 689#       发表于 2016-5-25 00:20
 
 
-
-
 弃挡主要是因为自己也差不多无敌了。。。看网上说这个BUG是因为我宣他附庸，而他反过来要求解放我的附庸，如果战争期间他的目的没达到那他就会不停的给自己涨分数，这占领的也没他分数涨得快，超级影响游戏体验。。。。
-
-
-
-
-
 
 
 -----
@@ -13869,14 +9423,7 @@ pop没有寿命吧，只是不增加而已
 ##### 690#       发表于 2016-5-25 00:24
 
 
-
-
 为什么电脑的舰队，选择舰队后下面显示的伤害都一万多，我才几百啊？光看战斗力翻了一倍结果被吊打，发展了半天被电脑一波捅穿了……
-
-
-
-
-
 
 
 -----
@@ -13885,16 +9432,10 @@ pop没有寿命吧，只是不增加而已
 ##### 691#       发表于 2016-5-25 01:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32520151&amp;ptid=1275523" target="_blank">夜游的树 发表于 2016-5-25 00:24</a>
 
 为什么电脑的舰队，选择舰队后下面显示的伤害都一万多，我才几百啊？光看战斗力翻了一倍结果被吊打，发展了 ...</blockquote>
 武器类型被克了嘛。
-
-
-
-
-
 
 
 -----
@@ -13903,17 +9444,10 @@ pop没有寿命吧，只是不增加而已
 ##### 692#       发表于 2016-5-25 13:29
 
 
-
-
 话说有和平属性的国家是不是看到你四处征服就会来干你啊？开了两局，失落帝国到都是观察型，但两局都遇到和平主义联邦，5，6个国家组成的大联邦。都在我上升期的时候来逼我把占的星球吐出来。它们这50k的舰队车过来，一夜回到解放前……
 
 
 ——发送自[S1 Pluto 2.5](https://itunes.apple.com/cn/app/s1-pluto/id889820003?mt=8)
-
-
-
-
-
 
 
 -----
@@ -13922,17 +9456,10 @@ pop没有寿命吧，只是不增加而已
 ##### 693#       发表于 2016-5-25 13:58
 
 
-
-
 玩到中期感觉科研好吃力啊，是我还有什么正确的种田姿势没有开发吗？出了地块开矿科学家还有别的什么产出么……
 
 
 不小心把男朋友拉入坑了，顺便求一个谋杀总是抢电脑的男朋友的方法<img src="https://static.saraba1st.com/image/smiley/nq/012.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13941,15 +9468,9 @@ pop没有寿命吧，只是不增加而已
 ##### 694#       发表于 2016-5-25 14:12
 
 
-
 <blockquote>elfronie@163.co 发表于 2016-5-25 13:58
 玩到中期感觉科研好吃力啊，是我还有什么正确的种田姿势没有开发吗？出了地块开矿科学家还有别的什么产出么 ...</blockquote>
 你这是人口超标了。人口数量太多会造成科研惩罚，大概每单位pop加2%所需研究点数，请计划生育
-
-
-
-
-
 
 
 -----
@@ -13958,16 +9479,10 @@ pop没有寿命吧，只是不增加而已
 ##### 695#       发表于 2016-5-25 14:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32524593&amp;ptid=1275523" target="_blank">大哀之君 发表于 2016-5-25 14:12</a>
 
 你这是人口超标了。人口数量太多会造成科研惩罚，大概每单位pop加2%所需研究点数，请计划生育 ...</blockquote>
 这是什么鬼设定，人口多还反倒减科研的<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13976,16 +9491,10 @@ pop没有寿命吧，只是不增加而已
 ##### 696#       发表于 2016-5-25 14:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32524719&amp;ptid=1275523" target="_blank">elfronie@163.co 发表于 2016-5-25 14:25</a>
 
 这是什么鬼设定，人口多还反倒减科研的</blockquote>
 群星科研效率随着扩张增速太厉害，这点惩罚根本不足以抵消扩张带来的科研优势。
-
-
-
-
-
 
 
 -----
@@ -13994,23 +9503,16 @@ pop没有寿命吧，只是不增加而已
 ##### 697#       发表于 2016-5-25 14:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32524797&amp;ptid=1275523" target="_blank">卖哥 发表于 2016-5-25 14:34</a>
 
 群星科研效率随着扩张增速太厉害，这点惩罚根本不足以抵消扩张带来的科研优势。 ...</blockquote>
 这设计感觉有点反直觉<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">，结果还得计划生育感觉好不爽啊
 
 
-
-
-
-
-
 -----
 
 ####  杨的退休金  
 ##### 698#       发表于 2016-5-25 14:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32524989&amp;ptid=1275523" target="_blank">elfronie@163.co 发表于 2016-5-25 14:51</a>
@@ -14025,16 +9527,10 @@ pop没有寿命吧，只是不增加而已
 三系研究上千不难的。
 
 
-
-
-
-
-
 -----
 
 ####  地狱哮喘  
 ##### 699#       发表于 2016-5-25 15:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32524719&amp;ptid=1275523" target="_blank">elfronie@163.co 发表于 2016-5-25 14:25</a>
@@ -14047,16 +9543,10 @@ pop没有寿命吧，只是不增加而已
 想爬科技  就要多起研究所   人口不在资源上工作肯定会延误扩张
 
 
-
-
-
-
-
 -----
 
 ####  无须关怀  
 ##### 700#       发表于 2016-5-25 16:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32524456&amp;ptid=1275523" target="_blank">elfronie@163.co 发表于 2016-5-25 13:58</a>
@@ -14069,25 +9559,13 @@ pop没有寿命吧，只是不增加而已
 占地40%赢的时候我电厂才3级，打下别人的球上面电厂都是4级甚至有5级的……
 
 
-
-
-
-
-
 -----
 
 ####  无须关怀  
 ##### 701#       发表于 2016-5-25 16:51
 
 
-
-
 对了，有一局我因为不小心铺太多惹到了堕落帝国，它给我来了一波，于是在首都星球拼光了所有船队打掉了一个21k的舰队。投降后（这个fe比较温柔，只要求把所有在它附近的星球全都放弃）研究碎片直接研究出最高级护甲和激光武器，然后愉快地拿着fe粑粑送的装备把所有ai都血虐了一遍。什么科研都去见鬼吧……
-
-
-
-
-
 
 
 -----
@@ -14096,16 +9574,10 @@ pop没有寿命吧，只是不增加而已
 ##### 702#       发表于 2016-5-25 21:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32526254&amp;ptid=1275523" target="_blank">无须关怀 发表于 2016-5-25 16:51</a>
 
 对了，有一局我因为不小心铺太多惹到了堕落帝国，它给我来了一波，于是在首都星球拼光了所有船队打掉了一个 ...</blockquote>
 原来这样也行。。。。
-
-
-
-
-
 
 
 -----
@@ -14114,15 +9586,9 @@ pop没有寿命吧，只是不增加而已
 ##### 703#       发表于 2016-5-25 21:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32526254&amp;amp;ptid=1275523" target="_blank">无须关怀 发表于 2016-5-25 16:51</a>
 对了，有一局我因为不小心铺太多惹到了堕落帝国，它给我来了一波，于是在首都星球拼光了所有船队打掉了一个 ...</blockquote>
 终于明白为什么UED的远征军要用破铜烂铁去讨伐逆贼了
-
-
-
-
-
 
 
 -----
@@ -14131,14 +9597,7 @@ pop没有寿命吧，只是不增加而已
 ##### 704#       发表于 2016-5-26 00:04
 
 
-
-
 拿ai殖民到底好不好？价格贵生长慢还占人口，不弄看着一堆十二三的星球没法占心情很不好
-
-
-
-
-
 
 
 -----
@@ -14147,23 +9606,15 @@ pop没有寿命吧，只是不增加而已
 ##### 705#       发表于 2016-5-26 00:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32529082&amp;amp;ptid=1275523" target="_blank">852048 发表于 2016-5-26 00:04</a>
 拿ai殖民到底好不好？价格贵生长慢还占人口，不弄看着一堆十二三的星球没法占心情很不好 ...</blockquote>
 造反时候一个人口出两个地面部队，拿ai殖民绝对作死啊
-
-
-
-
-
 
 
 -----
 
 ####  western1031  
 ##### 706#       发表于 2016-5-26 10:05
-
-
 
 
 有人遇到过这个问题吗？
@@ -14174,17 +9625,10 @@ pop没有寿命吧，只是不增加而已
 ----发送自 [HUAWEI HUAWEI ALE-CL00,Android 4.4.4](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  endlesssin  
 ##### 707#       发表于 2016-5-26 10:08
-
-
 
 
 找到一个青铜文明的星球
@@ -14194,16 +9638,10 @@ pop没有寿命吧，只是不增加而已
 这是遇到BUG了么
 
 
-
-
-
-
-
 -----
 
 ####  liangxuanch  
 ##### 708#       发表于 2016-5-26 10:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32519942&amp;ptid=1275523" target="_blank">Inquisitor 发表于 2016-5-24 23:56</a>
@@ -14224,25 +9662,13 @@ pop没有寿命吧，只是不增加而已
 于是，产生两个问题求助.....1.这场战斗之后保护者自己舰队全灭就投了，不过条件只有弃一个殖民地，失落爸爸没兵了这个殖民地我想拿回来，目前上面都是我盖满的建筑，殖民船没法登陆啊.......怎么办。2.未来失落爸爸的戴森环肯定是我的，不想灭绝的情况下怎么有效统治他们。3.我变成被保护者了.....以后怎么独立.....这AI连失落爸爸都给磨死了.......疯狂电脑真给力。
 
 
-
-
-
-
-
 -----
 
 ####  偶是潜水者  
 ##### 709#       发表于 2016-5-26 10:15
 
 
-
-
 这游戏不能烧玻璃球真无趣，好好的疆域里蹦出来新生的太空国家，不想收附庸也不想要我就想把他们消灭啊
-
-
-
-
-
 
 
 -----
@@ -14251,14 +9677,7 @@ pop没有寿命吧，只是不增加而已
 ##### 710#       发表于 2016-5-26 10:17
 
 
-
-
 暴铺已经要被削了，1.1增加星球科研花费，再削小船战斗力…
-
-
-
-
-
 
 
 -----
@@ -14267,15 +9686,9 @@ pop没有寿命吧，只是不增加而已
 ##### 711#       发表于 2016-5-26 11:07
 
 
-
 <blockquote>liangxuanch 发表于 2016-5-26 10:10
 我也遇到你说的这情况了，这盘前期本来脸就惨，没发展几个好地，一共10块地失落爸爸让我弃6个，我本想弃 ...</blockquote>
 会要求别人离他远点的失落帝国属于军事孤立类型，人口思潮极端排外，Xeno Overlords -40%幸福度，根本没法统治
-
-
-
-
-
 
 
 -----
@@ -14284,23 +9697,16 @@ pop没有寿命吧，只是不增加而已
 ##### 712#       发表于 2016-5-26 11:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32531844&amp;ptid=1275523" target="_blank">大哀之君 发表于 2016-5-26 11:07</a>
 
 会要求别人离他远点的失落帝国属于军事孤立类型，人口思潮极端排外，Xeno Overlords -40%幸福度，根本没 ...</blockquote>
 基因改造+洗脑光束+极乐广场+边境医院+虚拟娱乐，怎么也压得住吧
 
 
-
-
-
-
-
 -----
 
 ####  eragons1  
 ##### 713#       发表于 2016-5-26 12:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32531369&amp;ptid=1275523" target="_blank">偶是潜水者 发表于 2016-5-26 10:15</a>
@@ -14311,25 +9717,14 @@ pop没有寿命吧，只是不增加而已
 [http://pan.baidu.com/s/1nvw8usL](http://pan.baidu.com/s/1nvw8usL) 自己改的汉化和修正。<img src="https://static.saraba1st.com/image/smiley/normal/056.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  eragons1  
 ##### 714#       发表于 2016-5-26 12:29
 
 
-
  本帖最后由 eragons1 于 2016-5-26 12:31 编辑 
 <blockquote>风怒</blockquote>
-
-
-
-
-
 
 
 -----
@@ -14338,14 +9733,7 @@ pop没有寿命吧，只是不增加而已
 ##### 715#       发表于 2016-5-26 14:49
 
 
-
-
 这游戏bgm质量很高,感觉超过了同题材的EVE
-
-
-
-
-
 
 
 -----
@@ -14354,16 +9742,9 @@ pop没有寿命吧，只是不增加而已
 ##### 716#       发表于 2016-5-26 15:09
 
 
-
-
 感觉暴铺很不好用，是我姿势不对吗？<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
 
 快速扩张的时间根本不够把一个星球好好建设，只能托管，后期想拿回来又要耗影响力，等星球成型的时间又太长。还不如把几个星球好好建设直辖。
-
-
-
-
-
 
 
 -----
@@ -14372,7 +9753,6 @@ pop没有寿命吧，只是不增加而已
 ##### 717#       发表于 2016-5-26 15:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32532660&amp;ptid=1275523" target="_blank">eragons1 发表于 2016-5-26 12:29</a>
 
 http://tieba.baidu.com/p/4564836987 你要的灭绝令
@@ -14380,11 +9760,6 @@ http://tieba.baidu.com/p/4564836987 你要的灭绝令
 
 http://pan.baidu.com/s/1nvw8usL 自己改的 ...</blockquote>
 这个mod不能人滚好地留 不爽啊
-
-
-
-
-
 
 
 -----
@@ -14393,7 +9768,6 @@ http://pan.baidu.com/s/1nvw8usL 自己改的 ...</blockquote>
 ##### 718#       发表于 2016-5-26 15:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32532660&amp;ptid=1275523" target="_blank">eragons1 发表于 2016-5-26 12:29</a>
 
 http://tieba.baidu.com/p/4564836987 你要的灭绝令
@@ -14403,16 +9777,10 @@ http://pan.baidu.com/s/1nvw8usL 自己改的 ...</blockquote>
 这个mod不能人滚好地留 不爽啊
 
 
-
-
-
-
-
 -----
 
 ####  eragons1  
 ##### 719#       发表于 2016-5-26 16:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32534485&amp;ptid=1275523" target="_blank">喵咪咪格勒 发表于 2016-5-26 15:41</a>
@@ -14421,16 +9789,10 @@ http://pan.baidu.com/s/1nvw8usL 自己改的 ...</blockquote>
 都灭绝令了还指望什么人走地留啊<img src="https://static.saraba1st.com/image/smiley/normal/037.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  western1031  
 ##### 720#       发表于 2016-5-26 17:02
-
 
 
 <blockquote>引用第717楼喵咪咪格勒于2016-05-26 15:41发表的  :
@@ -14445,27 +9807,15 @@ http://pan.baidu.com/s/1nvw8usL 自己改的 ...</blockquote>
 ----发送自 [HUAWEI HUAWEI ALE-CL00,Android 4.4.4](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  大哀之君  
 ##### 721#       发表于 2016-5-26 17:49
 
 
-
-
 看解包文件似乎P社做过人滚地留的设计。具体来说是建造一艘没有导航设施的飞船，把本地的奴隶们塞进去点火起飞，谁知道后来为啥没做。有时候这种族实在太烂真不想留，Purge又不符合个人美学，好痛苦
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (NOKIA Lumia 920)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
@@ -14474,15 +9824,9 @@ http://pan.baidu.com/s/1nvw8usL 自己改的 ...</blockquote>
 ##### 722#       发表于 2016-5-26 18:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32535638&amp;amp;ptid=1275523" target="_blank">大哀之君 发表于 2016-5-26 17:49</a>
 看解包文件似乎P社做过人滚地留的设计。具体来说是建造一艘没有导航设施的飞船，把本地的奴隶们塞进去点火 ...</blockquote>
 月球监狱既视感……<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14491,23 +9835,16 @@ http://pan.baidu.com/s/1nvw8usL 自己改的 ...</blockquote>
 ##### 723#       发表于 2016-5-26 22:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32535638&amp;ptid=1275523" target="_blank">大哀之君 发表于 2016-5-26 17:49</a>
 
 看解包文件似乎P社做过人滚地留的设计。具体来说是建造一艘没有导航设施的飞船，把本地的奴隶们塞进去点火 ...</blockquote>
 这个设定多好啊，P社为啥不搞出来啊，搞个几十年后反杀剧情出来限制玩家使用就行了啊，还能增加后期的玩法，可以故意扔出去然后等着反杀的人过来战个痛的
 
 
-
-
-
-
-
 -----
 
 ####  cools  
 ##### 724#       发表于 2016-5-27 00:01
-
 
 
  本帖最后由 cools 于 2016-5-27 00:06 编辑 
@@ -14527,16 +9864,10 @@ http://pan.baidu.com/s/1nvw8usL 自己改的 ...</blockquote>
 6.星区ai在pop管理上有所提升，但被改的很消极，几乎不愿意拆建筑
 
 
-
-
-
-
-
 -----
 
 ####  藤岛鸣海  
 ##### 725#       发表于 2016-5-27 00:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32538603&amp;ptid=1275523" target="_blank">cools 发表于 2016-5-27 00:01</a>
@@ -14547,16 +9878,10 @@ http://pan.baidu.com/s/1nvw8usL 自己改的 ...</blockquote>
 这前期想建立巨大优势几乎不可能了吧。只能拼人品看出生环境了。
 
 
-
-
-
-
-
 -----
 
 ####  卖哥  
 ##### 726#       发表于 2016-5-27 00:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32538603&amp;ptid=1275523" target="_blank">cools 发表于 2016-5-27 00:01</a>
@@ -14569,16 +9894,10 @@ http://pan.baidu.com/s/1nvw8usL 自己改的 ...</blockquote>
 小船是可以堆出100%闪避，而和平君主是可以堆出所有政策免费。
 
 
-
-
-
-
-
 -----
 
 ####  Inquisitor  
 ##### 727#       发表于 2016-5-27 00:34
-
 
 
 <blockquote>引用第720楼大哀之君于2016-05-26 17:49发表的  :
@@ -14592,17 +9911,10 @@ http://pan.baidu.com/s/1nvw8usL 自己改的 ...</blockquote>
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  战列驱逐舰POI  
 ##### 728#       发表于 2016-5-27 00:46
-
-
 
 
 集体主义明明就是奴隶制。开局把本国人民变成奴隶挖矿种地。建筑便宜的BUFF还有点用。
@@ -14613,16 +9925,10 @@ http://pan.baidu.com/s/1nvw8usL 自己改的 ...</blockquote>
 还有排外。减外交，免疫外国奴隶带来的DEBUFF，还不如集体主义好。
 
 
-
-
-
-
-
 -----
 
 ####  战列驱逐舰POI  
 ##### 729#       发表于 2016-5-27 02:39
-
 
 
  本帖最后由 战列驱逐舰POI 于 2016-5-27 02:55 编辑 
@@ -14636,16 +9942,10 @@ http://pan.baidu.com/s/1nvw8usL 自己改的 ...</blockquote>
 但是占星球那个我派陆战队占领后  出现了强迫要求这个选项  分数也是1000。但是我不是主攻击方点不了，我的盟友又不停战就这样耗着
 
 
-
-
-
-
-
 -----
 
 ####  杨的退休金  
 ##### 730#       发表于 2016-5-27 06:00
-
 
 
  本帖最后由 杨的退休金 于 2016-5-27 06:05 编辑 
@@ -14661,16 +9961,10 @@ http://pan.baidu.com/s/1nvw8usL 自己改的 ...</blockquote>
 5，前哨站只能是先占地后面殖民然后拆了。
 
 
-
-
-
-
-
 -----
 
 ####  囧史密斯  
 ##### 731#       发表于 2016-5-27 08:13
-
 
 
 <blockquote>杨的退休金 发表于 2 小时前<[img src="static/image/common/back.gif" referrerpolicy="no-referrer">
@@ -14683,17 +9977,10 @@ http://pan.baidu.com/s/1nvw8usL 自己改的 ...</blockquote>
 想要科技就没军力。
 
 
-
-
-
-
-
 -----
 
 ####  Loss  
 ##### 732#       发表于 2016-5-27 09:19
-
-
 
 
 这游戏最迫切的是优化UI逻辑啊……玩了3个小时才知道怎么合舰队，30个小时才明白怎么分星区
@@ -14702,16 +9989,10 @@ http://pan.baidu.com/s/1nvw8usL 自己改的 ...</blockquote>
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  战列驱逐舰POI  
 ##### 733#       发表于 2016-5-27 09:36
-
 
 
 <img src="http://ww3.sinaimg.cn/mw690/005Cj4YBgw1f49owu2xeoj30qj0gfabx.jpg" referrerpolicy="no-referrer">
@@ -14724,17 +10005,10 @@ http://pan.baidu.com/s/1nvw8usL 自己改的 ...</blockquote>
 结果防御方既不能主动投降，我联盟的主攻击方也不停战。档废了
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 734#       发表于 2016-5-27 09:42
-
-
 
 
 改的挺好的，尤其是星区那部分，无脑扔星球和造前哨站根本体现不了核心区域的价值
@@ -14743,16 +10017,10 @@ http://pan.baidu.com/s/1nvw8usL 自己改的 ...</blockquote>
 要扩张就拿战损去拼，拿不值钱的殖民船和边境卫星扩张算什么事
 
 
-
-
-
-
-
 -----
 
 ####  我来自一中  
 ##### 735#       发表于 2016-5-27 10:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32541663&amp;amp;ptid=1275523" target="_blank">战列驱逐舰POI 发表于 2016-5-27 09:36</a>
@@ -14762,16 +10030,10 @@ http://pan.baidu.com/s/1nvw8usL 自己改的 ...</blockquote>
 试试吧背刺的邻居抢去的那两个解放目标打下来？
 
 
-
-
-
-
-
 -----
 
 ####  战列驱逐舰POI  
 ##### 736#       发表于 2016-5-27 11:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32542095&amp;ptid=1275523" target="_blank">我来自一中 发表于 2016-5-27 10:12</a>
@@ -14782,16 +10044,10 @@ http://pan.baidu.com/s/1nvw8usL 自己改的 ...</blockquote>
 还是重开一档不加入联盟算了 
 
 
-
-
-
-
-
 -----
 
 ####  卖哥  
 ##### 737#       发表于 2016-5-27 12:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32540899&amp;ptid=1275523" target="_blank">囧史密斯 发表于 2016-5-27 08:13</a>
@@ -14805,17 +10061,10 @@ http://pan.baidu.com/s/1nvw8usL 自己改的 ...</blockquote>
 节奏慢大家一起慢的
 
 
-
-
-
-
-
 -----
 
 ####  852048  
 ##### 738#       发表于 2016-5-27 14:07
-
-
 
 
 刚才和堕落干上，一看投降条件是羞辱只是减影响和幸福。结果它把我领导给羞辱干掉了。关键是我还打了萌化mod<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">。
@@ -14823,16 +10072,10 @@ http://pan.baidu.com/s/1nvw8usL 自己改的 ...</blockquote>
 这事件是看脸还是必出？
 
 
-
-
-
-
-
 -----
 
 ####  天衣いちご  
 ##### 739#       发表于 2016-5-27 15:37
-
 
 
 <blockquote>引用第737楼852048于2016-05-27 14:07发表的  :
@@ -14845,26 +10088,15 @@ http://pan.baidu.com/s/1nvw8usL 自己改的 ...</blockquote>
 ----发送自 [Sony C6603,Android 5.1.1](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  blastoderm00  
 ##### 740#       发表于 2016-5-27 15:55
 
 
-
 <blockquote>852048 发表于 2016-5-27 14:07
 刚才和堕落干上，一看投降条件是羞辱只是减影响和幸福。结果它把我领导给羞辱干掉了。关键是我还打了萌化mo ...</blockquote>
 看fe种类，知识探求者基本就是羞辱加要求停某研究，fe一般不要你的命
-
-
-
-
-
 
 
 -----
@@ -14873,23 +10105,15 @@ http://pan.baidu.com/s/1nvw8usL 自己改的 ...</blockquote>
 ##### 741#       发表于 2016-5-27 16:01
 
 
-
-
 P社被鹅厂触手了……
 
 以后是不是彩蛋国要从扬马延改成火地岛……北极熊要改成企鹅。
-
-
-
-
-
 
 
 -----
 
 ####  western1031  
 ##### 742#       发表于 2016-5-27 17:12
-
 
 
 <blockquote>引用第740楼卖哥于2016-05-27 16:01发表的  :
@@ -14903,17 +10127,10 @@ P社被鹅厂触手了……以后是不是彩蛋国要从扬马延改成火地�
 ----发送自 [HUAWEI HUAWEI ALE-CL00,Android 4.4.4](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  demonawen  
 ##### 743#       发表于 2016-5-27 17:20
-
-
 
 
 目前有人做到把整个宇宙或者大半个宇宙都染成自己的颜色么？
@@ -14921,16 +10138,10 @@ P社被鹅厂触手了……以后是不是彩蛋国要从扬马延改成火地�
 一个个打又要等停战协定，吸收附庸怕是要吸收到一万年以后，不知道P社怎么想的
 
 
-
-
-
-
-
 -----
 
 ####  囧史密斯  
 ##### 744#       发表于 2016-5-27 17:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32545831&amp;ptid=1275523" target="_blank">demonawen 发表于 2016-5-27 17:20</a>
@@ -14947,20 +10158,13 @@ P社被鹅厂触手了……以后是不是彩蛋国要从扬马延改成火地�
 只拿到了67分，电脑死活不乐意割3个球给我，仔细一看，电脑4K的战斗机队在我家打了几个工程船，挖矿设施，拿了31分。。。于是现在我220K的舰队在电脑家无脑游行，神233
 
 
-
 战争点数这个设置太墨迹了，完全有问题
-
-
-
-
-
 
 
 -----
 
 ####  hellgate22  
 ##### 745#       发表于 2016-5-27 18:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32545935&amp;ptid=1275523" target="_blank">囧史密斯 发表于 2016-5-27 17:33</a>
@@ -14972,33 +10176,20 @@ P社被鹅厂触手了……以后是不是彩蛋国要从扬马延改成火地�
 1.1提升了占领星球的战争点数，应该能改善吧
 
 
-
-
-
-
-
 -----
 
 ####  zxc786  
 ##### 746#       发表于 2016-5-27 18:09
 
 
-
-
 P社的意思就是觉得横跨大半个银河的大帝国本身就是不合理的存在。
 <img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">其实讲道理，我一直觉得这游戏缺了一个通讯科技链。
-
-
-
-
-
 
 
 -----
 
 ####  卖哥  
 ##### 747#       发表于 2016-5-27 18:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32546217&amp;ptid=1275523" target="_blank">zxc786 发表于 2016-5-27 18:09</a>
@@ -15009,16 +10200,10 @@ P社的意思就是觉得横跨大半个银河的大帝国本身就是不合理�
 胜利条件之一就有领地覆盖40%星球。
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 748#       发表于 2016-5-27 18:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32546279&amp;ptid=1275523" target="_blank">卖哥 发表于 2016-5-27 18:16</a>
@@ -15027,16 +10212,10 @@ P社的意思就是觉得横跨大半个银河的大帝国本身就是不合理�
 这类游戏哪有打通关的，基本无敌就退了，就没打到过胜利
 
 
-
-
-
-
-
 -----
 
 ####  johnjacksonlin  
 ##### 749#       发表于 2016-5-27 18:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32546217&amp;ptid=1275523" target="_blank">zxc786 发表于 2016-5-27 18:09</a>
@@ -15047,16 +10226,10 @@ P社的意思就是觉得横跨大半个银河的大帝国本身就是不合理�
 确实不科学会带来很多并发症，P社想模拟出这个吧
 
 
-
-
-
-
-
 -----
 
 ####  卖哥  
 ##### 750#       发表于 2016-5-27 18:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32546502&amp;ptid=1275523" target="_blank">夏影 发表于 2016-5-27 18:47</a>
@@ -15065,16 +10238,10 @@ P社的意思就是觉得横跨大半个银河的大帝国本身就是不合理�
 挺过三大危机后随便打打应该就凑够领地了，虽然只能一战割3个球，但实际上3个住人的球，基本相当于15个领地星球的进账了。
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 751#       发表于 2016-5-27 19:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32546556&amp;ptid=1275523" target="_blank">卖哥 发表于 2016-5-27 18:54</a>
@@ -15086,25 +10253,13 @@ P社的意思就是觉得横跨大半个银河的大帝国本身就是不合理�
 自己8个球就铺了4,5个科技就过一半了，不是很想占球
 
 
-
-
-
-
-
 -----
 
 ####  852048  
 ##### 752#       发表于 2016-5-27 21:23
 
 
-
-
 现在和我邻接的一个宛如天神，另一边都是联邦，一开战战斗力是我的3倍有余。现在只能sl放风筝，感觉肯定不是正确路线怎么办
-
-
-
-
-
 
 
 -----
@@ -15113,16 +10268,10 @@ P社的意思就是觉得横跨大半个银河的大帝国本身就是不合理�
 ##### 753#       发表于 2016-5-27 22:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32547565&amp;ptid=1275523" target="_blank">852048 发表于 2016-5-27 21:23</a>
 
 现在和我邻接的一个宛如天神，另一边都是联邦，一开战战斗力是我的3倍有余。现在只能sl放风筝，感觉肯定不 ...</blockquote>
 策略游戏打不过只有一个原因，种田种的不够好，这战斗又没有操作空间，运营好剩下A就行了
-
-
-
-
-
 
 
 -----
@@ -15131,14 +10280,7 @@ P社的意思就是觉得横跨大半个银河的大帝国本身就是不合理�
 ##### 754#       发表于 2016-5-27 22:57
 
 
-
-
 我终于种田种到看堕落爸爸是低下弱小，感觉自己已经天下无敌了，结果定睛一看旁边一个占了快有1/3银河系的国家我看他居然还是高等文明。而且所在联邦几乎囊括了剩下所有的国家，试着去宣了个战170k的舰队直接糊我脸上，这该怎么办<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15147,21 +10289,13 @@ P社的意思就是觉得横跨大半个银河的大帝国本身就是不合理�
 ##### 755#       发表于 2016-5-28 00:51
 
 
-
-
 现在老不够电用，怎么办，养军队好费电，难道要拆了，打的时候再临时大建么，还是要找几个星球洗干净做纯电力星才行……或者拿多得要命的水晶去交易电么……
-
-
-
-
-
 
 
 -----
 
 ####  59式坦克  
 ##### 756#       发表于 2016-5-28 00:55
-
 
 
  本帖最后由 59式坦克 于 2016-5-28 07:42 编辑 
@@ -15194,16 +10328,10 @@ James Mitchell, Chief Strategy Officer at Tencent, added
 腾讯以2000万美金的价格收购P社5%的股份
 
 
-
-
-
-
-
 -----
 
 ####  59式坦克  
 ##### 757#       发表于 2016-5-28 00:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32548976&amp;ptid=1275523" target="_blank">天衣いちご 发表于 2016-5-28 00:51</a>
@@ -15215,16 +10343,10 @@ James Mitchell, Chief Strategy Officer at Tencent, added
 将军也尽量招减维护费的，还有空港里面也有减维护费的建筑，没造的话也造了。。
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
 ##### 758#       发表于 2016-5-28 01:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32548173&amp;ptid=1275523" target="_blank">夜游的树 发表于 2016-5-27 22:57</a>
@@ -15233,32 +10355,19 @@ James Mitchell, Chief Strategy Officer at Tencent, added
 <img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">我看只能打个无畏舰MOD，400K舰队糊回去了
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 759#       发表于 2016-5-28 01:29
 
 
-
-
 原来paradox要ipo了啊，感觉估值有点低
-
-
-
-
-
 
 
 -----
 
 ####  无须关怀  
 ##### 760#       发表于 2016-5-28 02:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32538603&amp;ptid=1275523" target="_blank">cools 发表于 2016-5-27 00:01</a>
@@ -15269,16 +10378,10 @@ James Mitchell, Chief Strategy Officer at Tencent, added
 科技惩罚太大啦，这游戏能玩？
 
 
-
-
-
-
-
 -----
 
 ####  无须关怀  
 ##### 761#       发表于 2016-5-28 02:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32546279&amp;ptid=1275523" target="_blank">卖哥 发表于 2016-5-27 18:16</a>
@@ -15287,16 +10390,10 @@ James Mitchell, Chief Strategy Officer at Tencent, added
 不难的其实，因为你的附庸的球也算你的，都不用打完全部，打完一半再撒些移民船就赢了。
 
 
-
-
-
-
-
 -----
 
 ####  你的全家  
 ##### 762#       发表于 2016-5-28 03:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32548173&amp;ptid=1275523" target="_blank">夜游的树 发表于 2016-5-27 22:57</a>
@@ -15309,11 +10406,6 @@ James Mitchell, Chief Strategy Officer at Tencent, added
 
 
 宣小国快速拿下 这边拖住 占领星球分数很高的……最后再处理它
-
-
-
-
-
 
 
 -----
@@ -15322,7 +10414,6 @@ James Mitchell, Chief Strategy Officer at Tencent, added
 ##### 763#       发表于 2016-5-28 03:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32548173&amp;ptid=1275523" target="_blank">夜游的树 发表于 2016-5-27 22:57</a>
 
 我终于种田种到看堕落爸爸是低下弱小，感觉自己已经天下无敌了，结果定睛一看旁边一个占了快有1/3银河系的 ...</blockquote>
@@ -15335,16 +10426,10 @@ James Mitchell, Chief Strategy Officer at Tencent, added
 宣小国快速拿下 这边拖住 占领星球分数很高的……最后再处理它
 
 
-
-
-
-
-
 -----
 
 ####  dafangwoo  
 ##### 764#       发表于 2016-5-28 07:28
-
 
 
  本帖最后由 dafangwoo 于 2016-5-28 07:37 编辑 
@@ -15365,26 +10450,15 @@ James Mitchell, Chief Strategy Officer at Tencent, added
 也是不懂那些选大地图的玩家，后期要怎么跑
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 765#       发表于 2016-5-28 09:05
 
 
-
 <blockquote>天衣いちご 发表于 2016-5-28 00:51
 现在老不够电用，怎么办，养军队好费电，难道要拆了，打的时候再临时大建么，还是要找几个星球洗干净做纯电 ...</blockquote>
 科技研究完了就把科技建筑拆了，或者把首都拆了建到别的星球升级顶级电厂
-
-
-
-
-
 
 
 -----
@@ -15393,24 +10467,16 @@ James Mitchell, Chief Strategy Officer at Tencent, added
 ##### 766#       发表于 2016-5-28 13:21
 
 
-
-
 话说，联邦现在有点软肋啊，先不说5年轮选，连建议主席宣战的权利都没有，打仗还要各国批准，然后联邦舰队到现在没研究出来怎么搞
 
 
 有人知道怎么设计联邦标配船只和组建联邦舰队吗？
 
 
-
-
-
-
-
 -----
 
 ####  cools  
 ##### 767#       发表于 2016-5-28 14:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32552194&amp;ptid=1275523" target="_blank">美利坚大老爹 发表于 2016-5-28 13:21</a>
@@ -15425,17 +10491,10 @@ p社承诺会在以后的版本中大改联邦可玩性，大致向EU里神罗�
 已经有很多人在论坛上提议设置联邦的海军上限单独计算，p社也表示会考虑这一意见
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 768#       发表于 2016-5-28 14:56
-
-
 
 
 原来如此，我也在想联邦的可玩性现在还不强，联盟要方便多了。
@@ -15453,17 +10512,10 @@ P社脑洞是很大，想到了很多好玩的东西，但是目前看，社区�
 讲道理，外交现在还很蠢，但是潜力还是非常巨大的。最有意思的就是游戏后期，如果战争频发，小国就会抱团，大国就会乘机附庸小国，还挺科学的。打下周边一个小国，然后发现自己前面多了一个比自己联邦大得多的联邦……
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 769#       发表于 2016-5-28 15:51
-
-
 
 
 种田党
@@ -15478,16 +10530,10 @@ P社脑洞是很大，想到了很多好玩的东西，但是目前看，社区�
 后面就玩不动了
 
 
-
-
-
-
-
 -----
 
 ####  藤岛鸣海  
 ##### 770#       发表于 2016-5-28 16:43
-
 
 
 <blockquote>引用第767楼夏影于2016-05-28 15:51发表的  :
@@ -15501,16 +10547,10 @@ P社脑洞是很大，想到了很多好玩的东西，但是目前看，社区�
 ----发送自 [Meizu PRO 5,Android 5.1](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 771#       发表于 2016-5-28 17:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32553522&amp;ptid=1275523" target="_blank">藤岛鸣海 发表于 2016-5-28 16:43</a>
@@ -15521,16 +10561,10 @@ P社脑洞是很大，想到了很多好玩的东西，但是目前看，社区�
 最强之船已在阵中，剩下可以平A了
 
 
-
-
-
-
-
 -----
 
 ####  western1031  
 ##### 772#       发表于 2016-5-28 18:04
-
 
 
 <blockquote>引用第769楼夏影于2016-05-28 17:16发表的  :
@@ -15544,26 +10578,15 @@ P社脑洞是很大，想到了很多好玩的东西，但是目前看，社区�
 ----发送自 [HUAWEI HUAWEI ALE-CL00,Android 4.4.4](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  可可洛酱  
 ##### 773#       发表于 2016-5-29 03:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32553709&amp;ptid=1275523" target="_blank">夏影 发表于 2016-5-28 17:16</a>
 最强之船已在阵中，剩下可以平A了</blockquote>
 护卫闪避砍一半，别想着用这个流派了。。还是老实6光矛BB才是王道<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15572,24 +10595,16 @@ P社脑洞是很大，想到了很多好玩的东西，但是目前看，社区�
 ##### 774#       发表于 2016-5-29 09:30
 
 
-
-
 种了8个球，感觉操作好繁琐，又没有可以直观看到各个星球数据的界面，一个球还要分4页，真的好烦，就不能做一起嘛
 
 
 还有这星域AI好智障，没能源就原地乱造发电站，产能源的地反而空在那里。。。
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 775#       发表于 2016-5-29 10:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32557344&amp;ptid=1275523" target="_blank">可可洛酱 发表于 2016-5-29 03:09</a>
@@ -15601,16 +10616,10 @@ P社脑洞是很大，想到了很多好玩的东西，但是目前看，社区�
 除开100%命中的堕落帝国，还是有一席之地的
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 776#       发表于 2016-5-29 10:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32558400&amp;ptid=1275523" target="_blank">fjj036 发表于 2016-5-29 09:30</a>
@@ -15619,16 +10628,10 @@ P社脑洞是很大，想到了很多好玩的东西，但是目前看，社区�
 按F2
 
 
-
-
-
-
-
 -----
 
 ####  离魂仙  
 ##### 777#       发表于 2016-5-29 12:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32558931&amp;ptid=1275523" target="_blank">夏影 发表于 2016-5-29 10:37</a>
@@ -15637,16 +10640,10 @@ P社脑洞是很大，想到了很多好玩的东西，但是目前看，社区�
 直辖上限怎么涨到9的啊？哪些科技或理念？
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 778#       发表于 2016-5-29 12:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32559999&amp;ptid=1275523" target="_blank">离魂仙 发表于 2016-5-29 12:07</a>
@@ -15659,18 +10656,10 @@ P社脑洞是很大，想到了很多好玩的东西，但是目前看，社区�
 <img src="http://ww1.sinaimg.cn/mw690/7e8b2857gw1f4c4st1j56j20gk0hkn0z.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 779#       发表于 2016-5-29 12:21
-
-
 
 
 政府体制里面有+3球的体制
@@ -15688,16 +10677,10 @@ P社脑洞是很大，想到了很多好玩的东西，但是目前看，社区�
 还有一点不好的地方，政府形态可以随便改，没啥很大的副作用，如果能出点事件就好了，比如共和制国家换到星级帝国，会发生反对者内战什么。
 
 
-
-
-
-
-
 -----
 
 ####  离魂仙  
 ##### 780#       发表于 2016-5-29 12:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32560069&amp;ptid=1275523" target="_blank">夏影 发表于 2016-5-29 12:15</a>
@@ -15709,16 +10692,10 @@ P社脑洞是很大，想到了很多好玩的东西，但是目前看，社区�
 民主真好啊，我还没玩过那些4年选举的政体，P社游戏全是铁血打法<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  eno_emos  
 ##### 781#       发表于 2016-5-29 12:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32560121&amp;ptid=1275523" target="_blank">美利坚大老爹 发表于 2016-5-29 12:21</a>
@@ -15734,16 +10711,10 @@ P社脑洞是很大，想到了很多好玩的东西，但是目前看，社区�
 比如有个是加护盾容量，每一级加5%，点到20级……直接翻一倍
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 782#       发表于 2016-5-29 12:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32560144&amp;ptid=1275523" target="_blank">离魂仙 发表于 2016-5-29 12:24</a>
@@ -15755,17 +10726,10 @@ P社脑洞是很大，想到了很多好玩的东西，但是目前看，社区�
 完全可以不用关心选举。
 
 
-
-
-
-
-
 -----
 
 ####  lb19931118  
 ##### 783#       发表于 2016-5-29 13:27
-
-
 
 
 我真是日了这些傻逼星区ai全家了。
@@ -15780,16 +10744,10 @@ P社脑洞是很大，想到了很多好玩的东西，但是目前看，社区�
 这个重新开发建筑开关都一样，是搞什么啊？做不来电脑AI能不能多测试一下？
 
 
-
-
-
-
-
 -----
 
 ####  cools  
 ##### 784#       发表于 2016-5-29 13:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32560202&amp;ptid=1275523" target="_blank">美利坚大老爹 发表于 2016-5-29 12:31</a>
@@ -15805,16 +10763,10 @@ P社脑洞是很大，想到了很多好玩的东西，但是目前看，社区�
 至于选举需要的人物特性这一点其实也很好操作，由于目前的选举系统可以无限连任，只要在第一次开始选举时（这时候各位候选人的几率差距都不大）找个玩家需要的候选人支持一下（50影响），就可以保证此人继续往下连任很多届。
 
 
-
-
-
-
-
 -----
 
 ####  我来自一中  
 ##### 785#       发表于 2016-5-29 14:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32560777&amp;amp;ptid=1275523" target="_blank">cools 发表于 2016-5-29 13:46</a>
@@ -15824,26 +10776,15 @@ P社脑洞是很大，想到了很多好玩的东西，但是目前看，社区�
 问题是总统任务一般都是建X个矿站、科研站之类的，如果不是持续快速扩张的话其实完成不了几届
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 786#       发表于 2016-5-29 14:27
 
 
-
 <blockquote>我来自一中 发表于 2016-5-29 14:10
 问题是总统任务一般都是建X个矿站、科研站之类的，如果不是持续快速扩张的话其实完成不了几届 ...</blockquote>
 这个不是问题，可以把现有的拆了重建也算
-
-
-
-
-
 
 
 -----
@@ -15852,15 +10793,9 @@ P社脑洞是很大，想到了很多好玩的东西，但是目前看，社区�
 ##### 787#       发表于 2016-5-29 14:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32561054&amp;amp;ptid=1275523" target="_blank">夏影 发表于 2016-5-29 14:27</a>
 这个不是问题，可以把现有的拆了重建也算</blockquote>
 不算吧？我之前就尝试过，结果白瞎了几百矿
-
-
-
-
-
 
 
 -----
@@ -15869,16 +10804,10 @@ P社脑洞是很大，想到了很多好玩的东西，但是目前看，社区�
 ##### 788#       发表于 2016-5-29 14:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32561118&amp;ptid=1275523" target="_blank">我来自一中 发表于 2016-5-29 14:36</a>
 
 不算吧？我之前就尝试过，结果白瞎了几百矿</blockquote>
 不要拆同一个，拆不同的就可以
-
-
-
-
-
 
 
 -----
@@ -15887,25 +10816,16 @@ P社脑洞是很大，想到了很多好玩的东西，但是目前看，社区�
 ##### 789#       发表于 2016-5-29 14:59
 
 
-
-
 +120年续命老实讲太暴力，游戏进入末期最早200年差不多就可以了，一般都是40-50岁的领导，死亡差不多80岁以后，+120，一般到2350年左右，然后过程中会有几个科技和政策续命。
 
 
 操作得好的话，从头到尾不死领导。
 
 
-
-
-
-
-
 -----
 
 ####  lb19931118  
 ##### 790#       发表于 2016-5-29 18:21
-
-
 
 
 说来各位有没有搞出合成人相关科技？我一直很担心AI叛乱事件。
@@ -15916,17 +10836,10 @@ P社脑洞是很大，想到了很多好玩的东西，但是目前看，社区�
                                 还是在相关科技出来之后，尽力保持合成人处于高幸福度——？问题解决？？
 
 
-
-
-
-
-
 -----
 
 ####  demonawen  
 ##### 791#       发表于 2016-5-29 18:41
-
-
 
 
 我以前的玩法就是扩张，在得到一定规模的版图之后，选择一个殖民星球价值比较高，比较密集的地方作为核心区域，其他的都划给星区。
@@ -15934,16 +10847,10 @@ P社脑洞是很大，想到了很多好玩的东西，但是目前看，社区�
 新版本下盲目扩张被削弱，开局拼脸严重，对于运气好的人没有影响，但是对于一般人，就算积极探路，结果发现合适的殖民地在比较远的地方，就算殖民过去，最后星图不能连起来，依靠前哨消耗影响力，由于空间站不能设置集结点，到了后期新造部队的集结也非常成问题，不用虫洞科技的话，需要非常长的时间才能把部队集合在一起，一波和失落帝国或者虫群的血拼之后，第二波攻势太慢
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 792#       发表于 2016-5-29 18:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32562602&amp;amp;ptid=1275523" target="_blank">lb19931118 发表于 2016-5-29 18:21</a>
@@ -15954,16 +10861,10 @@ P社脑洞是很大，想到了很多好玩的东西，但是目前看，社区�
 赶紧自己把他们折腾到叛变，因为你没法阻止电脑国家作死
 
 
-
-
-
-
-
 -----
 
 ####  fjj036  
 ##### 793#       发表于 2016-5-29 19:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32558931&amp;ptid=1275523" target="_blank">夏影 发表于 2016-5-29 10:37</a>
@@ -15972,16 +10873,10 @@ P社脑洞是很大，想到了很多好玩的东西，但是目前看，社区�
 这界面太简陋了，而且不能直接操作，没卵用啊
 
 
-
-
-
-
-
 -----
 
 ####  lb19931118  
 ##### 794#       发表于 2016-5-29 19:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32562870&amp;ptid=1275523" target="_blank">sandro 发表于 2016-5-29 18:57</a>
@@ -15990,16 +10885,10 @@ P社脑洞是很大，想到了很多好玩的东西，但是目前看，社区�
 看我把它日的走不动路！
 
 
-
-
-
-
-
 -----
 
 ####  cools  
 ##### 795#       发表于 2016-5-29 22:30
-
 
 
  本帖最后由 cools 于 2016-5-29 22:42 编辑 
@@ -16063,16 +10952,10 @@ Servant AI Perfected和Accord Reached的效果都是弹出相应事件，都有�
 第二个选项导致AI叛乱直接在这一国家发生
 
 
-
-
-
-
-
 -----
 
 ####  cools  
 ##### 796#       发表于 2016-5-29 22:37
-
 
 
  本帖最后由 cools 于 2016-5-29 22:39 编辑 
@@ -16084,16 +10967,10 @@ Servant AI Perfected和Accord Reached的效果都是弹出相应事件，都有�
 如果做到以上要求还是不幸roll出了5%-10%几率的直接叛乱事件，请读最近的存档
 
 
-
-
-
-
-
 -----
 
 ####  可可洛酱  
 ##### 797#       发表于 2016-5-30 00:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32560634&amp;ptid=1275523" target="_blank">lb19931118 发表于 2016-5-29 13:27</a>
@@ -16104,16 +10981,10 @@ Servant AI Perfected和Accord Reached的效果都是弹出相应事件，都有�
 已经对星区AI完全绝望了，干脆直接把刚殖民的星球扔给它就不管了，随便它搞。自己精心规划的星球被一阵乱搞还不能制止感觉真的想杀人！！
 
 
-
-
-
-
-
 -----
 
 ####  lb19931118  
 ##### 798#       发表于 2016-5-30 05:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32564288&amp;ptid=1275523" target="_blank">cools 发表于 2016-5-29 22:30</a>
@@ -16127,16 +10998,10 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 我现在保持4人口合成人，ai政策选择奴役，理论上可以有10%的基础触发率以及90%的ai臣服事件对么？
 
 
-
-
-
-
-
 -----
 
 ####  lb19931118  
 ##### 799#       发表于 2016-5-30 05:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32565097&amp;ptid=1275523" target="_blank">可可洛酱 发表于 2016-5-30 00:28</a>
@@ -16148,16 +11013,10 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 等下个1.1x的汉化整合版吧。
 
 
-
-
-
-
-
 -----
 
 ####  YMS16M  
 ##### 800#       发表于 2016-5-30 07:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32562602&amp;ptid=1275523" target="_blank">lb19931118 发表于 2016-5-29 18:21</a>
@@ -16173,16 +11032,10 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 这又不是CK改法案还要支持度。
 
 
-
-
-
-
-
 -----
 
 ####  lb19931118  
 ##### 801#       发表于 2016-5-30 07:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32565928&amp;ptid=1275523" target="_blank">YMS16M 发表于 2016-5-30 07:20</a>
@@ -16201,16 +11054,10 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 反过来说，搞定这个之后合成人满适应性产能完美不要食物（不占格子），完美的公民啊。
 
 
-
-
-
-
-
 -----
 
 ####  YMS16M  
 ##### 802#       发表于 2016-5-30 08:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32566013&amp;ptid=1275523" target="_blank">lb19931118 发表于 2016-5-30 07:49</a>
@@ -16228,16 +11075,10 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 再说了生物在幸福度拉高了之后也不输机器人的。
 
 
-
-
-
-
-
 -----
 
 ####  lb19931118  
 ##### 803#       发表于 2016-5-30 08:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32566074&amp;ptid=1275523" target="_blank">YMS16M 发表于 2016-5-30 08:11</a>
@@ -16275,16 +11116,10 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 总比满宇宙救火好吧。
 
 
-
-
-
-
-
 -----
 
 ####  blastoderm00  
 ##### 804#       发表于 2016-5-30 08:44
-
 
 
  本帖最后由 blastoderm00 于 2016-5-30 09:00 编辑 
@@ -16295,25 +11130,13 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 然后就是现在这个战斗ai，应该说敌人还算有点ai，但是我方盟友或者仆从军就完全放弃思考了，打仗就是一个信标舰队扔出去，然后就等，后面拖着100多k友军，兵牌三屏幕长，我也是不敢点过去看。这个感觉就很尴尬了，虽然这种设定是有好处的，就是我方的战略主动性基本全在玩家手里，比较典型的就有我如果在战争阶段给人背刺了，我能无视一边的威胁先全力搞定眼前的战争目标，哪怕盟友/小弟这会儿全境给人占了，国内亡国灭种，友军舰队依然忠心耿耿的跟着你的信标舰队在另一条战线拼命。问题还是希望你们也有点自主性啊，现在这个多无趣啊。我之前打的某个档，各个仆从国因为我方和仆从国相对力量这一项-了400大几的好感，我一直在想要是哪次打仗的时候你们这帮附庸私下里组个同盟，突然反水向我开炮，这倒也挺好玩的啊，然而这帮家伙一个个顶着-500的好感，胆肥的没事还走外交途径嘲讽我，然而打起仗依然是主力舰队老老实实跟着信标走，看来都是傲娇。
 
 
-
-
-
-
-
 -----
 
 ####  sliencer  
 ##### 805#       发表于 2016-5-30 08:59
 
 
-
-
 昨晚我花了100年清除了虚空恶魔势力……每个恒星系造四个火力平台外加传送点实在太恶心了……不得不说这游戏的军事通行惩罚太大，ai死都不接受我过去帮他灭了结果自己最后被吞了，惨
-
-
-
-
-
 
 
 -----
@@ -16322,15 +11145,9 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 ##### 806#       发表于 2016-5-30 09:08
 
 
-
 <blockquote>夜游的树 发表于 2016-5-27 22:57
 我终于种田种到看堕落爸爸是低下弱小，感觉自己已经天下无敌了，结果定睛一看旁边一个占了快有1/3银河系的 ...</blockquote>
 莫慌，拉小国拉到170w军力啊，我上一盘加上附属国最后军力都220w了
-
-
-
-
-
 
 
 -----
@@ -16339,23 +11156,15 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 ##### 807#       发表于 2016-5-30 09:33
 
 
-
-
 开局给的母星都是16格的么？因为脸不是太好，我现在搜索合适殖民地的标准就是20格以上，也不强求盖亚，因为很多政策和属性套路都不熟悉，所以不是很明白怎么计算行星收益
 
 你们说的精铺，一定要25格盖亚，还是说只要大于母星的16格就可以了？
-
-
-
-
-
 
 
 -----
 
 ####  杨的退休金  
 ##### 808#       发表于 2016-5-30 09:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32565097&amp;ptid=1275523" target="_blank">可可洛酱 发表于 2016-5-30 00:28</a>
@@ -16370,16 +11179,10 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 实际上星区委任搞科研有三项＋10%的总督非常的赞
 
 
-
-
-
-
-
 -----
 
 ####  杨的退休金  
 ##### 809#       发表于 2016-5-30 09:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32566141&amp;ptid=1275523" target="_blank">lb19931118 发表于 2016-5-30 08:29</a>
@@ -16388,17 +11191,10 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 你给合成人公民权就好了吧？
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 810#       发表于 2016-5-30 10:26
-
-
 
 
 纯讲数值的话，给公民权或者领导权，并没有任何实质的影响。机器人当领导和机器人可以参加选举，和普通人也没什么大的区别，大家的加成不会搞特殊。
@@ -16410,32 +11206,19 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 游戏后期超级枯燥
 
 
-
-
-
-
-
 -----
 
 ####  nightraven  
 ##### 811#       发表于 2016-5-30 10:26
 
 
-
-
 在家里默默地运营了几十年，憋了40K舰队顺手灭了旁边的一星系小国，然后发现其他AI对我的态度都负一百多了<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  囧史密斯  
 ##### 812#       发表于 2016-5-30 10:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32560634&amp;ptid=1275523" target="_blank">lb19931118 发表于 2016-5-29 13:27</a>
@@ -16462,16 +11245,10 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 于是最后那个球我自己亲自管理了
 
 
-
-
-
-
-
 -----
 
 ####  我来自一中  
 ##### 813#       发表于 2016-5-30 10:35
-
 
 
  本帖最后由 我来自一中 于 2016-5-30 10:43 编辑 
@@ -16483,16 +11260,10 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 想要好感度的话，下次打小国战争诉求就选把对方所有星球都独立出去，打赢了马上就出一群尊你为解放者好感度爆表的小弟<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  iqbsh  
 ##### 814#       发表于 2016-5-30 11:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32436410&amp;ptid=1275523" target="_blank">squallx2 发表于 2016-5-15 20:34</a>
@@ -16506,17 +11277,10 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 仔细想想一定是这个科学家研究出的石器时代飞机吧
 
 
-
-
-
-
-
 -----
 
 ####  iqbsh  
 ##### 815#       发表于 2016-5-30 11:52
-
-
 
 
 希望以后改成科技树 满足条件出特殊科技 
@@ -16529,27 +11293,15 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 武器对大型和小型分别用什么好
 
 
-
-
-
-
-
 -----
 
 ####  我来自一中  
 ##### 816#       发表于 2016-5-30 12:52
 
 
-
-
 话说你们见过生成的银河系在银核里有星系的吗？
 
 前两天开了一局中型，结果看到银核正中有个类似星系的东西在一闪一闪……但鼠标放上去没反应，不知道是贴图错误还是什么
-
-
-
-
-
 
 
 -----
@@ -16558,21 +11310,13 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 ##### 817#       发表于 2016-5-30 12:56
 
 
-
-
 我也看到中心好像有个一闪一闪。
-
-
-
-
-
 
 
 -----
 
 ####  卖哥  
 ##### 818#       发表于 2016-5-30 13:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32567803&amp;ptid=1275523" target="_blank">iqbsh 发表于 2016-5-30 11:52</a>
@@ -16583,27 +11327,15 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 本来科技就是树型的，只不过是每次从满足条件的项目里面抽3个出来。
 
 
-
-
-
-
-
 -----
 
 ####  大哀之君  
 ##### 819#       发表于 2016-5-30 13:53
 
 
-
-
 与其叫科技树不如叫科技层。我开新档拿finish_research试过，不到一定年份，所有科技都是重复研究项，高级的绝对出不来
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (NOKIA Lumia 920)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
@@ -16612,16 +11344,9 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 ##### 820#       发表于 2016-5-30 15:07
 
 
-
-
 我从来没有碰见过星区AI瞎改我建筑的事情发生啊....
 
 科技很多还都是有前置要求的....
-
-
-
-
-
 
 
 -----
@@ -16630,23 +11355,15 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 ##### 821#       发表于 2016-5-30 15:56
 
 
-
-
 萌新求个上手攻略
 
 第三项资源那个是影响还是声望怎么加啊？选了蘑菇族，我现在领导人都老死了，但是点数不够没法招募新人，这特么的就很尴尬了
-
-
-
-
-
 
 
 -----
 
 ####  99th_angel  
 ##### 822#       发表于 2016-5-30 16:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32569840&amp;ptid=1275523" target="_blank">thest 发表于 2016-5-30 15:56</a>
@@ -16657,16 +11374,10 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 前期前哨建多了吧，拆前哨站让影响增长变正。或者找离你近的弱电脑宣为竞争对手，也会加影响。
 
 
-
-
-
-
-
 -----
 
 ####  kamiruding  
 ##### 823#       发表于 2016-5-30 17:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32569840&amp;ptid=1275523" target="_blank">thest 发表于 2016-5-30 15:56</a>
@@ -16679,16 +11390,10 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 1.1以后版本 就别乱建前哨站了。。。。建完后一定要铺殖民地 然后拆了前哨战
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
 ##### 824#       发表于 2016-5-30 23:22
-
 
 
  本帖最后由 路德维嘉 于 2016-5-30 23:23 编辑 
@@ -16698,16 +11403,10 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 擦我仔细看了一眼5月24好像就更新了，我的设置没错啊，STEAM为何不能更新他。。。？
 
 
-
-
-
-
-
 -----
 
 ####  卖哥  
 ##### 825#       发表于 2016-5-30 23:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32573246&amp;ptid=1275523" target="_blank">路德维嘉 发表于 2016-5-30 23:22</a>
@@ -16718,16 +11417,10 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 测试版分支。
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
 ##### 826#       发表于 2016-5-30 23:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32573314&amp;ptid=1275523" target="_blank">卖哥 发表于 2016-5-30 23:30</a>
@@ -16738,27 +11431,15 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 测试页面直接选1.1.0更新就可以了吧...?
 
 
-
-
-
-
-
 -----
 
 ####  iqbsh  
 ##### 827#       发表于 2016-5-31 00:18
 
 
-
-
 选了唯物军国主义 独裁政府很省心 
 
 打下两个莫名其妙对我侮辱的渣渣之后占了4个星球 妈的星球上的老百姓天天造反超级烦 好想清洗掉...
-
-
-
-
-
 
 
 -----
@@ -16767,21 +11448,13 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 ##### 828#       发表于 2016-5-31 07:46
 
 
-
-
 我也是遇到了同样问题，于是我改了唯物集体主义
-
-
-
-
-
 
 
 -----
 
 ####  eno_emos  
 ##### 829#       发表于 2016-5-31 09:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32568810&amp;ptid=1275523" target="_blank">大哀之君 发表于 2016-5-30 13:53</a>
@@ -16802,16 +11475,10 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 估计这个设计是为了防止有人窝在家里种田五百年然后憋出一溜BB出门扫荡
 
 
-
-
-
-
-
 -----
 
 ####  囧史密斯  
 ##### 830#       发表于 2016-5-31 10:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32575448&amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-31 09:26</a>
@@ -16837,17 +11504,10 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 光有经济 看着满经济造不出东西，10K没武器没护盾的驱逐舰 被电脑5个巡洋舰完虐
 
 
-
-
-
-
-
 -----
 
 ####  greenuhare  
 ##### 831#       发表于 2016-5-31 11:15
-
-
 
 
 问个问题，我不能帮盟友解放他被占的行星的？
@@ -16855,16 +11515,10 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 我选解放行星，然后成立一个新帝国了
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 832#       发表于 2016-5-31 11:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32575448&amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-31 09:26</a>
@@ -16881,25 +11535,13 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 不说游戏后期，中期时候，随机科技让配船比较多变
 
 
-
-
-
-
-
 -----
 
 ####  卖哥  
 ##### 833#       发表于 2016-5-31 11:25
 
 
-
-
 武器部分随机科技的影响是最小的吧，即使随不出来，捡尸也能捡到。
-
-
-
-
-
 
 
 -----
@@ -16908,23 +11550,16 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 ##### 834#       发表于 2016-5-31 12:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32576922&amp;amp;ptid=1275523" target="_blank">卖哥 发表于 2016-5-31 11:25</a>
 武器部分随机科技的影响是最小的吧，即使随不出来，捡尸也能捡到。</blockquote>
 怕就怕一直和平到中期，只捡过野怪，然后被人一波怼残
 如果一路都打打打就还好了
 
 
-
-
-
-
-
 -----
 
 ####  stardestroyer  
 ##### 835#       发表于 2016-5-31 12:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32567080&amp;ptid=1275523" target="_blank">囧史密斯 发表于 2016-5-30 10:31</a>
@@ -16936,16 +11571,10 @@ event/crisis_events_3.txt里列出了所有ai叛乱事件的触发条件
 TMD把我HALO上的高级建筑拆了<img src="https://static.saraba1st.com/image/smiley/dym/150.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  stardestroyer  
 ##### 836#       发表于 2016-5-31 12:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32577411&amp;ptid=1275523" target="_blank">sandro 发表于 2016-5-31 12:12</a>
@@ -16958,16 +11587,10 @@ TMD把我HALO上的高级建筑拆了<img src="https://static.saraba1st.com/imag
 技术是不是噌噌噌就上去了<img src="https://static.saraba1st.com/image/smiley/dym/148.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  卖哥  
 ##### 837#       发表于 2016-5-31 12:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32577527&amp;ptid=1275523" target="_blank">stardestroyer 发表于 2016-5-31 12:25</a>
@@ -16978,32 +11601,19 @@ TMD把我HALO上的高级建筑拆了<img src="https://static.saraba1st.com/imag
 你起码要能怼掉堕落一支部队……
 
 
-
-
-
-
-
 -----
 
 ####  冬眠的龙凰  
 ##### 838#       发表于 2016-5-31 13:27
 
 
-
-
 缺武器科技的可以去怼野怪，野怪貌似也会掉科技
-
-
-
-
-
 
 
 -----
 
 ####  yuanjx  
 ##### 839#       发表于 2016-5-31 14:09
-
 
 
 <blockquote>冬眠的龙凰 发表于 4 分钟前<[img src="static/image/common/back.gif" referrerpolicy="no-referrer">
@@ -17015,32 +11625,19 @@ TMD把我HALO上的高级建筑拆了<img src="https://static.saraba1st.com/imag
 ——发送自[S1 Pluto 2.5](https://itunes.apple.com/cn/app/s1-pluto/id889820003?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  monono  
 ##### 840#       发表于 2016-5-31 14:23
 
 
-
-
 给舰船加血的科技很实用啊，但是也看脸。有一次我到中期才遇到这野怪。。。
-
-
-
-
-
 
 
 -----
 
 ####  sandro  
 ##### 841#       发表于 2016-5-31 14:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32578444&amp;amp;ptid=1275523" target="_blank">yuanjx 发表于 2016-5-31 14:09</a>
@@ -17050,16 +11647,10 @@ TMD把我HALO上的高级建筑拆了<img src="https://static.saraba1st.com/imag
 挖矿机器人挖矿光线
 
 
-
-
-
-
-
 -----
 
 ####  iqbsh  
 ##### 842#       发表于 2016-5-31 14:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32578626&amp;ptid=1275523" target="_blank">sandro 发表于 2016-5-31 14:31</a>
@@ -17074,16 +11665,10 @@ TMD把我HALO上的高级建筑拆了<img src="https://static.saraba1st.com/imag
 然后一仗打完周围的弱不禁风的势力都结盟来对付我了 各种骚扰我的星球 是不是造点行星要塞拖延下呢 要塞放什么武器好
 
 
-
-
-
-
-
 -----
 
 ####  yuanjx  
 ##### 843#       发表于 2016-5-31 14:58
-
 
 
 <blockquote>iqbsh 发表于 1 分钟前<[img src="static/image/common/back.gif" referrerpolicy="no-referrer">
@@ -17095,17 +11680,10 @@ TMD把我HALO上的高级建筑拆了<img src="https://static.saraba1st.com/imag
 ——发送自[S1 Pluto 2.5](https://itunes.apple.com/cn/app/s1-pluto/id889820003?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Surlert  
 ##### 844#       发表于 2016-5-31 16:18
-
-
 
 
 永久性加成有几个啊,我只有一个阿米巴加舰队回避.
@@ -17113,17 +11691,10 @@ TMD把我HALO上的高级建筑拆了<img src="https://static.saraba1st.com/imag
 其他都是些临时性的,加科研,幸福或者减幸福的东西.
 
 
-
-
-
-
-
 -----
 
 ####  科特迪尔  
 ##### 845#       发表于 2016-5-31 16:26
-
-
 
 
 wiki是好东西，只是没中文看得累
@@ -17145,16 +11716,10 @@ wiki是好东西，只是没中文看得累
 阿米巴 和 结晶体 都能出自愈护甲
 
 
-
-
-
-
-
 -----
 
 ####  stardestroyer  
 ##### 846#       发表于 2016-5-31 16:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32577625&amp;ptid=1275523" target="_blank">卖哥 发表于 2016-5-31 12:35</a>
@@ -17165,16 +11730,10 @@ wiki是好东西，只是没中文看得累
 坐等堕落来拆首都
 
 
-
-
-
-
-
 -----
 
 ####  杨的退休金  
 ##### 847#       发表于 2016-5-31 17:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32578789&amp;ptid=1275523" target="_blank">iqbsh 发表于 2016-5-31 14:56</a>
@@ -17185,16 +11744,10 @@ wiki是好东西，只是没中文看得累
 然后堆血，万血要塞＋8光矛，首都修俩？
 
 
-
-
-
-
-
 -----
 
 ####  杨的退休金  
 ##### 848#       发表于 2016-5-31 17:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32576129&amp;ptid=1275523" target="_blank">囧史密斯 发表于 2016-5-31 10:26</a>
@@ -17208,16 +11761,10 @@ wiki是好东西，只是没中文看得累
 而且20年你出到驱逐其实也不是问题，关键是护卫海？
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 849#       发表于 2016-5-31 17:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32579540&amp;ptid=1275523" target="_blank">Surlert 发表于 2016-5-31 16:18</a>
@@ -17240,24 +11787,13 @@ wiki是好东西，只是没中文看得累
 增强太阳能：+5%能量，某个异常研究二选一
 
 
-
-
-
-
-
 -----
 
 ####  天衣いちご  
 ##### 850#       发表于 2016-5-31 18:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">被那个什么五次元来的军队给打崩了，附近的国家好像都对这堆家伙无动于衷，果然一开始就该全军冲出去万岁冲锋干掉那个黑洞，现在要顶着4队17K的东西加几个护盾恢复超快的2K基地轰那个黑洞根本是不行，我已经打光所有家底，还不能叫盟友一起怼他丫的，重打好了，顺便求各位大大教个方法对付这东西
-
-
-
-
-
 
 
 -----
@@ -17266,23 +11802,15 @@ wiki是好东西，只是没中文看得累
 ##### 851#       发表于 2016-5-31 18:40
 
 
-
-
 新手问一下群星 Galaxy包含的那些电子书籍好像没什么用，是不是nova版本比较合算？
 
 之后dlc都包含在里头了还是得再买？
-
-
-
-
-
 
 
 -----
 
 ####  sandro  
 ##### 852#       发表于 2016-5-31 18:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32580842&amp;amp;ptid=1275523" target="_blank">人不言 发表于 2016-5-31 18:40</a>
@@ -17292,26 +11820,15 @@ wiki是好东西，只是没中文看得累
 dlc不包括，你想支持下开发者就买贵的，否则买基础版就可以了
 
 
-
-
-
-
-
 -----
 
 ####  nxmonitor  
 ##### 853#       发表于 2016-5-31 18:58
 
 
-
 <blockquote>天衣いちご 发表于 2016-5-31 18:11
 被那个什么五次元来的军队给打崩了，附近的国家好像都对这堆家伙无动于衷，果然一开始就该全军冲出去 ...</blockquote>
 恶魔吗？一开始干掉传送门就好了…
-
-
-
-
-
 
 
 -----
@@ -17320,16 +11837,10 @@ dlc不包括，你想支持下开发者就买贵的，否则买基础版就可�
 ##### 854#       发表于 2016-5-31 19:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32580960&amp;ptid=1275523" target="_blank">nxmonitor 发表于 2016-5-31 18:58</a>
 
 恶魔吗？一开始干掉传送门就好了…</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">就是一开始没干掉还作死开了不能SL的模式……反正再来一局算了
-
-
-
-
-
 
 
 -----
@@ -17338,17 +11849,10 @@ dlc不包括，你想支持下开发者就买贵的，否则买基础版就可�
 ##### 855#       发表于 2016-5-31 19:04
 
 
-
-
 对付骚扰当然是建各种防御平台
 
 
 之前炸完别人首都后在上面拍了个带陷阱的要塞，军队下降作战完了跟着舰队跑去拆另一个国家，看着对面源源不断的各种飞船冲回首都送死<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17357,16 +11861,9 @@ dlc不包括，你想支持下开发者就买贵的，否则买基础版就可�
 ##### 856#       发表于 2016-5-31 20:46
 
 
-
-
 之前一直玩唯心排外军国主义，割下来的星球，想清洗的清洗，想奴役的奴役，本族人最多也就是满意度不高，绝对不会出问题
 
 这一套有点玩腻了，有没人文主义一点套路？各种收进来的外星人和平共处，取长补短啥的？
-
-
-
-
-
 
 
 -----
@@ -17375,16 +11872,10 @@ dlc不包括，你想支持下开发者就买贵的，否则买基础版就可�
 ##### 857#       发表于 2016-5-31 20:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32581686&amp;ptid=1275523" target="_blank">demonawen 发表于 2016-5-31 20:46</a>
 
 之前一直玩唯心排外军国主义，割下来的星球，想清洗的清洗，想奴役的奴役，本族人最多也就是满意度不高，绝 ...</blockquote>
 地球理事会
-
-
-
-
-
 
 
 -----
@@ -17393,14 +11884,7 @@ dlc不包括，你想支持下开发者就买贵的，否则买基础版就可�
 ##### 858#       发表于 2016-6-1 02:00
 
 
-
-
 这游戏是故意的么……我选了个精英军官团统治的唯物主义军国政体，结果发现的全特么是民主或者和平主义文明，偶尔有个把唯心神棍国或者类似的独裁体制国家，交道也很不好打，劳资1000能源换丫100矿都告诉我“提出这种交易你是疯了吗”，这特么到底谁疯了
-
-
-
-
-
 
 
 -----
@@ -17409,22 +11893,13 @@ dlc不包括，你想支持下开发者就买贵的，否则买基础版就可�
 ##### 859#       发表于 2016-6-1 02:40
 
 
-
-
 第一个档崇外民主。一个附庸每天都来骂我我也不能净化。好怒。后来索性连总统都是外星人机器人。 第二个档军国排外集体。开局旁边直接刷了个种族洁癖好感负1400军队宛如天神的国家。才过去25年我就被宣了，sl无数遍终于打赢了，下一秒全部净化。爽到
-
-
-
-
-
 
 
 -----
 
 ####  stardestroyer  
 ##### 860#       发表于 2016-6-1 04:11
-
-
 
 
 看你老说宛如天神，
@@ -17438,16 +11913,10 @@ dlc不包括，你想支持下开发者就买贵的，否则买基础版就可�
 2300年我的半打超光战列外加联邦里其他的10K左右小船同时宣两个联盟，一个overwhelming一个superior，根本就不进甲的（我是5级护盾配置）
 
 
-
-
-
-
-
 -----
 
 ####  杨的退休金  
 ##### 861#       发表于 2016-6-1 08:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32583546&amp;ptid=1275523" target="_blank">秋水改 发表于 2016-6-1 02:40</a>
@@ -17458,17 +11927,10 @@ dlc不包括，你想支持下开发者就买贵的，否则买基础版就可�
 如果＋100到不了，不妨放了他，然后再解放他，这样意识 形态就和你一样了。
 
 
-
-
-
-
-
 -----
 
 ####  战列驱逐舰POI  
 ##### 862#       发表于 2016-6-1 16:25
-
-
 
 
 玩了2个政体 都被1个问题困扰， 那就是开疆扩土。
@@ -17483,16 +11945,10 @@ dlc不包括，你想支持下开发者就买贵的，否则买基础版就可�
 玩集体流倒是可以净化杀杀杀，但是周围一堆红外交还经常被围殴和背刺
 
 
-
-
-
-
-
 -----
 
 ####  杨的退休金  
 ##### 863#       发表于 2016-6-1 17:20
-
 
 
  本帖最后由 杨的退休金 于 2016-6-1 17:22 编辑 
@@ -17508,16 +11964,10 @@ dlc不包括，你想支持下开发者就买贵的，否则买基础版就可�
 另，1.1版？附庸叛变？
 
 
-
-
-
-
-
 -----
 
 ####  战列驱逐舰POI  
 ##### 864#       发表于 2016-6-1 17:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32589578&amp;ptid=1275523" target="_blank">杨的退休金 发表于 2016-6-1 17:20</a>
@@ -17530,16 +11980,10 @@ dlc不包括，你想支持下开发者就买贵的，否则买基础版就可�
 是我占领了AI的星球。在上面的居民没快乐导致没产出托累我的科技，还会形成派系
 
 
-
-
-
-
-
 -----
 
 ####  demonawen  
 ##### 865#       发表于 2016-6-1 18:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32589744&amp;ptid=1275523" target="_blank">战列驱逐舰POI 发表于 2016-6-1 17:38</a>
@@ -17550,16 +11994,10 @@ dlc不包括，你想支持下开发者就买贵的，否则买基础版就可�
 舍得用影响力的话，先开一个广播宣传，过了10年以后再看情况调整，动物园什么的
 
 
-
-
-
-
-
 -----
 
 ####  杨的退休金  
 ##### 866#       发表于 2016-6-1 19:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32589744&amp;ptid=1275523" target="_blank">战列驱逐舰POI 发表于 2016-6-1 17:38</a>
@@ -17572,17 +12010,10 @@ dlc不包括，你想支持下开发者就买贵的，否则买基础版就可�
 另外的话，条件允许的话，还是把不合适的重新安置然后送给盟友好了。
 
 
-
-
-
-
-
 -----
 
 ####  科特迪尔  
 ##### 867#       发表于 2016-6-1 21:42
-
-
 
 
 1.1正式更新了
@@ -17597,17 +12028,10 @@ This update also unlocks the following content for free:
 - Symbols of Domination
 
 
-
-
-
-
-
 -----
 
 ####  cc-2  
 ##### 868#       发表于 2016-6-1 21:56
-
-
 
 
 收藏了还没买，好久没玩这种游戏了
@@ -17616,16 +12040,10 @@ This update also unlocks the following content for free:
 想问下这款的战斗是什么个玩法？像家园那样即时战略吗还是回合的？
 
 
-
-
-
-
-
 -----
 
 ####  Inquisitor  
 ##### 869#       发表于 2016-6-1 22:16
-
 
 
  本帖最后由 Inquisitor 于 2016-6-1 22:22 编辑 
@@ -17638,27 +12056,16 @@ This update also unlocks the following content for free:
 玩过四萌吗？可以暂停的rts
 
 
-
-
-
-
-
 -----
 
 ####  cc-2  
 ##### 870#       发表于 2016-6-1 22:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32591852&amp;ptid=1275523" target="_blank">Inquisitor 发表于 2016-6-1 22:16</a>
 
 玩过四萌吗？</blockquote>
 四萌是啥……你说原名也许我还听过，不过估计没玩过
-
-
-
-
-
 
 
 -----
@@ -17667,16 +12074,10 @@ This update also unlocks the following content for free:
 ##### 871#       发表于 2016-6-1 22:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32591852&amp;ptid=1275523" target="_blank">Inquisitor 发表于 2016-6-1 22:16</a>
 
 玩过四萌吗？</blockquote>
 四萌是啥……你说原名也许我还听过，不过估计没玩过
-
-
-
-
-
 
 
 -----
@@ -17685,23 +12086,16 @@ This update also unlocks the following content for free:
 ##### 872#       发表于 2016-6-1 23:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32591892&amp;ptid=1275523" target="_blank">cc-2 发表于 2016-6-1 22:22</a>
 
 四萌是啥……你说原名也许我还听过，不过估计没玩过</blockquote>
 就是P社其他几部作品，钢铁雄心、王国风云，维多利亚，欧陆风云
 
 
-
-
-
-
-
 -----
 
 ####  cc-2  
 ##### 873#       发表于 2016-6-1 23:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32592205&amp;ptid=1275523" target="_blank">绿茶苏打 发表于 2016-6-1 23:03</a>
@@ -17713,16 +12107,10 @@ This update also unlocks the following content for free:
 不过这么说的话，战斗方式大概掌握了……
 
 
-
-
-
-
-
 -----
 
 ####  YMS16M  
 ##### 874#       发表于 2016-6-2 03:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32589744&amp;ptid=1275523" target="_blank">战列驱逐舰POI 发表于 2016-6-1 17:38</a>
@@ -17735,17 +12123,10 @@ This update also unlocks the following content for free:
 其次你可以考虑丢点机器人进去修点啥纪念碑啊游戏厅一类。当然净化了最了事。<img src="https://static.saraba1st.com/image/smiley/nq/012.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 875#       发表于 2016-6-2 05:28
-
-
 
 
 问下这游戏没有烧玻璃球选项吗，要么是收为附庸要么直接攻占殖民，难道是只能用挨个净化的办法解决
@@ -17753,16 +12134,10 @@ This update also unlocks the following content for free:
 我还想过一把敌国灭绝令的瘾呢
 
 
-
-
-
-
-
 -----
 
 ####  杨的退休金  
 ##### 876#       发表于 2016-6-2 06:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32593427&amp;ptid=1275523" target="_blank">影流之主 发表于 2016-6-2 05:28</a>
@@ -17773,25 +12148,13 @@ This update also unlocks the following content for free:
 有mod
 
 
-
-
-
-
-
 -----
 
 ####  sliencer  
 ##### 877#       发表于 2016-6-2 07:43
 
 
-
-
 这游戏的ai奇葩就奇葩在小船狂热以及组织分散，昨晚我睡觉前，之前被我把舰队打成pathetic的国家把舰队补成了equvilant，结果一派部队侦查发现丫全都是小船，500+的小船(我这时候才260+)，但是他们分散成五只舰队分布在各个恒星系，基本上就是炮灰命运)
-
-
-
-
-
 
 
 -----
@@ -17800,16 +12163,9 @@ This update also unlocks the following content for free:
 ##### 878#       发表于 2016-6-2 08:35
 
 
-
-
 我现在遇到的主要问题是想消灭的对手太弱 都2个星球没什么舰队还天天跟我叫板 我只能守在他星球旁边等着他盟友的少的可怜的船飞过来点一个+1点胜利点 飞过来+1点胜利点 然后拖上一年多疼他投降
 
 全宇宙AI叛变好像没我啥事...虽然是我点出危险科技但我第一时间拆光了机器人 隔壁的一个大联邦已经被打的鸡飞狗跳了
-
-
-
-
-
 
 
 -----
@@ -17818,16 +12174,10 @@ This update also unlocks the following content for free:
 ##### 879#       发表于 2016-6-2 09:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32593947&amp;ptid=1275523" target="_blank">iqbsh 发表于 2016-6-2 08:35</a>
 
 我现在遇到的主要问题是想消灭的对手太弱 都2个星球没什么舰队还天天跟我叫板 我只能守在他星球旁边等着他 ...</blockquote>
 仔细看一下国家实力对比，出现这种情况，可能是你实际上没有抓住对方主力打赢一次决战，如果对方真的没有舰队了分数依然不够，请打陆战，按照你的描述，只有2个球的，基本上占领完2个球就肯定赢了
-
-
-
-
-
 
 
 -----
@@ -17836,24 +12186,16 @@ This update also unlocks the following content for free:
 ##### 880#       发表于 2016-6-2 09:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32512948&amp;ptid=1275523" target="_blank">sliencer 发表于 2016-5-24 11:11</a>
 
 你那是没有镇压反对势力吧，不镇压肯定诉求独立</blockquote>
 没有这个选项啊。。只有给独立派领袖送钱。。。
 
 
-
-
-
-
-
 -----
 
 ####  007.5  
 ##### 881#       发表于 2016-6-2 09:52
-
-
 
 
 爬楼看了讨论觉得很有意思也开始玩
@@ -17865,16 +12207,10 @@ This update also unlocks the following content for free:
 请问如何拿到通行权？AI又不同意结盟，明明关系还可以的，只能掀桌翻脸了么
 
 
-
-
-
-
-
 -----
 
 ####  g54088  
 ##### 882#       发表于 2016-6-2 09:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32594587&amp;amp;ptid=1275523" target="_blank">007.5 发表于 2016-6-2 09:52</a>
@@ -17885,16 +12221,10 @@ This update also unlocks the following content for free:
 外交界面选交易。1.1据说民用通行权很好拿。
 
 
-
-
-
-
-
 -----
 
 ####  007.5  
 ##### 883#       发表于 2016-6-2 10:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32594632&amp;ptid=1275523" target="_blank">g54088 发表于 2016-6-2 09:57</a>
@@ -17906,16 +12236,10 @@ This update also unlocks the following content for free:
 那么我拿着通行权出去殖民，自己控制的星域中间被AI分割开，有没有什么隐患啊？
 
 
-
-
-
-
-
 -----
 
 ####  g54088  
 ##### 884#       发表于 2016-6-2 10:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32594666&amp;amp;ptid=1275523" target="_blank">007.5 发表于 2016-6-2 10:00</a>
@@ -17926,26 +12250,15 @@ This update also unlocks the following content for free:
 主要是会少圈了一部分地。如果没拿到军通也可能出现舰队没法过去支援，有军通应该就没差了。
 
 
-
-
-
-
-
 -----
 
 ####  sliencer  
 ##### 885#       发表于 2016-6-2 10:09
 
 
-
 <blockquote>licence 发表于 2016-6-2 09:40
 没有这个选项啊。。只有给独立派领袖送钱。。。</blockquote>
 suppress the media？
-
-
-
-
-
 
 
 -----
@@ -17954,16 +12267,10 @@ suppress the media？
 ##### 886#       发表于 2016-6-2 10:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32594749&amp;ptid=1275523" target="_blank">sliencer 发表于 2016-6-2 10:09</a>
 
 suppress the media？</blockquote>
 对媒体施压，降低派系影响力
-
-
-
-
-
 
 
 -----
@@ -17972,22 +12279,15 @@ suppress the media？</blockquote>
 ##### 887#       发表于 2016-6-2 10:45
 
 
-
 <blockquote>hornisse 发表于 2016-6-2 10:11
 对媒体施压，降低派系影响力</blockquote>
 我一直都用这个，主要后期电力不值钱
-
-
-
-
-
 
 
 -----
 
 ####  demonawen  
 ##### 888#       发表于 2016-6-2 11:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32594666&amp;ptid=1275523" target="_blank">007.5 发表于 2016-6-2 10:00</a>
@@ -18001,16 +12301,10 @@ suppress the media？</blockquote>
 这个游戏，如果不是玩COSPLAY，开局的时候还真有那么一点竞技游戏的味道，除了虫洞科技，其他都可以直接把周围一圈都走一遍，记下合适的殖民地和周围AI的母星，你第一时间研究殖民科技的话，AI的殖民船不会比你快，可以靠殖民和前哨战，配合语言翻译来封AI的路
 
 
-
-
-
-
-
 -----
 
 ####  007.5  
 ##### 889#       发表于 2016-6-2 11:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32595278&amp;ptid=1275523" target="_blank">demonawen 发表于 2016-6-2 11:10</a>
@@ -18028,16 +12322,10 @@ suppress the media？</blockquote>
 顺便问下创意工坊里面哪个汉化比较好，到账后再玩算了
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 890#       发表于 2016-6-2 11:59
-
 
 
  本帖最后由 夏影 于 2016-6-2 12:10 编辑 
@@ -18047,16 +12335,10 @@ suppress the media？</blockquote>
 开局可以控制台observe一下，看下周围情况
 
 
-
-
-
-
-
 -----
 
 ####  iqbsh  
 ##### 891#       发表于 2016-6-2 13:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32594342&amp;ptid=1275523" target="_blank">demonawen 发表于 2016-6-2 09:21</a>
@@ -18065,27 +12347,15 @@ suppress the media？</blockquote>
 这类弱小的都是联盟 周围一大圈 每个都很弱 但星球一大堆 基本上把他们最强的一波拼完就没兵让我打了 想要的星球一次顶多4个 宣一次对面的兵就更少了 等到现在第三个联盟成员被我宣 就剩下几K的兵了
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
 ##### 892#       发表于 2016-6-2 14:38
 
 
-
-
 我最烦的一次是敌对联盟分成两批，离我近的一个文明被我打垮了然而战争点数不够，离我远的几个文明是被另一个大联盟隔开的，他们船过不来我船过不去，通行权又死活拿不到，战争就在那里吊着打不完.....
 
 简直无语
-
-
-
-
-
 
 
 -----
@@ -18094,23 +12364,15 @@ suppress the media？</blockquote>
 ##### 893#       发表于 2016-6-2 16:28
 
 
-
-
 电脑战后重建简直杯具
 
 基本是推一次之后就毛都没有了，板子上一块肉
-
-
-
-
-
 
 
 -----
 
 ####  stardestroyer  
 ##### 894#       发表于 2016-6-2 19:16
-
 
 
  本帖最后由 stardestroyer 于 2016-6-3 07:45 编辑 
@@ -18143,17 +12405,10 @@ suppress the media？</blockquote>
 PS星区管理真傻逼，明明都禁了重新建设了，还拆盖亚星上的堕落帝国高级建筑
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 895#       发表于 2016-6-2 22:32
-
-
 
 
 求问，有办法能在自己附庸的境内殖民星球么？看着没人要的绿星球好难受
@@ -18161,16 +12416,10 @@ PS星区管理真傻逼，明明都禁了重新建设了，还拆盖亚星上的
 另外这里难道没有交换领地或者直接要求割地的选项么...
 
 
-
-
-
-
-
 -----
 
 ####  demonawen  
 ##### 896#       发表于 2016-6-2 22:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32600431&amp;ptid=1275523" target="_blank">ramiel 发表于 2016-6-2 22:32</a>
@@ -18181,17 +12430,10 @@ PS星区管理真傻逼，明明都禁了重新建设了，还拆盖亚星上的
 放出去，再打一顿，附庸是60点，还够割地的
 
 
-
-
-
-
-
 -----
 
 ####  007.5  
 ##### 897#       发表于 2016-6-3 01:33
-
-
 
 
 拿不到成就是怎么回事，没有使用MOD，而且是1.1新开的档
@@ -18200,16 +12442,10 @@ PS星区管理真傻逼，明明都禁了重新建设了，还拆盖亚星上的
 难道跟之前玩过0元版有关？
 
 
-
-
-
-
-
 -----
 
 ####  qwased  
 ##### 898#       发表于 2016-6-3 01:45
-
 
 
 <blockquote>引用第894楼007.5于2016-06-03 01:33发表的  :
@@ -18223,25 +12459,13 @@ PS星区管理真傻逼，明明都禁了重新建设了，还拆盖亚星上的
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  007.5  
 ##### 899#       发表于 2016-6-3 01:46
 
 
-
-
 所有成就都必须在铁人模式下拿？
-
-
-
-
-
 
 
 -----
@@ -18250,22 +12474,15 @@ PS星区管理真傻逼，明明都禁了重新建设了，还拆盖亚星上的
 ##### 900#       发表于 2016-6-3 02:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32601484&amp;amp;ptid=1275523" target="_blank">007.5 发表于 2016-6-3 01:46</a>
 所有成就都必须在铁人模式下拿？</blockquote>
 P社游戏惯例ba
-
-
-
-
-
 
 
 -----
 
 ####  YMS16M  
 ##### 901#       发表于 2016-6-3 03:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32596430&amp;ptid=1275523" target="_blank">iqbsh 发表于 2016-6-2 13:18</a>
@@ -18276,25 +12493,13 @@ P社游戏惯例ba
 对面反正都是鸡你这轮着打不就好了么。。
 
 
-
-
-
-
-
 -----
 
 ####  sliencer  
 ##### 902#       发表于 2016-6-3 08:24
 
 
-
-
 http://bbs.3dmgame.com/forum.php?mod=viewthread&amp;tid=5104884&amp;extra=page%3D2 来自于3dm，关于1.1的更新详细，有兴趣的可以看一下
-
-
-
-
-
 
 
 -----
@@ -18303,14 +12508,7 @@ http://bbs.3dmgame.com/forum.php?mod=viewthread&amp;tid=5104884&amp;extra=page%3
 ##### 903#       发表于 2016-6-3 08:30
 
 
-
-
 还有事个人关于本次ai修正的感受(仅从战斗而言)。ai这次区别于以往舰队分散突击的战术构想，现在与盟军的AI同步，采取跟随最大规模舰队同步推进的方式进军。虽然方便一次性大歼灭战，但由于ai护卫舰过多而目前大型战舰不能多火力通道攻击，造就了目前形势下大歼灭战的复杂性，但与此同时方便了运动战的展开，预期p社下一次会在拆毁基建点数上做修正(目前点数太高)。还有一点是目前大帝国附属点数太高，让玩家不能一口气灭国，只能多次作战削弱实力的方式完成征服，大大加长了游戏时间。ai
-
-
-
-
-
 
 
 -----
@@ -18319,14 +12517,7 @@ http://bbs.3dmgame.com/forum.php?mod=viewthread&amp;tid=5104884&amp;extra=page%3
 ##### 904#       发表于 2016-6-3 10:02
 
 
-
-
 武器系统应该再改一下 几种武器除了伤害类型不同看不出太大差别 做点AOE的装备多好
-
-
-
-
-
 
 
 -----
@@ -18335,14 +12526,7 @@ http://bbs.3dmgame.com/forum.php?mod=viewthread&amp;tid=5104884&amp;extra=page%3
 ##### 905#       发表于 2016-6-3 10:12
 
 
-
-
 不搞点要塞大炮吗，比如伊谢尔伦的雷神之锤
-
-
-
-
-
 
 
 -----
@@ -18351,23 +12535,15 @@ http://bbs.3dmgame.com/forum.php?mod=viewthread&amp;tid=5104884&amp;extra=page%3
 ##### 906#       发表于 2016-6-3 10:32
 
 
-
-
 刚正面打完一个堕落帝国,看到星球上各种黑科技建筑,第一反应是:DLC地狱没跑了.
 
 dlc名字我都想好了:1失落的帝国,2新科技的诞生,3戴森环
-
-
-
-
-
 
 
 -----
 
 ####  藤岛鸣海  
 ##### 907#       发表于 2016-6-3 11:15
-
 
 
 <blockquote>引用第889楼路德维嘉于2016-06-02 14:38发表的  :
@@ -18381,25 +12557,13 @@ dlc名字我都想好了:1失落的帝国,2新科技的诞生,3戴森环
 ----发送自 [Meizu PRO 5,Android 5.1](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  又土又笨曾阿芬  
 ##### 908#       发表于 2016-6-3 12:19
 
 
-
-
 请问有个找到戴森环灭亡文明的任务，是不是烂尾了？
-
-
-
-
-
 
 
 -----
@@ -18408,15 +12572,9 @@ dlc名字我都想好了:1失落的帝国,2新科技的诞生,3戴森环
 ##### 909#       发表于 2016-6-3 15:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32604733&amp;ptid=1275523" target="_blank">又土又笨曾阿芬 发表于 2016-6-3 12:19</a>
 请问有个找到戴森环灭亡文明的任务，是不是烂尾了？</blockquote>
 最后会给你一个星系的地址，过去开图就算完成任务了吧，我记得我做完奖励了4000能源，直接爆仓了
-
-
-
-
-
 
 
 -----
@@ -18425,14 +12583,7 @@ dlc名字我都想好了:1失落的帝国,2新科技的诞生,3戴森环
 ##### 910#       发表于 2016-6-3 15:58
 
 
-
-
 现在光矛太imba了，之后肯定会有dlc平衡武器吧
-
-
-
-
-
 
 
 -----
@@ -18441,16 +12592,10 @@ dlc名字我都想好了:1失落的帝国,2新科技的诞生,3戴森环
 ##### 911#       发表于 2016-6-3 16:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">找到一个上面有失落科技的星球 兴冲冲安排了星球改造计划改成了温暖的世界
 
 
 然后找不到是哪个了....有没有记录表之类的东西方便查找呢
-
-
-
-
-
 
 
 -----
@@ -18459,15 +12604,9 @@ dlc名字我都想好了:1失落的帝国,2新科技的诞生,3戴森环
 ##### 912#       发表于 2016-6-3 16:42
 
 
-
 <blockquote>wormz 发表于 2016-6-3 15:58
 现在光矛太imba了，之后肯定会有dlc平衡武器吧</blockquote>
 朋友，小船海你听过吗
-
-
-
-
-
 
 
 -----
@@ -18476,16 +12615,9 @@ dlc名字我都想好了:1失落的帝国,2新科技的诞生,3戴森环
 ##### 913#       发表于 2016-6-3 19:38
 
 
-
-
 有没有什么补丁可以让AI学会游击战？现在的AI有点太呆了，平时看到玩家的进攻舰队比自己强太多，也就是疯狂逃命，一旦玩家开始攻击首都或者特定地点，所有舰队又想敢死队一样上来送死。
 
 一个领土稍微大一点的国家，所有舰队拆分成5K以下，然后疯狂游击，绝对不打决战，玩家如果聚成一团拆空间站，那游击部队就分散去换家，顺便截后援追杀科研工程船，玩家在家里造大量的碉堡也不现实，系统自动设计的碉堡完全没有战斗力，自己稍微往上面装几个炮，维护费就高得惊人，根本不能大面积建造，我感觉这种AI可以气死很多人
-
-
-
-
-
 
 
 -----
@@ -18494,16 +12626,10 @@ dlc名字我都想好了:1失落的帝国,2新科技的诞生,3戴森环
 ##### 914#       发表于 2016-6-3 19:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32608326&amp;ptid=1275523" target="_blank">demonawen 发表于 2016-6-3 19:38</a>
 
 有没有什么补丁可以让AI学会游击战？现在的AI有点太呆了，平时看到玩家的进攻舰队比自己强太多，也就是疯狂 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/145.gif" referrerpolicy="no-referrer">路口塞个带亚空间陷阱的要塞就全堵住了
-
-
-
-
-
 
 
 -----
@@ -18512,15 +12638,9 @@ dlc名字我都想好了:1失落的帝国,2新科技的诞生,3戴森环
 ##### 915#       发表于 2016-6-4 00:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32608326&amp;ptid=1275523" target="_blank">demonawen 发表于 2016-6-3 19:38</a>
 有没有什么补丁可以让AI学会游击战？现在的AI有点太呆了，平时看到玩家的进攻舰队比自己强太多，也就是疯狂 ...</blockquote>
 单纯让操作变麻烦根本没有乐趣啊，还不如让AI学会怎样更好的运营让你正面刚不过只能被迫运用战术和外交来取胜
-
-
-
-
-
 
 
 -----
@@ -18529,16 +12649,10 @@ dlc名字我都想好了:1失落的帝国,2新科技的诞生,3戴森环
 ##### 916#       发表于 2016-6-4 05:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32610045&amp;ptid=1275523" target="_blank">可可洛酱 发表于 2016-6-4 00:00</a>
 
 单纯让操作变麻烦根本没有乐趣啊，还不如让AI学会怎样更好的运营让你正面刚不过只能被迫运用战术和外交来 ...</blockquote>
 问题是AI运营非常傻，简单说就是一点都不偷，首先舰队直奔上限，为了造舰队和维持舰队就没有科技，然后这个版本星球加了科技惩罚，AI还是狂抢地的模式，结果科技就慢的不能看了
-
-
-
-
-
 
 
 -----
@@ -18547,22 +12661,13 @@ dlc名字我都想好了:1失落的帝国,2新科技的诞生,3戴森环
 ##### 917#       发表于 2016-6-4 06:22
 
 
-
-
 bgm挺好听，后悔只买了个不带ost的基础版，等以后升级或者打包吧。
-
-
-
-
-
 
 
 -----
 
 ####  sliencer  
 ##### 918#       发表于 2016-6-4 08:53
-
-
 
 
 不知道本楼楼友有没有遭遇过选举的时候候选人缺失的问题
@@ -18572,27 +12677,15 @@ bgm挺好听，后悔只买了个不带ost的基础版，等以后升级或者�
 舰队司令技能是削减维护成本，结果我现在舰队都没法开出港口，GG
 
 
-
-
-
-
-
 -----
 
 ####  大哀之君  
 ##### 919#       发表于 2016-6-4 09:19
 
 
-
-
 拆除整支舰队会导致当值指挥官殉舰的Bug修正了没有。虽说平常不会有哪个玩家拆自己舰队，但这Bug好傻啊
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (NOKIA Lumia 920)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
@@ -18601,17 +12694,10 @@ bgm挺好听，后悔只买了个不带ost的基础版，等以后升级或者�
 ##### 920#       发表于 2016-6-4 12:12
 
 
-
-
 麻痹，后期卡的一逼，没法玩
 
 
 ----发送自 [LGE LG-H818,Android 5.1](http://stage1.5j4m.com/?1.19)
-
-
-
-
-
 
 
 -----
@@ -18620,14 +12706,7 @@ bgm挺好听，后悔只买了个不带ost的基础版，等以后升级或者�
 ##### 921#       发表于 2016-6-5 00:29
 
 
-
-
 话说中期扩张乏力要怎么解决，选了个大地图四旋臂结构，现在被两个文明夹在中间，一个死活只给民船通行权，另一个似乎是因为之前净化了一部分造反的外星人导致关系冷淡，开战势力又不够，还有什么别的办法吗
-
-
-
-
-
 
 
 -----
@@ -18636,20 +12715,13 @@ bgm挺好听，后悔只买了个不带ost的基础版，等以后升级或者�
 ##### 922#       发表于 2016-6-5 01:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">麻痹 二十几年就找到一个能殖民的地方...还是一个垃圾星域 什么都没有
-
-
-
-
-
 
 
 -----
 
 ####  可可洛酱  
 ##### 923#       发表于 2016-6-5 02:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32611248&amp;ptid=1275523" target="_blank">sliencer 发表于 2016-6-4 08:53</a>
@@ -18661,16 +12733,10 @@ bgm挺好听，后悔只买了个不带ost的基础版，等以后升级或者�
 还是老实造电厂吧，否则就算不选举你这个领导一嗝屁你还是要GG。。。
 
 
-
-
-
-
-
 -----
 
 ####  可可洛酱  
 ##### 924#       发表于 2016-6-5 02:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32599172&amp;ptid=1275523" target="_blank">stardestroyer 发表于 2016-6-2 19:16</a>
@@ -18680,25 +12746,13 @@ bgm挺好听，后悔只买了个不带ost的基础版，等以后升级或者�
 护盾的文字说明就是脱离战斗之后会自动回复，装上电容会战时回复的效果不知道是bug还是隐藏设定，顺带一提M槽的电容是最划算的，我觉得p社这里的数值设计有问题，L电容只有M的1.5倍。。。
 
 
-
-
-
-
-
 -----
 
 ####  夜游的树  
 ##### 925#       发表于 2016-6-5 04:03
 
 
-
-
 话说，1.1版本后有什么快一点征服国家的办法没？现在对面国家稍微大一点附庸要的战争点数就好几百了，该不会真的只能一个星球一个星球地占吧，卡的不行还好耗时间啊……
-
-
-
-
-
 
 
 -----
@@ -18707,17 +12761,10 @@ bgm挺好听，后悔只买了个不带ost的基础版，等以后升级或者�
 ##### 926#       发表于 2016-6-5 06:09
 
 
-
-
 这游戏后期好恶心，军力够足但是打起仗来电脑都是小规模骚扰打游击战，犹如铁锤砸棉花一样的使不上劲。和联盟开战一次就是全面战争，结果能割的地还少的可怜，还尼玛有停战时限……
 
 
 感觉和CK2刚出来的时候吃屎的感觉很像，我还是等到了查理曼DLC才重新捡起来的，这游戏估计也要扔下来等了
-
-
-
-
-
 
 
 -----
@@ -18726,22 +12773,15 @@ bgm挺好听，后悔只买了个不带ost的基础版，等以后升级或者�
 ##### 927#       发表于 2016-6-5 11:06
 
 
-
 <blockquote>可可洛酱 发表于 2016-6-5 02:56
 还是老实造电厂吧，否则就算不选举你这个领导一嗝屁你还是要GG。。。</blockquote>
 我后来开了八个球然后全转电厂才解决电力问题，太坑……
-
-
-
-
-
 
 
 -----
 
 ####  夏影  
 ##### 928#       发表于 2016-6-5 11:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32607080&amp;ptid=1275523" target="_blank">iqbsh 发表于 2016-6-3 16:40</a>
@@ -18753,16 +12793,10 @@ bgm挺好听，后悔只买了个不带ost的基础版，等以后升级或者�
 编个队就是了，我从0开始往前面编
 
 
-
-
-
-
-
 -----
 
 ####  Surlert  
 ##### 929#       发表于 2016-6-5 11:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32618783&amp;ptid=1275523" target="_blank">多多天下 发表于 2016-6-5 06:09</a>
@@ -18773,16 +12807,10 @@ bgm挺好听，后悔只买了个不带ost的基础版，等以后升级或者�
 不过联盟一大就麻烦了,有时候会银河另一边杀出陌生帝国的主力来,所以中期务必远交近攻,防止对面结盟.
 
 
-
-
-
-
-
 -----
 
 ####  stardestroyer  
 ##### 930#       发表于 2016-6-5 12:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32618579&amp;ptid=1275523" target="_blank">可可洛酱 发表于 2016-6-5 02:59</a>
@@ -18794,25 +12822,13 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 科研也是这样，基本上星球越少，研发越快，这是什么脑残反直觉设定。现在开了很多局了，都是2300年不到，3-4星球爬满所有我想要科技，Jump Drive，高级护盾，零点模块，3级PD，超光（速子长矛），战列相关。造10只战列就可以开战了。其他的小艇导弹，快速扩张流派都太累。
 
 
-
-
-
-
-
 -----
 
 ####  Theseus  
 ##### 931#       发表于 2016-6-5 12:51
 
 
-
-
 你们遇到过这种ai不？有次我9k对对面6K部队，然后电脑疯狂把部队拆成单只一组，闪避又高，结果我火力全部溢出。最后被全灭，对面和起来还有5K。
-
-
-
-
-
 
 
 -----
@@ -18821,14 +12837,7 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 ##### 932#       发表于 2016-6-5 12:55
 
 
-
-
 然后还遇到个bug，拆分舰队后，司令也分身了。而且万寿无疆，现在都300多岁了。
-
-
-
-
-
 
 
 -----
@@ -18837,21 +12846,13 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 ##### 933#       发表于 2016-6-5 16:11
 
 
-
-
 一个星球才多10%科研惩罚，而且人口的科研惩罚比原来还降低了，平均一个星球10人口就不会比原来慢，除非殖民船不带停的，现在科研比以前还要快
-
-
-
-
-
 
 
 -----
 
 ####  stardestroyer  
 ##### 934#       发表于 2016-6-5 17:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32621863&amp;ptid=1275523" target="_blank">夏影 发表于 2016-6-5 16:11</a>
@@ -18862,16 +12863,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 说实话，现在改成不能直接附庸我都不知道和人开战的意义在哪里，之前开战还可以说我想要舰队到达银河的尽头；现在开战能干嘛，割地给我么？我还不要，除了拖累科研什么用处都没有
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 935#       发表于 2016-6-5 18:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32622218&amp;ptid=1275523" target="_blank">stardestroyer 发表于 2016-6-5 17:13</a>
@@ -18885,17 +12880,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 <img src="http://ww2.sinaimg.cn/mw690/7e8b2857gw1f4kihdlxc2j20go0iy446.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  可可洛酱  
 ##### 936#       发表于 2016-6-5 18:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32618783&amp;ptid=1275523" target="_blank">多多天下 发表于 2016-6-5 06:09</a>
@@ -18904,16 +12892,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 你需要造点防御要塞，带上捕获，对面的骚扰部队小规模根本打不过，后期的防御要塞战力可以达到好几K的。如果对面大部队拆家要塞还能帮你争取回救的时间
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 937#       发表于 2016-6-5 18:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32622660&amp;ptid=1275523" target="_blank">可可洛酱 发表于 2016-6-5 18:33</a>
@@ -18922,17 +12904,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 我是开战前放单独一个小护卫舰在边境，旁边星系放大部队。等对面部队过来吃我小护卫舰的时候，跳过去骑脸然后追击，消灭对面大部队后，用一半正常进攻，另一半在原来的星系守株待兔等对面的部队来吃我那个护卫舰诱饵
 
 
-
-
-
-
-
 -----
 
 ####  zephyrus99  
 ##### 938#       发表于 2016-6-5 20:54
-
-
 
 
 出差了一段时间，现在不会玩了
@@ -18940,16 +12915,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 现在把前哨战交给AI，但是影响力的减扣还在？
 
 
-
-
-
-
-
 -----
 
 ####  antiultima  
 ##### 939#       发表于 2016-6-6 09:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32623585&amp;ptid=1275523" target="_blank">zephyrus99 发表于 2016-6-5 20:54</a>
@@ -18962,16 +12931,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 所以不用的前哨战该拆就得拆
 
 
-
-
-
-
-
 -----
 
 ####  sliencer  
 ##### 940#       发表于 2016-6-6 10:36
-
 
 
 <blockquote>Surlert 发表于 2016-6-5 11:43
@@ -18981,16 +12944,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 最关键是一定要保证小国联邦不会背后捅刀子，我之前灭掉大国联邦80%的舰队(150k)后，整个银河全跟我宣战了，然后就是无尽游击战，简直恶心……
 
 
-
-
-
-
-
 -----
 
 ####  momoranshi  
 ##### 941#       发表于 2016-6-6 15:33
-
 
 
  本帖最后由 momoranshi 于 2016-6-6 15:45 编辑 
@@ -19003,17 +12960,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 然后在帝国进内巡逻。
 
 
-
-
-
-
-
 -----
 
 ####  朱洪武  
 ##### 942#       发表于 2016-6-6 16:23
-
-
 
 
 刚入坑请教几个问题：
@@ -19029,17 +12979,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 5，目前在一个有原始文明的星系里发现了一个可殖民星球，如果我殖民了以后它突然跃升到太空时代，会不会把我的殖民星抢去了？（顺便问一下，“工业时代”跃升到太空时代大概需要多少年？）
 
 
-
-
-
-
-
 -----
 
 ####  007.5  
 ##### 943#       发表于 2016-6-6 16:55
-
-
 
 
 同样问下，进入中期以后怎么继续扩张势力范围，继续殖民然后划分星区托管？总不会是满地铺前哨吧，影响力根本不够啊
@@ -19051,16 +12994,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 还有影响力应该怎么赚，自动涨太慢了，死几个领导就不够了，靠新首领上台的政策也很看RP，十有八九是造4个研究站，但是势力范围内根本没有地方能造啊
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 944#       发表于 2016-6-6 17:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32630640&amp;ptid=1275523" target="_blank">momoranshi 发表于 2016-6-6 15:33</a>
@@ -19072,16 +13009,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 商船MOD已经有了，这个应该也是可以实现的，就是后期会卡死……
 
 
-
-
-
-
-
 -----
 
 ####  Inquisitor  
 ##### 945#       发表于 2016-6-6 17:06
-
 
 
 <blockquote>引用第940楼007.5于2016-06-06 16:55发表的  :
@@ -19095,16 +13026,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  iqbsh  
 ##### 946#       发表于 2016-6-6 17:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32631058&amp;ptid=1275523" target="_blank">朱洪武 发表于 2016-6-6 16:23</a>
@@ -19123,27 +13048,15 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 5、你提携的星球就是一步登天，石器时代带起来反贼的几率超大，所以最好是找个工业星球先搞渗透 石器时代的让他去死吧
 
 
-
-
-
-
-
 -----
 
 ####  大哀之君  
 ##### 947#       发表于 2016-6-6 17:39
 
 
-
-
 石器时代殖民前就是个星球Buff，可以启蒙的文明从青铜时代起算。我cos先行者把一路遇到的所有低级文明全都拉上太空，结果现在天天被垃圾话扰屏，也是惨
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (NOKIA Lumia 920)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
@@ -19152,23 +13065,15 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 ##### 948#       发表于 2016-6-6 17:40
 
 
-
-
 大清洗能不搞就不搞吧....被堕落爸爸宣是一码事 本族如果没有虫族的那种超快繁殖能力 想把一个空星球铺满人实在是麻烦 移民的速度也不是很快
 
 这把上来就刷出纪念碑 VR 大游乐场 占了星球就盖好 根本没党派一说 果然死老百姓就喜欢玩玩玩啊...
-
-
-
-
-
 
 
 -----
 
 ####  朱洪武  
 ##### 949#       发表于 2016-6-6 17:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32631576&amp;ptid=1275523" target="_blank">iqbsh 发表于 2016-6-6 17:20</a>
@@ -19181,26 +13086,15 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 而且感觉宜居星球的数量也真是太少了点，能找到的大多也很小或者都是地形障碍格子。好不容易探到一个盖亚星，足足离我首都有3个虫洞的距离。看来这还真是看脸风云。
 
 
-
-
-
-
-
 -----
 
 ####  momoranshi  
 ##### 950#       发表于 2016-6-6 19:41
 
 
-
 <blockquote>美利坚大老爹 发表于 2016-6-6 17:01
 商船MOD已经有了，这个应该也是可以实现的，就是后期会卡死……</blockquote>
 商队MOD又不帮你打怪
-
-
-
-
-
 
 
 -----
@@ -19209,14 +13103,7 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 ##### 951#       发表于 2016-6-6 19:45
 
 
-
-
 这游戏要用高分大屏玩
-
-
-
-
-
 
 
 -----
@@ -19225,23 +13112,15 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 ##### 952#       发表于 2016-6-6 19:57
 
 
-
 <blockquote>iqbsh 发表于 2016-6-6 17:20
 1、主要靠殖民星球、在领土内的星系盖矿场 范围会随年份增长到边界范围上线 在大边境外的独立领土就那么 ...</blockquote>
 怎么迁都？
-
-
-
-
-
 
 
 -----
 
 ####  战列驱逐舰POI  
 ##### 953#       发表于 2016-6-6 21:33
-
-
 
 
 我玩到100+年后就面临扩张地盘的问题了
@@ -19253,17 +13132,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 二   没我殖民的星球或者一大片根本就没能殖民的星球 导致国土连接不上来
 
 
-
-
-
-
-
 -----
 
 ####  mhfdt  
 ##### 954#       发表于 2016-6-6 22:00
-
-
 
 
 养了80K舰队，把堕落爸爸给屠了，然后全奴役，搞破坏的全清洗
@@ -19271,16 +13143,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 全宇宙都是红字，然而并没人宣战我，只有我宣别人
 
 
-
-
-
-
-
 -----
 
 ####  地狱哮喘  
 ##### 955#       发表于 2016-6-6 22:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32631890&amp;ptid=1275523" target="_blank">朱洪武 发表于 2016-6-6 17:58</a>
@@ -19295,32 +13161,19 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 或者基因改造  改一部分本族适应性 打造一堆调整者来殖民
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 956#       发表于 2016-6-6 22:20
 
 
-
-
 升变或者基因改造都不错，升变白送一个星球和500点影响力，自带20幸福，不要太好用；基因改造就殖民地刚建立的时候立刻改造，只要一个月就能改好
-
-
-
-
-
 
 
 -----
 
 ####  iqbsh  
 ##### 957#       发表于 2016-6-6 22:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32633459&amp;ptid=1275523" target="_blank">战列驱逐舰POI 发表于 2016-6-6 21:33</a>
@@ -19335,33 +13188,19 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 2有加边疆范围的科技 优先研究 边界能造的矿场研究点都占了 加上边界站一点点推过去就是了
 
 
-
-
-
-
-
 -----
 
 ####  momoranshi  
 ##### 958#       发表于 2016-6-6 22:32
 
 
-
-
 我现在打下来的版图上有4个帝国都城，我自己首都世界都还没造也没法造了。我现在怎么办？
-
-
-
-
-
 
 
 -----
 
 ####  iqbsh  
 ##### 959#       发表于 2016-6-6 22:38
-
-
 
 
 注意大陆偏好决定幸福度上限  陆地适应的种族到冻土世界幸福度只有20% 如果要改造星球的话 先扔边疆站 再一点点改造成适合你种族的星球 因为星球改造的时候幸福度一直是-100%的
@@ -19375,16 +13214,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 这剧真的好顺 开局就遇到两个盖亚世界 中途一直跟我对着干的一个打算灭绝全宇宙种族(-1000好感)的章鱼头星人被堕落爸爸宣了 
 
 
-
-
-
-
-
 -----
 
 ####  战列驱逐舰POI  
 ##### 960#       发表于 2016-6-6 23:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32633852&amp;ptid=1275523" target="_blank">iqbsh 发表于 2016-6-6 22:28</a>
@@ -19402,18 +13235,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 我的国土中间隔着67个星系才有可以殖民的星球，要不用3个前哨要不就是国土连不起来
 
 
-
-
-
-
-
-
 -----
 
 ####  战列驱逐舰POI  
 ##### 961#       发表于 2016-6-6 23:07
-
-
 
 
 有个问题
@@ -19421,17 +13246,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 我是单一种族。然后有个星球有一半人口对我帝国几个政策有幸福减成。但是看他们的道德属性和另外一半没减成的人口是一样的
 
 
-
-
-
-
-
-
 -----
 
 ####  iqbsh  
 ##### 962#       发表于 2016-6-6 23:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32634102&amp;ptid=1275523" target="_blank">战列驱逐舰POI 发表于 2016-6-6 23:03</a>
@@ -19448,17 +13266,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 所以觉得困难就重开吧 我还遇到一局开局在银河中间的上面靠边界的位置 出去的路都被左右封死了 果断重开
 
 
-
-
-
-
-
 -----
 
 ####  朱洪武  
 ##### 963#       发表于 2016-6-7 14:37
-
-
 
 
 话说这个游戏里面，每个星系能提供的资源简直少到不科学。
@@ -19472,17 +13283,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 这算不算游戏性打败了仿真性的结果。
 
 
-
-
-
-
-
 -----
 
 ####  jy00818348  
 ##### 964#       发表于 2016-6-7 15:02
-
-
 
 
 话说灵能军团和灵能战士怎么用？我全研究了还是只能造突击部队啊
@@ -19504,16 +13308,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 又不能净化。移民1个神TM要50点影响，这种操蛋情况怎么解
 
 
-
-
-
-
-
 -----
 
 ####  wormz  
 ##### 965#       发表于 2016-6-7 19:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32639080&amp;ptid=1275523" target="_blank">jy00818348 发表于 2016-6-7 15:02</a>
@@ -19528,16 +13326,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 慢慢的就老实了
 
 
-
-
-
-
-
 -----
 
 ####  mhfdt  
 ##### 966#       发表于 2016-6-7 19:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32639080&amp;ptid=1275523" target="_blank">jy00818348 发表于 2016-6-7 08:02</a>
@@ -19554,16 +13346,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 另外关于为什么我要养80k的部队——因为当我第一次有了10K的部队的时候，周围没人能挡住我（那时电脑最多4K），在宣了一圈之后都不能宣了之后，我选择了挑战堕落爸爸，当我10k舰队开进去的时候，没有遇到任何阻拦——堕落爸爸直接送了40K舰队跳到首都家门口，把家给屠了。急急忙忙回去救援结果科技差太多，10k不如一张纸。于是我果断读档痛定思痛，一连攀科技一边吃周围国家的地一边继续养军队，养到80K的时候，把堕落爸爸全净化了，并拿下了5个神一样的戴森球领地。于是这下真的没有任何文明能拦得住我了
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 967#       发表于 2016-6-7 19:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32638889&amp;amp;ptid=1275523" target="_blank">朱洪武 发表于 2016-6-7 14:37</a>
@@ -19573,16 +13359,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 现在这游戏里的科技水平还没那么高啊，你看戴森环都造不出
 
 
-
-
-
-
-
 -----
 
 ####  可可洛酱  
 ##### 968#       发表于 2016-6-8 00:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32639080&amp;ptid=1275523" target="_blank">jy00818348 发表于 2016-6-7 15:02</a>
@@ -19593,16 +13373,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 我也被割来的星球的傻逼屁民折腾的不行，现在用的方法是先解放，解放之后的屁民都是跟你同一个道德体系的，然后等10年再宣一次然后选择割地。。。这个方法占来的星球至少不会额外减幸福度，基本上开个宣传广播造个竞技场，10年撑过去就没事了
 
 
-
-
-
-
-
 -----
 
 ####  卖哥  
 ##### 969#       发表于 2016-6-8 01:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32643405&amp;ptid=1275523" target="_blank">可可洛酱 发表于 2016-6-8 00:56</a>
@@ -19613,27 +13387,15 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 收小弟倒是很方便，政府价值观一致，加上释放自带的100好感，一拉就能拉成小弟。
 
 
-
-
-
-
-
 -----
 
 ####  战列驱逐舰POI  
 ##### 970#       发表于 2016-6-8 01:20
 
 
-
-
 下了个轰炸死全家的MOD  太好用了。废物族类 统统去死
 
 副作用就是玩家的陆军永远上不了场
-
-
-
-
-
 
 
 -----
@@ -19642,16 +13404,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 ##### 971#       发表于 2016-6-8 12:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32641071&amp;ptid=1275523" target="_blank">sandro 发表于 2016-6-7 19:13</a>
 
 现在这游戏里的科技水平还没那么高啊，你看戴森环都造不出</blockquote>
 里面有冷聚变科技的，有了这个，木星土星都可以拆了当电池用。
-
-
-
-
-
 
 
 -----
@@ -19660,23 +13416,16 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 ##### 972#       发表于 2016-6-8 13:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32646865&amp;ptid=1275523" target="_blank">朱洪武 发表于 2016-6-8 12:57</a>
 
 里面有冷聚变科技的，有了这个，木星土星都可以拆了当电池用。</blockquote>
 还得有相应的工程学基础啊，要造怎样的设施可以长期稳定地提取气态巨星的气体
 
 
-
-
-
-
-
 -----
 
 ####  jy00818348  
 ##### 973#       发表于 2016-6-8 13:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32641051&amp;ptid=1275523" target="_blank">mhfdt 发表于 2016-6-7 19:10</a>
@@ -19691,16 +13440,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 怕玩家早期RUSH附庸流就让星球本身能装武器啊，星球本身只能光挨打没地面防御才奇怪吧？
 
 
-
-
-
-
-
 -----
 
 ####  朱洪武  
 ##### 974#       发表于 2016-6-8 13:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32647155&amp;ptid=1275523" target="_blank">sandro 发表于 2016-6-8 13:27</a>
@@ -19713,11 +13456,6 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 低等文明和高等文明追求的战略资源可能完全不同。游戏的变化也就更多了。
 
 一个以整个银河系为舞台的游戏怎么能那么小家子气？
-
-
-
-
-
 
 
 -----
@@ -19726,7 +13464,6 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 ##### 975#       发表于 2016-6-8 13:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32647155&amp;ptid=1275523" target="_blank">sandro 发表于 2016-6-8 13:27</a>
 
 还得有相应的工程学基础啊，要造怎样的设施可以长期稳定地提取气态巨星的气体 ...</blockquote>
@@ -19739,17 +13476,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 一个以整个银河系为舞台的游戏怎么能那么小家子气？
 
 
-
-
-
-
-
 -----
 
 ####  iqbsh  
 ##### 976#       发表于 2016-6-8 14:31
-
-
 
 
 关于建设：如果有20+格子的世界 千万别浪费 反正无视掉星球上那+1 +2的小资源 保证食物供给 都造电厂 有3个这样的星球能在保证有交易中心+政策的条件下提供250+的电力 贝矿电站也都造到这个星球上 连接到首都四周是最好的 三种科技也这么造就行了 如果星球上有buff那最好不过
@@ -19758,16 +13488,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 科技船是可以通过研究科技 在有科技的殖民星球上辅助加buff的 所以多造几个科技船一点也不亏
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 977#       发表于 2016-6-8 16:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32647334&amp;ptid=1275523" target="_blank">朱洪武 发表于 2016-6-8 13:47</a>
@@ -19778,16 +13502,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 游戏性问题，不可能千百倍的，稀有战略资源产出多个一两倍顶天了
 
 
-
-
-
-
-
 -----
 
 ####  朱洪武  
 ##### 978#       发表于 2016-6-8 16:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32648429&amp;ptid=1275523" target="_blank">夏影 发表于 2016-6-8 16:05</a>
@@ -19802,16 +13520,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 另外就是地球化改造要什么稀有资源也是没道理，直接就是上矿物上能源！不能把所有星系改成本族移居星球还算啥超级文明。
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 979#       发表于 2016-6-8 16:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32648488&amp;ptid=1275523" target="_blank">朱洪武 发表于 2016-6-8 16:12</a>
@@ -19822,16 +13534,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 策略游戏什么时候会有爽快感的，出现的资源必然是限制的。你要是不开心就当上面的数字是科学计数法后面指数，游戏实际按乘除法而不是加减法运行
 
 
-
-
-
-
-
 -----
 
 ####  朱洪武  
 ##### 980#       发表于 2016-6-8 17:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32648614&amp;ptid=1275523" target="_blank">夏影 发表于 2016-6-8 16:28</a>
@@ -19844,16 +13550,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 不过既然群星是以银河系为舞台的科幻游戏，就不该被传统策略游戏的设计思路束缚住想象力。
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 981#       发表于 2016-6-8 17:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32648899&amp;ptid=1275523" target="_blank">朱洪武 发表于 2016-6-8 17:05</a>
@@ -19864,17 +13564,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 你要这么想，一两年就能研发出来的新科技，能牛逼到哪里去，只不过名字听上去高大上
 
 
-
-
-
-
-
 -----
 
 ####  哈尔摩尼亚  
 ##### 982#       发表于 2016-6-8 18:34
-
-
 
 
 刚玩没几天，问几个问题：
@@ -19886,16 +13579,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 5.为什么宣战目的只有跟别人分享科技跟帮别人解放...好歹是极端军国主义，起码割地赔款签个不平等条约吧为什么如此友善<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  夜游的树  
 ##### 983#       发表于 2016-6-8 19:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32648488&amp;ptid=1275523" target="_blank">朱洪武 发表于 2016-6-8 16:12</a>
@@ -19908,17 +13595,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 就是这个科技很后面，感觉其他科技都研究完了才出来
 
 
-
-
-
-
-
 -----
 
 ####  战列驱逐舰POI  
 ##### 984#       发表于 2016-6-8 19:20
-
-
 
 
 玩了好多天  说下感想吧
@@ -19938,16 +13618,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 感觉自己玩过的4X类最好玩的还是太空帝国，可惜程序员导致的AI问题和回合等待导致游戏没法玩
 
 
-
-
-
-
-
 -----
 
 ####  mhfdt  
 ##### 985#       发表于 2016-6-8 22:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32649517&amp;ptid=1275523" target="_blank">哈尔摩尼亚 发表于 2016-6-8 11:34</a>
@@ -19972,16 +13646,10 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 宣战目的的话，不清楚你意识形态是不是还是有其他冲突或者什么的，我是一般军国，天天抢地已经抢疯
 
 
-
-
-
-
-
 -----
 
 ####  mhfdt  
 ##### 986#       发表于 2016-6-8 22:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32647284&amp;ptid=1275523" target="_blank">jy00818348 发表于 2016-6-8 06:43</a>
@@ -19996,25 +13664,13 @@ P社的数值设定很有问题，这个武器设定放到任何一个竞技**�
 psi引擎是引擎里的最后一种，路很长的，慢慢打吧
 
 
-
-
-
-
-
 -----
 
 ####  wangxu9909  
 ##### 987#       发表于 2016-6-9 09:37
 
 
-
-
 。。。。我一开始以为只有绿色箭头的星系才能去，在初始三星系憋了不知道多少年，后来突然发先未知的也能点。。。。那这个箭头是什么意思。。。重开档。第二个档母性系只有四个矿，坚持在附近探索了一下也没什么好东西。玩了四个小时还没见到几个外星文明呢。。。
-
-
-
-
-
 
 
 -----
@@ -20023,23 +13679,16 @@ psi引擎是引擎里的最后一种，路很长的，慢慢打吧
 ##### 988#       发表于 2016-6-9 11:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32653242&amp;ptid=1275523" target="_blank">wangxu9909 发表于 2016-6-9 09:37</a>
 
 。。。。我一开始以为只有绿色箭头的星系才能去，在初始三星系憋了不知道多少年，后来突然发先未知的也能点 ...</blockquote>
 想了半天绿色箭头是啥，原来是星系内地图，绿色箭头表示周围已经探索过的星系，正常游戏方式请按M或E用大地图进行，基本操作不太需要进入星系内的
 
 
-
-
-
-
-
 -----
 
 ####  jy00818348  
 ##### 989#       发表于 2016-6-9 13:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32651168&amp;ptid=1275523" target="_blank">mhfdt 发表于 2016-6-8 22:42</a>
@@ -20058,32 +13707,19 @@ psi引擎是引擎里的最后一种，路很长的，慢慢打吧
 无论如何拿不出来，解散星区就消失，简直要亡国的节奏
 
 
-
-
-
-
-
 -----
 
 ####  厄斯沃穆  
 ##### 990#       发表于 2016-6-9 13:34
 
 
-
-
 刚开始玩，感觉就是影响力特别不足……有什么可靠的办法增加影响力吗？
-
-
-
-
-
 
 
 -----
 
 ####  卖哥  
 ##### 991#       发表于 2016-6-9 13:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32655200&amp;ptid=1275523" target="_blank">厄斯沃穆 发表于 2016-6-9 13:34</a>
@@ -20094,32 +13730,19 @@ psi引擎是引擎里的最后一种，路很长的，慢慢打吧
 指定宿敌。
 
 
-
-
-
-
-
 -----
 
 ####  ZHOUWUYING  
 ##### 992#       发表于 2016-6-9 19:57
 
 
-
-
 这作搞笑的 太空4x在哪里，我只看到太空玄幻，用文本驱动本身就是不科学。太空作品的重点应该是扩张建设种田，外交和其他的根本没有参考样本，用人类社会的那套玩太空low到爆
-
-
-
-
-
 
 
 -----
 
 ####  杨的退休金  
 ##### 993#       发表于 2016-6-9 22:34
-
 
 
  本帖最后由 杨的退休金 于 2016-6-9 22:36 编辑 
@@ -20149,16 +13772,10 @@ psi引擎是引擎里的最后一种，路很长的，慢慢打吧
 1.1版本要比1.03难，后延了玩家爆发期，当然，电脑也受到版本影响，爆兵，扩张要比1。03弱了。后期似乎优化了一些1.1要比1.03流畅。后期阶段是在不行就用控制台开ob让电脑打吧，电脑在联邦互殴的局面下真的比人表现好太多。
 
 
-
-
-
-
-
 -----
 
 ####  mhfdt  
 ##### 994#       发表于 2016-6-10 03:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32655098&amp;ptid=1275523" target="_blank">jy00818348 发表于 2016-6-9 06:19</a>
@@ -20175,17 +13792,10 @@ psi引擎是引擎里的最后一种，路很长的，慢慢打吧
 自治区前期一个是要有人领导管，还有一个就是输血，然后指定好产什么，一般缺啥补啥，用不了几年就直接能回血了
 
 
-
-
-
-
-
 -----
 
 ####  emptystring  
 ##### 995#       发表于 2016-6-10 08:56
-
-
 
 
 1.1版本可以开场迅速5-6个星球殖民圈地，尽可能的殖民20格以上的星球，然后全力攀科技，每个星球在保证食物和电力的情况下全部建科研建筑，然后研究辅助研究挂上科技船，影响力够的话点开政策保证幸福度90%以上。
@@ -20197,25 +13807,13 @@ psi引擎是引擎里的最后一种，路很长的，慢慢打吧
 重要科技基本攀完以后可以考虑开始暴铺提高能源和矿物产量，或者干脆打下有戴森环的堕落爸爸然后奴役清洗上机器人之类的，这样基本上只要AI没有形成大型联邦就没人能阻挡你的舰队了
 
 
-
-
-
-
-
 -----
 
 ####  cl776  
 ##### 996#       发表于 2016-6-10 11:19
 
 
-
-
 五六个球的地盘，维持大舰队要用很多哨站圈地供给能源吧，影响力怎么解决？
-
-
-
-
-
 
 
 -----
@@ -20224,16 +13822,10 @@ psi引擎是引擎里的最后一种，路很长的，慢慢打吧
 ##### 997#       发表于 2016-6-10 13:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32661862&amp;ptid=1275523" target="_blank">cl776 发表于 2016-6-10 11:19</a>
 
 五六个球的地盘，维持大舰队要用很多哨站圈地供给能源吧，影响力怎么解决？ ...</blockquote>
 直接殖民星球就可以了，除了初期圈矿或者防止敌国扩张，后期用来圈个战略资源，没必要修哨站
-
-
-
-
-
 
 
 -----
@@ -20242,21 +13834,13 @@ psi引擎是引擎里的最后一种，路很长的，慢慢打吧
 ##### 998#       发表于 2016-6-10 16:35
 
 
-
-
 可能我开的两局脸太差，开局周围能殖民的星球没有好的
-
-
-
-
-
 
 
 -----
 
 ####  卖哥  
 ##### 999#       发表于 2016-6-10 17:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32663823&amp;ptid=1275523" target="_blank">cl776 发表于 2016-6-10 16:35</a>
@@ -20267,16 +13851,10 @@ psi引擎是引擎里的最后一种，路很长的，慢慢打吧
 当然非要要求20格才殖民那就比较看脸了
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 1000#       发表于 2016-6-10 17:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32663823&amp;ptid=1275523" target="_blank">cl776 发表于 2016-6-10 16:35</a>
@@ -20285,25 +13863,13 @@ psi引擎是引擎里的最后一种，路很长的，慢慢打吧
 比首都大我就能接受，位置可能更关键点，稍微离首都有点距离，能连起来覆盖一片更好，第一个分基20人口以上到40年也不一定能涨满人口，还不如选个位置好的
 
 
-
-
-
-
-
 -----
 
 ####  可可洛酱  
 ##### 1001#       发表于 2016-6-10 19:09
 
 
-
-
 话说1.1不用mod的情况下还能换首都吗？16格的首都实在太浪费了。。。
-
-
-
-
-
 
 
 -----
@@ -20312,14 +13878,7 @@ psi引擎是引擎里的最后一种，路很长的，慢慢打吧
 ##### 1002#       发表于 2016-6-10 22:00
 
 
-
-
 现在不是有“战败割队友地”流这样的BUG吗？
-
-
-
-
-
 
 
 -----
@@ -20328,17 +13887,10 @@ psi引擎是引擎里的最后一种，路很长的，慢慢打吧
 ##### 1003#       发表于 2016-6-11 01:43
 
 
-
-
 控制台怎么用？
 
 
 输[minerals + 2000]或是[minerals 2000]直接unkown
-
-
-
-
-
 
 
 -----
@@ -20347,21 +13899,13 @@ psi引擎是引擎里的最后一种，路很长的，慢慢打吧
 ##### 1004#       发表于 2016-6-11 02:44
 
 
-
-
 打到后期感觉战争太繁琐了。尤其是大地图边境线一长敌人总是很多小队来进攻，大地图上密密麻麻到处骚扰烦的要死。
-
-
-
-
-
 
 
 -----
 
 ####  Inquisitor  
 ##### 1005#       发表于 2016-6-11 09:47
-
 
 
 <blockquote>引用第1000楼九十九忍于2016-06-11 01:43发表的  :
@@ -20375,17 +13919,10 @@ psi引擎是引擎里的最后一种，路很长的，慢慢打吧
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  iqbsh  
 ##### 1006#       发表于 2016-6-11 10:33
-
-
 
 
 现在已经占了半个银河 堕落爸爸被我灭了俩 剩下一个在主动宣我之后被暴打成地下弱小 然后被隔壁的联盟渔翁得利了
@@ -20393,16 +13930,10 @@ psi引擎是引擎里的最后一种，路很长的，慢慢打吧
 现在是三分天下 我 隔壁种族洁癖 和上边一个财团 每十年才能吃几个星球真是慢的不行 还得在列表里一个个找离我近的 反正占了堕落爸爸两个戴森环和一个盖亚 资源多过天  就是上百K的舰队找不到对手怪寂寞的
 
 
-
-
-
-
-
 -----
 
 ####  momoranshi  
 ##### 1007#       发表于 2016-6-11 14:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32667637&amp;ptid=1275523" target="_blank">九十九忍 发表于 2016-6-11 01:43</a>
@@ -20414,17 +13945,10 @@ psi引擎是引擎里的最后一种，路很长的，慢慢打吧
 直接输入 minerals 就行了，直接给5000.
 
 
-
-
-
-
-
 -----
 
 ####  lb19931118  
 ##### 1008#       发表于 2016-6-11 16:26
-
-
 
 
 现在大家抱怨最多的就是中后期联盟大战了。。。
@@ -20454,28 +13978,13 @@ ai最有用的时候就是刚正面莽一波的时候，其他时候捉急。
 起码能让友方ai和敌方ai对攻，互相骚扰+拦截之类的。让玩家省省心。比如加一个“f2全军莽夫模式”“f4协助防御宗主国空间站”
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  monono  
 ##### 1009#       发表于 2016-6-11 19:58
 
 
-
-
 后来重新开了一局选大家只能用那种沿着隔壁星球飞的方式，感觉也挺有趣！各种关键路线点抢星球建要塞。
-
-
-
-
-
 
 
 -----
@@ -20484,14 +13993,7 @@ ai最有用的时候就是刚正面莽一波的时候，其他时候捉急。
 ##### 1010#       发表于 2016-6-11 21:54
 
 
-
-
 灭了一个堕落帝国，怎么全宇宙都对我好感跌到低了，感觉马上就要陷入人民战争汪洋大海了怎么破？
-
-
-
-
-
 
 
 -----
@@ -20500,24 +14002,16 @@ ai最有用的时候就是刚正面莽一波的时候，其他时候捉急。
 ##### 1011#       发表于 2016-6-11 22:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32673244&amp;ptid=1275523" target="_blank">monono 发表于 2016-6-11 19:58</a>
 
 后来重新开了一局选大家只能用那种沿着隔壁星球飞的方式，感觉也挺有趣！各种关键路线点抢星球建要塞。 ...</blockquote>
 PSI驱动一出就废掉了……虽然很少有电脑会出
 
 
-
-
-
-
-
 -----
 
 ####  朱洪武  
 ##### 1012#       发表于 2016-6-12 14:52
-
-
 
 
 周末玩了下再来说说想法：
@@ -20529,16 +14023,10 @@ PSI驱动一出就废掉了……虽然很少有电脑会出
 3，关于POP，现在一个POP只不过是一个占位的工作人口，彼此之间没有任何不同（暂不考虑多民族问题），把两个格子里的POP交换，结果完全一样，产出没有区别。而实际上，POP之间理应也应该搞出一个类似于升级的系统出来。一个在科研机构工作了很久的POP和一个在矿场工作了很久的POP一定是不一样的，一个在繁荣母星的POP和一个在蛮荒殖民地的POP肯定也是不一样的。维多利亚2都存在POP转换，群星反而没有。P社游戏特有的模拟乐趣也就少了很多。
 
 
-
-
-
-
-
 -----
 
 ####  九十九忍  
 ##### 1013#       发表于 2016-6-13 22:26
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">我军队是不是走错什么路线了
@@ -20552,16 +14040,10 @@ PSI驱动一出就废掉了……虽然很少有电脑会出
 然后和一堆结晶野怪干起来的时候巡洋舰和驱逐舰冲上去各种狗斗，护卫舰一波全灭……
 
 
-
-
-
-
-
 -----
 
 ####  YMS16M  
 ##### 1014#       发表于 2016-6-14 08:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32695057&amp;ptid=1275523" target="_blank">九十九忍 发表于 2016-6-13 22:26</a>
@@ -20577,17 +14059,10 @@ PSI驱动一出就废掉了……虽然很少有电脑会出
 2鱼雷加一个点防御数量压制所有人
 
 
-
-
-
-
-
 -----
 
 ####  iqbsh  
 ##### 1015#       发表于 2016-6-14 13:46
-
-
 
 
 早期快速武力扩张还是点导弹
@@ -20595,17 +14070,10 @@ PSI驱动一出就废掉了……虽然很少有电脑会出
 基本研究出光矛别的武器就可以下课了 这玩意太bug
 
 
-
-
-
-
-
 -----
 
 ####  杨的退休金  
 ##### 1016#       发表于 2016-6-15 17:07
-
-
 
 
 很快就要出1.2版本了，最大的改动是殖民星球也要消耗影响力了。边哨站以及殖民星球消耗的影响力大小和首都的距离有关。
@@ -20615,26 +14083,14 @@ PSI驱动一出就废掉了……虽然很少有电脑会出
 爆铺又被砍一刀。
 
 
-
-
-
-
-
 -----
 
 ####  侯景  
 ##### 1017#       发表于 2016-6-20 18:20
 
 
-
-
 砸锅卖铁攒了54k舰队，准备去邻居家打砸抢，然后接到消息虫群朝某边境殖民地开来的消息。
 区区虫子有啥可怕，看我54k战列舰教你做虫，然后看见了90k虫子......
-
-
-
-
-
 
 
 -----
@@ -20643,14 +14099,7 @@ PSI驱动一出就废掉了……虽然很少有电脑会出
 ##### 1018#       发表于 2016-6-20 18:25
 
 
-
-
 对了，怎么改变媚外为排外，不能种族清洗好痛苦
-
-
-
-
-
 
 
 -----
@@ -20659,22 +14108,14 @@ PSI驱动一出就废掉了……虽然很少有电脑会出
 ##### 1019#       发表于 2016-6-20 18:27
 
 
-
-
 好不容易打到只剩一个帝国了，联盟里最大的那个跳了反<img src="https://static.saraba1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
 这游戏根本玩不完吧
-
-
-
-
-
 
 
 -----
 
 ####  美利坚大老爹  
 ##### 1020#       发表于 2016-6-20 18:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32719495&amp;ptid=1275523" target="_blank">哈尔摩尼亚 发表于 2016-6-20 18:27</a>
@@ -20691,17 +14132,10 @@ PSI驱动一出就废掉了……虽然很少有电脑会出
 等DLC，HOI4也一样，两者的优点是创意工坊，缺点是P社竟然搞半成品
 
 
-
-
-
-
-
 -----
 
 ####  战列驱逐舰POI  
 ##### 1021#       发表于 2016-6-20 20:05
-
-
 
 
 群星这毒还是没HOI4好吸
@@ -20714,27 +14148,15 @@ PSI驱动一出就废掉了……虽然很少有电脑会出
 HOI4虽然也是半成品，但是有前几代的底子，玩法还是很多的。中国的步兵海，美帝的土豪。
 
 
-
-
-
-
-
 -----
 
 ####  娱樂記者阿卡林  
 ##### 1022#       发表于 2016-6-20 20:10
 
 
-
-
 想玩得爽还是要装核平和星球毁灭mod
 
 打一个国家就制造不小的无人区，绝大部分文明不能在废土世界生存
-
-
-
-
-
 
 
 -----
@@ -20743,14 +14165,7 @@ HOI4虽然也是半成品，但是有前几代的底子，玩法还是很多的�
 ##### 1023#       发表于 2016-6-20 20:45
 
 
-
-
 殖民也要影响力的话还真的是药丸节奏了
-
-
-
-
-
 
 
 -----
@@ -20759,23 +14174,14 @@ HOI4虽然也是半成品，但是有前几代的底子，玩法还是很多的�
 ##### 1024#       发表于 2016-6-21 18:12
 
 
-
-
 昨天把HALFLIFE2下载下来怀旧，在开始的车站里耐心听了一遍布林博士的电视节目，突然想到联合军禁止人类生育的法令不就是净化吗？！<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
 按照群星的玩法，弗里曼博士应该就是一个新占领星球的反对派系首领了<img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  战列驱逐舰POI  
 ##### 1025#       发表于 2016-6-21 23:37
-
-
 
 
 总觉得P社做群星还是有点没跳出固定思维
@@ -20787,17 +14193,10 @@ HOI4虽然也是半成品，但是有前几代的底子，玩法还是很多的�
 群星就直接用点数限制你的星球数量。
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 1026#       发表于 2016-6-21 23:52
-
-
 
 
 我倒觉得是限制电脑，傻爆谁比的过残酷电脑，50年不到不管大小10多个星球就下去了，地占了一大片却又发展不起来
@@ -20809,16 +14208,10 @@ HOI4虽然也是半成品，但是有前几代的底子，玩法还是很多的�
 再说了，相应的哨站的影响力需求肯定会减，也没什么好担忧的
 
 
-
-
-
-
-
 -----
 
 ####  水龙头君  
 ##### 1027#       发表于 2016-6-22 09:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32731146&amp;ptid=1275523" target="_blank">战列驱逐舰POI 发表于 2016-6-21 23:37</a>
@@ -20833,25 +14226,13 @@ HOI4虽然也是半成品，但是有前几代的底子，玩法还是很多的�
 文明玩到大后期的城市数量一多，微操要烦死了。
 
 
-
-
-
-
-
 -----
 
 ####  乌鸦的皇冠  
 ##### 1028#       发表于 2016-6-22 09:41
 
 
-
-
 第一个图真不是eve的F10?
-
-
-
-
-
 
 
 -----
@@ -20860,14 +14241,7 @@ HOI4虽然也是半成品，但是有前几代的底子，玩法还是很多的�
 ##### 1029#       发表于 2016-6-22 11:13
 
 
-
-
 现在进度把三个堕落中的一个灭了，另两个属于不去碰他们就不会来打你的类型，把虚空入侵的恶魔传送门已经干掉了，接下去只要全歼恶魔就行，星图上的普通帝国已经90%都是小弟了，之后还有什么玩点么？之后还有没有什么特殊事件？我之前听说有什么GAME ENDING事件？
-
-
-
-
-
 
 
 -----
@@ -20876,16 +14250,10 @@ HOI4虽然也是半成品，但是有前几代的底子，玩法还是很多的�
 ##### 1030#       发表于 2016-6-22 16:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32734065&amp;ptid=1275523" target="_blank">兰蒂斯 发表于 2016-6-22 11:13</a>
 
 现在进度把三个堕落中的一个灭了，另两个属于不去碰他们就不会来打你的类型，把虚空入侵的恶魔传送门已经干 ...</blockquote>
 steam 更新了1.2beta ,你可以试试看
-
-
-
-
-
 
 
 -----
@@ -20894,16 +14262,10 @@ steam 更新了1.2beta ,你可以试试看
 ##### 1031#       发表于 2016-6-22 16:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32737296&amp;ptid=1275523" target="_blank">北京喰种 发表于 2016-6-22 16:19</a>
 
 steam 更新了1.2beta ,你可以试试看</blockquote>
 1.2BETA没汉化补丁吧……吃英文有点累啊……虽然这游戏玩到后面也没什么数据很难看的懂，不过有时候看看事件还是蛮有意思的
-
-
-
-
-
 
 
 -----
@@ -20912,14 +14274,7 @@ steam 更新了1.2beta ,你可以试试看</blockquote>
 ##### 1032#       发表于 2016-6-22 20:27
 
 
-
-
 我都删了三次档了，体验很糟
-
-
-
-
-
 
 
 -----
@@ -20928,21 +14283,13 @@ steam 更新了1.2beta ,你可以试试看</blockquote>
 ##### 1033#       发表于 2016-6-24 01:54
 
 
-
-
 p社游戏放个一年出几个dlc就能打了，现在这作除了画面和脑洞事件外，各要素完全不如distant worlds
-
-
-
-
-
 
 
 -----
 
 ####  可可洛酱  
 ##### 1034#       发表于 2016-6-24 02:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32737351&amp;ptid=1275523" target="_blank">兰蒂斯 发表于 2016-6-22 16:24</a>
@@ -20956,17 +14303,10 @@ p社游戏放个一年出几个dlc就能打了，现在这作除了画面和脑�
 话说回来我好佩服这些贴吧人员啊，顶着中考半夜放补丁。。。
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 1035#       发表于 2016-6-25 16:34
-
-
 
 
 我都服了这破资源系统...你们有遇到过耗战略资源的建筑莫名停工的情况么？
@@ -20974,13 +14314,7 @@ p社游戏放个一年出几个dlc就能打了，现在这作除了画面和脑�
 我两座暗物质反应堆停摆，说资源missing了，可明明还是2/2状态
 
 
-
 而且找着建筑简直费了劲了...
-
-
-
-
-
 
 
 -----
@@ -20989,14 +14323,7 @@ p社游戏放个一年出几个dlc就能打了，现在这作除了画面和脑�
 ##### 1036#       发表于 2016-6-25 16:37
 
 
-
-
 另外这电力管理简直坑爹...莫名其妙就没电了，然后找原因贼费劲
-
-
-
-
-
 
 
 -----
@@ -21005,22 +14332,15 @@ p社游戏放个一年出几个dlc就能打了，现在这作除了画面和脑�
 ##### 1037#       发表于 2016-6-25 16:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32734065&amp;amp;ptid=1275523" target="_blank">兰蒂斯 发表于 2016-6-22 11:13</a>
 现在进度把三个堕落中的一个灭了，另两个属于不去碰他们就不会来打你的类型，把虚空入侵的恶魔传送门已经干 ...</blockquote>
 恶魔就是其中之一，还有虫族跟机器人反叛
-
-
-
-
-
 
 
 -----
 
 ####  哈尔摩尼亚  
 ##### 1038#       发表于 2016-6-25 19:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32765464&amp;ptid=1275523" target="_blank">ramiel 发表于 2016-6-25 16:34</a>
@@ -21031,16 +14351,10 @@ p社游戏放个一年出几个dlc就能打了，现在这作除了画面和脑�
 星区之间资源不互通的，但多的战略资源会给你。所以要不然就把产资源的跟耗资源的划给同一个星区，要不然就把耗资源的归为直辖星
 
 
-
-
-
-
-
 -----
 
 ####  兰蒂斯  
 ##### 1039#       发表于 2016-6-26 10:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32765624&amp;ptid=1275523" target="_blank">sandro 发表于 2016-6-25 16:54</a>
@@ -21049,16 +14363,10 @@ p社游戏放个一年出几个dlc就能打了，现在这作除了画面和脑�
 意思接下去我趟平全宇宙就可以胜利结束游戏了吧？快点结束重开个档去，人类原始的飞船外形真心一般般，选个鸟族飞船外形去！
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 1040#       发表于 2016-6-26 10:55
-
 
 
 <blockquote>哈尔摩尼亚 发表于 2016-6-25 19:23
@@ -21070,16 +14378,10 @@ p社游戏放个一年出几个dlc就能打了，现在这作除了画面和脑�
 如果是这样，没有耗资源的星区就该把资源交出来，莫非交到我手里的资源不会下发给耗资源的星区？
 
 
-
-
-
-
-
 -----
 
 ####  大哀之君  
 ##### 1041#       发表于 2016-6-26 11:23
-
 
 
 [@ramiel](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=11544) 
@@ -21089,16 +14391,10 @@ p社游戏放个一年出几个dlc就能打了，现在这作除了画面和脑�
     —— from [S1 Nyan](http://126.am/S1Nyan) (NOKIA Lumia 920) 来自: WindowsPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 1042#       发表于 2016-6-26 21:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32770800&amp;ptid=1275523" target="_blank">大哀之君 发表于 2016-6-26 11:23</a>
@@ -21113,16 +14409,10 @@ p社游戏放个一年出几个dlc就能打了，现在这作除了画面和脑�
 这下逼我全部塞一个星区吗...
 
 
-
-
-
-
-
 -----
 
 ####  我来自一中  
 ##### 1043#       发表于 2016-6-26 21:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32770800&amp;amp;ptid=1275523" target="_blank">大哀之君 发表于 2016-6-26 11:23</a>
@@ -21134,16 +14424,10 @@ p社游戏放个一年出几个dlc就能打了，现在这作除了画面和脑�
 可以给星区发钱援助老少边穷建设的啊
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 1044#       发表于 2016-6-26 23:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32775091&amp;ptid=1275523" target="_blank">我来自一中 发表于 2016-6-26 21:53</a>
@@ -21152,26 +14436,14 @@ p社游戏放个一年出几个dlc就能打了，现在这作除了画面和脑�
 这又不能让星区的资源建筑开工<img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  哈尔摩尼亚  
 ##### 1045#       发表于 2016-6-26 23:14
 
 
-
-
 星区就是个智障设定，几万电十万矿摆那里，自己不会用，烂掉都不分一点给中央<img src="https://static.saraba1st.com/image/smiley/dym/149.gif" referrerpolicy="no-referrer">
 果断把直辖星球数量调到五百，去tm的星区
-
-
-
-
-
 
 
 -----
@@ -21180,22 +14452,13 @@ p社游戏放个一年出几个dlc就能打了，现在这作除了画面和脑�
 ##### 1046#       发表于 2016-6-27 00:21
 
 
-
-
 星区资源不给就算了，你倒是出兵打仗啊，不出兵造点要塞也行啊。
-
-
-
-
-
 
 
 -----
 
 ####  又土又笨曾阿芬  
 ##### 1047#       发表于 2016-6-27 01:29
-
-
 
 
 这游戏没啥成就感
@@ -21205,16 +14468,10 @@ p社游戏放个一年出几个dlc就能打了，现在这作除了画面和脑�
 这个我打了个灭绝mod把所有文明都核平了，然后一个数据面板就没了？
 
 
-
-
-
-
-
 -----
 
 ####  卡奥斯·克斯拉  
 ##### 1048#       发表于 2016-6-27 06:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32732856&amp;ptid=1275523" target="_blank">水龙头君 发表于 2016-6-22 09:18</a>
@@ -21225,25 +14482,13 @@ p社游戏放个一年出几个dlc就能打了，现在这作除了画面和脑�
 文明城市的话还有建造列表可以省不少时间，农民单位也可以自动。
 
 
-
-
-
-
-
 -----
 
 ####  99th_angel  
 ##### 1049#       发表于 2016-6-27 10:09
 
 
-
-
 问一下大概要有多少兵力才能干过堕落爸爸？我这边有一个戴森环类型的还有一个圣卫类型的。另外机器人反叛爆发在银河的另一端的帝国是不是就等于乙烷了，除非艹穿银河去灭了以外没得救？
-
-
-
-
-
 
 
 -----
@@ -21252,22 +14497,15 @@ p社游戏放个一年出几个dlc就能打了，现在这作除了画面和脑�
 ##### 1050#       发表于 2016-6-28 07:00
 
 
-
 <blockquote>99th_angel 发表于 2016-6-27 10:09
 问一下大概要有多少兵力才能干过堕落爸爸？我这边有一个戴森环类型的还有一个圣卫类型的。另外机器人反叛爆 ...</blockquote>
 疯狂难度2250年一家中等大小的AI就能推平堕落了，他也就50K左右兵力吧
-
-
-
-
-
 
 
 -----
 
 ####  pilum  
 ##### 1051#       发表于 2016-6-28 07:01
-
 
 
 <blockquote>又土又笨曾阿芬 发表于 2016-6-27 01:29
@@ -21281,16 +14519,10 @@ CK2更新了多少年才出了这种功能
 而且P蛇游戏本来就全都是涂色游戏
 
 
-
-
-
-
-
 -----
 
 ####  pilum  
 ##### 1052#       发表于 2016-6-28 07:08
-
 
 
 <blockquote>朱洪武 发表于 2016-6-7 14:37
@@ -21300,16 +14532,10 @@ CK2更新了多少年才出了这种功能
 这个游戏里能源=钱，并不是真的能源
 
 
-
-
-
-
-
 -----
 
 ####  朱洪武  
 ##### 1053#       发表于 2016-6-28 07:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32787281&amp;ptid=1275523" target="_blank">pilum 发表于 2016-6-28 07:08</a>
@@ -21320,16 +14546,10 @@ CK2更新了多少年才出了这种功能
 估计在他们看起来，现在金钱的概念和原始人玩的贝壳币石头币差不多吧。
 
 
-
-
-
-
-
 -----
 
 ####  momoranshi  
 ##### 1054#       发表于 2016-6-28 12:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32775775&amp;ptid=1275523" target="_blank">哈尔摩尼亚 发表于 2016-6-26 23:14</a>
@@ -21340,26 +14560,15 @@ CK2更新了多少年才出了这种功能
 税收75%可破
 
 
-
-
-
-
-
 -----
 
 ####  哈尔摩尼亚  
 ##### 1055#       发表于 2016-6-28 12:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32789602&amp;ptid=1275523" target="_blank">momoranshi 发表于 2016-6-28 12:05</a>
 税收75%可破</blockquote>
 那也只是把收入分给你，囤下来的几万资源还是摆着好看的<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21368,16 +14577,9 @@ CK2更新了多少年才出了这种功能
 ##### 1056#       发表于 2016-6-28 12:19
 
 
-
-
 昨晚玩着玩着跳出来就变1.2了，汉化MOD一堆乱码。
 
 蛋痛
-
-
-
-
-
 
 
 -----
@@ -21386,16 +14588,10 @@ CK2更新了多少年才出了这种功能
 ##### 1057#       发表于 2016-6-28 12:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32789682&amp;ptid=1275523" target="_blank">哈尔摩尼亚 发表于 2016-6-28 12:15</a>
 
 那也只是把收入分给你，囤下来的几万资源还是摆着好看的</blockquote>
 就当花钱维稳了，各种暴力派系搞破坏也是要修的，新建殖民地建设也要花钱啊。
-
-
-
-
-
 
 
 -----
@@ -21404,16 +14600,10 @@ CK2更新了多少年才出了这种功能
 ##### 1058#       发表于 2016-6-28 13:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32778171&amp;ptid=1275523" target="_blank">99th_angel 发表于 2016-6-27 10:09</a>
 
 问一下大概要有多少兵力才能干过堕落爸爸？我这边有一个戴森环类型的还有一个圣卫类型的。另外机器人反叛爆 ...</blockquote>
 基本初期多召点小弟，自己兵力有个30K也可以去打一打，反正打前存个档。三个入侵事件发生在环状星系对面才好玩，比较有危机感，发生在你旁边基本很快就打光了，我现在的档就是虚空门开在对面，打掉一个堕落爸爸才够到了虚空门，所以在对面也有的打，就是麻烦一点
-
-
-
-
-
 
 
 -----
@@ -21422,23 +14612,16 @@ CK2更新了多少年才出了这种功能
 ##### 1059#       发表于 2016-6-28 14:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32790488&amp;ptid=1275523" target="_blank">兰蒂斯 发表于 2016-6-28 13:35</a>
 
 基本初期多召点小弟，自己兵力有个30K也可以去打一打，反正打前存个档。三个入侵事件发生在环状星系对面 ...</blockquote>
 净化用过几次以后全宇宙对我都自带-100好感了根本招不到小弟，只能靠自己了<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  兰蒂斯  
 ##### 1060#       发表于 2016-6-28 17:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32791235&amp;ptid=1275523" target="_blank">99th_angel 发表于 2016-6-28 14:49</a>
@@ -21449,17 +14632,10 @@ CK2更新了多少年才出了这种功能
 当不当我小弟？不当？打你噢！
 
 
-
-
-
-
-
 -----
 
 ####  pilum  
 ##### 1061#       发表于 2016-6-29 05:39
-
-
 
 
 今天开了盘集体唯心狐狸人，老家不远处就是太阳系的“真·地球文明”（星球上就是这么写的），太空时代初期，上面6个人口5个后原子时代军队，分别是毛子，PLA，欧盟，“东部美军”，“西部美军”（不愧是王师）。过了50年突然弹出提示真·人类进化为星际文明了，于是宣战，拉了10条护卫过去，打掉人类还没修好的太空站，封锁了一年，人类投降了。一看人类全是狂热个人主义幸福度全红，就直接全部奴役了
@@ -21467,16 +14643,10 @@ CK2更新了多少年才出了这种功能
 然后现在感到很悲伤，这些真·地球人就这么从星际文明一夜回到解放前，现实中地球人要也碰到这种事怎么办
 
 
-
-
-
-
-
 -----
 
 ####  99th_angel  
 ##### 1062#       发表于 2016-6-29 10:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32792825&amp;ptid=1275523" target="_blank">兰蒂斯 发表于 2016-6-28 17:23</a>
@@ -21487,32 +14657,19 @@ CK2更新了多少年才出了这种功能
 就是打仗选建立附庸国？如果这个选项的胜利点数高于100是不是就得先削它领土到低于100才行
 
 
-
-
-
-
-
 -----
 
 ####  momoranshi  
 ##### 1063#       发表于 2016-6-29 12:56
 
 
-
-
 现在1.2开战可以要求其他人放弃谋星球了，不用你来占领后净化。
-
-
-
-
-
 
 
 -----
 
 ####  小修  
 ##### 1064#       发表于 2016-6-29 15:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32796996&amp;ptid=1275523" target="_blank">pilum 发表于 2016-6-29 05:39</a>
@@ -21526,16 +14683,10 @@ CK2更新了多少年才出了这种功能
 真实中，会有各种内耗扯皮。
 
 
-
-
-
-
-
 -----
 
 ####  鱼鸟MoMo  
 ##### 1065#       发表于 2016-6-29 15:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32796996&amp;ptid=1275523" target="_blank">pilum 发表于 2016-6-29 05:39</a>
@@ -21544,16 +14695,10 @@ CK2更新了多少年才出了这种功能
 为什么不在太空时代初期就拿下？ 其实文化冲击那点惩治没什么了不起的。
 
 
-
-
-
-
-
 -----
 
 ####  pilum  
 ##### 1066#       发表于 2016-6-29 19:09
-
 
 
 <blockquote>鱼鸟MoMo 发表于 2016-6-29 15:49
@@ -21561,16 +14706,10 @@ CK2更新了多少年才出了这种功能
 媚外，动不了
 
 
-
-
-
-
-
 -----
 
 ####  pilum  
 ##### 1067#       发表于 2016-6-29 19:32
-
 
 
 <blockquote>朱洪武 发表于 2016-6-28 07:22
@@ -21584,25 +14723,13 @@ CK2更新了多少年才出了这种功能
 和国家规模多大有啥关系？
 
 
-
-
-
-
-
 -----
 
 ####  99th_angel  
 ##### 1068#       发表于 2016-6-29 23:08
 
 
-
-
 1.2这是把加直辖的科技都取消了？直辖领从8个一下变成5个了……
-
-
-
-
-
 
 
 -----
@@ -21611,22 +14738,15 @@ CK2更新了多少年才出了这种功能
 ##### 1069#       发表于 2016-6-30 00:18
 
 
-
 <blockquote>99th_angel 发表于 2016-6-29 23:08
 1.2这是把加直辖的科技都取消了？直辖领从8个一下变成5个了……</blockquote>
 直辖数变成按星系算了，不是原来按行星算，就是一个恒星系殖民多颗行星只算一个直辖领，所以总数要砍掉一点吧。
-
-
-
-
-
 
 
 -----
 
 ####  朱洪武  
 ##### 1070#       发表于 2016-6-30 07:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32804714&amp;ptid=1275523" target="_blank">pilum 发表于 2016-6-29 19:32</a>
@@ -21639,16 +14759,10 @@ CK2更新了多少年才出了这种功能
 钱只是一种调集资源的工具，对玩家扮演的角色（政府最高领导）来说，只有资源才是实际存在的东西。
 
 
-
-
-
-
-
 -----
 
 ####  99th_angel  
 ##### 1071#       发表于 2016-6-30 08:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32807541&amp;ptid=1275523" target="_blank">99th_angel 发表于 2016-6-29 23:08</a>
@@ -21657,25 +14771,13 @@ CK2更新了多少年才出了这种功能
 哦哦，这样啊
 
 
-
-
-
-
-
 -----
 
 ####  momoranshi  
 ##### 1072#       发表于 2016-6-30 11:29
 
 
-
-
 科技惩罚如果也只按星系和人口算就好了。
-
-
-
-
-
 
 
 -----
@@ -21684,16 +14786,10 @@ CK2更新了多少年才出了这种功能
 ##### 1073#       发表于 2016-6-30 16:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32798298&amp;ptid=1275523" target="_blank">99th_angel 发表于 2016-6-29 10:00</a>
 
 就是打仗选建立附庸国？如果这个选项的胜利点数高于100是不是就得先削它领土到低于100才行 ...</blockquote>
 是的，就是打仗的时候选附庸，一开始能碰到的国家基本都不会超过100，基本有3、4个小弟后就是指哪打哪的节奏了，除了堕落爸爸，要打堕落爸爸还是先把起码一半的宇宙文明纳入自己的小弟范围就可以安全的打了（你只要祈祷你碰到的爸爸不是科技守护者或文明守护者就行了，不然基本在你招小弟的路上就会来干你）
-
-
-
-
-
 
 
 -----
@@ -21702,16 +14798,10 @@ CK2更新了多少年才出了这种功能
 ##### 1074#       发表于 2016-6-30 17:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32814440&amp;ptid=1275523" target="_blank">兰蒂斯 发表于 2016-6-30 16:20</a>
 
 是的，就是打仗的时候选附庸，一开始能碰到的国家基本都不会超过100，基本有3、4个小弟后就是指哪打哪的 ...</blockquote>
 大意了……前期没这么搞，现在左邻右舍即使是低下弱小的AI都是10来个星系了，更别提势均力敌那些……
-
-
-
-
-
 
 
 -----
@@ -21720,16 +14810,10 @@ CK2更新了多少年才出了这种功能
 ##### 1075#       发表于 2016-6-30 18:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32814932&amp;ptid=1275523" target="_blank">99th_angel 发表于 2016-6-30 17:02</a>
 
 大意了……前期没这么搞，现在左邻右舍即使是低下弱小的AI都是10来个星系了，更别提势均力敌那些…… ...</blockquote>
 一开始尽量吞，碰一个吞一个，你初期人畜无害的种地到后面不说那些跟你势均力敌的，地下弱小的AI会同盟，4、5个同盟起来要吃也会有点累，万一被人家背后捅刀就悲剧了，干坏事初期干，到中期有起码5、6个小弟的时候基本也不用怕了，正大光明的干坏事，小弟多我现在看下来只有一个坏处，就是你的小弟可能跟别人搞起来把你拉进战斗……
-
-
-
-
-
 
 
 -----
@@ -21738,22 +14822,13 @@ CK2更新了多少年才出了这种功能
 ##### 1076#       发表于 2016-7-4 10:06
 
 
-
-
 造了两队40K的舰队刚了戴森环上的堕落爸爸，速子长矛太imba，打的爸爸毫无还手之力……有了戴森环上的黑科技建筑从此衣食无忧<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  compass01  
 ##### 1077#       发表于 2016-7-4 10:38
-
-
 
 
 这个科研是不是应该轮耕？
@@ -21768,16 +14843,10 @@ CK2更新了多少年才出了这种功能
 一下就省了一个科学家，还能让高级科学家多干活。那么轮耕有没有什么弊端？<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 1078#       发表于 2016-7-4 14:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32851006&amp;ptid=1275523" target="_blank">compass01 发表于 2016-7-4 10:38</a>
@@ -21793,16 +14862,10 @@ CK2更新了多少年才出了这种功能
 2.你攒的点数没有利息，跟不上通胀的节奏
 
 
-
-
-
-
-
 -----
 
 ####  卡奥斯·克斯拉  
 ##### 1079#       发表于 2016-7-5 06:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32787281&amp;ptid=1275523" target="_blank">pilum 发表于 2016-6-28 07:08</a>
@@ -21811,16 +14874,10 @@ CK2更新了多少年才出了这种功能
 能源主要是维持用的钱，建造用的钱是矿
 
 
-
-
-
-
-
 -----
 
 ####  卡奥斯·克斯拉  
 ##### 1080#       发表于 2016-7-5 06:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32853484&amp;ptid=1275523" target="_blank">夏影 发表于 2016-7-4 14:38</a>
@@ -21832,32 +14889,19 @@ CK2更新了多少年才出了这种功能
 初期放空科研可以组织更多人的探索舰队，某局开始的新思路
 
 
-
-
-
-
-
 -----
 
 ####  黄昏之月  
 ##### 1081#       发表于 2016-7-5 11:39
 
 
-
-
 有MOD可以造戴森球了不
-
-
-
-
-
 
 
 -----
 
 ####  夏影  
 ##### 1082#       发表于 2016-7-5 11:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32859555&amp;ptid=1275523" target="_blank">卡奥斯·克斯拉 发表于 2016-7-5 06:16</a>
@@ -21875,16 +14919,10 @@ CK2更新了多少年才出了这种功能
 初期多几个总督倒是不错，开局100点影响一般我会SL一个减建筑费用和时间的总督，要造建筑就把他调过去
 
 
-
-
-
-
-
 -----
 
 ####  卡奥斯·克斯拉  
 ##### 1083#       发表于 2016-7-5 12:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32862597&amp;ptid=1275523" target="_blank">夏影 发表于 2016-7-5 11:58</a>
@@ -21896,16 +14934,10 @@ CK2更新了多少年才出了这种功能
 我因为随机到了一个减少探索时间和探索船价格的技能才领悟出来个路子的，因为是悬臂宇宙，虫洞飞行模式可以跨悬臂，第一时间就朝2个方向飞出去然后用星图各种换资源。研究语言是固定时间与科技高低没关系。
 
 
-
-
-
-
-
 -----
 
 ####  卡奥斯·克斯拉  
 ##### 1084#       发表于 2016-7-5 12:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32862597&amp;ptid=1275523" target="_blank">夏影 发表于 2016-7-5 11:58</a>
@@ -21917,16 +14949,10 @@ CK2更新了多少年才出了这种功能
 1.2版本里我开明君主制7个直辖球都不够用，一般都是顶着50%左右的惩罚搞到10几个，能源全靠交易来的。要不是对威信的惩罚太严重我完全放弃能源产出全靠交易也没问题。
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 1085#       发表于 2016-7-5 16:54
-
 
 
  本帖最后由 夏影 于 2016-7-5 17:26 编辑 
@@ -21944,16 +14970,10 @@ CK2更新了多少年才出了这种功能
 <img src="http://ww1.sinaimg.cn/mw690/7e8b2857gw1f5j5q6xj0mj20un0gd0za.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  卡奥斯·克斯拉  
 ##### 1086#       发表于 2016-7-5 22:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32865525&amp;ptid=1275523" target="_blank">夏影 发表于 2016-7-5 16:54</a>
@@ -21962,16 +14982,10 @@ CK2更新了多少年才出了这种功能
 成型以后就开星域了，因为贸易资源来的太快需要迅速消化。
 
 
-
-
-
-
-
 -----
 
 ####  卡奥斯·克斯拉  
 ##### 1087#       发表于 2016-7-5 22:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32865525&amp;ptid=1275523" target="_blank">夏影 发表于 2016-7-5 16:54</a>
@@ -21980,16 +14994,10 @@ CK2更新了多少年才出了这种功能
 有250影响力够做许多事情了没有必要浪费在改政体这上面
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 1088#       发表于 2016-7-6 07:47
-
 
 
  本帖最后由 夏影 于 2016-7-6 08:29 编辑 
@@ -22005,16 +15013,10 @@ CK2更新了多少年才出了这种功能
 至于资源用不完，前期造机器人，中期有Garanthium这个矿后9天一个建筑，后期多兵营爆战列舰，真没见过用不完的
 
 
-
-
-
-
-
 -----
 
 ####  卡奥斯·克斯拉  
 ##### 1089#       发表于 2016-7-6 10:46
-
 
 
  本帖最后由 卡奥斯·克斯拉 于 2016-7-6 10:51 编辑 
@@ -22029,16 +15031,10 @@ CK2更新了多少年才出了这种功能
 稳扎稳打的话周围圈2块地以后再爆发效果更好，当时是因为随机到了这个减研究船费用的领袖所以尝试一下这种可能，算运气好碰到第三家就换到了矿，比之前几年的产出都多，家里的建设立马就上来了。
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 1090#       发表于 2016-7-6 21:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32872210&amp;ptid=1275523" target="_blank">卡奥斯·克斯拉 发表于 2016-7-6 10:46</a>
@@ -22050,16 +15046,10 @@ CK2更新了多少年才出了这种功能
 至于虫洞开地图，看了下觉得挺慢的，warp直接画星座怎么都会比虫洞快吧，虫洞还要浪费矿先建站点，而且虫洞科技要900点基础值，能出这个科技warp整个图都探完了<img src="http://ww3.sinaimg.cn/mw690/7e8b2857gw1f4oto8ax3tj20ls0fun01.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  踩到图钉  
 ##### 1091#       发表于 2016-7-6 21:13
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">40%占领胜利后如果选择继续玩的话很搞笑
@@ -22077,16 +15067,10 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 连B家C家的国境都没进去就把他们星系抢完了
 
 
-
-
-
-
-
 -----
 
 ####  璀璨星光  
 ##### 1092#       发表于 2016-7-6 22:06
-
 
 
 <blockquote>卡奥斯·克斯拉 发表于 2016-7-6 10:46
@@ -22094,16 +15078,10 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 好奇电脑配置？6700K?反正我的E3 千星最多电脑撑不到100年就会卡
 
 
-
-
-
-
-
 -----
 
 ####  卡奥斯·克斯拉  
 ##### 1093#       发表于 2016-7-7 07:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32877710&amp;ptid=1275523" target="_blank">夏影 发表于 2016-7-6 21:10</a>
@@ -22115,25 +15093,13 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 护卫舰不能穿越别人的领土，而且还有触发海盗的剧情初期的3艘都不够用需要有4、5艘留守在家。虫洞站配合初期占地的哨站造就可以覆盖周围的主要区域，真的往外走的时候工作舰自己边造虫洞边往远处跳。
 
 
-
-
-
-
-
 -----
 
 ####  iqbsh  
 ##### 1094#       发表于 2016-7-7 07:34
 
 
-
-
 虫洞会遇到曲率那种有一个点被别人占了就过不去的情况 只要星门的范围内 隔着一大片地方都能飞过去
-
-
-
-
-
 
 
 -----
@@ -22142,21 +15108,13 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 ##### 1095#       发表于 2016-7-7 08:24
 
 
-
-
 海盗船快的话5、6年，慢的话快10年才触发，足够时间准备了，而且虫洞站和工程船怎么都比护卫舰要贵吧。而且1.2不是默认边境是开么，也用不着绕路了。
-
-
-
-
-
 
 
 -----
 
 ####  99th_angel  
 ##### 1096#       发表于 2016-7-7 09:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32877731&amp;ptid=1275523" target="_blank">踩到图钉 发表于 2016-7-6 21:13</a>
@@ -22168,16 +15126,10 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 就喜欢这种除了一家AI是邻居以外其他都隔老远的联邦，每次都靠吊打邻居吞银河另一头的地<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  99th_angel  
 ##### 1097#       发表于 2016-7-7 09:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32815906&amp;ptid=1275523" target="_blank">兰蒂斯 发表于 2016-6-30 18:41</a>
@@ -22186,16 +15138,10 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 发现1.2附庸AI会自动签防御协定，每签一个减1影响，不能靠收小弟流了啊……
 
 
-
-
-
-
-
 -----
 
 ####  兰蒂斯  
 ##### 1098#       发表于 2016-7-7 15:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32880830&amp;ptid=1275523" target="_blank">99th_angel 发表于 2016-7-7 09:19</a>
@@ -22204,17 +15150,10 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 没汉化……我还没升1.2……说句我现在玩了3盘的感受，就目前为止，游戏乐趣不及EU4，EU4因为有一定的历史基础，玩不同的国家很有意思，而群星这属于架空了，玩了3盘感觉就没什么新意了
 
 
-
-
-
-
-
 -----
 
 ####  踩到图钉  
 ##### 1099#       发表于 2016-7-7 16:37
-
-
 
 
 有个奇怪的问题，某个行星上的土地全部显示被未开化民族占领了怎么办？
@@ -22225,16 +15164,10 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 想叫舰队过来轨道轰炸弄死几只也不行
 
 
-
-
-
-
-
 -----
 
 ####  lhw369  
 ##### 1100#       发表于 2016-7-7 20:36
-
 
 
 <blockquote>引用第1096楼踩到图钉于2016-07-07 16:37发表的  :
@@ -22248,16 +15181,10 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 ----发送自 [HUAWEI HUAWEI NXT-CL00,Android 6.0](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  滚丁肉  
 ##### 1101#       发表于 2016-7-7 21:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32885556&amp;ptid=1275523" target="_blank">踩到图钉 发表于 2016-7-7 16:37</a>
@@ -22271,16 +15198,10 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 先拍哨站，然后就可以改领土内种族的基因。把未开化种族的基因修改完以后，它们及所在星球自动会加入你的国家。
 
 
-
-
-
-
-
 -----
 
 ####  踩到图钉  
 ##### 1102#       发表于 2016-7-7 22:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32885556&amp;ptid=1275523" target="_blank">踩到图钉 发表于 2016-7-7 16:37</a>
@@ -22304,16 +15225,10 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 然后殖民船过去踩好第一个点，种族大清洗清理干净剩余的土著
 
 
-
-
-
-
-
 -----
 
 ####  鱼鸟MoMo  
 ##### 1103#       发表于 2016-7-7 23:20
-
 
 
  本帖最后由 鱼鸟MoMo 于 2016-7-7 23:22 编辑 
@@ -22329,16 +15244,10 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 地图是你的，难道科考站不是你的？
 
 
-
-
-
-
-
 -----
 
 ####  踩到图钉  
 ##### 1104#       发表于 2016-7-8 02:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32888833&amp;ptid=1275523" target="_blank">鱼鸟MoMo 发表于 2016-7-7 23:20</a>
@@ -22360,16 +15269,10 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 有空位殖民船才能进去
 
 
-
-
-
-
-
 -----
 
 ####  卡奥斯·克斯拉  
 ##### 1105#       发表于 2016-7-8 07:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32880830&amp;ptid=1275523" target="_blank">99th_angel 发表于 2016-7-7 09:19</a>
@@ -22378,16 +15281,10 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 魅外-签约的消耗，但此消彼长也减少竞争带来的加值，但后期起来了竞争也就这样加不了多少。
 
 
-
-
-
-
-
 -----
 
 ####  卡奥斯·克斯拉  
 ##### 1106#       发表于 2016-7-8 07:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32870383&amp;ptid=1275523" target="_blank">夏影 发表于 2016-7-6 07:47</a>
@@ -22399,16 +15296,10 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 暴铺的话地面初期是农田后期改科研建筑，只有核心周边4个格子有点矿电、要机器人没用
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 1107#       发表于 2016-7-8 10:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32890756&amp;ptid=1275523" target="_blank">卡奥斯·克斯拉 发表于 2016-7-8 07:05</a>
@@ -22417,16 +15308,10 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 机器人在农田也是正常工作啊，早期换星图也就200左右的矿电，机器人能很好的消灭余钱
 
 
-
-
-
-
-
 -----
 
 ####  卡奥斯·克斯拉  
 ##### 1108#       发表于 2016-7-8 11:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32893013&amp;ptid=1275523" target="_blank">夏影 发表于 2016-7-8 10:08</a>
@@ -22435,17 +15320,10 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 真要存着根本不用仓库，找一个行星造一堆殖民，进度快到了就取消然后第二艘又是360的冗余
 
 
-
-
-
-
-
 -----
 
 ####  鱼鸟MoMo  
 ##### 1109#       发表于 2016-7-8 22:24
-
-
 
 
 虽然机器人后期有+20% ，但是我觉得并不是很好用。
@@ -22454,16 +15332,10 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 大费周章搞机器人，不如直接研发改造 普通国民。
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 1110#       发表于 2016-7-9 07:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32893999&amp;ptid=1275523" target="_blank">卡奥斯·克斯拉 发表于 2016-7-8 11:29</a>
@@ -22475,16 +15347,10 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 而且运营就应该不余钱，电力维持正数，有多余的就造机器人，矿物就更容易花掉了。
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 1111#       发表于 2016-7-9 08:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32898004&amp;ptid=1275523" target="_blank">鱼鸟MoMo 发表于 2016-7-8 22:24</a>
@@ -22499,17 +15365,10 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 真要说属性好，升变种族比自己原住民好多了
 
 
-
-
-
-
-
-
 -----
 
 ####  鱼鸟MoMo  
 ##### 1112#       发表于 2016-7-9 08:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32900620&amp;ptid=1275523" target="_blank">夏影 发表于 2016-7-9 08:00</a>
@@ -22523,16 +15382,10 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 你们居然有余钱早这么多机器人。没有舰队需要养吗？
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 1113#       发表于 2016-7-9 08:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32900662&amp;ptid=1275523" target="_blank">鱼鸟MoMo 发表于 2016-7-9 08:12</a>
@@ -22551,16 +15404,10 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 遇到过一个+25%适应性的，旁边两种星球也能满适应性，人口涨的飞起
 
 
-
-
-
-
-
 -----
 
 ####  鱼鸟MoMo  
 ##### 1114#       发表于 2016-7-9 08:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32900758&amp;ptid=1275523" target="_blank">夏影 发表于 2016-7-9 08:35</a>
@@ -22578,16 +15425,10 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 辐射适应性+极易变通 的蟑螂 简直夸张。
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 1115#       发表于 2016-7-9 12:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32900861&amp;ptid=1275523" target="_blank">鱼鸟MoMo 发表于 2016-7-9 08:53</a>
@@ -22602,16 +15443,10 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 问题是出的时机吧，早期25%适应性是雪中送炭，要等后期科技出来只能算是锦上添花了
 
 
-
-
-
-
-
 -----
 
 ####  鱼鸟MoMo  
 ##### 1116#       发表于 2016-7-9 15:36
-
 
 
  本帖最后由 鱼鸟MoMo 于 2016-7-9 15:47 编辑 
@@ -22626,16 +15461,10 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 100% 80% 60% 可选星球就非常多了。
 
 
-
-
-
-
-
 -----
 
 ####  卡奥斯·克斯拉  
 ##### 1117#       发表于 2016-7-11 22:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32870383&amp;ptid=1275523" target="_blank">夏影 发表于 2016-7-6 07:47</a>
@@ -22647,16 +15476,10 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 其实真正可以反复卖的是各种特种资源。卖了直接给付的类型，然后拆矿中断交易，你以及收到资源，然后再修矿再卖一次，卖30个年基本可以吸干一家手头的所有富裕资源了。
 
 
-
-
-
-
-
 -----
 
 ####  卡奥斯·克斯拉  
 ##### 1118#       发表于 2016-7-11 22:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32865525&amp;ptid=1275523" target="_blank">夏影 发表于 2016-7-5 16:54</a>
@@ -22665,17 +15488,10 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 又尝试了一下改变政体的思路，这样用了省矿财阀寡头开局就更快了而且领导能力也不用太苛求了。
 
 
-
-
-
-
-
 -----
 
 ####  杨的退休金  
 ##### 1119#       发表于 2016-7-12 00:16
-
-
 
 
 没必要追逐辐射世界，本身也要研究科技，早期社会科技那么紧张的。
@@ -22685,27 +15501,15 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 经过几个档打下来，我认为选神权共和，道德选极端唯心＋排外可能是目前版本最强的搭配。
 
 
-
-
-
-
-
 -----
 
 ####  娱樂記者城少主  
 ##### 1120#       发表于 2016-7-12 00:26
 
 
-
-
 人型生物也有防辐射的啊
 
 你要是人类的话提升他们他们很大几率变成抗辐射的人类
-
-
-
-
-
 
 
 -----
@@ -22714,21 +15518,13 @@ ABCDE 五家电脑组成联邦制来对抗我，可以宣战任何一家来1V5�
 ##### 1121#       发表于 2016-7-12 16:09
 
 
-
-
 有没有能缩短吞并时间和MOD，后期吞个大点的动不动就300个月并且同一时间只能吞一个，实在吃不消啊
-
-
-
-
-
 
 
 -----
 
 ####  FridayClub  
 ##### 1122#       发表于 2016-7-13 02:42
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">青春树的buff只加3% 幸福了，又砍了，真操蛋
@@ -22738,27 +15534,15 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 还有一定几率来个陨石gg成无大气层星球——单向不可逆，是不是以后会有50年星球再生设施，把荒星改造成可居住的
 
 
-
-
-
-
-
 -----
 
 ####  大哀之君  
 ##### 1123#       发表于 2016-7-13 07:32
 
 
-
-
 陨石派舰队打爆不就好了，怎么可能真让它撞上
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (NOKIA Lumia 920)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
@@ -22767,21 +15551,13 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 ##### 1124#       发表于 2016-7-13 12:04
 
 
-
-
 你可以打一个转化荒芜行星的MOD啊。。。。
-
-
-
-
-
 
 
 -----
 
 ####  我来自一中  
 ##### 1125#       发表于 2016-7-13 12:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=32930434&amp;amp;ptid=1275523" target="_blank">大哀之君 发表于 2016-7-13 07:32</a>
@@ -22793,25 +15569,13 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 会不会出现CCA的剧情<img src="https://static.saraba1st.com/image/smiley/face/78.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  (^-^)  
 ##### 1126#       发表于 2016-7-13 12:42
 
 
-
-
 贴吧有见过图, 陨石事件,然后陨石被海盗打了,然后他满怀感激的把那些海盗全做了.233
-
-
-
-
-
 
 
 -----
@@ -22820,14 +15584,7 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 ##### 1127#       发表于 2016-7-24 12:50
 
 
-
-
 为什么前中期电脑发展速度那么快，随时就宛若天神
-
-
-
-
-
 
 
 -----
@@ -22836,14 +15593,7 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 ##### 1128#       发表于 2016-7-24 12:52
 
 
-
-
 还有前中期怎么发展？这楼里面好像太零散看不懂，经常被电脑甩到吃灰尘
-
-
-
-
-
 
 
 -----
@@ -22852,16 +15602,10 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 ##### 1129#       发表于 2016-10-9 10:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33045614&amp;ptid=1275523" target="_blank">flypig_zhy 发表于 2016-7-24 12:52</a>
 
 还有前中期怎么发展？这楼里面好像太零散看不懂，经常被电脑甩到吃灰尘</blockquote>
 前期殖民2个随便什么星，主要是圈资源和加大舰队容量，然后爆30-40护卫直接宣一家接壤邻居，要求全割，一般把首都占领后再多占领一个星球就100分了，然后继续爆护卫再割1-2家基本就可以种田了，个人经验仅供参考。
-
-
-
-
-
 
 
 -----
@@ -22870,14 +15614,7 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 ##### 1130#       发表于 2016-10-19 09:40
 
 
-
-
 群星好久没玩了，记得删游戏前我带着1200人口的舰队玩东银河再平衡，直接拉拢全图势力第二大的国家然后看东银河那面开战我这边种田，还有这游戏能不能有点胸怀，满舰队才1000也太坑了点
-
-
-
-
-
 
 
 -----
@@ -22886,14 +15623,7 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 ##### 1131#       发表于 2016-10-19 10:05
 
 
-
-
 明天（北京时间可能是后天）新版本和大dlc就要上了。虽然和下一回合六肛正面了......
-
-
-
-
-
 
 
 -----
@@ -22902,16 +15632,10 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 ##### 1132#       发表于 2016-10-19 10:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33905818&amp;ptid=1275523" target="_blank">sliencer 发表于 2016-10-19 09:40</a>
 
 群星好久没玩了，记得删游戏前我带着1200人口的舰队玩东银河再平衡，直接拉拢全图势力第二大的国家然后看东 ...</blockquote>
 1.3版海军上限从1000改为9999
-
-
-
-
-
 
 
 -----
@@ -22920,17 +15644,10 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 ##### 1133#       发表于 2016-10-19 10:42
 
 
-
-
 看这次版本更新有没有新玩法了，不然真的刚不过野蛮6。我很不喜欢野蛮系列的走格子，就喜欢p社这种框框a的，求改好一点啊..
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.21)
-
-
-
-
-
 
 
 -----
@@ -22939,16 +15656,10 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 ##### 1134#       发表于 2016-10-19 10:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33906617&amp;ptid=1275523" target="_blank">Inquisitor 发表于 2016-10-19 10:42</a>
 
 看这次版本更新有没有新玩法了，不然真的刚不过野蛮6。我很不喜欢野蛮系列的走格子，就喜欢p社这种框框a的 ...</blockquote>
 28号更新，几个DLC加起来一百多啊……
-
-
-
-
-
 
 
 -----
@@ -22957,15 +15668,9 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 ##### 1135#       发表于 2016-10-19 12:49
 
 
-
 <blockquote>大哀之君 发表于 2016-10-19 10:14
 1.3版海军上限从1000改为9999</blockquote>
 喔，能打了（）
-
-
-
-
-
 
 
 -----
@@ -22974,14 +15679,7 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 ##### 1136#       发表于 2016-10-20 12:25
 
 
-
-
 1.3更新好多新内容，已经变成半个新游戏了。
-
-
-
-
-
 
 
 -----
@@ -22990,24 +15688,16 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 ##### 1137#       发表于 2016-10-21 10:02
 
 
-
-
 已经不会造船了，4k混编去打电脑4k2被全灭，电脑还剩3k5...还有野怪太猛了，出门遇到的杂毛低则800，高的动辄数k，贴吧上还看到有人贴能单挑30k舰队的虚空龙和位面梦魇...
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.21)
 
 
-
-
-
-
-
 -----
 
 ####  eno_emos  
 ##### 1138#       发表于 2016-10-21 10:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33906771&amp;ptid=1275523" target="_blank">momoranshi 发表于 2016-10-19 10:53</a>
@@ -23018,25 +15708,13 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 似乎是打宇宙怪兽和堕落爸爸重归荣光
 
 
-
-
-
-
-
 -----
 
 ####  Von  
 ##### 1139#       发表于 2016-10-21 13:11
 
 
-
-
 然而没中文 玩个蛋啊
-
-
-
-
-
 
 
 -----
@@ -23045,14 +15723,7 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 ##### 1140#       发表于 2016-10-22 13:04
 
 
-
-
 1k舰队去打800的海盗被教做人了orz……
-
-
-
-
-
 
 
 -----
@@ -23061,16 +15732,10 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 ##### 1141#       发表于 2016-10-22 13:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=33931362&amp;ptid=1275523" target="_blank">Von 发表于 2016-10-21 13:11</a>
 
 然而没中文 玩个蛋啊</blockquote>
 创意工坊里有中文汉化mod啊……
-
-
-
-
-
 
 
 -----
@@ -23079,23 +15744,15 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 ##### 1142#       发表于 2016-10-22 14:04
 
 
-
  本帖最后由 バカ 于 2016-10-22 19:48 编辑 
 
 宣传一下原eve群转型的群星联机/讨论群：384451505
-
-
-
-
-
 
 
 -----
 
 ####  wormz  
 ##### 1143#       发表于 2016-10-25 02:12
-
-
 
 
 1.3改的太多了
@@ -23105,32 +15762,19 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 还有trade enclave简直是神作，再也不怕一种资源爆棚
 
 
-
-
-
-
-
 -----
 
 ####  sliencer  
 ##### 1144#       发表于 2016-11-28 13:48
 
 
-
-
 感觉mega cooperate这个政体打仗好麻烦啊，每次战争目标不能割不能附庸只能解放星球，害我花了快200年时间吃掉了旁边的20个球，还差点打成了银河公敌（现在舰队是2400k）
-
-
-
-
-
 
 
 -----
 
 ####  黑化的石头  
 ##### 1145#       发表于 2016-11-28 18:00
-
 
 
  本帖最后由 黑化的石头 于 2016-11-28 21:25 编辑 
@@ -23140,16 +15784,10 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 已解决
 
 
-
-
-
-
-
 -----
 
 ####  Inquisitor  
 ##### 1146#       发表于 2016-11-28 21:11
-
 
 
 <blockquote>引用第1144楼黑化的石头于2016-11-28 18:00发表的  :
@@ -23163,16 +15801,10 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.21) 
 
 
-
-
-
-
-
 -----
 
 ####  黑化的石头  
 ##### 1147#       发表于 2016-11-28 22:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34317389&amp;ptid=1275523" target="_blank">Inquisitor 发表于 2016-11-28 21:11</a>
@@ -23183,16 +15815,10 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 非常感谢！已经解决了
 
 
-
-
-
-
-
 -----
 
 ####  K701ino  
 ##### 1148#       发表于 2016-11-29 02:19
-
 
 
 <blockquote>g54088 发表于 2016-10-22 13:05<[img src="static/image/common/back.gif" referrerpolicy="no-referrer">
@@ -23204,32 +15830,19 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 ——发送自[S1 Pluto 2.5](https://itunes.apple.com/cn/app/s1-pluto/id889820003?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  半分宅  
 ##### 1149#       发表于 2016-11-29 06:41
 
 
-
-
 犹豫了一阵子还是没入坑。感觉现在的群星一到中后期，种田是重复劳动、打仗是坨坨对撞，还有各种恶心人的限制，实在很不爽。
-
-
-
-
-
 
 
 -----
 
 ####  g54088  
 ##### 1150#       发表于 2016-11-29 06:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34319547&amp;ptid=1275523" target="_blank">K701ino 发表于 2016-11-29 02:19</a>
@@ -23241,32 +15854,19 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 你大概订阅错了。工房里汉化补丁有好几个，有的很久没更新了，有的更新很及时的。再不行stellaris吧也有高质量汉化mod。
 
 
-
-
-
-
-
 -----
 
 ####  huhu0007  
 ##### 1151#       发表于 2016-11-29 10:01
 
 
-
-
 密集开局什么鬼，单悬臂地图，开局还没探索多远，就发现左右2边3家电脑把我堵的严严实实的，还都是排外，这怎么玩。。。
-
-
-
-
-
 
 
 -----
 
 ####  g54088  
 ##### 1152#       发表于 2016-11-29 10:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34321239&amp;ptid=1275523" target="_blank">huhu0007 发表于 2016-11-29 10:01</a>
@@ -23276,16 +15876,10 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 —— 来自 HUAWEI PE-CL00, Android 6.0
 
 
-
-
-
-
-
 -----
 
 ####  Inquisitor  
 ##### 1153#       发表于 2016-11-29 10:18
-
 
 
 <blockquote>引用第1150楼K701ino于2016-11-29 02:19发表的  :
@@ -23299,16 +15893,10 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.21) 
 
 
-
-
-
-
-
 -----
 
 ####  huhu0007  
 ##### 1154#       发表于 2016-11-29 10:34
-
 
 
 <blockquote>g54088 发表于 2016-11-29 10:04
@@ -23319,16 +15907,10 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 怼不过啊，我才两颗星，几百舰队，他们随便一家都上千了
 
 
-
-
-
-
-
 -----
 
 ####  commie_neko  
 ##### 1155#       发表于 2016-11-29 11:54
-
 
 
  本帖最后由 commie_neko 于 2016-11-29 23:16 编辑 
@@ -23341,32 +15923,19 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 <img src="https://ws3.sinaimg.cn/large/0067VNrTjw1fa9dw1p5d4j30dw0b0wh1.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xv88  
 ##### 1156#       发表于 2016-11-29 13:00
 
 
-
-
 游戏速度你们怎么调的，无聊了几个晚上都是
-
-
-
-
-
 
 
 -----
 
 ####  黑化的石头  
 ##### 1157#       发表于 2016-11-30 16:59
-
 
 
  本帖最后由 黑化的石头 于 2016-11-30 17:15 编辑 
@@ -23376,27 +15945,15 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 其中2号星有土著还在石器时代，我就把其它三颗全占了233
 
 
-
-
-
-
-
 -----
 
 ####  黑化的石头  
 ##### 1158#       发表于 2016-12-2 22:18
 
 
-
-
 以太巨龙的战斗力目测在10K到12K左右，我20K的舰队战列舰折半，巡洋舰全灭(科技80%)才干掉它
 
 打完发现星系内有颗30能量30矿的宝星，还有2个能殖民的星球，可惜这星系不在我势力范围内
-
-
-
-
-
 
 
 -----
@@ -23405,23 +15962,15 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 ##### 1159#       发表于 2016-12-2 22:34
 
 
-
-
 在专楼里也安利一波吧：  自制1.3修正mod： steam手工防码community.com/sharedfiles/filedetails/?id=803752381
 
 只修bug，不做原创，99.9%保证原版风味。兼容一切不对游戏机制修改的mod（所以包括汉化），不支持成就（因为修正了游戏机制）。
-
-
-
-
-
 
 
 -----
 
 ####  夜游的树  
 ##### 1160#       发表于 2016-12-3 00:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34336786&amp;ptid=1275523" target="_blank">黑化的石头 发表于 2016-11-30 16:59</a>
@@ -23432,17 +15981,10 @@ Abandon之后都变成青铜原始人，只能建observation，但是又不在sp
 石器时代土著也可以占啊，加社会研究的，搞成科研星还不错
 
 
-
-
-
-
-
 -----
 
 ####  Risa_g  
 ##### 1161#       发表于 2016-12-3 15:25
-
-
 
 
 大新闻：P社选择企鹅作为中文平台发行商，首发城市：天际线和群星，其他游戏陆续跟进
@@ -23451,17 +15993,10 @@ Paradox Interactive Partners with Tencent to Publish Cities: Skylines and Stella
 [https://www.paradoxinteractive.c ... -language-platform/](https://www.paradoxinteractive.com/en/paradox-interactive-partners-with-tencent-to-publish-cities-skylines-and-stellaris-on-chinese-language-platform/)
 
 
-
-
-
-
-
 -----
 
 ####  Inquisitor  
 ##### 1162#       发表于 2016-12-3 15:29
-
-
 
 
 混蛋给我把eu4官中做出来！
@@ -23470,16 +16005,10 @@ Paradox Interactive Partners with Tencent to Publish Cities: Skylines and Stella
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.21)
 
 
-
-
-
-
-
 -----
 
 ####  黑化的石头  
 ##### 1163#       发表于 2016-12-3 15:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34362400&amp;ptid=1275523" target="_blank">夜游的树 发表于 2016-12-3 00:35</a>
@@ -23488,16 +16017,10 @@ Paradox Interactive Partners with Tencent to Publish Cities: Skylines and Stella
 占了，土著各种闹事，已经被我隔离到一个格子里了，就是还不懂怎么灭绝他们(红色格子)，估计是科技不到位
 
 
-
-
-
-
-
 -----
 
 ####  flypig_zhy  
 ##### 1164#       发表于 2016-12-3 17:15
-
 
 
 <blockquote>黑化的石头 发表于 2016-12-3 15:43
@@ -23505,17 +16028,10 @@ Paradox Interactive Partners with Tencent to Publish Cities: Skylines and Stella
 没，没这科技
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 1165#       发表于 2016-12-4 00:12
-
-
 
 
 最近开玩的问下
@@ -23530,16 +16046,10 @@ Paradox Interactive Partners with Tencent to Publish Cities: Skylines and Stella
 目前是习惯使用导弹和磁轨炮  主战列和巡洋等大船  然后和全种混杂战斗力更低的地方舰队对战却输了   2次都是这样   是船型克制某些船型吗 还是说大船要配些S武器而不能全L M?
 
 
-
-
-
-
-
 -----
 
 ####  夜游的树  
 ##### 1166#       发表于 2016-12-4 00:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34372058&amp;ptid=1275523" target="_blank">妹控使徒 发表于 2016-12-4 00:12</a>
@@ -23557,32 +16067,19 @@ Paradox Interactive Partners with Tencent to Publish Cities: Skylines and Stella
 克制方面现在小船闪避高，大船就比较低了，所以武器就带了一个属性叫索敌来克制闪避，s槽的武器索敌高适合打小船，L槽的低适合打大船，光有L槽的话就会因为打不中小船被吊打……所以舰队的配合还是每种船都来一点最好。前面护卫抗，后面巡洋和战列输出
 
 
-
-
-
-
-
 -----
 
 ####  Risa_g  
 ##### 1167#       发表于 2016-12-4 01:50
 
 
-
-
 据传1.4将于周一上线。
-
-
-
-
-
 
 
 -----
 
 ####  Risa_g  
 ##### 1168#       发表于 2016-12-4 01:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34372058&amp;ptid=1275523" target="_blank">妹控使徒 发表于 2016-12-4 00:12</a>
@@ -23595,25 +16092,13 @@ Paradox Interactive Partners with Tencent to Publish Cities: Skylines and Stella
 星球上的人口数量也会提升边境的大小。
 
 
-
-
-
-
-
 -----
 
 ####  东亚重工  
 ##### 1169#       发表于 2016-12-4 12:36
 
 
-
-
 群星支持macos吗？
-
-
-
-
-
 
 
 -----
@@ -23622,23 +16107,15 @@ Paradox Interactive Partners with Tencent to Publish Cities: Skylines and Stella
 ##### 1170#       发表于 2016-12-4 14:07
 
 
-
 <blockquote>东亚重工 发表于 2016-12-4 12:36
 群星支持macos吗？</blockquote>
 支持mac的.
-
-
-
-
-
 
 
 -----
 
 ####  黑化的石头  
 ##### 1171#       发表于 2016-12-5 11:18
-
-
 
 
 昨晚试了下贴吧某精华说的战狂快攻流，发现电脑完全不像那贴说的逗比
@@ -23648,17 +16125,10 @@ Paradox Interactive Partners with Tencent to Publish Cities: Skylines and Stella
 果然还是爆铺流适合我，等几个殖民星发展起来组一支大舰队直接碾压，缺点就是很容易陷入国土被数个AI国家包围的窘境
 
 
-
-
-
-
-
 -----
 
 ####  felline  
 ##### 1172#       发表于 2016-12-5 11:20
-
-
 
 
 1.4加了什么，不会就是成就吧
@@ -23667,16 +16137,10 @@ Paradox Interactive Partners with Tencent to Publish Cities: Skylines and Stella
 ----发送自 [samsung SM-G9350,Android 6.0.1](http://stage1.5j4m.com/?1.21)
 
 
-
-
-
-
-
 -----
 
 ####  myron_cloud  
 ##### 1173#       发表于 2016-12-5 23:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34384905&amp;ptid=1275523" target="_blank">felline 发表于 2016-12-5 11:20</a>
@@ -23688,17 +16152,10 @@ Paradox Interactive Partners with Tencent to Publish Cities: Skylines and Stella
 还加了官方中文哦！
 
 
-
-
-
-
-
 -----
 
 ####  我爱六弦之首  
 ##### 1174#       发表于 2016-12-5 23:37
-
-
 
 
 历史性的一刻。
@@ -23718,11 +16175,6 @@ P社游戏第一次加入官方中文。
 2016-12-5 23:37 上传
 
 
-
-
-
-
-
 <img src="http://img.saraba1st.com/forum/201612/05/233702s0xu045usp3ni003.jpg" referrerpolicy="no-referrer">
 
 
@@ -23733,36 +16185,19 @@ P社游戏第一次加入官方中文。
 2016-12-5 23:37 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  setree  
 ##### 1175#       发表于 2016-12-6 08:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">哪位来说说这汉化是基于原来哪个版本，贴吧汉化？
-
-
-
-
-
 
 
 -----
 
 ####  g54088  
 ##### 1176#       发表于 2016-12-6 08:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34394545&amp;ptid=1275523" target="_blank">setree 发表于 2016-12-6 08:55</a>
@@ -23772,25 +16207,13 @@ P社游戏第一次加入官方中文。
 —— 来自 HUAWEI PE-CL00, Android 6.0
 
 
-
-
-
-
-
 -----
 
 ####  歇洛克波洛  
 ##### 1177#       发表于 2016-12-6 09:09
 
 
-
-
 能按着p社脑袋出官中，也算是企鹅对单机游戏的贡献吧<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23799,22 +16222,13 @@ P社游戏第一次加入官方中文。
 ##### 1178#       发表于 2016-12-6 10:16
 
 
-
-
 什么！官方中文版。可以买了。
-
-
-
-
-
 
 
 -----
 
 ####  regular  
 ##### 1179#       发表于 2016-12-6 11:06
-
-
 
 
 远离首都带来的分歧怎么没有了？
@@ -23826,17 +16240,10 @@ P社游戏第一次加入官方中文。
 右侧UI那里，集合点写成回复点了，措辞有点问题，其他的没注意。
 
 
-
-
-
-
-
 -----
 
 ####  Inquisitor  
 ##### 1180#       发表于 2016-12-6 11:29
-
-
 
 
 虽然护卫舰被叫做轻巡洋舰，但有生之年真的看到p社出官中了...
@@ -23845,16 +16252,10 @@ P社游戏第一次加入官方中文。
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.21)
 
 
-
-
-
-
-
 -----
 
 ####  Inquisitor  
 ##### 1181#       发表于 2016-12-6 11:33
-
 
 
 <blockquote>引用第1174楼setree于2016-12-06 08:55发表的  :
@@ -23868,16 +16269,10 @@ P社游戏第一次加入官方中文。
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.21) 
 
 
-
-
-
-
-
 -----
 
 ####  setree  
 ##### 1182#       发表于 2016-12-6 12:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34396280&amp;ptid=1275523" target="_blank">Inquisitor 发表于 2016-12-6 11:33</a>
@@ -23895,33 +16290,19 @@ P社游戏第一次加入官方中文。
 另，这次汉化真是腾讯老爷出的力，看来可以期待以后P社游戏都自带汉化了...
 
 
-
-
-
-
-
 -----
 
 ####  东亚重工  
 ##### 1183#       发表于 2016-12-13 22:08
 
 
-
-
 疯狂难度下电脑的战舰数量到底是怎么标准？，我铺了十颗星全四级太空站，堆起来的舰数还没有对面五颗星一半多，作弊也不能这么作吧。
-
-
-
-
-
 
 
 -----
 
 ####  工口兔  
 ##### 1184#       发表于 2016-12-14 02:25
-
-
 
 
 官中的翻译在贴吧抱怨，因为饥荒汉化偷mod汉化的事情，腾讯老爷要求文本不能和任何已有的汉化mod相似，但有些东西对的就是对的，非要不同就很别扭
@@ -23931,16 +16312,10 @@ P社游戏第一次加入官方中文。
 不过之前怎样都无所谓了，瑞典大爷被玩家反映后一怒之下1.4.1直接给官中撤了回炉重校，估计下次再出来质量就能看了
 
 
-
-
-
-
-
 -----
 
 ####  wangsanc  
 ##### 1185#       发表于 2016-12-14 11:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34478967&amp;ptid=1275523" target="_blank">工口兔 发表于 2016-12-14 02:25</a>
@@ -23958,17 +16333,10 @@ P社游戏第一次加入官方中文。
 对于舰队的影响还是【建成时候起效，永久有效】？
 
 
-
-
-
-
-
-
 -----
 
 ####  黑化的石头  
 ##### 1186#       发表于 2016-12-14 11:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34477318&amp;ptid=1275523" target="_blank">东亚重工 发表于 2016-12-13 22:08</a>
@@ -23977,16 +16345,10 @@ P社游戏第一次加入官方中文。
 疯狂难度电脑的资源科技和海军都是翻倍的
 
 
-
-
-
-
-
 -----
 
 ####  antiultima  
 ##### 1187#       发表于 2016-12-14 14:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34481401&amp;ptid=1275523" target="_blank">wangsanc 发表于 2016-12-14 11:05</a>
@@ -24003,16 +16365,10 @@ P社游戏第一次加入官方中文。
 1.4是否还有改动我就不知道了……
 
 
-
-
-
-
-
 -----
 
 ####  wangsanc  
 ##### 1188#       发表于 2016-12-14 15:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34483508&amp;ptid=1275523" target="_blank">antiultima 发表于 2016-12-14 14:12</a>
@@ -24031,33 +16387,19 @@ P社游戏第一次加入官方中文。
 不能6光矛战列凭借生产力碾压了好不爽。
 
 
-
-
-
-
-
-
 -----
 
 ####  Risa_g  
 ##### 1189#       发表于 2016-12-14 19:23
 
 
-
-
 1.4各种船型保持数量均衡就好。单纯对电脑的话，电脑一般会在出巡洋之后把所有护卫全部改装成鱼雷护卫，导致电脑舰队的对小船火力严重下降，玩家用护卫海淹起来不要太爽。
-
-
-
-
-
 
 
 -----
 
 ####  momoranshi  
 ##### 1190#       发表于 2016-12-14 19:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34484583&amp;ptid=1275523" target="_blank">wangsanc 发表于 2016-12-14 15:51</a>
@@ -24069,27 +16411,15 @@ P社游戏第一次加入官方中文。
 上动能炮啊
 
 
-
-
-
-
-
 -----
 
 ####  cl776  
 ##### 1191#       发表于 2016-12-14 19:45
 
 
-
-
 1.4纯战列只能大舰队+动能武器，遇到航母配置敌人时候还得塞防空船。
 
 感觉战斗没法打的很爽，方法不外乎大量小船A过去拼生产力，或者大舰队仔细盯着慢慢打。
-
-
-
-
-
 
 
 -----
@@ -24098,23 +16428,15 @@ P社游戏第一次加入官方中文。
 ##### 1192#       发表于 2016-12-14 20:28
 
 
-
-
 说起来进入战斗后巡洋舰顶前面当炮灰是默认设置吗，害的我把巡洋舰改成了扫雷舰
 
 另外1.4护卫舰叼炸天，战列舰的战斗力被高估了。差不多战斗力的舰队，我10艘战列舰加海量驱逐护卫能轻松灭掉电脑的巨舰配置，自己的战列舰一艘都不死，死掉的小船分分钟就补回来了(元首选有护卫舰专长或驱逐舰专长技能的)
-
-
-
-
-
 
 
 -----
 
 ####  wangsanc  
 ##### 1193#       发表于 2016-12-15 12:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34487135&amp;ptid=1275523" target="_blank">momoranshi 发表于 2016-12-14 19:42</a>
@@ -24130,33 +16452,19 @@ P社游戏第一次加入官方中文。
 我还是走小船流吧，可惜了我那3个战列舰组装厂……
 
 
-
-
-
-
-
-
 -----
 
 ####  晓寒  
 ##### 1194#       发表于 2016-12-16 12:44
 
 
-
-
 办公室封端口，求个最新版的白嫖资源，贴吧的好像都没了
-
-
-
-
-
 
 
 -----
 
 ####  东亚重工  
 ##### 1195#       发表于 2016-12-16 15:44
-
 
 
  本帖最后由 东亚重工 于 2016-12-16 15:46 编辑 
@@ -24172,16 +16480,10 @@ P社游戏第一次加入官方中文。
 4，怎样净化异族人口？是要研发相关科技吗？5，除了净化外，还有其他什么行星毁灭的方法吗？眼看着那些土著一个个升格独立成星球国，拦都拦不住，好想烧玻璃。
 
 
-
-
-
-
-
 -----
 
 ####  东亚重工  
 ##### 1196#       发表于 2016-12-16 16:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34493338&amp;ptid=1275523" target="_blank">wangsanc 发表于 2016-12-15 12:12</a>
@@ -24195,16 +16497,10 @@ L武器本来就是用来打对方大舰的吧，对小船命中率不行。
 感觉这游戏里中型舰只是顶在前面帮小船挡枪挡炮反飞弹的，小船则是主要输出，而战列舰则是躲在后面用L武器猎杀中型舰只的。
 
 
-
-
-
-
-
 -----
 
 ####  东亚重工  
 ##### 1197#       发表于 2016-12-16 16:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34484583&amp;ptid=1275523" target="_blank">wangsanc 发表于 2016-12-14 15:51</a>
@@ -24216,17 +16512,10 @@ L武器本来就是用来打对方大舰的吧，对小船命中率不行。
 关系好时跟对方共享一下主动感知信息，平时多关注下对方舰队动响，基本是什么类型在战前都摸清楚了，自己舰只做对应改造不可能30k打不过20k。
 
 
-
-
-
-
-
 -----
 
 ####  冬眠的龙凰  
 ##### 1198#       发表于 2016-12-16 18:23
-
-
 
 
 大舰巨炮可以考虑搭配航母海 舰载机对御姐小学生都是一视同仁的
@@ -24238,32 +16527,19 @@ L武器本来就是用来打对方大舰的吧，对小船命中率不行。
 我现在就是轴基武器传统战列舰和航母一比一 加上同等数量的重甲雷巡 吊打NPC不要太爽
 
 
-
-
-
-
-
 -----
 
 ####  Risa_g  
 ##### 1199#       发表于 2016-12-16 21:20
 
 
-
-
 错啊。目前官版舰载机打护卫舰命中率极其低下，打护卫以上的舰种又会被点防打爆。这东西就只能作为小众特化兵器而已。
-
-
-
-
-
 
 
 -----
 
 ####  夜游的树  
 ##### 1200#       发表于 2016-12-16 22:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34505875&amp;ptid=1275523" target="_blank">东亚重工 发表于 2016-12-16 15:44</a>
@@ -24282,16 +16558,10 @@ L武器本来就是用来打对方大舰的吧，对小船命中率不行。
 烧玻璃mod也有，不想用mod的话，毁灭土著就只好把舰队开二级或三级轰炸，拉过去慢慢炸，直到把土著人口炸没为止了……
 
 
-
-
-
-
-
 -----
 
 ####  antiultima  
 ##### 1201#       发表于 2016-12-17 09:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34505875&amp;ptid=1275523" target="_blank">东亚重工 发表于 2016-12-16 15:44</a>
@@ -24310,25 +16580,13 @@ L武器本来就是用来打对方大舰的吧，对小船命中率不行。
 5、一般没有，除非你打烧玻璃的mod
 
 
-
-
-
-
-
 -----
 
 ####  wudiken  
 ##### 1202#       发表于 2016-12-18 12:53
 
 
-
-
 最新版本好像去掉了中文是这样吗？还是只有我是这种情况？
-
-
-
-
-
 
 
 -----
@@ -24337,23 +16595,16 @@ L武器本来就是用来打对方大舰的吧，对小船命中率不行。
 ##### 1203#       发表于 2016-12-18 14:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34520700&amp;ptid=1275523" target="_blank">wudiken 发表于 2016-12-18 12:53</a>
 
 最新版本好像去掉了中文是这样吗？还是只有我是这种情况？</blockquote>
 质量太差 去掉了
 
 
-
-
-
-
-
 -----
 
 ####  wangsanc  
 ##### 1204#       发表于 2016-12-19 10:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34520700&amp;ptid=1275523" target="_blank">wudiken 发表于 2016-12-18 12:53</a>
@@ -24367,17 +16618,10 @@ L武器本来就是用来打对方大舰的吧，对小船命中率不行。
 现在我还是MOD汉化应付。
 
 
-
-
-
-
-
-
 -----
 
 ####  wangsanc  
 ##### 1205#       发表于 2016-12-19 10:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34505875&amp;ptid=1275523" target="_blank">东亚重工 发表于 2016-12-16 15:44</a>
@@ -24413,7 +16657,6 @@ L武器本来就是用来打对方大舰的吧，对小船命中率不行。
 4.只能净化自己控制星球上的，外星只能2/3级轰炸炸一年……
 
 
-
 修改/开MOD，你会见到另一个游戏【我仅在报复社会时候用……】
 
 1.所有人口/专家/领导10特质【无有害特质】的MOD，种田如同坐火箭。
@@ -24440,18 +16683,10 @@ L武器本来就是用来打对方大舰的吧，对小船命中率不行。
 恒星破坏者MOD，炸了恒星，整个恒星系废掉……
 
 
-
-
-
-
-
-
 -----
 
 ####  东亚重工  
 ##### 1206#       发表于 2016-12-19 11:32
-
-
 
 
 感谢ls帮我解惑的朋友们。
@@ -24460,25 +16695,13 @@ L武器本来就是用来打对方大舰的吧，对小船命中率不行。
 周末刷了一把疯狂难度，好不容易整合了一半的银河系，结果堕落帝国开始觉醒了，看了下它主舰队居然有280k的战力，我拼死拼活才凑了100k，而且银河对面还有一个堕落帝国，估计也快醒了，感觉这仗没法打了，只能开控制台搞了个无敌，结果把堕落帝国干趴下后才发现居然没有战列巡洋舰的科技，感觉一股子毛子丢了乌克兰就没法造航母的感觉。记得以前一局初期碰到一个堕落帝国居然送我一艘战列巡洋舰，现在才知道真够朋友啊。
 
 
-
-
-
-
-
 -----
 
 ####  flypig_zhy  
 ##### 1207#       发表于 2016-12-19 12:33
 
 
-
-
 小船海战损太烦人了
-
-
-
-
-
 
 
 -----
@@ -24487,14 +16710,7 @@ L武器本来就是用来打对方大舰的吧，对小船命中率不行。
 ##### 1208#       发表于 2016-12-21 14:25
 
 
-
-
 怎么解锁各种船的换装图纸？难道是固定的？
-
-
-
-
-
 
 
 -----
@@ -24503,16 +16719,10 @@ L武器本来就是用来打对方大舰的吧，对小船命中率不行。
 ##### 1209#       发表于 2016-12-21 14:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34554523&amp;ptid=1275523" target="_blank">JC_AR 发表于 2016-12-21 14:25</a>
 
 怎么解锁各种船的换装图纸？难道是固定的？</blockquote>
 船舶设计里不是可以改变设置然后保存吗？
-
-
-
-
-
 
 
 -----
@@ -24521,14 +16731,7 @@ L武器本来就是用来打对方大舰的吧，对小船命中率不行。
 ##### 1210#       发表于 2016-12-21 14:30
 
 
-
-
 大家是不是都在玩疯狂难度？感觉这个难度完全就是看出生位置，新开局被几家围住就永无出头之日了，随便哪家同样的海军容量都是你两倍的舰船数，打都不用打了。
-
-
-
-
-
 
 
 -----
@@ -24537,22 +16740,15 @@ L武器本来就是用来打对方大舰的吧，对小船命中率不行。
 ##### 1211#       发表于 2016-12-21 14:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=34554546&amp;amp;ptid=1275523" target="_blank">东亚重工 发表于 2016-12-21 14:27</a>
 船舶设计里不是可以改变设置然后保存吗？</blockquote>
 就是这个图纸是固定还是可以解锁的，我记得人类的护卫舰有两种，一个可以装鱼雷，一个不可以，我用爬行类的飞船就只有一种
-
-
-
-
-
 
 
 -----
 
 ####  wangsanc  
 ##### 1212#       发表于 2016-12-21 15:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34554523&amp;ptid=1275523" target="_blank">JC_AR 发表于 2016-12-21 14:25</a>
@@ -24563,26 +16759,16 @@ L武器本来就是用来打对方大舰的吧，对小船命中率不行。
 换装型号只影响武器槽，不影响后勤槽
 
 
-
 军事科技解锁，拥有任意T【鱼雷】类型的武器即可解锁所有带P的船体，不然这个船体永不解锁。
 
 
 同理，P【点防】H【航空】X【XL超大型武器槽】一样。
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  JC_AR  
 ##### 1213#       发表于 2016-12-21 15:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=34555206&amp;amp;ptid=1275523" target="_blank">wangsanc 发表于 2016-12-21 15:16</a>
@@ -24592,16 +16778,10 @@ L武器本来就是用来打对方大舰的吧，对小船命中率不行。
 明白了
 
 
-
-
-
-
-
 -----
 
 ####  东亚重工  
 ##### 1214#       发表于 2016-12-21 15:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34555206&amp;ptid=1275523" target="_blank">wangsanc 发表于 2016-12-21 15:16</a>
@@ -24612,17 +16792,10 @@ L武器本来就是用来打对方大舰的吧，对小船命中率不行。
 我就想问问航空这个H是啥的缩写？（Hangkong？<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">）
 
 
-
-
-
-
-
 -----
 
 ####  大哀之君  
 ##### 1215#       发表于 2016-12-21 15:42
-
-
 
 
 Hangar，机库
@@ -24630,16 +16803,10 @@ Hangar，机库
     —— from [S1 Nyan](http://126.am/S1Nyan) (NOKIA Lumia 920)来自: WindowsPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  东亚重工  
 ##### 1216#       发表于 2016-12-21 16:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34555488&amp;ptid=1275523" target="_blank">大哀之君 发表于 2016-12-21 15:42</a>
@@ -24650,25 +16817,13 @@ Hangar，机库
 原来如此谢谢
 
 
-
-
-
-
-
 -----
 
 ####  Risa_g  
 ##### 1217#       发表于 2016-12-21 16:14
 
 
-
-
 H是上手就有的（侦察机），只不过许多带H的模块同时带P，所以需要研究P来解锁。
-
-
-
-
-
 
 
 -----
@@ -24677,23 +16832,15 @@ H是上手就有的（侦察机），只不过许多带H的模块同时带P，�
 ##### 1218#       发表于 2016-12-21 16:24
 
 
-
-
 有人在用New Ships&amp;Classes吗？
 
 请问新船到底怎么样才能解锁？科技里面是没有
-
-
-
-
-
 
 
 -----
 
 ####  Inquisitor  
 ##### 1219#       发表于 2016-12-21 16:30
-
 
 
 <blockquote>引用第1217楼娱樂記者阿卡林于2016-12-21 16:24发表的  :
@@ -24707,16 +16854,10 @@ H是上手就有的（侦察机），只不过许多带H的模块同时带P，�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.21) 
 
 
-
-
-
-
-
 -----
 
 ####  娱樂記者阿卡林  
 ##### 1220#       发表于 2016-12-21 16:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34556043&amp;ptid=1275523" target="_blank">Inquisitor 发表于 2016-12-21 16:30</a>
@@ -24729,25 +16870,13 @@ H是上手就有的（侦察机），只不过许多带H的模块同时带P，�
 mod加载不成功吗
 
 
-
-
-
-
-
 -----
 
 ####  小姜不辣  
 ##### 1221#       发表于 2017-1-3 10:34
 
 
-
-
 昨天忍不住买，结果发现中文被去掉了，那还是等中文恢复了再玩吧<img src="https://static.saraba1st.com/image/smiley/face/32.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24756,23 +16885,15 @@ mod加载不成功吗
 ##### 1222#       发表于 2017-1-3 12:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34682286&amp;ptid=1275523" target="_blank">小姜不辣 发表于 2017-1-3 10:34</a>
 昨天忍不住买，结果发现中文被去掉了，那还是等中文恢复了再玩吧</blockquote>
 官中质量傻逼的很，不如贴吧的汉化mod
-
-
-
-
-
 
 
 -----
 
 ####  lb19931118  
 ##### 1223#       发表于 2017-1-3 22:23
-
-
 
 
 说来你们有谁打的时候一直没有出事件么?
@@ -24784,16 +16905,10 @@ mod加载不成功吗
 最过分得是先驱者事件,我收集都变成14/6, 重复收集了很多事件,但是就是不进入下一步.
 
 
-
-
-
-
-
 -----
 
 ####  Risa_g  
 ##### 1224#       发表于 2017-1-3 22:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34689542&amp;ptid=1275523" target="_blank">lb19931118 发表于 2017-1-3 22:23</a>
@@ -24805,16 +16920,10 @@ mod加载不成功吗
 你用的是steam版还是其他来源的版本？有上mod还是没有上mod？
 
 
-
-
-
-
-
 -----
 
 ####  lb19931118  
 ##### 1225#       发表于 2017-1-3 23:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34689757&amp;ptid=1275523" target="_blank">Risa_g 发表于 2017-1-3 22:49</a>
@@ -24829,17 +16938,10 @@ steam版 只有汉化mod.
 还有一些pop头像不显示的问题.
 
 
-
-
-
-
-
-
 -----
 
 ####  Risa_g  
 ##### 1226#       发表于 2017-1-4 00:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34690224&amp;ptid=1275523" target="_blank">lb19931118 发表于 2017-1-3 23:45</a>
@@ -24854,16 +16956,10 @@ pop头像不显示是个已知的bug了，慢慢等官修。
 先驱者事件链这个，你出问题的是哪个先驱者的事件链？
 
 
-
-
-
-
-
 -----
 
 ####  lb19931118  
 ##### 1227#       发表于 2017-1-4 00:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34690356&amp;ptid=1275523" target="_blank">Risa_g 发表于 2017-1-4 00:05</a>
@@ -24911,16 +17007,10 @@ XX马克的家园
 赛伯勒克斯入侵
 
 
-
-
-
-
-
 -----
 
 ####  Risa_g  
 ##### 1228#       发表于 2017-1-4 00:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34690425&amp;ptid=1275523" target="_blank">lb19931118 发表于 2017-1-4 00:15</a>
@@ -24934,16 +17024,10 @@ XX马克的家园
 稍后我会去官坛报这个bug，以及把修复加进我的mod里。
 
 
-
-
-
-
-
 -----
 
 ####  lb19931118  
 ##### 1229#       发表于 2017-1-4 01:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34690562&amp;ptid=1275523" target="_blank">Risa_g 发表于 2017-1-4 00:49</a>
@@ -24954,17 +17038,10 @@ XX马克的家园
 噢噢多谢!
 
 
-
-
-
-
-
-
 -----
 
 ####  纸老虎也是老虎  
 ##### 1230#       发表于 2017-1-4 08:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=32469941&amp;ptid=1275523" target="_blank">eno_emos 发表于 2016-5-19 11:55</a>
@@ -24979,17 +17056,10 @@ P社这个祖传引擎打架部分就是数值对撞，阵型顶多给你个百�
 梯形必须怂哈哈哈哈
 
 
-
-
-
-
-
 -----
 
 ####  厄斯沃穆  
 ##### 1231#       发表于 2017-2-3 16:09
-
-
 
 
 【《群星》首个资料片“乌托邦”公布】P社宣布《群星》将迎来首个资料片“乌托邦（Utopia ）”，资料片的核心改进是引入了Ascension Perks，随着物种进化和获得新的传统，玩家可以在生物、神学、合成三个进化路径进行选择，此外还有包括戴森球和环世界在内的巨型建筑、轨道栖息地、权利分级等系统。 
@@ -25004,17 +17074,10 @@ P社这个祖传引擎打架部分就是数值对撞，阵型顶多给你个百�
 <img src="http://wx2.sinaimg.cn/mw690/9d0d09abgy1fcdb7hh5guj20fj0fudst.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  iqbsh38  
 ##### 1232#       发表于 2017-2-3 16:20
-
-
 
 
 可以造殖民地卫星了 大不列颠作战走起
@@ -25023,32 +17086,19 @@ P社这个祖传引擎打架部分就是数值对撞，阵型顶多给你个百�
 问下我隔壁有个圣地盖亚和守卫者堕落爸爸 我能先殖民盖亚 然后趁着爸爸没发难把星球送给我对手让堕落爸爸去教育他么
 
 
-
-
-
-
-
 -----
 
 ####  scikirbypoke  
 ##### 1233#       发表于 2017-2-3 17:41
 
 
-
-
 戴森球还能变行星的气候，说不定可以用来净化
-
-
-
-
-
 
 
 -----
 
 ####  试制甲炮  
 ##### 1234#       发表于 2017-2-3 17:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35096060&amp;ptid=1275523" target="_blank">iqbsh38 发表于 2017-2-3 16:20</a>
@@ -25060,16 +17110,10 @@ P社这个祖传引擎打架部分就是数值对撞，阵型顶多给你个百�
 我记得近几个版本改成了殖民上去就立即跳事件了，所以应该不行。
 
 
-
-
-
-
-
 -----
 
 ####  iqbsh38  
 ##### 1235#       发表于 2017-2-3 17:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35096914&amp;ptid=1275523" target="_blank">试制甲炮 发表于 2017-2-3 17:50</a>
@@ -25078,16 +17122,10 @@ P社这个祖传引擎打架部分就是数值对撞，阵型顶多给你个百�
 擦 这档也废了 周围3个邻居全是敌对 虽然单家我能怼死 但这三个混蛋缔结了防卫条款
 
 
-
-
-
-
-
 -----
 
 ####  试制甲炮  
 ##### 1236#       发表于 2017-2-3 17:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35096849&amp;ptid=1275523" target="_blank">scikirbypoke 发表于 2017-2-3 17:41</a>
@@ -25096,32 +17134,19 @@ P社这个祖传引擎打架部分就是数值对撞，阵型顶多给你个百�
 造完之后整个星系类地行星变寒冰世界，你说能不能拿来净化。
 
 
-
-
-
-
-
 -----
 
 ####  你次元小报社  
 ##### 1237#       发表于 2017-2-4 00:05
 
 
-
-
 新的好像可以吃外星人，相当的政治不正确
-
-
-
-
-
 
 
 -----
 
 ####  大哀之君  
 ##### 1238#       发表于 2017-2-21 20:55
-
 
 
  本帖最后由 大哀之君 于 2017-2-21 21:32 编辑 
@@ -25151,16 +17176,10 @@ P社这个祖传引擎打架部分就是数值对撞，阵型顶多给你个百�
 ↑大名鼎鼎的“狂热清洗者”现在是个开放给玩家的Civic。不允许外交，治下所有外星人口一律自动净化，不消耗影响反而产生凝聚力（新点数），舰队射速+33%，陆军伤害+33%，可以使用末日级轰炸强度
 
 
-
-
-
-
-
 -----
 
 ####  hyiang98  
 ##### 1239#       发表于 2017-2-21 21:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35285489&amp;ptid=1275523" target="_blank">大哀之君 发表于 2017-2-21 20:55</a>
@@ -25172,16 +17191,10 @@ P社这个祖传引擎打架部分就是数值对撞，阵型顶多给你个百�
 看不到图
 
 
-
-
-
-
-
 -----
 
 ####  大哀之君  
 ##### 1240#       发表于 2017-2-21 21:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35285769&amp;ptid=1275523" target="_blank">hyiang98 发表于 2017-2-21 21:25</a>
@@ -25190,32 +17203,19 @@ P社这个祖传引擎打架部分就是数值对撞，阵型顶多给你个百�
 改图床了
 
 
-
-
-
-
-
 -----
 
 ####  g54088  
 ##### 1241#       发表于 2017-2-21 21:35
 
 
-
-
 已经和1.0不是一个游戏了。没有1.5玩我要死了。<img src="https://static.saraba1st.com/image/smiley/face/38.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  鱼鸟MoMo  
 ##### 1242#       发表于 2017-2-21 21:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35096060&amp;ptid=1275523" target="_blank">iqbsh38 发表于 2017-2-3 16:20</a>
@@ -25227,26 +17227,15 @@ P社这个祖传引擎打架部分就是数值对撞，阵型顶多给你个百�
 不能，殖民的那一刻 堕落爸爸就会要求你要么撤离要么开战了，都不用等殖民地完成。
 
 
-
-
-
-
-
 -----
 
 ####  g54088  
 ##### 1243#       发表于 2017-2-24 18:28
 
 
-
 [http://tieba.baidu.com/p/4994811195](http://tieba.baidu.com/p/4994811195)
 
 群星变成群星利亚了……以及大家期待的虫群要来了。
-
-
-
-
-
 
 
 -----
@@ -25255,14 +17244,7 @@ P社这个祖传引擎打架部分就是数值对撞，阵型顶多给你个百�
 ##### 1244#       发表于 2017-4-6 21:03
 
 
-
-
 更新啦。乌托邦来了！
-
-
-
-
-
 
 
 -----
@@ -25271,14 +17253,7 @@ P社这个祖传引擎打架部分就是数值对撞，阵型顶多给你个百�
 ##### 1245#       发表于 2017-4-6 22:09
 
 
-
-
 英语本来就差，再加上七八年没用，全还给老师了，乖乖等汉化<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25287,15 +17262,9 @@ P社这个祖传引擎打架部分就是数值对撞，阵型顶多给你个百�
 ##### 1246#       发表于 2017-4-6 22:34
 
 
-
 <blockquote>挫人MKII 发表于 2017-4-6 22:09
 英语本来就差，再加上七八年没用，全还给老师了，乖乖等汉化</blockquote>
 自带官中
-
-
-
-
-
 
 
 -----
@@ -25304,14 +17273,7 @@ P社这个祖传引擎打架部分就是数值对撞，阵型顶多给你个百�
 ##### 1247#       发表于 2017-4-6 22:36
 
 
-
-
 我去居然更新乌托邦了，周末开搞
-
-
-
-
-
 
 
 -----
@@ -25320,14 +17282,7 @@ P社这个祖传引擎打架部分就是数值对撞，阵型顶多给你个百�
 ##### 1248#       发表于 2017-4-6 22:44
 
 
-
-
 第一时间买了，这次的政治系统几乎重做了，好有趣，等闲下来就开坑~
-
-
-
-
-
 
 
 -----
@@ -25336,16 +17291,10 @@ P社这个祖传引擎打架部分就是数值对撞，阵型顶多给你个百�
 ##### 1249#       发表于 2017-4-6 22:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35600814&amp;ptid=1275523" target="_blank">鱼鸟MoMo 发表于 2017-4-6 22:34</a>
 
 自带官中</blockquote>
 早就撤下去了。。。。
-
-
-
-
-
 
 
 -----
@@ -25354,16 +17303,10 @@ P社这个祖传引擎打架部分就是数值对撞，阵型顶多给你个百�
 ##### 1250#       发表于 2017-4-6 22:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35600814&amp;ptid=1275523" target="_blank">鱼鸟MoMo 发表于 2017-4-6 22:34</a>
 
 自带官中</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">你骗人!
-
-
-
-
-
 
 
 -----
@@ -25372,23 +17315,16 @@ P社这个祖传引擎打架部分就是数值对撞，阵型顶多给你个百�
 ##### 1251#       发表于 2017-4-7 00:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35600814&amp;ptid=1275523" target="_blank">鱼鸟MoMo 发表于 2017-4-6 22:34</a>
 
 自带官中</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">没有官中你是不是贴里一人发一罐可乐
 
 
-
-
-
-
-
 -----
 
 ####  scikirbypoke  
 ##### 1252#       发表于 2017-4-7 00:09
-
 
 
  本帖最后由 scikirbypoke 于 2017-4-7 09:34 编辑 
@@ -25401,17 +17337,10 @@ P社这个祖传引擎打架部分就是数值对撞，阵型顶多给你个百�
 steam的linux客户端的这个文件如果消失了就无法载入dlc，解决办法是从~/.steam/linux32/里cp一份过去或者做一个symlink
 
 
-
-
-
-
-
 -----
 
 ####  hyiang98  
 ##### 1253#       发表于 2017-4-7 01:47
-
-
 
 
 可惜在外面…
@@ -25420,25 +17349,13 @@ steam的linux客户端的这个文件如果消失了就无法载入dlc，解决�
 —— 来自 Sony E6883, Android 5.1.1上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  水边井  
 ##### 1254#       发表于 2017-4-7 06:28
 
 
-
-
 蒸汽p社周末。。瑞典人的阴谋！
-
-
-
-
-
 
 
 -----
@@ -25447,14 +17364,7 @@ steam的linux客户端的这个文件如果消失了就无法载入dlc，解决�
 ##### 1255#       发表于 2017-4-7 07:45
 
 
-
-
 1.5这个改动真是大，已经和1.4快要不是一个游戏了。每个人口都有矿物和生活必需品需求，满意度分派系，爆兵流怕是只能选虫群思维
-
-
-
-
-
 
 
 -----
@@ -25463,16 +17373,9 @@ steam的linux客户端的这个文件如果消失了就无法载入dlc，解决�
 ##### 1256#       发表于 2017-4-7 09:03
 
 
-
-
 90%时间都在智斗刁民，很麻烦很累
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (NOKIA Lumia 920)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
@@ -25481,21 +17384,13 @@ steam的linux客户端的这个文件如果消失了就无法载入dlc，解决�
 ##### 1257#       发表于 2017-4-7 09:09
 
 
-
-
 DLC只是有了戴森球等3个超级建筑 没别的东西么
-
-
-
-
-
 
 
 -----
 
 ####  eno_emos  
 ##### 1258#       发表于 2017-4-7 09:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35602802&amp;ptid=1275523" target="_blank">大哀之君 发表于 2017-4-7 09:03</a>
@@ -25506,17 +17401,10 @@ DLC只是有了戴森球等3个超级建筑 没别的东西么
 内乱大于外忧，找到了EU的感觉
 
 
-
-
-
-
-
 -----
 
 ####  Inquisitor  
 ##### 1259#       发表于 2017-4-7 10:17
-
-
 
 
 dlc列表空荡荡的只有3个了怎么回事？只有利维坦、乌托邦和那个什么signal了
@@ -25525,16 +17413,10 @@ dlc列表空荡荡的只有3个了怎么回事？只有利维坦、乌托邦和�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.23)
 
 
-
-
-
-
-
 -----
 
 ####  iqbsh38  
 ##### 1260#       发表于 2017-4-7 10:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35603504&amp;ptid=1275523" target="_blank">Inquisitor 发表于 2017-4-7 10:17</a>
@@ -25549,16 +17431,10 @@ dlc列表空荡荡的只有3个了怎么回事？只有利维坦、乌托邦和�
 话说我不升级1.5 新资料片的东西能用么
 
 
-
-
-
-
-
 -----
 
 ####  halfelf_ronin  
 ##### 1261#       发表于 2017-4-7 10:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35602802&amp;ptid=1275523" target="_blank">大哀之君 发表于 2017-4-7 09:03</a>
@@ -25569,16 +17445,10 @@ dlc列表空荡荡的只有3个了怎么回事？只有利维坦、乌托邦和�
 你需要Hive Mind
 
 
-
-
-
-
-
 -----
 
 ####  g54088  
 ##### 1262#       发表于 2017-4-7 10:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35603859&amp;ptid=1275523" target="_blank">iqbsh38 发表于 2017-4-7 10:52</a>
@@ -25591,31 +17461,19 @@ dlc列表空荡荡的只有3个了怎么回事？只有利维坦、乌托邦和�
 —— 来自 HUAWEI LON-AL00, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  setree  
 ##### 1263#       发表于 2017-4-7 10:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">生孩子好慢
-
-
-
-
-
 
 
 -----
 
 ####  g54088  
 ##### 1264#       发表于 2017-4-7 11:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35602838&amp;ptid=1275523" target="_blank">iqbsh38 发表于 2017-4-7 09:09</a>
@@ -25625,32 +17483,19 @@ DLC只是有了戴森球等3个超级建筑 没别的东西么</blockquote>
 —— 来自 HUAWEI LON-AL00, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  薛定谔的包裹  
 ##### 1265#       发表于 2017-4-7 11:08
 
 
-
-
 吃外星人和蜂群意志也是乌托邦内容
-
-
-
-
-
 
 
 -----
 
 ####  娱樂記者城少主  
 ##### 1266#       发表于 2017-4-7 11:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35096060&amp;ptid=1275523" target="_blank">iqbsh38 发表于 2017-2-3 16:20</a>
@@ -25662,16 +17507,10 @@ DLC只是有了戴森球等3个超级建筑 没别的东西么</blockquote>
 我试过，聪明的会立刻退星保平安
 
 
-
-
-
-
-
 -----
 
 ####  setree  
 ##### 1267#       发表于 2017-4-7 16:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35603945&amp;ptid=1275523" target="_blank">halfelf_ronin 发表于 2017-4-7 10:59</a>
@@ -25680,16 +17519,10 @@ DLC只是有了戴森球等3个超级建筑 没别的东西么</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">所以说造反不可避免
 
 
-
-
-
-
-
 -----
 
 ####  iqbsh38  
 ##### 1268#       发表于 2017-4-7 16:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35606581&amp;ptid=1275523" target="_blank">setree 发表于 2017-4-7 16:19</a>
@@ -25700,27 +17533,15 @@ DLC只是有了戴森球等3个超级建筑 没别的东西么</blockquote>
 陆军放上面会不会好一点
 
 
-
-
-
-
-
 -----
 
 ####  chaoswing  
 ##### 1269#       发表于 2017-4-7 17:59
 
 
-
-
 hive mind爆铺真的好爽
 
 点个+20%适性的trait，所有可殖民行星就都能殖民了（最低要求是40%，20+20刚好）
-
-
-
-
-
 
 
 -----
@@ -25729,14 +17550,7 @@ hive mind爆铺真的好爽
 ##### 1270#       发表于 2017-4-8 00:12
 
 
-
-
 不都在吐槽蜂巢越往后越弱吗<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25745,16 +17559,9 @@ hive mind爆铺真的好爽
 ##### 1271#       发表于 2017-4-8 00:18
 
 
-
-
 1.5战争分数大改，好评，占行星和舰队战的分数比以前提高了很多——有一次刚占了几个行星，连隔壁舰队都没见到它就痛快投降了，可能是个精神法国人<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 —— 来自 samsung SM-G9350, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
-
-
-
-
-
 
 
 -----
@@ -25763,14 +17570,7 @@ hive mind爆铺真的好爽
 ##### 1272#       发表于 2017-4-8 02:24
 
 
-
-
 买了本体和利维坦，乌托邦是也是必须的么？
-
-
-
-
-
 
 
 -----
@@ -25779,14 +17579,7 @@ hive mind爆铺真的好爽
 ##### 1273#       发表于 2017-4-8 03:42
 
 
-
-
 等漢化！！！
-
-
-
-
-
 
 
 -----
@@ -25795,22 +17588,15 @@ hive mind爆铺真的好爽
 ##### 1274#       发表于 2017-4-8 08:43
 
 
-
  本帖最后由 gaomao 于 2018-9-23 15:44 编辑 
 
 -
-
-
-
-
-
 
 
 -----
 
 ####  g54088  
 ##### 1275#       发表于 2017-4-8 11:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35610532&amp;ptid=1275523" target="_blank">可知歌者也奈何 发表于 2017-4-8 02:24</a>
@@ -25820,26 +17606,15 @@ hive mind爆铺真的好爽
 —— 来自 HUAWEI LON-AL00, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  setree  
 ##### 1276#       发表于 2017-4-8 12:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35609991&amp;ptid=1275523" target="_blank">娱樂記者城少主 发表于 2017-4-8 00:12</a>
 不都在吐槽蜂巢越往后越弱吗</blockquote>
 只要食物足够，后期蜂巢一样强
-
-
-
-
-
 
 
 -----
@@ -25848,14 +17623,7 @@ hive mind爆铺真的好爽
 ##### 1277#       发表于 2017-4-8 20:33
 
 
-
-
 灵能最后那个自爆。。。真不是p社的恶意么<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25864,16 +17632,10 @@ hive mind爆铺真的好爽
 ##### 1278#       发表于 2017-4-8 20:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35615517&amp;ptid=1275523" target="_blank">chushou 发表于 2017-4-8 20:33</a>
 
 灵能最后那个自爆。。。真不是p社的恶意么</blockquote>
 不是啊，捏他战锤40k里艾达人搞出色虐的那段，加上灵能另外三个存在就是捏他战锤40k混沌四神。
-
-
-
-
-
 
 
 -----
@@ -25882,16 +17644,10 @@ hive mind爆铺真的好爽
 ##### 1279#       发表于 2017-4-8 21:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35615616&amp;ptid=1275523" target="_blank">g54088 发表于 2017-4-8 20:44</a>
 
 不是啊，捏他战锤40k里艾达人搞出色虐的那段，加上灵能另外三个存在就是捏他战锤40k混沌四神。 ...</blockquote>
 原来如此
-
-
-
-
-
 
 
 -----
@@ -25900,15 +17656,8 @@ hive mind爆铺真的好爽
 ##### 1280#       发表于 2017-4-9 03:54
 
 
-
-
 1.50有bug铁人解不了成就
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">白打了两天
-
-
-
-
-
 
 
 -----
@@ -25917,24 +17666,15 @@ hive mind爆铺真的好爽
 ##### 1281#       发表于 2017-4-9 11:48
 
 
-
-
 bug不能宣战，点宣战程序直接崩溃跳出回桌面
 
 谁遇到了？
-
-
-
-
-
 
 
 -----
 
 ####  007.5  
 ##### 1282#       发表于 2017-4-9 12:00
-
-
 
 
 只买过本体，看了下现在steam商店页面有3个DLC，乌托邦，利维坦，还有一个忘了叫啥
@@ -25946,16 +17686,10 @@ bug不能宣战，点宣战程序直接崩溃跳出回桌面
 还有回炉的官中还出不出了
 
 
-
-
-
-
-
 -----
 
 ####  SickEternalUps  
 ##### 1283#       发表于 2017-4-9 12:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35619542&amp;ptid=1275523" target="_blank">007.5 发表于 2017-4-9 12:00</a>
@@ -25967,16 +17701,10 @@ bug不能宣战，点宣战程序直接崩溃跳出回桌面
 horizon signal是免费的
 
 
-
-
-
-
-
 -----
 
 ####  g54088  
 ##### 1284#       发表于 2017-4-9 12:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35619542&amp;ptid=1275523" target="_blank">007.5 发表于 2017-4-9 12:00</a>
@@ -25988,16 +17716,10 @@ horizon signal是免费的
 三个收费dlc里乌托邦和利维坦最好还是买。植物种族包看你喜好，我个人是蛮喜欢里面的船。
 
 
-
-
-
-
-
 -----
 
 ####  黑化的石头  
 ##### 1285#       发表于 2017-4-9 15:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35619542&amp;ptid=1275523" target="_blank">007.5 发表于 2017-4-9 12:00</a>
@@ -26009,25 +17731,13 @@ horizon signal是免费的
 利维坦有8种野外boss如噬星者，以太龙，无畏舰等，还有最重要的天堂之战，这个dlc是必买的
 
 
-
-
-
-
-
 -----
 
 ####  nxmonitor  
 ##### 1286#       发表于 2017-4-9 15:28
 
 
-
-
 至高线有点厉害啊，15个月1个合成人……
-
-
-
-
-
 
 
 -----
@@ -26036,15 +17746,9 @@ horizon signal是免费的
 ##### 1287#       发表于 2017-4-9 18:43
 
 
-
  本帖最后由 Illidan 于 2017-4-9 18:48 编辑 
 
 刚刚用极端唯物/平权过了疯狂难度800星铁人模式，走的基因改造路线，心得就是多抱高级AI大腿，打群架时避实击虚，去敌后方炸空间站/截后援，然后靠拣残骸追科技。最终占领40%星球胜利。话说这次居然有BUG，一个成就也不跳。。。
-
-
-
-
-
 
 
 -----
@@ -26053,14 +17757,7 @@ horizon signal是免费的
 ##### 1288#       发表于 2017-4-9 19:24
 
 
-
-
 排外和平主义强到爆炸。100年6个升华槽问你怕未。
-
-
-
-
-
 
 
 -----
@@ -26069,16 +17766,9 @@ horizon signal是免费的
 ##### 1289#       发表于 2017-4-10 00:39
 
 
-
-
 蜂群附庸了两个小弟 带着小弟搞大的 然后农出+200海军上限和+5直辖星球全力开电去怼死圣地爸爸 瞬间暴富 合并小弟后开吃
 
 关键是啃人得在后期啃 前期种族灭绝树敌太多 蜂群没刁民是最适合种地的了
-
-
-
-
-
 
 
 -----
@@ -26087,14 +17777,7 @@ horizon signal是免费的
 ##### 1290#       发表于 2017-4-10 09:27
 
 
-
-
 有些东西的前提条件变了么？灵能跳跃，预知战斗电脑，基因战士都不在普通科研中出现了<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26103,14 +17786,7 @@ horizon signal是免费的
 ##### 1291#       发表于 2017-4-10 09:55
 
 
-
-
 目前有打美化mod不跳成就的bug
-
-
-
-
-
 
 
 -----
@@ -26119,22 +17795,15 @@ horizon signal是免费的
 ##### 1292#       发表于 2017-4-10 10:59
 
 
-
 <blockquote>nightraven 发表于 2017-4-10 09:27
 有些东西的前提条件变了么？灵能跳跃，预知战斗电脑，基因战士都不在普通科研中出现了 ...</blockquote>
 前两个是灵能倾向，后面是生化倾向
-
-
-
-
-
 
 
 -----
 
 ####  nightraven  
 ##### 1293#       发表于 2017-4-10 11:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35627382&amp;ptid=1275523" target="_blank">flypig_zhy 发表于 2017-4-10 10:59</a>
@@ -26147,17 +17816,10 @@ horizon signal是免费的
 预知电脑和PSI跳跃怎么出？
 
 
-
-
-
-
-
 -----
 
 ####  康拜因  
 ##### 1294#       发表于 2017-4-10 17:43
-
-
 
 
 乌托邦第一盘选了蜂巢，适应性+20。打到中期旁边的守卫者爸爸突然觉醒，让我当dominion，于是我的帝国就变成了极端唯心主义的寡头制神权王国。然而国民仍然是蜂巢，不受快乐度影响，也就没有刁民，还能选唯心主义的ascension perk。
@@ -26167,17 +17829,10 @@ horizon signal是免费的
 —— 来自 HUAWEI MHA-AL00, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  wormz  
 ##### 1295#       发表于 2017-4-10 19:13
-
-
 
 
 感觉这个dlc之后真的把多样性做出来了
@@ -26186,17 +17841,10 @@ horizon signal是免费的
 可惜最近没什么时间玩啊
 
 
-
-
-
-
-
 -----
 
 ####  scikirbypoke  
 ##### 1296#       发表于 2017-4-10 19:47
-
-
 
 
 地图不上色是什么情况……虽然靠图国徽和鼠标指示还是能玩下去
@@ -26205,33 +17853,19 @@ horizon signal是免费的
 —— 来自 Xiaomi MI 2C, Android 5.1.1上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  侯景  
 ##### 1297#       发表于 2017-4-11 00:22
 
 
-
-
 官方汉化又没了吗？
-
-
-
-
-
 
 
 -----
 
 ####  Tokoyonoyami  
 ##### 1298#       发表于 2017-4-11 01:15
-
-
 
 
 这次趁着降价买了一波
@@ -26243,16 +17877,10 @@ horizon signal是免费的
 昨天一天玩了十六个小时没合眼，玩到最后没影响力各种操蛋脑子都要炸了
 
 
-
-
-
-
-
 -----
 
 ####  Illidan  
 ##### 1299#       发表于 2017-4-11 07:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35626526&amp;ptid=1275523" target="_blank">nightraven 发表于 2017-4-10 09:27</a>
@@ -26264,17 +17892,10 @@ horizon signal是免费的
 贴吧整理的1.5详细科技树和前提条件
 
 
-
-
-
-
-
 -----
 
 ####  娱樂記者城少主  
 ##### 1300#       发表于 2017-4-11 07:27
-
-
 
 
 有人知道驱逐是什么机制吗？
@@ -26284,16 +17905,10 @@ horizon signal是免费的
 我还以为和净化一样几年功夫几个星球的人全扔到别的国家了呢
 
 
-
-
-
-
-
 -----
 
 ####  setree  
 ##### 1301#       发表于 2017-4-11 08:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35626767&amp;ptid=1275523" target="_blank">table 发表于 2017-4-10 09:55</a>
@@ -26302,16 +17917,10 @@ horizon signal是免费的
 现在是打不打mod都不跳成就...周末铁人肝了两天没解锁成就，气得要命
 
 
-
-
-
-
-
 -----
 
 ####  setree  
 ##### 1302#       发表于 2017-4-11 08:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35632444&amp;ptid=1275523" target="_blank">scikirbypoke 发表于 2017-4-10 19:47</a>
@@ -26324,16 +17933,10 @@ horizon signal是免费的
 人工智能公民权可能和你的政体有关
 
 
-
-
-
-
-
 -----
 
 ####  flypig_zhy  
 ##### 1303#       发表于 2017-4-11 08:09
-
 
 
 <blockquote>nightraven 发表于 2017-4-10 11:07
@@ -26343,16 +17946,10 @@ horizon signal是免费的
 就是灵能理论的后面啊，下面贴出来了，刷科技请洗脸
 
 
-
-
-
-
-
 -----
 
 ####  scikirbypoke  
 ##### 1304#       发表于 2017-4-11 08:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35635680&amp;ptid=1275523" target="_blank">setree 发表于 2017-4-11 08:08</a>
@@ -26363,16 +17960,10 @@ horizon signal是免费的
 另外我是吐槽只有唯物才能直接开公民权其他思潮哪怕合成人有实际公民权却只能在升华前对着失踪事件干瞪眼
 
 
-
-
-
-
-
 -----
 
 ####  setree  
 ##### 1305#       发表于 2017-4-11 08:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35635955&amp;ptid=1275523" target="_blank">scikirbypoke 发表于 2017-4-11 08:53</a>
@@ -26390,25 +17981,13 @@ horizon signal是免费的
 不过一般只要造合成人就会触发...
 
 
-
-
-
-
-
 -----
 
 ####  古代人皮克  
 ##### 1306#       发表于 2017-4-11 09:00
 
 
-
-
 联机的时候有一家突然跳出然后不管谁连上他的那个国家都跳出怎么解啊
-
-
-
-
-
 
 
 -----
@@ -26417,24 +17996,16 @@ horizon signal是免费的
 ##### 1307#       发表于 2017-4-11 10:53
 
 
-
-
 求问有什么新手入门手册么？
 
 
 顶楼的链接失效了
 
 
-
-
-
-
-
 -----
 
 ####  水边井  
 ##### 1308#       发表于 2017-4-11 11:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35637181&amp;ptid=1275523" target="_blank">小明神 发表于 2017-4-11 10:53</a>
@@ -26446,16 +18017,10 @@ horizon signal是免费的
 玩过教程自己上手打两局就行，因为p社游戏的特性，想编新手入门手册是不现实的
 
 
-
-
-
-
-
 -----
 
 ####  nightraven  
 ##### 1309#       发表于 2017-4-11 13:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35635687&amp;ptid=1275523" target="_blank">flypig_zhy 发表于 2017-4-11 08:09</a>
@@ -26466,16 +18031,10 @@ horizon signal是免费的
 尼玛搞得像手游抽卡似的，P社我有句MMP一定要讲<img src="https://static.saraba1st.com/image/smiley/face/79.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  normalli  
 ##### 1310#       发表于 2017-4-11 13:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=35637181&amp;amp;ptid=1275523" target="_blank">小明神 发表于 2017-4-11 10:53</a>
@@ -26486,16 +18045,10 @@ horizon signal是免费的
 编出来过两天全部作废，被各种三大妈游民星空转载，被搜索引擎收录然后坑新人。
 
 
-
-
-
-
-
 -----
 
 ####  AhBaby  
 ##### 1311#       发表于 2017-4-11 13:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35637181&amp;ptid=1275523" target="_blank">小明神 发表于 2017-4-11 10:53</a>
@@ -26507,17 +18060,10 @@ horizon signal是免费的
 P社游戏特性就是几个DLC过后已经改得妈都不认识了，贴吧比较活跃可以找找
 
 
-
-
-
-
-
 -----
 
 ####  Inquisitor  
 ##### 1312#       发表于 2017-4-11 14:29
-
-
 
 
 驱逐太坑爹了，简直是割肉资敌
@@ -26526,17 +18072,10 @@ P社游戏特性就是几个DLC过后已经改得妈都不认识了，贴吧比�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.23)
 
 
-
-
-
-
-
 -----
 
 ####  chaoswing  
 ##### 1313#       发表于 2017-4-14 20:08
-
-
 
 
 遇到一个奇怪bug，铁人模式没有堕落帝国，开了两局都是，有人遇到过类似问题吗？
@@ -26544,16 +18083,10 @@ P社游戏特性就是几个DLC过后已经改得妈都不认识了，贴吧比�
 非铁人模式正常
 
 
-
-
-
-
-
 -----
 
 ####  belatedeffort  
 ##### 1314#       发表于 2017-4-14 22:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35670067&amp;ptid=1275523" target="_blank">chaoswing 发表于 2017-4-14 20:08</a>
@@ -26564,16 +18097,10 @@ P社游戏特性就是几个DLC过后已经改得妈都不认识了，贴吧比�
 只是没探到吧？还是说开图的时候FE数量调成0了
 
 
-
-
-
-
-
 -----
 
 ####  半分宅  
 ##### 1315#       发表于 2017-4-15 06:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35639302&amp;ptid=1275523" target="_blank">Inquisitor 发表于 2017-4-11 02:29</a>
@@ -26585,26 +18112,15 @@ P社游戏特性就是几个DLC过后已经改得妈都不认识了，贴吧比�
 开基因改造，可以搞一些全是负面特性的种族赶出去，让接收难民的国家自爆。
 
 
-
-
-
-
-
 -----
 
 ####  Inquisitor  
 ##### 1316#       发表于 2017-4-15 09:11
 
 
-
 <blockquote>半分宅 发表于 2017-4-15 06:50
 开基因改造，可以搞一些全是负面特性的种族赶出去，让接收难民的国家自爆。 ...</blockquote>
 哎呀我擦，还能这么搞...
-
-
-
-
-
 
 
 -----
@@ -26613,22 +18129,15 @@ P社游戏特性就是几个DLC过后已经改得妈都不认识了，贴吧比�
 ##### 1317#       发表于 2017-4-15 11:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">版本更新1.51了
 
 成就Bug依然没修复
-
-
-
-
-
 
 
 -----
 
 ####  nxmonitor  
 ##### 1318#       发表于 2017-4-15 13:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35674004&amp;ptid=1275523" target="_blank">setree 发表于 2017-4-15 11:29</a>
@@ -26639,16 +18148,10 @@ P社游戏特性就是几个DLC过后已经改得妈都不认识了，贴吧比�
 不要用美化MOD应该就行
 
 
-
-
-
-
-
 -----
 
 ####  chaoswing  
 ##### 1319#       发表于 2017-4-15 14:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35674004&amp;ptid=1275523" target="_blank">setree 发表于 2017-4-15 11:29</a>
@@ -26659,16 +18162,10 @@ P社游戏特性就是几个DLC过后已经改得妈都不认识了，贴吧比�
 我这里成就正常了，但是遇到了别的bug
 
 
-
-
-
-
-
 -----
 
 ####  chaoswing  
 ##### 1320#       发表于 2017-4-15 14:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35671002&amp;ptid=1275523" target="_blank">belatedeffort 发表于 2017-4-14 22:22</a>
@@ -26677,17 +18174,10 @@ P社游戏特性就是几个DLC过后已经改得妈都不认识了，贴吧比�
 第一局不确定，第二局特意调了4家fe出来，玩了80年左右，自己探索和交换星图，只剩6个星系没探，6个星系怎么看也容不下4家fe
 
 
-
-
-
-
-
 -----
 
 ####  你的全家  
 ##### 1321#       发表于 2017-4-15 14:14
-
-
 
 
 shroud的末日危机怎么出
@@ -26697,16 +18187,10 @@ shroud的末日危机怎么出
 以及我一个灵能体系点出了jump drive还是没有psi jump 说不出话
 
 
-
-
-
-
-
 -----
 
 ####  Tokoyonoyami  
 ##### 1322#       发表于 2017-4-15 22:34
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">打了500年完成主宰胜利累死人了
@@ -26720,17 +18204,10 @@ shroud的末日危机怎么出
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">顺带求一个能看到中文攻略或者wiki的地方
 
 
-
-
-
-
-
 -----
 
 ####  Qnix  
 ##### 1323#       发表于 2017-4-15 22:39
-
-
 
 
 说个明显的设计失误，传统文化和道德意识没有挂钩，结果是到最后大家都出了一样的传统套路，比如说为什么和平至上主义者可以点统治和征服？
@@ -26738,16 +18215,10 @@ shroud的末日危机怎么出
 虫群的设计太单薄，去除了内政这个玩点后，却没有相应的补充，和游戏系统的衔接也有问题，虫群和私营殖民船的配合特别好用，问题是虫群社会有个屁股的私营企业啊
 
 
-
-
-
-
-
 -----
 
 ####  Illidan  
 ##### 1324#       发表于 2017-4-16 08:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35679031&amp;ptid=1275523" target="_blank">Qnix 发表于 2017-4-15 22:39</a>
@@ -26758,24 +18229,13 @@ shroud的末日危机怎么出
 比这文明5的政策树好多了。
 
 
-
-
-
-
-
 -----
 
 ####  agion117  
 ##### 1325#       发表于 2017-4-16 13:44
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">政策树太出戏了，根本不是个有诚意的DLC
-
-
-
-
-
 
 
 -----
@@ -26784,14 +18244,7 @@ shroud的末日危机怎么出
 ##### 1326#       发表于 2017-4-16 14:03
 
 
-
-
 和平种田强无敌，100年种出个堕落帝国再出山
-
-
-
-
-
 
 
 -----
@@ -26800,17 +18253,10 @@ shroud的末日危机怎么出
 ##### 1327#       发表于 2017-4-16 20:29
 
 
-
-
 好久没玩 现在战斗系统怎么样了
 
 
 ----发送自 [samsung SM-G9350,Android 7.0](http://stage1.5j4m.com/?1.26)
-
-
-
-
-
 
 
 -----
@@ -26819,14 +18265,7 @@ shroud的末日危机怎么出
 ##### 1328#       发表于 2017-4-16 21:29
 
 
-
-
 造戴森环好废时间和资源呀......40000矿一个底座要10年..40000矿一个骨架要10年....之后还要升两次<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26835,24 +18274,16 @@ shroud的末日危机怎么出
 ##### 1329#       发表于 2017-4-16 21:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35672695&amp;ptid=1275523" target="_blank">半分宅 发表于 2017-4-15 06:50</a>
 
 开基因改造，可以搞一些全是负面特性的种族赶出去，让接收难民的国家自爆。 ...</blockquote>
 知不知道消费品哪里选，我刚开局，找不到
 
 
-
-
-
-
-
 -----
 
 ####  qqq1942  
 ##### 1330#       发表于 2017-4-16 21:52
-
-
 
 
 千万不要走愚蠢的机器人线啊，都是泪
@@ -26866,16 +18297,10 @@ shroud的末日危机怎么出
 哇!好丑啊！
 
 
-
-
-
-
-
 -----
 
 ####  啊啊啊好爽啊  
 ##### 1331#       发表于 2017-4-17 00:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35678985&amp;ptid=1275523" target="_blank">Tokoyonoyami 发表于 2017-4-15 22:34</a>
@@ -26887,32 +18312,19 @@ shroud的末日危机怎么出
 太OP是什么意思
 
 
-
-
-
-
-
 -----
 
 ####  table  
 ##### 1332#       发表于 2017-4-17 01:06
 
 
-
-
 还是再等等，看1.5.1能修复些什么
-
-
-
-
-
 
 
 -----
 
 ####  十六夜pad长  
 ##### 1333#       发表于 2017-4-17 08:35
-
 
 
 <blockquote>qqq1942 发表于 2017-4-16 21:52<[img src="static/image/common/back.gif" referrerpolicy="no-referrer">
@@ -26923,16 +18335,10 @@ shroud的末日危机怎么出
 来自: iPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  setree  
 ##### 1334#       发表于 2017-4-17 09:16
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">碰到了个崇外堕落帝国
@@ -26941,25 +18347,13 @@ shroud的末日危机怎么出
 成就里的堕落帝国礼物是事件还是？
 
 
-
-
-
-
-
 -----
 
 ####  iqbsh38  
 ##### 1335#       发表于 2017-4-17 10:05
 
 
-
-
 刚要学泰伦虫群吞噬全银河 堕落爸爸突然觉醒了 爆了100k的兵 破局好难...下次不带堕落玩了
-
-
-
-
-
 
 
 -----
@@ -26968,17 +18362,10 @@ shroud的末日危机怎么出
 ##### 1336#       发表于 2017-4-18 00:13
 
 
-
-
 贴吧的汉化又更新了一版，玩了会儿看了下大多数应该都汉化掉了
 
 
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.26)
-
-
-
-
-
 
 
 -----
@@ -26987,16 +18374,9 @@ shroud的末日危机怎么出
 ##### 1337#       发表于 2017-4-18 12:44
 
 
-
-
 昨天进帷幕抽奖，出现了进一步了解的选项，点了什么都没给。出来就被圣卫爸爸警告了，这莫非和圆环有关？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 —— 来自 HUAWEI MT7-TL00, Android 6.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
-
-
-
-
-
 
 
 -----
@@ -27005,23 +18385,16 @@ shroud的末日危机怎么出
 ##### 1338#       发表于 2017-4-18 13:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35701771&amp;ptid=1275523" target="_blank">nightraven 发表于 2017-4-18 12:44</a>
 
 昨天进帷幕抽奖，出现了进一步了解的选项，点了什么都没给。出来就被圣卫爸爸警告了，这莫非和圆环有关？[f ...</blockquote>
 他没提具体要求的话没影响
 
 
-
-
-
-
-
 -----
 
 ####  iqbsh38  
 ##### 1339#       发表于 2017-4-18 13:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35686360&amp;ptid=1275523" target="_blank">喵咪咪格勒 发表于 2017-4-16 20:29</a>
@@ -27035,25 +18408,13 @@ shroud的末日危机怎么出
 当然导弹去打堕落爸爸会被战斗机大海在中途就把所有的导弹打爆掉 不要问我为啥知道
 
 
-
-
-
-
-
 -----
 
 ####  archcross  
 ##### 1340#       发表于 2017-4-18 14:49
 
 
-
-
 求教如何配置好船才能打爆堕落爸爸的50w舰队，同等战力完全打不过…
-
-
-
-
-
 
 
 -----
@@ -27062,14 +18423,7 @@ shroud的末日危机怎么出
 ##### 1341#       发表于 2017-4-18 17:30
 
 
-
-
 远距离对射 战斗力要高过一倍 而且要海量驱逐配战舰。或者争取来回跳跃的时候撞屁股，我用200k灭过堕落6队200k的部队 就是争取跳跃时撞车 直接蒸发对方部队
-
-
-
-
-
 
 
 -----
@@ -27078,14 +18432,7 @@ shroud的末日危机怎么出
 ##### 1342#       发表于 2017-4-18 17:33
 
 
-
-
 而且面对堕落 先降伏 再背后插刀这样的战法更容易实施
-
-
-
-
-
 
 
 -----
@@ -27094,14 +18441,7 @@ shroud的末日危机怎么出
 ##### 1343#       发表于 2017-4-18 17:33
 
 
-
-
 而且面对堕落 先降伏 再背后插刀这样的战法更容易实施
-
-
-
-
-
 
 
 -----
@@ -27110,14 +18450,7 @@ shroud的末日危机怎么出
 ##### 1344#       发表于 2017-4-18 17:47
 
 
-
-
 我打算造个普通舰队负责吸引堕落的主力 然后一队20k的护航舰高速偷堕落没防备的星 基因特种兵+泰坦驻扎没几百K的运输拿不下 然后分数够了割了堕落的主星 晚上试试看行不行 种田的时候突然觉醒太讨厌了 尤其是我已经把所有竞争对手都吊着打了一顿之后 他直接去收割我成果真是不爽
-
-
-
-
-
 
 
 -----
@@ -27126,22 +18459,15 @@ shroud的末日危机怎么出
 ##### 1345#       发表于 2017-4-18 17:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=35702744&amp;amp;ptid=1275523" target="_blank">archcross 发表于 2017-4-18 14:49</a>
 求教如何配置好船才能打爆堕落爸爸的50w舰队，同等战力完全打不过…</blockquote>
 堕落的船是双x的特供版，对射很难射赢，巡洋舰插满机炮肉搏吧
-
-
-
-
-
 
 
 -----
 
 ####  nightraven  
 ##### 1346#       发表于 2017-4-18 18:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35704232&amp;ptid=1275523" target="_blank">normalli 发表于 2017-4-18 17:49</a>
@@ -27151,17 +18477,10 @@ shroud的末日危机怎么出
 —— 来自 HUAWEI MT7-TL00, Android 6.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  Messiah_QY  
 ##### 1347#       发表于 2017-4-19 10:59
-
-
 
 
 ...选颓废 开局 自带奴隶副族 然后过了几十年后
@@ -27170,16 +18489,10 @@ shroud的末日危机怎么出
 有了媚外属性的几个星球 开始反外星种族奴隶 搞不搞奴隶制 都减幸福度 直接玩蛋了。。
 
 
-
-
-
-
-
 -----
 
 ####  艾诺琳  
 ##### 1348#       发表于 2017-4-21 08:15
-
 
 
  本帖最后由 艾诺琳 于 2017-4-21 08:57 编辑 
@@ -27263,18 +18576,10 @@ That's all for today! Next week we'll start going into specifics of the 1.6 'Ada
 更多的故事性（希望出现更多的科幻小说梗）
 
 
-
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 1349#       发表于 2017-4-21 09:45
-
-
 
 
 話說目前航母流战力如何?   黑科技舰载机上限如何? 相比同级大炮配置来说
@@ -27285,16 +18590,10 @@ That's all for today! Next week we'll start going into specifics of the 1.6 'Ada
 另小型船似乎是鱼雷为主  那么中型船以什么武器为主更好?
 
 
-
-
-
-
-
 -----
 
 ####  SickEternalUps  
 ##### 1350#       发表于 2017-4-21 10:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35725938&amp;ptid=1275523" target="_blank">艾诺琳 发表于 2017-4-21 08:15</a>
@@ -27304,32 +18603,19 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 银河系漫游指南的作者
 
 
-
-
-
-
-
 -----
 
 ####  normalli  
 ##### 1351#       发表于 2017-4-21 10:58
 
 
-
-
 废物，最多全插战斗机当点防用，航母飞机被干爆后就基本废了，飞机补充的太慢。理论上输出最高但被防空完克。目前版本还是战列输出，巡洋肉搏比较好
-
-
-
-
-
 
 
 -----
 
 ####  g54088  
 ##### 1352#       发表于 2017-4-21 11:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=35725938&amp;amp;ptid=1275523" target="_blank">艾诺琳 发表于 2017-4-21 08:15</a>
@@ -27339,16 +18625,10 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 那些带s的是已经实现的。例如食物全球化和舰船帝国差异。
 
 
-
-
-
-
-
 -----
 
 ####  艾诺琳  
 ##### 1353#       发表于 2017-4-21 14:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35727302&amp;ptid=1275523" target="_blank">normalli 发表于 2017-4-21 10:58</a>
@@ -27358,16 +18638,10 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 能大概说下吗？
 
 
-
-
-
-
-
 -----
 
 ####  yptc315  
 ##### 1354#       发表于 2017-4-21 17:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35672695&amp;ptid=1275523" target="_blank">半分宅 发表于 2017-4-15 06:50</a>
@@ -27376,16 +18650,10 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 大佬这是我的膝盖。。。
 
 
-
-
-
-
-
 -----
 
 ####  normalli  
 ##### 1355#       发表于 2017-4-21 19:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35729316&amp;ptid=1275523" target="_blank">艾诺琳 发表于 2017-4-21 14:53</a>
@@ -27407,25 +18675,13 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 有纯电弧战列的玩法，不过这个太看脸了
 
 
-
-
-
-
-
 -----
 
 ####  JC_AR  
 ##### 1356#       发表于 2017-4-22 07:31
 
 
-
-
 问个问题，我把堕落帝国整个吃了以后，过了不久堕落帝国的人种变成主体民族了，但是显示招募的领袖这些还是原来的人种，是不是bug
-
-
-
-
-
 
 
 -----
@@ -27434,24 +18690,16 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 ##### 1357#       发表于 2017-4-22 08:33
 
 
-
-
 看看种族设定？我记得可以改的
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.26)
 
 
-
-
-
-
-
 -----
 
 ####  chaoswing  
 ##### 1358#       发表于 2017-4-22 09:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=35730769&amp;amp;ptid=1275523" target="_blank">yptc315 发表于 2017-4-21 17:59</a>
@@ -27461,16 +18709,10 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 缺点是浪费一个星球，并且只能用来对付ai
 
 
-
-
-
-
-
 -----
 
 ####  sdfzzha  
 ##### 1359#       发表于 2017-4-22 16:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35733902&amp;ptid=1275523" target="_blank">JC_AR 发表于 2017-4-22 07:31</a>
@@ -27479,26 +18721,15 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 我记得在set right里选择enable leadership之后就可以招募这个种族的科学家和政治家了吧。
 
 
-
-
-
-
-
 -----
 
 ####  JC_AR  
 ##### 1360#       发表于 2017-4-22 18:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=35737152&amp;amp;ptid=1275523" target="_blank">sdfzzha 发表于 2017-4-22 16:48</a>
 我记得在set right里选择enable leadership之后就可以招募这个种族的科学家和政治家了吧。 ...</blockquote>
 后来读档了就好了，我估计是bug，我没有改过任何东西，莫名其妙就变了
-
-
-
-
-
 
 
 -----
@@ -27507,16 +18738,10 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 ##### 1361#       发表于 2017-4-22 18:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35734286&amp;ptid=1275523" target="_blank">chaoswing 发表于 2017-4-22 09:21</a>
 
 前两天在reddit上看到一个更进一步的玩法，找个自己不需要的小破星球，把人迁移过去，基因改造，加nomadi ...</blockquote>
 卧槽暴民流
-
-
-
-
-
 
 
 -----
@@ -27525,16 +18750,9 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 ##### 1362#       发表于 2017-4-23 03:05
 
 
-
-
 刁民难民的话最简单的就是找一个蜂巢政权，然后看看他们什么星球不适应，找一个不适应的把刁民难民全扔过去，然后把这个星球送给蜂巢
 
 10年就把刁民吃光，然后星球因为他没法殖民只能空出来还给你
-
-
-
-
-
 
 
 -----
@@ -27543,16 +18761,9 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 ##### 1363#       发表于 2017-4-23 11:11
 
 
-
-
 实际上刁民分成几种情况
 思潮对立，这种刁民好处理，虽然基础幸福低但还是有办法堆到正常不搞事的水平上的，基本可以无视。
 被征服debuff，这是个暂时的状态，除了坦克车也没啥好办法，时间长了就变成顺民或者上面那种。
-
-
-
-
-
 
 
 -----
@@ -27561,14 +18772,7 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 ##### 1364#       发表于 2017-4-23 11:18
 
 
-
-
 刁民派系是不是只能抑制成长永远也无法被彻底消除，从政治压制到再教育法令到洗脑广播到什么潜意识射线乱七八糟的都用了还是洗不干净
-
-
-
-
-
 
 
 -----
@@ -27577,15 +18781,9 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 ##### 1365#       发表于 2017-4-23 11:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=35742547&amp;amp;ptid=1275523" target="_blank">Qnix 发表于 2017-4-23 11:18</a>
 刁民派系是不是只能抑制成长永远也无法被彻底消除，从政治压制到再教育法令到洗脑广播到什么潜意识射线乱七 ...</blockquote>
 是的，这版本刁民基本不吃洗脑，但各种加幸福的buff就是0的基础幸福也能堆到50以上，所以刁民其实更好对付了。
-
-
-
-
-
 
 
 -----
@@ -27594,16 +18792,10 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 ##### 1366#       发表于 2017-4-23 11:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35742572&amp;ptid=1275523" target="_blank">normalli 发表于 2017-4-23 11:20</a>
 
 是的，这版本刁民基本不吃洗脑，但各种加幸福的buff就是0的基础幸福也能堆到50以上，所以刁民其实更好对 ...</blockquote>
 网上有说这个是bug，正常设定应该是每个人口一段时间会按照政治派系吸引力的百分比roll一次来转换政治倾向，现在问题是不管吸引力多高永远都有死不悔改的刁民
-
-
-
-
-
 
 
 -----
@@ -27612,16 +18804,9 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 ##### 1367#       发表于 2017-4-23 14:34
 
 
-
-
 走了一次基因线，后期造了几个synth，然后过一段时间亲外派系冒出来了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
 尼玛一群撒币刁民，自己造的机器算个毛的外星人啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27630,21 +18815,13 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 ##### 1368#       发表于 2017-4-23 14:56
 
 
-
-
 玩了几盘，都是科技研发得不多但是已经占领40%星球胜利了，有什么加快科技研发的流派吗
-
-
-
-
-
 
 
 -----
 
 ####  antiultima  
 ##### 1369#       发表于 2017-4-24 08:32
-
 
 
  本帖最后由 antiultima 于 2017-4-24 08:35 编辑 
@@ -27661,16 +18838,10 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 科学传统里左线有个扫一个球获得1/3月点数的科研政策，可以在科研成型后再扫球获得大量科研点
 
 
-
-
-
-
-
 -----
 
 ####  逻辑自闭症  
 ##### 1370#       发表于 2017-4-24 11:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35749637&amp;ptid=1275523" target="_blank">antiultima 发表于 2017-4-24 08:32</a>
@@ -27681,17 +18852,10 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 好的，我换个思路打一把，谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  iqbsh38  
 ##### 1371#       发表于 2017-4-24 14:15
-
-
 
 
 后期可以给被占领人民吸毒 虽然产出只有一半 但绝对没刁民 都去嗑药了
@@ -27703,24 +18867,13 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 我真该感谢下虚空恶魔 出来就把周围一圈我的宿敌全杀光 还留了大量的空星球给我www
 
 
-
-
-
-
-
 -----
 
 ####  帕蕾莉亚  
 ##### 1372#       发表于 2017-4-24 15:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">问下奴隶怎么总是因为贫困生活减幸福？权利设置明明都给了富裕生活了
-
-
-
-
-
 
 
 -----
@@ -27729,16 +18882,9 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 ##### 1373#       发表于 2017-4-24 21:24
 
 
-
-
 这个版本难民的玩法真是exciting！蜂巢开局吃了一个邻居，有两个圣母国接受了难民（我不知道，我还以为都吃干净了），到了100年左右时打开外交列表发现了其中一个圣母国16人口全是被我吃掉的那个邻居种族，领导人却是别的种族<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 旁边还有个思潮对立的同种族国家，估计是分裂出去的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27747,16 +18893,10 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 ##### 1374#       发表于 2017-4-24 21:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35756687&amp;ptid=1275523" target="_blank">commie_neko 发表于 2017-4-24 21:24</a>
 
 这个版本难民的玩法真是exciting！蜂巢开局吃了一个邻居，有两个圣母国接受了难民（我不知道，我还以为都吃 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">和现实交相辉映
-
-
-
-
-
 
 
 -----
@@ -27765,16 +18905,9 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 ##### 1375#       发表于 2017-4-25 20:22
 
 
-
-
 话说你们目前用的什么汉化?  3DM的能看吗?  目前用的是一个综合贴吧  3DM的综合汉化  但是字体不太喜欢 而且某些地方比如星系名也汉化了  很不喜欢  
 
 如果3DM的翻译不差的话考虑先用3DM的
-
-
-
-
-
 
 
 -----
@@ -27783,16 +18916,9 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 ##### 1376#       发表于 2017-4-25 21:19
 
 
-
-
 蜂巢怎么同化其他种族？是飞升天赋点出掌控进化就行了吗，
 
 下午刚开始玩啥都没干尽研究技能了，最后还是吃光了所有外族一个都没能同化
-
-
-
-
-
 
 
 -----
@@ -27801,15 +18927,9 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 ##### 1377#       发表于 2017-4-25 23:47
 
 
-
 <blockquote>妹控使徒 发表于 2017-4-25 20:22
 话说你们目前用的什么汉化?  3DM的能看吗?  目前用的是一个综合贴吧  3DM的综合汉化  但是字体不太喜欢 而 ...</blockquote>
 贴吧的汉化感觉还不错，创意工坊直接可以搜索到mod也挺方便的，还不影响成就
-
-
-
-
-
 
 
 -----
@@ -27818,17 +18938,10 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 ##### 1378#       发表于 2017-4-26 00:53
 
 
-
-
 退联邦需要什么条件？前面有个ai发育的太好了，只好把觉醒爸爸拉进来一起打，结果现在想打哪家爸爸都投反对票……
 
 
 ----发送自 [samsung SM-N9008S,Android 5.0](http://stage1.5j4m.com/?1.27)
-
-
-
-
-
 
 
 -----
@@ -27837,16 +18950,10 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 ##### 1379#       发表于 2017-4-26 02:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35768333&amp;ptid=1275523" target="_blank">laulucreast 发表于 2017-4-26 00:53</a>
 
 退联邦需要什么条件？前面有个ai发育的太好了，只好把觉醒爸爸拉进来一起打，结果现在想打哪家爸爸都投反对 ...</blockquote>
 直接退出就好了
-
-
-
-
-
 
 
 -----
@@ -27855,16 +18962,10 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 ##### 1380#       发表于 2017-4-26 03:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35768333&amp;ptid=1275523" target="_blank">laulucreast 发表于 2017-4-26 00:53</a>
 
 退联邦需要什么条件？前面有个ai发育的太好了，只好把觉醒爸爸拉进来一起打，结果现在想打哪家爸爸都投反对 ...</blockquote>
 退联邦需要联邦里最少还有其他两家，所以想办法再拉一家进联邦吧
-
-
-
-
-
 
 
 -----
@@ -27873,23 +18974,15 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 ##### 1381#       发表于 2017-4-26 09:18
 
 
-
-
 我操控正常国家打下蜂群的星球上面的人会咋样？直接死？
 
 正好扩张到俩蜂群的边界了，全银河都不爽这俩，打它们完全无压力<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  iqbsh38  
 ##### 1382#       发表于 2017-4-26 09:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35769894&amp;ptid=1275523" target="_blank">nightraven 发表于 2017-4-26 09:18</a>
@@ -27902,16 +18995,10 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 玩了一局蜂群和种族洁癖跟我三分天下 突然窜出了次元恶魔把两家灭了干净 我坐收渔人之利
 
 
-
-
-
-
-
 -----
 
 ####  十六夜pad长  
 ##### 1383#       发表于 2017-4-26 11:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=35770316&amp;amp;ptid=1275523" target="_blank">iqbsh38 发表于 2017-4-26 09:54</a>
@@ -27921,16 +19008,10 @@ Hello everyone and welcome to another Stellaris development diary. Today ...</bl
 Hive mind居然不自爆，不够真实！
 
 
-
-
-
-
-
 -----
 
 ####  夜游的树  
 ##### 1384#       发表于 2017-4-26 15:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35769894&amp;ptid=1275523" target="_blank">nightraven 发表于 2017-4-26 09:18</a>
@@ -27943,16 +19024,10 @@ Hive mind居然不自爆，不够真实！
 想要直辖了也可以把想要的星球放出来，蜂群还活着，权利界面是完整公民权，继续该干啥干啥。但是这时候绝对不能对他们设置权利，一进入设置权力的界面强制换成净化，全部人死光……
 
 
-
-
-
-
-
 -----
 
 ####  nightraven  
 ##### 1385#       发表于 2017-4-26 15:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35774545&amp;ptid=1275523" target="_blank">夜游的树 发表于 2017-4-26 15:40</a>
@@ -27965,17 +19040,10 @@ Hive mind居然不自爆，不够真实！
 不过这应该算BUG吧
 
 
-
-
-
-
-
 -----
 
 ####  娱樂記者城少主  
 ##### 1386#       发表于 2017-4-26 16:37
-
-
 
 
 为啥我玩的时候占领蜂群星球蜂群都活得好好的
@@ -27983,16 +19051,10 @@ Hive mind居然不自爆，不够真实！
 难道是因为过得太好？
 
 
-
-
-
-
-
 -----
 
 ####  evagle  
 ##### 1387#       发表于 2017-4-27 21:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35775124&amp;ptid=1275523" target="_blank">娱樂記者城少主 发表于 2017-4-26 16:37</a>
@@ -28005,16 +19067,10 @@ Hive mind居然不自爆，不够真实！
 然后打着打着突然开始清洗了，还停不了，只能把蜂群的特性剪掉才停下来
 
 
-
-
-
-
-
 -----
 
 ####  evagle  
 ##### 1388#       发表于 2017-4-27 21:27
-
 
 
 [http://**/sharedfiles/filedetails/?id=691008512](http://**/sharedfiles/filedetails/?id=691008512)
@@ -28024,16 +19080,10 @@ Hive mind居然不自爆，不够真实！
 开场手打，球多了以后全自动。还提供一个加直辖上限的开关，肥肠好用。
 
 
-
-
-
-
-
 -----
 
 ####  nightraven  
 ##### 1389#       发表于 2017-4-27 23:01
-
 
 
  本帖最后由 nightraven 于 2017-4-27 23:06 编辑 
@@ -28044,16 +19094,10 @@ Hive mind居然不自爆，不够真实！
 有一个问题，我发现玩家的采矿空间站之类的不会随科技自动升级组建，但是AI可以，后期AI的空间站都是离子炮零点堆护盾了，玩家的还是初始组件<img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aa465834287  
 ##### 1390#       发表于 2017-4-28 01:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35788237&amp;ptid=1275523" target="_blank">evagle 发表于 2017-4-27 21:27</a>
@@ -28070,16 +19114,10 @@ http://**/sharedfiles/filedetails/?id=691008512
 比如更多船只
 
 
-
-
-
-
-
 -----
 
 ####  艾诺琳  
 ##### 1391#       发表于 2017-4-28 10:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35789960&amp;ptid=1275523" target="_blank">aa465834287 发表于 2017-4-28 01:35</a>
@@ -28095,32 +19133,19 @@ http://steamcom munity.com/sharedfiles/filedetails/?id=704525773
 很早一个版本有个改善舰队战的mod，现在还有吗？
 
 
-
-
-
-
-
 -----
 
 ####  Paradox7  
 ##### 1392#       发表于 2017-4-28 12:19
 
 
-
-
 玩了一局合成人路线真爽啊，科技加成+领导人不死，人口涨得也快。但是有个问题，我研究红色跃迁科技怎么什么用都没有，跑的还是和以前一样慢。研究这之前ai就已经触发虚空入侵并且打退了，是因为这个原因吗？
-
-
-
-
-
 
 
 -----
 
 ####  Inquisitor  
 ##### 1393#       发表于 2017-4-28 12:36
-
 
 
 <blockquote>引用第1391楼Paradox7于2017-04-28 12:19发表的  :
@@ -28134,16 +19159,10 @@ http://steamcom munity.com/sharedfiles/filedetails/?id=704525773
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.23)
 
 
-
-
-
-
-
 -----
 
 ####  Paradox7  
 ##### 1394#       发表于 2017-4-28 12:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35793871&amp;ptid=1275523" target="_blank">Inquisitor 发表于 2017-4-28 12:36</a>
@@ -28154,26 +19173,15 @@ http://steamcom munity.com/sharedfiles/filedetails/?id=704525773
 更新设计了啊，全换跃迁引擎了
 
 
-
-
-
-
-
 -----
 
 ####  鱼鸟MoMo  
 ##### 1395#       发表于 2017-4-28 13:09
 
 
-
 <blockquote>Paradox7 发表于 2017-4-28 12:49
 更新设计了啊，全换跃迁引擎了</blockquote>
 有一个没换吧
-
-
-
-
-
 
 
 -----
@@ -28182,16 +19190,10 @@ http://steamcom munity.com/sharedfiles/filedetails/?id=704525773
 ##### 1396#       发表于 2017-4-28 13:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35794278&amp;ptid=1275523" target="_blank">鱼鸟MoMo 发表于 2017-4-28 13:09</a>
 
 有一个没换吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">估计是这原因了
-
-
-
-
-
 
 
 -----
@@ -28200,14 +19202,7 @@ http://steamcom munity.com/sharedfiles/filedetails/?id=704525773
 ##### 1397#       发表于 2017-4-28 17:22
 
 
-
-
 开了一局铁人+疯狂难度，蜂群吞吃半个银河后被堕落爸爸用两只400K+舰队骑脸了
-
-
-
-
-
 
 
 -----
@@ -28216,14 +19211,7 @@ http://steamcom munity.com/sharedfiles/filedetails/?id=704525773
 ##### 1398#       发表于 2017-4-28 19:03
 
 
-
-
 球科普后期怎么转军国主义，我用和平+排外种了一百年的田，准备出山了，就宣了一个远处的小国，国内果然出现了一个鼓吹军国主义的派系，然后我动用影响力支持他们，但是这都好几年了，支持率也没变化，没法转成国家意识形态，求问还有别的高招没有
-
-
-
-
-
 
 
 -----
@@ -28232,16 +19220,10 @@ http://steamcom munity.com/sharedfiles/filedetails/?id=704525773
 ##### 1399#       发表于 2017-4-28 19:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35797427&amp;ptid=1275523" target="_blank">粗大坚挺长征五 发表于 2017-4-28 19:03</a>
 
 球科普后期怎么转军国主义，我用和平+排外种了一百年的田，准备出山了，就宣了一个远处的小国，国内果然出 ...</blockquote>
 极端和平基本没救，普通和平拖着，过个十年就能涨上来……
-
-
-
-
-
 
 
 -----
@@ -28250,16 +19232,10 @@ http://steamcom munity.com/sharedfiles/filedetails/?id=704525773
 ##### 1400#       发表于 2017-4-28 19:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35797530&amp;ptid=1275523" target="_blank">nxmonitor 发表于 2017-4-28 19:18</a>
 
 极端和平基本没救，普通和平拖着，过个十年就能涨上来……</blockquote>
 我是和平+排外+唯物，按上述方法都拖了30年了，军国主义支持率始终8%，人口两个……
-
-
-
-
-
 
 
 -----
@@ -28268,23 +19244,16 @@ http://steamcom munity.com/sharedfiles/filedetails/?id=704525773
 ##### 1401#       发表于 2017-4-28 19:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35797564&amp;ptid=1275523" target="_blank">粗大坚挺长征五 发表于 2017-4-28 19:22</a>
 
 我是和平+排外+唯物，按上述方法都拖了30年了，军国主义支持率始终8%，人口两个…… ...</blockquote>
 你机械飞升了？飞升了也没救了，机器人唯物思潮权重最高，基本上都会成为唯物派系。要趁着第二阶段变军国，或者你现在直接各种净化也行啊……
 
 
-
-
-
-
-
 -----
 
 ####  粗大坚挺长征五  
 ##### 1402#       发表于 2017-4-28 19:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35797589&amp;ptid=1275523" target="_blank">nxmonitor 发表于 2017-4-28 19:27</a>
@@ -28296,16 +19265,10 @@ http://steamcom munity.com/sharedfiles/filedetails/?id=704525773
 现在只能打解放战争和自卫战，但是我宣了爸爸打赢以后却能割占他的球，不知道是不是bug
 
 
-
-
-
-
-
 -----
 
 ####  nxmonitor  
 ##### 1403#       发表于 2017-4-28 19:49
-
 
 
  本帖最后由 nxmonitor 于 2017-4-28 19:51 编辑 
@@ -28318,16 +19281,10 @@ http://steamcom munity.com/sharedfiles/filedetails/?id=704525773
 机器人参与唯物派系的意愿极其强烈，是所有派系里面倾向最高的，一旦二阶段完成其他派系只能个位数了。不过我记得排外和平能打净化战争的啊，拉到底看看怎么样，有没有红色的净化选项……
 
 
-
-
-
-
-
 -----
 
 ####  粗大坚挺长征五  
 ##### 1404#       发表于 2017-4-28 20:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35797718&amp;ptid=1275523" target="_blank">nxmonitor 发表于 2017-4-28 19:49</a>
@@ -28342,16 +19299,10 @@ http://steamcom munity.com/sharedfiles/filedetails/?id=704525773
 另外净化战争听上去得要极端排外吧，没试过
 
 
-
-
-
-
-
 -----
 
 ####  nxmonitor  
 ##### 1405#       发表于 2017-4-28 20:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35797827&amp;ptid=1275523" target="_blank">粗大坚挺长征五 发表于 2017-4-28 20:03</a>
@@ -28363,16 +19314,10 @@ http://steamcom munity.com/sharedfiles/filedetails/?id=704525773
 就是战争选项里面拉到最下面，有净化星球的选项，只要普通排外就行了，效果是敌人直接弃星，上面的人全完蛋……
 
 
-
-
-
-
-
 -----
 
 ####  粗大坚挺长征五  
 ##### 1406#       发表于 2017-4-28 20:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35797870&amp;ptid=1275523" target="_blank">nxmonitor 发表于 2017-4-28 20:09</a>
@@ -28381,16 +19326,10 @@ http://steamcom munity.com/sharedfiles/filedetails/?id=704525773
 懂了，是战争诉求
 
 
-
-
-
-
-
 -----
 
 ####  Risa_g  
 ##### 1407#       发表于 2017-4-28 23:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35797652&amp;ptid=1275523" target="_blank">粗大坚挺长征五 发表于 2017-4-28 19:37</a>
@@ -28404,25 +19343,13 @@ http://steamcom munity.com/sharedfiles/filedetails/?id=704525773
 1.5设计如此，不是bug。
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 1408#       发表于 2017-4-29 09:03
 
 
-
-
 话说1.5为止航母的战斗方式依旧是飞机围绕着母舰绕圈然后攻击敌人?   感觉无论修改舰载机攻击范围还是绕圈的半径/速度都不够味道   如果能让舰载机不再绕圈而是主动过去战斗就好了
-
-
-
-
-
 
 
 -----
@@ -28431,24 +19358,16 @@ http://steamcom munity.com/sharedfiles/filedetails/?id=704525773
 ##### 1409#       发表于 2017-4-29 12:29
 
 
-
-
 趁五一休息入了乌托邦（其实是原本准备的DOW3恶评如潮和Nier2涨价事件导致的第三选择……）。
 
 
 问一下利维坦包有啥？那一排DLC有哪些是必须要入的没？
 
 
-
-
-
-
-
 -----
 
 ####  qqq1942  
 ##### 1410#       发表于 2017-4-29 12:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35802585&amp;ptid=1275523" target="_blank">十六夜pad长 发表于 2017-4-29 12:29</a>
@@ -28466,17 +19385,10 @@ http://steamcom munity.com/sharedfiles/filedetails/?id=704525773
 总之还是推荐利维坦和乌托邦这两个是一定要买的
 
 
-
-
-
-
-
 -----
 
 ####  qqq1942  
 ##### 1411#       发表于 2017-4-29 12:38
-
-
 
 
 感觉这个版本的激光好蠢！
@@ -28484,16 +19396,10 @@ http://steamcom munity.com/sharedfiles/filedetails/?id=704525773
 还是动能强啊
 
 
-
-
-
-
-
 -----
 
 ####  flypig_zhy  
 ##### 1412#       发表于 2017-4-29 12:45
-
 
 
 <blockquote>粗大坚挺长征五 发表于 2017-4-28 20:03
@@ -28505,16 +19411,10 @@ http://steamcom munity.com/sharedfiles/filedetails/?id=704525773
 你是想说那个种族洁癖吧，就是没外交选项的那个
 
 
-
-
-
-
-
 -----
 
 ####  flypig_zhy  
 ##### 1413#       发表于 2017-4-29 12:49
-
 
 
 <blockquote>qqq1942 发表于 2017-4-29 12:38
@@ -28524,16 +19424,10 @@ http://steamcom munity.com/sharedfiles/filedetails/?id=704525773
 啥啊，还是等离子大炮远强于动能大炮，至于千兆和光矛，在不考虑其他武器的情况下，以战列舰来看，差不多，典型ai配置千兆强点，面对堕落爸爸或者觉醒爷爷，光矛强点，电弧没算过
 
 
-
-
-
-
-
 -----
 
 ####  flypig_zhy  
 ##### 1414#       发表于 2017-4-29 12:50
-
 
 
 <blockquote>十六夜pad长 发表于 2017-4-29 12:29
@@ -28544,32 +19438,19 @@ http://steamcom munity.com/sharedfiles/filedetails/?id=704525773
 想玩的话，利维坦和乌托邦，改的比较多
 
 
-
-
-
-
-
 -----
 
 ####  archcross  
 ##### 1415#       发表于 2017-4-29 13:21
 
 
-
-
 觉醒爸爸真弱啊，都被次元恶魔灭了
-
-
-
-
-
 
 
 -----
 
 ####  evagle  
 ##### 1416#       发表于 2017-4-29 13:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=35797652&amp;amp;ptid=1275523" target="_blank">粗大坚挺长征五 发表于 2017-4-28 19:37</a>
@@ -28580,16 +19461,10 @@ http://steamcom munity.com/sharedfiles/filedetails/?id=704525773
 开场就宣邻居啊，造个防御空间站对面来多少送多少，经常派系刚出现就能转国家理念了
 
 
-
-
-
-
-
 -----
 
 ####  qqq1942  
 ##### 1417#       发表于 2017-4-29 13:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35802711&amp;ptid=1275523" target="_blank">flypig_zhy 发表于 2017-4-29 12:49</a>
@@ -28602,32 +19477,19 @@ SML槽太鸡了不如动能
 电弧就是谐星100%命中，但是伤害是随机的
 
 
-
-
-
-
-
 -----
 
 ####  夜游的树  
 ##### 1418#       发表于 2017-4-29 14:49
 
 
-
-
 这游戏没有其他天灾的喽……从上个版本到现在一直在见恶魔，虫群和AI呢……
-
-
-
-
-
 
 
 -----
 
 ####  flypig_zhy  
 ##### 1419#       发表于 2017-4-29 15:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35803063&amp;ptid=1275523" target="_blank">qqq1942 发表于 2017-4-29 13:36</a>
@@ -28640,16 +19502,10 @@ SML槽太鸡了不如动能
 L槽还是上等离子穿甲吧
 
 
-
-
-
-
-
 -----
 
 ####  半分宅  
 ##### 1420#       发表于 2017-4-29 15:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35803063&amp;ptid=1275523" target="_blank">qqq1942 发表于 2017-4-29 01:36</a>
@@ -28662,16 +19518,10 @@ SML槽太鸡了不如动能
 电弧是战列反小船用的。因为战列的重炮基本打不中护卫舰。
 
 
-
-
-
-
-
 -----
 
 ####  flypig_zhy  
 ##### 1421#       发表于 2017-4-29 15:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35803527&amp;ptid=1275523" target="_blank">夜游的树 发表于 2017-4-29 14:49</a>
@@ -28680,25 +19530,13 @@ SML槽太鸡了不如动能
 恶魔一出就没有AI和虫群，一场只有一次
 
 
-
-
-
-
-
 -----
 
 ####  娱樂記者城少主  
 ##### 1422#       发表于 2017-4-29 15:36
 
 
-
-
 虫族不用控制台我就没出过
-
-
-
-
-
 
 
 -----
@@ -28707,16 +19545,10 @@ SML槽太鸡了不如动能
 ##### 1423#       发表于 2017-4-29 15:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35803527&amp;ptid=1275523" target="_blank">夜游的树 发表于 2017-4-29 14:49</a>
 
 这游戏没有其他天灾的喽……从上个版本到现在一直在见恶魔，虫群和AI呢…… ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">:P射，我们会在下个版本重新计算天灾的出现
-
-
-
-
-
 
 
 -----
@@ -28725,15 +19557,9 @@ SML槽太鸡了不如动能
 ##### 1424#       发表于 2017-4-29 18:58
 
 
-
  本帖最后由 MrSkittles 于 2017-4-29 19:00 编辑 
 
 惊了！开了一个龟缩种田档。捱了小二百年终于有人作死刷出恶魔入侵，把下方两个大国打爆。我在左上角，离着还远，加上一直龟缩矿产不够只有20k舰队，就放着没管。结果高维恶魔占了快四分之一银河的时候，第二个传送门出现了！又刷出一伙橙色恶魔，说是来追杀蓝色恶魔，顺便打打牙祭。然后这两伙打起来了，没想到这危机还挺有故事性的
-
-
-
-
-
 
 
 -----
@@ -28742,15 +19568,9 @@ SML槽太鸡了不如动能
 ##### 1425#       发表于 2017-4-29 19:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35804933&amp;ptid=1275523" target="_blank">MrSkittles 发表于 2017-4-29 18:58</a>
 惊了！开了一个龟缩种田档。捱了小二百年终于有人作死刷出恶魔入侵，把下方两个大国打爆。我在左上角，离着 ...</blockquote>
 再等等还会有绿色的...
-
-
-
-
-
 
 
 -----
@@ -28759,15 +19579,9 @@ SML槽太鸡了不如动能
 ##### 1426#       发表于 2017-4-29 19:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=35804933&amp;amp;ptid=1275523" target="_blank">MrSkittles 发表于 2017-4-29 18:58</a>
 惊了！开了一个龟缩种田档。捱了小二百年终于有人作死刷出恶魔入侵，把下方两个大国打爆。我在左上角，离着 ...</blockquote>
 我出过三个恶魔，第一个出来的打爆了觉醒粑粑和宇宙第二大势力，然后第二个和第三个恶魔又和第一个打起来了，我一直在发育，等出了200k舰队了它们打得差不多了我去收尾，然后轻松就通关了
-
-
-
-
-
 
 
 -----
@@ -28776,23 +19590,16 @@ SML槽太鸡了不如动能
 ##### 1427#       发表于 2017-4-29 21:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35804933&amp;ptid=1275523" target="_blank">MrSkittles 发表于 2017-4-29 18:58</a>
 
 惊了！开了一个龟缩种田档。捱了小二百年终于有人作死刷出恶魔入侵，把下方两个大国打爆。我在左上角，离着 ...</blockquote>
 你才知道啊。。。
 
 
-
-
-
-
-
 -----
 
 ####  hyddx  
 ##### 1428#       发表于 2017-4-30 09:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35802645&amp;ptid=1275523" target="_blank">qqq1942 发表于 2017-4-29 12:38</a>
@@ -28804,16 +19611,10 @@ SML槽太鸡了不如动能
 —— 来自 Meizu PRO 6, Android 6.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  nxmonitor  
 ##### 1429#       发表于 2017-4-30 09:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35802645&amp;ptid=1275523" target="_blank">qqq1942 发表于 2017-4-29 12:38</a>
@@ -28824,25 +19625,13 @@ SML槽太鸡了不如动能
 后期只用等离子和分解器就可以了，都是能量……
 
 
-
-
-
-
-
 -----
 
 ####  normalli  
 ##### 1430#       发表于 2017-4-30 10:38
 
 
-
-
 这版本因为机制的问题几乎每次都是恶魔天灾，因为虫族前置需要唯心飞升，机器人ai不怎么热心造，玩家又是秒给公民权基本不会造反，只有越迁差不多100左右都会刷出来，而且这版探索理念左二强无敌，相当于加100%研究速度，玩家科技ai快的多
-
-
-
-
-
 
 
 -----
@@ -28851,14 +19640,7 @@ SML槽太鸡了不如动能
 ##### 1431#       发表于 2017-4-30 11:36
 
 
-
-
 垃圾游戏害我通宵！种地真有趣……
-
-
-
-
-
 
 
 -----
@@ -28867,14 +19649,7 @@ SML槽太鸡了不如动能
 ##### 1432#       发表于 2017-4-30 12:27
 
 
-
-
 1.4玩了400多小时，现在都不敢随便打开了
-
-
-
-
-
 
 
 -----
@@ -28883,15 +19658,9 @@ SML槽太鸡了不如动能
 ##### 1433#       发表于 2017-4-30 12:42
 
 
-
 <blockquote>normalli 发表于 2017-4-30 10:38
 这版本因为机制的问题几乎每次都是恶魔天灾，因为虫族前置需要唯心飞升，机器人ai不怎么热心造，玩家又是秒 ...</blockquote>
 请问，是不是不可能三种天灾都出现，用控制台可以吗
-
-
-
-
-
 
 
 -----
@@ -28900,16 +19669,10 @@ SML槽太鸡了不如动能
 ##### 1434#       发表于 2017-4-30 12:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35810000&amp;ptid=1275523" target="_blank">科本学士 发表于 2017-4-30 12:42</a>
 
 请问，是不是不可能三种天灾都出现，用控制台可以吗</blockquote>
 可以，但是机械危机会出现在你领土上，就算你的合成人早就成了普通国民
-
-
-
-
-
 
 
 -----
@@ -28918,15 +19681,9 @@ SML槽太鸡了不如动能
 ##### 1435#       发表于 2017-4-30 13:04
 
 
-
 <blockquote>娱樂记者西野欢 发表于 2017-4-30 12:52
 可以，但是机械危机会出现在你领土上，就算你的合成人早就成了普通国民 ...</blockquote>
 原来如此，多谢
-
-
-
-
-
 
 
 -----
@@ -28935,23 +19692,16 @@ SML槽太鸡了不如动能
 ##### 1436#       发表于 2017-4-30 13:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35810092&amp;ptid=1275523" target="_blank">娱樂记者西野欢 发表于 2017-4-30 12:52</a>
 
 可以，但是机械危机会出现在你领土上，就算你的合成人早就成了普通国民 ...</blockquote>
 如果点了机械升华也会出现机器人叛乱么？
 
 
-
-
-
-
-
 -----
 
 ####  娱樂记者西野欢  
 ##### 1437#       发表于 2017-4-30 13:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35810211&amp;ptid=1275523" target="_blank">qqq1942 发表于 2017-4-30 13:08</a>
@@ -28962,16 +19712,10 @@ SML槽太鸡了不如动能
 我猜这个事件你如果是强行用控制台触发先决条件都应该是无视的
 
 
-
-
-
-
-
 -----
 
 ####  nxmonitor  
 ##### 1438#       发表于 2017-4-30 18:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35810211&amp;ptid=1275523" target="_blank">qqq1942 发表于 2017-4-30 13:08</a>
@@ -28980,32 +19724,19 @@ SML槽太鸡了不如动能
 不会，有个特别的机器人帝国flag，带这样子的国家不会出机器人叛乱……
 
 
-
-
-
-
-
 -----
 
 ####  cauchua2  
 ##### 1439#       发表于 2017-4-30 18:36
 
 
-
-
 第二个飞升特典点什么好？贴吧的人说太空居民的轨道居住仓屌，不过国境附近有2个24格的可改造地形星球，那么是不是点改造时间减半也行呢？
-
-
-
-
-
 
 
 -----
 
 ####  antiultima  
 ##### 1440#       发表于 2017-4-30 22:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35812398&amp;ptid=1275523" target="_blank">cauchua2 发表于 2017-4-30 18:36</a>
@@ -29024,17 +19755,10 @@ SML槽太鸡了不如动能
 这两者之间推荐点轨道舱
 
 
-
-
-
-
-
 -----
 
 ####  dxx9665  
 ##### 1441#       发表于 2017-4-30 23:07
-
-
 
 
 轨道仓可以同时施工，不过你的矿产存量够么？
@@ -29043,25 +19767,13 @@ SML槽太鸡了不如动能
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.26)
 
 
-
-
-
-
-
 -----
 
 ####  堇白  
 ##### 1442#       发表于 2017-4-30 23:11
 
 
-
-
 现在游戏对多核的优化怎么样啦？
-
-
-
-
-
 
 
 -----
@@ -29070,16 +19782,10 @@ SML槽太鸡了不如动能
 ##### 1443#       发表于 2017-5-1 21:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35814466&amp;ptid=1275523" target="_blank">堇白 发表于 2017-4-30 23:11</a>
 
 现在游戏对多核的优化怎么样啦？</blockquote>
 据说能三核运行了，但是船一多还是只能看银河大地图……
-
-
-
-
-
 
 
 -----
@@ -29088,14 +19794,7 @@ SML槽太鸡了不如动能
 ##### 1444#       发表于 2017-5-1 23:36
 
 
-
-
 那个 用贴吧汉化怎么其他势力名字是空白 
-
-
-
-
-
 
 
 -----
@@ -29104,24 +19803,16 @@ SML槽太鸡了不如动能
 ##### 1445#       发表于 2017-5-1 23:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35688362&amp;ptid=1275523" target="_blank">啊啊啊好爽啊 发表于 2017-4-17 00:37</a>
 
 太OP是什么意思</blockquote>
 over power，过于强势
 
 
-
-
-
-
-
 -----
 
 ####  学长失格  
 ##### 1446#       发表于 2017-5-2 10:32
-
-
 
 
 昨天开了一局唯物主义合成人路线
@@ -29149,17 +19840,10 @@ over power，过于强势
 和敌方舰队打到一半的时候  突然一发闪光  联军舰队就全灭了？？？明明还有差不多40k？？？   
 
 
-
-
-
-
-
 -----
 
 ####  娱樂记者西野欢  
 ##### 1447#       发表于 2017-5-2 10:36
-
-
 
 
 虚空恶魔你们为什么要打
@@ -29169,16 +19853,10 @@ over power，过于强势
 他们能收拾掉人类联合国这类扩张快还不能轻易出手的实力，等他们把其他大势力收拾得差不多了再出手
 
 
-
-
-
-
-
 -----
 
 ####  chrispig  
 ##### 1448#       发表于 2017-5-2 10:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35810092&amp;ptid=1275523" target="_blank">娱樂记者西野欢 发表于 2017-4-30 12:52</a>
@@ -29191,16 +19869,10 @@ over power，过于强势
 然后坐等看戏
 
 
-
-
-
-
-
 -----
 
 ####  chrispig  
 ##### 1449#       发表于 2017-5-2 10:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35825035&amp;ptid=1275523" target="_blank">娱樂记者西野欢 发表于 2017-5-2 10:36</a>
@@ -29213,32 +19885,20 @@ over power，过于强势
 基本我是去干第一波 把他们舰队拉到自家干掉拿物质分解器科技，传送点留着让他们发展
 
 
-
-
-
-
-
 -----
 
 ####  setree  
 ##### 1450#       发表于 2017-5-2 11:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">想得到堕落帝国的宠幸需要什么前置条件么
 这成就好难解锁啊，我各种跪舔亲外堕落还是不送我东西
-
-
-
-
-
 
 
 -----
 
 ####  Inquisitor  
 ##### 1451#       发表于 2017-5-2 11:22
-
 
 
 <blockquote>引用第1447楼学长失格于2017-05-02 10:32发表的  :
@@ -29252,32 +19912,19 @@ over power，过于强势
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.23)
 
 
-
-
-
-
-
 -----
 
 ####  chrispig  
 ##### 1452#       发表于 2017-5-2 11:22
 
 
-
-
 随机的 好感到达宠幸就会触发，我这开局1/4宇宙就我和爸爸2家一样是宠幸状态但他什么都没给我
-
-
-
-
-
 
 
 -----
 
 ####  nxmonitor  
 ##### 1453#       发表于 2017-5-2 14:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35825439&amp;ptid=1275523" target="_blank">setree 发表于 2017-5-2 11:06</a>
@@ -29288,17 +19935,10 @@ over power，过于强势
 看脸，基本上秘密观察者和知识管理员要东西以后有几率触发，虽然我脸黑从来没得到过礼物……
 
 
-
-
-
-
-
 -----
 
 ####  nightraven  
 ##### 1454#       发表于 2017-5-2 16:18
-
-
 
 
 说到失落帝国，前天玩到150年虚空入侵，军孤直接被灭，亲外觉醒做了守护者。
@@ -29310,16 +19950,10 @@ over power，过于强势
 我观察了他们之间的战斗，失落的战巡死的好快...<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  学长失格  
 ##### 1455#       发表于 2017-5-3 12:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35828646&amp;ptid=1275523" target="_blank">nightraven 发表于 2017-5-2 16:18</a>
@@ -29338,16 +19972,10 @@ over power，过于强势
 结果不负众望的灭国啦  <img src="https://static.saraba1st.com/image/smiley/face/106.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  nightraven  
 ##### 1456#       发表于 2017-5-3 13:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35836185&amp;ptid=1275523" target="_blank">学长失格 发表于 2017-5-3 12:10</a>
@@ -29358,16 +19986,10 @@ over power，过于强势
 恶魔的船无装甲不过锚地和防御站是高甲，光矛不算白带<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  nxmonitor  
 ##### 1457#       发表于 2017-5-3 14:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35836185&amp;ptid=1275523" target="_blank">学长失格 发表于 2017-5-3 12:10</a>
@@ -29376,16 +19998,10 @@ over power，过于强势
 物质分解器射程太短了，除非肉搏，不然很不好用。打恶魔就上中子鱼雷和能量的那个撕裂器……
 
 
-
-
-
-
-
 -----
 
 ####  nxmonitor  
 ##### 1458#       发表于 2017-5-3 14:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35836974&amp;ptid=1275523" target="_blank">nightraven 发表于 2017-5-3 13:31</a>
@@ -29394,16 +20010,10 @@ over power，过于强势
 打恶魔用光矛太亏了吧，上电弧也好啊……
 
 
-
-
-
-
-
 -----
 
 ####  nightraven  
 ##### 1459#       发表于 2017-5-3 14:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35837600&amp;ptid=1275523" target="_blank">nxmonitor 发表于 2017-5-3 14:42</a>
@@ -29414,17 +20024,10 @@ over power，过于强势
 其他船还是针对性上动能了。电弧我这种非洲人玩不起...<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  娱樂记者西野欢  
 ##### 1460#       发表于 2017-5-3 15:00
-
-
 
 
 天堂之战和危机出现要是时间过于紧凑很讨厌
@@ -29438,16 +20041,10 @@ over power，过于强势
 整个游戏成了虚空，我，剩下几个国家的联盟，直接没可玩性了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  nxmonitor  
 ##### 1461#       发表于 2017-5-3 18:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35837767&amp;ptid=1275523" target="_blank">娱樂记者西野欢 发表于 2017-5-3 15:00</a>
@@ -29458,17 +20055,10 @@ over power，过于强势
 这种情况很常见，AI弱智的原因，天灾的敌对权重太低了。现在就是种田一百年出山速灭几个堕落然后等天灾是最稳妥的。
 
 
-
-
-
-
-
 -----
 
 ####  Tokoyonoyami  
 ##### 1462#       发表于 2017-5-3 23:52
-
-
 
 
 选了Hive Mind，现实时间断断续续打了一个月终于打完了
@@ -29483,32 +20073,19 @@ over power，过于强势
 計画通り！
 
 
-
-
-
-
-
 -----
 
 ####  喵咪咪格勒  
 ##### 1463#       发表于 2017-5-4 01:05
 
 
-
-
 回归重新玩 那个风信子号还有bug还是什么吗？ 如果周围星区都探开了还是无法完成吗? 
-
-
-
-
-
 
 
 -----
 
 ####  flypig_zhy  
 ##### 1464#       发表于 2017-5-4 08:08
-
 
 
 <blockquote>Tokoyonoyami 发表于 2017-5-3 23:52
@@ -29519,16 +20096,10 @@ over power，过于强势
 1.6就有真虫群，连外交都没有了
 
 
-
-
-
-
-
 -----
 
 ####  nxmonitor  
 ##### 1465#       发表于 2017-5-4 14:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35844137&amp;ptid=1275523" target="_blank">flypig_zhy 发表于 2017-5-4 08:08</a>
@@ -29537,16 +20108,10 @@ over power，过于强势
 那个civic还是弱啊，瑞典蠢驴还是搞不清蜂群为什么弱啊，玩一局影响力就从来没有宽裕过，移民也没有只能手拖，谁见过动一动手要和手打招呼的……
 
 
-
-
-
-
-
 -----
 
 ####  Tokoyonoyami  
 ##### 1466#       发表于 2017-5-5 01:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35844137&amp;ptid=1275523" target="_blank">flypig_zhy 发表于 2017-5-4 08:08</a>
@@ -29555,27 +20120,15 @@ over power，过于强势
 好好好让宇宙充满虫子
 
 
-
-
-
-
-
 -----
 
 ####  chushou  
 ##### 1467#       发表于 2017-5-5 08:00
 
 
-
-
 才发现，探索左二真imba，可惜马上要改了。。。
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (Microsoft RM-1118_11280)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
@@ -29584,15 +20137,9 @@ over power，过于强势
 ##### 1468#       发表于 2017-5-5 08:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35844137&amp;ptid=1275523" target="_blank">flypig_zhy 发表于 2017-5-4 08:08</a>
 1.6就有真虫群，连外交都没有了</blockquote>
 1.6有什么改动？
-
-
-
-
-
 
 
 -----
@@ -29601,16 +20148,9 @@ over power，过于强势
 ##### 1469#       发表于 2017-5-5 10:15
 
 
-
-
 可惜思潮只有3个点数而种族洁癖必须是极端排外。
 
 不然军国+唯心+极端排外+种族洁癖+帝国制不就是战锤中的人类帝国嘛。
-
-
-
-
-
 
 
 -----
@@ -29619,14 +20159,7 @@ over power，过于强势
 ##### 1470#       发表于 2017-5-5 11:15
 
 
-
-
 调查上古帝国遗迹，被病毒和叛乱摧毁的那个的时候，找到了她老家扫描了一通什么也没有，但任务一直在闪是怎么回事。。
-
-
-
-
-
 
 
 -----
@@ -29635,22 +20168,15 @@ over power，过于强势
 ##### 1471#       发表于 2017-5-5 11:27
 
 
-
 <blockquote>艾诺琳 发表于 2017-5-5 08:31
 1.6有什么改动？</blockquote>
 探索不用点了，左2被砍成屎，然后太空殖民地也屎了，虫群大buff
-
-
-
-
-
 
 
 -----
 
 ####  nightraven  
 ##### 1472#       发表于 2017-5-5 11:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35855926&amp;ptid=1275523" target="_blank">博丽神社的物语 发表于 2017-5-5 10:15</a>
@@ -29665,16 +20191,10 @@ over power，过于强势
 就瑞典蠢驴搞得那么极端<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  十六夜pad长  
 ##### 1473#       发表于 2017-5-5 14:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=35855926&amp;amp;ptid=1275523" target="_blank">博丽神社的物语 发表于 2017-5-5 10:15</a>
@@ -29686,16 +20206,10 @@ over power，过于强势
 我开了EVE加达里合众国的档，排外+军国+平等，寡头政治，民族主义狂潮+企业国家。盖伦特就是亲外+极端平等，特性民主灯塔和另外一个啥。哲学派别我都没点，毕竟并不是说唯心主义就要信神，哲学派别毕竟只是对世界的看法而已……
 
 
-
-
-
-
-
 -----
 
 ####  setree  
 ##### 1474#       发表于 2017-5-6 01:18
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">群星进humble bundle月包了
@@ -29703,16 +20217,10 @@ over power，过于强势
 想入的朋友可以想办法收一个
 
 
-
-
-
-
-
 -----
 
 ####  outerspace  
 ##### 1475#       发表于 2017-5-6 01:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35864245&amp;ptid=1275523" target="_blank">setree 发表于 2017-5-6 01:18</a>
@@ -29723,16 +20231,10 @@ over power，过于强势
 什么时候文明6也进包呢。。。
 
 
-
-
-
-
-
 -----
 
 ####  setree  
 ##### 1476#       发表于 2017-5-6 01:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35864320&amp;ptid=1275523" target="_blank">outerspace 发表于 2017-5-6 01:33</a>
@@ -29745,17 +20247,10 @@ over power，过于强势
 不包括大型资料片
 
 
-
-
-
-
-
 -----
 
 ####  娱樂记者西野欢  
 ##### 1477#       发表于 2017-5-6 02:22
-
-
 
 
 为啥没人选唯物+军事+平权呢
@@ -29765,17 +20260,10 @@ over power，过于强势
 就是复兴帝国如果旁边是唯心的比较讨厌
 
 
-
-
-
-
-
 -----
 
 ####  喵咪咪格勒  
 ##### 1478#       发表于 2017-5-6 12:28
-
-
 
 
 怎么玩着玩着旁边的势力突然没了  我点它们的球 球上还有人 建筑 但是势力消失了
@@ -29784,16 +20272,10 @@ over power，过于强势
 ----发送自 [samsung SM-G9350,Android 7.0](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 1479#       发表于 2017-5-6 16:49
-
 
 
 <blockquote>airportlong 发表于 2017-5-6 13:15
@@ -29804,25 +20286,13 @@ over power，过于强势
 统治者除非特性加幸福，跟种族无关吧
 
 
-
-
-
-
-
 -----
 
 ####  flypig_zhy  
 ##### 1480#       发表于 2017-5-6 23:53
 
 
-
-
 政府上下都信仰唯心主义是什么意思，派系要求，我就是唯心啊
-
-
-
-
-
 
 
 -----
@@ -29831,21 +20301,13 @@ over power，过于强势
 ##### 1481#       发表于 2017-5-7 05:28
 
 
-
-
 趁hb入了一份，虽然不报什么希望，不过这游戏dlc有整合打折包么
-
-
-
-
-
 
 
 -----
 
 ####  云中君  
 ##### 1482#       发表于 2017-5-7 20:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35872633&amp;ptid=1275523" target="_blank">flypig_zhy 发表于 2017-5-6 23:53</a>
@@ -29858,17 +20320,10 @@ over power，过于强势
 寡头制的话，有个“崇高圣职”可以和军事国家理念搭配但不会变成军政府，而是“神圣审判庭”
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 1483#       发表于 2017-5-7 22:38
-
-
 
 
 唯物和平种田挺爽的，整体都很顺，开局用寡头，随个好点的领袖，派系要求完成后转民主开议会制
@@ -29877,25 +20332,13 @@ over power，过于强势
 距离远点的星球用蛙跳战术修边境空间站，能节省不少影响力
 
 
-
-
-
-
-
 -----
 
 ####  夜游的树  
 ##### 1484#       发表于 2017-5-8 00:00
 
 
-
-
 求助一下，我从创意工坊订阅的头像mod，下来一看头像特别小。改portraits文件一点反应没有，图片大小也用ps看过了好像没什么问题，这是怎么回事？
-
-
-
-
-
 
 
 -----
@@ -29904,14 +20347,7 @@ over power，过于强势
 ##### 1485#       发表于 2017-5-8 00:00
 
 
-
-
    想问一下，我开的挡已经打到两个堕落帝国互相拉小弟开战，而我两边都不鸟选择中立躲一边种田，其中一边的一个国家爆发了机器人造反，占领了一个星球爆出了两支20K的舰队，但是刚好堕落帝国440K的主力舰队经过顺手就把它们秒了，那么是不是我这个挡就不用再考虑什么恶魔虫子之类的了？
-
-
-
-
-
 
 
 -----
@@ -29920,22 +20356,15 @@ over power，过于强势
 ##### 1486#       发表于 2017-5-8 00:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=35881447&amp;amp;ptid=1275523" target="_blank">blackjeo 发表于 2017-5-8 00:00</a>
 想问一下，我开的挡已经打到两个堕落帝国互相拉小弟开战，而我两边都不鸟选择中立躲一边种田，其中一边 ...</blockquote>
 只会出一个天灾事件确实不用担心了
-
-
-
-
-
 
 
 -----
 
 ####  flypig_zhy  
 ##### 1487#       发表于 2017-5-8 07:52
-
 
 
 <blockquote>云中君 发表于 2017-5-7 20:59
@@ -29945,16 +20374,10 @@ over power，过于强势
 原来是政体啊，我唯心，崇外，和平，选了田园牧歌和环保主义，成了道德民主制
 
 
-
-
-
-
-
 -----
 
 ####  夏影  
 ##### 1488#       发表于 2017-5-8 09:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35882787&amp;ptid=1275523" target="_blank">flypig_zhy 发表于 2017-5-8 07:52</a>
@@ -29965,24 +20388,13 @@ over power，过于强势
 [http://www.stellariswiki.com/Government_Type](http://www.stellariswiki.com/Government_Type)
 
 
-
-
-
-
-
 -----
 
 ####  greelmr1981  
 ##### 1489#       发表于 2017-5-8 11:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我想问问除了Steam以外，还有什么英文mod网站吗？
-
-
-
-
-
 
 
 -----
@@ -29991,16 +20403,10 @@ over power，过于强势
 ##### 1490#       发表于 2017-5-8 12:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35881601&amp;ptid=1275523" target="_blank">JC_AR 发表于 2017-5-8 00:15</a>
 
 只会出一个天灾事件确实不用担心了</blockquote>
    这被随手一捏就死的天灾......感觉比虫子和恶魔矬好多
-
-
-
-
-
 
 
 -----
@@ -30009,16 +20415,10 @@ over power，过于强势
 ##### 1491#       发表于 2017-5-8 21:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35885625&amp;ptid=1275523" target="_blank">blackjeo 发表于 2017-5-8 12:31</a>
 
 这被随手一捏就死的天灾......感觉比虫子和恶魔矬好多</blockquote>
 传说是理论最强。。。
-
-
-
-
-
 
 
 -----
@@ -30027,16 +20427,10 @@ over power，过于强势
 ##### 1492#       发表于 2017-5-8 22:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35885625&amp;ptid=1275523" target="_blank">blackjeo 发表于 2017-5-8 12:31</a>
 
 这被随手一捏就死的天灾......感觉比虫子和恶魔矬好多</blockquote>
 因为初始范围不固定，所以看上去弱。如果初始星球比较多，还离玩家远就没法控制。我碰到过银河第二大国瞬间全境沦陷，然后觉醒爷爷成了孙子，我打了几场后被迫弃档……
-
-
-
-
-
 
 
 -----
@@ -30045,16 +20439,10 @@ over power，过于强势
 ##### 1493#       发表于 2017-5-8 22:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35885025&amp;ptid=1275523" target="_blank">greelmr1981 发表于 2017-5-8 11:31</a>
 
 我想问问除了Steam以外，还有什么英文mod网站吗？</blockquote>
 [http://stellaris.smods.ru/](http://stellaris.smods.ru/)
-
-
-
-
-
 
 
 -----
@@ -30063,14 +20451,7 @@ over power，过于强势
 ##### 1494#       发表于 2017-5-9 22:07
 
 
-
-
 周年补丁亚当斯（1.6）上线。
-
-
-
-
-
 
 
 -----
@@ -30079,14 +20460,7 @@ over power，过于强势
 ##### 1495#       发表于 2017-5-10 02:07
 
 
-
-
 刚买dlc一天就打折<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">虽然也就三块钱。。
-
-
-
-
-
 
 
 -----
@@ -30095,23 +20469,14 @@ over power，过于强势
 ##### 1496#       发表于 2017-5-10 03:29
 
 
-
-
 天灾加强了
 看来p社没有在近期完善游戏后期体验的计划
-
-
-
-
-
 
 
 -----
 
 ####  娱乐記者麻玉玉  
 ##### 1497#       发表于 2017-5-10 03:34
-
-
 
 
 如果有觉醒帝国，而且已经打下大片疆土的话，虚空如果刷的太近会被觉醒一巴掌打死
@@ -30121,16 +20486,10 @@ over power，过于强势
 不过利用虚空恶魔让他和觉醒两败俱伤倒是不错
 
 
-
-
-
-
-
 -----
 
 ####  iqbsh38  
 ##### 1498#       发表于 2017-5-10 09:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35902591&amp;ptid=1275523" target="_blank">娱乐記者麻玉玉 发表于 2017-5-10 03:34</a>
@@ -30141,16 +20500,10 @@ over power，过于强势
 看觉醒的配置的 有时候觉醒200k的部队直接去怼虚空有可能被四面八方的55k X n给包围 这样堕落帝国舰队最怕的肉搏战就会形成 瞬时就扑街了
 
 
-
-
-
-
-
 -----
 
 ####  antiultima  
 ##### 1499#       发表于 2017-5-10 11:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35856671&amp;ptid=1275523" target="_blank">archcross 发表于 2017-5-5 11:27</a>
@@ -30163,17 +20516,10 @@ over power，过于强势
 后期多余的科学船可以用来辅助研究，同时走探索右线保障快乐度顺便拿飞升点
 
 
-
-
-
-
-
 -----
 
 ####  学长失格  
 ##### 1500#       发表于 2017-5-10 11:54
-
-
 
 
 之前AI路线被恶魔灭了全宇宙
@@ -30202,8 +20548,5 @@ over power，过于强势
 某个选项失败了于是空降水母
 
 签了某个契约   国内隔三差五疯几个人
-
-
-
 
 

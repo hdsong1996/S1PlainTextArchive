@@ -1,13 +1,10 @@
 > ## **本文件最后更新于2020-05-20 16:09** 
 
 
-
 -----
 
 ####  万年匿名者  
 ##### 1#       楼主       发表于 2020-5-7 22:17
-
-
 
 
 he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为Warhammer的奇幻战场上引进了两位敌对的传奇领主，每位都有其独特的派系、目标、机制、部队以及游戏玩法，并在漩涡之眼与凡世帝国战役，以及自定义与多人对战中均可使用
@@ -16,13 +13,10 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 率领伊瑞斯（高等精灵）的『无情者』艾萨里昂，将对战率领碎斧部落（绿皮）的『大肚王』咕噜。伊瑞斯与碎斧部落都不会卷入大漩涡争夺战，而是会作为永恒的宿敌而彼此征战，直至在最终决战中死命相搏，仅有一方可以成为胜利者
 
 
-
-
 长久以来，塔尔·伊瑞斯的守望者艾萨里昂始终在恪尽职守，警惕着绿皮入侵的蛛丝马迹。曾几何时，当他率军远征海外，在纳迦隆德与杜鲁齐交锋时，『大肚王』咕噜掀起的一场史诗般的Waaagh！席卷了奥苏安，这股绿色的巨涛险些攻陷了塔尔·伊瑞斯城。在击败了咕噜并杀散了他的大军后，艾萨里昂发誓，他将永远不会让任何兽人或地精再次踏足他的祖国
 
 
 然而，咕噜却自有其盘算。他那无底洞般的大肚子咕咕哀号，期望着重新来过；而唯一能与这饕餮胃口相比的，就是他对复仇的渴望！随着地精们不断地往他的坩埚里添加食材，每一口新鲜的美味都让大肚王心花怒放，他开始了自己的图谋：集结所有能够集结的小子和老大，让他们彻底狂热起来，最终掀起一股整个世界前所未见的Waaagh！这次，塔尔·伊瑞斯将万劫不复，傲慢的守望者将向强大的大肚王屈膝！
-
 
 
 高等精灵-『无情者』艾萨里昂（伊瑞斯）
@@ -162,7 +156,6 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 奥术凤凰是『创世神』阿苏焉的空中伙伴，它既是苦难的预兆，也是希望的信使。当魔法之风的狂岚席卷世界时，它们自阿苏焉的身侧诞生。而在遥远的，迷雾笼罩的奥苏安，对高等精灵来说，若是奥术凤凰突然凌空现身，便是魔法风暴即将到来的预兆。它们是某种一体两面的象征：迫在眉睫的毁灭，以及万物复苏的希望
 
 
-
 绿皮-『大肚王』咕噜（碎斧）
 
 
@@ -258,13 +251,7 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 大哥大便是有史以来最大、最坏、最卑鄙、最狡猾的搞毛巨像！
 
 
-
 同时绿皮机制大改，新的Waaagh！！技能变为全部队通用的战场技能，且同时作为战役全势力BUFF，取消了负面效果，可以自行选择Waaagh！！！的效果和升级，同时绿皮可以通过战胜后捡垃圾获得BUFF和独特部队
-
-
-
-
-
 
 
 -----
@@ -273,14 +260,7 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 ##### 2#       发表于 2020-5-7 22:21
 
 
-
-
 开局位置呢？奥苏安放不下新势力了吧。。
-
-
-
-
-
 
 
 -----
@@ -289,16 +269,10 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 ##### 3#         楼主| 发表于 2020-5-7 22:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47337479&amp;ptid=1933350" target="_blank">kamarus 发表于 2020-5-7 22:21</a>
 
 开局位置呢？奥苏安放不下新势力了吧。。</blockquote>
 奥苏安现在就俩传奇领主，空位多得是啊，又不是南美，艾萨里昂本来就应该在塔尔依瑞斯的
-
-
-
-
-
 
 
 -----
@@ -307,15 +281,9 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 ##### 4#       发表于 2020-5-7 22:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47337489&amp;ptid=1933350" target="_blank">万年匿名者 发表于 2020-5-7 22:23</a>
 奥苏安现在就俩传奇领主，空位多得是啊，又不是南美，艾萨里昂本来就应该在塔尔依瑞斯的 ...</blockquote>
 好吧，看来又是把老城塞新人了？。。
-
-
-
-
-
 
 
 -----
@@ -324,14 +292,7 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 ##### 5#       发表于 2020-5-7 22:31
 
 
-
-
 咕噜的美食殿（无端联想）
-
-
-
-
-
 
 
 -----
@@ -340,16 +301,9 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 ##### 6#         楼主| 发表于 2020-5-7 22:41
 
 
-
-
 绿皮全种族都会更新的新机制
 
 捡垃圾：战斗胜利、WAGGH、劫掠可以获得废料，用来解锁特殊科技或是升级兵种。每个兵种可以三选一升级
-
-
-
-
-
 
 
 -----
@@ -358,15 +312,9 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 ##### 7#       发表于 2020-5-7 22:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">屁精蹦蹦车不知道是不是哪来搞笑的
 
 如果滚轮版的很强矮子可有的受了
-
-
-
-
-
 
 
 -----
@@ -375,15 +323,9 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 ##### 8#       发表于 2020-5-7 23:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47337503&amp;ptid=1933350" target="_blank">kamarus 发表于 2020-5-7 22:24</a>
 好吧，看来又是把老城塞新人了？。。</blockquote>
 没错，而且这次更新一次塞两个人
-
-
-
-
-
 
 
 -----
@@ -392,16 +334,10 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 ##### 9#         楼主| 发表于 2020-5-7 23:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338115&amp;ptid=1933350" target="_blank">輝夜月 发表于 2020-5-7 23:24</a>
 
 没错，而且这次更新一次塞两个人</blockquote>
 咕噜出生在北非，凡世阿兹汗拆出来出生在红眼山了
-
-
-
-
-
 
 
 -----
@@ -410,13 +346,7 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 ##### 10#       发表于 2020-5-8 00:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/231.gif" referrerpolicy="no-referrer">看完了绿皮描述我现在满脑子都是咕噜灵波……
-
-
-
-
-
 
 
 -----
@@ -425,14 +355,7 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 ##### 11#       发表于 2020-5-8 00:39
 
 
-
-
 还在出啊，有人说下目前已经多少派系了？
-
-
-
-
-
 
 
 -----
@@ -441,14 +364,7 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 ##### 12#       发表于 2020-5-8 00:50
 
 
-
-
 野怪人哭倒在厕所，说好的要做一辈子的下水道之友呢？怎么绿皮就大改了呢？
-
-
-
-
-
 
 
 -----
@@ -457,14 +373,7 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 ##### 13#       发表于 2020-5-8 03:02
 
 
-
-
 收集狂(抓领主)和美食家
-
-
-
-
-
 
 
 -----
@@ -473,15 +382,8 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 ##### 14#       发表于 2020-5-8 03:10
 
 
-
-
 买了
 又有高精可以玩，爽死了
-
-
-
-
-
 
 
 -----
@@ -490,19 +392,14 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 ##### 15#       发表于 2020-5-8 07:09
 
 
-
 <blockquote>seedees3 发表于 2020-5-8 00:39
 还在出啊，有人说下目前已经多少派系了？</blockquote>
 1代族帝国三个矮人三个吸血鬼三个绿皮四个混沌一个野兽人一个木精两个巴托四个诺斯卡两个，2代族高精六个暗精五个鼠人五个蜥蜴人六个古墓四个吸血鬼海盗四个，总计53个，顺便steamdb显示CA还塞了三个新的锤2DLC空位，1+2可能会达到56个派系
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -512,19 +409,13 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 | seedees3| + 2|买全dlc要花不少钱|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  梦回星海  
 ##### 16#       发表于 2020-5-8 07:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47337800&amp;ptid=1933350" target="_blank">古代人皮克 发表于 2020-5-7 22:55</a>
@@ -535,17 +426,10 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 如果按军书的设定走，这玩意永不战败（屁精蠢到不理解何为恐惧），飞翼版可以飞跃地形。矮子玩意完蛋了！
 
 
-
-
-
-
-
 -----
 
 ####  foolishman  
 ##### 17#       发表于 2020-5-8 08:23
-
-
 
 
 艾萨里昂的新机制妥妥的18禁剧情
@@ -554,17 +438,10 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  大肥鸽子  
 ##### 18#       发表于 2020-5-8 08:32
-
-
 
 
 在中古战锤，是精灵囚禁雷普兽人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -572,13 +449,9 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 艾萨利昂：听说咕噜你很勇哦？<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -588,12 +461,7 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 | 厄斯沃穆| + 1|欢乐多|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -602,16 +470,9 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 ##### 19#       发表于 2020-5-8 08:48
 
 
-
-
 看了下，绿皮的经济系统还是没改善？那还是穷…
 
 —— 来自 HUAWEI ALP-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -620,13 +481,7 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 ##### 20#       发表于 2020-5-8 09:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">高精兵种已经够齐全了还要加，球球CA给精帝一个面子，再给点物美价廉的抗线吧（
-
-
-
-
-
 
 
 -----
@@ -635,23 +490,15 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 ##### 21#         楼主| 发表于 2020-5-8 09:42
 
 
-
 <blockquote>despotnanoha 发表于 2020-5-8 09:31
 高精兵种已经够齐全了还要加，球球CA给精帝一个面子，再给点物美价廉的抗线吧（ ...</blockquote>
 讲道理，帝国根本不需要抗线，真正应该加的是狮鹫骑士和工程师，这俩都是背景军书里有的
-
-
-
-
-
 
 
 -----
 
 ####  zzt1123  
 ##### 22#       发表于 2020-5-8 09:51
-
-
 
 
 目前凡世帝国可玩派系数量，（注意传奇领主不同，派系是不同的，即使出生地一样）没记错的话：
@@ -663,16 +510,10 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 不含要出的这个DLC，其实最新的DLC影与刃大幅优化了过回合时间，实际游戏体验还好，不必担心派系过多等回合太慢的问题。
 
 
-
-
-
-
-
 -----
 
 ####  seedees3  
 ##### 23#       发表于 2020-5-8 09:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340718&amp;ptid=1933350" target="_blank">zzt1123 发表于 2020-5-8 09:51</a>
@@ -682,32 +523,19 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 请问同种族不同派系在玩法机制兵种上有很大区别吗，比如帝国内还有4个派系
 
 
-
-
-
-
-
 -----
 
 ####  cy1988813  
 ##### 24#       发表于 2020-5-8 10:00
 
 
-
-
 白狮好帅啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  zzt1123  
 ##### 25#       发表于 2020-5-8 10:04
-
 
 
  本帖最后由 zzt1123 于 2020-5-8 10:06 编辑 
@@ -724,13 +552,9 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 1代的派系一般可以通过合邦拿到领土和领主，但是派系加成不可改动，派系机制不会变。2代新加的其实合帮就挺麻烦的，一定程度上可以视作比较新的派系。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -740,12 +564,7 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 | seedees3| + 2|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -754,14 +573,7 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 ##### 26#       发表于 2020-5-8 10:07
 
 
-
-
 感覺全戰錘才是正統了 
-
-
-
-
-
 
 
 -----
@@ -770,14 +582,7 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 ##### 27#       发表于 2020-5-8 10:13
 
 
-
-
 其实绿皮还挺好玩的讲真 除了骑兵移速有点那啥
-
-
-
-
-
 
 
 -----
@@ -786,16 +591,10 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 ##### 28#       发表于 2020-5-8 10:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340522&amp;ptid=1933350" target="_blank">despotnanoha 发表于 2020-5-8 09:31</a>
 
 高精兵种已经够齐全了还要加，球球CA给精帝一个面子，再给点物美价廉的抗线吧（ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">拜托，帝国又不缺性价比单位，想想隔壁对战党的感受。看你懦弱的语气，你要的哪里是物美价廉，明明是单纯想要高性能单位吧。
-
-
-
-
-
 
 
 -----
@@ -804,21 +603,13 @@ he Warden &amp; the Paunch是Total War: WARHAMMER II的最新领主包。它为W
 ##### 29#       发表于 2020-5-8 10:19
 
 
-
-
 flc地精大萨满蜘蛛坐骑可以领了
-
-
-
-
-
 
 
 -----
 
 ####  seedees3  
 ##### 30#       发表于 2020-5-8 10:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340852&amp;ptid=1933350" target="_blank">zzt1123 发表于 2020-5-8 10:04</a>
@@ -828,25 +619,13 @@ flc地精大萨满蜘蛛坐骑可以领了
 2代合邦是否是不同派系排列组合着合邦会产生不同加成效果？
 
 
-
-
-
-
-
 -----
 
 ####  九门惠  
 ##### 31#       发表于 2020-5-8 10:30
 
 
-
-
 话说，Mixu的传奇领主包是不是做了伊瑞斯来着<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -855,22 +634,15 @@ flc地精大萨满蜘蛛坐骑可以领了
 ##### 32#       发表于 2020-5-8 10:48
 
 
-
 <blockquote>seedees3 发表于 2020-5-8 10:24
 2代合邦是否是不同派系排列组合着合邦会产生不同加成效果？</blockquote>
 合邦不继承派系效果，帝国一般金属脸开，山地绿适应很方便
-
-
-
-
-
 
 
 -----
 
 ####  九门惠  
 ##### 33#       发表于 2020-5-8 10:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341093&amp;ptid=1933350" target="_blank">seedees3 发表于 2020-5-8 10:24</a>
@@ -881,16 +653,10 @@ flc地精大萨满蜘蛛坐骑可以领了
 2代阵营里有些正常玩几乎没法合邦，比如吸血鬼海岸和古墓王，有些虽然可以合但派系机制差异太大，比如丛林精魂之于其他蜥蜴人（丛林精魂是游牧特性，攻下的城无法占领，会交给大计划守护者，合了其他蜥蜴人派系也只拿得到领主拿不到城）
 
 
-
-
-
-
-
 -----
 
 ####  zzt1123  
 ##### 34#       发表于 2020-5-8 11:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341093&amp;ptid=1933350" target="_blank">seedees3 发表于 2020-5-8 10:24</a>
@@ -911,16 +677,10 @@ flc地精大萨满蜘蛛坐骑可以领了
 总之一代更吃领主，二代派系差别更大，我个人的看法。
 
 
-
-
-
-
-
 -----
 
 ####  seedees3  
 ##### 35#       发表于 2020-5-8 11:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341656&amp;ptid=1933350" target="_blank">zzt1123 发表于 2020-5-8 11:09</a>
@@ -930,25 +690,13 @@ flc地精大萨满蜘蛛坐骑可以领了
 机制都会变这个系统比文明6好太多了怪不得4年了还在出dlc，文明6那么多国家换汤不换药，差异性太小
 
 
-
-
-
-
-
 -----
 
 ####  azccc52  
 ##### 36#       发表于 2020-5-8 12:40
 
 
-
-
 俺们要在大高高山上来一场矮垛子足球赛<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -957,16 +705,10 @@ flc地精大萨满蜘蛛坐骑可以领了
 ##### 37#       发表于 2020-5-8 14:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341949&amp;ptid=1933350" target="_blank">seedees3 发表于 2020-5-8 11:34</a>
 
 机制都会变这个系统比文明6好太多了怪不得4年了还在出dlc，文明6那么多国家换汤不换药，差异性太小 ...</blockquote>
 战锤2是策略游戏金字塔顶端，1代2代DLC全买不亏，我抽空都玩了快1000小时了
-
-
-
-
-
 
 
 -----
@@ -975,22 +717,15 @@ flc地精大萨满蜘蛛坐骑可以领了
 ##### 38#       发表于 2020-5-8 16:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47344085&amp;ptid=1933350" target="_blank">游公子 发表于 2020-5-8 14:25</a>
 战锤2是策略游戏金字塔顶端，1代2代DLC全买不亏，我抽空都玩了快1000小时了 ...</blockquote>
 我一直想入坑但乱七八糟dlc和版本太多不知道怎么搞，一代和一代dlc有必要买吗
-
-
-
-
-
 
 
 -----
 
 ####  炙热之狐  
 ##### 39#       发表于 2020-5-8 16:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47345545&amp;ptid=1933350" target="_blank">seedees3 发表于 2020-5-8 16:12</a>
@@ -1002,16 +737,10 @@ flc地精大萨满蜘蛛坐骑可以领了
 —— 来自 Xiaomi MI 5s Plus, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  游公子  
 ##### 40#       发表于 2020-5-8 17:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47345545&amp;ptid=1933350" target="_blank">seedees3 发表于 2020-5-8 16:12</a>
@@ -1020,25 +749,13 @@ flc地精大萨满蜘蛛坐骑可以领了
 除了野兽人，建议全买。而且活动期间全买也就400多块钱，还买不起一款八方旅人。
 
 
-
-
-
-
-
 -----
 
 ####  seedees3  
 ##### 41#       发表于 2020-5-8 18:16
 
 
-
-
 那就全买吧，这游戏持续更新的态势让人觉得还可以挖掘潜力，顺便期待下魔戒mod
-
-
-
-
-
 
 
 -----
@@ -1047,16 +764,9 @@ flc地精大萨满蜘蛛坐骑可以领了
 ##### 42#       发表于 2020-5-8 19:29
 
 
-
-
 泰哥惨被包围，唯一指定主角位置堪忧
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -1065,15 +775,9 @@ flc地精大萨满蜘蛛坐骑可以领了
 ##### 43#       发表于 2020-5-8 19:34
 
 
-
 <blockquote>seedees3 发表于 2020-5-8 18:16
 那就全买吧，这游戏持续更新的态势让人觉得还可以挖掘潜力，顺便期待下魔戒mod ...</blockquote>
 不过战锤2应该快更新完了，就等三代了
-
-
-
-
-
 
 
 -----
@@ -1082,16 +786,10 @@ flc地精大萨满蜘蛛坐骑可以领了
 ##### 44#       发表于 2020-5-8 19:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340522&amp;ptid=1933350" target="_blank">despotnanoha 发表于 2020-5-8 09:31</a>
 
 高精兵种已经够齐全了还要加，球球CA给精帝一个面子，再给点物美价廉的抗线吧（ ...</blockquote>
 帝国没顶级抗线算是老大难问题，如果米登领未来能转正的话说不定精帝就能如愿以偿了，当然ca要是铁了心不给帝国t5步兵，那也没办法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1100,17 +798,10 @@ flc地精大萨满蜘蛛坐骑可以领了
 ##### 45#       发表于 2020-5-8 19:55
 
 
-
  本帖最后由 战斗鸡 于 2020-5-8 19:57 编辑 
 <blockquote>游公子 发表于 2020-5-8 17:03
 除了野兽人，建议全买。而且活动期间全买也就400多块钱，还买不起一款八方旅人。 ...</blockquote>
 最近有活动？我steam上看漏了吗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
@@ -1119,15 +810,9 @@ flc地精大萨满蜘蛛坐骑可以领了
 ##### 46#       发表于 2020-5-8 20:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47348066&amp;ptid=1933350" target="_blank">科本学士 发表于 2020-5-8 19:34</a>
 不过战锤2应该快更新完了，就等三代了</blockquote>
 3代可能是重启后的东西了，没什么兴趣
-
-
-
-
-
 
 
 -----
@@ -1136,16 +821,10 @@ flc地精大萨满蜘蛛坐骑可以领了
 ##### 47#       发表于 2020-5-8 20:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47348388&amp;ptid=1933350" target="_blank">seedees3 发表于 2020-05-08 20:03:30</a>
 3代可能是重启后的东西了，没什么兴趣</blockquote>据我所知，绝不是aos，这你可以放宽心。
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -1154,23 +833,15 @@ flc地精大萨满蜘蛛坐骑可以领了
 ##### 48#       发表于 2020-5-8 20:19
 
 
-
-
 我对二代最不满意的是。。。混沌入侵实在是太弱了
 
 哪怕我打个10倍混沌mod，还是觉得混沌不够强
-
-
-
-
-
 
 
 -----
 
 ####  古代人皮克  
 ##### 49#       发表于 2020-5-8 21:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340522&amp;ptid=1933350" target="_blank">despotnanoha 发表于 2020-5-8 09:31</a>
@@ -1181,16 +852,10 @@ flc地精大萨满蜘蛛坐骑可以领了
 除了金属脸其他人都什么玩意
 
 
-
-
-
-
-
 -----
 
 ####  古代人皮克  
 ##### 50#       发表于 2020-5-8 21:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47348388&amp;ptid=1933350" target="_blank">seedees3 发表于 2020-5-8 20:03</a>
@@ -1199,32 +864,19 @@ flc地精大萨满蜘蛛坐骑可以领了
 锤战这个销量让GW都后悔出AOS了好吧
 
 
-
-
-
-
-
 -----
 
 ####  xwr  
 ##### 51#       发表于 2020-5-8 21:10
 
 
-
-
 I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？
-
-
-
-
-
 
 
 -----
 
 ####  yuwe0714  
 ##### 52#       发表于 2020-5-8 21:13
-
 
 
  本帖最后由 yuwe0714 于 2020-5-8 21:14 编辑 
@@ -1234,16 +886,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 要啥攻略，新手先找个战役随便打打找个种族熟悉一下系统吧，要看各种族派系兵种分析的话，全战战锤吧有精品贴。现在直接去网战是等着被摩擦吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  seedees3  
 ##### 53#       发表于 2020-5-8 21:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47348433&amp;ptid=1933350" target="_blank">梦回星海 发表于 2020-5-8 20:08</a>
@@ -1253,24 +899,13 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 这倒是好，那3代会从战场规模上进化？增加同屏人数什么的
 
 
-
-
-
-
-
 -----
 
 ####  灰色骑士  
 ##### 54#       发表于 2020-5-8 21:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">木精到今天还是两传奇。
-
-
-
-
-
 
 
 -----
@@ -1279,23 +914,16 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 ##### 55#       发表于 2020-5-8 21:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47349153&amp;ptid=1933350" target="_blank">yuwe0714 发表于 2020-5-8 21:13</a>
 
 要啥攻略，新手先找个战役随便打打找个种族熟悉一下系统吧，要看各种族派系兵种分析的话，全战战锤吧有精 ...</blockquote>
 那能不能多人对电脑，PVE？
 
 
-
-
-
-
-
 -----
 
 ####  XE游侠  
 ##### 56#       发表于 2020-5-8 21:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340852&amp;ptid=1933350" target="_blank">zzt1123 发表于 2020-5-8 10:04</a>
@@ -1306,16 +934,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 而且不同势力在两个战役里起始位置和面对的主要敌人都不一样，结果就是 有更多的不同玩法
 
 
-
-
-
-
-
 -----
 
 ####  XE游侠  
 ##### 57#       发表于 2020-5-8 21:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341093&amp;ptid=1933350" target="_blank">seedees3 发表于 2020-5-8 10:24</a>
@@ -1326,16 +948,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 领主特性算他自己的，如果你合帮之后还有他，就还有他的特性
 
 
-
-
-
-
-
 -----
 
 ####  XE游侠  
 ##### 58#       发表于 2020-5-8 21:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47349180&amp;ptid=1933350" target="_blank">seedees3 发表于 2020-5-8 21:16</a>
@@ -1349,16 +965,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 主线战役应该也是一个新的
 
 
-
-
-
-
-
 -----
 
 ####  hyakusiki  
 ##### 59#       发表于 2020-5-8 21:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47349211&amp;ptid=1933350" target="_blank">xwr 发表于 2020-5-8 21:18</a>
@@ -1370,16 +980,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 合作战役你队友打仗的时候你还可以帮他控兵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yuwe0714  
 ##### 60#       发表于 2020-5-8 21:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47349211&amp;ptid=1933350" target="_blank">xwr 发表于 2020-5-8 21:18</a>
@@ -1390,16 +994,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 能联机PVE，甚至是战役联机PVE。不过这作内政那么简化，新手不打mod不双难正常难度玩也没啥难度啊，一开始自己打打战役就行了吧，对兵种派系什么的有想法就去翻翻贴吧精品<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kamarus  
 ##### 61#       发表于 2020-5-8 21:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47349114&amp;ptid=1933350" target="_blank">xwr 发表于 2020-5-8 21:10</a>
@@ -1407,16 +1005,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 玩绿混沌，抢就一个字<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  diodio233  
 ##### 62#       发表于 2020-5-8 21:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47349332&amp;ptid=1933350" target="_blank">XE游侠 发表于 2020-5-8 21:28</a>
@@ -1427,16 +1019,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  大肥鸽子  
 ##### 63#       发表于 2020-5-9 00:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47349114&amp;ptid=1933350" target="_blank">xwr 发表于 2020-5-8 21:10</a>
@@ -1448,16 +1034,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 锤战的网战娱乐性很强，但如果猜错兵表大概率会被吊打，平衡性一般，不建议新手打网战，真要打的话建议选帝国和高精，b站有礼赞、hun神明大人等up做网战的视频和直播，可以去学习一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  大肥鸽子  
 ##### 64#       发表于 2020-5-9 00:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47349397&amp;ptid=1933350" target="_blank">kamarus 发表于 2020-5-8 21:35</a>
@@ -1466,16 +1046,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 萌新唯二指定入门种族是高精和帝国哒，绿混沌还是等熟悉系统后再爽比较好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白行简5566  
 ##### 65#       发表于 2020-5-9 08:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47349092&amp;ptid=1933350" target="_blank">古代人皮克 发表于 2020-5-8 21:08</a>
@@ -1487,32 +1061,20 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 —— 来自 HUAWEI YAL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  游公子  
 ##### 66#       发表于 2020-5-9 08:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47348311&amp;ptid=1933350" target="_blank">战斗鸡 发表于 2020-5-8 19:55</a>最近有活动？我steam上看漏了吗</blockquote>
 Steam2020年夏季特卖将会在北京时间6月26号凌晨1点开始，持续到7月10号凌晨1点。
-
-
-
-
-
 
 
 -----
 
 ####  zzt1123  
 ##### 67#       发表于 2020-5-9 09:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47349114&amp;ptid=1933350" target="_blank">xwr 发表于 2020-5-8 21:10</a>
@@ -1527,16 +1089,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 有些细节可能玩很久都不会注意，比如法术点两下超载，城防军自己能突围这种，多多摸索吧。
 
 
-
-
-
-
-
 -----
 
 ####  八月飞雪  
 ##### 68#       发表于 2020-5-9 09:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47349332&amp;ptid=1933350" target="_blank">XE游侠 发表于 2020-5-8 21:28</a>
@@ -1547,16 +1103,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">这基斯里夫啥时才有官方消息啊……我要熊骑兵！（然后我朋友乐呵呵地告诉我至少2021年……全战又放出特洛伊的新作了……
 
 
-
-
-
-
-
 -----
 
 ####  skylard  
 ##### 69#       发表于 2020-5-9 09:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340522&amp;ptid=1933350" target="_blank">despotnanoha 发表于 2020-5-8 09:31</a>
@@ -1565,16 +1115,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 坦克不香么？
 
 
-
-
-
-
-
 -----
 
 ####  Von  
 ##### 70#       发表于 2020-5-9 10:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47353317&amp;ptid=1933350" target="_blank">skylard 发表于 2020-5-9 09:57</a>
@@ -1583,16 +1127,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 说真 坦克 不太好用。。。主要是星耀龙 打爆一切单体。。。。
 
 
-
-
-
-
-
 -----
 
 ####  战斗鸡  
 ##### 71#       发表于 2020-5-9 10:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47352772&amp;ptid=1933350" target="_blank">游公子 发表于 2020-5-9 08:58</a>
@@ -1604,16 +1142,10 @@ Steam2020年夏季特卖将会在北京时间6月26号凌晨1点开始，持续�
 另外问一句需要1代2代一起买才能解锁凡世帝国吗？
 
 
-
-
-
-
-
 -----
 
 ####  梦回星海  
 ##### 72#       发表于 2020-5-9 10:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47353552&amp;ptid=1933350" target="_blank">Von 发表于 2020-5-9 10:18</a>
@@ -1622,16 +1154,10 @@ Steam2020年夏季特卖将会在北京时间6月26号凌晨1点开始，持续�
 坦克是战车，就不该拿它对比巨兽单位。
 
 
-
-
-
-
-
 -----
 
 ####  游公子  
 ##### 73#       发表于 2020-5-9 10:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47353654&amp;ptid=1933350" target="_blank">战斗鸡 发表于 2020-5-9 10:27</a>
@@ -1647,26 +1173,15 @@ Steam2020年夏季特卖将会在北京时间6月26号凌晨1点开始，持续�
 战锤2每次更新DLC之前的mod就不能用了，这点很烦。
 
 
-
-
-
-
-
 -----
 
 ####  seedees3  
 ##### 74#       发表于 2020-5-9 11:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47351276&amp;ptid=1933350" target="_blank">大肥鸽子 发表于 2020-5-9 00:26</a>
 http://tieba.baidu.com/p/5634083216?share=9105&amp;fr=share&amp;see_lz=0&amp;sfc=qqfriend&amp;client_type=2&amp;client ...</blockquote>
 网战一局起码几天吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1675,23 +1190,16 @@ http://tieba.baidu.com/p/5634083216?share=9105&amp;fr=share&amp;see_lz=0&amp;sfc
 ##### 75#       发表于 2020-5-9 12:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47353254&amp;ptid=1933350" target="_blank">八月飞雪 发表于 2020-5-9 09:50</a>
 
 我去年年中发下了重誓说啥时出基斯里夫的消息我啥时重新回坑继续和朋友联机，然后我看着远征军出 ...</blockquote>
 老毛子要做的好玩可是要jizhi不少东西。。。
 
 
-
-
-
-
-
 -----
 
 ####  八月飞雪  
 ##### 76#       发表于 2020-5-9 12:57
-
 
 
  本帖最后由 八月飞雪 于 2020-5-9 13:02 编辑 
@@ -1704,16 +1212,10 @@ http://tieba.baidu.com/p/5634083216?share=9105&amp;fr=share&amp;see_lz=0&amp;sfc
 毕竟从1起那么大一块的地方都是毛子的地盘了，毛子能做到海盗的地步我也就大概知足了。。。（我要求很简单的，给我 火 药 ！给我熊！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）
 
 
-
-
-
-
-
 -----
 
 ####  古代人皮克  
 ##### 77#       发表于 2020-5-9 13:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47355484&amp;ptid=1933350" target="_blank">八月飞雪 发表于 2020-5-9 12:57</a>
@@ -1722,26 +1224,15 @@ http://tieba.baidu.com/p/5634083216?share=9105&amp;fr=share&amp;see_lz=0&amp;sfc
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">老毛子军书上没啥**啊，按背景做的话应该是诺斯卡+帝国杂交的那种感觉
 
 
-
-
-
-
-
 -----
 
 ####  头像才不霸气呢  
 ##### 78#       发表于 2020-5-9 13:08
 
 
-
 <blockquote>古代人皮克 发表于 2020-5-9 12:19
 老毛子要做的好玩可是要jizhi不少东西。。。</blockquote>
 最近gw的旧世界重启第一篇就是基斯里夫的皇家禁卫
-
-
-
-
-
 
 
 -----
@@ -1750,12 +1241,10 @@ http://tieba.baidu.com/p/5634083216?share=9105&amp;fr=share&amp;see_lz=0&amp;sfc
 ##### 79#       发表于 2020-5-9 13:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47355568&amp;ptid=1933350" target="_blank">古代人皮克 发表于 2020-5-9 13:04</a>
 
 老毛子军书上没啥**啊，按背景做的话应该是诺斯卡+帝国杂交的那种感觉 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">我记得大概是有的？之前看中继站的时候，提到过老毛子背景里有射击军，不过这种部队很少就是了（老实说，和帝国接壤那么久，没学到些这种也不太正常……）
-
 
 
 射击军Streltsi
@@ -1766,25 +1255,16 @@ http://tieba.baidu.com/p/5634083216?share=9105&amp;fr=share&amp;see_lz=0&amp;sfc
 沙皇的军事理论被永远的改变了，在他最后遗嘱中命令继任者将他的大部分财富用于组建一个**团。这一传统持续到今天，但因为王国是一个贫穷国家，只有厄伦格拉德(erengrad)这种港口城市才有资金维持射击军。
 
 
-
 多年训练后这些**手已经是王国最重要的部队，射击军士兵在王国出行时都佩戴厄伦格拉德和**交叉的“厄伦格拉德和**”徽章。射击军士兵已经训练到可以瞬间从漠然**手组成的钢铁火线变为狂暴怒吼的战斧步兵，那些侥幸挺过他们交叉速射的敌人只会被战斧大卸八块。
 
 
-
-
 [http://blog.sina.com.cn/s/blog_14e1befc70102wcdc.html](http://blog.sina.com.cn/s/blog_14e1befc70102wcdc.html)
-
-
-
-
-
 
 
 -----
 
 ####  古代人皮克  
 ##### 80#       发表于 2020-5-9 13:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47355623&amp;ptid=1933350" target="_blank">八月飞雪 发表于 2020-5-9 13:09</a>
@@ -1795,16 +1275,10 @@ http://tieba.baidu.com/p/5634083216?share=9105&amp;fr=share&amp;see_lz=0&amp;sfc
 比较特色的反而是各种骑兵，波兰骑兵哥萨克蒙古骑啥的
 
 
-
-
-
-
-
 -----
 
 ####  skylard  
 ##### 81#       发表于 2020-5-9 14:18
-
 
 
  本帖最后由 skylard 于 2020-5-9 14:19 编辑 
@@ -1816,16 +1290,10 @@ http://tieba.baidu.com/p/5634083216?share=9105&amp;fr=share&amp;see_lz=0&amp;sfc
 战役嘛，神佑三角龙牛逼~
 
 
-
-
-
-
-
 -----
 
 ####  八月飞雪  
 ##### 82#       发表于 2020-5-9 14:25
-
 
 
 <blockquote>古代人皮克 发表于 2020-5-9 13:12
@@ -1841,16 +1309,10 @@ http://tieba.baidu.com/p/5634083216?share=9105&amp;fr=share&amp;see_lz=0&amp;sfc
 配合毛熊的一贯特色，感觉很可能是一部分精锐（步+轻骑）加大量便宜炮灰，然后用昂贵步兵和炮灰们推，骑兵们四处打浪战……（印象最深的就是1的基斯里夫，就算被混沌怎么打穿，只要还有一座城没亡，这帮人就能几个回合下来又全给你占回来而且还又是几队满编…………）
 
 
-
-
-
-
-
 -----
 
 ####  看不透的人生  
 ##### 83#       发表于 2020-5-9 16:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47356319&amp;ptid=1933350" target="_blank">skylard 发表于 2020-5-9 14:18</a>
@@ -1861,16 +1323,10 @@ http://tieba.baidu.com/p/5634083216?share=9105&amp;fr=share&amp;see_lz=0&amp;sfc
 高爷的强度就算CA继续涨价也还是有人会出的，帝国的长矛剑盾都是炮灰抗线，高爷两刀大部分领主就要半血。
 
 
-
-
-
-
-
 -----
 
 ####  skylard  
 ##### 84#       发表于 2020-5-9 16:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47349114&amp;ptid=1933350" target="_blank">xwr 发表于 2020-5-8 21:10</a>
@@ -1879,16 +1335,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 战役还是蜥蜴人侏罗纪公园好玩，waaagh过去就行了，而且诸神引擎太帅太帅了
 
 
-
-
-
-
-
 -----
 
 ####  梦回星海  
 ##### 85#       发表于 2020-5-9 17:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47356319&amp;ptid=1933350" target="_blank">skylard 发表于 2020-5-9 14:18</a>
@@ -1899,16 +1349,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 有选图的问题，不过高爷的确超模，尤其是对于那些对野怪种族的对抗。野怪最常见的死法是明明残局部队一拥而上绝对能把帝国剩下的几个单体砍死，但因为这些能回血的永不战败单位算实力条碾压，搞得野怪一方部队士气连锁崩溃。
 
 
-
-
-
-
-
 -----
 
 ####  skylard  
 ##### 86#       发表于 2020-5-9 17:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47358268&amp;ptid=1933350" target="_blank">梦回星海 发表于 2020-5-9 17:19</a>
@@ -1917,16 +1361,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 看了下ID，你是星海大佬么？
 
 
-
-
-
-
-
 -----
 
 ####  武蔵  
 ##### 87#       发表于 2020-5-9 18:09
-
 
 
 <blockquote>八月飞雪 发表于 2020-5-9 14:25
@@ -1937,16 +1375,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 帝国现在就有车载加特林啊……
 
 
-
-
-
-
-
 -----
 
 ####  八月飞雪  
 ##### 88#       发表于 2020-5-9 18:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47358713&amp;ptid=1933350" target="_blank">武蔵 发表于 2020-5-9 18:09</a>
@@ -1955,16 +1387,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 就是感觉基斯里夫会有这种玩意可能性不是很大而已了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
 
 
-
-
-
-
-
 -----
 
 ####  古代人皮克  
 ##### 89#       发表于 2020-5-9 19:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47356396&amp;ptid=1933350" target="_blank">八月飞雪 发表于 2020-5-9 14:25</a>
@@ -1978,16 +1404,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 历史上这玩意是征兆农民发明出来暴打骑士老爷的，老毛子一直把马车拉**战术用到了二战
 
 
-
-
-
-
-
 -----
 
 ####  梦回星海  
 ##### 90#       发表于 2020-5-9 19:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47358304&amp;ptid=1933350" target="_blank">skylard 发表于 2020-5-9 17:23</a>
@@ -1996,16 +1416,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 是本沙包没错了。这次被坦克抱团弄死实在是屈辱。
 
 
-
-
-
-
-
 -----
 
 ####  万年匿名者  
 ##### 91#         楼主| 发表于 2020-5-9 19:24
-
 
 
 <blockquote>古代人皮克 发表于 2020-5-9 19:15
@@ -2015,16 +1429,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 黑狮车垒非常强，可惜只有一队，另外两种车垒战役里的确没啥用，但在网战里其他巴托、绿皮、野怪人的快要被车垒打懵了好么（不过臼炮车垒的确没啥用），背景里这玩意是五版帝国规则里的玩意，六版开始的规则就取消了，说是帝国淘汰了，ca不给八版规则里有狮鹫骑士、工程师强行挖这玩意出来也是醉了
 
 
-
-
-
-
-
 -----
 
 ####  古代人皮克  
 ##### 92#       发表于 2020-5-9 20:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47359470&amp;ptid=1933350" target="_blank">万年匿名者 发表于 2020-5-9 19:24</a>
@@ -2034,16 +1442,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 —— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  八月飞雪  
 ##### 93#       发表于 2020-5-9 20:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47359387&amp;ptid=1933350" target="_blank">古代人皮克 发表于 2020-5-9 19:15</a>
@@ -2054,16 +1456,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">塔塔开嘛（乱玩梗了，我知道名字啦），这要真能搞出来，希望基斯里夫版本的会强力些，毕竟也算是唯一一个把这玩意玩到烂熟的国家了……（虽然保守估计又会黑老毛子一把）
 
 
-
-
-
-
-
 -----
 
 ####  古代人皮克  
 ##### 94#       发表于 2020-5-9 20:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47360010&amp;ptid=1933350" target="_blank">八月飞雪 发表于 2020-5-9 20:24</a>
@@ -2073,16 +1469,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 —— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  八月飞雪  
 ##### 95#       发表于 2020-5-9 21:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47360130&amp;ptid=1933350" target="_blank">古代人皮克 发表于 2020-5-9 20:37</a>
@@ -2091,16 +1481,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
 
 
-
-
-
-
-
 -----
 
 ####  skylard  
 ##### 96#       发表于 2020-5-9 22:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47359445&amp;ptid=1933350" target="_blank">梦回星海 发表于 2020-5-9 19:20</a>
@@ -2109,16 +1493,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 23333，还真是
 
 
-
-
-
-
-
 -----
 
 ####  M829A4  
 ##### 97#       发表于 2020-5-9 23:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47360130&amp;ptid=1933350" target="_blank">古代人皮克 发表于 2020-05-09 20:37:12</a>
@@ -2127,24 +1505,13 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  失之，我命  
 ##### 98#       发表于 2020-5-10 06:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">听说绿皮大改了？
-
-
-
-
-
 
 
 -----
@@ -2153,23 +1520,15 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 ##### 99#       发表于 2020-5-10 14:14
 
 
-
-
 绿皮终于重做了，不过补员和经济的问题有得到解决吗
 
 之前玩sfo绿皮就还不错
-
-
-
-
-
 
 
 -----
 
 ####  kylin88  
 ##### 100#       发表于 2020-5-10 15:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47367177&amp;ptid=1933350" target="_blank">lyc90716 发表于 2020-5-10 14:14</a>
@@ -2181,25 +1540,14 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 —— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  azccc52  
 ##### 101#       发表于 2020-5-13 00:27
 
 
-
 [https://b23.tv/BV1XK4y147CU/p2](https://b23.tv/BV1XK4y147CU/p2)
 礼赞的新兵种介绍，泰迪大加强<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2208,14 +1556,7 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 ##### 102#       发表于 2020-5-13 00:29
 
 
-
-
 这一波高精要上平流层啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2224,21 +1565,13 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 ##### 103#       发表于 2020-5-13 00:42
 
 
-
-
 搞毛巨象太nb了……
-
-
-
-
-
 
 
 -----
 
 ####  xwr  
 ##### 104#       发表于 2020-5-13 07:38
-
 
 
  本帖最后由 xwr 于 2020-5-13 08:05 编辑 
@@ -2257,17 +1590,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 5. 高地有什么加成效果？6. 援军位置是怎么决定的？
 
 
-
-
-
-
-
-
 -----
 
 ####  Leliel  
 ##### 105#       发表于 2020-5-13 08:08
-
 
 
  本帖最后由 Leliel 于 2020-5-13 08:10 编辑 
@@ -2288,32 +1614,19 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 5.高地视野好。直射火力配置在斜坡高位不会被位于前方低位的部队阻挡射线。高处往低处进攻有冲锋和体力优势，反之则会处于劣势
 
 
-
-
-
-
-
 -----
 
 ####  空虚澄璃色  
 ##### 106#       发表于 2020-5-13 08:12
 
 
-
-
 这波还是没有给所有地面巨兽加上破墙者特效吗，还得打mod好烦。
-
-
-
-
-
 
 
 -----
 
 ####  万年匿名者  
 ##### 107#         楼主| 发表于 2020-5-13 08:59
-
 
 
  本帖最后由 万年匿名者 于 2020-5-13 09:02 编辑 
@@ -2336,25 +1649,13 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 6.援军的位置目前是受到大地图上部队位置的影响，但有时候出现位置会不太准确，别太相信大地图位置
 
 
-
-
-
-
-
 -----
 
 ####  赮毕钵罗  
 ##### 108#       发表于 2020-5-13 09:14
 
 
-
-
 想拿起来玩玩了，帝国那个DLC值得买吗，求教
-
-
-
-
-
 
 
 -----
@@ -2363,16 +1664,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 ##### 109#       发表于 2020-5-13 09:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47400047&amp;ptid=1933350" target="_blank">赮毕钵罗 发表于 2020-5-13 09:14</a>
 
 想拿起来玩玩了，帝国那个DLC值得买吗，求教</blockquote>
 锤二风评最差的dlc，黑点在于沃法特的开局比较难，对帝国的体系几乎没有补全，如果你只想图一乐，还是能买的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2381,16 +1676,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 ##### 110#       发表于 2020-5-13 09:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47398324&amp;ptid=1933350" target="_blank">纸化千风 发表于 2020-5-13 00:29</a>
 
 这一波高精要上平流层啊</blockquote>
 高精的加强力度确实出乎意料，但战斗机制和战略机制几乎没啥变动，整体依然偏防守向，我觉得战役里不一定会比新版绿皮更好玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2399,16 +1688,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 ##### 111#       发表于 2020-5-13 09:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47400047&amp;ptid=1933350" target="_blank">赮毕钵罗 发表于 2020-5-13 09:14</a>
 
 想拿起来玩玩了，帝国那个DLC值得买吗，求教</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">打对战吗大兄弟，打对战还是得买，如果只玩战役还是算了，难度和爽度对不起价格，新兵种车垒弓箭手也是鸡肋。
-
-
-
-
-
 
 
 -----
@@ -2417,14 +1700,7 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 ##### 112#         楼主| 发表于 2020-5-13 09:57
 
 
-
-
 猎人与野兽dlc最尴尬的就是对帝国加强最大的选帝侯系统是免费更新内容，然后马大帅本人还不受这个系统影响，吃不到加上内容，新加的兵种都是网战用的，虽然马大帅个人线＋四个传奇事务官加成能让火qiang猎人都变输出爆炸的机关**，后期也有用不完的火星空降兵，但开局太难了
-
-
-
-
-
 
 
 -----
@@ -2433,21 +1709,13 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 ##### 113#       发表于 2020-5-13 10:03
 
 
-
-
 纳卡伊这么爽，谁要玩马库斯。
-
-
-
-
-
 
 
 -----
 
 ####  厄斯沃穆  
 ##### 114#       发表于 2020-5-13 10:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47400572&amp;ptid=1933350" target="_blank">武蔵 发表于 2020-5-13 10:03</a>
@@ -2457,16 +1725,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 —— 来自 HUAWEI ALP-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  万年匿名者  
 ##### 115#         楼主| 发表于 2020-5-13 10:15
-
 
 
 <blockquote>厄斯沃穆 发表于 2020-5-13 10:10
@@ -2477,25 +1739,13 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 纳卡伊一直很强啊，刚来那会就是最强游牧，机制让战役层面没有后顾之忧，靠祭祀可以量产神佑，祭祀给的三个战场技能也是强的爆炸，黑也是黑纳卡伊个人战斗力不行，完全不符合背景设定
 
 
-
-
-
-
-
 -----
 
 ####   Hxxxxxx  
 ##### 116#       发表于 2020-5-13 10:15
 
 
-
-
 新事务官黑兽人老大还没得看
-
-
-
-
-
 
 
 -----
@@ -2504,21 +1754,13 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 ##### 117#       发表于 2020-5-13 12:38
 
 
-
-
 只玩战役看来帝国那个dlc可以省钱了，为啥ca这么不待见帝国啊，旧世界帝国人气应该很高啊
-
-
-
-
-
 
 
 -----
 
 ####  春哥亲自  
 ##### 118#       发表于 2020-5-13 12:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47402609&amp;ptid=1933350" target="_blank">赮毕钵罗 发表于 2020-5-13 12:38</a>
@@ -2530,24 +1772,13 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 帝国其实前期不菜的，问题是后期远程体系被各种巨兽摁在地上打。
 
 
-
-
-
-
-
 -----
 
 ####  古代人皮克  
 ##### 119#       发表于 2020-5-13 13:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">太弟有凤凰！火法能骑龙！
-
-
-
-
-
 
 
 -----
@@ -2556,16 +1787,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 ##### 120#       发表于 2020-5-13 13:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47402880&amp;ptid=1933350" target="_blank">古代人皮克 发表于 2020-5-13 13:06</a>
 
 太弟有凤凰！火法能骑龙！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“女皇骑龙飞，鸡丝骑龙追，火法骑龙绕塔飞，可怜的泰哥么得龙骑喔，弟弟都可以耍火（四声）鸟”
-
-
-
-
-
 
 
 -----
@@ -2574,15 +1799,10 @@ I和II都买了，请问有没有好的入门攻略？多人游戏怎么样？</
 ##### 121#       发表于 2020-5-20 14:50
 
 
-
-
 更新这么多内容简直不像懒癌CA的作风，大部分种族都值得重开档体验
 
 
 削弱高精精心打理和鼠人贪婪扩张加成数值但不对整个领主叠特性机制动刀，说明CA默许，也行
-
-
-
 
 
                                              

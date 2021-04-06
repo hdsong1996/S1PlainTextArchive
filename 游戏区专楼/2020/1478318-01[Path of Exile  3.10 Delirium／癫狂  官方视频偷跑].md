@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2020-03-06 13:45** 
 
 
-
 -----
 
 ####  妹控使徒  
 ##### 1#       楼主       发表于 2017-2-17 00:53
-
 
 
  本帖最后由 妹控使徒 于 2020-2-28 10:28 编辑 
@@ -38,8 +36,6 @@
 <img src="http://tvax4.sinaimg.cn/large/638aaa96gy1gc9jg3xzl6j20gl0alwig.jpg" referrerpolicy="no-referrer">
 
 
-
-
 <strong>
 Cluster Jewel</strong>
 
@@ -63,8 +59,6 @@ Cluster Jewel</strong>
 以上几个技能产生的剑刃除了被引爆外还可以被活化为仆从战斗   武器底基为最低级的Glass Shank  不过AW本身会削减召唤上限并提高更高的伤害/攻速/移速增益并随着技能等级提高给与更多召唤上限
 
 
-
-
 <strong>杂项</strong>
 
 1. 筛选器再升级 定制项目更多 <strong> [官网链接](https://www.pathofexile.com/forum/view-thread/2771031)</strong>
@@ -72,20 +66,10 @@ Cluster Jewel</strong>
 2. MAP系统改进  现在MAP界面能显示具体征服者的进度  VAAL区域 神庙等内容也获得调整 
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 59#         楼主| 发表于 2017-5-5 01:23
-
 
 
  本帖最后由 妹控使徒 于 2020-2-26 01:51 编辑 
@@ -167,9 +151,6 @@ Cluster Jewel</strong>
 [吸取机制](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38313291&amp;ptid=1478318)
 
 
-
-
-
 过去版本的更新贴丢到这儿做个总结   以后我不开新更新贴了      就把这儿做成唯一专楼    每个版本都开个贴让人流分散了
 
 不过你坛有折叠/隐藏功能就最好
@@ -191,45 +172,13 @@ Cluster Jewel</strong>
 [2.0 Awakening](http://bbs.saraba1st.com/2b/thread-1111444-1-1.html)</strong>
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 2#       发表于 2017-2-17 00:58
 
 
-
-
 尼玛，感觉很炸裂？几个赛季没玩了
-
-
-
-
-
 
 
 -----
@@ -238,14 +187,7 @@ Cluster Jewel</strong>
 ##### 3#       发表于 2017-2-17 02:34
 
 
-
-
 And Diablo 3 gets a Necromancer.﻿
-
-
-
-
-
 
 
 -----
@@ -254,14 +196,7 @@ And Diablo 3 gets a Necromancer.﻿
 ##### 4#       发表于 2017-2-17 08:44
 
 
-
-
 尼玛，它怎么做到一次加那么多内容？！
-
-
-
-
-
 
 
 -----
@@ -270,21 +205,13 @@ And Diablo 3 gets a Necromancer.﻿
 ##### 5#       发表于 2017-2-17 09:26
 
 
-
-
 这可如何是好。。是先国际服玩3.0还是先玩switch呢<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  永远的访客  
 ##### 6#       发表于 2017-2-17 09:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35237770&amp;ptid=1478318" target="_blank">grasszyf 发表于 2017-2-17 08:44</a>
@@ -299,16 +226,10 @@ And Diablo 3 gets a Necromancer.﻿
 倒是chris说6-10出完只是ggg决定加速poe的发展（比以前更有钱有人了），出完后poe还有一大堆想扩充的内容
 
 
-
-
-
-
-
 -----
 
 ####  大主教伊瑞尔  
 ##### 7#       发表于 2017-2-17 09:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35236936&amp;ptid=1478318" target="_blank">λ2000 发表于 2017-2-17 02:34</a>
@@ -317,16 +238,10 @@ And Diablo 3 gets a Necromancer.﻿</blockquote>
 Ancient Ancients too!
 
 
-
-
-
-
-
 -----
 
 ####  nemo_mxc  
 ##### 8#       发表于 2017-2-17 09:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35238288&amp;ptid=1478318" target="_blank">大主教伊瑞尔 发表于 2017-2-17 09:34</a>
@@ -335,33 +250,20 @@ Ancient Ancients too!</blockquote>
 明明是叫primal ancients。。
 
 
-
-
-
-
-
 -----
 
 ####  otjuly  
 ##### 9#       发表于 2017-2-17 09:59
 
 
-
-
 电脑坏了，碧池赛季中途A了<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">。
 一下子加这么多章<img src="https://static.saraba1st.com/image/smiley/zdl/157.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  skranger  
 ##### 10#       发表于 2017-2-17 09:59
-
 
 
 <blockquote>永远的访客 发表于 2017-2-17 09:26
@@ -372,25 +274,13 @@ Ancient Ancients too!</blockquote>
 现在能看出来Atlas里面加的新图基本都用在后五章了……现在是先加速把剧情做出来，感觉后面还会remake
 
 
-
-
-
-
-
 -----
 
 ####  savagealexander  
 ##### 11#       发表于 2017-2-17 10:04
 
 
-
-
 国服什么时候更新啊 之前刷了很久
-
-
-
-
-
 
 
 -----
@@ -399,14 +289,7 @@ Ancient Ancients too!</blockquote>
 ##### 12#       发表于 2017-2-17 10:33
 
 
-
-
 太好了，企鹅会同步更新吗？
-
-
-
-
-
 
 
 -----
@@ -415,21 +298,13 @@ Ancient Ancients too!</blockquote>
 ##### 13#       发表于 2017-2-17 10:37
 
 
-
-
 这破游戏最大的问题就是连不上更新服务器无法更新.... 国服还能开不
-
-
-
-
-
 
 
 -----
 
 ####  永远的访客  
 ##### 14#       发表于 2017-2-17 10:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35238526&amp;ptid=1478318" target="_blank">skranger 发表于 2017-2-17 09:59</a>
@@ -443,25 +318,13 @@ Ancient Ancients too!</blockquote>
 -是否专门买新电脑再议
 
 
-
-
-
-
-
 -----
 
 ####  Sehnsucht  
 ##### 15#       发表于 2017-2-17 11:05
 
 
-
-
 laji youxi buru d3 :)
-
-
-
-
-
 
 
 -----
@@ -470,14 +333,7 @@ laji youxi buru d3 :)
 ##### 16#       发表于 2017-2-17 11:17
 
 
-
-
 国服什么时候开放注册……
-
-
-
-
-
 
 
 -----
@@ -486,16 +342,9 @@ laji youxi buru d3 :)
 ##### 17#       发表于 2017-2-17 12:00
 
 
-
-
 3.0企鹅好像会同步，到时候应该会大改，遗产能搞到最好，搞不到损失应该也不大
 
 —— 来自 HUAWEI NXT-AL10, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
-
-
-
-
-
 
 
 -----
@@ -504,15 +353,9 @@ laji youxi buru d3 :)
 ##### 18#       发表于 2017-2-17 12:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=35239546&amp;amp;ptid=1478318" target="_blank">Sopp 发表于 2017-2-17 11:17</a>
 国服什么时候开放注册……</blockquote>
 游戏过不了审，只能维持现状
-
-
-
-
-
 
 
 -----
@@ -521,14 +364,7 @@ laji youxi buru d3 :)
 ##### 19#       发表于 2017-2-17 12:22
 
 
-
-
 惊了，GGG黑魂玩多了，之前A4是只是怪的风格像，这回直接把车轮滚滚抄来了
-
-
-
-
-
 
 
 -----
@@ -537,16 +373,10 @@ laji youxi buru d3 :)
 ##### 20#       发表于 2017-2-17 12:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35240515&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-2-17 12:20</a>
 
 游戏过不了审，只能维持现状</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/185.gif" referrerpolicy="no-referrer">那多发点号呀…………
-
-
-
-
-
 
 
 -----
@@ -555,16 +385,10 @@ laji youxi buru d3 :)
 ##### 21#       发表于 2017-2-17 12:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35240556&amp;ptid=1478318" target="_blank">sjptc888 发表于 2017-2-17 12:22</a>
 
 惊了，GGG黑魂玩多了，之前A4是只是怪的风格像，这回直接把车轮滚滚抄来了 ...</blockquote>
 车轮怪多少年前的剑风就出来了，再早不清楚，谁抄谁都不知道
-
-
-
-
-
 
 
 -----
@@ -573,15 +397,9 @@ laji youxi buru d3 :)
 ##### 22#       发表于 2017-2-17 12:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=35240556&amp;amp;ptid=1478318" target="_blank">sjptc888 发表于 2017-2-17 12:22</a>
 惊了，GGG黑魂玩多了，之前A4是只是怪的风格像，这回直接把车轮滚滚抄来了 ...</blockquote>
 也没准是哪个土豪花钱做的
-
-
-
-
-
 
 
 -----
@@ -590,14 +408,7 @@ laji youxi buru d3 :)
 ##### 23#       发表于 2017-2-17 13:05
 
 
-
-
 讲真头几张图还真是像小隆德啊
-
-
-
-
-
 
 
 -----
@@ -606,14 +417,7 @@ laji youxi buru d3 :)
 ##### 24#       发表于 2017-2-17 14:13
 
 
-
-
 本来就是号称要做到A10，现在一口气放出6章，你P这是要完的节奏了
-
-
-
-
-
 
 
 -----
@@ -622,16 +426,10 @@ laji youxi buru d3 :)
 ##### 25#       发表于 2017-2-17 15:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35240515&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-2-17 12:20</a>
 
 游戏过不了审，只能维持现状</blockquote>
 腾讯老爷的游戏居然也过不了么？
-
-
-
-
-
 
 
 -----
@@ -640,16 +438,10 @@ laji youxi buru d3 :)
 ##### 26#       发表于 2017-2-17 15:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35240556&amp;ptid=1478318" target="_blank">sjptc888 发表于 2017-2-17 12:22</a>
 
 惊了，GGG黑魂玩多了，之前A4是只是怪的风格像，这回直接把车轮滚滚抄来了 ...</blockquote>
 不要慌，大家都是抄的剑风(大概) <img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -658,16 +450,9 @@ laji youxi buru d3 :)
 ##### 27#       发表于 2017-2-17 16:28
 
 
-
-
 国服都不过审，企鹅会让他撑3.0？
 
 你们觉得可能吗？
-
-
-
-
-
 
 
 -----
@@ -676,22 +461,15 @@ laji youxi buru d3 :)
 ##### 28#       发表于 2017-2-17 16:33
 
 
-
 <blockquote>大主教伊瑞尔 发表于 2017-2-17 15:47
 不要慌，大家都是抄的剑风(大概)</blockquote>
 归根结底抄的是中世纪异端审判庭的黑历史
-
-
-
-
-
 
 
 -----
 
 ####  Inquisitor  
 ##### 29#       发表于 2017-2-17 16:38
-
 
 
 <blockquote>引用第2楼λ2000于2017-02-17 02:34发表的  :
@@ -705,16 +483,10 @@ nec啥时候出？
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.21) 
 
 
-
-
-
-
-
 -----
 
 ####  大主教伊瑞尔  
 ##### 30#       发表于 2017-2-17 16:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35243827&amp;ptid=1478318" target="_blank">Inquisitor 发表于 2017-2-17 16:38</a>
@@ -728,26 +500,15 @@ nec啥时候出？</blockquote>
 所以大概12月31日开(PTR)吧<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 31#       发表于 2017-2-17 18:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=35242657&amp;amp;ptid=1478318" target="_blank">h是不行的 发表于 2017-2-17 15:08</a>
 腾讯老爷的游戏居然也过不了么？</blockquote>
 毕竟国产游戏和引进的游戏审核的标准不同
-
-
-
-
-
 
 
 -----
@@ -756,14 +517,7 @@ nec啥时候出？</blockquote>
 ##### 32#         楼主| 发表于 2017-3-4 11:40
 
 
-
-
 2.6已更新   
-
-
-
-
-
 
 
 -----
@@ -772,14 +526,7 @@ nec啥时候出？</blockquote>
 ##### 33#       发表于 2017-3-4 12:09
 
 
-
-
 许多旧暗金大幅加强挺好的，估计会多出不少套路，但这议会弓的改动是几个意思，这一刀直接砍废了吧<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -788,19 +535,11 @@ nec啥时候出？</blockquote>
 ##### 34#         楼主| 发表于 2017-3-26 18:11
 
 
-
-
 下周左右会放出召唤大改消息 据说是重制级的改动
-
 
 
 另外这个BD很清真很有趣
 [https://www.pathofexile.com/forum/view-thread/1867166](https://www.pathofexile.com/forum/view-thread/1867166)
-
-
-
-
-
 
 
 -----
@@ -809,21 +548,13 @@ nec啥时候出？</blockquote>
 ##### 35#       发表于 2017-3-27 20:12
 
 
-
-
 今個聯盟試玩了一下千力毒刀殭屍, 感覺殭屍攻擊力很高, 打劇情時已經可以秒王了......穿召喚腰把藥水給殭屍殭屍簡直健步如飛......唯一問題是一萬多血對殭屍來說還是不太夠XD
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 36#         楼主| 发表于 2017-3-30 19:38
-
 
 
  本帖最后由 妹控使徒 于 2017-3-30 20:30 编辑 
@@ -837,17 +568,10 @@ $('swf_sqX').innerHTML=AC_FL_RunContent('width', '550', 'height', '400', 'allowN
 &lt;embed height="415" width="544" quality="high" allowfullscreen="true" type="application/x-shockwave-flash" src="//static.hdslb.com/miniloader.swf" flashvars="aid=9471374&amp;page=1" pluginspage="//www.adobe.com/shockwave/download/download.cgi?P1_Prod_Version=ShockwaveFlash"&gt;&lt;/embed&gt;
 
 
-
-
-
-
-
-
 -----
 
 ####  DawnGuardian  
 ##### 37#       发表于 2017-3-30 20:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35541885&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2017-3-30 19:38</a>
@@ -856,25 +580,13 @@ A5怪模型演示  原有风格上很多纳粹风   画风无论是美工还
 看不到图，不过之前看3.0预告时真心被奥瑞亚教廷卫队方阵的造型帅到<img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 38#         楼主| 发表于 2017-4-1 07:56
 
 
-
-
 召唤情报丢过来了
-
-
-
-
-
 
 
 -----
@@ -883,21 +595,13 @@ A5怪模型演示  原有风格上很多纳粹风   画风无论是美工还
 ##### 39#         楼主| 发表于 2017-4-20 21:55
 
 
-
-
 海王BOSS战视频放出   演出效果相比以前的BOSS强了很多   3.0在美工方面下功夫的猜测看样子是对的
-
-
-
-
-
 
 
 -----
 
 ####  工口兔  
 ##### 40#       发表于 2017-4-21 04:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35243946&amp;ptid=1478318" target="_blank">大主教伊瑞尔 发表于 2017-2-17 16:47</a>
@@ -911,26 +615,15 @@ nec已经close beta了，并且没有保密协议所以有些拿到key的主播�
 乐观点差不多第三季ptr第四季live
 
 
-
-
-
-
-
 -----
 
 ####  强袭目田  
 ##### 41#       发表于 2017-4-21 13:01
 
 
-
 <blockquote>妹控使徒 发表于 2017-4-20 21:55
 海王BOSS战视频放出   演出效果相比以前的BOSS强了很多   3.0在美工方面下功夫的猜测看样子是对的 ...</blockquote>
 那个海王身上的美人鱼应该是nessa吧，好像ziggyd说过
-
-
-
-
-
 
 
 -----
@@ -939,14 +632,7 @@ nec已经close beta了，并且没有保密协议所以有些拿到key的主播�
 ##### 42#       发表于 2017-4-21 15:34
 
 
-
-
 这游戏啥时候能测完
-
-
-
-
-
 
 
 -----
@@ -955,21 +641,13 @@ nec已经close beta了，并且没有保密协议所以有些拿到key的主播�
 ##### 43#       发表于 2017-4-21 17:44
 
 
-
-
 喷了，看视频这大螃蟹的潮汐就是地形限制但没伤害，让你躲落雷不方便而已？
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 44#         楼主| 发表于 2017-4-21 18:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35729693&amp;ptid=1478318" target="_blank">曹植 发表于 2017-4-21 15:34</a>
@@ -981,16 +659,10 @@ nec已经close beta了，并且没有保密协议所以有些拿到key的主播�
 上世界服官网直接下载开就能玩
 
 
-
-
-
-
-
 -----
 
 ####  帕林马哲理  
 ##### 45#       发表于 2017-4-21 18:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35730683&amp;ptid=1478318" target="_blank">やまもとゆたか 发表于 2017-4-21 10:44</a>
@@ -1001,16 +673,10 @@ nec已经close beta了，并且没有保密协议所以有些拿到key的主播�
 另外就是不知道GGG改不改血build。
 
 
-
-
-
-
-
 -----
 
 ####  やまもとゆたか  
 ##### 46#       发表于 2017-4-21 18:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35730998&amp;ptid=1478318" target="_blank">帕林马哲理 发表于 2017-4-21 18:39</a>
@@ -1021,16 +687,10 @@ nec已经close beta了，并且没有保密协议所以有些拿到key的主播�
 这boss现在这套技能摆明不给近战活路，和T15的米诺陶一样。
 
 
-
-
-
-
-
 -----
 
 ####  帕林马哲理  
 ##### 47#       发表于 2017-4-21 18:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35731061&amp;ptid=1478318" target="_blank">やまもとゆたか 发表于 2017-4-21 11:49</a>
@@ -1039,16 +699,10 @@ nec已经close beta了，并且没有保密协议所以有些拿到key的主播�
 T16吧。主要是护甲这个属性太蠢。确实应该大改。
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 48#         楼主| 发表于 2017-4-25 10:27
-
 
 
  本帖最后由 妹控使徒 于 2017-4-25 10:34 编辑 
@@ -1062,33 +716,19 @@ T16吧。主要是护甲这个属性太蠢。确实应该大改。
 <img src="http://i.imgur.com/DVlrfYR.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  genki  
 ##### 49#       发表于 2017-4-25 12:16
 
 
-
-
 企鹅这发号真心不明白，之前要安利几个朋友玩，嫌英文看着费劲要去企鹅服，我说去就去吧我陪着，然后一搜淘宝<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  永远的访客  
 ##### 50#       发表于 2017-4-25 12:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35760249&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2017-4-25 10:27</a>
@@ -1102,16 +742,10 @@ T16吧。主要是护甲这个属性太蠢。确实应该大改。
 反正类似当初第4章，不准备玩beta，直接出正式版换电脑
 
 
-
-
-
-
-
 -----
 
 ####  poegeek  
 ##### 51#       发表于 2017-4-25 12:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35761446&amp;ptid=1478318" target="_blank">genki 发表于 2017-4-25 12:16</a>
@@ -1122,16 +756,10 @@ T16吧。主要是护甲这个属性太蠢。确实应该大改。
 拿淘宝上的二道贩子黑企鹅根本没道理。
 
 
-
-
-
-
-
 -----
 
 ####  genki  
 ##### 52#       发表于 2017-4-25 12:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35761544&amp;ptid=1478318" target="_blank">poegeek 发表于 2017-4-25 12:25</a>
@@ -1144,16 +772,10 @@ T16吧。主要是护甲这个属性太蠢。确实应该大改。
 淘宝什么价大家都看的到，有朋友听说有国服说要玩国服然后到处都找不到号还不许我黑一黑企鹅的发号途径了？
 
 
-
-
-
-
-
 -----
 
 ####  poegeek  
 ##### 53#       发表于 2017-4-25 12:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35761654&amp;ptid=1478318" target="_blank">genki 发表于 2017-4-25 12:35</a>
@@ -1166,17 +788,10 @@ T16吧。主要是护甲这个属性太蠢。确实应该大改。
 能随时随地无条件拿号的那叫公测啊
 
 
-
-
-
-
-
 -----
 
 ####  mamamiya  
 ##### 54#       发表于 2017-4-25 12:44
-
-
 
 
 有能力还是玩国际服好，国服太坑，别的不说，tp搞得开裂隙和箱子就卡，太影响体验了，再加上反人类的市集搜东西更是要人命
@@ -1184,16 +799,10 @@ T16吧。主要是护甲这个属性太蠢。确实应该大改。
 —— 来自 HUAWEI NXT-AL10, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  genki  
 ##### 55#       发表于 2017-4-25 12:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35761740&amp;ptid=1478318" target="_blank">poegeek 发表于 2017-4-25 12:43</a>
@@ -1204,17 +813,10 @@ T16吧。主要是护甲这个属性太蠢。确实应该大改。
 我就是描述一下这件事嘛，我玩国际服的又不关心企鹅服是个什么状态，朋友想玩才去看了眼企鹅服结果发现只有淘宝能买到KEY<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  poegeek  
 ##### 56#       发表于 2017-4-25 13:08
-
-
 
 
 顺手转了一下，3张新图，“魂味儿”
@@ -1225,16 +827,10 @@ T16吧。主要是护甲这个属性太蠢。确实应该大改。
 <img src="http://i2.muimg.com/567571/59cee0a57bff5966.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 57#         楼主| 发表于 2017-5-2 19:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35762006&amp;ptid=1478318" target="_blank">poegeek 发表于 2017-4-25 13:08</a>
@@ -1246,32 +842,19 @@ T16吧。主要是护甲这个属性太蠢。确实应该大改。
 前瞻信息单独集合编辑了下      以后新消息都直接丢前面了
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 58#         楼主| 发表于 2017-5-3 18:35
 
 
-
-
 DOT调整 P2部分添加并翻译完毕
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 59#         楼主| 发表于 2017-5-5 01:23
-
 
 
  本帖最后由 妹控使徒 于 2020-2-26 01:51 编辑 
@@ -1353,9 +936,6 @@ DOT调整 P2部分添加并翻译完毕
 [吸取机制](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38313291&amp;ptid=1478318)
 
 
-
-
-
 过去版本的更新贴丢到这儿做个总结   以后我不开新更新贴了      就把这儿做成唯一专楼    每个版本都开个贴让人流分散了
 
 不过你坛有折叠/隐藏功能就最好
@@ -1377,37 +957,10 @@ DOT调整 P2部分添加并翻译完毕
 [2.0 Awakening](http://bbs.saraba1st.com/2b/thread-1111444-1-1.html)</strong>
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  帕林马哲理  
 ##### 60#       发表于 2017-5-5 02:09
-
-
 
 
 我太蠢，感觉机制这样改下去，GGG得出本手册我才能玩这游戏了。
@@ -1415,16 +968,10 @@ DOT调整 P2部分添加并翻译完毕
 感觉他们的理念就比较排斥我这种弱智玩家，毕竟正统硬派ARPG。
 
 
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 61#       发表于 2017-5-5 02:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35854142&amp;ptid=1478318" target="_blank">帕林马哲理 发表于 2017-5-5 02:09</a>
@@ -1435,32 +982,19 @@ DOT调整 P2部分添加并翻译完毕
 poe的路子和魂一样，高门槛赶走一堆想尝鲜的，剩下的用户粘度全是高到可怕，因为没其他游戏可以提供更骨灰的玩法了
 
 
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 62#       发表于 2017-5-5 02:37
 
 
-
-
 旋风改机制这个太好了，裂隙版本转转转停下就死好几次因为一块小石头死于非命……
-
-
-
-
-
 
 
 -----
 
 ####  森田美位子  
 ##### 63#       发表于 2017-5-5 02:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35854142&amp;ptid=1478318" target="_blank">帕林马哲理 发表于 2017-5-5 02:09</a>
@@ -1471,16 +1005,10 @@ poe的路子和魂一样，高门槛赶走一堆想尝鲜的，剩下的用户�
 这游戏现在千头万绪要留意的东西确实越来越多了，每个赛季还在增加新的机制，而且这些赛季的机制基本都进了游戏核心。就算某个赛季你没玩，也需要跟进信息，否则隔一段时间再玩，会发现好多东西都不知道是干嘛的
 
 
-
-
-
-
-
 -----
 
 ####  DeathHare  
 ##### 64#       发表于 2017-5-5 02:55
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这个游戏我觉得就像DOTA2一样, 死忠就这么些, 有零星的新人加入但是绝对成不了新血液, 每次一更新一大堆改版新增一大堆机制, 并且都是无教程无提示的, 都是要新手自己去翻各种资料, 玩个游戏之前先拿两天时间查资料, 玩法机制都越来越多越来越复杂。
@@ -1488,16 +1016,10 @@ poe的路子和魂一样，高门槛赶走一堆想尝鲜的，剩下的用户�
 当时玩了半个月左右吧, 后来实在玩不下去了.. <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer"> 反正这个游戏我不认为会有新人跟进, 只希望把死忠留好就行了.
 
 
-
-
-
-
-
 -----
 
 ####  帕林马哲理  
 ##### 65#       发表于 2017-5-5 03:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35854248&amp;ptid=1478318" target="_blank">DeathHare 发表于 2017-5-4 19:55</a>
@@ -1508,16 +1030,10 @@ dota2还好啊，新人还是有一些的，虽然上手也很困难，不过乐
 PoE这我所有玩过的朋友都弃了，唉。
 
 
-
-
-
-
-
 -----
 
 ####  DeathHare  
 ##### 66#       发表于 2017-5-5 03:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35854267&amp;ptid=1478318" target="_blank">帕林马哲理 发表于 2017-5-5 03:06</a>
@@ -1531,18 +1047,10 @@ PoE这我所有玩过的朋友都弃了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">POE我个人觉得是需要想的考虑到的东西太多, 到最后就会比较烦躁了..
 
 
-
-
-
-
-
-
-
 -----
 
 ####  mac2000  
 ##### 67#       发表于 2017-5-5 03:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35854272&amp;ptid=1478318" target="_blank">DeathHare 发表于 2017-5-5 03:07</a>
@@ -1553,16 +1061,10 @@ PoE这我所有玩过的朋友都弃了 ...</blockquote>
 而且那些机制 再怎么也没有复杂到大学数学那种难度不是
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 68#       发表于 2017-5-5 03:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35854248&amp;ptid=1478318" target="_blank">DeathHare 发表于 2017-5-5 02:55</a>
@@ -1573,16 +1075,10 @@ PoE这我所有玩过的朋友都弃了 ...</blockquote>
 最极端的一个例子，2.1赛季有人发帖说找到了怎么利用大师来做+3的武器，问题是2.1赛季离发布大师的那个赛季已经过去了1年多。这时候GGG的老大跑出来说：“我们当初设计大师，就是想让你们这么玩的，你们居然过了这么久才发现” blahblahblah
 
 
-
-
-
-
-
 -----
 
 ####  DeathHare  
 ##### 69#       发表于 2017-5-5 03:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35854289&amp;ptid=1478318" target="_blank">mac2000 发表于 2017-5-5 03:17</a>
@@ -1597,17 +1093,10 @@ PoE这我所有玩过的朋友都弃了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer"> 游戏是好游戏.. 可惜玩不动了..
 
 
-
-
-
-
-
 -----
 
 ####  marine  
 ##### 70#       发表于 2017-5-5 04:32
-
-
 
 
 POE过一遍剧情流程大概要多少小时？新入坑有什么该注意的么？
@@ -1616,17 +1105,10 @@ POE过一遍剧情流程大概要多少小时？新入坑有什么该注意的�
 ----发送自 [samsung SM-G930F,Android 7.0](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  Wiksy  
 ##### 71#       发表于 2017-5-5 05:18
-
-
 
 
 其实现在POE其实你不要求出个能刷75+地图的人的话并不用考虑那么多数值之类的东西吧
@@ -1634,16 +1116,10 @@ POE过一遍剧情流程大概要多少小时？新入坑有什么该注意的�
 这些伤害优化之类的东西都是到了后面地图等级高了才开始有价值
 
 
-
-
-
-
-
 -----
 
 ####  永远的访客  
 ##### 72#       发表于 2017-5-5 07:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35854407&amp;ptid=1478318" target="_blank">marine 发表于 2017-5-5 04:32</a>
@@ -1663,17 +1139,10 @@ POE过一遍剧情流程大概要多少小时？新入坑有什么该注意的�
 新入坑随便怎么打都行，就是注意做好些思想准备比如第一次看到技能盘要眼花
 
 
-
-
-
-
-
 -----
 
 ####  marine  
 ##### 73#       发表于 2017-5-5 10:57
-
-
 
 
 好的。另外有比较好的资料站么？
@@ -1682,16 +1151,10 @@ POE过一遍剧情流程大概要多少小时？新入坑有什么该注意的�
 ----发送自 [samsung SM-G930F,Android 7.0](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  poegeek  
 ##### 74#       发表于 2017-5-5 11:10
-
 
 
  本帖最后由 poegeek 于 2017-5-5 11:13 编辑 
@@ -1711,16 +1174,10 @@ Dota2这种pvp游戏不懂机制实打实的被人虐啊，而且还一堆老鸟
 要最大化效率刷个图前戏2分钟，刷十分钟完了又要一套前戏，仓库整理还要搞半天，收日常耗材又要时间，非常繁琐
 
 
-
-
-
-
-
 -----
 
 ####  poegeek  
 ##### 75#       发表于 2017-5-5 11:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35856345&amp;ptid=1478318" target="_blank">marine 发表于 2017-5-5 10:57</a>
@@ -1741,16 +1198,10 @@ Dota2这种pvp游戏不懂机制实打实的被人虐啊，而且还一堆老鸟
 国内比较全的资料站大概就是173了，不过有不少私货和错漏
 
 
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 76#       发表于 2017-5-5 13:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35854407&amp;ptid=1478318" target="_blank">marine 发表于 2017-5-5 04:32</a>
@@ -1765,25 +1216,13 @@ POE过一遍剧情流程大概要多少小时？新入坑有什么该注意的�
 难度1几乎没有需要注意的，一身蓝装全堆伤害拿个顺手的清怪技能就能过
 
 
-
-
-
-
-
 -----
 
 ####  n.dante  
 ##### 77#       发表于 2017-5-6 00:57
 
 
-
-
 点开技能树吓坏了。感觉光读一遍就够几个晚上的时间了。我要死了 
-
-
-
-
-
 
 
 -----
@@ -1792,16 +1231,10 @@ POE过一遍剧情流程大概要多少小时？新入坑有什么该注意的�
 ##### 78#       发表于 2017-5-6 01:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35864139&amp;ptid=1478318" target="_blank">n.dante 发表于 2017-5-6 00:57</a>
 
 点开技能树吓坏了。感觉光读一遍就够几个晚上的时间了。我要死了</blockquote>
 随便管网论坛抄个号称cheap的build先刷起来，刷到瓶颈了就会有点认识了，比自己瞎几把点好
-
-
-
-
-
 
 
 -----
@@ -1810,15 +1243,9 @@ POE过一遍剧情流程大概要多少小时？新入坑有什么该注意的�
 ##### 79#       发表于 2017-5-6 02:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35864139&amp;ptid=1478318" target="_blank">n.dante 发表于 2017-5-6 00:57</a>
 点开技能树吓坏了。感觉光读一遍就够几个晚上的时间了。我要死了</blockquote>
 没必要读一遍，按照喜欢的风格选个职业先玩玩，天赋树看出生点附近就可以，每个职业出门区域的点都很直观的，按自己预设的风格去点就ok。例如你ranger起手想玩弓，出门就走投射物那条线。第一个号慢慢玩过剧情还是可以的，过剧情到m难度干湖开始farm，基本上就上手了。
-
-
-
-
-
 
 
 -----
@@ -1827,23 +1254,15 @@ POE过一遍剧情流程大概要多少小时？新入坑有什么该注意的�
 ##### 80#       发表于 2017-5-6 04:29
 
 
-
-
 好的多谢。选了个shadow，应该是个刺客职业，先练起来。
 
 POE是不是主动技能都靠镶宝石，天赋树全是被动效果啊
-
-
-
-
-
 
 
 -----
 
 ####  大主教伊瑞尔  
 ##### 81#       发表于 2017-5-6 07:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35864750&amp;ptid=1478318" target="_blank">n.dante 发表于 2017-5-6 04:29</a>
@@ -1854,17 +1273,10 @@ POE是不是主动技能都靠镶宝石，天赋树全是被动效果 ...</block
 对，天赋全是被动效果。主动技能都是石头，另外还有support石头，插在和主动石头连接的孔可以增强该主动技能。
 
 
-
-
-
-
-
 -----
 
 ####  史莱姆KING  
 ##### 82#       发表于 2017-5-6 09:00
-
-
 
 
 下载了个国际服的POE 2.6
@@ -1880,16 +1292,10 @@ POE是不是主动技能都靠镶宝石，天赋树全是被动效果 ...</block
 还有，回城卷是哪个，身上物品栏太少，也没法及时回城太蛋疼
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 83#       发表于 2017-5-6 09:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=35865417&amp;amp;ptid=1478318" target="_blank">史莱姆KING 发表于 2017-5-6 09:00</a>
@@ -1900,33 +1306,19 @@ POE是不是主动技能都靠镶宝石，天赋树全是被动效果 ...</block
 身上就那么点，储藏箱可以克金买页数
 
 
-
-
-
-
-
 -----
 
 ####  伊卡  
 ##### 84#       发表于 2017-5-6 10:31
 
 
-
-
 B站有开荒speedrun视频，可以学打法和一些基本常识，比如什么东西要捡什么东西不用捡。
-
-
-
-
-
 
 
 -----
 
 ####  tsz  
 ##### 85#       发表于 2017-5-6 10:34
-
-
 
 
 fbb什么时候死
@@ -1942,16 +1334,10 @@ fbb图腾练级跟其他没法比
 好吧 都是国服不开2.6的锅
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 86#       发表于 2017-5-6 10:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=35866059&amp;amp;ptid=1478318" target="_blank">tsz 发表于 2017-5-6 10:34</a>
@@ -1963,16 +1349,10 @@ fbb图腾练级跟其他没法比
 prophecy之后就没玩了，fbb是什么啊
 
 
-
-
-
-
-
 -----
 
 ####  tsz  
 ##### 87#       发表于 2017-5-6 11:20
-
 
 
  本帖最后由 tsz 于 2017-5-6 11:31 编辑 
@@ -2005,16 +1385,10 @@ prophecy之后就没玩了，fbb是什么啊</blockquote>
 沉迷FEH的脸骑士
 
 
-
-
-
-
-
 -----
 
 ####  大主教伊瑞尔  
 ##### 88#       发表于 2017-5-6 11:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35866146&amp;ptid=1478318" target="_blank">sandro 发表于 2017-5-6 10:43</a>
@@ -2026,16 +1400,10 @@ fbb是泥潭poe群新人+大佬，入坑两个月就搞出咸鱼装备就能刷�
 目前是泥潭poe群吉祥物<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 89#       发表于 2017-5-6 15:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35865417&amp;ptid=1478318" target="_blank">史莱姆KING 发表于 2017-5-6 09:00</a>
@@ -2053,32 +1421,19 @@ fbb是泥潭poe群新人+大佬，入坑两个月就搞出咸鱼装备就能刷�
 弄一个itemfilter。你就能知道什么值得捡，什么不值得。speedrun就先别看了，老鸟玩起来很多细节，新手无法理解
 
 
-
-
-
-
-
 -----
 
 ####  liangjiami2  
 ##### 90#       发表于 2017-5-6 20:51
 
 
-
-
 好吧，国服有能玩的渠道么
-
-
-
-
-
 
 
 -----
 
 ####  ShadowEye  
 ##### 91#       发表于 2017-5-6 21:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35865417&amp;ptid=1478318" target="_blank">史莱姆KING 发表于 2017-5-6 09:00</a>
@@ -2090,16 +1445,10 @@ fbb是泥潭poe群新人+大佬，入坑两个月就搞出咸鱼装备就能刷�
 游戏不鼓励你把所有东西（哪怕他们看起来都是金灿灿的）都捡回家，后期的map有进入限制也是这个意思，poe专治各类强迫症
 
 
-
-
-
-
-
 -----
 
 ####  史莱姆KING  
 ##### 92#       发表于 2017-5-6 22:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35868763&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-5-6 15:33</a>
@@ -2114,16 +1463,10 @@ fbb是泥潭poe群新人+大佬，入坑两个月就搞出咸鱼装备就能刷�
 （满屏英文看着有点头疼0 0）
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 93#       发表于 2017-5-6 22:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35871820&amp;ptid=1478318" target="_blank">史莱姆KING 发表于 2017-5-6 22:24</a>
@@ -2135,16 +1478,10 @@ fbb是泥潭poe群新人+大佬，入坑两个月就搞出咸鱼装备就能刷�
 满屏英文如果是指 itemfilter 的那个帖子？具体内容你可以先不用看，直接下成品就行 NeverSink's Filter - Regular
 
 
-
-
-
-
-
 -----
 
 ####  星尘的记忆  
 ##### 94#       发表于 2017-5-6 23:12
-
 
 
  本帖最后由 星尘的记忆 于 2017-5-6 23:14 编辑 
@@ -2155,16 +1492,10 @@ fbb是泥潭poe群新人+大佬，入坑两个月就搞出咸鱼装备就能刷�
 我应该怎么挑选装备，我应该怎么洗装备，哪些装备是有用的？我应该怎么获得其他BUILD的装备...  有教学帖子讲这些吗？
 
 
-
-
-
-
-
 -----
 
 ####  poegeek  
 ##### 95#       发表于 2017-5-6 23:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35872284&amp;ptid=1478318" target="_blank">星尘的记忆 发表于 2017-5-6 23:12</a>
@@ -2179,16 +1510,10 @@ fbb是泥潭poe群新人+大佬，入坑两个月就搞出咸鱼装备就能刷�
 当然最好的办法还是加群<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 96#       发表于 2017-5-6 23:53
-
 
 
  本帖最后由 森田美位子 于 2017-5-6 23:55 编辑 
@@ -2208,16 +1533,10 @@ fbb是泥潭poe群新人+大佬，入坑两个月就搞出咸鱼装备就能刷�
 关于你的build，如果英语阅读没有障碍的话，可以参考这个帖子：[https://www.pathofexile.com/forum/view-thread/1809564](https://www.pathofexile.com/forum/view-thread/1809564)。当然我也没仔细看，玩多了自己有自己的想法，他的帖子写着beginner，应该还是可以参考的
 
 
-
-
-
-
-
 -----
 
 ####  DeathHare  
 ##### 97#       发表于 2017-5-6 23:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35872631&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-5-6 23:53</a>
@@ -2229,16 +1548,10 @@ fbb是泥潭poe群新人+大佬，入坑两个月就搞出咸鱼装备就能刷�
 噢噢噢, 这个帖子 啊， 好东西. 当时我玩火圈时候就是看着这个帖子的. 
 
 
-
-
-
-
-
 -----
 
 ####  阿拉贡  
 ##### 98#       发表于 2017-5-7 02:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35866032&amp;ptid=1478318" target="_blank">伊卡 发表于 2017-5-6 10:31</a>
@@ -2247,16 +1560,10 @@ B站有开荒speedrun视频，可以学打法和一些基本常识，比如什�
 球个地址
 
 
-
-
-
-
-
 -----
 
 ####  大主教伊瑞尔  
 ##### 99#       发表于 2017-5-7 05:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35873496&amp;ptid=1478318" target="_blank">阿拉贡 发表于 2017-5-7 02:08</a>
@@ -2264,21 +1571,13 @@ B站有开荒speedrun视频，可以学打法和一些基本常识，比如什�
 球个地址</blockquote>
 
 
-
 不过这是竞赛跑法，参考一下就好
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 100#         楼主| 发表于 2017-5-7 12:58
-
-
 
 
 不用太考虑什么机制多复杂什么的      缺生存就加HP 防御等  缺输出就加伤害       知道这些足够打到够高的级别 大概80级左右
@@ -2296,24 +1595,15 @@ B站有开荒speedrun视频，可以学打法和一些基本常识，比如什�
 这些资料我找空做个集合丢2L
 
 
-
 另外最好是英语玩    有些词汇在汉化补丁时可能会有误差  比如increase和more的区别    physical attack damage leech  这种是否翻译全了   而很多资料网站也是英文的
 
 其实英文词汇不算很多 尤其是不看剧情的情况下    基本靠在线翻译就能解决的程度
-
-
-
-
-
-
 
 
 -----
 
 ####  阿贡  
 ##### 101#       发表于 2017-5-7 14:28
-
-
 
 
 act 10 ....
@@ -2329,16 +1619,10 @@ arpg扛把子，要脸。遗憾没有那么多时间耍。
 有机会在入坑吧，泪奔。
 
 
-
-
-
-
-
 -----
 
 ####  crazymarky  
 ##### 102#       发表于 2017-5-7 15:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35871106&amp;ptid=1478318" target="_blank">ShadowEye 发表于 2017-5-6 21:02</a>
@@ -2347,32 +1631,19 @@ arpg扛把子，要脸。遗憾没有那么多时间耍。
 爆出回城宝石之后简直爽到
 
 
-
-
-
-
-
 -----
 
 ####  83913536  
 ##### 103#       发表于 2017-5-7 15:34
 
 
-
-
 GPD WIN带得动POE吗，不知道用手柄映射操作怎么样
-
-
-
-
-
 
 
 -----
 
 ####  森田美位子  
 ##### 104#       发表于 2017-5-7 16:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35877133&amp;ptid=1478318" target="_blank">83913536 发表于 2017-5-7 15:34</a>
@@ -2388,16 +1659,10 @@ GPD WIN看配置应该够呛，而且这游戏优化的不太好
 2.摇杆/十字键没法完美模拟鼠标的操作。举个例子来说，你先点人物的左侧，让他向左移动。然后再对右侧远方的某个特定目标使用技能。用摇杆/十字键的效果肯定不如鼠标，这种操作还不少
 
 
-
-
-
-
-
 -----
 
 ####  83913536  
 ##### 105#       发表于 2017-5-7 16:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35877408&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-5-7 16:20</a>
@@ -2411,16 +1676,10 @@ GPD WIN看配置应该够呛，而且这游戏优化的不太好
 我用steam手柄试过恐怖黎明，摇杆映射移动，触摸板映射鼠标指针，普通手柄就没法这么玩了
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 106#       发表于 2017-5-7 17:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35877630&amp;ptid=1478318" target="_blank">83913536 发表于 2017-5-7 16:47</a>
@@ -2435,32 +1694,19 @@ POE的操作偏old school，举个例子来说，好多近战技能如果你不�
 你可以看一下99楼那个视频，2:25左右开始的，一群普通的怪+一个暗金怪那段。非要说，手柄也能实现，但是效果肯定不会太好就是了
 
 
-
-
-
-
-
 -----
 
 ####  大主教伊瑞尔  
 ##### 107#       发表于 2017-5-7 18:00
 
 
-
-
 手柄玩个弓应该还可以。不过手柄捡东西想想都觉得可怕
-
-
-
-
-
 
 
 -----
 
 ####  sandro  
 ##### 108#       发表于 2017-5-7 18:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=35877945&amp;amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-5-7 17:29</a>
@@ -2470,16 +1716,10 @@ POE的操作 ...</blockquote>
 那感觉锄大地和旋风还挺适合手柄玩
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 109#       发表于 2017-5-7 18:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35878331&amp;ptid=1478318" target="_blank">sandro 发表于 2017-5-7 18:17</a>
@@ -2488,16 +1728,10 @@ POE的操作 ...</blockquote>
 ST应该也不错，能用手柄的肯定是不少，如果仅仅以能玩的标准来说的话
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 110#       发表于 2017-5-7 18:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=35866495&amp;amp;ptid=1478318" target="_blank">tsz 发表于 2017-5-6 11:20</a>
@@ -2509,16 +1743,10 @@ https://www.pathofexile.com/forum/view-thread/1744618
 我貌似在群里，感觉好久没上了。。。
 
 
-
-
-
-
-
 -----
 
 ####  sosgame67  
 ##### 111#       发表于 2017-5-7 19:40
-
 
 
  本帖最后由 sosgame67 于 2017-5-7 19:41 编辑 
@@ -2526,16 +1754,10 @@ https://www.pathofexile.com/forum/view-thread/1744618
 新入坑国际服玩家，照着推荐攻略练了个便宜的先祖战士酋长图腾蛮，安逸是安逸了但是玩着犯困是什么鬼<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  帕林马哲理  
 ##### 112#       发表于 2017-5-7 19:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35879084&amp;ptid=1478318" target="_blank">sosgame67 发表于 2017-5-7 12:40</a>
@@ -2546,16 +1768,10 @@ https://www.pathofexile.com/forum/view-thread/1744618
 交易是GGG故意这样的，按照他们的说法 交易行为应该被惩罚，虽然我不太同意就是了。
 
 
-
-
-
-
-
 -----
 
 ####  sosgame67  
 ##### 113#       发表于 2017-5-7 19:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35879113&amp;ptid=1478318" target="_blank">帕林马哲理 发表于 2017-5-7 19:43</a>
@@ -2566,16 +1782,10 @@ https://www.pathofexile.com/forum/view-thread/1744618
 感谢回复，我还指望ggg3.0能出个正式交易市场来着（没6l没白袍真烦..）虽然图腾玩下来感觉没啥绑定暗金不过都到3难度了身上一个5l都没还真是挺微妙的<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  poegeek  
 ##### 114#       发表于 2017-5-7 20:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35879084&amp;ptid=1478318" target="_blank">sosgame67 发表于 2017-5-7 19:40</a>
@@ -2586,16 +1796,10 @@ https://www.pathofexile.com/forum/view-thread/1744618
 5L和60多级的双手武器直接去poe.trade上搜一下就行了，现在赛季末期东西这种初级装备应该都是便宜到飞起的。或者你直接加群让群里还在玩的人支援你一下。
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 115#       发表于 2017-5-8 01:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35879113&amp;ptid=1478318" target="_blank">帕林马哲理 发表于 2017-5-7 19:43</a>
@@ -2608,32 +1812,19 @@ https://www.pathofexile.com/forum/view-thread/1744618
 就我所知道的，有个至少从2.0开始每次support pack都买最贵一档的某人，上赛季因为RMT买EX被永久封号。其他比如给工作室打下手的散兵游勇，被封号的也有好几个
 
 
-
-
-
-
-
 -----
 
 ####  poegeek  
 ##### 116#       发表于 2017-5-8 01:22
 
 
-
-
 和rmt没关系，就是增加交易成本，尽量避免玩游戏不如蹲AH而已。
-
-
-
-
-
 
 
 -----
 
 ####  otjuly  
 ##### 117#       发表于 2017-5-12 23:38
-
 
 
 [https://www.pathofexile.com/forum/view-thread/1897990](https://www.pathofexile.com/forum/view-thread/1897990)
@@ -2647,25 +1838,13 @@ https://www.pathofexile.com/forum/view-thread/1744618
 <img src="https://web.poecdn.com/public/news/2017-05-12/Tiles2.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  wesleygjr  
 ##### 118#       发表于 2017-5-13 10:08
 
 
-
-
 这瞎眼的小地图终于要改了。
-
-
-
-
-
 
 
 -----
@@ -2674,23 +1853,16 @@ https://www.pathofexile.com/forum/view-thread/1744618
 ##### 119#       发表于 2017-5-13 17:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35877133&amp;ptid=1478318" target="_blank">83913536 发表于 2017-5-7 15:34</a>
 
 GPD WIN带得动POE吗，不知道用手柄映射操作怎么样</blockquote>
 GGG似乎是说3.0时要同时上xbox，不过玩法会有改动，账号市场也不互通
 
 
-
-
-
-
-
 -----
 
 ####  永远的访客  
 ##### 120#       发表于 2017-5-13 19:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35932759&amp;ptid=1478318" target="_blank">otjuly 发表于 2017-5-12 23:38</a>
@@ -2701,16 +1873,10 @@ https://www.pathofexile.com/forum/view-thread/1897990
 目测新sarn是进竞技场，左下角还有个小路，不知道是不是通到迷宫区域
 
 
-
-
-
-
-
 -----
 
 ####  帕林马哲理  
 ##### 121#       发表于 2017-5-18 18:37
-
 
 
  本帖最后由 帕林马哲理 于 2017-5-18 17:55 编辑 
@@ -2720,16 +1886,10 @@ https://www.pathofexile.com/forum/view-thread/1897990
 ES大削弱，不能用vp，值减少了40%。然后life依然不加强。GGG是觉得游戏还是太简单了。
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 122#       发表于 2017-5-18 18:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=35987330&amp;amp;ptid=1478318" target="_blank">帕林马哲理 发表于 2017-5-18 18:37</a>
@@ -2739,16 +1899,10 @@ ES大削弱，不能用vp，值减少了40%。然后li ...</blockquote>
 卧槽，这玩个jb，有其他弥补的机制吗
 
 
-
-
-
-
-
 -----
 
 ####  帕林马哲理  
 ##### 123#       发表于 2017-5-18 18:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35987351&amp;ptid=1478318" target="_blank">sandro 发表于 2017-5-18 11:39</a>
@@ -2757,16 +1911,10 @@ ES大削弱，不能用vp，值减少了40%。然后li ...</blockquote>
 不知道，我估计如果玩家大下降可能会有。不过不是玩的人越来越多了么。看来大家都喜欢被秒啊。
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 124#         楼主| 发表于 2017-5-18 18:59
-
 
 
  本帖最后由 妹控使徒 于 2017-5-18 19:08 编辑 
@@ -2791,17 +1939,10 @@ ES太強了 目前來說   
 另外VP被砍的感觉不太恰当  与其砍VP不如强化吸取  或者说增多吸取效率的天赋    或者说.................GGG认为的吸取应该有多少效率?
 
 
-
-
-
-
-
 -----
 
 ####  poegeek  
 ##### 125#       发表于 2017-5-18 19:16
-
-
 
 
 这个版本说打boss有开荒day2就去操shaper的，说升级有开荒ssf hc 15天100级的，有做完前戏18小时100级的，对于足够熟悉机制的人来说就是脸滚一切没难度啊有啥问题。
@@ -2810,17 +1951,10 @@ ES太強了 目前來說   
 3.0的万神殿引入大量的防御向buff，volatile和反伤重做计划中，改版效果如何起码也等beta出了玩上游戏再说。
 
 
-
-
-
-
-
 -----
 
 ####  wesleygjr  
 ##### 126#       发表于 2017-5-18 22:04
-
-
 
 
 有些问题一直在那里好多年，GGG就是不改，比如ES的问题，每个版本还逐渐加强，最后一刀砍死。
@@ -2828,16 +1962,10 @@ ES太強了 目前來說   
 就好比一个膨胀的气球，明明可以慢慢放气回到正常值，GGG非要继续吹气一直吹爆，蠢得不行。
 
 
-
-
-
-
-
 -----
 
 ####  poegeek  
 ##### 127#       发表于 2017-5-18 22:17
-
 
 
  本帖最后由 poegeek 于 2017-5-18 22:25 编辑 
@@ -2849,16 +1977,10 @@ ES太強了 目前來說   
 es之前一直是用装备获取高难度当门槛的高投资高回报定位，es装备的泛滥是2.4精华开始，2.5就砍了一刀es精华没拦住，2.6是3.0赶不出来群魔乱舞放开high的最后狂欢赛季，总共也就2个赛季半年多，哪来的好多年一直吹气。再往前几个赛季还所有人都在说path of life呢。不要因为ggg小patch更新勤就产生时间错觉啊。
 
 
-
-
-
-
-
 -----
 
 ####  wesleygjr  
 ##### 128#       发表于 2017-5-18 22:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35989253&amp;ptid=1478318" target="_blank">poegeek 发表于 2017-5-18 22:17</a>
@@ -2869,16 +1991,10 @@ es之前一直是用装备获取高难度当门槛的高投资高回报定位，
 所以在已知这个优势的情况下，为什么要加入精华，空向，VP换位这些继续扩大差距的改动？
 
 
-
-
-
-
-
 -----
 
 ####  やまもとゆたか  
 ##### 129#       发表于 2017-5-19 00:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35987330&amp;ptid=1478318" target="_blank">帕林马哲理 发表于 2017-5-18 18:37</a>
@@ -2889,17 +2005,10 @@ ES大削弱，不能用vp，值减少了40%。然后li ...</blockquote>
 喷了，这平衡改动real暴雪真传。以后又是一堆改动之前的legacy ES装备卖上天价了。
 
 
-
-
-
-
-
 -----
 
 ####  やまもとゆたか  
 ##### 130#       发表于 2017-5-19 00:02
-
-
 
 
 Late May/Early June: The Fall of Oriath Beta begins. 
@@ -2908,16 +2017,10 @@ Late May/Early June: The Fall of Oriath Beta begins.
 我看这是要咕咕了。
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 131#       发表于 2017-5-19 01:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35989329&amp;ptid=1478318" target="_blank">wesleygjr 发表于 2017-5-18 22:27</a>
@@ -2930,16 +2033,10 @@ Late May/Early June: The Fall of Oriath Beta begins.
 如果以KH被砍为起点的话，2.0前老实说真用不着考虑ES build。EB + Cloak of Defiance 的组合防御手段足够应付当时的伤害了，而且还便宜的多
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 132#       发表于 2017-5-19 01:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35989253&amp;ptid=1478318" target="_blank">poegeek 发表于 2017-5-18 22:17</a>
@@ -2948,16 +2045,10 @@ es之前一直是用装备获取高难度当门槛的高投资高回报定位，
 我日。。。prophecy玩了个es的coc还没打完就afk了，没享受到es的巅峰期啊
 
 
-
-
-
-
-
 -----
 
 ####  wesleygjr  
 ##### 133#       发表于 2017-5-19 01:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35990395&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-5-19 01:05</a>
@@ -2970,17 +2061,10 @@ es之前一直是用装备获取高难度当门槛的高投资高回报定位，
 数值上的优势就是一种潜力，随着装备获取难度越来越低，ES装普及是必然的。非要等到10个build9个ES才动手显然不是什么聪明的做法。
 
 
-
-
-
-
-
 -----
 
 ####  ikaika  
 ##### 134#       发表于 2017-5-19 01:24
-
-
 
 
 vp和空向都是小问题，言必称空向的是贴吧rmt而已，这东西对es build只是锦上添花罢了。
@@ -2988,16 +2072,10 @@ vp和空向都是小问题，言必称空向的是贴吧rmt而已，这东西对
 而从根本上拉开es与life阶级鸿沟的改变在我看来就两点，职业进阶、新暗金瓶。
 
 
-
-
-
-
-
 -----
 
 ####  Wiksy  
 ##### 135#       发表于 2017-5-19 02:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35987540&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2017-5-18 18:59</a>
@@ -3013,16 +2091,10 @@ Armor和Evasion的装甲基础值都加强了，所以堆这两个的人至少�
 其实光看这个也没用，还不知道整个万神殿里面有什么其他的防御能力，还有3.0重新调整后敌人的攻击力的高低。说不定6K HP新版本里也够混了
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 136#       发表于 2017-5-19 02:17
-
 
 
  本帖最后由 森田美位子 于 2017-5-19 02:20 编辑 
@@ -3040,32 +2112,19 @@ GGG发过一些赛季的统计数据，比如1.3 HC用的最多的暗金衣服�
 ES build是在数值上有优势，但是"装备获取难度越来越低“，你告诉我精华赛季之前怎么普及ES装？你觉得是精华点出来容易，还是纯chaos洗容易？
 
 
-
-
-
-
-
 -----
 
 ####  mac2000  
 ##### 137#       发表于 2017-5-19 02:29
 
 
-
-
 反正是beta 怎么改有什么所谓<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  wesleygjr  
 ##### 138#       发表于 2017-5-19 02:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35990607&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-5-19 02:17</a>
@@ -3077,16 +2136,10 @@ low life不要太流行？我一定进错世界线了。blood magic作为keyston
 精华这个东西，影响没你想的那么大，装备普及是必然趋势，farm速度越来越快，加入近洗装行列的玩家也越来越多，金装暗金，没啥是不会贬值的。就算没有精华，900ES的衣服也会比2年前便宜好几倍。
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 139#       发表于 2017-5-19 03:28
-
 
 
  本帖最后由 森田美位子 于 2017-5-19 03:37 编辑 
@@ -3101,16 +2154,10 @@ low life不要太流行？我一定进错世界线了。blood magic作为keyston
 你说精华的影响没我想象的那么大，支持你说法的证据呢？新T1词缀从2.0添加，到精华赛季前，一共4个赛季，我没见过一件1000+ ES的衣服，精华赛季我至少看到了2件。800+ ES 非6L赛季末只要几十c，也是这两个赛季的事。3个精华点出900+ ES的概率高，还是3个chaos点出来的概率高？
 
 
-
-
-
-
-
 -----
 
 ####  wesleygjr  
 ##### 140#       发表于 2017-5-19 03:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35990743&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-5-19 03:28</a>
@@ -3128,16 +2175,10 @@ low life不要太流行？我一定进错世界线了。blood magic作为keyston
 精华出高ES的确实几率远远高于chaos，但是产量也很有限，产生3个T7精华的同时可能会产生300个chaos。
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 141#       发表于 2017-5-19 04:33
-
 
 
  本帖最后由 森田美位子 于 2017-5-19 04:41 编辑 
@@ -3150,16 +2191,10 @@ low life不要太流行？我一定进错世界线了。blood magic作为keyston
 那我换个问法，2.0~2.3 4个赛季，在赛季区出过几件986？
 
 
-
-
-
-
-
 -----
 
 ####  wesleygjr  
 ##### 142#       发表于 2017-5-19 04:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35990821&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-5-19 04:33</a>
@@ -3172,16 +2207,10 @@ low life不要太流行？我一定进错世界线了。blood magic作为keyston
 如果你玩的旋风斩就更可笑了，2.5刚刚通过武器范围加来的AOE，2.6又给砍没了，TM耍猴玩呢。
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 143#       发表于 2017-5-19 05:14
-
 
 
  本帖最后由 森田美位子 于 2017-5-19 05:18 编辑 
@@ -3196,17 +2225,10 @@ low life不要太流行？我一定进错世界线了。blood magic作为keyston
 这么多版本玩过来了，GGG对平衡性的调整早就该习惯了吧。那么多IMBA一时的机制或者build被砍之后，可玩的依然很多，甚至还能增加。你看虫瓶出来的当赛季就挨了两刀，废了2个build。结果下赛季冒个更OP的。一个ES而已
 
 
-
-
-
-
-
 -----
 
 ####  永远的访客  
 ##### 144#       发表于 2017-5-19 07:04
-
-
 
 
 万神殿模式还没出信息，没必要提前纠结新版本的难度曲线
@@ -3217,27 +2239,15 @@ low life不要太流行？我一定进错世界线了。blood magic作为keyston
 至于各种nerf造成物价波动...在囤了几十页垃圾后已经准备新开荒只玩SSF了，物价是个鬼。
 
 
-
-
-
-
-
 -----
 
 ####  mamamiya  
 ##### 145#       发表于 2017-5-19 07:24
 
 
-
-
 什么时候砍药渣
 
 —— 来自 HUAWEI NXT-AL10, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
-
-
-
-
-
 
 
 -----
@@ -3246,12 +2256,9 @@ low life不要太流行？我一定进错世界线了。blood magic作为keyston
 ##### 146#         楼主| 发表于 2017-5-22 23:21
 
 
-
-
 更新了个 A7剧情向视频
 
 [thgame_biliplay{,=av}10742326{,=page}1{,=playmode}1{,=swf}2{,=bililv}1{,=auto}2][/thgame_biliplay]
-
 
 
 以后这类非重要演示视频我都不丢1L了   略占面积而且信息量不够高    如果要丢1L除了主宣传视频或者极其重要视频外我都用连接而不是内嵌视频
@@ -3262,17 +2269,10 @@ low life不要太流行？我一定进错世界线了。blood magic作为keyston
 话说虫瓶哥的炮塔BD没太热门起来?
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 147#         楼主| 发表于 2017-5-23 00:58
-
-
 
 
 LAG下  才补了ES/LIFE调整那个开发日志    那个2W5 ES还有高DPS的句子竟然是官方文章里的.......................... Rory这货真是麻烦
@@ -3286,16 +2286,10 @@ LAG下  才补了ES/LIFE调整那个开发日志    那个2W5 ES还有高DPS
 这货说话感觉真的是没玩过游戏随便乱开口   你游终于也出现这种人了
 
 
-
-
-
-
-
 -----
 
 ####  poegeek  
 ##### 148#       发表于 2017-5-23 01:40
-
 
 
  本帖最后由 poegeek 于 2017-5-23 02:07 编辑 
@@ -3314,30 +2308,15 @@ LAG下  才补了ES/LIFE调整那个开发日志    那个2W5 ES还有高DPS
 那句话说的本来就是极少数神装的极限build。开发后台能看到的数据和大部分人认知里的“常识”是两回事。
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  otjuly  
 ##### 149#       发表于 2017-5-24 01:46
 
 
-
 [https://www.pathofexile.com/forum/view-thread/1901674](https://www.pathofexile.com/forum/view-thread/1901674)
 
 白富美也要改了，算是强化吧。被动加了不少向其他职业看齐的特性，点了别人的起点还立即送两点被动点数。
-
-
-
-
-
 
 
 -----
@@ -3346,22 +2325,13 @@ LAG下  才补了ES/LIFE调整那个开发日志    那个2W5 ES还有高DPS
 ##### 150#       发表于 2017-5-24 08:49
 
 
-
-
 es原本就无脑强，我2.4的时候血堆到七八千还被秒，一怒之下氪金换了一个esbd，突然发现自己以前简直跟傻逼没区别
-
-
-
-
-
 
 
 -----
 
 ####  能代  
 ##### 151#       发表于 2017-5-24 10:42
-
-
 
 
 那个....有几个问题..
@@ -3373,16 +2343,10 @@ es原本就无脑强，我2.4的时候血堆到七八千还被秒，一怒之下
 干湖是哪里..M干湖是第三难度的那里?
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 152#         楼主| 发表于 2017-5-24 11:11
-
 
 
 <blockquote>能代 发表于 2017-5-24 10:42
@@ -3395,16 +2359,10 @@ es原本就无脑强，我2.4的时候血堆到七八千还被秒，一怒之下
 参与讨论的基本都是世界服玩家。而且台服更新一向更晚 没有什么独特新消息自然没在乎的
 
 
-
-
-
-
-
 -----
 
 ####  能代  
 ##### 153#       发表于 2017-5-24 14:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36041182&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2017-5-24 11:11</a>
@@ -3420,32 +2378,19 @@ es原本就无脑强，我2.4的时候血堆到七八千还被秒，一怒之下
 我现在开着SOLO模式打第二难度中
 
 
-
-
-
-
-
 -----
 
 ####  山本ゆたか  
 ##### 154#       发表于 2017-5-24 15:42
 
 
-
-
 看你们大佬讨论es build真带劲啊，我不管什么号的build都控制在2ex之内。
-
-
-
-
-
 
 
 -----
 
 ####  山本ゆたか  
 ##### 155#       发表于 2017-5-24 15:43
-
 
 
 <blockquote>能代 发表于 2017-5-24 14:20
@@ -3457,16 +2402,10 @@ es原本就无脑强，我2.4的时候血堆到七八千还被秒，一怒之下
 act 4杀voll那个地图。其实没必要farm，70级build不要很奇葩的话一般装备通关足够了。
 
 
-
-
-
-
-
 -----
 
 ####  能代  
 ##### 156#       发表于 2017-5-24 16:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36043886&amp;ptid=1478318" target="_blank">山本ゆたか 发表于 2017-5-24 15:43</a>
@@ -3477,16 +2416,10 @@ act 4杀voll那个地图。其实没必要farm，70级build不要很奇葩的话
 另一边是个矿坑..要让你日死VOLL后再开门的地方?
 
 
-
-
-
-
-
 -----
 
 ####  山本ゆたか  
 ##### 157#       发表于 2017-5-24 16:08
-
 
 
 <blockquote>能代 发表于 2017-5-24 16:06
@@ -3496,16 +2429,10 @@ act 4杀voll那个地图。其实没必要farm，70级build不要很奇葩的话
 yes，打完直接进矿坑不必farm。
 
 
-
-
-
-
-
 -----
 
 ####  能代  
 ##### 158#       发表于 2017-5-24 16:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36044184&amp;ptid=1478318" target="_blank">山本ゆたか 发表于 2017-5-24 16:08</a>
@@ -3516,16 +2443,10 @@ yes，打完直接进矿坑不必farm。</blockquote>
 然后当着召唤带着小弟满处乱跑ing.
 
 
-
-
-
-
-
 -----
 
 ####  山本ゆたか  
 ##### 159#       发表于 2017-5-24 19:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36044286&amp;ptid=1478318" target="_blank">能代 发表于 2017-5-24 16:16</a>
@@ -3536,16 +2457,10 @@ yes，打完直接进矿坑不必farm。</blockquote>
 我觉得马上开3.0了不急着体验end game的话你就等等。
 
 
-
-
-
-
-
 -----
 
 ####  能代  
 ##### 160#       发表于 2017-5-24 20:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36045895&amp;ptid=1478318" target="_blank">山本ゆたか 发表于 2017-5-24 19:11</a>
@@ -3563,16 +2478,10 @@ yes，打完直接进矿坑不必farm。</blockquote>
 话说有能让台服玩家进群讨论的群么?
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 161#       发表于 2017-5-24 21:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36046351&amp;ptid=1478318" target="_blank">能代 发表于 2017-5-24 20:14</a>
@@ -3585,16 +2494,10 @@ yes，打完直接进矿坑不必farm。</blockquote>
 只是讨论的话，玩哪个区没什么区别。你玩台服多数人不玩台服的结果，无非就是你在练级的时候，别人没法赞助你一点练级装而已
 
 
-
-
-
-
-
 -----
 
 ####  能代  
 ##### 162#       发表于 2017-5-24 23:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36046868&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-5-24 21:25</a>
@@ -3603,16 +2506,10 @@ yes，打完直接进矿坑不必farm。</blockquote>
  SOLOmode
 
 
-
-
-
-
-
 -----
 
 ####  帕林马哲理  
 ##### 163#       发表于 2017-5-25 01:48
-
 
 
 [https://www.pathofexile.com/forum/view-thread/1901957/page/1](https://www.pathofexile.com/forum/view-thread/1901957/page/1)
@@ -3622,16 +2519,10 @@ yes，打完直接进矿坑不必farm。</blockquote>
 搞笑的是，这个服务只在7个国家有效，另外220+个国家只会显示Sorry! Twitch Prime isn’t available in your country，就连GGG在的新西兰都不支持（欧洲亚洲大洋洲的都不支持）。这种活动不知道是怎么想出来的。
 
 
-
-
-
-
-
 -----
 
 ####  大主教伊瑞尔  
 ##### 164#       发表于 2017-5-25 01:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36043875&amp;ptid=1478318" target="_blank">山本ゆたか 发表于 2017-5-24 15:42</a>
@@ -3643,16 +2534,10 @@ yes，打完直接进矿坑不必farm。</blockquote>
 而且成本上es更大的优势是装备成本和天赋成本可以灵活分配，es%来源太多了。
 
 
-
-
-
-
-
 -----
 
 ####  poegeek  
 ##### 165#       发表于 2017-5-25 02:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36048452&amp;ptid=1478318" target="_blank">帕林马哲理 发表于 2017-5-25 01:48</a>
@@ -3663,16 +2548,10 @@ https://www.pathofexile.com/forum/view-thread/1901957/page/1
 你不会以为ggg能左右twicth的营销策略吧……真是太看得起ggg了
 
 
-
-
-
-
-
 -----
 
 ####  帕林马哲理  
 ##### 166#       发表于 2017-5-25 02:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36048499&amp;ptid=1478318" target="_blank">poegeek 发表于 2017-5-24 19:04</a>
@@ -3681,16 +2560,10 @@ https://www.pathofexile.com/forum/view-thread/1901957/page/1
 Twitch那肯定是左右不了啊，amazon旗下的，我只是想他们应该换个方式？我倒是不在意MTX。
 
 
-
-
-
-
-
 -----
 
 ####  poegeek  
 ##### 167#       发表于 2017-5-25 02:15
-
 
 
  本帖最后由 poegeek 于 2017-5-25 02:17 编辑 
@@ -3704,17 +2577,10 @@ Twitch那肯定是左右不了啊，amazon旗下的，我只是想他们应该�
 说是之后beta的时候会补一个送mtx和外星人硬件的活动
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 168#         楼主| 发表于 2017-6-8 02:15
-
-
 
 
 CBT即将开启提示  最近懒癌严重   
@@ -3722,16 +2588,10 @@ CBT即将开启提示  最近懒癌严重   
 有一堆不大不小的新消息  不过都没更     接下来估计也会看看twitch直播   如果有天赋模拟器或者不错的暗金更新等就丢出来  总之视情况更新
 
 
-
-
-
-
-
 -----
 
 ####  帕林马哲理  
 ##### 169#       发表于 2017-6-8 04:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36190261&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2017-6-7 19:15</a>
@@ -3742,16 +2602,10 @@ CBT即将开启提示  最近懒癌严重   
 似乎没有新的暗金啊，我看manifesto说的。
 
 
-
-
-
-
-
 -----
 
 ####  poegeek  
 ##### 170#       发表于 2017-6-8 06:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36190514&amp;ptid=1478318" target="_blank">帕林马哲理 发表于 2017-6-8 04:47</a>
@@ -3760,25 +2614,13 @@ CBT即将开启提示  最近懒癌严重   
 beta不开新暗金
 
 
-
-
-
-
-
 -----
 
 ####  永远的访客  
 ##### 171#       发表于 2017-6-8 06:36
 
 
-
-
 希望大家先不要在本帖剧透剧情，目前官方只是放了一些boss的资料
-
-
-
-
-
 
 
 -----
@@ -3787,13 +2629,7 @@ beta不开新暗金
 ##### 172#       发表于 2017-6-8 07:56
 
 
-
 A5小怪的投射物居然能撞到墙壁后反弹，将来有了GMP感觉会很恐怖
-
-
-
-
-
 
 
 -----
@@ -3802,15 +2638,9 @@ A5小怪的投射物居然能撞到墙壁后反弹，将来有了GMP感觉会很
 ##### 173#       发表于 2017-6-8 13:38
 
 
-
  本帖最后由 Wiksy 于 2017-6-8 13:43 编辑 
 
 A3的三个下水道居然全都合并成一个了，刚进去还以为走错路……
-
-
-
-
-
 
 
 -----
@@ -3819,20 +2649,12 @@ A3的三个下水道居然全都合并成一个了，刚进去还以为走错路
 ##### 174#         楼主| 发表于 2017-6-10 22:51
 
 
-
-
 嗜血不再让主技能无法触发流血    
 
 元素扩散石取消了伤害惩罚   也就是改回去了
 
 
-
 魔女门口的天赋树有一定量调整    多了一个新圆盘 但只有一个支线  另外2个支线还不知道塞什么
-
-
-
-
-
 
 
 -----
@@ -3841,14 +2663,7 @@ A3的三个下水道居然全都合并成一个了，刚进去还以为走错路
 ##### 175#       发表于 2017-6-11 16:34
 
 
-
-
 这次3.0感觉画面大加强？不过选人界面scion没原来好看了。。。
-
-
-
-
-
 
 
 -----
@@ -3857,16 +2672,10 @@ A3的三个下水道居然全都合并成一个了，刚进去还以为走错路
 ##### 176#       发表于 2017-6-11 17:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36227726&amp;ptid=1478318" target="_blank">sandro 发表于 2017-6-11 09:34</a>
 
 这次3.0感觉画面大加强？不过选人界面scion没原来好看了。。。</blockquote>
 我还特地建了个Scion测试了下，还是很弱，加上人又变丑了，真的没人玩了。
-
-
-
-
-
 
 
 -----
@@ -3875,14 +2684,7 @@ A3的三个下水道居然全都合并成一个了，刚进去还以为走错路
 ##### 177#       发表于 2017-6-11 18:11
 
 
-
-
 怎么npc美容，白富美反而变丑了，搞不懂啊
-
-
-
-
-
 
 
 -----
@@ -3891,24 +2693,16 @@ A3的三个下水道居然全都合并成一个了，刚进去还以为走错路
 ##### 178#         楼主| 发表于 2017-6-11 18:21
 
 
-
-
 白富美毕竟全家被屠 苦大仇深     
 
 
 话说这全系半吊子的进阶    看起来还行但实际上真正带来质变的很少       感觉有机会还是推倒重做更好  或者出第二个进阶  以三属性为核心的进阶  类似raider那种路线  一个属性一个大分支
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 179#         楼主| 发表于 2017-6-15 11:54
-
 
 
  本帖最后由 妹控使徒 于 2017-6-15 11:56 编辑 
@@ -3924,25 +2718,13 @@ A3的三个下水道居然全都合并成一个了，刚进去还以为走错路
 顺带更新了新一批发布的辅助石  虽然还是一堆more  不过至少这下有足够后备可以换着用了 而不是比较固定的搭配
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 180#         楼主| 发表于 2017-6-21 11:02
 
 
-
-
 下周更新A8 以及官方出了个正式的众神系统介绍视频  不过没啥用   感觉1L的介绍更详细   视频只是大概说了这系统怎么入手  怎么解锁进阶功能
-
-
-
-
-
 
 
 -----
@@ -3951,21 +2733,13 @@ A3的三个下水道居然全都合并成一个了，刚进去还以为走错路
 ##### 181#       发表于 2017-6-21 12:08
 
 
-
-
 这周终于搞定新电脑了，但是正式版应该7月中期就来了，不到1个月时间真心懒得参加删档测了。
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 182#         楼主| 发表于 2017-6-29 14:23
-
 
 
  本帖最后由 妹控使徒 于 2017-6-29 14:28 编辑 
@@ -3980,20 +2754,13 @@ A3的三个下水道居然全都合并成一个了，刚进去还以为走错路
 新暗金和新主技能似乎都不会在CBT公布  这次CBT略保守................
 
 
-
 另 有无人清楚3.0 VAAL骷髅还剩下多少个   普通骷髅数量也大削的话   VAAL版估计也会砍
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 183#         楼主| 发表于 2017-6-30 14:13
-
 
 
  本帖最后由 妹控使徒 于 2017-6-30 14:19 编辑 
@@ -4013,16 +2780,10 @@ vile toxins要充分应用比想象的要困难      
 接下来可以考虑的手段就是药娘  诅咒中毒衣 刺客中毒手等暗金和进阶效果了           不是没有出路但限制还是略大
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 184#         楼主| 发表于 2017-7-4 15:46
-
 
 
  本帖最后由 妹控使徒 于 2017-7-4 15:49 编辑 
@@ -4036,33 +2797,19 @@ WIPE了  更新了A8和一些新石頭 旧石头也有调整
 <img src="http://i.imgur.com/qDbzC6z.jpg" referrerpolicy="no-referrer"> 
 
 
-
-
-
-
-
 -----
 
 ####  望月小号  
 ##### 185#       发表于 2017-7-4 19:53
 
 
-
-
 哇，这游戏好玩，我要充钱
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 186#         楼主| 发表于 2017-7-8 23:32
-
-
 
 
 色譜上限砍了    最多3個  
@@ -4073,33 +2820,19 @@ WIPE了  更新了A8和一些新石頭 旧石头也有调整
 是覺得以前多插后的劇變效果太猛了嗎   總之略不爽這限制     本身找3個以上來多開孔就不是易事   上限提到5感覺是合適的
 
 
-
-
-
-
-
 -----
 
 ####  qdxhs  
 ##### 187#       发表于 2017-7-9 23:51
 
 
-
-
 网络连接情况会改善吗……
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 188#         楼主| 发表于 2017-7-13 02:10
-
-
 
 
 公布了一个新技能 Storm Burst
@@ -4112,17 +2845,10 @@ channel系   持续施法不断射出电球   停止施法电球则爆炸  
 [thgame_biliplay{,=av}12135279{,=page}1{,=playmode}1{,=swf}2{,=bililv}1{,=auto}2][/thgame_biliplay]
 
 
-
-
-
-
-
 -----
 
 ####  yibabilun  
 ##### 189#       发表于 2017-7-14 04:08
-
-
 
 
 多年前打到act3就afk了，现在刚过act3又卡在普通难度升华迷宫了……
@@ -4131,16 +2857,10 @@ channel系   持续施法不断射出电球   停止施法电球则爆炸  
 想问问女巫有啥适合手残人士过普通难度的build……
 
 
-
-
-
-
-
 -----
 
 ####  madnesshare  
 ##### 190#       发表于 2017-7-14 06:45
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">这个游戏就是要么一直玩, 放几个月半年再玩, 感觉要炸了
@@ -4149,16 +2869,10 @@ channel系   持续施法不断射出电球   停止施法电球则爆炸  
 各种改变新增, 实在是太复杂了...而且就连原本的版本都不一定是否吃透了，后面再增加一些东西真就是头晕啊<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 191#       发表于 2017-7-14 11:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36572721&amp;ptid=1478318" target="_blank">yibabilun 发表于 2017-7-14 04:08</a>
@@ -4172,16 +2886,10 @@ channel系   持续施法不断射出电球   停止施法电球则爆炸  
 升华迷宫当前等级打不过可以先不打，将来再回头过就能简单不少。当然能较早的点出conflux，对练级帮助还是很大的
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 192#         楼主| 发表于 2017-7-14 21:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36572721&amp;ptid=1478318" target="_blank">yibabilun 发表于 2017-7-14 04:08</a>
@@ -4202,17 +2910,10 @@ ARC 自动锁定敌人  盲人也能玩  配合元素师进阶也可以
 或者传统召唤BD 或者srs召唤BD
 
 
-
-
-
-
-
 -----
 
 ####  cosx  
 ##### 193#       发表于 2017-7-14 21:49
-
-
 
 
 管他砍什么，勇士正火玩到赛季结束
@@ -4220,16 +2921,10 @@ ARC 自动锁定敌人  盲人也能玩  配合元素师进阶也可以
 [  -- 来自能订阅的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  yibabilun  
 ##### 194#       发表于 2017-7-15 20:39
-
 
 
  本帖最后由 yibabilun 于 2017-7-15 20:40 编辑 
@@ -4244,16 +2939,10 @@ ARC 自动锁定敌人  盲人也能玩  配合元素师进阶也可以
 flameblast图腾自行打怪我只需要躲确实不错。
 
 
-
-
-
-
-
 -----
 
 ####  yibabilun  
 ##### 195#       发表于 2017-7-16 11:30
-
 
 
  本帖最后由 yibabilun 于 2017-7-16 11:34 编辑 
@@ -4261,16 +2950,10 @@ flameblast图腾自行打怪我只需要躲确实不错。
 才确认双图腾下所有法术都没伤害只能靠图腾了……纯跑位还是有点无聊而且被围住了就略囧，不过输出是真心靠谱，升华迷宫的boss感觉嗷的就死了orz
 
 
-
-
-
-
-
 -----
 
 ####  yibabilun  
 ##### 196#       发表于 2017-7-16 11:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36581020&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2017-7-14 21:29</a>
@@ -4282,16 +2965,10 @@ POE好几个无脑技能都适合魔女起手</blockquote>
 ARC也试了，看起来连击挺爽，但是我手贱点了所有伤害转火伤所以输出不太能见人……也许应该堆击回用来回血？先这么打着吧，多谢指点。
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 197#         楼主| 发表于 2017-7-16 16:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36591746&amp;ptid=1478318" target="_blank">yibabilun 发表于 2017-7-16 11:33</a>
@@ -4302,20 +2979,13 @@ ARC也试了，看起来连击挺爽，但是我手贱点了所有伤害转火�
 求续航一般是法术连个leech
 
 
-
 火化是所有非火伤害50%转化为火伤并只能造成火伤      转化可以吃到2头的加成   但你这样的BD基本是伤害减半的效果   正常堆雷伤就行
-
-
-
-
-
 
 
 -----
 
 ####  森田美位子  
 ##### 198#       发表于 2017-7-16 19:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36591723&amp;ptid=1478318" target="_blank">yibabilun 发表于 2017-7-16 11:30</a>
@@ -4328,16 +2998,10 @@ ARC也试了，看起来连击挺爽，但是我手贱点了所有伤害转火�
 被围不用怕，最常用的脱逃办法是用flame dash，次选带一个quartz flask。lightning warp需要占用一个3L，不太推荐
 
 
-
-
-
-
-
 -----
 
 ####  poegeek  
 ##### 199#       发表于 2017-7-16 20:34
-
 
 
  本帖最后由 poegeek 于 2017-7-16 20:38 编辑 
@@ -4350,17 +3014,10 @@ ARC也试了，看起来连击挺爽，但是我手贱点了所有伤害转火�
 真正后期的flameblast图腾打boss战的全套操作是插图腾-》放orb of storm上诅咒加触发elemental overload-》扔vaal lightning trap-》站桩scorching ray减抗，还是非常手忙脚乱的。
 
 
-
-
-
-
-
 -----
 
 ####  yibabilun  
 ##### 200#       发表于 2017-7-18 07:33
-
-
 
 
 现在弄了三个法术都绑上图腾，感觉还行，普通难度升华也过了……就是这打完boss的宝箱感觉都一堆垃圾……最后boss战感觉地形好乱，确实只顾得上吃药了orz……
@@ -4369,16 +3026,10 @@ ARC也试了，看起来连击挺爽，但是我手贱点了所有伤害转火�
 3.0什么时候才能开？
 
 
-
-
-
-
-
 -----
 
 ####  永远的访客  
 ##### 201#       发表于 2017-7-18 08:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36607933&amp;ptid=1478318" target="_blank">yibabilun 发表于 2017-7-18 07:33</a>
@@ -4387,16 +3038,10 @@ ARC也试了，看起来连击挺爽，但是我手贱点了所有伤害转火�
 目前没有明确，但是之前提到应该是8月的头1周
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 202#         楼主| 发表于 2017-7-18 19:37
-
 
 
  本帖最后由 妹控使徒 于 2017-7-20 06:19 编辑 
@@ -4410,32 +3055,18 @@ channel  aoe   attack
 [thgame_biliplay{,=av}12314629{,=page}1{,=playmode}1{,=swf}2{,=bililv}1{,=auto}2][/thgame_biliplay]
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 203#         楼主| 发表于 2017-7-20 06:18
 
 
-
-
 先丢过来占个位  估计最迟中午前能审核好
-
 
 
 话说新PV来看   鸟人果然反水了
 <img src="http://i.imgur.com/JcxFGgy.jpg" referrerpolicy="no-referrer">
 <img src="http://i.imgur.com/rTXqxrC.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
@@ -4444,14 +3075,7 @@ channel  aoe   attack
 ##### 204#       发表于 2017-7-20 09:11
 
 
-
-
 Legacy league啥时候结束？league stone保留不？
-
-
-
-
-
 
 
 -----
@@ -4460,16 +3084,9 @@ Legacy league啥时候结束？league stone保留不？
 ##### 205#       发表于 2017-7-20 11:15
 
 
-
-
 居然这么快就能出了。还以为至少9月呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 周五开，可以玩爆了。
-
-
-
-
-
 
 
 -----
@@ -4478,14 +3095,7 @@ Legacy league啥时候结束？league stone保留不？
 ##### 206#       发表于 2017-7-20 11:42
 
 
-
-
 leaguestone全部会变成废品，最后爽爽吧。顺便fxxk the lab
-
-
-
-
-
 
 
 -----
@@ -4494,16 +3104,10 @@ leaguestone全部会变成废品，最后爽爽吧。顺便fxxk the lab
 ##### 207#       发表于 2017-7-23 07:51
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">刚发现原来STEAM上把国区墙了.. 幸好可以去官网下.
 
 
 话说当时不是说要增加中文语言吗.. 又跟TX大老爷有关系,没让出么...
-
-
-
-
-
 
 
 -----
@@ -4512,16 +3116,10 @@ leaguestone全部会变成废品，最后爽爽吧。顺便fxxk the lab
 ##### 208#       发表于 2017-7-23 13:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36629598&amp;ptid=1478318" target="_blank">innerflame 发表于 2017-7-20 09:11</a>
 
 Legacy league啥时候结束？league stone保留不？</blockquote>
 league stone不会进core，但是会在将来某个时间重开legacy league
-
-
-
-
-
 
 
 -----
@@ -4530,22 +3128,13 @@ league stone不会进core，但是会在将来某个时间重开legacy league
 ##### 209#       发表于 2017-7-24 17:35
 
 
-
-
 国际服现在用哪个汉化？
-
-
-
-
-
 
 
 -----
 
 ####  帕林马哲理  
 ##### 210#       发表于 2017-7-25 19:12
-
-
 
 
 GGG最近的动作每一个都在reddit跟官方论坛被狂喷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -4559,16 +3148,10 @@ GGG最近的动作每一个都在reddit跟官方论坛被狂喷<img src="https:/
 我现在怀疑是不是现在根本就没人在搞PC，全去做主机了？
 
 
-
-
-
-
-
 -----
 
 ####  leeskies  
 ##### 211#       发表于 2017-7-28 01:32
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/carton2017/123.png" referrerpolicy="no-referrer">好久没上国际服
@@ -4577,16 +3160,10 @@ GGG最近的动作每一个都在reddit跟官方论坛被狂喷<img src="https:/
 过路问下国际服几个月前说的自给自足模式（solo self-found）实装了吗？
 
 
-
-
-
-
-
 -----
 
 ####  帕林马哲理  
 ##### 212#       发表于 2017-7-28 02:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36707909&amp;ptid=1478318" target="_blank">leeskies 发表于 2017-7-27 18:32</a>
@@ -4600,25 +3177,13 @@ GGG最近的动作每一个都在reddit跟官方论坛被狂喷<img src="https:/
 但是SSF难度颇高，我是打不下去的。
 
 
-
-
-
-
-
 -----
 
 ####  星尘的记忆  
 ##### 213#       发表于 2017-8-1 20:35
 
 
-
-
 国服开BETA了，求开荒BD！
-
-
-
-
-
 
 
 -----
@@ -4627,14 +3192,7 @@ GGG最近的动作每一个都在reddit跟官方论坛被狂喷<img src="https:/
 ##### 214#       发表于 2017-8-2 10:06
 
 
-
-
 同求开荒bd，顺便球组织<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4643,14 +3201,7 @@ GGG最近的动作每一个都在reddit跟官方论坛被狂喷<img src="https:/
 ##### 215#       发表于 2017-8-2 12:46
 
 
-
-
 决定还是召唤开荒吧<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4659,24 +3210,16 @@ GGG最近的动作每一个都在reddit跟官方论坛被狂喷<img src="https:/
 ##### 216#         楼主| 发表于 2017-8-2 18:49
 
 
-
-
 3.0 path note已更新
 
 
 顺便预言议会调整  旧的议会暗金下放到预言任务线里    议会里放新的4个暗金   目前已曝光2个   效果各种强力
 
 
-
-
-
-
-
 -----
 
 ####  帕林马哲理  
 ##### 217#       发表于 2017-8-2 18:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36766693&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2017-8-2 11:49</a>
@@ -4688,25 +3231,13 @@ GGG最近的动作每一个都在reddit跟官方论坛被狂喷<img src="https:/
 唉，本来想RF totem开荒的，图腾血量直接给砍成一半了。感觉只能拿出最稳的火舌图腾了。
 
 
-
-
-
-
-
 -----
 
 ####  deatheye  
 ##### 218#       发表于 2017-8-2 19:21
 
 
-
-
 我拿到了公测资格了?不敢信啊
-
-
-
-
-
 
 
 -----
@@ -4715,13 +3246,7 @@ GGG最近的动作每一个都在reddit跟官方论坛被狂喷<img src="https:/
 ##### 219#       发表于 2017-8-2 21:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我也拿到公测资格了，求个少点鼠标按键的开荒BD
-
-
-
-
-
 
 
 -----
@@ -4730,14 +3255,7 @@ GGG最近的动作每一个都在reddit跟官方论坛被狂喷<img src="https:/
 ##### 220#       发表于 2017-8-2 23:17
 
 
-
-
 公测包是第一天就买了，然而懒得玩删档测，楼上2个真确定这个还有最后2天的关口冲进坑么？
-
-
-
-
-
 
 
 -----
@@ -4746,16 +3264,10 @@ GGG最近的动作每一个都在reddit跟官方论坛被狂喷<img src="https:/
 ##### 221#       发表于 2017-8-2 23:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36769089&amp;ptid=1478318" target="_blank">永远的访客 发表于 2017-8-2 23:17</a>
 
 公测包是第一天就买了，然而懒得玩删档测，楼上2个真确定这个还有最后2天的关口冲进坑么？ ...</blockquote>
 他们说的应该是国服
-
-
-
-
-
 
 
 -----
@@ -4764,14 +3276,7 @@ GGG最近的动作每一个都在reddit跟官方论坛被狂喷<img src="https:/
 ##### 222#       发表于 2017-8-3 08:37
 
 
-
-
 国际服出了japan端口，上海联通120ms稳定，有没有电信的测试下？如果不丢包，可以抛弃国服了
-
-
-
-
-
 
 
 -----
@@ -4780,16 +3285,9 @@ GGG最近的动作每一个都在reddit跟官方论坛被狂喷<img src="https:/
 ##### 223#       发表于 2017-8-3 09:22
 
 
-
-
 国际服有组织么？
 
 [  -- 来自能订阅的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
-
-
-
-
-
 
 
 -----
@@ -4798,16 +3296,10 @@ GGG最近的动作每一个都在reddit跟官方论坛被狂喷<img src="https:/
 ##### 224#         楼主| 发表于 2017-8-3 09:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36771004&amp;ptid=1478318" target="_blank">Xperia 发表于 2017-8-3 08:37</a>
 
 国际服出了japan端口，上海联通120ms稳定，有没有电信的测试下？如果不丢包，可以抛弃国服了 ...</blockquote>
 你该试试新加坡端口  普遍83ms左右 甚至更低
-
-
-
-
-
 
 
 -----
@@ -4816,16 +3308,10 @@ GGG最近的动作每一个都在reddit跟官方论坛被狂喷<img src="https:/
 ##### 225#       发表于 2017-8-3 09:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36771829&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2017-8-3 09:51</a>
 
 你该试试新加坡端口  普遍83ms左右 甚至更低</blockquote>
 我用联通连新加坡230-300波动，还概率性failed to connect instance
-
-
-
-
-
 
 
 -----
@@ -4834,16 +3320,9 @@ GGG最近的动作每一个都在reddit跟官方论坛被狂喷<img src="https:/
 ##### 226#         楼主| 发表于 2017-8-3 10:02
 
 
-
-
 群号补上了   
 
 说起来很多人应该还不知道POB   该天2L丢个详细介绍
-
-
-
-
-
 
 
 -----
@@ -4852,14 +3331,7 @@ GGG最近的动作每一个都在reddit跟官方论坛被狂喷<img src="https:/
 ##### 227#         楼主| 发表于 2017-8-4 20:44
 
 
-
-
 3.0跳票了  1:00延到4:00更新  对于正常作息的人来说可以挂个更新然后去睡觉了
-
-
-
-
-
 
 
 -----
@@ -4868,16 +3340,9 @@ GGG最近的动作每一个都在reddit跟官方论坛被狂喷<img src="https:/
 ##### 228#       发表于 2017-8-5 11:51
 
 
-
-
 这7G太难下了 ，中途还出错<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
 
 —— 来自 samsung SM-G9350, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
-
-
-
-
-
 
 
 -----
@@ -4886,20 +3351,13 @@ GGG最近的动作每一个都在reddit跟官方论坛被狂喷<img src="https:/
 ##### 229#       发表于 2017-8-5 12:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">SSF模式下掉率和爆率会变高吗
-
-
-
-
-
 
 
 -----
 
 ####  森田美位子  
 ##### 230#       发表于 2017-8-5 12:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36792304&amp;ptid=1478318" target="_blank">雷击型美羽 发表于 2017-8-5 12:33</a>
@@ -4910,16 +3368,10 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 上赛季某个日裔的妹子玩SSF SC，直播推剧情的时候掉了镜子
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 231#       发表于 2017-8-5 12:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36791980&amp;ptid=1478318" target="_blank">felline 发表于 2017-8-5 11:51</a>
@@ -4931,16 +3383,10 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 实在不好下，可以bt单下那个ggpk文件
 
 
-
-
-
-
-
 -----
 
 ####  雷击型美羽  
 ##### 232#       发表于 2017-8-5 12:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36792334&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-8-5 12:36</a>
@@ -4951,16 +3397,10 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">我这就去建个号
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 233#       发表于 2017-8-5 13:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36792388&amp;ptid=1478318" target="_blank">雷击型美羽 发表于 2017-8-5 12:41</a>
@@ -4971,27 +3411,15 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 1分50左右开始
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 234#         楼主| 发表于 2017-8-5 17:34
 
 
-
-
 果然3.0美工大进步  尤其是A1  样子变了很多
 
 而不少技能效果也变了     直观上的让人感觉好看
-
-
-
-
-
 
 
 -----
@@ -5000,16 +3428,9 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 ##### 235#       发表于 2017-8-6 00:08
 
 
-
-
 出了打脸和寿衣，只能洗点玩图腾了
 
 每章都要死一个熟人真是吃屎
-
-
-
-
-
 
 
 -----
@@ -5018,16 +3439,9 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 ##### 236#       发表于 2017-8-6 03:45
 
 
-
-
 说出来吓人.. 我这网我一直以为是10M的, 因为下载一般东西一般也就几M, STEAM速度好能上5M. 
 
 现在在下官网的3.0的种子文件, 18M每秒.. 我靠, 多少人一起下啊..<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5036,14 +3450,7 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 ##### 237#       发表于 2017-8-6 08:02
 
 
-
-
 为嘛我电信的网连jp500多延迟，移动的网只有70多呢
-
-
-
-
-
 
 
 -----
@@ -5052,16 +3459,10 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 ##### 238#       发表于 2017-8-6 11:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36798368&amp;ptid=1478318" target="_blank">aviot 发表于 2017-8-6 08:02</a>
 
 为嘛我电信的网连jp500多延迟，移动的网只有70多呢</blockquote>
 电信是奇葩，日本-美国-中国这么绕的
-
-
-
-
-
 
 
 -----
@@ -5070,14 +3471,7 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 ##### 239#       发表于 2017-8-6 11:18
 
 
-
-
 3.0后，没有VPN和加速器简直没法玩了。掉线掉线掉线
-
-
-
-
-
 
 
 -----
@@ -5086,13 +3480,7 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 ##### 240#       发表于 2017-8-6 23:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞了个召唤, 据说现在召唤的AI弱的一比, 第十章的最终BOSS死成狗都打不过.. 感觉完了
-
-
-
-
-
 
 
 -----
@@ -5101,25 +3489,16 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 ##### 241#       发表于 2017-8-7 00:52
 
 
-
-
 提前几个小时用官网放的种子下好，早上7点进去，遇到人太多要排队等几千号...
 
 
 没有vpn卡成狗，还好明智走召唤路线瞎鸡巴打也进了a3，等推荐国际服vpn
 
 
-
-
-
-
-
 -----
 
 ####  Mousesports  
 ##### 242#       发表于 2017-8-7 02:01
-
-
 
 
 日本线不用uu也挺流畅 刚下好游戏发愁怎么脱掉steam账号呢。。结果发现原来邮箱能登录了
@@ -5134,16 +3513,10 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 另外，国际服有组织吗？
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 243#       发表于 2017-8-7 02:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806804&amp;ptid=1478318" target="_blank">永远的访客 发表于 2017-8-7 00:52</a>
@@ -5155,16 +3528,10 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 加速器因人而异，群里几个人包括我用的海豚，都表示很好，但有人的就是不行
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 244#       发表于 2017-8-7 02:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36807094&amp;ptid=1478318" target="_blank">Mousesports 发表于 2017-8-7 02:01</a>
@@ -5176,17 +3543,10 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 主楼有群号
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 245#         楼主| 发表于 2017-8-7 06:54
-
-
 
 
 以前客户端大小记得是10G  现在查看了下 只有8G了     
@@ -5198,24 +3558,13 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 不过35级前  随便捡的物理弓+CTB  造成的流血伤害依旧显著      之后还是试试高级图里DOT流的表现试试
 
 
-
-
-
-
-
 -----
 
 ####  lzh1993  
 ##### 246#       发表于 2017-8-7 08:32
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/169.jpg" referrerpolicy="no-referrer">开荒开的有点烦了 想拿起4年前的老号速度过下剧情 有老爷卖混沌衣吗
-
-
-
-
-
 
 
 -----
@@ -5224,14 +3573,7 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 ##### 247#       发表于 2017-8-7 09:47
 
 
-
-
 国服beta服好像也更新了3.0，看了下自己好像有资格，不过之前一直没有玩，问下3.0用什么build通关比较好呢，只是想体验下先
-
-
-
-
-
 
 
 -----
@@ -5240,14 +3582,7 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 ##### 248#       发表于 2017-8-7 11:17
 
 
-
-
 为什么看直播 这么多人在玩各种冰刺啊？
-
-
-
-
-
 
 
 -----
@@ -5256,14 +3591,7 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 ##### 249#       发表于 2017-8-7 11:39
 
 
-
-
 国际服所有结点都不显示ping，无法连接到服务器是什么鬼。。。
-
-
-
-
-
 
 
 -----
@@ -5272,22 +3600,13 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 ##### 250#       发表于 2017-8-8 15:29
 
 
-
-
 都说台服成鬼服了，结果今天开服排队2000+
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 251#         楼主| 发表于 2017-8-9 07:52
-
-
 
 
 调整了点1L内容 增加了对元素特效改动的内容说明
@@ -5298,27 +3617,15 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 接下来找个时间添加下POB的介绍
 
 
-
-
-
-
-
 -----
 
 ####  克莉丝汀  
 ##### 252#       发表于 2017-8-9 09:25
 
 
-
-
 昨晚玩了下台服，画面好看了些，某些怪物模型有变更，任务奖励的技能宝石有变动，
 
 [  -- 来自带麻将脸的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
-
-
-
-
-
 
 
 -----
@@ -5327,14 +3634,7 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 ##### 253#       发表于 2017-8-14 13:47
 
 
-
-
 有玩加州服的么，新人一个，有同为新人的一起刷吗。对了，我是在国内直连的
-
-
-
-
-
 
 
 -----
@@ -5343,14 +3643,7 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 ##### 254#       发表于 2017-8-16 02:43
 
 
-
-
 开了个常驻50跑速的蛮子把新战役每个地方都踩个遍，很多地方都看出制作组很用心
-
-
-
-
-
 
 
 -----
@@ -5359,11 +3652,9 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 ##### 255#         楼主| 发表于 2017-8-21 09:33
 
 
-
  本帖最后由 妹控使徒 于 2017-8-21 09:39 编辑 
 
 毒是真的不行了  可以列个数据来对比下
-
 
 
 毒基础伤害20%  基础持续时间2S 可以无限叠层  基础伤害来源物理和混沌
@@ -5379,19 +3670,10 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 然后物理方还有maim brutality 等更好加成的技能 
 
 
-
 即使主毒副流血   除非基伤大比例是混沌   否则最后都会发现还是流血伤害更高了
 
 
 个人想法是干脆重做毒   只能混沌伤触发    改个特效 或者把目前这叠层DOT的基础伤和持续时间BUFF下
-
-
-
-
-
-
-
-
 
 
 -----
@@ -5400,14 +3682,7 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 ##### 256#       发表于 2017-8-22 21:06
 
 
-
-
 从来没接触过。。很有兴趣玩一玩。有没有新手攻略一类的东西。。
-
-
-
-
-
 
 
 -----
@@ -5416,16 +3691,10 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 ##### 257#       发表于 2017-8-22 22:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36970489&amp;ptid=1478318" target="_blank">小豆豆 发表于 2017-8-22 21:06</a>
 
 从来没接触过。。很有兴趣玩一玩。有没有新手攻略一类的东西。。</blockquote>
 入坑建议抄几个bd，过程中慢慢查WIKI……
-
-
-
-
-
 
 
 -----
@@ -5434,16 +3703,10 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 ##### 258#       发表于 2017-8-22 22:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36881543&amp;ptid=1478318" target="_blank">原装大小姐 发表于 2017-8-14 13:47</a>
 
 有玩加州服的么，新人一个，有同为新人的一起刷吗。对了，我是在国内直连的 ...</blockquote>
 加州只是入口，大家都在一个世界服
-
-
-
-
-
 
 
 -----
@@ -5452,23 +3715,16 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 ##### 259#       发表于 2017-8-23 07:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36970489&amp;ptid=1478318" target="_blank">小豆豆 发表于 2017-8-22 21:06</a>
 
 从来没接触过。。很有兴趣玩一玩。有没有新手攻略一类的东西。。</blockquote>
 先把游戏里升级慢慢解锁的帮助清单看全，系统要素就理解差不多了
 
 
-
-
-
-
-
 -----
 
 ####  大主教伊瑞尔  
 ##### 260#       发表于 2017-8-23 07:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36970489&amp;ptid=1478318" target="_blank">小豆豆 发表于 2017-8-22 21:06</a>
@@ -5480,25 +3736,13 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 — from motorola Nexus 6, Android 6.0.1 of [S1 Next Goose](https://play.google.com/store/apps/details?id=me.ykrank.s1next) v1.3.0.1-play
 
 
-
-
-
-
-
 -----
 
 ####  般的存在  
 ##### 261#       发表于 2017-8-23 07:48
 
 
-
-
 国服昨天开了，有大佬有组织吗？还有新手有啥东西该捡啥东西不该捡啊，背包一直是满的<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5507,22 +3751,15 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 ##### 262#       发表于 2017-8-23 08:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36973148&amp;ptid=1478318" target="_blank">般的存在 发表于 2017-8-23 07:48</a>
 国服昨天开了，有大佬有组织吗？还有新手有啥东西该捡啥东西不该捡啊，背包一直是满的 ...</blockquote>
 有物品过滤器，可以系统默认过滤器来捡
-
-
-
-
-
 
 
 -----
 
 ####  chaucerling  
 ##### 263#       发表于 2017-8-23 10:32
-
 
 
  本帖最后由 chaucerling 于 2017-8-23 13:28 编辑 
@@ -5534,17 +3771,10 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 6L: 先祖－近战伤－满血伤－残虐－无情－攻速，攻速光环
 
 
-
-
-
-
-
 -----
 
 ####  星尘的记忆  
 ##### 264#       发表于 2017-8-23 11:35
-
-
 
 
 国服有工会吗？
@@ -5553,25 +3783,13 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 自SSF玩家求加
 
 
-
-
-
-
-
 -----
 
 ####  awertg  
 ##### 265#       发表于 2017-8-23 11:52
 
 
-
-
 刚入坑的问下现在是去国服好还是国际服好？
-
-
-
-
-
 
 
 -----
@@ -5580,14 +3798,7 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 ##### 266#       发表于 2017-8-23 11:54
 
 
-
-
 公会箱子页要￥￥￥，所以s1群里没人开工会<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5596,14 +3807,7 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 ##### 267#       发表于 2017-8-23 11:54
 
 
-
-
 刚入坑的问下现在是去国服好还是国际服好？
-
-
-
-
-
 
 
 -----
@@ -5612,21 +3816,13 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 ##### 268#       发表于 2017-8-23 11:54
 
 
-
-
 刚入坑的问下现在是去国服好还是国际服好？
-
-
-
-
-
 
 
 -----
 
 ####  大主教伊瑞尔  
 ##### 269#       发表于 2017-8-23 12:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36975894&amp;ptid=1478318" target="_blank">awertg 发表于 2017-8-23 11:52</a>
@@ -5638,27 +3834,15 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 国服优势就是语言和网络了
 
 
-
-
-
-
-
 -----
 
 ####  mamamiya  
 ##### 270#       发表于 2017-8-23 12:06
 
 
-
-
 国服各种负优化，掉帧跳ping卡半天，想好好玩还是玩国际服吧
 
 —— 来自 HUAWEI NXT-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.0.1-play
-
-
-
-
-
 
 
 -----
@@ -5667,16 +3851,10 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 ##### 271#       发表于 2017-8-23 13:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36976008&amp;ptid=1478318" target="_blank">大主教伊瑞尔 发表于 2017-8-23 12:01</a>
 
 没网络和语言障碍当然国际服，没有和谐，没有一些low到飞起的本地化设置，讨论更集中于游戏内容本身的玩 ...</blockquote>
 国际服17173汉化补丁出得挺快的
-
-
-
-
-
 
 
 -----
@@ -5685,14 +3863,7 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 ##### 272#       发表于 2017-8-28 08:42
 
 
-
-
 顶起来吧，我觉得正经讨论还是回专楼比较好，某些帖子看到标题就一阵生理性不适。
-
-
-
-
-
 
 
 -----
@@ -5701,24 +3872,16 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 ##### 273#       发表于 2017-8-28 09:19
 
 
-
-
 国服周末打到了 召唤鞋子.... 这么运气爆棚，弄得我都想充钱了....
 
 
 那么问题来了，一个蓝孔的绑定鞋子，应该洗吗?
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 274#         楼主| 发表于 2017-8-28 09:22
-
 
 
 [https://www.pathofexile.com/forum/view-thread/1979637](https://www.pathofexile.com/forum/view-thread/1979637)
@@ -5731,20 +3894,13 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 衣服3版本对应投掷物可以分别可流血/中毒/减速
 
 
-
 话说开第二号再次跑剧情后体验更清楚了---------------A6一开始是个坎  打第一古神前 那帮KOAM小弟战斗力过高   本身攻防偏高  尤其是SR图腾怪    把这段过了后又能安逸一段时间 大概到A8才会难度再次显著加大
-
-
-
-
-
 
 
 -----
 
 ####  chaucerling  
 ##### 275#       发表于 2017-8-28 10:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37029229&amp;ptid=1478318" target="_blank">星尘的记忆 发表于 2017-8-28 09:19</a>
@@ -5755,16 +3911,10 @@ SSF模式下掉率和爆率会变高吗</blockquote>
 物等够才能洗出四孔
 
 
-
-
-
-
-
 -----
 
 ####  大主教伊瑞尔  
 ##### 276#       发表于 2017-8-28 10:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37029255&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2017-8-28 09:22</a>
@@ -5776,16 +3926,10 @@ https://www.pathofexile.com/forum/view-thread/1979637
 新议会暗金3.0第一天大家已经打齐了... 你又lag了一个月<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mamamiya  
 ##### 277#       发表于 2017-8-28 10:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37029229&amp;ptid=1478318" target="_blank">星尘的记忆 发表于 2017-8-28 09:19</a>
@@ -5798,16 +3942,10 @@ https://www.pathofexile.com/forum/view-thread/1979637
 —— 来自 HUAWEI NXT-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.0.1-play
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 278#       发表于 2017-8-28 13:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37029796&amp;ptid=1478318" target="_blank">chaucerling 发表于 2017-8-28 10:03</a>
@@ -5816,25 +3954,13 @@ https://www.pathofexile.com/forum/view-thread/1979637
 用刺杀大师洗，无视物品等级
 
 
-
-
-
-
-
 -----
 
 ####  大主教伊瑞尔  
 ##### 279#       发表于 2017-8-29 13:27
 
 
-
-
 主讨论楼顶起来
-
-
-
-
-
 
 
 -----
@@ -5843,15 +3969,9 @@ https://www.pathofexile.com/forum/view-thread/1979637
 ##### 280#       发表于 2017-8-29 13:44
 
 
-
  本帖最后由 ShadowEye 于 2017-8-29 13:48 编辑 
 
 出了个多里亚尼之拳，现在这个玩意自带了个20级多里亚尼之触，就是神主锤地板的那个技能，空手发动，伤害效率250%，0暴击，30%less攻速，物转电50%，20%感电<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5860,24 +3980,16 @@ https://www.pathofexile.com/forum/view-thread/1979637
 ##### 281#       发表于 2017-8-29 13:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37043841&amp;ptid=1478318" target="_blank">ShadowEye 发表于 2017-8-29 13:44</a>
 
 出了个多里亚尼之拳，现在这个玩意自带了个20级多里亚尼之触，就是神主锤地板的那个技能，伤害效率250%，0 ...</blockquote>
 D哥咸猪手
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 282#         楼主| 发表于 2017-8-29 13:48
-
-
 
 
 话说雷锤 冰剑这类触发3孔武器
@@ -5888,16 +4000,10 @@ D哥咸猪手
 目前双冰剑5L的CYC是到了1W5    但2个3L法术一个加爆 一个加直伤 都是3 4K左右
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 283#       发表于 2017-8-29 13:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37043881&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2017-8-29 13:48</a>
@@ -5909,16 +4015,10 @@ D哥咸猪手
 你这面板有点惨啊，我74级5L纯电 cyclone，基础面板20k，都在感叹提升幅度开始变小了
 
 
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 284#       发表于 2017-8-29 13:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37043879&amp;ptid=1478318" target="_blank">大主教伊瑞尔 发表于 2017-8-29 13:47</a>
@@ -5927,16 +4027,10 @@ D哥咸猪手</blockquote>
 现在MOM还有玩头不，我想用老头判官试试享受砸大半个屏幕的快感，然而判官不是图腾就是法盾……
 
 
-
-
-
-
-
 -----
 
 ####  大主教伊瑞尔  
 ##### 285#       发表于 2017-8-29 14:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37043985&amp;ptid=1478318" target="_blank">ShadowEye 发表于 2017-8-29 13:58</a>
@@ -5945,16 +4039,10 @@ D哥咸猪手</blockquote>
 纯电atk基本都得上wrath和电手，这就已经只剩25%蓝了，和mom相性不好。咸猪手视频看过几个，感觉挺lame，目前没啥好想法...
 
 
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 286#       发表于 2017-8-29 14:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37044009&amp;ptid=1478318" target="_blank">大主教伊瑞尔 发表于 2017-8-29 14:01</a>
@@ -5970,17 +4058,10 @@ D哥咸猪手</blockquote>
 其他职业要玩起来理论上可能，不过一点炸点都没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zhssf  
 ##### 287#       发表于 2017-8-29 14:11
-
-
 
 
 新手用的图腾，目前升华走的狂暴，不过感觉除了提升攻速之外不太给力，是不是转酋长更好点？
@@ -5988,16 +4069,10 @@ D哥咸猪手</blockquote>
 不过图腾确实生存能力强啊，我朋友召唤到boss都是趟过的，我要死要活的躲技能，召唤物和图腾日boss，有时候感觉我自己也是他召唤物之一似的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 288#         楼主| 发表于 2017-8-29 14:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37044108&amp;ptid=1478318" target="_blank">zhssf 发表于 2017-8-29 14:11</a>
@@ -6011,17 +4086,10 @@ D哥咸猪手</blockquote>
 酋长尤其是玩物火混合的  非常合适
 
 
-
-
-
-
-
 -----
 
 ####  剑士  
 ##### 289#       发表于 2017-8-29 15:10
-
-
 
 
 在用一套  卫士格挡大地震击BD
@@ -6033,17 +4101,10 @@ D哥咸猪手</blockquote>
 要升级是跑回之前的地图吗？
 
 
-
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 290#       发表于 2017-8-29 15:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37044826&amp;ptid=1478318" target="_blank">剑士 发表于 2017-8-29 15:10</a>
@@ -6063,16 +4124,10 @@ D哥咸猪手</blockquote>
 格挡BD一样吃血量和吸血的，伤害吸不回来一样死
 
 
-
-
-
-
-
 -----
 
 ####  剑士  
 ##### 291#       发表于 2017-8-29 15:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37045068&amp;ptid=1478318" target="_blank">ShadowEye 发表于 2017-8-29 15:29</a>
@@ -6086,16 +4141,10 @@ A10是第十章？现在才第六章
 听你这样说，感觉BD好像选错了
 
 
-
-
-
-
-
 -----
 
 ####  猫骑士  
 ##### 292#       发表于 2017-8-29 15:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37029255&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2017-8-28 09:22</a>
@@ -6107,16 +4156,10 @@ https://www.pathofexile.com/forum/view-thread/1979637
 有近战用的没，我看了下全都是给远程的。
 
 
-
-
-
-
-
 -----
 
 ####  猫骑士  
 ##### 293#       发表于 2017-8-29 15:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37043841&amp;ptid=1478318" target="_blank">ShadowEye 发表于 2017-8-29 13:44</a>
@@ -6125,16 +4168,10 @@ https://www.pathofexile.com/forum/view-thread/1979637
 没暴击的话就没卵用，因为有打脸手800的more在前面呢，这手套我脑洞了很久，发现并没有什么有效的开发方式。
 
 
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 294#       发表于 2017-8-29 15:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37045106&amp;ptid=1478318" target="_blank">剑士 发表于 2017-8-29 15:32</a>
@@ -6152,16 +4189,10 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 你可以趁着这个机会熟悉下游戏机制，不要怕练废，毕竟这游戏谁没练废10来个角色的，先搞懂游戏机制和对强度有个认知比较重要
 
 
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 295#       发表于 2017-8-29 15:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37045186&amp;ptid=1478318" target="_blank">猫骑士 发表于 2017-8-29 15:38</a>
@@ -6173,16 +4204,10 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 但敲下去是真的帅，静电打击熔岩打击什么的弱爆了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  剑士  
 ##### 296#       发表于 2017-8-29 15:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37045293&amp;ptid=1478318" target="_blank">ShadowEye 发表于 2017-8-29 15:45</a>
@@ -6194,26 +4219,15 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 原来如此，谢谢指教，之前还觉得吸血溢没必要，没点吸血方面的，到了第五章第六章才发现大意了
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 297#       发表于 2017-8-29 15:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37045380&amp;ptid=1478318" target="_blank">ShadowEye 发表于 2017-8-29 15:51</a>
 目前只能往好玩的角度去脑洞，自带技能等于5L但由于没6L强度少一档，攻击范围不上不下减攻速，基础耗蓝28 ...</blockquote>
 比冰打帅吗
-
-
-
-
-
 
 
 -----
@@ -6222,16 +4236,10 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 ##### 298#       发表于 2017-8-29 15:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37045430&amp;ptid=1478318" target="_blank">sandro 发表于 2017-8-29 15:55</a>
 
 比冰打帅吗</blockquote>
 神主锤地板同款技能
-
-
-
-
-
 
 
 -----
@@ -6240,16 +4248,10 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 ##### 299#       发表于 2017-8-29 17:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37045380&amp;ptid=1478318" target="_blank">ShadowEye 发表于 2017-8-29 15:51</a>
 
 目前只能往好玩的角度去脑洞，自带技能等于5L但由于没6L强度少一档，攻击范围不上不下减攻速，基础耗蓝28 ...</blockquote>
 我试了下，堆到12Wdps就已经到极限，攻速0.6左右
-
-
-
-
-
 
 
 -----
@@ -6258,21 +4260,13 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 ##### 300#       发表于 2017-8-29 19:04
 
 
-
-
 看了下，玩陷阱的百度之有刺客，别的角色有啥玩陷阱的路数么？出了个陷阱+1宝石，想玩个陷阱试试
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 301#         楼主| 发表于 2017-8-29 19:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37045382&amp;ptid=1478318" target="_blank">剑士 发表于 2017-8-29 15:52</a>
@@ -6294,7 +4288,6 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 最后还有个最终吸取量上限   基础值是最大HP的20%每秒   也就是说默认状态下  伤害再高吸血恢复速度只有20%最大HP每秒   同样天赋上有提升这个    目前最大效果是全伤吸血圈5%+物伤吸血圈(3%+5%)+屠杀者进阶10%  一共23%  也就是说最大效果可以每秒回血43%
 
 
-
 然后是另一个热门点VP(VAAL PACT)   点了这个后除了纸面的没有回血      上面所说的吸血效率  吸取最大上限也移除了    
 
 伤害吸取是否还是2%不知道  除了狂战那点外其他伤害吸取都没给超过2%
@@ -6302,17 +4295,10 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 也就是说只要伤害够高  一发吸满血可以做到的
 
 
-
-
-
-
-
 -----
 
 ####  帕林马哲理  
 ##### 302#       发表于 2017-8-29 23:12
-
-
 
 
 我十分讨厌Vaal pact。这个设计很无脑，之前ES的毛病根本就不在ES，全是VP带来的恶果。所以从来不玩VP的build。
@@ -6326,17 +4312,10 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 要不然dps爆棚，我见到最高的是Signal shot ，打shaper11m，是我build的50倍;要不然用高闪避，躲避build加骚操作。
 
 
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 303#       发表于 2017-8-30 01:52
-
-
 
 
 一路砍下去血点削了，千血甲削了、MOM削了，es点削了，盾挡削了，红球削了……
@@ -6345,27 +4324,15 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 现在防御的投资是如此的昂贵，留给玩家能价廉物美保证生存的手段几乎没了，就算下个版本再砍了VP，GGG不调整各种防御手段的门槛，也不过是让大家一窝蜂去玩决斗刽子手而已
 
 
-
-
-
-
-
 -----
 
 ####  ikaika  
 ##### 304#       发表于 2017-8-30 09:23
 
 
-
-
 你坛唯一一个botwer失眠发的dodge tank10绿球雷达冰剑build配装就很便宜，垃圾装备狂扫T15，打岳父脸吃七次砸地不死，说明只要合理搭配装备，构建起完整的防御逻辑，一样可以廉价的达到endgame标准。
 
 另外mom砍了之后现在buff了后面的三点加上可以覆盖dot伤害，可以说比以前还强，mom rf号称本版本meta。
-
-
-
-
-
 
 
 -----
@@ -6374,16 +4341,10 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 ##### 305#       发表于 2017-8-30 09:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37028769&amp;ptid=1478318" target="_blank">ikaika 发表于 2017-8-28 08:42</a>
 
 顶起来吧，我觉得正经讨论还是回专楼比较好，某些帖子看到标题就一阵生理性不适。 ...</blockquote>
 天道好循环罢了。半年前poe吹在游戏区四处跳脚恶心我的时候我就一直憋着找个机会恶心回去。
-
-
-
-
-
 
 
 -----
@@ -6392,16 +4353,10 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 ##### 306#       发表于 2017-8-30 09:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37051319&amp;ptid=1478318" target="_blank">jackerp 发表于 2017-8-30 09:39</a>
 
 天道好循环罢了。半年前poe吹在游戏区四处跳脚恶心我的时候我就一直憋着找个机会恶心回去。 ...</blockquote>
 自爆屁股，挺好的。总比上跳下窜装客观好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6410,24 +4365,16 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 ##### 307#       发表于 2017-8-30 10:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37051431&amp;ptid=1478318" target="_blank">大主教伊瑞尔 发表于 2017-8-30 09:47</a>
 
 自爆屁股，挺好的。总比上跳下窜装客观好</blockquote>
 这叫装客观？需要我把以前的帖子翻出来给你看看poe吹什么吃相？
 
 
-
-
-
-
-
 -----
 
 ####  liaoyaaa  
 ##### 308#       发表于 2017-8-30 10:38
-
-
 
 
 练到快20及目前来说玩起来还行，
@@ -6444,16 +4391,10 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 另外问下大佬，大带小练级快不？
 
 
-
-
-
-
-
 -----
 
 ####  大主教伊瑞尔  
 ##### 309#       发表于 2017-8-30 10:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37052011&amp;ptid=1478318" target="_blank">liaoyaaa 发表于 2017-8-30 10:38</a>
@@ -6469,17 +4410,10 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 越级打怪又超级高的经验惩罚，大号带速过剧情是可以，但练级主要还是得自己练的。一般来说都是小号自强从0开始跑，而且这也是体验一个build的过程
 
 
-
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 310#       发表于 2017-8-30 10:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37052011&amp;ptid=1478318" target="_blank">liaoyaaa 发表于 2017-8-30 10:38</a>
@@ -6494,16 +4428,10 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 另外A2 三盗贼选择最好自己做，如果大号小号的选择不同，恕我卖个关子，会产生比较有趣的事
 
 
-
-
-
-
-
 -----
 
 ####  liaoyaaa  
 ##### 311#       发表于 2017-8-30 10:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37052142&amp;ptid=1478318" target="_blank">大主教伊瑞尔 发表于 2017-8-30 10:48</a>
@@ -6512,16 +4440,10 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 <img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">看来不能像D2那样挂巴尔速成BD了，无所谓，反正慢慢玩也是游戏体验
 
 
-
-
-
-
-
 -----
 
 ####  liaoyaaa  
 ##### 312#       发表于 2017-8-30 10:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37052152&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-8-30 10:49</a>
@@ -6530,16 +4452,10 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 我已经到那里了，就是根据选择会有不一样的属性加成吧？这种任务可以跳过了以后再来做不？
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 313#       发表于 2017-8-30 10:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37052215&amp;ptid=1478318" target="_blank">liaoyaaa 发表于 2017-8-30 10:54</a>
@@ -6548,16 +4464,10 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 这是主线任务，必须要从3个盗贼那里获得3块碎片，拼出任务道具。否则到了A2 boss前面，你也触发不了boss
 
 
-
-
-
-
-
 -----
 
 ####  liaoyaaa  
 ##### 314#       发表于 2017-8-30 11:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37052302&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-8-30 10:59</a>
@@ -6566,16 +4476,10 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 好吧，看来这里就必须决定后期主攻方向了
 
 
-
-
-
-
-
 -----
 
 ####  jackerp  
 ##### 315#       发表于 2017-8-30 11:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37051431&amp;ptid=1478318" target="_blank">大主教伊瑞尔 发表于 2017-8-30 09:47</a>
@@ -6588,26 +4492,15 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
   我明确的说这游戏就是不和我口味，本来没有你们这些吹老死不相往来也没什么，就因为你们这些吹吹的我瑟瑟发抖，不敢不玩这伟大作品啊d2精神续作啊，害的我这几个小时本来可以平静的生活因为这糟糕的体验过的极度不爽。既然是你们让我不爽，那么抱歉，冤有头债有主。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  龙骑将  
 ##### 316#       发表于 2017-8-30 11:09
 
 
-
 <blockquote>jackerp 发表于 2017-8-30 11:05
 既然你们翻过我之前的帖子就知道我说话从来就是尽量客观，从来有1说1。这游戏画面一片糊是不是事实？位移 ...</blockquote>
 真可怜
-
-
-
-
-
 
 
 -----
@@ -6616,24 +4509,16 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 ##### 317#       发表于 2017-8-30 11:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37051852&amp;ptid=1478318" target="_blank">jackerp 发表于 2017-8-30 10:26</a>
 
 这叫装客观？需要我把以前的帖子翻出来给你看看poe吹什么吃相？</blockquote>
 跳进专楼来这么搞围观的人都觉得你略low
 
 
-
-
-
-
-
 -----
 
 ####  Meltina  
 ##### 318#       发表于 2017-8-30 11:18
-
-
 
 
 初犯封一周算了。
@@ -6647,32 +4532,19 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 战贴不打扰讨论贴，这是基本游戏规则。
 
 
-
-
-
-
-
 -----
 
 ####  mayazi  
 ##### 319#       发表于 2017-8-30 11:35
 
 
-
-
 我想高呼真英明，可以么
-
-
-
-
-
 
 
 -----
 
 ####  森田美位子  
 ##### 320#       发表于 2017-8-30 11:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37052355&amp;ptid=1478318" target="_blank">liaoyaaa 发表于 2017-8-30 11:03</a>
@@ -6685,16 +4557,10 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 不过盗贼奖励就算选错了，还是能洗的。不过最好还是从一开始就决定比较好
 
 
-
-
-
-
-
 -----
 
 ####  liaoyaaa  
 ##### 321#       发表于 2017-8-30 11:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37052809&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-8-30 11:36</a>
@@ -6705,16 +4571,10 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 <img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">我玩的圣堂，可战可法的那种
 
 
-
-
-
-
-
 -----
 
 ####  永远的访客  
 ##### 322#       发表于 2017-8-30 11:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37052302&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-8-30 10:59</a>
@@ -6723,16 +4583,10 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 本来听说这个任务里你到底帮那边还是全杀要会影响到A7的任务细节，现在是不是阉了？
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 323#       发表于 2017-8-30 11:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37052865&amp;ptid=1478318" target="_blank">liaoyaaa 发表于 2017-8-30 11:41</a>
@@ -6743,16 +4597,10 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 7个人物19个升华职业，差别很大。2.2公布前，我还担心过于追求职业特异性，而丢失了多样性，这个在2.2的讨论帖里我就提过。但是事实证明，我多虑了。所以无法理解jackerp说的扁平化处理缺乏职业特色是什么意思，大概他也没拿到升华天赋
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 324#       发表于 2017-8-30 11:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37052962&amp;ptid=1478318" target="_blank">永远的访客 发表于 2017-8-30 11:51</a>
@@ -6761,16 +4609,10 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 应该不会有吧，A2 kraityn 站的地方到A7都成营地了，而且还是坐船过来了，其他两个地方没法停船
 
 
-
-
-
-
-
 -----
 
 ####  永远的访客  
 ##### 325#       发表于 2017-8-30 12:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37053033&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-8-30 11:59</a>
@@ -6782,16 +4624,10 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 这种东西没实装反正也是可能的，ggg花了那么多年才在3.0实现了怪物会因为派系不同内讧
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 326#       发表于 2017-8-30 12:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37053111&amp;ptid=1478318" target="_blank">永远的访客 发表于 2017-8-30 12:05</a>
@@ -6803,16 +4639,10 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 我觉得怪物内讧，就像老头是左撇子，ranger是女同一样，锦上添花的东西。继续优化倒是最重要的
 
 
-
-
-
-
-
 -----
 
 ####  永远的访客  
 ##### 327#       发表于 2017-8-30 12:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37053144&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-8-30 12:08</a>
@@ -6824,16 +4654,10 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 你说的这些倒是属于爱好者梗而已
 
 
-
-
-
-
-
 -----
 
 ####  大主教伊瑞尔  
 ##### 328#       发表于 2017-8-30 12:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37053267&amp;ptid=1478318" target="_blank">永远的访客 发表于 2017-8-30 12:22</a>
@@ -6845,16 +4669,10 @@ A6受教育是正常的，“对不起前面我们都是配合你演的现在才
 破GGG还我+1球<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 329#       发表于 2017-8-30 13:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37053267&amp;ptid=1478318" target="_blank">永远的访客 发表于 2017-8-30 12:22</a>
@@ -6866,25 +4684,13 @@ a6-a10我印象最深刻的就剩下那几张大到没天理还一个可以读�
 倒是随机的瓦尔副本的信件里面新加入了一堆文本，这重点完全颠倒了吧<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 330#       发表于 2017-8-30 13:42
 
 
-
-
 VP的廉价完全是另一个层次啊……天赋树上解决绝大多数的问题，SSF我都是搬砖靠VP，搬到一定程度看看仓库有啥可以脑洞的东西再车第二个人物
-
-
-
-
-
 
 
 -----
@@ -6893,21 +4699,14 @@ VP的廉价完全是另一个层次啊……天赋树上解决绝大多数的问
 ##### 331#       发表于 2017-8-30 14:25
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">开服照着2.6的bd玩了个5火球烧怪 70级了发现生存太惨了 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">遇到远程物理怪 护盾秒碎 碎玩秒躺
-
-
-
-
-
 
 
 -----
 
 ####  poegeek  
 ##### 332#       发表于 2017-8-30 14:36
-
 
 
  本帖最后由 poegeek 于 2017-8-30 14:47 编辑 
@@ -6924,16 +4723,10 @@ VP的廉价完全是另一个层次啊……天赋树上解决绝大多数的问
 <img src="https://web.poecdn.com/public/news/2017-08-30/Outfits/rollertoaster.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  永远的访客  
 ##### 333#       发表于 2017-8-30 14:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37053958&amp;ptid=1478318" target="_blank">ShadowEye 发表于 2017-8-30 13:32</a>
@@ -6950,33 +4743,19 @@ ggg喜欢慢慢填坑，a3的4个下水道本来也是大坑，合并到现在�
 现在来说那些图就是打得烦躁，反正任务不都是跑到A杀了B拿个C回来给D么
 
 
-
-
-
-
-
-
 -----
 
 ####  zhssf  
 ##### 334#       发表于 2017-8-31 20:38
 
 
-
-
 还有个问题请教下，我看图腾流bd一般都会点坚毅之心（必中但不会暴击那个），是说暴击收益太低远不如命中重要么？
-
-
-
-
-
 
 
 -----
 
 ####  帕林马哲理  
 ##### 335#       发表于 2017-8-31 20:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37057525&amp;ptid=1478318" target="_blank">zhssf 发表于 2017-8-31 13:38</a>
@@ -6989,16 +4768,10 @@ ggg喜欢慢慢填坑，a3的4个下水道本来也是大坑，合并到现在�
 图腾我知道有种可以打暴击的，是空手。空手本身0%暴击，但是有个项链可以给你加7%的基础暴击率，这样就勉强可以玩了。双手杖图腾极少见到人玩，但是也可以暴击。
 
 
-
-
-
-
-
 -----
 
 ####  帕林马哲理  
 ##### 336#       发表于 2017-8-31 21:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37052142&amp;ptid=1478318" target="_blank">大主教伊瑞尔 发表于 2017-8-30 03:48</a>
@@ -7007,16 +4780,10 @@ ggg喜欢慢慢填坑，a3的4个下水道本来也是大坑，合并到现在�
 对了，我一直想问，你头像是Bowyer´s Dream,这张卡是你设计的么？
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 337#       发表于 2017-8-31 21:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37057525&amp;ptid=1478318" target="_blank">zhssf 发表于 2017-8-31 20:38</a>
@@ -7035,16 +4802,10 @@ ggg喜欢慢慢填坑，a3的4个下水道本来也是大坑，合并到现在�
 5.以上并于局限于图腾，近战build都大致都是这个思路
 
 
-
-
-
-
-
 -----
 
 ####  zhssf  
 ##### 338#       发表于 2017-8-31 21:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37057698&amp;ptid=1478318" target="_blank">帕林马哲理 发表于 2017-8-31 20:58</a>
@@ -7055,16 +4816,10 @@ ggg喜欢慢慢填坑，a3的4个下水道本来也是大坑，合并到现在�
 感谢解惑，另外还有个疑问，我看很多人提到空手，空手就是字面意思不用武器只拿盾牌么？
 
 
-
-
-
-
-
 -----
 
 ####  zhssf  
 ##### 339#       发表于 2017-8-31 21:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37057916&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-8-31 21:25</a>
@@ -7075,16 +4830,10 @@ ggg喜欢慢慢填坑，a3的4个下水道本来也是大坑，合并到现在�
 感谢解答<img src="https://static.saraba1st.com/image/smiley/carton2017/020.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  帕林马哲理  
 ##### 340#       发表于 2017-8-31 22:04
-
 
 
  本帖最后由 帕林马哲理 于 2017-8-31 15:08 编辑 
@@ -7100,27 +4849,15 @@ ggg喜欢慢慢填坑，a3的4个下水道本来也是大坑，合并到现在�
 空手项链是叫[Rigward`s Curse](https://pathofexile.gamepedia.com/Rigwald%27s_Curse),不仅加暴击，还可以把爪子天赋转化成空手。
 
 
-
-
-
-
-
-
 -----
 
 ####  古代人皮克  
 ##### 341#       发表于 2017-9-1 02:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">出了个灰岩药水一波富贵了
 
 这种游戏还是要有AH才好玩啊
-
-
-
-
-
 
 
 -----
@@ -7129,16 +4866,10 @@ ggg喜欢慢慢填坑，a3的4个下水道本来也是大坑，合并到现在�
 ##### 342#       发表于 2017-9-1 03:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37057733&amp;ptid=1478318" target="_blank">帕林马哲理 发表于 2017-8-31 21:02</a>
 
 对了，我一直想问，你头像是Bowyer´s Dream,这张卡是你设计的么？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">并没有这么多钱氪进去
-
-
-
-
-
 
 
 -----
@@ -7147,14 +4878,7 @@ ggg喜欢慢慢填坑，a3的4个下水道本来也是大坑，合并到现在�
 ##### 343#       发表于 2017-9-1 05:41
 
 
-
-
 萌新小明把+8%启蒙 3C卖出去了，感觉亏了几个亿
-
-
-
-
-
 
 
 -----
@@ -7163,14 +4887,7 @@ ggg喜欢慢慢填坑，a3的4个下水道本来也是大坑，合并到现在�
 ##### 344#       发表于 2017-9-1 08:30
 
 
-
-
 战士长刚出的时候玩过一阵子霸权图腾，还可以。就是奇美拉不好打
-
-
-
-
-
 
 
 -----
@@ -7179,23 +4896,16 @@ ggg喜欢慢慢填坑，a3的4个下水道本来也是大坑，合并到现在�
 ##### 345#       发表于 2017-9-1 08:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37060213&amp;ptid=1478318" target="_blank">resurgam 发表于 2017-9-1 05:41</a>
 
 萌新小明把+8%启蒙 3C卖出去了，感觉亏了几个亿</blockquote>
 啟蒙也就一個神聖價··沒啥
 
 
-
-
-
-
-
 -----
 
 ####  克莉丝汀  
 ##### 346#       发表于 2017-9-1 09:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37060819&amp;ptid=1478318" target="_blank">克莉丝汀 发表于 2017-09-01 08:46:02</a>
@@ -7205,25 +4915,13 @@ ggg喜欢慢慢填坑，a3的4个下水道本来也是大坑，合并到现在�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
 
 
-
-
-
-
-
 -----
 
 ####  liangjiami  
 ##### 347#       发表于 2017-9-1 09:25
 
 
-
-
 3个低级符文换成高级符文是怎么换？还要求同类同级什么的
-
-
-
-
-
 
 
 -----
@@ -7232,20 +4930,13 @@ ggg喜欢慢慢填坑，a3的4个下水道本来也是大坑，合并到现在�
 ##### 348#       发表于 2017-9-1 09:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">刚出了个打脸手，请问现在有没有什么流派的build能用上这个装备的？
-
-
-
-
-
 
 
 -----
 
 ####  森田美位子  
 ##### 349#       发表于 2017-9-1 09:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37061308&amp;ptid=1478318" target="_blank">wcorvo 发表于 2017-9-1 09:29</a>
@@ -7256,17 +4947,10 @@ ggg喜欢慢慢填坑，a3的4个下水道本来也是大坑，合并到现在�
 打脸手现在最常见的还是配合祖宗图腾，问题是打脸手要放弃武器，所以基础物理伤害要从头、盾、3个首饰位获得。这些要roll 得好，不便宜
 
 
-
-
-
-
-
 -----
 
 ####  坛子漆黑  
 ##### 350#       发表于 2017-9-1 10:24
-
-
 
 
 48级到A5,然后BOSS一半血了忽然告诉我你太弱了,滚回去重练.然后被小怪教育了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
@@ -7276,25 +4960,13 @@ ggg喜欢慢慢填坑，a3的4个下水道本来也是大坑，合并到现在�
 前面技能石头升太嗨,发现装备都没法换<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  resurgam  
 ##### 351#       发表于 2017-9-1 10:50
 
 
-
-
 刷异界，看到地上有个紫色的手，限时的那种，有些东西是不是要在那个圈缩回来之前捡？我好像看到有个紫色的装备没捡，圈缩了之后就不见了，一点提示没有<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7303,16 +4975,10 @@ ggg喜欢慢慢填坑，a3的4个下水道本来也是大坑，合并到现在�
 ##### 352#       发表于 2017-9-1 11:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37061653&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-9-1 09:57</a>
 
 打脸手看roll 得怎么样，750以上算好的，越接近800越贵。700以上算合格，700以下还是再买一件吧。当然国 ...</blockquote>
 我在台服的，roll出来是738的，除了图腾好像没有什么其他玩法了吧，蛋疼<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7321,21 +4987,13 @@ ggg喜欢慢慢填坑，a3的4个下水道本来也是大坑，合并到现在�
 ##### 353#       发表于 2017-9-1 11:06
 
 
-
-
 还有这新剧情又是咋回事，马雷葛罗薛朗那三个货A5不是内脏都被揍出来了么，怎么那个什么神一回归他们就又复活了
-
-
-
-
-
 
 
 -----
 
 ####  森田美位子  
 ##### 354#       发表于 2017-9-1 11:21
-
 
 
  本帖最后由 森田美位子 于 2017-9-1 11:26 编辑 
@@ -7345,16 +5003,10 @@ ggg喜欢慢慢填坑，a3的4个下水道本来也是大坑，合并到现在�
 也不是完全没有，比如可以玩旋风、infernal blow（好像叫炼狱打击？），但是差图腾一大截。如果你非要玩的话，可以去试试
 
 
-
-
-
-
-
 -----
 
 ####  永远的访客  
 ##### 355#       发表于 2017-9-1 12:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37062438&amp;ptid=1478318" target="_blank">wcorvo 发表于 2017-9-1 11:06</a>
@@ -7372,16 +5024,10 @@ A5-A10剧情坑大意（含脑补，请自行取舍）：
 至于其他各路神，beast死后都苏醒了，反正被主角一路屠回去就是，最终boss kitava也只是其中的一个神而已。
 
 
-
-
-
-
-
 -----
 
 ####  poegeek  
 ##### 356#       发表于 2017-9-1 13:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37062283&amp;ptid=1478318" target="_blank">resurgam 发表于 2017-9-1 10:50</a>
@@ -7390,16 +5036,10 @@ A5-A10剧情坑大意（含脑补，请自行取舍）：
 紫色的不是装备，是箱子，只有在裂隙展开期间才能点，关闭以后就没了
 
 
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 357#       发表于 2017-9-1 13:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37062283&amp;ptid=1478318" target="_blank">resurgam 发表于 2017-9-1 10:50</a>
@@ -7408,16 +5048,10 @@ A5-A10剧情坑大意（含脑补，请自行取舍）：
 我听人说国服的过滤器比较智能……有好装备的时候优先显示
 
 
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 358#       发表于 2017-9-1 13:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37061308&amp;ptid=1478318" target="_blank">wcorvo 发表于 2017-9-1 09:29</a>
@@ -7426,17 +5060,10 @@ A5-A10剧情坑大意（含脑补，请自行取舍）：
 以前是空手冰打，现在满地图腾……
 
 
-
-
-
-
-
 -----
 
 ####  gzy0405  
 ##### 359#       发表于 2017-9-1 17:47
-
-
 
 
 萌新，看网上一个灵投build自己瞎玩
@@ -7446,25 +5073,13 @@ A5-A10剧情坑大意（含脑补，请自行取舍）：
 这样是不是打掉重练一个更适合开荒的BD起来了再自己研究比较效率。。。
 
 
-
-
-
-
-
 -----
 
 ####  SteveRayVaughan  
 ##### 360#       发表于 2017-9-1 18:08
 
 
-
-
 突然想玩HC，求一个肉+保险多的build～
-
-
-
-
-
 
 
 -----
@@ -7473,23 +5088,16 @@ A5-A10剧情坑大意（含脑补，请自行取舍）：
 ##### 361#       发表于 2017-9-1 19:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37066806&amp;ptid=1478318" target="_blank">SteveRayVaughan 发表于 2017-9-1 18:08</a>
 
 突然想玩HC，求一个肉+保险多的build～</blockquote>
 HC天梯从第一往下看就行了，开荒的话看SSFHC。
 
 
-
-
-
-
-
 -----
 
 ####  克莉丝汀  
 ##### 362#       发表于 2017-9-1 19:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37066598&amp;ptid=1478318" target="_blank">gzy0405 发表于 2017-9-1 17:47</a>
@@ -7502,16 +5110,10 @@ HC天梯从第一往下看就行了，开荒的话看SSFHC。
 砍掉重练倒是没这必要  如果和别人发布的BD相差不大   你重新开个小号练其他BD练上去就是  回头有好装备就可以转过来继续玩
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 363#         楼主| 发表于 2017-9-1 20:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37061980&amp;ptid=1478318" target="_blank">坛子漆黑 发表于 2017-9-1 10:24</a>
@@ -7532,17 +5134,10 @@ ES流则是200+%inc  具体ES量多少不清楚 这版本装备和光环的ES�
 A6打第一个古神为止那段路是到之后A8打日月双神前最难的部分  所以A6一开始难打可以坚持下 挺过去就舒服了 
 
 
-
-
-
-
-
 -----
 
 ####  帕林马哲理  
 ##### 364#       发表于 2017-9-2 06:12
-
-
 
 
 40challenge做完了，感觉这个赛季吸引力不足，afk了。
@@ -7550,16 +5145,10 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 期待下个赛季，估计差不多要到明年了。
 
 
-
-
-
-
-
 -----
 
 ####  坛子漆黑  
 ##### 365#       发表于 2017-9-2 10:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37067986&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2017-9-1 20:22</a>
@@ -7572,16 +5161,10 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 接下来就是把血量护盾加上去了吧<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  克莉丝汀  
 ##### 366#       发表于 2017-9-2 12:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37072502&amp;ptid=1478318" target="_blank">坛子漆黑 发表于 2017-9-2 10:38</a>
@@ -7592,24 +5175,13 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 這個賽季別人研究出了滿格擋 萬血召喚 強的很啊
 
 
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 367#       发表于 2017-9-2 12:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">召唤精髓，打不过躺着过
-
-
-
-
-
 
 
 -----
@@ -7618,14 +5190,7 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 ##### 368#       发表于 2017-9-2 13:34
 
 
-
-
 国服是不是太少人了啊，卖个六连半天没人
-
-
-
-
-
 
 
 -----
@@ -7634,16 +5199,10 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 ##### 369#       发表于 2017-9-2 23:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37073842&amp;ptid=1478318" target="_blank">resurgam 发表于 2017-9-2 13:34</a>
 
 国服是不是太少人了啊，卖个六连半天没人</blockquote>
 有相当一部分被RMT分流走了，毕竟国服特色
-
-
-
-
-
 
 
 -----
@@ -7652,16 +5211,10 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 ##### 370#       发表于 2017-9-2 23:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37062438&amp;ptid=1478318" target="_blank">wcorvo 发表于 2017-9-1 11:06</a>
 
 还有这新剧情又是咋回事，马雷葛罗薛朗那三个货A5不是内脏都被揍出来了么，怎么那个什么神一回归他们就又复 ...</blockquote>
 感觉这游戏的宝石魔法设定就像盖塔射线一样，本身是有意识的（兽）。表面上你在用魔法，暗中也在被魔法利用。你如果浸淫太深，连灵魂都会为其所用。所以这几个货，死后灵魂不能转世，成为了兽的一部分，兽死后，他们的魂魄又自由跑出去了。麻辣凯当年的“杀兽”这一行为也可能是潜意识想要和兽合为一体导致的。
-
-
-
-
-
 
 
 -----
@@ -7670,13 +5223,7 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 ##### 371#       发表于 2017-9-3 02:27
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">问下,现在其他情况的图都还可以刷,但是那种狭窄空间下在地板不停喷毒的要怎么打,差不多秒死,比如书库的那个boss...
-
-
-
-
-
 
 
 -----
@@ -7685,16 +5232,10 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 ##### 372#       发表于 2017-9-3 03:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37080568&amp;ptid=1478318" target="_blank">雪风雾雨 发表于 2017-9-3 02:27</a>
 
 问下,现在其他情况的图都还可以刷,但是那种狭窄空间下在地板不停喷毒的要怎么打,差不多秒死,比如书 ...</blockquote>
 稍微堆点混沌抗，0左右被打就没那么疼了
-
-
-
-
-
 
 
 -----
@@ -7703,23 +5244,16 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 ##### 373#       发表于 2017-9-3 04:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37080568&amp;ptid=1478318" target="_blank">雪风雾雨 发表于 2017-9-3 02:27</a>
 
 问下,现在其他情况的图都还可以刷,但是那种狭窄空间下在地板不停喷毒的要怎么打,差不多秒死,比如书 ...</blockquote>
 玛丽嘎罗这boss伤害很猛的，特别是普通人的混沌抗都是负的。磕混沌抗瓶打，技能能躲则躲
 
 
-
-
-
-
-
 -----
 
 ####  resurgam  
 ##### 374#       发表于 2017-9-3 04:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37079385&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-9-2 23:30</a>
@@ -7730,16 +5264,10 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 那现在哪个服人最多最有活力？国际服还是台服 
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 375#       发表于 2017-9-3 07:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37080767&amp;ptid=1478318" target="_blank">resurgam 发表于 2017-9-3 04:16</a>
@@ -7754,16 +5282,10 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 台服物价之前就被工作室搞死的，现在工作室是不是转战国服了不清楚。国际服也有工作室，但是低调很多，正常玩家也多，国服的那些build基本都是转的国际服二手内容。不过国际服你需要克服网络和语言问题
 
 
-
-
-
-
-
 -----
 
 ####  poegeek  
 ##### 376#       发表于 2017-9-3 08:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37081070&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-9-3 07:48</a>
@@ -7774,17 +5296,10 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 台服国服都是一个尿性，RMT理所当然的。
 
 
-
-
-
-
-
 -----
 
 ####  真红之闪电  
 ##### 377#       发表于 2017-9-3 09:06
-
-
 
 
 刚入坑，问下，传送点是每个图都有还是有的有有的没有?
@@ -7794,16 +5309,10 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
 
 
-
-
-
-
-
 -----
 
 ####  poegeek  
 ##### 378#       发表于 2017-9-3 09:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37081386&amp;ptid=1478318" target="_blank">真红之闪电 发表于 2017-9-3 09:06</a>
@@ -7818,16 +5327,10 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 拖东西可以直接ctrl+左键。
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 379#       发表于 2017-9-3 11:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37081254&amp;ptid=1478318" target="_blank">poegeek 发表于 2017-9-3 08:41</a>
@@ -7838,16 +5341,10 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 嘛，我的看法，BOT也是为RMT服务的。国服好像还不能双开，一台机器开一个BOT估计不符合工作室利益。脱机挂另说
 
 
-
-
-
-
-
 -----
 
 ####  真红之闪电  
 ##### 380#       发表于 2017-9-3 11:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37081560&amp;ptid=1478318" target="_blank">poegeek 发表于 2017-09-03 09:33:31</a>
@@ -7858,25 +5355,13 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
 
 
-
-
-
-
-
 -----
 
 ####  w30of  
 ##### 381#       发表于 2017-9-3 12:16
 
 
-
-
 刚玩这个问下，天赋点出来的珠宝插槽怎么用？天赋界面没法拖宝石进去
-
-
-
-
-
 
 
 -----
@@ -7885,16 +5370,10 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 ##### 382#         楼主| 发表于 2017-9-3 12:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37082886&amp;ptid=1478318" target="_blank">w30of 发表于 2017-9-3 12:16</a>
 
 刚玩这个问下，天赋点出来的珠宝插槽怎么用？天赋界面没法拖宝石进去</blockquote>
 你可以在天赋界面同时再打开装备页面 然后移过去
-
-
-
-
-
 
 
 -----
@@ -7903,24 +5382,16 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 ##### 383#       发表于 2017-9-3 12:33
 
 
-
-
 国服这么搞其实是为了打击工作室，之前台服你会看到6个一组的白袍bot们在传送们来回进出，扰乱物价不说，而且搞的城镇巨卡……
 
 
 但这个做法肯定催生更多的rmt，因为剧情毕业的人物由于绑定几乎是拿不出多少通货来交易，货币稀缺只能rm支付
 
 
-
-
-
-
-
 -----
 
 ####  大主教伊瑞尔  
 ##### 384#       发表于 2017-9-3 13:11
-
 
 
 <img src="http://wx4.sinaimg.cn/mw690/006dKm7ugy1fj6a35v6ckg30fz084b2k.gif" referrerpolicy="no-referrer">
@@ -7930,32 +5401,19 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 虚假广告害死人，背后死成狗无人知<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  目鱼  
 ##### 385#       发表于 2017-9-3 13:48
 
 
-
-
 异界地图上的手是什么意思啊
-
-
-
-
-
 
 
 -----
 
 ####  poegeek  
 ##### 386#       发表于 2017-9-3 13:53
-
 
 
  本帖最后由 poegeek 于 2017-9-3 13:54 编辑 
@@ -7967,16 +5425,10 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 裂隙怪的掉落列表明显优于一般怪，会掉大量的通货和六孔装备。
 
 
-
-
-
-
-
 -----
 
 ####  w30of  
 ##### 387#       发表于 2017-9-3 17:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37082960&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2017-9-3 12:23</a>
@@ -7984,17 +5436,10 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 还可以这样哦……谢了！
 
 
-
-
-
-
-
 -----
 
 ####  黑色狐狸  
 ##### 388#       发表于 2017-9-3 18:51
-
-
 
 
 刚开始玩的时候选了个女巫找了个死灵BD开始玩，玩第一部的时候还没啥感觉，打到第二部的时候发现死灵本体太特么脆了，三个光环开着，吃一发技能升天...
@@ -8004,25 +5449,13 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
 
 
-
-
-
-
-
 -----
 
 ####  GameTheory  
 ##### 389#       发表于 2017-9-3 19:11
 
 
-
-
 腾讯服 能改成英文么？
-
-
-
-
-
 
 
 -----
@@ -8031,16 +5464,10 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 ##### 390#       发表于 2017-9-3 20:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37086144&amp;ptid=1478318" target="_blank">黑色狐狸 发表于 2017-09-03 18:51:18</a>
 刚开始玩的时候选了个女巫找了个死灵BD开始玩，玩第一部的时候还没啥感觉，打到第二部的时候发现死灵本体太 ...</blockquote>看了下天赋，法师用死灵升华 堆血堆格挡轻松的很，死成狗不可能
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
-
-
-
-
-
 
 
 -----
@@ -8049,13 +5476,7 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 ##### 391#       发表于 2017-9-3 23:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">刷到一把冥使之琴 装在身上刷二十多次预言都没看到升级预言 一般要刷多少次？
-
-
-
-
-
 
 
 -----
@@ -8064,23 +5485,15 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 ##### 392#       发表于 2017-9-3 23:44
 
 
-
-
 电系不是延迟高弹道慢就是伤害低，到第五章就开始吃不消了
 
 我是不是选错了BD<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  黑色狐狸  
 ##### 393#       发表于 2017-9-4 02:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37087032&amp;ptid=1478318" target="_blank">克莉丝汀 发表于 2017-09-03 20:40:12</a>
@@ -8091,16 +5504,10 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
 
 
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 394#       发表于 2017-9-4 03:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37088663&amp;ptid=1478318" target="_blank">liaoyaaa 发表于 2017-9-3 23:44</a>
@@ -8114,25 +5521,13 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 唯一问题就糊脸+自晕……
 
 
-
-
-
-
-
 -----
 
 ####  resurgam  
 ##### 395#       发表于 2017-9-4 06:22
 
 
-
-
 试了个熔岩之核build，感觉挺廉价，就是打不了免疫吸血的
-
-
-
-
-
 
 
 -----
@@ -8141,16 +5536,10 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 ##### 396#       发表于 2017-9-4 07:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37088596&amp;ptid=1478318" target="_blank">v22325 发表于 2017-9-3 23:36</a>
 
 刷到一把冥使之琴 装在身上刷二十多次预言都没看到升级预言 一般要刷多少次？ ...</blockquote>
 随机的。但是预言可以买别人扣出来的现货，不过不清楚国服的名字和价格
-
-
-
-
-
 
 
 -----
@@ -8159,23 +5548,16 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 ##### 397#       发表于 2017-9-4 07:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37089733&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-9-4 07:09</a>
 
 随机的。但是预言可以买别人扣出来的现货，不过不清楚国服的名字和价格 ...</blockquote>
 预言也能买卖？是交易给别人让别人帮忙升级还是交易了预言就到我这里了？
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 398#       发表于 2017-9-4 07:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37088663&amp;ptid=1478318" target="_blank">liaoyaaa 发表于 2017-9-3 23:44</a>
@@ -8190,16 +5572,10 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 都到A5了，应该不至于弄一个3L的钱都没有
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 399#       发表于 2017-9-4 07:34
-
 
 
  本帖最后由 森田美位子 于 2017-9-4 07:41 编辑 
@@ -8211,27 +5587,15 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 这个是你要的那个预言的英文wiki：[https://pathofexile.gamepedia.com/The_Bowstring%27s_Music](https://pathofexile.gamepedia.com/The_Bowstring%27s_Music)
 
 
-
-
-
-
-
 -----
 
 ####  坛子漆黑  
 ##### 400#       发表于 2017-9-4 08:22
 
 
-
-
 昨天活动遇到个传奇保险箱,被3罪魂附体+地图本身大群怪会引来异界怪物,怪无视宝宝瞬移到身边啪啪啪啪AOE结果扑了一次又一次,早知道就不开了,浪费个地图<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 话说,复活带光环的怪,复活后是不是就没光环了?
-
-
-
-
-
 
 
 -----
@@ -8240,16 +5604,10 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 ##### 401#       发表于 2017-9-4 08:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37089975&amp;ptid=1478318" target="_blank">坛子漆黑 发表于 2017-9-4 08:22</a>
 
 昨天活动遇到个传奇保险箱,被3罪魂附体+地图本身大群怪会引来异界怪物,怪无视宝宝瞬移到身边啪啪啪啪AOE结 ...</blockquote>
 召唤幽灵只会取怪的基本属性，蓝、黄怪带的额外词缀都不会有。所以召唤幽灵，怪的种类不说，其他只需要看等级
-
-
-
-
-
 
 
 -----
@@ -8258,16 +5616,10 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 ##### 402#       发表于 2017-9-4 08:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37089998&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-9-4 08:28</a>
 
 召唤幽灵只会取怪的基本属性，蓝、黄怪带的额外词缀都不会有。所以召唤幽灵，怪的种类不说，其他只需要看 ...</blockquote>
 谢谢.难怪我感觉如果没有技能加成的话,一点都没有活着的时候给力<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8276,23 +5628,16 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 ##### 403#       发表于 2017-9-4 09:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37090007&amp;ptid=1478318" target="_blank">坛子漆黑 发表于 2017-9-4 08:31</a>
 
 谢谢.难怪我感觉如果没有技能加成的话,一点都没有活着的时候给力</blockquote>
 要能保留技能我招2个盟友不会死的金怪岂不是可以用脚打了？
 
 
-
-
-
-
-
 -----
 
 ####  liaoyaaa  
 ##### 404#       发表于 2017-9-4 09:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37089534&amp;ptid=1478318" target="_blank">ShadowEye 发表于 2017-9-4 03:17</a>
@@ -8304,16 +5649,10 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 糊脸问题升了法术范围天赋可以解决一半，问题是持续施法等于找死呀<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  liaoyaaa  
 ##### 405#       发表于 2017-9-4 09:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37089764&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-9-4 07:20</a>
@@ -8326,32 +5665,19 @@ A6打第一个古神为止那段路是到之后A8打日月双神前最难的部�
 风暴释放威力范围都不错但是延迟高了点，剩下几个雷球之类的伤害可以，问题是速度感人
 
 
-
-
-
-
-
 -----
 
 ####  NTの末裔  
 ##### 406#       发表于 2017-9-4 09:49
 
 
-
-
 S1在国服有没有公会?
-
-
-
-
-
 
 
 -----
 
 ####  森田美位子  
 ##### 407#       发表于 2017-9-4 12:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37090325&amp;ptid=1478318" target="_blank">liaoyaaa 发表于 2017-9-4 09:17</a>
@@ -8371,16 +5697,10 @@ arc的好处是不用精准指向目标，AOE无脑。缺点也很明显，单�
 技能连接堆伤害，一路靠莽。打boss上个诅咒，插个嘲讽图腾
 
 
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 408#       发表于 2017-9-4 12:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37090289&amp;ptid=1478318" target="_blank">liaoyaaa 发表于 2017-9-4 09:12</a>
@@ -8392,16 +5712,10 @@ arc的好处是不用精准指向目标，AOE无脑。缺点也很明显，单�
 然后这个法术其实比那堆引导法术其实还是自在点的，放完4发就可以动了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kula01  
 ##### 409#       发表于 2017-9-4 19:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37083449&amp;ptid=1478318" target="_blank">大主教伊瑞尔 发表于 2017-9-3 13:11</a>
@@ -8410,16 +5724,10 @@ arc的好处是不用精准指向目标，AOE无脑。缺点也很明显，单�
 <img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">这跟页游广告有什么区别。
 
 
-
-
-
-
-
 -----
 
 ####  v22325  
 ##### 410#       发表于 2017-9-4 20:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37090325&amp;ptid=1478318" target="_blank">liaoyaaa 发表于 2017-9-4 09:17</a>
@@ -8432,16 +5740,10 @@ arc的好处是不用精准指向目标，AOE无脑。缺点也很明显，单�
 技能脱手感觉特别别扭 和玩的游侠射箭那种爽快感简直不能比 
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 411#         楼主| 发表于 2017-9-4 23:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37096674&amp;ptid=1478318" target="_blank">v22325 发表于 2017-9-4 20:13</a>
@@ -8455,17 +5757,10 @@ arc的好处是不用精准指向目标，AOE无脑。缺点也很明显，单�
 个人习惯是丢诅咒  丢哪儿仆从去哪儿  而且诅咒释放快  同时增加输出
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 412#         楼主| 发表于 2017-9-4 23:57
-
-
 
 
 最近打算返修下2L  把过去帖子主要更新了什么加个简单注明 然后把POB等一系列玩家可能会用到的辅助网站等全丢上来
@@ -8474,16 +5769,10 @@ arc的好处是不用精准指向目标，AOE无脑。缺点也很明显，单�
 不过另一个问题--------如果打算把这楼当做永久专题楼的话  以后就不能像过去几个版本那样直接开个传送门解决    而且你坛无法收缩隐藏         有什么方法可以论坛内解决内容放置吗? 比如说是否有专用用来放长文转帖的区?  或者说还是开个博客什么的直接转外链?
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 413#         楼主| 发表于 2017-9-5 00:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37088663&amp;ptid=1478318" target="_blank">liaoyaaa 发表于 2017-9-3 23:44</a>
@@ -8508,16 +5797,10 @@ arc的好处是不用精准指向目标，AOE无脑。缺点也很明显，单�
 另外也可以考虑带个嘲讽图腾  或者弄个超肉的魔相   总之其他什么东西吸引怪 然后本体朝吸引点不断丢落雷  这个打法比较效率 不用担心到处点分散伤害
 
 
-
-
-
-
-
 -----
 
 ####  厨具战士  
 ##### 414#       发表于 2017-9-5 00:40
-
 
 
  本帖最后由 厨具战士 于 2017-9-5 00:44 编辑 
@@ -8527,16 +5810,10 @@ arc的好处是不用精准指向目标，AOE无脑。缺点也很明显，单�
 电弧成型后割草就行了，BOSS战苦手，最好不打。开荒的话前期Boss通通电力释放站桩喷死，中后期放雷珠+位移慢慢磨吧，没什么好办法。
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 415#       发表于 2017-9-5 01:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37098502&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2017-9-4 23:57</a>
@@ -8547,16 +5824,10 @@ arc的好处是不用精准指向目标，AOE无脑。缺点也很明显，单�
 比如，你这楼的链接是：[https://bbs.saraba1st.com/2b/for ... page=14#pid37098502](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1478318&amp;page=14#pid37098502)
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 416#       发表于 2017-9-5 01:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37096674&amp;ptid=1478318" target="_blank">v22325 发表于 2017-9-4 20:13</a>
@@ -8567,25 +5838,13 @@ arc的好处是不用精准指向目标，AOE无脑。缺点也很明显，单�
 作为召唤，施法不光是为了指挥召唤物去攻击，还能给怪物上诅咒、上EE（Elemental Equilibrium，元素平衡？元素之相？）的作用
 
 
-
-
-
-
-
 -----
 
 ####  林登万  
 ##### 417#       发表于 2017-9-5 03:57
 
 
-
-
 请问国际服的词缀补丁哪里有下载？
-
-
-
-
-
 
 
 -----
@@ -8594,17 +5853,10 @@ arc的好处是不用精准指向目标，AOE无脑。缺点也很明显，单�
 ##### 418#       发表于 2017-9-5 11:12
 
 
-
-
 玩召唤最烦的一点：要先去招特定的怪....我玩Solar Guard Spectre Summoner，每次都要去花10分钟召唤....
 
 
 掉线一下，瞬间崩溃。
-
-
-
-
-
 
 
 -----
@@ -8613,16 +5865,10 @@ arc的好处是不用精准指向目标，AOE无脑。缺点也很明显，单�
 ##### 419#       发表于 2017-9-5 11:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37098807&amp;ptid=1478318" target="_blank">厨具战士 发表于 2017-9-5 00:40</a>
 
 感觉无召唤女巫最好的防御手段还是奉献女魔（召唤师天赋，本来作用于召唤物的法术也作用于自身）+骸骨奉献 ...</blockquote>
 我用元素玩电也试了下，手上不拿东西，带个电伤空手的那个手套，直接用手套上的技能砸地板，除了近战范围以外几乎完美。。。
-
-
-
-
-
 
 
 -----
@@ -8631,16 +5877,10 @@ arc的好处是不用精准指向目标，AOE无脑。缺点也很明显，单�
 ##### 420#       发表于 2017-9-5 16:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37102224&amp;ptid=1478318" target="_blank">神手之兔 发表于 2017-9-5 11:38</a>
 
 我用元素玩电也试了下，手上不拿东西，带个电伤空手的那个手套，直接用手套上的技能砸地板，除了近战范围 ...</blockquote>
 D哥拳最大的问题不是范围，范围稍微投入一点妥妥半个屏幕，而是攻速太低了。
-
-
-
-
-
 
 
 -----
@@ -8649,16 +5889,10 @@ D哥拳最大的问题不是范围，范围稍微投入一点妥妥半个屏幕�
 ##### 421#       发表于 2017-9-5 16:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37104717&amp;ptid=1478318" target="_blank">NT2sS 发表于 2017-9-5 16:12</a>
 
 D哥拳最大的问题不是范围，范围稍微投入一点妥妥半个屏幕，而是攻速太低了。 ...</blockquote>
 攻速的话，带了一个攻速提升，一个绿色的那个杀怪提升攻速，基本合适，但是这个必须得备一个免晕手段，不然冲进人群经常被打断放不出拳头。。。
-
-
-
-
-
 
 
 -----
@@ -8667,24 +5901,16 @@ D哥拳最大的问题不是范围，范围稍微投入一点妥妥半个屏幕�
 ##### 422#       发表于 2017-9-5 17:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37104990&amp;ptid=1478318" target="_blank">神手之兔 发表于 2017-9-5 16:39</a>
 
 攻速的话，带了一个攻速提升，一个绿色的那个杀怪提升攻速，基本合适，但是这个必须得备一个免晕手段，不 ...</blockquote>
 这个赛季打出了D哥拳之后一直在研究，开荒倒是可以因为自带5L，后面提升不太好弄，至少SSF不好弄
 
 
-
-
-
-
-
-
 -----
 
 ####  神手之兔  
 ##### 423#       发表于 2017-9-5 17:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37105352&amp;ptid=1478318" target="_blank">ShadowEye 发表于 2017-9-5 17:09</a>
@@ -8696,16 +5922,10 @@ D哥拳最大的问题不是范围，范围稍微投入一点妥妥半个屏幕�
 SSF是啥？
 
 
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 424#       发表于 2017-9-5 17:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37105456&amp;ptid=1478318" target="_blank">神手之兔 发表于 2017-9-5 17:18</a>
@@ -8714,16 +5934,10 @@ SSF是啥？</blockquote>
 自力模式
 
 
-
-
-
-
-
 -----
 
 ####  大主教伊瑞尔  
 ##### 425#       发表于 2017-9-6 07:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37096341&amp;ptid=1478318" target="_blank">kula01 发表于 2017-9-4 19:33</a>
@@ -8735,17 +5949,10 @@ SSF是啥？</blockquote>
 不过这算是内行看门道了，熟悉这游戏的meta的才会比较容易get到我贴这图想说什么
 
 
-
-
-
-
-
 -----
 
 ####  安昌林  
 ##### 426#       发表于 2017-9-6 07:56
-
-
 
 
 剧情难度过渡不平滑啊，轻松到第6章，遇到那个好像叫唤火者的boss就秒扑了
@@ -8753,16 +5960,10 @@ SSF是啥？</blockquote>
 根本没那么多抗性堆
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 427#       发表于 2017-9-6 08:23
-
 
 
  本帖最后由 森田美位子 于 2017-9-6 09:24 编辑 
@@ -8774,32 +5975,19 @@ SSF是啥？</blockquote>
 如果只是抗性不够，你平时在推剧情的时候，留心捡一些单抗性戒指，商店也可以买。白、蓝的也没关系，满roll是30，打boss时临时换上
 
 
-
-
-
-
-
 -----
 
 ####  liaoyaaa  
 ##### 428#       发表于 2017-9-6 09:11
 
 
-
-
 被怪虐的不行了，果断换了个决斗，目前第四章感觉良好，追着我法师打的BOSS现在都是站撸<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 429#         楼主| 发表于 2017-9-6 10:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37110795&amp;ptid=1478318" target="_blank">安昌林 发表于 2017-9-6 07:56</a>
@@ -8819,16 +6007,10 @@ SSF是啥？</blockquote>
 基本能做到常駐30+%   應急50+%的抗性救急
 
 
-
-
-
-
-
 -----
 
 ####  kula01  
 ##### 430#       发表于 2017-9-6 11:11
-
 
 
  本帖最后由 kula01 于 2017-9-6 19:58 编辑 
@@ -8843,25 +6025,13 @@ SSF是啥？</blockquote>
 下一步，打算再起一个那个8000血幽魂召唤，不知道行不行了。
 
 
-
-
-
-
-
 -----
 
 ####  督战政委  
 ##### 431#       发表于 2017-9-6 11:12
 
 
-
-
 LZ如果可以话，帖一些优秀BD的网站吧
-
-
-
-
-
 
 
 -----
@@ -8870,16 +6040,10 @@ LZ如果可以话，帖一些优秀BD的网站吧
 ##### 432#       发表于 2017-9-6 11:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37104990&amp;ptid=1478318" target="_blank">神手之兔 发表于 2017-9-5 16:39</a>
 
 攻速的话，带了一个攻速提升，一个绿色的那个杀怪提升攻速，基本合适，但是这个必须得备一个免晕手段，不 ...</blockquote>
 堆不起来伤害是关键，攻速解决的办法很多。
-
-
-
-
-
 
 
 -----
@@ -8888,23 +6052,16 @@ LZ如果可以话，帖一些优秀BD的网站吧
 ##### 433#       发表于 2017-9-6 11:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37112842&amp;ptid=1478318" target="_blank">kula01 发表于 2017-9-6 11:11</a>
 
 还好我提前看了攻略，暴徒先祖，一路秒到第八章，昨天60级，手套都还是白的，一把白色自己点金的垃圾斧头 ...</blockquote>
 蠕虫戒吧，不过开两个光环是什么情况？双蠕虫？
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 434#       发表于 2017-9-6 12:05
-
 
 
  本帖最后由 森田美位子 于 2017-9-6 12:07 编辑 
@@ -8916,25 +6073,13 @@ LZ如果可以话，帖一些优秀BD的网站吧</blockquote>
 reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的人物链接信息，对老鸟来说也足够用了
 
 
-
-
-
-
-
 -----
 
 ####  liangjiami  
 ##### 435#       发表于 2017-9-6 13:08
 
 
-
-
 玩到第六章开始有点腻，关卡设计太水了，第五章开始地图突然变得又大又无聊
-
-
-
-
-
 
 
 -----
@@ -8943,23 +6088,16 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 ##### 436#       发表于 2017-9-6 13:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37113420&amp;ptid=1478318" target="_blank">猫骑士 发表于 2017-9-6 11:55</a>
 
 堆不起来伤害是关键，攻速解决的办法很多。</blockquote>
 伤害没什么堆不起来的，就算我一个女巫元素，造价不超过3C，也能达到5W一拳，问题是攻速。
 
 
-
-
-
-
-
 -----
 
 ####  kula01  
 ##### 437#       发表于 2017-9-6 15:49
-
 
 
  本帖最后由 kula01 于 2017-9-6 19:56 编辑 
@@ -8970,32 +6108,19 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 <img src="https://static.saraba1st.com/image/smiley/carton2017/222.png" referrerpolicy="no-referrer">麻蛋，搞了半天是我看走眼了。赶快编辑。
 
 
-
-
-
-
-
 -----
 
 ####  游戏无用  
 ##### 438#       发表于 2017-9-6 15:51
 
 
-
-
 求指导，派蒂的礼物与挑战，我挑战是个4连装备，我用链接石点了一个，但是领取奖励显示我没完成任务，明天10点再来，求如何完成？
-
-
-
-
-
 
 
 -----
 
 ####  森田美位子  
 ##### 439#       发表于 2017-9-6 16:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37114674&amp;ptid=1478318" target="_blank">神手之兔 发表于 2017-9-6 13:50</a>
@@ -9006,17 +6131,10 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 就你这个技能而言，光是我能想到的就有：WED（我不确定是否支持空手）、added lightning damage、innervate、lightning penetration、IAOE、concentrated effect、faster attacks。再加上你在用的onslaught，即便不算WED，你也是7选4，而正常能6L的技能，可以7选5，dps肯定是后者要高
 
 
-
-
-
-
-
 -----
 
 ####  JimmyZ  
 ##### 440#       发表于 2017-9-6 19:16
-
-
 
 
 打了几天, 写点评价
@@ -9045,16 +6163,10 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 要我主观评价这比D3差远了, 但是口味很不一样, 值得一试, 比什么火炬之光强十万八千里.
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 441#       发表于 2017-9-6 20:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37117922&amp;ptid=1478318" target="_blank">JimmyZ 发表于 2017-9-6 19:16</a>
@@ -9074,16 +6186,10 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 副本重置我倒是没看出有什么太大的问题，这游戏是鼓励你rush的，哪怕是在推剧情的阶段
 
 
-
-
-
-
-
 -----
 
 ####  安昌林  
 ##### 442#       发表于 2017-9-6 20:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37112394&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2017-9-6 10:38</a>
@@ -9097,16 +6203,10 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 隔壁的傀儡女王都轻松过关
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 443#       发表于 2017-9-6 20:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37118407&amp;ptid=1478318" target="_blank">安昌林 发表于 2017-9-6 20:23</a>
@@ -9117,16 +6217,10 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 这个不是主线任务，可以先推主线回头再打也行
 
 
-
-
-
-
-
 -----
 
 ####  安昌林  
 ##### 444#       发表于 2017-9-6 20:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37118557&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-9-6 20:46</a>
@@ -9135,16 +6229,10 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 也只能这样的，好累
 
 
-
-
-
-
-
 -----
 
 ####  帕林马哲理  
 ##### 445#       发表于 2017-9-6 21:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37117922&amp;ptid=1478318" target="_blank">JimmyZ 发表于 2017-9-6 12:16</a>
@@ -9156,32 +6244,19 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 虽然比火炬之光强，但我还是很怀念火炬之光的宠物，可以捡东西卖多好啊！还可以变身。
 
 
-
-
-
-
-
 -----
 
 ####  目鱼  
 ##### 446#       发表于 2017-9-6 21:37
 
 
-
-
 地图可以缩放啊小键盘上的加减就可以了啊
-
-
-
-
-
 
 
 -----
 
 ####  ShadowEye  
 ##### 447#       发表于 2017-9-6 22:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37117922&amp;ptid=1478318" target="_blank">JimmyZ 发表于 2017-9-6 19:16</a>
@@ -9193,16 +6268,10 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 关于美工我一直无法接受D3没有继承D2的写实风格而把场景故意弄得象cg动画一样
 
 
-
-
-
-
-
 -----
 
 ####  雪风雾雨  
 ##### 448#       发表于 2017-9-7 00:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37118613&amp;ptid=1478318" target="_blank">安昌林 发表于 2017-9-6 20:53</a>
@@ -9211,16 +6280,10 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">我是打到第十章再回头打的,后面堆高抗性就简单了
 
 
-
-
-
-
-
 -----
 
 ####  最美人贩子  
 ##### 449#       发表于 2017-9-7 01:00
-
 
 
 <blockquote>安昌林 发表于 2017-9-6 20:23
@@ -9234,16 +6297,10 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 倒是第八章德瑞吓了一跳，主要是不知道转阀门的窍门。
 
 
-
-
-
-
-
 -----
 
 ####  JimmyZ  
 ##### 450#       发表于 2017-9-7 14:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37118315&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-9-6 20:09</a>
@@ -9255,16 +6312,10 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 智能掉落看来是因为我没玩到后期.
 
 
-
-
-
-
-
 -----
 
 ####  v22325  
 ##### 451#       发表于 2017-9-7 15:24
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">剧情终于打完了 开始异界地图吃瘪之旅 
@@ -9272,16 +6323,10 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 装备主要还是抗性血量先撑生存力？
 
 
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 452#       发表于 2017-9-7 15:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37125588&amp;ptid=1478318" target="_blank">v22325 发表于 2017-9-7 15:24</a>
@@ -9297,17 +6342,10 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 技能和伤害以能迅速清小怪为准，前期boss单体不给力不要紧带个嘲讽图腾要磨还是能磨死的，但是招小怪的Boss全是不讲理的类型比如蜘蛛线那一系，清怪速度不给力T1都打不过
 
 
-
-
-
-
-
 -----
 
 ####  真红之闪电  
 ##### 453#       发表于 2017-9-7 15:52
-
-
 
 
 升华试炼死三回了…妈的有木有路不走陷阱啊
@@ -9315,16 +6353,10 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
 
 
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 454#       发表于 2017-9-7 16:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37125874&amp;ptid=1478318" target="_blank">真红之闪电 发表于 2017-9-7 15:52</a>
@@ -9360,17 +6392,10 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 这都死了就下一趟，一般这样还能无解的场合不会连续两次出现
 
 
-
-
-
-
-
-
 -----
 
 ####  真红之闪电  
 ##### 455#       发表于 2017-9-7 17:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37126043&amp;ptid=1478318" target="_blank">ShadowEye 发表于 2017-09-07 16:08:30</a>
@@ -9383,16 +6408,10 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 456#       发表于 2017-9-7 17:39
-
 
 
  本帖最后由 森田美位子 于 2017-9-7 17:41 编辑 
@@ -9404,16 +6423,10 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 实际上，真正卡你换build的是这些
 
 
-
-
-
-
-
 -----
 
 ####  JimmyZ  
 ##### 457#       发表于 2017-9-7 17:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37127089&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-9-7 17:39</a>
@@ -9425,16 +6438,10 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 重点是, 不让随便洗怎么吹也不能算是优点, 多样性才是.
 
 
-
-
-
-
-
 -----
 
 ####  poegeek  
 ##### 458#       发表于 2017-9-7 19:28
-
 
 
  本帖最后由 poegeek 于 2017-9-7 19:29 编辑 
@@ -9447,25 +6454,13 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 之前也有人说过了，洗点需要成本和后期的map系统是相关的，每个build都有优缺点，同样的map mod对不同的build会造成不同的威胁，所以才能体现出不同build的个性。0成本洗点只会让map系统里的一大片mod变得毫无意义。洗点成本说不上是优点，但也不是缺点，只是系统的一个组成部分而已。
 
 
-
-
-
-
-
 -----
 
 ####  飞雨阁  
 ##### 459#       发表于 2017-9-7 20:06
 
 
-
-
 国服被莫名其妙封号了，就当解毒了
-
-
-
-
-
 
 
 -----
@@ -9474,25 +6469,16 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 ##### 460#       发表于 2017-9-8 03:14
 
 
-
-
 这两天出了穿心箭袋和狙击弓、突然想到3.0对Powerful Precision的改动是教人只要有穿透为所欲为啊……
 
 
 死眼升华现在光是4点升华就能拿180%暴击和40%暴击加成……
 
 
-
-
-
-
-
 -----
 
 ####  克莉丝汀  
 ##### 461#       发表于 2017-9-9 09:56
-
-
 
 
 这几天第一次练了个召唤，装备基本靠捡，现在70级还只带了3瓶药，红药还不是不朽药剂，一路碾压
@@ -9518,16 +6504,10 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
 
 
-
-
-
-
-
 -----
 
 ####  kula01  
 ##### 462#       发表于 2017-9-9 10:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37144301&amp;ptid=1478318" target="_blank">克莉丝汀 发表于 2017-9-9 09:56</a>
@@ -9538,17 +6518,10 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 我也想起一个这个，那幽魂怎么招啊，必须开了异界的图，然后亵渎，然后再招吗？如果掉线或者死了，幽魂还在吗？   开异界招的话，图的等级有没有要求啊。
 
 
-
-
-
-
-
 -----
 
 ####  mamamiya  
 ##### 463#       发表于 2017-9-9 11:15
-
-
 
 
 下线就要重招，同类幽魂强度只看等级，精英怪的mod是不会有的，怪的等级看地图等级，亵渎出来的不会超过当前地图等级。
@@ -9556,16 +6529,10 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 —— 来自 HUAWEI NXT-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 464#         楼主| 发表于 2017-9-9 13:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37144301&amp;ptid=1478318" target="_blank">克莉丝汀 发表于 2017-9-9 09:56</a>
@@ -9582,27 +6549,15 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 如果近战仆从能吃天赋上的近战加成  法术仆从能吃天赋上的法伤加成等  那么就可以让其他进阶也能玩
 
 
-
-
-
-
-
 -----
 
 ####  电动犀牛  
 ##### 465#       发表于 2017-9-9 14:41
 
 
-
-
 问下现在毒弓还能玩吗，一直没有玩过混沌伤的bd想试试
 
 谁起手比较合适呢
-
-
-
-
-
 
 
 -----
@@ -9611,23 +6566,15 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 ##### 466#       发表于 2017-9-9 15:03
 
 
-
-
 看到前面大佬的分析了ORZ
 
 先走个毒开荒吧，试试强度
-
-
-
-
-
 
 
 -----
 
 ####  大主教伊瑞尔  
 ##### 467#       发表于 2017-9-9 15:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37146966&amp;ptid=1478318" target="_blank">电动犀牛 发表于 2017-9-9 15:03</a>
@@ -9638,32 +6585,19 @@ reddit 有/r/pathofexile/，更多人的比较懒，发个视频付上自己的�
 3.0的毒.... 做好心理准备<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  克莉丝汀  
 ##### 468#       发表于 2017-9-9 15:46
 
 
-
-
 不不，仆从还是可连上目盲，护体等状态的
-
-
-
-
-
 
 
 -----
 
 ####  森田美位子  
 ##### 469#       发表于 2017-9-9 16:18
-
 
 
  本帖最后由 森田美位子 于 2017-9-9 16:34 编辑 
@@ -9692,16 +6626,10 @@ AG配置：
 僵尸是炮灰
 
 
-
-
-
-
-
 -----
 
 ####  kula01  
 ##### 470#       发表于 2017-9-9 21:56
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那个   40一组的知识卷轴1C是怎么回事，我看市集里全挂着这个价，真的有人买吗？
@@ -9710,16 +6638,10 @@ AG配置：
 而且我这种金装手痒想鉴定的简直被逼死了，知识卷轴不够用。
 
 
-
-
-
-
-
 -----
 
 ####  DawnGuardian  
 ##### 471#       发表于 2017-9-9 22:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37150033&amp;ptid=1478318" target="_blank">kula01 发表于 2017-9-9 21:56</a>
@@ -9733,16 +6655,10 @@ AG配置：
 缺知识卷轴就卖回城卷轴和蓝石头啊，另外你金装得有多才能让知识卷轴不够用啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 472#       发表于 2017-9-9 22:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37150033&amp;ptid=1478318" target="_blank">kula01 发表于 2017-9-9 21:56</a>
@@ -9754,32 +6670,19 @@ AG配置：
 蓝石头不值钱卷轴不够可以拿去换点（其实还是能花掉的只是洗药水一般是一次性投资，大师做装现在不怎么流行），回城卷轴开始farm之后一张图捡个2、30个不成问题，全金装鉴定都够开销还有找
 
 
-
-
-
-
-
 -----
 
 ####  ikaika  
 ##### 473#       发表于 2017-9-10 10:09
 
 
-
-
 其他职业也能玩召唤啊，比如嘎腚君吹和药娘麻绳腰，非主流且有缺陷罢了。
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 474#         楼主| 发表于 2017-9-10 13:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37146966&amp;ptid=1478318" target="_blank">电动犀牛 发表于 2017-9-9 15:03</a>
@@ -9800,25 +6703,13 @@ AG配置：
 还是玩其他更简单直接的流派更好  上手了后再考虑其他的
 
 
-
-
-
-
-
 -----
 
 ####  雪风雾雨  
 ##### 475#       发表于 2017-9-10 15:35
 
 
-
-
 说个奇怪的,有些异界地图的特定角度能看到最上方有个半透明的人浮在那...是什么特殊设定吗
-
-
-
-
-
 
 
 -----
@@ -9827,16 +6718,10 @@ AG配置：
 ##### 476#       发表于 2017-9-10 15:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37156212&amp;ptid=1478318" target="_blank">雪风雾雨 发表于 2017-9-10 15:35</a>
 
 说个奇怪的,有些异界地图的特定角度能看到最上方有个半透明的人浮在那...是什么特殊设定吗 ...</blockquote>
 有一种怪死了以后模型是升天隐藏起来的，然后有时候视角调整出问题，就闹鬼了……
-
-
-
-
-
 
 
 -----
@@ -9845,16 +6730,10 @@ AG配置：
 ##### 477#       发表于 2017-9-10 16:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37156230&amp;ptid=1478318" target="_blank">poegeek 发表于 2017-9-10 15:37</a>
 
 有一种怪死了以后模型是升天隐藏起来的，然后有时候视角调整出问题，就闹鬼了…… ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">原来如此,每次都感觉被什么人监视着,很不舒服
-
-
-
-
-
 
 
 -----
@@ -9863,21 +6742,13 @@ AG配置：
 ##### 478#       发表于 2017-9-11 16:26
 
 
-
-
 国际服玩了个药侠刀阵，电水应该自己慢慢去刷还是直接砸钱买一个？感觉打boss太便秘了，而且没电水只能靠督军诅咒吸一点血，容错率太低，经常死<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  sekai-R  
 ##### 479#       发表于 2017-9-11 17:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37147483&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-9-9 16:18</a>
@@ -9888,32 +6759,19 @@ AG配置：
 补充一下 这个活化守卫最好放武器上，他要死了直接按X切武器就能保住
 
 
-
-
-
-
-
 -----
 
 ####  liaoyaaa  
 ##### 480#       发表于 2017-9-12 17:36
 
 
-
-
 大佬们有没有啥造价比较低的BD，推荐下呗，想多试试别的流派
-
-
-
-
-
 
 
 -----
 
 ####  DarkDancer  
 ##### 481#       发表于 2017-9-12 18:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=37177843&amp;amp;ptid=1478318" target="_blank">liaoyaaa 发表于 2017-9-12 17:36</a>
@@ -9926,16 +6784,10 @@ AG配置：
 当然最省心的还是暴徒 
 
 
-
-
-
-
-
 -----
 
 ####  大主教伊瑞尔  
 ##### 482#       发表于 2017-9-13 02:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37177843&amp;ptid=1478318" target="_blank">liaoyaaa 发表于 2017-9-12 17:36</a>
@@ -9944,32 +6796,19 @@ AG配置：
 你随便说个想玩的风格，我基本能说出个造价低的方案
 
 
-
-
-
-
-
 -----
 
 ####  加里波第  
 ##### 483#       发表于 2017-9-13 03:28
 
 
-
-
 召唤怎么玩 那个存在三十秒的火灵到底怎么叫满二十个出来
-
-
-
-
-
 
 
 -----
 
 ####  liaoyaaa  
 ##### 484#       发表于 2017-9-13 06:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37182304&amp;ptid=1478318" target="_blank">大主教伊瑞尔 发表于 2017-9-13 02:41</a>
@@ -9980,16 +6819,10 @@ AG配置：
 之前玩的法师老被秒，经常死于不明AOE
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 485#       发表于 2017-9-13 09:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37182538&amp;ptid=1478318" target="_blank">加里波第 发表于 2017-9-13 03:28</a>
@@ -9998,16 +6831,10 @@ AG配置：
 天赋上有增加技能持续时间的点，还有把施法速度提升上去
 
 
-
-
-
-
-
 -----
 
 ####  大主教伊瑞尔  
 ##### 486#       发表于 2017-9-13 10:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37182853&amp;ptid=1478318" target="_blank">liaoyaaa 发表于 2017-9-13 06:40</a>
@@ -10024,17 +6851,10 @@ AG配置：
 玩攻击系也可以很便宜，玩元素系，主要伤害来源于石头等级，对武器本身伤害要求不高，所以可以避开各种被炒贵的热门暗金，例如我在这楼前面贴过的我这赛季的纯冰冰刀侠客。
 
 
-
-
-
-
-
-
 -----
 
 ####  liaoyaaa  
 ##### 487#       发表于 2017-9-13 11:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37184659&amp;ptid=1478318" target="_blank">大主教伊瑞尔 发表于 2017-9-13 10:45</a>
@@ -10043,17 +6863,10 @@ AG配置：
 3Q,我去搜搜BD
 
 
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 488#       发表于 2017-9-13 12:47
-
-
 
 
 翻截图想起来个事，就是3.0之后多了一个lore，关于马哥把宝石皇后和派蒂对比的
@@ -10061,16 +6874,10 @@ AG配置：
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但没记错派蒂还是个卵子的时候马哥应该已经早进去兽腹闭关修仙了吧，这两个人怎样交集的……
 
 
-
-
-
-
-
 -----
 
 ####  kula01  
 ##### 489#       发表于 2017-9-13 22:21
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这物价，真无语了啊。
@@ -10082,25 +6889,13 @@ AG配置：
 我干脆收了一堆T3图，去刷谦逊卡了。
 
 
-
-
-
-
-
 -----
 
 ####  DawnGuardian  
 ##### 490#       发表于 2017-9-14 00:33
 
 
-
-
 说起来这版本白富美有没有什么便宜点的双手剑或双手斧build？不一定要亲自施法，用爷爷图腾的也行。之前玩了个老头的图腾build，虽然挺安逸但是人物造型实在太猥琐，拿俩小棒子看着也不够时髦，想换一个cool一点的build玩玩
-
-
-
-
-
 
 
 -----
@@ -10109,14 +6904,7 @@ AG配置：
 ##### 491#       发表于 2017-9-14 04:33
 
 
-
-
 借楼问个问题，各位dalao，6洞装备用orb of fusing做出5洞相连的几率和5洞装备用orb of fusing做出5洞相连的几率是不是一样？
-
-
-
-
-
 
 
 -----
@@ -10125,16 +6913,10 @@ AG配置：
 ##### 492#       发表于 2017-9-14 05:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37192820&amp;ptid=1478318" target="_blank">overthink 发表于 2017-9-14 04:33</a>
 
 借楼问个问题，各位dalao，6洞装备用orb of fusing做出5洞相连的几率和5洞装备用orb of fusing做出5洞相连 ...</blockquote>
 不一样，5洞5连的几率要更低，所以一般都是点到6洞才点的
-
-
-
-
-
 
 
 -----
@@ -10143,16 +6925,10 @@ AG配置：
 ##### 493#       发表于 2017-9-14 12:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37192820&amp;ptid=1478318" target="_blank">overthink 发表于 2017-9-14 04:33</a>
 
 借楼问个问题，各位dalao，6洞装备用orb of fusing做出5洞相连的几率和5洞装备用orb of fusing做出5洞相连 ...</blockquote>
 能点6洞没任何理由点5洞，万一脸好6L了呢？
-
-
-
-
-
 
 
 -----
@@ -10161,14 +6937,7 @@ AG配置：
 ##### 494#       发表于 2017-9-15 01:43
 
 
-
-
 想请教下,如果要点6连,是收1200个找大师划算还是要自己点?之前点了50个就一次5连...
-
-
-
-
-
 
 
 -----
@@ -10177,21 +6946,13 @@ AG配置：
 ##### 495#       发表于 2017-9-15 07:23
 
 
-
-
 恭喜下泥潭你群大佬拿下鹅服HC第一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  poegeek  
 ##### 496#       发表于 2017-9-15 07:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37203005&amp;ptid=1478318" target="_blank">雪风雾雨 发表于 2017-9-15 01:43</a>
@@ -10202,16 +6963,10 @@ AG配置：
 我依稀记得手点6l的预期好像是1200个。
 
 
-
-
-
-
-
 -----
 
 ####  Wiksy  
 ##### 497#       发表于 2017-9-15 07:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37203634&amp;ptid=1478318" target="_blank">poegeek 发表于 2017-9-15 07:45</a>
@@ -10222,25 +6977,13 @@ AG配置：
 应该是0q的时候预期也在1500，但是可以20q了之后再点，所以预期要比1500低
 
 
-
-
-
-
-
 -----
 
 ####  雪风雾雨  
 ##### 498#       发表于 2017-9-15 09:49
 
 
-
-
 品质和几率也有关系吗?那就是说我这种脸黑的保险起见还是要靠大师了..
-
-
-
-
-
 
 
 -----
@@ -10249,21 +6992,13 @@ AG配置：
 ##### 499#       发表于 2017-9-15 17:05
 
 
-
-
 想问下酋长熔岩之核能玩到End game吗，如果能End game造价和难度高不高？
-
-
-
-
-
 
 
 -----
 
 ####  森田美位子  
 ##### 500#       发表于 2017-9-15 17:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37204635&amp;ptid=1478318" target="_blank">雪风雾雨 发表于 2017-9-15 09:49</a>
@@ -10274,16 +7009,10 @@ AG配置：
 不交易的话，自己攒1500要花很久。现在点链接不会掉q，期望值肯定要比1500低不少。所以5L 6L手点比较好
 
 
-
-
-
-
-
 -----
 
 ####  雪风雾雨  
 ##### 501#       发表于 2017-9-15 17:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37209500&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-9-15 17:09</a>
@@ -10294,32 +7023,19 @@ AG配置：
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">好的,攒了200多了,凑400个去试试
 
 
-
-
-
-
-
 -----
 
 ####  菠萝蜜  
 ##### 502#       发表于 2017-9-15 18:01
 
 
-
-
 3.0最大的感觉BOSS血量提升的太狠了，10wDPS的大地震击打T13船坞的BOSS足足站撸了1分钟，2.6版本同样的战力打到T17都没感觉这么吃力。
-
-
-
-
-
 
 
 -----
 
 ####  森田美位子  
 ##### 503#       发表于 2017-9-15 22:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37192217&amp;ptid=1478318" target="_blank">DawnGuardian 发表于 2017-9-14 00:33</a>
@@ -10332,16 +7048,10 @@ AG配置：
 现在理论上应该还能玩。但是少了两个部位，还要再绑定3个暗金，抗性和血真不好堆
 
 
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 504#       发表于 2017-9-16 12:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37210110&amp;ptid=1478318" target="_blank">菠萝蜜 发表于 2017-9-15 18:01</a>
@@ -10359,16 +7069,10 @@ AG配置：
 面对满地尸体，什么奉献冰圈全用上了，15分钟之后我默默重开了一张新图<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  DawnGuardian  
 ##### 505#       发表于 2017-9-16 18:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37215969&amp;ptid=1478318" target="_blank">ShadowEye 发表于 2017-9-16 12:26</a>
@@ -10380,16 +7084,10 @@ AG配置：
 3.0这BOSS血量改动让某些能回血的BOSS变得异常恶心，尤其是在装备不好的开荒阶段。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  大主教伊瑞尔  
 ##### 506#       发表于 2017-9-16 18:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37215969&amp;ptid=1478318" target="_blank">ShadowEye 发表于 2017-9-16 12:26</a>
@@ -10401,16 +7099,10 @@ AG配置：
 打不死挺好，这图本身就是开了不如不开... 这辣鸡地形完全不想刷
 
 
-
-
-
-
-
 -----
 
 ####  飞雨阁  
 ##### 507#       发表于 2017-9-18 15:59
-
 
 
  本帖最后由 飞雨阁 于 2017-9-18 16:05 编辑 
@@ -10422,16 +7114,10 @@ AG配置：
 为什么完全没人玩震波图腾？
 
 
-
-
-
-
-
 -----
 
 ####  poegeek  
 ##### 508#       发表于 2017-9-18 16:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37237474&amp;ptid=1478318" target="_blank">飞雨阁 发表于 2017-9-18 15:59</a>
@@ -10442,16 +7128,10 @@ AG配置：
 瞎眼聋耳，范围小还推怪，蓝耗爆炸。另外冰川打boss的时候实际伤害要x2 x3的，因为能多段hit。
 
 
-
-
-
-
-
 -----
 
 ####  飞雨阁  
 ##### 509#       发表于 2017-9-18 16:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37237566&amp;ptid=1478318" target="_blank">poegeek 发表于 2017-9-18 16:08</a>
@@ -10460,16 +7140,10 @@ AG配置：
 原来是这样，感谢解惑
 
 
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 510#       发表于 2017-9-18 17:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37219078&amp;ptid=1478318" target="_blank">大主教伊瑞尔 发表于 2017-9-16 18:59</a>
@@ -10481,16 +7155,10 @@ AG配置：
 改了血量之后硬生生多了道dps门槛<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 511#       发表于 2017-9-18 17:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37237474&amp;ptid=1478318" target="_blank">飞雨阁 发表于 2017-9-18 15:59</a>
@@ -10504,16 +7172,10 @@ AG配置：
 还不如直接上爷爷图腾
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 512#       发表于 2017-9-18 19:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37238344&amp;ptid=1478318" target="_blank">ShadowEye 发表于 2017-9-18 17:15</a>
@@ -10527,25 +7189,13 @@ AG配置：
 wiki SWT数据：Totem range is 100
 
 
-
-
-
-
-
 -----
 
 ####  加里波第  
 ##### 513#       发表于 2017-9-18 20:11
 
 
-
-
 第三章刷到一把箩丝之触 这玩意有用吗 同地图的弓面板dps比这个高不少
-
-
-
-
-
 
 
 -----
@@ -10554,23 +7204,16 @@ wiki SWT数据：Totem range is 100
 ##### 514#       发表于 2017-9-18 20:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37240149&amp;ptid=1478318" target="_blank">加里波第 发表于 2017-9-18 20:11</a>
 
 第三章刷到一把箩丝之触 这玩意有用吗 同地图的弓面板dps比这个高不少</blockquote>
 推剧情的过程中，哪个面板高用哪个
 
 
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 515#       发表于 2017-9-18 21:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37239759&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-9-18 19:33</a>
@@ -10583,16 +7226,10 @@ wiki SWT数据：Totem range is 100</blockquote><img src="https://pathofexile.ga
 100是施法距离，100半径你能以屏幕为单位炸烂所有有血条的敌人
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 516#       发表于 2017-9-18 21:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37240689&amp;ptid=1478318" target="_blank">ShadowEye 发表于 2017-9-18 21:13</a>
@@ -10603,16 +7240,10 @@ wiki SWT数据：Totem range is 100</blockquote><img src="https://pathofexile.ga
 总之没听过和武器攻击距离有关
 
 
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 517#       发表于 2017-9-18 21:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37240797&amp;ptid=1478318" target="_blank">森田美位子 发表于 2017-9-18 21:27</a>
@@ -10623,17 +7254,10 @@ wiki SWT数据：Totem range is 100</blockquote><img src="https://pathofexile.ga
 ……我也没说和武器攻击距离有关……
 
 
-
-
-
-
-
 -----
 
 ####  何边杨  
 ##### 518#       发表于 2017-9-18 23:04
-
-
 
 
 搜了一下这玩意儿是企鹅代理
@@ -10643,16 +7267,10 @@ wiki SWT数据：Totem range is 100</blockquote><img src="https://pathofexile.ga
 需要氪吗？
 
 
-
-
-
-
-
 -----
 
 ####  加里波第  
 ##### 519#       发表于 2017-9-18 23:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37241632&amp;ptid=1478318" target="_blank">何边杨 发表于 2017-9-18 23:04</a>
@@ -10665,24 +7283,13 @@ wiki SWT数据：Totem range is 100</blockquote><img src="https://pathofexile.ga
 出村第一张地图掉了一把传说短杖 第二章守关boss掉了个攻速翻倍传说短弓 第三章打剧情boss掉了一把上面提到的传说反曲弓
 
 
-
-
-
-
-
 -----
 
 ####  雪风雾雨  
 ##### 520#       发表于 2017-9-18 23:56
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这么说吧,你去交易网站花20块买120个混沌石,你就最少能打t15的图了.这游戏中游的装备太多,太便宜了...
-
-
-
-
-
 
 
 -----
@@ -10691,16 +7298,10 @@ wiki SWT数据：Totem range is 100</blockquote><img src="https://pathofexile.ga
 ##### 521#       发表于 2017-9-19 00:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37240858&amp;ptid=1478318" target="_blank">ShadowEye 发表于 2017-9-18 21:37</a>
 
 ……我也没说和武器攻击距离有关……</blockquote>
 你上面那个等号，我还以为是在说武器和SWT范围相关，看岔
-
-
-
-
-
 
 
 -----
@@ -10709,21 +7310,13 @@ wiki SWT数据：Totem range is 100</blockquote><img src="https://pathofexile.ga
 ##### 522#       发表于 2017-9-20 16:54
 
 
-
-
 没有宝石孔的那个传奇衣服那么贵的吗 我直接扔商店了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">感觉不会再爱了
-
-
-
-
-
 
 
 -----
 
 ####  GameTheory  
 ##### 523#       发表于 2017-9-20 19:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37241632&amp;ptid=1478318" target="_blank">何边杨 发表于 2017-9-18 23:04</a>
@@ -10740,16 +7333,10 @@ wiki SWT数据：Totem range is 100</blockquote><img src="https://pathofexile.ga
 然而我担心企鹅养不活... 
 
 
-
-
-
-
-
 -----
 
 ####  ShadowEye  
 ##### 524#       发表于 2017-9-20 20:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37256003&amp;ptid=1478318" target="_blank">目鱼 发表于 2017-9-20 16:54</a>
@@ -10758,32 +7345,19 @@ wiki SWT数据：Totem range is 100</blockquote><img src="https://pathofexile.ga
 大血甲就这么给你卖npc了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">………………
 
 
-
-
-
-
-
 -----
 
 ####  hytg10  
 ##### 525#       发表于 2017-9-21 08:55
 
 
-
-
 我，最终帝王试炼，跪了八次
-
-
-
-
-
 
 
 -----
 
 ####  kula01  
 ##### 526#       发表于 2017-9-22 10:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37241632&amp;ptid=1478318" target="_blank">何边杨 发表于 2017-9-18 23:04</a>
@@ -10808,16 +7382,10 @@ wiki SWT数据：Totem range is 100</blockquote><img src="https://pathofexile.ga
 建议想玩还是国际服，台服走起，国服和谐的不像话，满地的十字架看了都难受。
 
 
-
-
-
-
-
 -----
 
 ####  何边杨  
 ##### 527#       发表于 2017-9-22 10:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37272945&amp;ptid=1478318" target="_blank">kula01 发表于 2017-9-22 10:05</a>
@@ -10829,16 +7397,10 @@ wiki SWT数据：Totem range is 100</blockquote><img src="https://pathofexile.ga
 哪个延迟低点氛围好点
 
 
-
-
-
-
-
 -----
 
 ####  grasszyf  
 ##### 528#       发表于 2017-9-22 11:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37273516&amp;ptid=1478318" target="_blank">何边杨 发表于 2017-9-22 10:57</a>
@@ -10854,13 +7416,9 @@ wiki SWT数据：Totem range is 100</blockquote><img src="https://pathofexile.ga
 国际服（使用加速器）=国服&gt;&gt;国际服（直连日本/新加坡端口）=台服&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;国际服（直连其他端口）
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -10870,19 +7428,13 @@ wiki SWT数据：Totem range is 100</blockquote><img src="https://pathofexile.ga
 | 何边杨| + 1|感谢|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  可可洛酱  
 ##### 529#       发表于 2017-9-22 11:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37273608&amp;ptid=1478318" target="_blank">grasszyf 发表于 2017-9-22 11:04</a>
@@ -10896,32 +7448,19 @@ wiki SWT数据：Totem range is 100</blockquote><img src="https://pathofexile.ga
 当然如果你想跟玩家交易又不会英文的话还是只能去国服吃屎（还不如捡起词汇书边玩边学，汉化都省了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  woshiddbt  
 ##### 530#       发表于 2017-9-22 12:22
 
 
-
-
 直连国际服的速度其实要看网络供应商，我电信没精品网直连国际服用日本和新加坡接口就完全不如德州和阿姆斯特丹接口，所以实际还是要自己试试
-
-
-
-
-
 
 
 -----
 
 ####  暗黑Roy  
 ##### 531#       发表于 2017-9-22 13:34
-
 
 
  本帖最后由 暗黑Roy 于 2017-9-22 13:36 编辑 
@@ -10938,26 +7477,15 @@ wiki SWT数据：Totem range is 100</blockquote><img src="https://pathofexile.ga
 有心玩的真的去国际服得了,台服基本只能RMT,至于国服么,多亏了腾讯的全家桶,真是谁玩谁傻
 
 
-
-
-
-
-
 -----
 
 ####  liaoyaaa  
 ##### 532#       发表于 2017-9-22 13:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">说到和谐，我作为前D3玩家还是要说一句，TM刷图谁还看和谐不和谐，你还会注意尸体是怎么死的？
 
 你的眼神早就透过尸体和装备过滤看地上的装备和通货了
-
-
-
-
-
 
 
 -----
@@ -10966,14 +7494,7 @@ wiki SWT数据：Totem range is 100</blockquote><img src="https://pathofexile.ga
 ##### 533#       发表于 2017-9-22 14:03
 
 
-
-
 至于洗点，腾讯各种活动送的洗点数有两三百点，够你洗了，后面的号你多少有装备支持和BD规划，基本用不了多少洗点数，而且还有后悔石买，每天刷异界搬砖完全够用
-
-
-
-
-
 
 
 -----
@@ -10982,23 +7503,16 @@ wiki SWT数据：Totem range is 100</blockquote><img src="https://pathofexile.ga
 ##### 534#       发表于 2017-9-22 16:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37273516&amp;ptid=1478318" target="_blank">何边杨 发表于 2017-9-22 10:57</a>
 
 哪个延迟低点氛围好点</blockquote>
 不要只考虑延迟，服务器稳定才是最关键的，单这一点腾讯的国服就是死刑
 
 
-
-
-
-
-
 -----
 
 ####  mamamiya  
 ##### 535#       发表于 2017-9-22 17:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37275677&amp;ptid=1478318" target="_blank">liaoyaaa 发表于 2017-9-22 13:59</a>
@@ -11010,16 +7524,10 @@ wiki SWT数据：Totem range is 100</blockquote><img src="https://pathofexile.ga
 —— 来自 HUAWEI NXT-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  GameTheory  
 ##### 536#       发表于 2017-9-22 17:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37273608&amp;ptid=1478318" target="_blank">grasszyf 发表于 2017-9-22 11:04</a>
@@ -11030,16 +7538,10 @@ wiki SWT数据：Totem range is 100</blockquote><img src="https://pathofexile.ga
 国际服当年的更新xx到一定程度，只要一更新 我就更不了... 不知道现在咋样了
 
 
-
-
-
-
-
 -----
 
 ####  leeskies  
 ##### 537#       发表于 2017-9-22 21:32
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/carton2017/124.png" referrerpolicy="no-referrer">台服非常非常非常鬼
@@ -11057,16 +7559,10 @@ wiki SWT数据：Totem range is 100</blockquote><img src="https://pathofexile.ga
 还是单纯的支付6%血量而已？
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 538#       发表于 2017-9-22 23:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37278195&amp;ptid=1478318" target="_blank">GameTheory 发表于 2017-9-22 17:45</a>
@@ -11077,16 +7573,10 @@ wiki SWT数据：Totem range is 100</blockquote><img src="https://pathofexile.ga
 但是ggpk文件更新不慢
 
 
-
-
-
-
-
 -----
 
 ####  DawnGuardian  
 ##### 539#       发表于 2017-9-22 23:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37280244&amp;ptid=1478318" target="_blank">leeskies 发表于 2017-9-22 21:32</a>
@@ -11098,16 +7588,10 @@ wiki SWT数据：Totem range is 100</blockquote><img src="https://pathofexile.ga
 消耗的血量会计入混沌伤害
 
 
-
-
-
-
-
 -----
 
 ####  pilipala  
 ##### 540#       发表于 2017-9-23 11:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37241632&amp;ptid=1478318" target="_blank">何边杨 发表于 2017-9-18 23:04</a>
@@ -11123,24 +7607,13 @@ wiki SWT数据：Totem range is 100</blockquote><img src="https://pathofexile.ga
 都是玩家之间的交易
 
 
-
-
-
-
-
 -----
 
 ####  crazymarky  
 ##### 541#       发表于 2017-9-23 11:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问下有国际服群么
-
-
-
-
-
 
 
 -----
@@ -11149,21 +7622,13 @@ wiki SWT数据：Totem range is 100</blockquote><img src="https://pathofexile.ga
 ##### 542#       发表于 2017-9-23 11:49
 
 
-
-
 女巫电弧遇瓶颈，倍儿脆，求转型方案！
-
-
-
-
-
 
 
 -----
 
 ####  远阪士郎  
 ##### 543#       发表于 2017-9-23 12:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37241632&amp;ptid=1478318" target="_blank">何边杨 发表于 2017-9-18 23:04</a>
@@ -11178,25 +7643,13 @@ wiki SWT数据：Totem range is 100</blockquote><img src="https://pathofexile.ga
 不过最近开始绑定wegame有点恶心
 
 
-
-
-
-
-
 -----
 
 ####  加里波第  
 ##### 544#       发表于 2017-9-23 15:18
 
 
-
-
 贵族必须要通关第三章才能用吗 现在被神主挡住了打不过
-
-
-
-
-
 
 
 -----
@@ -11205,21 +7658,14 @@ wiki SWT数据：Totem range is 100</blockquote><img src="https://pathofexile.ga
 ##### 545#       发表于 2017-9-23 16:19
 
 
-
 [http://poe.qq.com/webplat/info/n ... 201709/638260.shtml](http://poe.qq.com/webplat/info/news_version3/22557/22558/22601/m14525/201709/638260.shtml)
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Qoe这活动笑爆了有没有
-
-
-
-
-
 
 
 -----
 
 ####  神剑烧鸡  
 ##### 546#       发表于 2017-9-23 16:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37286426&amp;ptid=1478318" target="_blank">CALCULUS 发表于 2017-9-23 16:19</a>
@@ -11233,25 +7679,13 @@ Qoe ...</blockquote>
 隔夜饭都要吐出来了
 
 
-
-
-
-
-
 -----
 
 ####  大主教伊瑞尔  
 ##### 547#       发表于 2017-9-23 16:47
 
 
-
-
 毕竟贵鹅，淡定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11260,16 +7694,10 @@ Qoe ...</blockquote>
 ##### 548#       发表于 2017-9-23 18:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37286050&amp;ptid=1478318" target="_blank">加里波第 发表于 2017-9-23 15:18</a>
 
 贵族必须要通关第三章才能用吗 现在被神主挡住了打不过</blockquote>
 不用通关吧 路上不是救出来？ 
-
-
-
-
-
 
 
 -----
@@ -11278,22 +7706,15 @@ Qoe ...</blockquote>
 ##### 549#       发表于 2017-9-25 19:49
 
 
-
  本帖最后由 DawnGuardian 于 2017-9-25 19:51 编辑 
 
 是我脑残了，问题已解决<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  大主教伊瑞尔  
 ##### 550#       发表于 2017-9-27 06:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37284084&amp;ptid=1478318" target="_blank">crazymarky 发表于 2017-9-23 11:23</a>
@@ -11303,17 +7724,10 @@ Qoe ...</blockquote>
 — from motorola Nexus 6, Android 6.0.1 of [S1 Next Goose](https://play.google.com/store/apps/details?id=me.ykrank.s1next) v1.3.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  克莉丝汀  
 ##### 551#       发表于 2017-9-27 15:16
-
-
 
 
 台服这几天卡的很啊，uu也hold不住
@@ -11329,25 +7743,13 @@ t15的样子就可换其他技能怼boss专用
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  沉睡城市  
 ##### 552#       发表于 2017-9-27 17:25
 
 
-
-
 现在力爆也可以比较低成本爽了，皮卡丘法杖必中盾+先驱无情头或轰天雷手套+暴徒，刷图飞起。怕血少可以走过载不走法杖圈和暴击，输出稍低生存更高。
-
-
-
-
-
 
 
 -----
@@ -11356,21 +7758,13 @@ t15的样子就可换其他技能怼boss专用
 ##### 553#       发表于 2017-9-27 17:27
 
 
-
-
 玩了力爆其他BD都是瘸腿，刷图第一BD不是盖的
-
-
-
-
-
 
 
 -----
 
 ####  浪子龙飞z  
 ##### 554#       发表于 2017-9-27 17:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37327684&amp;ptid=1478318" target="_blank">克莉丝汀 发表于 2017-9-27 15:16</a>
@@ -11385,16 +7779,10 @@ t15的样子就可换其他技能怼boss专用
 我怀疑可能不是台服的锅……
 
 
-
-
-
-
-
 -----
 
 ####  雪风雾雨  
 ##### 555#       发表于 2017-10-4 15:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37286613&amp;ptid=1478318" target="_blank">大主教伊瑞尔 发表于 2017-9-23 16:47</a>
@@ -11403,16 +7791,10 @@ t15的样子就可换其他技能怼boss专用
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">你好请问一下,我国庆抄了个你的冰刃游侠的bd玩,前面刷图都挺爽的,现在92了,t14以上的基本上死去活来....是有什么核心技术力我没掌握吗
 
 
-
-
-
-
-
 -----
 
 ####  大主教伊瑞尔  
 ##### 556#       发表于 2017-10-4 16:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37392179&amp;ptid=1478318" target="_blank">雪风雾雨 发表于 2017-10-4 15:58</a>
@@ -11421,16 +7803,10 @@ t15的样子就可换其他技能怼boss专用
 发个角色链接我看看
 
 
-
-
-
-
-
 -----
 
 ####  雪风雾雨  
 ##### 557#       发表于 2017-10-4 16:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37392199&amp;ptid=1478318" target="_blank">大主教伊瑞尔 发表于 2017-10-4 16:01</a>
@@ -11439,16 +7815,10 @@ t15的样子就可换其他技能怼boss专用
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不..不会发...企鹅服的,10个绿球,药水也和你的一样,就是血低了点5000多,衣服五连少个暴击率,进图放满技能秒伤12万碰到图里boss有两个人以上的基本上就凉了
 
 
-
-
-
-
-
 -----
 
 ####  雪风雾雨  
 ##### 558#       发表于 2017-10-4 16:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37392199&amp;ptid=1478318" target="_blank">大主教伊瑞尔 发表于 2017-10-4 16:01</a>
@@ -11457,16 +7827,10 @@ t15的样子就可换其他技能怼boss专用
 [https://poe.game.qq.com/account/ ... E6%A0%91/characters](https://poe.game.qq.com/account/view-profile/%E4%B8%80%E6%A3%B5%E6%AD%BB%E6%A0%91/characters)  找到了..
 
 
-
-
-
-
-
 -----
 
 ####  大主教伊瑞尔  
 ##### 559#       发表于 2017-10-4 16:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37392212&amp;ptid=1478318" target="_blank">雪风雾雨 发表于 2017-10-4 16:03</a>
@@ -11478,16 +7842,10 @@ t15的样子就可换其他技能怼boss专用
 有些图的boss确实难打些，对这个build法系boss威胁大些。打法系强的boss，神力换成蜘蛛，把第二行点亮，平时开血怒，带受伤施放无敌吼
 
 
-
-
-
-
-
 -----
 
 ####  大主教伊瑞尔  
 ##### 560#       发表于 2017-10-4 16:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37392262&amp;ptid=1478318" target="_blank">雪风雾雨 发表于 2017-10-4 16:10</a>
@@ -11496,16 +7854,10 @@ https://poe.game.qq.com/account/view-profile/%E4%B8%80%E6%A3%B5%E6%AD%BB%E6%A0%9
 你的账号没公开看不了
 
 
-
-
-
-
-
 -----
 
 ####  雪风雾雨  
 ##### 561#       发表于 2017-10-4 16:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37392295&amp;ptid=1478318" target="_blank">大主教伊瑞尔 发表于 2017-10-4 16:15</a>
@@ -11514,16 +7866,10 @@ https://poe.game.qq.com/account/view-profile/%E4%B8%80%E6%A3%B5%E6%AD%BB%E6%A0%9
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">没弄过不太会搞,我先研究下你刚才说的,感谢!
 
 
-
-
-
-
-
 -----
 
 ####  zy450  
 ##### 562#       发表于 2017-10-4 19:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37286050&amp;ptid=1478318" target="_blank">加里波第 发表于 2017-9-23 15:18</a>
@@ -11532,16 +7878,10 @@ https://poe.game.qq.com/account/view-profile/%E4%B8%80%E6%A3%B5%E6%AD%BB%E6%A0%9
 去神主的路上能救
 
 
-
-
-
-
-
 -----
 
 ####  zy450  
 ##### 563#       发表于 2017-10-4 19:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37273608&amp;ptid=1478318" target="_blank">grasszyf 发表于 2017-9-22 11:04</a>
@@ -11552,17 +7892,10 @@ https://poe.game.qq.com/account/view-profile/%E4%B8%80%E6%A3%B5%E6%AD%BB%E6%A0%9
 国际服用加速器最低也就60ms，说是等于国服也是太夸张了，群里菊苣国服延迟最高都不过30
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 564#         楼主| 发表于 2017-10-5 06:56
-
-
 
 
 3.0.2要更新了  
@@ -11573,16 +7906,10 @@ https://poe.game.qq.com/account/view-profile/%E4%B8%80%E6%A3%B5%E6%AD%BB%E6%A0%9
 不過怨靈儲存2.0感覺應該不是這個樣子 還要繼續等
 
 
-
-
-
-
-
 -----
 
 ####  grasszyf  
 ##### 565#       发表于 2017-10-5 09:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37394049&amp;ptid=1478318" target="_blank">zy450 发表于 2017-10-4 19:54</a>
@@ -11593,16 +7920,10 @@ https://poe.game.qq.com/account/view-profile/%E4%B8%80%E6%A3%B5%E6%AD%BB%E6%A0%9
 国服的延迟不能信的，网络可能很快但有时会有谜之卡顿，是TX魔改优化的锅
 
 
-
-
-
-
-
 -----
 
 ####  hyddx  
 ##### 566#       发表于 2017-10-5 14:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37394049&amp;ptid=1478318" target="_blank">zy450 发表于 2017-10-4 19:54</a>
@@ -11613,33 +7934,19 @@ https://poe.game.qq.com/account/view-profile/%E4%B8%80%E6%A3%B5%E6%AD%BB%E6%A0%9
 国服有TP护体，游戏感受其实和国际性没啥区别
 
 
-
-
-
-
-
 -----
 
 ####  soniczmd  
 ##### 567#       发表于 2017-10-5 22:49
 
 
-
-
 最近被b站智能推荐了一个地雷BD的视频，试着玩了下我擦发现了新世界！地雷玩起来太有意思了，输出高的爆炸，到处都是秒秒秒(当然自己也是被秒<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 568#         楼主| 发表于 2017-11-3 12:28
-
-
 
 
 简单概括下最近消息
@@ -11653,13 +7960,7 @@ https://poe.game.qq.com/account/view-profile/%E4%B8%80%E6%A3%B5%E6%AD%BB%E6%A0%9
 出了官方的交易网站(似乎是官网内嵌 不知道是否和POE XYZ冲突)
 
 
-
 以及再提下  我以后不开新帖了就这贴持续更新   旧版本内容移入回复保存
-
-
-
-
-
 
 
 -----
@@ -11668,23 +7969,15 @@ https://poe.game.qq.com/account/view-profile/%E4%B8%80%E6%A3%B5%E6%AD%BB%E6%A0%9
 ##### 569#       发表于 2017-11-15 02:01
 
 
-
  本帖最后由 风尘的时光 于 2018-7-15 17:36 编辑 
 
 编辑
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 570#         楼主| 发表于 2017-11-17 02:57
-
-
 
 
 3.0pv
@@ -11698,8 +7991,6 @@ https://poe.game.qq.com/account/view-profile/%E4%B8%80%E6%A3%B5%E6%AD%BB%E6%A0%9
 
 
 S1 POE群  13481013
-
-
 
 
 3.0重要調整內容
@@ -11716,11 +8007,9 @@ cyclone改进
 不再会被障碍物停住 以后即使撞上障碍物也会持续转并绕开
 
 
-
 新怪演示   NPC模型更新
 
 A5的怪  纳粹/宗教风    占空间就不发太多东西了
-
 
 
 感电 冻结特效调整
@@ -11929,7 +8218,6 @@ ZO目前没有改动  将来计划在BETA期间进行改变
 AR甲有物理%减伤  EV甲有%几率躲闪  ES甲增加%ES充能速率
 
 
-
 召唤平衡调整
 
 原址   [https://www.pathofexile.com/forum/view-thread/1876213](https://www.pathofexile.com/forum/view-thread/1876213)
@@ -11954,13 +8242,11 @@ d.怨灵
 [https://docs.google.com/spreadsh](https://docs.google.com/spreadsh) ... edit#gid=1197252210
 
 
-
 1.剧情
 
 这次直接更新到A10 也就是更新6个章节  
 
 同时取消3难度  直接1个难度一次打通 (3难度相关的抗性惩罚和盗贼奖励等日后再提)
-
 
 
 A5:奧瑞亞的陨落
@@ -11978,7 +8264,6 @@ A5是流程最长的一章
 简单说A1到A4的图要重走一次  但是路线 怪 场景都有很大不同
 
 A1和A6的地图流程附图对比
-
 
 
 A6:涨潮
@@ -12059,8 +8344,6 @@ brutality(野蛮)                        被辅助的技能提�
 maim(残废)                            被辅助的技能提升(inc)10%物理伤害/提升(more)10%物理伤害/30%几率命中时造成残废/残废的敌人受到物理伤害增加(more)20%
 
 
-
-
 4.进度
 
 2.14                公开3.0
@@ -12127,18 +8410,10 @@ maim(残废)                            被辅助的技能提�
 3.这个赛季可以掉落旧数据的遗产
 
 
-
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 571#         楼主| 发表于 2017-11-17 03:38
-
-
 
 
 3.1估计明天就要公布了 目前是2个10天的race    
@@ -12151,7 +8426,6 @@ maim(残废)                            被辅助的技能提�
 然后毒是被砍的太惨了    主要是附加几率   以前1个中毒石就搞定   其他途径也是1个搞定  但现在强行弄的必须准备2 3个资源才能保证必中  再加上二次加成基本清理干净后      毒极低的基伤问题就暴露了    20% 2S 可以说效率极差  而隔壁的烧伤是基础40% 持续4S   流血是基础70% 持续5S 移动210%   然后流血毒化的天赋点效果下是基础35% 持续5S 可叠8层  虽然一开始被笑话但这个天赋点依旧强于毒本身  且不说毒基本不可能叠8层  而毒化流血在2.5倍的持续时间下叠8层简单很多
 
 还有VT和新毒伤暗金项链  议会手的效果来看  GGG是觉得毒害很容易叠高层吗   毒的时间时间还很长可以随便压榨吗
-
 
 
 关于毒怎么BUFF  个人的意见:
@@ -12167,16 +8441,10 @@ maim(残废)                            被辅助的技能提�
 5.削弱混沌抗/强化混沌伤的诅咒   目前这个诅咒还是缺失的  wither不算数  而随着几次版本更新  混沌伤也不再有了针对抗普遍低的问题  所以我觉得有必要给一个   比如说---------中诅咒的敌人损失一定混沌抗 且有额外的中毒几率  毒持续时间增加之类的
 
 
-
-
-
-
-
 -----
 
 ####  grasszyf  
 ##### 572#       发表于 2017-11-17 09:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37756265&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2017-11-17 02:57</a>
@@ -12189,16 +8457,10 @@ http://www.bilibili.com/video/av8671996/
 现在不是要3.1吗，怎么贴了3.0的patchnote？
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 573#         楼主| 发表于 2017-11-17 10:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37757450&amp;ptid=1478318" target="_blank">grasszyf 发表于 2017-11-17 09:53</a>
@@ -12207,17 +8469,10 @@ http://www.bilibili.com/video/av8671996/
 1L更新了   3.0的帖子做个备份然后2L丢了快速链接镜像
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 574#         楼主| 发表于 2017-11-18 02:06
-
-
 
 
 初步编辑了下   稍后更新技能石详细    
@@ -12226,25 +8481,13 @@ http://www.bilibili.com/video/av8671996/
 这次的新辅助技能石好评     回归初心  不再是各种简单的more而是先削弱伤害后通过改变机制来进一步强化伤害         
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 575#         楼主| 发表于 2017-11-18 21:35
 
 
-
-
 技能效果做了简单翻译    暗金有空再做
-
-
-
-
-
 
 
 -----
@@ -12253,17 +8496,10 @@ http://www.bilibili.com/video/av8671996/
 ##### 576#         楼主| 发表于 2017-11-27 02:09
 
 
-
-
 更新了深渊赛季详细情报和几个技能石调整情报
 
 
 有什么错误/疏漏指出下
-
-
-
-
-
 
 
 -----
@@ -12272,18 +8508,12 @@ http://www.bilibili.com/video/av8671996/
 ##### 577#       发表于 2017-11-27 10:51
 
 
-
-
 cremation这个技能，建议国服翻译成 尸体发火 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -12293,12 +8523,7 @@ cremation这个技能，建议国服翻译成 尸体发火 <img src="https://sta
 | DawnGuardian| + 1|原谅我笑出了声|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -12307,17 +8532,10 @@ cremation这个技能，建议国服翻译成 尸体发火 <img src="https://sta
 ##### 578#         楼主| 发表于 2017-12-6 22:55
 
 
-
-
 更新了正式的更新日志  接下来就等新筛选器关键词和模拟器了
 
 
 话说我记忆没错的话  当初确实说的是4个主动 6个辅助  以及despair不算在10个里面  但现在就是空了一个辅助
-
-
-
-
-
 
 
 -----
@@ -12326,22 +8544,13 @@ cremation这个技能，建议国服翻译成 尸体发火 <img src="https://sta
 ##### 579#       发表于 2017-12-6 23:34
 
 
-
-
 看了改动，果然VP是不复存在了。不过这GGG口气有点像暴雪啊。这个赛季鸽了，玩NS跟Slay the Spire去了。
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 580#         楼主| 发表于 2017-12-10 22:23
-
-
 
 
 深渊触碰后优先敢去下一个蔓延出来的大坑  路上产生的杂兵可以不管但产生小爬虫的虫巢尽量先打掉     虫巢会不断朝你喷射伤害投射物和生产小虫     尤其是虫子
@@ -12356,17 +8565,10 @@ cremation这个技能，建议国服翻译成 尸体发火 <img src="https://sta
 总之这个版本请注重BUILD的AOE能力和紧急脱身能力    因为敌人太多 可以考虑一些平时估计的on kill特效或者击杀尸暴特效
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 581#         楼主| 发表于 2017-12-19 11:49
-
-
 
 
 辅助工具集合终于做了...............................懒癌可怕   
@@ -12378,13 +8580,7 @@ cremation这个技能，建议国服翻译成 尸体发火 <img src="https://sta
 话说考虑要不要在1L起手位置写个简单介绍方便安利  
 
 
-
 另外这赛季强度是真的可怕        比得上高强度bitch了
-
-
-
-
-
 
 
 -----
@@ -12393,21 +8589,13 @@ cremation这个技能，建议国服翻译成 尸体发火 <img src="https://sta
 ##### 582#       发表于 2017-12-19 12:15
 
 
-
-
 地图盘上冒黑烟的地图是什么意思？在哪里有详细介绍？
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 583#         楼主| 发表于 2017-12-19 12:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38022334&amp;ptid=1478318" target="_blank">qdxhs 发表于 2017-12-19 12:15</a>
@@ -12418,32 +8606,19 @@ cremation这个技能，建议国服翻译成 尸体发火 <img src="https://sta
 如果更仔细看能看到不可名状物
 
 
-
-
-
-
-
 -----
 
 ####  qdxhs  
 ##### 584#       发表于 2017-12-19 12:31
 
 
-
-
 “玩家如何刷图会决定帮助谁”不太明白
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 585#         楼主| 发表于 2017-12-19 22:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38022488&amp;ptid=1478318" target="_blank">qdxhs 发表于 2017-12-19 12:31</a>
@@ -12454,16 +8629,10 @@ cremation这个技能，建议国服翻译成 尸体发火 <img src="https://sta
 以及elder区域堆积久了会出现elder守卫和elder本体     
 
 
-
-
-
-
-
 -----
 
 ####  我就是那条龙  
 ##### 586#       发表于 2017-12-20 16:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38022488&amp;ptid=1478318" target="_blank">qdxhs 发表于 2017-12-19 12:31</a>
@@ -12472,32 +8641,19 @@ cremation这个技能，建议国服翻译成 尸体发火 <img src="https://sta
 想打新BOSS就要会养蛤~打爆色谱的占领地图解放空间
 
 
-
-
-
-
-
 -----
 
 ####  qdxhs  
 ##### 587#       发表于 2017-12-20 17:28
 
 
-
-
 玩的时间不多，没刷几张图，目前地图上只有几个图冒黑烟闪星星，打过就没了，这是shaper图对吧？出现条件是随机？elder图出现的条件又是啥？
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 588#         楼主| 发表于 2017-12-20 20:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38034359&amp;ptid=1478318" target="_blank">qdxhs 发表于 2017-12-20 17:28</a>
@@ -12509,27 +8665,15 @@ cremation这个技能，建议国服翻译成 尸体发火 <img src="https://sta
 elder也是随机       总之养elder到20+区域才打   shaper看到就可以打
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 589#       发表于 2017-12-20 21:59
 
 
-
-
 辅助网站这两个也应该加上去
 [http://www.poelab.com/](http://www.poelab.com/)
 [http://siveran.github.io/calc.html](http://siveran.github.io/calc.html)
-
-
-
-
-
 
 
 -----
@@ -12538,22 +8682,13 @@ elder也是随机       总之养elder到20+区域才打   shaper看到就
 ##### 590#       发表于 2017-12-20 22:03
 
 
-
-
 把和elder相连的shaper图打掉可以扩大elder势力范围，出4守卫+elder的圈圈，以及没了vp暴徒该何去何从……
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 591#         楼主| 发表于 2017-12-24 13:15
-
-
 
 
 上面说的2个网站已添加
@@ -12565,20 +8700,13 @@ elder也是随机       总之养elder到20+区域才打   shaper看到就
 暴徒比较现实的应该就是在高吸取同时堆高减伤  然后注意躲大伤害    不过防御资源目前确实还是偏少了些  看以后怎么加吧
 
 
-
 另外 3.2会重做冷门进阶  看看到时候会带来什么改版
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 592#         楼主| 发表于 2018-1-22 11:44
-
 
 
 <img src="https://i.imgur.com/eihoUMm.png" referrerpolicy="no-referrer">
@@ -12592,19 +8720,10 @@ elder也是随机       总之养elder到20+区域才打   shaper看到就
 另 [Unbound Ailments](https://pathofexile.gamepedia.com/Unbound_Ailments_Support)这石头一直很感兴趣  对于单伤害能触发复数异常尤其是一个特效一个伤害的感觉会很有用  可惜总的价值不如其他直接加伤害的辅助   优先顺位略低  基本要6L才上
 
 
-
-
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 593#         楼主| 发表于 2018-1-22 14:43
-
-
 
 
 比较重要单独一楼说下方便做链接引用
@@ -12645,16 +8764,10 @@ elder也是随机       总之养elder到20+区域才打   shaper看到就
 吸取总上限( maximum Life per second to maximum Life Leech rate)-------------------------<strong>提升堆叠吸取总量的回复上限   </strong> 以上面例子加上5% maximum Life per second to maximum Life Leech rate,  面对100个敌人 每秒吸取量为10000      总吸取上限为5000x(20%+5%)=1250 所以吸取上限为每秒1250
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 594#         楼主| 发表于 2018-2-16 13:24
-
 
 
 <img src="https://i.imgur.com/CcC5EQm.png" referrerpolicy="no-referrer">
@@ -12674,7 +8787,6 @@ elder也是随机       总之养elder到20+区域才打   shaper看到就
 
 有个C胖单独的吐槽补完     大体意思是工作略多还是有不少没来得及做/调整   
 [https://www.pathofexile.com/forum/view-thread/2036309](https://www.pathofexile.com/forum/view-thread/2036309)
-
 
 
 [thgame_biliplay{,=av}16395551{,=page}1{,=playmode}1{,=swf}2{,=bililv}1{,=auto}2][/thgame_biliplay]
@@ -12761,10 +8873,6 @@ The Abyss Challenge League   既深渊赛季
 <img src="https://i.imgur.com/C6j66kx.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
 杂项
 
 
@@ -12785,7 +8893,6 @@ VP大改  位置移动 且效果变更   瞬吸成为历史
 <img src="https://i.imgur.com/FUBLqL8.jpg" referrerpolicy="no-referrer">
 
 
-
 A9会有个新boss   
 
 第一个有孔腰带即将来临
@@ -12799,14 +8906,7 @@ A9会有个新boss   
 新的4个主动技能和6个辅助技能
 
 
-
 正式公布是11.17  实装是12月初
-
-
-
-
-
-
 
 
 -----
@@ -12815,14 +8915,7 @@ A9会有个新boss   
 ##### 595#         楼主| 发表于 2018-2-16 15:00
 
 
-
-
 3.2情报已更新    还差2个PV  以后有空丢上来  这次公布距离实装只有2周 而且刚好和GBF四周年相近    压力甚大
-
-
-
-
-
 
 
 -----
@@ -12831,14 +8924,7 @@ A9会有个新boss   
 ##### 596#       发表于 2018-2-16 16:07
 
 
-
-
 开个新帖啊 次次都编辑旧帖干嘛呢
-
-
-
-
-
 
 
 -----
@@ -12847,16 +8933,9 @@ A9会有个新boss   
 ##### 597#       发表于 2018-2-16 16:21
 
 
-
-
 这个league看起来不错的，好像人人都可以当神奇宝贝大师？
 
 可惜最近勉强能打打MH，还要出差，只能玩NS了。
-
-
-
-
-
 
 
 -----
@@ -12865,16 +8944,10 @@ A9会有个新boss   
 ##### 598#         楼主| 发表于 2018-2-16 17:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38576891&amp;ptid=1478318" target="_blank">我就是那条龙 发表于 2018-2-16 16:07</a>
 
 开个新帖啊 次次都编辑旧帖干嘛呢</blockquote>
 免得分散人流     把数据和资料统一起来方便反复查阅  免得每个版本万一来了新人玩的一头雾水又不知道哪儿找资料
-
-
-
-
-
 
 
 -----
@@ -12883,17 +8956,10 @@ A9会有个新boss   
 ##### 599#         楼主| 发表于 2018-2-20 21:16
 
 
-
-
 更新了第三个未公布石头的分析情报   这个应该是极度接近实际的准确度了
 
 
 继续坐等新进阶情报
-
-
-
-
-
 
 
 -----
@@ -12902,14 +8968,7 @@ A9会有个新boss   
 ##### 600#       发表于 2018-2-20 23:39
 
 
-
-
 好久没关注过这游戏的更新情报了，ggg怎么搞的像挤牙膏一样，迫不及待想看看新的ascendancy classes.
-
-
-
-
-
 
 
 -----
@@ -12918,22 +8977,13 @@ A9会有个新boss   
 ##### 601#       发表于 2018-2-21 00:30
 
 
-
-
 该玩猛汉王了
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 602#         楼主| 发表于 2018-2-21 10:16
-
-
 
 
 放出3个进阶的情报
@@ -12945,17 +8995,10 @@ assin  guard  herophant
 <img src="https://i.imgur.com/kRQFiXJ.png" referrerpolicy="no-referrer">
 
 
-
 <img src="https://i.imgur.com/c75end0.jpg" referrerpolicy="no-referrer">
 
 <img src="https://i.imgur.com/Zz1dd4B.png" referrerpolicy="no-referrer">  
 <img src="https://i.imgur.com/2RtONyP.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
@@ -12964,21 +9007,13 @@ assin  guard  herophant
 ##### 603#       发表于 2018-2-21 10:48
 
 
-
-
 Hiero看起来又加强了不少？之前3.0的时候用过一个双apep，4图腾dark pact的开荒build，贼好使，看来3.2可以接着丢图腾玩了
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 604#         楼主| 发表于 2018-2-22 09:05
-
 
 
  本帖最后由 妹控使徒 于 2018-2-22 09:26 编辑 
@@ -12994,27 +9029,13 @@ pathfinder调整很小  就一个点  削弱了元素伤减伤  加强了�
 <img src="https://i.imgur.com/fGnv0SG.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
 -----
 
 ####  帕林马哲理  
 ##### 605#       发表于 2018-2-22 09:21
 
 
-
-
 champion好强，如果点fortitude跟worthy foe，可以不考虑命中，自带fortitude，还有团队20增伤，10%减伤。感觉这个赛季终于可以玩了。
-
-
-
-
-
 
 
 -----
@@ -13023,25 +9044,16 @@ champion好强，如果点fortitude跟worthy foe，可以不考虑命中，自�
 ##### 606#         楼主| 发表于 2018-2-26 09:31
 
 
-
-
 今天公布5个新进阶  目前已4个   之前的酋长狂战也重调整+优化显示     直接发到1L了
 
 
 另外这赛季的特色暗金  可以视为有套装了   只是并非强迫穿一套出效果    外观和特色来说是一套的      
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 607#         楼主| 发表于 2018-2-26 11:47
-
-
 
 
 trickstrer已更   略OP  
@@ -13052,16 +9064,10 @@ trickstrer已更   略OP  
 以及出现的15点         估计未来会调整下修
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 608#         楼主| 发表于 2018-2-27 09:04
-
 
 
  本帖最后由 妹控使徒 于 2018-2-27 09:07 编辑 
@@ -13071,16 +9077,10 @@ NEC   INQ  SAB  GLAD的調整出來了
 还剩下JUGG和白富美  等明天    开服日子越来越近   估计剩下的都丢patch note
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 609#         楼主| 发表于 2018-2-27 09:48
-
 
 
 <img src="https://i.imgur.com/6eJ9aPD.jpg" referrerpolicy="no-referrer">
@@ -13090,14 +9090,7 @@ NEC   INQ  SAB  GLAD的調整出來了
 [http://www.pathofexile.com/forum/view-thread/2092600](http://www.pathofexile.com/forum/view-thread/2092600)
 
 
-
 这次进阶修改感觉还是没做完的  至少一些是14点 一些是12点  不统一  而TRICKSTER更是BUG的15点    但愿能在3.2.X内将其修完
-
-
-
-
-
-
 
 
 -----
@@ -13106,13 +9099,10 @@ NEC   INQ  SAB  GLAD的調整出來了
 ##### 610#         楼主| 发表于 2018-3-1 01:02
 
 
-
-
 回来把JUGG和贵族进阶补上    REDDIT那边P图狂欢了
 
 另外火手BUFF 附带了法术火伤BUFF
 <img src="https://i.imgur.com/zZJFsTI.jpg" referrerpolicy="no-referrer">
-
 
 
 顺便再带个贵族进阶具体改动一览
@@ -13122,25 +9112,13 @@ NEC   INQ  SAB  GLAD的調整出來了
 明天不出意外就是patchnote和更新天赋树 POB
 
 
-
-
-
-
-
 -----
 
 ####  BRRM  
 ##### 611#       发表于 2018-3-1 03:23
 
 
-
-
 没啥人玩的游戏，小半年楼主一个人默默地更新了两页。
-
-
-
-
-
 
 
 -----
@@ -13149,14 +9127,7 @@ NEC   INQ  SAB  GLAD的調整出來了
 ##### 612#       发表于 2018-3-1 18:03
 
 
-
-
 核心玩家有自己讨论的地方，这贴不过是留个档而已。
-
-
-
-
-
 
 
 -----
@@ -13165,25 +9136,16 @@ NEC   INQ  SAB  GLAD的調整出來了
 ##### 613#         楼主| 发表于 2018-3-1 18:05
 
 
-
-
 patch note 已更新  
 
 
 另外查看進階情报时最好别用翻译的    中文翻译含糊不清的不少
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 614#         楼主| 发表于 2018-3-5 03:37
-
-
 
 
 关于3.2加的板砖打击说点详细
@@ -13202,16 +9164,10 @@ patch note 已更新  
 如果无法保证常驻红球  这个技能体验会非常难受
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 615#         楼主| 发表于 2018-3-28 12:11
-
 
 
 [https://www.pathofexile.com/forum/view-thread/2121227](https://www.pathofexile.com/forum/view-thread/2121227)
@@ -13225,17 +9181,10 @@ patch note 已更新  
 提了个方案-------cold snap在保留小范围瞬时高伤外  增加大范围的冲击波产生冰缓效果并对敌人造成持续冰伤  使其不用太在乎CD问题
 
 
-
-
-
-
-
 -----
 
 ####  uneedme  
 ##### 616#       发表于 2018-3-28 13:08
-
-
 
 
 半年没有玩了......
@@ -13244,27 +9193,15 @@ patch note 已更新  
 变化好大......
 
 
-
-
-
-
-
 -----
 
 ####  帕林马哲理  
 ##### 617#       发表于 2018-4-6 21:59
 
 
-
-
 这赛季是我从anarchy以来玩过的最烂的一个赛季，不是ascendency有变化我估计80级玩不到就afk了。现在我的elementalist golem召唤停在82，连号都不想上了。
 
 抓怪的设计真的有点愚蠢，而且界面也看不清楚，都不知道抓来干吗用。下个赛季是不是得9月了？
-
-
-
-
-
 
 
 -----
@@ -13273,14 +9210,7 @@ patch note 已更新  
 ##### 618#       发表于 2018-4-10 17:23
 
 
-
-
 最近回坑玩了两个赛季，感觉地图的掉落机制真的有毒，经常刷着刷着断图被迫去打低级图太闹心了，每次elder入侵还得买图去推。我注意到官网和reddit有不少人提到这个问题了。
-
-
-
-
-
 
 
 -----
@@ -13289,16 +9219,10 @@ patch note 已更新  
 ##### 619#       发表于 2018-4-10 17:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39115592&amp;ptid=1478318" target="_blank">帕林马哲理 发表于 2018-4-6 21:59</a>
 
 这赛季是我从anarchy以来玩过的最烂的一个赛季，不是ascendency有变化我估计80级玩不到就afk了。现在我的el ...</blockquote>
 官方这两天有公告，下赛季3.3敲定是6月1号，说是和碧池、伏击类似的赛季。
-
-
-
-
-
 
 
 -----
@@ -13307,14 +9231,7 @@ patch note 已更新  
 ##### 620#       发表于 2018-4-10 17:48
 
 
-
-
 打到现在，除了T18全过，然而还没掉过奇美拉和火凤凰，这个赛季真是傻逼到极点了。
-
-
-
-
-
 
 
 -----
@@ -13323,16 +9240,10 @@ patch note 已更新  
 ##### 621#       发表于 2018-4-10 17:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39158499&amp;ptid=1478318" target="_blank">d.kaede 发表于 2018-4-10 17:23</a>
 
 最近回坑玩了两个赛季，感觉地图的掉落机制真的有毒，经常刷着刷着断图被迫去打低级图太闹心了，每次elder ...</blockquote>
 地图掉率把游戏体验毁的一塌糊涂，上线有一半时间在820换图，要么在刷低级图。
-
-
-
-
-
 
 
 -----
@@ -13341,14 +9252,7 @@ patch note 已更新  
 ##### 622#       发表于 2018-4-10 17:53
 
 
-
-
 昨晚刷了5张T15，都是120+数量，居然一张T15都没掉，我都无语了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13357,16 +9261,10 @@ patch note 已更新  
 ##### 623#       发表于 2018-4-10 18:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39158813&amp;ptid=1478318" target="_blank">猫骑士 发表于 2018-4-10 17:48</a>
 
 打到现在，除了T18全过，然而还没掉过奇美拉和火凤凰，这个赛季真是傻逼到极点了。 ...</blockquote>
 所以你的奇美拉和凤凰碎片是交易获得的？我也是除了T18没打，不过也没多大兴趣打了。但这版本也有个好处，祭坛那里有复制地图的配方。所以搞到T16的图我都是先roll出好的词缀，然后复制一张出来打，这样成本相对直接买要低很多，前提是你要抓到足够数量的指定怪物。最难抓的Craicic Vassal市场上也才7c一个，比25c一张T16要便宜多了。
-
-
-
-
-
 
 
 -----
@@ -13375,14 +9273,7 @@ patch note 已更新  
 ##### 624#       发表于 2018-4-10 18:36
 
 
-
-
 心累，打完剧情发现兜里就个位数的C，就算要修车也给不起换装钱啊！
-
-
-
-
-
 
 
 -----
@@ -13391,16 +9282,10 @@ patch note 已更新  
 ##### 625#       发表于 2018-4-11 08:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39159166&amp;ptid=1478318" target="_blank">d.kaede 发表于 2018-4-10 18:21</a>
 
 所以你的奇美拉和凤凰碎片是交易获得的？我也是除了T18没打，不过也没多大兴趣打了。但这版本也有个好处 ...</blockquote>
 对买的，台服30c一个。。
-
-
-
-
-
 
 
 -----
@@ -13409,14 +9294,7 @@ patch note 已更新  
 ##### 626#       发表于 2018-4-11 09:38
 
 
-
-
 s1原来有poe专楼的啊...
-
-
-
-
-
 
 
 -----
@@ -13425,14 +9303,7 @@ s1原来有poe专楼的啊...
 ##### 627#       发表于 2018-4-28 19:05
 
 
-
-
 问下现在国服和国际服有什么区别……以前玩的时候只有国际服，有个60多的女巫……
-
-
-
-
-
 
 
 -----
@@ -13441,16 +9312,10 @@ s1原来有poe专楼的啊...
 ##### 628#       发表于 2018-4-28 19:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39410231&amp;ptid=1478318" target="_blank">晓寒 发表于 2018-4-28 19:05</a>
 
 问下现在国服和国际服有什么区别……以前玩的时候只有国际服，有个60多的女巫…… ...</blockquote>
 网络ok懂一点点英文推荐国际服，网络不行有钱任性就国服
-
-
-
-
-
 
 
 -----
@@ -13459,23 +9324,16 @@ s1原来有poe专楼的啊...
 ##### 629#       发表于 2018-4-28 19:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39410231&amp;ptid=1478318" target="_blank">晓寒 发表于 2018-4-28 19:05</a>
 
 问下现在国服和国际服有什么区别……以前玩的时候只有国际服，有个60多的女巫…… ...</blockquote>
 国服比国际服多了复活币、官方市场、扩展背包，都是氪金内容
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 630#         楼主| 发表于 2018-4-28 22:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39410231&amp;ptid=1478318" target="_blank">晓寒 发表于 2018-4-28 19:05</a>
@@ -13487,16 +9345,10 @@ s1原来有poe专楼的啊...
 世界服裸连可能会150--300ms  部分地区连新加坡能稳定100ms内  要保持低ping流畅基本需要加速器  但所有东西原汁原味且更新及时  也有官方交易网等配套服务
 
 
-
 国服裸连基本能80ms内   但是模型和场景大部分有阉割  尤其是怪物尸体全P成了墓碑 严重影响召唤流   插入了TP和WEGAME导致BUG更多  用集市摆摊替换了直接交易网   更多乡非风的活动  RMT管理更松散   以及玩家群体里养猪现象严重    更新一般延迟1个月左右
 
 
 总之有能力有追求推荐去国际服
-
-
-
-
-
 
 
 -----
@@ -13505,21 +9357,13 @@ s1原来有poe专楼的啊...
 ##### 631#       发表于 2018-4-29 19:17
 
 
-
-
 玩近战就别玩国际服…
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 632#         楼主| 发表于 2018-5-12 04:18
-
 
 
 <img src="https://i.imgur.com/rH3gDoB.png" referrerpolicy="no-referrer">
@@ -13587,9 +9431,6 @@ Tectonic Slam(构造打击)--------------------------------------锤击地面 �
 <img src="https://i.imgur.com/XPJBNoR.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
 <strong>Nwe Fated Uniques </strong>
 
 30个暗金将会获得Fated预言以升级到强化版并带来产生新build的可能性
@@ -13619,22 +9460,10 @@ ZANA不再能开启BREACH区域
 新六分仪(Sextant)规则-----------------------起始只能锁1个  通过完成ZANA任务能逐渐提高上限 最高5个  在达到上限后再上六分仪会重置掉最高的词缀
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  帕林马哲理  
 ##### 633#       发表于 2018-5-12 05:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39565276&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2018-5-11 21:18</a>
@@ -13647,32 +9476,19 @@ patch note已出</blockquote>
 incursion都要出了，怎么突然更新了beastiary的资料<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  喜欢吃肉  
 ##### 634#       发表于 2018-5-12 09:55
 
 
-
-
 萌新问一下，真的不是引战，这游戏的肝度比起暗黑3如何？以前玩过暗黑2修改流，暗黑3玩过3个赛季，刚好能拿幻化的程度，后面觉得无聊就玩不下去了。我觉得暗黑3的肝度还能接受
-
-
-
-
-
 
 
 -----
 
 ####  sakaki59  
 ##### 635#       发表于 2018-5-12 10:34
-
 
 
 <blockquote>喜欢吃肉 发表于 2018-5-12 09:55
@@ -13683,16 +9499,10 @@ incursion都要出了，怎么突然更新了beastiary的资料<img src="https:/
 当然刷刷刷游戏你要肝肯定没问题一样可以一天肝十几个小时，当然这样肝的人一般都是为了攒通货或者刷特定的超值钱玩意(一般是猎首卡片)，或者是为了练满100级，这游戏本身不太需要练级，打通据剧情60～68级了，再随便练练就成型了，一般bd八十多级肯定成型了，成型晚的比如一些正火bd92,93也够了
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 636#         楼主| 发表于 2018-5-12 17:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39565341&amp;ptid=1478318" target="_blank">帕林马哲理 发表于 2018-5-12 05:18</a>
@@ -13701,16 +9511,10 @@ incursion都要出了，怎么突然更新了beastiary的资料</blockquote>
 只是利用泥潭的引用内部链接功能做备份档   过去赛季传送门全塞在2L     没收缩扩展功能只能这么干
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 637#         楼主| 发表于 2018-5-12 21:27
-
 
 
  本帖最后由 妹控使徒 于 2018-5-12 22:13 编辑 
@@ -13727,16 +9531,10 @@ SKILL RAVAMPS内容量略大     偷懒没做积压下来果然还是麻烦�
 再对比伤害差距就很大了   以LV1来说  REAVE是固定100%   BF虽然是45%但是每层20%more    叠到6层就是45%x(1+6x20%)=99%  而且这技能自带60%more攻速  以实际表现来说BF的攻速相当于连接了多重打击的REAVE   而且BF有个叠满6层释放瞬间打出6次的机制 无论爆发输出还是快速叠DEBUFF都很显著   
 
 
-
-
-
-
-
 -----
 
 ####  d.kaede  
 ##### 638#       发表于 2018-5-12 22:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39572316&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2018-5-12 21:27</a>
@@ -13748,16 +9546,10 @@ SKILL RAVAMPS内容量略大     偷懒没做积压下来果然还是麻烦�
 玩Reave肯定要配合Vaal Reave来用，这个没得说，叠满8层几乎就是半个屏幕，这还是在没上IAOE的情况下。BF清图效率比Reave差不少，甚至比不上frost blade. 实际上根据ninja的统计Reave和BF的使用率是持平的，刷图用Reave, 遇到难啃的boss换BF来打。这两个技能我最近都有玩过，总的来说还是各有优势。
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 639#       发表于 2018-5-13 00:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39566318&amp;ptid=1478318" target="_blank">喜欢吃肉 发表于 2018-5-12 09:55</a>
@@ -13766,16 +9558,10 @@ SKILL RAVAMPS内容量略大     偷懒没做积压下来果然还是麻烦�
 只要你肯肝，有时间肝，这游戏 end game 有多种方式让你肝。当然你想修仙，也可以随便玩玩
 
 
-
-
-
-
-
 -----
 
 ####  帕林马哲理  
 ##### 640#       发表于 2018-5-13 01:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39570599&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2018-5-12 10:53</a>
@@ -13784,16 +9570,10 @@ SKILL RAVAMPS内容量略大     偷懒没做积压下来果然还是麻烦�
 S1可真是落后，NGA的很多功能挺方便的。可惜我完全不懂论坛啊。现在大部分我常去的论坛都支持Webm，Webp了，唉。
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 641#         楼主| 发表于 2018-5-13 01:31
-
 
 
  本帖最后由 妹控使徒 于 2018-5-13 01:32 编辑 
@@ -13807,17 +9587,10 @@ S1可真是落后，NGA的很多功能挺方便的。可惜我完全不懂论坛
 毒必须来个和这版本烧伤BUFF一样的数值大提升  否则太惨
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 642#         楼主| 发表于 2018-5-29 19:27
-
-
 
 
 把技能重做信息更新到了最新
@@ -13827,16 +9600,10 @@ S1可真是落后，NGA的很多功能挺方便的。可惜我完全不懂论坛
 [https://www.pathofexile.com/forum/view-thread/2149785](https://www.pathofexile.com/forum/view-thread/2149785)
 
 
-
-
-
-
-
 -----
 
 ####  帕林马哲理  
 ##### 643#       发表于 2018-5-29 19:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39813927&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2018-5-29 12:27</a>
@@ -13848,16 +9615,10 @@ S1可真是落后，NGA的很多功能挺方便的。可惜我完全不懂论坛
 这个是马尔科夫链生成的假patchnote，明天才出真的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 644#         楼主| 发表于 2018-5-29 19:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39813995&amp;ptid=1478318" target="_blank">帕林马哲理 发表于 2018-5-29 19:34</a>
@@ -13866,32 +9627,19 @@ S1可真是落后，NGA的很多功能挺方便的。可惜我完全不懂论坛
 已经发现了  准确说不是假的  不过词汇打乱了  总之还是无法解读
 
 
-
-
-
-
-
 -----
 
 ####  wow3000  
 ##### 645#       发表于 2018-5-30 07:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">很久没玩过POE了，似乎变化很大
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 646#         楼主| 发表于 2018-5-30 11:05
-
-
 
 
 path note已更   又加了一些之前一直没提到的被BUFF的技能  比如裂空斩
@@ -13903,33 +9651,19 @@ path note已更   又加了一些之前一直没提到的被BUFF的技能  �
 另这次完全没提怪和暗金的平衡调整略缺
 
 
-
-
-
-
-
 -----
 
 ####  d.kaede  
 ##### 647#       发表于 2018-5-30 11:15
 
 
-
-
 之前不是说EE要改吗，patch note怎么没提到呢，是不是吃回去了？
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 648#         楼主| 发表于 2018-6-1 15:55
-
-
 
 
 预载文件已放出  顺便注意下新的调整
@@ -13943,25 +9677,13 @@ GGG这次不知道什么情况  各种节奏都比平常快了早些   预�
 <img src="https://i.redditmedia.com/K0J3rXUgVj9UxSRF8eaSHYWhXeI2qM_qElSkK6aqqtk.jpg?w=681&amp;s=4c9bad64019907794e7f08311828dfb8" id="aimg_Xg9G5" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
-
-
-
-
-
 -----
 
 ####  猫骑士  
 ##### 649#       发表于 2018-6-1 16:29
 
 
-
-
 从来没玩过图腾，这次想玩个电弧图腾
-
-
-
-
-
 
 
 -----
@@ -13970,14 +9692,7 @@ GGG这次不知道什么情况  各种节奏都比平常快了早些   预�
 ##### 650#       发表于 2018-6-1 17:11
 
 
-
-
 得有一年没登陆国际服了
-
-
-
-
-
 
 
 -----
@@ -13986,14 +9701,7 @@ GGG这次不知道什么情况  各种节奏都比平常快了早些   预�
 ##### 651#       发表于 2018-6-1 17:23
 
 
-
-
 得有一年没登陆国际服了
-
-
-
-
-
 
 
 -----
@@ -14002,14 +9710,7 @@ GGG这次不知道什么情况  各种节奏都比平常快了早些   预�
 ##### 652#       发表于 2018-6-1 19:24
 
 
-
-
 说起来改版后的破空斩怎么样了？看了下patch note把基础伤害倍率削了，但移除了攻速惩罚，还加了个流血增伤机制，总的来说算增强了吗？跟目前版本的balde furry跟reaven比怎么样？
-
-
-
-
-
 
 
 -----
@@ -14018,23 +9719,16 @@ GGG这次不知道什么情况  各种节奏都比平常快了早些   预�
 ##### 653#       发表于 2018-6-1 19:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39846285&amp;ptid=1478318" target="_blank">DawnGuardian 发表于 2018-6-1 19:24</a>
 
 说起来改版后的破空斩怎么样了？看了下patch note把基础伤害倍率削了，但移除了攻速惩罚，还加了个流血增伤 ...</blockquote>
 我的感觉lacerate和reave定位差不多，两个都是清图的技能，区别一个是2h，一个1h。bf是单体
 
 
-
-
-
-
-
 -----
 
 ####  BotRondo  
 ##### 654#       发表于 2018-6-1 21:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39846285&amp;ptid=1478318" target="_blank">DawnGuardian 发表于 2018-6-1 19:24</a>
@@ -14046,25 +9740,13 @@ GGG这次不知道什么情况  各种节奏都比平常快了早些   预�
 bf融打这两个技能实在是太imba了
 
 
-
-
-
-
-
 -----
 
 ####  d.kaede  
 ##### 655#       发表于 2018-6-6 01:28
 
 
-
-
 才注意到这版本的Dyadus有变动，所以Animate Guardian双持Dyadus增伤这种玩法算是彻底报废了？本来还想用它给我的fire trap和flamethrower trap添把火的。
-
-
-
-
-
 
 
 -----
@@ -14073,16 +9755,10 @@ bf融打这两个技能实在是太imba了
 ##### 656#       发表于 2018-7-1 01:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39888951&amp;ptid=1478318" target="_blank">d.kaede 发表于 2018-6-5 18:28</a>
 
 才注意到这版本的Dyadus有变动，所以Animate Guardian双持Dyadus增伤这种玩法算是彻底报废了？本来还想用它 ...</blockquote>
 是的，砍得比较莫名。
-
-
-
-
-
 
 
 -----
@@ -14091,16 +9767,9 @@ bf融打这两个技能实在是太imba了
 ##### 657#       发表于 2018-7-1 01:21
 
 
-
-
 这个赛季是我自Anarchy以来玩过最好玩的一个赛季。据朋友评论，比广受赞誉的breach还要好。
 
 想玩的可以试试啦！
-
-
-
-
-
 
 
 -----
@@ -14109,15 +9778,12 @@ bf融打这两个技能实在是太imba了
 ##### 658#         楼主| 发表于 2018-7-6 20:00
 
 
-
-
 更新了二老模拟器     拿来练手尝试熟悉套路很有价值
 
 
 话说冰推波的BUFF是个陷阱    减少伤害衰减不错     但"伤害提高到和冰球一个级别"是个误导   2者都是带有多重射强化石的冰系投射物技能    在起始伤害相同的前提下一个有距离衰减 另一个没衰减 那么差距就明显了  实战表现就是冰球清图效率明显更好
 
 要么冰推波伤害再提个30%  要么弄成锤大地那样无衰减但近身有个伤害增幅
-
 
 
 另外这次火系随着点燃BUFF变得更亲儿子      几率点燃变成了一个more火伤+大幅加点燃几率+点燃的敌人掉火抗的超强辅助      
@@ -14139,16 +9805,10 @@ bf融打这两个技能实在是太imba了
 另 下个赛季继续技能重做和加更多新技能   
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 659#         楼主| 发表于 2018-8-9 09:47
-
 
 
 <img src="https://i.imgur.com/s6kilKH.png" referrerpolicy="no-referrer">
@@ -14467,7 +10127,6 @@ VAAL版在使用时还会给予玩家伤害变得幸运的BUFF(ROLL2次取更高
 <img src="https://i.redditmedia.com/Bb4HeSH2099Gwd-JWFf3_oU7i8BNuuRfo5iHrii1cgM.jpg?w=673&amp;s=92555f0c652a2ce86e7dd93ff836a234" height="767" id="aimg_mpP4p" onclick="zoom(this, this.src, 0, 0, 0)" width="673"/)
 
 
-
 <strong>系统调整
 
 </strong><strong>点燃BUFF</strong>
@@ -14494,17 +10153,10 @@ Ignite Proliferation提高范围并附带烧伤BUFF   现在LV20时造成20半
 <img src="https://i.redditmedia.com/VfWy4W1Dir4qkXq_7IwEs0l9UHBFArRWu8cY0bzjjY8.png?w=333&amp;s=89419eff9446170460f009c18de8ca53" height="360" id="aimg_aokRl" onclick="zoom(this, this.src, 0, 0, 0)" width="333"/)
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 660#         楼主| 发表于 2018-8-9 09:53
-
-
 
 
 3.4快来了   更新调整下资料
@@ -14515,33 +10167,19 @@ Ignite Proliferation提高范围并附带烧伤BUFF   现在LV20时造成20半
 3.3大致是比较好玩的版本      不过也有一些诟病的问题  是否喜欢就看个人了
 
 
-
-
-
-
-
 -----
 
 ####  猫骑士  
 ##### 661#       发表于 2018-8-10 09:08
 
 
-
-
 大秘境要来了
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 662#         楼主| 发表于 2018-8-10 10:43
-
-
 
 
 码字过程中顺路提下
@@ -14559,26 +10197,13 @@ Left untouched for over 250 years, the Azurite Mine has been consumed by a malev
 如果把上面的译名直接丢进去总感觉不合适  但翻译的魔幻些又觉得违背了信雅达
 
 
-
-
-
-
-
-
 -----
 
 ####  λ2000  
 ##### 663#       发表于 2018-8-10 11:21
 
 
-
-
 we fucking diablo now
-
-
-
-
-
 
 
 -----
@@ -14587,14 +10212,7 @@ we fucking diablo now
 ##### 664#       发表于 2018-8-10 14:22
 
 
-
-
 地牢推车，感觉不好玩，宣传片看起来倒还可以
-
-
-
-
-
 
 
 -----
@@ -14603,21 +10221,13 @@ we fucking diablo now
 ##### 665#       发表于 2018-8-11 09:27
 
 
-
-
 这个新赛季是不是开始让poe玩家和d3玩家互相理解的
-
-
-
-
-
 
 
 -----
 
 ####  qdxhs  
 ##### 666#       发表于 2018-8-11 21:16
-
 
 
  本帖最后由 qdxhs 于 2018-8-11 21:23 编辑 
@@ -14629,33 +10239,20 @@ azurite 石青; 蓝铜矿
 感觉按石青或蓝铜翻译也挺好的
 
 
-
-
-
-
-
 -----
 
 ####  λ2000  
 ##### 667#       发表于 2018-8-12 07:56
 
 
-
-
 要这个赛季能成功才好
 我室友维护d3的说辞就是poe没有无限地牢 所以build花样才多 
-
-
-
-
-
 
 
 -----
 
 ####  猫骑士  
 ##### 668#       发表于 2018-8-12 11:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40622455&amp;ptid=1478318" target="_blank">λ2000 发表于 2018-8-12 07:56</a>
@@ -14666,16 +10263,10 @@ azurite 石青; 蓝铜矿
 有无限地牢就必然没有什么多样化的bd了。
 
 
-
-
-
-
-
 -----
 
 ####  ckseng  
 ##### 669#       发表于 2018-8-12 13:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40623916&amp;ptid=1478318" target="_blank">猫骑士 发表于 2018-8-12 11:42</a>
@@ -14684,16 +10275,10 @@ azurite 石青; 蓝铜矿
 可以过T18的bd也不多吧
 
 
-
-
-
-
-
 -----
 
 ####  猫骑士  
 ##### 670#       发表于 2018-8-12 15:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40625006&amp;ptid=1478318" target="_blank">ckseng 发表于 2018-8-12 13:49</a>
@@ -14702,16 +10287,10 @@ azurite 石青; 蓝铜矿
 看装备吧，大部分bd装备到位都能过，难易不同，我3.3不到5000血的法杖元打都过了，只是容错比较低。
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 671#         楼主| 发表于 2018-8-12 15:04
-
 
 
  本帖最后由 妹控使徒 于 2018-8-12 15:06 编辑 
@@ -14725,16 +10304,10 @@ azurite 石青; 蓝铜矿
 即使这个天花板很高但可以围绕这个界限标准配置各种资源来调整成长幅度  而在一个无上限强度压力环境下要把各种流派做到上限差不多又都有各种特色是极难的  下版本怎么处理还真是个问题  尤其是这版本在一些技能调整上过于暴力的现状下
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 672#       发表于 2018-8-12 15:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40625006&amp;ptid=1478318" target="_blank">ckseng 发表于 2018-8-12 13:49</a>
@@ -14743,25 +10316,13 @@ azurite 石青; 蓝铜矿
 多少算不多？
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 673#       发表于 2018-8-12 16:16
 
 
-
-
 有冲层感觉就功利了啊
-
-
-
-
-
 
 
 -----
@@ -14770,14 +10331,7 @@ azurite 石青; 蓝铜矿
 ##### 674#       发表于 2018-8-13 17:34
 
 
-
-
 这冲层怕是可以促进消费了。。
-
-
-
-
-
 
 
 -----
@@ -14786,30 +10340,20 @@ azurite 石青; 蓝铜矿
 ##### 675#         楼主| 发表于 2018-8-16 00:38
 
 
-
-
 入侵的神庙系统3.5入CORE  
-
 
 
 有一系列关于下版本深究推矿车相关的QA
 [https://www.pathofexile.com/forum/view-thread/2197540](https://www.pathofexile.com/forum/view-thread/2197540)
 
 
-
 暂时没有下版本新游戏内容更新 就不更新1L了
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 676#         楼主| 发表于 2018-8-17 12:33
-
 
 
 [https://www.pathofexile.com/forum/view-thread/2198110](https://www.pathofexile.com/forum/view-thread/2198110)
@@ -14820,16 +10364,10 @@ azurite 石青; 蓝铜矿
 而且文末提到这次会调整混沌伤相关资源和技能石   药娘进阶  等
 
 
-
-
-
-
-
 -----
 
 ####  ckseng  
 ##### 677#       发表于 2018-8-17 14:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40675438&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2018-8-17 12:33</a>
@@ -14840,17 +10378,10 @@ https://www.pathofexile.com/forum/view-thread/2198110
 只提起药娘该不会是大砍吧 , 如果是buff混沌伤相关应该还会带上刺客和欺诈
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 678#         楼主| 发表于 2018-8-22 18:00
-
-
 
 
 加了个新技能  顺带老头的守卫进阶会有个新天赋和其对应  强化其收益以及守卫性能   
@@ -14859,17 +10390,10 @@ https://www.pathofexile.com/forum/view-thread/2198110
 话说D3的光柱是否是其首创?  不知道更早之前还有什么游戏采用过否   火炬?
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 679#         楼主| 发表于 2018-8-24 20:01
-
-
 
 
 更新了下最近几个系统上的新内容/调整
@@ -14878,17 +10402,10 @@ https://www.pathofexile.com/forum/view-thread/2198110
 话说MAP的2个新改动是3.3国服现已改的  再结合国服的检东西宠物  D3光柱筛选器        POE未来怎么发展确实开始让人在意了
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 680#         楼主| 发表于 2018-8-31 07:05
-
-
 
 
 patch note已出   
@@ -14896,16 +10413,10 @@ patch note已出   
 这次钦定是召唤   原本以为毒/混沌会BUFF  结果只是钦定CA/TR  然后顺带调整了些他们需要的资源   混沌系算是扩展了资源  但毒系资源依旧吃紧        附加率依旧卡手   而且混沌辅助石依旧蛋疼
 
 
-
-
-
-
-
 -----
 
 ####  帕林马哲理  
 ##### 681#       发表于 2018-8-31 07:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40749679&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2018-8-24 13:01</a>
@@ -14917,16 +10428,10 @@ patch note已出   
 国服有捡东西的宠物了？这是个好消息啊。火炬之光我最喜欢的设计就是这个宠物了。
 
 
-
-
-
-
-
 -----
 
 ####  qdxhs  
 ##### 682#       发表于 2018-8-31 18:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40604750&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2018-8-10 10:43</a>
@@ -14939,16 +10444,10 @@ Voltaxic Sulphite-----------不稳定 ...</blockquote>
 说起来这个Voltaxic到底是什么意思？我搜索这个单词出来的基本全是POE的相关网页，比如Voltaxic Rift。各种在线翻译都译不出中文，只有百度译成“体积不等的”，似乎不怎么靠谱。有些网站给出的近似单词是voltaic——adj. 电流的;伏特的。谷歌翻译检测说是什么加利西亚语，译成英文是voltage电压。从Voltaxic Rift的属性来看倒是可能真的跟电有关系。那么你译成“不稳定”是根据什么呢？
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 683#         楼主| 发表于 2018-8-31 19:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40824057&amp;ptid=1478318" target="_blank">qdxhs 发表于 2018-8-31 18:04</a>
@@ -14960,17 +10459,10 @@ Voltaxic Sulphite-----------不稳定 ...</blockquote>
 而那个武器 Voltaxic rift  一般译名为 魔爆之痕     所以简单翻译  不稳定/魔暴都可以
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 684#         楼主| 发表于 2018-8-31 19:19
-
-
 
 
 另外官网放了预下载  这儿直接给磁链吧
@@ -14979,32 +10471,19 @@ Voltaxic Sulphite-----------不稳定 ...</blockquote>
 magnet:?xt=urn:btih:1BC319FE2BC9E83F29E3C25F81DDD4E66F279DE2
 
 
-
-
-
-
-
 -----
 
 ####  qdxhs  
 ##### 685#       发表于 2018-8-31 20:11
 
 
-
-
 我用谷歌翻译查这个词它就不给我中文……
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 686#         楼主| 发表于 2018-9-10 17:59
-
 
 
 <img src="https://i.imgur.com/PkCN9Cf.png" referrerpolicy="no-referrer">
@@ -15017,16 +10496,10 @@ magnet:?xt=urn:btih:1BC319FE2BC9E83F29E3C25F81DDD4E66F279DE2
 2是关于化石和插孔石的获取   主要来源是2个检查点的道中    在打通一个检查点后之前的道中会全部点亮  而深入就要靠自己的闪光点了    顺便道中的灯亮度受推车的亮度范围影响  不如说那个升级主要就是给这个用的    只跑推车不去探索道中那么打到赛季结束可能都没几个化石
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 687#         楼主| 发表于 2018-9-17 11:31
-
 
 
  本帖最后由 妹控使徒 于 2018-9-17 17:47 编辑 
@@ -15044,25 +10517,13 @@ magnet:?xt=urn:btih:1BC319FE2BC9E83F29E3C25F81DDD4E66F279DE2
 <img src="https://i.imgur.com/pT1OqWg.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cosx  
 ##### 688#       发表于 2018-9-17 13:14
 
 
-
-
 挖矿是不是hotfix过，路过的图再去扫荡就没啥掉落了
-
-
-
-
-
 
 
 -----
@@ -15071,21 +10532,13 @@ magnet:?xt=urn:btih:1BC319FE2BC9E83F29E3C25F81DDD4E66F279DE2
 ##### 689#       发表于 2018-9-17 13:39
 
 
-
-
 问个问题，现在POE有按键往鼠标方向移动这个功能吗？  以前AFK的时候是没有的。
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 690#         楼主| 发表于 2018-9-17 14:04
-
 
 
  本帖最后由 妹控使徒 于 2018-9-17 14:09 编辑 
@@ -15105,16 +10558,10 @@ magnet:?xt=urn:btih:1BC319FE2BC9E83F29E3C25F81DDD4E66F279DE2
 ##### 691#       发表于 2018-9-17 18:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40989377&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2018-9-17 14:04</a>
 
 技能列表里有个走路的功能  你将其快捷键设置出来就是用指定键走路  而且是根据鼠标指向走的</blockquote>
 感谢，话说现在入坑是直接国服还是国际服好？
-
-
-
-
-
 
 
 -----
@@ -15123,16 +10570,10 @@ magnet:?xt=urn:btih:1BC319FE2BC9E83F29E3C25F81DDD4E66F279DE2
 ##### 692#         楼主| 发表于 2018-9-17 19:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40992747&amp;ptid=1478318" target="_blank">卡鲁修特 发表于 2018-9-17 18:38</a>
 
 感谢，话说现在入坑是直接国服还是国际服好？</blockquote>
 最好国际服  各方面环境都是更优  唯一劣势是可能延迟更高   但只要认准新加坡/日本入口 再配合加速器(UU/海豚之类)  基本都是80ms内的体验
-
-
-
-
-
 
 
 -----
@@ -15141,16 +10582,10 @@ magnet:?xt=urn:btih:1BC319FE2BC9E83F29E3C25F81DDD4E66F279DE2
 ##### 693#       发表于 2018-9-17 21:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40993314&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2018-9-17 19:33</a>
 
 最好国际服  各方面环境都是更优  唯一劣势是可能延迟更高   但只要认准新加坡/日本入口 再配合加速器(UU ...</blockquote>
 收到<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15159,16 +10594,10 @@ magnet:?xt=urn:btih:1BC319FE2BC9E83F29E3C25F81DDD4E66F279DE2
 ##### 694#       发表于 2018-9-18 04:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40993314&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2018-9-17 19:33</a>
 
 最好国际服  各方面环境都是更优  唯一劣势是可能延迟更高   但只要认准新加坡/日本入口 再配合加速器(UU ...</blockquote>
 啊对了，忘了问，是不是设置了按键移动会占用一个快捷技能栏？
-
-
-
-
-
 
 
 -----
@@ -15177,15 +10606,9 @@ magnet:?xt=urn:btih:1BC319FE2BC9E83F29E3C25F81DDD4E66F279DE2
 ##### 695#       发表于 2018-9-18 08:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40989377&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2018-9-17 14:04</a>
 技能列表里有个走路的功能  你将其快捷键设置出来就是用指定键走路  而且是根据鼠标指向走的</blockquote>
 果然是修过了，开服前两三天的时候看ziggyD的视频是可以反复load开过的地图去搜刮的
-
-
-
-
-
 
 
 -----
@@ -15194,16 +10617,10 @@ magnet:?xt=urn:btih:1BC319FE2BC9E83F29E3C25F81DDD4E66F279DE2
 ##### 696#         楼主| 发表于 2018-9-18 08:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40996643&amp;ptid=1478318" target="_blank">卡鲁修特 发表于 2018-9-18 04:07</a>
 
 啊对了，忘了问，是不是设置了按键移动会占用一个快捷技能栏？</blockquote>
 对  一般是鼠标左键走路
-
-
-
-
-
 
 
 -----
@@ -15212,16 +10629,10 @@ magnet:?xt=urn:btih:1BC319FE2BC9E83F29E3C25F81DDD4E66F279DE2
 ##### 697#         楼主| 发表于 2018-9-18 08:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40996643&amp;ptid=1478318" target="_blank">卡鲁修特 发表于 2018-9-18 04:07</a>
 
 啊对了，忘了问，是不是设置了按键移动会占用一个快捷技能栏？</blockquote>
 对  一般是鼠标左键走路
-
-
-
-
-
 
 
 -----
@@ -15230,16 +10641,10 @@ magnet:?xt=urn:btih:1BC319FE2BC9E83F29E3C25F81DDD4E66F279DE2
 ##### 698#       发表于 2018-9-18 10:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40817296&amp;ptid=1478318" target="_blank">帕林马哲理 发表于 2018-8-31 07:09</a>
 
 国服有捡东西的宠物了？这是个好消息啊。火炬之光我最喜欢的设计就是这个宠物了。 ...</blockquote>
 这个多少钱？
-
-
-
-
-
 
 
 -----
@@ -15248,15 +10653,9 @@ magnet:?xt=urn:btih:1BC319FE2BC9E83F29E3C25F81DDD4E66F279DE2
 ##### 699#       发表于 2018-9-18 11:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40998748&amp;ptid=1478318" target="_blank">diablo3 发表于 2018-9-18 10:18</a>
 这个多少钱？</blockquote>
 据说¥1288
-
-
-
-
-
 
 
 -----
@@ -15265,16 +10664,10 @@ magnet:?xt=urn:btih:1BC319FE2BC9E83F29E3C25F81DDD4E66F279DE2
 ##### 700#       发表于 2018-9-18 14:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40999441&amp;ptid=1478318" target="_blank">cosx 发表于 2018-9-18 11:12</a>
 
 据说¥1288</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">再见了您呐
-
-
-
-
-
 
 
 -----
@@ -15283,16 +10676,10 @@ magnet:?xt=urn:btih:1BC319FE2BC9E83F29E3C25F81DDD4E66F279DE2
 ##### 701#       发表于 2018-9-18 15:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41001750&amp;ptid=1478318" target="_blank">diablo3 发表于 2018-9-18 14:35</a>
 
 再见了您呐</blockquote>
 客官别走，您可以试试包月的（
-
-
-
-
-
 
 
 -----
@@ -15301,14 +10688,7 @@ magnet:?xt=urn:btih:1BC319FE2BC9E83F29E3C25F81DDD4E66F279DE2
 ##### 702#       发表于 2018-11-4 18:06
 
 
-
-
 客官走了，一气之下做了个手游。
-
-
-
-
-
 
 
 -----
@@ -15317,22 +10697,14 @@ magnet:?xt=urn:btih:1BC319FE2BC9E83F29E3C25F81DDD4E66F279DE2
 ##### 703#       发表于 2018-11-5 11:14
 
 
-
-
 POE也别笑得太早，今天更新消息出来后官网论坛一片哀嚎<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
  <blockquote>We're in Chinatown now, boys.</blockquote>
-
-
-
-
-
 
 
 -----
 
 ####  poegeek  
 ##### 704#       发表于 2018-11-5 11:55
-
 
 
  本帖最后由 poegeek 于 2018-11-5 12:02 编辑 
@@ -15346,16 +10718,10 @@ POE也别笑得太早，今天更新消息出来后官网论坛一片哀嚎</blo
 真正在哀嚎的就极小一撮杠精还有部分HC玩家觉得会分流人数影响正常HC交易而已。
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 705#         楼主| 发表于 2018-11-5 13:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41490905&amp;ptid=1478318" target="_blank">felline 发表于 2018-11-5 11:14</a>
@@ -15373,17 +10739,10 @@ POE也别笑得太早，今天更新消息出来后官网论坛一片哀嚎</blo
 国内那套10倍掉率  遍地宝贝 神器的玩法想在GGG这儿看到是有些难度的
 
 
-
-
-
-
-
-
 -----
 
 ####  felline  
 ##### 706#       发表于 2018-11-5 14:11
-
 
 
  本帖最后由 felline 于 2018-11-5 14:31 编辑 
@@ -15395,17 +10754,10 @@ POE也别笑得太早，今天更新消息出来后官网论坛一片哀嚎</blo
 这也叫喷？说哀嚎当然是夸张，但比起往常这次论坛上持反对意见的人数确实也不少吧，而且重点是，受到暴雪事件的波及担心中资影响GGG的人更多了，我只是对此感到好笑顶了个贴，又没批评加入私享服有什么不好啊
 
 
-
-
-
-
-
 -----
 
 ####  cosx  
 ##### 707#       发表于 2018-11-5 19:36
-
-
 
 
 我反而更期待所谓的largest expansion this year了，不对啊今年也就剩俩月了，真会玩文字游戏， <blockquote>Private leagues cost 120 points to create. By default, they last 10 days and have 10 player slots. 
@@ -15429,17 +10781,10 @@ Currently you can't extend a league beyond two months in length, as the system i
 价格还算合适，就是给主播更多直播素材吧，个人感觉更像官方给你权限开打mod的私服
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 708#         楼主| 发表于 2018-11-14 08:38
-
-
 
 
 [thgame_biliplay{,=av}28976711{,=page}1{,=playmode}1{,=swf}2{,=bililv}1{,=auto}2][/thgame_biliplay]
@@ -15543,45 +10888,13 @@ ATLAS上会有个新特性------------SHAPER会产生一种更强力的MAP使其
 [https://www.pathofexile.com/forum/view-thread/2201188](https://www.pathofexile.com/forum/view-thread/2201188)
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  JWchze  
 ##### 709#       发表于 2018-11-14 10:04
 
 
-
-
 显示器已经送修一个月了，不知道12.6之前能不能修好送回来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 好无聊，好想去蝗
-
-
-
-
-
 
 
 -----
@@ -15590,15 +10903,9 @@ ATLAS上会有个新特性------------SHAPER会产生一种更强力的MAP使其
 ##### 710#         楼主| 发表于 2018-11-14 10:59
 
 
-
 <img src="https://i.imgur.com/MTDUYFO.png" referrerpolicy="no-referrer">
 
 新预告的最后这段略嘲讽
-
-
-
-
-
 
 
 -----
@@ -15607,25 +10914,16 @@ ATLAS上会有个新特性------------SHAPER会产生一种更强力的MAP使其
 ##### 711#       发表于 2018-11-14 11:16
 
 
-
-
 Soulstealer看起来还不错
 
 
 瓦甘居然直接神隐了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 712#         楼主| 发表于 2018-11-15 22:07
-
-
 
 
 补充了一点杂项内容  有缺的可以提下
@@ -15638,32 +10936,19 @@ Soulstealer看起来还不错
 除了数据调控较合理外   另一个因素应该是挖矿虽然被调侃为大秘境 但冲层顶多是目的之一  挖宝挑战BOSS等都是内容之一  而不是除了冲层没其他事干的大秘境
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 713#       发表于 2018-11-18 22:24
 
 
-
-
 3.5听说大师改了 死咸鱼又想来肝了
-
-
-
-
-
 
 
 -----
 
 ####  poegeek  
 ##### 714#       发表于 2018-11-19 03:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41587695&amp;ptid=1478318" target="_blank">felline 发表于 2018-11-14 11:16</a>
@@ -15675,25 +10960,13 @@ Soulstealer看起来还不错
 最新爆料，老大师除了你们老婆zana之外集体进本<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Silence5902  
 ##### 715#       发表于 2018-11-19 15:45
 
 
-
-
 前期太无聊，有没有什么快速升级，开启刷刷刷之路的方法。
-
-
-
-
-
 
 
 -----
@@ -15702,16 +10975,9 @@ Soulstealer看起来还不错
 ##### 716#       发表于 2018-11-19 18:36
 
 
-
-
 这游戏入门需时，对新手又不友好，估计到4.0也就这样，不温不火
 
 最近多了一批新人倒是真的，已经赛季末了，国际服上各种装备宝石的价格都还在涨
-
-
-
-
-
 
 
 -----
@@ -15720,17 +10986,10 @@ Soulstealer看起来还不错
 ##### 717#       发表于 2018-11-22 15:16
 
 
-
-
 羽毛笔灵体火球还是打不过上层长老，手残是不是没救了？
 
 
 跟今天reddit那个进图后按g盲打过关的羽毛笔比较了下，人mana每秒恢复两千多，我只有400
-
-
-
-
-
 
 
 -----
@@ -15739,15 +10998,9 @@ Soulstealer看起来还不错
 ##### 718#       发表于 2018-11-22 15:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41647565&amp;ptid=1478318" target="_blank">Silence5902 发表于 2018-11-19 15:45</a>
 前期太无聊，有没有什么快速升级，开启刷刷刷之路的方法。</blockquote>
 单刷就跑剧情刷血渠，联机可以大号带小号了
-
-
-
-
-
 
 
 -----
@@ -15756,16 +11009,10 @@ Soulstealer看起来还不错
 ##### 719#       发表于 2018-11-22 15:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41647565&amp;ptid=1478318" target="_blank">Silence5902 发表于 2018-11-19 15:45</a>
 
 前期太无聊，有没有什么快速升级，开启刷刷刷之路的方法。</blockquote>
 我倒是反而喜欢前期，慢慢变强的感觉
-
-
-
-
-
 
 
 -----
@@ -15774,21 +11021,13 @@ Soulstealer看起来还不错
 ##### 720#       发表于 2018-11-24 22:42
 
 
-
-
 问一下现在国服的情况怎么样，还是负优化的话继续新加坡服务器走起..
-
-
-
-
-
 
 
 -----
 
 ####  帕林马哲理  
 ##### 721#       发表于 2018-11-24 22:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41683945&amp;ptid=1478318" target="_blank">lionheart 发表于 2018-11-22 08:16</a>
@@ -15800,17 +11039,10 @@ Soulstealer看起来还不错
 毛笔还是建议用血的，用蓝的很难受。虽然我很久没玩了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lionheart  
 ##### 722#       发表于 2018-12-4 08:30
-
-
 
 
 平衡调整来了
@@ -15835,24 +11067,16 @@ In 3.5.0 we are removing the ability to use stat sticks, through the following c
     Skills that could be used with two weapons, but were main-hand-only when used, now use both weapons when dual wielding.
 
 
-
 We found that with this change it was important to make skillbinds specific to your weapon set. You can now have an entirely different set of skills bound to your main set of weapons and your second set of weapons.
 
 
 这部分对melee bd影响比较大，物理法术照样双手4附加完全不影响
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 723#         楼主| 发表于 2018-12-4 18:53
-
-
 
 
 [img]%5BIMG%5D<img src="https://wx1.sinaimg.cn/large/638aaa96gy1fxuwsf7j7kj20sg0b60uq.jpg" referrerpolicy="no-referrer">[/IMG][/img]
@@ -15863,16 +11087,10 @@ We found that with this change it was important to make skillbinds specific to y
 话说这次是难得的实际更新的技能比公布的多的
 
 
-
-
-
-
-
 -----
 
 ####  lionheart  
 ##### 724#       发表于 2018-12-5 09:32
-
 
 
  本帖最后由 lionheart 于 2018-12-5 09:44 编辑 
@@ -15892,33 +11110,19 @@ We found that with this change it was important to make skillbinds specific to y
 新赛季就用元素刀阵开工了，武器上的物理附加中了点枪，其他都还好。
 
 
-
-
-
-
-
-
 -----
 
 ####  重名的mufasa  
 ##### 725#       发表于 2018-12-5 10:02
 
 
-
-
 这游戏有没有像献祭那样的技能，过图只要跑就行，走到哪小怪死到哪。
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 726#         楼主| 发表于 2018-12-5 10:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41832648&amp;ptid=1478318" target="_blank">重名的mufasa 发表于 2018-12-5 10:02</a>
@@ -15930,16 +11134,10 @@ Righteous Fire
 其次是個別裝備和怪會附帶持續範圍傷害性效果
 
 
-
-
-
-
-
 -----
 
 ####  永远的访客  
 ##### 727#       发表于 2018-12-5 12:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41832648&amp;ptid=1478318" target="_blank">重名的mufasa 发表于 2018-12-5 10:02</a>
@@ -15948,26 +11146,15 @@ Righteous Fire
 简直太多了，除了烧自己生命的也有反伤触发技能的一大套体系，只要你别想天梯登顶之类的远大目标，有的是玩具
 
 
-
-
-
-
-
 -----
 
 ####  cosx  
 ##### 728#       发表于 2018-12-5 12:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41710534&amp;ptid=1478318" target="_blank">sosgame67 发表于 2018-11-24 22:42</a>
 问一下现在国服的情况怎么样，还是负优化的话继续新加坡服务器走起..</blockquote>
 有钱就玩国服
-
-
-
-
-
 
 
 -----
@@ -15976,15 +11163,8 @@ Righteous Fire
 ##### 729#       发表于 2018-12-5 12:54
 
 
-
-
 CoC的cd改成0.15s这算大buff了吧，
 开荒决定玩击回毒雨了，虽然无聊了点
-
-
-
-
-
 
 
 -----
@@ -15993,23 +11173,16 @@ CoC的cd改成0.15s这算大buff了吧，
 ##### 730#       发表于 2018-12-5 13:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41834548&amp;ptid=1478318" target="_blank">永远的访客 发表于 2018-12-5 12:15</a>
 
 简直太多了，除了烧自己生命的也有反伤触发技能的一大套体系，只要你别想天梯登顶之类的远大目标，有的是 ...</blockquote>
 我只想开荒升级做任务方便,跑就行
 
 
-
-
-
-
-
 -----
 
 ####  lionheart  
 ##### 731#       发表于 2018-12-5 13:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41835489&amp;ptid=1478318" target="_blank">重名的mufasa 发表于 2018-12-5 13:27</a>
@@ -16021,16 +11194,10 @@ CoC的cd改成0.15s这算大buff了吧，
 如果是有人喂装备的开荒，找个50跑速的鞋子起飞就行，小怪本来就不用打
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 732#       发表于 2018-12-5 13:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41835489&amp;ptid=1478318" target="_blank">重名的mufasa 发表于 2018-12-5 13:27</a>
@@ -16039,16 +11206,10 @@ CoC的cd改成0.15s这算大buff了吧，
 要快就拿个小金锤跳跳赶路，或者举盾用盾冲。另外如果熟悉主线 支线任务，以及清怪策略也能加快你推进的速度
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 733#         楼主| 发表于 2018-12-12 00:09
-
 
 
 <img src="https://wx4.sinaimg.cn/large/638aaa96gy1fy397kfxf0j20pp0c5jyz.jpg" referrerpolicy="no-referrer">
@@ -16061,16 +11222,10 @@ CoC的cd改成0.15s这算大buff了吧，
 虽然名为不朽也确实会不断复活  但某种意义上已经死了  恶毒的隐喻
 
 
-
-
-
-
-
 -----
 
 ####  永远的访客  
 ##### 734#       发表于 2018-12-12 09:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41913305&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2018-12-12 00:09</a>
@@ -16082,25 +11237,13 @@ CoC的cd改成0.15s这算大buff了吧，
 总之在线人数又破记录，全靠友商大力支持
 
 
-
-
-
-
-
 -----
 
 ####  highsky  
 ##### 735#       发表于 2018-12-15 23:43
 
 
-
-
 新赛季想玩飞刃风暴，有没什么不太需要装备的bd？
-
-
-
-
-
 
 
 -----
@@ -16109,21 +11252,13 @@ CoC的cd改成0.15s这算大buff了吧，
 ##### 736#       发表于 2018-12-24 17:34
 
 
-
-
 最近的延迟怎么这么屎，仿佛回到了深渊赛季，走走停停快动作重播
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 737#         楼主| 发表于 2018-12-24 17:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42053220&amp;ptid=1478318" target="_blank">cosx 发表于 2018-12-24 17:34</a>
@@ -16134,16 +11269,10 @@ CoC的cd改成0.15s这算大buff了吧，
 目前沒聽到吐槽伺服器延遲高的   主要問題就是早期時常臨時維護
 
 
-
-
-
-
-
 -----
 
 ####  cosx  
 ##### 738#       发表于 2018-12-24 17:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42053268&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2018-12-24 17:40</a>
@@ -16156,16 +11285,10 @@ CoC的cd改成0.15s这算大buff了吧，
 就是这种状态，日本新加坡都试过了，城里藏身处还行，一进地图就卡，用的UU是这样，精品网裸连也这样
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 739#       发表于 2018-12-24 17:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41956519&amp;ptid=1478318" target="_blank">highsky 发表于 2018-12-15 23:43</a>
@@ -16174,16 +11297,10 @@ CoC的cd改成0.15s这算大buff了吧，
 刀阵不就是不吃装备的么……
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 740#         楼主| 发表于 2018-12-24 20:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42053343&amp;ptid=1478318" target="_blank">cosx 发表于 2018-12-24 17:48</a>
@@ -16197,27 +11314,15 @@ https://youtu.be/sAnhLW5uU_E
 這種卡頓我遇到過  就是網路問題         如果怎麼更換節點都無效那麼就可能是本地網路供應商的問題
 
 
-
-
-
-
-
 -----
 
 ####  njjwl2005  
 ##### 741#       发表于 2019-1-6 22:53
 
 
-
-
 这游戏不同BD差距真大。。手残萌新先抄了个药侠刀阵，打到93级自信满满去打T18，撕了n张票，心态爆炸，其实感觉打好点可以过的，但就是手残差一点；后来又抄了个后期向的冰漩涡，结果80级就无压力把T18干了。。
 
 不过两个BD刷小怪的爽度也确实不是一个级别的
-
-
-
-
-
 
 
 -----
@@ -16226,14 +11331,7 @@ https://youtu.be/sAnhLW5uU_E
 ##### 742#       发表于 2019-1-6 23:04
 
 
-
-
 这个赛季感觉怪怪的，内容很丰富，但玩起来很鸡肋，我一般每个赛季把所有的endgame boss全打了就算完，现在碰见两个问题，一个是矿太少遇不到奥尔，另一个是玩了个地雷BD,脆皮+续航差，打死灵大师太吃力了。
-
-
-
-
-
 
 
 -----
@@ -16242,16 +11340,10 @@ https://youtu.be/sAnhLW5uU_E
 ##### 743#       发表于 2019-1-6 23:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42184008&amp;ptid=1478318" target="_blank">njjwl2005 发表于 2019-1-6 22:53</a>
 
 这游戏不同BD差距真大。。手残萌新先抄了个药侠刀阵，打到93级自信满满去打T18，撕了n张票，心态爆炸，其实 ...</blockquote>
 按理说药匣子打T18难度很小，注意躲冰球就行了。
-
-
-
-
-
 
 
 -----
@@ -16260,17 +11352,10 @@ https://youtu.be/sAnhLW5uU_E
 ##### 744#       发表于 2019-1-17 16:09
 
 
-
-
 新人打高级boss还真的是紧张，之前是终息羽毛笔闭着眼睛过的长老，打其他boss也都是站撸瞬吸之类的，各种机制完全不了解，
 
 
 这赛季winter orb已经撕了四套长老票，估计后面还得再撕几套熟悉操作。
-
-
-
-
-
 
 
 -----
@@ -16279,25 +11364,16 @@ https://youtu.be/sAnhLW5uU_E
 ##### 745#       发表于 2019-1-19 10:39
 
 
-
-
 这赛季玩了5个BD，贵族冰剑COC，元素使寒冬宝珠，冠军破碎铁刃，秘术旋涡，圣宗烙印。
 
 
 只有秘术旋涡坚持到通关，一个字就是肉。1W1护盾还有提升空间，减少180%+护盾充能延迟，只要不被秒基本上死不了。配合长老腰带和死亡大门免疫诅咒之外所有异常状态。非常适合老年手残党。
 
 
-
-
-
-
-
-
 -----
 
 ####  wcorvo  
 ##### 746#       发表于 2019-1-19 10:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42322563&amp;ptid=1478318" target="_blank">口口翻大人 发表于 2019-1-19 10:39</a>
@@ -16309,32 +11385,19 @@ https://youtu.be/sAnhLW5uU_E
 这个漩涡造价多少，3ex能搞定不，我玩了个冰剑coc和寒冬宝珠各种花式猝死
 
 
-
-
-
-
-
 -----
 
 ####  cosx  
 ##### 747#       发表于 2019-1-19 11:06
 
 
-
-
 这赛季猝死很正常
-
-
-
-
-
 
 
 -----
 
 ####  口口翻大人  
 ##### 748#       发表于 2019-1-19 11:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42322628&amp;ptid=1478318" target="_blank">wcorvo 发表于 2019-1-19 10:47</a>
@@ -16348,34 +11411,19 @@ https://youtu.be/sAnhLW5uU_E
 我是在这个攻略的基础上改的，把这篇攻略里的腰带和鞋子换成长老腰带和死亡大门就是我的BD。
 
 
-
-
-
-
-
-
 -----
 
 ####  口口翻大人  
 ##### 749#       发表于 2019-1-19 11:20
 
 
-
-
 触发长老腰带免疫点燃和感电需要平衡属性，让智慧&gt;力量&gt;敏捷。这个BD缺力量调起来很费劲，但是值得。
-
-
-
-
-
 
 
 -----
 
 ####  mk2003  
 ##### 750#       发表于 2019-1-26 16:05
-
-
 
 
 安利下，POE 赛季末刷无聊的过年可以来一起黄碧下暗黑2的 Medoam sigma 赛季
@@ -16385,22 +11433,13 @@ https://youtu.be/sAnhLW5uU_E
 亚服进去gs 32选新加坡节点，全局代理你懂的。
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 751#         楼主| 发表于 2019-2-20 09:52
 
 
-
-
 [thgame_biliplay{,=av}35927677{,=page}1{,=playmode}1{,=swf}2{,=bililv}1{,=auto}2][/thgame_biliplay]
-
-
 
 
 专题页
@@ -16409,7 +11448,6 @@ https://youtu.be/sAnhLW5uU_E
 path note
 [https://www.pathofexile.com/forum/view-thread/2255460](https://www.pathofexile.com/forum/view-thread/2255460)
 <img src="https://i.imgur.com/DNA8Cup.jpg" referrerpolicy="no-referrer">
-
 
 
 <strong>S1 POE群  13481013</strong>
@@ -16429,7 +11467,6 @@ Jun Ortoi在调查一个被称为不朽辛迪加(Immortal Syndicate)的神秘组
 
 每个成员的安全屋储藏有不同类型的物品  更高位置的成员掉落的东西更好 每个部门的奖励有不同的变动.操纵辛迪加, 操纵指定成员到对你最有价值的位置上去
 <img src="https://i.imgur.com/OAzlbrw.png" referrerpolicy="no-referrer"> <img src="https://i.imgur.com/YNLSRlM.jpg" referrerpolicy="no-referrer">
-
 
 
 <strong>Veiled Items</strong>
@@ -16514,8 +11551,6 @@ Dread Banner--------增加玩家给予敌人穿刺效果的几率      给�
 LV1效果:图腾上限+2  每次放置2个图腾   图腾伤害减少40%(less)   Q20效果为增加20%放置速度
 
 
-
-
 <strong>Private Leagues </strong>
 [https://www.pathofexile.com/forum/view-thread/2245572](https://www.pathofexile.com/forum/view-thread/2245572)
 
@@ -16561,58 +11596,10 @@ LV1效果:图腾上限+2  每次放置2个图腾   图腾伤害减少40%(les
 10.Champion的范围增益点变更为对应战旗的额外BUFF  比如放置战旗时回血和移除战旗蓝耗
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 752#         楼主| 发表于 2019-2-20 12:18
-
-
 
 
 新赛季内容目前来看大致是bitch+temple的组合  
@@ -16627,34 +11614,19 @@ LV1效果:图腾上限+2  每次放置2个图腾   图腾伤害减少40%(les
 另外等待已久的物理/混沌光环终于出现了  
 
 
-
-
-
-
-
 -----
 
 ####  口口翻大人  
 ##### 753#       发表于 2019-2-20 14:58
 
 
-
-
 电弧应该大砍一刀。
-
-
-
-
-
 
 
 -----
 
 ####  cosx  
 ##### 754#       发表于 2019-2-20 17:14
-
-
-
 
 
 betryal added to core game,新的装备词缀能合成到implicit→1000pdps的单手剑？
@@ -16667,27 +11639,15 @@ annul orb终于出卡片了，这赛季锻造台上又是腥风血雨
 poe是越来越IMBA了
 
 
-
-
-
-
-
 -----
 
 ####  JWchze  
 ##### 755#       发表于 2019-2-20 18:07
 
 
-
-
 准备元打图腾开荒了，之后再看看新技能玩个啥
 
 —— 来自 OnePlus ONEPLUS A5010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -16696,15 +11656,9 @@ poe是越来越IMBA了
 ##### 756#       发表于 2019-2-21 01:57
 
 
-
 <blockquote>口口翻大人 发表于 2019-2-20 14:58
 电弧应该大砍一刀。</blockquote>
 砍电弧才是错的，问题在于其他的技能太烂才没人玩。GGG目前buff其他技能不动电弧的思路是对的，但还没公布具体数值不知道实际如何
-
-
-
-
-
 
 
 -----
@@ -16713,22 +11667,15 @@ poe是越来越IMBA了
 ##### 757#       发表于 2019-2-21 03:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42668095&amp;ptid=1478318" target="_blank">某雷 发表于 2019-2-21 01:57</a>
 砍电弧才是错的，问题在于其他的技能太烂才没人玩。GGG目前buff其他技能不动电弧的思路是对的，但还没公 ...</blockquote>
 我感觉即使buff别的法术也比不了现在的电弧。自动寻敌+连锁机制让电弧的伤害和效率极高,其它法术不是这种机制是望尘莫及的，尤其是开荒。所以英雄榜才有这么多人玩电弧。预测会砍，降伤害或者减少连锁次数。
-
-
-
-
-
 
 
 -----
 
 ####  森田美位子  
 ##### 758#       发表于 2019-2-21 03:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42668281&amp;ptid=1478318" target="_blank">口口翻大人 发表于 2019-2-21 03:11</a>
@@ -16739,32 +11686,19 @@ poe是越来越IMBA了
 而且arc玩法比较固定，除了冲榜或者冲100级的人，一般人又不会反反复复玩一个技能。上面提到的除了BV，剩下不是新技能，就是重做的技能。难道你喜欢连续几个赛季一直只玩一个技能？
 
 
-
-
-
-
-
 -----
 
 ####  uneedme  
 ##### 759#       发表于 2019-2-21 05:00
 
 
-
-
 所以 3.8 是远古神殿的进化版？
-
-
-
-
-
 
 
 -----
 
 ####  口口翻大人  
 ##### 760#       发表于 2019-2-21 10:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42668357&amp;ptid=1478318" target="_blank">森田美位子 发表于 2019-2-21 03:50</a>
@@ -16775,16 +11709,10 @@ poe是越来越IMBA了
 重做归重做，增强归增强，该砍还是要砍，个人意见。我是赞成砍强势技能的，怎么会喜欢连续几个赛季只玩一个技能，不知道你是这是什么逻辑。
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 761#       发表于 2019-2-21 12:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42670319&amp;ptid=1478318" target="_blank">口口翻大人 发表于 2019-2-21 10:25</a>
@@ -16795,16 +11723,10 @@ poe是越来越IMBA了
 再说，在这一堆强势技能里，arc也是有自己弱势的地方。同样是连地雷，GC雷有着不弱于arc雷的清图速度。单体现在能秒shaper，arc雷就算配合电塔陷阱也没做到
 
 
-
-
-
-
-
 -----
 
 ####  口口翻大人  
 ##### 762#       发表于 2019-2-21 14:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42672331&amp;ptid=1478318" target="_blank">森田美位子 发表于 2019-2-21 12:55</a>
@@ -16813,16 +11735,10 @@ poe是越来越IMBA了
 老哥我上次玩电弧是3.3，这赛季主玩秘术旋涡的。单拎出电弧来说是因为它霸榜太夸张了。使用率最高的两个技能之一。
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 763#       发表于 2019-2-21 15:49
-
 
 
  本帖最后由 森田美位子 于 2019-2-21 15:55 编辑 
@@ -16832,16 +11748,10 @@ poe是越来越IMBA了
 国际服赛季4个区，玩的人最多的SC区，92级以上20000个人物中，arc的使用率只能排到第三占9%。另外3个区，分别2个第一，1个第二。远没到霸榜的程度
 
 
-
-
-
-
-
 -----
 
 ####  口口翻大人  
 ##### 764#       发表于 2019-2-21 16:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42674405&amp;ptid=1478318" target="_blank">森田美位子 发表于 2019-2-21 15:49</a>
@@ -16850,16 +11760,10 @@ poe是越来越IMBA了
 好，没霸榜，棒棒哒。
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 765#       发表于 2019-2-21 16:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42674526&amp;ptid=1478318" target="_blank">口口翻大人 发表于 2019-2-21 16:00</a>
@@ -16872,32 +11776,19 @@ arc会不会砍，我说不好，但至少不会因为霸榜这个理由被砍�
 都是04年的ID了，有理由就继续说
 
 
-
-
-
-
-
 -----
 
 ####  felline  
 ##### 766#       发表于 2019-2-21 16:41
 
 
-
-
 只希望说加强自施法能说到做到
-
-
-
-
-
 
 
 -----
 
 ####  cosx  
 ##### 767#       发表于 2019-2-21 18:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42668281&amp;ptid=1478318" target="_blank">口口翻大人 发表于 2019-2-21 03:11</a>
@@ -16907,16 +11798,10 @@ GGG可不像暴雪谁强砍谁，除非真的太imba（elemental hit），开发
 <img src="http://wx1.sinaimg.cn/mw690/007rr0OYgy1g0e7cbr0lhj30c70ip0ub.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  口口翻大人  
 ##### 768#       发表于 2019-2-21 19:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42674849&amp;ptid=1478318" target="_blank">森田美位子 发表于 2019-2-21 16:27</a>
@@ -16927,16 +11812,10 @@ arc会不会砍，我说不好，但至少不会因为霸榜这个理由被砍�
 我看的是国服英雄榜，还有什么好说的。只不过提一点个人看法而已，也是替GGG瞎操心，本不值一驳。大佬实在难受就当我之前说的都是放屁好了。
 
 
-
-
-
-
-
 -----
 
 ####  口口翻大人  
 ##### 769#       发表于 2019-2-21 20:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42676133&amp;ptid=1478318" target="_blank">cosx 发表于 2019-2-21 18:08</a>
@@ -16945,16 +11824,10 @@ GGG可不像暴雪谁强砍谁，除非真的太imba（elemental hit），开发
 GGG没砍过暴徒升华，没砍过爪天赋吗？我知道GGG和暴雪不一样，大家都希望百花齐放。这赛季我主要玩了5个BD，冠军霸气打击，秘术冬珠，勇士双持螃蟹腿重击，秘术千智电爪冲击波，秘术漩涡，加上以前的我尝试过很多技能了。我的观察也许是不够客观，但是也没必要拿国际服数据来怼吧，大家都是热爱这个游戏的。
 
 
-
-
-
-
-
 -----
 
 ####  cosx  
 ##### 770#       发表于 2019-2-21 20:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42677400&amp;ptid=1478318" target="_blank">口口翻大人 发表于 2019-2-21 20:04</a>
@@ -16963,16 +11836,10 @@ GGG没砍过暴徒升华，没砍过爪天赋吗？我知道GGG和暴雪不一�
 问题是GGG不会参考国服数据的啊
 
 
-
-
-
-
-
 -----
 
 ####  口口翻大人  
 ##### 771#       发表于 2019-2-22 10:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42677507&amp;ptid=1478318" target="_blank">cosx 发表于 2019-2-21 20:18</a>
@@ -16981,17 +11848,10 @@ GGG没砍过暴徒升华，没砍过爪天赋吗？我知道GGG和暴雪不一�
 OK,GGG不会参考国服数据，就这么愉快的决定~
 
 
-
-
-
-
-
 -----
 
 ####  mk2003  
 ##### 772#       发表于 2019-2-26 12:29
-
-
 
 
 史上最大的BUFF
@@ -17007,22 +11867,10 @@ OK,GGG不会参考国服数据，就这么愉快的决定~
 2019-2-26 12:29 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  永远的访客  
 ##### 773#       发表于 2019-2-28 17:39
-
-
 
 
 太忙了， 出新闻时就快速瞄了眼说support pack要下架，以为是3月下架，结果今天才发现，是第2天就下架，
@@ -17031,16 +11879,10 @@ OK,GGG不会参考国服数据，就这么愉快的决定~
 这下拉倒，从CB开始定期买包支持GGG，这个版本断了，不爽中
 
 
-
-
-
-
-
 -----
 
 ####  cosx  
 ##### 774#       发表于 2019-3-6 17:22
-
 
 
 [3.6Patch Notes](https://www.pathofexile.com/forum/view-thread/2333648#skillbalance)出了，
@@ -17060,16 +11902,10 @@ Now has an added damage effectiveness of 80% (from 90%).
 Lowered the range at which Arc can chain from 50 units to 25 units.</blockquote>
 
 
-
-
-
-
-
 -----
 
 ####  口口翻大人  
 ##### 775#       发表于 2019-3-6 18:06
-
 
 
  本帖最后由 口口翻大人 于 2019-3-6 18:08 编辑 
@@ -17083,17 +11919,10 @@ Lowered the range at which Arc can chain from 50 units to 25 units.</blockquote>
 欺诈者从下水道上天了，考虑一下S7首发欺诈者...
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 776#         楼主| 发表于 2019-3-6 18:39
-
-
 
 
 TC和FN砍的略猛   尤其是对暗金怪效果减半+诅咒抗性    几乎没什么效果了
@@ -17109,16 +11938,10 @@ Added a cap on the amount of any resource you can leech from any individual inst
 应该是比值越高越好吧   白富美加了个debuff让吸取更慢?
 
 
-
-
-
-
-
 -----
 
 ####  cosx  
 ##### 777#       发表于 2019-3-7 06:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42817830&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2019-3-6 18:39</a>
@@ -17129,16 +11952,10 @@ TC和FN砍的略猛   尤其是对暗金怪效果减半+诅咒抗性    几�
 反正吸血只有5秒了，再也不能叠几分钟的overleech了
 
 
-
-
-
-
-
 -----
 
 ####  某雷  
 ##### 778#       发表于 2019-3-7 10:37
-
 
 
 <blockquote>妹控使徒 发表于 2019-3-6 18:39
@@ -17149,26 +11966,15 @@ TC和FN砍的略猛   尤其是对暗金怪效果减半+诅咒抗性    几�
 就是砍血池，现在贵族八成八都绑定一个处刑，不过应该也有天赋弥补
 
 
-
-
-
-
-
 -----
 
 ####  某雷  
 ##### 779#       发表于 2019-3-7 10:39
 
 
-
 <blockquote>cosx 发表于 2019-3-7 06:46
 反正吸血只有5秒了，再也不能叠几分钟的overleech了</blockquote>
 基础五秒，新属性能提升这个时间…也许还能叠到30秒去？
-
-
-
-
-
 
 
 -----
@@ -17177,15 +11983,9 @@ TC和FN砍的略猛   尤其是对暗金怪效果减半+诅咒抗性    几�
 ##### 780#       发表于 2019-3-7 10:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42823746&amp;ptid=1478318" target="_blank">某雷 发表于 2019-3-7 10:39</a>
 基础五秒，新属性能提升这个时间…也许还能叠到30秒去？</blockquote>
 这位置还是留给life recovery rate吧
-
-
-
-
-
 
 
 -----
@@ -17194,17 +11994,10 @@ TC和FN砍的略猛   尤其是对暗金怪效果减半+诅咒抗性    几�
 ##### 781#       发表于 2019-3-7 11:03
 
 
-
-
 前天ggg的工程师在reddit解释了一堆life leech的逻辑，复杂的很，口干舌燥的还没讲清楚
 
 
 ggg为了保证偷取可用又不滥强是不是花太多精力了？不如学习暴爹直接砍掉偷取和击回吧
-
-
-
-
-
 
 
 -----
@@ -17213,14 +12006,7 @@ ggg为了保证偷取可用又不滥强是不是花太多精力了？不如学�
 ##### 782#       发表于 2019-3-7 14:23
 
 
-
-
 3.6看着还行，考虑赛季玩一会，或者再魔改下自己永久区那个秘术死神光环
-
-
-
-
-
 
 
 -----
@@ -17229,21 +12015,13 @@ ggg为了保证偷取可用又不滥强是不是花太多精力了？不如学�
 ##### 783#       发表于 2019-3-7 15:30
 
 
-
-
 讲道理他们要是直接把每次攻击分别造成leech instance去掉，简化成只有一个剩余吸取量，不就既容易理解也容易平衡了吗
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 784#         楼主| 发表于 2019-3-7 17:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42827529&amp;ptid=1478318" target="_blank">Wiksy 发表于 2019-3-7 15:30</a>
@@ -17260,24 +12038,13 @@ ggg为了保证偷取可用又不滥强是不是花太多精力了？不如学�
 有心有空的可以直接去质问下那个设计者    他们是否把问题处理的太复杂了?
 
 
-
-
-
-
-
 -----
 
 ####  cosx  
 ##### 785#       发表于 2019-3-7 20:54
 
 
-
 [技能石](https://www.pathofexile.com/forum/view-thread/2451448)出来了， Infused Channelling Support 好像很屌的样子
-
-
-
-
-
 
 
 -----
@@ -17286,23 +12053,15 @@ ggg为了保证偷取可用又不滥强是不是花太多精力了？不如学�
 ##### 786#       发表于 2019-3-8 03:29
 
 
-
-
 电弧和刀阵都砍了 拿啥开荒好呢
 
 —— 来自 Xiaomi MI 6, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 787#         楼主| 发表于 2019-3-9 03:03
-
 
 
  本帖最后由 妹控使徒 于 2019-3-9 03:04 编辑 
@@ -17323,25 +12082,13 @@ wrong shader file decoded size  
 不过会看这儿的应该都知道了   就还是算了  
 
 
-
-
-
-
-
 -----
 
 ####  mk2003  
 ##### 788#       发表于 2019-3-10 22:10
 
 
-
-
 bane no1
-
-
-
-
-
 
 
 -----
@@ -17350,14 +12097,7 @@ bane no1
 ##### 789#       发表于 2019-3-10 23:43
 
 
-
-
 这版本，OCC三诅咒TC，ENF，DES在45%诅咒效果加成下，对T18能够提供接近20%的硬减伤，40% more伤害。。已经很恐怖了。。。
-
-
-
-
-
 
 
 -----
@@ -17366,14 +12106,7 @@ bane no1
 ##### 790#       发表于 2019-3-11 08:30
 
 
-
-
 国际服玩得挺随意的，没有跟风玩混沌系，起了个欺诈大光炮，输出还是挺可以的，就是清图略蠢
-
-
-
-
-
 
 
 -----
@@ -17382,15 +12115,9 @@ bane no1
 ##### 791#       发表于 2019-3-11 08:32
 
 
-
 <blockquote>mk2003 发表于 2019-3-10 23:43
 这版本，OCC三诅咒TC，ENF，DES在45%诅咒效果加成下，对T18能够提供接近20%的硬减伤，40% more伤害。。已经 ...</blockquote>
 这几个赛季全buff到ooc身上了也是一绝，多少升华还在下水道里待着，暴徒处刑更是没法玩了
-
-
-
-
-
 
 
 -----
@@ -17399,14 +12126,7 @@ bane no1
 ##### 792#       发表于 2019-3-13 08:26
 
 
-
-
 开荒图稳妥走了个漩涡秘术，现在一心想着reroll
-
-
-
-
-
 
 
 -----
@@ -17415,14 +12135,7 @@ bane no1
 ##### 793#       发表于 2019-3-13 10:24
 
 
-
-
 UU炸了，国内还有什么加速器可以推荐一下的？
-
-
-
-
-
 
 
 -----
@@ -17431,14 +12144,7 @@ UU炸了，国内还有什么加速器可以推荐一下的？
 ##### 794#       发表于 2019-3-13 15:03
 
 
-
-
 现在可用的加速，雷神，极讯。
-
-
-
-
-
 
 
 -----
@@ -17447,22 +12153,15 @@ UU炸了，国内还有什么加速器可以推荐一下的？
 ##### 795#       发表于 2019-3-13 16:11
 
 
-
  本帖最后由 felline 于 2019-3-13 16:12 编辑 
 
 UU其实姑且还是可以用的，因为不一定非要加速POE国际服才能进游戏
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 796#         楼主| 发表于 2019-3-13 18:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42893312&amp;ptid=1478318" target="_blank">felline 发表于 2019-3-13 16:11</a>
@@ -17474,32 +12173,19 @@ UU其实姑且还是可以用的，因为不一定非要加速POE国际服才能
 另外某个死去的加速器复活了  而这个对POE加速效果不错  四川电信100ms    有的人应该能83ms
 
 
-
-
-
-
-
 -----
 
 ####  cosx  
 ##### 797#       发表于 2019-3-13 18:17
 
 
-
-
 UU挂了还能用什么加速器？话说这玩意就怕大众化
-
-
-
-
-
 
 
 -----
 
 ####  felline  
 ##### 798#       发表于 2019-3-13 19:00
-
 
 
  本帖最后由 felline 于 2019-3-13 19:22 编辑 
@@ -17514,17 +12200,10 @@ UU挂了还能用什么加速器？话说这玩意就怕大众化
 刚刚又试了下，台北节点能进，香港节点好像不行
 
 
-
-
-
-
-
 -----
 
 ####  kula01  
 ##### 799#       发表于 2019-3-13 21:10
-
-
 
 
 雷神死了   我去找找其他加速器  UU台服这个我试了试，不行啊，我电信，用了也是直连
@@ -17532,13 +12211,9 @@ UU挂了还能用什么加速器？话说这玩意就怕大众化
 另外多说一句，国服过一天就要开了。 这个节点，连国际服的加速器全被干掉。如果这是是腾讯干的。马化腾我干你妈。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -17548,12 +12223,7 @@ UU挂了还能用什么加速器？话说这玩意就怕大众化
 | 强袭目田| + 1|企鹅宰猪服再怎么跳都是垃圾|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -17562,14 +12232,7 @@ UU挂了还能用什么加速器？话说这玩意就怕大众化
 ##### 800#       发表于 2019-3-14 01:00
 
 
-
-
 奇游可以，但我日本新加坡failed to connect instance，只能连莫斯科，150ms受不了，等国服了
-
-
-
-
-
 
 
 -----
@@ -17578,21 +12241,13 @@ UU挂了还能用什么加速器？话说这玩意就怕大众化
 ##### 801#       发表于 2019-3-14 16:08
 
 
-
-
 uu只是第一步，能用的加速基本都砍死了，尼玛企鹅太狠了，我想打又不想吃屎真难啊
-
-
-
-
-
 
 
 -----
 
 ####  kula01  
 ##### 802#       发表于 2019-3-14 20:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42905291&amp;ptid=1478318" target="_blank">sakaki59 发表于 2019-3-14 16:08</a>
@@ -17607,33 +12262,19 @@ uu只是第一步，能用的加速基本都砍死了，尼玛企鹅太狠了，
 腾讯能无耻到这种地步简直匪夷所思，都快赶上百度了。
 
 
-
-
-
-
-
 -----
 
 ####  cosx  
 ##### 803#       发表于 2019-3-14 22:09
 
 
-
-
 看来这赛季的100%暴击上限就是特意留给divine ire的，20层=我tm射爆
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 804#         楼主| 发表于 2019-3-17 13:49
-
-
 
 
 这赛季又是个多重RNG判定机制的系统
@@ -17644,25 +12285,13 @@ uu只是第一步，能用的加速基本都砍死了，尼玛企鹅太狠了，
 不够记忆装备是好东西  虽然要出高级货更难 但一旦出了能用的词缀 再配合精华或化石等   出好装备的起点一下就高了
 
 
-
-
-
-
-
 -----
 
 ####  GameTheory  
 ##### 805#       发表于 2019-3-21 22:37
 
 
-
-
 有人知道到底什么原因么？迅游今天更新之后poe国际服消失了，还剩国服和疑似台服，到底发生了什么？这没法玩儿了啊
-
-
-
-
-
 
 
 -----
@@ -17671,24 +12300,16 @@ uu只是第一步，能用的加速基本都砍死了，尼玛企鹅太狠了，
 ##### 806#       发表于 2019-3-22 15:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42991009&amp;ptid=1478318" target="_blank">GameTheory 发表于 2019-3-21 22:37</a>
 
 有人知道到底什么原因么？迅游今天更新之后poe国际服消失了，还剩国服和疑似台服，到底发生了什么？这没法 ...</blockquote>
 168上有老哥联系过加速器客服，说是是ggg那边封了不少加速服务器
 
 
-
-
-
-
-
-
 -----
 
 ####  kula01  
 ##### 807#       发表于 2019-3-22 16:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42991009&amp;ptid=1478318" target="_blank">GameTheory 发表于 2019-3-21 22:37</a>
@@ -17709,16 +12330,10 @@ GGG的官方原因是 有工作室利用加速器登陆国际服，为了国际�
 我只能当做SSF玩了，就是心疼国际服花的钱。
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 808#         楼主| 发表于 2019-3-22 16:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42991009&amp;ptid=1478318" target="_blank">GameTheory 发表于 2019-3-21 22:37</a>
@@ -17733,20 +12348,13 @@ GGG的官方原因是 有工作室利用加速器登陆国际服，为了国际�
 总之现在是考验情报力和储备的时候了      加速器这东西本来也是要时常换的  没那个可以指望不变的用上几年    原则来说用尽量冷门的加速器就可以了  或者机制和目前主流方法不同的
 
 
-
 顺带再提下  某个曾经死掉  可以当梯子用的加速器复活了  而且这个是依旧是全域加速(只是不能当梯子了)   不用怕指定游戏下架的问题  而且稳定100ms
-
-
-
-
-
 
 
 -----
 
 ####  GameTheory  
 ##### 809#       发表于 2019-3-26 14:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42999647&amp;ptid=1478318" target="_blank">kula01 发表于 2019-3-22 16:30</a>
@@ -17765,32 +12373,19 @@ GGG的官方原因是 有工作室利用加速器登陆国际服，为了国际�
 另外楼上的加速器能给个更多的提示么？
 
 
-
-
-
-
-
 -----
 
 ####  Nosgoth  
 ##### 810#       发表于 2019-3-26 15:34
 
 
-
-
 现在直连选日本还将就，进去是80多的延迟，就是外面选gateway的时候日本新加坡是ping不出来的，让他自动选就是200多的加利福利亚。
-
-
-
-
-
 
 
 -----
 
 ####  kula01  
 ##### 811#       发表于 2019-3-27 12:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43045797&amp;ptid=1478318" target="_blank">GameTheory 发表于 2019-3-26 14:15</a>
@@ -17826,32 +12421,19 @@ GGG的官方原因是 有工作室利用加速器登陆国际服，为了国际�
 不对，这才他妈2019年啊。
 
 
-
-
-
-
-
 -----
 
 ####  cosx  
 ##### 812#       发表于 2019-3-27 12:39
 
 
-
-
 这赛季也是屎，合成装备痛苦太多收获太少，地图掉率暗改，六分仪钉子瓦尔全上也只掉2张图，还是-2Tier的，想续图真的太难
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 813#         楼主| 发表于 2019-5-2 21:38
-
 
 
 <img src="https://wx2.sinaimg.cn/large/638aaa96gy1g0crlsfdbsj20mx0ebh04.jpg" referrerpolicy="no-referrer">
@@ -17862,8 +12444,6 @@ GGG的官方原因是 有工作室利用加速器登陆国际服，为了国际�
 
 S1 POE群  13481013
 2L有辅助工具/网站
-
-
 
 
 <strong>the Synthesis challenge league</strong>
@@ -17929,19 +12509,10 @@ storm burst                                 现在造成�
 3.Betrayal进core   MAP和大量音乐杯重制和优化
 
 
-
-
-
-
-
-
-
 -----
 
 ####  cosx  
 ##### 814#       发表于 2019-5-2 23:49
-
-
 
 
 这赛季内容太干，cortex刷新率真是低的令人发指，我活生生刷75000%拿到了翅膀，没见过cortex，
@@ -17951,17 +12522,10 @@ storm burst                                 现在造成�
 3.7希望GGG能把旋风斩的操控方式改成D3like，现在的cyclone就是个焊死了车把的三轮车
 
 
-
-
-
-
-
 -----
 
 ####  某雷  
 ##### 815#       发表于 2019-5-3 19:10
-
-
 
 
 我对这个赛季感觉还好，如果你是国际服玩家甚至体验更好，因为国服的司马市集…
@@ -17971,16 +12535,10 @@ storm burst                                 现在造成�
 不知道4.0到底是个多大规模的更新，能让他们做这么久…
 
 
-
-
-
-
-
 -----
 
 ####  猫骑士  
 ##### 816#       发表于 2019-5-3 19:19
-
 
 
 <blockquote>cosx 发表于 2019-5-2 23:49
@@ -17990,17 +12548,10 @@ storm burst                                 现在造成�
 握手，我在矿井打了差不多10个奥尔，然而一次cortex都没见过，到后来我甚至怀疑是不是要做什么任务触发一下才会刷
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 817#         楼主| 发表于 2019-5-3 19:41
-
-
 
 
 这赛季一个问题是偏做装  对于中低层玩家来说收益不太够   一般roll出的装备大多用不到
@@ -18018,17 +12569,10 @@ storm burst                                 现在造成�
 入侵/神庙  矿坑 二五仔赛季都是那种简单的赛季内容---------干死看到的一切  拿走看到的一切
 
 
-
-
-
-
-
 -----
 
 ####  uneedme  
 ##### 818#       发表于 2019-5-4 00:20
-
-
 
 
 感觉 内容越来越复杂
@@ -18037,33 +12581,19 @@ storm burst                                 现在造成�
 方向越来越散
 
 
-
-
-
-
-
 -----
 
 ####  某雷  
 ##### 819#       发表于 2019-5-22 16:36
 
 
-
-
 更新了更新了，3.7内容量又爆炸
-
-
-
-
-
 
 
 -----
 
 ####  cosx  
 ##### 820#       发表于 2019-5-22 16:56
-
-
 
 
 简单看了一下，这种激活方式怎么有点像D3天堂那关冻结在时间结界里的天使和恶魔啊，
@@ -18079,16 +12609,10 @@ Incubation 装备好像就是杀怪拿奖励？我还以为能超进化一下给
 等补丁说明了
 
 
-
-
-
-
-
 -----
 
 ####  某雷  
 ##### 821#       发表于 2019-5-22 17:29
-
 
 
 <blockquote>cosx 发表于 2019-5-22 16:56
@@ -18098,16 +12622,10 @@ Incubation 装备好像就是杀怪拿奖励？我还以为能超进化一下给
 旋风斩手感很类似gd那种了，鼠标指自己可以原地转，放手就停，指远方会加快移动速度
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 822#         楼主| 发表于 2019-5-22 17:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43805935&amp;ptid=1478318" target="_blank">cosx 发表于 2019-5-22 16:56</a>
@@ -18130,17 +12648,10 @@ Incubation 装备好像就是杀怪拿奖励？我还以为能超进化一下给
 也可能是让整个攻击动作带有AOE 也就是说即使是对着空地挥但只要挥舞的那个范围内有敌人一样能产生判定
 
 
-
-
-
-
-
-
 -----
 
 ####  cosx  
 ##### 823#       发表于 2019-5-22 18:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43806444&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2019-5-22 17:31</a>
@@ -18153,25 +12664,13 @@ Incubation 装备好像就是杀怪拿奖励？我还以为能超进化一下给
 自动换目标我觉得是为了主机顺便优化的，就关心盾冲能不能用走路取消了
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 824#         楼主| 发表于 2019-5-29 12:53
 
 
-
-
 更新了一波情报  另外官论新闻版现在有个置顶贴更新reddit累计放的小料   找新消息从第二个开始看    免得有人和我一样等了几天都没注意到变化还以为官方发生什么问题了
-
-
-
-
-
 
 
 -----
@@ -18180,22 +12679,13 @@ Incubation 装备好像就是杀怪拿奖励？我还以为能超进化一下给
 ##### 825#       发表于 2019-5-29 13:21
 
 
-
-
 winter orb 又被“优化”了，我觉得搞个春夏秋冬四季orb大家一碗水端平得了
-
-
-
-
-
 
 
 -----
 
 ####  幸福在裆下  
 ##### 826#       发表于 2019-5-29 13:55
-
-
 
 
 其实这个赛季的做装体系，对于喜欢做装备的人来说体验挺好。
@@ -18207,16 +12697,10 @@ winter orb 又被“优化”了，我觉得搞个春夏秋冬四季orb大家一
 二是太RNG了，没个几百E家底，不是欧皇的连梦都不配去追
 
 
-
-
-
-
-
 -----
 
 ####  cosx  
 ##### 827#       发表于 2019-5-29 14:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43902516&amp;ptid=1478318" target="_blank">幸福在裆下 发表于 2019-5-29 13:55</a>
@@ -18226,16 +12710,10 @@ winter orb 又被“优化”了，我觉得搞个春夏秋冬四季orb大家一
 没改之前国际服是哀鸿遍野，我最喜欢的就是看主播“我有两件2词缀一件3词缀，有66%的几率roll到onslaught”然后出个+8冰抗
 
 
-
-
-
-
-
 -----
 
 ####  幸福在裆下  
 ##### 828#       发表于 2019-5-29 14:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43902711&amp;ptid=1478318" target="_blank">cosx 发表于 2019-5-29 14:08</a>
@@ -18246,33 +12724,19 @@ winter orb 又被“优化”了，我觉得搞个春夏秋冬四季orb大家一
 看了看包里剩的点家底，算了算了全买成时装了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  某雷  
 ##### 829#       发表于 2019-5-29 15:03
 
 
-
-
 酋长这改动满脸写着破釜两个大字 下赛季不玩个破釜酋长感觉对不住这改动
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 830#         楼主| 发表于 2019-6-3 13:36
-
-
 
 
 冠军/勇士的改动不太明显这儿就单独说下
@@ -18282,25 +12746,13 @@ winter orb 又被“优化”了，我觉得搞个春夏秋冬四季orb大家一
 2. banner圈除了再放置banner的层数从20%提高到40%外   放置banner时每层回血(recovery)0.5%改为每层回血(regenerate)0.1%   也就是说在满50层之下从瞬回25%变为持续秒回5%  没有单独说持续时间应该就是旗子放置期间一直回血  算是增强
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 831#         楼主| 发表于 2019-6-5 14:28
 
 
-
-
 信息差不多都暴光了    另外这次改动大头感觉是天赋树而不是技能调整  以及虽然说了异常/吸取暂时不大动 但果然从天赋等也有不少调整  比如新的 bleed/poison faster词缀
-
-
-
-
-
 
 
 -----
@@ -18309,14 +12761,7 @@ winter orb 又被“优化”了，我觉得搞个春夏秋冬四季orb大家一
 ##### 832#       发表于 2019-6-8 05:03
 
 
-
-
 代理又崩了。。。。进游戏就掉线
-
-
-
-
-
 
 
 -----
@@ -18325,21 +12770,13 @@ winter orb 又被“优化”了，我觉得搞个春夏秋冬四季orb大家一
 ##### 833#       发表于 2019-6-8 14:54
 
 
-
-
 AFK了三个版本了，这个新联盟有没有什么比较有趣的开荒build可以推荐一下的？之前一直玩图腾和陷阱有点腻了，那个Brand系列技能怎么样？
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 834#         楼主| 发表于 2019-6-8 16:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44040691&amp;ptid=1478318" target="_blank">DawnGuardian 发表于 2019-6-8 14:54</a>
@@ -18351,32 +12788,19 @@ AFK了三个版本了，这个新联盟有没有什么比较有趣的开荒build
 如果是想要试试新内容的话这版本推荐玩近战  尤其是附带玩流血的近战   像是连击  裂空斩之类   或者传统近战如reave  cyc等也不错
 
 
-
-
-
-
-
 -----
 
 ####  cosx  
 ##### 835#       发表于 2019-6-8 17:23
 
 
-
-
 妈的信了补丁的邪，近战练级真的吃屎啊，完全不能越级，还得满地找合适的武器，想当初一把+1等级的蓝色魔杖就能横过A10啊
-
-
-
-
-
 
 
 -----
 
 ####  某雷  
 ##### 836#       发表于 2019-6-9 08:16
-
 
 
 <blockquote>cosx 发表于 2019-6-8 17:23
@@ -18386,17 +12810,10 @@ AFK了三个版本了，这个新联盟有没有什么比较有趣的开荒build
 我拿着200出头的海贼都砍到t9了，以前近战这身t1都打不过
 
 
-
-
-
-
-
 -----
 
 ####  mk2003  
 ##### 837#       发表于 2019-6-9 08:42
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201906/09/084204aw6xu2q01o2g22uo.jpg" referrerpolicy="no-referrer">
@@ -18409,9 +12826,6 @@ AFK了三个版本了，这个新联盟有没有什么比较有趣的开荒build
 2019-6-9 08:42 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201906/09/084203wjiosg3jjjgjrxjr.jpg" referrerpolicy="no-referrer">
 
 
@@ -18422,21 +12836,10 @@ AFK了三个版本了，这个新联盟有没有什么比较有趣的开荒build
 2019-6-9 08:42 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  cosx  
 ##### 838#       发表于 2019-6-9 10:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44048604&amp;ptid=1478318" target="_blank">某雷 发表于 2019-6-9 08:16</a>
@@ -18447,17 +12850,10 @@ AFK了三个版本了，这个新联盟有没有什么比较有趣的开荒build
 竟然还有200出头的武器，运气真好，我最后洗了双手拿镰刀了
 
 
-
-
-
-
-
 -----
 
 ####  不会武术  
 ##### 839#       发表于 2019-6-9 16:30
-
-
 
 
 还是没有官中吗。。如何愉快地游戏
@@ -18465,16 +12861,10 @@ AFK了三个版本了，这个新联盟有没有什么比较有趣的开荒build
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 840#       发表于 2019-6-9 17:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44053627&amp;ptid=1478318" target="_blank">不会武术 发表于 2019-6-9 16:30</a>
@@ -18484,16 +12874,10 @@ AFK了三个版本了，这个新联盟有没有什么比较有趣的开荒build
 腾讯不死不可能出官中 甚至加速器都要堵
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 841#         楼主| 发表于 2019-6-9 21:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44053627&amp;ptid=1478318" target="_blank">不会武术 发表于 2019-6-9 16:30</a>
@@ -18508,17 +12892,10 @@ AFK了三个版本了，这个新联盟有没有什么比较有趣的开荒build
 本质还是个习惯和毅力的问题
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 842#         楼主| 发表于 2019-6-9 21:11
-
-
 
 
 这次近战调整所谓的近战技能可取消后摇硬直   具体来说是所有持近战武器时可用技能而不只是近战技能    比如说战吼和回旋刃这类辅助技一样可以取消   回旋刃在可取消后摇后流畅度高了很多   真正的可以脚不停的赶路了  而在hit run里甚至找到了当初MHF的真鬼人双剑的操作风格----------出手攻击后接磨刀/回避动作来取消硬直  然后再接攻击动作/回避/磨刀等来取消之前操作的硬直  无限反复 成为一个停不下来的杀戮机器
@@ -18527,16 +12904,10 @@ AFK了三个版本了，这个新联盟有没有什么比较有趣的开荒build
 战吼就蛋疼了   手点的太快会出现战吼效果未出现就进入CD    瞬发战吼的意义上升
 
 
-
-
-
-
-
 -----
 
 ####  不会武术  
 ##### 843#       发表于 2019-6-9 22:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44056592&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2019-6-9 21:07</a>
@@ -18548,16 +12919,10 @@ AFK了三个版本了，这个新联盟有没有什么比较有趣的开荒build
 国际服一般在哪里能讨论，贴吧？
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 844#         楼主| 发表于 2019-6-9 22:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44057737&amp;ptid=1478318" target="_blank">不会武术 发表于 2019-6-9 22:31</a>
@@ -18566,16 +12931,10 @@ AFK了三个版本了，这个新联盟有没有什么比较有趣的开荒build
 1L有群   或者这儿    去巴哈等也可以  LGA似乎也有一定量国际服玩家
 
 
-
-
-
-
-
 -----
 
 ####  dafangwoo  
 ##### 845#       发表于 2019-6-9 23:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43057935&amp;ptid=1478318" target="_blank">kula01 发表于 2019-3-27 12:29</a>
@@ -18591,32 +12950,19 @@ time to die. vpn.
 — from samsung SM-G9730, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  cosx  
 ##### 846#       发表于 2019-6-9 23:34
 
 
-
-
 allies包括自己吗？看到kingmaker改得那么屌有点冲动啊
-
-
-
-
-
 
 
 -----
 
 ####  某雷  
 ##### 847#       发表于 2019-6-11 03:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44053627&amp;ptid=1478318" target="_blank">不会武术 发表于 2019-6-9 16:30</a>
@@ -18630,16 +12976,10 @@ allies包括自己吗？看到kingmaker改得那么屌有点冲动啊
 实在不想折腾就玩国服吧
 
 
-
-
-
-
-
 -----
 
 ####  dclara1  
 ##### 848#       发表于 2019-6-11 05:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44058501&amp;ptid=1478318" target="_blank">cosx 发表于 2019-6-9 23:34</a>
@@ -18649,16 +12989,10 @@ allies包括自己吗？看到kingmaker改得那么屌有点冲动啊</blockquot
 — from Google Pixel 2 XL, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  cosx  
 ##### 849#       发表于 2019-6-11 16:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44076910&amp;ptid=1478318" target="_blank">dclara1 发表于 2019-6-11 05:53</a>
@@ -18670,33 +13004,19 @@ allies包括自己吗？看到kingmaker改得那么屌有点冲动啊</blockquot
 那只能组斧头帮了
 
 
-
-
-
-
-
 -----
 
 ####  間桐櫻  
 ##### 850#       发表于 2019-6-11 17:49
 
 
-
-
 近戰是掘起了，可惜掘起得不是時候，還是ed冰環天下
-
-
-
-
-
 
 
 -----
 
 ####  catenarygong  
 ##### 851#       发表于 2019-6-20 19:42
-
-
 
 
 3.7旋风斩bd开荒还不错
@@ -18706,17 +13026,10 @@ allies包括自己吗？看到kingmaker改得那么屌有点冲动啊</blockquot
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 852#         楼主| 发表于 2019-6-20 21:04
-
-
 
 
 3.7.2解决了一批BUG然后惯例又生成了一批BUG 比如死眼的顺风无法触发了
@@ -18732,32 +13045,19 @@ allies包括自己吗？看到kingmaker改得那么屌有点冲动啊</blockquot
 不朽吼的计算不太清楚  不知道是2个less damage taken是叠加还是乘算 如果是叠加那么就是依旧物免  若乘算则是最大84%的减伤
 
 
-
-
-
-
-
 -----
 
 ####  kerorokun  
 ##### 853#       发表于 2019-7-5 09:10
 
 
-
-
 有没有推荐给手残的？
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 854#         楼主| 发表于 2019-7-5 11:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44392228&amp;ptid=1478318" target="_blank">kerorokun 发表于 2019-7-5 09:10</a>
@@ -18772,16 +13072,10 @@ allies包括自己吗？看到kingmaker改得那么屌有点冲动啊</blockquot
 或者那几个标记 图腾之类自动打的技能
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 855#         楼主| 发表于 2019-7-14 11:29
-
 
 
 [https://youtu.be/0BONuDera10](https://youtu.be/0BONuDera10)
@@ -18791,27 +13085,15 @@ allies包括自己吗？看到kingmaker改得那么屌有点冲动啊</blockquot
 利用bama这效果估计还能玩无限核爆  可惜没什么法弓
 
 
-
-
-
-
-
 -----
 
 ####  catenarygong  
 ##### 856#       发表于 2019-8-12 16:38
 
 
-
-
 这赛季的天梯除了风扇就是风扇<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -18820,21 +13102,13 @@ allies包括自己吗？看到kingmaker改得那么屌有点冲动啊</blockquot
 ##### 857#       发表于 2019-8-12 16:46
 
 
-
-
 赛季就是蝗一个月拿到36/40走人，3.8怎么还不出预告
-
-
-
-
-
 
 
 -----
 
 ####  某雷  
 ##### 858#       发表于 2019-8-12 19:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44509493&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2019-7-14 11:29</a>
@@ -18847,16 +13121,10 @@ https://youtu.be/0BONuDera10
 配合自残召唤的鬼畜攻速+弹幕把这堆充能泄出来dps绝对炸
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 859#         楼主| 发表于 2019-8-17 08:08
-
 
 
  本帖最后由 妹控使徒 于 2019-8-17 08:21 编辑 
@@ -18868,7 +13136,6 @@ https://youtu.be/0BONuDera10
 [https://www.pathofexile.com/legion](https://www.pathofexile.com/legion)
 
 pv 
-
 
 
 筛选器更新索引
@@ -18897,11 +13164,8 @@ patch note
 来自5个军团的敌人会掉落可以组成军团徽章的碎片,放置至少2个来自不同军团的徽章到地图仪上去进入无尽冲突领域,那些军团持续着无尽无尽战争的地方.解锁升级后的地图仪来加入5个军团之间的无尽冲突<img src="https://i.imgur.com/YYoe716.jpg" referrerpolicy="no-referrer">
 
 
-
 一些军团怪头上会符号,这表示他们掉落特定的物品.熟练的玩家会专注于释放这些怪物来将所追求的收益最大化.某些敌人会掉落孵化道具.它可以附加到已装备物品上并在击杀一定量敌人后给予特定奖励.
 <img src="https://i.imgur.com/5k0SrEc.png" referrerpolicy="no-referrer">
-
-
 
 
 每一个军团都可以获得一个特别的天赋石. 这五个中的每一个都能以不同方式改变周围的天赋效果来给予玩家全新的角色定制效果, 如果你足够熟练来取得它.
@@ -19029,42 +13293,13 @@ ps:
 我们已经等不及发布三周后的3.7了  它的名字已经在列表上了
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  uneedme  
 ##### 860#       发表于 2019-8-17 13:00
 
 
-
-
 已经快2年没有玩过poe了
-
-
-
-
-
 
 
 -----
@@ -19073,16 +13308,9 @@ ps:
 ##### 861#         楼主| 发表于 2019-8-21 12:55
 
 
-
-
 3.8内容初步更新完毕   目前看来调整内容确定了  地雷 召唤  毒     
 
 估计雷和弓要等3.9了     另外这次很快   半个月后就开
-
-
-
-
-
 
 
 -----
@@ -19091,14 +13319,7 @@ ps:
 ##### 862#       发表于 2019-8-21 14:53
 
 
-
-
 改塔防游戏了......
-
-
-
-
-
 
 
 -----
@@ -19107,14 +13328,7 @@ ps:
 ##### 863#       发表于 2019-8-21 15:22
 
 
-
-
 看了预告没什么眼前一亮的，不改旋风斩就行
-
-
-
-
-
 
 
 -----
@@ -19123,14 +13337,7 @@ ps:
 ##### 864#         楼主| 发表于 2019-8-22 11:12
 
 
-
-
 新的召唤辅助石更新上来了  这次做的比较良心    比起提升数值更多是改变机制  而且邪火回来了
-
-
-
-
-
 
 
 -----
@@ -19139,16 +13346,10 @@ ps:
 ##### 865#       发表于 2019-8-22 17:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44991710&amp;ptid=1478318" target="_blank">cosx 发表于 2019-08-21 15:22:05</a>
 看了预告没什么眼前一亮的，不改旋风斩就行</blockquote>我觉得现在旋风斩影响游戏乐趣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -19157,14 +13358,7 @@ ps:
 ##### 866#       发表于 2019-8-24 14:04
 
 
-
-
 邪火还是正火熊了
-
-
-
-
-
 
 
 -----
@@ -19173,21 +13367,13 @@ ps:
 ##### 867#         楼主| 发表于 2019-8-28 10:47
 
 
-
-
 更新了点东西  顺便说下assin相关的东西只是P1  还有后续内容  我怀疑P2是纯暴击相关   或者也可能是其他毒系的
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 868#         楼主| 发表于 2019-11-7 21:03
-
 
 
 <img src="http://ws3.sinaimg.cn/large/638aaa96gy1g673hnxzlfj21hc0u0k2m.jpg" referrerpolicy="no-referrer">
@@ -19216,8 +13402,6 @@ MAP也受到了疫病的影响,其中包含大量大型遭遇战和赛季内最�
 
 除了天赋树上的已有天赋外 还可以获得独有的天赋点
 <img src="http://wx3.sinaimg.cn/large/638aaa96gy1g6alljevyfj21g51hcjwn.jpg" referrerpolicy="no-referrer">
-
-
 
 
 <strong>系统改进和优化</strong>
@@ -19301,47 +13485,19 @@ Charged Mines Support          触发地雷队列时 恢复蓝球和绿球
 2.CYC nerf  固伤减少且不再吃范围加成  和其他近战技能统一       多重打击调整  增益和惩罚都减小一截
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 869#       发表于 2019-11-7 21:13
 
 
-
-
 4.0有可能重写游戏么
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 870#         楼主| 发表于 2019-11-7 21:17
-
-
 
 
 惯例写点东西填充下
@@ -19363,21 +13519,13 @@ Charged Mines Support          触发地雷队列时 恢复蓝球和绿球
 燃烧-------集火:释放一个AOE 使范围内所有处于点燃中的敌人的点燃异常集中于标记/HP最高的目标集结为一个新的更强的点燃异常
 
 
-
 另外关于4.0 曾经有个舅舅透露POE有模型重制的卫星 不过那是3.0时候的事 是放弃了还是蹲到4.0就不知道了     另外根据2.5之后的一系列新闻和动态来看  4.0会更新引擎的可能性很大
-
-
-
-
-
 
 
 -----
 
 ####  PENTAX-DA  
 ##### 871#       发表于 2019-11-7 21:18
-
-
 
 
 昨天无聊下了个国服，还花1块钱买了个快餐服门票
@@ -19388,16 +13536,10 @@ Charged Mines Support          触发地雷队列时 恢复蓝球和绿球
 最后让我关掉游戏的原因是，wegame卡死了。。
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 872#       发表于 2019-11-7 21:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45442780&amp;ptid=1478318" target="_blank">PENTAX-DA 发表于 2019-11-7 21:18</a>
@@ -19408,16 +13550,10 @@ Charged Mines Support          触发地雷队列时 恢复蓝球和绿球
 国服负优化是这样的
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 873#         楼主| 发表于 2019-11-7 21:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45442780&amp;ptid=1478318" target="_blank">PENTAX-DA 发表于 2019-11-7 21:18</a>
@@ -19428,25 +13564,13 @@ Charged Mines Support          触发地雷队列时 恢复蓝球和绿球
 你大概也想到了--------------------国服只适合体验尝试  真要玩还是去国际服     再大的语言网络障碍也不如优化/和谐障碍大       
 
 
-
-
-
-
-
 -----
 
 ####  mk2003  
 ##### 874#       发表于 2019-11-7 23:50
 
 
-
-
 等4.0了
-
-
-
-
-
 
 
 -----
@@ -19455,16 +13579,10 @@ Charged Mines Support          触发地雷队列时 恢复蓝球和绿球
 ##### 875#       发表于 2019-11-8 01:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45443185&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2019-11-7 21:59</a>
 
 你大概也想到了--------------------国服只适合体验尝试  真要玩还是去国际服     再大的语言网络障碍也 ...</blockquote>
 主要还是工作室
-
-
-
-
-
 
 
 -----
@@ -19473,16 +13591,10 @@ Charged Mines Support          触发地雷队列时 恢复蓝球和绿球
 ##### 876#         楼主| 发表于 2019-11-8 01:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45444692&amp;ptid=1478318" target="_blank">心随意寂 发表于 2019-11-8 01:14</a>
 
 主要还是工作室</blockquote>
 国际服也有  问题在于GGG是严厉打击  而国服运营是放任甚至同流合污
-
-
-
-
-
 
 
 -----
@@ -19491,16 +13603,9 @@ Charged Mines Support          触发地雷队列时 恢复蓝球和绿球
 ##### 877#       发表于 2019-11-8 01:51
 
 
-
-
 出SSF以后就只玩SSF了，所以工作室无所畏惧只是和谐受不了，不过满地图捡鉴定卷轴捡到眼瞎的时候，看到国服拾取宠物之类的就有点酸了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi MI 9, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -19509,22 +13614,15 @@ Charged Mines Support          触发地雷队列时 恢复蓝球和绿球
 ##### 878#       发表于 2019-11-8 10:20
 
 
-
 <blockquote>1≠0 发表于 2019-11-8 01:51
 出SSF以后就只玩SSF了，所以工作室无所畏惧只是和谐受不了，不过满地图捡鉴定卷轴捡到眼瞎的时候，看到国服 ...</blockquote>
 直接卖磨刀护甲蜕变这些呗，鉴定卷轴手动捡可太麻烦了
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 879#         楼主| 发表于 2019-11-14 11:50
-
 
 
 [https://www.pathofexile.com/forum/view-thread/2676838](https://www.pathofexile.com/forum/view-thread/2676838)
@@ -19534,16 +13632,10 @@ Charged Mines Support          触发地雷队列时 恢复蓝球和绿球
 <img src="http://tva2.sinaimg.cn/large/638aaa96gy1g8xfcyj48mj20sr0inh0e.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cosx  
 ##### 880#       发表于 2019-11-14 16:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45508369&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2019-11-14 11:50</a>
@@ -19564,11 +13656,6 @@ https://www.pathofexile.com/forum/view-thread/2676838
 ERR_CONNECTION_TIMED_OUT</blockquote>
 
 唉殃及池鱼
-
-
-
-
-
 
 
 -----
@@ -19577,7 +13664,6 @@ ERR_CONNECTION_TIMED_OUT</blockquote>
 ##### 881#       发表于 2019-11-14 16:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45508369&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2019-11-14 11:50</a>
 
 https://www.pathofexile.com/forum/view-thread/2676838
@@ -19598,16 +13684,10 @@ ERR_CONNECTION_TIMED_OUT</blockquote>
 唉殃及池鱼
 
 
-
-
-
-
-
 -----
 
 ####  依旧19  
 ##### 882#       发表于 2019-11-14 17:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45511937&amp;ptid=1478318" target="_blank">cosx 发表于 2019-11-14 16:50</a>
@@ -19616,16 +13696,10 @@ ERR_CONNECTION_TIMED_OUT</blockquote>
 twitch早八百年就墙了
 
 
-
-
-
-
-
 -----
 
 ####  cosx  
 ##### 883#       发表于 2019-11-14 19:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45512248&amp;ptid=1478318" target="_blank">依旧19 发表于 2019-11-14 17:17</a>
@@ -19634,16 +13708,10 @@ twitch早八百年就墙了</blockquote>
 上赛季还能上的
 
 
-
-
-
-
-
 -----
 
 ####  依旧19  
 ##### 884#       发表于 2019-11-14 19:57
-
 
 
 <blockquote>cosx 发表于 2019-11-14 19:38
@@ -19654,26 +13722,15 @@ https://www.laoyuegou.com/dynamic/678114
 反正我印象里墙了很久了，可能中间间歇性抽风偶尔能直连吧
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 885#         楼主| 发表于 2019-11-15 08:32
 
 
-
 [https://i.imgur.com/TurAwnQ.mp4](https://i.imgur.com/TurAwnQ.mp4)
 
 疑似4.0的一段4S洩漏视频  如果不是高仿同人那么基本就是真货   看得出来熟悉的东西和明显的改变    大致上预料之中的引擎重制+模型/动作重制进一步确凿
-
-
-
-
-
 
 
 -----
@@ -19682,14 +13739,7 @@ https://www.laoyuegou.com/dynamic/678114
 ##### 886#         楼主| 发表于 2019-11-16 04:36
 
 
-
-
 還有半小时  推一下
-
-
-
-
-
 
 
 -----
@@ -19698,14 +13748,7 @@ https://www.laoyuegou.com/dynamic/678114
 ##### 887#       发表于 2019-11-16 05:20
 
 
-
-
 流弊，直接变2了
-
-
-
-
-
 
 
 -----
@@ -19714,13 +13757,7 @@ https://www.laoyuegou.com/dynamic/678114
 ##### 888#       发表于 2019-11-16 05:48
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还真他妈手游了
-
-
-
-
-
 
 
 -----
@@ -19729,16 +13766,9 @@ https://www.laoyuegou.com/dynamic/678114
 ##### 889#       发表于 2019-11-16 05:56
 
 
-
-
 2+3.9+手游
 
 等着看现场a1的完整试玩
-
-
-
-
-
 
 
 -----
@@ -19747,14 +13777,7 @@ https://www.laoyuegou.com/dynamic/678114
 ##### 890#       发表于 2019-11-16 05:57
 
 
-
-
 油管直播评论一片 RIP D4<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19763,21 +13786,13 @@ https://www.laoyuegou.com/dynamic/678114
 ##### 891#       发表于 2019-11-16 05:57
 
 
-
-
 20年后，大家的老婆扎娜在2里要变成大家的老妈了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 892#         楼主| 发表于 2019-11-16 06:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45526323&amp;ptid=1478318" target="_blank">felline 发表于 2019-11-16 05:57</a>
@@ -19789,16 +13804,10 @@ https://www.laoyuegou.com/dynamic/678114
 MAP里有几个场景和游戏里部分相似的  差异在于废墟感很重(建筑破损 长满苔藓等) 当时就猜测后续剧情会是多年后
 
 
-
-
-
-
-
 -----
 
 ####  灰色的狐狸  
 ##### 893#       发表于 2019-11-16 06:14
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这公司。。
@@ -19807,16 +13816,10 @@ poe：我就是要刚暗黑
 —— 来自 HUAWEI VOG-AL10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 894#         楼主| 发表于 2019-11-16 06:41
-
 
 
 <img src="http://tvax4.sinaimg.cn/large/638aaa96gy1g8zhi1k7glj20yx0irata.jpg" referrerpolicy="no-referrer">
@@ -19825,25 +13828,13 @@ poe：我就是要刚暗黑
 上4.0 中3.9 下现在实机  不知道是不错觉  感觉视距有所调整
 
 
-
-
-
-
-
 -----
 
 ####  永远的访客  
 ##### 895#       发表于 2019-11-16 07:13
 
 
-
-
 我来看４.０的，不是来看２的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19852,17 +13843,10 @@ poe：我就是要刚暗黑
 ##### 896#       发表于 2019-11-16 07:59
 
 
-
-
 头太铁了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
 ----发送自 [OnePlus ONEPLUS A5000,Android 9](http://stage1.5j4m.com/?1.32)
-
-
-
-
-
 
 
 -----
@@ -19871,14 +13855,7 @@ poe：我就是要刚暗黑
 ##### 897#         楼主| 发表于 2019-11-16 09:12
 
 
-
-
 这公司真的一票死宅   在场上话说的清晰流畅的都不多    强烈的平时少有说话缺少锻炼的感觉
-
-
-
-
-
 
 
 -----
@@ -19887,14 +13864,7 @@ poe：我就是要刚暗黑
 ##### 898#       发表于 2019-11-16 10:44
 
 
-
-
 2 是新游戏 还是直接现在的升级？
-
-
-
-
-
 
 
 -----
@@ -19903,14 +13873,7 @@ poe：我就是要刚暗黑
 ##### 899#       发表于 2019-11-16 10:46
 
 
-
-
 腾讯牛逼，手游要是不卡的话90帧刷起来也还好。
-
-
-
-
-
 
 
 -----
@@ -19919,15 +13882,9 @@ poe：我就是要刚暗黑
 ##### 900#       发表于 2019-11-16 11:24
 
 
-
 <blockquote>GameTheory 发表于 2019-11-16 10:44
 2 是新游戏 还是直接现在的升级？</blockquote>
 2=4.0
-
-
-
-
-
 
 
 -----
@@ -19936,21 +13893,13 @@ poe：我就是要刚暗黑
 ##### 901#       发表于 2019-11-16 11:34
 
 
-
-
 twitch上全是说老子看了7个小时一个drop也没有，我自己11点起来到现在也是什么都没有。官网说是每5分钟有1.5%的机会中奖，我还是让twitch继续放着吧。
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 902#         楼主| 发表于 2019-11-16 11:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45527423&amp;ptid=1478318" target="_blank">GameTheory 发表于 2019-11-16 10:44</a>
@@ -19969,25 +13918,13 @@ twitch上全是说老子看了7个小时一个drop也没有，我自己11点起�
 这样来看就只是大更新而非额外客户端
 
 
-
-
-
-
-
 -----
 
 ####  felline  
 ##### 903#       发表于 2019-11-16 11:40
 
 
-
-
 同什么都没掉，不过我是早上看完几个宣传片就关掉了
-
-
-
-
-
 
 
 -----
@@ -19996,17 +13933,10 @@ twitch上全是说老子看了7个小时一个drop也没有，我自己11点起�
 ##### 904#         楼主| 发表于 2019-11-16 17:34
 
 
-
-
 对了  提下这个巴哈的文字翻译版
 
 内容比较详尽    想尽快了解今天播了什么的 最适合看看
 [https://forum.gamer.com.tw/C.php ... A=122554&amp;tnum=3](https://forum.gamer.com.tw/C.php?bsn=18966&amp;snA=122554&amp;tnum=3)
-
-
-
-
-
 
 
 -----
@@ -20015,14 +13945,7 @@ twitch上全是说老子看了7个小时一个drop也没有，我自己11点起�
 ##### 905#       发表于 2019-11-16 17:34
 
 
-
-
 早上就想问POE2宣传片最后那艘船是什么意思，船上金发蓝衣的那个人是1里的贵族吗？
-
-
-
-
-
 
 
 -----
@@ -20031,15 +13954,9 @@ twitch上全是说老子看了7个小时一个drop也没有，我自己11点起�
 ##### 906#       发表于 2019-11-16 17:35
 
 
-
  本帖最后由 胧楼 于 2019-11-16 17:52 编辑 
 
 看了巴哈文字版 感觉变化太大了 很期待多个六连技能的体验
-
-
-
-
-
 
 
 -----
@@ -20048,16 +13965,9 @@ twitch上全是说老子看了7个小时一个drop也没有，我自己11点起�
 ##### 907#       发表于 2019-11-16 18:33
 
 
-
-
 看到POE手机版四个技能我就想起暗黑三这坨屎，你妈一开始只给四个技能是不是就是为了做手机版？暴雪卧槽泥马
 
 —— 来自 HUAWEI STF-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -20066,21 +13976,13 @@ twitch上全是说老子看了7个小时一个drop也没有，我自己11点起�
 ##### 908#       发表于 2019-11-16 18:40
 
 
-
-
 卧槽，这变化太多了吧，吓到了
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 909#         楼主| 发表于 2019-11-16 20:30
-
 
 
 <img src="http://tva3.sinaimg.cn/large/638aaa96gy1g905ku2b0pj20p30a943x.jpg" referrerpolicy="no-referrer">
@@ -20093,27 +13995,15 @@ twitch上全是说老子看了7个小时一个drop也没有，我自己11点起�
 这算是新引擎所扩展的特性之一
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 910#         楼主| 发表于 2019-11-17 23:48
 
 
-
-
 把这2天透露的4.0变动要点总结归纳了下     记下来1年会把4.0内容放在2L更新    过几天就3.9赛季内容重点整理下  这是个大更新  大概是2.5那种级别的 甚至更大
 
 话说泥潭真的能有缩放功能就好了   
-
-
-
-
-
 
 
 -----
@@ -20122,23 +14012,15 @@ twitch上全是说老子看了7个小时一个drop也没有，我自己11点起�
 ##### 911#       发表于 2019-11-18 01:09
 
 
-
-
 这游戏啥时候来个mac版本或者出ns，主机版本也行啊，没有pc玩不了
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 912#         楼主| 发表于 2019-11-18 01:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45542417&amp;ptid=1478318" target="_blank">an0nymous 发表于 2019-11-18 01:09</a>
@@ -20150,16 +14032,10 @@ twitch上全是说老子看了7个小时一个drop也没有，我自己11点起�
 已有X1/PS4
 
 
-
-
-
-
-
 -----
 
 ####  λ2000  
 ##### 913#       发表于 2019-11-18 03:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45542417&amp;ptid=1478318" target="_blank">an0nymous 发表于 2019-11-18 01:09</a>
@@ -20171,32 +14047,19 @@ twitch上全是说老子看了7个小时一个drop也没有，我自己11点起�
 — from HMD Global Nokia 7 plus, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  奇拉奇拉  
 ##### 914#       发表于 2019-11-18 05:08
 
 
-
-
 3.9的异界新主线我看说有5个boss，但抛开剧情比较特殊的贵族，玩家的初代流放者也有6个职业选择，谁被丢下了啊？
-
-
-
-
-
 
 
 -----
 
 ####  λ2000  
 ##### 915#       发表于 2019-11-18 06:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45527804&amp;ptid=1478318" target="_blank">Nosgoth 发表于 2019-11-16 11:34</a>
@@ -20209,16 +14072,10 @@ twitch上全是说老子看了7个小时一个drop也没有，我自己11点起�
 说是会补发的 
 
 
-
-
-
-
-
 -----
 
 ####  felline  
 ##### 916#       发表于 2019-11-18 12:59
-
 
 
  本帖最后由 felline 于 2019-11-18 13:32 编辑 
@@ -20231,22 +14088,13 @@ twitch上全是说老子看了7个小时一个drop也没有，我自己11点起�
 调了一下亮度，根据站姿和视频后面的战斗画面，从左开始1大概是圣宗，2是刺客（游侠？反正是个拿弓的），3是决斗，4是蛮子，最右边那个能招出天使的白衣氪金大佬不确定，战斗中用了冰风暴，似乎是女巫但站姿我觉得更像是贵族
 
 
-
-
 如果不是贵族的话，那贵族可能真的活到了2代（……而成为了大妈）<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
 
 ####  felline  
 ##### 917#       发表于 2019-11-18 13:48
-
 
 
  本帖最后由 felline 于 2019-11-18 13:49 编辑 
@@ -20257,22 +14105,13 @@ twitch上全是说老子看了7个小时一个drop也没有，我自己11点起�
 这张图看得比较清楚，这种歪肩膀的站姿肯定是贵族了。rip
 
 
-
 亲女儿女巫免于一死
-
-
-
-
-
-
-
 
 
 -----
 
 ####  dafangwoo  
 ##### 918#       发表于 2019-11-18 14:24
-
 
 
  本帖最后由 dafangwoo 于 2019-11-18 14:27 编辑 
@@ -20288,16 +14127,10 @@ twitch上全是说老子看了7个小时一个drop也没有，我自己11点起�
 quin采访chris时都是肆无忌惮的流氓坐姿啊，不愧是本土作战
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 919#       发表于 2019-11-18 14:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45546563&amp;ptid=1478318" target="_blank">felline 发表于 2019-11-18 12:59</a>
@@ -20308,26 +14141,15 @@ quin采访chris时都是肆无忌惮的流氓坐姿啊，不愧是本土作战
 老头 白富美 黑皮蛮子 lala 大白腿 红衣boy 驼背
 
 
-
-
-
-
-
 -----
 
 ####  奇拉奇拉  
 ##### 920#       发表于 2019-11-18 15:43
 
 
-
 <blockquote>felline 发表于 2019-11-18 12:59
 调了一下亮度，根据站姿和视频后面的战斗画面，从左开始1大概是圣宗，2是刺客（游侠？反正是个拿弓的） ...</blockquote>
 感觉圣宗的boss形象是目前看起来最帅的，就不知道打起来怎么样了
-
-
-
-
-
 
 
 -----
@@ -20336,21 +14158,13 @@ quin采访chris时都是肆无忌惮的流氓坐姿啊，不愧是本土作战
 ##### 921#       发表于 2019-11-19 09:07
 
 
-
-
 路人过来问下现在适合入坑么，怎么入？要不要氪金的？
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 922#         楼主| 发表于 2019-11-19 09:55
-
 
 
  本帖最后由 妹控使徒 于 2019-11-19 10:15 编辑 
@@ -20360,7 +14174,6 @@ quin采访chris时都是肆无忌惮的流氓坐姿啊，不愧是本土作战
 现在赛季末期  物资充沛且价格基本压低了  而且现在有门槛足够低且第二次翻新的召唤   兼顾强度和可塑造性    而赛季特色机制是可以完全无视不会被逼打的类型   可以专心去熟悉游戏基本机制
 
  总之适合玩
-
 
 
 游戏额外且必须的花费是加速器  直连基本在200MS以上   配合加速器走新加坡/日本可以保证100MS内  巡游或者海豚也不错  或者天国的极讯转生
@@ -20398,18 +14211,9 @@ quin采访chris时都是肆无忌惮的流氓坐姿啊，不愧是本土作战
 商城币充值为 5美元换50币     而美元对RMB汇率大致为7:1  具体如何根据交易页面计算以及商城时不时会打折  箱子大概是6折  比如这样  [https://www.pathofexile.com/forum/view-thread/2580431](https://www.pathofexile.com/forum/view-thread/2580431)
 
 
-
 另外千万别去国服   TP负优化  大幅度和谐  垃圾翻译   不干事甚至和奸商狼狈为奸的运营  而且过度蹭暗黑的宣传也带来很多负面影响    
 
 现在各种方面是负体验  国际服也就语言需要消化下 其他体验都是好于国服的
-
-
-
-
-
-
-
-
 
 
 -----
@@ -20418,16 +14222,10 @@ quin采访chris时都是肆无忌惮的流氓坐姿啊，不愧是本土作战
 ##### 923#       发表于 2019-11-19 10:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45555008&amp;ptid=1478318" target="_blank">midearth 发表于 2019-11-19 09:07</a>
 
 路人过来问下现在适合入坑么，怎么入？要不要氪金的？</blockquote>
 还是先去国服体验一下，没什么门槛和花费。万一波长不和，弃坑了也没什么损失。等觉得值得玩下去，再考虑继续留国服还是转国际服，这时候氪金也来得及
-
-
-
-
-
 
 
 -----
@@ -20436,24 +14234,15 @@ quin采访chris时都是肆无忌惮的流氓坐姿啊，不愧是本土作战
 ##### 924#       发表于 2019-11-19 10:51
 
 
-
-
 这游戏其实在国内玩很难受。由于GGG端游界倒数的技术力，100多ms的延迟给你感觉差不多有半秒。我连法兰克福25ms都能感觉到延迟。唉，本来本地运算是ARPG最好的方式，但是为了打击工作室以及各种外挂无奈只能搞这样。
 另外系统臃肿，玩家排外，商人九成九是工作室跟骗子，掉落由于池子被垃圾污染的太厉害，一个月未必能见到一件好东西，天赋系统看起来自由实际上主要是属性点，装备需要惊人数量的通货才可以使用，还有页游一样的闪光翅膀。
 对自己好点，最好别玩。
-
-
-
-
-
 
 
 -----
 
 ####  felline  
 ##### 925#       发表于 2019-11-19 11:00
-
-
 
 
 确实并非要一步到位国际服，但国际服综合说来还是最佳体验。我最初是玩台服，那时在台服仓库都买了十几二十页了，后来环境变差才转投了国际服。
@@ -20465,16 +14254,10 @@ quin采访chris时都是肆无忌惮的流氓坐姿啊，不愧是本土作战
 语言不是问题，国际服有汉化补丁，简繁都有。氪金刚开始玩也不用考虑，尽管很快就会感觉仓库不够用，那时再留意一下打折吧
 
 
-
-
-
-
-
 -----
 
 ####  永远的访客  
 ##### 926#       发表于 2019-11-19 12:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45547130&amp;ptid=1478318" target="_blank">felline 发表于 2019-11-18 13:48</a>
@@ -20483,25 +14266,13 @@ quin采访chris时都是肆无忌惮的流氓坐姿啊，不愧是本土作战
 这个八成只是新版的选人画面，你建的人物是唯一逃脱的那个
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 927#       发表于 2019-11-19 13:23
 
 
-
-
 纯新人上手还是国服舒服点  上手了强烈建议转国际服 
-
-
-
-
-
 
 
 -----
@@ -20510,14 +14281,7 @@ quin采访chris时都是肆无忌惮的流氓坐姿啊，不愧是本土作战
 ##### 928#       发表于 2019-11-19 13:29
 
 
-
-
 上国际服你要买加速器，还是先在国服玩玩看，玩过几幕就知道咋样了，这个时候再考虑玩哪个服吧，国际服充值可以用银联还算比较方便。
-
-
-
-
-
 
 
 -----
@@ -20526,14 +14290,7 @@ quin采访chris时都是肆无忌惮的流氓坐姿啊，不愧是本土作战
 ##### 929#       发表于 2019-11-19 13:34
 
 
-
-
 国际服可以直接用steam玩，六折充值卡他不香吗？
-
-
-
-
-
 
 
 -----
@@ -20542,23 +14299,16 @@ quin采访chris时都是肆无忌惮的流氓坐姿啊，不愧是本土作战
 ##### 930#       发表于 2019-11-19 14:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45558237&amp;ptid=1478318" target="_blank">Lygljj 发表于 2019-11-19 13:34</a>
 
 国际服可以直接用steam玩，六折充值卡他不香吗？</blockquote>
 在国内吗？Steam锁区怎么解决的？
 
 
-
-
-
-
-
 -----
 
 ####  Lygljj  
 ##### 931#       发表于 2019-11-19 14:59
-
 
 
  本帖最后由 Lygljj 于 2019-11-19 15:02 编辑 
@@ -20572,18 +14322,10 @@ quin采访chris时都是肆无忌惮的流氓坐姿啊，不愧是本土作战
 再在自己电脑登录steam就行，不挂vpn也可以下载和打开poe了
 
 
-
-
-
-
-
-
-
 -----
 
 ####  Xperia  
 ##### 932#       发表于 2019-11-19 15:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45558237&amp;ptid=1478318" target="_blank">Lygljj 发表于 2019-11-19 13:34</a>
@@ -20592,16 +14334,10 @@ quin采访chris时都是肆无忌惮的流氓坐姿啊，不愧是本土作战
 买supporter pack也能用屎腚余额吗
 
 
-
-
-
-
-
 -----
 
 ####  Lygljj  
 ##### 933#       发表于 2019-11-19 15:12
-
 
 
  本帖最后由 Lygljj 于 2019-11-19 15:13 编辑 
@@ -20611,16 +14347,10 @@ quin采访chris时都是肆无忌惮的流氓坐姿啊，不愧是本土作战
 可以，核心包和赞助包我都买过，但你的钱包必须要是美元。我之所以说要注册美区小号就是因为国区虽然可以通过云激活方式下载和进行游戏，但在游戏里无法充值（钱包是RMB），只能通过官网途径
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 934#       发表于 2019-11-19 15:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45559296&amp;ptid=1478318" target="_blank">Lygljj 发表于 2019-11-19 15:12</a>
@@ -20629,25 +14359,13 @@ quin采访chris时都是肆无忌惮的流氓坐姿啊，不愧是本土作战
 我之前是想转美区，结果steam要我填地址，我怕乱填了账号会出问题，一直没继续操作下去。账号上还有不少钱，建个小号倒腾过去也有点麻烦，所以一直就卡在那了。现在steam收紧政策，似乎不好操作了
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 935#       发表于 2019-11-19 15:43
 
 
-
-
 为啥要这么麻烦搞steam区  国内大部队也在国际服和国服啊
-
-
-
-
-
 
 
 -----
@@ -20656,23 +14374,16 @@ quin采访chris时都是肆无忌惮的流氓坐姿啊，不愧是本土作战
 ##### 936#       发表于 2019-11-19 15:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45559700&amp;ptid=1478318" target="_blank">胧楼 发表于 2019-11-19 15:43</a>
 
 为啥要这么麻烦搞steam区  国内大部队也在国际服和国服啊</blockquote>
 steam包含在国际服里，用steam主要是买support pack便宜
 
 
-
-
-
-
-
 -----
 
 ####  Lygljj  
 ##### 937#       发表于 2019-11-19 15:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45559700&amp;ptid=1478318" target="_blank">胧楼 发表于 2019-11-19 15:43</a>
@@ -20683,25 +14394,13 @@ steam就是国际服，你可以理解为就是个启动器
 然后steam现在充值卡便宜，50刀的210左右就能拿下，差不多六折，可以买赞助包啥的
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 938#       发表于 2019-11-19 15:47
 
 
-
-
 啊 我还以为steam和国际服是分开的
-
-
-
-
-
 
 
 -----
@@ -20710,23 +14409,16 @@ steam就是国际服，你可以理解为就是个启动器
 ##### 939#       发表于 2019-11-19 17:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45559147&amp;ptid=1478318" target="_blank">Lygljj 发表于 2019-11-19 14:59</a>
 
 我是直接注册了一个美区小号，最好用美国免税州的，我用的俄勒冈州立大学的地址;然后poe官网表单联系客服 ...</blockquote>
 谢谢，感觉太折腾，算了，我想用Steam只是为了不用老输入解锁码
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 940#       发表于 2019-11-19 19:10
-
 
 
  本帖最后由 森田美位子 于 2019-11-19 19:11 编辑 
@@ -20738,17 +14430,10 @@ steam就是国际服，你可以理解为就是个启动器
 如果游戏没入库的话，先入库。然后用上面的那个云登陆，先网页登录，再客户端登录。这样游戏就能从steam启动了
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 941#         楼主| 发表于 2019-12-11 16:51
-
-
 
 
 PN已更 提一下   
@@ -20757,16 +14442,10 @@ PN已更 提一下   
 另外谁有记忆 之前的一系列预告里 GGG是否有说过会调整IRON COMMDER? 总感觉它说过但PN和再看的官方帖子里没提过      仿佛脑子又抽风了
 
 
-
-
-
-
-
 -----
 
 ####  某雷  
 ##### 942#       发表于 2019-12-11 17:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45823380&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2019-12-11 16:51</a>
@@ -20780,25 +14459,13 @@ PN已更 提一下   
 上一个和钢铁指挥官相关的是上个赛季ggg觉得这玩意是最弱召唤因为塔防不掉武器
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 943#         楼主| 发表于 2019-12-13 20:13
 
 
-
-
 提下预载已经开始了  以及可以去更新下筛选器数据了
-
-
-
-
-
 
 
 -----
@@ -20807,17 +14474,10 @@ PN已更 提一下   
 ##### 944#         楼主| 发表于 2019-12-15 22:27
 
 
-
-
 这次怪的数据重平衡+大量BOSS更新招式+缝合怪赛季  总体体验是不错的      BOSS不再是随便秒需要注意下躲招和对策甚至鏖战等  更有些挑战性了    而且这个思路和POE2的演示风格对的上   没让玩家的power creep继续奔放下去而收缰了还是可以
 
 
 另外反过来看 上赛季的塔防算是历来门槛最低的赛季内容之一  即使build强度不足也可以靠塔帮打很多    线路合适+塔规划合理   玩家本身甚至不需要出手  同时单就清怪也会给很多经验      这赛季才重新找回了要够强才能获得挑战奖励的味道
-
-
-
-
-
 
 
 -----
@@ -20826,22 +14486,13 @@ PN已更 提一下   
 ##### 945#       发表于 2019-12-16 00:38
 
 
-
-
 这赛季我怎么就信了GGG说加强弓呢，已经放弃HC滚回SSF开荒了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  dafangwoo  
 ##### 946#       发表于 2019-12-16 12:21
-
-
 
 
 我信了他的邪，还弓加强
@@ -20854,17 +14505,10 @@ boss版本，还是无脑点好，别跟自己过不去
 — from samsung SM-G9730, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 947#         楼主| 发表于 2019-12-18 13:37
-
-
 
 
 别听到弓强化就跑去玩死眼啊  这版本又没什么进阶重做    死眼玩弓是看上啥?   尿分叉的+1投射物? 获得15%more伤害/剩余每chain 但是其他chain要自己堆?  还是隔着屏幕打人给30%more的farshot?          亦或是和弓没啥关系的20%顺风或者穿透/流血强化?
@@ -20877,16 +14521,10 @@ boss版本，还是无脑点好，别跟自己过不去
 或者可以试试DOOM弓+元素师  点三手+元素异常强化线
 
 
-
-
-
-
-
 -----
 
 ####  突发性哮喘病患  
 ##### 948#       发表于 2019-12-18 13:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45559296&amp;ptid=1478318" target="_blank">Lygljj 发表于 2019-11-19 15:12</a>
@@ -20895,17 +14533,10 @@ boss版本，还是无脑点好，别跟自己过不去
 [f:001怎么样也没法充吗，比如说切换区域
 
 
-
-
-
-
-
 -----
 
 ####  永真  
 ##### 949#       发表于 2019-12-19 11:09
-
-
 
 
 有没有高生存的纯招出装加点思路啊
@@ -20913,16 +14544,10 @@ boss版本，还是无脑点好，别跟自己过不去
 我现在刚进map，1k5血1k盾，脆的一比啊
 
 
-
-
-
-
-
 -----
 
 ####  chaucerling  
 ##### 950#       发表于 2019-12-19 11:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45913522&amp;ptid=1478318" target="_blank">永真 发表于 2019-12-19 11:09</a>
@@ -20937,16 +14562,10 @@ boss版本，还是无脑点好，别跟自己过不去
 不过上赛季召唤都玩腻，我这赛季准备玩判官
 
 
-
-
-
-
-
 -----
 
 ####  永真  
 ##### 951#       发表于 2019-12-19 11:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45913790&amp;ptid=1478318" target="_blank">chaucerling 发表于 2019-12-19 11:27</a>
@@ -20961,16 +14580,10 @@ boss版本，还是无脑点好，别跟自己过不去
 进了map才发现怎么缝合怪NB了这么多啊啊啊啊
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 952#       发表于 2019-12-19 11:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45559147&amp;ptid=1478318" target="_blank">Lygljj 发表于 2019-11-19 14:59</a>
@@ -20979,25 +14592,13 @@ boss版本，还是无脑点好，别跟自己过不去
 学习了，这感觉省不少钱啊
 
 
-
-
-
-
-
 -----
 
 ####  qdxhs  
 ##### 953#       发表于 2019-12-19 13:10
 
 
-
-
 3.9 zana跑哪里去了？要做个什么任务才能找到吗？
-
-
-
-
-
 
 
 -----
@@ -21006,15 +14607,9 @@ boss版本，还是无脑点好，别跟自己过不去
 ##### 954#       发表于 2019-12-19 13:20
 
 
-
 <blockquote>qdxhs 发表于 2019-12-19 13:10
 3.9 zana跑哪里去了？要做个什么任务才能找到吗？</blockquote>
 打几张图就冒出来了
-
-
-
-
-
 
 
 -----
@@ -21023,24 +14618,16 @@ boss版本，还是无脑点好，别跟自己过不去
 ##### 955#       发表于 2019-12-19 15:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45915015&amp;ptid=1478318" target="_blank">qdxhs 发表于 2019-12-19 13:10</a>
 
 3.9 zana跑哪里去了？要做个什么任务才能找到吗？</blockquote>
 盯着一个区域打几张图，任务让你找新npc然后再打一张图，老婆就现身了
 
 
-
-
-
-
-
 -----
 
 ####  永真  
 ##### 956#       发表于 2019-12-22 10:41
-
-
 
 
 对我来说，小绿这伤害就离谱
@@ -21052,32 +14639,19 @@ boss版本，还是无脑点好，别跟自己过不去
 踩到中间三角毒池，我没了
 
 
-
-
-
-
-
 -----
 
 ####  督战政委  
 ##### 957#       发表于 2019-12-29 18:31
 
 
-
-
 玩POE,有啥好用免费的加速器吗?
-
-
-
-
-
 
 
 -----
 
 ####  奇拉奇拉  
 ##### 958#       发表于 2019-12-29 18:48
-
 
 
 <blockquote>永真 发表于 2019-12-22 10:41
@@ -21090,26 +14664,15 @@ boss版本，还是无脑点好，别跟自己过不去
 混抗堆起来，这赛季还负几十混抗肯定感觉她离谱
 
 
-
-
-
-
-
 -----
 
 ####  奇拉奇拉  
 ##### 959#       发表于 2019-12-29 18:49
 
 
-
 <blockquote>督战政委 发表于 2019-12-29 18:31
 玩POE,有啥好用免费的加速器吗?</blockquote>
 我用的薄荷加速器开新加坡节点，还可以
-
-
-
-
-
 
 
 -----
@@ -21118,23 +14681,16 @@ boss版本，还是无脑点好，别跟自己过不去
 ##### 960#       发表于 2019-12-29 19:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46025193&amp;ptid=1478318" target="_blank">奇拉奇拉 发表于 2019-12-29 18:49</a>
 
 我用的薄荷加速器开新加坡节点，还可以</blockquote>
 非常感谢，确实不错
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 961#         楼主| 发表于 2019-12-30 00:11
-
 
 
  本帖最后由 妹控使徒 于 2019-12-30 01:30 编辑 
@@ -21149,13 +14705,7 @@ chieft现在除了图腾伤害给本体吸血外还有了受到物理/火伤就�
 inquis老样子    只是在怪集体提了抗性的现在那个暴击无视抗性的优势被放大了  可以省下穿抗资源去干些别的
 
 
-
 另外champion应该也有了些输出优势   穿刺辅助自带高额减免物理减免   再随便堆堆就可以做到无视物理减免
-
-
-
-
-
 
 
 -----
@@ -21164,21 +14714,13 @@ inquis老样子    只是在怪集体提了抗性的现在那个暴击无视�
 ##### 962#       发表于 2019-12-30 08:25
 
 
-
-
 看到专楼被顶上来就吐槽两句吧……
-
-
-
-
-
 
 
 -----
 
 ####  double8  
 ##### 963#       发表于 2019-12-30 08:32
-
 
 
 <blockquote>double8 发表于 2019-12-30 08:25
@@ -21188,16 +14730,10 @@ inquis老样子    只是在怪集体提了抗性的现在那个暴击无视�
 另外楼上bd黑话太多看不懂能来个pob链接吗，这赛季电弧地雷玩的有点懵，主要是太容易死了；不过现在发现这赛季真的不能地图词缀无脑拉高，包括缝合怪也是，稳稳打已经一半经验条了，不过这才93级，而我已经卡93卡了两天了
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 964#         楼主| 发表于 2019-12-30 10:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46029187&amp;ptid=1478318" target="_blank">double8 发表于 2019-12-30 08:32</a>
@@ -21243,8 +14779,6 @@ champion这个天赋目前还是比较独特的   点上的概率很大  而
 <img src="http://tvax4.sinaimg.cn/large/638aaa96gy1gaej1t5g17j20jr0cx7f9.jpg" referrerpolicy="no-referrer">
 
 
-
-
 inquis是templar的进阶inquisitor  其中一个进阶效果如下
 <img src="http://tvax4.sinaimg.cn/large/638aaa96gy1gaej9n0m5oj20wt0or4qp.jpg" referrerpolicy="no-referrer">
 
@@ -21252,17 +14786,10 @@ inquis是templar的进阶inquisitor  其中一个进阶效果如下
 在现在MAP的怪起手40%元素抗  堆点词缀就能过75%的环境下  这个暴击无视抗性的效果更加的强大    剩下诸多穿抗的投入转去直接提升伤害或者生存等   很舒服
 
 
-
-
-
-
-
-
 -----
 
 ####  double8  
 ##### 965#       发表于 2019-12-30 10:49
-
 
 
 <blockquote>妹控使徒 发表于 2019-12-30 10:22
@@ -21278,16 +14805,10 @@ emmm,那么我根据相关天赋去ninja看就是了？主要不知道具体转�
 就怕下赛季还是这种攻坚bd为主，每次都是这种套路太容易腻了
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 966#         楼主| 发表于 2019-12-30 11:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46030624&amp;ptid=1478318" target="_blank">double8 发表于 2019-12-30 10:49</a>
@@ -21308,13 +14829,7 @@ emmm,那么我根据相关天赋去ninja看就是了？主要不知道具体转�
 然后爆炸箭并没什么极大改变   主要改变是堆叠层数不再刷新持续时间 爆炸伤害吃ATK系通用加成和惩罚等  并不是像CYC那样的全面提升   它依旧是个需要投入大量资源来成长的技能  只是资源消化率比过去好了但门槛依旧不低
 
 
-
 简单好用我上面那个燃烧箭+榴弹炮塔的酋长就比较推荐   点出下面和右下的2圈+1炮塔  再点出白富美门口的提升45%图腾持续时间  顺便还能获得25%物理减免和凑到满抗的元素抗  图腾的硬度出色同时依靠酋长特性又能保证自己难死    算是个比较好用的build了
-
-
-
-
-
 
 
 -----
@@ -21323,14 +14838,7 @@ emmm,那么我根据相关天赋去ninja看就是了？主要不知道具体转�
 ##### 967#       发表于 2019-12-30 12:55
 
 
-
-
 这赛季最大的特点就是资源丰富，不缺图，不缺小通货，爽
-
-
-
-
-
 
 
 -----
@@ -21339,21 +14847,13 @@ emmm,那么我根据相关天赋去ninja看就是了？主要不知道具体转�
 ##### 968#       发表于 2019-12-30 14:08
 
 
-
-
 occ點混沌抗的話，得玩那些持續混沌傷了吧
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 969#         楼主| 发表于 2019-12-30 14:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46033187&amp;ptid=1478318" target="_blank">間桐櫻 发表于 2019-12-30 14:08</a>
@@ -21367,32 +14867,19 @@ occ點混沌抗的話，得玩那些持續混沌傷了吧</blockquote>
 总之关键是资源的调配和平衡  要清楚需要什么资源  在哪儿补充 以及后备还可以去哪儿补充
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 970#       发表于 2019-12-30 16:42
 
 
-
-
 这赛季地图机制我有个问题，一个区域拿了第一块石头后要打插了石头后的地图才能上色么，可是之前打出来的图等级不是不够么。图除了买还能怎么来呢 难道三合一？
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 971#         楼主| 发表于 2019-12-30 17:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46035080&amp;ptid=1478318" target="_blank">胧楼 发表于 2019-12-30 16:42</a>
@@ -21404,16 +14891,10 @@ occ點混沌抗的話，得玩那些持續混沌傷了吧</blockquote>
 另外旧版MAP系统刷出新图的条件是地图相邻       而这版本有些地图相邻但等级高一截的还是无法解锁  必须是相邻且不超过+1等级才行   除了买之外就是开ZANA   在他那儿可以ROLL一些未解锁的+1等级图  打了也会解锁
 
 
-
-
-
-
-
 -----
 
 ####  永真  
 ##### 972#       发表于 2019-12-31 12:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46035080&amp;ptid=1478318" target="_blank">胧楼 发表于 2019-12-30 16:42</a>
@@ -21422,17 +14903,10 @@ occ點混沌抗的話，得玩那些持續混沌傷了吧</blockquote>
 你把鼠标放到左侧的存石头的槽上会显示出本区域需要多少块石头出征服者
 
 
-
-
-
-
-
 -----
 
 ####  永真  
 ##### 973#       发表于 2019-12-31 12:21
-
-
 
 
 今天想开T13的channel，结果vaal之后变成了T14的Spider Lair, 然后没注意就直接开了
@@ -21440,16 +14914,10 @@ occ點混沌抗的話，得玩那些持續混沌傷了吧</blockquote>
 结果还触发了baran，现在我4块石头被卡在里面，没红图了
 
 
-
-
-
-
-
 -----
 
 ####  奇拉奇拉  
 ##### 974#       发表于 2020-1-1 09:55
-
 
 
 <blockquote>永真 发表于 2019-12-31 12:21
@@ -21459,16 +14927,10 @@ occ點混沌抗的話，得玩那些持續混沌傷了吧</blockquote>
 变色之后直接打对应区域的白图就行，也可以正常触发守望石boss战的
 
 
-
-
-
-
-
 -----
 
 ####  永真  
 ##### 975#       发表于 2020-1-1 11:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46052412&amp;ptid=1478318" target="_blank">奇拉奇拉 发表于 2020-1-1 09:55</a>
@@ -21477,25 +14939,13 @@ occ點混沌抗的話，得玩那些持續混沌傷了吧</blockquote>
 哦哦，原来如此
 
 
-
-
-
-
-
 -----
 
 ####  double8  
 ##### 976#       发表于 2020-1-1 13:16
 
 
-
-
 现在有个大问题……364触发的机制到底是啥，打完一圈4流放不是吗？我第二次打完出来了，第三次一圈打完没出来，现在不知道该干嘛了……
-
-
-
-
-
 
 
 -----
@@ -21504,14 +14954,7 @@ occ點混沌抗的話，得玩那些持續混沌傷了吧</blockquote>
 ##### 977#       发表于 2020-1-11 14:27
 
 
-
-
 请问这个游戏国际服有分流文件吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21520,15 +14963,9 @@ occ點混沌抗的話，得玩那些持續混沌傷了吧</blockquote>
 ##### 978#       发表于 2020-1-11 17:18
 
 
-
 <blockquote>Dewangsky 发表于 2020-1-11 14:27
 请问这个游戏国际服有分流文件吗下不动...</blockquote>
 有个3.9刚开服时候的种子，嗯是刚开服时候的，大概还要额外下几g吧，你随便找个poe国际服的群问一下应该都有种子的，这赛季17173没更新客户端确实难受，比较快点的方法是蒸汽端跨区下不过我成功，蒸汽下的肯定最快
-
-
-
-
-
 
 
 -----
@@ -21537,16 +14974,10 @@ occ點混沌抗的話，得玩那些持續混沌傷了吧</blockquote>
 ##### 979#       发表于 2020-1-11 18:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46152536&amp;ptid=1478318" target="_blank">Dewangsky 发表于 2020-1-11 14:27</a>
 
 请问这个游戏国际服有分流文件吗下不动...</blockquote>
 贴吧应该有分流，再不行steam云登录后入库，让steam帮你下，再复制出来
-
-
-
-
-
 
 
 -----
@@ -21555,14 +14986,7 @@ occ點混沌抗的話，得玩那些持續混沌傷了吧</blockquote>
 ##### 980#       发表于 2020-1-11 20:37
 
 
-
-
 3.9开服玩了个老头图腾，至今没打过赛老师<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21571,15 +14995,9 @@ occ點混沌抗的話，得玩那些持續混沌傷了吧</blockquote>
 ##### 981#       发表于 2020-1-12 09:51
 
 
-
 <blockquote>double8 发表于 2020-1-11 17:18
 有个3.9刚开服时候的种子，嗯是刚开服时候的，大概还要额外下几g吧，你随便找个poe国际服的群问一下应该 ...</blockquote>
 谢谢，我已经弄好了
-
-
-
-
-
 
 
 -----
@@ -21588,10 +15006,7 @@ occ點混沌抗的話，得玩那些持續混沌傷了吧</blockquote>
 ##### 982#         楼主| 发表于 2020-1-12 20:09
 
 
-
-
 提下3.9.2已更新  如果苦于之前版本因为老版本系统/硬件而有无法释放内存/显存资源问题的人  现在应该可以玩了  优化是确实的有
-
 
 
 另外主打混沌伤的混沌弓现在处于略纠结的状态  若是单就进阶天赋相性问题 OCC是最佳的 但是魔女一片或者说上面区域几乎没有中毒几率的天赋   若靠装备撑   诅咒衣没血没ES而且强制诅咒效果和天赋重叠了  野兽头很好但入手难度不小    绿球中毒手单看效果不错但非raider维持满绿球依旧有一定难度  想纯靠装备和天赋撑满中毒率有难度
@@ -21600,16 +15015,10 @@ occ點混沌抗的話，得玩那些持續混沌傷了吧</blockquote>
 raider配合绿球中毒手有较大的收益   但是主打混沌伤尤其是穿了混沌甲连了虚空掌握的混沌弓雷伤占比只有不到30%甚至26%以下   这导致phasing状态下的减元素抗收益小了很多   而右侧的混沌伤也不是特别多  进一步提升占比有限
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 983#         楼主| 发表于 2020-2-26 01:50
-
 
 
 <img src="http://tva4.sinaimg.cn/large/638aaa96gy1g94zts7xyhj20th0hfqnt.jpg" referrerpolicy="no-referrer">
@@ -21717,8 +15126,6 @@ Greater Volley+Barrage  一次连续射出多组平行射击的箭矢
 <img src="http://tva4.sinaimg.cn/large/638aaa96gy1g9gvrbtt6hj20jt0gktgk.jpg" referrerpolicy="no-referrer">
 
 
-
-
 <strong>Metamorph league</strong>
 
 在蜕变赛季中，你会遇到一个新的NPC，Tane Octavius，一个在奥瑞斯学习的炼金大师。因杀死了自己的老师而被流放到瑞克最后，塔恩用他学来的炼金术知识来收集怪物的精华，来寻找“自我”。他希望找到一种治愈的方法，或者也许只是他所说的“内在的黑暗”的源头，这种黑暗导致了他不可原谅的暴力行为。
@@ -21748,44 +15155,13 @@ Greater Volley+Barrage  一次连续射出多组平行射击的箭矢
 5. 一系列平衡調整  都已体现在PN上 [https://www.pathofexile.com/forum/view-thread/2686983](https://www.pathofexile.com/forum/view-thread/2686983)
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 984#         楼主| 发表于 2020-2-26 02:14
 
 
-
-
 新赛季视频已偷跑  新系统是可定制有词缀的扩展天赋盘    感觉是军团石的改进内容    对旧有体系大冲击是肯定的了
-
-
-
-
-
 
 
 -----
@@ -21794,14 +15170,7 @@ Greater Volley+Barrage  一次连续射出多组平行射击的箭矢
 ##### 985#       发表于 2020-2-26 02:36
 
 
-
-
 这个雾特效，感觉帧数又要进一步下降了
-
-
-
-
-
 
 
 -----
@@ -21810,24 +15179,15 @@ Greater Volley+Barrage  一次连续射出多组平行射击的箭矢
 ##### 986#       发表于 2020-2-26 09:14
 
 
-
-
 雾门来了
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 987#         楼主| 发表于 2020-2-26 09:33
-
-
 
 
 初步编辑完成了  以后就更新重要情报了再修改
@@ -21838,16 +15198,10 @@ Greater Volley+Barrage  一次连续射出多组平行射击的箭矢
 话说下赛季期望能有个新技能是标记位削减混沌抗     普及了征服者体系后还没标记技能削混沌抗太蛋疼了
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 988#         楼主| 发表于 2020-2-27 03:04
-
 
 
 <img src="http://tvax4.sinaimg.cn/large/638aaa96gy1gcae6aylxhj21hc0t6n26.jpg" referrerpolicy="no-referrer">
@@ -21858,16 +15212,10 @@ Greater Volley+Barrage  一次连续射出多组平行射击的箭矢
 除了没头手和武器附件提供属性加成外另一个问题是空手系和双手系能看的技能都没啥
 
 
-
-
-
-
-
 -----
 
 ####  dclara1  
 ##### 989#       发表于 2020-2-27 10:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46539493&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2020-2-27 03:04</a>
@@ -21879,17 +15227,10 @@ Greater Volley+Barrage  一次连续射出多组平行射击的箭矢
 你把别人玩梗当新闻搬了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 990#         楼主| 发表于 2020-2-28 10:30
-
-
 
 
 Blade Blast的相关情报更新了     BF/BV/EK新增了剑刃产生的功能   而且这个剑刃除了引爆外也可以被AW激活  算是间接解决了AW缺少弹药的问题
@@ -21898,24 +15239,13 @@ Blade Blast的相关情报更新了     BF/BV/EK新增了剑刃产生的功�
 不过对于召唤弓来说只是提高到了和SRS相近水准  顶多续战力更强   但面对和BOSS单打独斗时依旧缺少足够能力产生AW ,  cast on hit 依旧是需要的
 
 
-
-
-
-
-
 -----
 
 ####  fallout  
 ##### 991#       发表于 2020-3-3 12:10
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21924,15 +15254,9 @@ Blade Blast的相关情报更新了     BF/BV/EK新增了剑刃产生的功�
 ##### 992#       发表于 2020-3-3 12:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46601174&amp;ptid=1478318" target="_blank">fallout 发表于 2020-3-3 12:10</a>
 萌新入坑了国际服，但是看视频又很馋国服的扩展背包和交易系统，不知道该怎么取舍啊，还有就是买仓 ...</blockquote>
 国际服
-
-
-
-
-
 
 
 -----
@@ -21941,12 +15265,7 @@ Blade Blast的相关情报更新了     BF/BV/EK新增了剑刃产生的功�
 ##### 993#       发表于 2020-3-6 12:16
 
 
-
-
 力爆回归赛季,杀猪BOBO，爆哥等等可以回归了
-
-
-
 
 
                 

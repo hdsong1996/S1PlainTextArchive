@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2020-02-28 12:57** 
 
 
-
 -----
 
 ####  ahyyk  
 ##### 1501#       发表于 2017-7-24 10:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36668325&amp;ptid=1486439" target="_blank">frightmia 发表于 2017-7-24 10:18</a>
@@ -19,25 +17,13 @@
 “安洁，我不做人啦！”或者“你果然爱说谎呢！”
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1502#       发表于 2017-7-24 10:24
 
 
-
-
 小跟班越看越像方桌骑士尼娜…
-
-
-
-
-
 
 
 -----
@@ -46,17 +32,10 @@
 ##### 1503#       发表于 2017-7-24 10:29
 
 
-
-
 这集开始的安洁也太猴急了吧才见公主就要私奔 来前卡萨布兰卡的房子都准备好了 也不怕和公主私奔被本国间谍机关报复 一心只想带老婆回家过日子……经过这集安洁已经变成了会偷公主的内衣来闻对着睡衣的公主流口水的变态了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
 『论毁掉一个冷静的角色需要多长时间』大河内一楼著
-
-
-
-
-
 
 
 -----
@@ -65,16 +44,10 @@
 ##### 1504#       发表于 2017-7-24 10:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36667011&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-24 08:10</a>
 
 有个地方我特别在意。那个笔形状的qiang，公主很熟练的就把保险打开了，跟班屋子桌子上也有一把。对于两个 ...</blockquote>
 公主只是把笔尾逆时针转、顺时针转不到半圈后子Dan就发射了。能看出来是不小心开的Qiang。公主开枪以后自己也惊讶的小叫了一声。
-
-
-
-
-
 
 
 -----
@@ -83,14 +56,7 @@
 ##### 1505#       发表于 2017-7-24 10:40
 
 
-
-
 另外还好我第一集就把这篇当007看 这集才没产生太大的违和感 不过这文戏质量是不如前2集打戏也就看个爽 
-
-
-
-
-
 
 
 -----
@@ -99,15 +65,9 @@
 ##### 1506#       发表于 2017-7-24 10:48
 
 
-
 <blockquote>rkSan 发表于 2017-7-24 01:36
 我也觉得换过，跳伞的时候安洁说最讨厌公主，然而根据开头安洁都想跟公主私奔了 ...</blockquote>
 这是调戏阿比特吧，说不定小时候说和阿比特做朋友的是安洁
-
-
-
-
-
 
 
 -----
@@ -116,21 +76,13 @@
 ##### 1507#       发表于 2017-7-24 10:52
 
 
-
-
 比阿特
-
-
-
-
-
 
 
 -----
 
 ####  aptx8285144  
 ##### 1508#       发表于 2017-7-24 10:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36667098&amp;ptid=1486439" target="_blank">saturnus 发表于 2017-7-24 08:23</a>
@@ -142,17 +94,10 @@
 这几话下来感觉对面棋子级别的都很菜,这话士兵表现多少好了点,结果轮到舰长和当年银英的艾法西尔撤退时候帝国军一样觉得有些事情一定不会发生<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  gold013  
 ##### 1509#       发表于 2017-7-24 11:02
-
-
 
 
 我在卡萨布兰卡准备了一套白房子，过去开始新生活吧……简直就是**经典的死亡flag……
@@ -163,31 +108,19 @@
 脑洞一下，如果当初小贝被他爹改造城全身义体，这片子的主角就妥妥的是小贝了（亚当简森与母猩猩）
 
 
-
-
-
-
-
 -----
 
 ####  おれき  
 ##### 1510#       发表于 2017-7-24 11:12
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">安洁那句讨厌公主到底是在开玩笑还是真心的，我感觉还要再看下去。
-
-
-
-
-
 
 
 -----
 
 ####  ahyyk  
 ##### 1511#       发表于 2017-7-24 11:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36668868&amp;ptid=1486439" target="_blank">gold013 发表于 2017-7-24 11:02</a>
@@ -203,16 +136,10 @@
 但卡萨布兰卡的话……最后是安洁送公主和跟班私奔？
 
 
-
-
-
-
-
 -----
 
 ####  LadySaazbaum  
 ##### 1512#       发表于 2017-7-24 11:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36668297&amp;ptid=1486439" target="_blank">皇神樂耶 发表于 2017-7-24 10:16</a>
@@ -221,26 +148,14 @@
 hhhhh埃德尔丽泽酱能开着越野车横冲直撞，小女仆们都是潜力股<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  crazymarky  
 ##### 1513#       发表于 2017-7-24 11:32
 
 
-
-
 根据合照，要上位需要干死两个欧尼撒马、一个欧内撒马
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">美马预定了吧
-
-
-
-
-
 
 
 -----
@@ -249,16 +164,10 @@ hhhhh埃德尔丽泽酱能开着越野车横冲直撞，小女仆们都是潜力
 ##### 1514#       发表于 2017-7-24 11:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36668297&amp;ptid=1486439" target="_blank">皇神樂耶 发表于 2017-7-24 10:16</a>
 
 其实小跟班和az的小女仆很相似啊……无论身高属性还是身份</blockquote>
 一派胡言！她看上去比我矮多了！
-
-
-
-
-
 
 
 -----
@@ -267,17 +176,10 @@ hhhhh埃德尔丽泽酱能开着越野车横冲直撞，小女仆们都是潜力
 ##### 1515#       发表于 2017-7-24 11:34
 
 
-
 [http://www.anitama.cn/article/face85ad4e4066e9](http://www.anitama.cn/article/face85ad4e4066e9)  监督橘正纪、总制片人汤川淳、音乐梶浦由记谈《Princess Principal》诞生秘话（上）
 
 
-
 应该是稳了
-
-
-
-
-
 
 
 -----
@@ -286,22 +188,15 @@ hhhhh埃德尔丽泽酱能开着越野车横冲直撞，小女仆们都是潜力
 ##### 1516#       发表于 2017-7-24 11:35
 
 
-
 <blockquote>神之叹息 发表于 2017-7-24 10:24
 小跟班越看越像方桌骑士尼娜…</blockquote>
 不不不，小跟班对公主没有性欲和病态偏执…………吧？
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 1517#       发表于 2017-7-24 11:35
-
 
 
  本帖最后由 xtwx1716 于 2017-7-24 11:42 编辑 
@@ -316,26 +211,15 @@ hhhhh埃德尔丽泽酱能开着越野车横冲直撞，小女仆们都是潜力
 ange送真公主和跟班私奔，自己伪装成公主扛下重担。。。。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1518#       发表于 2017-7-24 11:39
 
 
-
 <blockquote>chenyedgg 发表于 2017-7-24 11:34
 http://www.anitama.cn/article/face85ad4e4066e9  监督橘正纪、总制片人汤川淳、音乐梶浦由记谈《Princess ...</blockquote>
 可是这几集音乐都表现感觉相当一般啊
-
-
-
-
-
 
 
 -----
@@ -344,16 +228,10 @@ http://www.anitama.cn/article/face85ad4e4066e9  监督橘正纪、总制片人
 ##### 1519#       发表于 2017-7-24 11:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36669256&amp;ptid=1486439" target="_blank">皇神樂耶 发表于 2017-7-24 11:35</a>
 
 不不不，小跟班对公主没有性欲和病态偏执…………吧？</blockquote>
 这也不一定啊，小跟班对公主明显是有执念的。
-
-
-
-
-
 
 
 -----
@@ -362,21 +240,13 @@ http://www.anitama.cn/article/face85ad4e4066e9  监督橘正纪、总制片人
 ##### 1520#       发表于 2017-7-24 11:40
 
 
-
-
 这空中战舰完全碾压一战前的海陆空啊，技术保密好的话大英帝国能续个五六十年的。
-
-
-
-
-
 
 
 -----
 
 ####  KawakazePring  
 ##### 1521#       发表于 2017-7-24 11:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36668993&amp;ptid=1486439" target="_blank">おれき 发表于 2017-7-24 11:12</a>
@@ -388,16 +258,10 @@ http://www.anitama.cn/article/face85ad4e4066e9  监督橘正纪、总制片人
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  KawakazePring  
 ##### 1522#       发表于 2017-7-24 11:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36669323&amp;ptid=1486439" target="_blank">黄昏鸟 发表于 2017-7-24 11:40</a>
@@ -408,16 +272,10 @@ http://www.anitama.cn/article/face85ad4e4066e9  监督橘正纪、总制片人
 原型格罗斯特号虽然只是一艘轻巡，但这个飞船是一座连装炮都没有啊，炮塔好像也不多的样子。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1523#       发表于 2017-7-24 11:47
-
 
 
 <blockquote>万千百十 发表于 2017-7-24 11:40
@@ -425,16 +283,10 @@ http://www.anitama.cn/article/face85ad4e4066e9  监督橘正纪、总制片人
 跟班对公主 我觉得真就只是朋友。而且公主在困顿时期帮过她，觉得有恩吧
 
 
-
-
-
-
-
 -----
 
 ####  万千百十  
 ##### 1524#       发表于 2017-7-24 11:51
-
 
 
  本帖最后由 万千百十 于 2017-7-24 11:52 编辑 
@@ -444,17 +296,10 @@ http://www.anitama.cn/article/face85ad4e4066e9  监督橘正纪、总制片人
 谁家单纯的朋友在生死存亡之际疯狂地喊着我喜欢她的一切<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  KawakazePring  
 ##### 1525#       发表于 2017-7-24 11:55
-
-
 
 
 其实也没必要喷比阿特丽斯猪队友，虽然确实是猪队友。
@@ -469,32 +314,19 @@ http://www.anitama.cn/article/face85ad4e4066e9  监督橘正纪、总制片人
 从这一集看来的话，比阿特丽斯应该是没有什么战斗的能力的，解决掉这些人手的估计是多萝西
 
 
-
-
-
-
-
 -----
 
 ####  jia3yu3sheng1  
 ##### 1526#       发表于 2017-7-24 11:59
 
 
-
-
 第三集了，按隔壁甲铁城的进度应该快到超级生化合体大僵尸怪出现的时候了，各位要做好心理准备啊
-
-
-
-
-
 
 
 -----
 
 ####  王留美  
 ##### 1527#       发表于 2017-7-24 12:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36669489&amp;ptid=1486439" target="_blank">KawakazePring 发表于 2017-7-24 11:55</a>
@@ -504,16 +336,10 @@ http://www.anitama.cn/article/face85ad4e4066e9  监督橘正纪、总制片人
 三个人是一辆车，先去医院把能干掉的干掉之后留B下来打电话，C和D再转去警局
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 1528#       发表于 2017-7-24 12:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36669543&amp;ptid=1486439" target="_blank">jia3yu3sheng1 发表于 2017-7-24 11:59</a>
@@ -522,16 +348,10 @@ http://www.anitama.cn/article/face85ad4e4066e9  监督橘正纪、总制片人
 应该是忍者登场了
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1529#       发表于 2017-7-24 12:04
-
 
 
 <blockquote>KawakazePring 发表于 2017-7-24 11:55
@@ -541,25 +361,13 @@ http://www.anitama.cn/article/face85ad4e4066e9  监督橘正纪、总制片人
 应该不是她一个人干掉的。是千世，她后面也带了一个人质在手
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1530#       发表于 2017-7-24 12:11
 
 
-
-
 共和国和王国的关系感觉好微妙…第二集有使节来往，第三集公主送别共和国相关人员？怎么感觉虽然是伦敦墙分隔了，但还是有高层之间的交流？
-
-
-
-
-
 
 
 -----
@@ -568,16 +376,10 @@ http://www.anitama.cn/article/face85ad4e4066e9  监督橘正纪、总制片人
 ##### 1531#       发表于 2017-7-24 12:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36669651&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-24 12:11</a>
 
 共和国和王国的关系感觉好微妙…第二集有使节来往，第三集公主送别共和国相关人员？怎么感觉虽然是伦敦墙分 ...</blockquote>
 第三集送别的不是皇太子吗，应该是王国这边的吧？
-
-
-
-
-
 
 
 -----
@@ -586,22 +388,15 @@ http://www.anitama.cn/article/face85ad4e4066e9  监督橘正纪、总制片人
 ##### 1532#       发表于 2017-7-24 12:20
 
 
-
 <blockquote>ahyyk 发表于 2017-7-24 12:03
 应该是忍者登场了</blockquote>
 所以忍者的秘密是人工培育不死身强化人，作为间谍送来推翻大英霸权，决战时的底牌是巨大化一手拍飞伦敦墙？
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 1533#       发表于 2017-7-24 12:27
-
 
 
 <blockquote>posion 发表于 2017-7-24 12:20
@@ -611,16 +406,10 @@ http://www.anitama.cn/article/face85ad4e4066e9  监督橘正纪、总制片人
 忍者是全身机械化无敌铁血战士T800
 
 
-
-
-
-
-
 -----
 
 ####  KawakazePring  
 ##### 1534#       发表于 2017-7-24 12:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36669561&amp;ptid=1486439" target="_blank">王留美 发表于 2017-7-24 12:00</a>
@@ -636,26 +425,15 @@ http://www.anitama.cn/article/face85ad4e4066e9  监督橘正纪、总制片人
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1535#       发表于 2017-7-24 12:38
 
 
-
 <blockquote>bird-lay 发表于 2017-7-24 12:18
 第三集送别的不是皇太子吗，应该是王国这边的吧？</blockquote>
 那应该是我搞错了。不过两国的有使节往来也是一种信号感觉
-
-
-
-
-
 
 
 -----
@@ -664,16 +442,9 @@ http://www.anitama.cn/article/face85ad4e4066e9  监督橘正纪、总制片人
 ##### 1536#       发表于 2017-7-24 12:39
 
 
-
-
 反重力材料本来只当是设定，这话突然蹦出来个人造喉咙，谁知道以后还会出啥黑科技啊，改造人完全可行。
 
 不过就算是改造人，也该是比安特吧，：公主，我不做人了！以后叫我贝阿朵莉切！
-
-
-
-
-
 
 
 -----
@@ -682,23 +453,16 @@ http://www.anitama.cn/article/face85ad4e4066e9  监督橘正纪、总制片人
 ##### 1537#       发表于 2017-7-24 12:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36666784&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-24 07:08</a>
 
 看到有人吐槽第二集结尾公主瞬间就拿走了安洁手里的重力球，跟他说是一种表现手法而已，居然还回复那拿走藏 ...</blockquote>
 有些人只要是大河内的片就要逐帧逐帧挑刺啦，讨厌大河内到这程度还集集追，这种自己觉得大河内全身都是翔，还每次都第一个吃再加舔干净的行为只能说贱透了。
 
 
-
-
-
-
-
 -----
 
 ####  黄昏鸟  
 ##### 1538#       发表于 2017-7-24 12:41
-
 
 
 <blockquote>KawakazePring 发表于 2017-7-24 11:47
@@ -708,30 +472,17 @@ http://www.anitama.cn/article/face85ad4e4066e9  监督橘正纪、总制片人
 好期待正式战争里的表现啊(未必有就是了)。这战舰需要灌那么多冷却水，似乎反重力物质的持久力堪忧啊。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1539#       发表于 2017-7-24 12:42
 
 
-
-
 一直想问这女的是谁？…特意给了这个几秒的镜头
-
-
-
-
 
 
 Screenshot_2017-07-24-12-34-09_com.miui.video.png
 (162.74 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -740,24 +491,7 @@ Screenshot_2017-07-24-12-34-09_com.miui.video.png
 2017-7-24 12:41 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/24/124119v2919loznhu092co.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -766,14 +500,7 @@ Screenshot_2017-07-24-12-34-09_com.miui.video.png
 ##### 1540#       发表于 2017-7-24 12:44
 
 
-
-
 赌十块，肯定不是Happy End，公主安杰肯定结尾聚不到一块
-
-
-
-
-
 
 
 -----
@@ -782,14 +509,7 @@ Screenshot_2017-07-24-12-34-09_com.miui.video.png
 ##### 1541#       发表于 2017-7-24 12:47
 
 
-
-
 这集我还想看看皇太子长啥样，多大之类的，想着说不定就来一套小皇太子对安洁一见钟情的桥段<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">。结果从头到尾只有姬情
-
-
-
-
-
 
 
 -----
@@ -798,23 +518,16 @@ Screenshot_2017-07-24-12-34-09_com.miui.video.png
 ##### 1542#       发表于 2017-7-24 12:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36670008&amp;ptid=1486439" target="_blank">cao1rui2 发表于 2017-7-24 12:47</a>
 
 这集我还想看看皇太子长啥样，多大之类的，想着说不定就来一套小皇太子对安洁一见钟情的桥段。结果 ...</blockquote>
 一模一样的脸要一见钟情……“夭寿啦，威尔士亲王叛国啦！进德国骨科啦“
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1543#       发表于 2017-7-24 12:53
-
 
 
  本帖最后由 xtwx1716 于 2017-7-24 12:58 编辑 
@@ -825,34 +538,19 @@ Screenshot_2017-07-24-12-34-09_com.miui.video.png
 很多蒸汽朋克风的游戏里机器人和魔法都是很常见的设定，所以这集的人造喉咙我觉得倒没什么稀奇的。可能问题在于到目前为止这部片对整个世界观和社会状态的描写相当有限，本来看起来平平常常的维多利亚时代突然冒出反重力、人造器官这种东西让人一时间接受不了。
 
 
-
-
-
-
-
-
-
 -----
 
 ####  太阳灿灿  
 ##### 1544#       发表于 2017-7-24 12:54
 
 
-
-
 安洁说讨厌公主是因为背着她找其他女人吧<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  gold013  
 ##### 1545#       发表于 2017-7-24 12:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36669009&amp;ptid=1486439" target="_blank">ahyyk 发表于 2017-7-24 11:13</a>
@@ -864,16 +562,10 @@ Screenshot_2017-07-24-12-34-09_com.miui.video.png
 按照OP的暗示，最后是假公主跳反，安杰小队历尽艰险从新说服假公主，至于是否私奔……我看悬
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 1546#       发表于 2017-7-24 13:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36670101&amp;ptid=1486439" target="_blank">gold013 发表于 2017-7-24 12:57</a>
@@ -882,27 +574,15 @@ Screenshot_2017-07-24-12-34-09_com.miui.video.png
 看op感觉更像是黄毛跳反，小队试图说服她，结果没想到安洁也跳过去了
 
 
-
-
-
-
-
 -----
 
 ####  sgpt55  
 ##### 1547#       发表于 2017-7-24 13:09
 
 
-
-
 大河内我不信你但我也追了
 
 [  -- 来自能订阅的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
-
-
-
-
-
 
 
 -----
@@ -911,21 +591,13 @@ Screenshot_2017-07-24-12-34-09_com.miui.video.png
 ##### 1548#       发表于 2017-7-24 13:12
 
 
-
-
 你们为什么还在纠结讨厌公主这句话呢？第一集就表达的很明显了这明显是反话。女仆最后那句你真是个大骗子说明她也听懂了安洁在说反话。
-
-
-
-
-
 
 
 -----
 
 ####  bird-lay  
 ##### 1549#       发表于 2017-7-24 13:19
-
 
 
  本帖最后由 bird-lay 于 2017-7-24 13:21 编辑 
@@ -937,16 +609,10 @@ Screenshot_2017-07-24-12-34-09_com.miui.video.png
 （主要是日语讲プリンセス听起来太奇怪了，结果整部片都在重复这个词。。。）
 
 
-
-
-
-
-
 -----
 
 ####  lvjingkun9  
 ##### 1550#       发表于 2017-7-24 13:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36670061&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-24 12:53</a>
@@ -958,16 +624,10 @@ Screenshot_2017-07-24-12-34-09_com.miui.video.png
 据我观察 国内蒸汽朋克只能算是小众
 
 
-
-
-
-
-
 -----
 
 ####  太书主  
 ##### 1551#       发表于 2017-7-24 13:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36669965&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-24 12:42</a>
@@ -976,26 +636,15 @@ Screenshot_2017-07-24-12-34-09_com.miui.video.png
 侍女她妈吧
 
 
-
-
-
-
-
 -----
 
 ####  发财就手  
 ##### 1552#       发表于 2017-7-24 13:26
 
 
-
  本帖最后由 发财就手 于 2017-7-24 13:27 编辑 
 
 这片世界观让我想起教团1886，尤其是这集的飞空艇有几分象当中一个任务
-
-
-
-
-
 
 
 -----
@@ -1004,14 +653,7 @@ Screenshot_2017-07-24-12-34-09_com.miui.video.png
 ##### 1553#       发表于 2017-7-24 13:32
 
 
-
-
 蒸汽朋克的受众么，早10年左右韩国有个这个题材的网游，然后就没有然后了。所以基本只是其他类型片里的点缀或者说添头罢了。
-
-
-
-
-
 
 
 -----
@@ -1020,16 +662,10 @@ Screenshot_2017-07-24-12-34-09_com.miui.video.png
 ##### 1554#       发表于 2017-7-24 13:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36669987&amp;ptid=1486439" target="_blank">thez 发表于 2017-7-24 12:44</a>
 
 赌十块，肯定不是Happy End，公主安杰肯定结尾聚不到一块</blockquote>
 如果没有手游宣传需要加上是大河内，我觉得不是Happy End的可能百分之90，有这个的话就不好说了，但是既然甲铁城这种看上去是Happy End的都死了胖子，这种风格主角方不死人感觉也难
-
-
-
-
-
 
 
 -----
@@ -1038,16 +674,10 @@ Screenshot_2017-07-24-12-34-09_com.miui.video.png
 ##### 1555#       发表于 2017-7-24 13:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36670155&amp;ptid=1486439" target="_blank">bird-lay 发表于 2017-7-24 13:02</a>
 
 看op感觉更像是黄毛跳反，小队试图说服她，结果没想到安洁也跳过去了</blockquote>
 你说的和我说的都是一件事情<img src="https://static.saraba1st.com/image/smiley/face/20.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1056,24 +686,16 @@ Screenshot_2017-07-24-12-34-09_com.miui.video.png
 ##### 1556#       发表于 2017-7-24 13:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36670155&amp;ptid=1486439" target="_blank">bird-lay 发表于 2017-7-24 13:02</a>
 
 看op感觉更像是黄毛跳反，小队试图说服她，结果没想到安洁也跳过去了</blockquote>
 安洁一开始就是金毛的人啊，跳过去简直理所当然<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 1557#       发表于 2017-7-24 13:59
-
-
 
 
 机械喉咙很猎奇吗- -
@@ -1083,27 +705,15 @@ Screenshot_2017-07-24-12-34-09_com.miui.video.png
 这个反重力球只能水冷不能风冷吗？
 
 
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 1558#       发表于 2017-7-24 14:01
 
 
-
-
 另：
 
 世界上有那么多的城镇,城镇中有那么多的酒馆,她却偏偏走进了我的酒馆。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1112,16 +722,9 @@ Screenshot_2017-07-24-12-34-09_com.miui.video.png
 ##### 1559#       发表于 2017-7-24 15:00
 
 
-
-
 看完第一集，好评，继续。
 
 [  -- 来自能订阅的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
-
-
-
-
-
 
 
 -----
@@ -1130,16 +733,10 @@ Screenshot_2017-07-24-12-34-09_com.miui.video.png
 ##### 1560#       发表于 2017-7-24 15:03
 
 
-
 <img src="http://wx2.sinaimg.cn/mw1024/b9128e35ly1fhuvkgrfsjj20hs09yabn.jpg" referrerpolicy="no-referrer">
 
 
 转自微博
-
-
-
-
-
 
 
 -----
@@ -1148,14 +745,7 @@ Screenshot_2017-07-24-12-34-09_com.miui.video.png
 ##### 1561#       发表于 2017-7-24 15:34
 
 
-
-
 忍者会怎样入队？
-
-
-
-
-
 
 
 -----
@@ -1164,21 +754,13 @@ Screenshot_2017-07-24-12-34-09_com.miui.video.png
 ##### 1562#       发表于 2017-7-24 15:41
 
 
-
-
 安洁和公主虽然像，仔细一看换了头发后表情不一样，所以感觉还是有差距
-
-
-
-
-
 
 
 -----
 
 ####  欧阳明  
 ##### 1563#       发表于 2017-7-24 15:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36670061&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-24 12:53</a>
@@ -1190,16 +772,10 @@ Screenshot_2017-07-24-12-34-09_com.miui.video.png
 我能接受C球。所以我能接受这片有和C球同等级的黑科技
 
 
-
-
-
-
-
 -----
 
 ####  凡人  
 ##### 1564#       发表于 2017-7-24 15:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36667380&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-7-24 08:57</a>
@@ -1208,17 +784,10 @@ Screenshot_2017-07-24-12-34-09_com.miui.video.png
 嗯，这样也说的通。那么可能是双关吗？既是实话（讨厌身份）又是谎言（喜欢公主）。我觉得这段安洁的话应该有向公主告白的成分，这样比较整齐。在搞不好会死的生命最后关头，比阿特可以大胆的把真心话全都吐出来，可安洁还是只能笑着说谎。
 
 
-
-
-
-
-
 -----
 
 ####  noneoneone  
 ##### 1565#       发表于 2017-7-24 16:11
-
-
 
 
 蒸汽朋克一般还是理解成科幻的分支。
@@ -1233,17 +802,10 @@ C球的技术在浮空艇上也有体现，只是小型化而已，这个就很�
 当然具体还要看后面的展开再说，也没准会出现更多的改造人，这只是一个铺垫而已。
 
 
-
-
-
-
-
 -----
 
 ####  riyaliums  
 ##### 1566#       发表于 2017-7-24 16:31
-
-
 
 
 一句社团活动直接LOW穿地心
@@ -1251,16 +813,10 @@ C球的技术在浮空艇上也有体现，只是小型化而已，这个就很�
 大河内，傻逼
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 1567#       发表于 2017-7-24 16:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36669489&amp;ptid=1486439" target="_blank">KawakazePring 发表于 2017-7-24 11:55</a>
@@ -1271,17 +827,10 @@ C球的技术在浮空艇上也有体现，只是小型化而已，这个就很�
 就这集表现，贝阿能够轻松调整自己的机械喉咙到特定声音，估计还是第一次这么做。柯南的领结还是看着调旋钮呢。加上一眼看出军舰的设计图中士兵舱等，估计实际上虽然她未必希望但是她那个疯狂科学家父亲的机械设计能力也学了不少。所以谁知道是不是她本集结束正式入队后给自己的义体进行了武装化改造呢。
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 1568#       发表于 2017-7-24 16:44
-
-
 
 
 顺便这片真的好姬。
@@ -1289,16 +838,10 @@ C球的技术在浮空艇上也有体现，只是小型化而已，这个就很�
 开头这段对白都快赶上伊泽塔倒数第二话飞天赏月了。就是死后文这么姬的镜头也是最后两话才出来啊。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1569#       发表于 2017-7-24 16:51
-
 
 
 <blockquote>riyaliums 发表于 2017-7-24 16:31
@@ -1311,17 +854,10 @@ C球的技术在浮空艇上也有体现，只是小型化而已，这个就很�
 就算贵族学校也需要有点学生组织吧，这有什么好喷的？
 
 
-
-
-
-
-
 -----
 
 ####  xiluo3344  
 ##### 1570#       发表于 2017-7-24 17:01
-
-
 
 
 看完，安杰和公主能确定就是互换身份吗？
@@ -1331,16 +867,10 @@ C球的技术在浮空艇上也有体现，只是小型化而已，这个就很�
 [  -- 来自 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
 
 
-
-
-
-
-
 -----
 
 ####  saturnus  
 ##### 1571#       发表于 2017-7-24 17:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36668802&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-7-24 10:57</a>
@@ -1355,26 +885,13 @@ C球的技术在浮空艇上也有体现，只是小型化而已，这个就很�
 而且看那个全家福的照片，男性成员包括公爵大人就有5个了，所以说公主他爹应该是真太子？话说有没有高手研究过那个全家福啊？
 
 
-
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1572#       发表于 2017-7-24 17:14
 
 
-
-
 有可能两个都是叫夏洛特…看两人小时候连发色都一样
-
-
-
-
-
 
 
 -----
@@ -1383,14 +900,7 @@ C球的技术在浮空艇上也有体现，只是小型化而已，这个就很�
 ##### 1573#       发表于 2017-7-24 17:20
 
 
-
-
 有种结局是夏洛特把公主干掉的赶脚<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1399,16 +909,9 @@ C球的技术在浮空艇上也有体现，只是小型化而已，这个就很�
 ##### 1574#       发表于 2017-7-24 17:21
 
 
-
-
 这俩人长的像的设定是不是也有点。。。第二集两人公开场合同时在场，现实里即使发色发型不同要是脸真长的像应该也会马上引起注意。。何况还是公主
 
 [  -- 来自能看大图的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
-
-
-
-
-
 
 
 -----
@@ -1417,24 +920,15 @@ C球的技术在浮空艇上也有体现，只是小型化而已，这个就很�
 ##### 1575#       发表于 2017-7-24 17:38
 
 
-
-
 有没有人提过，如果非要有人领便当的话，比阿特这技能就是代死的flag。
 
 —— 来自 Meizu PRO 5, Android 5.1上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
-
-
-
-
-
 
 
 -----
 
 ####  吃瓜群众酱油君  
 ##### 1576#       发表于 2017-7-24 17:41
-
-
 
 
 监督负责故事大纲，大河内脚本主要是具体化故事，所以建不建国不是大河内能决定的，而是看橘正纪，估计也不会有断手剧情。脚本最重要的是表现故事的同时将人物性格刻画出来。实际上8w8就是在无名的性格上崩了，粉毛一出来那种冷静神秘的感觉全没了，性格转变缺少铺垫，导致观感变差。这集小跟班虽然坑了点，但结合这几集，她的性格本身就该如此。安杰的性格有崩的倾向，开头突然失去了冷静的感觉，直接拉人私奔，不过还能圆的过来，所以目前人物性格方面没太大矛盾。至于你们说的枪法、雷电、钢板等一系列巧合我倒觉得没问题，毕竟无巧不成书。
@@ -1444,16 +938,10 @@ C球的技术在浮空艇上也有体现，只是小型化而已，这个就很�
 我说这么多，就是想表明，这一次我相信大河内.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  吃瓜群众酱油君  
 ##### 1577#       发表于 2017-7-24 17:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36672953&amp;ptid=1486439" target="_blank">xiluo3344 发表于 2017-7-24 17:21</a>
@@ -1462,16 +950,10 @@ C球的技术在浮空艇上也有体现，只是小型化而已，这个就很�
 安杰那时候带着眼镜做伪装
 
 
-
-
-
-
-
 -----
 
 ####  破局之人  
 ##### 1578#       发表于 2017-7-24 17:48
-
 
 
 <blockquote>lesangel 发表于 2017-7-17 10:12
@@ -1482,16 +964,10 @@ treason 叛国罪
 真当美国元勋们为什么要写宪法第一修正案，当年一个个都被判这个罪，搞得只能奋起反抗。
 
 
-
-
-
-
-
 -----
 
 ####  xiluo3344  
 ##### 1579#       发表于 2017-7-24 17:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36673165&amp;ptid=1486439" target="_blank">吃瓜群众酱油君 发表于 2017-07-24 17:43:16</a>
@@ -1500,16 +976,10 @@ treason 叛国罪
 [  -- 来自能订阅的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
 
 
-
-
-
-
-
 -----
 
 ####  xiluo3344  
 ##### 1580#       发表于 2017-7-24 17:54
-
 
 
  本帖最后由 xiluo3344 于 2017-7-24 18:13 编辑 
@@ -1523,16 +993,10 @@ treason 叛国罪
 [  -- 来自能搜索的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
 
 
-
-
-
-
-
 -----
 
 ####  LadySaazbaum  
 ##### 1581#       发表于 2017-7-24 18:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36667196&amp;ptid=1486439" target="_blank">尚风悦 发表于 2017-7-24 08:36</a>
@@ -1543,32 +1007,19 @@ hhhhhhh身边跟着的那位秘书如果也是女装dalao，或者大屌萌妹�
 原型腐国没人搞基这多浪费啊<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1582#       发表于 2017-7-24 18:18
 
 
-
-
 我觉得与其认为动画里的人能认出两个人，就如同我看鲁路修的时候，弹幕一直在吐槽，为何娜娜莉认不出zero就是鲁路修。。作为观众当然知道谁和谁。prpr还能给你改个发型发色，已经有区别了。就好像鲁路修里有个变声器，观众听着一样的声音，但片中的不会觉得是同一个人
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 1583#       发表于 2017-7-24 18:18
-
 
 
 <blockquote>xiluo3344 发表于 2017-7-24 17:54
@@ -1578,16 +1029,10 @@ hhhhhhh身边跟着的那位秘书如果也是女装dalao，或者大屌萌妹�
 看大公那个若有所思的样子 说他懂了也是可能的。看后续吧
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 1584#       发表于 2017-7-24 18:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36673145&amp;ptid=1486439" target="_blank">吃瓜群众酱油君 发表于 2017-7-24 17:41</a>
@@ -1596,17 +1041,10 @@ hhhhhhh身边跟着的那位秘书如果也是女装dalao，或者大屌萌妹�
 无名性格上的变化其实很早就有了,前期自言自语兄长大人,和路人群众的争吵让神秘化退色,但是问题是美马出来后她的性格完全转向被美马控制而言对于观众而言还是难以接受的,何况美马本身又太抢戏的同时观感又不好
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 1585#       发表于 2017-7-24 18:36
-
-
 
 
 我现在的倾向是公主和安洁并没有互换
@@ -1630,11 +1068,6 @@ hhhhhhh身边跟着的那位秘书如果也是女装dalao，或者大屌萌妹�
 2017-7-24 18:31 上传
 
 
-
-
-
-
-
 前面楼层发现的，比阿特能看懂机械图，安洁抱以惊讶
 
 
@@ -1646,32 +1079,19 @@ hhhhhhh身边跟着的那位秘书如果也是女装dalao，或者大屌萌妹�
    
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1586#       发表于 2017-7-24 18:39
 
 
-
-
 如果没有互换，干嘛公主叫安洁为夏洛特？然后自己也叫夏洛特，两人还像双胞胎一样。。总之我晕了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">转不过来
-
-
-
-
-
 
 
 -----
 
 ####  lmx20  
 ##### 1587#       发表于 2017-7-24 18:45
-
 
 
  本帖最后由 lmx20 于 2017-7-24 18:59 编辑 
@@ -1724,32 +1144,19 @@ hhhhhhh身边跟着的那位秘书如果也是女装dalao，或者大屌萌妹�
             
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1588#       发表于 2017-7-24 19:01
 
 
-
-
 没有互换的话那小纸条就没意义了啊，只有她们两人看过，难道就是为了骗观众吗
-
-
-
-
-
 
 
 -----
 
 ####  漫区专号  
 ##### 1589#       发表于 2017-7-24 19:03
-
 
 
  本帖最后由 漫区专号 于 2017-7-24 19:08 编辑 
@@ -1764,16 +1171,7 @@ hhhhhhh身边跟着的那位秘书如果也是女装dalao，或者大屌萌妹�
 这里说明了两人的身份变化。安洁原本不是间谍，而现在的公主也原本不是公主。那合理的推测就是因为他俩的身份互换导致了现在的结果。安洁称对方为安洁自己署名夏洛特（现公主的真名）这点就更不用说了。然后最后这里安洁还加了一句话：我要对你这些年来的艰难的日子负责。就更加印证了这一点。
 
 
-
-
-
 而夏洛特这个名字八成就是借用的现在英国皇室第四顺位继承者的名字。
-
-
-
-
-
-
 
 
 -----
@@ -1782,14 +1180,7 @@ hhhhhhh身边跟着的那位秘书如果也是女装dalao，或者大屌萌妹�
 ##### 1590#       发表于 2017-7-24 19:04
 
 
-
-
 我觉得小纸条是安洁为了告诉她是夏洛特，然而公主早就识破她了。看到第三集我觉得公主还是吃定了安洁不会不管她的，有点腹黑的感觉，怕不是到头来牺牲安洁完成大业不成？事成了我们就结婚<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1798,21 +1189,13 @@ hhhhhhh身边跟着的那位秘书如果也是女装dalao，或者大屌萌妹�
 ##### 1591#       发表于 2017-7-24 19:04
 
 
-
-
 有个问题。当分镜演出脚本都有专人负责的情况下，监督在这集是做什么的？第三集就是这种情况。比起橘正纪亲自下场做分镜的第一话，第三话在场面编排上的确逊色不少
-
-
-
-
-
 
 
 -----
 
 ####  lmx20  
 ##### 1592#       发表于 2017-7-24 19:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36673901&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-7-24 19:03</a>
@@ -1831,16 +1214,10 @@ hhhhhhh身边跟着的那位秘书如果也是女装dalao，或者大屌萌妹�
 这个真假公主的戏码才会更清晰
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 1593#       发表于 2017-7-24 19:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36673960&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-7-24 19:09</a>
@@ -1856,17 +1233,10 @@ hhhhhhh身边跟着的那位秘书如果也是女装dalao，或者大屌萌妹�
 例如安洁小时候见过自己父母在革命中被杀，这个应该是真话。那么这就符合现在的皇室里女王的长子被杀，长子家大哥是第一顺位继承人，姐姐第二顺位继承人，二哥第三顺位继承人，公主（夏洛特）是第四顺位继承人的现状。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1594#       发表于 2017-7-24 19:19
-
-
 
 
 其实我好奇监督到底看不看成品的？比如这集安洁如何干掉少佐的，感觉监督自己都没审视过片子，这里小跟班快滑到舱里的镜头，你哪怕加个枪声、爆炸声都可以，不用加安洁的战斗画面都可以，配合后面的结果看着就舒服些了。但实际上，只有小跟班跌落舱里的声效，其他的都没了，然后有个画面少佐躺在地上，有个绳子连着他？那是那根绳子神TM弄死了少佐？可是安洁又受伤了。。我觉得这集的演出挺有问题的，没有把关键的地方做出来。监督的把控还是不够。还是谷口来得稳啊，哎
@@ -1875,16 +1245,10 @@ hhhhhhh身边跟着的那位秘书如果也是女装dalao，或者大屌萌妹�
 我觉得大河内是写了的，就是动画没表现出来，安洁怎么弄伤的也没个交代
 
 
-
-
-
-
-
 -----
 
 ####  皇神樂耶  
 ##### 1595#       发表于 2017-7-24 19:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36673901&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-7-24 19:03</a>
@@ -1898,25 +1262,13 @@ hhhhhhh身边跟着的那位秘书如果也是女装dalao，或者大屌萌妹�
 但如果没有交换，“我要对你这些年来的艰难日子负责”的指向就很明确了————黄毛本身就是公主，当年为了帮助贫儿白毛，在皇室中受到了不必要的苦。
 
 
-
-
-
-
-
 -----
 
 ####  皇神樂耶  
 ##### 1596#       发表于 2017-7-24 19:24
 
 
-
-
 安洁提及到的“我成为了SPY，正如你成为了公主”，可能指的是安洁压抑住了自己温柔恬静的性格成为冷酷间谍，而公主压抑住了自己开朗爱玩的性格成为了合格的公主
-
-
-
-
-
 
 
 -----
@@ -1925,23 +1277,16 @@ hhhhhhh身边跟着的那位秘书如果也是女装dalao，或者大屌萌妹�
 ##### 1597#       发表于 2017-7-24 19:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36674090&amp;ptid=1486439" target="_blank">皇神樂耶 发表于 2017-7-24 19:24</a>
 
 安洁提及到的“我成为了SPY，正如你成为了公主”，可能指的是安洁压抑住了自己温柔恬静的性格成为冷酷间谍 ...</blockquote>
 这么说第二集安洁那句，我们是完全相反的两个人，意思就对上了，就是指性格上的不一样。虽然外貌很像。。
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 1598#       发表于 2017-7-24 19:30
-
 
 
  本帖最后由 漫区专号 于 2017-7-24 19:32 编辑 
@@ -1957,16 +1302,10 @@ hhhhhhh身边跟着的那位秘书如果也是女装dalao，或者大屌萌妹�
 只有安洁本人是公主所以才不把公主这个身份看重，她才会想到放弃公主的身份私奔的计划。
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 1599#       发表于 2017-7-24 19:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36674042&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-24 19:19</a>
@@ -1983,26 +1322,15 @@ hhhhhhh身边跟着的那位秘书如果也是女装dalao，或者大屌萌妹�
 导致擦枪走火，原本该瞄准的地方瞎瞄了
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1600#       发表于 2017-7-24 19:34
 
 
-
 <blockquote>神之叹息 发表于 2017-7-24 19:19
 其实我好奇监督到底看不看成品的？比如这集安洁如何干掉少佐的，感觉监督自己都没审视过片子，这里小跟班快 ...</blockquote>
 分身乏术吧。我希望只是监督把重心放在后边关键的回数去而不是现场已经忙到没法在意细节了。毕竟头两集就像美剧的导航集一样，当然所有人都非常重视，这个第三集只是个过度回自然就投入少一点
-
-
-
-
-
 
 
 -----
@@ -2011,21 +1339,13 @@ hhhhhhh身边跟着的那位秘书如果也是女装dalao，或者大屌萌妹�
 ##### 1601#       发表于 2017-7-24 19:38
 
 
-
-
 我觉得吧，猜安洁和公主没换身份，就跟上集之后猜比阿特是双面间谍一样，九成九是想多了。
-
-
-
-
-
 
 
 -----
 
 ####  lesangel  
 ##### 1602#       发表于 2017-7-24 19:40
-
 
 
  本帖最后由 lesangel 于 2017-7-24 19:47 编辑 
@@ -2035,24 +1355,16 @@ hhhhhhh身边跟着的那位秘书如果也是女装dalao，或者大屌萌妹�
 说的是没有“汉奸罪”，treason 叛国罪等罪名不能直接用中国特定历史时期里的特定罪名来表示.
 
 
-
-
 Congress shall make no law respecting an establishment of religion, or prohibiting the free exercise thereof; or abridging the freedom of speech, or of the press; or the right of the people peaceably to assemble, and to petition the Government for a redress of grievances.
 
 
     译文：国会不得制定关于下列事项的法律：确立国教或禁止信教自由；剥夺言论自由或出版自由；或剥夺人民和平集会和向政府请愿伸冤的权利。
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 1603#       发表于 2017-7-24 19:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36674156&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-7-24 19:30</a>
@@ -2099,27 +1411,15 @@ PS：以前K这个番播出的时候也猜测过很多剧情
 毕竟没有什么东西是解释不了的，只要官方想，直接降智商都能把故事圆过去
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 1604#       发表于 2017-7-24 19:49
 
 
-
-
 如果两人没有互换，那像这样话里带话的伏笔就收不回去了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 <img src="http://i1.buimg.com/1949/969dade263a017cf.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2128,23 +1428,16 @@ PS：以前K这个番播出的时候也猜测过很多剧情
 ##### 1605#       发表于 2017-7-24 19:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36674059&amp;ptid=1486439" target="_blank">皇神樂耶 发表于 2017-7-24 19:21</a>
 
 如果按照你的理解，那么“这些年来的艰难日子”指的是黄毛从孤儿变成公主后，日子不好过，甚至可以说是代 ...</blockquote>
 主要是观众看到的是一个经历洗礼后已经顺利扮装成空气公主，基本脱险的夏洛特，但实际上可以参考影武者里的状态，让一个贫民在没有任何外援的情况下伪装成公主，这公主面对的还是被撕裂后互相渗透的首都、“父母”死于非命的内乱家庭，身边各种熟悉的陌生人的监视，演错一步都是万劫不复，虽然生活条件优越但就生命危险的程度而言这几年过的还真不一定有安洁那边间谍训练踏实，尤其是起步阶段的紧张度真不比刀尖上舔血轻松
 
 
-
-
-
-
-
 -----
 
 ####  皇神樂耶  
 ##### 1606#       发表于 2017-7-24 19:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36674156&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-7-24 19:30</a>
@@ -2163,31 +1456,19 @@ PS：以前K这个番播出的时候也猜测过很多剧情
 从还珠格格的香妃、到日本各种民间传说…………这种套路存在千年了哪有什么不合理
 
 
-
-
-
-
-
 -----
 
 ####  艾叶  
 ##### 1607#       发表于 2017-7-24 19:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">前两集很赞，第三集看得我很尴尬。你们到底是在搞潜入还是在玩间谍游戏啊……进入战舰后大喊大叫，比安特后面的任务是主要负责吃惊的吗。战舰上的乘员表现得很制杖，看到有人入侵，护送母版那货第一时间居然不是想的转移，而是冒头出来打枪。两个卫兵也很菜，你们就没学过交叉开火么。可以吐槽的地方太多了，不太看好后面的剧情了。
-
-
-
-
-
 
 
 -----
 
 ####  lmx20  
 ##### 1608#       发表于 2017-7-24 20:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36674323&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-7-24 19:49</a>
@@ -2200,17 +1481,10 @@ PS：以前K这个番播出的时候也猜测过很多剧情
 你就发现公主感叹的并不绝对就是指真假公主的事情
 
 
-
-
-
-
-
 -----
 
 ####  wingzerocos  
 ##### 1609#       发表于 2017-7-24 20:06
-
-
 
 
 现在的公主混进去十年不露马脚，可能还是故意表现成花瓶，当然必须黑啊。
@@ -2218,16 +1492,10 @@ PS：以前K这个番播出的时候也猜测过很多剧情
 至于那个约定，说不定是“我一定会回来”“那我当上女王等你”<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 1610#       发表于 2017-7-24 20:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36674398&amp;ptid=1486439" target="_blank">艾叶 发表于 2017-7-24 19:59</a>
@@ -2240,25 +1508,13 @@ PS：以前K这个番播出的时候也猜测过很多剧情
 士兵除非是穿越来的。。
 
 
-
-
-
-
-
 -----
 
 ####  Tehebe  
 ##### 1611#       发表于 2017-7-24 20:07
 
 
-
-
 熟悉的配方，熟悉的味道，建国的目标没变，建国的人已经换了几波了，好了剩下的悬念就是猜猜这五个人啥时候团灭吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2267,24 +1523,16 @@ PS：以前K这个番播出的时候也猜测过很多剧情
 ##### 1612#       发表于 2017-7-24 20:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36674398&amp;ptid=1486439" target="_blank">艾叶 发表于 2017-7-24 19:59</a>
 
 前两集很赞，第三集看得我很尴尬。你们到底是在搞潜入还是在玩间谍游戏啊……进入战舰后大喊大叫， ...</blockquote>
 007就是这样的啦<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 1613#       发表于 2017-7-24 20:08
-
-
 
 
 其实那张全家福也很奇怪啊
@@ -2294,14 +1542,8 @@ PS：以前K这个番播出的时候也猜测过很多剧情
 按照简介中的意思（提到革命时照片被烧掉），这张照片应该是革命前拍的，那个时候的公主已经没有父母了吗？
 
 
-
-
-
-
 1.jpeg
 (129.34 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -2310,24 +1552,7 @@ PS：以前K这个番播出的时候也猜测过很多剧情
 2017-7-24 20:08 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/24/200823xlbu2aula6u26pp6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -2336,14 +1561,7 @@ PS：以前K这个番播出的时候也猜测过很多剧情
 ##### 1614#       发表于 2017-7-24 20:11
 
 
-
-
 这话仔细想想确实除了卫兵表现的不那么菜以外,其他的有些地方表现确实不如前面两话,当然一部分原因是因为女仆现在就是这个性格以及女主如何干掉少佐很奇怪的省略了,但是个人还是挺喜欢开头那段对手戏和卫兵的灵机一动<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2352,15 +1570,9 @@ PS：以前K这个番播出的时候也猜测过很多剧情
 ##### 1615#       发表于 2017-7-24 20:12
 
 
-
 <blockquote>艾叶 发表于 2017-7-24 19:59
 前两集很赞，第三集看得我很尴尬。你们到底是在搞潜入还是在玩间谍游戏啊……进入战舰后大喊大叫， ...</blockquote>
 你的吐槽我大部分同意。但是关于跟班，她本来就不是干这个的啊，而且还是阴差阳错上的船…所以对她宽容点吧
-
-
-
-
-
 
 
 -----
@@ -2369,23 +1581,15 @@ PS：以前K这个番播出的时候也猜测过很多剧情
 ##### 1616#       发表于 2017-7-24 20:14
 
 
-
  本帖最后由 神之叹息 于 2017-7-24 20:15 编辑 
 
 女仆不分场合的大吼大叫，神经真是大条，但是胆子又小，我觉得这角色真像尼娜，就是没有尼娜那么恶心而已
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 1617#       发表于 2017-7-24 20:18
-
-
 
 
 不过看到有些老外也是吐槽女仆的，认为她毁了这集，还累得安洁差点挂了
@@ -2404,26 +1608,13 @@ Anime Trending 第二周作品人气榜
 2017-7-24 20:18 上传
 
 
-
-
-
-
-
 野榜
-
-
-
-
-
-
-
 
 
 -----
 
 ####  艾叶  
 ##### 1618#       发表于 2017-7-24 20:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36674454&amp;ptid=1486439" target="_blank">古桥一浩 发表于 2017-7-24 20:06</a>
@@ -2436,16 +1627,10 @@ Anime Trending 第二周作品人气榜
 你说的是交叉火力网吧，那是阵地战枪炮布置了啊。我用语也不太准确，面对高速移动的物体，两个护卫的枪械朝同一个方向追着人家屁股后面扫，我觉得职业军人不该这么菜的……
 
 
-
-
-
-
-
 -----
 
 ####  hyjsttt  
 ##### 1619#       发表于 2017-7-24 20:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36674398&amp;ptid=1486439" target="_blank">艾叶 发表于 2017-7-24 19:59</a>
@@ -2456,26 +1641,13 @@ Anime Trending 第二周作品人气榜
 如果要讲真的，一国公主身边只有一个侍女，这个大概就跟“大小姐身边只有一个丫鬟”一样搞笑了；还有专制帝国的VIP人物身边的服务和安保人员中竟然没有本国安全部门的坐探
 
 
-
-
-
-
-
-
 -----
 
 ####  轮太  
 ##### 1620#       发表于 2017-7-24 20:44
 
 
-
-
 我能想到的最大河内式喂屎展开就是公主始乱终弃玩弄完了之后把安洁卖了踩着她的尸体登上王位。。。。。。。。。
-
-
-
-
-
 
 
 -----
@@ -2484,14 +1656,7 @@ Anime Trending 第二周作品人气榜
 ##### 1621#       发表于 2017-7-24 20:51
 
 
-
-
 如果是大河内的话，不应该是鲁鲁修与朱雀的那种结局么~
-
-
-
-
-
 
 
 -----
@@ -2500,16 +1665,10 @@ Anime Trending 第二周作品人气榜
 ##### 1622#       发表于 2017-7-24 20:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36674610&amp;ptid=1486439" target="_blank">艾叶 发表于 2017-7-24 20:22</a>
 
 你说的是交叉火力网吧，那是阵地战枪炮布置了啊。我用语也不太准确，面对高速移动的物体，两个护卫的枪械 ...</blockquote>
 也就个大头兵，说不定还是义务兵，屁的职业军人
-
-
-
-
-
 
 
 -----
@@ -2518,21 +1677,13 @@ Anime Trending 第二周作品人气榜
 ##### 1623#       发表于 2017-7-24 20:58
 
 
-
-
 多罗茜是负责本片的搞笑担当吧，上集呛烟，这集夹裙子，各种颜艺也是她最多<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  麻花疼  
 ##### 1624#       发表于 2017-7-24 21:10
-
 
 
  本帖最后由 麻花疼 于 2017-7-24 21:12 编辑 
@@ -2543,18 +1694,10 @@ Anime Trending 第二周作品人气榜
 万一突然喂屎，公主或者安洁和男人结婚上位的话，也不是没可能。
 
 
-
-
-
-
-
-
-
 -----
 
 ####  艾叶  
 ##### 1625#       发表于 2017-7-24 21:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36674882&amp;ptid=1486439" target="_blank">万千百十 发表于 2017-7-24 20:57</a>
@@ -2563,17 +1706,10 @@ Anime Trending 第二周作品人气榜
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">大哥，别这样。好好一个称霸世界的浮空战舰上出现一个大头兵？还是那种护送重要道具的人物的保镖，007也没有这么唬烂啊……前面不准公主的姬友上舰理由是舰内是国家机密，这里面要是大头兵，这王国是靠厨力治国的么。
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 1626#       发表于 2017-7-24 21:31
-
-
 
 
 综合一下，就是公主杀兄杀姐上位，人神共愤。在安洁按计划天诛公主，正要一刀捅死的时候，被小女仆带队乱枪打死在马路上。
@@ -2588,16 +1724,10 @@ Anime Trending 第二周作品人气榜
 还能有更喂翔的么？
 
 
-
-
-
-
-
 -----
 
 ####  抖M两个字  
 ##### 1627#       发表于 2017-7-24 21:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36675116&amp;ptid=1486439" target="_blank">ahyyk 发表于 2017-7-24 21:31</a>
@@ -2608,25 +1738,13 @@ Anime Trending 第二周作品人气榜
 男人对女仆一见钟情，收为妾
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1628#       发表于 2017-7-24 21:37
 
 
-
-
 这集是安洁给公主刷组织声望，看着有点心疼。公主成功让两个情敌化敌为友，心腹稳稳的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">虽然这个公主看似花瓶，但感觉一点都不是省油的灯
-
-
-
-
-
 
 
 -----
@@ -2635,14 +1753,7 @@ Anime Trending 第二周作品人气榜
 ##### 1629#       发表于 2017-7-24 21:41
 
 
-
-
 三集看下来，多萝西是双重间谍的嫌疑挺小的，倒是第一集她和千世的对话，我怎么感觉千世才是卧底？
-
-
-
-
-
 
 
 -----
@@ -2651,14 +1762,7 @@ Anime Trending 第二周作品人气榜
 ##### 1630#       发表于 2017-7-24 21:45
 
 
-
-
 才第三集大河内就现原形了，这集智商直线下降
-
-
-
-
-
 
 
 -----
@@ -2667,22 +1771,13 @@ Anime Trending 第二周作品人气榜
 ##### 1631#       发表于 2017-7-24 21:48
 
 
-
-
 这集ange提到了两次“在黑蜥蜴星一起长大的姐妹”，按照这片的尿性来说这俩真是姐妹或者双胞胎基本坐实了吧
-
-
-
-
-
 
 
 -----
 
 ####  mhss  
 ##### 1632#       发表于 2017-7-24 21:52
-
-
 
 
 跟班的身世设定真是惨，要是出生就是哑巴之类的就算了，活生生的被老爹改造成机械喉咙
@@ -2696,17 +1791,10 @@ Anime Trending 第二周作品人气榜
 另外我觉得跟班这喉咙在以后的关键时刻会吃瘪，比如需要用到的时候突然故障了什么的
 
 
-
-
-
-
-
 -----
 
 ####  acejoe  
 ##### 1633#       发表于 2017-7-24 21:57
-
-
 
 
 大河内的作品还是不能深思，当时看的时候蛮有趣。毕竟大河内剧情转折玩的好，逻辑小学生。
@@ -2718,16 +1806,10 @@ Anime Trending 第二周作品人气榜
 大河内这集就把伏笔抛出来了，收线的时候非常担心
 
 
-
-
-
-
-
 -----
 
 ####  zl78cn  
 ##### 1634#       发表于 2017-7-24 22:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36675273&amp;ptid=1486439" target="_blank">mhss 发表于 2017-7-24 21:52</a>
@@ -2743,16 +1825,10 @@ Anime Trending 第二周作品人气榜
 其实这集没什么大的纰漏，而且毕竟很多细节设定看不到，所以解释的办法有的是……
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 1635#       发表于 2017-7-24 22:10
-
 
 
  本帖最后由 mhss 于 2017-7-24 22:12 编辑 
@@ -2766,25 +1842,13 @@ Anime Trending 第二周作品人气榜
 第二点我说的是最后取回母版被困在舱内那段，外面问话后两人并没有就此消停多久，白毛的声音一直不大，但是小跟班可是扯着喉咙在喊的
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1636#       发表于 2017-7-24 22:11
 
 
-
-
 这集就算有些细节没处理好也不应该怪到大河内头上吧。这些细节问题是他能完全掌控的了的？
-
-
-
-
-
 
 
 -----
@@ -2793,23 +1857,16 @@ Anime Trending 第二周作品人气榜
 ##### 1637#       发表于 2017-7-24 22:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36675417&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-24 22:11</a>
 
 这集就算有些细节没处理好也不应该怪到大河内头上吧。这些细节问题是他能完全掌控的了的？ ...</blockquote>
 有些细节明显不是大河内的锅，但一般都会扯到他背的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">像安洁和女仆在飞艇起飞前的对话，我觉得就不该弄两个卫兵在下面，搞得两人在上面对话，那个小跟班还有点激动说话挺大声的。整个观感就怪怪的，监督背锅才对
 
 
-
-
-
-
-
 -----
 
 ####  zl78cn  
 ##### 1638#       发表于 2017-7-24 22:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36675414&amp;ptid=1486439" target="_blank">mhss 发表于 2017-7-24 22:10</a>
@@ -2823,17 +1880,10 @@ Anime Trending 第二周作品人气榜
 不过一定要说的话，作为一个间谍的基本，应该直接打死小跟班，带着这么业余的一个定时炸弹简直太蠢了。但毕竟要刻画安洁善良的一面，而且看舰内士兵的各种业余，总能糊弄过去的
 
 
-
-
-
-
-
 -----
 
 ####  wingzerocos  
 ##### 1639#       发表于 2017-7-24 22:34
-
-
 
 
 门外士兵开不了门回头找多点人拖了门炮过来轰。
@@ -2844,16 +1894,10 @@ Anime Trending 第二周作品人气榜
 逻辑上没问题，只是这部分给点镜头表示下会好得多。
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 1640#       发表于 2017-7-24 22:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36675589&amp;ptid=1486439" target="_blank">zl78cn 发表于 2017-7-24 22:28</a>
@@ -2866,26 +1910,15 @@ Anime Trending 第二周作品人气榜
 不过开头那里带着贝亚特确实挺奇怪，安洁自己上船后留她在那干啥？估计是公主的意思吧
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1641#       发表于 2017-7-24 22:46
 
 
-
 <blockquote>神之叹息 发表于 2017-7-24 22:27
 有些细节明显不是大河内的锅，但一般都会扯到他背的像安洁和女仆在飞艇起飞前的对话，我觉得就不 ...</blockquote>
 其实这种小问题也就是我们追番的天天在楼里扯一下，要是补番的估计不怎么过脑子直接略过去了。真正决定这片是不是喂屎的还是得看剧情大走向，这个就是实打实的大河内的锅了233
-
-
-
-
-
 
 
 -----
@@ -2894,16 +1927,10 @@ Anime Trending 第二周作品人气榜
 ##### 1642#       发表于 2017-7-24 22:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36675747&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-24 22:46</a>
 
 其实这种小问题也就是我们追番的天天在楼里扯一下，要是补番的估计不怎么过脑子直接略过去了。真正决定这 ...</blockquote>
 我看很多人都说大纲是橘正纪定的，都不知道哪里的消息。不过这集还有个地方怪，就是重复了第一集开头的设定介绍，也是让人感觉这集的制作是不是略敷衍
-
-
-
-
-
 
 
 -----
@@ -2912,22 +1939,13 @@ Anime Trending 第二周作品人气榜
 ##### 1643#       发表于 2017-7-24 23:26
 
 
-
-
 剧情里塞个侍女这种类型的实在是影响观感
-
-
-
-
-
 
 
 -----
 
 ####  killng  
 ##### 1644#       发表于 2017-7-24 23:30
-
-
 
 
 尽管是第三集但是却二起来了
@@ -2941,32 +1959,19 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 十年不见，见面就提私奔，怎么保证对方初心依旧。这个她，沉迷大胸不能自拔，那个她，豢养幼女走上不归路
 
 
-
-
-
-
-
 -----
 
 ####  qqwliao  
 ##### 1645#       发表于 2017-7-24 23:33
 
 
-
-
 你们就当是个话剧看不就行了，表演本来就是要夸张点才更容易表达角色情感，抓着这点不放没什么意思
-
-
-
-
-
 
 
 -----
 
 ####  mhss  
 ##### 1646#       发表于 2017-7-24 23:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36675642&amp;ptid=1486439" target="_blank">wingzerocos 发表于 2017-7-24 22:34</a>
@@ -2977,27 +1982,15 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 你这解释就靠谱多了
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 1647#       发表于 2017-7-24 23:46
 
 
-
-
 说起来“外行的**打不中我”倒是照应了第一话那么嚣张只卸了两颗**啊。
 
 感觉真有外挂
-
-
-
-
-
 
 
 -----
@@ -3006,15 +1999,9 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1648#       发表于 2017-7-24 23:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36668993&amp;ptid=1486439" target="_blank">おれき 发表于 2017-7-24 11:12</a>
 安洁那句讨厌公主到底是在开玩笑还是真心的，我感觉还要再看下去。</blockquote>
 一点看法：夏洛特作为女王的孙女，实际上是讨厌公主这个身份的，当然，这不妨碍她喜欢安洁，她甚至是同情安洁的。但是安洁的看法嘛嘛，就很不好讲了。
-
-
-
-
-
 
 
 -----
@@ -3023,23 +2010,15 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1649#       发表于 2017-7-24 23:54
 
 
-
-
 质量确实下降了，不过还在接受范围内
 
 —— 来自 OnePlus A0001, Android 7.1.2上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
-
-
-
-
-
 
 
 -----
 
 ####  试制甲炮  
 ##### 1650#       发表于 2017-7-25 00:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36675273&amp;ptid=1486439" target="_blank">mhss 发表于 2017-7-24 21:52</a>
@@ -3049,27 +2028,15 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 注意，剧里头的机枪可不是正经的现代自动武器，而是手摇加特林，这玩意的射速可是只有200发每分钟，和马克沁，乃至刘易斯之流都是不能比的，考虑到蒸汽朋克风，**的水平也是很堪忧的，再加上反重力球做外挂嘛，那就……
 
 
-
-
-
-
-
 -----
 
 ####  whn1103  
 ##### 1651#       发表于 2017-7-25 00:00
 
 
-
-
 另外老女人夹裙子，安洁对爬行动物的热爱，这两个萌点还是很加分的
 
 —— 来自 OnePlus A0001, Android 7.1.2上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
-
-
-
-
-
 
 
 -----
@@ -3078,14 +2045,7 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1652#       发表于 2017-7-25 00:03
 
 
-
-
 浮空战舰的第一感觉就是冷战初期那种塞满自卫炮塔的重型轰炸机B29，B36之流，不过估计在主轴上应该有类似皮亚乔P1008之类的主炮之类……
-
-
-
-
-
 
 
 -----
@@ -3094,16 +2054,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1653#       发表于 2017-7-25 00:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36676274&amp;ptid=1486439" target="_blank">试制甲炮 发表于 2017-7-25 00:00</a>
 
 注意，剧里头的机枪可不是正经的现代自动武器，而是手摇加特林，这玩意的射速可是只有200发每分钟，和马 ...</blockquote>
 看出是手摇转管了，就是那段动画的表现形式太过了点，弹雨真没必要贴着主角画的那么密，偏偏这段情节持续时间还不算短更是恶化了观感<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3112,14 +2066,7 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1654#       发表于 2017-7-25 00:19
 
 
-
-
 从目的看这话的主题是要给安洁和贝阿朵一个两人相处的空间，所以那些为什么下井前让贝阿朵在旁边啊为什么不穿上杀掉藏尸啊都是没必要的疑问。。。不过安洁那句不会被外行人射中难道是个大flag？最后被外行人冷枪射死？
-
-
-
-
-
 
 
 -----
@@ -3128,14 +2075,7 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1655#       发表于 2017-7-25 00:25
 
 
-
-
 从出现了的地名-公爵来看，王国在大陆上的面积不小于安茹帝国的水平了，毕竟不列颠岛上只剩下伦敦以东以南的一小块土地~很有VIC里头分歧MOD的既视感
-
-
-
-
-
 
 
 -----
@@ -3144,22 +2084,14 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1656#       发表于 2017-7-25 00:50
 
 
-
-
 难得有能看上两遍的新番了，以前两集的质量来说保持住可以吹一年。
 第三集还没来得及看心好痒痒啊。
-
-
-
-
-
 
 
 -----
 
 ####  KawakazePring  
 ##### 1657#       发表于 2017-7-25 01:25
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
@@ -3176,10 +2108,6 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 2017-7-25 01:22 上传
 
 
-
-
-
-
 安洁的作战方案很简单，将绳索的一端固定在墙面上，另一端拴在自己身上，自己利用C球的无重力效果从战舰的外面到达存放母版的舱室，在解决掉敌人之后，固定绳索让比阿特丽斯乘滑索过来，然后两个人再逃跑
 
 但是敌人很快发现了比阿特丽斯的位置，为了避免被抓住，比阿特丽斯只好提早滑了过去，
@@ -3194,10 +2122,6 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 2017-7-25 01:22 上传
 
 
-
-
-
-
 但是安洁这一边，敌人还没解决完毕，比阿特丽斯下滑的同时，绳索会将安洁拉起(我就不吐槽这个拉起的方向是错的了)
 
 <img src="https://img.saraba1st.com/forum/201707/25/012229np6sz0pjchb5aa33.png" referrerpolicy="no-referrer">
@@ -3208,10 +2132,6 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 下载附件
 
 2017-7-25 01:22 上传
-
-
-
-
 
 
 同时敌人的枪口也瞄准了安洁         
@@ -3226,10 +2146,6 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 2017-7-25 01:22 上传
 
 
-
-
-
-
    
 <strong>那么问题来了，安洁到底是怎样在解决敌人的同时固定好绳索呢？</strong>
 
@@ -3238,7 +2154,6 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 如果不固定绳索，比阿特丽斯凶多吉少
 
 而且更要紧的是，解决敌人和固定绳索这项工作不仅是同时进行的，而且耗时极短，比阿特丽斯从滑下来到掉到舱室里面去根本每过几秒，安洁不仅解决了敌人连随身的母版都拿在了手上   
-
 
 
 <strong>答案是：将绳索的另一端射到少校的身上</strong>摊在地上的上校身上的绳索
@@ -3253,9 +2168,6 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 2017-7-25 01:23 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/25/012400b8g8bp08p5gq08ad.png" referrerpolicy="no-referrer">
 
 
@@ -3264,11 +2176,6 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 下载附件
 
 2017-7-25 01:24 上传
-
-
-
-
-
 
 
 绳子的一端是射到墙壁上的，没理由另一端要靠手系
@@ -3283,22 +2190,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 2017-7-25 01:24 上传
 
 
-
-
-
-
-
 虽然这一段安洁还是受伤了，但是不得不说狂霸酷帅吊炸天
 
 当然这一段还算有那么点道理的，至少比简单的几何学来的科学
 <img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 -----
@@ -3307,24 +2202,16 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1658#       发表于 2017-7-25 03:20
 
 
-
-
 **是因为反重力球的原因打不到她身上吧.
 
 
 然后绳索最后处理的部分没给观众看,我感觉就是钱不够了,要把那么迅速复杂的动作画出来,画不动了....干脆就直接给看个结果.
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1659#       发表于 2017-7-25 06:17
-
 
 
 <blockquote>KawakazePring 发表于 2017-7-25 01:25
@@ -3335,17 +2222,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 …这个实在是太隐蔽了，你要不说我现在还没意识到
 
 
-
-
-
-
-
 -----
 
 ####  Theory_茶叶  
 ##### 1660#       发表于 2017-7-25 07:24
-
-
 
 
 跟班妹的变声部分居然有点儿萌……
@@ -3353,16 +2233,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 明明是软妹，却在发出男人的声音！
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1661#       发表于 2017-7-25 07:27
-
 
 
 <blockquote>ahyyk 发表于 2017-7-24 23:46
@@ -3372,25 +2246,13 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 那不是说一颗都都没卸吗？…
 
 
-
-
-
-
-
 -----
 
 ####  Theory_茶叶  
 ##### 1662#       发表于 2017-7-25 07:34
 
 
-
-
 这个公主隐隐散发出来一股婊子味儿，正中我的口味！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3399,23 +2261,16 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1663#       发表于 2017-7-25 08:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36674059&amp;ptid=1486439" target="_blank">皇神樂耶 发表于 2017-7-24 19:21</a>
 
 如果按照你的理解，那么“这些年来的艰难日子”指的是黄毛从孤儿变成公主后，日子不好过，甚至可以说是代 ...</blockquote>
 你可以参考下我在本楼1073楼的发言，虽然是我在第二集之后提出的，第三集后又应该有些小修正，但是目前来看大的走向是对的。
 
 
-
-
-
-
-
 -----
 
 ####  posion  
 ##### 1664#       发表于 2017-7-25 11:53
-
 
 
  本帖最后由 posion 于 2017-7-25 11:55 编辑 
@@ -3436,16 +2291,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 关于少了的几段帧，可能因为场面有点血腥，可以塞到BD里卖钱
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1665#       发表于 2017-7-25 12:07
-
 
 
 <blockquote>posion 发表于 2017-7-25 11:53
@@ -3455,16 +2304,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 想不到不把这段拍出来的理由…
 
 
-
-
-
-
-
 -----
 
 ####  尚风悦  
 ##### 1666#       发表于 2017-7-25 12:26
-
 
 
 <blockquote>KawakazePring 发表于 2017-7-25 01:25
@@ -3475,16 +2318,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 充分说明了大河内真的需要强大的分镜和演出来支撑他的信息量……
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 1667#       发表于 2017-7-25 13:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36680141&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-25 12:07</a>
@@ -3495,31 +2332,19 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 这简直就是玩钢琴线杀人，还是番茄酱动态版的，确实过了。
 
 
-
-
-
-
-
 -----
 
 ####  6030sylar  
 ##### 1668#       发表于 2017-7-25 13:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不行，我现在已经觉得多萝西是经常宿醉翘班翘课，骗经费填酒驾超速罚单的了
-
-
-
-
-
 
 
 -----
 
 ####  colohot  
 ##### 1669#       发表于 2017-7-25 13:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36676705&amp;ptid=1486439" target="_blank">KawakazePring 发表于 2017-7-25 01:25</a>
@@ -3533,26 +2358,15 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 第一遍的时候还奇怪安洁为什么有被拉起来的镜头，还以为是中了埋伏
 
 
-
-
-
-
-
 -----
 
 ####  大厨麦当牛  
 ##### 1670#       发表于 2017-7-25 13:58
 
 
-
  本帖最后由 大厨麦当牛 于 2017-7-25 14:01 编辑 
 
 …原来这么多人都没注意到吗？这可能会是prpr的一个套路了，第二集也是公主交换计划和偷钥匙计划同时进行，利用第一个计划解决第二个计划。第一集给目标买保险也是，看似两难的问题被安洁合并解决。颇有黑暗兵法的风格。
-
-
-
-
-
 
 
 -----
@@ -3561,15 +2375,9 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1671#       发表于 2017-7-25 14:41
 
 
-
 <blockquote>大厨麦当牛 发表于 2017-7-25 13:58
 …原来这么多人都没注意到吗？这可能会是prpr的一个套路了，第二集也是公主交换计划和偷钥匙计划同时进行， ...</blockquote>
 真的很多人不清楚的，包括我…不少人吐槽过
-
-
-
-
-
 
 
 -----
@@ -3578,15 +2386,9 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1672#       发表于 2017-7-25 14:45
 
 
-
 <blockquote>尚风悦 发表于 2017-7-25 12:26
 充分说明了大河内真的需要强大的分镜和演出来支撑他的信息量……</blockquote>
 目前能满足大河内的只有谷口了…R1第一集就是谷口亲自下场的…当然谷口也能找到适合的人来。
-
-
-
-
-
 
 
 -----
@@ -3595,21 +2397,13 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1673#       发表于 2017-7-25 15:10
 
 
-
-
 嗯……所以说这集不如说演出的锅更大一点……躲**我也倾向于是C球的效果，但是演出上也完全没有解释清楚
-
-
-
-
-
 
 
 -----
 
 ####  keroro80722  
 ##### 1674#       发表于 2017-7-25 17:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36676705&amp;ptid=1486439" target="_blank">KawakazePring 发表于 2017-7-25 01:25</a>
@@ -3623,16 +2417,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 回去再重看一遍確實是白毛用這方式殺掉任務目標
 
 
-
-
-
-
-
 -----
 
 ####  keroro80722  
 ##### 1675#       发表于 2017-7-25 17:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36682020&amp;ptid=1486439" target="_blank">whn1103 发表于 2017-7-25 15:10</a>
@@ -3641,16 +2429,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 總結就是我們的橘監督這一集沒發揮的很好
 
 
-
-
-
-
-
 -----
 
 ####  whn1103  
 ##### 1676#       发表于 2017-7-25 18:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36683719&amp;ptid=1486439" target="_blank">keroro80722 发表于 2017-7-25 17:57</a>
@@ -3659,16 +2441,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 第一集是橘监督的分镜，二三都是不同的人，可能第三集这位还欠缺点火候
 
 
-
-
-
-
-
 -----
 
 ####  keroro80722  
 ##### 1677#       发表于 2017-7-25 18:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36683774&amp;ptid=1486439" target="_blank">whn1103 发表于 2017-7-25 18:02</a>
@@ -3677,16 +2453,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 了解狀況，不過說是這樣說，其實很多影視，文學作品小兵各種打不中主角挺正常，觀眾應該早就要習慣了，我覺得製作方面可能根本就不ＣＡＲＥ這事，畢竟這不是什麼偏現實的作品，主要是演出來的方向才是重點
 
 
-
-
-
-
-
 -----
 
 ####  acuman  
 ##### 1678#       发表于 2017-7-25 18:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36682020&amp;ptid=1486439" target="_blank">whn1103 发表于 2017-7-25 15:10</a>
@@ -3697,25 +2467,13 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 结合前面那位对安洁杀人方法的分析和前两集剧情，制作组似乎一直在隐藏关键信息和设定不明说，而用大量细节暗示出来。
 
 
-
-
-
-
-
 -----
 
 ####  阿虚家的三味  
 ##### 1679#       发表于 2017-7-25 18:28
 
 
-
-
 原来是射身上把男的吊起来了？我第一次看还以为是安洁荡了个圈然后把少校吊死了
-
-
-
-
-
 
 
 -----
@@ -3724,22 +2482,13 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1680#       发表于 2017-7-25 18:52
 
 
-
-
 我看贴吧就有人说道，这监督对需要反复观看的谜题设计过于执着导致观感不佳的，还是背锅吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 1681#       发表于 2017-7-25 18:55
-
-
 
 
 官推庆祝关注数破万。。真是没热度，别的开播前就轻松破万了。。
@@ -3755,21 +2504,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 2017-7-25 18:55 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1682#       发表于 2017-7-25 18:57
-
 
 
 8/10（木）よりアニメイト横浜にて「プリンセス・プリンシパル 応援SHOP in クイーンズ・メイフェア横浜分校」を開催！さらにアニメイト5店舗でTwitterキャンペーンも！皆様のお越しをお待ちしております♪ [http://www.pripri-anime.jp/news/?p=189 ](https://t.co/8JzIO1nPOI) [#<strong>pripri</strong>](https://twitter.com/hashtag/pripri?src=hash)
@@ -3785,10 +2523,6 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 2017-7-25 18:57 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/25/185709t61u8rhoo3u0mz60.jpg" referrerpolicy="no-referrer">
 
 
@@ -3799,21 +2533,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 2017-7-25 18:57 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1683#       发表于 2017-7-25 18:58
-
 
 
 本日24：30～、BS11にて『プリンセス・プリンシパル』第3話が放送です！視聴可能な皆様、ぜひご覧ください！！ [#<strong>pripri</strong>](https://twitter.com/hashtag/pripri?src=hash)
@@ -3829,32 +2552,15 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 2017-7-25 18:58 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 1684#       发表于 2017-7-25 18:59
 
 
-
-
 季番一共12话，还搞什么收队友回啊，
 
 女仆1话，日本武士萝莉1话，多萝西1话，等所有队友入队之后在来过吵架回，简直是骗钱啊。
-
-
-
-
-
 
 
 -----
@@ -3863,14 +2569,7 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1685#       发表于 2017-7-25 19:00
 
 
-
-
 我感觉安洁带上公主和小跟班挺累赘的，像不定时炸弹。多萝西老司机，千世武林高手还挺有用。小跟班变声的使用条件比较苛刻，而且出故障就GG。。公主虽然有情报加成，但手无缚鸡之力，一旦被控制了，安洁不得乖乖投降？
-
-
-
-
-
 
 
 -----
@@ -3879,14 +2578,7 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1686#       发表于 2017-7-25 19:01
 
 
-
-
 没有收队友回大河内就有空间写强奸回和建国回了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3895,14 +2587,7 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1687#       发表于 2017-7-25 19:05
 
 
-
-
 轮战斗力、行动力的话，第一集安洁+千世+多萝西基本可以完成大多数任务了。而且三人都可以独当一面吧
-
-
-
-
-
 
 
 -----
@@ -3911,14 +2596,7 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1688#       发表于 2017-7-25 19:50
 
 
-
-
  忽然发现没明白 公主拜访空中战舰如何给安洁制造潜入机会的 或者说安洁是如何到达战舰出水口的？
-
-
-
-
-
 
 
 -----
@@ -3927,16 +2605,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1689#       发表于 2017-7-25 20:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36684266&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-25 19:00</a>
 
 我感觉安洁带上公主和小跟班挺累赘的，像不定时炸弹。多萝西老司机，千世武林高手还挺有用。小跟班变声的使 ...</blockquote>
 安洁身经百战，动作矫健迅猛瞬杀数个大兵，定是一身结实健美的肌肉，公主和她外貌相同，怎么可能手无缚鸡之力
-
-
-
-
-
 
 
 -----
@@ -3945,14 +2617,7 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1690#       发表于 2017-7-25 20:00
 
 
-
-
 我觉得小女仆强行上滑绳，然后镜头马上切到安洁突然不自然的被扯起来那里就很明显了吧。倒是一开始桃乐丝色诱小兵上厕所然后从厕所管道爬出去那一块不知道目的何在。。
-
-
-
-
-
 
 
 -----
@@ -3961,14 +2626,7 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1691#       发表于 2017-7-25 20:01
 
 
-
-
 公主带多萝西进去了，至于安洁怎么进去的，她有一万个方法。只是公主这个举动的意义比她实际的意义要大。因为安洁自己就可以伪装成公主。
-
-
-
-
-
 
 
 -----
@@ -3977,16 +2635,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1692#       发表于 2017-7-25 20:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36684715&amp;ptid=1486439" target="_blank">killng 发表于 2017-7-25 20:00</a>
 
 安洁身经百战，动作矫健迅猛瞬杀数个大兵，定是一身结实健美的肌肉，公主和她外貌相同，怎么可能手无缚鸡 ...</blockquote>
 长得像，但经历肯定不像，公主打不得。安洁要守着她，自己就危险了
-
-
-
-
-
 
 
 -----
@@ -3995,16 +2647,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1693#       发表于 2017-7-25 20:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36684717&amp;ptid=1486439" target="_blank">大厨麦当牛 发表于 2017-7-25 20:00</a>
 
 我觉得小女仆强行上滑绳，然后镜头马上切到安洁突然不自然的被扯起来那里就很明显了吧。倒是一开始桃乐丝色 ...</blockquote>
 看的时候猜测是飞船的c物质的冷却液，然后换了个阀门让上面下去的能通到内侧而不是外部转圈圈
-
-
-
-
-
 
 
 -----
@@ -4013,14 +2659,7 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1694#       发表于 2017-7-25 20:03
 
 
-
-
 公爵即使不是本季的最终boss也一定会有重头戏的，这话他人没出来都和这战舰有关
-
-
-
-
-
 
 
 -----
@@ -4029,17 +2668,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1695#       发表于 2017-7-25 20:06
 
 
-
-
 这个任务说到底其实不需要到公主都可以，但是公主必须参加。毕竟多萝西不知道她们辆的事，而且作为队长的存在，她虽然和安洁比较熟了，但还是会盯着公主的。
 
 
 安洁真是考虑到万一的话，自己就替公主出场了，心疼一波<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4048,16 +2680,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1696#       发表于 2017-7-25 20:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36684717&amp;ptid=1486439" target="_blank">大厨麦当牛 发表于 2017-7-25 20:00</a>
 
 我觉得小女仆强行上滑绳，然后镜头马上切到安洁突然不自然的被扯起来那里就很明显了吧。倒是一开始桃乐丝色 ...</blockquote>
 20岁爬出去后开了一个阀门，应该就是控制安洁跳下去的那个地方的水流，然后用c球免疫冲击游出去
-
-
-
-
-
 
 
 -----
@@ -4066,14 +2692,7 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1697#       发表于 2017-7-25 20:11
 
 
-
-
 从第二集看来，第一集的小队也是后面凑起来的。多萝西比安洁先潜入学校，看对话就不是一个队的，或者说这时候还没组队。公主相当女王的想法如果被共和国知道了，估计会被灭口。。
-
-
-
-
-
 
 
 -----
@@ -4082,15 +2701,9 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1698#       发表于 2017-7-25 20:13
 
 
-
 <blockquote>神之叹息 发表于 2017-7-25 20:06
 这个任务说到底其实不需要到公主都可以，但是公主必须参加。毕竟多萝西不知道她们辆的事，而且作为队长的存 ...</blockquote>
 公主只是去船上逛一圈，起飞之前还得下船的…扮成公主时刻被人盯着怎么偷东西
-
-
-
-
-
 
 
 -----
@@ -4099,16 +2712,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1699#       发表于 2017-7-25 20:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36684742&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-7-25 20:03</a>
 
 公爵即使不是本季的最终boss也一定会有重头戏的，这话他人没出来都和这战舰有关 ...</blockquote>
 就怕公爵最后几集提前挂了，然后公主反转成了boss就搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就像蛋卷挂了，二哥当起了最终boss
-
-
-
-
-
 
 
 -----
@@ -4117,16 +2724,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1700#       发表于 2017-7-25 20:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36684803&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-25 20:13</a>
 
 公主只是去船上逛一圈，起飞之前还得下船的…扮成公主时刻被人盯着怎么偷东西 ...</blockquote>
 嘛。。说的也是。公主也有吸引注意力的作用啦
-
-
-
-
-
 
 
 -----
@@ -4135,14 +2736,7 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1701#       发表于 2017-7-25 20:15
 
 
-
-
 其实安洁私奔的想法和公主当女王的想法，最终目的都是在一起。但是哪个难度更大呢？
-
-
-
-
-
 
 
 -----
@@ -4151,14 +2745,7 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1702#       发表于 2017-7-25 20:16
 
 
-
-
 多罗西进去开水闸很明显啊，ange因为小跟班的举动被拉住也很好理解。关键就是少校被戳死那个剪影时间又短又不明显，这个要么理解成电视台自主规制，要么就是做分镜的脑子秀逗了
-
-
-
-
-
 
 
 -----
@@ -4167,23 +2754,16 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1703#       发表于 2017-7-25 20:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36684810&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-25 20:13</a>
 
 就怕公爵最后几集提前挂了，然后公主反转成了boss就搞笑了就像蛋卷挂了，二哥当起了最终boss ...</blockquote>
 想起当年像赶集一样的那几话不由得<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 1704#       发表于 2017-7-25 20:32
-
 
 
  本帖最后由 漫区专号 于 2017-7-25 20:35 编辑 
@@ -4193,16 +2773,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 （2）公主提到，只有拆除那堵墙，两人才能无顾及的在一起生活----这么说是为什么？？（合理的推测是两国的对立及其中的政治斗争正严重威胁着安洁的性命，逃走是无用的只有取得最终的胜利才能解除危险。）
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1705#       发表于 2017-7-25 20:35
-
 
 
  本帖最后由 xtwx1716 于 2017-7-25 20:42 编辑 
@@ -4214,25 +2788,13 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 要说区别也就是ange眼神犀利一点
 
 
-
-
-
-
-
 -----
 
 ####  牛兔  
 ##### 1706#       发表于 2017-7-25 20:35
 
 
-
-
 海军大臣阿基坦公爵，间谍头子诺曼底公爵……这个位面的法国被英国吞了吗？
-
-
-
-
-
 
 
 -----
@@ -4241,23 +2803,16 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1707#       发表于 2017-7-25 20:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36684280&amp;ptid=1486439" target="_blank">acuman 发表于 2017-7-25 19:01</a>
 
 没有收队友回大河内就有空间写强奸回和建国回了</blockquote>
 就怕有收人回，也阻止不了大河内建国回了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 1708#       发表于 2017-7-25 20:46
-
 
 
  本帖最后由 漫区专号 于 2017-7-25 20:47 编辑 
@@ -4270,25 +2825,13 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 可见当年革命之后本土基本革命成功变成共和制。而皇室依靠欧洲的主力军队维持了帝国，所以现在帝国的主要领土位于欧洲（包括法国）。在伦敦建立墙的估计是此处弱势方的帝国方，首都有可能还留在伦敦？因为故事发生在这里。共和国和帝国实力相当说明还有大部分殖民地也革命成功。于是共和国这边保有“英国”本土及多数殖民地。
 
 
-
-
-
-
-
 -----
 
 ####  chenyedgg  
 ##### 1709#       发表于 2017-7-25 20:46
 
 
-
-
 公主的目的不像是想要拆墙或者当女王，虽然嘴上是这么说了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">但是之前一直在当空气公主没有什么行动和支持势力让人很难信服啊
-
-
-
-
-
 
 
 -----
@@ -4297,14 +2840,7 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1710#       发表于 2017-7-25 20:50
 
 
-
-
 其实有一个地方挺在意的，就是公爵要搜安洁和多萝西的时候，公主看了一下小跟班，小跟班的神情就是挺紧张的，没明白大河内这么写是什么意思？安洁和多萝西被揭穿了关她啥事？
-
-
-
-
-
 
 
 -----
@@ -4313,24 +2849,16 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1711#       发表于 2017-7-25 20:50
 
 
-
-
 干掉诺曼底公爵 和 成为女王 or 拆墙 没有很明显的因果关系
 
 
 我猜12集就干死了诺曼底公爵，然后第二季继续
 
 
-
-
-
-
-
 -----
 
 ####  OrianaThomson  
 ##### 1712#       发表于 2017-7-25 20:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36665341&amp;ptid=1486439" target="_blank">猫抓球 发表于 2017-7-23 23:17</a>
@@ -4342,16 +2870,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 这脑洞<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1713#       发表于 2017-7-25 20:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36685078&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-25 20:50</a>
@@ -4363,16 +2885,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 就现在这暴死样，能保本就偷笑了。。二季要看人气和过没过二期线吧。说真，要是大河内记得按时吃药，加点喜闻乐见的爆点，这片下限怎么都是一个伊泽塔，上限未知，二期估计得有。当然我这是毒奶，被打脸也是正常<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 1714#       发表于 2017-7-25 20:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36685052&amp;ptid=1486439" target="_blank">chenyedgg 发表于 2017-7-25 20:46</a>
@@ -4386,16 +2902,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 不管谁是真公主，另一个背景也不简单，搞不好还有点罗密欧朱丽叶的设定。
 
 
-
-
-
-
-
 -----
 
 ####  大厨麦当牛  
 ##### 1715#       发表于 2017-7-25 20:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36684740&amp;ptid=1486439" target="_blank">阿虚家的三味 发表于 2017-7-25 20:03</a>
@@ -4404,25 +2914,13 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 有点想奶这片了。。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1716#       发表于 2017-7-25 21:00
 
 
-
-
 就怕大河内带不动，反倒又被制作坑了一次就搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4431,15 +2929,9 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1717#       发表于 2017-7-25 21:00
 
 
-
 <blockquote>神之叹息 发表于 2017-7-25 20:53
 就现在这暴死样，能保本就偷笑了。。二季要看人气和过没过二期线吧。说真，要是大河内记得按时吃药，加点 ...</blockquote>
 一季长度，还有配角个人回，还要当女王，这不来个超展开估计够呛吧
-
-
-
-
-
 
 
 -----
@@ -4448,16 +2940,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1718#       发表于 2017-7-25 21:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36685138&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-25 21:00</a>
 
 一季长度，还有配角个人回，还要当女王，这不来个超展开估计够呛吧</blockquote>
 你要相信大河内，没有他协调不了的业内的，不然怎么老是接到活<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4466,15 +2952,8 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1719#       发表于 2017-7-25 21:08
 
 
-
-
 要么安洁和公主真的是双胞胎，然后因为双胞胎不吉利的迷信老思想，送了一个出去。
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过不管谁做女王，干不干掉诺曼底公爵也好，还是有祖传超长待机比较靠谱。
-
-
-
-
-
 
 
 -----
@@ -4483,22 +2962,15 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1720#       发表于 2017-7-25 21:16
 
 
-
  本帖最后由 漫区专号 于 2017-7-25 21:17 编辑 
 
 确实，我也认为动画不大可能做到新女王登基。因为按“惯例”现女王应该会是超长在位，所以可能动画结尾公主都流亡西边了又或公主在伦敦建国了，女王还稳如泰山。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  某某某人  
 ##### 1721#       发表于 2017-7-25 21:57
-
 
 
  本帖最后由 某某某人 于 2017-7-25 22:00 编辑 
@@ -4512,17 +2984,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 英國本土大部份都被共和國佔了,如果法國沒被吞,王國至少也要擁有絕大部份殖民地才能跟共和國對抗吧...
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1722#       发表于 2017-7-25 22:04
-
-
 
 
 一般会社员Nagi_菲伊中毒        
@@ -4531,16 +2996,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 #Princess Principal# 官方提到安洁伪造的出身地相当于现实世界的澳大利亚，再结合她第二话里不止一次说自己是乡下人，看来土澳又被黑了一把[允悲] ​<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  wingzerocos  
 ##### 1723#       发表于 2017-7-25 22:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36684792&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-25 20:11</a>
@@ -4551,33 +3010,19 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 不知道到时会不会顺便解释下队名Principal怎么来的。
 
 
-
-
-
-
-
 -----
 
 ####  hentianwuya  
 ##### 1724#       发表于 2017-7-25 22:08
 
 
-
-
 有个问题，共和国间谍的装备怎么好像比王国要先进多了？共和国继承了未分裂前王国的全部黑科技？分裂后的王国反而未继承到？
-
-
-
-
-
 
 
 -----
 
 ####  oyss1225  
 ##### 1725#       发表于 2017-7-25 22:27
-
-
 
 
 别忘了这番组背后还一个手游.
@@ -4587,16 +3032,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 如果真是手游广告的话....后面剧情大家游戏里见!不氪金没有Ange用哦!
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1726#       发表于 2017-7-25 22:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36685780&amp;ptid=1486439" target="_blank">oyss1225 发表于 2017-7-25 22:27</a>
@@ -4609,16 +3048,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 那个消消乐能有啥剧情。。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1727#       发表于 2017-7-25 22:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36685617&amp;ptid=1486439" target="_blank">wingzerocos 发表于 2017-7-25 22:04</a>
@@ -4627,16 +3060,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 我看英文版也看到那个principal的字眼，不过中文翻译成主力，嘛，好像是这么一回事。但感觉还是更像小队名
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1728#       发表于 2017-7-25 22:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36685649&amp;ptid=1486439" target="_blank">hentianwuya 发表于 2017-7-25 22:08</a>
@@ -4645,20 +3072,13 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 设定是共和国的科技树比王国高。安洁用的反重力球就是共和国的黑科技，王国是木有这个科研能力的
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1729#       发表于 2017-7-25 22:52
 
 
-
 <[strong>黒星紅白</strong>‏认证账号 @<strong>kuroboshi</strong>](https://twitter.com/kuroboshi)  [5分5分钟前](https://twitter.com/kuroboshi/status/889859110073544704)更多
-
 
 
 この後24：30～、BS11にて『プリンセス・プリンシパル』第3話が放送です！ #<strong>pripri</strong>
@@ -4673,10 +3093,7 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 2017-7-25 22:51 上传
 
 
-
-
  <[strong>TVアニメ『プリンセス・プリンシパル』</strong>‏ @<strong>pripri_anime</strong>](https://twitter.com/pripri_anime)  [1小时1小时前](https://twitter.com/pripri_anime/status/889841932310007808)更多
-
 
 
 この後24：30～、BS11にて『プリンセス・プリンシパル』第3話が放送です！第3話のサブタイトルは「case2 Vice Voice」。ベアトリスの活躍をどうぞご覧ください！！ [#<strong>pripri</strong>](https://twitter.com/hashtag/pripri?src=hash)
@@ -4691,22 +3108,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 2017-7-25 22:52 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  crazymarky  
 ##### 1730#       发表于 2017-7-25 22:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36685649&amp;ptid=1486439" target="_blank">hentianwuya 发表于 2017-7-25 22:08</a>
@@ -4715,16 +3120,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 共和国可能是资本家支持的啊，工业革命期间资本家对保皇党有技术优势不是正常？
 
 
-
-
-
-
-
 -----
 
 ####  欧阳明  
 ##### 1731#       发表于 2017-7-25 23:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36684824&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-25 20:15</a>
@@ -4733,16 +3132,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 后者啊。当女王搞姬，阻力还是很可怕的
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 1732#       发表于 2017-7-25 23:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36686104&amp;ptid=1486439" target="_blank">欧阳明 发表于 2017-7-25 23:04</a>
@@ -4751,16 +3144,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 总统闺蜜，很平常嘛。隔壁的崔顺实啊不，隔壁的伊泽塔就是啊
 
 
-
-
-
-
-
 -----
 
 ####  欧阳明  
 ##### 1733#       发表于 2017-7-25 23:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36686254&amp;ptid=1486439" target="_blank">ahyyk 发表于 2017-7-25 23:21</a>
@@ -4771,31 +3158,19 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 当女王可不行啊
 
 
-
-
-
-
-
 -----
 
 ####  awertg  
 ##### 1734#       发表于 2017-7-25 23:25
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  ahyyk  
 ##### 1735#       发表于 2017-7-25 23:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36686267&amp;ptid=1486439" target="_blank">欧阳明 发表于 2017-7-25 23:22</a>
@@ -4808,16 +3183,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
  女皇闺蜜，关起门来交流感情很正常嘛。只要不被狗仔队捉奸在床就不会有问题的。
 
 
-
-
-
-
-
 -----
 
 ####  阿虚家的三味  
 ##### 1736#       发表于 2017-7-25 23:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36686004&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-25 22:52</a>
@@ -4826,16 +3195,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 我特么上班！
 
 
-
-
-
-
-
 -----
 
 ####  欧阳明  
 ##### 1737#       发表于 2017-7-25 23:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36686327&amp;ptid=1486439" target="_blank">ahyyk 发表于 2017-7-25 23:30</a>
@@ -4846,17 +3209,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 <img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">女王政务繁忙，怎么有时间好好小黄文
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1738#       发表于 2017-7-25 23:53
-
-
 
 
 我突然想起来，小跟班是公主的侍女，以这样的身份进入厂里好像也没什么不对，然后带上安洁？然后多萝西跟随公主也可以进入厂内，但不能进入飞艇。感觉这厂里的守卫还是比较松散的，只有飞艇出入会看得紧一些。
@@ -4881,10 +3237,6 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 2017-7-25 23:33 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/25/233350xx5nxn84qxxnz1f4.jpg" referrerpolicy="no-referrer">
 
 
@@ -4893,10 +3245,6 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 下载附件
 
 2017-7-25 23:33 上传
-
-
-
-
 
 
 安洁跳水前没人了，人员已经撤离，准备起飞。这里的画面对不太上，只能推测了
@@ -4912,10 +3260,6 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 2017-7-25 23:38 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/25/233848naq0qojcajqmtazv.jpg" referrerpolicy="no-referrer">
 
 
@@ -4926,10 +3270,6 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 2017-7-25 23:38 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/25/234023s37sljuk5723sunj.jpg" referrerpolicy="no-referrer">
 
 
@@ -4938,12 +3278,6 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 下载附件
 
 2017-7-25 23:40 上传
-
-
-
-
-
-
 
 
 这三张图，戴个蓝色帽子笑容灿烂的铁定是公主啦，上集我还以为这是安洁。然后按这集公主搭讪小跟班的话和语气，上集安洁搭讪公主的话，确实就是公主主动和安洁交朋友的对话了，只是反过来。
@@ -4961,11 +3295,6 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 2017-7-25 23:50 上传
 
 
-
-
-
-
-
 估计她也因为敏感的政治事件影响，经历了深居宫殿的生活，行动得不到过多的自由。当然长大后另说，毕竟手长脚长管不住了。或者是公主演技好，扮乖乖女骗得信任从而自由了，但还是空气公主一枚。
 
 <img src="https://img.saraba1st.com/forum/201707/25/235153zv61z9e5g5dnnnx8.jpg" referrerpolicy="no-referrer">
@@ -4978,10 +3307,6 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 2017-7-25 23:51 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/25/235250hq2980p91z2ppcb1.jpg" referrerpolicy="no-referrer">
 
 
@@ -4992,22 +3317,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 2017-7-25 23:52 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  hymbz  
 ##### 1739#       发表于 2017-7-25 23:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36676705&amp;ptid=1486439" target="_blank">KawakazePring 发表于 2017-7-25 01:25</a>
@@ -5019,17 +3332,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 所以说安洁是开枪将绳索固定到敌人身上，同时解决敌人的？
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1740#       发表于 2017-7-26 00:03
-
-
 
 
 至于为何夏洛特公主找一个和自己很像的小女孩当朋友，找一个喉咙被改造过的异类做朋友，那么只有公主自己心里最清楚了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">目前的细节都指向公主是一个为了当女王不择手段，甚至利用敌国势力作后盾的腹黑形象。。
@@ -5044,25 +3350,13 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 如何解开公主的心结？请走进prpr<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  六花自我中  
 ##### 1741#       发表于 2017-7-26 00:23
 
 
-
-
 自从小圆脸火了 怎么开始喜欢萌人设黑暗风的作品<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5071,24 +3365,16 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1742#       发表于 2017-7-26 00:44
 
 
-
  本帖最后由 xtwx1716 于 2017-7-26 00:45 编辑 
 <blockquote>神之叹息 发表于 2017-7-26 00:03
 至于为何夏洛特公主找一个和自己很像的小女孩当朋友，找一个喉咙被改造过的异类做朋友，那么只有公主自己心 ...</blockquote>
 想太多了...公主的形象一个差不多的理由就可以完全反转
 
 
-
-
-
-
-
 -----
 
 ####  killng  
 ##### 1743#       发表于 2017-7-26 01:08
-
-
 
 
 关于猪队友
@@ -5112,17 +3398,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 母版的夺回完成后，安洁发了信号但比阿特任然没过来。为了救她而再次陷入苦战，终究寡不敌众——BADEND 06【鸟笼中的泰迪熊】下次真该找些强力的队友
 
 
-
-
-
-
-
 -----
 
 ####  wangh  
 ##### 1744#       发表于 2017-7-26 01:36
-
-
 
 
 第4集居然是case9？很快就能赶上第一集的进度了
@@ -5137,21 +3416,10 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 2017-7-26 01:21 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  crazymarky  
 ##### 1745#       发表于 2017-7-26 01:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36687001&amp;ptid=1486439" target="_blank">wangh 发表于 2017-7-26 01:36</a>
@@ -5160,25 +3428,13 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 放飞自我啦<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  crazymarky  
 ##### 1746#       发表于 2017-7-26 02:56
 
 
-
-
 最后一集怕不是case0: requiem
-
-
-
-
-
 
 
 -----
@@ -5187,14 +3443,7 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1747#       发表于 2017-7-26 05:58
 
 
-
-
 看来下一话不是收人回啊？还是说先看先行图再说？
-
-
-
-
-
 
 
 -----
@@ -5203,14 +3452,7 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1748#       发表于 2017-7-26 06:20
 
 
-
-
 第四话 ローミング　ピジョンズ / Roaming Pigeons 王国的凯铂莱实行装置的小型化终于成功了，想要平息(?) 事态的共和国命令安洁等人去进行成品的破坏。 利用公主的地位，成功安全潜入研究设施的安洁一行人却发现，凯铂莱的研究室早已变得如脱壳之蝉般空无一物。 尴尬，之前搞错了 仔细一听确实是pi，那标题应该是漫步之鸽了咕咕？
-
-
-
-
-
 
 
 -----
@@ -5219,21 +3461,13 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 ##### 1749#       发表于 2017-7-26 06:21
 
 
-
-
 上面的在战吧看来的
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 1750#       发表于 2017-7-26 07:37
-
 
 
 <blockquote>killng 发表于 2017-7-26 01:08
@@ -5245,25 +3479,13 @@ New skills get——圣德太子转世、言灵术（外行的**打不中我）
 你这尼尔风格的bad end 真是666
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1751#       发表于 2017-7-26 07:51
 
 
-
-
 OP完整版：http://www.bilibili.com/video/av12588213
-
-
-
-
-
 
 
 -----
@@ -5272,14 +3494,7 @@ OP完整版：http://www.bilibili.com/video/av12588213
 ##### 1752#       发表于 2017-7-26 08:32
 
 
-
-
 多大点破事都要用到公主这样超重量级的杀手锏吗
-
-
-
-
-
 
 
 -----
@@ -5288,16 +3503,10 @@ OP完整版：http://www.bilibili.com/video/av12588213
 ##### 1753#       发表于 2017-7-26 08:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36687001&amp;ptid=1486439" target="_blank">wangh 发表于 2017-7-26 01:36</a>
 
 第4集居然是case9？很快就能赶上第一集的进度了</blockquote>
 第一集就完全不能当作参考了，结局怎样全都捏在大大大河内手上了……现在开投票贴还来得及<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5306,24 +3515,16 @@ OP完整版：http://www.bilibili.com/video/av12588213
 ##### 1754#       发表于 2017-7-26 09:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36687973&amp;ptid=1486439" target="_blank">colohot 发表于 2017-7-26 08:43</a>
 
 第一集就完全不能当作参考了，结局怎样全都捏在大大大河内手上了……现在开投票贴还来得及 ...</blockquote>
 仔细想想,手游宣传确实不能完全当王牌来看,大河内写着写着会加入他自己的特色(然而他自己觉得不错)<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 1755#       发表于 2017-7-26 09:00
-
-
 
 
 作为学机械出身的。。
@@ -5349,16 +3550,10 @@ OP完整版：http://www.bilibili.com/video/av12588213
 这很蒸汽朋克<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1756#       发表于 2017-7-26 09:06
-
 
 
 <blockquote>古桥一浩 发表于 2017-7-26 09:00
@@ -5371,25 +3566,13 @@ OP完整版：http://www.bilibili.com/video/av12588213
 想起了以前被工图支配的恐惧
 
 
-
-
-
-
-
 -----
 
 ####  whn1103  
 ##### 1757#       发表于 2017-7-26 09:18
 
 
-
-
 完了完了，结局没定数了，我好方
-
-
-
-
-
 
 
 -----
@@ -5398,14 +3581,7 @@ OP完整版：http://www.bilibili.com/video/av12588213
 ##### 1758#         楼主| 发表于 2017-7-26 09:24
 
 
-
-
 我们只是看故事的人而已，为什么要那么过度惊恐，觉得不舒服就别看了呗，在贴吧看到一群人大惊小怪的，真的怕大河内就别看他的片了，但是无论做成什么样都早已决定了…
-
-
-
-
-
 
 
 -----
@@ -5414,16 +3590,9 @@ OP完整版：http://www.bilibili.com/video/av12588213
 ##### 1759#       发表于 2017-7-26 09:26
 
 
-
-
 这种题材不搞事情有啥好看的啊
 
 支持大河内超展开<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5432,23 +3601,16 @@ OP完整版：http://www.bilibili.com/video/av12588213
 ##### 1760#       发表于 2017-7-26 09:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36686494&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-25 23:53</a>
 
 我突然想起来，小跟班是公主的侍女，以这样的身份进入厂里好像也没什么不对，然后带上安洁？然后多萝西跟随 ...</blockquote>
 既然是伦敦墙了显然是参考东西德，背后有大国角力吧
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1761#       发表于 2017-7-26 09:29
-
 
 
  本帖最后由 xtwx1716 于 2017-7-26 09:32 编辑 
@@ -5459,16 +3621,10 @@ OP完整版：http://www.bilibili.com/video/av12588213
 另外就战吧那吹婊的风气，认真你就输了
 
 
-
-
-
-
-
 -----
 
 ####  demon6666  
 ##### 1762#       发表于 2017-7-26 09:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36687189&amp;ptid=1486439" target="_blank">crazymarky 发表于 2017-7-26 02:56</a>
@@ -5477,25 +3633,13 @@ OP完整版：http://www.bilibili.com/video/av12588213
 大河内的尿性99%是这样<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xwr  
 ##### 1763#       发表于 2017-7-26 09:30
 
 
-
-
 原创番就是这点好，加上大河内就更好了。
-
-
-
-
-
 
 
 -----
@@ -5504,17 +3648,10 @@ OP完整版：http://www.bilibili.com/video/av12588213
 ##### 1764#       发表于 2017-7-26 09:41
 
 
-
-
 脑洞一下。
 
 
 帝国c球小型化是一个flag，相信剧情进行到后半程帝国那边的特务会拿到量产型的小型化c球，最后肯定有一场空中大战，然后ange的c球超负荷过热爆掉。。。
-
-
-
-
-
 
 
 -----
@@ -5523,22 +3660,15 @@ OP完整版：http://www.bilibili.com/video/av12588213
 ##### 1765#       发表于 2017-7-26 09:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36685031&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-25 20:44</a>
 就怕有收人回，也阻止不了大河内建国回了</blockquote>
 除非收十二个人以上才能保证大河内稳定发挥<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 1766#         楼主| 发表于 2017-7-26 09:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36688387&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-26 09:29</a>
@@ -5551,16 +3681,10 @@ OP完整版：http://www.bilibili.com/video/av12588213
 我觉得出人意料的剧情才是令人期待的，但是歪得太差的就算了
 
 
-
-
-
-
-
 -----
 
 ####  colohot  
 ##### 1767#       发表于 2017-7-26 09:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36688338&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-7-26 09:24</a>
@@ -5571,32 +3695,19 @@ OP完整版：http://www.bilibili.com/video/av12588213
 就我而言还是对这片有期待的，适当搞事可以增加观赏性，但如果为神展开不讲逻辑就让人如梗在喉。篇子做成什么样观众无法改变，只是会觉得可惜啊。
 
 
-
-
-
-
-
 -----
 
 ####  jia3yu3sheng1  
 ##### 1768#       发表于 2017-7-26 09:53
 
 
-
-
 果然会跳case的，我就说第一集case13怎么看都不像个结局样
-
-
-
-
-
 
 
 -----
 
 ####  saturnus  
 ##### 1769#       发表于 2017-7-26 09:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36688384&amp;ptid=1486439" target="_blank">高等黑暗 发表于 2017-7-26 09:29</a>
@@ -5608,16 +3719,10 @@ OP完整版：http://www.bilibili.com/video/av12588213
 二话看至少王国这边还有大把殖民地<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1770#       发表于 2017-7-26 10:03
-
 
 
 <blockquote>古桥一浩 发表于 2017-7-26 09:00
@@ -5630,16 +3735,10 @@ OP完整版：http://www.bilibili.com/video/av12588213
 因为她会提意见，惊讶的是这个吧
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1771#         楼主| 发表于 2017-7-26 10:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36688661&amp;ptid=1486439" target="_blank">colohot 发表于 2017-7-26 09:51</a>
@@ -5654,16 +3753,10 @@ OP完整版：http://www.bilibili.com/video/av12588213
 不过也理解大家觉得可惜的心情，只是看烦了这种情景，说一句自己的感想，不过也懂得楼里的人只是调侃，我不太想去猜测这些用意。反倒是其他地方的人是真的这样认为
 
 
-
-
-
-
-
 -----
 
 ####  bamboom  
 ##### 1772#       发表于 2017-7-26 10:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36688892&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-7-26 10:12</a>
@@ -5674,25 +3767,13 @@ OP完整版：http://www.bilibili.com/video/av12588213
 微博上搜这动画相关的消息也是一片的怕大河内论调，不知道是从众还是没主见。还有安利的时候说大河内打死不看的……不知道为什么心灵就这么脆弱。
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 1773#       发表于 2017-7-26 10:20
 
 
-
-
 看看这楼就知道了，以s1的恶意，多半是希望大河内搞个大的
-
-
-
-
-
 
 
 -----
@@ -5701,14 +3782,7 @@ OP完整版：http://www.bilibili.com/video/av12588213
 ##### 1774#       发表于 2017-7-26 10:23
 
 
-
-
 追番是补番不能比拟的…
-
-
-
-
-
 
 
 -----
@@ -5717,15 +3791,9 @@ OP完整版：http://www.bilibili.com/video/av12588213
 ##### 1775#       发表于 2017-7-26 10:25
 
 
-
 <blockquote>神之叹息 发表于 2017-7-26 10:23
 追番是补番不能比拟的…</blockquote>
 但是说实话补番普遍比追番观感好一些
-
-
-
-
-
 
 
 -----
@@ -5734,22 +3802,13 @@ OP完整版：http://www.bilibili.com/video/av12588213
 ##### 1776#       发表于 2017-7-26 10:42
 
 
-
-
 果然跳case了，应该还有一话讲日本妹入伙，之后就case13之后的内容了吧
-
-
-
-
-
 
 
 -----
 
 ####  lmx20  
 ##### 1777#       发表于 2017-7-26 11:23
-
-
 
 
 感觉这番的政治戏有点儿戏了
@@ -5781,26 +3840,15 @@ OP完整版：http://www.bilibili.com/video/av12588213
 高中生建国那种。。。我还是抛开她们的身份安心看百合吧
 
 
-
-
-
-
-
 -----
 
 ####  terric  
 ##### 1778#       发表于 2017-7-26 11:24
 
 
-
 <blockquote>bamboom 发表于 2017-7-26 10:15
 微博上搜这动画相关的消息也是一片的怕大河内论调，不知道是从众还是没主见。还有安利的时候说大河内打死 ...</blockquote>
 估计他们从来没看过大河内的片子，只是瞎起哄的
-
-
-
-
-
 
 
 -----
@@ -5809,23 +3857,16 @@ OP完整版：http://www.bilibili.com/video/av12588213
 ##### 1779#         楼主| 发表于 2017-7-26 11:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36688938&amp;ptid=1486439" target="_blank">bamboom 发表于 2017-7-26 10:15</a>
 
 微博上搜这动画相关的消息也是一片的怕大河内论调，不知道是从众还是没主见。还有安利的时候说大河内打死 ...</blockquote>
 大概是跟风，我觉得这种圈子，如果论调是这样，大家就会去跟从，可能有人觉得“跟从”能让自己变成“dalao”,不过我也不是很喜欢“dalao”这个称呼
 
 
-
-
-
-
-
 -----
 
 ####  liangxuanchi  
 ##### 1780#       发表于 2017-7-26 11:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36689719&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-7-26 11:23</a>
@@ -5847,16 +3888,10 @@ OP完整版：http://www.bilibili.com/video/av12588213
 当然了，这种对待夏洛特自己心里肯定也有预测，她也是有别的计划才提出当女王的，共和国还暂时不知道而已，这是未来的看点。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1781#       发表于 2017-7-26 11:43
-
 
 
  本帖最后由 xtwx1716 于 2017-7-26 11:45 编辑 
@@ -5873,26 +3908,15 @@ OP完整版：http://www.bilibili.com/video/av12588213
 本来伊泽塔我就觉得菲捏戏份太少、战场也不上，两人地位不对等了
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1782#       发表于 2017-7-26 11:46
 
 
-
 <blockquote>liangxuanchi 发表于 2017-7-26 11:39
 这种毫无势力的空气公主，除非共和国脑袋被门夹了才会认真帮她当女王，当然是能利用一回算一回了，暴露了 ...</blockquote>
 公主有势力也用不着找安洁她们了
-
-
-
-
-
 
 
 -----
@@ -5901,15 +3925,9 @@ OP完整版：http://www.bilibili.com/video/av12588213
 ##### 1783#       发表于 2017-7-26 11:47
 
 
-
 <blockquote>xtwx1716 发表于 2017-7-26 10:25
 但是说实话补番普遍比追番观感好一些</blockquote>
 那是肯定的，不过对于原创的话，追着讨论感觉更爽。完结补了就什么讨论的意思了
-
-
-
-
-
 
 
 -----
@@ -5918,15 +3936,9 @@ OP完整版：http://www.bilibili.com/video/av12588213
 ##### 1784#       发表于 2017-7-26 11:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36689058&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-26 10:25</a>
 但是说实话补番普遍比追番观感好一些</blockquote>
 因人而异。补番经常看不下去，追番反倒能看下去。
-
-
-
-
-
 
 
 -----
@@ -5935,24 +3947,16 @@ OP完整版：http://www.bilibili.com/video/av12588213
 ##### 1785#       发表于 2017-7-26 11:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36689996&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-26 11:46</a>
 
 公主有势力也用不着找安洁她们了</blockquote>
 对啊，所以公主被这么对待是合情合理的，未来就是主要围绕共和国自己的间谍任务，这不是什么BUG，只是正常思维。
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 1786#       发表于 2017-7-26 11:55
-
-
 
 
 要合理第一话公主根本就不应该在可能是双面间谍的人面前露脸，万一信鸽没打下来，这是什么后果？
@@ -5963,25 +3967,13 @@ OP完整版：http://www.bilibili.com/video/av12588213
 啥都追求真实，就啥都没法看了。
 
 
-
-
-
-
-
 -----
 
 ####  天色影子  
 ##### 1787#       发表于 2017-7-26 11:55
 
 
-
-
 最讨厌公主这段，感觉有两个意思，一是讨厌公主这个身份，二是反话，喜欢公主这个人。
-
-
-
-
-
 
 
 -----
@@ -5990,17 +3982,10 @@ OP完整版：http://www.bilibili.com/video/av12588213
 ##### 1788#       发表于 2017-7-26 11:56
 
 
-
-
 有没有类似画风的作品？
 
 
 作品人设很对我胃口啊，最好本子希望
-
-
-
-
-
 
 
 -----
@@ -6009,16 +3994,10 @@ OP完整版：http://www.bilibili.com/video/av12588213
 ##### 1789#       发表于 2017-7-26 12:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36689058&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-26 10:25</a>
 
 但是说实话补番普遍比追番观感好一些</blockquote>
 毕竟追番有一星期的时间来放大优缺点，好片子还是追着看更有感触，补番基本上都没有药效了
-
-
-
-
-
 
 
 -----
@@ -6027,24 +4006,16 @@ OP完整版：http://www.bilibili.com/video/av12588213
 ##### 1790#       发表于 2017-7-26 12:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36688147&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-26 09:06</a>
 
 想起了以前被工图支配的恐惧</blockquote>
 还好跳坑了。。
 
 
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 1791#       发表于 2017-7-26 12:42
-
-
 
 
 第三话的缺点是没有反转结尾啊。。
@@ -6079,16 +4050,10 @@ OP完整版：http://www.bilibili.com/video/av12588213
 2.二五仔，最后会卖主角。
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 1792#       发表于 2017-7-26 13:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36689719&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-7-26 11:23</a>
@@ -6103,16 +4068,10 @@ OP完整版：http://www.bilibili.com/video/av12588213
 公主不参与只是继续做一个花瓶，参与了则是同安洁组一同出生入死的伙伴，拉出来的是真正自己的班底。真面临选择了，安洁或许能说服多萝西、千世考虑在共和国情报组织和作为同伴的公主间做选择，但是绝对没立场让她们为一个幌子对不起（都不用出卖）共和国。
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 1793#       发表于 2017-7-26 13:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36689924&amp;ptid=1486439" target="_blank">liangxuanchi 发表于 2017-7-26 11:39</a>
@@ -6137,16 +4096,10 @@ OP完整版：http://www.bilibili.com/video/av12588213
 除了有些尴尬的魔法和战斗，还有被夺了N多戏份的演讲能力MAX的菲涅的剧情
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1794#       发表于 2017-7-26 13:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36690619&amp;ptid=1486439" target="_blank">古桥一浩 发表于 2017-7-26 12:42</a>
@@ -6162,16 +4115,10 @@ OP完整版：http://www.bilibili.com/video/av12588213
 突然感觉结构上是做成单元剧了，但是故事上并不是个单元剧能承载的啊。。
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 1795#       发表于 2017-7-26 13:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36690838&amp;ptid=1486439" target="_blank">望月凝香 发表于 2017-7-26 13:04</a>
@@ -6196,16 +4143,10 @@ OP完整版：http://www.bilibili.com/video/av12588213
 怕就怕大河内只想写007的故事，公主这个身份只是一个噱头而已
 
 
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 1796#       发表于 2017-7-26 13:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36690884&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-26 13:07</a>
@@ -6243,16 +4184,10 @@ OP完整版：http://www.bilibili.com/video/av12588213
 不会再有前两集那么有趣了。
 
 
-
-
-
-
-
 -----
 
 ####  colohot  
 ##### 1797#       发表于 2017-7-26 13:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36690884&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-26 13:07</a>
@@ -6265,16 +4200,10 @@ OP完整版：http://www.bilibili.com/video/av12588213
 不开玩笑的说，最后不是建国登基的话，穿插点伏笔，做个小主线还是够了。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1798#       发表于 2017-7-26 13:18
-
 
 
 <blockquote>古桥一浩 发表于 2017-7-26 13:12
@@ -6287,16 +4216,10 @@ OP完整版：http://www.bilibili.com/video/av12588213
 我个人认为是以后也多是这集的风格了，根据访谈staff说的话来猜的话
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 1799#       发表于 2017-7-26 13:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36690945&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-7-26 13:12</a>
@@ -6311,32 +4234,19 @@ OP完整版：http://www.bilibili.com/video/av12588213
 如果不是安洁这个她无条件信任的人出现，她就只能在傻逼和骗子（大公安排的人）中间培养自己的势力，玩得最漂亮大概是汉献帝衣带诏吧。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1800#       发表于 2017-7-26 13:33
 
 
-
-
 公主想当女王，不可能不见血…第一集都能死人了，虽然是个杂兵…还有革命机有个眼镜女，配角，也是被战斗A死了…别小看大河内
-
-
-
-
-
 
 
 -----
 
 ####  tioover  
 ##### 1801#       发表于 2017-7-26 13:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36689719&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-7-26 11:23</a>
@@ -6349,16 +4259,10 @@ OP完整版：http://www.bilibili.com/video/av12588213
 日本动画你还想要政治……
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 1802#       发表于 2017-7-26 13:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36691017&amp;ptid=1486439" target="_blank">望月凝香 发表于 2017-7-26 13:18</a>
@@ -6369,16 +4273,10 @@ OP完整版：http://www.bilibili.com/video/av12588213
 至少现在只是花瓶而不是软禁,或者说不是待罪状态,否则要夺嫡只能完全靠非正常手段了,通常来说夺嫡是明面和暗面手段都用,明面手段看公主,暗面则是看间谍们吧
 
 
-
-
-
-
-
 -----
 
 ####  KawakazePring  
 ##### 1803#       发表于 2017-7-26 13:50
-
 
 
  本帖最后由 KawakazePring 于 2017-7-26 13:52 编辑 
@@ -6403,22 +4301,13 @@ MP3:链接：[[http://pan.baidu.com/s/1i523bGp](http://pan.baidu.com/s/1i523bGp)
 2017-7-26 13:51 上传
 
 
-
-
-
 不能发的话麻烦告知一下，我编辑掉，或者版主删掉就行
-
-
-
-
-
 
 
 -----
 
 ####  万千百十  
 ##### 1804#       发表于 2017-7-26 13:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36690945&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-7-26 13:12</a>
@@ -6431,16 +4320,10 @@ MP3:链接：[[http://pan.baidu.com/s/1i523bGp](http://pan.baidu.com/s/1i523bGp)
 日本业界政治戏码从来都是一泡污，包括他大河内的LLX也不例外，老老实实走007路线就该庆幸了，再说007也没什么不好。
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 1805#       发表于 2017-7-26 13:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36691384&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-7-26 13:50</a>
@@ -6449,16 +4332,10 @@ MP3:链接：[[http://pan.baidu.com/s/1i523bGp](http://pan.baidu.com/s/1i523bGp)
 被严格限制在（毫无疑问被监视的）贵族学校里，只能参加礼仪性质的活动，这已经算是软禁了。公主毕竟有自己的政治抱负，不是金丝雀。
 
 
-
-
-
-
-
 -----
 
 ####  KawakazePring  
 ##### 1806#       发表于 2017-7-26 13:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36690124&amp;ptid=1486439" target="_blank">天色影子 发表于 2017-7-26 11:55</a>
@@ -6484,16 +4361,10 @@ MP3:链接：[[http://pan.baidu.com/s/1i523bGp](http://pan.baidu.com/s/1i523bGp)
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1807#       发表于 2017-7-26 15:02
-
 
 
 <blockquote>KawakazePring 发表于 2017-7-26 13:56
@@ -6504,32 +4375,19 @@ MP3:链接：[[http://pan.baidu.com/s/1i523bGp](http://pan.baidu.com/s/1i523bGp)
 可是发泄完安洁还是爱公主的啊…
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1808#       发表于 2017-7-26 15:06
 
 
-
-
 安洁不喜欢当间谍，虽然她是间谍的料…公主不喜欢当空气，她有想当女王的心…
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 1809#       发表于 2017-7-26 15:21
-
 
 
 <blockquote>KawakazePring 发表于 2017-7-26 13:56
@@ -6540,17 +4398,10 @@ MP3:链接：[[http://pan.baidu.com/s/1i523bGp](http://pan.baidu.com/s/1i523bGp)
 关键公主看ange负伤了不但没有舔舔，连摸摸抱抱都不给，这就有点不够意思了
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1810#         楼主| 发表于 2017-7-26 18:02
-
-
 
 
 第4話「case9 Roaming Pigeons」
@@ -6574,17 +4425,10 @@ MP3:链接：[[http://pan.baidu.com/s/1i523bGp](http://pan.baidu.com/s/1i523bGp)
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fhxfy80dnfj20b4069q3e.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1811#         楼主| 发表于 2017-7-26 18:07
-
-
 
 
 黒星紅白‏ @kuroboshi  
@@ -6593,17 +4437,10 @@ MP3:链接：[[http://pan.baidu.com/s/1i523bGp](http://pan.baidu.com/s/1i523bGp)
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fhxg21vcx2j20lv0lvq4e.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1812#         楼主| 发表于 2017-7-26 18:13
-
-
 
 
 【CD情報】
@@ -6616,27 +4453,15 @@ TVアニメ『プリンセス・プリンシパル』EDテーマ
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fhxg9ohqdvj20xc0wz79y.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 1813#       发表于 2017-7-26 18:18
 
 
-
-
 来猜猜，上面是哪个公主？
 
 白毛扮的感觉更撩人一些，“来办正事的，还是来找乐子的？”感觉这种台词都能说出来的。
-
-
-
-
-
 
 
 -----
@@ -6645,16 +4470,10 @@ TVアニメ『プリンセス・プリンシパル』EDテーマ
 ##### 1814#       发表于 2017-7-26 18:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36692322&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-26 15:21</a>
 
 关键公主看ange负伤了不但没有舔舔，连摸摸抱抱都不给，这就有点不够意思了 ...</blockquote>
 怎么可能那么亲密，容易暴露关系。另外可能有，但没给镜头而已
-
-
-
-
-
 
 
 -----
@@ -6663,21 +4482,13 @@ TVアニメ『プリンセス・プリンシパル』EDテーマ
 ##### 1815#       发表于 2017-7-26 18:45
 
 
-
-
 case9有ちせ，看来后面是乱序。
-
-
-
-
-
 
 
 -----
 
 ####  wingzerocos  
 ##### 1816#       发表于 2017-7-26 19:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36694410&amp;ptid=1486439" target="_blank">Norn 发表于 2017-7-26 18:45</a>
@@ -6688,16 +4499,10 @@ case9有ちせ，看来后面是乱序。
 给多萝西下指令，让她们小队去偷，同时给她个人加了个监视任务。
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 1817#       发表于 2017-7-26 19:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36694410&amp;ptid=1486439" target="_blank">Norn 发表于 2017-7-26 18:45</a>
@@ -6718,17 +4523,10 @@ case9有ちせ，看来后面是乱序。
 写不了高级的东西就不要写
 
 
-
-
-
-
-
 -----
 
 ####  oyss1225  
 ##### 1818#       发表于 2017-7-26 19:12
-
-
 
 
 这片最后大结局,什么事情都搞定了以后.
@@ -6737,16 +4535,10 @@ case9有ちせ，看来后面是乱序。
 公主跟Ange拔枪互射我都不觉得奇怪了.
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1819#       发表于 2017-7-26 19:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36694579&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-7-26 19:06</a>
@@ -6759,17 +4551,10 @@ case9有ちせ，看来后面是乱序。
 你这个问题第一集大佐就吐槽过了，好不容易得到公主居然就做点任务而已。间谍组织和军方看问题的角度就不一致。组织的谨慎决定了公主声望刷不够是不可能放松警惕的。就看安洁能不能帮一把了。组织是骑虎难下，不得已引了一个公主进来。请神容易送神难。别看公主好像利用价值挺高，不小心就被公主反利用了。看这集的介绍就有这样的味道
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1820#       发表于 2017-7-26 19:43
-
-
 
 
 看第一集的剧情，直到case13组织还是没有放松警惕，只要没有人手看住公主就宁可她待在学校，任务都不让她碰。第一集公主也是从女仆那里才多少了解到安洁的行动，也不可能和安洁过分亲密，容易被怀疑。
@@ -6778,25 +4563,13 @@ case9有ちせ，看来后面是乱序。
 我推测后半段肯定要超过case13的，可能还会跳一大截
 
 
-
-
-
-
-
 -----
 
 ####  soma  
 ##### 1821#       发表于 2017-7-26 19:57
 
 
-
-
 主角应该是真公主吧
-
-
-
-
-
 
 
 -----
@@ -6805,14 +4578,7 @@ case9有ちせ，看来后面是乱序。
 ##### 1822#       发表于 2017-7-26 19:58
 
 
-
-
 组织现在还没看到给过公主好处吧，给人打白工也不是这么打的啊
-
-
-
-
-
 
 
 -----
@@ -6821,22 +4587,15 @@ case9有ちせ，看来后面是乱序。
 ##### 1823#       发表于 2017-7-26 20:08
 
 
-
 <blockquote>chenyedgg 发表于 2017-7-26 19:58
 组织现在还没看到给过公主好处吧，给人打白工也不是这么打的啊</blockquote>
 组织没把公主暗地里宰了然后让ange取代（本来就是这么计划的） 已经是很给面子了
-
-
-
-
-
 
 
 -----
 
 ####  七夜美琴  
 ##### 1824#       发表于 2017-7-26 20:10
-
 
 
 <blockquote>引用第1803楼KawakazePring于2017-07-26 13:50发表的  :
@@ -6848,16 +4607,10 @@ case9有ちせ，看来后面是乱序。
 ----发送自 [Xiaomi Redmi Note 4X,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  chenyedgg  
 ##### 1825#       发表于 2017-7-26 20:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36695031&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-26 20:08</a>
@@ -6866,16 +4619,10 @@ case9有ちせ，看来后面是乱序。
 取代计划第二话就已经彻底破产了，组织不知道间谍到底是怎么暴露，理论上不敢动手的
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1826#       发表于 2017-7-26 20:13
-
 
 
 <blockquote>七夜美琴 发表于 2017-7-26 20:10
@@ -6886,16 +4633,10 @@ case9有ちせ，看来后面是乱序。
 一直觉得这个世界观下的伦敦有股亚楠范，看来冥冥之中自有天意
 
 
-
-
-
-
-
 -----
 
 ####  七夜美琴  
 ##### 1827#       发表于 2017-7-26 20:17
-
 
 
 <blockquote>引用第1827楼xtwx1716于2017-07-26 20:13发表的  :
@@ -6909,16 +4650,10 @@ case9有ちせ，看来后面是乱序。
 ----发送自 [Xiaomi Redmi Note 4X,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 1828#       发表于 2017-7-26 20:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36694826&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-26 19:38</a>
@@ -6945,17 +4680,10 @@ case9有ちせ，看来后面是乱序。
 不过更大概率还是大公那方的吧
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 1829#       发表于 2017-7-26 20:28
-
-
 
 
 我来分析一下那段战斗的技术问题吧。
@@ -6977,14 +4705,8 @@ case9有ちせ，看来后面是乱序。
 <img src="http://i1.ciimg.com/1949/e2349acf812498e1.jpg" referrerpolicy="no-referrer">
 
 
-
 动画里没有演出的镜头估计是：在对方举枪的危机时刻，安洁果断的立马关闭反重力系统，她靠自身的重量还是比较容易能拉珠绳子的。然后再向对方正面冲去的一瞬间释放卷绳。脸上擦弹后直奔到对手的后方，反身一跳把绳子绕对方脖子，再立刻锁紧绞盘停止卷绳的释放。这样敌人就被勒死了。
 <img src="http://i1.ciimg.com/1949/4ec41cb4366664f5.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6993,22 +4715,15 @@ case9有ちせ，看来后面是乱序。
 ##### 1830#       发表于 2017-7-26 20:40
 
 
-
 <blockquote>chenyedgg 发表于 2017-7-26 20:12
 取代计划第二话就已经彻底破产了，组织不知道间谍到底是怎么暴露，理论上不敢动手的 ...</blockquote>
 目前的情况是，组织认为公主有秘密的情报渠道可以让帝国的地下组织瞬间曝光，而公主也处在被敌国间谍包围随时可以被抹脖子的状态。这两拨人之间只是维持着脆弱的平衡，最多也就是互相提防互相利用的关系，不存在谁给谁打工这么一说的
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 1831#       发表于 2017-7-26 20:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36695220&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-7-26 20:28</a>
@@ -7020,26 +4735,15 @@ case9有ちせ，看来后面是乱序。
 感觉不是关闭，因为启用C球的时候，还是可以控制力量的。比如第一集拉艾里克上天那样，安洁这个镜头我觉得更像是她受到比阿特的拉力一瞬间让她被吊起来，时间很短，其实她可以很快就调整好
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1832#       发表于 2017-7-26 20:52
 
 
-
 <blockquote>神之叹息 发表于 2017-7-26 20:47
 感觉不是关闭，因为启用C球的时候，还是可以控制力量的。比如第一集拉艾里克上天那样，安洁这个镜头我觉 ...</blockquote>
 这是正解
-
-
-
-
-
 
 
 -----
@@ -7048,16 +4752,10 @@ case9有ちせ，看来后面是乱序。
 ##### 1833#       发表于 2017-7-26 20:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36695330&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-26 20:40</a>
 
 目前的情况是，组织认为公主有秘密的情报渠道可以让帝国的地下组织瞬间曝光，而公主也处在被敌国间谍包围 ...</blockquote>
 所以说到现在为止公主还没表现利用了组织什么啊，目前表现不就是自己承担风险的白打工
-
-
-
-
-
 
 
 -----
@@ -7066,23 +4764,16 @@ case9有ちせ，看来后面是乱序。
 ##### 1834#       发表于 2017-7-26 21:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36695386&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-26 20:47</a>
 
 感觉不是关闭，因为启用C球的时候，还是可以控制力量的。比如第一集拉艾里克上天那样，安洁这个镜头我觉 ...</blockquote>
 球当然可以调整重力，不然完全没有重力，也就完全失重的话使用者就会如类似太空站里的宇航员一样行动很不方便。我只认为关闭反重力球能获得最大的重力来跑动，因为跑动中还得拉动绳子。没有足够的重力就没法获得足够的摩擦力拉动绳子。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1835#       发表于 2017-7-26 21:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36690945&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-7-26 13:12</a>
@@ -7100,16 +4791,10 @@ case9有ちせ，看来后面是乱序。
 你所说的大部分都是脑补，而剧里已经说得很清楚了，公主不但没有朋友，权高势众的诺曼底公爵还由于一些我们不知道的原因变成了她的敌人。公主目前这种半软禁状态是不是公爵的意思也很难说。这种连外国间谍都敢进行偷换的软柿子空气公主，到底有什么底气说拉出自己的势力。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1836#       发表于 2017-7-26 21:09
-
 
 
  本帖最后由 xtwx1716 于 2017-7-26 21:10 编辑 
@@ -7121,16 +4806,10 @@ case9有ちせ，看来后面是乱序。
 说实话我也想不出一个地下组织怎么能帮她当女王。单凭破坏和暗杀可是不行的吧
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 1837#       发表于 2017-7-26 21:13
-
 
 
  本帖最后由 漫区专号 于 2017-7-26 21:16 编辑 
@@ -7140,16 +4819,10 @@ case9有ちせ，看来后面是乱序。
 球只能控制重力的反方向力的大小。当安杰被拉起时，球不能提供一个向下（也就是和重力加速度方向一样）的加速度。所以只能减少球输出的加速度（力）的大小，这样靠自生的重力拉住绳子。如果安吉要向前跑的话，还得靠重力提供摩擦力。此时是重力和摩擦力的合力拉住绳子。
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 1838#       发表于 2017-7-26 21:21
-
 
 
  本帖最后由 漫区专号 于 2017-7-26 21:30 编辑 
@@ -7157,16 +4830,10 @@ case9有ちせ，看来后面是乱序。
 其实印钞的母版这个还是很重要的。如果让帝国掌握了母版大量印钱对共和国这边发起金融战。那么共和国这边很可能经济崩溃，经济崩溃那战争潜力就会被大大削弱。可见夺回母版可以直接挽回至少是几百亿以上的经济损失。拿一个敌国公主换这几百亿已经是很划算的买卖了。关键是西边现在并未想过通过安排这个公主进入敌国的权力中心来颠覆对方。
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 1839#       发表于 2017-7-26 21:28
-
 
 
  本帖最后由 lmx20 于 2017-7-26 21:37 编辑 
@@ -7211,16 +4878,10 @@ case9有ちせ，看来后面是乱序。
 被抓住了把柄是根本没辩解余地的   
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 1840#       发表于 2017-7-26 21:40
-
 
 
  本帖最后由 漫区专号 于 2017-7-26 21:49 编辑 
@@ -7240,16 +4901,10 @@ case9有ちせ，看来后面是乱序。
 所以我猜公主要翻盘最好的办法就是去去骗取大公的信任和大公合作。让大公以为自己是个好控制的傀儡（故意让大公知道自己是假公主让大公以为自己抓住了决定性的把柄），利用大公这边的实力上位。而要骗大公就得有最强的情报，以及分身之骗术。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1841#       发表于 2017-7-26 21:40
-
 
 
 <blockquote>lmx20 发表于 2017-7-26 21:28
@@ -7262,16 +4917,10 @@ case9有ちせ，看来后面是乱序。
 有公爵在，基本没人会敢接触公主。而且原王国分裂肯定是分派了，留在王国的，要么是和公爵一派的，要么是残余势力不成气候的。所以公主即便有野心，也不可能找到有力的依靠。第二集小跟班说到警察部的被公爵控制了，海军又不靠谱，所以公主是被迫当空气了。安洁他们找到她，她怎么都得试试。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1842#       发表于 2017-7-26 21:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36695743&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-7-26 21:28</a>
@@ -7287,16 +4936,10 @@ case9有ちせ，看来后面是乱序。
 说到底，你没考虑到公主和诺曼底公爵之间的关系。如果诺曼底公爵因为某些原因、甚至是知道公主的真实身份而存心打压公主呢？作为第四顺位的年轻（伪）公主被压的抬不起头这是太正常不过的事情了吧。而从这集跟班的独白来看，这种可能性还是非常高的。
 
 
-
-
-
-
-
 -----
 
 ####  vipdaren  
 ##### 1843#       发表于 2017-7-26 21:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36695743&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-7-26 21:28</a>
@@ -7309,17 +4952,10 @@ case9有ちせ，看来后面是乱序。
 公主本来就不是真的，反正被抓住了是死，把柄大小区别不大，拼一枪不亏<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 1844#       发表于 2017-7-26 21:56
-
-
 
 
 看了上几楼的说法以后
@@ -7356,16 +4992,10 @@ case9有ちせ，看来后面是乱序。
 毕竟大河内的剧情，写政治戏真没有写得让我喜欢的
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1845#       发表于 2017-7-26 22:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36695982&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-7-26 21:56</a>
@@ -7378,16 +5008,10 @@ case9有ちせ，看来后面是乱序。
 放心吧。正如第一幕出现的枪第三幕一定会响一样，间谍剧的间谍也八成会暴露。如果最后公主都没有暴露的话，那我是第一个要求退票的。不过这可是连续剧啊，这刚第三集啊，你要他们现在就暴露了之后演什么
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1846#       发表于 2017-7-26 22:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36696140&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-26 22:12</a>
@@ -7396,16 +5020,10 @@ case9有ちせ，看来后面是乱序。
 暴露也得是case13+后的事了，就看监督怎么安排顺序了。第一集公主出场就自称是间谍，我怎么都感觉她这话里有话。比起安洁她们来说，公主是间谍这个情报无疑是个大新闻，一旦被公爵知道的话。我还是倾向于公爵不清楚公主那点破事，但公主的野心公爵是看在眼里了，所以有意把她逼成了空气公主。这点和女王器重她没冲突，公爵是少数能向女王提意见的人，估计公爵在女王面前一套，背后又一套而已。公爵背后的势力也可以深挖，就不知道动画能做到什么程度了。而且公爵挂了，还会有替代他的人，总得要有一个巫妖王<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1847#       发表于 2017-7-26 22:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36695685&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-7-26 21:21</a>
@@ -7414,17 +5032,10 @@ case9有ちせ，看来后面是乱序。
 其实这集的任务，没有公主也可以完成的。。当然难度加一倍不止。。而且组织指定公主来打掩护。。
 
 
-
-
-
-
-
 -----
 
 ####  saturnus  
 ##### 1848#       发表于 2017-7-26 23:24
-
-
 
 
 讲道理，公主这个第四继承顺位绝对不低啊，而且这个顺位很有可能仅仅只是被压在皇太子一家人之后，如果真是这样，对于各方势力来讲公主本身就是一股不容忽视天然的政治势力。
@@ -7432,16 +5043,10 @@ case9有ちせ，看来后面是乱序。
 [  -- 来自带麻将脸的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 1849#       发表于 2017-7-26 23:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36696798&amp;ptid=1486439" target="_blank">saturnus 发表于 2017-7-26 23:24</a>
@@ -7454,16 +5059,10 @@ case9有ちせ，看来后面是乱序。
 当然了，女王的情况片子里还没明说。是有着实权还是被架空，甚至女王是不是那个女王（已死，现在台上的是公爵安排的替身）都未为可知。
 
 
-
-
-
-
-
 -----
 
 ####  saturnus  
 ##### 1850#       发表于 2017-7-27 00:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36696995&amp;ptid=1486439" target="_blank">望月凝香 发表于 2017-07-26 23:48:06</a>
@@ -7476,16 +5075,10 @@ case9有ちせ，看来后面是乱序。
 [  -- 来自能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Norn  
 ##### 1851#       发表于 2017-7-27 08:11
-
 
 
  本帖最后由 Norn 于 2017-9-11 06:19 编辑 
@@ -7570,13 +5163,9 @@ pripri小知识,出自机械设定片貝文洋
 03.与安洁对峙的王国间谍,最后是在比阿特突入时引发的弹力(?)作用到脖子上缠着的钢丝时被绞死的orz
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -7586,19 +5175,13 @@ pripri小知识,出自机械设定片貝文洋
 | hymbz| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  漫区专号  
 ##### 1852#       发表于 2017-7-27 08:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36696798&amp;amp;ptid=1486439" target="_blank">saturnus 发表于 2017-7-26 23:24</a>
@@ -7608,25 +5191,13 @@ pripri小知识,出自机械设定片貝文洋
 如果安洁没说谎，那么公主的父亲也就是皇太子已死于革命。现在第一顺位是公主的大哥皇太孙。接着的是一个姐姐一个二哥，公主排第四。按年龄看公主的两哥一姐年纪大多了正直壮年，公主这种“高中生”外界怎么看都图羊图森破。
 
 
-
-
-
-
-
 -----
 
 ####  colohot  
 ##### 1853#       发表于 2017-7-27 08:35
 
 
-
-
 c球仅仅通过体温等细微的温度变化就可以控制重力，那么飞船上的凯铂莱的驱动也不需要太多的蒸汽吧。使用长时间后还会产生大量的热量，再加上凯铂莱不是(?)消耗品，虽然不知道能量转化率是多少，但这随口胡诌的新能源真是方便
-
-
-
-
-
 
 
 -----
@@ -7635,23 +5206,16 @@ c球仅仅通过体温等细微的温度变化就可以控制重力，那么飞�
 ##### 1854#       发表于 2017-7-27 08:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36698484&amp;ptid=1486439" target="_blank">Norn 发表于 2017-7-27 08:11</a>
 
 与安洁对峙的王国间谍,最后是被比阿特突入时引发的弹力(?)作用到脖子上的钢丝而吊死的orz</blockquote>
 安洁时髦值下降，贝阿特时髦值上升的一刻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  saturnus  
 ##### 1855#       发表于 2017-7-27 08:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36698491&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-07-27 08:12:24</a>
@@ -7662,32 +5226,19 @@ c球仅仅通过体温等细微的温度变化就可以控制重力，那么飞�
 [  -- 来自能订阅的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  typeunknown  
 ##### 1856#       发表于 2017-7-27 08:49
 
 
-
-
 这是软禁？跑出去参观连个盯梢的都没有的软禁？
-
-
-
-
-
 
 
 -----
 
 ####  漫区专号  
 ##### 1857#       发表于 2017-7-27 09:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36698684&amp;ptid=1486439" target="_blank">saturnus 发表于 2017-7-27 08:39</a>
@@ -7702,20 +5253,13 @@ c球仅仅通过体温等细微的温度变化就可以控制重力，那么飞�
 合照照片拍摄于革命前，安洁父母理应在照片中。关键一点就是如果安洁不是皇太子的女儿那么她应该排不到第四。此假设下，若皇太子在世的话他家就会占去前四。右边还有一王子一公主（应该是比安洁父亲年长），夏洛特公主就得排第7。
 
 
-
 可见只有皇太子死亡，他的四个子女占前四顺位这才是合理的推断。
-
-
-
-
-
 
 
 -----
 
 ####  漫区专号  
 ##### 1858#       发表于 2017-7-27 09:16
-
 
 
  本帖最后由 漫区专号 于 2017-7-27 09:17 编辑 
@@ -7729,16 +5273,10 @@ c球仅仅通过体温等细微的温度变化就可以控制重力，那么飞�
 这和楼里推测的信息是一致的，就是安洁把绳子绕到这位护送母版的特工的脖子上再利用贝阿特使用滑索时的重力对绳子产生的拉力。把对方勒死。
 
 
-
-
-
-
-
 -----
 
 ####  liangxuanchi  
 ##### 1859#       发表于 2017-7-27 09:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36698899&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-7-27 09:04</a>
@@ -7762,16 +5300,10 @@ c球仅仅通过体温等细微的温度变化就可以控制重力，那么飞�
 3.皇室死人巨多，除了女王就死的剩下4个人了，包括诺曼底公。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1860#       发表于 2017-7-27 09:22
-
 
 
 <blockquote>Norn 发表于 2017-7-27 08:11
@@ -7786,16 +5318,10 @@ pripri小知识,出自机械设定片貝文洋
 这个死法光看片子并看不出来啊，讲真第三集这已经算是制作事故了吧
 
 
-
-
-
-
-
 -----
 
 ####  colohot  
 ##### 1861#       发表于 2017-7-27 09:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36699020&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-7-27 09:16</a>
@@ -7807,16 +5333,10 @@ pripri小知识,出自机械设定片貝文洋
 看到突入两个字就以为是贝阿特跳进去的时候绕上去的，仔细想想这个动作根本不可能，我眼瞎了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 1862#       发表于 2017-7-27 09:31
-
 
 
  本帖最后由 漫区专号 于 2017-7-27 09:36 编辑 
@@ -7827,18 +5347,10 @@ pripri小知识,出自机械设定片貝文洋
 按照英国的继承法顺位的次序是基本固定的。也就是说皇太子的子女比其他亲王高（女王的其他儿女），这个顺位并不会因为皇太子登记前死亡而改变。不会让其兄弟即位（这样就改变了顺位次序）。真要是女王的儿子优先即位的话，那么孙辈的排名将毫无意义。顺位的说法也就毫无意义。
 
 
-
-
-
-
-
-
-
 -----
 
 ####  liangxuanchi  
 ##### 1863#       发表于 2017-7-27 09:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36695743&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-7-26 21:28</a>
@@ -7854,16 +5366,10 @@ pripri小知识,出自机械设定片貝文洋
 嗯，比如说我，第二集看到夏洛特的当女王宣言，我就默认夏洛特身上有庞大的势力，甚至暗中控制了许多国内大势力，只要有间谍组织帮忙就一定能当上女王，而这个势力目前共和国和贝阿朵都没发现罢了，这是剧本以后要表现的。
 
 
-
-
-
-
-
 -----
 
 ####  colohot  
 ##### 1864#       发表于 2017-7-27 09:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36699063&amp;ptid=1486439" target="_blank">liangxuanchi 发表于 2017-7-27 09:20</a>
@@ -7874,16 +5380,10 @@ pripri小知识,出自机械设定片貝文洋
 如果安洁那几个哥哥姐姐都是次子的孩子，按理来说她的继承权应该是排第一。现在排第四我还是更倾向于是按照片里的几个小孩的长幼顺序来的。但是安洁这几集一点都没表现出对家人（包括女王）的思念，要不就是安洁公主根本没换过身份，要不就是王室里有其它隐情，最坏的可能就是大大大河内把安洁写的恋爱脑上头完全没想过这一茬。
 
 
-
-
-
-
-
 -----
 
 ####  万千百十  
 ##### 1865#       发表于 2017-7-27 09:46
-
 
 
  本帖最后由 万千百十 于 2017-7-27 09:51 编辑 
@@ -7904,17 +5404,10 @@ pripri小知识,出自机械设定片貝文洋
 6、约克公爵安德鲁王子殿下（伊丽莎白二世的第二个儿子）
 
 
-
-
-
-
-
-
 -----
 
 ####  liangxuanchi  
 ##### 1866#       发表于 2017-7-27 09:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36699149&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-7-27 09:31</a>
@@ -7923,16 +5416,10 @@ pripri小知识,出自机械设定片貝文洋
 嗯，问题是按照王室全家福这张照片来看，显然你的说法如果成立的话，照片上王室第二代除了长子生了4个孩子之外，其他兄弟姐妹全都做了绝育手术一般没一个孩子.................这个概率也太小了吧。何况，安洁站最左边周围孤零零没有一个人，她的亲哥哥姐姐都站女王身边，居然也没人管他？难道王室拍照的时候没有专业摄像师么........安洁当时那个岁数，拍照站哪绝不可能是自己决定的，而是周围的大人们指示的，不可能无缘无故就让她站边上身边没人，别的不说诺曼底公在最右边，他身边也是没人站的。
 
 
-
-
-
-
-
 -----
 
 ####  万千百十  
 ##### 1867#       发表于 2017-7-27 09:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36699351&amp;ptid=1486439" target="_blank">liangxuanchi 发表于 2017-7-27 09:46</a>
@@ -7941,16 +5428,10 @@ pripri小知识,出自机械设定片貝文洋
 大河内不至于对英国王位继承法一无所知而套用什么中国继承法，伊丽莎白二世也是有二儿子的，夏洛特公主依旧是正统第四顺位继承人
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 1868#       发表于 2017-7-27 09:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36699351&amp;ptid=1486439" target="_blank">liangxuanchi 发表于 2017-7-27 09:46</a>
@@ -7960,16 +5441,10 @@ pripri小知识,出自机械设定片貝文洋
 开始我也是这么想的，公主单独站有点不一般。但按现在第四顺位这个信息开基本只有这个可能。而你的推测完全不成立。
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 1869#       发表于 2017-7-27 10:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36699063&amp;ptid=1486439" target="_blank">liangxuanchi 发表于 2017-7-27 09:20</a>
@@ -7982,16 +5457,10 @@ pripri小知识,出自机械设定片貝文洋
 说白了，就是类似“太孙制”。
 
 
-
-
-
-
-
 -----
 
 ####  liangxuanchi  
 ##### 1870#       发表于 2017-7-27 10:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36699425&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-7-27 09:54</a>
@@ -8000,32 +5469,19 @@ pripri小知识,出自机械设定片貝文洋
 就算都是你说的情况，也有另一种可能性啊，比如王室这些年死的就剩除了女王之外4个人了，这四个人自然就是一二三四的顺序了，也能解释照片上那种情况。要说安洁上面的哥哥姐姐都跑中间去站着了，就一个最小的妹妹在右边孤零零站着没人管，第二代除了太子有4个孩子之外集体绝育也没点原因，我是不大信的。
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 1871#       发表于 2017-7-27 10:10
 
 
-
-
 是的，为什么不看好第四顺位的公主呢？因为公主的哥哥姐姐早已成年，如果她们再生孩子的话那公主就得继续排后了。可见公主的处境就如同女王最小儿子的大公，即使实力够了但在顺位还是上离女王之位还差的老远。所以自然没人看好公主。
-
-
-
-
-
 
 
 -----
 
 ####  liangxuanchi  
 ##### 1872#       发表于 2017-7-27 10:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36699514&amp;ptid=1486439" target="_blank">望月凝香 发表于 2017-7-27 10:00</a>
@@ -8039,32 +5495,19 @@ pripri小知识,出自机械设定片貝文洋
 不过这样还是有疑问，那英国应该也没有女王长子之外必须做绝育手术这个规定吧？那你看王室的照片，一共就4个第三代，按你说的安洁应该在第四位，前三个小孩都只能是她的亲哥哥亲姐姐，那王室第二代为啥除了长子之外一个孩子都没有？还是非长子的子女不算王室了？
 
 
-
-
-
-
-
 -----
 
 ####  间咒  
 ##### 1873#       发表于 2017-7-27 10:19
 
 
-
-
 有没可能，父亲是皇太子，但是母亲是身份低贱的平民或女仆，导致虽然有第四顺位的名号，但实际上没人看好，在皇室待遇也不好，这就能解释为什么照片上是单独站一边了。
-
-
-
-
-
 
 
 -----
 
 ####  漫区专号  
 ##### 1874#       发表于 2017-7-27 10:21
-
 
 
  本帖最后由 漫区专号 于 2017-7-27 10:29 编辑 
@@ -8078,16 +5521,10 @@ pripri小知识,出自机械设定片貝文洋
 至于皇室只剩4个人，这个不是不可能。但（1）安洁的父母是死于革命，（2）安洁父母不在全家福内。如果安洁不是皇太子的女儿，那就说明照片是拍摄于革命之后。革命之后皇室还短时间内大量死亡，这个不太可能。可见全家福就应该是拍摄于革命前，那自然安洁的父母应该在照片内，那么安洁最近的就是皇太子一家，安洁应是皇太子的女儿。
 
 
-
-
-
-
-
 -----
 
 ####  万千百十  
 ##### 1875#       发表于 2017-7-27 10:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36699677&amp;ptid=1486439" target="_blank">liangxuanchi 发表于 2017-7-27 10:14</a>
@@ -8099,14 +5536,8 @@ pripri小知识,出自机械设定片貝文洋
 我怀疑你根本没看。
 
 
-
-
-
-
 200823xlbu2aula6u26pp6.jpeg
 (182.02 KB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -8115,24 +5546,7 @@ pripri小知识,出自机械设定片貝文洋
 2017-7-27 10:34 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/27/103412gkmlee85x8sksss5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -8141,21 +5555,13 @@ pripri小知识,出自机械设定片貝文洋
 ##### 1876#       发表于 2017-7-27 10:40
 
 
-
-
 小跟班那句“连海军大臣也说不上是盟友”，恐怕海军大臣就是公主母亲的娘家吧。再说了，LLX里尤菲继承顺序100开外一样可以用继承权换zero的命，公主第四位继承已经很前了
-
-
-
-
-
 
 
 -----
 
 ####  bird-lay  
 ##### 1877#       发表于 2017-7-27 10:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36699915&amp;ptid=1486439" target="_blank">万千百十 发表于 2017-7-27 10:34</a>
@@ -8166,16 +5572,10 @@ pripri小知识,出自机械设定片貝文洋
 我一开始把女王的大儿子当成了她的丈夫…
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 1878#       发表于 2017-7-27 11:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36699915&amp;ptid=1486439" target="_blank">万千百十 发表于 2017-7-27 10:34</a>
@@ -8184,17 +5584,10 @@ pripri小知识,出自机械设定片貝文洋
 按这个图，革命的**就是英国版萨拉热窝？王储夫妇被暗杀，导致大清洗最终招致叛乱？
 
 
-
-
-
-
-
 -----
 
 ####  saturnus  
 ##### 1879#       发表于 2017-7-27 12:09
-
-
 
 
 哈哈，那么问题又来了，如果以上猜测成立，皇太子死于革命，那金毛灰毛其中之一应该会对共和国完全不感冒吧？所以真假公主必然有一个是天然黑<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">？
@@ -8204,16 +5597,10 @@ pripri小知识,出自机械设定片貝文洋
 [  -- 来自能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 1880#       发表于 2017-7-27 13:22
-
 
 
  本帖最后由 漫区专号 于 2017-7-27 13:25 编辑 
@@ -8230,25 +5617,13 @@ pripri小知识,出自机械设定片貝文洋
 然而考虑到开头的疑问，我自己都觉得不靠谱。想来想去猜不透…
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1881#       发表于 2017-7-27 16:30
 
 
-
-
 第三集不是还有说有一个皇太子殿下？…
-
-
-
-
-
 
 
 -----
@@ -8257,24 +5632,16 @@ pripri小知识,出自机械设定片貝文洋
 ##### 1882#         楼主| 发表于 2017-7-27 16:53
 
 
-
-
 秋谷✜有紀恵‏ @akiyayukie  
 
  プリンセスプリンシパル一話コンテ表紙なんだなぁ。あったんだなぁ
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fhyjkvwz5lj20sj0xcdjm.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 1883#       发表于 2017-7-27 17:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36701731&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-7-27 13:22</a>
@@ -8291,32 +5658,19 @@ pripri小知识,出自机械设定片貝文洋
 又要当女王又要拆墙才能在一起，那只能是罗密欧和朱丽叶的发展了。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1884#       发表于 2017-7-27 17:15
 
 
-
-
 当了女王拆了墙也可以归隐啊，参考鲁路修
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 1885#       发表于 2017-7-27 18:31
-
 
 
 [一般会社员Nagi_菲伊中毒](http://weibo.com/nagimagica?refer_flag=1001030103_) [#Princess Principal#](http://huati.weibo.com/k/Princess+Principal?from=526) 网页链比阿特丽斯一边想象着公主一边偷偷用公主的声线默念“比阿特、比阿特、我可爱的比阿特……”被安洁发现的修罗场<img src="http://img.t.sinajs.cn/t4/appstyle/expression/ext/normal/b6/doge_org.gif" referrerpolicy="no-referrer"> ​
@@ -8331,24 +5685,13 @@ pripri小知识,出自机械设定片貝文洋
 2017-7-27 18:30 上传
 
 
-
-
-
-
 比阿特丽斯一边想象着公主一边偷偷用公主的声线默念“比阿特、比阿特、我可爱的比阿特……”被安洁发现的修罗场
-
-
-
-
-
-
 
 
 -----
 
 ####  lmx20  
 ##### 1886#       发表于 2017-7-27 18:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36704599&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-27 18:31</a>
@@ -8362,14 +5705,7 @@ pripri小知识,出自机械设定片貝文洋
 ##### 1887#       发表于 2017-7-27 18:47
 
 
-
-
 这里有一张桌子
-
-
-
-
-
 
 
 -----
@@ -8378,16 +5714,10 @@ pripri小知识,出自机械设定片貝文洋
 ##### 1888#       发表于 2017-7-27 19:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36704748&amp;ptid=1486439" target="_blank">killng 发表于 2017-7-27 18:47</a>
 
 这里有一张桌子</blockquote>
 是不是还得是方桌才行。。。
-
-
-
-
-
 
 
 -----
@@ -8396,14 +5726,7 @@ pripri小知识,出自机械设定片貝文洋
 ##### 1889#       发表于 2017-7-27 19:04
 
 
-
-
 安洁说的白房子我有种感觉，应该会用上的。不过就不知道是安洁一个人回到房子还是和公主一起了
-
-
-
-
-
 
 
 -----
@@ -8412,14 +5735,7 @@ pripri小知识,出自机械设定片貝文洋
 ##### 1890#       发表于 2017-7-27 19:08
 
 
-
-
 英国这继承法清晰的不得了，不懂装懂的人怎么这么多
-
-
-
-
-
 
 
 -----
@@ -8428,24 +5744,16 @@ pripri小知识,出自机械设定片貝文洋
 ##### 1891#       发表于 2017-7-27 19:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36704885&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-27 19:01</a>
 
 是不是还得是方桌才行。。。</blockquote>
 ……够了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1892#       发表于 2017-7-27 20:40
-
-
 
 
 スマホアプリゲーム『プリンセス・プリンシパル GOM』事前登録数2万人突破を記念して、TVアニメ第1～2話の期間限定無料配信が決定しました！
@@ -8457,16 +5765,10 @@ pripri小知识,出自机械设定片貝文洋
 #pripri
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1893#       发表于 2017-7-27 20:42
-
 
 
 <blockquote>神之叹息 发表于 2017-7-27 20:40
@@ -8474,17 +5776,10 @@ pripri小知识,出自机械设定片貝文洋
 一万到两万倒还挺快的
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1894#       发表于 2017-7-27 20:42
-
-
 
 
 高橋諒［Void_Chords］‏ @RyoTakahashi111  23小时23小时前
@@ -8503,16 +5798,10 @@ pripri小知识,出自机械设定片貝文洋
 【B面の仕掛け】”Drive My Fate”は同作EDテーマ“A Page of My Story”と同じメロディーを用いてAcid Jazz/R&amp;Bスタイルで再解釈した5人のifの物語になっています。8/2リリースの本作と共鳴する詞の世界と演奏の違いをぜひお楽しみください！
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1895#       发表于 2017-7-27 20:58
-
 
 
 【プリンセス・プリンシパル】缶'sコレクション、スタンド付きアクリルキーホルダーコレクションが好評予約受付中！要チェックです！ [https://goo.gl/UkrSj8 ](https://t.co/ZvgkxpfH2m)　#<strong>pripri</strong>
@@ -8528,10 +5817,6 @@ pripri小知识,出自机械设定片貝文洋
 2017-7-27 20:57 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/27/205731dyfrpibn1zgneeob.jpg" referrerpolicy="no-referrer">
 
 
@@ -8540,9 +5825,6 @@ pripri小知识,出自机械设定片貝文洋
 下载附件
 
 2017-7-27 20:57 上传
-
-
-
 
 
 【プリンセス・プリンシパル】アクリルキーホルダー　アンジェ、プリンセス、ドロシー、ベアトリス、ちせが登場！要チェック☆ [http://buff.ly/2urPDdk ](https://t.co/jgvGBaU4uz)　[#<strong>pripri</strong>](https://twitter.com/hashtag/pripri?src=hash)
@@ -8557,26 +5839,13 @@ pripri小知识,出自机械设定片貝文洋
 2017-7-27 20:58 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1896#       发表于 2017-7-27 21:03
 
 
-
 <[strong>あだち</strong>‏ @<strong>adachifumio333</strong>](https://twitter.com/adachifumio333)  [3小时3小时前](https://twitter.com/adachifumio333/status/890511874076188673)更多
-
 
 
 3話を見てない人にはよくわからん漫画　[#<strong><strong>pripri</strong></strong>](https://twitter.com/hashtag/pripri?src=hash) [#<strong>プリンセスプリンシパル</strong>](https://twitter.com/hashtag/%E3%83%97%E3%83%AA%E3%83%B3%E3%82%BB%E3%82%B9%E3%83%97%E3%83%AA%E3%83%B3%E3%82%B7%E3%83%91%E3%83%AB?src=hash)
@@ -8592,21 +5861,10 @@ pripri小知识,出自机械设定片貝文洋
 2017-7-27 21:00 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1897#       发表于 2017-7-27 21:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36705730&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-27 20:42</a>
@@ -8615,16 +5873,10 @@ pripri小知识,出自机械设定片貝文洋
 毕竟动画都放了三集了。。感觉还是慢了
 
 
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 1898#       发表于 2017-7-27 21:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36705915&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-27 21:03</a>
@@ -8633,16 +5885,10 @@ pripri小知识,出自机械设定片貝文洋
 不就是个帝国吗，看我把它推平了。
 
 
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 1899#       发表于 2017-7-27 21:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36704914&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-27 19:04</a>
@@ -8671,25 +5917,13 @@ pripri小知识,出自机械设定片貝文洋
 “欢迎回来，夏洛特。”
 
 
-
-
-
-
-
-
 “bang！”<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  索尔之怒  
 ##### 1900#       发表于 2017-7-27 21:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36706063&amp;ptid=1486439" target="_blank">古桥一浩 发表于 2017-7-27 21:21</a>
@@ -8710,16 +5944,10 @@ pripri小知识,出自机械设定片貝文洋
 “安洁……”
 
 
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 1901#       发表于 2017-7-27 21:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36706206&amp;ptid=1486439" target="_blank">索尔之怒 发表于 2017-7-27 21:36</a>
@@ -8734,16 +5962,10 @@ pripri小知识,出自机械设定片貝文洋
 悲剧才是一切。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  凡人  
 ##### 1902#       发表于 2017-7-27 22:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36706063&amp;ptid=1486439" target="_blank">古桥一浩 发表于 2017-7-27 21:21</a>
@@ -8756,17 +5978,10 @@ pripri小知识,出自机械设定片貝文洋
 另外一边，公主在断头台前，望了望高耸的伦敦墙，隐约回忆起了和安洁在屋顶相会的那个早晨<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 1903#       发表于 2017-7-27 22:29
-
-
 
 
 比安特说“虽然不知道你工资是多少”的时候，我还以为下一句是“我付你双倍”呢。
@@ -8774,16 +5989,10 @@ pripri小知识,出自机械设定片貝文洋
 然后想说别人年纪轻轻，就已经在卡萨布兰卡有不动产了，工资还真不低。
 
 
-
-
-
-
-
 -----
 
 ####  钢琴猫  
 ##### 1904#       发表于 2017-7-27 22:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36706604&amp;ptid=1486439" target="_blank">ahyyk 发表于 2017-7-27 22:29</a>
@@ -8794,16 +6003,10 @@ pripri小知识,出自机械设定片貝文洋
 买房  是靠工资吗？ （意味深）
 
 
-
-
-
-
-
 -----
 
 ####  欧阳明  
 ##### 1905#       发表于 2017-7-27 23:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36706785&amp;ptid=1486439" target="_blank">钢琴猫 发表于 2017-7-27 22:51</a>
@@ -8812,16 +6015,10 @@ pripri小知识,出自机械设定片貝文洋
 没错，间谍这种工作，搞灰色收入的机会还是很多的吧
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1906#       发表于 2017-7-27 23:25
-
 
 
  本帖最后由 神之叹息 于 2017-7-27 23:29 编辑 
@@ -8834,16 +6031,10 @@ pripri小知识,出自机械设定片貝文洋
 像间谍这样的，如果到了年纪还没挂掉，退出的话。。组织会帮其改身份，给个落脚处养老吗？。。
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 1907#       发表于 2017-7-27 23:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36706500&amp;ptid=1486439" target="_blank">凡人 发表于 2017-7-27 22:16</a>
@@ -8852,17 +6043,10 @@ pripri小知识,出自机械设定片貝文洋
 不愧是扭曲本源s1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1908#       发表于 2017-7-27 23:30
-
-
 
 
 TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  16分16分钟前
@@ -8882,16 +6066,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  16分1
 #pripri
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1909#       发表于 2017-7-27 23:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36706063&amp;ptid=1486439" target="_blank">古桥一浩 发表于 2017-7-27 21:21</a>
@@ -8904,16 +6082,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  16分1
 你们总想搞个大新闻，然而大河内记得吃药啦<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  crazymarky  
 ##### 1910#       发表于 2017-7-27 23:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36699063&amp;ptid=1486439" target="_blank">liangxuanchi 发表于 2017-7-27 09:20</a>
@@ -8924,26 +6096,15 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  16分1
 你知道为啥朱标死了是朱允炆继位么？
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1911#       发表于 2017-7-27 23:38
 
 
-
 <blockquote>欧阳明 发表于 2017-7-27 23:21
 没错，间谍这种工作，搞灰色收入的机会还是很多的吧</blockquote>
 当然是靠拆迁啦
-
-
-
-
-
 
 
 -----
@@ -8952,16 +6113,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  16分1
 ##### 1912#       发表于 2017-7-27 23:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36699423&amp;ptid=1486439" target="_blank">万千百十 发表于 2017-7-27 09:53</a>
 
 大河内不至于对英国王位继承法一无所知而套用什么中国继承法，伊丽莎白二世也是有二儿子的，夏洛特公主依 ...</blockquote>
 问题是中国皇位也是这个法啊，朱标死了就立朱允炆，而不是朱棣（老二老三死在老朱前面）
-
-
-
-
-
 
 
 -----
@@ -8970,23 +6125,16 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  16分1
 ##### 1913#       发表于 2017-7-28 01:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36707205&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-27 23:38</a>
 
 当然是靠拆迁啦</blockquote>
 不不，比方说要去暗杀某某大臣，提前买对冲基金？
 
 
-
-
-
-
-
 -----
 
 ####  欧阳明  
 ##### 1914#       发表于 2017-7-28 01:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36707104&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-27 23:25</a>
@@ -8997,27 +6145,15 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  16分1
 要是讲就不会有“讲好话三年，三年之后又三年，三年之后再三年，加加埋埋都就黎十年啦！”
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 1915#       发表于 2017-7-28 08:03
 
 
-
-
 间谍两边拿工资，所以算是打工20年。再加上各种灰色收入黑吃黑内幕消息，辛辛苦苦买了房，但妹子还是不跟她走。
 
 那么问题来了，安洁到底是混步行街的还是大漩涡的？
-
-
-
-
-
 
 
 -----
@@ -9026,16 +6162,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  16分1
 ##### 1916#       发表于 2017-7-28 09:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36707104&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-27 23:25</a>
 像间谍这样的，如果到了年纪还没挂掉，退出的话。。组织会帮其改身份，给个落脚处养老吗？。。 ...</blockquote>
 年纪大了坐办公室呗
 指挥新的年轻人送死
-
-
-
-
-
 
 
 -----
@@ -9044,19 +6174,11 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  16分1
 ##### 1917#       发表于 2017-7-28 09:18
 
 
-
-
 图
-
-
-
-
 
 
 F48B70F6D2745D7AB3D5AD86D0136CA8.jpg
 (67.17 KB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -9065,24 +6187,7 @@ F48B70F6D2745D7AB3D5AD86D0136CA8.jpg
 2017-7-28 09:18 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/28/091839txxtg5jvyryrhz2y.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -9091,23 +6196,16 @@ F48B70F6D2745D7AB3D5AD86D0136CA8.jpg
 ##### 1918#       发表于 2017-7-28 09:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36709196&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-28 09:18</a>
 
 图</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我就知道
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1919#       发表于 2017-7-28 09:25
-
 
 
 <blockquote>神之叹息 发表于 2017-7-28 09:18
@@ -9118,16 +6216,10 @@ F48B70F6D2745D7AB3D5AD86D0136CA8.jpg
 全新play get
 
 
-
-
-
-
-
 -----
 
 ####  6030sylar  
 ##### 1920#       发表于 2017-7-28 09:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36709196&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-28 09:18</a>
@@ -9136,27 +6228,15 @@ F48B70F6D2745D7AB3D5AD86D0136CA8.jpg
 洁哥不要
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 1921#       发表于 2017-7-28 09:50
 
 
-
-
 那是公主，不是安洁吧
 
 是安洁的话两个人这样那样的时候，一起喊公主的名字，这得多扭曲啊……恩，百目鬼和五月七日？
-
-
-
-
-
 
 
 -----
@@ -9165,17 +6245,10 @@ F48B70F6D2745D7AB3D5AD86D0136CA8.jpg
 ##### 1922#       发表于 2017-7-28 11:15
 
 
-
-
 其实我最好奇的是：第一话直接就是case13，这么一来后面case1到12做完直接完结了，怎么发展剧情…当然出个14、15话展开两下也有可能，不过这个长度不太常见啊
 要加新case，要么跳过几个，要么把几个合并。后者可能性大些，不过就是标题的整齐得丢了
 
 [  -- 来自带麻将脸的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -9184,16 +6257,10 @@ F48B70F6D2745D7AB3D5AD86D0136CA8.jpg
 ##### 1923#       发表于 2017-7-28 11:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36710622&amp;ptid=1486439" target="_blank">未来起航 发表于 2017-7-28 11:15</a>
 
 其实我最好奇的是：第一话直接就是case13，这么一来后面case1到12做完直接完结了，怎么发展剧情…当然出个1 ...</blockquote>
 下一集是case9
-
-
-
-
-
 
 
 -----
@@ -9202,15 +6269,9 @@ F48B70F6D2745D7AB3D5AD86D0136CA8.jpg
 ##### 1924#       发表于 2017-7-28 14:09
 
 
-
 <blockquote>神之叹息 发表于 2017-7-28 09:18
 图</blockquote>
 这图我也倾向于是腹黑公主，而且女仆发出的也不是正常的娇喘，而是模糊沙哑的，像第三季那样坏掉了的声音。。。
-
-
-
-
-
 
 
 -----
@@ -9219,21 +6280,13 @@ F48B70F6D2745D7AB3D5AD86D0136CA8.jpg
 ##### 1925#       发表于 2017-7-28 14:21
 
 
-
-
 深喉 变声play这高端玩法一般人玩不来。
-
-
-
-
-
 
 
 -----
 
 ####  钢琴猫  
 ##### 1926#       发表于 2017-7-28 14:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36709586&amp;ptid=1486439" target="_blank">ahyyk 发表于 2017-7-28 09:50</a>
@@ -9244,16 +6297,10 @@ F48B70F6D2745D7AB3D5AD86D0136CA8.jpg
 <img src="https://static.saraba1st.com/image/smiley/face/105.gif" referrerpolicy="no-referrer">人渣的本愿……
 
 
-
-
-
-
-
 -----
 
 ####  未来起航  
 ##### 1927#       发表于 2017-7-28 17:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36710670&amp;ptid=1486439" target="_blank">丹德里恩 发表于 2017-07-28 11:18:32</a>
@@ -9262,17 +6309,10 @@ F48B70F6D2745D7AB3D5AD86D0136CA8.jpg
 [  -- 来自能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  凡人  
 ##### 1928#       发表于 2017-7-28 17:37
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201707/28/173726e5oog5cf5oijg179.jpg" referrerpolicy="no-referrer">
@@ -9285,30 +6325,13 @@ F48B70F6D2745D7AB3D5AD86D0136CA8.jpg
 2017-7-28 17:37 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  凡人  
 ##### 1929#       发表于 2017-7-28 17:39
 
 
-
-
 没想到prpr的世界观里还有中国啊。
-
-
-
-
-
 
 
 -----
@@ -9317,23 +6340,15 @@ F48B70F6D2745D7AB3D5AD86D0136CA8.jpg
 ##### 1930#       发表于 2017-7-28 17:45
 
 
-
-
 这人设<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 明明其他角色都挺好看的。。。
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 1931#       发表于 2017-7-28 17:54
-
 
 
  本帖最后由 神之叹息 于 2017-7-28 17:55 编辑 
@@ -9347,9 +6362,6 @@ F48B70F6D2745D7AB3D5AD86D0136CA8.jpg
 下载附件
 
 2017-7-28 17:49 上传
-
-
-
 
 
 CV.山村響
@@ -9368,10 +6380,7 @@ CV.山村響
 2017-7-28 17:49 上传
 
 
-
-
 CV.田中あいみ共和国首都のナイトクラブで金持ちに大人気の歌姫。各国で公演を行いながら、要人に取り入り情報を聞き出している。裏表があまりなく、遊びやスポーツに近い感覚で諜報活動を行う。上品なチャイナドレスと片言のしゃべり方が特徴。 
-
 
 
 <img src="https://img.saraba1st.com/forum/201707/28/174914slh3hylg4ly4y4l2.png" referrerpolicy="no-referrer">
@@ -9384,21 +6393,13 @@ CV.田中あいみ共和国首都のナイトクラブで金持ちに大人気�
 2017-7-28 17:49 上传
 
 
-
-
 CV.宮森春華人形のような外見をした少女。感情が希薄で、常に虚空を見つめている。子供のように見えるが、実年齢はもっと高いらしい。異常に鋭い聴覚と音波を操る能力を生かし、任務に協力する。
-
-
-
-
-
 
 
 -----
 
 ####  索尔之怒  
 ##### 1932#       发表于 2017-7-28 18:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36707216&amp;ptid=1486439" target="_blank">crazymarky 发表于 2017-7-27 23:40</a>
@@ -9411,25 +6412,13 @@ pongyou，等一等！
 同样是你说的明朝继承，土木之变后继英宗位的可不是太子，是太子他二大爷啊
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1933#       发表于 2017-7-28 18:23
 
 
-
-
 我是觉得11区对中国角色的印象是不是都穿旗袍啥的？
-
-
-
-
-
 
 
 -----
@@ -9438,14 +6427,8 @@ pongyou，等一等！
 ##### 1934#       发表于 2017-7-28 18:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36714444&amp;ptid=1486439" target="_blank">凡人 发表于 2017-7-28 17:37</a></blockquote>
 姓朱?設定上明朝沒亡嗎
-
-
-
-
-
 
 
 -----
@@ -9454,23 +6437,15 @@ pongyou，等一等！
 ##### 1935#       发表于 2017-7-28 18:49
 
 
-
 <blockquote>D-JoeII 发表于 2017-7-28 18:30
 姓朱?設定上明朝沒亡嗎</blockquote>
 prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该早亡了，这位顶多是个朱三公主。
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 1936#       发表于 2017-7-28 19:05
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201707/28/190421xv4obj80tutg86uo.jpg" referrerpolicy="no-referrer">
@@ -9483,23 +6458,13 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 2017-7-28 19:04 上传
 
 
-
-
-
-
 [#Princess Principal#](http://huati.weibo.com/k/Princess+Principal?from=526) 新和凉太太的脑洞：万一公主挂了，活下来的安洁和比阿特各自拥有和公主相同的长相和声音，由于互补而相互慰藉的依存关系……简直有毒！<img src="http://img.t.sinajs.cn/t4/appstyle/expression/ext/normal/70/88_org.gif" referrerpolicy="no-referrer">"> ​
-
-
-
-
-
 
 
 -----
 
 ####  6030sylar  
 ##### 1937#       发表于 2017-7-28 19:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36715097&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-28 19:05</a>
@@ -9511,7 +6476,6 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 
 ####  lmx20  
 ##### 1938#       发表于 2017-7-28 19:49
-
 
 
  本帖最后由 lmx20 于 2017-7-28 19:52 编辑 
@@ -9542,16 +6506,10 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
    
 
 
-
-
-
-
-
 -----
 
 ####  saturnus  
 ##### 1939#       发表于 2017-7-28 19:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36715378&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-07-28 19:49:27</a>
@@ -9568,16 +6526,10 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 [  -- 来自 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 1940#       发表于 2017-7-28 19:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36715378&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-7-28 19:49</a>
@@ -9592,16 +6544,10 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 但让公主毫无意义地暴露不可理喻。只能理解为第一集，需要介绍一下主角群。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1941#       发表于 2017-7-28 20:05
-
 
 
 <blockquote>lmx20 发表于 2017-7-28 19:49
@@ -9614,16 +6560,10 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 拿什么上报？
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 1942#       发表于 2017-7-28 20:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36715255&amp;ptid=1486439" target="_blank">6030sylar 发表于 2017-7-28 19:29</a>
@@ -9632,16 +6572,10 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 第2话表明，安洁可以完美的模仿公主额声音用不着贝阿特。
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 1943#       发表于 2017-7-28 20:11
-
 
 
  本帖最后由 lmx20 于 2017-7-28 20:19 编辑 
@@ -9655,11 +6589,6 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 下载附件
 
 2017-7-28 20:02 上传
-
-
-
-
-
 
 
 不知道有没大神能看出这个纸条里写的是什么
@@ -9693,16 +6622,10 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
       
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1944#       发表于 2017-7-28 20:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36715526&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-7-28 20:11</a>
@@ -9716,25 +6639,13 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 但看样子下集又不是她的入队回，不清楚监督和脚本是怎么安排的。千世入队怎么说也不是一件可以完全忽略的事件吧。比阿特是公主仆人，跟着进来也是可以接受的。但千世怎么都感觉和C组织没什么联系，难道也是收容所选来的？这样就感觉好套路了
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1945#       发表于 2017-7-28 20:17
 
 
-
-
 我感觉剧情已经没什么好谈的了，说再多也是瞎脑洞，不如静候周日
-
-
-
-
-
 
 
 -----
@@ -9743,16 +6654,10 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 ##### 1946#       发表于 2017-7-28 20:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36715496&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-7-28 20:06</a>
 
 第2话表明，安洁可以完美的模仿公主额声音用不着贝阿特。</blockquote>
 所以说如果公主挂了，安洁还可以打扮成公主的模样，然后。。。<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">无限循环~
-
-
-
-
-
 
 
 -----
@@ -9761,14 +6666,7 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 ##### 1947#       发表于 2017-7-28 20:18
 
 
-
-
 怎么说第一集case13里主角团端了公安部都惹了一身骚，当然这是L的决定吧，公爵肯定会调查。其实还是公主的问题比较大，随着她和C组织的“合作”越来越紧密，就越容易暴露自己和安洁。如果说安洁自己扮演公主就没那么多事，但相应麻烦程度也高很多。虽然公主是空气，但那种是被迫的。公爵不可能放任公主不管，但公主没和安洁联手之前还说的过去。一旦公主走近权力的中心，妥妥要和公爵一派有冲突。
-
-
-
-
-
 
 
 -----
@@ -9777,21 +6675,13 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 ##### 1948#       发表于 2017-7-28 20:21
 
 
-
-
 我总感觉L会找机会借刀杀人，把公主干掉。L不可能信任公主，一天让这公主在眼皮底下做事估计睡不着觉。或者说L找更多涉及王国机密的事来让她完成，试探她的底线，和逼着她露出尾巴
-
-
-
-
-
 
 
 -----
 
 ####  lmx20  
 ##### 1949#       发表于 2017-7-28 20:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36715575&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-28 20:18</a>
@@ -9808,16 +6698,10 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 不知道是公主同共和国的交易还是共和国主动出击
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1950#       发表于 2017-7-28 20:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36715603&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-7-28 20:22</a>
@@ -9830,32 +6714,19 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 如果是共和国主动出手，我想到的只能是L在抢一个先机，先下手为强了。毕竟在人家地盘，不打草惊蛇是最基本的原则。但你把对面的一个公安部的头给掳走了，这就是在向公爵示意要搞事了，而且第一集还没说道组织在金布尔这里拿到了什么情报。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1951#       发表于 2017-7-28 20:27
 
 
-
-
 估计在case13之前还有一集是紧密连着第一集的，就是不知道是caseX？
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 1952#       发表于 2017-7-28 20:34
-
 
 
 【期間限定無料配信】『プリンセス・プリンシパル』第1話・第2話の無料配信は7/30（日）23：59迄！！ 7/30（日）22：30～第3話見逃しライブ配信 7/30（日）23：00～第4話TV放送開始配信はこちら→[http://ch.nicovideo.jp/pripri-anime ](https://t.co/v83bvKdzVi) [#<strong>pripri</strong>](https://twitter.com/hashtag/pripri?src=hash)
@@ -9871,17 +6742,7 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 2017-7-28 20:30 上传
 
 
-
-
-
-
-
 我在想如果是补番的话，过渡回的第三集就不会那么多吐槽了，老是和第一二集来比，反正当是动作片看过去就是了。当然不太在意细节的话其实第三集水准还是中上一点的，虽然第三集也没多少剧情细节可以抠，更多的像是百合宣言。
-
-
-
-
-
 
 
 -----
@@ -9890,15 +6751,9 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 ##### 1953#       发表于 2017-7-28 20:35
 
 
-
 <blockquote>神之叹息 发表于 2017-7-28 20:16
 千世又不是哪边国的人，她确实容易反水。而且世界观下，虽然共和国和王国是两个大国对峙，但之外的其他小 ...</blockquote>
 千世不是重要角色入队一笔带过。或者千世的入队回有可以将剧情反转的坑，所以要留在更后面的地方。
-
-
-
-
-
 
 
 -----
@@ -9907,10 +6762,7 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 ##### 1954#       发表于 2017-7-29 00:51
 
 
-
  本帖最后由 UMINEKO9 于 2017-7-29 00:56 编辑 
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201707/29/005432p2c1iu2uujm1j91o.jpg" referrerpolicy="no-referrer">
@@ -9923,9 +6775,6 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 2017-7-29 00:54 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/29/005434zn5u51i58oioqxj2.jpg" referrerpolicy="no-referrer">
 
 
@@ -9934,9 +6783,6 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 下载附件
 
 2017-7-29 00:54 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201707/29/005435hcryqz8y7eqk1xce.jpg" referrerpolicy="no-referrer">
@@ -9949,9 +6795,6 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 2017-7-29 00:54 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/29/005439ru53u3oqshbq8m3g.jpg" referrerpolicy="no-referrer">
 
 
@@ -9960,9 +6803,6 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 下载附件
 
 2017-7-29 00:54 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201707/29/005440t7ctjtj5nywdyjwz.jpg" referrerpolicy="no-referrer">
@@ -9975,9 +6815,6 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 2017-7-29 00:54 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/29/005623fixw0408jffy8mqj.jpg" referrerpolicy="no-referrer">
 
 
@@ -9986,9 +6823,6 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 下载附件
 
 2017-7-29 00:56 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201707/29/005620hndezj6a8fl33juj.jpg" referrerpolicy="no-referrer">
@@ -10001,20 +6835,7 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 2017-7-29 00:56 上传
 
 
-
-
-
-
-
-
-
 安洁这人设真是越看越喜欢，又骚又帅伪装的时候还很软又不失人情味<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
@@ -10023,23 +6844,15 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 ##### 1955#       发表于 2017-7-29 01:19
 
 
-
-
 3hz真是百合社呀，吼
 
 —— 来自 LGE Nexus 5, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.2.1-debug
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 1956#       发表于 2017-7-29 06:22
-
 
 
 <blockquote>UMINEKO9 发表于 2017-7-29 00:51
@@ -10050,17 +6863,10 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 最后一张图不对吧233
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1957#       发表于 2017-7-29 08:14
-
-
 
 
 现在B吧都这样的？这种帖子居然能撕到那么高的楼…https://tieba.baidu.com/f?kz=5246200053&amp;mo_device=1&amp;ssid=0&amp;from=1012852q&amp;uid=0&amp;pu=usm@1,sz@320_1004,ta@iphone_2_5.1_11_8.9&amp;bd_page_type=1&amp;baiduid=12DA49A1F1D46D4734673D61FD47EB46&amp;tj=www_normal_1_0_10_title?pn=0&amp;
@@ -10069,26 +6875,15 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 看着就笑出声…
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1958#       发表于 2017-7-29 08:38
 
 
-
 <blockquote>神之叹息 发表于 2017-7-29 08:14
 现在B吧都这样的？这种帖子居然能撕到那么高的楼…https://tieba.baidu.com/f?kz=5246200053&amp;mo_device=1&amp;s ...</blockquote>
 这种帖子多半中间就歪到别的话题去或者把话题扩大化了
-
-
-
-
-
 
 
 -----
@@ -10097,15 +6892,9 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 ##### 1959#       发表于 2017-7-29 09:07
 
 
-
 <blockquote>xtwx1716 发表于 2017-7-29 08:38
 这种帖子多半中间就歪到别的话题去或者把话题扩大化了</blockquote>
 动不动就上纲上线的…
-
-
-
-
-
 
 
 -----
@@ -10114,14 +6903,7 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 ##### 1960#       发表于 2017-7-29 09:36
 
 
-
-
 我的智商真的被侮辱了
-
-
-
-
-
 
 
 -----
@@ -10130,19 +6912,11 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 ##### 1961#       发表于 2017-7-29 14:17
 
 
-
-
 转微博@一般会社员Nagi_菲伊中毒
-
-
-
-
 
 
 11B7E42C069C6EB41285D8C18AE5658A.jpg
 (49.51 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -10151,24 +6925,7 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 2017-7-29 14:17 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/29/141733qmz0ee5y6ttltp96.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -10177,23 +6934,16 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 ##### 1962#       发表于 2017-7-29 14:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36699915&amp;ptid=1486439" target="_blank">万千百十 发表于 2017-7-27 10:34</a>
 
 我怀疑你根本没看。</blockquote>
 夏洛特应该不是老大家里的，认为这时候她父母已经死了更合理吧
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 1963#       发表于 2017-7-29 14:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36721096&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-29 14:17</a>
@@ -10204,16 +6954,10 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 不要到最后比阿特也来了那个表情。。。这不也挺好嘛。。。
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 1964#       发表于 2017-7-29 14:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36721096&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-29 14:17</a>
@@ -10224,16 +6968,10 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 我还记得小时候男生不好意思看美战，女生那儿夜礼服假面的声望从无感到鄙视都有，基本没有友好的。
 
 
-
-
-
-
-
 -----
 
 ####  UMINEKO9  
 ##### 1965#       发表于 2017-7-29 15:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36721096&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-29 14:17</a>
@@ -10251,31 +6989,16 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 2017-7-29 15:29 上传
 
 
-
-
-
-
-
-
 大图
 
 
 安洁这池面的不行
 
 
-
-
-
-
-
-
-
 -----
 
 ####  UMINEKO9  
 ##### 1966#       发表于 2017-7-29 15:33
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201707/29/153236ydn9vxn2rhntqina.png" referrerpolicy="no-referrer">
@@ -10288,9 +7011,6 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 2017-7-29 15:32 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/29/153240vf9f06001e3xjxwn.jpg" referrerpolicy="no-referrer">
 
 
@@ -10299,9 +7019,6 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 下载附件
 
 2017-7-29 15:32 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201707/29/153248e9g9p9x6v9ik9065.jpg" referrerpolicy="no-referrer">
@@ -10314,22 +7031,11 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 2017-7-29 15:32 上传
 
 
-
-
-
-
-
 官方和同人都蛮吃这对的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
 
 
 1501273705512.jpg
 (263.7 KB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -10338,24 +7044,7 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 2017-7-29 15:32 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/29/153247w66effz69eareq9s.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -10364,16 +7053,10 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 ##### 1967#       发表于 2017-7-29 16:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36721669&amp;ptid=1486439" target="_blank">UMINEKO9 发表于 2017-7-29 15:33</a>
 
 官方和同人都蛮吃这对的嘛</blockquote>
 第三张是imas里的角色<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10382,15 +7065,9 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 ##### 1968#       发表于 2017-7-29 16:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36721096&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-29 14:17</a>
 转微博@一般会社员Nagi_菲伊中毒</blockquote>
 我…我永远相信3hz.jpg
-
-
-
-
-
 
 
 -----
@@ -10399,23 +7076,16 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 ##### 1969#       发表于 2017-7-29 17:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36721096&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-29 14:17</a>
 
 转微博@一般会社员Nagi_菲伊中毒</blockquote>
 我永远相信大河内.jpg
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 1970#       发表于 2017-7-29 17:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36721134&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-7-29 14:21</a>
@@ -10426,26 +7096,15 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 比阿特：<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  UMINEKO9  
 ##### 1971#       发表于 2017-7-29 18:43
 
 
-
 <blockquote>Kaiserkay 发表于 2017-7-29 16:25
 第三张是imas里的角色</blockquote>
 ……失误，名字是？
-
-
-
-
-
 
 
 -----
@@ -10454,24 +7113,15 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 ##### 1972#       发表于 2017-7-29 18:50
 
 
-
-
 安洁好帅<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 大河内我信你啊
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 1973#       发表于 2017-7-29 18:53
-
-
 
 
 明日7/30(日)開催のワンダーフェスティバル2017[Summer]、メディコス・エンタテインメントブース（3-18）にて「アンジェ」の原型を初公開致します！
@@ -10481,14 +7131,8 @@ prpr的世界应该是在十九世纪末和历史开始不同吧。明朝应该�
 #pripri #wf2017s #ワンダーフェスティバル https://t.co/5zBCev9voy
 
 
-
-
-
-
 IMG_20170729_185138.jpg
 (17.24 KB, 下载次数: 6)
-
-
 
 
 下载附件
@@ -10497,24 +7141,7 @@ IMG_20170729_185138.jpg
 2017-7-29 18:52 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/29/185256j0jr6sirskr6ab6b.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -10523,16 +7150,10 @@ IMG_20170729_185138.jpg
 ##### 1974#       发表于 2017-7-29 19:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36721106&amp;ptid=1486439" target="_blank">MIVIxxx 发表于 2017-7-29 14:18</a>
 
 夏洛特应该不是老大家里的，认为这时候她父母已经死了更合理吧</blockquote>
 一点都不合理。
-
-
-
-
-
 
 
 -----
@@ -10541,82 +7162,39 @@ IMG_20170729_185138.jpg
 ##### 1975#       发表于 2017-7-29 22:19
 
 
-
-
 新图
-
-
-
-
 
 
 DA4F8F727231570932305FBCB2DDFD9A.jpg
 (39.52 KB, 下载次数: 4)
 
 
-
-
 下载附件
 
 
 2017-7-29 22:19 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/29/221920lr2isx6fhbg9e96h.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 2574B60344CB59A9CFA281A895E60951.jpg
 (25.16 KB, 下载次数: 6)
 
 
-
-
 下载附件
 
 
 2017-7-29 22:19 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/29/221939zj4jpqs94vhl447z.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 1976#         楼主| 发表于 2017-7-29 23:38
-
-
 
 
 明日7/30（日）は『プリンセス・プリンシパル』第4話放送！
@@ -10634,25 +7212,13 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fi16io01bvj20lv0lvtaq.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  钢琴猫  
 ##### 1977#       发表于 2017-7-29 23:51
 
 
-
-
 20岁巨乳jk真是懂人心啊 虽然好像有点zz<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10661,16 +7227,9 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 1978#       发表于 2017-7-30 00:05
 
 
-
-
 保持观望。七八岁时怎样的海誓山盟，可以让人十年不见后自然地谈私奔
 
 “欺骗世界”一类的话，我是当做安洁为了缓解示爱失败的尴尬而临场编的俏皮话，公主肯陪着笑笑，这一页就翻过去了
-
-
-
-
-
 
 
 -----
@@ -10679,15 +7238,9 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 1979#       发表于 2017-7-30 06:35
 
 
-
 <blockquote>钢琴猫 发表于 2017-7-29 23:51
 20岁巨乳jk真是懂人心啊 虽然好像有点zz</blockquote>
 那不是更好？无脑巨乳什么的
-
-
-
-
-
 
 
 -----
@@ -10696,16 +7249,10 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 1980#       发表于 2017-7-30 07:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36723311&amp;ptid=1486439" target="_blank">UMINEKO9 发表于 2017-7-29 18:43</a>
 
 ……失误，名字是？</blockquote>
 桜守歌織/百瀬莉緒
-
-
-
-
-
 
 
 -----
@@ -10714,24 +7261,16 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 1981#       发表于 2017-7-30 09:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36724091&amp;ptid=1486439" target="_blank">万千百十 发表于 2017-7-29 19:47</a>
 
 一点都不合理。</blockquote>
 亲生父母的话不会站那么远啊。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1982#       发表于 2017-7-30 10:10
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201707/30/100958kspzogs2ob4m444p.jpg" referrerpolicy="no-referrer">
@@ -10744,28 +7283,13 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 2017-7-30 10:09 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1983#         楼主| 发表于 2017-7-30 10:32
 
 
-
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fi1pelagrbj22mb3t7qv5.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10774,22 +7298,13 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 1984#       发表于 2017-7-30 10:33
 
 
-
-
 大图好评<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 1985#       发表于 2017-7-30 11:26
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201707/30/112533psab1jgg3q0bgx83.jpg" referrerpolicy="no-referrer">
@@ -10802,10 +7317,6 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 2017-7-30 11:25 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/30/112532lsuxbsyj50kkgriw.jpg" referrerpolicy="no-referrer">
 
 
@@ -10814,10 +7325,6 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 下载附件
 
 2017-7-30 11:25 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201707/30/112531rfqlwmm933owhowi.jpg" referrerpolicy="no-referrer">
@@ -10830,10 +7337,6 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 2017-7-30 11:25 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/30/112530zwxqntkt2vqelioz.jpg" referrerpolicy="no-referrer">
 
 
@@ -10842,10 +7345,6 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 下载附件
 
 2017-7-30 11:25 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201707/30/112530s3j01sez7s06b77t.jpg" referrerpolicy="no-referrer">
@@ -10858,10 +7357,6 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 2017-7-30 11:25 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/30/112529z9mmhqbtomgyafeb.jpg" referrerpolicy="no-referrer">
 
 
@@ -10870,10 +7365,6 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 下载附件
 
 2017-7-30 11:25 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201707/30/112528tjf50li0iqgirz0h.jpg" referrerpolicy="no-referrer">
@@ -10886,10 +7377,6 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 2017-7-30 11:25 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/30/112527rjuu0koz5toq7u7d.jpg" referrerpolicy="no-referrer">
 
 
@@ -10898,10 +7385,6 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 下载附件
 
 2017-7-30 11:25 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201707/30/112527p2xvoeo8al6iaeob.jpg" referrerpolicy="no-referrer">
@@ -10914,10 +7397,6 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 2017-7-30 11:25 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/30/112526fabyxnudvu26422l.jpg" referrerpolicy="no-referrer">
 
 
@@ -10926,10 +7405,6 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 下载附件
 
 2017-7-30 11:25 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201707/30/112524lb0o3nqqb0b7aq7g.jpg" referrerpolicy="no-referrer">
@@ -10942,10 +7417,6 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 2017-7-30 11:25 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201707/30/112525q5gfttc4zjctpc2f.jpg" referrerpolicy="no-referrer">
 
 
@@ -10956,30 +7427,13 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 2017-7-30 11:25 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 1986#       发表于 2017-7-30 11:46
 
 
-
-
 多罗西色诱果然是定番233
-
-
-
-
-
 
 
 -----
@@ -10988,21 +7442,14 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 1987#       发表于 2017-7-30 11:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36730961&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-30 11:26</a></blockquote>
 这片的先行图怎么这么多呀<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 1988#       发表于 2017-7-30 11:56
-
 
 
 <blockquote><a href="httphttp://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36731221&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-7-30 11:51</a>
@@ -11012,17 +7459,10 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 这集确实多了点，估计也就这一集。趁热宣传吧，配合这两天N站第1~2话免费放送的势头，今晚又有第3话的。能吸引一波是一波
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 1989#       发表于 2017-7-30 11:58
-
-
 
 
 虽然先行图多
@@ -11030,16 +7470,10 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 但也没什么特别有用的情报
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1990#         楼主| 发表于 2017-7-30 12:40
-
 
 
  本帖最后由 xingenge 于 2017-7-30 12:45 编辑 
@@ -11049,16 +7483,10 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 你缩小原图也会卡 而且有时候S1服务器会删图 我以前很多传到S1图床的图都挂了
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1991#       发表于 2017-7-30 13:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36731694&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-7-30 12:40</a>
@@ -11069,16 +7497,10 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 原来这样
 
 
-
-
-
-
-
 -----
 
 ####  UMINEKO9  
 ##### 1992#       发表于 2017-7-30 14:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36731694&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-7-30 12:40</a>
@@ -11091,16 +7513,10 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 上传到S1的图大概多久会删除？
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1993#         楼主| 发表于 2017-7-30 16:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36732938&amp;ptid=1486439" target="_blank">UMINEKO9 发表于 2017-7-30 14:58</a>
@@ -11109,27 +7525,15 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 不知道 我也不太清楚 有些加载已经很慢 有些干脆裂了
 
 
-
-
-
-
-
 -----
 
 ####  saturnus  
 ##### 1994#       发表于 2017-7-30 16:54
 
 
-
-
 看样子这话皇族们要悉数登场咯<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
 
 [  -- 来自 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -11138,22 +7542,13 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 1995#       发表于 2017-7-30 18:01
 
 
-
-
 敲碗安洁本多萝西本
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 1996#         楼主| 发表于 2017-7-30 18:05
-
-
 
 
 秋谷✜有紀恵‏ @akiyayukie 
@@ -11164,25 +7559,13 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fi22il1vgsj20mb0xbn1q.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 1997#       发表于 2017-7-30 18:42
 
 
-
-
 1999楼是我的，2000L我就不争了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11191,14 +7574,7 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 1998#       发表于 2017-7-30 18:54
 
 
-
-
 2000L表白安洁<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11207,20 +7583,13 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 1999#       发表于 2017-7-30 18:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 希望保持作画稳定，
-
-
-
-
-
 
 
 -----
 
 ####  bird-lay  
 ##### 2000#       发表于 2017-7-30 18:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36734607&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-7-30 18:05</a>
@@ -11233,16 +7602,10 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 多萝西超好评<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2001#       发表于 2017-7-30 19:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36735131&amp;ptid=1486439" target="_blank">革新 发表于 2017-7-30 18:58</a>
@@ -11251,25 +7614,13 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 那是不可能的，这片一开始就透着没钱的气息。作画能看的也就开头两集，第三集已经有崩的迹象了。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  jacklibran  
 ##### 2002#       发表于 2017-7-30 21:05
 
 
-
-
 几点直播来着？
-
-
-
-
-
 
 
 -----
@@ -11278,23 +7629,16 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 2003#       发表于 2017-7-30 21:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36736243&amp;ptid=1486439" target="_blank">jacklibran 发表于 2017-7-30 21:05</a>
 
 几点直播来着？</blockquote>
 十点半
 
 
-
-
-
-
-
 -----
 
 ####  UMINEKO9  
 ##### 2004#       发表于 2017-7-30 21:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36733474&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-7-30 16:11</a>
@@ -11305,16 +7649,10 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 那有没有好一点而且可以用在S1的图床呢？
 
 
-
-
-
-
-
 -----
 
 ####  七夜美琴  
 ##### 2005#       发表于 2017-7-30 21:43
-
 
 
 <blockquote>引用第2005楼UMINEKO9于2017-07-30 21:37发表的  :
@@ -11326,16 +7664,10 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ----发送自 [Xiaomi Redmi Note 4X,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2006#       发表于 2017-7-30 21:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36736537&amp;ptid=1486439" target="_blank">bamboom 发表于 2017-7-30 21:37</a>
@@ -11344,16 +7676,10 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 生放送是22点
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2007#       发表于 2017-7-30 21:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36736243&amp;ptid=1486439" target="_blank">jacklibran 发表于 2017-7-30 21:05</a>
@@ -11370,25 +7696,13 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 22点开始
 
 
-
-
-
-
-
 -----
 
 ####  bamboom  
 ##### 2008#       发表于 2017-7-30 21:52
 
 
-
-
 感觉公主还是公主，只不过是私生子（所以照片上跟家人关系似乎不太好），女主和公主相遇应该是王室承认之前，第二集两人互换名字让大家以为是身份也互换了，互换名字也可能是公主不喜欢自己身份所以会跟夏洛特换名字玩，所以纸条和欢迎回来夏洛特这两段大概是两人小秘密的证明。这样想的话似乎很多地方都能想通了。包括女主为什么一心想要私奔因为从小都是平民，这也是她的解决问题的方式，公主想当女王，也是自身命运环境决定的。
-
-
-
-
-
 
 
 -----
@@ -11397,17 +7711,10 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 2009#         楼主| 发表于 2017-7-30 22:06
 
 
-
-
 黒星紅白‏ @kuroboshi 
 
  この後23時～TOKYO MXにて『プリンセス・プリンシパル』第４話が放送です！ #pripri
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fi29huce3wj20lv0lv767.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11416,14 +7723,7 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 2010#       发表于 2017-7-30 22:07
 
 
-
-
 日本妹已经登场了？
-
-
-
-
-
 
 
 -----
@@ -11432,13 +7732,7 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 2011#       发表于 2017-7-30 22:10
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">奶子！
-
-
-
-
-
 
 
 -----
@@ -11447,13 +7741,7 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 2012#       发表于 2017-7-30 22:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 色诱技术可是真熟练啊
-
-
-
-
-
 
 
 -----
@@ -11462,14 +7750,7 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 2013#       发表于 2017-7-30 22:17
 
 
-
-
 结婚???<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11478,14 +7759,7 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 2014#       发表于 2017-7-30 22:20
 
 
-
-
 安排婚姻也是意料之中吧  不要方<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11494,14 +7768,7 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 2015#       发表于 2017-7-30 22:21
 
 
-
-
 2333 这个闭嘴操作 看笑了
-
-
-
-
-
 
 
 -----
@@ -11510,14 +7777,7 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 2016#       发表于 2017-7-30 22:24
 
 
-
-
 安洁和公主这段对话！
-
-
-
-
-
 
 
 -----
@@ -11526,14 +7786,7 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 2017#       发表于 2017-7-30 22:26
 
 
-
-
 公主不简单啊。。暗示了很多分离几年后安洁还是那个安洁。但是公主已经不是以前的公主了。搞不好安杰要变成被动的一方。
-
-
-
-
-
 
 
 -----
@@ -11542,14 +7795,7 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 2018#       发表于 2017-7-30 22:27
 
 
-
-
 船上的人是杀光了么 话说某人一直在色诱 又不灭口 那肯定早被发现了吧……哦说好不想这些的我错了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11558,13 +7804,7 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 2019#       发表于 2017-7-30 22:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">都灭口了？看起来不像啊？大河内又留悬念
-
-
-
-
-
 
 
 -----
@@ -11573,16 +7813,10 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 2020#       发表于 2017-7-30 22:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36737053&amp;ptid=1486439" target="_blank">钢琴猫 发表于 2017-7-30 22:27</a>
 
 船上的人是杀光了么 话说某人一直在色诱 又不灭口 那肯定早被发现了吧……哦说好不想这些的我错了 ...</blockquote>
 也可能弃暗投明加入革命事业了<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11591,14 +7825,7 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 2021#       发表于 2017-7-30 22:30
 
 
-
-
 一船的人，估计又是被组织请去喝茶了吧。。
-
-
-
-
-
 
 
 -----
@@ -11607,14 +7834,7 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 2022#       发表于 2017-7-30 22:31
 
 
-
-
 连着两集心疼安洁，监督，不是说好的亲女儿吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11623,14 +7843,7 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 2023#       发表于 2017-7-30 22:34
 
 
-
-
 这集好看
-
-
-
-
-
 
 
 -----
@@ -11639,16 +7852,10 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 2024#       发表于 2017-7-30 22:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36737063&amp;ptid=1486439" target="_blank">qqwliao 发表于 2017-7-30 22:28</a>
 
 都灭口了？看起来不像啊？大河内又留悬念</blockquote>
 不会有的了，估计下一集又得跳一段了
-
-
-
-
-
 
 
 -----
@@ -11657,14 +7864,7 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 2025#       发表于 2017-7-30 22:39
 
 
-
-
 大河内飚车了(物理)
-
-
-
-
-
 
 
 -----
@@ -11673,13 +7873,7 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 2026#       发表于 2017-7-30 22:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 按照大河内继续还有2集高质量可以安心看。第七集就是考验大河内是否真吃药的时候了
-
-
-
-
-
 
 
 -----
@@ -11688,22 +7882,13 @@ DA4F8F727231570932305FBCB2DDFD9A.jpg
 ##### 2027#       发表于 2017-7-30 22:49
 
 
-
-
 case 9<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2028#         楼主| 发表于 2017-7-30 22:50
-
-
 
 
 【BD＆DVD情報】
@@ -11757,17 +7942,10 @@ DVD：￥6,000（税抜）
 ・アニメーションキャラクターデザイン秋谷有紀恵によるW表紙ジャケット
 
 
-
-
-
-
-
 -----
 
 ####  水饺肯定会过期  
 ##### 2029#       发表于 2017-7-30 22:55
-
-
 
 
 次回 （听译）
@@ -11776,16 +7954,10 @@ DVD：￥6,000（税抜）
 [https://tieba.baidu.com/p/5250386538?pn=3](https://tieba.baidu.com/p/5250386538?pn=3)  转战吧
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2030#       发表于 2017-7-30 22:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36737349&amp;ptid=1486439" target="_blank">水饺肯定会过期 发表于 2017-7-30 22:55</a>
@@ -11796,26 +7968,15 @@ DVD：￥6,000（税抜）
 这真是奇了，下一集才介绍千世入队？那这集怎么又提前了。。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2031#       发表于 2017-7-30 23:02
 
 
-
 <blockquote>神之叹息 发表于 2017-7-30 22:58
 这真是奇了，下一集才介绍千世入队？那这集怎么又提前了。。</blockquote>
 这集把日本妹子的信息抖出来一点，让你们猜一星期，下集再揭秘。挺好的设计
-
-
-
-
-
 
 
 -----
@@ -11824,14 +7985,7 @@ DVD：￥6,000（税抜）
 ##### 2032#       发表于 2017-7-30 23:02
 
 
-
-
 这集比上集好不少，又安心了
-
-
-
-
-
 
 
 -----
@@ -11840,13 +7994,7 @@ DVD：￥6,000（税抜）
 ##### 2033#       发表于 2017-7-30 23:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">庆典说走就走的吗，船抢了就这么开走了吗，潜入这么容易的吗*2
-
-
-
-
-
 
 
 -----
@@ -11855,16 +8003,9 @@ DVD：￥6,000（税抜）
 ##### 2034#       发表于 2017-7-30 23:08
 
 
-
  本帖最后由 SFLSNZYN 于 2017-7-30 23:15 编辑 
 
 看来是乱序制作了，下集可能2-9之间某个数字 <blockquote>实际上，本作的时间先后顺序是稍微做过调整的。将全部话数中哪几个角色活跃的话数，与角色相遇的部分进行混合，调整了各话的顺序。从副标题的“case13”、“case1”等内容中观众可以得到些许情报，不过我希望大家在看片的时候，可以将这些全部忘记，单纯去享受内容。而在意时间顺序的人，只需要关注“在这个时间点发生了这样的事吗？”，这样在看片过程中应该能获得更多的乐趣。</blockquote>[蒸汽朋克世界里的少女间谍——PRPR主创访谈](https://mp.weixin.qq.com/s/Y-zTxon4poxReZG93oD1lQ)
-
-
-
-
-
-
 
 
 -----
@@ -11873,14 +8014,7 @@ DVD：￥6,000（税抜）
 ##### 2035#       发表于 2017-7-30 23:15
 
 
-
-
 那帮路人高呼共和国的是窃国贼。。感觉有点微妙
-
-
-
-
-
 
 
 -----
@@ -11889,14 +8023,7 @@ DVD：￥6,000（税抜）
 ##### 2036#       发表于 2017-7-30 23:18
 
 
-
-
 安洁她们行动的这会是庆典开始前的准备时间，警备相对松懈
-
-
-
-
-
 
 
 -----
@@ -11905,14 +8032,7 @@ DVD：￥6,000（税抜）
 ##### 2037#       发表于 2017-7-30 23:21
 
 
-
-
 我怎么感觉多萝西是找个借口喝酒的呢？其实色诱卫兵那里不用喝醉也行的吧？当做是迷路询问也可以引开他的注意力吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11921,22 +8041,15 @@ DVD：￥6,000（税抜）
 ##### 2038#       发表于 2017-7-30 23:23
 
 
-
 <blockquote>神之叹息 发表于 2017-7-30 23:21
 我怎么感觉多萝西是找个借口喝酒的呢？其实色诱卫兵那里不用喝醉也行的吧？当做是迷路询问也可以引开他的注 ...</blockquote>
 可是明显喝醉酒更有趣啊
-
-
-
-
-
 
 
 -----
 
 ####  stuka1942  
 ##### 2039#       发表于 2017-7-30 23:24
-
 
 
  本帖最后由 stuka1942 于 2017-7-30 23:26 编辑 
@@ -11947,16 +8060,10 @@ DVD：￥6,000（税抜）
 这集信息量还是不少的
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2040#       发表于 2017-7-30 23:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36737628&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-30 23:23</a>
@@ -11965,16 +8072,10 @@ DVD：￥6,000（税抜）
 不过喝醉了也好找借口让兵哥哥带路
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2041#       发表于 2017-7-30 23:26
-
 
 
  本帖最后由 神之叹息 于 2017-7-30 23:28 编辑 
@@ -11985,16 +8086,10 @@ DVD：￥6,000（税抜）
 居然还有和莫斯科联姻，这感觉更像了。。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2042#       发表于 2017-7-30 23:28
-
 
 
  本帖最后由 xtwx1716 于 2017-7-30 23:31 编辑 
@@ -12006,13 +8101,9 @@ DVD：￥6,000（税抜）
 好吧这话我也没什么信心，求大河内不打我脸。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -12022,12 +8113,7 @@ DVD：￥6,000（税抜）
 | kenfy612| + 1|这分析我赞同。光这一话我也这么理解的.|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -12036,15 +8122,9 @@ DVD：￥6,000（税抜）
 ##### 2043#       发表于 2017-7-30 23:31
 
 
-
  本帖最后由 天色影子 于 2017-7-30 23:33 编辑 
 
 |还好没有用酒名做组织名字，你看看隔壁黑衣人差不多全是卧底……等等，好像…你们也差不多了-_-|||
-
-
-
-
-
 
 
 -----
@@ -12053,16 +8133,10 @@ DVD：￥6,000（税抜）
 ##### 2044#       发表于 2017-7-30 23:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36737672&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-30 23:28</a>
 
 千世觉得安洁是在怀疑自己，其实安洁只是为了让她保护公主；多罗西觉得公主是在证明自己不是内奸，可是公主 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 要不是大河内我就真信了，，可我不信大河内会写出的这么温馨真相。
-
-
-
-
-
 
 
 -----
@@ -12071,14 +8145,7 @@ DVD：￥6,000（税抜）
 ##### 2045#       发表于 2017-7-30 23:35
 
 
-
-
 这集最开始那段训练，让我想起了草迷宫。猜测一下，之后至少会有一集公主训练回和多罗西谈恋爱回
-
-
-
-
-
 
 
 -----
@@ -12087,14 +8154,7 @@ DVD：￥6,000（税抜）
 ##### 2046#       发表于 2017-7-30 23:36
 
 
-
-
 虽然我觉得OK，但共和国明明对谁都不是很信任，却随便让一个日本人安插进来，会不会对公主不公平？万一这个日本人以此要挟呢
-
-
-
-
-
 
 
 -----
@@ -12103,14 +8163,7 @@ DVD：￥6,000（税抜）
 ##### 2047#       发表于 2017-7-30 23:38
 
 
-
-
 这番中文名可以翻译为《狗粮间谍》了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12119,14 +8172,7 @@ DVD：￥6,000（税抜）
 ##### 2048#       发表于 2017-7-30 23:41
 
 
-
-
 公主是第四继承人，可是嫁出去后，王室的事就跟她没关系了吧？公爵这招算不算是一举两得？
-
-
-
-
-
 
 
 -----
@@ -12135,22 +8181,13 @@ DVD：￥6,000（税抜）
 ##### 2049#       发表于 2017-7-30 23:43
 
 
-
-
 L果然还是看得透，依然没有放松对公主的监视
-
-
-
-
-
 
 
 -----
 
 ####  ahyyk  
 ##### 2050#       发表于 2017-7-30 23:44
-
-
 
 
 多萝西果然酗酒，却不会抽烟。技能点全点在色诱和飙车上面了。
@@ -12165,27 +8202,15 @@ L果然还是看得透，依然没有放松对公主的监视
 不行，我觉得小女仆和安洁cp更萌些。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2051#       发表于 2017-7-30 23:45
 
 
-
-
 还没见神之超赛的度盘，只有优酷的了
 
 [http://v.youku.com/v_show/id_XMj ... p;sharefrom=android](http://v.youku.com/v_show/id_XMjkzNDA5NjU1Ng==.html?x&amp;sharefrom=android)
-
-
-
-
-
 
 
 -----
@@ -12194,21 +8219,13 @@ L果然还是看得透，依然没有放松对公主的监视
 ##### 2052#       发表于 2017-7-30 23:47
 
 
-
-
 千世是日本方面托付给共和国的人，看来共和国也是到处拉帮结派，收小弟使咯？
-
-
-
-
-
 
 
 -----
 
 ####  尚风悦  
 ##### 2053#       发表于 2017-7-30 23:49
-
 
 
 <blockquote>神之叹息 发表于 2017-7-30 23:45
@@ -12219,26 +8236,15 @@ http://v.youku.com/v_show/id_XMjkzNDA5NjU1Ng==.html?x&amp;sharefrom= ...</blockq
 这么快就被和谐了……
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2054#       发表于 2017-7-30 23:51
 
 
-
  本帖最后由 aptx8285144 于 2017-7-30 23:52 编辑 
 
 这话，公主就这么跳上桥梁上说服大家，至少两分钟左右，我说呀真没问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12247,17 +8253,10 @@ http://v.youku.com/v_show/id_XMjkzNDA5NjU1Ng==.html?x&amp;sharefrom= ...</blockq
 ##### 2055#       发表于 2017-7-30 23:53
 
 
-
-
 有个地方感觉怪怪的，就是L提到王国的精炼技术，共和国貌似是没有的，或者说和王国的比相对落后。安洁提到王国的空中舰队很给力。共和国是从原王国分裂出来的，开头路人痛斥共和国的是窃国贼。共和国应该是拿走了什么机密技术吗？导致王国这边不得不重新研究？
 
 
 然后那个偷拍机密的，感觉像个半桶水，是自愿当共和国的间谍？看来共和国对某些人来说还是挺有吸引力的
-
-
-
-
-
 
 
 -----
@@ -12266,16 +8265,10 @@ http://v.youku.com/v_show/id_XMjkzNDA5NjU1Ng==.html?x&amp;sharefrom= ...</blockq
 ##### 2056#       发表于 2017-7-30 23:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36737701&amp;ptid=1486439" target="_blank">天色影子 发表于 2017-7-30 23:31</a>
 
 |还好没有用酒名做组织名字，你看看隔壁黑衣人差不多全是卧底……等等，好像…你们也差不多了-_-|| ...</blockquote>|
 取酒名那段我也想起了小学生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12284,16 +8277,10 @@ http://v.youku.com/v_show/id_XMjkzNDA5NjU1Ng==.html?x&amp;sharefrom= ...</blockq
 ##### 2057#       发表于 2017-7-30 23:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36737053&amp;ptid=1486439" target="_blank">钢琴猫 发表于 2017-7-30 22:27</a>
 
 船上的人是杀光了么 话说某人一直在色诱 又不灭口 那肯定早被发现了吧……哦说好不想这些的我错了 ...</blockquote>
 这么一说倒也是，其实我也认为不可能全灭口，但是这样以来多乐西被怀疑上的可能性就大了，好吧，才四话感觉大河内的破绽有点多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12302,24 +8289,16 @@ http://v.youku.com/v_show/id_XMjkzNDA5NjU1Ng==.html?x&amp;sharefrom= ...</blockq
 ##### 2058#       发表于 2017-7-30 23:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36737849&amp;ptid=1486439" target="_blank">尚风悦 发表于 2017-7-30 23:49</a>
 
 这么快就被和谐了……</blockquote>
 没啊，我看到你的回复后又去看了一遍，还在的。。
 
 
-
-
-
-
-
 -----
 
 ####  posion  
 ##### 2059#       发表于 2017-7-30 23:57
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201707/30/235703rf77f00fl70qz8n3.png" referrerpolicy="no-referrer">
@@ -12332,24 +8311,13 @@ http://v.youku.com/v_show/id_XMjkzNDA5NjU1Ng==.html?x&amp;sharefrom= ...</blockq
 2017-7-30 23:57 上传
 
 
-
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">据说最近很流行这种表情？
-
-
-
-
-
-
 
 
 -----
 
 ####  元亓  
 ##### 2060#       发表于 2017-7-31 00:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36737920&amp;ptid=1486439" target="_blank">posion 发表于 2017-7-30 23:57</a>
@@ -12360,17 +8328,10 @@ http://v.youku.com/v_show/id_XMjkzNDA5NjU1Ng==.html?x&amp;sharefrom= ...</blockq
 流行好些年了<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2061#       发表于 2017-7-31 00:00
-
-
 
 
 新信息不多
@@ -12411,27 +8372,15 @@ http://v.youku.com/v_show/id_XMjkzNDA5NjU1Ng==.html?x&amp;sharefrom= ...</blockq
 大河内没搞事，只是萎了
 
 
-
-
-
-
-
 -----
 
 ####  天色影子  
 ##### 2062#       发表于 2017-7-31 00:06
 
 
-
-
 怎么这么多人说船上露面的事，多萝西报告时提到了啊，“不仅拿到了试验品，还控制住了研究人员”
 
 船上的人都被共和国控制住了，还担心什么露面<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12440,21 +8389,13 @@ http://v.youku.com/v_show/id_XMjkzNDA5NjU1Ng==.html?x&amp;sharefrom= ...</blockq
 ##### 2063#       发表于 2017-7-31 00:09
 
 
-
-
 所以这集只是为了体现公主和安洁才是真爱其他人都是一身反骨的吗
-
-
-
-
-
 
 
 -----
 
 ####  lmx20  
 ##### 2064#       发表于 2017-7-31 00:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36737884&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-30 23:53</a>
@@ -12485,16 +8426,10 @@ http://v.youku.com/v_show/id_XMjkzNDA5NjU1Ng==.html?x&amp;sharefrom= ...</blockq
 成为公主的私人双重间谍组织
 
 
-
-
-
-
-
 -----
 
 ####  捣♂湿  
 ##### 2065#       发表于 2017-7-31 00:14
-
 
 
  本帖最后由 捣♂湿 于 2017-7-31 00:32 编辑 
@@ -12510,20 +8445,10 @@ http://v.youku.com/v_show/id_XMjkzNDA5NjU1Ng==.html?x&amp;sharefrom= ...</blockq
 2017-7-31 00:32 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2066#       发表于 2017-7-31 00:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36737947&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-7-31 00:00</a>
@@ -12534,32 +8459,19 @@ http://v.youku.com/v_show/id_XMjkzNDA5NjU1Ng==.html?x&amp;sharefrom= ...</blockq
 即便没搞事，也比甲铁城的强。甲那个我看到美马出来就弃了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  おれき  
 ##### 2067#       发表于 2017-7-31 00:36
 
 
-
-
 我讨厌过去的自己 但是我喜欢上的是过去的你哟<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  lvjingkun9  
 ##### 2068#       发表于 2017-7-31 00:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36738018&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-7-31 00:09</a>
@@ -12577,16 +8489,10 @@ http://v.youku.com/v_show/id_XMjkzNDA5NjU1Ng==.html?x&amp;sharefrom= ...</blockq
 未必共和国就代表政治正确啊
 
 
-
-
-
-
-
 -----
 
 ####  CIV5  
 ##### 2069#       发表于 2017-7-31 00:50
-
 
 
 <blockquote>bamboom 发表于 2017-7-30 21:52
@@ -12594,16 +8500,10 @@ http://v.youku.com/v_show/id_XMjkzNDA5NjU1Ng==.html?x&amp;sharefrom= ...</blockq
 私生子不可能是第四顺位继承人
 
 
-
-
-
-
-
 -----
 
 ####  TheWitcher  
 ##### 2070#       发表于 2017-7-31 00:54
-
 
 
 <blockquote>おれき 发表于 2017-7-31 00:36
@@ -12614,17 +8514,10 @@ http://v.youku.com/v_show/id_XMjkzNDA5NjU1Ng==.html?x&amp;sharefrom= ...</blockq
 从公主私下叫夏洛特来看，安洁确实是真公主？
 
 
-
-
-
-
-
 -----
 
 ####  KawakazePring  
 ##### 2071#       发表于 2017-7-31 03:19
-
-
 
 
 我觉得大河内还是干脆完全放弃严谨，老老实实搞商业剧的好
@@ -12670,16 +8563,10 @@ http://v.youku.com/v_show/id_XMjkzNDA5NjU1Ng==.html?x&amp;sharefrom= ...</blockq
 可以有很丰富的联想哦 
 
 
-
-
-
-
-
 -----
 
 ####  KawakazePring  
 ##### 2072#       发表于 2017-7-31 03:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36737672&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-30 23:28</a>
@@ -12695,16 +8582,10 @@ http://v.youku.com/v_show/id_XMjkzNDA5NjU1Ng==.html?x&amp;sharefrom= ...</blockq
 大河内：张嘴，吃屎！
 
 
-
-
-
-
-
 -----
 
 ####  KawakazePring  
 ##### 2073#       发表于 2017-7-31 03:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36737751&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-30 23:35</a>
@@ -12713,25 +8594,13 @@ http://v.youku.com/v_show/id_XMjkzNDA5NjU1Ng==.html?x&amp;sharefrom= ...</blockq
 等一个圣诞祭任务。。。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2074#       发表于 2017-7-31 06:34
 
 
-
-
 个人希望就这样的节奏做下去就好了，去年被甲铁城恶心的不行，荒木已被打入原创黑名单。这次的橘正纪倒是还可以，虽然没谷口给力，也算压得住大河内。
-
-
-
-
-
 
 
 -----
@@ -12740,14 +8609,7 @@ http://v.youku.com/v_show/id_XMjkzNDA5NjU1Ng==.html?x&amp;sharefrom= ...</blockq
 ##### 2075#       发表于 2017-7-31 07:07
 
 
-
-
 醒醒，甲铁城就是荒木压得住大河内才搞成那样的
-
-
-
-
-
 
 
 -----
@@ -12756,20 +8618,13 @@ http://v.youku.com/v_show/id_XMjkzNDA5NjU1Ng==.html?x&amp;sharefrom= ...</blockq
 ##### 2076#       发表于 2017-7-31 07:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又能吹一周啦，而且下集千岁入队，也是稳的不行
-
-
-
-
-
 
 
 -----
 
 ####  lmx20  
 ##### 2077#       发表于 2017-7-31 07:45
-
 
 
  本帖最后由 lmx20 于 2017-7-31 07:49 编辑 
@@ -12800,32 +8655,19 @@ http://v.youku.com/v_show/id_XMjkzNDA5NjU1Ng==.html?x&amp;sharefrom= ...</blockq
 PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个故事的人都很鲜明   
 
 
-
-
-
-
-
 -----
 
 ####  TheWitcher  
 ##### 2078#       发表于 2017-7-31 07:48
 
 
-
-
 我就问一下那条船的人都怎么样了？只抓了工程师？船上还有情报部门的，不管怎么样脸都暴露了吧；押了一船人在王国境内怎么交接也是问题啊。最合理的解释就是杀光灭口了，但是这样一来又会变成大新闻。
-
-
-
-
-
 
 
 -----
 
 ####  lmx20  
 ##### 2079#       发表于 2017-7-31 07:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36739196&amp;ptid=1486439" target="_blank">TheWitcher 发表于 2017-7-31 07:48</a>
@@ -12836,25 +8678,13 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 不要想太多
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2080#       发表于 2017-7-31 08:03
 
 
-
-
 公主是灰的，最后会不会背刺全队？
-
-
-
-
-
 
 
 -----
@@ -12863,14 +8693,7 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 ##### 2081#       发表于 2017-7-31 08:12
 
 
-
-
 这个公主越来越不讨喜了…还是安洁好
-
-
-
-
-
 
 
 -----
@@ -12879,23 +8702,15 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 ##### 2082#       发表于 2017-7-31 08:33
 
 
-
-
 觉得公主更像是一个“公主”，看两个间谍在自家领导质疑的情况下都向着她说话，另外两个就更是死心塌地。
 
 在桥上一是表明自身立场，同时解决了队伍矛盾，接着还不忘安抚一下炸毛的忠犬，这笼络人心的一把好手
-
-
-
-
-
 
 
 -----
 
 ####  aptx8285144  
 ##### 2083#       发表于 2017-7-31 09:02
-
 
 
  本帖最后由 aptx8285144 于 2017-7-31 09:23 编辑 
@@ -12907,25 +8722,13 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 公主站上桥那段至少两分钟左右<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2084#       发表于 2017-7-31 09:17
 
 
-
-
 看来是日本秘密和共和国以及帝国都签了合作协议有同盟的意向。名义上派了一个间谍来和共和国这边的情报机构合作，可实际上的任务是过来摸底收集情报。估计帝国这边也派了类似的人员，就是舞会上交谈的那个。日本的打算是等摸清的双方的实力再决定站哪边队。
-
-
-
-
-
 
 
 -----
@@ -12934,14 +8737,7 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 ##### 2085#       发表于 2017-7-31 09:31
 
 
-
-
 感觉以后这片的看点不是怎么共同对付王国而是描写人民内部矛盾啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12950,15 +8746,9 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 ##### 2086#       发表于 2017-7-31 09:31
 
 
-
 <blockquote>漫区专号 发表于 2017-7-31 09:17
 看来是日本秘密和共和国以及帝国都签了合作协议有同盟的意向。名义上派了一个间谍来和共和国这边的情报机构 ...</blockquote>
 舞会的那个是日本人…
-
-
-
-
-
 
 
 -----
@@ -12967,22 +8757,13 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 ##### 2087#       发表于 2017-7-31 09:34
 
 
-
-
 千世屁股向哪边也是一个走向。多萝西虽然是队长，但感觉安洁才是指挥的那个…
-
-
-
-
-
 
 
 -----
 
 ####  leleq  
 ##### 2088#       发表于 2017-7-31 09:35
-
-
 
 
 这集充满了大河内的不要在意细节只要爽就好的味道<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
@@ -12992,17 +8773,10 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 贝亚熊的声音开关有意思 安洁潜入时要跳进大风扇前的眼神有意思
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 2089#       发表于 2017-7-31 09:42
-
-
 
 
 5个人，其中还有2只凑数的1只最拿手的是色诱，就在帝国首都抢了一艘船。看起来还成功逃掉了。然后期间还没杀人。007也没这么嚣张啊。
@@ -13016,16 +8790,10 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 公主感觉越来越微妙了，求最后背刺全员！
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2090#       发表于 2017-7-31 09:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36739928&amp;amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-31 09:31</a>
@@ -13033,16 +8801,10 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 应该是我的话有歧义。我的意思是日本也往帝国这边派了人来合作。于是舞会上日本这边的两拨人碰面了。
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2091#       发表于 2017-7-31 09:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36739963&amp;ptid=1486439" target="_blank">leleq 发表于 2017-7-31 09:35</a>
@@ -13053,26 +8815,15 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 不戴面罩就冲好歹是对自己获胜有信心,控制局面后就无所谓了,真让我尴尬的还是公主站上桥那段至少两分钟左右然后船上就是没士兵看到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2092#       发表于 2017-7-31 09:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36740119&amp;amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-7-31 09:49</a>
 不戴面罩就冲好歹是对自己获胜有信心,控制局面后就无所谓了,真让我尴尬的还是公主站上桥那段至少两分钟左 ...</blockquote>
 只能说…伦敦的雾霾真的很严重。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13081,14 +8832,7 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 ##### 2093#       发表于 2017-7-31 09:54
 
 
-
-
 公主站桥上很正常，很多中二啥的也会站桥上什么的，不能因为是秘密任务就清场吧。
-
-
-
-
-
 
 
 -----
@@ -13097,21 +8841,13 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 ##### 2094#       发表于 2017-7-31 09:57
 
 
-
-
 我们中出了一个共谍<img src="https://static.saraba1st.com/image/smiley/carton2017/055.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  leleq  
 ##### 2095#       发表于 2017-7-31 09:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36740119&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-7-31 09:49</a>
@@ -13122,16 +8858,10 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 贝阿熊个新人也就算了多萝西个老间谍也这么浪实在是
 
 
-
-
-
-
-
 -----
 
 ####  kenfy612  
 ##### 2096#       发表于 2017-7-31 10:01
-
 
 
  本帖最后由 kenfy612 于 2017-7-31 10:06 编辑 
@@ -13147,16 +8877,10 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 [  -- 来自能订阅的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2097#       发表于 2017-7-31 10:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36740176&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-7-31 09:54</a>
@@ -13165,16 +8889,10 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 站上桥那段太显眼了,从间谍行为来说就是除非任务百分之百需要否则都要尽力避免可能引起敌人或者路人注意的行为,虽然疑似夜深了但是站在那个地方高度上去了被敌船士兵或者住在附近房子的普通人看到的概率就迅速上升了,前者就不用说了,后者的话一群共和国的间谍在执行损害王国的任务,事后王国国安部的调查时候路人提供线索就很容易了
 
 
-
-
-
-
-
 -----
 
 ####  leleq  
 ##### 2098#       发表于 2017-7-31 10:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36740119&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-7-31 09:49</a>
@@ -13183,16 +8901,10 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 至于站桥上么 多萝西飙车时候连个人影都没有 大概王国人民都早睡吧 即使有人来就说喝多了耍酒疯就行了就是有点印象公主的形象<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kenfy612  
 ##### 2099#       发表于 2017-7-31 10:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36740119&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-7-31 09:49</a>
@@ -13204,16 +8916,10 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 不过把她当作是类似于“变身时间”一样敌方下线的固有结界就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2100#       发表于 2017-7-31 10:09
-
 
 
  本帖最后由 aptx8285144 于 2017-7-31 10:12 编辑 
@@ -13223,16 +8929,10 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 恰恰站在上面的是王国普通人可能最熟悉的公主<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  leleq  
 ##### 2101#       发表于 2017-7-31 10:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36740355&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-7-31 10:09</a>
@@ -13241,16 +8941,10 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 我的意思是夜间疯狂飙车都不怕 这点就更不要怕了 这2分钟比飙车安全多了
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2102#       发表于 2017-7-31 10:17
-
 
 
  本帖最后由 aptx8285144 于 2017-7-31 10:19 编辑 
@@ -13260,16 +8954,10 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 但是从地点来说这两分钟比飙车更可怕,因为飙车是一路的行为,对面安全部队事后调查地点很难固定,而桥这里是是发起攻击的开始,按照常理事后船只出问题失去联络最后时间的附近地点一定会被仔细调查,也就是说那座桥上那个夜晚有没有发生什么有没有可疑人员,安全部的人会专门盯上这座桥的概率很高
 
 
-
-
-
-
-
 -----
 
 ####  leleq  
 ##### 2103#       发表于 2017-7-31 10:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36740464&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-7-31 10:17</a>
@@ -13278,16 +8966,10 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 你怎么知道船是在这失联的……只要拿枪威胁通信员正常回复到公海上不就行了么 再不济贝亚熊可以变声啊
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2104#       发表于 2017-7-31 10:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36740526&amp;ptid=1486439" target="_blank">leleq 发表于 2017-7-31 10:22</a>
@@ -13296,16 +8978,10 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 这到也是,女仆这个万能声线倒是可以补救<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2105#       发表于 2017-7-31 10:30
-
 
 
  本帖最后由 xtwx1716 于 2017-7-31 10:33 编辑 
@@ -13316,16 +8992,10 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 从第一集staff就说了想拍个爽 片，你们到底在期待什么？
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2106#       发表于 2017-7-31 10:31
-
 
 
  本帖最后由 aptx8285144 于 2017-7-31 10:37 编辑 
@@ -13335,16 +9005,10 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 可能是因为之前有些高调行为,比如车子追逐和枪战都是因为敌人很近不得不如此,而服装风格是这片设定好的也能理解,而这次飙车也是因为时间非常紧张没有办法的必然选择,但是感觉站桥上这段并非绝对必要的冒险选择
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2107#       发表于 2017-7-31 10:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36740633&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-31 10:30</a>
@@ -13356,17 +9020,10 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 是的,比如后面多落西说很喜欢"白"字这个细节写得很不错<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 2108#       发表于 2017-7-31 10:37
-
-
 
 
 其实我在想，如果死神小学生也是这样魔改就好玩了
@@ -13374,16 +9031,10 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 “你以为你是吃了atpx4896？不，是被琴酒拖上了手术台。你以为喝了白酒就能恢复？不，是被拖上了灰原的手术台。你以为变声蝴蝶结只是个道具？不，那是阿笠博士手术台上魔改了喉咙的结果。“”
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2109#       发表于 2017-7-31 10:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36740712&amp;ptid=1486439" target="_blank">ahyyk 发表于 2017-7-31 10:37</a>
@@ -13394,25 +9045,13 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 其他两个还是组织的人也就算了(小哀在那时候还是),要是博士搞这个,他是黑幕说法又要出来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  jia3yu3sheng1  
 ##### 2110#       发表于 2017-7-31 10:42
 
 
-
-
 真是越来越喜欢这片的气氛了，在一个看似严肃的背景下却时常出现欢脱感的氛围真的很有趣，手动给staff点个赞以及给大河内上个吃药提醒
-
-
-
-
-
 
 
 -----
@@ -13421,15 +9060,8 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 ##### 2111#       发表于 2017-7-31 10:45
 
 
-
-
 站桥上那段只是戏剧效果而已啦，在以往的动画或影视作品里这种段子简直不计其数，想想柯南用变声器藏在小五郎后面时那个显眼的位置www所以这种事开心就好
 我不反对别人较真这种事，但可以肯定的是我绝不会和你们一起为一个戏剧效果去较真
-
-
-
-
-
 
 
 -----
@@ -13438,14 +9070,7 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 ##### 2112#       发表于 2017-7-31 10:46
 
 
-
-
 公爵麾下好像 现在也就一个秘书是有头有脸的人物,如果以后进入终局阶段的敌人人物数量不足的嫌疑,毕竟这几话下来台面上的棋子只有第3话构成过真正的威胁,这样一看还是共和国这边有三个人物更值得一看的感觉,或者是主角五人组内心抉择和挣扎也是个隐藏的爆点,虽然按照王道路线会是她们最后都成了公主的私人部队展开<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13454,15 +9079,9 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 ##### 2113#       发表于 2017-7-31 10:53
 
 
-
 <blockquote>aptx8285144 发表于 2017-7-31 10:36
 是的,比如后面多落西说很喜欢"白"字这个细节写得很不错,只是我觉得看到敌舰到来前后那段站桥上实 ...</blockquote>
 飞碟桌宁可加上二人转都要防止出现几个人站着尬聊，这片这里这么设计在表现上来说还是不错的
-
-
-
-
-
 
 
 -----
@@ -13471,14 +9090,7 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 ##### 2114#       发表于 2017-7-31 10:58
 
 
-
-
 这队伍名叫白鸽，这是暗示她们要牺牲自己给世界带来和平么。<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13487,15 +9099,9 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 ##### 2115#       发表于 2017-7-31 10:59
 
 
-
 <img src="http://ww1.sinaimg.cn/large/b614c80bly1fi2vt8wtsij20zk0k04qp.jpg" referrerpolicy="no-referrer">
 
 这是腹语还是作画失误？这才第4集啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13504,14 +9110,7 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 ##### 2116#       发表于 2017-7-31 11:00
 
 
-
-
 其实王国只要调查一下这几起重大案子的共通点不就很容易发现公主可能参与其中了吗？第二集的钥匙    第三集的模板   第四集的研究资料   公主都有到场   而且这些都是大案子吧 寻找间谍案件这不是破案的基本手段吗？
-
-
-
-
-
 
 
 -----
@@ -13520,16 +9119,10 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 ##### 2117#       发表于 2017-7-31 11:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36740820&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-7-31 10:46</a>
 
 公爵麾下好像 现在也就一个秘书是有头有脸的人物,如果以后进入终局阶段的敌人人物数量不足的嫌疑,毕竟这几 ...</blockquote>
 兔死狗烹，这各怀鬼胎上不得台面的队伍用了就扔就是了，当什么私人部队啊……等等，隔壁伊泽塔好像大公也有支后宫卫队
-
-
-
-
-
 
 
 -----
@@ -13538,16 +9131,10 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 ##### 2118#       发表于 2017-7-31 11:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36740972&amp;ptid=1486439" target="_blank">MIVIxxx 发表于 2017-7-31 10:59</a>
 
 这是腹语还是作画失误？这才第4集啊</blockquote>
 旁白式对话而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13556,16 +9143,10 @@ PS：最近看87版红楼梦，真感觉一个场景就是一个故事，每个�
 ##### 2119#       发表于 2017-7-31 11:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36740896&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-31 10:53</a>
 
 飞碟桌宁可加上二人转都要防止出现几个人站着尬聊，这片这里这么设计在表现上来说还是不错的 ...</blockquote>
 fate系列的这个双人转是没有立刻要动手的紧张情况下进行的，文戏怎么演对于观众而言可能会讲究方式但是客观来说对于人物本身而言选择是自由的，因为在没有危险的情况下是没必要艺术化或者特殊化，这里是觉得危险随时可能发生的情况下还是能低调则低调，当然这片的基调也许不是这样，只是之前我是认为她们选择都有迫不得已的情况下的高调，而且也有像这话安洁发现附近有卫兵马上示意两个同伴安静这种细节<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13574,16 +9155,10 @@ fate系列的这个双人转是没有立刻要动手的紧张情况下进行的�
 ##### 2120#       发表于 2017-7-31 11:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36740972&amp;ptid=1486439" target="_blank">MIVIxxx 发表于 2017-7-31 10:59</a>
 
 这是腹语还是作画失误？这才第4集啊</blockquote>
 是翻译的问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13592,16 +9167,10 @@ fate系列的这个双人转是没有立刻要动手的紧张情况下进行的�
 ##### 2121#       发表于 2017-7-31 11:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36740983&amp;ptid=1486439" target="_blank">fycwhat 发表于 2017-7-31 11:00</a>
 
 其实王国只要调查一下这几起重大案子的共通点不就很容易发现公主可能参与其中了吗？第二集的钥匙    第三集 ...</blockquote>
 其实这话负责第一道门口的士兵好像还说搜身公主的话会掉脑袋的,我第一反应是皇室这特权太可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13610,16 +9179,10 @@ fate系列的这个双人转是没有立刻要动手的紧张情况下进行的�
 ##### 2122#       发表于 2017-7-31 11:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36741049&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-7-31 11:07</a>
 
 是翻译的问题吧</blockquote>
 我是想说嘴没动<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13628,24 +9191,16 @@ fate系列的这个双人转是没有立刻要动手的紧张情况下进行的�
 ##### 2123#       发表于 2017-7-31 11:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36740972&amp;ptid=1486439" target="_blank">MIVIxxx 发表于 2017-7-31 10:59</a>
 
 这是腹语还是作画失误？这才第4集啊</blockquote>
 公主和安洁的这段对话不是现场说的 你可以理解为她两在任务结束后公主把在安洁压倒在床上边用玩具调戏安洁边对话把声音放到这里来播的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alonebill  
 ##### 2124#       发表于 2017-7-31 11:15
-
-
 
 
 感觉节奏和剧情这次比较平稳，大河内玩脱的可能性越来越小了
@@ -13657,16 +9212,10 @@ fate系列的这个双人转是没有立刻要动手的紧张情况下进行的�
 百合现在反而特别虚，感觉不稳
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2125#       发表于 2017-7-31 11:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36741119&amp;ptid=1486439" target="_blank">MIVIxxx 发表于 2017-7-31 11:12</a>
@@ -13675,16 +9224,10 @@ fate系列的这个双人转是没有立刻要动手的紧张情况下进行的�
 你可以理解成她们在心灵对话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2126#       发表于 2017-7-31 11:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36740991&amp;ptid=1486439" target="_blank">ahyyk 发表于 2017-7-31 11:00</a>
@@ -13693,26 +9236,15 @@ fate系列的这个双人转是没有立刻要动手的紧张情况下进行的�
 说可能成私人部队是因为,那两个人互换的秘密以后有可能因为客观因素而暴露在另外三个人面前,那时候面临选择以及外部环境的压力下,这几个人选择和公主站在一起成为后宫部队<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2127#       发表于 2017-7-31 11:26
 
 
-
 <blockquote>漫区专号 发表于 2017-7-31 10:58
 这队伍名叫白鸽，这是暗示她们要牺牲自己给世界带来和平么。</blockquote>
 …你这脑洞也太…厉害了…我突然想到美战了。可是没有夜礼服假面
-
-
-
-
-
 
 
 -----
@@ -13721,23 +9253,16 @@ fate系列的这个双人转是没有立刻要动手的紧张情况下进行的�
 ##### 2128#       发表于 2017-7-31 11:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36740972&amp;ptid=1486439" target="_blank">MIVIxxx 发表于 2017-7-31 10:59</a>
 
 这是腹语还是作画失误？这才第4集啊</blockquote>
 这一段都是旁白 而且工期没必要担心 这可是传说中的Actas 不来俩总集篇都不够味儿<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer"> 也许3Hz拉得动吧 也许
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 2129#       发表于 2017-7-31 11:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36741170&amp;ptid=1486439" target="_blank">alonebill 发表于 2017-7-31 11:15</a>
@@ -13752,32 +9277,19 @@ fate系列的这个双人转是没有立刻要动手的紧张情况下进行的�
 20岁高中生的色诱术比安洁差远了。
 
 
-
-
-
-
-
 -----
 
 ####  sgpt55  
 ##### 2130#       发表于 2017-7-31 11:34
 
 
-
-
 这片目前我觉得少了一小段交待这些间谍怎么通过王国身份审查的情节<img src="https://static.saraba1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  KawakazePring  
 ##### 2131#       发表于 2017-7-31 11:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36739959&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-31 09:34</a>
@@ -13788,16 +9300,10 @@ fate系列的这个双人转是没有立刻要动手的紧张情况下进行的�
 角色介绍说的是多萝西是队长，但是根据剧情感觉安洁才是拿主意的那个人
 
 
-
-
-
-
-
 -----
 
 ####  KawakazePring  
 ##### 2132#       发表于 2017-7-31 11:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36740301&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-7-31 10:05</a>
@@ -13812,16 +9318,10 @@ fate系列的这个双人转是没有立刻要动手的紧张情况下进行的�
 这就是个爽番而已啦
 
 
-
-
-
-
-
 -----
 
 ####  KawakazePring  
 ##### 2133#       发表于 2017-7-31 11:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36741427&amp;ptid=1486439" target="_blank">sgpt55 发表于 2017-7-31 11:34</a>
@@ -13838,32 +9338,19 @@ fate系列的这个双人转是没有立刻要动手的紧张情况下进行的�
 虽然这一定程度来说，两人在case2做的事情就和这个身份设定无比冲突
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2134#       发表于 2017-7-31 11:43
 
 
-
-
 看样子女王很舍不得夏洛特，目测女王心里也是想夏洛特继位？
-
-
-
-
-
 
 
 -----
 
 ####  Norn  
 ##### 2135#       发表于 2017-7-31 11:43
-
 
 
  本帖最后由 Norn 于 2017-9-14 22:15 编辑 
@@ -13938,16 +9425,10 @@ pripri小知识,出自机械设定片貝文洋
 04.史实的英国直到2007年为止携带日本刀都是合法的.
 
 
-
-
-
-
-
 -----
 
 ####  posion  
 ##### 2136#       发表于 2017-7-31 11:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36741452&amp;ptid=1486439" target="_blank">KawakazePring 发表于 2017-7-31 11:36</a>
@@ -13960,16 +9441,10 @@ pripri小知识,出自机械设定片貝文洋
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">应该是这样的，队长是多萝西，但是直接影响到小队行动方向的却是最吊炸天的安洁，最重要的是这吊炸天的安洁却对公主死心塌地，只要公主一声令下，背刺全员估计是毫不犹豫的。
 
 
-
-
-
-
-
 -----
 
 ####  sgpt55  
 ##### 2137#       发表于 2017-7-31 11:51
-
 
 
  本帖最后由 sgpt55 于 2017-7-31 12:01 编辑 
@@ -13985,16 +9460,10 @@ pripri小知识,出自机械设定片貝文洋
 而且我的疑问又不是有没有设定，而是动画中有没有交待；4集还不交待，这些新面孔的间谍随意跟随公主进出重要场合还不引人怀疑，本身难以让人信服
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2138#       发表于 2017-7-31 12:56
-
 
 
 <blockquote>sgpt55 发表于 2017-7-31 11:51
@@ -14004,25 +9473,13 @@ pripri小知识,出自机械设定片貝文洋
 公主的朋友，这万能模版不知道能掩护到什么程度
 
 
-
-
-
-
-
 -----
 
 ####  Yeaha123  
 ##### 2139#       发表于 2017-7-31 13:55
 
 
-
-
 4chan鬼老对贝阿朵是真爱啊
-
-
-
-
-
 
 
 -----
@@ -14031,16 +9488,10 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2140#       发表于 2017-7-31 14:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36741974&amp;ptid=1486439" target="_blank">Yeaha123 发表于 2017-7-31 13:55</a>
 
 4chan鬼老对贝阿朵是真爱啊</blockquote>
 求图<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14049,16 +9500,10 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2141#       发表于 2017-7-31 14:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36737672&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-30 23:28</a>
 
 千世觉得安洁是在怀疑自己，其实安洁只是为了让她保护公主；多罗西觉得公主是在证明自己不是内奸，可是公主 ...</blockquote>
 大河内不啪啪打脸就不是大河内了
-
-
-
-
-
 
 
 -----
@@ -14067,16 +9512,10 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2142#       发表于 2017-7-31 14:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36737609&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-30 23:21</a>
 
 我怎么感觉多萝西是找个借口喝酒的呢？其实色诱卫兵那里不用喝醉也行的吧？当做是迷路询问也可以引开他的注 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">每个男人都是一个捡尸的心
-
-
-
-
-
 
 
 -----
@@ -14085,21 +9524,13 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2143#       发表于 2017-7-31 14:36
 
 
-
-
 安洁过风扇那里可以算是反面教程了，切不说跳下去身子是拉直的增加面积，最简单方法应该是跳中间然后爬到扇叶上再下去。脸上还挂着冷汗，难不成是有黑历史，所以才不冷静了？
-
-
-
-
-
 
 
 -----
 
 ####  厨厨光波  
 ##### 2144#       发表于 2017-7-31 14:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36741170&amp;ptid=1486439" target="_blank">alonebill 发表于 2017-7-31 11:15</a>
@@ -14113,33 +9544,19 @@ pripri小知识,出自机械设定片貝文洋
 姬佬公主：“我就喜欢看着安洁和小贝想上我又不敢的怂样，哦嚯嚯嚯”
 
 
-
-
-
-
-
 -----
 
 ####  ssscat  
 ##### 2145#       发表于 2017-7-31 14:51
 
 
-
-
 这一集告诉我最后公主和ange会背叛共和国。
-
-
-
-
-
 
 
 -----
 
 ####  万千百十  
 ##### 2146#       发表于 2017-7-31 14:58
-
-
 
 
 公主很疯狂。
@@ -14149,16 +9566,10 @@ pripri小知识,出自机械设定片貝文洋
 这公主也是毫不做作的姬佬，下集滚床上去我都不惊讶。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2147#       发表于 2017-7-31 14:59
-
 
 
 <blockquote>sgpt55 发表于 2017-7-31 11:51
@@ -14168,16 +9579,10 @@ pripri小知识,出自机械设定片貝文洋
 因为这是case9，你需要看case3（
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2148#       发表于 2017-7-31 14:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36742353&amp;ptid=1486439" target="_blank">ssscat 发表于 2017-7-31 14:51</a>
@@ -14186,27 +9591,15 @@ pripri小知识,出自机械设定片貝文洋
 也许是背叛全世界,反正这话已经背叛帝国一次了(就算之后会补救但是现在还是背叛了)
 
 
-
-
-
-
-
 -----
 
 ####  zerorin  
 ##### 2149#       发表于 2017-7-31 15:01
 
 
-
-
 这百合肯定是掺毒的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 20岁高中生太色气了，大河内快发力出被俘剧情吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14215,13 +9608,7 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2150#       发表于 2017-7-31 15:03
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉多萝西迟早会被坑一波
-
-
-
-
-
 
 
 -----
@@ -14230,24 +9617,16 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2151#       发表于 2017-7-31 15:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
 这对真棒，现在就想看公主在加冕仪式上公开出柜，真这么结局的话我就买全套BD<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 2152#       发表于 2017-7-31 15:13
-
-
 
 
 公主这集这么激进还有一个原因是因为政治联姻的事情真的着急了吧？毕竟不想作为政治上的棋子搭上自己的后半生
@@ -14259,16 +9638,10 @@ pripri小知识,出自机械设定片貝文洋
 这集的味道还是有点淡了，看完我就只有“小跟班太可爱（发型加成），好想欺负她”这一个想法了
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2153#       发表于 2017-7-31 15:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36742632&amp;ptid=1486439" target="_blank">mhss 发表于 2017-7-31 15:13</a>
@@ -14277,16 +9650,10 @@ pripri小知识,出自机械设定片貝文洋
 不是那两个士兵是这样,现在只要是士兵都会被这招俘虏掉,该说帝国方对士兵的私人生活没有尊重过吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 2154#       发表于 2017-7-31 15:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36742663&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-7-31 15:15</a>
@@ -14299,26 +9666,15 @@ pripri小知识,出自机械设定片貝文洋
 第四集前半故意装作醉酒迷路，符合现场条件，但是登上敌船后还玩这招就太出戏了
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2155#       发表于 2017-7-31 15:20
 
 
-
 <blockquote>梦诗歌雪 发表于 2017-7-31 15:04
 狗女女一独处就开始调情，过分了啊。白毛一副想和金毛亲热却不敢暴露的怂样，被金毛轻易撩拨。以后 ...</blockquote>
 这集之后感觉攻受已经不可逆了
-
-
-
-
-
 
 
 -----
@@ -14327,14 +9683,7 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2156#       发表于 2017-7-31 15:26
 
 
-
-
 正常的戏剧效果演出。真要卡秒表，不知道多少影视作品台词说不完的。
-
-
-
-
-
 
 
 -----
@@ -14343,14 +9692,7 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2157#       发表于 2017-7-31 15:30
 
 
-
-
 最后那船人和设备应该是被劫持到共和国去了。上一话共和国印钞的母版都被敌国偷走了，本话偷走帝国的最新科技也算有来有往。现在双方的暗中斗争已经白热化，因此被偷后再外交抗议也就意义不大。
-
-
-
-
-
 
 
 -----
@@ -14359,14 +9701,7 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2158#       发表于 2017-7-31 15:46
 
 
-
-
 按这话猜测这世界观里的日本打完内战开放了吧
-
-
-
-
-
 
 
 -----
@@ -14375,14 +9710,7 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2159#       发表于 2017-7-31 16:29
 
 
-
-
 千世入队的case应该是3～8了，估计和第二集一样纯文戏
-
-
-
-
-
 
 
 -----
@@ -14391,16 +9719,10 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2160#       发表于 2017-7-31 16:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36742716&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-7-31 15:20</a>
 
 这集之后感觉攻受已经不可逆了</blockquote>
 参考夜蝶，要逆的话还是可以逆的。炮灰男的人选也有了不是，找个莫斯科的皇族就是了。
-
-
-
-
-
 
 
 -----
@@ -14409,19 +9731,12 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2161#       发表于 2017-7-31 18:11
 
 
-
 <img src="http://wx4.sinaimg.cn/mw690/9c30f723gy1fi389zl9xij20xc0xcqdj.jpg" referrerpolicy="no-referrer">
 
 <[strong>アニメイト秋葉原</strong>‏ @<strong>animateakiba</strong>](https://twitter.com/animateakiba)  [9小时9小时前](https://twitter.com/animateakiba/status/891831597686599680)更多
 
 
-
 【おすすめ商品情報】『プリンセス・プリンシパル スタンド付き アクリルキーホルダーコレクション』好評発売中だお！たくさん集めて飾りたいだお！ [#<strong>pripri</strong>](https://twitter.com/hashtag/pripri?src=hash)
-
-
-
-
-
 
 
 -----
@@ -14430,18 +9745,11 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2162#       发表于 2017-7-31 18:13
 
 
-
 <[strong>とらのあな 三宮店</strong>‏ @<strong>tora_sannomiya</strong>](https://twitter.com/tora_sannomiya)  [7月25日](https://twitter.com/tora_sannomiya/status/889656439475765249)更多
-
 
 
 【三宮店】【商品情報】(CD)「プリンセス・プリンシパル」オープニングテーマ The Other Side of the Wall好評発売中です！　特典はブロマイド！！　是非当店で、お買い求めください！！！[#<strong>pripri</strong>](https://twitter.com/hashtag/pripri?src=hash)
 <img src="http://wx2.sinaimg.cn/mw690/9c30f723gy1fi38d3j0l4j20dc0hsgn1.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14450,18 +9758,11 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2163#       发表于 2017-7-31 18:15
 
 
-
 <[strong>片貝文洋 KatagaiFumihilo</strong>‏ @<strong>fumihilo</strong>](https://twitter.com/fumihilo)  [1天1天前](https://twitter.com/fumihilo/status/891600366764122112)更多
-
 
 
 メディコスさんのアンジェ原型。かわいい! Cボールの彫刻が細かい! [#<strong>wf2017s</strong>](https://twitter.com/hashtag/wf2017s?src=hash)
 <img src="http://wx3.sinaimg.cn/mw690/9c30f723gy1fi38fgeca9j20p00xcacl.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14470,9 +9771,7 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2164#       发表于 2017-7-31 18:19
 
 
-
 <[strong>橘正紀 Masaki Tachibana</strong>‏ @<strong>tachicol_</strong>](https://twitter.com/tachicol_)  [5小时5小时前](https://twitter.com/tachicol_/status/891890621346074624)更多
-
 
 
 プリンセス・プリンシパル４話いかがでしたでしょうか。まさかあのカットが提供バックに使われるとは思いませんでしたが、あのドロシーさんは秋谷さんが魂を込めてむちむちにしてました。そして撮影様の特効でさらにツヤツヤに…。スタッフのドロシー人気、高いです。 [#<strong>pripri</strong>](https://twitter.com/hashtag/pripri?src=hash)
@@ -14480,20 +9779,11 @@ pripri小知识,出自机械设定片貝文洋
 <[strong>遠藤誠</strong>‏ @<strong>tri_slash_endo</strong>](https://twitter.com/tri_slash_endo)  [6小时6小时前](https://twitter.com/tri_slash_endo/status/891880862400135168)更多
 
 
-
 プリンセス・プリンシパル ４話３Ｄメイキングこの話数、特殊な３Ｄカットが意外と使われています。Ｃボールで塵を浮かすシーン一連、実際に３Ｄ上で物を置いて塵を浮かす流体計算をしております。その後に再度撮影様でエフェクトが乗っています。左３Ｄ素材、右最終映像<img src="http://wx1.sinaimg.cn/mw690/9c30f723gy1fi38jctbq7j20xc0hsn4a.jpg" referrerpolicy="no-referrer">
 <[strong>遠藤誠</strong>‏ @<strong>tri_slash_endo</strong>](https://twitter.com/tri_slash_endo)  [5小时5小时前](https://twitter.com/tri_slash_endo/status/891890559433940992)更多
 
 
-
 プリンセス・プリンシパル ４話３Ｄメイキング特殊な３Ｄカット、船の波しぶきは流体計算専用のソフトのRealFlowで表現しております左３ＤＣＧ（見やすいように別角度から）、右最終映像 [#<strong>pripri</strong>](https://twitter.com/hashtag/pripri?src=hash)<img src="http://wx3.sinaimg.cn/mw690/9c30f723gy1fi38jbaitwj20xc0hsdj5.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 -----
@@ -14502,17 +9792,10 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2165#       发表于 2017-7-31 18:28
 
 
-
-
 安洁好骚啊，想看她被断手强奸。
 
 
 ----发送自 [Xiaomi Redmi Note 4X,Android 6.0.1](http://stage1.5j4m.com/?1.27)
-
-
-
-
-
 
 
 -----
@@ -14521,22 +9804,13 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2166#       发表于 2017-7-31 18:30
 
 
-
-
 重看了一遍发现千世是左撇子啊，拿笔和拿刀都是用的左手
-
-
-
-
-
 
 
 -----
 
 ####  ds006425  
 ##### 2167#       发表于 2017-7-31 18:35
-
-
 
 
 忽然有个想法。
@@ -14548,16 +9822,10 @@ pripri小知识,出自机械设定片貝文洋
 所以公主是双面间谍这句话应该没错。
 
 
-
-
-
-
-
 -----
 
 ####  colohot  
 ##### 2168#       发表于 2017-7-31 18:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36742225&amp;ptid=1486439" target="_blank">Graduation 发表于 2017-7-31 14:36</a>
@@ -14566,33 +9834,19 @@ pripri小知识,出自机械设定片貝文洋
 看着那个转速也不是能平稳踩在扇叶上的样子（而且跳下去不是比较帅吗<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2169#       发表于 2017-7-31 18:38
 
 
-
-
 楼主能改一下标题不？。。
-
-
-
-
-
 
 
 -----
 
 ####  lmx20  
 ##### 2170#       发表于 2017-7-31 18:45
-
-
 
 
 从百合吧看来的细节
@@ -14612,16 +9866,10 @@ pripri小知识,出自机械设定片貝文洋
 难道第一个双面间谍会是多萝西？
 
 
-
-
-
-
-
 -----
 
 ####  厨厨光波  
 ##### 2171#       发表于 2017-7-31 18:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36745116&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-7-31 18:45</a>
@@ -14638,16 +9886,10 @@ pripri小知识,出自机械设定片貝文洋
 最终打造出有事间谍干，没事干间谍的强大后宫<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2172#       发表于 2017-7-31 19:09
-
 
 
  本帖最后由 神之叹息 于 2017-7-31 19:13 编辑 
@@ -14658,16 +9900,10 @@ pripri小知识,出自机械设定片貝文洋
 。。这翻译有点直，老外不懂这个白字的妙啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  colohot  
 ##### 2173#       发表于 2017-7-31 19:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36744995&amp;ptid=1486439" target="_blank">ds006425 发表于 2017-7-31 18:35</a>
@@ -14681,25 +9917,13 @@ pripri小知识,出自机械设定片貝文洋
 而且就算不论安洁，另外几个人都像可以两头倒的样子，到底是几重间谍也不需要太深入思考。当然我相信公主一句话就能让黑蜥蜴小姐坚定的反水啦<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  whn1103  
 ##### 2174#       发表于 2017-7-31 19:10
 
 
-
-
 “欺负人”，“那样我会控制不住自己”，啊啊啊啊啊啊啊啊啊啊啊啊我要被甜化了
-
-
-
-
-
 
 
 -----
@@ -14708,14 +9932,7 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2175#       发表于 2017-7-31 19:17
 
 
-
-
 这片的staff真的很清楚自己想要什么，就是间谍耍酷式的娱乐作品，中间有趣的小桥段层出不穷，一集看两三遍都不会腻
-
-
-
-
-
 
 
 -----
@@ -14724,14 +9941,7 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2176#       发表于 2017-7-31 19:17
 
 
-
-
 这组织用公主也太简单粗暴了，就是到处开门用，难道不会走哪哪发生事件，而遭大公怀疑么
-
-
-
-
-
 
 
 -----
@@ -14740,22 +9950,13 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2177#       发表于 2017-7-31 19:23
 
 
-
-
 现在公主一笑我就慌，总觉得要搞事，某种意义上我觉得公主才是最可怕的那个<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  wingzerocos  
 ##### 2178#       发表于 2017-7-31 19:24
-
-
 
 
 C球设定里关键技术有两条：小型化控制技术，高浓度矿石。
@@ -14765,25 +9966,13 @@ C球设定里关键技术有两条：小型化控制技术，高浓度矿石。
 虽然抓了一船人，但对共和国来说活抓一船和死了一船可能没多大区别。
 
 
-
-
-
-
-
 -----
 
 ####  wingzerocos  
 ##### 2179#       发表于 2017-7-31 19:25
 
 
-
-
 以及我猜到了要给队伍起名，没猜到起了这么个名字<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14792,23 +9981,16 @@ C球设定里关键技术有两条：小型化控制技术，高浓度矿石。
 ##### 2180#       发表于 2017-7-31 19:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36745393&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-31 19:09</a>
 。。这翻译有点直，老外不懂这个白字的妙啊</blockquote>
 就是直译也应该是“我特别中意‘白’这个字”吧
 不懂鬼佬为啥这样翻
 
 
-
-
-
-
-
 -----
 
 ####  ds006425  
 ##### 2181#       发表于 2017-7-31 19:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36745403&amp;ptid=1486439" target="_blank">colohot 发表于 2017-7-31 19:10</a>
@@ -14821,26 +10003,15 @@ C球设定里关键技术有两条：小型化控制技术，高浓度矿石。
 这段写了估计就是爆点
 
 
-
-
-
-
-
 -----
 
 ####  colohot  
 ##### 2182#       发表于 2017-7-31 19:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36745468&amp;ptid=1486439" target="_blank">阿虚家的三味 发表于 2017-7-31 19:17</a>
 这组织用公主也太简单粗暴了，就是到处开门用，难道不会走哪哪发生事件，而遭大公怀疑么 ...</blockquote>
 毕竟自己都吐槽是钥匙，还是带魔法的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14849,21 +10020,13 @@ C球设定里关键技术有两条：小型化控制技术，高浓度矿石。
 ##### 2183#       发表于 2017-7-31 19:32
 
 
-
-
 说起来这片真的很多007、碟中谍式的桥段，包括这集的风扇。上一集在飞船上躲**可以脑补替换成阿汤哥毫无违和感……当然因为演出能力有限所以临场感差了很多，所以觉得躲**略生硬，事实上换成电影里用这样的桥段一点问题都没有
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 2184#       发表于 2017-7-31 19:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36745554&amp;ptid=1486439" target="_blank">colohot 发表于 2017-7-31 19:25</a>
@@ -14874,25 +10037,13 @@ C球设定里关键技术有两条：小型化控制技术，高浓度矿石。
 是的，这样也挺好的
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2185#       发表于 2017-7-31 19:40
 
 
-
-
 游戏官推的关注数快赶上动画官推的了，看来动画的宣传作用还是有的，只是还不够。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14901,16 +10052,10 @@ C球设定里关键技术有两条：小型化控制技术，高浓度矿石。
 ##### 2186#       发表于 2017-7-31 19:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36745546&amp;ptid=1486439" target="_blank">wingzerocos 发表于 2017-7-31 19:25</a>
 
 以及我猜到了要给队伍起名，没猜到起了这么个名字</blockquote>
 开头还以为principal是队名，结果是白鸽队。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14919,16 +10064,10 @@ C球设定里关键技术有两条：小型化控制技术，高浓度矿石。
 ##### 2187#       发表于 2017-7-31 19:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36745534&amp;ptid=1486439" target="_blank">Tehebe 发表于 2017-7-31 19:23</a>
 
 现在公主一笑我就慌，总觉得要搞事，某种意义上我觉得公主才是最可怕的那个 ...</blockquote>
 为什么你们都觉得公主是黑的。。这片就是要做公主X安洁的，要真黑的话大河内不用翻身了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14937,16 +10076,10 @@ C球设定里关键技术有两条：小型化控制技术，高浓度矿石。
 ##### 2188#       发表于 2017-7-31 19:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36745468&amp;ptid=1486439" target="_blank">阿虚家的三味 发表于 2017-7-31 19:17</a>
 
 这组织用公主也太简单粗暴了，就是到处开门用，难道不会走哪哪发生事件，而遭大公怀疑么 ...</blockquote>
 因为现在公主没有得到信任，只能做一些很简单的协助。即便是这集也只是让L对她的评价是灰色的
-
-
-
-
-
 
 
 -----
@@ -14955,14 +10088,7 @@ C球设定里关键技术有两条：小型化控制技术，高浓度矿石。
 ##### 2189#       发表于 2017-7-31 19:53
 
 
-
-
 我觉得再往后应该给点公主提要求的剧情，不然公主的立场就太薄弱了，比方说可以搞点事把和亲的事搅黄，那就大快人心了。
-
-
-
-
-
 
 
 -----
@@ -14971,23 +10097,15 @@ C球设定里关键技术有两条：小型化控制技术，高浓度矿石。
 ##### 2190#       发表于 2017-7-31 20:05
 
 
-
  本帖最后由 aptx8285144 于 2017-7-31 20:08 编辑 
 
 公主已经背叛了帝国一次了，如果不打算补救的话，未来再夺嫡成功上位的话就会充满了一种讽刺性的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，还是和安洁去私奔吧
-
-
-
-
-
 
 
 -----
 
 ####  LadySaazbaum  
 ##### 2191#       发表于 2017-7-31 20:10
-
-
 
 
 一般情况下，政治联姻是公主的本职工作，不然国家养她有什么用。
@@ -15004,16 +10122,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 丈夫是尼古拉二世<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2192#       发表于 2017-7-31 20:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36745942&amp;ptid=1486439" target="_blank">LadySaazbaum 发表于 2017-7-31 20:10</a>
@@ -15024,33 +10136,19 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 你不要这么说，我好芳
 
 
-
-
-
-
-
 -----
 
 ####  stuka1942  
 ##### 2193#       发表于 2017-7-31 20:28
 
 
-
-
 女王坐的是轮椅，万一哪天就病危了，诺曼底公再趁势抢先来个政变也不是不可能。
-
-
-
-
-
 
 
 -----
 
 ####  ahyyk  
 ##### 2194#       发表于 2017-7-31 20:34
-
-
 
 
 第一幕的**，第三幕就必定要开火
@@ -15060,16 +10158,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 或者把安洁敲晕绑了送过去也差不多，恩，长得也一样。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2195#       发表于 2017-7-31 20:50
-
 
 
 <blockquote>ahyyk 发表于 2017-7-31 20:34
@@ -15079,16 +10171,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 迷你裙宇宙海贼也有抢婚
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2196#       发表于 2017-7-31 20:52
-
 
 
 <blockquote>神之叹息 发表于 2017-7-31 19:43
@@ -15096,17 +10182,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 相爱相杀也不错啊，我不要求一定要发糖，剧情带感就行
 
 
-
-
-
-
-
 -----
 
 ####  keroro80722  
 ##### 2197#       发表于 2017-7-31 20:53
-
-
 
 
 這部作品還是把第二集當作不存在吧
@@ -15117,16 +10196,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 感覺問題還是在大河內身上，導致這部作品評價根本沒辦法客觀了
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2198#       发表于 2017-7-31 20:57
-
 
 
 <blockquote>keroro80722 发表于 2017-7-31 20:53
@@ -15136,32 +10209,19 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 说明大家对大河内爱的深沉，高标准严要求
 
 
-
-
-
-
-
 -----
 
 ####  beaver  
 ##### 2199#       发表于 2017-7-31 21:03
 
 
-
-
 话说开头公主管企鹅叫奇怪的鸟，难道那个年代企鹅刚刚被大众认识？
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 2200#       发表于 2017-7-31 22:04
-
 
 
 <img src="http://wx2.sinaimg.cn/mw690/9c30f723gy1fi3f078hjij20g40nxac6.jpg" referrerpolicy="no-referrer">
@@ -15172,26 +10232,13 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 在战吧发现了这个，记得之前有人说过的
 
 
-
-
-
-
-
-
 -----
 
 ####  丹德里恩  
 ##### 2201#       发表于 2017-7-31 22:30
 
 
-
-
 每周的贝阿特都是安定的可爱...
-
-
-
-
-
 
 
 -----
@@ -15200,21 +10247,13 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 ##### 2202#       发表于 2017-7-31 23:08
 
 
-
-
 千世：MMP，说好的个人回呢？
-
-
-
-
-
 
 
 -----
 
 ####  シャーロット　  
 ##### 2203#       发表于 2017-7-31 23:08
-
 
 
 <blockquote><a href="httphttp://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36745468&amp;ptid=1486439" target="_blank">阿虚家的三味 发表于 2017-7-31 19:17</a>
@@ -15227,17 +10266,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 况且，要是万一事与愿违，我的身边还有保护我的魔法使呢
 
 
-
-
-
-
-
 -----
 
 ####  LadySaazbaum  
 ##### 2204#       发表于 2017-7-31 23:10
-
-
 
 
 其实我现在最怕的是，天下有情人终成姐妹（
@@ -15249,33 +10281,19 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 …………………………………………虽然这是能简单粗暴解释很多设定的一种设计，但是我不想吃骨科(ノಠ益ಠ)ノ彡┻━┻
 
 
-
-
-
-
-
 -----
 
 ####  frightmia  
 ##### 2205#       发表于 2017-7-31 23:15
 
 
-
-
 这片我看出来了，主角人群太TMNB了，这么一艘战舰，想突入就突入，还TM全搞定敌人，这么NB的间谍直接去暗杀对方老大好了。。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  saturnus  
 ##### 2206#       发表于 2017-7-31 23:17
-
-
 
 
 今天又回顾了下，第三话开始有个细节，变声萝莉劝公主不要相信安洁等人的时候，公主提到敌人的敌人就是朋友。
@@ -15287,16 +10305,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 [  -- 来自能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2207#       发表于 2017-7-31 23:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36747726&amp;ptid=1486439" target="_blank">frightmia 发表于 2017-7-31 23:15</a>
@@ -15305,16 +10317,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 这个吗，想起一件事情，当年有观众就质问鲁路修为什么不从得到鸡鸭死开始就专心准备对付他老爹（能不能赢另说）而是先去解放日本，当然了他可以辩解说解放日本可以得到更多力量，然而实际上如果鲁路修专心对付皇室的话那将更早地接触'c世界的真相“的可能性非常高，因此到了pr时候同理，有些东西还是剧情需要的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Tehebe  
 ##### 2208#       发表于 2017-7-31 23:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36745714&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-07-31 19:43:06</a>
@@ -15323,16 +10329,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 [  -- 来自 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2209#       发表于 2017-7-31 23:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36747865&amp;ptid=1486439" target="_blank">Tehebe 发表于 2017-7-31 23:30</a>
@@ -15341,16 +10341,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 这个手游作为宣传基础的作品，大河内这么干是想吃蘑菇吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，再来一次”至少与悲伤在一起“已经是极限了好吧
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2210#       发表于 2017-7-31 23:42
-
 
 
  本帖最后由 神之叹息 于 2017-7-31 23:44 编辑 
@@ -15370,16 +10364,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 失去双亲的公主受到她的宠爱也算是正常吧
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2211#       发表于 2017-7-31 23:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36747865&amp;ptid=1486439" target="_blank">Tehebe 发表于 2017-7-31 23:30</a>
@@ -15388,16 +10376,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 哪有这么黑。。
 
 
-
-
-
-
-
 -----
 
 ####  阿虚家的三味  
 ##### 2212#       发表于 2017-7-31 23:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36745714&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-31 19:43</a>
@@ -15406,25 +10388,13 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 我那么喜欢你，一切为你着想，为什么你完全不明白（绑在床上**）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2213#       发表于 2017-7-31 23:43
 
 
-
-
 第四话虽然有些瑕疵，但是能保持也是可以的，前三话感觉很好，前两话则是很惊艳<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15433,15 +10403,9 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 ##### 2214#       发表于 2017-7-31 23:46
 
 
-
  本帖最后由 神之叹息 于 2017-7-31 23:50 编辑 
 
 说起十年，我老想到["说好了三年，三年之后又三年，三年之后又三年，都快十年了，老大!"](http://www.juzimi.com/ju/130766)<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15450,15 +10414,9 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 ##### 2215#       发表于 2017-7-31 23:49
 
 
-
 <blockquote>阿虚家的三味 发表于 2017-7-31 23:43
 我那么喜欢你，一切为你着想，为什么你完全不明白（绑在床上**）</blockquote>
 真来这种剧情的话应该反过来啊，金毛太跳白毛受不了了，连夜把金毛绑走带到白房子里嘿嘿
-
-
-
-
-
 
 
 -----
@@ -15467,14 +10425,7 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 ##### 2216#       发表于 2017-7-31 23:52
 
 
-
-
 公主估计就像当年的女王，权力熏心，干掉和自己有利益冲突的兄弟姐妹上位的。那么公主继位后，是否会和安洁决裂呢？会留下她一条性命吗？
-
-
-
-
-
 
 
 -----
@@ -15483,21 +10434,13 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 ##### 2217#       发表于 2017-7-31 23:56
 
 
-
-
 看到安洁和公主的对话，突然想到终将里灯子说的“会对我讨厌的东西说喜欢的人，我又怎么能去喜欢呢？”<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  欧阳明  
 ##### 2218#       发表于 2017-8-1 00:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36747743&amp;ptid=1486439" target="_blank">saturnus 发表于 2017-7-31 23:17</a>
@@ -15508,16 +10451,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 动荡不安的皇国的女王不可能是傻白甜吧
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2219#       发表于 2017-8-1 00:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36748056&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-7-31 23:52</a>
@@ -15526,25 +10463,13 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 其实像公主这样和共和国合作都把王国坑成什么样了，就算最后能够上位怕也不是接下个烂摊子。感觉公主这样一边拖垮王国一边还喊着要上位，只能说是就为了能够拆墙吧……
 
 
-
-
-
-
-
 -----
 
 ####  猫步走向社会  
 ##### 2220#       发表于 2017-8-1 00:11
 
 
-
-
 奶一下安洁和公主最后会背叛私奔
-
-
-
-
-
 
 
 -----
@@ -15553,14 +10478,7 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 ##### 2221#       发表于 2017-8-1 00:32
 
 
-
-
 这集节奏又回来了，果断吹起来，公主X安洁真是太棒了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">剧情可以黑，但这对CP一定要贯彻到底啊
-
-
-
-
-
 
 
 -----
@@ -15569,21 +10487,13 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 ##### 2222#       发表于 2017-8-1 00:42
 
 
-
-
 多萝西60%（友善），千世70%（好感），贝阿特85%（爱情），安洁95%（爱情），niceboat概率10%，玩脱？？%
-
-
-
-
-
 
 
 -----
 
 ####  whn1103  
 ##### 2223#       发表于 2017-8-1 00:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36747726&amp;ptid=1486439" target="_blank">frightmia 发表于 2017-7-31 23:15</a>
@@ -15593,27 +10503,15 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 —— 来自 OnePlus A0001, Android 7.1.2上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  reficul  
 ##### 2224#       发表于 2017-8-1 01:19
 
 
-
-
 白鸽队，下一个任务出来了
 
 在路上了，明天就去做<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15622,16 +10520,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 ##### 2225#       发表于 2017-8-1 01:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36745468&amp;ptid=1486439" target="_blank">阿虚家的三味 发表于 2017-7-31 19:17</a>
 
 这组织用公主也太简单粗暴了，就是到处开门用，难道不会走哪哪发生事件，而遭大公怀疑么 ...</blockquote>
 这集连女王都出席了，参加的宾客里皇室成员应该也不少，反正上流社会一般也就这几些人，问题不大。要是这是军方的庆功宴公主还不请自到，那就比较容易遭到怀疑了（例如上一集
-
-
-
-
-
 
 
 -----
@@ -15640,14 +10532,7 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 ##### 2226#       发表于 2017-8-1 02:58
 
 
-
-
 这潜入套路有点腻了 但是又不想看到超展开
-
-
-
-
-
 
 
 -----
@@ -15656,16 +10541,9 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 ##### 2227#       发表于 2017-8-1 03:24
 
 
-
-
 苟利敌国生死以，岂因祸福避趋之
 
 不培植自己的政治势力再来一波ck2般的操作，却整天和敌国的间谍厮混，(假)公主根本志不在上位吧
-
-
-
-
-
 
 
 -----
@@ -15674,21 +10552,13 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 ##### 2228#       发表于 2017-8-1 07:56
 
 
-
-
 又想大河内吃药又不想那么“平淡”…单元剧的药果然还是不够呢～
-
-
-
-
-
 
 
 -----
 
 ####  TheWitcher  
 ##### 2229#       发表于 2017-8-1 07:57
-
 
 
 <blockquote>newise 发表于 2017-8-1 03:24
@@ -15698,25 +10568,13 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 密谋焦点也是很管用的！
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2230#       发表于 2017-8-1 08:11
 
 
-
-
 多萝西色诱失败，小贝喉咙故障，千世挂彩，安洁反重力球耗尽，公主被俘虏…公爵笑而不语
-
-
-
-
-
 
 
 -----
@@ -15725,14 +10583,7 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 ##### 2231#       发表于 2017-8-1 08:56
 
 
-
-
 真要死一个人的话，千世很像那种会为了保护队友壮烈的角色…………
-
-
-
-
-
 
 
 -----
@@ -15741,16 +10592,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 ##### 2232#       发表于 2017-8-1 09:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36747896&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-07-31 23:33:53</a>
 这个手游作为宣传基础的作品，大河内这么干是想吃蘑菇吗，再来一次”至少与悲伤在一起“已经是极限了好吧 ...</blockquote>瑟瑟发抖等第五集中，假如动画就是be，再把暗线埋在手游里，等着玩家发现其他结局咋办，超九不就这样<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 [  -- 来自能订阅的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
-
-
-
-
-
 
 
 -----
@@ -15759,21 +10604,13 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 ##### 2233#       发表于 2017-8-1 09:31
 
 
-
-
 按时间线看CASE13就是结局了，那么主线应该是结尾来一次大危机再有惊无险的解决掉，最后少女们依旧相亲相爱的喝茶聊天再做做任务END，世界格局不会发生任何变化，然后再敲碗等第二季<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  frightmia  
 ##### 2234#       发表于 2017-8-1 09:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36748428&amp;ptid=1486439" target="_blank">whn1103 发表于 2017-8-1 00:44</a>
@@ -15785,16 +10622,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 007好歹几年一部，这动画一周一集，潜入的调调就是安吉无敌，把几个大人打得团团转。潜入过程中也没什么主线暗线来调剂下。<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2235#       发表于 2017-8-1 09:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36750031&amp;ptid=1486439" target="_blank">Tehebe 发表于 2017-8-1 09:20</a>
@@ -15803,16 +10634,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 超九的动画严格来说不是be也不是he，算ge色彩的开放结局吧，我闻在游戏里面有生还结局的概率很高
 
 
-
-
-
-
-
 -----
 
 ####  deidara  
 ##### 2236#       发表于 2017-8-1 10:08
-
 
 
 <blockquote>aptx8285144 发表于 2017-7-31 11:08
@@ -15820,16 +10645,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 没有，只是会被开除。
 
 
-
-
-
-
-
 -----
 
 ####  deidara  
 ##### 2237#       发表于 2017-8-1 10:16
-
 
 
 <blockquote>欧阳明 发表于 2017-8-1 00:03
@@ -15839,25 +10658,13 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 那个叫一个唱红脸一个唱白脸，因为白脸是奸贼才用，黑脸是粗鲁豪爽或者庄重肃穆，红脸忠义。
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2238#       发表于 2017-8-1 10:22
 
 
-
-
 感觉这集没啥分析的。反正我就等（大河内）安洁如何实现她自己夸下的海口：“我将欺骗全世界，甚至欺骗我自己。”<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15866,16 +10673,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 ##### 2239#       发表于 2017-8-1 10:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36750789&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-8-1 10:22</a>
 
 感觉这集没啥分析的。反正我就等（大河内）安洁如何实现她自己夸下的海口：“我将欺骗全世界，甚至欺骗我自 ...</blockquote>
 真要欺骗自己的话除了失忆外好像就只有石头门的主角做到过吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15884,14 +10685,7 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 ##### 2240#       发表于 2017-8-1 10:58
 
 
-
-
 我觉得最大的BUG就是，公主帮助共和国那么多，出生入死，什么要求都没有提？不知道到底怎么个上位法，看得人好着急
-
-
-
-
-
 
 
 -----
@@ -15900,22 +10694,15 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 ##### 2241#       发表于 2017-8-1 11:40
 
 
-
 <blockquote>clanon 发表于 2017-8-1 10:58
 我觉得最大的BUG就是，公主帮助共和国那么多，出生入死，什么要求都没有提？不知道到底怎么个上位法，看得 ...</blockquote>
 “给我ange的初夜，我就给你们卖命”
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 2242#       发表于 2017-8-1 11:55
-
 
 
 <blockquote>newise 发表于 2017-8-1 03:24
@@ -15925,27 +10712,15 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 王国内就没有公主可以依靠的势力
 
 
-
-
-
-
-
 -----
 
 ####  soniczmd  
 ##### 2243#       发表于 2017-8-1 12:05
 
 
-
-
 讲道理千世是双面间谍吧，第四话跟一个老头子接触…
 
 —— 来自 Sony G8142, Android 7.1.1上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next) v1.2.1
-
-
-
-
-
 
 
 -----
@@ -15954,15 +10729,9 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 ##### 2244#       发表于 2017-8-1 12:07
 
 
-
 <blockquote>clanon 发表于 2017-8-1 10:58
 我觉得最大的BUG就是，公主帮助共和国那么多，出生入死，什么要求都没有提？不知道到底怎么个上位法，看得 ...</blockquote>
 她没资格提吧
-
-
-
-
-
 
 
 -----
@@ -15971,22 +10740,15 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 ##### 2245#       发表于 2017-8-1 12:14
 
 
-
 <blockquote>神之叹息 发表于 2017-8-1 12:07
 她没资格提吧</blockquote>
 资格是没有，但是可以通过要挟的
-
-
-
-
-
 
 
 -----
 
 ####  newise  
 ##### 2246#       发表于 2017-8-1 12:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36752016&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-1 11:55</a>
@@ -15999,16 +10761,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 办法总会有的，总比挂着个姬佬特质选勾引焦点靠谱吧人家目的就只是搞姬而已
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2247#       发表于 2017-8-1 12:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36752122&amp;ptid=1486439" target="_blank">soniczmd 发表于 2017-8-1 12:05</a>
@@ -16020,16 +10776,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 千世并不直接属于王国和共和国的某一方吧，应该是外国派遣来参与这两方斗争谋取利益的，只是现在觉得共和国可能有潜力些就帮共和国干活。
 
 
-
-
-
-
-
 -----
 
 ####  梦诗歌雪  
 ##### 2248#       发表于 2017-8-1 13:10
-
 
 
 <blockquote>soniczmd 发表于 2017-8-1 12:05
@@ -16040,16 +10790,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 那老头就是白毛提到过的堀河公，千世是他托付给白鸽队的，本来千世就是他的人。从他俩的对话可以看出堀河应该是日本派来阿尔比昂方面找机会寻求合作的，但还没确定究竟要站王国还是共和国，就先让千世在这个间谍组织里干着，找机会站队。这个背景白毛她们应该是清楚的，只是没有挑明
 
 
-
-
-
-
-
 -----
 
 ####  killng  
 ##### 2249#       发表于 2017-8-1 13:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36751820&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-8-1 11:40</a>
@@ -16062,16 +10806,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 这样就能“光明真大”地在一起，“光明真大”地当钥匙开安洁这把锁
 
 
-
-
-
-
-
 -----
 
 ####  clanon  
 ##### 2250#       发表于 2017-8-1 13:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36752142&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-1 12:07</a>
@@ -16082,16 +10820,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 要不然现在都给敌国卖了那么多命了，还没有诉求的话，反而被组织上层抓到把柄。没看懂公主是什么想法
 
 
-
-
-
-
-
 -----
 
 ####  crazymarky  
 ##### 2251#       发表于 2017-8-1 13:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36751207&amp;ptid=1486439" target="_blank">clanon 发表于 2017-8-1 10:58</a>
@@ -16108,16 +10840,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 2.想搞掉这一群侄子侄女，自己上位
 
 
-
-
-
-
-
 -----
 
 ####  clanon  
 ##### 2252#       发表于 2017-8-1 14:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36753209&amp;ptid=1486439" target="_blank">crazymarky 发表于 2017-8-1 13:54</a>
@@ -16130,16 +10856,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 光干掉公爵和大哥，前面还有两个继承人，国内又没有自己的势力，还是不好上位吧
 
 
-
-
-
-
-
 -----
 
 ####  crazymarky  
 ##### 2253#       发表于 2017-8-1 14:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36753326&amp;ptid=1486439" target="_blank">clanon 发表于 2017-8-1 14:06</a>
@@ -16150,16 +10870,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 先做掉老二老三的话，恐怕都“夏洛特之心，路人皆知”了
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2254#       发表于 2017-8-1 14:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36753326&amp;ptid=1486439" target="_blank">clanon 发表于 2017-8-1 14:06</a>
@@ -16168,25 +10882,13 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 13话要干掉这么多人很仓促的(虽然我想起当年叛逆里老皇帝和二哥前后当boss只有两话左右的距离<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  MortarHeadd  
 ##### 2255#       发表于 2017-8-1 14:55
 
 
-
-
 看了一集感觉又是一霸权，最后看到大河内 ～ 瞬间瑟瑟发抖 ～<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16195,24 +10897,15 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 ##### 2256#       发表于 2017-8-1 15:14
 
 
-
-
 想啥啊，又不是宫斗片一个个干掉，真要篡位的话肯定一锅端啊。
 
 然后对小队来个群体背刺，操作c球最熟练的安洁就做成融合体的核心，扔回共和国
-
-
-
-
-
 
 
 -----
 
 ####  lmx20  
 ##### 2257#       发表于 2017-8-1 15:42
-
-
 
 
 身为皇家
@@ -16271,27 +10964,15 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 那算是败笔
 
 
-
-
-
-
-
 -----
 
 ####  colohot  
 ##### 2258#       发表于 2017-8-1 16:10
 
 
-
-
 长皇孙长公主现在连根毛都见不着，就算诺曼底公是想篡位一锅端，对于他们相关描写也太少了。
 搞不清公主现在在打什么小算盘，上一集说的那么认真，现在看起来却什么动作都没有。想当女王不仅得先把上面三个哥哥姐姐不动声色地干掉，还得对诺曼底公的势力留一手，背后又没有政治靠山，共和国也并非盟军，再加上可能马上就要嫁给莫斯科皇子，不快点行动不行啊，有这个主线不可能只做12集零零七的。
 我这种想要他们搞事又怕他们搞事的心情<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16300,16 +10981,9 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 ##### 2259#       发表于 2017-8-1 16:22
 
 
-
-
 搞不好最后都不解释为啥想当女王
 
 反正只是想拍个帅气的间谍故事。
-
-
-
-
-
 
 
 -----
@@ -16318,21 +10992,13 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 ##### 2260#       发表于 2017-8-1 16:27
 
 
-
-
 这种宫斗是能拍40集电视剧的量，13集是塞不了什么东西的
-
-
-
-
-
 
 
 -----
 
 ####  osk666  
 ##### 2261#       发表于 2017-8-1 16:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36737813&amp;ptid=1486439" target="_blank">ahyyk 发表于 2017-7-30 23:44</a>
@@ -16343,25 +11009,13 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 会说这话没啥奇怪吧，维多利亚女王的女儿的确嫁德国去了，然后生出了威廉二世<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  sourpotato  
 ##### 2262#       发表于 2017-8-1 16:42
 
 
-
-
 感觉有些间谍的动作场面太小儿科，哪有那么轻易的攻略，特别是船上的场面。看得有点尴尬。
-
-
-
-
-
 
 
 -----
@@ -16370,16 +11024,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 ##### 2263#       发表于 2017-8-1 16:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36754856&amp;ptid=1486439" target="_blank">osk666 发表于 2017-8-1 16:40</a>
 
 会说这话没啥奇怪吧，维多利亚女王的女儿的确嫁德国去了，然后生出了威廉二世 ...</blockquote>
 维多利亚女王生了九个孩子，号称欧洲外祖母，这片子里女王是3个儿子。
-
-
-
-
-
 
 
 -----
@@ -16388,24 +11036,16 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 ##### 2264#       发表于 2017-8-1 16:57
 
 
-
-
 我觉得现阶段公主还是以自保为主吧。。。
 
 
 从第4话的处境来看，公主能有一点翻盘的可能性?
 
 
-
-
-
-
-
 -----
 
 ####  crazymarky  
 ##### 2265#       发表于 2017-8-1 17:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36754256&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-8-1 15:42</a>
@@ -16424,16 +11064,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 估计和解做君主立宪制还是有可能的
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2266#       发表于 2017-8-1 17:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36755103&amp;ptid=1486439" target="_blank">crazymarky 发表于 2017-8-1 17:02</a>
@@ -16456,16 +11090,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 共和国也不会愿意给自己脑袋上加个更高阶层的皇室
 
 
-
-
-
-
-
 -----
 
 ####  soniczmd  
 ##### 2267#       发表于 2017-8-1 17:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36752786&amp;ptid=1486439" target="_blank">梦诗歌雪 发表于 2017-8-1 13:10</a>
@@ -16474,33 +11102,19 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 啊卧槽是这样吗，这是哪里来的信息我完全没注意，动画白看了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2268#       发表于 2017-8-1 17:23
 
 
-
-
 公主的父亲算是第几顺位？好奇她父母是被谁害死的？
-
-
-
-
-
 
 
 -----
 
 ####  lmx20  
 ##### 2269#       发表于 2017-8-1 17:25
-
-
 
 
 依照大河内的正常展开
@@ -16516,27 +11130,15 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 也许结局还要安洁来一次英雄救场才行。。。
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 2270#       发表于 2017-8-1 17:26
 
 
-
-
 我看公主玩得挺开心的，只有贝熊在担心这担心那的
 
 哪需要什么翻盘啊
-
-
-
-
-
 
 
 -----
@@ -16545,16 +11147,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 ##### 2271#       发表于 2017-8-1 17:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36755354&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-1 17:23</a>
 
 公主的父亲算是第几顺位？好奇她父母是被谁害死的？</blockquote>
 按照前面的分析，他爹就是皇太子啊，至于凶手不是共和国就是老三了。。。
-
-
-
-
-
 
 
 -----
@@ -16563,23 +11159,16 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 ##### 2272#       发表于 2017-8-1 17:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36755534&amp;ptid=1486439" target="_blank">saturnus 发表于 2017-8-1 17:39</a>
 
 按照前面的分析，他爹就是皇太子啊，至于凶手不是共和国就是老三了。。。 ...</blockquote>
 如果说是死于十年前的革命爆发，看来公主的爹也不是一盏省油的灯啊，她老爸不会就是共和国的一份子吧？
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2273#       发表于 2017-8-1 17:48
-
 
 
 <blockquote>lmx20 发表于 2017-8-1 17:25
@@ -16592,16 +11181,10 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 不是考虑到有手游宣传的话，间谍片加大河内肯定就会有背叛的戏码
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2274#       发表于 2017-8-1 17:50
-
 
 
 <img src="http://wx2.sinaimg.cn/mw690/9c30f723gy1fi4dawqz8rj20xc0ir0ui.jpg" referrerpolicy="no-referrer">
@@ -16610,21 +11193,13 @@ PS 夏洛特可千万别嫁到俄罗斯去，这特么绝对是flag。维多利�
 <[strong>TVアニメ『プリンセス・プリンシパル』</strong>‏ @<strong>pripri_anime</strong>](https://twitter.com/pripri_anime)  [7小时7小时前](https://twitter.com/pripri_anime/status/892219614297374720)更多
 
 
-
 【本日BS11放送！】本日24：30～、BS11にて『プリンセス・プリンシパル』第４話が放送です！視聴可能な皆様、ぜひご覧ください！！ [#<strong>pripri</strong>](https://twitter.com/hashtag/pripri?src=hash)
-
-
-
-
-
-
 
 
 -----
 
 ####  lmx20  
 ##### 2275#       发表于 2017-8-1 17:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36755654&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-1 17:50</a>
@@ -16640,16 +11215,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 如果那个镜头吻上去了，安洁会不会爆发呢？
 
 
-
-
-
-
-
 -----
 
 ####  saturnus  
 ##### 2276#       发表于 2017-8-1 17:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36755583&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-08-01 17:44:28</a>
@@ -16658,16 +11227,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 [  -- 来自支持 iPad的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2277#       发表于 2017-8-1 17:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36755674&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-8-1 17:53</a>
@@ -16680,16 +11243,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 桥上那段，安洁低头的镜头不就是在吃醋吗？！
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2278#       发表于 2017-8-1 18:00
-
 
 
 <blockquote><a href="httphttp://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36755697&amp;ptid=1486439" target="_blank">saturnus 发表于 2017-8-1 17:56</a>
@@ -16702,16 +11259,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 公主都“废”了十年了，可能是女王保住她的
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2279#       发表于 2017-8-1 18:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36755711&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-1 17:57</a>
@@ -16726,16 +11277,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 毕竟安洁一个人反对的话也只是让大家更加困惑而已
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2280#       发表于 2017-8-1 18:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36755711&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-1 17:57</a>
@@ -16744,16 +11289,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 安洁：回去就叫大河内把多萝西握公主的那只手给弄断。
 
 
-
-
-
-
-
 -----
 
 ####  whn1103  
 ##### 2281#       发表于 2017-8-1 18:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36754256&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-8-1 15:42</a>
@@ -16766,16 +11305,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 只想说你想多了，这片打一开始就没想讨论这些政治性的问题，核心就是百合和娱乐化的“间谍游戏”
 
 
-
-
-
-
-
 -----
 
 ####  whn1103  
 ##### 2282#       发表于 2017-8-1 18:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36755377&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-8-1 17:25</a>
@@ -16788,17 +11321,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 建议去看看泥潭公众号发的主创访谈……这片根本就不准备往政治戏方向深挖
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2283#       发表于 2017-8-1 18:30
-
-
 
 
 重温才发现原来放出烟雾的是安洁自带的反重力球？！这玩意是万能按钮吗？类似鲁路修用的那个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -16806,16 +11332,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 <img src="http://wx3.sinaimg.cn/mw690/9c30f723gy1fi4ehfetj5j20lf0bzq7t.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2284#       发表于 2017-8-1 18:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36756004&amp;ptid=1486439" target="_blank">whn1103 发表于 2017-8-1 18:26</a>
@@ -16842,16 +11362,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 比如党争什么的
 
 
-
-
-
-
-
 -----
 
 ####  whn1103  
 ##### 2285#       发表于 2017-8-1 18:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36756057&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-8-1 18:30</a>
@@ -16870,16 +11384,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 而且由于大家都怕了大河内了，所以宁愿不要什么深度……这楼里的观众大多数都是类似的态度
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2286#       发表于 2017-8-1 18:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36756057&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-8-1 18:30</a>
@@ -16892,16 +11400,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 要说的话公主的觉悟就是“清除分隔我们的一切”，想要成为女王也就是一种手段。
 
 
-
-
-
-
-
 -----
 
 ####  saturnus  
 ##### 2287#       发表于 2017-8-1 18:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36755738&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-08-01 18:00:02</a>
@@ -16912,17 +11414,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 [  -- 来自能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2288#       发表于 2017-8-1 18:55
-
-
 
 
 为什么小跟班进门后要趴在地上？还是说她扑街了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -16931,16 +11426,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 <img src="http://wx2.sinaimg.cn/mw690/9c30f723gy1fi4f5b8odmj20zk0k041i.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2289#       发表于 2017-8-1 18:57
-
 
 
  本帖最后由 神之叹息 于 2017-8-1 18:59 编辑 
@@ -16951,16 +11440,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 如果她父母死因的真相被隐瞒了，对外是共和国的人杀掉了，其实是被暗杀了？如果皇太子带头叛变，传出去也不是个好事？说公主是第四继承位，很可能只是有名无实而已
 
 
-
-
-
-
-
 -----
 
 ####  万千百十  
 ##### 2290#       发表于 2017-8-1 19:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36756258&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-1 18:57</a>
@@ -16969,16 +11452,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 大英帝国的继承权名就是实，以他人的态度来看，王储叛变的概率极小。
 
 
-
-
-
-
-
 -----
 
 ####  jia3yu3sheng1  
 ##### 2291#       发表于 2017-8-1 20:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36756235&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-1 18:55</a>
@@ -16987,16 +11464,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 话说小贝这个角色真的是好谐啊<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  阿虚家的三味  
 ##### 2292#       发表于 2017-8-1 20:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36756235&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-1 18:55</a>
@@ -17005,20 +11476,13 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 被躺地上的那位绊倒了
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2293#       发表于 2017-8-1 20:37
 
 
-
 <[strong>『プリンセス・プリンシパル GOM』公式</strong>‏ @<strong>pripri_game</strong>](https://twitter.com/pripri_game)  [1小时1小时前](https://twitter.com/pripri_game/status/892346526772600833)更多
-
 
 
 公式サイトにてオリジナルキャラクターをさらに3名公開です！今回はハンマー娘、探偵少女、特ダネ記者の3人です。TOPページの「Character」にてご覧ください！
@@ -17026,16 +11490,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 <img src="http://wx2.sinaimg.cn/mw690/9c30f723gy1fi4i5f099zj20s90k0n1y.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2294#       发表于 2017-8-1 20:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36756902&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-1 20:37</a>
@@ -17056,16 +11514,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 那可就处得不太愉快
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2295#       发表于 2017-8-1 20:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36756845&amp;ptid=1486439" target="_blank">阿虚家的三味 发表于 2017-8-1 20:31</a>
@@ -17074,16 +11526,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 像是进去时踩台阶踩空了……
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2296#       发表于 2017-8-1 20:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36757013&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-8-1 20:47</a>
@@ -17096,16 +11542,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 比阿特和安洁其实都相当有cp感了。安洁每次出任务必然带上她，还日常腹黑调戏，感觉忠犬组也挺萌的……
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2297#       发表于 2017-8-1 20:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36757086&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-8-1 20:55</a>
@@ -17126,16 +11566,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 怕就怕有人图谋不轨。。。
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2298#       发表于 2017-8-1 21:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36757112&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-8-1 20:58</a>
@@ -17150,16 +11584,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 不过ab之间确实也就是到同为忠犬为止了，看这一集船上小队分组行动时没被分配的比阿特在原地转了两圈最后竟然很知趣地往cd那边跑……连公主都不跟了，看样子这部剧是不会让人插足安洁和公主的<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2299#       发表于 2017-8-1 21:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36757189&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-8-1 21:07</a>
@@ -17176,16 +11604,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 另两个倒是更少看她们一起行动
 
 
-
-
-
-
-
 -----
 
 ####  saturnus  
 ##### 2300#       发表于 2017-8-1 21:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36756258&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-08-01 18:57:14</a>
@@ -17194,16 +11616,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 [  -- 来自能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2301#       发表于 2017-8-1 21:22
-
 
 
 <blockquote>lmx20 发表于 2017-8-1 21:12
@@ -17216,25 +11632,13 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 所以感觉也还是反映两人关系有点微妙
 
 
-
-
-
-
-
 -----
 
 ####  jia3yu3sheng1  
 ##### 2302#       发表于 2017-8-1 21:43
 
 
-
-
 为了看#2291的三张图特意回去重看了第四集，那个略带丢帧（？）的迷之摔倒真是笑得不行，而且越发觉得小贝的角色定位……果然是吉祥物没跑了吧，目前第四集体现的最为明显，有将近十个很搞的细节，如果全程只关注这一个角色的话我还以为自己是在看猫和老鼠……怎么办，我好像突然爱上这个角色了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17243,14 +11647,7 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 ##### 2303#       发表于 2017-8-1 21:44
 
 
-
-
 话说ed什么时候能听，蛮喜欢的
-
-
-
-
-
 
 
 -----
@@ -17259,16 +11656,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 ##### 2304#       发表于 2017-8-1 21:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36757493&amp;ptid=1486439" target="_blank">jia3yu3sheng1 发表于 2017-8-1 21:44</a>
 
 话说ed什么时候能听，蛮喜欢的</blockquote>
 好像是8.2发售
-
-
-
-
-
 
 
 -----
@@ -17277,17 +11668,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 ##### 2305#       发表于 2017-8-1 21:59
 
 
-
-
 大公催促公主结婚，
 
 王室外“嫁”需要放弃继承权。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17296,14 +11680,7 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 ##### 2306#       发表于 2017-8-1 22:45
 
 
-
-
 为何公主不对安洁说，她要出嫁到莫斯科？把这段放结尾就完美了，能胃疼一个礼拜<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17312,14 +11689,7 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 ##### 2307#       发表于 2017-8-1 22:48
 
 
-
-
 目前小队基本都是顺利完成任务，猜测前半段都是完美收官，后半段大河内疯狂发药，小队接连受挫，一集俘虏一个<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">全剧终~
-
-
-
-
-
 
 
 -----
@@ -17328,14 +11698,7 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 ##### 2308#       发表于 2017-8-1 22:55
 
 
-
-
 别忘了第一集开头是安洁和千世搭档的，顶多加个多萝西就完事了。公主和小跟班除了特殊任务外基本没啥用
-
-
-
-
-
 
 
 -----
@@ -17344,14 +11707,7 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 ##### 2309#       发表于 2017-8-1 23:47
 
 
-
-
 有ed惹<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17360,14 +11716,7 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 ##### 2310#       发表于 2017-8-2 00:03
 
 
-
-
 我在想，第一集那个妹妹得的病，会不会以后安洁得啊，她经常用那个球，而且那个球还烂过……
-
-
-
-
-
 
 
 -----
@@ -17376,21 +11725,15 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  7小�
 ##### 2311#       发表于 2017-8-2 08:06
 
 
-
-
 http://www.bilibili.com/video/av12850663
 
 
 ED完整版
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -17400,19 +11743,13 @@ ED完整版
 | 莉莉橙| + 1|感谢分享，期待很久了|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  posion  
 ##### 2312#       发表于 2017-8-2 09:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36751207&amp;ptid=1486439" target="_blank">clanon 发表于 2017-8-1 10:58</a>
@@ -17425,16 +11762,10 @@ L还在怀疑公主吧，被叛徒安洁蒙在鼓里<img src="https://static.sar
 case9的大成果已经让多萝西向着自己了。
 
 
-
-
-
-
-
 -----
 
 ####  posion  
 ##### 2313#       发表于 2017-8-2 09:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36757112&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-8-1 20:58</a>
@@ -17447,16 +11778,10 @@ case9的大成果已经让多萝西向着自己了。
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我大胆地猜测贝阿朵将会是第一个无意中得知真假公主内幕的人
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 2314#       发表于 2017-8-2 09:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36760428&amp;ptid=1486439" target="_blank">posion 发表于 2017-8-2 09:17</a>
@@ -17465,26 +11790,15 @@ case9的大成果已经让多萝西向着自己了。
 贝熊：“有两个公主，嘿嘿嘿”
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2315#       发表于 2017-8-2 10:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36760428&amp;amp;ptid=1486439" target="_blank">posion 发表于 2017-8-2 09:17</a>
 我大胆地猜测贝阿朵将会是第一个无意中得知真假公主内幕的人</blockquote>
 如果公主和安洁同时陷入危险，贝熊会选择优先保证谁的安全呢？（当她知道真相时）<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17493,16 +11807,10 @@ case9的大成果已经让多萝西向着自己了。
 ##### 2316#       发表于 2017-8-2 10:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36761371&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-8-2 10:34</a>
 
 如果公主和安洁同时陷入危险，贝熊会选择优先保证谁的安全呢？（当她知道真相时） ...</blockquote>
 潜意识里肯定倾向公主的,和真相关系不大,在一起的时光更长
-
-
-
-
-
 
 
 -----
@@ -17511,22 +11819,15 @@ case9的大成果已经让多萝西向着自己了。
 ##### 2317#       发表于 2017-8-2 10:41
 
 
-
 <blockquote>漫区专号 发表于 2017-8-2 10:34
 如果公主和安洁同时陷入危险，贝熊会选择优先保证谁的安全呢？（当她知道真相时） ...</blockquote>
 毫无疑问是现公主啊，她迷恋的又不是公主这个身份
-
-
-
-
-
 
 
 -----
 
 ####  deidara  
 ##### 2318#       发表于 2017-8-2 10:42
-
 
 
 <blockquote>lmx20 发表于 2017-8-1 15:42
@@ -17539,16 +11840,10 @@ case9的大成果已经让多萝西向着自己了。
 那就不一定了，某党不就勾结老大哥削弱本国势力么，结局是一个胜利走向另一个胜利，都快伟大复兴了。
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2319#       发表于 2017-8-2 10:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36761475&amp;amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-8-2 10:41</a>
@@ -17558,16 +11853,10 @@ case9的大成果已经让多萝西向着自己了。
 问题是经过这么多案件后，她其实已经和安洁的关系很好了。而且关键我问的是危机不是生死。如果不优先救出安洁，那么按故事来说主角队基本就没法翻盘了。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2320#       发表于 2017-8-2 10:51
-
 
 
 <blockquote>漫区专号 发表于 2017-8-2 10:47
@@ -17578,16 +11867,10 @@ case9的大成果已经让多萝西向着自己了。
 这个就要具体问题具体分析了，处理的好的话会药味很足的…
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2321#       发表于 2017-8-2 11:02
-
 
 
  本帖最后由 漫区专号 于 2017-8-2 11:06 编辑 
@@ -17601,25 +11884,13 @@ case9的大成果已经让多萝西向着自己了。
 我只是单纯的觉得大河内不会写出，贝熊在二选一的情况下为救公主而几乎要看着安洁死（或者被抓走）的剧情。如果出现二选一的剧情那么一是喂药，二是可以引出救公主的戏。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2322#       发表于 2017-8-2 11:27
 
 
-
-
 小跟班一命换一命，大河内我看好你哟！！
-
-
-
-
-
 
 
 -----
@@ -17628,15 +11899,9 @@ case9的大成果已经让多萝西向着自己了。
 ##### 2323#       发表于 2017-8-2 11:42
 
 
-
 <blockquote>漫区专号 发表于 2017-8-2 11:02
 我只是单纯的觉得大河内不会写出，贝熊在二选一的情况下为救公主而几乎要看着安洁死（或者被抓走）的剧情 ...</blockquote>
 安洁被抓，公主去救，这是我想看的剧情
-
-
-
-
-
 
 
 -----
@@ -17645,23 +11910,15 @@ case9的大成果已经让多萝西向着自己了。
 ##### 2324#       发表于 2017-8-2 11:51
 
 
-
-
 这个小队各怀鬼胎，多个女王密探也很正常
 
 眼看胜利在望，贝熊抬手就是个群体背刺：“all hail  britannia”
-
-
-
-
-
 
 
 -----
 
 ####  D-JoeII  
 ##### 2325#       发表于 2017-8-2 12:32
-
 
 
 <blockquote>ahyyk 发表于 2017-8-2 11:51
@@ -17671,26 +11928,15 @@ case9的大成果已经让多萝西向着自己了。
 既然是大河內，應該是超展開成Hail Hydra
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2326#       发表于 2017-8-2 13:15
 
 
-
  本帖最后由 aptx8285144 于 2017-8-2 13:17 编辑 
 
 大河内的原创角色们即使风评最好的死后文尚且有文歌不知所措的时刻,看好小队后面吃嘎,其中有人被嘲讽
-
-
-
-
-
 
 
 -----
@@ -17699,22 +11945,15 @@ case9的大成果已经让多萝西向着自己了。
 ##### 2327#       发表于 2017-8-2 15:42
 
 
-
 <blockquote>xtwx1716 发表于 2017-8-2 11:42
 安洁被抓，公主去救，这是我想看的剧情</blockquote>
 公主能怎么救？莫非…肉搏？！
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 2328#       发表于 2017-8-2 15:56
-
 
 
 <blockquote>神之叹息 发表于 2017-8-2 15:42
@@ -17724,16 +11963,10 @@ case9的大成果已经让多萝西向着自己了。
 总之如果说强者救弱者是理所应当，那么弱者救强者这种必须要更有觉悟才行，我比较喜欢这种剧情，因为戏剧冲突通常都非常的强烈
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 2329#       发表于 2017-8-2 16:26
-
 
 
  本帖最后由 bird-lay 于 2017-8-2 16:34 编辑 
@@ -17743,16 +11976,10 @@ case9的大成果已经让多萝西向着自己了。
 以及公主这么中途退场真的不要紧吗？
 
 
-
-
-
-
-
 -----
 
 ####  crazymarky  
 ##### 2330#       发表于 2017-8-2 16:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36762445&amp;ptid=1486439" target="_blank">ahyyk 发表于 2017-8-2 11:51</a>
@@ -17763,16 +11990,10 @@ case9的大成果已经让多萝西向着自己了。
 The Queen is dead, long live the Queen!
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 2331#       发表于 2017-8-2 16:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36764905&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-2 15:42</a>
@@ -17783,25 +12004,13 @@ The Queen is dead, long live the Queen!
 不会关节技的叫什么公主，当什么王者？
 
 
-
-
-
-
-
 -----
 
 ####  撒尿牛丸  
 ##### 2332#       发表于 2017-8-2 16:44
 
 
-
-
 忍者代表的势力，不是为了自己的一亩三分的岛内墙头草，就是等着板砖大会站队的第三国，还有这太都合了，最后劫人，公主不能说话，一开口那个技术宅鼹鼠都猜身份了，躺地上两个没处理掉么，还是一起绑回去了。女王感觉有点半被架空的样子，果然分家的共和国才是忠臣么
-
-
-
-
-
 
 
 -----
@@ -17810,14 +12019,7 @@ The Queen is dead, long live the Queen!
 ##### 2333#         楼主| 发表于 2017-8-2 16:54
 
 
-
-
 #5「case7 Bullet&amp;Blade’s Ballad」
-
-
-
-
-
 
 
 -----
@@ -17826,15 +12028,9 @@ The Queen is dead, long live the Queen!
 ##### 2334#       发表于 2017-8-2 16:56
 
 
-
 <blockquote>bird-lay 发表于 2017-8-2 16:26
 感觉千世的身份也不简单，应该是一个官二代之类的。。。不过看这个动画的样子应该不会牵扯第三方势力搅局之 ...</blockquote>
 就说和朋友们出去兜兜风好了。那种地方公主露个面走个过场就行，她要离开一般人不敢过问太多吧。当然时不时这样公爵怀疑上是肯定的，迟早的事
-
-
-
-
-
 
 
 -----
@@ -17843,22 +12039,13 @@ The Queen is dead, long live the Queen!
 ##### 2335#       发表于 2017-8-2 16:58
 
 
-
-
 3～8挑了一个7，而不是8…
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2336#         楼主| 发表于 2017-8-2 18:02
-
-
 
 
 第5話「case7 Bullet &amp; Blade's Ballad」
@@ -17881,25 +12068,13 @@ The Queen is dead, long live the Queen!
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fi5j9v5i89j20b4069dge.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2337#       发表于 2017-8-2 18:06
 
 
-
-
 下集感觉要变成超能力大战了
-
-
-
-
-
 
 
 -----
@@ -17908,15 +12083,9 @@ The Queen is dead, long live the Queen!
 ##### 2338#       发表于 2017-8-2 18:07
 
 
-
  本帖最后由 noneoneone 于 2017-8-3 09:28 编辑 
 
 其实可以赌一下，这片接下来会不会出现刀砍子 弹的场面。
-
-
-
-
-
 
 
 -----
@@ -17925,23 +12094,15 @@ The Queen is dead, long live the Queen!
 ##### 2339#       发表于 2017-8-2 18:15
 
 
-
 <blockquote>noneoneone 发表于 2017-8-2 18:07
 其实可以赌一下，这片接下来会不会出现刀砍**的场面。</blockquote>
 第一集也出现过日本刀切汽车的场面，感觉砍子 单也没什么好惊奇的
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 2340#       发表于 2017-8-2 20:05
-
-
 
 
 来自日本的外交特使——堀河公（前译“堀川公”）及其使节团，以请求“条约改正(*)”为目的造访了王国。
@@ -17959,25 +12120,13 @@ The Queen is dead, long live the Queen!
 (*)“条约改正”是日本近代明治政府的首要外交课题，其目的是通过外交手段修改日本自“黑船事件”以来签订的一系列不平等条约。从1868年至1911年，日本用40多年的时间完成了修约任务，摆脱了欧美列强强加于日本的种种不平等待遇，成功完成了向近代国家的转化。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2341#       发表于 2017-8-2 20:07
 
 
-
-
 公主如果拉拢千世，那么千世到底是为共和国做事还是为王国做事？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">如果千世知道真相会不会崩坏？
-
-
-
-
-
 
 
 -----
@@ -17986,22 +12135,15 @@ The Queen is dead, long live the Queen!
 ##### 2342#       发表于 2017-8-2 20:12
 
 
-
 <blockquote>神之叹息 发表于 2017-8-2 20:07
 公主如果拉拢千世，那么千世到底是为共和国做事还是为王国做事？如果千世知道真相会不会崩坏？ ...</blockquote>
 千岁的立场估计只是一个见风使舵的观察哨，谁对条约解除有利就帮谁。公主可能只是给了个虚无缥缈的保证。所以随时抛弃也是有可能的
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 2343#       发表于 2017-8-2 20:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36767489&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-8-2 20:12</a>
@@ -18016,17 +12158,10 @@ The Queen is dead, long live the Queen!
 另外感觉堀川公明面上是派千世加入共和国，表明自己的态度，但实际上暗地里却让千世观察公主。那么下一集应该是千世和堀川公发现了公主和C组织的关系，上集堀川公还问千世，共和国的人有没有怀疑她，也许是担心自己的计划被识穿吧
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 2344#       发表于 2017-8-2 21:17
-
-
 
 
 感觉堀川相比偏向王国，更像是偏向公主，并且还知道公主在给共和国跑腿，下一集应该会讲清楚吧，有可能是公主队保护了千岁所以堀川欠她们人情或者有什么交易？
@@ -18036,25 +12171,13 @@ The Queen is dead, long live the Queen!
 不过也说不准，在千岁给公主讲了一大通好话的时候打断她，感觉这个也像在提醒千岁不要忘记自己的任务。。。
 
 
-
-
-
-
-
 -----
 
 ####  jia3yu3sheng1  
 ##### 2345#       发表于 2017-8-2 21:20
 
 
-
-
 敲碗等第五集
-
-
-
-
-
 
 
 -----
@@ -18063,17 +12186,10 @@ The Queen is dead, long live the Queen!
 ##### 2346#       发表于 2017-8-2 21:53
 
 
-
-
 公主用两个case的时间让千世从陌生人到在领导面前替自己背书
 
 
 种族天赋外交，一天三个日常，每个日常1500+声望，刷到崇敬一共要。。。。
-
-
-
-
-
 
 
 -----
@@ -18082,16 +12198,9 @@ The Queen is dead, long live the Queen!
 ##### 2347#       发表于 2017-8-2 22:09
 
 
-
-
 转微博@一般会社员Nagi_菲伊中毒        
 
 #Princess Principal# BD第二卷特典送角色原案黑星红白的插画集[哆啦A梦吃惊][哆啦A梦吃惊][哆啦A梦吃惊] ​
-
-
-
-
-
 
 
 -----
@@ -18100,16 +12209,10 @@ The Queen is dead, long live the Queen!
 ##### 2348#       发表于 2017-8-2 22:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36765502&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-2 16:58</a>
 
 3～8挑了一个7，而不是8…</blockquote>
 看这集千世的反应，估计就是因为CASE8里千世刚入队正准备大干一场的时候被安洁命令待机保护公主去了，所以这集不满爆发，强烈要求跟着去。
-
-
-
-
-
 
 
 -----
@@ -18118,16 +12221,10 @@ The Queen is dead, long live the Queen!
 ##### 2349#       发表于 2017-8-2 23:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36768650&amp;ptid=1486439" target="_blank">hymbz 发表于 2017-8-2 22:24</a>
 
 看这集千世的反应，估计就是因为CASE8里千世刚入队正准备大干一场的时候被安洁命令待机保护公主去了，所 ...</blockquote>
 千世就是热血的性格吧，看到多萝西拿到一封情书都能想成是挑战书，会抢着出任务也是正常。
-
-
-
-
-
 
 
 -----
@@ -18136,14 +12233,7 @@ The Queen is dead, long live the Queen!
 ##### 2350#       发表于 2017-8-2 23:29
 
 
-
-
 公主这出对自己国力削弱是不是太狠了点。。。这么搞即使自己上位了王国科技树也完全劣于共和国了吧，那被吞并也是迟早的啊
-
-
-
-
-
 
 
 -----
@@ -18152,14 +12242,7 @@ The Queen is dead, long live the Queen!
 ##### 2351#       发表于 2017-8-2 23:30
 
 
-
-
 堀川公的定位和CG里的京都六家差不多吧。京都六家想利用反骨仔干翻布国，这里堀川公估计是想利用公主在共和国和王国攫取利益。若有两季篇幅，不知能不能看到公主反杀，把堀川公势力纳入麾下的桥段……
-
-
-
-
-
 
 
 -----
@@ -18168,21 +12251,13 @@ The Queen is dead, long live the Queen!
 ##### 2352#       发表于 2017-8-2 23:33
 
 
-
-
 最怕安洁是刀子嘴豆腐心，而公主反过来了
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 2353#       发表于 2017-8-2 23:35
-
 
 
 <blockquote><a href="httphttp://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36769192&amp;ptid=1486439" target="_blank">南风森琉璃 发表于 2017-8-2 23:29</a>
@@ -18192,16 +12267,10 @@ The Queen is dead, long live the Queen!
 感觉共和国还是有些虚的，毕竟王国还手握着空中舰队，分裂出的共和国估计没那么大阵仗，只能说是自保下加威胁着王国，两边都不敢轻举妄动。
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 2354#       发表于 2017-8-2 23:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36769219&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-2 23:33</a>
@@ -18214,25 +12283,13 @@ The Queen is dead, long live the Queen!
 虽然感觉后面会药味很重，不过这一话的糖还是吃的很开心啊
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2355#       发表于 2017-8-2 23:44
 
 
-
-
 第二集看军人的反应，感觉他们也不想把事情搞大，和王国火拼即便赢了也是一身伤。王国也是这么想的估计<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">而且王国的科技还是有些差距，但毕竟世代累积下来的实力还是有的，共和国也不敢随便动，这就给王国有时间去攀科技树了
-
-
-
-
-
 
 
 -----
@@ -18241,23 +12298,16 @@ The Queen is dead, long live the Queen!
 ##### 2356#       发表于 2017-8-3 00:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36769196&amp;ptid=1486439" target="_blank">sherlockchu 发表于 2017-08-02 23:30:00</a>
 堀川公的定位和CG里的京都六家差不多吧。京都六家想利用反骨仔干翻布国，这里堀川公估计是想利用公主在共和 ...</blockquote>我怎么觉得更像中华联邦啊，千世差不多约等于黎星刻<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  hymbz  
 ##### 2357#       发表于 2017-8-3 01:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36769279&amp;ptid=1486439" target="_blank">bird-lay 发表于 2017-08-02 23:41:04</a>
@@ -18268,16 +12318,10 @@ The Queen is dead, long live the Queen!
 [  -- 来自能订阅的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2358#       发表于 2017-8-3 06:04
-
 
 
 <blockquote>bird-lay 发表于 2017-8-2 23:41
@@ -18290,16 +12334,10 @@ The Queen is dead, long live the Queen!
 我倒是不认为公主是黑的，但是跟安洁思路差异很大的确是事实…此处以后会有撕逼吧
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2359#       发表于 2017-8-3 08:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36769927&amp;ptid=1486439" target="_blank">hymbz 发表于 2017-8-3 01:26</a>
@@ -18308,25 +12346,13 @@ The Queen is dead, long live the Queen!
 “对我讨厌的东西说喜欢的人，我又怎么能去喜欢呢？”<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2360#       发表于 2017-8-3 09:03
 
 
-
-
 关于背叛这点来说呢,如果按照光伟正的方向想,要还是看她们最终目的吧，如果确实是为了拆掉共和和帝国之间的墙让世界一定程度上和平下来，那么背负着背叛其中一方的阴影促成双方的更大利益,当然这个说法也是建立在这话之后对这件事情没有补救来说的,当然虽然我觉得现在发展下去小队真可能轮流背叛两方最后只为自己活着<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18335,21 +12361,13 @@ The Queen is dead, long live the Queen!
 ##### 2361#       发表于 2017-8-3 09:10
 
 
-
-
 这么百合的片子专门有人发帖婊百合，贱的无以复加
-
-
-
-
-
 
 
 -----
 
 ####  lmx20  
 ##### 2362#       发表于 2017-8-3 09:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36771350&amp;ptid=1486439" target="_blank">万千百十 发表于 2017-8-3 09:10</a>
@@ -18376,16 +12394,10 @@ The Queen is dead, long live the Queen!
 总比闭门造车强
 
 
-
-
-
-
-
 -----
 
 ####  万千百十  
 ##### 2363#       发表于 2017-8-3 09:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36771437&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-8-3 09:18</a>
@@ -18398,26 +12410,15 @@ The Queen is dead, long live the Queen!
 我不是表达忧虑，我只是对如此之贱感到恶心，这不是意见，这是找茬。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2364#       发表于 2017-8-3 12:11
 
 
-
 <blockquote>万千百十 发表于 2017-8-3 09:10
 这么百合的片子专门有人发帖婊百合，贱的无以复加</blockquote>
 单看OP就知道是百合片了
-
-
-
-
-
 
 
 -----
@@ -18426,14 +12427,7 @@ The Queen is dead, long live the Queen!
 ##### 2365#       发表于 2017-8-3 12:38
 
 
-
-
 讲道理 现在也不能说一定是百合。毕竟有可能是姐妹啊
-
-
-
-
-
 
 
 -----
@@ -18442,14 +12436,7 @@ The Queen is dead, long live the Queen!
 ##### 2366#       发表于 2017-8-3 12:46
 
 
-
-
 这年头有夫有子都能百合，姐妹就不能百合了？
-
-
-
-
-
 
 
 -----
@@ -18458,15 +12445,9 @@ The Queen is dead, long live the Queen!
 ##### 2367#       发表于 2017-8-3 12:54
 
 
-
 <blockquote>xtwx1716 发表于 2017-8-3 12:38
 讲道理 现在也不能说一定是百合。毕竟有可能是姐妹啊</blockquote>
 姐妹百合怎么了，照样有elsanna啊
-
-
-
-
-
 
 
 -----
@@ -18475,21 +12456,13 @@ The Queen is dead, long live the Queen!
 ##### 2368#       发表于 2017-8-3 12:55
 
 
-
-
 有没有投母女的（X
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 2369#       发表于 2017-8-3 13:13
-
 
 
  本帖最后由 xtwx1716 于 2017-8-3 13:22 编辑 
@@ -18500,25 +12473,13 @@ The Queen is dead, long live the Queen!
 当然我也明白百合片通常都是停留在似有似无的状态的，这片最后估计也不会捅破这层窗户纸，到时候就看观众愿意怎么理解吧
 
 
-
-
-
-
-
 -----
 
 ####  killng  
 ##### 2370#       发表于 2017-8-3 16:19
 
 
-
-
 用几句言语就被激怒挑拨，这可当不了优秀的spider
-
-
-
-
-
 
 
 -----
@@ -18527,16 +12488,10 @@ The Queen is dead, long live the Queen!
 ##### 2371#       发表于 2017-8-3 21:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36776051&amp;ptid=1486439" target="_blank">killng 发表于 2017-8-3 16:19</a>
 
 用几句言语就被激怒挑拨，这可当不了优秀的spider</blockquote>
 出了专楼，没时间去和三番五次发帖找茬的装来装去，泥潭从来不做作
-
-
-
-
-
 
 
 -----
@@ -18545,21 +12500,13 @@ The Queen is dead, long live the Queen!
 ##### 2372#       发表于 2017-8-4 08:38
 
 
-
-
 纯正的百合片太少了，这片怎么看都不是。露骨的百合作品基本是票房毒药，所以业界都是玩所谓高浓度友情的轻百合。典型的就是轻音在业界带起的没有男主只有一堆美少女的喝茶片都能大火的卖萌风。换句话说这类作品的核心是萌萌美少女，偏离这个去玩百合那是找死。
-
-
-
-
-
 
 
 -----
 
 ####  堆雪若叶  
 ##### 2373#       发表于 2017-8-4 09:13
-
 
 
 <blockquote>漫区专号 发表于 2017-8-4 08:38
@@ -18569,16 +12516,10 @@ The Queen is dead, long live the Queen!
 至于业界都是玩所谓高浓度友情的轻百合，3hz的前一部轻拍没看？
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2374#       发表于 2017-8-4 09:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36778714&amp;ptid=1486439" target="_blank">万千百十 发表于 2017-8-3 21:06</a>
@@ -18587,25 +12528,13 @@ The Queen is dead, long live the Queen!
 淡定呀,我已经开始习惯泥谭的这种气氛了(尤其是今年感觉比去年恶劣多了),我从来是无视钓鱼本身<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">然后直接和提出剧情疑问的人讨论剧情部分的.
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2375#       发表于 2017-8-4 09:40
 
 
-
-
 个人想象的结局，公主没当上女王，但自愿放弃继承权，和安洁走了。绝对的HE。共和国和王国互相理解，伦敦墙变成了旅游胜地，卖点就是公主爱上了敌国间谍，接受了对方的求婚。
-
-
-
-
-
 
 
 -----
@@ -18614,15 +12543,9 @@ The Queen is dead, long live the Queen!
 ##### 2376#       发表于 2017-8-4 09:45
 
 
-
 <blockquote>神之叹息 发表于 2017-8-4 09:40
 个人想象的结局，公主没当上女王，但自愿放弃继承权，和安洁走了。绝对的HE。共和国和王国互相理解，伦敦墙 ...</blockquote>
 别的不奢求，一定要有两人从空中战舰掉下来然后用重力球浮空的场面，否则白瞎了这个这个设定了
-
-
-
-
-
 
 
 -----
@@ -18631,14 +12554,7 @@ The Queen is dead, long live the Queen!
 ##### 2377#       发表于 2017-8-4 09:52
 
 
-
-
 一个想着两人私奔，一个想着登上高位消除两人在一起的障碍，这已经够露骨了，即使两人是姐妹这种感情表示也绝不是普通的姐妹之情，就差没有性方面的欲求了。像圆脸焰和圆那种也没明说焰是姬佬但剧情上已经明明白白表现出她对圆绝对是超越友情的爱情
-
-
-
-
-
 
 
 -----
@@ -18647,14 +12563,7 @@ The Queen is dead, long live the Queen!
 ##### 2378#       发表于 2017-8-4 09:53
 
 
-
-
 感觉这片到现在还看不出超过伊泽塔的地方
-
-
-
-
-
 
 
 -----
@@ -18663,16 +12572,10 @@ The Queen is dead, long live the Queen!
 ##### 2379#       发表于 2017-8-4 09:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36780768&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-8-4 09:45</a>
 
 别的不奢求，一定要有两人从空中战舰掉下来然后用重力球浮空的场面，否则白瞎了这个这个设定了 ...</blockquote>
 期待op画面回收<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18681,15 +12584,9 @@ The Queen is dead, long live the Queen!
 ##### 2380#       发表于 2017-8-4 11:19
 
 
-
 <blockquote>神之叹息 发表于 2017-8-4 09:40
 个人想象的结局，公主没当上女王，但自愿放弃继承权，和安洁走了。绝对的HE。共和国和王国互相理解，伦敦墙 ...</blockquote>
 好想法呀！两国统一……公主爱上间谍的故事流传民间
-
-
-
-
-
 
 
 -----
@@ -18698,15 +12595,9 @@ The Queen is dead, long live the Queen!
 ##### 2381#       发表于 2017-8-4 11:21
 
 
-
 <blockquote>xtwx1716 发表于 2017-8-4 09:45
 别的不奢求，一定要有两人从空中战舰掉下来然后用重力球浮空的场面，否则白瞎了这个这个设定了 ...</blockquote>
 甚好，op那个画面我很喜欢。一定要在正片做一次
-
-
-
-
-
 
 
 -----
@@ -18715,15 +12606,9 @@ The Queen is dead, long live the Queen!
 ##### 2382#       发表于 2017-8-4 12:05
 
 
-
 <blockquote>漫区专号 发表于 2017-8-4 08:38
 纯正的百合片太少了，这片怎么看都不是。露骨的百合作品基本是票房毒药，所以业界都是玩所谓高浓度友情的轻 ...</blockquote>
 那有几个纯正的bg片？大多后宫片不是纯正bg啊
-
-
-
-
-
 
 
 -----
@@ -18732,15 +12617,9 @@ The Queen is dead, long live the Queen!
 ##### 2383#       发表于 2017-8-4 13:36
 
 
-
 <blockquote>梦诗歌雪 发表于 2017-8-4 09:52
 一个想着两人私奔，一个想着登上高位消除两人在一起的障碍，这已经够露骨了，即使两人是姐妹这种感情表示也 ...</blockquote>
 焰最后不是自己说是比什么什么更深沉的爱么=_=
-
-
-
-
-
 
 
 -----
@@ -18749,16 +12628,9 @@ The Queen is dead, long live the Queen!
 ##### 2384#       发表于 2017-8-4 14:50
 
 
-
-
 有点当年看鲁鲁修的感觉
 
 —— 来自 vivo Y51, Android 5.0.2
-
-
-
-
-
 
 
 -----
@@ -18767,161 +12639,72 @@ The Queen is dead, long live the Queen!
 ##### 2385#       发表于 2017-8-5 12:03
 
 
-
-
 追加先行图
-
-
-
-
 
 
 400F8A1536AD6E6A**3BCCD6C71CC2E.jpg
 (39.9 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2017-8-5 12:01 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201708/05/120133ezzd3vbcyti3imz3.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 B2182355DC7B9CCD3161D9888651786D.jpg
 (30.33 KB, 下载次数: 2)
 
 
-
-
 下载附件
 
 
 2017-8-5 12:01 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201708/05/120152ytt721z77t7jjq1b.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 A80E0DC5D8556722CB2D0F8E3E74D24F.jpg
 (37.62 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2017-8-5 12:02 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201708/05/120208yblflte62s0f61kz.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 FAF037BBCDD963F5ADA0A447A9600D12.jpg
 (39.1 KB, 下载次数: 1)
 
 
-
-
 下载附件
 
 
 2017-8-5 12:02 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201708/05/120232dnwnwzg0wxgt97nd.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 2078BE28644344C00CE8E90CB2AFCD9D.jpg
 (26.41 KB, 下载次数: 1)
 
 
-
-
 下载附件
 
 
 2017-8-5 12:02 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201708/05/120258hbu3jb33d3zvhq4f.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -18930,21 +12713,13 @@ FAF037BBCDD963F5ADA0A447A9600D12.jpg
 ##### 2386#       发表于 2017-8-5 12:28
 
 
-
-
 千世多萝西相爱相杀坐实
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2387#         楼主| 发表于 2017-8-5 12:38
-
 
 
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fi8qrzcvtyj20xc0ir0vi.jpg" referrerpolicy="no-referrer">
@@ -18954,17 +12729,10 @@ FAF037BBCDD963F5ADA0A447A9600D12.jpg
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fi8qs1h2dnj20xc0ir0u6.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Liren  
 ##### 2388#       发表于 2017-8-5 12:44
-
-
 
 
 不太懂 为什么王国明明有浮空飞船，为什么4集的时候科学家才刚造出来浮空系统？
@@ -18972,16 +12740,10 @@ FAF037BBCDD963F5ADA0A447A9600D12.jpg
 是时间线不一样嘛，还是啥原因？
 
 
-
-
-
-
-
 -----
 
 ####  bamboom  
 ##### 2389#       发表于 2017-8-5 12:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36792420&amp;ptid=1486439" target="_blank">Liren 发表于 2017-8-5 12:44</a>
@@ -18992,16 +12754,10 @@ FAF037BBCDD963F5ADA0A447A9600D12.jpg
 造出来的那个是小型化的浮空装置，就是主角拿的那个，浮空战舰的装置是比较大的
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2390#       发表于 2017-8-5 12:52
-
 
 
 <blockquote>Liren 发表于 2017-8-5 12:44
@@ -19011,16 +12767,10 @@ FAF037BBCDD963F5ADA0A447A9600D12.jpg
 举个不太恰当的例子，现在飞机都这么普及了，可还是没有大规模使用的单人飞行器
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2391#       发表于 2017-8-5 13:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36780858&amp;ptid=1486439" target="_blank">夏小芽 发表于 2017-8-4 09:53</a>
@@ -19029,32 +12779,19 @@ FAF037BBCDD963F5ADA0A447A9600D12.jpg
 PrPr里的公主比伊泽塔的大公（过去也为公主）骚气多了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  巴尔库夫  
 ##### 2392#       发表于 2017-8-5 13:03
 
 
-
-
 系统小型化,那战舰的装置也可以受益,腾出吨位装更多的武器,战斗力up
-
-
-
-
-
 
 
 -----
 
 ####  漫区专号  
 ##### 2393#       发表于 2017-8-5 13:13
-
 
 
  本帖最后由 漫区专号 于 2017-8-5 13:18 编辑 
@@ -19067,16 +12804,10 @@ PrPr里的公主比伊泽塔的大公（过去也为公主）骚气多了<img sr
 反重力系统小型化最大的应用应该是改进战斗机以及弹道导弹。用了小型反重力系统的战机可以去掉机翼，而洲际导弹省去了火箭发动机和大量燃料随便全球打击。
 
 
-
-
-
-
-
 -----
 
 ####  killng  
 ##### 2394#       发表于 2017-8-5 13:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36792567&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-8-5 13:01</a>
@@ -19085,24 +12816,13 @@ PrPr里的公主比伊泽塔的大公（过去也为公主）骚气多了</block
 菲涅殿下十六岁已经位居大公了，夏洛特公主十七岁刚踏出夺嫡的第一步
 
 
-
-
-
-
-
 -----
 
 ####  欧麦草  
 ##### 2395#       发表于 2017-8-5 13:25
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">几天不来楼怎么这么高了
-
-
-
-
-
 
 
 -----
@@ -19111,14 +12831,7 @@ PrPr里的公主比伊泽塔的大公（过去也为公主）骚气多了</block
 ##### 2396#       发表于 2017-8-5 14:57
 
 
-
-
 我也想把多萝西当女儿养了怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19127,21 +12840,14 @@ PrPr里的公主比伊泽塔的大公（过去也为公主）骚气多了</block
 ##### 2397#       发表于 2017-8-5 16:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36792499&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-8-5 12:52</a>
 
 举个不太恰当的例子，现在飞机都这么普及了，可还是没有大规模使用的单人飞行器 ...</blockquote>
 是这个道理，但是后文又说“大型重力兵器”这咋解释？难道不是飞机嘛
 
 
-
-
-
-
 捕获.PNG
 (671.18 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -19150,31 +12856,13 @@ PrPr里的公主比伊泽塔的大公（过去也为公主）骚气多了</block
 2017-8-5 16:10 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201708/05/161008dz3ygsgtgt2ffsvz.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 2398#       发表于 2017-8-5 16:16
-
 
 
 <blockquote>Liren 发表于 2017-8-5 16:10
@@ -19185,24 +12873,13 @@ PrPr里的公主比伊泽塔的大公（过去也为公主）骚气多了</block
 或者理解成llx里的芙蕾雅？
 
 
-
-
-
-
-
 -----
 
 ####  欧阳明  
 ##### 2399#       发表于 2017-8-5 16:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">间谍妹抖，真棒
-
-
-
-
-
 
 
 -----
@@ -19211,15 +12888,9 @@ PrPr里的公主比伊泽塔的大公（过去也为公主）骚气多了</block
 ##### 2400#       发表于 2017-8-5 17:41
 
 
-
 <blockquote>Liren 发表于 2017-8-5 16:10
 是这个道理，但是后文又说“大型重力兵器”这咋解释？难道不是飞机嘛</blockquote>
 这里翻译好像有问题吧...我看的翻译说是大规模重力武器。
-
-
-
-
-
 
 
 -----
@@ -19228,14 +12899,7 @@ PrPr里的公主比伊泽塔的大公（过去也为公主）骚气多了</block
 ##### 2401#       发表于 2017-8-5 22:42
 
 
-
-
 我个人觉得这片看着比伊泽塔有趣，伊泽塔给我留下比较深印象的只有第一集<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19244,15 +12908,9 @@ PrPr里的公主比伊泽塔的大公（过去也为公主）骚气多了</block
 ##### 2402#       发表于 2017-8-5 22:44
 
 
-
 <blockquote>jia3yu3sheng1 发表于 2017-8-5 22:42
 我个人觉得这片看着比伊泽塔有趣，伊泽塔给我留下比较深印象的只有第一集 ...</blockquote>
 伊泽塔百合的比较明显
-
-
-
-
-
 
 
 -----
@@ -19261,23 +12919,15 @@ PrPr里的公主比伊泽塔的大公（过去也为公主）骚气多了</block
 ##### 2403#       发表于 2017-8-5 22:49
 
 
-
-
 OP真是太棒了
 
 应该不是百合作品
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 2404#       发表于 2017-8-6 00:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36796380&amp;ptid=1486439" target="_blank">wuliaozheX 发表于 2017-8-5 22:49</a>
@@ -19288,16 +12938,10 @@ OP真是太棒了
 是百合，官方海报都那么明显了。但是动画里感觉没有那么强烈，至少现在情绪氛围还没到。两人才重新相认，等接近完结了估计就是了。反正case是跳着来的，有点神展开也不怕了
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2405#       发表于 2017-8-6 00:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36797058&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-6 00:17</a>
@@ -19309,17 +12953,10 @@ OP真是太棒了
 我感觉你们对百合的定义理解有偏差。你先回答一个问题：“终末的伊泽塔”是百合作品吗？
 
 
-
-
-
-
-
 -----
 
 ####  石头歪  
 ##### 2406#       发表于 2017-8-6 00:53
-
-
 
 
 不要战百合定义啊 会变成车轱辘话题<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -19327,16 +12964,10 @@ OP真是太棒了
 自己觉得是百合就是了 不用在意其他人怎么看待
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2407#       发表于 2017-8-6 01:09
-
 
 
  本帖最后由 漫区专号 于 2017-8-6 01:15 编辑 
@@ -19354,16 +12985,10 @@ OP真是太棒了
 同理就是动画里可以卖*肉甚至附送大尺度的杀必死来增加碟片销量，但你要是拍成H*动画那就变成小众产品必然不能大卖了。
 
 
-
-
-
-
-
 -----
 
 ####  TheWitcher  
 ##### 2408#       发表于 2017-8-6 05:26
-
 
 
 <blockquote>漫区专号 发表于 2017-8-6 00:50
@@ -19374,16 +12999,10 @@ OP真是太棒了
 两部作品都卖百合了你还要怎样才算百合片啊？
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2409#       发表于 2017-8-6 07:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36797436&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-8-6 01:09</a>
@@ -19396,16 +13015,10 @@ OP真是太棒了
 你说那才是百合，怎么我看着都想作呕
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2410#       发表于 2017-8-6 08:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36798191&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-8-6 07:09</a>
@@ -19418,16 +13031,10 @@ OP真是太棒了
 我说了真百合片是票房毒药，现在为止称为百合片的动画屈指可数。当然如果你认为轻音这类的动画就是百合片，那我也不说什么了。只能说理解偏差定义不同。
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2411#       发表于 2017-8-6 08:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36798046&amp;ptid=1486439" target="_blank">TheWitcher 发表于 2017-8-6 05:26</a>
@@ -19439,16 +13046,10 @@ OP真是太棒了
 如果你这样定义百合片，那我也不争论什么。只能说这是双方的理解偏差。
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2412#       发表于 2017-8-6 08:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36798358&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-8-6 08:01</a>
@@ -19469,16 +13070,10 @@ OP真是太棒了
 二次元的番一般不牵扯到此
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2413#       发表于 2017-8-6 08:22
-
 
 
  本帖最后由 漫区专号 于 2017-8-6 08:30 编辑 
@@ -19498,21 +13093,13 @@ OP真是太棒了
 （2）百合片和轻百合并没有一个绝对的线来划分开来。所以争论定义毫无意义，承认百合和轻百合的区别才有意义。
 
 
-
 所以最典型的百合作品和最典型的轻百合作品我们一眼就能看出区别来，但有些中间的就不一定了。还有就是PrPr现在看还不是百合片，但最后随剧情发展成百合片也不是不可能，所以我话还是先不说死。但伊泽塔我可以说不是百合片。
-
-
-
-
-
-
 
 
 -----
 
 ####  lmx20  
 ##### 2414#       发表于 2017-8-6 08:35
-
 
 
  本帖最后由 lmx20 于 2017-8-6 08:36 编辑 
@@ -19547,16 +13134,10 @@ OP真是太棒了
    
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2415#       发表于 2017-8-6 08:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36798455&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-8-6 08:22</a>
@@ -19584,16 +13165,10 @@ OP真是太棒了
 这种弱气受的行为，只会被别人X得越来越狠
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2416#       发表于 2017-8-6 08:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36798504&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-8-6 08:35</a>
@@ -19609,32 +13184,19 @@ OP真是太棒了
 （2）爱情本就是荷尔蒙的冲动，心理学已经证实。可见反而是没有荷尔蒙的冲动的大体上不能叫爱情/百合。陪伴式的关系也是爱情的一种，但这种陪伴式的爱情通常是爱情的第二阶段。从第爱情第二阶段直接开始的作品通常叫做家庭生活剧。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  钢琴猫  
 ##### 2417#       发表于 2017-8-6 08:56
 
 
-
-
 什么乱七八糟的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  lmx20  
 ##### 2418#       发表于 2017-8-6 09:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36798614&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-8-6 08:55</a>
@@ -19662,16 +13224,10 @@ OP真是太棒了
 干嘛还要单独拍那些更小众的故事
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2419#       发表于 2017-8-6 09:11
-
 
 
  本帖最后由 漫区专号 于 2017-8-6 09:14 编辑 
@@ -19691,16 +13247,10 @@ OP真是太棒了
 好吧话题就到此为止吧。专楼被带歪了，可能有人不满了。<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2420#       发表于 2017-8-6 09:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36798711&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-8-6 09:11</a>
@@ -19730,16 +13280,10 @@ OP真是太棒了
 要女性百合控才更能吃得下去
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2421#       发表于 2017-8-6 09:31
-
 
 
  本帖最后由 漫区专号 于 2017-8-6 09:35 编辑 
@@ -19753,16 +13297,10 @@ OP真是太棒了
 照的意思多数男性观众其实都是百合控？？？百合控势力其实比腐女强大的多（只是不团结）？？<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2422#       发表于 2017-8-6 09:55
-
 
 
  本帖最后由 lmx20 于 2017-8-6 10:05 编辑 
@@ -19807,33 +13345,19 @@ PS：我感觉我自己说话都乱了逻辑了
    
 
 
-
-
-
-
-
 -----
 
 ####  jia3yu3sheng1  
 ##### 2423#       发表于 2017-8-6 10:11
 
 
-
-
 楼是不是微妙的歪了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  killng  
 ##### 2424#       发表于 2017-8-6 10:55
-
-
 
 
 安洁：和我走吧公主，哪怕是我们最后能击退敌军，这个自古就有着顽固矛盾的国家也避免不了内斗和分裂
@@ -19847,16 +13371,10 @@ PS：我感觉我自己说话都乱了逻辑了
 千世：诸行无常
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2425#         楼主| 发表于 2017-8-6 11:25
-
 
 
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fi9u0h98ssj20zk0k07aj.jpg" referrerpolicy="no-referrer">
@@ -19871,17 +13389,10 @@ PS：我感觉我自己说话都乱了逻辑了
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fi9u0mp8mjj20zk0k0thp.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  wuliaozheX  
 ##### 2426#       发表于 2017-8-6 12:24
-
-
 
 
 我错了，你们别争了<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">还是回到作品上吧....
@@ -19891,16 +13402,10 @@ PS：我感觉我自己说话都乱了逻辑了
 那这集这个白鸽怎么解读？出完标题之后也是白鸽飞过，正好五只
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2427#       发表于 2017-8-6 12:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36800122&amp;ptid=1486439" target="_blank">wuliaozheX 发表于 2017-8-6 12:24</a>
@@ -19921,32 +13426,19 @@ PS：我感觉我自己说话都乱了逻辑了
 看看今天到底能爆出什么线索吧
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2428#       发表于 2017-8-6 12:31
 
 
-
-
 男比女多
-
-
-
-
-
 
 
 -----
 
 ####  hymbz  
 ##### 2429#       发表于 2017-8-6 13:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36799006&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-8-6 09:55</a>
@@ -19959,17 +13451,10 @@ PS：我感觉我自己说话都乱了逻辑了
 舰娘的盛行和百合关系不大吧，大部分玩家都是冲着角色去的，本子也是BG本多。我倒觉得百合控是少数群体，大部分人并不在意角色的感情（反正都是舔），只要人设好就够了。萌豚虽然也看轻百合，但重点还是在于角色而不是感情，这种角色厨并不能算进百合厨里吧。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2430#         楼主| 发表于 2017-8-6 13:05
-
-
 
 
 秋谷✜有紀恵‏ @akiyayukie 
@@ -19981,16 +13466,10 @@ PS：我感觉我自己说话都乱了逻辑了
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fi9x76igp4j20xc0xcafq.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  点点杠  
 ##### 2431#       发表于 2017-8-6 13:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36798614&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-8-6 08:55</a>
@@ -19999,16 +13478,10 @@ PS：我感觉我自己说话都乱了逻辑了
 想看爱情还是去看BG片比较好，百合番没那么矫情
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2432#       发表于 2017-8-6 13:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36800379&amp;ptid=1486439" target="_blank">hymbz 发表于 2017-8-6 13:01</a>
@@ -20037,16 +13510,10 @@ PS：我感觉我自己说话都乱了逻辑了
 还是暴死算了
 
 
-
-
-
-
-
 -----
 
 ####  点点杠  
 ##### 2433#       发表于 2017-8-6 13:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36798711&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-8-6 09:11</a>
@@ -20058,16 +13525,10 @@ PS：我感觉我自己说话都乱了逻辑了
 你不喜欢就别看啊，大多数男性观众和看百合豚有关系吗？
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2434#       发表于 2017-8-6 13:27
-
 
 
  本帖最后由 漫区专号 于 2017-8-6 13:28 编辑 
@@ -20080,16 +13541,10 @@ PS：我感觉我自己说话都乱了逻辑了
 我们正常观众看什么和你们没关系，别在正常的片子里瞎叫什么百合来自嗨。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  点点杠  
 ##### 2435#       发表于 2017-8-6 13:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36800632&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-8-6 13:27</a>
@@ -20101,32 +13556,19 @@ PS：我感觉我自己说话都乱了逻辑了
 真服了气，男主角都没有，也是正常的片子，呵呵。
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2436#       发表于 2017-8-6 13:29
 
 
-
-
 停不下来就出去开楼撕吧
-
-
-
-
-
 
 
 -----
 
 ####  漫区专号  
 ##### 2437#       发表于 2017-8-6 13:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36800650&amp;ptid=1486439" target="_blank">点点杠 发表于 2017-8-6 13:29</a>
@@ -20138,16 +13580,10 @@ PS：我感觉我自己说话都乱了逻辑了
 百合豚还不认清自己是小众的事实？这里不是你们的主场。<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  点点杠  
 ##### 2438#       发表于 2017-8-6 13:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36800674&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-8-6 13:32</a>
@@ -20159,25 +13595,13 @@ PS：我感觉我自己说话都乱了逻辑了
 没有男主不是就不是正常的片子了？？？？
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2439#       发表于 2017-8-6 14:50
 
 
-
-
 这片还有很多非白河豚的受众的…讨论接下来CP的走势还可以，歪的太厉害还是不太好吧
-
-
-
-
-
 
 
 -----
@@ -20186,14 +13610,7 @@ PS：我感觉我自己说话都乱了逻辑了
 ##### 2440#       发表于 2017-8-6 16:43
 
 
-
-
 精神百合，我好像就是这么看的…反正我能接受百合，但绝不接受卖腐…所以鲁路修新作千万不要刻意卖腐啊啊，LC王道！
-
-
-
-
-
 
 
 -----
@@ -20202,21 +13619,13 @@ PS：我感觉我自己说话都乱了逻辑了
 ##### 2441#       发表于 2017-8-6 19:21
 
 
-
-
 这楼不是在讨论大河内下集稳不稳，剧情会如何发展，是否要相信大河内的吗？怎么掐起百合来了。这片铁定是卖百合的，至于是卖轻百还是实打实的百不是要等最后才能确定下来的吗？至于卖腐和百合，我是都可以理解的，但我就怕定位百合的片里来了一出bg，或是原本好端端的bg最后变成bl、gl
-
-
-
-
-
 
 
 -----
 
 ####  万千百十  
 ##### 2442#       发表于 2017-8-6 19:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36800632&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-8-6 13:27</a>
@@ -20228,16 +13637,10 @@ PS：我感觉我自己说话都乱了逻辑了
 百合和正常片子有冲突？真是厉害<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  万千百十  
 ##### 2443#       发表于 2017-8-6 19:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36798358&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-8-6 08:01</a>
@@ -20246,16 +13649,10 @@ PS：我感觉我自己说话都乱了逻辑了
 你在扮演穆斯林吗？
 
 
-
-
-
-
-
 -----
 
 ####  万千百十  
 ##### 2444#       发表于 2017-8-6 19:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36797436&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-8-6 01:09</a>
@@ -20264,16 +13661,10 @@ PS：我感觉我自己说话都乱了逻辑了
 这片子不会出大尺度镜头，但你要说是什么轻百合就是扯淡了
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2445#       发表于 2017-8-6 19:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36803687&amp;ptid=1486439" target="_blank">万千百十 发表于 2017-8-6 19:27</a>
@@ -20285,16 +13676,10 @@ PS：我感觉我自己说话都乱了逻辑了
 是你们百合豚自己说看的不是正常片。<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  万千百十  
 ##### 2446#       发表于 2017-8-6 19:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36803729&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-8-6 19:31</a>
@@ -20306,16 +13691,10 @@ PS：我感觉我自己说话都乱了逻辑了
 你们？爱谁谁吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2447#       发表于 2017-8-6 19:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36803643&amp;ptid=1486439" target="_blank">吃瓜群众酱油君 发表于 2017-8-6 19:21</a>
@@ -20324,16 +13703,10 @@ PS：我感觉我自己说话都乱了逻辑了
 轻百合吧，要拍成真百合片这片就绝对暴死了。大河内也就没得喷了。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  wangh  
 ##### 2448#       发表于 2017-8-6 19:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36797436&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-8-6 01:09</a>
@@ -20342,16 +13715,10 @@ PS：我感觉我自己说话都乱了逻辑了
 又来了，非要把自己的百合定义强加给别人，凭什么人家就非得认同你的规定？
 
 
-
-
-
-
-
 -----
 
 ####  wangh  
 ##### 2449#       发表于 2017-8-6 19:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36799006&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-8-6 09:55</a>
@@ -20366,16 +13733,10 @@ PS：我感觉我自己说话都乱了逻辑了
 问题是她们自己也看得飞起啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2450#       发表于 2017-8-6 19:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36803784&amp;ptid=1486439" target="_blank">wangh 发表于 2017-8-6 19:35</a>
@@ -20387,25 +13748,13 @@ PS：我感觉我自己说话都乱了逻辑了
 但我提倡我的观点，因为至少能解释很多问题。比如我为啥不看捏造陷阱，但本季的PRPR，战姬绝唱却都看得很开心。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2451#       发表于 2017-8-6 19:46
 
 
-
-
 其实都是官图闹的～不过到了第五集开播前才来讨论百合的定义似乎晚了点啊…大河内的百合，有毒！！
-
-
-
-
-
 
 
 -----
@@ -20414,20 +13763,13 @@ PS：我感觉我自己说话都乱了逻辑了
 ##### 2452#       发表于 2017-8-6 19:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">你们在这里定义百合，不如把片子多看几遍，说不定还会有什么细节呢
-
-
-
-
-
 
 
 -----
 
 ####  点点杠  
 ##### 2453#       发表于 2017-8-6 20:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36803853&amp;ptid=1486439" target="_blank">wangh 发表于 2017-8-6 19:43</a>
@@ -20438,25 +13780,13 @@ PS：我感觉我自己说话都乱了逻辑了
 这个什么漫区专号怎么会是极端百合厨，看他的言论应该是觉得大家都和他一样，都是来轻百合片带入当男主的。
 
 
-
-
-
-
-
 -----
 
 ####  wangh  
 ##### 2454#       发表于 2017-8-6 20:08
 
 
-
-
 掐百合本来就是prpr讨论中的一环，之前看4chan的讨论串，也没在这个问题上少掐<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20465,16 +13795,10 @@ PS：我感觉我自己说话都乱了逻辑了
 ##### 2455#       发表于 2017-8-6 20:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36804095&amp;ptid=1486439" target="_blank">点点杠 发表于 2017-8-6 20:07</a>
 
 这个什么漫区专号怎么会是极端百合厨，看他的言论应该是觉得大家都和他一样，都是来轻百合片带入当男主的 ...</blockquote>
 黑酸挑ID，太闲了
-
-
-
-
-
 
 
 -----
@@ -20483,24 +13807,16 @@ PS：我感觉我自己说话都乱了逻辑了
 ##### 2456#       发表于 2017-8-6 20:21
 
 
-
-
 能求一个直播地址吗？
 
 
 能不能把直播地址放在1楼呢<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  水饺肯定会过期  
 ##### 2457#       发表于 2017-8-6 20:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36804248&amp;ptid=1486439" target="_blank">皇神樂耶 发表于 2017-8-6 20:21</a>
@@ -20512,16 +13828,10 @@ PS：我感觉我自己说话都乱了逻辑了
 [https://www.zhanqi.tv/11541563](https://www.zhanqi.tv/11541563) 地址 
 
 
-
-
-
-
-
 -----
 
 ####  皇神樂耶  
 ##### 2458#       发表于 2017-8-6 20:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36804261&amp;ptid=1486439" target="_blank">水饺肯定会过期 发表于 2017-8-6 20:22</a>
@@ -20530,25 +13840,13 @@ https://www.zhanqi.tv/11541563 地址</blockquote>
 谢谢
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2459#         楼主| 发表于 2017-8-6 20:43
 
 
-
-
 直播地址已添加在主樓最上方
-
-
-
-
-
 
 
 -----
@@ -20557,17 +13855,10 @@ https://www.zhanqi.tv/11541563 地址</blockquote>
 ##### 2460#         楼主| 发表于 2017-8-6 22:12
 
 
-
-
 黒星紅白 @kuroboshi 
 
  この後23：00からTOKYO MXにて「プリンセス・プリンシパル」5話放送じゃ #pripri
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fiad046lx7j20lv0lvabk.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20576,14 +13867,7 @@ https://www.zhanqi.tv/11541563 地址</blockquote>
 ##### 2461#       发表于 2017-8-6 22:13
 
 
-
-
 这样乱拿士兵的牌，居然不发脾气？
-
-
-
-
-
 
 
 -----
@@ -20592,14 +13876,7 @@ https://www.zhanqi.tv/11541563 地址</blockquote>
 ##### 2462#       发表于 2017-8-6 22:24
 
 
-
-
 比阿特差点死了。。。
-
-
-
-
-
 
 
 -----
@@ -20608,14 +13885,7 @@ https://www.zhanqi.tv/11541563 地址</blockquote>
 ##### 2463#       发表于 2017-8-6 22:25
 
 
-
-
 原来千世才是朱雀<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20624,17 +13894,10 @@ https://www.zhanqi.tv/11541563 地址</blockquote>
 ##### 2464#       发表于 2017-8-6 22:25
 
 
-
-
 今集打鬥是我喜歡的feel
 
 
 一看,原來這集是江畑諒真負責
-
-
-
-
-
 
 
 -----
@@ -20643,13 +13906,7 @@ https://www.zhanqi.tv/11541563 地址</blockquote>
 ##### 2465#       发表于 2017-8-6 22:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">这打戏可以的
-
-
-
-
-
 
 
 -----
@@ -20658,16 +13915,9 @@ https://www.zhanqi.tv/11541563 地址</blockquote>
 ##### 2466#       发表于 2017-8-6 22:27
 
 
-
-
 的确这集的打斗很是精彩
 
 如果比阿特死了的话，这集就是黑点了。。。
-
-
-
-
-
 
 
 -----
@@ -20676,14 +13926,7 @@ https://www.zhanqi.tv/11541563 地址</blockquote>
 ##### 2467#       发表于 2017-8-6 22:28
 
 
-
-
 连朱雀回旋踢都出来了...........
-
-
-
-
-
 
 
 -----
@@ -20692,14 +13935,7 @@ https://www.zhanqi.tv/11541563 地址</blockquote>
 ##### 2468#       发表于 2017-8-6 22:29
 
 
-
-
 这打戏！不知是否是我眼瘸，竟看出几分无皇刃谭的感觉<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">？
-
-
-
-
-
 
 
 -----
@@ -20708,21 +13944,13 @@ https://www.zhanqi.tv/11541563 地址</blockquote>
 ##### 2469#       发表于 2017-8-6 22:31
 
 
-
-
 打戏可以阿，等熟肉再看一遍
-
-
-
-
-
 
 
 -----
 
 ####  shadow001  
 ##### 2470#       发表于 2017-8-6 22:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36805539&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-8-6 22:27</a>
@@ -20733,25 +13961,13 @@ https://www.zhanqi.tv/11541563 地址</blockquote>
 CASE少於13都沒擔心的必要
 
 
-
-
-
-
-
 -----
 
 ####  jia3yu3sheng1  
 ##### 2471#       发表于 2017-8-6 22:32
 
 
-
-
 一个字  稳<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20760,14 +13976,7 @@ CASE少於13都沒擔心的必要
 ##### 2472#       发表于 2017-8-6 22:33
 
 
-
-
 贝熊的铁脖子
-
-
-
-
-
 
 
 -----
@@ -20776,14 +13985,7 @@ CASE少於13都沒擔心的必要
 ##### 2473#       发表于 2017-8-6 22:34
 
 
-
-
 这打牌是什么梗？
-
-
-
-
-
 
 
 -----
@@ -20792,13 +13994,7 @@ CASE少於13都沒擔心的必要
 ##### 2474#       发表于 2017-8-6 22:34
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">太棒了，拿士兵牌那里笑死
-
-
-
-
-
 
 
 -----
@@ -20807,16 +14003,10 @@ CASE少於13都沒擔心的必要
 ##### 2475#       发表于 2017-8-6 22:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36805609&amp;ptid=1486439" target="_blank">chenyedgg 发表于 2017-8-6 22:34</a>
 
 这打牌是什么梗？</blockquote>
 感觉跟fz二人转一样，为了对话不那么单调画面上搞点花样
-
-
-
-
-
 
 
 -----
@@ -20825,17 +14015,10 @@ CASE少於13都沒擔心的必要
 ##### 2476#       发表于 2017-8-6 22:40
 
 
-
-
 6話case18
 
 
 起飞了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20844,16 +14027,9 @@ CASE少於13都沒擔心的必要
 ##### 2477#       发表于 2017-8-6 22:41
 
 
-
-
 千世砍的是自己爸爸吗？
 
 下一话case18 看微博上说目测要虐多萝西，诺曼底公的帮手是她爸……
-
-
-
-
-
 
 
 -----
@@ -20862,16 +14038,9 @@ CASE少於13都沒擔心的必要
 ##### 2478#       发表于 2017-8-6 22:42
 
 
-
-
 case18<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 还能相信巨河内吗<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20880,14 +14049,7 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" refe
 ##### 2479#       发表于 2017-8-6 22:43
 
 
-
-
 这一话真是白大腿满天飞啊<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20896,16 +14058,9 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" refe
 ##### 2480#       发表于 2017-8-6 22:44
 
 
-
-
 打得好爽！
 
 一下飙到18，小心脏有点受不了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20914,14 +14069,7 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" refe
 ##### 2481#       发表于 2017-8-6 22:50
 
 
-
-
 官方熟肉已经出来了
-
-
-
-
-
 
 
 -----
@@ -20930,22 +14078,13 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" refe
 ##### 2482#       发表于 2017-8-6 22:56
 
 
-
-
 看作画风格，这集打斗戏基本是江畑谅真全包了吧<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 2483#       发表于 2017-8-6 22:57
-
-
 
 
 prpr第5话
@@ -20958,25 +14097,13 @@ prpr第5话
 有用自取，开了会员的可无视
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2484#       发表于 2017-8-6 23:02
 
 
-
-
 这集牛逼了 打戏非常精彩 3HZ我信你啊
-
-
-
-
-
 
 
 -----
@@ -20985,16 +14112,9 @@ prpr第5话
 ##### 2485#       发表于 2017-8-6 23:02
 
 
-
-
 case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 大家小心，大河内要起飞了！
-
-
-
-
-
 
 
 -----
@@ -21003,13 +14123,7 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2486#       发表于 2017-8-6 23:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">甲铁城也是第六集出黑烟来着
-
-
-
-
-
 
 
 -----
@@ -21018,14 +14132,7 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2487#       发表于 2017-8-6 23:10
 
 
-
-
 这集千世、公主、安洁的人物塑造都更深入了。千世自不必说，公主在关键时候临危不乱，安洁反倒有点乱了阵脚，这种反差给人很新鲜的印象。两节车厢的护卫队感觉都是精英卫队啊，打牌都是装的吧，有情况也是第一时间察觉了
-
-
-
-
-
 
 
 -----
@@ -21034,14 +14141,7 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2488#       发表于 2017-8-6 23:11
 
 
-
-
 这百合还轻啊，都告白了
-
-
-
-
-
 
 
 -----
@@ -21050,15 +14150,9 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2489#       发表于 2017-8-6 23:16
 
 
-
 <blockquote>xtwx1716 发表于 2017-8-6 23:10
 这集千世、公主、安洁的人物塑造都更深入了。千世自不必说，公主在关键时候临危不乱，安洁反倒有点乱了阵脚 ...</blockquote>
 又仔细看了一下，安洁大概是只有在面对公主的时候才会露出窘态…公主绝对是安洁的阿卡流斯之踵，接下来会因为公主出现降智商或者实力的桥段我丝毫不惊讶
-
-
-
-
-
 
 
 -----
@@ -21067,16 +14161,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2490#       发表于 2017-8-6 23:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806005&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-8-6 23:16</a>
 
 又仔细看了一下，安洁大概是只有在面对公主的时候才会露出窘态…公主绝对是安洁的阿卡流斯之踵，接下来会 ...</blockquote>
 那不叫降智商，是产生动摇<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">安洁：拿什么拯救你，我的爱人
-
-
-
-
-
 
 
 -----
@@ -21085,15 +14173,9 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2491#       发表于 2017-8-6 23:23
 
 
-
 <blockquote>神之叹息 发表于 2017-8-6 23:19
 那不叫降智商，是产生动摇安洁：拿什么拯救你，我的爱人</blockquote>
 火车上那段就是判断失误了，以安洁以往的表现不会没想到停火车是第一要务的。这里就是看到公主有危险就想立刻奔过去，其他什么都不想了
-
-
-
-
-
 
 
 -----
@@ -21102,14 +14184,7 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2492#       发表于 2017-8-6 23:29
 
 
-
-
 终于遇到个相信黑蜥蜴星的人了啊……
-
-
-
-
-
 
 
 -----
@@ -21118,17 +14193,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2493#       发表于 2017-8-6 23:31
 
 
-
-
 大河内这是要把以前干过的事情都致敬一次吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，虽然这话前半部分的笑料有点多，最后进入高潮时候的紧张感倒是充足
 
 
 其实认真来说看过浪客剑心的人们好像都说从幕府失去大权到明治维新初期，11区确实在动荡岁月里面对选择，守旧和维新，以及维新派内部的斗争等等，这话也从侧面反映了那个时代的现实，千世的父亲似乎是幕府前将军级别的吧
-
-
-
-
-
 
 
 -----
@@ -21137,20 +14205,13 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2494#       发表于 2017-8-6 23:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 这公主越来越厉害了 安洁怕是被压在身下毫无反抗之力吧。 一边走路一边拿走扑克牌是什么暗寓啊？
-
-
-
-
-
 
 
 -----
 
 ####  aptx8285144  
 ##### 2495#       发表于 2017-8-6 23:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36805539&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-8-6 22:27</a>
@@ -21161,16 +14222,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 因为喉咙被鬼父改造过所有逃过一劫，如果不是这样其实已经死了
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2496#       发表于 2017-8-6 23:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806133&amp;ptid=1486439" target="_blank">革新 发表于 2017-8-6 23:31</a>
@@ -21179,16 +14234,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 类似fz那种双人转吧
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 2497#       发表于 2017-8-6 23:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806159&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-8-6 23:34</a>
@@ -21197,32 +14246,19 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 每次拿还有士兵微妙嘴角表情变化。。。
 
 
-
-
-
-
-
 -----
 
 ####  天色影子  
 ##### 2498#       发表于 2017-8-6 23:35
 
 
-
-
 这话江畑凉真究竟单刷了多少啊，原画明显的分隔，还画到二原去了，3个副作监都是帮忙画二原的
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 2499#       发表于 2017-8-6 23:36
-
 
 
 <blockquote>革新 发表于 2017-8-6 23:31
@@ -21232,26 +14268,15 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 看看有没有人能把牌面总结一下
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2500#       发表于 2017-8-6 23:40
 
 
-
  本帖最后由 aptx8285144 于 2017-8-6 23:41 编辑 
 
 我也翻阅过11区的历史，大致上可以理解。。。不过真要说大河内这种一路致敬，死后文里面的鬼父改造，朱雀鲁路修的杀父，再往下某些不好的东西也有可能以后也会被赛进来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21260,13 +14285,7 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2501#       发表于 2017-8-6 23:44
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">这话可比肉身躲机枪扫射厉害多了，你们怎么不喷了
-
-
-
-
-
 
 
 -----
@@ -21275,16 +14294,9 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2502#       发表于 2017-8-6 23:45
 
 
-
-
 打得真好看，腿控福利，千世也挺可爱。
 
 小跟班得亏改造过<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21293,13 +14305,7 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2503#       发表于 2017-8-6 23:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 希望后两集继续保持这质量。该进主线了宫斗了吧。公主上位剧情应该开始了吧。
-
-
-
-
-
 
 
 -----
@@ -21308,14 +14314,7 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2504#       发表于 2017-8-6 23:47
 
 
-
-
 比阿特那里为了配合机械喉咙这个设定感觉有点刻意，砍别人都是砍身体，到了比阿特那里非要斩首多大仇啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21324,16 +14323,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2505#       发表于 2017-8-6 23:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806265&amp;ptid=1486439" target="_blank">osore 发表于 2017-8-6 23:44</a>
 
 这话可比肉身躲机枪扫射厉害多了，你们怎么不喷了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">二次元刀档**是常识
-
-
-
-
-
 
 
 -----
@@ -21342,14 +14335,7 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2506#       发表于 2017-8-6 23:48
 
 
-
-
 打戏不错，白腿不少，剧情毫不意外，就连日本刀切子 弹都不出所料的出现了。
-
-
-
-
-
 
 
 -----
@@ -21358,21 +14344,13 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2507#       发表于 2017-8-6 23:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">我动画片看得少，为什么所有人都用日文无障碍交流？
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 2508#       发表于 2017-8-6 23:50
-
-
 
 
 一开头就笑尿了。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -21388,21 +14366,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 2017-8-6 23:49 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2509#       发表于 2017-8-6 23:51
-
 
 
 <blockquote>osore 发表于 2017-8-6 23:44
@@ -21412,16 +14379,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 那集主要是演出的锅比较大
 
 
-
-
-
-
-
 -----
 
 ####  stuka1942  
 ##### 2510#       发表于 2017-8-6 23:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806287&amp;ptid=1486439" target="_blank">wangh 发表于 2017-8-6 23:47</a>
@@ -21430,16 +14391,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 一定是因为比阿特太矮…
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 2511#       发表于 2017-8-6 23:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806314&amp;ptid=1486439" target="_blank">posion 发表于 2017-8-6 23:49</a>
@@ -21448,17 +14403,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 这个行业惯例就别吐槽了，这集小忍者遇到生词还会掏出随身词典来查一下，已经很敬业了好么
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2512#       发表于 2017-8-6 23:56
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201708/06/235557mjg8kjdko80jedee.jpg" referrerpolicy="no-referrer">
@@ -21471,25 +14419,13 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 2017-8-6 23:55 上传
 
 
-
-
-
-
-
 又一个笑点233千世真是够了。。
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 2513#       发表于 2017-8-6 23:59
-
-
 
 
 公主一句话扎心了啊安洁，简直太懂安洁的心理了，安洁被吃得死死的也是无话可说了。。
@@ -21505,23 +14441,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 2017-8-6 23:58 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  saturnus  
 ##### 2514#       发表于 2017-8-6 23:59
-
-
 
 
 又是杀爹的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
@@ -21529,17 +14452,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 [  -- 来自能订阅的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  noneoneone  
 ##### 2515#       发表于 2017-8-7 00:05
-
-
 
 
 第一话
@@ -21570,13 +14486,9 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 —— 来自 Meizu PRO 5, Android 5.1上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 3战斗力 +3
@@ -21588,19 +14500,13 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 | 一绪| + 1|欢乐多|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  posion  
 ##### 2516#       发表于 2017-8-7 00:07
-
 
 
  本帖最后由 posion 于 2017-8-7 00:17 编辑 
@@ -21611,16 +14517,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 马特贝阿朵其实是终结者吧= =，砍得位置都不是喉咙，撞在车壁上的声音也不像人体的碰撞声.....
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2517#       发表于 2017-8-7 00:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806078&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-8-6 23:23</a>
@@ -21629,17 +14529,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 不过我好奇后面为什么安洁在那个列车不能停下来吗？好像光靠公主这边了。另外她不可以飞过去吗？。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  keroro80722  
 ##### 2518#       发表于 2017-8-7 00:17
-
-
 
 
 這一集千世個人回居然又可以在吹一次．．．．．而這僅僅是第５集，去掉第２集，這已經是第３個觀感很好的一集了，光這５集大河內確實是前期之王
@@ -21652,18 +14545,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ｐｒｐｒ戰鬥沒有什麼華麗特效，就是單挑，打戲的時間長很多，比較有用到空間的概念（相較於ＦＡ的平移跟打飛都是直線）？
 
 
-
-
-
-
-
-
 -----
 
 ####  一色いろは  
 ##### 2519#       发表于 2017-8-7 00:21
-
-
 
 
 变成了一集精致的日本刀动作戏大对决....
@@ -21671,16 +14556,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 好了之后就没有人物介绍了,这下应该怎么办呢
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2520#       发表于 2017-8-7 00:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806563&amp;ptid=1486439" target="_blank">一色いろは 发表于 2017-8-7 00:21</a>
@@ -21693,25 +14572,13 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 还有多萝西的啊，貌似是下集
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2521#       发表于 2017-8-7 00:23
 
 
-
-
 等等，千世说是协助安洁她们执行替换作战的？第二集不是失败了？那么是替换谁？
-
-
-
-
-
 
 
 -----
@@ -21720,14 +14587,7 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2522#       发表于 2017-8-7 00:24
 
 
-
-
 另外这集官肉的翻译是千岁，我记得一直是千世的叫法吧？
-
-
-
-
-
 
 
 -----
@@ -21736,16 +14596,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2523#       发表于 2017-8-7 00:24
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">安洁和千岁边走边拿牌的寓意是啥啊
 
 
 诺曼底公爵的野心很大啊
-
-
-
-
-
 
 
 -----
@@ -21754,15 +14608,9 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2524#       发表于 2017-8-7 00:24
 
 
-
 <blockquote>神之叹息 发表于 2017-8-7 00:17
 不过我好奇后面为什么安洁在那个列车不能停下来吗？好像光靠公主这边了。另外她不可以飞过去吗？。。[f:0 ...</blockquote>
 两边都得要操纵列车停下来吧，光一辆停是不行的
-
-
-
-
-
 
 
 -----
@@ -21771,21 +14619,13 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2525#       发表于 2017-8-7 00:24
 
 
-
-
 英文版的翻译没记错的话，好像是chise
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 2526#       发表于 2017-8-7 00:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806589&amp;ptid=1486439" target="_blank">深暗风扇妄想 发表于 2017-8-7 00:24</a>
@@ -21797,16 +14637,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 证明之前的推断是对的，公爵一直是排斥公主的，找机会干掉她
 
 
-
-
-
-
-
 -----
 
 ####  某某某人  
 ##### 2527#       发表于 2017-8-7 00:27
-
 
 
  本帖最后由 某某某人 于 2017-8-7 00:35 编辑 
@@ -21819,16 +14653,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 再把動畫看了一遍,拉制動器的時候有做出安潔的動作
 
 
-
-
-
-
-
 -----
 
 ####  深暗风扇妄想  
 ##### 2528#       发表于 2017-8-7 00:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806581&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-7 00:23</a>
@@ -21837,16 +14665,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 结合上一话内容还是替换公主？毕竟对公主并没有信任
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2529#       发表于 2017-8-7 00:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806590&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-8-7 00:24</a>
@@ -21855,17 +14677,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 不过这段没给安洁这些镜头，都是公主的，可能是为了刻画公主吧
 
 
-
-
-
-
-
 -----
 
 ####  bamboom  
 ##### 2530#       发表于 2017-8-7 00:29
-
-
 
 
 转自300：
@@ -21875,16 +14690,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 被命令夺取王国外务省暗号表的多萝茜，为了寻找藏有暗号表的尸体，与贝阿朵一同潜入了聚集了伦敦城尸体的停尸房，但在那里遭遇的诺曼底公爵的协助者却是多萝茜生别的父亲。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2531#       发表于 2017-8-7 00:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806611&amp;ptid=1486439" target="_blank">某某某人 发表于 2017-8-7 00:27</a>
@@ -21895,16 +14704,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 我猜也是这样，把这段时间留给公主那边了，公主的形象一下子就增色不少，也算是掩盖了一下没做安洁的那部分。但脑补一下也能解释的过去
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2532#       发表于 2017-8-7 00:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806616&amp;ptid=1486439" target="_blank">深暗风扇妄想 发表于 2017-8-7 00:27</a>
@@ -21913,32 +14716,19 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 应该是了，不过下一集一下子又跳到case18了，貌似千世说的又接不上了。。不知道会不会是case18之后又跳回来，就好像上集和这集一样，返回来的剧情。。
 
 
-
-
-
-
-
 -----
 
 ####  TheWitcher  
 ##### 2533#       发表于 2017-8-7 00:34
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">case 18？！大河内你要控制住你自己啊！
-
-
-
-
-
 
 
 -----
 
 ####  漫区专号  
 ##### 2534#       发表于 2017-8-7 00:35
-
-
 
 
 看来是帝国敲开了日本通商的大门，现在日本人想来谈改变不平等条约。
@@ -21950,26 +14740,15 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 正是诺曼底公见公主竟然安然无恙没被暗杀掉，所以怀疑她背后可能有势力支持。于是在第4话中急着建言女王让公主外嫁。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2535#       发表于 2017-8-7 00:35
 
 
-
 <blockquote>keroro80722 发表于 2017-8-7 00:17
 這一集千世個人回居然又可以在吹一次．．．．．而這僅僅是第５集，去掉第２集，這已經是第３個觀感很好的一 ...</blockquote>
 虽然没看FA，但是必须得赞一下3hz对动作戏的追求：Dw的op舞和飙车、Flifla几乎集集都有的精彩的动作戏都令人印象深刻。这片到第五集才有真正意义上精彩的动作回反倒让我惊讶
-
-
-
-
-
 
 
 -----
@@ -21978,14 +14757,7 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2536#       发表于 2017-8-7 00:35
 
 
-
-
 再看一次，发现有个镜头是给了安洁的反重力球，貌似要报废的样子了。所以说安洁也是跑过去的，没有飞过去
-
-
-
-
-
 
 
 -----
@@ -21994,16 +14766,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2537#       发表于 2017-8-7 00:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806630&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-7 00:29</a>
 
 我猜也是这样，把这段时间留给公主那边了，公主的形象一下子就增色不少，也算是掩盖了一下没做安洁的那部 ...</blockquote>
 再看了一遍,最後拉制動器的時候,有做出兩人一起拉制動器的畫面.
-
-
-
-
-
 
 
 -----
@@ -22012,15 +14778,9 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2538#       发表于 2017-8-7 00:40
 
 
-
 <blockquote>神之叹息 发表于 2017-8-7 00:29
 我猜也是这样，把这段时间留给公主那边了，公主的形象一下子就增色不少，也算是掩盖了一下没做安洁的那部 ...</blockquote>
 其实有安洁拉刹车的画面。只不过时间很短罢了
-
-
-
-
-
 
 
 -----
@@ -22029,16 +14789,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2539#       发表于 2017-8-7 00:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806707&amp;ptid=1486439" target="_blank">某某某人 发表于 2017-8-7 00:40</a>
 
 再看了一遍,最後拉制動器的時候,有做出兩人一起拉制動器的畫面.</blockquote>
 嗯，看到了，不过很短很短。。
-
-
-
-
-
 
 
 -----
@@ -22047,23 +14801,16 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2540#       发表于 2017-8-7 00:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806752&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-7 00:45</a>
 
 嗯，看到了，不过很短很短。。</blockquote>
 确实很短，看来是等着公主这边一起了，不然单边停了另一边就要被拉出轨道了
 
 
-
-
-
-
-
 -----
 
 ####  keroro80722  
 ##### 2541#       发表于 2017-8-7 00:46
-
 
 
  本帖最后由 keroro80722 于 2017-8-7 00:48 编辑 
@@ -22075,16 +14822,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 有一集在沙漠兩主角對打那一集，風格變了３次，不過其中有一次對打是沒有任何＂特效＂，幾乎拳拳到肉，對打的音效跟作畫蠻流暢的，乾淨俐落，對比同一集其他兩次後面打鬥都加上＂特效＂，所以印象反而更深
 
 
-
-
-
-
-
 -----
 
 ####  arca  
 ##### 2542#       发表于 2017-8-7 00:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806287&amp;ptid=1486439" target="_blank">wangh 发表于 2017-8-6 23:47</a>
@@ -22093,16 +14834,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 比阿特太矮 砍腰的刀法只能砍到脖子了！
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2543#       发表于 2017-8-7 00:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806581&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-7 00:23</a>
@@ -22111,16 +14846,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 沿用了老计划名吧，未必要替换谁。现在的作战计划就用真公主来掩护间谍行动。和原来的计划目的是一致的。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2544#       发表于 2017-8-7 00:50
-
 
 
 <blockquote><a href="httphttp://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806765&amp;ptid=1486439" target="_blank">arca 发表于 2017-8-7 00:47</a>
@@ -22130,27 +14859,15 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 比阿特太矮。。我在战吧看到几乎一模一样的回复，是不是你<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  noneoneone  
 ##### 2545#       发表于 2017-8-7 00:52
 
 
-
-
 现在要替换的不是女王吗<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 —— 来自 Meizu PRO 5, Android 5.1上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
-
-
-
-
-
 
 
 -----
@@ -22159,17 +14876,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2546#       发表于 2017-8-7 00:56
 
 
-
-
 多罗西和骏河公做了么？
 
 
 黑星红白的人物真是骚啊
-
-
-
-
-
 
 
 -----
@@ -22178,14 +14888,7 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2547#       发表于 2017-8-7 01:12
 
 
-
-
 要说这集比较可惜的一点是，火车刹车的时候没有把惯性表现出来，要是利用下这个元素把这段打斗搞得再新奇一点就好了。现在这样还是有点小bug的
-
-
-
-
-
 
 
 -----
@@ -22194,17 +14897,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2548#       发表于 2017-8-7 01:14
 
 
-
-
 这集真不错啊，公主真是把安洁吃得死死的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
 打戏也很帅，就是江畑谅真的个人风格有点明显，所有角色走路都在摇。。。
-
-
-
-
-
 
 
 -----
@@ -22213,16 +14909,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2549#       发表于 2017-8-7 01:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806895&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-8-7 01:12</a>
 
 要说这集比较可惜的一点是，火车刹车的时候没有把惯性表现出来，要是利用下这个元素把这段打斗搞得再新奇一 ...</blockquote>
 确实，我也以为最后的急刹车会对千世有影响来着。。。
-
-
-
-
-
 
 
 -----
@@ -22231,23 +14921,16 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2550#       发表于 2017-8-7 01:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806787&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-7 00:50</a>
 
 比阿特太矮。。我在战吧看到几乎一模一样的回复，是不是你</blockquote>
 有相似想法的人不奇怪啦 贴吧我最近只刷了权力游戏相关的……
 
 
-
-
-
-
-
 -----
 
 ####  yjysrkl  
 ##### 2551#       发表于 2017-8-7 01:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806906&amp;ptid=1486439" target="_blank">bird-lay 发表于 2017-8-7 01:14</a>
@@ -22259,25 +14942,13 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 走路摇是因为在行进的火车上吧，细节很到位
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 2552#       发表于 2017-8-7 01:38
 
 
-
-
 安杰的重力球到底是什么黑科技？……除了消除重力，之前的闪**，上一话让灰尘浮空（？），然后这话又冒出超长距离跳跃。
-
-
-
-
-
 
 
 -----
@@ -22286,14 +14957,7 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2553#       发表于 2017-8-7 01:39
 
 
-
-
 这集最大的BUG应该是最后根本不需要两辆一起刹车吧 就不能把绳子给砍了减速让有公主的那辆先走，或者把贝安朵和千世卖了直接带着公主跳车...
-
-
-
-
-
 
 
 -----
@@ -22302,16 +14966,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2554#       发表于 2017-8-7 01:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36807029&amp;ptid=1486439" target="_blank">枫凛劫火 发表于 2017-8-7 01:39</a>
 
 这集最大的BUG应该是最后根本不需要两辆一起刹车吧 就不能把绳子给砍了减速让有公主的那辆先走，或者把贝安 ...</blockquote>
 砍绳子再减速按动画里这个勉强刹住车的程度肯定来不及，丢下一车人公主肯定不干
-
-
-
-
-
 
 
 -----
@@ -22320,16 +14978,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2555#       发表于 2017-8-7 02:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806983&amp;ptid=1486439" target="_blank">yjysrkl 发表于 2017-8-7 01:29</a>
 
 走路摇是因为在行进的火车上吧，细节很到位</blockquote>
 那个应该只是原画师的个人爱好。。。他之前画的那些也都是这么摇的。。。
-
-
-
-
-
 
 
 -----
@@ -22338,14 +14990,7 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2556#       发表于 2017-8-7 02:07
 
 
-
-
 千岁的南瓜裤和腿prpr<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22354,16 +14999,9 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2557#       发表于 2017-8-7 05:47
 
 
-
-
 戊辰年啊 1868吗（ 
 
 —— 来自 Xiaomi Letv X500, Android 5.0.2上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next) v1.2.1
-
-
-
-
-
 
 
 -----
@@ -22372,15 +15010,9 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2558#       发表于 2017-8-7 07:03
 
 
-
 <blockquote>yjysrkl 发表于 2017-8-7 01:29
 走路摇是因为在行进的火车上吧，细节很到位</blockquote>
 同样是3hz的天体秩序 你参考一下ED里人的走路姿势 都是这样摇的
-
-
-
-
-
 
 
 -----
@@ -22389,21 +15021,13 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2559#       发表于 2017-8-7 07:03
 
 
-
-
 这集开头竟然是惯例的自黑剧情<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
-
-
-
-
-
 
 
 -----
 
 ####  aptx8285144  
 ##### 2560#       发表于 2017-8-7 07:16
-
 
 
 <blockquote>bamboom 发表于 2017-8-7 00:29
@@ -22415,16 +15039,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 大河内：我就是不喜欢父亲这类人，你们不服来打我呀！
 
 
-
-
-
-
-
 -----
 
 ####  pzk  
 ##### 2561#       发表于 2017-8-7 07:28
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">为什么千岁能旋转着把安洁扔出去然后自己再拉着安洁一起飞
@@ -22432,17 +15050,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 这不就是左脚踩右脚吗
 
 
-
-
-
-
-
 -----
 
 ####  colohot  
 ##### 2562#       发表于 2017-8-7 07:49
-
-
 
 
 还想吹一波打戏的，上来一看前面那么多人已经吹了。这集战斗真是毫不拖泥带水，观感太好了。
@@ -22458,16 +15069,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 3、诺曼底公说“谁晓得最后会是谁胜出呢”，从这句话看想除掉公主并不是要夺嫡的样子啊，他是想推某个皇子上位掌握傀儡政权？
 
 
-
-
-
-
-
 -----
 
 ####  colohot  
 ##### 2563#       发表于 2017-8-7 07:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806895&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-8-7 01:12</a>
@@ -22477,27 +15082,15 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 <img src="http://ww1.sinaimg.cn/large/c1bb46d5gy1fiatp3tmwgj20qo0f0dgz.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 2564#       发表于 2017-8-7 07:57
 
 
-
-
 有反重力球，你说动量不守恒也没问题吧，反正黑科技。
 
 左脚踩右脚怎么了？
-
-
-
-
-
 
 
 -----
@@ -22506,21 +15099,13 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2565#       发表于 2017-8-7 08:08
 
 
-
-
 断开车子是为了摆脱那群护卫
-
-
-
-
-
 
 
 -----
 
 ####  lmx20  
 ##### 2566#       发表于 2017-8-7 08:09
-
 
 
  本帖最后由 lmx20 于 2017-8-7 08:18 编辑 
@@ -22551,33 +15136,19 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
    
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2567#       发表于 2017-8-7 08:17
 
 
-
-
 在唯一停靠车站下不了手，只能路上杀。如果不能在公主那车子转道前搞定就基本没有机会了。所以我觉得两车相撞不是原本的计划
-
-
-
-
-
 
 
 -----
 
 ####  lmx20  
 ##### 2568#       发表于 2017-8-7 08:23
-
-
 
 
 下一话多萝西她爹在大公那
@@ -22591,16 +15162,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 想来下一集又能对间谍的身份不暴露而产生疑问了。。。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2569#       发表于 2017-8-7 08:24
-
 
 
 <blockquote>lmx20 发表于 2017-8-7 08:09
@@ -22613,16 +15178,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 公爵能有啥意见，都是公主的朋友，身怀绝技不出奇，比阿特就是例子。另外公主有自己的朋友，女王还高兴得不得了，当个亲卫队也好啊
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2570#       发表于 2017-8-7 08:29
-
 
 
 <blockquote>lmx20 发表于 2017-8-7 08:23
@@ -22635,16 +15194,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 多萝西和安洁是组织从收容所带走的，所以她爹连她是死是活都不一定知道…而且都20岁了，样子肯定不会是一眼就认得出的感觉。安洁说自己7岁被带走，如果这样多萝西也就10岁左右。
 
 
-
-
-
-
-
 -----
 
 ####  yaoxch88  
 ##### 2571#       发表于 2017-8-7 08:36
-
 
 
 <blockquote>colohot 发表于 2017-8-7 07:49
@@ -22658,25 +15211,13 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 3.第二集过后诺曼底公爵必然怀疑到和摩根委员有接触的公主身上。目前不知诺曼底公爵到底站在哪位继承人一边但是公主他肯定已经标记为敌人了。所以才会上一集提议送公主去俄国和亲。
 
 
-
-
-
-
-
 -----
 
 ####  一色いろは  
 ##### 2572#       发表于 2017-8-7 08:37
 
 
-
-
 话说千世和安洁在车顶砍杂兵这段我是不是在什么PV看过......
-
-
-
-
-
 
 
 -----
@@ -22685,15 +15226,9 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2573#       发表于 2017-8-7 08:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36807732&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-7 08:08</a>
 断开车子是为了摆脱那群护卫</blockquote>
 除了打牌毫无用处的护卫们<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22702,16 +15237,9 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2574#       发表于 2017-8-7 08:46
 
 
-
-
 这一段对刀做得挺有魄力的啊，千世的个人回待遇真好，最后痛痛飞还真让人有点难过
 
 祈祷下一回case18不要飞了，说好做单元剧的呢<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22720,16 +15248,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2575#       发表于 2017-8-7 08:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806895&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-8-7 01:12</a>
 
 要说这集比较可惜的一点是，火车刹车的时候没有把惯性表现出来，要是利用下这个元素把这段打斗搞得再新奇一 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">我有个猜想是千岁和父亲都已经是剑圣了，区区急停不足矣影响他们的立回姿势
-
-
-
-
-
 
 
 -----
@@ -22738,15 +15260,9 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2576#       发表于 2017-8-7 08:51
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">真是简单粗暴的好看啊～
 
 [  -- 来自能搜索的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
-
-
-
-
-
 
 
 -----
@@ -22755,21 +15271,13 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 ##### 2577#       发表于 2017-8-7 08:52
 
 
-
-
 说惯性的，我已经脑补停的一瞬间两人正处于离地状态打得激烈了的样子了。嘛…那里少了也不太会影响观感，打斗看着爽就好
-
-
-
-
-
 
 
 -----
 
 ####  间咒  
 ##### 2578#       发表于 2017-8-7 08:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36807029&amp;ptid=1486439" target="_blank">枫凛劫火 发表于 2017-8-7 01:39</a>
@@ -22780,17 +15288,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 至于直接带公主跳车....我觉得安洁开始确实是这么打算的，被公主制止了而已<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 2579#       发表于 2017-8-7 09:09
-
-
 
 
 20岁高中生真是敬职敬业啊
@@ -22798,16 +15299,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 现在比安特眼中，多萝西==色诱
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2580#       发表于 2017-8-7 09:10
-
 
 
 <blockquote>间咒 发表于 2017-8-7 08:52
@@ -22817,16 +15312,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 安洁真那样，队友不得记恨一辈子啊…重色轻友的家伙
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2581#       发表于 2017-8-7 09:12
-
 
 
 <blockquote>yaoxch88 发表于 2017-8-7 08:36
@@ -22836,16 +15325,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 不过千世能把逆贼的父亲亲手击杀也是厉害，这也太忠臣了吧…
 
 
-
-
-
-
-
 -----
 
 ####  saturnus  
 ##### 2582#       发表于 2017-8-7 09:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36808280&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-7 09:12</a>
@@ -22857,16 +15340,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 按照今天的话来讲就是屁股决定脑袋。。。<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 2583#       发表于 2017-8-7 09:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36808260&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-7 09:10</a>
@@ -22877,16 +15354,10 @@ case18<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" refe
 多萝西色诱等级比不上公主色诱等级的一个零头
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2584#       发表于 2017-8-7 09:15
-
 
 
 <blockquote>vazoe 发表于 2017-8-7 00:05
@@ -22898,17 +15369,10 @@ ange的驾驶技术，和各话所需的知识是在spy育成所学的（某人�
 Spy育成所…官方可以做个Spy养成游戏，我要调教安洁…
 
 
-
-
-
-
-
 -----
 
 ####  leleq  
 ##### 2585#       发表于 2017-8-7 09:20
-
-
 
 
 其实看到捅死十兵卫后千世的表现我有一瞬间 有了这是做戏给堀河公看好让千世打入堀河公内部的计策……这样千世也太惨了
@@ -22916,17 +15380,10 @@ Spy育成所…官方可以做个Spy养成游戏，我要调教安洁…
 不过后来转念一想应该不是不然千世应该跟着堀河公才对不会到公主这边吧
 
 
-
-
-
-
-
 -----
 
 ####  jia3yu3sheng1  
 ##### 2586#       发表于 2017-8-7 09:21
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201708/07/092105v280vv868l1jjlk7.jpg" referrerpolicy="no-referrer">
@@ -22939,25 +15396,15 @@ Spy育成所…官方可以做个Spy养成游戏，我要调教安洁…
 2017-8-7 09:21 上传
 
 
-
-
-
-
 小贝你的手哪儿去了？
 
 之前看ed的时候都没留意来着
-
-
-
-
-
 
 
 -----
 
 ####  aptx8285144  
 ##### 2587#       发表于 2017-8-7 09:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36807631&amp;ptid=1486439" target="_blank">colohot 发表于 2017-8-7 07:49</a>
@@ -22968,16 +15415,10 @@ Spy育成所…官方可以做个Spy养成游戏，我要调教安洁…
 从诺曼底发言来看他无所谓11区人在这次暗杀中是死是活,甚至也不是非要让公主死在这次暗杀里面,他说想让公主卷入暗杀骚动来说大概是这次公主死了最好没死以后也有机会对付的意思
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2588#       发表于 2017-8-7 09:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36807631&amp;ptid=1486439" target="_blank">colohot 发表于 2017-8-7 07:49</a>
@@ -22988,16 +15429,10 @@ Spy育成所…官方可以做个Spy养成游戏，我要调教安洁…
 断开车子是为了把英国方面的护卫以及顺便把间谍组的其他人都断开
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2589#       发表于 2017-8-7 09:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36808376&amp;ptid=1486439" target="_blank">jia3yu3sheng1 发表于 2017-8-7 09:21</a>
@@ -23008,16 +15443,10 @@ Spy育成所…官方可以做个Spy养成游戏，我要调教安洁…
 完了,这是官方的暗示<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  七夜美琴  
 ##### 2590#       发表于 2017-8-7 09:37
-
 
 
 <blockquote>引用第2588楼jia3yu3sheng1于2017-08-07 09:21发表的  :
@@ -23029,17 +15458,10 @@ Spy育成所…官方可以做个Spy养成游戏，我要调教安洁…
 ----发送自 [Xiaomi Redmi Note 4X,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  yjysrkl  
 ##### 2591#       发表于 2017-8-7 09:37
-
-
 
 
 动画里说了两辆车速度不一致会脱轨的
@@ -23049,16 +15471,10 @@ Spy育成所…官方可以做个Spy养成游戏，我要调教安洁…
 怎么看的动画……<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aeolus039  
 ##### 2592#       发表于 2017-8-7 09:38
-
 
 
 <blockquote>jia3yu3sheng1 发表于 2017-8-7 09:21
@@ -23068,18 +15484,10 @@ Spy育成所…官方可以做个Spy养成游戏，我要调教安洁…
 这是那种斗篷式的衣服吧，手在衣服里面
 
 
-
-
-
-
-
 -----
 
 ####  yjysrkl  
 ##### 2593#       发表于 2017-8-7 09:41
-
-
-
 
 
 比阿特的衣服
@@ -23087,14 +15495,8 @@ Spy育成所…官方可以做个Spy养成游戏，我要调教安洁…
 是藏手款
 
 
-
-
-
-
 11111.PNG
 (409.95 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -23103,31 +15505,13 @@ Spy育成所…官方可以做个Spy养成游戏，我要调教安洁…
 2017-8-7 09:40 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201708/07/094030ak852q580qow5x8z.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  ainopara  
 ##### 2594#       发表于 2017-8-7 09:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36807553&amp;ptid=1486439" target="_blank">pzk 发表于 2017-8-7 07:28</a>
@@ -23137,16 +15521,10 @@ Spy育成所…官方可以做个Spy养成游戏，我要调教安洁…
 没毛病，能飞起来靠和地面的摩擦力。
 
 
-
-
-
-
-
 -----
 
 ####  间咒  
 ##### 2595#       发表于 2017-8-7 09:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36808260&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-7 09:10</a>
@@ -23155,25 +15533,14 @@ Spy育成所…官方可以做个Spy养成游戏，我要调教安洁…
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">看着流血的多罗西连句“大丈夫”都没，直接就是公主呢....这家伙重色轻友都已经明摆上台面了。
 
 
-
-
-
-
-
 -----
 
 ####  rkSan  
 ##### 2596#       发表于 2017-8-7 10:03
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">大河内什么时候不吃药啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">越这样我越慌啊
-
-
-
-
-
 
 
 -----
@@ -23182,21 +15549,13 @@ Spy育成所…官方可以做个Spy养成游戏，我要调教安洁…
 ##### 2597#       发表于 2017-8-7 10:08
 
 
-
-
 这话小队都有两个受伤了,这样发展下去老实说出现伤亡也不奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">,如果那群护卫里面有公爵的人的话,安洁的飞跃演出应该会被注意到
-
-
-
-
-
 
 
 -----
 
 ####  jia3yu3sheng1  
 ##### 2598#       发表于 2017-8-7 10:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36808565&amp;ptid=1486439" target="_blank">yjysrkl 发表于 2017-8-7 09:41</a>
@@ -23206,17 +15565,10 @@ Spy育成所…官方可以做个Spy养成游戏，我要调教安洁…
 这我就放心了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2599#       发表于 2017-8-7 10:47
-
-
 
 
 安洁:这人救了公主是好人
@@ -23226,16 +15578,10 @@ Spy育成所…官方可以做个Spy养成游戏，我要调教安洁…
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  pzk  
 ##### 2600#       发表于 2017-8-7 10:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36808529&amp;ptid=1486439" target="_blank">yjysrkl 发表于 2017-8-7 09:37</a>
@@ -23248,26 +15594,14 @@ Spy育成所…官方可以做个Spy养成游戏，我要调教安洁…
 完全可以把钩绳砍断嘛
 
 
-
-
-
-
-
 -----
 
 ####  colohot  
 ##### 2601#       发表于 2017-8-7 10:54
 
 
-
-
 转战吧      贝阿特：你以为老娘是小跟班，其实老娘是终结者哒……咦，我的头呢
 <img src="http://ww1.sinaimg.cn/large/c1bb46d5gy1fiaywwjelxg20fj08qnpe.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23276,14 +15610,7 @@ Spy育成所…官方可以做个Spy养成游戏，我要调教安洁…
 ##### 2602#       发表于 2017-8-7 10:59
 
 
-
-
 上一个弑亲禽兽是不是红鸟？
-
-
-
-
-
 
 
 -----
@@ -23292,16 +15619,10 @@ Spy育成所…官方可以做个Spy养成游戏，我要调教安洁…
 ##### 2603#       发表于 2017-8-7 11:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36809543&amp;ptid=1486439" target="_blank">newise 发表于 2017-8-7 10:59</a>
 
 上一个弑亲禽兽是不是红鸟？</blockquote>
 七月份有恶魔城的少爷
-
-
-
-
-
 
 
 -----
@@ -23310,24 +15631,16 @@ Spy育成所…官方可以做个Spy养成游戏，我要调教安洁…
 ##### 2604#       发表于 2017-8-7 11:06
 
 
-
-
 诺曼底公爵多半是在继承顺序里面的。。。。
 
 
 就是排的有多后而已。。。。
 
 
-
-
-
-
-
 -----
 
 ####  TheWitcher  
 ##### 2605#       发表于 2017-8-7 11:13
-
 
 
 <blockquote>璇瑢子 发表于 2017-8-7 11:06
@@ -23338,16 +15651,10 @@ Spy育成所…官方可以做个Spy养成游戏，我要调教安洁…
 诺曼底公爵是女王的三儿子
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2606#       发表于 2017-8-7 11:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36809543&amp;ptid=1486439" target="_blank">newise 发表于 2017-8-7 10:59</a>
@@ -23356,16 +15663,10 @@ Spy育成所…官方可以做个Spy养成游戏，我要调教安洁…
 去年四月也是大河内的美马<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Norn  
 ##### 2607#       发表于 2017-8-7 11:33
-
 
 
  本帖最后由 Norn 于 2017-9-11 06:19 编辑 
@@ -23446,13 +15747,9 @@ pripri小知识,出自机械设定片貝文洋
 04.看到第4话王国公安在用毛.瑟.C96的观众也许会对「为什么英国人在用德国枪?」这点感到奇怪.我依稀记得原因是在机械设定磋商的时听到过的「这能用来表现王国跟大陆的关联.性.吧」这句话.
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -23462,12 +15759,7 @@ pripri小知识,出自机械设定片貝文洋
 | hymbz| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -23476,14 +15768,7 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2608#       发表于 2017-8-7 11:33
 
 
-
-
 这片原定要演多少集的。一季的话，感觉会一直单元剧下去
-
-
-
-
-
 
 
 -----
@@ -23492,14 +15777,7 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2609#       发表于 2017-8-7 11:36
 
 
-
-
 “她们感情很好啊…至少现在还是”
-
-
-
-
-
 
 
 -----
@@ -23508,16 +15786,10 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2610#       发表于 2017-8-7 11:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36809928&amp;ptid=1486439" target="_blank">废基 发表于 2017-8-7 11:33</a>
 
 这片原定要演多少集的。一季的话，感觉会一直单元剧下去</blockquote>
 一季12集 肯定最后三集回归所谓的主线 估计是打boss诺曼底公
-
-
-
-
-
 
 
 -----
@@ -23526,14 +15798,7 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2611#       发表于 2017-8-7 11:37
 
 
-
-
 这集很多细节做的很好，像贝阿特被砍到脖子窗上和地上类似机油喷出来的痕迹，十兵卫的刀刃上有和千岁对砍造成的蹦口，好看的不行啊
-
-
-
-
-
 
 
 -----
@@ -23542,14 +15807,8 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2612#       发表于 2017-8-7 11:38
 
 
-
 <blockquote>"她们感情很好啊...至少现在还是"</blockquote>
 二五仔剧情确认<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23558,15 +15817,9 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2613#       发表于 2017-8-7 11:43
 
 
-
 <blockquote>xtwx1716 发表于 2017-8-7 11:36
 “她们感情很好啊…至少现在还是”</blockquote>
 看来op最后狗女女抱在一起拿枪指着三个队友是真翻脸跳内了啊。
-
-
-
-
-
 
 
 -----
@@ -23575,15 +15828,9 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2614#       发表于 2017-8-7 11:52
 
 
-
 <blockquote>yaoxch88 发表于 2017-8-7 11:43
 看来op最后狗女女抱在一起拿枪指着三个队友是真翻脸跳内了啊。</blockquote>
 和公主的阴谋被发现了亡命天涯…
-
-
-
-
-
 
 
 -----
@@ -23592,16 +15839,10 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2615#       发表于 2017-8-7 11:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36809953&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-8-7 11:36</a>
 
 “她们感情很好啊…至少现在还是”</blockquote>
 很明显了，公主先跳，安洁跟上。<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23610,14 +15851,7 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2616#       发表于 2017-8-7 11:54
 
 
-
-
 话说抽牌那里能看清是什么牌吗？会不会有别的意思？…
-
-
-
-
-
 
 
 -----
@@ -23626,16 +15860,10 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2617#       发表于 2017-8-7 12:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36808647&amp;ptid=1486439" target="_blank">ainopara 发表于 2017-8-7 09:48</a>
 
 没毛病，能飞起来靠和地面的摩擦力。</blockquote>
 对啊。。。。看上一页的讨论还以为我物理有那么差，那种机动在现实世界中也能实现啊
-
-
-
-
-
 
 
 -----
@@ -23644,16 +15872,10 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2618#       发表于 2017-8-7 12:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36809543&amp;ptid=1486439" target="_blank">newise 发表于 2017-08-07 10:59:04</a>
 上一个弑亲禽兽是不是红鸟？</blockquote>大河内的上一个是美马撒马<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 [  -- 来自带麻将脸的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -23662,15 +15884,9 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2619#       发表于 2017-8-7 12:25
 
 
-
 <blockquote>神之叹息 发表于 2017-8-7 11:54
 话说抽牌那里能看清是什么牌吗？会不会有别的意思？…</blockquote>
 我觉得单纯是千世没见过扑克拿来看看......
-
-
-
-
-
 
 
 -----
@@ -23679,24 +15895,15 @@ pripri小知识,出自机械设定片貝文洋
 ##### 2620#       发表于 2017-8-7 12:28
 
 
-
-
 天啊公主每一话都要笑，多么的自信，多么的优雅，站公主绝对不会翻车的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 [  -- 来自带麻将脸的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
-
-
-
-
-
 
 
 -----
 
 ####  aptx8285144  
 ##### 2621#       发表于 2017-8-7 13:04
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201708/07/130323ke75jlh1hqtnq15q.jpg" referrerpolicy="no-referrer">
@@ -23709,10 +15916,6 @@ pripri小知识,出自机械设定片貝文洋
 2017-8-7 13:03 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201708/07/130341r3cikise3k3eqedv.jpg" referrerpolicy="no-referrer">
 
 
@@ -23723,25 +15926,13 @@ pripri小知识,出自机械设定片貝文洋
 2017-8-7 13:03 上传
 
 
-
-
-
-
 有人找到的对比图,这难道是药丸?<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
 
 ####  LadySaazbaum  
 ##### 2622#       发表于 2017-8-7 13:06
-
-
 
 
 十分稳<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
@@ -23753,16 +15944,10 @@ pripri小知识,出自机械设定片貝文洋
 嗯现在可以放个flag了：就算公主最后是个卖国姬我也认了。公主可爱。而且第四顺位继承人叛国怎么可能比得过我大火星弱智帝国的女皇陛下<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ccloli  
 ##### 2623#       发表于 2017-8-7 13:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36809969&amp;ptid=1486439" target="_blank">yujie 发表于 2017-8-7 11:37</a>
@@ -23772,32 +15957,19 @@ pripri小知识,出自机械设定片貝文洋
 <img src="http://wx1.sinaimg.cn/mw690/8c4cc15dgy1fib2s4h2gmj20ix0e6dlp.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  梦诗歌雪  
 ##### 2624#       发表于 2017-8-7 13:13
 
 
-
-
 警卫车厢那段俩人一进去阿兵哥们所有人都拿着牌而且拿牌的动作整齐划一，难道你们连休息时间打牌都是统一组织的么，而且还正襟危坐的，感到一丝悲伤，怕不是连娱乐活动都是演给哪个领导看的
-
-
-
-
-
 
 
 -----
 
 ####  aptx8285144  
 ##### 2625#       发表于 2017-8-7 13:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36810872&amp;ptid=1486439" target="_blank">LadySaazbaum 发表于 2017-8-7 13:06</a>
@@ -23808,32 +15980,19 @@ pripri小知识,出自机械设定片貝文洋
 公主已经背叛帝国过一次了,官方目前也没有补救的考虑,显然官方觉得也无所谓,再加上安洁之前说的欺骗自己和全世界,这间谍们也就这样了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2626#       发表于 2017-8-7 13:35
 
 
-
-
 其实那段官方想补救也是可能的,虽然从共和国偷回来很难,但是公主登基以后大力发展技术重新取得优势,至于失去优势的现在时间吗就随便了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  aeolus039  
 ##### 2627#       发表于 2017-8-7 13:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36811145&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-8-7 13:35</a>
@@ -23845,32 +16004,19 @@ pripri小知识,出自机械设定片貝文洋
 而技术上嘛……安洁手里可是就有个现成的实用品<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2628#       发表于 2017-8-7 13:52
 
 
-
-
 共和国的C球感觉技术上领先王国的太多了。之前王国的才刚能控制人升起来，还不能很好的控制
-
-
-
-
-
 
 
 -----
 
 ####  aptx8285144  
 ##### 2629#       发表于 2017-8-7 14:01
-
 
 
  本帖最后由 aptx8285144 于 2017-8-7 14:07 编辑 
@@ -23883,16 +16029,10 @@ pripri小知识,出自机械设定片貝文洋
 目前真正有强化人一样能力的也就安洁一个(公爵麾下那个部下不知道有无特殊能力),所以等公主登基后利用这个安洁的能力吧
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 2630#       发表于 2017-8-7 14:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36811400&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-8-7 14:01</a>
@@ -23901,32 +16041,19 @@ pripri小知识,出自机械设定片貝文洋
 公主：为了登基，安洁借汝头颅/蛋蛋一用
 
 
-
-
-
-
-
 -----
 
 ####  liwangli1983  
 ##### 2631#       发表于 2017-8-7 14:07
 
 
-
-
 设定上来说安洁和多萝西应该是公主比较亲近的同学，这里和公主一起出来接待外国人也勉强说的过去。但就这么公然展示身手了？毕竟普通人眼里这几个女孩就应该是普通女孩，尤其安洁还是笨手笨脚那种，不怕boss的眼线？
-
-
-
-
-
 
 
 -----
 
 ####  aptx8285144  
 ##### 2632#       发表于 2017-8-7 14:11
-
 
 
  本帖最后由 aptx8285144 于 2017-8-7 14:12 编辑 
@@ -23936,16 +16063,10 @@ pripri小知识,出自机械设定片貝文洋
 其实能和王储潜在人选交朋友的未必是一般人(名门千金,有身手非凡等等)这个道理很多人也懂,但是安洁这公然远距离跳跃的能力就超越很多人想像力了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  liwangli1983  
 ##### 2633#       发表于 2017-8-7 14:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36811533&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-8-7 14:11</a>
@@ -23957,16 +16078,10 @@ pripri小知识,出自机械设定片貝文洋
 当然这片没法纠结的太深了，总体剧情说还说的过去。
 
 
-
-
-
-
-
 -----
 
 ####  saturnus  
 ##### 2634#       发表于 2017-8-7 14:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36811490&amp;ptid=1486439" target="_blank">liwangli1983 发表于 2017-8-7 14:07</a>
@@ -23978,16 +16093,10 @@ pripri小知识,出自机械设定片貝文洋
 至于另外被炸掉的那段火车里面，毕竟当时也换间谍装了，就当两个人好咯
 
 
-
-
-
-
-
 -----
 
 ####  废基  
 ##### 2635#       发表于 2017-8-7 14:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36811490&amp;ptid=1486439" target="_blank">liwangli1983 发表于 2017-8-7 14:07</a>
@@ -23996,16 +16105,10 @@ pripri小知识,出自机械设定片貝文洋
 站在外人的角度，这种重要人物出席这种层面的活动，对外宣称是朋友，一同出入比较亲近的，不都是默认是保镖吗
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2636#       发表于 2017-8-7 14:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36811834&amp;ptid=1486439" target="_blank">saturnus 发表于 2017-8-7 14:38</a>
@@ -24017,16 +16120,10 @@ pripri小知识,出自机械设定片貝文洋
 关键不在这个,而在于安洁在这个远距离跳跃被远处的士兵们看到的可能性非常高,不过那时候事态紧急,这么做完全可以理解,其实考虑到第一话和公爵麾下的部长交火,这感觉是差不多早就撕破脸皮了
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2637#       发表于 2017-8-7 14:51
-
 
 
  本帖最后由 aptx8285144 于 2017-8-7 14:52 编辑 
@@ -24036,16 +16133,10 @@ pripri小知识,出自机械设定片貝文洋
 和上一话公主强行上桥不同,这次事态紧急,远距离飞跃完全可以理解,其实现在想想:第一话和公爵麾下的部长交火时候感觉和公爵那边撕破脸了吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  saturnus  
 ##### 2638#       发表于 2017-8-7 15:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36811951&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-8-7 14:49</a>
@@ -24054,17 +16145,10 @@ pripri小知识,出自机械设定片貝文洋
 这个跟看没看到没关系，关键是当时已经换装了啊，在路人眼里那就是另一个人咯<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2639#       发表于 2017-8-7 15:04
-
-
 
 
 就算知道公主卖国，可没有切实证据的话诺曼底公明面上也拿公主没办法。毕竟公主还是皇室成员第4顺位。
@@ -24073,17 +16157,10 @@ pripri小知识,出自机械设定片貝文洋
 至少到第一话的时间线（也就是是案件12）之时诺曼底公应该已经知道公主勾结共和国势力了，所以让手下布控学校并设计要抓住公主叛国的证据。可见之后的案件也就是下一话案件18应该又是诺曼底公设下的圈套。
 
 
-
-
-
-
-
 -----
 
 ####  sunny_am  
 ##### 2640#       发表于 2017-8-7 15:12
-
-
 
 
 连人带车一起轰了不就得了
@@ -24091,16 +16168,10 @@ pripri小知识,出自机械设定片貝文洋
 千里迢迢运个炮过来结果就打了一发
 
 
-
-
-
-
-
 -----
 
 ####  liwangli1983  
 ##### 2641#       发表于 2017-8-7 15:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36811834&amp;ptid=1486439" target="_blank">saturnus 发表于 2017-8-7 14:38</a>
@@ -24112,16 +16183,10 @@ pripri小知识,出自机械设定片貝文洋
 嗯，换装瞒过这个可以说的过去
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2642#       发表于 2017-8-7 15:31
-
 
 
  本帖最后由 lmx20 于 2017-8-7 15:35 编辑 
@@ -24159,16 +16224,10 @@ pripri小知识,出自机械设定片貝文洋
    
 
 
-
-
-
-
-
 -----
 
 ####  室見立華_oc  
 ##### 2643#       发表于 2017-8-7 15:33
-
 
 
  本帖最后由 室見立華_oc 于 2017-8-7 15:36 编辑 
@@ -24179,16 +16238,10 @@ pripri小知识,出自机械设定片貝文洋
 原本想直接搬去b站，但是发现现在上传要绑手机懒得折腾<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2644#       发表于 2017-8-7 15:35
-
 
 
 <blockquote>lmx20 发表于 2017-8-7 15:31
@@ -24201,16 +16254,10 @@ pripri小知识,出自机械设定片貝文洋
 千世疑似支持维新那一派，而维新派又有天皇的支持，千世对父亲的态度似乎也就可以理解了
 
 
-
-
-
-
-
 -----
 
 ####  saturnus  
 ##### 2645#       发表于 2017-8-7 15:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36812284&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-8-7 15:31</a>
@@ -24223,16 +16270,10 @@ pripri小知识,出自机械设定片貝文洋
 [http://bbs.nga.cn/read.php?pid=237917169](http://bbs.nga.cn/read.php?pid=237917169)
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 2646#       发表于 2017-8-7 15:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36812284&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-8-7 15:31</a>
@@ -24243,16 +16284,10 @@ pripri小知识,出自机械设定片貝文洋
 公主总有天会拿出关节技的
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2647#       发表于 2017-8-7 15:46
-
 
 
  本帖最后由 lmx20 于 2017-8-7 15:48 编辑 
@@ -24310,17 +16345,10 @@ pripri小知识,出自机械设定片貝文洋
 要不也落到个这下场就不好了   
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2648#       发表于 2017-8-7 15:57
-
-
 
 
 最后千世说来帮助公主她们执行替换作战
@@ -24350,16 +16378,10 @@ pripri小知识,出自机械设定片貝文洋
 不过具体是什么就真不好说了
 
 
-
-
-
-
-
 -----
 
 ####  室見立華_oc  
 ##### 2649#       发表于 2017-8-7 15:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36812383&amp;ptid=1486439" target="_blank">saturnus 发表于 2017-8-7 15:41</a>
@@ -24371,17 +16393,10 @@ http://bbs.nga.cn/read.php?pid=237917169 ...</blockquote>
 这个前面几楼就有了
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 2650#       发表于 2017-8-7 16:05
-
-
 
 
 关于那堆扑克牌，看了一下，每次都是千世拿走，安洁接过插到另一个人手上（所以那整个车厢的卫兵都在打牌吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）
@@ -24402,16 +16417,10 @@ http://bbs.nga.cn/read.php?pid=237917169 ...</blockquote>
 对扑克牌不熟，有啥特殊含义吗。。。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2651#       发表于 2017-8-7 16:09
-
 
 
 <blockquote>saturnus 发表于 2017-8-7 15:41
@@ -24422,16 +16431,10 @@ http://bbs.nga.cn/read.php?pid=237917169 ...</blockquote>
 那不是从爱撕衣搬过去的？…是楼上某位dalao翻的吧…
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2652#       发表于 2017-8-7 16:12
-
 
 
 <blockquote>bird-lay 发表于 2017-8-7 16:05
@@ -24439,16 +16442,10 @@ http://bbs.nga.cn/read.php?pid=237917169 ...</blockquote>
 我也觉得有意思，应该不是随便糊弄的吧？(大雾
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2653#       发表于 2017-8-7 16:14
-
 
 
  本帖最后由 lmx20 于 2017-8-7 16:17 编辑 
@@ -24479,16 +16476,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
    
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 2654#       发表于 2017-8-7 16:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36812653&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-7 16:12</a>
@@ -24497,16 +16488,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 查了一下，虽然没找到扑克牌传入日本的具体时间，但是有说法是扑克牌大约在1840年后传入中国，早期国内的扑克基本是从日本和美国进口的，所以千世应该不是因为从来没见过扑克牌拿着玩
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2655#       发表于 2017-8-7 16:45
-
 
 
 <blockquote>lmx20 发表于 2017-8-7 15:46
@@ -24519,16 +16504,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 十兵卫的背景除了前幕府的人外其他都很模糊，考虑到发动叛乱也是背叛的一种，历史上天皇+维新派虽然和幕府交火过但是好像最后也达成幕府交还大权给天皇的协议，十兵卫可能也是不满维新派的一员所以发起叛乱？而在很多人看来这种不满就是对天皇的背叛吧，而且大使出使英国协商修约整体符合11区利益，来搅局的对11区只会起负面作用.  个人希望千世杀父理由是公私（正因为是父亲反而更难原谅）皆有，因为只有一方面的原因而做出的决断所背负的东西会更痛苦
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2656#       发表于 2017-8-7 16:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36812950&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-8-7 16:45</a>
@@ -24543,16 +16522,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 不转的话，和主角对着干不死也残啊
 
 
-
-
-
-
-
 -----
 
 ####  梦诗歌雪  
 ##### 2657#       发表于 2017-8-7 16:53
-
 
 
 <blockquote>bird-lay 发表于 2017-8-7 16:05
@@ -24564,16 +16537,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 所以还是只能认为这个场景是为了让安洁和千世的对话不至于变成ppt而强塞的，为了谈话而忽视了场景的合理性
 
 
-
-
-
-
-
 -----
 
 ####  saturnus  
 ##### 2658#       发表于 2017-8-7 16:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36812629&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-7 16:09</a>
@@ -24582,25 +16549,13 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 前面有几楼都没爬，尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 2659#       发表于 2017-8-7 17:03
 
 
-
-
 关于那个超远距离跳跃，千世在刚见到安洁的时候说过她左脚的鞋子上有机关，可能和那个有关系吧？
-
-
-
-
-
 
 
 -----
@@ -24609,22 +16564,15 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 ##### 2660#       发表于 2017-8-7 17:06
 
 
-
 <blockquote>bird-lay 发表于 2017-8-7 17:03
 关于那个超远距离跳跃，千世在刚见到安洁的时候说过她左脚的鞋子上有机关，可能和那个有关系吧？ ...</blockquote>
 他们有一段日剧跑助力吧？机关的话我觉得暗器什么的，自保用的
-
-
-
-
-
 
 
 -----
 
 ####  aeolus039  
 ##### 2661#       发表于 2017-8-7 17:07
-
 
 
 <blockquote>梦诗歌雪 发表于 2017-8-7 16:53
@@ -24635,16 +16583,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 当然整体表情动作僵硬应该还是缺钱的锅，反正他们的用途也就这点了
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 2662#       发表于 2017-8-7 17:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36813196&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-7 17:06</a>
@@ -24655,16 +16597,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 以及那个c球，虽然官方的说明是“创造无重力的空间”，但是既然可以用体温来控制，不知道能不能生成新的重力场呢？这样也可以超远距离跳跃吧？
 
 
-
-
-
-
-
 -----
 
 ####  OrianaThomson  
 ##### 2663#       发表于 2017-8-7 17:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36808376&amp;ptid=1486439" target="_blank">jia3yu3sheng1 发表于 2017-8-7 09:21</a>
@@ -24675,16 +16611,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 我有点方
 
 
-
-
-
-
-
 -----
 
 ####  ror  
 ##### 2664#       发表于 2017-8-7 17:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36813344&amp;ptid=1486439" target="_blank">bird-lay 发表于 2017-8-7 17:18</a>
@@ -24694,25 +16624,13 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 本身火车就有这么大速度，带着惯性飞一波也没啥吧
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2665#       发表于 2017-8-7 17:43
 
 
-
-
 千世父女的背景还是有点迷啊……在千世上车砍人的时候她爸爸手下的喽啰第一反应是“您打算背叛吗，千世大人”，这是暗示千世原本和她爸爸是一块在旧幕派这边共事，而且这边的人还不清楚两年前父女之间就决裂了？
-
-
-
-
-
 
 
 -----
@@ -24721,15 +16639,9 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 ##### 2666#       发表于 2017-8-7 17:46
 
 
-
 <blockquote>堆雪若叶 发表于 2017-8-7 17:43
 千世父女的背景还是有点迷啊……在千世上车砍人的时候她爸爸手下的喽啰第一反应是“您打算背叛吗，千世大人 ...</blockquote>
 也有可能是下人不敢相信一个小姑娘真敢跟她爹作对，你看爹就是一句嘴炮都不打直接砍上来了
-
-
-
-
-
 
 
 -----
@@ -24738,14 +16650,7 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 ##### 2667#       发表于 2017-8-7 17:48
 
 
-
-
 关于跳跃的话，其实大概就是把重力调整到很小，这样在空中运动的时间就变长了，对于一定的水平方向的速度而言，水平运动的距离就变长了，造成的结果就是夸张的超距离跳跃。
-
-
-
-
-
 
 
 -----
@@ -24754,16 +16659,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 ##### 2668#       发表于 2017-8-7 17:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36813633&amp;ptid=1486439" target="_blank">aeolus039 发表于 2017-8-7 17:46</a>
 
 也有可能是下人不敢相信一个小姑娘真敢跟她爹作对，你看爹就是一句嘴炮都不打直接砍上来了 ...</blockquote>
 那也很迷啊，喽啰都知道两人的父女关系，上位的堀河公竟然一无所知？
-
-
-
-
-
 
 
 -----
@@ -24772,24 +16671,16 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 ##### 2669#       发表于 2017-8-7 17:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36813472&amp;ptid=1486439" target="_blank">ror 发表于 2017-8-7 17:31</a>
 
 本身火车就有这么大速度，带着惯性飞一波也没啥吧</blockquote>
 但是动画里她们是横向跳出去的（似乎是火车正好在拐弯，所以能抄近道赶上前面的车）
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2670#       发表于 2017-8-7 17:57
-
-
 
 
 其实最有可能的就是
@@ -24803,16 +16694,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 同时也没有受到空气阻力衰减的影响
 
 
-
-
-
-
-
 -----
 
 ####  crazymarky  
 ##### 2671#       发表于 2017-8-7 18:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36813673&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-8-7 17:51</a>
@@ -24821,16 +16706,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 你从哪看出来堀河公一无所知的
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2672#       发表于 2017-8-7 18:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36813799&amp;ptid=1486439" target="_blank">crazymarky 发表于 2017-8-7 18:03</a>
@@ -24841,16 +16720,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 而且知道两人关系的话怎么可能留千世在身边……
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 2673#       发表于 2017-8-7 18:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36813821&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-8-7 18:05</a>
@@ -24861,16 +16734,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 不管怎么样看见女儿把爸爸捅了都会吃惊吧。。。
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2674#       发表于 2017-8-7 18:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36813735&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-8-7 17:57</a>
@@ -24883,16 +16750,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 空气阻力倒没啥……只是人起跳水平方向获得的速度而产生的空气阻力实在是可以忽略不计，重点还是减小重力延长空中运动时间。当然如果要说c球还能增大起跳速度再减小空气阻力这种设定也是无话可说<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2675#       发表于 2017-8-7 18:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36813839&amp;ptid=1486439" target="_blank">bird-lay 发表于 2017-8-7 18:07</a>
@@ -24901,16 +16762,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 那还能放任要暗杀自己的人的女儿携刀在身旁，并且相信她要将十兵卫一伙一网打尽吗
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2676#       发表于 2017-8-7 18:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36813860&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-8-7 18:09</a>
@@ -24929,32 +16784,19 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 重力决定起跳高度，空气阻力决定能跳多远
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2677#       发表于 2017-8-7 18:18
 
 
-
-
 其实从这片开始就一直觉得，这样用case数来代替一般的集数的更适合大河内。因为大河内喜欢神展开，跳跃式的剧情，用这样乱序的方法反而掩盖住了他这个缺点。除了case1case2，目前case之间基本都会隔开，然后比如人物感情的加深，故事的矛盾都能在一集之内爆发，可以省下不少铺垫。比如夺取王国实验结果那集，是case9，和这集case7并不是连贯的。因此千世对安洁吐槽的反差看着就那么违和了
-
-
-
-
-
 
 
 -----
 
 ####  bird-lay  
 ##### 2678#       发表于 2017-8-7 18:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36813898&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-8-7 18:14</a>
@@ -24967,16 +16809,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 至少大岛肯定是知道千世就是十兵卫的女儿的，那么堀川公不太可能不知道这一点
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2679#       发表于 2017-8-7 18:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36813899&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-8-7 18:14</a>
@@ -24989,16 +16825,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 不是说没有阻力啊，但是对于人运动的速度来说空气阻力真没多大……当然确实距离有这么长速度也可能有一定衰减，这就要给具体跳跃的距离和水平方向初速度来算了。不过我是认为重力减小占的因素最大，毕竟这个降下来才是对跳跃距离最显著的提升。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2680#       发表于 2017-8-7 18:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36813898&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-8-7 18:14</a>
@@ -25007,16 +16837,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 以千世的身手，要杀两年前早就杀了，还等什么。但要不是千世，可能他两年前就已经死了。所以不能简单地认为因为她是敌人的女儿就一定不安全，这里头的故事可以展开，但也不需要，设定就是千世这小孩的性格就是那样的，千世是有大义灭亲的觉悟。
 
 
-
-
-
-
-
 -----
 
 ####  colohot  
 ##### 2681#       发表于 2017-8-7 18:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36813344&amp;ptid=1486439" target="_blank">bird-lay 发表于 2017-8-7 17:18</a>
@@ -25026,16 +16850,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 第一集里安洁带着小哥，只靠着起跳的速度+无重力就能跳到那么高的地方，多蓄点力跳那么远也不是不可能
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2682#       发表于 2017-8-7 18:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36813969&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-8-7 18:23</a>
@@ -25062,16 +16880,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 也许跳到一半距离就没动能直接浮在空中了
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2683#       发表于 2017-8-7 18:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36813968&amp;ptid=1486439" target="_blank">bird-lay 发表于 2017-8-7 18:22</a>
@@ -25082,16 +16894,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 十兵卫杀大岛前说的不是“不可饶恕”么……我还以为大岛也是日本内部的双面间谍呢……
 
 
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 2684#       发表于 2017-8-7 18:29
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">越来越好看了。
@@ -25101,16 +16907,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 闲暇之余看一集感觉又活了过来。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2685#       发表于 2017-8-7 18:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36814018&amp;ptid=1486439" target="_blank">colohot 发表于 2017-8-7 18:27</a>
@@ -25119,16 +16919,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 对，我也想说第一集和小哥那里也能说明点什么了
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2686#       发表于 2017-8-7 18:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36806782&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-8-7 00:49</a>
@@ -25137,16 +16931,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 不过共和国不可能真让公主当上女王的吧？跟他们的利益冲突，真当上了拿什么控制女王？
 
 
-
-
-
-
-
 -----
 
 ####  流彩飞舞  
 ##### 2687#       发表于 2017-8-7 18:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36813821&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-8-7 18:05</a>
@@ -25156,16 +16944,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 那你是不是忘记了一开始他们根本不想带千世来英国这一点了？
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 2688#       发表于 2017-8-7 18:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36814018&amp;ptid=1486439" target="_blank">colohot 发表于 2017-8-7 18:27</a>
@@ -25174,16 +16956,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 距离倒不是大问题，主要是想知道如何能追上前面那辆火车的。。。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2689#       发表于 2017-8-7 18:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36808303&amp;ptid=1486439" target="_blank">saturnus 发表于 2017-8-7 09:14</a>
@@ -25195,16 +16971,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 千世下手确实让我觉得她有些愚忠的感觉，希望是错觉吧
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2690#       发表于 2017-8-7 18:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36808307&amp;ptid=1486439" target="_blank">ahyyk 发表于 2017-8-7 09:14</a>
@@ -25215,16 +16985,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 多萝西戳不到安洁的G点<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2691#       发表于 2017-8-7 18:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36808751&amp;ptid=1486439" target="_blank">间咒 发表于 2017-8-7 09:56</a>
@@ -25233,16 +16997,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 不过她这样问也是任务重要啊，公主不能有任何闪失<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">多萝西：当然是原谅安洁啦！~
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2692#       发表于 2017-8-7 18:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36810501&amp;ptid=1486439" target="_blank">posion 发表于 2017-8-7 12:25</a>
@@ -25251,16 +17009,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 不清楚千世有没有接触过扑克牌这玩意，既然有词典用了，估计见过吧
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2693#       发表于 2017-8-7 18:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36812887&amp;ptid=1486439" target="_blank">bird-lay 发表于 2017-8-7 16:38</a>
@@ -25269,16 +17021,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 我说觉得以千世的身份，这种东西多多少少见过吧。。
 
 
-
-
-
-
-
 -----
 
 ####  colohot  
 ##### 2694#       发表于 2017-8-7 18:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36814062&amp;ptid=1486439" target="_blank">bird-lay 发表于 2017-8-7 18:31</a>
@@ -25286,16 +17032,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 那个时候火车正在拐弯，安洁她们起跳和降落都是从火车侧面。有几帧是安洁跳向火车，远处的火车蒸汽从镜头左向右移。
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 2695#       发表于 2017-8-7 18:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36814037&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-8-7 18:29</a>
@@ -25306,16 +17046,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 字幕是“原谅我”来着。。。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2696#       发表于 2017-8-7 18:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36813344&amp;ptid=1486439" target="_blank">bird-lay 发表于 2017-8-7 17:18</a>
@@ -25326,16 +17060,10 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 想说的楼下有人说了，我也想举例第一集安洁带着艾里克走的那段，有C球的帮助，助跑可能会产生不小的效果也说不定呢。。
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 2697#       发表于 2017-8-7 18:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36814115&amp;ptid=1486439" target="_blank">colohot 发表于 2017-8-7 18:39</a>
@@ -25346,25 +17074,13 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 而且安洁跳起来之前还特意往后方跑，跳起来那一下就像是被发射出去的一样
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2698#       发表于 2017-8-7 18:45
 
 
-
-
 安洁和千世跳跃途中还有个垫脚点，并不是一步到位的吧
-
-
-
-
-
 
 
 -----
@@ -25373,22 +17089,13 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 ##### 2699#       发表于 2017-8-7 18:48
 
 
-
-
 等等，又看了一遍，多萝西说她讲掘川公引荐给了高层。。这是直接跳过组织了吗？那么多萝西是有高层作后台的咯？难不成被包养了？看多萝西平时的样子，也有种少妇的感觉诶。。
-
-
-
-
-
 
 
 -----
 
 ####  ahyyk  
 ##### 2700#       发表于 2017-8-7 18:50
-
-
 
 
 安洁把千岁扔出去，然后消除自身重力，被飞起来的千岁拉走，然后消除2人重力，一起飞走
@@ -25401,25 +17108,13 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 顺便千岁是第一个相信黑蜥蜴星的人，没见过扑克也很正常。从小就学砍人了。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2701#       发表于 2017-8-7 18:51
 
 
-
-
 千世给安洁下跪道谢，安洁教给千世握手那段我觉得挺不错的，虽然总感觉大河内在影射什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25428,23 +17123,16 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 ##### 2702#       发表于 2017-8-7 18:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36814174&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-7 18:48</a>
 
 等等，又看了一遍，多萝西说她讲掘川公引荐给了高层。。这是直接跳过组织了吗？那么多萝西是有高层作后台的 ...</blockquote>
 多萝西说的是コントロール，就是那群整天开会的人啦
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2703#       发表于 2017-8-7 18:53
-
 
 
 <blockquote><a href="httphttp://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36814212&amp;ptid=1486439" target="_blank">bird-lay 发表于 2017-8-7 18:52</a>
@@ -25454,35 +17142,19 @@ PS：总感觉这个队伍这混乱的忠诚，后期并不太乐观
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然翻译误我（大雾~
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2704#       发表于 2017-8-7 18:56
 
 
-
-
-
-
 B站有UP主翻唱了OP<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。。
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 2705#       发表于 2017-8-7 18:58
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201708/07/185735ludwi3ztnprxmpx4.png" referrerpolicy="no-referrer">
@@ -25495,23 +17167,13 @@ B站有UP主翻唱了OP<img src="https://static.saraba1st.com/image/smiley/face2
 2017-8-7 18:57 上传
 
 
-
-
-
-
 有个老外亮了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你是有多喜欢千世。。
-
-
-
-
-
 
 
 -----
 
 ####  堆雪若叶  
 ##### 2706#       发表于 2017-8-7 18:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36814034&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-8-7 18:29</a>
@@ -25534,16 +17196,10 @@ B站有UP主翻唱了OP<img src="https://static.saraba1st.com/image/smiley/face2
 看来确实还得要减小空气阻力……不过这样c球的设定就又复杂了，本来想的是只减小重力延长运动时间就能达到相当的跳跃距离了也能让设定简单，看来还是不靠谱……
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2707#       发表于 2017-8-7 19:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36812979&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-8-7 16:48</a>
@@ -25556,16 +17212,10 @@ B站有UP主翻唱了OP<img src="https://static.saraba1st.com/image/smiley/face2
 其实理论上来说转阵营确实很困难,看当年干了同样事情的朱雀和鲁路修两个分分合合多少次了才正常,但是问题是这片才12话又有手游宣传的考虑,也许最后公主还是能把自己的队伍变成自己的后宫团<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2708#       发表于 2017-8-7 19:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36813045&amp;ptid=1486439" target="_blank">梦诗歌雪 发表于 2017-8-7 16:53</a>
@@ -25574,16 +17224,10 @@ B站有UP主翻唱了OP<img src="https://static.saraba1st.com/image/smiley/face2
 这段感觉就是官方没钱或者偷懒了,那两个人走动过程中,这群护卫几乎没动过,抽扑克也就是给谈话一个应景而已
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2709#       发表于 2017-8-7 19:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36814150&amp;ptid=1486439" target="_blank">bird-lay 发表于 2017-8-7 18:42</a>
@@ -25594,16 +17238,10 @@ B站有UP主翻唱了OP<img src="https://static.saraba1st.com/image/smiley/face2
 这里速度有多快不是决定因素，安洁她们跳的方向和火车沿铁轨跑的方向不同，重点是当安洁跳跃之后落到火车顶高度的时，火车恰好跑到她们脚下。
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2710#       发表于 2017-8-7 19:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36814320&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-8-7 19:07</a>
@@ -25612,16 +17250,10 @@ B站有UP主翻唱了OP<img src="https://static.saraba1st.com/image/smiley/face2
 感觉抽扑克的动作不就像物语里面长对话时人物无意义的动作吗……
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2711#       发表于 2017-8-7 19:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36813673&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-8-7 17:51</a>
@@ -25630,17 +17262,10 @@ B站有UP主翻唱了OP<img src="https://static.saraba1st.com/image/smiley/face2
 不可能不清楚千世立场的,否则一开始不会让其他人跑出去制止千世和安洁等人打架的
 
 
-
-
-
-
-
 -----
 
 ####  Fingest  
 ##### 2712#       发表于 2017-8-7 19:09
-
-
 
 
 这集终于有点电影感
@@ -25648,16 +17273,10 @@ B站有UP主翻唱了OP<img src="https://static.saraba1st.com/image/smiley/face2
 各种小细节看得很爽
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2713#       发表于 2017-8-7 19:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36814270&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-8-7 18:59</a>
@@ -25670,16 +17289,10 @@ B站有UP主翻唱了OP<img src="https://static.saraba1st.com/image/smiley/face2
 专业
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2714#       发表于 2017-8-7 19:12
-
 
 
  本帖最后由 aptx8285144 于 2017-8-7 19:13 编辑 
@@ -25689,16 +17302,10 @@ B站有UP主翻唱了OP<img src="https://static.saraba1st.com/image/smiley/face2
 她父亲也明显没有留情的意思,11区那个很多人必须做抉择的年代里面以及大河内当年对鲁路修父子的塑造来说,在觉悟后的绝然也是可能的
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2715#       发表于 2017-8-7 19:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36814344&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-8-7 19:09</a>
@@ -25707,16 +17314,10 @@ B站有UP主翻唱了OP<img src="https://static.saraba1st.com/image/smiley/face2
 嗯……我是不太清楚堀河公这边对千世的底细了解到什么地步，是不是可能他们的关系就只是千世和父亲决裂后才跑到这边给堀河公干了两年活。不过也都是从那个喽啰说背叛开始觉得有点疑惑，大家各有所见吧。
 
 
-
-
-
-
-
 -----
 
 ####  saturnus  
 ##### 2716#       发表于 2017-8-7 19:15
-
 
 
  本帖最后由 saturnus 于 2017-8-7 19:17 编辑 
@@ -25734,16 +17335,10 @@ B站有UP主翻唱了OP<img src="https://static.saraba1st.com/image/smiley/face2
 [  -- 来自能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2717#       发表于 2017-8-7 19:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36814354&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-8-7 19:10</a>
@@ -25752,32 +17347,19 @@ B站有UP主翻唱了OP<img src="https://static.saraba1st.com/image/smiley/face2
 主要感觉是光靠脑补还是说不准<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2718#       发表于 2017-8-7 19:20
 
 
-
-
 其实这话在一些细节上缺钱的厉害呀,明明去祭拜父亲前有堀河公和赶来护卫交谈的镜头,但是护卫们嘴几乎没动过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  堆雪若叶  
 ##### 2719#       发表于 2017-8-7 19:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36814391&amp;ptid=1486439" target="_blank">saturnus 发表于 2017-8-7 19:15</a>
@@ -25788,17 +17370,10 @@ B站有UP主翻唱了OP<img src="https://static.saraba1st.com/image/smiley/face2
 反正官方也没框死c球能力，严谨考虑和随便考虑也都行吧
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2720#       发表于 2017-8-7 19:29
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201708/07/192835fdolo3ri42m52ixk.png" referrerpolicy="no-referrer">
@@ -25811,16 +17386,7 @@ B站有UP主翻唱了OP<img src="https://static.saraba1st.com/image/smiley/face2
 2017-8-7 19:28 上传
 
 
-
-
-
-
 英文字幕在这里的翻译感觉比中文的好，直接点出是control了
-
-
-
-
-
 
 
 -----
@@ -25829,23 +17395,15 @@ B站有UP主翻唱了OP<img src="https://static.saraba1st.com/image/smiley/face2
 ##### 2721#       发表于 2017-8-7 19:52
 
 
-
-
 这大河内黑自己国家真是不遗余力啊……
 
 鲁路修那会儿好像也有这种味道。
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 2722#       发表于 2017-8-7 20:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36814717&amp;ptid=1486439" target="_blank">Theory_茶叶 发表于 2017-8-7 19:52</a>
@@ -25856,16 +17414,10 @@ B站有UP主翻唱了OP<img src="https://static.saraba1st.com/image/smiley/face2
 都成11区了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  nanjolno  
 ##### 2723#       发表于 2017-8-7 20:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36814037&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-8-7 18:29</a>
@@ -25881,26 +17433,15 @@ B站有UP主翻唱了OP<img src="https://static.saraba1st.com/image/smiley/face2
 堀河公不可能不知道他们之间是父女关系的
 
 
-
-
-
-
-
 -----
 
 ####  nylonchina1  
 ##### 2724#       发表于 2017-8-7 20:07
 
 
-
 <blockquote>神之叹息 发表于 2017-8-7 18:51
 千世给安洁下跪道谢，安洁教给千世握手那段我觉得挺不错的，虽然总感觉大河内在影射什么东西 ...</blockquote>
 最后的武士
-
-
-
-
-
 
 
 -----
@@ -25909,24 +17450,16 @@ B站有UP主翻唱了OP<img src="https://static.saraba1st.com/image/smiley/face2
 ##### 2725#       发表于 2017-8-7 20:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36814859&amp;ptid=1486439" target="_blank">nylonchina1 发表于 2017-8-7 20:07</a>
 
 最后的武士</blockquote>
 原来如此，记不太清了，总觉得有点熟悉
 
 
-
-
-
-
-
 -----
 
 ####  厨厨光波  
 ##### 2726#       发表于 2017-8-7 20:20
-
-
 
 
 C球有什么好纠结的
@@ -25940,16 +17473,10 @@ C球有什么好纠结的
 从前几集的表现上大概就是这种效果
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 2727#       发表于 2017-8-7 20:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36814976&amp;ptid=1486439" target="_blank">厨厨光波 发表于 2017-8-7 20:20</a>
@@ -25964,25 +17491,13 @@ C球有什么好纠结的
 而且如果是产生新的重力场的话安洁跳的时候应该要把球往前举，但是她的动作不是这样的
 
 
-
-
-
-
-
 -----
 
 ####  nanjolno  
 ##### 2728#       发表于 2017-8-7 20:30
 
 
-
-
 C球想象成重力异想世界里自己操纵重力满天飞就行了啦...
-
-
-
-
-
 
 
 -----
@@ -25991,24 +17506,16 @@ C球想象成重力异想世界里自己操纵重力满天飞就行了啦...
 ##### 2729#       发表于 2017-8-7 20:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36814058&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-7 18:31</a>
 
 不过共和国不可能真让公主当上女王的吧？跟他们的利益冲突，真当上了拿什么控制女王？ ...</blockquote>
 共和国这边当然乐意这个计划。因为公主要上位就要狠狠的打击诺曼底公的势力，这符合共和国的利益。公主上位了因为control这边掌握大量公主是敌国间谍的证据，所以如果掌控的好那就可以控制新女王为共和国输送利益，控制不了也可以把证据散播出来造成敌国这边政治动荡。可见原计划是用假公主冒用公主的身份执行间谍活动，现在改为直接利用真公主来掩护间谍活动（真公主掌握更多消息和渠道可以更好的和诺曼底公斗争）。共和国这边收益更大，当然风险也更高了---公主可能是双面间谍（对此还是先抓住机会，双面间谍的问题再做好预案就好）。
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2730#       发表于 2017-8-7 20:49
-
-
 
 
 C球明显只能反重力不能提供加速度。<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
@@ -26020,17 +17527,10 @@ C球明显只能反重力不能提供加速度。<img src="https://static.saraba
 C球能反重力，那么安吉就相当于浮空没有地面摩擦力只有空气阻力。没有摩擦力的物体在惯性作用下“滑”的很远十分正常。
 
 
-
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2731#       发表于 2017-8-7 20:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36815216&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-8-7 20:49</a>
@@ -26042,24 +17542,13 @@ C球明显只能反重力不能提供加速度。
 不过安洁快接近列车还是打了一枪，感觉助跑还是差了点
 
 
-
-
-
-
-
 -----
 
 ####  fat  
 ##### 2732#       发表于 2017-8-7 20:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">什么鬼？这片居然越来越好看？这明显不科学啊！
-
-
-
-
-
 
 
 -----
@@ -26068,14 +17557,7 @@ C球明显只能反重力不能提供加速度。
 ##### 2733#       发表于 2017-8-7 20:54
 
 
-
-
 另外第一集case13端了公爵手下的公安部，公爵恼羞成怒可想而知吧？不过下一集是case18，如果跳出来什么情报可能也不会吃惊了，因为可以推说是case13~18之间获取的
-
-
-
-
-
 
 
 -----
@@ -26084,14 +17566,7 @@ C球明显只能反重力不能提供加速度。
 ##### 2734#       发表于 2017-8-7 20:55
 
 
-
-
 想象一下被对方反艹的公爵，估计已经不是心平气和地的让公主外嫁那么简单了。估计得杀人出气了吧？。。
-
-
-
-
-
 
 
 -----
@@ -26100,16 +17575,10 @@ C球明显只能反重力不能提供加速度。
 ##### 2735#       发表于 2017-8-7 20:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36815241&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-7 20:52</a>
 
 不过安洁快接近列车还是打了一枪，感觉助跑还是差了点</blockquote>
 实在不行关键时刻把千世向后扔出去就行了。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26118,14 +17587,7 @@ C球明显只能反重力不能提供加速度。
 ##### 2736#       发表于 2017-8-7 20:56
 
 
-
-
 感觉比较奇怪的是安洁助跑的时候是往列车后方跑的，而且是和千世分开跑（还要把握好时机）
-
-
-
-
-
 
 
 -----
@@ -26134,23 +17596,16 @@ C球明显只能反重力不能提供加速度。
 ##### 2737#       发表于 2017-8-7 20:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36815125&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-8-7 20:40</a>
 
 共和国这边当然乐意这个计划。因为公主要上位就要狠狠的打击诺曼底公的势力，这符合共和国的利益。公主上 ...</blockquote>
 公主想上位，光靠control还是不够，估计会拉日本的进来。而且作为双面间谍的千世，应该也会做出选择。给control打工还是公主。目前来看貌似王国的诱惑力还是蛮大的
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2738#       发表于 2017-8-7 21:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36815272&amp;ptid=1486439" target="_blank">bird-lay 发表于 2017-8-7 20:56</a>
@@ -26170,16 +17625,10 @@ C球明显只能反重力不能提供加速度。
 在甩出去的时候能获得更大的动能
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 2739#       发表于 2017-8-7 21:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36815365&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-8-7 21:05</a>
@@ -26191,16 +17640,10 @@ C球明显只能反重力不能提供加速度。
 也是。。。考虑到之前一些片子里的神奇现象。。。
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2740#       发表于 2017-8-7 21:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36815296&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-7 20:59</a>
@@ -26212,16 +17655,10 @@ C球明显只能反重力不能提供加速度。
 当然值得注意的是大公可能自己想上位，也可能是暗中支持了第三顺位继承者。但无论如何只有利用好control这边的资源胜过大公，公主才能成功上位。
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2741#       发表于 2017-8-7 21:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36815272&amp;ptid=1486439" target="_blank">bird-lay 发表于 2017-8-7 20:56</a>
@@ -26232,16 +17669,10 @@ C球明显只能反重力不能提供加速度。
 至于和千世配合起飞的过程感觉2703楼说的挺有道理的……
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 2742#       发表于 2017-8-7 21:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36815479&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-8-7 21:16</a>
@@ -26250,32 +17681,19 @@ C球明显只能反重力不能提供加速度。
 仔细看了一下，所以这火车是调了个头吗。。。
 
 
-
-
-
-
-
 -----
 
 ####  skmdfong  
 ##### 2743#       发表于 2017-8-7 21:21
 
 
-
-
 这集炸裂啊，先怒吹一波大河内菊苣，至于下集...车到山前必有路<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  堆雪若叶  
 ##### 2744#       发表于 2017-8-7 21:22
-
 
 
  本帖最后由 堆雪若叶 于 2017-8-7 21:24 编辑 
@@ -26285,16 +17703,10 @@ C球明显只能反重力不能提供加速度。
 嗯，铁轨应该有一个拐弯处。安洁她们起跳的时候就是前列火车已经拐过去而脱节火车还没拐弯的时候，也有点抄近道的意思。
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 2745#       发表于 2017-8-7 21:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36815545&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-8-7 21:22</a>
@@ -26305,16 +17717,10 @@ C球明显只能反重力不能提供加速度。
 我光记得车站那个地图上画的直角弯了。。。
 
 
-
-
-
-
-
 -----
 
 ####  whn1103  
 ##### 2746#       发表于 2017-8-7 21:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36815259&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-7 20:55</a>
@@ -26323,17 +17729,10 @@ C球明显只能反重力不能提供加速度。
 感觉这片反正也不用做到建国，干翻公爵就差不多了
 
 
-
-
-
-
-
 -----
 
 ####  i0ncuBe  
 ##### 2747#       发表于 2017-8-7 21:37
-
-
 
 
 5集看完几个疑问
@@ -26348,32 +17747,19 @@ C球明显只能反重力不能提供加速度。
 3、停车后安洁穿的是间谍的拘束装，旁边一大堆卫兵这是嫌自己暴露的不够快吗？
 
 
-
-
-
-
-
-
 -----
 
 ####  a8610853  
 ##### 2748#       发表于 2017-8-7 21:45
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大河内日常自黑日本。消除疼痛的魔法这个小伏笔也很动人。
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 2749#       发表于 2017-8-7 21:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36815664&amp;ptid=1486439" target="_blank">i0ncuBe 发表于 2017-8-7 21:37</a>
@@ -26385,16 +17771,10 @@ C球明显只能反重力不能提供加速度。
 1、3点前面已经有过吐槽和一定的解释了，我就不说了。2点你可以先理一下case的顺序，就知道公爵不是什么都没做
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2750#       发表于 2017-8-7 22:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36815467&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-8-7 21:14</a>
@@ -26403,16 +17783,10 @@ C球明显只能反重力不能提供加速度。
 大公自己上位阻力比谁都大，除非女王不在了。我还是觉得他为了推某个王子上，他当摄政王
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2751#       发表于 2017-8-7 22:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36815610&amp;ptid=1486439" target="_blank">whn1103 发表于 2017-8-7 21:30</a>
@@ -26421,25 +17795,13 @@ C球明显只能反重力不能提供加速度。
 感觉公主也没什么足够的实力上位
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 2752#       发表于 2017-8-7 22:16
 
 
-
-
 下周应该可以期待一下，毕竟马上就过半了，不搞事情说不过去啊
-
-
-
-
-
 
 
 -----
@@ -26448,14 +17810,7 @@ C球明显只能反重力不能提供加速度。
 ##### 2753#       发表于 2017-8-7 22:18
 
 
-
-
 说起来，干掉公爵，然后转手把Control全员出卖给帝国，再联合11区势力上位的展开怎么样？
-
-
-
-
-
 
 
 -----
@@ -26464,15 +17819,9 @@ C球明显只能反重力不能提供加速度。
 ##### 2754#       发表于 2017-8-7 22:25
 
 
-
 <blockquote>sherlockchu 发表于 2017-8-7 22:18
 说起来，干掉公爵，然后转手把Control全员出卖给帝国，再联合11区势力上位的展开怎么样？ ...</blockquote>
 哪有找远方蛮夷来帮忙上位的
-
-
-
-
-
 
 
 -----
@@ -26481,24 +17830,16 @@ C球明显只能反重力不能提供加速度。
 ##### 2755#       发表于 2017-8-7 22:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36816016&amp;ptid=1486439" target="_blank">sherlockchu 发表于 2017-8-7 22:18</a>
 
 说起来，干掉公爵，然后转手把Control全员出卖给帝国，再联合11区势力上位的展开怎么样？ ...</blockquote>
 这个描述有种往冰箱里塞大象的感觉。。。
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2756#       发表于 2017-8-7 22:35
-
-
 
 
 公主现在走的就是邪道上位法
@@ -26528,27 +17869,15 @@ C球明显只能反重力不能提供加速度。
 公主的结局会很凄惨
 
 
-
-
-
-
-
 -----
 
 ####  newise  
 ##### 2757#       发表于 2017-8-7 22:37
 
 
-
-
 公主这边的操作探讨已经够多了，那共和国方面呢？
 
 最终目标肯定不是帮公主上位，而是想吞并王国的吧。公主上位算是过了第一关，然而王国和共和国是同级头衔，接下来该如何操作？把公主和安洁的私生子捧上大统领的位置再打宣称吗？
-
-
-
-
-
 
 
 -----
@@ -26557,23 +17886,16 @@ C球明显只能反重力不能提供加速度。
 ##### 2758#       发表于 2017-8-7 22:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36810857&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-8-7 13:04</a>
 
 有人找到的对比图,这难道是药丸?</blockquote>
 完了，大河内果然没吃药
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2759#       发表于 2017-8-7 22:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36816253&amp;ptid=1486439" target="_blank">newise 发表于 2017-8-7 22:37</a>
@@ -26584,33 +17906,19 @@ C球明显只能反重力不能提供加速度。
 女女怎么会有私生子，你这脑洞不好探讨啊
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2760#       发表于 2017-8-7 22:43
 
 
-
-
 共和国本来就是从王国分裂出来的，公主卖国的说法好像某种程度上说不清了。公主是想当和平大使还是独裁女王？
-
-
-
-
-
 
 
 -----
 
 ####  bird-lay  
 ##### 2761#       发表于 2017-8-7 22:46
-
-
 
 
 现在信息还是太少了
@@ -26620,25 +17928,13 @@ C球明显只能反重力不能提供加速度。
 就连最开始共和国用安洁换掉公主之后想干啥也不清楚。。。难道也就当成魔法钥匙用吗？
 
 
-
-
-
-
-
 -----
 
 ####  撒尿牛丸  
 ##### 2762#       发表于 2017-8-7 22:47
 
 
-
-
 光看case这就超过12了，这片也只准备做一季？
-
-
-
-
-
 
 
 -----
@@ -26647,14 +17943,7 @@ C球明显只能反重力不能提供加速度。
 ##### 2763#       发表于 2017-8-7 22:47
 
 
-
-
 按时吃药的大河内牛X呀。突然发现PRPR专楼的回帖量已经微微超过隔壁战姬了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26663,21 +17952,13 @@ C球明显只能反重力不能提供加速度。
 ##### 2764#       发表于 2017-8-7 22:48
 
 
-
-
 国家什么的这对狗女女明显没有放在眼里啊，谈何卖国<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  lmx20  
 ##### 2765#       发表于 2017-8-7 22:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36816253&amp;ptid=1486439" target="_blank">newise 发表于 2017-8-7 22:37</a>
@@ -26726,27 +18007,15 @@ C球明显只能反重力不能提供加速度。
 况且内斗到如此和平的，说共和国的掌权者也是皇室成员是很说得过去的
 
 
-
-
-
-
-
 -----
 
 ####  xc321155  
 ##### 2766#       发表于 2017-8-7 22:58
 
 
-
-
 两妹子大小的气球能踹出多远?
 
 第一集的高空降落明显是空气阻力造成的,而且看样子还不小,这次直接就忽略空气阻力了?
-
-
-
-
-
 
 
 -----
@@ -26755,16 +18024,10 @@ C球明显只能反重力不能提供加速度。
 ##### 2767#       发表于 2017-8-7 22:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36816359&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-8-7 22:47</a>
 
 按时吃药的大河内牛X呀。突然发现PRPR专楼的回帖量已经微微超过隔壁战姬了。 ...</blockquote>
 大河内：这还不是我的最终形态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26773,24 +18036,16 @@ C球明显只能反重力不能提供加速度。
 ##### 2768#       发表于 2017-8-7 22:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36816307&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-7 22:42</a>
 
 女女怎么会有私生子，你这脑洞不好探讨啊</blockquote>
 反重力科技都点出来了百合生子又有何难，再说不是有IPS细胞吗？
 
 
-
-
-
-
-
 -----
 
 ####  lmx20  
 ##### 2769#       发表于 2017-8-7 23:01
-
-
 
 
 如果按我们自己国家的历史来推算的话
@@ -26808,17 +18063,10 @@ C球明显只能反重力不能提供加速度。
 特别是共和国现在还处于相对弱势的时候
 
 
-
-
-
-
-
-
 -----
 
 ####  newise  
 ##### 2770#       发表于 2017-8-7 23:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36816432&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-8-7 22:53</a>
@@ -26833,26 +18081,15 @@ C球明显只能反重力不能提供加速度。
 问题还是这共和国dlc该怎么个玩法啦
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2771#       发表于 2017-8-7 23:04
 
 
-
 <blockquote>newise 发表于 2017-8-7 22:59
 反重力科技都点出来了百合生子又有何难，再说不是有IPS细胞吗？</blockquote>
 IPS细胞这一点也不蒸汽朋克…
-
-
-
-
-
 
 
 -----
@@ -26861,22 +18098,13 @@ IPS细胞这一点也不蒸汽朋克…
 ##### 2772#       发表于 2017-8-7 23:05
 
 
-
-
 按照小跟班的话，公主本来可以有可能找到依靠的势力的，比如公安部或者海军，但因为是公爵的存在。这些人都不敢和公主有什么瓜葛。公爵也知道公主不是单纯的花瓶，这集公主顺势和掘川公搭关系，承诺向女王引荐掘川公，这番话真是可以的。公主一点都不简单，都是笑眯眯
-
-
-
-
-
 
 
 -----
 
 ####  lmx20  
 ##### 2773#       发表于 2017-8-7 23:08
-
-
 
 
 一个猜测
@@ -26902,25 +18130,13 @@ IPS细胞这一点也不蒸汽朋克…
 只想爽爽爽
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 2774#       发表于 2017-8-7 23:08
 
 
-
-
 就现有剧情来看，公主干的事已经够上绞刑架或者断头台了
-
-
-
-
-
 
 
 -----
@@ -26929,14 +18145,7 @@ IPS细胞这一点也不蒸汽朋克…
 ##### 2775#       发表于 2017-8-7 23:09
 
 
-
-
 就觉得公主也就为了拆墙了，这样帮共和国把王国一顿整，就算宫斗成功上位了王国内部也只能更乱，结果还是给共和国做嫁衣，感觉最后会是两边一统君主立宪让公主当个女王吧。
-
-
-
-
-
 
 
 -----
@@ -26945,22 +18154,13 @@ IPS细胞这一点也不蒸汽朋克…
 ##### 2776#       发表于 2017-8-7 23:09
 
 
-
-
 第五话中间卧底士兵的那个走路姿势好眼熟，貌似跟天体的秩序片尾的作画是一个人？这人是不是就只会这一种走路姿势啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 2777#       发表于 2017-8-7 23:14
-
-
 
 
 掘川公的手下提示他不要过于透露自己的想法，恐怕一是不清楚公主的立场，这种事情还是少说为妙。二是可能也听说过公主是个花瓶，你跟她说那么多没用，还容易造成王国的反感也说不定。
@@ -26971,25 +18171,13 @@ IPS细胞这一点也不蒸汽朋克…
 明显公主表示和他们是站在一边的，公主这招绕过了公爵，都直接利用女王给自己刷好感，拉关系了
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2778#       发表于 2017-8-7 23:17
 
 
-
-
 看女王的样子，貌似对权力没有那么渴望了，倒是公爵在考虑这种事情
-
-
-
-
-
 
 
 -----
@@ -26998,14 +18186,7 @@ IPS细胞这一点也不蒸汽朋克…
 ##### 2779#       发表于 2017-8-7 23:19
 
 
-
-
 还有女王似乎对政事不怎么过问的感觉，另外她出场那集有人提到她是坐着轮椅的？似乎她的身体并不太好，公爵是想跟她耗下去吗？
-
-
-
-
-
 
 
 -----
@@ -27014,16 +18195,10 @@ IPS细胞这一点也不蒸汽朋克…
 ##### 2780#       发表于 2017-8-7 23:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36816705&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-7 23:19</a>
 
 还有女王似乎对政事不怎么过问的感觉，另外她出场那集有人提到她是坐着轮椅的？似乎她的身体并不太好，公爵 ...</blockquote>
 諾曼第公都滿頭白髮和皺紋了,再高一輩的女王(歷史上1819年生)年紀應該差不多7,80了,身體不好也很正常,而且不死的話怎樣讓公主當女王.<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27032,21 +18207,13 @@ IPS细胞这一点也不蒸汽朋克…
 ##### 2781#       发表于 2017-8-7 23:40
 
 
-
-
 突然想到一个问题，按照空中舰队这种叫法，应该算是海军吧？按照设定，那个舰队搞出来的时候应该还没有飞机？
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 2782#       发表于 2017-8-7 23:53
-
 
 
  本帖最后由 神之叹息 于 2017-8-7 23:56 编辑 
@@ -27081,25 +18248,13 @@ IPS细胞这一点也不蒸汽朋克…
 　　2．联邦：由若干成员组成的统一国家，如美利坚合众国等。有的国家称之为“联盟”，如科摩罗联盟。
 
 
-
-
-
-
-
 -----
 
 ####  银翼的维罗西  
 ##### 2783#       发表于 2017-8-7 23:54
 
 
-
-
 自从动物朋友后，萌豚片都向有剧情有内容发展了，算不算一大进步。
-
-
-
-
-
 
 
 -----
@@ -27108,16 +18263,10 @@ IPS细胞这一点也不蒸汽朋克…
 ##### 2784#       发表于 2017-8-7 23:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36816866&amp;ptid=1486439" target="_blank">bird-lay 发表于 2017-8-7 23:40</a>
 
 突然想到一个问题，按照空中舰队这种叫法，应该算是海军吧？按照设定，那个舰队搞出来的时候应该还没有飞机 ...</blockquote>
 不，你看小跟班说海军靠不住，感觉海军也弱势了。尤其都有反重力物质了，空中舰队一支独大了
-
-
-
-
-
 
 
 -----
@@ -27126,24 +18275,15 @@ IPS细胞这一点也不蒸汽朋克…
 ##### 2785#       发表于 2017-8-8 00:19
 
 
-
-
 有空中舰队，还开无畏舰什么的不是找死么
 
 现存的无畏舰估计都是以前剩下来的
-
-
-
-
-
 
 
 -----
 
 ####  killng  
 ##### 2786#       发表于 2017-8-8 00:59
-
-
 
 
 日本人以前这么好跪的吗
@@ -27157,34 +18297,20 @@ IPS细胞这一点也不蒸汽朋克…
 第六话就是中盘了，公主也该露出她的獠。。高跟鞋了
 
 
-
-
-
-
-
 -----
 
 ####  王留美  
 ##### 2787#       发表于 2017-8-8 01:04
 
 
-
-
 开场的铁达尼号让我惊呼了
 还有谁get到这个点了吗XSK
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 2788#       发表于 2017-8-8 06:22
-
-
 
 
 转自猴区
@@ -27195,16 +18321,10 @@ IPS细胞这一点也不蒸汽朋克…
 这动物表情应该也算一个细节了吧233
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2789#       发表于 2017-8-8 06:31
-
 
 
  本帖最后由 神之叹息 于 2017-8-8 06:35 编辑 
@@ -27222,17 +18342,10 @@ IPS细胞这一点也不蒸汽朋克…
 不过百度后好像有各种版本？。。
 
 
-
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2790#       发表于 2017-8-8 06:46
-
 
 
 <strong>扯点别的，虽然如浮云</strong>
@@ -27260,27 +18373,13 @@ IPS细胞这一点也不蒸汽朋克…
 <strong>这集的播放效应还是蛮强的，半夜三点都冲到了129，1~5话里最高的了，比第二集的254还高出一大截。这集的动作戏很加分，然后剧情也有亮点。千世的人气在这集开播前在11区已经是蜜汁的高，五个人里头最高的吧？而且</strong><strong>这话千世回又做得不错。</strong>
 
 
-
-
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2791#       发表于 2017-8-8 06:52
 
 
-
-
 另外感觉安洁和千世的电波应该是对得上的，黑蜥蜴星人
-
-
-
-
-
 
 
 -----
@@ -27289,15 +18388,9 @@ IPS细胞这一点也不蒸汽朋克…
 ##### 2792#       发表于 2017-8-8 07:01
 
 
-
 <img src="http://wx4.sinaimg.cn/mw690/9c30f723gy1fibxurx776j20xb0own22.jpg" referrerpolicy="no-referrer">
 
 官方推特置顶力推，一口气补着看应该很爽吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27306,23 +18399,15 @@ IPS细胞这一点也不蒸汽朋克…
 ##### 2793#       发表于 2017-8-8 08:15
 
 
-
-
 火车头动物表情有点魔性啊
 
 —— 来自 HUAWEI VIE-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.0-alpha
-
-
-
-
-
 
 
 -----
 
 ####  漫区专号  
 ##### 2794#       发表于 2017-8-8 08:39
-
 
 
  本帖最后由 漫区专号 于 2017-8-8 08:41 编辑 
@@ -27336,17 +18421,10 @@ IPS细胞这一点也不蒸汽朋克…
 狮子：<img src="https://static.saraba1st.com/image/smiley/face2017/191.png" referrerpolicy="no-referrer"> 
 
 
-
-
-
-
-
 -----
 
 ####  whn1103  
 ##### 2795#       发表于 2017-8-8 08:51
-
-
 
 
 什么卖国不卖国的，你套到东西德不就想明白了么。
@@ -27355,25 +18433,13 @@ IPS细胞这一点也不蒸汽朋克…
 话又说回来，百合才是正义，所谓国家又算的了什么呢？这片要看的当然是愚蠢的帝国被凤傲天公主玩弄于股掌然后被公主一句“你们才是叛徒”怼回去，纠结帝国权益的怕不是被集体主义洗脑太深了。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2796#       发表于 2017-8-8 08:56
 
 
-
-
 下集是20岁的单元回，估计还会穿插一下抚养院的事情。
-
-
-
-
-
 
 
 -----
@@ -27382,14 +18448,7 @@ IPS细胞这一点也不蒸汽朋克…
 ##### 2797#       发表于 2017-8-8 08:56
 
 
-
-
 诺曼底公那句话不知道日文如何，看到的翻译说的是公主好歹是第四位继承人，有可能被推上位，所以要让公主卷入暗杀的纠纷..............这是诺曼底公要把公主推上位？
-
-
-
-
-
 
 
 -----
@@ -27398,16 +18457,10 @@ IPS细胞这一点也不蒸汽朋克…
 ##### 2798#       发表于 2017-8-8 08:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36818676&amp;ptid=1486439" target="_blank">liangxuanchi 发表于 2017-8-8 08:56</a>
 
 诺曼底公那句话不知道日文如何，看到的翻译说的是公主好歹是第四位继承人，有可能被推上位，所以要让公主卷 ...</blockquote>
 想多了，希望混乱中公主被搞死
-
-
-
-
-
 
 
 -----
@@ -27416,16 +18469,10 @@ IPS细胞这一点也不蒸汽朋克…
 ##### 2799#       发表于 2017-8-8 09:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36818693&amp;ptid=1486439" target="_blank">whn1103 发表于 2017-8-8 08:58</a>
 
 想多了，希望混乱中公主被搞死</blockquote>
 日文原文是希望公主死于暗杀中？
-
-
-
-
-
 
 
 -----
@@ -27434,14 +18481,7 @@ IPS细胞这一点也不蒸汽朋克…
 ##### 2800#       发表于 2017-8-8 09:27
 
 
-
-
 真好看<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">这种一个一个case跳着来的顺序还是挺有意思的
-
-
-
-
-
 
 
 -----
@@ -27450,24 +18490,16 @@ IPS细胞这一点也不蒸汽朋克…
 ##### 2801#       发表于 2017-8-8 09:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36818768&amp;ptid=1486439" target="_blank">liangxuanchi 发表于 2017-8-8 09:05</a>
 
 日文原文是希望公主死于暗杀中？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原文应该就是翻译成卷入吧，但是这个上下文来理解怎么都是希望公主死啊
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2802#       发表于 2017-8-8 09:34
-
-
 
 
 虽然看上去动画是1900前后的样子幻想中的大英帝国，但动画的背景明显主要参考了美苏冷战，两超级强权的对峙，暗中开展谍战。
@@ -27477,16 +18509,10 @@ IPS细胞这一点也不蒸汽朋克…
 可见公主的行为当然是叛国，但如果她当上了女王那么她的背叛根本没法被清算。要清算那就是帝国土崩瓦解。更何况现在看公主叛国有一个更高大的动机那就拆掉象征着冷战的墙，结束冷战。那么一个结束（或说努力结束）冷战的间谍当然是超越了民族主义意识形态的英雄形象。
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2803#       发表于 2017-8-8 09:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36819066&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-8-8 09:34</a>
@@ -27495,25 +18521,13 @@ IPS细胞这一点也不蒸汽朋克…
 更高大的动机吗?    "权利的正当化不在于获得它的过程而在于如何去使用它"---干冰之剑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2804#       发表于 2017-8-8 09:47
 
 
-
-
 公主要是当上女王拆了伦敦墙，她的所作所为就会洗白了？
-
-
-
-
-
 
 
 -----
@@ -27522,22 +18536,15 @@ IPS细胞这一点也不蒸汽朋克…
 ##### 2805#       发表于 2017-8-8 09:48
 
 
-
 <blockquote>漫区专号 发表于 2017-8-8 09:34
 虽然看上去动画是1900前后的样子幻想中的大英帝国，但动画的背景明显主要参考了美苏冷战，两超级强权的对峙 ...</blockquote>
 共和国在当时算是兴起的政体吗？历史不及格的问
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 2806#       发表于 2017-8-8 09:51
-
 
 
 <blockquote>神之叹息 发表于 2017-8-8 09:47
@@ -27548,26 +18555,15 @@ IPS细胞这一点也不蒸汽朋克…
 剧中王国民众到最后都不一定能知道公主干了什么，高层不认同公主理念的也八成会被抹杀。权利在握根本不需要被洗白啊
 
 
-
-
-
-
-
 -----
 
 ####  万千百十  
 ##### 2807#       发表于 2017-8-8 09:55
 
 
-
  本帖最后由 万千百十 于 2017-8-8 10:17 编辑 
 
 武士刀噼里啪啦砍子*弹这幕真是意料之中，公主把安洁吃得这么死死的，背刺真是毫无压力。定位是007，背景类似把东西德搬到一战前，一心钻进革命与叛徒这种话题里怕是太闲了。
-
-
-
-
-
 
 
 -----
@@ -27576,15 +18572,9 @@ IPS细胞这一点也不蒸汽朋克…
 ##### 2808#       发表于 2017-8-8 10:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36819235&amp;amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-8 09:48</a>
 共和国在当时算是兴起的政体吗？历史不及格的问</blockquote>
 我前面不是分析过么共和国是本土革命成功后的日不落帝国，占据英国本土。而帝国是保留有欧洲领土的保皇势力。所以其实共和国比帝国更正统。帝国就像是英国皇室逃难到了美国成立的君主立宪的美国，他才是新兴国家。所以帝国的技术实力现在弱很正常，因为原来的“大英帝国”肯定是把技术实力都放在本土的。对应的帝国具有资源丰富优势。
-
-
-
-
-
 
 
 -----
@@ -27593,16 +18583,10 @@ IPS细胞这一点也不蒸汽朋克…
 ##### 2809#       发表于 2017-8-8 10:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36819210&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-8 09:47</a>
 
 公主要是当上女王拆了伦敦墙，她的所作所为就会洗白了？</blockquote>
 问题是帝国是黑的呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27611,16 +18595,9 @@ IPS细胞这一点也不蒸汽朋克…
 ##### 2810#       发表于 2017-8-8 10:13
 
 
-
-
 洗白啥，没看大家都想看公主背刺全员么……这算不算洗白？
 
 或者最后东窗事发了上断头台，上演一出李代桃僵——安洁和比安特合起来刚好能代替公主，她们应该也很乐意的
-
-
-
-
-
 
 
 -----
@@ -27629,22 +18606,15 @@ IPS细胞这一点也不蒸汽朋克…
 ##### 2811#       发表于 2017-8-8 10:13
 
 
-
 <blockquote>漫区专号 发表于 2017-8-8 10:05
 我前面不是分析过么共和国是本土革命成功后的日不落帝国，占据英国本土。而帝国是保留有欧洲领土的保皇势 ...</blockquote>
 我记得王国的骂共和国的是窃国贼。。然后我意思是，印象里共和制好像比君主立宪制要晚吧，所以共和国是新兴的。不过说共和国是正统的，应该是往回看的吧？剧中还是王国最正统？
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 2812#       发表于 2017-8-8 10:14
-
 
 
 <blockquote>xtwx1716 发表于 2017-8-8 09:51
@@ -27655,16 +18625,10 @@ IPS细胞这一点也不蒸汽朋克…
 因为在讨论公主的算不算是叛国，所以有这个想法
 
 
-
-
-
-
-
 -----
 
 ####  whn1103  
 ##### 2813#       发表于 2017-8-8 10:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36819517&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-8 10:14</a>
@@ -27673,16 +18637,10 @@ IPS细胞这一点也不蒸汽朋克…
 一句话来说的话……这叫投诚
 
 
-
-
-
-
-
 -----
 
 ####  万千百十  
 ##### 2814#       发表于 2017-8-8 10:20
-
 
 
  本帖最后由 万千百十 于 2017-8-8 10:22 编辑 
@@ -27692,16 +18650,10 @@ IPS细胞这一点也不蒸汽朋克…
 王国又不是亡国了，说共和国更正统你当笑话看就行了，怕是“革命”思想作祟。抄的现实东西德设定，“正统”概念本身对“革命”来说就是笑话
 
 
-
-
-
-
-
 -----
 
 ####  saturnus  
 ##### 2815#       发表于 2017-8-8 10:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36819066&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-8-8 09:34</a>
@@ -27713,32 +18665,19 @@ IPS细胞这一点也不蒸汽朋克…
 考虑到10年前的约定肯定可以解释很大一部分原因，但是估计这个伏笔得等到最后几话才能解开，所以目前来看公主的行为确实很黑。。
 
 
-
-
-
-
-
 -----
 
 ####  smcheny  
 ##### 2816#       发表于 2017-8-8 10:31
 
 
-
-
 喷了，这集打戏你们真觉得好看？从分镜到作画都有抄袭无皇刃谭的嫌疑，还抄的不好看，感觉打戏就是拖后腿的
-
-
-
-
-
 
 
 -----
 
 ####  漫区专号  
 ##### 2817#       发表于 2017-8-8 10:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36819507&amp;amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-8 10:13</a>
@@ -27748,16 +18687,10 @@ IPS细胞这一点也不蒸汽朋克…
 现在双方斗争很激烈，但大的战争打不起来。因为战争的成本太高。一旦双方的主力浮空舰队来个大决战拼完消耗掉。那么很可能双方都沦为二流国家。
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2818#       发表于 2017-8-8 10:50
-
 
 
  本帖最后由 漫区专号 于 2017-8-8 10:55 编辑 
@@ -27771,16 +18704,10 @@ IPS细胞这一点也不蒸汽朋克…
 可见帝国与共和国明显指代的是美苏这样的强权大国。把帝国与共和国视为参考东西德国并不恰当。
 
 
-
-
-
-
-
 -----
 
 ####  qqwliao  
 ##### 2819#       发表于 2017-8-8 11:00
-
 
 
 <blockquote>漫区专号 发表于 2017-8-8 10:50
@@ -27788,16 +18715,10 @@ IPS细胞这一点也不蒸汽朋克…
 美苏就不对了，这里是内战造成的结果，可以说像朝韩那种休战的情况，把美军的部分换成海外殖民地保皇党援军。
 
 
-
-
-
-
-
 -----
 
 ####  aeolus039  
 ##### 2820#       发表于 2017-8-8 11:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36819502&amp;ptid=1486439" target="_blank">ahyyk 发表于 2017-8-8 10:13</a>
@@ -27811,16 +18732,10 @@ IPS细胞这一点也不蒸汽朋克…
 不过讲道理更看好东窗事发安洁为掩护公主被捕，临刑前公主来到牢房把安洁替换出去
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 2821#       发表于 2017-8-8 11:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36820085&amp;ptid=1486439" target="_blank">aeolus039 发表于 2017-8-8 11:06</a>
@@ -27834,32 +18749,19 @@ IPS细胞这一点也不蒸汽朋克…
 牛头人比安特：公主我会照顾的，你就放心的去吧……双城记？
 
 
-
-
-
-
-
 -----
 
 ####  万千百十  
 ##### 2822#       发表于 2017-8-8 11:12
 
 
-
-
 搞得伦敦不是本土似的，况且具体格局也是这楼里YY居多，别搞得太信誓旦旦。
-
-
-
-
-
 
 
 -----
 
 ####  漫区专号  
 ##### 2823#       发表于 2017-8-8 11:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36820018&amp;amp;ptid=1486439" target="_blank">qqwliao 发表于 2017-8-8 11:00</a>
@@ -27871,21 +18773,13 @@ IPS细胞这一点也不蒸汽朋克…
 朝鲜半岛的对峙在大国眼中只是局部战争。现代历史上出现过的两个超级强权的全面对抗就是冷战。
 
 
-
 所以只能参考冷战，两超级强权的全面战争并未出现过，现在人们把这个功劳给了原**的发明。
-
-
-
-
-
 
 
 -----
 
 ####  lmx20  
 ##### 2824#       发表于 2017-8-8 11:14
-
-
 
 
 共和国怎么可能是正统。。。
@@ -27903,16 +18797,10 @@ IPS细胞这一点也不蒸汽朋克…
 现在米国是不是正统印第安人后裔？
 
 
-
-
-
-
-
 -----
 
 ####  万千百十  
 ##### 2825#       发表于 2017-8-8 11:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36820018&amp;ptid=1486439" target="_blank">qqwliao 发表于 2017-8-8 11:00</a>
@@ -27921,16 +18809,10 @@ IPS细胞这一点也不蒸汽朋克…
 内战分裂导致的两强对峙，强行套朝韩和美苏都不恰当，影视作品取自己需要的部分完成自己的背景罢了，取之于下超乎其上，这楼里这么强行都是闲的。
 
 
-
-
-
-
-
 -----
 
 ####  aeolus039  
 ##### 2826#       发表于 2017-8-8 11:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36820127&amp;ptid=1486439" target="_blank">ahyyk 发表于 2017-8-8 11:10</a>
@@ -27944,32 +18826,19 @@ IPS细胞这一点也不蒸汽朋克…
 万一那个“我要成为女王”是指“夏洛特要成为女王呢”<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  废基  
 ##### 2827#       发表于 2017-8-8 11:18
 
 
-
-
 我觉得是，美帝南北战争的冷战版
-
-
-
-
-
 
 
 -----
 
 ####  漫区专号  
 ##### 2828#       发表于 2017-8-8 11:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=36820202&amp;amp;ptid=1486439" target="_blank">万千百十 发表于 2017-8-8 11:16</a>
@@ -27979,16 +18848,10 @@ IPS细胞这一点也不蒸汽朋克…
 动画里正统的“苏联”还在北方呢。
 
 
-
-
-
-
-
 -----
 
 ####  万千百十  
 ##### 2829#       发表于 2017-8-8 11:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36820244&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-8-8 11:20</a>
@@ -28000,16 +18863,10 @@ IPS细胞这一点也不蒸汽朋克…
 从现实历史提取的属性结合，出发点可能只是staff觉得酷炫方便故事展开，冷战之势东西德分裂乃至于朝韩分裂美国内战的属性你都可以找到，排他性是不成立的。背景是为故事服务的，别走太远。说到底，基础定位是“007”。
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2830#       发表于 2017-8-8 11:41
-
 
 
  本帖最后由 漫区专号 于 2017-8-8 11:44 编辑 
@@ -28020,16 +18877,10 @@ IPS细胞这一点也不蒸汽朋克…
 排他性当然有。动画里设定的这个反重力系统以及在武器上的应用可以类比核技术。掌握核武器技术是超级强权成为超级强权的基础条件，同理，通过建立浮空舰队建立霸权是帝国及共和国双方。打一场核战争是超级强权不能承受的，同理帝国和共和国也打不起来。所以全方位对抗的冷战便孕育而生。可见只有在这样一个大的冷战背景之下各种谍战才称为了传奇。偷窃军事计划，绑架武器研究工程师，策反人员，反间谍，暗杀等等丰富精彩的故事成为了可能。
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 2831#       发表于 2017-8-8 11:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36820211&amp;ptid=1486439" target="_blank">aeolus039 发表于 2017-8-8 11:17</a>
@@ -28045,17 +18896,10 @@ IPS细胞这一点也不蒸汽朋克…
 最后带比安特去把卡萨布兰卡的房产占了，但半路被靠色诱越狱的多萝西捅翻。
 
 
-
-
-
-
-
-
 -----
 
 ####  liangxuanchi  
 ##### 2832#       发表于 2017-8-8 11:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36819028&amp;ptid=1486439" target="_blank">whn1103 发表于 2017-8-8 09:30</a>
@@ -28079,16 +18923,10 @@ IPS细胞这一点也不蒸汽朋克…
        如果换个方向理解：公主虽然空气上位困难，但是只要有这个第四顺位的身份就有可能被捧上位，所以我准备做这个有心人，所以要把公主卷入这场暗杀纠纷为公主制造上位的契机。这个方向虽然也很荒谬，但是对比要杀公主这个方向，我觉得也就是50步和100步的关系，谁也别说谁了。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2833#       发表于 2017-8-8 12:01
-
 
 
 <blockquote>ahyyk 发表于 2017-8-8 11:47
@@ -28100,16 +18938,10 @@ IPS细胞这一点也不蒸汽朋克…
 千世又把多萝西捅翻，当上了史上的第一位日本女王！
 
 
-
-
-
-
-
 -----
 
 ####  aeolus039  
 ##### 2834#       发表于 2017-8-8 12:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36820665&amp;ptid=1486439" target="_blank">liangxuanchi 发表于 2017-8-8 11:55</a>
@@ -28127,32 +18959,19 @@ IPS细胞这一点也不蒸汽朋克…
 第五集已经是CASE7了，鬼知道公主在这几个CASE给诺曼底公整了多少麻烦
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2835#       发表于 2017-8-8 12:10
 
 
-
-
 十兵卫的目标是掘川公，但公爵不会说他的目标是公主。只是利用十兵卫顺手干掉公主。个人感觉此时的公主虽然被公爵盯上了，但没到深仇大恨的时候，也不是优先处理的目标。但从第一集的case13开始就是公爵正式行动的时候了，公主应该摆脱了外嫁的危险，至少完成学业之前不会再讨论这个话题吧…
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 2836#       发表于 2017-8-8 12:13
-
 
 
 <blockquote>aeolus039 发表于 2017-8-8 12:06
@@ -28164,27 +18983,15 @@ IPS细胞这一点也不蒸汽朋克…
 公主对公爵的威胁是一步步加深的，不然也不会想除掉她。公主想上位，公爵是绕不过去的一道坎。
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2837#       发表于 2017-8-8 12:15
 
 
-
-
 说是有共和国，但是也未必知道共和国内是否将共和制推行到完善的地步，两边难分孰优孰劣。英吉利共和国成立了还不是被克伦威尔搞成独裁，最后王朝复辟还是靠光荣革命最后君主立宪。
 
 说起来光荣革命也是王室公主和外系女婿干的，按英国历史走这里是不是要公主和安洁也来一次<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28193,14 +19000,7 @@ IPS细胞这一点也不蒸汽朋克…
 ##### 2838#       发表于 2017-8-8 12:17
 
 
-
-
 这集公主和贵宾受到刺客攻击，公爵作为间谍机关的头要不要负点责任？
-
-
-
-
-
 
 
 -----
@@ -28209,14 +19009,7 @@ IPS细胞这一点也不蒸汽朋克…
 ##### 2839#       发表于 2017-8-8 12:19
 
 
-
-
 忘了公爵还是管理公安部的，这安保做得也太差了…
-
-
-
-
-
 
 
 -----
@@ -28225,16 +19018,10 @@ IPS细胞这一点也不蒸汽朋克…
 ##### 2840#       发表于 2017-8-8 12:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36820909&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-8 12:19</a>
 
 忘了公爵还是管理公安部的，这安保做得也太差了…</blockquote>
 难道不是因为公爵管理公安部才能给十兵卫制造侵入的机会？
-
-
-
-
-
 
 
 -----
@@ -28243,15 +19030,9 @@ IPS细胞这一点也不蒸汽朋克…
 ##### 2841#       发表于 2017-8-8 12:27
 
 
-
 <blockquote>堆雪若叶 发表于 2017-8-8 12:22
 难道不是因为公爵管理公安部才能给十兵卫制造侵入的机会？</blockquote>
 所以说公爵不好甩锅，有刺客入侵的情报你没有，然后炸车的那个他只能说是对面的人，但任务失败了，怎么混进去的？感觉公爵这把算盘打得烂了点
-
-
-
-
-
 
 
 -----
@@ -28260,16 +19041,10 @@ IPS细胞这一点也不蒸汽朋克…
 ##### 2842#       发表于 2017-8-8 12:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36820982&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-8 12:27</a>
 
 所以说公爵不好甩锅，有刺客入侵的情报你没有，然后炸车的那个他只能说是对面的人，但任务失败了，怎么混 ...</blockquote>
 公爵不好甩锅吗，本来王国就不很看重这次会面才让公主去接见日本来使的，虽然公安部由公爵管但是这种程度的安保未必要他亲自部署，那这样他事后就说安保确实有疏忽再从找手下几个替罪羊来接锅就行了。只是他没想到王国方不看重的公主却是共和国这边重视的棋子，身边有一群本领超群的人保护，结果是目的没达成还得收拾烂摊子。
-
-
-
-
-
 
 
 -----
@@ -28278,23 +19053,15 @@ IPS细胞这一点也不蒸汽朋克…
 ##### 2843#       发表于 2017-8-8 12:47
 
 
-
-
 除开第一集，二到五集是case1、case2、case9、case7
 
 如果改成1279会有哪里不妥吗
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 2844#       发表于 2017-8-8 12:57
-
 
 
 <blockquote>killng 发表于 2017-8-8 12:47
@@ -28306,25 +19073,13 @@ case9把千世的背景抖出来一点，case7再解答
 “先读问题再读文章”
 
 
-
-
-
-
-
 -----
 
 ####  posion  
 ##### 2845#       发表于 2017-8-8 14:40
 
 
-
-
 不管播放顺序如何，最后肯定会按时间线再看一遍<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28333,15 +19088,9 @@ case9把千世的背景抖出来一点，case7再解答
 ##### 2846#       发表于 2017-8-8 14:49
 
 
-
  本帖最后由 qqwliao 于 2017-8-8 14:54 编辑 
 
 你们都按现代继承法判断，万一大河内参考了旧法呢？太子家除了安洁全死了，按旧法二皇子，二皇子的儿子，三皇子(诺曼底公)这是前三顺位。然后太子一家是被诺曼底公阴谋干掉了，现在准备永绝后患呢？
-
-
-
-
-
 
 
 -----
@@ -28350,16 +19099,10 @@ case9把千世的背景抖出来一点，case7再解答
 ##### 2847#       发表于 2017-8-8 15:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36822225&amp;ptid=1486439" target="_blank">qqwliao 发表于 2017-8-8 14:49</a>
 
 你们都按现代继承法判断，万一大河内参考了旧法呢？太子家除了安洁全死了，按旧法二皇子，二皇子的儿子，三 ...</blockquote>
 考虑到皇太子、阿基坦公爵（女王二儿子），诺曼底公爵（女王三儿子）这几个角色都确实出现了，起码老大家还有一个儿子存在，这样一排列除非阿基坦公爵无嗣不然这个第四还是算不出来的。
-
-
-
-
-
 
 
 -----
@@ -28368,23 +19111,16 @@ case9把千世的背景抖出来一点，case7再解答
 ##### 2848#       发表于 2017-8-8 15:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36822225&amp;ptid=1486439" target="_blank">qqwliao 发表于 2017-8-8 14:49</a>
 
 你们都按现代继承法判断，万一大河内参考了旧法呢？太子家除了安洁全死了，按旧法二皇子，二皇子的儿子，三 ...</blockquote>
 但是按全家福，老二没儿子只有一个女儿啊
 
 
-
-
-
-
-
 -----
 
 ####  RevModusTollens  
 ##### 2849#       发表于 2017-8-8 15:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36815664&amp;ptid=1486439" target="_blank">i0ncuBe 发表于 2017-8-7 21:37</a>
@@ -28411,16 +19147,10 @@ case9把千世的背景抖出来一点，case7再解答
 但是1真的很奇怪. 炸完后, 只有多萝西一个人在那里, 车厢里的座位全空了. 帝国士兵都不晓得到哪里了. 按理说应该都到缺口的地方, 看情况和照顾美女啊! 不过这样安洁和千岁的行动就没有帝国方面的目击者了.
 
 
-
-
-
-
-
 -----
 
 ####  posion  
 ##### 2850#       发表于 2017-8-8 15:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36822635&amp;ptid=1486439" target="_blank">RevModusTollens 发表于 2017-8-8 15:31</a>
@@ -28432,27 +19162,15 @@ case9把千世的背景抖出来一点，case7再解答
 其实那一车帝国兵都是诺曼底公的替身使者！
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 2851#       发表于 2017-8-8 16:09
 
 
-
-
 其实一车的士兵都被扔下了，剩下的被千岁老爸砍得差不多了
 
 让两车相撞也没太大事吧
-
-
-
-
-
 
 
 -----
@@ -28461,14 +19179,7 @@ case9把千世的背景抖出来一点，case7再解答
 ##### 2852#       发表于 2017-8-8 16:24
 
 
-
-
 两边车上当时还剩公主，堀河，千世，安洁，泰迪一共五个活人，一个一个全部带下去估计C球撑不住吧，时间也不一定来得及
-
-
-
-
-
 
 
 -----
@@ -28477,15 +19188,9 @@ case9把千世的背景抖出来一点，case7再解答
 ##### 2853#       发表于 2017-8-8 16:53
 
 
-
 <blockquote>梦诗歌雪 发表于 2017-8-8 16:24
 两边车上当时还剩公主，堀河，千世，安洁，泰迪一共五个活人，一个一个全部带下去估计C球撑不住吧，时间也 ...</blockquote>
 第四集上船的时候安洁就拿着c球把整个小队一起带下去了。这次主要是千世和十兵卫还在打，想带所有人直接跳车肯定不会很顺利，不如先把车停下再做打算。
-
-
-
-
-
 
 
 -----
@@ -28494,14 +19199,7 @@ case9把千世的背景抖出来一点，case7再解答
 ##### 2854#       发表于 2017-8-8 18:08
 
 
-
-
 20岁jk现在除了色诱，就是吃瘪，逊炮担当
-
-
-
-
-
 
 
 -----
@@ -28510,16 +19208,9 @@ case9把千世的背景抖出来一点，case7再解答
 ##### 2855#       发表于 2017-8-8 19:55
 
 
-
-
 从第一集多萝西的对话来看，后面应该还会做一集case9到13之间的学园回，展现一下帝国的贵族生态和提高白鸽队团结度。不过如果这个是插在后面队伍人际关系开始破裂之后的话，就很恶意了
 
 [  -- 来自能订阅的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
-
-
-
-
-
 
 
 -----
@@ -28528,23 +19219,16 @@ case9把千世的背景抖出来一点，case7再解答
 ##### 2856#       发表于 2017-8-8 20:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36819436&amp;ptid=1486439" target="_blank">whn1103 发表于 2017-8-8 10:05</a>
 
 问题是帝国是黑的呀</blockquote>
 ZZ有不黑的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2857#       发表于 2017-8-8 20:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36819263&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-8-8 09:51</a>
@@ -28556,16 +19240,10 @@ ZZ有不黑的吗？<img src="https://static.saraba1st.com/image/smiley/face2017
 作为观众，也有观众的感受嘛。。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2858#       发表于 2017-8-8 20:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36821142&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-8-8 12:43</a>
@@ -28574,30 +19252,17 @@ ZZ有不黑的吗？<img src="https://static.saraba1st.com/image/smiley/face2017
 原本的替换计划要是成功的话，以公主的空气般的存在，是最不容易引起怀疑的，但又可以接近王室核心
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2859#       发表于 2017-8-8 20:27
 
 
-
-
 官方持续不要脸
-
-
-
-
 
 
 img-6a47a0b2434a892d55b2c4a64f1fc142.jpg
 (104.39 KB, 下载次数: 14)
-
-
 
 
 下载附件
@@ -28606,24 +19271,7 @@ img-6a47a0b2434a892d55b2c4a64f1fc142.jpg
 2017-8-8 20:26 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201708/08/202644i8tnbi0r9pbgstrt.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -28632,16 +19280,10 @@ img-6a47a0b2434a892d55b2c4a64f1fc142.jpg
 ##### 2860#       发表于 2017-8-8 20:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36825309&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-8-8 20:27</a>
 
 官方持续不要脸</blockquote>
 本质百合番，卖百合怎么就不要脸了？<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28650,15 +19292,8 @@ img-6a47a0b2434a892d55b2c4a64f1fc142.jpg
 ##### 2861#         楼主| 发表于 2017-8-8 20:30
 
 
-
-
 电脑死机十分钟了 …终于响应了
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ficl9nmxrij22h135t1ky.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28667,15 +19302,9 @@ img-6a47a0b2434a892d55b2c4a64f1fc142.jpg
 ##### 2862#       发表于 2017-8-8 20:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36825309&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-8-8 20:27</a>
 官方持续不要脸</blockquote>
 稳的要死
-
-
-
-
-
 
 
 -----
@@ -28684,14 +19313,7 @@ img-6a47a0b2434a892d55b2c4a64f1fc142.jpg
 ##### 2863#       发表于 2017-8-8 20:34
 
 
-
-
 不要脸真好<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28700,14 +19322,7 @@ img-6a47a0b2434a892d55b2c4a64f1fc142.jpg
 ##### 2864#       发表于 2017-8-8 20:46
 
 
-
-
 公主这媚人的小妖精
-
-
-
-
-
 
 
 -----
@@ -28716,20 +19331,13 @@ img-6a47a0b2434a892d55b2c4a64f1fc142.jpg
 ##### 2865#       发表于 2017-8-8 20:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36825341&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-8-8 20:30</a>
 电脑死机十分钟了 …终于响应了</blockquote>
 转微博
 #Princess Principal# 配字厉害…“安洁:和同伴在一起面无表情，和公主单独相处的时候表情丰富 ”“这其中安洁和公主背地里的关系尤为亲密，一向冷酷的安洁难得露出恍惚的表情，而公主则一脸愉悦地注视着她，气氛非常温馨” “这种甜蜜而又打得火热的样子，才是两人真正的关系吧”这是八卦杂志吧！ ​​​
 
 
-
 已经“上床”了，四舍五入一下就是结婚啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28738,14 +19346,7 @@ img-6a47a0b2434a892d55b2c4a64f1fc142.jpg
 ##### 2866#       发表于 2017-8-8 21:14
 
 
-
-
 怎么这图的C球那么小？我突然有个大胆的想法。。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28754,21 +19355,13 @@ img-6a47a0b2434a892d55b2c4a64f1fc142.jpg
 ##### 2867#       发表于 2017-8-8 21:15
 
 
-
-
 另外可以用C球做一些高难度的动作吗？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你们觉得呢？
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 2868#       发表于 2017-8-8 21:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36825564&amp;ptid=1486439" target="_blank">colohot 发表于 2017-8-8 20:58</a>
@@ -28779,27 +19372,15 @@ img-6a47a0b2434a892d55b2c4a64f1fc142.jpg
 官方逼死本子系列<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  skmdfong  
 ##### 2869#       发表于 2017-8-8 21:26
 
 
-
-
 旁边的标题配的还是：两个人的恋爱冒险❤<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 官方爸爸的发糖就是爽到啊，请务必每周一发
-
-
-
-
-
 
 
 -----
@@ -28808,21 +19389,13 @@ img-6a47a0b2434a892d55b2c4a64f1fc142.jpg
 ##### 2870#       发表于 2017-8-8 21:34
 
 
-
-
 请官方更不要脸一点<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  堆雪若叶  
 ##### 2871#       发表于 2017-8-8 21:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36825795&amp;ptid=1486439" target="_blank">skmdfong 发表于 2017-8-8 21:26</a>
@@ -28833,16 +19406,10 @@ img-6a47a0b2434a892d55b2c4a64f1fc142.jpg
 我永远相信大大大大大河内.jpg
 
 
-
-
-
-
-
 -----
 
 ####  bamboom  
 ##### 2872#       发表于 2017-8-8 21:42
-
 
 
  本帖最后由 bamboom 于 2017-8-8 21:45 编辑 
@@ -28852,16 +19419,10 @@ img-6a47a0b2434a892d55b2c4a64f1fc142.jpg
 有人去玩一下prpr手游吗，出了很多新角色好像还有中国人，应该有很多有趣的剧情。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2873#       发表于 2017-8-8 21:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36825930&amp;ptid=1486439" target="_blank">bamboom 发表于 2017-8-8 21:42</a>
@@ -28872,32 +19433,19 @@ img-6a47a0b2434a892d55b2c4a64f1fc142.jpg
 感觉还不错哦，比之前宣传的好像有料多了。。
 
 
-
-
-
-
-
 -----
 
 ####  newise  
 ##### 2874#       发表于 2017-8-8 21:58
 
 
-
-
 日本人也有玩擦枪走火梗的吗？
-
-
-
-
-
 
 
 -----
 
 ####  hosilly  
 ##### 2875#       发表于 2017-8-8 22:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36825930&amp;ptid=1486439" target="_blank">bamboom 发表于 2017-8-8 21:42</a>
@@ -28910,16 +19458,10 @@ img-6a47a0b2434a892d55b2c4a64f1fc142.jpg
 不知道现在事情登陆多少人了？
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2876#       发表于 2017-8-8 22:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36826144&amp;ptid=1486439" target="_blank">hosilly 发表于 2017-8-8 22:06</a>
@@ -28930,25 +19472,13 @@ img-6a47a0b2434a892d55b2c4a64f1fc142.jpg
 不到5万<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">动画再不行就搞笑了。。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2877#       发表于 2017-8-8 22:15
 
 
-
-
 请官方再不要脸一点！
-
-
-
-
-
 
 
 -----
@@ -28957,14 +19487,7 @@ img-6a47a0b2434a892d55b2c4a64f1fc142.jpg
 ##### 2878#       发表于 2017-8-8 22:25
 
 
-
-
 看战吧大佬翻译的完整杂志图，接下来的走向可能不妙，现在预告，杂志和访谈都在暗示第六话会是一个转折点，这糖且吃且珍惜吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28973,16 +19496,10 @@ img-6a47a0b2434a892d55b2c4a64f1fc142.jpg
 ##### 2879#       发表于 2017-8-8 22:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36826331&amp;ptid=1486439" target="_blank">skmdfong 发表于 2017-8-8 22:25</a>
 
 看战吧大佬翻译的完整杂志图，接下来的走向可能不妙，现在预告，杂志和访谈都在暗示第六话会是一个转折点， ...</blockquote>
 而且据说第七话开始，由Actas来主导制作，所以后半段。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看橘正纪能不能把握好吧~
-
-
-
-
-
 
 
 -----
@@ -28991,23 +19508,16 @@ img-6a47a0b2434a892d55b2c4a64f1fc142.jpg
 ##### 2880#       发表于 2017-8-8 22:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36826331&amp;ptid=1486439" target="_blank">skmdfong 发表于 2017-8-8 22:25</a>
 
 看战吧大佬翻译的完整杂志图，接下来的走向可能不妙，现在预告，杂志和访谈都在暗示第六话会是一个转折点， ...</blockquote>
 求链接
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2881#       发表于 2017-8-8 22:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36826456&amp;ptid=1486439" target="_blank">bamboom 发表于 2017-8-8 22:40</a>
@@ -29021,11 +19531,9 @@ img-6a47a0b2434a892d55b2c4a64f1fc142.jpg
 右上方小段落：放松情报等（略）
 
 
-
 正上方小段落：
 
 间谍同伴也从未见过的，安洁与公主的私人时间的特写。被看上去一副“想要被搭理”的公主抱住，安洁有点不知所措的样子？！
-
 
 
 角色旁介绍：
@@ -29039,30 +19547,21 @@ img-6a47a0b2434a892d55b2c4a64f1fc142.jpg
 阿尔比昂王国的公主。现在的王位继承权是第四位，但为了当上女王，与作为敌国间谍的安洁等人联手行动。
 
 
-
 左中至左下大段文字：
 
 间谍。这是为了国家或组织、对敌方实力进行谍报和特工的人们。自身不用说、有时还会将同伴暴露于危险之下——这样残酷的任务也时有发生。共和国的间谍组织——Control机关所属的安洁等人，她们已经完成了各式各样的任务。惹上麻烦是家常便饭、生命危险更是次次遭遇，就这样过着戏剧性的每一天的她们几乎没有能休息的瞬间。
 
 
-
 即使如此，只要能捉到一点时间间隙，她们也会讴歌着青春。这其中，安洁和公主更是不断加深着连伙伴们也保密的亲密关系。而且，平日里一副Cool表情的安洁这时也是一副恍惚的表情，看着这样的安洁，公主脸上也浮现出了愉悦的表情。这两人不管是哪方的神态都完全是对对方完全信任（以身相许）的样子。包裹着两人的气氛非常的温和。这甜蜜而火爆的姿态才一定是两人本来的关系吧。
 
 
-
 虽然希望能一直看着这样友爱的两人，然而现实是残酷的。第6话安洁等人会被下达新的任务。这个任务是夺取隐藏在某具尸体上的暗号表。并且敌人的协助者貌似是安洁同伴之一的多萝茜的生别的父亲。多萝茜将要面对任务与家庭的艰难选择。看来“间谍”是不适合重情之人的职业啊。
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 2882#       发表于 2017-8-8 22:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36826450&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-8 22:40</a>
@@ -29074,16 +19573,10 @@ WTF。。。。
 这两家公司到底什么情况，这样感觉好不稳啊
 
 
-
-
-
-
-
 -----
 
 ####  bamboom  
 ##### 2883#       发表于 2017-8-8 22:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36826485&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-8 22:44</a>
@@ -29095,16 +19588,10 @@ https://tieba.baidu.com/p/5263112745?pn=2
 感谢~
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2884#       发表于 2017-8-8 23:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36826527&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-8-8 22:50</a>
@@ -29116,26 +19603,15 @@ WTF。。。。
 好怕过山车<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原本大河内已经让我感觉很不稳了。。
 
 
-
-
-
-
-
 -----
 
 ####  bamboom  
 ##### 2885#       发表于 2017-8-8 23:10
 
 
-
 [http://dengekionline.com/elem/000/001/569/1569656/](http://dengekionline.com/elem/000/001/569/1569656/)
 
 电击online的试玩review，emmm……
-
-
-
-
-
 
 
 -----
@@ -29144,23 +19620,15 @@ WTF。。。。
 ##### 2886#       发表于 2017-8-8 23:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36826450&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-8 22:40</a>
 而且据说第七话开始，由Actas来主导制作，所以后半段。。看橘正纪能不能把握好吧~ ...</blockquote>
 Actas？看来还是要谨慎一段时间了
-
-
-
-
-
 
 
 -----
 
 ####  lmx20  
 ##### 2887#       发表于 2017-8-8 23:30
-
-
 
 
 从翻译上来看
@@ -29182,16 +19650,10 @@ Actas？看来还是要谨慎一段时间了
 这就好玩了   
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2888#       发表于 2017-8-8 23:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36826841&amp;ptid=1486439" target="_blank">lmx20 发表于 2017-8-8 23:30</a>
@@ -29204,32 +19666,19 @@ Actas？看来还是要谨慎一段时间了
 不会弑父，而是被迫看着父亲被杀自己却毫无办法，这大河内以前也干过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yjysrkl  
 ##### 2889#       发表于 2017-8-9 00:01
 
 
-
-
 Actas只是传闻吧，又没根据，别听2ch的人胡说啊
-
-
-
-
-
 
 
 -----
 
 ####  シャーロット　  
 ##### 2890#       发表于 2017-8-9 00:50
-
 
 
  本帖最后由 シャーロット　 于 2017-8-9 02:20 编辑 
@@ -29245,20 +19694,11 @@ Actas只是传闻吧，又没根据，别听2ch的人胡说啊
 2017-8-9 00:46 上传
 
 
-
-
-
-
 堀河公搭乘来英国的船，莫非是那艘有名的“奥林匹克”号吗
 
 <img src="http://i.imgur.com/89MkB4o.jpg" referrerpolicy="no-referrer">
 
 亲自搭乘那艘著名的“不沉之船”的姐妹船远道而来的堀河公……您的命运我会密切关注的哦
-
-
-
-
-
 
 
 -----
@@ -29267,14 +19707,7 @@ Actas只是传闻吧，又没根据，别听2ch的人胡说啊
 ##### 2891#       发表于 2017-8-9 01:00
 
 
-
-
 说实话，我觉得有小部分“小圆风格”的BGM有点串戏。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29283,14 +19716,7 @@ Actas只是传闻吧，又没根据，别听2ch的人胡说啊
 ##### 2892#       发表于 2017-8-9 01:08
 
 
-
-
 小圆风格的还好，比较不能接受的是好好的爵士风格（应该是这个吧？）后面非要接一段人声。。。不知道大妈这是啥品味<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29299,15 +19725,9 @@ Actas只是传闻吧，又没根据，别听2ch的人胡说啊
 ##### 2893#       发表于 2017-8-9 08:05
 
 
-
  本帖最后由 xtwx1716 于 2017-8-9 08:08 编辑 
 
 BGM不过不失吧，这次音监很少大段地放单曲，音量也小，整体给人感觉很低调。没有NOIR那种抢戏抢到爆的BGM，作为调动气氛是足够了。但同时风格还是熟悉的大妈味，缺少令人惊艳的单曲。看看后边几集吧
-
-
-
-
-
 
 
 -----
@@ -29316,21 +19736,13 @@ BGM不过不失吧，这次音监很少大段地放单曲，音量也小，整�
 ##### 2894#       发表于 2017-8-9 08:36
 
 
-
-
 这话确实突然让我想起来是大妈配乐了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  llysander  
 ##### 2895#       发表于 2017-8-9 11:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36815019&amp;ptid=1486439" target="_blank">bird-lay 发表于 2017-8-7 20:27</a>
@@ -29344,25 +19756,13 @@ BGM不过不失吧，这次音监很少大段地放单曲，音量也小，整�
 我觉得把c球功能当作重力跳楼妹子比较好
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2896#       发表于 2017-8-9 11:20
 
 
-
-
 现在回头看第一集多萝西和千世伪造文书时的对话才发现当时似乎就在暗示两人都有与亲人为敌的秘密……
-
-
-
-
-
 
 
 -----
@@ -29371,16 +19771,10 @@ BGM不过不失吧，这次音监很少大段地放单曲，音量也小，整�
 ##### 2897#       发表于 2017-8-9 11:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36825309&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-8-8 20:27</a>
 
 官方持续不要脸</blockquote>
 官方是会玩的<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29389,21 +19783,13 @@ BGM不过不失吧，这次音监很少大段地放单曲，音量也小，整�
 ##### 2898#       发表于 2017-8-9 11:34
 
 
-
-
 开始担心了...大河内你要吃药啊！
-
-
-
-
-
 
 
 -----
 
 ####  llysander  
 ##### 2899#       发表于 2017-8-9 12:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36818623&amp;ptid=1486439" target="_blank">whn1103 发表于 2017-8-8 08:51</a>
@@ -29421,32 +19807,19 @@ BGM不过不失吧，这次音监很少大段地放单曲，音量也小，整�
 横竖想公主都在干着最理智的事<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2900#       发表于 2017-8-9 12:11
 
 
-
-
 感觉不会死人，但虐人倒是有的
-
-
-
-
-
 
 
 -----
 
 ####  llysander  
 ##### 2901#       发表于 2017-8-9 12:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36819743&amp;ptid=1486439" target="_blank">漫区专号 发表于 2017-8-8 10:35</a>
@@ -29460,16 +19833,10 @@ BGM不过不失吧，这次音监很少大段地放单曲，音量也小，整�
 不过这又是在1浮空舰要有非常高效率的洗地武器, 2两边地盘相对武器小到能打成废墟回不过气. 这两者又都不具备,浮空舰队威胁到底来自哪里.
 
 
-
-
-
-
-
 -----
 
 ####  whn1103  
 ##### 2902#       发表于 2017-8-9 16:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36825085&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-8 20:00</a>
@@ -29481,26 +19848,15 @@ ZZ有不黑的吗？利用未成年人当间谍，共和国也好不了哪儿去
 我一向反对用任何现实的法律道德逻辑评判虚构作品，只要有足够的能力，作者有权通过戏剧手法按照自己的想法塑造主角和反派。我的观感而言以公爵为代表的帝国势力就是本作反派，那出卖帝国不是天经地义的事么
 
 
-
-
-
-
-
 -----
 
 ####  Waaagh!  
 ##### 2903#       发表于 2017-8-9 17:14
 
 
-
  本帖最后由 Waaagh! 于 2017-8-9 17:16 编辑 
 
 21岁女子高中生虽说看上去只是色气担当和车手，但随手一抓边缘就跳上火车顶了，也是臂力惊人，真是深藏不露
-
-
-
-
-
 
 
 -----
@@ -29509,16 +19865,10 @@ ZZ有不黑的吗？利用未成年人当间谍，共和国也好不了哪儿去
 ##### 2904#       发表于 2017-8-9 18:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36834035&amp;ptid=1486439" target="_blank">Waaagh! 发表于 2017-8-9 17:14</a>
 
 21岁女子高中生虽说看上去只是色气担当和车手，但随手一抓边缘就跳上火车顶了，也是臂力惊人，真是深藏不露 ...</blockquote>
 怎么凭空又大了一岁？
-
-
-
-
-
 
 
 -----
@@ -29527,15 +19877,9 @@ ZZ有不黑的吗？利用未成年人当间谍，共和国也好不了哪儿去
 ##### 2905#       发表于 2017-8-9 18:09
 
 
-
 <blockquote>ahyyk 发表于 2017-8-9 18:00
 怎么凭空又大了一岁？</blockquote>
 因为刚过完生日233
-
-
-
-
-
 
 
 -----
@@ -29544,24 +19888,16 @@ ZZ有不黑的吗？利用未成年人当间谍，共和国也好不了哪儿去
 ##### 2906#       发表于 2017-8-9 18:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36834556&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-8-9 18:09</a>
 
 因为刚过完生日233</blockquote>
 还有这种设定？没事，回到case2就又变成20岁了。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2907#         楼主| 发表于 2017-8-9 18:26
-
-
 
 
 第6話「case18 Rouge Morgue」
@@ -29583,27 +19919,15 @@ ZZ有不黑的吗？利用未成年人当间谍，共和国也好不了哪儿去
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fidnauaqx3j20b406974z.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  永恒的王牌  
 ##### 2908#       发表于 2017-8-9 18:31
 
 
-
-
 我看了4集，还是觉得这种讴歌青春的间谍肯定有什么不对啊
 
 果然该当成喝茶番来看嘛..
-
-
-
-
-
 
 
 -----
@@ -29612,16 +19936,9 @@ ZZ有不黑的吗？利用未成年人当间谍，共和国也好不了哪儿去
 ##### 2909#         楼主| 发表于 2017-8-9 18:35
 
 
-
-
 翻页了 可能有人没看到
 
 #6的先行图：[http://bbs.saraba1st.com/2b/foru ... 39&amp;pid=36834710](http://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1486439&amp;pid=36834710)
-
-
-
-
-
 
 
 -----
@@ -29630,14 +19947,7 @@ ZZ有不黑的吗？利用未成年人当间谍，共和国也好不了哪儿去
 ##### 2910#       发表于 2017-8-9 18:42
 
 
-
-
 多萝西的妈妈肯定很漂亮<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29646,22 +19956,13 @@ ZZ有不黑的吗？利用未成年人当间谍，共和国也好不了哪儿去
 ##### 2911#       发表于 2017-8-9 18:58
 
 
-
-
 这个大叔是我的菜<img src="https://static.saraba1st.com/image/smiley/face2017/181.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  bird-lay  
 ##### 2912#       发表于 2017-8-9 19:07
-
-
 
 
 那个就是多萝西的爸爸吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -29671,16 +19972,10 @@ ZZ有不黑的吗？利用未成年人当间谍，共和国也好不了哪儿去
 然而怎么找到漂亮的妈妈的。。。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2913#       发表于 2017-8-9 19:12
-
 
 
 <blockquote>bird-lay 发表于 2017-8-9 19:07
@@ -29692,16 +19987,10 @@ ZZ有不黑的吗？利用未成年人当间谍，共和国也好不了哪儿去
 20年前估计是个帅哥
 
 
-
-
-
-
-
 -----
 
 ####  hosilly  
 ##### 2914#       发表于 2017-8-9 19:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36834710&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-8-9 18:26</a>
@@ -29715,25 +20004,13 @@ ZZ有不黑的吗？利用未成年人当间谍，共和国也好不了哪儿去
 色诱父亲？！<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2915#       发表于 2017-8-9 19:23
 
 
-
-
 这么路人的爹感觉是不是坑啊……回头是不是个什么假冒的
-
-
-
-
-
 
 
 -----
@@ -29742,16 +20019,10 @@ ZZ有不黑的吗？利用未成年人当间谍，共和国也好不了哪儿去
 ##### 2916#       发表于 2017-8-9 19:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36835227&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-8-9 19:23</a>
 
 这么路人的爹感觉是不是坑啊……回头是不是个什么假冒的</blockquote>
 革命机男主的爹就很.....<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29760,16 +20031,9 @@ ZZ有不黑的吗？利用未成年人当间谍，共和国也好不了哪儿去
 ##### 2917#       发表于 2017-8-9 20:01
 
 
-
-
 还有鲁鲁修那个蛋卷种马爹。。。
 
 搞不好让他英年早逝不要复活还更好一点<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29778,13 +20042,7 @@ ZZ有不黑的吗？利用未成年人当间谍，共和国也好不了哪儿去
 ##### 2918#         楼主| 发表于 2017-8-9 20:22
 
 
-
 <img src="http://wx1.sinaimg.cn/large/4508e79bgy1fidpq9ti35j20b40df0u3.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29793,21 +20051,13 @@ ZZ有不黑的吗？利用未成年人当间谍，共和国也好不了哪儿去
 ##### 2919#       发表于 2017-8-9 20:32
 
 
-
-
 腿最粗的是谁？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2920#         楼主| 发表于 2017-8-9 20:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36835881&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-9 20:32</a>
@@ -29818,33 +20068,19 @@ ZZ有不黑的吗？利用未成年人当间谍，共和国也好不了哪儿去
 左 千世 多萝西 安洁 公主 比阿特丽斯
 
 
-
-
-
-
-
 -----
 
 ####  keroro80722  
 ##### 2921#       发表于 2017-8-9 20:44
 
 
-
-
 大河內要在接下來６集的時間把什麼樣主線講完？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  yjysrkl  
 ##### 2922#       发表于 2017-8-9 20:45
-
-
 
 
 『プリンセス・プリンシパル』
@@ -29856,15 +20092,8 @@ ZZ有不黑的吗？利用未成年人当间谍，共和国也好不了哪儿去
 #pripri
 
 
-
-
-
-
-
 IMG_1664.JPG
 (57.18 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -29873,24 +20102,7 @@ IMG_1664.JPG
 2017-8-9 20:45 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201708/09/204502smm06eekedd6xxr0.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -29899,20 +20111,13 @@ IMG_1664.JPG
 ##### 2923#       发表于 2017-8-9 21:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这腿要不要这么真实
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 2924#       发表于 2017-8-9 21:28
-
 
 
 <blockquote>xingenge 发表于 2017-8-9 20:39
@@ -29922,25 +20127,13 @@ IMG_1664.JPG
 我理想中的安洁应该是関根明良さん这样的
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2925#       发表于 2017-8-9 21:32
 
 
-
-
 贴吧有人吐槽为什么会带小跟班…五个人里最差劲的就是她了，有什么用？…
-
-
-
-
-
 
 
 -----
@@ -29949,15 +20142,8 @@ IMG_1664.JPG
 ##### 2926#       发表于 2017-8-9 21:38
 
 
-
-
 小贝可是差点被断头啊，不要欺负她了好不好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 突然想起4chan上经常出现的 dont bully beato<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29966,74 +20152,33 @@ IMG_1664.JPG
 ##### 2927#       发表于 2017-8-9 21:38
 
 
-
-
 突然想起来今天在贴吧看到的图233
-
-
-
-
 
 
 1969233658.jpg
 (11.06 KB, 下载次数: 1)
 
 
-
-
 下载附件
 
 
 2017-8-9 21:38 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201708/09/213826hjfmpzzu2pfqljl2.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 -1116119164.jpg
 (10.84 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2017-8-9 21:38 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201708/09/213838fibxfi0jfcjjb22m.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -30042,20 +20187,13 @@ IMG_1664.JPG
 ##### 2928#       发表于 2017-8-9 21:44
 
 
-
  本帖最后由 万千百十 于 2017-8-9 21:47 编辑 
 
 这是后花园的福利？区区两亿，给我一个大英帝国也不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
 2017-08-09_214358.png
 (356.05 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -30064,24 +20202,7 @@ IMG_1664.JPG
 2017-8-9 21:44 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201708/09/214417rj4ex7untw7e2s4g.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -30090,23 +20211,16 @@ IMG_1664.JPG
 ##### 2929#       发表于 2017-8-9 21:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36836382&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-9 21:32</a>
 
 贴吧有人吐槽为什么会带小跟班…五个人里最差劲的就是她了，有什么用？… ...</blockquote>
 看到贴吧有分析在火车上就是因为十兵卫的刀砍中了比阿特的金属喉咙产生裂痕，最后才被千世砍断刀反杀的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2930#       发表于 2017-8-9 22:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36836431&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-9 21:38</a>
@@ -30117,25 +20231,13 @@ p站的比阿特三连<img src="https://static.saraba1st.com/image/smiley/face20
 id=64282822
 
 
-
-
-
-
-
 -----
 
 ####  Tehebe  
 ##### 2931#       发表于 2017-8-9 22:00
 
 
-
-
 手游可以下载了，搜showgate就有，就是不知道能不能戳妹子玩
-
-
-
-
-
 
 
 -----
@@ -30144,16 +20246,10 @@ id=64282822
 ##### 2932#       发表于 2017-8-9 22:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36836605&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-8-9 21:58</a>
 
 看到贴吧有分析在火车上就是因为十兵卫的刀砍中了比阿特的金属喉咙产生裂痕，最后才被千世砍断刀反杀的[f ...</blockquote>
 但也不可能每次任务都被砍脖子呀。。
-
-
-
-
-
 
 
 -----
@@ -30162,14 +20258,7 @@ id=64282822
 ##### 2933#       发表于 2017-8-9 22:43
 
 
-
-
 手游公主的腿感觉可以舔爆，股间三角正中好球区
-
-
-
-
-
 
 
 -----
@@ -30178,14 +20267,7 @@ id=64282822
 ##### 2934#       发表于 2017-8-9 22:58
 
 
-
-
 原来是消除类啊……
-
-
-
-
-
 
 
 -----
@@ -30194,13 +20276,7 @@ id=64282822
 ##### 2935#       发表于 2017-8-9 23:18
 
 
-
 [https://tieba.baidu.com/p/5264855146](https://tieba.baidu.com/p/5264855146)  爹爹形象损害人---大河内<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30209,16 +20285,9 @@ id=64282822
 ##### 2936#       发表于 2017-8-9 23:20
 
 
-
-
 脸黑抽不到主角队，没救了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
-
-
-
-
-
 
 
 -----
@@ -30227,14 +20296,7 @@ id=64282822
 ##### 2937#       发表于 2017-8-9 23:22
 
 
-
-
 小贝那个也太扯了，这不止改造了喉咙，连体内也得多多少少有个金属骨架吧
-
-
-
-
-
 
 
 -----
@@ -30243,23 +20305,16 @@ id=64282822
 ##### 2938#       发表于 2017-8-9 23:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36834852&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-9 18:42</a>
 
 多萝西的妈妈肯定很漂亮</blockquote>
 幸亏是长得像妈妈<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。
 
 
-
-
-
-
-
 -----
 
 ####  nage560  
 ##### 2939#       发表于 2017-8-9 23:24
-
 
 
  本帖最后由 nage560 于 2017-8-9 23:29 编辑 
@@ -30269,26 +20324,15 @@ id=64282822
 但是老爸是啤酒鼻，所以年轻时也不是帅哥吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">。
 
 
-
-
-
-
-
 -----
 
 ####  皇神樂耶  
 ##### 2940#       发表于 2017-8-10 00:02
 
 
-
 <blockquote>nage560 发表于 2017-8-9 23:24
 但是老爸是啤酒鼻，所以年轻时也不是帅哥吧，你觉得老爹隔壁会不会有个老王。 ...</blockquote>
 你看蛋卷皇帝的子女，除了娜娜莉根本没一个像他，最出色那个像他哥
-
-
-
-
-
 
 
 -----
@@ -30297,16 +20341,10 @@ id=64282822
 ##### 2941#       发表于 2017-8-10 00:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36837696&amp;ptid=1486439" target="_blank">皇神樂耶 发表于 2017-8-10 00:02</a>
 
 你看蛋卷皇帝的子女，除了娜娜莉根本没一个像他，最出色那个像他哥</blockquote>
 你怎么能这么拐着弯子黑你的小姑子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
-
-
-
-
-
 
 
 -----
@@ -30315,14 +20353,7 @@ id=64282822
 ##### 2942#       发表于 2017-8-10 00:20
 
 
-
-
 这手游一出 感觉已经看到了 百合豚吃屎大快人心的帖子了
-
-
-
-
-
 
 
 -----
@@ -30331,16 +20362,10 @@ id=64282822
 ##### 2943#       发表于 2017-8-10 00:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36837823&amp;ptid=1486439" target="_blank">吃货红毛 发表于 2017-8-10 00:20</a>
 
 这手游一出 感觉已经看到了 百合豚吃屎大快人心的帖子了</blockquote>
 求问手游有什么雷点<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30349,16 +20374,10 @@ id=64282822
 ##### 2944#       发表于 2017-8-10 06:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36837847&amp;ptid=1486439" target="_blank">chaos7 发表于 2017-8-10 00:26</a>
 
 求问手游有什么雷点</blockquote>
 性别可选。
-
-
-
-
-
 
 
 -----
@@ -30367,17 +20386,10 @@ id=64282822
 ##### 2945#       发表于 2017-8-10 06:27
 
 
-
-
 这也能成雷点？？？？？？？？？？？？？？？
 
 
 这是白河豚太低级还是某些人把白河豚想的太低级？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30386,21 +20398,13 @@ id=64282822
 ##### 2946#       发表于 2017-8-10 06:36
 
 
-
-
 话说哪里可以下游戏？…
-
-
-
-
-
 
 
 -----
 
 ####  凡人  
 ##### 2947#       发表于 2017-8-10 07:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36838609&amp;ptid=1486439" target="_blank">yjysrkl 发表于 2017-8-10 06:27</a>
@@ -30412,16 +20416,10 @@ id=64282822
 也许是在担心变成男主人公攻略安洁她们的故事吧。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2948#       发表于 2017-8-10 07:21
-
 
 
 <blockquote>yjysrkl 发表于 2017-8-10 06:27
@@ -30432,17 +20430,10 @@ id=64282822
 明显是最近泥潭钓白河豚的渔夫太低级
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2949#         楼主| 发表于 2017-8-10 13:22
-
-
 
 
 #2 #3
@@ -30462,24 +20453,13 @@ id=64282822
 另外，都要一百页了 不知道有没有爬楼的必要
 
 
-
-
-
-
-
 -----
 
 ####  pri127  
 ##### 2950#       发表于 2017-8-10 13:52
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这手游玩法好像跟霹雳Q娃没什么区别？
-
-
-
-
-
 
 
 -----
@@ -30488,23 +20468,15 @@ id=64282822
 ##### 2951#       发表于 2017-8-10 20:05
 
 
-
-
 這企劃讓人摸不著頭腦
 
 一看就是暴死樣的，就算要撈一票走人，這真的撈的到嗎？<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  水饺肯定会过期  
 ##### 2952#       发表于 2017-8-10 20:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36846122&amp;ptid=1486439" target="_blank">keroro80722 发表于 2017-8-10 20:05</a>
@@ -30515,16 +20487,10 @@ id=64282822
 突然想到 当初兽娘手游就是捞一票走人 漫画取消 没想到动画救活了这个系列 不过prpr有这个运气和机遇吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">.........
 
 
-
-
-
-
-
 -----
 
 ####  猫抓球  
 ##### 2953#       发表于 2017-8-10 20:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36835984&amp;ptid=1486439" target="_blank">yjysrkl 发表于 2017-8-9 20:45</a>
@@ -30537,17 +20503,10 @@ id=64282822
 一股人妻聚会的气息扑面而来<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yjysrkl  
 ##### 2954#       发表于 2017-8-10 20:46
-
-
 
 
 手游我去玩了
@@ -30563,16 +20522,10 @@ id=64282822
 他们日本人也大多是这个想法<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yjysrkl  
 ##### 2955#       发表于 2017-8-10 20:51
-
 
 
 [https://animeanime.jp/article/2017/08/10/34937.html](https://animeanime.jp/article/2017/08/10/34937.html)
@@ -30584,16 +20537,10 @@ id=64282822
 懂日语的朋友可以去看看<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yjysrkl  
 ##### 2956#       发表于 2017-8-10 20:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36846415&amp;ptid=1486439" target="_blank">猫抓球 发表于 2017-8-10 20:43</a>
@@ -30602,16 +20549,10 @@ id=64282822
 里面还真有个人妻！
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2957#       发表于 2017-8-10 21:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36846440&amp;ptid=1486439" target="_blank">yjysrkl 发表于 2017-8-10 20:46</a>
@@ -30627,33 +20568,19 @@ id=64282822
 就是上来十连抽只拿到一个女仆千世，我要公主啊。。。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2958#       发表于 2017-8-10 21:33
 
 
-
-
 值得注意的是手游里边敌人有重甲型，不知道以后动画会不会出现？
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 2959#       发表于 2017-8-10 21:36
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201708/10/213526vjti9tuibuo00r70.png" referrerpolicy="no-referrer">
@@ -30666,24 +20593,13 @@ id=64282822
 2017-8-10 21:35 上传
 
 
-
-
-
-
-
 想不到橘正纪也喜欢霹雳游戏？！<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 2960#       发表于 2017-8-10 21:36
-
 
 
 <blockquote><a href="httphttp://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36846817&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-8-10 21:33</a>
@@ -30693,16 +20609,10 @@ id=64282822
 别想太多。。这番只有12集<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">大河内能写好这几个就不错了
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2961#       发表于 2017-8-10 21:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36846844&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-10 21:36</a>
@@ -30711,16 +20621,10 @@ id=64282822
 我说的是敌人，不是主角方啊。现在的敌人普遍不够看，之后出现高级兵的可能性还是有的，反正是蒸汽朋克
 
 
-
-
-
-
-
 -----
 
 ####  bamboom  
 ##### 2962#       发表于 2017-8-10 21:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36846480&amp;ptid=1486439" target="_blank">yjysrkl 发表于 2017-8-10 20:51</a>
@@ -30729,11 +20633,6 @@ https://animeanime.jp/article/2017/08/10/34937.html
 
 軍事研究家の小泉悠 对这动画的设定、人物和剧情做 ...</blockquote>
 哎……如果有大佬能翻译一下就好了
-
-
-
-
-
 
 
 -----
@@ -30742,7 +20641,6 @@ https://animeanime.jp/article/2017/08/10/34937.html
 ##### 2963#       发表于 2017-8-10 21:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36846480&amp;ptid=1486439" target="_blank">yjysrkl 发表于 2017-8-10 20:51</a>
 
 https://animeanime.jp/article/2017/08/10/34937.html
@@ -30751,16 +20649,10 @@ https://animeanime.jp/article/2017/08/10/34937.html
 哎……如果有大佬能翻译一下就好了
 
 
-
-
-
-
-
 -----
 
 ####  llysander  
 ##### 2964#       发表于 2017-8-11 10:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36837396&amp;ptid=1486439" target="_blank">reficul 发表于 2017-8-9 23:22</a>
@@ -30772,16 +20664,10 @@ https://animeanime.jp/article/2017/08/10/34937.html
 不然这一刀应该砍中血管，飙出壮观的血
 
 
-
-
-
-
-
 -----
 
 ####  aeolus039  
 ##### 2965#       发表于 2017-8-11 10:40
-
 
 
 <blockquote>llysander 发表于 2017-8-11 10:17
@@ -30789,16 +20675,10 @@ https://animeanime.jp/article/2017/08/10/34937.html
 你当是个金属套就是了，可能作画失误
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2966#       发表于 2017-8-11 10:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36842169&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-8-10 13:22</a>
@@ -30811,16 +20691,10 @@ https://animeanime.jp/article/2017/08/10/34937.html
 大体上不需要爬楼,自己的观感比较重要,毕竟看了别人的看法容易会被先入为主
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2967#         楼主| 发表于 2017-8-11 11:16
-
 
 
  本帖最后由 xingenge 于 2017-8-11 11:27 编辑 
@@ -30880,16 +20754,10 @@ Blu-ray・DVD全巻購入特典
 <img src="https://public.lightpic.info/image/37B1_598D24120.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aeolus039  
 ##### 2968#       发表于 2017-8-11 11:22
-
 
 
 <blockquote>xingenge 发表于 2017-8-11 11:16
@@ -30901,16 +20769,10 @@ Blu-ray・DVD全巻購入特典
 公主:都是我老婆.jpg
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 2969#       发表于 2017-8-11 11:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36842169&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-8-10 13:22</a>
@@ -30923,16 +20785,10 @@ Blu-ray・DVD全巻購入特典
 bgm有人整理了这栋专楼里的一些讨论：[http://bangumi.tv/blog/277133](http://bangumi.tv/blog/277133)
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2970#         楼主| 发表于 2017-8-11 11:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36851497&amp;ptid=1486439" target="_blank">bird-lay 发表于 2017-8-11 11:25</a>
@@ -30941,25 +20797,13 @@ bgm有人整理了这栋专楼里的一些讨论：http://bangumi.tv/blog/277133
 感谢，我到时候去看看 最近白天都在公司 是不太可能看 晚上回去都瘫倒
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2971#         楼主| 发表于 2017-8-11 11:28
 
 
-
-
 BD的特典图已修正。。
-
-
-
-
-
 
 
 -----
@@ -30968,23 +20812,15 @@ BD的特典图已修正。。
 ##### 2972#       发表于 2017-8-11 11:54
 
 
-
-
 整日沉迷女色的公主<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 顺便，这特典图让我相信公主真的是大BOSS了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  killng  
 ##### 2973#       发表于 2017-8-11 12:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36851375&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-8-11 11:16</a>
@@ -30995,25 +20831,13 @@ BD的特典图已修正。。
 我看到了一位蓄势待发的女王，一头捕食猎物的雌狮
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 2974#       发表于 2017-8-11 12:14
 
 
-
-
 公主调戏安洁的那张图真是<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -31022,14 +20846,7 @@ BD的特典图已修正。。
 ##### 2975#       发表于 2017-8-11 12:16
 
 
-
-
 这公主怎么这么人渣
-
-
-
-
-
 
 
 -----
@@ -31038,15 +20855,9 @@ BD的特典图已修正。。
 ##### 2976#       发表于 2017-8-11 12:18
 
 
-
 <blockquote>xtwx1716 发表于 2017-8-11 12:16
 这公主怎么这么人渣</blockquote>
 女未婚女未嫁的，多线操作很正常
-
-
-
-
-
 
 
 -----
@@ -31055,15 +20866,9 @@ BD的特典图已修正。。
 ##### 2977#       发表于 2017-8-11 12:25
 
 
-
 <blockquote>皇神樂耶 发表于 2017-8-11 12:18
 女未婚女未嫁的，多线操作很正常</blockquote>
 官方这样一搞 后半段公主上位成第一女主的可能性大增
-
-
-
-
-
 
 
 -----
@@ -31072,13 +20877,7 @@ BD的特典图已修正。。
 ##### 2978#       发表于 2017-8-11 13:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">安洁被公主吃的死死的
-
-
-
-
-
 
 
 -----
@@ -31087,22 +20886,13 @@ BD的特典图已修正。。
 ##### 2979#       发表于 2017-8-11 13:54
 
 
-
-
 明是安洁在队里各种撩，到头来还全是公主的后宫<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2980#         楼主| 发表于 2017-8-11 14:36
-
-
 
 
 #4
@@ -31116,17 +20906,10 @@ BD的特典图已修正。。
 常说谎话的安洁，能否在最后说出真话呢？
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2981#       发表于 2017-8-11 15:03
-
-
 
 
 后知后觉，原来ED完整版已经出了啊
@@ -31135,27 +20918,15 @@ BD的特典图已修正。。
 这歌我还挺喜欢的，歌词也很棒。假如这片最后是HE，这首歌在安洁和公主挽着手从卡萨布兰卡的白房子推门出来的时候响起，那简直不能太合适了
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 2982#       发表于 2017-8-11 15:08
 
 
-
-
 多萝西是需要的时候就去色诱，不需要的时候创造机会也要去色诱
 
 “没时间了，正面强攻吧”
-
-
-
-
-
 
 
 -----
@@ -31164,21 +20935,13 @@ BD的特典图已修正。。
 ##### 2983#       发表于 2017-8-11 15:35
 
 
-
-
 大河内笔下哪个主角是善终的？所以公主是女主的话，也是一个信号？
-
-
-
-
-
 
 
 -----
 
 ####  CIV6  
 ##### 2984#       发表于 2017-8-11 15:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36853647&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-8-11 15:03</a>
@@ -31190,26 +20953,15 @@ BD的特典图已修正。。
 大河内你还指望GE<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">目前这走势完全是奔着全灭去啊
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2985#       发表于 2017-8-11 16:02
 
 
-
 <blockquote>CIV6 发表于 2017-8-11 15:39
 大河内你还指望GE目前这走势完全是奔着全灭去啊</blockquote>
 哪有，我觉得这片八成会是he的。整体氛围还是挺欢快的
-
-
-
-
-
 
 
 -----
@@ -31218,16 +20970,9 @@ BD的特典图已修正。。
 ##### 2986#       发表于 2017-8-11 16:14
 
 
-
-
 既然有手游，应该是指望卖角色的？感觉不至于全灭吧。。。
 
 还是说在游戏里用氪金拯救小队？
-
-
-
-
-
 
 
 -----
@@ -31236,20 +20981,13 @@ BD的特典图已修正。。
 ##### 2987#       发表于 2017-8-11 16:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">的，总往那方向预测
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 2988#       发表于 2017-8-11 16:54
-
 
 
 <blockquote>bird-lay 发表于 2017-8-11 16:14
@@ -31259,25 +20997,13 @@ BD的特典图已修正。。
 大河内：你们使劲氪，全灭算我输～
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 2989#       发表于 2017-8-11 17:12
 
 
-
-
 怎么又开始奶起结局来了……
-
-
-
-
-
 
 
 -----
@@ -31286,23 +21012,15 @@ BD的特典图已修正。。
 ##### 2990#       发表于 2017-8-11 18:29
 
 
-
-
 大白腿是好，但是白毛那行动装的小裙子真的是欣赏不来
 
 拼刀很流畅，就是音效有点怪，我感觉串戏到UBW里saber战berserker那打铁音了
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 2991#       发表于 2017-8-11 18:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36855899&amp;ptid=1486439" target="_blank">mhss 发表于 2017-8-11 18:29</a>
@@ -31316,16 +21034,10 @@ BD的特典图已修正。。
 我倒是很受用<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 2992#       发表于 2017-8-11 18:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36856000&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-8-11 18:42</a>
@@ -31336,16 +21048,10 @@ BD的特典图已修正。。
 但是这裙子我觉得还真不如换成安全裤热裤之类的，不影响体术看着也舒服点，现在这种蓬蓬裙<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zhongjie  
 ##### 2993#       发表于 2017-8-11 18:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36856041&amp;ptid=1486439" target="_blank">mhss 发表于 2017-8-11 18:46</a>
@@ -31356,16 +21062,10 @@ BD的特典图已修正。。
 遇到相同观点的人了，我认为紧身裤也比蓬蓬裙好啊
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 2994#       发表于 2017-8-11 18:51
-
 
 
 <blockquote>mhss 发表于 2017-8-11 18:46
@@ -31375,16 +21075,10 @@ BD的特典图已修正。。
 大概是蓬蓬裙可以藏C球吧
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 2995#       发表于 2017-8-11 18:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36856000&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-8-11 18:42</a>
@@ -31393,25 +21087,13 @@ BD的特典图已修正。。
 居然是裙子？我一直以为是裤子。。。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 2996#       发表于 2017-8-11 19:16
 
 
-
-
 有时间纠结裤裆藏雷，我已经把大白腿舔了N遍了~
-
-
-
-
-
 
 
 -----
@@ -31420,15 +21102,9 @@ BD的特典图已修正。。
 ##### 2997#       发表于 2017-8-11 19:20
 
 
-
 <blockquote>神之叹息 发表于 2017-8-11 19:16
 有时间纠结裤裆藏雷，我已经把大白腿舔了N遍了~</blockquote>
 从手游立绘来看，还是公主的腿更好舔。希望之后能多给点特写
-
-
-
-
-
 
 
 -----
@@ -31437,14 +21113,7 @@ BD的特典图已修正。。
 ##### 2998#       发表于 2017-8-11 19:20
 
 
-
-
 话说你们觉得prpr的手游怎样？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -31453,16 +21122,10 @@ BD的特典图已修正。。
 ##### 2999#       发表于 2017-8-11 19:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36856333&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-8-11 19:20</a>
 
 话说你们觉得prpr的手游怎样？</blockquote>
 要挂VPN，于是我连数据都没下完……
-
-
-
-
-
 
 
 -----
@@ -31471,13 +21134,8 @@ BD的特典图已修正。。
 ##### 3000#       发表于 2017-8-11 20:31
 
 
-
-
 现在日本appstore必须要绑信用卡咯？
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
 
 

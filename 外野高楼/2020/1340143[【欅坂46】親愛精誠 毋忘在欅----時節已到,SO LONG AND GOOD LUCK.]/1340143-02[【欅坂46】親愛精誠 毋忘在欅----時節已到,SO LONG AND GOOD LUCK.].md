@@ -1,13 +1,10 @@
 > ## **本文件最后更新于2020-07-22 10:13** 
 
 
-
 -----
 
 ####  LaCuentaRegresi  
 ##### 1501#       发表于 2018-2-7 23:31
-
-
 
 
 一排二排曝光上资源明明差很多，五单一排红白各种曝光
@@ -17,25 +14,13 @@
 握手再“仅仅8亿”，你问肥秋问索尼哪个敢放话绿团从今开始不握手？
 
 
-
-
-
-
-
 -----
 
 ####  7450  
 ##### 1502#       发表于 2018-2-7 23:51
 
 
-
-
 这楼标题有趣
-
-
-
-
-
 
 
 -----
@@ -46,12 +31,10 @@
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  dxxtiger  
 ##### 1504#       发表于 2018-2-8 15:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38494597&amp;ptid=1340143" target="_blank">原始恶魔 发表于 2018-2-8 08:42</a>
@@ -60,16 +43,10 @@
 现在就是只看实体碟已经不能准确反映热度了，比较好的做法是实体、下载、在线播放、广播中被点播的次数等等分开来排行，因为这些不同的销售方式其实是对应了不同的用户群。O榜现在这种基本看实体，但又暗箱砍销量自寻死路是真的，但不代表只看实体就是对的。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1505#       发表于 2018-2-9 21:52
-
 
 
  本帖最后由 芍药 于 2018-2-9 22:55 编辑 
@@ -81,532 +58,348 @@ rock you！
 初听很烈，但歌词并没有四单那么激进，有点燃系动画OP的感觉？
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1506#       发表于 2018-2-10 07:43
 
 
-
-
 WOW WOW WOW WOW WOW
 
 
-
 WOW WOW WOW WOW WOW
-
 
 
 HEY HEY
 
 
-
-
-
-
-
 川面に映る自分の姿に
-
 
 
 不再對著自己
 
 
-
 吠え無くなってしまった犬は
-
 
 
 映照於河面上的身影吠叫的狗
 
 
-
 餌をもらうために尻尾振って
-
 
 
 為了飼料搖尾乞憐
 
 
-
 飼い慣らされたんだろ
-
 
 
 應該是被馴養順從了吧
 
 
-
-
-
-
-
 噛み付きたい気持ちを殺して
-
 
 
 扼殺心中想張口撕咬的心情
 
 
-
 聞き分けいいフリするなよ
-
 
 
 別裝出一副乖巧的樣子啊
 
 
-
 上目遣いで媚びるために
-
 
 
 你是為了仰視諂媚
 
 
-
 生まれて来たのか
-
 
 
 才被生出來的嗎
 
 
-
-
-
-
-
 今の幸せにどうしてしがみつくんだ
-
 
 
 為什麼還要緊抓著現在的幸福不放
 
 
-
 閉じ込められた
-
 
 
 擺脫看不見的
 
 
-
 見えない檻から抜け出せよ
-
 
 
 束縛之牢吧
 
 
-
-
-
-
-
 ROCK YOU
-
-
-
-
-
 
 
 目の前のガラスを割れ
 
 
-
 擊碎眼前的玻璃
-
 
 
 握りしめた拳で
 
 
-
 用這緊握的拳頭
-
 
 
 やりたいことやって見せろよ
 
 
-
 做想做的事給我看啊
-
 
 
 お前はもっと自由でいい
 
 
-
 你應該更加的自由
-
-
-
-
-
 
 
 FORGET
 
 
-
 WOW WOW WOW WOW WOW
-
-
-
-
-
 
 
 我慢するものをぶち壊せ
 
 
-
 毀壞一切的忍耐
-
 
 
 夢見るなら愚かになれ
 
 
-
 若是抱持夢想就成為蠢蛋吧
-
 
 
 傷付かなくちゃ本物じゃないよ
 
 
-
 不遍體鱗傷的不是真貨
-
-
-
-
-
 
 
 人を見ても吠えないように
 
 
-
 被訓練成看見人也不會出聲 
-
 
 
 躾けられた悲しい犬よ
 
 
-
 可悲的犬啊
-
 
 
 鼻を鳴らし擦り寄ったら
 
 
-
 撒著嬌的靠近
-
 
 
 誰かに褒められるか
 
 
-
 會得到誰的誇獎嗎
-
-
-
-
-
 
 
 リードで繋がれなくても
 
 
-
 不拴著鐵鍊也
-
 
 
 何処へも走り出そうとしない
 
 
-
 不會有想跑出去的念頭
-
 
 
 日和見主義*のその群れに
 
 
-
 混在那群投機主義*裡
-
 
 
 紛れてもいいのか
 
 
-
 就滿意了啊
-
-
-
-
-
 
 
 全て失っても
 
 
-
 就算失去了全部
-
 
 
 手に入れたい物がある
 
 
-
 也還是有想緊握的東西
-
 
 
 がむしゃらになって
 
 
-
 會不顧一切的
-
 
 
 何処までも追い求めるだろう
 
 
-
 往天涯海角去追尋吧
-
-
-
-
-
 
 
 ROCK YOU
 
 
-
-
-
-
-
 抑圧のガラスを割れ
-
 
 
 擊破壓迫的玻璃
 
 
-
 怒り込めた拳で
-
 
 
 用這注滿怒意的拳頭
 
 
-
 風通しを良くしたいんだ
-
 
 
 想要風流通的更加暢快
 
 
-
 俺達はもう犬じゃない
-
 
 
 我們已經不是犬了
 
 
-
 変な奴らに怯むなよ
-
 
 
 別對奇怪的傢伙畏懼害怕
 
 
-
 戦うなら孤独になれ
-
 
 
 要戰鬥的話就變得孤獨吧
 
 
-
 群れてるだけじゃ始まらないよ
-
 
 
 成群結隊的什麼都不會開始
 
 
-
-
-
-
-
 目の前のガラスを割れ
-
 
 
 擊碎眼前的玻璃
 
 
-
 握りしめた拳で
-
 
 
 用這緊握的拳頭
 
 
-
 やりたいことやって見せろよ
-
 
 
 做想做的事給我看啊
 
 
-
 お前はもっと自由でいい
-
 
 
 你應該更加的自由
 
 
-
-
-
-
-
 邪魔するものぶち壊せ
-
 
 
 破壞所有礙事的傢伙
 
 
-
 夢見るなら愚かになれ
-
 
 
 若是抱持夢想就成為蠢蛋吧
 
 
-
 傷付かなくちゃ本物じゃないよ
-
 
 
 不遍體鱗傷的不是真貨
 
 
-
-
-
-
-
 想像のガラスを割れ
-
 
 
 打碎想像的玻璃
 
 
-
 思い込んでいるだけ
-
 
 
 你只是將那信以為真
 
 
-
 やる前から諦めるなよ
-
 
 
 別在開始前就放棄
 
 
-
 お前はもっとお前らしく　生きろ
-
 
 
 你該活得更像你自己啊
 
 
-
 愛の鎖引きちぎるよ
-
 
 
 撕碎愛的枷鎖吧
 
 
-
 歯向かうなら背中向けるな
-
 
 
 違命的話就別背過身子
 
 
-
 温もりなんかどうだっていい
-
 
 
 溫暖是什麼鬼東西
 
 
-
 吠えない犬は犬じゃないんだ﻿
-
 
 
 不吠的狗根本就不配稱作狗
 
 
-
 ——————
 
 歌词很不“偶像”，歌曲信息跟四单有点接近很“欅”。
-
-
-
-
-
-
 
 
 -----
@@ -615,15 +408,9 @@ ROCK YOU
 ##### 1507#       发表于 2018-2-10 09:45
 
 
-
  本帖最后由 芍药 于 2018-2-10 09:46 编辑 
 
 风怒
-
-
-
-
-
 
 
 -----
@@ -634,7 +421,6 @@ ROCK YOU
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  原始恶魔  
@@ -643,21 +429,13 @@ ROCK YOU
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Layor Rik  
 ##### 1510#       发表于 2018-2-10 10:27
 
 
-
-
 记得4单我开始也觉得不好听，结果去年一年不小心听了300多遍…
-
-
-
-
-
 
 
 -----
@@ -666,14 +444,7 @@ ROCK YOU
 ##### 1511#       发表于 2018-2-10 14:11
 
 
-
-
 这首歌非常适合在fes和live的舞台上唱的，下面跟着喊麦吼就行了，也不需要什么虎火人造
-
-
-
-
-
 
 
 -----
@@ -682,21 +453,13 @@ ROCK YOU
 ##### 1512#       发表于 2018-2-10 14:41
 
 
-
-
 避雷针的LIVE。。。。志田抱着小平稳的很。。。不过以现在小平的身材。。怕是抱不动了。。
-
-
-
-
-
 
 
 -----
 
 ####  dxxtiger  
 ##### 1513#       发表于 2018-2-10 19:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38518114&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2018-2-10 15:41</a>
@@ -707,16 +470,10 @@ ROCK YOU
 我觉得问题不太大
 
 
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 1514#       发表于 2018-2-10 21:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38520337&amp;ptid=1340143" target="_blank">dxxtiger 发表于 2018-2-10 19:47</a>
@@ -725,16 +482,10 @@ ROCK YOU
 这么看志田在团里还是个力工
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1515#       发表于 2018-2-10 22:09
-
 
 
  本帖最后由 芍药 于 2018-2-10 22:37 编辑 
@@ -753,20 +504,7 @@ ROCK YOU
 2018-2-10 22:07 上传
 
 
-
-
-
-
 这镜头只有在live上才会有感觉。
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -775,11 +513,9 @@ ROCK YOU
 ##### 1516#       发表于 2018-2-10 22:27
 
 
-
  本帖最后由 芍药 于 2018-2-10 23:17 编辑 
 
 六单初听比四单好，至少四单刚出的时候我是get不到旋律的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">盖过，现在六单又回来了，继续“非王道偶像”，继续激烈。
-
 
 
 碎玻璃的舞蹈很有力度，希望一排成员能发挥出舞蹈功底吧
@@ -787,16 +523,10 @@ ROCK YOU
 平手挂着绷带在练，后面跟着节拍跳的应该是栗子，起哄的是oda跟志田，拍视频的应该是775
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1517#       发表于 2018-2-11 01:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38521386&amp;ptid=1340143" target="_blank">芍药 发表于 2018-2-10 23:09</a>
@@ -808,16 +538,10 @@ ROCK YOU
 顺便继续吐槽，全握mini live的观众不给力啊，5单CDJ出来的时候全场在下面跟着蹦嗨爆，全握的时候就只有wota式call了
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1518#       发表于 2018-2-11 13:36
-
 
 
  本帖最后由 芍药 于 2018-2-11 14:48 编辑 
@@ -829,21 +553,13 @@ ROCK YOU
 钢琴这版有种蓄力忍耐的别样感觉
 
 
-
 另外，一直说不要奇葩舞蹈要美感，不要全员选拔要撕逼毒唯，不要反抗要青春暗恋努力，不要严肃要笑颜，这些要素当然也有更多的人喜欢受众也更广但这样的团海那边多得是开闭更是把这条路走到顶峰无法超越了，欅是靠什么发展到现在心里还没底么。
-
-
-
-
-
-
 
 
 -----
 
 ####  dxxtiger  
 ##### 1519#       发表于 2018-2-12 02:28
-
 
 
  本帖最后由 dxxtiger 于 2018-2-12 03:57 编辑 
@@ -860,16 +576,10 @@ ROCK YOU
 最后，怎么说呢，没有大钻、妖单、幸运饼这些卡拉OK传唱度极高的国民级作品，开闭也走不到现在这个能在外国人面前代表日本偶像女团这个概念的地位。WOTA搬箱真的能养活这么大个团队的话，裙摆飘飘被主流怼了一轮之后怎么会过得那么惨，去年指原干嘛直接在广播上问肥秋要神曲？指原这种从WOTA一路走到偶像顶点的人都有数了，怎么还有人觉得只要自家推搬箱就能帮妹子“实现梦想”，“走向顶点”。
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1520#       发表于 2018-2-12 22:37
-
 
 
 <blockquote>【ガラスを割れ!】
@@ -921,17 +631,10 @@ ROCK YOU
 假一和假二分开啊……还挺精准投放的。个握券都是发通常盘，也可以单独推一下假二。ゆいちゃんず复活好评，比较好奇尾池睡组合会是什么风格，感觉像是喜剧向可爱风。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1521#       发表于 2018-2-12 23:32
-
-
 
 
 常规的两首汉字，森林可能是柔和一点的歌
@@ -943,16 +646,10 @@ Wyui复活还蛮正常的，护法所以给MV，看这歌名估计会继续民�
 尾池睡应该是走可爱风的，这歌名看着像小女生的幻想
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1522#       发表于 2018-2-13 22:40
-
 
 
  本帖最后由 芍药 于 2018-2-13 22:44 编辑 
@@ -968,9 +665,6 @@ Wyui复活还蛮正常的，护法所以给MV，看这歌名估计会继续民�
 2018-2-13 22:37 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/13/223714oto15z11tt5516zn.jpg" referrerpolicy="no-referrer">
 
 
@@ -979,9 +673,6 @@ Wyui复活还蛮正常的，护法所以给MV，看这歌名估计会继续民�
 下载附件
 
 2018-2-13 22:37 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/13/223715t076k66o78yxoq7a.jpg" referrerpolicy="no-referrer">
@@ -994,9 +685,6 @@ Wyui复活还蛮正常的，护法所以给MV，看这歌名估计会继续民�
 2018-2-13 22:37 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/13/223715y2hob30rkbo331ts.jpg" referrerpolicy="no-referrer">
 
 
@@ -1005,9 +693,6 @@ Wyui复活还蛮正常的，护法所以给MV，看这歌名估计会继续民�
 下载附件
 
 2018-2-13 22:37 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/13/223717mh6i4403e6nglizg.jpg" referrerpolicy="no-referrer">
@@ -1020,9 +705,6 @@ Wyui复活还蛮正常的，护法所以给MV，看这歌名估计会继续民�
 2018-2-13 22:37 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/13/223718t8ktvk2kz3j2nt8t.jpg" referrerpolicy="no-referrer">
 
 
@@ -1031,9 +713,6 @@ Wyui复活还蛮正常的，护法所以给MV，看这歌名估计会继续民�
 下载附件
 
 2018-2-13 22:37 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/13/223718pdbvv5cpynrdaaa7.jpg" referrerpolicy="no-referrer">
@@ -1046,9 +725,6 @@ Wyui复活还蛮正常的，护法所以给MV，看这歌名估计会继续民�
 2018-2-13 22:37 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/13/223716ctgrn6ty5t66crrc.jpg" referrerpolicy="no-referrer">
 
 
@@ -1057,11 +733,6 @@ Wyui复活还蛮正常的，护法所以给MV，看这歌名估计会继续民�
 下载附件
 
 2018-2-13 22:37 上传
-
-
-
-
-
 
 
 假二单独招待会，七千人，比汉字假一时期都多
@@ -1091,25 +762,13 @@ ZIP!水曜日は山口達也がニッポンの朝にエールを送ります。
 据小号说服装黑白搭配有点三袋妹的感觉
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1523#       发表于 2018-2-14 03:44
 
 
-
-
 衣服搭上这曲风真的是三袋欅了<img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">炸裂
-
-
-
-
-
 
 
 -----
@@ -1118,14 +777,7 @@ ZIP!水曜日は山口達也がニッポンの朝にエールを送ります。
 ##### 1524#       发表于 2018-2-14 04:49
 
 
-
-
 而且还真在工地，真民工
-
-
-
-
-
 
 
 -----
@@ -1134,14 +786,7 @@ ZIP!水曜日は山口達也がニッポンの朝にエールを送ります。
 ##### 1525#       发表于 2018-2-14 08:36
 
 
-
-
 工友们！欅起你们手中的砖头！
-
-
-
-
-
 
 
 -----
@@ -1152,29 +797,19 @@ ZIP!水曜日は山口達也がニッポンの朝にエールを送ります。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Layor Rik  
 ##### 1527#       发表于 2018-2-14 11:46
 
 
-
-
 完整版mv出来了……这歌广播版听着不怎么样，没想到mv那么棒！
-
-
-
-
-
 
 
 -----
 
 ####  LaCuentaRegresi  
 ##### 1528#       发表于 2018-2-14 13:08
-
-
 
 
 唱着diss握手的歌词
@@ -1184,16 +819,10 @@ ZIP!水曜日は山口達也がニッポンの朝にエールを送ります。
 捧着运营爱的亲女儿
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1529#       发表于 2018-2-14 13:38
-
 
 
  本帖最后由 芍药 于 2018-2-14 13:46 编辑 
@@ -1202,27 +831,15 @@ ZIP!水曜日は山口達也がニッポンの朝にエールを送ります。
 这单还会有大型的tie，合作机车服或者当动画op吧<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 1530#       发表于 2018-2-14 13:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38557691&amp;ptid=1340143" target="_blank">芍药 发表于 2018-2-14 13:38</a>
 场景合格成员也舞出力度，这mv可以了，不同于一单四单的帅新闻所说的验证了平手的伤是红白导致的，希望这单 ...</blockquote>
 机车服……这女团真奇怪啊……
-
-
-
-
-
 
 
 -----
@@ -1231,16 +848,10 @@ ZIP!水曜日は山口達也がニッポンの朝にエールを送ります。
 ##### 1531#       发表于 2018-2-14 13:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38557733&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2018-2-14 13:42</a>
 
 机车服……这女团真奇怪啊……</blockquote>
 开玩笑~之前欅好像没用过大型合作这种词，可能不是普通的代言cm，希望是电影或者村外电视剧
-
-
-
-
-
 
 
 -----
@@ -1249,16 +860,9 @@ ZIP!水曜日は山口達也がニッポンの朝にエールを送ります。
 ##### 1532#       发表于 2018-2-14 13:55
 
 
-
-
 真的再来几单这种  小姑娘们live不得累死 担心每场都倒几个......来几首塞粽缓缓多好
 
 — from OnePlus ONEPLUS A3010, Android 8.0.0 of [S1 Next Goose](https://play.google.com/store/apps/details?id=me.ykrank.s1next) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -1267,15 +871,9 @@ ZIP!水曜日は山口達也がニッポンの朝にエールを送ります。
 ##### 1533#       发表于 2018-2-14 14:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38557794&amp;ptid=1340143" target="_blank">芍药 发表于 2018-2-14 13:49</a>
 开玩笑~之前欅好像没用过大型合作这种词，可能不是普通的代言cm，希望是电影或者村外电视剧 ...</blockquote>
 只是吐槽而已…记得当初姐姐团一单的时候贴过明治巧克力的广告？在窗帘里互相喂巧克力<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1284,74 +882,33 @@ ZIP!水曜日は山口達也がニッポンの朝にエールを送ります。
 ##### 1534#       发表于 2018-2-14 14:23
 
 
-
-
 看这单摄影抓拍不错，查了下上了这么个玩意儿。合作不够大的话都对不起租金了
-
-
-
-
 
 
 QQ图片20180214152239.png
 (661.71 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2018-2-14 14:23 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/14/152301dzaeaqaeqqtesshm.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 QQ图片20180214152246.png
 (59.22 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2018-2-14 14:23 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/14/152309xb622b6q72zqexi4.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -1360,14 +917,7 @@ QQ图片20180214152246.png
 ##### 1535#       发表于 2018-2-14 15:07
 
 
-
-
 这单的名字叫  我，欅坂，打钱。担心小平甩头甩出脑震荡，看MV现场又得往地板上摔了。
-
-
-
-
-
 
 
 -----
@@ -1376,21 +926,13 @@ QQ图片20180214152246.png
 ##### 1536#       发表于 2018-2-14 16:55
 
 
-
-
 这摄像机是专门拍快动作的？看报道吹的很多
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1537#       发表于 2018-2-14 17:23
-
 
 
  本帖最后由 芍药 于 2018-2-14 17:33 编辑 
@@ -1400,16 +942,10 @@ QQ图片20180214152246.png
 如果是欅的事情可能跟这个“大型合作”有关（好莱坞电影主题曲<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">超超超大型合作），但应该没必要带平手过去，我猜是美片的日语配音试镜
 
 
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 1538#       发表于 2018-2-14 17:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38559265&amp;ptid=1340143" target="_blank">芍药 发表于 2018-2-14 17:23</a>
@@ -1419,26 +955,13 @@ QQ图片20180214152246.png
 美片…黑豹？碟中谍？妇联？
 
 
-
-
-
-
-
 -----
 
 ####  lekbrandy  
 ##### 1539#       发表于 2018-2-15 02:07
 
 
-
-
-
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -1447,20 +970,13 @@ QQ图片20180214152246.png
 ##### 1540#       发表于 2018-2-15 02:10
 
 
-
 <blockquote>lekbrandy 发表于 2018-2-15 02:07
 -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
 (・ω&lt; )★
 
 
-
-
-
-
 -dc2be354f368a36.jpg
 (40.64 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -1469,24 +985,7 @@ QQ图片20180214152246.png
 2018-2-15 02:09 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/15/020915u4cdcd9afukzn3fk.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -1495,23 +994,16 @@ QQ图片20180214152246.png
 ##### 1541#       发表于 2018-2-15 02:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38559034&amp;ptid=1340143" target="_blank">芍药 发表于 2018-2-14 17:55</a>
 
 这摄像机是专门拍快动作的？看报道吹的很多</blockquote>
 6个自由度，目前世界最快的机械臂，配合高速摄像机可以用来抓拍各种运动镜头。
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1542#       发表于 2018-2-15 03:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38559394&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2018-2-14 18:36</a>
@@ -1524,32 +1016,19 @@ QQ图片20180214152246.png
 既然是歌的tie-up的话，无外乎广告歌和电影主题歌/印象曲这两种。然后6单主打MV已经放出来了，还真不太好猜到底是什么。所有人的衣服都是MA-1的两面可穿的长款外衣，拉链坠子上写着KEYAKIZAKA，网店还没见到卖，只是平手和其他人反过来穿。但如果只是这个牌子的话那说大型tie-up也有点吹过了。可以脑洞的线索有2个，一个是MA-1本身是做飞行员夹克起家的；另一个是仔细看每个成员都挂了一套狗牌，上面很正式地写了名字，姓氏，出身日期和所属（KEYAKIZAKA46）
 
 
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 1543#       发表于 2018-2-15 18:16
 
 
-
-
 6单封面出来贺新春了！这次还得一set！
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1544#       发表于 2018-2-15 18:24
-
 
 
  本帖最后由 芍药 于 2018-2-16 01:06 编辑 
@@ -1566,9 +1045,6 @@ QQ图片20180214152246.png
 2018-2-15 17:51 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/15/175153c29e8lll2fqfei9z.jpg" referrerpolicy="no-referrer">
 
 
@@ -1577,9 +1053,6 @@ QQ图片20180214152246.png
 下载附件
 
 2018-2-15 17:51 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/15/175152pf4j5j74nt4jpfjq.jpg" referrerpolicy="no-referrer">
@@ -1592,9 +1065,6 @@ QQ图片20180214152246.png
 2018-2-15 17:51 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/15/175152eaqxqmw5iqzaxwdb.jpg" referrerpolicy="no-referrer">
 
 
@@ -1603,9 +1073,6 @@ QQ图片20180214152246.png
 下载附件
 
 2018-2-15 17:51 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/15/175151pja4eqqn1qeqetd5.jpg" referrerpolicy="no-referrer">
@@ -1618,9 +1085,6 @@ QQ图片20180214152246.png
 2018-2-15 17:51 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/15/175150ubbj6lluuiubu3bu.jpg" referrerpolicy="no-referrer">
 
 
@@ -1629,12 +1093,6 @@ QQ图片20180214152246.png
 下载附件
 
 2018-2-15 17:51 上传
-
-
-
-
-
-
 
 
 六单一抽，泉号林京马775睡梨理小坂miho一抽切，小坂跟miho还会加部，假二这势头有点像乃3的感觉了有特别突出的人整体都不差
@@ -1651,8 +1109,6 @@ QQ图片20180214152246.png
 2018-2-15 17:56 上传
 
 
-
-
 <blockquote>個握完売数 
 
 5th一次 
@@ -1664,7 +1120,6 @@ QQ图片20180214152246.png
 6th一次 
 
 402/831</blockquote>跟上单的对比
-
 
 
 一单九千万播放 <blockquote>172,752,010 前前前世/RADWIMPS 
@@ -1701,9 +1156,6 @@ QQ图片20180214152246.png
 下载附件
 
 2018-2-15 18:04 上传
-
-
-
 
 
  <blockquote>欅坂46YouTube再生回数200万PV達成時間 
@@ -1743,19 +1195,10 @@ QQ图片20180214152246.png
 经过红白认知度上升之后，这单tie得好的话有超过四单成绩的可能，看配信怎样
 
 
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1545#       发表于 2018-2-18 20:28
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/18/202713op9pn4tu9czygtti.jpg" referrerpolicy="no-referrer">
@@ -1768,9 +1211,6 @@ QQ图片20180214152246.png
 2018-2-18 20:27 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/18/202712tpj7jltle8zfqooj.jpg" referrerpolicy="no-referrer">
 
 
@@ -1779,9 +1219,6 @@ QQ图片20180214152246.png
 下载附件
 
 2018-2-18 20:27 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/18/202710fn7hao7wf5kazr37.jpg" referrerpolicy="no-referrer">
@@ -1794,9 +1231,6 @@ QQ图片20180214152246.png
 2018-2-18 20:27 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/18/202709nwrv34zo6dho64ia.jpg" referrerpolicy="no-referrer">
 
 
@@ -1807,16 +1241,7 @@ QQ图片20180214152246.png
 2018-2-18 20:27 上传
 
 
-
-
-
-
 两年间的变化，基本上都成熟了（除了小号不老容颜以外）
-
-
-
-
-
 
 
 -----
@@ -1825,9 +1250,7 @@ QQ图片20180214152246.png
 ##### 1546#       发表于 2018-2-20 00:23
 
 
-
  本帖最后由 芍药 于 2018-2-20 00:56 编辑 
-
 
 
 原来tie的是NTT docomo的CM，这个级别确实是大型合作了。
@@ -1847,10 +1270,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 2018-2-20 00:26 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/20/002633qyjizi8uyuzprr84.jpg" referrerpolicy="no-referrer">
 
 
@@ -1859,9 +1278,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 下载附件
 
 2018-2-20 00:26 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/20/003250h48ql5ul6guc108c.png" referrerpolicy="no-referrer">
@@ -1874,19 +1290,7 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 2018-2-20 00:32 上传
 
 
-
-
-
-
-
 假名的歌，努力坚持梦想，传统的偶像风格
-
-
-
-
-
-
-
 
 
 -----
@@ -1895,22 +1299,13 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 ##### 1547#       发表于 2018-2-20 23:23
 
 
-
-
 6单是tie日本移动的，怕是广告天天见了
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1548#       发表于 2018-2-20 23:49
-
-
 
 
 这单的公式照，泉马睡土梨芽依小坂丹生都拍得不错
@@ -1925,9 +1320,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 2018-2-20 23:48 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/20/234808jr0eota0fzmu4o4u.jpg" referrerpolicy="no-referrer">
 
 
@@ -1936,9 +1328,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 下载附件
 
 2018-2-20 23:48 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/20/234806bvcv4e0420av3ztt.jpg" referrerpolicy="no-referrer">
@@ -1951,9 +1340,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 2018-2-20 23:48 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/20/234804y8nwwhkqu883bqn5.jpg" referrerpolicy="no-referrer">
 
 
@@ -1962,9 +1348,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 下载附件
 
 2018-2-20 23:48 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/20/234802ei55zqdgadggfqmi.jpg" referrerpolicy="no-referrer">
@@ -1977,9 +1360,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 2018-2-20 23:48 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/20/234800nfcfcdd5nn8fmd5f.jpg" referrerpolicy="no-referrer">
 
 
@@ -1988,9 +1368,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 下载附件
 
 2018-2-20 23:48 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/20/234758h2gtaxueirz2x6gi.jpg" referrerpolicy="no-referrer">
@@ -2003,9 +1380,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 2018-2-20 23:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/20/234756mev5hh95lrxvf5xx.jpg" referrerpolicy="no-referrer">
 
 
@@ -2014,9 +1388,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 下载附件
 
 2018-2-20 23:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/20/234754jkkym6yo96mo773b.jpg" referrerpolicy="no-referrer">
@@ -2029,9 +1400,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 2018-2-20 23:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/20/234751hi55utt05woievwc.jpg" referrerpolicy="no-referrer">
 
 
@@ -2040,9 +1408,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 下载附件
 
 2018-2-20 23:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/20/234749of36fxn42qqq6wii.jpg" referrerpolicy="no-referrer">
@@ -2055,9 +1420,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 2018-2-20 23:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/20/234747xismmx2iu2ieijeu.jpg" referrerpolicy="no-referrer">
 
 
@@ -2066,9 +1428,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 下载附件
 
 2018-2-20 23:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/20/234745se1fe95sm5lcqccf.jpg" referrerpolicy="no-referrer">
@@ -2081,9 +1440,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 2018-2-20 23:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/20/234743g7ikyr7icirvwuy7.jpg" referrerpolicy="no-referrer">
 
 
@@ -2092,9 +1448,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 下载附件
 
 2018-2-20 23:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/20/234741yc75l7z185f77see.jpg" referrerpolicy="no-referrer">
@@ -2107,9 +1460,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 2018-2-20 23:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/20/234739ci0bn0yd29y29j39.jpg" referrerpolicy="no-referrer">
 
 
@@ -2118,9 +1468,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 下载附件
 
 2018-2-20 23:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/20/234737dzg7tc7cot3utt1r.jpg" referrerpolicy="no-referrer">
@@ -2133,9 +1480,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 2018-2-20 23:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/20/234735aat8d8j39bt83tg3.jpg" referrerpolicy="no-referrer">
 
 
@@ -2144,9 +1488,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 下载附件
 
 2018-2-20 23:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/20/234733d11f1iq9hwdp0hgg.jpg" referrerpolicy="no-referrer">
@@ -2159,9 +1500,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 2018-2-20 23:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/20/234731wphstvrt7az7t3xs.jpg" referrerpolicy="no-referrer">
 
 
@@ -2170,9 +1508,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 下载附件
 
 2018-2-20 23:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/20/234729spj55pq1bxbpz55a.jpg" referrerpolicy="no-referrer">
@@ -2185,9 +1520,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 2018-2-20 23:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/20/234727jf6xp7ap413qlzyy.jpg" referrerpolicy="no-referrer">
 
 
@@ -2196,9 +1528,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 下载附件
 
 2018-2-20 23:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/20/234725o8s8kr3szd38ta5m.jpg" referrerpolicy="no-referrer">
@@ -2211,9 +1540,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 2018-2-20 23:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/20/234723u1nt5n3d006knz0l.jpg" referrerpolicy="no-referrer">
 
 
@@ -2222,9 +1548,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 下载附件
 
 2018-2-20 23:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/20/234721zop3h7hsv4x7bcbu.jpg" referrerpolicy="no-referrer">
@@ -2237,9 +1560,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 2018-2-20 23:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/20/234719f96z8ud2573hz6h0.jpg" referrerpolicy="no-referrer">
 
 
@@ -2248,9 +1568,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 下载附件
 
 2018-2-20 23:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/20/234717rnkx9ozpc9kkm3ph.jpg" referrerpolicy="no-referrer">
@@ -2263,9 +1580,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 2018-2-20 23:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/20/234715lhtqzb4acdhhroax.jpg" referrerpolicy="no-referrer">
 
 
@@ -2274,9 +1588,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 下载附件
 
 2018-2-20 23:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/20/234713bsk7khd9k9n39ce6.jpg" referrerpolicy="no-referrer">
@@ -2289,9 +1600,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 2018-2-20 23:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/20/234711t0pqmhj8a8kkivvv.jpg" referrerpolicy="no-referrer">
 
 
@@ -2300,9 +1608,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 下载附件
 
 2018-2-20 23:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/20/234709nj772ip7etfe9512.jpg" referrerpolicy="no-referrer">
@@ -2315,9 +1620,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 2018-2-20 23:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/20/234707hrpwdtagam6dqt4c.jpg" referrerpolicy="no-referrer">
 
 
@@ -2326,9 +1628,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 下载附件
 
 2018-2-20 23:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/20/234705v5ukifwyrtwi5x9w.jpg" referrerpolicy="no-referrer">
@@ -2341,9 +1640,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 2018-2-20 23:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/20/234703v58yroy84ibxb0gh.jpg" referrerpolicy="no-referrer">
 
 
@@ -2352,9 +1648,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 下载附件
 
 2018-2-20 23:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/20/234701kchr3mmm3m37iloq.jpg" referrerpolicy="no-referrer">
@@ -2367,9 +1660,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 2018-2-20 23:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/20/234659lq4b5b955i4zwqn4.jpg" referrerpolicy="no-referrer">
 
 
@@ -2378,9 +1668,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 下载附件
 
 2018-2-20 23:46 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/20/234657ttfk71ttgvtg5geb.jpg" referrerpolicy="no-referrer">
@@ -2393,9 +1680,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 2018-2-20 23:46 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/20/234655oo2m2z507o7bls5e.jpg" referrerpolicy="no-referrer">
 
 
@@ -2404,9 +1688,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 下载附件
 
 2018-2-20 23:46 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/20/234653gc10zlic6llyq9am.jpg" referrerpolicy="no-referrer">
@@ -2419,9 +1700,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 2018-2-20 23:46 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/20/234652v8k0xxj08vff1x4x.jpg" referrerpolicy="no-referrer">
 
 
@@ -2430,9 +1708,6 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 下载附件
 
 2018-2-20 23:46 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/20/234651pan62o907ffxh2nn.jpg" referrerpolicy="no-referrer">
@@ -2445,22 +1720,10 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 2018-2-20 23:46 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  cqc1021  
 ##### 1549#       发表于 2018-2-21 00:53
-
-
 
 
 田田的发色有优势啊，而且本身皮肤也白，从上拉下来看到田田瞬间一亮。
@@ -2468,16 +1731,10 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1550#       发表于 2018-2-21 16:37
-
 
 
  本帖最后由 芍药 于 2018-2-21 16:42 编辑 
@@ -2493,12 +1750,7 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 2018-2-21 16:36 上传
 
 
-
-
-
-
 吉本坂是个好兆头，说明坂道这个牌子有值得tie的规模了。新团不抢紫绿的饭，之后肯定是以电视综艺为主，时不时请成员过去上上节目，偶像圈跟电视艺人圈之间的交叉，没有什么坏处。<blockquote>吉村が「恋愛禁止なんですか？」と質問すると、藤原氏は「禁止……ですかね？」と曖昧に回答。河本ら既婚者組から「結婚してるわ！」と総ツッコミが入っていた。さらに、「しずる」の池田一真から「ギャラの配分は？」とシビアな質問が飛ぶと、苦笑いで「東京ドーム目指して頑張っていきましょう！」と煙に巻いた。河本は、戸惑いながらも「<strong>ライバルは（「欅坂46」の）平手（友梨奈）ちゃん！」と意気込んでいた</strong>。</blockquote>
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/21/163342v8nvg3cgc88zw1z7.jpg" referrerpolicy="no-referrer">
@@ -2511,16 +1763,7 @@ docomo之前出过不少hit曲，这次30S完整版给了一小段live的片段�
 2018-2-21 16:33 上传
 
 
-
-
-
-
 NTT官网四人组
-
-
-
-
-
 
 
 -----
@@ -2529,21 +1772,13 @@ NTT官网四人组
 ##### 1551#       发表于 2018-2-21 17:08
 
 
-
-
 假名坂这身我喜欢，原本看欅坂就是军服类制服吸引过去的，上单先不提，这单这个实在是，假名坂抚慰了我。
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1552#       发表于 2018-2-22 13:43
-
 
 
  本帖最后由 芍药 于 2018-2-22 23:04 编辑 
@@ -2560,9 +1795,6 @@ NTT官网四人组
 2018-2-22 13:38 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/22/133935s8j0m05xu0z1qgj8.jpg" referrerpolicy="no-referrer">
 
 
@@ -2571,10 +1803,6 @@ NTT官网四人组
 下载附件
 
 2018-2-22 13:39 上传
-
-
-
-
 
 
  <blockquote>4th 
@@ -2610,17 +1838,10 @@ NTT官网四人组
 [2期] 105/108(97.2%)</blockquote>
 
 
-
-
-
-
-
-
 -----
 
 ####  EFSF  
 ##### 1553#       发表于 2018-2-22 14:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38563302&amp;ptid=1340143" target="_blank">dxxtiger 发表于 2018-2-15 03:00</a>
@@ -2635,28 +1856,16 @@ MA-1是Alpha industry短款飞行员夹克的一个固定款式名称……所�
 不过其他品牌仿的类似款和改良款也很多，所以和这个应该无关。
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1554#       发表于 2018-2-23 16:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38631601&amp;ptid=1340143" target="_blank">EFSF 发表于 2018-2-22 15:29</a>
 
 MA-1是Alpha industry短款飞行员夹克的一个固定款式名称……所有仿Alpha industry的短款夹克都是MA-1款， ...</blockquote>
 主要是日本这边新闻上说穿的是MA-1，但明明不是飞行夹克款，不知道是不是日本这边以讹传讹了。顺便合作已经确定是docomo了。
-
-
-
-
-
-
 
 
 -----
@@ -2667,13 +1876,10 @@ MA-1是Alpha industry短款飞行员夹克的一个固定款式名称……所�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 1556#       发表于 2018-2-24 20:42
-
-
 
 
 饭拍的图很多很不错，比生写强五倍
@@ -2690,9 +1896,6 @@ MA-1是Alpha industry短款飞行员夹克的一个固定款式名称……所�
 2018-2-24 20:36 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/24/203635njowlzdpsjk5dp4j.jpg" referrerpolicy="no-referrer">
 
 
@@ -2701,9 +1904,6 @@ MA-1是Alpha industry短款飞行员夹克的一个固定款式名称……所�
 下载附件
 
 2018-2-24 20:36 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/24/203840wvlthl11pm1vluzl.jpg" referrerpolicy="no-referrer">
@@ -2716,9 +1916,6 @@ MA-1是Alpha industry短款飞行员夹克的一个固定款式名称……所�
 2018-2-24 20:38 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201802/24/203903f4rcyyhtrseq4kqs.jpg" referrerpolicy="no-referrer">
 
 
@@ -2729,18 +1926,7 @@ MA-1是Alpha industry短款飞行员夹克的一个固定款式名称……所�
 2018-2-24 20:39 上传
 
 
-
-
-
-
-
-
 睡池尾的MV太甜<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">要是能加上号葵进去就无憾了
-
-
-
-
-
 
 
 -----
@@ -2749,24 +1935,15 @@ MA-1是Alpha industry短款飞行员夹克的一个固定款式名称……所�
 ##### 1557#       发表于 2018-2-24 21:51
 
 
-
-
 睡太后可爱死了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1558#       发表于 2018-2-26 01:38
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201802/26/013526eww4cgq94w2h4hqq.png" referrerpolicy="no-referrer">
@@ -2779,23 +1956,13 @@ MA-1是Alpha industry短款飞行员夹克的一个固定款式名称……所�
 2018-2-26 01:35 上传
 
 
-
-
-
-
 泉的blog，算是对最近传言的回应了（小号美大跟五妹有矛盾），不管是真是假握手会上成员压力都会很大
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1559#       发表于 2018-2-28 10:06
-
 
 
  本帖最后由 芍药 于 2018-2-28 11:55 编辑 
@@ -2816,16 +1983,10 @@ MA-1是Alpha industry短款飞行员夹克的一个固定款式名称……所�
 这单坂道AKB阵容有够晚的，不像上年那样专门搞个企划公布应该是不会有什么大意外，开闭单C或者WC，紫绿各出两人站一排
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1560#       发表于 2018-2-28 21:13
-
 
 
  本帖最后由 芍药 于 2018-3-1 16:54 编辑 
@@ -2835,16 +1996,10 @@ MA-1是Alpha industry短款飞行员夹克的一个固定款式名称……所�
 纯机械舞不错，配合MV主题“批量生产的偶像”很适合
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1561#       发表于 2018-3-1 18:54
-
 
 
  本帖最后由 芍药 于 2018-3-1 19:15 编辑 
@@ -2861,9 +2016,6 @@ Docomo 三月刊 平手封面，睡觉banner，平睡W渡边内页  全员地�
 2018-3-1 17:49 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/01/174954ubfuvfpfzknbpfvb.jpg" referrerpolicy="no-referrer">
 
 
@@ -2872,9 +2024,6 @@ Docomo 三月刊 平手封面，睡觉banner，平睡W渡边内页  全员地�
 下载附件
 
 2018-3-1 17:49 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/01/174953rds5mmpz5s92oszp.jpg" referrerpolicy="no-referrer">
@@ -2887,9 +2036,6 @@ Docomo 三月刊 平手封面，睡觉banner，平睡W渡边内页  全员地�
 2018-3-1 17:49 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/01/174952l0ah4s4rzkesy1ag.jpg" referrerpolicy="no-referrer">
 
 
@@ -2900,9 +2046,6 @@ Docomo 三月刊 平手封面，睡觉banner，平睡W渡边内页  全员地�
 2018-3-1 17:49 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/01/174951g1esf4f5lff0suem.jpg" referrerpolicy="no-referrer">
 
 
@@ -2911,13 +2054,6 @@ Docomo 三月刊 平手封面，睡觉banner，平睡W渡边内页  全员地�
 下载附件
 
 2018-3-1 17:49 上传
-
-
-
-
-
-
-
 
 
 3抽，5人完售，假2全部卖完，希望运营别这么快开30部假二别这么快开24部，不急着冲实体销量
@@ -2935,11 +2071,6 @@ Docomo 三月刊 平手封面，睡觉banner，平睡W渡边内页  全员地�
 2018-3-1 17:49 上传
 
 
-
-
-
-
-
 假名CW美玲C，有点假名团歌的感觉，临时受命武道馆live要向世人证明自己
 
 <img src="https://img.saraba1st.com/forum/201803/01/175709a9c9ivn1i1niqnq1.png" referrerpolicy="no-referrer">
@@ -2952,13 +2083,7 @@ Docomo 三月刊 平手封面，睡觉banner，平睡W渡边内页  全员地�
 2018-3-1 17:57 上传
 
 
-
-
-
-
-
 坂道AKB的歌个人感觉一般般，不像上次“你最爱的是谁”那样撕逼而是“无国界”大家相亲相爱，从音源来听有点像睡鸟双C，难道AKS又一次“丧权辱国”了？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
 
 
 京子在fu的showroom里面透露，运营不建议假名在武道馆上面跳不协和音
@@ -2974,12 +2099,6 @@ Docomo 三月刊 平手封面，睡觉banner，平睡W渡边内页  全员地�
 2018-3-1 18:10 上传
 
 
-
-
-
-
-
-
 小坂单封
 
 <img src="https://img.saraba1st.com/forum/201803/01/183608rc8e1yiiei8ce3h9.jpg" referrerpolicy="no-referrer">
@@ -2990,10 +2109,6 @@ Docomo 三月刊 平手封面，睡觉banner，平睡W渡边内页  全员地�
 下载附件
 
 2018-3-1 18:36 上传
-
-
-
-
 
 
 <strong>集英社×欅坂46合作第2弾</strong> <blockquote>第3回ジャンプホラー小説大賞銀賞受賞 
@@ -3020,19 +2135,9 @@ Docomo 三月刊 平手封面，睡觉banner，平睡W渡边内页  全员地�
 2018-3-1 18:50 上传
 
 
-
-
-
-
-
 [https://weibo.com/6051787821/G5h ... t#_rnd1519902070719](https://weibo.com/6051787821/G5h9U7Ou5?from=page_1005056051787821_profile&amp;wvr=6&amp;mod=weibotime&amp;type=comment#_rnd1519902070719)
 
 林理对于新单，夏巡武道馆平手不在的看法，我觉得算是打个预防针了，这单平手如果不在就由Wyui当双C带队
-
-
-
-
-
 
 
 -----
@@ -3041,15 +2146,9 @@ Docomo 三月刊 平手封面，睡觉banner，平睡W渡边内页  全员地�
 ##### 1562#       发表于 2018-3-2 04:25
 
 
-
  本帖最后由 芍药 于 2018-3-2 04:30 编辑 
 
 坂道akb这次是睡c，果然还是资源换话题顺便虐开闭饭的肾，这次轮到睡觉卷入舆论风暴了，乖乖躺平
-
-
-
-
-
 
 
 -----
@@ -3058,15 +2157,9 @@ Docomo 三月刊 平手封面，睡觉banner，平睡W渡边内页  全员地�
 ##### 1563#       发表于 2018-3-2 08:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38713649&amp;ptid=1340143" target="_blank">芍药 发表于 2018-3-2 04:25</a>
 坂道akb这次是睡c，果然还是资源换话题顺便虐开闭饭的肾，这次轮到睡觉卷入舆论风暴了，乖乖躺平 ...</blockquote>
 只要不去圈吧没什么风暴…猫头都没什么大水花
-
-
-
-
-
 
 
 -----
@@ -3075,16 +2168,9 @@ Docomo 三月刊 平手封面，睡觉banner，平睡W渡边内页  全员地�
 ##### 1564#       发表于 2018-3-2 08:23
 
 
-
-
 坂道AKB索尼出了大力的吧，从mv水准来说观感比主打那个荧光笔广告好多了
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -3093,14 +2179,7 @@ Docomo 三月刊 平手封面，睡觉banner，平睡W渡边内页  全员地�
 ##### 1565#       发表于 2018-3-2 09:46
 
 
-
-
 抛开鸠占鹊巢的情况，最大的问题在于这种做法有点示弱的感觉了：已经没有什么水花可以溅起来，用这种割肉的做法来增强饭群凝聚力别内部撕逼统一对外吧。话题热度固然是得到了，就不怕饮鸩止渴一年虐一出开闭的饭群失望退坑么
-
-
-
-
-
 
 
 -----
@@ -3111,7 +2190,6 @@ Docomo 三月刊 平手封面，睡觉banner，平睡W渡边内页  全员地�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  原始恶魔  
@@ -3120,21 +2198,13 @@ Docomo 三月刊 平手封面，睡觉banner，平睡W渡边内页  全员地�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Loony  
 ##### 1568#       发表于 2018-3-2 10:25
 
 
-
-
 明年坂道akb是小渡边C呢，还是小坂C呢
-
-
-
-
-
 
 
 -----
@@ -3143,16 +2213,10 @@ Docomo 三月刊 平手封面，睡觉banner，平睡W渡边内页  全员地�
 ##### 1569#       发表于 2018-3-2 15:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38715280&amp;ptid=1340143" target="_blank">Loony 发表于 2018-3-2 11:25</a>
 
 明年坂道akb是小渡边C呢，还是小坂C呢</blockquote>
 去年的平有出道上红白和最年少单C，今年的睡有写真集17w+在偶像同辈（白麻算前辈了）里最高这些有一定路人知名度的名分，小坂还是先进坂道AKB吧。
-
-
-
-
-
 
 
 -----
@@ -3161,20 +2225,13 @@ Docomo 三月刊 平手封面，睡觉banner，平睡W渡边内页  全员地�
 ##### 1570#       发表于 2018-3-2 15:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">  鬼子那边的评论依然非常安定 没什么变化  CBS这种给坂道丢人的货色在TAKAHIRO老师完美编排出了 一幕 众花插屎 笑炸了
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1571#       发表于 2018-3-3 18:27
-
 
 
  本帖最后由 芍药 于 2018-3-3 22:49 编辑 
@@ -3188,11 +2245,6 @@ Docomo 三月刊 平手封面，睡觉banner，平睡W渡边内页  全员地�
 下载附件
 
 2018-3-3 22:46 上传
-
-
-
-
-
 
 
 二周年con，跟有明差不多大小场地能容纳一万人
@@ -3210,26 +2262,10 @@ Docomo 三月刊 平手封面，睡觉banner，平睡W渡边内页  全员地�
 2018-3-3 22:49 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1572#       发表于 2018-3-3 22:32
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/03/223218g8f8owjodjuxo00n.jpg" referrerpolicy="no-referrer">
@@ -3242,9 +2278,6 @@ Docomo 三月刊 平手封面，睡觉banner，平睡W渡边内页  全员地�
 2018-3-3 22:32 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/03/223219mjzm6mv16vwwbmww.jpg" referrerpolicy="no-referrer">
 
 
@@ -3253,11 +2286,6 @@ Docomo 三月刊 平手封面，睡觉banner，平睡W渡边内页  全员地�
 下载附件
 
 2018-3-3 22:32 上传
-
-
-
-
-
 
 
 石森虹花「子供に夢を与えたいと思った瞬間、僕は子供じゃなくなった。」
@@ -3303,26 +2331,13 @@ Docomo 三月刊 平手封面，睡觉banner，平睡W渡边内页  全员地�
 渡邉理佐「卒業するとき、スマホは傷だらけ。その傷が、僕を大人にする。」
 
 
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 1573#       发表于 2018-3-4 16:53
 
 
-
-
 现场版碎玻璃小平栗子志田都不在啊……wyui双c
-
-
-
-
-
 
 
 -----
@@ -3331,22 +2346,15 @@ Docomo 三月刊 平手封面，睡觉banner，平睡W渡边内页  全员地�
 ##### 1574#       发表于 2018-3-4 17:36
 
 
-
  本帖最后由 芍药 于 2018-3-4 17:38 编辑 
 
 过呼吸三人组都不在(平手说不定还在美国没回来)，如果下周Ms还不在基本就确定平手去美帝留学了，到时候炎上黑挑酸太美不敢看，下单谁顶上压力都爆炸的高，不如再玩大点让小坂小渡边双c彻底点爆饭圈来饭圈大厮杀
-
-
-
-
-
 
 
 -----
 
 ####  lekbrandy  
 ##### 1575#       发表于 2018-3-4 17:45
-
 
 
  本帖最后由 lekbrandy 于 2018-3-4 17:53 编辑 
@@ -3366,17 +2374,10 @@ wyui都挺好的，不过这里大概是平推平吹集合地，没几个人这�
 —— 来自 Xiaomi MI 6, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1576#       发表于 2018-3-4 19:10
-
-
 
 
 这个现场版碎玻璃，剩下的人也都很努力了，但排除努力之后真的是……真的是这团第一次给人的冲击力弱于MV的现场版，是比以前作出了改变，改变的结果就是肥秋系出道不到2年的团的应有水平。肥秋系生唱一直是为人诟病的地方，绿团一直以来的现场就是靠着现场的队形变换，舞蹈编排让人没空去想这个问题，哪怕是去年底的避雷针现场几乎没人开口下面观众都没反应过来，直到视频版出来仔细看才发现。
@@ -3385,16 +2386,10 @@ wyui都挺好的，不过这里大概是平推平吹集合地，没几个人这�
 今天这个版本的碎玻璃，缺了3个人的情况下整个队形已经很乱了：哈布和其他人中间隔出一大块空白成了场外劲舞；咪酱的地板动作挺好的但可能原先设计应该有栗子在对位的动作，现在来说放送可以靠镜头救但现场可能会显得突兀的；wyui不适合在这首歌双c，身高差互怼镜头的观感比较微妙，中间的人一个手势然后两侧伏身的部分一个人看左一个人看右也是表现不出“全员向着一个目标前进”的精神的；睡睡把wyui分开那个镜头睡睡应该是代役的，不然她身高不够从正中间出来那一下无论怎么尽力视觉冲击力都差了一点。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1577#       发表于 2018-3-4 23:30
-
 
 
  本帖最后由 芍药 于 2018-3-5 00:05 编辑 
@@ -3410,17 +2405,9 @@ wyui都挺好的，不过这里大概是平推平吹集合地，没几个人这�
 2018-3-4 23:27 上传
 
 
-
-
-
 MS确定不在
 
 今晚欅写也不在，就看二周年con抽票完的时候会不会正式公布消息了
-
-
-
-
-
 
 
 -----
@@ -3429,14 +2416,7 @@ MS确定不在
 ##### 1578#       发表于 2018-3-4 23:47
 
 
-
-
 这个完全浪费了wyui和睡睡长处的现场能有人说好也是醉了。wyui的特点就是完美互补，但在表现对抗的那个镜头整个队形完全失去平衡感，这里换w渡边或者渣酷或者土生xRisa或者w壕效果能好很多。把w分开那里，睡睡的气质太柔了应该换马或者鸭这种气场比较强的。确实这次镜头比较平均，但整个队伍的魄力是不够的，舞蹈剧烈加上队形变化快，这种标准偶像团式的轮流给近景的拍法导致镜头和视线疲于奔命，要改进的地方多了去了……
-
-
-
-
-
 
 
 -----
@@ -3445,14 +2425,7 @@ MS确定不在
 ##### 1579#       发表于 2018-3-4 23:54
 
 
-
-
 这是啥
-
-
-
-
-
 
 
 -----
@@ -3461,16 +2434,9 @@ MS确定不在
 ##### 1580#       发表于 2018-3-5 00:05
 
 
-
-
 这集欅写的嘉宾有点厉害，不过跟Becky扯上关系真的合适吗？
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -3479,14 +2445,7 @@ MS确定不在
 ##### 1581#       发表于 2018-3-5 00:14
 
 
-
-
 瞬间以为桐谷美玲要出来了，不过翅膀来也是惊喜
-
-
-
-
-
 
 
 -----
@@ -3495,22 +2454,13 @@ MS确定不在
 ##### 1582#       发表于 2018-3-5 01:27
 
 
-
-
 这集的人都蛮出名的，特别是翅膀有点意外   下集可能是邀请搞笑艺人吧
-
-
-
-
-
 
 
 -----
 
 ####  dxxtiger  
 ##### 1583#       发表于 2018-3-5 04:34
-
-
 
 
 教主和小翅膀都很好，Becky可能是事务所之间的PY算是捞一把吧，她不算偶像艺人那事儿也不算致命伤。
@@ -3520,16 +2470,10 @@ MS确定不在
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1584#       发表于 2018-3-5 16:34
-
 
 
  本帖最后由 芍药 于 2018-3-6 19:08 编辑 
@@ -3589,14 +2533,7 @@ MS确定不在
 ##### 1585#       发表于 2018-3-6 18:11
 
 
-
-
 无国境的世界一开场的转身其实睡不笑摆个冷漠脸可能效果会更好点……然后中文饭圈一堆智障……有空写故事会和内讧不如去扛开闭的黑子（
-
-
-
-
-
 
 
 -----
@@ -3605,23 +2542,15 @@ MS确定不在
 ##### 1586#       发表于 2018-3-6 23:22
 
 
-
  本帖最后由 芍药 于 2018-3-6 23:27 编辑 
 
 饭群就这样，唯恐天下不乱。看着零星的信息脑补“凭什么”“说不定””早知道“，说着”不努力“”快让位“”我推碉堡你推垃圾“，多累
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1587#       发表于 2018-3-6 23:27
-
-
 
 
 这单实体累计能上90就算合格了，配信遇上lemon这个炸裂歌曲应该没法冠，希望能靠着NTT的cm长寿点
@@ -3636,9 +2565,6 @@ MS确定不在
 2018-3-6 23:24 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/06/232420jw43e3w8hs168f16.jpg" referrerpolicy="no-referrer">
 
 
@@ -3647,9 +2573,6 @@ MS确定不在
 下载附件
 
 2018-3-6 23:24 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/06/232421ucllublbzpvup5ur.jpg" referrerpolicy="no-referrer">
@@ -3662,9 +2585,6 @@ MS确定不在
 2018-3-6 23:24 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/06/232422c6b4ik84g2y2hmef.jpg" referrerpolicy="no-referrer">
 
 
@@ -3673,9 +2593,6 @@ MS确定不在
 下载附件
 
 2018-3-6 23:24 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/06/232422q9gs6emj966f6hks.jpg" referrerpolicy="no-referrer">
@@ -3688,22 +2605,10 @@ MS确定不在
 2018-3-6 23:24 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1588#       发表于 2018-3-7 22:01
-
-
 
 
 比上单初日多了15万，是两年来最大的涨幅，有红白因素有两个CM的因素加上握手部数多两百多部，大概80的初动如果今年红白继续唱春单的话累计91到92左右
@@ -3719,11 +2624,6 @@ MS确定不在
 2018-3-7 21:41 上传
 
 
-
-
-
-
-
 少年在日本，如果没认错的话应该是平手了  还待在LA
 
 <img src="https://img.saraba1st.com/forum/201803/07/214859wjypclxcbxtzpfyc.png" referrerpolicy="no-referrer">
@@ -3736,12 +2636,6 @@ MS确定不在
 2018-3-7 21:48 上传
 
 
-
-
-
-
-
-
 全曲的配信都不错，lemon太猛了希望主打能爬上第一呆几个小时再下来
 
 <img src="https://img.saraba1st.com/forum/201803/07/215328btm53q9gsgqqgqm9.png" referrerpolicy="no-referrer">
@@ -3752,9 +2646,6 @@ MS确定不在
 下载附件
 
 2018-3-7 21:53 上传
-
-
-
 
 
  <blockquote>**2 ガラスを割れ！/欅坂46**9 夜明けの孤独
@@ -3774,34 +2665,19 @@ MS确定不在
 124  不協和音</blockquote>
 
 
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 1589#       发表于 2018-3-9 08:06
 
 
-
-
 恭喜出货百万……
-
-
-
-
-
 
 
 -----
 
 ####  holyplumes  
 ##### 1590#       发表于 2018-3-9 08:22
-
-
 
 
 4月会去日本6-10号。
@@ -3811,17 +2687,10 @@ MS确定不在
 有没欅欅面基一下吃个饭，吹吹小偶像啊。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1591#       发表于 2018-3-9 15:24
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/09/151131npd2nzdjkx2njp3f.jpg" referrerpolicy="no-referrer">
@@ -3834,15 +2703,9 @@ MS确定不在
 2018-3-9 15:11 上传
 
 
-
-
-
-
 51-55-75-91-96-101，六单累计出货估计能到120左右，O榜数据累计大概95
 
 这速度真够快的，两年不到
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/09/145905vxpik8i494y5ypjj.png" referrerpolicy="no-referrer">
@@ -3855,12 +2718,7 @@ MS确定不在
 2018-3-9 14:59 上传
 
 
-
-
-
-
 这次二周年con汉字专属，名义上是汉字出道二周年live所以假名不参与，官方口吻是平手因为日程原因不上live。之后平手应该不会出现在欅的活动里面了，但如果电影的事是真的那她下半年还是要回日本做宣传，毕业起码也要等明年到时候看欅的发展情况。
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/09/151852zrlg5ucyg8uy8u93.png" referrerpolicy="no-referrer">
@@ -3873,24 +2731,11 @@ MS确定不在
 2018-3-9 15:18 上传
 
 
-
-
-
-
 今晚的MS鸭鸭说有特别演出，歌曲串烧？
 
  <blockquote>【明日OA】3月9日24:20〜24:40放送の「#欅坂46 こちら有楽町星空放送局」では、こち星メインパーソナリティーのバトンタッチ回をお送りします。いつもと変わらず、まったりゆったり聞いてもらえればと思います。#欅坂46こち星
 
 — 欅坂46こちら有楽町星空放送局 (@kochihoshi) March 8, 2018</blockquote>今晚的这里星涉及到主MC交棒的事，之前主MC是平手今年初交给了睡觉，今晚讲的不知道是将交棒给睡觉这事明确化还是再交给下一位成员
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -3899,10 +2744,8 @@ MS确定不在
 ##### 1592#       发表于 2018-3-9 15:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38795707&amp;ptid=1340143" target="_blank">芍药 发表于 2018-03-09 15:24:50</a>
 今晚的MS鸭鸭说有特别演出，歌曲串烧？
-
 
 
 今晚的这里星涉及到主MC交棒的事，之前主MC是平手今年初交给了睡 ...</blockquote>毕业至少要做一张毕业单的，而且没什么必要现在就毕业，况且从当初招待会的舞蹈部选了最小的平手做c也是为了能留长点。
@@ -3914,25 +2757,13 @@ MS确定不在
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1593#       发表于 2018-3-9 20:40
 
 
-
-
 今天的MS，就表演来说是比上次进步了，但挂衣服和wyui换衣服这里，在运营完全不公告平手人去向而且极度封锁消息任凭流言扩散的情况下，除了激怒已经被溜了很久的平推完全没什么意义啊……
-
-
-
-
-
 
 
 -----
@@ -3943,12 +2774,10 @@ MS确定不在
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 1595#       发表于 2018-3-9 21:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38795927&amp;ptid=1340143" target="_blank">dxxtiger 发表于 2018-3-9 15:42</a>
@@ -3957,27 +2786,15 @@ MS确定不在
 毕业肯定不会现在毕业，走之前告知外界是最起码的，所以我觉得是留学的可能性更大，让她离开一下之后是回来还是毕业到时候再做决定。特别是现在外界对欅坂成员的了解还仅限于她跟睡觉的情况下，如果在平手不在期间养不出下一个有认知度的人就太糟糕了
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1596#       发表于 2018-3-9 21:18
 
 
-
-
 顾左右而言他的马马喷了“平手今天没来吗？”“我们今天会加油的”，跟运营一样不给正面回应。这场MS算是正式宣告交棒了吧，开始的平手红色衣服之后Wyui换装，打算这样不做任何说明等平手回归么
 
 MS这场表演比起涉谷之音的表演进步了，睡觉跟Wyui的表现都好很多不过镜头缺点还是很明显太多特写了
-
-
-
-
-
 
 
 -----
@@ -3986,16 +2803,10 @@ MS这场表演比起涉谷之音的表演进步了，睡觉跟Wyui的表现都�
 ##### 1597#       发表于 2018-3-9 21:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38798993&amp;ptid=1340143" target="_blank">原始恶魔 发表于 2018-3-9 20:52</a>
 
 年底百万坨坨的</blockquote>
 以现在的成员受欢迎度来看下单假二开24部就能O榜上百万了，不过对于肥秋系来说百万就只是一个数字而已不如出另一首沉默来的帮助更大
-
-
-
-
-
 
 
 -----
@@ -4004,17 +2815,11 @@ MS这场表演比起涉谷之音的表演进步了，睡觉跟Wyui的表现都�
 ##### 1598#       发表于 2018-3-9 21:31
 
 
-
  本帖最后由 芍药 于 2018-3-9 21:33 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38798917&amp;ptid=1340143" target="_blank">dxxtiger 发表于 2018-3-9 20:40</a>
 
 今天的MS，就表演来说是比上次进步了，但挂衣服和wyui换衣服这里，在运营完全不公告平手人去向而且极度封锁 ...</blockquote>
 挂衣服加Wyui换装我倒是觉得还好每次MS的表演都会有一些新的变化，倒是马马的顾左右而言他有点失望（不是针对马马而是运营的态度）
-
-
-
-
-
 
 
 -----
@@ -4025,12 +2830,10 @@ MS这场表演比起涉谷之音的表演进步了，睡觉跟Wyui的表现都�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  dxxtiger  
 ##### 1600#       发表于 2018-3-9 21:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38799178&amp;ptid=1340143" target="_blank">芍药 发表于 2018-3-9 22:18</a>
@@ -4062,17 +2865,10 @@ MS这场进步的点在于：
 最后是吐槽：运营真心瞎JB操作，本来武道馆那次就已经严重激化深度饭圈里平手推和其他家推的矛盾了，虽然确实是不能没有平手就无法演出，但一边提这个一边不断用各种方式骗平推掏钱被骂也是活该了。
 
 
-
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1601#       发表于 2018-3-9 22:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38799272&amp;ptid=1340143" target="_blank">芍药 发表于 2018-3-9 22:31</a>
@@ -4081,16 +2877,10 @@ MS这场进步的点在于：
 这几天推上已经很多人在问什么情况了，而且从回森林的制作来说，运营方不可能不知道饭圈目前的内讧和怨气到了什么地步。从武道馆事件一来，平推和其他top推，汉字推和假名推之间可以说已经是怨气非常重了。实话说虽然是出道2周年纪念，但1周年的时候假名可是好好地参加了的吧……
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1602#       发表于 2018-3-10 00:22
-
 
 
  本帖最后由 芍药 于 2018-3-10 00:56 编辑 
@@ -4101,31 +2891,19 @@ MS这场进步的点在于：
 平推跟其他TOP推迟早都有公开互撕的一天，毕竟官推是原罪，能维持表面和谐一年多已经很难得了。只是平手这个“不开选拔”的象征不在，之后各推内讧不会断了：睡泉之间的二号位，栗子志田这两官推跟小号775这两个民推之间，汉字人气偏后成员跟假名人气靠前成员之间，假一跟假二top之间。想到这些都没心情混饭圈了，难得之前没那么多幺蛾子现在一次爆出来了。
 
 
-
-
-
-
-
 -----
 
 ####  衛藤美彩  
 ##### 1603#       发表于 2018-3-10 01:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">乃团绿团假名三者进行共同甄选
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1604#       发表于 2018-3-10 01:09
-
 
 
  本帖最后由 芍药 于 2018-3-10 01:18 编辑 
@@ -4137,14 +2915,8 @@ MS这场进步的点在于：
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
 8vdM8Sl.jpg
 (217.57 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -4153,24 +2925,7 @@ MS这场进步的点在于：
 2018-3-10 01:11 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/10/011105zbqllza4hug4lo7q.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -4179,22 +2934,15 @@ MS这场进步的点在于：
 ##### 1605#       发表于 2018-3-10 01:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38800838&amp;ptid=1340143" target="_blank">芍药 发表于 2018-3-10 01:09</a>
 大征兵，接着来总选举，团推消失全部变为单推。乃饭感觉怎么样我不清楚，作为欅饭我有一股完蛋的感觉了。[ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">开闭16期饭心情稳定
-
-
-
-
-
 
 
 -----
 
 ####  是这样  
 ##### 1606#       发表于 2018-3-10 01:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38800838&amp;ptid=1340143" target="_blank">芍药 发表于 2018-3-10 01:09</a>
@@ -4204,25 +2952,13 @@ MS这场进步的点在于：
 — from Google Pixel 2, Android 8.1.0 of [S1 Next Goose](https://play.google.com/store/apps/details?id=me.ykrank.s1next) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  holyplumes  
 ##### 1607#       发表于 2018-3-10 03:11
 
 
-
-
 看一次二周年出坑了，破运营。结果fc还全落，日。
-
-
-
-
-
 
 
 -----
@@ -4231,23 +2967,15 @@ MS这场进步的点在于：
 ##### 1608#       发表于 2018-3-10 06:41
 
 
-
-
 现在来看运营的意思就是走刻意树立单推矛盾，走炎上商法艹肾的老路，只能说为了短期利益把一个原本能有积极意义的概念玩烂是日本人的尿性了。
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  dxxtiger  
 ##### 1609#       发表于 2018-3-10 07:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38800590&amp;ptid=1340143" target="_blank">芍药 发表于 2018-03-10 00:22:10</a>
@@ -4259,11 +2987,6 @@ MS这场进步的点在于：
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  原始恶魔  
@@ -4272,13 +2995,10 @@ MS这场进步的点在于：
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  LIN+  
 ##### 1611#       发表于 2018-3-10 14:06
-
-
 
 
 安心出坑，果然偶像还是不适合我
@@ -4287,16 +3007,10 @@ MS这场进步的点在于：
 欅坂的意义大概就是先靠完全不同的演出吸引了一大批对偶像没兴趣的普通观众入坑，再塞一嘴屎“哈哈哈哈其实我们还是这个尿性哦”
 
 
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 1612#       发表于 2018-3-10 14:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38804080&amp;ptid=1340143" target="_blank">原始恶魔 发表于 2018-3-10 13:34</a>
@@ -4304,16 +3018,10 @@ MS这场进步的点在于：
 田口爱佳切了几部了都
 
 
-
-
-
-
-
 -----
 
 ####  衛藤美彩  
 ##### 1613#       发表于 2018-3-10 14:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38804080&amp;ptid=1340143" target="_blank">原始恶魔 发表于 2018-3-10 13:34</a>
@@ -4328,16 +3036,10 @@ MS这场进步的点在于：
 了解一下<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1614#       发表于 2018-3-10 16:26
-
 
 
  本帖最后由 芍药 于 2018-3-10 21:59 编辑 
@@ -4353,9 +3055,6 @@ MS这场进步的点在于：
 2018-3-10 16:25 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/10/162659caey3viipma132iv.jpg" referrerpolicy="no-referrer">
 
 
@@ -4366,25 +3065,13 @@ MS这场进步的点在于：
 2018-3-10 16:26 上传
 
 
-
-
-
-
-
 fu有心，补上缺席三人组
-
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1615#       发表于 2018-3-10 16:32
-
 
 
 <blockquote>
@@ -4397,9 +3084,6 @@ fu有心，补上缺席三人组
 下载附件
 
 2018-3-10 16:29 上传
-
-
-
 
 
 坂道合同新規メンバーオーディションが2018年夏に開催されることが決定いたしました。
@@ -4422,7 +3106,6 @@ fu有心，补上缺席三人组
 ※応募者多数の場合は抽選となりますので、ご了承ください。
 
 
-
 &lt;セミナー会場&gt;
 
 ■北海道
@@ -4434,7 +3117,6 @@ fu有心，补上缺席三人组
 [http://www.sapporo-shiminhall.org/access/](http://www.sapporo-shiminhall.org/access/)
 
 
-
 ■東京
 
 2018年4月1日(日)ベルサール半蔵門 イベントホール
@@ -4442,7 +3124,6 @@ fu有心，补上缺席三人组
 開場13:00/開演14:00
 ※参加予定メンバー 菅井友香(欅坂46)、長濱ねる(欅坂46)、守屋茜(欅坂46)
 [https://www.bellesalle.co.jp/shisetsu/tokyo/bs_hanzomon](https://www.bellesalle.co.jp/shisetsu/tokyo/bs_hanzomon)
-
 
 
 ■愛知
@@ -4455,7 +3136,6 @@ fu有心，补上缺席三人组
 [http://www.ohigashi.net/annai/shisetsu/hall/](http://www.ohigashi.net/annai/shisetsu/hall/)
 
 
-
 ■大阪
 
 2018年4月1日(日)グランキューブ大阪 イベントホール
@@ -4464,7 +3144,6 @@ fu有心，补上缺席三人组
 
 ※参加予定メンバー　齋藤飛鳥(乃木坂46)、桜井玲香(乃木坂46)、与田祐希(乃木坂46)
 [http://www.gco.co.jp](http://www.gco.co.jp)
-
 
 
 ■広島
@@ -4477,7 +3156,6 @@ fu有心，补上缺席三人组
 [https://www.pacela.jp/other/cred_hall](https://www.pacela.jp/other/cred_hall)
 
 
-
 ■福岡
 
 2018年4月1日(日)スカラエスパシオ
@@ -4486,7 +3164,6 @@ fu有心，补上缺席三人组
 
 ※参加予定メンバー　加藤史帆(けやき坂46)、齊藤京子(けやき坂46)、佐々木久美(けやき坂46)
 [http://www.espacio.ne.jp](http://www.espacio.ne.jp)
-
 
 
 ■仙台
@@ -4500,26 +3177,13 @@ fu有心，补上缺席三人组
 不知道被问到那些尴尬问题的时候成员什么反应，继续装死么
 
 
-
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1616#       发表于 2018-3-10 17:28
 
 
-
-
 肥秋和墨西哥导演合影，还有留学一年为交换拍戏的答案揭晓了，可怜的安凝……首页开闭粉瞬间从吃瓜状态切换为爆炸状态orz
-
-
-
-
-
 
 
 -----
@@ -4528,14 +3192,7 @@ fu有心，补上缺席三人组
 ##### 1617#       发表于 2018-3-10 18:38
 
 
-
-
 墨西哥导演？难道是墨西哥三杰
-
-
-
-
-
 
 
 -----
@@ -4544,14 +3201,7 @@ fu有心，补上缺席三人组
 ##### 1618#       发表于 2018-3-10 18:42
 
 
-
-
 肥秋与肥罗
-
-
-
-
-
 
 
 -----
@@ -4560,15 +3210,9 @@ fu有心，补上缺席三人组
 ##### 1619#       发表于 2018-3-12 00:06
 
 
-
  本帖最后由 芍药 于 2018-3-12 00:12 编辑 
 
 乃团运营也有点迷，除非是少年主动不要(有点她的个性)，不然最后一单不给她C有点说不过去
-
-
-
-
-
 
 
 -----
@@ -4577,16 +3221,9 @@ fu有心，补上缺席三人组
 ##### 1620#       发表于 2018-3-12 00:10
 
 
-
-
 这周欅写的两个嘉宾卡司都够大的，要是能借议员的吉言拿下那个奖也是个好事
 
 下周尾号很期待
-
-
-
-
-
 
 
 -----
@@ -4595,16 +3232,10 @@ fu有心，补上缺席三人组
 ##### 1621#       发表于 2018-3-12 08:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38820046&amp;ptid=1340143" target="_blank">芍药 发表于 2018-03-12 00:06:33</a>
 乃团运营也有点迷，除非是少年主动不要(有点她的个性)，不然最后一单不给她C有点说不过去 ...</blockquote>通稿是说少年自己不要的，因为希望拿了唱片大赏会的第一张碟能长久地被唱下去
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -4613,14 +3244,7 @@ fu有心，补上缺席三人组
 ##### 1622#       发表于 2018-3-12 15:34
 
 
-
-
 这单膨胀的也太快了，初动能有90W了，假名2期好强。等46共同招生之后今年年度估计就能首周破百了吧
-
-
-
-
-
 
 
 -----
@@ -4631,12 +3255,10 @@ fu有心，补上缺席三人组
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 1624#       发表于 2018-3-12 18:24
-
 
 
  本帖最后由 芍药 于 2018-3-12 18:25 编辑 
@@ -4644,16 +3266,10 @@ fu有心，补上缺席三人组
 少年不容易，乃团不像欅开始有明确定位加沉默的运气，很长时间销量都不怎么样，从开闭回来之后成熟了很多也很为团队考虑
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1625#       发表于 2018-3-12 18:41
-
 
 
  本帖最后由 芍药 于 2018-3-12 18:50 编辑 
@@ -4666,18 +3282,10 @@ fu有心，补上缺席三人组
 <img src="https://wx1.sinaimg.cn/mw690/006fsKDqgy1fp9cmr73y4j30v4bjtb2h.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
 -----
 
 ####  b2c  
 ##### 1626#       发表于 2018-3-12 19:07
-
 
 
  本帖最后由 b2c 于 2018-3-12 19:13 编辑 
@@ -4685,19 +3293,7 @@ fu有心，补上缺席三人组
 这贴的标题这次改得……“无望再举”
 
 
-
-
-
-
-
-
-
 其实“亲爱精诚，勿忘在莒”这句本来是老蒋当年勉励国军反攻大陆的训词，台湾人对这句话耳熟能详，然后后来就老被调侃成“无望再举”。（所以楼主莫非是湾湾？）
-
-
-
-
-
 
 
 -----
@@ -4706,14 +3302,7 @@ fu有心，补上缺席三人组
 ##### 1627#       发表于 2018-3-12 20:05
 
 
-
-
 这次汉字场限只有20人独缺平手……
-
-
-
-
-
 
 
 -----
@@ -4722,16 +3311,10 @@ fu有心，补上缺席三人组
 ##### 1628#       发表于 2018-3-14 00:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38829546&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2018-3-12 21:05</a>
 
 这次汉字场限只有20人独缺平手……</blockquote>
 这个倒是没问题，本来就不参加个握和2周年，有的话才吃相难看。
-
-
-
-
-
 
 
 -----
@@ -4740,21 +3323,13 @@ fu有心，补上缺席三人组
 ##### 1629#       发表于 2018-3-14 00:12
 
 
-
-
 5ch对这期榉写拜访枝野的事情貌似意见很大的样子，老实说运营这手棋下得不太好，在日本艺人不牵扯政治算是个基本政治正确，枝野幸男这种在野党头目和作为“首相”身份的安倍还不一样。见安倍其实是得到“某某届的国家代表”的荣誉，但在野党议员这种就非常微妙了，如果被视为站队的话可能要被穿小鞋或者下套的，这帮小孩连拜访艺人大前辈都还有很多功课要做怕是要遭重。另外一直以来的团风都是有点“反大人”的，和“政客”这种明显属于“大人世界”的符号扯上关系可能会影响在受众群里的印象，几次握手的情况来看绿团受众里很多高中生大学生的。
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1630#       发表于 2018-3-14 18:49
-
 
 
  本帖最后由 芍药 于 2018-3-14 18:55 编辑 
@@ -4764,17 +3339,10 @@ fu有心，补上缺席三人组
 应该是看到这议员时不时提到欅就直接上门拜访了，缺少一点ZZ敏感性
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1631#       发表于 2018-3-14 19:03
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/14/185010d9s9msik2zfycj2n.jpg" referrerpolicy="no-referrer">
@@ -4785,9 +3353,6 @@ fu有心，补上缺席三人组
 下载附件
 
 2018-3-14 18:50 上传
-
-
-
 
 
 对比上次最爱谁的“欅”风，这次无国界歌曲MV都偏向akb多点，这图的姿势看着有点别扭
@@ -4801,11 +3366,6 @@ fu有心，补上缺席三人组
 下载附件
 
 2018-3-14 18:50 上传
-
-
-
-
-
 
 
 还好能保住第二，三万五还算强差人意
@@ -4882,18 +3442,10 @@ fu有心，补上缺席三人组
 34 **1557(390552)</blockquote>没下过千，对得起这专的质量
 
 
-
-
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1632#       发表于 2018-3-14 23:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38850846&amp;ptid=1340143" target="_blank">芍药 发表于 2018-3-14 20:03</a>
@@ -4902,16 +3454,10 @@ fu有心，补上缺席三人组
 这张照片主要是大部分都没站直，然后坂道的因为裙子略长遮住腿后就显得体态别扭了
 
 
-
-
-
-
-
 -----
 
 ####  cqc1021  
 ##### 1633#       发表于 2018-3-15 00:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38850846&amp;ptid=1340143" target="_blank">芍药 发表于 2018-03-14 19:03:51</a>
@@ -4921,15 +3467,9 @@ fu有心，补上缺席三人组
 没下过千，对得起这专的质量
 
 
-
  ...</blockquote>我觉得这次的MV里48G的衣服最好看，漆黑的背景跟雪白的肢体形成鲜明的视觉反差。乃团的比欅坂的好些，欅的衣服实在是有些死气沉沉。
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -4938,16 +3478,10 @@ fu有心，补上缺席三人组
 ##### 1634#       发表于 2018-3-15 01:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38853844&amp;ptid=1340143" target="_blank">cqc1021 发表于 2018-3-15 00:20</a>
 
 我觉得这次的MV里48G的衣服最好看，漆黑的背景跟雪白的肢体形成鲜明的视觉反差。乃团的比欅坂的好些，欅的 ...</blockquote>
 感觉一样。不过整体对比上次最爱谁的联通工衣还是有进步的
-
-
-
-
-
 
 
 -----
@@ -4956,14 +3490,7 @@ fu有心，补上缺席三人组
 ##### 1635#       发表于 2018-3-15 02:08
 
 
-
-
 坂道 名存实亡  以后就是披着坂道皮的 别的东西了
-
-
-
-
-
 
 
 -----
@@ -4972,21 +3499,13 @@ fu有心，补上缺席三人组
 ##### 1636#       发表于 2018-3-15 20:09
 
 
-
-
 从小林的blog看，要开选拔要补充成员要没有平手了…
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1637#       发表于 2018-3-16 00:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38863052&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2018-3-15 20:09</a>
@@ -5004,29 +3523,10 @@ fu有心，补上缺席三人组
 2018-3-16 00:30 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1638#       发表于 2018-3-16 01:38
-
-
-
 
 
 五抽，这单的抽选基本就这样了
@@ -5041,11 +3541,6 @@ fu有心，补上缺席三人组
 2018-3-16 01:30 上传
 
 
-
-
-
-
-
 两队长间的对话
 
 <img src="https://img.saraba1st.com/forum/201803/16/013018ogo5oegjngeg5zna.jpg" referrerpolicy="no-referrer">
@@ -5056,11 +3551,6 @@ fu有心，补上缺席三人组
 下载附件
 
 2018-3-16 01:30 上传
-
-
-
-
-
 
 
 下周的SOL平手还会出现，希望能透露一点她的近况
@@ -5076,21 +3566,10 @@ fu有心，补上缺席三人组
 2018-3-16 01:32 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1639#       发表于 2018-3-18 22:39
-
 
 
  本帖最后由 芍药 于 2018-3-18 22:43 编辑 
@@ -5107,9 +3586,6 @@ fu有心，补上缺席三人组
 2018-3-18 22:38 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/18/223836ya8d6iened9d9a9l.jpg" referrerpolicy="no-referrer">
 
 
@@ -5118,9 +3594,6 @@ fu有心，补上缺席三人组
 下载附件
 
 2018-3-18 22:38 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/18/223835h3ccnbn9tzg3rtnc.jpg" referrerpolicy="no-referrer">
@@ -5133,9 +3606,6 @@ fu有心，补上缺席三人组
 2018-3-18 22:38 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/18/223834tjr3dtzrajlz3md3.jpg" referrerpolicy="no-referrer">
 
 
@@ -5146,30 +3616,13 @@ fu有心，补上缺席三人组
 2018-3-18 22:38 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Loony  
 ##### 1640#       发表于 2018-3-18 23:32
 
 
-
-
 翅膀太好看了，第一张制服还有点平手的感觉有没有
-
-
-
-
-
 
 
 -----
@@ -5180,7 +3633,6 @@ fu有心，补上缺席三人组
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  原始恶魔  
@@ -5189,29 +3641,19 @@ fu有心，补上缺席三人组
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Layor Rik  
 ##### 1643#       发表于 2018-3-19 00:48
 
 
-
-
 假名貌似有自己的深夜节目了，mc是奥黛丽！t8的笨笨里诺林就很有意思啊！这次假名有福了
-
-
-
-
-
 
 
 -----
 
 ####  Layor Rik  
 ##### 1644#       发表于 2018-3-19 01:02
-
-
 
 
 けやき坂46独立番组「ひらがな推し」确定！由搞笑艺人组合”オードリー（春日俊彰&amp;若林正恭）“担任主持人！周日晚坂道番组3连发！    
@@ -5221,32 +3663,19 @@ fu有心，补上缺席三人组
 「KEYABINGO!4 ひらがなけやきって何？」月曜深夜1:29 4/16开始放送     
 
 
-
-
-
-
-
 -----
 
 ####  gardevoir  
 ##### 1645#       发表于 2018-3-19 01:06
 
 
-
-
 不会彻底分两团了吧
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1646#       发表于 2018-3-19 03:55
-
 
 
  本帖最后由 芍药 于 2018-3-19 04:04 编辑 
@@ -5258,25 +3687,13 @@ fu有心，补上缺席三人组
 跟乃三一样用综艺把人气堆起来(现在小坂跟miho已经很可以了)，之后要搞什么动作都轻松多了。
 
 
-
-
-
-
-
 -----
 
 ####  自由的lu  
 ##### 1647#       发表于 2018-3-19 13:30
 
 
-
-
 奥黛丽不错， 若林挺有才的，春日挺敬业的
-
-
-
-
-
 
 
 -----
@@ -5285,11 +3702,9 @@ fu有心，补上缺席三人组
 ##### 1648#       发表于 2018-3-19 20:12
 
 
-
  本帖最后由 芍药 于 2018-3-20 00:14 编辑 
 
 这期欅写里面尾关牙口没那么横了，好看了很多
-
 
 
 anan的里表纸，没拍右手应该是一二月左右拍的
@@ -5304,9 +3719,6 @@ anan的里表纸，没拍右手应该是一二月左右拍的
 2018-3-19 20:07 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/19/200731kknaeennnaye2nnn.jpg" referrerpolicy="no-referrer">
 
 
@@ -5317,9 +3729,6 @@ anan的里表纸，没拍右手应该是一二月左右拍的
 2018-3-19 20:07 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/20/001352gzz3gaaxd830ot3t.jpg" referrerpolicy="no-referrer">
 
 
@@ -5328,12 +3737,6 @@ anan的里表纸，没拍右手应该是一二月左右拍的
 下载附件
 
 2018-3-20 00:13 上传
-
-
-
-
-
-
 
 
 目前就靠她们来带队让村外认识欅坂了
@@ -5348,37 +3751,19 @@ anan的里表纸，没拍右手应该是一二月左右拍的
 2018-3-19 20:08 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  kula01  
 ##### 1649#       发表于 2018-3-19 20:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉时间实在太短了，平手就像烟花一样，突然出现，突然消失了。虽然知道21个人不能一直这么下去，但是这也来的太快了。以后又会怎么样呢？
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1650#       发表于 2018-3-20 00:23
-
 
 
 <blockquote>「マイナビ presents 第26回 東京ガールズコレクション 2018 SPRING／SUMMER」開催概要
@@ -5399,17 +3784,10 @@ anan的里表纸，没拍右手应该是一二月左右拍的
 五妹你这身高上TGC走秀真的不是自取其辱么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1651#       发表于 2018-3-21 21:53
-
-
 
 
 前週総合首位の欅坂46「ガラスを割れ！」は、まだまだ好調を維持しており、60,334枚を売り上げてシングル3位、ダウンロード5位、ストリーミング1位、ルックアップ2位、Twitter7位、動画再生5位、ラジオ36位と全指標で高ポイントをマーク、特にストリーミングは前週3位から1位に上げており、一般層までその人気が拡がっていることがよくわかる結果に。今週総合3位となり、このまま勢いを守るのか、次週以降のチャート・アクションが注目される。
@@ -5418,16 +3796,10 @@ anan的里表纸，没拍右手应该是一二月左右拍的
 第二周实体第三，配信第五，流媒第一，搜索第二，Twitter第七，视频第五，广播三十六。保持一贯的全面
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1652#       发表于 2018-3-25 22:35
-
 
 
  本帖最后由 芍药 于 2018-3-25 22:36 编辑 
@@ -5437,32 +3809,19 @@ anan的里表纸，没拍右手应该是一二月左右拍的
 ps:一时间不习惯非主角制的欅坂舞蹈
 
 
-
-
-
-
-
 -----
 
 ####  liuyujie412  
 ##### 1653#       发表于 2018-3-26 17:43
 
 
-
-
 平手现在什么情况，哪位大佬科普一下，作为绿团路人粉了解不算太多
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1654#       发表于 2018-3-27 02:01
-
 
 
  本帖最后由 芍药 于 2018-3-27 02:47 编辑 
@@ -5472,16 +3831,10 @@ ps:一时间不习惯非主角制的欅坂舞蹈
 个人活动继续(sol主持,个人化妆品代言)，团队活动红白后就基本不参与了(六单拍了mv跟ntt代言的广告，欅写&amp;这里星&amp;握手会跟二周年演唱会不参与)，运营给的说法缺席握手跟二周年是因为行程冲突，粉丝有猜美国留学拍电影的有猜身体精神原因暂停活动的
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1655#       发表于 2018-3-27 08:13
-
 
 
  本帖最后由 芍药 于 2018-3-27 08:32 编辑 
@@ -5491,22 +3844,15 @@ ps:一时间不习惯非主角制的欅坂舞蹈
 欅坂46「ガラスを割れ！」が33515枚で先週に引き続き３位。これで累計は922218枚に！
 
 
-
 第三周O榜92万B榜99万，之后还有两次全握，百万基本稳了。
 
 这单是起点也是终点，越来越看不清欅坂的未来了。
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1656#       发表于 2018-3-31 00:17
-
 
 
  本帖最后由 芍药 于 2018-3-31 00:29 编辑 
@@ -5522,9 +3868,6 @@ ps:一时间不习惯非主角制的欅坂舞蹈
 2018-3-31 00:29 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/31/002912tphhg9n64hx3n2pd.jpg" referrerpolicy="no-referrer">
 
 
@@ -5533,9 +3876,6 @@ ps:一时间不习惯非主角制的欅坂舞蹈
 下载附件
 
 2018-3-31 00:29 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/31/002910db2e6g7hz2wf36yb.jpg" referrerpolicy="no-referrer">
@@ -5548,9 +3888,6 @@ ps:一时间不习惯非主角制的欅坂舞蹈
 2018-3-31 00:29 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/31/002910gc09ubn69udzbc88.jpg" referrerpolicy="no-referrer">
 
 
@@ -5559,9 +3896,6 @@ ps:一时间不习惯非主角制的欅坂舞蹈
 下载附件
 
 2018-3-31 00:29 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/31/002911wxg9v0wzx8p4irx7.jpg" referrerpolicy="no-referrer">
@@ -5574,10 +3908,6 @@ ps:一时间不习惯非主角制的欅坂舞蹈
 2018-3-31 00:29 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/31/002737bt5b4bbfq54ttaqn.jpg" referrerpolicy="no-referrer">
 
 
@@ -5586,10 +3916,6 @@ ps:一时间不习惯非主角制的欅坂舞蹈
 下载附件
 
 2018-3-31 00:27 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/31/001705g5xgwxetgz5tju2t.jpg" referrerpolicy="no-referrer">
@@ -5602,9 +3928,6 @@ ps:一时间不习惯非主角制的欅坂舞蹈
 2018-3-31 00:17 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/31/001706d7hh22ohhqchq7ch.jpg" referrerpolicy="no-referrer">
 
 
@@ -5613,10 +3936,6 @@ ps:一时间不习惯非主角制的欅坂舞蹈
 下载附件
 
 2018-3-31 00:17 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/31/000942d1h464qg41z8d144.jpg" referrerpolicy="no-referrer">
@@ -5629,22 +3948,10 @@ ps:一时间不习惯非主角制的欅坂舞蹈
 2018-3-31 00:09 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1657#       发表于 2018-4-1 04:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38973649&amp;ptid=1340143" target="_blank">芍药 发表于 2018-3-25 23:35</a>
@@ -5653,17 +3960,10 @@ ps:一时间不习惯非主角制的欅坂舞蹈
 回森林的编舞还行了，栗子其实有一点主役的意思，今年到现在最不适宜的其实是避雷针的空C版。没有一个人在一开始被拖上刑场，在中间迷茫游走，又在最后被“避雷针”所保护的话，整支舞蹈的编排都会变得很迷，舞蹈和歌词对不上。3.31TGC这版避雷针也没有了“被炎上被处刑”的主角，虽然最后收尾的risa很帅气，但整个节目在依然是不知道在说什么的。
 
 
-
-
-
-
-
 -----
 
 ####  cqc1021  
 ##### 1658#       发表于 2018-4-1 23:50
-
-
 
 
 志田这个把两只耳朵都露出来的发型正面看还挺可爱的，就是脸实在太圆了。
@@ -5671,16 +3971,10 @@ ps:一时间不习惯非主角制的欅坂舞蹈
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1659#       发表于 2018-4-4 01:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39051986&amp;ptid=1340143" target="_blank">dxxtiger 发表于 2018-4-1 04:01</a>
@@ -5693,16 +3987,10 @@ ps:一时间不习惯非主角制的欅坂舞蹈
 以后无论平手在还是不在，“主角制”还是会继续的，看这段期间的Wyui跟睡觉的曝光形式就知道了，把之前平手的资源分开给她们三个而已。“欅坂的表演者”跟“欅坂的代表者”可能会分开，但不会结束。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1660#       发表于 2018-4-4 01:37
-
 
 
 <blockquote>CM NOW (シーエム・ナウ) 2018年 5月号
@@ -5715,23 +4003,15 @@ ps:一时间不习惯非主角制的欅坂舞蹈
 化妆品CM第二弹，平不足好久了
 
 
-
-
 昨天平手被目击在千叶的超市进行拍摄，如果是化妆品的CM拍摄会不会太晚了点？
 
 不管是什么工作，持续的有消息就是好事
-
-
-
-
-
 
 
 -----
 
 ####  dxxtiger  
 ##### 1661#       发表于 2018-4-4 14:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39086063&amp;ptid=1340143" target="_blank">芍药 发表于 2018-4-4 02:06</a>
@@ -5745,17 +4025,10 @@ ps:一时间不习惯非主角制的欅坂舞蹈
 千叶拍摄其实可能是文春所说的电影，一般来说只有电影会为了配合宣传前期拍摄保密而且占据大量日程。
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1662#       发表于 2018-4-6 15:14
-
-
 
 
 你团的运营是不是吃屎长大的，只有几小时开眼终于宣布皮皮身体欠佳不能上2周年。
@@ -5764,16 +4037,10 @@ ps:一时间不习惯非主角制的欅坂舞蹈
 老实说3月出场的几次活动都见不到人就预料到可能不行，果不其然杂志和榉写都是拿存货抵着装作人在，正常来说人上不了就不能早点说？是怕人退票还是怎么着
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1663#       发表于 2018-4-7 18:55
-
 
 
  本帖最后由 芍药 于 2018-4-7 19:04 编辑 
@@ -5786,16 +4053,10 @@ ps:一时间不习惯非主角制的欅坂舞蹈
 一贯装死等到最后一刻才发布消息的尿性  平手时是这样，现在志田也是这样
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1664#       发表于 2018-4-7 19:04
-
 
 
 <blockquote>Overture
@@ -5837,7 +4098,6 @@ VTR
 ⑯国境のない時代(長濱ねるセンター)</blockquote>
 
 
-
 SHISHAMO
 
 <img src="https://img.saraba1st.com/forum/201804/07/185648l2o6cafyusouo5lg.jpg" referrerpolicy="no-referrer">
@@ -5848,11 +4108,6 @@ SHISHAMO
 下载附件
 
 2018-4-7 18:56 上传
-
-
-
-
-
 
 
 内村，富坚，大久保
@@ -5867,9 +4122,6 @@ SHISHAMO
 2018-4-7 19:00 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201804/07/190001mtfiwi6itxt9bft6.jpg" referrerpolicy="no-referrer">
 
 
@@ -5878,12 +4130,6 @@ SHISHAMO
 下载附件
 
 2018-4-7 19:00 上传
-
-
-
-
-
-
 
 
 明天开播
@@ -5898,16 +4144,6 @@ SHISHAMO
 2018-4-7 18:58 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  原始恶魔  
@@ -5916,28 +4152,19 @@ SHISHAMO
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  cqc1021  
 ##### 1666#       发表于 2018-4-8 20:18
 
 
-
-
 今晚的ametalk喜欢偶像艺人环节，土田介绍井口女士的部分比平手和梨加加起来都长。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1667#       发表于 2018-4-9 00:05
-
 
 
  本帖最后由 芍药 于 2018-4-9 09:36 编辑 
@@ -5954,11 +4181,6 @@ SHISHAMO
 2018-4-9 00:04 上传
 
 
-
-
-
-
-
 『月曜日の朝、スカートを切られた』センター：渡邉理佐
 
 <img src="https://img.saraba1st.com/forum/201804/09/000410fvhu4ypclztuwyz8.jpg" referrerpolicy="no-referrer">
@@ -5969,11 +4191,6 @@ SHISHAMO
 下载附件
 
 2018-4-9 00:04 上传
-
-
-
-
-
 
 
 『エキセントリック』センター：土生瑞穂
@@ -5988,11 +4205,6 @@ SHISHAMO
 2018-4-9 00:04 上传
 
 
-
-
-
-
-
 『風に吹かれても』センタ－：小林由依 
 
 <img src="https://img.saraba1st.com/forum/201804/09/000409pn2828wne3q262ep.jpg" referrerpolicy="no-referrer">
@@ -6003,11 +4215,6 @@ SHISHAMO
 下载附件
 
 2018-4-9 00:04 上传
-
-
-
-
-
 
 
 『不協和音』センター：菅井友香
@@ -6022,11 +4229,6 @@ SHISHAMO
 2018-4-9 00:04 上传
 
 
-
-
-
-
-
 『サイレントマジョリティー』センター：鈴本美愉
 
 <img src="https://img.saraba1st.com/forum/201804/09/000407jm2ohqha2a6tu6uz.jpg" referrerpolicy="no-referrer">
@@ -6037,11 +4239,6 @@ SHISHAMO
 下载附件
 
 2018-4-9 00:04 上传
-
-
-
-
-
 
 
 『世界には愛しかない』センター：守屋茜
@@ -6056,12 +4253,6 @@ SHISHAMO
 2018-4-9 00:04 上传
 
 
-
-
-
-
-
-
 土田的节目作用很好，加上2周年con的效果，几首歌配信都上来了。节目里面主要介绍欅坂的团队风格，顺带介绍了年少可靠的平，年长不说话的梨，还有跳舞不好但一直想为她加油的井口
 
 <img src="https://img.saraba1st.com/forum/201804/09/000414tec73cuqd3uqxoel.png" referrerpolicy="no-referrer">
@@ -6074,9 +4265,6 @@ SHISHAMO
 2018-4-9 00:04 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201804/09/000413yy5sruwvuogus5lf.png" referrerpolicy="no-referrer">
 
 
@@ -6085,9 +4273,6 @@ SHISHAMO
 下载附件
 
 2018-4-9 00:04 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201804/09/000412ko9li9y1930cy953.png" referrerpolicy="no-referrer">
@@ -6100,9 +4285,6 @@ SHISHAMO
 2018-4-9 00:04 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201804/09/000412a6l5il2152vvorcb.png" referrerpolicy="no-referrer">
 
 
@@ -6113,32 +4295,13 @@ SHISHAMO
 2018-4-9 00:04 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1668#       发表于 2018-4-9 00:35
 
 
-
-
 假名的节目成员热情是有的，就看MC能不能挖出更多有趣的属性，假名要跟汉字形成差异化首先要从综艺这块开始了。
-
-
-
-
-
 
 
 -----
@@ -6147,14 +4310,7 @@ SHISHAMO
 ##### 1669#       发表于 2018-4-9 00:42
 
 
-
-
 平手的电影解禁了
-
-
-
-
-
 
 
 -----
@@ -6163,14 +4319,7 @@ SHISHAMO
 ##### 1670#       发表于 2018-4-9 00:57
 
 
-
-
 居然是响…得去补漫画了！
-
-
-
-
-
 
 
 -----
@@ -6179,23 +4328,15 @@ SHISHAMO
 ##### 1671#       发表于 2018-4-9 01:12
 
 
-
-
 但是那张图上根本不是小平啊！
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1672#       发表于 2018-4-9 02:55
-
 
 
  本帖最后由 芍药 于 2018-4-9 09:44 编辑 
@@ -6205,16 +4346,10 @@ SHISHAMO
 如果真是的话很好的资源了，作者钦点，导演因为胰脏有知名度，加上是东宝的电影
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1673#       发表于 2018-4-11 12:18
-
 
 
  本帖最后由 芍药 于 2018-4-11 12:27 编辑 
@@ -6232,9 +4367,6 @@ SHISHAMO
 2018-4-11 12:07 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201804/11/120738cjfjm8pbpt05jppm.jpg" referrerpolicy="no-referrer">
 
 
@@ -6243,9 +4375,6 @@ SHISHAMO
 下载附件
 
 2018-4-11 12:07 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201804/11/120736eus9uu7ych6psq4u.jpg" referrerpolicy="no-referrer">
@@ -6258,9 +4387,6 @@ SHISHAMO
 2018-4-11 12:07 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201804/11/120734d9uy0b4y8s8mc5c8.jpg" referrerpolicy="no-referrer">
 
 
@@ -6269,9 +4395,6 @@ SHISHAMO
 下载附件
 
 2018-4-11 12:07 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201804/11/120732xnq478onu7zxrrx7.jpg" referrerpolicy="no-referrer">
@@ -6284,9 +4407,6 @@ SHISHAMO
 2018-4-11 12:07 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201804/11/120729eceosc7zdej322os.jpg" referrerpolicy="no-referrer">
 
 
@@ -6295,9 +4415,6 @@ SHISHAMO
 下载附件
 
 2018-4-11 12:07 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201804/11/120727q3343e343q359pq5.jpg" referrerpolicy="no-referrer">
@@ -6310,9 +4427,6 @@ SHISHAMO
 2018-4-11 12:07 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201804/11/120725ack10tkz7g9w5b5s.jpg" referrerpolicy="no-referrer">
 
 
@@ -6321,9 +4435,6 @@ SHISHAMO
 下载附件
 
 2018-4-11 12:07 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201804/11/120723t8qp4774htbh8ui4.jpg" referrerpolicy="no-referrer">
@@ -6336,9 +4447,6 @@ SHISHAMO
 2018-4-11 12:07 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201804/11/120721j77700ia2kllemka.jpg" referrerpolicy="no-referrer">
 
 
@@ -6347,9 +4455,6 @@ SHISHAMO
 下载附件
 
 2018-4-11 12:07 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201804/11/120719vq53i37fq9pqfiif.jpg" referrerpolicy="no-referrer">
@@ -6362,9 +4467,6 @@ SHISHAMO
 2018-4-11 12:07 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201804/11/120718mwhw9f9ruap9t1ay.jpg" referrerpolicy="no-referrer">
 
 
@@ -6373,9 +4475,6 @@ SHISHAMO
 下载附件
 
 2018-4-11 12:07 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201804/11/120717nuflstsqggslfurq.jpg" referrerpolicy="no-referrer">
@@ -6388,9 +4487,6 @@ SHISHAMO
 2018-4-11 12:07 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201804/11/120716lcizwiad7kiapjk5.jpg" referrerpolicy="no-referrer">
 
 
@@ -6399,9 +4495,6 @@ SHISHAMO
 下载附件
 
 2018-4-11 12:07 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201804/11/120716g5bszsbwubd7qs78.jpg" referrerpolicy="no-referrer">
@@ -6414,12 +4507,6 @@ SHISHAMO
 2018-4-11 12:07 上传
 
 
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201804/11/121416rd5o5okde3efys5s.jpg" referrerpolicy="no-referrer">
 
 
@@ -6428,10 +4515,6 @@ SHISHAMO
 下载附件
 
 2018-4-11 12:14 上传
-
-
-
-
 
 
 上年十一月份拍摄，六月份发售。比梨多点村外刷脸度少点村内人气，销量估计跟梨差不多
@@ -6449,10 +4532,6 @@ SHISHAMO
 2018-4-11 11:57 上传
 
 
-
-
-
-
 配信走势虽然不如五单，但还算健康现在瞬时榜还在前十，估计五六月份到十万，以绿团的标准算合格了
 
 
@@ -6466,9 +4545,6 @@ SHISHAMO
 2018-4-11 12:01 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201804/11/120118kptbnp5b3tmtx43b.png" referrerpolicy="no-referrer">
 
 
@@ -6479,26 +4555,15 @@ SHISHAMO
 2018-4-11 12:01 上传
 
 
-
-
-
-
 单曲差五万，下次全握或者第二次全握应该就百万了    
 
 专辑继续在卖，如果今年不出二专的话估计能卖到41万左右
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1674#       发表于 2018-4-11 23:29
-
-
 
 
 在大二上看到一个妹子好像平手<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
@@ -6513,38 +4578,19 @@ SHISHAMO
 2018-4-11 23:28 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 1675#       发表于 2018-4-16 02:00
 
 
-
-
 平手…主演…
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1676#       发表于 2018-4-16 02:09
-
 
 
  本帖最后由 芍药 于 2018-4-16 08:39 编辑 
@@ -6570,10 +4616,6 @@ SHISHAMO
 2018-4-16 08:39 上传
 
 
-
-
-
-
 感天动地，真的是响。这消息锁得够严实的，不是文春爆料简直看不到一丝苗头      消失的这几个月估计就是养伤+学习演戏了，一直没露面也有留长头发的原因？卡司除了囧子还有柳乐优弥跟高岛政伸，非常棒的阵容了      
 
 七单不知道会不会tie电影，不过这种阵容的电影加上只有平手出演的话不tie的可能性大点，估计交给其他歌手吧
@@ -6590,11 +4632,6 @@ SHISHAMO
 2018-4-16 01:40 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201804/16/015057h5ksbxan6a6kaaks.jpg" referrerpolicy="no-referrer">
 
 
@@ -6603,10 +4640,6 @@ SHISHAMO
 下载附件
 
 2018-4-16 01:50 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201804/16/015057wx3nqqpfocjcofcf.jpg" referrerpolicy="no-referrer">
@@ -6619,10 +4652,6 @@ SHISHAMO
 2018-4-16 01:50 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201804/16/015054cipees63l9g3jiis.jpg" referrerpolicy="no-referrer">
 
 
@@ -6633,33 +4662,13 @@ SHISHAMO
 2018-4-16 01:50 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  gardevoir  
 ##### 1677#       发表于 2018-4-16 02:38
 
 
-
-
 我的妈这阵容…星尘是想干票大的吗
-
-
-
-
-
 
 
 -----
@@ -6668,14 +4677,7 @@ SHISHAMO
 ##### 1678#       发表于 2018-4-16 16:30
 
 
-
-
 看fu的msg之前就和成员（至少一部分）说过了，但为了配合片方没法宣布。三月份离队这段时间应该就是接到offer后试镜、开机前的培训等等准备工作，加上学校也不能完全不管于是就这样了。其实日本的童星或者偶像都挺蛋疼的，影帝当年无人知晓戛纳拿奖也是因为学校考试让导演代领……
-
-
-
-
-
 
 
 -----
@@ -6684,14 +4686,7 @@ SHISHAMO
 ##### 1679#       发表于 2018-4-16 17:54
 
 
-
-
 这电影原著是什么题材的我啊
-
-
-
-
-
 
 
 -----
@@ -6700,14 +4695,7 @@ SHISHAMO
 ##### 1680#       发表于 2018-4-16 19:56
 
 
-
-
 孤僻天才少女作家的故事？伯乐编辑加痴汉爱慕者
-
-
-
-
-
 
 
 -----
@@ -6718,13 +4706,10 @@ SHISHAMO
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 1682#       发表于 2018-4-16 21:01
-
-
 
 
 能接到这么一个纯村外制作的角色以后的路会好走很多，对平手来说让更多的普通人知道她就成功了一大半了，票房是扑是safe或者hit到时候再算
@@ -6732,18 +4717,10 @@ SHISHAMO
 这次星辰出了三个演员一个导演，说没想法是不可能的，要不就是继续捧月川导演要不就是看上平手了，看之后会不会签索尼自己的事务所还是再进一步加入“天后宫”吧            从沉默开始平手跟欅坂的“运”一直很好，希望以后也能继续
 
 
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1683#       发表于 2018-4-16 21:05
-
-
 
 
 池袋的sol宣传，以后电影的消息估计会时不时在SOL里面透露
@@ -6758,9 +4735,6 @@ SHISHAMO
 2018-4-16 21:04 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201804/16/210405dgq1gxhhp1keygxp.jpg" referrerpolicy="no-referrer">
 
 
@@ -6769,9 +4743,6 @@ SHISHAMO
 下载附件
 
 2018-4-16 21:04 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201804/16/210404uxi5kz4gkekzf0yg.jpg" referrerpolicy="no-referrer">
@@ -6784,37 +4755,19 @@ SHISHAMO
 2018-4-16 21:04 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Loony  
 ##### 1684#       发表于 2018-4-16 22:05
 
 
-
-
 看了两集假名新番组，怎么感觉假名都变好看了，以前刚登场的时候简直不能看
-
-
-
-
-
 
 
 -----
 
 ####  dxxtiger  
 ##### 1685#       发表于 2018-4-16 23:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39259581&amp;ptid=1340143" target="_blank">芍药 发表于 2018-4-16 22:05</a>
@@ -6832,16 +4785,10 @@ SHISHAMO
 至于21人体制嘛，首先目前的一超多强格局不会变，因为从之前日经的访谈来看，去年的一系列硬派fes的出场全是外来的offer，今野根本就不知道该干什么，他擅长的就是乃团式的培养方法，也是现在假名在做的，坂道大招新之后汉字要有什么大变化，那就是应该会重新组建一个后备役队伍。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1686#       发表于 2018-4-17 16:54
-
 
 
  本帖最后由 芍药 于 2018-4-17 17:35 编辑 
@@ -6854,23 +4801,13 @@ SHISHAMO
 除了平手以外睡觉在村外渐渐的也算独当一面了蛮好的，以后的事情随缘呗，红得这么快有足够的时间试错找适合她们的形式
 
 
-
-
-
 想了想，欅坂一开始的“主角制”takahiro才是展示的关键，从他给开闭nmb坂道AKB编舞跟欅坂的编舞对比能明显看得到不同，欅的舞蹈主角跟其他人区分开甚至对立，只要老师还在欅坂的舞蹈MV都会有固定的看点。
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1687#       发表于 2018-4-17 16:57
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201804/17/165432adfdv883pq5ibi21.jpg" referrerpolicy="no-referrer">
@@ -6883,9 +4820,6 @@ SHISHAMO
 2018-4-17 16:54 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201804/17/165432fc3v3vqlyet6rete.jpg" referrerpolicy="no-referrer">
 
 
@@ -6896,16 +4830,7 @@ SHISHAMO
 2018-4-17 16:54 上传
 
 
-
-
-
-
 除了平手ODNN以外，剧情向的个人PV里面栗子表现得也不错
-
-
-
-
-
 
 
 -----
@@ -6916,12 +4841,10 @@ SHISHAMO
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Demi.Albertini  
 ##### 1689#       发表于 2018-4-17 17:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39270028&amp;ptid=1340143" target="_blank">芍药 发表于 2018-4-17 16:57</a>
@@ -6930,16 +4853,10 @@ SHISHAMO
 还以为是徐娇
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1690#       发表于 2018-4-17 21:36
-
 
 
 <blockquote>映画
@@ -6948,25 +4865,19 @@ SHISHAMO
 柳本です。映画、キャストが公開されました。
 
 
-
 とにかく！僕はここで余計な事は一切言わない。キャスト、脚本、全て理想の形じゃないでしょうか。
-
 
 
 これが僕の感想の全てで。ここになんか、どうしても褒めるだけじゃ物足りないので、オチをつけ足したくなる。サービス精神なのでしょうか。よく言い過ぎですけど。
 
 
-
 しかし、映画は多くの方が関わっているので。余計な事は一切言わない。
-
 
 
 あぶない。ここまで、余計な事は言わないって言いながら、なんか、延々そもそもどうして平手さんかというと、みたいな事を書いてた。アホか。消しました。一言で、サイレントマジョリティのPVをみて、響だって思った。それだけ。結局言ってる。
 
 
-
 そして、平手さんにふれたら、他のキャストの方への思いも書きたいのですが。もうこれ以上は絶対いけない。何を書くか分からない。でも、ピッタリじゃないでしょうか・・・。
-
 
 
 映画は、9月公開予定なのでしょうか。あと5か月か。この感じ。去年のマンガ大賞の時ににてる。楽しみですが、ずっと、楽しみにしていたい。</blockquote>
@@ -6991,16 +4902,10 @@ SHISHAMO
 快速翻了翻原著，原著主角对女性求婚了<img src="https://static.saraba1st.com/image/smiley/face2017/198.png" referrerpolicy="no-referrer"> 
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1691#       发表于 2018-4-18 03:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39270001&amp;ptid=1340143" target="_blank">芍药 发表于 2018-4-17 17:54</a>
@@ -7018,17 +4923,10 @@ SHISHAMO
 最后，小号其实是个挺内向而且有点消极，红白takahiro去探班哭得有弹幕以为老师以后不编舞了一样，对自己的可爱程度也评价太低老觉得自己不可爱，就其实是她本人很想能21个人齐齐整整登台但想到以后可能各自外务+可能扩军齐聚的机会更少于是寂寞了吧
 
 
-
-
-
-
-
 -----
 
 ####  lekbrandy  
 ##### 1692#       发表于 2018-4-18 04:33
-
-
 
 
 土生签了JJ，感觉大家的外务是不是要多起来了
@@ -7039,16 +4937,10 @@ SHISHAMO
 —— 来自 Xiaomi MI 6, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1693#       发表于 2018-4-18 13:22
-
 
 
  本帖最后由 芍药 于 2018-4-18 13:25 编辑 
@@ -7059,23 +4951,13 @@ SHISHAMO
 田在欅写里面的应该是存货，在爆出什么外务或者个人消息透露之前只能一直等一直猜了
 
 
-
-
 另外小林说了今年也会有欅共和国，平手估计是不在了，相对于上年帅爆的“平手领衔的欅坂骑士团”的玩法不知道今年什么概念，上年的骑士团概念是平手提出的今年估计也会下放给成员吧
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1694#       发表于 2018-4-19 21:50
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201804/19/214108opz2bryr8ppsw2wz.jpg" referrerpolicy="no-referrer">
@@ -7086,11 +4968,6 @@ SHISHAMO
 下载附件
 
 2018-4-19 21:41 上传
-
-
-
-
-
 
 
 假名的舞台剧明天开始
@@ -7105,10 +4982,6 @@ SHISHAMO
 2018-4-19 21:44 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201804/19/214531zf7byylt2tp23oy9.jpg" referrerpolicy="no-referrer">
 
 
@@ -7119,31 +4992,13 @@ SHISHAMO
 2018-4-19 21:45 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1695#       发表于 2018-4-23 01:53
 
 
-
-
 假名也开始配合专辑做全国巡演了，跟上年全团的形式差不多，汉字专心欅共和国？今年不知道会不会有全团剧，不然档期有点空
-
-
-
-
-
 
 
 -----
@@ -7152,14 +5007,7 @@ SHISHAMO
 ##### 1696#       发表于 2018-4-24 12:28
 
 
-
-
 第一发文春炮
-
-
-
-
-
 
 
 -----
@@ -7168,14 +5016,7 @@ SHISHAMO
 ##### 1697#       发表于 2018-4-24 12:37
 
 
-
-
 是谁心里 没b数吗 志田爱佳 踢了吧 又不是没踢过人 
-
-
-
-
-
 
 
 -----
@@ -7184,17 +5025,10 @@ SHISHAMO
 ##### 1698#       发表于 2018-4-24 12:44
 
 
-
-
 文春也许会迟到，但从不缺席。
 如果真的是志田的话，那就真是教科书式的一把好牌打的稀烂了。
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -7203,21 +5037,13 @@ SHISHAMO
 ##### 1699#       发表于 2018-4-24 12:47
 
 
-
-
 踢个没觉悟的钱让其它人 精神下 欅这表面光鲜内里衰败的的破车也许还有点救 两周年的垃圾演出我连提都懒的提 一场演出100分 没平 上限就剩10分 还能演成6分 假名巡演都抽了  假名比没平的汉字有看的价值
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1700#       发表于 2018-4-24 15:21
-
 
 
  本帖最后由 芍药 于 2018-4-24 17:14 编辑 
@@ -7228,26 +5054,15 @@ SHISHAMO
 虽说是“中学同学”，但如果真的拍到留宿就没法圆了，接下来就看是辞退还是装死了
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1701#       发表于 2018-4-24 15:26
 
 
-
  本帖最后由 芍药 于 2018-4-24 15:28 编辑 
 
 话说楼上那位安心在群里面撒欢不好么，每次都要一捧一踩丢人
-
-
-
-
-
 
 
 -----
@@ -7256,16 +5071,10 @@ SHISHAMO
 ##### 1702#       发表于 2018-4-24 16:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39355057&amp;ptid=1340143" target="_blank">山崎遥 发表于 2018-4-24 12:47</a>
 
 踢个没觉悟的钱让其它人 精神下 欅这表面光鲜内里衰败的的破车也许还有点救 两周年的垃圾演出我连提都懒的 ...</blockquote>
 平手现在在国内这个口碑，还真是要感谢你这样的“饭”了
-
-
-
-
-
 
 
 -----
@@ -7276,12 +5085,10 @@ SHISHAMO
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Layor Rik  
 ##### 1704#       发表于 2018-4-24 16:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39355057&amp;ptid=1340143" target="_blank">山崎遥 发表于 2018-4-24 12:47</a>
@@ -7290,16 +5097,10 @@ SHISHAMO
 大哥你不如回贴吧和微博吧。。。这地方庙小人少。。起不了风浪
 
 
-
-
-
-
-
 -----
 
 ####  山崎遥  
 ##### 1705#       发表于 2018-4-24 16:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39357442&amp;ptid=1340143" target="_blank">longico 发表于 2018-4-24 16:08</a>
@@ -7308,16 +5109,10 @@ SHISHAMO
 饭算个屁啊  都是被圈养心甘情愿交钱的牲畜 至于口碑又是什么屌东西  键盘什么都影响不到  不用谢
 
 
-
-
-
-
-
 -----
 
 ####  山崎遥  
 ##### 1706#       发表于 2018-4-24 16:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39357687&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2018-4-24 16:26</a>
@@ -7326,26 +5121,15 @@ SHISHAMO
 微博早就一句都不提了 贴吧压根没去过 没平的伴舞LIVE 什么德行 自己心里没点B数吗  
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1707#       发表于 2018-4-24 16:43
 
 
-
  本帖最后由 芍药 于 2018-4-24 16:58 编辑 
 
 文春炮早晚都会来，四十一个小女孩哪可能个个都清规戒律的
-
-
-
-
-
 
 
 -----
@@ -7354,16 +5138,9 @@ SHISHAMO
 ##### 1708#       发表于 2018-4-24 16:48
 
 
-
-
 上面某位怎么感觉像是微博上那个说要跳东京湾的铁血汉子？
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -7372,23 +5149,16 @@ SHISHAMO
 ##### 1709#       发表于 2018-4-24 17:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39357804&amp;ptid=1340143" target="_blank">山崎遥 发表于 2018-4-24 16:34</a>
 
 微博早就一句都不提了 贴吧压根没去过 没平的伴舞LIVE 什么德行 自己心里没点B数吗   ...</blockquote>
 我是不太会打字，所以总结下去死吧SB
 
 
-
-
-
-
-
 -----
 
 ####  cqc1021  
 ##### 1710#       发表于 2018-4-24 18:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39357647&amp;ptid=1340143" target="_blank">原始恶魔 发表于 2018-04-24 16:22:59</a>
@@ -7399,16 +5169,10 @@ SHISHAMO
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  EFSF  
 ##### 1711#       发表于 2018-4-24 18:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39357930&amp;ptid=1340143" target="_blank">芍药 发表于 2018-4-24 16:43</a>
@@ -7423,32 +5187,19 @@ SHISHAMO
 凡事别着急，只要不是能条那种被怼脸的视频，什么都说明不了。而且即使能条被怼脸，关于前一天晚上两人住一起文春也没有照片这是张嘴说了一句就诱导而已。
 
 
-
-
-
-
-
 -----
 
 ####  本间日阳  
 ##### 1712#       发表于 2018-4-24 21:25
 
 
-
-
 你们没认出来？楼上那个说话没标点用空格的是豚片啊，这名字还是泥潭给起的吧
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1713#       发表于 2018-4-24 22:15
-
 
 
  本帖最后由 芍药 于 2018-4-24 22:23 编辑 
@@ -7462,17 +5213,10 @@ SHISHAMO
 无论事实是什么样，如果明天视频出来确实在男方家留宿在旁人看来就是石锤了。但只要没涉及到红线问题就没到无法收尾的程度，接下来无非就是运营的选择而已。
 
 
-
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1714#       发表于 2018-4-25 00:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39360953&amp;ptid=1340143" target="_blank">本间日阳 发表于 2018-4-24 22:25</a>
@@ -7481,25 +5225,13 @@ SHISHAMO
 我就觉得可能是他2333
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1715#       发表于 2018-4-25 00:32
 
 
-
-
 图透看到的就是和睡一起逛公园，然后一起出去买东西和搞了BBQ，然后逛公园的图和推民po出来的朋友拍的图一致，应该就是那个推民的朋友卖给文春的了。怀疑视频是BBQ视频（
-
-
-
-
-
 
 
 -----
@@ -7508,15 +5240,9 @@ SHISHAMO
 ##### 1716#       发表于 2018-4-25 00:40
 
 
-
 <img src="https://wx1.sinaimg.cn/bmiddle/0060tEwKly1fqo7gx94xuj30ex047t98.jpg" referrerpolicy="no-referrer">
 
 微博上看到的图，这排版太好笑了转一下吧
-
-
-
-
-
 
 
 -----
@@ -7525,16 +5251,10 @@ SHISHAMO
 ##### 1717#       发表于 2018-4-25 00:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39363066&amp;ptid=1340143" target="_blank">dxxtiger 发表于 2018-04-25 00:40:51</a>
 微博上看到的图，这排版太好笑了转一下吧</blockquote>心疼志田。。。上个文春都要平睡来帮忙吸睛。
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -7543,16 +5263,9 @@ SHISHAMO
 ##### 1718#       发表于 2018-4-25 00:51
 
 
-
-
 难道就此听不到志田的笑声了？
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -7561,14 +5274,7 @@ SHISHAMO
 ##### 1719#       发表于 2018-4-25 01:05
 
 
-
-
 人气也没到醉三周女士当年的水平，不知道运营会怎么整了，看戏<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7586,31 +5292,19 @@ Title
 开头用了一半的版面说了团队以及平手的近况，主役电影跟红白受伤以及外界焦点过度集中在平手身上这几点，然后提了提睡觉跟志田关系不错赏樱花的时候一起。人物图用平手跟志田banner图上平睡可以说很合理了。
 
 
-
-
-
-
-
 -----
 
 ####  秋雨灰灰  
 ##### 1721#       发表于 2018-4-25 01:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">志田真的是完美的一手好牌打坏，看戏
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1722#       发表于 2018-4-27 18:23
-
 
 
  本帖最后由 芍药 于 2018-4-27 18:25 编辑 
@@ -7626,10 +5320,6 @@ Title
 2018-4-27 18:18 上传
 
 
-
-
-
-
 欅迹换图标，应该是平手---睡觉---W渡边---Wyui---W队长的顺序了
 
 
@@ -7643,17 +5333,9 @@ Title
 2018-4-27 18:19 上传
 
 
-
-
-
 已经开始进组拍摄，跟胰脏全程两波人分开不一样据囧子说会有很多她跟平手的对手戏，希望平手能从中得到学习
 
 PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式照跟24h的照片都圆得不要不要的
-
-
-
-
-
 
 
 -----
@@ -7662,22 +5344,13 @@ PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式
 ##### 1723#       发表于 2018-4-28 17:43
 
 
-
-
 平手圈地榜急速上升！倒是意外……
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1724#       发表于 2018-4-29 00:44
-
-
 
 
 蛮合理的，平-睡-top层  
@@ -7687,25 +5360,13 @@ PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式
 今年有电影平手明年应该会更高，不过今年进步这么多倒是有点意外
 
 
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 1725#       发表于 2018-4-29 00:49
 
 
-
-
 红白一跌，6单一踹，可能有帮助，尤其是红白，不过不知道日本人对她的印象是什么。。。
-
-
-
-
-
 
 
 -----
@@ -7714,21 +5375,13 @@ PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式
 ##### 1726#       发表于 2018-4-30 21:01
 
 
-
-
 日经数据统计最后节点是今年二月份，还没六单踢电视的事     影响最大的应该是红白
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1727#       发表于 2018-4-30 21:03
-
 
 
  本帖最后由 芍药 于 2018-4-30 21:08 编辑 
@@ -7745,9 +5398,6 @@ PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式
 2018-4-30 21:02 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201804/30/210254qjbyy06046c40l44.jpg" referrerpolicy="no-referrer">
 
 
@@ -7756,9 +5406,6 @@ PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式
 下载附件
 
 2018-4-30 21:02 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201804/30/210255n5cf2ay5s2wj5da5.jpg" referrerpolicy="no-referrer">
@@ -7771,9 +5418,6 @@ PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式
 2018-4-30 21:02 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201804/30/210256byh0ocroc0bhgeuz.jpg" referrerpolicy="no-referrer">
 
 
@@ -7784,32 +5428,15 @@ PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式
 2018-4-30 21:02 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  cqc1021  
 ##### 1728#       发表于 2018-5-2 13:24
 
 
-
-
 肥秋的60大寿纪念节目，48G派的指皇，乃团是白麻，欅坂是睡睡。这。。。算是亲点了吧。
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -7818,14 +5445,7 @@ PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式
 ##### 1729#       发表于 2018-5-2 13:26
 
 
-
-
 指皇不是亲女儿，白麻不是亲女儿，所以睡睡也不会是亲女儿
-
-
-
-
-
 
 
 -----
@@ -7834,22 +5454,13 @@ PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式
 ##### 1730#       发表于 2018-5-2 21:33
 
 
-
-
-
 对这几年偶像歌有兴趣的可以看看
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1731#       发表于 2018-5-2 22:34
-
 
 
  本帖最后由 芍药 于 2018-5-2 23:46 编辑 
@@ -7861,16 +5472,10 @@ PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式
 小林由依、菅井友香、長濱ねるの出演は12:15頃からを予定しております。</blockquote>追加马马跟小林，这档应该有组做吧？不知道会聊些啥
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1732#       发表于 2018-5-2 23:51
-
 
 
  本帖最后由 芍药 于 2018-5-2 23:52 编辑 
@@ -7887,10 +5492,6 @@ PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式
 2018-5-2 23:48 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/02/234825u9g88mpc3wdy3wl3.jpg" referrerpolicy="no-referrer">
 
 
@@ -7899,11 +5500,6 @@ PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式
 下载附件
 
 2018-5-2 23:48 上传
-
-
-
-
-
 
 
  <blockquote><strong>KinKi Kidsのブンブブーン</strong>5/19（土）11:21-11:50 
@@ -7918,25 +5514,13 @@ PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式
 平假上两位大爷的节目，应该是宣传专辑吧
 
 
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 1733#       发表于 2018-5-3 11:47
 
 
-
-
 志田的标题是“。”………意义不明…
-
-
-
-
-
 
 
 -----
@@ -7945,16 +5529,9 @@ PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式
 ##### 1734#       发表于 2018-5-3 12:44
 
 
-
-
 志田凉透了。
 
 对志田的感受真是标准的“怒其不争”，初披露时跟梨加一个等级的颜值，之后又跟risa组CP，最后混成这样。就算风头过了能回团也没她的位置了吧。
-
-
-
-
-
 
 
 -----
@@ -7963,21 +5540,13 @@ PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式
 ##### 1735#       发表于 2018-5-3 18:04
 
 
-
-
 白嫖表示还挺喜欢志田的，这样不会写里就听不Y鬼畜笑声了啊，更没看点了……
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1736#       发表于 2018-5-3 18:52
-
 
 
  本帖最后由 芍药 于 2018-5-3 18:53 编辑 
@@ -7994,9 +5563,6 @@ PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式
 下载附件
 
 2018-5-3 18:36 上传
-
-
-
 
 
  <blockquote>秋元「まず一曲かけましょうか。なんか今日のね、秋元康ソング三昧は曲がかからないという方も多いので・・・」
@@ -8042,10 +5608,6 @@ PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式
 2018-5-3 18:46 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/03/184633w1bsn5rik8rqrbcd.jpg" referrerpolicy="no-referrer">
 
 
@@ -8056,13 +5618,10 @@ PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式
 2018-5-3 18:46 上传
 
 
-
-
  <blockquote>欅坂４６の平手さん、秋元さんの前に座って、うなずきながら、対話されています！　#秋元三昧 #zanmai #nhkfm
 
 — 今日は一日○○三昧 (@nhk_zanmai) May 3, 2018</blockquote>
 平手过来了，这个时间点应该是刚刚结束拍摄
-
 
 
  <blockquote>ロキソニンS プレミアム
@@ -8084,17 +5643,10 @@ PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式
 私は若く情熱あふれる編集者として日々熱く生きています。かなり声を使っているので枯れないようにケアしつつ最後まで駆け抜けます。引用元：[** 公式ブログ](http://blog.stardust.co.jp/keiko/)</blockquote>
 
 
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1737#       发表于 2018-5-3 23:19
-
 
 
  本帖最后由 芍药 于 2018-5-4 00:01 编辑 
@@ -8106,27 +5658,15 @@ PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式
 34最后出现表现稳得不行，话题节奏都带得很好
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1738#       发表于 2018-5-4 21:02
 
 
-
-
 就是刚结束拍摄过来的。早上肥秋和平手发line，平手说可能拍摄会结束得比较早然后肥秋说有空就来玩的。然后就临时参加了。
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -8135,14 +5675,7 @@ PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式
 ##### 1739#       发表于 2018-5-5 02:26
 
 
-
-
 听了一下肥秋的电台，平手真心亲女儿，和其他人待遇完全不一样
-
-
-
-
-
 
 
 -----
@@ -8151,22 +5684,13 @@ PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式
 ##### 1740#       发表于 2018-5-8 08:01
 
 
-
-
 祝百万达成！
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1741#       发表于 2018-5-8 19:15
-
-
 
 
 第二年第六单百万，了不起。这单的live表演一直没齐人过，想要看到平手C的21人全员估计真得等到今年红白
@@ -8183,10 +5707,6 @@ PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式
 2018-5-8 18:42 上传
 
 
-
-
-
-
 睡觉自从写真开始频繁的出外务，逐渐起到引流的作用
 
 
@@ -8198,10 +5718,6 @@ PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式
 下载附件
 
 2018-5-8 18:44 上传
-
-
-
-
 
 
 17人表演
@@ -8231,32 +5747,19 @@ PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式
  個別握手会に関する詳細はforTUNEmusicをご参照下さい。</blockquote>假名一专，也是三版本    出的BD，不知道会不会捆绑假名的武道馆表演或者舞台剧片段进去
 
 
-
-
-
-
-
 -----
 
 ####  aiberly  
 ##### 1742#       发表于 2018-5-11 07:49
 
 
-
-
 楼里诸位对碎玻璃单c版live什么看法？反正我是失望了，看不出干劲来，点名批评土生跳的啥玩意儿
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1743#       发表于 2018-5-11 20:45
-
 
 
  本帖最后由 芍药 于 2018-5-11 21:28 编辑 
@@ -8266,22 +5769,15 @@ PS：再出席一次给媒体近期的正面照作为宣传照吧，六单公式
 小林已经是太妹了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">相对于双C编舞，这版单C的编舞个人更喜欢，突出主角观感好得多
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1744#       发表于 2018-5-12 12:33
 
 
-
  本帖最后由 芍药 于 2018-5-12 12:37 编辑 
 
 NTT五月份的广告志田出场了，广告方应该是不怎么在意之前的文春事件，运营只要不是不伦未成年抽烟喝酒这些涉及底线的事情也不怎么管了？
-
 
 
 欅坂全团跟假名的袖章，陆军的绿白跟海军的蓝白
@@ -8298,9 +5794,6 @@ NTT五月份的广告志田出场了，广告方应该是不怎么在意之前�
 2018-5-12 12:19 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/12/122254y3i3d4dpza1ckzo3.jpg" referrerpolicy="no-referrer">
 
 
@@ -8309,11 +5802,6 @@ NTT五月份的广告志田出场了，广告方应该是不怎么在意之前�
 下载附件
 
 2018-5-12 12:22 上传
-
-
-
-
-
 
 
 以往的特殊袖章
@@ -8326,11 +5814,6 @@ NTT五月份的广告志田出场了，广告方应该是不怎么在意之前�
 下载附件
 
 2018-5-12 12:24 上传
-
-
-
-
-
 
 
 松木坂46，表情同步了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">唱得还蛮不错的，最后的编舞吊威亚也挺有意思
@@ -8346,9 +5829,6 @@ NTT五月份的广告志田出场了，广告方应该是不怎么在意之前�
 2018-5-12 12:32 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/12/123225i4uauppart3papr5.jpg" referrerpolicy="no-referrer">
 
 
@@ -8357,9 +5837,6 @@ NTT五月份的广告志田出场了，广告方应该是不怎么在意之前�
 下载附件
 
 2018-5-12 12:32 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201805/12/123225ibnb6y0nynqwb0b7.jpg" referrerpolicy="no-referrer">
@@ -8372,9 +5849,6 @@ NTT五月份的广告志田出场了，广告方应该是不怎么在意之前�
 2018-5-12 12:32 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/12/123224b4mx1j431yk36kxr.jpg" referrerpolicy="no-referrer">
 
 
@@ -8383,9 +5857,6 @@ NTT五月份的广告志田出场了，广告方应该是不怎么在意之前�
 下载附件
 
 2018-5-12 12:32 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201805/12/123223d64kfun111ds14f6.jpg" referrerpolicy="no-referrer">
@@ -8398,9 +5869,6 @@ NTT五月份的广告志田出场了，广告方应该是不怎么在意之前�
 2018-5-12 12:32 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/12/123222eifbf6966rfyxxbf.jpg" referrerpolicy="no-referrer">
 
 
@@ -8409,9 +5877,6 @@ NTT五月份的广告志田出场了，广告方应该是不怎么在意之前�
 下载附件
 
 2018-5-12 12:32 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201805/12/123221mg25x4g92m49sa2k.jpg" referrerpolicy="no-referrer">
@@ -8424,9 +5889,6 @@ NTT五月份的广告志田出场了，广告方应该是不怎么在意之前�
 2018-5-12 12:32 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/12/123221x5am2har3d3tfe8z.jpg" referrerpolicy="no-referrer">
 
 
@@ -8435,9 +5897,6 @@ NTT五月份的广告志田出场了，广告方应该是不怎么在意之前�
 下载附件
 
 2018-5-12 12:32 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201805/12/123220y4pp444b44y94n0r.jpg" referrerpolicy="no-referrer">
@@ -8450,9 +5909,6 @@ NTT五月份的广告志田出场了，广告方应该是不怎么在意之前�
 2018-5-12 12:32 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/12/123219bznnrplazahnn7h5.jpg" referrerpolicy="no-referrer">
 
 
@@ -8461,9 +5917,6 @@ NTT五月份的广告志田出场了，广告方应该是不怎么在意之前�
 下载附件
 
 2018-5-12 12:32 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201805/12/123219nfi5hzjqi9q35f5i.jpg" referrerpolicy="no-referrer">
@@ -8476,41 +5929,19 @@ NTT五月份的广告志田出场了，广告方应该是不怎么在意之前�
 2018-5-12 12:32 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  LIN+  
 ##### 1745#       发表于 2018-5-13 16:20
 
 
-
-
 志田和葵妹都活动中止了啊，葵妹说是专心学业要去上大学，那估计是永远不会回来了。 以后估计再也看不到21人的欅坂了。
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1746#       发表于 2018-5-14 01:21
-
 
 
  本帖最后由 芍药 于 2018-5-14 01:28 编辑 
@@ -8520,20 +5951,13 @@ NTT五月份的广告志田出场了，广告方应该是不怎么在意之前�
 都忘了上次21人一起表演是什么时候了，红白之后平手不在，红白五妹不在，FNS的表演？
 
 
-
 TAKAHIRO老师的节目，两方继续相辅相成吧
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1747#       发表于 2018-5-15 01:54
-
 
 
  本帖最后由 芍药 于 2018-5-15 02:02 编辑 
@@ -8548,20 +5972,10 @@ TAKAHIRO老师的节目，两方继续相辅相成吧
 这种面向村外的露面机会不是经常有的，希望金太郎别被这次炎上吓到，还等着看她的六单表演呢
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1748#       发表于 2018-5-16 08:20
-
 
 
 <blockquote>欅坂46 真夏の全国ツアー2018 があるなら
@@ -8587,17 +6001,10 @@ TAKAHIRO老师的节目，两方继续相辅相成吧
 — 横山慧 日刊スポーツ (@big_yokoyama) 2018年5月15日</blockquote>
 
 
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1749#       发表于 2018-5-16 09:03
-
 
 
 <blockquote>欅坂46 真夏の全国ツアー2018 があるなら
@@ -8627,8 +6034,6 @@ TAKAHIRO老师的节目，两方继续相辅相成吧
 2018-5-16 08:04 上传
 
 
-
-
  <blockquote>18日から順次発売のＡＫＢ新聞５月号内「欅坂46新聞」では、学業のため一時活動休止を発表した原田葵さんの独占インタビューをどどんと掲載！休業の決意、２周年ライブの「あのＭＣ」の裏話など、存分に語っていただきました。
 
 原田さんのトークでも告知していただいたとか！感謝！#AKB新聞 #aoitalk pic.twitter.com/yrxqokEmME
@@ -8636,17 +6041,10 @@ TAKAHIRO老师的节目，两方继续相辅相成吧
 — 横山慧 日刊スポーツ (@big_yokoyama) 2018年5月15日</blockquote>
 
 
-
-
-
-
-
-
 -----
 
 ####  lekbrandy  
 ##### 1750#       发表于 2018-5-16 09:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39615759&amp;ptid=1340143" target="_blank">芍药 发表于 2018-5-16 09:03</a>
@@ -8657,16 +6055,10 @@ TAKAHIRO老师的节目，两方继续相辅相成吧
 —— 来自 Xiaomi MI 6, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1751#       发表于 2018-5-16 10:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39616345&amp;ptid=1340143" target="_blank">lekbrandy 发表于 2018-5-16 09:56</a>
@@ -8677,16 +6069,10 @@ TAKAHIRO老师的节目，两方继续相辅相成吧
 原来是巨蛋，以为是普通的体育馆，那就是假的了
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1752#       发表于 2018-5-18 09:01
-
 
 
  本帖最后由 芍药 于 2018-5-18 09:03 编辑 
@@ -8694,17 +6080,10 @@ TAKAHIRO老师的节目，两方继续相辅相成吧
 风怒
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1753#       发表于 2018-5-18 09:02
-
-
 
 
 六单配信十万认证，从速度来看也很快，蛮好的
@@ -8717,12 +6096,6 @@ TAKAHIRO老师的节目，两方继续相辅相成吧
 下载附件
 
 2018-5-18 09:01 上传
-
-
-
-
-
-
 
 
 假名一专一抽，金村出乎意料地在爱知有人气
@@ -8738,40 +6111,19 @@ TAKAHIRO老师的节目，两方继续相辅相成吧
 2018-5-18 09:00 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 1754#       发表于 2018-5-18 23:36
 
 
-
-
 明早到底有什么新消息？新单？新砖？假名砖？夏巡碟？
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1755#       发表于 2018-5-19 13:27
-
-
 
 
 结果是特设网站233，还有一个月也该进入假名一专宣传期了
@@ -8787,35 +6139,17 @@ TAKAHIRO老师的节目，两方继续相辅相成吧
 2018-5-19 13:27 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  LaCuentaRegresi  
 ##### 1756#       发表于 2018-5-19 21:21
 
 
-
-
 志田
-
-
-
-
 
 
 822dd0c279310a55f9ec5a52bb4543a98326106c.jpg
 (95.94 KB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -8824,24 +6158,7 @@ TAKAHIRO老师的节目，两方继续相辅相成吧
 2018-5-19 21:21 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/19/212147c7b6hu86lshr40te.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -8850,14 +6167,7 @@ TAKAHIRO老师的节目，两方继续相辅相成吧
 ##### 1757#       发表于 2018-5-19 21:23
 
 
-
-
 除非是志田主动要退团所以搞事，这种大头贴一看就是男方提供给文春的，看来志田看上了一个人渣。
-
-
-
-
-
 
 
 -----
@@ -8866,14 +6176,7 @@ TAKAHIRO老师的节目，两方继续相辅相成吧
 ##### 1758#       发表于 2018-5-19 21:24
 
 
-
-
 这是什么时候的照片？另外…这能看出来是她吗
-
-
-
-
-
 
 
 -----
@@ -8882,15 +6185,9 @@ TAKAHIRO老师的节目，两方继续相辅相成吧
 ##### 1759#       发表于 2018-5-19 21:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39674749&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2018-5-19 21:24</a>
 这是什么时候的照片？另外…这能看出来是她吗</blockquote>
 这个发型也就一年内的事吧
-
-
-
-
-
 
 
 -----
@@ -8899,15 +6196,9 @@ TAKAHIRO老师的节目，两方继续相辅相成吧
 ##### 1760#       发表于 2018-5-19 21:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39674816&amp;ptid=1340143" target="_blank">gardevoir 发表于 2018-5-19 21:28</a>
 这个发型也就一年内的事吧</blockquote>
 也就发型类似……
-
-
-
-
-
 
 
 -----
@@ -8916,16 +6207,10 @@ TAKAHIRO老师的节目，两方继续相辅相成吧
 ##### 1761#       发表于 2018-5-19 21:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39674831&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2018-5-19 21:29</a>
 
 也就发型类似……</blockquote>
 这耳朵也很像吧
-
-
-
-
-
 
 
 -----
@@ -8934,23 +6219,15 @@ TAKAHIRO老师的节目，两方继续相辅相成吧
 ##### 1762#       发表于 2018-5-20 13:17
 
 
-
-
 耳朵发型都蛮像的，文春敢拿出来那应该是志田了
 
 相比上次这锤证明了他们是情侣关系，反倒是男方流出（应该）的大头照让人更不舒服
-
-
-
-
-
 
 
 -----
 
 ####  lekbrandy  
 ##### 1763#       发表于 2018-5-20 13:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39690448&amp;ptid=1340143" target="_blank">芍药 发表于 2018-5-20 13:17</a>
@@ -8966,16 +6243,10 @@ TAKAHIRO老师的节目，两方继续相辅相成吧
 —— 来自 Xiaomi MI 6, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1764#       发表于 2018-5-20 13:53
-
 
 
  本帖最后由 芍药 于 2018-5-20 14:49 编辑 
@@ -8985,17 +6256,10 @@ TAKAHIRO老师的节目，两方继续相辅相成吧
 跟拍---塞钱工作人员拿数据？有这种后门的么      图片太糊了看不出是电子版还是实物拍照的，怎么得来的很难判断
 
 
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1765#       发表于 2018-5-22 08:28
-
 
 
  本帖最后由 芍药 于 2018-5-22 14:44 编辑 
@@ -9012,14 +6276,9 @@ TAKAHIRO老师的节目，两方继续相辅相成吧
 2018-5-22 08:17 上传
 
 
-
-
-
 、
 
 假名单独2档综艺电视剧舞台剧全国巡演一专加上小坂的专属，今年运营把重心更多的放在假名身上了，希望假名尽快起来然后才能假名VS汉字，目前气势上已经逐渐接近就差知名度了
-
-
 
 
 标题「走り出す瞬間」
@@ -9034,10 +6293,6 @@ TAKAHIRO老师的节目，两方继续相辅相成吧
 2018-5-22 08:21 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/22/082206r9znn93ajraj9ml3.jpg" referrerpolicy="no-referrer">
 
 
@@ -9046,11 +6301,6 @@ TAKAHIRO老师的节目，两方继续相辅相成吧
 下载附件
 
 2018-5-22 08:22 上传
-
-
-
-
-
 
 
 用帽子包着长发
@@ -9065,10 +6315,6 @@ TAKAHIRO老师的节目，两方继续相辅相成吧
 2018-5-22 08:23 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/22/082526aa0oh17hzfxaowuy.jpg" referrerpolicy="no-referrer">
 
 
@@ -9077,10 +6323,6 @@ TAKAHIRO老师的节目，两方继续相辅相成吧
 下载附件
 
 2018-5-22 08:25 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201805/22/082549eb7imzyn7ezdmuss.jpg" referrerpolicy="no-referrer">
@@ -9093,25 +6335,10 @@ TAKAHIRO老师的节目，两方继续相辅相成吧
 2018-5-22 08:25 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1766#       发表于 2018-5-23 21:17
-
 
 
  本帖最后由 芍药 于 2018-5-23 21:22 编辑 
@@ -9232,7 +6459,6 @@ CD収録内容等の詳細に関しては後日発表させて頂きます。
 握手也卖得不错
 
 
-
 <img src="https://img.saraba1st.com/forum/201805/23/211648guqahaxezghr1srp.jpg" referrerpolicy="no-referrer">
 
 
@@ -9241,9 +6467,6 @@ CD収録内容等の詳細に関しては後日発表させて頂きます。
 下载附件
 
 2018-5-23 21:16 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201805/23/211648rshf77rq8jzt89sh.jpg" referrerpolicy="no-referrer">
@@ -9256,9 +6479,6 @@ CD収録内容等の詳細に関しては後日発表させて頂きます。
 2018-5-23 21:16 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/23/211649iczbypbyfhfbcfxy.jpg" referrerpolicy="no-referrer">
 
 
@@ -9267,9 +6487,6 @@ CD収録内容等の詳細に関しては後日発表させて頂きます。
 下载附件
 
 2018-5-23 21:16 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201805/23/211650mkz4kx1z5zknnjrn.jpg" referrerpolicy="no-referrer">
@@ -9282,16 +6499,7 @@ CD収録内容等の詳細に関しては後日発表させて頂きます。
 2018-5-23 21:16 上传
 
 
-
-
-
-
 小坂现在就是牙齿逊色了点，基本是完全体了（硬照完美，动态个人更喜欢miho跟丹生）
-
-
-
-
-
 
 
 -----
@@ -9300,14 +6508,7 @@ CD収録内容等の詳細に関しては後日発表させて頂きます。
 ##### 1767#       发表于 2018-5-23 21:22
 
 
-
-
 起爆剂的颜我是非常喜欢的，偶尔露出的狂犬眼神更是锦上添花！
-
-
-
-
-
 
 
 -----
@@ -9316,21 +6517,13 @@ CD収録内容等の詳細に関しては後日発表させて頂きます。
 ##### 1768#       发表于 2018-5-23 23:24
 
 
-
-
 lz这标题改的……捏他RGR？<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1769#       发表于 2018-5-24 15:53
-
 
 
  本帖最后由 芍药 于 2018-5-25 13:21 编辑 
@@ -9346,12 +6539,7 @@ lz这标题改的……捏他RGR？<img src="https://static.saraba1st.com/image/
 2018-5-24 15:46 上传
 
 
-
-
-
-
 比起欅一专同期完切率高点，假二的三抽都是昨天才加的，京子史帆假二这五位都很争气
-
 
 
 京子小坂miho金村拍得不错
@@ -9366,10 +6554,6 @@ lz这标题改的……捏他RGR？<img src="https://static.saraba1st.com/image/
 2018-5-24 22:46 上传
 
 
-
-
-
-
 马马写真封面，拍得不错
 
 <img src="https://img.saraba1st.com/forum/201805/25/132119pxjln0n7blnj3fht.jpg" referrerpolicy="no-referrer">
@@ -9382,24 +6566,10 @@ lz这标题改的……捏他RGR？<img src="https://static.saraba1st.com/image/
 2018-5-25 13:21 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1770#       发表于 2018-5-25 22:24
-
 
 
  本帖最后由 芍药 于 2018-5-26 11:52 编辑 
@@ -9415,8 +6585,6 @@ lz这标题改的……捏他RGR？<img src="https://static.saraba1st.com/image/
 下载附件
 
 2018-5-25 22:20 上传
-
-
 
 
 平手友梨奈ちゃんは圧倒的な存在感とクリエイティブな精神を持っていて、役をとても研究するタイプ。
@@ -9441,18 +6609,10 @@ lz这标题改的……捏他RGR？<img src="https://static.saraba1st.com/image/
 5/30有100名临时演员参与的海滨浴场的场景，应该会有repo
 
 
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1771#       发表于 2018-5-26 11:57
-
-
 
 
 从站位跟音色来看主打C位是美玲，歌曲个人感觉一般般没有什么记忆点，曲风是假名一贯的路线
@@ -9467,9 +6627,6 @@ lz这标题改的……捏他RGR？<img src="https://static.saraba1st.com/image/
 2018-5-26 11:53 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/26/115342z8v53vxxdijp5ifz.jpg" referrerpolicy="no-referrer">
 
 
@@ -9478,9 +6635,6 @@ lz这标题改的……捏他RGR？<img src="https://static.saraba1st.com/image/
 下载附件
 
 2018-5-26 11:53 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201805/26/115341s4ob5b5oucu84z44.jpg" referrerpolicy="no-referrer">
@@ -9493,9 +6647,6 @@ lz这标题改的……捏他RGR？<img src="https://static.saraba1st.com/image/
 2018-5-26 11:53 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/26/115339eg0i35ii9j02jfnn.jpg" referrerpolicy="no-referrer">
 
 
@@ -9506,21 +6657,10 @@ lz这标题改的……捏他RGR？<img src="https://static.saraba1st.com/image/
 2018-5-26 11:53 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1772#       发表于 2018-5-28 23:01
-
 
 
  本帖最后由 芍药 于 2018-5-28 23:26 编辑 
@@ -9718,8 +6858,6 @@ SRCL-9829　2,593円（tax out）
 18首新歌，比全体一专的16首还要多，这么厉害的么<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">歌曲有一半良曲一两首永远白线沉默恋人这种级别就满足了
 
 
-
-
 为求质量夏单就不发了吧，像上年一样两单一专等冬天再发新单
  <blockquote>&lt;全TYPE 収録曲&gt;
 期待していない自分
@@ -9814,17 +6952,10 @@ SRCL-9829　2,593円（tax out）
 蛮好的，假名就趁着这专还有之后的全国巡演扩大点认知度吧
 
 
-
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1773#       发表于 2018-5-29 15:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39805553&amp;ptid=1340143" target="_blank">芍药 发表于 2018-5-29 00:01</a>
@@ -9836,16 +6967,10 @@ SRCL-9829　2,593円（tax out）
 全占磕牙病狗和单独团综其实都是面向已经因为欅坂46（汉字）了解你团的受众，只是分化饭圈，如果真的是要以KEYAKIZAKA46的另一面的立场来运营的话还不太够。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1774#       发表于 2018-5-29 20:41
-
 
 
  本帖最后由 芍药 于 2018-5-29 21:04 编辑 
@@ -9857,17 +6982,10 @@ SRCL-9829　2,593円（tax out）
 我的观点跟你差不多，假名风格需要跟汉字形成辨识度，目前的汉字做引入口然后假名作为风格补充来固粉。天朝这边鼓吹的假名汉字分家我是不认同的，假名已经失去单独出道的时机点了，给她们的上升通道无非就是扩招后的双A或者跟汉字一团一单主打，扩招后可能会分别有under成员，但假名不是汉字的under团。
 
 
-
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1775#       发表于 2018-5-30 04:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39814507&amp;ptid=1340143" target="_blank">芍药 发表于 2018-5-29 21:41</a>
@@ -9882,16 +7000,10 @@ SRCL-9829　2,593円（tax out）
 简单说，keyakizaka46这个招牌，能不能做到汉字假名双翼齐飞，已经不是这群小姑娘的努力就能决定的，也不是今野为首的运营staff能实现的，只有秋元康能拿出在概念上能与汉字对等的假名歌的歌词，才不会让假名显得是陪衬。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1776#       发表于 2018-5-30 17:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39817356&amp;ptid=1340143" target="_blank">dxxtiger 发表于 2018-5-30 04:33</a>
@@ -9916,22 +7028,10 @@ SRCL-9829　2,593円（tax out）
 2018-5-30 17:00 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1777#       发表于 2018-5-30 20:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39823814&amp;ptid=1340143" target="_blank">芍药 发表于 2018-5-30 18:01</a>
@@ -9949,16 +7049,10 @@ SRCL-9829　2,593円（tax out）
 新主打MV曲子个人感觉还行，队列和编舞既有汉字的影子但也有自己风格，运镜很棒，作为岛国一线女团（应该算是吧）的妹妹团来说是可以拿得出手的。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1778#       发表于 2018-6-4 00:17
-
 
 
  本帖最后由 芍药 于 2018-6-5 19:06 编辑 
@@ -9975,10 +7069,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-4 00:10 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/04/001057nh36z37yy41ddd3d.jpg" referrerpolicy="no-referrer">
 
 
@@ -9987,10 +7077,6 @@ SRCL-9829　2,593円（tax out）
 下载附件
 
 2018-6-4 00:10 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/05/190556l1g6gp281clgr02r.gif" referrerpolicy="no-referrer">
@@ -10003,9 +7089,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-5 19:05 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/05/190558ajc55c5mwwxxqan8.gif" referrerpolicy="no-referrer">
 
 
@@ -10014,11 +7097,6 @@ SRCL-9829　2,593円（tax out）
 下载附件
 
 2018-6-5 19:05 上传
-
-
-
-
-
 
 
 久美队长
@@ -10033,13 +7111,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-4 00:11 上传
 
 
-
-
-
-
-
-
-
 爱豆界の破坏神      商业互吹
 
 <img src="https://img.saraba1st.com/forum/201806/04/001509o5pwgxeexs45xxbe.jpg" referrerpolicy="no-referrer">
@@ -10052,9 +7123,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-4 00:15 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/04/001508sv6w4vscm9xnrwxs.jpg" referrerpolicy="no-referrer">
 
 
@@ -10063,9 +7131,6 @@ SRCL-9829　2,593円（tax out）
 下载附件
 
 2018-6-4 00:15 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/04/001507ehqrhh37qaf87cc3.jpg" referrerpolicy="no-referrer">
@@ -10078,9 +7143,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-4 00:15 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/04/001506kcs9p9ca1z575h0a.jpg" referrerpolicy="no-referrer">
 
 
@@ -10089,9 +7151,6 @@ SRCL-9829　2,593円（tax out）
 下载附件
 
 2018-6-4 00:15 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/04/001506ezswhsj11y88b4bj.jpg" referrerpolicy="no-referrer">
@@ -10104,9 +7163,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-4 00:15 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/04/001505snsnvii89i9r0srv.jpg" referrerpolicy="no-referrer">
 
 
@@ -10115,9 +7171,6 @@ SRCL-9829　2,593円（tax out）
 下载附件
 
 2018-6-4 00:15 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/04/001504kbabl8nbk60m5ojd.jpg" referrerpolicy="no-referrer">
@@ -10130,9 +7183,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-4 00:15 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/04/001504vkealdyjlzyffya8.jpg" referrerpolicy="no-referrer">
 
 
@@ -10141,9 +7191,6 @@ SRCL-9829　2,593円（tax out）
 下载附件
 
 2018-6-4 00:15 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/04/001628et8m986yyo4a3393.jpg" referrerpolicy="no-referrer">
@@ -10156,9 +7203,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-4 00:16 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/04/001628s1dofokmwv6vba1b.jpg" referrerpolicy="no-referrer">
 
 
@@ -10167,9 +7211,6 @@ SRCL-9829　2,593円（tax out）
 下载附件
 
 2018-6-4 00:16 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/04/001627yci88cqqenz2lgzz.jpg" referrerpolicy="no-referrer">
@@ -10182,9 +7223,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-4 00:16 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/04/001626rg4pwgs39v9nk25g.jpg" referrerpolicy="no-referrer">
 
 
@@ -10195,23 +7233,10 @@ SRCL-9829　2,593円（tax out）
 2018-6-4 00:16 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1779#       发表于 2018-6-4 23:52
-
-
 
 
 假名一专宣传
@@ -10226,9 +7251,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-4 23:49 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/04/234923q45tm44m4rmr4vum.jpg" referrerpolicy="no-referrer">
 
 
@@ -10237,9 +7259,6 @@ SRCL-9829　2,593円（tax out）
 下载附件
 
 2018-6-4 23:49 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/04/234921dql7q4gqo6tlpp3q.jpg" referrerpolicy="no-referrer">
@@ -10252,9 +7271,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-4 23:49 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/04/234917eosoh1h11ujdptni.jpg" referrerpolicy="no-referrer">
 
 
@@ -10265,30 +7281,13 @@ SRCL-9829　2,593円（tax out）
 2018-6-4 23:49 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1780#       发表于 2018-6-5 02:41
 
 
-
-
 剧照终于出来了，那拍摄应该差不多了，共和国复归应该没问题了吧
-
-
-
-
-
 
 
 -----
@@ -10297,12 +7296,9 @@ SRCL-9829　2,593円（tax out）
 ##### 1781#       发表于 2018-6-5 15:02
 
 
-
  本帖最后由 芍药 于 2018-6-5 18:57 编辑 
 
 6月1日电影杀青，估计歇一两周就会回欅坂报到，然后参加完欅共和国开始电影宣传的工作    今野说过平手回归会是一个事件，不知道欅共和国会怎么玩
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/05/143830qhab2bvaouvvt2dw.jpg" referrerpolicy="no-referrer">
@@ -10315,9 +7311,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-5 14:38 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/05/143831n3dcf5tfdr3o6j5z.jpg" referrerpolicy="no-referrer">
 
 
@@ -10326,9 +7319,6 @@ SRCL-9829　2,593円（tax out）
 下载附件
 
 2018-6-5 14:38 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/05/143833d48hewyh4be9zzhb.jpg" referrerpolicy="no-referrer">
@@ -10341,9 +7331,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-5 14:38 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/05/143832p2c0vw0ggvmhuhxk.jpg" referrerpolicy="no-referrer">
 
 
@@ -10352,9 +7339,6 @@ SRCL-9829　2,593円（tax out）
 下载附件
 
 2018-6-5 14:38 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/05/144204dwwewkelezwogl65.jpg" referrerpolicy="no-referrer">
@@ -10367,9 +7351,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-5 14:42 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/05/144205mao2iogi8ao7fbig.jpg" referrerpolicy="no-referrer">
 
 
@@ -10378,9 +7359,6 @@ SRCL-9829　2,593円（tax out）
 下载附件
 
 2018-6-5 14:42 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/05/144204bii6isbpni65vvn9.jpg" referrerpolicy="no-referrer">
@@ -10393,9 +7371,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-5 14:42 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/05/144203j8waf9w07fh6r0wz.jpg" referrerpolicy="no-referrer">
 
 
@@ -10404,10 +7379,6 @@ SRCL-9829　2,593円（tax out）
 下载附件
 
 2018-6-5 14:42 上传
-
-
-
-
 
 
 月川+囧子+小栗    刚好是胰脏的阵容
@@ -10423,10 +7394,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-5 14:38 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/05/143830qksfpyzsckyiqkfm.jpg" referrerpolicy="no-referrer">
 
 
@@ -10437,16 +7404,7 @@ SRCL-9829　2,593円（tax out）
 2018-6-5 14:38 上传
 
 
-
-
-
-
 「平手友梨奈、やり切りました。彼女に賭けて良かった。」
-
-
-
-
-
 
 
   
@@ -10462,10 +7420,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-5 15:06 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/05/150615pcfz6pbukzkpkezw.jpg" referrerpolicy="no-referrer">
 
 
@@ -10474,9 +7428,6 @@ SRCL-9829　2,593円（tax out）
 下载附件
 
 2018-6-5 15:06 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/05/185730tb8bm37abdastwz3.png" referrerpolicy="no-referrer">
@@ -10489,10 +7440,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-5 18:57 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/05/150613fwqnnieqrfpnh9nz.jpg" referrerpolicy="no-referrer">
 
 
@@ -10501,10 +7448,6 @@ SRCL-9829　2,593円（tax out）
 下载附件
 
 2018-6-5 15:06 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/05/150607ge4lml00a60ma6ja.jpg" referrerpolicy="no-referrer">
@@ -10517,10 +7460,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-5 15:06 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/05/145701i4rmvqxsp3pgcmrs.jpg" referrerpolicy="no-referrer">
 
 
@@ -10529,10 +7468,6 @@ SRCL-9829　2,593円（tax out）
 下载附件
 
 2018-6-5 14:57 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/05/185439s2bkxolosksux7x8.png" referrerpolicy="no-referrer">
@@ -10545,9 +7480,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-5 18:54 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/05/185436ut8q0276dqq2c86r.png" referrerpolicy="no-referrer">
 
 
@@ -10558,9 +7490,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-5 18:54 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/05/185432o00205jyhj6dg5mj.png" referrerpolicy="no-referrer">
 
 
@@ -10569,10 +7498,6 @@ SRCL-9829　2,593円（tax out）
 下载附件
 
 2018-6-5 18:54 上传
-
-
-
-
 
 
 松岡跟指原的谈话节目，无法想象进入早安的平手
@@ -10588,12 +7513,7 @@ SRCL-9829　2,593円（tax out）
 2018-6-5 14:54 上传
 
 
-
-
-
-
 马马连任马术大使
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/05/144646j0ut0uateu74uklz.jpg" referrerpolicy="no-referrer">
@@ -10606,9 +7526,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-5 14:46 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/05/144646b44u1n4ebuo12z62.jpg" referrerpolicy="no-referrer">
 
 
@@ -10619,21 +7536,7 @@ SRCL-9829　2,593円（tax out）
 2018-6-5 14:46 上传
 
 
-
-
-
-
 影山的目标是东大，印象中她的偏差值可以的，专心读书多条后路
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -10642,23 +7545,16 @@ SRCL-9829　2,593円（tax out）
 ##### 1782#       发表于 2018-6-5 21:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39882898&amp;ptid=1340143" target="_blank">芍药 发表于 2018-6-5 16:02</a>
 
 6月1日电影杀青，估计歇一两周就会回欅坂报到，然后参加完欅共和国开始电影宣传的工作    今野说过平手回归 ...</blockquote>
 文一的偏差值和理一差不多，不过小影山筑波大附属无误的话还是有希望的。不过东大的推荐入学资格太草了估计只能备战复习硬考，可能明年才能回来了。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1783#       发表于 2018-6-6 18:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39887015&amp;ptid=1340143" target="_blank">dxxtiger 发表于 2018-6-5 21:31</a>
@@ -10678,11 +7574,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-6 18:27 上传
 
 
-
-
-
-
-
 假名确定了6/16播出的CDTV，首次单独音番，看看表现怎么样
 
 <img src="https://img.saraba1st.com/forum/201806/06/182846ebdzdd16z16bzj6j.jpg" referrerpolicy="no-referrer">
@@ -10693,11 +7584,6 @@ SRCL-9829　2,593円（tax out）
 下载附件
 
 2018-6-6 18:28 上传
-
-
-
-
-
 
 
 今天马马的pon！节目宣传写真
@@ -10712,9 +7598,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-6 18:31 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/06/183144yoerfon3zyilasoy.jpg" referrerpolicy="no-referrer">
 
 
@@ -10723,9 +7606,6 @@ SRCL-9829　2,593円（tax out）
 下载附件
 
 2018-6-6 18:31 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/06/183143ayy9963bzziyeruj.jpg" referrerpolicy="no-referrer">
@@ -10738,9 +7618,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-6 18:31 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/06/183142bkvdkz4rrdd3vbvy.jpg" referrerpolicy="no-referrer">
 
 
@@ -10751,17 +7628,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-6 18:31 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  原始恶魔  
@@ -10770,12 +7636,10 @@ SRCL-9829　2,593円（tax out）
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 1785#       发表于 2018-6-7 15:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39897009&amp;ptid=1340143" target="_blank">原始恶魔 发表于 2018-6-6 19:27</a>
@@ -10794,16 +7658,6 @@ SRCL-9829　2,593円（tax out）
 2018-6-7 15:17 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  原始恶魔  
@@ -10812,13 +7666,10 @@ SRCL-9829　2,593円（tax out）
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 1787#       发表于 2018-6-8 18:23
-
-
 
 
 B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqfriend&amp;client_type=2&amp;client_version=9.2.8.0&amp;st=1528449016](http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqfriend&amp;client_type=2&amp;client_version=9.2.8.0&amp;st=1528449016)
@@ -10835,9 +7686,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-8 17:42 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/08/174231dhcwjh0znx6229w0.jpg" referrerpolicy="no-referrer">
 
 
@@ -10846,15 +7694,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 下载附件
 
 2018-6-8 17:42 上传
-
-
-
-
-
-
-
-
-
 
 
 单曲榜柠檬一骑绝尘，碎玻璃第二风吹第十七
@@ -10869,9 +7708,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-8 17:42 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/08/175127tpp7tp38pjtzp28p.png" referrerpolicy="no-referrer">
 
 
@@ -10880,12 +7716,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 下载附件
 
 2018-6-8 17:51 上传
-
-
-
-
-
-
 
 
 上野之森美术馆
@@ -10900,9 +7730,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-8 17:54 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/08/175449eq2mwzjiemswps8s.jpg" referrerpolicy="no-referrer">
 
 
@@ -10911,11 +7738,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 下载附件
 
 2018-6-8 17:54 上传
-
-
-
-
-
 
 
 小坂在制服人偶里面的表情个人很喜欢，兼顾了柔和
@@ -10931,9 +7753,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-8 18:15 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/08/175853zmpaiaiyzimnqcn3.jpg" referrerpolicy="no-referrer">
 
 
@@ -10942,9 +7761,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 下载附件
 
 2018-6-8 17:58 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/08/181526gpuubiuirfb4ptb6.jpg" referrerpolicy="no-referrer">
@@ -10957,9 +7773,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-8 18:15 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/08/175854hfng7w29kfz9bbwg.jpg" referrerpolicy="no-referrer">
 
 
@@ -10970,9 +7783,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-8 17:58 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/08/180807t9ptbcn9hi22ebt9.png" referrerpolicy="no-referrer">
 
 
@@ -10981,9 +7791,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 下载附件
 
 2018-6-8 18:08 上传
-
-
-
 
 
  <blockquote>【情報解禁！】#けやき坂46 初舞台「あゆみ」がTBSチャンネル1で放送決定です😤
@@ -11005,21 +7812,10 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 — TBSチャンネル (@tbschannel) 2018年6月8日</blockquote>假名的舞台剧
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1788#       发表于 2018-6-9 16:37
-
-
 
 
 美大的两万字32页访谈专访
@@ -11034,10 +7830,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-9 16:28 上传
 
 
-
-
-
-
 第3回「九州魅力発掘大賞」特別賞
 
 <img src="https://img.saraba1st.com/forum/201806/09/163246r939djnyjj91rtvw.jpg" referrerpolicy="no-referrer">
@@ -11050,9 +7842,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-9 16:32 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/09/163241v9v94oe00094fea0.jpg" referrerpolicy="no-referrer">
 
 
@@ -11061,9 +7850,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 下载附件
 
 2018-6-9 16:32 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/09/163245qbnwzxdkvkmnhxqq.jpg" referrerpolicy="no-referrer">
@@ -11076,9 +7862,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-9 16:32 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/09/163242blexxq6zscwqqslw.jpg" referrerpolicy="no-referrer">
 
 
@@ -11087,9 +7870,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 下载附件
 
 2018-6-9 16:32 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/09/163244hql080pm8l83s9n9.jpg" referrerpolicy="no-referrer">
@@ -11102,9 +7882,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-9 16:32 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/09/163243rcj1wsxlss2clg55.jpg" referrerpolicy="no-referrer">
 
 
@@ -11113,9 +7890,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 下载附件
 
 2018-6-9 16:32 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/09/163243a88hqhodugjp5uii.jpg" referrerpolicy="no-referrer">
@@ -11128,15 +7902,7 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-9 16:32 上传
 
 
-
-
-
-
-
-
-
 假名第一集团
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/09/163355es6zsdxazsdsapft.jpg" referrerpolicy="no-referrer">
@@ -11149,9 +7915,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-9 16:33 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/09/163354ajihb6mhli2ijizu.jpg" referrerpolicy="no-referrer">
 
 
@@ -11162,24 +7925,10 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-9 16:33 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1789#       发表于 2018-6-14 15:33
-
-
 
 
 井口跟高瀬开张了
@@ -11194,12 +7943,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-14 15:23 上传
 
 
-
-
-
-
-
-
 马马写真首周五万一，之后还有不少节目宣传，后劲应该会不错（睡觉也是一样，梨加不擅长谈话错失了很多宣传的机会）
 
 <img src="https://img.saraba1st.com/forum/201806/14/153014usjgsgkg4rccg128.png" referrerpolicy="no-referrer">
@@ -11212,21 +7955,10 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-14 15:30 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1790#       发表于 2018-6-14 21:09
-
 
 
 <blockquote>15日（金）気になる人がいたらRT #めざましテレビ出るカモン③　白石麻衣 / 西野七瀬(乃木坂46)　▽平手友梨奈(欅坂46)　▽佐々木美玲(けやき坂46)　▽TWICE　▽サンドラ・ブロック　▽ケイト・ブランシェット　☆内容変更の際はご了承下さい
@@ -11237,16 +7969,10 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 平手总算回来了
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1791#       发表于 2018-6-15 10:56
-
 
 
  本帖最后由 芍药 于 2018-6-16 01:24 编辑 
@@ -11265,9 +7991,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-15 10:54 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/15/105455i7fdgzw3z183th5k.jpg" referrerpolicy="no-referrer">
 
 
@@ -11276,9 +7999,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 下载附件
 
 2018-6-15 10:54 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/15/105903uu63uxrc03rznnl0.jpg" referrerpolicy="no-referrer">
@@ -11291,9 +8011,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-15 10:59 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/15/105445sub5uzt9t0guz90r.jpg" referrerpolicy="no-referrer">
 
 
@@ -11302,9 +8019,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 下载附件
 
 2018-6-15 10:54 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/15/105447d1c9gv9c1rh1hjsj.jpg" referrerpolicy="no-referrer">
@@ -11317,9 +8031,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-15 10:54 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/15/105441fn69th97m5e9rm5t.jpg" referrerpolicy="no-referrer">
 
 
@@ -11328,9 +8039,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 下载附件
 
 2018-6-15 10:54 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/15/105443svdw6b6lbbldzj0d.jpg" referrerpolicy="no-referrer">
@@ -11343,9 +8051,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-15 10:54 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/15/105440ba0nnh0yktd07tt7.jpg" referrerpolicy="no-referrer">
 
 
@@ -11354,9 +8059,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 下载附件
 
 2018-6-15 10:54 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/15/105451ipke1tw2zwtelpaw.gif" referrerpolicy="no-referrer">
@@ -11369,9 +8071,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-15 10:54 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/15/105453ygv7nwghgggkoyxx.gif" referrerpolicy="no-referrer">
 
 
@@ -11380,13 +8079,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 下载附件
 
 2018-6-15 10:54 上传
-
-
-
-
-
-
-
 
 
 再生数(高评价:低评价)
@@ -11398,23 +8090,15 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 250,470(*5,374:288)   坂道合同オーディションCM　佐々木美玲(けやき坂46)編
 
 
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1792#       发表于 2018-6-16 23:57
 
 
-
  本帖最后由 芍药 于 2018-6-16 23:58 编辑 
 
 睡觉也开始上剧了，基本是为她定做的角色，会跟假名有联动 <blockquote><strong>欅坂46・長濱ねる、日テレ七夕SPドラマに主演 けやき坂ライブとの連動企画</strong>
-
 
 
 [size=0.8em][拡大写真欅坂46の長濱ねるが7月7日、14日に日テレTANABATAプロジェクトとして放送されるSPドラマ『七夕さよなら、またいつか』に主演](https://www.oricon.co.jp/news/2113670/photo/1/)
@@ -11445,8 +8129,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-16 23:52 上传
 
 
-
-
 本日6月16日(土)24:58〜TBS「CDTV」で6/20発売のデビューアルバム「走り出す瞬間」より『期待していない自分』をパフォーマンスします
 
 ぜひご覧になってください‍♀️[#けやき坂46](https://twitter.com/hashtag/%E3%81%91%E3%82%84%E3%81%8D%E5%9D%8246?src=hash&amp;ref_src=twsrc%5Etfw)[#ひらがなけやき](https://twitter.com/hashtag/%E3%81%B2%E3%82%89%E3%81%8C%E3%81%AA%E3%81%91%E3%82%84%E3%81%8D?src=hash&amp;ref_src=twsrc%5Etfw)[#走り出す瞬間](https://twitter.com/hashtag/%E8%B5%B0%E3%82%8A%E5%87%BA%E3%81%99%E7%9E%AC%E9%96%93?src=hash&amp;ref_src=twsrc%5Etfw)[#CDTV](https://twitter.com/hashtag/CDTV?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/7ougx2udX0](https://t.co/7ougx2udX0) [pic.twitter.com/nnrAxBDIHr](https://t.co/nnrAxBDIHr)— 欅坂46 (@keyakizaka46) [June 16, 2018](https://twitter.com/keyakizaka46/status/1007976457824374790?ref_src=twsrc%5Etfw)</blockquote>
@@ -11464,9 +8146,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-16 23:54 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/16/235408rebleatsx87toxzb.jpg" referrerpolicy="no-referrer">
 
 
@@ -11475,9 +8154,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 下载附件
 
 2018-6-16 23:54 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/16/235546xuxm2nm2qxu2qumm.jpg" referrerpolicy="no-referrer">
@@ -11490,22 +8166,14 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-16 23:55 上传
 
 
-
-
  <blockquote><strong>欅坂46織田奈那、初主演映画の舞台挨拶で女優としての夢語る</strong>欅坂46の織田奈那が初主演した短編映画「未来のあたし」が、本日6月15日に東京・シダックスカルチャーホールで行われた「ショートショート フィルムフェスティバル ＆ アジア」の部門別上映プログラム「アジアインターナショナル＆ジャパンプログラム 9」の中で初上映。上映後に行われたQ＆Aに織田と豊島圭介監督が参加した。
 「未来のあたし」は「徳山大五郎を誰が殺したか？」などを手掛けた豊島監督による作品。織田は46歳の真理（櫻井淳子）がタイムスリップした過去で出会う高校時代の自分役で、真理が経験する“人生最悪の1日”をみずみずしく演じた。</blockquote>
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1793#       发表于 2018-6-17 08:57
-
 
 
 舞蹈记忆点不太多，就记得绕∞了，美玲miho京子表现都不错
@@ -11521,9 +8189,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-17 08:51 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/17/085117w4bt23b9l9s2erl9.jpg" referrerpolicy="no-referrer">
 
 
@@ -11532,9 +8197,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 下载附件
 
 2018-6-17 08:51 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/17/085117x83l8ol7pl888l87.jpg" referrerpolicy="no-referrer">
@@ -11547,9 +8209,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-17 08:51 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/17/085116ei95nmj50i8v593v.jpg" referrerpolicy="no-referrer">
 
 
@@ -11558,9 +8217,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 下载附件
 
 2018-6-17 08:51 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/17/085115hncsjnertcc5cy9t.jpg" referrerpolicy="no-referrer">
@@ -11573,9 +8229,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-17 08:51 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/17/085115wjo888686clzlz6g.jpg" referrerpolicy="no-referrer">
 
 
@@ -11584,12 +8237,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 下载附件
 
 2018-6-17 08:51 上传
-
-
-
-
-
-
 
 
 6/28还会出现
@@ -11604,9 +8251,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-17 08:55 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/17/085539syjkew5mj4kwwhip.jpg" referrerpolicy="no-referrer">
 
 
@@ -11615,11 +8259,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 下载附件
 
 2018-6-17 08:55 上传
-
-
-
-
-
 
 
 突然乱入
@@ -11634,9 +8273,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-17 08:53 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/17/085305dxgzi4wgw4047zmz.jpg" referrerpolicy="no-referrer">
 
 
@@ -11647,30 +8283,13 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-17 08:53 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Shabadadoo  
 ##### 1794#       发表于 2018-6-17 20:21
 
 
-
-
 假名这首现场怪怪的
-
-
-
-
-
 
 
 -----
@@ -11679,24 +8298,16 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 ##### 1795#       发表于 2018-6-17 22:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40024037&amp;ptid=1340143" target="_blank">Shabadadoo 发表于 2018-6-17 20:21</a>
 
 假名这首现场怪怪的</blockquote>
 歌曲一般般，舞蹈既视感也强
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1796#       发表于 2018-6-17 23:24
-
-
 
 
 地铁广告
@@ -11711,9 +8322,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-17 23:01 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/17/230102xxxxk62scx602ccz.jpg" referrerpolicy="no-referrer">
 
 
@@ -11722,9 +8330,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 下载附件
 
 2018-6-17 23:01 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/17/230113uaus5rwy9k7s11z5.jpg" referrerpolicy="no-referrer">
@@ -11737,9 +8342,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-17 23:01 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/17/230110fugfununclnqz9ul.jpg" referrerpolicy="no-referrer">
 
 
@@ -11748,9 +8350,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 下载附件
 
 2018-6-17 23:01 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/17/230108n32n52m24msmzand.jpg" referrerpolicy="no-referrer">
@@ -11763,9 +8362,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-17 23:01 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/17/230106d1ejv99l5ks883cl.jpg" referrerpolicy="no-referrer">
 
 
@@ -11774,9 +8370,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 下载附件
 
 2018-6-17 23:01 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/17/230106wegzuag4hq7hretw.jpg" referrerpolicy="no-referrer">
@@ -11789,9 +8382,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-17 23:01 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/17/230104rmandzmmglmdm2mi.jpg" referrerpolicy="no-referrer">
 
 
@@ -11800,9 +8390,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 下载附件
 
 2018-6-17 23:01 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/17/230103e445n04li440ttlk.jpg" referrerpolicy="no-referrer">
@@ -11815,9 +8402,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-17 23:01 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/17/230103vnyauudlddqdeghu.jpg" referrerpolicy="no-referrer">
 
 
@@ -11826,11 +8410,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 下载附件
 
 2018-6-17 23:01 上传
-
-
-
-
-
 
 
 欅坂好前辈内村光良，イッテQ用了不协和音当BGM
@@ -11845,9 +8424,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-17 23:02 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/17/230334mocu1iuooomuf1fu.jpg" referrerpolicy="no-referrer">
 
 
@@ -11856,9 +8432,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 下载附件
 
 2018-6-17 23:03 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/17/230334rk4qzem5qr3dojco.jpg" referrerpolicy="no-referrer">
@@ -11871,12 +8444,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-17 23:03 上传
 
 
-
-
-
-
-
-
 21人得回顾到年初了，得多久的存货 <blockquote>欅坂46ほど、今のこの一瞬を見逃してはいけないグループはないと思うから、6月23日発売のBRODY8月号で特集します。「21人で欅坂46」その言葉の持つ、美しさ、残酷さ、意味合いの変化…。色々感じられる特集になったと思います。詳細は後日！楽しみにしていてください。[#欅坂46](https://twitter.com/hashtag/%E6%AC%85%E5%9D%8246?src=hash&amp;ref_src=twsrc%5Etfw) [#反撃の狼煙](https://twitter.com/hashtag/%E5%8F%8D%E6%92%83%E3%81%AE%E7%8B%BC%E7%85%99?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/Z1eed3lAbe](https://t.co/Z1eed3lAbe)— BRODY編集部 (@brody20150821) [2018年6月17日](https://twitter.com/brody20150821/status/1008279872119042048?ref_src=twsrc%5Etfw)</blockquote>
 
 <img src="https://img.saraba1st.com/forum/201806/17/230559mzml3al76293b6ii.jpg" referrerpolicy="no-referrer">
@@ -11887,11 +8454,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 下载附件
 
 2018-6-17 23:05 上传
-
-
-
-
-
 
 
 夏巡，应该是在欅共和国之后大概会在八九月份，巡演完刚好宣布冬单消息。
@@ -11908,10 +8470,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-17 23:08 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/17/231107h72d36jkawwkyjju.jpg" referrerpolicy="no-referrer">
 
 
@@ -11922,32 +8480,13 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-17 23:11 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  cqc1021  
 ##### 1797#       发表于 2018-6-18 00:11
 
 
-
-
 日本就没有第二个蹦极的地方了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11956,23 +8495,15 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 ##### 1798#       发表于 2018-6-18 00:21
 
 
-
-
 这期欅写真是越尴尬越好笑，汉字一群人天生都没综艺感的，越需要她们给反应的时候偏偏越冷场，笑死人
 
 小坂真好看啊，跳蹦极表情都不会崩的
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1799#       发表于 2018-6-19 00:26
-
 
 
  本帖最后由 芍药 于 2018-6-19 11:42 编辑 
@@ -11990,9 +8521,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-18 23:45 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/18/234517jgvv01ugvvjgoxuv.jpg" referrerpolicy="no-referrer">
 
 
@@ -12003,9 +8531,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 2018-6-18 23:45 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/18/234516yzarhur8plrt58hb.jpg" referrerpolicy="no-referrer">
 
 
@@ -12014,14 +8539,6 @@ B榜半年榜单[http://www.billboard-japan.com/special/detail/2347?&amp;sfc=qqf
 下载附件
 
 2018-6-18 23:45 上传
-
-
-
-
-
-
-
-
 
 
 line pay的代言cm，泉理都没出现有点奇怪，泉大概是因为身体一直不好的原因理可能是有其他外务了（希望是拍摄写真）
@@ -12037,9 +8554,6 @@ line pay的代言cm，泉理都没出现有点奇怪，泉大概是因为身体�
 2018-6-18 23:46 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/19/001530d6ypuodi6phnhfyx.jpg" referrerpolicy="no-referrer">
 
 
@@ -12048,9 +8562,6 @@ line pay的代言cm，泉理都没出现有点奇怪，泉大概是因为身体�
 下载附件
 
 2018-6-19 00:15 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/19/001529rkcnznvqf70f0ak0.jpg" referrerpolicy="no-referrer">
@@ -12063,9 +8574,6 @@ line pay的代言cm，泉理都没出现有点奇怪，泉大概是因为身体�
 2018-6-19 00:15 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/19/001528tnpbynx2cqyhgxle.jpg" referrerpolicy="no-referrer">
 
 
@@ -12074,10 +8582,6 @@ line pay的代言cm，泉理都没出现有点奇怪，泉大概是因为身体�
 下载附件
 
 2018-6-19 00:15 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/19/000113i259xtt5f725jofz.jpg" referrerpolicy="no-referrer">
@@ -12090,9 +8594,6 @@ line pay的代言cm，泉理都没出现有点奇怪，泉大概是因为身体�
 2018-6-19 00:01 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/19/000129h936f5m55i7fi6fz.jpg" referrerpolicy="no-referrer">
 
 
@@ -12103,9 +8604,6 @@ line pay的代言cm，泉理都没出现有点奇怪，泉大概是因为身体�
 2018-6-19 00:01 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/19/000129gv6viq2kweqvie2e.jpg" referrerpolicy="no-referrer">
 
 
@@ -12114,11 +8612,6 @@ line pay的代言cm，泉理都没出现有点奇怪，泉大概是因为身体�
 下载附件
 
 2018-6-19 00:01 上传
-
-
-
-
-
 
 
 平手一月一度的现身时间。提到甄选CM略为强硬的文案，成为偶像并不是一帆风顺的事情，理想化这个行为毫无意义
@@ -12133,9 +8626,6 @@ line pay的代言cm，泉理都没出现有点奇怪，泉大概是因为身体�
 2018-6-18 23:59 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/18/235927c1n5ps1pq05asqo0.jpg" referrerpolicy="no-referrer">
 
 
@@ -12146,9 +8636,6 @@ line pay的代言cm，泉理都没出现有点奇怪，泉大概是因为身体�
 2018-6-18 23:59 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/18/235925vbkej0kfhsh0o9jb.jpg" referrerpolicy="no-referrer">
 
 
@@ -12157,12 +8644,6 @@ line pay的代言cm，泉理都没出现有点奇怪，泉大概是因为身体�
 下载附件
 
 2018-6-18 23:59 上传
-
-
-
-
-
-
 
 
 有提到17年4月份期间发生的事情，那段时期基本是假名的最低潮，四单选拔没开没有自己的节目团队定位模糊
@@ -12177,12 +8658,6 @@ line pay的代言cm，泉理都没出现有点奇怪，泉大概是因为身体�
 2018-6-19 00:05 上传
 
 
-
-
-
-
-
-
 擅自将马马送到乃团的校对应该扣工资
 
 <img src="https://img.saraba1st.com/forum/201806/19/001240cwlvw39du2vvf0ue.jpg" referrerpolicy="no-referrer">
@@ -12193,11 +8668,6 @@ line pay的代言cm，泉理都没出现有点奇怪，泉大概是因为身体�
 下载附件
 
 2018-6-19 00:12 上传
-
-
-
-
-
 
 
 富坚
@@ -12212,30 +8682,13 @@ line pay的代言cm，泉理都没出现有点奇怪，泉大概是因为身体�
 2018-6-19 00:19 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1800#       发表于 2018-6-20 10:11
 
 
-
-
 吉本坂团综很不错，特别是肥秋当嘉宾的这两期     成团后如果有固定的综艺，之后乃团绿团当嘉宾笑料会不少，而且面向的是平时不接触爱豆的成熟观众，还是蛮期待的
-
-
-
-
-
 
 
 -----
@@ -12246,12 +8699,10 @@ line pay的代言cm，泉理都没出现有点奇怪，泉大概是因为身体�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 1802#       发表于 2018-6-21 00:38
-
 
 
  本帖最后由 芍药 于 2018-6-21 01:24 编辑 
@@ -12268,11 +8719,6 @@ line pay的代言cm，泉理都没出现有点奇怪，泉大概是因为身体�
 2018-6-20 23:59 上传
 
 
-
-
-
-
-
 今天出版的宣传广告跟周刊Magazine
 
 <img src="https://img.saraba1st.com/forum/201806/20/113630n3i3046wl4ikq0n0.jpg" referrerpolicy="no-referrer">
@@ -12285,10 +8731,6 @@ line pay的代言cm，泉理都没出现有点奇怪，泉大概是因为身体�
 2018-6-20 11:36 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/20/114428u0gmin066mj6lig3.jpg" referrerpolicy="no-referrer">
 
 
@@ -12297,15 +8739,6 @@ line pay的代言cm，泉理都没出现有点奇怪，泉大概是因为身体�
 下载附件
 
 2018-6-20 11:44 上传
-
-
-
-
-
-
-
-
-
 
 
 一专花絮。相比汉字，假名更加活泼元气快乐，团队路线定了就好。
@@ -12360,8 +8793,6 @@ MC：中村正人
 配合睡觉七夕的电视剧，当天假名+睡觉的live
 
 
-
-
 <img src="https://img.saraba1st.com/forum/201806/20/111806eur1whepeuwprl4e.png" referrerpolicy="no-referrer">
 
 
@@ -12370,10 +8801,6 @@ MC：中村正人
 下载附件
 
 2018-6-20 11:18 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/20/112621fikj5cpph8pupjhk.jpg" referrerpolicy="no-referrer">
@@ -12386,9 +8813,6 @@ MC：中村正人
 2018-6-20 11:26 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/20/112620vkdtrny9yktkt29d.jpg" referrerpolicy="no-referrer">
 
 
@@ -12399,26 +8823,15 @@ MC：中村正人
 2018-6-20 11:26 上传
 
 
-
-
-
 [https://www.oricon.co.jp/special/51289/](https://www.oricon.co.jp/special/51289/)
 
 聊了加入欅坂，兼任汉字假名时的状态以及平手不在期间的感受
-
-
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1803#       发表于 2018-6-23 00:23
-
 
 
 <blockquote><strong>6月24日(日)京都パルスプラザ 個別握手会　今泉佑唯に関しまして</strong>6月24日(日)開催の「ガラスを割れ!」発売記念 個別握手会 京都会場@パルスプラザ京都ですが、今泉佑唯は明後日の個別握手会を欠席させて頂きます。
@@ -12431,20 +8844,13 @@ MC：中村正人
 还是身体原因缺席，看来今年还是没好转
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1804#       发表于 2018-6-24 00:21
 
 
-
  本帖最后由 芍药 于 2018-6-24 00:23 编辑 
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/24/001703wn60x6h61ddssecd.png" referrerpolicy="no-referrer">
@@ -12455,10 +8861,6 @@ MC：中村正人
 下载附件
 
 2018-6-24 00:17 上传
-
-
-
-
 
 
 第二弹，睡马小坂
@@ -12478,27 +8880,15 @@ MC：中村正人
 2018-6-24 00:23 上传
 
 
-
-
-
-
 坚坚这歌的词有点太黑暗了
 
 希望能有再次合作的机会
-
-
-
-
-
-
-
 
 
 -----
 
 ####  dxxtiger  
 ##### 1805#       发表于 2018-6-24 04:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40093497&amp;ptid=1340143" target="_blank">芍药 发表于 2018-6-24 01:21</a>
@@ -12512,11 +8902,6 @@ https://www.bilibili.com/video/av25447419
 二姐这首歌其实类似周一割破的裙子，严格来说不是黑暗而是沉重，虽然文面看着阴暗沉重但表意其实是积极的。
 
 
-
-
-
-
-
 -----
 
 ####  京都府警  
@@ -12525,12 +8910,10 @@ https://www.bilibili.com/video/av25447419
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 1807#       发表于 2018-6-24 08:57
-
 
 
  本帖最后由 芍药 于 2018-6-24 10:23 编辑 
@@ -12538,16 +8921,10 @@ https://www.bilibili.com/video/av25447419
 夏巡日程大概率会跟电影宣传冲突，大概是七到八月，平手基本不可能参与了，电影的事情结束前可能就录欅写跟准备欅共和国了吧。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1808#       发表于 2018-6-24 09:05
-
 
 
  本帖最后由 芍药 于 2018-6-24 09:07 编辑 
@@ -12559,16 +8936,10 @@ https://www.bilibili.com/video/av25447419
 积极吗...电视里面响起这歌有种感觉下一秒就拿刀捅上去了
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1809#       发表于 2018-6-24 12:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40096033&amp;ptid=1340143" target="_blank">芍药 发表于 2018-6-24 10:05</a>
@@ -12580,16 +8951,10 @@ https://www.bilibili.com/video/av25447419
 开闭乃团包括现在假名的风格不仅在日韩，在世界范围内也是基本款或者说主流，王道。但其实就东亚娱乐圈来说这条路走的人太多，已经非常拥挤了。开闭group其实现在都因为路挤开始浮现各种内部摩擦冲突了，假名几乎完全和乃团三期生在一个生态位上不见得是好事。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1810#       发表于 2018-6-24 16:58
-
 
 
  本帖最后由 芍药 于 2018-6-25 07:47 编辑 
@@ -12601,16 +8966,10 @@ https://www.bilibili.com/video/av25447419
 再过两三年白七花毕业乃三的四天王接班没有问题，本来就是同团后辈顺理成章团队路线也不用改。假名这边搞平行团特别是汉字二期进来以后会怎么操作谁都不知道，乃三进团时间合适成员也争气，处境好太多了。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1811#       发表于 2018-6-24 17:04
-
 
 
  本帖最后由 芍药 于 2018-6-24 17:15 编辑 
@@ -12627,9 +8986,6 @@ https://www.bilibili.com/video/av25447419
 2018-6-24 17:06 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/24/170707be3lte1irz7invbr.jpg" referrerpolicy="no-referrer">
 
 
@@ -12638,11 +8994,6 @@ https://www.bilibili.com/video/av25447419
 下载附件
 
 2018-6-24 17:07 上传
-
-
-
-
-
 
 
 不协和音再磨两三年也有破亿的希望
@@ -12657,22 +9008,10 @@ https://www.bilibili.com/video/av25447419
 2018-6-24 17:13 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1812#       发表于 2018-6-25 11:36
-
-
 
 
 夏巡日程，今年汉字没有专辑握手会轻松点，就是辛苦假名了
@@ -12687,21 +9026,10 @@ https://www.bilibili.com/video/av25447419
 2018-6-25 11:32 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1813#       发表于 2018-6-26 00:43
-
 
 
  本帖最后由 芍药 于 2018-6-26 23:18 编辑 
@@ -12718,7 +9046,6 @@ https://www.bilibili.com/video/av25447419
 今晚马马的电台里总算确定平手归队了，团队一起过的生日
 
 
-
 睡觉跟ODNN参与7/10秋刀鱼的『踊るさんま御殿』，OD是以电影主演的身份上去的么？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">厉害了
 
 <img src="https://img.saraba1st.com/forum/201806/26/003931ukloo19gckkpobk8.jpg" referrerpolicy="no-referrer">
@@ -12731,19 +9058,6 @@ https://www.bilibili.com/video/av25447419
 2018-6-26 00:39 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  京都府警  
@@ -12752,12 +9066,10 @@ https://www.bilibili.com/video/av25447419
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 1815#       发表于 2018-6-26 09:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40116268&amp;ptid=1340143" target="_blank">京都府警 发表于 2018-6-26 01:33</a>
@@ -12768,18 +9080,12 @@ https://www.bilibili.com/video/av25447419
 而且也不像巡演那样需要长时间表演跟电影宣传冲突
 
 
-
-
-
-
-
 -----
 
 ####  京都府警  
 ##### 1816#       发表于 2018-6-26 19:36
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -12790,21 +9096,13 @@ https://www.bilibili.com/video/av25447419
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  山崎遥  
 ##### 1818#       发表于 2018-6-26 19:42
 
 
-
-
 sony 这么多年下来 最强的 是 有一套完整行之有效的过滤锁定目标购买力的运营策略  live是整个回收环节中 最重要的一环 不要想有什么优待 无法面对逐步升高的门槛的 所谓老粉丝 坚持不住都得滚 只是又一个循环罢了 
-
-
-
-
-
 
 
 -----
@@ -12813,14 +9111,7 @@ sony 这么多年下来 最强的 是 有一套完整行之有效的过滤锁定
 ##### 1819#       发表于 2018-6-26 19:45
 
 
-
-
 佐佐木 美玲 这辣眼睛的货 真是运气好 能脱引而出 不过是因为 打压了京子 强行抬罢了 一点都不新鲜  表现力 是真的 烂泥扶不上墙  小坂 倒是改观了 确实当的起
-
-
-
-
-
 
 
 -----
@@ -12829,14 +9120,7 @@ sony 这么多年下来 最强的 是 有一套完整行之有效的过滤锁定
 ##### 1820#       发表于 2018-6-26 19:49
 
 
-
-
 假名这票人 没了滚去汉字的那个毒瘤碍眼后 是班非常不错的演员 能把takahiro的戏本本分分的演好 这就相当不错了  takahiro老师 才是真明星 一出现都是骚动围观 台上的小偶像仿佛配角 233
-
-
-
-
-
 
 
 -----
@@ -12847,22 +9131,13 @@ sony 这么多年下来 最强的 是 有一套完整行之有效的过滤锁定
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  瓦拉几亚之夜  
 ##### 1822#       发表于 2018-6-27 21:07
 
 
-
-
 那些年，秋元康担任过制作人的团
-
-
-
-
-
-
 
 
 -----
@@ -12871,14 +9146,7 @@ sony 这么多年下来 最强的 是 有一套完整行之有效的过滤锁定
 ##### 1823#       发表于 2018-6-27 21:11
 
 
-
-
 自从京子男装后再看她总觉得怪怪的……太像香港的那个矮胖子了…
-
-
-
-
-
 
 
 -----
@@ -12889,28 +9157,19 @@ sony 这么多年下来 最强的 是 有一套完整行之有效的过滤锁定
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 1825#       发表于 2018-6-28 17:53
 
 
-
-
 居然会联想到杜汶泽<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1826#       发表于 2018-6-28 18:14
-
 
 
  本帖最后由 芍药 于 2018-6-28 18:26 编辑 
@@ -12931,12 +9190,6 @@ sony 这么多年下来 最强的 是 有一套完整行之有效的过滤锁定
 2018-6-28 17:54 上传
 
 
-
-
-
-
-
-
 7/14的SS <blockquote><strong>テレ朝夏祭り「サマステ」第2弾でけやき坂46、Juice=Juice、M!LKら6組追加</strong>テレビ朝日が主催する大型イベント「テレビ朝日・六本木ヒルズ 夏祭り SUMMER STATION」が、7月14日より東京・六本木ヒルズおよびテレビ朝日前の全域で行われる。この中で開催されるフリーライブイベント「コカ・コーラ SUMMER STATION 音楽LIVE」の出演アーティスト第2弾が発表された。
 今回出演がアナウンスされたのはSNUPER、Juice=Juice、林部智史、M!LK、UP10TION、けやき坂46の計6組。けやき坂46はイベント最終日となる8月19日に登場する。</blockquote>
 夏巡手册，19人也就是说志田小葵不在
@@ -12955,10 +9208,6 @@ sony 这么多年下来 最强的 是 有一套完整行之有效的过滤锁定
 2018-6-28 18:00 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/28/175903zs6x6f6zs4d3fdod.jpg" referrerpolicy="no-referrer">
 
 
@@ -12967,10 +9216,6 @@ sony 这么多年下来 最强的 是 有一套完整行之有效的过滤锁定
 下载附件
 
 2018-6-28 17:59 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/28/175730xt1t16x1t1s6szz6.jpg" referrerpolicy="no-referrer">
@@ -12983,9 +9228,6 @@ sony 这么多年下来 最强的 是 有一套完整行之有效的过滤锁定
 2018-6-28 17:57 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/28/175729lrryqyp6h2dc32ro.jpg" referrerpolicy="no-referrer">
 
 
@@ -12996,10 +9238,6 @@ sony 这么多年下来 最强的 是 有一套完整行之有效的过滤锁定
 2018-6-28 17:57 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/28/175701d5nvyyxxvnx45459.jpg" referrerpolicy="no-referrer">
 
 
@@ -13008,13 +9246,6 @@ sony 这么多年下来 最强的 是 有一套完整行之有效的过滤锁定
 下载附件
 
 2018-6-28 17:57 上传
-
-
-
-
-
-
-
 
 
 O榜半年配信榜，刚好前二十，十万 <blockquote>01　1,137,437　米津玄師 / Lemon
@@ -13058,27 +9289,13 @@ O榜半年配信榜，刚好前二十，十万 <blockquote>01　1,137,437　米�
 20　*,*99,044　宇多田ヒカル / 初恋</blockquote>
 
 
-
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 1827#       发表于 2018-7-5 09:31
 
 
-
-
 7单发表！
-
-
-
-
-
 
 
 -----
@@ -13087,13 +9304,7 @@ O榜半年配信榜，刚好前二十，十万 <blockquote>01　1,137,437　米�
 ##### 1828#       发表于 2018-7-5 11:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">点进绿团楼真是太恐怖了，不是无限流量的手机点进来真的要斟酌。。。
-
-
-
-
-
 
 
 -----
@@ -13102,22 +9313,13 @@ O榜半年配信榜，刚好前二十，十万 <blockquote>01　1,137,437　米�
 ##### 1829#       发表于 2018-7-5 15:34
 
 
-
-
 响应国家提速降费的网络政策<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1830#       发表于 2018-7-5 15:54
-
-
 
 
 发售日定在8/15，终战纪念日
@@ -13133,17 +9335,10 @@ O榜半年配信榜，刚好前二十，十万 <blockquote>01　1,137,437　米�
 平手在应该还是她C，不在的话估计就由睡觉上了
 
 
-
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1831#       发表于 2018-7-5 16:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40226229&amp;ptid=1340143" target="_blank">芍药 发表于 2018-7-5 16:54</a>
@@ -13160,18 +9355,12 @@ O榜半年配信榜，刚好前二十，十万 <blockquote>01　1,137,437　米�
 卡片是Ponta卡。另外lawson的特典生写是有平手的，不知道合作官网上没有是什么意思，岛国这边一直有猜测说事务所外签了所以代言就没有她（不过其实用24h cosmo来解释也一样。
 
 
-
-
-
-
-
 -----
 
 ####  原始恶魔  
 ##### 1832#       发表于 2018-7-5 16:25
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -13182,7 +9371,6 @@ O榜半年配信榜，刚好前二十，十万 <blockquote>01　1,137,437　米�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  原始恶魔  
@@ -13191,21 +9379,13 @@ O榜半年配信榜，刚好前二十，十万 <blockquote>01　1,137,437　米�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  linuslinus  
 ##### 1835#       发表于 2018-7-7 19:05
 
 
-
-
 今天平手来了
-
-
-
-
-
 
 
 -----
@@ -13214,14 +9394,7 @@ O榜半年配信榜，刚好前二十，十万 <blockquote>01　1,137,437　米�
 ##### 1836#       发表于 2018-7-7 19:13
 
 
-
-
 这是不是平手第一次在台上跳这首歌
-
-
-
-
-
 
 
 -----
@@ -13230,21 +9403,13 @@ O榜半年配信榜，刚好前二十，十万 <blockquote>01　1,137,437　米�
 ##### 1837#       发表于 2018-7-7 19:13
 
 
-
-
 现场live很帅啊，就是看不到脸。。。
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1838#       发表于 2018-7-7 20:23
-
 
 
  本帖最后由 芍药 于 2018-7-7 21:44 编辑 
@@ -13258,15 +9423,7 @@ O榜半年配信榜，刚好前二十，十万 <blockquote>01　1,137,437　米�
 这个金毛栗有点新奇<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
 Apple music的CM，如果不是因为人员问题这单成绩还能更好的，可惜了
-
-
-
-
-
-
-
 
 
 -----
@@ -13275,14 +9432,7 @@ Apple music的CM，如果不是因为人员问题这单成绩还能更好的，�
 ##### 1839#       发表于 2018-7-7 20:29
 
 
-
-
 感动到哭。。小平出现了。。
-
-
-
-
-
 
 
 -----
@@ -13291,14 +9441,7 @@ Apple music的CM，如果不是因为人员问题这单成绩还能更好的，�
 ##### 1840#       发表于 2018-7-7 20:40
 
 
-
-
 喷了，坂道akb这介绍 武田信玄 上杉谦信 毛利元就
-
-
-
-
-
 
 
 -----
@@ -13307,21 +9450,13 @@ Apple music的CM，如果不是因为人员问题这单成绩还能更好的，�
 ##### 1841#       发表于 2018-7-7 21:06
 
 
-
-
 没毛病 垃圾团就给 毒瘤睡带着走吧 完全不关心 但是作为 曾经的欅粉来说 还是抑制不住的悲伤啊 巅峰期太短了 三单后期就开始走下坡路变质了 起高楼快 腐朽的更快 平已经完全跟其它人割裂了 根本不是一个整体了 只能午夜梦回幕张二日的最高与cdj无以伦比的绝唱了
-
-
-
-
-
 
 
 -----
 
 ####  dxxtiger  
 ##### 1842#       发表于 2018-7-7 21:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40252287&amp;ptid=1340143" target="_blank">芍药 发表于 2018-7-7 21:23</a>
@@ -13333,16 +9468,10 @@ Apple music的CM，如果不是因为人员问题这单成绩还能更好的，�
 Apple music这个倒是不算可惜吧，1月份文春就透风电影的事情，肯定是这单制作的时候接到的offer。东宝竞标拿到的改编权，不是原作者大力推荐都未必能得到的机会，对于平手和团队都很重要，长远来说也是好事。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1843#       发表于 2018-7-9 16:54
-
 
 
  本帖最后由 芍药 于 2018-7-10 21:13 编辑 
@@ -13356,11 +9485,6 @@ Apple music这个倒是不算可惜吧，1月份文春就透风电影的事情�
 下载附件
 
 2018-7-9 15:06 上传
-
-
-
-
-
 
 
 对比了三版的live，TAKAHIRO老师把舞蹈基本都改了一遍。Wyui版本注重两阵营的对抗以及群体独舞，平手这个版本就是整场围绕她来进行基本跟语未来接近的中心度，最大改动是主歌开始时的Wyui左右对抗改成平手往前走三列依次站起来以及第一段主歌末尾加了将平手丢出去这段，细节丰富了很多。
@@ -13377,11 +9501,6 @@ Apple music这个倒是不算可惜吧，1月份文春就透风电影的事情�
 2018-7-9 15:10 上传
 
 
-
-
-
-
-
 下周的欅写，综艺也回归了
 
 <img src="https://img.saraba1st.com/forum/201807/09/151255ilzwotjjrosgsuta.jpg" referrerpolicy="no-referrer">
@@ -13392,11 +9511,6 @@ Apple music这个倒是不算可惜吧，1月份文春就透风电影的事情�
 下载附件
 
 2018-7-9 15:12 上传
-
-
-
-
-
 
 
 JUMP MUSIC FESTA 的表演曲目
@@ -13426,9 +9540,6 @@ M7 ガラスを割れ！
 2018-7-9 16:50 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/09/165016dprq85p8kke5p5i2.jpg" referrerpolicy="no-referrer">
 
 
@@ -13437,9 +9548,6 @@ M7 ガラスを割れ！
 下载附件
 
 2018-7-9 16:50 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/09/165016m2wwu2dzwu72wduz.jpg" referrerpolicy="no-referrer">
@@ -13452,9 +9560,6 @@ M7 ガラスを割れ！
 2018-7-9 16:50 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/09/165209ryx5fk2aecrffpyc.jpg" referrerpolicy="no-referrer">
 
 
@@ -13463,9 +9568,6 @@ M7 ガラスを割れ！
 下载附件
 
 2018-7-9 16:52 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/09/165209rspb92bfsqoqss24.jpg" referrerpolicy="no-referrer">
@@ -13478,9 +9580,6 @@ M7 ガラスを割れ！
 2018-7-9 16:52 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/09/165211pvlnzzjf2xs2t25t.jpg" referrerpolicy="no-referrer">
 
 
@@ -13489,9 +9588,6 @@ M7 ガラスを割れ！
 下载附件
 
 2018-7-9 16:52 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/09/165212jffyodyz6pmc3zmq.jpg" referrerpolicy="no-referrer">
@@ -13504,20 +9600,8 @@ M7 ガラスを割れ！
 2018-7-9 16:52 上传
 
 
-
-
-
-
-
-
-
-
-
-
 006ze8dqgy1ft2ridb5u6j318e0tl46t.jpg
 (69.64 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -13526,24 +9610,7 @@ M7 ガラスを割れ！
 2018-7-9 16:52 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/09/165210x853ffk5kko6zot8.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -13552,9 +9619,7 @@ M7 ガラスを割れ！
 ##### 1844#       发表于 2018-7-10 21:26
 
 
-
  本帖最后由 芍药 于 2018-7-10 21:45 编辑 
-
 
 
 睡觉的短剧，很甜很适合她 不足的点是念台词跟表情管理，不太能放得开
@@ -13567,12 +9632,6 @@ M7 ガラスを割れ！
 下载附件
 
 2018-7-10 21:26 上传
-
-
-
-
-
-
 
 
 小圆外传舞台剧
@@ -13589,9 +9648,6 @@ M7 ガラスを割れ！
 2018-7-10 21:18 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/10/211801vlylcezgg2llpiyc.jpg" referrerpolicy="no-referrer">
 
 
@@ -13600,8 +9656,6 @@ M7 ガラスを割れ！
 下载附件
 
 2018-7-10 21:18 上传
-
-
 
 
 <blockquote>スマートフォン向けゲーム「マギアレコード 魔法少女まどか☆マギカ外伝」の舞台化が決定。この舞台にけやき坂46のメンバーがメインキャストとして出演する。
@@ -13620,10 +9674,6 @@ M7 ガラスを割れ！
 2018-7-10 21:24 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/10/212119ubz1effzdf6f1z0f.jpg" referrerpolicy="no-referrer">
 
 
@@ -13634,24 +9684,10 @@ M7 ガラスを割れ！
 2018-7-10 21:21 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1845#       发表于 2018-7-11 23:37
-
-
 
 
 专辑巡演终场
@@ -13666,9 +9702,6 @@ M7 ガラスを割れ！
 2018-7-11 23:34 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/11/233410diecbtipipbasbep.jpg" referrerpolicy="no-referrer">
 
 
@@ -13677,9 +9710,6 @@ M7 ガラスを割れ！
 下载附件
 
 2018-7-11 23:34 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/11/233412goint5ozizzyv5so.jpg" referrerpolicy="no-referrer">
@@ -13692,9 +9722,6 @@ M7 ガラスを割れ！
 2018-7-11 23:34 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/11/233409ijjrjho5rza7jjjj.jpg" referrerpolicy="no-referrer">
 
 
@@ -13703,9 +9730,6 @@ M7 ガラスを割れ！
 下载附件
 
 2018-7-11 23:34 上传
-
-
-
 
 
  <blockquote>欅坂46 7thシングル 『タイトル未定』　発売記念個別握手会開催決定!!
@@ -13725,17 +9749,10 @@ M7 ガラスを割れ！
 五妹志田小葵平手影山个握不参与，全握不知道五妹平手参不参与  五妹的身体还是个大隐患
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1846#       发表于 2018-7-13 22:00
-
-
 
 
 电影298馆，东宝一贯的规模
@@ -13743,16 +9760,10 @@ M7 ガラスを割れ！
 这规模十亿算safe十五亿算火，看之后的宣传了
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1847#       发表于 2018-7-14 17:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40325851&amp;ptid=1340143" target="_blank">芍药 发表于 2018-7-13 23:00</a>
@@ -13765,16 +9776,10 @@ M7 ガラスを割れ！
 这个上映规模一般来说hit是十亿吧，樱井翔那个拉普拉斯的魔女322块银幕到第八周也就13亿多。东宝院线一般250馆左右覆盖全国主要城市，300台算是全国铺开。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1848#       发表于 2018-7-16 00:49
-
 
 
  本帖最后由 芍药 于 2018-7-16 00:50 编辑 
@@ -13791,18 +9796,7 @@ M7 ガラスを割れ！
 2018-7-16 00:46 上传
 
 
-
-
-
-
-
-
 今晚还是没有PPT选拔，凑不齐人的情况下（田葵）估计也是JPG公布了事，就怕五妹也不参与直接666阵型了
-
-
-
-
-
 
 
 -----
@@ -13811,16 +9805,10 @@ M7 ガラスを割れ！
 ##### 1849#       发表于 2018-7-16 01:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40345872&amp;ptid=1340143" target="_blank">芍药 发表于 2018-7-16 00:49</a>
 
 录播这版碎玻璃感觉好很多，无论是舞蹈的整体度还是平手的掌控，也将她丢得更远了</blockquote>
 666的话，双数1排那只能双C了
-
-
-
-
-
 
 
 -----
@@ -13831,28 +9819,19 @@ M7 ガラスを割れ！
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 1851#       发表于 2018-7-16 02:00
 
 
-
-
 哦对，忘了这事了
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1852#       发表于 2018-7-16 16:58
-
 
 
  本帖最后由 芍药 于 2018-7-16 17:01 编辑 
@@ -13866,9 +9845,6 @@ M7 ガラスを割れ！
 下载附件
 
 2018-7-16 16:38 上传
-
-
-
 
 
  <blockquote><strong>​​​【ka行不会翻字幕组】BRODY8月号 菅井友香访谈</strong>
@@ -13910,17 +9886,10 @@ M7 ガラスを割れ！
 两周年live虽然平手不在很遗憾，但从结果来看至少排除了“平手不在欅坂要完蛋了”的可能，成员也都能胜任Center，是好事
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1853#       发表于 2018-7-19 01:25
-
-
 
 
 五妹之前消失原来是去拍戏了   那之前梨加也消失过一段时间.....
@@ -13938,9 +9907,6 @@ M7 ガラスを割れ！
 2018-7-19 01:24 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/19/012453gsaeff8oalrelnzs.jpg" referrerpolicy="no-referrer">
 
 
@@ -13949,12 +9915,6 @@ M7 ガラスを割れ！
 下载附件
 
 2018-7-19 01:24 上传
-
-
-
-
-
-
 
 
 [size=1.286em]　人気アイドルグループ・[欅坂46](http://www.oricon.co.jp/prof/artist/670123/)の[今泉佑唯](http://www.oricon.co.jp/prof/artist/684706/)が、テレビ東京と映像配信サービス「Netflix」がタッグを組んだ連続ドラマ『恋のツキ』で、単独ドラマ初出演を果たすことがわかった。 
@@ -13982,35 +9942,19 @@ BSジャパン：7月31日スタート、毎週火曜　深0：00～0：30
 Netflix配信：11月30日全話一挙配信予定 </blockquote>
 
 
-
-
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 1854#       发表于 2018-7-19 16:44
 
 
-
-
 刚看到最新握手数据，flop得太可怕了，775已然是绿团一姐<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1855#       发表于 2018-7-19 20:26
-
-
 
 
 这单274/810（34%），上单402/831（48%）   假名升，汉字降 整体下降蛮严重的  还不知道是因为规则问题还是人气问题导致的，等三四抽甚至销量出来再看吧
@@ -14026,9 +9970,6 @@ Netflix配信：11月30日全話一挙配信予定 </blockquote>
 2018-7-19 20:08 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/19/200857vqqqcb0qbop414q4.jpg" referrerpolicy="no-referrer">
 
 
@@ -14037,11 +9978,6 @@ Netflix配信：11月30日全話一挙配信予定 </blockquote>
 下载附件
 
 2018-7-19 20:08 上传
-
-
-
-
-
 
 
 小林专属，下个估计是土生或者史帆了 <blockquote><strong>欅坂46小林由依が「ｗｉｔｈ」専属モデルに就任</strong>　欅坂４６小林由依（１８）が、ファッション誌「ｗｉｔｈ」（講談社）の専属モデルに就任したことが１８日、分かった。今月２８日発売の９月号に登場する。
@@ -14059,17 +9995,7 @@ Netflix配信：11月30日全話一挙配信予定 </blockquote>
 2018-7-19 20:20 上传
 
 
-
-
 </blockquote>
-
-
-
-
-
-
-
-
 
 
 -----
@@ -14078,14 +10004,7 @@ Netflix配信：11月30日全話一挙配信予定 </blockquote>
 ##### 1856#       发表于 2018-7-19 20:44
 
 
-
-
 反正贴吧倒是喷的热闹，各种智商从下水道喷出来
-
-
-
-
-
 
 
 -----
@@ -14096,12 +10015,10 @@ Netflix配信：11月30日全話一挙配信予定 </blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 1858#       发表于 2018-7-19 23:34
-
 
 
  本帖最后由 芍药 于 2018-7-19 23:42 编辑 
@@ -14109,20 +10026,13 @@ Netflix配信：11月30日全話一挙配信予定 </blockquote>
 谁先切谁后切一两周差距也就唯饭嘴炮有点数据对比或者日复一日的药丸乙烷，最后都能完切就没事了   775确实是争气，给了综艺的镜头自己也把握得好出效果
 
 
-
 明天开始共和国，会玩的话最终日直接七单现场初披露，连站位都不放好不好啊~
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1859#       发表于 2018-7-21 02:29
-
 
 
 <strong> 电视剧版的啦啦队之舞  沉默MV</strong>
@@ -14137,9 +10047,6 @@ Netflix配信：11月30日全話一挙配信予定 </blockquote>
 2018-7-21 02:02 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/21/020242rq6l0l10qtv9lzfv.jpg" referrerpolicy="no-referrer">
 
 
@@ -14148,9 +10055,6 @@ Netflix配信：11月30日全話一挙配信予定 </blockquote>
 下载附件
 
 2018-7-21 02:02 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/21/020241bnoiqnuu71unkq7k.jpg" referrerpolicy="no-referrer">
@@ -14163,9 +10067,6 @@ Netflix配信：11月30日全話一挙配信予定 </blockquote>
 2018-7-21 02:02 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/21/020240evn7nc3ndf90zcc0.jpg" referrerpolicy="no-referrer">
 
 
@@ -14174,9 +10075,6 @@ Netflix配信：11月30日全話一挙配信予定 </blockquote>
 下载附件
 
 2018-7-21 02:02 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/21/020240zkpx7e75npettpb1.jpg" referrerpolicy="no-referrer">
@@ -14189,9 +10087,6 @@ Netflix配信：11月30日全話一挙配信予定 </blockquote>
 2018-7-21 02:02 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/21/020239n6k4qpqsjhq6agg4.jpg" referrerpolicy="no-referrer">
 
 
@@ -14200,9 +10095,6 @@ Netflix配信：11月30日全話一挙配信予定 </blockquote>
 下载附件
 
 2018-7-21 02:02 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/21/020238r4et6v9zz6vjlhhb.jpg" referrerpolicy="no-referrer">
@@ -14215,9 +10107,6 @@ Netflix配信：11月30日全話一挙配信予定 </blockquote>
 2018-7-21 02:02 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/21/020237xe4a2not2hm2ymdm.jpg" referrerpolicy="no-referrer">
 
 
@@ -14226,14 +10115,6 @@ Netflix配信：11月30日全話一挙配信予定 </blockquote>
 下载附件
 
 2018-7-21 02:02 上传
-
-
-
-
-
-
-
-
 
 
 小圆舞台剧出演人员，芽実主角一二期各五人 <blockquote>出演 
@@ -14269,10 +10150,6 @@ Netflix配信：11月30日全話一挙配信予定 </blockquote>
 2018-7-21 02:07 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/21/020747x33gmdmgrjgjxehg.jpg" referrerpolicy="no-referrer">
 
 
@@ -14281,14 +10158,6 @@ Netflix配信：11月30日全話一挙配信予定 </blockquote>
 下载附件
 
 2018-7-21 02:07 上传
-
-
-
-
-
-
-
-
 
 
 今年共和国红黄黑配色的国旗
@@ -14303,10 +10172,6 @@ Netflix配信：11月30日全話一挙配信予定 </blockquote>
 2018-7-21 02:17 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/21/021855xkj73unsvm1jpbhv.jpg" referrerpolicy="no-referrer">
 
 
@@ -14315,11 +10180,6 @@ Netflix配信：11月30日全話一挙配信予定 </blockquote>
 下载附件
 
 2018-7-21 02:18 上传
-
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/21/020458zzu3qhn51lnuq3vd.jpg" referrerpolicy="no-referrer">
@@ -14332,17 +10192,11 @@ Netflix配信：11月30日全話一挙配信予定 </blockquote>
 2018-7-21 02:04 上传
 
 
-
-
-
-
-
 成员海报
 
 汉字[https://imgur.com/a/Tg1g97B](https://imgur.com/a/Tg1g97B)
 
 假名[https://imgur.com/a/fqYv2lQ](https://imgur.com/a/fqYv2lQ) 
-
 
 
 第一天的曲目 <blockquote>Overture 
@@ -14409,10 +10263,6 @@ MC②(欅坂46→けやき坂46)
 2018-7-21 02:23 上传
 
 
-
-
-
-
 这么喷法观众成员都会感冒吧
 
 <img src="https://img.saraba1st.com/forum/201807/21/022524kdhkmdtt8g9ojmcq.jpg" referrerpolicy="no-referrer">
@@ -14425,9 +10275,6 @@ MC②(欅坂46→けやき坂46)
 2018-7-21 02:25 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/21/022524n633a3camz8n36s3.jpg" referrerpolicy="no-referrer">
 
 
@@ -14438,39 +10285,19 @@ MC②(欅坂46→けやき坂46)
 2018-7-21 02:25 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 1860#       发表于 2018-7-22 19:14
 
 
-
-
 看标题就知道了应该是小平c，共和国出碟可真是好消息！！
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1861#       发表于 2018-7-22 23:36
-
 
 
  本帖最后由 芍药 于 2018-7-23 22:13 编辑 
@@ -14494,7 +10321,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 新曲  ambivalent  “矛盾”，夏日情歌，cool系的风格类似怪人的pop版，三排中间是梨加，二排中间睡觉，一排是土生栗子平手risa小林，平手的舞蹈有侧手翻的动作
 
 
-
 <img src="https://img.saraba1st.com/forum/201807/23/174753hinoego9ooro9mm9.jpg" referrerpolicy="no-referrer">
 
 
@@ -14503,9 +10329,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 下载附件
 
 2018-7-23 17:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/23/174747y5cbb5ai9rr4o1n5.jpg" referrerpolicy="no-referrer">
@@ -14518,9 +10341,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 2018-7-23 17:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/23/174746bv3qnv585sj1g9d8.jpg" referrerpolicy="no-referrer">
 
 
@@ -14529,9 +10349,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 下载附件
 
 2018-7-23 17:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/23/174745sldskwv5eskklbss.jpg" referrerpolicy="no-referrer">
@@ -14544,9 +10361,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 2018-7-23 17:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/23/174751bztfpit2kzifpp7l.jpg" referrerpolicy="no-referrer">
 
 
@@ -14555,9 +10369,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 下载附件
 
 2018-7-23 17:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/23/174749qyqdhtwtlq34dad9.jpg" referrerpolicy="no-referrer">
@@ -14570,9 +10381,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 2018-7-23 17:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/23/174745qa99kplk9hhohhce.jpg" referrerpolicy="no-referrer">
 
 
@@ -14581,9 +10389,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 下载附件
 
 2018-7-23 17:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/23/174743i0xh1gpihrjmrjh4.jpg" referrerpolicy="no-referrer">
@@ -14596,9 +10401,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 2018-7-23 17:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/23/174742fn1jjkgtgjsgmmfy.jpg" referrerpolicy="no-referrer">
 
 
@@ -14607,9 +10409,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 下载附件
 
 2018-7-23 17:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/23/174741hxryyanwhhhlvx47.jpg" referrerpolicy="no-referrer">
@@ -14622,9 +10421,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 2018-7-23 17:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/23/174741f5fafnn8ad44458f.jpg" referrerpolicy="no-referrer">
 
 
@@ -14633,9 +10429,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 下载附件
 
 2018-7-23 17:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/23/174740hk1klxmscxxmilix.jpg" referrerpolicy="no-referrer">
@@ -14648,9 +10441,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 2018-7-23 17:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/23/174739lf8cef8bjfc2zf3c.jpg" referrerpolicy="no-referrer">
 
 
@@ -14659,9 +10449,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 下载附件
 
 2018-7-23 17:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/23/174739ulufbnpnbplbfein.jpg" referrerpolicy="no-referrer">
@@ -14674,9 +10461,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 2018-7-23 17:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/23/174737wymwh47hq7qy4545.jpg" referrerpolicy="no-referrer">
 
 
@@ -14685,9 +10469,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 下载附件
 
 2018-7-23 17:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/23/174737u2pke3n1inx4cbnb.jpg" referrerpolicy="no-referrer">
@@ -14700,9 +10481,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 2018-7-23 17:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/23/174736fltmyw4r3dv3mvoa.jpg" referrerpolicy="no-referrer">
 
 
@@ -14711,9 +10489,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 下载附件
 
 2018-7-23 17:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/23/174735g0gngifmjzlvlkg0.jpg" referrerpolicy="no-referrer">
@@ -14726,9 +10501,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 2018-7-23 17:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/23/174750i8vyypywavvwlxln.jpg" referrerpolicy="no-referrer">
 
 
@@ -14737,9 +10509,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 下载附件
 
 2018-7-23 17:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/23/174752ig7bng0ni007nnbq.jpg" referrerpolicy="no-referrer">
@@ -14752,9 +10521,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 2018-7-23 17:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/23/174744b6f6jkulxx6gh6zx.jpg" referrerpolicy="no-referrer">
 
 
@@ -14763,9 +10529,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 下载附件
 
 2018-7-23 17:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/23/180123sj5ov6j5wvfkjjzh.jpg" referrerpolicy="no-referrer">
@@ -14778,9 +10541,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 2018-7-23 18:01 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/23/221319h7rt8bbk7qu5ui1p.jpg" referrerpolicy="no-referrer">
 
 
@@ -14789,9 +10549,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 下载附件
 
 2018-7-23 22:13 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/23/221319y77waamj7jzhfwxl.jpg" referrerpolicy="no-referrer">
@@ -14804,9 +10561,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 2018-7-23 22:13 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/23/221320kl13il5fgsx54zkk.jpg" referrerpolicy="no-referrer">
 
 
@@ -14815,11 +10569,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 下载附件
 
 2018-7-23 22:13 上传
-
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/23/210459mr88vyss8v8rynyx.jpg" referrerpolicy="no-referrer">
@@ -14832,9 +10581,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 2018-7-23 21:04 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/23/180240thos8rqzssojnrza.jpg" referrerpolicy="no-referrer">
 
 
@@ -14843,9 +10589,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 下载附件
 
 2018-7-23 18:02 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/23/180314o1t1t6eqcbe1n4nc.jpg" referrerpolicy="no-referrer">
@@ -14858,9 +10601,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 2018-7-23 18:03 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/23/180342jn1c3o1a44t76tdt.jpg" referrerpolicy="no-referrer">
 
 
@@ -14869,9 +10609,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 下载附件
 
 2018-7-23 18:03 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/23/180359z5jv2qvr2qapk2ar.jpg" referrerpolicy="no-referrer">
@@ -14884,10 +10621,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 2018-7-23 18:03 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/23/174750jq7e7qmpj5e3vetq.jpg" referrerpolicy="no-referrer">
 
 
@@ -14896,11 +10629,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 下载附件
 
 2018-7-23 17:47 上传
-
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/23/180550gczcecv47wczyc14.jpg" referrerpolicy="no-referrer">
@@ -14913,9 +10641,6 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 2018-7-23 18:05 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/23/180714h4gwvha9xbr9git4.jpg" referrerpolicy="no-referrer">
 
 
@@ -14926,43 +10651,13 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 2018-7-23 18:07 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  seedees3  
 ##### 1862#       发表于 2018-7-22 23:55
 
 
-
-
 偶像夹着被子睡很牙白吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14971,15 +10666,9 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 ##### 1863#       发表于 2018-7-22 23:58
 
 
-
 [http://www.keyakizaka46.com/s/k46o/news/detail/R00076](http://www.keyakizaka46.com/s/k46o/news/detail/R00076)
 
 今泉又有solo啦
-
-
-
-
-
 
 
 -----
@@ -14988,14 +10677,7 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 ##### 1864#       发表于 2018-7-23 00:03
 
 
-
-
 这集欅写感觉很不错啊
-
-
-
-
-
 
 
 -----
@@ -15004,14 +10686,7 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 ##### 1865#       发表于 2018-7-23 00:16
 
 
-
-
 这集笑点是近期最密的了
-
-
-
-
-
 
 
 -----
@@ -15020,21 +10695,13 @@ ambivalent。 一人の人物について、好意と嫌悪を同時に持つ、
 ##### 1866#       发表于 2018-7-23 00:18
 
 
-
-
 五妹是solo+拍生写？希望这次能给个MV
-
-
-
-
-
 
 
 -----
 
 ####  小潴窿弟  
 ##### 1867#       发表于 2018-7-23 00:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40415009&amp;ptid=1340143" target="_blank">秋雨灰灰 发表于 2018-7-22 23:58</a>
@@ -15046,25 +10713,13 @@ http://www.keyakizaka46.com/s/k46o/news/detail/R00076
 —— 来自 OnePlus ONEPLUS A3000, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  秋雨灰灰  
 ##### 1868#       发表于 2018-7-23 00:28
 
 
-
-
 圈吧有录音，感觉比6单要好一点
-
-
-
-
-
 
 
 -----
@@ -15073,13 +10728,7 @@ http://www.keyakizaka46.com/s/k46o/news/detail/R00076
 ##### 1869#       发表于 2018-7-23 00:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">贴吧风向变了吗，现在都不说平手一人团了，都婊今泉天天划水黑脸无限资源，不过也随意了反正该给资源还是给，好好听歌就好
-
-
-
-
-
 
 
 -----
@@ -15088,17 +10737,10 @@ http://www.keyakizaka46.com/s/k46o/news/detail/R00076
 ##### 1870#       发表于 2018-7-23 00:44
 
 
-
-
 天天撕来撕去不知道有什么好撕的<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
 顺便欅7似乎比乃21好听不少啊，乃21需要结合MV
-
-
-
-
-
 
 
 -----
@@ -15107,16 +10749,9 @@ http://www.keyakizaka46.com/s/k46o/news/detail/R00076
 ##### 1871#       发表于 2018-7-23 00:49
 
 
-
-
 一人团都说两年多也差不多腻了况且团队确实交出好看的成绩表，这就是最大的护身符。
 
 不像SKE跟AKB成团的时候还有玲奈跟总嘟嘟能跟原C形成竞争，在表演这方面平手之下是断层的，本来五妹有这个能力跟资源跟上，可惜身体确实不好
-
-
-
-
-
 
 
 -----
@@ -15125,21 +10760,13 @@ http://www.keyakizaka46.com/s/k46o/news/detail/R00076
 ##### 1872#       发表于 2018-7-23 00:55
 
 
-
-
 从欅共和国这几天涌现大量假名只有三首歌的不满repo看来，撕逼点可能会由“平手一人团”&amp;“握手女奴VS官推”变成“血汗工厂平假VS混吃等死汉字”了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">在前辈的基础上再开创新的撕逼角度
-
-
-
-
-
 
 
 -----
 
 ####  dxxtiger  
 ##### 1873#       发表于 2018-7-23 12:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40415461&amp;ptid=1340143" target="_blank">芍药 发表于 2018-7-23 01:55</a>
@@ -15151,25 +10778,13 @@ http://www.keyakizaka46.com/s/k46o/news/detail/R00076
 这次的话五妹是集火的MT了，鸭梨三排很多单推毒唯肯定心态炸裂的，昨晚5ch上假名厨也跳出来说全员曲都不参加的人还占一个cw简直亲女儿blabla，如果还有五妹推跳两下估计画美不看<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1874#       发表于 2018-7-23 21:12
 
 
-
-
 旋律的感觉是危险计划的快节奏+怪人碎碎念的混合体，副歌比起主歌更有记忆点
-
-
-
-
-
 
 
 -----
@@ -15178,16 +10793,10 @@ http://www.keyakizaka46.com/s/k46o/news/detail/R00076
 ##### 1875#       发表于 2018-7-23 21:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40418919&amp;ptid=1340143" target="_blank">dxxtiger 发表于 2018-7-23 12:18</a>
 
 5ch上估计已经闹了小半年了，假名厨觉得自己的推被利用来涨销量，汉字厨觉得6单已经给了2个cw位还来撕蹬 ...</blockquote>
 一天不分家一天都会有这个问题，但本来就不可能有完全没问题的模式   饭群内部撕不影响到对外形象就能接受
-
-
-
-
-
 
 
 -----
@@ -15196,16 +10805,10 @@ http://www.keyakizaka46.com/s/k46o/news/detail/R00076
 ##### 1876#       发表于 2018-7-23 21:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40423833&amp;ptid=1340143" target="_blank">芍药 发表于 2018-7-23 22:12</a>
 
 旋律的感觉是危险计划的快节奏+怪人碎碎念的混合体，副歌比起主歌更有记忆点 ...</blockquote>
 昨天现场看，配合舞蹈非常适合夏巡带动气氛了
-
-
-
-
-
 
 
 -----
@@ -15214,16 +10817,10 @@ http://www.keyakizaka46.com/s/k46o/news/detail/R00076
 ##### 1877#       发表于 2018-7-23 21:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40423909&amp;ptid=1340143" target="_blank">芍药 发表于 2018-7-23 22:20</a>
 
 一天不分家一天都会有这个问题，但本来就不可能有完全没问题的模式   饭群内部撕不影响到对外形象就能接 ...</blockquote>
 其实绿团粉丝里，至少5厕核心用户是比较少的了。而且其实粉丝需求，怎么都不能得到满足的。不管是平手拍电影还是今泉去拍电视剧，这种对个人很重要而且也能扩大团队知名度的外务，运营其实还是舍得放出去的。现在是放出去别家推嘲不干活（握手=干活？？？偶像除了饭撒也是要先有艺能活动的好不好），不放出去的话嘉兴路某团就是很好的例子了，手拉手一直糊着谁都别想出村。
-
-
-
-
-
 
 
 -----
@@ -15232,14 +10829,7 @@ http://www.keyakizaka46.com/s/k46o/news/detail/R00076
 ##### 1878#       发表于 2018-7-24 08:50
 
 
-
-
 小平漫画封面那套图真不错………有点想把桌面高山换掉了……
-
-
-
-
-
 
 
 -----
@@ -15248,11 +10838,9 @@ http://www.keyakizaka46.com/s/k46o/news/detail/R00076
 ##### 1879#       发表于 2018-7-24 08:58
 
 
-
  本帖最后由 芍药 于 2018-7-24 09:01 编辑 
 
 这几段快节奏的说唱会手忙脚乱吧
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/24/084212ewlxl4d4yai4wwww.jpg" referrerpolicy="no-referrer">
@@ -15265,9 +10853,6 @@ http://www.keyakizaka46.com/s/k46o/news/detail/R00076
 2018-7-24 08:42 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/24/084214s96ap6rhy8n6x626.jpg" referrerpolicy="no-referrer">
 
 
@@ -15276,9 +10861,6 @@ http://www.keyakizaka46.com/s/k46o/news/detail/R00076
 下载附件
 
 2018-7-24 08:42 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/24/084217gajli86yrqy36jin.jpg" referrerpolicy="no-referrer">
@@ -15291,9 +10873,6 @@ http://www.keyakizaka46.com/s/k46o/news/detail/R00076
 2018-7-24 08:42 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/24/090127dpk5kew0hyuh4gkk.jpg" referrerpolicy="no-referrer">
 
 
@@ -15304,22 +10883,10 @@ http://www.keyakizaka46.com/s/k46o/news/detail/R00076
 2018-7-24 09:01 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1880#       发表于 2018-7-25 20:27
-
 
 
 <blockquote>[#明日のZIP](https://twitter.com/hashtag/%E6%98%8E%E6%97%A5%E3%81%AEZIP?src=hash&amp;ref_src=twsrc%5Etfw)! [#SHOWBIZコーナー](https://twitter.com/hashtag/SHOWBIZ%E3%82%B3%E3%83%BC%E3%83%8A%E3%83%BC?src=hash&amp;ref_src=twsrc%5Etfw) は…
@@ -15339,25 +10906,13 @@ http://www.keyakizaka46.com/s/k46o/news/detail/R00076
 MV来了，有点好奇这单会怎么拍   近似危险计划的节拍，近似怪人类的歌词，结合在一起有点不兼容
 
 
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 1881#       发表于 2018-7-26 14:35
 
 
-
-
 mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细看原来是tm裤子！！
-
-
-
-
-
 
 
 -----
@@ -15366,14 +10921,7 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 ##### 1882#       发表于 2018-7-26 19:07
 
 
-
-
 长裙飘飘是不可能的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15382,14 +10930,7 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 ##### 1883#       发表于 2018-7-27 00:48
 
 
-
-
 除了跳起来转圈的镜头感觉突兀…我喜欢这个mv！平手真不错！
-
-
-
-
-
 
 
 -----
@@ -15398,21 +10939,13 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 ##### 1884#       发表于 2018-7-27 02:10
 
 
-
-
 5单时候就说了，穿裤子那么好卖，下一单继续穿裤子
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1885#       发表于 2018-7-27 07:15
-
 
 
  本帖最后由 芍药 于 2018-7-27 10:18 编辑 
@@ -15431,10 +10964,6 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 2018-7-27 10:18 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/27/101848ypg6a5bmsr6ymyjj.png" referrerpolicy="no-referrer">
 
 
@@ -15445,35 +10974,17 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 2018-7-27 10:18 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1886#       发表于 2018-7-27 17:48
 
 
-
-
 平手代言养乐多，话说养乐多股价今天很应景地涨了一些，虽然大概无关但也是个好彩头了。
-
-
-
-
 
 
 006ze8dqgy1fto9db1yq3j31wx2pg4b8.jpg
 (59.35 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -15482,32 +10993,13 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 2018-7-27 17:48 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/27/184819qhl8ivj8aa5z8l2n.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1887#       发表于 2018-7-27 20:43
-
-
 
 
 两团
@@ -15522,9 +11014,6 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 2018-7-27 20:34 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/27/203407pubexm5qz5ietva6.jpg" referrerpolicy="no-referrer">
 
 
@@ -15533,12 +11022,6 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 下载附件
 
 2018-7-27 20:34 上传
-
-
-
-
-
-
 
 
 要真有劳森一日店员的话饭会不买东西光逛店的
@@ -15553,9 +11036,6 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 2018-7-27 20:36 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/27/203625qhqwf8hy33wybuz3.png" referrerpolicy="no-referrer">
 
 
@@ -15564,9 +11044,6 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 下载附件
 
 2018-7-27 20:36 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/27/203626qm2smwga8mwg0294.jpg" referrerpolicy="no-referrer">
@@ -15579,22 +11056,10 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 2018-7-27 20:36 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  梦游君  
 ##### 1888#       发表于 2018-7-27 23:13
-
-
 
 
 流窜过来留个言。
@@ -15606,16 +11071,10 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 你团的1、4、7单实在太喜欢了。不过3单这种感觉给哪个偶像团都行的歌吹不动，偏偏还有很多人喜欢。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1889#       发表于 2018-7-28 14:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40466853&amp;ptid=1340143" target="_blank">梦游君 发表于 2018-7-27 23:13</a>
@@ -15632,16 +11091,10 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 而且没记错的话也是从三单开始卖“欅21笔欅坂21人”的概念，虽然对假名不公平但对当时占主力的汉字饭来说是很受落的，这点场外因素也很重要。
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1890#       发表于 2018-7-29 02:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40471461&amp;ptid=1340143" target="_blank">芍药 发表于 2018-7-28 15:35</a>
@@ -15656,17 +11109,10 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 然则汉字欅的主打风格可以说从4单开始就逐步固定下来了，又或者说不固定不行了，捆绑近距离接触手段的营销方式已经成了偶像业界主流，靠王道风格+握手糊口还行，但想维持在媒体上的高认知度和话题度就远远不够了。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1891#       发表于 2018-7-30 23:09
-
-
 
 
 睡觉的两周NHK冠番，全国放送 <blockquote><strong>欅坂46長濱ねる“新しい発見をしていく”姿も可愛い！興味があるものとは</strong>【長濱ねる／モデルプレス＝7月30日】欅坂46の長濱ねるが出演する番組「ねるねちけいONLINE!」が7日（火）、14日（火）にNHK総合テレビにて放送される。
@@ -15683,9 +11129,6 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 2018-7-30 22:58 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/30/225859rupg6rrajzud8jpj.jpg" referrerpolicy="no-referrer">
 
 
@@ -15694,12 +11137,6 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 下载附件
 
 2018-7-30 22:58 上传
-
-
-
-
-
-
 
 
 罗森的合作地铁广告
@@ -15714,9 +11151,6 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 2018-7-30 23:01 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/30/230102z17hygffk5wvw11p.jpg" referrerpolicy="no-referrer">
 
 
@@ -15725,9 +11159,6 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 下载附件
 
 2018-7-30 23:01 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/30/230103q7r3gl73szs3s17i.jpg" referrerpolicy="no-referrer">
@@ -15740,21 +11171,10 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 2018-7-30 23:01 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1892#       发表于 2018-7-31 12:32
-
 
 
  本帖最后由 芍药 于 2018-7-31 14:01 编辑 
@@ -15771,9 +11191,6 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 2018-7-31 12:32 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/31/123215uwdw28ovw8208wn2.jpg" referrerpolicy="no-referrer">
 
 
@@ -15782,9 +11199,6 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 下载附件
 
 2018-7-31 12:32 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/31/124106pshxpga0x6x0gh6t.jpg" referrerpolicy="no-referrer">
@@ -15797,9 +11211,6 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 2018-7-31 12:41 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/31/124119f89z8a2584w0r48w.jpg" referrerpolicy="no-referrer">
 
 
@@ -15808,10 +11219,6 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 下载附件
 
 2018-7-31 12:41 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/31/124036i0ppz5ktfjmdgg1o.jpg" referrerpolicy="no-referrer">
@@ -15824,21 +11231,10 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 2018-7-31 12:40 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1893#       发表于 2018-7-31 20:22
-
 
 
  本帖最后由 芍药 于 2018-7-31 20:34 编辑 
@@ -15854,17 +11250,8 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 2018-7-31 20:16 上传
 
 
-
-
-
 电影除了主题曲以外应该没有什么需要特意公布了，七单倒是现在都没出封面
 七单的宣传加上电影的宣传，八月份平手会非常忙
-
-
-
-
-
-
 
 
 -----
@@ -15873,14 +11260,7 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 ##### 1894#       发表于 2018-8-1 00:32
 
 
-
-
 还有夏巡
-
-
-
-
-
 
 
 -----
@@ -15889,22 +11269,13 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 ##### 1895#       发表于 2018-8-1 13:19
 
 
-
-
 假名的新PV感觉……有种睡眠打破或者红牛广告的feel……整个叙事第一反应是“给办公室带来活力”
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1896#       发表于 2018-8-2 21:04
-
-
 
 
 这套衣服显腿短人矮，像睡觉小号这种体型就更明显了
@@ -15919,9 +11290,6 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 2018-8-2 21:01 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/02/210145fb0xuk7ztxhxjzk7.jpg" referrerpolicy="no-referrer">
 
 
@@ -15930,9 +11298,6 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 下载附件
 
 2018-8-2 21:01 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/02/210144yqxg2acnqmm6smwg.jpg" referrerpolicy="no-referrer">
@@ -15945,9 +11310,6 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 2018-8-2 21:01 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/02/210143fs9ueknymzk7onbs.jpg" referrerpolicy="no-referrer">
 
 
@@ -15956,9 +11318,6 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 下载附件
 
 2018-8-2 21:01 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/02/210142e9h0arnp22s2xpcz.jpg" referrerpolicy="no-referrer">
@@ -15971,9 +11330,6 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 2018-8-2 21:01 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/02/210141q5gzf1zrr1gnp15r.jpg" referrerpolicy="no-referrer">
 
 
@@ -15984,30 +11340,13 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 2018-8-2 21:01 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 1897#       发表于 2018-8-2 21:05
 
 
-
-
 这封面普通到难看！也太不用心了！
-
-
-
-
-
 
 
 -----
@@ -16018,21 +11357,13 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  梦游君  
 ##### 1899#       发表于 2018-8-2 21:35
 
 
-
-
 封面设计不丑，但衣服真是像公园晨练大爷团。
-
-
-
-
-
 
 
 -----
@@ -16041,14 +11372,7 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 ##### 1900#       发表于 2018-8-2 21:56
 
 
-
-
 衣服不收腰跳舞的时候少点束缚，但静态不怎么好看而且没偶像感
-
-
-
-
-
 
 
 -----
@@ -16057,24 +11381,16 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 ##### 1901#       发表于 2018-8-3 00:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40527235&amp;ptid=1340143" target="_blank">芍药 发表于 2018-8-2 22:56</a>
 
 衣服不收腰跳舞的时候少点束缚，但静态不怎么好看而且没偶像感</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">没偶像感也不是一天两天了
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1902#       发表于 2018-8-3 12:44
-
-
 
 
 球不是合成的而是实时拍摄
@@ -16090,11 +11406,6 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 2018-8-3 12:34 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/03/123226c6sij61r1zjzio61.jpg" referrerpolicy="no-referrer">
 
 
@@ -16105,22 +11416,9 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 2018-8-3 12:32 上传
 
 
-
-
-
-
-
-
-
 12岁，要真进的话就比平手跟莲加的进团年纪都小了 <blockquote>乃木坂46高山一実 
 
 「坂道合同オーディション2次審査は若い子ばっかり、12歳くらいの子どもがいっぱい集まってて」 </blockquote>
-
-
-
-
-
-
 
 
 -----
@@ -16129,14 +11427,7 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 ##### 1903#       发表于 2018-8-3 13:21
 
 
-
-
 小珠入团11，还好还好～
-
-
-
-
-
 
 
 -----
@@ -16147,14 +11438,12 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  原始恶魔  
 ##### 1905#       发表于 2018-8-3 13:28
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -16165,12 +11454,10 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  梦游君  
 ##### 1907#       发表于 2018-8-3 18:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40532889&amp;ptid=1340143" target="_blank">原始恶魔 发表于 2018-8-3 13:28</a>
@@ -16185,11 +11472,6 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 不过说赶工还是不同意的，这首歌挺不错的。
 
 
-
-
-
-
-
 -----
 
 ####  原始恶魔  
@@ -16198,13 +11480,10 @@ mv动作好怪……另外一开始以为是裙子心说撩裙子不错啊！细
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 1909#       发表于 2018-8-3 21:05
-
-
 
 
 百万不会有问题的，顶多磨久一点，志田小葵五妹都不握个握加上饭群转移了点去假二，数据上是会难看点，不过也就是磨一两个月的事情
@@ -16221,10 +11500,6 @@ switch
 2018-8-3 21:04 上传
 
 
-
-
-
-
 七单MV拍摄理念
 
 <img src="https://img.saraba1st.com/forum/201808/03/210435a2q3e51ql5qy1hvg.jpg" referrerpolicy="no-referrer">
@@ -16237,16 +11512,6 @@ switch
 2018-8-3 21:04 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  原始恶魔  
@@ -16255,12 +11520,10 @@ switch
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  梦游君  
 ##### 1911#       发表于 2018-8-4 00:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40538532&amp;ptid=1340143" target="_blank">原始恶魔 发表于 2018-8-3 22:59</a>
@@ -16275,16 +11538,10 @@ switch
 只要主题传达到了就是一张照片最大的胜利。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1912#       发表于 2018-8-4 00:11
-
 
 
  本帖最后由 芍药 于 2018-8-4 00:31 编辑 
@@ -16312,7 +11569,6 @@ switch
 这什么风格<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">要做羞羞的事吗，你们不是这样的团队啊
 
 
-
 五妹缺席RIJ，新剧尺度有点大，刨除滤镜有点看不下去
 
 <img src="https://img.saraba1st.com/forum/201808/04/002933wkkfptr7kcpvjc9n.png" referrerpolicy="no-referrer">
@@ -16325,13 +11581,6 @@ switch
 2018-8-4 00:29 上传
 
 
-
-
-
-
-
-
-
 假名今天的TIF
 
 <img src="https://img.saraba1st.com/forum/201808/04/003007nrmmeqwawwocw7ot.jpg" referrerpolicy="no-referrer">
@@ -16342,8 +11591,6 @@ switch
 下载附件
 
 2018-8-4 00:30 上传
-
-
 
 
  <blockquote><strong>「TOKYO IDOL FESTIVAL 2018」初日 
@@ -16367,13 +11614,6 @@ M5 誰よりも高く跳べ！
 M6 NO WAR in the future</blockquote>
 
 
-
-
-
-
-
-
-
 -----
 
 ####  原始恶魔  
@@ -16382,12 +11622,10 @@ M6 NO WAR in the future</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 1914#       发表于 2018-8-4 13:53
-
 
 
  本帖最后由 芍药 于 2018-8-4 20:59 编辑 
@@ -16413,9 +11651,6 @@ M10 ガラスを割れ！</blockquote>
 2018-8-4 13:45 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/04/134504dzvy4zv4bstchymf.jpg" referrerpolicy="no-referrer">
 
 
@@ -16424,9 +11659,6 @@ M10 ガラスを割れ！</blockquote>
 下载附件
 
 2018-8-4 13:45 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/04/134504aoo8heb2z28fqu6h.jpg" referrerpolicy="no-referrer">
@@ -16439,9 +11671,6 @@ M10 ガラスを割れ！</blockquote>
 2018-8-4 13:45 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/04/135154temh47a27ie072c1.jpg" referrerpolicy="no-referrer">
 
 
@@ -16450,9 +11679,6 @@ M10 ガラスを割れ！</blockquote>
 下载附件
 
 2018-8-4 13:51 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/04/205855cqecjj78q8cl8jv5.jpg" referrerpolicy="no-referrer">
@@ -16465,9 +11691,6 @@ M10 ガラスを割れ！</blockquote>
 2018-8-4 20:58 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/04/205855xr21bnbb2bmff2zk.jpg" referrerpolicy="no-referrer">
 
 
@@ -16476,9 +11699,6 @@ M10 ガラスを割れ！</blockquote>
 下载附件
 
 2018-8-4 20:58 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/04/205854nj3aaka1aji3upp3.jpg" referrerpolicy="no-referrer">
@@ -16491,9 +11711,6 @@ M10 ガラスを割れ！</blockquote>
 2018-8-4 20:58 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/04/205853la55t5alvm1za5y5.jpg" referrerpolicy="no-referrer">
 
 
@@ -16502,9 +11719,6 @@ M10 ガラスを割れ！</blockquote>
 下载附件
 
 2018-8-4 20:58 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/04/205852tuurywwwyjw9tyo9.jpg" referrerpolicy="no-referrer">
@@ -16517,9 +11731,6 @@ M10 ガラスを割れ！</blockquote>
 2018-8-4 20:58 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/04/205851wktxoexq0nkxoq0u.jpg" referrerpolicy="no-referrer">
 
 
@@ -16528,9 +11739,6 @@ M10 ガラスを割れ！</blockquote>
 下载附件
 
 2018-8-4 20:58 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/04/205850iz63cfg3f5uahz9c.jpg" referrerpolicy="no-referrer">
@@ -16543,21 +11751,9 @@ M10 ガラスを割れ！</blockquote>
 2018-8-4 20:58 上传
 
 
-
-
-
-
-
 这次的衣服蛮好看的，有点小红帽的感觉平手表演完由小林扶着退场不过只是累的程度问题不大 <blockquote>平手さんフルで通してバチバチに痺れたし出し切れるもの出し切った感じで本当によかった。
 
 ラストで平手さん倒れそうになってたけど小林由依さんが支えてて、その抱えられて退場するシーンになんかグッときてしまった</blockquote>
-
-
-
-
-
-
-
 
 
 -----
@@ -16566,14 +11762,7 @@ M10 ガラスを割れ！</blockquote>
 ##### 1915#       发表于 2018-8-4 13:56
 
 
-
-
 衣服好看可感觉太闷了，加上这天气，感觉满台汗香淋漓～
-
-
-
-
-
 
 
 -----
@@ -16582,23 +11771,16 @@ M10 ガラスを割れ！</blockquote>
 ##### 1916#       发表于 2018-8-4 17:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40539112&amp;ptid=1340143" target="_blank">芍药 发表于 2018-8-4 01:11</a>
 
 这什么风格要做羞羞的事吗，你们不是这样的团队啊</blockquote>
 新剧怎么个尺度大？另外可以问一下哪里有资源吗？（有点好奇
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1917#       发表于 2018-8-4 20:58
-
 
 
  本帖最后由 芍药 于 2018-8-4 22:52 编辑 
@@ -16610,20 +11792,13 @@ M10 ガラスを割れ！</blockquote>
 开场口一管结尾撸一发，其实内容还好，就是老牛吃嫩草而已PS：第一集没有今泉
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1918#       发表于 2018-8-5 13:58
 
 
-
  本帖最后由 芍药 于 2018-8-5 14:31 编辑 
-
 
 
 杂技团
@@ -16638,10 +11813,6 @@ M10 ガラスを割れ！</blockquote>
 2018-8-5 13:52 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/05/143022fewkjxkelikvk4yg.gif" referrerpolicy="no-referrer">
 
 
@@ -16650,10 +11821,6 @@ M10 ガラスを割れ！</blockquote>
 下载附件
 
 2018-8-5 14:30 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/05/143039huaf8uua6vb8sne7.gif" referrerpolicy="no-referrer">
@@ -16666,10 +11833,6 @@ M10 ガラスを割れ！</blockquote>
 2018-8-5 14:30 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/05/143041pfpsucemjxeuq0t0.gif" referrerpolicy="no-referrer">
 
 
@@ -16678,13 +11841,6 @@ M10 ガラスを割れ！</blockquote>
 下载附件
 
 2018-8-5 14:30 上传
-
-
-
-
-
-
-
 
 
 学生舞MV这种神经叨叨的感觉一部分人很喜欢一部分人很不喜欢，将近50秒的间奏全靠舞蹈来撑
@@ -16699,39 +11855,19 @@ M10 ガラスを割れ！</blockquote>
 2018-8-5 13:52 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1919#       发表于 2018-8-5 15:00
 
 
-
-
 Student Dance的MV真的出乎意料了……公布音源的时候感觉就是首比较攻的小黄歌，结果没想到是那么前卫的东西。开头的围观群众和最后故意“穿帮”的摄影现场也是意味深长了，微博上看到个评论是“表演的不是小黄歌，而是表演了表演小黄歌的人的本质”
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1920#       发表于 2018-8-6 12:55
-
-
 
 
 这版公式照大多数都拍得很好看，理，5000，平，土，睡，775，栗，马，美大，小林，尾关，小号，五妹
@@ -16746,9 +11882,6 @@ Student Dance的MV真的出乎意料了……公布音源的时候感觉就是�
 2018-8-6 12:48 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/06/124841ut7tk4e7467ytbke.jpg" referrerpolicy="no-referrer">
 
 
@@ -16757,9 +11890,6 @@ Student Dance的MV真的出乎意料了……公布音源的时候感觉就是�
 下载附件
 
 2018-8-6 12:48 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/06/124842qurur7mwleumcneu.jpg" referrerpolicy="no-referrer">
@@ -16772,9 +11902,6 @@ Student Dance的MV真的出乎意料了……公布音源的时候感觉就是�
 2018-8-6 12:48 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/06/124842rw0tmtsfxj5km0m1.png" referrerpolicy="no-referrer">
 
 
@@ -16783,10 +11910,6 @@ Student Dance的MV真的出乎意料了……公布音源的时候感觉就是�
 下载附件
 
 2018-8-6 12:48 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/06/124843ugdagg2oo19ga1gg.jpg" referrerpolicy="no-referrer">
@@ -16799,9 +11922,6 @@ Student Dance的MV真的出乎意料了……公布音源的时候感觉就是�
 2018-8-6 12:48 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/06/124844wyyflmk3u9ymg8oy.png" referrerpolicy="no-referrer">
 
 
@@ -16810,9 +11930,6 @@ Student Dance的MV真的出乎意料了……公布音源的时候感觉就是�
 下载附件
 
 2018-8-6 12:48 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/06/124845nq73cjqoi8q3jcih.png" referrerpolicy="no-referrer">
@@ -16825,9 +11942,6 @@ Student Dance的MV真的出乎意料了……公布音源的时候感觉就是�
 2018-8-6 12:48 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/06/124845g0zw64yjzj2bdbbb.jpg" referrerpolicy="no-referrer">
 
 
@@ -16836,10 +11950,6 @@ Student Dance的MV真的出乎意料了……公布音源的时候感觉就是�
 下载附件
 
 2018-8-6 12:48 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/06/124846df8uvy286j2tfn4c.png" referrerpolicy="no-referrer">
@@ -16852,9 +11962,6 @@ Student Dance的MV真的出乎意料了……公布音源的时候感觉就是�
 2018-8-6 12:48 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/06/124847zbzf9tkuu153b9j2.png" referrerpolicy="no-referrer">
 
 
@@ -16863,9 +11970,6 @@ Student Dance的MV真的出乎意料了……公布音源的时候感觉就是�
 下载附件
 
 2018-8-6 12:48 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/06/124848zmuamg17dmvtftck.png" referrerpolicy="no-referrer">
@@ -16878,9 +11982,6 @@ Student Dance的MV真的出乎意料了……公布音源的时候感觉就是�
 2018-8-6 12:48 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/06/124848ypntzdcudnq9ckks.jpg" referrerpolicy="no-referrer">
 
 
@@ -16889,10 +11990,6 @@ Student Dance的MV真的出乎意料了……公布音源的时候感觉就是�
 下载附件
 
 2018-8-6 12:48 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/06/124849kgwpvtjxyhddupud.jpg" referrerpolicy="no-referrer">
@@ -16905,9 +12002,6 @@ Student Dance的MV真的出乎意料了……公布音源的时候感觉就是�
 2018-8-6 12:48 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/06/124850vwkwgh3gs33cpmk0.jpg" referrerpolicy="no-referrer">
 
 
@@ -16916,9 +12010,6 @@ Student Dance的MV真的出乎意料了……公布音源的时候感觉就是�
 下载附件
 
 2018-8-6 12:48 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/06/124851fd9tkjmmy2v9ybb5.jpg" referrerpolicy="no-referrer">
@@ -16931,9 +12022,6 @@ Student Dance的MV真的出乎意料了……公布音源的时候感觉就是�
 2018-8-6 12:48 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/06/124852fozhtzz0q5oo2ooz.jpg" referrerpolicy="no-referrer">
 
 
@@ -16942,10 +12030,6 @@ Student Dance的MV真的出乎意料了……公布音源的时候感觉就是�
 下载附件
 
 2018-8-6 12:48 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/06/124853jk7e7samsts1mhmt.jpg" referrerpolicy="no-referrer">
@@ -16958,9 +12042,6 @@ Student Dance的MV真的出乎意料了……公布音源的时候感觉就是�
 2018-8-6 12:48 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/06/124853e32ty1skvm331lky.jpg" referrerpolicy="no-referrer">
 
 
@@ -16969,9 +12050,6 @@ Student Dance的MV真的出乎意料了……公布音源的时候感觉就是�
 下载附件
 
 2018-8-6 12:48 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/06/124854enfuu7mfnu4p84pm.png" referrerpolicy="no-referrer">
@@ -16984,30 +12062,13 @@ Student Dance的MV真的出乎意料了……公布音源的时候感觉就是�
 2018-8-6 12:48 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  flyrain_yan  
 ##### 1921#       发表于 2018-8-7 21:19
 
 
-
-
 今泉毕业了。。。志田是不是特快了
-
-
-
-
-
 
 
 -----
@@ -17016,15 +12077,8 @@ Student Dance的MV真的出乎意料了……公布音源的时候感觉就是�
 ##### 1922#       发表于 2018-8-7 21:27
 
 
-
-
 今泉应该是自己要走的，不是运营赶人。走了也好，一方面如果真是身体不好也确实不适合欅坂的风格，另一方面老这么闹情绪太影响团队的稳定了。
 至于志田自己作死但不影响大局，如果回归后能老老实实的也不是非走不可。
-
-
-
-
-
 
 
 -----
@@ -17033,21 +12087,13 @@ Student Dance的MV真的出乎意料了……公布音源的时候感觉就是�
 ##### 1923#       发表于 2018-8-7 21:49
 
 
-
-
 卧槽今泉毕业了<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1924#       发表于 2018-8-7 21:54
-
 
 
  本帖最后由 芍药 于 2018-8-7 22:28 编辑 
@@ -17057,34 +12103,19 @@ Student Dance的MV真的出乎意料了……公布音源的时候感觉就是�
 “21人の絆”      over
 
 
-
-
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 1925#       发表于 2018-8-7 21:55
 
 
-
-
 其实可以算意料之中了
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1926#       发表于 2018-8-7 22:25
-
 
 
  本帖最后由 芍药 于 2018-8-8 00:00 编辑 
@@ -17100,33 +12131,17 @@ Student Dance的MV真的出乎意料了……公布音源的时候感觉就是�
 2018-8-7 22:23 上传
 
 
-
-
-
-
-
 [https://weibo.com/ttarticle/p/show?id=2309404188569206956120](https://weibo.com/ttarticle/p/show?id=2309404188569206956120)
 再看回年初的访谈，倍感唏嘘。五妹是团内最有可能接任C的成员，有能力有特质有资源，可惜时机一次次的错过。传统偶像风的二三单，上年平手夏巡刺杀事件后的五单，平手红白受伤+为电影做准备的六单，哪怕能抓住其中一次机会都不会是现在的局面：初次红白以及四单后基本定了欅坂就是平手的风格，夏巡到五单期间今泉身体状态比平手还差，六单代C期间反响普普平手回来产生对比更是直接打击自信心。
 
 
-
-
 欅坂现在平手表演之外的团内存在感淡化，睡觉走出跟平手完全不同的出村道路，其余三个top闷葫芦一样不争不抢，小林慢慢立人设养CP往前走。反观五妹，离团时间太久几次大事件都没参与（上年红白，欅共和国，两周年演唱会等），想以别的路线带领欅坂前进但平手不可能换，在团内的重要度没法更上一城楼，都是她想走的原因。
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  dxxtiger  
 ##### 1927#       发表于 2018-8-8 00:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40577817&amp;ptid=1340143" target="_blank">芍药 发表于 2018-8-7 23:25</a>
@@ -17158,25 +12173,13 @@ https://weibo.com/ttarticle/p/show?id=2309404188569206956120
 然则今泉地下C的经历和索尼音乐特待生的资格，又让她不甘心像睡觉、775、w渡边那样村内做好分内事然后村外发扬自己长处。那对她和团队来说，单飞都是唯一正解了。
 
 
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 1928#       发表于 2018-8-8 00:15
 
 
-
-
 帮她下定决心的那几个到底是谁呢。。。
-
-
-
-
-
 
 
 -----
@@ -17187,12 +12190,10 @@ https://weibo.com/ttarticle/p/show?id=2309404188569206956120
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 1930#       发表于 2018-8-8 00:29
-
 
 
  本帖最后由 芍药 于 2018-8-8 01:05 编辑 
@@ -17205,16 +12206,10 @@ https://weibo.com/ttarticle/p/show?id=2309404188569206956120
 她之前的经济公司只是小型偶像公司吧，有没有可能索尼签下来.....
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1931#       发表于 2018-8-8 00:37
-
 
 
  本帖最后由 芍药 于 2018-8-8 00:47 编辑 
@@ -17223,16 +12218,10 @@ https://weibo.com/ttarticle/p/show?id=2309404188569206956120
 小葵完成学业后基本会回来。志田跟五妹情况不一样，文春的事团内没舆论压力团外也不算什么丑闻，只要她本人想回来还是没问题的，做好面对饭的准备就是了。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1932#       发表于 2018-8-8 00:50
-
 
 
  本帖最后由 芍药 于 2018-8-8 00:52 编辑 
@@ -17246,9 +12235,6 @@ https://weibo.com/ttarticle/p/show?id=2309404188569206956120
 下载附件
 
 2018-8-8 00:49 上传
-
-
-
 
 
  <blockquote><strong>2018.8.8放送「ザ・ヒットスタジオ」
@@ -17273,26 +12259,13 @@ https://weibo.com/ttarticle/p/show?id=2309404188569206956120
 小池「はい、通常でいきます」</blockquote>
 
 
-
-
-
-
-
-
 -----
 
 ####  holyplumes  
 ##### 1933#       发表于 2018-8-8 00:57
 
 
-
-
 看过一次泉的现场，也算弥补遗憾了。可惜不能见到完整的21人了。
-
-
-
-
-
 
 
 -----
@@ -17301,14 +12274,7 @@ https://weibo.com/ttarticle/p/show?id=2309404188569206956120
 ##### 1934#       发表于 2018-8-8 01:05
 
 
-
-
 小孩子想不通啊，在团才两年毕业后在村外能有多少水花，太可惜了
-
-
-
-
-
 
 
 -----
@@ -17317,14 +12283,7 @@ https://weibo.com/ttarticle/p/show?id=2309404188569206956120
 ##### 1935#       发表于 2018-8-8 01:50
 
 
-
-
 还好，反正也早就不是那个感觉了
-
-
-
-
-
 
 
 -----
@@ -17333,23 +12292,16 @@ https://weibo.com/ttarticle/p/show?id=2309404188569206956120
 ##### 1936#       发表于 2018-8-8 02:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40579201&amp;ptid=1340143" target="_blank">seedees3 发表于 2018-8-8 02:05</a>
 
 小孩子想不通啊，在团才两年毕业后在村外能有多少水花，太可惜了</blockquote>
 其实还没2年……去年4月差不多休到8月底（可以算9月了）错过全部rock fes，然后5单期间断断续续音番都没上全，年末又休掉CDJ和红白，今年回来二周年后TGS也休掉了，前前后后加起来可能休掉了半年以上<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1937#       发表于 2018-8-8 04:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40578922&amp;ptid=1340143" target="_blank">原始恶魔 发表于 2018-8-8 01:24</a>
@@ -17364,11 +12316,6 @@ https://weibo.com/ttarticle/p/show?id=2309404188569206956120
 然则她心气高就要证明自己，结果6单本来就不太适合她的代c效果并没有太大水花，二单三单说符合她气质吧二周年又没接，要走不同路线的话都印杂志上了，那也只能拼一把这次电视剧客串能给村外留下印象了。
 
 
-
-
-
-
-
 -----
 
 ####  原始恶魔  
@@ -17377,21 +12324,13 @@ https://weibo.com/ttarticle/p/show?id=2309404188569206956120
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Loony  
 ##### 1939#       发表于 2018-8-8 12:30
 
 
-
-
 大家是不是觉得有点像当年akb的耀祖
-
-
-
-
-
 
 
 -----
@@ -17400,23 +12339,16 @@ https://weibo.com/ttarticle/p/show?id=2309404188569206956120
 ##### 1940#       发表于 2018-8-8 12:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40582959&amp;ptid=1340143" target="_blank">Loony 发表于 2018-8-8 12:30</a>
 
 大家是不是觉得有点像当年akb的耀祖</blockquote>
 差多了吧，耀祖才呆了多久，大部分时间还是研究生
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1941#       发表于 2018-8-8 13:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40581312&amp;ptid=1340143" target="_blank">原始恶魔 发表于 2018-8-8 10:54</a>
@@ -17428,26 +12360,15 @@ https://weibo.com/ttarticle/p/show?id=2309404188569206956120
 老实说这团能以比开闭和乃团更快地速度被外界认知，独特的作品风格功不可没，最起码是在产能过剩的日音圈找到了自己的生态位。
 
 
-
-
-
-
-
 -----
 
 ####  Loony  
 ##### 1942#       发表于 2018-8-8 13:31
 
 
-
 <blockquote>bka 发表于 2018-8-8 12:34
 差多了吧，耀祖才呆了多久，大部分时间还是研究生</blockquote>
 差不多吧，一样是带艺投师，想借个大门派冒头，结果争不过这边的派系，现在想自立门户，，但我觉得前景也不好，就拿女solo来说吧，现在的日音圈非创作型的女solo能红的有几个，她真以为自己是西野二代么。而且她实际在团时间也不长，大多时间都在休息
-
-
-
-
-
 
 
 -----
@@ -17456,13 +12377,7 @@ https://weibo.com/ttarticle/p/show?id=2309404188569206956120
 ##### 1943#       发表于 2018-8-8 14:12
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">想走SALA女歌手路线肯定完蛋的呀，在团内还能捧一捧，唱的好好啊，好可爱啊，出去全是满级怪，能唱得过谁啊，论唱工，论创作，论舞台表现，论经验，论风格，全部完蛋连个及格分都不一定有，最好的结果是有老实一般会社员接盘，在冬天满是人潮的涩谷街头，一边哈着冷气，一边抬头望着广告牌上欅坂新专辑的广告，身边的男人催促她快走，她开玩笑说“年轻的时候，我是这团的元老哦，”然后被人嘲笑牵走，“人家都是有名人，你这么矮怎么可能进去。”
-
-
-
-
-
 
 
 -----
@@ -17471,14 +12386,7 @@ https://weibo.com/ttarticle/p/show?id=2309404188569206956120
 ##### 1944#       发表于 2018-8-8 15:24
 
 
-
-
 也只能solo了不是…看看Sonymusic会不会把她扔去个小厂牌发几张锻炼下吧，技巧是有音色也不算差，但不知道是不是因为体质问题，稳定性很差中气不足。其实说了那么多毕业原因，最主要还是身体不行，身体不行只能缺席，缺席越多越追不上，我记得她长休完回来录的欅版show唱的再生细胞，还是很不稳。这种情况下其实也只能毕业了，现在的欅版强度太高了没办法。
-
-
-
-
-
 
 
 -----
@@ -17489,13 +12397,10 @@ https://weibo.com/ttarticle/p/show?id=2309404188569206956120
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 1946#       发表于 2018-8-11 16:11
-
-
 
 
 这种甜lo装（？）蛮适合睡池尾的
@@ -17510,10 +12415,6 @@ https://weibo.com/ttarticle/p/show?id=2309404188569206956120
 2018-8-11 16:01 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/11/160714ovt6sa288w4zv292.png" referrerpolicy="no-referrer">
 
 
@@ -17522,9 +12423,6 @@ https://weibo.com/ttarticle/p/show?id=2309404188569206956120
 下载附件
 
 2018-8-11 16:07 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/11/160411b05r7ty9jbj8fr59.png" referrerpolicy="no-referrer">
@@ -17537,9 +12435,6 @@ https://weibo.com/ttarticle/p/show?id=2309404188569206956120
 2018-8-11 16:04 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/11/160541y6ouvqqbfeznecuo.png" referrerpolicy="no-referrer">
 
 
@@ -17550,31 +12445,13 @@ https://weibo.com/ttarticle/p/show?id=2309404188569206956120
 2018-8-11 16:05 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 1947#       发表于 2018-8-11 21:46
 
 
-
-
 平手弹钢琴唱夜明！！！她有说过自己会这套吗？！
-
-
-
-
-
 
 
 -----
@@ -17583,22 +12460,13 @@ https://weibo.com/ttarticle/p/show?id=2309404188569206956120
 ##### 1948#       发表于 2018-8-12 00:29
 
 
-
-
 之前弹过吉他，钢琴倒是不知道会弹
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1949#       发表于 2018-8-12 00:55
-
-
 
 
 夏巡第一天，马马MC上谈及五妹 <blockquote>菅井友香から最初のMCで今泉に関する報告「先日、今泉佑唯の卒業が発表されましたが本人の意思を尊重して、お互い頑張っていきたいと思います。今回のツアー参加は18人となるんですけど、精一杯頑張っていくので、応援よろしくお願いします。」 #欅坂46 #keyakizaka46</blockquote><blockquote>2018欅坂46 夏巡 歌单
@@ -17638,9 +12506,6 @@ MC
 <blockquote>佐藤詩織(しーちゃん)の様子がおかしかった。(結構マジで心配)— たかと⊿ (@keyaki46_Takato) [2018年8月11日](https://twitter.com/keyaki46_Takato/status/1028234945292955648?ref_src=twsrc%5Etfw)</blockquote>美大身体不太好
 
 
-
-
-
 下期欅写是欅共和国的片段
 
 <img src="https://img.saraba1st.com/forum/201808/12/003717mj5pozj88oq3o885.jpg" referrerpolicy="no-referrer">
@@ -17651,15 +12516,6 @@ MC
 下载附件
 
 2018-8-12 00:37 上传
-
-
-
-
-
-
-
-
-
 
 
 假名的小圆舞台剧装扮，有种TMA的感觉是什么回事
@@ -17674,9 +12530,6 @@ MC
 2018-8-12 00:34 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/12/003431a3j3v3ijbnjxxix3.jpg" referrerpolicy="no-referrer">
 
 
@@ -17685,9 +12538,6 @@ MC
 下载附件
 
 2018-8-12 00:34 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/12/003425ckfjn01gkr94xf94.jpg" referrerpolicy="no-referrer">
@@ -17700,21 +12550,10 @@ MC
 2018-8-12 00:34 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1950#       发表于 2018-8-12 18:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40621664&amp;ptid=1340143" target="_blank">芍药 发表于 2018-8-12 01:55</a>
@@ -17739,33 +12578,19 @@ MC
 美大应该是脚伤，官方已经公告了，貌似共和国之后脚的状态就不太好了
 
 
-
-
-
-
-
 -----
 
 ####  秋雨灰灰  
 ##### 1951#       发表于 2018-8-12 20:19
 
 
-
-
 我感脚今泉的新sala，不是小好，是大好！当歌手还是会关注一下的，说真的欅的状态不是太好，玩五年解散的可能性不是没有，不至于那么大反差的
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1952#       发表于 2018-8-12 22:55
-
-
 
 
 貞本義行    梨泉田睡平
@@ -17780,9 +12605,6 @@ MC
 2018-8-12 22:46 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/12/224603bwlvfttfnfonuslf.jpg" referrerpolicy="no-referrer">
 
 
@@ -17791,9 +12613,6 @@ MC
 下载附件
 
 2018-8-12 22:46 上传
-
-
-
 
 
  <blockquote><strong>8月12日(日)欅坂46「夏の全国アリーナツアー2018」福岡公演について</strong>平素より欅坂46を応援いただきありがとうございます。
@@ -17822,31 +12641,13 @@ MC
 2018-8-12 22:54 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1953#       发表于 2018-8-12 23:00
 
 
-
-
 五妹的新solo确实好，恋爱中的祈求女孩
-
-
-
-
-
 
 
 -----
@@ -17855,25 +12656,16 @@ MC
 ##### 1954#       发表于 2018-8-13 01:29
 
 
-
-
 词曲都还不错，但音源是哪里来的？我觉得发售前没有广播什么的官方公开放出完整版有的那个……
 
 
 PS：可能是音源问题？感觉气息没向日葵的时候足的感觉
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1955#       发表于 2018-8-13 22:29
-
-
 
 
 明天的SR亮相。不知道会选多少人，怎么安排人数跟分配，知道后应该就能判断出汉字假名之后的走向了
@@ -17888,12 +12680,6 @@ PS：可能是音源问题？感觉气息没向日葵的时候足的感觉
 2018-8-13 22:20 上传
 
 
-
-
-
-
-
-
 长腿平手，女友memi，有点太闪了
 
 <img src="https://img.saraba1st.com/forum/201808/13/222123o5cz855iz8op2551.jpg" referrerpolicy="no-referrer">
@@ -17906,9 +12692,6 @@ PS：可能是音源问题？感觉气息没向日葵的时候足的感觉
 2018-8-13 22:21 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/13/222124kgrksrwaggrc3wxi.jpg" referrerpolicy="no-referrer">
 
 
@@ -17917,9 +12700,6 @@ PS：可能是音源问题？感觉气息没向日葵的时候足的感觉
 下载附件
 
 2018-8-13 22:21 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/13/222352w0d8ss28ga80b1ja.jpg" referrerpolicy="no-referrer">
@@ -17932,35 +12712,13 @@ PS：可能是音源问题？感觉气息没向日葵的时候足的感觉
 2018-8-13 22:23 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 1956#       发表于 2018-8-14 01:42
 
 
-
-
 当年这里星最喜欢的一段就是柿子骗小平说“我爱你”，小平说完后完全不明白柿子为什么开心到哭……这预告看的人想在地上打滚啊！
-
-
-
-
-
 
 
 -----
@@ -17969,14 +12727,7 @@ PS：可能是音源问题？感觉气息没向日葵的时候足的感觉
 ##### 1957#       发表于 2018-8-14 02:10
 
 
-
-
 这BGM听着好耳熟，好像是Trine系列的配乐？
-
-
-
-
-
 
 
 -----
@@ -17985,17 +12736,10 @@ PS：可能是音源问题？感觉气息没向日葵的时候足的感觉
 ##### 1958#       发表于 2018-8-14 17:58
 
 
-
-
 看SR感觉气质特别身高接近现在汉字的有点少……倒是不少很适合假名和乃团的，还有几个有AKB的感觉（
 
 
 话说好像67号还有哪几个已经有5厕网民扒出男友什么的了？
-
-
-
-
-
 
 
 -----
@@ -18004,23 +12748,16 @@ PS：可能是音源问题？感觉气息没向日葵的时候足的感觉
 ##### 1959#       发表于 2018-8-14 20:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40640849&amp;ptid=1340143" target="_blank">TSST 发表于 2018-8-14 03:10</a>
 
 这BGM听着好耳熟，好像是Trine系列的配乐？</blockquote>
 是Scarborough Fair 啊，经典英格兰民歌了，现行版本的歌词都是1889年出版的，很多地方都有出现这歌。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1960#       发表于 2018-8-14 22:18
-
 
 
  本帖最后由 芍药 于 2018-8-14 22:38 编辑 
@@ -18036,12 +12773,6 @@ PS：可能是音源问题？感觉气息没向日葵的时候足的感觉
 2018-8-14 22:11 上传
 
 
-
-
-
-
-
-
 5点一直开到10点二十万观看人数的15号，牛逼得不行，一直在聊天画画
 
 <img src="https://img.saraba1st.com/forum/201808/14/221148g7t6eu565nfntbuv.jpg" referrerpolicy="no-referrer">
@@ -18052,11 +12783,6 @@ PS：可能是音源问题？感觉气息没向日葵的时候足的感觉
 下载附件
 
 2018-8-14 22:11 上传
-
-
-
-
-
 
 
 超漂亮的37号，明天才露面，是不是照骗还不知道
@@ -18071,11 +12797,6 @@ PS：可能是音源问题？感觉气息没向日葵的时候足的感觉
 2018-8-14 22:11 上传
 
 
-
-
-
-
-
 12岁的小猴子，颜艺很多
 
 <img src="https://img.saraba1st.com/forum/201808/14/221152wda1cd7c5em3mwme.png" referrerpolicy="no-referrer">
@@ -18086,11 +12807,6 @@ PS：可能是音源问题？感觉气息没向日葵的时候足的感觉
 下载附件
 
 2018-8-14 22:11 上传
-
-
-
-
-
 
 
 个人印象最深的25号，文静笑得甜，适合紫团
@@ -18105,11 +12821,6 @@ PS：可能是音源问题？感觉气息没向日葵的时候足的感觉
 2018-8-14 22:14 上传
 
 
-
-
-
-
-
 气质放汉字最好了
 
 <img src="https://img.saraba1st.com/forum/201808/14/221518h7gl8y1yy1qf695p.png" referrerpolicy="no-referrer">
@@ -18120,11 +12831,6 @@ PS：可能是音源问题？感觉气息没向日葵的时候足的感觉
 下载附件
 
 2018-8-14 22:15 上传
-
-
-
-
-
 
 
 上年参加过假二甄选的小“熊光”，脸变圆了
@@ -18139,33 +12845,13 @@ PS：可能是音源问题？感觉气息没向日葵的时候足的感觉
 2018-8-14 22:16 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 1961#       发表于 2018-8-15 18:16
 
 
-
-
 首日60w还不错～被虚红吧的蛆恶心到了出来透口气～
-
-
-
-
-
 
 
 -----
@@ -18176,12 +12862,10 @@ PS：可能是音源问题？感觉气息没向日葵的时候足的感觉
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  dxxtiger  
 ##### 1963#       发表于 2018-8-15 19:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40657508&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2018-8-15 19:16</a>
@@ -18190,16 +12874,10 @@ PS：可能是音源问题？感觉气息没向日葵的时候足的感觉
 602043可以了，个握上一单只少卖平手一个人的份，这次还少了今泉志田原田影山的份。考虑个握盘都是挖好固定数的坑等萝卜来填的卖法，这次销量还是很稳的了。
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1964#       发表于 2018-8-15 19:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40657595&amp;ptid=1340143" target="_blank">原始恶魔 发表于 2018-8-15 19:28</a>
@@ -18213,26 +12891,14 @@ PS：可能是音源问题？感觉气息没向日葵的时候足的感觉
 其实有一定经验和底子的，进假名三期可能是个不错选择，乃四期必然会被放羊很长一段时间，假名的话其实现在还处在一个借着汉字打出来的名气在打根基的时候，说是和汉字不同风格但其实自己的风格也还在尝试期，有能力有想法的去说不定有机会。
 
 
-
-
-
-
-
 -----
 
 ####  cqc1021  
 ##### 1965#       发表于 2018-8-15 19:48
 
 
-
-
 这位775号候选生请一定要来欅坂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://wx4.sinaimg.cn/large/454c9ebagy1fualzcdmw9j20hs0a07d5.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18243,23 +12909,16 @@ PS：可能是音源问题？感觉气息没向日葵的时候足的感觉
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  dxxtiger  
 ##### 1967#       发表于 2018-8-15 20:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40658216&amp;ptid=1340143" target="_blank">原始恶魔 发表于 2018-8-15 20:50</a>
 
 假名如果是找高质量的妹子然后独立团，那么进了选拔的肯定很好，新人大力砸资源，没进选拔的就和1期2期淘 ...</blockquote>
 假名的未来就看今野有没有决心独立了，现在基本上汉字假名的交集就是出单曲了，巡演都各巡各的了。
-
-
-
-
-
 
 
 -----
@@ -18270,12 +12929,10 @@ PS：可能是音源问题？感觉气息没向日葵的时候足的感觉
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  dxxtiger  
 ##### 1969#       发表于 2018-8-15 22:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40659285&amp;ptid=1340143" target="_blank">原始恶魔 发表于 2018-8-15 23:15</a>
@@ -18286,16 +12943,10 @@ https://www.bilibili.com/video/av29444733</blockquote>
 775很厉害的，明蹭了这一波合同选拔的热度但又让人觉得非常有趣
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1970#       发表于 2018-8-15 23:33
-
 
 
  本帖最后由 芍药 于 2018-8-15 23:37 编辑 
@@ -18316,31 +12967,15 @@ https://www.bilibili.com/video/av29444733</blockquote>
 2018-8-15 23:34 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1971#       发表于 2018-8-15 23:52
 
 
-
  本帖最后由 芍药 于 2018-8-15 23:55 编辑 
 
 往后的几年ace位紫团白七毕业后有小鸟跟三期几天王，汉字平手睡觉，假名有小坂miho 。如果目标是C或者ace的话紫团假名都有可能，汉字目前top层其实进一两个是必然的C不可能ace看情况。新人进三个团的预计前景相差不会太大吧，要安稳不承受太多压力进汉字，想登顶进紫团假名。
-
-
-
-
-
 
 
 -----
@@ -18349,21 +12984,13 @@ https://www.bilibili.com/video/av29444733</blockquote>
 ##### 1972#       发表于 2018-8-16 00:03
 
 
-
-
 775真是聪明，蹭了热度，推了新单，不落俗套，比很多发MSG固粉的成员聪明多了
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1973#       发表于 2018-8-16 00:21
-
 
 
  本帖最后由 芍药 于 2018-8-16 01:04 编辑 
@@ -18380,14 +13007,7 @@ https://www.bilibili.com/video/av29444733</blockquote>
 2018-8-15 23:57 上传
 
 
-
-
-
-
-
-
 实体少了泉田葵影，跟上单接近已经蛮好的了，磨几个月够百万完成任务
-
 
 
 内村文化祭，上年跳过不协和音，今年跳碎玻璃 <blockquote><strong>内村光良さん、8/15開催『内村文化祭’18 灼熱』にて「ガラスを割れ！」を披露した模様</strong>内村文化祭、去年よりも全くの別物というくらいダイナミックかつドラマチックに帰ってきたな。何と言ってもウッチャンの圧倒的な演技力。そして枯れぬ欅坂46愛。「欅坂、この歳でこんなにハマると思わなかった。毎日聴いてます」というほどに平手友梨奈の完コピ、カッコ良かった。ガラスを割ってた。 [pic.twitter.com/ASDS2590UZ](https://t.co/ASDS2590UZ)— そら (@rjyski2831) [2018年8月15日](https://twitter.com/rjyski2831/status/1029702260522020864?ref_src=twsrc%5Etfw)</blockquote>
@@ -18400,10 +13020,6 @@ https://www.bilibili.com/video/av29444733</blockquote>
 下载附件
 
 2018-8-16 00:04 上传
-
-
-
-
 
 
  <blockquote>【最後に長濱さんから皆様へのメッセージです】 生放送終了直後に収録しました。スタートしてから２週間、「ねるねちけいＯＮＬＩＮＥ！」にお付き合いいただき、ありがとうございました。また皆様にお会いできることを、スタッフ一同楽しみにしています<img src="https://s.w.org/images/core/emoji/72x72/1f3b5.png" referrerpolicy="no-referrer"></blockquote>
@@ -18419,10 +13035,6 @@ https://www.bilibili.com/video/av29444733</blockquote>
 2018-8-16 00:25 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/16/002644yyrrqsy9roy24je0.jpg" referrerpolicy="no-referrer">
 
 
@@ -18431,9 +13043,6 @@ https://www.bilibili.com/video/av29444733</blockquote>
 下载附件
 
 2018-8-16 00:26 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/16/002644oeroeeztelkt22hk.jpg" referrerpolicy="no-referrer">
@@ -18446,30 +13055,13 @@ https://www.bilibili.com/video/av29444733</blockquote>
 2018-8-16 00:26 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  cqc1021  
 ##### 1974#       发表于 2018-8-16 00:37
 
 
-
-
 睡睡开推特和ins了，参考白麻，大概是拿到什么代言了。<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18478,21 +13070,13 @@ https://www.bilibili.com/video/av29444733</blockquote>
 ##### 1975#       发表于 2018-8-16 09:57
 
 
-
-
 共和国的盘日期定了9.26，价格10448！好贵但还是要买！
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1976#       发表于 2018-8-16 18:22
-
 
 
  本帖最后由 芍药 于 2018-8-16 18:24 编辑 
@@ -18552,16 +13136,10 @@ https://www.bilibili.com/video/av29444733</blockquote>
 电影宣传开始了，6个封面，16篇访谈，之后的电视番组宣传不知道会上哪些
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1977#       发表于 2018-8-17 00:34
-
 
 
  本帖最后由 芍药 于 2018-8-17 00:38 编辑 
@@ -18578,10 +13156,6 @@ https://www.bilibili.com/video/av29444733</blockquote>
 2018-8-17 00:21 上传
 
 
-
-
-
-
  <blockquote>71番「これはほんとに夢の夢みたいなことなんですけど、平手さんとダブルセンターしたいです」頑張って、応援するよまじで— 71番推し (@71_gaittyan) [2018年8月16日](https://twitter.com/71_gaittyan/status/1030038404707176448?ref_src=twsrc%5Etfw)</blockquote>
 想进汉字跟平手双C的71号，年龄身高是OK的，颜值也有潜力有点绫濑遥的感觉，就是不知道有没有舞蹈底子，有的话希望放汉字慢慢养
 
@@ -18595,31 +13169,13 @@ https://www.bilibili.com/video/av29444733</blockquote>
 2018-8-17 00:31 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  衛藤美彩  
 ##### 1978#       发表于 2018-8-17 02:06
 
 
-
-
 一句话新闻：五妹solo写真集
-
-
-
-
-
 
 
 -----
@@ -18628,21 +13184,13 @@ https://www.bilibili.com/video/av29444733</blockquote>
 ##### 1979#       发表于 2018-8-17 02:45
 
 
-
-
 次日接近12w不错啊，次日销量来说是新高了（虽然头几日销量其实可能是因为お盆假期的原因出现一点变动，初动还是看首周好了）。
-
-
-
-
-
 
 
 -----
 
 ####  dxxtiger  
 ##### 1980#       发表于 2018-8-17 04:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40667271&amp;ptid=1340143" target="_blank">芍药 发表于 2018-08-16 18:22:40</a>
@@ -18653,16 +13201,10 @@ https://www.bilibili.com/video/av29444733</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1981#       发表于 2018-8-17 21:18
-
 
 
  本帖最后由 芍药 于 2018-8-18 14:37 编辑 
@@ -18679,9 +13221,6 @@ MS镜头给得舒服，少了平手旋转两周下腿的动作有点遗憾，短
 2018-8-17 21:16 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/17/211556x7qdqf7duqdg2yps.jpg" referrerpolicy="no-referrer">
 
 
@@ -18692,9 +13231,6 @@ MS镜头给得舒服，少了平手旋转两周下腿的动作有点遗憾，短
 2018-8-17 21:15 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/17/235228nkw55eezq1wx0quo.jpg" referrerpolicy="no-referrer">
 
 
@@ -18703,9 +13239,6 @@ MS镜头给得舒服，少了平手旋转两周下腿的动作有点遗憾，短
 下载附件
 
 2018-8-17 23:52 上传
-
-
-
 
 
 <img src="http://wx3.sinaimg.cn/mw690/636640e3gy1fud0eqzu98g20ci0711ky.gif" referrerpolicy="no-referrer">
@@ -18726,10 +13259,6 @@ MS镜头给得舒服，少了平手旋转两周下腿的动作有点遗憾，短
 2018-8-17 22:22 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/17/222241mgczh7g2s7wr3zob.jpg" referrerpolicy="no-referrer">
 
 
@@ -18740,10 +13269,6 @@ MS镜头给得舒服，少了平手旋转两周下腿的动作有点遗憾，短
 2018-8-17 22:22 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/17/222239flvphj8r2ojp72nb.jpg" referrerpolicy="no-referrer">
 
 
@@ -18752,11 +13277,6 @@ MS镜头给得舒服，少了平手旋转两周下腿的动作有点遗憾，短
 下载附件
 
 2018-8-17 22:22 上传
-
-
-
-
-
 
 
 18人签名，右上角数下来依次是小葵志田五妹？，右下平手鬼画符签名
@@ -18773,32 +13293,13 @@ MS镜头给得舒服，少了平手旋转两周下腿的动作有点遗憾，短
 2018-8-18 03:08 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1982#       发表于 2018-8-18 03:05
 
 
-
-
 感觉MS这个镜头还有改进空间，有些地方稍微再拉远一些用俯视而不是平视视角可能会更好看，还有就是换视角的时候不是镜头一路过去而是直接换一个机位的视角可能更带感一点（当然可能主要是摇臂不够快有些地方跟得有点吃力）
-
-
-
-
-
 
 
 -----
@@ -18807,21 +13308,13 @@ MS镜头给得舒服，少了平手旋转两周下腿的动作有点遗憾，短
 ##### 1983#       发表于 2018-8-19 14:34
 
 
-
-
 新泻那场评价不高，平手状态不好，不知道是不是身体原因，明明ms的时候还可以
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1984#       发表于 2018-8-19 19:26
-
 
 
  本帖最后由 芍药 于 2018-8-19 19:40 编辑 
@@ -18837,18 +13330,9 @@ MS镜头给得舒服，少了平手旋转两周下腿的动作有点遗憾，短
 2018-8-19 19:40 上传
 
 
-
-
-
-
 38人合格，每团十二三个新人，就看分哪些人进哪个团了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -18857,16 +13341,10 @@ MS镜头给得舒服，少了平手旋转两周下腿的动作有点遗憾，短
 ##### 1985#       发表于 2018-8-19 23:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40694227&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2018-8-19 15:34</a>
 
 新泻那场评价不高，平手状态不好，不知道是不是身体原因，明明ms的时候还可以 ...</blockquote>
 MS是直播，完了之后连夜或者一早赶到新潟，然后女孩子一个月总会有几天状态不好的，汉字的舞本来就消耗不小她还是个难摸鱼的位置。而且加上本身就被集火，别人可以有失误被谅解的余地但饭圈dalao肯定不会放过的。毕竟被按艺人路线宣传了那么任何状态不好或者失误都可以被认为是“失格”。
-
-
-
-
-
 
 
 -----
@@ -18875,16 +13353,10 @@ MS是直播，完了之后连夜或者一早赶到新潟，然后女孩子一个
 ##### 1986#       发表于 2018-8-19 23:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40698191&amp;ptid=1340143" target="_blank">dxxtiger 发表于 2018-8-19 23:08</a>
 
 MS是直播，完了之后连夜或者一早赶到新潟，然后女孩子一个月总会有几天状态不好的，汉字的舞本来就消耗不 ...</blockquote>
 其实。。不用解释那么多啦，包括生理期什么的，推测都不靠谱，反正我觉得这家伙不可能是那种会划水以及天狗的人，只是比较担心她的状态
-
-
-
-
-
 
 
 -----
@@ -18893,21 +13365,13 @@ MS是直播，完了之后连夜或者一早赶到新潟，然后女孩子一个
 ##### 1987#       发表于 2018-8-20 00:09
 
 
-
-
 是人就会有起伏，能调整好就行
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 1988#       发表于 2018-8-20 00:10
-
 
 
  本帖最后由 芍药 于 2018-8-21 01:20 编辑 
@@ -18925,20 +13389,10 @@ MS是直播，完了之后连夜或者一早赶到新潟，然后女孩子一个
 2018-8-21 01:20 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 1989#       发表于 2018-8-20 12:23
-
 
 
  本帖最后由 芍药 于 2018-8-20 12:26 编辑 
@@ -18955,21 +13409,10 @@ MS是直播，完了之后连夜或者一早赶到新潟，然后女孩子一个
 2018-8-20 12:23 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1990#       发表于 2018-8-20 18:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40698330&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2018-8-20 00:23</a>
@@ -18978,16 +13421,10 @@ MS是直播，完了之后连夜或者一早赶到新潟，然后女孩子一个
 其实本来也不需要什么解释……但一堆人整天嚷嚷要运营和她给个解释就很无厘头……
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 1991#       发表于 2018-8-20 18:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40698761&amp;ptid=1340143" target="_blank">芍药 发表于 2018-8-20 01:10</a>
@@ -19001,11 +13438,6 @@ MS是直播，完了之后连夜或者一早赶到新潟，然后女孩子一个
 顺便确认下你说的村花是说有村吗（应该不是ycy吧
 
 
-
-
-
-
-
 -----
 
 ####  原始恶魔  
@@ -19014,12 +13446,10 @@ MS是直播，完了之后连夜或者一早赶到新潟，然后女孩子一个
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 1993#       发表于 2018-8-20 21:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40707677&amp;ptid=1340143" target="_blank">dxxtiger 发表于 2018-8-20 18:11</a>
@@ -19031,26 +13461,15 @@ MS是直播，完了之后连夜或者一早赶到新潟，然后女孩子一个
  有村，两边的肉不觉得像么 
 
 
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 1994#       发表于 2018-8-20 21:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40708914&amp;ptid=1340143" target="_blank">芍药 发表于 2018-8-20 21:08</a>
 有村，两边的肉不觉得像么</blockquote>
 这个比有村厉害多了啊……
-
-
-
-
-
 
 
 -----
@@ -19059,14 +13478,7 @@ MS是直播，完了之后连夜或者一早赶到新潟，然后女孩子一个
 ##### 1995#       发表于 2018-8-20 21:46
 
 
-
-
 今天SOL上说原本设计就是扶着睡睡的大腿侧翻的，但榉共的时候因为没完全练好所以只能撑地侧翻了
-
-
-
-
-
 
 
 -----
@@ -19075,14 +13487,7 @@ MS是直播，完了之后连夜或者一早赶到新潟，然后女孩子一个
 ##### 1996#       发表于 2018-8-20 22:22
 
 
-
-
 小平要上闲聊007了！
-
-
-
-
-
 
 
 -----
@@ -19091,16 +13496,10 @@ MS是直播，完了之后连夜或者一早赶到新潟，然后女孩子一个
 ##### 1997#       发表于 2018-8-20 22:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40709555&amp;ptid=1340143" target="_blank">cqc1021 发表于 2018-8-20 22:22</a>
 
 小平要上闲聊007了！</blockquote>
 反正是电影宣传啦，和她本身关系不打吧
-
-
-
-
-
 
 
 -----
@@ -19109,16 +13508,10 @@ MS是直播，完了之后连夜或者一早赶到新潟，然后女孩子一个
 ##### 1998#       发表于 2018-8-20 22:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40709581&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2018-8-20 22:27</a>
 
 反正是电影宣传啦，和她本身关系不打吧</blockquote>
 让村外看到小平还是十多岁熊孩子的一面挺好的
-
-
-
-
-
 
 
 -----
@@ -19127,23 +13520,16 @@ MS是直播，完了之后连夜或者一早赶到新潟，然后女孩子一个
 ##### 1999#       发表于 2018-8-20 22:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40709614&amp;ptid=1340143" target="_blank">cqc1021 发表于 2018-8-20 22:30</a>
 
 让村外看到小平还是十多岁熊孩子的一面挺好的</blockquote>
 她要真能在镜头前这么做就好了。。。。。
 
 
-
-
-
-
-
 -----
 
 ####  cqc1021  
 ##### 2000#       发表于 2018-8-20 22:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40709655&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2018-8-20 22:35</a>
@@ -19153,16 +13539,10 @@ MS是直播，完了之后连夜或者一早赶到新潟，然后女孩子一个
 [https://weibo.com/6017336928/GvyDy8AGP](https://weibo.com/6017336928/GvyDy8AGP)
 
 
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2001#       发表于 2018-8-20 22:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40709730&amp;ptid=1340143" target="_blank">cqc1021 发表于 2018-8-20 22:43</a>
@@ -19173,11 +13553,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 日本的克隆人技术已经那么厉害吗。。复制了不同性格的小平备用。。。。
 
 
-
-
-
-
-
 -----
 
 ####  原始恶魔  
@@ -19186,12 +13561,10 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 2003#       发表于 2018-8-21 00:41
-
 
 
  本帖最后由 芍药 于 2018-8-21 00:50 编辑 
@@ -19199,16 +13572,10 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 有囧子带着，闲聊跟主要谈话对象应该都是她，平手刷下脸就可以了
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2004#       发表于 2018-8-21 01:17
-
 
 
 <blockquote>いよいよ明日情報解禁です。
@@ -19220,16 +13587,10 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 &lt;内容&gt;欅坂46関連の展示及びオリジナルグッズの販売、特別映像の上映。13日のみミニライブ有。</blockquote>回去沉默拍摄的工地开mini live
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2005#       发表于 2018-8-21 01:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40709225&amp;ptid=1340143" target="_blank">dxxtiger 发表于 2018-8-20 21:46</a>
@@ -19238,16 +13599,10 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 抱腿侧翻比单独翻还难的感觉？毕竟要配合
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2006#       发表于 2018-8-21 01:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40710065&amp;ptid=1340143" target="_blank">原始恶魔 发表于 2018-8-20 23:23</a>
@@ -19260,16 +13615,10 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 年级小的原石可能更倾向给紫团，这几年有三期生带着不算太急切上新人。相对汉字更需要即战力，记得平均年龄是三团里面最大的
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 2007#       发表于 2018-8-21 01:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40710065&amp;ptid=1340143" target="_blank">原始恶魔 发表于 2018-8-21 00:23</a>
@@ -19280,16 +13629,10 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 鬼知道肥秋怎么想，他最喜欢的不就是打破他自己之前设立的定式么。开闭选秀是各家一姐来挑人的，坂道现在成员里有这个资历的都是乃一的，汉字假名的人就资历经验来说都远不到能挑人的地步，硬说的话汉字挑人可能就看TAKAHIRO和肥秋的心情的。
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 2008#       发表于 2018-8-21 10:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40710806&amp;ptid=1340143" target="_blank">芍药 发表于 2018-8-21 02:26</a>
@@ -19306,32 +13649,19 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 乃四倒是真不能急，乃二就是推的时间点不对被坑了个痛。
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 2009#       发表于 2018-8-21 13:12
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">竟然是护法植发广告……生毛月额1w8防脱月额5k5，有周边送吗？
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2010#       发表于 2018-8-21 13:34
-
-
 
 
 <img src="https://wx4.sinaimg.cn/mw690/006mdalrgy1fuh5aik4fqj30hs0sm42t.jpg" referrerpolicy="no-referrer">
@@ -19341,16 +13671,10 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 这是啥产品，脱毛剂？
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 2011#       发表于 2018-8-21 14:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40715602&amp;ptid=1340143" target="_blank">芍药 发表于 2018-8-21 14:34</a>
@@ -19359,17 +13683,10 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 反了，生发的，看我那条，在日的如果已经……可以试试（
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2012#       发表于 2018-8-25 01:08
-
-
 
 
 富坚去了今天的夏巡，左右分别是沉默跟不协和音的作曲者
@@ -19384,16 +13701,9 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-25 01:00 上传
 
 
-
-
-
-
-
-
 互相看了对方的演出 <blockquote>via 市川染五郎 ins
 
 昨天去了最喜欢的欅坂46桑的全国巡演横滨站！这是一场所有细节都策划的非常精彩的演出！还有，在此之前，平手友梨奈桑（我的推 笑）来观看了我同家父的舞蹈『龙虎』！而且她还说了“还想再来观看”，我真的非常开心！ ​​​​</blockquote>
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/25/010428t1qqy64ge1yqbrx1.jpg" referrerpolicy="no-referrer">
@@ -19406,12 +13716,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-25 01:04 上传
 
 
-
-
-
-
-
-
 突然出现的平手
 
 <img src="https://img.saraba1st.com/forum/201808/25/010315atqd6zju0q03jas4.jpg" referrerpolicy="no-referrer">
@@ -19422,11 +13726,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-8-25 01:03 上传
-
-
-
-
-
 
 
 28号直播宣传 <blockquote><img src="https://s.w.org/images/core/emoji/72x72/1f3ac.png" referrerpolicy="no-referrer"> -HIBIKI-』
@@ -19448,11 +13747,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-25 01:01 上传
 
 
-
-
-
-
-
 8.24 TV bros   这个妆蛮好看的
 
 <img src="https://img.saraba1st.com/forum/201808/25/010726lsofxe49oxx9pkpw.jpg" referrerpolicy="no-referrer">
@@ -19465,9 +13759,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-25 01:07 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/25/010725k9qvhkq3hed7guq0.jpg" referrerpolicy="no-referrer">
 
 
@@ -19476,9 +13767,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-8-25 01:07 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/25/010730u8av9qljk5895q5q.jpg" referrerpolicy="no-referrer">
@@ -19491,9 +13779,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-25 01:07 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/25/010728sg11yyh9l5l1zfiv.jpg" referrerpolicy="no-referrer">
 
 
@@ -19502,9 +13787,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-8-25 01:07 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/25/010729yq9za9azzvq9tkzf.jpg" referrerpolicy="no-referrer">
@@ -19517,9 +13799,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-25 01:07 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/25/010727wq2ykpyybympqkoz.jpg" referrerpolicy="no-referrer">
 
 
@@ -19528,9 +13807,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-8-25 01:07 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/25/010726wako0k5o7rkkrsws.jpg" referrerpolicy="no-referrer">
@@ -19543,9 +13819,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-25 01:07 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/25/010728x0f8536l68pv05fq.jpg" referrerpolicy="no-referrer">
 
 
@@ -19556,25 +13829,10 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-25 01:07 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  梦游君  
 ##### 2013#       发表于 2018-8-25 05:04
-
-
 
 
 那张黑色背景手里捧花的照片，眼睛很迷人，忍不住想起了W!nk那张封面里的眼睛。
@@ -19584,25 +13842,13 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 再下面一张穿长裙的，还有跟平井坚囧子合照的这张都各是另外两种风格，她怎么这么神奇，什么风格都可以驾驭？
 
 
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2014#       发表于 2018-8-25 08:35
 
 
-
-
 看了欅写的共和国7单主打，比ms好100倍！
-
-
-
-
-
 
 
 -----
@@ -19611,23 +13857,16 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 ##### 2015#       发表于 2018-8-27 14:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40753078&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2018-8-25 09:35</a>
 
 看了欅写的共和国7单主打，比ms好100倍！</blockquote>
 感觉可能是机位和摇臂的问题，按说MS生放也有彩排的而且摄像也有台本，但MS那场就是镜头追人追得很吃力，然后特写怼脸远景又拉不开距离。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2016#       发表于 2018-8-27 21:07
-
 
 
  本帖最后由 芍药 于 2018-9-10 00:05 编辑 
@@ -19643,9 +13882,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-27 21:06 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/27/210654pd414pn1dad4kl0i.jpg" referrerpolicy="no-referrer">
 
 
@@ -19654,10 +13890,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-8-27 21:06 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/27/205814x41d644hkbc1ku4d.jpg" referrerpolicy="no-referrer">
@@ -19670,9 +13902,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-27 20:58 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/27/205813zuq8x1vud884cviu.jpg" referrerpolicy="no-referrer">
 
 
@@ -19681,12 +13910,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-8-27 20:58 上传
-
-
-
-
-
-
 
 
 食品CM
@@ -19701,9 +13924,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-27 20:58 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/27/205811knwaqvqqp8ovztdv.jpg" referrerpolicy="no-referrer">
 
 
@@ -19712,11 +13932,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-8-27 20:58 上传
-
-
-
-
-
 
 
 昭和feel
@@ -19731,9 +13946,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-27 20:58 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/27/210309sjq20jh0a02yqyto.png" referrerpolicy="no-referrer">
 
 
@@ -19742,9 +13954,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-8-27 21:03 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201809/10/000444ihd7e2qhmmdbl88m.jpg" referrerpolicy="no-referrer">
@@ -19757,26 +13966,10 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-9-10 00:04 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2017#       发表于 2018-8-29 00:08
-
-
 
 
 今天电影的发布会，一单蘑菇头发型
@@ -19791,9 +13984,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-29 00:07 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/29/000742lmh3upt3d39mnuqp.jpg" referrerpolicy="no-referrer">
 
 
@@ -19802,9 +13992,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-8-29 00:07 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/29/000743f4346kbp7opv8pw3.jpg" referrerpolicy="no-referrer">
@@ -19817,10 +14004,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-29 00:07 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/29/000345su3i6qiu8duixusl.jpg" referrerpolicy="no-referrer">
 
 
@@ -19831,9 +14014,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-29 00:03 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/29/000346pt8666z5g86flug6.jpg" referrerpolicy="no-referrer">
 
 
@@ -19842,13 +14022,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-8-29 00:03 上传
-
-
-
-
-
-
-
 
 
 主题曲是平手的solo，跟之前预想的请歌手来唱不一样，应该会放在八单里面 <blockquote>ラップじゃないけど早めの語りがある。歌詞は全然覚えてないけど、響にも平手友梨奈にも通ずる歌詞だった。反抗とかそういう歌詞ではなく、期待されてて、その通りの自分にならなきゃいけない…みたいな…そういう雰囲気の。— ちーずけーき🍮 (@mi__cheese) [August 28, 2018](https://twitter.com/mi__cheese/status/1034411079135244288?ref_src=twsrc%5Etfw)</blockquote>
@@ -19864,9 +14037,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-29 00:01 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/29/000139jcue60s7y7zpc7oc.jpg" referrerpolicy="no-referrer">
 
 
@@ -19875,9 +14045,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-8-29 00:01 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/29/000137codl5fhz3bl4o8j3.jpg" referrerpolicy="no-referrer">
@@ -19890,39 +14057,19 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-29 00:01 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2018#       发表于 2018-8-29 00:16
 
 
-
-
 在这之前没觉得平手高过…
-
-
-
-
-
 
 
 -----
 
 ####  梦游君  
 ##### 2019#       发表于 2018-8-29 01:39
-
-
 
 
 这两组照片打破了我的两个固有认知：
@@ -19932,17 +14079,10 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 二是看平手在第一组照片里丝毫不逊旁边的两个女演员下风，结果跟丝丝对谈的第二组照片里还是能感觉到差距。希望发育期结束后脸能瘦回刚入团时期…
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2020#       发表于 2018-8-31 21:29
-
-
 
 
 平手165还是167了，确实蛮高的
@@ -19957,11 +14097,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-31 21:24 上传
 
 
-
-
-
-
-
 泉写真封面个人感觉蛮普通的，在电视剧终于出场了
 
 <img src="https://img.saraba1st.com/forum/201808/31/212417a3lf9oe9aeer9kyb.jpg" referrerpolicy="no-referrer">
@@ -19974,9 +14109,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-31 21:24 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/31/212416lh06qlyv8azpgdzy.jpg" referrerpolicy="no-referrer">
 
 
@@ -19985,9 +14117,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-8-31 21:24 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/31/212415yaztvkxyndsxxik3.jpg" referrerpolicy="no-referrer">
@@ -20000,9 +14129,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-31 21:24 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/31/212414bctgvn312324gmcn.jpg" referrerpolicy="no-referrer">
 
 
@@ -20013,9 +14139,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-31 21:24 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/31/212413tiuubsspumbicxys.jpg" referrerpolicy="no-referrer">
 
 
@@ -20024,11 +14147,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-8-31 21:24 上传
-
-
-
-
-
 
 
 响的新CM，cos装辣眼睛
@@ -20043,9 +14161,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-31 21:24 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/31/212423xnly4nkay4sp5yay.jpg" referrerpolicy="no-referrer">
 
 
@@ -20054,9 +14169,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-8-31 21:24 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/31/212422kruup2p57zu5p474.jpg" referrerpolicy="no-referrer">
@@ -20069,9 +14181,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-31 21:24 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/31/212421yrfmshjr3smuifsv.jpg" referrerpolicy="no-referrer">
 
 
@@ -20080,9 +14189,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-8-31 21:24 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/31/212420khtp6zbdhihi4i3i.jpg" referrerpolicy="no-referrer">
@@ -20095,9 +14201,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-31 21:24 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/31/212419cg2ap22o2ax2p55x.jpg" referrerpolicy="no-referrer">
 
 
@@ -20106,9 +14209,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-8-31 21:24 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/31/212418obrts7oyziglsq67.jpg" referrerpolicy="no-referrer">
@@ -20121,9 +14221,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-31 21:24 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/31/212417ciozuo5rdmivodfd.jpg" referrerpolicy="no-referrer">
 
 
@@ -20132,12 +14229,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-8-31 21:24 上传
-
-
-
-
-
-
 
 
 响的主题曲同时是24h cosme新的CM曲，应该会跟电影同步上
@@ -20152,9 +14243,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-31 21:25 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/31/212532i0pz3mhfmfxt8rfa.jpg" referrerpolicy="no-referrer">
 
 
@@ -20163,9 +14251,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-8-31 21:25 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/31/212531m5l3fmydyl3mq3qy.jpg" referrerpolicy="no-referrer">
@@ -20178,9 +14263,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-31 21:25 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201808/31/212530hyeynvqhtht95enh.jpg" referrerpolicy="no-referrer">
 
 
@@ -20189,9 +14271,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-8-31 21:25 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201808/31/212529zm3j43884g1yuue4.jpg" referrerpolicy="no-referrer">
@@ -20204,30 +14283,13 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-8-31 21:25 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 2021#       发表于 2018-8-31 21:58
 
 
-
-
 喷了，平手这身高，**和她打起来岂不是要被吊起来打。
-
-
-
-
-
 
 
 -----
@@ -20236,21 +14298,13 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 ##### 2022#       发表于 2018-9-3 21:16
 
 
-
-
 平手真的居然是163，可能是脸小的原因看起来比正常的高
-
-
-
-
-
 
 
 -----
 
 ####  seedees3  
 ##### 2023#       发表于 2018-9-3 21:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40853280&amp;ptid=1340143" target="_blank">芍药 发表于 2018-9-3 21:16</a>
@@ -20260,16 +14314,10 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 —— 来自 Xiaomi MI MAX 3, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 2024#       发表于 2018-9-3 22:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40794106&amp;ptid=1340143" target="_blank">梦游君 发表于 2018-8-29 02:39</a>
@@ -20282,16 +14330,10 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 怎么说呢，我觉得也不完全是发育期的问题，非甾体类抗炎药不能给18岁以下未成年使用，有引发瑞氏综合征的危险，但甾体（激素）类是会导致面部浮肿和脸色发红。
 
 
-
-
-
-
-
 -----
 
 ####  梦游君  
 ##### 2025#       发表于 2018-9-3 23:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40853756&amp;ptid=1340143" target="_blank">dxxtiger 发表于 2018-9-3 22:09</a>
@@ -20302,25 +14344,13 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 关键是如果是因为这个原因的话……恢复起来可能时间就比较长了。
 
 
-
-
-
-
-
 -----
 
 ####  Demi.Albertini  
 ##### 2026#       发表于 2018-9-4 00:15
 
 
-
-
 哪儿有这么多要打激素的病人……阿猫阿狗胖了都是打激素……
-
-
-
-
-
 
 
 -----
@@ -20329,16 +14359,9 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 ##### 2027#       发表于 2018-9-4 00:27
 
 
-
-
 上身高仪了应该就是163了
 
 十七八岁长胖很正常吧，只是有人能瘦回来有人继续发福下去
-
-
-
-
-
 
 
 -----
@@ -20347,16 +14370,10 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 ##### 2028#       发表于 2018-9-4 00:31
 
 
-
 <img src="https://wx1.sinaimg.cn/mw1024/006VQ4vLgy1fuw183rs46j31040o3acj.jpg" referrerpolicy="no-referrer">泉的写真从封面到内容都有一种故作成熟的感觉，或许跟她有很长的演艺经历有关，其实个人不太喜欢
 
 
 销量应该会比梨好，跟马马相近
-
-
-
-
-
 
 
 -----
@@ -20365,23 +14382,16 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 ##### 2029#       发表于 2018-9-4 01:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40854776&amp;ptid=1340143" target="_blank">Demi.Albertini 发表于 2018-9-4 01:15</a>
 
 哪儿有这么多要打激素的病人……阿猫阿狗胖了都是打激素……</blockquote>
 年初摔伤手的时候是必须用抗炎药的，但18岁以下使用一般的非甾体类抗炎药很容易脑损伤（瑞氏综合征），仔细看2月份最饼的时候，腿和胳膊都很细就是脸肿很厉害也符合激素类抗炎药中心发胖的特征，加上受伤又限制活动肯定就饼了。
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 2030#       发表于 2018-9-4 01:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40854854&amp;ptid=1340143" target="_blank">芍药 发表于 2018-9-4 01:31</a>
@@ -20393,17 +14403,10 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 她其实对于偶像的理解或者对于艺能圈的理解都有点被自己以前的经历束缚的感觉，一方面她老司机比其他成员上道快也积累了相当的人气，但另一方面在整体风格主角脱离传统偶像的时候她的定位又尴尬了，这也是她去年说出想带团走出非平手的风格的原因吧。问题是索尼明显觉得现在风格比较适合汉字，到假名去带队又感觉降格，去乃团吧又不伦不类的而且之前少年去开闭才炎上过，那只剩下单飞solo了。
 
 
-
-
-
-
-
 -----
 
 ####  cqc1021  
 ##### 2031#       发表于 2018-9-5 19:03
-
-
 
 
 不知道小平这次严不严重啊，估计又要休养了。港真，求求运营八单还是把takahiro换掉吧。小平从刚入团帅气又可爱的舞台风格到变成现在这状态，takahiro的邪教跳大神编舞是难辞其咎的。
@@ -20411,16 +14414,10 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  梦游君  
 ##### 2032#       发表于 2018-9-5 20:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40854854&amp;ptid=1340143" target="_blank">芍药 发表于 2018-9-4 00:31</a>
@@ -20434,16 +14431,10 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 单就外表来看，脸是个普通偶像的脸，肉体没有太大的可取之处。
 
 
-
-
-
-
-
 -----
 
 ####  梦游君  
 ##### 2033#       发表于 2018-9-5 20:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40854776&amp;ptid=1340143" target="_blank">Demi.Albertini 发表于 2018-9-4 00:15</a>
@@ -20454,33 +14445,19 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 特别日本的药物说明书没有国内写得那么详细，国内读读说明书还是能意识到是激素的。
 
 
-
-
-
-
-
 -----
 
 ####  Loony  
 ##### 2034#       发表于 2018-9-5 21:49
 
 
-
-
 看了这期007，真觉得脱力新闻可以上一次宣番，平手挺适合这个节目的。不过这次007表现就有点差了，和正规若手女优不能比。
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2035#       发表于 2018-9-5 23:23
-
-
 
 
 这次跟史帆上年的情况应该差不多，掉下去了幸好没受伤  Wencore就可以回来了
@@ -20498,26 +14475,13 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 引用元：[欅坂46公式サイト](http://www.keyakizaka46.com/s/k46o/news/detail/E00313?ima=0000)</blockquote>
 
 
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2036#       发表于 2018-9-5 23:27
 
 
-
-
 最后合影的时候双手撑地，想来应该无碍
-
-
-
-
-
 
 
 -----
@@ -20526,16 +14490,10 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 ##### 2037#       发表于 2018-9-6 16:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40875403&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2018-9-6 00:27</a>
 
 最后合影的时候双手撑地，想来应该无碍</blockquote>
 小号那边msg也发这视频了，有说是一日目结束后staff拍的。
-
-
-
-
-
 
 
 -----
@@ -20544,23 +14502,15 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 ##### 2038#       发表于 2018-9-6 16:25
 
 
-
 <blockquote>「拍攝於美國新墨西哥州的白沙國家公園進行，當天氣溫為40度，因為車開不進去所以器材只能靠人力搬運，整片沙漠唯一的陰涼處是工作人員搭的帳篷」</blockquote>
 
 如果是这样的话那还不是年初那次去美国拍的，新墨西哥名字叫新墨西哥但其实纬度31~37°N，不到夏天沙漠地带也到不了40°，电影6月杀青，按马的msg来看生日是和成员（至少部分）一起过的，后面日程上来说有录制7单、榉共、然后看推上说007应该是8月初去录制的，感觉日程好紧
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2039#       发表于 2018-9-7 00:16
-
-
 
 
 这一两个月的日程肯定紧的，电影的事完了之后又要准备八单的录制，一路忙到年末了
@@ -20577,9 +14527,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-9-7 00:13 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201809/07/001333j0700i0t9awcocq0.jpg" referrerpolicy="no-referrer">
 
 
@@ -20590,21 +14537,8 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-9-7 00:13 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 30A_011.jpg
 (177.94 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -20613,82 +14547,33 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-9-7 00:13 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201809/07/001334noa7ut6tai0jo4ti.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 30A_002.jpg
 (165.65 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2018-9-7 00:13 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201809/07/001335np9iij96ppqqi2jn.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 30A_001.jpg
 (42.64 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2018-9-7 00:13 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201809/07/001336o94z4hnu28zza4q2.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -20697,14 +14582,7 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 ##### 2040#       发表于 2018-9-7 02:28
 
 
-
-
 这个广告用的滤镜拍景色很美，然而对于平手的妆就是灾难了
-
-
-
-
-
 
 
 -----
@@ -20713,17 +14591,10 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 ##### 2041#       发表于 2018-9-7 14:08
 
 
-
-
 中毒唇：在沙漠不喝会渴死，喝了就中毒，我也很为难啊
 
 
 鲜红色会好很多
-
-
-
-
-
 
 
 -----
@@ -20732,16 +14603,11 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 ##### 2042#       发表于 2018-9-7 16:30
 
 
-
-
 去年表演了怪人跟不协和音而且镜头给得好观感相当舒服，今年可能是矛盾搭配学生舞或者回森林吧 <blockquote><strong>『MTV VMAJ』星野源「アイデア」が2冠 欅坂46、三浦大知らライブで競演</strong>[音楽イベント](https://www.oricon.co.jp/news/tag/id/musicevent/)
 [アワード](https://www.oricon.co.jp/news/tag/id/news_award/)
 
 
-
 [size=1.286em]　音楽専門チャンネルMTVは7日、年間の優れたミュージックビデオ（MV）作品を表彰する音楽アワード『MTV VMAJ 2018』の全16部門の最優秀作品を発表し、[星野源](http://www.oricon.co.jp/prof/artist/324291/)の新曲「アイデア」が2冠に輝いた。各部門の最優秀作品の中からMTV視聴者をはじめとした一般投票を行い、最も多く得票した作品には10月10日に東京・新木場STUDIO COASTで開催される『MTV VMAJ 2018 -THE LIVE-』で「最優秀ビデオ賞」が贈られる。 
-
-
 
 
 　17回目を迎える今年は、昨年同様、日本をはじめ世界各地のMTVクリエイティブディレクターで構成される選考委員会が「世界基準の優れたMVを選ぶ」という観点で、この1年（昨年8月1日～今年8月31日まで）に国内でリリースされた洋楽・邦楽全楽曲のMVを対象に16部門の最優秀作品を選出。星野源「アイデア」が「最優秀ポップビデオ賞」「最優秀アーテディレクションビデオ賞」の2冠に輝いた。 
@@ -20853,22 +14719,13 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 ##### 2043#       发表于 2018-9-8 00:00
 
 
-
-
 有的人事倍功半，有的人事半功倍，中间的人是有多努力就有多少人气。
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2044#       发表于 2018-9-9 02:19
-
-
 
 
 汉字夏巡结束
@@ -20883,9 +14740,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-9-9 02:16 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201809/09/021627f5dg52k5yu380wyl.jpg" referrerpolicy="no-referrer">
 
 
@@ -20894,9 +14748,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-9-9 02:16 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201809/09/021626n656n5aduefk8e6e.jpg" referrerpolicy="no-referrer">
@@ -20909,9 +14760,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-9-9 02:16 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201809/09/021625cexpeeebxzboxpxl.jpg" referrerpolicy="no-referrer">
 
 
@@ -20922,9 +14770,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-9-9 02:16 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201809/09/021625zjej4r8nj0edrrms.jpg" referrerpolicy="no-referrer">
 
 
@@ -20933,11 +14778,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-9-9 02:16 上传
-
-
-
-
-
 
 
 假名小圆舞台剧结束
@@ -20952,39 +14792,19 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-9-9 02:19 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2045#       发表于 2018-9-10 00:06
 
 
-
-
 你们也有唱小黄歌的一天<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2046#       发表于 2018-9-11 22:37
-
-
 
 
 参演NHK的地元剧，腹黑角色
@@ -20999,12 +14819,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-9-11 22:36 上传
 
 
-
-
-
-
-
-
 17号的MSF宣传
 
 <img src="https://img.saraba1st.com/forum/201809/11/223646e4eaecd37rd3ybub.jpg" referrerpolicy="no-referrer">
@@ -21015,11 +14829,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-9-11 22:36 上传
-
-
-
-
-
 
 
 假名难得的一次电视露面
@@ -21034,9 +14843,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-9-11 22:36 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201809/11/223637o163n81ppx86x6p3.jpg" referrerpolicy="no-referrer">
 
 
@@ -21045,9 +14851,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-9-11 22:36 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201809/11/223634li0ccsw8s566cnif.jpg" referrerpolicy="no-referrer">
@@ -21060,9 +14863,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-9-11 22:36 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201809/11/223631uypvppv0e3u13m1v.jpg" referrerpolicy="no-referrer">
 
 
@@ -21071,9 +14871,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-9-11 22:36 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201809/11/223628xc5vsfeovfc5f11s.jpg" referrerpolicy="no-referrer">
@@ -21086,9 +14883,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-9-11 22:36 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201809/11/223626gjxq9jgyyvznteq3.jpg" referrerpolicy="no-referrer">
 
 
@@ -21097,9 +14891,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-9-11 22:36 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201809/11/223626ja6tmjm559iaamji.jpg" referrerpolicy="no-referrer">
@@ -21112,9 +14903,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-9-11 22:36 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201809/11/223625t52l595pm26pldzt.jpg" referrerpolicy="no-referrer">
 
 
@@ -21125,9 +14913,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-9-11 22:36 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201809/11/223624fj1ljrn241633483.jpg" referrerpolicy="no-referrer">
 
 
@@ -21136,12 +14921,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-9-11 22:36 上传
-
-
-
-
-
-
 
 
 假名的新CM
@@ -21158,21 +14937,10 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-9-11 22:36 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 2047#       发表于 2018-9-12 11:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40929271&amp;ptid=1340143" target="_blank">芍药 发表于 2018-9-11 23:37</a>
@@ -21184,16 +14952,10 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 其实不考虑饭圈和睦什么的话，京子也算是值得集中推一下的：虽然声线和happy aura不太搭，但很有辨识度，唱功也算稳了；颜值不说特别高但打理一下也在线的，况且没必要和乃团比；跳舞虽然弱项但假名本来也没有特别需要跳舞能力的，给她多点机会锻炼把气场练出来说不定效果不错。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2048#       发表于 2018-9-12 17:33
-
 
 
  本帖最后由 芍药 于 2018-9-12 19:47 编辑 
@@ -21210,9 +14972,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-9-12 17:27 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201809/12/172738s5aunmqnrvnqb5mh.jpg" referrerpolicy="no-referrer">
 
 
@@ -21221,10 +14980,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-9-12 17:27 上传
-
-
-
-
 
 
 <strong>別冊カドカワ 総力特集 欅坂46 20180918  封面</strong>
@@ -21239,9 +14994,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-9-12 17:27 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201809/12/172725p0t80g1g00a0rl01.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
 
@@ -21250,11 +15002,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-9-12 17:27 上传
-
-
-
-
-
 
 
 『読売新聞』夕刊
@@ -21270,9 +15017,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-9-12 17:33 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201809/12/173232tdut1l7z0tfswutz.jpg" referrerpolicy="no-referrer">
 
 
@@ -21281,9 +15025,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 下载附件
 
 2018-9-12 17:32 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201809/12/173230v9pd5mmnfmd0y9fm.jpg" referrerpolicy="no-referrer">
@@ -21296,9 +15037,6 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-9-12 17:32 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201809/12/173230r1ezj775j16h7nnk.jpg" referrerpolicy="no-referrer">
 
 
@@ -21309,21 +15047,10 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 2018-9-12 17:32 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2049#       发表于 2018-9-12 17:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40934735&amp;ptid=1340143" target="_blank">dxxtiger 发表于 2018-9-12 11:55</a>
@@ -21334,16 +15061,10 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 现在假名向外力推的四个成员京子史帆小坂miho，京子唱歌史帆对外发言小坂模特，就miho比较模糊不知道之后准备怎么做
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 2050#       发表于 2018-9-13 00:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40938141&amp;ptid=1340143" target="_blank">芍药 发表于 2018-9-12 18:40</a>
@@ -21357,25 +15078,13 @@ https://weibo.com/6017336928/GvyDy8AGP</blockquote>
 PS：其实对于今泉来说，假名可能才是最适合她的“另一种风格的KEYAKIZAKA46”，但以她的心气估计是不会移籍假名。
 
 
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2051#       发表于 2018-9-13 19:03
 
 
-
-
 平手好像伤的不轻，亏这两天像没事人一样
-
-
-
-
-
 
 
 -----
@@ -21384,16 +15093,10 @@ PS：其实对于今泉来说，假名可能才是最适合她的“另一种风
 ##### 2052#       发表于 2018-9-13 19:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40946984&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2018-9-13 20:03</a>
 
 平手好像伤的不轻，亏这两天像没事人一样</blockquote>
 咦？当天在现场看她回来也还好吧，就是手上缠了胶布，直接送医院可能是怕再出事吧。而且今天涉谷stream（一单那个工地盖起来的楼）开业的活动也出场了。
-
-
-
-
-
 
 
 -----
@@ -21402,15 +15105,9 @@ PS：其实对于今泉来说，假名可能才是最适合她的“另一种风
 ##### 2053#       发表于 2018-9-13 19:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40947073&amp;ptid=1340143" target="_blank">dxxtiger 发表于 2018-9-13 19:16</a>
 咦？当天在现场看她回来也还好吧，就是手上缠了胶布，直接送医院可能是怕再出事吧。而且今天涉谷stream（ ...</blockquote>
 repo说近距离看表情挺痛苦，动作也省略了些，就算伤不重也是需要休养的程度吧
-
-
-
-
-
 
 
 -----
@@ -21419,14 +15116,7 @@ repo说近距离看表情挺痛苦，动作也省略了些，就算伤不重也�
 ##### 2054#       发表于 2018-9-13 19:51
 
 
-
-
 严重到这种地步？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21437,13 +15127,10 @@ repo说近距离看表情挺痛苦，动作也省略了些，就算伤不重也�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  dxxtiger  
 ##### 2056#       发表于 2018-9-13 20:02
-
-
 
 
 应该没1月份重吧……虽然本人也想坚持但如果到1月的程度的话这种说大不大（就700人的小场子）说小不小（和团体的关系比较大）的活动真严重的话露个脸说一声伤势情况也可以的……
@@ -21452,25 +15139,13 @@ repo说近距离看表情挺痛苦，动作也省略了些，就算伤不重也�
 不过其实……一直以来不管是不是推平手，repo都集中她一个，什么小动作都能解读出一堆，具体情况如何也只有本人和运营才知道了
 
 
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2057#       发表于 2018-9-13 20:04
 
 
-
-
 可能没那么严重，可也不是没事…具体怎么样肯定不会透露的
-
-
-
-
-
 
 
 -----
@@ -21479,15 +15154,7 @@ repo说近距离看表情挺痛苦，动作也省略了些，就算伤不重也�
 ##### 2058#       发表于 2018-9-14 23:22
 
 
-
-
 17号的msf，唱三首，沉默语未来季节，还蛮不错的串烧
-
-
-
-
-
-
 
 
 -----
@@ -21496,14 +15163,7 @@ repo说近距离看表情挺痛苦，动作也省略了些，就算伤不重也�
 ##### 2059#       发表于 2018-9-15 16:40
 
 
-
-
 票房据说很差，果真偶像电影就那样了吗……
-
-
-
-
-
 
 
 -----
@@ -21512,14 +15172,7 @@ repo说近距离看表情挺痛苦，动作也省略了些，就算伤不重也�
 ##### 2060#       发表于 2018-9-16 01:06
 
 
-
-
 票房没法强求，这次就当锻炼加刷脸吧
-
-
-
-
-
 
 
 -----
@@ -21528,16 +15181,9 @@ repo说近距离看表情挺痛苦，动作也省略了些，就算伤不重也�
 ##### 2061#       发表于 2018-9-16 02:28
 
 
-
-
 漫改别说给女偶像了，就是给J家一线男偶像演也常有暴死啊。
 
 而且现在正经女演员票房合格的也只有两个人…
-
-
-
-
-
 
 
 -----
@@ -21546,25 +15192,16 @@ repo说近距离看表情挺痛苦，动作也省略了些，就算伤不重也�
 ##### 2062#       发表于 2018-9-16 21:25
 
 
-
-
 小偷家族在柯南勉强都是弟弟……真人漫改最后10e就不算差的了，过30e都是可以吹的，日本真人电影普遍疲软。
 
 
 然后就二刷的观感来说，电影还是可以的，内容来说挺有趣，但缺乏去年胰脏那种恋爱电影作为约会项目的作用。就演技来说至少有一点值得表扬的就是没有很多若手女演员普遍有的“话剧感”或者说“舞台感”，加上角色和本人性格也有相似处，还是比较自然的。但比较蛋疼的是因为原作里主人公算是个非常土的妹子，所以服装和妆容都非常非常非常土<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 2063#       发表于 2018-9-16 21:35
-
-
 
 
 [tr]
@@ -21577,26 +15214,13 @@ repo说近距离看表情挺痛苦，动作也省略了些，就算伤不重也�
 其实周五的成绩还凑合了，同日上映的第一位「プーと大人になった僕」是迪士尼的《维尼与我》，第二名是《铁血战士》最新续作
 
 
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2064#       发表于 2018-9-17 18:35
 
 
-
-
 除了坂道之诗以外没别的组做欅写了？记得还有一个二人字幕组？
-
-
-
-
-
 
 
 -----
@@ -21605,16 +15229,10 @@ repo说近距离看表情挺痛苦，动作也省略了些，就算伤不重也�
 ##### 2065#       发表于 2018-9-17 18:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40992709&amp;ptid=1340143" target="_blank">芍药 发表于 2018-9-17 18:35</a>
 
 除了坂道之诗以外没别的组做欅写了？记得还有一个二人字幕组？</blockquote>
 B站搜一下【欅坂46的K】。应该是最快速度吧
-
-
-
-
-
 
 
 -----
@@ -21623,16 +15241,10 @@ B站搜一下【欅坂46的K】。应该是最快速度吧
 ##### 2066#       发表于 2018-9-17 20:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40992709&amp;ptid=1340143" target="_blank">芍药 发表于 2018-9-17 19:35</a>
 
 除了坂道之诗以外没别的组做欅写了？记得还有一个二人字幕组？</blockquote>
 我一直以为你是二人字幕组的orz
-
-
-
-
-
 
 
 -----
@@ -21641,14 +15253,7 @@ B站搜一下【欅坂46的K】。应该是最快速度吧
 ##### 2067#       发表于 2018-9-17 23:50
 
 
-
-
 不是不是，哪有这么多精力
-
-
-
-
-
 
 
 -----
@@ -21657,24 +15262,15 @@ B站搜一下【欅坂46的K】。应该是最快速度吧
 ##### 2068#       发表于 2018-9-18 00:04
 
 
-
-
 怎么B站搜不到二人字幕组了？
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2069#       发表于 2018-9-18 21:15
-
-
 
 
 诚哥 <blockquote>映画『響 -HIBIKI-』観てきました。良かったです！　エンドロールでも誰も立ち上がらず、終了後は「原作読みたい！」という声がちらほら。夏の邦画は『SUNNY』も面白かったし、ちょっと覗きに行ったぴあフィルムフェスティバル2018でも良い作品があったし、刺激と焦りばかりです。仕事しよう。— 新海誠 (@shinkaimakoto) [2018年9月17日](https://twitter.com/shinkaimakoto/status/1041612561840398336?ref_src=twsrc%5Etfw)  </blockquote>
@@ -21686,31 +15282,18 @@ B站搜一下【欅坂46的K】。应该是最快速度吧
 <img src="http://wx3.sinaimg.cn/mw690/636640e3gy1fve05pg94sj20x30iewhr.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
 -----
 
 ####  Demi.Albertini  
 ##### 2070#       发表于 2018-9-22 22:23
 
 
-
-
 米警官宣布毕业
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +2
@@ -21721,12 +15304,7 @@ B站搜一下【欅坂46的K】。应该是最快速度吧
 | 上古古难记录者| + 1|令人遗憾。|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -21735,16 +15313,9 @@ B站搜一下【欅坂46的K】。应该是最快速度吧
 ##### 2071#       发表于 2018-9-22 22:29
 
 
-
-
 HIBIKI看完只能说，监督尽力了…
 
 — from Sony H8296, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.3-play
-
-
-
-
-
 
 
 -----
@@ -21755,21 +15326,13 @@ HIBIKI看完只能说，监督尽力了…
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 2073#       发表于 2018-9-23 12:02
 
 
-
-
 响就是一部龙傲天**吧<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21778,21 +15341,13 @@ HIBIKI看完只能说，监督尽力了…
 ##### 2074#       发表于 2018-9-23 12:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">妈耶我看见了什么，小米毕业去专心做学霸了嘛……也好。
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2075#       发表于 2018-9-23 12:27
-
-
 
 
 上期欅写土田也说了她本身不是太享受表演会害羞跟尴尬，回去念书做喜欢做的事吧
@@ -21807,22 +15362,10 @@ HIBIKI看完只能说，监督尽力了…
 2018-9-23 12:26 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2076#       发表于 2018-9-24 11:58
-
-
 
 
 现在就开始拍八单MV会不会太早了点...?正常来说会比乃团晚半个月发售，现在还有接近三个月的时间
@@ -21837,9 +15380,6 @@ HIBIKI看完只能说，监督尽力了…
 2018-9-24 11:56 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201809/24/115646neayyrayqrqy111o.jpg" referrerpolicy="no-referrer">
 
 
@@ -21848,9 +15388,6 @@ HIBIKI看完只能说，监督尽力了…
 下载附件
 
 2018-9-24 11:56 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201809/24/115646xak256zth666641x.jpg" referrerpolicy="no-referrer">
@@ -21863,9 +15400,6 @@ HIBIKI看完只能说，监督尽力了…
 2018-9-24 11:56 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201809/24/115645d2nmld1dnqldqch1.jpg" referrerpolicy="no-referrer">
 
 
@@ -21876,18 +15410,9 @@ HIBIKI看完只能说，监督尽力了…
 2018-9-24 11:56 上传
 
 
-
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -21897,12 +15422,7 @@ HIBIKI看完只能说，监督尽力了…
 | 上古古难记录者| + 1|目前传说8单洗牌。|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -21911,23 +15431,15 @@ HIBIKI看完只能说，监督尽力了…
 ##### 2077#       发表于 2018-9-24 12:58
 
 
-
-
 我更倾向是CM之类的团队拍摄活动，不然也太早了点
 
 现在除去毕业的泉米跟暂休的田葵汉字剩17人，汉字二期不会这么早上场，除非这开始汉字假名混合选拔不然我觉得八单还是17人，等过了红白再做打算。
-
-
-
-
-
 
 
 -----
 
 ####  lekbrandy  
 ##### 2078#       发表于 2018-9-25 16:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41061400&amp;ptid=1340143" target="_blank">芍药 发表于 2018-9-24 11:58</a>
@@ -21942,16 +15454,10 @@ HIBIKI看完只能说，监督尽力了…
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2079#       发表于 2018-9-27 11:22
-
 
 
  本帖最后由 芍药 于 2018-9-27 11:25 编辑 
@@ -21959,16 +15465,10 @@ HIBIKI看完只能说，监督尽力了…
 上年共和国这天的仪式（中二）感跟情绪都很不错，特别是最爱谁跟不协和，气势出来了
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2080#       发表于 2018-9-27 12:14
-
 
 
  本帖最后由 芍药 于 2018-9-27 20:16 编辑 
@@ -21985,9 +15485,6 @@ CD过五百万
 2018-9-27 12:12 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201809/27/121236fnn3il0d03l6et60.jpg" referrerpolicy="no-referrer">
 
 
@@ -21996,12 +15493,6 @@ CD过五百万
 下载附件
 
 2018-9-27 12:12 上传
-
-
-
-
-
-
 
 
 服饰合作
@@ -22016,10 +15507,6 @@ CD过五百万
 2018-9-27 20:15 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201809/27/201548ze01en1xeejvjs58.jpg" referrerpolicy="no-referrer">
 
 
@@ -22028,10 +15515,6 @@ CD过五百万
 下载附件
 
 2018-9-27 20:15 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201809/27/201548qusrj5nsjssx0yp5.jpg" referrerpolicy="no-referrer">
@@ -22044,34 +15527,18 @@ CD过五百万
 2018-9-27 20:15 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2081#       发表于 2018-10-6 00:53
 
 
-
-
 现在说这个可能有点晚………谁还有2017共和国的熟肉下载…
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -22081,12 +15548,7 @@ CD过五百万
 | 上古古难记录者| + 1|【坂道之诗】欅共和国 2017 为什么不缓存.|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -22095,14 +15557,7 @@ CD过五百万
 ##### 2082#       发表于 2018-10-6 11:33
 
 
-
-
 本想养养弹幕再看，然后发现被版权了。。。现在欲哭无泪。。。
-
-
-
-
-
 
 
 -----
@@ -22113,12 +15568,10 @@ CD过五百万
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Layor Rik  
 ##### 2084#       发表于 2018-10-6 11:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41177465&amp;ptid=1340143" target="_blank">原始恶魔 发表于 2018-10-6 11:38</a>
@@ -22129,13 +15582,9 @@ CD过五百万
 传个网盘吧，拜托了。。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -22145,12 +15594,7 @@ CD过五百万
 | 上古古难记录者| + 1|本体+纪录片=12G,实在帮不到.|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -22161,7 +15605,6 @@ CD过五百万
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  原始恶魔  
@@ -22170,21 +15613,13 @@ CD过五百万
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 2087#       发表于 2018-10-6 14:09
 
 
-
-
 就存了生肉，谈话翻译看完就过了
-
-
-
-
-
 
 
 -----
@@ -22193,14 +15628,7 @@ CD过五百万
 ##### 2088#       发表于 2018-10-6 14:20
 
 
-
-
 共和国碟片卖得不错啊，运营非得等到21人不在了才开始发片，也是虐团饭
-
-
-
-
-
 
 
 -----
@@ -22209,14 +15637,7 @@ CD过五百万
 ##### 2089#       发表于 2018-10-6 21:14
 
 
-
-
 朋友帮忙找了个24G的下载，终于舒心了，另外，买的BD盘今天也到了！！！！
-
-
-
-
-
 
 
 -----
@@ -22225,23 +15646,15 @@ CD过五百万
 ##### 2090#       发表于 2018-10-7 00:52
 
 
-
-
 求下分享
 
 BD还在路上，卡好久了
-
-
-
-
-
 
 
 -----
 
 ####  Layor Rik  
 ##### 2091#       发表于 2018-10-7 01:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41183710&amp;ptid=1340143" target="_blank">芍药 发表于 2018-10-7 00:52</a>
@@ -22252,17 +15665,10 @@ BD还在路上，卡好久了</blockquote>
 我下的也是生肉。。。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2092#       发表于 2018-10-11 13:59
-
-
 
 
 MTV，平手不在，17人
@@ -22277,9 +15683,6 @@ MTV，平手不在，17人
 2018-10-11 13:58 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/11/135853wimqiggqqmmhbycy.jpg" referrerpolicy="no-referrer">
 
 
@@ -22290,22 +15693,10 @@ MTV，平手不在，17人
 2018-10-11 13:58 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2093#       发表于 2018-10-11 16:40
-
-
 
 
 五万的首周，比马低几百，比梨高一万五
@@ -22321,16 +15712,6 @@ MTV，平手不在，17人
 2018-10-11 16:38 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  原始恶魔  
@@ -22339,29 +15720,19 @@ MTV，平手不在，17人
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 2095#       发表于 2018-10-11 23:22
 
 
-
-
 看之后的宣传吧，马马跟梨加的区别就是梨基本没做后期的宣传，电视不上推特更得不勤快
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2096#       发表于 2018-10-12 20:32
-
-
 
 
 新的cm，之前欅写广告时间里面的品牌
@@ -22376,11 +15747,6 @@ MTV，平手不在，17人
 2018-10-12 20:31 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/12/203005b3joaj7dl70063aq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
 
@@ -22391,23 +15757,10 @@ MTV，平手不在，17人
 2018-10-12 20:30 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2097#       发表于 2018-10-12 20:35
-
 
 
  本帖最后由 芍药 于 2018-10-12 20:38 编辑 
@@ -22416,27 +15769,15 @@ MTV，平手不在，17人
 [http://www.keyakizaka46matomerabo.com/wp-content/uploads/J-vyqwl7cwjnW2er.mp4](http://www.keyakizaka46matomerabo.com/wp-content/uploads/J-vyqwl7cwjnW2er.mp4)
 
 
-
-
-
-
-
 -----
 
 ####  LIN+  
 ##### 2098#       发表于 2018-10-12 22:48
 
 
-
-
 欅共和国的BD为啥我看着很多就像开了伴唱音轨一样人声很小？ 难道是现场外录还不修音？ 
 
 但奇怪的是我看网上别人发的视频这个现象就没那么严重，难道是有什么设置？
-
-
-
-
-
 
 
 -----
@@ -22445,14 +15786,7 @@ MTV，平手不在，17人
 ##### 2099#       发表于 2018-10-12 22:56
 
 
-
-
 真想看小平说大噶好。。。。
-
-
-
-
-
 
 
 -----
@@ -22463,13 +15797,10 @@ MTV，平手不在，17人
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 2101#       发表于 2018-10-13 21:42
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201810/13/214145wwwedfo3nwef1e8e.jpg" referrerpolicy="no-referrer">
@@ -22482,9 +15813,6 @@ MTV，平手不在，17人
 2018-10-13 21:41 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/13/214342e6cx22n6r96enh22.jpg" referrerpolicy="no-referrer">
 
 
@@ -22493,8 +15821,6 @@ MTV，平手不在，17人
 下载附件
 
 2018-10-13 21:43 上传
-
-
 
 
  <blockquote>　 
@@ -22508,25 +15834,13 @@ MTV，平手不在，17人
 两年轻人
 
 
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2102#       发表于 2018-10-15 10:20
 
 
-
-
 连sol都病休，小平发生什么了……
-
-
-
-
-
 
 
 -----
@@ -22535,14 +15849,7 @@ MTV，平手不在，17人
 ##### 2103#       发表于 2018-10-15 21:01
 
 
-
-
 小病大养吧，能歇就歇
-
-
-
-
-
 
 
 -----
@@ -22551,15 +15858,9 @@ MTV，平手不在，17人
 ##### 2104#       发表于 2018-10-16 10:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41276303&amp;ptid=1340143" target="_blank">芍药 发表于 2018-10-15 21:01</a>
 小病大养吧，能歇就歇</blockquote>
 连广播都不能上……实在令人担心
-
-
-
-
-
 
 
 -----
@@ -22568,15 +15869,9 @@ MTV，平手不在，17人
 ##### 2105#       发表于 2018-10-16 15:01
 
 
-
  本帖最后由 芍药 于 2018-10-16 17:01 编辑 
 
 恩，之前摔到手也没缺席过，这次不知道啥原因了，不过也没必要太担心，顺其自然吧
-
-
-
-
-
 
 
 -----
@@ -22585,10 +15880,7 @@ MTV，平手不在，17人
 ##### 2106#       发表于 2018-10-17 14:43
 
 
-
  本帖最后由 芍药 于 2018-10-17 15:48 编辑 
-
-
 
 
 找到了能接受普通自己的地方然后笑着毕业，米这种不伤感的离开方式蛮好的
@@ -22596,16 +15888,10 @@ MTV，平手不在，17人
 学业组米去上学，睡觉留下，就看小葵怎么决定了
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2107#       发表于 2018-10-19 13:54
-
 
 
  本帖最后由 芍药 于 2018-10-19 20:46 编辑 
@@ -22623,9 +15909,6 @@ mechakiri的CM曲，应该是小坂C           这次倒是假名曲比�
 2018-10-19 13:45 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/19/134708c8p6y26709sb9z2y.jpg" referrerpolicy="no-referrer">
 
 
@@ -22634,12 +15917,6 @@ mechakiri的CM曲，应该是小坂C           这次倒是假名曲比�
 下载附件
 
 2018-10-19 13:47 上传
-
-
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201810/19/134230vba8bjgezjde6vx5.jpg" referrerpolicy="no-referrer">
@@ -22652,9 +15929,6 @@ mechakiri的CM曲，应该是小坂C           这次倒是假名曲比�
 2018-10-19 13:42 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/19/134229duq51zbo843551o4.jpg" referrerpolicy="no-referrer">
 
 
@@ -22663,9 +15937,6 @@ mechakiri的CM曲，应该是小坂C           这次倒是假名曲比�
 下载附件
 
 2018-10-19 13:42 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201810/19/134228j5tke2cehx9ixuqs.jpg" referrerpolicy="no-referrer">
@@ -22678,9 +15949,6 @@ mechakiri的CM曲，应该是小坂C           这次倒是假名曲比�
 2018-10-19 13:42 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/19/134227pvkwadzfqkhgmmaq.jpg" referrerpolicy="no-referrer">
 
 
@@ -22689,9 +15957,6 @@ mechakiri的CM曲，应该是小坂C           这次倒是假名曲比�
 下载附件
 
 2018-10-19 13:42 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201810/19/134226x21o003czno5mz75.jpg" referrerpolicy="no-referrer">
@@ -22704,9 +15969,6 @@ mechakiri的CM曲，应该是小坂C           这次倒是假名曲比�
 2018-10-19 13:42 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/19/134226y3qmtnpuczsc9fsq.jpg" referrerpolicy="no-referrer">
 
 
@@ -22717,9 +15979,6 @@ mechakiri的CM曲，应该是小坂C           这次倒是假名曲比�
 2018-10-19 13:42 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/19/134225cqvggt5flxxlrfvv.jpg" referrerpolicy="no-referrer">
 
 
@@ -22728,12 +15987,6 @@ mechakiri的CM曲，应该是小坂C           这次倒是假名曲比�
 下载附件
 
 2018-10-19 13:42 上传
-
-
-
-
-
-
 
 
 五妹的电视宣传节目
@@ -22748,10 +16001,6 @@ mechakiri的CM曲，应该是小坂C           这次倒是假名曲比�
 2018-10-19 13:49 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/19/204653p75cwca3qhgclami.jpg" referrerpolicy="no-referrer">
 
 
@@ -22762,26 +16011,10 @@ mechakiri的CM曲，应该是小坂C           这次倒是假名曲比�
 2018-10-19 20:46 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2108#       发表于 2018-10-20 16:05
-
 
 
 <blockquote><strong>浜松市「やらまいか大使」に織田奈那さん（欅坂４６）ら８人</strong>　浜松市は１９日、市の魅力を国内外に発信する親善大使「市やらまいか大使」に、同市出身でアイドルグループ「欅坂４６」メンバーの織田奈那さん（２０）や、米スタンフォード大プログラムディレクターで、日本初の医療機器ベンチャーキャピタルを創業した池野文昭さん（５１）＝南区出身＝ら８人を新たに委嘱すると発表した。
@@ -22799,25 +16032,13 @@ mechakiri的CM曲，应该是小坂C           这次倒是假名曲比�
 ODNN浜松市大使，20年3月结束
 
 
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2109#       发表于 2018-10-22 00:23
 
 
-
-
 突然就来团体写真！！那**的很好不错啊！
-
-
-
-
-
 
 
 -----
@@ -22826,14 +16047,7 @@ ODNN浜松市大使，20年3月结束
 ##### 2110#       发表于 2018-10-22 00:35
 
 
-
-
 别太暴露别太暴露别太暴露
-
-
-
-
-
 
 
 -----
@@ -22842,12 +16056,10 @@ ODNN浜松市大使，20年3月结束
 ##### 2111#       发表于 2018-10-22 17:32
 
 
-
  本帖最后由 芍药 于 2018-10-22 17:33 编辑 
 
 <img src="http://toriizaka46.jp/wp-content/uploads/2018/10/01keyakiteleasagra.jpg" referrerpolicy="no-referrer">
 <img src="http://toriizaka46.jp/wp-content/uploads/2018/10/89778998.jpg" referrerpolicy="no-referrer">
-
 
 
 假名生唱的SS
@@ -22858,18 +16070,12 @@ ODNN浜松市大使，20年3月结束
 水手服平手封面，不知道暂休跟预备毕业的人参不参与  304页2000日元，便宜的
 
 
-
-
-
-
-
 -----
 
 ####  3333553  
 ##### 2112#       发表于 2018-10-24 07:31
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -22880,12 +16086,10 @@ ODNN浜松市大使，20年3月结束
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 2114#       发表于 2018-10-24 19:06
-
 
 
  本帖最后由 芍药 于 2018-10-24 23:01 编辑 
@@ -22905,11 +16109,6 @@ MTV领奖的时候也不在，平手自从九月底以来就没漏过脸了，�
 2018-10-24 17:59 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/24/175929j0h0xe7z51v1hgzs.png" referrerpolicy="no-referrer">
 
 
@@ -22920,28 +16119,13 @@ MTV领奖的时候也不在，平手自从九月底以来就没漏过脸了，�
 2018-10-24 17:59 上传
 
 
-
-
-
-
-
-
-
-
-
 榎坂算是见过最好的民间团了，无论是整齐度还是感觉都能跳得出来
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2115#       发表于 2018-10-24 21:23
-
 
 
  本帖最后由 芍药 于 2018-10-24 22:18 编辑 
@@ -22956,11 +16140,6 @@ MTV领奖的时候也不在，平手自从九月底以来就没漏过脸了，�
 而且不同于夏巡圣诞live周年live等场内表演，共和国算是欅坂一年最重要的面向粉丝的表演了，加上在室外自由度大，成员参与设计的环节也多，想怎么玩就怎么玩
 
 
-
-
-
-
-
 -----
 
 ####  3333553  
@@ -22969,25 +16148,18 @@ MTV领奖的时候也不在，平手自从九月底以来就没漏过脸了，�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Layor Rik  
 ##### 2117#       发表于 2018-10-25 01:43
 
 
-
-
 这楼是不是有问题？最后回复是2016年的
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -22997,12 +16169,7 @@ MTV领奖的时候也不在，平手自从九月底以来就没漏过脸了，�
 | 上古古难记录者| + 1|改为最新回复在最前了。|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -23013,25 +16180,18 @@ MTV领奖的时候也不在，平手自从九月底以来就没漏过脸了，�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 2119#       发表于 2018-10-25 17:43
 
 
-
-
 可以由楼主改默认阅读顺序的？
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -23041,12 +16201,7 @@ MTV领奖的时候也不在，平手自从九月底以来就没漏过脸了，�
 | 上古古难记录者| + 1|是的。|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -23055,22 +16210,14 @@ MTV领奖的时候也不在，平手自从九月底以来就没漏过脸了，�
 ##### 2120#       发表于 2018-10-25 17:48
 
 
-
-
 B站共和国影像删得真快，A站依然坚挺
 [http://www.acfun.cn/v/ac4612917](http://www.acfun.cn/v/ac4612917)
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2121#       发表于 2018-10-26 13:34
-
 
 
  本帖最后由 芍药 于 2018-10-26 13:48 编辑 
@@ -23094,13 +16241,6 @@ B站共和国影像删得真快，A站依然坚挺
 2018-10-26 13:28 上传
 
 
-
-
-
-
-
-
-
 博报堂的调研
 
 <img src="https://img.saraba1st.com/forum/201810/26/133015r5e5c5plybywleza.png" referrerpolicy="no-referrer">
@@ -23113,21 +16253,10 @@ B站共和国影像删得真快，A站依然坚挺
 2018-10-26 13:30 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2122#       发表于 2018-10-26 13:51
-
 
 
 <blockquote>3333553 发表于 2018-10-25 00:34
@@ -23138,16 +16267,10 @@ B站共和国影像删得真快，A站依然坚挺
 这得问在11区抽过的人了，印象中还不算特别离谱
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2123#       发表于 2018-10-26 21:02
-
 
 
 <blockquote><strong>2018/10/26開催「Hot Stuff Promotion 40th Anniversary MASAKA」
@@ -23179,11 +16302,6 @@ M10 NO WAR in the future</blockquote>
 表演的曲目还蛮多的，TAKAHIRO也在现场指导舞蹈
 
 
-
-
-
-
-
 -----
 
 ####  3333553  
@@ -23192,12 +16310,10 @@ M10 NO WAR in the future</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 2125#       发表于 2018-10-28 02:15
-
 
 
  本帖最后由 芍药 于 2018-10-28 02:28 编辑 
@@ -23216,9 +16332,6 @@ M10 NO WAR in the future</blockquote>
 2018-10-28 02:26 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/28/022607hewb1s262wme6wxb.jpg" referrerpolicy="no-referrer">
 
 
@@ -23227,9 +16340,6 @@ M10 NO WAR in the future</blockquote>
 下载附件
 
 2018-10-28 02:26 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201810/28/022606shtzb67tjbtfqfxt.jpg" referrerpolicy="no-referrer">
@@ -23242,9 +16352,6 @@ M10 NO WAR in the future</blockquote>
 2018-10-28 02:26 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/28/022605ab43xyywced0nwx6.jpg" referrerpolicy="no-referrer">
 
 
@@ -23253,9 +16360,6 @@ M10 NO WAR in the future</blockquote>
 下载附件
 
 2018-10-28 02:26 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201810/28/022744x6nt143f0tyez6n6.jpg" referrerpolicy="no-referrer">
@@ -23268,10 +16372,6 @@ M10 NO WAR in the future</blockquote>
 2018-10-28 02:27 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/28/022608pp77pudo3d7ux77d.jpg" referrerpolicy="no-referrer">
 
 
@@ -23280,9 +16380,6 @@ M10 NO WAR in the future</blockquote>
 下载附件
 
 2018-10-28 02:26 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201810/28/022837z1yuzso5m33u15u1.jpg" referrerpolicy="no-referrer">
@@ -23295,17 +16392,9 @@ M10 NO WAR in the future</blockquote>
 2018-10-28 02:28 上传
 
 
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -23315,20 +16404,13 @@ M10 NO WAR in the future</blockquote>
 | 上古古难记录者| + 1|MONARISA成绝响。|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2126#       发表于 2018-10-29 00:38
-
-
 
 
 涉谷的欅cos，遮眼即可cos平手
@@ -23343,9 +16425,6 @@ M10 NO WAR in the future</blockquote>
 2018-10-29 00:37 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/29/003710vbglb727r1brvg39.jpg" referrerpolicy="no-referrer">
 
 
@@ -23354,9 +16433,6 @@ M10 NO WAR in the future</blockquote>
 下载附件
 
 2018-10-29 00:37 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201810/29/003710anvvn5nhfnw755vf.jpg" referrerpolicy="no-referrer">
@@ -23369,9 +16445,6 @@ M10 NO WAR in the future</blockquote>
 2018-10-29 00:37 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/29/003709e22edv352xndldld.jpg" referrerpolicy="no-referrer">
 
 
@@ -23382,22 +16455,10 @@ M10 NO WAR in the future</blockquote>
 2018-10-29 00:37 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  骑驴的歌顿  
 ##### 2127#       发表于 2018-10-29 13:30
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201810/29/132614b5bz4lfezsutxe7k.jpg" referrerpolicy="no-referrer">
@@ -23410,11 +16471,6 @@ M10 NO WAR in the future</blockquote>
 2018-10-29 13:26 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/29/132622bchmpakhhnaamkap.jpg" referrerpolicy="no-referrer">
 
 
@@ -23425,23 +16481,11 @@ M10 NO WAR in the future</blockquote>
 2018-10-29 13:26 上传
 
 
-
-
-
-
-
-
 贴吧看到的图，请问这是啥节目，她们名字是？
-
-
-
-
 
 
 98959.JPG
 (67.48 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -23450,24 +16494,7 @@ M10 NO WAR in the future</blockquote>
 2018-10-29 13:25 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/29/132556qukku5rk9ltuj773.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -23476,19 +16503,14 @@ M10 NO WAR in the future</blockquote>
 ##### 2128#       发表于 2018-10-29 13:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41417812&amp;ptid=1340143" target="_blank">骑驴的歌顿 发表于 2018-10-29 13:30</a>
 贴吧看到的图，请问这是啥节目，她们名字是？</blockquote>
 乃木坂工事中 和田玛雅
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -23498,12 +16520,7 @@ M10 NO WAR in the future</blockquote>
 | 骑驴的歌顿| + 1|谢谢！|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -23512,19 +16529,14 @@ M10 NO WAR in the future</blockquote>
 ##### 2129#       发表于 2018-10-29 13:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41417812&amp;ptid=1340143" target="_blank">骑驴的歌顿 发表于 2018-10-29 13:30</a>
 贴吧看到的图，请问这是啥节目，她们名字是？</blockquote>
 这个要去乃团专楼
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -23534,12 +16546,7 @@ M10 NO WAR in the future</blockquote>
 | 骑驴的歌顿| + 1|谢谢|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -23548,22 +16555,15 @@ M10 NO WAR in the future</blockquote>
 ##### 2130#       发表于 2018-10-29 13:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41413600&amp;ptid=1340143" target="_blank">芍药 发表于 2018-10-29 00:38</a>
 涉谷的欅cos，遮眼即可cos平手</blockquote>
 侧面那张非常像，其他就不行了
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2131#       发表于 2018-10-29 17:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41417972&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2018-10-29 13:50</a>
@@ -23574,17 +16574,10 @@ M10 NO WAR in the future</blockquote>
 一单制服的一开始还以为是坂道新生，年内不知道有没有机会露脸，伏南山统一曝光演出就好了
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2132#       发表于 2018-11-1 22:46
-
-
 
 
 新CM
@@ -23599,10 +16592,6 @@ M10 NO WAR in the future</blockquote>
 2018-11-1 22:36 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201811/01/223654hf96ldp0qrmf0r5x.jpg" referrerpolicy="no-referrer">
 
 
@@ -23611,10 +16600,6 @@ M10 NO WAR in the future</blockquote>
 下载附件
 
 2018-11-1 22:36 上传
-
-
-
-
 
 
  <blockquote><strong>2018.11.1 ハロウィン。月刊エンタメさん。
@@ -23645,11 +16630,9 @@ SOLさんで仮装したので、今年は満足だなー。
 美波と土生ちゃんのペアロケ回です。
 
 
-
 最後とつくと、少しさみしくなりますね。
 
 意識しないように気をつけます。
-
 
 
 では。
@@ -23670,9 +16653,6 @@ SOLさんで仮装したので、今年は満足だなー。
 2018-11-1 22:41 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201811/01/224137pl6yn36ypz6lxdo3.jpg" referrerpolicy="no-referrer">
 
 
@@ -23681,9 +16661,6 @@ SOLさんで仮装したので、今年は満足だなー。
 下载附件
 
 2018-11-1 22:41 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201811/01/224354lhf8vz5yg2zdpv54.jpg" referrerpolicy="no-referrer">
@@ -23696,9 +16673,6 @@ SOLさんで仮装したので、今年は満足だなー。
 2018-11-1 22:43 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201811/01/224355zu6aa6867ga4ua1u.jpg" referrerpolicy="no-referrer">
 
 
@@ -23707,9 +16681,6 @@ SOLさんで仮装したので、今年は満足だなー。
 下载附件
 
 2018-11-1 22:43 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201811/01/224356cu9kpcbfnkg6cns9.jpg" referrerpolicy="no-referrer">
@@ -23722,21 +16693,10 @@ SOLさんで仮装したので、今年は満足だなー。
 2018-11-1 22:43 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2133#       发表于 2018-11-3 00:45
-
 
 
  本帖最后由 芍药 于 2018-11-3 19:17 编辑 
@@ -23762,21 +16722,10 @@ SOLさんで仮装したので、今年は満足だなー。
 2018-11-3 19:16 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2134#       发表于 2018-11-5 15:53
-
 
 
  本帖最后由 芍药 于 2018-11-5 15:58 编辑 
@@ -23793,9 +16742,6 @@ SOLさんで仮装したので、今年は満足だなー。
 2018-11-5 15:51 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201811/05/155118jr8ewj5b8r2yww43.jpg" referrerpolicy="no-referrer">
 
 
@@ -23804,10 +16750,6 @@ SOLさんで仮装したので、今年は満足だなー。
 下载附件
 
 2018-11-5 15:51 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201811/05/155338bdbh24oru4vxnnox.jpg" referrerpolicy="no-referrer">
@@ -23820,12 +16762,8 @@ SOLさんで仮装したので、今年は満足だなー。
 2018-11-5 15:53 上传
 
 
-
-
-
 最后的合照
 [http://photo.weibo.com/635145854 ... whh6ff30j30qo0k0wgy](http://photo.weibo.com/6351458545/wbphotos/large/mid/4302788944792231/pid/006VQ4vLgy1fwwhh6ff30j30qo0k0wgy)
-
 
 
  <blockquote><strong>欅坂46長濱ねる写真集、20万部突破　今年一番売れたソロ写真集に＜「ここから」未公開カットあり＞</strong>【長濱ねる／モデルプレス＝11月5日】昨年12月19日（火）に発売された欅坂46・長濱ねるの1st写真集『ここから』（講談社）が10度目の重版を行い1万部を増刷。累計発行部数が20万部を突破したことがわかった。
@@ -23834,17 +16772,10 @@ SOLさんで仮装したので、今年は満足だなー。
 二十万
 
 
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2135#       发表于 2018-11-8 00:51
-
 
 
 <blockquote><strong>音力～ONCHIKA～【今年は波乱の予感?ベストヒット歌謡祭直前SP】</strong>
@@ -23870,38 +16801,19 @@ AKB48 NMB48 DA　PUMP 欅坂46 あいみょん Toshl コブクロ[以下全文�
 2018-11-8 00:49 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  沉默之声  
 ##### 2136#       发表于 2018-11-8 01:07
 
 
-
-
 小米越长越漂亮甚至有点像桥本了，偶像血汗工厂，专注学业嫁个好人蛮不错的
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2137#       发表于 2018-11-13 23:20
-
-
 
 
 Loppi・HMV限定版封面，比通常版好点
@@ -23916,9 +16828,6 @@ Loppi・HMV限定版封面，比通常版好点
 2018-11-13 23:09 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201811/13/230948hjm68shd8xkdizd3.jpg" referrerpolicy="no-referrer">
 
 
@@ -23929,17 +16838,12 @@ Loppi・HMV限定版封面，比通常版好点
 2018-11-13 23:09 上传
 
 
-
-
  <blockquote>【早くも重版決定！】[#欅坂46](https://twitter.com/hashtag/%E6%AC%85%E5%9D%8246?src=hash&amp;ref_src=twsrc%5Etfw) ファースト写真集『[#21人の未完成](https://twitter.com/hashtag/21%E4%BA%BA%E3%81%AE%E6%9C%AA%E5%AE%8C%E6%88%90?src=hash&amp;ref_src=twsrc%5Etfw)』。たくさんの反響により重版が決まり、発売前にもかかわらず発行部数18万5,000部を突破しました！ 皆さま、ありがとうございます！
 
 また、本日「Loppi・HMV版」の表紙ビジュアルも解禁いたしました。こちらもチェックしてください！ [pic.twitter.com/xwRLaP4iMC](https://t.co/xwRLaP4iMC)— 欅坂46 ファースト写真集『21人の未完成』公式 (@keyaki_first) [2018年11月13日](https://twitter.com/keyaki_first/status/1062148207373938689?ref_src=twsrc%5Etfw)</blockquote>18.5万重版，销量还行
 
 
-
 假名去韩国mama颁奖礼混脸熟，不管之后有什么举动，有曝光总不是坏事
-
-
 
 
 11/15
@@ -23949,23 +16853,13 @@ Loppi・HMV限定版封面，比通常版好点
 【見どころポイント✨】MCである [#吉本坂46](https://twitter.com/hashtag/%E5%90%89%E6%9C%AC%E5%9D%8246?src=hash&amp;ref_src=twsrc%5Etfw) の [#トレンディエンジェル](https://twitter.com/hashtag/%E3%83%88%E3%83%AC%E3%83%B3%E3%83%87%E3%82%A3%E3%82%A8%E3%83%B3%E3%82%B8%E3%82%A7%E3%83%AB?src=hash&amp;ref_src=twsrc%5Etfw) と [#乃木坂46](https://twitter.com/hashtag/%E4%B9%83%E6%9C%A8%E5%9D%8246?src=hash&amp;ref_src=twsrc%5Etfw) ・ [#欅坂46](https://twitter.com/hashtag/%E6%AC%85%E5%9D%8246?src=hash&amp;ref_src=twsrc%5Etfw) の [#坂道グループ](https://twitter.com/hashtag/%E5%9D%82%E9%81%93%E3%82%B0%E3%83%AB%E3%83%BC%E3%83%97?src=hash&amp;ref_src=twsrc%5Etfw) によるコラボトーク💕配信日時：11月15日(木)よる‼️6時‼️〜9時[#ベストヒット歌謡祭](https://twitter.com/hashtag/%E3%83%99%E3%82%B9%E3%83%88%E3%83%92%E3%83%83%E3%83%88%E6%AD%8C%E8%AC%A1%E7%A5%AD?src=hash&amp;ref_src=twsrc%5Etfw)🎤 [pic.twitter.com/KD0bHcUZ86](https://t.co/KD0bHcUZ86)— ベストヒット歌謡祭 (@besthitskayosai) [November 12, 2018](https://twitter.com/besthitskayosai/status/1061920108845494273?ref_src=twsrc%5Etfw)</blockquote>
 
 
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2138#       发表于 2018-11-15 23:52
 
 
-
-
 开闭的舞蹈很有力度啊，看起来很舒服
-
 
 
 <img src="https://img.saraba1st.com/forum/201811/15/235228hi1xyford7ximw76.jpg" referrerpolicy="no-referrer">
@@ -23978,9 +16872,6 @@ Loppi・HMV限定版封面，比通常版好点
 2018-11-15 23:52 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201811/15/235228phhyvx6hv9voshiy.jpg" referrerpolicy="no-referrer">
 
 
@@ -23991,24 +16882,15 @@ Loppi・HMV限定版封面，比通常版好点
 2018-11-15 23:52 上传
 
 
-
-
-
 汉字假名联合表演原来是一起跳矛盾，还以为是三十几人一起唱新歌或者太阳（中间那两个镜头甩得晕），平手看起来廋了很多
 
 汉字舞台剧的4人来不了，所以加入假名成员 九妹菜花牙医miho。    开了这个头下单开选拔也算是有铺垫了，现在还没消息那就是明年的事了
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2139#       发表于 2018-11-16 22:51
-
 
 
 <blockquote>志田愛佳に関しまして
@@ -24030,32 +16912,16 @@ Loppi・HMV限定版封面，比通常版好点
 成员紧缺得厉害，假名今年资源很多知名度也上来差不多可以跟汉字较劲了。新成员的加入跟汉字假名合流应该不远了
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2140#       发表于 2018-11-18 02:04
 
 
-
  本帖最后由 芍药 于 2018-12-22 01:01 编辑 
 
 
-
 <strong>Songs of Tokyo</strong>
-
-
-
-
-
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201811/18/020338qsmcqwmsctt2ttsc.jpg" referrerpolicy="no-referrer">
@@ -24068,9 +16934,6 @@ Loppi・HMV限定版封面，比通常版好点
 2018-11-18 02:03 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201811/18/020337w262fzzlpfmtnz6r.jpg" referrerpolicy="no-referrer">
 
 
@@ -24079,9 +16942,6 @@ Loppi・HMV限定版封面，比通常版好点
 下载附件
 
 2018-11-18 02:03 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201811/18/020337fkuk86uh4knkm0kk.jpg" referrerpolicy="no-referrer">
@@ -24094,9 +16954,6 @@ Loppi・HMV限定版封面，比通常版好点
 2018-11-18 02:03 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201811/18/020336buulfmqqguuquu9f.jpg" referrerpolicy="no-referrer">
 
 
@@ -24107,12 +16964,7 @@ Loppi・HMV限定版封面，比通常版好点
 2018-11-18 02:03 上传
 
 
-
-
-
-
 栗子沉默的表演够格，矛盾空C，给欅的谈话环节也不错
-
 
 
 <img src="https://img.saraba1st.com/forum/201811/19/003709ay004260gzg66cge.jpg" referrerpolicy="no-referrer">
@@ -24125,24 +16977,15 @@ Loppi・HMV限定版封面，比通常版好点
 2018-11-19 00:37 上传
 
 
-
-
  <blockquote>平手友梨奈さん、最近はたこ焼きを食べていたそうです。(齋藤冬優花さんとの握手より)
 
 — みっきー。 (@hiratekage_46) 2018年11月17日</blockquote>
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2141#       发表于 2018-11-20 20:24
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201811/20/202316jiz4t874niy46uut.jpg" referrerpolicy="no-referrer">
@@ -24155,24 +16998,13 @@ Loppi・HMV限定版封面，比通常版好点
 2018-11-20 20:23 上传
 
 
-
-
-
-
 井口出演「踊る!さんま御殿!!」，在假名综艺里面的井口酒馆表现蛮好的，有初步的谈话能力
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2142#       发表于 2018-11-27 17:48
-
-
 
 
 这集欅写笑死，还是外景作弄泽部有看点
@@ -24187,9 +17019,6 @@ Loppi・HMV限定版封面，比通常版好点
 2018-11-27 17:48 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201811/27/174836ctztdt43nggznnps.jpg" referrerpolicy="no-referrer">
 
 
@@ -24198,9 +17027,6 @@ Loppi・HMV限定版封面，比通常版好点
 下载附件
 
 2018-11-27 17:48 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201811/27/174835pn3if1a1ewbfd4n1.jpg" referrerpolicy="no-referrer">
@@ -24213,9 +17039,6 @@ Loppi・HMV限定版封面，比通常版好点
 2018-11-27 17:48 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201811/27/174834n52ovpi5v6io9jj2.jpg" referrerpolicy="no-referrer">
 
 
@@ -24224,15 +17047,6 @@ Loppi・HMV限定版封面，比通常版好点
 下载附件
 
 2018-11-27 17:48 上传
-
-
-
-
-
-
-
-
-
 
 
 明年1/17miho出写真，是阳光运动类的就好了     假名之后期待小坂的写真
@@ -24248,9 +17062,6 @@ Loppi・HMV限定版封面，比通常版好点
 2018-11-27 17:39 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201811/27/173901f13ss0k1jygmyyj8.jpg" referrerpolicy="no-referrer">
 
 
@@ -24259,12 +17070,6 @@ Loppi・HMV限定版封面，比通常版好点
 下载附件
 
 2018-11-27 17:39 上传
-
-
-
-
-
-
 
 
 坂道落选新生八卦出来几点，9人进汉字开选拔，2人进假名不开选拔  明年重点扶持假名 是真是假等到明年新生露面就知道了
@@ -24293,26 +17098,13 @@ Loppi・HMV限定版封面，比通常版好点
 久违的现场表演
 
 
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2143#       发表于 2018-11-29 11:06
 
 
-
-
 首周销量不行啊9w8，看起来没有假名捆绑死忠数确实也不高
-
-
-
-
-
 
 
 -----
@@ -24323,21 +17115,13 @@ Loppi・HMV限定版封面，比通常版好点
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 2145#       发表于 2018-11-29 11:27
 
 
-
-
 保不准卖不过睡觉，随着假名资源的倾斜跟知名的上升，汉字明年会沉下来了但总体还是不错的
-
-
-
-
-
 
 
 -----
@@ -24346,14 +17130,7 @@ Loppi・HMV限定版封面，比通常版好点
 ##### 2146#       发表于 2018-11-30 15:52
 
 
-
-
 平手居然突然上sw宣传写真……看起来问题很严重啊…可好像事先完全没通知吧！
-
-
-
-
-
 
 
 -----
@@ -24362,23 +17139,16 @@ Loppi・HMV限定版封面，比通常版好点
 ##### 2147#       发表于 2018-11-30 22:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41780324&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2018-11-30 15:52</a>
 
 平手居然突然上sw宣传写真……看起来问题很严重啊…可好像事先完全没通知吧！ ...</blockquote>
 卖得太差了吧，铺货也有问题，所以才匆匆忙忙上节目宣传？  这本团体的宣传力度比睡觉的差多了，睡觉不说马马那本好歹也上下电视，跟梨加那本的程度差不多了
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2148#       发表于 2018-12-1 15:53
-
 
 
  本帖最后由 芍药 于 2018-12-1 16:22 编辑 
@@ -24399,9 +17169,6 @@ Loppi・HMV限定版封面，比通常版好点
 2018-12-1 16:07 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/01/160631wxtfiopf9q8vio45.png" referrerpolicy="no-referrer">
 
 
@@ -24412,21 +17179,10 @@ Loppi・HMV限定版封面，比通常版好点
 2018-12-1 16:06 上传
 
 
-
-
-
 、  沉默mix
 
 
-
-
   金太郎，这次没这么冲击
-
-
-
-
-
-
 
 
 -----
@@ -24435,22 +17191,13 @@ Loppi・HMV限定版封面，比通常版好点
 ##### 2149#       发表于 2018-12-4 07:35
 
 
-
-
 平手新人奖了！
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2150#       发表于 2018-12-4 12:44
-
-
 
 
 有属于平手自己的勋章了
@@ -24468,9 +17215,6 @@ Loppi・HMV限定版封面，比通常版好点
 2018-12-4 12:18 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/04/123646jz861uh81hlhhhct.jpg" referrerpolicy="no-referrer">
 
 
@@ -24481,10 +17225,6 @@ Loppi・HMV限定版封面，比通常版好点
 2018-12-4 12:36 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/04/121822vglsp1emkvgveovq.jpg" referrerpolicy="no-referrer">
 
 
@@ -24493,10 +17233,6 @@ Loppi・HMV限定版封面，比通常版好点
 下载附件
 
 2018-12-4 12:18 上传
-
-
-
-
 
 
 历届获奖名单
@@ -24511,12 +17247,6 @@ Loppi・HMV限定版封面，比通常版好点
 2018-12-4 12:34 上传
 
 
-
-
-
-
-
-
 汉字加9人，假名加1人
 
 <img src="https://img.saraba1st.com/forum/201812/04/121835i4hecktor4zzsyhz.jpg" referrerpolicy="no-referrer">
@@ -24529,10 +17259,6 @@ Loppi・HMV限定版封面，比通常版好点
 2018-12-4 12:18 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/04/122521uf4cmlewwfn66ifj.png" referrerpolicy="no-referrer">
 
 
@@ -24541,9 +17267,6 @@ Loppi・HMV限定版封面，比通常版好点
 下载附件
 
 2018-12-4 12:25 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201812/04/122522emdd48mdmedvmim6.png" referrerpolicy="no-referrer">
@@ -24556,9 +17279,6 @@ Loppi・HMV限定版封面，比通常版好点
 2018-12-4 12:25 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/04/122523rt0qojxzy0v0jot0.png" referrerpolicy="no-referrer">
 
 
@@ -24567,11 +17287,6 @@ Loppi・HMV限定版封面，比通常版好点
 下载附件
 
 2018-12-4 12:25 上传
-
-
-
-
-
 
 
 関 有美子
@@ -24586,9 +17301,6 @@ Loppi・HMV限定版封面，比通常版好点
 2018-12-4 12:30 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/04/123000ppn7ee1gzy7yyjnz.jpg" referrerpolicy="no-referrer">
 
 
@@ -24597,9 +17309,6 @@ Loppi・HMV限定版封面，比通常版好点
 下载附件
 
 2018-12-4 12:30 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201812/04/123001blc9bcvvb3ndlcsn.jpg" referrerpolicy="no-referrer">
@@ -24612,10 +17321,6 @@ Loppi・HMV限定版封面，比通常版好点
 2018-12-4 12:30 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/04/123037ce0mewwas0w2g9um.png" referrerpolicy="no-referrer">
 
 
@@ -24624,12 +17329,6 @@ Loppi・HMV限定版封面，比通常版好点
 下载附件
 
 2018-12-4 12:30 上传
-
-
-
-
-
-
 
 
 FNS监督的表演集锦，平井坚X平手
@@ -24644,9 +17343,6 @@ FNS监督的表演集锦，平井坚X平手
 2018-12-4 12:38 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/04/123811leecodz0eo4jjj4c.jpg" referrerpolicy="no-referrer">
 
 
@@ -24655,9 +17351,6 @@ FNS监督的表演集锦，平井坚X平手
 下载附件
 
 2018-12-4 12:38 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201812/04/124349wjxoxsystdjsqtzd.jpg" referrerpolicy="no-referrer">
@@ -24670,10 +17363,6 @@ FNS监督的表演集锦，平井坚X平手
 2018-12-4 12:43 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/04/123811qzyk3ai5vy0n8n6t.jpg" referrerpolicy="no-referrer">
 
 
@@ -24684,28 +17373,13 @@ FNS监督的表演集锦，平井坚X平手
 2018-12-4 12:38 上传
 
 
-
-
-
-
-
-
-
-
 假名的打歌服都很喜欢用这种纯色的裙子
-
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2151#       发表于 2018-12-4 18:38
-
 
 
  本帖最后由 芍药 于 2018-12-4 22:35 编辑 
@@ -24721,9 +17395,6 @@ FNS监督的表演集锦，平井坚X平手
 2018-12-4 18:27 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/04/182734q7urpnpjuu1rnir3.png" referrerpolicy="no-referrer">
 
 
@@ -24734,9 +17405,6 @@ FNS监督的表演集锦，平井坚X平手
 2018-12-4 18:27 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/04/182733hbnlevbvlzrlez5v.png" referrerpolicy="no-referrer">
 
 
@@ -24745,12 +17413,6 @@ FNS监督的表演集锦，平井坚X平手
 下载附件
 
 2018-12-4 18:27 上传
-
-
-
-
-
-
 
 
 66号藤吉夏鈴果然进汉字了！
@@ -24765,16 +17427,10 @@ FNS监督的表演集锦，平井坚X平手
 二期也会加三个人进来？！用表演作为初次登场？能hold得住么
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2152#       发表于 2018-12-4 19:07
-
 
 
  本帖最后由 芍药 于 2018-12-4 19:10 编辑 
@@ -24787,17 +17443,10 @@ FNS监督的表演集锦，平井坚X平手
 平手还是没状态，谈话环节没上，侧手翻做了，舞蹈力度不够
 
 
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2153#       发表于 2018-12-4 23:10
-
 
 
  本帖最后由 芍药 于 2018-12-4 23:19 编辑 
@@ -24814,11 +17463,6 @@ FNS监督的表演集锦，平井坚X平手
 2018-12-4 23:08 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/04/231029yr55vr9377wpwywr.jpg" referrerpolicy="no-referrer">
 
 
@@ -24829,21 +17473,10 @@ FNS监督的表演集锦，平井坚X平手
 2018-12-4 23:10 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2154#       发表于 2018-12-5 17:56
-
 
 
  本帖最后由 芍药 于 2018-12-5 17:57 编辑 
@@ -24859,12 +17492,6 @@ FNS监督的表演集锦，平井坚X平手
 2018-12-5 17:57 上传
 
 
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/05/175425tspasa1mak1avk17.png" referrerpolicy="no-referrer">
 
 
@@ -24873,9 +17500,6 @@ FNS监督的表演集锦，平井坚X平手
 下载附件
 
 2018-12-5 17:54 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201812/05/175424p9mhud2kfkdumkmk.png" referrerpolicy="no-referrer">
@@ -24888,9 +17512,6 @@ FNS监督的表演集锦，平井坚X平手
 2018-12-5 17:54 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/05/175423ydld0ssl04fo4yyt.png" referrerpolicy="no-referrer">
 
 
@@ -24901,24 +17522,13 @@ FNS监督的表演集锦，平井坚X平手
 2018-12-5 17:54 上传
 
 
-
-
-
-
 71号山崎天 完全认不出了  这九人看现场披露怎么样，先观望
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2155#       发表于 2018-12-6 18:32
-
-
 
 
 新衣服，一片白，平手的衣服有黑色点缀
@@ -24933,9 +17543,6 @@ FNS监督的表演集锦，平井坚X平手
 2018-12-6 18:31 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/06/183147a2k1g2k1kl2kkjg9.jpg" referrerpolicy="no-referrer">
 
 
@@ -24944,9 +17551,6 @@ FNS监督的表演集锦，平井坚X平手
 下载附件
 
 2018-12-6 18:31 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201812/06/183146r0jaq0eaeeh1g6va.jpg" referrerpolicy="no-referrer">
@@ -24959,9 +17563,6 @@ FNS监督的表演集锦，平井坚X平手
 2018-12-6 18:31 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/06/183146n9r73p9c72xdwu7d.jpg" referrerpolicy="no-referrer">
 
 
@@ -24972,31 +17573,15 @@ FNS监督的表演集锦，平井坚X平手
 2018-12-6 18:31 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2156#       发表于 2018-12-9 16:53
 
 
-
  本帖最后由 芍药 于 2018-12-9 18:42 编辑 
 
 FNS4846跟矮子王联欢不知道怎么安排，是次世代上还是现世代上，平手的状态上去的话不太乐观，别了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25005,14 +17590,7 @@ FNS4846跟矮子王联欢不知道怎么安排，是次世代上还是现世代�
 ##### 2157#       发表于 2018-12-9 17:25
 
 
-
-
 找个新来的顶上去，又钦定，又能卖苦情，还能不伤其他人
-
-
-
-
-
 
 
 -----
@@ -25021,14 +17599,7 @@ FNS4846跟矮子王联欢不知道怎么安排，是次世代上还是现世代�
 ##### 2158#       发表于 2018-12-9 18:44
 
 
-
-
 48站C或者矮子王站C可能性大点，前者稳当压阵后者有话题，欅坂平平静静当绿叶就好了
-
-
-
-
-
 
 
 -----
@@ -25037,17 +17608,7 @@ FNS4846跟矮子王联欢不知道怎么安排，是次世代上还是现世代�
 ##### 2159#       发表于 2018-12-9 22:47
 
 
-
-
-
-
 汉二质量很可以了，个人感觉颜值比假二还棒，年前应该会上综艺吧
-
-
-
-
-
-
 
 
 -----
@@ -25056,10 +17617,7 @@ FNS4846跟矮子王联欢不知道怎么安排，是次世代上还是现世代�
 ##### 2160#       发表于 2018-12-11 20:17
 
 
-
  本帖最后由 芍药 于 2018-12-11 20:18 编辑 
-
-
 
 
 mama
@@ -25074,10 +17632,6 @@ mama
 2018-12-11 20:07 上传
 
 
-
-
-
-
 今天的武道馆
 
 <img src="https://img.saraba1st.com/forum/201812/11/201342w43z2ryidzkloxzk.jpg" referrerpolicy="no-referrer">
@@ -25088,12 +17642,6 @@ mama
 下载附件
 
 2018-12-11 20:13 上传
-
-
-
-
-
-
 
 
 汉二假三见面会，66号夏玲站C，可以的
@@ -25108,9 +17656,6 @@ mama
 2018-12-11 20:11 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/11/201116rxawgie4ua9xeq4u.jpg" referrerpolicy="no-referrer">
 
 
@@ -25119,9 +17664,6 @@ mama
 下载附件
 
 2018-12-11 20:11 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201812/11/201542aljozgjejferjk5j.jpg" referrerpolicy="no-referrer">
@@ -25134,9 +17676,6 @@ mama
 2018-12-11 20:15 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/11/201540xphr5v0gfgrri5zo.jpg" referrerpolicy="no-referrer">
 
 
@@ -25145,9 +17684,6 @@ mama
 下载附件
 
 2018-12-11 20:15 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201812/11/201539j8uw4h5s8u5z2hqe.jpg" referrerpolicy="no-referrer">
@@ -25160,13 +17696,6 @@ mama
 2018-12-11 20:15 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/11/201635rrtv8e8g89cplt8r.jpg" referrerpolicy="no-referrer">
 
 
@@ -25175,8 +17704,6 @@ mama
 下载附件
 
 2018-12-11 20:16 上传
-
-
 
 
  <blockquote>■欅坂46　2期生プロフィール（50音順） 
@@ -25208,25 +17735,15 @@ mama
 <blockquote><blockquote>秋元康先生「平手は手を抜いてる訳じゃ決してなくて、常にその時の精一杯をやっている」ラジオで心配されている平手友梨奈のパフォーマンスに言及！『SCHOOL OF LOCK!』</blockquote></blockquote>
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2161#       发表于 2018-12-12 15:51
 
 
-
  本帖最后由 芍药 于 2018-12-12 16:06 编辑 
 
 张元英跟小樱花WC，平手不上太好了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">上的成员有睡理马林土池，不知道唱的啥歌，又搓丸子就太老套了吧
-
 
 
 假名综艺的井口酒馆越发有趣了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> <blockquote>YouTube、2018年最も注目された動画国内ランキング発表＜トップ10＞
@@ -25250,21 +17767,10 @@ mama
 2018-12-12 16:06 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2162#       发表于 2018-12-12 21:33
-
 
 
  本帖最后由 芍药 于 2018-12-12 21:44 编辑 
@@ -25274,16 +17780,10 @@ mama
 查了查张元英才14岁已经长得这么俊了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">，不是说15还是16岁不能在10点之后工作么，怎么还能出场  哦原来是录播，怪不得
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2163#       发表于 2018-12-13 23:02
-
 
 
  本帖最后由 芍药 于 2018-12-15 20:15 编辑 
@@ -25351,12 +17851,7 @@ WEN1.約束の卵</blockquote>
 2018-12-13 22:50 上传
 
 
-
-
-
-
 全是假名自己的歌了，无消息发表结束
-
 
 
 <img src="https://img.saraba1st.com/forum/201812/13/230131iez9f94tkbkyic5i.jpg" referrerpolicy="no-referrer">
@@ -25369,9 +17864,6 @@ WEN1.約束の卵</blockquote>
 2018-12-13 23:01 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/13/230131h0cr3muo333anmj3.jpg" referrerpolicy="no-referrer">
 
 
@@ -25380,9 +17872,6 @@ WEN1.約束の卵</blockquote>
 下载附件
 
 2018-12-13 23:01 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201812/15/201414exq3ln93v3p423vv.jpg" referrerpolicy="no-referrer">
@@ -25395,15 +17884,7 @@ WEN1.約束の卵</blockquote>
 2018-12-15 20:14 上传
 
 
-
-
-
-
-
 穿长裤平底鞋的欅坂最舒服了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
 
 
 平手的回放片段占了个好时段，经典回放时段的收视率最高
@@ -25418,9 +17899,6 @@ WEN1.約束の卵</blockquote>
 2018-12-13 23:01 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/13/230132wqnezz8x3nkzineu.jpg" referrerpolicy="no-referrer">
 
 
@@ -25431,22 +17909,10 @@ WEN1.約束の卵</blockquote>
 2018-12-13 23:01 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2164#       发表于 2018-12-17 19:16
-
 
 
  本帖最后由 芍药 于 2018-12-22 14:58 编辑 
@@ -25469,7 +17935,6 @@ WEN1.約束の卵</blockquote>
 米的最终日12/22，MS cdj 红白都不参与
 
 
-
 <img src="https://img.saraba1st.com/forum/201812/17/190844s1z14uyqy4yyq1y0.jpg" referrerpolicy="no-referrer">
 
 
@@ -25478,9 +17943,6 @@ WEN1.約束の卵</blockquote>
 下载附件
 
 2018-12-17 19:08 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201812/17/190844l36s525yhry1yh88.jpg" referrerpolicy="no-referrer">
@@ -25493,9 +17955,6 @@ WEN1.約束の卵</blockquote>
 2018-12-17 19:08 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/17/190844nln37h37qpb3npph.jpg" referrerpolicy="no-referrer">
 
 
@@ -25504,9 +17963,6 @@ WEN1.約束の卵</blockquote>
 下载附件
 
 2018-12-17 19:08 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201812/17/190843ttmadud88811zw01.jpg" referrerpolicy="no-referrer">
@@ -25519,9 +17975,6 @@ WEN1.約束の卵</blockquote>
 2018-12-17 19:08 上传
 
 
-
-
-
  <blockquote>変わらない”らしい”空気感の元気そうな姿がまた見られて良かったです。
 
 ザ・クールとか、もう見られないと思うと寂しいですが、
@@ -25532,7 +17985,6 @@ WEN1.約束の卵</blockquote>
 
 — 庄司宇芽香 (@UMEMOMOKA) December 16, 2018</blockquote>
 对比米跟五妹，志田的这片段是最有伤感的感觉的
-
 
 
 TAKAHIRO的不协和音讲解解说的很详细也很欢乐
@@ -25548,9 +18000,6 @@ TAKAHIRO的不协和音讲解解说的很详细也很欢乐
 2018-12-17 19:13 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/17/191353iwgddgo39idldlzo.jpg" referrerpolicy="no-referrer">
 
 
@@ -25559,9 +18008,6 @@ TAKAHIRO的不协和音讲解解说的很详细也很欢乐
 下载附件
 
 2018-12-17 19:13 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201812/17/191353su58nc0cu8itn8c2.jpg" referrerpolicy="no-referrer">
@@ -25574,9 +18020,6 @@ TAKAHIRO的不协和音讲解解说的很详细也很欢乐
 2018-12-17 19:13 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/17/191353mczl3nypiy9i639c.jpg" referrerpolicy="no-referrer">
 
 
@@ -25585,9 +18028,6 @@ TAKAHIRO的不协和音讲解解说的很详细也很欢乐
 下载附件
 
 2018-12-17 19:13 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201812/17/191352z4a2aaaaapa99jqj.jpg" referrerpolicy="no-referrer">
@@ -25600,9 +18040,6 @@ TAKAHIRO的不协和音讲解解说的很详细也很欢乐
 2018-12-17 19:13 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/17/191352m3wportk7urki7t5.jpg" referrerpolicy="no-referrer">
 
 
@@ -25613,31 +18050,13 @@ TAKAHIRO的不协和音讲解解说的很详细也很欢乐
 2018-12-17 19:13 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2165#       发表于 2018-12-21 11:48
 
 
-
-
 md心里难受极了………
-
-
-
-
-
 
 
 -----
@@ -25646,14 +18065,7 @@ md心里难受极了………
 ##### 2166#       发表于 2018-12-21 12:06
 
 
-
-
 绿团这两年来的运营操作都有些<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25664,12 +18076,10 @@ md心里难受极了………
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 2168#       发表于 2018-12-21 15:11
-
 
 
  本帖最后由 芍药 于 2018-12-25 02:12 编辑 
@@ -25689,13 +18099,9 @@ md心里难受极了………
 2018-12-25 02:12 上传
 
 
-
-
-
 应该是今年年中舞台摔下来之后新伤旧患结合的结果，之前肥秋回避平手有没有受伤只是说她做到了目前能做的一切也是这个意思吧，七单的表演只是头两次状态好之后越来越差 ，与其一直烂下去这样放平手下来是正确的选择，养到完全痊愈再回来  
 
 现在汉二来了正好可以开始求变了，素质很好人气也OK，下单如果不等平手就年初发单，还继续观察平手可能要压到年中才发八单
-
 
 
 <img src="https://img.saraba1st.com/forum/201812/21/145711rjpotlltpo6xcq4t.png" referrerpolicy="no-referrer">
@@ -25708,14 +18114,6 @@ md心里难受极了………
 2018-12-21 14:57 上传
 
 
-
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/21/150401fkyog4mjki3p7h3c.png" referrerpolicy="no-referrer">
 
 
@@ -25724,10 +18122,6 @@ md心里难受极了………
 下载附件
 
 2018-12-21 15:04 上传
-
-
-
-
 
 
 红白表演碎玻璃，平手五妹都不在的情况汉二参与小林单C？希望她能hold住展现自己，之前红白见面会只有马鸭林三人出席，应该确定了
@@ -25742,9 +18136,6 @@ md心里难受极了………
 2018-12-21 15:05 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/21/150511ta5avvhgpkoopuop.jpg" referrerpolicy="no-referrer">
 
 
@@ -25753,9 +18144,6 @@ md心里难受极了………
 下载附件
 
 2018-12-21 15:05 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201812/21/150511xs5r4kbi91ib14bu.jpg" referrerpolicy="no-referrer">
@@ -25768,18 +18156,6 @@ md心里难受极了………
 2018-12-21 15:05 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  原始恶魔  
@@ -25788,13 +18164,10 @@ md心里难受极了………
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  seedees3  
 ##### 2170#       发表于 2018-12-21 19:22
-
-
 
 
 你们觉得像谁？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
@@ -25809,18 +18182,9 @@ md心里难受极了………
 2018-12-21 19:22 上传
 
 
-
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +2
@@ -25831,19 +18195,13 @@ md心里难受极了………
 | 上古古难记录者| + 1|敢说杨超越的话打死你哟！|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2171#       发表于 2018-12-21 21:22
-
 
 
  本帖最后由 芍药 于 2018-12-23 17:28 编辑 
@@ -25859,10 +18217,6 @@ md心里难受极了………
 2018-12-21 21:07 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/21/211920l1jz7jxl1mlkjzcm.gif" referrerpolicy="no-referrer">
 
 
@@ -25871,9 +18225,6 @@ md心里难受极了………
 下载附件
 
 2018-12-21 21:19 上传
-
-
-
 
 
 https://www.bilibili.com/video/av38711915
@@ -25892,9 +18243,6 @@ https://www.bilibili.com/video/av38711915
 2018-12-21 21:03 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/23/172753cunyrnljowqryj8j.jpg" referrerpolicy="no-referrer">
 
 
@@ -25903,10 +18251,6 @@ https://www.bilibili.com/video/av38711915
 下载附件
 
 2018-12-23 17:27 上传
-
-
-
-
 
 
  <blockquote><strong>【 #FS衣装情報 】気になるあの人は何着てる？2018年12月編：FNS歌謡祭など</strong>欅坂46が楽曲に合わせて着用した衣装には、仕掛けが隠されていました。
@@ -25931,9 +18275,6 @@ https://www.bilibili.com/video/av38711915
 2018-12-21 21:10 上传
 
 
-
-
-
  <blockquote>【ウラトーク】
 
 総合テレビの副音声でお楽しみいただいている「紅白ウラトークチャンネル」。
@@ -25942,19 +18283,10 @@ https://www.bilibili.com/video/av38711915
 红白副声轨是三文治人跟直美
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2172#       发表于 2018-12-21 21:25
-
 
 
  本帖最后由 芍药 于 2018-12-21 21:28 编辑 
@@ -25971,9 +18303,6 @@ https://www.bilibili.com/video/av38711915
 2018-12-21 21:23 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/21/212304ijjoae51je1qofn3.jpg" referrerpolicy="no-referrer">
 
 
@@ -25984,21 +18313,10 @@ https://www.bilibili.com/video/av38711915
 2018-12-21 21:23 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2173#       发表于 2018-12-21 21:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42022528&amp;ptid=1340143" target="_blank">seedees3 发表于 2018-12-21 19:22</a>
@@ -26007,17 +18325,10 @@ https://www.bilibili.com/video/av38711915
 像谁？
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2174#       发表于 2018-12-22 13:57
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201812/22/131839qmc14az4111rm1gy.jpg" referrerpolicy="no-referrer">
@@ -26028,8 +18339,6 @@ https://www.bilibili.com/video/av38711915
 下载附件
 
 2018-12-22 13:18 上传
-
-
 
 
 <blockquote><strong>欅坂は大みそかの紅白歌合戦に出場するが、同社の関係者は「本人の回復を最優先させたい」と話しており、平手の欠場が濃厚になった。</strong></blockquote>
@@ -26047,10 +18356,6 @@ https://www.bilibili.com/video/av38711915
 2018-12-22 13:22 上传
 
 
-
-
-
-
 昨晚的MS效应，很好
 
 <img src="https://img.saraba1st.com/forum/201812/22/135217eny07yy8sp60k8z8.jpg" referrerpolicy="no-referrer">
@@ -26063,18 +18368,7 @@ https://www.bilibili.com/video/av38711915
 2018-12-22 13:52 上传
 
 
-
-
-
-
 露露
-
-
-
-
-
-
-
 
 
 -----
@@ -26083,16 +18377,10 @@ https://www.bilibili.com/video/av38711915
 ##### 2175#       发表于 2018-12-22 14:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42023837&amp;ptid=1340143" target="_blank">芍药 发表于 2018-12-21 21:54</a>
 
 像谁？</blockquote>
 不说<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26101,21 +18389,13 @@ https://www.bilibili.com/video/av38711915
 ##### 2176#       发表于 2018-12-22 14:19
 
 
-
-
 平手这一年来应该都是拖着病体，如果6单就休息的话该多好
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2177#       发表于 2018-12-25 01:47
-
 
 
  本帖最后由 芍药 于 2018-12-25 01:53 编辑 
@@ -26129,10 +18409,6 @@ https://www.bilibili.com/video/av38711915
 下载附件
 
 2018-12-25 01:33 上传
-
-
-
-
 
 
 五个汉二成员
@@ -26153,11 +18429,6 @@ https://www.bilibili.com/video/av38711915
 2018-12-25 01:41 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/25/014600t5scc5o265wrw5v9.gif" referrerpolicy="no-referrer">
 
 
@@ -26166,10 +18437,6 @@ https://www.bilibili.com/video/av38711915
 下载附件
 
 2018-12-25 01:46 上传
-
-
-
-
 
 
 背后的一米四九
@@ -26184,9 +18451,6 @@ https://www.bilibili.com/video/av38711915
 2018-12-25 01:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/25/014714q71f70b1a4pbza7z.jpg" referrerpolicy="no-referrer">
 
 
@@ -26197,12 +18461,7 @@ https://www.bilibili.com/video/av38711915
 2018-12-25 01:47 上传
 
 
-
-
-
-
 跟理一样剪头发之后好看多了
-
 
 
 五妹签爱回而不是索尼？
@@ -26217,22 +18476,10 @@ https://www.bilibili.com/video/av38711915
 2018-12-25 01:31 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2178#       发表于 2018-12-28 00:24
-
 
 
 <blockquote>
@@ -26247,20 +18494,10 @@ https://www.bilibili.com/video/av38711915
 2018-12-28 00:22 上传
 
 
-
-
 </blockquote>
 红白后半第八
 
  <blockquote>また、けがで活動を一部休止中の欅坂46の平手友梨奈について、渋谷氏は「体調を第一に考えて判断する。5日間あるので報告を受けながら判断する」と明言をさけた</blockquote>别发神经让平手上台啊
-
-
-
-
-
-
-
-
 
 
 -----
@@ -26269,21 +18506,13 @@ https://www.bilibili.com/video/av38711915
 ##### 2179#       发表于 2018-12-28 01:10
 
 
-
-
 利用平手受伤的情况再炒一波，我不知道运营还有没有人性
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2180#       发表于 2018-12-28 15:53
-
 
 
  本帖最后由 芍药 于 2018-12-28 21:53 编辑 
@@ -26298,12 +18527,6 @@ https://www.bilibili.com/video/av38711915
 下载附件
 
 2018-12-28 15:42 上传
-
-
-
-
-
-
 
 
 平手今天去领奖 <blockquote>28日、都内で「第31回日刊スポーツ映画大賞・石原裕次郎賞」表彰式が開催され、俳優の松坂桃李、高橋一生、欅坂46の平手友梨奈、EXILE／三代目J Soul Brothers from EXILE TRIBEの岩田剛典らが登壇した。 
@@ -26322,10 +18545,6 @@ https://www.bilibili.com/video/av38711915
 2018-12-28 15:42 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/28/155100u4pgbxcsdtxvmtmd.jpg" referrerpolicy="no-referrer">
 
 
@@ -26334,9 +18553,6 @@ https://www.bilibili.com/video/av38711915
 下载附件
 
 2018-12-28 15:51 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201812/28/155245oohdnhrndtl2rrrt.jpg" referrerpolicy="no-referrer">
@@ -26349,9 +18565,6 @@ https://www.bilibili.com/video/av38711915
 2018-12-28 15:52 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/28/215316k9hsh879mzwzairm.jpg" referrerpolicy="no-referrer">
 
 
@@ -26360,9 +18573,6 @@ https://www.bilibili.com/video/av38711915
 下载附件
 
 2018-12-28 21:53 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201812/28/215317tb5sbq1hspnox1j1.jpg" referrerpolicy="no-referrer">
@@ -26375,9 +18585,6 @@ https://www.bilibili.com/video/av38711915
 2018-12-28 21:53 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/28/215317b33y6uccdhviviyd.jpg" referrerpolicy="no-referrer">
 
 
@@ -26386,9 +18593,6 @@ https://www.bilibili.com/video/av38711915
 下载附件
 
 2018-12-28 21:53 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201812/28/155246w1cyi5qipciiaicq.jpg" referrerpolicy="no-referrer">
@@ -26401,9 +18605,6 @@ https://www.bilibili.com/video/av38711915
 2018-12-28 15:52 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/28/155246imviygmzi3zjyi77.jpg" referrerpolicy="no-referrer">
 
 
@@ -26412,10 +18613,6 @@ https://www.bilibili.com/video/av38711915
 下载附件
 
 2018-12-28 15:52 上传
-
-
-
-
 
 
 授賞式には、松坂のほか、高橋一生（助演男優賞）、平手友梨奈（新人賞）、岩田剛典（石原裕次郎新人賞）らに加え、助演女優賞に輝いた樹木希林さんの代理で孫のUTAが参加。
@@ -26434,9 +18631,6 @@ https://www.bilibili.com/video/av38711915
 下载附件
 
 2018-12-28 15:45 上传
-
-
-
 
 
 <strong>018.12.28開催「COUNTDOWN JAPAN 18/19」
@@ -26468,27 +18662,15 @@ M8.ガラスを割れ
 2018-12-28 21:53 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2181#       发表于 2018-12-29 20:57
 
 
-
 CDJ的六单舞蹈烂到一个境界，红白不来新编舞内村不参与的话就太失望了 彩排照片跟上年一样没提前公布，应该会有点意外惊喜的
 
 平手不参与，小林单C，只有汉字一期的人
-
 
 
 <img src="https://img.saraba1st.com/forum/201812/29/202123yycdp51i1zujccjp.jpg" referrerpolicy="no-referrer">
@@ -26501,10 +18683,6 @@ CDJ的六单舞蹈烂到一个境界，红白不来新编舞内村不参与的�
 2018-12-29 20:21 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/29/204831hz4fp3v4nklvkg4g.jpg" referrerpolicy="no-referrer">
 
 
@@ -26513,13 +18691,6 @@ CDJ的六单舞蹈烂到一个境界，红白不来新编舞内村不参与的�
 下载附件
 
 2018-12-29 20:48 上传
-
-
-
-
-
-
-
 
 
 参与开场的VTR
@@ -26534,10 +18705,6 @@ CDJ的六单舞蹈烂到一个境界，红白不来新编舞内村不参与的�
 2018-12-29 20:25 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/29/202501lmke3jv3isebrevb.png" referrerpolicy="no-referrer">
 
 
@@ -26548,25 +18715,10 @@ CDJ的六单舞蹈烂到一个境界，红白不来新编舞内村不参与的�
 2018-12-29 20:25 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2182#       发表于 2018-12-30 21:11
-
 
 
  本帖最后由 芍药 于 2018-12-30 21:39 编辑 
@@ -26576,17 +18728,10 @@ CDJ的六单舞蹈烂到一个境界，红白不来新编舞内村不参与的�
 美国佬有影响力有传唱度，大奖应该没意外了
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2183#       发表于 2018-12-30 23:13
-
-
 
 
 五个二期
@@ -26602,12 +18747,6 @@ CDJ的六单舞蹈烂到一个境界，红白不来新编舞内村不参与的�
 2018-12-30 23:11 上传
 
 
-
-
-
-
-
-
 红白的彩排
 
 
@@ -26621,22 +18760,10 @@ CDJ的六单舞蹈烂到一个境界，红白不来新编舞内村不参与的�
 2018-12-30 23:11 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2184#       发表于 2018-12-31 12:13
-
 
 
  本帖最后由 芍药 于 2018-12-31 12:16 编辑 
@@ -26650,10 +18777,6 @@ CDJ的六单舞蹈烂到一个境界，红白不来新编舞内村不参与的�
 下载附件
 
 2018-12-31 12:06 上传
-
-
-
-
 
 
 小林这镜头没给特写可惜了，膝转身
@@ -26674,36 +18797,19 @@ CDJ的六单舞蹈烂到一个境界，红白不来新编舞内村不参与的�
 紧张得哭了，大舞台能理解
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2185#       发表于 2018-12-31 20:44
 
 
-
-
 平安的开头，希望9012能比今年好，成员人人健康
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2186#       发表于 2019-1-1 13:44
-
 
 
  本帖最后由 芍药 于 2019-1-1 13:51 编辑 
@@ -26720,9 +18826,6 @@ CDJ的六单舞蹈烂到一个境界，红白不来新编舞内村不参与的�
 2018-12-31 22:52 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/31/225227swfiz6lhzkiilkwi.jpg" referrerpolicy="no-referrer">
 
 
@@ -26731,9 +18834,6 @@ CDJ的六单舞蹈烂到一个境界，红白不来新编舞内村不参与的�
 下载附件
 
 2018-12-31 22:52 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201812/31/225226fj1mx0p1mpwrjpwz.jpg" referrerpolicy="no-referrer">
@@ -26746,9 +18846,6 @@ CDJ的六单舞蹈烂到一个境界，红白不来新编舞内村不参与的�
 2018-12-31 22:52 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/31/225226qai6b6at51k2xtal.jpg" referrerpolicy="no-referrer">
 
 
@@ -26757,10 +18854,6 @@ CDJ的六单舞蹈烂到一个境界，红白不来新编舞内村不参与的�
 下载附件
 
 2018-12-31 22:52 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201901/01/134324u5y5bpornan5xrh0.jpg" referrerpolicy="no-referrer">
@@ -26773,9 +18866,6 @@ CDJ的六单舞蹈烂到一个境界，红白不来新编舞内村不参与的�
 2019-1-1 13:43 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201901/01/134328eqf8i58nf5ickm8c.jpg" referrerpolicy="no-referrer">
 
 
@@ -26784,10 +18874,6 @@ CDJ的六单舞蹈烂到一个境界，红白不来新编舞内村不参与的�
 下载附件
 
 2019-1-1 13:43 上传
-
-
-
-
 
 
  <blockquote><strong>佐々木美玲コメント</strong>けやき坂46の佐々木美玲です。
@@ -26821,9 +18907,6 @@ AimerさんのMusic Videoに出演させて頂けるなんて夢にも思って�
 [https://youtu.be/YMxsicN1R0M](https://youtu.be/YMxsicN1R0M) 
 
 
-
-
-
 CDTV是理站C，最后应该会让小池站一次全部一排轮换一次，个人观来说栗理林土的排名，栗子的新编舞跟MS的镜头加分太多
 
 <img src="https://img.saraba1st.com/forum/201901/01/134331hdtt0dd5fqjffltu.jpg" referrerpolicy="no-referrer">
@@ -26836,9 +18919,6 @@ CDTV是理站C，最后应该会让小池站一次全部一排轮换一次，个
 2019-1-1 13:43 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201901/01/134338nz0mu70x079umiq7.jpg" referrerpolicy="no-referrer">
 
 
@@ -26847,9 +18927,6 @@ CDTV是理站C，最后应该会让小池站一次全部一排轮换一次，个
 下载附件
 
 2019-1-1 13:43 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201901/01/134333chj8ht0vx561xpcr.jpg" referrerpolicy="no-referrer">
@@ -26862,22 +18939,10 @@ CDTV是理站C，最后应该会让小池站一次全部一排轮换一次，个
 2019-1-1 13:43 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2187#       发表于 2019-1-5 17:53
-
-
 
 
 之后走演员路线？
@@ -26892,9 +18957,6 @@ CDTV是理站C，最后应该会让小池站一次全部一排轮换一次，个
 2019-1-5 17:44 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201901/05/174413iqptqum2z26dk1kn.jpg" referrerpolicy="no-referrer">
 
 
@@ -26903,9 +18965,6 @@ CDTV是理站C，最后应该会让小池站一次全部一排轮换一次，个
 下载附件
 
 2019-1-5 17:44 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201901/05/174412y2r0i9iei5zwr9ei.jpg" referrerpolicy="no-referrer">
@@ -26918,9 +18977,6 @@ CDTV是理站C，最后应该会让小池站一次全部一排轮换一次，个
 2019-1-5 17:44 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201901/05/174413xufuufrggoz0uckf.jpg" referrerpolicy="no-referrer">
 
 
@@ -26929,9 +18985,6 @@ CDTV是理站C，最后应该会让小池站一次全部一排轮换一次，个
 下载附件
 
 2019-1-5 17:44 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201901/05/174413qvzznx7du56xb3gz.jpg" referrerpolicy="no-referrer">
@@ -26944,9 +18997,6 @@ CDTV是理站C，最后应该会让小池站一次全部一排轮换一次，个
 2019-1-5 17:44 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201901/05/174413o6nr9ngzitzlwlia.jpg" referrerpolicy="no-referrer">
 
 
@@ -26957,21 +19007,10 @@ CDTV是理站C，最后应该会让小池站一次全部一排轮换一次，个
 2019-1-5 17:44 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2188#       发表于 2019-1-8 18:40
-
 
 
 <blockquote><strong>欅坂小林由依が初ソロ写真集、水着ショットも初挑戦</strong><blockquote>欅坂46小林由依（19）の初のソロ写真集（タイトル未定）が、3月13日にKADOKAWAから発売されることが7日、分かった。昨年大みそかのNHK紅白歌合戦で、欠場した平手友梨奈（17）に代わって欅坂46のセンターを務めた注目株。欅坂46で5人目のソロ写真集となる。
@@ -26991,7 +19030,6 @@ CDTV是理站C，最后应该会让小池站一次全部一排轮换一次，个
 
 ####  芍药  
 ##### 2189#       发表于 2019-1-9 22:16
-
 
 
 <blockquote>めっちゃいい曲できた👍‼️
@@ -27017,9 +19055,6 @@ tkho
 2019-1-9 22:11 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201901/09/221122vt6z336u66jj3009.jpg" referrerpolicy="no-referrer">
 
 
@@ -27028,9 +19063,6 @@ tkho
 下载附件
 
 2019-1-9 22:11 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201901/09/221122d8kl6k5833zk3kkx.jpg" referrerpolicy="no-referrer">
@@ -27043,22 +19075,10 @@ tkho
 2019-1-9 22:11 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2190#       发表于 2019-1-14 23:40
-
-
 
 
 8单2/27 生写名额来看应该是汉字+假名+X的组成，汉二假3不参与，这个X是平手还是小葵就不好说了   假名已经从冠名番组里面吹风出出道单了，年中可能要名义上分家了
@@ -27074,10 +19094,6 @@ tkho
 2019-1-14 23:36 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201901/14/233649ryxxcccgxandqrcy.jpg" referrerpolicy="no-referrer">
 
 
@@ -27086,10 +19102,6 @@ tkho
 下载附件
 
 2019-1-14 23:36 上传
-
-
-
-
 
 
  <blockquote>2月27日(水)に欅坂46の8thシングルが発売決定致しました!
@@ -27146,7 +19158,6 @@ tkho
 ※8thシングル発売記念個別握手会の第1次応募受付期間は2019年1月24日(木)14:00 ～1月25日(金)14:00 を予定しております。ご応募の詳細は別途ご案内致します。</blockquote>全握集中安排在一起，有人要毕业的信号？
 
 
-
 <img src="https://img.saraba1st.com/forum/201901/14/233557sl00rpwrw4ri049o.jpg" referrerpolicy="no-referrer">
 
 
@@ -27157,12 +19168,7 @@ tkho
 2019-1-14 23:35 上传
 
 
-
-
-
-
 共和国累计12W的销量
-
 
 
 akbshow     tkho   
@@ -27177,9 +19183,6 @@ akbshow     tkho   
 2019-1-14 23:38 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201901/14/233802x8mg3pvbgac2pfba.jpg" referrerpolicy="no-referrer">
 
 
@@ -27188,9 +19191,6 @@ akbshow     tkho   
 下载附件
 
 2019-1-14 23:38 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201901/14/233802g5xcht5t6d78nu0e.jpg" referrerpolicy="no-referrer">
@@ -27203,9 +19203,6 @@ akbshow     tkho   
 2019-1-14 23:38 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201901/14/234011ftw83zip3d3irzzw.jpg" referrerpolicy="no-referrer">
 
 
@@ -27214,10 +19211,6 @@ akbshow     tkho   
 下载附件
 
 2019-1-14 23:40 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201901/14/234011uw5h4hyh3wf4h454.jpg" referrerpolicy="no-referrer">
@@ -27230,29 +19223,15 @@ akbshow     tkho   
 2019-1-14 23:40 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2191#       发表于 2019-1-16 23:02
 
 
-
  本帖最后由 芍药 于 2019-1-16 23:54 编辑 
 
 日本奥斯卡新人赏    颁奖礼有电视转播  恭喜小平，跟其他奖项不一样不需要评出最后一名，新人赏入围即获奖<blockquote>「第42回日本アカデミー賞」の優秀賞発表会見が15日に都内で行われ、正賞15部門の各優秀賞と新人俳優賞が発表された。
-
-
-
 
 
 新人俳優賞：平手友梨奈（2018年9月撮影）
@@ -27272,9 +19251,6 @@ akbshow     tkho   
 2019-1-16 22:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201901/16/224748m7a00znnlnhyclag.jpg" referrerpolicy="no-referrer">
 
 
@@ -27285,9 +19261,6 @@ akbshow     tkho   
 2019-1-16 22:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201901/16/225849ofndil7w8sde8zi6.jpg" referrerpolicy="no-referrer">
 
 
@@ -27296,11 +19269,6 @@ akbshow     tkho   
 下载附件
 
 2019-1-16 22:58 上传
-
-
-
-
-
 
 
 去年新人海报
@@ -27315,9 +19283,6 @@ akbshow     tkho   
 2019-1-16 23:48 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201901/16/234819od8lzaqrdgrwaqwb.jpg" referrerpolicy="no-referrer">
 
 
@@ -27328,21 +19293,7 @@ akbshow     tkho   
 2019-1-16 23:48 上传
 
 
-
-
-
-
 到时候出席颁奖礼，能看到动的她就很开心了
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -27351,14 +19302,7 @@ akbshow     tkho   
 ##### 2192#       发表于 2019-1-19 23:45
 
 
-
-
 黑羊……如果讲厄介的话希望平手能发泄这几年的郁闷……勇敢的站出来！参加个全握吧！
-
-
-
-
-
 
 
 -----
@@ -27367,22 +19311,15 @@ akbshow     tkho   
 ##### 2193#       发表于 2019-1-20 08:25
 
 
-
  本帖最后由 芍药 于 2019-1-20 08:27 编辑 
 
 按照春单的风格要不平手c要不栗子c，她参与这单就肯定只能放c没别的位置可选的，只是重拍mv不知道什么原因。平手最近说比起电视她更喜欢广播因为不用面对镜头，即使这单继续放c估计也是只表演不发言不握手全程隐形吧
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2194#       发表于 2019-1-20 12:39
-
 
 
  本帖最后由 芍药 于 2019-1-22 01:31 编辑 
@@ -27398,9 +19335,6 @@ akbshow     tkho   
 2019-1-20 12:39 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201901/20/123922anpafyxw2uxf1tfz.jpg" referrerpolicy="no-referrer">
 
 
@@ -27409,9 +19343,6 @@ akbshow     tkho   
 下载附件
 
 2019-1-20 12:39 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201901/22/013130qozxfxuxo4xzxm4q.jpg" referrerpolicy="no-referrer">
@@ -27424,9 +19355,6 @@ akbshow     tkho   
 2019-1-22 01:31 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201901/20/123922gtit8888yi6cziyi.jpg" referrerpolicy="no-referrer">
 
 
@@ -27435,9 +19363,6 @@ akbshow     tkho   
 下载附件
 
 2019-1-20 12:39 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201901/20/123924niqorrnopnml8jny.jpg" referrerpolicy="no-referrer">
@@ -27450,9 +19375,6 @@ akbshow     tkho   
 2019-1-20 12:39 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201901/20/123923tdsn3e1aia61yaj1.jpg" referrerpolicy="no-referrer">
 
 
@@ -27463,37 +19385,19 @@ akbshow     tkho   
 2019-1-20 12:39 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2195#       发表于 2019-1-21 08:50
 
 
-
-
 跟着以往的惯例今晚平手电台girls lock就有黑羊听了，期待春单的风格
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2196#       发表于 2019-1-21 23:23
-
 
 
  本帖最后由 芍药 于 2019-1-21 23:27 编辑 
@@ -27503,25 +19407,13 @@ akbshow     tkho   
 跟避雷针回森林比较像，高潮部分肯定是其他人围着平手然后她掐自己脖子这种类型了
 
 
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2197#       发表于 2019-1-21 23:28
 
 
-
-
 S1官方客户端无法回复真服了。。。反正买了买了买了
-
-
-
-
-
 
 
 -----
@@ -27530,16 +19422,10 @@ S1官方客户端无法回复真服了。。。反正买了买了买了
 ##### 2198#       发表于 2019-1-22 00:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42330344&amp;ptid=1340143" target="_blank">芍药 发表于 2019-1-20 09:25</a>
 
 按照春单的风格要不平手c要不栗子c，她参与这单就肯定只能放c没别的位置可选的，只是重拍mv不知道什么原因 ...</blockquote>
 重拍有个可能性，之前推上有个很少转的，说拍摄现场送医院，有可能是去年底就拍MV了但腰伤发作中断
-
-
-
-
-
 
 
 -----
@@ -27548,24 +19434,16 @@ S1官方客户端无法回复真服了。。。反正买了买了买了
 ##### 2199#       发表于 2019-1-24 14:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42349196&amp;ptid=1340143" target="_blank">dxxtiger 发表于 2019-1-22 00:18</a>
 
 重拍有个可能性，之前推上有个很少转的，说拍摄现场送医院，有可能是去年底就拍MV了但腰伤发作中断 ...</blockquote>
 反正官方肯定不会明说的，就跟4单台湾行一样成黑历史了
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2200#       发表于 2019-1-24 14:31
-
-
 
 
 假名只开12部，为之后正式分家做准备还是？这单纯看握手比上单少很多，销量应该会降到85-90左右
@@ -27580,11 +19458,6 @@ S1官方客户端无法回复真服了。。。反正买了买了买了
 2019-1-24 14:23 上传
 
 
-
-
-
-
-
 睡觉
 
 <img src="https://img.saraba1st.com/forum/201901/24/142807m0wzwv2hhuu8hdh9.jpg" referrerpolicy="no-referrer">
@@ -27597,9 +19470,6 @@ S1官方客户端无法回复真服了。。。反正买了买了买了
 2019-1-24 14:28 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201901/24/142806ff6junge5ruuwoed.jpg" referrerpolicy="no-referrer">
 
 
@@ -27608,9 +19478,6 @@ S1官方客户端无法回复真服了。。。反正买了买了买了
 下载附件
 
 2019-1-24 14:28 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201901/24/142806hohiowjyeahgkyy3.jpg" referrerpolicy="no-referrer">
@@ -27623,17 +19490,10 @@ S1官方客户端无法回复真服了。。。反正买了买了买了
 2019-1-24 14:28 上传
 
 
-
-
-
-
-
  <blockquote>▼キャスト▼
 
 
 主演＝吉田照美
-
-
 
 
 所属事務所　アワーソングス クリエイティブ公式プロフィール 
@@ -27643,8 +19503,6 @@ S1官方客户端无法回复真服了。。。反正买了买了买了
 
 
 吉田照美オリジナルＨＰ
-
-
 
 
 熊谷真実
@@ -27663,8 +19521,6 @@ S1官方客户端无法回复真服了。。。反正买了买了买了
 
 
 ほか、大物ぞくぞく交渉中！
-
-
 
 
 ▼概要▼
@@ -27690,21 +19546,10 @@ DVD発売=2019年冬(予定)
 2019-1-24 14:29 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 2201#       发表于 2019-1-25 02:08
-
 
 
  本帖最后由 dxxtiger 于 2019-1-25 03:35 编辑 
@@ -27719,17 +19564,10 @@ DVD発売=2019年冬(予定)
 另外，单算安排了的部数的话，6单假名总部数是假一的10x24+影山19+假二9x12，一共367部，7单假一10x24+假二9x18，一共402部，8单假名一共是19x12，共228部。但6单的累计销量是高于7单截止目前的（O榜7单还在卡99w），假名6单比7单少了35部，考虑汉字6单比7单多了志田的24部和小葵的8部，6单还是比7单少了3部的。那只有两个可能：其一，销量的比重在全握券的份额很大，个握的部数变化对销量的影响有限；其二，汉字成员个握每一部的盘数多于假名，所以汉字少了32部不能用假名多了的35部来补。但不管怎么说，8单的最终销量可能要取决于初回盘了（这也可能是特典盘BD化的原因？）。
 
 
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2202#       发表于 2019-1-25 18:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42381943&amp;ptid=1340143" target="_blank">dxxtiger 发表于 2019-1-25 02:08</a>
@@ -27738,16 +19576,10 @@ DVD発売=2019年冬(予定)
 补充了汉二之后汉字的人数已经差不多了即使再有人毕业也能抗住，年中9单开始在综艺CW露面接住假名离开的空缺，汉二成员足够优秀即战力也可以   假名之后可能真要走huwawa的女孩路线，温饱没问题爆发有难度市场上太多这种风格的了
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2203#       发表于 2019-1-28 00:06
-
 
 
  本帖最后由 芍药 于 2019-1-28 00:07 编辑 
@@ -27756,27 +19588,15 @@ DVD発売=2019年冬(予定)
 <img src="https://wx1.sinaimg.cn/mw1024/006ze8dqgy1fzllalb4oej31400min1i.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  qwe33551  
 ##### 2204#       发表于 2019-1-28 00:34
 
 
-
-
 还是你绿团让人看不懂，8单-察觉时已是握手女奴吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 不过八单真好听
-
-
-
-
-
 
 
 -----
@@ -27785,14 +19605,7 @@ DVD発売=2019年冬(予定)
 ##### 2205#       发表于 2019-1-28 01:00
 
 
-
-
 都8单了…站位算个p…不过纯感兴趣想知道规律…
-
-
-
-
-
 
 
 -----
@@ -27801,14 +19614,7 @@ DVD発売=2019年冬(予定)
 ##### 2206#       发表于 2019-1-28 01:09
 
 
-
-
 欅的站位就没屁用，除了C以外，还有平手不能上场时的代C
-
-
-
-
-
 
 
 -----
@@ -27817,24 +19623,16 @@ DVD発売=2019年冬(予定)
 ##### 2207#       发表于 2019-1-28 01:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42409288&amp;ptid=1340143" target="_blank">芍药 发表于 2019-1-28 01:09</a>
 
 欅的站位就没屁用，除了C以外，还有平手不能上场时的代C</blockquote>
 欅的代C也不是按官推顺序来选的
 
 
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 2208#       发表于 2019-1-28 04:17
-
-
 
 
 汉字的规律都8单了还没看明白吗？看编舞要求呗。石森和佐藤都是入团前就有比较扎实基础的，小林和小池也是入团后练上来的，都算是现在团内舞蹈靠前的人。
@@ -27846,17 +19644,10 @@ DVD発売=2019年冬(予定)
 从这两点来说，这次的编舞应该会有几个位置是光靠卖力是不够完成效果的（本身歌词寓意也不像是整齐和卖力来表现的），所以用了一个非常不符合偶像团逻辑的站位（你团也没怎么符合过）
 
 
-
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 2209#       发表于 2019-1-28 05:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42408949&amp;ptid=1340143" target="_blank">芍药 发表于 2019-1-28 00:06</a>
@@ -27864,16 +19655,10 @@ DVD発売=2019年冬(予定)
 755不是17人吗<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2210#       发表于 2019-1-28 17:19
-
 
 
  本帖最后由 芍药 于 2019-1-28 17:41 编辑 
@@ -27885,16 +19670,10 @@ DVD発売=2019年冬(予定)
 反正跟别团N巨头的情况不同，这两年受制于平手的身体，团队活动舞台上她是唯一的焦点，舞台外隐形查无此人   基本不可能回到2016年她外务谈话,冠番镜头,表演都有存在感的情况了
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2211#       发表于 2019-1-28 17:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42409782&amp;ptid=1340143" target="_blank">圈量子 发表于 2019-1-28 05:37</a>
@@ -27903,31 +19682,19 @@ DVD発売=2019年冬(予定)
 瞎几把算的，算错了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2212#       发表于 2019-1-28 17:39
 
 
-
 <img src="https://wpb.shueisha.co.jp/gravure/2019/images/keyakizaka46.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2213#       发表于 2019-1-30 21:47
-
 
 
 <blockquote>✔️欅坂46の振付天才振付師TAKAHIROが登場✨
@@ -27950,8 +19717,6 @@ DVD発売=2019年冬(予定)
 2019-1-30 21:44 上传
 
 
-
-
  <blockquote>ＪＡＰＡＮ　ＣＯＵＮＴＤＯＷＮ▽欅無双☆AKBタイ乃木坂台湾ライブ♪体育復活!
 
 
@@ -27968,8 +19733,6 @@ DVD発売=2019年冬(予定)
 2/3前应该就会放黑羊MV出来了
 
 
-
-
 <img src="https://img.saraba1st.com/forum/201901/30/214603y5vrz8qzp5dp38f6.jpg" referrerpolicy="no-referrer">
 
 
@@ -27978,10 +19741,6 @@ DVD発売=2019年冬(予定)
 下载附件
 
 2019-1-30 21:46 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201901/30/214615byjzox0qp838ss07.jpg" referrerpolicy="no-referrer">
@@ -27994,10 +19753,6 @@ DVD発売=2019年冬(予定)
 2019-1-30 21:46 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201901/30/214655jmnfd1pmijzyel4i.jpg" referrerpolicy="no-referrer">
 
 
@@ -28008,22 +19763,10 @@ DVD発売=2019年冬(予定)
 2019-1-30 21:46 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2214#       发表于 2019-1-31 13:57
-
 
 
  本帖最后由 芍药 于 2019-1-31 14:02 编辑 
@@ -28039,19 +19782,10 @@ DVD発売=2019年冬(予定)
 2019-1-31 13:57 上传
 
 
-
-
-
  <blockquote><strong>【ビルボード】米津玄師「Lemon」が5週連続で総合首位　シングル1位のAqours「僕らの走ってきた道は…」を抑えて(1/30修正)</strong>米津玄師「Lemon」が、ダウンロード、動画再生、カラオケの3指標で1位となり3冠獲得、5週連続で“JAPAN HOT 100”総合首位を獲得した。
 （中略）
 Twitterで1位を奪取したのは、欅坂46「黒い羊」。同曲がラジオでオンエア解禁となり（ラジオ指標では100位圏外）、一気にツイート数を伸ばし、総合33位に初登場した。
 引用元:[billboardJapan公式サイト](http://www.billboard-japan.com/d_news/detail/72085)</blockquote>
-
-
-
-
-
-
 
 
 -----
@@ -28060,14 +19794,7 @@ Twitterで1位を奪取したのは、欅坂46「黒い羊」。同曲がラジ�
 ##### 2215#       发表于 2019-2-1 07:45
 
 
-
-
 6点多起床一看微博几个字幕组全是mv消息，日本人不睡你们也不睡吗…
-
-
-
-
-
 
 
 -----
@@ -28076,9 +19803,7 @@ Twitterで1位を奪取したのは、欅坂46「黒い羊」。同曲がラジ�
 ##### 2216#       发表于 2019-2-1 11:54
 
 
-
  本帖最后由 芍药 于 2019-2-1 12:07 编辑 
-
 
 
 一镜到底，拥抱推攘欺凌，舞蹈占比小很多镜头都给剧情了，情感表达到位了     压抑感比避雷针还重，还以为结局会有拯救戏码的，结果真的没有
@@ -28101,33 +19826,13 @@ PS：是不是有成员穿上欅狗不良少女那集鸭鸭的机车服了，有
 2019-2-1 11:53 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2217#       发表于 2019-2-1 12:01
 
 
-
-
 居然看哭了……看哭了看哭了……
-
-
-
-
-
 
 
 -----
@@ -28136,11 +19841,7 @@ PS：是不是有成员穿上欅狗不良少女那集鸭鸭的机车服了，有
 ##### 2218#       发表于 2019-2-1 12:48
 
 
-
-
  ｢黒い羊｣メンバー評 
-
-
 
 
 小池美波 
@@ -28221,27 +19922,13 @@ PS：是不是有成员穿上欅狗不良少女那集鸭鸭的机车服了，有
 もっともっと音楽が好きになれそうな曲。さらに互いが好きになれそうな曲｣ 
 
 
-
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2219#       发表于 2019-2-1 16:12
 
 
-
-
 突然想到貌似没见过小平像mv里那样哭过
-
-
-
-
-
 
 
 -----
@@ -28250,14 +19937,7 @@ PS：是不是有成员穿上欅狗不良少女那集鸭鸭的机车服了，有
 ##### 2220#       发表于 2019-2-1 19:58
 
 
-
-
 没吧，团队风格就不是哭的那条路
-
-
-
-
-
 
 
 -----
@@ -28266,16 +19946,10 @@ PS：是不是有成员穿上欅狗不良少女那集鸭鸭的机车服了，有
 ##### 2221#       发表于 2019-2-1 23:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42459604&amp;ptid=1340143" target="_blank">芍药 发表于 2019-2-1 19:58</a>
 
 没吧，团队风格就不是哭的那条路</blockquote>
 我是说就算私下里也没怎么见平手哭过
-
-
-
-
-
 
 
 -----
@@ -28284,24 +19958,16 @@ PS：是不是有成员穿上欅狗不良少女那集鸭鸭的机车服了，有
 ##### 2222#       发表于 2019-2-1 23:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42461224&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2019-2-1 23:07</a>
 
 我是说就算私下里也没怎么见平手哭过</blockquote>
 她16年之后后台曝光就低，加上本身情绪调整蛮快的   而且为了维持绿团的形象可能她脆弱的片段直接不放出来了
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2223#       发表于 2019-2-2 23:20
-
-
 
 
 平手穿的衣服尾不同，全员闭眼只有她睁开眼睛
@@ -28316,9 +19982,6 @@ PS：是不是有成员穿上欅狗不良少女那集鸭鸭的机车服了，有
 2019-2-2 23:10 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/02/231453oobdbwa99hrlhmbz.jpg" referrerpolicy="no-referrer">
 
 
@@ -28327,9 +19990,6 @@ PS：是不是有成员穿上欅狗不良少女那集鸭鸭的机车服了，有
 下载附件
 
 2019-2-2 23:14 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201902/02/231454ekvhjhze5h51eese.jpg" referrerpolicy="no-referrer">
@@ -28342,9 +20002,6 @@ PS：是不是有成员穿上欅狗不良少女那集鸭鸭的机车服了，有
 2019-2-2 23:14 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/02/231454dc5ld2vlva5yvv20.jpg" referrerpolicy="no-referrer">
 
 
@@ -28353,9 +20010,6 @@ PS：是不是有成员穿上欅狗不良少女那集鸭鸭的机车服了，有
 下载附件
 
 2019-2-2 23:14 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201902/02/231454s83pz1pu7yxtsoot.jpg" referrerpolicy="no-referrer">
@@ -28368,9 +20022,6 @@ PS：是不是有成员穿上欅狗不良少女那集鸭鸭的机车服了，有
 2019-2-2 23:14 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/02/231453rsf1zgbqpfbfreiz.jpg" referrerpolicy="no-referrer">
 
 
@@ -28379,9 +20030,6 @@ PS：是不是有成员穿上欅狗不良少女那集鸭鸭的机车服了，有
 下载附件
 
 2019-2-2 23:14 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201902/02/231453tb9c1s8z8ghn8jgc.jpg" referrerpolicy="no-referrer">
@@ -28394,9 +20042,6 @@ PS：是不是有成员穿上欅狗不良少女那集鸭鸭的机车服了，有
 2019-2-2 23:14 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/02/231055h3310m1brvnvmv0g.jpg" referrerpolicy="no-referrer">
 
 
@@ -28407,30 +20052,13 @@ PS：是不是有成员穿上欅狗不良少女那集鸭鸭的机车服了，有
 2019-2-2 23:10 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  TSST  
 ##### 2224#       发表于 2019-2-3 02:51
 
 
-
-
 这种调度不可能一镜到底的，就是不知道中间剪了几次。
-
-
-
-
-
 
 
 -----
@@ -28439,14 +20067,7 @@ PS：是不是有成员穿上欅狗不良少女那集鸭鸭的机车服了，有
 ##### 2225#       发表于 2019-2-3 14:29
 
 
-
-
 A面太棒了！21959FA7-8813-443D-96C6-03956568D091/L0/001
-
-
-
-
-
 
 
 -----
@@ -28455,24 +20076,16 @@ A面太棒了！21959FA7-8813-443D-96C6-03956568D091/L0/001
 ##### 2226#       发表于 2019-2-4 00:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42471029&amp;ptid=1340143" target="_blank">TSST 发表于 2019-2-3 02:51</a>
 
 这种调度不可能一镜到底的，就是不知道中间剪了几次。</blockquote>
 小池割腕之后屏风转接位，平手上楼梯之前的短暂空镜头，最可能是这两个位置了
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2227#       发表于 2019-2-4 00:57
-
-
 
 
 risa写真终于来了
@@ -28487,9 +20100,6 @@ risa写真终于来了
 2019-2-4 00:50 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/04/005054qnnz2qup004m4tmk.jpg" referrerpolicy="no-referrer">
 
 
@@ -28498,12 +20108,6 @@ risa写真终于来了
 下载附件
 
 2019-2-4 00:50 上传
-
-
-
-
-
-
 
 
 八单的CM宣传语「僕の周りの世界は 絶望にあふれている」
@@ -28518,25 +20122,13 @@ risa写真终于来了
 2019-2-4 00:52 上传
 
 
-
-
-
-
-
 假名三这周登场，汉字二下周登场，总算见人影了
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2228#       发表于 2019-2-4 17:01
-
-
 
 
 每年一度的坂道AKB，如果C还是给欅的话应该轮到假名小坂或者miho了，估计今年也懒得骂了吧
@@ -28551,22 +20143,10 @@ risa写真终于来了
 2019-2-4 17:00 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  rzrbtk  
 ##### 2229#       发表于 2019-2-5 18:27
-
-
 
 
 突然看到risa出写真<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">有没有懂得多的大佬给我这个出坑久矣的伪粉解一下惑惹........
@@ -28578,13 +20158,9 @@ risa写真终于来了
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -28594,19 +20170,13 @@ risa写真终于来了
 | 上古古难记录者| + 1|已经熟了，有很多骚鸡粉。|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2230#       发表于 2019-2-6 00:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42496667&amp;ptid=1340143" target="_blank">rzrbtk 发表于 2019-2-5 18:27</a>
@@ -28625,17 +20195,10 @@ risa写真终于来了
 4 特典看赠品吧，现在应该还没出
 
 
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2231#       发表于 2019-2-6 14:02
-
 
 
  本帖最后由 芍药 于 2019-2-6 14:12 编辑 
@@ -28674,24 +20237,15 @@ risa写真终于来了
 2019-2-6 13:57 上传
 
 
-
-
 </blockquote></blockquote>
 这个镜头
 <img src="https://i.imgur.com/Lj59VNn.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2232#       发表于 2019-2-8 01:49
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201902/08/014935jzn8w8o8w9to4i7x.jpg" referrerpolicy="no-referrer">
@@ -28704,9 +20258,6 @@ risa写真终于来了
 2019-2-8 01:49 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/08/014935co2tjtpii28c28ua.jpg" referrerpolicy="no-referrer">
 
 
@@ -28715,9 +20266,6 @@ risa写真终于来了
 下载附件
 
 2019-2-8 01:49 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201902/08/014934qssyxy7aja9osaoj.jpg" referrerpolicy="no-referrer">
@@ -28730,9 +20278,6 @@ risa写真终于来了
 2019-2-8 01:49 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/08/014934te3zlkc7b1gklppb.jpg" referrerpolicy="no-referrer">
 
 
@@ -28741,9 +20286,6 @@ risa写真终于来了
 下载附件
 
 2019-2-8 01:49 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201902/08/014934utw99dk36owg3doh.jpg" referrerpolicy="no-referrer">
@@ -28756,9 +20298,6 @@ risa写真终于来了
 2019-2-8 01:49 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/08/014933xqkrcx5i2x3lbh2m.jpg" referrerpolicy="no-referrer">
 
 
@@ -28767,9 +20306,6 @@ risa写真终于来了
 下载附件
 
 2019-2-8 01:49 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201902/08/014933fv1jeevleo1vq16j.jpg" referrerpolicy="no-referrer">
@@ -28782,9 +20318,6 @@ risa写真终于来了
 2019-2-8 01:49 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/08/014933bpeq0h4nfpynvve8.jpg" referrerpolicy="no-referrer">
 
 
@@ -28793,9 +20326,6 @@ risa写真终于来了
 下载附件
 
 2019-2-8 01:49 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201902/08/014932neie0mrzv0sdvc33.jpg" referrerpolicy="no-referrer">
@@ -28808,9 +20338,6 @@ risa写真终于来了
 2019-2-8 01:49 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/08/014932ijb9ib2jl2if9o2v.jpg" referrerpolicy="no-referrer">
 
 
@@ -28819,9 +20346,6 @@ risa写真终于来了
 下载附件
 
 2019-2-8 01:49 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201902/08/014932ei1zyaxe6eiez6wa.jpg" referrerpolicy="no-referrer">
@@ -28834,9 +20358,6 @@ risa写真终于来了
 2019-2-8 01:49 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/08/014931g8tm1vnx8ny2xhgd.jpg" referrerpolicy="no-referrer">
 
 
@@ -28845,9 +20366,6 @@ risa写真终于来了
 下载附件
 
 2019-2-8 01:49 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201902/08/014931zopprvrg0p9g7vpg.jpg" referrerpolicy="no-referrer">
@@ -28860,9 +20378,6 @@ risa写真终于来了
 2019-2-8 01:49 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/08/014931l9rpgorp3godrx0x.jpg" referrerpolicy="no-referrer">
 
 
@@ -28871,9 +20386,6 @@ risa写真终于来了
 下载附件
 
 2019-2-8 01:49 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201902/08/014930i7czllzcwwdwovck.jpg" referrerpolicy="no-referrer">
@@ -28886,9 +20398,6 @@ risa写真终于来了
 2019-2-8 01:49 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/08/014930yssrjs2js09lhkuj.jpg" referrerpolicy="no-referrer">
 
 
@@ -28897,9 +20406,6 @@ risa写真终于来了
 下载附件
 
 2019-2-8 01:49 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201902/08/014930po1se9udm3euqo9k.jpg" referrerpolicy="no-referrer">
@@ -28912,32 +20418,15 @@ risa写真终于来了
 2019-2-8 01:49 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2233#       发表于 2019-2-9 02:02
 
 
-
-
 世界末日的MV，金毛平
 <img src="http://i2.wp.com/keyakizaka46ch.biz/wp-content/uploads/2019/02/dotup.org1768245-1.jpg" referrerpolicy="no-referrer">
 <img src="http://toriizaka46.jp/wp-content/uploads/2019/02/Dy4D7vlU0AAWKFr.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28946,18 +20435,13 @@ risa写真终于来了
 ##### 2234#       发表于 2019-2-9 02:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42521377&amp;ptid=1340143" target="_blank">芍药 发表于 2019-2-8 01:49</a></blockquote>
 8单公式照摄影师有毒吧.... 所有人脸都大了一圈，是用望远镜头拍的？
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -28967,19 +20451,13 @@ risa写真终于来了
 | 上古古难记录者| + 1|全   员   饼   脸 ！(草生|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  rzrbtk  
 ##### 2235#       发表于 2019-2-9 09:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42499764&amp;ptid=1340143" target="_blank">芍药 发表于 2019-02-06 00:07:20</a>
@@ -28991,13 +20469,9 @@ risa写真终于来了
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -29007,19 +20481,13 @@ risa写真终于来了
 | 上古古难记录者| + 1|运营在熬鹰|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2236#       发表于 2019-2-10 01:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42533195&amp;ptid=1340143" target="_blank">rzrbtk 发表于 2019-2-9 09:01</a>
@@ -29030,16 +20498,10 @@ risa写真终于来了
 初期还能一致向外，现在已经三年多了有毕业的有后辈，资源不平均就容易起争执，正常的
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2237#       发表于 2019-2-10 12:52
-
 
 
  本帖最后由 芍药 于 2019-2-10 12:55 编辑 
@@ -29049,26 +20511,13 @@ risa写真终于来了
 MV舞蹈适合用探戈或者爵士舞
 
 
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2238#       发表于 2019-2-10 13:08
 
 
-
-
 那嗓子高音有些受不了，当时就关了，等好点的版本吧，倒是非常好奇这次MV怎么拍？？贴吧说想看小平扭臀。。。谁不想啊！
-
-
-
-
-
 
 
 -----
@@ -29077,21 +20526,13 @@ MV舞蹈适合用探戈或者爵士舞
 ##### 2239#       发表于 2019-2-10 19:27
 
 
-
-
 明天下午假名紧急sr啊…会不会是分家的事儿
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2240#       发表于 2019-2-11 00:26
-
 
 
  本帖最后由 芍药 于 2019-2-12 01:53 编辑 
@@ -29108,9 +20549,6 @@ MV舞蹈适合用探戈或者爵士舞
 2019-2-11 00:17 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/12/015346j3aypmnn4ef4y1eq.jpg" referrerpolicy="no-referrer">
 
 
@@ -29119,11 +20557,6 @@ MV舞蹈适合用探戈或者爵士舞
 下载附件
 
 2019-2-12 01:53 上传
-
-
-
-
-
 
 
 汉二
@@ -29138,9 +20571,6 @@ MV舞蹈适合用探戈或者爵士舞
 2019-2-11 00:26 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/11/002613rx17pj3phpi37iao.jpg" referrerpolicy="no-referrer">
 
 
@@ -29149,9 +20579,6 @@ MV舞蹈适合用探戈或者爵士舞
 下载附件
 
 2019-2-11 00:26 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201902/11/002613nf0zk76r7k7zkpi0.jpg" referrerpolicy="no-referrer">
@@ -29164,21 +20591,10 @@ MV舞蹈适合用探戈或者爵士舞
 2019-2-11 00:26 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2241#       发表于 2019-2-11 00:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42547723&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2019-2-10 19:27</a>
@@ -29187,32 +20603,19 @@ MV舞蹈适合用探戈或者爵士舞
 时间来看应该是，不过在八单卖之后再宣布会好点吧
 
 
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2242#       发表于 2019-2-11 18:45
 
 
-
-
 这波分的够痛快，一点渣都不留！期待9单techi可以卸下c的重担
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2243#       发表于 2019-2-12 01:48
-
 
 
  本帖最后由 芍药 于 2019-2-12 02:10 编辑 
@@ -29228,9 +20631,6 @@ MV舞蹈适合用探戈或者爵士舞
 2019-2-12 02:06 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/12/020600e42wg628j42gjbwf.jpg" referrerpolicy="no-referrer">
 
 
@@ -29239,9 +20639,6 @@ MV舞蹈适合用探戈或者爵士舞
 下载附件
 
 2019-2-12 02:06 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201902/12/020600hd94z44l0ff8grz9.jpg" referrerpolicy="no-referrer">
@@ -29254,9 +20651,6 @@ MV舞蹈适合用探戈或者爵士舞
 2019-2-12 02:06 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/12/021022qiyew4zgauusci1n.jpg" referrerpolicy="no-referrer">
 
 
@@ -29265,10 +20659,6 @@ MV舞蹈适合用探戈或者爵士舞
 下载附件
 
 2019-2-12 02:10 上传
-
-
-
-
 
 
 分家改名出道一气呵成，不过这么快出道单会不会太急了，八单还要握手呢，扎堆出单对两个团都不好吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
@@ -29283,28 +20673,16 @@ MV舞蹈适合用探戈或者爵士舞
 2019-2-12 01:54 上传
 
 
-
-
-
-
 标题叠在紫上面，表示跟绿是同层的了，不知道出道单还是不是fuwafuwa的风格
 
 
-
 现在蓝团21人，绿团27人（算上暂休的影山小葵），蓝倒是可以继续全员参与，绿下单有可能要变阵了
-
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2244#       发表于 2019-2-13 02:59
-
 
 
  本帖最后由 芍药 于 2019-2-13 03:00 编辑 
@@ -29321,12 +20699,6 @@ MV舞蹈适合用探戈或者爵士舞
 2019-2-13 02:22 上传
 
 
-
-
-
-
-
-
 终于磨到百万，八单预计85-90，分流后九单跟十单预计70-75W，反正不可能百万也不用强开握手部数冲实体销量了
 
 <img src="https://img.saraba1st.com/forum/201902/13/022255yvycm88ozvcuymej.png" referrerpolicy="no-referrer">
@@ -29339,21 +20711,10 @@ MV舞蹈适合用探戈或者爵士舞
 2019-2-13 02:22 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  lekbrandy  
 ##### 2245#       发表于 2019-2-14 06:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42574162&amp;ptid=1340143" target="_blank">芍药 发表于 2019-2-13 02:59</a>
@@ -29363,16 +20724,10 @@ MV舞蹈适合用探戈或者爵士舞
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2246#       发表于 2019-2-14 15:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42587568&amp;ptid=1340143" target="_blank">lekbrandy 发表于 2019-2-14 06:16</a>
@@ -29384,17 +20739,10 @@ MV舞蹈适合用探戈或者爵士舞
 鸭也行，下年如果还有这企划的话该上汉二了，鸭鸭不一定有机会<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2247#       发表于 2019-2-14 15:59
-
-
 
 
 三抽，这单能全体完售，是最后的辉煌了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
@@ -29409,15 +20757,6 @@ MV舞蹈适合用探戈或者爵士舞
 2019-2-14 15:48 上传
 
 
-
-
-
-
-
-
-
-
-
 日向一单全开24部，3期独苗跟影山不参与，握手类比沉默累计销量应该在30-35左右，这几个月成员握手太密集了点
 
 <img src="https://img.saraba1st.com/forum/201902/14/155152a2d2vtvtkk5flntx.png" referrerpolicy="no-referrer">
@@ -29428,11 +20767,6 @@ MV舞蹈适合用探戈或者爵士舞
 下载附件
 
 2019-2-14 15:51 上传
-
-
-
-
-
 
 
 日向四人签模特，应该是压了很久才同时放出来，对比八单毫无宣传的水花，今年原绿团运营应该是把精力放在新团这边准备开个好头
@@ -29447,12 +20781,6 @@ MV舞蹈适合用探戈或者爵士舞
 2019-2-14 15:55 上传
 
 
-
-
-
-
-
-
 tgc名单
 
 <img src="https://img.saraba1st.com/forum/201902/14/155419g2wcej1vtrt9nfp2.jpg" referrerpolicy="no-referrer">
@@ -29465,22 +20793,10 @@ tgc名单
 2019-2-14 15:54 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2248#       发表于 2019-2-14 21:11
-
 
 
 <blockquote><strong>2019.2.14放送「今泉佑唯初舞台出演記念スペシャルイベント」
@@ -29495,27 +20811,15 @@ tgc名单
 今泉「本当はね、愛佳ちゃんも4人で行くつもりだったんですけど･･･4人が合わなくて3人だったから。今度は4人で行こうって話してるんだ～ふふっ」</blockquote>一个月前跟平手米桑吃饭，志田抽不开身没去
 
 
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2249#       发表于 2019-2-15 14:13
 
 
-
  本帖最后由 芍药 于 2019-2-15 14:18 编辑 
 
 这nobody的MV拍得不好，导演是坂道AKB的東市篤憲，大特写+静态镜头，韩团风格太重了，舞蹈也不吸引，烂
-
-
-
-
-
 
 
 -----
@@ -29524,22 +20828,13 @@ tgc名单
 ##### 2250#       发表于 2019-2-15 16:44
 
 
-
-
 可平手真的很不错～
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2251#       发表于 2019-2-15 20:48
-
-
 
 
 小林写真封面
@@ -29555,9 +20850,6 @@ tgc名单
 2019-2-15 20:45 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/15/204553h211eefok1i7v3kg.jpg" referrerpolicy="no-referrer">
 
 
@@ -29568,9 +20860,6 @@ tgc名单
 2019-2-15 20:45 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/15/204556rngwmgmaw44nmq37.jpg" referrerpolicy="no-referrer">
 
 
@@ -29579,11 +20868,6 @@ tgc名单
 下载附件
 
 2019-2-15 20:45 上传
-
-
-
-
-
 
 
 平手肯定会上了，就看舞蹈是什么类型     不知道蓝团发单的时候能不能上一次MS
@@ -29598,9 +20882,6 @@ tgc名单
 2019-2-15 20:45 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/15/204603ci8nnl9zik8nin95.jpg" referrerpolicy="no-referrer">
 
 
@@ -29611,25 +20892,10 @@ tgc名单
 2019-2-15 20:46 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2252#       发表于 2019-2-15 23:51
-
 
 
  本帖最后由 芍药 于 2019-2-16 00:02 编辑 
@@ -29639,16 +20905,10 @@ tgc名单
 我个人不喜欢这个导演的拍法，给平手大量单人镜头要不就像碎玻璃那样多是舞蹈，要不就是像黑羊那样引导剧情，nobody这种只是凹造型就真的很无谓了
 
 
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2253#       发表于 2019-2-16 00:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42611070&amp;ptid=1340143" target="_blank">芍药 发表于 2019-2-15 23:51</a>
@@ -29657,22 +20917,15 @@ tgc名单
 敷衍的很明显，而且平手部分很多是后期身体好的时候补的，这次YY摆烂的态度真是骂死活该
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2254#       发表于 2019-2-18 14:28
 
 
-
  本帖最后由 芍药 于 2019-2-18 14:31 编辑 
 
 13岁天天攻击性有点太强，不是很喜欢        两个颜值派梨推，短发不笑夏玲，舞蹈组的五元钱还有一米四九都不错
-
 
 
 八单衣服，有点像之前NGT的那套的感觉？
@@ -29687,11 +20940,6 @@ tgc名单
 2019-2-18 14:22 上传
 
 
-
-
-
-
-
 蓝绿也有握手CM了
 
 <img src="https://img.saraba1st.com/forum/201902/18/142318n1ob0zzqc1kqbpoo.jpg" referrerpolicy="no-referrer">
@@ -29704,9 +20952,6 @@ tgc名单
 2019-2-18 14:23 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/18/142352mjkj17kxnykvosj8.jpg" referrerpolicy="no-referrer">
 
 
@@ -29715,11 +20960,6 @@ tgc名单
 下载附件
 
 2019-2-18 14:23 上传
-
-
-
-
-
 
 
 走演员路线的五妹
@@ -29734,9 +20974,6 @@ tgc名单
 2019-2-18 14:24 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/18/142458du55v7t0u7gojijl.jpg" referrerpolicy="no-referrer">
 
 
@@ -29745,9 +20982,6 @@ tgc名单
 下载附件
 
 2019-2-18 14:24 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201902/18/142458mh5pijz054p1wp8i.jpg" referrerpolicy="no-referrer">
@@ -29760,22 +20994,10 @@ tgc名单
 2019-2-18 14:24 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2255#       发表于 2019-2-19 03:51
-
-
 
 
 汉二
@@ -29788,11 +21010,6 @@ tgc名单
 下载附件
 
 2019-2-19 03:50 上传
-
-
-
-
-
 
 
 这单制服，里面这件像校服
@@ -29809,9 +21026,6 @@ tgc名单
 2019-2-19 03:50 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/19/035017hwxwnqezguwbwqu7.jpg" referrerpolicy="no-referrer">
 
 
@@ -29820,13 +21034,6 @@ tgc名单
 下载附件
 
 2019-2-19 03:50 上传
-
-
-
-
-
-
-
 
 
 棒
@@ -29841,9 +21048,6 @@ tgc名单
 2019-2-19 03:50 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/19/035018ohpem5df674mp4l7.jpg" referrerpolicy="no-referrer">
 
 
@@ -29854,36 +21058,18 @@ tgc名单
 2019-2-19 03:50 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  seedees3  
 ##### 2256#       发表于 2019-2-19 03:55
 
 
-
-
 pstd发作中：就没人发觉山崎天的公式照长得像吴京吗，欅写有些镜头也略像
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -29893,12 +21079,7 @@ pstd发作中：就没人发觉山崎天的公式照长得像吴京吗，欅写�
 | 上古古难记录者| + 1|为什么要黑天哥！|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -29907,21 +21088,13 @@ pstd发作中：就没人发觉山崎天的公式照长得像吴京吗，欅写�
 ##### 2257#       发表于 2019-2-19 11:43
 
 
-
-
 techi这衣服看不懂…可站姿我喜欢非常！
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2258#       发表于 2019-2-19 21:44
-
 
 
  本帖最后由 芍药 于 2019-2-19 21:47 编辑 
@@ -29938,9 +21111,6 @@ techi这衣服看不懂…可站姿我喜欢非常！
 2019-2-19 21:36 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/19/213701id3s3qgch8wsqqqq.png" referrerpolicy="no-referrer">
 
 
@@ -29951,14 +21121,9 @@ techi这衣服看不懂…可站姿我喜欢非常！
 2019-2-19 21:37 上传
 
 
-
-
-
-
 宣传片
 [https://www.fashionsnap.com/arti ... movie-hirateyurina/](https://www.fashionsnap.com/article/2019-02-19/anrealage-19ss-movie-hirateyurina/)
 [http://www.anrealage.com/news/detail/100004/1405](http://www.anrealage.com/news/detail/100004/1405)
-
 
 
 anrealage
@@ -29975,22 +21140,12 @@ anrealage
 2019-2-19 21:43 上传
 
 
-
-
-
 <img src="http://cdn.anrealage.com/file/news/1245/700.jpg" referrerpolicy="no-referrer">
-
-
-
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -30000,20 +21155,13 @@ anrealage
 | 上古古难记录者| + 1|带动这个牌子的货都开始切了······.|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2259#       发表于 2019-2-20 15:25
-
-
 
 
 沉默50W配信认证，完成任务了    二单不指望，七单不知道能不能磨到10W
@@ -30028,30 +21176,13 @@ anrealage
 2019-2-20 15:21 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2260#       发表于 2019-2-22 20:04
 
 
-
-
 这ms的摄像真是够水的，另外小平明显没好透啊，完全版肯定不是这个样子，不如等cdtv那版本看看
-
-
-
-
-
 
 
 -----
@@ -30060,21 +21191,13 @@ anrealage
 ##### 2261#       发表于 2019-2-24 23:58
 
 
-
-
 CDTV镜头中规中矩没什么亮点，MS有亮眼的也有差不多撞镜头的时候    而且这种小细节太多的舞蹈电视转播还好，现场live真的看不出什么东西的
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2262#       发表于 2019-2-24 23:59
-
 
 
 <blockquote>今日は青山スパイラルホールにてトークショーDay1です。当日券、先着順にて少しあるようです。17時からは『#ゼロは最強』出版記念サイン&amp;握手会も開催です。[https://t.co/S33Xcm3hg0](https://t.co/S33Xcm3hg0)
@@ -30086,25 +21209,13 @@ CDTV镜头中规中矩没什么亮点，MS有亮眼的也有差不多撞镜头�
 老师的新书，可以去握老师的手了...
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2263#       发表于 2019-2-25 00:00
 
 
-
-
 另外祈愿活动是最无聊最没必要的了，本来成员身体就容易出问题，还要折磨她们，有病
-
-
-
-
-
 
 
 -----
@@ -30113,15 +21224,9 @@ CDTV镜头中规中矩没什么亮点，MS有亮眼的也有差不多撞镜头�
 ##### 2264#       发表于 2019-2-25 00:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42711472&amp;ptid=1340143" target="_blank">芍药 发表于 2019-2-25 00:00</a>
  另外祈愿活动是最无聊最没必要的了，本来成员身体就容易出问题，还要折磨她们，有病 ...</blockquote>
 日本人吃这套吧，想想以前乃团，每次都吃苦，绿团想来到8单才算第一次搞这种“传统”祈愿吧？
-
-
-
-
-
 
 
 -----
@@ -30130,14 +21235,7 @@ CDTV镜头中规中矩没什么亮点，MS有亮眼的也有差不多撞镜头�
 ##### 2265#       发表于 2019-2-25 00:32
 
 
-
-
 想来乃团妹子真不容易上山钻地飞天入海，踩火淋瀑布，蹦极加浮潜
-
-
-
-
-
 
 
 -----
@@ -30146,21 +21244,13 @@ CDTV镜头中规中矩没什么亮点，MS有亮眼的也有差不多撞镜头�
 ##### 2266#       发表于 2019-2-25 01:11
 
 
-
-
 黒い羊太棒了，看泪目了，喜欢小林虹花和小平的互动细节。
-
-
-
-
-
 
 
 -----
 
 ####  dxxtiger  
 ##### 2267#       发表于 2019-2-25 04:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42711472&amp;ptid=1340143" target="_blank">芍药 发表于 2019-2-25 01:00</a>
@@ -30172,13 +21262,9 @@ CDTV镜头中规中矩没什么亮点，MS有亮眼的也有差不多撞镜头�
 而且还有个非常恶心的副作用就是有些zqsg的爹妈粉会开始“我家xxx都被折腾那么惨了为什么运营不多给点资源多点机会”的心理。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -30188,12 +21274,7 @@ CDTV镜头中规中矩没什么亮点，MS有亮眼的也有差不多撞镜头�
 | 上古古难记录者| + 1|假二滝行送武道馆了|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -30202,25 +21283,16 @@ CDTV镜头中规中矩没什么亮点，MS有亮眼的也有差不多撞镜头�
 ##### 2268#       发表于 2019-2-25 07:13
 
 
-
-
 是喽，就该当个工具人，运营不给资源不给机会，就该一边乖乖呆着。亲妈粉抱怨一下就是恶心
 
 
-
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2269#       发表于 2019-2-26 22:55
-
 
 
 <blockquote><strong>指原莉乃ＡＫＢ最後のシングルＭＶは“ジワる”演出</strong>HKT48指原莉乃（26）がセンターを務めるAKB48の55枚目シングル「ジワるDAYS」（3月13日発売）のミュージックビデオ（MV）やジャケット写真が公開された。
@@ -30261,7 +21333,6 @@ ann上也不会有什么大料，睡醒再看吧
 tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞老师
 
 
-
 <img src="https://img.saraba1st.com/forum/201902/26/225432i8gqt8nmtowfv4nq.jpg" referrerpolicy="no-referrer">
 
 
@@ -30270,9 +21341,6 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 下载附件
 
 2019-2-26 22:54 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201902/26/225431llbnj3ohl833jbzv.jpg" referrerpolicy="no-referrer">
@@ -30285,9 +21353,6 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 2019-2-26 22:54 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/26/225431hbuecqffbp3u2eb0.jpg" referrerpolicy="no-referrer">
 
 
@@ -30296,9 +21361,6 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 下载附件
 
 2019-2-26 22:54 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201902/26/225430h8nuznxrxuqaxn89.jpg" referrerpolicy="no-referrer">
@@ -30311,9 +21373,6 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 2019-2-26 22:54 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/26/225430q5y5zrphp1zy5qhl.jpg" referrerpolicy="no-referrer">
 
 
@@ -30322,9 +21381,6 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 下载附件
 
 2019-2-26 22:54 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201902/26/225430qt6nivnmmo1hxmjy.jpg" referrerpolicy="no-referrer">
@@ -30337,9 +21393,6 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 2019-2-26 22:54 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/26/225429o3r043a203ryyrzn.jpg" referrerpolicy="no-referrer">
 
 
@@ -30350,30 +21403,13 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 2019-2-26 22:54 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2270#       发表于 2019-2-27 14:32
 
 
-
-
 平手两次sr都是因为销量，运营到底怎么想的
-
-
-
-
-
 
 
 -----
@@ -30382,14 +21418,7 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 ##### 2271#       发表于 2019-2-28 01:20
 
 
-
-
 真nb，3周年2700人的场子，会不会卖不光<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30398,21 +21427,13 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 ##### 2272#       发表于 2019-2-28 01:56
 
 
-
-
 真的服气，今野是生怕更多人看到这团吗？MV发售日才放到油管上我当作是因为YouTube Music会员可以缓存和后台先放了就变成提前上架，也不问为什么不提前放短版宣传了，这三周年的操作真的服气。
-
-
-
-
-
 
 
 -----
 
 ####  dxxtiger  
 ##### 2273#       发表于 2019-2-28 01:59
-
 
 
  本帖最后由 dxxtiger 于 2019-2-28 03:15 编辑 
@@ -30425,33 +21446,18 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 顺便我说的是运营恶心，、亲妈粉“我家小孩都这么惨了为什么还blabla”之后，想通过花钱的方式让运营重视，这和绑架小孩让家长付赎金也没什么区别了。这种用各种方法折腾人，刺激粉丝不理智消费，即时想明白了不想被运营这么钓鱼也会因为不想放弃小孩最后还出钱的效果还不恶心吗。
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2274#       发表于 2019-2-28 02:09
 
 
-
-
 简单说就是一切紧着新团，反正旧团的饭也不会走，而且怒虐一把说不定忠诚度更高了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算无遗策啊这群sb～
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -30461,19 +21467,13 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 | 上古古难记录者| + 1|虐就虐全团 一个都跑不了|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2275#       发表于 2019-3-1 15:37
-
 
 
  本帖最后由 芍药 于 2019-3-1 18:32 编辑 
@@ -30489,13 +21489,7 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 2019-3-1 15:57 上传
 
 
-
-
-
-
 自家运营不宣传，想要靠别人宣传吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
 
 
 坂道akb比美月C更意外的是这歌有够敷衍的，MV场景也廉价特效bilingbiling就完事了    金毛栗
@@ -30511,10 +21505,6 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 2019-3-1 18:32 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/01/150012w6jtut33g5zssgiz.jpg" referrerpolicy="no-referrer">
 
 
@@ -30523,9 +21513,6 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 下载附件
 
 2019-3-1 15:00 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/01/150012p46a4242x9az1lz2.jpg" referrerpolicy="no-referrer">
@@ -30538,9 +21525,6 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 2019-3-1 15:00 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/01/150011kf8s8eeyhbpmhpeu.jpg" referrerpolicy="no-referrer">
 
 
@@ -30549,9 +21533,6 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 下载附件
 
 2019-3-1 15:00 上传
-
-
-
 
 
  <blockquote>【オリコン速報】 
@@ -30572,9 +21553,6 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 实体低10%，配信比上单好
 
 
-
-
-
 砂糖
 
 <img src="https://img.saraba1st.com/forum/201903/01/151612m5ykolfybull65fl.jpg" referrerpolicy="no-referrer">
@@ -30587,9 +21565,6 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 2019-3-1 15:16 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/01/151612qqp75no11vzl7rxr.jpg" referrerpolicy="no-referrer">
 
 
@@ -30600,9 +21575,6 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 2019-3-1 15:16 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/01/151611cy1vpbj8fzzu9bak.jpg" referrerpolicy="no-referrer">
 
 
@@ -30611,12 +21583,6 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 下载附件
 
 2019-3-1 15:16 上传
-
-
-
-
-
-
 
 
 今晚的颁奖礼
@@ -30631,9 +21597,6 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 2019-3-1 15:18 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/01/151841gcilyxek342gl2e0.jpg" referrerpolicy="no-referrer">
 
 
@@ -30642,12 +21605,6 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 下载附件
 
 2019-3-1 15:18 上传
-
-
-
-
-
-
 
 
 第三年到这企业表演，沉默，黑羊 <blockquote>平手友梨奈さん。欅坂46。デビュー前から応援してます。てち。ストライプインターナショナルのカンファレンスに登場。サイレントマジョリティ。黒い羊。欅坂46はアイドルグループを超えてアーティストグループに。現代アートを観ているような素晴らしいパフォーマンスでした！#欅坂46#平手友梨奈 pic.twitter.com/Bahf1dUEhG
@@ -30664,9 +21621,6 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 2019-3-1 15:26 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/01/152603al1g34rzqk4kq44r.jpg" referrerpolicy="no-referrer">
 
 
@@ -30675,9 +21629,6 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 下载附件
 
 2019-3-1 15:26 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/01/152603ev7223bg6ujchjb0.jpg" referrerpolicy="no-referrer">
@@ -30690,40 +21641,19 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 2019-3-1 15:26 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  瓦拉几亚之夜  
 ##### 2276#       发表于 2019-3-1 21:47
 
 
-
-
-
 日区女团MV播放数TOP30（截至2018.12.31）
-
-
-
-
-
 
 
 -----
 
 ####  lekbrandy  
 ##### 2277#       发表于 2019-3-2 10:56
-
 
 
  本帖最后由 lekbrandy 于 2019-3-2 11:02 编辑 
@@ -30738,23 +21668,13 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 但是u管的数据真的有那么重要，在意的人自然会去官网看，不在意的随便看看的现在也能看到。少的其实只有所谓的播放回数而已
 
 
-
-
-
-
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2278#       发表于 2019-3-2 15:17
-
 
 
 <blockquote>2019.3.1開催 第42回「日本アカデミー賞」新人俳優賞 受賞スピーチ
@@ -30814,9 +21734,6 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 2019-3-2 15:16 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/151654npatz8awupwitaia.jpg" referrerpolicy="no-referrer">
 
 
@@ -30825,9 +21742,6 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 下载附件
 
 2019-3-2 15:16 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/02/151652lsz30a1vvflyfbsa.jpg" referrerpolicy="no-referrer">
@@ -30840,9 +21754,6 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 2019-3-2 15:16 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/151651cl9lyw434e943593.jpg" referrerpolicy="no-referrer">
 
 
@@ -30851,9 +21762,6 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 下载附件
 
 2019-3-2 15:16 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/02/151658vgcm7624sx4q24s7.jpg" referrerpolicy="no-referrer">
@@ -30866,9 +21774,6 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 2019-3-2 15:16 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/151659kira34ia49z543z4.jpg" referrerpolicy="no-referrer">
 
 
@@ -30879,22 +21784,10 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 2019-3-2 15:16 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2279#       发表于 2019-3-2 22:18
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/02/221311f9p1ipuqu7tetio7.jpg" referrerpolicy="no-referrer">
@@ -30907,11 +21800,6 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 2019-3-2 22:13 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/221311tqhqbqhhbqbkqhxh.png" referrerpolicy="no-referrer">
 
 
@@ -30922,10 +21810,6 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 2019-3-2 22:13 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/221310g8467gkv3an4671m.png" referrerpolicy="no-referrer">
 
 
@@ -30934,12 +21818,6 @@ tkho应该兼顾不了两团，不知道日向会不会也专门配一个编舞�
 下载附件
 
 2019-3-2 22:13 上传
-
-
-
-
-
-
 
 
 MV花絮
@@ -30954,9 +21832,6 @@ MV花絮
 2019-3-2 22:18 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/221802d8fg6v737ofyd8go.jpg" referrerpolicy="no-referrer">
 
 
@@ -30965,9 +21840,6 @@ MV花絮
 下载附件
 
 2019-3-2 22:18 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/02/221802idugqry58qbelqr5.jpg" referrerpolicy="no-referrer">
@@ -30980,9 +21852,6 @@ MV花絮
 2019-3-2 22:18 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/221802lbbici3jcqambefm.jpg" referrerpolicy="no-referrer">
 
 
@@ -30991,9 +21860,6 @@ MV花絮
 下载附件
 
 2019-3-2 22:18 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/02/221801jj4rl564uo75jcqj.jpg" referrerpolicy="no-referrer">
@@ -31006,9 +21872,6 @@ MV花絮
 2019-3-2 22:18 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/221801prukcbtct5bturtc.jpg" referrerpolicy="no-referrer">
 
 
@@ -31017,9 +21880,6 @@ MV花絮
 下载附件
 
 2019-3-2 22:18 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/02/221801wlouye3yh3vo3d75.jpg" referrerpolicy="no-referrer">
@@ -31032,9 +21892,6 @@ MV花絮
 2019-3-2 22:18 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/221800pe8xk6ll9ovkwzey.jpg" referrerpolicy="no-referrer">
 
 
@@ -31043,9 +21900,6 @@ MV花絮
 下载附件
 
 2019-3-2 22:18 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/02/221800tnmn7m23n55zzz2j.jpg" referrerpolicy="no-referrer">
@@ -31058,9 +21912,6 @@ MV花絮
 2019-3-2 22:18 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/221800er5kg4160r0xh5oe.jpg" referrerpolicy="no-referrer">
 
 
@@ -31069,9 +21920,6 @@ MV花絮
 下载附件
 
 2019-3-2 22:18 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/02/221759vz5oeeu5577o50me.jpg" referrerpolicy="no-referrer">
@@ -31084,9 +21932,6 @@ MV花絮
 2019-3-2 22:17 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/221759qmjc3fnszuulcuic.jpg" referrerpolicy="no-referrer">
 
 
@@ -31095,9 +21940,6 @@ MV花絮
 下载附件
 
 2019-3-2 22:17 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/02/221758n32m3atg2widjpe2.jpg" referrerpolicy="no-referrer">
@@ -31110,9 +21952,6 @@ MV花絮
 2019-3-2 22:17 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/221758ejmv5mbjnnds90mu.jpg" referrerpolicy="no-referrer">
 
 
@@ -31121,9 +21960,6 @@ MV花絮
 下载附件
 
 2019-3-2 22:17 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/02/221758kyexx495io76c5v5.jpg" referrerpolicy="no-referrer">
@@ -31136,9 +21972,6 @@ MV花絮
 2019-3-2 22:17 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/221758uymcaeagddldedwh.jpg" referrerpolicy="no-referrer">
 
 
@@ -31147,9 +21980,6 @@ MV花絮
 下载附件
 
 2019-3-2 22:17 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/02/221757kdn3rdn7dxq7ddrv.jpg" referrerpolicy="no-referrer">
@@ -31162,9 +21992,6 @@ MV花絮
 2019-3-2 22:17 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/221757uukid9ud16d6d9m6.jpg" referrerpolicy="no-referrer">
 
 
@@ -31173,9 +22000,6 @@ MV花絮
 下载附件
 
 2019-3-2 22:17 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/02/221757kqz6q9zgo6vsce6v.jpg" referrerpolicy="no-referrer">
@@ -31188,9 +22012,6 @@ MV花絮
 2019-3-2 22:17 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/221756g6m4m04lp6xz7md5.jpg" referrerpolicy="no-referrer">
 
 
@@ -31199,9 +22020,6 @@ MV花絮
 下载附件
 
 2019-3-2 22:17 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/02/221756adxxe7zygeeytx5c.jpg" referrerpolicy="no-referrer">
@@ -31214,9 +22032,6 @@ MV花絮
 2019-3-2 22:17 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/221756ebqmzu70uqhhfmb2.jpg" referrerpolicy="no-referrer">
 
 
@@ -31225,9 +22040,6 @@ MV花絮
 下载附件
 
 2019-3-2 22:17 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/02/221755kkw7k9334qkkoz33.jpg" referrerpolicy="no-referrer">
@@ -31240,9 +22052,6 @@ MV花絮
 2019-3-2 22:17 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/221755xjzu1t1i8qojvzyj.jpg" referrerpolicy="no-referrer">
 
 
@@ -31251,9 +22060,6 @@ MV花絮
 下载附件
 
 2019-3-2 22:17 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/02/221755hay8b6pwqybamngq.jpg" referrerpolicy="no-referrer">
@@ -31266,9 +22072,6 @@ MV花絮
 2019-3-2 22:17 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/221755by0ibnz749r1945b.jpg" referrerpolicy="no-referrer">
 
 
@@ -31277,9 +22080,6 @@ MV花絮
 下载附件
 
 2019-3-2 22:17 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/02/221754ecc3evx36pvzxeb7.jpg" referrerpolicy="no-referrer">
@@ -31292,9 +22092,6 @@ MV花絮
 2019-3-2 22:17 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/221754g85y8cyz4bf8cxc7.jpg" referrerpolicy="no-referrer">
 
 
@@ -31303,9 +22100,6 @@ MV花絮
 下载附件
 
 2019-3-2 22:17 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/02/221754r03umzf44af8lmg0.jpg" referrerpolicy="no-referrer">
@@ -31318,9 +22112,6 @@ MV花絮
 2019-3-2 22:17 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/221753zjihhh2lhls4zuth.jpg" referrerpolicy="no-referrer">
 
 
@@ -31329,9 +22120,6 @@ MV花絮
 下载附件
 
 2019-3-2 22:17 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/02/221753oz5gyqi3ish3mmxg.jpg" referrerpolicy="no-referrer">
@@ -31344,9 +22132,6 @@ MV花絮
 2019-3-2 22:17 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/221752g3eml6l6aeqm2r26.jpg" referrerpolicy="no-referrer">
 
 
@@ -31355,9 +22140,6 @@ MV花絮
 下载附件
 
 2019-3-2 22:17 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/02/221752k6pit1b3nmbi6mmp.jpg" referrerpolicy="no-referrer">
@@ -31370,9 +22152,6 @@ MV花絮
 2019-3-2 22:17 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/221752aqt63344tqbtqthq.jpg" referrerpolicy="no-referrer">
 
 
@@ -31381,9 +22160,6 @@ MV花絮
 下载附件
 
 2019-3-2 22:17 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/02/221751hltipbpjjjjbotwj.jpg" referrerpolicy="no-referrer">
@@ -31396,9 +22172,6 @@ MV花絮
 2019-3-2 22:17 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/221751avwqfa7y3luckved.jpg" referrerpolicy="no-referrer">
 
 
@@ -31407,9 +22180,6 @@ MV花絮
 下载附件
 
 2019-3-2 22:17 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/02/221751xkukdwtz5uoo2d5v.jpg" referrerpolicy="no-referrer">
@@ -31422,9 +22192,6 @@ MV花絮
 2019-3-2 22:17 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/221750rqyrye6cq25eee88.jpg" referrerpolicy="no-referrer">
 
 
@@ -31433,9 +22200,6 @@ MV花絮
 下载附件
 
 2019-3-2 22:17 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/02/221750hxffwvsmmhkvamsz.jpg" referrerpolicy="no-referrer">
@@ -31448,9 +22212,6 @@ MV花絮
 2019-3-2 22:17 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/221750zkrr47o0srlv7lxx.jpg" referrerpolicy="no-referrer">
 
 
@@ -31459,9 +22220,6 @@ MV花絮
 下载附件
 
 2019-3-2 22:17 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/02/221749rt1yrnuyvsdu1ksv.jpg" referrerpolicy="no-referrer">
@@ -31474,9 +22232,6 @@ MV花絮
 2019-3-2 22:17 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/221749desv1l15o85vlfvn.jpg" referrerpolicy="no-referrer">
 
 
@@ -31485,9 +22240,6 @@ MV花絮
 下载附件
 
 2019-3-2 22:17 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/02/221749f89qayyd4bjg99y9.jpg" referrerpolicy="no-referrer">
@@ -31500,9 +22252,6 @@ MV花絮
 2019-3-2 22:17 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/221749f7axj7wj8rjw8jas.jpg" referrerpolicy="no-referrer">
 
 
@@ -31511,9 +22260,6 @@ MV花絮
 下载附件
 
 2019-3-2 22:17 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/02/221748g8ytc9cppy885ycp.jpg" referrerpolicy="no-referrer">
@@ -31526,9 +22272,6 @@ MV花絮
 2019-3-2 22:17 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/221748qzqyqjwlw37byst3.jpg" referrerpolicy="no-referrer">
 
 
@@ -31539,19 +22282,8 @@ MV花絮
 2019-3-2 22:17 上传
 
 
-
-
-
-
-
-
-
-
-
 6671d20735fae6cd2bb2114701b30f2442a70f68.jpg
 (43.65 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -31560,31 +22292,13 @@ MV花絮
 2019-3-2 22:17 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/02/221753y6wgo3t3eqjz3foq.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  dxxtiger  
 ##### 2280#       发表于 2019-3-3 05:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42772564&amp;ptid=1340143" target="_blank">lekbrandy 发表于 2019-3-2 11:56</a>
@@ -31609,17 +22323,10 @@ MV花絮
 最后，三周年这个场地未必是找不到大场。水团（Aqours）的fan meeting tour也是东京在武藏野那个羽毛球场，然后大阪在那个音乐厅，去年也去过富士急，可能背后有什么地域振兴计划和赞助之类的影响因素在。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2281#       发表于 2019-3-4 23:01
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/04/230040c62v2po26vto6paw.jpg" referrerpolicy="no-referrer">
@@ -31632,9 +22339,6 @@ MV花絮
 2019-3-4 23:00 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/04/230041knkwjcss3vm7pkxf.jpg" referrerpolicy="no-referrer">
 
 
@@ -31643,9 +22347,6 @@ MV花絮
 下载附件
 
 2019-3-4 23:00 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/04/230041pke2r222px22vx8a.jpg" referrerpolicy="no-referrer">
@@ -31658,9 +22359,6 @@ MV花絮
 2019-3-4 23:00 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/04/230041essxx87j8mxz0sjs.jpg" referrerpolicy="no-referrer">
 
 
@@ -31669,9 +22367,6 @@ MV花絮
 下载附件
 
 2019-3-4 23:00 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/04/230040sqt0dxr415fwoyxx.jpg" referrerpolicy="no-referrer">
@@ -31684,26 +22379,13 @@ MV花絮
 2019-3-4 23:00 上传
 
 
-
-
-
-
 青春氣息，主打不過不失
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2282#       发表于 2019-3-5 22:22
-
-
-
-
 
 
 小林虹花
@@ -31718,9 +22400,6 @@ MV花絮
 2019-3-5 22:19 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/05/221947rag2zhbg32vtncrj.jpg" referrerpolicy="no-referrer">
 
 
@@ -31729,12 +22408,6 @@ MV花絮
 下载附件
 
 2019-3-5 22:19 上传
-
-
-
-
-
-
 
 
 录播的黑羊，还是录播镜头完美
@@ -31749,30 +22422,13 @@ MV花絮
 2019-3-5 22:19 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  自由的lu  
 ##### 2283#       发表于 2019-3-7 21:09
 
 
-
-
 长滨睡毕业发表
-
-
-
-
-
 
 
 -----
@@ -31781,18 +22437,12 @@ MV花絮
 ##### 2284#       发表于 2019-3-7 21:27
 
 
-
-
 不是很懂这个操作。。她为什么要毕业？
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -31802,12 +22452,7 @@ MV花絮
 | 上古古难记录者| + 1|断开魂结（指欅与晌|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -31816,14 +22461,7 @@ MV花絮
 ##### 2285#       发表于 2019-3-7 21:59
 
 
-
-
 不退NERU，但觉得这时候不能再少人了，我想知道到底为什么。。。运营在搞什么。。。
-
-
-
-
-
 
 
 -----
@@ -31832,24 +22470,15 @@ MV花絮
 ##### 2286#       发表于 2019-3-7 22:22
 
 
-
-
 神TM……
 
 前两天刚看了个预测睡有可能会毕业的视频
-
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2287#       发表于 2019-3-7 22:26
-
 
 
  本帖最后由 芍药 于 2019-3-7 22:41 编辑 
@@ -31864,18 +22493,10 @@ MV花絮
 汉二参加全握 ，平手参与mini live
 
 
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2288#       发表于 2019-3-7 22:29
-
 
 
  本帖最后由 芍药 于 2019-3-8 00:52 编辑 
@@ -31893,19 +22514,9 @@ MV花絮
 2019-3-7 22:28 上传
 
 
-
-
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -31915,20 +22526,13 @@ MV花絮
 | 上古古难记录者| + 1|寄望于那个名字里有天的熊孩子吧.|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  燃夜郎君  
 ##### 2289#       发表于 2019-3-7 22:36
-
-
 
 
 想问一下为什么我每次进来帖子都倒序的，我想看最新的讨论每次都要下拉半天。
@@ -31940,32 +22544,19 @@ MV花絮
 虽然分析肯定满天飞，但是睡觉毕业的征兆在于，很明显很长一段时间她村内的资源和待遇都没匹配她的人气了。
 
 
-
-
-
-
-
 -----
 
 ####  seedees3  
 ##### 2290#       发表于 2019-3-7 22:36
 
 
-
-
 睡睡去年才坂道akb的c，今年就毕业可能还要退圈，肥秋被假酒灌肠了吗
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2291#       发表于 2019-3-7 22:44
-
 
 
  本帖最后由 芍药 于 2019-3-7 23:03 编辑 
@@ -31979,16 +22570,10 @@ MV花絮
 应该不是资源的问题，这单是站三排了但欅的站位一直不怎么算数，solo跟带队团队CM给了村外综艺跟短剧也持续的接          要不就是运营的锅要不就是她有想做的事，谁知道呢
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 2292#       发表于 2019-3-7 22:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42832111&amp;ptid=1340143" target="_blank">芍药 发表于 2019-3-7 22:44</a>
@@ -31997,16 +22582,10 @@ MV花絮
 倒不是说资源不够就是毕业的原因，我认为这是快毕业的表现，不然怎么可能排第三排去的。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2293#       发表于 2019-3-7 23:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42832144&amp;ptid=1340143" target="_blank">燃夜郎君 发表于 2019-3-7 22:47</a>
@@ -32015,25 +22594,13 @@ MV花絮
 也有可能，慢慢的退到后面然后发布消息，五妹当时也是这样的操作
 
 
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2294#       发表于 2019-3-7 23:05
 
 
-
-
 绿团站位只有2排算人气体现，13不都无法理解的变动吗，至于neru资源什么的…感觉绿团算第一档吧，她也不是那种为了这事就毕业的人
-
-
-
-
-
 
 
 -----
@@ -32042,18 +22609,10 @@ MV花絮
 ##### 2295#       发表于 2019-3-8 01:18
 
 
-
-
 这单配信首周三万二，七单首周两万四 十万应该没问题     实体的话有睡觉毕业跟汉二的全握应该能到90万，之后等汉二成员起来了稳定在70-80万左右        
 
 
-
 运营或许是打着分家后80+40大于100的想法，同时也让蓝团一期成员有出头天，不过相对而言就是绿这边会有将近一年的虚弱期，再出点什么意外（平手）就可以直接GG了
-
-
-
-
-
 
 
 -----
@@ -32062,21 +22621,15 @@ MV花絮
 ##### 2296#       发表于 2019-3-9 11:37
 
 
-
-
 【速報】欅坂46 3周年アニラ 東京スペシャル公演決定！！
 日本武道館 5/9 5/10 5/11 日開催予定！！
 
 搞什么？？？？
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -32086,19 +22639,13 @@ MV花絮
 | 上古古难记录者| + 1|表面上系一个须刨 实际上 佢系一个风筒.|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2297#       发表于 2019-3-9 16:28
-
 
 
  本帖最后由 芍药 于 2019-3-9 16:32 编辑 
@@ -32138,7 +22685,6 @@ MV花絮
 毕业消息
 
 
-
 <img src="https://img.saraba1st.com/forum/201903/09/162408cfrfr3flenxvdzvo.jpg" referrerpolicy="no-referrer">
 
 
@@ -32149,22 +22695,10 @@ MV花絮
 2019-3-9 16:24 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2298#       发表于 2019-3-10 00:42
-
 
 
 <blockquote>欅坂46全国握手会@幕張メッセ
@@ -32180,21 +22714,13 @@ nobody的现场
 睡觉的列握到十点半，持续了将近十个小时
 
 
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2299#       发表于 2019-3-10 23:26
 
 
-
  本帖最后由 芍药 于 2019-3-10 23:30 编辑 
-
 
 
 土田关于蓝绿分家跟睡觉毕业的想法
@@ -32217,28 +22743,16 @@ nobody的现场
 2019-3-10 23:26 上传
 
 
-
-
-
-
 五妹发展不错，不走唱歌走演戏然后综艺路线了
 
 
-
 蓝团的CDTV跟jcd介绍
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2300#       发表于 2019-3-11 21:48
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/11/214216sa1dov1od1fvf0ql.jpg" referrerpolicy="no-referrer">
@@ -32249,10 +22763,6 @@ nobody的现场
 下载附件
 
 2019-3-11 21:42 上传
-
-
-
-
 
 
 蓝团额罗森活动
@@ -32291,9 +22801,6 @@ nobody的现场
 2019-3-11 21:47 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/11/214742hxj4rn2r353j482r.jpg" referrerpolicy="no-referrer">
 
 
@@ -32302,9 +22809,6 @@ nobody的现场
 下载附件
 
 2019-3-11 21:47 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/11/214740ip0ulitzgql8m5fp.jpg" referrerpolicy="no-referrer">
@@ -32317,30 +22821,13 @@ nobody的现场
 2019-3-11 21:47 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2301#       发表于 2019-3-12 18:08
 
 
-
-
 techi电影首周居然卖了1w5！还不错啊！而且普通的dvd版只有2000张其他都是豪华特典版！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -32349,22 +22836,13 @@ techi电影首周居然卖了1w5！还不错啊！而且普通的dvd版只有200
 ##### 2302#       发表于 2019-3-12 22:58
 
 
-
-
 这销量怎么样？没什么概念
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2303#       发表于 2019-3-13 00:58
-
-
 
 
 这套照片头像好看
@@ -32379,9 +22857,6 @@ techi电影首周居然卖了1w5！还不错啊！而且普通的dvd版只有200
 2019-3-13 00:58 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/13/005810surtztrvmomvmk3w.jpg" referrerpolicy="no-referrer">
 
 
@@ -32390,9 +22865,6 @@ techi电影首周居然卖了1w5！还不错啊！而且普通的dvd版只有200
 下载附件
 
 2019-3-13 00:58 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/13/005807vbz7eee66y2yeen7.jpg" referrerpolicy="no-referrer">
@@ -32405,9 +22877,6 @@ techi电影首周居然卖了1w5！还不错啊！而且普通的dvd版只有200
 2019-3-13 00:58 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/13/005805ec8p26co1rmfm8w2.png" referrerpolicy="no-referrer">
 
 
@@ -32418,31 +22887,15 @@ techi电影首周居然卖了1w5！还不错啊！而且普通的dvd版只有200
 2019-3-13 00:58 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2304#       发表于 2019-3-13 13:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42885145&amp;ptid=1340143" target="_blank">芍药 发表于 2019-3-12 22:58</a>
  这销量怎么样？没什么概念</blockquote>
 我也没概念不过贴吧黑子都没黑这销量怕是还不错，顺便普通dvd卖的不多也就说明不是粉丝搬箱，应该还不错吧
-
-
-
-
-
 
 
 -----
@@ -32451,22 +22904,13 @@ techi电影首周居然卖了1w5！还不错啊！而且普通的dvd版只有200
 ##### 2305#       发表于 2019-3-18 01:14
 
 
-
-
 日站上一直吹风栗子准备毕业是什么回事<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2306#       发表于 2019-3-18 22:38
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/18/223810vx7s6kbjxk7e6xmj.jpg" referrerpolicy="no-referrer">
@@ -32477,8 +22921,6 @@ techi电影首周居然卖了1w5！还不错啊！而且普通的dvd版只有200
 下载附件
 
 2019-3-18 22:38 上传
-
-
 
 
  <blockquote>本日ついに表紙解禁✨
@@ -32512,9 +22954,6 @@ techi电影首周居然卖了1w5！还不错啊！而且普通的dvd版只有200
 2019-3-18 22:26 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/18/222623u7jkj9azacashu5s.jpg" referrerpolicy="no-referrer">
 
 
@@ -32523,10 +22962,6 @@ techi电影首周居然卖了1w5！还不错啊！而且普通的dvd版只有200
 下载附件
 
 2019-3-18 22:26 上传
-
-
-
-
 
 
 卖得不错
@@ -32542,12 +22977,7 @@ techi电影首周居然卖了1w5！还不错啊！而且普通的dvd版只有200
 2019-3-18 22:28 上传
 
 
-
-
-
-
 美大毕业
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/18/223513adzfczbxhxebxvhp.jpg" referrerpolicy="no-referrer">
@@ -32560,32 +22990,13 @@ techi电影首周居然卖了1w5！还不错啊！而且普通的dvd版只有200
 2019-3-18 22:35 上传
 
 
-
-
-
-
 一米四九跟土生的对比
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2307#       发表于 2019-3-19 23:31
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/19/230556xsvqoznnjqjbzlo2.jpg" referrerpolicy="no-referrer">
@@ -32596,8 +23007,6 @@ techi电影首周居然卖了1w5！还不错啊！而且普通的dvd版只有200
 下载附件
 
 2019-3-19 23:05 上传
-
-
 
 
  <blockquote>音楽バラエティー番組『坂道テレビ～乃木と欅と日向～』の続報が発表された。
@@ -32618,9 +23027,6 @@ techi电影首周居然卖了1w5！还不错啊！而且普通的dvd版只有200
 2019-3-19 23:07 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/19/230717lcv32o3c2hs2cykc.jpg" referrerpolicy="no-referrer">
 
 
@@ -32629,9 +23035,6 @@ techi电影首周居然卖了1w5！还不错啊！而且普通的dvd版只有200
 下载附件
 
 2019-3-19 23:07 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/19/230717benwxik2nkokj2wi.jpg" referrerpolicy="no-referrer">
@@ -32644,11 +23047,6 @@ techi电影首周居然卖了1w5！还不错啊！而且普通的dvd版只有200
 2019-3-19 23:07 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/19/233047x77bb74d09zb5o74.jpg" referrerpolicy="no-referrer">
 
 
@@ -32657,9 +23055,6 @@ techi电影首周居然卖了1w5！还不错啊！而且普通的dvd版只有200
 下载附件
 
 2019-3-19 23:30 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/19/233045t5ot4i57uk8f6jqo.jpg" referrerpolicy="no-referrer">
@@ -32672,9 +23067,6 @@ techi电影首周居然卖了1w5！还不错啊！而且普通的dvd版只有200
 2019-3-19 23:30 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/19/233042p1zc71tf7vfcnf95.jpg" referrerpolicy="no-referrer">
 
 
@@ -32685,24 +23077,13 @@ techi电影首周居然卖了1w5！还不错啊！而且普通的dvd版只有200
 2019-3-19 23:30 上传
 
 
-
-
-
-
 睡觉毕业之后小林基本替上她的定位向外推了
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2308#       发表于 2019-3-20 20:29
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/20/201624vz507vcm0vzxt5in.png" referrerpolicy="no-referrer">
@@ -32713,10 +23094,6 @@ techi电影首周居然卖了1w5！还不错啊！而且普通的dvd版只有200
 下载附件
 
 2019-3-20 20:16 上传
-
-
-
-
 
 
 七单配信十万，保持着一贯的水平，八单也是这两三个月的事了
@@ -32732,9 +23109,6 @@ techi电影首周居然卖了1w5！还不错啊！而且普通的dvd版只有200
 2019-3-20 20:15 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/20/201505skkv1xyjz0t6kmyk.png" referrerpolicy="no-referrer">
 
 
@@ -32743,11 +23117,6 @@ techi电影首周居然卖了1w5！还不错啊！而且普通的dvd版只有200
 下载附件
 
 2019-3-20 20:15 上传
-
-
-
-
-
 
 
 社畜睡觉，土生客串，应该是在欅坂出演的最后一个CM了
@@ -32763,9 +23132,6 @@ bolg发的照片，KEYAKI HOUSE期间拍的
 2019-3-20 20:25 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/20/202535mrhqorxxlcvghuxo.jpg" referrerpolicy="no-referrer">
 
 
@@ -32774,9 +23140,6 @@ bolg发的照片，KEYAKI HOUSE期间拍的
 下载附件
 
 2019-3-20 20:25 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/20/202534vbz0tdtdn7hqw8de.jpg" referrerpolicy="no-referrer">
@@ -32789,9 +23152,6 @@ bolg发的照片，KEYAKI HOUSE期间拍的
 2019-3-20 20:25 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/20/202534spq0i4m6h4snm61t.jpg" referrerpolicy="no-referrer">
 
 
@@ -32800,9 +23160,6 @@ bolg发的照片，KEYAKI HOUSE期间拍的
 下载附件
 
 2019-3-20 20:25 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/20/202534s4408o077acwak06.jpg" referrerpolicy="no-referrer">
@@ -32815,9 +23172,6 @@ bolg发的照片，KEYAKI HOUSE期间拍的
 2019-3-20 20:25 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/20/202533j6jusx0uqtkuiit7.jpg" referrerpolicy="no-referrer">
 
 
@@ -32828,9 +23182,6 @@ bolg发的照片，KEYAKI HOUSE期间拍的
 2019-3-20 20:25 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/20/202533mmrrt252sirw3it3.jpg" referrerpolicy="no-referrer">
 
 
@@ -32839,15 +23190,6 @@ bolg发的照片，KEYAKI HOUSE期间拍的
 下载附件
 
 2019-3-20 20:25 上传
-
-
-
-
-
-
-
-
-
 
 
  <blockquote>本日3月20日(水)発売の「SWITCH」Vol.37 No.4に平手友梨奈が登場‼️
@@ -32868,10 +23210,6 @@ bolg发的照片，KEYAKI HOUSE期间拍的
 下载附件
 
 2019-3-20 20:09 上传
-
-
-
-
 
 
  <blockquote>⭐️MUSIC FAIRのセットの一部をご紹介⭐️
@@ -32898,10 +23236,6 @@ bolg发的照片，KEYAKI HOUSE期间拍的
 2019-3-20 20:21 上传
 
 
-
-
-
-
 蓝团上MF，不知道搭不搭得上MS这班车
 
 出道单的tie
@@ -32916,9 +23250,6 @@ bolg发的照片，KEYAKI HOUSE期间拍的
 2019-3-20 20:28 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/20/202848caartustjtbib0ha.jpg" referrerpolicy="no-referrer">
 
 
@@ -32927,9 +23258,6 @@ bolg发的照片，KEYAKI HOUSE期间拍的
 下载附件
 
 2019-3-20 20:28 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/20/202848fgztck0qo1251u1o.jpg" referrerpolicy="no-referrer">
@@ -32942,21 +23270,10 @@ bolg发的照片，KEYAKI HOUSE期间拍的
 2019-3-20 20:28 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 2309#       发表于 2019-3-20 23:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42941695&amp;ptid=1340143" target="_blank">芍药 发表于 2019-3-18 02:14</a>
@@ -32986,16 +23303,10 @@ bolg发的照片，KEYAKI HOUSE期间拍的
 日本娱乐圈的话题度的来源是多样化的，绿团以后会怎么样，完全取决于索尼是想要这个团靠作品还是靠人来博取热度，前者的话无论是培养一个平手二号机还是培养一个新的能带起风格的艺人型成员，平手都会在团2、3年的样子，后者嘛下一单就毕业也不是不可能，毕竟平手握手粉应该基本洗完了，她毕业应该不会影响个握销量，就看占50%的全握盘掉多少。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2310#       发表于 2019-3-21 23:37
-
 
 
 <blockquote>JOYSOUND
@@ -33038,26 +23349,13 @@ bolg发的照片，KEYAKI HOUSE期间拍的
 男40% 女60% 不協和音  </blockquote>越受欢迎的越是多女性唱
 
 
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2311#       发表于 2019-3-23 23:55
 
 
-
-
 完整版的黑羊太棒了……所有人表现都非常好，表情动作……可惜就是没有栗子
-
-
-
-
-
 
 
 -----
@@ -33066,16 +23364,10 @@ bolg发的照片，KEYAKI HOUSE期间拍的
 ##### 2312#       发表于 2019-3-24 00:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43015410&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2019-3-23 23:55</a>
 
 完整版的黑羊太棒了……所有人表现都非常好，表情动作……可惜就是没有栗子 ...</blockquote>
 微博欅学假帧查出来是五朵彼岸花。。。。佩服他们脑洞
-
-
-
-
-
 
 
 -----
@@ -33084,16 +23376,10 @@ bolg发的照片，KEYAKI HOUSE期间拍的
 ##### 2313#       发表于 2019-3-24 01:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42991731&amp;ptid=1340143" target="_blank">芍药 发表于 2019-3-22 00:37</a>
 
 越受欢迎的越是多女性唱</blockquote>
 Line的一个10代用户调查里，男性第一乃团第二榉（假名除外）第三Twice，女性第一榉（假名除外）第二乃第三Twice。
-
-
-
-
-
 
 
 -----
@@ -33102,21 +23388,13 @@ Line的一个10代用户调查里，男性第一乃团第二榉（假名除外�
 ##### 2314#       发表于 2019-3-24 01:05
 
 
-
-
 NHK的布景是非常用心了，要说有点美中不足的话，就是隔窗的镜头有一个其实有点多余，直接像全握那样放整体就好，另外就是抛接花的时候俯角稍微大了点，个人感觉在平一点能把“挣扎”感更强化一些。另外最后pon其实来个举花仰视定格的剪影可能会更好，不过难得机会现在运营也想全力推她，正面特写也行吧。
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2315#       发表于 2019-3-24 01:30
-
 
 
  本帖最后由 芍药 于 2019-3-24 01:34 编辑 
@@ -33128,16 +23406,10 @@ Line的一个10代用户调查里，男性第一乃团第二榉（假名除外�
 倒是蓝团我奇怪真的按这风格走下去了？跟紫重叠得有点多
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2316#       发表于 2019-3-24 03:03
-
 
 
  本帖最后由 芍药 于 2019-3-24 21:28 编辑 
@@ -33153,9 +23425,6 @@ Line的一个10代用户调查里，男性第一乃团第二榉（假名除外�
 2019-3-24 03:00 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/24/030007zoxqd638h2jvd6le.jpg" referrerpolicy="no-referrer">
 
 
@@ -33164,10 +23433,6 @@ Line的一个10代用户调查里，男性第一乃团第二榉（假名除外�
 下载附件
 
 2019-3-24 03:00 上传
-
-
-
-
 
 
 欅写新场景，23个椅子，一期14二期9？
@@ -33185,10 +23450,6 @@ Line的一个10代用户调查里，男性第一乃团第二榉（假名除外�
 2019-3-24 21:27 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/24/030226hlxr7zewk0zrrw00.jpg" referrerpolicy="no-referrer">
 
 
@@ -33197,9 +23458,6 @@ Line的一个10代用户调查里，男性第一乃团第二榉（假名除外�
 下载附件
 
 2019-3-24 03:02 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/24/030225qjdd376jnyykji07.jpg" referrerpolicy="no-referrer">
@@ -33212,9 +23470,6 @@ Line的一个10代用户调查里，男性第一乃团第二榉（假名除外�
 2019-3-24 03:02 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/24/030225fyhccrcvtjqh1tzr.jpg" referrerpolicy="no-referrer">
 
 
@@ -33223,9 +23478,6 @@ Line的一个10代用户调查里，男性第一乃团第二榉（假名除外�
 下载附件
 
 2019-3-24 03:02 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/24/030226at8dl0wkhpzxpk70.jpg" referrerpolicy="no-referrer">
@@ -33238,9 +23490,6 @@ Line的一个10代用户调查里，男性第一乃团第二榉（假名除外�
 2019-3-24 03:02 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/24/030224qnrh1b5pjszwyrop.jpg" referrerpolicy="no-referrer">
 
 
@@ -33249,9 +23498,6 @@ Line的一个10代用户调查里，男性第一乃团第二榉（假名除外�
 下载附件
 
 2019-3-24 03:02 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/24/030224a426df6t6qwv6lws.jpg" referrerpolicy="no-referrer">
@@ -33264,9 +23510,6 @@ Line的一个10代用户调查里，男性第一乃团第二榉（假名除外�
 2019-3-24 03:02 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/24/030223he00te0t1to4zbzs.jpg" referrerpolicy="no-referrer">
 
 
@@ -33275,9 +23518,6 @@ Line的一个10代用户调查里，男性第一乃团第二榉（假名除外�
 下载附件
 
 2019-3-24 03:02 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/24/030225peslohz15m1hmzlq.jpg" referrerpolicy="no-referrer">
@@ -33290,24 +23530,10 @@ Line的一个10代用户调查里，男性第一乃团第二榉（假名除外�
 2019-3-24 03:02 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  dxxtiger  
 ##### 2317#       发表于 2019-3-24 03:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43016139&amp;ptid=1340143" target="_blank">芍药 发表于 2019-3-24 02:30</a>
@@ -33330,25 +23556,13 @@ K队的帅气是街头酷女孩式的帅气+体育系女生的帅气，但绿团
 那么蓝团要从可爱这个主题怎么出发，就真的考人了，单纯的可爱是没办法突破的，因为年轻女孩子都可爱，这样会很难出坂道系粉这个圈。
 
 
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2318#       发表于 2019-3-24 22:47
 
 
-
-
 坂道tv这节目真不错啊！如果成为定番就好了，一季度一次……
-
-
-
-
-
 
 
 -----
@@ -33357,16 +23571,10 @@ K队的帅气是街头酷女孩式的帅气+体育系女生的帅气，但绿团
 ##### 2319#       发表于 2019-3-26 22:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43024511&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2019-3-24 22:47</a>
 
 坂道tv这节目真不错啊！如果成为定番就好了，一季度一次……</blockquote>
 同样希望，各团成员之间多点交流互动，对外也有个宣传机会
-
-
-
-
-
 
 
 -----
@@ -33375,22 +23583,15 @@ K队的帅气是街头酷女孩式的帅气+体育系女生的帅气，但绿团
 ##### 2320#       发表于 2019-3-27 18:38
 
 
-
  本帖最后由 芍药 于 2019-3-27 18:39 编辑 
 
 蓝团首日36W，相近的应该是绿三单的初动44W累计60W，等绿缓过气来基本是80+70的局面        蓝团上来之后坂道系有点感觉了
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2321#       发表于 2019-3-31 00:17
-
 
 
 <blockquote>先ほどのこち星で発表しました通り、初代 #平手友梨奈 、二代目 #長濱ねる 、に続き、4月からは #尾関梨香 がこち星の三代目のメインパーソナリティーを務めます。時にエモく時にエキセントリックにお送りする30分間の #欅坂46こち星 をどうぞよろしくお願いいたします！ pic.twitter.com/nWnVvxD5dp
@@ -33410,9 +23611,6 @@ K队的帅气是街头酷女孩式的帅气+体育系女生的帅气，但绿团
 2019-3-31 00:16 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/31/001651suskbn6ukzbq9tmv.jpg" referrerpolicy="no-referrer">
 
 
@@ -33421,9 +23619,6 @@ K队的帅气是街头酷女孩式的帅气+体育系女生的帅气，但绿团
 下载附件
 
 2019-3-31 00:16 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/31/001651xz4l6d32bl3d3ycg.jpg" referrerpolicy="no-referrer">
@@ -33436,9 +23631,6 @@ K队的帅气是街头酷女孩式的帅气+体育系女生的帅气，但绿团
 2019-3-31 00:16 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/31/001650uam6rstzxgwrlamm.jpg" referrerpolicy="no-referrer">
 
 
@@ -33447,9 +23639,6 @@ K队的帅气是街头酷女孩式的帅气+体育系女生的帅气，但绿团
 下载附件
 
 2019-3-31 00:16 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/31/001651rmw7z8rpxm79xhjv.jpg" referrerpolicy="no-referrer">
@@ -33462,9 +23651,6 @@ K队的帅气是街头酷女孩式的帅气+体育系女生的帅气，但绿团
 2019-3-31 00:16 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/31/001650z2qq2lc2ldcppqvc.jpg" referrerpolicy="no-referrer">
 
 
@@ -33475,20 +23661,9 @@ K队的帅气是街头酷女孩式的帅气+体育系女生的帅气，但绿团
 2019-3-31 00:16 上传
 
 
-
-
-
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -33498,12 +23673,7 @@ K队的帅气是街头酷女孩式的帅气+体育系女生的帅气，但绿团
 | 上古古难记录者| + 1|“好 时 代，来 临 吧。” （迫真）.|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -33512,22 +23682,13 @@ K队的帅气是街头酷女孩式的帅气+体育系女生的帅气，但绿团
 ##### 2322#       发表于 2019-4-4 20:55
 
 
-
-
 哭了！有说techi居然c了乃团20单！我tm要看！你tm到底出不出碟！
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2323#       发表于 2019-4-4 23:33
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/04/202157rw0yrrrro4xkwrcr.jpg" referrerpolicy="no-referrer">
@@ -33540,9 +23701,6 @@ K队的帅气是街头酷女孩式的帅气+体育系女生的帅气，但绿团
 2019-4-4 20:21 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/04/202143xi3zrzbmmdarrmvi.jpg" referrerpolicy="no-referrer">
 
 
@@ -33553,12 +23711,7 @@ K队的帅气是街头酷女孩式的帅气+体育系女生的帅气，但绿团
 2019-4-4 20:21 上传
 
 
-
-
-
-
 普通人田田，第一张有点像小樱花
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/04/212904xcjserrri8e5e8kq.jpg" referrerpolicy="no-referrer">
@@ -33571,9 +23724,6 @@ K队的帅气是街头酷女孩式的帅气+体育系女生的帅气，但绿团
 2019-4-4 21:29 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/04/225234gjvjb5wq4ddg424b.jpg" referrerpolicy="no-referrer">
 
 
@@ -33582,11 +23732,6 @@ K队的帅气是街头酷女孩式的帅气+体育系女生的帅气，但绿团
 下载附件
 
 2019-4-4 22:52 上传
-
-
-
-
-
 
 
 吉祥梨
@@ -33601,9 +23746,6 @@ K队的帅气是街头酷女孩式的帅气+体育系女生的帅气，但绿团
 2019-4-4 22:53 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/04/225320vmarswiliisiirbm.jpg" referrerpolicy="no-referrer">
 
 
@@ -33612,11 +23754,6 @@ K队的帅气是街头酷女孩式的帅气+体育系女生的帅气，但绿团
 下载附件
 
 2019-4-4 22:53 上传
-
-
-
-
-
 
 
 突然更新的小葵，武道馆不知道来不来观看
@@ -33631,12 +23768,6 @@ K队的帅气是街头酷女孩式的帅气+体育系女生的帅气，但绿团
 2019-4-4 22:55 上传
 
 
-
-
-
-
-
-
 这有点不对劲吧，实体不可能比开闭高的
 
 <img src="https://img.saraba1st.com/forum/201904/04/225555rx365brmmmmasstt.jpg" referrerpolicy="no-referrer">
@@ -33649,10 +23780,6 @@ K队的帅气是街头酷女孩式的帅气+体育系女生的帅气，但绿团
 2019-4-4 22:55 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/04/233227j7x485ht4qqxjtw2.jpg" referrerpolicy="no-referrer">
 
 
@@ -33663,21 +23790,10 @@ K队的帅气是街头酷女孩式的帅气+体育系女生的帅气，但绿团
 2019-4-4 23:32 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2324#       发表于 2019-4-4 23:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43171773&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2019-4-4 20:55</a>
@@ -33686,16 +23802,10 @@ K队的帅气是街头酷女孩式的帅气+体育系女生的帅气，但绿团
 黑人问号？
 
 
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2325#       发表于 2019-4-5 00:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43173576&amp;ptid=1340143" target="_blank">芍药 发表于 2019-4-4 23:35</a>
@@ -33704,16 +23814,10 @@ K队的帅气是街头酷女孩式的帅气+体育系女生的帅气，但绿团
 周年LIVE绿团唱了乃团的20单主打，平手C，那歌我很喜欢
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2326#       发表于 2019-4-6 14:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43174420&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2019-4-5 00:59</a>
@@ -33722,17 +23826,10 @@ K队的帅气是街头酷女孩式的帅气+体育系女生的帅气，但绿团
 我以为是什么腥风血雨的操作
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2327#       发表于 2019-4-7 13:19
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/07/130640wzysyqyqy79y9ij1.jpg" referrerpolicy="no-referrer">
@@ -33745,9 +23842,6 @@ K队的帅气是街头酷女孩式的帅气+体育系女生的帅气，但绿团
 2019-4-7 13:06 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/07/130641oojoufud1k1cd0pz.jpg" referrerpolicy="no-referrer">
 
 
@@ -33758,9 +23852,6 @@ K队的帅气是街头酷女孩式的帅气+体育系女生的帅气，但绿团
 2019-4-7 13:06 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/07/130738hbizgs5yza7gtbg5.jpg" referrerpolicy="no-referrer">
 
 
@@ -33769,8 +23860,6 @@ K队的帅气是街头酷女孩式的帅气+体育系女生的帅气，但绿团
 下载附件
 
 2019-4-7 13:07 上传
-
-
 
 
  <blockquote>2019.4.6開催「欅坂46 3rd YEAR ANNIVERSARY LIVE」
@@ -33828,7 +23917,6 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 3周年正常结束，无发表
 
 
-
 <img src="https://img.saraba1st.com/forum/201904/07/131745ddy3no7yy5h757oc.jpg" referrerpolicy="no-referrer">
 
 
@@ -33837,9 +23925,6 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 下载附件
 
 2019-4-7 13:17 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/07/131745tm5zqbnqiz008p54.jpg" referrerpolicy="no-referrer">
@@ -33852,9 +23937,6 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 2019-4-7 13:17 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/07/131744agp99bmx9yfs6pky.jpg" referrerpolicy="no-referrer">
 
 
@@ -33863,9 +23945,6 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 下载附件
 
 2019-4-7 13:17 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/07/131744dc80656nv5mgvpn0.jpg" referrerpolicy="no-referrer">
@@ -33878,9 +23957,6 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 2019-4-7 13:17 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/07/131744a44vvzqm7exv7rlq.png" referrerpolicy="no-referrer">
 
 
@@ -33889,9 +23965,6 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 下载附件
 
 2019-4-7 13:17 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/07/131741oadjaq2qz1qdd1g6.jpg" referrerpolicy="no-referrer">
@@ -33904,9 +23977,6 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 2019-4-7 13:17 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/07/131740l2zsh4zmcj4gq6c2.jpg" referrerpolicy="no-referrer">
 
 
@@ -33915,9 +23985,6 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 下载附件
 
 2019-4-7 13:17 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/07/131904lqxxkhh5vq377vok.jpg" referrerpolicy="no-referrer">
@@ -33930,10 +23997,6 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 2019-4-7 13:19 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/07/131740jcx9oxhb1kxkbmdd.jpg" referrerpolicy="no-referrer">
 
 
@@ -33942,9 +24005,6 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 下载附件
 
 2019-4-7 13:17 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/07/131740gz6ebfe3exy4fzfk.jpg" referrerpolicy="no-referrer">
@@ -33957,9 +24017,6 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 2019-4-7 13:17 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/07/131739pl7b9eabeqvb99q4.jpg" referrerpolicy="no-referrer">
 
 
@@ -33970,20 +24027,7 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 2019-4-7 13:17 上传
 
 
-
-
-
-
 继续下个三年
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -33992,21 +24036,13 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 ##### 2328#       发表于 2019-4-8 11:58
 
 
-
-
 美大发的平手坐轮椅那张合照给删了……这运营一年到头都做什么啊
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2329#       发表于 2019-4-8 23:27
-
 
 
  本帖最后由 芍药 于 2019-4-8 23:49 编辑 
@@ -34024,30 +24060,13 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 2019-4-8 23:48 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  霜天冰华  
 ##### 2330#       发表于 2019-4-9 15:01
 
 
-
-
 轮椅应该是演唱会赶场用的，但这样会让人产生不好的联想所以让删了，也合理
-
-
-
-
-
 
 
 -----
@@ -34056,14 +24075,7 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 ##### 2331#       发表于 2019-4-15 00:23
 
 
-
-
 下周不会写有平………应该不是做梦…
-
-
-
-
-
 
 
 -----
@@ -34072,16 +24084,10 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 ##### 2332#       发表于 2019-4-15 11:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43234527&amp;ptid=1340143" target="_blank">霜天冰华 发表于 2019-04-09 15:01:08</a>
 轮椅应该是演唱会赶场用的，但这样会让人产生不好的联想所以让删了，也合理 ...</blockquote>看这周欅写，mc来打招呼时候都坐着，就是伤没好吧<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -34090,23 +24096,15 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 ##### 2333#       发表于 2019-4-16 02:41
 
 
-
-
 下周终于能看到平手在欅写出现了，隔好久了吧
 
 不知道三周年会不会单独出碟还是只出今年武道馆的碟
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2334#       发表于 2019-4-17 22:10
-
 
 
  本帖最后由 芍药 于 2019-4-17 22:30 编辑 
@@ -34116,9 +24114,7 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 五妹现在还跟索尼肥秋有很大关系，主动曝料的可能性不大
 
 
-
 采访今泉本人那里就只有说了すみません（抱歉 无可奉告）其他啥都没回应
-
 
 
 转下贴吧的翻译
@@ -34133,9 +24129,6 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 2019-4-17 21:25 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/17/212524o5h4abtm45hlam4y.jpg" referrerpolicy="no-referrer">
 
 
@@ -34146,9 +24139,6 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 2019-4-17 21:25 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/17/212522z4midkdvim41ki4o.jpg" referrerpolicy="no-referrer">
 
 
@@ -34157,11 +24147,6 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 下载附件
 
 2019-4-17 21:25 上传
-
-
-
-
-
 
 
 今泉的亲哥哥作证。
@@ -34178,10 +24163,6 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 2019-4-17 21:25 上传
 
 
-
-
-
-
 这里重点:1.欺凌加剧是从一专得到solo曲开始的
 2.体调不良时，a子说“不用回来也没关系”，b子说“你在破坏平手建立起来的坂，此外还有在化妆品鞋子里藏去死的纸条，不让她做电梯，给休息室上锁不让她进，她考虑过自杀
 
@@ -34195,10 +24176,6 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 2019-4-17 21:26 上传
 
 
-
-
-
-
 总结一下要点
 1.发一专的时候有solo曲但是修养时 被队内A某联系说“不用回来也可以哦”B某“你在破坏平手构成的欅”其他还有诸如“去死吧”等言论
 2.化妆品、袜子被藏起来一只 有时在后台会被锁住不给出去
@@ -34209,39 +24186,19 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 7.问了秋元康 康子：不知道 不了解 没听说（否认三连）
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  HURRYUP  
 ##### 2335#       发表于 2019-4-21 21:54
 
 
-
-
 不管怎么说, 别再有人毕业就行...<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  seedees3  
 ##### 2336#       发表于 2019-4-22 02:24
-
 
 
  本帖最后由 seedees3 于 2019-4-22 02:26 编辑 
@@ -34258,17 +24215,9 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 2019-4-22 02:26 上传
 
 
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -34278,20 +24227,13 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 | 上古古难记录者| + 1|这是 柏木佑井 的图|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2337#       发表于 2019-4-27 22:38
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201904/27/222434izcd4shveh1ze1be.jpg" referrerpolicy="no-referrer">
@@ -34304,13 +24246,7 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 2019-4-27 22:24 上传
 
 
-
-
-
-
 首周73388，第二周累计84265，十万以上没问题了，理这套拍得确实很好
-
-
 
 
 <img src="https://ro69-bucket.s3.amazonaws.com/uploads/text_image/image/320514/default/resize_image.jpg" referrerpolicy="no-referrer"> <blockquote>平手友梨奈（欅坂46）
@@ -34320,18 +24256,10 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 生い立ち、記憶、欅坂46との出会いと自らの物語、そして孤独ーーその目に映してきたもの、そのすべてを今、語る</blockquote>
 
 
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2338#       发表于 2019-5-8 13:45
-
-
 
 
 鸭鸭也发写真
@@ -34346,10 +24274,6 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 2019-5-8 13:38 上传
 
 
-
-
-
-
  <blockquote>内村「内村文化祭の一回からやっております欅坂46を。ただ延々踊るという。文化祭の一年目が不協和音。そして去年がガラスを割れ！ 今年ははたして何を歌い踊るのか･･･常に不動のセンター平手友梨奈の気持ちで毎年踊っております。 おっさん界の平手友梨奈として私頑張ってるわけですけどね。これ必ず踊ると思います」
 
 内村「欅坂ね～！凄いですよね」
@@ -34362,32 +24286,19 @@ WEN1.W-KEYAKIZAKAの詩</blockquote>
 小葵发日志了，学业的紧张期应该过去了，希望能归队吧
 
 
-
-
-
-
-
 -----
 
 ####  HURRYUP  
 ##### 2339#       发表于 2019-5-8 16:09
 
 
-
-
 鸭女士终于迎来了专属外景业务, 恭喜.<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2340#       发表于 2019-5-10 01:51
-
 
 
 <blockquote>① 危なっかしい計画 
@@ -34436,25 +24347,13 @@ MC②
 今天的武道馆三周年歌单，没安可
 
 
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2341#       发表于 2019-5-10 21:54
 
 
-
-
 据说昨天小平最后都快撑不住了，没想到今天状态全满？？？
-
-
-
-
-
 
 
 -----
@@ -34463,1064 +24362,481 @@ MC②
 ##### 2342#       发表于 2019-5-12 20:15
 
 
-
  本帖最后由 芍药 于 2019-5-12 20:19 编辑 
 
 [https://atctwn.com/2019/05/11/35491/](https://atctwn.com/2019/05/11/35491/)
-
-
-
-
 
 
 006gjePLgy1g2xkntg0y2j30xc0hqn0n.jpg
 (105.1 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:14 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201453tddbnblbm1kbm4m4.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006gjePLly1g2xs8h3a5tj30qo0hsq68.jpg
 (128.77 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:14 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201454ewvvfbl9qq9af4fn.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006gjePLly1g2xs8eox0ij30qo0hsq6x.jpg
 (153.74 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:14 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201454o7zlhhl4mlsl1kn7.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006gjePLly1g2xs8b7xakj30qo0hs43c.jpg
 (184.16 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:14 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201455dq9hj8t78drvvkts.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006gjePLly1g2xs89cxi4j30qo0hsgon.jpg
 (119.53 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:14 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201455d5775z96rhg1h9xg.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006gjePLly1g2xsn538b2j30rs0ijaat.jpg
 (164.43 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:14 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201455t9flxu6w8zjaiuif.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006gjePLly1g2xsmz0tqfj30rs0ij0te.jpg
 (155.98 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:14 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201456b1kvcwf1w0af9q5w.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006gjePLly1g2xsmurvkhj30rs0ijdft.jpg
 (41.88 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:14 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201456xs9szxyxlyw7zw2c.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006gjePLly1g2xsta2247j318g0tl7g1.jpg
 (148.2 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:14 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201456ehlhhiqtl14q3hta.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006gjePLly1g2xst5d8r5j318g0tlqfj.jpg
 (174.31 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:14 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201457kkiiri4a4aii74ma.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006gjePLly1g2xtkpcn5hj31040hydii.jpg
 (87.47 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:14 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201457wc0gcj7klcmachkp.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006gjePLly1g2xt3ga04bj310o0of7wh.jpg
 (425.26 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:14 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201457yy20mt6u49d9ttu9.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006gjePLly1g2xt33i9lvj310o0oge81.jpg
 (498.57 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:14 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201458s0cyybuyl08slthc.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006gjePLly1g2xt2sjdnoj310o0ogjzx.jpg
 (186.74 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:14 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201458y8vyw6dqqyyfdd83.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006gjePLly1g2xtoa8n0kj31kw11w10o.jpg
 (100.95 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:14 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201458i497vg34yv3lfm7h.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006gjePLly1g2xu4nnb2fj30qo0hswgy.jpg
 (98.99 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:14 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201459ss1u7bzh15zlas1s.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006gjePLly1g2xu4m4pvjj30qo0hsq6n.jpg
 (143.78 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:14 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201459tz76r60g8wvfh7x8.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006gjePLly1g2xu4l7h69j30qo0hs41i.jpg
 (118.14 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:14 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201459mzkvkxi4dmvkkit2.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006gjePLly1g2xu4mmx6mj30qo0hsn35.jpg
 (225.71 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:15 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201500buzl7x4jxxlbanjw.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006gjePLly1g2xvclwskzj30jg0cy7k5.jpg
 (73.55 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:15 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201500wx63ugixuiy2zjjl.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006ze8dqly1g2xub39a65j30jg0czgo5.jpg
 (101.5 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:15 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201500wbub8ot9c3ul2u88.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006ze8dqly1g2xuetrn9jj30rs0ijwes.jpg
 (84.17 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:15 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201501w2m5z22qe9ceco1q.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006ze8dqly1g2xvo6771tj31c40w3153.jpg
 (201.5 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:15 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201501fhf3fl8h999h9f8h.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006ze8dqly1g2yqwo1d1kj318z0u07cs.jpg
 (134.11 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:15 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201502vw4w75g5vgtrltzt.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006ze8dqly1g2xvo4adhvj31c40w349h.jpg
 (177.4 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:15 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201502bbbboboh3hh8tb6t.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006ze8dqly1g2xvo2w898j31c40w3au5.jpg
 (269.22 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:15 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201502q2c223f2rzfkq3zz.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006ze8dqly1g2xvo7b168j31c40w3jx1.jpg
 (89.15 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:15 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201503f63mcz35i39o2206.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006ze8dqly1g2ycr33baoj31kw11v13h.jpg
 (121.96 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:15 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201503pi1xuiixiz557jir.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006ze8dqly1g2ycr2azgvj31kw11vh5w.jpg
 (189.29 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:15 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201503fv9997k0pvbc49w9.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006ze8dqly1g2ycr3pfzoj31kw11v49y.jpg
 (124.16 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:15 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201504q7tftsw0ptttlusl.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006ze8dqly1g2yoefmpffj30qo0apwre.jpg
 (138.99 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:15 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201504wkr86lrjlk8m8aop.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006ze8dqly1g2yoehie2dj30ql0nm4qp.jpg
 (284.55 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:15 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201504sbu4h5tppfnty4fl.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006ze8dqly1g2yoe9lfouj30qo0huawf.jpg
 (184.28 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:15 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201505w00ynwy2o0sxzeq2.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006ze8dqly1g2yoecj68wj30qj0fwx07.jpg
 (201.42 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:15 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201505uwrj5q1hsuhw1w1w.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006ze8dqly1g2yoebdoh8j30qk0hvkek.jpg
 (212.86 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:15 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201505y8ou8unjoby2s88c.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006ze8dqly1g2ypk0002nj30qo0zkamk.jpg
 (255.5 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-5-12 20:15 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201506oaqgvvcblsbsmcwh.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 006I7lLGly1g2ypnaxdbtj30hs0hsjt4.jpg
 (66.8 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -35529,24 +24845,7 @@ MC②
 2019-5-12 20:19 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/12/201935lizmbuaa0e069zak.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -35555,14 +24854,7 @@ MC②
 ##### 2343#       发表于 2019-5-13 01:37
 
 
-
-
 开始叫2期握手冲销量了啊，那么想要钱你怎么不出碟啊！
-
-
-
-
-
 
 
 -----
@@ -35571,22 +24863,13 @@ MC②
 ##### 2344#       发表于 2019-5-13 02:37
 
 
-
-
 就算二期开握手这单也不可能到百万，应该就是让新人先适应一下而已       今年不知道是出三张单曲还是2单1专，也该是时候出消息了
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2345#       发表于 2019-5-15 20:23
-
-
 
 
 乃团伊藤
@@ -35602,11 +24885,6 @@ MC②
 2019-5-15 20:02 上传
 
 
-
-
-
-
-
 潜力股好看的
 
 <img src="https://img.saraba1st.com/forum/201905/15/201233fbb9czygcwg4mymy.jpg" referrerpolicy="no-referrer">
@@ -35619,9 +24897,6 @@ MC②
 2019-5-15 20:12 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/15/201234bghsz6hrqkezq1z1.jpg" referrerpolicy="no-referrer">
 
 
@@ -35630,11 +24905,6 @@ MC②
 下载附件
 
 2019-5-15 20:12 上传
-
-
-
-
-
 
 
 金毛池
@@ -35649,11 +24919,6 @@ MC②
 2019-5-15 20:13 上传
 
 
-
-
-
-
-
 来看三周年的田田跟小葵
 
 <img src="https://img.saraba1st.com/forum/201905/15/201417gkklc1wdqywztsya.jpg" referrerpolicy="no-referrer">
@@ -35666,9 +24931,6 @@ MC②
 2019-5-15 20:14 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/15/201418fd0izi7wzoo0i715.jpg" referrerpolicy="no-referrer">
 
 
@@ -35679,9 +24941,6 @@ MC②
 2019-5-15 20:14 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/15/202224xpnrzn1asd2f9rpn.jpg" referrerpolicy="no-referrer">
 
 
@@ -35690,11 +24949,6 @@ MC②
 下载附件
 
 2019-5-15 20:22 上传
-
-
-
-
-
 
 
 平手跟美大，男女主
@@ -35710,11 +24964,6 @@ MC②
 2019-5-15 20:16 上传
 
 
-
-
-
-
-
 三单五千万再生
 
 <img src="https://img.saraba1st.com/forum/201905/15/202048tyy2v22i22jvuvsz.jpg" referrerpolicy="no-referrer">
@@ -35727,24 +24976,10 @@ MC②
 2019-5-15 20:20 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2346#       发表于 2019-5-20 16:45
-
-
 
 
 二单也十万配信了，全部单曲都合格，可以说没遗憾了
@@ -35759,22 +24994,10 @@ MC②
 2019-5-20 16:41 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2347#       发表于 2019-5-21 21:36
-
 
 
 <blockquote><strong>注目俳優・佐野勇斗、日本映画批評家大賞の新人賞を受賞！</strong>人気若手俳優・佐野勇斗が、第28回日本映画批評家大賞の新人賞を受賞したことが明らかになった。
@@ -35814,9 +25037,6 @@ MC②
 2019-5-21 21:36 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/21/213644iz9yox28dmziy2z7.jpg" referrerpolicy="no-referrer">
 
 
@@ -35825,9 +25045,6 @@ MC②
 下载附件
 
 2019-5-21 21:36 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201905/21/213644v4kckfakwiff9f0i.jpg" referrerpolicy="no-referrer">
@@ -35840,22 +25057,10 @@ MC②
 2019-5-21 21:36 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2348#       发表于 2019-5-30 18:27
-
 
 
 <blockquote><strong>欅坂46平手友梨奈「第28回日本映画批評家大賞」授賞式に登壇へ</strong><blockquote>「第28回日本映画批評家大賞」にて新人女優賞を受賞した欅坂46の平手友梨奈が、30日に青山・スパイラルホールにて行われる授賞式に登壇することがわかった。
@@ -35877,21 +25082,13 @@ MC②
 ##### 2349#       发表于 2019-5-30 18:55
 
 
-
-
 发现TECHI这头身比非常不错啊。。。
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2350#       发表于 2019-6-4 20:32
-
 
 
  本帖最后由 芍药 于 2019-6-4 20:40 编辑 
@@ -35907,9 +25104,6 @@ MC②
 2019-6-4 20:31 上传
 
 
-
-
-
 今年的日经榜
 
 <img src="https://img.saraba1st.com/forum/201906/04/203117e8xzb4by2414l24n.jpg" referrerpolicy="no-referrer">
@@ -35920,11 +25114,6 @@ MC②
 下载附件
 
 2019-6-4 20:31 上传
-
-
-
-
-
 
 
 小坂也开始上剧了，还是常规的恐怖片？
@@ -35941,28 +25130,14 @@ MC②
 共和国2019，应该是实时转播
 
 
-
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2351#       发表于 2019-6-24 23:43
 
 
-
-
 techi生日快乐啊！
 顺便这夏巡是不是有些太紧凑了？
-
-
-
-
-
 
 
 -----
@@ -35971,14 +25146,7 @@ techi生日快乐啊！
 ##### 2352#       发表于 2019-6-26 15:45
 
 
-
-
 晚上换人这事感觉和平手身体无关，应该是运营故意用来推人的，只是不知道这次是谁了，大概率2期？
-
-
-
-
-
 
 
 -----
@@ -35989,21 +25157,13 @@ techi生日快乐啊！
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Layor Rik  
 ##### 2354#       发表于 2019-6-26 16:59
 
 
-
-
 隔壁也不是换标题顶，那可是一天几十个相关新闻啊
-
-
-
-
-
 
 
 -----
@@ -36012,22 +25172,14 @@ techi生日快乐啊！
 ##### 2355#       发表于 2019-7-4 17:49
 
 
-
-
 上年的共和国碟片快出吧
 
 
 miho可以的
 
 
-
-
-
-
 753BA585E16F1FE9752C17F00CA3C906.jpg
 (430.3 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -36036,111 +25188,46 @@ miho可以的
 2019-7-4 17:48 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/04/174836obnnfen15ctf5zb1.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 img-9f4495843342ccf3139279b98507c197.jpg
 (182.73 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-4 17:48 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/04/174837an7uzn57n073yg13.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 img-846d81980715eaaedafd04d7bfc9a373.jpg
 (698.54 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-4 17:48 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/04/174840v9llej9e9rds9vr9.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 img-ea9d5e46707d561470934589d5b97da9.jpg
 (70.4 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-4 17:48 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/04/174840fi34y137zx5xlj4i.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -36149,451 +25236,202 @@ img-ea9d5e46707d561470934589d5b97da9.jpg
 ##### 2356#       发表于 2019-7-4 20:47
 
 
-
-
 这次共和国好像比上次贵很多？
-
-
-
-
 
 
 D9I84FUUYAAg4SH.jpg
 (171.42 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-4 20:46 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/04/204626b9ikwwsjivbqfspb.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 D8g6F6aV4AAnefP.jpg
 (134.77 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-4 20:46 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/04/204629keslk8dsidagkaxo.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 D9fVQ7vVAAAccNf.jpg
 (86.34 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-4 20:46 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/04/204630fupoj8e055opxeso.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 kykzk141266.jpg
 (124.1 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-4 20:46 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/04/204632l6k3q1a2rrajts56.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 kykzk141280.jpg
 (87.74 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-4 20:46 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/04/204633e9ss4ggbn6bscgtg.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 D9fjEyVU8AATZ-y-1.jpg
 (271.78 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-4 20:46 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/04/204637ekc62c5krbrkg56q.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 543345543-1.jpg
 (114.65 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-4 20:46 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/04/204638q52p54m542mm4qox.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 5a787422a0358db8e7e69e8285c4daab.jpg
 (499.31 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-4 20:46 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/04/204643r4w8qbu0q7pgrww8.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 D-IvJObVUAA4DKd-1.jpg
 (44.44 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-4 20:46 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/04/204643g4si0yscfgw4gsus.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 D-IvInpUcAUszsy-1.jpg
 (40.8 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-4 20:46 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/04/204644rx5ahnhx5vivvabb.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 D6GtOYtUEAEnGOk-1.jpg
 (169.31 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-4 20:46 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/04/204645y533tc94kktk95tk.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 34433.jpg
 (19.44 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-4 20:46 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/04/204645ly5m7hra3yvt3sdy.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 D-camzJWsAAvK26.jpg
 (148.46 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-4 20:46 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/04/204647foez2idvet22wibf.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 jrweriewj.jpg
 (291.38 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-4 20:46 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/04/204650gukgpkpsagg1bgpu.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 Screenshot_20190703-204052_Instagram.jpg
 (334.68 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-4 20:46 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/04/204654bxmarm0ycjcurjjs.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -36602,14 +25440,7 @@ Screenshot_20190703-204052_Instagram.jpg
 ##### 2357#       发表于 2019-7-5 18:35
 
 
-
-
 据说平手唱了晴空和浴室旅行……非常想看啊…………
-
-
-
-
-
 
 
 -----
@@ -36618,21 +25449,13 @@ Screenshot_20190703-204052_Instagram.jpg
 ##### 2358#       发表于 2019-7-5 18:53
 
 
-
-
 这句话啥意思？——为什么**开始爆炸了，人们开始白日做梦？这都哪更哪？求个正解
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2359#       发表于 2019-7-6 00:11
-
 
 
  本帖最后由 芍药 于 2019-7-6 00:21 编辑 
@@ -36650,12 +25473,6 @@ Screenshot_20190703-204052_Instagram.jpg
 2019-7-6 00:11 上传
 
 
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/06/001124ecwnnwbbhb6h5n2t.jpg" referrerpolicy="no-referrer">
 
 
@@ -36664,10 +25481,6 @@ Screenshot_20190703-204052_Instagram.jpg
 下载附件
 
 2019-7-6 00:11 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201907/06/001125shpyojnnojcj7h4n.jpg" referrerpolicy="no-referrer">
@@ -36680,10 +25493,6 @@ Screenshot_20190703-204052_Instagram.jpg
 2019-7-6 00:11 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/06/001125miws1kgg51ygmgkk.jpg" referrerpolicy="no-referrer">
 
 
@@ -36692,11 +25501,6 @@ Screenshot_20190703-204052_Instagram.jpg
 下载附件
 
 2019-7-6 00:11 上传
-
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201907/06/001125d1qzv1rkaip5hiz4.jpg" referrerpolicy="no-referrer">
@@ -36709,27 +25513,8 @@ Screenshot_20190703-204052_Instagram.jpg
 2019-7-6 00:11 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 46b703aac344ebf49392b7cd00b3a5650cb116b7fb25067771fd1e6fccafc7f0_m.png
 (124.19 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -36738,24 +25523,7 @@ Screenshot_20190703-204052_Instagram.jpg
 2019-7-6 00:11 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/06/001124hfdbgf3j08otgdrq.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -36764,14 +25532,7 @@ Screenshot_20190703-204052_Instagram.jpg
 ##### 2360#       发表于 2019-7-6 18:55
 
 
-
-
 哈哈哈哈哈哈穿着船长服塞粽！
-
-
-
-
-
 
 
 -----
@@ -36780,24 +25541,15 @@ Screenshot_20190703-204052_Instagram.jpg
 ##### 2361#       发表于 2019-7-9 23:02
 
 
-
-
 这楼咋回事
 
 —— 来自 OnePlus ONEPLUS A3000, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2362#       发表于 2019-7-10 19:31
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201907/10/192936waeooaabeqaoalol.jpg" referrerpolicy="no-referrer">
@@ -36810,9 +25562,6 @@ Screenshot_20190703-204052_Instagram.jpg
 2019-7-10 19:29 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/10/192936zrelnchnnlicaril.jpg" referrerpolicy="no-referrer">
 
 
@@ -36821,9 +25570,6 @@ Screenshot_20190703-204052_Instagram.jpg
 下载附件
 
 2019-7-10 19:29 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201907/10/192935tfmcuv414eewhwww.jpg" referrerpolicy="no-referrer">
@@ -36836,9 +25582,6 @@ Screenshot_20190703-204052_Instagram.jpg
 2019-7-10 19:29 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/10/192934q0ns1e7mjy0k22wy.jpg" referrerpolicy="no-referrer">
 
 
@@ -36847,9 +25590,6 @@ Screenshot_20190703-204052_Instagram.jpg
 下载附件
 
 2019-7-10 19:29 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201907/10/193001ro2j5kjndnl5gpnq.png" referrerpolicy="no-referrer">
@@ -36862,9 +25602,6 @@ Screenshot_20190703-204052_Instagram.jpg
 2019-7-10 19:30 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/10/193014sx474xe4fhygmexv.jpg" referrerpolicy="no-referrer">
 
 
@@ -36873,9 +25610,6 @@ Screenshot_20190703-204052_Instagram.jpg
 下载附件
 
 2019-7-10 19:30 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201907/10/193015tmlvrsz64r4yd0aw.jpg" referrerpolicy="no-referrer">
@@ -36888,19 +25622,8 @@ Screenshot_20190703-204052_Instagram.jpg
 2019-7-10 19:30 上传
 
 
-
-
-
-
-
-
-
-
-
 20190706keyaki020.jpg
 (294.93 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -36909,555 +25632,247 @@ Screenshot_20190703-204052_Instagram.jpg
 2019-7-10 19:30 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/10/193037c1dnmw5pf3aa1jyq.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 20190706keyaki017.jpg
 (171.25 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-10 19:30 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/10/193038gvghijqwz9n3p8wz.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 20190705keyaki021.jpg
 (308.03 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-10 19:30 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/10/193038zlznspv1nfpj0ee1.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 20190705keyaki010.jpg
 (208.01 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-10 19:30 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/10/193038grrzb8tagjuljlta.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 20190705keyaki009.jpg
 (289.25 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-10 19:30 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/10/193039z9illlzwl26d120l.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 20190705keyaki008.jpg
 (317.54 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-10 19:30 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/10/193039ex588z33w9pbbv3g.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 20190705keyaki007.jpg
 (191.52 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-10 19:30 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/10/193039zwiooookspgpmwrh.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 20190706keyaki011.jpg
 (216.07 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-10 19:30 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/10/193040o6ogokzigkyi8uuy.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 20190706keyaki005.jpg
 (211.37 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-10 19:30 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/10/193040ayxxpekuxoeumyxe.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 20190706keyaki004.jpg
 (261.76 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-10 19:30 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/10/193041zdgs171jh7jmj51z.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 20190705keyaki006.jpg
 (176.09 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-10 19:30 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/10/193041uno3uz2u2j0nffdf.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 20190705keyaki003.jpg
 (200.9 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-10 19:30 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/10/193041ztl4uxumu6azv1su.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 20190706keyaki002-1.jpg
 (287.54 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-10 19:30 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/10/193042p4bz81yv541h60k4.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 20190705keyaki001.jpg
 (381.29 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-10 19:30 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/10/193043t5i3559t7dmrrs3i.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 20190705keyaki015.jpg
 (491.48 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-10 19:30 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/10/193044mr2tuxrbjalpeupr.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 D-4gcTbVAAAxdEG.jpg
 (132.62 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-10 19:30 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/10/193044ojpoezbyesseubpm.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 D-4b0PrUIAAtoAw.jpg
 (87.1 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-10 19:30 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/10/193044f42nhnn8zxhon9k7.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 20190705keyaki014.jpg
 (262.1 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-10 19:30 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/10/193045q3znc3ccwhbwkcck.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 20190705keyaki018.jpg
 (135.63 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2019-7-10 19:30 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/10/193055pvvguhq8qmmhpman.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2363#       发表于 2019-7-13 00:28
-
-
-
 
 
 沙尘应该是主打？有听到平手的声音，没意外的话八月应该就要发了
@@ -37473,9 +25888,6 @@ D-4b0PrUIAAtoAw.jpg
 2019-7-13 00:26 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/13/002603zkq2zu2e6qp0duz0.jpg" referrerpolicy="no-referrer">
 
 
@@ -37484,9 +25896,6 @@ D-4b0PrUIAAtoAw.jpg
 下载附件
 
 2019-7-13 00:26 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201907/13/002603gattypzt115p11x5.jpg" referrerpolicy="no-referrer">
@@ -37499,9 +25908,6 @@ D-4b0PrUIAAtoAw.jpg
 2019-7-13 00:26 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/13/002602viz4hzikyukssoya.png" referrerpolicy="no-referrer">
 
 
@@ -37512,30 +25918,13 @@ D-4b0PrUIAAtoAw.jpg
 2019-7-13 00:26 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2364#       发表于 2019-7-24 22:56
 
 
-
-
 平手今天很不错，小葵也来了……这个团感觉突然变正常了
-
-
-
-
-
 
 
 -----
@@ -37544,23 +25933,16 @@ D-4b0PrUIAAtoAw.jpg
 ##### 2365#       发表于 2019-7-25 00:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44648309&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2019-7-24 22:56</a>
 
 平手今天很不错，小葵也来了……这个团感觉突然变正常了</blockquote>
 ”变正常了“<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2366#       发表于 2019-7-25 01:01
-
 
 
  本帖最后由 芍药 于 2019-7-25 01:03 编辑 
@@ -37572,33 +25954,19 @@ D-4b0PrUIAAtoAw.jpg
 潜质者的动作好像第二个梨加<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">不协调的废柴感
 
 
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2367#       发表于 2019-7-26 13:16
 
 
-
-
 吹爆18共和国…就放出的那些片段真是太棒了，平手high爆
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2368#       发表于 2019-7-26 23:28
-
-
 
 
 田村这姿势跟梨加学的吧，缩头式
@@ -37613,9 +25981,6 @@ D-4b0PrUIAAtoAw.jpg
 2019-7-26 23:27 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201907/26/232720s9fxsd2lb953id9l.jpg" referrerpolicy="no-referrer">
 
 
@@ -37624,9 +25989,6 @@ D-4b0PrUIAAtoAw.jpg
 下载附件
 
 2019-7-26 23:27 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201907/26/232720dtppvql0ymzptsms.jpg" referrerpolicy="no-referrer">
@@ -37639,15 +26001,7 @@ D-4b0PrUIAAtoAw.jpg
 2019-7-26 23:27 上传
 
 
-
-
-
-
 <img src="http://toriizaka46.jp/wp-content/uploads/2019/07/ezgif-4-e4aa52ab985a.gif" referrerpolicy="no-referrer">
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201907/26/232721vjjc5cmrmg5ijg9c.jpg" referrerpolicy="no-referrer">
@@ -37660,30 +26014,13 @@ D-4b0PrUIAAtoAw.jpg
 2019-7-26 23:27 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2369#       发表于 2019-7-29 16:26
 
 
-
-
 小葵回来的同时睡觉要走了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -37692,14 +26029,7 @@ D-4b0PrUIAAtoAw.jpg
 ##### 2370#       发表于 2019-7-31 00:16
 
 
-
-
 睡睡就这么毕业了，真的是好害怕看周末的欅写。
-
-
-
-
-
 
 
 -----
@@ -37708,13 +26038,10 @@ D-4b0PrUIAAtoAw.jpg
 ##### 2371#       发表于 2019-7-31 21:39
 
 
-
  本帖最后由 芍药 于 2019-7-31 21:44 编辑 
 
 <img src="http://wx2.sinaimg.cn/mw690/636640e3gy1g5jcj4d9prj20n00h24h0.jpg" referrerpolicy="no-referrer">
 <img src="http://wx3.sinaimg.cn/mw690/636640e3gy1g5jcjb6tb7j20ms0h1x0z.jpg" referrerpolicy="no-referrer">
-
-
 
 
 睡觉最后的活动<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
@@ -37742,24 +26069,13 @@ TAKAHIROさんが目頭を押さえる度にそれを見た私は落ち着く・
 <img src="http://toriizaka46.jp/wp-content/uploads/2019/07/D-4fX-5UcAAHCsS.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2372#       发表于 2019-7-31 22:27
 
 
-
 <img src="https://i.daily.jp/gossip/2019/07/10/Images/d_12503087.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -37768,14 +26084,7 @@ TAKAHIROさんが目頭を押さえる度にそれを見た私は落ち着く・
 ##### 2373#       发表于 2019-8-5 23:40
 
 
-
-
 睡觉毕业的这集欅写不看了，对于这种催泪的情节一直能避就避<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -37784,14 +26093,7 @@ TAKAHIROさんが目頭を押さえる度にそれを見た私は落ち着く・
 ##### 2374#       发表于 2019-8-6 11:37
 
 
-
-
 必须看…平手难得上次节目……
-
-
-
-
-
 
 
 -----
@@ -37800,14 +26102,7 @@ TAKAHIROさんが目頭を押さえる度にそれを見た私は落ち着く・
 ##### 2375#       发表于 2019-8-8 00:13
 
 
-
-
 真是东🥚的话，techi也许就在那毕业吧……
-
-
-
-
-
 
 
 -----
@@ -37816,14 +26111,7 @@ TAKAHIROさんが目頭を押さえる度にそれを見た私は落ち着く・
 ##### 2376#       发表于 2019-8-8 17:59
 
 
-
-
 求绿团的抽票流程
-
-
-
-
-
 
 
 -----
@@ -37832,15 +26120,9 @@ TAKAHIROさんが目頭を押さえる度にそれを見た私は落ち着く・
 ##### 2377#       发表于 2019-8-8 18:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44841331&amp;ptid=1340143" target="_blank">桜庭ななみ 发表于 2019-8-8 17:59</a>
  求绿团的抽票流程</blockquote>
 欅坂46吧有教程贴
-
-
-
-
-
 
 
 -----
@@ -37849,15 +26131,9 @@ TAKAHIROさんが目頭を押さえる度にそれを見た私は落ち着く・
 ##### 2378#       发表于 2019-8-8 18:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44841385&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2019-8-8 18:02</a>
 欅坂46吧有教程贴</blockquote>
 找不到啊，有指路吗
-
-
-
-
-
 
 
 -----
@@ -37866,16 +26142,10 @@ TAKAHIROさんが目頭を押さえる度にそれを見た私は落ち着く・
 ##### 2379#       发表于 2019-8-8 22:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44841666&amp;ptid=1340143" target="_blank">桜庭ななみ 发表于 2019-8-8 18:26</a>
  找不到啊，有指路吗</blockquote>
 http://tieba.baidu.com/p/5195909719?share=9105&amp;fr=share&amp;unique=B5EE456A428424C579901EAFCECC785F&amp;st=1565272990&amp;client_type=1&amp;client_version=10.2.6&amp;sfc=copy
 不知道能不能发出来
-
-
-
-
-
 
 
 -----
@@ -37884,14 +26154,7 @@ http://tieba.baidu.com/p/5195909719?share=9105&amp;fr=share&amp;unique=B5EE456A4
 ##### 2380#       发表于 2019-8-8 22:29
 
 
-
-
 第三年就上东蛋，真害怕这团明年就嘎嘣一声挂掉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -37900,14 +26163,7 @@ http://tieba.baidu.com/p/5195909719?share=9105&amp;fr=share&amp;unique=B5EE456A4
 ##### 2381#       发表于 2019-8-13 07:57
 
 
-
-
 小池的写真感觉好土味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -37916,14 +26172,7 @@ http://tieba.baidu.com/p/5195909719?share=9105&amp;fr=share&amp;unique=B5EE456A4
 ##### 2382#       发表于 2019-8-14 20:59
 
 
-
-
 不知道欅共和国的碟片什么时候到，B站有字幕版了
-
-
-
-
-
 
 
 -----
@@ -37932,15 +26181,9 @@ http://tieba.baidu.com/p/5195909719?share=9105&amp;fr=share&amp;unique=B5EE456A4
 ##### 2383#       发表于 2019-8-14 22:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44912014&amp;ptid=1340143" target="_blank">芍药 发表于 2019-8-14 20:59</a>
  不知道欅共和国的碟片什么时候到，B站有字幕版了</blockquote>
 我买了不拆所以不着急………所以我到底买了干嘛…
-
-
-
-
-
 
 
 -----
@@ -37949,14 +26192,7 @@ http://tieba.baidu.com/p/5195909719?share=9105&amp;fr=share&amp;unique=B5EE456A4
 ##### 2384#       发表于 2019-8-15 13:29
 
 
-
-
 运营这套玩不腻吗？为了保证票卖出去现在才说平手无法上场？？
-
-
-
-
-
 
 
 -----
@@ -37965,14 +26201,7 @@ http://tieba.baidu.com/p/5195909719?share=9105&amp;fr=share&amp;unique=B5EE456A4
 ##### 2385#       发表于 2019-8-15 14:59
 
 
-
-
 ？？？是剩下的巡演没法上了？东蛋有没说能不能上
-
-
-
-
-
 
 
 -----
@@ -37981,14 +26210,7 @@ http://tieba.baidu.com/p/5195909719?share=9105&amp;fr=share&amp;unique=B5EE456A4
 ##### 2386#       发表于 2019-8-15 14:59
 
 
-
-
 计量单位？不是一卢，一东，一狗，一蛆，一妹，一小目标，一大明湖？
-
-
-
-
-
 
 
 -----
@@ -37997,14 +26219,7 @@ http://tieba.baidu.com/p/5195909719?share=9105&amp;fr=share&amp;unique=B5EE456A4
 ##### 2387#       发表于 2019-8-21 16:05
 
 
-
-
 题外话，蓝团3单个握全体开30部………今野这个臭sb
-
-
-
-
-
 
 
 -----
@@ -38013,16 +26228,10 @@ http://tieba.baidu.com/p/5195909719?share=9105&amp;fr=share&amp;unique=B5EE456A4
 ##### 2388#       发表于 2019-8-22 00:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44992416&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2019-8-21 16:05</a>
 
 题外话，蓝团3单个握全体开30部………今野这个臭sb</blockquote>
 绿一直是24的吧，蓝团这么狠
-
-
-
-
-
 
 
 -----
@@ -38031,15 +26240,9 @@ http://tieba.baidu.com/p/5195909719?share=9105&amp;fr=share&amp;unique=B5EE456A4
 ##### 2389#       发表于 2019-8-22 19:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44998401&amp;ptid=1340143" target="_blank">芍药 发表于 2019-8-22 00:49</a>
  绿一直是24的吧，蓝团这么狠</blockquote>
 今野迫于2单销量下滑的压力吧，以及年底要冲红白，这样对成员来说真是完全就是压榨了
-
-
-
-
-
 
 
 -----
@@ -38048,13 +26251,7 @@ http://tieba.baidu.com/p/5195909719?share=9105&amp;fr=share&amp;unique=B5EE456A4
 ##### 2390#       发表于 2019-8-24 23:59
 
 
-
 <img src="https://wx2.sinaimg.cn/mw690/006ze8dqly1g6a58a44xxj30u012kais.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -38063,14 +26260,7 @@ http://tieba.baidu.com/p/5195909719?share=9105&amp;fr=share&amp;unique=B5EE456A4
 ##### 2391#       发表于 2019-9-30 23:08
 
 
-
-
 uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -38079,21 +26269,15 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 ##### 2392#       发表于 2019-9-30 23:16
 
 
-
-
 平手在东蛋上状态很不错啊，有点回到2017的感觉
 
 
 中了文春炮+落选，OD77会不会近期内毕业了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -38103,20 +26287,13 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 | 上古古难记录者| + 1|栗太郎危险。|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2393#       发表于 2019-10-1 00:13
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201910/01/001240bm67sjxj74feoea4.jpg" referrerpolicy="no-referrer">
@@ -38129,10 +26306,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 2019-10-1 00:12 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201910/01/001245uyfuueljj47lw655.jpg" referrerpolicy="no-referrer">
 
 
@@ -38141,10 +26314,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 下载附件
 
 2019-10-1 00:12 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201910/01/001246caf3jwo0fwozlfl5.jpg" referrerpolicy="no-referrer">
@@ -38157,10 +26326,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 2019-10-1 00:12 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201910/01/001251w8klijixy8k68l88.jpg" referrerpolicy="no-referrer">
 
 
@@ -38169,10 +26334,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 下载附件
 
 2019-10-1 00:12 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201910/01/001259a066tmx0m010xcd6.jpg" referrerpolicy="no-referrer">
@@ -38185,10 +26346,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 2019-10-1 00:12 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201910/01/001300hsw2zm9d2da2du58.jpg" referrerpolicy="no-referrer">
 
 
@@ -38197,10 +26354,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 下载附件
 
 2019-10-1 00:13 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201910/01/001301t7j7xvf8ae7ea88o.jpg" referrerpolicy="no-referrer">
@@ -38213,31 +26366,10 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 2019-10-1 00:13 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2394#       发表于 2019-10-1 00:15
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201910/01/001400jd37hh7ddd7qmmqh.jpg" referrerpolicy="no-referrer">
@@ -38250,10 +26382,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 2019-10-1 00:14 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201910/01/001403yunc6d0u6w6du7wx.jpg" referrerpolicy="no-referrer">
 
 
@@ -38262,10 +26390,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 下载附件
 
 2019-10-1 00:14 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201910/01/001405n7m7ogr2rewa6dsw.jpg" referrerpolicy="no-referrer">
@@ -38278,10 +26402,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 2019-10-1 00:14 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201910/01/001409hzhrbnbx7mhe7zbz.jpg" referrerpolicy="no-referrer">
 
 
@@ -38290,10 +26410,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 下载附件
 
 2019-10-1 00:14 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201910/01/001412jjvkmm2m7bwhmhwb.jpg" referrerpolicy="no-referrer">
@@ -38306,10 +26422,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 2019-10-1 00:14 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201910/01/001416ccw3fdoudwkefxwu.jpg" referrerpolicy="no-referrer">
 
 
@@ -38318,10 +26430,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 下载附件
 
 2019-10-1 00:14 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201910/01/001419cefnzf55btbunir3.jpg" referrerpolicy="no-referrer">
@@ -38334,10 +26442,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 2019-10-1 00:14 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201910/01/001423o7za7lljxlr95xtt.jpg" referrerpolicy="no-referrer">
 
 
@@ -38346,10 +26450,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 下载附件
 
 2019-10-1 00:14 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201910/01/001426z4dhtix4o2rw2hsx.jpg" referrerpolicy="no-referrer">
@@ -38362,10 +26462,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 2019-10-1 00:14 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201910/01/001428f0axhzvovhiqfavj.jpg" referrerpolicy="no-referrer">
 
 
@@ -38376,50 +26472,19 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 2019-10-1 00:14 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  qwe33551  
 ##### 2395#       发表于 2019-10-1 00:15
 
 
-
-
 音游挺好玩的，难度比乃团高，回过神来就26级了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2396#       发表于 2019-10-1 00:21
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201910/01/002015v2s5q22qogvjsbt3.jpg" referrerpolicy="no-referrer">
@@ -38432,10 +26497,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 2019-10-1 00:20 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201910/01/002017jd8s9quylt8h3u9t.jpg" referrerpolicy="no-referrer">
 
 
@@ -38444,10 +26505,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 下载附件
 
 2019-10-1 00:20 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201910/01/002021igh0920ma1h6agm6.jpg" referrerpolicy="no-referrer">
@@ -38460,10 +26517,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 2019-10-1 00:20 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201910/01/002023jime0ol8q0hmlomm.jpg" referrerpolicy="no-referrer">
 
 
@@ -38472,10 +26525,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 下载附件
 
 2019-10-1 00:20 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201910/01/002027sw1jwttjjonttqyf.jpg" referrerpolicy="no-referrer">
@@ -38488,10 +26537,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 2019-10-1 00:20 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201910/01/002029f545jxa56arxj111.jpg" referrerpolicy="no-referrer">
 
 
@@ -38500,10 +26545,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 下载附件
 
 2019-10-1 00:20 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201910/01/002030um8jf3buomyleu3b.jpg" referrerpolicy="no-referrer">
@@ -38516,10 +26557,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 2019-10-1 00:20 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201910/01/002032jsnh4v49hr9r4hgz.jpg" referrerpolicy="no-referrer">
 
 
@@ -38528,10 +26565,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 下载附件
 
 2019-10-1 00:20 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201910/01/002033umsn99jxbq59m1mb.jpg" referrerpolicy="no-referrer">
@@ -38544,10 +26577,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 2019-10-1 00:20 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201910/01/002034q10kpd501k65dz4a.jpg" referrerpolicy="no-referrer">
 
 
@@ -38556,10 +26585,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 下载附件
 
 2019-10-1 00:20 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201910/01/002036i3s54oa1iz7gwu00.jpg" referrerpolicy="no-referrer">
@@ -38572,10 +26597,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 2019-10-1 00:20 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201910/01/002037uoz98xy1wy19jc9k.jpg" referrerpolicy="no-referrer">
 
 
@@ -38584,10 +26605,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 下载附件
 
 2019-10-1 00:20 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201910/01/002038s9f9huh3k05wnh5h.jpg" referrerpolicy="no-referrer">
@@ -38600,10 +26617,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 2019-10-1 00:20 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201910/01/002042buzngwevk59r4kpk.jpg" referrerpolicy="no-referrer">
 
 
@@ -38612,10 +26625,6 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 下载附件
 
 2019-10-1 00:20 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201910/01/002044hcvg9nevmtctek3v.jpg" referrerpolicy="no-referrer">
@@ -38628,47 +26637,13 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 2019-10-1 00:20 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2397#       发表于 2019-10-8 16:47
 
 
-
-
 最近一两个月怎么常常看到微博虎扑豆瓣流量号吹（捧杀）哈布的男装样子（虽然确实俊气），要来大陆活动？
-
-
-
-
-
 
 
 -----
@@ -38677,15 +26652,9 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 ##### 2398#       发表于 2019-10-8 17:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45165011&amp;ptid=1340143" target="_blank">芍药 发表于 2019-10-8 16:47</a>
  最近一两个月怎么常常看到微博虎扑豆瓣流量号吹（捧杀）哈布的男装样子（虽然确实俊气），要来大陆活动？ ...</blockquote>
 没，这事是一个sb干的，不知道是黑是粉，各大平台拼命吹哈布，在贴吧也是，搞定很多人很反感……
-
-
-
-
-
 
 
 -----
@@ -38694,16 +26663,10 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 ##### 2399#       发表于 2019-10-9 00:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45165313&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2019-10-8 17:23</a>
 
 没，这事是一个sb干的，不知道是黑是粉，各大平台拼命吹哈布，在贴吧也是，搞定很多人很反感…… ...</blockquote>
 我还以为是公关公司事前的吹风呢，要是来就好了
-
-
-
-
-
 
 
 -----
@@ -38712,14 +26675,7 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 ##### 2400#       发表于 2019-11-1 21:50
 
 
-
-
 怎么11月了还没消息的，想踏着年尾出单吗
-
-
-
-
-
 
 
 -----
@@ -38728,14 +26684,7 @@ uni's on air不错<img src="https://static.saraba1st.com/image/smiley/face2017/0
 ##### 2401#       发表于 2019-11-1 22:26
 
 
-
-
 oda的message服务要停了
-
-
-
-
-
 
 
 -----
@@ -38744,16 +26693,10 @@ oda的message服务要停了
 ##### 2402#       发表于 2019-11-2 00:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45378267&amp;ptid=1340143" target="_blank">颜小山 发表于 2019-11-1 22:26</a>
 
 oda的message服务要停了</blockquote>
 真要毕业？
-
-
-
-
-
 
 
 -----
@@ -38762,14 +26705,7 @@ oda的message服务要停了</blockquote>
 ##### 2403#       发表于 2019-11-13 21:29
 
 
-
-
 居然跳避雷针....这九单尼玛年内不出了吧，毫无音讯
-
-
-
-
-
 
 
 -----
@@ -38778,17 +26714,10 @@ oda的message服务要停了</blockquote>
 ##### 2404#       发表于 2019-11-14 14:14
 
 
-
-
 蓝团也上红白了，这样坂道就三个名额了
 
 
 绿不知道能不能在红白上唱九单，不过唱黑羊也不错
-
-
-
-
-
 
 
 -----
@@ -38797,21 +26726,13 @@ oda的message服务要停了</blockquote>
 ##### 2405#       发表于 2019-11-18 13:59
 
 
-
-
 栗子文春这事到底空穴来风还是小作文<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">不过明年开始毕业潮也是时候来了，有坂道研究生后补，一期想退的话也可以退下来
-
-
-
-
-
 
 
 -----
 
 ####  Layor Rik  
 ##### 2406#       发表于 2019-11-18 15:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45547232&amp;ptid=1340143" target="_blank">芍药 发表于 2019-11-18 13:59</a>
@@ -38821,25 +26742,13 @@ oda的message服务要停了</blockquote>
 —— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 2407#       发表于 2019-12-8 11:59
 
 
-
-
 黑羊实际完成是什么时候来着，18年年底？今年一年出不了一张新单哦<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -38848,16 +26757,9 @@ oda的message服务要停了</blockquote>
 ##### 2408#       发表于 2019-12-8 12:19
 
 
-
-
 种子花脸都不要了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 蓝坂四单估计都要比九单快<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -38866,16 +26768,9 @@ oda的message服务要停了</blockquote>
 ##### 2409#       发表于 2019-12-10 22:22
 
 
-
-
 我真tm不知道种子花到底是怎么了……商界奇葩？
 
 —— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -38884,14 +26779,7 @@ oda的message服务要停了</blockquote>
 ##### 2410#       发表于 2019-12-10 22:51
 
 
-
-
 喜提延后<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">每年就发一张春单好不好啊
-
-
-
-
-
 
 
 -----
@@ -38900,14 +26788,7 @@ oda的message服务要停了</blockquote>
 ##### 2411#       发表于 2019-12-10 23:10
 
 
-
-
 而且就这种情况来说肯定是曲子制作出问题才导致延期的，质量恐怕不乐观
-
-
-
-
-
 
 
 -----
@@ -38916,14 +26797,7 @@ oda的message服务要停了</blockquote>
 ##### 2412#       发表于 2019-12-11 15:17
 
 
-
-
 东蛋的碟片出了…为了拖时间把这个也拉出来了么，开心是开心，又有点生气
-
-
-
-
-
 
 
 -----
@@ -38932,21 +26806,13 @@ oda的message服务要停了</blockquote>
 ##### 2413#       发表于 2019-12-20 18:27
 
 
-
-
 喷了，今年红白唱不协和音，梦回2018<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这是完美抹除2019的存在了么
-
-
-
-
-
 
 
 -----
 
 ####  衛藤美彩  
 ##### 2414#       发表于 2019-12-20 18:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45769695&amp;ptid=1340143" target="_blank">Enchantz 发表于 2019-12-8 12:19</a>
@@ -38956,25 +26822,13 @@ oda的message服务要停了</blockquote>
 真的快了
 
 
-
-
-
-
-
 -----
 
 ####  xyhero  
 ##### 2415#       发表于 2019-12-21 00:26
 
 
-
-
 东蛋出来了真香，不过和欅共一个价格感觉有点肉疼。
-
-
-
-
-
 
 
 -----
@@ -38983,16 +26837,9 @@ oda的message服务要停了</blockquote>
 ##### 2416#       发表于 2019-12-21 01:29
 
 
-
-
 我才不会上今野的狗当呢！
 
 —— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -39001,20 +26848,14 @@ oda的message服务要停了</blockquote>
 ##### 2417#       发表于 2019-12-22 00:13
 
 
-
-
 好像有穴头撺绿团来中国办live的事……
 
 —— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -39024,19 +26865,13 @@ oda的message服务要停了</blockquote>
 | 上古古难记录者| + 2|谨慎观望 來就SHOWHAND！|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  xyhero  
 ##### 2418#       发表于 2019-12-22 01:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45943274&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2019-12-22 00:13</a>
@@ -39048,17 +26883,10 @@ oda的message服务要停了</blockquote>
 是有这个传闻，饭群一直有人再说。
 
 
-
-
-
-
-
 -----
 
 ####  Juniversal  
 ##### 2419#       发表于 2019-12-22 09:27
-
-
 
 
 “种子花再这个样子，我就是去吃，去喝，去捐给春蕾计划，也不会给你一分钱！”
@@ -39067,25 +26895,13 @@ oda的message服务要停了</blockquote>
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Cybernia  
 ##### 2420#       发表于 2019-12-22 12:22
 
 
-
-
 你欅好像要来中国了
-
-
-
-
-
 
 
 -----
@@ -39094,21 +26910,13 @@ oda的message服务要停了</blockquote>
 ##### 2421#       发表于 2019-12-22 14:21
 
 
-
-
 大概率是去香港？其次是上海，准备订机票了
-
-
-
-
-
 
 
 -----
 
 ####  xyhero  
 ##### 2422#       发表于 2019-12-22 15:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45947088&amp;ptid=1340143" target="_blank">芍药 发表于 2019-12-22 14:21</a>
@@ -39119,17 +26927,10 @@ oda的message服务要停了</blockquote>
 —— 来自 Sony J9210, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  mmyn321  
 ##### 2423#       发表于 2019-12-22 15:31
-
-
 
 
 终于看到专楼了，借楼问问有没有v信群可以加。。
@@ -39137,13 +26938,9 @@ oda的message服务要停了</blockquote>
 PS 那微博下面PT和DYT的回复内容真实又是一场大战。。担心到时候会场的环境= =
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -39153,12 +26950,7 @@ PS 那微博下面PT和DYT的回复内容真实又是一场大战。。担心到
 | 上古古难记录者| + 1|已经有瓦哈比内味了|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -39167,18 +26959,12 @@ PS 那微博下面PT和DYT的回复内容真实又是一场大战。。担心到
 ##### 2424#       发表于 2019-12-22 15:54
 
 
-
-
 专楼什么时候能恢复正常排版
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -39188,19 +26974,13 @@ PS 那微博下面PT和DYT的回复内容真实又是一场大战。。担心到
 | 上古古难记录者| + 2|爽到|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2425#       发表于 2019-12-22 21:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45947551&amp;ptid=1340143" target="_blank">xyhero 发表于 2019-12-22 15:27</a>
@@ -39211,16 +26991,10 @@ PS 那微博下面PT和DYT的回复内容真实又是一场大战。。担心到
 乃团上次来是梅奔？那找个小一点的馆比较实际  乃团票价档次怎么样
 
 
-
-
-
-
-
 -----
 
 ####  xyhero  
 ##### 2426#       发表于 2019-12-22 21:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45950490&amp;ptid=1340143" target="_blank">芍药 发表于 2019-12-22 21:13</a>
@@ -39231,16 +27005,10 @@ PS 那微博下面PT和DYT的回复内容真实又是一场大战。。担心到
 票价内场1780、二层1380、五层680。
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2427#       发表于 2019-12-22 21:24
-
 
 
  本帖最后由 芍药 于 2019-12-22 21:27 编辑 
@@ -39252,16 +27020,10 @@ PS 那微博下面PT和DYT的回复内容真实又是一场大战。。担心到
 有点贵啊，要是票价一样的话只能订五层了
 
 
-
-
-
-
-
 -----
 
 ####  衛藤美彩  
 ##### 2428#       发表于 2019-12-22 21:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45947795&amp;ptid=1340143" target="_blank">seedees3 发表于 2019-12-22 15:54</a>
@@ -39270,13 +27032,9 @@ PS 那微博下面PT和DYT的回复内容真实又是一场大战。。担心到
 +1，倒序太不舒服了……
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -39286,19 +27044,13 @@ PS 那微博下面PT和DYT的回复内容真实又是一场大战。。担心到
 | 上古古难记录者| + 2|爽到|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  xyhero  
 ##### 2429#       发表于 2019-12-22 21:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45950624&amp;ptid=1340143" target="_blank">芍药 发表于 2019-12-22 21:24</a>
@@ -39309,27 +27061,15 @@ PS 那微博下面PT和DYT的回复内容真实又是一场大战。。担心到
 毕竟机票酒店也不便宜了，再来个山顶和各种拍照摄像的坐一堆不是很憋屈。
 
 
-
-
-
-
-
 -----
 
 ####  Juniversal  
 ##### 2430#       发表于 2019-12-22 22:18
 
 
-
-
 绿啥宣传没有（今年被放置还整体下行），上来就订梅奔就是疯了。而且看这架势，并不觉得运营有要给绿继续上行布局海外的计划
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -39338,14 +27078,7 @@ PS 那微博下面PT和DYT的回复内容真实又是一场大战。。担心到
 ##### 2431#       发表于 2019-12-23 04:50
 
 
-
-
 不说梅奔，请过来开个虹馆也好
-
-
-
-
-
 
 
 -----
@@ -39354,16 +27087,9 @@ PS 那微博下面PT和DYT的回复内容真实又是一场大战。。担心到
 ##### 2432#       发表于 2019-12-27 16:57
 
 
-
-
 今年红白又唱四单
 
 —— 来自 samsung SM-G973U, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -39372,14 +27098,7 @@ PS 那微博下面PT和DYT的回复内容真实又是一场大战。。担心到
 ##### 2433#       发表于 2019-12-27 19:00
 
 
-
-
 今天mssl的黑羊太叼了
-
-
-
-
-
 
 
 -----
@@ -39388,14 +27107,7 @@ PS 那微博下面PT和DYT的回复内容真实又是一场大战。。担心到
 ##### 2434#       发表于 2019-12-27 19:32
 
 
-
-
 特意进楼吹一波这个黑羊现场
-
-
-
-
-
 
 
 -----
@@ -39404,18 +27116,12 @@ PS 那微博下面PT和DYT的回复内容真实又是一场大战。。担心到
 ##### 2435#       发表于 2019-12-27 20:27
 
 
-
-
 zzh死了这么好的歌都没怎么宣传过
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -39425,12 +27131,7 @@ zzh死了这么好的歌都没怎么宣传过
 | 上古古难记录者| + 1|种子花用的是单核心单线程处理器.|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -39439,14 +27140,7 @@ zzh死了这么好的歌都没怎么宣传过
 ##### 2436#       发表于 2019-12-27 21:11
 
 
-
-
 这才是心中理想的欅坂表演，要是能在红白上表演这版就好了（妄想）
-
-
-
-
-
 
 
 -----
@@ -39455,16 +27149,9 @@ zzh死了这么好的歌都没怎么宣传过
 ##### 2437#       发表于 2019-12-27 21:16
 
 
-
-
 其实我个人最喜欢的还是坂道TV那版，兼具偶像团舞蹈和音乐剧的感觉，这次有一点点散，而且有MV在前，给人的冲击也没那么大。
 
 小平SOLO最后的眼神梦回山手线，我又要回坑了🐎<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -39473,16 +27160,9 @@ zzh死了这么好的歌都没怎么宣传过
 ##### 2438#       发表于 2019-12-27 22:19
 
 
-
-
 上次黑羊上ms的时候放送事故，这次给足面子。不知道过几天唱片大赏上怎么个表演法。
 
 我现在越来越觉得今年会给黑羊，到时候还要表演第二遍
-
-
-
-
-
 
 
 -----
@@ -39491,14 +27171,7 @@ zzh死了这么好的歌都没怎么宣传过
 ##### 2439#       发表于 2019-12-27 23:01
 
 
-
-
 绿团的现场还是牛逼
-
-
-
-
-
 
 
 -----
@@ -39507,16 +27180,9 @@ zzh死了这么好的歌都没怎么宣传过
 ##### 2440#       发表于 2019-12-27 23:10
 
 
-
-
 今天黑羊和转弯哭了两次……转弯最后techi是真哭了……
 
 —— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -39525,16 +27191,9 @@ zzh死了这么好的歌都没怎么宣传过
 ##### 2441#       发表于 2019-12-28 09:18
 
 
-
-
 这黑羊现场真心棒，一镜转场把握恰到好处。
 
 —— 来自 Sony J9210, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -39543,14 +27202,7 @@ zzh死了这么好的歌都没怎么宣传过
 ##### 2442#       发表于 2019-12-28 10:02
 
 
-
-
 炸啦炸啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -39559,16 +27211,9 @@ zzh死了这么好的歌都没怎么宣传过
 ##### 2443#       发表于 2019-12-28 10:57
 
 
-
-
 三团共演！笑喷了！今野你总是给我搞点新花样.gif
 
 —— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -39577,14 +27222,7 @@ zzh死了这么好的歌都没怎么宣传过
 ##### 2444#       发表于 2019-12-28 11:40
 
 
-
-
 顶级巨魔今野？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -39593,13 +27231,7 @@ zzh死了这么好的歌都没怎么宣传过
 ##### 2445#       发表于 2019-12-28 12:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">巨魔石锤了
-
-
-
-
-
 
 
 -----
@@ -39608,21 +27240,13 @@ zzh死了这么好的歌都没怎么宣传过
 ##### 2446#       发表于 2019-12-28 13:23
 
 
-
-
 话说蓝团是哪个团
-
-
-
-
-
 
 
 -----
 
 ####  Enchantz  
 ##### 2447#       发表于 2019-12-28 13:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46012829&amp;ptid=1340143" target="_blank">Azure1984 发表于 2019-12-28 13:23</a>
@@ -39632,27 +27256,15 @@ zzh死了这么好的歌都没怎么宣传过
 —— 来自 samsung SM-G973U, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  Enchantz  
 ##### 2448#       发表于 2019-12-28 13:39
 
 
-
-
 把绿团一年一单吸干了之后接着吸紫团，红白排前半就来强行坂道合同蹭后半，真有你的啊种子花
 
 —— 来自 samsung SM-G973U, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -39661,13 +27273,7 @@ zzh死了这么好的歌都没怎么宣传过
 ##### 2449#       发表于 2019-12-28 14:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer"> 这楼终于不是倒序了啊 
-
-
-
-
-
 
 
 -----
@@ -39676,16 +27282,9 @@ zzh死了这么好的歌都没怎么宣传过
 ##### 2450#       发表于 2019-12-28 18:00
 
 
-
-
 之前有些紫粉没有危机感还老鄙视绿粉撕人撕得疯魔，现在一搞到自己头上跳得比谁都高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -39694,16 +27293,9 @@ zzh死了这么好的歌都没怎么宣传过
 ##### 2451#       发表于 2019-12-29 01:07
 
 
-
-
 年底这7单跳的完美无缺啊……找不出毛病……techi最近身体状况非常好
 
 —— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -39712,15 +27304,9 @@ zzh死了这么好的歌都没怎么宣传过
 ##### 2452#       发表于 2019-12-29 01:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">这个版本的黑羊真是太棒了（其他版本的也很好）。
 
 只是这首歌上舞台的次数真的不多。
-
-
-
-
-
 
 
 -----
@@ -39729,14 +27315,7 @@ zzh死了这么好的歌都没怎么宣传过
 ##### 2453#       发表于 2019-12-31 21:05
 
 
-
-
 红白算是平平安安过去了，明年恢复到一年三单不过分吧
-
-
-
-
-
 
 
 -----
@@ -39745,16 +27324,9 @@ zzh死了这么好的歌都没怎么宣传过
 ##### 2454#       发表于 2019-12-31 21:10
 
 
-
-
 techi最后吓到我了，不过能看到她笑就很开心了！
 
 —— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -39763,14 +27335,7 @@ techi最后吓到我了，不过能看到她笑就很开心了！
 ##### 2455#       发表于 2019-12-31 21:13
 
 
-
-
 最后那声喊的是啥，我以为破音了 也不像薄裤袜亚达啊
-
-
-
-
-
 
 
 -----
@@ -39779,14 +27344,7 @@ techi最后吓到我了，不过能看到她笑就很开心了！
 ##### 2456#       发表于 2019-12-31 21:17
 
 
-
-
 奶瓶组发的那张平被抬着的图<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -39795,16 +27353,9 @@ techi最后吓到我了，不过能看到她笑就很开心了！
 ##### 2457#       发表于 2019-12-31 21:22
 
 
-
-
 那张照片techi侧面很美啊……
 
 —— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -39813,14 +27364,7 @@ techi最后吓到我了，不过能看到她笑就很开心了！
 ##### 2458#       发表于 2019-12-31 21:24
 
 
-
-
 你平又倒了。。。
-
-
-
-
-
 
 
 -----
@@ -39829,16 +27373,9 @@ techi最后吓到我了，不过能看到她笑就很开心了！
 ##### 2459#       发表于 2019-12-31 21:26
 
 
-
-
 身体还是不够强壮，决定了，明年继续唱不协和音
 
 今年既然不唱黑羊，唱矛盾都比不协和音强
-
-
-
-
-
 
 
 -----
@@ -39847,14 +27384,7 @@ techi最后吓到我了，不过能看到她笑就很开心了！
 ##### 2460#       发表于 2019-12-31 21:30
 
 
-
-
 明年TECHI应该不会上红白了。。所以不用担心
-
-
-
-
-
 
 
 -----
@@ -39863,24 +27393,15 @@ techi最后吓到我了，不过能看到她笑就很开心了！
 ##### 2461#       发表于 2019-12-31 21:31
 
 
-
-
 前年不和谐音，平直接直播中事故；今年还是不和谐音，平一个哭腔+瘆人的笑，之后还是被抬走了……
 
 我还是喜欢她一单二单时候那个天真无邪又稍微有一点点叛逆的少女感，心疼她为了表演完成一次又一次带着伤病咬牙坚持再坚持。就想知道运营啥时候能放过平？我还想看平再多上几年的红白啊
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2462#       发表于 2019-12-31 21:39
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201912/31/213721b3qgstxz5g88zgs4.jpg" referrerpolicy="no-referrer">
@@ -39891,8 +27412,6 @@ techi最后吓到我了，不过能看到她笑就很开心了！
 下载附件
 
 2019-12-31 21:37 上传
-
-
 
 
 <blockquote>欅坂46が紅白では2年ぶりに「不協和音」を披露し、リベンジを果たした。
@@ -39912,27 +27431,15 @@ techi最后吓到我了，不过能看到她笑就很开心了！
 问题不算很大，歇一下就OK了，今天平手算很进入状态了，以后还是别他么唱四单了
 
 
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2463#       发表于 2020-1-1 11:38
 
 
-
-
 2020了，希望绿团赶紧把9单发了，团里的人都平平安安……最好就能来一次上海，虽然那主办方据说挺垃圾的，最后就是techi能平安毕业，再出本写真集就圆满了……
 
 —— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -39941,15 +27448,9 @@ techi最后吓到我了，不过能看到她笑就很开心了！
 ##### 2464#       发表于 2020-1-1 11:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46053035&amp;ptid=1340143" target="_blank">Layor Rik 发表于 2020-1-1 11:38</a>
 2020了，希望绿团赶紧把9单发了，团里的人都平平安安……最好就能来一次上海，虽然那主办方据说挺垃圾的， ...</blockquote>
 倪萍昨天已经是横着出去了，来上海怕是要icu
-
-
-
-
-
 
 
 -----
@@ -39958,16 +27459,10 @@ techi最后吓到我了，不过能看到她笑就很开心了！
 ##### 2465#       发表于 2020-1-1 11:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46053048&amp;ptid=1340143" target="_blank">seedees3 发表于 2020-1-1 11:40</a>
 
 倪萍昨天已经是横着出去了，来上海怕是要icu</blockquote>
 所以我前面说了平平安安
-
-
-
-
-
 
 
 -----
@@ -39976,31 +27471,15 @@ techi最后吓到我了，不过能看到她笑就很开心了！
 ##### 2466#       发表于 2020-1-6 21:52
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2467#       发表于 2020-1-7 00:06
 
 
-
-
 乃团3.25，晌2.19，大概绿团要4月多？
 
 —— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -40009,14 +27488,7 @@ techi最后吓到我了，不过能看到她笑就很开心了！
 ##### 2468#       发表于 2020-1-8 00:12
 
 
-
-
 4月多就又是春单了，曲子风格都不同了吧，春单走严肃类的
-
-
-
-
-
 
 
 -----
@@ -40025,15 +27497,8 @@ techi最后吓到我了，不过能看到她笑就很开心了！
 ##### 2469#       发表于 2020-1-12 15:01
 
 
-
-
 借专楼分享下自己渣翻的TAKAHIRO先生专访，上欅课咯~<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 [https://www.bilibili.com/read/cv4335081](https://www.bilibili.com/read/cv4335081)
-
-
-
-
-
 
 
 -----
@@ -40042,21 +27507,13 @@ techi最后吓到我了，不过能看到她笑就很开心了！
 ##### 2470#       发表于 2020-1-12 15:12
 
 
-
-
 这帖子回复正常顺序了？
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2471#       发表于 2020-1-14 17:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46162202&amp;ptid=1340143" target="_blank">mmyn321 发表于 2020-1-12 15:01</a>
@@ -40067,33 +27524,19 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 +2   看到已经加不了鹅了
 
 
-
-
-
-
-
 -----
 
 ####  衛藤美彩  
 ##### 2472#       发表于 2020-1-23 20:06
 
 
-
-
 欅坂地震了
-
-
-
-
-
 
 
 -----
 
 ####  新HGCG  
 ##### 2473#       发表于 2020-1-23 20:08
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202001/23/200829e9gu8k4gox19k2uq.png" referrerpolicy="no-referrer">
@@ -40106,29 +27549,13 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 2020-1-23 20:08 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  TSST  
 ##### 2474#       发表于 2020-1-23 20:10
 
 
-
-
 笑死了
-
-
-
-
-
 
 
 -----
@@ -40137,14 +27564,7 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 ##### 2475#       发表于 2020-1-23 20:13
 
 
-
-
 我哭的好大声。。。今泉睡睡小平都走了。。欅共和国要亡<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -40153,14 +27573,7 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 ##### 2476#       发表于 2020-1-23 20:14
 
 
-
-
 也好，终于有机会看到一个新c了
-
-
-
-
-
 
 
 -----
@@ -40169,13 +27582,7 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 ##### 2477#       发表于 2020-1-23 20:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -40184,20 +27591,13 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 ##### 2478#       发表于 2020-1-23 20:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还好，还没到最严重的的程度
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2479#       发表于 2020-1-23 20:21
-
 
 
  本帖最后由 芍药 于 2020-1-23 20:47 编辑 
@@ -40214,9 +27614,6 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 2020-1-23 20:39 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/202001/23/204703fq58h1uz1g8827a5.jpg" referrerpolicy="no-referrer">
 
 
@@ -40227,30 +27624,13 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 2020-1-23 20:47 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 2480#       发表于 2020-1-23 20:22
 
 
-
-
 我整个人傻了，两毕业一退团，用的字眼甚至不是毕业
-
-
-
-
-
 
 
 -----
@@ -40259,16 +27639,9 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 ##### 2481#       发表于 2020-1-23 20:39
 
 
-
-
 对双方都是好事啊！平手可以尽情放飞自我，欅坂可以走自己的路。
 
 —— 来自 samsung SM-A9080, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -40277,16 +27650,9 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 ##### 2482#       发表于 2020-1-23 20:51
 
 
-
-
 大新闻<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">平没了团员毕业了，二期还没参过单曲，绿团神棍料事如神
 
 —— 来自 HMD Global Nokia X7, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -40295,16 +27661,9 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 ##### 2483#       发表于 2020-1-23 20:57
 
 
-
-
 出了一身冷汗后难过的要死……
 
 —— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -40313,14 +27672,7 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 ##### 2484#       发表于 2020-1-23 21:02
 
 
-
-
 不愧是欅世界观<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -40329,14 +27681,7 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 ##### 2485#       发表于 2020-1-23 21:09
 
 
-
-
 这走向是真看不懂了
-
-
-
-
-
 
 
 -----
@@ -40345,14 +27690,7 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 ##### 2486#       发表于 2020-1-23 21:28
 
 
-
-
 这一波简直是神奇了，不知道接下来ZZH准备怎么办。
-
-
-
-
-
 
 
 -----
@@ -40361,14 +27699,7 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 ##### 2487#       发表于 2020-1-23 21:47
 
 
-
-
 放了个四年的烟花
-
-
-
-
-
 
 
 -----
@@ -40377,14 +27708,7 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 ##### 2488#       发表于 2020-1-23 21:56
 
 
-
-
 不愧是阿提斯特，SOL直接说毕业这个事情我不想说，有心情了再告诉你们，先听歌
-
-
-
-
-
 
 
 -----
@@ -40393,16 +27717,9 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 ##### 2489#       发表于 2020-1-23 22:11
 
 
-
-
 喜极而泣，日盼夜盼终于盼来脱离苦海这一天
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -40411,14 +27728,7 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 ##### 2490#       发表于 2020-1-23 22:29
 
 
-
-
 唉，她真的好累 
-
-
-
-
-
 
 
 -----
@@ -40427,14 +27737,7 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 ##### 2491#       发表于 2020-1-23 22:31
 
 
-
-
 不是挺好的吗，楼上想看的新C来了
-
-
-
-
-
 
 
 -----
@@ -40443,14 +27746,7 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 ##### 2492#       发表于 2020-1-23 23:20
 
 
-
-
 等于是打回重练么
-
-
-
-
-
 
 
 -----
@@ -40459,11 +27755,9 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 ##### 2493#       发表于 2020-1-23 23:32
 
 
-
 之后会solo活动，不算是跟索尼闹掰
 
 欅坂46のセンター平手友梨奈（18）が、グループから脱退することが23日、分かった。グループの公式サイトで発表された。平手本人の意思を尊重して「卒業」ではなく「脱退」という言葉を使う形になったという。今後はソロで活動するとみられるが、詳細は未定。
-
 
 
 <img src="https://img.saraba1st.com/forum/202001/23/233127z545tak072ja7aq0.jpg" referrerpolicy="no-referrer">
@@ -40476,24 +27770,10 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 2020-1-23 23:31 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Kaiserkay  
 ##### 2494#       发表于 2020-1-23 23:36
-
-
 
 
 平手这个时间点突然跑路确实意想不到，但拖到现在才毕业已经是仁义尽致，铃本织田早就走完毕业冷藏流程了
@@ -40501,17 +27781,10 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 佐藤进了选拔，前段时间活动也正常还休才是最意外，估计一期很多人都这个心理状态了，但再走的话人不够用所以留着，研修生可能要分很多给绿
 
 
-
-
-
-
-
 -----
 
 ####  Demi.Albertini  
 ##### 2495#       发表于 2020-1-23 23:44
-
-
 
 
 脱退=解约
@@ -40522,32 +27795,19 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 差不多这么理解可以吧
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2496#       发表于 2020-1-23 23:52
 
 
-
-
 之后应该是签肥秋或者索尼吧，照这口吻来看的话
-
-
-
-
-
 
 
 -----
 
 ####  Layor Rik  
 ##### 2497#       发表于 2020-1-23 23:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46229752&amp;ptid=1340143" target="_blank">Demi.Albertini 发表于 2020-1-23 23:44</a>
@@ -40559,17 +27819,10 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 —— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  Enchantz  
 ##### 2498#       发表于 2020-1-24 00:31
-
-
 
 
 ......
@@ -40579,32 +27832,19 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 —— 来自 samsung SM-G973U, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  07579394  
 ##### 2499#       发表于 2020-1-24 09:15
 
 
-
-
 自己想用脱退一词，不由想到桃草蓝的早见Akari，意思是自己还未能达到团队的目标就离开了，所以不能称为毕业，算是一种谦逊的说辞吧
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2500#       发表于 2020-1-24 15:55
-
 
 
  本帖最后由 芍药 于 2020-1-24 15:57 编辑 
@@ -40617,26 +27857,13 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 <img src="https://p.sda1.dev/0/4d74dbb0284948e73f5cf0f4dd7b94d9/img-8af8b2970ce25cdbcbe41507da1a65d7.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 2501#       发表于 2020-1-28 14:16
 
 
-
-
 东蛋真好看，小平的伤也是真的心疼<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -40645,22 +27872,13 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 ##### 2502#       发表于 2020-1-28 16:11
 
 
-
-
 东蛋明天发今天也该偷跑了吧，正好这几天看
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2503#       发表于 2020-1-31 20:04
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202001/31/195639rdic0trtn74t4zwz.jpg" referrerpolicy="no-referrer">
@@ -40673,10 +27891,6 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 2020-1-31 19:56 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202001/31/195614ozacr31y5cacebk3.jpg" referrerpolicy="no-referrer">
 
 
@@ -40685,10 +27899,6 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 下载附件
 
 2020-1-31 19:56 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202001/31/195601a227z7xs76zs2lm2.jpg" referrerpolicy="no-referrer">
@@ -40701,10 +27911,6 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 2020-1-31 19:56 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202001/31/195556uf2v1nm3fyjoum2f.jpg" referrerpolicy="no-referrer">
 
 
@@ -40713,10 +27919,6 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 下载附件
 
 2020-1-31 19:55 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202001/31/195548ehnf1qodj4ffb9kn.jpg" referrerpolicy="no-referrer">
@@ -40729,10 +27931,6 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 2020-1-31 19:55 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202001/31/195530it0at04zeqh9bhre.jpg" referrerpolicy="no-referrer">
 
 
@@ -40741,10 +27939,6 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 下载附件
 
 2020-1-31 19:55 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202001/31/195439qnfx2nz5f5kfn2pn.jpg" referrerpolicy="no-referrer">
@@ -40757,10 +27951,6 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 2020-1-31 19:54 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202001/31/195429d474e6xxvxje7mzp.jpg" referrerpolicy="no-referrer">
 
 
@@ -40769,10 +27959,6 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 下载附件
 
 2020-1-31 19:54 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202001/31/195411n7ri5f1z77ionirp.jpg" referrerpolicy="no-referrer">
@@ -40785,10 +27971,6 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 2020-1-31 19:54 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202001/31/195350xjcjoscuvzzu425c.jpg" referrerpolicy="no-referrer">
 
 
@@ -40797,10 +27979,6 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 下载附件
 
 2020-1-31 19:53 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202001/31/195349bwmyqsm60y6dmtqw.jpg" referrerpolicy="no-referrer">
@@ -40813,10 +27991,6 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 2020-1-31 19:53 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202001/31/195349fdd3ojb3j0jo0d44.jpg" referrerpolicy="no-referrer">
 
 
@@ -40827,46 +28001,15 @@ https://www.bilibili.com/read/cv4335081 ...</blockquote>
 2020-1-31 19:53 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Layor Rik  
 ##### 2504#       发表于 2020-2-4 00:08
 
 
-
-
 sol还有两次，不知道以后上哪听平手的声音了……
 
 —— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -40875,14 +28018,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2505#       发表于 2020-2-4 00:12
 
 
-
-
 希望平手今年有一系列新活动
-
-
-
-
-
 
 
 -----
@@ -40893,21 +28029,13 @@ sol还有两次，不知道以后上哪听平手的声音了……
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  芍药  
 ##### 2507#       发表于 2020-2-5 14:05
 
 
-
-
 东蛋碟片初动九万八，剪辑是真的不行
-
-
-
-
-
 
 
 -----
@@ -40916,14 +28044,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2508#       发表于 2020-2-6 00:34
 
 
-
-
 东蛋这个全损音质真的服了，是故意的还是没时间修了？<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -40932,14 +28053,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2509#       发表于 2020-2-6 04:54
 
 
-
-
 赶着平手脱退这事的热度上吧，不然碟片不可能卖到这么高
-
-
-
-
-
 
 
 -----
@@ -40948,14 +28062,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2510#       发表于 2020-2-6 16:11
 
 
-
-
 话说之后会再出一期欅写公布九单的新阵容吧
-
-
-
-
-
 
 
 -----
@@ -40964,18 +28071,12 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2511#       发表于 2020-2-16 20:09
 
 
-
-
 紫5绿6蓝3，来绿的还是有几个我蛮喜欢的，是嘎巴一声崩掉还是奇迹续命就看下九单出来了
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -40985,12 +28086,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 | 上古古难记录者| + 1|目前索然无味，望将来能真香。.|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -40999,24 +28095,15 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2512#       发表于 2020-2-20 01:38
 
 
-
-
 蓝蓝四单今天发售了，九单还是一点消息都没有，大部分成员这几个月行程都是查无此人
 
 —— 来自 samsung SM-G973U, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
 
 ####  林哲玄  
 ##### 2513#       发表于 2020-2-20 01:47
-
-
 
 
 最近放出来小林C的三首曲子
@@ -41028,17 +28115,10 @@ sol还有两次，不知道以后上哪听平手的声音了……
 2.2期真香，就是明明喜欢乃木坂的成员希望以后可以少提一些这方面的话题……
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2514#       发表于 2020-2-20 14:27
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202002/20/142639l4wzzj5ct5p4j4gu.png" referrerpolicy="no-referrer">
@@ -41051,9 +28131,6 @@ sol还有两次，不知道以后上哪听平手的声音了……
 2020-2-20 14:26 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/202002/20/142640fafudd6d6kn7add9.jpg" referrerpolicy="no-referrer">
 
 
@@ -41064,24 +28141,13 @@ sol还有两次，不知道以后上哪听平手的声音了……
 2020-2-20 14:26 上传
 
 
-
-
-
-
-
 下岗再就业，平手在sol上的图来看瘦了好多
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2515#       发表于 2020-2-20 14:28
-
 
 
  本帖最后由 芍药 于 2020-2-20 14:31 编辑 
@@ -41094,17 +28160,10 @@ sol还有两次，不知道以后上哪听平手的声音了……
 自信一点，蓝五单跟绿九单同时出<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">加上之后新的欅写选拔预热，再录歌拍MV，九单可能真得要五六月才出来
 
 
-
-
-
-
-
 -----
 
 ####  Enchantz  
 ##### 2516#       发表于 2020-2-27 03:47
-
-
 
 
 [cp]#欅坂46[超话]#日刊スポーツ
@@ -41115,25 +28174,13 @@ sol还有两次，不知道以后上哪听平手的声音了……
 —— 来自 samsung SM-G973U, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 2517#       发表于 2020-2-27 05:08
 
 
-
-
 平给出场费吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">一股敲骨吸髓感，敢不敢记录一下自己是怎么把好牌打成这样的
-
-
-
-
-
 
 
 -----
@@ -41142,16 +28189,9 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2518#       发表于 2020-2-27 07:10
 
 
-
-
 标题那么巨魔，内容估计没什么
 
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -41160,16 +28200,10 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2519#       发表于 2020-2-27 08:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46539689&amp;ptid=1340143" target="_blank">圈量子 发表于 2020-02-27 05:08:41</a>
 平给出场费吗一股敲骨吸髓感，敢不敢记录一下自己是怎么把好牌打成这样的 ...</blockquote>怕不是责任全推平手，运营成功洗白<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -41178,13 +28212,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2520#       发表于 2020-2-27 09:25
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不指望爆什么猛料，能做到乃团第一部纪录片那个程度就行
-
-
-
-
-
 
 
 -----
@@ -41193,22 +28221,13 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2521#       发表于 2020-2-27 12:23
 
 
-
-
 能有什么爆料的，纪录片也就是公司想给你看什么你就看什么而已
-
-
-
-
-
 
 
 -----
 
 ####  芍药  
 ##### 2522#       发表于 2020-2-27 15:12
-
-
 
 
 能有什么爆料的，都是无关紧要的小细节，毕竟平手走了这么一件大事，等于是欅坂第一阶段的完全结束了。正常来说放点她几次伤退的情况，其他毕业成员的情况，目前现状的说明，还有对二期的期望就顶天了
@@ -41226,29 +28245,13 @@ sol还有两次，不知道以后上哪听平手的声音了……
 2020-2-27 15:11 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 2523#       发表于 2020-2-27 15:25
 
 
-
    难得一见的翻拍黑羊，很用心
-
-
-
-
-
 
 
 -----
@@ -41257,20 +28260,14 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2524#       发表于 2020-3-30 11:01
 
 
-
-
 775毕业发表，药丸的团和已经dead了的专楼<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 —— 来自 samsung SM-G973U, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -41280,12 +28277,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 | 上古古难记录者| + 2|這不是因为卡九了麽|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -41294,19 +28286,14 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2525#       发表于 2020-3-30 11:31
 
 
-
  本帖最后由 石傅 于 2020-3-30 11:32 编辑 
 
 怎么又把湾湾常爱讲的这句“親愛精誠 毋忘在莒”放出来了，这是当年常凯申号召反攻大陆的口号，常被湾湾调侃成“无望再举”
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -41316,20 +28303,13 @@ sol还有两次，不知道以后上哪听平手的声音了……
 | 上古古难记录者| + 2|吃枣曜卍|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  beautice  
 ##### 2526#       发表于 2020-3-30 13:12
-
-
 
 
 梦该醒了，绿色的烟花转瞬即逝。不知道pe酱现在是什么感受……还是21个人，但已经是完全不一样的欅了，很好奇接下来运营会是什么思路。继续发展基本就是二期生为核心了，担子想想都觉得重。
@@ -41339,13 +28319,9 @@ sol还有两次，不知道以后上哪听平手的声音了……
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -41355,12 +28331,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 | 上古古难记录者| + 2|最后还能劈个叉也不错是么|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -41369,18 +28340,12 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2527#       发表于 2020-3-30 16:01
 
 
-
-
 一期都跑一半了，真不如解散算了
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -41390,12 +28355,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 | 上古古难记录者| + 2|不为尧存 不为桀亡|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -41404,14 +28364,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2528#       发表于 2020-4-10 01:47
 
 
-
-
 我就等着九单出来看会不会断了我的念想了（如果今年能出的话
-
-
-
-
-
 
 
 -----
@@ -41420,18 +28373,12 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2529#       发表于 2020-4-21 16:11
 
 
-
-
 这种在cm里找歌听的日子什么时候能结束。。。
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -41441,12 +28388,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 | 上古古难记录者| + 2|人挪死树挪活（|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -41455,18 +28397,12 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2530#       发表于 2020-5-26 23:47
 
 
-
-
 小影山复归（
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -41476,12 +28412,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 | 上古古难记录者| + 2|詩織回来開工咋不见妳們发帖！.|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -41490,16 +28421,10 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2531#       发表于 2020-5-26 23:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47571539&amp;ptid=1340143" target="_blank">長友彩海 发表于 2020-5-26 23:47</a>
 
 小影山复归（</blockquote>
 休业的时候还是假名，姑且能发到这楼吧
-
-
-
-
-
 
 
 -----
@@ -41508,16 +28433,10 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2532#       发表于 2020-5-27 00:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47571549&amp;ptid=1340143" target="_blank">長友彩海 发表于 2020-5-26 23:48</a>
 
 休业的时候还是假名，姑且能发到这楼吧</blockquote>
 怎么感觉很久了，一年？
-
-
-
-
-
 
 
 -----
@@ -41526,16 +28445,10 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2533#       发表于 2020-5-27 00:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47571782&amp;ptid=1340143" target="_blank">芍药 发表于 2020-5-27 00:16</a>
 
 怎么感觉很久了，一年？</blockquote>
 从休业前最后一篇博客来看，过几天就两周年了
-
-
-
-
-
 
 
 -----
@@ -41544,16 +28457,10 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2534#       发表于 2020-5-27 01:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47571897&amp;ptid=1340143" target="_blank">長友彩海 发表于 2020-5-27 00:29</a>
 
 从休业前最后一篇博客来看，过几天就两周年了</blockquote>
 两年.....现在回来的话形式完全调转了，蓝比绿发展前景好
-
-
-
-
-
 
 
 -----
@@ -41562,18 +28469,12 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2535#       发表于 2020-6-7 12:56
 
 
-
-
 775要结婚了 祝福
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -41583,12 +28484,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 | 上古古难记录者| + 2|祝福！|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -41597,14 +28493,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2536#       发表于 2020-6-7 13:10
 
 
-
-
 短短四年 欅也成为时泪了吗
-
-
-
-
-
 
 
 -----
@@ -41613,18 +28502,12 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2537#       发表于 2020-6-7 22:18
 
 
-
-
 775这个爆料太顶了，在籍结婚<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -41634,19 +28517,13 @@ sol还有两次，不知道以后上哪听平手的声音了……
 | 上古古难记录者| + 2|开这个马甲来说这些事太草了！.|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  衛藤美彩  
 ##### 2538#       发表于 2020-6-8 00:28
-
 
 
 [https://twitter.com/Suzurekku_shu/status/1269620467507163138](https://twitter.com/Suzurekku_shu/status/1269620467507163138)
@@ -41662,19 +28539,9 @@ sol还有两次，不知道以后上哪听平手的声音了……
 2020-6-8 00:27 上传
 
 
-
-
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +4
@@ -41685,12 +28552,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 | 上古古难记录者| + 2|年收8000萬！8000萬！！|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -41699,20 +28561,15 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2539#       发表于 2020-6-8 03:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47708403&amp;ptid=1340143" target="_blank">luffy800 发表于 2020-6-7 12:56</a>
 
 775要结婚了 祝福</blockquote>
 ？？？结婚？？？
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -41722,12 +28579,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 | 上古古难记录者| + 2|据说是2月订婚，8月结婚。|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -41736,14 +28588,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2540#       发表于 2020-6-9 17:51
 
 
-
-
 这个局势能赶在夏天发单吗，下下个星期的欅写希望有消息。
-
-
-
-
-
 
 
 -----
@@ -41752,14 +28597,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2541#       发表于 2020-6-9 17:52
 
 
-
-
 顺便楼上misa马甲那位真是太努力了w
-
-
-
-
-
 
 
 -----
@@ -41768,14 +28606,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2542#       发表于 2020-6-9 19:26
 
 
-
-
 小平手是天生的演员啊，在村里反而会限制她施展拳脚，还年轻，祝福她吧
-
-
-
-
-
 
 
 -----
@@ -41784,13 +28615,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2543#       发表于 2020-6-10 00:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">希望今年能出9单吧。四年了一期生有毕业的有退团的，如果绿团能继续下去粉丝也会很开心的
-
-
-
-
-
 
 
 -----
@@ -41799,14 +28624,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2544#       发表于 2020-6-12 15:54
 
 
-
-
 775更新博客，核心内容：本来我想自肃来着，但是看到大家这么热情我不出来也不好，所以目前的各种活动还会继续<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -41815,14 +28633,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2545#       发表于 2020-7-4 15:53
 
 
-
-
 看看今晚还能搞出来啥，要不是九单或者19欅共的话，只能是解散了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -41831,18 +28642,12 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2546#       发表于 2020-7-7 22:39
 
 
-
-
 你们的睡皇正式复出了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -41852,12 +28657,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 | 上古古难记录者| + 2|開心|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -41866,18 +28666,12 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2547#       发表于 2020-7-7 22:42
 
 
-
-
 长滨大帝回到她忠诚的种子花
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -41887,12 +28681,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 | 上古古难记录者| + 2|開心|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -41901,18 +28690,12 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2548#       发表于 2020-7-7 22:48
 
 
-
-
 睡觉感觉长高了（？）
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -41922,12 +28705,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 | 上古古难记录者| + 2|開心|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -41936,18 +28714,12 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2549#       发表于 2020-7-7 23:28
 
 
-
-
 不推绿团但很喜欢绿团的歌舞，想问下黑羊之后绿团还有哪些高素质单曲
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -41957,12 +28729,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 | 上古古难记录者| + 2|回到森林去吧 怪人 你不在|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -41971,19 +28738,13 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2550#       发表于 2020-7-7 23:44
 
 
-
-
 活得久什么都能见证到啊
 1号见桥7号见睡
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -41993,12 +28754,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 | 上古古难记录者| + 2|開心|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -42007,16 +28763,9 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2551#       发表于 2020-7-17 23:18
 
 
-
-
 居然没人来发九单和改名
 
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -42025,15 +28774,9 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2552#       发表于 2020-7-17 23:22
 
 
-
  本帖最后由 自由的lu 于 2020-7-17 23:31 编辑 
 
 欅共2019碟cm居然是在手游里做起来了
-
-
-
-
-
 
 
 -----
@@ -42042,14 +28785,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2553#       发表于 2020-7-17 23:30
 
 
-
-
 樱坂加油！
-
-
-
-
-
 
 
 -----
@@ -42058,17 +28794,10 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2554#       发表于 2020-7-17 23:38
 
 
-
-
 睡帝归来，欅共解体。
 其实是好事。
 
 —— 来自 samsung SM-A9080, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -42077,17 +28806,10 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2555#       发表于 2020-7-17 23:40
 
 
-
-
 有一说一，ONLINE LIVE的舞台效果是真的好，好几首都拍出了MV的效果<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
 
 再回头看东蛋……<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -42096,16 +28818,9 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2556#       发表于 2020-7-17 23:52
 
 
-
-
 欅共和国，三年而亡
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -42114,23 +28829,15 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2557#       发表于 2020-7-17 23:54
 
 
-
-
 这两天一直没缓过来<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">不知道有没有可能看到原9单的mv
 
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
 
 ####  xyhero  
 ##### 2558#       发表于 2020-7-17 23:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48138494&amp;ptid=1340143" target="_blank">mmyn321 发表于 2020-7-17 23:54</a>
@@ -42142,25 +28849,13 @@ sol还有两次，不知道以后上哪听平手的声音了……
 看8月那个配信会不会带MV了，大概率是没有的。
 
 
-
-
-
-
-
 -----
 
 ####  SHANAOO  
 ##### 2559#       发表于 2020-7-18 00:12
 
 
-
-
 看这楼的时候一直有bug，永无止尽的第一页，这次之后突然能看了
-
-
-
-
-
 
 
 -----
@@ -42169,22 +28864,13 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2560#       发表于 2020-7-18 00:31
 
 
-
-
 欅字太难写，要改
-
-
-
-
-
 
 
 -----
 
 ####  rzrbtk  
 ##### 2561#       发表于 2020-7-18 00:50
-
-
 
 
 我也很喜欢这回的live，以前看二期直面会夏铃nobody片段馋得不行，这回终于完整看到了，
@@ -42198,26 +28884,15 @@ sol还有两次，不知道以后上哪听平手的声音了……
 但果然还是可惜，如果早知要结束，不如就结束在二人季节吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  衛藤美彩  
 ##### 2562#       发表于 2020-7-18 03:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48138749&amp;ptid=1340143" target="_blank">SHANAOO 发表于 2020-7-18 00:12</a>
 看这楼的时候一直有bug，永无止尽的第一页，这次之后突然能看了</blockquote>
 应该起码两个月之前就被修好了
-
-
-
-
-
 
 
 -----
@@ -42226,14 +28901,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2563#       发表于 2020-7-18 05:24
 
 
-
-
 这次演出舞台效果真好，这消息……是好事呀.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -42242,14 +28910,7 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2564#       发表于 2020-7-18 05:29
 
 
-
-
 无望再举
-
-
-
-
-
 
 
 -----
@@ -42258,16 +28919,10 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2565#       发表于 2020-7-18 13:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48065372&amp;ptid=1340143" target="_blank">rzrbtk 发表于 2020-7-4 15:53</a>
 
 看看今晚还能搞出来啥，要不是九单或者19欅共的话，只能是解散了</blockquote>
 这预言，三个都中了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -42276,14 +28931,9 @@ sol还有两次，不知道以后上哪听平手的声音了……
 ##### 2566#       发表于 2020-7-18 13:28
 
 
-
-
 谢谢大家一直以来的陪伴以及优秀的歌曲mv表演。
 
 五妹毕业我以为是一个“开始”的完结，睡觉毕业我依然这么认为，直到平手毕业我才知道这原来是“完结”的开始，当前三人都离开的时候团队分崩离析就是眼前的事...希望她们能在之后的位置继续发光发热。
-
-
-
 
 
               

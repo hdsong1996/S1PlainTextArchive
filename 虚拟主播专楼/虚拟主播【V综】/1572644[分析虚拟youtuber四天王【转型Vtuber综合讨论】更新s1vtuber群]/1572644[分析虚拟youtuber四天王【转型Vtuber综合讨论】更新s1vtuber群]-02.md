@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2020-02-11 20:44** 
 
 
-
 -----
 
 ####  气流季里  
 ##### 1501#       发表于 2018-3-9 10:15
-
 
 
 <blockquote>xiangcaihtr 发表于 2018-3-9 03:32
@@ -17,17 +15,10 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">喷了
 
 
-
-
-
-
-
 -----
 
 ####  zpbzpb123123  
 ##### 1502#       发表于 2018-3-9 10:16
-
-
 
 
 推荐一个唱歌很好听的虚拟Youtuber：
@@ -36,33 +27,20 @@
 [https://www.youtube.com/channel/UCHV-tYWznbEMFWoT0_oKmLQ](https://www.youtube.com/channel/UCHV-tYWznbEMFWoT0_oKmLQ)
 
 
-
-
-
-
-
 -----
 
 ####  气流季里  
 ##### 1503#       发表于 2018-3-9 10:24
 
 
-
-
 Youtube今天给我推荐的视频真有意思。
 [バーチャルYouTuberたちの百合営業シーン集](https://youtu.be/jeWsnAMDCXM)
-
-
-
-
-
 
 
 -----
 
 ####  walfeds  
 ##### 1504#       发表于 2018-3-9 10:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38789064&amp;ptid=1572644" target="_blank">白白白 发表于 2018-3-8 23:40</a>
@@ -73,16 +51,10 @@ Youtube今天给我推荐的视频真有意思。
 不过op结束的时候应该来个提供杀就不唐突了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 1505#       发表于 2018-3-9 10:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38791440&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-9 09:23</a>
@@ -93,16 +65,10 @@ Youtube今天给我推荐的视频真有意思。
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">然而原曲作者gyari看起来目前确实在给猫宫团队帮忙。。。op和ed卡都是他画的
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 1506#       发表于 2018-3-9 10:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38792208&amp;ptid=1572644" target="_blank">气流季里 发表于 2018-3-9 10:24</a>
@@ -113,32 +79,19 @@ Youtube今天给我推荐的视频真有意思。
 这视频应该全程配上某艾琳惯用bgm。。。
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1507#       发表于 2018-3-9 11:42
 
 
-
-
 组长要和运营好好思考了，现在新强这么多，不好好弄早晚会被超过
-
-
-
-
-
 
 
 -----
 
 ####  横寺阳人  
 ##### 1508#       发表于 2018-3-9 12:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38792439&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-9 10:41</a>
@@ -150,17 +103,10 @@ Youtube今天给我推荐的视频真有意思。
 可是你妈的不要出现头像比例不对这种低级错误好么，好难受，神tmd16:9看吃鸡4:3看猫宫
 
 
-
-
-
-
-
 -----
 
 ####  noneoneone  
 ##### 1509#       发表于 2018-3-9 12:12
-
-
 
 
 还真是，回头看猫宫的第一个吃鸡视频，ed卡就署名了gyari。
@@ -169,16 +115,10 @@ Youtube今天给我推荐的视频真有意思。
 以及，设定是安全裤加条纹袜，可是OP里面只用同一种颜色，看着像是外面只穿了件条纹裤袜。。。
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 1510#       发表于 2018-3-9 12:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38793450&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-9 12:04</a>
@@ -192,25 +132,13 @@ Youtube今天给我推荐的视频真有意思。
 目前看来技术力方面确实比较迷，#00开始那部分我真要怀疑是mmd了。。。
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 1511#       发表于 2018-3-9 13:14
 
 
-
-
 组长那边一直都没什么方向**，初始设定还是清纯系电脑AI，之前做了一百多个意义不明的视频，因为サイコ要素火起来之后才加上军用战斗AI白海豚的设定走现在的路线
-
-
-
-
-
 
 
 -----
@@ -219,24 +147,16 @@ Youtube今天给我推荐的视频真有意思。
 ##### 1512#       发表于 2018-3-9 13:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38790680&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-9 07:49</a>
 
 猫宫超爱酱想太多，我感觉极限是luna下面…</blockquote>
 超不过小白的，现在猫宫涨势已经掉到2000多一天了，而且昨天还出了**。以之前一万一天的速度起码也要一个月才能超小白。除非猫宫像委员长那样偶尔搞点事情或者像akari昨天那样弄个大新闻，否则也就20多万的水平了
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 1513#       发表于 2018-3-9 13:30
-
-
 
 
 看了看game部的推，我只能说，做pm实况真浪费啊<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
@@ -251,10 +171,6 @@ Youtube今天给我推荐的视频真有意思。
 2018-3-9 13:29 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/09/132904w36gox7xxkmk1xku.jpg" referrerpolicy="no-referrer">
 
 
@@ -263,10 +179,6 @@ Youtube今天给我推荐的视频真有意思。
 下载附件
 
 2018-3-9 13:29 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/09/132903ri15xgigcoieg1xz.jpg" referrerpolicy="no-referrer">
@@ -279,10 +191,6 @@ Youtube今天给我推荐的视频真有意思。
 2018-3-9 13:29 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/09/132902lv0nli766w3y6i33.jpg" referrerpolicy="no-referrer">
 
 
@@ -293,23 +201,10 @@ Youtube今天给我推荐的视频真有意思。
 2018-3-9 13:29 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  snova搬运  
 ##### 1514#       发表于 2018-3-9 13:40
-
-
 
 
 虽然有时候确实节目脑洞过大过迷
@@ -319,16 +214,10 @@ Youtube今天给我推荐的视频真有意思。
 对这种中毒的人相信会疯狂追随下去的
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1515#       发表于 2018-3-9 13:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38794570&amp;ptid=1572644" target="_blank">snova搬运 发表于 2018-3-9 13:40</a>
@@ -341,16 +230,10 @@ Youtube今天给我推荐的视频真有意思。
 我也是组长的狂热粉，只是希望现在能盈利了，改善下设备和把VR生放送在扩大。VR生放这个真可惜，已经好几次生放没用上了。还有就是希望组长能多和其他人互动下或者联动，组长基本都只和自己的粉丝互动，不和其他打交道
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 1516#       发表于 2018-3-9 13:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38791954&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-03-09 10:05:17</a>
@@ -368,17 +251,10 @@ P丸的斋藤攻击性很强，akari有期节目回顾也说过录斋藤的时�
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Zxian49  
 ##### 1517#       发表于 2018-3-9 14:10
-
-
 
 
 猫宫实在太可爱了，游戏打得好，声音软软萌萌太喜欢了，op也超带感，就是建模...
@@ -390,33 +266,19 @@ luna粉丝竟然破50w，这不是已经超过akari了吗！厉害啊luna！新e
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  cxfdtc  
 ##### 1518#       发表于 2018-3-9 14:10
 
 
-
-
 完全被猫宫击沉了，节目效果满分，可爱。估计还是有好好规划的，吃鸡的编号都是X，#01实际还没出，希望借着这个势头更进一步吧。另外虽然订阅趋势可能缓了下来，但播放量走势还是比较喜人的，两期自我介绍在30-40万之间，首次吃鸡已经快120万了，最新一期已经15万了（发布14小时）
-
-
-
-
-
 
 
 -----
 
 ####  Zxian49  
 ##### 1519#       发表于 2018-3-9 14:13
-
-
 
 
 惊了猫宫第二期正常吃鸡那期视频，最后1v1的时候，咋tm那么可爱，啊啊啊的软软的啊啊啊啊啊啊啊受不了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
@@ -426,16 +288,10 @@ luna粉丝竟然破50w，这不是已经超过akari了吗！厉害啊luna！新e
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  zpbzpb123123  
 ##### 1520#       发表于 2018-3-9 14:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38794867&amp;ptid=1572644" target="_blank">Zxian49 发表于 2018-3-9 14:13</a>
@@ -446,16 +302,10 @@ luna粉丝竟然破50w，这不是已经超过akari了吗！厉害啊luna！新e
 这里就用这个做的改编
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 1521#       发表于 2018-3-9 14:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38793450&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-9 12:04</a>
@@ -466,16 +316,10 @@ luna粉丝竟然破50w，这不是已经超过akari了吗！厉害啊luna！新e
 你不说我还没发现，我说怎么猫宫的头好像大了一圈，放了个4：3上去也是绝了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  不灭的旋律  
 ##### 1522#       发表于 2018-3-9 14:37
-
 
 
  本帖最后由 不灭的旋律 于 2018-3-9 14:41 编辑 
@@ -485,22 +329,14 @@ luna粉丝竟然破50w，这不是已经超过akari了吗！厉害啊luna！新e
 小白走的就是正统youtuber路线啊，随便找个youtuber的频道大多数都是你说的意义不明的视屏。老爱就是向日本的youtuber帝王hikakin看齐，而小白则是模仿老爱，所以这两个人其实都是非常正统的youtuber。虽然小白现在是完全放飞自我，不过初期还没火起来的时候已经是各种问题发言了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
 多看小白的视频就可以看出她是没朋友系的人，不过小白每次直播都玩得很开心也邀请过狐娘大叔说明她不是没有交流意欲，只是她只和自己小圈子内的人玩不太去主动交流，四天王之外的vtouber只记得她提过v老太婆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要给建议的话可以多和人合作，比如在VR空间再和狐娘大叔合作一次，或者找akari来盘MHW都是可以的。最近好不容易把偶像设定捡起来了其实可以多唱唱歌，以前的绘本朗读其实也是非常棒的可以体验到小白的另一种魅力。游戏方面最好把评价高的游戏做成系列，现在每次换个游戏直播水平练不上去也容易尴尬。
 小白的问题一定都是app land的错！
-
-
-
-
-
-
 
 
 -----
 
 ####  触手姬  
 ##### 1523#       发表于 2018-3-9 14:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38794733&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-9 13:59</a>
@@ -513,16 +349,10 @@ luna粉丝竟然破50w，这不是已经超过akari了吗！厉害啊luna！新e
 这也太夸张了，可想而知luna录制的时候遇到各种各样的变态...
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 1524#       发表于 2018-3-9 14:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38794937&amp;ptid=1572644" target="_blank">白白白 发表于 2018-3-9 14:20</a>
@@ -531,16 +361,10 @@ luna粉丝竟然破50w，这不是已经超过akari了吗！厉害啊luna！新e
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我现在都怀疑搬运的是不是正在给猫宫的视频自己帮忙拉一下了……
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 1525#       发表于 2018-3-9 15:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38795237&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-03-09 14:47:25</a>
@@ -550,24 +374,13 @@ luna粉丝竟然破50w，这不是已经超过akari了吗！厉害啊luna！新e
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1526#       发表于 2018-3-9 15:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">猫宫这么保持下去没准能超越大叔，大叔最近摸鱼的严重，没点危机感吗
-
-
-
-
-
 
 
 -----
@@ -576,22 +389,15 @@ luna粉丝竟然破50w，这不是已经超过akari了吗！厉害啊luna！新e
 ##### 1527#       发表于 2018-3-9 15:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38795452&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-9 15:05</a>
 猫宫这么保持下去没准能超越大叔，大叔最近摸鱼的严重，没点危机感吗 ...</blockquote>
 大叔不是找到工作了吗，现在还记得更就已经不错了
-
-
-
-
-
 
 
 -----
 
 ####  Zxian49  
 ##### 1528#       发表于 2018-3-9 15:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38742764&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-4 23:04</a>
@@ -604,16 +410,10 @@ https://vrtokyo.connpass.com/event/77042/
 惊了为什么要iphonex<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1529#       发表于 2018-3-9 15:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38795555&amp;ptid=1572644" target="_blank">Zxian49 发表于 2018-3-9 15:13</a>
@@ -627,16 +427,10 @@ https://vrtokyo.connpass.com/event/77042/
 毒瘤彩虹社
 
 
-
-
-
-
-
 -----
 
 ####  Zxian49  
 ##### 1530#       发表于 2018-3-9 15:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38669904&amp;ptid=1572644" target="_blank">dystopiaground 发表于 2018-2-25 23:37</a>
@@ -645,16 +439,10 @@ https://vrtokyo.connpass.com/event/77042/
 惊了，想知道班长和洗衣机是什么梗
 
 
-
-
-
-
-
 -----
 
 ####  v2c  
 ##### 1531#       发表于 2018-3-9 15:25
-
 
 
  本帖最后由 v2c 于 2018-3-9 15:29 编辑 
@@ -670,27 +458,16 @@ https://vrtokyo.connpass.com/event/77042/
 2018-3-9 15:21 上传
 
 
-
-
-
-
-
 Akari看见过露O之前视频里提到过啊
 
 
 シロ的游戏实况真得想想办法了，虽然シロ本人一直强调自己游戏水平烂，但水平烂和对游戏操作与系统压根不做了解是两码事，老这么下去不说掉粉，起码我是不打算再看シロ的游戏实况了
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1532#       发表于 2018-3-9 15:27
-
 
 
  本帖最后由 触手姬 于 2018-3-9 15:34 编辑 
@@ -700,16 +477,10 @@ Akari看见过露O之前视频里提到过啊
 班长最开始直播的时候说自己被赶到洗衣机上直播了，然后诞生出各种和洗衣机相关的梗
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 1533#       发表于 2018-3-9 15:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38794733&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-03-09 13:59:56</a></blockquote>没想到这app变态这么多的<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
@@ -718,16 +489,10 @@ vtuber们做这节目真是为难他们了……
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Zxian49  
 ##### 1534#       发表于 2018-3-9 15:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38795721&amp;ptid=1572644" target="_blank">v2c 发表于 2018-3-9 15:25</a>
@@ -739,16 +504,10 @@ Akari看见过露O之前视频里提到过啊
 不是军用战斗型AI吗，怎么还烂啊
 
 
-
-
-
-
-
 -----
 
 ####  Porsche  
 ##### 1535#       发表于 2018-3-9 15:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38795703&amp;ptid=1572644" target="_blank">Zxian49 发表于 2018-3-9 15:24</a>
@@ -756,16 +515,10 @@ Akari看见过露O之前视频里提到过啊
 在自己家直播没地方，把笔记本放到洗衣机上直播，说启动的时候会咣当咣当的<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1536#       发表于 2018-3-9 15:51
-
 
 
  本帖最后由 触手姬 于 2018-3-9 15:54 编辑 
@@ -775,16 +528,10 @@ Akari看见过露O之前视频里提到过啊
 这个梗在虚拟youtuber还处于早期时出现的，主要用来对比爱酱，组长本身射击游戏能力还可以，但和真正的能手比起来还差不少差距
 
 
-
-
-
-
-
 -----
 
 ####  Zxian49  
 ##### 1537#       发表于 2018-3-9 15:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38795990&amp;ptid=1572644" target="_blank">Porsche 发表于 2018-3-9 15:49</a>
@@ -795,16 +542,10 @@ Akari看见过露O之前视频里提到过啊
 贫穷系女子超可爱啊哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Zxian49  
 ##### 1538#       发表于 2018-3-9 15:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38796005&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-9 15:51</a>
@@ -813,16 +554,10 @@ Akari看见过露O之前视频里提到过啊
 回帖辛苦了！！！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  卡蓮  
 ##### 1539#       发表于 2018-3-9 15:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38796007&amp;ptid=1572644" target="_blank">Zxian49 发表于 2018-3-9 15:51</a>
@@ -833,16 +568,10 @@ Akari看见过露O之前视频里提到过啊
 同类的还有吃草梗，班长学生时期吃遍各种杂草
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1540#       发表于 2018-3-9 15:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38796045&amp;ptid=1572644" target="_blank">Zxian49 发表于 2018-3-9 15:54</a>
@@ -851,16 +580,10 @@ Akari看见过露O之前视频里提到过啊
 现在说到组长基本不提军用AI，基本都是“清楚系”虚拟youtuber
 
 
-
-
-
-
-
 -----
 
 ####  Zxian49  
 ##### 1541#       发表于 2018-3-9 16:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38796078&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-9 15:57</a>
@@ -872,16 +595,10 @@ Akari看见过露O之前视频里提到过啊
 反讽吗<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1542#       发表于 2018-3-9 16:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38796108&amp;ptid=1572644" target="_blank">Zxian49 发表于 2018-3-9 16:00</a>
@@ -893,16 +610,10 @@ Akari看见过露O之前视频里提到过啊
 其实就清楚这词我本身没太理解，你可以看看nico的组长每天更新的视频
 
 
-
-
-
-
-
 -----
 
 ####  Zxian49  
 ##### 1543#       发表于 2018-3-9 16:04
-
 
 
  本帖最后由 Zxian49 于 2018-3-9 16:50 编辑 
@@ -910,16 +621,10 @@ Akari看见过露O之前视频里提到过啊
 影响不好编辑了吧
 
 
-
-
-
-
-
 -----
 
 ####  Zxian49  
 ##### 1544#       发表于 2018-3-9 16:07
-
 
 
  本帖最后由 Zxian49 于 2018-3-9 16:50 编辑 
@@ -937,21 +642,10 @@ Akari看见过露O之前视频里提到过啊
 2018-3-9 16:07 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 1545#       发表于 2018-3-9 16:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38796160&amp;ptid=1572644" target="_blank">Zxian49 发表于 2018-3-9 16:04</a>
@@ -962,17 +656,10 @@ shock。。。</blockquote>
 不是えれ子，えれ子的实力差猫宫很远
 
 
-
-
-
-
-
 -----
 
 ####  v2c  
 ##### 1546#       发表于 2018-3-9 16:20
-
-
 
 
 之前就说了配音和玩游戏的不是同一人啊，女性玩家要有这种水平早就火了还有什么必要披个Vtuber的马甲
@@ -981,16 +668,10 @@ shock。。。</blockquote>
 当然说是配音为了不穿帮肯定还是要选有一定水平的女性，FPS水平较高声线也不错的えれ子当然是最合适的
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 1547#       发表于 2018-3-9 16:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38796199&amp;ptid=1572644" target="_blank">Zxian49 发表于 2018-3-9 16:07</a>
@@ -1001,25 +682,13 @@ shock。。。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要不要百度一下钉宫长啥样啊
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1548#       发表于 2018-3-9 16:23
 
 
-
-
 现在质疑的人不少，除非猫宫开一次生放吃鸡，不然一直都会有质疑
-
-
-
-
-
 
 
 -----
@@ -1028,21 +697,13 @@ shock。。。</blockquote>
 ##### 1549#       发表于 2018-3-9 16:25
 
 
-
-
 要是有人把静凛玩R6的视频搬来人气应该不错
-
-
-
-
-
 
 
 -----
 
 ####  Zxian49  
 ##### 1550#       发表于 2018-3-9 16:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38796350&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-9 16:20</a>
@@ -1053,25 +714,13 @@ shock。。。</blockquote>
 最广为流传的黑黑的那张有种故意截人家丑图的感觉
 
 
-
-
-
-
-
 -----
 
 ####  looptube  
 ##### 1551#       发表于 2018-3-9 16:32
 
 
-
-
 突然发现班长不少视频都有台湾人做字幕了
-
-
-
-
-
 
 
 -----
@@ -1080,22 +729,14 @@ shock。。。</blockquote>
 ##### 1552#       发表于 2018-3-9 16:40
 
 
-
-
 虹河ラキ的最新一期，真实甩吊游戏，太智障了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 [https://www.youtube.com/watch?v=Z1HBDv_siUM](https://www.youtube.com/watch?v=Z1HBDv_siUM)
-
-
-
-
-
 
 
 -----
 
 ####  a5850180  
 ##### 1553#       发表于 2018-3-9 16:41
-
 
 
  本帖最后由 a5850180 于 2018-3-9 16:46 编辑 
@@ -1109,16 +750,10 @@ shock。。。</blockquote>
 —— 来自 Xiaomi MIX 2, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  v2c  
 ##### 1554#       发表于 2018-3-9 17:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38796594&amp;ptid=1572644" target="_blank">a5850180 发表于 2018-3-9 16:41</a>
@@ -1130,17 +765,10 @@ shock。。。</blockquote>
 我对Vtuber的中之人也不感兴趣，就是对找人代打再后期配音这种手段感到不齿，当然能拿出证据证明是本人玩的来打我脸是最好的
 
 
-
-
-
-
-
 -----
 
 ####  wingzerocos  
 ##### 1555#       发表于 2018-3-9 17:06
-
-
 
 
 组长的游戏实况感觉主要都是STAFF找来看她初见反应的，有练过的大概只有DQ和MH，完全是运营的问题。
@@ -1149,16 +777,10 @@ shock。。。</blockquote>
 「清楚」用在组长身上就是指各种与外表不符的过激发言和发音。而且她不管玩得好玩得烂，杀意都很浓，算是另一个角度的战斗用AI。
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 1556#       发表于 2018-3-9 17:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38796592&amp;ptid=1572644" target="_blank">白白白 发表于 2018-03-09 16:40:54</a>
@@ -1167,16 +789,10 @@ shock。。。</blockquote>
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1557#       发表于 2018-3-9 17:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38796950&amp;ptid=1572644" target="_blank">神龙小生 发表于 2018-3-9 17:10</a>
@@ -1188,16 +804,10 @@ shock。。。</blockquote>
 毕竟是黑道企业...
 
 
-
-
-
-
-
 -----
 
 ####  七夜美琴  
 ##### 1558#       发表于 2018-3-9 17:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38794828&amp;ptid=1572644" target="_blank">Zxian49 发表于 2018-3-9 14:10</a>
@@ -1210,32 +820,19 @@ AKARI的VR系列还有一期遇到了MATSIX它们啊。
 — from Xiaomi Redmi Note 4X, Android 7.0 of [S1 Next Goose](https://play.google.com/store/apps/details?id=me.ykrank.s1next) v1.3.2.2
 
 
-
-
-
-
-
 -----
 
 ####  dorasir  
 ##### 1559#       发表于 2018-3-9 17:25
 
 
-
-
 信誓旦旦地搞得我还以为代打实锤了呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xiangcaihtr  
 ##### 1560#       发表于 2018-3-9 17:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38796592&amp;ptid=1572644" target="_blank">白白白 发表于 2018-3-9 16:40</a>
@@ -1245,16 +842,10 @@ AKARI的VR系列还有一期遇到了MATSIX它们啊。
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看到对手被截成三段的那一刻
 
 
-
-
-
-
-
 -----
 
 ####  不灭的旋律  
 ##### 1561#       发表于 2018-3-9 17:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38795452&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-9 15:05</a>
@@ -1263,17 +854,10 @@ AKARI的VR系列还有一期遇到了MATSIX它们啊。
 上上次的动画提到他最近沉迷VRChat和unity，我看没有接商业宣传的话还会继续摸鱼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">狐娘大叔完全就是个人兴趣所以是四天王最没危机感的，之前推上也说了如果vyouber热潮过了没人气就去继续打工追梦。
 
 
-
-
-
-
-
 -----
 
 ####  喜闻乐见  
 ##### 1562#       发表于 2018-3-9 18:08
-
-
 
 
 爱酱刚更的一期 
@@ -1281,16 +865,10 @@ AKARI的VR系列还有一期遇到了MATSIX它们啊。
 <img src="http://ww1.sinaimg.cn/large/0060lm7Tly1fp6q5mi1gdj30u01hcqf7.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Zxian49  
 ##### 1563#       发表于 2018-3-9 18:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38797575&amp;ptid=1572644" target="_blank">喜闻乐见 发表于 2018-3-9 18:08</a>
@@ -1303,17 +881,10 @@ kizuna 和 kizina？
 还是说重音放的地方不对？
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 1564#       发表于 2018-3-9 18:37
-
-
 
 
 组长最大的卖点就是清楚系的人设+声线做着放飞自我的phyco发言了
@@ -1321,16 +892,10 @@ kizuna 和 kizina？
 现在的游戏实况系列最大的问题还是不好看，还不如之前的杀鸡系列够杀意
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 1565#       发表于 2018-3-9 19:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38797658&amp;ptid=1572644" target="_blank">Zxian49 发表于 2018-03-09 18:16:20</a>
@@ -1345,16 +910,10 @@ ki↘zu↗na↗X
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 1566#       发表于 2018-3-9 19:21
-
 
 
  本帖最后由 walfeds 于 2018-3-9 19:25 编辑 
@@ -1364,25 +923,13 @@ ki↘zu↗na↗X
 还有这动态镜头观感真不错。。。
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 1567#       发表于 2018-3-9 19:35
 
 
-
-
 原来akari每次只直播半个小时啊，看这个打赏速度其实做久一点也可以啊。
-
-
-
-
-
 
 
 -----
@@ -1391,16 +938,10 @@ ki↘zu↗na↗X
 ##### 1568#       发表于 2018-3-9 19:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38798365&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-9 19:35</a>
 
 原来akari每次只直播半个小时啊，看这个打赏速度其实做久一点也可以啊。</blockquote>
 爱酱 akari 小白 基本没特殊情况都是半小时
-
-
-
-
-
 
 
 -----
@@ -1409,16 +950,10 @@ ki↘zu↗na↗X
 ##### 1569#       发表于 2018-3-9 19:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38798406&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-9 19:42</a>
 
 爱酱 akari 小白 基本没特殊情况都是半小时</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">而且今晚小白和akari直播时间撞上了啊……
-
-
-
-
-
 
 
 -----
@@ -1427,16 +962,10 @@ ki↘zu↗na↗X
 ##### 1570#       发表于 2018-3-9 19:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38798411&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-9 19:43</a>
 
 而且今晚小白和akari直播时间撞上了啊……</blockquote>
 每周都撞的，akari可能也是考虑这个才改成单周直播的
-
-
-
-
-
 
 
 -----
@@ -1445,15 +974,9 @@ ki↘zu↗na↗X
 ##### 1571#       发表于 2018-3-9 19:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38798411&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-9 19:43</a>
 而且今晚小白和akari直播时间撞上了啊……</blockquote>
 经常撞，之前有过粉丝们都在小白那里用完投钱额度，然后akari那里投不了钱的情况
-
-
-
-
-
 
 
 -----
@@ -1462,13 +985,7 @@ ki↘zu↗na↗X
 ##### 1572#       发表于 2018-3-9 20:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">没办法的事，反正看完组长看团长2倍的快乐
-
-
-
-
-
 
 
 -----
@@ -1477,17 +994,10 @@ ki↘zu↗na↗X
 ##### 1573#       发表于 2018-3-9 20:08
 
 
-
-
 班长今天勃么
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
-
-
-
-
-
 
 
 -----
@@ -1496,21 +1006,13 @@ ki↘zu↗na↗X
 ##### 1574#       发表于 2018-3-9 20:14
 
 
-
-
 直播洗脑的艾琳(
-
-
-
-
-
 
 
 -----
 
 ####  白白白  
 ##### 1575#       发表于 2018-3-9 20:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38798617&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-9 20:08</a>
@@ -1521,17 +1023,10 @@ ki↘zu↗na↗X
 明天播
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 1576#       发表于 2018-3-9 20:48
-
-
 
 
 那个第一次出场的roboco正在生放送荒野行动，推特的预告也有打枪同好猫宫转发了。不知她俩以后有没机会联动一发。
@@ -1539,16 +1034,10 @@ ki↘zu↗na↗X
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  喜闻乐见  
 ##### 1577#       发表于 2018-3-9 20:54
-
 
 
  本帖最后由 喜闻乐见 于 2018-3-9 20:55 编辑 
@@ -1558,16 +1047,10 @@ ki↑zu↓na↓a↑i↓
 这期上下箭头实在太吸引恶臭小鬼了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 1578#       发表于 2018-3-9 21:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38798666&amp;ptid=1572644" target="_blank">karloku 发表于 2018-3-9 20:14</a>
@@ -1576,25 +1059,13 @@ ki↑zu↓na↓a↑i↓
 五连kuso笑死<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 1579#       发表于 2018-3-9 21:28
 
 
-
-
 看运营愿不愿意让猫宫做实况。操作太骚被人怀疑也是情有可缘的。
-
-
-
-
-
 
 
 -----
@@ -1603,22 +1074,15 @@ ki↑zu↓na↓a↑i↓
 ##### 1580#       发表于 2018-3-9 21:45
 
 
-
 [https://youtu.be/bD9m_3ayUOk](https://youtu.be/bD9m_3ayUOk)
 
 ゲーム部第二期，新部员女硬说是男人，又是宝可梦实况。
-
-
-
-
-
 
 
 -----
 
 ####  Chia  
 ##### 1581#       发表于 2018-3-9 21:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38799371&amp;ptid=1572644" target="_blank">气流季里 发表于 2018-3-9 21:45</a>
@@ -1631,16 +1095,10 @@ https://youtu.be/bD9m_3ayUOk
 难得质量挺高的，但是真的能火嘛……
 
 
-
-
-
-
-
 -----
 
 ####  Porsche  
 ##### 1582#       发表于 2018-3-9 22:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38799004&amp;ptid=1572644" target="_blank">喜闻乐见 发表于 2018-3-9 20:54</a>
@@ -1652,32 +1110,19 @@ ki↑zu↓na↓a↑i↓
 和最初那个模仿大佬总结的完全一致
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 1583#       发表于 2018-3-9 22:06
 
 
-
-
 老爱的战斗力160W了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  walfeds  
 ##### 1584#       发表于 2018-3-9 22:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38799371&amp;ptid=1572644" target="_blank">气流季里 发表于 2018-3-9 21:45</a>
@@ -1688,16 +1133,10 @@ https://youtu.be/bD9m_3ayUOk
 评论里说丹生谷森夏和户冢彩加，感觉没毛病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 1585#       发表于 2018-3-9 22:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38799371&amp;ptid=1572644" target="_blank">气流季里 发表于 2018-3-9 21:45</a>
@@ -1707,17 +1146,10 @@ https://youtu.be/bD9m_3ayUOk
 虽然很专业，但太硬核了，真的不影响人气吗<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Porsche  
 ##### 1586#       发表于 2018-3-9 22:39
-
-
 
 
 今天突然惊醒后知后觉
@@ -1727,32 +1159,19 @@ https://youtu.be/bD9m_3ayUOk
 就是那个病毒nyancat的罪魁祸首 DaniwellP  绝对八九不离十
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 1587#       发表于 2018-3-9 22:44
 
 
-
-
 我是希望ゲーム部除了硬核游戏外，也动动下玩花样，这么高级的建模不能浪费啊。
-
-
-
-
-
 
 
 -----
 
 ####  walfeds  
 ##### 1588#       发表于 2018-3-9 22:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38799816&amp;ptid=1572644" target="_blank">Porsche 发表于 2018-3-9 22:39</a>
@@ -1767,25 +1186,13 @@ https://youtu.be/bD9m_3ayUOk
 我记得这期有讲，ed曲作者jun yamaguchi
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 1589#       发表于 2018-3-9 22:58
 
 
-
-
 队伍也很常见，土云猫迷你q3d龙2什么的。2年前清一色洛杉矶队伍把我笑死。
-
-
-
-
-
 
 
 -----
@@ -1794,16 +1201,9 @@ https://youtu.be/bD9m_3ayUOk
 ##### 1590#       发表于 2018-3-9 23:30
 
 
-
-
 把委员长有翻译的视频都看完了，我好喜欢她<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -1812,16 +1212,10 @@ https://youtu.be/bD9m_3ayUOk
 ##### 1591#       发表于 2018-3-9 23:58
 
 
-
 [http://www.nicovideo.jp/watch/sm32856956](http://www.nicovideo.jp/watch/sm32856956)
 
 
 推荐一个GTA5+Vtuber+friends动画
-
-
-
-
-
 
 
 -----
@@ -1830,25 +1224,16 @@ https://youtu.be/bD9m_3ayUOk
 ##### 1592#       发表于 2018-3-10 01:57
 
 
-
-
 枫今天的推特谢罪是因为昨晚直播放歌么还是说了啥
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 1593#       发表于 2018-3-10 01:59
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/10/015734u5lxavayeex3yzdn.png" referrerpolicy="no-referrer">
@@ -1861,23 +1246,13 @@ https://youtu.be/bD9m_3ayUOk
 2018-3-10 01:57 上传
 
 
-
-
-
-
 彩虹社又推新人，不愧是业界毒瘤，迫害完一批新人马上开始下一批了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  zpbzpb123123  
 ##### 1594#       发表于 2018-3-10 02:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38801108&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-10 01:57</a>
@@ -1889,16 +1264,10 @@ https://youtu.be/bD9m_3ayUOk
 似乎是歌的版权问题
 
 
-
-
-
-
-
 -----
 
 ####  fqflhc  
 ##### 1595#       发表于 2018-3-10 04:03
-
 
 
  本帖最后由 fqflhc 于 2018-3-10 04:04 编辑 
@@ -1906,14 +1275,8 @@ https://youtu.be/bD9m_3ayUOk
 akari是真的恐怖。推特互动率前十名9个是vtuber，早上6点到7点休息一小时，半夜通宵串门，全程玩手机。。。
 
 
-
-
-
-
 8df325ed8a13632702996f269d8fa0ec08fac759.jpg.png
 (636.83 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -1922,53 +1285,20 @@ akari是真的恐怖。推特互动率前十名9个是vtuber，早上6点到7点
 2018-3-10 04:00 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/10/040057y23s2isqivwzfjzt.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 09e65dc9a786c9178f07ff2cc53d70cf3bc75749.jpg.png
 (287.6 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2018-3-10 04:00 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/10/040058nk9kz9k3ko6g93a7.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -1977,15 +1307,8 @@ akari是真的恐怖。推特互动率前十名9个是vtuber，早上6点到7点
 ##### 1596#       发表于 2018-3-10 07:41
 
 
-
-
 把猫宫那个p1911吃鸡的视频丢给一堆“吃鸡大佬”
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">于是这群人开始比赛看谁能做到了
-
-
-
-
-
 
 
 -----
@@ -1994,15 +1317,9 @@ akari是真的恐怖。推特互动率前十名9个是vtuber，早上6点到7点
 ##### 1597#       发表于 2018-3-10 08:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38801119&amp;ptid=1572644" target="_blank">白白白 发表于 2018-03-10 01:59:22</a></blockquote>(⊙o⊙)啥？野良猫？虽然知道另一个是片假名的，但还能这样撞名的…
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -2011,23 +1328,16 @@ akari是真的恐怖。推特互动率前十名9个是vtuber，早上6点到7点
 ##### 1598#       发表于 2018-3-10 09:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38801415&amp;ptid=1572644" target="_blank">fqflhc 发表于 2018-3-10 04:03</a>
 
 akari是真的恐怖。推特互动率前十名9个是vtuber，早上6点到7点休息一小时，半夜通宵串门，全程玩手机。。。 ...</blockquote>
 推特有好几个人营运吧，Vtuber也是要睡觉的。
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 1599#       发表于 2018-3-10 09:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38801841&amp;ptid=1572644" target="_blank">神龙小生 发表于 2018-3-10 08:16</a>
@@ -2039,16 +1349,10 @@ akari是真的恐怖。推特互动率前十名9个是vtuber，早上6点到7点
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">华、华点
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 1600#       发表于 2018-3-10 10:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38802121&amp;ptid=1572644" target="_blank">气流季里 发表于 2018-3-10 09:20</a>
@@ -2060,32 +1364,19 @@ akari是真的恐怖。推特互动率前十名9个是vtuber，早上6点到7点
 确定是别人发推的Vtuber也就YUA了，多人共用一个推特就是ナイセン（电话业务公司）了
 
 
-
-
-
-
-
 -----
 
 ####  半月霜  
 ##### 1601#       发表于 2018-3-10 10:22
 
 
-
-
 猫宫那首曲子不错,可是越是厉害越想看完打的全过程啊
-
-
-
-
-
 
 
 -----
 
 ####  snova搬运  
 ##### 1602#       发表于 2018-3-10 10:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38802398&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-03-10 10:11:32</a>
@@ -2097,16 +1388,10 @@ akari是真的恐怖。推特互动率前十名9个是vtuber，早上6点到7点
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 1603#       发表于 2018-3-10 10:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38802592&amp;ptid=1572644" target="_blank">snova搬运 发表于 2018-03-10 10:41:05</a>
@@ -2115,17 +1400,10 @@ YUA及其团队还真是特立独行啊</blockquote>从里四天王到姑且二�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 1604#       发表于 2018-3-10 10:57
-
-
 
 
 Yua太没特色了啊……没办法
@@ -2134,16 +1412,10 @@ Yua太没特色了啊……没办法
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  snova搬运  
 ##### 1605#       发表于 2018-3-10 11:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38802717&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-03-10 10:57:30</a>
@@ -2155,25 +1427,13 @@ Yua太没特色了啊……没办法
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 1606#       发表于 2018-3-10 11:27
 
 
-
-
 八分音符加斋藤 真的会玩
-
-
-
-
-
 
 
 -----
@@ -2182,16 +1442,10 @@ Yua太没特色了啊……没办法
 ##### 1607#       发表于 2018-3-10 11:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38802121&amp;ptid=1572644" target="_blank">气流季里 发表于 2018-3-10 09:20</a>
 
 推特有好几个人营运吧，Vtuber也是要睡觉的。</blockquote>
 akari之前还跟一个粉丝通宵聊天来着，聊了一个多小时，如果是团队搞的话不会这么无聊吧
-
-
-
-
-
 
 
 -----
@@ -2200,15 +1454,8 @@ akari之前还跟一个粉丝通宵聊天来着，聊了一个多小时，如果
 ##### 1608#       发表于 2018-3-10 12:40
 
 
-
-
 虽然看起来就一个小时的休息, 不过这个是长期统计的结果. 
 作为ガチ势每天盯着akari的推看还是能看出她每天的作息的, 什么时候在推上互动, 什么时候可能在工作或者收录, 什么时候睡觉起床...  总之看起来非常修仙, 还是个推特深度患者
-
-
-
-
-
 
 
 -----
@@ -2217,15 +1464,8 @@ akari之前还跟一个粉丝通宵聊天来着，聊了一个多小时，如果
 ##### 1609#       发表于 2018-3-10 13:55
 
 
-
-
 这几天夢咲楓粉丝数涨的很快，以及要不是夢咲楓简介里还有个影之诗，都快怀疑游戏部4人的背后是任天堂了，清一色老任第一方游戏，还有这模型动捕的质量真的是高，感觉不是小团队能搞的
 <img src="http://ww4.sinaimg.cn/large/bfae17b6gy1fp7o6xjxinj20rf0igaem.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2234,17 +1474,10 @@ akari之前还跟一个粉丝通宵聊天来着，聊了一个多小时，如果
 ##### 1610#       发表于 2018-3-10 14:29
 
 
-
-
 游戏部长的粉应该是现有的pm实况粉流过去的。她在推上一直和有名pm实况者互动，投稿当天就有有名实况者帮她宣传，现在又要和有名实况者あゆみん对战了。利用pm这个现有的圈子保持几万的人气还是比较容易的，虽然pm圈的整体素质比较那个。
 
 
 另外岩本町和马越的订阅居然都上万了。要是运营有能马越现在至少也是看两三万级别的了。
-
-
-
-
-
 
 
 -----
@@ -2253,14 +1486,7 @@ akari之前还跟一个粉丝通宵聊天来着，聊了一个多小时，如果
 ##### 1611#         楼主| 发表于 2018-3-10 14:50
 
 
-
-
 夢咲楓的人设是真的好……非常专业的感觉。
-
-
-
-
-
 
 
 -----
@@ -2269,14 +1495,7 @@ akari之前还跟一个粉丝通宵聊天来着，聊了一个多小时，如果
 ##### 1612#       发表于 2018-3-10 15:27
 
 
-
-
 夢咲楓的3d真的好看
-
-
-
-
-
 
 
 -----
@@ -2285,13 +1504,7 @@ akari之前还跟一个粉丝通宵聊天来着，聊了一个多小时，如果
 ##### 1613#       发表于 2018-3-10 16:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">又重新看了遍game部第二期，这开场的镜头切换真是不讲理。。。
-
-
-
-
-
 
 
 -----
@@ -2300,14 +1513,7 @@ akari之前还跟一个粉丝通宵聊天来着，聊了一个多小时，如果
 ##### 1614#       发表于 2018-3-10 16:05
 
 
-
-
 我觉得游戏部最大特色是背景板角色的表演，真的很有看日常系动画的感觉
-
-
-
-
-
 
 
 -----
@@ -2316,14 +1522,7 @@ akari之前还跟一个粉丝通宵聊天来着，聊了一个多小时，如果
 ##### 1615#       发表于 2018-3-10 16:26
 
 
-
-
 游戏部不像一般的youtuber视频了感觉更像小剧场，模型动作捕捉质量真是高
-
-
-
-
-
 
 
 -----
@@ -2332,14 +1531,7 @@ akari之前还跟一个粉丝通宵聊天来着，聊了一个多小时，如果
 ##### 1616#       发表于 2018-3-10 16:29
 
 
-
-
 最近才有更新换代的感觉，以前有提到其他youtuber但是都是零零碎碎，最近猫宫和班长简直这两真的有次世代的感觉（单看人气）。
-
-
-
-
-
 
 
 -----
@@ -2348,21 +1540,13 @@ akari之前还跟一个粉丝通宵聊天来着，聊了一个多小时，如果
 ##### 1617#       发表于 2018-3-10 17:09
 
 
-
-
 大叔又要在NICO生放，这被人超下去没跑了
-
-
-
-
-
 
 
 -----
 
 ####  神龙小生  
 ##### 1618#       发表于 2018-3-10 17:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38805464&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-03-10 16:29:39</a>
@@ -2375,26 +1559,15 @@ akari之前还跟一个粉丝通宵聊天来着，聊了一个多小时，如果
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  不灭的旋律  
 ##### 1619#       发表于 2018-3-10 17:27
 
 
-
  本帖最后由 不灭的旋律 于 2018-3-10 17:28 编辑 
 
 vtuber有不少就是在nico炒红起来的，nico生没有问题。不过这次狐娘大叔的发言很悲观啊，说接下来会有很多企业势进场，他这种个人水平的很快就会被淘汰了且看且珍惜，有点打悲情牌的感觉，可以看出他是比较现实和谨慎的。也可能是真的累了。
-
-
-
-
-
 
 
 -----
@@ -2403,16 +1576,10 @@ vtuber有不少就是在nico炒红起来的，nico生没有问题。不过这次
 ##### 1620#       发表于 2018-3-10 18:20
 
 
-
 [https://www.youtube.com/watch?v=-shohirNcxQ](https://www.youtube.com/watch?v=-shohirNcxQ)
 
 月之美兔又在直播玩粉丝做的游戏了。这游戏玩起来配音真鬼畜<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 <img src="https://i.loli.net/2018/03/10/5aa3b126c76eb.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2421,18 +1588,10 @@ vtuber有不少就是在nico炒红起来的，nico生没有问题。不过这次
 ##### 1621#       发表于 2018-3-10 18:27
 
 
-
-
 》》游戏社开头不是实时捕捉而是后期用软件手调的效果吧，就是所谓的游戏PV
 
 
-
 》》感觉狐娘这是不知道做什么视频了吧，而且本身比较悲观，快找个会出企划的一起搞吧
-
-
-
-
-
 
 
 -----
@@ -2441,14 +1600,7 @@ vtuber有不少就是在nico炒红起来的，nico生没有问题。不过这次
 ##### 1622#       发表于 2018-3-10 18:35
 
 
-
-
 突破2W人在线放linenews瞬间走3000人233333333
-
-
-
-
-
 
 
 -----
@@ -2457,13 +1609,7 @@ vtuber有不少就是在nico炒红起来的，nico生没有问题。不过这次
 ##### 1623#       发表于 2018-3-10 18:43
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">2W1了
-
-
-
-
-
 
 
 -----
@@ -2472,13 +1618,7 @@ vtuber有不少就是在nico炒红起来的，nico生没有问题。不过这次
 ##### 1624#       发表于 2018-3-10 18:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">有谁知道刚才班长放的BGM歌名么。。马上换掉了
-
-
-
-
-
 
 
 -----
@@ -2487,14 +1627,7 @@ vtuber有不少就是在nico炒红起来的，nico生没有问题。不过这次
 ##### 1625#       发表于 2018-3-10 19:04
 
 
-
-
 班长如果这一辈子2D可惜了
-
-
-
-
-
 
 
 -----
@@ -2503,13 +1636,7 @@ vtuber有不少就是在nico炒红起来的，nico生没有问题。不过这次
 ##### 1626#       发表于 2018-3-10 19:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">这个页游怎么感觉看过汉化版。。
-
-
-
-
-
 
 
 -----
@@ -2518,14 +1645,7 @@ vtuber有不少就是在nico炒红起来的，nico生没有问题。不过这次
 ##### 1627#       发表于 2018-3-10 19:23
 
 
-
-
 可能是因为班长的关系ムカデ人間和#ai_nouta上了日推趋势了
-
-
-
-
-
 
 
 -----
@@ -2534,21 +1654,13 @@ vtuber有不少就是在nico炒红起来的，nico生没有问题。不过这次
 ##### 1628#       发表于 2018-3-10 19:42
 
 
-
-
 班长播完枫这边瞬间空降5000人233333333
-
-
-
-
-
 
 
 -----
 
 ####  气流季里  
 ##### 1629#       发表于 2018-3-10 19:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38806677&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-10 19:04</a>
@@ -2561,26 +1673,14 @@ vtuber有不少就是在nico炒红起来的，nico生没有问题。不过这次
 总之她肯定会3D化的，本人也说过不甘心局限在游戏实况和杂谈。我担心的反而是彩虹社这个毒瘤可能出什么幺蛾子。
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 1630#       发表于 2018-3-10 19:53
 
 
-
-
 azuma lim的直播真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 不过真的很辛苦，播了有50分钟，直播中途还要跳舞，中之人一副过劳死的样子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2589,21 +1689,13 @@ azuma lim的直播真可爱<img src="https://static.saraba1st.com/image/smiley/f
 ##### 1631#       发表于 2018-3-10 20:11
 
 
-
-
 周六周日果然是直播重灾区，各种直播
-
-
-
-
-
 
 
 -----
 
 ####  喜闻乐见  
 ##### 1632#       发表于 2018-3-10 20:11
-
 
 
  本帖最后由 喜闻乐见 于 2018-3-10 20:54 编辑 
@@ -2627,28 +1719,13 @@ ai教你切蛋
 <img src="http://ww1.sinaimg.cn/large/732205bcgy1fp80jcx893j21320l77wh.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  plok201  
 ##### 1633#       发表于 2018-3-10 21:03
 
 
-
-
 班长战斗力太高了，我感觉说不定能吸引后进场的大手企业把班长收了，毕竟彩虹也就个小企业
-
-
-
-
-
 
 
 -----
@@ -2657,24 +1734,16 @@ ai教你切蛋
 ##### 1634#       发表于 2018-3-10 21:31
 
 
-
-
 APP LAND这企划水平真的不能恭维了，siro今天这标题我一看就觉得评价会比较低了，点进一看果然
 
 
 想着以前也搞过很多无聊的企划，全靠siro的水平高才能搞到现在
 
 
-
-
-
-
-
 -----
 
 ####  不灭的旋律  
 ##### 1635#       发表于 2018-3-10 21:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38807069&amp;ptid=1572644" target="_blank">气流季里 发表于 2018-3-10 19:47</a>
@@ -2685,16 +1754,10 @@ APP LAND这企划水平真的不能恭维了，siro今天这标题我一看就�
 让我吃惊的是にじさんじ的这些虚拟主播每次的视频最少都是一小时起的，然而点击数却都有好几万用户黏度非常高，是不是可以说主播文化很适合日本市场。
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 1636#       发表于 2018-3-10 21:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38807957&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-10 21:31</a>
@@ -2712,31 +1775,19 @@ APP LAND这企划水平真的不能恭维了，siro今天这标题我一看就�
 戴著腳鐐跳舞的感覺
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 1637#       发表于 2018-3-10 21:56
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">班长推特咋了。。生放录像怎么传了一会又下了
-
-
-
-
-
 
 
 -----
 
 ####  不灭的旋律  
 ##### 1638#       发表于 2018-3-10 22:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38807957&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-10 21:31</a>
@@ -2748,16 +1799,10 @@ APP LAND这企划水平真的不能恭维了，siro今天这标题我一看就�
 今天youtube的动画？这么露骨地解说明显是商业宣传啊，拿钱办事尽到最低限度的义务就行了。小白的商业片一般是不会上传nico的，等明天就知道了。
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 1639#       发表于 2018-3-10 22:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38808234&amp;ptid=1572644" target="_blank">不灭的旋律 发表于 2018-3-10 22:04</a>
@@ -2766,16 +1811,10 @@ APP LAND这企划水平真的不能恭维了，siro今天这标题我一看就�
 商业宣传更加需要卖力啊，既然接了当然要搞好一点，不然接广告就只有负面意义了
 
 
-
-
-
-
-
 -----
 
 ####  不灭的旋律  
 ##### 1640#       发表于 2018-3-10 22:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38808322&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-10 22:13</a>
@@ -2786,16 +1825,10 @@ APP LAND这企划水平真的不能恭维了，siro今天这标题我一看就�
 我觉得puyopuyo运营心里也应该有数的不用太担心。
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 1641#       发表于 2018-3-10 22:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38808428&amp;ptid=1572644" target="_blank">不灭的旋律 发表于 2018-3-10 22:23</a>
@@ -2811,33 +1844,20 @@ APP LAND这企划水平真的不能恭维了，siro今天这标题我一看就�
 我现在比较好奇akari那边如果做抽卡手游能做成什么样子
 
 
-
-
-
-
-
 -----
 
 ####  wornixxoo  
 ##### 1642#       发表于 2018-3-10 22:47
 
 
-
-
 关于爱酱的衣服一直都没有换的问题，马车那期说换模型得花几百万，大概就是几十万人民币？但感觉siro和sora都有几套新衣服，爱酱应该是赚得最多的吧，没理由换不起吧？还是说钱都用来铺路了？或者是爱酱的模型开销比较大？
 还有看akari 45°角的那个live（av20486588），感觉物理引擎（？不懂技术）比其他人高一个世代，小跳和膝盖弯曲都很自然，siro和sora的腿部就都感觉经常跳帧（比如av20562592和av20356842），爱酱几个舞蹈视频也感觉很诡异，akari是有什么黑科技吗？
-
-
-
-
-
 
 
 -----
 
 ####  lime2001  
 ##### 1643#       发表于 2018-3-10 22:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38808847&amp;ptid=1572644" target="_blank">wornixxoo 发表于 2018-3-10 22:47</a>
@@ -2852,31 +1872,19 @@ siro跟soro的背後公司
 用來Live的軟體也是自己開發的
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 1644#       发表于 2018-3-10 23:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/173.png" referrerpolicy="no-referrer">推特一堆人奇怪人体蜈蚣怎么上热门了23333333
-
-
-
-
-
 
 
 -----
 
 ####  バーチャルS1er  
 ##### 1645#       发表于 2018-3-10 23:19
-
 
 
  本帖最后由 バーチャルS1er 于 2018-3-10 23:21 编辑 
@@ -2893,25 +1901,13 @@ siro跟soro的背後公司
 akari、YUA和アズリム现在的捕捉设备和技术比一般的Vtuber确实要高很多，具体是怎么样就不清楚了
 
 
-
-
-
-
-
-
 -----
 
 ####  Porsche  
 ##### 1646#       发表于 2018-3-10 23:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">前阵子还担心akari遇到瓶颈了，现在觉得这是家底最厚实的一个，动作捕捉真心比别人高一级，表情的捕捉也非常流畅
-
-
-
-
-
 
 
 -----
@@ -2920,13 +1916,7 @@ akari、YUA和アズリム现在的捕捉设备和技术比一般的Vtuber确实
 ##### 1647#       发表于 2018-3-10 23:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">错过了班长直播，还不能看回放，现在放出来的视频只有1/3，是要偷偷掩盖什么东西？
-
-
-
-
-
 
 
 -----
@@ -2935,16 +1925,10 @@ akari、YUA和アズリム现在的捕捉设备和技术比一般的Vtuber确实
 ##### 1648#       发表于 2018-3-11 00:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38810155&amp;ptid=1572644" target="_blank">Porsche 发表于 2018-3-10 23:59</a>
 
 错过了班长直播，还不能看回放，现在放出来的视频只有1/3，是要偷偷掩盖什么东西？ ...</blockquote>
 好像露点了（有一个画风比较老的奶子画）
-
-
-
-
-
 
 
 -----
@@ -2953,16 +1937,10 @@ akari、YUA和アズリム现在的捕捉设备和技术比一般的Vtuber确实
 ##### 1649#       发表于 2018-3-11 01:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38810155&amp;ptid=1572644" target="_blank">Porsche 发表于 2018-3-10 23:59</a>
 
 错过了班长直播，还不能看回放，现在放出来的视频只有1/3，是要偷偷掩盖什么东西？ ...</blockquote>
 少了后面玩一个游戏的部分
-
-
-
-
-
 
 
 -----
@@ -2971,15 +1949,9 @@ akari、YUA和アズリム现在的捕捉设备和技术比一般的Vtuber确实
 ##### 1650#       发表于 2018-3-11 02:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38808847&amp;ptid=1572644" target="_blank">wornixxoo 发表于 2018-3-10 22:47</a>
 关于爱酱的衣服一直都没有换的问题，马车那期说换模型得花几百万，大概就是几十万人民币？但感觉siro和sora ...</blockquote>
 你可以把Ai的形象看成一个整体，类似商标，商标不是那么容易随意改动的，同理人设开始之初就很注重形象差异性的akari和luna估计也几乎不会换衣服改变形象，要想看到频繁换衣服的估计得等到唱歌跳舞偶像为卖点的vtuber了
-
-
-
-
-
 
 
 -----
@@ -2988,19 +1960,11 @@ akari、YUA和アズリム现在的捕捉设备和技术比一般的Vtuber确实
 ##### 1651#       发表于 2018-3-11 02:28
 
 
-
-
 惊了。
-
-
-
-
 
 
 Screenshot_2018-03-11-02-20-48-714_com.twitter.android.png
 (66.39 KB, 下载次数: 5)
-
-
 
 
 下载附件
@@ -3009,31 +1973,13 @@ Screenshot_2018-03-11-02-20-48-714_com.twitter.android.png
 2018-3-11 02:28 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/11/022822w4nrraasbfbrrbl4.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  walfeds  
 ##### 1652#       发表于 2018-3-11 03:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38808847&amp;ptid=1572644" target="_blank">wornixxoo 发表于 2018-3-10 22:47</a>
@@ -3046,17 +1992,10 @@ Screenshot_2018-03-11-02-20-48-714_com.twitter.android.png
 腿部的问题我猜可能是对应的捕捉的点过少导致的吧。。。
 
 
-
-
-
-
-
 -----
 
 ####  plok201  
 ##### 1653#       发表于 2018-3-11 05:02
-
-
 
 
 班长那个,记得她自己有说过被提意见,说视频长度最好不要太长,所以后半段那个游戏切成2P了吧,之前玩游戏的生放也是根据游戏分了几个视频
@@ -3065,16 +2004,10 @@ Screenshot_2018-03-11-02-20-48-714_com.twitter.android.png
 当然,也可能因为这游戏有不少惊悚画面,要处理一下<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 1654#       发表于 2018-3-11 06:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38811596&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-11 03:03</a>
@@ -3087,27 +2020,15 @@ Screenshot_2018-03-11-02-20-48-714_com.twitter.android.png
 沒啥好更新的
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 1655#       发表于 2018-3-11 07:57
 
 
-
-
 说到换衣服，有点个人势物理演算大大能自给自足，给自己建模换衣服造道具等等甚是厉害，某vtuber还在给八人众的勇气建模3d
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -3116,15 +2037,9 @@ Screenshot_2018-03-11-02-20-48-714_com.twitter.android.png
 ##### 1656#       发表于 2018-3-11 08:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38811432&amp;ptid=1572644" target="_blank">七夜美琴 发表于 2018-3-11 02:28</a>
 惊了。</blockquote>
 matsix的爱情故事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3133,16 +2048,10 @@ matsix的爱情故事<img src="https://static.saraba1st.com/image/smiley/face201
 ##### 1657#       发表于 2018-3-11 08:22
 
 
-
  本帖最后由 江少寒 于 2018-3-11 08:25 编辑 
 
 新人猫宫感觉也很好，FPS不错，声音也萌。还有GYARI做的OP和EDcard
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">猫宫超可爱
-
-
-
-
-
 
 
 -----
@@ -3151,22 +2060,13 @@ matsix的爱情故事<img src="https://static.saraba1st.com/image/smiley/face201
 ##### 1658#       发表于 2018-3-11 08:40
 
 
-
-
 看了半天youtuber稍微能感觉到那些看直播的人的热情了……看luna酱这么疯有一种奇怪的安心感……
-
-
-
-
-
 
 
 -----
 
 ####  warlock228  
 ##### 1659#       发表于 2018-3-11 11:29
-
-
 
 
 猫宫B站搬运的只有一个吃鸡有声音 其余的都是自我介绍
@@ -3176,32 +2076,19 @@ matsix的爱情故事<img src="https://static.saraba1st.com/image/smiley/face201
 那个吃鸡视频也就看了十遍<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 1660#       发表于 2018-3-11 18:46
 
 
-
-
 Azuma Lim真可爱啊..本来看预览图还以为是高冷妹子（生放要累死吧这个...
-
-
-
-
-
 
 
 -----
 
 ####  バーチャルS1er  
 ##### 1661#       发表于 2018-3-11 19:24
-
 
 
  本帖最后由 バーチャルS1er 于 2018-3-11 19:41 编辑 
@@ -3212,17 +2099,10 @@ Azuma Lim真可爱啊..本来看预览图还以为是高冷妹子（生放要累
 游戏部的效果应该大部分还是捕捉出来的，人工调的还是比较少，期待之后的模型配布
 
 
-
-
-
-
-
-
 -----
 
 ####  cxfdtc  
 ##### 1662#       发表于 2018-3-11 19:56
-
 
 
 <img src="http://wx1.sinaimg.cn/large/a1c0eb55ly1fp94ji456mg20qb0g2he1.gif" referrerpolicy="no-referrer">
@@ -3231,17 +2111,10 @@ Azuma Lim真可爱啊..本来看预览图还以为是高冷妹子（生放要累
 新素材（动图，没有设定循环）
 
 
-
-
-
-
-
 -----
 
 ####  不灭的旋律  
 ##### 1663#       发表于 2018-3-11 20:17
-
-
 
 
 Azuma Lim的运营不行啊，几个动画插入了了版权漫画和音乐。个人这样玩没关系，要是企业这样搞可能要出事的。类似的事有前车之鉴。
@@ -3249,16 +2122,10 @@ Azuma Lim的运营不行啊，几个动画插入了了版权漫画和音乐。�
 Azuma Lim在生放跳ソーラン節已经成固定节目了，小白也唱过几次两个人可以合作跳双人ソーラン節画面一定很美。Azuma Lim有绿毛虫梗小白则很会模仿波可比，还可以来个pokemon叫声模仿大赛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  a5850180  
 ##### 1664#       发表于 2018-3-11 20:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38813436&amp;ptid=1572644" target="_blank">warlock228 发表于 2018-3-11 11:29</a>
@@ -3271,16 +2138,10 @@ Azuma Lim在生放跳ソーラン節已经成固定节目了，小白也唱过�
 才上传了，手-枪-10杀吃鸡啊，你没关注搬运组吗
 
 
-
-
-
-
-
 -----
 
 ####  warlock228  
 ##### 1665#       发表于 2018-3-11 20:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38818172&amp;ptid=1572644" target="_blank">a5850180 发表于 2018-3-11 20:32</a>
@@ -3289,25 +2150,13 @@ Azuma Lim在生放跳ソーラン節已经成固定节目了，小白也唱过�
 刚才关注了 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer"> 之前都是直接搜猫宫的
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 1666#       发表于 2018-3-11 23:47
 
 
-
-
 猫宫上p站首页热搜了……上次是luna
-
-
-
-
-
 
 
 -----
@@ -3316,14 +2165,7 @@ Azuma Lim在生放跳ソーラン節已经成固定节目了，小白也唱过�
 ##### 1667#       发表于 2018-3-11 23:48
 
 
-
-
 看了一晚上猫宫，我是不是完蛋了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3332,15 +2174,9 @@ Azuma Lim在生放跳ソーラン節已经成固定节目了，小白也唱过�
 ##### 1668#       发表于 2018-3-11 23:56
 
 
-
 [https://youtu.be/2MsI7cIkUjU](https://youtu.be/2MsI7cIkUjU)
 
 夢咲楓要开放做MMD用的3D模型了
-
-
-
-
-
 
 
 -----
@@ -3349,23 +2185,16 @@ Azuma Lim在生放跳ソーラン節已经成固定节目了，小白也唱过�
 ##### 1669#       发表于 2018-3-12 00:44
 
 
-
  本帖最后由 江少寒 于 2018-3-12 21:37 编辑 
 
 我也觉的えれ子和猫宫的语气啊技术什么的相似，但是本人好像否认了
 [https://www.bilibili.com/read/cv285597](https://www.bilibili.com/read/cv285597)
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 1670#       发表于 2018-3-12 03:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38817592&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-11 19:24</a>
@@ -3377,25 +2206,13 @@ Azuma Lim在生放跳ソーラン節已经成固定节目了，小白也唱过�
 看起来确实是动捕出来的，反过来说中之人的表现就很可怕了。。。节奏感，镜头感，动作都很到位
 
 
-
-
-
-
-
 -----
 
 ####  灵魂收割机  
 ##### 1671#       发表于 2018-3-12 13:09
 
 
-
-
 后知后觉，猫宫没公布设定性别吧？
-
-
-
-
-
 
 
 -----
@@ -3404,14 +2221,7 @@ Azuma Lim在生放跳ソーラン節已经成固定节目了，小白也唱过�
 ##### 1672#       发表于 2018-3-12 13:14
 
 
-
-
 班长两天内就能破10W了吧，真是可怕
-
-
-
-
-
 
 
 -----
@@ -3420,18 +2230,10 @@ Azuma Lim在生放跳ソーラン節已经成固定节目了，小白也唱过�
 ##### 1673#       发表于 2018-3-12 13:42
 
 
-
-
 班长搞一些新的环节做视频。
 
 小确幸
 <img src="https://i.loli.net/2018/03/12/5aa61221ba42b.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
@@ -3440,14 +2242,7 @@ Azuma Lim在生放跳ソーラン節已经成固定节目了，小白也唱过�
 ##### 1674#       发表于 2018-3-12 14:34
 
 
-
-
 眼镜壶貌似说以后会和班长连击猎人世界
-
-
-
-
-
 
 
 -----
@@ -3456,16 +2251,10 @@ Azuma Lim在生放跳ソーラン節已经成固定节目了，小白也唱过�
 ##### 1675#       发表于 2018-3-12 16:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">静凛彩虹6视频下面又是有刷气人的……这些人为什么来这找技术流阿
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
-
-
-
-
-
 
 
 -----
@@ -3474,16 +2263,10 @@ Azuma Lim在生放跳ソーラン節已经成固定节目了，小白也唱过�
 ##### 1676#       发表于 2018-3-12 16:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38809758&amp;ptid=1572644" target="_blank">Porsche 发表于 2018-3-10 23:33</a>
 
 前阵子还担心akari遇到瓶颈了，现在觉得这是家底最厚实的一个，动作捕捉真心比别人高一级，表情的捕 ...</blockquote>
 确实是遇到了些瓶颈，因为两个月前说提高投稿频率这个诺言还没有兑现，还有就是因为和小白的生放送冲突，akari被迫暂停一周的生放送，上期投稿的airtone音游因为说错了一句话现在正在日本国内炎上，akari的日子其实不好过，不过马上50万登录了，应该能冲掉这些不好的东西
-
-
-
-
-
 
 
 -----
@@ -3492,14 +2275,8 @@ Azuma Lim在生放跳ソーラン節已经成固定节目了，小白也唱过�
 ##### 1677#       发表于 2018-3-12 17:15
 
 
-
 <img src="https://images.dmzj.com/resource/news/2018/03/12/1520821136845237.jpg" referrerpolicy="no-referrer">
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小白历史降格
-
-
-
-
-
 
 
 -----
@@ -3508,22 +2285,15 @@ Azuma Lim在生放跳ソーラン節已经成固定节目了，小白也唱过�
 ##### 1678#       发表于 2018-3-12 17:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38827438&amp;ptid=1572644" target="_blank">fqflhc 发表于 2018-3-12 16:28</a>
 确实是遇到了些瓶颈，因为两个月前说提高投稿频率这个诺言还没有兑现，还有就是因为和小白的生放送冲突， ...</blockquote>
 说错了什么话？完全没有印象
-
-
-
-
-
 
 
 -----
 
 ####  walfeds  
 ##### 1679#       发表于 2018-3-12 17:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38828033&amp;ptid=1572644" target="_blank">lhawp 发表于 2018-3-12 17:22</a>
@@ -3534,16 +2304,10 @@ Azuma Lim在生放跳ソーラン節已经成固定节目了，小白也唱过�
 音游玩家：这不算音游
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1680#       发表于 2018-3-12 17:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38827970&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-12 17:15</a>
@@ -3552,16 +2316,10 @@ Azuma Lim在生放跳ソーラン節已经成固定节目了，小白也唱过�
 发的啥
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 1681#       发表于 2018-3-12 17:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38828151&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-12 17:34</a>
@@ -3570,16 +2328,10 @@ Azuma Lim在生放跳ソーラン節已经成固定节目了，小白也唱过�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">TMA，虚拟youtuber主题的，手脚很快啊，但是少了小白，土妹子不好卖？
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1682#       发表于 2018-3-12 17:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38828186&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-12 17:38</a>
@@ -3588,17 +2340,10 @@ TMA，虚拟youtuber主题的，手脚很快啊，但是少了小白，土妹子
 小白适合病骄猎奇片，肯定不适合这个！
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 1683#       发表于 2018-3-12 17:42
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/12/174226y9yvcvf9aed55ayv.jpg" referrerpolicy="no-referrer">
@@ -3611,17 +2356,7 @@ TMA，虚拟youtuber主题的，手脚很快啊，但是少了小白，土妹子
 2018-3-12 17:42 上传
 
 
-
-
-
-
-
 我。。。不是很能接受<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3630,23 +2365,16 @@ TMA，虚拟youtuber主题的，手脚很快啊，但是少了小白，土妹子
 ##### 1684#       发表于 2018-3-12 17:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38828241&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-12 17:42</a>
 
 我。。。不是很能接受</blockquote>
 这种很正常，真正入眼的肯定只有少部分，所以组长没被看上才是高兴的事！（私心希望组长别被这些糟糕的东西看上）
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 1685#       发表于 2018-3-12 17:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38828326&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-12 17:49</a>
@@ -3657,25 +2385,13 @@ TMA，虚拟youtuber主题的，手脚很快啊，但是少了小白，土妹子
 所以沒被選上吧(誤
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 1686#       发表于 2018-3-12 18:26
 
 
-
-
 組長今天真是如魚得水wwww
-
-
-
-
-
 
 
 -----
@@ -3684,15 +2400,9 @@ TMA，虚拟youtuber主题的，手脚很快啊，但是少了小白，土妹子
 ##### 1687#       发表于 2018-3-12 18:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38828241&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-12 17:42</a>
 我。。。不是很能接受</blockquote>
 衣服倒是挺不错<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3701,21 +2411,13 @@ TMA，虚拟youtuber主题的，手脚很快啊，但是少了小白，土妹子
 ##### 1688#       发表于 2018-3-12 19:04
 
 
-
-
 这三只怕是追尾了白组的高级轿车
-
-
-
-
-
 
 
 -----
 
 ####  lhawp  
 ##### 1689#       发表于 2018-3-12 19:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38828106&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-12 17:29</a>
@@ -3725,32 +2427,19 @@ TMA，虚拟youtuber主题的，手脚很快啊，但是少了小白，土妹子
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这理由比我想像的智障太多了...现在连这样的破事也能炎上了？
 
 
-
-
-
-
-
 -----
 
 ####  downforce  
 ##### 1690#       发表于 2018-3-12 19:31
 
 
-
-
 饭田里穂、徳井青空玩splatoon2竟然还不如爱酱
-
-
-
-
-
 
 
 -----
 
 ####  バーチャルS1er  
 ##### 1691#       发表于 2018-3-12 19:34
-
 
 
  本帖最后由 バーチャルS1er 于 2018-3-12 19:45 编辑 
@@ -3764,28 +2453,15 @@ TMA，虚拟youtuber主题的，手脚很快啊，但是少了小白，土妹子
 顺便监视5ch黑子楼都没有发现炎上的感觉
 
 
-
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 1692#       发表于 2018-3-12 19:36
 
 
-
-
 akari整天被吐槽自搜姬，于是今天刚更了一个自搜姬的推特日常…
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -3794,16 +2470,10 @@ akari整天被吐槽自搜姬，于是今天刚更了一个自搜姬的推特日
 ##### 1693#       发表于 2018-3-12 19:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38828241&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-12 17:42</a>
 
 我。。。不是很能接受</blockquote>
 我说最近怎么在Pornhub上看到个Akari那啥，原来是TMA入场了？
-
-
-
-
-
 
 
 -----
@@ -3812,14 +2482,7 @@ akari整天被吐槽自搜姬，于是今天刚更了一个自搜姬的推特日
 ##### 1694#       发表于 2018-3-12 20:05
 
 
-
-
 班长后一段也放出来了，一个解谜horror游戏，这种游戏从来不碰<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3828,16 +2491,10 @@ akari整天被吐槽自搜姬，于是今天刚更了一个自搜姬的推特日
 ##### 1695#       发表于 2018-3-12 20:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38829548&amp;ptid=1572644" target="_blank">Porsche 发表于 2018-3-12 20:05</a>
 
 班长后一段也放出来了，一个解谜horror游戏，这种游戏从来不碰</blockquote>
 そうだよ<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为什么大家都爱看呢。。。
-
-
-
-
-
 
 
 -----
@@ -3846,22 +2503,15 @@ akari整天被吐槽自搜姬，于是今天刚更了一个自搜姬的推特日
 ##### 1696#       发表于 2018-3-12 20:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">luna新的视频喷了，还有艾琳的份的，还两份
 
 还有被遗忘的狐娘大叔。。。
-
-
-
-
-
 
 
 -----
 
 ####  白白白  
 ##### 1697#       发表于 2018-3-12 20:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38829815&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-12 20:36</a>
@@ -3871,33 +2521,20 @@ luna新的视频喷了，还有艾琳的份的，还两份
 亲分那里我还想怎么没有FQ，原来放结尾了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 1698#       发表于 2018-3-12 20:42
 
 
-
-
 luna最近肝力爆发，真的做到一周三更，以后摸鱼这个梗只能给猫宫了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 另外这期明明把圈内名人都玩了一遍，唯独少了狐娘大叔，人生真操蛋啊noja<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  神龙小生  
 ##### 1699#       发表于 2018-3-12 20:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38829815&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-03-12 20:36:27</a>
@@ -3908,27 +2545,15 @@ luna新的视频喷了，还有艾琳的份的，还两份
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 1700#       发表于 2018-3-12 20:56
 
 
-
-
 而且近期vtuber之间间接联动的梗比以前频繁了，vtuber大家庭。。
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -3937,14 +2562,7 @@ luna新的视频喷了，还有艾琳的份的，还两份
 ##### 1701#       发表于 2018-3-12 21:02
 
 
-
-
 贴吧最新消息，akari的B站字幕组解散了？
-
-
-
-
-
 
 
 -----
@@ -3953,22 +2571,15 @@ luna新的视频喷了，还有艾琳的份的，还两份
 ##### 1702#       发表于 2018-3-12 21:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38830018&amp;ptid=1572644" target="_blank">fqflhc 发表于 2018-3-12 21:02</a>
 贴吧最新消息，akari的B站字幕组解散了？</blockquote>
 B站动态说，大家都忙加上油管有稳定的繁中翻译，所以散了
-
-
-
-
-
 
 
 -----
 
 ####  walfeds  
 ##### 1703#       发表于 2018-3-12 21:05
-
 
 
  本帖最后由 walfeds 于 2018-3-12 21:06 编辑 
@@ -3982,32 +2593,19 @@ B站动态说，大家都忙加上油管有稳定的繁中翻译，所以散了
 B站动态，看这意思没解散吧，只不过要摸了。。。
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 1704#       发表于 2018-3-12 21:05
 
 
-
-
 老爱开始玩心跳文学部了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  白白白  
 ##### 1705#       发表于 2018-3-12 21:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38829815&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-12 20:36</a>
@@ -4017,16 +2615,10 @@ luna新的视频喷了，还有艾琳的份的，还两份
 想了下yua也被遗忘了，明明之前有模仿过的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 1706#       发表于 2018-3-12 21:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38830053&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-12 21:05</a>
@@ -4037,17 +2629,10 @@ luna新的视频喷了，还有艾琳的份的，还两份
 不过谁推荐的可以拖出来打死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  七夜美琴  
 ##### 1707#       发表于 2018-3-12 21:12
-
-
 
 
 萌实嫁实字幕组也摸……
@@ -4055,16 +2640,10 @@ luna新的视频喷了，还有艾琳的份的，还两份
 没有稳定的梯子看不了脑婆，感觉要死了。
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 1708#       发表于 2018-3-12 21:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38830115&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-12 21:12</a>
@@ -4075,27 +2654,15 @@ luna新的视频喷了，还有艾琳的份的，还两份
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">老爱不打枪我们还是朋友，本质大叔。
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 1709#       发表于 2018-3-12 21:42
 
 
-
-
 现在看起来老爱日更多个还质量还能保持在真是厉害，其他更多了都感觉有点下滑，无论资历还是能力当之无愧第一人。
 
 恩，只要不打枪的话。
-
-
-
-
-
 
 
 -----
@@ -4104,13 +2671,7 @@ luna新的视频喷了，还有艾琳的份的，还两份
 ##### 1710#       发表于 2018-3-12 21:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说来白组倒是更新的勤奋，可惜泥潭粉的也少啊
-
-
-
-
-
 
 
 -----
@@ -4119,16 +2680,10 @@ luna新的视频喷了，还有艾琳的份的，还两份
 ##### 1711#       发表于 2018-3-12 22:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38830483&amp;ptid=1572644" target="_blank">蓝色偶像bobo 发表于 2018-3-12 21:50</a>
 
 说来白组倒是更新的勤奋，可惜泥潭粉的也少啊</blockquote>
 就组长那日更，路人还每天最少更一集以上，很敬佩
-
-
-
-
-
 
 
 -----
@@ -4137,16 +2692,10 @@ luna新的视频喷了，还有艾琳的份的，还两份
 ##### 1712#       发表于 2018-3-12 22:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38830483&amp;ptid=1572644" target="_blank">蓝色偶像bobo 发表于 2018-3-12 21:50</a>
 
 说来白组倒是更新的勤奋，可惜泥潭粉的也少啊</blockquote>
 之前播了血缘也没什么动静 可惜了
-
-
-
-
-
 
 
 -----
@@ -4155,13 +2704,7 @@ luna新的视频喷了，还有艾琳的份的，还两份
 ##### 1713#       发表于 2018-3-12 22:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我是说日更而且质量不掉啊，小白除了打枪其他质量要赶上老爱还是有距离吧……
-
-
-
-
-
 
 
 -----
@@ -4170,20 +2713,13 @@ luna新的视频喷了，还有艾琳的份的，还两份
 ##### 1714#       发表于 2018-3-12 22:32
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/147.png" referrerpolicy="no-referrer">千寻萝莉这个直播录像  直接就放张图软件都不开了么wwww
-
-
-
-
-
 
 
 -----
 
 ####  xiangcaihtr  
 ##### 1715#       发表于 2018-3-12 22:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38829815&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-03-12 20:36:27</a>
@@ -4194,17 +2730,10 @@ luna新的视频喷了，还有艾琳的份的，还两份
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  looptube  
 ##### 1716#       发表于 2018-3-12 22:49
-
-
 
 
 可能是第一首vtube角色曲？？？
@@ -4213,32 +2742,19 @@ luna新的视频喷了，还有艾琳的份的，还两份
 [http://www.nicovideo.jp/watch/sm32874669](http://www.nicovideo.jp/watch/sm32874669)
 
 
-
-
-
-
-
 -----
 
 ####  耳朵  
 ##### 1717#       发表于 2018-3-12 23:08
 
 
-
-
 luna这野良猫的模仿笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Porsche  
 ##### 1718#       发表于 2018-3-12 23:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38831047&amp;ptid=1572644" target="_blank">looptube 发表于 2018-3-12 22:49</a>
@@ -4250,16 +2766,10 @@ http://www.nicovideo.jp/watch/sm3 ...</blockquote>
 ほんにん
 
 
-
-
-
-
-
 -----
 
 ####  Porsche  
 ##### 1719#       发表于 2018-3-12 23:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38831047&amp;ptid=1572644" target="_blank">looptube 发表于 2018-3-12 22:49</a>
@@ -4271,16 +2781,10 @@ http://www.nicovideo.jp/watch/sm3 ...</blockquote>
 本人巡回済み<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Porsche  
 ##### 1720#       发表于 2018-3-12 23:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38829815&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-12 20:36</a>
@@ -4290,25 +2794,13 @@ luna新的视频喷了，还有艾琳的份的，还两份
 大叔肯定也模仿了，只是实在不像吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  废基  
 ##### 1721#       发表于 2018-3-12 23:17
 
 
-
-
 luna最后也要来一句花Q<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4317,14 +2809,7 @@ luna最后也要来一句花Q<img src="https://static.saraba1st.com/image/smiley
 ##### 1722#       发表于 2018-3-12 23:22
 
 
-
-
 说起来B站好像封了心跳文学部…那是不是就没法在上面看到老爱玩这个的视频了…
-
-
-
-
-
 
 
 -----
@@ -4333,14 +2818,7 @@ luna最后也要来一句花Q<img src="https://static.saraba1st.com/image/smiley
 ##### 1723#       发表于 2018-3-12 23:23
 
 
-
-
 luna最新一期的视频不到两小时就有中文字幕，真是快。
-
-
-
-
-
 
 
 -----
@@ -4349,15 +2827,9 @@ luna最新一期的视频不到两小时就有中文字幕，真是快。
 ##### 1724#       发表于 2018-3-12 23:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38831347&amp;ptid=1572644" target="_blank">水原薰 发表于 2018-3-12 23:22</a>
 说起来B站好像封了心跳文学部…那是不是就没法在上面看到老爱玩这个的视频了… ...</blockquote>
 就b站的尿性，能放出来我充两年大会员，立贴为证
-
-
-
-
-
 
 
 -----
@@ -4366,14 +2838,7 @@ luna最新一期的视频不到两小时就有中文字幕，真是快。
 ##### 1725#       发表于 2018-3-12 23:26
 
 
-
-
 luna最新一期突然上日推趋势，果然大家都喜欢看圈内互相恶搞<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4382,14 +2847,7 @@ luna最新一期突然上日推趋势，果然大家都喜欢看圈内互相恶�
 ##### 1726#       发表于 2018-3-12 23:31
 
 
-
-
 luna感觉b站更新越来越慢，不过油土鳖的字幕倒是上传的飞快
-
-
-
-
-
 
 
 -----
@@ -4398,23 +2856,16 @@ luna感觉b站更新越来越慢，不过油土鳖的字幕倒是上传的飞快
 ##### 1727#       发表于 2018-3-12 23:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38831304&amp;ptid=1572644" target="_blank">Porsche 发表于 2018-3-12 23:17</a>
 
 大叔肯定也模仿了，只是实在不像吧</blockquote>
 看推上说还打算做，看那时会不会有了。。。
 
 
-
-
-
-
-
 -----
 
 ####  plok201  
 ##### 1728#       发表于 2018-3-12 23:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38829676&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-12 20:20</a>
@@ -4429,17 +2880,10 @@ luna感觉b站更新越来越慢，不过油土鳖的字幕倒是上传的飞快
 当然,我觉得最有趣的是,班长播这类游戏播到很脑洞的点,发出那种被游戏玩弄的声音超好玩的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  snova搬运  
 ##### 1729#       发表于 2018-3-13 00:30
-
-
 
 
 小白被禁了杀鸡，护士被禁了模拟外科手术，现在又有了老爱的DDLC，望B站和其他youtuber再接再厉
@@ -4447,16 +2891,10 @@ luna感觉b站更新越来越慢，不过油土鳖的字幕倒是上传的飞快
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  stuka1942  
 ##### 1730#       发表于 2018-3-13 00:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38830986&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-12 22:43</a>
@@ -4468,16 +2906,10 @@ luna感觉b站更新越来越慢，不过油土鳖的字幕倒是上传的飞快
 luna模仿猫宫模仿得还有那么点意思的<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zpbzpb123123  
 ##### 1731#       发表于 2018-3-13 01:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38831047&amp;ptid=1572644" target="_blank">looptube 发表于 2018-3-12 22:49</a>
@@ -4489,25 +2921,13 @@ http://www.nicovideo.jp/watch/sm3 ...</blockquote>
 坐等班长本人翻唱
 
 
-
-
-
-
-
 -----
 
 ####  江少寒  
 ##### 1732#       发表于 2018-3-13 03:20
 
 
-
-
 Luna这个模仿太666666了
-
-
-
-
-
 
 
 -----
@@ -4516,15 +2936,9 @@ Luna这个模仿太666666了
 ##### 1733#         楼主| 发表于 2018-3-13 11:33
 
 
-
  本帖最后由 杜庶仁 于 2018-3-13 11:35 编辑 
 
 輝夜月模仿的好强啊。相似度极高。野良猫那个模仿到底怎么做到的，太厉害了……
-
-
-
-
-
 
 
 -----
@@ -4533,20 +2947,13 @@ Luna这个模仿太666666了
 ##### 1734#       发表于 2018-3-13 11:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">感觉模仿实嫁和野良猫感觉在损他们的辣鸡模型一样
-
-
-
-
-
 
 
 -----
 
 ####  白白白  
 ##### 1735#       发表于 2018-3-13 12:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38835300&amp;ptid=1572644" target="_blank">杜庶仁 发表于 2018-3-13 11:33</a>
@@ -4556,16 +2963,10 @@ Luna这个模仿太666666了
 野良猫那里笑喷了，把辣鸡模型和空耳语音的笑点都模仿出来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 1736#       发表于 2018-3-13 12:10
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可惜没有委员长，不然可以看到脸部各种颜艺然后上半身一动不动了。
@@ -4573,16 +2974,10 @@ Luna这个模仿太666666了
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">狐狸大叔被猫宫抢位置的感觉。
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1737#       发表于 2018-3-13 12:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38835721&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-13 12:10</a>
@@ -4594,25 +2989,13 @@ Luna这个模仿太666666了
 没事，反正大部分人已经认定四天王是终身荣誉称号了
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 1738#       发表于 2018-3-13 12:53
 
 
-
-
 猫宫现在184000，狐娘大叔才256000，差距挺近的。
-
-
-
-
-
 
 
 -----
@@ -4621,20 +3004,13 @@ Luna这个模仿太666666了
 ##### 1739#       发表于 2018-3-13 13:34
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">委員長かわいい
-
-
-
-
-
 
 
 -----
 
 ####  管他三俗  
 ##### 1740#       发表于 2018-3-13 15:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38831897&amp;ptid=1572644" target="_blank">snova搬运 发表于 2018-3-13 00:30</a>
@@ -4644,16 +3020,10 @@ Luna这个模仿太666666了
 吃鸡和模拟外科手术怎么了吗
 
 
-
-
-
-
-
 -----
 
 ####  喜闻乐见  
 ##### 1741#       发表于 2018-3-13 15:18
-
 
 
 <img src="http://ww1.sinaimg.cn/large/732205bcgy1fpb7qiezqlj20mq02lglg.jpg" referrerpolicy="no-referrer">
@@ -4662,16 +3032,10 @@ Luna这个模仿太666666了
 可以在南极中间看到爱酱的写真广告了
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1742#       发表于 2018-3-13 15:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38837583&amp;ptid=1572644" target="_blank">管他三俗 发表于 2018-3-13 15:16</a>
@@ -4680,26 +3044,15 @@ Luna这个模仿太666666了
 B站不给上这些血腥暴力的游戏视频而已
 
 
-
-
-
-
-
 -----
 
 ####  ror  
 ##### 1743#       发表于 2018-3-13 15:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38837583&amp;ptid=1572644" target="_blank">管他三俗 发表于 2018-3-13 15:16</a>
 吃鸡和模拟外科手术怎么了吗</blockquote>
 黎明杀机不是吃鸡
-
-
-
-
-
 
 
 -----
@@ -4708,16 +3061,10 @@ B站不给上这些血腥暴力的游戏视频而已
 ##### 1744#       发表于 2018-3-13 15:49
 
 
-
 <img src="http://wx1.sinaimg.cn/mw690/b5c6e113gy1fpb8kklq7lj20fg0l6761.jpg" referrerpolicy="no-referrer">
 <img src="http://wx4.sinaimg.cn/mw690/b5c6e113gy1fpb8kl5tq3j20eo03fjrf.jpg" referrerpolicy="no-referrer">
 
 感觉萝卜子变成没爹的孩子了<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4726,16 +3073,9 @@ B站不给上这些血腥暴力的游戏视频而已
 ##### 1745#       发表于 2018-3-13 16:10
 
 
-
-
 花几个小时把这楼爬完了，之前是人工智障的路人粉，看过一眼akari，从最开始四天王话题还能大致跟上，到后面什么组长班长渐渐不知道你们在说什么了，最新的这些更加摸不着头脑了...
 
 人工智障都成德高望重的老爱了，可是她油管视频还是挺多没中文的，虽然凑合看英文也还行吧...你们后面说的这些新人是不是必须精通日语才能跟上节奏了...
-
-
-
-
-
 
 
 -----
@@ -4744,15 +3084,9 @@ B站不给上这些血腥暴力的游戏视频而已
 ##### 1746#       发表于 2018-3-13 16:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38838109&amp;ptid=1572644" target="_blank">tiro_finale 发表于 2018-3-13 16:10</a>
 花几个小时把这楼爬完了，之前是人工智障的路人粉，看过一眼akari，从最开始四天王话题还能大致跟上，到后 ...</blockquote>
 四天王和高人气新人都有稳定熟肉，剩下的只能自己啃生肉了
-
-
-
-
-
 
 
 -----
@@ -4761,23 +3095,16 @@ B站不给上这些血腥暴力的游戏视频而已
 ##### 1747#       发表于 2018-3-13 16:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38838109&amp;ptid=1572644" target="_blank">tiro_finale 发表于 2018-3-13 16:10</a>
 
 花几个小时把这楼爬完了，之前是人工智障的路人粉，看过一眼akari，从最开始四天王话题还能大致跟上，到后 ...</blockquote>
 新人要看我只推辉夜月和猫宫，b站一搜都知道是谁，量少质量高翻译全。
 
 
-
-
-
-
-
 -----
 
 ####  noneoneone  
 ##### 1748#       发表于 2018-3-13 16:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38838109&amp;ptid=1572644" target="_blank">tiro_finale 发表于 2018-3-13 16:10</a>
@@ -4789,16 +3116,10 @@ B站不给上这些血腥暴力的游戏视频而已
 —— 来自 Meizu M6 Note, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3
 
 
-
-
-
-
-
 -----
 
 ####  杜庶仁  
 ##### 1749#         楼主| 发表于 2018-3-13 16:20
-
 
 
  本帖最后由 杜庶仁 于 2018-3-13 16:21 编辑 
@@ -4824,25 +3145,13 @@ b站搬运的粉丝已经超过輝夜月了。
 [https://space.bilibili.com/109891#/](https://space.bilibili.com/109891#/)
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1750#       发表于 2018-3-13 16:49
 
 
-
-
 其实很多三军四军都蛮有趣的，不过数量实在太多一般人肯定看不过来
-
-
-
-
-
 
 
 -----
@@ -4851,15 +3160,9 @@ b站搬运的粉丝已经超过輝夜月了。
 ##### 1751#       发表于 2018-3-13 16:51
 
 
-
  本帖最后由 walfeds 于 2018-3-13 17:06 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">MAP字幕组昨天还风雨飘摇，今天就素质三连了。。。啊不素质四连
-
-
-
-
-
 
 
 -----
@@ -4868,14 +3171,7 @@ b站搬运的粉丝已经超过輝夜月了。
 ##### 1752#       发表于 2018-3-13 17:08
 
 
-
-
 肝GBF的时候能看各种各样的vtuber，发现很多人气不高但很有趣的
-
-
-
-
-
 
 
 -----
@@ -4884,24 +3180,16 @@ b站搬运的粉丝已经超过輝夜月了。
 ##### 1753#       发表于 2018-3-13 17:55
 
 
-
-
 APPLAND要推出十名新Vtuber阿
 
 當然人設還是從少女兵器大戰回收www
 [https://audition.shojoheiki.com/index.html](https://audition.shojoheiki.com/index.html)
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 1754#       发表于 2018-3-13 18:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38839242&amp;ptid=1572644" target="_blank">lime2001 发表于 2018-03-13 17:55:12</a>
@@ -4912,32 +3200,19 @@ APPLAND要推出十名新Vtuber阿
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 1755#       发表于 2018-3-13 18:10
 
 
-
-
 我选了大和和多摩
-
-
-
-
-
 
 
 -----
 
 ####  バーチャルS1er  
 ##### 1756#       发表于 2018-3-13 18:10
-
 
 
  本帖最后由 バーチャルS1er 于 2018-3-13 18:16 编辑 
@@ -4948,16 +3223,10 @@ APPLAND要推出十名新Vtuber阿
 这量产型的立绘也太差了吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">,sora的运营好像也有搞量产型的想法
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 1757#       发表于 2018-3-13 18:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38839242&amp;ptid=1572644" target="_blank">lime2001 发表于 2018-03-13 17:55:12</a>
@@ -4968,17 +3237,10 @@ APPLAND要推出十名新Vtuber阿
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  plok201  
 ##### 1758#       发表于 2018-3-13 18:50
-
-
 
 
 小白突然变成军团领袖还行233
@@ -4987,16 +3249,10 @@ APPLAND要推出十名新Vtuber阿
 话说这种按订阅数不断升级模型的方式我一开始是预想班长那边先弄的，5W升级直播设备，10W给个能看全身的3D模型，15W就真的是可以动的3D了…
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 1759#       发表于 2018-3-13 18:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38839377&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-03-13 18:10:38</a>
@@ -5007,16 +3263,10 @@ APPLAND要推出十名新Vtuber阿
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 1760#       发表于 2018-3-13 18:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38839377&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-13 18:10</a>
@@ -5025,16 +3275,10 @@ APPLAND要推出十名新Vtuber阿
 建模会改的啦，把军装卸下来也有几个挺不错的素脸人才
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 1761#       发表于 2018-3-13 19:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38839757&amp;ptid=1572644" target="_blank">plok201 发表于 2018-3-13 18:50</a>
@@ -5048,25 +3292,13 @@ APPLAND要推出十名新Vtuber阿
 那邊只想宣傳自己的APP而已
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 1762#       发表于 2018-3-13 19:05
 
 
-
-
 又一大推量产机，我对这种先推一大波，然后靠订阅增长来升级的商法十分反感，个人势没办法才靠观众赞助来慢慢升级，企业你也这么玩就显得非常low<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5075,14 +3307,7 @@ APPLAND要推出十名新Vtuber阿
 ##### 1763#       发表于 2018-3-13 19:15
 
 
-
-
 总觉得akari的抖M属性很合适玩抖S的游戏，而且通关的机率很高。
-
-
-
-
-
 
 
 -----
@@ -5091,13 +3316,7 @@ APPLAND要推出十名新Vtuber阿
 ##### 1764#       发表于 2018-3-13 19:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">毕竟是企业，怎么最有利怎么来，只要不影响组长无所谓，还有就是3DVR快点复活
-
-
-
-
-
 
 
 -----
@@ -5106,14 +3325,7 @@ APPLAND要推出十名新Vtuber阿
 ##### 1765#       发表于 2018-3-13 19:25
 
 
-
-
 其实跟动画公司同时多开动画似，喜欢的看，不喜欢也就那样。量产型也很少像班长似这奇人出现，更别像彩虹社样丢个APP自己搞。
-
-
-
-
-
 
 
 -----
@@ -5122,14 +3334,7 @@ APPLAND要推出十名新Vtuber阿
 ##### 1766#       发表于 2018-3-13 19:26
 
 
-
-
 APPLAND好歹丢了个目标出来，有机会看到曙光的。彩虹社只有无尽的绝望
-
-
-
-
-
 
 
 -----
@@ -5138,16 +3343,9 @@ APPLAND好歹丢了个目标出来，有机会看到曙光的。彩虹社只有�
 ##### 1767#       发表于 2018-3-13 19:29
 
 
-
-
 升级的标准是超马头人，实在是草生
 
 号召一波退订（
-
-
-
-
-
 
 
 -----
@@ -5156,25 +3354,16 @@ APPLAND好歹丢了个目标出来，有机会看到曙光的。彩虹社只有�
 ##### 1768#       发表于 2018-3-13 19:30
 
 
-
-
 其实量产大战没什么问题，关键是2D变成3D要想一个人发挥3D优势很难，特别是直播为主的
 
 
 我担心2D变成3D然后到头来也只是变成3D的facefig了
 
 
-
-
-
-
-
 -----
 
 ####  不灭的旋律  
 ##### 1769#       发表于 2018-3-13 19:32
-
-
 
 
 小白本来就是少女兵器大战的女主转vtuber的，结果小白火了游戏反而难产渺无音讯了。
@@ -5184,16 +3373,10 @@ APPLAND好歹丢了个目标出来，有机会看到曙光的。彩虹社只有�
 哦对了小白nico超会议出演决定。
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 1770#       发表于 2018-3-13 19:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38840111&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-13 19:30</a>
@@ -5211,32 +3394,19 @@ APPLAND好歹丢了个目标出来，有机会看到曙光的。彩虹社只有�
 APPLAND肯定是要到本社上班的
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 1771#       发表于 2018-3-13 19:39
 
 
-
-
 小白和虹河都是从游戏角色，看板娘升级上来的。
-
-
-
-
-
 
 
 -----
 
 ####  walfeds  
 ##### 1772#       发表于 2018-3-13 19:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38840131&amp;ptid=1572644" target="_blank">不灭的旋律 发表于 2018-3-13 19:32</a>
@@ -5247,16 +3417,10 @@ APPLAND肯定是要到本社上班的
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这事前登录开了两年半了，可以说早就黄了。。。
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1773#       发表于 2018-3-13 19:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38840131&amp;ptid=1572644" target="_blank">不灭的旋律 发表于 2018-3-13 19:32</a>
@@ -5267,17 +3431,10 @@ APPLAND肯定是要到本社上班的
 据说是少女兵器大战的运营卷钱跑了，游戏就难产了
 
 
-
-
-
-
-
 -----
 
 ####  不灭的旋律  
 ##### 1774#       发表于 2018-3-13 19:46
-
-
 
 
 两个重要剧情角色都被雪藏了，我怀疑小黑这么好的造型是准备给班长级的超新星的。当然前提是你要挖得到。
@@ -5293,25 +3450,14 @@ APPLAND肯定是要到本社上班的
 2018-3-13 19:41 上传
 
 
-
-
-
-
-
 大家都接受现在的小白后游戏的pv看一次笑一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 [https://www.youtube.com/watch?v=S_UYOYvEpz4](https://www.youtube.com/watch?v=S_UYOYvEpz4)
-
-
-
-
-
 
 
 -----
 
 ####  バーチャルS1er  
 ##### 1775#       发表于 2018-3-13 19:53
-
 
 
  本帖最后由 バーチャルS1er 于 2018-3-13 19:57 编辑 
@@ -5334,18 +3480,10 @@ APPLAND肯定是要到本社上班的
 就算里面会出超过5W订阅的孩子，appland也不如把精力放在完善siro的模型‘、设备、VRlive上面
 
 
-
-
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 1776#       发表于 2018-3-13 19:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38840265&amp;ptid=1572644" target="_blank">不灭的旋律 发表于 2018-3-13 19:46</a>
@@ -5357,16 +3495,10 @@ APPLAND肯定是要到本社上班的
 如果把现在的小白换成毛圆。。。画美不看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 1777#       发表于 2018-3-13 20:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38840265&amp;ptid=1572644" target="_blank">不灭的旋律 发表于 2018-03-13 19:46:42</a>
@@ -5378,16 +3510,10 @@ APPLAND肯定是要到本社上班的
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  chexk03  
 ##### 1778#       发表于 2018-3-13 20:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38838228&amp;ptid=1572644" target="_blank">杜庶仁 发表于 2018-3-13 16:20</a>
@@ -5402,25 +3528,13 @@ APPLAND肯定是要到本社上班的
 目前绝赞零杀中…<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  fqflhc  
 ##### 1779#       发表于 2018-3-13 22:34
 
 
-
-
 akari今天到现在为止已经被ban了2000粉，目前还在掉粉，原因不明
-
-
-
-
-
 
 
 -----
@@ -5429,13 +3543,7 @@ akari今天到现在为止已经被ban了2000粉，目前还在掉粉，原因�
 ##### 1780#       发表于 2018-3-13 22:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">明天彩虹JK3人组，又有班长舔了
-
-
-
-
-
 
 
 -----
@@ -5444,19 +3552,11 @@ akari今天到现在为止已经被ban了2000粉，目前还在掉粉，原因�
 ##### 1781#       发表于 2018-3-13 22:56
 
 
-
-
 是不是有人在刷？
-
-
-
-
 
 
 QQ截图20180313225604.png
 (197.26 KB, 下载次数: 5)
-
-
 
 
 下载附件
@@ -5465,24 +3565,7 @@ QQ截图20180313225604.png
 2018-3-13 22:56 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/13/225638otayxfxwntnxxtxe.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -5491,15 +3574,9 @@ QQ截图20180313225604.png
 ##### 1782#       发表于 2018-3-13 22:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38841869&amp;ptid=1572644" target="_blank">fqflhc 发表于 2018-3-13 22:34</a>
 akari今天到现在为止已经被ban了2000粉，目前还在掉粉，原因不明</blockquote>
 真的耶，还在不停掉，这是油管bug，还是akari又得罪人了？
-
-
-
-
-
 
 
 -----
@@ -5508,23 +3585,16 @@ akari今天到现在为止已经被ban了2000粉，目前还在掉粉，原因�
 ##### 1783#       发表于 2018-3-13 23:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38841869&amp;ptid=1572644" target="_blank">fqflhc 发表于 2018-03-13 22:34:01</a>
 akari今天到现在为止已经被ban了2000粉，目前还在掉粉，原因不明</blockquote>之前不是爱酱也试过？
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  fqflhc  
 ##### 1784#       发表于 2018-3-13 23:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38842157&amp;ptid=1572644" target="_blank">天青月白 发表于 2018-3-13 23:04</a>
@@ -5536,16 +3606,10 @@ akari今天到现在为止已经被ban了2000粉，目前还在掉粉，原因�
 情况不同，爱酱是一下掉十几万，akari是持续掉了12个小时
 
 
-
-
-
-
-
 -----
 
 ####  fqflhc  
 ##### 1785#       发表于 2018-3-13 23:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38842082&amp;ptid=1572644" target="_blank">白白白 发表于 2018-3-13 22:57</a>
@@ -5554,25 +3618,13 @@ akari今天到现在为止已经被ban了2000粉，目前还在掉粉，原因�
 今天刚爆出背后运营公司是那个叫什么Duo社的公司，除此之外没有关于她的新闻了
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 1786#       发表于 2018-3-13 23:05
 
 
-
-
 突然突破50w，看来又是油管的锅<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5581,15 +3633,9 @@ akari今天到现在为止已经被ban了2000粉，目前还在掉粉，原因�
 ##### 1787#       发表于 2018-3-13 23:07
 
 
-
  本帖最后由 バーチャルS1er 于 2018-3-13 23:13 编辑 
 
 三分钟没刷新，akari的订阅暴涨1K+，之前一下午到晚上上上下下完全涨不上去，这瞄准50W的人也太多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5598,15 +3644,9 @@ akari今天到现在为止已经被ban了2000粉，目前还在掉粉，原因�
 ##### 1788#       发表于 2018-3-13 23:10
 
 
-
  本帖最后由 不灭的旋律 于 2018-3-13 23:11 编辑 
 
 にじさんじ二期生的铃鹿诗子又是一个委员长级的危险人物<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然你们一直黑にじさんじ但是不得不佩服人家就是能挖出这么多有个性的奇葩。要是app land找的十杰集反而是没个性的普通人就好玩了。
-
-
-
-
-
 
 
 -----
@@ -5615,16 +3655,10 @@ akari今天到现在为止已经被ban了2000粉，目前还在掉粉，原因�
 ##### 1789#       发表于 2018-3-13 23:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38842177&amp;ptid=1572644" target="_blank">白白白 发表于 2018-3-13 23:05</a>
 突然突破50w，看来又是油管的锅</blockquote>
 应该是想抢500,000整的截图
 （就和泥潭删帖抢楼一样<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）
-
-
-
-
-
 
 
 -----
@@ -5633,22 +3667,15 @@ akari今天到现在为止已经被ban了2000粉，目前还在掉粉，原因�
 ##### 1790#       发表于 2018-3-13 23:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38842173&amp;ptid=1572644" target="_blank">fqflhc 发表于 2018-3-13 23:05</a>
 今天刚爆出背后运营公司是那个叫什么Duo社的公司，除此之外没有关于她的新闻了 ...</blockquote>
 这个爆了很久了吧. 圣诞生放那时候duo庆祝上推特热榜的时候就已经被大家锁定了
-
-
-
-
-
 
 
 -----
 
 ####  白白白  
 ##### 1791#       发表于 2018-3-13 23:34
-
 
 
 [https://www.youtube.com/watch?v=8tdIaLOC5Ok&amp;t=21s](https://www.youtube.com/watch?v=8tdIaLOC5Ok&amp;t=21s)
@@ -5660,16 +3687,10 @@ akari今天到现在为止已经被ban了2000粉，目前还在掉粉，原因�
 不过也就老爱敢这么玩，其他vtuber敢这么玩要被喷到退圈<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  杜庶仁  
 ##### 1792#         楼主| 发表于 2018-3-13 23:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38842425&amp;ptid=1572644" target="_blank">白白白 发表于 2018-3-13 23:34</a>
@@ -5683,25 +3704,13 @@ https://www.youtube.com/watch?v=8tdIaLOC5Ok&amp;t=21s
 根据我之前的猜测，绊爱的中之人是一个个性很强势的女性，所以有气会说出来，也是理所当然的吧。
 
 
-
-
-
-
-
 -----
 
 ####  灵魂收割机  
 ##### 1793#       发表于 2018-3-14 02:38
 
 
-
-
 尊师松冈爱还行
-
-
-
-
-
 
 
 -----
@@ -5710,20 +3719,13 @@ https://www.youtube.com/watch?v=8tdIaLOC5Ok&amp;t=21s
 ##### 1794#       发表于 2018-3-14 09:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有人气才能有脾气啊，现在有资格有脾气就爱酱一个人啊。
-
-
-
-
-
 
 
 -----
 
 ####  横寺阳人  
 ##### 1795#       发表于 2018-3-14 09:30
-
 
 
  本帖最后由 横寺阳人 于 2018-3-14 09:31 编辑 
@@ -5733,25 +3735,13 @@ https://www.youtube.com/watch?v=8tdIaLOC5Ok&amp;t=21s
 干到这份上比知名cv还爽的感觉，敢怼老娘谁怕谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  水原薰  
 ##### 1796#       发表于 2018-3-14 09:59
 
 
-
-
 老爱这发飙还真的有点社会啊，难怪辉夜会叫她老大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5760,23 +3750,15 @@ https://www.youtube.com/watch?v=8tdIaLOC5Ok&amp;t=21s
 ##### 1797#       发表于 2018-3-14 10:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38842425&amp;ptid=1572644" target="_blank">白白白 发表于 2018-03-13 23:34:13</a></blockquote>我等那期全部用裏声录的动画等好久了，她到底出不出呀<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  walfeds  
 ##### 1798#       发表于 2018-3-14 11:00
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/14/104630sbe2svkdgkdvrsrk.jpg" referrerpolicy="no-referrer">
@@ -5789,25 +3771,13 @@ https://www.youtube.com/watch?v=8tdIaLOC5Ok&amp;t=21s
 2018-3-14 10:46 上传
 
 
-
-
-
-
-
 这封面制作水平欺负人了啊<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  文文情报屋  
 ##### 1799#       发表于 2018-3-14 11:07
-
-
 
 
 爱酱毕竟业界老大，而且最近还被官方认证成了访日促进大使
@@ -5820,32 +3790,19 @@ akari给我一种谨小慎微的感觉，生怕做错事，11区那种文化氛�
 加上塑造的造型也给人一种好欺负的感觉……
 
 
-
-
-
-
-
 -----
 
 ####  zpbzpb123123  
 ##### 1800#       发表于 2018-3-14 11:19
 
 
-
-
 10分钟了解月ノ美兎3（15分钟）
-
-
-
-
-
 
 
 -----
 
 ####  walfeds  
 ##### 1801#       发表于 2018-3-14 11:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38845664&amp;ptid=1572644" target="_blank">文文情报屋 发表于 2018-3-14 11:07</a>
@@ -5858,16 +3815,10 @@ akari给我一种谨小慎微的感觉，生怕做错事，11区那种文化氛�
 暗黑运营了解一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 1802#       发表于 2018-3-14 11:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38845578&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-14 11:00</a>
@@ -5876,16 +3827,10 @@ akari给我一种谨小慎微的感觉，生怕做错事，11区那种文化氛�
 期待影之诗的实况，影之诗的话不用字幕也能直接看。之前的宝可梦完全看不懂，没字幕时一脸懵逼，有字幕时更加懵逼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 1803#       发表于 2018-3-14 11:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38845874&amp;ptid=1572644" target="_blank">白白白 发表于 2018-3-14 11:23</a>
@@ -5896,16 +3841,10 @@ akari给我一种谨小慎微的感觉，生怕做错事，11区那种文化氛�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉两个都看不懂。。。我先预习下影之诗
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 1804#       发表于 2018-3-14 11:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38846080&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-14 11:39</a>
@@ -5913,17 +3852,10 @@ akari给我一种谨小慎微的感觉，生怕做错事，11区那种文化氛�
 很容易上手，而且萌妹子很多，本质舔卡游戏<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 1805#       发表于 2018-3-14 12:03
-
-
 
 
 目前確定會去NICONICO超會議的Vtuber
@@ -5937,16 +3869,10 @@ akari给我一种谨小慎微的感觉，生怕做错事，11区那种文化氛�
 差月月跟阿卡林四天王就齊了
 
 
-
-
-
-
-
 -----
 
 ####  杜庶仁  
 ##### 1806#         楼主| 发表于 2018-3-14 13:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38845874&amp;ptid=1572644" target="_blank">白白白 发表于 2018-3-14 11:23</a>
@@ -5957,26 +3883,15 @@ akari给我一种谨小慎微的感觉，生怕做错事，11区那种文化氛�
 同期待，这个国内玩的人还是蛮多的。虽然我也只是新手的水平，不过看懂应该还是没问题的。
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 1807#       发表于 2018-3-14 14:49
 
 
-
 [http://www.nicovideo.jp/watch/sm32882609](http://www.nicovideo.jp/watch/sm32882609)
 
 班长的洗衣机广告www
-
-
-
-
-
 
 
 -----
@@ -5985,14 +3900,7 @@ akari给我一种谨小慎微的感觉，生怕做错事，11区那种文化氛�
 ##### 1808#       发表于 2018-3-14 15:06
 
 
-
-
 老爱在日本的标签是什么？看各种同人图感觉没有像国内的智障这么明确啊。
-
-
-
-
-
 
 
 -----
@@ -6001,16 +3909,10 @@ akari给我一种谨小慎微的感觉，生怕做错事，11区那种文化氛�
 ##### 1809#       发表于 2018-3-14 15:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38848120&amp;ptid=1572644" target="_blank">大泉凉 发表于 2018-3-14 15:06</a>
 
 老爱在日本的标签是什么？看各种同人图感觉没有像国内的智障这么明确啊。 ...</blockquote>
 ポンコツ（笨手笨脚或者蠢萌的意思），不过现在Vtuber多了，老爱也有点老大的威严了
-
-
-
-
-
 
 
 -----
@@ -6019,14 +3921,7 @@ akari给我一种谨小慎微的感觉，生怕做错事，11区那种文化氛�
 ##### 1810#       发表于 2018-3-14 16:03
 
 
-
-
 游戏部趁早还是转型吧...这种真格玩法没观众的
-
-
-
-
-
 
 
 -----
@@ -6035,24 +3930,16 @@ akari给我一种谨小慎微的感觉，生怕做错事，11区那种文化氛�
 ##### 1811#       发表于 2018-3-14 16:33
 
 
-
-
 枫和魔王扯上关系是因为画画么？
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1812#       发表于 2018-3-14 16:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38849086&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-14 16:33</a>
@@ -6064,17 +3951,10 @@ akari给我一种谨小慎微的感觉，生怕做错事，11区那种文化氛�
 这个月要联动的，深雪酱教枫画画
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 1813#       发表于 2018-3-14 16:47
-
-
 
 
 记得2月左右时候就有2人的图了+长角的枫www……嘛之前视频没汉化也不清楚了orz
@@ -6083,16 +3963,10 @@ akari给我一种谨小慎微的感觉，生怕做错事，11区那种文化氛�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1814#       发表于 2018-3-14 17:00
-
 
 
  本帖最后由 触手姬 于 2018-3-14 17:40 编辑 
@@ -6105,16 +3979,10 @@ akari给我一种谨小慎微的感觉，生怕做错事，11区那种文化氛�
 原来6小时前出了第一弹，不知道深雪酱能不能拯救枫的画力XDDD
 
 
-
-
-
-
-
 -----
 
 ####  fqflhc  
 ##### 1815#       发表于 2018-3-14 17:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38845664&amp;ptid=1572644" target="_blank">文文情报屋 发表于 2018-3-14 11:07</a>
@@ -6125,16 +3993,10 @@ akari给我一种谨小慎微的感觉，生怕做错事，11区那种文化氛�
 akari可是作死好能手，天使事件的时候本来不关油管运营事，akari大庭广众下怒揭油管黑幕，结果被秒删推
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 1816#       发表于 2018-3-14 18:19
-
 
 
 [https://www.youtube.com/watch?v= ... =VF56Dku9QBGhD8hc-6](https://www.youtube.com/watch?v=VuNdI86BmeE&amp;feature=push-u-sub&amp;attr_tag=VF56Dku9QBGhD8hc-6)
@@ -6148,24 +4010,13 @@ akari可是作死好能手，天使事件的时候本来不关油管运营事，
 最后锁血反杀节目效果满分，作为影之诗玩家对这期很满意<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 1817#       发表于 2018-3-14 19:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">班长10W啦~~~~~~
-
-
-
-
-
 
 
 -----
@@ -6174,14 +4025,7 @@ akari可是作死好能手，天使事件的时候本来不关油管运营事，
 ##### 1818#       发表于 2018-3-14 19:33
 
 
-
-
 jk组生放，2w+人正在观看
-
-
-
-
-
 
 
 -----
@@ -6190,14 +4034,7 @@ jk组生放，2w+人正在观看
 ##### 1819#       发表于 2018-3-14 20:16
 
 
-
-
 班长身高151<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6206,14 +4043,7 @@ jk组生放，2w+人正在观看
 ##### 1820#       发表于 2018-3-14 20:25
 
 
-
-
 两万五了，可怕<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6222,15 +4052,9 @@ jk组生放，2w+人正在观看
 ##### 1821#       发表于 2018-3-14 20:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看了眼梦咲枫，好闷的感觉，pm我就算玩过前代几作也是比较懵逼，基本就是直述我怎么打怎么打。
 
 这样做直播在斗鱼凉了吧……
-
-
-
-
-
 
 
 -----
@@ -6239,16 +4063,10 @@ jk组生放，2w+人正在观看
 ##### 1822#       发表于 2018-3-14 20:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38851553&amp;ptid=1572644" target="_blank">Porsche 发表于 2018-3-14 20:16</a>
 
 班长身高151</blockquote>
 从哪里看到的，设定么？
-
-
-
-
-
 
 
 -----
@@ -6257,17 +4075,10 @@ jk组生放，2w+人正在观看
 ##### 1823#       发表于 2018-3-14 20:45
 
 
-
-
 可恶啊告白环节进去只有凛看了（AZU喵快开始了）
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
-
-
-
-
-
 
 
 -----
@@ -6276,14 +4087,7 @@ jk组生放，2w+人正在观看
 ##### 1824#       发表于 2018-3-14 20:45
 
 
-
-
 151 167 158 三人身高 ，没记错的话
-
-
-
-
-
 
 
 -----
@@ -6292,17 +4096,10 @@ jk组生放，2w+人正在观看
 ##### 1825#       发表于 2018-3-14 20:46
 
 
-
-
 梦咲枫那个风格没法吸路人粉吧……（玩的也是超普通的中速死啊……）
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
-
-
-
-
-
 
 
 -----
@@ -6311,13 +4108,7 @@ jk组生放，2w+人正在观看
 ##### 1826#       发表于 2018-3-14 20:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">好像玩的也是冷无缺队伍，跟你炉石直播第一次直播直接玩佛祖骑差不多吧……
-
-
-
-
-
 
 
 -----
@@ -6326,17 +4117,10 @@ jk组生放，2w+人正在观看
 ##### 1827#       发表于 2018-3-14 20:57
 
 
-
-
 看推特还在玩随从法（呸！）☜来自白狼妖玩家的愤怒
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
-
-
-
-
-
 
 
 -----
@@ -6345,23 +4129,15 @@ jk组生放，2w+人正在观看
 ##### 1828#       发表于 2018-3-14 21:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38849732&amp;ptid=1572644" target="_blank">fqflhc 发表于 2018-3-14 17:29</a>
 akari可是作死好能手，天使事件的时候本来不关油管运营事，akari大庭广众下怒揭油管黑幕，结果被秒删推 ...</blockquote>
 艾琳一家对油管深刻的爱与恨(
-
-
-
-
-
 
 
 -----
 
 ####  walfeds  
 ##### 1829#       发表于 2018-3-14 21:31
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/14/212920di3iqepvtpsvoq5o.png" referrerpolicy="no-referrer">
@@ -6374,16 +4150,7 @@ akari可是作死好能手，天使事件的时候本来不关油管运营事，
 2018-3-14 21:29 上传
 
 
-
-
-
-
 富士葵新模型进度，感觉还不错。。。服装隐隐有股ポン子味
-
-
-
-
-
 
 
 -----
@@ -6392,13 +4159,7 @@ akari可是作死好能手，天使事件的时候本来不关油管运营事，
 ##### 1830#       发表于 2018-3-14 21:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">..AZU喵摔那一下看着好惨。。。
-
-
-
-
-
 
 
 -----
@@ -6407,16 +4168,10 @@ akari可是作死好能手，天使事件的时候本来不关油管运营事，
 ##### 1831#       发表于 2018-3-14 21:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38852116&amp;ptid=1572644" target="_blank">karloku 发表于 2018-3-14 21:21</a>
 
 艾琳一家对油管深刻的爱与恨(</blockquote>
 今天的直到黎明实况里好像又无缘无故骂了一顿运营，笑死我了2333
-
-
-
-
-
 
 
 -----
@@ -6425,16 +4180,9 @@ akari可是作死好能手，天使事件的时候本来不关油管运营事，
 ##### 1832#       发表于 2018-3-14 21:40
 
 
-
-
 突然发现小白动作顺畅了许多啊腿和手都不抽风了，就是裙子依旧穿模orz
 
 —— 来自 HUAWEI STF-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -6443,15 +4191,9 @@ akari可是作死好能手，天使事件的时候本来不关油管运营事，
 ##### 1833#       发表于 2018-3-14 21:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38849732&amp;ptid=1572644" target="_blank">fqflhc 发表于 2018-3-14 17:29</a>
 akari可是作死好能手，天使事件的时候本来不关油管运营事，akari大庭广众下怒揭油管黑幕，结果被秒删推 ...</blockquote>
 什么天使？
-
-
-
-
-
 
 
 -----
@@ -6460,16 +4202,9 @@ akari可是作死好能手，天使事件的时候本来不关油管运营事，
 ##### 1834#       发表于 2018-3-14 21:53
 
 
-
-
 猫宫预告明天更新，全裸待机<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi MIX 2, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -6478,14 +4213,7 @@ akari可是作死好能手，天使事件的时候本来不关油管运营事，
 ##### 1835#       发表于 2018-3-14 21:57
 
 
-
-
 AzuLim真是可爱到没救了，看了这么多Vtuber这是我第一个要成ガチ恋勢的了
-
-
-
-
-
 
 
 -----
@@ -6494,13 +4222,7 @@ AzuLim真是可爱到没救了，看了这么多Vtuber这是我第一个要成�
 ##### 1836#       发表于 2018-3-14 21:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">AZU喵直播真的是太拼了。。。
-
-
-
-
-
 
 
 -----
@@ -6509,16 +4231,10 @@ AzuLim真是可爱到没救了，看了这么多Vtuber这是我第一个要成�
 ##### 1837#       发表于 2018-3-14 21:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38852420&amp;ptid=1572644" target="_blank">v2c 发表于 2018-3-14 21:57</a>
 
 AzuLim真是可爱到没救了，看了这么多Vtuber这是我第一个要成ガチ恋勢的了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/147.png" referrerpolicy="no-referrer">这直播是燃烧生命啊....
-
-
-
-
-
 
 
 -----
@@ -6527,14 +4243,7 @@ AzuLim真是可爱到没救了，看了这么多Vtuber这是我第一个要成�
 ##### 1838#       发表于 2018-3-14 21:59
 
 
-
-
 azulim这次居然播满一个小时，太拼了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6543,16 +4252,9 @@ azulim这次居然播满一个小时，太拼了<img src="https://static.saraba1
 ##### 1839#       发表于 2018-3-14 22:02
 
 
-
-
 azulim雜魚一樣的體力
 
 開場就在喘了www
-
-
-
-
-
 
 
 -----
@@ -6561,14 +4263,7 @@ azulim雜魚一樣的體力
 ##### 1840#       发表于 2018-3-14 22:05
 
 
-
-
 もちひよこ在直播做勇气的3D模型
-
-
-
-
-
 
 
 -----
@@ -6577,14 +4272,7 @@ azulim雜魚一樣的體力
 ##### 1841#       发表于 2018-3-14 22:17
 
 
-
-
 彩虹社...二期的艾丽丝第一次都有6000人果然同社效应有点厉害
-
-
-
-
-
 
 
 -----
@@ -6593,21 +4281,13 @@ azulim雜魚一樣的體力
 ##### 1842#       发表于 2018-3-14 22:18
 
 
-
-
 もちひよこ的声音真是满满的bba气味wwwwwww
-
-
-
-
-
 
 
 -----
 
 ####  触手姬  
 ##### 1843#       发表于 2018-3-14 22:23
-
 
 
  本帖最后由 触手姬 于 2018-3-14 22:48 编辑 
@@ -6625,20 +4305,10 @@ azulim雜魚一樣的體力
 2018-3-14 22:48 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  气流季里  
 ##### 1844#       发表于 2018-3-14 22:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38852689&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-14 22:23</a>
@@ -6647,16 +4317,10 @@ azulim雜魚一樣的體力
 百度不能外链
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1845#       发表于 2018-3-14 22:56
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">天使快回归
@@ -6672,30 +4336,15 @@ azulim雜魚一樣的體力
 2018-3-14 22:56 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 1846#       发表于 2018-3-14 23:00
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
 
 物述有栖（爱丽丝？）初次油土鳖开播就7000人观看..彩虹势妹子都这么强？
-
-
-
-
-
 
 
 -----
@@ -6704,16 +4353,10 @@ azulim雜魚一樣的體力
 ##### 1847#       发表于 2018-3-14 23:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38852372&amp;ptid=1572644" target="_blank">liyibai 发表于 2018-3-14 21:53</a>
 
 什么天使？</blockquote>
 绝对天使
-
-
-
-
-
 
 
 -----
@@ -6722,24 +4365,15 @@ azulim雜魚一樣的體力
 ##### 1848#       发表于 2018-3-14 23:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38853060&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-14 23:00</a>
 物述有栖（爱丽丝？）初次油土鳖开播就7000人观看..彩虹势妹子都这么强？ ...</blockquote>
 中之人不错加上班长的影响，人气高也不奇怪
-
-
-
-
-
 
 
 -----
 
 ####  白白白  
 ##### 1849#       发表于 2018-3-14 23:21
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/14/231546t95rjo4lzqzelvoq.png" referrerpolicy="no-referrer">
@@ -6752,18 +4386,9 @@ azulim雜魚一樣的體力
 2018-3-14 23:15 上传
 
 
-
-
-
-
 彩虹社二期新人有三个进了订阅增长前八<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
 其他几家认真做的企业势反而不如彩虹社这种毒瘤，心情复杂<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6772,14 +4397,7 @@ azulim雜魚一樣的體力
 ##### 1850#       发表于 2018-3-14 23:29
 
 
-
-
 没准现在已经变成了不是以质而是以量的时代了，主要彩虹社能互相推互相联动很大程度上互相增长...
-
-
-
-
-
 
 
 -----
@@ -6788,24 +4406,16 @@ azulim雜魚一樣的體力
 ##### 1851#       发表于 2018-3-14 23:50
 
 
-
-
 组长其实专注射击游戏就好了……这个领域游戏又多
 做doom的那一期各种意义上得超棒啊
 
 —— 来自 HUAWEI BLN-AL40, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1852#       发表于 2018-3-15 00:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38853551&amp;ptid=1572644" target="_blank">蕾丝 发表于 2018-3-14 23:50</a>
@@ -6816,16 +4426,10 @@ azulim雜魚一樣的體力
 组长射击游戏水平也并不强，只是一般爱好者的水平，组长主要卖的是个性
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 1853#       发表于 2018-3-15 00:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38853792&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-15 00:13</a>
@@ -6835,25 +4439,13 @@ azulim雜魚一樣的體力
 —— 来自 HUAWEI BLN-AL40, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  lwa190212  
 ##### 1854#       发表于 2018-3-15 01:22
 
 
-
-
 game部开头效果一直炸裂，像我这样不玩宝可梦也不玩卡牌的更不懂日语，开头结尾看三遍美滋滋，中间游戏部分完全看不懂就只能略过了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6862,21 +4454,13 @@ game部开头效果一直炸裂，像我这样不玩宝可梦也不玩卡牌的�
 ##### 1855#       发表于 2018-3-15 01:26
 
 
-
-
 说起来我一直觉得siro视频的音质很糟糕，人声频段总有刺耳的失真，到最近的视频都没有改善，不知道是设备还是压制问题，油管的自动音频压制还没差到我听得难受的程度
-
-
-
-
-
 
 
 -----
 
 ####  lime2001  
 ##### 1856#       发表于 2018-3-15 01:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38853792&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-15 00:13</a>
@@ -6889,16 +4473,10 @@ game部开头效果一直炸裂，像我这样不玩宝可梦也不玩卡牌的�
 看那個視角切換就超過一般人的水準了
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 1857#       发表于 2018-3-15 07:23
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">彩虹几个人能一起助推太强了啊（别等会又来三期生……）
@@ -6907,17 +4485,10 @@ game部开头效果一直炸裂，像我这样不玩宝可梦也不玩卡牌的�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  恐龙睡衣露水  
 ##### 1858#       发表于 2018-3-15 08:39
-
-
 
 
 個人覺得夢咲楓目前的主要問題在於太過刻意以至於有點假（有點像早期akari）。
@@ -6933,17 +4504,10 @@ luna這種人來瘋的不算，現在的小白，雜魚委員長，空麻麻，�
 我揣測作品開頭的時候可能是期望求穩才會這樣，之後才會再放飛自己。但願部長更多顯露自己真實的心情呀。
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 1859#       发表于 2018-3-15 09:11
-
-
 
 
 我猜中之人是播音/主持出身的？语速和动作的节奏非常平稳，声质表现上角色扮演感很淡，感情不深入，感觉不像声优也不像一般人，可能以前是比赛解说？
@@ -6951,17 +4515,10 @@ luna這種人來瘋的不算，現在的小白，雜魚委員長，空麻麻，�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 1860#       发表于 2018-3-15 09:39
-
-
 
 
 真心投入× 能做好自己的角色√
@@ -6977,27 +4534,15 @@ luna酱本身就是个很有趣的人，自己玩high就能取悦观众，让我
 siro的问题也在于此，本身声线比较挑人是一点，我感觉问主要一个温柔的电脑少女是基本没有看点点，大家被她吸引是后面歪出来病娇黑化杀人狂属性，问题运营现在不敢推这个设定，不然全盘接受这设定做视频玩游戏也就能发挥她的魅力啊。
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 1861#       发表于 2018-3-15 09:46
 
 
-
-
 另外彩虹社看的不多，不过更多事实证明，中之人水平比外面那层壳关键多了，yua和梦咲枫那光鲜的外表和干瘪的内在是完全吸引不了人的，所以与其花钱精心包装还不如广撒网挖出合适的中之人，毕竟我觉得这个才能基本短期内是点不出来的。
 
 如果没有彩虹社挖，委员长估计能找不到其他公司去做youtuber估计也就没然后了，这种广撒网才是现在发展期正确的玩法吧，降低准入门槛让想玩的人去做，当然做大了企业也不是傻的自己能玩海选提供更好的条件甚至直接挖墙脚，这时候才是考验彩虹社后面怎么走了。
-
-
-
-
-
 
 
 -----
@@ -7006,13 +4551,7 @@ siro的问题也在于此，本身声线比较挑人是一点，我感觉问主�
 ##### 1862#       发表于 2018-3-15 10:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">虽然我蛮喜欢彩虹社那批人，她们（他们）都很努力，但这种运营真不希望他们能做大
-
-
-
-
-
 
 
 -----
@@ -7021,25 +4560,16 @@ siro的问题也在于此，本身声线比较挑人是一点，我感觉问主�
 ##### 1863#       发表于 2018-3-15 10:51
 
 
-
-
 现在的彩虹势与和一般的Vtuber，就和UP主与主播的区别差不多了，
 
 
 老爱、luna对彩虹势的态度也有点微妙，估计以后Vtuber里面也会有好几种分类了
 
 
-
-
-
-
-
 -----
 
 ####  不灭的旋律  
 ##### 1864#       发表于 2018-3-15 11:38
-
-
 
 
 にじさんじ的角色官方称号就是虚拟主播而不是vtuber（虽然会根据投稿的地方换称号）。
@@ -7051,24 +4581,13 @@ siro的问题也在于此，本身声线比较挑人是一点，我感觉问主�
 可以预见今后vtuber圈竞争将会非常激烈，挑自己喜欢的看就行了。
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1865#       发表于 2018-3-15 11:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">彩虹社二期是300人中录取了9人，现在还在准备第三期...TMD毒瘤
-
-
-
-
-
 
 
 -----
@@ -7077,14 +4596,7 @@ siro的问题也在于此，本身声线比较挑人是一点，我感觉问主�
 ##### 1866#       发表于 2018-3-15 12:03
 
 
-
-
 彩虹社：战争还没有简单到只靠一台刚大木（vtube）就能打赢的程度
-
-
-
-
-
 
 
 -----
@@ -7093,23 +4605,15 @@ siro的问题也在于此，本身声线比较挑人是一点，我感觉问主�
 ##### 1867#       发表于 2018-3-15 12:17
 
 
-
-
 主要是企業勢合作起來非常麻煩
 
 APPLAND才乾脆培養自己一批的吧
-
-
-
-
-
 
 
 -----
 
 ####  不灭的旋律  
 ##### 1868#       发表于 2018-3-15 12:46
-
 
 
  本帖最后由 不灭的旋律 于 2018-3-15 12:47 编辑 
@@ -7121,17 +4625,10 @@ APPLAND才乾脆培養自己一批的吧
 反观小白我都觉得她被appland言论管制了，这不能提那不能说的。同样是企业势azumalim就很自由可以大方地说出小白被封口的内容。
 
 
-
-
-
-
-
 -----
 
 ####  plok201  
 ##### 1869#       发表于 2018-3-15 12:47
-
-
 
 
 彩虹能搞节日2小时JK联动特别篇，其他企业或者个人要弄个20分钟的联动都难
@@ -7143,16 +4640,10 @@ APPLAND才乾脆培養自己一批的吧
 虽然人设看起来不如企业类的高端，但是感觉很亲切。比如班长唱摩斯拉之歌，对于刚好是那个世代的人来说，好感度说不定直接满了…
 
 
-
-
-
-
-
 -----
 
 ####  zpbzpb123123  
 ##### 1870#       发表于 2018-3-15 13:08
-
 
 
 [https://twitter.com/nijisanji_app/status/970336198290894850](https://twitter.com/nijisanji_app/status/970336198290894850)
@@ -7164,25 +4655,13 @@ APPLAND才乾脆培養自己一批的吧
 班长之前自己也说了前40W是器材费后面都是零花钱啥的来着<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  管他三俗  
 ##### 1871#       发表于 2018-3-15 13:11
 
 
-
-
 爱酱最新一期faceid正经八百体现中之人水平 就是可爱 没办法
-
-
-
-
-
 
 
 -----
@@ -7191,17 +4670,10 @@ APPLAND才乾脆培養自己一批的吧
 ##### 1872#       发表于 2018-3-15 13:40
 
 
-
-
 评论2333买个新的洗衣机和高点的椅子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
-
-
-
-
-
 
 
 -----
@@ -7210,16 +4682,9 @@ APPLAND才乾脆培養自己一批的吧
 ##### 1873#       发表于 2018-3-15 13:42
 
 
-
-
 说白了彩虹社就是集团化的个人势。。。跟一般企业势不在一个轨道上
 
 从这个角度来看企业势会有各种各样的问题，但反过来也是一样
-
-
-
-
-
 
 
 -----
@@ -7228,23 +4693,16 @@ APPLAND才乾脆培養自己一批的吧
 ##### 1874#       发表于 2018-3-15 14:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">企业设定僵化是个问题，还有就是一开始中之人设定不符合的时候就不好转变也是个问题，APPLAND是按之前设定去找人套进去，还是根据每个人擅长不同再设定性格，前者我就不看好了。
 
 
 luna靠P丸累积的经验完全一开始就知道自己做什么的角色还是少见啊。
 
 
-
-
-
-
-
 -----
 
 ####  zpbzpb123123  
 ##### 1875#       发表于 2018-3-15 14:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38858658&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-15 13:42</a>
@@ -7254,16 +4712,10 @@ luna靠P丸累积的经验完全一开始就知道自己做什么的角色还是
 做平台的和做产品的区别吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  平井姨夫  
 ##### 1876#       发表于 2018-3-15 15:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38858315&amp;ptid=1572644" target="_blank">zpbzpb123123 发表于 2018-3-15 13:08</a>
@@ -7275,21 +4727,13 @@ https://twitter.com/nijisanji_app/status/970336198290894850
 真的赚的钱都给她个人的话那还不错啊
 
 
-
-
-
-
-
 -----
 
 ####  不灭的旋律  
 ##### 1877#       发表于 2018-3-15 15:45
 
 
-
-
 不可能都给的，班长说过超40万之后多出来的的钱她和cco平分，也不知道是不是开玩笑。
-
 
 
 推一下企业势超新星之一的かしこまり。之前一直没关注但是她最近第一次生放就饮酒发酒疯毫不自重超有趣的。说实话企业势就是应该这么搞，谁要看你一本正经地卖偶像啊。
@@ -7297,16 +4741,10 @@ https://twitter.com/nijisanji_app/status/970336198290894850
 かしこまり和富士葵这种淫兽模式也挺好的，不和别人合作也有人可以说话不会冷场。
 
 
-
-
-
-
-
 -----
 
 ####  气流季里  
 ##### 1878#       发表于 2018-3-15 15:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38860172&amp;ptid=1572644" target="_blank">不灭的旋律 发表于 2018-3-15 15:45</a>
@@ -7317,16 +4755,10 @@ https://twitter.com/nijisanji_app/status/970336198290894850
 人气堪忧，说是超新星，听起来有点讽刺。不过这位唱歌还是很好听的，之前Luna做的模仿声音那个视频里面也有她。
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 1879#       发表于 2018-3-15 16:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38859964&amp;ptid=1572644" target="_blank">平井姨夫 发表于 2018-3-15 15:32</a>
@@ -7335,24 +4767,13 @@ https://twitter.com/nijisanji_app/status/970336198290894850
 估计是平台抽头的性质吧，早期再补贴投入一些
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 1880#       发表于 2018-3-15 16:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">反正没什么抱负的咸鱼彩虹社是不错的选择，想做大就企业势，企业优势要在中之人水准差不多的时候才能体现出来。
-
-
-
-
-
 
 
 -----
@@ -7361,18 +4782,11 @@ https://twitter.com/nijisanji_app/status/970336198290894850
 ##### 1881#       发表于 2018-3-15 16:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
 
 
 fcee0f3b15067f8bdc773859413d734f.gif
 (1.83 MB, 下载次数: 23)
-
-
 
 
 下载附件
@@ -7381,24 +4795,7 @@ fcee0f3b15067f8bdc773859413d734f.gif
 2018-3-15 16:50 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/15/165022bnllxu2320303nn0.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -7407,22 +4804,14 @@ fcee0f3b15067f8bdc773859413d734f.gif
 ##### 1882#       发表于 2018-3-15 17:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38860940&amp;ptid=1572644" target="_blank">气流季里 发表于 2018-3-15 16:50</a></blockquote>
 草，该来的还是来了
-
-
-
-
-
 
 
 -----
 
 ####  喜闻乐见  
 ##### 1883#       发表于 2018-3-15 17:34
-
-
 
 
 [AI 真·写真集  预览](http://blog.livedoor.jp/geek/preview/edit/59c4d57522f7f905f6a7f14681a2b5b0)
@@ -7438,26 +4827,15 @@ fcee0f3b15067f8bdc773859413d734f.gif
 <img src="http://ww1.sinaimg.cn/large/732205bcgy1fpdmvgr33nj20jg0elwfj.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 1884#       发表于 2018-3-15 17:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38861565&amp;ptid=1572644" target="_blank">喜闻乐见 发表于 2018-3-15 17:34</a>
 AI 真·写真集  预览</blockquote>
 我还以为内容是原画和3d建模各一半，这全都是建模也太没诚意了吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7466,23 +4844,16 @@ AI 真·写真集  预览</blockquote>
 ##### 1885#       发表于 2018-3-15 17:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38861675&amp;ptid=1572644" target="_blank">白白白 发表于 2018-3-15 17:40</a>
 
 我还以为内容是原画和3d建模各一半，这全都是建模也太没诚意了吧</blockquote>
 没骗人啊 写真<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 1886#       发表于 2018-3-15 17:57
-
 
 
 <img src="http://wx4.sinaimg.cn/large/b5c6e113gy1fpdnfq5uqaj20qm0exjrp.jpg" referrerpolicy="no-referrer">
@@ -7493,16 +4864,10 @@ AI 真·写真集  预览</blockquote>
 随便弄了一个表，更加确信这是历史发展的必然了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  不灭的旋律  
 ##### 1887#       发表于 2018-3-15 18:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38860940&amp;ptid=1572644" target="_blank">气流季里 发表于 2018-3-15 16:50</a></blockquote>
@@ -7513,16 +4878,10 @@ AI 真·写真集  预览</blockquote>
 不过二期新人的物述有栖才刚刚开了频道订阅就1.1万了真觉得其他认真做的vtuber可怜，可以说同社量产型的连带优势已经显现了。搞不好appland走得还是一一步好棋。
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1888#       发表于 2018-3-15 18:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38862247&amp;ptid=1572644" target="_blank">不灭的旋律 发表于 2018-3-15 18:31</a>
@@ -7533,33 +4892,19 @@ AI 真·写真集  预览</blockquote>
 好歹组长运营给了目标可以3D化，组长肯带的话增长还是不怕的
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1889#       发表于 2018-3-15 18:37
 
 
-
-
 现在彩虹社给1期生众筹优化设备，就是电脑椅子洗衣机啥的，就是不提3d化
-
-
-
-
-
 
 
 -----
 
 ####  lime2001  
 ##### 1890#       发表于 2018-3-15 18:39
-
-
 
 
 組長今天MGSV過於草
@@ -7571,25 +4916,13 @@ AI 真·写真集  预览</blockquote>
 然後隱匿到一半膩了就衝上去用體術幹掉其他士兵www
 
 
-
-
-
-
-
 -----
 
 ####  YooZi  
 ##### 1891#       发表于 2018-3-15 19:37
 
 
-
-
 JK组这三个人真有悠悠式的感觉
-
-
-
-
-
 
 
 -----
@@ -7598,21 +4931,13 @@ JK组这三个人真有悠悠式的感觉
 ##### 1892#       发表于 2018-3-15 20:30
 
 
-
-
 猫宫战地1，跟吃鸡完全两种风味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  白白白  
 ##### 1893#       发表于 2018-3-15 20:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38863227&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-15 20:30</a>
@@ -7625,27 +4950,15 @@ JK组这三个人真有悠悠式的感觉
 看猫宫玩战地“杀得好爽，猫宫6666”<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1894#       发表于 2018-3-15 20:38
 
 
-
-
 猫宫已经快20万了，这么保持下去没多久超过大叔了...
 
 就算是超过组长也不是不可能，运营你快好好反省！
-
-
-
-
-
 
 
 -----
@@ -7654,21 +4967,13 @@ JK组这三个人真有悠悠式的感觉
 ##### 1895#       发表于 2018-3-15 20:53
 
 
-
-
 113K13D，中间撞见抱团敌人一口气屠了9个全身而退，这游戏是叫战地无双吗？
-
-
-
-
-
 
 
 -----
 
 ####  a5850180  
 ##### 1896#       发表于 2018-3-15 21:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38863276&amp;ptid=1572644" target="_blank">白白白 发表于 2018-3-15 20:35</a>
@@ -7681,25 +4986,13 @@ JK组这三个人真有悠悠式的感觉
 毕竟战地是标准的fps，主要就是一个社保<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  不灭的旋律  
 ##### 1897#       发表于 2018-3-15 21:09
 
 
-
-
 今天かしこまり的醉酒直播也超有意思的。上次从观众席上拉了深雪魔王进来，这次又拉来了护士，实质vtuber酒吧。
-
-
-
-
-
 
 
 -----
@@ -7708,14 +5001,7 @@ JK组这三个人真有悠悠式的感觉
 ##### 1898#       发表于 2018-3-15 21:14
 
 
-
-
 猫宫的白头菲尔德真强啊，1条命换40条命，兰博在世
-
-
-
-
-
 
 
 -----
@@ -7724,23 +5010,16 @@ JK组这三个人真有悠悠式的感觉
 ##### 1899#       发表于 2018-3-15 21:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38862289&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-15 18:37</a>
 
 现在彩虹社给1期生众筹优化设备，就是电脑椅子洗衣机啥的，就是不提3d化</blockquote>
 毕竟最大目的是给自己APP做宣传，3D化不是超出APP功能了嘛
 
 
-
-
-
-
-
 -----
 
 ####  喜闻乐见  
 ##### 1900#       发表于 2018-3-15 21:35
-
 
 
 [https://ameblo.jp/gsc-mikatan/entry-12360037610.html](https://ameblo.jp/gsc-mikatan/entry-12360037610.html)
@@ -7755,32 +5034,19 @@ JK组这三个人真有悠悠式的感觉
 <img src="http://ww1.sinaimg.cn/large/732205bcgy1fpdtw41lrvj20eb0gi76f.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  940045933  
 ##### 1901#       发表于 2018-3-15 21:43
 
 
-
-
 猫宮ひなた很棒啊
-
-
-
-
-
 
 
 -----
 
 ####  白白白  
 ##### 1902#       发表于 2018-3-15 21:48
-
 
 
 [https://www.bilibili.com/read/cv294078](https://www.bilibili.com/read/cv294078)
@@ -7790,16 +5056,10 @@ JK组这三个人真有悠悠式的感觉
 不过身为猫宫搬运组翻译这么让人梦碎的文章，真的没问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  杜庶仁  
 ##### 1903#         楼主| 发表于 2018-3-15 22:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38863962&amp;ptid=1572644" target="_blank">白白白 发表于 2018-3-15 21:48</a>
@@ -7819,16 +5079,10 @@ https://www.bilibili.com/read/cv294078
 所以我断言，如果猫宫肯直播，那么就一定不是代打；如果不敢直播游戏，那么就一定是代打了。
 
 
-
-
-
-
-
 -----
 
 ####  a5850180  
 ##### 1904#       发表于 2018-3-15 22:10
-
 
 
 [https://battlefieldtracker.com/bf1/profile/pc/NekomiyaHinata](https://battlefieldtracker.com/bf1/profile/pc/NekomiyaHinata)
@@ -7836,16 +5090,10 @@ https://www.bilibili.com/read/cv294078
 猫宫BF1战绩<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 1905#       发表于 2018-3-15 22:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38863962&amp;ptid=1572644" target="_blank">白白白 发表于 2018-3-15 21:48</a>
@@ -7860,27 +5108,15 @@ https://www.bilibili.com/read/cv294078
 我觉得代打也不是不行，就是万一玩脱了人设崩了就GG
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 1906#       发表于 2018-3-15 23:15
 
 
-
-
 毕竟不能否认的一点，美少女高玩的身份是其人气高涨的关键，这是一个身份的象征不是两个身份的简单叠加。
 
 假如我说假如其身份的象征被破灭，不好说掉粉，但势必会影响到其在这个人群的受众上限。
-
-
-
-
-
 
 
 -----
@@ -7889,13 +5125,7 @@ https://www.bilibili.com/read/cv294078
 ##### 1907#       发表于 2018-3-15 23:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">看了2小时クゥ直播 太惨烈了ww今天星海新本难打要砸石就算了 还高几率最后一点血掉线（最后2把全部十分之一左右直接卡掉
-
-
-
-
-
 
 
 -----
@@ -7904,14 +5134,7 @@ https://www.bilibili.com/read/cv294078
 ##### 1908#       发表于 2018-3-15 23:19
 
 
-
-
 明天班长和siro的生放时间叠了......
-
-
-
-
-
 
 
 -----
@@ -7920,16 +5143,10 @@ https://www.bilibili.com/read/cv294078
 ##### 1909#       发表于 2018-3-15 23:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38864773&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-15 23:19</a>
 
 明天班长和siro的生放时间叠了......</blockquote>
 这样呀...那组长不满1W也有可能
-
-
-
-
-
 
 
 -----
@@ -7938,13 +5155,7 @@ https://www.bilibili.com/read/cv294078
 ##### 1910#       发表于 2018-3-15 23:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">班长推特关注列一堆R18大手，キモオタ确信
-
-
-
-
-
 
 
 -----
@@ -7953,15 +5164,9 @@ https://www.bilibili.com/read/cv294078
 ##### 1911#       发表于 2018-3-15 23:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38864906&amp;ptid=1572644" target="_blank">zaku11ku 发表于 2018-3-15 23:36</a>
 班长推特关注列一堆R18大手，キモオタ确信</blockquote>
 这是キモオタのモノマネ<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">本当上手
-
-
-
-
-
 
 
 -----
@@ -7970,14 +5175,7 @@ https://www.bilibili.com/read/cv294078
 ##### 1912#       发表于 2018-3-16 00:10
 
 
-
-
 野良猫第一次直播5000多人，这同社效应太强了
-
-
-
-
-
 
 
 -----
@@ -7986,17 +5184,10 @@ https://www.bilibili.com/read/cv294078
 ##### 1913#       发表于 2018-3-16 00:19
 
 
-
-
 JK组最神奇还是之前凛让一个收山很久的18禁大手画了张的图，引起了不少话题
 
 
 不知道班长能不能骗到几个大手画点好看的，现在班长转推的图还是有点差强人意
-
-
-
-
-
 
 
 -----
@@ -8005,23 +5196,15 @@ JK组最神奇还是之前凛让一个收山很久的18禁大手画了张的图�
 ##### 1914#       发表于 2018-3-16 01:38
 
 
-
-
 爱上猫宮ひなた了
 
 vtuber真是好东西啊
-
-
-
-
-
 
 
 -----
 
 ####  不灭的旋律  
 ##### 1915#       发表于 2018-3-16 01:38
-
 
 
  本帖最后由 不灭的旋律 于 2018-3-16 01:54 编辑 
@@ -8053,16 +5236,10 @@ vtuber真是好东西啊
 说实话有几位的水平明显和其在线人数&amp;订阅数不符，同社效应太恐怖。
 
 
-
-
-
-
-
 -----
 
 ####  abbccc200  
 ##### 1916#       发表于 2018-3-16 08:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38865608&amp;ptid=1572644" target="_blank">不灭的旋律 发表于 2018-3-16 01:38</a>
@@ -8073,33 +5250,19 @@ vtuber真是好东西啊
 にじさんじ不少箱推し的，我关注的几个画师都是（不过男性vy就算关注了也未必会看就是了），说白了还是班长他们之前积累的人气
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 1917#       发表于 2018-3-16 09:12
 
 
-
-
 猫宫的声音真好听啊啊啊啊啊啊啊啊啊啊啊（中毒）
-
-
-
-
-
 
 
 -----
 
 ####  sakuyamai  
 ##### 1918#       发表于 2018-3-16 09:28
-
-
 
 
 没看那篇分析文前，直接看了这bf1视频，一分钟就确信绝对是后配上去的了，玩fps不可能这样说话的，就算世界第一的水平也不可能，
@@ -8109,32 +5272,19 @@ pubg还好糊弄，bf1这种节奏的游戏老司机一眼就能看出了
 油管底下最高赞评论简直在给挖坑<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  theloved  
 ##### 1919#       发表于 2018-3-16 09:43
 
 
-
-
 做视频的时候，后期配音很普遍吧，除了直播录像，其他类型我都有默认是后配的，后期配音首先可以打稿子，其次可以看作复盘，让自己思路更清晰，语言更精炼，观众观看体验更好
-
-
-
-
-
 
 
 -----
 
 ####  横寺阳人  
 ##### 1920#       发表于 2018-3-16 10:04
-
 
 
  本帖最后由 横寺阳人 于 2018-3-16 10:06 编辑 
@@ -8144,33 +5294,19 @@ pubg还好糊弄，bf1这种节奏的游戏老司机一眼就能看出了
 我感觉现在没必要太认真，看了乐呵就行，实锤了再去评论好点。
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1921#       发表于 2018-3-16 10:10
 
 
-
-
 猫宫问题是连3d特有的半身都没有，只有头，一般都是会有手动之类，不被怀疑才会奇怪
-
-
-
-
-
 
 
 -----
 
 ####  allenlisa3234  
 ##### 1922#       发表于 2018-3-16 10:12
-
-
 
 
 爱梨要和班长合作么<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
@@ -8180,16 +5316,10 @@ pubg还好糊弄，bf1这种节奏的游戏老司机一眼就能看出了
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1923#       发表于 2018-3-16 10:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38867432&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-16 10:12</a>
@@ -8200,16 +5330,10 @@ pubg还好糊弄，bf1这种节奏的游戏老司机一眼就能看出了
 据说和组长撞车，心痛组长，没准组长会不过万
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 1924#       发表于 2018-3-16 10:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38867403&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-16 10:10</a>
@@ -8218,16 +5342,10 @@ pubg还好糊弄，bf1这种节奏的游戏老司机一眼就能看出了
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">动作捕获那个手也看不出什么问题啊，只能看到手臂微微晃动，确实没意义啊。
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1925#       发表于 2018-3-16 10:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38867787&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-16 10:42</a>
@@ -8236,26 +5354,13 @@ pubg还好糊弄，bf1这种节奏的游戏老司机一眼就能看出了
 现在还是只要肯直播才能打消质疑
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 1926#       发表于 2018-3-16 11:13
 
 
-
-
 猫宫的PUBG不是后配的话那就是撸几十盘都在边说话边玩边3D录像，怎么想也不可能
-
-
-
-
-
-
 
 
 -----
@@ -8264,21 +5369,13 @@ pubg还好糊弄，bf1这种节奏的游戏老司机一眼就能看出了
 ##### 1927#       发表于 2018-3-16 11:17
 
 
-
-
 其实后期还是录播还是能明显看出来的
-
-
-
-
-
 
 
 -----
 
 ####  喜闻乐见  
 ##### 1928#       发表于 2018-3-16 11:26
-
 
 
  本帖最后由 喜闻乐见 于 2018-3-16 11:34 编辑 
@@ -8292,25 +5389,13 @@ pubg还好糊弄，bf1这种节奏的游戏老司机一眼就能看出了
 <img src="http://ww1.sinaimg.cn/large/732205bcgy1fpei4upslij20pw0arq5b.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  管他三俗  
 ##### 1929#       发表于 2018-3-16 11:26
 
 
-
-
 喵宫战地一视频 B站的那个汉化版1：13的时候有个1帧切镜头 太像外挂了 没有手抖动 准心直接敌人A跳到敌人B 连甩枪的过程都没有
-
-
-
-
-
 
 
 -----
@@ -8319,20 +5404,13 @@ pubg还好糊弄，bf1这种节奏的游戏老司机一眼就能看出了
 ##### 1930#       发表于 2018-3-16 11:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这里是实锤猫宫真爱楼，喜欢实锤猫宫的天天顶。
-
-
-
-
-
 
 
 -----
 
 ####  Inquisitor  
 ##### 1931#       发表于 2018-3-16 11:35
-
 
 
 <blockquote>引用第1882楼喜闻乐见于2018-03-15 17:34发表的  :
@@ -8346,16 +5424,10 @@ AI 真·写真集  预览</blockquote>
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  noneoneone  
 ##### 1932#       发表于 2018-3-16 11:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38867403&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-16 10:10</a>
@@ -8365,16 +5437,10 @@ AI 真·写真集  预览</blockquote>
 —— 来自 Meizu M6 Note, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3
 
 
-
-
-
-
-
 -----
 
 ####  喜闻乐见  
 ##### 1933#       发表于 2018-3-16 11:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38868503&amp;ptid=1572644" target="_blank">Inquisitor 发表于 2018-3-16 11:35</a>
@@ -8386,25 +5452,13 @@ AI 真·写真集  预览</blockquote>
 <img src="http://ww1.sinaimg.cn/large/732205bcgy1fpeihkseoej209404at8m.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  喜闻乐见  
 ##### 1934#       发表于 2018-3-16 11:46
 
 
-
-
  .
-
-
-
-
-
 
 
 -----
@@ -8413,16 +5467,10 @@ AI 真·写真集  预览</blockquote>
 ##### 1935#       发表于 2018-3-16 11:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38868379&amp;ptid=1572644" target="_blank">喜闻乐见 发表于 2018-3-16 11:26</a>
 
 粘土人 Kizuna AI GSC开订</blockquote>
 卖爆还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8431,14 +5479,7 @@ AI 真·写真集  预览</blockquote>
 ##### 1936#       发表于 2018-3-16 11:57
 
 
-
-
 四天王其中三个都有周边了，个人势的大叔不提，组长怎么还不出周边呀！！！
-
-
-
-
-
 
 
 -----
@@ -8447,13 +5488,7 @@ AI 真·写真集  预览</blockquote>
 ##### 1937#       发表于 2018-3-16 11:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">组长运营太菜了，全靠组长个人撑出来的人气
-
-
-
-
-
 
 
 -----
@@ -8462,16 +5497,10 @@ AI 真·写真集  预览</blockquote>
 ##### 1938#       发表于 2018-3-16 12:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38867497&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-16 10:16</a>
 
 据说和组长撞车，心痛组长，没准组长会不过万</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">翻了下推特和发预报的都没提到班长开播。。额  奇怪..
-
-
-
-
-
 
 
 -----
@@ -8480,16 +5509,10 @@ AI 真·写真集  预览</blockquote>
 ##### 1939#       发表于 2018-3-16 12:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38867497&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-16 10:16</a>
 
 据说和组长撞车，心痛组长，没准组长会不过万</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">翻了下推特和发预报的都没提到班长开播。。额  奇怪..
-
-
-
-
-
 
 
 -----
@@ -8498,16 +5521,10 @@ AI 真·写真集  预览</blockquote>
 ##### 1940#       发表于 2018-3-16 12:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38867497&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-16 10:16</a>
 
 据说和组长撞车，心痛组长，没准组长会不过万</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">翻了下推特和发预报的都没提到班长开播。。额  奇怪..
-
-
-
-
-
 
 
 -----
@@ -8516,23 +5533,15 @@ AI 真·写真集  预览</blockquote>
 ##### 1941#       发表于 2018-3-16 12:05
 
 
-
-
 ポン子最先提到的vtuber是老爱和小白，以这两个人的实力当天气节目的嘉宾是毫无问题的，结果反而被班长先抢到合作的可能性了。要知道ポン子背后可是超大手企业合作的话是一个往脸上贴金的大好机会只能说企业的嗅觉不行了。
 
 ポン子在圈子里也是迷之人气，随便找个vtuber都可能看到玩梗的。
-
-
-
-
-
 
 
 -----
 
 ####  allenlisa3234  
 ##### 1942#       发表于 2018-3-16 12:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38868831&amp;ptid=1572644" target="_blank">不灭的旋律 发表于 2018-3-16 12:05</a>
@@ -8542,16 +5551,10 @@ AI 真·写真集  预览</blockquote>
 ポン子背后的公司很大么？之前一直以为只是个直播天气预报的电台（虽然从规模看也太大了吧....
 
 
-
-
-
-
-
 -----
 
 ####  管他三俗  
 ##### 1943#       发表于 2018-3-16 12:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38868503&amp;ptid=1572644" target="_blank">Inquisitor 发表于 2018-3-16 11:35</a>
@@ -8561,16 +5564,10 @@ AI 真·写真集  预览</blockquote>
 今天晚上我可能能晒单 两本<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  不灭的旋律  
 ##### 1944#       发表于 2018-3-16 12:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38869027&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-16 12:23</a>
@@ -8579,17 +5576,10 @@ AI 真·写真集  预览</blockquote>
 86年创立的老牌气象公司WEATHERNEWS，据说也是世界上最大规模的民营气象公司。ポン子出演的SOLiVE24就是其提供的24小时气象节目。论背景ポン子大概真是业内第一了。
 
 
-
-
-
-
-
 -----
 
 ####  YooZi  
 ##### 1945#       发表于 2018-3-16 13:17
-
-
 
 
 补了noracat 就算早就知道了中之人是大叔，结果还是被这个可爱度震惊了
@@ -8599,16 +5589,10 @@ AI 真·写真集  预览</blockquote>
 真实死宅最了解死宅
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 1946#       发表于 2018-3-16 14:06
-
 
 
 [http://www.nicovideo.jp/watch/sm32891100](http://www.nicovideo.jp/watch/sm32891100)
@@ -8617,16 +5601,10 @@ AI 真·写真集  预览</blockquote>
 我是觉得班长和ポン子挺像的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 1947#       发表于 2018-3-16 14:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38867323&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-16 10:04</a>
@@ -8638,16 +5616,10 @@ AI 真·写真集  预览</blockquote>
 战地就不知道了
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 1948#       发表于 2018-3-16 15:10
-
 
 
 [https://twitter.com/H4_Ne/status/974419163497156609](https://twitter.com/H4_Ne/status/974419163497156609)
@@ -8658,16 +5630,10 @@ AI 真·写真集  预览</blockquote>
 如果PUBG这边是Rumad的话,猫宫算是特殊的"云FPS玩家"了,万一暴露了坏影响也不会太大
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 1949#       发表于 2018-3-16 15:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38870583&amp;ptid=1572644" target="_blank">蕾丝 发表于 2018-3-16 14:51</a>
@@ -8679,25 +5645,13 @@ AI 真·写真集  预览</blockquote>
 战地那个视频我看过两遍，全程猫宫基本都是能嗯嗯啊啊，偶尔说出自己的思路和现在情况或者局势判断，也没有说骚话的空间啊。
 
 
-
-
-
-
-
 -----
 
 ####  sinfor  
 ##### 1950#       发表于 2018-3-16 15:21
 
 
-
-
 猫宫订阅超过二十万了吧，四天王地位固定的情况下怎么称呼呢？次世代笔头？
-
-
-
-
-
 
 
 -----
@@ -8706,13 +5660,7 @@ AI 真·写真集  预览</blockquote>
 ##### 1951#       发表于 2018-3-16 15:21
 
 
-
 风怒编辑
-
-
-
-
-
 
 
 -----
@@ -8721,14 +5669,7 @@ AI 真·写真集  预览</blockquote>
 ##### 1952#       发表于 2018-3-16 15:50
 
 
-
-
 班长今天真要勃？推特一直没动静
-
-
-
-
-
 
 
 -----
@@ -8737,14 +5678,7 @@ AI 真·写真集  预览</blockquote>
 ##### 1953#       发表于 2018-3-16 16:03
 
 
-
-
 班长生放是我搞错了,没想到这种情报也会有人编<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8753,15 +5687,7 @@ AI 真·写真集  预览</blockquote>
 ##### 1954#       发表于 2018-3-16 16:04
 
 
-
-
 假如是代打，感觉就算直播了，猫宫配音的人即兴发挥能力够好做到像视频这种程度也还是很有可能的吧…
-
-
-
-
-
-
 
 
 -----
@@ -8770,23 +5696,16 @@ AI 真·写真集  预览</blockquote>
 ##### 1955#       发表于 2018-3-16 16:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38871315&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-16 16:03</a>
 
 班长生放是我搞错了,没想到这种情报也会有人编</blockquote>
 还好，我还想班长难道只是表面白组了，要和组长撞
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1956#       发表于 2018-3-16 16:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38871324&amp;ptid=1572644" target="_blank">耳朵 发表于 2018-3-16 16:04</a>
@@ -8798,26 +5717,15 @@ AI 真·写真集  预览</blockquote>
 想即兴发挥发挥直播太难，直播各种各样的突发事件，基本是不可能的
 
 
-
-
-
-
-
 -----
 
 ####  气流季里  
 ##### 1957#       发表于 2018-3-16 16:29
 
 
-
 [https://youtu.be/5Pm0Bk9v7VQ](https://youtu.be/5Pm0Bk9v7VQ)
 
 这个英文Vtuber终于发视频了。
-
-
-
-
-
 
 
 -----
@@ -8826,23 +5734,15 @@ AI 真·写真集  预览</blockquote>
 ##### 1958#       发表于 2018-3-16 16:49
 
 
-
-
 猫宫几乎只有一个头像，动作和表情都很局限，如果只是看游戏水平的话，太多高手视频了啊，还是要强调一点美少女的部分吧
 
 所以现在感觉配音包装从企划者的角度来看可能性很高，这种有点放不开的表现形式、过于完美的多种属性合一都有这方面迹象...
-
-
-
-
-
 
 
 -----
 
 ####  横寺阳人  
 ##### 1959#       发表于 2018-3-16 17:03
-
 
 
  本帖最后由 横寺阳人 于 2018-3-16 17:05 编辑 
@@ -8855,16 +5755,10 @@ AI 真·写真集  预览</blockquote>
 另外如果代打的真的是女的，但是配音不是打的人，那到底那个才算猫宫？
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 1960#       发表于 2018-3-16 17:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38871983&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-16 17:03</a>
@@ -8880,16 +5774,10 @@ AI 真·写真集  预览</blockquote>
 只要不作弊的话人气还是可以得到保证的
 
 
-
-
-
-
-
 -----
 
 ####  appletree111405  
 ##### 1961#       发表于 2018-3-16 17:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38867323&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-16 10:04</a>
@@ -8900,16 +5788,10 @@ AI 真·写真集  预览</blockquote>
 她只是说了“说了R6节奏太紧凑不要一遍卖萌一边玩”
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 1962#       发表于 2018-3-16 18:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38872522&amp;ptid=1572644" target="_blank">appletree111405 发表于 2018-3-16 17:58</a>
@@ -8920,16 +5802,10 @@ AI 真·写真集  预览</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">那记错了，不过BF的视频里面猫宫也是差不多，游戏节奏很紧凑说不了几句骚话。全程不明意义喊叫。
 
 
-
-
-
-
-
 -----
 
 ####  appletree111405  
 ##### 1963#       发表于 2018-3-16 18:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38871598&amp;ptid=1572644" target="_blank">气流季里 发表于 2018-3-16 16:29</a>
@@ -8940,25 +5816,13 @@ https://youtu.be/5Pm0Bk9v7VQ
 这个英文Vtuber叫什么名字呀，我去B站搜搜有没人搬运
 
 
-
-
-
-
-
 -----
 
 ####  ror  
 ##### 1964#       发表于 2018-3-16 18:45
 
 
-
-
 nico上看组长mgs5时候弹幕恭喜おほほい解禁是咋回事，组长这个口癖有禁止过？没注意到
-
-
-
-
-
 
 
 -----
@@ -8967,21 +5831,13 @@ nico上看组长mgs5时候弹幕恭喜おほほい解禁是咋回事，组长这
 ##### 1965#       发表于 2018-3-16 18:58
 
 
-
-
 Siro直播中
-
-
-
-
-
 
 
 -----
 
 ####  walfeds  
 ##### 1966#       发表于 2018-3-16 19:08
-
 
 
  本帖最后由 walfeds 于 2018-3-16 19:14 编辑 
@@ -8991,25 +5847,13 @@ Siro直播中
 这两个在一起好吵啊www<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 1967#       发表于 2018-3-16 19:11
 
 
-
-
 卧槽，luna跟akari联动了，月爱cp党亡了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9018,14 +5862,7 @@ Siro直播中
 ##### 1968#       发表于 2018-3-16 19:15
 
 
-
-
 天王之间竟然联动了，太可怕了
-
-
-
-
-
 
 
 -----
@@ -9034,16 +5871,9 @@ Siro直播中
 ##### 1969#       发表于 2018-3-16 19:18
 
 
-
-
 榜眼与探花的最强联动！（然而加起来还是不够状元多…
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -9052,16 +5882,10 @@ Siro直播中
 ##### 1970#       发表于 2018-3-16 19:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38873143&amp;ptid=1572644" target="_blank">白白白 发表于 2018-3-16 19:11</a>
 
 卧槽，luna跟akari联动了，月爱cp党亡了</blockquote>
 爱酱：明明是我先<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9070,14 +5894,7 @@ Siro直播中
 ##### 1971#       发表于 2018-3-16 19:20
 
 
-
-
 真的太惊喜了，今天luna说这期视频第一次ooo，没想到是第一次联动，这期点击量要爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9086,14 +5903,7 @@ Siro直播中
 ##### 1972#       发表于 2018-3-16 19:35
 
 
-
-
 我感觉主要爱酱体量太大、谁和她联动都有种做小的感觉。
-
-
-
-
-
 
 
 -----
@@ -9102,21 +5912,13 @@ Siro直播中
 ##### 1973#       发表于 2018-3-16 19:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38872927&amp;ptid=1572644" target="_blank">ror 发表于 2018-3-16 18:45</a>
 
 nico上看组长mgs5时候弹幕恭喜おほほい解禁是咋回事，组长这个口癖有禁止过？没注意到 ...</blockquote>
 看doom第二集，小白说有人不喜欢就用掛け声代替。
 
 
-
-
 akaki和月合作简直是业界激震，二三位联手无视老爱这是要造反啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9125,17 +5927,10 @@ akaki和月合作简直是业界激震，二三位联手无视老爱这是要造
 ##### 1974#       发表于 2018-3-16 19:43
 
 
-
-
 哈哈，视频评论纷纷吐槽30帧甚至更低与60帧的联动。
 的确如此，还有真的很吵，全程除了大笑没听到什么了哈哈哈
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -9144,13 +5939,7 @@ akaki和月合作简直是业界激震，二三位联手无视老爱这是要造
 ##### 1975#       发表于 2018-3-16 19:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9159,15 +5948,9 @@ akaki和月合作简直是业界激震，二三位联手无视老爱这是要造
 ##### 1976#       发表于 2018-3-16 19:51
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">当初不联动 现在好像无所谓了吧爱酱的体量。。（对爱酱那边   
 
 虽然还是有点..最早说的结果一点动静都没...
-
-
-
-
-
 
 
 -----
@@ -9176,14 +5959,7 @@ akaki和月合作简直是业界激震，二三位联手无视老爱这是要造
 ##### 1977#       发表于 2018-3-16 19:56
 
 
-
-
 老爱过段时间应该会发个视频声讨这两个<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9192,16 +5968,9 @@ akaki和月合作简直是业界激震，二三位联手无视老爱这是要造
 ##### 1978#       发表于 2018-3-16 20:21
 
 
-
-
 之前看老爱和luna天天晒恩爱，还说要联动，我还以为akari是金发败犬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 没想到akari是隔壁的黄毛，ntr老爱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9210,14 +5979,7 @@ akaki和月合作简直是业界激震，二三位联手无视老爱这是要造
 ##### 1979#       发表于 2018-3-16 20:28
 
 
-
-
 联动已经一个小时11万播放了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9226,14 +5988,7 @@ akaki和月合作简直是业界激震，二三位联手无视老爱这是要造
 ##### 1980#       发表于 2018-3-16 20:40
 
 
-
-
 akari完全跟着Luna的节奏走了，平时哪会这么闹腾
-
-
-
-
-
 
 
 -----
@@ -9242,16 +5997,10 @@ akari完全跟着Luna的节奏走了，平时哪会这么闹腾
 ##### 1981#       发表于 2018-3-16 20:50
 
 
-
 <img src="http://wx2.sinaimg.cn/mw690/89a6e066gy1fpey6ahp24j21530te4qj.jpg" referrerpolicy="no-referrer">
 
 
 内容一般般 完全不值这个价格
-
-
-
-
-
 
 
 -----
@@ -9260,14 +6009,7 @@ akari完全跟着Luna的节奏走了，平时哪会这么闹腾
 ##### 1982#       发表于 2018-3-16 20:57
 
 
-
-
 草，我现在满脑子都是两个疯婆娘的笑声<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9276,17 +6018,10 @@ akari完全跟着Luna的节奏走了，平时哪会这么闹腾
 ##### 1983#         楼主| 发表于 2018-3-16 20:57
 
 
-
-
 akari这种个性弱气的，天生适合当捧哏，被主角带节奏。这种联动的话，其实是蛮契合的。
 
 
 luna和爱酱都是个性非常非常强的类型，在一起估计容易变成战争，不过说不定也会很有趣。
-
-
-
-
-
 
 
 -----
@@ -9295,16 +6030,10 @@ luna和爱酱都是个性非常非常强的类型，在一起估计容易变成�
 ##### 1984#       发表于 2018-3-16 21:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38872636&amp;ptid=1572644" target="_blank">appletree111405 发表于 2018-3-16 18:12</a>
 
 这个英文Vtuber叫什么名字呀，我去B站搜搜有没人搬运</blockquote>
 Mira Pink，关注数只有几百人。逸站没有搬运。
-
-
-
-
-
 
 
 -----
@@ -9313,16 +6042,9 @@ Mira Pink，关注数只有几百人。逸站没有搬运。
 ##### 1985#       发表于 2018-3-16 21:02
 
 
-
-
 终于可以发帖, 请各位多多指教.
 
 暂时只follow四天王和二线梯队的推, 片子只看了一些.
-
-
-
-
-
 
 
 -----
@@ -9331,25 +6053,16 @@ Mira Pink，关注数只有几百人。逸站没有搬运。
 ##### 1986#       发表于 2018-3-16 21:07
 
 
-
-
 草www
 
 
 枫和女神在双人联动聊天，然后班长突然参战w
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 1987#       发表于 2018-3-16 21:08
-
-
 
 
 这边明月联动，隔壁老大也没闲着。
@@ -9359,27 +6072,15 @@ Mira Pink，关注数只有几百人。逸站没有搬运。
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 1988#       发表于 2018-3-16 21:14
 
 
-
-
 更正，是老大爱前往到ドールズオーダー公式视频的联动。
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -9388,14 +6089,7 @@ Mira Pink，关注数只有几百人。逸站没有搬运。
 ##### 1989#       发表于 2018-3-16 21:15
 
 
-
-
 这个周末就抱着这期过日子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉看十遍都不够
-
-
-
-
-
 
 
 -----
@@ -9404,17 +6098,10 @@ Mira Pink，关注数只有几百人。逸站没有搬运。
 ##### 1990#       发表于 2018-3-16 21:49
 
 
-
-
 诶班长参与了今晚直播么<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">没看可惜了
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
-
-
-
-
-
 
 
 -----
@@ -9423,25 +6110,16 @@ Mira Pink，关注数只有几百人。逸站没有搬运。
 ##### 1991#       发表于 2018-3-16 21:53
 
 
-
-
 当上了虚拟经纪人的巴恰鲁p玩得不亦乐乎嘛。
 今天马叔发了个appland那个投票招募的中间发表视频。前3是多摩、北上、铃谷。（多么悲伤哈哈…
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1992#       发表于 2018-3-16 22:17
-
-
 
 
 中间10名
@@ -9457,36 +6135,19 @@ Mira Pink，关注数只有几百人。逸站没有搬运。
 2018-3-16 22:17 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  looptube  
 ##### 1993#       发表于 2018-3-16 22:32
 
 
-
-
 班长在直播中变成神了（字面意义）
-
-
-
-
-
 
 
 -----
 
 ####  不灭的旋律  
 ##### 1994#       发表于 2018-3-16 22:36
-
 
 
  本帖最后由 不灭的旋律 于 2018-3-16 22:45 编辑 
@@ -9497,32 +6158,19 @@ Mira Pink，关注数只有几百人。逸站没有搬运。
 自己解决了.live就是appland运营的。马头男地位现在相当于岩本町的马越了。
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 1995#       发表于 2018-3-16 22:52
 
 
-
-
 3小时了还在播..<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">凛那边就3500人再看啦~
-
-
-
-
-
 
 
 -----
 
 ####  气流季里  
 ##### 1996#       发表于 2018-3-16 23:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38874871&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-16 22:52</a>
@@ -9532,24 +6180,13 @@ Mira Pink，关注数只有几百人。逸站没有搬运。
 <img src="https://i.loli.net/2018/03/16/5aabdcb68ebac.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 1997#       发表于 2018-3-16 23:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">彩虹社聊天太多了，希望多做点游戏之类的
-
-
-
-
-
 
 
 -----
@@ -9558,16 +6195,10 @@ Mira Pink，关注数只有几百人。逸站没有搬运。
 ##### 1998#       发表于 2018-3-16 23:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38875131&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-16 23:20</a>
 
 彩虹社聊天太多了，希望多做点游戏之类的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">虽然看着都很有趣倒是（哎
-
-
-
-
-
 
 
 -----
@@ -9576,16 +6207,10 @@ Mira Pink，关注数只有几百人。逸站没有搬运。
 ##### 1999#       发表于 2018-3-16 23:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38875160&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-16 23:23</a>
 
 虽然看着都很有趣倒是（哎</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">壶魔人说过有一期八人有狼人的企划，但勇气还没搬家，要等勇气四月搬家才有
-
-
-
-
-
 
 
 -----
@@ -9594,16 +6219,10 @@ Mira Pink，关注数只有几百人。逸站没有搬运。
 ##### 2000#       发表于 2018-3-16 23:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38875227&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-16 23:30</a>
 
 壶魔人说过有一期八人有狼人的企划，但勇气还没搬家，要等勇气四月搬家才有 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">总觉得勇气萝莉是掐着嗓子说话233虽然很可爱（二期的爱丽丝正常一丢丢 
-
-
-
-
-
 
 
 -----
@@ -9612,25 +6231,16 @@ Mira Pink，关注数只有几百人。逸站没有搬运。
 ##### 2001#       发表于 2018-3-16 23:40
 
 
-
-
 luna和akari的联动视频现在只有韩语翻译，台湾那边的中文翻译进度刚过半，棒子速度怎么这么快。
 
 
 还有，Youtube把自动字幕识别成西班牙语。很多日语视频都是这样。西班牙语和日语发音这么像么
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 2002#       发表于 2018-3-16 23:42
-
-
 
 
 刚在看到一个新人，春宮空子。查了一下原来是16年8月的音game『アイドルコネクト』的角色，现在借vtuber的东风运营又把角色拿出去搞vtuber活动了。
@@ -9640,25 +6250,13 @@ luna和akari的联动视频现在只有韩语翻译，台湾那边的中文翻�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 2003#       发表于 2018-3-17 00:06
 
 
-
-
 一种原创Vtuber，二种公司角色回收Vtuber再二创。
-
-
-
-
-
 
 
 -----
@@ -9667,24 +6265,16 @@ luna和akari的联动视频现在只有韩语翻译，台湾那边的中文翻�
 ##### 2004#       发表于 2018-3-17 00:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38875326&amp;ptid=1572644" target="_blank">神龙小生 发表于 2018-03-16 23:42:55</a>
 刚在看到一个新人，春宮空子。查了一下原来是16年8月的音game『アイドルコネクト』的角色，现在借vtuber的 ...</blockquote>还有一点就是角色中之人似乎是沿袭游戏原cv的，而其他角色中也不缺乏有点名气的职业cv，那是不是可以期待下之后会有更多原角色cv阵参与进来呢？
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  气流季里  
 ##### 2005#       发表于 2018-3-17 00:21
-
-
 
 
 帮楼上贴个春宮空子的地址：
@@ -9694,26 +6284,15 @@ luna和akari的联动视频现在只有韩语翻译，台湾那边的中文翻�
 这种音游2d角色转职虚拟Vtuber还是有搞头的吧，3d捕捉的成本应该要比直接做Live动画要低。个人非常期待像是邦邦，爱马仕这些游戏也做这方面的尝试
 
 
-
-
-
-
-
 -----
 
 ####  zpbzpb123123  
 ##### 2006#       发表于 2018-3-17 00:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38875326&amp;ptid=1572644" target="_blank">神龙小生 发表于 2018-3-16 23:42</a>
 刚在看到一个新人，春宮空子。查了一下原来是16年8月的音game『アイドルコネクト』的角色，现在借vtuber的 ...</blockquote>
 siro不就是这种性质的吗
-
-
-
-
-
 
 
 -----
@@ -9722,21 +6301,13 @@ siro不就是这种性质的吗
 ##### 2007#       发表于 2018-3-17 01:10
 
 
-
-
 猫宫新-视-频战地1超百人击杀，略质疑是不是本人打的 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  神龙小生  
 ##### 2008#       发表于 2018-3-17 07:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38875736&amp;ptid=1572644" target="_blank">zpbzpb123123 发表于 2018-03-17 00:39:23</a>
@@ -9746,25 +6317,13 @@ siro不就是这种性质的吗</blockquote>略不同，毕竟原游戏其实一
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  恐龙睡衣露水  
 ##### 2009#       发表于 2018-3-17 07:54
 
 
-
-
 想看砍口垒借用街机模型来youtuber，哪怕只是照着读更新内容
-
-
-
-
-
 
 
 -----
@@ -9773,24 +6332,16 @@ siro不就是这种性质的吗</blockquote>略不同，毕竟原游戏其实一
 ##### 2010#       发表于 2018-3-17 08:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38876438&amp;ptid=1572644" target="_blank">神龙小生 发表于 2018-3-17 07:18</a>
 
 略不同，毕竟原游戏其实一直只是预登陆状态并没开服，后来角色的火大概和游戏没关系了。现在正在搞的招募也 ...</blockquote>
 原来如此<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ttoo  
 ##### 2011#       发表于 2018-3-17 10:50
-
-
 
 
 虚拟角色哪有“本人”一说
@@ -9807,16 +6358,10 @@ cv配的声音就是她的声音
 都是人设的一部分
 
 
-
-
-
-
-
 -----
 
 ####  杜庶仁  
 ##### 2012#         楼主| 发表于 2018-3-17 11:09
-
 
 
  本帖最后由 杜庶仁 于 2018-3-17 11:14 编辑 
@@ -9839,13 +6384,7 @@ cv配的声音就是她的声音
 所以主播虽然外在形象是虚拟的，但除此之外，与一般普通主播也并无差异，真正在说话的人，就是其本人。不如说普通主播也会按照团队设计好的台本念台词，按团队设定去表演出一个受观众喜爱的人物。但并不能说这位主播就不存在本体了。
 
 
-
 至少如果打游戏的人和说话的人不是一个人的话，猫宫绝对会完蛋的，这一点是可以确定的。
-
-
-
-
-
 
 
 -----
@@ -9854,23 +6393,15 @@ cv配的声音就是她的声音
 ##### 2013#       发表于 2018-3-17 11:16
 
 
-
-
 小白英语本当上手<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 只不过直接拿第一期台本。。。登陆人数早就不只一万了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  神龙小生  
 ##### 2014#       发表于 2018-3-17 11:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38877506&amp;ptid=1572644" target="_blank">ttoo 发表于 2018-03-17 10:50:50</a>
@@ -9890,17 +6421,10 @@ cv配的声音就是她的声音
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  不灭的旋律  
 ##### 2015#       发表于 2018-3-17 11:29
-
-
 
 
 上一页说的版权角色转vtuber的其实不少啊，比如两个大型新人東雲めぐ（虽然主要在showroom活动）和虹河ラキ。
@@ -9909,16 +6433,10 @@ cv配的声音就是她的声音
 [https://www.youtube.com/watch?v=Esv-H2oBGbc&amp;t=26s](https://www.youtube.com/watch?v=Esv-H2oBGbc&amp;t=26s)
 
 
-
-
-
-
-
 -----
 
 ####  不灭的旋律  
 ##### 2016#       发表于 2018-3-17 11:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38877751&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-17 11:16</a>
@@ -9936,28 +6454,15 @@ cv配的声音就是她的声音
 JR三人组的クソザコ英语：[http://www.nicovideo.jp/watch/sm32888236](http://www.nicovideo.jp/watch/sm32888236)
 
 
-
-
-
-
-
-
 -----
 
 ####  YooZi  
 ##### 2017#       发表于 2018-3-17 12:34
 
 
-
-
 静凛自我介绍视频开头八国语言问好 我日好几把炫酷
 
 看了新一期JK组生放 原来也是个杂鱼
-
-
-
-
-
 
 
 -----
@@ -9966,14 +6471,7 @@ JR三人组的クソザコ英语：[http://www.nicovideo.jp/watch/sm32888236](ht
 ##### 2018#       发表于 2018-3-17 13:26
 
 
-
-
 組長的英語力大概是vtuber最好的
-
-
-
-
-
 
 
 -----
@@ -9982,24 +6480,16 @@ JR三人组的クソザコ英语：[http://www.nicovideo.jp/watch/sm32888236](ht
 ##### 2019#       发表于 2018-3-17 13:29
 
 
-
-
 看凛的自我介绍和之前杂谈里说谢谢超标准还以为真是多语言大佬2333结果<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 2020#       发表于 2018-3-17 13:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38877751&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-03-17 11:16:52</a>
@@ -10010,16 +6500,10 @@ JR三人组的クソザコ英语：[http://www.nicovideo.jp/watch/sm32888236](ht
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 2021#       发表于 2018-3-17 13:43
-
 
 
 <img src="http://wx1.sinaimg.cn/mw690/b5c6e113gy1fpfrgrwv61j20ni0xcgsq.jpg" referrerpolicy="no-referrer">
@@ -10027,16 +6511,10 @@ JR三人组的クソザコ英语：[http://www.nicovideo.jp/watch/sm32888236](ht
 [https://twitter.com/harddeluxe/status/974843873087209472](https://twitter.com/harddeluxe/status/974843873087209472)
 
 
-
-
-
-
-
 -----
 
 ####  hcho  
 ##### 2022#       发表于 2018-3-17 13:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38879001&amp;ptid=1572644" target="_blank">神龙小生 发表于 2018-3-17 13:36</a>
@@ -10047,25 +6525,13 @@ JR三人组的クソザコ英语：[http://www.nicovideo.jp/watch/sm32888236](ht
 小白的英文水平之前看她玩英文游戏就知道很好了
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 2023#       发表于 2018-3-17 13:49
 
 
-
-
 突然想到艾琳里面的人作为虚拟英语老师出道应该很不错，反正也玩过Ellen Baker的梗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10074,23 +6540,15 @@ JR三人组的クソザコ英语：[http://www.nicovideo.jp/watch/sm32888236](ht
 ##### 2024#       发表于 2018-3-17 13:57
 
 
-
-
 中之人归国子女+明治大学毕业，不好才奇怪，不过高学历做声优还好几年不人气还能坚持也蛮厉害了
 
 据说中之人是有钱大小姐
-
-
-
-
-
 
 
 -----
 
 ####  耳朵  
 ##### 2025#       发表于 2018-3-17 14:04
-
 
 
  本帖最后由 耳朵 于 2018-3-17 14:15 编辑 
@@ -10102,32 +6560,19 @@ JR三人组的クソザコ英语：[http://www.nicovideo.jp/watch/sm32888236](ht
 "でも最近、所属してる事務所がピンチになってて"<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">迫真……
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2026#       发表于 2018-3-17 14:05
 
 
-
-
 B站竟然有俄语地球酱的熟肉...！
-
-
-
-
-
 
 
 -----
 
 ####  白白白  
 ##### 2027#       发表于 2018-3-17 16:07
-
 
 
  本帖最后由 白白白 于 2018-3-17 16:09 编辑 
@@ -10137,16 +6582,10 @@ B站竟然有俄语地球酱的熟肉...！
 熟肉终于更了，我tm看爆<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 2028#       发表于 2018-3-17 16:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38880121&amp;ptid=1572644" target="_blank">白白白 发表于 2018-3-17 16:07</a>
@@ -10157,16 +6596,10 @@ http://www.bilibili.com/video/av20872328/
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这期字幕好像问题有点多。。。
 
 
-
-
-
-
-
 -----
 
 ####  杜庶仁  
 ##### 2029#         楼主| 发表于 2018-3-17 17:06
-
 
 
  本帖最后由 杜庶仁 于 2018-3-17 17:07 编辑 
@@ -10178,16 +6611,10 @@ http://www.bilibili.com/video/av20872328/
 之前就觉得这个字幕组水平有点问题，但是没想到会到这个程度………………
 
 
-
-
-
-
-
 -----
 
 ####  wbtsy  
 ##### 2030#       发表于 2018-3-17 17:16
-
 
 
  本帖最后由 wbtsy 于 2018-3-17 17:19 编辑 
@@ -10198,25 +6625,13 @@ luna的国内字幕组其实问题一直很大。对比youtube上的繁体就知
 平时就忍了。像是这次这种情况就会比较离谱。
 
 
-
-
-
-
-
 -----
 
 ####  noneoneone  
 ##### 2031#       发表于 2018-3-17 17:29
 
 
-
-
 可是luna这个还是官号。。。
-
-
-
-
-
 
 
 -----
@@ -10225,15 +6640,9 @@ luna的国内字幕组其实问题一直很大。对比youtube上的繁体就知
 ##### 2032#       发表于 2018-3-17 17:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38880723&amp;ptid=1572644" target="_blank">noneoneone 发表于 2018-3-17 17:29</a>
 可是luna这个还是官号。。。</blockquote>
 在点击量和收益不成正比的b站, 所谓官号就是官方委托搬运组运营的搬运号
-
-
-
-
-
 
 
 -----
@@ -10242,13 +6651,7 @@ luna的国内字幕组其实问题一直很大。对比youtube上的繁体就知
 ##### 2033#       发表于 2018-3-17 17:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">别指望官方号太专业，你看看那个b站动态那个翻译存在感极强一直在放飞自我……问题是效果好像还不错……
-
-
-
-
-
 
 
 -----
@@ -10257,16 +6660,9 @@ luna的国内字幕组其实问题一直很大。对比youtube上的繁体就知
 ##### 2034#       发表于 2018-3-17 18:11
 
 
-
-
 akari今天夜里开官网
 
 某爱酱被害者又找爱酱做广告了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10275,14 +6671,7 @@ akari今天夜里开官网
 ##### 2035#       发表于 2018-3-17 18:13
 
 
-
-
 爱酱终于想起来那种 棒球经纪人了，催她也来当下Vtuber，怎么早期不这么干？
-
-
-
-
-
 
 
 -----
@@ -10291,16 +6680,10 @@ akari今天夜里开官网
 ##### 2036#       发表于 2018-3-17 18:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38877880&amp;ptid=1572644" target="_blank">不灭的旋律 发表于 2018-3-17 11:29</a>
 
 上一页说的版权角色转vtuber的其实不少啊，比如两个大型新人東雲めぐ（虽然主要在showroom活动）和虹河ラキ ...</blockquote>
 爱酱最新期有提到
-
-
-
-
-
 
 
 -----
@@ -10309,13 +6692,7 @@ akari今天夜里开官网
 ##### 2037#       发表于 2018-3-17 18:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">luna你一直老大老大的喊爱酱,首次联动居然是Akari而不是爱酱?!
-
-
-
-
-
 
 
 -----
@@ -10324,14 +6701,7 @@ akari今天夜里开官网
 ##### 2038#       发表于 2018-3-17 18:18
 
 
-
-
 别太指望官号翻译有多专业，身为社畜平时要上班，而且只有一个人，说到底就是staff找了个会中文的熟人来帮忙
-
-
-
-
-
 
 
 -----
@@ -10340,23 +6710,16 @@ akari今天夜里开官网
 ##### 2039#       发表于 2018-3-17 18:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38879046&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-17 13:43</a>
 
 https://twitter.com/harddeluxe/status/974843873087209472</blockquote>
 四天王咋有两个，其他四天王没上书吗
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 2040#       发表于 2018-3-17 18:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38881169&amp;ptid=1572644" target="_blank">天狼Q娃 发表于 2018-3-17 18:24</a>
@@ -10370,25 +6733,13 @@ https://twitter.com/harddeluxe/status/974843873087209472</blockquote>
 akari这边可能二期会上，不过技术方面的应该不会透露的
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2041#       发表于 2018-3-17 18:40
 
 
-
-
 老爱这期广告好6    迫真流氓爱233333333
-
-
-
-
-
 
 
 -----
@@ -10397,16 +6748,10 @@ akari这边可能二期会上，不过技术方面的应该不会透露的
 ##### 2042#       发表于 2018-3-17 18:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38879046&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-17 13:43</a>
 
 https://twitter.com/harddeluxe/status/974843873087209472</blockquote>
 天魔机忍G就差了天使哎....
-
-
-
-
-
 
 
 -----
@@ -10415,17 +6760,10 @@ https://twitter.com/harddeluxe/status/974843873087209472</blockquote>
 ##### 2043#       发表于 2018-3-17 18:48
 
 
-
-
 昨晚才刚跑去某游戏的频道里客串嘉宾3d联动，今天又把去年的棒球妹子拉回来再次联动。
 啥时有空内部圈子联动_(´_`」 ∠)_
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -10434,16 +6772,10 @@ https://twitter.com/harddeluxe/status/974843873087209472</blockquote>
 ##### 2044#       发表于 2018-3-17 19:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38881278&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-17 18:42</a>
 
 天魔机忍G就差了天使哎....</blockquote>
 天使真是太可惜了,阿君大魔王在白情的时候唱了天使唱过的歌还哭了
-
-
-
-
-
 
 
 -----
@@ -10452,21 +6784,13 @@ https://twitter.com/harddeluxe/status/974843873087209472</blockquote>
 ##### 2045#       发表于 2018-3-17 20:01
 
 
-
-
 昨天跟akari联动完，今天luna就给亲分发了个祝贺视频（月牌复读机）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  バーチャルS1er  
 ##### 2046#       发表于 2018-3-17 20:03
-
 
 
 <img src="http://wx4.sinaimg.cn/mw690/b5c6e113gy1fpg2fdjh15j20wo0hwjwe.jpg" referrerpolicy="no-referrer">
@@ -10479,25 +6803,13 @@ https://twitter.com/harddeluxe/status/974843873087209472</blockquote>
 akari的秘密动画！<img src="https://static.saraba1st.com/image/smiley/carton2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Porsche  
 ##### 2047#       发表于 2018-3-17 20:05
 
 
-
-
 有点心疼头像，之前也算是2军的代表人物了，然后被后来的新星一个个超越，自己这边还是不温不火的，播放量永远是那个水平，看看班长都稳定10w了
-
-
-
-
-
 
 
 -----
@@ -10506,16 +6818,10 @@ akari的秘密动画！<img src="https://static.saraba1st.com/image/smiley/carto
 ##### 2048#       发表于 2018-3-17 20:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38881924&amp;ptid=1572644" target="_blank">Porsche 发表于 2018-3-17 20:05</a>
 
 有点心疼头像，之前也算是2军的代表人物了，然后被后来的新星一个个超越，自己这边还是不温不火的，播放量 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你嫉妒前几名没用啊，各靠各本事，现在好几百youtuber你能混到这个圈子基本都知道也算不错了。
-
-
-
-
-
 
 
 -----
@@ -10524,20 +6830,13 @@ akari的秘密动画！<img src="https://static.saraba1st.com/image/smiley/carto
 ##### 2049#       发表于 2018-3-17 20:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">另外排行榜这个事情我觉得为啥不争取一下，不让授权不给排就完了，做个类似逗鱼时刻的youtuber时刻本来就是互惠互利的。
-
-
-
-
-
 
 
 -----
 
 ####  バーチャルS1er  
 ##### 2050#       发表于 2018-3-17 20:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38881924&amp;ptid=1572644" target="_blank">Porsche 发表于 2018-3-17 20:05</a>
@@ -10549,16 +6848,10 @@ akari的秘密动画！<img src="https://static.saraba1st.com/image/smiley/carto
 能不能长时间持续下去要看hololive还想不想加大给sora的投资了
 
 
-
-
-
-
-
 -----
 
 ####  气流季里  
 ##### 2051#       发表于 2018-3-17 20:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38881912&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-17 20:03</a>
@@ -10570,17 +6863,10 @@ akari的秘密动画！</blockquote>
 源代码里藏网址还行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。
 
 
-
-
-
-
-
 -----
 
 ####  CheshireK  
 ##### 2052#       发表于 2018-3-17 20:52
-
-
 
 
 所以大家用的什么梯.子，可以推荐一下吗？我的最近老是时断时续，甚至连官网都打不开了，我怀疑他们是要跑路。
@@ -10589,27 +6875,15 @@ akari的秘密动画！</blockquote>
 —— 来自 Xiaomi Redmi Note 3, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 2053#       发表于 2018-3-17 20:57
 
 
-
-
 另外看了班长那个路易丝视频，还真的只有彩虹社这种放养的能这么玩了，正经点的企业哪个敢给自家vtuber这样玩。
 
 哪怕说痴汉ai，言行也没有上面那个一半过火。
-
-
-
-
-
 
 
 -----
@@ -10618,23 +6892,16 @@ akari的秘密动画！</blockquote>
 ##### 2054#       发表于 2018-3-17 21:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38882076&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-03-17 20:21:47</a>
 另外排行榜这个事情我觉得为啥不争取一下，不让授权不给排就完了，做个类似逗鱼时刻的youtuber时刻本来就是 ...</blockquote>周v发生什么事了？
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 2055#       发表于 2018-3-17 21:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38882500&amp;ptid=1572644" target="_blank">神龙小生 发表于 2018-3-17 21:09</a>
@@ -10646,16 +6913,10 @@ akari的秘密动画！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我记得好像是说之前类似精华视频被ban了吗，我看这期周榜好久没搬了是没有了吗？
 
 
-
-
-
-
-
 -----
 
 ####  plok201  
 ##### 2056#       发表于 2018-3-17 21:12
-
 
 
  本帖最后由 plok201 于 2018-3-17 21:14 编辑 
@@ -10668,26 +6929,15 @@ akari的秘密动画！</blockquote>
 你看YUA才惨,被调侃成二军线就算了,现在企业势超新星的威胁不说,这几天彩虹军势全面进场,领头的JK组都爬到自己头上了...<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 2057#       发表于 2018-3-17 21:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38882521&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-17 21:12</a>
 我记得好像是说之前类似精华视频被ban了吗，我看这期周榜好久没搬了是没有了吗？ ...</blockquote>
 周榜现在由PANORA这个频道发
-
-
-
-
-
 
 
 -----
@@ -10696,24 +6946,16 @@ akari的秘密动画！</blockquote>
 ##### 2058#       发表于 2018-3-17 21:19
 
 
-
-
 班长后面又用本音说了一遍是最骚的233333
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  fqflhc  
 ##### 2059#       发表于 2018-3-17 21:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38881243&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-17 18:38</a>
@@ -10725,16 +6967,10 @@ akari的秘密动画！</blockquote>
 akari不是已经被采访过了吗niconico
 
 
-
-
-
-
-
 -----
 
 ####  fqflhc  
 ##### 2060#       发表于 2018-3-17 21:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38881912&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-17 20:03</a>
@@ -10746,16 +6982,10 @@ akari的秘密动画！</blockquote>
 深夜生放送，不知道是日更还是周更
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 2061#       发表于 2018-3-17 21:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38882645&amp;ptid=1572644" target="_blank">fqflhc 发表于 2018-3-17 21:26</a>
@@ -10764,33 +6994,19 @@ akari的秘密动画！</blockquote>
 就是隔周星期5那个吧，8点也是晚上了
 
 
-
-
-
-
-
 -----
 
 ####  v2c  
 ##### 2062#       发表于 2018-3-17 21:53
 
 
-
-
 这辈子要是只能看一个Vtuber我肯定是毫不犹豫选AzuLim了，赶紧开SuperChat让我扔钱啊啊啊
-
-
-
-
-
 
 
 -----
 
 ####  looptube  
 ##### 2063#       发表于 2018-3-17 22:00
-
-
 
 
 也不要小看空，根据这个网站上的统计[https://virtual-youtuber.userlocal.jp/document/ranking](https://virtual-youtuber.userlocal.jp/document/ranking)登陆的vtube有800+，
@@ -10804,25 +7020,13 @@ akari的秘密动画！</blockquote>
 而班长和猫宫则是因为中之人的魅力，像这种奇才可能百里都挑不出一。
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 2064#       发表于 2018-3-17 22:15
 
 
-
-
 AzuLim的直播太强了，运营和中之人都超用心，完美的技术力加上跟观众们的有趣互动，这才是企业势该有的水平<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10831,14 +7035,7 @@ AzuLim的直播太强了，运营和中之人都超用心，完美的技术力�
 ##### 2065#       发表于 2018-3-17 22:15
 
 
-
-
 錯了，組長是去年六月開設頻道，八月12開始本格活動 是僅次於愛醬開始活動的vtuber
-
-
-
-
-
 
 
 -----
@@ -10847,16 +7044,10 @@ AzuLim的直播太强了，运营和中之人都超用心，完美的技术力�
 ##### 2066#       发表于 2018-3-17 22:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38882893&amp;ptid=1572644" target="_blank">v2c 发表于 2018-3-17 21:53</a>
 
 这辈子要是只能看一个Vtuber我肯定是毫不犹豫选AzuLim了，赶紧开SuperChat让我扔钱啊啊啊 ...</blockquote>
 看了这么多vtuber直播，Azulim是第一个让我有塞钱冲动的，真的太用心了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10865,16 +7056,10 @@ AzuLim的直播太强了，运营和中之人都超用心，完美的技术力�
 ##### 2067#       发表于 2018-3-17 22:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38882893&amp;ptid=1572644" target="_blank">v2c 发表于 2018-3-17 21:53</a>
 
 这辈子要是只能看一个Vtuber我肯定是毫不犹豫选AzuLim了，赶紧开SuperChat让我扔钱啊啊啊 ...</blockquote>
 看了这么多vtuber直播，Azulim是第一个让我有塞钱冲动的，真的太用心了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10883,16 +7068,10 @@ AzuLim的直播太强了，运营和中之人都超用心，完美的技术力�
 ##### 2068#       发表于 2018-3-17 22:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38883074&amp;ptid=1572644" target="_blank">白白白 发表于 2018-3-17 22:15</a>
 
 AzuLim的直播太强了，运营和中之人都超用心，完美的技术力加上跟观众们的有趣互动，这才是企业势该有的水平 ...</blockquote>
 运营技术力强是真的，说用心我倒不觉得，这几次生放送都没什么像样的企划完全是靠AzuLim本人卖萌制造看点，现在开始活动才半个月不好下定论但我感觉这个运营和YUA运营可能是一个德性——技术高资本强但企划能力超烂，但愿我这个预感别成真
-
-
-
-
-
 
 
 -----
@@ -10901,21 +7080,13 @@ AzuLim的直播太强了，运营和中之人都超用心，完美的技术力�
 ##### 2069#       发表于 2018-3-17 22:25
 
 
-
-
 爱丽丝7000人观看了。。恐怖如斯 
-
-
-
-
-
 
 
 -----
 
 ####  不灭的旋律  
 ##### 2070#       发表于 2018-3-17 22:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38881924&amp;ptid=1572644" target="_blank">Porsche 发表于 2018-3-17 20:05</a>
@@ -10927,33 +7098,19 @@ AzuLim的直播太强了，运营和中之人都超用心，完美的技术力�
 我不太看ときのそら，不过感觉从直播为主转为频繁出视频后开始卖天然黑了？
 
 
-
-
-
-
-
 -----
 
 ####  dongganbenben  
 ##### 2071#       发表于 2018-3-17 22:34
 
 
-
-
 Yomemi脑婆打游戏人狠骚话多挺有意思的，我觉得配得上10万粉丝
-
-
-
-
-
 
 
 -----
 
 ####  v2c  
 ##### 2072#       发表于 2018-3-17 22:35
-
-
 
 
 VB现在直播观看人数也有近9000了，但直播内容明显是同一人的Sayo那边更有趣，すあだ本人也是希望Sayo那边能更受关注
@@ -10964,33 +7121,19 @@ VB现在直播观看人数也有近9000了，但直播内容明显是同一人�
 [https://www.youtube.com/channel/UCwIW1tObQTz5TX4j5NEntqg](https://www.youtube.com/channel/UCwIW1tObQTz5TX4j5NEntqg)
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2073#       发表于 2018-3-17 22:50
 
 
-
-
 彩虹二期还全是聊天，艾丽丝7000人聊天....
-
-
-
-
-
 
 
 -----
 
 ####  不灭的旋律  
 ##### 2074#       发表于 2018-3-17 22:51
-
-
 
 
 经营vb和sayo的すあだ已经是身经百战的勇者了资历不同的。
@@ -11003,16 +7146,10 @@ VB现在直播观看人数也有近9000了，但直播内容明显是同一人�
 另外还爆了点にじさんじ的花絮，这企业对新人真的是随便过头了。
 
 
-
-
-
-
-
 -----
 
 ####  不灭的旋律  
 ##### 2075#       发表于 2018-3-17 22:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38883490&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-17 22:50</a>
@@ -11021,16 +7158,10 @@ VB现在直播观看人数也有近9000了，但直播内容明显是同一人�
 mugi已经直播过恐怖游戏了。他们本来定位就是虚拟主播当然是聊天为主了轻松低成本。这个有栖里面的人实力非常强应该是有点资历的。
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2076#       发表于 2018-3-17 23:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38883498&amp;ptid=1572644" target="_blank">不灭的旋律 发表于 2018-3-17 22:51</a>
@@ -11042,16 +7173,10 @@ mugi已经直播过恐怖游戏了。他们本来定位就是虚拟主播当然�
 估计一开始也就想推APP根本没想好未来路线随意来了吧...
 
 
-
-
-
-
-
 -----
 
 ####  七夜美琴  
 ##### 2077#       发表于 2018-3-17 23:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38883283&amp;ptid=1572644" target="_blank">dongganbenben 发表于 2018-3-17 22:34</a>
@@ -11062,16 +7187,10 @@ Yomemi脑婆打游戏人狠骚话多挺有意思的，我觉得配得上10万粉
 — from Xiaomi Redmi Note 4X, Android 7.0 of [S1 Next Goose](https://play.google.com/store/apps/details?id=me.ykrank.s1next) v1.3.2.2
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 2078#       发表于 2018-3-17 23:04
-
 
 
  本帖最后由 横寺阳人 于 2018-3-17 23:06 编辑 
@@ -11081,17 +7200,10 @@ Yomemi脑婆打游戏人狠骚话多挺有意思的，我觉得配得上10万粉
 不过猫宫这种极具话题性也是让最近vtuber话题火起来的原因。
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 2079#       发表于 2018-3-17 23:08
-
-
 
 
 yomemi沾了萌实的光是真的，不过yomemi的视频点击也是10W订阅的水平了
@@ -11106,24 +7218,13 @@ yomemi这么影薄说明了Vtuber运营推特真的很重要，
 当然现在恢复推特后改善了不少
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2080#       发表于 2018-3-17 23:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">8000了    不过说起来elf其实人气也不错啊 技巧也厉害（之前看直播都是9000左右 还没怎么上传视频在油土鳖直播少。。。虽然有梗加持
-
-
-
-
-
 
 
 -----
@@ -11132,16 +7233,9 @@ yomemi这么影薄说明了Vtuber运营推特真的很重要，
 ##### 2081#       发表于 2018-3-17 23:14
 
 
-
-
 爱酱终于玩猛汉王了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 为了照顾海外观众还特地调了英语语音 虽然生化7开始就这么做了
-
-
-
-
-
 
 
 -----
@@ -11150,18 +7244,12 @@ yomemi这么影薄说明了Vtuber运营推特真的很重要，
 ##### 2082#       发表于 2018-3-17 23:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38883775&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-17 23:04</a>
 
 彩虹社怎么说呢，简直是鲶鱼般的存在，看最近这楼涨得飞快就知道了，现在二线那边被搅的危机感爆表 ...</blockquote>
 有点实力的个人势已经形成了一个独特的朋友圈了而且越做越大，推特之类的交流互动频繁所以我看也不是很介意什么人气，只要多交同好自己玩得开心就行（当然能火那是最好）
 
 苦的是那些刚刚进场的企业势，蛋糕只会越分越小。
-
-
-
-
-
 
 
 -----
@@ -11175,16 +7263,10 @@ yomemi这么影薄说明了Vtuber运营推特真的很重要，
 <img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">彩虹社这才刚开第二批，第三批就在准备。。。到时候三军二军得有一半人是彩虹社，同社效应太毒瘤
 
 
-
-
-
-
-
 -----
 
 ####  气流季里  
 ##### 2084#       发表于 2018-3-17 23:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38883999&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-17 23:20</a>
@@ -11193,16 +7275,10 @@ yomemi这么影薄说明了Vtuber运营推特真的很重要，
 第二批里有人（鈴鹿詩子）还没在youtube传过视频。就开始准备第三批了，彩虹社这是膨胀到要上天啊
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 2085#       发表于 2018-3-17 23:38
-
 
 
  本帖最后由 横寺阳人 于 2018-3-17 23:40 编辑 
@@ -11215,16 +7291,10 @@ yomemi这么影薄说明了Vtuber运营推特真的很重要，
 话说有没有人列一下现在前面的所有人的订阅数，我不爬墙看不了……估计最近波动比较大吧……
 
 
-
-
-
-
-
 -----
 
 ####  不灭的旋律  
 ##### 2086#       发表于 2018-3-17 23:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38884225&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-17 23:38</a>
@@ -11236,16 +7306,10 @@ yomemi这么影薄说明了Vtuber运营推特真的很重要，
 我突然非常期待appland下场了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  fqflhc  
 ##### 2087#       发表于 2018-3-18 00:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38883770&amp;ptid=1572644" target="_blank">七夜美琴 发表于 2018-3-17 23:04</a>
@@ -11256,17 +7320,10 @@ yomemi这么影薄说明了Vtuber运营推特真的很重要，
 不是她主推akari，是duo会社主推akari，这个企划本来不属于艾琳，她只是负责akari的视频后期而已，她那个团队（yomemi）和akari的团队就是互帮互助的关系
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 2088#       发表于 2018-3-18 00:23
-
-
 
 
 akari玩vr恐怖游戏的反应太有趣了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
@@ -11274,16 +7331,10 @@ akari玩vr恐怖游戏的反应太有趣了<img src="https://static.saraba1st.co
 —— 来自 HUAWEI BND-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  fqflhc  
 ##### 2089#       发表于 2018-3-18 00:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38884612&amp;ptid=1572644" target="_blank">蕾丝 发表于 2018-3-18 00:23</a>
@@ -11295,16 +7346,10 @@ akari玩vr恐怖游戏的反应太有趣了
 明明手在发抖嘴上还说意外的好玩2333
 
 
-
-
-
-
-
 -----
 
 ####  七夜美琴  
 ##### 2090#       发表于 2018-3-18 00:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38884573&amp;ptid=1572644" target="_blank">fqflhc 发表于 2018-3-18 00:17</a>
@@ -11314,16 +7359,10 @@ akari玩vr恐怖游戏的反应太有趣了
 — from Xiaomi Redmi Note 4X, Android 7.0 of [S1 Next Goose](https://play.google.com/store/apps/details?id=me.ykrank.s1next) v1.3.2.2
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2091#       发表于 2018-3-18 00:51
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -11333,16 +7372,10 @@ akari玩vr恐怖游戏的反应太有趣了
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 2092#       发表于 2018-3-18 01:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38884879&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-18 00:51</a>
@@ -11355,32 +7388,19 @@ akari玩vr恐怖游戏的反应太有趣了
 顺便问下论据怎么说的，我很好奇<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  sauron.j  
 ##### 2093#       发表于 2018-3-18 01:29
 
 
-
-
 是不是一个人，录一下相似声线声纹比对不就知道了
-
-
-
-
-
 
 
 -----
 
 ####  zpbzpb123123  
 ##### 2094#       发表于 2018-3-18 01:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38884225&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-17 23:38</a>
@@ -11391,16 +7411,10 @@ akari玩vr恐怖游戏的反应太有趣了
 彩虹社本业是做好他的那个2D LIVE软件，然后公司本身就3个人。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  plok201  
 ##### 2095#       发表于 2018-3-18 02:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38884225&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-17 23:38</a>
@@ -11420,17 +7434,10 @@ akari玩vr恐怖游戏的反应太有趣了
 现在二三线就是彩虹不断攻城略地,怪不得小白运营也想搞量产军团<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2096#       发表于 2018-3-18 07:47
-
-
 
 
 Av20686798  评论区12楼，大部分都是xx说的感觉就是了2333
@@ -11439,17 +7446,10 @@ Av20686798  评论区12楼，大部分都是xx说的感觉就是了2333
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  YooZi  
 ##### 2097#       发表于 2018-3-18 10:15
-
-
 
 
 今天21时
@@ -11459,25 +7459,13 @@ Av20686798  评论区12楼，大部分都是xx说的感觉就是了2333
 班长播
 
 
-
-
-
-
-
 -----
 
 ####  zpbzpb123123  
 ##### 2098#       发表于 2018-3-18 11:34
 
 
-
-
 班长生放今天是广播第一期嘉宾是でろーん，赞
-
-
-
-
-
 
 
 -----
@@ -11486,22 +7474,14 @@ Av20686798  评论区12楼，大部分都是xx说的感觉就是了2333
 ##### 2099#       发表于 2018-3-18 11:43
 
 
-
-
 看到でろーん，满脑子都是魔性的笑 BBA音JK<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 [http://www.nicovideo.jp/watch/sm32849809](http://www.nicovideo.jp/watch/sm32849809)
-
-
-
-
-
 
 
 -----
 
 ####  喜闻乐见  
 ##### 2100#       发表于 2018-3-18 12:20
-
 
 
  本帖最后由 喜闻乐见 于 2018-3-18 12:21 编辑 
@@ -11512,16 +7492,10 @@ Av20686798  评论区12楼，大部分都是xx说的感觉就是了2333
 前4小时 200待机还行
 
 
-
-
-
-
-
 -----
 
 ####  气流季里  
 ##### 2101#       发表于 2018-3-18 13:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38884573&amp;ptid=1572644" target="_blank">fqflhc 发表于 2018-3-18 00:17</a>
@@ -11530,16 +7504,10 @@ Av20686798  评论区12楼，大部分都是xx说的感觉就是了2333
 艾琳是duo的员工？以前说的借6000万是不是假的？
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2102#       发表于 2018-3-18 13:39
-
 
 
  本帖最后由 xiangcaihtr 于 2018-3-18 13:41 编辑 
@@ -11550,16 +7518,10 @@ Av20686798  评论区12楼，大部分都是xx说的感觉就是了2333
 但是这个名字真的很熟<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 2103#       发表于 2018-3-18 13:40
-
 
 
  本帖最后由 バーチャルS1er 于 2018-3-18 14:06 编辑 
@@ -11575,13 +7537,9 @@ Av20686798  评论区12楼，大部分都是xx说的感觉就是了2333
 不过DUO投资6KW+到akari这个计划还是很有可能的
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -11591,12 +7549,7 @@ Av20686798  评论区12楼，大部分都是xx说的感觉就是了2333
 | 气流季里| + 1|我还以为艾琳是公司的BOSS|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -11605,14 +7558,7 @@ Av20686798  评论区12楼，大部分都是xx说的感觉就是了2333
 ##### 2104#       发表于 2018-3-18 14:00
 
 
-
-
 虹河ラキ是帕青哥厂商做的？
-
-
-
-
-
 
 
 -----
@@ -11621,22 +7567,15 @@ Av20686798  评论区12楼，大部分都是xx说的感觉就是了2333
 ##### 2105#       发表于 2018-3-18 15:05
 
 
-
 <blockquote>xiangcaihtr 发表于 2018-3-18 13:39
 为什么听说爱酱中之人是春日望的时候我只觉得这个名字很熟但是好像并没有看过她配的任何一部作品… ...</blockquote>
 幼女戰記的路人
-
-
-
-
-
 
 
 -----
 
 ####  xiangcaihtr  
 ##### 2106#       发表于 2018-3-18 15:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38889344&amp;ptid=1572644" target="_blank">lime2001 发表于 2018-03-18 15:05:15</a>
@@ -11646,26 +7585,15 @@ Av20686798  评论区12楼，大部分都是xx说的感觉就是了2333
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 2107#       发表于 2018-3-18 15:25
 
 
-
  本帖最后由 バーチャルS1er 于 2018-3-18 15:26 编辑 
 
 PANORA的周刊Vtuber（动画版）最终回了，怕不是视频编辑跑路了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11674,22 +7602,14 @@ PANORA的周刊Vtuber（动画版）最终回了，怕不是视频编辑跑路�
 ##### 2108#       发表于 2018-3-18 15:39
 
 
-
-
 空妈妈基本盘还是稳的，只是没有神回爆上，从当初的13人空骑士团做到现在已经算不错了，提到二军势力也肯定会提到，同时代的无氪金avatar葵现状倒是不佳
 不过比起现在的视频还是喜欢看以前的直播，各种淫梦neta和奥尔加攻击无效化
-
-
-
-
-
 
 
 -----
 
 ####  文文情报屋  
 ##### 2109#       发表于 2018-3-18 15:40
-
 
 
 <blockquote>xiangcaihtr 发表于 2018-3-18 15:15
@@ -11700,17 +7620,10 @@ PANORA的周刊Vtuber（动画版）最终回了，怕不是视频编辑跑路�
 阿兹漫画大王，春日步，人称大阪
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 2110#       发表于 2018-3-18 15:57
-
-
 
 
 一个统计Vtuber生放送预告时间网站
@@ -11718,17 +7631,10 @@ PANORA的周刊Vtuber（动画版）最终回了，怕不是视频编辑跑路�
 [http://www.vtuberinfo.com/dispLiveData.php](http://www.vtuberinfo.com/dispLiveData.php)
 
 
-
-
-
-
-
-
 -----
 
 ####  喜闻乐见  
 ##### 2111#       发表于 2018-3-18 16:55
-
 
 
  本帖最后由 喜闻乐见 于 2018-3-18 17:17 编辑 
@@ -11738,17 +7644,10 @@ PANORA的周刊Vtuber（动画版）最终回了，怕不是视频编辑跑路�
 1分钟前    10k突破
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2112#       发表于 2018-3-18 17:03
-
-
 
 
 ？？？
@@ -11757,16 +7656,10 @@ PANORA的周刊Vtuber（动画版）最终回了，怕不是视频编辑跑路�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  喜闻乐见  
 ##### 2113#       发表于 2018-3-18 17:06
-
 
 
  本帖最后由 喜闻乐见 于 2018-3-18 17:08 编辑 
@@ -11779,18 +7672,10 @@ PANORA的周刊Vtuber（动画版）最终回了，怕不是视频编辑跑路�
 19,066 人正在观看  17:07
 
 
-
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2114#       发表于 2018-3-18 17:07
-
-
 
 
 还真是……好多妹子
@@ -11799,31 +7684,19 @@ PANORA的周刊Vtuber（动画版）最终回了，怕不是视频编辑跑路�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2115#       发表于 2018-3-18 17:08
 
 
-
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fph2ymk2h2j20k90d5te4.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Acheron  
 ##### 2116#       发表于 2018-3-18 17:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38890176&amp;ptid=1572644" target="_blank">喜闻乐见 发表于 2018-3-18 17:06</a>
@@ -11835,17 +7708,10 @@ PANORA的周刊Vtuber（动画版）最终回了，怕不是视频编辑跑路�
 右下这个妹子，有一瞬间拍到了正面，颜值挺高的样子
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2117#       发表于 2018-3-18 17:16
-
-
 
 
 药袋妹子上一次还在做杀人护士，这次玩ib一惊一乍的简直就是软妹<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
@@ -11853,16 +7719,10 @@ PANORA的周刊Vtuber（动画版）最终回了，怕不是视频编辑跑路�
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  喜闻乐见  
 ##### 2118#       发表于 2018-3-18 17:20
-
 
 
  本帖最后由 喜闻乐见 于 2018-3-18 17:26 编辑 
@@ -11883,27 +7743,13 @@ PANORA的周刊Vtuber（动画版）最终回了，怕不是视频编辑跑路�
 get ☆daze ！
 
 
-
-
-
-
-
-
-
 -----
 
 ####  管他三俗  
 ##### 2119#       发表于 2018-3-18 17:35
 
 
-
-
 爱酱的那身追踪设备估计负担挺大的 直播只播30分钟。这粉丝见面会也是30分钟要休息10分钟
-
-
-
-
-
 
 
 -----
@@ -11912,16 +7758,9 @@ get ☆daze ！
 ##### 2120#       发表于 2018-3-18 17:39
 
 
-
-
 这还有三四个座位是空的
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -11930,14 +7769,7 @@ get ☆daze ！
 ##### 2121#       发表于 2018-3-18 17:39
 
 
-
-
 动画《魔法少女？NARIA☆GIRLS》也是让声优穿上动作捕捉器材脱稿表演，比绊爱还更早啊。
-
-
-
-
-
 
 
 -----
@@ -11946,17 +7778,10 @@ get ☆daze ！
 ##### 2122#       发表于 2018-3-18 17:45
 
 
-
-
 有土鳖那种特殊表情是要成为赞助者才能用么<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
-
-
-
-
-
 
 
 -----
@@ -11965,16 +7790,10 @@ get ☆daze ！
 ##### 2123#       发表于 2018-3-18 17:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38890448&amp;ptid=1572644" target="_blank">平井姨夫 发表于 2018-3-18 17:39</a>
 
 动画《魔法少女？NARIA☆GIRLS》也是让声优穿上动作捕捉器材脱稿表演，比绊爱还更早啊。 ...</blockquote>
 其实最早把动作捕捉和直播结合起来的石馆片是《见习歌姬》
-
-
-
-
-
 
 
 -----
@@ -11983,14 +7802,7 @@ get ☆daze ！
 ##### 2124#       发表于 2018-3-18 17:47
 
 
-
-
 老爱在直播摸鱼吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11999,14 +7811,7 @@ get ☆daze ！
 ##### 2125#       发表于 2018-3-18 17:48
 
 
-
-
 10分钟过去了还没再开......
-
-
-
-
-
 
 
 -----
@@ -12015,20 +7820,13 @@ get ☆daze ！
 ##### 2126#       发表于 2018-3-18 17:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  喜闻乐见  
 ##### 2127#       发表于 2018-3-18 17:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38890494&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-18 17:45</a>
@@ -12040,25 +7838,13 @@ get ☆daze ！
 只需每月490 激萌表情就到手  还有ng和练习特别视频可以看 超值<img src="http://ww1.sinaimg.cn/large/732205bcly1fph4acbvt3j201c01ct8k.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 2128#       发表于 2018-3-18 17:52
 
 
-
-
 放送事故不可避<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12067,15 +7853,9 @@ get ☆daze ！
 ##### 2129#       发表于 2018-3-18 17:53
 
 
-
  本帖最后由 大泉凉 于 2018-3-18 17:57 编辑 
 
 事故了吧这是刚说完就勃了
-
-
-
-
-
 
 
 -----
@@ -12084,16 +7864,10 @@ get ☆daze ！
 ##### 2130#       发表于 2018-3-18 17:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38890548&amp;ptid=1572644" target="_blank">喜闻乐见 发表于 2018-3-18 17:51</a>
 
 只需每月490 激萌表情就到手  还有ng和练习特别视频可以看 超值</blockquote>
 哦是那个有料会员？都快把这个给忘记了。。
-
-
-
-
-
 
 
 -----
@@ -12102,16 +7876,10 @@ get ☆daze ！
 ##### 2131#       发表于 2018-3-18 17:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38890568&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-18 17:53</a>
 
 哦是那个有料会员？都快把这个给忘记了。。</blockquote>
 对的 比如上次animoji的视频  有料会员部分发布了练习视频 被切掉的部分也超有趣
-
-
-
-
-
 
 
 -----
@@ -12120,16 +7888,10 @@ get ☆daze ！
 ##### 2132#       发表于 2018-3-18 18:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38890548&amp;ptid=1572644" target="_blank">喜闻乐见 发表于 2018-3-18 17:51</a>
 
 只需每月490 激萌表情就到手  还有ng和练习特别视频可以看 超值</blockquote>
 美区油土鳖要5刀一个月，换算成rmb还要贵几块
-
-
-
-
-
 
 
 -----
@@ -12138,14 +7900,7 @@ get ☆daze ！
 ##### 2133#       发表于 2018-3-18 18:04
 
 
-
-
 果然还是月
-
-
-
-
-
 
 
 -----
@@ -12154,15 +7909,9 @@ get ☆daze ！
 ##### 2134#       发表于 2018-3-18 18:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38890194&amp;ptid=1572644" target="_blank">xingenge 发表于 2018-03-18 17:08:30</a></blockquote>还能这样操作…绊爱声优出道…咳咳，不是绊爱的声优出道噢
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -12171,14 +7920,7 @@ get ☆daze ！
 ##### 2135#       发表于 2018-3-18 18:11
 
 
-
-
 为啥爱酱喊luna是つきちゃん
-
-
-
-
-
 
 
 -----
@@ -12187,21 +7929,13 @@ get ☆daze ！
 ##### 2136#       发表于 2018-3-18 18:14
 
 
-
-
 神特么BIQ
-
-
-
-
-
 
 
 -----
 
 ####  神龙小生  
 ##### 2137#       发表于 2018-3-18 18:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38890743&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-03-18 18:11:45</a>
@@ -12211,25 +7945,13 @@ get ☆daze ！
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2138#       发表于 2018-3-18 18:16
 
 
-
-
 哈哈哈哈有人提问爱酱的CV是谁，被爱酱说脑子有问题了
-
-
-
-
-
 
 
 -----
@@ -12238,16 +7960,10 @@ get ☆daze ！
 ##### 2139#       发表于 2018-3-18 18:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38888454&amp;ptid=1572644" target="_blank">气流季里 发表于 2018-3-18 13:15</a>
 
 艾琳是duo的员工？以前说的借6000万是不是假的？</blockquote>
 6000万没实锤，是不是duo的员工不清楚，duo社就那么34个人而且都在公众媒体前露过脸，个人觉得艾琳不会这么干，不过duo社这个公司有点特殊，全部员工平均年龄只有23岁，最年长的COO渡边绫太也才26岁，感觉都是和艾琳一届出来的大学生，艾琳混在他们中也不奇怪
-
-
-
-
-
 
 
 -----
@@ -12256,21 +7972,13 @@ get ☆daze ！
 ##### 2140#       发表于 2018-3-18 18:22
 
 
-
-
 哇 这随口先问有没有女朋友后面还能圆回来不冷场 这会话力<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xiangcaihtr  
 ##### 2141#       发表于 2018-3-18 18:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38890803&amp;ptid=1572644" target="_blank">神龙小生 发表于 2018-3-18 18:16</a>
@@ -12281,24 +7989,13 @@ get ☆daze ！
 以前那期我没印象了原来是这样的吗……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2142#       发表于 2018-3-18 18:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这现场福利这么好的吗，后悔没去申请一下了。
-
-
-
-
-
 
 
 -----
@@ -12309,15 +8006,9 @@ get ☆daze ！
 Title
 
 
-
 好多人没来啊
 
 还是怂了？
-
-
-
-
-
 
 
 -----
@@ -12326,21 +8017,13 @@ Title
 ##### 2144#       发表于 2018-3-18 18:35
 
 
-
-
 怕是宅宅怂了 小姐姐真棒
-
-
-
-
-
 
 
 -----
 
 ####  バーチャルS1er  
 ##### 2145#       发表于 2018-3-18 18:37
-
 
 
  本帖最后由 バーチャルS1er 于 2018-3-18 18:38 编辑 
@@ -12356,25 +8039,13 @@ Title
 以前DUO还有招募过超过10W订阅的youtuber来做企划来着
 
 
-
-
-
-
-
 -----
 
 ####  喜闻乐见  
 ##### 2146#       发表于 2018-3-18 18:44
 
 
-
-
 猝不及防   草
-
-
-
-
-
 
 
 -----
@@ -12383,14 +8054,7 @@ Title
 ##### 2147#       发表于 2018-3-18 18:45
 
 
-
-
 草，真给面子，luna特意放在最后<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12407,25 +8071,13 @@ RE: 分析一下虚拟youtuber四天王【转型虚拟youtuber综合讨论专楼
 上班了看不了了，发生了什么？
 
 
-
-
-
-
-
 -----
 
 ####  喜闻乐见  
 ##### 2149#       发表于 2018-3-18 18:48
 
 
-
-
 多谢 分享 订阅 喜欢
-
-
-
-
-
 
 
 -----
@@ -12434,15 +8086,9 @@ RE: 分析一下虚拟youtuber四天王【转型虚拟youtuber综合讨论专楼
 ##### 2150#       发表于 2018-3-18 18:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38891092&amp;ptid=1572644" target="_blank">大泉凉 发表于 2018-3-18 18:46</a>
 上班了看不了了，发生了什么？</blockquote>
 放一推油管主（全都是三次元）祝贺老爱的视频，最后突然放luna的祝贺视频，评论瞬间草生<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12451,16 +8097,9 @@ RE: 分析一下虚拟youtuber四天王【转型虚拟youtuber综合讨论专楼
 ##### 2151#       发表于 2018-3-18 18:53
 
 
-
 <img src="http://ww1.sinaimg.cn/large/732205bcgy1fph612nqi6j20pv0eoglz.jpg" referrerpolicy="no-referrer">
 <img src="http://ww1.sinaimg.cn/large/732205bcgy1fph611yse9j20pu0ergly.jpg" referrerpolicy="no-referrer">
 <img src="http://ww1.sinaimg.cn/large/732205bcgy1fph6123d6vj20pt0ejq3m.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
@@ -12469,13 +8108,7 @@ RE: 分析一下虚拟youtuber四天王【转型虚拟youtuber综合讨论专楼
 ##### 2152#       发表于 2018-3-18 18:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">评论里一群日本傻逼喷「主持人是不是中国人去死吧」
-
-
-
-
-
 
 
 -----
@@ -12484,22 +8117,15 @@ RE: 分析一下虚拟youtuber四天王【转型虚拟youtuber综合讨论专楼
 ##### 2153#       发表于 2018-3-18 18:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38891174&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-18 18:55</a>
 评论里一群日本傻逼喷「主持人是不是中国人去死吧」</blockquote>
 主持人刚刚说了啥，没听懂，只看到评论狂喷她
-
-
-
-
-
 
 
 -----
 
 ####  xiangcaihtr  
 ##### 2154#       发表于 2018-3-18 18:58
-
 
 
  本帖最后由 xiangcaihtr 于 2018-3-18 19:02 编辑 
@@ -12516,24 +8142,13 @@ RE: 分析一下虚拟youtuber四天王【转型虚拟youtuber综合讨论专楼
 就算听不出来主持人中文发音烂得要死，明明这主持人前面还飚了韩文也没人说她是棒子啊，评论里一群傻逼丑陋日本人
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2155#       发表于 2018-3-18 19:00
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/141.png" referrerpolicy="no-referrer">0还以为会发表新衣服之类呢结果没有啊~~~
-
-
-
-
-
 
 
 -----
@@ -12542,13 +8157,7 @@ RE: 分析一下虚拟youtuber四天王【转型虚拟youtuber综合讨论专楼
 ##### 2156#       发表于 2018-3-18 19:00
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/141.png" referrerpolicy="no-referrer">0还以为会发表新衣服之类呢结果没有啊~~~
-
-
-
-
-
 
 
 -----
@@ -12557,16 +8166,10 @@ RE: 分析一下虚拟youtuber四天王【转型虚拟youtuber综合讨论专楼
 ##### 2157#       发表于 2018-3-18 19:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38891219&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-18 19:00</a>
 
 0还以为会发表新衣服之类呢结果没有啊~~~</blockquote>
 说今年之内发表啊
-
-
-
-
-
 
 
 -----
@@ -12575,14 +8178,7 @@ RE: 分析一下虚拟youtuber四天王【转型虚拟youtuber综合讨论专楼
 ##### 2158#       发表于 2018-3-18 19:01
 
 
-
-
 爱酱最后的感谢还带了点哭腔~感动了自己，哈哈
-
-
-
-
-
 
 
 -----
@@ -12591,16 +8187,10 @@ RE: 分析一下虚拟youtuber四天王【转型虚拟youtuber综合讨论专楼
 ##### 2159#       发表于 2018-3-18 19:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38891226&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-18 19:01</a>
 
 说今年之内发表啊</blockquote>
 欸！漏看了么。。看到评论在让现场观众问新衣服倒是2333333
-
-
-
-
-
 
 
 -----
@@ -12609,16 +8199,10 @@ RE: 分析一下虚拟youtuber四天王【转型虚拟youtuber综合讨论专楼
 ##### 2160#       发表于 2018-3-18 19:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38891238&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-18 19:02</a>
 
 欸！漏看了么。。看到评论在让现场观众问新衣服倒是2333333</blockquote>
 有两个现场观众提问爱酱啥时候有新衣服。爱酱说已经在计划了今年有望
-
-
-
-
-
 
 
 -----
@@ -12627,16 +8211,10 @@ RE: 分析一下虚拟youtuber四天王【转型虚拟youtuber综合讨论专楼
 ##### 2161#       发表于 2018-3-18 19:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38891253&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-18 19:03</a>
 
 有两个现场观众提问爱酱啥时候有新衣服。爱酱说已经在计划了今年有望</blockquote>
 还是“天之声”突然告知的，哈哈
-
-
-
-
-
 
 
 -----
@@ -12645,22 +8223,15 @@ RE: 分析一下虚拟youtuber四天王【转型虚拟youtuber综合讨论专楼
 ##### 2162#       发表于 2018-3-18 19:07
 
 
-
  本帖最后由 xiangcaihtr 于 2018-3-18 19:10 编辑 
 
 不过现场的观众缩卵的也太多了吧……放到别的偶像身上去这饭撒可是神级别的了。
-
-
-
-
-
 
 
 -----
 
 ####  バーチャルS1er  
 ##### 2163#       发表于 2018-3-18 19:17
-
 
 
  本帖最后由 バーチャルS1er 于 2018-3-18 19:26 编辑 
@@ -12676,16 +8247,10 @@ RE: 分析一下虚拟youtuber四天王【转型虚拟youtuber综合讨论专楼
 田中这声线和性格好强好洗脑，估计又是一个超新星，不、肯定<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 2164#       发表于 2018-3-18 19:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38891364&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-18 19:17</a>
@@ -12696,16 +8261,10 @@ https://www.youtube.com/watch?v=EMM2WsmCz-c
 真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">话说人设是谁，运营是哪家？
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 2165#       发表于 2018-3-18 19:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38891364&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-03-18 19:17:35</a></blockquote>又一个很吵的vtuber（褒义），辉夜月有同类了。
@@ -12714,16 +8273,10 @@ https://www.youtube.com/watch?v=EMM2WsmCz-c
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 2166#       发表于 2018-3-18 19:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38891451&amp;ptid=1572644" target="_blank">白白白 发表于 2018-3-18 19:25</a>
@@ -12735,16 +8288,10 @@ https://www.youtube.com/watch?v=EMM2WsmCz-c
 人设是这个，运营我还不清楚
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 2167#       发表于 2018-3-18 19:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38891499&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-18 19:30</a>
@@ -12755,25 +8302,14 @@ https://twitter.com/haru_sugar02
 这画师原来我关注了，难怪画风这么眼熟
 
 
-
-
-
-
-
 -----
 
 ####  喜闻乐见  
 ##### 2168#       发表于 2018-3-18 19:34
 
 
-
 <img src="http://ww1.sinaimg.cn/large/732205bcgy1fph79ewe0jj20hy0ijgn6.jpg" referrerpolicy="no-referrer">
 <img src="http://ww1.sinaimg.cn/large/732205bcgy1fph79ej4ioj20xc0m8jwv.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12782,14 +8318,7 @@ https://twitter.com/haru_sugar02
 ##### 2169#       发表于 2018-3-18 19:38
 
 
-
-
 富士葵翻唱了フリージア<img src="https://static.saraba1st.com/image/smiley/face2017/151.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12798,14 +8327,7 @@ https://twitter.com/haru_sugar02
 ##### 2170#       发表于 2018-3-18 19:53
 
 
-
-
 爱酱也要声优出道了！感觉中之人已经很emmmm了
-
-
-
-
-
 
 
 -----
@@ -12814,16 +8336,10 @@ https://twitter.com/haru_sugar02
 ##### 2171#       发表于 2018-3-18 19:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38891572&amp;ptid=1572644" target="_blank">looptube 发表于 2018-3-18 19:38</a>
 
 富士葵翻唱了フリージア</blockquote>
 别停下来！
-
-
-
-
-
 
 
 -----
@@ -12832,16 +8348,10 @@ https://twitter.com/haru_sugar02
 ##### 2172#       发表于 2018-3-18 19:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38891718&amp;ptid=1572644" target="_blank">天狼Q娃 发表于 2018-3-18 19:54</a>
 
 别停下来！</blockquote>
 其实这首歌挺好听的，就是团长那次这首歌风评被害<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12850,14 +8360,7 @@ https://twitter.com/haru_sugar02
 ##### 2173#       发表于 2018-3-18 20:03
 
 
-
-
 班长直播了
-
-
-
-
-
 
 
 -----
@@ -12866,14 +8369,7 @@ https://twitter.com/haru_sugar02
 ##### 2174#       发表于 2018-3-18 20:04
 
 
-
-
 委员长这OP的完成度<img src="https://static.saraba1st.com/image/smiley/face2017/110.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12882,13 +8378,7 @@ https://twitter.com/haru_sugar02
 ##### 2175#       发表于 2018-3-18 20:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">班长刚开播就来了2W人,吓死人了
-
-
-
-
-
 
 
 -----
@@ -12897,13 +8387,7 @@ https://twitter.com/haru_sugar02
 ##### 2176#       发表于 2018-3-18 20:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">班长自带2W观众
-
-
-
-
-
 
 
 -----
@@ -12912,14 +8396,7 @@ https://twitter.com/haru_sugar02
 ##### 2177#       发表于 2018-3-18 20:05
 
 
-
-
 瞬间2W+
-
-
-
-
-
 
 
 -----
@@ -12928,14 +8405,7 @@ https://twitter.com/haru_sugar02
 ##### 2178#       发表于 2018-3-18 20:09
 
 
-
-
 2.5W.......班长很厉害啊<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12944,13 +8414,7 @@ https://twitter.com/haru_sugar02
 ##### 2179#       发表于 2018-3-18 20:10
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">这TM奔着3W停不下来啊...
-
-
-
-
-
 
 
 -----
@@ -12959,14 +8423,7 @@ https://twitter.com/haru_sugar02
 ##### 2180#       发表于 2018-3-18 20:10
 
 
-
-
 最爱猫宫
-
-
-
-
-
 
 
 -----
@@ -12975,14 +8432,7 @@ https://twitter.com/haru_sugar02
 ##### 2181#       发表于 2018-3-18 20:11
 
 
-
-
 卧槽，这才几分钟，这就2w8了，班长太可怕了
-
-
-
-
-
 
 
 -----
@@ -12991,15 +8441,8 @@ https://twitter.com/haru_sugar02
 ##### 2182#       发表于 2018-3-18 20:15
 
 
-
-
 这种在衣服的胸部开一个洞的设计也和辉夜月很像。
 <img src="https://i.loli.net/2018/03/18/5aae57c8a1af1.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13008,14 +8451,7 @@ https://twitter.com/haru_sugar02
 ##### 2183#       发表于 2018-3-18 20:16
 
 
-
-
 3万人了，太可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13024,14 +8460,7 @@ https://twitter.com/haru_sugar02
 ##### 2184#       发表于 2018-3-18 20:17
 
 
-
-
 班长今天的声音有点嘶哑啊
-
-
-
-
-
 
 
 -----
@@ -13040,16 +8469,9 @@ https://twitter.com/haru_sugar02
 ##### 2185#       发表于 2018-3-18 20:18
 
 
-
-
 班长的人气真的是个vtuber之谜_(•̀ω•́ 」∠)_
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -13058,14 +8480,7 @@ https://twitter.com/haru_sugar02
 ##### 2186#       发表于 2018-3-18 20:21
 
 
-
-
 四天王直播都做不到这么多人，不过也和日期也关系
-
-
-
-
-
 
 
 -----
@@ -13074,16 +8489,10 @@ https://twitter.com/haru_sugar02
 ##### 2187#         楼主| 发表于 2018-3-18 20:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38891907&amp;ptid=1572644" target="_blank">气流季里 发表于 2018-3-18 20:15</a>
 
 这种在衣服的胸部开一个洞的设计也和辉夜月很像。</blockquote>
 这位是要走中式风格吗…………
-
-
-
-
-
 
 
 -----
@@ -13092,14 +8501,7 @@ https://twitter.com/haru_sugar02
 ##### 2188#       发表于 2018-3-18 20:31
 
 
-
-
 大家都来看委员长又能搞出什么破梗
-
-
-
-
-
 
 
 -----
@@ -13108,14 +8510,7 @@ https://twitter.com/haru_sugar02
 ##### 2189#       发表于 2018-3-18 20:41
 
 
-
-
 改变vtuber格局的女人委员长月ノ美兎
-
-
-
-
-
 
 
 -----
@@ -13124,14 +8519,7 @@ https://twitter.com/haru_sugar02
 ##### 2190#       发表于 2018-3-18 20:46
 
 
-
-
 直播讨论飛田新地的vtuber,其他人能做到么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13140,14 +8528,7 @@ https://twitter.com/haru_sugar02
 ##### 2191#       发表于 2018-3-18 20:46
 
 
-
-
 真是无论多普通的话题都能被班长带污<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13156,14 +8537,7 @@ https://twitter.com/haru_sugar02
 ##### 2192#       发表于 2018-3-18 21:01
 
 
-
-
 推特日本趋势2位，一小时1W+条推
-
-
-
-
-
 
 
 -----
@@ -13172,14 +8546,7 @@ https://twitter.com/haru_sugar02
 ##### 2193#       发表于 2018-3-18 21:02
 
 
-
-
 高桥真麻究竟那得罪班长了？
-
-
-
-
-
 
 
 -----
@@ -13188,15 +8555,9 @@ https://twitter.com/haru_sugar02
 ##### 2194#       发表于 2018-3-18 21:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38892283&amp;ptid=1572644" target="_blank">lhawp 发表于 2018-3-18 21:01</a>
 推特日本趋势2位，一小时1W+条推</blockquote>
 强无敌，我第一次看到vtuber直播上趋势二<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13205,16 +8566,10 @@ https://twitter.com/haru_sugar02
 ##### 2195#       发表于 2018-3-18 21:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38892294&amp;ptid=1572644" target="_blank">烟熏奶酪 发表于 2018-3-18 21:02</a>
 
 高桥真麻究竟那得罪班长了？</blockquote>
 不喜欢这位的人不少。
-
-
-
-
-
 
 
 -----
@@ -13223,14 +8578,7 @@ https://twitter.com/haru_sugar02
 ##### 2196#       发表于 2018-3-18 21:28
 
 
-
-
 虚拟主播热潮真的要来了
-
-
-
-
-
 
 
 -----
@@ -13239,16 +8587,9 @@ https://twitter.com/haru_sugar02
 ##### 2197#       发表于 2018-3-18 21:29
 
 
-
-
 3w7了，还在升<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
 
 之前有哪位vtuber直播有班长这人数的吗？
-
-
-
-
-
 
 
 -----
@@ -13257,14 +8598,7 @@ https://twitter.com/haru_sugar02
 ##### 2198#       发表于 2018-3-18 21:31
 
 
-
-
 38000了
-
-
-
-
-
 
 
 -----
@@ -13273,16 +8607,9 @@ https://twitter.com/haru_sugar02
 ##### 2199#       发表于 2018-3-18 21:32
 
 
-
-
 别说是虚拟主播，就算是现实主播看这直播数字也是要震三分。上3w的youtuber应该也不多吧。
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -13291,14 +8618,7 @@ https://twitter.com/haru_sugar02
 ##### 2200#       发表于 2018-3-18 21:33
 
 
-
-
 太恐怖了。。。。
-
-
-
-
-
 
 
 -----
@@ -13307,22 +8627,13 @@ https://twitter.com/haru_sugar02
 ##### 2201#       发表于 2018-3-18 21:35
 
 
-
-
 草，又玩变声器<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  バーチャルS1er  
 ##### 2202#       发表于 2018-3-18 21:35
-
-
 
 
 ヒカキン 登録者570万人 生放送視聴者数2万5千人
@@ -13335,25 +8646,13 @@ https://twitter.com/haru_sugar02
 月ノ美兎 登録者10万人 生放送視聴者数3万8千人 
 
 
-
-
-
-
-
 -----
 
 ####  不灭的旋律  
 ##### 2203#       发表于 2018-3-18 21:41
 
 
-
-
 委员长的频道要是打赏的审核通过了金额简直不敢想象，小白的记录肯定轻松被超。
-
-
-
-
-
 
 
 -----
@@ -13362,13 +8661,7 @@ https://twitter.com/haru_sugar02
 ##### 2204#       发表于 2018-3-18 21:43
 
 
-
 <img src="http://ww1.sinaimg.cn/large/6441831bgy1fphaz3poo6j20ne0edtaj.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13377,13 +8670,7 @@ https://twitter.com/haru_sugar02
 ##### 2205#       发表于 2018-3-18 21:45
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你以为彩虹也就捡到宝,其实彩虹是捡到了颗核弹...
-
-
-
-
-
 
 
 -----
@@ -13392,23 +8679,15 @@ https://twitter.com/haru_sugar02
 ##### 2206#       发表于 2018-3-18 21:45
 
 
-
-
 才第一回就这个完成度，而且还不是团队制作完全靠班长和听众自家发电，真的太可怕了
 
 这么下去感觉班长很快就要成为第二个驼鹿监督了（人气和人望的意味）
-
-
-
-
-
 
 
 -----
 
 ####  不灭的旋律  
 ##### 2207#       发表于 2018-3-18 21:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38892672&amp;ptid=1572644" target="_blank">lhawp 发表于 2018-3-18 21:45</a>
@@ -13419,25 +8698,13 @@ https://twitter.com/haru_sugar02
 住手，不带这么诅咒的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  abbccc200  
 ##### 2208#       发表于 2018-3-18 21:49
 
 
-
-
 只能说ポン子真有眼光
-
-
-
-
-
 
 
 -----
@@ -13446,14 +8713,7 @@ https://twitter.com/haru_sugar02
 ##### 2209#       发表于 2018-3-18 21:51
 
 
-
-
 最后宣布要和谁联动是么
-
-
-
-
-
 
 
 -----
@@ -13462,20 +8722,13 @@ https://twitter.com/haru_sugar02
 ##### 2210#       发表于 2018-3-18 21:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">没有班长彩虹社不会掀起这么大浪，担心未来的vtuber界
-
-
-
-
-
 
 
 -----
 
 ####  Porsche  
 ##### 2211#       发表于 2018-3-18 21:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38892672&amp;ptid=1572644" target="_blank">lhawp 发表于 2018-3-18 21:45</a>
@@ -13489,25 +8742,13 @@ https://twitter.com/haru_sugar02
 班长也是ARuFa的忠实观众<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  YooZi  
 ##### 2212#       发表于 2018-3-18 21:58
 
 
-
-
 居然是和届木ウカ合作
-
-
-
-
-
 
 
 -----
@@ -13516,24 +8757,16 @@ https://twitter.com/haru_sugar02
 ##### 2213#       发表于 2018-3-18 22:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38892794&amp;ptid=1572644" target="_blank">YooZi 发表于 2018-3-18 21:58</a>
 
 居然是和届木ウカ合作</blockquote>
 竟然和ウカ様联动！？彩虹社果然比其他企业势放的开，唉真想看组长和别人联动
 
 
-
-
-
-
-
 -----
 
 ####  zpbzpb123123  
 ##### 2214#       发表于 2018-3-18 22:09
-
-
 
 
 3W8，可怕。。
@@ -13547,16 +8780,10 @@ https://twitter.com/haru_sugar02
 委員長すき　委員長すき　委員長すき　悪魔の力（ry
 
 
-
-
-
-
-
 -----
 
 ####  lhawp  
 ##### 2215#       发表于 2018-3-18 22:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38892751&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-18 21:53</a>
@@ -13567,16 +8794,10 @@ https://twitter.com/haru_sugar02
 像班长这种人明显是深受nico文化影响的，结果由于nico的网站和生放送用户体验实在太渣最终还是去了油管
 
 
-
-
-
-
-
 -----
 
 ####  lhawp  
 ##### 2216#       发表于 2018-3-18 22:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38892885&amp;ptid=1572644" target="_blank">zpbzpb123123 发表于 2018-3-18 22:09</a>
@@ -13587,32 +8808,19 @@ https://twitter.com/haru_sugar02
 わかるマーン<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2217#       发表于 2018-3-18 22:17
 
 
-
-
 欸这OP不是之前剪辑拼成的角色歌嘛www 采用还翻唱了么2333333
-
-
-
-
-
 
 
 -----
 
 ####  触手姬  
 ##### 2218#       发表于 2018-3-18 22:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38892893&amp;ptid=1572644" target="_blank">lhawp 发表于 2018-3-18 22:10</a>
@@ -13623,31 +8831,19 @@ https://twitter.com/haru_sugar02
 niconico完蛋不奇怪，唯一优点是有弹幕，其他全都不如对手，还不改善用户体验
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2219#       发表于 2018-3-18 22:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">卧槽药袋画的天使？
-
-
-
-
-
 
 
 -----
 
 ####  触手姬  
 ##### 2220#       发表于 2018-3-18 22:29
-
 
 
  本帖最后由 触手姬 于 2018-3-18 22:31 编辑 
@@ -13663,15 +8859,7 @@ niconico完蛋不奇怪，唯一优点是有弹幕，其他全都不如对手，
 2018-3-18 22:30 上传
 
 
-
-
-
 班长和ウカ様联动真有点为ウカ様担心，能不能跟上会不会带歪...
-
-
-
-
-
 
 
 -----
@@ -13680,21 +8868,13 @@ niconico完蛋不奇怪，唯一优点是有弹幕，其他全都不如对手，
 ##### 2221#       发表于 2018-3-18 22:31
 
 
-
-
 nico充会员体验也不行，垃圾网站早死早超生。被逸站收购是最好的结局。
-
-
-
-
-
 
 
 -----
 
 ####  不灭的旋律  
 ##### 2222#       发表于 2018-3-18 22:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38892893&amp;ptid=1572644" target="_blank">lhawp 发表于 2018-3-18 22:10</a>
@@ -13705,24 +8885,13 @@ nico充会员体验也不行，垃圾网站早死早超生。被逸站收购是�
 不过包括班长在内的很多vtuber能迅速蹿红nico功不可没，而vtuber也为半死不活的nico注入了新的活力，非常有意思。说起来班长ポン子和小白都是nico厨。那些在mirrortv和showroom直播的vtuber也赶快转投youtube吧，多平台谁顾得过来。
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2223#       发表于 2018-3-18 22:34
 
 
-
 <img src="http://wx1.sinaimg.cn/large/87566b0cgy1fphcfmixuej21a21kwgpt.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13731,14 +8900,8 @@ nico充会员体验也不行，垃圾网站早死早超生。被逸站收购是�
 ##### 2224#       发表于 2018-3-18 22:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38893094&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-18 22:34</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">天使完全没有回归的迹象
-
-
-
-
-
 
 
 -----
@@ -13747,14 +8910,7 @@ nico充会员体验也不行，垃圾网站早死早超生。被逸站收购是�
 ##### 2225#       发表于 2018-3-18 22:37
 
 
-
-
 ウカ本来就是联动狂人啊，反正个人势压力又不大
-
-
-
-
-
 
 
 -----
@@ -13763,17 +8919,10 @@ nico充会员体验也不行，垃圾网站早死早超生。被逸站收购是�
 ##### 2226#       发表于 2018-3-18 22:40
 
 
-
-
 老爱真是厉害，各种意义上的领军人物。
 
 
 新关注了班长<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13782,22 +8931,13 @@ nico充会员体验也不行，垃圾网站早死早超生。被逸站收购是�
 ##### 2227#       发表于 2018-3-18 22:51
 
 
-
-
 NICO我觉得也是有自己的优势的。你看班长这次的OP，原曲和谱面都是NICO用户做出来然后被采用的。然后这一个月来各种音MAD也促进了班长本人的人气。这种生态圈的形成是很好的。毕竟有TAG系统，很方便找特定的内容相关的视频。这点YOUTUBE就差了点意思。
-
-
-
-
-
 
 
 -----
 
 ####  plok201  
 ##### 2228#       发表于 2018-3-18 22:58
-
-
 
 
 倒不需要怕带歪,虽然班长本人非常狂气,但是彩虹联动那几次还是很好配合其他人的
@@ -13809,16 +8949,10 @@ NICO我觉得也是有自己的优势的。你看班长这次的OP，原曲和�
 原来想个人势会不会被彩虹压制,现在感觉是杞人忧天了,几个彩虹都和个人势玩的欢...<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2229#       发表于 2018-3-18 23:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38893329&amp;ptid=1572644" target="_blank">plok201 发表于 2018-3-18 22:58</a>
@@ -13830,33 +8964,20 @@ NICO我觉得也是有自己的优势的。你看班长这次的OP，原曲和�
 个人势不需要担心，企业势反而需要担心，现在几个企业势新星涨的很慢，我担心后面想进来看到这样的现状都学起彩虹社了
 
 
-
-
-
-
-
 -----
 
 ####  sign34789  
 ##### 2230#       发表于 2018-3-18 23:17
 
 
-
-
 貌似是爱酱的追踪设备，全套只要1w块
 [https://youtu.be/ujCVRBIfY6A?t=2m13s](https://youtu.be/ujCVRBIfY6A?t=2m13s)
-
-
-
-
-
 
 
 -----
 
 ####  触手姬  
 ##### 2231#       发表于 2018-3-18 23:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38893504&amp;ptid=1572644" target="_blank">sign34789 发表于 2018-3-18 23:17</a>
@@ -13867,17 +8988,10 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 这么便宜？？？我还以为更高级点的
 
 
-
-
-
-
-
 -----
 
 ####  杜庶仁  
 ##### 2232#         楼主| 发表于 2018-3-18 23:22
-
-
 
 
 除了能聊之外，这种交心的感觉，我想就是班长受欢迎的根源吧。包括luna的疯疯癫癫的感觉，也是会给人一种亲近感和真实感。
@@ -13886,20 +9000,13 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 果然大家都喜欢“真物”啊…………
 
 
-
 不过这抽搐的表情，也真亏日本人可以受得了啊…………
-
-
-
-
-
 
 
 -----
 
 ####  swordofsoul1  
 ##### 2233#       发表于 2018-3-18 23:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38893504&amp;ptid=1572644" target="_blank">sign34789 发表于 2018-3-18 23:17</a>
@@ -13910,16 +9017,10 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 等等，必须脱到只剩内衣么<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 2234#       发表于 2018-3-18 23:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38893558&amp;ptid=1572644" target="_blank">swordofsoul1 发表于 2018-03-18 23:24:23</a>
@@ -13928,25 +9029,13 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2235#       发表于 2018-3-18 23:30
 
 
-
-
 我记得有专用的衣服
-
-
-
-
-
 
 
 -----
@@ -13955,17 +9044,10 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2236#       发表于 2018-3-18 23:48
 
 
-
-
 我始终体会不到班长的魅力啊，这次直播跟风看了20分钟就关了。在我看来她这就是一个很能说的女主播嘛，无非就是用虚拟形象代替真人出境。而且彩虹社这软件垃圾得一笔，除了微妙的阿黑颜，一点表情也体现不出，感觉还不如FaceRig<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
 其他的虚拟youtuber或多或少是在演绎那个角色的感觉，这也是我看虚拟youtuber的原因。班长这种流派的在我看来单纯就是女主播，我看她还不如看发姐呢，是什么吸引你们看她的？
-
-
-
-
-
 
 
 -----
@@ -13974,14 +9056,7 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2237#       发表于 2018-3-18 23:50
 
 
-
-
 風俗委員長で決まる！
-
-
-
-
-
 
 
 -----
@@ -13990,25 +9065,16 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2238#       发表于 2018-3-18 23:55
 
 
-
-
 因为不是谁都喜欢看三次元脸的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这不是废话么……
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 2239#       发表于 2018-3-19 00:03
-
-
 
 
 感觉嫁实萌实的声音听多了都会中毒
@@ -14018,32 +9084,19 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 —— 来自 HUAWEI BND-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  dongganbenben  
 ##### 2240#       发表于 2018-3-19 00:04
 
 
-
-
 班长看点就是二次元发姐呀，直播太长笑点分散可以看浓缩版
-
-
-
-
-
 
 
 -----
 
 ####  cao1rui2  
 ##### 2241#       发表于 2018-3-19 00:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38893845&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-18 23:55</a>
@@ -14056,16 +9109,10 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 —— 来自 Xiaomi MI 6, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3
 
 
-
-
-
-
-
 -----
 
 ####  zpbzpb123123  
 ##### 2242#       发表于 2018-3-19 00:06
-
 
 
  本帖最后由 zpbzpb123123 于 2018-3-19 00:08 编辑 
@@ -14080,16 +9127,10 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 说句不合适的，如果猫宫这种和班长同时生放的话人数多半要被班长倍杀。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 编辑一下，如果会开播的话第一次开播的鉴别代打那波过去稳定之后的人数
 
 
-
-
-
-
-
 -----
 
 ####  lhawp  
 ##### 2243#       发表于 2018-3-19 00:16
-
 
 
  本帖最后由 lhawp 于 2018-3-19 00:17 编辑 
@@ -14101,17 +9142,10 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 班长不说别的，ムカデ人間和ヨーロッパ企画就都是洗粉大杀器，能留下来的都是核心粉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  plok201  
 ##### 2244#       发表于 2018-3-19 00:24
-
-
 
 
 班长也有演绎角色啊
@@ -14120,16 +9154,10 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 你看,这可是一个16岁却对10年前网络耳熟能详的美少女哦,平时是个高岭之花,其实本质上是电波系,虽然有时候脱线不靠谱,但是关键的时候会温柔的讲人生道理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zpbzpb123123  
 ##### 2245#       发表于 2018-3-19 00:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38894047&amp;ptid=1572644" target="_blank">plok201 发表于 2018-3-19 00:24</a>
@@ -14141,27 +9169,15 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 毕竟5岁玩爱相随，8岁玩蛋吻<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 2246#       发表于 2018-3-19 01:06
 
 
-
-
 月ノさんは表裏がない素敵な人です
 
 你可以当作汚い絢辻詞来看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14170,21 +9186,13 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2247#       发表于 2018-3-19 01:11
 
 
-
-
 班长就是时乃空的反义词
-
-
-
-
-
 
 
 -----
 
 ####  lhawp  
 ##### 2248#       发表于 2018-3-19 01:32
-
 
 
  本帖最后由 lhawp 于 2018-3-19 01:34 编辑 
@@ -14199,16 +9207,10 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 目前看来类似925这样的事件暂时还不太可能发生，比较怕的是做大之后又玩太high招惹到惹不起的人，感觉彩虹社急需聘请一位法务<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  StardustNoir  
 ##### 2249#       发表于 2018-3-19 04:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38894447&amp;ptid=1572644" target="_blank">lhawp 发表于 2018-3-19 01:32</a>
@@ -14220,16 +9222,10 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 有感...中之人自己的料实在太多，会玩加上熟知通吃各种亚文化，才艺魅力盛产meme，已经一个个梗了，感觉就是自个儿直播玩玩，然后带笑一群群人
 
 
-
-
-
-
-
 -----
 
 ####  大泉凉  
 ##### 2250#       发表于 2018-3-19 06:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38893795&amp;ptid=1572644" target="_blank">cao1rui2 发表于 2018-3-18 23:48</a>
@@ -14238,25 +9234,13 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 你看了陈一发就不能看冯提莫了吗，就不能看班长了吗
 
 
-
-
-
-
-
 -----
 
 ####  tiro_finale  
 ##### 2251#       发表于 2018-3-19 07:34
 
 
-
-
 所以国内的直播文化其实走在了前面么
-
-
-
-
-
 
 
 -----
@@ -14265,16 +9249,10 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2252#       发表于 2018-3-19 08:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38895004&amp;ptid=1572644" target="_blank">tiro_finale 发表于 2018-03-19 07:34:15</a>
 所以国内的直播文化其实走在了前面么</blockquote>nico生比国内直播早多了
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -14283,23 +9261,15 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2253#       发表于 2018-3-19 08:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38895004&amp;ptid=1572644" target="_blank">tiro_finale 发表于 2018-3-19 07:34</a>
 所以国内的直播文化其实走在了前面么</blockquote>
 看你怎么定位前了，目前我看来还是同一次元罢了
-
-
-
-
-
 
 
 -----
 
 ####  横寺阳人  
 ##### 2254#       发表于 2018-3-19 09:48
-
-
 
 
 直播早就有了在日本，也不是中国才有的玩意。
@@ -14310,16 +9280,10 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 所以说猫宫直播人数会被班长被杀我是不认同的，因为就算是对比正常直播圈，一个会说骚话的高玩人气不会比一个杂谈类主播差的。
 
 
-
-
-
-
-
 -----
 
 ####  dystopiaground  
 ##### 2255#       发表于 2018-3-19 09:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38893795&amp;ptid=1572644" target="_blank">cao1rui2 发表于 2018-3-18 23:48</a>
@@ -14331,31 +9295,19 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
   当然最重要的还是本人的才华，就昨晚那期电台，除了op和几个环节之间的音乐是观众帮忙做的，其他全都是自己一个人操作的，一台mac一个人第一次就能作出如此高质量的电台节目，这到后面开放了youtube打赏有钱换设备没了限制后真不知道能搞出多少牛逼玩意儿
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 2256#       发表于 2018-3-19 09:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">站在委员长角度我觉得留彩虹社没有什么不好的，现在连面试都要班长操刀，俨然彩虹社元老功臣。带着一票跟着自己混的小妹在直播圈杀得风生水起，当大姐头这酸爽想说啥就说啥，比起企业势各种不让说还各种跟着人物设定当个傀儡比，好的不是一点半点啊。
-
-
-
-
-
 
 
 -----
 
 ####  zpbzpb123123  
 ##### 2257#       发表于 2018-3-19 10:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38895887&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-19 09:48</a>
@@ -14368,16 +9320,10 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 如果猫宫真的直播并且节目效果很好给大家带来了惊喜，人数爆炸，那对于所有观众来说都是好事，好看的主播不嫌多啊<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2258#       发表于 2018-3-19 10:14
-
 
 
  本帖最后由 触手姬 于 2018-3-19 10:22 编辑 
@@ -14395,15 +9341,7 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 2018-3-19 10:21 上传
 
 
-
-
-
 深雪酱画的
-
-
-
-
-
 
 
 -----
@@ -14412,13 +9350,7 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2259#       发表于 2018-3-19 10:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只不过打了一晚兰斯10我到底错过了多少东西
-
-
-
-
-
 
 
 -----
@@ -14427,17 +9359,10 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2260#       发表于 2018-3-19 10:38
 
 
-
-
 彩虹势那破APP怎么想也卖不了多少，live2d的水平就不说了，要用水果X做摄像头然后正经直播还是要用电脑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 加上这么急着开第三期，估计是转型卖角色了，商品化就不说了，说不定以后直接让角色+中之人转到其他会社赚转让费
-
-
-
-
-
 
 
 -----
@@ -14446,16 +9371,9 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2261#       发表于 2018-3-19 10:40
 
 
-
-
 看看这次生放能不能有人给班长的名言集锦做个翻译视频，
 
 竟然连黄油语音试听规则都熟知，多么博识+朋友圈厚度惊人的优等生啊（怀疑当年以声优为志愿奋斗时，参与过配音，情报流出希望<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">）
-
-
-
-
-
 
 
 -----
@@ -14464,15 +9382,9 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2262#       发表于 2018-3-19 10:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38895956&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-19 09:55</a>
 站在委员长角度我觉得留彩虹社没有什么不好的，现在连面试都要班长操刀，俨然彩虹社元老功臣。带着 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">让班长负责面试怕是以后要变成一个班的势力了
-
-
-
-
-
 
 
 -----
@@ -14481,16 +9393,10 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2263#       发表于 2018-3-19 10:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38896427&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-19 10:38</a>
 
 彩虹势那破APP怎么想也卖不了多少，live2d的水平就不说了，要用水果X做摄像头然后正经直播还是要用电脑[f:0 ...</blockquote>
 你这么说就跟娇喘和野兽动物园很像了，大家都是喜欢创作者/中之人的个人魅力，而人设形象都在大人的手里，表里一体都是不能脱离的东西，希望能得到善待吧，不要重蹈925的覆辙
-
-
-
-
-
 
 
 -----
@@ -14499,14 +9405,7 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2264#       发表于 2018-3-19 10:59
 
 
-
-
 彩虹社和角川的体量还是差很远的，短期内应该不敢搞个大新闻。现在比较担心的是如果fan自发帮班长升级3D模型，彩虹社很可能不会批准
-
-
-
-
-
 
 
 -----
@@ -14515,16 +9414,10 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2265#       发表于 2018-3-19 11:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38896538&amp;ptid=1572644" target="_blank">StardustNoir 发表于 2018-3-19 10:49</a>
 
 你这么说就跟娇喘和野兽动物园很像了，大家都是喜欢创作者/中之人的个人魅力，而人设形象都在大人的手里 ...</blockquote>
 单卖2D皮肯定没人要的，这个业界还挺注重中之人的，像班长这种换个同等质量的皮一样能火
-
-
-
-
-
 
 
 -----
@@ -14533,16 +9426,10 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2266#       发表于 2018-3-19 11:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38896657&amp;ptid=1572644" target="_blank">lhawp 发表于 2018-3-19 10:59</a>
 
 彩虹社和角川的体量还是差很远的，短期内应该不敢搞个大新闻。现在比较担心的是如果fan自发帮班长升级3D模 ...</blockquote>
 讲真彩虹社敢不批准吗，人一个不高兴直接和你说再见，班长最多也就找人重新搞个形象，彩虹社这边损失的可是人气最高的新星和业界的口碑
-
-
-
-
-
 
 
 -----
@@ -14551,14 +9438,7 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2267#       发表于 2018-3-19 11:18
 
 
-
-
 话说我还是挺喜欢彩虹社的2D皮的，首先画师功底很好，另外就是面部捕捉技术太菜经常会出现一些迷之颜艺。
-
-
-
-
-
 
 
 -----
@@ -14567,16 +9447,10 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2268#       发表于 2018-3-19 11:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38896657&amp;ptid=1572644" target="_blank">lhawp 发表于 2018-3-19 10:59</a>
 
 彩虹社和角川的体量还是差很远的，短期内应该不敢搞个大新闻。现在比较担心的是如果fan自发帮班长升级3D模 ...</blockquote>
 彩虹社长说过对3D化没有抵触的，所以应该没问题吧。
-
-
-
-
-
 
 
 -----
@@ -14585,15 +9459,9 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2269#       发表于 2018-3-19 11:24
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你们要搞清楚，现在主动权完全在委员长手里，包括底下其他小妹还要委员长去带还做不到独当一面，你们拿彩虹社跟娇喘比你们是在侮辱娇喘啊。
 
 妈的就三个社员的社长算个屁，想跳槽甚至挖走新来几个小妹简直易如反掌，现在社长才要好好想想怎么留住这个活宝吧。
-
-
-
-
-
 
 
 -----
@@ -14602,17 +9470,10 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2270#       发表于 2018-3-19 11:33
 
 
-
-
 换平台估计也没法这么自由了吧……
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
-
-
-
-
-
 
 
 -----
@@ -14621,21 +9482,13 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2271#       发表于 2018-3-19 11:38
 
 
-
-
 而且据说这个社长还是个学生来着
-
-
-
-
-
 
 
 -----
 
 ####  Paradox7  
 ##### 2272#       发表于 2018-3-19 11:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38893504&amp;ptid=1572644" target="_blank">sign34789 发表于 2018-3-18 23:17</a>
@@ -14646,16 +9499,10 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 全程看右下角奶子
 
 
-
-
-
-
-
 -----
 
 ####  looptube  
 ##### 2273#       发表于 2018-3-19 12:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38897144&amp;ptid=1572644" target="_blank">zpbzpb123123 发表于 2018-3-19 11:38</a>
@@ -14664,27 +9511,15 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 你这么一说去谷歌了一下，社长14年高中毕业进早稻田，今年可能还没毕业
 
 
-
-
-
-
-
 -----
 
 ####  YooZi  
 ##### 2274#       发表于 2018-3-19 12:23
 
 
-
-
 这集三颗星前半
 
 因为花粉症一言不合就要把城市里的树全部除掉 完全是JK组幼年体
-
-
-
-
-
 
 
 -----
@@ -14693,22 +9528,13 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2275#       发表于 2018-3-19 12:23
 
 
-
-
 风怒
-
-
-
-
-
 
 
 -----
 
 ####  cao1rui2  
 ##### 2276#       发表于 2018-3-19 14:05
-
-
 
 
 恩看你们分析那么多，果然还是因为相比主播我更喜欢up主吧。
@@ -14718,26 +9544,15 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 —— 来自 Xiaomi MI 6, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3
 
 
-
-
-
-
-
 -----
 
 ####  Porsche  
 ##### 2277#       发表于 2018-3-19 14:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38896538&amp;ptid=1572644" target="_blank">StardustNoir 发表于 2018-3-19 10:49</a>
 你这么说就跟娇喘和野兽动物园很像了，大家都是喜欢创作者/中之人的个人魅力，而人设形象都在大人的手里 ...</blockquote>
 彩虹社算个毛线大人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14746,14 +9561,7 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2278#       发表于 2018-3-19 14:12
 
 
-
-
 组长也开始业界进军了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">  春服好可爱
-
-
-
-
-
 
 
 -----
@@ -14762,13 +9570,7 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2279#       发表于 2018-3-19 14:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">大低质量企业势马上就要来临了，希望高质量企业能挺住
-
-
-
-
-
 
 
 -----
@@ -14777,20 +9579,13 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2280#       发表于 2018-3-19 14:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">放到国内，三个死大做创业公司，引起业界轩然大波，早上了什么科技早报头版了。早稻田毕业大学生出来就是社长，班长你真的不考虑直接吃掉那小伙子么，按照剧情的话。
-
-
-
-
-
 
 
 -----
 
 ####  バーチャルS1er  
 ##### 2281#       发表于 2018-3-19 14:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38898704&amp;ptid=1572644" target="_blank">cao1rui2 发表于 2018-3-19 14:05</a>
@@ -14802,17 +9597,10 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 其实班长我也看的不多，直播留下来的视频太长本来就是一个门槛了，所以才没有发生luna猫宫那种订阅数疯涨的情况
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2282#       发表于 2018-3-19 14:21
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/19/142159r4ug0y5lqzmqx8cz.jpg" referrerpolicy="no-referrer">
@@ -14825,22 +9613,13 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 2018-3-19 14:21 上传
 
 
-
-
-
 组长新衣服好棒！！！！运营终于开窍了<strong>電脳少女シロ、初のイベントでの共演相手は声優の内田真礼さん・悠木碧さん！</strong><strong>バーチャルYouTuber電脳少女シロ、AnimeJapan2018へ参戦決定！KLabGamesステージにて「禍つヴァールハイト」の公開生放送に出演予定</strong>
-
-
-
-
-
 
 
 -----
 
 ####  lime2001  
 ##### 2283#       发表于 2018-3-19 14:28
-
 
 
 <blockquote>触手姬 发表于 2018-3-19 14:21
@@ -14850,16 +9629,10 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 冬裝可愛 春裝典雅 夏裝性感 組長真是太可愛了
 
 
-
-
-
-
-
 -----
 
 ####  ror  
 ##### 2284#       发表于 2018-3-19 14:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38898895&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-19 14:21</a>
@@ -14867,16 +9640,10 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 组长的每件衣服都好棒，审美没的黑<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  气流季里  
 ##### 2285#       发表于 2018-3-19 14:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38898744&amp;ptid=1572644" target="_blank">Porsche 发表于 2018-3-19 14:10</a>
@@ -14887,27 +9654,15 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 —— 来自 Xiaomi Redmi Note 4, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3
 
 
-
-
-
-
-
 -----
 
 ####  不灭的旋律  
 ##### 2286#       发表于 2018-3-19 14:32
 
 
-
-
 以后业界就是共享单车之战了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 いちから没有公开资本，不过感觉班长开打赏后要不了多久都可以把公司买下来了，独立开事务所都行啊。
-
-
-
-
-
 
 
 -----
@@ -14916,14 +9671,7 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2287#       发表于 2018-3-19 14:36
 
 
-
-
 如果真的只是几个大学生的创业，那彩虹社真是个奇迹啊，赶上这个风潮还挖到了瑰宝，命太好。
-
-
-
-
-
 
 
 -----
@@ -14932,16 +9680,9 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2288#       发表于 2018-3-19 15:09
 
 
-
-
 楼上这脑洞是要委员长变慈禧吗
 
 听着好喜感
-
-
-
-
-
 
 
 -----
@@ -14950,14 +9691,7 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2289#       发表于 2018-3-19 15:13
 
 
-
-
 小白这新衣服是真的好看，其实我一直觉得她冬装太肿了有一点点直男审美。新衣服只看个领子也挺不错的。
-
-
-
-
-
 
 
 -----
@@ -14966,23 +9700,16 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 ##### 2290#       发表于 2018-3-19 15:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38898879&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-19 14:20</a>
 
 其实班长我也看的不多，直播留下来的视频太长本来就是一个门槛了，所以才没有发生luna猫宫那种订阅数疯涨 ...</blockquote>
 我班长的倒是全都看完了还嫌不够，但是爱酱和小白这种每天更新的实在是追不完<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">忙几天就忘了
 
 
-
-
-
-
-
 -----
 
 ####  Slum.  
 ##### 2291#       发表于 2018-3-19 15:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38899494&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-03-19 15:17:22</a>
@@ -14992,17 +9719,10 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  looptube  
 ##### 2292#       发表于 2018-3-19 16:20
-
-
 
 
 研究了一下彩虹社社长，根据他FB上的资料来看出生于美国密尔沃基。高中毕业于三田学園，费用比较贵高中部学杂费46W，入学要另交50W入学金。本人在大学1年级时选修了初级汉语。
@@ -15012,16 +9732,10 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 从推特上看本人比较热衷ar技术是个果粉，开始可能只想卖app，会加入vtube大军应该也是受到去年年底风波的影响。现在这套软件应该也是自己开发的。
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2293#       发表于 2018-3-19 16:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38900181&amp;ptid=1572644" target="_blank">looptube 发表于 2018-3-19 16:20</a>
@@ -15030,17 +9744,10 @@ https://youtu.be/ujCVRBIfY6A?t=2m13s</blockquote>
 也算一个传奇人物了...
 
 
-
-
-
-
-
 -----
 
 ####  Porsche  
 ##### 2294#       发表于 2018-3-19 16:28
-
-
 
 
 又惊着了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
@@ -15053,16 +9760,10 @@ http://www.europe-kikaku.com/member/
 这种落差感<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，现在回想起来那些游戏虽然系统界面一泡污但是里面人物的演技都相当可以啊
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2295#       发表于 2018-3-19 16:44
-
 
 
  本帖最后由 xiangcaihtr 于 2018-3-19 16:46 编辑 
@@ -15073,26 +9774,15 @@ http://www.europe-kikaku.com/member/
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Porsche  
 ##### 2296#       发表于 2018-3-19 17:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38900467&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-19 16:44</a>
 这履历除了企画代表有一些有头有脸的成就以外，其他成员们都没写演了啥角色，说不定只是一个无名演员们组成 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">写出来的全是剧团以外的啊，本职当然是跟着剧团一起参演各种作品，莫非你要和影视明星比知名度不成，演技谁吊打谁倒是可以下结论，参照国内话剧团的老戏骨们
-
-
-
-
-
 
 
 -----
@@ -15101,16 +9791,9 @@ http://www.europe-kikaku.com/member/
 ##### 2297#       发表于 2018-3-19 18:21
 
 
-
-
 话说班长玩的那个homo游戏有人玩过吗，为啥每次一进去啥都没有就ED了
 
 —— 来自 Meizu M1 E, Android 6.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -15119,21 +9802,13 @@ http://www.europe-kikaku.com/member/
 ##### 2298#       发表于 2018-3-19 18:30
 
 
-
-
 b站字幕组又跟一观众撕起来了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 目前看来还是一边倒，up跟观众的话语权差距太大了，虽然那人是傻逼，我还是挺同意翻译不要乱添私货的
-
-
-
-
-
 
 
 -----
 
 ####  zaku11ku  
 ##### 2299#       发表于 2018-3-19 18:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38901551&amp;ptid=1572644" target="_blank">rxds 发表于 2018-3-19 18:21</a>
@@ -15145,17 +9820,10 @@ b站字幕组又跟一观众撕起来了<img src="https://static.saraba1st.com/i
 打字游戏，右上条要到しあわせ才能TE<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 2300#       发表于 2018-3-19 18:56
-
-
 
 
 实际看了一下siro的血源第一话（熟肉）
@@ -15165,85 +9833,39 @@ b站字幕组又跟一观众撕起来了<img src="https://static.saraba1st.com/i
 —— 来自 HUAWEI BND-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  fqflhc  
 ##### 2301#       发表于 2018-3-19 19:11
 
 
-
-
 团长在新的一期斋藤先生上谜之复仇了luna<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
 
 
 QQ截图20180319184625.png
 (164.79 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2018-3-19 19:10 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/19/191041bmrskd3ei45c533c.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 QQ截图20180319184928.png
 (209.78 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2018-3-19 19:10 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/19/191042tl4o3134rg47voyy.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -15252,15 +9874,9 @@ QQ截图20180319184928.png
 ##### 2302#       发表于 2018-3-19 19:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38901997&amp;ptid=1572644" target="_blank">fqflhc 发表于 2018-3-19 19:11</a>
 团长在新的一期斋藤先生上谜之复仇了luna</blockquote>
 姬友互损wwwww
-
-
-
-
-
 
 
 -----
@@ -15269,14 +9885,7 @@ QQ截图20180319184928.png
 ##### 2303#       发表于 2018-3-19 19:24
 
 
-
-
 堇了堇了堇了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15285,16 +9894,9 @@ QQ截图20180319184928.png
 ##### 2304#       发表于 2018-3-19 19:33
 
 
-
-
 开车时玩斋藤先生还有先读技能的兄贵还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 爱酱这期又和政委合作推游戏广告了<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">走向AI生巅峰
-
-
-
-
-
 
 
 -----
@@ -15303,14 +9905,7 @@ QQ截图20180319184928.png
 ##### 2305#       发表于 2018-3-19 19:37
 
 
-
-
 惊了  居然堇了
-
-
-
-
-
 
 
 -----
@@ -15319,14 +9914,7 @@ QQ截图20180319184928.png
 ##### 2306#       发表于 2018-3-19 19:41
 
 
-
-
 爱酱与圈外的联动也越来越频繁了，星辰大海…。话说这期的可乐又想起来疑似被ban那期了哈哈
-
-
-
-
-
 
 
 -----
@@ -15335,21 +9923,13 @@ QQ截图20180319184928.png
 ##### 2307#       发表于 2018-3-19 19:44
 
 
-
-
 这vtuber是不是能给些二线三线的CV点明路，以后估计二三线声优入场的越来越多
-
-
-
-
-
 
 
 -----
 
 ####  lime2001  
 ##### 2308#       发表于 2018-3-19 19:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38902274&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-19 19:44</a>
@@ -15368,16 +9948,10 @@ QQ截图20180319184928.png
 很多時候你可以聽出聲音不是發自內心覺得有趣
 
 
-
-
-
-
-
 -----
 
 ####  气流季里  
 ##### 2309#       发表于 2018-3-19 19:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38902181&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-19 19:33</a>
@@ -15388,16 +9962,10 @@ QQ截图20180319184928.png
 又？这不是第一次和上坂堇做合作视频吗
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2310#       发表于 2018-3-19 19:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38902311&amp;ptid=1572644" target="_blank">lime2001 发表于 2018-3-19 19:48</a>
@@ -15410,33 +9978,19 @@ QQ截图20180319184928.png
 YUA这个反面教材不说，配过故人石棺系列动画的其实都蛮有成为超新星能力的人，很多声优还是很有才能感觉
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 2311#       发表于 2018-3-19 19:57
 
 
-
-
 大概无论哪里的综合讨论版，近来最频繁出现的两个人名，委员长与YUA，嘛运营无能但处境各异。
-
-
-
-
-
 
 
 -----
 
 ####  横寺阳人  
 ##### 2312#       发表于 2018-3-19 20:06
-
-
 
 
 yua感觉唯一的出路就是先破而后立了，反正也没几个看的还不如解放自己做自己想做的。
@@ -15450,17 +10004,10 @@ vtuber更多是各个领域做有趣的视频，爱酱的全领域基本都做�
 二三甚至十八线cv只是多一条出路罢了，能不能上位还得看自己。
 
 
-
-
-
-
-
 -----
 
 ####  大泉凉  
 ##### 2313#       发表于 2018-3-19 20:09
-
-
 
 
 由班长想到的
@@ -15472,32 +10019,19 @@ vtuber更多是各个领域做有趣的视频，爱酱的全领域基本都做�
 自己会不会造梗并不重要，重要的是能吸引这种粉丝的能力吧
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 2314#       发表于 2018-3-19 20:10
 
 
-
-
 周vtuber不做视频版了，上周文字版很快就出来了。点击量jk组上来5/7位，10-20也上了几个彩虹社的。急上升则是彩虹社的alice和一个宇宙人。
-
-
-
-
-
 
 
 -----
 
 ####  横寺阳人  
 ##### 2315#       发表于 2018-3-19 20:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38902472&amp;ptid=1572644" target="_blank">大泉凉 发表于 2018-3-19 20:09</a>
@@ -15513,16 +10047,10 @@ vtuber更多是各个领域做有趣的视频，爱酱的全领域基本都做�
 中国梗最多的，德云色，毒奶，quin甚至是爽哥，那个不是平时骚话连篇满嘴跑火车啊。
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 2316#       发表于 2018-3-19 20:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38902480&amp;ptid=1572644" target="_blank">神龙小生 发表于 2018-3-19 20:10</a>
@@ -15531,16 +10059,10 @@ vtuber更多是各个领域做有趣的视频，爱酱的全领域基本都做�
 猫宫被luna倍杀，果然战地的受众面还是比不上吃鸡
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 2317#       发表于 2018-3-19 20:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38902358&amp;ptid=1572644" target="_blank">气流季里 发表于 2018-3-19 19:54</a>
@@ -15549,16 +10071,10 @@ vtuber更多是各个领域做有趣的视频，爱酱的全领域基本都做�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我的意思是不是第一次和声优合作了
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2318#       发表于 2018-3-19 20:20
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">班长b站搬运up至今没找到翻译同好哎……
@@ -15567,25 +10083,13 @@ vtuber更多是各个领域做有趣的视频，爱酱的全领域基本都做�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2319#       发表于 2018-3-19 20:33
 
 
-
-
 推荐现在彩虹社一期男生生放，这游戏超有趣
-
-
-
-
-
 
 
 -----
@@ -15594,24 +10098,16 @@ vtuber更多是各个领域做有趣的视频，爱酱的全领域基本都做�
 ##### 2320#       发表于 2018-3-19 20:35
 
 
-
-
 能2、3线声优就已经是成功了，四天王疑似中之人的三个还都是无名声优，
 
 
 不算太穷的声优想当Vtuber感觉还是自己找绘师(越有人气的越好)预制人设比较好,出了之后请绘师宣传一波初期人气也有了
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 2321#       发表于 2018-3-19 20:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38902680&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-19 20:35</a>
@@ -15623,24 +10119,13 @@ vtuber更多是各个领域做有趣的视频，爱酱的全领域基本都做�
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">虽然在这里说这个好像有点不太好，你的介绍楼太监了吗
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2322#       发表于 2018-3-19 20:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">好像班长视频都不给传字幕了？
-
-
-
-
-
 
 
 -----
@@ -15649,16 +10134,10 @@ vtuber更多是各个领域做有趣的视频，爱酱的全领域基本都做�
 ##### 2323#       发表于 2018-3-19 20:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38902719&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-19 20:38</a>
 
 虽然在这里说这个好像有点不太好，你的介绍楼太监了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说起来还有这么一回事,还是要更的,不过直播势可能不会怎么更了
-
-
-
-
-
 
 
 -----
@@ -15667,24 +10146,16 @@ vtuber更多是各个领域做有趣的视频，爱酱的全领域基本都做�
 ##### 2324#       发表于 2018-3-19 22:30
 
 
-
-
 爱酱和三次元上坂堇合作了，这势头不可挡啊 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
 
 别的非虚拟的youtuber也很少有这种机会和待遇吧
 
 
-
-
-
-
-
 -----
 
 ####  气流季里  
 ##### 2325#       发表于 2018-3-19 22:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38903623&amp;ptid=1572644" target="_blank">cortexiv 发表于 2018-3-19 22:30</a>
@@ -15696,16 +10167,10 @@ vtuber更多是各个领域做有趣的视频，爱酱的全领域基本都做�
 和上坂堇合作不算什么，绊爱已经有纽约支部日本大使的头衔。前几天的AnimeJapan直播里提到了，她会向着两年后的东京奥运会努力。
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 2326#       发表于 2018-3-19 22:38
-
 
 
  本帖最后由 神龙小生 于 2018-3-19 22:41 编辑 
@@ -15717,24 +10182,13 @@ vtuber更多是各个领域做有趣的视频，爱酱的全领域基本都做�
 比起机械的程序，这样半真人的虚拟偶像可操作性更大了。
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2327#       发表于 2018-3-19 23:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩……
-
-
-
-
-
 
 
 -----
@@ -15743,23 +10197,15 @@ vtuber更多是各个领域做有趣的视频，爱酱的全领域基本都做�
 ##### 2328#       发表于 2018-3-19 23:22
 
 
-
-
 玩了一晚上europe企划的各种神作，这种东西果然适合像班长一样的脑洞吐槽役直播才有意思啊
 
 顺便那个班长最爱的MOUSE DANCE REVOLUTION真是难的一逼<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">判定区间非常小
-
-
-
-
-
 
 
 -----
 
 ####  xiangcaihtr  
 ##### 2329#       发表于 2018-3-19 23:23
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">看了下爱酱和上坂堇的……这玩法真的没问题吗？？？？
@@ -15769,16 +10215,10 @@ vtuber更多是各个领域做有趣的视频，爱酱的全领域基本都做�
 而且这也不怎么有趣啊……
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2330#       发表于 2018-3-19 23:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38902663&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-19 20:33</a>
@@ -15787,27 +10227,15 @@ vtuber更多是各个领域做有趣的视频，爱酱的全领域基本都做�
 是人类一败涂地的那个吗
 
 
-
-
-
-
-
 -----
 
 ####  七夜美琴  
 ##### 2331#       发表于 2018-3-19 23:43
 
 
-
-
 推特看的，嫁实要播恶灵附身2！？
 
 —— 来自 Xiaomi Redmi Note 4X, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3
-
-
-
-
-
 
 
 -----
@@ -15816,24 +10244,16 @@ vtuber更多是各个领域做有趣的视频，爱酱的全领域基本都做�
 ##### 2332#       发表于 2018-3-19 23:43
 
 
-
-
 感觉故·石馆那种人最适合下场参一脚了 现在不是缺姐系Vtuber么小明来一个呗 
 
 
 顺便一提当初第一眼看到luna那个熊劲儿马上联想到可铃，某种层面上挺像的
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2333#       发表于 2018-3-19 23:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38904246&amp;ptid=1572644" target="_blank">cxfdtc 发表于 2018-3-19 23:43</a>
@@ -15845,25 +10265,13 @@ vtuber更多是各个领域做有趣的视频，爱酱的全领域基本都做�
 其实蛮适合小明的，小明一直不温不火，没准能在这里找到第二春
 
 
-
-
-
-
-
 -----
 
 ####  rxds  
 ##### 2334#       发表于 2018-3-19 23:53
 
 
-
-
 石馆下场那时候技术还不够成熟吧，那个动作捕捉真是惨不忍睹，现在重新来一次可能性也不大了
-
-
-
-
-
 
 
 -----
@@ -15872,23 +10280,16 @@ vtuber更多是各个领域做有趣的视频，爱酱的全领域基本都做�
 ##### 2335#       发表于 2018-3-19 23:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38904336&amp;ptid=1572644" target="_blank">rxds 发表于 2018-3-19 23:53</a>
 
 石馆下场那时候技术还不够成熟吧，那个动作捕捉真是惨不忍睹，现在重新来一次可能性也不大了 ...</blockquote>
 八百万不是说要下场了吗，没准第一波推出来的有小明
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 2336#       发表于 2018-3-20 00:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38903689&amp;ptid=1572644" target="_blank">神龙小生 发表于 2018-3-19 22:38</a>
@@ -15899,16 +10300,10 @@ vtuber更多是各个领域做有趣的视频，爱酱的全领域基本都做�
 说不定到时奥运会两个吉祥物的名声被爱酱抢去了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  气流季里  
 ##### 2337#       发表于 2018-3-20 00:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38904242&amp;ptid=1572644" target="_blank">七夜美琴 发表于 2018-3-19 23:43</a>
@@ -15921,26 +10316,14 @@ vtuber更多是各个领域做有趣的视频，爱酱的全领域基本都做�
 [https://www.youtube.com/watch?v=T-5rhYzZENU&amp;t=0s](https://www.youtube.com/watch?v=T-5rhYzZENU&amp;t=0s)
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 2338#       发表于 2018-3-20 04:00
 
 
-
-
 http://panora.tokyo/56549/
 vtuber已过千，过去20天增加过五百人<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15949,14 +10332,7 @@ vtuber已过千，过去20天增加过五百人<img src="https://static.saraba1s
 ##### 2339#       发表于 2018-3-20 08:41
 
 
-
-
 现在很多元主播，做了个2的形象就自称vtuber
-
-
-
-
-
 
 
 -----
@@ -15965,24 +10341,16 @@ vtuber已过千，过去20天增加过五百人<img src="https://static.saraba1s
 ##### 2340#       发表于 2018-3-20 10:08
 
 
-
-
 班长晚上和届木联动打壶吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  Porsche  
 ##### 2341#       发表于 2018-3-20 10:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38905131&amp;ptid=1572644" target="_blank">白白白 发表于 2018-3-20 04:00</a>
@@ -15993,31 +10361,19 @@ vtuber已过千，过去20天增加过五百人</blockquote>
 — from Essential Products PH-1, Android 8.1.0 of [S1 Next Goose](https://play.google.com/store/apps/details?id=me.ykrank.s1next) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  LrGsite  
 ##### 2342#       发表于 2018-3-20 11:00
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">想看看顶楼的四天王以外还有那些其他的,看了一下最近几楼已经看不懂这些代称指的都是谁了
-
-
-
-
-
 
 
 -----
 
 ####  文文情报屋  
 ##### 2343#       发表于 2018-3-20 11:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38903689&amp;ptid=1572644" target="_blank">神龙小生 发表于 2018-3-19 22:38</a>
@@ -16030,16 +10386,10 @@ vtuber已过千，过去20天增加过五百人</blockquote>
 而且现在看还真没准可以，看爱酱4月开播的电视节目表现了
 
 
-
-
-
-
-
 -----
 
 ####  气流季里  
 ##### 2344#       发表于 2018-3-20 11:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38907358&amp;ptid=1572644" target="_blank">LrGsite 发表于 2018-3-20 11:00</a>
@@ -16050,16 +10400,10 @@ vtuber已过千，过去20天增加过五百人</blockquote>
 或者对着这份[排行](https://virtual-youtuber.userlocal.jp/document/ranking)一个一个往下看
 
 
-
-
-
-
-
 -----
 
 ####  LrGsite  
 ##### 2345#       发表于 2018-3-20 11:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38907442&amp;ptid=1572644" target="_blank">气流季里 发表于 2018-3-20 11:07</a>
@@ -16070,16 +10414,10 @@ vtuber已过千，过去20天增加过五百人</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">多谢,可以去翻一下了
 
 
-
-
-
-
-
 -----
 
 ####  misaka10032号  
 ##### 2346#       发表于 2018-3-20 11:09
-
 
 
 <blockquote>allenlisa3234 发表于 2018-3-19 20:20
@@ -16090,17 +10428,10 @@ vtuber已过千，过去20天增加过五百人</blockquote>
 需要翻译的话，我可以来帮忙
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 2347#       发表于 2018-3-20 11:31
-
-
 
 
 班长的订阅人数已经超过空妈妈了啊
@@ -16108,16 +10439,10 @@ vtuber已过千，过去20天增加过五百人</blockquote>
 彩虹社的抱团效应太可怕了，二期不少出道自带1W订阅的
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 2348#       发表于 2018-3-20 11:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38907793&amp;ptid=1572644" target="_blank">北条早苗 发表于 2018-3-20 11:31</a>
@@ -16130,16 +10455,10 @@ vtuber已过千，过去20天增加过五百人</blockquote>
 班长超过sora也是时间问题而已，中之人就是那么屌。
 
 
-
-
-
-
-
 -----
 
 ####  zpbzpb123123  
 ##### 2349#       发表于 2018-3-20 12:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38907793&amp;ptid=1572644" target="_blank">北条早苗 发表于 2018-3-20 11:31</a>
@@ -16152,17 +10471,10 @@ vtuber已过千，过去20天增加过五百人</blockquote>
 起点都差不多，这个差别只能说是个人能力问题了。
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 2350#       发表于 2018-3-20 13:28
-
-
 
 
 sm32911721
@@ -16170,16 +10482,10 @@ sm32911721
 雪雪崩清隆本人投稿的vtuber漫画视频，比起看漫画，听四天王的标志bgm也不错。
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2351#       发表于 2018-3-20 14:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38907467&amp;ptid=1572644" target="_blank">misaka10032号 发表于 2018-3-20 11:09</a>
@@ -16190,16 +10496,10 @@ sm32911721
 UP不会日语只会做字幕的样子。。
 
 
-
-
-
-
-
 -----
 
 ####  fqflhc  
 ##### 2352#       发表于 2018-3-20 14:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38903913&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-19 23:07</a>
@@ -16208,26 +10508,15 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 非常不喜欢akari的这一期，昨天和日本的一些铁华团粉也讨论过了，完全丢掉了akari自己的风格。
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 2353#       发表于 2018-3-20 14:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38909735&amp;ptid=1572644" target="_blank">fqflhc 发表于 2018-3-20 14:07</a>
 非常不喜欢akari的这一期，昨天和日本的一些铁华团粉也讨论过了，完全丢掉了akari自己的风格。 ...</blockquote>
 不常看akari的视频，平常风格是怎样的？
-
-
-
-
-
 
 
 -----
@@ -16236,24 +10525,16 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 ##### 2354#       发表于 2018-3-20 14:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38909876&amp;ptid=1572644" target="_blank">白白白 发表于 2018-3-20 14:23</a>
 
 不常看akari的视频，平常风格是怎样的？</blockquote>
 节奏很快，有时候还会自来疯，不过这些都不是问题，akari已经不是刚出道了，不应该还像新人一人做一些无意义的事，像调查有没有人认识她，这些以前玩过现在再玩就没趣了，还有我们粉丝拼命帮她洗掉乌鸦那个梗，她倒好，自己三番两次提起，以后再提起的话也懒得去管了
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2355#       发表于 2018-3-20 14:40
-
-
 
 
 說起來組長似乎不怎麼喜歡追隨潮流
@@ -16263,16 +10544,10 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 專心在遊戲上面w
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 2356#       发表于 2018-3-20 14:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38909943&amp;ptid=1572644" target="_blank">fqflhc 发表于 2018-3-20 14:30</a>
@@ -16283,16 +10558,10 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 乌鸦这梗连老爱都用了，而且这期视频目前还是评分最高的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2357#       发表于 2018-3-20 14:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38909943&amp;ptid=1572644" target="_blank">fqflhc 发表于 2018-03-20 14:30:10</a>
@@ -16304,16 +10573,10 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2358#       发表于 2018-3-20 14:51
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">如果说akari有什么黑点，就是她复仇时机选得太晚了，
@@ -16324,17 +10587,10 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 2359#       发表于 2018-3-20 14:55
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/20/145348wf2nxqclpwnnchql.jpg" referrerpolicy="no-referrer">
@@ -16347,16 +10603,7 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 2018-3-20 14:53 上传
 
 
-
-
-
-
 不懂这梗有什么问题以至于要洗
-
-
-
-
-
 
 
 -----
@@ -16365,22 +10612,13 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 ##### 2360#       发表于 2018-3-20 14:58
 
 
-
-
 怎么说好呢，四天王除了狐娘哪个不是人设崩坏型的，狐娘那是没得崩坏，班长也是人设崩坏，问题这样才有人喜欢啊。
-
-
-
-
-
 
 
 -----
 
 ####  xiangcaihtr  
 ##### 2361#       发表于 2018-3-20 15:07
-
-
 
 
 昨天看渋谷ハジメ和アキ玩游戏突然在想
@@ -16390,17 +10628,10 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2362#       发表于 2018-3-20 15:07
-
-
 
 
 为什么要洗乌鸦？……
@@ -16409,16 +10640,10 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  zpbzpb123123  
 ##### 2363#       发表于 2018-3-20 15:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38910356&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-20 15:07</a>
@@ -16430,16 +10655,10 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 初期成员根据生放送时长彩虹会有补贴，再加上播放量还原的钱，估计就用这些当买游戏的经费吧。
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2364#       发表于 2018-3-20 15:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38910516&amp;ptid=1572644" target="_blank">zpbzpb123123 发表于 2018-03-20 15:22:36</a>
@@ -16450,26 +10669,15 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Porsche  
 ##### 2365#       发表于 2018-3-20 15:43
 
 
-
  本帖最后由 Porsche 于 2018-3-20 15:45 编辑 
 
 风怒
-
-
-
-
-
 
 
 -----
@@ -16478,14 +10686,7 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 ##### 2366#       发表于 2018-3-20 15:43
 
 
-
-
 喷了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">，已经开始有人凌驾正主意志去洗一些他们自己看不惯的东西了，一股偶像宅的臭味。还你们粉丝，当粉丝需要找你们批准吗
-
-
-
-
-
 
 
 -----
@@ -16494,21 +10695,13 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 ##### 2367#       发表于 2018-3-20 15:45
 
 
-
-
 补了空妈妈的视频，意外的可爱
-
-
-
-
-
 
 
 -----
 
 ####  lhawp  
 ##### 2368#       发表于 2018-3-20 15:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38910543&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-20 15:24</a>
@@ -16519,16 +10712,10 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 如果真的只是自己想玩，那只能说这サブカル力已经溢出天际了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zpbzpb123123  
 ##### 2369#       发表于 2018-3-20 16:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38910889&amp;ptid=1572644" target="_blank">lhawp 发表于 2018-3-20 15:58</a>
@@ -16538,25 +10725,13 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 你要播什么东西，随便。你要改角色设定，随便。你要跟人合作企划，随便，企划内容确认一下就行。包括是否需要众筹，是在什么平台直播，推特的运营，全部都是中之人自己决定的。
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 2370#       发表于 2018-3-20 16:36
 
 
-
-
 哈哈，昨晚panora报道马叔5w突破，是“男性的vtuber”被订阅最多的，然后又修正成“看起来是男性的vtuber”被订阅最多的，因为有猫松╮(╯▽╰)╭。
-
-
-
-
-
 
 
 -----
@@ -16565,16 +10740,10 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 ##### 2371#       发表于 2018-3-20 16:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38911321&amp;ptid=1572644" target="_blank">神龙小生 发表于 2018-3-20 16:36</a>
 
 哈哈，昨晚panora报道马叔5w突破，是“男性的vtuber”被订阅最多的，然后又修正成“看起来是男性的vtuber” ...</blockquote>
 再往上还有狐娘大叔呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16583,15 +10752,9 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 ##### 2372#       发表于 2018-3-20 16:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38911321&amp;ptid=1572644" target="_blank">神龙小生 发表于 2018-3-20 16:36</a>
 哈哈，昨晚panora报道马叔5w突破，是“男性的vtuber”被订阅最多的，然后又修正成“看起来是男性的vtuber” ...</blockquote>
 关于这个问题，我一直也很好奇。现在反串性别的vtuber可以说非常多了，男串女就不说了，女串男也有ウカ和アキ这种。怎么想也都应该按照设定性别走吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16600,16 +10763,10 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 ##### 2373#       发表于 2018-3-20 16:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38911395&amp;ptid=1572644" target="_blank">zpbzpb123123 发表于 2018-3-20 16:42</a>
 
 关于这个问题，我一直也很好奇。现在反串性别的vtuber可以说非常多了，男串女就不说了，女串男也有ウカ和 ...</blockquote>
 那爱酱这种自称没有性别的怎么算呢？
-
-
-
-
-
 
 
 -----
@@ -16618,15 +10775,9 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 ##### 2374#       发表于 2018-3-20 16:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38911370&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-20 16:41</a>
 再往上还有狐娘大叔呢</blockquote>
 说的那个就是狐娘大叔啦<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16635,15 +10786,9 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 ##### 2375#       发表于 2018-3-20 16:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38911321&amp;ptid=1572644" target="_blank">神龙小生 发表于 2018-3-20 16:36</a>
 哈哈，昨晚panora报道马叔5w突破，是“男性的vtuber”被订阅最多的，然后又修正成“看起来是男性的vtuber” ...</blockquote>
 猫松桑完全是女孩子啊<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16652,15 +10797,9 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 ##### 2376#       发表于 2018-3-20 16:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38911425&amp;ptid=1572644" target="_blank">文文情报屋 发表于 2018-3-20 16:44</a>
 那爱酱这种自称没有性别的怎么算呢？</blockquote>
 爱酱这个设定我不是很了解，如果真的设定为没有性别那就该是没有性别啊<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16669,15 +10808,9 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 ##### 2377#       发表于 2018-3-20 16:51
 
 
-
 <blockquote>zpbzpb123123 发表于 2018-3-20 16:47
 爱酱这个设定我不是很了解，如果真的设定为没有性别那就该是没有性别啊 ...</blockquote>
 “看起来是女性”，所以这次马叔被修正成“看起来是男性”之中最多的。
-
-
-
-
-
 
 
 -----
@@ -16686,13 +10819,7 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 ##### 2378#       发表于 2018-3-20 16:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">Luna酱还是100岁以上的老奶奶订阅数最多的呢。
-
-
-
-
-
 
 
 -----
@@ -16701,15 +10828,9 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 ##### 2379#       发表于 2018-3-20 17:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38911498&amp;ptid=1572644" target="_blank">神龙小生 发表于 2018-3-20 16:51</a>
 “看起来是女性”，所以这次马叔被修正成“看起来是男性”之中最多的。 ...</blockquote>
 这个说法就挺准确的，虽然一个马头被说成看起来像男性还是有点想吐槽一哈，估计再细分什么动物系魔物系就太麻烦了吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16718,16 +10839,10 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 ##### 2380#       发表于 2018-3-20 17:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38911668&amp;ptid=1572644" target="_blank">zpbzpb123123 发表于 2018-3-20 17:01</a>
 
 这个说法就挺准确的，虽然一个马头被说成看起来像男性还是有点想吐槽一哈，估计再细分什么动物系魔物系就 ...</blockquote>
 马头多次强调那是面具
-
-
-
-
-
 
 
 -----
@@ -16736,15 +10851,9 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 ##### 2381#       发表于 2018-3-20 17:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38911691&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-20 17:03</a>
 马头多次强调那是面具</blockquote>
 最近除了sora的榜单之外没有单独看马头了，这茬给忘了，我的我的<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16753,14 +10862,7 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 ##### 2382#       发表于 2018-3-20 17:06
 
 
-
-
 的确因为虚拟的关系，各种反串下硬要细分就好混乱了，还是按设定或按“看起来像”分吧（哈哈）
-
-
-
-
-
 
 
 -----
@@ -16769,20 +10871,15 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 ##### 2383#         楼主| 发表于 2018-3-20 18:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38907358&amp;ptid=1572644" target="_blank">LrGsite 发表于 2018-3-20 11:00</a>
 
 想看看顶楼的四天王以外还有那些其他的,看了一下最近几楼已经看不懂这些代称指的都是谁了 ...</blockquote>
 更新了一下主楼。可以看一下哈。稍稍介绍了一下最近有了解的新秀。顺便夹杂了一些自己的评论。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -16792,19 +10889,13 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 | 横寺阳人| + 2|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  lhawp  
 ##### 2384#       发表于 2018-3-20 18:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38912335&amp;ptid=1572644" target="_blank">杜庶仁 发表于 2018-3-20 18:08</a>
@@ -16815,32 +10906,19 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 班长的魅力我觉得[2255L](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1572644&amp;pid=38895901)的总结也很到位，可以考虑补充一下
 
 
-
-
-
-
-
 -----
 
 ####  杜庶仁  
 ##### 2385#         楼主| 发表于 2018-3-20 19:19
 
 
-
-
 感慨真是群雄乱世啊。yua、乃时空感觉就像 袁术和刘表一样。
-
-
-
-
-
 
 
 -----
 
 ####  杜庶仁  
 ##### 2386#         楼主| 发表于 2018-3-20 19:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38912590&amp;ptid=1572644" target="_blank">lhawp 发表于 2018-3-20 18:35</a>
@@ -16854,25 +10932,13 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 就让这样优秀的发言就作为大家爬楼时的乐趣和惊喜吧。
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2387#       发表于 2018-3-20 20:06
 
 
-
-
 班长贼紧张XDDD
-
-
-
-
-
 
 
 -----
@@ -16881,21 +10947,13 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 ##### 2388#       发表于 2018-3-20 20:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">クソ雑魚委員長
-
-
-
-
-
 
 
 -----
 
 ####  walfeds  
 ##### 2389#       发表于 2018-3-20 20:10
-
-
 
 
 回头再看早期的JK组（虽然最近指代对象变成彩虹社jk组了）：
@@ -16910,25 +10968,13 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 另一个可惜的就是のらきゃっと，不是出了意外的话本来是有机会更上一个台阶的。。。不过总归是定时炸弹
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2390#       发表于 2018-3-20 20:29
 
 
-
-
 ウカ是不是招惹啥了，总觉得有人恶意差评
-
-
-
-
-
 
 
 -----
@@ -16937,14 +10983,7 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 ##### 2391#       发表于 2018-3-20 20:39
 
 
-
-
 为什么班长会把SD的台词记得那么熟啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16953,13 +10992,7 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 ##### 2392#       发表于 2018-3-20 20:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这两人的对决太假了啦，完全没有akari对嫁实的紧张感
-
-
-
-
-
 
 
 -----
@@ -16968,13 +11001,7 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 ##### 2393#       发表于 2018-3-20 20:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">在约会调情你们还不懂么
-
-
-
-
-
 
 
 -----
@@ -16983,17 +11010,10 @@ akari居然在这几天玩了斉藤さん吗……我偏偏这几天腻了没玩
 ##### 2394#       发表于 2018-3-20 20:57
 
 
-
-
 Uka sama真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">一本满足 最后送蜈蚣素材23333
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
-
-
-
-
-
 
 
 -----
@@ -17002,14 +11022,7 @@ Uka sama真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/16
 ##### 2395#       发表于 2018-3-20 20:58
 
 
-
-
 通宵制作的蜈蚣bb
-
-
-
-
-
 
 
 -----
@@ -17018,21 +11031,13 @@ Uka sama真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/16
 ##### 2396#       发表于 2018-3-20 21:18
 
 
-
-
 整段背诵日在校园还行，最后蜈蚣BB素材还行
-
-
-
-
-
 
 
 -----
 
 ####  xiangcaihtr  
 ##### 2397#       发表于 2018-3-20 21:26
-
 
 
  本帖最后由 xiangcaihtr 于 2018-3-20 21:27 编辑 
@@ -17044,16 +11049,10 @@ Uka sama真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/16
 这种diss像上面一样用灰色小字说一下不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  wornixxoo  
 ##### 2398#       发表于 2018-3-20 21:40
-
 
 
  本帖最后由 wornixxoo 于 2018-3-20 21:47 编辑 
@@ -17063,16 +11062,10 @@ Uka sama真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/16
 懂了，可以在搜索结果里筛选，订阅栏好像不行
 
 
-
-
-
-
-
 -----
 
 ####  杜庶仁  
 ##### 2399#         楼主| 发表于 2018-3-20 22:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38914150&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-20 21:26</a>
@@ -17091,16 +11084,10 @@ Uka sama真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/16
 当然，如果听习惯了的话，可能就会变得“必须是这样的声音”“不是这样的声音就奇怪了”的感觉。就像最初我也很不习惯akari的声音，现在倒觉得还行了。
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 2400#       发表于 2018-3-20 22:19
-
 
 
  本帖最后由 横寺阳人 于 2018-3-20 22:22 编辑 
@@ -17112,16 +11099,10 @@ Uka sama真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/16
 比起她解说游戏过于平淡，还有过于专业对不是是很了解它解说那款游戏的观众非常不友好这点，她声线这个问题不突出，至少这楼里面没人在意……
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2401#       发表于 2018-3-20 22:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38914514&amp;ptid=1572644" target="_blank">杜庶仁 发表于 2018-3-20 22:10</a>
@@ -17132,17 +11113,10 @@ Uka sama真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/16
 真的不太客观（）我还是第一次看到说她声线不好的……
 
 
-
-
-
-
-
 -----
 
 ####  zpbzpb123123  
 ##### 2402#       发表于 2018-3-20 22:47
-
-
 
 
 梦咲枫最大的问题还是内容不是太有趣吧，PM我不是很懂，但是感觉也就是正儿八经的解说。SV我玩得多，中速死卡组构筑没什么新意，打的对面也是毒瘤随从法，赢还是赢的一手对面卡手抽不到多罗西，这节目效果还不如淫梦バース。。
@@ -17150,16 +11124,10 @@ Uka sama真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/16
 最开始最期待的社员互动环节变得可有可无，不知道今后会不会好一点 。。别浪费这么优秀的3D技术和建模
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 2403#       发表于 2018-3-20 22:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38914930&amp;ptid=1572644" target="_blank">zpbzpb123123 发表于 2018-3-20 22:47</a>
@@ -17170,16 +11138,10 @@ Uka sama真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/16
 sv作为第一个个视频连卡组介绍都没有，不深入玩游戏的观众在每一张卡都不知道什么效果的情况下巴拉巴拉讲一大堆，我这种玩过炉石的都看的一脸懵逼，姐至少你介绍一下一些关键卡的功能吧，这是第一个视频，你后面慢慢在省略都行……
 
 
-
-
-
-
-
 -----
 
 ####  杜庶仁  
 ##### 2404#         楼主| 发表于 2018-3-20 23:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38914659&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-20 22:24</a>
@@ -17188,16 +11150,10 @@ sv作为第一个个视频连卡组介绍都没有，不深入玩游戏的观众
 少许调整了一下措辞，应该会感觉好一些了。
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2405#       发表于 2018-3-20 23:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38914984&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-20 22:51</a>
@@ -17208,17 +11164,10 @@ sv作为第一个个视频连卡组介绍都 ...</blockquote>
 说起来昨天微博有人安利她说她操作不错，然后我首页有人说她游戏是代打的，她只是配音……不知道是不是真的。
 
 
-
-
-
-
-
 -----
 
 ####  Slum.  
 ##### 2406#       发表于 2018-3-20 23:07
-
-
 
 
 去nico逛了一圈委员长的视频...
@@ -17230,16 +11179,10 @@ sv作为第一个个视频连卡组介绍都 ...</blockquote>
 真是tmd太棒了好嘛...
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 2407#       发表于 2018-3-20 23:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38915171&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-20 23:06</a>
@@ -17248,17 +11191,10 @@ sv作为第一个个视频连卡组介绍都 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那个啥，全部不需要反应能力还实锤代打，这是实锤出毛病了……那T4轮巴拉巴拉一堆再操作还能后期配音……
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 2408#       发表于 2018-3-20 23:11
-
-
 
 
 老爱和政委合作看了，感觉还行。二人的丰富经验让场面不至于尴尬
@@ -17266,16 +11202,10 @@ sv作为第一个个视频连卡组介绍都 ...</blockquote>
 —— 来自 HUAWEI BND-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  杜庶仁  
 ##### 2409#         楼主| 发表于 2018-3-20 23:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38914984&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-20 22:51</a>
@@ -17289,16 +11219,10 @@ sv作为第一个个视频连卡组介绍都 ...</blockquote>
 不过目前视频数量也少，估计可调整的余地还是比较大的。坚持现在的路走下去的话，的确是很难让人看好。
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 2410#       发表于 2018-3-20 23:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38915221&amp;ptid=1572644" target="_blank">杜庶仁 发表于 2018-3-20 23:11</a>
@@ -17309,16 +11233,10 @@ sv作为第一个个视频连卡组介绍都 ...</blockquote>
 当然最好是改变自己的解说方式更加亲民有趣点，毕竟现在是拓荒期大家都是在拉观众啊。
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 2411#       发表于 2018-3-20 23:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38915171&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-20 23:06</a>
@@ -17326,17 +11244,10 @@ sv作为第一个个视频连卡组介绍都 ...</blockquote>
 操作确实不错，但远不到职业水平，她在推特上也承认了有一两步是打错的。还有说这是代打的，这又不是FPS，打牌打的好的女玩家一大推，世界杯上也有女玩家入围的，还要找代打这么麻烦的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 2412#       发表于 2018-3-20 23:36
-
-
 
 
 游戏部这件事。。。从现在看来比较尴尬
@@ -17351,16 +11262,10 @@ sv作为第一个个视频连卡组介绍都 ...</blockquote>
 不过人家也可能只是想套张二次元皮而已，非核心观众属于服务对象外<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2413#       发表于 2018-3-20 23:46
-
 
 
  本帖最后由 xiangcaihtr 于 2018-3-20 23:47 编辑 
@@ -17372,16 +11277,10 @@ sv作为第一个个视频连卡组介绍都 ...</blockquote>
 不过JK（自称）直播到凌晨真的没关系吗
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 2414#       发表于 2018-3-20 23:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38915494&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-20 23:36</a>
@@ -17391,16 +11290,10 @@ sv作为第一个个视频连卡组介绍都 ...</blockquote>
 我猜这企划有cygame和任天堂的投资，要玩的游戏全是这两家的
 
 
-
-
-
-
-
 -----
 
 ####  zaku11ku  
 ##### 2415#       发表于 2018-3-21 00:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38915565&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-20 23:46</a>
@@ -17411,16 +11304,10 @@ sv作为第一个个视频连卡组介绍都 ...</blockquote>
 真JK，日本春休中
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 2416#       发表于 2018-3-21 00:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38915567&amp;ptid=1572644" target="_blank">白白白 发表于 2018-3-20 23:46</a>
@@ -17434,16 +11321,10 @@ sv作为第一个个视频连卡组介绍都 ...</blockquote>
 嘛，可信度未知
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2417#       发表于 2018-3-21 00:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38915754&amp;ptid=1572644" target="_blank">zaku11ku 发表于 2018-3-21 00:04</a>
@@ -17454,16 +11335,10 @@ sv作为第一个个视频连卡组介绍都 ...</blockquote>
 不过不是上不上学的问题，青少年熬夜伤身体吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这都1点了
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 2418#       发表于 2018-3-21 00:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38915865&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-21 00:13</a>
@@ -17473,16 +11348,10 @@ sv作为第一个个视频连卡组介绍都 ...</blockquote>
 正因为是青少年才有资本熬夜，青壮年的话早歇菜了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 2419#       发表于 2018-3-21 00:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38915941&amp;ptid=1572644" target="_blank">白白白 发表于 2018-3-21 00:19</a>
@@ -17491,16 +11360,10 @@ sv作为第一个个视频连卡组介绍都 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">别说了，每天睡四五个小时肝疼
 
 
-
-
-
-
-
 -----
 
 ####  zaku11ku  
 ##### 2420#       发表于 2018-3-21 00:23
-
 
 
  本帖最后由 zaku11ku 于 2018-3-21 00:30 编辑 
@@ -17510,16 +11373,10 @@ sv作为第一个个视频连卡组介绍都 ...</blockquote>
 ハジメ推说22号跟班长联动，昨天跟アキくん的汉(jk)组联动超甜
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2421#       发表于 2018-3-21 00:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38915984&amp;ptid=1572644" target="_blank">zaku11ku 发表于 2018-3-21 00:23</a>
@@ -17532,16 +11389,10 @@ sv作为第一个个视频连卡组介绍都 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">彩虹这么多人修仙的吗
 
 
-
-
-
-
-
 -----
 
 ####  zpbzpb123123  
 ##### 2422#       发表于 2018-3-21 01:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38916063&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-21 00:33</a>
@@ -17552,16 +11403,10 @@ sv作为第一个个视频连卡组介绍都 ...</blockquote>
 之前推特就有人吐槽说到最后人越来越多会不会整出来个にじさんじ24時<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2423#       发表于 2018-3-21 01:20
-
 
 
 [https://vrlive.party/audition_help/](https://vrlive.party/audition_help/)
@@ -17573,25 +11418,13 @@ sv作为第一个个视频连卡组介绍都 ...</blockquote>
 只能說良心阿
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 2424#       发表于 2018-3-21 01:59
 
 
-
-
 班长的核心粉丝就是早期Nico文化的那堆啊，能自己创造和吸引粉丝创造梗是最可怕的
-
-
-
-
-
 
 
 -----
@@ -17600,22 +11433,14 @@ sv作为第一个个视频连卡组介绍都 ...</blockquote>
 ##### 2425#       发表于 2018-3-21 02:40
 
 
-
-
 修仙福利，猫宫突然更新，这更新时间也是绝了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 上次我还说战地1没有吃鸡好看，这次居然是比战地1更不好看的军团1944，运营你会不会挑游戏的啊？<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  walfeds  
 ##### 2426#       发表于 2018-3-21 02:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38916377&amp;ptid=1572644" target="_blank">lime2001 发表于 2018-3-21 01:20</a>
@@ -17628,26 +11453,15 @@ https://vrlive.party/audition_help/
 感觉抓住了彩虹社的各种痛点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抢生意了
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 2427#       发表于 2018-3-21 03:37
 
 
-
 <blockquote>白白白 发表于 2018-3-20 23:46
 我猜这企划有cygame和任天堂的投资，要玩的游戏全是这两家的</blockquote>
 这样也说得通，游戏部的3d质量可不是一般公司技术有的。给两大东家做宣传也是挺头铁
-
-
-
-
-
 
 
 -----
@@ -17656,14 +11470,7 @@ https://vrlive.party/audition_help/
 ##### 2428#       发表于 2018-3-21 05:35
 
 
-
-
 没想到你个浓眉大眼的猫宫也玩inm营业<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17672,22 +11479,15 @@ https://vrlive.party/audition_help/
 ##### 2429#       发表于 2018-3-21 07:58
 
 
-
  本帖最后由 神龙小生 于 2018-3-21 08:04 编辑 
 
 爱酱昨晚的更新iq测试，看标题【验证】格式一时以为是时乃空更新了，毕竟有点常见。虽然空的确也更新了。
-
-
-
-
-
 
 
 -----
 
 ####  横寺阳人  
 ##### 2430#       发表于 2018-3-21 09:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38916597&amp;ptid=1572644" target="_blank">白白白 发表于 2018-3-21 02:40</a>
@@ -17698,23 +11498,16 @@ https://vrlive.party/audition_help/
 这次更新那么快是不是意味着快有一个正式编号的视频，这模型一直只是打游戏怪可惜的。
 
 
-
-
-
-
-
 -----
 
 ####  喜闻乐见  
 ##### 2431#       发表于 2018-3-21 11:19
 
 
-
  本帖最后由 喜闻乐见 于 2018-3-21 11:23 编辑 
 
 今天也送到了  粗略先翻了一遍   感觉确实就应该是3d而不是原画、插图之类，毕竟
  <blockquote>[ღあなたと繋がりたいღ]</blockquote>
-
 
 
 节选几张
@@ -17725,20 +11518,10 @@ https://vrlive.party/audition_help/
 <img src="http://ww1.sinaimg.cn/large/732205bcgy1fpk9wkl9wdj21hc140jwo.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  Caliburnus  
 ##### 2432#       发表于 2018-3-21 12:11
-
-
 
 
 想看hinata玩红管这样的游戏能杀几个
@@ -17746,16 +11529,10 @@ https://vrlive.party/audition_help/
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 2433#       发表于 2018-3-21 12:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38916812&amp;ptid=1572644" target="_blank">dorasir 发表于 2018-3-21 05:35</a>
@@ -17766,17 +11543,10 @@ https://vrlive.party/audition_help/
 114514
 
 
-
-
-
-
-
 -----
 
 ####  lelouch1021  
 ##### 2434#       发表于 2018-3-21 13:07
-
-
 
 
 突然发现班长超过1个小时的视频都不能加字幕啊
@@ -17784,16 +11554,10 @@ https://vrlive.party/audition_help/
 这是油管的规定 还是啥？
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 2435#       发表于 2018-3-21 14:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38920431&amp;ptid=1572644" target="_blank">lelouch1021 发表于 2018-3-21 13:07</a>
@@ -17812,23 +11576,13 @@ https://vrlive.party/audition_help/
 2018-3-21 14:12 上传
 
 
-
-
-
-
 应该是可以的吧？。。。
-
-
-
-
-
 
 
 -----
 
 ####  lelouch1021  
 ##### 2436#       发表于 2018-3-21 15:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38921141&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-21 14:12</a>
@@ -17843,16 +11597,10 @@ https://vrlive.party/audition_help/
 长视频为啥没字幕能理解了【x
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 2437#       发表于 2018-3-21 15:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38921854&amp;ptid=1572644" target="_blank">lelouch1021 发表于 2018-3-21 15:29</a>
@@ -17874,38 +11622,19 @@ https://vrlive.party/audition_help/
 2018-3-21 15:35 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  zaku11ku  
 ##### 2438#       发表于 2018-3-21 17:06
 
 
-
-
 明天ハジメ和班长MHW联动 
-
-
-
-
-
 
 
 -----
 
 ####  触手姬  
 ##### 2439#       发表于 2018-3-21 17:19
-
 
 
  本帖最后由 触手姬 于 2018-3-21 17:23 编辑 
@@ -17915,16 +11644,10 @@ https://vrlive.party/audition_help/
 前天汉组的联动真棒，比JK组女子力还高...
 
 
-
-
-
-
-
 -----
 
 ####  fqflhc  
 ##### 2440#       发表于 2018-3-21 17:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38910092&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-20 14:43</a>
@@ -17933,25 +11656,13 @@ https://vrlive.party/audition_help/
 我错了，我没看后半部分，后半部分简直效果爆炸。心疼撞车的小哥<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2441#       发表于 2018-3-21 17:52
 
 
-
-
 看了两天ハジメ，觉得他玩的游戏还是太硬核……而且性子慢悠悠的，昨天玩怪物猎人捏个人都能捏半个小时
-
-
-
-
-
 
 
 -----
@@ -17960,24 +11671,16 @@ https://vrlive.party/audition_help/
 ##### 2442#       发表于 2018-3-21 18:15
 
 
-
-
 话说elf和勇气萝莉怎么都不在有土鳖直播了啊……那个直播平台是彩虹的么？
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2443#       发表于 2018-3-21 18:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38923510&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-21 18:15</a>
@@ -17989,25 +11692,13 @@ https://vrlive.party/audition_help/
 直播环境还没弄好，勇气要四月搬家后，那个平台手机就能直播
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 2444#       发表于 2018-3-21 19:02
 
 
-
-
 爱酱前几天才投了个音游seiya，今天akari就跟进投了个seiya。
-
-
-
-
-
 
 
 -----
@@ -18016,23 +11707,16 @@ https://vrlive.party/audition_help/
 ##### 2445#       发表于 2018-3-21 19:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38923972&amp;ptid=1572644" target="_blank">神龙小生 发表于 2018-3-21 19:02</a>
 
 爱酱前几天才投了个音游seiya，今天akari就跟进投了个seiya。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">但是爱酱好像是特供版。。。？hit数有着微妙的不同，还有专属视效音效。。。
 
 
-
-
-
-
-
 -----
 
 ####  文文情报屋  
 ##### 2446#       发表于 2018-3-21 19:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38923972&amp;ptid=1572644" target="_blank">神龙小生 发表于 2018-3-21 19:02</a>
@@ -18043,25 +11727,13 @@ https://vrlive.party/audition_help/
 不过akari的动作捕捉技术力真是没得说，对比只露出一张脸的爱酱来说
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 2447#       发表于 2018-3-21 19:53
 
 
-
-
 seiya这游戏的开发商应该是比较有业界关系，老爱还多次强调不是企业案件
-
-
-
-
-
 
 
 -----
@@ -18070,14 +11742,7 @@ seiya这游戏的开发商应该是比较有业界关系，老爱还多次强调
 ##### 2448#       发表于 2018-3-21 20:06
 
 
-
-
 一年前的老爱玩shadowverse好青涩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18086,17 +11751,10 @@ seiya这游戏的开发商应该是比较有业界关系，老爱还多次强调
 ##### 2449#       发表于 2018-3-21 20:14
 
 
-
-
 老爱做过SV？没印象了
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
-
-
-
-
-
 
 
 -----
@@ -18105,14 +11763,7 @@ seiya这游戏的开发商应该是比较有业界关系，老爱还多次强调
 ##### 2450#       发表于 2018-3-21 22:14
 
 
-
-
 海豚40w了
-
-
-
-
-
 
 
 -----
@@ -18121,14 +11772,7 @@ seiya这游戏的开发商应该是比较有业界关系，老爱还多次强调
 ##### 2451#       发表于 2018-3-21 22:17
 
 
-
-
 组长四十万了！
-
-
-
-
-
 
 
 -----
@@ -18137,14 +11781,7 @@ seiya这游戏的开发商应该是比较有业界关系，老爱还多次强调
 ##### 2452#       发表于 2018-3-21 22:20
 
 
-
-
 嘛40大寿了，四天王基本短期内也就这么多了，包括10w上下。二军继续混乱。
-
-
-
-
-
 
 
 -----
@@ -18153,22 +11790,15 @@ seiya这游戏的开发商应该是比较有业界关系，老爱还多次强调
 ##### 2453#       发表于 2018-3-21 22:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38925591&amp;ptid=1572644" target="_blank">神龙小生 发表于 2018-3-21 22:20</a>
 嘛40大寿了，四天王基本短期内也就这么多了，包括10w上下。二军继续混乱。 ...</blockquote>
 过段时间有 appland量产机vs彩虹社三期 看<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  触手姬  
 ##### 2454#       发表于 2018-3-21 22:34
-
 
 
  本帖最后由 触手姬 于 2018-3-21 22:53 编辑 
@@ -18186,29 +11816,13 @@ seiya这游戏的开发商应该是比较有业界关系，老爱还多次强调
 2018-3-21 22:52 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  YooZi  
 ##### 2455#       发表于 2018-3-21 23:00
 
 
-
-
 JK组涨势喜人  班长给届木带了2000+的粉
-
-
-
-
-
 
 
 -----
@@ -18217,14 +11831,7 @@ JK组涨势喜人  班长给届木带了2000+的粉
 ##### 2456#       发表于 2018-3-21 23:49
 
 
-
-
 4月的彩虹三期延后到5月，推特投票有75%的人觉得4月推三期太早了
-
-
-
-
-
 
 
 -----
@@ -18233,16 +11840,10 @@ JK组涨势喜人  班长给届木带了2000+的粉
 ##### 2457#       发表于 2018-3-22 00:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38926304&amp;ptid=1572644" target="_blank">白白白 发表于 2018-3-21 23:49</a>
 
 4月的彩虹三期延后到5月，推特投票有75%的人觉得4月推三期太早了</blockquote>
 竟然还有投票，竟然还问群众
-
-
-
-
-
 
 
 -----
@@ -18251,23 +11852,15 @@ JK组涨势喜人  班长给届木带了2000+的粉
 ##### 2458#       发表于 2018-3-22 00:09
 
 
-
-
 真業界毒瘤彩虹社
 
 反正就是瘋狂量產就對了
-
-
-
-
-
 
 
 -----
 
 ####  AWAI  
 ##### 2459#       发表于 2018-3-22 00:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38915291&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-20 23:16</a>
@@ -18282,17 +11875,10 @@ JK组涨势喜人  班长给届木带了2000+的粉
 而梦咲枫的这个，就只是拿着成熟的套路进行成熟的操作击败了一个常见的普通敌人，游戏素材本身就不好看，特效，演出，主播的骚话都没有，不知道好看在哪里（我宁可看游戏部员们一边打游戏一边唠嗑）。
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2460#       发表于 2018-3-22 00:33
-
-
 
 
 看看爱酱最新一期吧……我觉得路人看明显比游戏部有趣
@@ -18301,16 +11887,10 @@ JK组涨势喜人  班长给届木带了2000+的粉
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2461#       发表于 2018-3-22 00:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38924528&amp;ptid=1572644" target="_blank">swordofsoul1 发表于 2018-3-21 20:06</a>
@@ -18319,25 +11899,13 @@ JK组涨势喜人  班长给届木带了2000+的粉
 一年前好温柔，感觉过了一年脾气变大了tension也变高了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">大腕感
 
 
-
-
-
-
-
 -----
 
 ####  zpbzpb123123  
 ##### 2462#       发表于 2018-3-22 02:08
 
 
-
-
 委员长已经三首原创歌曲了，还有不少做音游二创或者弹琴打鼓的，太可怕了。
-
-
-
-
-
 
 
 -----
@@ -18346,14 +11914,7 @@ JK组涨势喜人  班长给届木带了2000+的粉
 ##### 2463#       发表于 2018-3-22 02:16
 
 
-
-
 彩虹社真的太搞笑了，COO（最高执行责任者）在推上吹自己给手下的自由度比其他企业势高得多，一副洋洋得意的脸孔，当撒手掌柜当得这么理直气壮还是第一次见<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18362,22 +11923,13 @@ JK组涨势喜人  班长给届木带了2000+的粉
 ##### 2464#         楼主| 发表于 2018-3-22 02:19
 
 
-
-
 班长真是不错啊……第一个让我觉得“如果这个人能是我的老婆的话，该有多好啊”的虚拟youtuber。
-
-
-
-
-
 
 
 -----
 
 ####  白白白  
 ##### 2465#       发表于 2018-3-22 02:45
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/22/024412qqkw0z2zsaqfeuzi.png" referrerpolicy="no-referrer">
@@ -18390,16 +11942,7 @@ JK组涨势喜人  班长给届木带了2000+的粉
 2018-3-22 02:44 上传
 
 
-
-
-
-
 大哥你认真的啊？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 
-
-
-
-
-
 
 
 -----
@@ -18408,15 +11951,9 @@ JK组涨势喜人  班长给届木带了2000+的粉
 ##### 2466#       发表于 2018-3-22 03:01
 
 
-
 <blockquote>AWAI 发表于 2018-3-22 00:11
 这个实在太复杂了，PM还有SV这两个游戏对战主要考的还是对于环境的理解。NGA上发一个卡组使用指南能写好 ...</blockquote>
 觉得向以后的问答提提意见，他们也不想观众流逝的话听听观众的意见改动方向比较好。毕竟投资这么大3d技术打水漂的话亏死了。
-
-
-
-
-
 
 
 -----
@@ -18425,14 +11962,7 @@ JK组涨势喜人  班长给届木带了2000+的粉
 ##### 2467#       发表于 2018-3-22 03:10
 
 
-
-
 真的是越看越喜欢班长  像是DDLC莫妮卡那种心之友的感觉了
-
-
-
-
-
 
 
 -----
@@ -18441,23 +11971,16 @@ JK组涨势喜人  班长给届木带了2000+的粉
 ##### 2468#       发表于 2018-3-22 03:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38926433&amp;ptid=1572644" target="_blank">AWAI 发表于 2018-3-22 00:11</a>
 
 这个实在太复杂了，PM还有SV这两个游戏对战主要考的还是对于环境的理解。NGA上发一个卡组使用指南能写好 ...</blockquote>
 瞎到暴死的观赏性都比游戏部高……唉 成熟套路上分毒瘤没观赏性还没意识到嘛。。想自己打不用各种目瞪口呆的剪辑也可以超越双子这种谐星套路嘛
 
 
-
-
-
-
-
 -----
 
 ####  条纹桌布  
 ##### 2469#       发表于 2018-3-22 05:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38927049&amp;ptid=1572644" target="_blank">杜庶仁 发表于 2018-3-22 02:19</a>
@@ -18468,30 +11991,17 @@ JK组涨势喜人  班长给届木带了2000+的粉
 <img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">为了回你我还是忍不住绑定手机号了，我也想要这个老婆
 
 
-
-
-
-
-
 -----
 
 ####  fqflhc  
 ##### 2470#       发表于 2018-3-22 06:17
 
 
-
-
 23333贴吧这图笑死了，稳如VR真好玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
 
 
 QQ截图20180322001505.png
 (765.3 KB, 下载次数: 5)
-
-
 
 
 下载附件
@@ -18500,31 +12010,13 @@ QQ截图20180322001505.png
 2018-3-22 06:15 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/22/061529gevtiiikdsfixifk.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  神龙小生  
 ##### 2471#       发表于 2018-3-22 07:40
-
 
 
 <blockquote>白白白 发表于 2018-3-22 02:16
@@ -18534,27 +12026,15 @@ QQ截图20180322001505.png
 话说按正常流程的话，appland那班大概就是下个月出道了？没跟彩虹社三期撞期也是好事。
 
 
-
-
-
-
-
 -----
 
 ####  zpbzpb123123  
 ##### 2472#       发表于 2018-3-22 08:00
 
 
-
-
 怎么でろーん也突然冒出来两首原创曲，11区友人创作欲望真强啊
 
 でろーん唱歌超好听，而且本人也说会唱了，想早点听听看
-
-
-
-
-
 
 
 -----
@@ -18563,21 +12043,13 @@ QQ截图20180322001505.png
 ##### 2473#       发表于 2018-3-22 08:14
 
 
-
-
 凛早上4点开始播的？彩虹人都不睡觉的吗？
-
-
-
-
-
 
 
 -----
 
 ####  Porsche  
 ##### 2474#       发表于 2018-3-22 12:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38927565&amp;ptid=1572644" target="_blank">zpbzpb123123 发表于 2018-3-22 08:00</a>
@@ -18587,25 +12059,13 @@ QQ截图20180322001505.png
 觉得でろーん是声音和人设最配的一个，特别是突然开始飙关西腔的时候
 
 
-
-
-
-
-
 -----
 
 ####  YooZi  
 ##### 2475#       发表于 2018-3-22 12:20
 
 
-
-
 今天晚上七点 班长要和渋谷ハジメ合作播猛汉世界
-
-
-
-
-
 
 
 -----
@@ -18614,16 +12074,10 @@ QQ截图20180322001505.png
 ##### 2476#       发表于 2018-3-22 12:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38930434&amp;ptid=1572644" target="_blank">Porsche 发表于 2018-3-22 12:14</a>
 觉得でろーん是声音和人设最配的一个，特别是突然开始飙关西腔的时候</blockquote>
 でろーん飙关西腔确实超有趣，不过目前人设保持得做好的应该还是爱丽丝吧
 班长只论声线的话其实也很贴合人设啊，只论声线的话<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18632,14 +12086,7 @@ QQ截图20180322001505.png
 ##### 2477#       发表于 2018-3-22 12:47
 
 
-
-
 nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18648,16 +12095,10 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2478#       发表于 2018-3-22 12:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38930434&amp;ptid=1572644" target="_blank">Porsche 发表于 2018-3-22 12:14</a>
 
 觉得でろーん是声音和人设最配的一个，特别是突然开始飙关西腔的时候</blockquote>
 真实大阪JK，真可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18666,14 +12107,7 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2479#       发表于 2018-3-22 14:09
 
 
-
-
 でろーん毕竟是JK组的JK担当<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18682,21 +12116,13 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2480#       发表于 2018-3-22 14:22
 
 
-
-
 でろーん+班长两人原创曲已经7首了。这可以出专辑了啊。
-
-
-
-
-
 
 
 -----
 
 ####  杜庶仁  
 ##### 2481#         楼主| 发表于 2018-3-22 17:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38927287&amp;ptid=1572644" target="_blank">条纹桌布 发表于 2018-3-22 05:36</a>
@@ -18708,26 +12134,15 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 既然你也喜欢我老婆，那么今后大家都是有同一个老婆的男人了，更应该相互关照了。
 
 
-
-
-
-
-
 -----
 
 ####  abbccc200  
 ##### 2482#       发表于 2018-3-22 17:21
 
 
-
  本帖最后由 abbccc200 于 2018-3-22 17:28 编辑 
 
 风怒编辑
-
-
-
-
-
 
 
 -----
@@ -18736,13 +12151,7 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2483#       发表于 2018-3-22 17:21
 
 
-
 [http://www.nicovideo.jp/watch/sm32925941](http://www.nicovideo.jp/watch/sm32925941)班长模仿日在校园
-
-
-
-
-
 
 
 -----
@@ -18751,15 +12160,9 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2484#       发表于 2018-3-22 18:58
 
 
-
 [https://twitter.com/MitoTsukino/status/960860834753798144](https://twitter.com/MitoTsukino/status/960860834753798144)
 
 原来班长是用双刀的
-
-
-
-
-
 
 
 -----
@@ -18768,13 +12171,7 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2485#       发表于 2018-3-22 19:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">开始了
-
-
-
-
-
 
 
 -----
@@ -18783,14 +12180,7 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2486#       发表于 2018-3-22 19:50
 
 
-
-
 这准备打小跳跳打到结束
-
-
-
-
-
 
 
 -----
@@ -18799,14 +12189,7 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2487#         楼主| 发表于 2018-3-22 19:54
 
 
-
-
 居然有麦基利斯的梗…………
-
-
-
-
-
 
 
 -----
@@ -18815,14 +12198,7 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2488#       发表于 2018-3-22 19:55
 
 
-
-
 妈呀这俩模仿声音都挺强的 而且班长怎么能把台词记得这么清楚<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18831,14 +12207,7 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2489#       发表于 2018-3-22 19:59
 
 
-
-
 完全变成im@s模仿秀了……
-
-
-
-
-
 
 
 -----
@@ -18847,14 +12216,7 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2490#       发表于 2018-3-22 20:00
 
 
-
-
 还知道爱梨是第一届CG人气投票第一<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">资深P啊
-
-
-
-
-
 
 
 -----
@@ -18863,14 +12225,7 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2491#       发表于 2018-3-22 20:02
 
 
-
-
 根本不是猛汉，是在猛汉里吹B 
-
-
-
-
-
 
 
 -----
@@ -18879,13 +12234,7 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2492#       发表于 2018-3-22 20:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/142.png" referrerpolicy="no-referrer">壶男这是在引诱班长打闪乱么
-
-
-
-
-
 
 
 -----
@@ -18894,16 +12243,9 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2493#       发表于 2018-3-22 20:19
 
 
-
-
 绝了 挂机聊天
 
 直播鬼才啊
-
-
-
-
-
 
 
 -----
@@ -18912,13 +12254,7 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2494#       发表于 2018-3-22 20:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">班长根本不想打游戏，只想聊天
-
-
-
-
-
 
 
 -----
@@ -18927,14 +12263,7 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2495#       发表于 2018-3-22 20:20
 
 
-
-
 月ノ美兎中国人说
-
-
-
-
-
 
 
 -----
@@ -18943,16 +12272,9 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2496#       发表于 2018-3-22 20:25
 
 
-
-
 直接把游戏关了全力吹逼了…
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -18961,14 +12283,7 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2497#       发表于 2018-3-22 20:27
 
 
-
-
 开始玩壶了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18977,16 +12292,9 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2498#       发表于 2018-3-22 20:28
 
 
-
-
 愛醬生放送開始了
 
 開了11分了人數才快8000人..
-
-
-
-
-
 
 
 -----
@@ -18995,14 +12303,7 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2499#       发表于 2018-3-22 20:29
 
 
-
-
 班长的吸力
-
-
-
-
-
 
 
 -----
@@ -19011,21 +12312,13 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2500#         楼主| 发表于 2018-3-22 20:33
 
 
-
-
 迫真猛汉…………话说模仿小狗不会让人有什么奇怪的联想吗…………
-
-
-
-
-
 
 
 -----
 
 ####  杜庶仁  
 ##### 2501#         楼主| 发表于 2018-3-22 20:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38936197&amp;ptid=1572644" target="_blank">lime2001 发表于 2018-3-22 20:28</a>
@@ -19036,24 +12329,13 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 马上眼镜兄就问了要不要灭掉四天王了…………
 
 
-
-
-
-
-
 -----
 
 ####  plok201  
 ##### 2502#       发表于 2018-3-22 20:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">迫真狩猎讲义还行
-
-
-
-
-
 
 
 -----
@@ -19062,23 +12344,16 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2503#       发表于 2018-3-22 20:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38936296&amp;ptid=1572644" target="_blank">杜庶仁 发表于 2018-3-22 20:36</a>
 
 马上眼镜兄就问了要不要灭掉四天王了…………</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/129.png" referrerpolicy="no-referrer">说这种话不太好吧！2333
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2504#       发表于 2018-3-22 20:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38936296&amp;ptid=1572644" target="_blank">杜庶仁 发表于 2018-3-22 20:36</a>
@@ -19095,24 +12370,13 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 沒有愛醬開拓市場你們會漲得那麼快麻
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2505#       发表于 2018-3-22 20:43
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">壶魔人这句应该是说这气势应该会追上四天王
-
-
-
-
-
 
 
 -----
@@ -19121,14 +12385,7 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2506#       发表于 2018-3-22 20:44
 
 
-
-
 看评论是没炸。。。<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19137,14 +12394,7 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2507#         楼主| 发表于 2018-3-22 20:49
 
 
-
-
 这次直播班长还真是全程一张图，连动都不带动的…………
-
-
-
-
-
 
 
 -----
@@ -19153,16 +12403,9 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2508#       发表于 2018-3-22 20:49
 
 
-
-
 摆手开脚舞太草
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -19171,14 +12414,7 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2509#       发表于 2018-3-22 20:57
 
 
-
-
 田中的聲音跟月月好像WWWW
-
-
-
-
-
 
 
 -----
@@ -19187,22 +12423,15 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2510#       发表于 2018-3-22 20:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38936548&amp;ptid=1572644" target="_blank">lime2001 发表于 2018-3-22 20:57</a>
 田中的聲音跟月月好像WWWW</blockquote>
 风格也很像，完全就是失散多年的妹妹，k岛已经开吹了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xiangcaihtr  
 ##### 2511#       发表于 2018-3-22 21:01
-
 
 
  本帖最后由 xiangcaihtr 于 2018-3-22 21:03 编辑 
@@ -19216,32 +12445,19 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 我是不信ハジメ会说这种话的。今晚直播没赶上，到时候他放录像出来我马上听听好了。
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2512#       发表于 2018-3-22 21:02
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">这根本是欺诈，最开始打了几只小跳跳，班长就和壶魔人说我们去散步散步去
-
-
-
-
-
 
 
 -----
 
 ####  YooZi  
 ##### 2513#       发表于 2018-3-22 21:03
-
-
 
 
 问有没有适合新手的欧洲企划游戏
@@ -19251,31 +12467,19 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 草
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 2514#       发表于 2018-3-22 21:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">田中这视频剪辑水平很一般啊，怕是真摔断了手
-
-
-
-
-
 
 
 -----
 
 ####  lime2001  
 ##### 2515#       发表于 2018-3-22 21:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38936602&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-22 21:01</a>
@@ -19290,16 +12494,10 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 希望能眼鏡能夠反省一下
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2516#       发表于 2018-3-22 21:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38936602&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-22 21:01</a>
@@ -19308,27 +12506,15 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 有类似的，但不是严重的。就像现在气势很强，有没有超越前辈的愿望
 
 
-
-
-
-
-
 -----
 
 ####  lhawp  
 ##### 2517#       发表于 2018-3-22 21:10
 
 
-
-
 阴帝是班长的哪个视频？
 
 慕名去玩了一下，这也太mindfuck了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19337,13 +12523,7 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2518#       发表于 2018-3-22 21:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">ハジメ情商稍不足啊，早上转了个八卦vtuber的推，晚上差点带节奏，直播低评10%问题超大
-
-
-
-
-
 
 
 -----
@@ -19352,20 +12532,13 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2519#       发表于 2018-3-22 21:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">只能说太不谨慎了，这类话题太容易被扩大曲解
-
-
-
-
-
 
 
 -----
 
 ####  Porsche  
 ##### 2520#       发表于 2018-3-22 21:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38936362&amp;ptid=1572644" target="_blank">lime2001 发表于 2018-3-22 20:41</a>
@@ -19381,25 +12554,13 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 班长马上慌慌忙忙地否认说没这种野心
 
 
-
-
-
-
-
 -----
 
 ####  plok201  
 ##### 2521#       发表于 2018-3-22 21:15
 
 
-
-
 要说的话就是非常不谨慎,明明是想鼓励的话但是说法不好,还好班长饶了回来<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19408,14 +12569,7 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2522#       发表于 2018-3-22 21:18
 
 
-
-
 主要还是两人相性不算特别好吧，之前其实就已经聊得蛮尬了，估计是想找话题但不小心踩到地雷，应该不是故意的
-
-
-
-
-
 
 
 -----
@@ -19424,14 +12578,7 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2523#       发表于 2018-3-22 21:20
 
 
-
-
 其实班长的tag已经出现了四天王里的第六人这种称呼了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19440,21 +12587,13 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2524#       发表于 2018-3-22 21:20
 
 
-
-
 绝了 怎么删了 这是打算剪辑一下吗www
-
-
-
-
-
 
 
 -----
 
 ####  触手姬  
 ##### 2525#       发表于 2018-3-22 21:21
-
 
 
  本帖最后由 触手姬 于 2018-3-22 21:24 编辑 
@@ -19466,16 +12605,10 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 所以绝对是找班长找错了！谁会知道打几只跳跳就去散步聊天了！
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2526#       发表于 2018-3-22 21:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38936820&amp;ptid=1572644" target="_blank">Porsche 发表于 2018-3-22 21:20</a>
@@ -19486,16 +12619,10 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 目前公認是黎明期功勞最大的五個人享有這頭銜
 
 
-
-
-
-
-
 -----
 
 ####  杜庶仁  
 ##### 2527#         楼主| 发表于 2018-3-22 21:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38936825&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-22 21:21</a>
@@ -19506,25 +12633,13 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 今天他的直播基本都在聊关于业界的话题啊，极其三次元……容易踩雷也是当然的事情吧…………
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 2528#       发表于 2018-3-22 21:27
 
 
-
-
 想轮四天王先打过猫宫再说
-
-
-
-
-
 
 
 -----
@@ -19533,16 +12648,9 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2529#       发表于 2018-3-22 21:29
 
 
-
-
 感觉爱酱在业务广度和Vtuber概念推广上现在还是遥遥领先啊
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -19551,21 +12659,13 @@ nico上也太多人写歌了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2530#       发表于 2018-3-22 21:31
 
 
-
-
 hajime和班长没有太多共同语言，很多时候都是在找话题，一开始显示聊游戏，后面聊到了彩虹内部团员，然后就失言了。
-
-
-
-
-
 
 
 -----
 
 ####  lime2001  
 ##### 2531#       发表于 2018-3-22 21:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38936825&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-22 21:21</a>
@@ -19582,16 +12682,10 @@ hajime和班长没有太多共同语言，很多时候都是在找话题，一�
 然後自身沒有掌握主導權
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 2532#       发表于 2018-3-22 21:39
-
 
 
  本帖最后由 バーチャルS1er 于 2018-3-22 21:50 编辑 
@@ -19618,16 +12712,10 @@ hajime和班长没有太多共同语言，很多时候都是在找话题，一�
 原来除了“四天王食い殺す”之外都是乱编的
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2533#       发表于 2018-3-22 21:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38936964&amp;ptid=1572644" target="_blank">lime2001 发表于 2018-3-22 21:33</a>
@@ -19642,32 +12730,19 @@ hajime和班长没有太多共同语言，很多时候都是在找话题，一�
 希望ハジメ早点谢罪好结束这次爆点，不然以后很麻烦
 
 
-
-
-
-
-
 -----
 
 ####  dystopiaground  
 ##### 2534#       发表于 2018-3-22 21:42
 
 
-
-
 ハジメ不行啊，班长这么会说的人都感觉带不起来，中间让班长模仿imas谁来着结果班长模仿完愣是莫名其妙沉默了很长时间，然后又是闪乱又是小薄本的，还好班长本人很放的开，要一般女生的完全算得上性骚扰了吧，还有各种问题发言<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  lelouch1021  
 ##### 2535#       发表于 2018-3-22 21:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38937053&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-22 21:39</a>
@@ -19680,16 +12755,10 @@ hajime和班长没有太多共同语言，很多时候都是在找话题，一�
 [https://www.youtube.com/watch?v=f-hF25JJu0U](https://www.youtube.com/watch?v=f-hF25JJu0U)
 
 
-
-
-
-
-
 -----
 
 ####  文文情报屋  
 ##### 2536#       发表于 2018-3-22 21:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38936911&amp;ptid=1572644" target="_blank">天青月白 发表于 2018-3-22 21:29</a>
@@ -19703,16 +12772,10 @@ hajime和班长没有太多共同语言，很多时候都是在找话题，一�
 也就是说，现在没任何人追近爱酱，而是越来越远
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2537#       发表于 2018-3-22 21:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38937092&amp;ptid=1572644" target="_blank">lelouch1021 发表于 2018-3-22 21:42</a>
@@ -19721,16 +12784,10 @@ https://www.youtube.com/watch?v=f-hF25JJu0U</blockquote>
 哈...果然有这种想闹大事的人
 
 
-
-
-
-
-
 -----
 
 ####  杜庶仁  
 ##### 2538#         楼主| 发表于 2018-3-22 21:48
-
 
 
  本帖最后由 杜庶仁 于 2018-3-22 21:49 编辑 
@@ -19746,17 +12803,10 @@ https://www.youtube.com/watch?v=f-hF25JJu0U</blockquote>
 不过还以为至少会打个boss来着……
 
 
-
-
-
-
-
-
 -----
 
 ####  zpbzpb123123  
 ##### 2539#       发表于 2018-3-22 21:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38937053&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-22 21:39</a>
@@ -19768,16 +12818,10 @@ https://www.youtube.com/watch?v=f-hF25JJu0U</blockquote>
 时差问题没看成，壶魔人这话不太合适吧。。
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2540#       发表于 2018-3-22 21:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38937148&amp;ptid=1572644" target="_blank">杜庶仁 发表于 2018-3-22 21:48</a>
@@ -19788,25 +12832,13 @@ https://www.youtube.com/watch?v=f-hF25JJu0U</blockquote>
 我想他也没想到直接不打散步聊天
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 2541#       发表于 2018-3-22 21:52
 
 
-
-
 不行了，这辉夜月味实在…哈哈哈…看0话还行…这1话看完真的…哈哈…记住田中hime了。
-
-
-
-
-
 
 
 -----
@@ -19815,14 +12847,7 @@ https://www.youtube.com/watch?v=f-hF25JJu0U</blockquote>
 ##### 2542#       发表于 2018-3-22 21:53
 
 
-
-
 全场尬聊，队友疯狂ky，心痛班长<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19831,14 +12856,7 @@ https://www.youtube.com/watch?v=f-hF25JJu0U</blockquote>
 ##### 2543#         楼主| 发表于 2018-3-22 21:54
 
 
-
-
 之前我猜测爱酱没有频繁和他人合作是会有丑闻的风险。虽然不能确认是真的这么想的。但是这次眼睛兄的发言，的确是会对班长造成一定负面影响的吧。感觉这家伙的确是有点太单纯了。
-
-
-
-
-
 
 
 -----
@@ -19847,22 +12865,15 @@ https://www.youtube.com/watch?v=f-hF25JJu0U</blockquote>
 ##### 2544#       发表于 2018-3-22 21:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38937199&amp;ptid=1572644" target="_blank">神龙小生 发表于 2018-3-22 21:52</a>
 不行了，这辉夜月味实在…哈哈哈…看0话还行…这1话看完真的…哈哈…记住田中hime了。 ...</blockquote>
 而且跟luna一样有b站官号和微博官号，不说还以为运营是同批人
-
-
-
-
-
 
 
 -----
 
 ####  横寺阳人  
 ##### 2545#       发表于 2018-3-22 21:56
-
 
 
 <blockquote>文文情报屋 发表于 2018-3-22 21:43
@@ -19884,17 +12895,10 @@ luna，akari，siro一档
 也就是说除了委员长和猫宫还可能能冲一冲，其他人是目前看不到希望，甚至说猫宫siro最近要加速的情况下猫宫向赶上那档都很难。
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2546#       发表于 2018-3-22 22:00
-
-
 
 
 还好，没有把头埋起来
@@ -19910,20 +12914,10 @@ luna，akari，siro一档
 2018-3-22 22:00 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2547#       发表于 2018-3-22 22:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38937199&amp;ptid=1572644" target="_blank">神龙小生 发表于 2018-3-22 21:52</a>
@@ -19932,27 +12926,15 @@ luna，akari，siro一档
 我還以為喝假酒的新的視頻呢!
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2548#       发表于 2018-3-22 22:07
 
 
-
-
 希望别责怪渋谷ハジメ，如果常看他和彩虹众的话就知道他是个蛮不错的人，对游戏认真，各种帮助勇气和后辈调整直播环境的不错家伙
 
 就是太单纯太不谨慎造成这次的结果
-
-
-
-
-
 
 
 -----
@@ -19961,22 +12943,15 @@ luna，akari，siro一档
 ##### 2549#       发表于 2018-3-22 22:08
 
 
-
 <img src="http://wx1.sinaimg.cn/large/6911aadfly1fply5r5hnbj20fn041gm0.jpg" referrerpolicy="no-referrer">
 
 这句话还算有点担当
-
-
-
-
-
 
 
 -----
 
 ####  lime2001  
 ##### 2550#       发表于 2018-3-22 22:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38937398&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-22 22:07</a>
@@ -19993,17 +12968,10 @@ luna，akari，siro一档
 仔細想想大概開了一個大家都不會開心的玩笑
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 2551#       发表于 2018-3-22 22:11
-
-
 
 
 田中的问题感觉和老爱之前那部剪辑演示视频一样了，
@@ -20012,26 +12980,13 @@ luna，akari，siro一档
 田中是剪辑前的话那么luna就是剪辑后了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2552#       发表于 2018-3-22 22:21
 
 
-
-
 噗，组长竟然是宣传CC
-
-
-
-
-
 
 
 -----
@@ -20040,21 +12995,13 @@ luna，akari，siro一档
 ##### 2553#       发表于 2018-3-22 22:27
 
 
-
-
 no comment.
-
-
-
-
-
 
 
 -----
 
 ####  lime2001  
 ##### 2554#       发表于 2018-3-22 22:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38937559&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-22 22:21</a>
@@ -20069,18 +13016,10 @@ sega的活
 還有AnimeJapan跟超Party
 
 
-
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2555#       发表于 2018-3-22 22:35
-
-
 
 
 忙了一会回来发现他真的说了这种话连道歉推都发出来了……然后也有别有用心的人截出来……
@@ -20088,16 +13027,10 @@ sega的活
 呃好吧……
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 2556#       发表于 2018-3-22 22:39
-
 
 
  本帖最后由 神龙小生 于 2018-3-22 22:40 编辑 
@@ -20109,16 +13042,10 @@ STRONGZERO 辉夜月
 看到这个评论笑了
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2557#       发表于 2018-3-22 22:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38937694&amp;ptid=1572644" target="_blank">lime2001 发表于 2018-3-22 22:33</a>
@@ -20133,16 +13060,10 @@ sega的活
 希望趁这次在更前一步
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2558#       发表于 2018-3-22 22:48
-
 
 
  本帖最后由 xiangcaihtr 于 2018-3-22 22:50 编辑 
@@ -20152,16 +13073,10 @@ sega的活
 大概他比起闲谈还是更擅长硬核游戏，更不太会玩梗……
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 2559#       发表于 2018-3-22 23:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38937694&amp;ptid=1572644" target="_blank">lime2001 发表于 2018-3-22 22:33</a>
@@ -20174,17 +13089,10 @@ sega的活
 上次接的ぷよぷよ!!クエスト也是世嘉运营，感觉可以期待下真女手游之类的
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2560#       发表于 2018-3-22 23:23
-
-
 
 
 推薦新人時間
@@ -20194,16 +13102,10 @@ sega的活
 唱歌起來跟能登很像w
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2561#       发表于 2018-3-22 23:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38937868&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-22 22:48</a>
@@ -20214,16 +13116,10 @@ sega的活
 处理的不差以后最多只是被一部分追着打差评而已
 
 
-
-
-
-
-
 -----
 
 ####  lhawp  
 ##### 2562#       发表于 2018-3-22 23:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38937398&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-22 22:07</a>
@@ -20234,16 +13130,10 @@ sega的活
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过用食い殺す这样的词实在太作死了啊，希望以后能吸取教训吧。也希望观众能宽容一点，这个行业还远远没有发展到需要靠撕逼来解决问题的规模
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2563#       发表于 2018-3-22 23:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38938387&amp;ptid=1572644" target="_blank">lhawp 发表于 2018-3-22 23:42</a>
@@ -20262,28 +13152,15 @@ sega的活
 是他們摸索出了Vtuber的生存模式跟市場
 
 
-
-
-
-
-
 -----
 
 ####  喜闻乐见  
 ##### 2564#       发表于 2018-3-23 00:00
 
 
-
-
 死就死咯   何况还是量产货里面的男性vtuber<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 晚上加班没在老爱直播间帮忙人数+1还看到这个也就剩这个表情了  
-
-
-
-
-
-
 
 
 -----
@@ -20292,14 +13169,7 @@ sega的活
 ##### 2565#       发表于 2018-3-23 00:06
 
 
-
-
 田中这个...真很像辉夜月
-
-
-
-
-
 
 
 -----
@@ -20308,23 +13178,15 @@ sega的活
 ##### 2566#       发表于 2018-3-23 00:20
 
 
-
  本帖最后由 xiangcaihtr 于 2018-3-23 00:25 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  plok201  
 ##### 2567#       发表于 2018-3-23 00:22
-
-
 
 
 其实现在出现这情况总比以后来的好
@@ -20334,17 +13196,10 @@ sega的活
 现在彩虹一众人气上升太快了,不注意一下就会引火烧身,希望他们内部讨论一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 2568#       发表于 2018-3-23 00:23
-
-
 
 
 又把田中看了一遍，技术面上感觉和azulim很相似
@@ -20352,16 +13207,10 @@ sega的活
 开场声音确实神似luna，但后半段渐渐能够感受到差异
 
 
-
-
-
-
-
 -----
 
 ####  杜庶仁  
 ##### 2569#         楼主| 发表于 2018-3-23 00:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38938676&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-23 00:06</a>
@@ -20373,16 +13222,10 @@ sega的活
 可以叫“向前辈学习”，不过想要火起来，还是要走出一条属于自己特色的路才行呐。
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2570#       发表于 2018-3-23 00:31
-
 
 
  本帖最后由 xiangcaihtr 于 2018-3-23 00:34 编辑 
@@ -20392,27 +13235,15 @@ sega的活
 最大优点是比辉夜月帧数高不知道多少倍啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  江少寒  
 ##### 2571#       发表于 2018-3-23 00:31
 
 
-
-
 辉夜主要还是P丸风格延续吧，田中姬的人设、建模和中之人感觉都蛮有趣的，而且磕的假酒度数没有Luna高，有时候作为观众都觉得Luna太放飞自我了（
 
 猫宫那种懒洋洋坏嘻嘻的声线我很喜欢，所以就算游戏是代打对我来说也没什么影响。不过对很多喜欢FPS高手这个形象的粉丝大概就不能接受了吧
-
-
-
-
-
 
 
 -----
@@ -20421,21 +13252,13 @@ sega的活
 ##### 2572#       发表于 2018-3-23 00:33
 
 
-
-
 好像没有哪个做FGO的视频，是FGO太肝还没到新卡池没游戏性和节目效果，没人做这题材。
-
-
-
-
-
 
 
 -----
 
 ####  触手姬  
 ##### 2573#       发表于 2018-3-23 00:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38938838&amp;ptid=1572644" target="_blank">杜庶仁 发表于 2018-3-23 00:24</a>
@@ -20449,26 +13272,15 @@ sega的活
 还有就是结尾ED也太不搭配。。。日本风格的背景，旗袍，中华锣
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 2574#       发表于 2018-3-23 00:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38938895&amp;ptid=1572644" target="_blank">天狼Q娃 发表于 2018-3-23 00:33</a>
 好像没有哪个做FGO的视频，是FGO太肝还没到新卡池没游戏性和节目效果，没人做这题材。 ...</blockquote>
 废狗这种刷刷刷舔舔舔，除了广告真的有人愿意直播吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20477,23 +13289,16 @@ sega的活
 ##### 2575#       发表于 2018-3-23 00:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38938895&amp;ptid=1572644" target="_blank">天狼Q娃 发表于 2018-3-23 00:33</a>
 
 好像没有哪个做FGO的视频，是FGO太肝还没到新卡池没游戏性和节目效果，没人做这题材。 ...</blockquote>
 目前非不接广告就做氪金手游视频的我印象里只有爱酱的ll<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lelouch1021  
 ##### 2576#       发表于 2018-3-23 01:26
-
 
 
  本帖最后由 lelouch1021 于 2018-3-23 01:28 编辑 
@@ -20504,16 +13309,10 @@ sega的活
 草
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2577#       发表于 2018-3-23 01:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38939220&amp;ptid=1572644" target="_blank">lelouch1021 发表于 2018-3-23 01:26</a>
@@ -20534,29 +13333,13 @@ sega的活
 2018-3-23 01:38 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2578#       发表于 2018-3-23 01:39
 
 
-
-
 啥情况……说要玩游戏，结果20分钟啥都没玩就已经下播了。
-
-
-
-
-
 
 
 -----
@@ -20565,16 +13348,10 @@ sega的活
 ##### 2579#       发表于 2018-3-23 01:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38939267&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-23 01:39</a>
 
 啥情况……说要玩游戏，结果20分钟啥都没玩就已经下播了。</blockquote>
 被貌似社长找了，估计是今天的事情谈话
-
-
-
-
-
 
 
 -----
@@ -20583,23 +13360,16 @@ sega的活
 ##### 2580#       发表于 2018-3-23 01:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38939277&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-23 01:41</a>
 
 被貌似社长找了，估计是今天的事情谈话</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这大半夜的，社长也是修仙党啊。
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2581#       发表于 2018-3-23 01:49
-
 
 
  本帖最后由 触手姬 于 2018-3-23 01:56 编辑 
@@ -20609,16 +13379,10 @@ sega的活
 <img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">刚刚在聊天栏又道歉了一次，估计是挨批评了，希望能好好反省
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2582#       发表于 2018-3-23 02:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38939307&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-23 01:49</a>
@@ -20629,26 +13393,15 @@ sega的活
 怎么感觉他性格意外地……硬啊……
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2583#       发表于 2018-3-23 02:08
 
 
-
  本帖最后由 xiangcaihtr 于 2018-3-23 02:09 编辑 
 
 编辑
-
-
-
-
-
 
 
 -----
@@ -20657,21 +13410,13 @@ sega的活
 ##### 2584#       发表于 2018-3-23 02:15
 
 
-
-
 明显有anti搞事情，、唉，还是希望班长她们别受牵连了，也希望她们自身别被影响到... 粉丝多了起来一在意起来对自己的发言太紧张就不好看了...毕竟クソ雑魚委員長
-
-
-
-
-
 
 
 -----
 
 ####  白白白  
 ##### 2585#       发表于 2018-3-23 02:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38939357&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-23 02:05</a>
@@ -20683,16 +13428,10 @@ sega的活
 好好道歉，少说几句，过几天就没事了，连这都不懂。之前说错话还能说是太年轻不懂事，现在这危机公关只能说他情商真的非常低<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2586#       发表于 2018-3-23 02:21
-
 
 
  本帖最后由 xiangcaihtr 于 2018-3-23 02:24 编辑 
@@ -20705,17 +13444,10 @@ sega的活
 还是说决定要走炎上路线？？？？
 
 
-
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2587#       发表于 2018-3-23 02:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38939421&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-23 02:21</a>
@@ -20730,16 +13462,10 @@ sega的活
 除了視頻不有趣之外（ry
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2588#       发表于 2018-3-23 02:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38939433&amp;ptid=1572644" target="_blank">lime2001 发表于 2018-3-23 02:24</a>
@@ -20752,16 +13478,10 @@ sega的活
 不领情又是咋回事……？求详细
 
 
-
-
-
-
-
 -----
 
 ####  lelouch1021  
 ##### 2589#       发表于 2018-3-23 02:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38939404&amp;ptid=1572644" target="_blank">白白白 发表于 2018-3-23 02:18</a>
@@ -20774,16 +13494,10 @@ sega的活
 一股“观众搞我 上面还逼着我道歉 我觉得我没错 我好不爽”的感觉
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2590#       发表于 2018-3-23 02:35
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">现在还想知道的就是在他每一条推特下面都贴着的youtuber的聊天截图到底是不是真的……
@@ -20791,16 +13505,10 @@ sega的活
 或者黑子P出来的……
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2591#       发表于 2018-3-23 02:37
-
 
 
  本帖最后由 lime2001 于 2018-3-23 02:43 编辑 
@@ -20821,16 +13529,10 @@ sega的活
 底下就開始說他沒有一點反省的意思　然後就刪推了
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2592#       发表于 2018-3-23 02:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38939462&amp;ptid=1572644" target="_blank">lime2001 发表于 2018-3-23 02:37</a>
@@ -20845,17 +13547,10 @@ sega的活
 不过冗談意味确实很重就是了。
 
 
-
-
-
-
-
 -----
 
 ####  杜庶仁  
 ##### 2593#         楼主| 发表于 2018-3-23 02:42
-
-
 
 
 事件的传播和爆炸果然需要一个发酵期啊。
@@ -20869,16 +13564,10 @@ sega的活
 所以现在少说话，是最好的……
 
 
-
-
-
-
-
 -----
 
 ####  lelouch1021  
 ##### 2594#       发表于 2018-3-23 02:42
-
 
 
  本帖最后由 lelouch1021 于 2018-3-23 02:52 编辑 
@@ -20888,17 +13577,10 @@ sega的活
 <img src="https://wx1.sinaimg.cn/large/6911aadfly1fpm61ui6fwj20u01c5k2b.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2595#       发表于 2018-3-23 02:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38939467&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-23 02:39</a>
@@ -20911,33 +13593,19 @@ sega的活
 深夜太累看錯了wwww
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 2596#       发表于 2018-3-23 02:53
 
 
-
-
 他别再提这事大家也会慢慢忘的，越是道歉提这事对粉丝及自己都不好
-
-
-
-
-
 
 
 -----
 
 ####  杜庶仁  
 ##### 2597#         楼主| 发表于 2018-3-23 02:57
-
-
 
 
 大众都是很喜欢爆点的，不管是正面还是负面的爆点。如果有一个共通的敌人的话，那是最好不过的。
@@ -20952,17 +13620,10 @@ sega的活
 无论如何这种严重程度的发言的影响是很难消解掉的。不仅是对名声的影响，也包括对自身心态的影响，处理不好都有可能成为阴影，阻碍继续走这条路。
 
 
-
-
-
-
-
 -----
 
 ####  大江户战士  
 ##### 2598#       发表于 2018-3-23 03:07
-
-
 
 
 。。。
@@ -20977,20 +13638,10 @@ sega的活
 2018-3-23 03:07 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  杜庶仁  
 ##### 2599#         楼主| 发表于 2018-3-23 03:08
-
 
 
  本帖最后由 杜庶仁 于 2018-3-23 03:14 编辑 
@@ -21010,17 +13661,10 @@ sega的活
 这样的感觉。
 
 
-
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 2600#       发表于 2018-3-23 03:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38939524&amp;ptid=1572644" target="_blank">杜庶仁 发表于 2018-3-23 03:08</a>
@@ -21030,26 +13674,15 @@ sega的活
 草，楼主你真是人才<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  杜庶仁  
 ##### 2601#         楼主| 发表于 2018-3-23 04:14
 
 
-
 <blockquote>白白白 发表于 2018-3-23 03:11
 草，楼主你真是人才</blockquote>
 当然，也有一定风险，不过抱着和观众一起玩的心态见招拆招，也是一种乐趣。作为给观众带来快乐的职业，首先要自己感到快乐才能做好啊。辉夜月就是这方面很好的榜样。
-
-
-
-
-
 
 
 -----
@@ -21058,16 +13691,10 @@ sega的活
 ##### 2602#       发表于 2018-3-23 06:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">道歉完就沉默了呀……何必回嘴
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
-
-
-
-
-
 
 
 -----
@@ -21076,16 +13703,9 @@ sega的活
 ##### 2603#       发表于 2018-3-23 07:09
 
 
-
-
 没有大规模退订，只能说有些人在专门找事，哎
 
 希望能平稳过去
-
-
-
-
-
 
 
 -----
@@ -21094,14 +13714,7 @@ sega的活
 ##### 2604#       发表于 2018-3-23 08:25
 
 
-
-
 ねこます**感觉太微妙了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">迫真棒读
-
-
-
-
-
 
 
 -----
@@ -21110,15 +13723,9 @@ sega的活
 ##### 2605#       发表于 2018-3-23 08:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38939521&amp;ptid=1572644" target="_blank">大江户战士 发表于 2018-3-23 03:07</a>
 。。。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21127,23 +13734,16 @@ sega的活
 ##### 2606#       发表于 2018-3-23 08:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38940367&amp;ptid=1572644" target="_blank">Porsche 发表于 2018-3-23 08:38</a>
 
 这位真是心大，还好班长第一时间就表明态度了，这事不会扯到她，而且班长第一次发现akari查房时的 ...</blockquote>
 年轻死宅和人生经验丰富JK的差距，不过如果班长肯一起玩游戏大概不会出现这种事件
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2607#       发表于 2018-3-23 09:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38940430&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-23 08:45</a>
@@ -21156,16 +13756,10 @@ sega的活
 開萌夯的意義在哪wwww
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2608#       发表于 2018-3-23 09:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38940612&amp;ptid=1572644" target="_blank">lime2001 发表于 2018-3-23 09:09</a>
@@ -21178,16 +13772,10 @@ sega的活
 游戏是壶魔人强项，游戏的联动都很好看。但这应该是事前准备不充足和没掌握到主动权，被班长强行拉去聊天，偏偏还不在一条线上，拼命找话题然后踩雷....只能说他们相性真差，如果和凛联动没准能聊到一块
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2609#       发表于 2018-3-23 09:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38939521&amp;ptid=1572644" target="_blank">大江户战士 发表于 2018-03-23 03:07:39</a>
@@ -21197,16 +13785,10 @@ sega的活
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2610#       发表于 2018-3-23 09:28
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">ハジメ才是クソボロメンタル吧
@@ -21216,17 +13798,10 @@ sega的活
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2611#       发表于 2018-3-23 09:31
-
-
 
 
 话说昨晚谈到闪乱貌似说了一句只要2000元……不会游戏真是自费吧<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
@@ -21235,16 +13810,10 @@ sega的活
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2612#       发表于 2018-3-23 09:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38940774&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-23 09:22</a>
@@ -21261,16 +13830,10 @@ sega的活
 然後說的
 
 
-
-
-
-
-
 -----
 
 ####  zpbzpb123123  
 ##### 2613#       发表于 2018-3-23 09:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38940875&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-23 09:31</a>
@@ -21282,17 +13845,10 @@ sega的活
 肯定是自费的啊，勇气被壶魔人安利（？）壶的时候还问了STEAM能不能买到这类问题
 
 
-
-
-
-
-
 -----
 
 ####  v2c  
 ##### 2614#       发表于 2018-3-23 09:36
-
-
 
 
 昨天定番的そら和あんたま先不说，Icotsu联动、クゥ&amp;れらたん、オッドアイ，比班长眼镜有意思的生放送多了去了，结果这贴一边倒是にじさんじ的话题
@@ -21301,26 +13857,15 @@ sega的活
 一边抨击にじさんじ挤占个人势生存空间一边压根就对个人势没什么像样关注，那些鼓吹にじさんじ毒瘤论的要是不能以身作则以后也可以闭嘴了
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 2615#       发表于 2018-3-23 09:44
 
 
-
  本帖最后由 横寺阳人 于 2018-3-23 09:45 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">关键天天彩虹社毒瘤彩虹社毒瘤我可以aoe一句其他企业势大部分都是傻逼么连个三个人的会社都打不过。
-
-
-
-
-
 
 
 -----
@@ -21329,16 +13874,10 @@ sega的活
 ##### 2616#       发表于 2018-3-23 09:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">elf貌似今天要在有土鳖播
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
-
-
-
-
-
 
 
 -----
@@ -21347,21 +13886,13 @@ sega的活
 ##### 2617#       发表于 2018-3-23 10:02
 
 
-
-
 NICO那个炎上视频广告区一堆人贴强欲之壶的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  触手姬  
 ##### 2618#       发表于 2018-3-23 10:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38941069&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-23 09:49</a>
@@ -21373,26 +13904,15 @@ elf貌似今天要在有土鳖播
 又要被一堆人烧林
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 2619#       发表于 2018-3-23 10:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">感觉回复就输了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -21401,24 +13921,16 @@ elf貌似今天要在有土鳖播
 ##### 2620#       发表于 2018-3-23 10:13
 
 
-
-
 彩虹势现在的人气数据还是有点问题的：直播的在线最高人数经常比刚结束的累计来场人数还要高，
 
 
 其他Vtuber和真人都是累计比在线人数要高很多的......
 
 
-
-
-
-
-
 -----
 
 ####  Slum.  
 ##### 2621#       发表于 2018-3-23 10:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38941208&amp;ptid=1572644" target="_blank">zpbzpb123123 发表于 2018-3-23 10:02</a>
@@ -21428,16 +13940,10 @@ NICO那个炎上视频广告区一堆人贴强欲之壶的</blockquote>
 [http://www.nicovideo.jp/watch/sm32929239](http://www.nicovideo.jp/watch/sm32929239)
 
 
-
-
-
-
-
 -----
 
 ####  zpbzpb123123  
 ##### 2622#       发表于 2018-3-23 10:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38941383&amp;ptid=1572644" target="_blank">Slum. 发表于 2018-3-23 10:14</a>
@@ -21448,17 +13954,10 @@ http://www.nicovideo.jp/watch/s ...</blockquote>
 我知道啊，验证视频的sm号红字刷的那么起劲只要点进去就会看到的，我只是觉得强欲之壶这个挺有意思的而已。
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2623#       发表于 2018-3-23 10:41
-
-
 
 
 最高人数比累积多？……
@@ -21467,16 +13966,10 @@ http://www.nicovideo.jp/watch/s ...</blockquote>
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  佐藤和真  
 ##### 2624#       发表于 2018-3-23 10:49
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">彩虹社倒是只看洗祖凛了，其他人都没啥感觉。
@@ -21484,17 +13977,10 @@ http://www.nicovideo.jp/watch/s ...</blockquote>
 最开始只是单纯看到有个玩R6的VT所以关注了一下，虽然技术挺一般的但人特别有意思，看了几次直播好感度越来越高，中の人的声线也特别符合自己喜好。好想和洗祖凛玩R6啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  文文情报屋  
 ##### 2625#       发表于 2018-3-23 11:00
-
-
 
 
 说实话，我觉得也就是11区有这屁事
@@ -21505,17 +13991,10 @@ http://www.nicovideo.jp/watch/s ...</blockquote>
 搞成跟个11区公司似的论资排辈也太无趣了吧
 
 
-
-
-
-
-
 -----
 
 ####  不灭的旋律  
 ##### 2626#       发表于 2018-3-23 11:05
-
-
 
 
 这次算是展现出にじさんじ放任的弊端了。联动前不做好准备工作，出事后公关也是一塌糊涂。如果事件继续发酵以后企业势联动将会更加保守谨慎。
@@ -21526,16 +14005,10 @@ http://www.nicovideo.jp/watch/s ...</blockquote>
 推个个人势はちゃちャンネル，创作势转的vtuber，说话平稳有趣大概适合泥潭疲劳的中老年人士<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2627#       发表于 2018-3-23 11:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38941986&amp;ptid=1572644" target="_blank">文文情报屋 发表于 2018-3-23 11:00</a>
@@ -21546,25 +14019,14 @@ http://www.nicovideo.jp/watch/s ...</blockquote>
 其实也没啥，现状也是理解的比批判的压倒性的多，但的确有那么一批在闹事
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2628#       发表于 2018-3-23 11:11
 
 
-
  本帖最后由 触手姬 于 2018-3-23 11:14 编辑 
 <blockquote>编辑</blockquote>
-
-
-
-
-
 
 
 -----
@@ -21573,21 +14035,14 @@ http://www.nicovideo.jp/watch/s ...</blockquote>
 ##### 2629#       发表于 2018-3-23 11:11
 
 
-
  本帖最后由 触手姬 于 2018-3-23 11:13 编辑 
 <blockquote>人生第一次风怒...</blockquote>
-
-
-
-
-
 
 
 -----
 
 ####  xiangcaihtr  
 ##### 2630#       发表于 2018-3-23 11:12
-
 
 
  本帖最后由 xiangcaihtr 于 2018-3-23 11:13 编辑 
@@ -21598,16 +14053,10 @@ http://www.nicovideo.jp/watch/s ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2631#       发表于 2018-3-23 11:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38942145&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-23 11:12</a>
@@ -21618,16 +14067,10 @@ http://www.nicovideo.jp/watch/s ...</blockquote>
 掉是有掉点，但完全不如涨幅多
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 2632#       发表于 2018-3-23 11:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38941740&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-23 10:41</a>
@@ -21639,18 +14082,10 @@ http://www.nicovideo.jp/watch/s ...</blockquote>
 youtube的直播是来场一个人不管看了多久都算一次点击的，刚变成录像视频的时候显示的就是累计人数，之后就按正常的视频来算了，班长上次是在线最高是3W8多，累计是3W7多，眼镜这次是在线最高1w9，累计是1w7.
 
 
-
-
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2633#       发表于 2018-3-23 11:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38941986&amp;ptid=1572644" target="_blank">文文情报屋 发表于 2018-3-23 11:00</a>
@@ -21667,16 +14102,10 @@ youtube的直播是来场一个人不管看了多久都算一次点击的，刚�
 還用了食い殺い這種攻擊性的字眼
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2634#       发表于 2018-3-23 11:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38942145&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-23 11:12</a>
@@ -21689,16 +14118,10 @@ youtube的直播是来场一个人不管看了多久都算一次点击的，刚�
 只是要吃好一陣子的大量負評跟人數成長不起來而已
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2635#       发表于 2018-3-23 11:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38942350&amp;ptid=1572644" target="_blank">lime2001 发表于 2018-3-23 11:28</a>
@@ -21709,16 +14132,10 @@ youtube的直播是来场一个人不管看了多久都算一次点击的，刚�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个我觉得他原本粉丝增长数就已经很慢了。前几页也有人说了他完全在靠直播时长混饭吃。
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2636#       发表于 2018-3-23 11:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38942378&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-23 11:30</a>
@@ -21729,16 +14146,10 @@ Vtuver界男性很難混阿
 你看上位20內　只有兩個男性Vtuber就知道了
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2637#       发表于 2018-3-23 11:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38942378&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-23 11:30</a>
@@ -21747,24 +14158,13 @@ Vtuver界男性很難混阿
 男性Vtuber本来就涨幅困难，还不是技术流，就算是有沾彩虹社的光也只能靠联动和时长来慢慢磨
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2638#       发表于 2018-3-23 11:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">希望彩虹社有点上进心的能去学学如何3D化，总不可能指望别人帮忙
-
-
-
-
-
 
 
 -----
@@ -21773,15 +14173,9 @@ Vtuver界男性很難混阿
 ##### 2639#       发表于 2018-3-23 11:43
 
 
-
 <img src="http://wx3.sinaimg.cn/large/6dc848b3ly1fpmllmmvxtj20vg0s4dln.jpg" referrerpolicy="no-referrer">
 
 海星吧，感觉直播当时也没太多反应，还好大多数人比较谅解
-
-
-
-
-
 
 
 -----
@@ -21790,15 +14184,8 @@ Vtuver界男性很難混阿
 ##### 2640#       发表于 2018-3-23 12:01
 
 
-
-
 肯定是海星啊  真炎上还不是帮这丫增加曝光  <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 祝他早日达成抱负当上业界老大咯
-
-
-
-
-
 
 
 -----
@@ -21807,13 +14194,7 @@ Vtuver界男性很難混阿
 ##### 2641#       发表于 2018-3-23 12:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">嘴欠的人一向问题是嘴欠一次保不出有第二次第三次，这种疯狂被diss你觉得他不会反击的么。
-
-
-
-
-
 
 
 -----
@@ -21822,22 +14203,15 @@ Vtuver界男性很難混阿
 ##### 2642#       发表于 2018-3-23 12:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38942536&amp;ptid=1572644" target="_blank">StardustNoir 发表于 2018-3-23 11:43</a>
 海星吧，感觉直播当时也没太多反应，还好大多数人比较谅解</blockquote>
 投票选项塞不进x8全文真是可惜<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xiangcaihtr  
 ##### 2643#       发表于 2018-3-23 12:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38942810&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-23 12:06</a>
@@ -21851,16 +14225,10 @@ Vtuver界男性很難混阿
 就别和班长这种クソゲー爱好者联动了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">相性不合。
 
 
-
-
-
-
-
 -----
 
 ####  Porsche  
 ##### 2644#       发表于 2018-3-23 12:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38942922&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-23 12:16</a>
@@ -21870,32 +14238,19 @@ Vtuver界男性很難混阿
 网上评论说这位对班长的梗一概不懂，好歹是同期第一人气的同社成员，事先做点功课是理所当然的吧，真是心大
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2645#       发表于 2018-3-23 12:36
 
 
-
-
 我觉得单纯出于想蹭班长人气的想法，按照平时合作来，结果班长不按照他想法走
-
-
-
-
-
 
 
 -----
 
 ####  xiangcaihtr  
 ##### 2646#       发表于 2018-3-23 12:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38943083&amp;ptid=1572644" target="_blank">Porsche 发表于 2018-3-23 12:32</a>
@@ -21907,31 +14262,19 @@ Vtuver界男性很難混阿
 我赶到直播的时候他们已经在说いんかく了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2647#       发表于 2018-3-23 12:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">嘛嘛~事到如今他能冷静点懂乖乖打游戏别再出什么言论就好了..其他的他们内部估计也会沟通的（吧，，吧...............................
-
-
-
-
-
 
 
 -----
 
 ####  触手姬  
 ##### 2648#       发表于 2018-3-23 12:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38943163&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-23 12:38</a>
@@ -21943,16 +14286,10 @@ Vtuver界男性很難混阿
 看直播的话明显能看出双方不在一条线上，壶君更是拼命在找话题
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2649#       发表于 2018-3-23 12:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38943266&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-23 12:47</a>
@@ -21961,16 +14298,10 @@ Vtuver界男性很難混阿
 不懂班长的梗，和，不懂班长说的梗，还是两回事……如果是什么洗衣机吃杂草都不知道的话就有点严重了
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2650#       发表于 2018-3-23 12:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38943281&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-23 12:49</a>
@@ -21979,17 +14310,10 @@ Vtuver界男性很難混阿
 吃草洗衣机这种简单的肯定是懂的
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2651#       发表于 2018-3-23 12:55
-
-
 
 
 爱酱和政委コラボ那期，爱酱问政委能不能叫她すみれちゃん，政委说「有点自来熟了吧」的时候我也吃了一惊。
@@ -21998,26 +14322,15 @@ Vtuver界男性很難混阿
 不过政委人气高所以无事发生
 
 
-
-
-
-
-
 -----
 
 ####  Porsche  
 ##### 2652#       发表于 2018-3-23 13:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38943281&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-23 12:49</a>
 不懂班长的梗，和，不懂班长说的梗，还是两回事……如果是什么洗衣机吃杂草都不知道的话就有点严重了 ...</blockquote>
 不懂料理的梗算是什么程度<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这算是仅次于洗衣机杂草的程度了吧，还有x8梗也不知道
-
-
-
-
-
 
 
 -----
@@ -22026,16 +14339,10 @@ Vtuver界男性很難混阿
 ##### 2653#       发表于 2018-3-23 13:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38943360&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-03-23 12:55:38</a>
 爱酱和政委コラボ那期，爱酱问政委能不能叫她すみれちゃん，政委说「有点自来熟了吧」的时候我也吃了一惊。 ...</blockquote>还以为那是开玩笑。那期让我觉得好玩的点是爱酱显示器被淋的反应
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -22044,16 +14351,9 @@ Vtuver界男性很難混阿
 ##### 2654#       发表于 2018-3-23 13:24
 
 
-
-
 只看那句话被anti也算了，看完全程录像怕不是要让一部分班长粉更讨厌这个人<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi Redmi Note 4X, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -22062,21 +14362,13 @@ Vtuver界男性很難混阿
 ##### 2655#       发表于 2018-3-23 13:32
 
 
-
-
 整个联动生放送就透露着眼镜那边准备不足吧，两边基本都说不到一个线上
-
-
-
-
-
 
 
 -----
 
 ####  触手姬  
 ##### 2656#       发表于 2018-3-23 13:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38943802&amp;ptid=1572644" target="_blank">北条早苗 发表于 2018-3-23 13:32</a>
@@ -22087,16 +14379,10 @@ Vtuver界男性很難混阿
 如果经常看班长生放的话就知道一般人是跟不上班长的
 
 
-
-
-
-
-
 -----
 
 ####  lelouch1021  
 ##### 2657#       发表于 2018-3-23 14:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38940932&amp;ptid=1572644" target="_blank">v2c 发表于 2018-3-23 09:36</a>
@@ -22107,26 +14393,15 @@ Vtuver界男性很難混阿
 如果是他和同社的其他人联动 不说什么怪话好好打游戏 讨论度能有现在的三分之一就不错了
 
 
-
-
-
-
-
 -----
 
 ####  swordofsoul1  
 ##### 2658#       发表于 2018-3-23 14:07
 
 
-
 <blockquote>xiangcaihtr 发表于 2018-3-23 12:55
 爱酱和政委コラボ那期，爱酱问政委能不能叫她すみれちゃん，政委说「有点自来熟了吧」的时候我也吃了一惊。 ...</blockquote>
 这是政委的设定啦，那群人气声优哪个不是有特定人设的
-
-
-
-
-
 
 
 -----
@@ -22135,21 +14410,13 @@ Vtuver界男性很難混阿
 ##### 2659#       发表于 2018-3-23 15:48
 
 
-
-
 nico上那个炎上视频被删了？
-
-
-
-
-
 
 
 -----
 
 ####  文文情报屋  
 ##### 2660#       发表于 2018-3-23 15:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38943360&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-23 12:55</a>
@@ -22160,16 +14427,10 @@ nico上那个炎上视频被删了？
 都是台本啦
 
 
-
-
-
-
-
 -----
 
 ####  v2c  
 ##### 2661#       发表于 2018-3-23 16:22
-
 
 
 [https://www.cyberagent.co.jp/news/detail/id=21460](https://www.cyberagent.co.jp/news/detail/id=21460)
@@ -22178,25 +14439,13 @@ nico上那个炎上视频被删了？
 AzuLim的后台是CyberAgent，目前Vtuber里最牛的后台了，但从之前动画的选材和生放送内容来看真是空有技术和资本，但愿之后能做些像样的企划别白瞎了AzuLim这个角色
 
 
-
-
-
-
-
 -----
 
 ####  karloku  
 ##### 2662#       发表于 2018-3-23 16:24
 
 
-
-
 政委自己上节目很多时候都这样的, 高冷+暴言
-
-
-
-
-
 
 
 -----
@@ -22205,24 +14454,16 @@ AzuLim的后台是CyberAgent，目前Vtuber里最牛的后台了，但从之前�
 ##### 2663#       发表于 2018-3-23 16:26
 
 
-
-
 政委的人设一直是这样的啦…<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  Porsche  
 ##### 2664#       发表于 2018-3-23 16:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38945707&amp;ptid=1572644" target="_blank">v2c 发表于 2018-3-23 16:22</a>
@@ -22233,16 +14474,10 @@ AzuLim的后台是CyberAgent，目前Vtuber里最牛的后台 ...</blockquote>
 这就尴尬了，身为ameba的生親，却要看着自己女儿为youtube贡献流量<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2665#       发表于 2018-3-23 16:48
-
 
 
  本帖最后由 lime2001 于 2018-3-23 16:50 编辑 
@@ -22262,24 +14497,13 @@ AzuLim的后台是CyberAgent，目前Vtuber里最牛的后台 ...</blockquote>
 根本四天王級了要求wwww
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 2666#       发表于 2018-3-23 16:52
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">所以真的不要怪彩虹社毒瘤啊，其他企业势就是脑残，这是玩众筹粉丝啊。
-
-
-
-
-
 
 
 -----
@@ -22288,17 +14512,10 @@ AzuLim的后台是CyberAgent，目前Vtuber里最牛的后台 ...</blockquote>
 ##### 2667#       发表于 2018-3-23 17:03
 
 
-
-
 8万人才生放……？？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
-
-
-
-
-
 
 
 -----
@@ -22307,21 +14524,13 @@ AzuLim的后台是CyberAgent，目前Vtuber里最牛的后台 ...</blockquote>
 ##### 2668#       发表于 2018-3-23 17:17
 
 
-
-
 Laki Station的运营越看越烂。之前是逼着让玩不明所谓的香肠游戏，现在要开生放都得有8w粉丝数。
-
-
-
-
-
 
 
 -----
 
 ####  神龙小生  
 ##### 2669#       发表于 2018-3-23 17:20
-
 
 
  本帖最后由 神龙小生 于 2018-3-23 17:21 编辑 
@@ -22333,16 +14542,10 @@ Laki Station的运营越看越烂。之前是逼着让玩不明所谓的香肠�
 想想这孩子连yua线都过不了，已经过了所谓新人期了吧，还能爆得起来？
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 2670#       发表于 2018-3-23 17:21
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">然而还是周更、首先先更新稳定了再说其他的吧
@@ -22353,17 +14556,10 @@ Laki Station的运营越看越烂。之前是逼着让玩不明所谓的香肠�
 这么看的话小青蛙起码也要来个众筹800W开直播、1500W做主题曲才算毒瘤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 2671#       发表于 2018-3-23 17:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38945960&amp;ptid=1572644" target="_blank">lime2001 发表于 2018-3-23 16:48</a>
@@ -22375,16 +14571,10 @@ Laki Station的运营越看越烂。之前是逼着让玩不明所谓的香肠�
 之前laki酱说鬼畜运营我还以为是台本，现在看来真的是鬼畜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  fqflhc  
 ##### 2672#       发表于 2018-3-23 17:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38946266&amp;ptid=1572644" target="_blank">气流季里 发表于 2018-3-23 17:17</a>
@@ -22393,16 +14583,10 @@ Laki Station的运营越看越烂。之前是逼着让玩不明所谓的香肠�
 垃圾酱起码有万代做后台，不愁吃不愁穿
 
 
-
-
-
-
-
 -----
 
 ####  lelouch1021  
 ##### 2673#       发表于 2018-3-23 17:45
-
 
 
 <img src="https://wx2.sinaimg.cn/large/6911aadfly1fpmw5axbgmj20gb0if78d.jpg" referrerpolicy="no-referrer">
@@ -22415,16 +14599,10 @@ Laki Station的运营越看越烂。之前是逼着让玩不明所谓的香肠�
 怎么突然空降一个泰国老哥
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 2674#       发表于 2018-3-23 17:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38943360&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-23 12:55</a>
@@ -22435,17 +14613,10 @@ Laki Station的运营越看越烂。之前是逼着让玩不明所谓的香肠�
 —— 来自 HUAWEI BND-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 2675#       发表于 2018-3-23 17:55
-
-
 
 
 28940←目前
@@ -22461,26 +14632,15 @@ Laki Station的运营越看越烂。之前是逼着让玩不明所谓的香肠�
 40w？嘛，定个梦想是好事。
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 2676#       发表于 2018-3-23 17:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38946542&amp;ptid=1572644" target="_blank">lelouch1021 发表于 2018-3-23 17:45</a>
 怎么突然空降一个泰国老哥</blockquote>
 WTF……<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22489,16 +14649,10 @@ WTF……<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" r
 ##### 2677#       发表于 2018-3-23 17:57
 
 
-
 <blockquote>lelouch1021 发表于 2018-3-23 17:45
 怎么突然空降一个泰国老哥</blockquote>
 
 这截图封面颇有当年艾琳一些投稿的风格
-
-
-
-
-
 
 
 -----
@@ -22507,14 +14661,7 @@ WTF……<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" r
 ##### 2678#       发表于 2018-3-23 18:22
 
 
-
-
 siro今天这集的海豚度太高了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22523,14 +14670,7 @@ siro今天这集的海豚度太高了<img src="https://static.saraba1st.com/imag
 ##### 2679#       发表于 2018-3-23 18:47
 
 
-
-
 麻煩組長用人類語言實況wwwww
-
-
-
-
-
 
 
 -----
@@ -22539,16 +14679,9 @@ siro今天这集的海豚度太高了<img src="https://static.saraba1st.com/imag
 ##### 2680#       发表于 2018-3-23 18:57
 
 
-
-
 小青蛙最大问题还是更新太慢了
 刚出道的时候其实大家都来捧场很受瞩目的, 结果周更一会儿就凉了
 现在Vtuber竞争激烈, 周更慢慢热不适合了
-
-
-
-
-
 
 
 -----
@@ -22557,21 +14690,13 @@ siro今天这集的海豚度太高了<img src="https://static.saraba1st.com/imag
 ##### 2681#       发表于 2018-3-23 19:02
 
 
-
-
 爱酱今天又堇了。。。这是要做成系列吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xiangcaihtr  
 ##### 2682#       发表于 2018-3-23 19:39
-
 
 
  本帖最后由 xiangcaihtr 于 2018-3-23 19:44 编辑 
@@ -22588,33 +14713,20 @@ VR花粉症，骰子滚出窗外。
 明天去aj看看她本人会不会来。
 
 
-
-
-
-
-
 -----
 
 ####  喜闻乐见  
 ##### 2683#       发表于 2018-3-23 19:40
 
 
-
-
 堇了两期甚至给我一种说不定哪天就上了ganganGA  
 中间那块屏幕不正好麽
-
-
-
-
-
 
 
 -----
 
 ####  天狼Q娃  
 ##### 2684#       发表于 2018-3-23 19:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38945707&amp;ptid=1572644" target="_blank">v2c 发表于 2018-3-23 16:22</a>
@@ -22626,33 +14738,19 @@ AzuLim的后台是CyberAgent，目前Vtuber里最牛的后台 ...</blockquote>
 感觉游戏部的后台也挺硬的，那3D质量你说没大后台是不可能的。CY也可能也投资了游戏部吧
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2685#       发表于 2018-3-23 19:42
 
 
-
-
 用生命唱歌跳舞的後輩醬..www
-
-
-
-
-
 
 
 -----
 
 ####  walfeds  
 ##### 2686#       发表于 2018-3-23 19:48
-
-
 
 
 laki周更确实是频率太低了毫无出镜率，按道理来说企业势不该这么缺资源
@@ -22662,27 +14760,15 @@ laki周更确实是频率太低了毫无出镜率，按道理来说企业势不�
 反倒是三万订阅就商品化显得早了，可能占了身为吉祥物的便宜
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2687#       发表于 2018-3-23 19:50
 
 
-
-
 蘿蔔子實況滿滿的空媽媽的感覺
 
 觀眾各種不妙
-
-
-
-
-
 
 
 -----
@@ -22691,21 +14777,13 @@ laki周更确实是频率太低了毫无出镜率，按道理来说企业势不�
 ##### 2688#       发表于 2018-3-23 19:51
 
 
-
-
 爱酱她们这房间居然还能用…是清洁工爆肝了还是重新刷了一遍墙…
-
-
-
-
-
 
 
 -----
 
 ####  walfeds  
 ##### 2689#       发表于 2018-3-23 19:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38947808&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-23 19:39</a>
@@ -22723,32 +14801,19 @@ VR花粉症，骰子滚出窗外。
 看明天有没有人录现场的限定视频以及可能有的互动。。。
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 2690#       发表于 2018-3-23 19:59
 
 
-
-
 哈哈刚打开也刚好看见了，这色子居然能从窗口蹦出去的
-
-
-
-
-
 
 
 -----
 
 ####  xiangcaihtr  
 ##### 2691#       发表于 2018-3-23 20:02
-
 
 
 <blockquote>walfeds 发表于 2018-3-23 19:53
@@ -22760,25 +14825,13 @@ VR花粉症，骰子滚出窗外。
 我会去蹲4点的猜拳大会，不过限定视频如果摄影禁止的话就算了…
 
 
-
-
-
-
-
 -----
 
 ####  islxyqwe  
 ##### 2692#       发表于 2018-3-23 20:19
 
 
-
-
 爱酱这联动肯定是一天内录完的吧，那么收录顺序上不一定是先开汽水呀
-
-
-
-
-
 
 
 -----
@@ -22787,14 +14840,7 @@ VR花粉症，骰子滚出窗外。
 ##### 2693#       发表于 2018-3-23 20:20
 
 
-
-
 游戏通关了发现没点开始录像，然后把这一事实唱出来的luna不知道该说是丢人还是有能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22803,19 +14849,11 @@ VR花粉症，骰子滚出窗外。
 ##### 2694#       发表于 2018-3-23 20:21
 
 
-
-
 或许是这样
-
-
-
-
 
 
 8580-1P312141910.png
 (541.42 KB, 下载次数: 11)
-
-
 
 
 下载附件
@@ -22824,28 +14862,12 @@ VR花粉症，骰子滚出窗外。
 2018-3-23 20:20 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/23/202049i7i8sbmgibbnx2gn.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -22855,12 +14877,7 @@ VR花粉症，骰子滚出窗外。
 | walfeds| + 1|欢乐多|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -22869,14 +14886,7 @@ VR花粉症，骰子滚出窗外。
 ##### 2695#       发表于 2018-3-23 20:25
 
 
-
-
 组长这前半非人语比人语还多，爽到！
-
-
-
-
-
 
 
 -----
@@ -22885,15 +14895,9 @@ VR花粉症，骰子滚出窗外。
 ##### 2696#       发表于 2018-3-23 20:27
 
 
-
 <blockquote>walfeds 发表于 2018-3-23 20:20
 游戏通关了发现没点开始录像，然后把这一事实唱出来的luna不知道该说是丢人还是有能 ...</blockquote>
 好奇有啥游戏她可以30分就通关的。
-
-
-
-
-
 
 
 -----
@@ -22902,15 +14906,9 @@ VR花粉症，骰子滚出窗外。
 ##### 2697#       发表于 2018-3-23 20:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38948265&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-23 20:20</a>
 游戏通关了发现没点开始录像，然后把这一事实唱出来的luna不知道该说是丢人还是有能 ...</blockquote>
 开始看到进度条不到三分钟还有点生气的，看到唱歌那里直接笑喷了，luna太鬼才了，普通人遇到这种情况是再录一遍，这家伙居然做成一期视频唱出来了（还特意灵魂歌手）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22919,16 +14917,10 @@ VR花粉症，骰子滚出窗外。
 ##### 2698#       发表于 2018-3-23 20:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38948328&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-23 20:27</a>
 
 好奇有啥游戏她可以30分就通关的。</blockquote>
 。。。欧罗巴企划？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22937,23 +14929,16 @@ VR花粉症，骰子滚出窗外。
 ##### 2699#       发表于 2018-3-23 20:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38946542&amp;ptid=1572644" target="_blank">lelouch1021 发表于 2018-3-23 17:45</a>
 
 怎么突然空降一个泰国老哥</blockquote>
 这空降的37万战斗力的大佬是啥....
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 2700#       发表于 2018-3-23 20:53
-
 
 
  本帖最后由 walfeds 于 2018-3-23 20:57 编辑 
@@ -22965,26 +14950,15 @@ VR花粉症，骰子滚出窗外。
 看了会直播，hololive挑人的眼光真不错。。。感觉像sora和noracat的混合种<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zpbzpb123123  
 ##### 2701#       发表于 2018-3-23 20:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38946542&amp;ptid=1572644" target="_blank">lelouch1021 发表于 2018-3-23 17:45</a>
 怎么突然空降一个泰国老哥</blockquote>
 30多快40万粉，视频平均点击几千到一万出头也太怪了吧
-
-
-
-
-
 
 
 -----
@@ -22993,16 +14967,10 @@ VR花粉症，骰子滚出窗外。
 ##### 2702#       发表于 2018-3-23 21:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38948608&amp;ptid=1572644" target="_blank">zpbzpb123123 发表于 2018-3-23 20:57</a>
 
 30多快40万粉，视频平均点击几千到一万出头也太怪了吧</blockquote>
 这频道开了快七年了，最近几个月才搞了3d转了vtuber。。。37万粉还是可以理解的
-
-
-
-
-
 
 
 -----
@@ -23011,16 +14979,10 @@ VR花粉症，骰子滚出窗外。
 ##### 2703#       发表于 2018-3-23 21:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38948657&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-23 21:02</a>
 
 这频道开了快七年了，最近几个月才搞了3d转了vtuber。。。37万粉还是可以理解的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这种就别参合了吧，污染榜单啊。
-
-
-
-
-
 
 
 -----
@@ -23029,16 +14991,10 @@ VR花粉症，骰子滚出窗外。
 ##### 2704#       发表于 2018-3-23 21:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38948799&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-23 21:18</a>
 
 这种就别参合了吧，污染榜单啊。</blockquote>
 刚才看userlocal时已经理所当然地从榜单里神隐了。。。
-
-
-
-
-
 
 
 -----
@@ -23047,16 +15003,10 @@ VR花粉症，骰子滚出窗外。
 ##### 2705#       发表于 2018-3-23 21:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38948799&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-23 21:18</a>
 
 这种就别参合了吧，污染榜单啊。</blockquote>
 其实也有不少是从原本的频道搞起3D的，akari，源源也是这种<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23065,16 +15015,10 @@ VR花粉症，骰子滚出窗外。
 ##### 2706#       发表于 2018-3-23 21:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38948799&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-23 21:18</a>
 
 这种就别参合了吧，污染榜单啊。</blockquote>
 这榜单也是有问题，他17年就有3d，粉丝也很多，现在加入榜单里迟大到。
-
-
-
-
-
 
 
 -----
@@ -23083,16 +15027,10 @@ VR花粉症，骰子滚出窗外。
 ##### 2707#       发表于 2018-3-23 21:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38948060&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-23 20:02</a>
 
 我会去蹲4点的猜拳大会，不过限定视频如果摄影禁止的话就算了…</blockquote>
 既然是会场公开了肯定不会禁止摄影吧，之前老爱在上海的活动B站还有人录像了
-
-
-
-
-
 
 
 -----
@@ -23101,16 +15039,10 @@ VR花粉症，骰子滚出窗外。
 ##### 2708#       发表于 2018-3-23 21:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38949013&amp;ptid=1572644" target="_blank">天狼Q娃 发表于 2018-3-23 21:38</a>
 
 这榜单也是有问题，他17年就有3d，粉丝也很多，现在加入榜单里迟大到。</blockquote>
 有语言之壁吧，毛子的虚拟地球酱还是这楼里的人去提交的。。。
-
-
-
-
-
 
 
 -----
@@ -23119,13 +15051,7 @@ VR花粉症，骰子滚出窗外。
 ##### 2709#       发表于 2018-3-23 22:12
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">怎么觉得elf本音其实就是那个bba音wwww
-
-
-
-
-
 
 
 -----
@@ -23134,14 +15060,7 @@ VR花粉症，骰子滚出窗外。
 ##### 2710#       发表于 2018-3-23 22:46
 
 
-
-
 虚空エルフ23333 
-
-
-
-
-
 
 
 -----
@@ -23150,24 +15069,16 @@ VR花粉症，骰子滚出窗外。
 ##### 2711#       发表于 2018-3-23 23:05
 
 
-
-
 这种运营了好几年,然后转3D的还真是比较微妙呢..<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
 话说彩虹杂谈吸客能力还真是厉害啊,订阅数不多,女神和elf都到1W上下了,而且一个完结了就来第二个,彩虹24小时<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  plok201  
 ##### 2712#       发表于 2018-3-23 23:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38949431&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-23 22:12</a>
@@ -23179,32 +15090,19 @@ VR花粉症，骰子滚出窗外。
 彩虹直播就是这样,不到最后一秒你也不知道会不会出事故<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  abbccc200  
 ##### 2713#       发表于 2018-3-23 23:56
 
 
-
-
 惨惨惨 彩虹最近事故也太多了吧
-
-
-
-
-
 
 
 -----
 
 ####  杜庶仁  
 ##### 2714#         楼主| 发表于 2018-3-24 00:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38950376&amp;ptid=1572644" target="_blank">plok201 发表于 2018-3-23 23:40</a>
@@ -23216,16 +15114,10 @@ VR花粉症，骰子滚出窗外。
 哎？发生什么了吗？
 
 
-
-
-
-
-
 -----
 
 ####  plok201  
 ##### 2715#       发表于 2018-3-24 00:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38950635&amp;ptid=1572644" target="_blank">杜庶仁 发表于 2018-3-24 00:07</a>
@@ -23237,16 +15129,10 @@ VR花粉症，骰子滚出窗外。
 目前来看很难说影响怎么样了,有说问题不大的,有说已经挖出了重要情报的<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  abbccc200  
 ##### 2716#       发表于 2018-3-24 00:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38950713&amp;ptid=1572644" target="_blank">plok201 发表于 2018-3-24 00:17</a>
@@ -23258,16 +15144,10 @@ VR花粉症，骰子滚出窗外。
 年龄住址工作场所都被扒光了
 
 
-
-
-
-
-
 -----
 
 ####  zpbzpb123123  
 ##### 2717#       发表于 2018-3-24 00:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38950730&amp;ptid=1572644" target="_blank">abbccc200 发表于 2018-3-24 00:19</a>
@@ -23281,16 +15161,10 @@ VR花粉症，骰子滚出窗外。
 ポン子的剧情
 
 
-
-
-
-
-
 -----
 
 ####  abbccc200  
 ##### 2718#       发表于 2018-3-24 00:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38950756&amp;ptid=1572644" target="_blank">zpbzpb123123 发表于 2018-3-24 00:21</a>
@@ -23301,17 +15175,10 @@ VR花粉症，骰子滚出窗外。
 最搞笑是昨天一堆anti通宵特定班长ID，最后发现那ID是十年前的nico梗
 
 
-
-
-
-
-
 -----
 
 ####  Porsche  
 ##### 2719#       发表于 2018-3-24 00:37
-
-
 
 
 [ 本帖最后由 Porsche 于 2018-3-24 00:41 编辑 ]\n\nバーチャルyoutuber猫宮ひなた、特定される
@@ -23332,17 +15199,10 @@ Vtuberの中で猫宮だけフォローしてる
 这个sample确实是基本一致的
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2720#       发表于 2018-3-24 00:37
-
-
 
 
 別管彩虹了
@@ -23350,16 +15210,10 @@ Vtuberの中で猫宮だけフォローしてる
 今晚最嗨的是一堆Vtuber在Vrchat狂歡阿wwww
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2721#       发表于 2018-3-24 00:47
-
 
 
  本帖最后由 xiangcaihtr 于 2018-3-24 00:50 编辑 
@@ -23374,16 +15228,10 @@ Vtuberの中で猫宮だけフォローしてる
 特别是爱酱……其他也就算了，看到生日一样之类的特征之后都有点无语了。
 
 
-
-
-
-
-
 -----
 
 ####  杜庶仁  
 ##### 2722#         楼主| 发表于 2018-3-24 00:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38950891&amp;ptid=1572644" target="_blank">lime2001 发表于 2018-3-24 00:37</a>
@@ -23394,16 +15242,10 @@ Vtuberの中で猫宮だけフォローしてる
 喔喔，可以介绍一下吗
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2723#       发表于 2018-3-24 00:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38951011&amp;ptid=1572644" target="_blank">杜庶仁 发表于 2018-3-24 00:52</a>
@@ -23414,16 +15256,10 @@ Vtuberの中で猫宮だけフォローしてる
 油管上找這個
 
 
-
-
-
-
-
 -----
 
 ####  七夜美琴  
 ##### 2724#       发表于 2018-3-24 01:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38951013&amp;ptid=1572644" target="_blank">lime2001 发表于 2018-3-24 00:53</a>
@@ -23436,16 +15272,10 @@ Vtuberの中で猫宮だけフォローしてる
 —— 来自 Xiaomi Redmi Note 4X, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2725#       发表于 2018-3-24 01:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38951057&amp;ptid=1572644" target="_blank">七夜美琴 发表于 2018-3-24 01:00</a>
@@ -23462,16 +15292,10 @@ Vtuberの中で猫宮だけフォローしてる
 不認識代表個人勢看太少www
 
 
-
-
-
-
-
 -----
 
 ####  zpbzpb123123  
 ##### 2726#       发表于 2018-3-24 01:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38951013&amp;ptid=1572644" target="_blank">lime2001 发表于 2018-3-24 00:53</a>
@@ -23484,17 +15308,10 @@ Vtuberの中で猫宮だけフォローしてる
 话说大魔王居然有3D模型啊，我一直以为是2D的。。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2727#       发表于 2018-3-24 01:12
-
-
 
 
 這時候就可以看出3d模的好處了
@@ -23502,16 +15319,10 @@ Vtuberの中で猫宮だけフォローしてる
 可以做各式各樣的事情w
 
 
-
-
-
-
-
 -----
 
 ####  Porsche  
 ##### 2728#       发表于 2018-3-24 01:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38950969&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-24 00:47</a>
@@ -23521,26 +15332,15 @@ Vtuberの中で猫宮だけフォローしてる
 重点是游戏苦手啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">中之人怎样无所谓
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2729#       发表于 2018-3-24 01:21
 
 
-
 <blockquote>Porsche 发表于 2018-3-24 01:14
 重点是游戏苦手啊中之人怎样无所谓</blockquote>
 （如果这挖出来的人是真的）意思是想说她们也太不谨慎了…推特关注和サンプルvoice明明可以自己注意一下的。
-
-
-
-
-
 
 
 -----
@@ -23549,21 +15349,13 @@ Vtuberの中で猫宮だけフォローしてる
 ##### 2730#       发表于 2018-3-24 02:47
 
 
-
-
 人红是非多，尤其是看这种类型游戏的观众越是眼特尖
-
-
-
-
-
 
 
 -----
 
 ####  walfeds  
 ##### 2731#       发表于 2018-3-24 04:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38951013&amp;ptid=1572644" target="_blank">lime2001 发表于 2018-3-24 00:53</a>
@@ -23574,17 +15366,10 @@ Vtuberの中で猫宮だけフォローしてる
 惊了，到场的都是本人？
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2732#       发表于 2018-3-24 06:39
-
-
 
 
 Elf那个算大事么……<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
@@ -23593,32 +15378,19 @@ Elf那个算大事么……<img src="https://static.saraba1st.com/image/smiley/f
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 2733#       发表于 2018-3-24 07:20
 
 
-
-
 实锤么？各种暴露
-
-
-
-
-
 
 
 -----
 
 ####  lime2001  
 ##### 2734#       发表于 2018-3-24 08:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38951661&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-24 04:18</a>
@@ -23635,27 +15407,15 @@ Elf那个算大事么……<img src="https://static.saraba1st.com/image/smiley/f
 可以讓角色更可愛
 
 
-
-
-
-
-
 -----
 
 ####  lwa190212  
 ##### 2735#       发表于 2018-3-24 08:59
 
 
-
-
 请问，哪里能看到彩虹社所有vtuber的油管地址？
 
 才发现班长的很多视频都有了中文字幕，直播系不精通日语感觉很难上手，少了互动环节也少了很多乐趣吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23664,14 +15424,7 @@ Elf那个算大事么……<img src="https://static.saraba1st.com/image/smiley/f
 ##### 2736#       发表于 2018-3-24 09:03
 
 
-
-
 昨晚ニーツ的生放送没看，刚才看youtube的评论栏感觉气氛不太对，上推看了一下才知道くるみ也出现了，ニーツ和あっくん事前也完全没预料到，这真是电视剧一样的展开了
-
-
-
-
-
 
 
 -----
@@ -23680,21 +15433,13 @@ Elf那个算大事么……<img src="https://static.saraba1st.com/image/smiley/f
 ##### 2737#       发表于 2018-3-24 09:05
 
 
-
-
 佐仓杏那个声音说了好几天了，没有其他证明作为石锤还是弱了点，而且类似猫宫声音的相对难度也不大
-
-
-
-
-
 
 
 -----
 
 ####  rxds  
 ##### 2738#       发表于 2018-3-24 09:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38952343&amp;ptid=1572644" target="_blank">lwa190212 发表于 2018-3-24 08:59</a>
@@ -23705,16 +15450,10 @@ Elf那个算大事么……<img src="https://static.saraba1st.com/image/smiley/f
 [https://www.ichikara.co.jp/official](https://www.ichikara.co.jp/official)
 
 
-
-
-
-
-
 -----
 
 ####  lwa190212  
 ##### 2739#       发表于 2018-3-24 09:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38952406&amp;ptid=1572644" target="_blank">rxds 发表于 2018-3-24 09:07</a>
@@ -23723,16 +15462,10 @@ https://www.ichikara.co.jp/official</blockquote>
 多谢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  江少寒  
 ##### 2740#       发表于 2018-3-24 09:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38950890&amp;ptid=1572644" target="_blank">Porsche 发表于 2018-3-24 00:37</a>
@@ -23744,16 +15477,10 @@ https://www.ichikara.co.jp/official</blockquote>
 这是靠什么挖出来的？
 
 
-
-
-
-
-
 -----
 
 ####  v2c  
 ##### 2741#       发表于 2018-3-24 09:36
-
 
 
 [https://youtu.be/FkScP-S6XLU?t=3h24m18s](https://youtu.be/FkScP-S6XLU?t=3h24m18s)
@@ -23762,16 +15489,10 @@ https://www.ichikara.co.jp/official</blockquote>
 从くるみ出现开始
 
 
-
-
-
-
-
 -----
 
 ####  不灭的旋律  
 ##### 2742#       发表于 2018-3-24 09:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38950756&amp;ptid=1572644" target="_blank">zpbzpb123123 发表于 2018-3-24 00:21</a>
@@ -23782,21 +15503,13 @@ https://www.ichikara.co.jp/official</blockquote>
 ポン子是官方一开始就公布了里面的人的连名字都一样怎么能混为一谈。
 
 
-
-
 昨天二ーツ的直播看一半关了原来这么劲爆？
-
-
-
-
-
 
 
 -----
 
 ####  v2c  
 ##### 2743#       发表于 2018-3-24 09:48
-
 
 
  本帖最后由 v2c 于 2018-3-24 09:58 编辑 
@@ -23812,17 +15525,7 @@ https://www.ichikara.co.jp/official</blockquote>
 2018-3-24 09:58 上传
 
 
-
-
-
-
-
 ニーツ去追くるみ这一幕真的感觉像在看动画一样
-
-
-
-
-
 
 
 -----
@@ -23831,14 +15534,7 @@ https://www.ichikara.co.jp/official</blockquote>
 ##### 2744#       发表于 2018-3-24 10:05
 
 
-
-
 感觉这段都可以画成漫画了，短暂的天使。
-
-
-
-
-
 
 
 -----
@@ -23847,13 +15543,7 @@ https://www.ichikara.co.jp/official</blockquote>
 ##### 2745#       发表于 2018-3-24 11:13
 
 
-
 [https://www.youtube.com/watch?v=QgqEbZsiY9w](https://www.youtube.com/watch?v=QgqEbZsiY9w)  ELF昨晚的事故。。看了下还好吧。。没露出太多的样子
-
-
-
-
-
 
 
 -----
@@ -23862,16 +15552,10 @@ https://www.ichikara.co.jp/official</blockquote>
 ##### 2746#       发表于 2018-3-24 11:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38952680&amp;ptid=1572644" target="_blank">v2c 发表于 2018-3-24 09:48</a>
 
 ニーツ去追くるみ这一幕真的感觉像在看动画一样</blockquote>
 求概括下故事情节。。？ニーツ和くるみ都不认识。。。
-
-
-
-
-
 
 
 -----
@@ -23880,16 +15564,10 @@ https://www.ichikara.co.jp/official</blockquote>
 ##### 2747#         楼主| 发表于 2018-3-24 11:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38953471&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-24 11:13</a>
 
 https://www.youtube.com/watch?v=QgqEbZsiY9w  ELF昨晚的事故。。看了下还好吧。。没露出太多的样子 ...</blockquote>
 至少中之人的真身是完全确定了…………
-
-
-
-
-
 
 
 -----
@@ -23898,23 +15576,16 @@ https://www.youtube.com/watch?v=QgqEbZsiY9w  ELF昨晚的事故。。看了下
 ##### 2748#       发表于 2018-3-24 11:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38953471&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-24 11:13</a>
 
 https://www.youtube.com/watch?v=QgqEbZsiY9w  ELF昨晚的事故。。看了下还好吧。。没露出太多的样子 ...</blockquote>
 でろーん及时一个skype电话救援<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">。。。GJ
 
 
-
-
-
-
-
 -----
 
 ####  杜庶仁  
 ##### 2749#         楼主| 发表于 2018-3-24 11:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38953515&amp;ptid=1572644" target="_blank">StardustNoir 发表于 2018-3-24 11:18</a>
@@ -23925,26 +15596,15 @@ https://www.youtube.com/watch?v=QgqEbZsiY9w  ELF昨晚的事故。。看了下
 据说后来就彻底从公众的视野中消失了。所以看到她出现是非常让人振奋的事情。
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 2750#       发表于 2018-3-24 11:28
 
 
-
 <blockquote>StardustNoir 发表于 2018-3-24 11:18
 求概括下故事情节。。？ニーツ和くるみ都不认识。。。</blockquote>
 简单说就是两人是天魔机忍里的机和天，天因某些原因目前终止活动中。
-
-
-
-
-
 
 
 -----
@@ -23953,16 +15613,10 @@ https://www.youtube.com/watch?v=QgqEbZsiY9w  ELF昨晚的事故。。看了下
 ##### 2751#       发表于 2018-3-24 11:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38953545&amp;ptid=1572644" target="_blank">杜庶仁 发表于 2018-3-24 11:21</a>
 
 至少中之人的真身是完全确定了…………</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">看推特大家是没在发..希望别闹出啥事吧。。。哎
-
-
-
-
-
 
 
 -----
@@ -23971,13 +15625,7 @@ https://www.youtube.com/watch?v=QgqEbZsiY9w  ELF昨晚的事故。。看了下
 ##### 2752#       发表于 2018-3-24 11:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">睡得早没想到错过大事了，天使快回来呀！！！！
-
-
-
-
-
 
 
 -----
@@ -23986,14 +15634,7 @@ https://www.youtube.com/watch?v=QgqEbZsiY9w  ELF昨晚的事故。。看了下
 ##### 2753#       发表于 2018-3-24 12:00
 
 
-
-
 居然天使都出现了，虽然没说上话
-
-
-
-
-
 
 
 -----
@@ -24002,13 +15643,7 @@ https://www.youtube.com/watch?v=QgqEbZsiY9w  ELF昨晚的事故。。看了下
 ##### 2754#       发表于 2018-3-24 12:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">猫宫那个除了声线像以外还有什么实锤么。
-
-
-
-
-
 
 
 -----
@@ -24017,15 +15652,9 @@ https://www.youtube.com/watch?v=QgqEbZsiY9w  ELF昨晚的事故。。看了下
 ##### 2755#       发表于 2018-3-24 12:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38954376&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-24 12:35</a>
 猫宫那个除了声线像以外还有什么实锤么。</blockquote>
 没有，保密工作做得好
-
-
-
-
-
 
 
 -----
@@ -24034,16 +15663,9 @@ https://www.youtube.com/watch?v=QgqEbZsiY9w  ELF昨晚的事故。。看了下
 ##### 2756#       发表于 2018-3-24 13:04
 
 
-
-
 猫宫这个就声线和推关注两个了
 
 不如前几天静凛那个可能性高
-
-
-
-
-
 
 
 -----
@@ -24052,14 +15674,7 @@ https://www.youtube.com/watch?v=QgqEbZsiY9w  ELF昨晚的事故。。看了下
 ##### 2757#       发表于 2018-3-24 13:04
 
 
-
-
 好不容易跑到akari的摊子发现人山人海，根本听不清她在说啥…
-
-
-
-
-
 
 
 -----
@@ -24068,14 +15683,7 @@ https://www.youtube.com/watch?v=QgqEbZsiY9w  ELF昨晚的事故。。看了下
 ##### 2758#       发表于 2018-3-24 13:16
 
 
-
-
 える中之人太可爱<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24084,14 +15692,8 @@ https://www.youtube.com/watch?v=QgqEbZsiY9w  ELF昨晚的事故。。看了下
 ##### 2759#       发表于 2018-3-24 13:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">https://theyoutubers.com/archives/207   凛前辈的推论是这个么（声音真的好像就是了..
 <img src="https://static.saraba1st.com/image/smiley/face2017/146.png" referrerpolicy="no-referrer">讨论中之人还是有点。。嘛
-
-
-
-
-
 
 
 -----
@@ -24100,15 +15702,9 @@ https://www.youtube.com/watch?v=QgqEbZsiY9w  ELF昨晚的事故。。看了下
 ##### 2760#       发表于 2018-3-24 13:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38954637&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-24 13:04</a>
 好不容易跑到akari的摊子发现人山人海，根本听不清她在说啥…</blockquote>
 akari是现场直播吗？luna那边有什么活动？
-
-
-
-
-
 
 
 -----
@@ -24117,23 +15713,16 @@ akari是现场直播吗？luna那边有什么活动？
 ##### 2761#       发表于 2018-3-24 13:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38954815&amp;ptid=1572644" target="_blank">白白白 发表于 2018-03-24 13:24:02</a>
 akari是现场直播吗？luna那边有什么活动？</blockquote>嗯akari在生放送。辉夜月好像没有…
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 2762#       发表于 2018-3-24 13:30
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">话说猫宫还真是 虽然现在超冲击性新星 但是可供别人讨论余地简直少的可怜。
@@ -24143,27 +15732,15 @@ akari是现场直播吗？luna那边有什么活动？</blockquote>嗯akari在�
 啥时候来非游戏类的正式视频。
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2763#       发表于 2018-3-24 13:30
 
 
-
-
 akari结束之后，开始放辉夜月的过往视频了
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -24172,23 +15749,15 @@ akari结束之后，开始放辉夜月的过往视频了
 ##### 2764#       发表于 2018-3-24 13:33
 
 
-
-
 太过分了…akari这摊位和一堆女性向ip是一起的，排队买谷子的人多到爆炸已经排到场外去了……………
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  白白白  
 ##### 2765#       发表于 2018-3-24 13:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38954909&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-24 13:33</a>
@@ -24198,27 +15767,15 @@ akari结束之后，开始放辉夜月的过往视频了
 居然跟女性向排在一起，场面太喜感了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2766#       发表于 2018-3-24 13:40
 
 
-
-
 看了一下akari这谷子是除了吧唧全都卖光了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -24227,22 +15784,13 @@ akari结束之后，开始放辉夜月的过往视频了
 ##### 2767#       发表于 2018-3-24 13:54
 
 
-
-
 猜拳大会不买谷子就没法参加抽选，我决定放弃了…去休息一下蹲4点生放送好了。
-
-
-
-
-
 
 
 -----
 
 ####  バーチャルS1er  
 ##### 2768#       发表于 2018-3-24 14:28
-
-
 
 
 アカリ生14時の回
@@ -24271,16 +15819,10 @@ akari结束之后，开始放辉夜月的过往视频了
 希望akari在animejapan的视频和直播都能传油管就好了
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2769#       发表于 2018-3-24 14:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38955381&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-03-24 14:28:07</a>
@@ -24293,17 +15835,10 @@ akari结束之后，开始放辉夜月的过往视频了
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 2770#       发表于 2018-3-24 14:54
-
-
 
 
 GSC 辉夜月 黏土人 原型公开
@@ -24318,9 +15853,6 @@ GSC 辉夜月 黏土人 原型公开
 2018-3-24 14:53 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/24/145348yge6k1km5r5zm1r5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
 
@@ -24329,9 +15861,6 @@ GSC 辉夜月 黏土人 原型公开
 下载附件
 
 2018-3-24 14:53 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/24/145348ftht0jprcqc1uj7t.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
@@ -24344,25 +15873,13 @@ GSC 辉夜月 黏土人 原型公开
 2018-3-24 14:53 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 2771#       发表于 2018-3-24 14:56
 
 
-
-
 刷了下推，视频里如果远一点的基本听不到在说什么，现场太吵了现场倒卖还行
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/24/144912g2913f6gi6e3lpx3.jpg" referrerpolicy="no-referrer">
@@ -24375,17 +15892,7 @@ GSC 辉夜月 黏土人 原型公开
 2018-3-24 14:49 上传
 
 
-
-
-
-
 看了感觉心疼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
@@ -24394,16 +15901,9 @@ GSC 辉夜月 黏土人 原型公开
 ##### 2772#       发表于 2018-3-24 15:03
 
 
-
-
 4 点的回开始了音响这是出问题了吗<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">断断续续听不到声音
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -24412,15 +15912,9 @@ GSC 辉夜月 黏土人 原型公开
 ##### 2773#       发表于 2018-3-24 15:07
 
 
-
  本帖最后由 xiangcaihtr 于 2018-3-24 15:11 编辑 
 
 不知道是不是去修麦克风还是修音响了…
-
-
-
-
-
 
 
 -----
@@ -24429,21 +15923,13 @@ GSC 辉夜月 黏土人 原型公开
 ##### 2774#       发表于 2018-3-24 15:14
 
 
-
-
 回来了，第一句みんな太过大声把全体都震了一下
-
-
-
-
-
 
 
 -----
 
 ####  xiangcaihtr  
 ##### 2775#       发表于 2018-3-24 15:14
-
 
 
  本帖最后由 xiangcaihtr 于 2018-3-24 15:24 编辑 
@@ -24456,27 +15942,15 @@ GSC 辉夜月 黏土人 原型公开
 奖品发给了两个第一次赢的人
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2776#       发表于 2018-3-24 15:29
 
 
-
-
 直接结束了还行…她说16点有特别的活动意思是会有放送事故吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -24485,16 +15959,10 @@ GSC 辉夜月 黏土人 原型公开
 ##### 2777#         楼主| 发表于 2018-3-24 17:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38955694&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-24 14:56</a>
 
 刷了下推，视频里如果远一点的基本听不到在说什么，现场太吵了现场倒卖还行</blockquote>
 一般而言，宅男去漫展的日常差不多也是这样的吧…………
-
-
-
-
-
 
 
 -----
@@ -24503,13 +15971,7 @@ GSC 辉夜月 黏土人 原型公开
 ##### 2778#       发表于 2018-3-24 18:30
 
 
-
 <img src="http://wx2.sinaimg.cn/large/87566b0cgy1fpo348c248j20sb0jkju4.jpg" referrerpolicy="no-referrer">  大家还是温柔啊w
-
-
-
-
-
 
 
 -----
@@ -24518,16 +15980,9 @@ GSC 辉夜月 黏土人 原型公开
 ##### 2779#       发表于 2018-3-24 19:42
 
 
-
-
 4月份小青是要开不纯写真展吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -24536,14 +15991,7 @@ GSC 辉夜月 黏土人 原型公开
 ##### 2780#       发表于 2018-3-24 19:53
 
 
-
-
 アオ这样的性格靠联动会有更好的发挥空间，虽然现在运营卖的是ぼっち属性，等看以后会不会有机会吧
-
-
-
-
-
 
 
 -----
@@ -24552,14 +16000,7 @@ GSC 辉夜月 黏土人 原型公开
 ##### 2781#       发表于 2018-3-24 20:36
 
 
-
-
 狐叔直播vrchat了
-
-
-
-
-
 
 
 -----
@@ -24568,15 +16009,9 @@ GSC 辉夜月 黏土人 原型公开
 ##### 2782#       发表于 2018-3-24 20:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38958526&amp;ptid=1572644" target="_blank">Porsche 发表于 2018-3-24 20:36</a>
 狐叔直播vrchat了</blockquote>
 刚进去就放送事故直播停了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24585,14 +16020,7 @@ GSC 辉夜月 黏土人 原型公开
 ##### 2783#       发表于 2018-3-24 20:56
 
 
-
-
 打赏黑屏
-
-
-
-
-
 
 
 -----
@@ -24601,22 +16029,13 @@ GSC 辉夜月 黏土人 原型公开
 ##### 2784#       发表于 2018-3-24 21:07
 
 
-
-
 今天又在VRchat了
-
-
-
-
-
 
 
 -----
 
 ####  hgjam  
 ##### 2785#       发表于 2018-3-24 21:12
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/24/210853d8e6uhpqabpjhp7u.jpg" referrerpolicy="no-referrer">
@@ -24629,26 +16048,15 @@ GSC 辉夜月 黏土人 原型公开
 2018-3-24 21:08 上传
 
 
-
-
-
-
 太搞了 聊天室里打虫天上就会下虫
 
 集团霸凌事件
-
-
-
-
-
-
 
 
 -----
 
 ####  白白白  
 ##### 2786#       发表于 2018-3-24 21:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38958881&amp;ptid=1572644" target="_blank">hgjam 发表于 2018-3-24 21:12</a>
@@ -24658,27 +16066,15 @@ GSC 辉夜月 黏土人 原型公开
 疯狂刷虫的先辈们太鬼畜了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2787#       发表于 2018-3-24 21:31
 
 
-
-
 太草了
 
 生放送一半去廁所
-
-
-
-
-
 
 
 -----
@@ -24687,13 +16083,7 @@ GSC 辉夜月 黏土人 原型公开
 ##### 2788#       发表于 2018-3-24 21:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">AZUMA人数就是上不去。。迷
-
-
-
-
-
 
 
 -----
@@ -24702,14 +16092,7 @@ GSC 辉夜月 黏土人 原型公开
 ##### 2789#       发表于 2018-3-24 21:38
 
 
-
-
 因为企划太烂了啊，我现在最喜欢的Vtuber是AzuLim也觉得动画和生放送的内容很差，像这种情况想再提升人气只能靠剪辑一些HighLight转载到Nico上，虽然官方也在往Nico上传视频而且再生数不咋地
-
-
-
-
-
 
 
 -----
@@ -24718,14 +16101,7 @@ GSC 辉夜月 黏土人 原型公开
 ##### 2790#       发表于 2018-3-24 21:39
 
 
-
-
 貓松看了一會，一群人在vrchat尝试堆多米诺，也有趣。
-
-
-
-
-
 
 
 -----
@@ -24734,14 +16110,7 @@ GSC 辉夜月 黏土人 原型公开
 ##### 2791#       发表于 2018-3-24 21:47
 
 
-
-
 中国粉丝还行
-
-
-
-
-
 
 
 -----
@@ -24750,14 +16119,7 @@ GSC 辉夜月 黏土人 原型公开
 ##### 2792#       发表于 2018-3-24 21:48
 
 
-
-
 中国先辈上镜
-
-
-
-
-
 
 
 -----
@@ -24766,22 +16128,13 @@ GSC 辉夜月 黏土人 原型公开
 ##### 2793#       发表于 2018-3-24 21:49
 
 
-
-
 这英语没救了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  lime2001  
 ##### 2794#       发表于 2018-3-24 21:54
-
-
 
 
 現在JK英語都那麼雜魚的麻
@@ -24791,32 +16144,19 @@ GSC 辉夜月 黏土人 原型公开
 應該是組長
 
 
-
-
-
-
-
 -----
 
 ####  plok201  
 ##### 2795#       发表于 2018-3-24 22:01
 
 
-
-
 虽然很可爱,但是视频却给人一种提不起劲去看的感觉,都是在其他vtuber那里看过差不多的...
-
-
-
-
-
 
 
 -----
 
 ####  白白白  
 ##### 2796#       发表于 2018-3-24 22:38
-
 
 
 [https://docs.google.com/forms/d/ ... wM6uGTC7Mw/viewform](https://docs.google.com/forms/d/e/1FAIpQLScESXWzaOuqsdSVIq_mOIXtPxpMoeXl61KQoa9jwM6uGTC7Mw/viewform)
@@ -24833,10 +16173,6 @@ GSC 辉夜月 黏土人 原型公开
 2018-3-24 22:36 上传
 
 
-
-
-
-
 主要是最后一问太草了，yua现在完全成为梗和战斗力单位<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 <img src="https://img.saraba1st.com/forum/201803/24/223505f2uunvqqrd2vu5nn.png" referrerpolicy="no-referrer">
@@ -24849,37 +16185,19 @@ GSC 辉夜月 黏土人 原型公开
 2018-3-24 22:35 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 2797#       发表于 2018-3-24 23:50
 
 
-
-
 我感觉虹河有下一代杂鱼的感觉，p站就六张图，本身视频也没特征
-
-
-
-
-
 
 
 -----
 
 ####  バーチャルS1er  
 ##### 2798#       发表于 2018-3-25 00:12
-
 
 
  本帖最后由 バーチャルS1er 于 2018-3-25 00:13 编辑 
@@ -24890,32 +16208,19 @@ GSC 辉夜月 黏土人 原型公开
 而且这周更的速度让我怀疑实际运营的只有2-3个人
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 2799#       发表于 2018-3-25 00:13
 
 
-
-
 万代赞助，把垃圾酱子供化卖周边，顺便给软胶做广告.......某青蛙表示欢迎。
-
-
-
-
-
 
 
 -----
 
 ####  bombmanbombman  
 ##### 2800#       发表于 2018-3-25 01:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38954376&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-24 12:35</a>
@@ -24928,16 +16233,10 @@ GSC 辉夜月 黏土人 原型公开
 应该猫宫为日本某企业集结了参天族的各号人来打不同的游戏的后期配音产物。
 
 
-
-
-
-
-
 -----
 
 ####  条纹桌布  
 ##### 2801#       发表于 2018-3-25 05:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38962942&amp;ptid=1572644" target="_blank">bombmanbombman 发表于 2018-3-25 01:58</a>
@@ -24946,17 +16245,10 @@ GSC 辉夜月 黏土人 原型公开
 这样对人气会有影响吧
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2802#       发表于 2018-3-25 07:40
-
-
 
 
 組長真的是無論如何充滿著迷
@@ -24966,17 +16258,10 @@ GSC 辉夜月 黏土人 原型公开
 然後開始跳起迷之舞蹈wwww
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 2803#       发表于 2018-3-25 08:50
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/25/084955lmkxnmp0iz0xna9a.jpg" referrerpolicy="no-referrer">
@@ -24989,16 +16274,7 @@ GSC 辉夜月 黏土人 原型公开
 2018-3-25 08:49 上传
 
 
-
-
-
-
 爱酱今天也要在aj露脸的样子
-
-
-
-
-
 
 
 -----
@@ -25007,14 +16283,7 @@ GSC 辉夜月 黏土人 原型公开
 ##### 2804#       发表于 2018-3-25 10:14
 
 
-
-
 nico的人数怎么算的？推出不算减少？在登入加一？组长参加这个番组60万人了...
-
-
-
-
-
 
 
 -----
@@ -25023,23 +16292,16 @@ nico的人数怎么算的？推出不算减少？在登入加一？组长参加�
 ##### 2805#       发表于 2018-3-25 10:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38965537&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-25 10:14</a>
 
 nico的人数怎么算的？推出不算减少？在登入加一？组长参加这个番组60万人了... ...</blockquote>
 嗯，就是累计人数
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2806#       发表于 2018-3-25 10:27
-
 
 
  本帖最后由 触手姬 于 2018-3-25 11:06 编辑 
@@ -25057,30 +16319,15 @@ nico的人数怎么算的？推出不算减少？在登入加一？组长参加�
 2018-3-25 11:06 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 2807#       发表于 2018-3-25 10:29
 
 
-
 <blockquote>触手姬 发表于 2018-3-25 10:14
 nico的人数怎么算的？推出不算减少？在登入加一？组长参加这个番组60万人了... ...</blockquote>
 nico的生放f5刷新都会算进累计人数里的
-
-
-
-
-
 
 
 -----
@@ -25089,14 +16336,7 @@ nico的生放f5刷新都会算进累计人数里的
 ##### 2808#       发表于 2018-3-25 10:32
 
 
-
-
 马男乱入XDDD
-
-
-
-
-
 
 
 -----
@@ -25105,14 +16345,7 @@ nico的生放f5刷新都会算进累计人数里的
 ##### 2809#       发表于 2018-3-25 10:32
 
 
-
-
 ウビバ亂入笑道岔氣
-
-
-
-
-
 
 
 -----
@@ -25121,14 +16354,7 @@ nico的生放f5刷新都会算进累计人数里的
 ##### 2810#       发表于 2018-3-25 10:44
 
 
-
-
 现场声优人气比组长高出几倍，组长还需要加油
-
-
-
-
-
 
 
 -----
@@ -25137,14 +16363,7 @@ nico的生放f5刷新都会算进累计人数里的
 ##### 2811#       发表于 2018-3-25 10:54
 
 
-
-
 马实体化草
-
-
-
-
-
 
 
 -----
@@ -25153,15 +16372,9 @@ nico的生放f5刷新都会算进累计人数里的
 ##### 2812#       发表于 2018-3-25 10:55
 
 
-
 <blockquote>触手姬 发表于 2018-3-25 10:44
 现场声优人气比组长高出几倍，组长还需要加油</blockquote>
 毕竟就算爱酱上去大概也是一样，vtuber还是轻量级。
-
-
-
-
-
 
 
 -----
@@ -25170,21 +16383,13 @@ nico的生放f5刷新都会算进累计人数里的
 ##### 2813#       发表于 2018-3-25 10:56
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">组长曲线救国，大概以前从来没想过和一线声优一起活动
-
-
-
-
-
 
 
 -----
 
 ####  大江户战士  
 ##### 2814#       发表于 2018-3-25 10:56
-
-
 
 
 组长这联动衣服好看啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -25199,30 +16404,15 @@ nico的生放f5刷新都会算进累计人数里的
 2018-3-25 10:56 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 2815#       发表于 2018-3-25 11:07
 
 
-
 <blockquote>大江户战士 发表于 2018-3-25 10:56
 组长这联动衣服好看啊</blockquote>
 还是安定的露背露侧乳
-
-
-
-
-
 
 
 -----
@@ -25231,15 +16421,9 @@ nico的生放f5刷新都会算进累计人数里的
 ##### 2816#       发表于 2018-3-25 11:15
 
 
-
 [http://www.nicovideo.jp/watch/sm32942076](http://www.nicovideo.jp/watch/sm32942076)
 
 笑死W
-
-
-
-
-
 
 
 -----
@@ -25248,16 +16432,10 @@ nico的生放f5刷新都会算进累计人数里的
 ##### 2817#       发表于 2018-3-25 11:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38966175&amp;ptid=1572644" target="_blank">神龙小生 发表于 2018-3-24 22:07</a>
 
 还是安定的露背露侧乳</blockquote>
 而且看上去是全身白丝，wtmsb
-
-
-
-
-
 
 
 -----
@@ -25266,21 +16444,13 @@ nico的生放f5刷新都会算进累计人数里的
 ##### 2818#       发表于 2018-3-25 12:03
 
 
-
-
 哪来的梗，看了推 组长为什么叫她自己电线杆了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  lime2001  
 ##### 2819#       发表于 2018-3-25 12:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38966789&amp;ptid=1572644" target="_blank">StardustNoir 发表于 2018-3-25 12:03</a>
@@ -25291,17 +16461,10 @@ nico的生放f5刷新都会算进累计人数里的
 小螢幕就掛著一個柱子一樣的東西上面阿
 
 
-
-
-
-
-
 -----
 
 ####  大江户战士  
 ##### 2820#       发表于 2018-3-25 13:45
-
-
 
 
 组长联动衣服大图，太瑟琴了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">舔爆
@@ -25316,37 +16479,19 @@ nico的生放f5刷新都会算进累计人数里的
 2018-3-25 13:45 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  snova搬运  
 ##### 2821#       发表于 2018-3-25 14:09
 
 
-
-
 不得不说组长衣服真是有数量有质量，舔爆舔爆
-
-
-
-
-
 
 
 -----
 
 ####  plok201  
 ##### 2822#       发表于 2018-3-25 16:08
-
-
 
 
 现在感觉彩虹组最可怕的果然还是群众的创造力
@@ -25358,17 +16503,10 @@ nico的生放f5刷新都会算进累计人数里的
 比如衣服可以征集,然后投票,第一的就实装什么的<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Porsche  
 ##### 2823#       发表于 2018-3-25 16:13
-
-
 
 
 月ノ美兎
@@ -25385,16 +16523,10 @@ nico的生放f5刷新都会算进累计人数里的
 是非遊びにきてくださいね〜！！
 
 
-
-
-
-
-
 -----
 
 ####  Porsche  
 ##### 2824#       发表于 2018-3-25 16:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38969420&amp;ptid=1572644" target="_blank">plok201 发表于 2018-3-25 16:08</a>
@@ -25409,16 +16541,10 @@ nico的生放f5刷新都会算进累计人数里的
 反面例子看Laki的企业，根本无药可救
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 2825#       发表于 2018-3-25 16:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38969520&amp;ptid=1572644" target="_blank">Porsche 发表于 2018-3-25 16:15</a>
@@ -25430,27 +16556,15 @@ nico的生放f5刷新都会算进累计人数里的
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">p站只有六张图（没加任何关键字），惨的不能再惨，委员长是带user一天都可能不止六张。
 
 
-
-
-
-
-
 -----
 
 ####  cao1rui2  
 ##### 2826#       发表于 2018-3-25 17:29
 
 
-
-
 猫宫的新 视 频语速好快，还老喷麦，感觉像是在家随便录的
 
 **也能屏蔽？
-
-
-
-
-
 
 
 -----
@@ -25459,13 +16573,7 @@ nico的生放f5刷新都会算进累计人数里的
 ##### 2827#       发表于 2018-3-25 17:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">班长终于要个人播了！！（不过话说看到个扒视频突然降低3W点击的（24W-21W（现在29W）  大丈夫么。。。
-
-
-
-
-
 
 
 -----
@@ -25474,14 +16582,7 @@ nico的生放f5刷新都会算进累计人数里的
 ##### 2828#       发表于 2018-3-25 17:57
 
 
-
-
 cy你们也要搞虚拟Youtuber啊www（实际还是[游戏宣传](https://bbs.saraba1st.com/2b/thread-1590697-1-1.html)）
-
-
-
-
-
 
 
 -----
@@ -25490,23 +16591,16 @@ cy你们也要搞虚拟Youtuber啊www（实际还是[游戏宣传](https://bbs.s
 ##### 2829#       发表于 2018-3-25 18:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38970826&amp;ptid=1572644" target="_blank">wfhtony 发表于 2018-3-25 17:57</a>
 
 cy你们也要搞虚拟Youtuber啊www（实际还是游戏宣传）</blockquote>
 CY要搞Vtuber？？？
 
 
-
-
-
-
-
 -----
 
 ####  wfhtony  
 ##### 2830#       发表于 2018-3-25 18:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38970982&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-25 18:10</a>
@@ -25517,16 +16611,10 @@ CY要搞Vtuber？？？</blockquote>
 而且硬说的话某种意义上也确实不符合虚拟油管主的定义（[中之人完全不需要猜](https://umamusume.jp/character/)）。
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2831#       发表于 2018-3-25 18:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38971034&amp;ptid=1572644" target="_blank">wfhtony 发表于 2018-3-25 18:15</a>
@@ -25537,32 +16625,19 @@ CY要搞Vtuber？？？</blockquote>
 有新闻地址吗？
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 2832#       发表于 2018-3-25 18:18
 
 
-
-
 沒想到猫宫这么快就开始接手游广告，广告我不反对，但录得这么无聊真的好劝退观众啊<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  wfhtony  
 ##### 2833#       发表于 2018-3-25 18:19
-
 
 
  本帖最后由 wfhtony 于 2018-3-25 18:45 编辑 
@@ -25577,24 +16652,13 @@ CY要搞Vtuber？？？</blockquote>
 [官网](https://pakatube.umamusume.jp/) | [YouTube频道](https://www.youtube.com/channel/UCAWxPGGuIfWME2KTLUmSCHw)
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2834#       发表于 2018-3-25 18:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">诗子姐终于油土鳖播了
-
-
-
-
-
 
 
 -----
@@ -25603,22 +16667,15 @@ CY要搞Vtuber？？？</blockquote>
 ##### 2835#       发表于 2018-3-25 18:23
 
 
-
 <blockquote>白白白 发表于 2018-3-25 18:18
 沒想到猫宫这么快就开始接手游广告，广告我不反对，但录得这么无聊真的好劝退观众啊 ...</blockquote>
 真的 同樣的手遊 組長就有趣多了 
-
-
-
-
-
 
 
 -----
 
 ####  触手姬  
 ##### 2836#       发表于 2018-3-25 18:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38971076&amp;ptid=1572644" target="_blank">wfhtony 发表于 2018-3-25 18:19</a>
@@ -25629,16 +16686,10 @@ CY要搞Vtuber？？？</blockquote>
 竟然是马娘角色Vtuber化吗
 
 
-
-
-
-
-
 -----
 
 ####  wfhtony  
 ##### 2837#       发表于 2018-3-25 18:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38971137&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-25 18:24</a>
@@ -25647,25 +16698,13 @@ CY要搞Vtuber？？？</blockquote>
 Yep.
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 2838#       发表于 2018-3-25 18:38
 
 
-
-
 虽然还是射射射，不过这次猫宫玩的的确是转向宅元素向了。
-
-
-
-
-
 
 
 -----
@@ -25674,15 +16713,9 @@ Yep.
 ##### 2839#       发表于 2018-3-25 18:39
 
 
-
 <blockquote>触手姬 发表于 2018-3-25 18:24
 竟然是马娘角色Vtuber化吗</blockquote>
 马娘啊…嘛想想，动画也少不了马娘跑圈的建模，顺应风潮。
-
-
-
-
-
 
 
 -----
@@ -25691,13 +16724,7 @@ Yep.
 ##### 2840#       发表于 2018-3-25 18:43
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">..彩虹社这得给培训下软件注意教程吧。。诗子姐也虚空配信了
-
-
-
-
-
 
 
 -----
@@ -25706,13 +16733,7 @@ Yep.
 ##### 2841#       发表于 2018-3-25 18:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">卧槽不止虚空配信。还好是开了外置摄像头没拍到脸
-
-
-
-
-
 
 
 -----
@@ -25721,14 +16742,7 @@ Yep.
 ##### 2842#       发表于 2018-3-25 20:04
 
 
-
-
 班长开始了，回归欧洲企划<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25737,14 +16751,7 @@ Yep.
 ##### 2843#       发表于 2018-3-25 20:04
 
 
-
-
 班长直播开始前待机7000人  开始时瞬间1w5
-
-
-
-
-
 
 
 -----
@@ -25753,13 +16760,7 @@ Yep.
 ##### 2844#       发表于 2018-3-25 20:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">2W了 太恐怖
-
-
-
-
-
 
 
 -----
@@ -25768,14 +16769,7 @@ Yep.
 ##### 2845#       发表于 2018-3-25 20:14
 
 
-
-
 凛那边班长直播前我记得有七千人，班长一开始立马减到四千多人了，一点想法都没有我觉得是不可能的，以后别的Vtuber先不说にじさんじ成员还是避开班长生放送比较好
-
-
-
-
-
 
 
 -----
@@ -25784,16 +16778,10 @@ Yep.
 ##### 2846#       发表于 2018-3-25 20:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38972223&amp;ptid=1572644" target="_blank">v2c 发表于 2018-3-25 20:14</a>
 
 凛那边班长直播前我记得有七千人，班长一开始立马减到四千多人了，一点想法都没有我觉得是不可能的，以后别 ...</blockquote>
 的确是这样。。经常班长结束后撞车的（女性组）会突然空降3-4000人
-
-
-
-
-
 
 
 -----
@@ -25802,14 +16790,7 @@ Yep.
 ##### 2847#       发表于 2018-3-25 20:19
 
 
-
-
 不过班长3天才播一次，凛24小时已经播了3次了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25818,13 +16799,7 @@ Yep.
 ##### 2848#       发表于 2018-3-25 20:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不会数数
-
-
-
-
-
 
 
 -----
@@ -25833,14 +16808,7 @@ Yep.
 ##### 2849#       发表于 2018-3-25 20:23
 
 
-
-
 妈的男女KISS你挡个毛线啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25849,13 +16817,7 @@ Yep.
 ##### 2850#       发表于 2018-3-25 20:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">歪打正着可还行
-
-
-
-
-
 
 
 -----
@@ -25864,14 +16826,7 @@ Yep.
 ##### 2851#       发表于 2018-3-25 20:37
 
 
-
-
 班长这回直播需要的日语力好高，听不懂了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25880,13 +16835,7 @@ Yep.
 ##### 2852#       发表于 2018-3-25 20:45
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这次的欧洲企划感觉没有以前那么草了……不是日语的问题
-
-
-
-
-
 
 
 -----
@@ -25895,14 +16844,7 @@ Yep.
 ##### 2853#       发表于 2018-3-25 20:47
 
 
-
-
 毕竟肯定还是会有几个正常的吧。。吧
-
-
-
-
-
 
 
 -----
@@ -25911,14 +16853,7 @@ Yep.
 ##### 2854#       发表于 2018-3-25 21:12
 
 
-
-
 这次班长选的解谜游戏可算把自己坑进去了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，人设快崩没了
-
-
-
-
-
 
 
 -----
@@ -25927,14 +16862,7 @@ Yep.
 ##### 2855#       发表于 2018-3-25 21:12
 
 
-
-
 宽松教育还行 真实JK 草
-
-
-
-
-
 
 
 -----
@@ -25943,17 +16871,10 @@ Yep.
 ##### 2856#       发表于 2018-3-25 21:14
 
 
-
-
 被嘲笑ゆとり世代还行
 
 
 不过フェイーバリ我一开始还没听出哪里不对，我也完了
-
-
-
-
-
 
 
 -----
@@ -25962,13 +16883,7 @@ Yep.
 ##### 2857#       发表于 2018-3-25 21:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">毕竟杂鱼啊wwww
-
-
-
-
-
 
 
 -----
@@ -25977,16 +16892,9 @@ Yep.
 ##### 2858#       发表于 2018-3-25 21:21
 
 
-
-
 相比几年前的ゲームフェスティバル制作质量也可以看出europe企划进化的程度了，
 
 特别是剧团演员的演技和道具已经让人察觉出这不是一个没事搞粪游戏的小团体了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25995,13 +16903,7 @@ Yep.
 ##### 2859#       发表于 2018-3-25 21:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">班长刚才说忍着不去上厕所的时候说自己是坐着的，这次是个什么姿势在直播（她坐着却不让观众坐）
-
-
-
-
-
 
 
 -----
@@ -26010,14 +16912,7 @@ Yep.
 ##### 2860#       发表于 2018-3-25 21:24
 
 
-
-
 结果刚说完就来了个クソゲー<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26026,14 +16921,7 @@ Yep.
 ##### 2861#       发表于 2018-3-25 21:25
 
 
-
-
 モイラ50W羊10分不到完成，行动力有点高
-
-
-
-
-
 
 
 -----
@@ -26042,14 +16930,7 @@ Yep.
 ##### 2862#       发表于 2018-3-25 21:29
 
 
-
-
 Mari Channel的生放真有趣，2个酒鬼和观众互动
-
-
-
-
-
 
 
 -----
@@ -26058,14 +16939,7 @@ Mari Channel的生放真有趣，2个酒鬼和观众互动
 ##### 2863#       发表于 2018-3-25 21:31
 
 
-
-
 唱起了地球防卫少年的班长…
-
-
-
-
-
 
 
 -----
@@ -26074,13 +16948,7 @@ Mari Channel的生放真有趣，2个酒鬼和观众互动
 ##### 2864#       发表于 2018-3-25 21:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">去整3D啊！群众热情这么高w
-
-
-
-
-
 
 
 -----
@@ -26089,13 +16957,7 @@ Mari Channel的生放真有趣，2个酒鬼和观众互动
 ##### 2865#       发表于 2018-3-25 21:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">..发了个带班长直播话题的推还有人来回复谢谢发推
-
-
-
-
-
 
 
 -----
@@ -26104,13 +16966,7 @@ Mari Channel的生放真有趣，2个酒鬼和观众互动
 ##### 2866#       发表于 2018-3-25 21:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">完蛋，又要重头来
-
-
-
-
-
 
 
 -----
@@ -26119,14 +16975,7 @@ Mari Channel的生放真有趣，2个酒鬼和观众互动
 ##### 2867#       发表于 2018-3-25 21:41
 
 
-
-
 事故出现了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26135,15 +16984,9 @@ Mari Channel的生放真有趣，2个酒鬼和观众互动
 ##### 2868#       发表于 2018-3-25 21:42
 
 
-
  本帖最后由 xiangcaihtr 于 2018-3-25 22:04 编辑 
 
 .
-
-
-
-
-
 
 
 -----
@@ -26152,13 +16995,7 @@ Mari Channel的生放真有趣，2个酒鬼和观众互动
 ##### 2869#       发表于 2018-3-25 21:43
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">班长上厕所用bgm moon！
-
-
-
-
-
 
 
 -----
@@ -26167,16 +17004,10 @@ Mari Channel的生放真有趣，2个酒鬼和观众互动
 ##### 2870#       发表于 2018-3-25 21:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38973052&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-25 21:38</a>
 
 去整3D啊！群众热情这么高w</blockquote>
 3D化其实蛮难的，自身需要一定的技术力，直播环境和器材
-
-
-
-
-
 
 
 -----
@@ -26185,14 +17016,7 @@ Mari Channel的生放真有趣，2个酒鬼和观众互动
 ##### 2871#       发表于 2018-3-25 21:43
 
 
-
-
 不知道上传的时候这段会不会减掉
-
-
-
-
-
 
 
 -----
@@ -26201,16 +17025,10 @@ Mari Channel的生放真有趣，2个酒鬼和观众互动
 ##### 2872#       发表于 2018-3-25 21:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38973130&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-25 21:43</a>
 
 3D化其实蛮难的，自身需要一定的技术力，直播环境和器材</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">是啊。。哎
-
-
-
-
-
 
 
 -----
@@ -26219,14 +17037,7 @@ Mari Channel的生放真有趣，2个酒鬼和观众互动
 ##### 2873#       发表于 2018-3-25 21:44
 
 
-
-
 洗手了么2333333333333
-
-
-
-
-
 
 
 -----
@@ -26235,14 +17046,7 @@ Mari Channel的生放真有趣，2个酒鬼和观众互动
 ##### 2874#       发表于 2018-3-25 21:45
 
 
-
-
 洗衣机离厕所超近还行。上厕所比男人还快
-
-
-
-
-
 
 
 -----
@@ -26251,21 +17055,13 @@ Mari Channel的生放真有趣，2个酒鬼和观众互动
 ##### 2875#       发表于 2018-3-25 21:46
 
 
-
-
 委員長トイレ配信說
-
-
-
-
-
 
 
 -----
 
 ####  lime2001  
 ##### 2876#       发表于 2018-3-25 21:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38973103&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-25 21:42</a>
@@ -26276,16 +17072,10 @@ Vtuber直播去厕所第一人</blockquote>
 第一人是後輩醬!
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2877#       发表于 2018-3-25 21:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38973210&amp;ptid=1572644" target="_blank">lime2001 发表于 2018-3-25 21:49</a>
@@ -26296,32 +17086,19 @@ Vtuber直播去厕所第一人</blockquote>
 AZUMA么？（不是一直憋着不去么ww 哪期去了么（求详细
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2878#       发表于 2018-3-25 21:51
 
 
-
-
 其实去洗手间的人不少，不过你们大概没看过...
-
-
-
-
-
 
 
 -----
 
 ####  lime2001  
 ##### 2879#       发表于 2018-3-25 21:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38973130&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-25 21:43</a>
@@ -26334,16 +17111,10 @@ neteron一套才20萬
 unity的技術比較麻煩
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2880#       发表于 2018-3-25 21:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38973245&amp;ptid=1572644" target="_blank">lime2001 发表于 2018-3-25 21:52</a>
@@ -26356,16 +17127,10 @@ unity的技術比較麻煩</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">这就得公司协力了。。目前看彩虹连app和直播软件具体注意事项都没培训好啊 诗子姐今天也差点出事
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2881#       发表于 2018-3-25 22:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38973222&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-25 21:50</a>
@@ -26376,25 +17141,13 @@ AZUMA么？（不是一直憋着不去么ww 哪期去了么（求详细</blockqu
 去了兩次　還自己唱歌當音姬wwww
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 2882#       发表于 2018-3-25 22:52
 
 
-
-
 有人在5CH开了一个Vtuber马娘楼，然后马上被人发现楼主的IP地址是HRT那边了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26403,16 +17156,10 @@ AZUMA么？（不是一直憋着不去么ww 哪期去了么（求详细</blockqu
 ##### 2883#       发表于 2018-3-25 23:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38973845&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-25 22:52</a>
 
 有人在5CH开了一个Vtuber马娘楼，然后马上被人发现楼主的IP地址是HRT那边了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可怜的HRT已经做起这工作了，原来的明星P现在成这模样
-
-
-
-
-
 
 
 -----
@@ -26421,16 +17168,10 @@ AZUMA么？（不是一直憋着不去么ww 哪期去了么（求详细</blockqu
 ##### 2884#         楼主| 发表于 2018-3-26 00:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38973130&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-25 21:43</a>
 
 3D化其实蛮难的，自身需要一定的技术力，直播环境和器材</blockquote>
 的确不容易。需要公司完整的组建起一个可以3d化的团队。这根本是从0开始。不止是有模型就可以了的事情。
-
-
-
-
-
 
 
 -----
@@ -26439,14 +17180,7 @@ AZUMA么？（不是一直憋着不去么ww 哪期去了么（求详细</blockqu
 ##### 2885#       发表于 2018-3-26 03:29
 
 
-
-
 爱酱玩心跳文学部疯狂diss废宅主人公草生，要掉粉了！要掉粉了！感觉爱酱越来越强势了
-
-
-
-
-
 
 
 -----
@@ -26455,14 +17189,7 @@ AZUMA么？（不是一直憋着不去么ww 哪期去了么（求详细</blockqu
 ##### 2886#       发表于 2018-3-26 08:21
 
 
-
-
 枫刚刚传了Harmony的翻唱版！！！~~ [https://www.youtube.com/watch?v=_7yLua9O9Us](https://www.youtube.com/watch?v=_7yLua9O9Us)<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26471,14 +17198,7 @@ AZUMA么？（不是一直憋着不去么ww 哪期去了么（求详细</blockqu
 ##### 2887#       发表于 2018-3-26 08:32
 
 
-
-
 其实3d化没那么难，有一套设备之后用现成的动捕软件就行，野良猫就是身上绑了四个WiiU手柄<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26487,16 +17207,10 @@ AZUMA么？（不是一直憋着不去么ww 哪期去了么（求详细</blockqu
 ##### 2888#       发表于 2018-3-26 08:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38976160&amp;ptid=1572644" target="_blank">ror 发表于 2018-3-26 08:32</a>
 
 其实3d化没那么难，有一套设备之后用现成的动捕软件就行，野良猫就是身上绑了四个WiiU手柄 ...</blockquote>
 问题彩虹社相当于挂了企业的个人势，不会点最基础的技术出了事也没法处理
-
-
-
-
-
 
 
 -----
@@ -26505,25 +17219,16 @@ AZUMA么？（不是一直憋着不去么ww 哪期去了么（求详细</blockqu
 ##### 2889#       发表于 2018-3-26 09:31
 
 
-
-
 目前看连软件都没培训好……3D估计梦里了
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 2890#       发表于 2018-3-26 10:11
-
-
 
 
 有人关注那个虚拟护士药袋么
@@ -26535,17 +17240,10 @@ AZUMA么？（不是一直憋着不去么ww 哪期去了么（求详细</blockqu
 中之人应该也是多才多艺的设定，三无的声线也十分好评
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2891#       发表于 2018-3-26 10:39
-
-
 
 
 3D的Vtuber
@@ -26559,16 +17257,10 @@ AZUMA么？（不是一直憋着不去么ww 哪期去了么（求详细</blockqu
 不懂日文根本不知道她在幹嘛...
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 2892#       发表于 2018-3-26 12:11
-
 
 
  本帖最后由 walfeds 于 2018-3-26 12:41 编辑 
@@ -26592,23 +17284,10 @@ AZUMA么？（不是一直憋着不去么ww 哪期去了么（求详细</blockqu
 2018-3-26 12:40 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 2893#       发表于 2018-3-26 12:18
-
 
 
  本帖最后由 walfeds 于 2018-3-26 12:25 编辑 
@@ -26624,10 +17303,6 @@ AZUMA么？（不是一直憋着不去么ww 哪期去了么（求详细</blockqu
 2018-3-26 12:16 上传
 
 
-
-
-
-
 喷了，使魔失格<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
@@ -26639,10 +17314,6 @@ AZUMA么？（不是一直憋着不去么ww 哪期去了么（求详细</blockqu
 下载附件
 
 2018-3-26 12:22 上传
-
-
-
-
 
 
 有这技术做什么游戏实况，浪费啊（捶地
@@ -26658,17 +17329,8 @@ AZUMA么？（不是一直憋着不去么ww 哪期去了么（求详细</blockqu
 2018-3-26 12:23 上传
 
 
-
-
-
-
 某vtuber同人游戏炸虾飞行好像完工了，可用角色狐娘大叔&amp;猫宫：
 [http://tsoft-web.com/bironist/ebiflying/](http://tsoft-web.com/bironist/ebiflying/)
-
-
-
-
-
 
 
 -----
@@ -26677,14 +17339,7 @@ AZUMA么？（不是一直憋着不去么ww 哪期去了么（求详细</blockqu
 ##### 2894#       发表于 2018-3-26 12:22
 
 
-
-
 之前看ハジメ的粉说是ハジメ在帮忙教其他成员技术<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26693,22 +17348,14 @@ AZUMA么？（不是一直憋着不去么ww 哪期去了么（求详细</blockqu
 ##### 2895#       发表于 2018-3-26 12:32
 
 
-
-
 https://youtu.be/Lj9AkNxxBbM
 马娘vtuber第一期，爱马仕们快去订阅吧
-
-
-
-
-
 
 
 -----
 
 ####  神龙小生  
 ##### 2896#       发表于 2018-3-26 13:18
-
 
 
 <blockquote>walfeds 发表于 2018-3-26 12:18
@@ -26723,16 +17370,10 @@ https://youtu.be/Lj9AkNxxBbM
 幕后，晒辉夜月痛衫的马叔与举起akm的小白。
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 2897#       发表于 2018-3-26 13:19
-
 
 
  本帖最后由 神龙小生 于 2018-3-26 13:22 编辑 
@@ -26740,16 +17381,10 @@ https://youtu.be/Lj9AkNxxBbM
 编辑掉
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2898#       发表于 2018-3-26 13:21
-
 
 
  本帖最后由 触手姬 于 2018-3-26 13:32 编辑 
@@ -26759,26 +17394,15 @@ https://youtu.be/Lj9AkNxxBbM
 的确有帮勇气和后辈一些直播基础技术，你可以看下勇气的某期，有壶之声
 
 
-
-
-
-
-
 -----
 
 ####  ror  
 ##### 2899#       发表于 2018-3-26 13:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38979297&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-26 12:18</a>
 喷了，使魔失格</blockquote>
 克服了vtuber最大弱点的男人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26787,23 +17411,15 @@ https://youtu.be/Lj9AkNxxBbM
 ##### 2900#       发表于 2018-3-26 13:24
 
 
-
-
 唯一突破虚拟与现实的男人！
 
 说话我怀疑马男是公司的社长
-
-
-
-
-
 
 
 -----
 
 ####  白白白  
 ##### 2901#       发表于 2018-3-26 13:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38980275&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-26 13:24</a>
@@ -26813,25 +17429,13 @@ https://youtu.be/Lj9AkNxxBbM
 马男从出道开始就被说是公司社长，不过到现在都没实锤
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 2902#       发表于 2018-3-26 13:36
 
 
-
-
 辉夜月在推特说下一次视频更新将会有“重大发表”，然后围观群众纷纷问是不是要接披萨还是strongzreo广告了？2333
-
-
-
-
-
 
 
 -----
@@ -26840,23 +17444,16 @@ https://youtu.be/Lj9AkNxxBbM
 ##### 2903#       发表于 2018-3-26 13:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38980400&amp;ptid=1572644" target="_blank">神龙小生 发表于 2018-3-26 13:36</a>
 
 辉夜月在推特说下一次视频更新将会有“重大发表”，然后围观群众纷纷问是不是要接披萨还是strongzreo广告了 ...</blockquote>
 为啥？有啥梗吗
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2904#       发表于 2018-3-26 13:40
-
 
 
  本帖最后由 触手姬 于 2018-3-26 13:43 编辑 
@@ -26866,26 +17463,15 @@ https://youtu.be/Lj9AkNxxBbM
 酒我知道，披萨是怎么回事
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 2905#       发表于 2018-3-26 13:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38980443&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-26 13:40</a>
 酒我知道，披萨是怎么回事</blockquote>
 曾经在视频里和推上提过想接披萨cm
-
-
-
-
-
 
 
 -----
@@ -26894,23 +17480,15 @@ https://youtu.be/Lj9AkNxxBbM
 ##### 2906#       发表于 2018-3-26 13:56
 
 
-
 <blockquote>触手姬 发表于 2018-3-26 13:40
 酒我知道，披萨是怎么回事</blockquote>
 她在庆祝老大100w的视频里说想与老大一起接披萨广告
-
-
-
-
-
 
 
 -----
 
 ####  白白白  
 ##### 2907#       发表于 2018-3-26 13:57
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/26/135517r600u4pyzr4vrm09.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
@@ -26923,17 +17501,7 @@ https://youtu.be/Lj9AkNxxBbM
 2018-3-26 13:55 上传
 
 
-
-
-
-
-
 这梗这么快就被人画出来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
-
-
-
-
-
 
 
 -----
@@ -26942,15 +17510,9 @@ https://youtu.be/Lj9AkNxxBbM
 ##### 2908#       发表于 2018-3-26 13:58
 
 
-
 <blockquote>白白白 发表于 2018-3-26 13:57
 这梗这么快就被人画出来了</blockquote>
 性格对话微妙的凑合
-
-
-
-
-
 
 
 -----
@@ -26959,21 +17521,13 @@ https://youtu.be/Lj9AkNxxBbM
 ##### 2909#       发表于 2018-3-26 14:08
 
 
-
-
 【速报】虹河ラキ总登陆数总算突破30000了。
-
-
-
-
-
 
 
 -----
 
 ####  白白白  
 ##### 2910#       发表于 2018-3-26 16:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38980745&amp;ptid=1572644" target="_blank">神龙小生 发表于 2018-3-26 14:08</a>
@@ -26991,33 +17545,15 @@ https://youtu.be/Lj9AkNxxBbM
 2018-3-26 16:03 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 2911#       发表于 2018-3-26 16:28
 
 
-
 <blockquote>白白白 发表于 2018-3-26 16:04
 【悲报】又退回来了</blockquote>
 hidoi~突然没了上百。_(:з」∠)_
-
-
-
-
-
 
 
 -----
@@ -27026,16 +17562,10 @@ hidoi~突然没了上百。_(:з」∠)_
 ##### 2912#       发表于 2018-3-26 16:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38982160&amp;ptid=1572644" target="_blank">白白白 发表于 2018-3-26 16:04</a>
 
 【悲报】又退回来了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我觉得不单指是运营鬼畜，我们都想看到小青蛙怎么个惨法。
-
-
-
-
-
 
 
 -----
@@ -27044,15 +17574,9 @@ hidoi~突然没了上百。_(:з」∠)_
 ##### 2913#       发表于 2018-3-26 16:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38982608&amp;ptid=1572644" target="_blank">横寺阳人 发表于 2018-3-26 16:37</a>
 我觉得不单指是运营鬼畜，我们都想看到小青蛙怎么个惨法。</blockquote>
 鬼畜运营吸引鬼畜观众<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27061,14 +17585,7 @@ hidoi~突然没了上百。_(:з」∠)_
 ##### 2914#       发表于 2018-3-26 17:01
 
 
-
-
 说起直播去洗手间的代表应该要算一个若菜，观众还听到了尿声<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27077,16 +17594,10 @@ hidoi~突然没了上百。_(:з」∠)_
 ##### 2915#       发表于 2018-3-26 17:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38982974&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-26 17:01</a>
 
 说起直播去洗手间的代表应该要算一个若菜，观众还听到了尿声</blockquote>
 若菜是男性V人气还不高，估计没多少人认识
-
-
-
-
-
 
 
 -----
@@ -27095,21 +17606,13 @@ hidoi~突然没了上百。_(:з」∠)_
 ##### 2916#       发表于 2018-3-26 17:20
 
 
-
-
 鬼畜的运营，鬼畜的粉丝（笑
-
-
-
-
-
 
 
 -----
 
 ####  バーチャルS1er  
 ##### 2917#       发表于 2018-3-26 17:52
-
 
 
 [http://www.nicovideo.jp/watch/1521790326](http://www.nicovideo.jp/watch/1521790326)
@@ -27132,17 +17635,10 @@ CV：金元寿子
 虽然只是玩Vtuber梗的广告，但是就漫画作者自己提供的台本来看的话效果挺好的
 
 
-
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2918#       发表于 2018-3-26 18:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38983721&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-26 17:52</a>
@@ -27154,25 +17650,13 @@ http://www.nicovideo.jp/watch/1521790326
 <img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">这不是neet子么ww 
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2919#       发表于 2018-3-26 18:11
 
 
-
-
 組長果然是遊戲玩家啊 愛醬沒打完的奧德賽 小白已經快全破了wwww
-
-
-
-
-
 
 
 -----
@@ -27181,16 +17665,10 @@ http://www.nicovideo.jp/watch/1521790326
 ##### 2920#       发表于 2018-3-26 18:41
 
 
-
 <img src="http://ww1.sinaimg.cn/large/732205bcgy1fpqeojfq5sj20w70id1cu.jpg" referrerpolicy="no-referrer">
 <img src="http://ww1.sinaimg.cn/large/732205bcgy1fpqeogx8sbj20om059jwb.jpg" referrerpolicy="no-referrer">
 <img src="http://ww1.sinaimg.cn/large/732205bcgy1fpqeol2hbuj20w50i5h67.jpg" referrerpolicy="no-referrer">
 <img src="http://ww1.sinaimg.cn/large/732205bcgy1fpqeokmd6jj20v50i4ka0.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27199,14 +17677,8 @@ http://www.nicovideo.jp/watch/1521790326
 ##### 2921#       发表于 2018-3-26 19:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38984407&amp;ptid=1572644" target="_blank">喜闻乐见 发表于 2018-3-26 18:41</a></blockquote>
 这手办是按某爱心目中的理想体型做的吧<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">明明胸平到穿模
-
-
-
-
-
 
 
 -----
@@ -27215,14 +17687,7 @@ http://www.nicovideo.jp/watch/1521790326
 ##### 2922#       发表于 2018-3-26 19:24
 
 
-
-
 でろーん居然上的是中高一貫校，大小姐？<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27231,16 +17696,10 @@ http://www.nicovideo.jp/watch/1521790326
 ##### 2923#       发表于 2018-3-26 19:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38984027&amp;ptid=1572644" target="_blank">lime2001 发表于 2018-3-26 18:11</a>
 
 組長果然是遊戲玩家啊 愛醬沒打完的奧德賽 小白已經快全破了wwww</blockquote>
 录播和自己玩差别还是很大的
-
-
-
-
-
 
 
 -----
@@ -27249,20 +17708,13 @@ http://www.nicovideo.jp/watch/1521790326
 ##### 2924#       发表于 2018-3-26 19:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">组长到底啥时候才正式换春装
-
-
-
-
-
 
 
 -----
 
 ####  walfeds  
 ##### 2925#       发表于 2018-3-26 19:57
-
 
 
  本帖最后由 walfeds 于 2018-3-26 19:59 编辑 
@@ -27276,16 +17728,10 @@ http://www.nicovideo.jp/watch/1521790326
 套vtuber的皮有点强行，不过live2d真好啊。。。
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2926#       发表于 2018-3-26 20:12
-
 
 
  本帖最后由 触手姬 于 2018-3-26 20:13 编辑 
@@ -27303,20 +17749,10 @@ CY太乱来了，直接把游戏里的角色丢去做vtuber
 2018-3-26 20:12 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 2927#       发表于 2018-3-26 20:12
-
 
 
  本帖最后由 walfeds 于 2018-3-26 20:16 编辑 
@@ -27324,16 +17760,10 @@ CY太乱来了，直接把游戏里的角色丢去做vtuber
 （）
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2928#       发表于 2018-3-26 20:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38985432&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-26 20:12</a>
@@ -27344,16 +17774,10 @@ http://www.nicovideo.jp/watch/sm32948564
 噗，唱的竟然还不错
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 2929#       发表于 2018-3-26 20:18
-
 
 
  本帖最后由 神龙小生 于 2018-3-26 20:22 编辑 
@@ -27363,24 +17787,13 @@ CY太乱来了，直接把游戏里的角色丢去做vtuber</blockquote>
 毫无问题，前几页我还专门发了个某16年的偶像手游如今原装角色cv出道vtuber，顺便讨论了几句有关版权角色vtuber出道的事。
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2930#       发表于 2018-3-26 20:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">大叔的歌循环中
-
-
-
-
-
 
 
 -----
@@ -27389,15 +17802,9 @@ CY太乱来了，直接把游戏里的角色丢去做vtuber</blockquote>
 ##### 2931#       发表于 2018-3-26 20:36
 
 
-
 [https://www.youtube.com/watch?v=RgbfAPLhtk8](https://www.youtube.com/watch?v=RgbfAPLhtk8)
 
 田中这孩子。。。真有前途<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27406,14 +17813,7 @@ CY太乱来了，直接把游戏里的角色丢去做vtuber</blockquote>
 ##### 2932#       发表于 2018-3-26 20:53
 
 
-
-
 玩班长昨天那个解谜游戏，本来一切顺利，到了周期表那里一时填错了居然没有返回键<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27422,23 +17822,16 @@ CY太乱来了，直接把游戏里的角色丢去做vtuber</blockquote>
 ##### 2933#       发表于 2018-3-26 21:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38984894&amp;ptid=1572644" target="_blank">Porsche 发表于 2018-3-26 19:24</a>
 
 でろーん居然上的是中高一貫校，大小姐？</blockquote>
 诶！在哪一期说到了？
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 2934#       发表于 2018-3-26 21:05
-
 
 
 <blockquote>walfeds 发表于 2018-3-26 20:36
@@ -27448,16 +17841,10 @@ https://www.youtube.com/watch?v=RgbfAPLhtk8
 同，准备视频积累了5000，第一话又积累了4000，不知这话过去能不能再爆多点。
 
 
-
-
-
-
-
 -----
 
 ####  Porsche  
 ##### 2935#       发表于 2018-3-26 21:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38985944&amp;ptid=1572644" target="_blank">a5850180 发表于 2018-3-26 21:03</a>
@@ -27466,28 +17853,16 @@ https://www.youtube.com/watch?v=RgbfAPLhtk8
 就今晚<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">突然开了会直播
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 2936#       发表于 2018-3-26 21:16
 
 
-
-
 听课azulim唱shape of you
 真的好可爱啊，萌的要化了
 
 —— 来自 HUAWEI BND-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -27503,14 +17878,8 @@ Title
 最新的关系网。
 
 
-
-
-
-
 1522064898104.jpg
 (94.68 KB, 下载次数: 60)
-
-
 
 
 下载附件
@@ -27519,31 +17888,13 @@ Title
 2018-3-26 21:25 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/26/212556rg3ww3330g003et3.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  卡蓮  
 ##### 2938#       发表于 2018-3-26 21:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38977499&amp;ptid=1572644" target="_blank">蕾丝 发表于 2018-3-26 10:11</a>
@@ -27558,16 +17909,10 @@ Title
 看她的推特现在好像主要忙着做3D模型的样子，好久没更新了…
 
 
-
-
-
-
-
 -----
 
 ####  Porsche  
 ##### 2939#       发表于 2018-3-26 21:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38986154&amp;ptid=1572644" target="_blank">神龙小生 发表于 2018-3-26 21:26</a>
@@ -27576,16 +17921,10 @@ Title
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">给你们30秒找班长她们
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 2940#       发表于 2018-3-26 21:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38986156&amp;ptid=1572644" target="_blank">卡蓮 发表于 2018-3-26 21:26</a>
@@ -27599,16 +17938,10 @@ Title
 —— 来自 HUAWEI BND-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 2941#       发表于 2018-3-26 21:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38985685&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-26 20:36</a>
@@ -27617,11 +17950,6 @@ https://www.youtube.com/watch?v=RgbfAPLhtk8
 
 田中这孩子。。。真有前途</blockquote>
 居然明说最喜欢luna，其他以后和luna联动搞个师徒CP<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27630,7 +17958,6 @@ https://www.youtube.com/watch?v=RgbfAPLhtk8
 ##### 2942#       发表于 2018-3-26 21:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38985685&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-26 20:36</a>
 
 https://www.youtube.com/watch?v=RgbfAPLhtk8
@@ -27639,16 +17966,10 @@ https://www.youtube.com/watch?v=RgbfAPLhtk8
 居然明说最喜欢luna，其他以后和luna联动搞个师徒CP<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 2943#       发表于 2018-3-26 21:38
-
 
 
 [https://www.youtube.com/watch?v=5T9AFFPSS9s](https://www.youtube.com/watch?v=5T9AFFPSS9s)
@@ -27660,16 +17981,10 @@ https://www.youtube.com/watch?v=RgbfAPLhtk8
 而且看样子现在还没启动好的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 2944#       发表于 2018-3-26 21:46
-
 
 
 <blockquote>バーチャルS1er 发表于 2018-3-26 21:38
@@ -27681,16 +17996,10 @@ https://www.youtube.com/watch?v=5T9AFFPSS9s
 才说这孩子是不是失踪被诱拐了，出来了啊
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 2945#       发表于 2018-3-26 21:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38986305&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-26 21:38</a>
@@ -27707,16 +18016,10 @@ https://www.youtube.com/watch?v=5T9AFFPSS9s
 当然也可能是路易斯威登广告<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 2946#       发表于 2018-3-26 21:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38986305&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-26 21:38</a>
@@ -27736,16 +18039,7 @@ https://www.youtube.com/watch?v=5T9AFFPSS9s
 2018-3-26 21:49 上传
 
 
-
-
-
-
 朝凪昨天刚画完这图，今天就更了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27754,21 +18048,13 @@ https://www.youtube.com/watch?v=5T9AFFPSS9s
 ##### 2947#       发表于 2018-3-26 22:02
 
 
-
-
 ハジメ突然开始谢罪，一瞬间3000人
-
-
-
-
-
 
 
 -----
 
 ####  神龙小生  
 ##### 2948#       发表于 2018-3-26 22:02
-
 
 
 <blockquote>walfeds 发表于 2018-3-26 21:49
@@ -27778,25 +18064,13 @@ https://www.youtube.com/watch?v=5T9AFFPSS9s
 的确这给人感觉不像是vtuber一般的视频。要是真的只是实验动画也不奇怪…
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2949#       发表于 2018-3-26 22:05
 
 
-
-
 断断续续说了5分钟结束<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27805,16 +18079,10 @@ https://www.youtube.com/watch?v=5T9AFFPSS9s
 ##### 2950#       发表于 2018-3-26 22:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38986660&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-26 22:02</a>
 
 ハジメ突然开始谢罪，一瞬间3000人</blockquote>
 因为上次联动的事情，这5天频道订阅数不但没有增加反而还少了点
-
-
-
-
-
 
 
 -----
@@ -27823,15 +18091,9 @@ https://www.youtube.com/watch?v=5T9AFFPSS9s
 ##### 2951#       发表于 2018-3-26 22:10
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">被人追着差评估计要好一阵子了
 
 被人追着差评的人不少...深雪酱差评率也蛮高，不知道为啥。
-
-
-
-
-
 
 
 -----
@@ -27840,23 +18102,16 @@ https://www.youtube.com/watch?v=5T9AFFPSS9s
 ##### 2952#       发表于 2018-3-26 22:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38986727&amp;ptid=1572644" target="_blank">looptube 发表于 2018-3-26 22:07</a>
 
 因为上次联动的事情，这5天频道订阅数不但没有增加反而还少了点</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不要说得好像是因为频道订阅数减少才谢罪一样啊……
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2953#       发表于 2018-3-26 22:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38986753&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-26 22:10</a>
@@ -27871,16 +18126,10 @@ https://www.youtube.com/watch?v=5T9AFFPSS9s
 深雪被人家發現按了喜歡..
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2954#       发表于 2018-3-26 22:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38986856&amp;ptid=1572644" target="_blank">lime2001 发表于 2018-3-26 22:20</a>
@@ -27893,16 +18142,10 @@ https://www.youtube.com/watch?v=5T9AFFPSS9s
 应该不是，深雪酱以前就差评率不低，应该是以前惹了一些人
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 2955#       发表于 2018-3-26 22:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38986753&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-26 22:10</a>
@@ -27916,16 +18159,10 @@ https://www.youtube.com/watch?v=5T9AFFPSS9s
 然后本身又经常联动又喜欢到其他Vtuber的直播那里露脸
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2956#       发表于 2018-3-26 22:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38986982&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-26 22:30</a>
@@ -27937,17 +18174,10 @@ https://www.youtube.com/watch?v=5T9AFFPSS9s
 <img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">哈就这点事要一直追着差评...
 
 
-
-
-
-
-
 -----
 
 ####  plok201  
 ##### 2957#       发表于 2018-3-26 22:38
-
-
 
 
 近段时间和彩虹扯上关系的都很容易差评追击,有一群人专门反彩虹系的
@@ -27958,16 +18188,10 @@ https://www.youtube.com/watch?v=5T9AFFPSS9s
 彩虹进场的这段时间,很明显能感觉到很多vtuber特别是企业的出现了危机感,同期出现了很多扩大自身影响的新企划,这2个月整个vtuber业界都在加速<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 2958#       发表于 2018-3-26 22:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38986753&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-26 22:10</a>
@@ -27991,16 +18215,10 @@ https://www.youtube.com/watch?v=5T9AFFPSS9s
 转自K岛
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2959#       发表于 2018-3-26 22:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38987082&amp;ptid=1572644" target="_blank">白白白 发表于 2018-3-26 22:40</a>
@@ -28015,31 +18233,19 @@ https://www.youtube.com/watch?v=5T9AFFPSS9s
 K岛有vtuber版？求个地址
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2960#       发表于 2018-3-26 22:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">有啥好酸的，心理病吧这是
-
-
-
-
-
 
 
 -----
 
 ####  バーチャルS1er  
 ##### 2961#       发表于 2018-3-26 22:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38986998&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-26 22:32</a>
@@ -28054,17 +18260,10 @@ K岛有vtuber版？求个地址
 重新找了一下，这本子应该出了（不过还没流出）
 
 
-
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2962#       发表于 2018-3-26 23:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38987258&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-26 22:56</a>
@@ -28075,16 +18274,10 @@ K岛有vtuber版？求个地址
 也就是说看深雪不爽...男性vtuber真不容易
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2963#       发表于 2018-3-26 23:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38987258&amp;ptid=1572644" target="_blank">バーチャルS1er 发表于 2018-3-26 22:56</a>
@@ -28095,16 +18288,10 @@ K岛有vtuber版？求个地址
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这是深雪的里垢？？简介写着「漫画家駆け出しの某美術大学に通う女子大生です」ワロタ
 
 
-
-
-
-
-
 -----
 
 ####  白白白  
 ##### 2964#       发表于 2018-3-26 23:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38987160&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-26 22:46</a>
@@ -28117,16 +18304,10 @@ K岛有vtuber版？求个地址</blockquote>
 最近 你認為 Vtuber 是什麼？这串撕得欢，有空可以看看（撕到最后来了个 月醬最高 结束）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  杜庶仁  
 ##### 2965#         楼主| 发表于 2018-3-26 23:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38987319&amp;ptid=1572644" target="_blank">触手姬 发表于 2018-3-26 23:01</a>
@@ -28144,16 +18325,10 @@ K岛有vtuber版？求个地址</blockquote>
 はじめ会被追着打，大概也有这个因素在里面。
 
 
-
-
-
-
-
 -----
 
 ####  バーチャルS1er  
 ##### 2966#       发表于 2018-3-26 23:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38987341&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-26 23:03</a>
@@ -28165,16 +18340,10 @@ K岛有vtuber版？求个地址</blockquote>
 简介自称女子大生我也不知道是怎么想的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  气流季里  
 ##### 2967#       发表于 2018-3-26 23:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38987401&amp;ptid=1572644" target="_blank">白白白 发表于 2018-3-26 23:07</a>
@@ -28190,16 +18359,10 @@ luna.komica.org
 二级域名已经解释一切。
 
 
-
-
-
-
-
 -----
 
 ####  xiangcaihtr  
 ##### 2968#       发表于 2018-3-26 23:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38985685&amp;ptid=1572644" target="_blank">walfeds 发表于 2018-3-26 20:36</a>
@@ -28215,16 +18378,10 @@ https://www.youtube.com/watch?v=RgbfAPLhtk8
 一时觉得这孩子会不会是混血或者来中国留过学<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ror  
 ##### 2969#       发表于 2018-3-26 23:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38987408&amp;ptid=1572644" target="_blank">杜庶仁 发表于 2018-3-26 23:08</a>
@@ -28235,31 +18392,19 @@ https://www.youtube.com/watch?v=RgbfAPLhtk8
 这么一看马头简直了，不愧是男性风vtuber最高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，存在感一流还不招人烦
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2970#       发表于 2018-3-26 23:24
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">力...刀也有点厉害，8800人看他直播
-
-
-
-
-
 
 
 -----
 
 ####  walfeds  
 ##### 2971#       发表于 2018-3-26 23:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38987552&amp;ptid=1572644" target="_blank">xiangcaihtr 发表于 2018-3-26 23:21</a>
@@ -28272,32 +18417,19 @@ https://www.youtube.com/watch?v=RgbfAPLhtk8
 音调倒是有点意思，但是还是没脱离日语的味道
 
 
-
-
-
-
-
 -----
 
 ####  zpbzpb123123  
 ##### 2972#       发表于 2018-3-26 23:34
 
 
-
-
 100页纪念
-
-
-
-
-
 
 
 -----
 
 ####  xiangcaihtr  
 ##### 2973#       发表于 2018-3-26 23:36
-
 
 
  本帖最后由 xiangcaihtr 于 2018-3-26 23:42 编辑 
@@ -28317,20 +18449,10 @@ https://www.youtube.com/watch?v=RgbfAPLhtk8
 如果她能再说多几句就能听出来了。
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2974#       发表于 2018-3-26 23:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38987563&amp;ptid=1572644" target="_blank">ror 发表于 2018-3-26 23:22</a>
@@ -28341,17 +18463,10 @@ https://www.youtube.com/watch?v=RgbfAPLhtk8
 像是兄妹或者父女www
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2975#       发表于 2018-3-26 23:58
-
-
 
 
 ……扭曲粉真可怕<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">（虽然壶男那期联动预告图看着跟牵手一样的时候我也想过（））
@@ -28360,31 +18475,19 @@ https://www.youtube.com/watch?v=RgbfAPLhtk8
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2976#       发表于 2018-3-27 00:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">好惨。。1800好评1000差评
-
-
-
-
-
 
 
 -----
 
 ####  触手姬  
 ##### 2977#       发表于 2018-3-27 00:11
-
 
 
  本帖最后由 触手姬 于 2018-3-27 00:15 编辑 
@@ -28394,16 +18497,10 @@ https://www.youtube.com/watch?v=RgbfAPLhtk8
 <img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">自己惹出的事，不管怎么样，要自己承担下去，今天说回归初心，大概要有一段时间不和别人联动开始玩游戏了（壶）？大概最少半年都会被追着差评不带停
 
 
-
-
-
-
-
 -----
 
 ####  杜庶仁  
 ##### 2978#         楼主| 发表于 2018-3-27 00:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38987563&amp;ptid=1572644" target="_blank">ror 发表于 2018-3-26 23:22</a>
@@ -28415,24 +18512,13 @@ https://www.youtube.com/watch?v=RgbfAPLhtk8
 记得他和时乃空联动的时候，设定是被时乃空嫌弃的。我想这也是有好好思考研究过后，得出的设定结论。
 
 
-
-
-
-
-
 -----
 
 ####  喜闻乐见  
 ##### 2979#       发表于 2018-3-27 00:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">还得多谢楼里提醒 跑去贡献了一个踩
-
-
-
-
-
 
 
 -----
@@ -28441,14 +18527,7 @@ https://www.youtube.com/watch?v=RgbfAPLhtk8
 ##### 2980#       发表于 2018-3-27 01:14
 
 
-
-
 Youtube上班长的第一回广播有中文字幕了
-
-
-
-
-
 
 
 -----
@@ -28457,15 +18536,9 @@ Youtube上班长的第一回广播有中文字幕了
 ##### 2981#       发表于 2018-3-27 01:50
 
 
-
  本帖最后由 xiangcaihtr 于 2018-3-27 02:39 编辑 
 
 算了…
-
-
-
-
-
 
 
 -----
@@ -28474,16 +18547,10 @@ Youtube上班长的第一回广播有中文字幕了
 ##### 2982#       发表于 2018-3-27 02:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">赞美翻译大佬！
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
-
-
-
-
-
 
 
 -----
@@ -28492,16 +18559,10 @@ Youtube上班长的第一回广播有中文字幕了
 ##### 2983#         楼主| 发表于 2018-3-27 02:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38988652&amp;ptid=1572644" target="_blank">lhawp 发表于 2018-3-27 01:14</a>
 
 Youtube上班长的第一回广播有中文字幕了</blockquote>
 此人是真正的真爱啊………这么长都翻……应该给他发个奖状…
-
-
-
-
-
 
 
 -----
@@ -28510,24 +18571,16 @@ Youtube上班长的第一回广播有中文字幕了</blockquote>
 ##### 2984#       发表于 2018-3-27 02:10
 
 
-
-
 深雪酱这新外观什么鬼23333
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  触手姬  
 ##### 2985#       发表于 2018-3-27 07:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38988931&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-27 02:10</a>
@@ -28539,16 +18592,10 @@ Youtube上班长的第一回广播有中文字幕了</blockquote>
 这腹肌....
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 2986#       发表于 2018-3-27 09:30
-
 
 
  本帖最后由 横寺阳人 于 2018-3-27 09:33 编辑 
@@ -28562,27 +18609,15 @@ Youtube上班长的第一回广播有中文字幕了</blockquote>
 哦，最近翻图的感觉，月卡党要反杀月爱党了，亲分哭哭哦。
 
 
-
-
-
-
-
 -----
 
 ####  天青月白  
 ##### 2987#       发表于 2018-3-27 09:58
 
 
-
-
 爱酱这手办宣传，狂喜乱舞加自恋狂<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -28591,23 +18626,15 @@ Youtube上班长的第一回广播有中文字幕了</blockquote>
 ##### 2988#       发表于 2018-3-27 09:59
 
 
-
-
 马头男接的广告已经比小白多了吧，不愧是男性型vtuber一哥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 要不是げんげん的作者为了收益换成自己的频道投稿げんげん的订阅数本来可能超马头的。
-
-
-
-
-
 
 
 -----
 
 ####  喜闻乐见  
 ##### 2989#       发表于 2018-3-27 10:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38991251&amp;ptid=1572644" target="_blank">天青月白 发表于 2018-3-27 09:58</a>
@@ -28620,16 +18647,10 @@ Youtube上班长的第一回广播有中文字幕了</blockquote>
 特别是现实Ecup
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2990#       发表于 2018-3-27 10:56
-
 
 
 <blockquote>不灭的旋律 发表于 2018-3-27 09:59
@@ -28639,16 +18660,10 @@ Youtube上班长的第一回广播有中文字幕了</blockquote>
 有種哥哥賺錢養妹妹的感覺
 
 
-
-
-
-
-
 -----
 
 ####  文文情报屋  
 ##### 2991#       发表于 2018-3-27 10:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38991251&amp;ptid=1572644" target="_blank">天青月白 发表于 2018-3-27 09:58</a>
@@ -28660,33 +18675,19 @@ Youtube上班长的第一回广播有中文字幕了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">对着自己屁股发情的爱酱
 
 
-
-
-
-
-
 -----
 
 ####  afrozan  
 ##### 2992#       发表于 2018-3-27 11:29
 
 
-
-
 里面就算是45十岁的肥宅都没关系吗
-
-
-
-
-
 
 
 -----
 
 ####  神龙小生  
 ##### 2993#       发表于 2018-3-27 11:33
-
-
 
 
 【速报】小青蛙“再次”突破30000！
@@ -28696,16 +18697,10 @@ Youtube上班长的第一回广播有中文字幕了</blockquote>
 不知会不会又掉回去。_(´_`」 ∠)_
 
 
-
-
-
-
-
 -----
 
 ####  lime2001  
 ##### 2994#       发表于 2018-3-27 11:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38992458&amp;ptid=1572644" target="_blank">afrozan 发表于 2018-3-27 11:29</a>
@@ -28718,24 +18713,13 @@ Youtube上班长的第一回广播有中文字幕了</blockquote>
 還要想作者長怎麼樣麻
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2995#       发表于 2018-3-27 12:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">班长最新直播录像第一部分也出翻译了  这位太勤勉了。。。
-
-
-
-
-
 
 
 -----
@@ -28744,15 +18728,9 @@ Youtube上班长的第一回广播有中文字幕了</blockquote>
 ##### 2996#       发表于 2018-3-27 12:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38992880&amp;ptid=1572644" target="_blank">allenlisa3234 发表于 2018-3-27 12:06</a>
 班长最新直播录像第一部分也出翻译了  这位太勤勉了。。。</blockquote>
 不愧是k岛最强班长真爱粉，肝败下风<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28761,21 +18739,13 @@ Youtube上班长的第一回广播有中文字幕了</blockquote>
 ##### 2997#       发表于 2018-3-27 14:11
 
 
-
-
 田中订阅上一万了。。。虽然推特关注到一万更早
-
-
-
-
-
 
 
 -----
 
 ####  触手姬  
 ##### 2998#       发表于 2018-3-27 14:39
-
 
 
  本帖最后由 触手姬 于 2018-3-27 14:41 编辑 
@@ -28785,17 +18755,10 @@ Youtube上班长的第一回广播有中文字幕了</blockquote>
 只能说集团作战太厉害了，昨天力...刀也直播接近1万人，这应该是男性的最好水平了
 
 
-
-
-
-
-
 -----
 
 ####  allenlisa3234  
 ##### 2999#       发表于 2018-3-27 14:59
-
-
 
 
 刀也很受欢迎啊w虽然起因是班长叫错名字？之后推特一堆下巴P图2333
@@ -28804,22 +18767,12 @@ Youtube上班长的第一回广播有中文字幕了</blockquote>
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  横寺阳人  
 ##### 3000#       发表于 2018-3-27 15:00
 
 
-
-
 3000L达成
-
-
-
 
 

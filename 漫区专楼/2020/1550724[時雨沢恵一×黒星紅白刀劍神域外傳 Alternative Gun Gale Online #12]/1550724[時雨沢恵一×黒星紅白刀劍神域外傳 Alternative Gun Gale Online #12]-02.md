@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2020-02-28 23:16** 
 
 
-
 -----
 
 ####  M先生  
 ##### 1501#       发表于 2018-6-10 14:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39937211&amp;ptid=1550724" target="_blank">想食热干面 发表于 2018-6-10 14:09</a>
@@ -15,16 +13,10 @@
 配乐其实还行，她两的战斗就是这个舞蹈一样快打快的风格，个人觉得其实是动作制作上拖了后腿……
 
 
-
-
-
-
-
 -----
 
 ####  Renes  
 ##### 1502#       发表于 2018-6-10 14:50
-
 
 
  本帖最后由 Renes 于 2018-6-10 15:25 编辑 
@@ -37,17 +29,10 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得某人全方位的条件都吊打这货 同样的桥段不需要出现第二次了 所以这货还是guna吧
 
 
-
-
-
-
-
 -----
 
 ####  LLENN  
 ##### 1503#       发表于 2018-6-10 15:18
-
-
 
 
 啊啊烦死啦烦死啦！这些人太碍事了全部解决掉！只会浪费我的子弹的家伙都去死吧！<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
@@ -58,25 +43,13 @@
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  fanisy  
 ##### 1504#       发表于 2018-6-10 15:24
 
 
-
-
 这一刻我和变态互相理解了，莲酱太太太可爱了
-
-
-
-
-
 
 
 -----
@@ -85,17 +58,10 @@
 ##### 1505#       发表于 2018-6-10 15:24
 
 
-
-
 放心吧M先生，一般来说这种角色都会被暴打一顿然后知难而退的啦~<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
 “我喜欢的香莲小姐不可能是这种凶暴的女人！”然后连滚带爬的逃走，这样子<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -104,21 +70,13 @@
 ##### 1506#       发表于 2018-6-10 15:26
 
 
-
-
 主要是土圆是父母之命与现代的价值观不符，反对打枪也和小说的价值不符，读者和香莲现在对他全方位感觉都是负的，即使打赢了也并无卵用，除非在sj4有超级加分的表现吧
-
-
-
-
-
 
 
 -----
 
 ####  Rosetta  
 ##### 1507#       发表于 2018-6-10 15:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39937751&amp;ptid=1550724" target="_blank">LLENN 发表于 2018-6-10 15:18</a>
@@ -130,16 +88,10 @@
 你有沒有發現不可臉上有不甘心的表情w
 
 
-
-
-
-
-
 -----
 
 ####  raynor_1999  
 ##### 1508#       发表于 2018-6-10 15:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39936700&amp;ptid=1550724" target="_blank">Rosetta 发表于 2018-6-10 13:20</a>
@@ -155,16 +107,9 @@
 ##### 1509#       发表于 2018-6-10 15:56
 
 
-
-
 我才看到第四卷，sj4莲是自愿参加的吗？前三届全是因为别人的理由
 
 —— 来自 Sony F8132, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
-
-
-
-
-
 
 
 -----
@@ -173,14 +118,7 @@
 ##### 1510#       发表于 2018-6-10 16:04
 
 
-
-
 应该说SJ2后莲一直处于随时AFK的情况，现在就剩下和老大她们决一胜负的约定了吧
-
-
-
-
-
 
 
 -----
@@ -189,23 +127,16 @@
 ##### 1511#       发表于 2018-6-10 16:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39937844&amp;ptid=1550724" target="_blank">Rosetta 发表于 2018-06-10 15:28:23</a>
 你有沒有發現不可臉上有不甘心的表情w</blockquote>…………诶？<img src="https://static.saraba1st.com/image/smiley/face2017/191.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  汤武革命  
 ##### 1512#       发表于 2018-6-10 16:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39938111&amp;ptid=1550724" target="_blank">月夜凝雪 发表于 2018-6-10 15:56</a>
@@ -217,32 +148,19 @@
 —— 来自 Xiaomi Redmi Note 3, Android 5.0.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2
 
 
-
-
-
-
-
 -----
 
 ####  郁夫  
 ##### 1513#       发表于 2018-6-10 16:18
 
 
-
-
 &lt;智商乏力的感覺
-
-
-
-
-
 
 
 -----
 
 ####  汤武革命  
 ##### 1514#       发表于 2018-6-10 16:19
-
 
 
 到了8/26號當天
@@ -363,8 +281,6 @@ PITO這時才像蓮說克拉倫斯和夏利比賽開始後就會自由活動變�
 所以應該是大家都會順便裝一個在身上
 
 
-
-
 不可次郎這次有M爸爸的資金支援
 
 電漿榴彈帶了上次兩倍的12顆
@@ -405,7 +321,6 @@ PITO塞了一把槍要蓮收下
 蓮沒有去確認直接進儲存空間裡的是怎樣的槍
 
 PITO也是什麼都沒說
-
 
 
 所以要下一本才能知道PITO到底給蓮什麼槍了
@@ -513,32 +428,19 @@ GGO终于也要进入生化危机的版本了嘛。<img src="https://static.sara
 那18人不会是土圆的打手吧。
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 1515#       发表于 2018-6-10 16:34
 
 
-
-
 手/枪里面比较特别的就是Contender和雷电了吧，Contender因为爵迹零挺有名了，要吓人一跳大概是雷电<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  汤武革命  
 ##### 1516#       发表于 2018-6-10 16:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39938210&amp;ptid=1550724" target="_blank">LLENN 发表于 2018-6-10 16:06</a>
@@ -550,14 +452,8 @@ GGO终于也要进入生化危机的版本了嘛。<img src="https://static.sara
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
 1528561293473.jpg
 (194.07 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -566,31 +462,13 @@ GGO终于也要进入生化危机的版本了嘛。<img src="https://static.sara
 2018-6-10 16:39 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/10/163946uhd0jgk90onb9dme.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  Lafrente  
 ##### 1517#       发表于 2018-6-10 16:51
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">打僵尸赞啊！PvE正好给某些个毫无团队精神的成员一点互相理解的机会。
@@ -601,26 +479,15 @@ GGO终于也要进入生化危机的版本了嘛。<img src="https://static.sara
 ZEMAL真是时雨泽的亲儿子。<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Rosetta  
 ##### 1518#       发表于 2018-6-10 17:30
 
 
-
  本帖最后由 Rosetta 于 2018-6-10 17:49 编辑 
 
 說不定Pito給蓮的是Glock18... 可連射的手/槍
-
-
-
-
-
 
 
 -----
@@ -629,22 +496,13 @@ ZEMAL真是时雨泽的亲儿子。<img src="https://static.saraba1st.com/image/
 ##### 1519#       发表于 2018-6-10 17:38
 
 
-
-
 给装备就能亲喔。
-
-
-
-
-
 
 
 -----
 
 ####  Lafrente  
 ##### 1520#       发表于 2018-6-10 18:38
-
-
 
 
 翻了下ptt，第四章也来啦～
@@ -903,16 +761,10 @@ M做出了最確實的判斷
 就將他們送入橋上的熾熱戰鬥中了
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1521#       发表于 2018-6-10 18:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39938728&amp;ptid=1550724" target="_blank">Lafrente 发表于 2018-6-10 16:51</a>
@@ -923,16 +775,10 @@ M做出了最確實的判斷
 而时雨泽总是在短篇里黑自己
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1522#       发表于 2018-6-10 20:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39938332&amp;ptid=1550724" target="_blank">汤武革命 发表于 2018-6-10 16:19</a>
@@ -945,17 +791,10 @@ M做出了最確實的判斷
 查了下，Alice的公开在web版是16年8月1日，考虑到文库版修正应该只是修正了年份所以26年8月1日公开了Alice的话不如说现在才开始讨论有点晚了吧（
 
 
-
-
-
-
-
 -----
 
 ####  Lafrente  
 ##### 1523#       发表于 2018-6-10 21:07
-
-
 
 
 第五章1/2
@@ -1234,33 +1073,20 @@ PITO看到這樣依然在說這樣能擋住就好了
 新兵种登场233
 
 
-
-
-
-
-
 -----
 
 ####  JamieD  
 ##### 1524#       发表于 2018-6-10 21:17
 
 
-
-
 自杀式攻击？很难想象这个战法是认真参加团体赛的，而且这届SJ也没有测试赛那个有几条命可以挥霍的规则吧，一个失误就全完蛋了不是么
 当然按照玩GGO的家伙的尿性，“我就是要炸个爽”的家伙存在也不是不可能啦，那么那张插图就很好理解了，大概是莲酱拿着P的光剑大杀四方吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  汤武革命  
 ##### 1525#       发表于 2018-6-10 21:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39941031&amp;ptid=1550724" target="_blank">Lafrente 发表于 2018-6-10 21:07</a>
@@ -1273,16 +1099,10 @@ PITO看到這樣依然在說這樣能擋住就好了
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">以后会不会喷火兵 磁暴步兵
 
 
-
-
-
-
-
 -----
 
 ####  M先生  
 ##### 1526#       发表于 2018-6-10 21:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39937815&amp;ptid=1550724" target="_blank">LLENN 发表于 2018-6-10 15:24</a>
@@ -1293,16 +1113,10 @@ PITO看到這樣依然在說這樣能擋住就好了
 <img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">请务必用上近战片了他！
 
 
-
-
-
-
-
 -----
 
 ####  M先生  
 ##### 1527#       发表于 2018-6-10 21:22
-
 
 
  本帖最后由 M先生 于 2018-6-10 22:12 编辑 
@@ -1313,32 +1127,19 @@ PITO看到這樣依然在說這樣能擋住就好了
 联系到前面的情况，我觉得，这些人就是土肥圆的雇佣兵……（还是不反白了……这里对只看动画的诸君说声抱歉）
 
 
-
-
-
-
-
 -----
 
 ####  JamieD  
 ##### 1528#       发表于 2018-6-10 21:33
 
 
-
-
 对哦我没想到这一层，要是真的是这样的话，请务必告诉莲酱一定要把那家伙用光剑片成几十块吧<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  M先生  
 ##### 1529#       发表于 2018-6-10 21:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39938492&amp;ptid=1550724" target="_blank">cowgp01 发表于 2018-6-10 16:34</a>
@@ -1350,16 +1151,10 @@ PITO看到這樣依然在說這樣能擋住就好了
 不管是竞争者还是雷电，都是大后坐力慢速手炮的类型（而且掌控起来也需要一定的力量），而不管是pito小姐还是莲妹妹，两人都是堆火力打快攻的选手（我和夏利和不可三个倒都是比起火力攻速更注重威力的类型），用手炮反而难以发挥，联系到“中型**”和“莲都能使用的情况”再考虑到莲的风格，我觉得更大的可能是M950a。
 
 
-
-
-
-
-
 -----
 
 ####  Rosetta  
 ##### 1530#       发表于 2018-6-10 21:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39941299&amp;ptid=1550724" target="_blank">M先生 发表于 2018-6-10 21:34</a>
@@ -1372,25 +1167,13 @@ PITO看到這樣依然在說這樣能擋住就好了
 —— 来自 vivo Xplay5S, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 1531#       发表于 2018-6-10 22:14
 
 
-
-
 glock18给莲用要送上两个弹鼓吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1399,16 +1182,10 @@ glock18给莲用要送上两个弹鼓吧<img src="https://static.saraba1st.com/i
 ##### 1532#       发表于 2018-6-10 22:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39940634&amp;ptid=1550724" target="_blank">pokemon最爱 发表于 2018-6-10 20:21</a>
 
 查了下，Alice的公开在web版是16年8月1日，考虑到文库版修正应该只是修正了年份所以26年8月1日公开了Alic ...</blockquote>
 有可能是bug，不过也有一个可能是这段时间大家都没有所有人聚到一起所以并没有大家一起讨论？
-
-
-
-
-
 
 
 -----
@@ -1417,23 +1194,16 @@ glock18给莲用要送上两个弹鼓吧<img src="https://static.saraba1st.com/i
 ##### 1533#       发表于 2018-6-10 22:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39941164&amp;ptid=1550724" target="_blank">M先生 发表于 2018-6-10 21:22</a>
 
 联系到前面的情况，我觉得，这些人就是土肥圆的雇佣兵……（还是不反白了……这里对只看动画的诸君说声抱 ...</blockquote>
 动画做不到的部分我是觉得反不反也没啥所谓了，而且作为背景是游戏的故事又不会有谁死这种伏笔。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1534#       发表于 2018-6-10 22:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39941686&amp;ptid=1550724" target="_blank">M先生 发表于 2018-6-10 22:16</a>
@@ -1444,16 +1214,10 @@ glock18给莲用要送上两个弹鼓吧<img src="https://static.saraba1st.com/i
 所以说<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Rosetta  
 ##### 1535#       发表于 2018-6-10 22:24
-
 
 
  本帖最后由 Rosetta 于 2018-6-10 22:29 编辑 
@@ -1467,16 +1231,10 @@ glock18给莲用要送上两个弹鼓吧</blockquote>
 反過來假若手槍彈藥瞬間打光后蓮要怎麼弄死對方? 是白刃戰還是從手槍ONLY區域逃出去, 這些是我更想看的w
 
 
-
-
-
-
-
 -----
 
 ####  M先生  
 ##### 1536#       发表于 2018-6-10 22:49
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">话说，其实在下一直有一个很费解的问题……克拉伦斯的战斗方式谁能给在下总结一下么？
@@ -1485,16 +1243,10 @@ glock18给莲用要送上两个弹鼓吧</blockquote>
 现在队里六个人：莲是敏捷形的前锋平A突击型（区别于大威力慢速武器，莲靠的就是堆弹数连击这个应该没有疑问），pito是相似的中近距离全面型突击（因为各种手段都有，但pito小姐显然更为钟爱堆火力），夏利是大威力的狙击手（毫无疑问），在下是中远距离的精确射手兼盾牌（虽然经常被大家称作狙击手但其实我真的觉得自己并不是……之所以承担起一部分狙击手的职责更多的是因为队里需要这么一个能纵观全局进行观测下指令的，实质上在下也经常在一线或者准一线的位置战斗），不可是后方支援的炮手。但克拉伦斯总不太好概括……牛仔类型的枪手？主要靠近距离的快速出枪攻击么？
 
 
-
-
-
-
-
 -----
 
 ####  M先生  
 ##### 1537#       发表于 2018-6-10 22:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39934344&amp;ptid=1550724" target="_blank">mobaipaomo 发表于 2018-6-10 09:08</a>
@@ -1510,16 +1262,10 @@ glock18给莲用要送上两个弹鼓吧</blockquote>
 .50机枪会阻碍pito小姐尽情杀人的，她不爽了会找我发泄的所以还是算了……（远目
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1538#       发表于 2018-6-10 23:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942003&amp;ptid=1550724" target="_blank">M先生 发表于 2018-6-10 22:49</a>
@@ -1531,32 +1277,19 @@ glock18给莲用要送上两个弹鼓吧</blockquote>
 当然是双前锋双中卫双后卫啊
 
 
-
-
-
-
-
 -----
 
 ####  JamieD  
 ##### 1539#       发表于 2018-6-10 23:18
 
 
-
-
 姬佬的战斗方式描写得比较少吧，SJ2刚出场就送弹匣然后下场，SJ3是先接近然后背叛，是在一个极近距离下的战斗，测试赛干脆就是夏莉的观测手，所以大概只能从她的枪上推测一下。不过考虑到FN 5.7x28的性能，大概也是个近战型选手吧，敏捷没莲酱点的那么高，相对的血量比莲酱要高不少，也算是个很适合做前锋的角色吧
-
-
-
-
-
 
 
 -----
 
 ####  Rosetta  
 ##### 1540#       发表于 2018-6-10 23:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942003&amp;ptid=1550724" target="_blank">M先生 发表于 2018-6-10 22:49</a>
@@ -1570,25 +1303,13 @@ glock18给莲用要送上两个弹鼓吧</blockquote>
 不需要她身手強大, 能幫助夏莉觀察目標和戒備背後就行了.
 
 
-
-
-
-
-
 -----
 
 ####  wingzerocos  
 ##### 1541#       发表于 2018-6-11 00:27
 
 
-
-
 时雨沢说过自己选枪尽量选比较大众比较容易买模型的，除非剧情上有特殊需求。
-
-
-
-
-
 
 
 -----
@@ -1597,20 +1318,13 @@ glock18给莲用要送上两个弹鼓吧</blockquote>
 ##### 1542#       发表于 2018-6-11 01:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">小说最新这场SJ是姬佬展现自我的最好机会了。万一她确实没实力，那至少也是个不错的吉祥物（搞姬）和仓库号（弹药弹匣给P90用）。
-
-
-
-
-
 
 
 -----
 
 ####  king520kyo  
 ##### 1543#       发表于 2018-6-11 03:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39927880&amp;ptid=1550724" target="_blank">月夜凝雪 发表于 2018-06-09 18:19:51</a>
@@ -1621,16 +1335,10 @@ glock18给莲用要送上两个弹鼓吧</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Lafrente  
 ##### 1544#       发表于 2018-6-11 07:25
-
 
 
  本帖最后由 Lafrente 于 2018-6-11 07:31 编辑 
@@ -2125,33 +1833,19 @@ DOOM最後一位成員離開待機空間
 DOOM的全員面露爽朗的笑容
 
 
-
-
-
-
-
-
 -----
 
 ####  JamieD  
 ##### 1545#       发表于 2018-6-11 08:47
 
 
-
-
 妈耶，果然玩GGO的就没一个是正常人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  M先生  
 ##### 1546#       发表于 2018-6-11 09:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39945786&amp;ptid=1550724" target="_blank">Lafrente 发表于 2018-6-11 07:25</a>
@@ -2164,13 +1858,7 @@ DOOM的全員面露爽朗的笑容
 <img src="https://static.saraba1st.com/image/smiley/face2017/146.png" referrerpolicy="no-referrer">
 
 
-
 想想自己陷在沼泽里只有一个脑袋露在外面的样子简直……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2179,21 +1867,13 @@ DOOM的全員面露爽朗的笑容
 ##### 1547#       发表于 2018-6-11 09:16
 
 
-
-
 早晚會有乘坐載具結果遭遇IED的情節吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Lafrente  
 ##### 1548#       发表于 2018-6-11 09:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39946473&amp;ptid=1550724" target="_blank">M先生 发表于 2018-6-11 09:06</a>
@@ -2204,16 +1884,10 @@ DOOM的全員面露爽朗的笑容
 拜SJ4的特殊规则所赐，夏莉和克拉伦斯也不可能安心地定点狙击了，会打得好看点吧。
 
 
-
-
-
-
-
 -----
 
 ####  M先生  
 ##### 1549#       发表于 2018-6-11 09:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942373&amp;ptid=1550724" target="_blank">Rosetta 发表于 2018-6-10 23:25</a>
@@ -2224,13 +1898,7 @@ DOOM的全員面露爽朗的笑容
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">但她肯定也有独立行动的时候啦，作为指挥者来说了解一下部下怎么吃饭的也是必要的（雾
 
 
-
 我是觉得她就是牛仔玩侧袭的类型了（包括第一次出场她超快的拔枪速度，还有她每次出场必玩**，还有她每次出场最擅长的基本上是打埋伏……），不过她原本的队伍太死板，跟不上她的风格就是了（所以pito小姐这次拉的两个人还真的是填补了两个空隙，pito小姐最棒了~<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">）
-
-
-
-
-
 
 
 -----
@@ -2239,23 +1907,16 @@ DOOM的全員面露爽朗的笑容
 ##### 1550#       发表于 2018-6-11 09:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39946608&amp;ptid=1550724" target="_blank">Lafrente 发表于 2018-6-11 09:21</a>
 
 我心里真的超期待你阵亡的话，Pito和不可两位戏精会如何跨越悲痛缅怀战友。每次SJ都苟到最后，满 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">作者老爷饶命啊……请放过我……我不想死……我不想死啊……）
 
 
-
-
-
-
-
 -----
 
 ####  フカ次郎  
 ##### 1551#       发表于 2018-6-11 09:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39937751&amp;ptid=1550724" target="_blank">LLENN 发表于 2018-6-10 15:18</a>
@@ -2271,16 +1932,10 @@ DOOM的全員面露爽朗的笑容
 <strong>所以M先生你是不是正常人是不是变态大哥还有WHERE IS 你邮箱？</strong>
 
 
-
-
-
-
-
 -----
 
 ####  M先生  
 ##### 1552#       发表于 2018-6-11 10:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39946956&amp;ptid=1550724" target="_blank">フカ次郎 发表于 2018-6-11 09:51</a>
@@ -2289,16 +1944,10 @@ DOOM的全員面露爽朗的笑容
 <img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">我、我当然只是个好普通的十分专一的积极励志向上的正常好青年啊！
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1553#       发表于 2018-6-11 11:08
-
 
 
  本帖最后由 月夜凝雪 于 2018-6-11 13:12 编辑 
@@ -2319,16 +1968,10 @@ DOOM的全員面露爽朗的笑容
 —— 来自 Sony F8132, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  Rosetta  
 ##### 1554#       发表于 2018-6-11 11:43
-
 
 
  本帖最后由 Rosetta 于 2018-6-11 12:36 编辑 
@@ -2345,16 +1988,10 @@ DOOM的全員面露爽朗的笑容
 ps.我有一種她和夏莉相愛相殺最後組合戰鬥這個發展是Pito和你的影子的感覺.
 
 
-
-
-
-
-
 -----
 
 ####  newise  
 ##### 1555#       发表于 2018-6-11 11:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39946956&amp;ptid=1550724" target="_blank">フカ次郎 发表于 2018-6-11 09:51</a>
@@ -2363,17 +2000,10 @@ ps.我有一種她和夏莉相愛相殺最後組合戰鬥這個發展是Pito和�
 你是来黑东北的吗？都大学生了，一个鱿鱼酱，一个沃茨哟咩啊多都不会
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1556#       发表于 2018-6-11 12:32
-
-
 
 
 啊，小说刚看完第五卷，好想看sj3的动画啊
@@ -2381,17 +2011,10 @@ ps.我有一種她和夏莉相愛相殺最後組合戰鬥這個發展是Pito和�
 —— 来自 Sony F8132, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  Zxian49  
 ##### 1557#       发表于 2018-6-11 14:23
-
-
 
 
 不可太瑟情了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
@@ -2406,9 +2029,6 @@ ps.我有一種她和夏莉相愛相殺最後組合戰鬥這個發展是Pito和�
 2018-6-11 14:22 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/11/142301wh2hpjae29o4v1v2.png" referrerpolicy="no-referrer">
 
 
@@ -2419,37 +2039,19 @@ ps.我有一種她和夏莉相愛相殺最後組合戰鬥這個發展是Pito和�
 2018-6-11 14:23 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  沼蝇  
 ##### 1558#       发表于 2018-6-11 15:05
 
 
-
-
 好快啊
-
-
-
-
-
 
 
 -----
 
 ####  Lafrente  
 ##### 1559#       发表于 2018-6-11 19:18
-
-
 
 
 期待的最终章！
@@ -2642,25 +2244,13 @@ M大概猜到了是怎麼回事
 本書結束
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 1560#       发表于 2018-6-11 19:31
 
 
-
-
 萝莉组太棒了
-
-
-
-
-
 
 
 -----
@@ -2669,15 +2259,9 @@ M大概猜到了是怎麼回事
 ##### 1561#       发表于 2018-6-11 19:43
 
 
-
  本帖最后由 Renes 于 2018-6-11 19:44 编辑 
 
 M先生 莲一脚踩下去的瞬间你明明很期待的对吧 被身为指挥的理性所拉住 真是辛苦你了啊
-
-
-
-
-
 
 
 -----
@@ -2686,14 +2270,7 @@ M先生 莲一脚踩下去的瞬间你明明很期待的对吧 被身为指挥�
 ##### 1562#       发表于 2018-6-11 21:56
 
 
-
-
 没有第七卷看我要死了
-
-
-
-
-
 
 
 -----
@@ -2702,23 +2279,16 @@ M先生 莲一脚踩下去的瞬间你明明很期待的对吧 被身为指挥�
 ##### 1563#       发表于 2018-6-11 22:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39955195&amp;ptid=1550724" target="_blank">月夜凝雪 发表于 2018-6-11 21:56</a>
 
 没有第七卷看我要死了</blockquote>
 可以看漫畫版將就一下w
 
 
-
-
-
-
-
 -----
 
 ####  M先生  
 ##### 1564#       发表于 2018-6-11 22:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39953654&amp;ptid=1550724" target="_blank">Lafrente 发表于 2018-6-11 19:18</a>
@@ -2735,17 +2305,10 @@ M先生 莲一脚踩下去的瞬间你明明很期待的对吧 被身为指挥�
 不过这场面也……等等……<img src="https://static.saraba1st.com/image/smiley/face2017/189.png" referrerpolicy="no-referrer">emmm，我觉得我似乎有个办法了
 
 
-
-
-
-
-
-
 -----
 
 ####  M先生  
 ##### 1565#       发表于 2018-6-11 22:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39953926&amp;ptid=1550724" target="_blank">Renes 发表于 2018-6-11 19:43</a>
@@ -2754,16 +2317,10 @@ M先生 莲一脚踩下去的瞬间你明明很期待的对吧 被身为指挥�
 <img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">哪有！我是那种人嘛！看我纯良的眼神！
 
 
-
-
-
-
-
 -----
 
 ####  M先生  
 ##### 1566#       发表于 2018-6-11 22:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39955393&amp;ptid=1550724" target="_blank">Rosetta 发表于 2018-6-11 22:17</a>
@@ -2772,16 +2329,10 @@ M先生 莲一脚踩下去的瞬间你明明很期待的对吧 被身为指挥�
 漫画有更新？
 
 
-
-
-
-
-
 -----
 
 ####  Rosetta  
 ##### 1567#       发表于 2018-6-11 22:40
-
 
 
  本帖最后由 Rosetta 于 2018-6-11 23:41 编辑 
@@ -2799,16 +2350,10 @@ M先生 莲一脚踩下去的瞬间你明明很期待的对吧 被身为指挥�
 —— 来自 vivo Xplay5S, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0
 
 
-
-
-
-
-
 -----
 
 ####  M先生  
 ##### 1568#       发表于 2018-6-11 23:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39955621&amp;ptid=1550724" target="_blank">Rosetta 发表于 2018-6-11 22:40</a>
@@ -2819,16 +2364,10 @@ M先生 莲一脚踩下去的瞬间你明明很期待的对吧 被身为指挥�
 多谢啦~这就去看看~
 
 
-
-
-
-
-
 -----
 
 ####  king520kyo  
 ##### 1569#       发表于 2018-6-12 01:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39948064&amp;ptid=1550724" target="_blank">月夜凝雪 发表于 2018-06-11 11:08:32</a>
@@ -2837,17 +2376,10 @@ v2.0-play</blockquote>好好<img src="https://static.saraba1st.com/image/smiley/
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  錯乱坊  
 ##### 1570#       发表于 2018-6-12 09:34
-
-
 
 
 SHINC居然被那矬子买通了！？这……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -2856,17 +2388,10 @@ SHINC居然被那矬子买通了！？这……<img src="https://static.saraba1s
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  錯乱坊  
 ##### 1571#       发表于 2018-6-12 09:35
-
-
 
 
 SHINC居然被那矬子买通了！？这……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -2875,16 +2400,10 @@ SHINC居然被那矬子买通了！？这……<img src="https://static.saraba1s
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Nico_Minoru  
 ##### 1572#       发表于 2018-6-12 11:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39959289&amp;ptid=1550724" target="_blank">錯乱坊 发表于 2018-6-12 09:34</a>
@@ -2895,25 +2414,13 @@ SHINC居然被那矬子买通了！？这……
 也许因为身高共鸣了。
 
 
-
-
-
-
-
 -----
 
 ####  来求游戏的  
 ##### 1573#       发表于 2018-6-12 22:37
 
 
-
-
 感觉莲在遇到P之前会把所有强队都碰到<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2922,15 +2429,9 @@ SHINC居然被那矬子买通了！？这……
 ##### 1574#       发表于 2018-6-12 23:13
 
 
-
  本帖最后由 Rosetta 于 2018-6-13 22:29 编辑 
 
 OP的MP3和FLAC已經出現了, dmhy就有
-
-
-
-
-
 
 
 -----
@@ -2939,18 +2440,11 @@ OP的MP3和FLAC已經出現了, dmhy就有
 ##### 1575#       发表于 2018-6-14 22:00
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">路人为什么要用这个呢。MMTM脸弄的那么路人。
-
-
-
-
 
 
 SAO.jpg
 (55.58 KB, 下载次数: 6)
-
-
 
 
 下载附件
@@ -2959,24 +2453,7 @@ SAO.jpg
 2018-6-14 22:00 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/14/220019t224lj17duj522gu.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -2985,17 +2462,10 @@ SAO.jpg
 ##### 1576#       发表于 2018-6-14 22:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39991953&amp;ptid=1550724" target="_blank">汤武革命 发表于 2018-6-14 22:00</a>
 
 路人为什么要用这个呢。MMTM脸弄的那么路人。</blockquote>
 MMTM这一话只有远镜头站在树上那一个有人的画面而已吧
-
-
-
-
-
-
 
 
 -----
@@ -3004,14 +2474,7 @@ MMTM这一话只有远镜头站在树上那一个有人的画面而已吧
 ##### 1577#       发表于 2018-6-15 03:50
 
 
-
-
 今年的某榜开始投票的话，不可次郎小姐肯定是种子选手吧……
-
-
-
-
-
 
 
 -----
@@ -3020,16 +2483,9 @@ MMTM这一话只有远镜头站在树上那一个有人的画面而已吧
 ##### 1578#       发表于 2018-6-15 12:16
 
 
-
-
 1-6及另外幾本, 7和OPED們要等端午後了...
 
 <img src="http://ww1.sinaimg.cn/large/006EJTaFgy1fsbqpukf1hj31c013s7lz.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3038,16 +2494,9 @@ MMTM这一话只有远镜头站在树上那一个有人的画面而已吧
 ##### 1579#       发表于 2018-6-15 19:58
 
 
-
-
 第10話「魔王復活」予告映像
 [https://twitter.com/ggo_anime/status/1007584218103275521](https://twitter.com/ggo_anime/status/1007584218103275521)
 [https://v.youku.com/v_show/id_XM ... j.8428770.3416059.1](https://v.youku.com/v_show/id_XMzY2NjcyNjU1Ng==.html?spm=a2h3j.8428770.3416059.1)
-
-
-
-
-
 
 
 -----
@@ -3056,14 +2505,7 @@ MMTM这一话只有远镜头站在树上那一个有人的画面而已吧
 ##### 1580#       发表于 2018-6-15 21:47
 
 
-
-
 真做到醒过来啊，非常紧了
-
-
-
-
-
 
 
 -----
@@ -3072,22 +2514,14 @@ MMTM这一话只有远镜头站在树上那一个有人的画面而已吧
 ##### 1581#       发表于 2018-6-16 09:47
 
 
-
-
 链接：[https://pan.baidu.com/s/1bRPDRLB9O48talN254EY7w](https://pan.baidu.com/s/1bRPDRLB9O48talN254EY7w) 密码：zw6l
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fscrvyqw3kj21kw10ab2b.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  汤武革命  
 ##### 1582#       发表于 2018-6-16 09:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40003516&amp;ptid=1550724" target="_blank">cowgp01 发表于 2018-6-15 21:47</a>
@@ -3097,25 +2531,13 @@ MMTM这一话只有远镜头站在树上那一个有人的画面而已吧
 —— 来自 Xiaomi Mi-4c, Android 5.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2
 
 
-
-
-
-
-
 -----
 
 ####  Yeaha123  
 ##### 1583#       发表于 2018-6-16 10:54
 
 
-
-
 又掉头又断肢什么的，大丈夫？
-
-
-
-
-
 
 
 -----
@@ -3124,16 +2546,10 @@ MMTM这一话只有远镜头站在树上那一个有人的画面而已吧
 ##### 1584#       发表于 2018-6-16 11:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39997901&amp;ptid=1550724" target="_blank">Rosetta 发表于 2018-6-15 12:16</a>
 
 1-6及另外幾本, 7和OPED們要等端午後了...</blockquote>
 左边那部好看吗
-
-
-
-
-
 
 
 -----
@@ -3142,21 +2558,13 @@ MMTM这一话只有远镜头站在树上那一个有人的画面而已吧
 ##### 1585#       发表于 2018-6-16 11:19
 
 
-
-
 日常流水型.
-
-
-
-
-
 
 
 -----
 
 ####  小比類巻香蓮  
 ##### 1586#         楼主| 发表于 2018-6-16 20:34
-
 
 
 <img src="http://gungale-online.net/assets/images/story/img_ep10_02.jpg" referrerpolicy="no-referrer">
@@ -3173,16 +2581,10 @@ MMTM这一话只有远镜头站在树上那一个有人的画面而已吧
 「各員、気合い入れな！　目標《ＰＭ４》！　《お菓子作戦》を開始する！」
 
 
-
-
-
-
-
 -----
 
 ####  M先生  
 ##### 1587#       发表于 2018-6-16 22:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40013216&amp;ptid=1550724" target="_blank">小比類巻香蓮 发表于 2018-6-16 20:34</a>
@@ -3196,16 +2598,10 @@ MMTM这一话只有远镜头站在树上那一个有人的画面而已吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">我家pito果然最好看了~~~~~~
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1588#       发表于 2018-6-16 22:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40013216&amp;ptid=1550724" target="_blank">小比類巻香蓮 发表于 2018-6-16 20:34</a>
@@ -3216,16 +2612,10 @@ MMTM这一话只有远镜头站在树上那一个有人的画面而已吧
 这镜头，是要到链球PLAY？
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 1589#       发表于 2018-6-16 22:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39950295&amp;ptid=1550724" target="_blank">Zxian49 发表于 2018-6-11 14:23</a>
@@ -3236,25 +2626,13 @@ MMTM这一话只有远镜头站在树上那一个有人的画面而已吧
 果然分镜的影响太大了
 
 
-
-
-
-
-
 -----
 
 ####  ror  
 ##### 1590#       发表于 2018-6-16 23:28
 
 
-
-
 3hz是要外包到底了？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"> 这集删的真多啊，都有点影响观感了，室内战总共有三分钟？还有战旗直播里就一个人老是刷什么没逻辑不带脑子好烦啊
-
-
-
-
-
 
 
 -----
@@ -3263,21 +2641,13 @@ MMTM这一话只有远镜头站在树上那一个有人的画面而已吧
 ##### 1591#       发表于 2018-6-16 23:29
 
 
-
-
 夏利一下子就黑化了，MMTM的室内战也没有表现，佣兵感觉就是排着队送死的，M打算自杀也没有做，最后猴子都能学会的室内战光剑偷鸡法也没做出来，也就美苏炮狙那能能让人燃一下<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  汤武革命  
 ##### 1592#       发表于 2018-6-16 23:31
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这集氛围做得还行。但是正集外包这家公司不如上一家质量高。
@@ -3287,16 +2657,10 @@ MMTM这一话只有远镜头站在树上那一个有人的画面而已吧
 M那个KISS太尬了感觉，本身就没什么台词或者弦外音解释说明。
 
 
-
-
-
-
-
 -----
 
 ####  汤武革命  
 ##### 1593#       发表于 2018-6-16 23:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40015115&amp;ptid=1550724" target="_blank">ror 发表于 2018-6-16 23:28</a>
@@ -3306,32 +2670,19 @@ M那个KISS太尬了感觉，本身就没什么台词或者弦外音解释说明
 —— 来自 Xiaomi Redmi Note 3, Android 5.0.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2
 
 
-
-
-
-
-
 -----
 
 ####  shadow001  
 ##### 1594#       发表于 2018-6-16 23:40
 
 
-
-
 那小屋看來不是不可破壞物體,那麼最好的攻略法不是從屋外放電漿手榴彈,直接把小屋炸掉嗎?<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 1595#       发表于 2018-6-16 23:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40015167&amp;ptid=1550724" target="_blank">汤武革命 发表于 2018-6-16 23:31</a>
@@ -3342,16 +2693,10 @@ M那个KISS太尬了感觉，本身就没什么台词或者弦外音解释说明
 不是吧这制作组，小说明明写着蓝白光的
 
 
-
-
-
-
-
 -----
 
 ####  汤武革命  
 ##### 1596#       发表于 2018-6-16 23:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40015413&amp;ptid=1550724" target="_blank">月夜凝雪 发表于 2018-6-16 23:49</a>
@@ -3361,25 +2706,13 @@ M那个KISS太尬了感觉，本身就没什么台词或者弦外音解释说明
 —— 来自 Xiaomi Redmi Note 3, Android 5.0.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 1597#       发表于 2018-6-17 00:02
 
 
-
-
 想想没做M想自杀也好，动画MMTM根本没表现出管你会飞天在室内我战术就必赢你的气势，做不出绝望感，让M自杀就想被几个杂兵包围就要自杀一样<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3388,23 +2721,15 @@ M那个KISS太尬了感觉，本身就没什么台词或者弦外音解释说明
 ##### 1598#       发表于 2018-6-17 00:16
 
 
-
-
 楼上几个怎么都说没M自杀，M不是都拿起手榴弹要按下去了吗。
 
 女主这周也是，绝赞杀人宣告，哈哈
-
-
-
-
-
 
 
 -----
 
 ####  汤武革命  
 ##### 1599#       发表于 2018-6-17 00:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40015710&amp;ptid=1550724" target="_blank">lb0windy 发表于 2018-6-17 00:16</a>
@@ -3416,25 +2741,13 @@ M那个KISS太尬了感觉，本身就没什么台词或者弦外音解释说明
 —— 来自 Xiaomi Mi-4c, Android 5.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 1600#       发表于 2018-6-17 00:24
 
 
-
-
 有做么，大概是我对3HZ对非主角队那不认真的态度太生气了漏看了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3443,14 +2756,7 @@ M那个KISS太尬了感觉，本身就没什么台词或者弦外音解释说明
 ##### 1601#       发表于 2018-6-17 00:59
 
 
-
-
 还有一集，后面那个决战打半集还真是相当赶啊。
-
-
-
-
-
 
 
 -----
@@ -3459,13 +2765,7 @@ M那个KISS太尬了感觉，本身就没什么台词或者弦外音解释说明
 ##### 1602#       发表于 2018-6-17 01:34
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">前半集和后半集我觉得就在看2个动画……
-
-
-
-
-
 
 
 -----
@@ -3474,13 +2774,7 @@ M那个KISS太尬了感觉，本身就没什么台词或者弦外音解释说明
 ##### 1603#       发表于 2018-6-17 02:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">小队战术表现得最好的是第一集的自卫队练兵，后面全部是野鸡战术瞎打的感觉。。。。
-
-
-
-
-
 
 
 -----
@@ -3489,14 +2783,7 @@ M那个KISS太尬了感觉，本身就没什么台词或者弦外音解释说明
 ##### 1604#       发表于 2018-6-17 02:36
 
 
-
-
 pito小姐只能由我来杀死！<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3505,16 +2792,10 @@ pito小姐只能由我来杀死！<img src="https://static.saraba1st.com/image/s
 ##### 1605#       发表于 2018-6-17 02:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40016803&amp;ptid=1550724" target="_blank">高等黑暗 发表于 2018-06-17 02:14:39</a>
 小队战术表现得最好的是第一集的自卫队练兵，后面全部是野鸡战术瞎打的感觉。。。。 ...</blockquote>遇到自卫队，PM4直接就凉了。莲的战术现实里不起效果，PM4也是超人能力队
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -3523,14 +2804,7 @@ pito小姐只能由我来杀死！<img src="https://static.saraba1st.com/image/s
 ##### 1606#       发表于 2018-6-17 02:52
 
 
-
-
 我就觉得那么近的距离，你为什么不把手榴弹扔过去，而是偏偏自己带上冲过去。
-
-
-
-
-
 
 
 -----
@@ -3539,14 +2813,7 @@ pito小姐只能由我来杀死！<img src="https://static.saraba1st.com/image/s
 ##### 1607#       发表于 2018-6-17 07:08
 
 
-
-
 酱汁的下限没有极限
-
-
-
-
-
 
 
 -----
@@ -3555,21 +2822,13 @@ pito小姐只能由我来杀死！<img src="https://static.saraba1st.com/image/s
 ##### 1608#       发表于 2018-6-17 08:12
 
 
-
-
 pito被爆头后发疯那段太魔性了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 1609#       发表于 2018-6-17 08:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40018369&amp;ptid=1550724" target="_blank">X(iaolw)S 发表于 2018-6-17 08:12</a>
@@ -3579,84 +2838,39 @@ pito被爆头后发疯那段太魔性了</blockquote>
 —— 来自 Sony F8132, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  汤武革命  
 ##### 1610#       发表于 2018-6-17 08:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">达斯·摩尔   达斯·维达
-
-
-
-
 
 
 617.jpg
 (44.38 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2018-6-17 08:33 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/17/083324x1lq0jjljssbzb0s.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 617.jpg
 (17.89 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2018-6-17 08:33 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/17/083340x7xjhli3ftkintbn.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -3665,16 +2879,9 @@ pito被爆头后发疯那段太魔性了</blockquote>
 ##### 1611#       发表于 2018-6-17 09:47
 
 
-
-
 感觉这剧情贼2b<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0
-
-
-
-
-
 
 
 -----
@@ -3683,14 +2890,7 @@ pito被爆头后发疯那段太魔性了</blockquote>
 ##### 1612#       发表于 2018-6-17 09:55
 
 
-
-
 好趕啊這劇情發展...
-
-
-
-
-
 
 
 -----
@@ -3699,15 +2899,8 @@ pito被爆头后发疯那段太魔性了</blockquote>
 ##### 1613#       发表于 2018-6-17 10:29
 
 
-
-
 链接：[https://pan.baidu.com/s/1dVPv6gxj_-58lICbvgWOJA](https://pan.baidu.com/s/1dVPv6gxj_-58lICbvgWOJA) 密码：pp1d
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fsdyvnaipvj23q72ogkjm.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3716,21 +2909,13 @@ pito被爆头后发疯那段太魔性了</blockquote>
 ##### 1614#       发表于 2018-6-17 11:06
 
 
-
-
 感觉木屋里面各种不合理啊。。。。
-
-
-
-
-
 
 
 -----
 
 ####  汤武革命  
 ##### 1615#       发表于 2018-6-17 11:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40018883&amp;ptid=1550724" target="_blank">cao1rui2 发表于 2018-6-17 09:47</a>
@@ -3742,16 +2927,10 @@ pito被爆头后发疯那段太魔性了</blockquote>
 —— 来自 Xiaomi Mi-4c, Android 5.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2
 
 
-
-
-
-
-
 -----
 
 ####  wingzerocos  
 ##### 1616#       发表于 2018-6-17 11:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40017033&amp;ptid=1550724" target="_blank">取个中文名 发表于 2018-6-17 02:52</a>
@@ -3764,15 +2943,9 @@ MMTM两人已经踏上楼梯，一边防着上面扔下来的雷一边引上面�
 而且这位的防很高，MMTM两人是对头打了几发后马上两个人瞄同一条腿才把他停下来的。动画看起来就是直接扫死。
 
 
-
 时间赶再加上各种站桩，佣兵的战术和MMTM在室内的压迫力根本做不出来。观感就是一队杂鱼干掉几个杂鱼然后被pito单刷。
 
 夏利背着队友逃跑被改掉了，假装逃跑然后利用滑雪板高速回来狙击也被删掉了。虽然是pito是活该但做成这样只会显得她蠢啊……
-
-
-
-
-
 
 
 -----
@@ -3781,14 +2954,7 @@ MMTM两人已经踏上楼梯，一边防着上面扔下来的雷一边引上面�
 ##### 1617#       发表于 2018-6-17 11:27
 
 
-
-
 室内战按小说做最起码要做十分钟吧，删到1分钟都没有不傻才怪，我还是觉得要让主角干掉一个强者比捏虫子要时髦100倍，所以给敌人刷时髦是非常重要的事
-
-
-
-
-
 
 
 -----
@@ -3797,14 +2963,7 @@ MMTM两人已经踏上楼梯，一边防着上面扔下来的雷一边引上面�
 ##### 1618#       发表于 2018-6-17 11:37
 
 
-
-
 然后pito单刷那场，一大一小两发手雷被删掉，于是一个被炸死的改成被砍死，一个被砍死的改成隔着门吃散弹这种蠢死法。
-
-
-
-
-
 
 
 -----
@@ -3813,23 +2972,15 @@ MMTM两人已经踏上楼梯，一边防着上面扔下来的雷一边引上面�
 ##### 1619#       发表于 2018-6-17 11:43
 
 
-
-
 pito倒下还没多久就复活了，这也太赶了
 
 MMTM真的惨，流石路人队
-
-
-
-
-
 
 
 -----
 
 ####  posion  
 ##### 1620#       发表于 2018-6-17 15:02
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">没看小说我都知道这集明显做的太差了
@@ -3844,25 +2995,13 @@ MMTM真的惨，流石路人队
 说起来M桑明明知道对面拿了反器材**拆盾了，而且开了无敌，应该改变狙击对象把枪打坏不就好了吗？以M桑的狙击技术应该做得到的吧？<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  钢の战神  
 ##### 1621#       发表于 2018-6-17 15:25
 
 
-
-
 穿墙打那么准的吗 一枪一个卧槽,能力是不是太高了点
-
-
-
-
-
 
 
 -----
@@ -3871,16 +3010,10 @@ MMTM真的惨，流石路人队
 ##### 1622#       发表于 2018-6-17 15:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40021609&amp;ptid=1550724" target="_blank">钢の战神 发表于 2018-6-17 15:25</a>
 
 穿墙打那么准的吗 一枪一个卧槽,能力是不是太高了点</blockquote>
 主要还是光剑插死的吧
-
-
-
-
-
 
 
 -----
@@ -3889,14 +3022,7 @@ MMTM真的惨，流石路人队
 ##### 1623#       发表于 2018-6-17 15:39
 
 
-
-
 屍體無敵盾那裡,如果是被反器材直接射爆半身,這個戰術就直接完蛋了吧?
-
-
-
-
-
 
 
 -----
@@ -3905,16 +3031,10 @@ MMTM真的惨，流石路人队
 ##### 1624#       发表于 2018-6-17 15:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40021731&amp;ptid=1550724" target="_blank">shadow001 发表于 2018-6-17 15:39</a>
 
 屍體無敵盾那裡,如果是被反器材直接射爆半身,這個戰術就直接完蛋了吧?</blockquote>
 角色被打碎之后过几秒钟尸体会恢复成一个整体，再摆成坐姿就行
-
-
-
-
-
 
 
 -----
@@ -3923,23 +3043,16 @@ MMTM真的惨，流石路人队
 ##### 1625#       发表于 2018-6-17 15:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40021745&amp;ptid=1550724" target="_blank">錯乱坊 发表于 2018-6-17 15:42</a>
 
 角色被打碎之后过几秒钟尸体会恢复成一个整体，再摆成坐姿就行</blockquote>
 原來會復原,還以為一直是碎片直至消失<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  錯乱坊  
 ##### 1626#       发表于 2018-6-17 15:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40021433&amp;ptid=1550724" target="_blank">posion 发表于 2018-6-17 15:02</a>
@@ -3952,16 +3065,10 @@ MMTM真的惨，流石路人队
 M和冬马的狙击水平其实差不了多少。从正面看PTRD就是一根细长的管子的直径大小，不开挂根本不可能打中的。
 
 
-
-
-
-
-
 -----
 
 ####  錯乱坊  
 ##### 1627#       发表于 2018-6-17 15:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40021761&amp;ptid=1550724" target="_blank">shadow001 发表于 2018-6-17 15:43</a>
@@ -3970,16 +3077,10 @@ M和冬马的狙击水平其实差不了多少。从正面看PTRD就是一根细
 那样的话满地尸块也太惊悚了，这游戏没那么重口味<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  汤武革命  
 ##### 1628#       发表于 2018-6-17 15:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40021609&amp;ptid=1550724" target="_blank">钢の战神 发表于 2018-6-17 15:25</a>
@@ -3988,16 +3089,10 @@ M和冬马的狙击水平其实差不了多少。从正面看PTRD就是一根细
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">其实是光剑开孔后打的。那个房子墻直接打打不透应该。不过主要还是光剑戳死的。
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1629#       发表于 2018-6-17 16:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40021891&amp;ptid=1550724" target="_blank">汤武革命 发表于 2018-6-17 15:57</a>
@@ -4006,25 +3101,13 @@ M和冬马的狙击水平其实差不了多少。从正面看PTRD就是一根细
 不需要应该，原著测试过来打不穿
 
 
-
-
-
-
-
 -----
 
 ####  terminator1990  
 ##### 1630#       发表于 2018-6-17 22:51
 
 
-
-
 M先生那队里的几个龙套，前一分钟还在大义凛然地对M说阻挡他们的任务就交给我们吧你只管弄醒公主，后一分钟就全被干趴了，连MMTM的一个兵都没带走，感觉太水了，小说里也是扑街得这么快吗？
-
-
-
-
-
 
 
 -----
@@ -4033,16 +3116,10 @@ M先生那队里的几个龙套，前一分钟还在大义凛然地对M说阻挡
 ##### 1631#       发表于 2018-6-17 22:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40025437&amp;ptid=1550724" target="_blank">terminator1990 发表于 2018-6-17 22:51</a>
 
 M先生那队里的几个龙套，前一分钟还在大义凛然地对M说阻挡他们的任务就交给我们吧你只管弄醒公主，后一分钟 ...</blockquote>
 小说完全做出来起码要打10分钟，虽然也是没杀一个人，MMTM室内战是最强的
-
-
-
-
-
 
 
 -----
@@ -4051,23 +3128,15 @@ M先生那队里的几个龙套，前一分钟还在大义凛然地对M说阻挡
 ##### 1632#       发表于 2018-6-17 23:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40025437&amp;ptid=1550724" target="_blank">terminator1990 发表于 2018-6-17 22:51</a>
 M先生那队里的几个龙套，前一分钟还在大义凛然地对M说阻挡他们的任务就交给我们吧你只管弄醒公主，后一分钟 ...</blockquote>
 mmtm的nb没做出来就是这样的啦，佣兵bb的nb结果被更nb的mmtm干了然后pito再把mmtm都干了，这才能最后显出pito的魔王风范呢
-
-
-
-
-
 
 
 -----
 
 ####  cowgp01  
 ##### 1633#       发表于 2018-6-17 23:27
-
-
 
 
 剩下150公尺时，三台车终于慢了下来。
@@ -4107,27 +3176,15 @@ mmtm的nb没做出来就是这样的啦，佣兵bb的nb结果被更nb的mmtm干�
 单进门这么表明的东西3HZ都没有做，向二楼发射榴弹都省下来了
 
 
-
-
-
-
-
 -----
 
 ####  星月々交辉  
 ##### 1634#       发表于 2018-6-17 23:46
 
 
-
-
 这集一开始我还以为我漏看了一集呢
 
 观感好差，各种不衔接以及莫名其妙的剧情
-
-
-
-
-
 
 
 -----
@@ -4136,14 +3193,7 @@ mmtm的nb没做出来就是这样的啦，佣兵bb的nb结果被更nb的mmtm干�
 ##### 1635#       发表于 2018-6-18 02:08
 
 
-
-
 M第二炮就往左肩去了，应该是对着武器和狙击手去的。但他观察手已经被盾秒了，自己那门炮没几下也被盾打坏了。
-
-
-
-
-
 
 
 -----
@@ -4152,14 +3202,7 @@ M第二炮就往左肩去了，应该是对着武器和狙击手去的。但他�
 ##### 1636#       发表于 2018-6-18 07:41
 
 
-
-
 才想起来这月吃鸡pcpi的冠军队是4AM 现在才意识到…… 
-
-
-
-
-
 
 
 -----
@@ -4168,14 +3211,7 @@ M第二炮就往左肩去了，应该是对着武器和狙击手去的。但他�
 ##### 1637#       发表于 2018-6-18 13:03
 
 
-
-
 被爆头还能活下来<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4184,16 +3220,10 @@ M第二炮就往左肩去了，应该是对着武器和狙击手去的。但他�
 ##### 1638#       发表于 2018-6-18 19:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40030128&amp;ptid=1550724" target="_blank">endrollex 发表于 2018-6-18 13:03</a>
 
 被爆头还能活下来</blockquote>
 血厚就是可以为所欲为<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4202,21 +3232,13 @@ M第二炮就往左肩去了，应该是对着武器和狙击手去的。但他�
 ##### 1639#       发表于 2018-6-18 19:10
 
 
-
-
 理论上只是射穿右眼没伤到脑，没即死判定，引用司波大爷的话：＂咦？你还没打爆我大脑？那你死定了XD＂
-
-
-
-
-
 
 
 -----
 
 ####  汤武革命  
 ##### 1640#       发表于 2018-6-18 19:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40030128&amp;ptid=1550724" target="_blank">endrollex 发表于 2018-6-18 13:03</a>
@@ -4226,16 +3248,10 @@ M第二炮就往左肩去了，应该是对着武器和狙击手去的。但他�
 —— 来自 Xiaomi Mi-4c, Android 5.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1641#       发表于 2018-6-18 20:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40030128&amp;ptid=1550724" target="_blank">endrollex 发表于 2018-6-18 13:03</a>
@@ -4246,16 +3262,10 @@ M第二炮就往左肩去了，应该是对着武器和狙击手去的。但他�
 你看BoB预选时诗乃就给Pito一枪秒了（pito自己说的，虽然没说对方是诗乃不过八成就是）
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1642#       发表于 2018-6-18 20:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40034002&amp;ptid=1550724" target="_blank">pokemon最爱 发表于 2018-6-18 20:27</a>
@@ -4266,26 +3276,15 @@ M第二炮就往左肩去了，应该是对着武器和狙击手去的。但他�
 PGM Ultima Ratio Hecate II那个威力正常人只要不是打中手脚而是身体任何一部分都秒杀吧
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 1643#       发表于 2018-6-18 21:21
 
 
-
  本帖最后由 cowgp01 于 2018-6-18 21:22 编辑 
 
 想到这游戏实装山猫狙击的话所谓的AGI无敌论大概又回来了，所谓强是一个版本的事<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4294,16 +3293,10 @@ PGM Ultima Ratio Hecate II那个威力正常人只要不是打中手脚而是身
 ##### 1644#       发表于 2018-6-18 21:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40034528&amp;ptid=1550724" target="_blank">cowgp01 发表于 2018-6-18 21:21</a>
 
 想到这游戏实装山猫狙击的话所谓的AGI无敌论大概又回来了，所谓强是一个版本的事 ...</blockquote>
 这枪那么轻还是AGI实际，否则像莲那种移动速度你瞄个毛
-
-
-
-
-
 
 
 -----
@@ -4312,23 +3305,16 @@ PGM Ultima Ratio Hecate II那个威力正常人只要不是打中手脚而是身
 ##### 1645#       发表于 2018-6-18 21:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40027829&amp;ptid=1550724" target="_blank">cloudliu 发表于 2018-6-18 07:41</a>
 
 才想起来这月吃鸡pcpi的冠军队是4AM 现在才意识到……</blockquote>
 FPP最后一场被211灭队，TPP最后一场吃鸡翻盘，印象深刻<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1646#       发表于 2018-6-18 23:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40034212&amp;ptid=1550724" target="_blank">月夜凝雪 发表于 2018-6-18 20:48</a>
@@ -4339,16 +3325,10 @@ PGM Ultima Ratio Hecate II那个威力正常人只要不是打中手脚而是身
 不爆头的话是真有可能打不死的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1647#       发表于 2018-6-18 23:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40035766&amp;ptid=1550724" target="_blank">pokemon最爱 发表于 2018-6-18 23:37</a>
@@ -4359,16 +3339,10 @@ PGM Ultima Ratio Hecate II那个威力正常人只要不是打中手脚而是身
 这一话对狙时M说了擦伤都会死，反器材步 枪就是那么恐怖的威力啊
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1648#       发表于 2018-6-18 23:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40035948&amp;ptid=1550724" target="_blank">月夜凝雪 发表于 2018-6-18 23:56</a>
@@ -4379,16 +3353,10 @@ PGM Ultima Ratio Hecate II那个威力正常人只要不是打中手脚而是身
 而且SHINC的对物**口径更大威力更大。
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 1649#       发表于 2018-6-19 00:55
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">你们搞错了
@@ -4402,16 +3370,10 @@ shinc是利用了游戏规则上尸体的不可破坏物品
 然后不可破坏物品就是完美的盾牌了，只要你不开挂直接打到架枪的地方就基本没戏，而且M的观察手还第一个倒了，没人帮他修正弹道，打不过很正常
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 1650#       发表于 2018-6-19 00:57
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">讲真上周其实我看到这一话标题的时候就觉得基本GG了
@@ -4421,17 +3383,10 @@ shinc是利用了游戏规则上尸体的不可破坏物品
 然后这一话出来。。。哎哟比我想的还赶……
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 1651#       发表于 2018-6-19 16:06
-
-
 
 
 有病不治 害人害己
@@ -4439,16 +3394,10 @@ shinc是利用了游戏规则上尸体的不可破坏物品
 光剑再牛有枪牛？又不是有原力。
 
 
-
-
-
-
-
 -----
 
 ####  ror  
 ##### 1652#       发表于 2018-6-19 16:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40043470&amp;ptid=1550724" target="_blank">midearth 发表于 2018-6-19 16:06</a>
@@ -4458,32 +3407,19 @@ shinc是利用了游戏规则上尸体的不可破坏物品
 你要是对着桐傲天说这话还有道理，pito从来都是拿光剑当合适的副武器用的，这集室内战是拿光剑掏墙出其不意，近距离光剑啥都一刀两断不要太好用
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 1653#       发表于 2018-6-19 17:25
 
 
-
-
 pito用光剑从来都是阴人的，猴子都能学会看你想不想得到罢了
-
-
-
-
-
 
 
 -----
 
 ####  Rosetta  
 ##### 1654#       发表于 2018-6-19 22:33
-
 
 
  本帖最后由 Rosetta 于 2018-6-20 12:22 编辑 
@@ -4493,16 +3429,10 @@ pito用光剑从来都是阴人的，猴子都能学会看你想不想得到罢�
 <img src="http://ww1.sinaimg.cn/large/006EJTaFgy1fshj0tadinj30qo0k077m.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Code:703  
 ##### 1655#       发表于 2018-6-19 23:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40021731&amp;ptid=1550724" target="_blank">shadow001 发表于 2018-6-17 15:39</a>
@@ -4511,27 +3441,15 @@ pito用光剑从来都是阴人的，猴子都能学会看你想不想得到罢�
 小说里是被队友tk的。
 
 
-
-
-
-
-
-
 -----
 
 ####  Renes  
 ##### 1656#       发表于 2018-6-20 13:36
 
 
-
 <blockquote>Code:703 发表于 2018-6-19 23:43
 小说里是被队友tk的。</blockquote>
 动画里也是被TK的 小口径直接爆头
-
-
-
-
-
 
 
 -----
@@ -4540,21 +3458,13 @@ pito用光剑从来都是阴人的，猴子都能学会看你想不想得到罢�
 ##### 1657#       发表于 2018-6-20 14:11
 
 
-
-
 大概没打算做sj4了，sj4有光剑对砍玩星战颜色梗的（当然也可能这家外包就没看小说看到那么后面
-
-
-
-
-
 
 
 -----
 
 ####  mhss  
 ##### 1658#       发表于 2018-6-20 23:02
-
 
 
  本帖最后由 mhss 于 2018-6-20 23:03 编辑 
@@ -4568,16 +3478,10 @@ PM4队那几个送的莫名其妙，结果对手的死法也像是杂鱼一般
 pito给我的印象越来越糟了，开场背后击杀谈判的对手不说，吃了一发狙击爆头不死简直（爆头居然不算瞬间伤害还能等血条慢慢扣？）<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">我还以为在这部片子里顶多看到龙傲天，没想到却是个挂B
 
 
-
-
-
-
-
 -----
 
 ####  zodiac137  
 ##### 1659#       发表于 2018-6-20 23:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40059901&amp;ptid=1550724" target="_blank">mhss 发表于 2018-6-20 23:02</a>
@@ -4590,13 +3494,9 @@ pito给我的印象越来越糟了，开场背后击杀谈判的对手不说，�
 GGO里面爆头不是必死伤害，而是一个数字很大的伤害，如果血够厚是可以抗一发爆头不死的，毕竟GGO本质是rpg游戏...当然你要说GGO这个辣鸡游戏竟然这么设计太蠢，那也确实是...
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -4606,12 +3506,7 @@ GGO里面爆头不是必死伤害，而是一个数字很大的伤害，如果�
 | mhss| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -4620,22 +3515,15 @@ GGO里面爆头不是必死伤害，而是一个数字很大的伤害，如果�
 ##### 1660#       发表于 2018-6-20 23:28
 
 
-
  本帖最后由 cowgp01 于 2018-6-20 23:32 编辑 
 
 这游戏真是拟真度微妙，有真实的子弹下坠，然而又会因为SAO世界观所有VR的基础都是RPG而有加点而让现实顶级高手来也很可能打不过肝帝
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 1661#       发表于 2018-6-20 23:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40043470&amp;ptid=1550724" target="_blank">midearth 发表于 2018-6-19 16:06</a>
@@ -4652,32 +3540,19 @@ GGO里面爆头不是必死伤害，而是一个数字很大的伤害，如果�
 当然正常人用不好就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  wingzerocos  
 ##### 1662#       发表于 2018-6-20 23:57
 
 
-
-
 MMTM的爆炸性武器应该只有手雷和队长的一发榴弹。小说里冲进小屋前用掉那发榴弹来掩护了。
-
-
-
-
-
 
 
 -----
 
 ####  ror  
 ##### 1663#       发表于 2018-6-21 00:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40059901&amp;ptid=1550724" target="_blank">mhss 发表于 2018-6-20 23:02</a>
@@ -4695,13 +3570,9 @@ mmtm队长立马开枪，但被pito拿m的分离小盾弹开。pito拉近距离�
 这一战mmtm室内打得非常好，pito靠光剑跟小盾出其不意才能全歼他们，动画做成吊打实在是浪费。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -4711,20 +3582,13 @@ mmtm队长立马开枪，但被pito拿m的分离小盾弹开。pito拉近距离�
 | mhss| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  高等黑暗  
 ##### 1664#       发表于 2018-6-21 08:26
-
-
 
 
 MMTM不炸房的本质原因有两个
@@ -4734,16 +3598,10 @@ MMTM不炸房的本质原因有两个
 2 他们不是房外唯一的队伍，实际上是顶着shinc和LF的火力强行冲房准备利用自己室内战强势+pito这个主心骨已倒拿下这个房子，然后守房反击房外的小队，玩过吃鸡类游戏的都知道中后期躲在房子掩体里打外面就是打靶子，随便吊打
 
 
-
-
-
-
-
 -----
 
 ####  小比類巻香蓮  
 ##### 1665#         楼主| 发表于 2018-6-22 17:08
-
 
 
  本帖最后由 小比類巻香蓮 于 2018-6-22 17:15 编辑 
@@ -4767,17 +3625,10 @@ SAO magazine Vol.6，表紙擋當<[img src="https://static.saraba1st.com/image/s
 買雜誌送的碼可以兌換蓮的P醬和帽子，同樣是SAOFB這個遊戲里
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1666#       发表于 2018-6-22 17:44
-
-
 
 
 【Web予告公開！】
@@ -4795,16 +3646,10 @@ SAO magazine Vol.6，表紙擋當<[img src="https://static.saraba1st.com/image/s
 [https://v.youku.com/v_show/id_XM ... j.8428770.3416059.1](https://v.youku.com/v_show/id_XMzY4MDIwODU1Ng==.html?spm=a2h3j.8428770.3416059.1)
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1667#       发表于 2018-6-22 18:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40059901&amp;ptid=1550724" target="_blank">mhss 发表于 2018-6-20 23:02</a>
@@ -4816,16 +3661,10 @@ SAO magazine Vol.6，表紙擋當<[img src="https://static.saraba1st.com/image/s
 —— 来自 Sony F8132, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1668#       发表于 2018-6-22 18:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40078922&amp;ptid=1550724" target="_blank">小比類巻香蓮 发表于 2018-6-22 17:08</a>
@@ -4835,24 +3674,13 @@ SAO magazine Vol.6，表紙擋當[  （6月25日發售</blockquote>
 —— 来自 Sony F8132, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  darkddragon  
 ##### 1669#       发表于 2018-6-22 19:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">女主这两集越来越鬼畜了，下集是不是还能上一层楼
-
-
-
-
-
 
 
 -----
@@ -4861,15 +3689,9 @@ SAO magazine Vol.6，表紙擋當[  （6月25日發售</blockquote>
 ##### 1670#       发表于 2018-6-23 23:07
 
 
-
  本帖最后由 shadow001 于 2018-6-23 23:10 编辑 
 
 達斯魔的雙頭光劍<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4878,16 +3700,10 @@ SAO magazine Vol.6，表紙擋當[  （6月25日發售</blockquote>
 ##### 1671#       发表于 2018-6-23 23:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40080221&amp;ptid=1550724" target="_blank">darkddragon 发表于 2018-6-22 19:49</a>
 
 女主这两集越来越鬼畜了，下集是不是还能上一层楼</blockquote>
 她会完成她的某个承诺，看起来大概会很鬼畜
-
-
-
-
-
 
 
 -----
@@ -4896,13 +3712,7 @@ SAO magazine Vol.6，表紙擋當[  （6月25日發售</blockquote>
 ##### 1672#       发表于 2018-6-23 23:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">就说是达斯魔。
-
-
-
-
-
 
 
 -----
@@ -4911,13 +3721,7 @@ SAO magazine Vol.6，表紙擋當[  （6月25日發售</blockquote>
 ##### 1673#       发表于 2018-6-23 23:27
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">赤色要塞版的少女与战车
-
-
-
-
-
 
 
 -----
@@ -4926,21 +3730,13 @@ SAO magazine Vol.6，表紙擋當[  （6月25日發售</blockquote>
 ##### 1674#       发表于 2018-6-23 23:28
 
 
-
-
 开场太墨迹了，最后飙车处做得还行，就看下回能不能把那两女疯子草木皆为兵刃的感觉做出来了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  汤武革命  
 ##### 1675#       发表于 2018-6-23 23:33
-
 
 
  本帖最后由 汤武革命 于 2018-6-23 23:40 编辑 
@@ -4950,14 +3746,8 @@ SAO magazine Vol.6，表紙擋當[  （6月25日發售</blockquote>
 part2做得车戏还行。最后的部分真的一股欢乐的气息。。
 
 
-
-
-
-
 1806231.jpg
 (64.22 KB, 下载次数: 3)
-
-
 
 
 下载附件
@@ -4966,85 +3756,37 @@ part2做得车戏还行。最后的部分真的一股欢乐的气息。。
 2018-6-23 23:33 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/23/233348innwncra49lki4ka.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 1806232.jpg
 (57.95 KB, 下载次数: 2)
 
 
-
-
 下载附件
 
 
 2018-6-23 23:33 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/23/233349fx3t2e42xje49z84.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 1806233.jpg
 (46.24 KB, 下载次数: 1)
 
 
-
-
 下载附件
 
 
 2018-6-23 23:33 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/23/233349gjgv1udp5d8n3vyv.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 1806232339.jpg
 (46.29 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -5053,24 +3795,7 @@ part2做得车戏还行。最后的部分真的一股欢乐的气息。。
 2018-6-23 23:40 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/23/234016nkemh3do3cocld3z.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -5079,14 +3804,7 @@ part2做得车戏还行。最后的部分真的一股欢乐的气息。。
 ##### 1676#       发表于 2018-6-23 23:34
 
 
-
-
 还行吧，3hz终于亲自上一回了，虽然质量也没高到哪里去，打死老大她们时候都只放一张图<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，中间还有一张草原背景+配音的，制作进度跟不上了吧，莲跟pito的这一场能不能做好就看下回了
-
-
-
-
-
 
 
 -----
@@ -5095,14 +3813,7 @@ part2做得车戏还行。最后的部分真的一股欢乐的气息。。
 ##### 1677#       发表于 2018-6-23 23:36
 
 
-
-
 对了，下回不知道能不能听到日笠唱魔王，之前也没有删过什么对话应该会有吧
-
-
-
-
-
 
 
 -----
@@ -5111,24 +3822,16 @@ part2做得车戏还行。最后的部分真的一股欢乐的气息。。
 ##### 1678#       发表于 2018-6-23 23:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40092898&amp;ptid=1550724" target="_blank">ror 发表于 2018-6-23 23:34</a>
 
 还行吧，3hz终于亲自上一回了，虽然质量也没高到哪里去，打死老大她们时候都只放一张图，中间还有一 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">下一集还要面姬。战斗内容也就一小点了，这都不做好3HZ该切腹了。
 
 
-
-
-
-
-
 -----
 
 ####  lb0windy  
 ##### 1679#       发表于 2018-6-24 00:25
-
-
 
 
 不可都被打到人棍状态了，看着好痛。
@@ -5138,32 +3841,19 @@ part2做得车戏还行。最后的部分真的一股欢乐的气息。。
 战车和少女，爽快。
 
 
-
-
-
-
-
 -----
 
 ####  tiro_finale  
 ##### 1680#       发表于 2018-6-24 01:17
 
 
-
-
 这集燃起来的地方还行，只是刚开始莲爆种结果却是“老子不陪你玩了”并光速逃跑的喜感效果没表现出来
-
-
-
-
-
 
 
 -----
 
 ####  posion  
 ##### 1681#       发表于 2018-6-24 01:39
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">为啥LS们都觉得这集不错
@@ -5183,32 +3873,19 @@ M私底下一个劲**
 对了，车辆追逐战那里做的不错
 
 
-
-
-
-
-
 -----
 
 ####  恶魔的果实  
 ##### 1682#       发表于 2018-6-24 01:40
 
 
-
-
 这是什么破展开……顶尖玩家送肉，铁杆队友送肉，悍马擅自加戏。这一系列展开确实达到了出其不意的效果，但是目的是啥呢？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  kira1988  
 ##### 1683#       发表于 2018-6-24 01:41
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感覺這集這些人都不按邏輯行動看得好不爽
@@ -5218,16 +3895,10 @@ M私底下一个劲**
 不可一絲血的人棍不會自然死掉，然後pito不補不可刀真的是失了智
 
 
-
-
-
-
-
 -----
 
 ####  kira1988  
 ##### 1684#       发表于 2018-6-24 01:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40094287&amp;ptid=1550724" target="_blank">恶魔的果实 发表于 2018-6-24 01:40</a>
@@ -5236,17 +3907,10 @@ M私底下一个劲**
 +1觀感極差，最討厭毫無邏輯的劇情
 
 
-
-
-
-
-
 -----
 
 ####  ReginaldMorgan  
 ##### 1685#       发表于 2018-6-24 01:55
-
-
 
 
 3hz真的菜（确信）
@@ -5258,16 +3922,10 @@ M私底下一个劲**
 （sj2看得让我觉得刀剑本传其实还不错<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">）
 
 
-
-
-
-
-
 -----
 
 ####  汤武革命  
 ##### 1686#       发表于 2018-6-24 08:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40094287&amp;ptid=1550724" target="_blank">恶魔的果实 发表于 2018-6-24 01:40</a>
@@ -5276,16 +3934,10 @@ M私底下一个劲**
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">为了主角爆气。不可毕竟也是第一页主角，不能死太早。
 
 
-
-
-
-
-
 -----
 
 ####  天光逸  
 ##### 1687#       发表于 2018-6-24 08:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40060094&amp;ptid=1550724" target="_blank">cowgp01 发表于 2018-6-20 23:28</a>
@@ -5294,16 +3946,10 @@ M私底下一个劲**
 SJ1一开始不就表现出来了，一堆自卫队的虽然能屠一般玩家，但被莲这种有一定加点的上位玩家虐暴。
 
 
-
-
-
-
-
 -----
 
 ####  天光逸  
 ##### 1688#       发表于 2018-6-24 08:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40094300&amp;ptid=1550724" target="_blank">kira1988 发表于 2018-6-24 01:41</a>
@@ -5320,32 +3966,19 @@ SJ2和3都是这样的。M从来不参加最后决战。
 理解成pito这人就是随心所欲行动非逻辑性，而行动讲究逻辑性的M对她无条件听从（so
 
 
-
-
-
-
-
 -----
 
 ####  lyz1196  
 ##### 1689#       发表于 2018-6-24 09:20
 
 
-
-
 全面吃鸡模拟器笑死<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 1690#       发表于 2018-6-24 09:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40092938&amp;ptid=1550724" target="_blank">汤武革命 发表于 2018-6-23 23:37</a>
@@ -5355,31 +3988,19 @@ SJ2和3都是这样的。M从来不参加最后决战。
 —— 来自 Sony F8132, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  Boliva  
 ##### 1691#       发表于 2018-6-24 10:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这群人过不了BOB预选还是很有道理的……
-
-
-
-
-
 
 
 -----
 
 ####  YaoMei  
 ##### 1692#       发表于 2018-6-24 11:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40096611&amp;ptid=1550724" target="_blank">Boliva 发表于 2018-6-24 10:21</a>
@@ -5390,26 +4011,15 @@ SJ2和3都是这样的。M从来不参加最后决战。
 JK小队的突击战术大概还停留在一战级别，就算是战术创新了。顺便她们还算是精神病症状比较轻的。
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 1693#       发表于 2018-6-24 11:34
 
 
-
  本帖最后由 cowgp01 于 2018-6-24 11:38 编辑 
 
 因为3hz根本没做战术啊，不过算了反正看到现在也没人会期待3hz会做得好，看小说感觉是bob那群人只有加点吧，看动画又可以逆转印象真是神奇
-
-
-
-
-
 
 
 -----
@@ -5418,16 +4028,9 @@ JK小队的突击战术大概还停留在一战级别，就算是战术创新了
 ##### 1694#       发表于 2018-6-24 11:56
 
 
-
-
 也别吐槽JK队的战术了，她们就是故意送掉逼莲进绝境。
 
 不可那里，在pito离开前就能看到她身边已经摆着回血针，当然死不掉。
-
-
-
-
-
 
 
 -----
@@ -5436,21 +4039,13 @@ JK小队的突击战术大概还停留在一战级别，就算是战术创新了
 ##### 1695#       发表于 2018-6-24 11:57
 
 
-
-
 T-S是个什么队，怎么完全没印象呢，别告诉我他们就是路人最后渔翁得利了
-
-
-
-
-
 
 
 -----
 
 ####  JamieD  
 ##### 1696#       发表于 2018-6-24 12:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40097490&amp;ptid=1550724" target="_blank">筱筱隐士 发表于 2018-6-24 11:57</a>
@@ -5460,16 +4055,10 @@ T-S是个什么队，怎么完全没印象呢，别告诉我他们就是路人�
 不过这队后来在测试赛里还是很有用的
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 1697#       发表于 2018-6-24 12:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40097902&amp;ptid=1550724" target="_blank">JamieD 发表于 2018-6-24 12:42</a>
@@ -5483,16 +4072,10 @@ T-S是个什么队，怎么完全没印象呢，别告诉我他们就是路人�
 M其实在故意放水吧，前面把不可补了也就没这些事了。
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1698#       发表于 2018-6-24 13:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40098080&amp;ptid=1550724" target="_blank">midearth 发表于 2018-6-24 12:59</a>
@@ -5503,16 +4086,10 @@ M其实在故意放水吧，前面把不可补了也就没这些事了。 ...</b
 他说了他动手的，但PITO不让，要说背叛那是后面会提的事情。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1699#       发表于 2018-6-24 15:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40097490&amp;ptid=1550724" target="_blank">筱筱隐士 发表于 2018-6-24 11:57</a>
@@ -5521,27 +4098,15 @@ T-S是个什么队，怎么完全没印象呢，别告诉我他们就是路人�
 SJ2全程城墙上骑车躺赢拿冠军，SJ3龟缩高楼周围被水淹没不知所措又进了上位排名，当然这群人其实实力确实不算多差，主要装备还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ror  
 ##### 1700#       发表于 2018-6-24 20:04
 
 
-
-
 去向日葵看了日本弹幕，看过原作的跟动画党之间喷的很厉害啊，3hz这回真是干得不怎么样。楼上也有不少人觉得都合啊展开白痴啊啥的。
 
 其实上你看原作小说时几乎不会有这些感觉，同样的展开，两种媒体中的表现力差别真的很大。别的不说，光是台词配音缓急，你看小说时基本不会注意到，但是改成动画之后，我有不少时候都觉得他们念台词太慢了，直接导致不少激烈的场面被拖慢，明明是连续的战斗场景，为了说台词还得摆个pose立在那，制作水平高的时候还不明显，像这集一样不上不下就很尴尬了。
-
-
-
-
-
 
 
 -----
@@ -5550,23 +4115,16 @@ SJ2全程城墙上骑车躺赢拿冠军，SJ3龟缩高楼周围被水淹没不�
 ##### 1701#       发表于 2018-6-24 20:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40099389&amp;ptid=1550724" target="_blank">pokemon最爱 发表于 2018-6-24 15:37</a>
 
 SJ2全程城墙上骑车躺赢拿冠军，SJ3龟缩高楼周围被水淹没不知所措又进了上位排名，当然这群人其实实力确实 ...</blockquote>
 那套装备可是狙击都不能爆头的硬防御力啊
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1702#       发表于 2018-6-24 20:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40101744&amp;ptid=1550724" target="_blank">ror 发表于 2018-6-24 20:04</a>
@@ -5577,25 +4135,13 @@ SJ2全程城墙上骑车躺赢拿冠军，SJ3龟缩高楼周围被水淹没不�
 这确实是个问题。而且应该说是小说和漫画这种用文字写台词的载体的天生缺陷。
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 1703#       发表于 2018-6-24 20:33
 
 
-
-
 毕竟看着小说的人大多是为了战斗而看的，剧情真没啥剧情，而动画做得最不行的就是战斗
-
-
-
-
-
 
 
 -----
@@ -5604,23 +4150,15 @@ SJ2全程城墙上骑车躺赢拿冠军，SJ3龟缩高楼周围被水淹没不�
 ##### 1704#       发表于 2018-6-24 23:34
 
 
-
-
 这集战斗实在太白痴了，作者没打过游戏吧。
 
 那么多人去送死，还是热门队伍也太假了。小队突击互相掩护不会? 扔手雷不会？烟雾弹不会？
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 1705#       发表于 2018-6-24 23:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40103914&amp;ptid=1550724" target="_blank">dustdust 发表于 2018-6-24 23:34</a>
@@ -5633,17 +4171,10 @@ SJ2全程城墙上骑车躺赢拿冠军，SJ3龟缩高楼周围被水淹没不�
 老大她们本来就是冲上去送刺激莲的好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  フカ次郎  
 ##### 1706#       发表于 2018-6-25 10:34
-
-
 
 
 把吾辈射成这样了却没有下死手，这一定是M先生的判断，没错，一定是M先生的温柔！
@@ -5652,16 +4183,10 @@ SJ2全程城墙上骑车躺赢拿冠军，SJ3龟缩高楼周围被水淹没不�
 莲酱你闪开，待吾撞死那个疯女人，今次一定要把M先生的邮箱弄到手
 
 
-
-
-
-
-
 -----
 
 ####  irinwind  
 ##### 1707#       发表于 2018-6-25 12:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40107163&amp;ptid=1550724" target="_blank">フカ次郎 发表于 2018-6-25 10:34</a>
@@ -5675,25 +4200,13 @@ SJ2全程城墙上骑车躺赢拿冠军，SJ3龟缩高楼周围被水淹没不�
 差评戏服，不可爱的明明是莲
 
 
-
-
-
-
-
 -----
 
 ####  sonesosl4  
 ##### 1708#       发表于 2018-6-25 18:23
 
 
-
-
 后几集太傻吊了，本来渲染得很硬核的样子然后本性毕露。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5702,21 +4215,13 @@ SJ2全程城墙上骑车躺赢拿冠军，SJ3龟缩高楼周围被水淹没不�
 ##### 1709#       发表于 2018-6-25 20:00
 
 
-
-
 战斗做的越来越不好看
-
-
-
-
-
 
 
 -----
 
 ####  sgpt55  
 ##### 1710#       发表于 2018-6-25 20:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40104071&amp;ptid=1550724" target="_blank">pokemon最爱 发表于 2018-6-24 23:51</a>
@@ -5727,16 +4232,10 @@ SJ2全程城墙上骑车躺赢拿冠军，SJ3龟缩高楼周围被水淹没不�
 然而逻辑上这是风险最大收益最小的做法
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1711#       发表于 2018-6-25 21:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40114002&amp;ptid=1550724" target="_blank">sgpt55 发表于 2018-6-25 20:54</a>
@@ -5745,16 +4244,10 @@ SJ2全程城墙上骑车躺赢拿冠军，SJ3龟缩高楼周围被水淹没不�
 她们又不打算管什么收益，反正之后有去香莲家吃零食作为报酬<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dustdust  
 ##### 1712#       发表于 2018-6-25 22:17
-
 
 
  本帖最后由 dustdust 于 2018-6-25 22:21 编辑 
@@ -5766,16 +4259,10 @@ SJ2全程城墙上骑车躺赢拿冠军，SJ3龟缩高楼周围被水淹没不�
 莲本来就是要去打败那个Pito啊，难道我少看了一集？
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1713#       发表于 2018-6-25 22:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40114750&amp;ptid=1550724" target="_blank">dustdust 发表于 2018-6-25 22:17</a>
@@ -5784,16 +4271,10 @@ SJ2全程城墙上骑车躺赢拿冠军，SJ3龟缩高楼周围被水淹没不�
 对，原本是这样，然而因为乱入的MMTM被Pito一人歼灭的事莲怂了不敢打了，于是SHINC和不可就来了个死亡冲锋刺激莲进入疯子模式<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dustdust  
 ##### 1714#       发表于 2018-6-25 23:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40114888&amp;ptid=1550724" target="_blank">pokemon最爱 发表于 2018-6-25 22:30</a>
@@ -5804,16 +4285,10 @@ SJ2全程城墙上骑车躺赢拿冠军，SJ3龟缩高楼周围被水淹没不�
 MMTM被Pito一人歼灭的事莲怂了不敢打 ，那SHINC和不可被全部杀死岂不是把莲吓出心理阴影，再也不敢玩这游戏？
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1715#       发表于 2018-6-25 23:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40115280&amp;ptid=1550724" target="_blank">dustdust 发表于 2018-6-25 23:11</a>
@@ -5824,16 +4299,10 @@ MMTM被Pito一人歼灭的事莲怂了不敢打 ，那SHINC和不可被全部杀
 弹簧压到底后是会反弹的
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1716#       发表于 2018-6-26 00:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40115280&amp;ptid=1550724" target="_blank">dustdust 发表于 2018-6-25 23:11</a>
@@ -5846,16 +4315,10 @@ MMTM被Pito一人歼灭的事莲怂了不敢打 ，那SHINC和不可被全部杀
 因为莲实际上是一个比Pito还疯的疯子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Rosetta  
 ##### 1717#       发表于 2018-6-26 00:25
-
 
 
  本帖最后由 Rosetta 于 2018-6-26 00:33 编辑 
@@ -5872,16 +4335,10 @@ MMTM被Pito一人歼灭的事莲怂了不敢打 ，那SHINC和不可被全部杀
 怕輸和怕死畢竟是兩回事, 遊戲裡死了只是敗北回城而已.
 
 
-
-
-
-
-
 -----
 
 ####  LLENN  
 ##### 1718#       发表于 2018-6-26 06:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40108847&amp;ptid=1550724" target="_blank">irinwind 发表于 2018-6-25 12:55</a>
@@ -5892,16 +4349,10 @@ MMTM被Pito一人歼灭的事莲怂了不敢打 ，那SHINC和不可被全部杀
 哈！？你才不可爱呢你才不可爱呢！<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  LLENN  
 ##### 1719#       发表于 2018-6-26 06:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40107163&amp;ptid=1550724" target="_blank">フカ次郎 发表于 2018-6-25 10:34</a>
@@ -5913,32 +4364,19 @@ MMTM被Pito一人歼灭的事莲怂了不敢打 ，那SHINC和不可被全部杀
 不可你走开啦，要杀pito小姐的是我！看我切掉她的脑袋<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Archlich  
 ##### 1720#       发表于 2018-6-26 07:00
 
 
-
-
 不可小姐真是可爱到犯规
-
-
-
-
-
 
 
 -----
 
 ####  Nico_Minoru  
 ##### 1721#       发表于 2018-6-26 07:56
-
 
 
  本帖最后由 Nico_Minoru 于 2018-6-26 07:59 编辑 
@@ -5949,16 +4387,10 @@ MMTM被Pito一人歼灭的事莲怂了不敢打 ，那SHINC和不可被全部杀
 逻辑是这样的，打个比方，如果有罪犯在你眼前虐杀路人，你可能被吓软脚，如果虐杀你家人密友，你很有可能和她拼命吧
 
 
-
-
-
-
-
 -----
 
 ####  フカ次郎  
 ##### 1722#       发表于 2018-6-26 10:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40116950&amp;ptid=1550724" target="_blank">LLENN 发表于 2018-6-26 06:59</a>
@@ -5970,16 +4402,10 @@ MMTM被Pito一人歼灭的事莲怂了不敢打 ，那SHINC和不可被全部杀
 吾全都要（划掉
 
 
-
-
-
-
-
 -----
 
 ####  sgpt55  
 ##### 1723#       发表于 2018-6-26 12:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40115905&amp;ptid=1550724" target="_blank">Rosetta 发表于 2018-6-26 00:25</a>
@@ -5992,16 +4418,10 @@ MMTM被Pito一人歼灭的事莲怂了不敢打 ，那SHINC和不可被全部杀
 不过动画没做出来，对非原作党不是很友好，反正我和我基友第一次看的是时候都一脸懵逼
 
 
-
-
-
-
-
 -----
 
 ####  dustdust  
 ##### 1724#       发表于 2018-6-26 13:13
-
 
 
 <blockquote>Nico_Minoru 发表于 2018-6-26 07:56
@@ -6011,16 +4431,10 @@ MMTM被Pito一人歼灭的事莲怂了不敢打 ，那SHINC和不可被全部杀
 再说了，3伙人一起上干掉pito的把握比莲一个人大100倍吧。
 
 
-
-
-
-
-
 -----
 
 ####  Nico_Minoru  
 ##### 1725#       发表于 2018-6-26 13:33
-
 
 
 <blockquote>dustdust 发表于 2018-6-26 13:13
@@ -6030,17 +4444,10 @@ MMTM被Pito一人歼灭的事莲怂了不敢打 ，那SHINC和不可被全部杀
 可是要的不是击杀Pito而是由莲来击杀Pito，阻止她自杀，其她人自愿送掉，可能是比较好的选择。所以莲上集不等Pito回复就突击，不太明智
 
 
-
-
-
-
-
 -----
 
 ####  ctgmyname  
 ##### 1726#       发表于 2018-6-26 14:57
-
-
 
 
 所以说啊，莲为什么要参加这次比赛啊？怕pitohui被别人杀掉然后自杀？所以要抢在她被别人杀掉前先干掉她然后以约定要求她线下见面？
@@ -6050,16 +4457,10 @@ MMTM被Pito一人歼灭的事莲怂了不敢打 ，那SHINC和不可被全部杀
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Nico_Minoru  
 ##### 1727#       发表于 2018-6-26 15:05
-
 
 
 <blockquote>ctgmyname 发表于 2018-6-26 14:57
@@ -6067,16 +4468,10 @@ MMTM被Pito一人歼灭的事莲怂了不敢打 ，那SHINC和不可被全部杀
 因为M的想法是就算这次让Pito赢了，下次还会这么玩迟早要死，莲阻止她了，注意力就转到其他方向了，是不是啊？[@M先生](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=502045) 
 
 
-
-
-
-
-
 -----
 
 ####  汤武革命  
 ##### 1728#       发表于 2018-6-26 16:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40121318&amp;ptid=1550724" target="_blank">ctgmyname 发表于 2018-6-26 14:57</a>
@@ -6086,16 +4481,10 @@ MMTM被Pito一人歼灭的事莲怂了不敢打 ，那SHINC和不可被全部杀
 —— 来自 Xiaomi Mi-4c, Android 5.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 1729#       发表于 2018-6-27 23:03
-
 
 
  本帖最后由 mhss 于 2018-6-27 23:05 编辑 
@@ -6105,17 +4494,10 @@ MMTM被Pito一人歼灭的事莲怂了不敢打 ，那SHINC和不可被全部杀
 感觉是前面集数的硬核战斗把期待值拉的太高了，结果看到挂B对决心里就毫无波动了（结局对于观众来说是显而易见的，双方为了这一结局疯狂的放水）
 
 
-
-
-
-
-
 -----
 
 ####  Rosetta  
 ##### 1730#       发表于 2018-6-29 00:51
-
-
 
 
 http://www.bilibili.com/read/cv625561
@@ -6129,16 +4511,10 @@ SJ1的自衛隊玩家跟菊岡有關。
 —— 来自 vivo NEX S, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1731#       发表于 2018-6-29 01:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40151470&amp;ptid=1550724" target="_blank">Rosetta 发表于 2018-6-29 00:51</a>
@@ -6150,16 +4526,10 @@ pito原本設定為bob3中被桐人打敗的槍士X，但最後還是改成原�
 嘛……跟菊冈有关，该说没啥意外的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 1732#       发表于 2018-6-29 07:59
-
 
 
 <blockquote>Rosetta 发表于 2018-6-29 00:51
@@ -6170,25 +4540,13 @@ pito原本設定為bob3中被桐人打敗的槍士X，但最後還是改成原�
 师奶屁股可还行233
 
 
-
-
-
-
-
 -----
 
 ####  selvarie  
 ##### 1733#       发表于 2018-6-29 11:13
 
 
-
-
 看了10多集下来，发现本传桐傲天真特么好看！  这外传动画只要包含枪械战斗，都在无时不刻的刷新智商下限，  顺便向你证明玩枪的确实比玩刀的弱智。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6197,73 +4555,33 @@ pito原本設定為bob3中被桐人打敗的槍士X，但最後還是改成原�
 ##### 1734#       发表于 2018-6-29 16:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">骚以前是不是也是ED的，上了ASL？
-
-
-
-
 
 
 180629161919.jpg
 (225.38 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2018-6-29 16:17 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/29/161735d6wnwoztkms3sfjn.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 180629161443.jpg
 (141.34 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2018-6-29 16:17 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/29/161736e8aw880ivym68aah.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -6272,25 +4590,16 @@ pito原本設定為bob3中被桐人打敗的槍士X，但最後還是改成原�
 ##### 1735#       发表于 2018-6-29 19:40
 
 
-
-
 表现力实在太糟糕了，与其说是一群疯子在打架更像一群弱智在互掐......
 
 
 不可大叔还是一路既往的很糟糕啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1736#       发表于 2018-6-29 23:19
-
-
 
 
 2018.7.25（水）発売
@@ -6332,8 +4641,6 @@ DVD完全生産限定版 ANZB-14183—14184¥5,800 + 税
 • イベントチケット優先販売申込券
 
 
-
-
 #12 拍手
 
 《セカンド・スクワッド・ジャム》もいよいよ大詰め。レンとピトフーイの一騎打ちが始まった。
@@ -6350,16 +4657,10 @@ TVアニメ「ガンゲイル・オンライン」第12話予告映像
 [https://weibo.com/tv/v/GnEUO6rkk?fid=1034:4256388172678966](https://weibo.com/tv/v/GnEUO6rkk?fid=1034:4256388172678966)
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1737#       发表于 2018-6-29 23:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40151586&amp;ptid=1550724" target="_blank">pokemon最爱 发表于 2018-6-29 01:07</a>
@@ -6368,25 +4669,13 @@ TVアニメ「ガンゲイル・オンライン」第12話予告映像
 记得小说里有那批海军陆战队的回去向上级报告后上级给菊冈打电话的桥段来着？
 
 
-
-
-
-
-
 -----
 
 ####  錯乱坊  
 ##### 1738#       发表于 2018-6-30 01:26
 
 
-
-
 好剧本总是得不到好的制作改编，这已经成了业界普遍现象了吧
-
-
-
-
-
 
 
 -----
@@ -6395,16 +4684,10 @@ TVアニメ「ガンゲイル・オンライン」第12話予告映像
 ##### 1739#       发表于 2018-6-30 01:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40162649&amp;ptid=1550724" target="_blank">月夜凝雪 发表于 2018-6-29 23:38</a>
 
 记得小说里有那批海军陆战队的回去向上级报告后上级给菊冈打电话的桥段来着？ ...</blockquote>
 好像是有，只是没提上司的名字……
-
-
-
-
-
 
 
 -----
@@ -6413,15 +4696,8 @@ TVアニメ「ガンゲイル・オンライン」第12話予告映像
 ##### 1740#       发表于 2018-6-30 16:05
 
 
-
-
 链接：[https://pan.baidu.com/s/1JLYSRItebkEZtqIXJoUjFA](https://pan.baidu.com/s/1JLYSRItebkEZtqIXJoUjFA) 密码：nr4j
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fst8iljkzwj22me3t5qv6.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6430,14 +4706,7 @@ TVアニメ「ガンゲイル・オンライン」第12話予告映像
 ##### 1741#       发表于 2018-6-30 23:16
 
 
-
-
 牙也能做成傷害判定<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6446,21 +4715,13 @@ TVアニメ「ガンゲイル・オンライン」第12話予告映像
 ##### 1742#       发表于 2018-6-30 23:27
 
 
-
-
 这集好，挺稳定，不出所料，该有都有了
-
-
-
-
-
 
 
 -----
 
 ####  cowgp01  
 ##### 1743#       发表于 2018-6-30 23:29
-
 
 
  本帖最后由 cowgp01 于 2018-6-30 23:31 编辑 
@@ -6470,16 +4731,10 @@ TVアニメ「ガンゲイル・オンライン」第12話予告映像
 总体来说这片除了第一话都属于惨遭动画化的范畴，最最后警察先生能把那LOLI控变态跟踪狂捉起来么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  汤武革命  
 ##### 1744#       发表于 2018-6-30 23:30
-
 
 
  本帖最后由 汤武革命 于 2018-6-30 23:48 编辑 
@@ -6488,14 +4743,8 @@ TVアニメ「ガンゲイル・オンライン」第12話予告映像
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">为了看GGO 错过了法国和阿根廷的三个进球。
 
 
-
-
-
-
 06302328.jpg
 (46.71 KB, 下载次数: 6)
-
-
 
 
 下载附件
@@ -6504,85 +4753,37 @@ TVアニメ「ガンゲイル・オンライン」第12話予告映像
 2018-6-30 23:30 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/30/233045y21t7pv1e1t1v3vi.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 06302329.jpg
 (84.75 KB, 下载次数: 4)
 
 
-
-
 下载附件
 
 
 2018-6-30 23:30 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/30/233046si3i0gffx3k3gqij.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 06302330.jpg
 (72.71 KB, 下载次数: 5)
 
 
-
-
 下载附件
 
 
 2018-6-30 23:30 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/30/233047a94x5d9dl4bd6136.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 186031.jpg
 (94.24 KB, 下载次数: 3)
-
-
 
 
 下载附件
@@ -6591,24 +4792,7 @@ TVアニメ「ガンゲイル・オンライン」第12話予告映像
 2018-6-30 23:36 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/30/233643nmwivymxvfpin55m.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -6617,22 +4801,14 @@ TVアニメ「ガンゲイル・オンライン」第12話予告映像
 ##### 1745#       发表于 2018-7-1 00:02
 
 
-
-
 看直播的时候就想做这个图
 <img src="https://wx4.sinaimg.cn/large/64a6d8b6gy1fstne0oacyj20ok0hmdul.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  汤武革命  
 ##### 1746#       发表于 2018-7-1 00:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40173208&amp;ptid=1550724" target="_blank">hlazd 发表于 2018-7-1 00:02</a>
@@ -6642,25 +4818,13 @@ TVアニメ「ガンゲイル・オンライン」第12話予告映像
 —— 来自 Xiaomi Mi-4c, Android 5.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2
 
 
-
-
-
-
-
 -----
 
 ####  兰开夏  
 ##### 1747#       发表于 2018-7-1 00:15
 
 
-
-
 哪里可以看生肉。。。错过了
-
-
-
-
-
 
 
 -----
@@ -6669,16 +4833,10 @@ TVアニメ「ガンゲイル・オンライン」第12話予告映像
 ##### 1748#       发表于 2018-7-1 00:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40173371&amp;ptid=1550724" target="_blank">兰开夏 发表于 2018-7-1 00:15</a>
 
 哪里可以看生肉。。。错过了</blockquote>
 去向日葵吧
-
-
-
-
-
 
 
 -----
@@ -6687,16 +4845,10 @@ TVアニメ「ガンゲイル・オンライン」第12話予告映像
 ##### 1749#       发表于 2018-7-1 00:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40173408&amp;ptid=1550724" target="_blank">cowgp01 发表于 2018-7-1 00:17</a>
 
 去向日葵吧</blockquote>
 为什么向日葵吧图片是幽香，为什么里面有都是种植体验...
-
-
-
-
-
 
 
 -----
@@ -6705,16 +4857,10 @@ TVアニメ「ガンゲイル・オンライン」第12話予告映像
 ##### 1750#       发表于 2018-7-1 00:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40173371&amp;ptid=1550724" target="_blank">兰开夏 发表于 2018-7-1 00:15</a>
 
 哪里可以看生肉。。。错过了</blockquote>
 magnet:?xt=urn:btih:RMHFDAHH7UCZF27I46AHHP7NCPIQ2XB6&amp;dn=%5BOhys-Raws%5D+Sword+Art+Online+Alternative+Gun+Gale+Online+-+12+END+%28BS11+1280x720+x264+AAC%29.mp4&amp;tr=http%3A%2F%2Fnyaa.tracker.wf%3A7777%2Fannounce&amp;tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&amp;tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&amp;tr=udp%3A%2F%2Ftracker.coppersurfer.tk%3A6969%2Fannounce&amp;tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce
-
-
-
-
-
 
 
 -----
@@ -6723,14 +4869,7 @@ magnet:?xt=urn:btih:RMHFDAHH7UCZF27I46AHHP7NCPIQ2XB6&amp;dn=%5BOhys-Raws%5D+Swor
 ##### 1751#       发表于 2018-7-1 00:21
 
 
-
-
 最后一话好甜，被幼女殴打吗，想想超性奋。
-
-
-
-
-
 
 
 -----
@@ -6739,14 +4878,7 @@ magnet:?xt=urn:btih:RMHFDAHH7UCZF27I46AHHP7NCPIQ2XB6&amp;dn=%5BOhys-Raws%5D+Swor
 ##### 1752#       发表于 2018-7-1 00:23
 
 
-
-
 最后一话就是大杂烩啊，茶番终于结束了
-
-
-
-
-
 
 
 -----
@@ -6755,16 +4887,10 @@ magnet:?xt=urn:btih:RMHFDAHH7UCZF27I46AHHP7NCPIQ2XB6&amp;dn=%5BOhys-Raws%5D+Swor
 ##### 1753#       发表于 2018-7-1 00:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40173426&amp;ptid=1550724" target="_blank">兰开夏 发表于 2018-7-1 00:18</a>
 
 为什么向日葵吧图片是幽香，为什么里面有都是种植体验...</blockquote>
 向日葵是日本的盗版视频网，虽然很多人知道不过各种原因我就不贴地址，应该很容易搜索到<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6773,16 +4899,10 @@ magnet:?xt=urn:btih:RMHFDAHH7UCZF27I46AHHP7NCPIQ2XB6&amp;dn=%5BOhys-Raws%5D+Swor
 ##### 1754#       发表于 2018-7-1 00:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40173516&amp;ptid=1550724" target="_blank">cowgp01 发表于 2018-7-1 00:24</a>
 
 向日葵是日本的盗版视频网，虽然很多人知道不过各种原因我就不贴地址，应该很容易搜索到 ...</blockquote>
 懂了，多谢！
-
-
-
-
-
 
 
 -----
@@ -6791,16 +4911,9 @@ magnet:?xt=urn:btih:RMHFDAHH7UCZF27I46AHHP7NCPIQ2XB6&amp;dn=%5BOhys-Raws%5D+Swor
 ##### 1755#       发表于 2018-7-1 00:47
 
 
-
-
 日笠阳子真是厉害
 
 感想完 这都打得什么玩意儿……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6809,23 +4922,14 @@ magnet:?xt=urn:btih:RMHFDAHH7UCZF27I46AHHP7NCPIQ2XB6&amp;dn=%5BOhys-Raws%5D+Swor
 ##### 1756#       发表于 2018-7-1 01:00
 
 
-
-
 看完了，总的来说前面几集做的还是挺好的，然而前面几集把观众的心理预期拔高了，后面SJ2的各种删减和崩坏就令人肥肠不爽了。虽然12集的篇幅做不了那么细不过做的确实很毁观感就是了。
 最后百合赛高，M桑那段历史没有画面只有文字太平淡了，把画面做出来才有意思好嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 1757#       发表于 2018-7-1 01:37
-
-
 
 
 土鳩@kunkunpliznosuk
@@ -6882,27 +4986,15 @@ SAO オルタナティブ ガンゲイル・オンライン
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fstq5ix896j20lv0lv0vr.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Rosetta  
 ##### 1758#       发表于 2018-7-1 01:56
 
 
-
-
 最後live還行，ELZA的專輯買了張支持下。
 
 —— 来自 vivo NEX S, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0
-
-
-
-
-
 
 
 -----
@@ -6911,16 +5003,10 @@ SAO オルタナティブ ガンゲイル・オンライン
 ##### 1759#       发表于 2018-7-1 02:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40099389&amp;ptid=1550724" target="_blank">pokemon最爱 发表于 2018-6-24 15:37</a>
 
 SJ2全程城墙上骑车躺赢拿冠军，SJ3龟缩高楼周围被水淹没不知所措又进了上位排名，当然这群人其实实力确实 ...</blockquote>
 这帮人就是爬山党，哪儿高往哪儿爬
-
-
-
-
-
 
 
 -----
@@ -6929,17 +5015,10 @@ SJ2全程城墙上骑车躺赢拿冠军，SJ3龟缩高楼周围被水淹没不�
 ##### 1760#       发表于 2018-7-1 02:13
 
 
-
-
 日笠配音是厉害
 
 
 pito惨死的脸太有趣了
-
-
-
-
-
 
 
 -----
@@ -6948,16 +5027,10 @@ pito惨死的脸太有趣了
 ##### 1761#       发表于 2018-7-1 03:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40172667&amp;ptid=1550724" target="_blank">cowgp01 发表于 2018-6-30 23:29</a>
 
 删了飞身砸刀，卡波拉拔刀，只保留巴投，两疯女人把所有技术完全溶于一身打斗的感觉没了，而且莲咬那一口也 ...</blockquote>
 还有相遇过程的回忆也改了，另一个跟踪狂完全不提了，看小说的时候我还以为那段会做成画面呢，不过这已经太赶了，预期中我觉得现实见面这段要一话就是想着是把那段跟踪狂剧情做出来。
-
-
-
-
-
 
 
 -----
@@ -6966,14 +5039,7 @@ pito惨死的脸太有趣了
 ##### 1762#       发表于 2018-7-1 03:51
 
 
-
-
 日笠有点返璞归真的意思了，除了那几句歌剧有点绷嗓子，别的时候炫技都没有烟火气了
-
-
-
-
-
 
 
 -----
@@ -6982,15 +5048,9 @@ pito惨死的脸太有趣了
 ##### 1763#       发表于 2018-7-1 05:57
 
 
-
 <blockquote>hlazd 发表于 2018-7-1 00:02
 看直播的时候就想做这个图</blockquote>
 抄袭世界名画
-
-
-
-
-
 
 
 -----
@@ -6999,23 +5059,15 @@ pito惨死的脸太有趣了
 ##### 1764#       发表于 2018-7-1 09:06
 
 
-
-
 这世界居然温柔得能让肥宅stk也可以实现人生理想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 还有某歌手究竟几岁不会比大妈jk们还小吧？
-
-
-
-
-
 
 
 -----
 
 ####  汤武革命  
 ##### 1765#       发表于 2018-7-1 09:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40176030&amp;ptid=1550724" target="_blank">newise 发表于 2018-7-1 09:06</a>
@@ -7025,32 +5077,19 @@ pito惨死的脸太有趣了
 神崎比香莲还大几岁..成年人
 
 
-
-
-
-
-
 -----
 
 ####  風駿  
 ##### 1766#       发表于 2018-7-1 09:19
 
 
-
-
 虚拟形象和真人之间的反差太戳人了
-
-
-
-
-
 
 
 -----
 
 ####  cowgp01  
 ##### 1767#       发表于 2018-7-1 09:20
-
 
 
 <blockquote>newise 发表于 2018-7-1 09:06
@@ -7060,16 +5099,10 @@ pito惨死的脸太有趣了
 最起码sao的时候就已经是大学生了不然M先生真要去蹲牢
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1768#       发表于 2018-7-1 09:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40176104&amp;ptid=1550724" target="_blank">cowgp01 发表于 2018-7-1 09:20</a>
@@ -7079,33 +5112,19 @@ pito惨死的脸太有趣了
 —— 来自 Sony F8132, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  schneehertz  
 ##### 1769#       发表于 2018-7-1 13:14
 
 
-
-
 最后一集还不错，嘛总之没烂尾就好
-
-
-
-
-
 
 
 -----
 
 ####  zhangyichi26  
 ##### 1770#       发表于 2018-7-1 13:16
-
-
 
 
 M跟踪狂的剧情改了啊，原来是小肥宅英雄救美，结果发现“救”下的是大魔王，现在变成女妖怪捡了个猎物回家<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
@@ -7124,16 +5143,7 @@ M跟踪狂的剧情改了啊，原来是小肥宅英雄救美，结果发现“�
 2018-7-1 13:13 上传
 
 
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">智力担当·警醒者·美优
-
-
-
-
-
-
 
 
 -----
@@ -7142,14 +5152,7 @@ M跟踪狂的剧情改了啊，原来是小肥宅英雄救美，结果发现“�
 ##### 1771#       发表于 2018-7-1 15:06
 
 
-
-
 真的亲亲了不就变成本格作品了吗！会影响销量的啊！（兴奋）
-
-
-
-
-
 
 
 -----
@@ -7158,18 +5161,10 @@ M跟踪狂的剧情改了啊，原来是小肥宅英雄救美，结果发现“�
 ##### 1772#       发表于 2018-7-1 15:23
 
 
-
-
 看到cast表那一刻震惊了，日笠太太已经出神入化了
 
 
 肥宅还是能找到救赎之路的，本剧非常正能量，我给+2 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
@@ -7178,23 +5173,15 @@ M跟踪狂的剧情改了啊，原来是小肥宅英雄救美，结果发现“�
 ##### 1773#       发表于 2018-7-1 15:57
 
 
-
-
 所以莲的枪自爆是啥原理？？？
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  age45  
 ##### 1774#       发表于 2018-7-1 16:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40179502&amp;ptid=1550724" target="_blank">xmcp 发表于 2018-7-1 15:57</a>
@@ -7206,25 +5193,13 @@ M跟踪狂的剧情改了啊，原来是小肥宅英雄救美，结果发现“�
 上一集拿来挡子弹已经坏掉了
 
 
-
-
-
-
-
 -----
 
 ####  Yeaha123  
 ##### 1775#       发表于 2018-7-1 16:14
 
 
-
-
 M那种厉害的军事指挥才能是怎么来的？
-
-
-
-
-
 
 
 -----
@@ -7233,23 +5208,16 @@ M那种厉害的军事指挥才能是怎么来的？
 ##### 1776#       发表于 2018-7-1 16:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40179614&amp;ptid=1550724" target="_blank">Yeaha123 发表于 2018-7-1 16:14</a>
 
 M那种厉害的军事指挥才能是怎么来的？</blockquote>
 肥宅军迷啊，泥潭不遍地都是，当然也只能在网络上嘚瑟下的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1777#       发表于 2018-7-1 16:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40179664&amp;ptid=1550724" target="_blank">X(iaolw)S 发表于 2018-7-1 16:21</a>
@@ -7259,16 +5227,10 @@ M那种厉害的军事指挥才能是怎么来的？</blockquote>
 —— 来自 Sony F8132, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  武男  
 ##### 1778#       发表于 2018-7-1 16:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40172691&amp;ptid=1550724" target="_blank">汤武革命 发表于 2018-6-30 23:30</a>
@@ -7279,25 +5241,13 @@ M那种厉害的军事指挥才能是怎么来的？</blockquote>
 莲的罩杯大概是多少啊，现实中。
 
 
-
-
-
-
-
 -----
 
 ####  X(iaolw)S  
 ##### 1779#       发表于 2018-7-1 17:18
 
 
-
-
 M不是主动减肥的，实在太励志了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7306,16 +5256,10 @@ M不是主动减肥的，实在太励志了<img src="https://static.saraba1st.co
 ##### 1780#       发表于 2018-7-1 17:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40179846&amp;ptid=1550724" target="_blank">武男 发表于 2018-7-1 16:42</a>
 
 莲的罩杯大概是多少啊，现实中。</blockquote>
 <img src="http://wx3.sinaimg.cn/mw690/006gKP1Tgy1fs4na54nfxj30j50a2gvv.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7324,16 +5268,10 @@ M不是主动减肥的，实在太励志了<img src="https://static.saraba1st.co
 ##### 1781#       发表于 2018-7-1 17:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40180175&amp;ptid=1550724" target="_blank">X(iaolw)S 发表于 2018-7-1 17:18</a>
 
 M不是主动减肥的，实在太励志了</blockquote>
 不是，是因为被Pito虐待而瘦下来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7342,14 +5280,7 @@ M不是主动减肥的，实在太励志了</blockquote>
 ##### 1782#       发表于 2018-7-1 17:53
 
 
-
-
 M跑过去欧美训练过射击，不过那技术大概正式当兵的也学不到，欧美太可怕了
-
-
-
-
-
 
 
 -----
@@ -7358,17 +5289,10 @@ M跑过去欧美训练过射击，不过那技术大概正式当兵的也学不�
 ##### 1783#       发表于 2018-7-1 19:01
 
 
-
-
 二代目P酱又死啦！<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">（我为什么要说又
 
 
 总之比赛结果不重要，Pito小姐没有死真是太好了！<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7377,21 +5301,14 @@ M跑过去欧美训练过射击，不过那技术大概正式当兵的也学不�
 ##### 1784#       发表于 2018-7-1 19:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40179846&amp;ptid=1550724" target="_blank">武男 发表于 2018-7-1 16:42</a>
 
 莲的罩杯大概是多少啊，现实中。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看小说插画就A的程度吧。。动画加大了不少。
 
 
-
-
-
-
 2015121414544917.jpg
 (192.88 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -7400,24 +5317,7 @@ M跑过去欧美训练过射击，不过那技术大概正式当兵的也学不�
 2018-7-1 19:39 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/01/193929ddp89mdpzj9s60lj.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -7426,14 +5326,7 @@ M跑过去欧美训练过射击，不过那技术大概正式当兵的也学不�
 ##### 1785#       发表于 2018-7-1 20:02
 
 
-
-
 非原作党表示看着还算痛快
-
-
-
-
-
 
 
 -----
@@ -7442,14 +5335,7 @@ M跑过去欧美训练过射击，不过那技术大概正式当兵的也学不�
 ##### 1786#       发表于 2018-7-1 20:38
 
 
-
-
 11,12集的战斗部分还没sj1好看
-
-
-
-
-
 
 
 -----
@@ -7458,16 +5344,9 @@ M跑过去欧美训练过射击，不过那技术大概正式当兵的也学不�
 ##### 1787#       发表于 2018-7-1 21:14
 
 
-
-
 日笠太太三角包圆真是出人意料<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 本来我听见社长的熟女音还在想“这是谁怎么这么熟悉反正不应该是日笠她是配的别人啊”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7476,21 +5355,13 @@ M跑过去欧美训练过射击，不过那技术大概正式当兵的也学不�
 ##### 1788#       发表于 2018-7-1 21:26
 
 
-
-
 好奇m是怎么被绑起来的，就pito现实那种小个子，难不成经纪人帮忙么？
-
-
-
-
-
 
 
 -----
 
 ####  ycy8332589  
 ##### 1789#       发表于 2018-7-1 21:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40182431&amp;ptid=1550724" target="_blank">ramiel 发表于 2018-7-1 21:14</a>
@@ -7501,16 +5372,10 @@ M跑过去欧美训练过射击，不过那技术大概正式当兵的也学不�
 索爹为了推新人女歌手也变相剥夺了日笠唱歌的机会，最后亮一下肌肉也不过分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Rosetta  
 ##### 1790#       发表于 2018-7-1 21:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40182560&amp;ptid=1550724" target="_blank">ddd同调 发表于 2018-7-1 21:26</a>
@@ -7519,16 +5384,10 @@ M跑过去欧美训练过射击，不过那技术大概正式当兵的也学不�
 M自己都記不得, 估計也完全沒反抗...畢竟是女神的邀請...
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 1791#       发表于 2018-7-1 21:59
-
 
 
  本帖最后由 cowgp01 于 2018-7-1 22:03 编辑 
@@ -7538,16 +5397,10 @@ M自己都記不得, 估計也完全沒反抗...畢竟是女神的邀請...
 原作里还有一个跟踪狂，这两人打了一场难看的架后M被PITO捡回去，而且你也别小看现实的PITO啊，错过SAO的时候M可是被打断三根肋骨的，请以同样150多的水树为参考<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  汤武革命  
 ##### 1792#       发表于 2018-7-1 22:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40182431&amp;ptid=1550724" target="_blank">ramiel 发表于 2018-7-1 21:14</a>
@@ -7560,16 +5413,10 @@ M自己都記不得, 估計也完全沒反抗...畢竟是女神的邀請...
 结果是CV表原来一人饰三角色。
 
 
-
-
-
-
-
 -----
 
 ####  武男  
 ##### 1793#       发表于 2018-7-1 22:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40181446&amp;ptid=1550724" target="_blank">汤武革命 发表于 2018-7-1 19:39</a>
@@ -7578,25 +5425,13 @@ M自己都記不得, 估計也完全沒反抗...畢竟是女神的邀請...
 TV里面感觉起码D+吧，都快比艾莎的头大了
 
 
-
-
-
-
-
 -----
 
 ####  JamieD  
 ##### 1794#       发表于 2018-7-1 22:52
 
 
-
-
 那个社长一开口就知道是日笠配的了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7605,15 +5440,9 @@ TV里面感觉起码D+吧，都快比艾莎的头大了
 ##### 1795#       发表于 2018-7-1 23:41
 
 
-
 <blockquote>ddd同调 发表于 2018-7-1 21:26
 好奇m是怎么被绑起来的，就pito现实那种小个子，难不成经纪人帮忙么？</blockquote>
 似乎是下药了
-
-
-
-
-
 
 
 -----
@@ -7622,14 +5451,7 @@ TV里面感觉起码D+吧，都快比艾莎的头大了
 ##### 1796#       发表于 2018-7-1 23:51
 
 
-
-
 TS抢人头那个画面怎么没在旁边放6台自行车。
-
-
-
-
-
 
 
 -----
@@ -7638,22 +5460,15 @@ TS抢人头那个画面怎么没在旁边放6台自行车。
 ##### 1797#       发表于 2018-7-2 11:16
 
 
-
 <blockquote>X(iaolw)S 发表于 2018-7-1 16:21
 肥宅军迷啊，泥潭不遍地都是，当然也只能在网络上嘚瑟下的</blockquote>
 在下好歹也是艾莎小姐长期以来的左右手而且是学习过的好嘛！这也是为了保护艾莎小姐的需要哇⊙∀⊙！
-
-
-
-
-
 
 
 -----
 
 ####  フカ次郎  
 ##### 1798#       发表于 2018-7-2 11:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40181089&amp;ptid=1550724" target="_blank">LLENN 发表于 2018-7-1 19:01</a>
@@ -7668,16 +5483,10 @@ M先生原来是个变态，PITO桑本体居然……感觉吾的世界观崩坏
 香莲你一定要把持住啊！你一放松你下半辈子就真的完蛋了！
 
 
-
-
-
-
-
 -----
 
 ####  Nico_Minoru  
 ##### 1799#       发表于 2018-7-2 11:58
-
 
 
 <blockquote>フカ次郎 发表于 2018-7-2 11:42
@@ -7688,16 +5497,10 @@ M先生原来是个变态，PITO桑本体居然……感觉吾的世界观崩坏
 你和香莲结婚吧，金发和黑发不是绝配吗？
 
 
-
-
-
-
-
 -----
 
 ####  汤武革命  
 ##### 1800#       发表于 2018-7-2 12:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40188474&amp;ptid=1550724" target="_blank">Nico_Minoru 发表于 2018-7-2 11:58</a>
@@ -7706,32 +5509,19 @@ M先生原来是个变态，PITO桑本体居然……感觉吾的世界观崩坏
 <img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alialex  
 ##### 1801#       发表于 2018-7-2 12:37
 
 
-
-
 这集没什么打斗看起来没这么蠢了，疯女人本体居然是幼女身材，报警了啊
-
-
-
-
-
 
 
 -----
 
 ####  M先生  
 ##### 1802#       发表于 2018-7-2 12:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40188301&amp;ptid=1550724" target="_blank">フカ次郎 发表于 2018-7-2 11:42</a>
@@ -7743,26 +5533,15 @@ M先生原来是个变态，PITO桑本体居然……感觉吾的世界观崩坏
 <img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">不！！！我不是！我没有！
 
 
-
-
-
-
-
 -----
 
 ####  coldmilk_leung  
 ##### 1803#       发表于 2018-7-2 13:15
 
 
-
 <img src="http://wx3.sinaimg.cn/mw690/722fc3f1gy1fsvfxoqanpj21hc0u07wi.jpg" referrerpolicy="no-referrer">
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">非原作党表示，除了SJ2开始打戏偶尔的崩坏，总体还是挺棒的（横比之下）。最后自古百合暖人心。
-
-
-
-
-
 
 
 -----
@@ -7771,23 +5550,15 @@ M先生原来是个变态，PITO桑本体居然……感觉吾的世界观崩坏
 ##### 1804#       发表于 2018-7-2 16:59
 
 
-
-
 日笠的声线真是惊人<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
 SJ2战斗的全部笑点还不如最后一集车上对话来得多<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，这片主要角色果然现实跟游戏是有巨大反差的，有点好奇其他队（比如机枪队）是否也遵循这个原则，也许机枪肌肉猛男的背后是一群正太也说不定呢
-
-
-
-
-
 
 
 -----
 
 ####  cowgp01  
 ##### 1805#       发表于 2018-7-2 17:13
-
 
 
 <blockquote>mhss 发表于 2018-7-2 16:59
@@ -7797,32 +5568,19 @@ SJ2战斗的全部笑点还不如最后一集车上对话来得多，这片主�
 机枪队队长是一个有大学生倒追的斯文眼镜英语老师，mmtm队长是个快递小哥
 
 
-
-
-
-
-
 -----
 
 ####  x五更琉璃  
 ##### 1806#       发表于 2018-7-2 17:44
 
 
-
-
 不过这游戏痛觉反馈到底什么机制啊，那边随便被打一枪就跪下了，这边双手双脚被砍掉还能有空吹逼<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  高等黑暗  
 ##### 1807#       发表于 2018-7-2 17:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40192010&amp;ptid=1550724" target="_blank">x五更琉璃 发表于 2018-7-2 17:44</a>
@@ -7833,16 +5591,10 @@ SJ2战斗的全部笑点还不如最后一集车上对话来得多，这片主�
 pito和M用的是自己hack过的sao旧设备（这种设备在sao事件之后已经全面停用召回了）+全封闭式游戏仓，痛觉反馈可以自己设置。。。。然后pito是个疯子你懂的
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1808#       发表于 2018-7-2 18:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40192010&amp;ptid=1550724" target="_blank">x五更琉璃 发表于 2018-7-2 17:44</a>
@@ -7851,16 +5603,10 @@ pito和M用的是自己hack过的sao旧设备（这种设备在sao事件之后�
 总之就是不会痛的程度。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1809#       发表于 2018-7-2 18:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40192048&amp;ptid=1550724" target="_blank">高等黑暗 发表于 2018-7-2 17:50</a>
@@ -7871,16 +5617,10 @@ Nerve Gear和AmuSphere在痛觉吸收系统上区别没那么大，顶多是AmuS
 痛觉反馈也不是能随便自己设置的东西。目前唯一可以确认的是茅场的账号可以修改痛觉吸收系统的等级而且是无论AmuSphere还是Nerve Gear都会被影响。推测应该是这个系统是写进游戏系统（Cardinal System和后来的The Seed）并且被严格限制了其取值。Nerve Gear相比AmuSphere最大的区别是生理保障强制断线系统。
 
 
-
-
-
-
-
 -----
 
 ####  x五更琉璃  
 ##### 1810#       发表于 2018-7-2 18:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40192226&amp;ptid=1550724" target="_blank">pokemon最爱 发表于 2018-7-2 18:10</a>
@@ -7889,16 +5629,10 @@ Nerve Gear和AmuSphere在痛觉吸收系统上区别没那么大，顶多是AmuS
 那挨了一枪跪下到底是什么操作啊。。。前面貌似也有类似表现<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 1811#       发表于 2018-7-2 19:08
-
 
 
 <blockquote>引用第1810楼x五更琉璃于2018-07-02 20:15发表的  :
@@ -7910,17 +5644,10 @@ Nerve Gear和AmuSphere在痛觉吸收系统上区别没那么大，顶多是AmuS
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 1812#       发表于 2018-7-2 19:12
-
-
 
 
 结果还是3hz拖后腿，最终话还是那么崩，就打戏到了最终回稍微能看一点。最后换声线太秀了，这就是动画的优势啊。
@@ -7930,16 +5657,10 @@ Nerve Gear和AmuSphere在痛觉吸收系统上区别没那么大，顶多是AmuS
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  汤武革命  
 ##### 1813#       发表于 2018-7-2 19:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40192594&amp;ptid=1550724" target="_blank">x五更琉璃 发表于 2018-7-2 18:45</a>
@@ -7950,16 +5671,10 @@ Nerve Gear和AmuSphere在痛觉吸收系统上区别没那么大，顶多是AmuS
 —— 来自 Xiaomi Mi-4c, Android 5.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2
 
 
-
-
-
-
-
 -----
 
 ####  一剑扬锋  
 ##### 1814#       发表于 2018-7-3 07:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40179248&amp;ptid=1550724" target="_blank">fanisy 发表于 2018-7-1 15:23</a>
@@ -7974,17 +5689,10 @@ Nerve Gear和AmuSphere在痛觉吸收系统上区别没那么大，顶多是AmuS
 我觉得还是请饶了肥宅吧
 
 
-
-
-
-
-
 -----
 
 ####  一剑扬锋  
 ##### 1815#       发表于 2018-7-3 07:44
-
-
 
 
 疯女人们打枪7分打底
@@ -8001,16 +5709,10 @@ Nerve Gear和AmuSphere在痛觉吸收系统上区别没那么大，顶多是AmuS
 7/10<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 1816#       发表于 2018-7-3 07:45
-
 
 
 <blockquote>引用第1814楼一剑扬锋于2018-07-03 09:11发表的  :
@@ -8022,16 +5724,10 @@ Nerve Gear和AmuSphere在痛觉吸收系统上区别没那么大，顶多是AmuS
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1817#       发表于 2018-7-3 08:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40192594&amp;ptid=1550724" target="_blank">x五更琉璃 发表于 2018-7-2 18:45</a>
@@ -8042,16 +5738,10 @@ Nerve Gear和AmuSphere在痛觉吸收系统上区别没那么大，顶多是AmuS
 要解释的话可以理解为玩家自己的主观问题吧。
 
 
-
-
-
-
-
 -----
 
 ####  zhangyichi26  
 ##### 1818#       发表于 2018-7-3 08:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40192594&amp;ptid=1550724" target="_blank">x五更琉璃 发表于 2018-7-2 18:45</a>
@@ -8062,26 +5752,15 @@ Nerve Gear和AmuSphere在痛觉吸收系统上区别没那么大，顶多是AmuS
 （好像小说里莲给人“开档”的时候有提到过……想想这酸爽）
 
 
-
-
-
-
-
 -----
 
 ####  X(iaolw)S  
 ##### 1819#       发表于 2018-7-3 08:43
 
 
-
  本帖最后由 X(iaolw)S 于 2018-7-3 08:45 编辑 
 
 风怒
-
-
-
-
-
 
 
 -----
@@ -8090,23 +5769,16 @@ Nerve Gear和AmuSphere在痛觉吸收系统上区别没那么大，顶多是AmuS
 ##### 1820#       发表于 2018-7-3 08:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40192594&amp;ptid=1550724" target="_blank">x五更琉璃 发表于 2018-7-2 18:45</a>
 
 那挨了一枪跪下到底是什么操作啊。。。前面貌似也有类似表现</blockquote>
 中枪跪下可以理解为系统强制的硬直设定之类吧，不一定是操作者自己想跪
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 1821#       发表于 2018-7-3 08:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40198255&amp;ptid=1550724" target="_blank">一剑扬锋 发表于 2018-7-3 07:44</a>
@@ -8121,16 +5793,10 @@ Nerve Gear和AmuSphere在痛觉吸收系统上区别没那么大，顶多是AmuS
 不过几个主要介绍的队伍还是比较厉害的，至少有游戏高手的水平，除了最后为了激发莲的斗志一起出去送之外没啥逗比操作（这里面有个假设前提是她们一致认为女主牛逼强无敌，只要她肯打打谁都吊打）
 
 
-
-
-
-
-
 -----
 
 ####  一剑扬锋  
 ##### 1822#       发表于 2018-7-3 09:22
-
 
 
  本帖最后由 一剑扬锋 于 2018-7-3 09:24 编辑 
@@ -8145,16 +5811,10 @@ Nerve Gear和AmuSphere在痛觉吸收系统上区别没那么大，顶多是AmuS
 怎么想也不会打到人吧
 
 
-
-
-
-
-
 -----
 
 ####  汤武革命  
 ##### 1823#       发表于 2018-7-3 09:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40199051&amp;ptid=1550724" target="_blank">一剑扬锋 发表于 2018-7-3 09:22</a>
@@ -8167,16 +5827,10 @@ Nerve Gear和AmuSphere在痛觉吸收系统上区别没那么大，顶多是AmuS
 那个是用光剑开的口..不是弹孔的<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">动画的确是几乎没表现。
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 1824#       发表于 2018-7-3 11:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40199051&amp;ptid=1550724" target="_blank">一剑扬锋 发表于 2018-7-3 09:22</a>
@@ -8189,16 +5843,10 @@ Nerve Gear和AmuSphere在痛觉吸收系统上区别没那么大，顶多是AmuS
 然后一开始mmtm没注意墙上的洞，突然被pito过墙一枪打死一个，然后反击，发现子弹没法穿墙，判断pito是通过墙上的洞，从洞口看到对面然后瞄准的（实际上这个游戏因为有子弹线，所以你只要有视野和弹道，不用看着枪的瞄准镜），所以mmtm准备也如法炮制，跑过去通过上面的洞口观察对面然后下面的洞口打枪，结果走近的时候直接被pito一剑穿心了，这时候他们才想到pito是怎么做到毫无声息的在墙上开这么多洞的，原来是用光剑捅
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 1825#       发表于 2018-7-3 11:09
-
 
 
 <blockquote>一剑扬锋 发表于 2018-7-3 09:22
@@ -8208,17 +5856,10 @@ Nerve Gear和AmuSphere在痛觉吸收系统上区别没那么大，顶多是AmuS
 小说路人最起码表现有一般玩家的水平
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 1826#       发表于 2018-7-3 11:10
-
-
 
 
 其实把枪插到洞里打的确挺反常识的，这其中的关键点就是这游戏有子弹线，除了狙之外所有枪械的瞄准镜其实都是摆设
@@ -8229,16 +5870,10 @@ Nerve Gear和AmuSphere在痛觉吸收系统上区别没那么大，顶多是AmuS
 包括sj1刚开始的时候，小说里面M给莲披风之后也说，你开枪的话直接把p90放在披风里面开不影响，只要眼睛看得到辅助圆完全不用瞄准的
 
 
-
-
-
-
-
 -----
 
 ####  汤武革命  
 ##### 1827#       发表于 2018-7-3 12:06
-
 
 
  本帖最后由 汤武革命 于 2018-7-3 12:09 编辑 
@@ -8252,14 +5887,8 @@ Nerve Gear和AmuSphere在痛觉吸收系统上区别没那么大，顶多是AmuS
 时雨泽说SJ4是全员暴走，按做剧场版的节奏去写的，不过SJ3要做的话，比起tv的确更适合剧场版。
 
 
-
-
-
-
 180701.jpg
 (17.57 KB, 下载次数: 14)
-
-
 
 
 下载附件
@@ -8268,118 +5897,52 @@ Nerve Gear和AmuSphere在痛觉吸收系统上区别没那么大，顶多是AmuS
 2018-7-3 12:09 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/03/120904wiar2d8y3rbjr2j6.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 180622.jpg
 (54.78 KB, 下载次数: 16)
 
 
-
-
 下载附件
 
 
 2018-7-3 12:09 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/03/120906xgiiqnruiwuiq3ga.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 180623.jpg
 (44.55 KB, 下载次数: 18)
 
 
-
-
 下载附件
 
 
 2018-7-3 12:09 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/03/120907j8kf6lz8m7mk877n.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 180624.jpg
 (42.47 KB, 下载次数: 15)
 
 
-
-
 下载附件
 
 
 2018-7-3 12:09 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/03/120907v9s9255zhrmlr783.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  M先生  
 ##### 1828#       发表于 2018-7-3 13:39
-
 
 
 <blockquote>一剑扬锋 发表于 2018-7-3 07:41
@@ -8390,13 +5953,7 @@ Nerve Gear和AmuSphere在痛觉吸收系统上区别没那么大，顶多是AmuS
 双性恋我记得原作里没说吧，这个是动画自己加的？（为了卖角色卖百合无所不用其极……）
 
 
-
 而且其实原作里，在下还是有好好读完了大学的只是艾莎小姐随叫就要随到……而且减肥也是因为自己觉得应该注意一下了就开始关注这些东西慢慢变得可靠了的励志故事，然后动画里改得面目全非为黑而黑……（所以真的，原作和动画要分开看……动画卖女性角色的重点太突出了，真的明明可以做到两全其美的地方，恶意也太明显了……）
-
-
-
-
-
 
 
 -----
@@ -8405,21 +5962,13 @@ Nerve Gear和AmuSphere在痛觉吸收系统上区别没那么大，顶多是AmuS
 ##### 1829#       发表于 2018-7-3 13:47
 
 
-
-
 GGO内的M真可爱， 现实的M哇四斋蒸鹅心……
-
-
-
-
-
 
 
 -----
 
 ####  フカ次郎  
 ##### 1830#       发表于 2018-7-3 17:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40202194&amp;ptid=1550724" target="_blank">M先生 发表于 2018-7-3 13:39</a>
@@ -8431,16 +5980,10 @@ GGO内的M真可爱， 现实的M哇四斋蒸鹅心……
 希望M先生的律师给力一些（棒读
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1831#       发表于 2018-7-3 19:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40200302&amp;ptid=1550724" target="_blank">高等黑暗 发表于 2018-7-3 11:05</a>
@@ -8451,32 +5994,19 @@ GGO内的M真可爱， 现实的M哇四斋蒸鹅心……
 原作也是木头墙啊……但是够厚所以打不穿是真的。
 
 
-
-
-
-
-
 -----
 
 ####  yuuu  
 ##### 1832#       发表于 2018-7-3 19:36
 
 
-
-
 看完了。時沢雨的叙事功底还是比川原好很多的
-
-
-
-
-
 
 
 -----
 
 ####  M先生  
 ##### 1833#       发表于 2018-7-4 19:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40204382&amp;ptid=1550724" target="_blank">フカ次郎 发表于 2018-7-3 17:11</a>
@@ -8488,26 +6018,15 @@ GGO内的M真可爱， 现实的M哇四斋蒸鹅心……
 <img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">您请听我解释！这一切都是误会！误会！都是出于爱的盲目而已！除了那些冲动之下的尾随举动外！我什么都可以解释！……（远去
 
 
-
-
-
-
-
 -----
 
 ####  Nico_Minoru  
 ##### 1834#       发表于 2018-7-4 20:22
 
 
-
 <blockquote>M先生 发表于 2018-7-4 19:30
 您请听我解释！这一切都是误会！误会！都是出于爱的盲目而已！除了那些冲动之下的尾随举动外！我 ...</blockquote>
 有首歌很适合你bad things
-
-
-
-
-
 
 
 -----
@@ -8516,23 +6035,16 @@ GGO内的M真可爱， 现实的M哇四斋蒸鹅心……
 ##### 1835#       发表于 2018-7-4 20:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40202194&amp;ptid=1550724" target="_blank">M先生 发表于 2018-7-3 13:39</a>
 
 双性恋我记得原作里没说吧，这个是动画自己加的？（为了卖角色卖百合无所不用其极……）</blockquote>
 艾莎小姐是“男女通吃的花心萝卜”不是你自己说的吗！<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1836#       发表于 2018-7-4 21:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40202194&amp;ptid=1550724" target="_blank">M先生 发表于 2018-7-3 13:39</a>
@@ -8542,16 +6054,10 @@ GGO内的M真可爱， 现实的M哇四斋蒸鹅心……
 —— 来自 Sony F8132, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  M先生  
 ##### 1837#       发表于 2018-7-5 10:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40217439&amp;ptid=1550724" target="_blank">月夜凝雪 发表于 2018-7-4 21:35</a>
@@ -8560,16 +6066,10 @@ GGO内的M真可爱， 现实的M哇四斋蒸鹅心……
 <img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">这……记错了……多谢指正啦~
 
 
-
-
-
-
-
 -----
 
 ####  M先生  
 ##### 1838#       发表于 2018-7-5 11:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40216661&amp;ptid=1550724" target="_blank">Nico_Minoru 发表于 2018-7-4 20:22</a>
@@ -8578,16 +6078,10 @@ GGO内的M真可爱， 现实的M哇四斋蒸鹅心……
 <img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">回头去听听看，看看能不能有什么灵感给艾莎小姐~（潜意识突然觉得会是什么可怕的惨歌……）
 
 
-
-
-
-
-
 -----
 
 ####  M先生  
 ##### 1839#       发表于 2018-7-5 11:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40216842&amp;ptid=1550724" target="_blank">LLENN 发表于 2018-7-4 20:39</a>
@@ -8596,26 +6090,15 @@ GGO内的M真可爱， 现实的M哇四斋蒸鹅心……
 <img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">这、这……女孩子亲女孩子不算的！对，一定是这样的！
 
 
-
-
-
-
-
 -----
 
 ####  Nico_Minoru  
 ##### 1840#       发表于 2018-7-5 11:24
 
 
-
 <blockquote>M先生 发表于 2018-7-5 11:14
 回头去听听看，看看能不能有什么灵感给艾莎小姐~（潜意识突然觉得会是什么可怕的惨歌……） ...</blockquote>
 艾莎小姐喜欢古典乐，给她会挨打的
-
-
-
-
-
 
 
 -----
@@ -8624,15 +6107,8 @@ GGO内的M真可爱， 现实的M哇四斋蒸鹅心……
 ##### 1841#       发表于 2018-7-10 12:21
 
 
-
-
 链接：[https://pan.baidu.com/s/1BPy8d2FyWcG0d1q0ByH0hQ](https://pan.baidu.com/s/1BPy8d2FyWcG0d1q0ByH0hQ) 密码：lf0v
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ft4my4kv05j23va2kyhdu.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8641,22 +6117,14 @@ GGO内的M真可爱， 现实的M哇四斋蒸鹅心……
 ##### 1842#       发表于 2018-9-4 17:37
 
 
-
-
 [https://gungale-online.net/event/](https://gungale-online.net/event/)
 <img src="http://wx4.sinaimg.cn/large/0068TvVBgy1fuxmipwtn0j30xc0nlwiy.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 1843#       发表于 2018-9-4 17:55
-
 
 
 <blockquote>xingenge 发表于 2018-9-4 17:37<[img src="static/image/common/back.gif" referrerpolicy="no-referrer">
@@ -8667,26 +6135,15 @@ GGO内的M真可爱， 现实的M哇四斋蒸鹅心……
 来自: iPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  汤武革命  
 ##### 1844#       发表于 2018-9-4 18:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40861072&amp;ptid=1550724" target="_blank">xingenge 发表于 2018-9-4 17:37</a>
 https://gungale-online.net/event/</blockquote>
 这身高简直了...原来姬友也这么高
-
-
-
-
-
 
 
 -----
@@ -8695,22 +6152,13 @@ https://gungale-online.net/event/</blockquote>
 ##### 1845#       发表于 2018-9-4 18:19
 
 
-
-
 愛莎這麼小隻....豪志蘿莉控坐實
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 1846#       发表于 2018-9-26 17:26
-
-
 
 
 【BD&amp;DVD⑤ジャケット公開！】 
@@ -8721,24 +6169,13 @@ https://gungale-online.net/event/</blockquote>
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fvn2igx08yj20qk0xcjvi.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Rosetta  
 ##### 1847#       发表于 2018-10-8 15:11
 
 
-
 <img src="https://ws1.sinaimg.cn/large/006EJTaFgy1fw0u1mwbn8j30u01hc463.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8747,21 +6184,14 @@ https://gungale-online.net/event/</blockquote>
 ##### 1848#       发表于 2018-10-8 15:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41198306&amp;ptid=1550724" target="_blank">Rosetta 发表于 2018-10-8 15:11</a></blockquote>
 简直太色情了
-
-
-
-
-
 
 
 -----
 
 ####  Archlich  
 ##### 1849#       发表于 2018-10-8 15:38
-
 
 
  本帖最后由 Archlich 于 2018-10-8 15:40 编辑 
@@ -8772,16 +6202,10 @@ https://gungale-online.net/event/</blockquote>
 那个男人就是这么牛逼
 
 
-
-
-
-
-
 -----
 
 ####  Rosetta  
 ##### 1850#       发表于 2018-10-8 15:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41198595&amp;ptid=1550724" target="_blank">Archlich 发表于 2018-10-8 15:38</a>
@@ -8793,25 +6217,14 @@ https://gungale-online.net/event/</blockquote>
 <img src="https://ws1.sinaimg.cn/large/006EJTaFgy1fw0v1j0evbj30u01hc7bh.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  汤武革命  
 ##### 1851#       发表于 2018-10-8 16:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41198657&amp;ptid=1550724" target="_blank">Rosetta 发表于 2018-10-8 15:45</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/animal2017/004.png" referrerpolicy="no-referrer">奇诺加个辫子...跟香莲有多少差距呢。大概只有身高吧。
-
-
-
-
-
 
 
 -----
@@ -8820,14 +6233,7 @@ https://gungale-online.net/event/</blockquote>
 ##### 1852#       发表于 2018-10-8 16:29
 
 
-
-
 看了隔壁Alicization篇，这边的只是疯子，那边才是真的开挂的
-
-
-
-
-
 
 
 -----
@@ -8836,17 +6242,10 @@ https://gungale-online.net/event/</blockquote>
 ##### 1853#       发表于 2019-2-14 12:30
 
 
-
 <img src="https://img.moegirl.org/common/thumb/b/b2/SAOAGGO_Vol9.jpg/800px-SAOAGGO_Vol9.jpg" referrerpolicy="no-referrer">
 
 
-
 11区都出到9了……中文的还停在7（实体版更落后）……是坑了么………………<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8855,16 +6254,10 @@ https://gungale-online.net/event/</blockquote>
 ##### 1854#       发表于 2019-2-14 13:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42591330&amp;ptid=1550724" target="_blank">M先生 发表于 2019-2-14 12:30</a>
 
 11区都出到9了……中文的还停在7（实体版更落后）……是坑了么……………… ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">话说有没有剧透那个150相亲男的……不会真跟莲魔组CP吧
-
-
-
-
-
 
 
 -----
@@ -8873,14 +6266,10 @@ https://gungale-online.net/event/</blockquote>
 ##### 1855#       发表于 2019-2-15 00:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42591948&amp;ptid=1550724" target="_blank">zhangyichi26 发表于 2019-2-14 13:25</a>
 
 话说有没有剧透那个150相亲男的……不会真跟莲魔组CP吧</blockquote>
 一点消息都没有了……惨兮兮
-
-
-
 
 
                                       

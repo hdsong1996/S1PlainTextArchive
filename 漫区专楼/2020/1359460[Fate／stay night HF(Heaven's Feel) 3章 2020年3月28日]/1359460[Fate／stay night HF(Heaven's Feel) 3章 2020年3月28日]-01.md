@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2020-02-17 21:34** 
 
 
-
 -----
 
 ####  xingenge  
 ##### 1#       楼主       发表于 2016-12-31 22:52
-
 
 
  本帖最后由 xingenge 于 2019-12-19 20:40 编辑 
@@ -18,25 +16,13 @@
 <img src="http://wx3.sinaimg.cn/large/0068TvVBgy1g5mbkytfc2j30xc19xalr.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  帕帕盖诺  
 ##### 2#       发表于 2016-12-31 22:54
 
 
-
-
 樱头发是不是短了一截
-
-
-
-
-
 
 
 -----
@@ -45,14 +31,7 @@
 ##### 3#       发表于 2016-12-31 22:58
 
 
-
-
 BGM感觉还可以
-
-
-
-
-
 
 
 -----
@@ -61,14 +40,7 @@ BGM感觉还可以
 ##### 4#       发表于 2016-12-31 23:05
 
 
-
-
 感觉很不错。须藤很喜欢植物
-
-
-
-
-
 
 
 -----
@@ -77,16 +49,9 @@ BGM感觉还可以
 ##### 5#       发表于 2016-12-31 23:28
 
 
-
-
 从作监当上导演的人头一次做出来的东西一般不用担心画面甚至演出
 
 但是要担心剧情编排……
-
-
-
-
-
 
 
 -----
@@ -95,17 +60,10 @@ BGM感觉还可以
 ##### 6#       发表于 2016-12-31 23:32
 
 
-
-
 终于<img src="https://static.saraba1st.com/image/smiley/nq/005.gif" referrerpolicy="no-referrer">
 
 ----发自我的iPhone via [Saralin 1.8.0](https://itunes.apple.com/cn/app/saralin/id1086444812)
 来自: iPhone客户端
-
-
-
-
-
 
 
 -----
@@ -114,21 +72,13 @@ BGM感觉还可以
 ##### 7#       发表于 2016-12-31 23:34
 
 
-
-
 该来的还是来了！
-
-
-
-
-
 
 
 -----
 
 ####  Arak  
 ##### 8#       发表于 2016-12-31 23:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34662370&amp;ptid=1359460" target="_blank">柊四四八 发表于 2016-12-31 23:28</a>
@@ -139,32 +89,19 @@ BGM感觉还可以
 有做过未来福音噢。从我和我身边的实际经历来看，这一部厨子们相当买账。
 
 
-
-
-
-
-
 -----
 
 ####  sk86  
 ##### 9#       发表于 2016-12-31 23:47
 
 
-
-
 我靠，型血疯了吗？明年几部作品了？
-
-
-
-
-
 
 
 -----
 
 ####  太书主  
 ##### 10#       发表于 2016-12-31 23:57
-
 
 
 <blockquote>sk86 发表于 2016-12-31 23:47
@@ -174,32 +111,19 @@ BGM感觉还可以
 他又不做动画
 
 
-
-
-
-
-
 -----
 
 ####  茴香蚪  
 ##### 11#       发表于 2017-1-1 00:01
 
 
-
-
 安定的大妈
-
-
-
-
-
 
 
 -----
 
 ####  柊四四八  
 ##### 12#       发表于 2017-1-1 00:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34662447&amp;ptid=1359460" target="_blank">Arak 发表于 2016-12-31 23:35</a>
@@ -210,25 +134,13 @@ BGM感觉还可以
 不过反正本来也没啥剧情
 
 
-
-
-
-
-
 -----
 
 ####  selain.meneth  
 ##### 13#       发表于 2017-1-1 00:22
 
 
-
-
 这么多FATE……
-
-
-
-
-
 
 
 -----
@@ -237,14 +149,7 @@ BGM感觉还可以
 ##### 14#       发表于 2017-1-1 00:37
 
 
-
-
 须藤友徳还是可以放心的，起码是个樱厨
-
-
-
-
-
 
 
 -----
@@ -253,14 +158,7 @@ BGM感觉还可以
 ##### 15#       发表于 2017-1-1 00:45
 
 
-
-
 BGM真不错 比较配HF的氛围
-
-
-
-
-
 
 
 -----
@@ -269,14 +167,7 @@ BGM真不错 比较配HF的氛围
 ##### 16#       发表于 2017-1-1 01:39
 
 
-
-
 配合音乐看PV已经哭了
-
-
-
-
-
 
 
 -----
@@ -285,14 +176,7 @@ BGM真不错 比较配HF的氛围
 ##### 17#       发表于 2017-1-1 01:51
 
 
-
-
 月姬重制版仍然是有生之年
-
-
-
-
-
 
 
 -----
@@ -301,15 +185,8 @@ BGM真不错 比较配HF的氛围
 ##### 18#       发表于 2017-1-1 01:56
 
 
-
-
 大妈配这个感觉还是挺合适的
 不过生放送里有一段bgm是sorrow，感觉突然炸裂了
-
-
-
-
-
 
 
 -----
@@ -318,14 +195,7 @@ BGM真不错 比较配HF的氛围
 ##### 19#       发表于 2017-1-1 02:05
 
 
-
-
 老婆啊！老婆啊！啊啊啊！老婆啊！
-
-
-
-
-
 
 
 -----
@@ -334,14 +204,7 @@ BGM真不错 比较配HF的氛围
 ##### 20#       发表于 2017-1-1 02:09
 
 
-
-
 樱厨正式接手，应该会重点照顾了
-
-
-
-
-
 
 
 -----
@@ -350,14 +213,7 @@ BGM真不错 比较配HF的氛围
 ##### 21#       发表于 2017-1-1 02:13
 
 
-
-
 又是一个新的有生之年系列。。预定是全三章吗？
-
-
-
-
-
 
 
 -----
@@ -366,14 +222,7 @@ BGM真不错 比较配HF的氛围
 ##### 22#       发表于 2017-1-1 02:14
 
 
-
-
 光是听到这BGM就不太敢看了...当年看到樱之梦结局时被虐得不要不要的
-
-
-
-
-
 
 
 -----
@@ -382,14 +231,7 @@ BGM真不错 比较配HF的氛围
 ##### 23#       发表于 2017-1-1 02:44
 
 
-
-
 事实证明型月靠fate就可以赚一辈子的钱，2017都多少部fate了....
-
-
-
-
-
 
 
 -----
@@ -398,16 +240,10 @@ BGM真不错 比较配HF的氛围
 ##### 24#       发表于 2017-1-1 04:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34664279&amp;ptid=1359460" target="_blank">zodiac137 发表于 2017-1-1 02:44</a>
 
 事实证明型月靠fate就可以赚一辈子的钱，2017都多少部fate了....</blockquote>
 3部动画2部剧场版
-
-
-
-
-
 
 
 -----
@@ -416,14 +252,7 @@ BGM真不错 比较配HF的氛围
 ##### 25#       发表于 2017-1-1 04:49
 
 
-
-
 估计要暴死，樱厨少的可怜
-
-
-
-
-
 
 
 -----
@@ -432,23 +261,16 @@ BGM真不错 比较配HF的氛围
 ##### 26#       发表于 2017-1-1 05:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34664572&amp;ptid=1359460" target="_blank">千纸鹤 发表于 2017-1-1 04:49</a>
 
 估计要暴死，樱厨少的可怜</blockquote>
 櫻廚少歸少, 至少官方投票上還是比伊莉婭高的, 魔伊也沒擔心暴死的話那HF應該也不用操這個心<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Arak  
 ##### 27#       发表于 2017-1-1 08:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34664572&amp;ptid=1359460" target="_blank">千纸鹤 发表于 2017-1-1 04:49</a>
@@ -459,25 +281,13 @@ BGM真不错 比较配HF的氛围
 暴死是不可能的，厨子自然买账，路人本来就没指望他买账
 
 
-
-
-
-
-
 -----
 
 ####  killsx  
 ##### 28#       发表于 2017-1-1 08:41
 
 
-
-
 好期待
-
-
-
-
-
 
 
 -----
@@ -486,16 +296,10 @@ BGM真不错 比较配HF的氛围
 ##### 29#       发表于 2017-1-1 08:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34664535&amp;ptid=1359460" target="_blank">goiler_0 发表于 2017-1-1 04:29</a>
 
 3部动画2部剧场版</blockquote>
 哪3部
-
-
-
-
-
 
 
 -----
@@ -504,14 +308,7 @@ BGM真不错 比较配HF的氛围
 ##### 30#       发表于 2017-1-1 08:48
 
 
-
-
 每部还是一个小时的那种吗
-
-
-
-
-
 
 
 -----
@@ -520,17 +317,10 @@ BGM真不错 比较配HF的氛围
 ##### 31#       发表于 2017-1-1 09:58
 
 
-
-
 2017月厨年？
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.22)
-
-
-
-
-
 
 
 -----
@@ -539,14 +329,7 @@ BGM真不错 比较配HF的氛围
 ##### 32#       发表于 2017-1-1 10:11
 
 
-
-
 fate霸权
-
-
-
-
-
 
 
 -----
@@ -555,23 +338,15 @@ fate霸权
 ##### 33#       发表于 2017-1-1 10:22
 
 
-
-
 FHA也来一部呗
 
 主要想要主线最后的高潮戏
-
-
-
-
-
 
 
 -----
 
 ####  cxxx  
 ##### 34#       发表于 2017-1-1 11:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34664915&amp;ptid=1359460" target="_blank">osk666 发表于 2017-1-1 08:46</a>
@@ -584,27 +359,15 @@ TV：FE FA
 型月盛世<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lhw369  
 ##### 35#       发表于 2017-1-1 12:06
 
 
-
-
 刚看到弹幕里有这么一句：樱吹士挺。
 
 —— 来自 HUAWEI NXT-AL10, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
-
-
-
-
-
 
 
 -----
@@ -613,14 +376,7 @@ TV：FE FA
 ##### 36#       发表于 2017-1-1 12:26
 
 
-
-
 音乐是可以的，就是不知道剧情会被魔改成怎样
-
-
-
-
-
 
 
 -----
@@ -629,16 +385,10 @@ TV：FE FA
 ##### 37#       发表于 2017-1-1 12:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34664915&amp;ptid=1359460" target="_blank">osk666 发表于 2017-1-1 08:46</a>
 
 哪3部</blockquote>
 fate go, fate apocrypha, fate extra, 剧场版是魔伊和FHA
-
-
-
-
-
 
 
 -----
@@ -647,14 +397,7 @@ fate go, fate apocrypha, fate extra, 剧场版是魔伊和FHA
 ##### 38#       发表于 2017-1-1 13:43
 
 
-
-
 BGM黑掉了 好棒
-
-
-
-
-
 
 
 -----
@@ -663,14 +406,7 @@ BGM黑掉了 好棒
 ##### 39#       发表于 2017-1-1 14:12
 
 
-
-
 我樱，终于、、、土狗真男人线
-
-
-
-
-
 
 
 -----
@@ -679,22 +415,13 @@ BGM黑掉了 好棒
 ##### 40#       发表于 2017-1-1 15:38
 
 
-
-
 盼了这么多年，真不容易啊
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 41#         楼主| 发表于 2017-2-19 16:10
-
-
 
 
 未确定
@@ -714,30 +441,13 @@ BGM黑掉了 好棒
 2017-2-19 16:09 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  cao1rui2  
 ##### 42#       发表于 2017-2-19 16:16
 
 
-
-
 ubwtv那个画风诡异的作监不在就行
-
-
-
-
-
 
 
 -----
@@ -746,13 +456,7 @@ ubwtv那个画风诡异的作监不在就行
 ##### 43#       发表于 2017-2-19 17:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">9月。。。BD要2018年了
-
-
-
-
-
 
 
 -----
@@ -761,17 +465,10 @@ ubwtv那个画风诡异的作监不在就行
 ##### 44#       发表于 2017-2-19 18:09
 
 
-
-
 h戏怎么演
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.22)
-
-
-
-
-
 
 
 -----
@@ -780,21 +477,13 @@ h戏怎么演
 ##### 45#       发表于 2017-2-19 18:15
 
 
-
-
 背景太好太出戏，哈哈
-
-
-
-
-
 
 
 -----
 
 ####  临界点  
 ##### 46#       发表于 2017-2-19 18:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35262509&amp;ptid=1359460" target="_blank">hypnossz86 发表于 2017-2-19 18:09</a>
@@ -806,25 +495,13 @@ h戏怎么演
 要不就像空之境界那样 遮掉部分画面  要不就像全年龄版游戏或者TV那样改不就完了
 
 
-
-
-
-
-
 -----
 
 ####  ok041094  
 ##### 47#       发表于 2017-2-19 19:25
 
 
-
-
 9月30日....BD要等下年呀...另外HF要演多少集?
-
-
-
-
-
 
 
 -----
@@ -833,22 +510,13 @@ h戏怎么演
 ##### 48#       发表于 2017-2-19 19:39
 
 
-
-
 其他作品里黄毛啊NTR啊还好，一想到樱没事就被2爷干，真的心里不舒服。。。。。
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 49#         楼主| 发表于 2017-2-20 20:43
-
-
 
 
 <img src="http://img.saraba1st.com/forum/201702/20/204338hzpn8cvk1vvvkb18.png" referrerpolicy="no-referrer">
@@ -861,17 +529,7 @@ h戏怎么演
 2017-2-20 20:43 上传
 
 
-
-
-
-
-
 被传开了然后说误记
-
-
-
-
-
 
 
 -----
@@ -880,16 +538,10 @@ h戏怎么演
 ##### 50#       发表于 2017-2-20 21:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35263245&amp;ptid=1359460" target="_blank">hunkd4 发表于 2017-2-19 19:39</a>
 
 其他作品里黄毛啊NTR啊还好，一想到樱没事就被2爷干，真的心里不舒服。。。。。 ...</blockquote>
 是樱先勾引二爷的
-
-
-
-
-
 
 
 -----
@@ -898,14 +550,7 @@ h戏怎么演
 ##### 51#       发表于 2017-2-20 21:58
 
 
-
-
 二爷又不黄毛
-
-
-
-
-
 
 
 -----
@@ -914,14 +559,7 @@ h戏怎么演
 ##### 52#       发表于 2017-2-20 22:25
 
 
-
-
 是虫爷叫肾二上樱的好不好
-
-
-
-
-
 
 
 -----
@@ -930,16 +568,10 @@ h戏怎么演
 ##### 53#       发表于 2017-2-20 22:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34661978&amp;ptid=1359460" target="_blank">drifotrhu 发表于 2016-12-31 22:57</a>
 
 剧场版——TV版——联动废狗——联动献血——联动其他，后面是不是就轮到重制月姬了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/156.jpg" referrerpolicy="no-referrer">然后出了fate extra
-
-
-
-
-
 
 
 -----
@@ -948,13 +580,7 @@ h戏怎么演
 ##### 54#         楼主| 发表于 2017-3-26 10:19
 
 
-
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fe00xgxb8kj20xb0ipace.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -963,14 +589,8 @@ h戏怎么演
 ##### 55#       发表于 2017-3-26 10:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35511125&amp;ptid=1359460" target="_blank">xingenge 发表于 2017-3-26 10:19</a></blockquote>
 看不清楚，来的是哪些人？
-
-
-
-
-
 
 
 -----
@@ -979,16 +599,10 @@ h戏怎么演
 ##### 56#         楼主| 发表于 2017-3-26 14:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35511278&amp;ptid=1359460" target="_blank">黄天双舞 发表于 2017-3-26 10:55</a>
 
 看不清楚，来的是哪些人？</blockquote>
 FGO的那些…先公布FGO的消息 然后就突然发表动画了
-
-
-
-
-
 
 
 -----
@@ -997,14 +611,7 @@ FGO的那些…先公布FGO的消息 然后就突然发表动画了
 ##### 57#         楼主| 发表于 2017-5-5 13:09
 
 
-
-
 劇場版FateHFマチアソビ限定PVレビューその1　尺は2分半ほど。路地裏の映像からスタート。美術が相変わらずヤバい。慎二のセリフあり、士郎に向かってセイバーとライダーを戦わせようとする。現れるライダー。対峙する士郎&amp;セイバー（黄色のカッパ）　顔を上げるセイバー
-
-
-
-
-
 
 
 -----
@@ -1013,14 +620,7 @@ FGO的那些…先公布FGO的消息 然后就突然发表动画了
 ##### 58#       发表于 2017-5-5 13:36
 
 
-
-
 ufo是多喜欢二爷
-
-
-
-
-
 
 
 -----
@@ -1029,14 +629,7 @@ ufo是多喜欢二爷
 ##### 59#       发表于 2017-5-5 15:02
 
 
-
-
 痛哭
-
-
-
-
-
 
 
 -----
@@ -1045,13 +638,7 @@ ufo是多喜欢二爷
 ##### 60#       发表于 2017-5-5 16:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">所以是走樱之梦还是春天归来？
-
-
-
-
-
 
 
 -----
@@ -1060,15 +647,8 @@ ufo是多喜欢二爷
 ##### 61#         楼主| 发表于 2017-5-6 12:36
 
 
-
-
 HF 主题曲确定
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ffbj80uy21j20kd0hbwn5.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1077,15 +657,9 @@ HF 主题曲确定
 ##### 62#         楼主| 发表于 2017-5-12 17:18
 
 
-
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ffip64hqbcj215o1nfwqx.jpg" referrerpolicy="no-referrer">
 
 新宣绘
-
-
-
-
-
 
 
 -----
@@ -1094,14 +668,7 @@ HF 主题曲确定
 ##### 63#       发表于 2017-5-12 17:29
 
 
-
-
      第一章能做到呆毛被吞么
-
-
-
-
-
 
 
 -----
@@ -1110,17 +677,10 @@ HF 主题曲确定
 ##### 64#       发表于 2017-5-12 17:49
 
 
-
-
 应该会看漫画的节奏吧。。如果3部曲的话有可能。
 
 
 话说漫画很久没看了，更到哪里了？？
-
-
-
-
-
 
 
 -----
@@ -1129,23 +689,16 @@ HF 主题曲确定
 ##### 65#       发表于 2017-5-12 18:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35859948&amp;ptid=1359460" target="_blank">破鞋三公主 发表于 2017-5-5 16:40</a>
 
 所以是走樱之梦还是春天归来？</blockquote>
 这种事情官方肯定要作为卖点藏着先呀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  茴香蚪  
 ##### 66#       发表于 2017-5-12 18:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35930165&amp;ptid=1359460" target="_blank">kmno4 发表于 2017-5-12 17:49</a>
@@ -1156,17 +709,10 @@ HF 主题曲确定
 公园伊莉雅剧情吧
 
 
-
-
-
-
-
 -----
 
 ####  gpx234  
 ##### 67#       发表于 2017-5-12 18:47
-
-
 
 
 奇怪，红A越来越黑了...
@@ -1175,25 +721,13 @@ HF 主题曲确定
 不换把枪？
 
 
-
-
-
-
-
 -----
 
 ####  東京急行  
 ##### 68#       发表于 2017-5-12 19:09
 
 
-
-
 啊! Rider 真是棒极了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1202,17 +736,10 @@ HF 主题曲确定
 ##### 69#       发表于 2017-5-12 19:35
 
 
-
-
 第一章persage flower。HF记得总共16日目，第一章如果注重日常造势应该做不到八日目（虽然个人是很想看以八日目幕间收尾……）
 
 
 极大概率是全年龄向，真觉得把H部分砍掉整个会很不对味。
-
-
-
-
-
 
 
 -----
@@ -1221,16 +748,10 @@ HF 主题曲确定
 ##### 70#       发表于 2017-5-12 19:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35930914&amp;ptid=1359460" target="_blank">消防 发表于 2017-5-12 19:35</a>
 
 第一章persage flower。HF记得总共16日目，第一章如果注重日常造势应该做不到八日目（虽然个人是很想看以八 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">偏偏HF的H内容是最自洽的，全年龄版本氛围都不对了，毕竟是剧场版有空境在前希望能尽量还原R18内容吧。
-
-
-
-
-
 
 
 -----
@@ -1239,16 +760,10 @@ HF 主题曲确定
 ##### 71#       发表于 2017-5-12 20:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35929872&amp;ptid=1359460" target="_blank">xingenge 发表于 2017-5-12 17:18</a>
 
 新宣绘</blockquote>
 B叔怎么这么丑<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">还有红A这胳膊细过分了吧，已经准备好了吗
-
-
-
-
-
 
 
 -----
@@ -1257,16 +772,10 @@ B叔怎么这么丑<img src="https://static.saraba1st.com/image/smiley/face2017/
 ##### 72#       发表于 2017-5-12 20:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35930980&amp;ptid=1359460" target="_blank">bgmilk 发表于 2017-5-12 19:45</a>
 
 偏偏HF的H内容是最自洽的，全年龄版本氛围都不对了，毕竟是剧场版有空境在前希望能尽量还原R18内 ...</blockquote>
 但是无论06TV，10UBW还是UBW TV都是全年龄版，虽然FZ有暗示但这个HF要真把那些个肉欲撩拨的场面做出来可能性有没有1%<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1275,14 +784,7 @@ B叔怎么这么丑<img src="https://static.saraba1st.com/image/smiley/face2017/
 ##### 73#       发表于 2017-5-12 20:40
 
 
-
-
 最好也就是做成一黑一夜过去。虽然我觉得百分百全年龄。
-
-
-
-
-
 
 
 -----
@@ -1291,16 +793,10 @@ B叔怎么这么丑<img src="https://static.saraba1st.com/image/smiley/face2017/
 ##### 74#       发表于 2017-5-12 23:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35931295&amp;ptid=1359460" target="_blank">消防 发表于 2017-5-12 20:29</a>
 
 但是无论06TV，10UBW还是UBW TV都是全年龄版，虽然FZ有暗示但这个HF要真把那些个肉欲撩拨的场面做出来可 ...</blockquote>
 都说樱是UFO亲女儿，见真章的时候到了<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1309,21 +805,13 @@ B叔怎么这么丑<img src="https://static.saraba1st.com/image/smiley/face2017/
 ##### 75#       发表于 2017-5-13 00:24
 
 
-
-
 UFO的版权绘里女性角色的脸真是没救<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  被子十三  
 ##### 76#       发表于 2017-5-13 13:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35931295&amp;ptid=1359460" target="_blank">消防 发表于 2017-5-12 20:29</a>
@@ -1333,25 +821,13 @@ UFO的版权绘里女性角色的脸真是没救<img src="https://static.saraba1
 —— 来自 samsung SM-G9350, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  突发性哮喘病患  
 ##### 77#       发表于 2017-5-13 13:44
 
 
-
-
 我感觉会出新结局
-
-
-
-
-
 
 
 -----
@@ -1360,14 +836,7 @@ UFO的版权绘里女性角色的脸真是没救<img src="https://static.saraba1
 ##### 78#         楼主| 发表于 2017-6-12 00:10
 
 
-
-
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fghpcngxy0j23y32j4b2b.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1376,21 +845,13 @@ UFO的版权绘里女性角色的脸真是没救<img src="https://static.saraba1
 ##### 79#       发表于 2017-6-12 00:16
 
 
-
-
 二爷还真是男二位啊www<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  madrid2011  
 ##### 80#       发表于 2017-6-12 19:33
-
 
 
  本帖最后由 madrid2011 于 2017-6-12 19:36 编辑 
@@ -1406,12 +867,6 @@ UFO的版权绘里女性角色的脸真是没救<img src="https://static.saraba1
 2017-6-12 19:33 上传
 
 
-
-
-
-
-
-
 有人知道這張圖是哪個設定集或特典的掃圖嗎
 
 找了半天沒有找到圖片源頭...只看到幾個圖站有搬運
@@ -1420,18 +875,10 @@ UFO的版权绘里女性角色的脸真是没救<img src="https://static.saraba1
 聽說是須藤友徳監督繪製的
 
 
-
-
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 81#         楼主| 发表于 2017-6-12 19:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36240689&amp;ptid=1359460" target="_blank">madrid2011 发表于 2017-6-12 19:33</a>
@@ -1443,13 +890,9 @@ UFO的版权绘里女性角色的脸真是没救<img src="https://static.saraba1
 去年愚人节的图
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -1459,12 +902,7 @@ UFO的版权绘里女性角色的脸真是没救<img src="https://static.saraba1
 | madrid2011| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -1473,11 +911,7 @@ UFO的版权绘里女性角色的脸真是没救<img src="https://static.saraba1
 ##### 82#       发表于 2017-6-12 23:34
 
 
-
-
 這張該不會是P的
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201706/12/233415a93ve07psec3bx37.jpg" referrerpolicy="no-referrer">
@@ -1490,22 +924,10 @@ UFO的版权绘里女性角色的脸真是没救<img src="https://static.saraba1
 2017-6-12 23:34 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 83#         楼主| 发表于 2017-6-13 01:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36242780&amp;ptid=1359460" target="_blank">madrid2011 发表于 2017-6-12 23:34</a>
@@ -1514,26 +936,14 @@ UFO的版权绘里女性角色的脸真是没救<img src="https://static.saraba1
 不太懂，你之前发的是去年愚人节，好像搞了一个什么FATE事务所的，樱的照片（印象中是这样）
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 84#         楼主| 发表于 2017-7-1 23:41
 
 
-
-
 劇場版「Fate/stay night[Heaven's Feel]」第一章/予告編第二弾
 [http://v.youku.com/v_show/id_XMj ... j.8428770.3416059.1](http://v.youku.com/v_show/id_XMjg2MjA3ODc0OA==.html?spm=a2h3j.8428770.3416059.1)
-
-
-
-
-
 
 
 -----
@@ -1542,14 +952,7 @@ UFO的版权绘里女性角色的脸真是没救<img src="https://static.saraba1
 ##### 85#       发表于 2017-7-2 00:07
 
 
-
-
 看完PV了   我就TM喜欢光污染！ UFO默秒全
-
-
-
-
-
 
 
 -----
@@ -1558,14 +961,7 @@ UFO的版权绘里女性角色的脸真是没救<img src="https://static.saraba1
 ##### 86#       发表于 2017-7-2 00:20
 
 
-
-
 谁能告诉我为什么忠义无双和大狗是在卡车上打....
-
-
-
-
-
 
 
 -----
@@ -1574,16 +970,10 @@ UFO的版权绘里女性角色的脸真是没救<img src="https://static.saraba1
 ##### 87#       发表于 2017-7-2 02:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36453655&amp;ptid=1359460" target="_blank">斯卡哈 发表于 2017-7-2 00:20</a>
 
 谁能告诉我为什么忠义无双和大狗是在卡车上打....</blockquote>
 为了COOL 而换打斗场地我觉得很常见啊
-
-
-
-
-
 
 
 -----
@@ -1592,14 +982,7 @@ UFO的版权绘里女性角色的脸真是没救<img src="https://static.saraba1
 ##### 88#       发表于 2017-7-2 03:31
 
 
-
-
 没玩过FSN，棉被穿黄色斗篷是游戏里就有的吗？看到斗篷我第一反应是俯瞰风景，印象太深了。不过UBW动画好像也穿过一次。
-
-
-
-
-
 
 
 -----
@@ -1608,16 +991,10 @@ UFO的版权绘里女性角色的脸真是没救<img src="https://static.saraba1
 ##### 89#       发表于 2017-7-2 03:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36454616&amp;ptid=1359460" target="_blank">Hint 发表于 2017-7-2 03:31</a>
 
 没玩过FSN，棉被穿黄色斗篷是游戏里就有的吗？看到斗篷我第一反应是俯瞰风景，印象太深了。不过UBW动画好像 ...</blockquote>
 不论哪条线第一次去教堂见绮礼每次都是这么穿的
-
-
-
-
-
 
 
 -----
@@ -1626,15 +1003,9 @@ UFO的版权绘里女性角色的脸真是没救<img src="https://static.saraba1
 ##### 90#       发表于 2017-7-2 07:44
 
 
-
 <blockquote>we89623 发表于 2017-7-2 02:36
 为了COOL 而换打斗场地我觉得很常见啊</blockquote>
 没有地形陷阱怕是来不及放宝具就会被大狗秒了
-
-
-
-
-
 
 
 -----
@@ -1643,14 +1014,7 @@ UFO的版权绘里女性角色的脸真是没救<img src="https://static.saraba1
 ##### 91#       发表于 2017-7-2 09:15
 
 
-
-
 啥时候能让二爷做把男主角啊?
-
-
-
-
-
 
 
 -----
@@ -1659,21 +1023,13 @@ UFO的版权绘里女性角色的脸真是没救<img src="https://static.saraba1
 ##### 92#       发表于 2017-7-2 10:16
 
 
-
-
 我樱美如画
-
-
-
-
-
 
 
 -----
 
 ####  神之领域  
 ##### 93#       发表于 2017-7-2 10:26
-
 
 
 [http://www.bilibili.com/video/av11807547/](http://www.bilibili.com/video/av11807547/)
@@ -1685,17 +1041,10 @@ B站中文版。
 樱貌似成熟了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  phoenixxj  
 ##### 94#       发表于 2017-7-2 10:50
-
-
 
 
 昨天才搜了一遍，看有没有新消息
@@ -1705,27 +1054,15 @@ B站中文版。
 今天一早醒来就有新pv看了，开心。
 
 
-
-
-
-
-
 -----
 
 ####  woshenc  
 ##### 95#       发表于 2017-7-2 11:00
 
 
-
-
 二爷男二位？
 
 等等hf线不是关于麻婆的故事吗233
-
-
-
-
-
 
 
 -----
@@ -1734,21 +1071,13 @@ B站中文版。
 ##### 96#       发表于 2017-7-2 11:37
 
 
-
-
 好像改剧情了。。。等等，关我什么事？
-
-
-
-
-
 
 
 -----
 
 ####  akari1864  
 ##### 97#       发表于 2017-7-2 11:46
-
 
 
 <blockquote>woshenc 发表于 2017-7-2 11:00
@@ -1758,25 +1087,13 @@ B站中文版。
 第一章麻婆基本上还和金闪闪neet在教堂吧。
 
 
-
-
-
-
-
 -----
 
 ####  henry8848  
 ##### 98#       发表于 2017-7-2 13:40
 
 
-
-
 B站到时候要不要搞个网络同步剧场版
-
-
-
-
-
 
 
 -----
@@ -1785,13 +1102,7 @@ B站到时候要不要搞个网络同步剧场版
 ##### 99#       发表于 2017-7-2 15:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">第一章所有打戏应该是集中在这1分半里了……
-
-
-
-
-
 
 
 -----
@@ -1800,16 +1111,9 @@ B站到时候要不要搞个网络同步剧场版
 ##### 100#       发表于 2017-7-2 16:31
 
 
-
-
 虽然hf我觉得是fate剧情最有味道的，但是我个人最喜欢的还是ubw的故事。
 
 —— 来自 Xiaomi MI 5s Plus, Android 7.0
-
-
-
-
-
 
 
 -----
@@ -1818,14 +1122,7 @@ B站到时候要不要搞个网络同步剧场版
 ##### 101#       发表于 2017-7-2 22:15
 
 
-
-
 pv里大狗镜头怎么那么多，我记得hf线没多少大狗戏份啊
-
-
-
-
-
 
 
 -----
@@ -1834,23 +1131,16 @@ pv里大狗镜头怎么那么多，我记得hf线没多少大狗戏份啊
 ##### 102#       发表于 2017-7-2 23:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36462099&amp;ptid=1359460" target="_blank">deviljz 发表于 2017-7-2 22:15</a>
 
 pv里大狗镜头怎么那么多，我记得hf线没多少大狗戏份啊</blockquote>
 HF剧场版估计要加打戏时间吧？ 否则全按游戏来第一章太单调了
 
 
-
-
-
-
-
 -----
 
 ####  飞霞精灵  
 ##### 103#       发表于 2017-7-2 23:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36458886&amp;ptid=1359460" target="_blank">pockoy 发表于 2017-7-2 16:31</a>
@@ -1862,16 +1152,10 @@ HF剧场版估计要加打戏时间吧？ 否则全按游戏来第一章太单�
 HF的故事毕竟要结合前两部看才能体会到那种巨大的落差。尤其玩家经历完UBW最热血战斗和完美的GE之后，再开启HF简直是一嘴玻璃渣。现在单独拍出来的震撼力，能不能比得上原作那么强，还是有点难的。
 
 
-
-
-
-
-
 -----
 
 ####  pepase  
 ##### 104#       发表于 2017-7-3 00:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34661978&amp;ptid=1359460" target="_blank">drifotrhu 发表于 2016-12-31 22:57</a>
@@ -1880,16 +1164,10 @@ HF的故事毕竟要结合前两部看才能体会到那种巨大的落差。尤
 难道不是蘑菇去打游戏然后重置月姬无限期搁置
 
 
-
-
-
-
-
 -----
 
 ####  wangandh  
 ##### 105#       发表于 2017-7-6 00:06
-
 
 
  本帖最后由 wangandh 于 2017-7-6 00:17 编辑 
@@ -1898,7 +1176,6 @@ HF的故事毕竟要结合前两部看才能体会到那种巨大的落差。尤
 
 STAFF部分
 [http://www.fate-sn.com/staffcast/](http://www.fate-sn.com/staffcast/)
-
 
 
 原作
@@ -1918,10 +1195,8 @@ STAFF部分
 衷心希望，它能够成为配得上这份耗费的影像。
 
 
-
 泥泞般的黑暗之中，也确有救赎。
 注：英雄那里原文是hero，也可以理解为“没有飒爽登场的主人公”（指没有那种主角光环解决一切的桥段？毕竟HF线之前访谈也提过，“这条线是突出拯救一部分就要放弃另一部分这个观点的路线”）
-
 
 
 人设原案
@@ -1939,7 +1214,6 @@ STAFF部分
 作为其原点的故事的最终章，以最高纯度的影像作品这一形式获得新生之日，我非常期待。
 
 
-
 监督
 
 须藤友德
@@ -1951,7 +1225,6 @@ STAFF部分
 对[Heaven's Feel]正翘首以盼的大家，以及从这里开始接触《Fate/stay night》的大家，为了能能给大家送上优良作品正在勤奋努力。
 
 
-
 脚本
 
 桧山彬
@@ -1961,7 +1234,6 @@ STAFF部分
 正因为是“电影”，以及正因为是“如今”，才能做出的士郎与樱的身姿，（观众们）能乐在其中的话那就太好了。
 
 
-
 美术
 
 卫藤功二
@@ -1969,7 +1241,6 @@ STAFF部分
 始于《Zero》的《UBW》，然后是《HF》，打算将其制作为《Fate》系列的集大成之作而努力中。这回，日常、战斗等等，向着各部分的画风变化展开挑战。《Zero》、《UBW》、《空之境界》的画风，再加上初次挑战的画风。
 
 美术的特色，能让大家开心享受的话我也高兴。
-
 
 
 摄影监督
@@ -1984,7 +1255,6 @@ STAFF部分
 10月14日，将会给大家呈上史上最为优美、最为不祥的《Fate》。在银屏上再会吧。
 
 
-
 3D监督
 
 西肋一树
@@ -1992,7 +1262,6 @@ STAFF部分
 《Fate》本篇最后的故事作为剧场版作品展开描绘一事令我十分开心。为了回应长年企盼的Fans的各位，staff的大家在尽心尽力进行制作。
 
 在稍等片刻的这段期间，还请大家期待完成品呈上。
-
 
 
 色彩设计
@@ -2006,7 +1275,6 @@ STAFF部分
 这次，尽管是同一场所，季节、天气、时间带却要细致分别，色彩设计工作上也有好多，十分不得了，为了能够一边守住角色的色彩，一边在各种各样的场景中表现色彩，想要奋发图强。
 
 
-
 剪辑
 
 神野学
@@ -2014,7 +1282,6 @@ STAFF部分
 这是如斯美丽，呼应那所描绘的一切，一边维持着热辣与紧迫感，一边进行着剪辑。
 
 全三章。还请多多指教。
-
 
 
 CAST部分
@@ -2028,7 +1295,6 @@ CAST部分
 《Fate》所具有的魅力之一，第三条路线作为剧场版作品初次影像化，不止是相关者以及Fans的各位，出演者的各位也热切盼望的这个作品，（我）能继续与它产生联系真是太好了。“士郎所做出的另一个回答”还请务必在影院看到最后！
 
 
-
 间桐樱
 
 下屋则子
@@ -2038,7 +1304,6 @@ CAST部分
 我会与樱一同感受烦恼，一同品尝苦痛，跨越三部曲。
 
 
-
 间桐慎二
 
 神谷浩史
@@ -2046,7 +1311,6 @@ CAST部分
 虽然与《Fate》扯上关系已经有了10年以上了，但是我也实在没想到又要给新的慎二配音。由于与监督讨论过了这次他（指慎二）的行动理由，所以能够自如面对后期录音了。由于存在着至今为止的积压，应该相当难以理解吧，不被受到理解这样也好吗？虽然我是这么想的……
 
 经过10年时间，能够得到新的解释一事令我十分感激。随处可见的，谁的心底都有的，这样的他，能够看到最后的话，就太好了。
-
 
 
 Saber
@@ -2060,7 +1324,6 @@ Saber
 与至今为止《Fate/stay night》的世界不同，至今为止“正义”的意义产生变化的[Heaven's Feel]世界。敬请期待。
 
 
-
 远坂凛
 
 植田佳奈
@@ -2071,7 +1334,6 @@ Saber
 
 还请见证Archer阵营的命运！
 注：Nori酱应该说的下屋则子(Shitaya Noriko)……当年Fate Project发布会上宣布HF动画化的时候极为感动，当场哭了……
-
 
 
 藤村大河
@@ -2087,7 +1349,6 @@ Saber
 “海産 いや 甲斐さん　いやいや解散”……这句也是故意谐音梗，偏偏中文里jiesan几乎没什么谐音词组。
 
 
-
 言峰绮礼
 
 中田让治
@@ -2100,7 +1361,6 @@ Saber
 “那么，好好看完赌上自身的战斗吧”
 
 
-
 间桐脏砚
 
 津嘉山正种
@@ -2108,7 +1368,6 @@ Saber
 长达三部曲，超级大作揭幕。
 
 间桐脏砚的一切念想，还请尽情期待。
-
 
 
 美缀绫子
@@ -2120,13 +1379,11 @@ Saber
 在收录中虽然角色的类型并非直接与圣杯战争相关联的角色，一边感受着在樱路线里表现出美缀的存在的乐趣，一边进行着演绎。这次的剧场版，TV系列无法表现的的演出要怎样在银幕上表现出来，我自己作为观众也十分期待。
 
 
-
 柳洞一成
 
 真殿光昭
 
 虽然一成每次都是以跟卫宫的谈话为主，但是通过校园日常的对话，能够作为故事的开胃菜让观众好好品尝的话那就太好了。
-
 
 
 卫宫切嗣
@@ -2142,7 +1399,6 @@ Saber
 Oh! it's a nice moon！从今往后，直至永远。
 
 
-
 Lancer
 
 神奈延年
@@ -2152,13 +1408,11 @@ Lancer
 再加上，也能享受到充满速度感，兴奋感[thrilling]的展开吧。作为声优对于能够出演库丘林一事非常高兴，幸福！这次也还请尽情观赏令人目不转睛的《Fate》世界！
 
 
-
 吉尔伽美什
 
 关智一
 
 请期待新的《Fate》世界观，以及吉尔伽美什。
-
 
 
 Rider
@@ -2180,7 +1434,6 @@ Assassin
 敬请期待仍旧未完的《Fate/stay night》的世界！
 
 
-
 Caster
 
 田中敦子
@@ -2192,7 +1445,6 @@ Caster
 （战栗那个……个人理解是激动到起鸡皮疙瘩那种战栗……）
 
 
-
 Archer
 
 诹访部顺一
@@ -2200,7 +1452,6 @@ Archer
 静候这一日到来的人们不是相当之多吗。老实说，虽然尚未看到完成后的影像……我觉得就反响来看，不会背离大家期待的作品毫无疑问会顺利完成的。这一作也同样作为故事的一部分[piece]用心参加制作。
 
 终于显现的第三个《Fate/stay night》。还请务必到影院观赏！
-
 
 
 葛木宗一郎
@@ -2214,7 +1465,6 @@ Archer
 将这蕴藏于胸然后还请再度观赏葛木宗一郎的表现。
 
 
-
 伊利亚斯菲尔·冯·艾因兹贝伦
 
 门胁舞以
@@ -2224,18 +1474,10 @@ Archer
 想要把从这以后她的眼瞳所映出的景色，一同铭记心中，一同向前迈进。
 
 
-
-
-
-
-
-
-
 -----
 
 ####  madrid2011  
 ##### 106#       发表于 2017-7-6 00:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36494297&amp;ptid=1359460" target="_blank">wangandh 发表于 2017-7-6 00:06</a>
@@ -2251,16 +1493,10 @@ http://www.fate-sn.com/staffcast/</blockquote>
 辛苦大佬了
 
 
-
-
-
-
-
 -----
 
 ####  YBY  
 ##### 107#       发表于 2017-7-6 02:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36462891&amp;ptid=1359460" target="_blank">we89623 发表于 2017-7-2 23:38</a>
@@ -2271,17 +1507,10 @@ HF剧场版估计要加打戏时间吧？ 否则全按游戏来第一章太单�
 毕竟这几段和HF有直接联系，也弥补了下打戏
 
 
-
-
-
-
-
 -----
 
 ####  phoenixxj  
 ##### 108#       发表于 2017-7-6 07:45
-
-
 
 
 集大成做
@@ -2297,32 +1526,19 @@ tv剧场游戏等改编作品的配置 经验 人气
 希望不要辜负大家的期待
 
 
-
-
-
-
-
 -----
 
 ####  lemuever17  
 ##### 109#       发表于 2017-7-6 12:05
 
 
-
-
 有多少可能国内引进？10%有么
-
-
-
-
-
 
 
 -----
 
 ####  钱坤一  
 ##### 110#       发表于 2017-7-6 12:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36494297&amp;ptid=1359460" target="_blank">wangandh 发表于 2017-7-6 00:06</a>
@@ -2335,16 +1551,10 @@ http://www.fate-sn.com/staffcast/</blockquote>
 大佬辛苦了！
 
 
-
-
-
-
-
 -----
 
 ####  YBY  
 ##### 111#       发表于 2017-7-6 12:35
-
 
 
 <blockquote>引用第109楼lemuever17于2017-07-06 12:05发表的  :
@@ -2358,16 +1568,10 @@ http://www.fate-sn.com/staffcast/</blockquote>
 ----发送自 [Xiaomi MI MAX,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  Arak  
 ##### 112#       发表于 2017-7-6 13:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36494297&amp;ptid=1359460" target="_blank">wangandh 发表于 2017-7-6 00:06</a>
@@ -2380,16 +1584,10 @@ http://www.fate-sn.com/staffcast/</blockquote>
 谢谢大佬
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 113#       发表于 2017-7-6 13:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36494874&amp;ptid=1359460" target="_blank">YBY 发表于 2017-7-6 02:33</a>
@@ -2399,16 +1597,10 @@ http://www.fate-sn.com/staffcast/</blockquote>
 不太可能。蘑菇说了 FZ和FSN 世界线不同
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 114#       发表于 2017-7-6 13:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36494297&amp;ptid=1359460" target="_blank">wangandh 发表于 2017-7-6 00:06</a>
@@ -2421,32 +1613,19 @@ http://www.fate-sn.com/staffcast/</blockquote>
 看到他们的发言有点百感交集的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  blood_iron  
 ##### 115#       发表于 2017-7-6 14:06
 
 
-
-
 有生之年！有生之年！
-
-
-
-
-
 
 
 -----
 
 ####  消防  
 ##### 116#       发表于 2017-7-6 14:50
-
 
 
 <blockquote>YBY 发表于 2017-7-6 12:35
@@ -2456,16 +1635,10 @@ http://www.fate-sn.com/staffcast/</blockquote>
 没有出格，这是坐实吸血路线了？
 
 
-
-
-
-
-
 -----
 
 ####  YBY  
 ##### 117#       发表于 2017-7-6 19:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36498540&amp;ptid=1359460" target="_blank">we89623 发表于 2017-7-6 13:23</a>
@@ -2474,16 +1647,10 @@ http://www.fate-sn.com/staffcast/</blockquote>
 是月姬世界线不同吧，FZ和FSN怎么可能不同
 
 
-
-
-
-
-
 -----
 
 ####  YBY  
 ##### 118#       发表于 2017-7-6 19:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36499362&amp;ptid=1359460" target="_blank">消防 发表于 2017-7-6 14:50</a>
@@ -2492,16 +1659,10 @@ http://www.fate-sn.com/staffcast/</blockquote>
 以电影的尺度来讲床戏都是允许的吧，就是不能太过，以动画的尺度么就不知道了
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 119#       发表于 2017-7-6 20:13
-
 
 
  本帖最后由 we89623 于 2017-7-6 20:21 编辑 
@@ -2533,16 +1694,10 @@ Apocrypha是「到中途为止相同，现在却截然不同的其他世界」�
 不管多微妙但肯定不是同一世界了。
 
 
-
-
-
-
-
 -----
 
 ####  YBY  
 ##### 120#       发表于 2017-7-6 20:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36502511&amp;ptid=1359460" target="_blank">we89623 发表于 2017-7-6 20:13</a>
@@ -2558,16 +1713,10 @@ Zero是「跟stay night相同条件却微妙不同的世界」。</blockquote>
 蘑菇也没理由为了早前说过的一句话而否定掉这种提案，当然从预告片来看这种可能性不大
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 121#       发表于 2017-7-6 20:47
-
 
 
  本帖最后由 we89623 于 2017-7-6 20:54 编辑 
@@ -2583,32 +1732,19 @@ Zero是「跟stay night相同条件却微妙不同的世界」。</blockquote>
 蘑菇心中当然有自己的FZ，比如切丝手撕从者什么的....大概
 
 
-
-
-
-
-
 -----
 
 ####  白色过膝袜  
 ##### 122#       发表于 2017-7-6 20:50
 
 
-
-
 我记得hf线各路英灵不都是被秒的么？是不是原创多加了些了些打戏呀
-
-
-
-
-
 
 
 -----
 
 ####  YBY  
 ##### 123#       发表于 2017-7-6 21:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36502768&amp;ptid=1359460" target="_blank">we89623 发表于 2017-7-6 20:47</a>
@@ -2621,16 +1757,10 @@ Zero是「跟stay night相同条件却微妙不同的世界」。</blockquote>
 但对于动画来说无所谓，出于商业利益考虑让HF剧场版重现UBW前两集的无聊内容实在太过不妥，商业电影开场就应该先声夺人，否则真的又要慢热了很多人撑不过去
 
 
-
-
-
-
-
 -----
 
 ####  YBY  
 ##### 124#       发表于 2017-7-6 21:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36502783&amp;ptid=1359460" target="_blank">白色过膝袜 发表于 2017-7-6 20:50</a>
@@ -2639,16 +1769,10 @@ Zero是「跟stay night相同条件却微妙不同的世界」。</blockquote>
 HF打戏其实比另两线有意思多了，各种3打1 2打1 追逐战 混战，少了柳洞寺拖戏三人组后整篇都畅快淋漓
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 125#       发表于 2017-7-6 21:12
-
 
 
  本帖最后由 we89623 于 2017-7-6 21:15 编辑 
@@ -2658,16 +1782,10 @@ HF打戏其实比另两线有意思多了，各种3打1 2打1 追逐战 混战�
 其实..HF线剧场版的受众绝大部分不就是月厨吗？本来就是粉丝向剧场动画， 路人能有多少？这帮人HF线的剧情都能倒背如流。
 
 
-
-
-
-
-
 -----
 
 ####  YBY  
 ##### 126#       发表于 2017-7-6 21:40
-
 
 
 <blockquote>引用第125楼we89623于2017-07-06 21:12发表的  :
@@ -2681,16 +1799,10 @@ hf这故事太吸粉了 定位服务粉丝的话太浪费 黑化一词的源头�
 ----发送自 [Xiaomi MI MAX,Android 6.0.1](http://stage1.5j4m.com/?1.27)
 
 
-
-
-
-
-
 -----
 
 ####  白色过膝袜  
 ##### 127#       发表于 2017-7-6 22:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36502955&amp;ptid=1359460" target="_blank">YBY 发表于 2017-7-6 21:10</a>
@@ -2699,16 +1811,10 @@ HF打戏其实比另两线有意思多了，各种3打1 2打1 追逐战 混战�
 金闪闪和大狗没过几招就被秒了，呆毛连大招都没放就被吞了。。
 
 
-
-
-
-
-
 -----
 
 ####  任天索尼子  
 ##### 128#       发表于 2017-7-6 22:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36502955&amp;ptid=1359460" target="_blank">YBY 发表于 2017-7-6 21:10</a>
@@ -2717,16 +1823,10 @@ HF打戏其实比另两线有意思多了，各种3打1 2打1 追逐战 混战�
 你说剧情有意思就算了 打戏有意思？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  YBY  
 ##### 129#       发表于 2017-7-6 22:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36503409&amp;ptid=1359460" target="_blank">白色过膝袜 发表于 2017-7-6 22:04</a>
@@ -2739,16 +1839,10 @@ HF打戏其实比另两线有意思多了，各种3打1 2打1 追逐战 混战�
 呆毛不要紧，后面有的是
 
 
-
-
-
-
-
 -----
 
 ####  YBY  
 ##### 130#       发表于 2017-7-6 22:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36503434&amp;ptid=1359460" target="_blank">任天索尼子 发表于 2017-7-6 22:06</a>
@@ -2759,17 +1853,10 @@ R姐开眼，B叔1挑3，剑骑对波，宝石剑
 这四场无论过程还是噱头都很足，特别是B叔那个，我认为是FSN最燃最悲的一战了
 
 
-
-
-
-
-
 -----
 
 ####  SHIRT  
 ##### 131#       发表于 2017-7-6 22:25
-
-
 
 
 都到HF线了，为了蓝色清净的世界FSN贴里能不能别提同人FZ了？FZ说实话只能算是个剧情劣质粗糙的YY文，还是不要试图拿出来和本传衔接了吧。
@@ -2778,17 +1865,10 @@ R姐开眼，B叔1挑3，剑骑对波，宝石剑
 估计得再过几年小朋友们长大了才能意识到当年喜欢的那部同人动画其实是黑历史。
 
 
-
-
-
-
-
 -----
 
 ####  亚历山大帝  
 ##### 132#       发表于 2017-7-6 22:33
-
-
 
 
 之前说 HF线动画化的最大障碍是什么来着？
@@ -2799,16 +1879,10 @@ R姐开眼，B叔1挑3，剑骑对波，宝石剑
 <img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  茴香蚪  
 ##### 133#       发表于 2017-7-6 23:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36502768&amp;ptid=1359460" target="_blank">we89623 发表于 2017-7-6 20:47</a>
@@ -2819,26 +1893,15 @@ R姐开眼，B叔1挑3，剑骑对波，宝石剑
 蘑菇把FZ定为和FSN微妙平行的世界的主要原因就是剧情bug的存在，跟“FZ是不是蘑菇当初设想中的四战”没啥关系。
 
 
-
-
-
-
-
 -----
 
 ####  akari1864  
 ##### 134#       发表于 2017-7-7 03:43
 
 
-
 <blockquote>SHIRT 发表于 2017-7-6 22:25
 都到HF线了，为了蓝色清净的世界FSN贴里能不能别提同人FZ了？FZ说实话只能算是个剧情劣质粗糙的YY文，还是 ...</blockquote>
 就动画制作的层面来说，绝对不是黑历史。虽然总黑幽浮桌，但是fz那水平都算黑历史的话，当年没几个动画不算了。另外蘑菇给fz动画写的sp挺好的。
-
-
-
-
-
 
 
 -----
@@ -2847,17 +1910,10 @@ R姐开眼，B叔1挑3，剑骑对波，宝石剑
 ##### 135#       发表于 2017-7-7 04:39
 
 
-
-
 fsn的精华本来就不在画面而在剧情，九头猎杀短短的几页文字+一张画任何特效估计都做不出来吧，喜欢动画特效的不如去看智商机。
 
 
 hf里说得很清楚了，从者只是拿来完成魔法仪式填满灵魂容器的，用完就丢。醉心于古人穿越到现代来大杀四方的那些还是去看那些无脑特效片吧（比如fz），何苦来搅hf。
-
-
-
-
-
 
 
 -----
@@ -2866,15 +1922,9 @@ hf里说得很清楚了，从者只是拿来完成魔法仪式填满灵魂容器
 ##### 136#       发表于 2017-7-7 04:56
 
 
-
 <blockquote>SHIRT 发表于 2017-7-7 04:39
 fsn的精华本来就不在画面而在剧情，九头猎杀短短的几页文字+一张画任何特效估计都做不出来吧，喜欢动画特效 ...</blockquote>
 然而ubw线算是英灵线了(红茶大狗c妈闪闪)大杀四方了。没有棉被王，没有这堆塑造的好的英灵吸引你当铺垫，上来就hf妥妥的吓跑大部分人。棉被王引你入坑，英灵们设计的好让你舔，最后再虐你一口玻璃渣，这才有效果。
-
-
-
-
-
 
 
 -----
@@ -2883,15 +1933,9 @@ fsn的精华本来就不在画面而在剧情，九头猎杀短短的几页文�
 ##### 137#       发表于 2017-7-7 12:56
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
 
 [  -- 来自 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -2900,16 +1944,10 @@ fsn的精华本来就不在画面而在剧情，九头猎杀短短的几页文�
 ##### 138#       发表于 2017-7-7 13:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36505416&amp;ptid=1359460" target="_blank">SHIRT 发表于 2017-7-7 04:39</a>
 
 fsn的精华本来就不在画面而在剧情，九头猎杀短短的几页文字+一张画任何特效估计都做不出来吧，喜欢动画特效 ...</blockquote>
 没有前两线 HF一大半没什么戏份就便当的角色 主角为什么能接红A胳膊 一切都是莫名其妙的剧情 一般人都被吓跑了好么？有什么可吹的。
-
-
-
-
-
 
 
 -----
@@ -2918,14 +1956,7 @@ fsn的精华本来就不在画面而在剧情，九头猎杀短短的几页文�
 ##### 139#       发表于 2017-7-7 13:17
 
 
-
-
 怎么还没上映就有无脑HF吹的，这饵馊了有10年多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2934,16 +1965,9 @@ fsn的精华本来就不在画面而在剧情，九头猎杀短短的几页文�
 ##### 140#       发表于 2017-7-7 13:22
 
 
-
-
 hf真结局吹可以一直到现在都有的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 [  -- 来自能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -2952,17 +1976,9 @@ hf真结局吹可以一直到现在都有的<img src="https://static.saraba1st.c
 ##### 141#       发表于 2017-7-7 14:51
 
 
-
  本帖最后由 we89623 于 2017-7-7 14:57 编辑 
 
 HF有人吹，很大原因是因为它跟前两条线的落差感，颠覆你在之前两条线上的传统认知和惯性思维，给玩家所带来的冲击感。如果不玩前两线单把HF拿出来其实也没啥，这就是为什么HF线必须放最后的原因之一
-
-
-
-
-
-
-
 
 
 -----
@@ -2971,21 +1987,13 @@ HF有人吹，很大原因是因为它跟前两条线的落差感，颠覆你在
 ##### 142#       发表于 2017-7-7 15:08
 
 
-
-
 hf吹总比fz吹好，fz如果没了ufo的动画制作恐怕现在蛋也不是吧。不是吹，同人就是同人别拿来和本传相提并论啊。
-
-
-
-
-
 
 
 -----
 
 ####  8aa8aa8aa  
 ##### 143#       发表于 2017-7-7 15:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36503602&amp;ptid=1359460" target="_blank">SHIRT 发表于 2017-7-6 22:25</a>
@@ -2995,16 +2003,10 @@ hf吹总比fz吹好，fz如果没了ufo的动画制作恐怕现在蛋也不是�
 —— 来自 samsung SM-G9300, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  8aa8aa8aa  
 ##### 144#       发表于 2017-7-7 15:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36510304&amp;ptid=1359460" target="_blank">we89623 发表于 2017-7-7 14:51</a>
@@ -3015,17 +2017,10 @@ HF有人吹，很大原因是因为它跟前两条线的落差感，颠覆你在
 —— 来自 samsung SM-G9300, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 145#       发表于 2017-7-7 15:26
-
-
 
 
 强烈建议把HF和前两线分开。
@@ -3035,16 +2030,10 @@ HF单独拿出来当一部作品就行了。
 看看前两线没了HF和HF线没了前两线，到底哪个更好看呢？
 
 
-
-
-
-
-
 -----
 
 ####  8aa8aa8aa  
 ##### 146#       发表于 2017-7-7 15:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36509350&amp;ptid=1359460" target="_blank">habita 发表于 2017-7-7 13:22</a>
@@ -3056,16 +2045,10 @@ hf真结局吹可以一直到现在都有的
 —— 来自 samsung SM-G9300, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  akari1864  
 ##### 147#       发表于 2017-7-7 15:46
-
 
 
 <blockquote>SHIRT 发表于 2017-7-7 15:08
@@ -3078,16 +2061,10 @@ hf是默认了前两线已经知道了很多既定事实的基础上的:比如�
 我是觉得fsn是个整体，拿一线出来单独说不是那个事儿。
 
 
-
-
-
-
-
 -----
 
 ####  8aa8aa8aa  
 ##### 148#       发表于 2017-7-7 15:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36510737&amp;ptid=1359460" target="_blank">EMIYARIN 发表于 2017-7-7 15:26</a>
@@ -3101,16 +2078,10 @@ HF单独拿出来当一部作品就行了。
 —— 来自 samsung SM-G9300, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 149#       发表于 2017-7-7 15:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36510969&amp;ptid=1359460" target="_blank">8aa8aa8aa 发表于 2017-7-7 15:47</a>
@@ -3119,16 +2090,10 @@ HF单独拿出来当一部作品就行了。
 为什么要去掉80啊？
 
 
-
-
-
-
-
 -----
 
 ####  8aa8aa8aa  
 ##### 150#       发表于 2017-7-7 15:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36511030&amp;ptid=1359460" target="_blank">EMIYARIN 发表于 2017-7-7 15:53</a>
@@ -3138,16 +2103,10 @@ HF没有了前面两条线的话，就是去掉80元
 —— 来自 samsung SM-G9300, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 151#       发表于 2017-7-7 16:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36511090&amp;ptid=1359460" target="_blank">8aa8aa8aa 发表于 2017-7-7 15:58</a>
@@ -3159,16 +2118,10 @@ HF没有了前面两条线的话，就是去掉80元
 占领将近一本文本地路线，只有1/5的价值？
 
 
-
-
-
-
-
 -----
 
 ####  8aa8aa8aa  
 ##### 152#       发表于 2017-7-7 16:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36511148&amp;ptid=1359460" target="_blank">EMIYARIN 发表于 2017-7-7 16:03</a>
@@ -3178,16 +2131,10 @@ HF没有了前面两条线的话，就是去掉80元
 —— 来自 samsung SM-G9300, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
 
 
-
-
-
-
-
 -----
 
 ####  8aa8aa8aa  
 ##### 153#       发表于 2017-7-7 16:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36502511&amp;ptid=1359460" target="_blank">we89623 发表于 2017-7-6 20:13</a>
@@ -3198,11 +2145,6 @@ Zero是「跟stay night相同条件却微妙不同的世界」。</blockquote>
 意思是剧情大致一样，但是有点细节不一样吧。毕竟fz的确是很多小细节和fsn里saber所描述的四战有出入
 
 —— 来自 samsung SM-G9300, Android 7.0上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next)
-
-
-
-
-
 
 
 -----
@@ -3218,16 +2160,10 @@ Title
 蘑菇真的对fz意见很大也就不会写爱因兹贝伦相谈室了。在延长fate系列作品的话题性这点上哪个非蘑菇作品都不如fz成功(fgo有一部分蘑菇剧本)。fz真的一文不值就不会在那会动画化，没有动画化的成功，没有fz担当了延续fate品牌的接力棒，后续的ubw和hf动画化可能真的遥遥无期。
 
 
-
-
-
-
-
 -----
 
 ####  cwj101010  
 ##### 155#       发表于 2017-7-8 14:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36503602&amp;ptid=1359460" target="_blank">SHIRT 发表于 2017-7-6 22:25</a>
@@ -3236,24 +2172,13 @@ Title
 憋期待后来人了哈哈，时间拖得越长型月吸收的作者越多越杂越参差不齐，FZ的相对地位只会一年比一年更高，经验值那个稀烂的剧本都登月开活动了，相信今后新来脚本的小弟会更惨，老虚只用抠脚等着封神的
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 156#         楼主| 发表于 2017-7-23 10:45
 
 
-
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fhtmbu4ul9j23r82nqu0y.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3262,14 +2187,7 @@ Title
 ##### 157#       发表于 2017-7-23 11:17
 
 
-
-
 新版权绘不错啊
-
-
-
-
-
 
 
 -----
@@ -3278,21 +2196,14 @@ Title
 ##### 158#       发表于 2017-7-23 11:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36659361&amp;ptid=1359460" target="_blank">xingenge 发表于 2017-7-23 10:45</a></blockquote>
 这图很精致<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  晨霜攀黛瓦  
 ##### 159#       发表于 2017-7-25 13:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34664915&amp;ptid=1359460" target="_blank">osk666 发表于 2017-1-1 08:46</a>
@@ -3305,16 +2216,10 @@ fa
 fe（跳水<img src="https://static.saraba1st.com/image/smiley/goose2017/015.png" referrerpolicy="no-referrer">）
 
 
-
-
-
-
-
 -----
 
 ####  晨霜攀黛瓦  
 ##### 160#       发表于 2017-7-25 13:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=34664924&amp;ptid=1359460" target="_blank">xtwx1716 发表于 2017-1-1 08:48</a>
@@ -3323,16 +2228,10 @@ fe（跳水<img src="https://static.saraba1st.com/image/smiley/goose2017/015.png
 据说是详细剧情，不会出现uwb剧场版那种情况，日后拆成TV动画应该和两季fsn uwb差不多吧
 
 
-
-
-
-
-
 -----
 
 ####  晨霜攀黛瓦  
 ##### 161#       发表于 2017-7-25 13:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=35261564&amp;ptid=1359460" target="_blank">cao1rui2 发表于 2017-2-19 16:16</a>
@@ -3341,16 +2240,10 @@ ubwtv那个画风诡异的作监不在就行</blockquote>
 他做了什么？<img src="https://static.saraba1st.com/image/smiley/goose2017/006.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 162#         楼主| 发表于 2017-7-29 15:20
-
 
 
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fi0s1o6velj21e021cau6.jpg" referrerpolicy="no-referrer">
@@ -3360,24 +2253,13 @@ ubwtv那个画风诡异的作监不在就行</blockquote>
 [http://v.youku.com/v_show/id_XMj ... j.8428770.3416059.1](http://v.youku.com/v_show/id_XMjkzMTE1NzE3Mg==.html?spm=a2h3j.8428770.3416059.1)
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 163#         楼主| 发表于 2017-8-5 19:37
 
 
-
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fi92ntr08hj20bq082aak.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3386,13 +2268,7 @@ ubwtv那个画风诡异的作监不在就行</blockquote>
 ##### 164#         楼主| 发表于 2017-8-5 19:37
 
 
-
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fi92ntr08hj20bq082aak.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3401,16 +2277,10 @@ ubwtv那个画风诡异的作监不在就行</blockquote>
 ##### 165#       发表于 2017-8-5 20:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36681024&amp;ptid=1359460" target="_blank">晨霜攀黛瓦 发表于 2017-7-25 13:20</a>
 
 他做了什么？</blockquote>
 然而人家依然是人设之一 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">顺便人家还参与过鲁鲁修呢 
-
-
-
-
-
 
 
 -----
@@ -3419,13 +2289,7 @@ ubwtv那个画风诡异的作监不在就行</blockquote>
 ##### 166#         楼主| 发表于 2017-8-8 20:38
 
 
-
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ficl8y9xo3j23v62l0x6p.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3434,21 +2298,14 @@ ubwtv那个画风诡异的作监不在就行</blockquote>
 ##### 167#       发表于 2017-8-8 20:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36825414&amp;ptid=1359460" target="_blank">xingenge 发表于 2017-8-8 20:38</a></blockquote>
 突然想起来，难得看到会长大人出现在图里<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  亚顿之矛  
 ##### 168#       发表于 2017-8-8 22:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36503602&amp;ptid=1359460" target="_blank">SHIRT 发表于 2017-7-6 22:25</a>
@@ -3462,33 +2319,19 @@ ubwtv那个画风诡异的作监不在就行</blockquote>
 剩下那些都是什么杂毛？
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 169#         楼主| 发表于 2017-8-11 08:26
 
 
-
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fifgyicrr2j23yu2im4qr.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 170#         楼主| 发表于 2017-9-3 17:28
-
-
-
 
 
 这张不懂放哪，一起发了吧
@@ -3499,16 +2342,10 @@ HF的
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fj6hz93ohjj23r72nqhdu.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  penrynx  
 ##### 171#       发表于 2017-9-3 17:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37085500&amp;ptid=1359460" target="_blank">xingenge 发表于 2017-9-3 17:28</a>
@@ -3517,16 +2354,10 @@ HF的
 这两张有无字版时务必发一下！
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 172#       发表于 2017-9-3 17:37
-
 
 
  本帖最后由 消防 于 2017-9-3 17:41 编辑 
@@ -3539,16 +2370,10 @@ HF的
 真·站街。左边上车右边上楼。
 
 
-
-
-
-
-
 -----
 
 ####  ppppppp3e  
 ##### 173#       发表于 2017-9-3 18:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37085500&amp;ptid=1359460" target="_blank">xingenge 发表于 2017-9-3 17:28</a>
@@ -3557,16 +2382,10 @@ HF的
 看到黑影了XD
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 174#       发表于 2017-9-3 20:12
-
 
 
  本帖最后由 we89623 于 2017-9-3 20:31 编辑 
@@ -3576,16 +2395,10 @@ HF的
 求第一张这种风格的更多<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lxl196201  
 ##### 175#       发表于 2017-9-3 20:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37086762&amp;ptid=1359460" target="_blank">we89623 发表于 2017-09-03 20:12:22</a></blockquote>去看社长的京都春，一个风格，社长应该就画了个人物，背景其他人画的
@@ -3593,16 +2406,10 @@ HF的
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
 
 
-
-
-
-
-
 -----
 
 ####  woshenc  
 ##### 176#       发表于 2017-9-3 21:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36721589&amp;ptid=1359460" target="_blank">xingenge 发表于 2017-7-29 15:20</a>
@@ -3613,16 +2420,10 @@ http://v.youku.com/v_show/id_XMjkzMTE1NzE3Mg==.html?spm=a2h3j.8428770.3416059.1<
 这图不对啊，真男主麻婆怎么不在图里
 
 
-
-
-
-
-
 -----
 
 ####  ggrreen33  
 ##### 177#       发表于 2017-9-5 14:00
-
 
 
 <blockquote>lxl196201 发表于 2017-9-3 20:58
@@ -3633,25 +2434,13 @@ http://v.youku.com/v_show/id_XMjkzMTE1NzE3Mg==.html?spm=a2h3j.8428770.3416059.1<
 社长一般不上色，找人代上
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 178#       发表于 2017-9-5 14:14
 
 
-
-
 美国不知道啥时候上映，网站倒是做出来了写着coming soon，也不知道美服fgo的冬木池是不是为了联动刻意推迟了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3660,13 +2449,7 @@ http://v.youku.com/v_show/id_XMjkzMTE1NzE3Mg==.html?spm=a2h3j.8428770.3416059.1<
 ##### 179#         楼主| 发表于 2017-9-11 10:00
 
 
-
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fjfdrt9cazj23y12j5e82.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3675,13 +2458,7 @@ http://v.youku.com/v_show/id_XMjkzMTE1NzE3Mg==.html?spm=a2h3j.8428770.3416059.1<
 ##### 180#         楼主| 发表于 2017-9-23 14:34
 
 
-
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fjthh1ok2gj23re2nlqv6.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3690,13 +2467,7 @@ http://v.youku.com/v_show/id_XMjkzMTE1NzE3Mg==.html?spm=a2h3j.8428770.3416059.1<
 ##### 181#       发表于 2017-9-23 15:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">R姐这个姿势可以说很经典了
-
-
-
-
-
 
 
 -----
@@ -3705,14 +2476,8 @@ http://v.youku.com/v_show/id_XMjkzMTE1NzE3Mg==.html?spm=a2h3j.8428770.3416059.1<
 ##### 182#       发表于 2017-9-23 16:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37285723&amp;ptid=1359460" target="_blank">xingenge 发表于 2017-9-23 14:34</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">R姐这大腿比例不太好
-
-
-
-
-
 
 
 -----
@@ -3721,13 +2486,7 @@ http://v.youku.com/v_show/id_XMjkzMTE1NzE3Mg==.html?spm=a2h3j.8428770.3416059.1<
 ##### 183#         楼主| 发表于 2017-9-23 16:48
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">话说有开FATE HF专楼的朋友么 我一直认为开专楼还是要让喜欢的人开比较好 不是FATE厨 FATE只看过FSN 游戏玩了点 多多少少知道些剧情 但觉得自己还是没那资格
-
-
-
-
-
 
 
 -----
@@ -3736,14 +2495,7 @@ http://v.youku.com/v_show/id_XMjkzMTE1NzE3Mg==.html?spm=a2h3j.8428770.3416059.1<
 ##### 184#       发表于 2017-9-23 18:44
 
 
-
-
 hf线大部分从者都是炮灰啊…
-
-
-
-
-
 
 
 -----
@@ -3752,23 +2504,16 @@ hf线大部分从者都是炮灰啊…
 ##### 185#       发表于 2017-9-23 19:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37286623&amp;ptid=1359460" target="_blank">xingenge 发表于 2017-09-23 16:48:33</a>
 话说有开FATE HF专楼的朋友么 我一直认为开专楼还是要让喜欢的人开比较好 不是FATE厨 FATE只看过FSN 游戏玩 ...</blockquote>没必要，专楼楼主重要的是顶楼更新提供资讯顺便定个讨论基调。月厨一是懒二是厨，开个楼不知道要带歪到什么地方去了
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 186#         楼主| 发表于 2017-9-30 23:17
-
 
 
  本帖最后由 xingenge 于 2017-9-30 23:23 编辑 
@@ -3787,17 +2532,10 @@ hf线大部分从者都是炮灰啊…
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fk201z83lbj21hc0u0b29.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  被子十三  
 ##### 187#       发表于 2017-9-30 23:38
-
-
 
 
 这制作是相当精良了，希望正片不要出什么岔子啊……
@@ -3805,16 +2543,10 @@ hf线大部分从者都是炮灰啊…
 一方面很期待，但是另外一方面对最近的ufo又没什么信心……
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 188#         楼主| 发表于 2017-9-30 23:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37363058&amp;ptid=1359460" target="_blank">被子十三 发表于 2017-9-30 23:38</a>
@@ -3825,16 +2557,10 @@ hf线大部分从者都是炮灰啊…
 <img src="https://static.saraba1st.com/image/smiley/carton2017/005.png" referrerpolicy="no-referrer">可以这样想，人都去做这部了
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 189#       发表于 2017-10-1 00:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37286623&amp;ptid=1359460" target="_blank">xingenge 发表于 2017-9-23 16:48</a>
@@ -3843,25 +2569,13 @@ hf线大部分从者都是炮灰啊…
 没关系，前辈开专楼是最好的，以后原创动画前辈来开也是很不错的
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 190#       发表于 2017-10-1 00:07
 
 
-
-
 看上去大家都没崩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3870,14 +2584,7 @@ hf线大部分从者都是炮灰啊…
 ##### 191#       发表于 2017-10-1 00:08
 
 
-
-
 第一章应该不会很黑，有引进的希望啊
-
-
-
-
-
 
 
 -----
@@ -3886,14 +2593,7 @@ hf线大部分从者都是炮灰啊…
 ##### 192#       发表于 2017-10-1 07:10
 
 
-
-
 哈桑跟大狗在卡车上对打那段，上蹿下跳的哈桑很是喜感
-
-
-
-
-
 
 
 -----
@@ -3902,14 +2602,7 @@ hf线大部分从者都是炮灰啊…
 ##### 193#       发表于 2017-10-1 08:41
 
 
-
-
 这么看图我都想去看了，不过好像不是TE吧？
-
-
-
-
-
 
 
 -----
@@ -3918,14 +2611,7 @@ hf线大部分从者都是炮灰啊…
 ##### 194#       发表于 2017-10-1 09:20
 
 
-
-
 可以和FA比一下哪边更难听了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3934,16 +2620,10 @@ hf线大部分从者都是炮灰啊…
 ##### 195#       发表于 2017-10-1 11:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37364877&amp;ptid=1359460" target="_blank">圈量子 发表于 2017-10-1 09:20</a>
 
 可以和FA比一下哪边更难听了</blockquote>
 我是aimer粉，我也觉得不好听<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3952,16 +2632,9 @@ hf线大部分从者都是炮灰啊…
 ##### 196#       发表于 2017-10-1 11:24
 
 
-
-
 看起来不错，至少甩隔壁fa几条街应该问题不大。
 
 hf本来就不是讲述英灵的故事了，从者当然退场快。结局请务必作NE。
-
-
-
-
-
 
 
 -----
@@ -3970,14 +2643,7 @@ hf本来就不是讲述英灵的故事了，从者当然退场快。结局请务
 ##### 197#       发表于 2017-10-1 11:25
 
 
-
-
 请问香港能看吗
-
-
-
-
-
 
 
 -----
@@ -3986,13 +2652,7 @@ hf本来就不是讲述英灵的故事了，从者当然退场快。结局请务
 ##### 198#       发表于 2017-10-1 11:25
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">她真迷人
-
-
-
-
-
 
 
 -----
@@ -4001,16 +2661,10 @@ hf本来就不是讲述英灵的故事了，从者当然退场快。结局请务
 ##### 199#         楼主| 发表于 2017-10-1 16:33
 
 
-
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fk2tqccfdaj20sg0lc790.jpg" referrerpolicy="no-referrer">
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fk2tqcf81ij20sg0lctcn.jpg" referrerpolicy="no-referrer">
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fk2tqchys3j20sg0lc0xl.jpg" referrerpolicy="no-referrer">
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fk2tqcm5utj20sg0lcdj4.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4019,21 +2673,14 @@ hf本来就不是讲述英灵的故事了，从者当然退场快。结局请务
 ##### 200#       发表于 2017-10-1 16:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37367846&amp;ptid=1359460" target="_blank">xingenge 发表于 2017-10-1 16:33</a></blockquote>
 这漫画太过火了吧，我记得即使是原作黄油，这里也只是梦到凛吸血而已
-
-
-
-
-
 
 
 -----
 
 ####  消防  
 ##### 201#       发表于 2017-10-1 16:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37367849&amp;ptid=1359460" target="_blank">8aa8aa8aa 发表于 2017-10-1 16:34</a>
@@ -4048,16 +2695,10 @@ hf本来就不是讲述英灵的故事了，从者当然退场快。结局请务
 漫画把这部分还原了是不是能期待剧场版也还原一个？毕竟HF本身就是充满了凡人的欲念与矛盾（所以也不是英灵们的主场）
 
 
-
-
-
-
-
 -----
 
 ####  8aa8aa8aa  
 ##### 202#       发表于 2017-10-1 16:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37367872&amp;ptid=1359460" target="_blank">消防 发表于 2017-10-1 16:38</a>
@@ -4070,16 +2711,10 @@ hf本来就不是讲述英灵的故事了，从者当然退场快。结局请务
 我记得清清楚楚，就是原作梦到凛发骚，然后抱上士郎时吸血。毕竟是R姐在补魔或者个人嗜好想吸血而已，用不着直接上吧，被樱发现的话会出人命的啊
 
 
-
-
-
-
-
 -----
 
 ####  不灭人形  
 ##### 203#       发表于 2017-10-1 16:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37367905&amp;ptid=1359460" target="_blank">8aa8aa8aa 发表于 2017-10-1 16:45</a>
@@ -4091,17 +2726,10 @@ hf本来就不是讲述英灵的故事了，从者当然退场快。结局请务
 PC版就是漫画这段啊，你在想什么呢...
 
 
-
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 204#       发表于 2017-10-1 16:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37367905&amp;ptid=1359460" target="_blank">8aa8aa8aa 发表于 2017-10-1 16:45</a>
@@ -4111,26 +2739,15 @@ PC版就是漫画这段啊，你在想什么呢...
 你大概记忆混乱了，PC版是教室后入，和谐版是看到百合场景
 
 
-
-
-
-
-
 -----
 
 ####  8aa8aa8aa  
 ##### 205#       发表于 2017-10-1 16:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37367935&amp;ptid=1359460" target="_blank">不灭人形 发表于 2017-10-1 16:48</a>
 PC版就是漫画这段啊，你在想什么呢...</blockquote>
 我的意思就是，PC原作只有UBW才有凛的H CG，HF线没有凛的HCG
-
-
-
-
-
 
 
 -----
@@ -4139,15 +2756,9 @@ PC版就是漫画这段啊，你在想什么呢...</blockquote>
 ##### 206#       发表于 2017-10-1 16:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37367950&amp;ptid=1359460" target="_blank">圈量子 发表于 2017-10-1 16:49</a>
 你大概记忆混乱了，PC版是教室后入，和谐版是看到百合场景</blockquote>
 难道真的记错了？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我去翻一下
-
-
-
-
-
 
 
 -----
@@ -4156,15 +2767,9 @@ PC版就是漫画这段啊，你在想什么呢...</blockquote>
 ##### 207#       发表于 2017-10-1 16:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37367967&amp;ptid=1359460" target="_blank">8aa8aa8aa 发表于 2017-10-1 16:52</a>
 我的意思就是，PC原作只有UBW才有凛的H CG，HF线没有凛的HCG</blockquote>
 有啊，HF线梦到和凛后入和女上。不过从眼睛能看出来是R姐，漫画里看来也用地上影子表现了。
-
-
-
-
-
 
 
 -----
@@ -4173,16 +2778,9 @@ PC版就是漫画这段啊，你在想什么呢...</blockquote>
 ##### 208#       发表于 2017-10-1 16:58
 
 
-
-
 UFO的剧本节奏令人担忧
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -4191,23 +2789,16 @@ UFO的剧本节奏令人担忧
 ##### 209#       发表于 2017-10-1 17:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37367849&amp;ptid=1359460" target="_blank">8aa8aa8aa 发表于 2017-10-1 16:34</a>
 
 这漫画太过火了吧，我记得即使是原作黄油，这里也只是梦到凛吸血而已</blockquote>
 又一个被和谐版毒害的。。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 210#       发表于 2017-10-1 17:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37367967&amp;ptid=1359460" target="_blank">8aa8aa8aa 发表于 2017-10-1 16:52</a>
@@ -4217,16 +2808,10 @@ UFO的剧本节奏令人担忧
 因为过高的后入率蘑菇又被人称后入狂魔
 
 
-
-
-
-
-
 -----
 
 ####  钢琴猫  
 ##### 211#       发表于 2017-10-1 17:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37368073&amp;ptid=1359460" target="_blank">六花自我中 发表于 2017-10-1 17:09</a>
@@ -4235,24 +2820,13 @@ UFO的剧本节奏令人担忧
 搞不好是毒害-&gt;拯救<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 212#         楼主| 发表于 2017-10-1 17:18
 
 
-
 [http://wx1.sinaimg.cn/large/740ca5e5gy1fk2v7baumsj20sg0lc7wh.jpg](http://wx1.sinaimg.cn/large/740ca5e5gy1fk2v7baumsj20sg0lc7wh.jpg)
-
-
-
-
-
 
 
 -----
@@ -4261,14 +2835,7 @@ UFO的剧本节奏令人担忧
 ##### 213#       发表于 2017-10-1 17:45
 
 
-
-
 这几张表现不错啊 查了下作者 居然不是两栖型的 用这名义发的都是全年龄的图 不知道有没有开小号
-
-
-
-
-
 
 
 -----
@@ -4277,23 +2844,15 @@ UFO的剧本节奏令人担忧
 ##### 214#       发表于 2017-10-1 19:02
 
 
-
-
 竟然是我生日那天，开心<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  ppppppp3e  
 ##### 215#       发表于 2017-10-1 20:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37368080&amp;ptid=1359460" target="_blank">消防 发表于 2017-10-1 17:10</a>
@@ -4303,24 +2862,13 @@ UFO的剧本节奏令人担忧
 樱有3段……
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 216#         楼主| 发表于 2017-10-5 12:52
 
 
-
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fk79xzl1mbj20mi0sgn31.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4329,22 +2877,13 @@ UFO的剧本节奏令人担忧
 ##### 217#       发表于 2017-10-5 14:23
 
 
-
-
 还有一个月就能看了，不知道第一部会做到哪里。
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 218#         楼主| 发表于 2017-10-8 10:48
-
-
 
 
 FGOで劇場版FateHF公開記念キャンペーン開催決定！このあと10月8日13時から
@@ -4356,26 +2895,15 @@ FGOで劇場版FateHF公開記念キャンペーン開催決定！このあと10
 概念礼装は10月14日から11月10日のあいだプレゼント
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 219#         楼主| 发表于 2017-10-8 12:47
 
 
-
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fkaqpmi85ij20p00xcdhc.jpg" referrerpolicy="no-referrer">
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fkaqpmr8m4j20xc0p00xu.jpg" referrerpolicy="no-referrer">
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fkaqpmo3tlj20xc0p0aej.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4384,16 +2912,9 @@ FGOで劇場版FateHF公開記念キャンペーン開催決定！このあと10
 ##### 220#       发表于 2017-10-8 16:30
 
 
-
-
 国庆重打了遍本篇，之前有人说做到大雨抱樱那段？
 
 吹一口，第二章到二爷阵亡，三章全面黑化最终决战。
-
-
-
-
-
 
 
 -----
@@ -4402,13 +2923,7 @@ FGOで劇場版FateHF公開記念キャンペーン開催決定！このあと10
 ##### 221#         楼主| 发表于 2017-10-8 18:39
 
 
-
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fkb0kvxm2sj21kw1044qq.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4417,14 +2932,7 @@ FGOで劇場版FateHF公開記念キャンペーン開催決定！このあと10
 ##### 222#       发表于 2017-10-8 18:44
 
 
-
-
 这张二爷就正常多了，pv和fgo联动卡面一脸阴险又莫名帅，让人怀疑贿赂了灯光师。。。
-
-
-
-
-
 
 
 -----
@@ -4433,13 +2941,7 @@ FGOで劇場版FateHF公開記念キャンペーン開催決定！このあと10
 ##### 223#       发表于 2017-10-8 19:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">可这张的樱和rider也不好看啊
-
-
-
-
-
 
 
 -----
@@ -4448,15 +2950,9 @@ FGOで劇場版FateHF公開記念キャンペーン開催決定！このあと10
 ##### 224#       发表于 2017-10-8 19:35
 
 
-
 <blockquote>akari1864 发表于 2017-10-8 18:44
 这张二爷就正常多了，pv和fgo联动卡面一脸阴险又莫名帅，让人怀疑贿赂了灯光师。。。 ...</blockquote>
 你难道不知道大家都喜欢二爷嘛
-
-
-
-
-
 
 
 -----
@@ -4465,14 +2961,8 @@ FGOで劇場版FateHF公開記念キャンペーン開催決定！このあと10
 ##### 225#       发表于 2017-10-8 19:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37427039&amp;ptid=1359460" target="_blank">xingenge 发表于 2017-10-8 18:39</a></blockquote>
 这图的樱<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">这是男人脸吧
-
-
-
-
-
 
 
 -----
@@ -4481,21 +2971,13 @@ FGOで劇場版FateHF公開記念キャンペーン開催決定！このあと10
 ##### 226#       发表于 2017-10-8 19:37
 
 
-
-
 说起来历代版本里面樱从来没有崩过吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  消防  
 ##### 227#       发表于 2017-10-8 19:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37427067&amp;ptid=1359460" target="_blank">akari1864 发表于 2017-10-8 18:44</a>
@@ -4509,17 +2991,10 @@ FGOで劇場版FateHF公開記念キャンペーン開催決定！このあと10
 这不是HF线咩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 228#         楼主| 发表于 2017-10-9 14:51
-
-
 
 
 「一番くじ 劇場版Fate/stay night[Heaven's Feel]」
@@ -4528,17 +3003,10 @@ FGOで劇場版FateHF公開記念キャンペーン開催決定！このあと10
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fkbzngzgxpj20jg0jgwh2.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 229#         楼主| 发表于 2017-10-9 17:08
-
-
 
 
 【公開まであと5日！】 10/14(土)の劇場版公開までの間、「Fate」シリーズに携わるクリエイターさんより頂いたイラストを毎日投稿します！本日は真じろうさんです！
@@ -4553,25 +3021,13 @@ FGOで劇場版FateHF公開記念キャンペーン開催決定！このあと10
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fkc3pcz3kdj20xc0xc7wi.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Louis417  
 ##### 230#       发表于 2017-10-9 17:22
 
 
-
-
 刚刚美游哥那里收完特典，又要出血了……
-
-
-
-
-
 
 
 -----
@@ -4580,15 +3036,9 @@ FGOで劇場版FateHF公開記念キャンペーン開催決定！このあと10
 ##### 231#       发表于 2017-10-9 18:18
 
 
-
 <blockquote>xingenge 发表于 2017-10-9 17:08
 【公開まであと5日！】 10/14(土)の劇場版公開までの間、「Fate」シリーズに携わるクリエイターさんより頂 ...</blockquote>
 凛这大饼脸 
-
-
-
-
-
 
 
 -----
@@ -4597,16 +3047,9 @@ FGOで劇場版FateHF公開記念キャンペーン開催決定！このあと10
 ##### 232#       发表于 2017-10-10 16:52
 
 
-
-
 剧场版主题曲已经偷跑，网易云就能听
 
 http://music.163.com/m/album?id=36517030
-
-
-
-
-
 
 
 -----
@@ -4615,17 +3058,10 @@ http://music.163.com/m/album?id=36517030
 ##### 233#         楼主| 发表于 2017-10-11 00:56
 
 
-
-
 【公開まであと4日！】
 
 10/14(土)の劇場版公開までの間、「Fate」シリーズに携わるクリエイターさんより頂いたイラストを毎日投稿します！本日は東冬さんです！
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fkdmzz02vqj20xc0xce83.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4634,14 +3070,7 @@ http://music.163.com/m/album?id=36517030
 ##### 234#       发表于 2017-10-11 01:03
 
 
-
-
 新歌两个版本都没pv里面的有感觉，难道是缺少人声说好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4650,24 +3079,15 @@ http://music.163.com/m/album?id=36517030
 ##### 235#       发表于 2017-10-11 09:36
 
 
-
-
 这歌花瓣啊，花园啊。
 
 有心理准备了，3部的话时间还是有点紧的，有一个结局只要主线剧情就能结束比较节省时间，所以……
-
-
-
-
-
 
 
 -----
 
 ####  phoenixxj  
 ##### 236#       发表于 2017-10-11 12:11
-
-
 
 
 我觉得pv这歌没有感觉
@@ -4677,17 +3097,10 @@ http://music.163.com/m/album?id=36517030
 还是非常不错的
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 237#         楼主| 发表于 2017-10-11 19:51
-
-
 
 
 【公開まであと3日！】
@@ -4696,24 +3109,13 @@ http://music.163.com/m/album?id=36517030
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fkejtwrc0wj20xc0xc1ky.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  禦厨三九二  
 ##### 238#       发表于 2017-10-11 21:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">说真的不觉得完整版好听，反而是PV里用的那段高潮，结合画面倒挺有感觉的
-
-
-
-
-
 
 
 -----
@@ -4722,14 +3124,7 @@ http://music.163.com/m/album?id=36517030
 ##### 239#       发表于 2017-10-11 21:34
 
 
-
-
 这礼拜没空，看看下礼拜六有没有空去看了。
-
-
-
-
-
 
 
 -----
@@ -4738,16 +3133,7 @@ http://music.163.com/m/album?id=36517030
 ##### 240#       发表于 2017-10-11 23:43
 
 
-
-
-
-
 这OP唱的跟丧魂曲一样，跟FA OP有的比
-
-
-
-
-
 
 
 -----
@@ -4756,21 +3142,13 @@ http://music.163.com/m/album?id=36517030
 ##### 241#       发表于 2017-10-11 23:50
 
 
-
-
 这歌的歌词作为第一部的歌还是挺合适的，二人之间的感情还在积蓄，爆发的时间尚未到来
-
-
-
-
-
 
 
 -----
 
 ####  aptx8285144  
 ##### 242#       发表于 2017-10-11 23:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37457499&amp;ptid=1359460" target="_blank">xingenge 发表于 2017-10-11 19:51</a>
@@ -4781,25 +3159,13 @@ http://music.163.com/m/album?id=36517030
 这图其实充分说明这其实是伊莉雅线<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  天涯夹心人  
 ##### 243#       发表于 2017-10-12 09:04
 
 
-
-
 最后两天就是士樱倒计时吧。
-
-
-
-
-
 
 
 -----
@@ -4808,14 +3174,7 @@ http://music.163.com/m/album?id=36517030
 ##### 244#       发表于 2017-10-12 09:06
 
 
-
-
 也有可能2呆毛，1士郎，第0天樱
-
-
-
-
-
 
 
 -----
@@ -4824,14 +3183,7 @@ http://music.163.com/m/album?id=36517030
 ##### 245#       发表于 2017-10-12 09:07
 
 
-
-
 aimer和两个yk合作的歌怎么都这么别扭<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">残响的歌不如第二首的白昼梦好听，这个也是词好曲不错就是感觉人的声音不对。
-
-
-
-
-
 
 
 -----
@@ -4840,15 +3192,8 @@ aimer和两个yk合作的歌怎么都这么别扭<img src="https://static.saraba
 ##### 246#         楼主| 发表于 2017-10-12 17:10
 
 
-
-
 【公開まであと2日！】 10/14(土)の劇場版公開までの間、「Fate」シリーズに携わるクリエイターさんより頂いたイラストを毎日投稿します！本日はTAaさんです！ ​​​​
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fkfkp7yv7aj20xc0xc1ky.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4857,14 +3202,7 @@ aimer和两个yk合作的歌怎么都这么别扭<img src="https://static.saraba
 ##### 247#       发表于 2017-10-12 19:46
 
 
-
-
 震惊！hf倒计时彻底无saber痕迹。
-
-
-
-
-
 
 
 -----
@@ -4873,23 +3211,16 @@ aimer和两个yk合作的歌怎么都这么别扭<img src="https://static.saraba
 ##### 248#       发表于 2017-10-12 20:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37467207&amp;ptid=1359460" target="_blank">天涯夹心人 发表于 2017-10-12 19:46</a>
 
 震惊！hf倒计时彻底无saber痕迹。</blockquote>
 1日（黑）saber，上映日樱？
 
 
-
-
-
-
-
 -----
 
 ####  melvin117  
 ##### 249#       发表于 2017-10-12 20:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37461127&amp;ptid=1359460" target="_blank">圈量子 发表于 2017-10-12 09:07</a>
@@ -4903,17 +3234,10 @@ aimer和两个yk合作的歌怎么都这么别扭残响的歌不如第二首的�
 — from LGE LG-H850, Android 7.0 of [S1 Next Goose](https://play.google.com/store/apps/details?id=me.ykrank.s1next) v1.3.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 250#         楼主| 发表于 2017-10-13 16:23
-
-
 
 
 结局 好像大概率是樱之梦？
@@ -4929,17 +3253,10 @@ aimer和两个yk合作的歌怎么都这么别扭残响的歌不如第二首的�
 <img src="http://wx4.sinaimg.cn/large/740ca5e5ly1fkgoj5fl1fj20hs0a0dgm.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 251#         楼主| 发表于 2017-10-13 17:04
-
-
 
 
 【公開まであと1日！】
@@ -4948,17 +3265,10 @@ aimer和两个yk合作的歌怎么都这么别扭残响的歌不如第二首的�
 <img src="http://wx3.sinaimg.cn/large/740ca5e5ly1fkgq8aqzyuj20xc0xc1ky.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  天涯夹心人  
 ##### 252#       发表于 2017-10-13 18:12
-
-
 
 
 蓝saber还是来了。
@@ -4966,16 +3276,10 @@ aimer和两个yk合作的歌怎么都这么别扭残响的歌不如第二首的�
 新图怎么回事，第一章就有黑berserker了？
 
 
-
-
-
-
-
 -----
 
 ####  禦厨三九二  
 ##### 253#       发表于 2017-10-13 18:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37477152&amp;ptid=1359460" target="_blank">天涯夹心人 发表于 2017-10-13 18:12</a>
@@ -4986,24 +3290,13 @@ aimer和两个yk合作的歌怎么都这么别扭残响的歌不如第二首的�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">单纯只是UFO版B叔狂化吧，全身通红，和UBW里一样
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 254#         楼主| 发表于 2017-10-13 18:33
 
 
-
 <img src="http://wx1.sinaimg.cn/large/740ca5e5ly1fkgssb8nfyj20lb0jok1m.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5012,14 +3305,7 @@ aimer和两个yk合作的歌怎么都这么别扭残响的歌不如第二首的�
 ##### 255#       发表于 2017-10-13 18:56
 
 
-
-
 b站居然买了
-
-
-
-
-
 
 
 -----
@@ -5028,21 +3314,13 @@ b站居然买了
 ##### 256#       发表于 2017-10-13 19:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">免费换的大会员，能看吗？
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 257#         楼主| 发表于 2017-10-13 19:06
-
-
 
 
 明日公開の劇場版「Fate [HF]」第1週目の来場者特典サンプルが到着しました！
@@ -5052,17 +3330,10 @@ b站居然买了
 <img src="http://wx1.sinaimg.cn/large/740ca5e5ly1fkgtqkdwvkj20m80gob0w.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 258#       发表于 2017-10-13 19:06
-
-
 
 
 到时候国服的电影院兑换HF礼装咋办？支持一部电影送一个礼装集齐三个再换一个礼装？
@@ -5071,17 +3342,10 @@ b站居然买了
 话说这国服是和BD同步还是和电影院同步？<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 259#         楼主| 发表于 2017-10-13 19:10
-
-
 
 
 明日より一部公開劇場にて、「FGOフェス」「京まふ」で公開をした【中田譲治作】のイラストポスターを掲出致します！ぜひ探して見て下さいね！ ​​​​
@@ -5100,16 +3364,10 @@ b站居然买了
 <img src="http://wx4.sinaimg.cn/large/740ca5e5ly1fkgtudl51dj20lc0sg7u4.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 260#       发表于 2017-10-13 19:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37477677&amp;ptid=1359460" target="_blank">xingenge 发表于 2017-10-13 19:10</a>
@@ -5117,16 +3375,10 @@ b站居然买了
 怎么都是灵魂创作…
 
 
-
-
-
-
-
 -----
 
 ####  UMINEKO9  
 ##### 261#       发表于 2017-10-13 19:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37477648&amp;ptid=1359460" target="_blank">消防 发表于 2017-10-13 19:06</a>
@@ -5137,13 +3389,7 @@ b站居然买了
 话说这国服是和BD同步 ...</blockquote>
 
 
-
 之前某B买过黄段子学生会的剧场版吧，也就晚了两个月左右，不过法特这IP本身跟黄段子也没多少可比性......
-
-
-
-
-
 
 
 -----
@@ -5152,14 +3398,8 @@ b站居然买了
 ##### 262#       发表于 2017-10-13 19:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37477347&amp;ptid=1359460" target="_blank">xingenge 发表于 2017-10-13 18:33</a></blockquote>
 哎？？？国内能买的话那国内上映应该也有希望了啊
-
-
-
-
-
 
 
 -----
@@ -5168,16 +3408,10 @@ b站居然买了
 ##### 263#       发表于 2017-10-13 20:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37477796&amp;ptid=1359460" target="_blank">多汁多水 发表于 2017-10-13 19:24</a>
 
 哎？？？国内能买的话那国内上映应该也有希望了啊</blockquote>
 两回事啊 要上电影院要龙标的  再说了  上院线肯定赔钱  谁会搞啊
-
-
-
-
-
 
 
 -----
@@ -5186,14 +3420,7 @@ b站居然买了
 ##### 264#       发表于 2017-10-13 20:32
 
 
-
-
 最后是蓝saber估计主要是因为HF线前面放了很多士剑糖。
-
-
-
-
-
 
 
 -----
@@ -5202,15 +3429,9 @@ b站居然买了
 ##### 265#       发表于 2017-10-13 20:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37475873&amp;ptid=1359460" target="_blank">xingenge 发表于 2017-10-13 16:23</a>
 结局 好像大概率是樱之梦？</blockquote>
 是不是樱之梦要看和伊莉雅有多少互动，第一部应该做不到出现关键选项的部分
-
-
-
-
-
 
 
 -----
@@ -5219,16 +3440,10 @@ b站居然买了
 ##### 266#         楼主| 发表于 2017-10-13 21:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37478314&amp;ptid=1359460" target="_blank">被子十三 发表于 2017-10-13 20:33</a>
 
 是不是樱之梦要看和伊莉雅有多少互动，第一部应该做不到出现关键选项的部分 ...</blockquote>
 aimer有个访谈 我看别人说看起来像樱之梦 而且歌词有深意
-
-
-
-
-
 
 
 -----
@@ -5237,23 +3452,15 @@ aimer有个访谈 我看别人说看起来像樱之梦 而且歌词有深意
 ##### 267#       发表于 2017-10-13 21:59
 
 
-
  本帖最后由 远野真实 于 2017-10-13 22:08 编辑 
 
 樱之梦好，悲剧动人心，和hf的氛围契合，死的伟大的士郎和痴心终老的樱的人气都能蹭蹭涨。这不是要大团圆的时候。比如剑风能有类似的结局我就满足了，想要大团圆结局又要不落俗套契合氛围可不容易。
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 268#         楼主| 发表于 2017-10-13 22:10
-
-
 
 
 近藤光（ufotable）‏ @hikaruufo
@@ -5266,16 +3473,10 @@ aimer有个访谈 我看别人说看起来像樱之梦 而且歌词有深意
 <img src="http://wx1.sinaimg.cn/large/740ca5e5ly1fkgz1yb1rej20xc0p0kjl.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 269#       发表于 2017-10-13 22:23
-
 
 
  本帖最后由 消防 于 2017-10-14 01:16 编辑 
@@ -5285,16 +3486,10 @@ aimer有个访谈 我看别人说看起来像樱之梦 而且歌词有深意
 樱梦结局虽然大快人心，但春归结局重点在伊莉雅故事线（某种意义上是从UFO FZ开始切嗣的故事线）的结局。愿意停下来犹豫，等到伊莉雅是土狼走出了切嗣阴影，得到人心的象征啊。樱梦虽好，缺了这部分故事依然不是完整的。
 
 
-
-
-
-
-
 -----
 
 ####  远野真实  
 ##### 270#       发表于 2017-10-13 22:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37479128&amp;ptid=1359460" target="_blank">消防 发表于 2017-10-13 22:23</a>
@@ -5303,25 +3498,13 @@ aimer有个访谈 我看别人说看起来像樱之梦 而且歌词有深意
 这就只能取舍了，就算杂了伊利亚线进来，女主终归是樱不是她。更何况ufo的文戏水平，能讲好一条线就谢天谢地了。
 
 
-
-
-
-
-
 -----
 
 ####  神之领域  
 ##### 271#       发表于 2017-10-13 22:46
 
 
-
-
 樱之梦还是比春归遗憾一些，樱始终没办法跟土狼在一起。
-
-
-
-
-
 
 
 -----
@@ -5330,14 +3513,7 @@ aimer有个访谈 我看别人说看起来像樱之梦 而且歌词有深意
 ##### 272#         楼主| 发表于 2017-10-13 23:03
 
 
-
-
 劇場版Fate/stay night[Heaven's Feel]　2章 lost butterfly　2018年公開予定
-
-
-
-
-
 
 
 -----
@@ -5346,22 +3522,14 @@ aimer有个访谈 我看别人说看起来像樱之梦 而且歌词有深意
 ##### 273#         楼主| 发表于 2017-10-13 23:08
 
 
-
-
 Fate HF来場者特典、奈須きのこさん「次の桜もすごいぜ…」
 <img src="http://wx3.sinaimg.cn/large/740ca5e5ly1fkh0r7xs9wj20p00xc1kx.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  消防  
 ##### 274#       发表于 2017-10-13 23:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37479214&amp;ptid=1359460" target="_blank">远野真实 发表于 2017-10-13 22:32</a>
@@ -5375,16 +3543,10 @@ UFO会放过这个好噱头吗<img src="https://static.saraba1st.com/image/smile
 仔细想想院线走樱梦，春归橙子放BD追加结局当特典好像也不错<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  YBY  
 ##### 275#       发表于 2017-10-13 23:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37475873&amp;ptid=1359460" target="_blank">xingenge 发表于 2017-10-13 16:23</a>
@@ -5393,16 +3555,10 @@ UFO会放过这个好噱头吗<img src="https://static.saraba1st.com/image/smile
 新PV？求地址
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 276#         楼主| 发表于 2017-10-13 23:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37479516&amp;ptid=1359460" target="_blank">YBY 发表于 2017-10-13 23:09</a>
@@ -5411,33 +3567,19 @@ UFO会放过这个好噱头吗<img src="https://static.saraba1st.com/image/smile
 没PV，是公开的新先行图，有视频我都会发
 
 
-
-
-
-
-
 -----
 
 ####  linux40  
 ##### 277#       发表于 2017-10-13 23:39
 
 
-
-
 saber在别的线里再怎么有存在感，在HF里也只能排第四！！！！！
-
-
-
-
-
 
 
 -----
 
 ####  天涯夹心人  
 ##### 278#       发表于 2017-10-14 00:12
-
-
 
 
 做樱梦还是出于篇幅考虑。伊莉雅线涉及到设定，切嗣、姐弟情。
@@ -5447,16 +3589,10 @@ saber在别的线里再怎么有存在感，在HF里也只能排第四！！！�
 取舍取舍，萝莉，你自己high的外传都要5季了是吧，决定就是砍你了！
 
 
-
-
-
-
-
 -----
 
 ####  linux40  
 ##### 279#       发表于 2017-10-14 00:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37479999&amp;ptid=1359460" target="_blank">天涯夹心人 发表于 2017-10-14 00:12</a>
@@ -5468,27 +3604,15 @@ saber在别的线里再怎么有存在感，在HF里也只能排第四！！！�
 一个是这个，还有，如果纯粹从樱的角度考虑的话，樱之梦是在没有完全相信美杜莎的情况下，提前把力量用了。从我主观的角度来看的话，当时士郎把这招留着是更好的选择，当然，只是我主观。。。
 
 
-
-
-
-
-
 -----
 
 ####  大气水平运动  
 ##### 280#       发表于 2017-10-14 01:18
 
 
-
-
 既然14号了，剧透一下之前舅舅党跟我说的，中割会挂个几千张，之后会修正
 
 —— 来自 HUAWEI MT7-TL10, Android 6.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.0-play
-
-
-
-
-
 
 
 -----
@@ -5497,16 +3621,9 @@ saber在别的线里再怎么有存在感，在HF里也只能排第四！！！�
 ##### 281#       发表于 2017-10-14 01:20
 
 
-
-
 最后据说还有点赶
 
 —— 来自 HUAWEI MT7-TL10, Android 6.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.0-play
-
-
-
-
-
 
 
 -----
@@ -5515,14 +3632,7 @@ saber在别的线里再怎么有存在感，在HF里也只能排第四！！！�
 ##### 282#         楼主| 发表于 2017-10-14 01:26
 
 
-
-
 看推特说，中田让二的表演绝赞
-
-
-
-
-
 
 
 -----
@@ -5531,17 +3641,10 @@ saber在别的线里再怎么有存在感，在HF里也只能排第四！！！�
 ##### 283#         楼主| 发表于 2017-10-14 01:31
 
 
-
-
 <img src="http://wx4.sinaimg.cn/large/740ca5e5ly1fkh4twkwy0j20p00xcwi3.jpg" referrerpolicy="no-referrer">
 <img src="http://wx4.sinaimg.cn/large/740ca5e5ly1fkh4tx9xofj20p00xc0v6.jpg" referrerpolicy="no-referrer">
 <img src="http://wx2.sinaimg.cn/large/740ca5e5ly1fkh4ty1e5nj20xc0p0dj0.jpg" referrerpolicy="no-referrer">
 <img src="http://wx3.sinaimg.cn/large/740ca5e5ly1fkh4tyoobbj20xc0p042e.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5550,14 +3653,7 @@ saber在别的线里再怎么有存在感，在HF里也只能排第四！！！�
 ##### 284#       发表于 2017-10-14 02:35
 
 
-
-
 画面看样是稳了，就是不知道故事节奏怎样？ 有没有站桩对话等等问题？  跟魔伊剧场比呢？
-
-
-
-
-
 
 
 -----
@@ -5566,14 +3662,7 @@ saber在别的线里再怎么有存在感，在HF里也只能排第四！！！�
 ##### 285#       发表于 2017-10-14 10:32
 
 
-
-
 果然樱的贺图是第零天的。
-
-
-
-
-
 
 
 -----
@@ -5582,16 +3671,9 @@ saber在别的线里再怎么有存在感，在HF里也只能排第四！！！�
 ##### 286#       发表于 2017-10-14 11:31
 
 
-
-
 看现场转播…老是有两个秃的抢镜<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">笑抽了
 
 — from Sony 501SO, Android 6.0 of [S1 Next Goose](https://play.google.com/store/apps/details?id=me.ykrank.s1next) v1.3.2.0
-
-
-
-
-
 
 
 -----
@@ -5600,15 +3682,9 @@ saber在别的线里再怎么有存在感，在HF里也只能排第四！！！�
 ##### 287#       发表于 2017-10-14 11:34
 
 
-
 <blockquote>xingenge 发表于 2017-10-14 01:31
 </blockquote>
 一直对原作冬木冬天的气温感到很疑惑，其他主角都有加件大外套的情况下，樱这件短袖新衣服（最多外面套件针织）就更奇怪了……到底温度有多高
-
-
-
-
-
 
 
 -----
@@ -5617,25 +3693,16 @@ saber在别的线里再怎么有存在感，在HF里也只能排第四！！！�
 ##### 288#         楼主| 发表于 2017-10-14 11:45
 
 
-
-
 Fate HF Ⅰ
 
 原画
 <img src="http://wx3.sinaimg.cn/large/740ca5e5ly1fkhmlw6j5bj20p00xcqv5.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 289#         楼主| 发表于 2017-10-14 11:47
-
-
 
 
 Fate/stay night @Fate_SN_Anime  
@@ -5652,17 +3719,10 @@ Fate/stay night @Fate_SN_Anime  
 <img src="http://wx3.sinaimg.cn/large/740ca5e5ly1fkhmp5h85lj20xc0xc1ky.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 290#         楼主| 发表于 2017-10-14 12:51
-
-
 
 
 中田譲治‏ @joujinakata123  
@@ -5677,32 +3737,19 @@ Fate/stay night @Fate_SN_Anime  
 <img src="http://wx1.sinaimg.cn/large/740ca5e5ly1fkhojbmusnj20xc0xcb29.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  惣流明日香  
 ##### 291#       发表于 2017-10-14 13:36
 
 
-
-
 吃的竟然不是麻婆豆腐。
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 292#         楼主| 发表于 2017-10-14 13:42
-
 
 
 <img src="http://wx4.sinaimg.cn/large/740ca5e5ly1fkhpzai154j20kd0i6dt5.jpg" referrerpolicy="no-referrer">
@@ -5712,33 +3759,20 @@ Fate/stay night @Fate_SN_Anime  
 <img src="http://wx2.sinaimg.cn/large/740ca5e5ly1fkhpzd6hs0j20p00xcjui.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 293#         楼主| 发表于 2017-10-14 13:45
 
 
-
 <img src="http://wx1.sinaimg.cn/large/740ca5e5ly1fkhq3dszgoj20k60lsk2y.jpg" referrerpolicy="no-referrer">
 <img src="http://wx1.sinaimg.cn/large/740ca5e5ly1fkhq3fw9dkj20nm0xcawf.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  S.H.  
 ##### 294#       发表于 2017-10-14 14:43
-
-
 
 
 9点场看完，随便评论一下。挑剔的原作厨 &amp; 活生生被吊了3年胃口，没有给太高分的打算就是。
@@ -5784,16 +3818,10 @@ Fate/stay night @Fate_SN_Anime  
 先到这，回头想起来了再补。
 
 
-
-
-
-
-
 -----
 
 ####  病院坂黒猫  
 ##### 295#       发表于 2017-10-14 14:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37484169&amp;ptid=1359460" target="_blank">S.H. 发表于 2017-10-14 14:43</a>
@@ -5804,16 +3832,10 @@ Fate/stay night @Fate_SN_Anime  
 我樱是天使吗
 
 
-
-
-
-
-
 -----
 
 ####  S.H.  
 ##### 296#       发表于 2017-10-14 15:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37484228&amp;ptid=1359460" target="_blank">病院坂黒猫 发表于 2017-10-14 14:53</a>
@@ -5822,25 +3844,13 @@ Fate/stay night @Fate_SN_Anime  
 你樱不知道，我樱相当天使。毕竟是蘑菇认证过的サクラ研究家須藤画的<img src="https://static.saraba1st.com/image/smiley/carton2017/051.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  春猫  
 ##### 297#       发表于 2017-10-14 15:02
 
 
-
-
 公主有客串吗
-
-
-
-
-
 
 
 -----
@@ -5849,14 +3859,7 @@ Fate/stay night @Fate_SN_Anime  
 ##### 298#       发表于 2017-10-14 15:05
 
 
-
-
 迷失的蝴蝶还行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5865,14 +3868,7 @@ Fate/stay night @Fate_SN_Anime  
 ##### 299#       发表于 2017-10-14 15:13
 
 
-
-
 伪菲特粉搭车问一哈，这部在我们这儿公映的可能性是不是直接为零？
-
-
-
-
-
 
 
 -----
@@ -5881,22 +3877,15 @@ Fate/stay night @Fate_SN_Anime  
 ##### 300#       发表于 2017-10-14 15:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37484377&amp;ptid=1359460" target="_blank">lancelot9 发表于 2017-10-14 15:13</a>
 伪菲特粉搭车问一哈，这部在我们这儿公映的可能性是不是直接为零？</blockquote>
 居然和repo所说没有什么过激镜头的话，是否引进应该就取决于这片子的票房了，如果票房和SAO差不多的话也不是没有机会<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  seedees3  
 ##### 301#       发表于 2017-10-14 15:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37484377&amp;ptid=1359460" target="_blank">lancelot9 发表于 2017-10-14 15:13</a>
@@ -5907,16 +3896,10 @@ Fate/stay night @Fate_SN_Anime  
 B站据说不久会引进，弹幕预计一大波这都是时辰的错
 
 
-
-
-
-
-
 -----
 
 ####  cybernetics  
 ##### 302#       发表于 2017-10-14 16:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37484169&amp;ptid=1359460" target="_blank">S.H. 发表于 2017-10-14 14:43</a>
@@ -5927,16 +3910,10 @@ B站据说不久会引进，弹幕预计一大波这都是时辰的错
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  临界点  
 ##### 303#       发表于 2017-10-14 16:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37484377&amp;ptid=1359460" target="_blank">lancelot9 发表于 2017-10-14 15:13</a>
@@ -5945,33 +3922,19 @@ B站据说不久会引进，弹幕预计一大波这都是时辰的错
 是的 今年引进的片子票房都一般 最好的SAO都没过亿   更不用说这种纯粉丝向的   但引进价格可是涨了好多倍 
 
 
-
-
-
-
-
 -----
 
 ####  59式坦克  
 ##### 304#       发表于 2017-10-14 16:50
 
 
-
-
 FATE也能再战10年。。。
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 305#         楼主| 发表于 2017-10-14 17:13
-
-
 
 
 Fate/stay nigh @Fate_SN_Anime 
@@ -5982,33 +3945,19 @@ Fate/stay nigh @Fate_SN_Anime
 <img src="http://wx1.sinaimg.cn/large/740ca5e5ly1fkhw41korzj20kd0n3ql7.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Nieriltasinwa  
 ##### 306#       发表于 2017-10-14 19:17
 
 
-
-
 希望UFO文戏别崩
-
-
-
-
-
 
 
 -----
 
 ####  饼脸遥  
 ##### 307#       发表于 2017-10-14 19:27
-
-
 
 
 原作独独没玩过HF线 感觉还是很新鲜的
@@ -6030,17 +3979,10 @@ Fate/stay nigh @Fate_SN_Anime
 至少应当要看过FSN FZ UBW三个TV才能比较理解剧情
 
 
-
-
-
-
-
-
 -----
 
 ####  940045933  
 ##### 308#       发表于 2017-10-14 20:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37484606&amp;ptid=1359460" target="_blank">被子十三 发表于 2017-10-14 15:43</a>
@@ -6049,17 +3991,10 @@ Fate/stay nigh @Fate_SN_Anime
 很难，太偏粉丝向了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  東京急行  
 ##### 309#       发表于 2017-10-14 21:42
-
-
 
 
 樱超棒der！
@@ -6067,17 +4002,10 @@ Rider 超棒der！
 <img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  满月美夜子  
 ##### 310#       发表于 2017-10-15 12:13
-
-
 
 
 上映首日票房不错，可能有2亿日元左右
@@ -6096,7 +4024,6 @@ Rider 超棒der！
 *4　*31537　206978　1100　222　*44.1%　ナラタージュ
 
 *5　*26954　191155　1182　237　*75.7%　亜人
-
 
 
 作为对比，《刀剑神域》和《烟花》首个周六：
@@ -6124,26 +4051,15 @@ Rider 超棒der！
 *3　56000　248891　1114　245　*51.0%　怪盗グルーのミニオン大脱走
 
 
-
-
-
-
-
 -----
 
 ####  xzhlj0325  
 ##### 311#       发表于 2017-10-15 12:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37484606&amp;ptid=1359460" target="_blank">被子十三 发表于 2017-10-14 15:43</a>
 居然和repo所说没有什么过激镜头的话，是否引进应该就取决于这片子的票房了，如果票房和SAO差不多的话也 ...</blockquote>
 过激镜头过激镜头还是有的
-
-
-
-
-
 
 
 -----
@@ -6152,14 +4068,7 @@ Rider 超棒der！
 ##### 312#       发表于 2017-10-15 12:28
 
 
-
-
 剧情真是混乱啊……非原作党有前两部做基础都看得一愣一愣的
-
-
-
-
-
 
 
 -----
@@ -6168,14 +4077,8 @@ Rider 超棒der！
 ##### 313#         楼主| 发表于 2017-10-15 14:27
 
 
-
 <img src="http://wx4.sinaimg.cn/large/740ca5e5ly1fkiwvzunyfj21kw154u0y.jpg" referrerpolicy="no-referrer">
 <img src="http://wx3.sinaimg.cn/large/740ca5e5ly1fkiwvwmvlkj21kw28lqv9.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6184,16 +4087,9 @@ Rider 超棒der！
 ##### 314#       发表于 2017-10-15 14:56
 
 
-
-
 我要魔夜2!!
 
 蘑菇什么时候才能把这个吐出来~~~
-
-
-
-
-
 
 
 -----
@@ -6202,21 +4098,13 @@ Rider 超棒der！
 ##### 315#       发表于 2017-10-15 16:09
 
 
-
-
 说引进的是看到那个睿站coo微博那句话吧。。。我感觉这鱼吊的已经毫无看头了
-
-
-
-
-
 
 
 -----
 
 ####  临界点  
 ##### 316#       发表于 2017-10-15 16:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37485379&amp;ptid=1359460" target="_blank">xingenge 发表于 2017-10-14 17:13</a>
@@ -6227,23 +4115,16 @@ Fate/stay nigh @Fate_SN_Anime
 不用电池用电线实在是太LOW了......
 
 
-
-
-
-
-
 -----
 
 ####  mj_lm  
 ##### 317#       发表于 2017-10-15 17:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37493665&amp;ptid=1359460" target="_blank">临界点 发表于 2017-10-15 17:22</a>
 
 不用电池用电线实在是太LOW了......</blockquote>
 发言之前最好先好好查一下……
-
 
 
 ■電池
@@ -6253,16 +4134,10 @@ Fate/stay nigh @Fate_SN_Anime
 風王結界ユニット：LR44(ボタン電池)×3
 
 
-
-
-
-
-
 -----
 
 ####  阿虚家的三味  
 ##### 318#       发表于 2017-10-15 20:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37484377&amp;ptid=1359460" target="_blank">lancelot9 发表于 2017-10-14 15:13</a>
@@ -6271,16 +4146,10 @@ Fate/stay nigh @Fate_SN_Anime
 有意引进的话参照异形普罗米修斯，把那些开膛破肚的都砍了也许差不多，虫爷那些虫子可能没什么问题？
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 319#         楼主| 发表于 2017-10-15 22:16
-
 
 
 <img src="http://wx1.sinaimg.cn/large/740ca5e5ly1fkjahf6871j20xc0irnhy.jpg" referrerpolicy="no-referrer">
@@ -6289,32 +4158,19 @@ Fate/stay nigh @Fate_SN_Anime
 <img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  pri127  
 ##### 320#       发表于 2017-10-15 23:24
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">JC樱一本满足，我要更多的樱！
-
-
-
-
-
 
 
 -----
 
 ####  满月美夜子  
 ##### 321#       发表于 2017-10-16 05:36
-
-
 
 
 デイリー上映25分前販売数合計ランキング：20171015 
@@ -6356,16 +4212,10 @@ Fate/stay nigh @Fate_SN_Anime
 *3　70551　314245　1180　235　******　ＨｉＧＨ＆ＬＯＷ ＴＨＥ ＭＯＶＩＥ ２ ／ ＥＮＤ ＯＦ ＳＫＹ 
 
 
-
-
-
-
-
 -----
 
 ####  fantuanxiaoyi  
 ##### 322#       发表于 2017-10-16 09:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37484618&amp;ptid=1359460" target="_blank">seedees3 发表于 2017-10-14 15:45</a>
@@ -6376,27 +4226,15 @@ B站据说不久会引进，弹幕预计一大波这都是 ...</blockquote>
 想了想，HF还就是时辰的错，没毛病<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  激萌的萝莉  
 ##### 323#       发表于 2017-10-16 11:07
 
 
-
-
 那么，哪里能看的到呢
 
 — from Sony E6553, Android 7.1.1 of [S1 Next Goose](https://play.google.com/store/apps/details?id=me.ykrank.s1next) v1.3.2.0
-
-
-
-
-
 
 
 -----
@@ -6405,20 +4243,13 @@ B站据说不久会引进，弹幕预计一大波这都是 ...</blockquote>
 ##### 324#       发表于 2017-10-16 18:10
 
 
-
 [http://cho-animedia.jp/event/27207/](http://cho-animedia.jp/event/27207/)
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 325#         楼主| 发表于 2017-10-16 19:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37498019&amp;ptid=1359460" target="_blank">满月美夜子 发表于 2017-10-16 05:36</a>
@@ -6429,29 +4260,19 @@ B站据说不久会引进，弹幕预计一大波这都是 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/005.png" referrerpolicy="no-referrer">其实还算可以了
 
 
-
-
-
-
-
 -----
 
 ####  xzhlj0325  
 ##### 326#       发表于 2017-10-16 19:32
 
 
-
 <img src="https://i.imgur.com/PZOZKda.jpg" referrerpolicy="no-referrer">
 <img src="https://i.imgur.com/5NTtaue.jpg" referrerpolicy="no-referrer">自扫特典明信片
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -6461,20 +4282,13 @@ B站据说不久会引进，弹幕预计一大波这都是 ...</blockquote>
 | xingenge| + 1|感谢分享|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 327#         楼主| 发表于 2017-10-16 19:56
-
-
 
 
 動員24万8000人、興収4億1300万0000円、客単価1665円/人　Ｆａｔｅ／ｓｔａｙ ｎｉｇｈｔ Ｈｅａｖｅｎｓ Ｆｅｅｌ 第一章 
@@ -6487,17 +4301,10 @@ B站据说不久会引进，弹幕预计一大波这都是 ...</blockquote>
 動員27万1279人、興収4億0000万3600円、客単価1475円/人　劇場版 魔法少女まどか☆マギカ [新編] 叛逆の物語 
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 328#       发表于 2017-10-16 20:18
-
-
 
 
 都是勇士...
@@ -6508,24 +4315,13 @@ B站据说不久会引进，弹幕预计一大波这都是 ...</blockquote>
 <img src="http://wx4.sinaimg.cn/mw1024/41628a93ly1fkkcoycr67j20c809674k.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 329#         楼主| 发表于 2017-10-16 20:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">盗摄还打水印，公开说自己违反规定？厉害了
-
-
-
-
-
 
 
 -----
@@ -6534,23 +4330,16 @@ B站据说不久会引进，弹幕预计一大波这都是 ...</blockquote>
 ##### 330#       发表于 2017-10-16 20:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37504960&amp;ptid=1359460" target="_blank">xingenge 发表于 2017-10-16 20:23</a>
 
 盗摄还打水印，公开说自己违反规定？厉害了</blockquote>
 可能他们也只是转贴，我是从贴吧转的，N手贩子了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 331#         楼主| 发表于 2017-10-16 20:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37504973&amp;ptid=1359460" target="_blank">we89623 发表于 2017-10-16 20:25</a>
@@ -6561,16 +4350,10 @@ B站据说不久会引进，弹幕预计一大波这都是 ...</blockquote>
 另外看到盗摄，我记得盗摄在日本很严重啊，好像优势罚钱又是蹲牢的，这些人是不是不怕死
 
 
-
-
-
-
-
 -----
 
 ####  满月美夜子  
 ##### 332#       发表于 2017-10-17 01:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37504779&amp;ptid=1359460" target="_blank">xingenge 发表于 2017-10-16 19:56</a>
@@ -6579,16 +4362,10 @@ B站据说不久会引进，弹幕预计一大波这都是 ...</blockquote>
 不错的票房成绩
 
 
-
-
-
-
-
 -----
 
 ####  满月美夜子  
 ##### 333#       发表于 2017-10-17 07:51
-
 
 
  本帖最后由 满月美夜子 于 2017-10-17 07:52 编辑 
@@ -6596,7 +4373,6 @@ B站据说不久会引进，弹幕预计一大波这都是 ...</blockquote>
 興行通信社：
 
 今週の映画動員ランキングは『劇場版 Fate/stay night [Heaven’s Feel] I．presage flower』（アニプレックス）が、<strong>土日2日間で動員24万8000人、興収4億1300万円</strong>をあげ堂々の初登場1位を飾った。人気のPCゲーム「Fate/stay night」を3部作の劇場版としてアニメーション化した第1部。初日には新宿バルト9他3劇場で初日舞台挨拶が行われ、全国の劇場へライブビューイングも行われた。また、第1週目来場者特典の特製ポストカードのプレゼント、劇場内でゲームアプリを起動すると1週目〜4週目まで、週替わりでスマホに劇場来場者特典が送られるなどのキャンペーンが行われており、劇場1サイトあたりのアベレージも300万円を超える高稼働となっている。監督は「空の境界」シリーズの須藤友徳、声の出演は杉山紀彰、下屋則子、神谷浩史ほか。
-
 
 
 2017年度日本动画电影第一周周末两天票房TOP10（截至2017/10/15）
@@ -6622,17 +4398,10 @@ B站据说不久会引进，弹幕预计一大波这都是 ...</blockquote>
 *3.0亿 「烟花」东宝 （累计15.6亿）
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 334#         楼主| 发表于 2017-10-17 10:48
-
-
 
 
 劇場版「Fate／stay night [Heaven's Feel]」全国アニメイト・ゲーマーズ各店、ムービック通販でのフェア開催決定！！
@@ -6680,25 +4449,13 @@ B站据说不久会引进，弹幕预计一大波这都是 ...</blockquote>
 ※フェアの内容は諸般の事情により、変更・延期・中止となる場合がございます。
 
 
-
-
-
-
-
 -----
 
 ####  天涯夹心人  
 ##### 335#       发表于 2017-10-17 11:31
 
 
-
-
 纸片人真好看。
-
-
-
-
-
 
 
 -----
@@ -6707,22 +4464,15 @@ B站据说不久会引进，弹幕预计一大波这都是 ...</blockquote>
 ##### 336#       发表于 2017-10-17 15:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37508062&amp;ptid=1359460" target="_blank">xingenge 发表于 2017-10-17 10:48</a>
 劇場版「Fate／stay night [Heaven's Feel]」全国アニメイト・ゲーマーズ各店、ムービック通販でのフェア開 ...</blockquote>
 这个绘柄是不是很久以前就出现过了
-
-
-
-
-
 
 
 -----
 
 ####  消防  
 ##### 337#       发表于 2017-10-17 15:32
-
 
 
 <blockquote>城惠理子 发表于 2017-10-17 15:29
@@ -6733,33 +4483,20 @@ B站据说不久会引进，弹幕预计一大波这都是 ...</blockquote>
 UFO的服装品味还是那么一言难尽……
 
 
-
-
-
-
-
 -----
 
 ####  城惠理子  
 ##### 338#       发表于 2017-10-17 20:51
 
 
-
-
 看完了，感觉时代真的追上了樱，好多樱花妹大呼樱可爱。
 反而去买剧场的亚克力立牌的时候，樱早已完售，凛和棉被王都成了剩货
-
-
-
-
-
 
 
 -----
 
 ####  天涯夹心人  
 ##### 339#       发表于 2017-10-17 22:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37512269&amp;ptid=1359460" target="_blank">城惠理子 发表于 2017-10-17 20:51</a>
@@ -6770,16 +4507,10 @@ UFO的服装品味还是那么一言难尽……
 不得了，魔伊剧场版樱也是仅次麻婆的。
 
 
-
-
-
-
-
 -----
 
 ####  Cing  
 ##### 340#       发表于 2017-10-17 22:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37512269&amp;ptid=1359460" target="_blank">城惠理子 发表于 2017-10-17 20:51</a>
@@ -6790,16 +4521,10 @@ UFO的服装品味还是那么一言难尽……
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">然而雪山布妈微微一笑
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 341#       发表于 2017-10-17 22:46
-
 
 
  本帖最后由 we89623 于 2017-10-17 22:47 编辑 
@@ -6811,16 +4536,10 @@ UFO的服装品味还是那么一言难尽……
 正常，当年入坑的那帮小屁孩现在早都长大成人了，什么金发骑士大洋马， 傲娇地主双马尾，都不如跟大和抚子小学妹回家热炕头好啊。<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  城惠理子  
 ##### 342#       发表于 2017-10-17 23:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37512963&amp;ptid=1359460" target="_blank">Cing 发表于 2017-10-17 22:41</a>
@@ -6828,16 +4547,10 @@ UFO的服装品味还是那么一言难尽……
 倒计时图都是社长画的，卡面反而。。<img src="https://static.saraba1st.com/image/smiley/carton2017/077.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  晨霜攀黛瓦  
 ##### 343#       发表于 2017-10-17 23:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37504931&amp;ptid=1359460" target="_blank">we89623 发表于 2017-10-16 20:18</a>
@@ -6847,32 +4560,19 @@ UFO的服装品味还是那么一言难尽……
 —— 来自 HUAWEI STF-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.0
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 344#         楼主| 发表于 2017-10-18 13:22
 
 
-
-
 命运守护之夜（还是长夜） 如果有 今年肯定见不到吧 烟花好像也要年底了
-
-
-
-
-
 
 
 -----
 
 ####  percivale  
 ##### 345#       发表于 2017-10-18 14:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37479999&amp;ptid=1359460" target="_blank">天涯夹心人 发表于 2017-10-14 00:12</a>
@@ -6885,32 +4585,19 @@ UFO的服装品味还是那么一言难尽……
 砍伊莉雅线的时候又没有魔伊……
 
 
-
-
-
-
-
 -----
 
 ####  かおる  
 ##### 346#       发表于 2017-10-18 14:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">前天在难波那里的东宝影院看了，非常期待第二章
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 347#         楼主| 发表于 2017-10-18 17:15
-
-
 
 
 【7週連続来場者特典情報】
@@ -6922,32 +4609,20 @@ UFO的服装品味还是那么一言难尽……
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fkmijd4ke1j20m80cids8.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 348#         楼主| 发表于 2017-10-18 21:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有中文宣传片，国内某宣传公司制作，反正今年没有，明年等着吧
 [https://www.bilibili.com/video/av15507378](https://www.bilibili.com/video/av15507378)
-
-
-
-
-
 
 
 -----
 
 ####  940045933  
 ##### 349#       发表于 2017-10-18 21:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37522261&amp;ptid=1359460" target="_blank">xingenge 发表于 2017-10-18 21:31</a>
@@ -6958,25 +4633,13 @@ https://www.bilibili.com/video/av1 ...</blockquote>
 估计还是声之形那个宣发公司<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  940045933  
 ##### 350#       发表于 2017-10-18 21:47
 
 
-
-
 在未来，米泛娱乐打算继续接洽像京都动画、ufotable、Production I.G.等日本知名的动漫公司，更多地参与这些二次元头部内容公司进入中国的过程<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6985,16 +4648,10 @@ https://www.bilibili.com/video/av1 ...</blockquote>
 ##### 351#         楼主| 发表于 2017-10-18 21:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37522344&amp;ptid=1359460" target="_blank">940045933 发表于 2017-10-18 21:44</a>
 
 估计还是声之形那个宣发公司</blockquote>
 现在都是多宣发公司的模式
-
-
-
-
-
 
 
 -----
@@ -7003,16 +4660,9 @@ https://www.bilibili.com/video/av1 ...</blockquote>
 ##### 352#       发表于 2017-10-19 00:24
 
 
-
-
 这上国内院线不赔得妈都不认识？认知度还高点的SAO都这样了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -7021,23 +4671,15 @@ https://www.bilibili.com/video/av1 ...</blockquote>
 ##### 353#         楼主| 发表于 2017-10-19 00:32
 
 
-
-
 译名还要群众帮忙选，估计是放出来看看热度的吧
 
 如果OK的话，送选就已经定好了
-
-
-
-
-
 
 
 -----
 
 ####  lxl196201  
 ##### 354#       发表于 2017-10-19 01:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37523178&amp;ptid=1359460" target="_blank">virusking 发表于 2017-10-19 00:24</a>
@@ -7047,16 +4689,10 @@ https://www.bilibili.com/video/av1 ...</blockquote>
 稳赚不赔的生意为什么不做，烟花当初携你的名字二代的声望（当时正片没出），光线花了三百万刀就拿了引进的片源，像sao，hf这种估计一千万不到就拿了，而且这些片宣发更是便宜，只要票房有个几千万就能赚，为什么不做这生意
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 355#       发表于 2017-10-19 02:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37523178&amp;ptid=1359460" target="_blank">virusking 发表于 2017-10-19 00:24</a>
@@ -7068,27 +4704,15 @@ https://www.bilibili.com/video/av1 ...</blockquote>
 据说日本买断式动画引进费贼便宜
 
 
-
-
-
-
-
 -----
 
 ####  真实之影  
 ##### 356#       发表于 2017-10-19 10:14
 
 
-
-
 感觉国内上映要么三合一要么剪成上下两部吧
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -7097,22 +4721,13 @@ https://www.bilibili.com/video/av1 ...</blockquote>
 ##### 357#       发表于 2017-10-19 11:20
 
 
-
-
 宛若天堂这翻译还真有年代感
-
-
-
-
-
 
 
 -----
 
 ####  海域生还者  
 ##### 358#       发表于 2017-10-19 11:42
-
-
 
 
 最新的预告最后变成
@@ -7122,16 +4737,10 @@ https://www.bilibili.com/video/av1 ...</blockquote>
 看来是打算三部分开引进？
 
 
-
-
-
-
-
 -----
 
 ####  ReginaldMorgan  
 ##### 359#       发表于 2017-10-19 12:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37484169&amp;ptid=1359460" target="_blank">S.H. 发表于 2017-10-14 14:43</a>
@@ -7141,16 +4750,10 @@ https://www.bilibili.com/video/av1 ...</blockquote>
 没做公园伊莉雅剧情，那怕不是钦定樱之梦了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 360#         楼主| 发表于 2017-10-19 12:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37525785&amp;ptid=1359460" target="_blank">海域生还者 发表于 2017-10-19 11:42</a>
@@ -7163,16 +4766,10 @@ https://www.bilibili.com/video/av1 ...</blockquote>
 也有可能只搞一部
 
 
-
-
-
-
-
 -----
 
 ####  被子十三  
 ##### 361#       发表于 2017-10-19 13:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37523178&amp;ptid=1359460" target="_blank">virusking 发表于 2017-10-19 00:24</a>
@@ -7182,16 +4779,10 @@ https://www.bilibili.com/video/av1 ...</blockquote>
 SAO在日本也就30多亿票房，换过来人民币可能还不到两亿，国内五千万票房已经相当不错了
 
 
-
-
-
-
-
 -----
 
 ####  天涯夹心人  
 ##### 362#       发表于 2017-10-19 13:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37526248&amp;ptid=1359460" target="_blank">xingenge 发表于 2017-10-19 12:45</a>
@@ -7200,16 +4791,10 @@ SAO在日本也就30多亿票房，换过来人民币可能还不到两亿，国
 那个b站的视频不见了？
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 363#         楼主| 发表于 2017-10-19 13:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37526550&amp;ptid=1359460" target="_blank">天涯夹心人 发表于 2017-10-19 13:25</a>
@@ -7218,24 +4803,13 @@ SAO在日本也就30多亿票房，换过来人民币可能还不到两亿，国
 可以看啊 
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 364#         楼主| 发表于 2017-10-19 18:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">怂了 下架了 还没版权 也谈不上变更 这破事太傻了 不想管了
-
-
-
-
-
 
 
 -----
@@ -7244,14 +4818,7 @@ SAO在日本也就30多亿票房，换过来人民币可能还不到两亿，国
 ##### 365#         楼主| 发表于 2017-10-19 18:11
 
 
-
-
 从昨天到今天的各种言行来看 真的觉得傻 还不如等B 笑死 
-
-
-
-
-
 
 
 -----
@@ -7260,16 +4827,10 @@ SAO在日本也就30多亿票房，换过来人民币可能还不到两亿，国
 ##### 366#       发表于 2017-10-19 18:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37526008&amp;ptid=1359460" target="_blank">ReginaldMorgan 发表于 2017-10-19 12:10</a>
 
 没做公园伊莉雅剧情，那怕不是钦定樱之梦了</blockquote>
 场刊里据说写着伊莉雅的剧情都放在第2章了。现在我只担心第2章2小时会不会赶成狗……
-
-
-
-
-
 
 
 -----
@@ -7278,14 +4839,7 @@ SAO在日本也就30多亿票房，换过来人民币可能还不到两亿，国
 ##### 367#       发表于 2017-10-19 19:00
 
 
-
-
 真上映了有10万月厨 稳赚不赔啊
-
-
-
-
-
 
 
 -----
@@ -7294,16 +4848,10 @@ SAO在日本也就30多亿票房，换过来人民币可能还不到两亿，国
 ##### 368#       发表于 2017-10-19 20:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37528562&amp;ptid=1359460" target="_blank">xingenge 发表于 2017-10-19 18:06</a>
 
 怂了 下架了 还没版权 也谈不上变更 这破事太傻了 不想管了</blockquote>
 那个视频一直处于一会儿能看一会儿不能看的状态，下午看了眼是彻底gg了。
-
-
-
-
-
 
 
 -----
@@ -7312,23 +4860,16 @@ SAO在日本也就30多亿票房，换过来人民币可能还不到两亿，国
 ##### 369#         楼主| 发表于 2017-10-19 21:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37529379&amp;ptid=1359460" target="_blank">天涯夹心人 发表于 2017-10-19 20:20</a>
 
 那个视频一直处于一会儿能看一会儿不能看的状态，下午看了眼是彻底gg了。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">昨天问了一下是说要预热 这样就算了吧 一直挂着也无所谓 今天自己自曝说版权方可能变更（这意思就是说随便做一个丢出来耍人吧）然后甩锅给A爹和新版权方
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 370#         楼主| 发表于 2017-10-20 17:15
-
 
 
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fkoto64lrtj20go09etbj.jpg" referrerpolicy="no-referrer">
@@ -7343,25 +4884,13 @@ SAO在日本也就30多亿票房，换过来人民币可能还不到两亿，国
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fkotobc66lj20go09ewhw.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 371#       发表于 2017-10-20 18:12
 
 
-
-
 赤主仆！<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7370,14 +4899,7 @@ SAO在日本也就30多亿票房，换过来人民币可能还不到两亿，国
 ##### 372#       发表于 2017-10-23 16:23
 
 
-
-
 请问看过的大大，h scene是怎么处理的？
-
-
-
-
-
 
 
 -----
@@ -7386,15 +4908,9 @@ SAO在日本也就30多亿票房，换过来人民币可能还不到两亿，国
 ##### 373#       发表于 2017-10-23 16:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37557262&amp;ptid=1359460" target="_blank">frozenblood 发表于 2017-10-23 16:23</a>
 请问看过的大大，h scene是怎么处理的？</blockquote>
 并没有
-
-
-
-
-
 
 
 -----
@@ -7403,23 +4919,16 @@ SAO在日本也就30多亿票房，换过来人民币可能还不到两亿，国
 ##### 374#       发表于 2017-10-23 22:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37557512&amp;ptid=1359460" target="_blank">xzhlj0325 发表于 2017-10-23 16:54</a>
 
 并没有</blockquote>
 肯定是没有，不过是以略过的方式还是以另一种形式（比如ubw补魔变成刻印赠与、全年龄版樱被吸血等）？
 
 
-
-
-
-
-
 -----
 
 ####  xzhlj0325  
 ##### 375#       发表于 2017-10-23 23:22
-
 
 
  本帖最后由 xzhlj0325 于 2017-10-24 07:30 编辑 
@@ -7429,17 +4938,10 @@ SAO在日本也就30多亿票房，换过来人民币可能还不到两亿，国
 还没放到。。。。。大概
 
 
-
-
-
-
-
 -----
 
 ####  城惠理子  
 ##### 376#       发表于 2017-10-23 23:43
-
-
 
 
 感觉hf已经全忘完了
@@ -7449,16 +4951,10 @@ SAO在日本也就30多亿票房，换过来人民币可能还不到两亿，国
 哈桑反而懂得利用
 
 
-
-
-
-
-
 -----
 
 ####  frozenblood  
 ##### 377#       发表于 2017-10-23 23:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37560303&amp;ptid=1359460" target="_blank">xzhlj0325 发表于 2017-10-23 23:22</a>
@@ -7467,16 +4963,10 @@ SAO在日本也就30多亿票房，换过来人民币可能还不到两亿，国
 明白了，看来会集中在第二部~
 
 
-
-
-
-
-
 -----
 
 ####  東京急行  
 ##### 378#       发表于 2017-10-24 02:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37560461&amp;ptid=1359460" target="_blank">城惠理子 发表于 2017-10-23 23:43</a>
@@ -7487,17 +4977,10 @@ SAO在日本也就30多亿票房，换过来人民币可能还不到两亿，国
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  满月美夜子  
 ##### 379#       发表于 2017-10-24 07:59
-
-
 
 
 上映第2周，10月21-22日位列日本周末电影票房第4位。周末两天票房1.55亿日元，累计7.68亿。
@@ -7527,25 +5010,13 @@ SAO在日本也就30多亿票房，换过来人民币可能还不到两亿，国
 10. **(数値未公表)**　****9183万7100円　アトミック・ブロンド 
 
 
-
-
-
-
-
 -----
 
 ####  银河星爆  
 ##### 380#       发表于 2017-10-24 08:08
 
 
-
-
 碟片什么时候发售呢？
-
-
-
-
-
 
 
 -----
@@ -7554,16 +5025,10 @@ SAO在日本也就30多亿票房，换过来人民币可能还不到两亿，国
 ##### 381#       发表于 2017-10-24 08:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37561385&amp;ptid=1359460" target="_blank">银河星爆 发表于 2017-10-24 08:08</a>
 
 碟片什么时候发售呢？</blockquote>
 惯例的话半年后吧，三章结束之后再搞个BOX
-
-
-
-
-
 
 
 -----
@@ -7572,22 +5037,14 @@ SAO在日本也就30多亿票房，换过来人民币可能还不到两亿，国
 ##### 382#       发表于 2017-10-24 10:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37561032&amp;ptid=1359460" target="_blank">東京急行 发表于 2017-10-24 02:47</a></blockquote>
 啊，谢谢，想起来了
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 383#         楼主| 发表于 2017-10-25 13:40
-
-
 
 
 10月14日（土）より全国にて公開となった劇場版『Fate/stay night[Heaven’s Feel]I.presage flower』ですが、7週連続劇場来場者特典の第3週目が公開となりました。10月28日からの第3週目はufotable描き下ろしイラストミニ色紙をプレゼントします。
@@ -7614,16 +5071,10 @@ ufotable描き下ろしイラストミニ色紙（3種ランダム）
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fkufrqo3j2j20dw08mjse.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  UMINEKO9  
 ##### 384#       发表于 2017-10-25 20:44
-
 
 
 <blockquote>frozenblood 发表于 2017-10-23 22:44
@@ -7631,16 +5082,10 @@ ufotable描き下ろしイラストミニ色紙（3種ランダム）
 如果指的是跟梦魔凛啪啪啪的话，大概就士狼刚进进教室就看见发春的凛把他推倒，然后好像马上给了个凛屁股的特写后士狼就惊醒
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 385#         楼主| 发表于 2017-10-26 17:33
-
 
 
 [http://primaniacs.com/fragrance_fatesn_hf/index.html](http://primaniacs.com/fragrance_fatesn_hf/index.html)
@@ -7659,16 +5104,10 @@ ufotable描き下ろしイラストミニ色紙（3種ランダム）
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fkvqznc3e9j20eh0900tn.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 386#       发表于 2017-10-26 17:54
-
 
 
  本帖最后由 消防 于 2017-10-26 17:57 编辑 
@@ -7686,16 +5125,10 @@ http://primaniacs.com/fragrance_fatesn_hf/index.html
 想起RE调香室出的那个老醋味的吉尔伽美什和兰斯洛特香水了（虽然并不是fate）
 
 
-
-
-
-
-
 -----
 
 ####  frozenblood  
 ##### 387#       发表于 2017-10-27 13:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37576478&amp;ptid=1359460" target="_blank">UMINEKO9 发表于 2017-10-25 20:44</a>
@@ -7704,17 +5137,10 @@ http://primaniacs.com/fragrance_fatesn_hf/index.html
 可能BD见吧<img src="https://static.saraba1st.com/image/smiley/normal/026.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  满月美夜子  
 ##### 388#       发表于 2017-11-1 11:01
-
-
 
 
 上映第三周，10月28-29日位列日本周末电影票房第6位，周末两天1.08亿、累计9.74亿日元。
@@ -7755,16 +5181,10 @@ http://primaniacs.com/fragrance_fatesn_hf/index.html
 **5.1亿 07/01 「面包超人 ブルブル寻宝大冒险」东京Theatres 
 
 
-
-
-
-
-
 -----
 
 ####  old.just  
 ##### 389#       发表于 2017-11-1 11:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37627253&amp;ptid=1359460" target="_blank">满月美夜子 发表于 2017-11-1 11:01</a>
@@ -7776,26 +5196,14 @@ http://primaniacs.com/fragrance_fatesn_hf/index.html
 这数据看起来太杂鱼了啊，说好的月厨千千万呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  被子十三  
 ##### 390#       发表于 2017-11-1 12:51
 
 
-
-
 这票房看上去凉了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 不过考虑到是厨向作品，群众基础又不算太强，这个票房也算意料之中
-
-
-
-
-
 
 
 -----
@@ -7804,24 +5212,16 @@ http://primaniacs.com/fragrance_fatesn_hf/index.html
 ##### 391#       发表于 2017-11-1 12:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37627352&amp;ptid=1359460" target="_blank">old.just 发表于 2017-11-1 11:11</a>
 
 这数据看起来太杂鱼了啊，说好的月厨千千万呢</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">十年前的剧本 还是1/3
 
 
-
-
-
-
-
 -----
 
 ####  银河星爆  
 ##### 392#       发表于 2017-11-1 13:19
-
-
 
 
 我对日本的票房了解不多，但第10名不是还行吗，以前UBW电影票房是多少？
@@ -7833,17 +5233,10 @@ http://primaniacs.com/fragrance_fatesn_hf/index.html
 票房实在不如意的话，还可以引进中国，天朝月厨数量不少的
 
 
-
-
-
-
-
-
 -----
 
 ####  任天索尼子  
 ##### 393#       发表于 2017-11-1 13:20
-
 
 
 <blockquote>银河星爆 发表于 2017-11-1 13:19
@@ -7855,33 +5248,19 @@ http://primaniacs.com/fragrance_fatesn_hf/index.html
 ubw好像才两三亿 不过馆数也少
 
 
-
-
-
-
-
 -----
 
 ####  天涯夹心人  
 ##### 394#       发表于 2017-11-1 13:28
 
 
-
-
 同不懂，大致上用下面游戏人生的数据来看，感觉还行。
-
-
-
-
-
 
 
 -----
 
 ####  940045933  
 ##### 395#       发表于 2017-11-1 13:41
-
-
 
 
 LL:
@@ -7909,25 +5288,13 @@ HF
 4.1→7.7→9.7
 
 
-
-
-
-
-
 -----
 
 ####  yukinosarai  
 ##### 396#       发表于 2017-11-1 13:52
 
 
-
-
 比不过刀剑了，最后应该和烟花差不多。但作为一个宅向电影其实也不错了，毕竟上映馆数不算多
-
-
-
-
-
 
 
 -----
@@ -7936,21 +5303,13 @@ HF
 ##### 397#       发表于 2017-11-1 13:52
 
 
-
-
 目前票房走势最接近的是轻音
-
-
-
-
-
 
 
 -----
 
 ####  被子十三  
 ##### 398#       发表于 2017-11-1 14:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37628652&amp;ptid=1359460" target="_blank">940045933 发表于 2017-11-1 13:41</a>
@@ -7962,16 +5321,10 @@ LL:
 惊了，日本的动画电影上映时间这么长的吗？看了这基本都上映两三个月…在中国感觉很难想象啊
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 399#         楼主| 发表于 2017-11-1 15:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37629116&amp;ptid=1359460" target="_blank">被子十三 发表于 2017-11-1 14:35</a>
@@ -7980,16 +5333,10 @@ LL:
 好的话就能一直续
 
 
-
-
-
-
-
 -----
 
 ####  940045933  
 ##### 400#       发表于 2017-11-1 15:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37629116&amp;ptid=1359460" target="_blank">被子十三 发表于 2017-11-1 14:35</a>
@@ -7998,17 +5345,10 @@ LL:
 日本又没密钥，电影院想放就能放，少战现在还在上映
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 401#         楼主| 发表于 2017-11-1 17:14
-
-
 
 
 【7週連続来場者特典情報】
@@ -8020,16 +5360,10 @@ LL:
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fl2p2f75u3j20xc0j277b.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  UMINEKO9  
 ##### 402#       发表于 2017-11-2 02:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37627253&amp;ptid=1359460" target="_blank">满月美夜子 发表于 2017-11-1 11:01</a>
@@ -8046,21 +5380,13 @@ LL:
 才半天就突然10亿？<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  UMINEKO9  
 ##### 403#       发表于 2017-11-2 02:40
 
 
-
  本帖最后由 UMINEKO9 于 2017-11-2 02:42 编辑 
-
 
 
 还有楼上就别叫苦了，真当10亿对动画电影很少吗，这已经算卖座了....
@@ -8072,17 +5398,10 @@ LL:
 更别说HF这粉丝向程度某种程度比隔壁鲁鲁修和SAO都高很多，士郎如何被卷入战争还有首战的几个事件都删减严重，不是月厨或者法特厨怕是根本不知道发生了什么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  满月美夜子  
 ##### 404#       发表于 2017-11-2 06:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37627352&amp;ptid=1359460" target="_blank">old.just 发表于 2017-11-1 11:11</a>
@@ -8092,17 +5411,10 @@ LL:
 <img src="http://ww2.sinaimg.cn/large/b8f8cfd8gw1faotjt4dt4j20ul0mana9.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dunkel_liebe  
 ##### 405#       发表于 2017-11-2 08:05
-
-
 
 
 票房对的起宣传了，况且现在天天卖到断货的各种合作谷子才是骗钱重点啊……
@@ -8113,17 +5425,10 @@ LL:
 而且A+的海外上映，其他作品基本比不了吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  阿瓦龙  
 ##### 406#       发表于 2017-11-2 22:39
-
-
 
 
 前天晚上新宿看的。
@@ -8136,16 +5441,10 @@ LL:
  枪vs杀 高速路一段音效和cut是够多，但实际略为浪费。
 
 
-
-
-
-
-
 -----
 
 ####  alex_chow  
 ##### 407#       发表于 2017-11-3 09:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37629116&amp;ptid=1359460" target="_blank">被子十三 发表于 2017-11-1 14:35</a>
@@ -8154,36 +5453,22 @@ LL:
 少战现在还没下
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 408#       发表于 2017-11-3 18:03
 
 
-
-
 B站竟然解锁了UBW第一季的弹幕，然后弹幕质量就是... [https://tieba.baidu.com/p/5407759978](https://tieba.baidu.com/p/5407759978)
 
 
-
 只能说这帮小屁孩过了几年还没长大..
-
-
-
-
-
 
 
 -----
 
 ####  Illidan  
 ##### 409#       发表于 2017-11-4 14:02
-
 
 
  本帖最后由 Illidan 于 2017-11-4 14:06 编辑 
@@ -8197,25 +5482,13 @@ B站竟然解锁了UBW第一季的弹幕，然后弹幕质量就是... [https://
 或许是我老了有点冷漠，播放现场的观众非常热情，基本每个角色出场都会鼓掌和欢呼，但是我也只是笑笑，想起了10多年前痴迷fate的时候。
 
 
-
-
-
-
-
 -----
 
 ####  xwr  
 ##### 410#       发表于 2017-11-4 14:16
 
 
-
-
 北美首映，感觉还可以，还是值得一看的。
-
-
-
-
-
 
 
 -----
@@ -8224,14 +5497,7 @@ B站竟然解锁了UBW第一季的弹幕，然后弹幕质量就是... [https://
 ##### 411#       发表于 2017-11-4 14:49
 
 
-
-
 一会去看hf<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8240,16 +5506,9 @@ B站竟然解锁了UBW第一季的弹幕，然后弹幕质量就是... [https://
 ##### 412#       发表于 2017-11-4 17:20
 
 
-
-
 同北美首映归来，感觉这个监督怎么那么喜欢用空镜头，文戏拍的太缓了。
 
 — from motorola Moto G (5) Plus, Android 7.0 of [S1 Next Goose](https://play.google.com/store/apps/details?id=me.ykrank.s1next) v1.3.2.1-play
-
-
-
-
-
 
 
 -----
@@ -8258,14 +5517,7 @@ B站竟然解锁了UBW第一季的弹幕，然后弹幕质量就是... [https://
 ##### 413#       发表于 2017-11-4 17:50
 
 
-
-
 特典不行没动力二刷
-
-
-
-
-
 
 
 -----
@@ -8274,23 +5526,15 @@ B站竟然解锁了UBW第一季的弹幕，然后弹幕质量就是... [https://
 ##### 414#       发表于 2017-11-4 19:04
 
 
-
-
 看完感觉二爷在声优表里排到第三并不是很过分233
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  aptx8285144  
 ##### 415#       发表于 2017-11-4 19:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37651224&amp;ptid=1359460" target="_blank">Illidan 发表于 2017-11-4 14:02</a>
@@ -8302,27 +5546,15 @@ B站竟然解锁了UBW第一季的弹幕，然后弹幕质量就是... [https://
 ufo的文戏在有些温馨方面还是可以的,ubw决战前士郎和呆毛的交谈时候的bgm，伦敦篇时候的一些温馨片断<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">，当然如果是逆境的话就不好说了
 
 
-
-
-
-
-
 -----
 
 ####  满月美夜子  
 ##### 416#       发表于 2017-11-7 08:16
 
 
-
-
 11月4-5日位列日本周末电影票房第9位，周末两天票房7664万日元，累计11.5亿。
 
 目前在2017年度上映的日本动画电影中暂列第9位，在深夜动画剧场版历史上则是第6位（前5分别是：LoveLive!、刀剑神域、少女与战车、魔法少女小圆、轻音）。
-
-
-
-
-
 
 
 -----
@@ -8331,13 +5563,7 @@ ufo的文戏在有些温馨方面还是可以的,ubw决战前士郎和呆毛的�
 ##### 417#         楼主| 发表于 2017-11-7 17:41
 
 
-
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fl9nszqgf3j207g0b73ys.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8346,16 +5572,9 @@ ufo的文戏在有些温馨方面还是可以的,ubw决战前士郎和呆毛的�
 ##### 418#       发表于 2017-11-7 18:02
 
 
-
-
 磨到15亿有希望吗
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -8364,21 +5583,13 @@ ufo的文戏在有些温馨方面还是可以的,ubw决战前士郎和呆毛的�
 ##### 419#         楼主| 发表于 2017-11-7 22:55
 
 
-
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fl9wuhevp5j20lc0sgwgf.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 420#         楼主| 发表于 2017-11-11 17:13
-
-
 
 
 ―Fate/stay night[Heaven's Feel]コラボカフェ新商品―
@@ -8393,17 +5604,10 @@ ufo的文戏在有些温馨方面还是可以的,ubw决战前士郎和呆毛的�
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fle9fy8zxhj20ks0ixn4l.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 421#         楼主| 发表于 2017-11-11 19:17
-
-
 
 
 来場者特典 6週目
@@ -8431,7 +5635,6 @@ ufo的文戏在有些温馨方面还是可以的,ubw决战前士郎和呆毛的�
 ※種類をお選び頂く事は出来ません。
 
 ※傷や汚れがあるものがございますが、返品・交換は一切お受けできません。ご了承下さい。
-
 
 
 来場者特典 7週目
@@ -8477,26 +5680,14 @@ ufo的文戏在有些温馨方面还是可以的,ubw决战前士郎和呆毛的�
 ※傷や汚れがあるものがございますが、返品・交換は一切お受けできません。ご了承下さい。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 422#         楼主| 发表于 2017-11-12 18:44
 
 
-
-
 hf
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1flfhkby110j21kw10jx6p.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8505,16 +5696,9 @@ hf
 ##### 423#       发表于 2017-11-12 20:05
 
 
-
-
 周五晚上去看了，看完就记得麻婆豆腐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 而且还差点没赶上终电<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8523,16 +5707,9 @@ hf
 ##### 424#       发表于 2017-11-12 20:17
 
 
-
-
 过两天准备去二刷，存了一圈高清剧照到相册感觉都快把整部电影透完了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -8541,13 +5718,7 @@ hf
 ##### 425#         楼主| 发表于 2017-11-14 00:10
 
 
-
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1flgwrg1gqnj21kw14a1l0.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8556,14 +5727,7 @@ hf
 ##### 426#       发表于 2017-11-14 09:08
 
 
-
-
 11月11-12日位列日本周末电影票房第11位，周末两天票房4292万日元，累计12.3亿
-
-
-
-
-
 
 
 -----
@@ -8572,14 +5736,7 @@ hf
 ##### 427#       发表于 2017-11-14 21:01
 
 
-
-
 卧槽！！土澳16号上映，我这偏远山区都有，要不要去啊
-
-
-
-
-
 
 
 -----
@@ -8588,17 +5745,10 @@ hf
 ##### 428#       发表于 2017-11-15 19:35
 
 
-
-
 載譽回歸！J-toons Festival 2017《日本動画祭》將於2017年12月9日起在MCL德福戲院舉行，精彩節目包括：根據日本經典科幻Cyber-Punk漫畫製作的《BLAME!》（杜比全景聲）、經典大熱遊戲劇場版《fate/ stay night Heaven’s Feel I. Presage Flower》、《攻殼機動隊S.A.C.》監督神山健治最新作品《午睡公主～不為人知的故事～》，以及經典大熱作品包括：《福音戰士新劇場版》、動畫監督新海誠及細田守作品等等。門票近日公開發售，節目詳情請留意新映影片Facebook Page及MCL網頁公布。
 
 
 所以这是HK有了的意思么？
-
-
-
-
-
 
 
 -----
@@ -8607,21 +5757,13 @@ hf
 ##### 429#       发表于 2017-11-19 13:31
 
 
-
-
 羡慕嫉妒恨
-
-
-
-
-
 
 
 -----
 
 ####  pzk  
 ##### 430#       发表于 2017-11-19 14:09
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是UFO的味，俩慢镜头一上全场都笑翻了，太尬了
@@ -8635,16 +5777,10 @@ hf
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">优点也是有的，rider的肉体太赞噜
 
 
-
-
-
-
-
 -----
 
 ####  6x6z6w  
 ##### 431#       发表于 2017-11-19 14:18
-
 
 
  本帖最后由 6x6z6w 于 2017-11-19 14:20 编辑 
@@ -8655,16 +5791,10 @@ hf
 看到R姐吊打哈桑一秒出戏到FGO，说好的职介克制呢<img src="https://static.saraba1st.com/image/smiley/face2017/175.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  6x6z6w  
 ##### 432#       发表于 2017-11-19 14:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37774579&amp;ptid=1359460" target="_blank">pzk 发表于 2017-11-19 14:09</a>
@@ -8675,26 +5805,14 @@ hf
 狗哥是因为麻婆用了令咒叫他去摸哈桑的底，没打算了结对方，结果被黑影反杀了<img src="https://static.saraba1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer">正常情况下稳赢
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 433#         楼主| 发表于 2017-11-21 17:10
 
 
-
-
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1flptjv0a0dj20dn0xcqop.jpg" referrerpolicy="no-referrer">
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1flptkbjun8j20xc0kb17m.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8703,14 +5821,7 @@ hf
 ##### 434#       发表于 2017-11-21 18:19
 
 
-
-
 这什么？？？？
-
-
-
-
-
 
 
 -----
@@ -8719,16 +5830,10 @@ hf
 ##### 435#       发表于 2017-11-21 18:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37793286&amp;ptid=1359460" target="_blank">bgmilk 发表于 2017-11-21 18:19</a>
 
 这什么？？？？</blockquote>
 土狼的梦，别激动
-
-
-
-
-
 
 
 -----
@@ -8737,13 +5842,7 @@ hf
 ##### 436#         楼主| 发表于 2017-11-21 21:43
 
 
-
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1flq1gbkpsfj20kc1bf7kv.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8752,15 +5851,8 @@ hf
 ##### 437#         楼主| 发表于 2017-11-23 13:11
 
 
-
-
 fatehf
 <img src="http://wx1.sinaimg.cn/large/740ca5e5ly1flrxujlh2vj21kw28hx6q.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8769,16 +5861,9 @@ fatehf
 ##### 438#       发表于 2017-11-23 14:10
 
 
-
-
 本土加海外合计20亿票房应该还是有的吧
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -8787,17 +5872,10 @@ fatehf
 ##### 439#         楼主| 发表于 2017-11-23 23:19
 
 
-
-
 堪比君名消防员
 
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1flsffylzckj20p00xc4qp.jpg" referrerpolicy="no-referrer">
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1flsfg2wwgvj20k30iuais.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8806,24 +5884,16 @@ fatehf
 ##### 440#       发表于 2017-11-24 13:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37814162&amp;ptid=1359460" target="_blank">xingenge 发表于 2017-11-23 23:19</a>
 
 堪比君名消防员</blockquote>
 233
 
 
-
-
-
-
-
 -----
 
 ####  满月美夜子  
 ##### 441#       发表于 2017-11-28 08:36
-
-
 
 
 11月25-26日位列日本周末电影票房第9位，周末两天票房3519.5万日元，累计13.5亿
@@ -8861,17 +5931,10 @@ fatehf
 **5.6亿 06/17 「魔法科高校的劣等生 呼唤星星的少女」Aniplex
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 442#         楼主| 发表于 2017-11-29 17:10
-
-
 
 
 動員数90万人超、興行収入13.5億円超の大ヒットを記録している劇場版アニメ『Fate/stay night [Heaven's Feel] Ⅰ.presage flower』。本作が2017年12月16日（土）より、全国30館で新たに上映されることが決まった。さらに新規上映劇場および大ヒットを記念した新特典も決定。須藤友徳監督描き下ろしイラストを使用したメモリアルポートレートが、2017年12月9日（土）時点で上映中、またはそれ以降に上映開始となる劇場で配布される。
@@ -8889,26 +5952,15 @@ fatehf
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1flz2ipv49cj20tr0xcwmx.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 443#       发表于 2017-11-29 18:14
 
 
-
 <blockquote>xingenge 发表于 2017-11-29 17:10
 動員数90万人超、興行収入13.5億円超の大ヒットを記録している劇場版アニメ『Fate/stay night [Heaven's Fe ...</blockquote>
 一看樱的脸歪没边在想这又谁画的，一看右下须藤友徳……UFO就没人才了吗
-
-
-
-
-
 
 
 -----
@@ -8917,16 +5969,9 @@ fatehf
 ##### 444#         楼主| 发表于 2017-12-1 00:52
 
 
-
-
 fsnhf
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fm0lg4redcj21kw1081kx.jpg" referrerpolicy="no-referrer">
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fm0lgfgwdfj21kw2f4e82.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8935,22 +5980,13 @@ fsnhf
 ##### 445#       发表于 2017-12-5 09:25
 
 
-
-
 12月2-3日周末两天票房2279.4万日元，累计13.9亿
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 446#         楼主| 发表于 2017-12-6 18:48
-
-
 
 
 劇場版「Fate/stay night[HF]」クリスマス限定イベント
@@ -8963,17 +5999,10 @@ fsnhf
 <img src="http://wx4.sinaimg.cn/large/740ca5e5ly1fm78onwipyj20qo0f2gq4.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  osk666  
 ##### 447#       发表于 2018-1-14 18:30
-
-
 
 
 明天这边有，不过朋友都不想去看。
@@ -8987,33 +6016,20 @@ fsnhf
 总的来说，推荐非厨去看吗？
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 448#         楼主| 发表于 2018-1-25 23:04
 
 
-
-
 「Fate/stay night [Heaven's Feel] Ⅰ.presage flower」BD&amp;DVD 5月9日发售决定
 <img src="http://wx3.sinaimg.cn/large/740ca5e5ly1fnt91793akj20sy17lqa9.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 449#         楼主| 发表于 2018-1-25 23:23
-
 
 
 [http://www.fate-sn.com/bddvd/](http://www.fate-sn.com/bddvd/)
@@ -9028,17 +6044,10 @@ fsnhf
 <img src="http://wx3.sinaimg.cn/large/740ca5e5ly1fnt9l9b87tj21323f1kca.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 450#         楼主| 发表于 2018-1-25 23:49
-
-
 
 
 发售告知PV
@@ -9048,17 +6057,10 @@ fsnhf
 [http://v.youku.com/v_show/id_XMz ... j.8428770.3416059.1](http://v.youku.com/v_show/id_XMzM1MjkwNzU5Ng==.html?spm=a2h3j.8428770.3416059.1)
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 451#         楼主| 发表于 2018-3-1 15:45
-
-
 
 
 剧场版「Fate/stay night [Heaven's Feel]」I. presage flower 封面
@@ -9074,25 +6076,13 @@ fsnhf
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1foxd1bdpouj20hs0cktdt.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 452#       发表于 2018-3-1 15:57
 
 
-
-
 果然还是武内脸好看<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9101,16 +6091,9 @@ fsnhf
 ##### 453#       发表于 2018-3-1 16:41
 
 
-
-
 二爷居然上封面了
 
 果然不是我的错觉这hf剧场版二爷从头到尾都很抢镜 是打算把他打造成新女主吗
-
-
-
-
-
 
 
 -----
@@ -9119,14 +6102,8 @@ fsnhf
 ##### 454#         楼主| 发表于 2018-3-1 17:26
 
 
-
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1foxfzm2fmlj20s237e4ha.jpg" referrerpolicy="no-referrer">
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1foxfzmnm9ij20sf4fbavd.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9135,15 +6112,8 @@ fsnhf
 ##### 455#         楼主| 发表于 2018-3-1 18:00
 
 
-
-
 特典游戏SAMPLE
 [http://v.youku.com/v_show/id_XMz ... j.8428770.3416059.1](http://v.youku.com/v_show/id_XMzQzMjE4NzU3Mg==.html?spm=a2h3j.8428770.3416059.1)
-
-
-
-
-
 
 
 -----
@@ -9152,13 +6122,7 @@ fsnhf
 ##### 456#         楼主| 发表于 2018-3-1 23:02
 
 
-
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1foxppmx0g3j21hc0u0hdt.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9167,22 +6131,13 @@ fsnhf
 ##### 457#       发表于 2018-3-1 23:49
 
 
-
-
 5月才有的看
-
-
-
-
-
 
 
 -----
 
 ####  呜呼哀哉  
 ##### 458#       发表于 2018-3-3 00:11
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/03/000738sz66w1i68m1xkaab.jpg" referrerpolicy="no-referrer">
@@ -9195,10 +6150,6 @@ fsnhf
 2018-3-3 00:07 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/03/000735u4sa04qq4s7vscsa.jpg" referrerpolicy="no-referrer">
 
 
@@ -9207,10 +6158,6 @@ fsnhf
 下载附件
 
 2018-3-3 00:07 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201803/03/000734znzjz04ssckjk6c4.jpg" referrerpolicy="no-referrer">
@@ -9223,78 +6170,33 @@ fsnhf
 2018-3-3 00:07 上传
 
 
-
-
-
-
-
 别的自己去下吧：[https://entertainmentstation.jp/news/187327](https://entertainmentstation.jp/news/187327)
-
-
-
-
-
 
 
 sub42.jpg
 (350.67 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2018-3-3 00:07 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/03/000734t3ifkm2gmzgygytr.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 sub17.jpg
 (271.08 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2018-3-3 00:07 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201803/03/000733y8rys4szisessbs3.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -9303,15 +6205,8 @@ sub17.jpg
 ##### 459#         楼主| 发表于 2018-3-24 09:50
 
 
-
-
 即将在5月9日发售BD&amp;DVD的《剧场版 Fate/stay night[Heaven's Feel] Ⅰ.presage flower》限定版特典绘图公开，由须藤友徳绘制。
 <img src="http://wx2.sinaimg.cn/large/0068TvVBgy1fpnnvlj9gmj30m809g7mw.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9320,21 +6215,14 @@ sub17.jpg
 ##### 460#         楼主| 发表于 2018-5-4 14:46
 
 
-
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fqzaypyxmoj20p00xc0y8.jpg" referrerpolicy="no-referrer">
 <img src="https://wx1.sinaimg.cn/mw1024/740ca5e5gy1fqzb0he5rcj20p00xctea.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 461#         楼主| 发表于 2018-5-4 14:46
-
 
 
  本帖最后由 xingenge 于 2018-5-4 15:04 编辑 
@@ -9358,25 +6246,13 @@ Blu-rayは400カット見直した
 <img src="http://wx2.sinaimg.cn/large/0068TvVBgy1fqzb7h08bvj30p00xcagl.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 462#       发表于 2018-5-4 15:32
 
 
-
-
 HF必须要有啪啪啪！没有啪啪啪是不完整的！
-
-
-
-
-
 
 
 -----
@@ -9385,24 +6261,16 @@ HF必须要有啪啪啪！没有啪啪啪是不完整的！
 ##### 463#       发表于 2018-5-4 15:57
 
 
-
-
 这个不用担心，剧场版肯定该有的都会有的啦。倒不如担心一下二爷血溅床头的镜头会不会被和谐，这部分的内容少说也是25禁的。
 
 
 HF做三章电影真是正确的决定，月球真材实料全在这里面了。3刷打底。
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 464#       发表于 2018-5-4 16:27
-
 
 
 <blockquote>SHIRT 发表于 2018-5-4 15:57
@@ -9413,17 +6281,10 @@ HF做三章电影真是正确的决定，月球真材实料全在这里面了。
 HF分三部做剧场版决策确实不错，一是核心的英灵们戏份不多，在放半年番稀释太多，只分三部剧场版至少每部专门一段做打戏，二是剧场版制作也比较有保证，大段文戏节奏好编排（虽然UFO不能指望）还能票房BD卖两次
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 465#         楼主| 发表于 2018-5-4 19:36
-
-
 
 
 ティザートレーラーまとめ
@@ -9449,17 +6310,10 @@ HF分三部做剧场版决策确实不错，一是核心的英灵们戏份不多
 近藤さん「夏に公開は絶対にない」
 
 
-
-
-
-
-
 -----
 
 ####  modedd  
 ##### 466#       发表于 2018-5-4 19:40
-
-
 
 
 …………不行了，这个手捧一束花躺在地上看着士郎简直了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你们是故意的吧
@@ -9467,17 +6321,10 @@ HF分三部做剧场版决策确实不错，一是核心的英灵们戏份不多
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 467#         楼主| 发表于 2018-5-4 19:47
-
-
 
 
 【ティザートレーラー上映速報】寺尾さんが口を滑らせて2章の公開は年末になる可能性が濃厚
@@ -9490,17 +6337,10 @@ HF第二章ディザートレーラー見終わったじょん。
 なお公開日はまだ2018年とだけ、果たして年末か年度末か。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 468#         楼主| 发表于 2018-5-4 19:50
-
-
 
 
 マチアソビで行われた、劇場版Fate/stay night Heaven's Feel 第2章 lost butterflyのティザートレイラー上映会より帰ってきました。とりあえず第2章は2018年公開予定で、「夏に公開とかは絶対にないから」とのこｔです
@@ -9509,25 +6349,13 @@ HF第二章ディザートレーラー見終わったじょん。
 估计就年末了吧 10月还要开マチアソビ 会错开
 
 
-
-
-
-
-
 -----
 
 ####  烈士鲮鱼  
 ##### 469#       发表于 2018-5-4 20:36
 
 
-
-
 这次能不能在北美多开几家啊
-
-
-
-
-
 
 
 -----
@@ -9536,24 +6364,14 @@ HF第二章ディザートレーラー見終わったじょん。
 ##### 470#         楼主| 发表于 2018-5-4 21:33
 
 
-
-
 万达电影生活：FATE引进观看意愿调查
 [https://weibo.com/1747752902/Gf6 ... t#_rnd1525440689153](https://weibo.com/1747752902/Gf6WezeLx?type=comment#_rnd1525440689153)
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 471#         楼主| 发表于 2018-5-4 22:06
-
-
-
 
 
 最後のシーンがHeaven’s Feelという物語自体のネタバレを一部含むためご注意を。
@@ -9599,16 +6417,10 @@ HF第二章ディザートレーラー見終わったじょん。
 ・ギルガメッシュ
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 472#       发表于 2018-5-4 22:27
-
 
 
 <blockquote>xingenge 发表于 2018-5-4 22:06
@@ -9621,33 +6433,19 @@ HF第二章ディザートレーラー見終わったじょん。
 第三部除了杀黑傻和姐妹相杀伊莉雅死好像也没啥了
 
 
-
-
-
-
-
 -----
 
 ####  SHIRT  
 ##### 473#       发表于 2018-5-4 23:32
 
 
-
-
 裱UFO文戏不好的说实话只有泥潭，不知为何天天黑ufo。在我看来HF一章的文戏处理得非常恰当，动画毕竟不是电子书，既然不能写字那就得发挥动画的优势，这一点上一章做得非常好了。
-
-
-
-
-
 
 
 -----
 
 ####  6x6z6w  
 ##### 474#       发表于 2018-5-5 01:35
-
-
 
 
 海报上有四个职介棋子
@@ -9662,16 +6460,10 @@ Saber：倒地，剑尖已断
 要不要暗示得这么直接<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 475#         楼主| 发表于 2018-5-8 12:43
-
 
 
  本帖最后由 xingenge 于 2018-5-8 13:33 编辑 
@@ -9684,27 +6476,15 @@ Saber：倒地，剑尖已断
 magnet:?xt=urn:btih:6TNA66PJ2B5NDKMTRVVKV7XTACBORICS
 
 
-
-
-
-
-
 -----
 
 ####  紫水晶  
 ##### 476#       发表于 2018-5-8 12:54
 
 
-
-
 这么快流出了
 
 —— 来自 Xiaomi MI MAX, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -9713,14 +6493,7 @@ magnet:?xt=urn:btih:6TNA66PJ2B5NDKMTRVVKV7XTACBORICS
 ##### 477#       发表于 2018-5-8 13:32
 
 
-
-
 等个rip
-
-
-
-
-
 
 
 -----
@@ -9729,24 +6502,16 @@ magnet:?xt=urn:btih:6TNA66PJ2B5NDKMTRVVKV7XTACBORICS
 ##### 478#       发表于 2018-5-8 14:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39519956&amp;ptid=1359460" target="_blank">xingenge 发表于 2018-5-8 12:43</a>
 
 [VeU3-Project] [Fate/stay night [Heaven's Feel] I.預示之花][劇場版「Fate/stay night [Heaven's Feel] ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">原盘拖不动，就想下个OST听听结果毫无速度……只能等别人下完做种了
 
 
-
-
-
-
-
 -----
 
 ####  madrid2011  
 ##### 479#       发表于 2018-5-8 14:20
-
-
 
 
 [U3-Project] [Fate/stay night [Heaven's Feel] I.預示之花][劇場版「Fate/stay night [Heaven's Feel] I.presage flower」][フェイト ステイナイト ヘブンズフィール][BDMV][1080p][Movie Vol.1][AVC]
@@ -9761,17 +6526,10 @@ magnet:?xt=urn:btih:6TNA66PJ2B5NDKMTRVVKV7XTACBORICS
 我的BD大约在2天才会到..慢慢等
 
 
-
-
-
-
-
 -----
 
 ####  frozenblood  
 ##### 480#       发表于 2018-5-8 14:33
-
-
 
 
 蓝光居然出了，等回家下载
@@ -9780,16 +6538,10 @@ magnet:?xt=urn:btih:6TNA66PJ2B5NDKMTRVVKV7XTACBORICS
 话说第二部该怎么拍啊，应该是剧情最沉闷的一篇了吧，打斗较少，光是对话和悬念，感觉拍出来不会很好看
 
 
-
-
-
-
-
 -----
 
 ####  collincollin  
 ##### 481#       发表于 2018-5-8 14:33
-
 
 
 [https://share.dmhy.org/topics/vi ... 0P_BDRip_Movie.html](https://share.dmhy.org/topics/view/489601_-_fate_stay_night_heaven_s_feel_1080P_BDRip_Movie.html)
@@ -9798,17 +6550,10 @@ magnet:?xt=urn:btih:6TNA66PJ2B5NDKMTRVVKV7XTACBORICS
 熟肉出货
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 482#       发表于 2018-5-8 14:46
-
-
 
 
 这组不是泥潭刚批斗过吗……
@@ -9817,16 +6562,10 @@ magnet:?xt=urn:btih:6TNA66PJ2B5NDKMTRVVKV7XTACBORICS
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  被子十三  
 ##### 483#       发表于 2018-5-8 14:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39521130&amp;ptid=1359460" target="_blank">collincollin 发表于 2018-5-8 14:33</a>
@@ -9838,25 +6577,13 @@ https://share.dmhy.org/topics/view/489601_-_fate_stay_night_heaven_s_feel_1080P_
 幻听的熟肉，还出的这么快……不看为妙
 
 
-
-
-
-
-
 -----
 
 ####  水宝宝  
 ##### 484#       发表于 2018-5-8 14:49
 
 
-
-
 估计B站上是看不到了
-
-
-
-
-
 
 
 -----
@@ -9865,15 +6592,8 @@ https://share.dmhy.org/topics/view/489601_-_fate_stay_night_heaven_s_feel_1080P_
 ##### 485#       发表于 2018-5-8 14:51
 
 
-
-
 幻之又开始抢一血了
 先把BDMV拖下来吧，等熟悉的几个组压BDRip或者等外挂结构<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9882,13 +6602,7 @@ https://share.dmhy.org/topics/view/489601_-_fate_stay_night_heaven_s_feel_1080P_
 ##### 486#       发表于 2018-5-8 14:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">这资源下载300k，上传1m+... 希望老王可以引进下啊，就可以去电影院看了。
-
-
-
-
-
 
 
 -----
@@ -9897,13 +6611,7 @@ https://share.dmhy.org/topics/view/489601_-_fate_stay_night_heaven_s_feel_1080P_
 ##### 487#       发表于 2018-5-8 15:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没速度啊 有好心人毒盘分流一下吗
-
-
-
-
-
 
 
 -----
@@ -9912,16 +6620,9 @@ https://share.dmhy.org/topics/view/489601_-_fate_stay_night_heaven_s_feel_1080P_
 ##### 488#       发表于 2018-5-8 15:11
 
 
-
-
 这速度也太慢了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 —— 来自 samsung SM-G9500, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.1
-
-
-
-
-
 
 
 -----
@@ -9930,14 +6631,7 @@ https://share.dmhy.org/topics/view/489601_-_fate_stay_night_heaven_s_feel_1080P_
 ##### 489#       发表于 2018-5-8 15:17
 
 
-
-
 1.7GB的fhd BDRIP。。。<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9946,16 +6640,9 @@ https://share.dmhy.org/topics/view/489601_-_fate_stay_night_heaven_s_feel_1080P_
 ##### 490#       发表于 2018-5-8 15:18
 
 
-
-
 等明天B站。反正都这么久了，不急这一下。
 
 X宝买的BD还要等几周。。
-
-
-
-
-
 
 
 -----
@@ -9964,14 +6651,7 @@ X宝买的BD还要等几周。。
 ##### 491#       发表于 2018-5-8 15:40
 
 
-
-
 这BD速度上不来啊，115都一直卡在2%
-
-
-
-
-
 
 
 -----
@@ -9980,22 +6660,15 @@ X宝买的BD还要等几周。。
 ##### 492#       发表于 2018-5-8 15:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39521864&amp;ptid=1359460" target="_blank">SHIRT 发表于 2018-5-8 15:40</a>
 这BD速度上不来啊，115都一直卡在2%</blockquote>
 我是云下载卡在80%<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  卡蓮  
 ##### 493#       发表于 2018-5-8 15:46
-
 
 
  本帖最后由 卡蓮 于 2018-5-8 15:50 编辑 
@@ -10009,17 +6682,10 @@ X宝买的BD还要等几周。。</blockquote>
 说起来@幽远 这次你们搞不搞？
 
 
-
-
-
-
-
 -----
 
 ####  BotRondo  
 ##### 494#       发表于 2018-5-8 15:46
-
-
 
 
 BD直接下载也没什么速度。。100M的网下载1M多点上传3M+.....
@@ -10028,25 +6694,13 @@ BD直接下载也没什么速度。。100M的网下载1M多点上传3M+.....
 溜了溜了 等别的组的BDrip
 
 
-
-
-
-
-
 -----
 
 ####  cybernetics  
 ##### 495#       发表于 2018-5-8 16:24
 
 
-
-
 等vcb压制了 幻之的字幕还是算了
-
-
-
-
-
 
 
 -----
@@ -10055,14 +6709,7 @@ BD直接下载也没什么速度。。100M的网下载1M多点上传3M+.....
 ##### 496#       发表于 2018-5-8 17:12
 
 
-
-
 电影院看过的表示想下个OST都好慢，等压制组了
-
-
-
-
-
 
 
 -----
@@ -10071,14 +6718,7 @@ BD直接下载也没什么速度。。100M的网下载1M多点上传3M+.....
 ##### 497#       发表于 2018-5-8 18:33
 
 
-
-
 啧，万达上次问卷的短信劵号都发过来了，所以什么时候上映呢
-
-
-
-
-
 
 
 -----
@@ -10087,14 +6727,7 @@ BD直接下载也没什么速度。。100M的网下载1M多点上传3M+.....
 ##### 498#       发表于 2018-5-8 18:34
 
 
-
-
 幻之跟幻樱不是一家啊 你们黑之前先搞搞清楚好吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10103,16 +6736,10 @@ BD直接下载也没什么速度。。100M的网下载1M多点上传3M+.....
 ##### 499#       发表于 2018-5-8 18:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39523834&amp;ptid=1359460" target="_blank">eyeego 发表于 2018-5-8 18:34</a>
 
 幻之跟幻樱不是一家啊 你们黑之前先搞搞清楚好吧</blockquote>
 没搞错，之前帖子里已经有群众表示了，两家都是幻听级的（
-
-
-
-
-
 
 
 -----
@@ -10121,14 +6748,7 @@ BD直接下载也没什么速度。。100M的网下载1M多点上传3M+.....
 ##### 500#       发表于 2018-5-8 18:58
 
 
-
-
 看完了，我现在什么都不想干只想看HF第二章T_T
-
-
-
-
-
 
 
 -----
@@ -10137,14 +6757,7 @@ BD直接下载也没什么速度。。100M的网下载1M多点上传3M+.....
 ##### 501#       发表于 2018-5-8 19:23
 
 
-
-
 还有没有别的字幕组做呢
-
-
-
-
-
 
 
 -----
@@ -10153,14 +6766,7 @@ BD直接下载也没什么速度。。100M的网下载1M多点上传3M+.....
 ##### 502#       发表于 2018-5-8 19:25
 
 
-
-
 老老实实下生肉，看幻听之前的少战尴尬的不行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10169,16 +6775,9 @@ BD直接下载也没什么速度。。100M的网下载1M多点上传3M+.....
 ##### 503#       发表于 2018-5-8 19:28
 
 
-
-
 虽然字幕确实有些缺省还有一些错，但为了爽还是down下来看完了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
 我TM想看第二章啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10187,24 +6786,16 @@ BD直接下载也没什么速度。。100M的网下载1M多点上传3M+.....
 ##### 504#       发表于 2018-5-8 20:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39523834&amp;ptid=1359460" target="_blank">eyeego 发表于 2018-5-8 18:34</a>
 
 幻之跟幻樱不是一家啊 你们黑之前先搞搞清楚好吧</blockquote>
 都是渣 都是那种为了先占坑不考虑质量的
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 505#       发表于 2018-5-8 20:40
-
-
 
 
 樱的那种善妒阴暗小女人的感觉完全做出来了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -10217,16 +6808,10 @@ PS：藤姐已经完全是个阿婆声线了
 我闪总共10秒不到的戏份全拉PV溜了，商业欺诈啊
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 506#         楼主| 发表于 2018-5-8 20:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39523824&amp;ptid=1359460" target="_blank">Mika-S 发表于 2018-5-8 18:33</a>
@@ -10235,25 +6820,13 @@ PS：藤姐已经完全是个阿婆声线了
 等等吧。敢发这个肯定有谱，但缺少那一锤子。
 
 
-
-
-
-
-
 -----
 
 ####  lxl196201  
 ##### 507#       发表于 2018-5-8 21:12
 
 
-
-
 须藤真是硬核玩家，原作气氛真是被完美还原了，估计有的人觉得文戏无聊，我反正看的是享受无比，真是想不到ufo能这么厨力爆发，想不到啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10262,14 +6835,7 @@ PS：藤姐已经完全是个阿婆声线了
 ##### 508#       发表于 2018-5-8 21:18
 
 
-
-
 看了一半，飞碟这演出真是一如既往的烂，一堆毫无信息量的画面，求求飞碟的演出去学学京都是怎么用画面和镜头展现信息量的
-
-
-
-
-
 
 
 -----
@@ -10278,14 +6844,7 @@ PS：藤姐已经完全是个阿婆声线了
 ##### 509#       发表于 2018-5-8 21:19
 
 
-
-
 对于玩过原作的我来说，文戏简直满分，特别是开头到OP的那一段，吹爆<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">（不过的确对部分人很不友好。）还有为啥感觉HF里的凛的颜值要比UBW里的高上一截啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10294,16 +6853,9 @@ PS：藤姐已经完全是个阿婆声线了
 ##### 510#       发表于 2018-5-8 21:24
 
 
-
-
 现在只想看第二章，梶浦大妈的乐团解散配乐是个变数啊，说不定会延期。
 
 —— 来自 OnePlus ONEPLUS A5010, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
-
-
-
-
-
 
 
 -----
@@ -10312,16 +6864,9 @@ PS：藤姐已经完全是个阿婆声线了
 ##### 511#       发表于 2018-5-8 21:26
 
 
-
-
 好看是好看，不过真心受不了UFO的某些性癖
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -10330,15 +6875,9 @@ PS：藤姐已经完全是个阿婆声线了
 ##### 512#       发表于 2018-5-8 21:36
 
 
-
  本帖最后由 白夜羽 于 2018-5-8 21:37 编辑 
 
 说真的,本樱黑看这个真的是越看越不喜欢樱,只要有凛在都是死盯着凛看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10347,16 +6886,9 @@ PS：藤姐已经完全是个阿婆声线了
 ##### 513#       发表于 2018-5-8 21:43
 
 
-
-
 看着好累啊，三分之二的时间都在舔屏。。
 
 节奏虽然比较缓，不过观感和当时玩游戏挺像的
-
-
-
-
-
 
 
 -----
@@ -10365,17 +6897,10 @@ PS：藤姐已经完全是个阿婆声线了
 ##### 514#       发表于 2018-5-8 21:49
 
 
-
-
 saber在雪下发誓保护好士郎，接着就退场了，这一段我怎么有种看魔伊剧场版的既视感……
 
 
 黑saber是真的赞
-
-
-
-
-
 
 
 -----
@@ -10384,16 +6909,10 @@ saber在雪下发誓保护好士郎，接着就退场了，这一段我怎么有
 ##### 515#       发表于 2018-5-8 21:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39525276&amp;ptid=1359460" target="_blank">草莓の君 发表于 2018-5-8 21:18</a>
 
 看了一半，飞碟这演出真是一如既往的烂，一堆毫无信息量的画面，求求飞碟的演出去学学京都是怎么用画面和镜 ...</blockquote>
 怕是你自己没有看明白噢
-
-
-
-
-
 
 
 -----
@@ -10402,16 +6921,9 @@ saber在雪下发誓保护好士郎，接着就退场了，这一段我怎么有
 ##### 516#       发表于 2018-5-8 22:01
 
 
-
-
 想去买一份BD了
 
 —— 来自 OnePlus ONEPLUS A5010, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
-
-
-
-
-
 
 
 -----
@@ -10420,16 +6932,9 @@ saber在雪下发誓保护好士郎，接着就退场了，这一段我怎么有
 ##### 517#       发表于 2018-5-8 22:10
 
 
-
-
 之前出去旅游刚好看了
 
 现在二刷看完还是好着急想看第二章
-
-
-
-
-
 
 
 -----
@@ -10438,14 +6943,7 @@ saber在雪下发誓保护好士郎，接着就退场了，这一段我怎么有
 ##### 518#       发表于 2018-5-8 22:24
 
 
-
-
 应该紧凑点把招saber讲一下啊，这样开头真的完全粉丝向啊，就这样一般人不看的一脸懵逼还引进个鬼啊.......
-
-
-
-
-
 
 
 -----
@@ -10454,21 +6952,13 @@ saber在雪下发誓保护好士郎，接着就退场了，这一段我怎么有
 ##### 519#       发表于 2018-5-8 22:30
 
 
-
-
 看到我死的那么壮烈就放心了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  消防  
 ##### 520#       发表于 2018-5-8 22:32
-
 
 
  本帖最后由 消防 于 2018-5-8 23:22 编辑 
@@ -10478,16 +6968,10 @@ saber在雪下发誓保护好士郎，接着就退场了，这一段我怎么有
 HF的出彩就在前两条线建立一套系统与人际关系，在HF给颠覆掉。可以说没有前两条线打底HF远称不上神，说粉丝向真的没错……至于跟风引进就，祈祷看过前两部TV的人足够多吧
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 521#       发表于 2018-5-8 22:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39525996&amp;ptid=1359460" target="_blank">Cu_Chulainn 发表于 2018-5-8 22:30</a>
@@ -10496,16 +6980,10 @@ HF的出彩就在前两条线建立一套系统与人际关系，在HF给颠覆�
 我觉得比起死得壮烈，大部分观众比较关心的是你屁股大腿和胯下的特写<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  UMINEKO9  
 ##### 522#       发表于 2018-5-8 22:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39525929&amp;ptid=1359460" target="_blank">bgmilk 发表于 2018-5-8 22:24</a>
@@ -10519,17 +6997,10 @@ HF原作也是这种小樱和士郎为主的阴森诡异氛围吧？呆毛的战
 而且能看出UFO对小樱和大狗、慎二有一定程度的厨力。尤其是大狗，明明凛和红A的戏份删的差不多，就大狗跟哈桑的追逐战还加戏了。
 
 
-
-
-
-
-
-
 -----
 
 ####  Cu_Chulainn  
 ##### 523#       发表于 2018-5-8 22:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39526066&amp;ptid=1359460" target="_blank">消防 发表于 2018-5-8 22:37</a>
@@ -10538,25 +7009,13 @@ HF原作也是这种小樱和士郎为主的阴森诡异氛围吧？呆毛的战
 好身材也是成为英灵的一部分<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lzld  
 ##### 524#       发表于 2018-5-8 23:20
 
 
-
-
 硬核，想问后面的监督还是须藤吗，会不会像空境一样搞不同的监督，型月改编，我现在认准须藤了
-
-
-
-
-
 
 
 -----
@@ -10565,14 +7024,7 @@ HF原作也是这种小樱和士郎为主的阴森诡异氛围吧？呆毛的战
 ##### 525#       发表于 2018-5-8 23:22
 
 
-
-
 观感至少比ubw好多了，能接受。
-
-
-
-
-
 
 
 -----
@@ -10581,16 +7033,10 @@ HF原作也是这种小樱和士郎为主的阴森诡异氛围吧？呆毛的战
 ##### 526#         楼主| 发表于 2018-5-8 23:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39526459&amp;ptid=1359460" target="_blank">lzld 发表于 2018-5-8 23:20</a>
 
 硬核，想问后面的监督还是须藤吗，会不会像空境一样搞不同的监督，型月改编，我现在认准须藤了 ...</blockquote>
 我印象中在哪里看过，说须藤还是谁来着就是樱推，非常适合做HF。如果是须藤的话，除非突发情况，不然就会保持吧。
-
-
-
-
-
 
 
 -----
@@ -10599,21 +7045,13 @@ HF原作也是这种小樱和士郎为主的阴森诡异氛围吧？呆毛的战
 ##### 527#       发表于 2018-5-8 23:29
 
 
-
-
 回后花园翻了一圈ubw的评论，对热评的回复都没有出现秀字了，真是时代的眼泪
-
-
-
-
-
 
 
 -----
 
 ####  消防  
 ##### 528#       发表于 2018-5-8 23:49
-
 
 
  本帖最后由 消防 于 2018-5-9 00:00 编辑 
@@ -10630,17 +7068,10 @@ HF原作也是这种小樱和士郎为主的阴森诡异氛围吧？呆毛的战
 反正HF本来就粉丝向，观众只要自家角色有几个漂亮镜头多点台词剪视频截图舔就能满足。像英灵召唤OP跳完，saber第一次退场后直接把黑化做出来把悬念和后头的冲击全削没了却一片好评，能进电影院的早就熟悉剧情
 
 
-
-
-
-
-
 -----
 
 ####  hououmon  
 ##### 529#       发表于 2018-5-8 23:51
-
-
 
 
 之前看评论，本来以为赶得阿妈都不认得的
@@ -10655,16 +7086,10 @@ HF原作也是这种小樱和士郎为主的阴森诡异氛围吧？呆毛的战
 不如说有很多樱厨的厨力放出部分的节奏简直慢到奢侈
 
 
-
-
-
-
-
 -----
 
 ####  bgmilk  
 ##### 530#       发表于 2018-5-9 00:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39526016&amp;ptid=1359460" target="_blank">消防 发表于 2018-5-8 22:32</a>
@@ -10673,26 +7098,15 @@ HF的出彩就在前两条线建立一套系统与人际关系，在HF给颠覆�
      大概期待不同吧，我是期待真的能有一作像FZ那样对新人老人观感都好的fate作品，我也是樱+R姐厨个人舔得是很爽，但是站在路人视角看这个开片是难以吃的下的，觉得应该稍微紧凑点直接把招saber大狗开大放开头像一般电影叙事方式引入设定然后再回到回忆慢慢讲，这样整体结构也相对完整点，现在看整体有点碎。
 
 
-
-
-
-
-
 -----
 
 ####  Arak  
 ##### 531#       发表于 2018-5-9 00:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39526459&amp;ptid=1359460" target="_blank">lzld 发表于 2018-5-8 23:20</a>
 硬核，想问后面的监督还是须藤吗，会不会像空境一样搞不同的监督，型月改编，我现在认准须藤了 ...</blockquote>
 空境是单元剧，有让不同监督来拍的硬件条件
-
-
-
-
-
 
 
 -----
@@ -10701,24 +7115,15 @@ HF的出彩就在前两条线建立一套系统与人际关系，在HF给颠覆�
 ##### 532#       发表于 2018-5-9 00:13
 
 
-
-
 我记得当初信长吹须藤是世界第一樱厨，比蘑菇都懂。
 
 后面怎么会不让他继续拍下去。
-
-
-
-
-
 
 
 -----
 
 ####  大厨麦当牛  
 ##### 533#       发表于 2018-5-9 00:13
-
-
 
 
 除了lancer追真A那段的打戏实在太尴以外满分。
@@ -10728,16 +7133,10 @@ HF的出彩就在前两条线建立一套系统与人际关系，在HF给颠覆�
 事件陈述和前因后果通过插叙已经交代得比游戏还清楚了，也加强了和FZ的联系。须藤友徳到底是稳。
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 534#       发表于 2018-5-9 00:18
-
 
 
 <blockquote>bgmilk 发表于 2018-5-9 00:01
@@ -10747,16 +7146,10 @@ HF的出彩就在前两条线建立一套系统与人际关系，在HF给颠覆�
 唯一对路人观众友好的方法只能参考06TV三线融合以HF作为主轴，UFO那一贯照本宣科哪改得动，核心目标群又得掀桌
 
 
-
-
-
-
-
 -----
 
 ####  bgmilk  
 ##### 535#       发表于 2018-5-9 00:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39526920&amp;ptid=1359460" target="_blank">消防 发表于 2018-5-9 00:18</a>
@@ -10765,32 +7158,19 @@ HF的出彩就在前两条线建立一套系统与人际关系，在HF给颠覆�
    不是  我不是讲角色塑造的问题....就是单纯的叙事内容对一般人不太好接受（好歹把士郎入场讲清楚点），现在只能把剧场版当粉丝向了，只是和我期待的不同，嘛这个是型月该考虑的问题。但站在粉丝向第一章又不太好说什么......关键还是看后两章能不能调动情绪了。
 
 
-
-
-
-
-
 -----
 
 ####  马桶3  
 ##### 536#       发表于 2018-5-9 00:28
 
 
-
-
 我觉得，这可能是FATE本篇目前为止最好看的一部动画
-
-
-
-
-
 
 
 -----
 
 ####  fuzzytuzi  
 ##### 537#       发表于 2018-5-9 00:32
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">之前打游戏只通的Fate线，没想到HF线英灵便当的这么快。
@@ -10807,16 +7187,10 @@ HF的出彩就在前两条线建立一套系统与人际关系，在HF给颠覆�
 为啥Assassin可以从小次郎的身体里召唤出来？
 
 
-
-
-
-
-
 -----
 
 ####  大厨麦当牛  
 ##### 538#       发表于 2018-5-9 00:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39527013&amp;ptid=1359460" target="_blank">fuzzytuzi 发表于 2018-5-9 00:32</a>
@@ -10830,16 +7204,10 @@ HF的出彩就在前两条线建立一套系统与人际关系，在HF给颠覆�
 士郎确实是想用令咒把saber召唤过去，但在saber被黑影缠上的一刻开始就已经晚了。
 
 
-
-
-
-
-
 -----
 
 ####  马桶3  
 ##### 539#       发表于 2018-5-9 00:37
-
 
 
  本帖最后由 马桶3 于 2018-5-9 00:39 编辑 
@@ -10860,27 +7228,15 @@ HF的出彩就在前两条线建立一套系统与人际关系，在HF给颠覆�
 R姐从来都不是二爷的，二爷用书代替樱来控制她，真主人还是樱，保护男主是樱的心愿所以才会出现
 
 
-
-
-
-
-
 -----
 
 ####  星月々交辉  
 ##### 540#       发表于 2018-5-9 01:14
 
 
-
-
 除了哈桑秒杀小次郎和C妈那里有种什么鬼，你俩咋变杂兵被杂兵轻易干掉了的不适感
 
 其它都很满意
-
-
-
-
-
 
 
 -----
@@ -10889,16 +7245,10 @@ R姐从来都不是二爷的，二爷用书代替樱来控制她，真主人还�
 ##### 541#       发表于 2018-5-9 01:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39525996&amp;ptid=1359460" target="_blank">Cu_Chulainn 发表于 2018-5-8 22:30</a>
 
 看到我死的那么壮烈就放心了</blockquote>
 不是窝囊么，被刺客宰了
-
-
-
-
-
 
 
 -----
@@ -10907,14 +7257,7 @@ R姐从来都不是二爷的，二爷用书代替樱来控制她，真主人还�
 ##### 542#       发表于 2018-5-9 01:31
 
 
-
-
 感觉C妈应该对樱这个状态有办法，其他2条线C妈死的晚，因为C妈压着，这个状态没法出来跳，某BE还有C妈拿到圣杯（甚至可能净化了圣杯）
-
-
-
-
-
 
 
 -----
@@ -10923,21 +7266,13 @@ R姐从来都不是二爷的，二爷用书代替樱来控制她，真主人还�
 ##### 543#       发表于 2018-5-9 01:38
 
 
-
-
 c妈哪条线都这么惨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  多汁多水  
 ##### 544#       发表于 2018-5-9 02:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39527013&amp;ptid=1359460" target="_blank">fuzzytuzi 发表于 2018-5-9 00:32</a>
@@ -10952,16 +7287,10 @@ C妈本来就是作弊搞出的小次郎，虫爷一是参与制定和设计冬�
 这等于C妈盗用网游服务器资源搞出个虚拟角色小号小次郎，然后被作为GM的虫爷抹掉洗号覆盖重练成忠义无双了
 
 
-
-
-
-
-
 -----
 
 ####  突发性哮喘病患  
 ##### 545#       发表于 2018-5-9 02:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39527271&amp;ptid=1359460" target="_blank">星月々交辉 发表于 2018-5-9 01:14</a>
@@ -10972,33 +7301,19 @@ C妈本来就是作弊搞出的小次郎，虫爷一是参与制定和设计冬�
 是丧失了活下去的意志
 
 
-
-
-
-
-
 -----
 
 ####  虾米东东  
 ##### 546#       发表于 2018-5-9 02:32
 
 
-
-
 还是文字更有魅力
-
-
-
-
-
 
 
 -----
 
 ####  突发性哮喘病患  
 ##### 547#       发表于 2018-5-9 02:44
-
-
 
 
 失去了saber，丧失了治愈能力，不会投影，只能掌握那不成熟的强化魔术的卫宫士郎。
@@ -11008,16 +7323,10 @@ C妈本来就是作弊搞出的小次郎，虫爷一是参与制定和设计冬�
 将支撑自己到现在的理想全部背弃他已经不再是虚有其表的赝品了，只是.....等待卫宫士郎的只有报应似的结局罢了。
 
 
-
-
-
-
-
 -----
 
 ####  hououmon  
 ##### 548#       发表于 2018-5-9 02:58
-
 
 
 <blockquote>大厨麦当牛 发表于 2018-5-9 00:13
@@ -11034,16 +7343,10 @@ C妈本来就是作弊搞出的小次郎，虫爷一是参与制定和设计冬�
 穿成这样完全就是儿童虐待啊！
 
 
-
-
-
-
-
 -----
 
 ####  akari1864  
 ##### 549#       发表于 2018-5-9 03:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39525293&amp;ptid=1359460" target="_blank">lili1990218 发表于 2018-05-08 21:19:40</a>
@@ -11052,27 +7355,15 @@ C妈本来就是作弊搞出的小次郎，虫爷一是参与制定和设计冬�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  tiro_finale  
 ##### 550#       发表于 2018-5-9 03:15
 
 
-
-
 拍得还不错，重复剧情直接扔OP背景好评，HF本来就没有任何必要照顾路人
 
 只是大狗打真A有必要搞成那样吗，徒步追车什么的...我看这真A肉搏也不差了，也就R姐把他打了一顿<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11081,14 +7372,7 @@ C妈本来就是作弊搞出的小次郎，虫爷一是参与制定和设计冬�
 ##### 551#       发表于 2018-5-9 03:21
 
 
-
-
 作为樱厨还是很满意 能感受到监督在小樱部分的厨力放出
-
-
-
-
-
 
 
 -----
@@ -11097,16 +7381,9 @@ C妈本来就是作弊搞出的小次郎，虫爷一是参与制定和设计冬�
 ##### 552#       发表于 2018-5-9 03:46
 
 
-
-
 Assassin原来这么猛的吗。。<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
 而且居然第一章就2h，全3章不得7h走起了。。给力
-
-
-
-
-
 
 
 -----
@@ -11115,13 +7392,7 @@ Assassin原来这么猛的吗。。<img src="https://static.saraba1st.com/image/
 ##### 553#       发表于 2018-5-9 03:48
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">没玩过游戏不太明白，黑影为什么只抓大狗和saber，不抓哈桑啊，不都是从者吗？
-
-
-
-
-
 
 
 -----
@@ -11130,16 +7401,10 @@ Assassin原来这么猛的吗。。<img src="https://static.saraba1st.com/image/
 ##### 554#       发表于 2018-5-9 04:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39527865&amp;ptid=1359460" target="_blank">萝莉的伙伴 发表于 2018-05-09 03:48:04</a>
 没玩过游戏不太明白，黑影为什么只抓大狗和saber，不抓哈桑啊，不都是从者吗？ ...</blockquote>一伙的抓个鬼啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -11148,16 +7413,10 @@ Assassin原来这么猛的吗。。<img src="https://static.saraba1st.com/image/
 ##### 555#       发表于 2018-5-9 05:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39527865&amp;ptid=1359460" target="_blank">萝莉的伙伴 发表于 2018-5-9 03:48</a>
 
 没玩过游戏不太明白，黑影为什么只抓大狗和saber，不抓哈桑啊，不都是从者吗？ ...</blockquote>
 樱捕食脏砚的servant说不过去吧
-
-
-
-
-
 
 
 -----
@@ -11166,16 +7425,10 @@ Assassin原来这么猛的吗。。<img src="https://static.saraba1st.com/image/
 ##### 556#       发表于 2018-5-9 05:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39528091&amp;ptid=1359460" target="_blank">Alcatrazer 发表于 2018-5-9 05:14</a>
 
 樱捕食脏砚的servant说不过去吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我开始以为圣杯是要把所有从者都要回收掉呢。
-
-
-
-
-
 
 
 -----
@@ -11184,14 +7437,7 @@ Assassin原来这么猛的吗。。<img src="https://static.saraba1st.com/image/
 ##### 557#       发表于 2018-5-9 05:50
 
 
-
-
 小甜甜这傻逼连凛的礼装都画不好看
-
-
-
-
-
 
 
 -----
@@ -11200,21 +7446,13 @@ Assassin原来这么猛的吗。。<img src="https://static.saraba1st.com/image/
 ##### 558#       发表于 2018-5-9 08:35
 
 
-
-
 vcb出先行压制了 就等字幕组了
-
-
-
-
-
 
 
 -----
 
 ####  gundamfdk  
 ##### 559#       发表于 2018-5-9 08:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39527860&amp;ptid=1359460" target="_blank">pepase 发表于 2018-5-9 03:46</a>
@@ -11225,16 +7463,10 @@ Assassin原来这么猛的吗。。
 日本指环王！
 
 
-
-
-
-
-
 -----
 
 ####  fuzzytuzi  
 ##### 560#       发表于 2018-5-9 08:46
-
 
 
 <blockquote>萝莉的伙伴 发表于 2018-5-9 05:38
@@ -11242,17 +7474,10 @@ Assassin原来这么猛的吗。。
 那是伪圣杯。
 
 
-
-
-
-
-
 -----
 
 ####  洋芋头  
 ##### 561#       发表于 2018-5-9 08:52
-
-
 
 
 真 厨力放出的作品啊！！！
@@ -11267,25 +7492,13 @@ Assassin原来这么猛的吗。。
 有钱有时间真是可以为所欲为
 
 
-
-
-
-
-
 -----
 
 ####  一色いろは  
 ##### 562#       发表于 2018-5-9 09:00
 
 
-
-
 逸国不会发了么这个
-
-
-
-
-
 
 
 -----
@@ -11294,20 +7507,14 @@ Assassin原来这么猛的吗。。
 ##### 563#       发表于 2018-5-9 09:16
 
 
-
-
 咒腕的前后反差咋这么大，刚出场和遭遇大狗那里全程猿叫像只马骝似的，后面跟骑士王正面交锋时声线又变得四平八稳
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -11317,12 +7524,7 @@ Assassin原来这么猛的吗。。
 | 可可洛酱| + 1|去看下背景设定就知道了|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -11331,16 +7533,10 @@ Assassin原来这么猛的吗。。
 ##### 564#       发表于 2018-5-9 09:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39528169&amp;ptid=1359460" target="_blank">圈量子 发表于 2018-5-9 05:50</a>
 
 小甜甜这傻逼连凛的礼装都画不好看</blockquote>
 小甜甜是谁啊
-
-
-
-
-
 
 
 -----
@@ -11349,14 +7545,7 @@ Assassin原来这么猛的吗。。
 ##### 565#       发表于 2018-5-9 09:32
 
 
-
-
 现在可以看出结局是春归还是樱之梦了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11365,23 +7554,16 @@ Assassin原来这么猛的吗。。
 ##### 566#       发表于 2018-5-9 09:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39527865&amp;ptid=1359460" target="_blank">萝莉的伙伴 发表于 2018-5-9 03:48</a>
 
 没玩过游戏不太明白，黑影为什么只抓大狗和saber，不抓哈桑啊，不都是从者吗？ ...</blockquote>
 我理解是靠assassin的气息隐藏。这个阶段黑影还是比较无意识的。大狗被掏心后也有assassin快速逃离的桥段。
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 567#       发表于 2018-5-9 09:40
-
 
 
 <blockquote>smdzh2 发表于 2018-5-9 09:16
@@ -11392,16 +7574,10 @@ Assassin原来这么猛的吗。。
 咒腕真算fsn最惨英灵了，没人气没颜值没戏份，FHA英灵过去基本都补了点就他被遗忘，连生前相关都是到fgo才写
 
 
-
-
-
-
-
 -----
 
 ####  费雷拉  
 ##### 568#       发表于 2018-5-9 09:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39529033&amp;ptid=1359460" target="_blank">smdzh2 发表于 2018-5-9 09:16</a>
@@ -11410,17 +7586,10 @@ Assassin原来这么猛的吗。。
 前面召唤不完全，完全是小次郎生出来的，与其说是咒腕还不如说是它的手孕育的恶魔，吃了大狗心脏后获取了大狗的肉体性能，人格才上线，才进入了忠义无双模式（和虫爷互动）
 
 
-
-
-
-
-
 -----
 
 ####  （待定  
 ##### 569#       发表于 2018-5-9 10:03
-
-
 
 
 看11区网友总结了这次bd小册子里对红A生前的解说部分，顺手转一下。
@@ -11433,16 +7602,10 @@ Assassin原来这么猛的吗。。
 概ねこんなところ
 
 
-
-
-
-
-
 -----
 
 ####  nervpp  
 ##### 570#       发表于 2018-5-9 10:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39525632&amp;ptid=1359460" target="_blank">靜希有珠 发表于 2018-5-8 21:55</a>
@@ -11453,25 +7616,13 @@ Assassin原来这么猛的吗。。
 不过……要的不就是这个感觉吗？
 
 
-
-
-
-
-
 -----
 
 ####  月隐红樱  
 ##### 571#       发表于 2018-5-9 10:16
 
 
-
-
 发链接不太好吧，人家正在引进，随时爆破过来<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11480,21 +7631,13 @@ Assassin原来这么猛的吗。。
 ##### 572#       发表于 2018-5-9 10:21
 
 
-
-
 谁来翻译一下569楼讲红A的那段设定。
-
-
-
-
-
 
 
 -----
 
 ####  winoros  
 ##### 573#       发表于 2018-5-9 10:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39528866&amp;ptid=1359460" target="_blank">一色いろは 发表于 2018-5-9 09:00</a>
@@ -11504,26 +7647,15 @@ Assassin原来这么猛的吗。。
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.2
 
 
-
-
-
-
-
 -----
 
 ####  大厨麦当牛  
 ##### 574#       发表于 2018-5-9 11:08
 
 
-
 <blockquote>smdzh2 发表于 2018-5-9 09:16
 咒腕的前后反差咋这么大，刚出场和遭遇大狗那里全程猿叫像只马骝似的，后面跟骑士王正面交锋时声线又变得四 ...</blockquote>
 吃了大狗心脏后才进化出完整的智能。
-
-
-
-
-
 
 
 -----
@@ -11532,16 +7664,10 @@ Assassin原来这么猛的吗。。
 ##### 575#       发表于 2018-5-9 11:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39529033&amp;ptid=1359460" target="_blank">smdzh2 发表于 2018-5-9 09:16</a>
 
 咒腕的前后反差咋这么大，刚出场和遭遇大狗那里全程猿叫像只马骝似的，后面跟骑士王正面交锋时声线又变得四 ...</blockquote>
 自我改造
-
-
-
-
-
 
 
 -----
@@ -11550,23 +7676,16 @@ Assassin原来这么猛的吗。。
 ##### 576#         楼主| 发表于 2018-5-9 11:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39528866&amp;ptid=1359460" target="_blank">一色いろは 发表于 2018-5-9 09:00</a>
 
 逸国不会发了么这个</blockquote>
 等等吧……有些人因为不算是直接联系者，所以说得挺无所谓的
 
 
-
-
-
-
-
 -----
 
 ####  cybernetics  
 ##### 577#       发表于 2018-5-9 11:47
-
 
 
 <blockquote>winoros 发表于 2018-5-9 10:44
@@ -11577,16 +7696,10 @@ Assassin原来这么猛的吗。。
 真上映了还得看和谐程度 而且现在就有资源了 到时候票房就能看出月厨厨力多大了
 
 
-
-
-
-
-
 -----
 
 ####  Alcatrazer  
 ##### 578#       发表于 2018-5-9 13:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39528141&amp;ptid=1359460" target="_blank">萝莉的伙伴 发表于 2018-5-9 05:38</a>
@@ -11595,16 +7708,10 @@ Assassin原来这么猛的吗。。
 捕食发生的时候，在场的lancer，saber，caster的魔力量都远远大于哈桑，对于饥饿的黑影来说肯定是优先抓大的。而捕食完成之后增加的魔力对樱的身体造成的负担可能就是导致这一行为终止的原因，换句话说就是吃撑了
 
 
-
-
-
-
-
 -----
 
 ####  zhliiiii  
 ##### 579#       发表于 2018-5-9 13:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39526514&amp;ptid=1359460" target="_blank">xingenge 发表于 2018-5-8 23:24</a>
@@ -11622,13 +7729,9 @@ Assassin原来这么猛的吗。。
 这一部剧场版目前为止明显是把更多的笔墨着色在樱身上（为后面的感情戏做铺垫），紧迫的时间又让对士郎的刻画非常稀薄。把人物塑造的重点从单核心士郎改成双核心樱x士郎，把HF拍成一出“男孩拯救女孩”的戏，我认为并不高明，而从第一章看来 须藤很有可能在这么做。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 3战斗力 +3
@@ -11640,19 +7743,13 @@ Assassin原来这么猛的吗。。
 | pzy2222| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  Cu_Chulainn  
 ##### 580#       发表于 2018-5-9 13:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39527326&amp;ptid=1359460" target="_blank">liaoyaaa 发表于 2018-5-9 01:24</a>
@@ -11663,16 +7760,10 @@ Assassin原来这么猛的吗。。
 哼反正金闪闪也要栽在黑影手里，这波不亏
 
 
-
-
-
-
-
 -----
 
 ####  doymylove  
 ##### 581#       发表于 2018-5-9 14:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39532177&amp;ptid=1359460" target="_blank">Alcatrazer 发表于 2018-5-9 13:27</a>
@@ -11681,16 +7772,10 @@ Assassin原来这么猛的吗。。
 纯粹看个热闹没玩过游戏的有个疑问，在吃掉了C妈后为什么要攻击凛呢？
 
 
-
-
-
-
-
 -----
 
 ####  Alcatrazer  
 ##### 582#       发表于 2018-5-9 14:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39532564&amp;ptid=1359460" target="_blank">doymylove 发表于 2018-5-9 14:04</a>
@@ -11699,16 +7784,10 @@ Assassin原来这么猛的吗。。
 挺久之前玩的没啥印象了，可能是因为嫉妒吧
 
 
-
-
-
-
-
 -----
 
 ####  被子十三  
 ##### 583#       发表于 2018-5-9 14:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39530853&amp;ptid=1359460" target="_blank">cybernetics 发表于 2018-5-9 11:47</a>
@@ -11717,16 +7796,10 @@ Assassin原来这么猛的吗。。
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">B站复刻个电影票换礼装的活动就行了，日服又不是没搞过，虽然日服是GPS定位
 
 
-
-
-
-
-
 -----
 
 ####  被子十三  
 ##### 584#       发表于 2018-5-9 14:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39532474&amp;ptid=1359460" target="_blank">zhliiiii 发表于 2018-5-9 13:56</a>
@@ -11743,13 +7816,9 @@ Assassin原来这么猛的吗。。
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">话说回来，现在的新进HF厨与其说是剧情党不如说就是看士樱CP的，须藤这样搞官方发糖也算是投其所好，何乐而不为呢。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -11759,12 +7828,7 @@ Assassin原来这么猛的吗。。
 | pzy2222| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -11773,14 +7837,7 @@ Assassin原来这么猛的吗。。
 ##### 585#       发表于 2018-5-9 14:44
 
 
-
-
 昨天晚上看完了，很满意，找回了当初看空之境界，玩魔夜的感觉，质量还是很好的，整体的氛围，故事也都不错，引进的话五刷起步吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11789,21 +7846,13 @@ Assassin原来这么猛的吗。。
 ##### 586#       发表于 2018-5-9 14:52
 
 
-
-
 对路人来说过于劝退了，我喜
-
-
-
-
-
 
 
 -----
 
 ####  EMIYARIN  
 ##### 587#       发表于 2018-5-9 14:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39532474&amp;ptid=1359460" target="_blank">zhliiiii 发表于 2018-5-9 13:56</a>
@@ -11817,26 +7866,15 @@ Assassin原来这么猛的吗。。
 看了他的访谈，我敢说须藤比90%以上的国内所谓的月厨更理解FSN
 
 
-
-
-
-
-
 -----
 
 ####  pzy2222  
 ##### 588#       发表于 2018-5-9 15:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39533036&amp;ptid=1359460" target="_blank">本职是魔法使 发表于 2018-5-9 14:44</a>
 昨天晚上看完了，很满意，找回了当初看空之境界，玩魔夜的感觉，质量还是很好的，整体的氛围，故事也都不错 ...</blockquote>
 有空境的感觉，和魔夜还是差了些，毕竟魔夜只有游戏<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11845,21 +7883,13 @@ Assassin原来这么猛的吗。。
 ##### 589#       发表于 2018-5-9 15:22
 
 
-
-
 Fate线基本是Saber单核心（不只06版如此），UBW线是士郎、红A双核心。至于HF线应该是士郎单核心，樱、伊莉雅、麻婆都差一点。
-
-
-
-
-
 
 
 -----
 
 ####  消防  
 ##### 590#       发表于 2018-5-9 15:37
-
 
 
  本帖最后由 消防 于 2018-5-9 15:50 编辑 
@@ -11875,17 +7905,10 @@ Fate线基本是Saber单核心（不只06版如此），UBW线是士郎、红A�
 再看看分明没什么戏份的大狗硬塞一段打戏还有各种迷之特写，小次郎混个出场再卖点重口味，C妈加了前情提要还附带便装福利，黑saber提前出场意识对话写讨好粉丝群，就知道这片没可能连樱这形势女主戏份都扔开专门讲男主一个人的故事了
 
 
-
-
-
-
-
 -----
 
 ####  sitrain  
 ##### 591#       发表于 2018-5-9 15:51
-
-
 
 
 不管须藤是樱厨还是什么厨的，并不等于能做好一部片子
@@ -11894,26 +7917,15 @@ Fate线基本是Saber单核心（不只06版如此），UBW线是士郎、红A�
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 592#       发表于 2018-5-9 15:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39529048&amp;ptid=1359460" target="_blank">折木、奉太郎 发表于 2018-5-9 09:18</a>
 小甜甜是谁啊</blockquote>
 田畑，或者田火田，UBW时期那些难看得要死的版权绘基本都是他的锅，去年日服圣诞礼装凛瞳色弄错那张也是他
-
-
-
-
-
 
 
 -----
@@ -11922,15 +7934,9 @@ Fate线基本是Saber单核心（不只06版如此），UBW线是士郎、红A�
 ##### 593#       发表于 2018-5-9 15:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39532564&amp;ptid=1359460" target="_blank">doymylove 发表于 2018-5-9 14:04</a>
 纯粹看个热闹没玩过游戏的有个疑问，在吃掉了C妈后为什么要攻击凛呢？</blockquote>
 动画其实已经淡化了不少，其实樱是很嫉妒凛的，还有虫爷煽风点火
-
-
-
-
-
 
 
 -----
@@ -11939,14 +7945,7 @@ Fate线基本是Saber单核心（不只06版如此），UBW线是士郎、红A�
 ##### 594#       发表于 2018-5-9 16:00
 
 
-
-
 莫名其妙还行，每一件事都讲清楚了，哪莫名其妙了
-
-
-
-
-
 
 
 -----
@@ -11955,14 +7954,7 @@ Fate线基本是Saber单核心（不只06版如此），UBW线是士郎、红A�
 ##### 595#       发表于 2018-5-9 16:13
 
 
-
-
 硬要说不满就是动画载体和时长两个限制的不满了，无解
-
-
-
-
-
 
 
 -----
@@ -11971,14 +7963,7 @@ Fate线基本是Saber单核心（不只06版如此），UBW线是士郎、红A�
 ##### 596#       发表于 2018-5-9 16:30
 
 
-
-
 看你们讨论的好像挺还原的，我还是看好了。
-
-
-
-
-
 
 
 -----
@@ -11987,22 +7972,13 @@ Fate线基本是Saber单核心（不只06版如此），UBW线是士郎、红A�
 ##### 597#       发表于 2018-5-9 16:30
 
 
-
-
 有些转场莫名其妙当时在影院一刷的时候也有点感觉，后面二刷之前重新回顾了下hf前期原文走势发现是我把早期细节忘得差不多了，二刷的观感也好了很多
-
-
-
-
-
 
 
 -----
 
 ####  S.H.  
 ##### 598#       发表于 2018-5-9 17:17
-
-
 
 
 据说一问一答里有提到全盛期脏砚能跟英灵单挑啊   是不是近代魔术师最强候补了 233
@@ -12012,33 +7988,19 @@ Fate线基本是Saber单核心（不只06版如此），UBW线是士郎、红A�
 [https://www.youtube.com/watch?v=Fqq7oaOYr28](https://www.youtube.com/watch?v=Fqq7oaOYr28)
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 599#         楼主| 发表于 2018-5-9 17:21
 
 
-
-
 国内视频网站审核真是神速，都要半小时了还没过
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 600#         楼主| 发表于 2018-5-9 17:33
-
-
 
 
 youtube楼上有了，不发了。
@@ -12049,24 +8011,13 @@ youtube楼上有了，不发了。
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fr57ypyzb9j20mp0xbtf5.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  被子十三  
 ##### 601#       发表于 2018-5-9 17:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">第二章的PV居然连雨夜都没有，咋回事
-
-
-
-
-
 
 
 -----
@@ -12075,15 +8026,8 @@ youtube楼上有了，不发了。
 ##### 602#         楼主| 发表于 2018-5-9 17:47
 
 
-
-
 【キャンペーンその1】劇場版「Fate/stay night [Heaven's Feel] 」と アニプラ がコラボレーション！間桐桜が臨時店長に就任！アニプラパーカーを着用した桜を描き下ろして頂きました！カスタマーサポートもHF仕様に。臨時店長がやさしくお問い合わせにお応え致します
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fr58ck40alj20pq0xcau2.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12092,14 +8036,7 @@ youtube楼上有了，不发了。
 ##### 603#       发表于 2018-5-9 18:35
 
 
-
-
 为什么士郎好像认出了C妈的对魔宝具
-
-
-
-
-
 
 
 -----
@@ -12108,16 +8045,10 @@ youtube楼上有了，不发了。
 ##### 604#       发表于 2018-5-9 18:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39535825&amp;ptid=1359460" target="_blank">Shabadadoo 发表于 2018-5-9 18:35</a>
 
 为什么士郎好像认出了C妈的对魔宝具</blockquote>
 天生的剑专精山寨师，只要是剑一看就能猜出个大概功能。
-
-
-
-
-
 
 
 -----
@@ -12126,22 +8057,15 @@ youtube楼上有了，不发了。
 ##### 605#       发表于 2018-5-9 18:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39536009&amp;ptid=1359460" target="_blank">大厨麦当牛 发表于 2018-5-9 18:48</a>
 天生的剑专精山寨师，只要是剑一看就能猜出个大概功能。</blockquote>
 原来如此，我潜意识里觉得士郎目前的水平只能修修电暖气，到后期才解锁了解读宝具的能力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  六花自我中  
 ##### 606#       发表于 2018-5-9 19:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39529952&amp;ptid=1359460" target="_blank">winoros 发表于 2018-5-9 10:44</a>
@@ -12153,17 +8077,10 @@ youtube楼上有了，不发了。
 还是怀念b原来电影电视一锅端时代 哪有这么麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  spyps  
 ##### 607#       发表于 2018-5-9 19:38
-
-
 
 
 官推上的大图：
@@ -12178,11 +8095,6 @@ youtube楼上有了，不发了。
 2018-5-9 19:37 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/09/193702xrr455nkldskchnr.jpg" referrerpolicy="no-referrer">
 
 
@@ -12193,22 +8105,10 @@ youtube楼上有了，不发了。
 2018-5-9 19:37 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  六花自我中  
 ##### 608#       发表于 2018-5-9 19:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39532474&amp;ptid=1359460" target="_blank">zhliiiii 发表于 2018-5-9 13:56</a>
@@ -12220,26 +8120,15 @@ youtube楼上有了，不发了。
 樱真可怜 自己主场还被麻婆伊利亚甚至凛抢戏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  晨霜攀黛瓦  
 ##### 609#       发表于 2018-5-9 20:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 —— 来自 HUAWEI STF-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
-
-
-
-
-
 
 
 -----
@@ -12248,14 +8137,7 @@ youtube楼上有了，不发了。
 ##### 610#       发表于 2018-5-9 20:53
 
 
-
-
 开始了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12264,14 +8146,7 @@ youtube楼上有了，不发了。
 ##### 611#       发表于 2018-5-9 20:56
 
 
-
-
 须藤友徳乃樱厨典范
-
-
-
-
-
 
 
 -----
@@ -12280,16 +8155,10 @@ youtube楼上有了，不发了。
 ##### 612#       发表于 2018-5-9 21:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39536554&amp;ptid=1359460" target="_blank">六花自我中 发表于 2018-5-9 19:38</a>
 
 樱真可怜 自己主场还被麻婆伊利亚甚至凛抢戏</blockquote>
 UBW的凛也被Archer抢戏啊，而且HF本来就杂糅了部分（本来想做的）伊莉雅线内容
-
-
-
-
-
 
 
 -----
@@ -12298,14 +8167,7 @@ UBW的凛也被Archer抢戏啊，而且HF本来就杂糅了部分（本来想做
 ##### 613#       发表于 2018-5-9 21:16
 
 
-
-
 搭车问一下目前哪个外挂字幕可以打？
-
-
-
-
-
 
 
 -----
@@ -12314,16 +8176,10 @@ UBW的凛也被Archer抢戏啊，而且HF本来就杂糅了部分（本来想做
 ##### 614#       发表于 2018-5-9 21:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39535825&amp;ptid=1359460" target="_blank">Shabadadoo 发表于 2018-5-9 18:35</a>
 
 为什么士郎好像认出了C妈的对魔宝具</blockquote>
 因为红A和士郎的特殊关系，红A一旦被召唤，士郎就会被动的共享红A储备的情报，剧场版里红A直接就闪身上去把C妈手臂切了就暗示了这一点，这个在UBW里更明显一些。
-
-
-
-
-
 
 
 -----
@@ -12332,16 +8188,10 @@ UBW的凛也被Archer抢戏啊，而且HF本来就杂糅了部分（本来想做
 ##### 615#       发表于 2018-5-9 22:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39538224&amp;ptid=1359460" target="_blank">cube 发表于 2018-5-9 21:57</a>
 
 因为红A和士郎的特殊关系，红A一旦被召唤，士郎就会被动的共享红A储备的情报，剧场版里红A直接就闪身上去 ...</blockquote>
 原作是士郎和saber去柳洞寺收caster人头的时候，士郎提醒了一下。我倾向于理解为士郎自己的解读能力吧？红A则是自带的知识。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12350,21 +8200,13 @@ UBW的凛也被Archer抢戏啊，而且HF本来就杂糅了部分（本来想做
 ##### 616#       发表于 2018-5-9 22:30
 
 
-
-
 看完了感觉很棒，期待第二章
-
-
-
-
-
 
 
 -----
 
 ####  cube  
 ##### 617#       发表于 2018-5-9 22:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39538461&amp;ptid=1359460" target="_blank">Shabadadoo 发表于 2018-5-9 22:17</a>
@@ -12375,16 +8217,10 @@ UBW的凛也被Archer抢戏啊，而且HF本来就杂糅了部分（本来想做
 HF线后来红A的手臂移植给士郎后，信息涌入的更快，他连红A的鹤翼三连都无师自通了，实际上已经是红A的手臂在反过来侵蚀他。
 
 
-
-
-
-
-
 -----
 
 ####  pepase  
 ##### 618#       发表于 2018-5-9 22:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39533893&amp;ptid=1359460" target="_blank">圈量子 发表于 2018-5-9 15:58</a>
@@ -12393,16 +8229,10 @@ HF线后来红A的手臂移植给士郎后，信息涌入的更快，他连红A�
 那之后会有樱看到凛和土狼一起行动之后烧饼把凛削了的剧情么
 
 
-
-
-
-
-
 -----
 
 ####  Shabadadoo  
 ##### 619#       发表于 2018-5-9 22:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39538618&amp;ptid=1359460" target="_blank">cube 发表于 2018-5-9 22:32</a>
@@ -12411,16 +8241,10 @@ HF线后来红A的手臂移植给士郎后，信息涌入的更快，他连红A�
 这样一说好像明白了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  black199  
 ##### 620#       发表于 2018-5-9 22:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39538618&amp;ptid=1359460" target="_blank">cube 发表于 2018-5-9 22:32</a>
@@ -12437,25 +8261,13 @@ HF线后来红A的手臂移植给士郎后，信息涌入的更快，他连红A�
 毕竟士郎FATE线就一眼看穿过金闪闪的钥匙
 
 
-
-
-
-
-
 -----
 
 ####  银翼的维罗西  
 ##### 621#       发表于 2018-5-9 22:48
 
 
-
-
 真好看，几个紫色系的黄昏戳中了我的好球区，土狼好惨，樱骚想干
-
-
-
-
-
 
 
 -----
@@ -12464,24 +8276,16 @@ HF线后来红A的手臂移植给士郎后，信息涌入的更快，他连红A�
 ##### 622#       发表于 2018-5-9 22:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39536548&amp;ptid=1359460" target="_blank">spyps 发表于 2018-05-09 19:38:16</a>
 官推上的大图：</blockquote>这张樱可太美了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Ferb2012  
 ##### 623#       发表于 2018-5-9 22:54
-
-
 
 
 第二章主视觉图的那几个石像，
@@ -12493,16 +8297,10 @@ HF线后来红A的手臂移植给士郎后，信息涌入的更快，他连红A�
 左上和左下应该是Rider和Assassin？
 
 
-
-
-
-
-
 -----
 
 ####  fzlong  
 ##### 624#       发表于 2018-5-9 22:57
-
 
 
  本帖最后由 fzlong 于 2018-5-9 23:22 编辑 
@@ -12510,17 +8308,10 @@ HF线后来红A的手臂移植给士郎后，信息涌入的更快，他连红A�
 <img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">好看 吹爆 游戏的气氛神还原 很多细节也让人感觉很舒服
 
 
-
-
-
-
-
 -----
 
 ####  空空空  
 ##### 625#       发表于 2018-5-10 00:06
-
-
 
 
 还挺好看的，不过动画党只能全程黑人问号了....
@@ -12532,16 +8323,10 @@ HF线后来红A的手臂移植给士郎后，信息涌入的更快，他连红A�
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 626#       发表于 2018-5-10 00:11
-
 
 
 <blockquote>空空空 发表于 2018-5-10 00:06
@@ -12554,16 +8339,10 @@ HF线后来红A的手臂移植给士郎后，信息涌入的更快，他连红A�
 试图黑化，然后没有然后了。
 
 
-
-
-
-
-
 -----
 
 ####  空空空  
 ##### 627#       发表于 2018-5-10 00:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39539636&amp;ptid=1359460" target="_blank">消防 发表于 2018-05-10 00:11:19</a>
@@ -12574,16 +8353,10 @@ HF线后来红A的手臂移植给士郎后，信息涌入的更快，他连红A�
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  大厨麦当牛  
 ##### 628#       发表于 2018-5-10 00:36
-
 
 
 <blockquote>cube 发表于 2018-5-9 21:57
@@ -12593,25 +8366,13 @@ HF线后来红A的手臂移植给士郎后，信息涌入的更快，他连红A�
 UBW里不止是观摩甚至有直接的死斗，所以士郎才飞速成长习得红A的固有结界，fate和hf里仅限于观摩红A战斗，所以即使是接了手臂而且被手臂侵蚀的hf里他也无法使出固有结界，fate里就更是只能止步于投影了。
 
 
-
-
-
-
-
 -----
 
 ####  6030sylar  
 ##### 629#       发表于 2018-5-10 00:41
 
 
-
-
 问个问题，英灵不是死了就是消散回归圣杯吗，为什么这里还有“英灵的尸体”？
-
-
-
-
-
 
 
 -----
@@ -12620,16 +8381,10 @@ UBW里不止是观摩甚至有直接的死斗，所以士郎才飞速成长习�
 ##### 630#       发表于 2018-5-10 00:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39539881&amp;ptid=1359460" target="_blank">6030sylar 发表于 2018-5-10 00:41</a>
 
 问个问题，英灵不是死了就是消散回归圣杯吗，为什么这里还有“英灵的尸体”？ ...</blockquote>
 因为那坨黑泥就是圣杯啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12638,16 +8393,10 @@ UBW里不止是观摩甚至有直接的死斗，所以士郎才飞速成长习�
 ##### 631#       发表于 2018-5-10 01:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39539881&amp;ptid=1359460" target="_blank">6030sylar 发表于 2018-5-10 00:41</a>
 
 问个问题，英灵不是死了就是消散回归圣杯吗，为什么这里还有“英灵的尸体”？ ...</blockquote>
 因为黑影，黑影算部分第三法，可以受肉，后面的黑化b叔和黑呆都算是受肉从者
-
-
-
-
-
 
 
 -----
@@ -12656,16 +8405,9 @@ UBW里不止是观摩甚至有直接的死斗，所以士郎才飞速成长习�
 ##### 632#       发表于 2018-5-10 01:09
 
 
-
-
 这次HF节奏掌握的不错，做出一种FSN系列收官作的味道了
 
 另外能看到会动的黑呆真是棒，那个文盲白毛女，你看到了吗（
-
-
-
-
-
 
 
 -----
@@ -12674,15 +8416,9 @@ UBW里不止是观摩甚至有直接的死斗，所以士郎才飞速成长习�
 ##### 633#       发表于 2018-5-10 02:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39538714&amp;ptid=1359460" target="_blank">pepase 发表于 2018-5-9 22:40</a>
 那之后会有樱看到凛和土狼一起行动之后烧饼把凛削了的剧情么</blockquote>
 后面看到一起行动是真的会吃醋的，还会说出我都和你睡过了你怎么还对着姐姐脸红的台词<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">动画有没有就不知道了，不过刺激黑化的关键嫉妒情节估计会留一些
-
-
-
-
-
 
 
 -----
@@ -12691,23 +8427,16 @@ UBW里不止是观摩甚至有直接的死斗，所以士郎才飞速成长习�
 ##### 634#       发表于 2018-5-10 04:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39538618&amp;ptid=1359460" target="_blank">cube 发表于 2018-5-9 22:32</a>
 
 那好歹是宝具，以士郎现在的水平解读不了的，士郎会下意识的接受红A无意间泄露给他的情报、知识甚至是提 ...</blockquote>
 没有这回事，卫宫士郎的解读能力是天赋，红A顶多指点一下，或者是互A的时候产生降灵效果
 
 
-
-
-
-
-
 -----
 
 ####  突发性哮喘病患  
 ##### 635#       发表于 2018-5-10 04:56
-
 
 
  本帖最后由 突发性哮喘病患 于 2018-5-10 05:05 编辑 
@@ -12719,16 +8448,10 @@ UBW里不止是观摩甚至有直接的死斗，所以士郎才飞速成长习�
 简单的来说就是背叛理想的卫宫士郎是无法显现出红A的UBW【正义的世界】。
 
 
-
-
-
-
-
 -----
 
 ####  折木、奉太郎  
 ##### 636#       发表于 2018-5-10 11:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39533865&amp;ptid=1359460" target="_blank">圈量子 发表于 2018-5-9 15:55</a>
@@ -12737,25 +8460,13 @@ UBW里不止是观摩甚至有直接的死斗，所以士郎才飞速成长习�
 坑爹啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  狸狸狐  
 ##### 637#       发表于 2018-5-10 11:55
 
 
-
-
 食完。还原真棒啊。这可能是制作最精良气氛还原最好的FATE本篇动画了。满满都能感受到士大夫对樱的爱...
-
-
-
-
-
 
 
 -----
@@ -12764,14 +8475,7 @@ UBW里不止是观摩甚至有直接的死斗，所以士郎才飞速成长习�
 ##### 638#       发表于 2018-5-10 12:05
 
 
-
-
 看过幻之字幕组的能说一下字幕质量怎么样吗？已经饥渴难耐了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12780,23 +8484,15 @@ UBW里不止是观摩甚至有直接的死斗，所以士郎才飞速成长习�
 ##### 639#       发表于 2018-5-10 12:21
 
 
-
-
 hf线最大的功能就是把麻婆这个人物圆满了
 
 女主角什么的请不要在意
-
-
-
-
-
 
 
 -----
 
 ####  hourousha  
 ##### 640#       发表于 2018-5-10 12:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39526890&amp;ptid=1359460" target="_blank">大厨麦当牛 发表于 2018-5-9 00:13</a>
@@ -12809,16 +8505,10 @@ hf线最大的功能就是把麻婆这个人物圆满了
 加强了和FZ的联系？FZ里，凛是知道麻婆参加了上届圣杯战争的吧，和HF动画了当凛听到麻婆说他也是上届的master时的反应对应不上吧。
 
 
-
-
-
-
-
 -----
 
 ####  blood_iron  
 ##### 641#       发表于 2018-5-10 12:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39539576&amp;ptid=1359460" target="_blank">空空空 发表于 2018-5-10 00:06</a>
@@ -12830,16 +8520,10 @@ hf线最大的功能就是把麻婆这个人物圆满了
 人渣慎二的结局是三条线中最让观众满意
 
 
-
-
-
-
-
 -----
 
 ####  鱼缸  
 ##### 642#       发表于 2018-5-10 12:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39544172&amp;ptid=1359460" target="_blank">3436 发表于 2018-5-10 12:05</a>
@@ -12850,16 +8534,10 @@ hf线最大的功能就是把麻婆这个人物圆满了
 先看个过瘾倒是没问题的
 
 
-
-
-
-
-
 -----
 
 ####  3436  
 ##### 643#       发表于 2018-5-10 12:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39544687&amp;ptid=1359460" target="_blank">鱼缸 发表于 2018-5-10 12:44</a>
@@ -12870,16 +8548,10 @@ hf线最大的功能就是把麻婆这个人物圆满了
 多谢解答，等晚上没有其他字幕组就食了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  大厨麦当牛  
 ##### 644#       发表于 2018-5-10 13:12
-
 
 
 <blockquote>hourousha 发表于 2018-5-10 12:26
@@ -12889,16 +8561,10 @@ hf线最大的功能就是把麻婆这个人物圆满了
 加强联系是说的呆毛王和麻婆对切嗣的印象描述，原创的伊利亚丝线关门魔术。樱刚来卫宫家时候的玩坏眼，虫爷对士郎的套话，虫爷麻婆互吹一波等小细节。
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 645#       发表于 2018-5-10 13:24
-
 
 
 <blockquote>大厨麦当牛 发表于 2018-5-10 13:12
@@ -12908,25 +8574,13 @@ hf线最大的功能就是把麻婆这个人物圆满了
 认真想想这封闭场地也只有不让御主跑回中立地带教会这一个作用了
 
 
-
-
-
-
-
 -----
 
 ####  友人zero  
 ##### 646#       发表于 2018-5-10 13:29
 
 
-
-
 2020年之前能出到第三章吗？
-
-
-
-
-
 
 
 -----
@@ -12935,16 +8589,9 @@ hf线最大的功能就是把麻婆这个人物圆满了
 ##### 647#       发表于 2018-5-10 13:48
 
 
-
-
 看完了，樱厨大满足。我为以前黑过飞碟桌道歉。
 
 翘首以盼剩下两章。
-
-
-
-
-
 
 
 -----
@@ -12953,23 +8600,15 @@ hf线最大的功能就是把麻婆这个人物圆满了
 ##### 648#       发表于 2018-5-10 14:44
 
 
-
-
 说起来大狗追真A半天都打不中，R姐上场就能吊着打
 
 算是还原了早期蘑菇设定大狗和R姐的敏捷相同，但大狗平时比R姐敏捷，R姐爆发力比大狗高吧。
-
-
-
-
-
 
 
 -----
 
 ####  Shabadadoo  
 ##### 649#       发表于 2018-5-10 14:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39545960&amp;ptid=1359460" target="_blank">洋芋头 发表于 2018-5-10 14:44</a>
@@ -12979,16 +8618,10 @@ hf线最大的功能就是把麻婆这个人物圆满了
 这个想多了吧。硬要分析也是因为令咒要求的原因。另外是大狗爆发速度高，R姐平均速度高吧。
 
 
-
-
-
-
-
 -----
 
 ####  洋芋头  
 ##### 650#       发表于 2018-5-10 15:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39546067&amp;ptid=1359460" target="_blank">Shabadadoo 发表于 2018-5-10 14:55</a>
@@ -12999,16 +8632,10 @@ hf线最大的功能就是把麻婆这个人物圆满了
 这里看来只是单纯的回归原主并且魔力充沛的R姐比大狗厉害么……
 
 
-
-
-
-
-
 -----
 
 ####  solaris40  
 ##### 651#       发表于 2018-5-10 15:24
-
 
 
  本帖最后由 solaris40 于 2018-5-10 15:25 编辑 
@@ -13021,16 +8648,10 @@ hf线最大的功能就是把麻婆这个人物圆满了
 还有R姐当然厉害，能走完全场的幸运E，你说厉不厉害？
 
 
-
-
-
-
-
 -----
 
 ####  突发性哮喘病患  
 ##### 652#       发表于 2018-5-10 15:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39545960&amp;ptid=1359460" target="_blank">洋芋头 发表于 2018-5-10 14:44</a>
@@ -13041,17 +8662,10 @@ hf线最大的功能就是把麻婆这个人物圆满了
 大狗有想法见面真A就死了
 
 
-
-
-
-
-
 -----
 
 ####  yufeng029  
 ##### 653#       发表于 2018-5-10 19:31
-
-
 
 
 开战那段真的惊艳，两个主角间的镜头切换，音乐变调，整个气氛一下转变了，通过使魔几个镜头和脏砚的独白，正式定调及拉开了第五次的序幕。
@@ -13059,13 +8673,9 @@ hf线最大的功能就是把麻婆这个人物圆满了
 掺杂了许多zero的元素，像开战前的倒计时，麻婆谈到切嗣时配乐是point zero，有一种钦定的感觉。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -13075,19 +8685,13 @@ hf线最大的功能就是把麻婆这个人物圆满了
 | 可可洛酱| + 1|R姐对真A那段也不错！婀娜身姿躲飞刀.|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  名津流  
 ##### 654#       发表于 2018-5-10 20:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39544765&amp;ptid=1359460" target="_blank">3436 发表于 2018-5-10 12:50</a>
@@ -13098,16 +8702,10 @@ hf线最大的功能就是把麻婆这个人物圆满了
 虚数学区研究协会        [INDRA] Fate stay night -Heaven's Feel- I.presage flower [1080P][BDRip][HEVC 8bit AAC 5.1] 
 
 
-
-
-
-
-
 -----
 
 ####  3436  
 ##### 655#       发表于 2018-5-10 21:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39549956&amp;ptid=1359460" target="_blank">名津流 发表于 2018-5-10 20:10</a>
@@ -13118,16 +8716,10 @@ hf线最大的功能就是把麻婆这个人物圆满了
 好气，刚看完上来就看到你这条<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">，不过幻的字幕用来尝鲜还可以，现在只想看HF第二章.jpg
 
 
-
-
-
-
-
 -----
 
 ####  茴香蚪  
 ##### 656#       发表于 2018-5-10 22:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39549956&amp;ptid=1359460" target="_blank">名津流 发表于 2018-5-10 20:10</a>
@@ -13138,25 +8730,13 @@ hf线最大的功能就是把麻婆这个人物圆满了
 这个是raw，没字幕的。。
 
 
-
-
-
-
-
 -----
 
 ####  钢の战神  
 ##### 657#       发表于 2018-5-10 22:17
 
 
-
-
 这个刺客什么情况,异型附体了吗 ,起手就孵化出来,然后战斗力爆炸,后面声音都变化了有什么说法么,真主角有没有
-
-
-
-
-
 
 
 -----
@@ -13165,16 +8745,9 @@ hf线最大的功能就是把麻婆这个人物圆满了
 ##### 658#       发表于 2018-5-10 22:20
 
 
-
-
 都靠同行衬托
 
 我看谁还再黑飞碟社
-
-
-
-
-
 
 
 -----
@@ -13183,16 +8756,9 @@ hf线最大的功能就是把麻婆这个人物圆满了
 ##### 659#       发表于 2018-5-10 22:41
 
 
-
-
 去年在神户看的，电影院离麻婆的地下室好像不远<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 坐等第二部，期盼闪闪被吃掉那段大快人心的情节
-
-
-
-
-
 
 
 -----
@@ -13201,21 +8767,13 @@ hf线最大的功能就是把麻婆这个人物圆满了
 ##### 660#       发表于 2018-5-10 22:48
 
 
-
-
 靠谱熟肉但愿明天能出。。。
-
-
-
-
-
 
 
 -----
 
 ####  大厨麦当牛  
 ##### 661#       发表于 2018-5-10 22:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39545165&amp;ptid=1359460" target="_blank">消防 发表于 2018-5-10 13:24</a>
@@ -13228,17 +8786,10 @@ hf线最大的功能就是把麻婆这个人物圆满了
 作为片中的作用是露一手丝线魔术好和她后出生的妈联系起来。
 
 
-
-
-
-
-
 -----
 
 ####  blood_iron  
 ##### 662#       发表于 2018-5-10 23:03
-
-
 
 
 为什么伊利亚跟SABER搭话时候，SABER不理会她的 ？
@@ -13246,16 +8797,10 @@ hf线最大的功能就是把麻婆这个人物圆满了
 后面剧情也说SABER根本就有上一次战争的记忆
 
 
-
-
-
-
-
 -----
 
 ####  莉莉白  
 ##### 663#       发表于 2018-5-10 23:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39551771&amp;ptid=1359460" target="_blank">blood_iron 发表于 2018-5-10 23:03</a>
@@ -13266,16 +8811,10 @@ hf线最大的功能就是把麻婆这个人物圆满了
 我记得以前看到的说法是，SABER不知道伊利亚长不大，所以以为这个伊利亚跟十年前她见过的伊利亚不是同个人，而是爱因兹贝伦做的另外的人造人。。。
 
 
-
-
-
-
-
 -----
 
 ####  schneehertz  
 ##### 664#       发表于 2018-5-10 23:09
-
 
 
 <img src="https://i.loli.net/2018/05/10/5af460997d7c4.png" referrerpolicy="no-referrer">
@@ -13283,16 +8822,10 @@ hf线最大的功能就是把麻婆这个人物圆满了
 OST这曲名是不是钦定的味道太重了阿
 
 
-
-
-
-
-
 -----
 
 ####  solaris40  
 ##### 665#       发表于 2018-5-10 23:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39551771&amp;ptid=1359460" target="_blank">blood_iron 发表于 2018-5-10 23:03</a>
@@ -13302,25 +8835,13 @@ OST这曲名是不是钦定的味道太重了阿
 其它两条线，saber还是最后才说她上次也参加了的，好像还是遇到闪闪后了。这次只是保持沉默而已，毕竟自己情况特殊，她不是死后被召唤参加圣杯战争的，而是临死前参加的。
 
 
-
-
-
-
-
 -----
 
 ####  剑起苍斓  
 ##### 666#       发表于 2018-5-10 23:44
 
 
-
-
 BD刚清关，好焦急
-
-
-
-
-
 
 
 -----
@@ -13329,21 +8850,13 @@ BD刚清关，好焦急
 ##### 667#       发表于 2018-5-10 23:49
 
 
-
-
 看完，为我曾经说主题曲不好听认错。这歌配搭起剧场的氛围真的恰到好处<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  we89623  
 ##### 668#       发表于 2018-5-10 23:54
-
 
 
  本帖最后由 we89623 于 2018-5-10 23:59 编辑 
@@ -13365,16 +8878,10 @@ BD刚清关，好焦急
 四战的哈桑是【百貌】特点是会分成80个分身，但能力也会被分成80份
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 669#       发表于 2018-5-11 00:18
-
 
 
 <blockquote>blood_iron 发表于 2018-5-10 23:03
@@ -13384,16 +8891,10 @@ BD刚清关，好焦急
 原作从来没提过saber认识伊莉雅，FZ设定更新后UBW有着重做表情，HF板着脸你可以当saber在装蒜，这位可是出场就自称拿了把斧子的人
 
 
-
-
-
-
-
 -----
 
 ####  茴香蚪  
 ##### 670#       发表于 2018-5-11 00:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39551833&amp;ptid=1359460" target="_blank">schneehertz 发表于 2018-5-10 23:09</a>
@@ -13402,16 +8903,10 @@ OST这曲名是不是钦定的味道太重了阿</blockquote>
 你说的是哪一首啊，如果是你正在听的这一首的话，这里的“she”说的是凛。
 
 
-
-
-
-
-
 -----
 
 ####  被子十三  
 ##### 671#       发表于 2018-5-11 02:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39551771&amp;ptid=1359460" target="_blank">blood_iron 发表于 2018-5-10 23:03</a>
@@ -13424,26 +8919,15 @@ OST这曲名是不是钦定的味道太重了阿</blockquote>
 UBW的TV动画开始就在打补丁了，其实Saber看到伊莉雅的时候是愣了一下的（好像还念叨了一句“爱因兹贝伦”），可能演出做得不够明显吧
 
 
-
-
-
-
-
 -----
 
 ####  ReginaldMorgan  
 ##### 672#       发表于 2018-5-11 02:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39535141&amp;ptid=1359460" target="_blank">被子十三 发表于 2018-5-9 17:40</a>
 第二章的PV居然连雨夜都没有，咋回事</blockquote>
 直觉告诉我，二章pv最后一个镜头是雨中樱（我瞎说的）
-
-
-
-
-
 
 
 -----
@@ -13452,14 +8936,7 @@ UBW的TV动画开始就在打补丁了，其实Saber看到伊莉雅的时候是�
 ##### 673#       发表于 2018-5-11 10:20
 
 
-
-
 说起来C妈为什么要用刀戳自己？
-
-
-
-
-
 
 
 -----
@@ -13468,15 +8945,9 @@ UBW的TV动画开始就在打补丁了，其实Saber看到伊莉雅的时候是�
 ##### 674#       发表于 2018-5-11 10:37
 
 
-
 <blockquote>powerpyc 发表于 2018-5-11 10:20
 说起来C妈为什么要用刀戳自己？</blockquote>
 解除和老师之间的契约
-
-
-
-
-
 
 
 -----
@@ -13485,16 +8956,10 @@ UBW的TV动画开始就在打补丁了，其实Saber看到伊莉雅的时候是�
 ##### 675#       发表于 2018-5-11 10:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39555422&amp;ptid=1359460" target="_blank">秋球 发表于 2018-5-11 10:37</a>
 
 解除和老师之间的契约</blockquote>
 然后复仇？但是没想到assassin速度太快还没来得及就被秒杀了？
-
-
-
-
-
 
 
 -----
@@ -13503,16 +8968,10 @@ UBW的TV动画开始就在打补丁了，其实Saber看到伊莉雅的时候是�
 ##### 676#       发表于 2018-5-11 10:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39553018&amp;ptid=1359460" target="_blank">ReginaldMorgan 发表于 2018-5-11 02:29</a>
 
 直觉告诉我，二章pv最后一个镜头是雨中樱（我瞎说的）</blockquote>
 PV没有，但是BD里的次回预告里面有……
-
-
-
-
-
 
 
 -----
@@ -13521,24 +8980,16 @@ PV没有，但是BD里的次回预告里面有……
 ##### 677#         楼主| 发表于 2018-5-11 11:05
 
 
-
-
 hf
 
 链接：[https://pan.baidu.com/s/1oHjMDc9MDLayIMELeM5GZw](https://pan.baidu.com/s/1oHjMDc9MDLayIMELeM5GZw) 密码：6ric
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fr75tdc12nj21kw2d2b29.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 678#       发表于 2018-5-11 11:18
-
 
 
 <blockquote>xingenge 发表于 2018-5-11 11:05
@@ -13550,17 +9001,10 @@ hf
 游戏大家都只穿一两件衣服的样子，HF线游戏下雨能当20度上下，剧场版都下雪0度了坚持秋衣是种什么精神
 
 
-
-
-
-
-
 -----
 
 ####  qazkevin  
 ##### 679#       发表于 2018-5-11 11:31
-
-
 
 
 三个剧场版能等个5年………不过新世纪福音战士的剧场版也是有生之年了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -13568,16 +9012,10 @@ hf
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  hououmon  
 ##### 680#       发表于 2018-5-11 11:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39555189&amp;ptid=1359460" target="_blank">powerpyc 发表于 2018-5-11 10:20</a>
@@ -13588,16 +9026,10 @@ hf
 我看片子的时候感觉是不是小次郎归C妈管，所以从小次郎身体出生的忠义无双也受制于C妈，所以要逼C妈解除这层契约？
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 681#       发表于 2018-5-11 11:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39556002&amp;ptid=1359460" target="_blank">消防 发表于 2018-5-11 11:18</a>
@@ -13609,16 +9041,10 @@ hf
 怎么说呢，游戏里第一个H戏里那身乡土打扮和文字描述的“妖艳”，我是联系不起来的，就是提着裙子流XX的那张图
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 682#       发表于 2018-5-11 11:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39556210&amp;ptid=1359460" target="_blank">hououmon 发表于 2018-5-11 11:33</a>
@@ -13628,25 +9054,13 @@ hf
 C妈被坑这段漫画也有，算是官方补完一些细节吧
 
 
-
-
-
-
-
 -----
 
 ####  华发夜眼[CN]  
 ##### 683#       发表于 2018-5-11 11:46
 
 
-
-
 过了这么多天还没别家的字幕吗。。。实在不想看幻听的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13655,14 +9069,7 @@ C妈被坑这段漫画也有，算是官方补完一些细节吧
 ##### 684#       发表于 2018-5-11 13:48
 
 
-
-
 看完，感觉叙事实在不能算好，各场景衔接很突兀，和ubw剧场版也没好到哪去。只能说是给那些HF真爱粉和看之前半年内特意又通了一遍HF的人去看了，就这样也能有10多亿的票房，真是神奇。。
-
-
-
-
-
 
 
 -----
@@ -13671,16 +9078,10 @@ C妈被坑这段漫画也有，算是官方补完一些细节吧
 ##### 685#       发表于 2018-5-11 13:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39556309&amp;ptid=1359460" target="_blank">圈量子 发表于 2018-5-11 11:41</a>
 
 C妈被坑这段漫画也有，算是官方补完一些细节吧</blockquote>
 漫画里算是把这段补了一下，人民教师被虫子控制然后caster想用刀解除魔法结果却杀死了人民教师，这时士郎saber赶到。剧场版为了简化把saber砍caster都给省了。
-
-
-
-
-
 
 
 -----
@@ -13689,22 +9090,15 @@ C妈被坑这段漫画也有，算是官方补完一些细节吧</blockquote>
 ##### 686#       发表于 2018-5-11 15:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39555422&amp;ptid=1359460" target="_blank">秋球 发表于 2018-5-11 10:37</a>
 解除和老师之间的契约</blockquote>
 是解除和真A之间的契约吧，这样真A才能杀她
-
-
-
-
-
 
 
 -----
 
 ####  被子十三  
 ##### 687#       发表于 2018-5-11 15:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39556309&amp;ptid=1359460" target="_blank">圈量子 发表于 2018-5-11 11:41</a>
@@ -13716,16 +9110,10 @@ C妈被坑这段漫画也有，算是官方补完一些细节吧</blockquote>
 漫画专门用了一整话来补充这块的剧情（从葛木在学校自己发现被虫子控制了开始），而且这块处理的也更接近原作，个人觉得比限制了篇幅的剧场版好很多。
 
 
-
-
-
-
-
 -----
 
 ####  ReginaldMorgan  
 ##### 688#       发表于 2018-5-11 16:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39555710&amp;ptid=1359460" target="_blank">被子十三 发表于 2018-5-11 10:59</a>
@@ -13736,16 +9124,10 @@ PV没有，但是BD里的次回预告里面有……</blockquote>
 原来二章已经出了单独的PV了嘛（火星救援.jpg）<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  被子十三  
 ##### 689#       发表于 2018-5-11 18:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39559434&amp;ptid=1359460" target="_blank">ReginaldMorgan 发表于 2018-5-11 16:14</a>
@@ -13756,16 +9138,10 @@ PV没有，但是BD里的次回预告里面有……</blockquote>
 598楼和600楼。
 
 
-
-
-
-
-
 -----
 
 ####  lzld  
 ##### 690#       发表于 2018-5-11 19:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39556002&amp;ptid=1359460" target="_blank">消防 发表于 2018-5-11 11:18</a>
@@ -13776,17 +9152,10 @@ PV没有，但是BD里的次回预告里面有……</blockquote>
 看片中的剧情，我猜应该是：樱在梦中看到士郎在柳洞寺受伤，醒来后发现士郎不见了，所以就匆匆套上一件大衣往外面跑等士郎回来，本来想着自己看到的只是做梦，士郎很快回来的，心里很焦急就没想着回去加衣服
 
 
-
-
-
-
-
 -----
 
 ####  cooljoe  
 ##### 691#       发表于 2018-5-11 19:10
-
-
 
 
 动画党请问 heaven's feel这个副标题是什么意思？
@@ -13794,16 +9163,10 @@ PV没有，但是BD里的次回预告里面有……</blockquote>
 天堂的感觉？谁的感觉？感觉什么？
 
 
-
-
-
-
-
 -----
 
 ####  blood_iron  
 ##### 692#       发表于 2018-5-11 19:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39561375&amp;ptid=1359460" target="_blank">cooljoe 发表于 2018-5-11 19:10</a>
@@ -13814,16 +9177,10 @@ PV没有，但是BD里的次回预告里面有……</blockquote>
 Heaven’s Feel的确指的是第三法“天之杯”，但这条路线之所以叫做Heaven’s Feel，却不只是因为对应圣杯战争的本质，它同样反映了作为女主角的间桐樱的境遇，即“身在地狱，宛若天堂”，是一个双关语。
 
 
-
-
-
-
-
 -----
 
 ####  仓鼠胖太  
 ##### 693#       发表于 2018-5-11 19:29
-
 
 
 <blockquote>cooljoe 发表于 2018-5-11 19:10
@@ -13835,16 +9192,10 @@ Heaven’s Feel的确指的是第三法“天之杯”，但这条路线之所�
 国内也有译为宛若天堂，配合着樱线剧情，感觉特别emmmmm
 
 
-
-
-
-
-
 -----
 
 ####  cooljoe  
 ##### 694#       发表于 2018-5-11 19:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39561546&amp;ptid=1359460" target="_blank">blood_iron 发表于 2018-5-11 19:26</a>
@@ -13853,16 +9204,10 @@ Heaven’s Feel的确指的是第三法“天之杯”，但这条路线之所�
 樱惨的一匹....大概懂了
 
 
-
-
-
-
-
 -----
 
 ####  茴香蚪  
 ##### 695#       发表于 2018-5-11 19:46
-
 
 
  本帖最后由 茴香蚪 于 2018-5-11 20:30 编辑 
@@ -13874,25 +9219,13 @@ Heaven’s Feel的确指的是第三法“天之杯”，但这条路线之所�
 “Heaven's Feel”和“天の杯”之间的关系不是原文和翻译的关系，而是“读作XX写作XX”的关系，也就是说“天の杯”的读音就是Heaven's Feel。所以，在将“天の杯”的读音“Heaven's Feel”本身写出来当作标题的时候，我认为翻译为“天之杯”反而是不合适的，可以选择直接按英语字面意思直译或意译Heaven's Feel。
 
 
-
-
-
-
-
 -----
 
 ####  black199  
 ##### 696#       发表于 2018-5-11 22:42
 
 
-
-
 heaven's feel就算意译 宛如天堂也翻反了
-
-
-
-
-
 
 
 -----
@@ -13901,17 +9234,10 @@ heaven's feel就算意译 宛如天堂也翻反了
 ##### 697#       发表于 2018-5-11 23:29
 
 
-
-
 第二章啥时候出啊?
 
 
 还有这剧情你们真的看得懂?我玩过游戏的都觉得很多地方看不懂了...
-
-
-
-
-
 
 
 -----
@@ -13920,13 +9246,7 @@ heaven's feel就算意译 宛如天堂也翻反了
 ##### 698#       发表于 2018-5-12 00:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">动画党比较懵可以理解，游戏党怎么做到三线全通看不懂片子的
-
-
-
-
-
 
 
 -----
@@ -13935,21 +9255,13 @@ heaven's feel就算意译 宛如天堂也翻反了
 ##### 699#       发表于 2018-5-12 06:19
 
 
-
-
 感觉又多了几个老婆<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">军刀倒是没多少感觉了
-
-
-
-
-
 
 
 -----
 
 ####  melvin117  
 ##### 700#       发表于 2018-5-12 07:09
-
 
 
  本帖最后由 melvin117 于 2018-5-12 07:33 编辑 
@@ -13961,13 +9273,11 @@ R姐最後的出場<img src="https://static.saraba1st.com/image/smiley/face2017/
 黑呆毛最後露了臉，好騷
 
 
-
 劇情，額，覺得看不懂冒著被劇透的風險去科普個15分鐘基本就會明白了。
 
 有幾個小伙伴看不懂然後要我幫他們科普了一下。
 
 砍了很多日常+發展可是觀感還是稍微有點悶。
-
 
 
 畫質，屌。
@@ -13987,7 +9297,6 @@ R姐最後的出場<img src="https://static.saraba1st.com/image/smiley/face2017/
 至於UFO臉，空境十年下來了還是那樣，UFO畫人物的技術就那樣吧<img src="https://static.saraba1st.com/image/smiley/carton2017/077.gif" referrerpolicy="no-referrer">
 
 
-
 梶浦大媽這次的OST是空境+UBW ED+SAO的remix<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 沒法評價質量，音監他媽的切腹吧，太多時間背景都是靜音。
@@ -13995,13 +9304,7 @@ R姐最後的出場<img src="https://static.saraba1st.com/image/smiley/face2017/
 再來說一次Aimer的花之歌他媽的難聽。
 
 
-
 作為Fate宇宙的“婦聯”，不過不失，沒在電影院看IMAX版真是錯過了。
-
-
-
-
-
 
 
 -----
@@ -14010,14 +9313,7 @@ R姐最後的出場<img src="https://static.saraba1st.com/image/smiley/face2017/
 ##### 701#       发表于 2018-5-12 07:45
 
 
-
-
 忠义无双真a在hf线可是人头王啊，不过几段原作一代而过的打戏在这里特别强化描写有种迷之微妙感，完全照搬原作hf线前期太沉闷么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">顺带后期和樱的几个h sense是直接全年龄化还是一笔带过？其他几线的h场景替换掉其实无伤大雅，但是樱这边要是砍掉这几段对她的心境塑造会直接差一大截吧
-
-
-
-
-
 
 
 -----
@@ -14026,13 +9322,7 @@ R姐最後的出場<img src="https://static.saraba1st.com/image/smiley/face2017/
 ##### 702#       发表于 2018-5-12 10:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我再重复一次 ufo脸非常难看 比wada脸还要难看
-
-
-
-
-
 
 
 -----
@@ -14041,16 +9331,9 @@ R姐最後的出場<img src="https://static.saraba1st.com/image/smiley/face2017/
 ##### 703#       发表于 2018-5-12 11:44
 
 
-
-
 几场大战做的挺好的饿，很烧钱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，说起来开头那几分钟是暗示二爷和士朗关系恶化的原因之一吗
 
 凛的脸感觉ubw时期好看很多了<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">，而官方玩麻婆那个梗笑死我了
-
-
-
-
-
 
 
 -----
@@ -14059,16 +9342,10 @@ R姐最後的出場<img src="https://static.saraba1st.com/image/smiley/face2017/
 ##### 704#       发表于 2018-5-12 11:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39566721&amp;ptid=1359460" target="_blank">priquest 发表于 2018-5-12 10:49</a>
 
 我再重复一次 ufo脸非常难看 比wada脸还要难看</blockquote>
 但感觉凛的脸ubw时期好看很多了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14077,15 +9354,9 @@ R姐最後的出場<img src="https://static.saraba1st.com/image/smiley/face2017/
 ##### 705#       发表于 2018-5-12 12:40
 
 
-
  本帖最后由 茴香蚪 于 2018-5-12 12:41 编辑 
 
 Aimer的花呗，之前还没看片子的时候单独听确实觉得。。非常难听。。不过在经过正片里无数的花呗remix轰炸以后，最后再听到ED确实觉得顺耳了不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">梶浦还是谁貌似也说了，他们有意在正片里加入大量的花呗remix，以使观众在最后听到ED的时候能感觉到这个旋律很熟悉。
-
-
-
-
-
 
 
 -----
@@ -14094,16 +9365,9 @@ Aimer的花呗，之前还没看片子的时候单独听确实觉得。。非常
 ##### 706#       发表于 2018-5-12 13:09
 
 
-
-
 徕卡啊，黑社会人家真是有钱。。。
 
 — from OnePlus ONEPLUS A3010, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v1.3.3.2-play
-
-
-
-
-
 
 
 -----
@@ -14112,23 +9376,15 @@ Aimer的花呗，之前还没看片子的时候单独听确实觉得。。非常
 ##### 707#       发表于 2018-5-12 13:13
 
 
-
-
 十几年过去了还是想吐槽一句，傻哭啦这茄子色头发真是败笔，否则人气还能稍微高点<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
 — from OnePlus ONEPLUS A3010, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v1.3.3.2-play
-
-
-
-
-
 
 
 -----
 
 ####  消防  
 ##### 708#       发表于 2018-5-12 13:21
-
 
 
 <blockquote>Mafise 发表于 2018-5-12 13:13
@@ -14141,16 +9397,10 @@ Aimer的花呗，之前还没看片子的时候单独听确实觉得。。非常
 FGO之后，没有可靠数据讨论排名，但身为起始作女主角基本盘还在，几个分身人气也不错，还想咋样
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 709#       发表于 2018-5-12 14:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39568255&amp;ptid=1359460" target="_blank">消防 发表于 2018-5-12 13:21</a>
@@ -14161,16 +9411,10 @@ FGO之后，没有可靠数据讨论排名，但身为起 ...</blockquote>
 话说saber第一章是不是对樱身体已经隐约有了点怀疑，道场那里说了一句只是身体不好吗，但愿是我多想了...
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 710#       发表于 2018-5-12 14:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39536554&amp;ptid=1359460" target="_blank">六花自我中 发表于 2018-5-9 19:38</a>
@@ -14179,16 +9423,10 @@ FGO之后，没有可靠数据讨论排名，但身为起 ...</blockquote>
 说白了还是能做的事情还是太少了，她这样被利用，需要自己和自己做斗争却又不是第一主角的人在戏份上吃亏是注定的，而hf线本身就是被戏称半个伊利亚线，而凛又连续其他两线的重要同伴外加姐妹情选择
 
 
-
-
-
-
-
 -----
 
 ####  Mafise  
 ##### 711#       发表于 2018-5-12 14:59
-
 
 
  本帖最后由 Mafise 于 2018-5-12 15:11 编辑 
@@ -14198,24 +9436,13 @@ FGO之后，没有可靠数据讨论排名，但身为起 ...</blockquote>
 废狗毁了fate的氛围，这部堪称正本清源
 
 
-
-
-
-
-
 -----
 
 ####  isowowsl  
 ##### 712#       发表于 2018-5-12 15:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">伊利亚：我的路线呢
-
-
-
-
-
 
 
 -----
@@ -14224,16 +9451,10 @@ FGO之后，没有可靠数据讨论排名，但身为起 ...</blockquote>
 ##### 713#       发表于 2018-5-12 15:15
 
 
-
 [https://share.dmhy.org/topics/vi ... 264_DTS-HDMAx2.html](https://share.dmhy.org/topics/view/489876_Moozzi2_Fate_Stay_Night_Heaven_s_Feel_Vol_01_I_presage_flower_BD_1920x1080_x264_DTS-HDMAx2.html)
 
 
 终于有组压特典DVD了，赞一个。里面有間桐家舞台挨拶  可以难得的看见浅川谈rider和神谷谈慎二
-
-
-
-
-
 
 
 -----
@@ -14242,16 +9463,10 @@ FGO之后，没有可靠数据讨论排名，但身为起 ...</blockquote>
 ##### 714#       发表于 2018-5-12 15:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39569246&amp;ptid=1359460" target="_blank">isowowsl 发表于 2018-5-12 15:09</a>
 
 伊利亚：我的路线呢</blockquote>
 有啊，魔伊不就是，有TV还有剧场版<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14260,16 +9475,10 @@ FGO之后，没有可靠数据讨论排名，但身为起 ...</blockquote>
 ##### 715#       发表于 2018-5-12 15:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39566721&amp;ptid=1359460" target="_blank">priquest 发表于 2018-05-12 10:49:35</a>
 我再重复一次 ufo脸非常难看 比wada脸还要难看</blockquote>ufo男人脸非常好看(严肃)
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -14278,16 +9487,10 @@ FGO之后，没有可靠数据讨论排名，但身为起 ...</blockquote>
 ##### 716#       发表于 2018-5-12 16:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39569312&amp;ptid=1359460" target="_blank">風駿 发表于 2018-5-12 15:19</a>
 
 有啊，魔伊不就是，有TV还有剧场版</blockquote>
 剧场版<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14296,16 +9499,10 @@ FGO之后，没有可靠数据讨论排名，但身为起 ...</blockquote>
 ##### 717#       发表于 2018-5-12 17:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39569312&amp;ptid=1359460" target="_blank">風駿 发表于 2018-5-12 15:19</a>
 
 有啊，魔伊不就是，有TV还有剧场版</blockquote>
 那也没骑到欧豆豆啊<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14314,16 +9511,9 @@ FGO之后，没有可靠数据讨论排名，但身为起 ...</blockquote>
 ##### 718#       发表于 2018-5-12 17:55
 
 
-
-
 中学生樱真好看<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
 —— 来自 HUAWEI KNT-AL20, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.0-play
-
-
-
-
-
 
 
 -----
@@ -14332,15 +9522,9 @@ FGO之后，没有可靠数据讨论排名，但身为起 ...</blockquote>
 ##### 719#       发表于 2018-5-12 18:05
 
 
-
  本帖最后由 cybernetics 于 2018-5-12 18:10 编辑 
 
 还没有新的字幕组吗 压制的倒是有不少 实在不想看幻之的    vcb的1080p已出 [https://vcb-s.com/archives/8386](https://vcb-s.com/archives/8386)
-
-
-
-
-
 
 
 -----
@@ -14349,14 +9533,7 @@ FGO之后，没有可靠数据讨论排名，但身为起 ...</blockquote>
 ##### 720#       发表于 2018-5-12 18:26
 
 
-
-
 先下载VCB的肉等字幕了，若是有，不知道3组（就算有，首发大概率也是720p内嵌吧）和雪飘哪个先出
-
-
-
-
-
 
 
 -----
@@ -14365,14 +9542,7 @@ FGO之后，没有可靠数据讨论排名，但身为起 ...</blockquote>
 ##### 721#       发表于 2018-5-12 19:17
 
 
-
-
 幻之其他空耳也就算了，saber和樱谈完话后第一次见士郎那里，把一句自责的话给翻成打小报告，不能忍<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14381,14 +9551,7 @@ FGO之后，没有可靠数据讨论排名，但身为起 ...</blockquote>
 ##### 722#       发表于 2018-5-12 21:37
 
 
-
-
 幻听根本连原作都没玩过吧，士郎第一次见麻婆那句“高兴吧少年，对于正义的使者邪恶是必要的”居然能翻成“正义的使者需要去打倒邪恶”，简直无语了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14397,14 +9560,7 @@ FGO之后，没有可靠数据讨论排名，但身为起 ...</blockquote>
 ##### 723#       发表于 2018-5-12 23:12
 
 
-
-
 突然发现hf的特典里有神谷，浅川悠谈二爷和rider的角色的部分<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14413,14 +9569,7 @@ FGO之后，没有可靠数据讨论排名，但身为起 ...</blockquote>
 ##### 724#       发表于 2018-5-12 23:53
 
 
-
-
 浅川悠真人好棒啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">骚想干
-
-
-
-
-
 
 
 -----
@@ -14429,16 +9578,9 @@ FGO之后，没有可靠数据讨论排名，但身为起 ...</blockquote>
 ##### 725#       发表于 2018-5-13 00:06
 
 
-
-
 拍的真是好啊，打戏相当精彩，阴郁的氛围营造得很棒，当初追fate的感觉又回来了，感觉ufo去拍剧场版是对的，老本行，把握得住节奏
 
 这次bgm好多花之呗的remix<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14447,24 +9589,15 @@ FGO之后，没有可靠数据讨论排名，但身为起 ...</blockquote>
 ##### 726#       发表于 2018-5-13 01:34
 
 
-
-
 必须打倒的恶是必需的，这句我也听出来，所以有些地方觉得台词怪怪的其实有可能是字幕的关系？
 
 这部氛围的确在fate本编是最好，有些不懂的细节和设定完全不影响。我不知道黑影是什么，反而一直期待，觉得三条线都有新鲜感，不错。
-
-
-
-
-
 
 
 -----
 
 ####  madrid2011  
 ##### 727#       发表于 2018-5-13 16:52
-
-
 
 
 【製作過程】 Fate/stay night HF劇場版 動畫製作 公式完全版 [Heaven's Feel] I - presage flower 
@@ -14474,17 +9607,10 @@ Fate stay night Heaven's Feel I - presage flower - Animation Material (Official 
 [https://www.bilibili.com/video/av23376620/](https://www.bilibili.com/video/av23376620/)
 
 
-
-
-
-
-
 -----
 
 ####  茴香蚪  
 ##### 728#       发表于 2018-5-13 18:34
-
-
 
 
 [諸神&amp;豌豆&amp;風之聖殿][劇場版][命運停駐之夜 天之杯 I -預示之花-][Fate/stay night Heaven's Feel I.presage flower][繁日雙語字幕][BDRip][720P][MP4]
@@ -14496,16 +9622,10 @@ magnet:?xt=urn:btih:3192b06aef7dc75604e22957dc7f052275109f7c
 下午4点39分发布的，终于有其他字幕组的了，三组联合。目前只有繁体。
 
 
-
-
-
-
-
 -----
 
 ####  gpx234mqx  
 ##### 729#       发表于 2018-5-13 19:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39582993&amp;ptid=1359460" target="_blank">茴香蚪 发表于 2018-5-13 18:34</a>
@@ -14514,16 +9634,10 @@ magnet:?xt=urn:btih:3192b06aef7dc75604e22957dc7f052275109f7c
 1080P没有？
 
 
-
-
-
-
-
 -----
 
 ####  茴香蚪  
 ##### 730#       发表于 2018-5-13 19:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39583714&amp;ptid=1359460" target="_blank">gpx234mqx 发表于 2018-5-13 19:48</a>
@@ -14532,16 +9646,10 @@ magnet:?xt=urn:btih:3192b06aef7dc75604e22957dc7f052275109f7c
 估计之后会发？
 
 
-
-
-
-
-
 -----
 
 ####  shanajiang  
 ##### 731#       发表于 2018-5-13 20:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39582993&amp;ptid=1359460" target="_blank">茴香蚪 发表于 2018-5-13 18:34</a>
@@ -14550,17 +9658,10 @@ magnet:?xt=urn:btih:3192b06aef7dc75604e22957dc7f052275109f7c
 有抽出来的字幕吗？
 
 
-
-
-
-
-
 -----
 
 ####  茴香蚪  
 ##### 732#       发表于 2018-5-13 23:14
-
-
 
 
 除之前那个手抄版幻之字幕以外的外挂字幕终于来了：
@@ -14572,27 +9673,15 @@ magnet:?xt=urn:btih:3192b06aef7dc75604e22957dc7f052275109f7c
 magnet:?xt=urn:btih:fb590cba45db09085787d886bbbfce323db88a34
 
 
-
-
-
-
-
 -----
 
 ####  jacklibran  
 ##### 733#       发表于 2018-5-13 23:20
 
 
-
-
 初中版樱太可爱了
 
 原本一直对樱没什么感觉的看了HF突然有点心动
-
-
-
-
-
 
 
 -----
@@ -14601,14 +9690,7 @@ magnet:?xt=urn:btih:fb590cba45db09085787d886bbbfce323db88a34
 ##### 734#       发表于 2018-5-13 23:28
 
 
-
-
 看了两遍，fate真是有毒，过了这么多年情节都还记得。樱的先辈力真是太高了。
-
-
-
-
-
 
 
 -----
@@ -14617,23 +9699,15 @@ magnet:?xt=urn:btih:fb590cba45db09085787d886bbbfce323db88a34
 ##### 735#       发表于 2018-5-14 21:00
 
 
-
-
 [千夏字幕组&amp;VCB-Studio] Fate/stay night Heaven's Feel I.presage flower / 命运停驻之夜 天之杯 预示之花 10-bit 1080p HEVC BDRip [Fin]
 
 [https://share.dmhy.org/topics/vi ... HEVC_BDRip_Fin.html](https://share.dmhy.org/topics/view/490139_VCB-Studio_Fate_stay_night_Heaven_s_Feel_I_presage_flower_10-bit_1080p_HEVC_BDRip_Fin.html)
-
-
-
-
-
 
 
 -----
 
 ####  龙娘777  
 ##### 736#       发表于 2018-5-14 21:35
-
 
 
  本帖最后由 龙娘777 于 2018-5-14 21:37 编辑 
@@ -14653,17 +9727,10 @@ magnet:?xt=urn:btih:fb590cba45db09085787d886bbbfce323db88a34
 补充一个，如果土狼中出樱应该不会怀孕吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 
 
 
-
-
-
-
-
 -----
 
 ####  一刀捅死大萌德  
 ##### 737#       发表于 2018-5-14 23:56
-
-
 
 
 初动好像6w2左右，不过可能是假榜。
@@ -14671,16 +9738,10 @@ magnet:?xt=urn:btih:fb590cba45db09085787d886bbbfce323db88a34
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  突发性哮喘病患  
 ##### 738#       发表于 2018-5-15 00:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39596483&amp;ptid=1359460" target="_blank">龙娘777 发表于 2018-5-14 21:35</a>
@@ -14692,7 +9753,6 @@ magnet:?xt=urn:btih:fb590cba45db09085787d886bbbfce323db88a34
 <img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">当然是好基友慎二送过去的啊，两人在初中是铁哥们
 
 
-
 奈须：对士郎而言是令人作呕的朋友。然而他不是普通的恶心家伙。而是有着别扭的过去产生了误解的麻烦人。还有我想应该需要「这家伙成为御主的话，一般会滥用这份力量吧？」这种忠实于人类的欲望，爱做什么做什么的友人角色。间桐慎二就是因为这种意义而诞生了。（《Fate/complete material II Character material》评 [1]  ）
 
 奈须：他仅是因为天生的身体机能就被说成「派不上用场」，所以成为御主时简单是人生的春天。先不说樱，我想他意外地真心认为和士郎共同斗争也不错吧。因为慎二的「我要利用你」，得先完全认同了对方。另一方面，樱召唤出Rider时，他想着「该来的时刻还是来了」离家出走了。可是慎二看见樱情非得已，于是试着向脏砚说了「比起没有干劲的家伙还是交给我吧」之后，意外地得到「好吧」的回应。慎二大逆转。话是这样说，不是魔术师的慎二即使对Rider说「由现在开始我就是你的御主了」最终也会被拒绝。于是他命令樱造出“伪臣之书”，变得能够使唤作为强大从者的Rider了。这时他的精神终于稳定下来了呢。然后心境变得宽大了，能够容许一些小事。《stay night》里以此为契机，讨厌家伙度比平时的慎二增幅了两成。其实平时的慎二，没有那么横暴（笑）。
@@ -14702,16 +9762,10 @@ magnet:?xt=urn:btih:fb590cba45db09085787d886bbbfce323db88a34
 奈须：这个没办法。Rider成了从者的话谁都会骄傲自满啦！简直进入了各种天堂的状态呢。顺便对慎二来说士郎是竞敌，同时是唯一一个不拘得失和自己相处的男人。虽然对士郎左一句笨蛋右一句笨蛋，但心理上先不管喜恶都以特别的眼光看待他。对慎二来说，士郎是希望待在身边的存在，或者说是无可替代的存在。虽然不知道慎二自己有没有察觉，但看着士郎心里某处应该在想「能活成那样子一定很快活吧」。可是本编里需要「较为简单的敌人」，因此让他变成得意扬扬的坏角色了。要是在本编里也能达到「虽是讨厌的家伙，但好像某处在闪闪发光」的妥协点就好啦。
 
 
-
-
-
-
-
 -----
 
 ####  茴香蚪  
 ##### 739#       发表于 2018-5-15 00:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39596483&amp;ptid=1359460" target="_blank">龙娘777 发表于 2018-5-14 21:35</a>
@@ -14723,16 +9777,10 @@ magnet:?xt=urn:btih:fb590cba45db09085787d886bbbfce323db88a34
 楼上说得不太对。樱在士郎受伤以后去卫宫宅帮忙一开始是脏砚指使的，毕竟切嗣养子，要盯着。
 
 
-
-
-
-
-
 -----
 
 ####  大厨麦当牛  
 ##### 740#       发表于 2018-5-15 00:34
-
 
 
 <blockquote>突发性哮喘病患 发表于 2018-5-15 00:11
@@ -14743,16 +9791,10 @@ magnet:?xt=urn:btih:fb590cba45db09085787d886bbbfce323db88a34
 蘑菇这种动不动就全角色洗白白的习惯是不是fandisk写多了？
 
 
-
-
-
-
-
 -----
 
 ####  akari1864  
 ##### 741#       发表于 2018-5-15 00:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39596483&amp;ptid=1359460" target="_blank">龙娘777 发表于 2018-05-14 21:35:26</a></blockquote>开启樱线确实条件最多，那些选项需要你明确的一开始就以樱为主才行。ubw也在士郎家住过，不过很快就回去了。接着又出了学校那次事故，一年级全员躺进医院。
@@ -14761,16 +9803,10 @@ magnet:?xt=urn:btih:fb590cba45db09085787d886bbbfce323db88a34
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  akari1864  
 ##### 742#       发表于 2018-5-15 00:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39598040&amp;ptid=1359460" target="_blank">大厨麦当牛 发表于 2018-05-15 00:34:03</a>
@@ -14779,26 +9815,15 @@ magnet:?xt=urn:btih:fb590cba45db09085787d886bbbfce323db88a34
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  akari1864  
 ##### 743#       发表于 2018-5-15 00:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39596483&amp;ptid=1359460" target="_blank">龙娘777 发表于 2018-05-14 21:35:26</a></blockquote>虫爷不允许的话，大约不会怀上的。生育机能本身应该没问题，毕竟虫爷想靠樱生一个优秀继承人。
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -14807,24 +9832,16 @@ magnet:?xt=urn:btih:fb590cba45db09085787d886bbbfce323db88a34
 ##### 744#       发表于 2018-5-15 01:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39598040&amp;ptid=1359460" target="_blank">大厨麦当牛 发表于 2018-5-15 00:34</a>
 
 蘑菇这种动不动就全角色洗白白的习惯是不是fandisk写多了？</blockquote>
 本来就这种性格的人，没有圣杯战争的存在的话间桐慎二顶多就是个恶劣但是却说不上坏的普通人，建议玩ha
 
 
-
-
-
-
-
 -----
 
 ####  comet1224  
 ##### 745#       发表于 2018-5-15 05:55
-
-
 
 
 先吹爆吧
@@ -14853,16 +9870,10 @@ FGO動畫最新一集棄
 然後......那黑影網上疑似直接有人用遊戲路線科普了orz
 
 
-
-
-
-
-
 -----
 
 ####  大厨麦当牛  
 ##### 746#       发表于 2018-5-15 09:20
-
 
 
 <blockquote>突发性哮喘病患 发表于 2018-5-15 01:37
@@ -14870,16 +9881,10 @@ FGO動畫最新一集棄
 ha就是fandisk啊，无论本篇有多罪大恶极统统洗白。小安都洗白白艹了一大圈何况二爷。
 
 
-
-
-
-
-
 -----
 
 ####  残烟小筑  
 ##### 747#       发表于 2018-5-15 10:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39596483&amp;ptid=1359460" target="_blank">龙娘777 发表于 2018-5-14 21:35</a>
@@ -14899,32 +9904,19 @@ ha就是fandisk啊，无论本篇有多罪大恶极统统洗白。小安都洗�
 也就是说她对士郎，其实并没有病态的喜欢，更多的是感谢和喜欢的混合，一种理性的爱和献身。
 
 
-
-
-
-
-
 -----
 
 ####  habita  
 ##### 748#       发表于 2018-5-15 10:38
 
 
-
-
 二爷这有什么洗白不洗白的，蘑菇自己都说了本篇就是往简单粗暴的反派上写的，二爷线路早期也有考虑过，更何况士郎在之前一直和二爷是朋友关系，你想想士郎真会跟个坏得彻底的人做朋友？
-
-
-
-
-
 
 
 -----
 
 ####  solaris40  
 ##### 749#       发表于 2018-5-15 11:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39598115&amp;ptid=1359460" target="_blank">akari1864 发表于 2018-5-15 00:44</a>
@@ -14934,17 +9926,10 @@ ha就是fandisk啊，无论本篇有多罪大恶极统统洗白。小安都洗�
 子宫被虫吃了，怎么生？
 
 
-
-
-
-
-
 -----
 
 ####  ArcticIce  
 ##### 750#       发表于 2018-5-15 11:45
-
-
 
 
 有幾個問題。
@@ -14952,16 +9937,10 @@ ha就是fandisk啊，无论本篇有多罪大恶极统统洗白。小安都洗�
 saber好似在沒有咒腕的情況下可以抵禦住黑影的侵蝕，那後面b叔被抓住的時候為什麼又說沒有servant能抵擋黑影呢？
 
 
-
-
-
-
-
 -----
 
 ####  yufeng029  
 ##### 751#       发表于 2018-5-15 12:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39602105&amp;ptid=1359460" target="_blank">ArcticIce 发表于 2018-5-15 11:45</a>
@@ -14976,17 +9955,10 @@ saber好似在沒 ...</blockquote>
 并没有抵御住黑影侵蚀，只是抵御住不被掏心，不然也就不会有黑saber了。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 752#         楼主| 发表于 2018-5-15 17:45
-
-
 
 
 BD
@@ -15052,17 +10024,10 @@ DVD
 *41,659 – *51,262　傷物語1
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 753#         楼主| 发表于 2018-5-15 17:49
-
-
 
 
 [澄空学园&amp;魔术师工房&amp;华盟字幕社] 剧场版Fate/stay night Heaven's Feel I. presage flower MP4 720p
@@ -15085,7 +10050,6 @@ DVD
 [https://share.dmhy.org/topics/vi ... 1080P_x264_AAC.html](https://share.dmhy.org/topics/view/490136_I_Fate_stay_night_Heaven_s_Feel_I_presage_flower_BDRIP_1080P_x264_AAC.html)
 
 
-
 [诸神&amp;豌豆&amp;风之圣殿][剧场版][命运停驻之夜 天之杯 I -预示之花-][Fate/stay night Heaven's Feel I.presage flower][简繁日语字幕][BDRip][1080P][HEVC MKV]
 
 文件大小: 7.7GB
@@ -15101,25 +10065,13 @@ DVD
 没直接给磁链，想了想还是让大家看看字幕组的推广宣传页吧，毕竟他们也辛苦了，我直接复制来好像就让人跳过了这一阶段。
 
 
-
-
-
-
-
 -----
 
 ####  六花自我中  
 ##### 754#       发表于 2018-5-15 17:56
 
 
-
-
 骚果然比法特更民工
-
-
-
-
-
 
 
 -----
@@ -15128,16 +10080,9 @@ DVD
 ##### 755#       发表于 2018-5-15 18:08
 
 
-
-
 三组果然出了，一如既往的720P内嵌……
 
 再等一周看看能不能等到外挂1080P版，要是没有就先拿千夏&amp;VCB解馋了<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15146,16 +10091,10 @@ DVD
 ##### 756#       发表于 2018-5-15 18:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39601585&amp;ptid=1359460" target="_blank">solaris40 发表于 2018-5-15 11:12</a>
 
 子宫被虫吃了，怎么生？</blockquote>
 吓的我出去谷歌了一圈，发现S1以前就讨论过， 淫 虫  喜欢吃胎盘而已，不是子宫。
-
-
-
-
-
 
 
 -----
@@ -15164,16 +10103,10 @@ DVD
 ##### 757#       发表于 2018-5-15 18:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39598040&amp;ptid=1359460" target="_blank">大厨麦当牛 发表于 2018-5-15 00:34</a>
 
 蘑菇这种动不动就全角色洗白白的习惯是不是fandisk写多了？</blockquote>
 但从本篇看，我一直觉得蘑菇思路很奇怪，二爷完全可以塑造成稍微不说有逼格但至少正常点的反派，而不是现在这种小丑却又无实力的逗逼感，很大可能是当初fate是后宫色彩的gal起点出发，因此如果这种基友色彩的角色戏份太多可能会勾走妹子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15182,16 +10115,10 @@ DVD
 ##### 758#       发表于 2018-5-15 18:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39606368&amp;ptid=1359460" target="_blank">alcard 发表于 2018-5-15 18:39</a>
 
 吓的我出去谷歌了一圈，发现S1以前就讨论过， 淫 虫  喜欢吃胎盘而已，不是子宫。 ...</blockquote>
 sakura怀孕过？
-
-
-
-
-
 
 
 -----
@@ -15200,22 +10127,15 @@ sakura怀孕过？
 ##### 759#       发表于 2018-5-15 19:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39606368&amp;ptid=1359460" target="_blank">alcard 发表于 2018-5-15 18:39</a>
 吓的我出去谷歌了一圈，发现S1以前就讨论过， 淫 虫  喜欢吃胎盘而已，不是子宫。 ...</blockquote>
 太久，记错了。。。
-
-
-
-
-
 
 
 -----
 
 ####  alcard  
 ##### 760#       发表于 2018-5-15 19:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39606468&amp;ptid=1359460" target="_blank">六花自我中 发表于 2018-5-15 18:50</a>
@@ -15240,21 +10160,13 @@ sakura怀孕过？</blockquote>
 淫虫这个名称，完全是因为那种特性而被这麼称呼的吧。 
 
 
-
-
 HF线原文
-
-
-
-
-
 
 
 -----
 
 ####  龙娘777  
 ##### 761#       发表于 2018-5-15 19:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=39606767&amp;amp;ptid=1359460" target="_blank">alcard 发表于 2018-5-15 19:20</a>
@@ -15264,16 +10176,10 @@ HF线原文
 所以埋入虫子一秒变rbq？哎 Sakura酱这苦逼<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 762#       发表于 2018-5-15 20:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39606825&amp;ptid=1359460" target="_blank">龙娘777 发表于 2018-5-15 19:26</a>
@@ -15281,16 +10187,10 @@ HF线原文
 而且虫子头部还刻意画成x头的形状…
 
 
-
-
-
-
-
 -----
 
 ####  大厨麦当牛  
 ##### 763#       发表于 2018-5-15 21:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39602105&amp;ptid=1359460" target="_blank">ArcticIce 发表于 2018-5-15 11:45</a>
@@ -15303,16 +10203,10 @@ saber好似在沒 ...</blockquote>
 saber能勉强抵抗黑影我记得原作说的是对魔力超高的缘故吧，毕竟瞪一眼就能无效化C妈魔法，接近魔法免疫。另外saber阿尔托莉雅和其它servant不一样是肉身的。这可能也多多少少有帮助。
 
 
-
-
-
-
-
 -----
 
 ####  六花自我中  
 ##### 764#       发表于 2018-5-15 21:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39606767&amp;ptid=1359460" target="_blank">alcard 发表于 2018-5-15 19:20</a>
@@ -15323,17 +10217,10 @@ saber能勉强抵抗黑影我记得原作说的是对魔力超高的缘故吧，
 操纵c妈的也是这玩意？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  blood_iron  
 ##### 765#       发表于 2018-5-15 21:38
-
-
 
 
 有两点疑问，
@@ -15343,16 +10230,10 @@ saber能勉强抵抗黑影我记得原作说的是对魔力超高的缘故吧，
 二是C妈死得莫名其妙，反复看了好几次都没搞懂为什么C妈没点反抗就挂
 
 
-
-
-
-
-
 -----
 
 ####  xiaocheng  
 ##### 766#       发表于 2018-5-15 22:12
-
 
 
 <blockquote>blood_iron 发表于 2018-5-15 21:38
@@ -15364,16 +10245,10 @@ saber能勉强抵抗黑影我记得原作说的是对魔力超高的缘故吧，
 真A用濒死的葛木逼c妈解除契约，然后c妈就被干死了，葛木也被补刀死了。
 
 
-
-
-
-
-
 -----
 
 ####  blood_iron  
 ##### 767#       发表于 2018-5-15 22:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39608908&amp;ptid=1359460" target="_blank">xiaocheng 发表于 2018-5-15 22:12</a>
@@ -15382,17 +10257,10 @@ saber能勉强抵抗黑影我记得原作说的是对魔力超高的缘故吧，
 C妈行为感觉蠢得无边了，输得不能再输了
 
 
-
-
-
-
-
 -----
 
 ####  df600a  
 ##### 768#       发表于 2018-5-15 23:10
-
-
 
 
 澄空的1080还没出？
@@ -15400,16 +10268,10 @@ C妈行为感觉蠢得无边了，输得不能再输了
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  被子十三  
 ##### 769#       发表于 2018-5-16 00:31
-
 
 
  本帖最后由 被子十三 于 2018-5-16 11:32 编辑 
@@ -15422,25 +10284,13 @@ C妈行为感觉蠢得无边了，输得不能再输了
 以这三家字幕组的性格，1080P可能等几天，可能坑两年（未来福音），可能坑四年（FZ第二季BDRIP）
 
 
-
-
-
-
-
 -----
 
 ####  剑起苍斓  
 ##### 770#       发表于 2018-5-16 00:48
 
 
-
-
 BD今天到了，开心<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15449,22 +10299,15 @@ BD今天到了，开心<img src="https://static.saraba1st.com/image/smiley/face2
 ##### 771#       发表于 2018-5-16 02:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39606431&amp;ptid=1359460" target="_blank">aptx8285144 发表于 2018-5-15 18:47</a>
 但从本篇看，我一直觉得蘑菇思路很奇怪，二爷完全可以塑造成稍微不说有逼格但至少正常点的反派，而不是现 ...</blockquote>
 蘑菇很少会把角色写low，二爷这角色可能是他所有作品里最low的一个角色了，也不知道是出于啥考虑
-
-
-
-
-
 
 
 -----
 
 ####  mhss  
 ##### 772#       发表于 2018-5-16 07:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39610457&amp;ptid=1359460" target="_blank">被子十三 发表于 2018-5-16 00:31</a>
@@ -15475,16 +10318,10 @@ https://share.dmhy.org/topics/view/429992_Fate_Zero_BDRip_BOX2.html
 —— 来自 Sony H8296, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
-
-
-
-
-
 -----
 
 ####  无聊无束  
 ##### 773#       发表于 2018-5-16 10:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39611123&amp;ptid=1359460" target="_blank">被子十三 发表于 2018-5-16 02:46</a>
@@ -15495,16 +10332,10 @@ https://share.dmhy.org/topics/view/429992_Fate_Zero_BDRip_BOX2.html
 感觉二爷就是樱的扭曲表现形式之一
 
 
-
-
-
-
-
 -----
 
 ####  被子十三  
 ##### 774#       发表于 2018-5-16 11:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39615286&amp;ptid=1359460" target="_blank">mhss 发表于 2018-5-16 07:58</a>
@@ -15514,16 +10345,10 @@ https://share.dmhy.org/topics/view/429992_Fate_Zero_BDRip_BOX2.html</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那这样看只坑了四年，我还以为永远坑下去了
 
 
-
-
-
-
-
 -----
 
 ####  ArcticIce  
 ##### 775#       发表于 2018-5-16 12:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39607970&amp;ptid=1359460" target="_blank">大厨麦当牛 发表于 2018-5-15 21:03</a>
@@ -15531,16 +10356,10 @@ saber能勉强抵抗黑影我记得原作说的是对魔力超高的缘故吧，
 明白了，謝謝
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 776#       发表于 2018-5-16 12:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39608437&amp;ptid=1359460" target="_blank">blood_iron 发表于 2018-5-15 21:38</a>
@@ -15553,16 +10372,10 @@ saber能勉强抵抗黑影我记得原作说的是对魔力超高的缘故吧，
 第一点大概是来诱惑学长的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  eciriganu  
 ##### 777#       发表于 2018-5-16 13:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39610457&amp;ptid=1359460" target="_blank">被子十三 发表于 2018-5-16 00:31</a>
@@ -15571,27 +10384,15 @@ saber能勉强抵抗黑影我记得原作说的是对魔力超高的缘故吧，
 这三家的组合还开了F/E的坑，然而目前只有1-2话……大概又是个有生之年了
 
 
-
-
-
-
-
 -----
 
 ####  紫水晶  
 ##### 778#       发表于 2018-5-16 15:21
 
 
-
-
 话说saku这次经常做的玩发带的小动作老是让我串戏到隔壁啊
 
 —— 来自 Xiaomi MI MAX, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -15600,16 +10401,9 @@ saber能勉强抵抗黑影我记得原作说的是对魔力超高的缘故吧，
 ##### 779#       发表于 2018-5-16 15:25
 
 
-
-
 疑问，你们是怎样在观影时不被串戏到其他场次影响观感的，比如伊莉雅我都是自动脑补嘉年华和魔伊的声音
 
 —— 来自 Xiaomi MI MAX, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -15618,15 +10412,9 @@ saber能勉强抵抗黑影我记得原作说的是对魔力超高的缘故吧，
 ##### 780#       发表于 2018-5-17 00:14
 
 
-
 <img src="http://ww1.sinaimg.cn/large/006PfbOogy1frdmshwfmwj30qu0h4qh7.jpg" referrerpolicy="no-referrer">
 
 这点睛之笔绝了，离完全直译就多加了个饿字。还顺便剧透了
-
-
-
-
-
 
 
 -----
@@ -15635,15 +10423,9 @@ saber能勉强抵抗黑影我记得原作说的是对魔力超高的缘故吧，
 ##### 781#       发表于 2018-5-17 01:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39626166&amp;ptid=1359460" target="_blank">大厨麦当牛 发表于 2018-5-16 11:14</a>
 这点睛之笔绝了，离完全直译就多加了个饿字。还顺便剧透了</blockquote>
 真香<img src="https://static.saraba1st.com/image/smiley/carton2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15652,23 +10434,16 @@ saber能勉强抵抗黑影我记得原作说的是对魔力超高的缘故吧，
 ##### 782#       发表于 2018-5-17 02:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39551258&amp;ptid=1359460" target="_blank">钢の战神 发表于 2018-05-10 22:17:48</a>
 这个刺客什么情况,异型附体了吗 ,起手就孵化出来,然后战斗力爆炸,后面声音都变化了有什么说法么,真主角有没 ...</blockquote>咒腕哈桑在原著里有个固有技能叫自我改造，顾名思义就是可以靠吃其他从者的心脏来获得他们的肉体能力，这里因为他吃了lancer的心脏，所以六维以及心智水平都上升到了和lancer同样的等级，之前从小次郎身体里出来的时候是属于不完全状态，所以话都说不好
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  6x6z6w  
 ##### 783#       发表于 2018-5-17 02:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39608437&amp;ptid=1359460" target="_blank">blood_iron 发表于 2018-05-15 21:38:12</a>
@@ -15681,16 +10456,10 @@ saber能勉强抵抗黑影我记得原作说的是对魔力超高的缘故吧，
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  幽远ghofar  
 ##### 784#       发表于 2018-5-18 00:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39626556&amp;ptid=1359460" target="_blank">烈士鲮鱼 发表于 2018-5-17 01:29</a>
@@ -15704,17 +10473,10 @@ saber能勉强抵抗黑影我记得原作说的是对魔力超高的缘故吧，
 ——“真辣。””
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 785#         楼主| 发表于 2018-7-28 10:55
-
-
 
 
 【劇場版情報】
@@ -15725,25 +10487,13 @@ saber能勉强抵抗黑影我记得原作说的是对魔力超高的缘故吧，
 <img src="http://wx4.sinaimg.cn/large/0068TvVBgy1ftpdyx4errj30xc1cw4b2.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 786#       发表于 2018-7-28 11:05
 
 
-
-
 我TM吹爆！！！
-
-
-
-
-
 
 
 -----
@@ -15752,14 +10502,7 @@ saber能勉强抵抗黑影我记得原作说的是对魔力超高的缘故吧，
 ##### 787#       发表于 2018-7-28 12:26
 
 
-
-
 bd要到明年9月了吧。。。。。
-
-
-
-
-
 
 
 -----
@@ -15768,14 +10511,7 @@ bd要到明年9月了吧。。。。。
 ##### 788#       发表于 2018-7-28 14:26
 
 
-
-
 这个动作有点像我妻由乃啊
-
-
-
-
-
 
 
 -----
@@ -15784,17 +10520,10 @@ bd要到明年9月了吧。。。。。
 ##### 789#       发表于 2018-7-28 14:50
 
 
-
-
 幽浮桌今年接了鬼灭之刃导致二章今年上不了吗
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.29)
-
-
-
-
-
 
 
 -----
@@ -15803,14 +10532,7 @@ bd要到明年9月了吧。。。。。
 ##### 790#       发表于 2018-7-28 15:51
 
 
-
-
 what？拖到明年了。。这形势不妙啊，二章本身剧情最沉闷，那么精彩的三章岂不是要到2020年下半年了
-
-
-
-
-
 
 
 -----
@@ -15819,15 +10541,9 @@ what？拖到明年了。。这形势不妙啊，二章本身剧情最沉闷，�
 ##### 791#       发表于 2018-7-28 19:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40471930&amp;ptid=1359460" target="_blank">frozenblood 发表于 2018-7-28 15:51</a>
 what？拖到明年了。。这形势不妙啊，二章本身剧情最沉闷，那么精彩的三章岂不是要到2020年下半年了 ...</blockquote>
 第二章有全世界樱厨翘首以待的雨夜啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看预告至少有爱因兹贝伦城一战，川澄也说这部剧场版的看头是战斗场面，我觉得肯定比第一部有意思多了
-
-
-
-
-
 
 
 -----
@@ -15836,13 +10552,7 @@ what？拖到明年了。。这形势不妙啊，二章本身剧情最沉闷，�
 ##### 792#       发表于 2018-7-28 19:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">这次只能希望北美早点上映了
-
-
-
-
-
 
 
 -----
@@ -15851,16 +10561,10 @@ what？拖到明年了。。这形势不妙啊，二章本身剧情最沉闷，�
 ##### 793#       发表于 2018-7-28 19:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40473293&amp;ptid=1359460" target="_blank">被子十三 发表于 2018-7-28 06:20</a>
 
 这次只能希望北美早点上映了</blockquote>
 我觉得不行<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">少说得等到三月了
-
-
-
-
-
 
 
 -----
@@ -15869,16 +10573,10 @@ what？拖到明年了。。这形势不妙啊，二章本身剧情最沉闷，�
 ##### 794#       发表于 2018-7-28 21:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40473274&amp;ptid=1359460" target="_blank">被子十三 发表于 2018-7-28 19:17</a>
 
 第二章有全世界樱厨翘首以待的雨夜啊看预告至少有爱因兹贝伦城一战，川澄也说这部剧场版的看头是 ...</blockquote>
 雨夜那个。。好吗？可能也是每个人看点不一样，我还是因为HF线变成的士郎厨，希望能看到士郎解放麒麟臂之后的打戏，可是第二章估计就是到樱黑化抓走伊利亚，中间的士郎甚至比fate线的还要弱。
-
-
-
-
-
 
 
 -----
@@ -15887,16 +10585,9 @@ what？拖到明年了。。这形势不妙啊，二章本身剧情最沉闷，�
 ##### 795#         楼主| 发表于 2018-8-3 17:20
 
 
-
-
 劇場版「Fate/stay night [Heaven's Feel]」 Ⅱ.lost butterfly 特報第1弾 | 2019年1月12日(土)全国ロードショー
 [https://www.youtube.com/watch?v=y22hkcPXJrI&amp;feature=youtu.be](https://www.youtube.com/watch?v=y22hkcPXJrI&amp;feature=youtu.be)
 [https://v.youku.com/v_show/id_XM ... j.8428770.3416059.1](https://v.youku.com/v_show/id_XMzc2MTU4NzM3Ng==.html?spm=a2h3j.8428770.3416059.1)
-
-
-
-
-
 
 
 -----
@@ -15905,14 +10596,7 @@ what？拖到明年了。。这形势不妙啊，二章本身剧情最沉闷，�
 ##### 796#       发表于 2018-8-3 20:01
 
 
-
-
 新预告吹爆，不过本来不是说2018年的吗
-
-
-
-
-
 
 
 -----
@@ -15921,24 +10605,16 @@ what？拖到明年了。。这形势不妙啊，二章本身剧情最沉闷，�
 ##### 797#         楼主| 发表于 2018-8-3 20:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40536955&amp;ptid=1359460" target="_blank">seedees3 发表于 2018-8-3 20:01</a>
 
 新预告吹爆，不过本来不是说2018年的吗</blockquote>
 好像在会场说是年底？可能因为一些原因吧
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 798#         楼主| 发表于 2018-8-7 20:35
-
-
 
 
 士郎は否応なしに正義の味方とと違う道を行かなくてはいけないその葛藤を伝わるようにしたい 
@@ -15964,26 +10640,14 @@ what？拖到明年了。。这形势不妙啊，二章本身剧情最沉闷，�
 アクションシーンは三浦さんがサーヴァント同士の対決を手がけます 
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 799#         楼主| 发表于 2018-8-11 21:14
 
 
-
-
 链接：[https://pan.baidu.com/s/1f3U8DI_wM2j3I9a9UyjOsw](https://pan.baidu.com/s/1f3U8DI_wM2j3I9a9UyjOsw) 密码：by7q
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fu62hwra2kj23yj2itqv6.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15992,15 +10656,8 @@ what？拖到明年了。。这形势不妙啊，二章本身剧情最沉闷，�
 ##### 800#         楼主| 发表于 2018-9-9 10:29
 
 
-
-
 链接：[https://pan.baidu.com/s/1diBxi-JpjnuUG9j2Q0bx2w](https://pan.baidu.com/s/1diBxi-JpjnuUG9j2Q0bx2w) 密码：qxuo
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fv32s4z5e3j23v32l1kjl.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16009,22 +10666,13 @@ what？拖到明年了。。这形势不妙啊，二章本身剧情最沉闷，�
 ##### 801#       发表于 2018-9-9 11:52
 
 
-
-
 什么时候才能看到射杀百头和带走伊利亚，真是度日如年
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 802#         楼主| 发表于 2018-10-6 15:26
-
-
 
 
 劇場版「Fate/stay night [Heaven's Feel]」 Ⅱ.lost butterfly 
@@ -16048,25 +10696,13 @@ what？拖到明年了。。这形势不妙啊，二章本身剧情最沉闷，�
 でも音響監督さんには「そんなの知りません！」と却下されていたのが面白かったです 
 
 
-
-
-
-
-
 -----
 
 ####  dragonfalls  
 ##### 803#       发表于 2018-10-6 15:46
 
 
-
-
 没有删减好评
-
-
-
-
-
 
 
 -----
@@ -16075,20 +10711,13 @@ what？拖到明年了。。这形势不妙啊，二章本身剧情最沉闷，�
 ##### 804#         楼主| 发表于 2018-10-7 12:07
 
 
-
 <img src="http://wx1.sinaimg.cn/large/0068TvVBgy1fvzj09hhd6j30nt0xbdkw.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  消防  
 ##### 805#       发表于 2018-10-7 12:40
-
 
 
  本帖最后由 消防 于 2018-10-7 12:45 编辑 
@@ -16098,26 +10727,14 @@ what？拖到明年了。。这形势不妙啊，二章本身剧情最沉闷，�
 PS：樱怎么又换回游戏的衣服了，第一部剧场版公主袖小白裙就下线了？
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 806#         楼主| 发表于 2018-10-10 11:43
 
 
-
-
 链接：[https://pan.baidu.com/s/1N4XFrvjZp20w0Z71dFzfdQ](https://pan.baidu.com/s/1N4XFrvjZp20w0Z71dFzfdQ) 密码：pzvs
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fw2fn8pdz7j21kw1244qq.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16126,14 +10743,7 @@ PS：樱怎么又换回游戏的衣服了，第一部剧场版公主袖小白裙
 ##### 807#       发表于 2018-10-10 13:34
 
 
-
-
 其实挺期待麻婆传说中的表现<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16142,17 +10752,10 @@ PS：樱怎么又换回游戏的衣服了，第一部剧场版公主袖小白裙
 ##### 808#         楼主| 发表于 2018-10-31 20:06
 
 
-
-
 【劇場版「Fate/stay night [Heaven's Feel] Ⅱ.lost butterfly」の主題歌アーティストが、Aimerに決定！】 
 
 第一章に引き続き、楽曲提供・プロデュースは梶浦由記が担当！
 <img src="http://wx4.sinaimg.cn/large/0068TvVBgy1fwrnp13y1dj30rs0ijaby.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16161,14 +10764,7 @@ PS：樱怎么又换回游戏的衣服了，第一部剧场版公主袖小白裙
 ##### 809#       发表于 2018-10-31 20:26
 
 
-
-
 感觉就是走樱之梦。。。。
-
-
-
-
-
 
 
 -----
@@ -16177,14 +10773,7 @@ PS：樱怎么又换回游戏的衣服了，第一部剧场版公主袖小白裙
 ##### 810#       发表于 2018-10-31 22:58
 
 
-
-
 fate真是看不下去，不如动画化魔法使之夜，青子比fate所有女角色都顺眼
-
-
-
-
-
 
 
 -----
@@ -16193,14 +10782,7 @@ fate真是看不下去，不如动画化魔法使之夜，青子比fate所有女
 ##### 811#       发表于 2018-10-31 23:30
 
 
-
-
 哎呀，又是我家罩罩妹，舔爆<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16209,23 +10791,15 @@ fate真是看不下去，不如动画化魔法使之夜，青子比fate所有女
 ##### 812#       发表于 2018-11-1 00:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41446947&amp;ptid=1359460" target="_blank">baiducaonima 发表于 2018-10-31 22:58</a>
 fate真是看不下去，不如动画化魔法使之夜，青子比fate所有女角色都顺眼</blockquote>
 演出效果很难比游戏好。
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 813#         楼主| 发表于 2018-11-19 15:11
-
-
 
 
 Aimer&amp;staff @Aimer_and_staff
@@ -16239,16 +10813,10 @@ Aimer&amp;staff @Aimer_and_staff
 楽しみにしていて下さいね。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 814#         楼主| 发表于 2018-11-22 10:12
-
 
 
 [https://umabi.jp/fate/](https://umabi.jp/fate/)
@@ -16266,25 +10834,13 @@ JRA × 劇場版「Fate/stay night [Heaven's Feel]」Ⅱ.lost butterfly 超本�
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fxgma23jm8j20m20elgor.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  fshzx  
 ##### 815#       发表于 2018-11-22 10:20
 
 
-
-
 这是raber？
-
-
-
-
-
 
 
 -----
@@ -16293,14 +10849,7 @@ JRA × 劇場版「Fate/stay night [Heaven's Feel]」Ⅱ.lost butterfly 超本�
 ##### 816#         楼主| 发表于 2018-12-14 17:13
 
 
-
-
 国内1月11日
-
-
-
-
-
 
 
 -----
@@ -16309,14 +10858,7 @@ JRA × 劇場版「Fate/stay night [Heaven's Feel]」Ⅱ.lost butterfly 超本�
 ##### 817#         楼主| 发表于 2018-12-14 17:15
 
 
-
-
 译名 命运之夜-天之杯：恶兆之花
-
-
-
-
-
 
 
 -----
@@ -16325,14 +10867,7 @@ JRA × 劇場版「Fate/stay night [Heaven's Feel]」Ⅱ.lost butterfly 超本�
 ##### 818#       发表于 2018-12-14 17:15
 
 
-
-
 会删减得很厉害吗
-
-
-
-
-
 
 
 -----
@@ -16341,14 +10876,7 @@ JRA × 劇場版「Fate/stay night [Heaven's Feel]」Ⅱ.lost butterfly 超本�
 ##### 819#       发表于 2018-12-14 17:21
 
 
-
-
 天天读heaven's feel和hf，差点忘了这章的汉字叫天之杯。天之杯的意义更接近第三章的主题吧。
-
-
-
-
-
 
 
 -----
@@ -16357,22 +10885,15 @@ JRA × 劇場版「Fate/stay night [Heaven's Feel]」Ⅱ.lost butterfly 超本�
 ##### 820#       发表于 2018-12-14 17:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41944138&amp;ptid=1359460" target="_blank">xingenge 发表于 2018-12-14 17:15</a>
 译名 命运之夜-天之杯：恶兆之花</blockquote>
 之之之<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  aptx8285144  
 ##### 821#       发表于 2018-12-14 17:33
-
 
 
 <blockquote>xingenge 发表于 2018-11-22 10:12
@@ -16384,26 +10905,15 @@ https://umabi.jp/fate/
 这图好有喜感呀(
 
 
-
-
-
-
-
 -----
 
 ####  linux40  
 ##### 822#       发表于 2018-12-14 18:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41944275&amp;ptid=1359460" target="_blank">哈尔摩尼亚 发表于 2018-12-14 17:26</a>
 之之之</blockquote>
 我觉得译得挺好的啊
-
-
-
-
-
 
 
 -----
@@ -16412,14 +10922,7 @@ https://umabi.jp/fate/
 ##### 823#       发表于 2018-12-14 18:36
 
 
-
-
 看爆 删减也要看啊 这年头的深夜剧场版就没几部国内上映的
-
-
-
-
-
 
 
 -----
@@ -16428,15 +10931,9 @@ https://umabi.jp/fate/
 ##### 824#       发表于 2018-12-14 18:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41944899&amp;ptid=1359460" target="_blank">linux40 发表于 2018-12-14 18:34</a>
 我觉得译得挺好的啊</blockquote>
 我也想不到更好的了，但这不妨碍我吐槽3个之<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16445,20 +10942,13 @@ https://umabi.jp/fate/
 ##### 825#         楼主| 发表于 2018-12-15 19:51
 
 
-
 <img src="http://wx2.sinaimg.cn/large/0068TvVBgy1fy7o74bfkuj30td0guq4x.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 826#         楼主| 发表于 2018-12-15 20:14
-
 
 
  本帖最后由 xingenge 于 2018-12-15 20:19 编辑 
@@ -16468,16 +10958,10 @@ https://umabi.jp/fate/
 [http://v.youku.com/v_show/id_XMz ... j.8428770.3416059.1](http://v.youku.com/v_show/id_XMzk2NTk0MDM5Mg==.html?spm=a2h3j.8428770.3416059.1)
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 827#       发表于 2018-12-15 20:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41954911&amp;ptid=1359460" target="_blank">xingenge 发表于 2018-12-15 20:14</a>
@@ -16486,27 +10970,15 @@ https://umabi.jp/fate/
 暂停了一下，感觉人物们画风还不错
 
 
-
-
-
-
-
 -----
 
 ####  被子十三  
 ##### 828#       发表于 2018-12-15 21:14
 
 
-
-
 这个主题曲又接受不能了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">大妈这几次给写的歌都得配着剧伴来听才行
 
 — from OnePlus ONEPLUS A6013, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
-
-
-
-
-
 
 
 -----
@@ -16515,23 +10987,15 @@ https://umabi.jp/fate/
 ##### 829#       发表于 2018-12-16 09:47
 
 
-
-
 偷跑版的国内海报，和几个月前流传的一样确实是众合千澄引进的，另外B站在宣传过程中估计要扮演重要角色。
 
 <img src="http://ww1.sinaimg.cn/large/0071mla7ly1fy8ceh7dpwj30qo0zkh2e.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  卡蓮  
 ##### 830#       发表于 2018-12-16 10:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41958570&amp;ptid=1359460" target="_blank">茴香蚪的马甲 发表于 2018-12-16 09:47</a>
@@ -16542,27 +11006,15 @@ https://umabi.jp/fate/
 大型手游广告，不做重要角色才有问题…
 
 
-
-
-
-
-
 -----
 
 ####  Manchesterby  
 ##### 831#       发表于 2018-12-16 13:20
 
 
-
-
 主题曲很带感啊，以前一直觉得梶浦大妈跟aimer不搭来着
 
 不过还是怀念k团<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。。。
-
-
-
-
-
 
 
 -----
@@ -16571,13 +11023,7 @@ https://umabi.jp/fate/
 ##### 832#       发表于 2018-12-17 23:47
 
 
-
 [https://weibo.com/u/6654365846](https://weibo.com/u/6654365846)
-
-
-
-
-
 
 
 -----
@@ -16586,14 +11032,7 @@ https://umabi.jp/fate/
 ##### 833#       发表于 2018-12-18 00:08
 
 
-
-
 海报LOGO位置还有字体感觉有些微妙。
-
-
-
-
-
 
 
 -----
@@ -16602,14 +11041,7 @@ https://umabi.jp/fate/
 ##### 834#       发表于 2018-12-18 10:05
 
 
-
-
 为啥引进这个。。。没多少人看的吧
-
-
-
-
-
 
 
 -----
@@ -16618,14 +11050,7 @@ https://umabi.jp/fate/
 ##### 835#       发表于 2018-12-18 10:10
 
 
-
-
 一眼看不到女主的海报…
-
-
-
-
-
 
 
 -----
@@ -16634,15 +11059,8 @@ https://umabi.jp/fate/
 ##### 836#         楼主| 发表于 2018-12-19 12:03
 
 
-
-
 《命运之夜——天之杯：恶兆之花》中文版PV上线！1月11日，让我们一起粉碎宿命！
 [https://weibo.com/tv/v/H7VXdlo1G?fid=1034:4318902407102241](https://weibo.com/tv/v/H7VXdlo1G?fid=1034:4318902407102241)
-
-
-
-
-
 
 
 -----
@@ -16651,13 +11069,7 @@ https://umabi.jp/fate/
 ##### 837#       发表于 2018-12-19 12:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不好意思 看到logo那里我笑了 
-
-
-
-
-
 
 
 -----
@@ -16666,15 +11078,8 @@ https://umabi.jp/fate/
 ##### 838#       发表于 2018-12-19 12:44
 
 
-
-
 大妈给fate写的歌是越来越难听了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">I
 beg you（指aimer）不要再唱了
-
-
-
-
-
 
 
 -----
@@ -16683,16 +11088,9 @@ beg you（指aimer）不要再唱了
 ##### 839#       发表于 2018-12-19 12:48
 
 
-
-
 国内定档海报电子版大图：
 
 <img src="http://ww1.sinaimg.cn/large/0071mla7ly1fybyil35y0j32lw3tub29.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16701,14 +11099,7 @@ beg you（指aimer）不要再唱了
 ##### 840#       发表于 2018-12-19 13:32
 
 
-
-
 粉碎宿命？粉碎什么宿命，女主没人气的宿命吗？
-
-
-
-
-
 
 
 -----
@@ -16717,14 +11108,7 @@ beg you（指aimer）不要再唱了
 ##### 841#       发表于 2018-12-19 13:35
 
 
-
-
 这logo字体<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16733,14 +11117,7 @@ beg you（指aimer）不要再唱了
 ##### 842#       发表于 2018-12-19 13:39
 
 
-
-
 之前有个公司认证哔哩哔哩影业的蓝v，看起来又换成众合千澄搞的了
-
-
-
-
-
 
 
 -----
@@ -16749,14 +11126,7 @@ beg you（指aimer）不要再唱了
 ##### 843#       发表于 2018-12-19 17:44
 
 
-
-
 各种盗版BD版早刷爆了，最大的悬念是有多少剪刀手和圣光暗牧
-
-
-
-
-
 
 
 -----
@@ -16765,15 +11135,8 @@ beg you（指aimer）不要再唱了
 ##### 844#         楼主| 发表于 2018-12-27 10:39
 
 
-
-
 <img src="http://wx1.sinaimg.cn/large/006MYXpkly1fyl390tauoj30by072q2s.jpg" referrerpolicy="no-referrer">
 <img src="http://wx3.sinaimg.cn/large/006MYXpkly1fyl34h3nolj30tz17tq6t.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16782,16 +11145,10 @@ beg you（指aimer）不要再唱了
 ##### 845#         楼主| 发表于 2018-12-29 10:08
 
 
-
 <img src="http://wx3.sinaimg.cn/large/0068TvVBly1fyncb5iwsoj30xb0qlae7.jpg" referrerpolicy="no-referrer">
 <img src="http://wx1.sinaimg.cn/large/0068TvVBly1fyncbwdid2j30xc0r4jvx.jpg" referrerpolicy="no-referrer">
 <img src="http://wx1.sinaimg.cn/large/0068TvVBly1fyncdgjuntj30oq0x0q6f.jpg" referrerpolicy="no-referrer">
 <img src="http://wx3.sinaimg.cn/large/0068TvVBly1fyncdgk4z3j30oq0x0434.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16800,14 +11157,7 @@ beg you（指aimer）不要再唱了
 ##### 846#       发表于 2019-1-3 17:12
 
 
-
-
 猫眼上看到魔都有点映场了，跪求坛友届时扫雷，看看删节了啥……
-
-
-
-
-
 
 
 -----
@@ -16816,16 +11166,10 @@ beg you（指aimer）不要再唱了
 ##### 847#         楼主| 发表于 2019-1-3 21:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42150367&amp;ptid=1359460" target="_blank">simpleyan 发表于 2019-1-3 17:12</a>
 
 猫眼上看到魔都有点映场了，跪求坛友届时扫雷，看看删节了啥……</blockquote>
 就删一分半，估计就春梦呗
-
-
-
-
-
 
 
 -----
@@ -16834,14 +11178,7 @@ beg you（指aimer）不要再唱了
 ##### 848#       发表于 2019-1-4 02:44
 
 
-
-
 小城市11号的还没排片<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16850,16 +11187,10 @@ beg you（指aimer）不要再唱了
 ##### 849#       发表于 2019-1-4 22:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42150367&amp;ptid=1359460" target="_blank">simpleyan 发表于 2019-1-3 17:12</a>
 
 猫眼上看到魔都有点映场了，跪求坛友届时扫雷，看看删节了啥……</blockquote>
 在猫眼哪里可以看到点映安排，好像没找到广州有
-
-
-
-
-
 
 
 -----
@@ -16868,16 +11199,10 @@ beg you（指aimer）不要再唱了
 ##### 850#       发表于 2019-1-4 22:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42152715&amp;ptid=1359460" target="_blank">xingenge 发表于 2019-1-3 21:05</a>
 
 就删一分半，估计就春梦呗</blockquote>
 春梦也没漏点……
-
-
-
-
-
 
 
 -----
@@ -16886,16 +11211,10 @@ beg you（指aimer）不要再唱了
 ##### 851#         楼主| 发表于 2019-1-4 22:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42165257&amp;ptid=1359460" target="_blank">韶华白首 发表于 2019-1-4 22:43</a>
 
 春梦也没漏点……</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你说百合亲个嘴都要和谐，春梦那么魅惑的有什么理由不删？
-
-
-
-
-
 
 
 -----
@@ -16904,13 +11223,7 @@ beg you（指aimer）不要再唱了
 ##### 852#       发表于 2019-1-4 22:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">比较担心18线小城市没有排片，最怕排了国语的
-
-
-
-
-
 
 
 -----
@@ -16919,20 +11232,13 @@ beg you（指aimer）不要再唱了
 ##### 853#       发表于 2019-1-4 23:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">有删减不想看了
-
-
-
-
-
 
 
 -----
 
 ####  茴香蚪的马甲  
 ##### 854#       发表于 2019-1-5 09:11
-
 
 
  本帖最后由 茴香蚪的马甲 于 2019-1-5 11:05 编辑 
@@ -16948,16 +11254,10 @@ beg you（指aimer）不要再唱了
 （另外睿站不愧是有泥潭股份，这帖居然变相置顶了）
 
 
-
-
-
-
-
 -----
 
 ####  99mxw  
 ##### 855#       发表于 2019-1-5 09:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42167406&amp;ptid=1359460" target="_blank">茴香蚪的马甲 发表于 2019-1-5 09:11</a>
@@ -16971,17 +11271,10 @@ beg you（指aimer）不要再唱了
 话说置顶二月这么久？
 
 
-
-
-
-
-
 -----
 
 ####  percivale  
 ##### 856#       发表于 2019-1-5 10:56
-
-
 
 
 求问第一部还原度如何？
@@ -16989,16 +11282,10 @@ beg you（指aimer）不要再唱了
 和漫画比怎么样？
 
 
-
-
-
-
-
 -----
 
 ####  DARKGRAY  
 ##### 857#       发表于 2019-1-5 11:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42168103&amp;ptid=1359460" target="_blank">percivale 发表于 2019-1-5 10:56</a>
@@ -17009,26 +11296,15 @@ beg you（指aimer）不要再唱了
 因为重点摆在樱和士郎的关系，巡夜部分改动挺大的<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  linux40  
 ##### 858#       发表于 2019-1-5 12:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42168278&amp;ptid=1359460" target="_blank">DARKGRAY 发表于 2019-1-5 11:16</a>
 因为重点摆在樱和士郎的关系，巡夜部分改动挺大的</blockquote>
 和游戏内容比起来，那些地方都算不上是改动吧。
-
-
-
-
-
 
 
 -----
@@ -17037,16 +11313,10 @@ beg you（指aimer）不要再唱了
 ##### 859#       发表于 2019-1-5 12:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42168950&amp;ptid=1359460" target="_blank">linux40 发表于 2019-1-5 12:36</a>
 
 和游戏内容比起来，那些地方都算不上是改动吧。</blockquote>
 把大战海叔、初战R姐、麻婆讲故事放在同一个夜晚，这个肯定算改动吧。。虽然不算很重要
-
-
-
-
-
 
 
 -----
@@ -17055,16 +11325,9 @@ beg you（指aimer）不要再唱了
 ##### 860#       发表于 2019-1-5 13:24
 
 
-
-
 我说怎么每刷新下都能看到这贴，原来是置顶的<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
 — from Google Pixel 2 XL, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -17073,15 +11336,7 @@ beg you（指aimer）不要再唱了
 ##### 861#       发表于 2019-1-5 13:27
 
 
-
-
 排片撑得到新圣诞么？
-
-
-
-
-
-
 
 
 -----
@@ -17090,15 +11345,9 @@ beg you（指aimer）不要再唱了
 ##### 862#       发表于 2019-1-5 15:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42169042&amp;ptid=1359460" target="_blank">茴香蚪的马甲 发表于 2019-1-5 12:47</a>
 把大战海叔、初战R姐、麻婆讲故事放在同一个夜晚，这个肯定算改动吧。。虽然不算很重要 ...</blockquote>
 喔对，时间这点忘了，吃麻婆豆腐好像还是挺后面了。
-
-
-
-
-
 
 
 -----
@@ -17107,14 +11356,7 @@ beg you（指aimer）不要再唱了
 ##### 863#       发表于 2019-1-5 16:55
 
 
-
-
 群里有业内说国内这次引进回本线一亿，考验月球人的时候到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17123,16 +11365,9 @@ beg you（指aimer）不要再唱了
 ##### 864#       发表于 2019-1-5 17:12
 
 
-
-
 引进片回本线一亿？那岂不是大多数引进日影都亏本了。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -17141,14 +11376,7 @@ beg you（指aimer）不要再唱了
 ##### 865#       发表于 2019-1-5 18:18
 
 
-
-
 不怕扯到蛋？
-
-
-
-
-
 
 
 -----
@@ -17157,14 +11385,7 @@ beg you（指aimer）不要再唱了
 ##### 866#       发表于 2019-1-5 18:52
 
 
-
-
 首映式直播没人看？
-
-
-
-
-
 
 
 -----
@@ -17173,14 +11394,7 @@ beg you（指aimer）不要再唱了
 ##### 867#       发表于 2019-1-5 19:17
 
 
-
-
 看完了，是不是现场好多是公司送票，有个区都没坐满
-
-
-
-
-
 
 
 -----
@@ -17189,14 +11403,7 @@ beg you（指aimer）不要再唱了
 ##### 868#       发表于 2019-1-5 19:28
 
 
-
-
 月球人起码五亿起啦
-
-
-
-
-
 
 
 -----
@@ -17205,14 +11412,7 @@ beg you（指aimer）不要再唱了
 ##### 869#       发表于 2019-1-5 19:55
 
 
-
-
 请从影院回来的的老哥说一下删减影不影响整体体验<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17221,22 +11421,15 @@ beg you（指aimer）不要再唱了
 ##### 870#       发表于 2019-1-5 20:51
 
 
-
  本帖最后由 cybernetics 于 2019-1-5 21:18 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  卡蓮  
 ##### 871#       发表于 2019-1-5 21:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42171207&amp;ptid=1359460" target="_blank">圈量子 发表于 2019-1-5 16:55</a>
@@ -17248,16 +11441,10 @@ beg you（指aimer）不要再唱了
 当作BGO的广告费都嫌多啊
 
 
-
-
-
-
-
 -----
 
 ####  ghostflare  
 ##### 872#       发表于 2019-1-5 22:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42172823&amp;ptid=1359460" target="_blank">Nelioer 发表于 2019-1-5 19:55</a>
@@ -17266,16 +11453,10 @@ beg you（指aimer）不要再唱了
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">如果没玩过游戏线不推荐看了肯定看不懂体验也不好的，删减的那点东西和“觉得你玩过所以全略过不讲了”的部分相比真是毛毛雨。
 
 
-
-
-
-
-
 -----
 
 ####  ghostflare  
 ##### 873#       发表于 2019-1-5 22:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42173249&amp;ptid=1359460" target="_blank">cybernetics 发表于 2019-1-5 20:51</a>
@@ -17286,16 +11467,10 @@ beg you（指aimer）不要再唱了
 首映礼也很豪华，每人座位上都有一束石蒜花，满有心的
 
 
-
-
-
-
-
 -----
 
 ####  cybernetics  
 ##### 874#       发表于 2019-1-5 22:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42173894&amp;ptid=1359460" target="_blank">ghostflare 发表于 2019-1-5 22:09</a>
@@ -17307,16 +11482,10 @@ beg you（指aimer）不要再唱了
 —— 来自 Google Pixel C, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 875#       发表于 2019-1-5 22:17
-
 
 
  本帖最后由 消防 于 2019-1-5 22:34 编辑 
@@ -17330,16 +11499,10 @@ beg you（指aimer）不要再唱了
 HF点映几百块钱卖票送台历，嘉宾是路人女主CV三线过气声优下屋也实在……太小气了。
 
 
-
-
-
-
-
 -----
 
 ####  钦念以忱  
 ##### 876#       发表于 2019-1-5 22:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42173976&amp;ptid=1359460" target="_blank">消防 发表于 2019-1-5 22:17</a>
@@ -17348,32 +11511,19 @@ HF点映几百块钱卖票送台历，嘉宾是路人女主CV三线过气声优�
 BGO搞个2019HF电影中国上映观影纪念礼装，卡面中国上映电影海报，效果master或者从者经验或者羁绊+50，妥妥破亿
 
 
-
-
-
-
-
 -----
 
 ####  太太  
 ##### 877#       发表于 2019-1-5 22:32
 
 
-
-
 QQ群业内还行<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  钦念以忱  
 ##### 878#       发表于 2019-1-5 22:36
-
 
 
  本帖最后由 钦念以忱 于 2019-1-5 22:37 编辑 
@@ -17383,32 +11533,19 @@ QQ群业内还行<img src="https://static.saraba1st.com/image/smiley/face2017/04
 问了下身边认识业内的人，确实有可能回本线一亿，昨天他被（业内）询问过这片票房能不能到一亿，今天（那位业内）看完首映礼后表示看不懂，并估测票房7~8000万（当然我个人觉得这个数也达不到）
 
 
-
-
-
-
-
 -----
 
 ####  liangjiami2  
 ##### 879#       发表于 2019-1-6 00:06
 
 
-
-
 上2000W都不错了，一亿真是想多了
-
-
-
-
-
 
 
 -----
 
 ####  99mxw  
 ##### 880#       发表于 2019-1-6 00:13
-
 
 
 <blockquote>钦念以忱 发表于 2019-1-5 22:36
@@ -17420,17 +11557,10 @@ QQ群业内还行<img src="https://static.saraba1st.com/image/smiley/face2017/04
 而且当时虽然纯是开玩笑但我真觉得说不定就能爆个一亿往上……
 
 
-
-
-
-
-
 -----
 
 ####  韶华白首  
 ##### 881#       发表于 2019-1-6 00:17
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201901/06/001704rorzbmccoarzbeio.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
@@ -17443,24 +11573,10 @@ QQ群业内还行<img src="https://static.saraba1st.com/image/smiley/face2017/04
 2019-1-6 00:17 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  少校  
 ##### 882#       发表于 2019-1-6 00:20
-
-
 
 
 坐标深圳，买了1月11号的。
@@ -17475,25 +11591,13 @@ QQ群业内还行<img src="https://static.saraba1st.com/image/smiley/face2017/04
 这片对于中国观影市场来说受众实在是太小，感觉到不了一个亿。
 
 
-
-
-
-
-
 -----
 
 ####  noobtizi  
 ##### 883#       发表于 2019-1-6 00:24
 
 
-
-
 珠海预售的只有华发的中影，不过11号的两场基本都卖光了
-
-
-
-
-
 
 
 -----
@@ -17502,14 +11606,7 @@ QQ群业内还行<img src="https://static.saraba1st.com/image/smiley/face2017/04
 ##### 884#       发表于 2019-1-6 01:09
 
 
-
-
 十八线小城市11号就一场，emmmm，又要一个人看了
-
-
-
-
-
 
 
 -----
@@ -17518,16 +11615,9 @@ QQ群业内还行<img src="https://static.saraba1st.com/image/smiley/face2017/04
 ##### 885#       发表于 2019-1-6 01:37
 
 
-
-
 柯南受众这么多也勉强破亿，估计票房比声之形还有烟花好点吧。
 
 —— 来自 motorola XT1929-15, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
-
-
-
-
-
 
 
 -----
@@ -17536,16 +11626,10 @@ QQ群业内还行<img src="https://static.saraba1st.com/image/smiley/face2017/04
 ##### 886#       发表于 2019-1-6 09:27
 
 
-
 [https://bbs.saraba1st.com/2b/thread-1802333-1-1.html](https://bbs.saraba1st.com/2b/thread-1802333-1-1.html)
 
 
 我在影视区开了个投票预测贴，你们可以毒奶一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17554,14 +11638,7 @@ QQ群业内还行<img src="https://static.saraba1st.com/image/smiley/face2017/04
 ##### 887#       发表于 2019-1-6 11:29
 
 
-
-
 回本线1E做彼此的宝搞吗，打个对折都算乐观了
-
-
-
-
-
 
 
 -----
@@ -17570,14 +11647,7 @@ QQ群业内还行<img src="https://static.saraba1st.com/image/smiley/face2017/04
 ##### 888#       发表于 2019-1-6 13:36
 
 
-
-
 装个鬼的业内，一个批片还1亿回本
-
-
-
-
-
 
 
 -----
@@ -17586,13 +11656,7 @@ QQ群业内还行<img src="https://static.saraba1st.com/image/smiley/face2017/04
 ##### 889#       发表于 2019-1-6 16:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那么b站的5w张有人不看的送票吗？
-
-
-
-
-
 
 
 -----
@@ -17601,23 +11665,15 @@ QQ群业内还行<img src="https://static.saraba1st.com/image/smiley/face2017/04
 ##### 890#       发表于 2019-1-6 16:32
 
 
-
-
 本來打算看，看了下點映透的和諧內容
 
 頓時沒了興趣<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">廣電局真TM就是毒瘤，什麼都和諧
-
-
-
-
-
 
 
 -----
 
 ####  消防  
 ##### 891#       发表于 2019-1-6 16:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42180263&amp;ptid=1359460" target="_blank">kira1988 发表于 2019-1-6 16:32</a>
@@ -17628,16 +11684,10 @@ QQ群业内还行<img src="https://static.saraba1st.com/image/smiley/face2017/04
 可是这段PC游戏里头是一长段R18戏码，PS2版开始型月自我阉成百合，UFO做电影又阉剩下不露点的一分钟，国内只是在这基础上再阉了一点<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kira1988  
 ##### 892#       发表于 2019-1-6 16:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42180408&amp;ptid=1359460" target="_blank">消防 发表于 2019-1-6 16:49</a>
@@ -17648,16 +11698,10 @@ QQ群业内还行<img src="https://static.saraba1st.com/image/smiley/face2017/04
 嚴重影響觀影
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 893#       发表于 2019-1-6 17:24
-
 
 
  本帖最后由 消防 于 2019-1-6 17:26 编辑 
@@ -17671,36 +11715,19 @@ QQ群业内还行<img src="https://static.saraba1st.com/image/smiley/face2017/04
 不过影响不影响观感……剧场版对游戏删减已经把绝大部分路人给赶跑了。对于我来说剧场版除了亚瑟和闪的片段其他全删光了也不影响观感，就是进去打个卡抽个卡看看大屏幕的两位就足够了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 894#       发表于 2019-1-6 17:31
 
 
-
-
 上面说到那个票房问题是业内在吐槽哥斯拉票房不行导致后面引进取消和冈花这两个月再没定档就要凉时说的，表示HF第一部如果不过线后面两部国内要吹。至于是不是口嗨，真实保本线多少，到时候票房出来再看吧<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  精疯MAN  
 ##### 895#       发表于 2019-1-6 19:47
-
-
 
 
 补一张图片
@@ -17716,21 +11743,10 @@ QQ群业内还行<img src="https://static.saraba1st.com/image/smiley/face2017/04
 2019-1-6 19:47 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 896#       发表于 2019-1-6 21:01
-
 
 
  本帖最后由 mhss 于 2019-1-6 21:05 编辑 
@@ -17742,16 +11758,10 @@ QQ群业内还行<img src="https://static.saraba1st.com/image/smiley/face2017/04
 不过即使这样也无法超越之前的声之形，完全把故事逻辑都剪变了，所以有时候我觉得真不一定是广电动的手
 
 
-
-
-
-
-
 -----
 
 ####  404489039  
 ##### 897#       发表于 2019-1-6 21:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42174110&amp;ptid=1359460" target="_blank">钦念以忱 发表于 2019-1-5 22:36</a>
@@ -17760,16 +11770,10 @@ QQ群业内还行<img src="https://static.saraba1st.com/image/smiley/face2017/04
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">业内砖家预测什么都不要信
 
 
-
-
-
-
-
 -----
 
 ####  Stellar_Frost  
 ##### 898#       发表于 2019-1-6 23:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42182138&amp;ptid=1359460" target="_blank">精疯MAN 发表于 2019-1-6 19:47</a>
@@ -17780,16 +11784,10 @@ QQ群业内还行<img src="https://static.saraba1st.com/image/smiley/face2017/04
 大狗扑街都剪掉有点过分了吧
 
 
-
-
-
-
-
 -----
 
 ####  黄金蔷薇  
 ##### 899#       发表于 2019-1-6 23:19
-
 
 
  本帖最后由 黄金蔷薇 于 2019-1-6 23:23 编辑 
@@ -17820,25 +11818,13 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 而在即将上映的《命运之夜——天之杯：恶兆之花》与其后续几部“天之杯”系列剧场版中，我们将能看到更为复杂的表达。作为奈须认证的第一主角卫宫士郎，他是如何因爱情由“神”变为“人”，再因爱情从人性闪现神性完成救赎，请各位观众拭目以待。</blockquote>
 
 
-
-
-
-
-
 -----
 
 ####  gpx234mqx  
 ##### 900#       发表于 2019-1-6 23:59
 
 
-
-
 阉割版不看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17847,21 +11833,13 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 ##### 901#       发表于 2019-1-7 06:43
 
 
-
-
 感觉这个电影晚了这么久还能坚持引进，加上 ufotable 的制作不管怎样都是值得去电影院一张票钱的，而且拒绝阉割没问题（以后该阉还是会阉）但为此导致票房凉凉只会让未来引进状况更不好吧
-
-
-
-
-
 
 
 -----
 
 ####  Stellar_Frost  
 ##### 902#       发表于 2019-1-7 07:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42184249&amp;ptid=1359460" target="_blank"> 黄金蔷薇 发表于 2019-1-6 23:19</a>  本帖最后由 黄金蔷薇 于 2019-1-6 23:23 编辑  引用:消防 发表于 2018-12-19 13:32 粉碎宿命？粉碎什么宿命，女主没人气的宿命吗？ 共赏，完美的阅读理解答案： 触乐：“Fate”系列银幕首秀，这个IP究竟凭什么火15年 引用:（前略） 反抗命运者之歌：角色与故事  “Fate”系列以命运为题。何为“命运”？命运是一种超人的力量，这种力量主宰了人的遭遇，人不能控制它 </blockquote>
@@ -17872,16 +11850,10 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 来自: iPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  gary76  
 ##### 903#       发表于 2019-1-7 10:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42185746&amp;ptid=1359460" target="_blank">Stellar_Frost 发表于 2019-1-7 07:08</a>
@@ -17892,16 +11864,10 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 没看完Fate和UBW兩線，看什麼HF<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 904#       发表于 2019-1-7 11:16
-
 
 
  本帖最后由 消防 于 2019-1-7 11:26 编辑 
@@ -17920,32 +11886,19 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 这片除了“你看看我家XXX在大屏幕的帅脸”理由外，并不推荐没看过前作/没有感兴趣的角色/非月厨的朋友去观看<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  落回天空  
 ##### 905#       发表于 2019-1-7 11:17
 
 
-
-
 有BGO玩家能告知下B站成都包场的具体影院及场次信息吗？谢谢了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  kxh007458  
 ##### 906#       发表于 2019-1-7 14:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42187776&amp;ptid=1359460" target="_blank">消防 发表于 2019-1-7 11:16</a>
@@ -17956,25 +11909,13 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 从者嘛，不过是英灵的分身，使魔而已<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  IDIDID  
 ##### 907#       发表于 2019-1-7 14:29
 
 
-
-
 小城市我订的时候加上加上自己只有四个人 还都是单人座 也太真实了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17983,14 +11924,7 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 ##### 908#       发表于 2019-1-7 19:22
 
 
-
-
 几乎没有排片……要死了
-
-
-
-
-
 
 
 -----
@@ -17999,17 +11933,10 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 ##### 909#       发表于 2019-1-8 00:03
 
 
-
-
 附近无合适排场，不打算看了
 
 
 ----发送自 [Xiaomi MI 5,Android 8.0.0](http://stage1.5j4m.com/?1.29)
-
-
-
-
-
 
 
 -----
@@ -18018,17 +11945,10 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 ##### 910#       发表于 2019-1-8 03:14
 
 
-
-
 呵呵，人民群众喜闻乐见关公战秦琼，你蘑菇算老几把英雄们当抹布用完丢，我们不看不看不看。
 
 
 大概是这样的反应？
-
-
-
-
-
 
 
 -----
@@ -18037,23 +11957,13 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 ##### 911#       发表于 2019-1-8 10:23
 
 
-
 <img src="http://wx3.sinaimg.cn/large/6c97c4ccly1fyyxjdvy9fj20k00qoadr.jpg" referrerpolicy="no-referrer">
 
 转自 ：[https://weibo.com/1821885644/HaXAKysrU](https://weibo.com/1821885644/HaXAKysrU)
 
 
-
 查了一下，这个新民晚报官网有电子版的，还真不是P的图
 [http://xmwb.xinmin.cn/xmwbzone/html/2019-01/02/node_1.htm](http://xmwb.xinmin.cn/xmwbzone/html/2019-01/02/node_1.htm)
-
-
-
-
-
-
-
-
 
 
 -----
@@ -18062,23 +11972,16 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 ##### 912#       发表于 2019-1-8 10:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42198431&amp;ptid=1359460" target="_blank">名津流 发表于 2019-1-8 10:23</a>
 
 转自 ：https://weibo.com/1821885644/HaXAKysrU</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/246.gif" referrerpolicy="no-referrer">一票难求笑了
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 913#       发表于 2019-1-8 10:52
-
 
 
  本帖最后由 消防 于 2019-1-8 10:54 编辑 
@@ -18091,17 +11994,10 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 现在当然无所谓了，反正换个片场换个御主继续闹腾。
 
 
-
-
-
-
-
 -----
 
 ####  时火  
 ##### 914#       发表于 2019-1-8 11:05
-
-
 
 
 神秘男子包下多家影院，电影票一票难求xs<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
@@ -18110,24 +12006,13 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  cybernetics  
 ##### 915#       发表于 2019-1-8 12:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一票难求才不信呢，这片子能过5000就谢天谢地了
-
-
-
-
-
 
 
 -----
@@ -18136,16 +12021,9 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 ##### 916#       发表于 2019-1-8 12:21
 
 
-
-
 睿站发了五万张票，没人说嘛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -18154,15 +12032,9 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 ##### 917#       发表于 2019-1-8 12:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42198431&amp;ptid=1359460" target="_blank">名津流 发表于 2019-1-8 10:23</a>
  转自 ：https://weibo.com/1821885644/HaXAKysrU   </blockquote>
 这个神秘男子不就是阿睿吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18171,16 +12043,10 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 ##### 918#       发表于 2019-1-8 13:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42198431&amp;ptid=1359460" target="_blank">名津流 发表于 2019-1-8 10:23</a>
 
 转自 ：https://weibo.com/1821885644/HaXAKysrU</blockquote>
 难怪需要一亿回本
-
-
-
-
-
 
 
 -----
@@ -18189,14 +12055,7 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 ##### 919#       发表于 2019-1-8 16:35
 
 
-
-
 身处n线小城市，只有一家影院有排片，最开始也就只有一场，现在已经加到三场了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">至少是超出我的预期了
-
-
-
-
-
 
 
 -----
@@ -18205,14 +12064,7 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 ##### 920#       发表于 2019-1-8 16:57
 
 
-
-
 说起来这译名中二爆表了。我爸单位发了观影券，然后他在挑电影的时候一本正经地念命运之夜，天之杯，恶兆之花。我真是笑死了。
-
-
-
-
-
 
 
 -----
@@ -18221,16 +12073,10 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 ##### 921#       发表于 2019-1-8 17:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42202985&amp;ptid=1359460" target="_blank">12345new54321 发表于 2019-1-8 16:35</a>
 
 身处n线小城市，只有一家影院有排片，最开始也就只有一场，现在已经加到三场了至少是超出我的预期了 ...</blockquote>
 我这边的山沟目前还没排片，不知道明后天有没有
-
-
-
-
-
 
 
 -----
@@ -18239,14 +12085,7 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 ##### 922#       发表于 2019-1-8 23:28
 
 
-
-
 抢到睿站票了，周末去看下好了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18255,13 +12094,7 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 ##### 923#       发表于 2019-1-9 00:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">周末去补票，说好的没人去看呢<img src="https://static.saraba1st.com/image/smiley/carton2017/281.png" referrerpolicy="no-referrer">，好位置都被占了。
-
-
-
-
-
 
 
 -----
@@ -18270,16 +12103,10 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 ##### 924#         楼主| 发表于 2019-1-9 00:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42207599&amp;ptid=1359460" target="_blank">memphiseme 发表于 2019-1-9 00:08</a>
 
 周末去补票，说好的没人去看呢，好位置都被占了。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">下周就没人了
-
-
-
-
-
 
 
 -----
@@ -18288,14 +12115,7 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 ##### 925#       发表于 2019-1-9 00:20
 
 
-
-
 命运之夜——天之杯：恶兆之花<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18304,23 +12124,15 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 ##### 926#       发表于 2019-1-9 04:55
 
 
-
-
 都在讨论国内版啊
 
 就我一个人关心第二章那几段H戏到底会怎么处理吗？
-
-
-
-
-
 
 
 -----
 
 ####  dark_saber  
 ##### 927#       发表于 2019-1-9 08:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42208512&amp;ptid=1359460" target="_blank">Lithiumflower 发表于 2019-1-9 04:55</a>
@@ -18332,16 +12144,10 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 —— 来自 Sony G8142, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  memphiseme  
 ##### 928#       发表于 2019-1-9 09:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42207644&amp;ptid=1359460" target="_blank">xingenge 发表于 2019-1-9 00:14</a>
@@ -18350,16 +12156,10 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 <img src="https://static.saraba1st.com/image/smiley/carton2017/247.gif" referrerpolicy="no-referrer">这周去看，找个人少点的影院就好了，明后天估计其他影院的排期也该放出来了。
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 929#       发表于 2019-1-9 09:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42208915&amp;ptid=1359460" target="_blank">dark_saber 发表于 2019-1-9 08:31</a>
@@ -18369,17 +12169,10 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 但是第一章没采用百合吸血而是改了摸胸，所以才让人好奇后面操作不是吗？盲猜一个非吸血但是关灯省略过程
 
 
-
-
-
-
-
 -----
 
 ####  winoros  
 ##### 930#       发表于 2019-1-9 10:32
-
-
 
 
 下周还要看胰脏，没人会看hf了<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
@@ -18387,17 +12180,10 @@ Fate线中描绘了超出现实与私欲，将相隔千年注定分别的两人�
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  茴香蚪的马甲  
 ##### 931#       发表于 2019-1-9 12:24
-
-
 
 
 中国电影股份有限公司译制中心译制
@@ -18431,25 +12217,13 @@ Saber---白雪岑
 李嘉祥、风泠、李祉东
 
 
-
-
-
-
-
 -----
 
 ####  haishiwo49  
 ##### 932#       发表于 2019-1-9 12:36
 
 
-
-
 周围的电影院排片很多，但是几乎没有人预定啊，座位都是空的
-
-
-
-
-
 
 
 -----
@@ -18458,15 +12232,9 @@ Saber---白雪岑
 ##### 933#       发表于 2019-1-9 16:07
 
 
-
  本帖最后由 七堂伽蓝 于 2019-1-9 17:40 编辑 
 
 已经买了万方周五晚上的票，8点段空的，9点段好位置都占满了，看来工作党居多啊
-
-
-
-
-
 
 
 -----
@@ -18475,14 +12243,7 @@ Saber---白雪岑
 ##### 934#       发表于 2019-1-9 16:53
 
 
-
-
 金逸部分影院有看电影凭小票到前台换色纸活动，问题我家附近的金逸还没开始排片啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18491,22 +12252,13 @@ Saber---白雪岑
 ##### 935#       发表于 2019-1-9 17:37
 
 
-
-
 我这个小城市11号第一场10：35居然这么多人<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  EMIYARIN  
 ##### 936#       发表于 2019-1-9 20:56
-
-
 
 
 第二章看了先行的表示 有补魔。。
@@ -18524,21 +12276,10 @@ Saber---白雪岑
 2019-1-9 20:57 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 937#         楼主| 发表于 2019-1-9 21:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42218021&amp;ptid=1359460" target="_blank">EMIYARIN 发表于 2019-1-9 20:56</a>
@@ -18549,16 +12290,10 @@ Saber---白雪岑
 刚和别人说这事，他说这是规定，因为是夜场，18岁以下需要家长陪同
 
 
-
-
-
-
-
 -----
 
 ####  6x6z6w  
 ##### 938#       发表于 2019-1-9 21:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42218021&amp;ptid=1359460" target="_blank">EMIYARIN 发表于 2019-1-9 20:56</a>
@@ -18569,16 +12304,10 @@ Saber---白雪岑
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">完了我觉得第二部引进要悬了
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 939#         楼主| 发表于 2019-1-9 21:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42218240&amp;ptid=1359460" target="_blank">6x6z6w 发表于 2019-1-9 21:19</a>
@@ -18589,16 +12318,10 @@ Saber---白雪岑
 只要剪掉就好了吧……
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 940#       发表于 2019-1-9 21:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42218264&amp;ptid=1359460" target="_blank">xingenge 发表于 2019-1-9 21:21</a>
@@ -18615,16 +12338,10 @@ Saber---白雪岑
 引进的话确实删掉啪啪啪那里保留前戏也可以把，
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 941#       发表于 2019-1-9 21:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42218264&amp;ptid=1359460" target="_blank">xingenge 发表于 2019-1-9 21:21</a>
@@ -18635,16 +12352,10 @@ Saber---白雪岑
 别云了，到处都传开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 942#         楼主| 发表于 2019-1-9 21:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42218308&amp;ptid=1359460" target="_blank">dante888 发表于 2019-1-9 21:26</a>
@@ -18653,16 +12364,10 @@ Saber---白雪岑
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">反正我是不太懂
 
 
-
-
-
-
-
 -----
 
 ####  冬夜女公爵  
 ##### 943#       发表于 2019-1-9 21:52
-
 
 
  本帖最后由 冬夜女公爵 于 2019-1-9 21:59 编辑 
@@ -18685,21 +12390,10 @@ Saber---白雪岑
 2019-1-9 21:58 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  名津流  
 ##### 944#       发表于 2019-1-9 22:21
-
 
 
  本帖最后由 名津流 于 2019-1-9 22:23 编辑 
@@ -18708,17 +12402,10 @@ Saber---白雪岑
 [https://bbs.saraba1st.com/2b/for ... 798693&amp;pid=42185244](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1798693&amp;pid=42185244)
 
 
-
-
-
-
-
 -----
 
 ####  Temori  
 ##### 945#       发表于 2019-1-9 23:04
-
-
 
 
 虽然上面的情节听着挺那啥，但我找到的介绍界面分级是PG12
@@ -18726,17 +12413,10 @@ https://res.cinemacity.co.jp/TicketReserver/studio/movie/1470
 上面的截图是因为零点场，所以18岁以下不能观看
 
 
-
-
-
-
-
 -----
 
 ####  Lithiumflower  
 ##### 946#       发表于 2019-1-9 23:47
-
-
 
 
 得劲啊
@@ -18746,25 +12426,13 @@ fate和ubw说实话搞不搞差别不大，本质是热血少年
 但是HF如果不上**实弹，实在愧对这充满荷尔蒙、疯狂、堕落、愤怒、背叛的愉悦感
 
 
-
-
-
-
-
 -----
 
 ####  noobtizi  
 ##### 947#       发表于 2019-1-10 00:05
 
 
-
-
 等一个第二章bd<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18773,15 +12441,9 @@ fate和ubw说实话搞不搞差别不大，本质是热血少年
 ##### 948#       发表于 2019-1-10 00:05
 
 
-
  本帖最后由 圈量子 于 2019-1-10 00:14 编辑 
 
 看了下推特和微博上的repo，后两部国内引进会是个问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18790,21 +12452,13 @@ fate和ubw说实话搞不搞差别不大，本质是热血少年
 ##### 949#       发表于 2019-1-10 00:06
 
 
-
-
 后面的删减也无所谓了，毕竟国情在此，能引进大屏幕看就是大胜利
-
-
-
-
-
 
 
 -----
 
 ####  Stellar_Frost  
 ##### 950#       发表于 2019-1-10 00:08
-
 
 
  本帖最后由 Stellar_Frost 于 2019-1-10 00:09 编辑 
@@ -18814,32 +12468,19 @@ FSN三线里樱的成人内容是最不违和的
 不过后两部<strong>剧场版</strong>直接上那种内容...对我自己来说挺难想象的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  名字带个慎  
 ##### 951#       发表于 2019-1-10 00:15
 
 
-
-
 我是觉得后两章不会有的...第一章且看且珍惜吧
-
-
-
-
-
 
 
 -----
 
 ####  kmno4  
 ##### 952#       发表于 2019-1-10 00:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42220153&amp;ptid=1359460" target="_blank">Stellar_Frost 发表于 2019-1-10 00:08</a>
@@ -18853,16 +12494,10 @@ FSN三线里樱的成人内容是最不违和的
 ufo作为樱厨的希望，这个都不上说不过去。
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 953#       发表于 2019-1-10 01:31
-
 
 
 <blockquote>冬夜女公爵 发表于 2019-1-9 21:52
@@ -18877,16 +12512,10 @@ ufo作为樱厨的希望，这个都不上说不过去。
 走18路线才是真正的HF啊，连FZ TV都做了虫爷把一血虫给雁夜还带说明，HF走全年龄就太对不起(FZ入坑的)老观众了
 
 
-
-
-
-
-
 -----
 
 ####  Stellar_Frost  
 ##### 954#       发表于 2019-1-10 02:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42220325&amp;ptid=1359460" target="_blank">kmno4 发表于 2019-1-10 00:28</a>
@@ -18900,33 +12529,19 @@ ufo作为樱厨的希望，这个都不上说不过去。 ...</blockquote>
 国内引进怕是要凉了，不过反正引进肯定比BD晚，就那样吧
 
 
-
-
-
-
-
 -----
 
 ####  debrisvector  
 ##### 955#       发表于 2019-1-10 02:42
 
 
-
-
 等一句经典的“前辈你都和我做过了怎么还对着我姐姐脸红”啊
-
-
-
-
-
 
 
 -----
 
 ####  Lithiumflower  
 ##### 956#       发表于 2019-1-10 06:33
-
-
 
 
 期待的场景：
@@ -18947,33 +12562,19 @@ ufo作为樱厨的希望，这个都不上说不过去。 ...</blockquote>
 爽到
 
 
-
-
-
-
-
 -----
 
 ####  Yeaha123  
 ##### 957#       发表于 2019-1-10 08:15
 
 
-
-
 最近的那家电影院放映都在儿童厅，太傻逼了，不看了
-
-
-
-
-
 
 
 -----
 
 ####  麻花疼  
 ##### 958#       发表于 2019-1-10 08:32
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201901/10/083207r1zhciwh91pc1cwc.jpg" referrerpolicy="no-referrer">
@@ -18986,28 +12587,16 @@ ufo作为樱厨的希望，这个都不上说不过去。 ...</blockquote>
 2019-1-10 08:32 上传
 
 
-
-
-
-
-
 国内肯定无望，如果能引进话，删减最少10分钟起步，你们能受得了？
 
 
 还是刷刷第一部，就当给FATE补票了。
 
 
-
-
-
-
-
-
 -----
 
 ####  linux40  
 ##### 959#       发表于 2019-1-10 08:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42220325&amp;ptid=1359460" target="_blank">kmno4 发表于 2019-1-10 00:28</a>
@@ -19018,25 +12607,13 @@ ufo作为樱厨的希望，这个都不上说不过去。 ...</blockquote>
 做忘却录音的时候，我记得把卖改成别的了吧。
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 960#       发表于 2019-1-10 08:35
 
 
-
-
 我看第一部的时候还吐槽过幕间里樱紫薇场景没了，没想到须藤真敢做啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19045,14 +12622,7 @@ ufo作为樱厨的希望，这个都不上说不过去。 ...</blockquote>
 ##### 961#       发表于 2019-1-10 08:53
 
 
-
-
 我就想知道，伊莉雅买菜唱歌，和士郎心理变化做的怎么样？
-
-
-
-
-
 
 
 -----
@@ -19061,14 +12631,7 @@ ufo作为樱厨的希望，这个都不上说不过去。 ...</blockquote>
 ##### 962#       发表于 2019-1-10 08:54
 
 
-
-
 我就想知道伊莉雅买菜唱歌和士郎心理变化做的怎么样？
-
-
-
-
-
 
 
 -----
@@ -19077,16 +12640,10 @@ ufo作为樱厨的希望，这个都不上说不过去。 ...</blockquote>
 ##### 963#       发表于 2019-1-10 08:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42221885&amp;ptid=1359460" target="_blank">linux40 发表于 2019-1-10 08:33</a>
 
 做忘却录音的时候，我记得把卖改成别的了吧。</blockquote>
 忘却录音设定到剧本全改了，最差的一部了
-
-
-
-
-
 
 
 -----
@@ -19095,15 +12652,9 @@ ufo作为樱厨的希望，这个都不上说不过去。 ...</blockquote>
 ##### 964#       发表于 2019-1-10 09:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42221070&amp;ptid=1359460" target="_blank">debrisvector 发表于 2019-1-10 02:42</a>
 等一句经典的“前辈你都和我做过了怎么还对着我姐姐脸红”啊</blockquote>
 搜了个详细的repo，这个场景有改动，没脸红也没有这句台词了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">跳高部分也改了，应该是刻意淡化这部分
-
-
-
-
-
 
 
 -----
@@ -19112,22 +12663,15 @@ ufo作为樱厨的希望，这个都不上说不过去。 ...</blockquote>
 ##### 965#       发表于 2019-1-10 11:02
 
 
-
 <blockquote>圈量子 发表于 2019-1-10 09:12
 搜了个详细的repo，这个场景有改动，没脸红也没有这句台词了跳高部分也改了，应该是刻意淡化这部 ...</blockquote>
 吃着碗里的看着锅里的
-
-
-
-
-
 
 
 -----
 
 ####  冬夜女公爵  
 ##### 966#       发表于 2019-1-10 11:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42220723&amp;ptid=1359460" target="_blank">消防 发表于 2019-1-10 01:31</a>
@@ -19139,16 +12683,10 @@ ufo作为樱厨的希望，这个都不上说不过去。 ...</blockquote>
 在黄油里一直是打酱油，并没有真正湿过鞋
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 967#       发表于 2019-1-10 11:59
-
 
 
  本帖最后由 消防 于 2019-1-10 12:03 编辑 
@@ -19163,25 +12701,14 @@ ufo作为樱厨的希望，这个都不上说不过去。 ...</blockquote>
 反正HF剧场版面向死忠受众，现在供应剧场版做樱梦结局，BD追加春归，数年后影院活动重映放春归结局，我觉得UFO商法做得出来。
 
 
-
-
-
-
-
 -----
 
 ####  孫光龍  
 ##### 968#       发表于 2019-1-10 12:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">樱梦和春归是什么区别来着我都忘了
 一个是士郎彻底挂了，另一个是做了个身体算是活着？
-
-
-
-
-
 
 
 -----
@@ -19190,21 +12717,13 @@ ufo作为樱厨的希望，这个都不上说不过去。 ...</blockquote>
 ##### 969#       发表于 2019-1-10 13:04
 
 
-
-
 12:55的时候预售已经破600万了
-
-
-
-
-
 
 
 -----
 
 ####  debrisvector  
 ##### 970#       发表于 2019-1-10 13:05
-
 
 
 <blockquote>孫光龍 发表于 2019-1-10 12:42
@@ -19214,17 +12733,10 @@ ufo作为樱厨的希望，这个都不上说不过去。 ...</blockquote>
 第三法。人偶身体
 
 
-
-
-
-
-
 -----
 
 ####  名津流  
 ##### 971#       发表于 2019-1-10 13:26
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201901/10/132618v9xppgv9xnn53qtc.jpg" referrerpolicy="no-referrer">
@@ -19237,18 +12749,7 @@ ufo作为樱厨的希望，这个都不上说不过去。 ...</blockquote>
 2019-1-10 13:26 上传
 
 
-
-
-
-
-
  月球人太强了，去不了日本都要买票房支持hf2 
-
-
-
-
-
-
 
 
 -----
@@ -19257,21 +12758,13 @@ ufo作为樱厨的希望，这个都不上说不过去。 ...</blockquote>
 ##### 972#       发表于 2019-1-10 13:48
 
 
-
-
 毕竟史诗大作，月球人就算在国内看不到，破费让旅日同胞帮买票助个场也是应该的吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  gary76  
 ##### 973#       发表于 2019-1-10 14:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42224829&amp;ptid=1359460" target="_blank">孫光龍 发表于 2019-1-10 12:42</a>
@@ -19282,17 +12775,10 @@ ufo作为樱厨的希望，这个都不上说不过去。 ...</blockquote>
 在魔術協會買了橘子留下來的人偶，用第三法把土狼的靈魂塞進去
 
 
-
-
-
-
-
 -----
 
 ####  小妻水亚美  
 ##### 974#       发表于 2019-1-10 14:18
-
-
 
 
 金逸的色纸今天就可以换了，如果信官微的说法，明天再来就没了。我过来换了一套四张，居然帮贡献了100的票房<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -19300,16 +12786,10 @@ ufo作为樱厨的希望，这个都不上说不过去。 ...</blockquote>
 —— 来自 motorola XT1929-15, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 975#       发表于 2019-1-10 14:52
-
 
 
  本帖最后由 消防 于 2019-1-10 14:55 编辑 
@@ -19330,17 +12810,10 @@ ufo作为樱厨的希望，这个都不上说不过去。 ...</blockquote>
 →犹豫送还是和樱一起活下去（蘑菇云：FSN的故事是土狼这个机器人最终变成了人类），等来了伊莉雅，说出名台词“我是姐姐”，转移灵魂关闭圣杯。圣杯战结束后转移灵魂到橙子人偶中，过上有时两次有时三次的生活，最后四人一起看樱花。<img src="https://static.saraba1st.com/image/smiley/face2017/191.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hyhaha  
 ##### 976#       发表于 2019-1-10 14:56
-
-
 
 
 其实也不算孤独终老，最后还收了个徒弟
@@ -19348,16 +12821,10 @@ ufo作为樱厨的希望，这个都不上说不过去。 ...</blockquote>
 从对话里推测那个徒弟还是凛的孙子
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 977#       发表于 2019-1-10 14:58
-
 
 
 <blockquote>hyhaha 发表于 2019-1-10 14:56
@@ -19367,31 +12834,19 @@ ufo作为樱厨的希望，这个都不上说不过去。 ...</blockquote>
 我咋记得那个徒弟是凛的继承者，时常过来找樱玩
 
 
-
-
-
-
-
 -----
 
 ####  毒品  
 ##### 978#       发表于 2019-1-10 15:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">有个问题，都变人偶了还有哪方面的能力么，还是只能看没感觉
-
-
-
-
-
 
 
 -----
 
 ####  西岚不是花  
 ##### 979#       发表于 2019-1-10 15:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42226654&amp;ptid=1359460" target="_blank">毒品 发表于 2019-01-10 15:16:13</a>
@@ -19402,16 +12857,10 @@ ufo作为樱厨的希望，这个都不上说不过去。 ...</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 980#       发表于 2019-1-10 15:24
-
 
 
  本帖最后由 消防 于 2019-1-10 15:26 编辑 
@@ -19420,17 +12869,10 @@ ufo作为樱厨的希望，这个都不上说不过去。 ...</blockquote>
 既然是樱订做的，R姐也确定留下来，让橙子做个加强功能也不奇怪啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hyhaha  
 ##### 981#       发表于 2019-1-10 15:48
-
-
 
 
 人偶的话
@@ -19440,16 +12882,10 @@ X功能是有的，结局里就有说樱的魔力太多了需要外泄
 另外这个人偶是橙子的早期作品，不是樱定做的，樱倒是想把橙子找出来专门定做一个，因为樱对现在用的那个性能不太满意
 
 
-
-
-
-
-
 -----
 
 ####  毒品  
 ##### 982#       发表于 2019-1-10 15:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42227124&amp;ptid=1359460" target="_blank">hyhaha 发表于 2019-1-10 15:48</a>
@@ -19462,16 +12898,10 @@ X功能是有的，结局里就有说樱的魔力太多了需要外泄
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">女用人偶，听着挺惨的
 
 
-
-
-
-
-
 -----
 
 ####  茴香蚪的马甲  
 ##### 983#       发表于 2019-1-10 15:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42222072&amp;ptid=1359460" target="_blank">fycwhat 发表于 2019-1-10 08:53</a>
@@ -19480,26 +12910,15 @@ X功能是有的，结局里就有说樱的魔力太多了需要外泄
 和伊莉雅买菜的剧情还在，但是一笔带过。硬核樱厨监督是这样的。
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 984#       发表于 2019-1-10 16:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42227253&amp;ptid=1359460" target="_blank">茴香蚪的马甲 发表于 2019-1-10 15:59</a>
 和伊莉雅买菜的剧情还在，但是一笔带过。硬核樱厨监督是这样的。</blockquote>
 不刷伊利亚好感要春归就有些突兀了，好奇硬核樱厨会不会第三章做樱之梦版上映然后bd补完另一个结局<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19508,16 +12927,10 @@ X功能是有的，结局里就有说樱的魔力太多了需要外泄
 ##### 985#       发表于 2019-1-10 16:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42227430&amp;ptid=1359460" target="_blank">圈量子 发表于 2019-1-10 16:10</a>
 
 不刷伊利亚好感要春归就有些突兀了，好奇硬核樱厨会不会第三章做樱之梦版上映然后bd补完另一个结局[f:067 ...</blockquote>
 本来第一章刚上映的时候觉得不大可能，现在越来越觉得可能性不小了。
-
-
-
-
-
 
 
 -----
@@ -19526,14 +12939,7 @@ X功能是有的，结局里就有说樱的魔力太多了需要外泄
 ##### 986#       发表于 2019-1-10 16:12
 
 
-
-
 话说这帖子被置顶了？
-
-
-
-
-
 
 
 -----
@@ -19542,14 +12948,7 @@ X功能是有的，结局里就有说樱的魔力太多了需要外泄
 ##### 987#       发表于 2019-1-10 16:23
 
 
-
-
 16:22 预售总票房破700万
-
-
-
-
-
 
 
 -----
@@ -19558,15 +12957,9 @@ X功能是有的，结局里就有说樱的魔力太多了需要外泄
 ##### 988#       发表于 2019-1-10 17:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42227430&amp;ptid=1359460" target="_blank">圈量子 发表于 2019-1-10 16:10</a>
 不刷伊利亚好感要春归就有些突兀了，好奇硬核樱厨会不会第三章做樱之梦版上映然后bd补完另一个结局[f:067 ...</blockquote>
 然而TE刷的是R姐的好感
-
-
-
-
-
 
 
 -----
@@ -19575,22 +12968,15 @@ X功能是有的，结局里就有说樱的魔力太多了需要外泄
 ##### 989#       发表于 2019-1-10 17:09
 
 
-
  本帖最后由 茴香蚪的马甲 于 2019-1-10 17:11 编辑 
 
 编辑
-
-
-
-
-
 
 
 -----
 
 ####  茴香蚪的马甲  
 ##### 990#       发表于 2019-1-10 17:18
-
 
 
  本帖最后由 茴香蚪的马甲 于 2019-1-10 18:02 编辑 
@@ -19609,16 +12995,10 @@ FSN根本不存在R姐好感度，只有相关的选择肢影响是否会进BE38
 3、已经进过一次TE的话，再次按TE流程通关会在决战麻婆以后多出一个选项，可以直通NE。
 
 
-
-
-
-
-
 -----
 
 ####  trb315  
 ##### 991#       发表于 2019-1-10 17:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42226391&amp;ptid=1359460" target="_blank">hyhaha 发表于 2019-1-10 14:56</a>
@@ -19629,25 +13009,13 @@ FSN根本不存在R姐好感度，只有相关的选择肢影响是否会进BE38
 是凛的孩子
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 992#         楼主| 发表于 2019-1-10 18:47
 
 
-
-
 最近几天研究了一下HF，有点兴趣，放假把FSN重温一遍，然后把UBW啥的看了，挤点时间云通关一下游戏
-
-
-
-
-
 
 
 -----
@@ -19656,14 +13024,7 @@ FSN根本不存在R姐好感度，只有相关的选择肢影响是否会进BE38
 ##### 993#       发表于 2019-1-10 19:13
 
 
-
-
 离我最近的金逸好远啊，全区唯一一间，今天下班特意去问有没有色纸，结果说明天才有，先到先得，吃了闭门羹了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19672,14 +13033,7 @@ FSN根本不存在R姐好感度，只有相关的选择肢影响是否会进BE38
 ##### 994#       发表于 2019-1-10 19:26
 
 
-
-
 票买好了就看明天能不能拿到色纸了
-
-
-
-
-
 
 
 -----
@@ -19688,22 +13042,15 @@ FSN根本不存在R姐好感度，只有相关的选择肢影响是否会进BE38
 ##### 995#       发表于 2019-1-10 19:57
 
 
-
  本帖最后由 葡萄牙的高山 于 2019-1-10 19:59 编辑 
 
 哎，平常去的电影院没有，稍微远的倒是有，好在都是日语的，排场也还可以，决定和网友一起看了，明天中午。<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  冬夜女公爵  
 ##### 996#       发表于 2019-1-10 20:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42226654&amp;ptid=1359460" target="_blank">毒品 发表于 2019-1-10 15:16</a>
@@ -19715,16 +13062,10 @@ FSN根本不存在R姐好感度，只有相关的选择肢影响是否会进BE38
 自从有此成果之后橙子自己就成了相当不死的存在，她做了大量自己的备份，同一时间只有一个在外活动，死了之后下一个就会继承记忆苏醒<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  毒品  
 ##### 997#       发表于 2019-1-10 20:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42230537&amp;ptid=1359460" target="_blank">冬夜女公爵 发表于 2019-1-10 20:29</a>
@@ -19736,24 +13077,13 @@ FSN根本不存在R姐好感度，只有相关的选择肢影响是否会进BE38
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">明明没有感觉还得被迫啪啪啪，想想还挺带感的
 
 
-
-
-
-
-
 -----
 
 ####  shanajiang  
 ##### 998#       发表于 2019-1-10 21:02
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我也是四张色纸都到了...然后发现多了3张票不知道怎么处理了...实在不行二手区发帖送坛友？
-
-
-
-
-
 
 
 -----
@@ -19762,23 +13092,15 @@ FSN根本不存在R姐好感度，只有相关的选择肢影响是否会进BE38
 ##### 999#       发表于 2019-1-10 21:16
 
 
-
-
 有没有人上个色纸的实拍图？网上的图实在看不出大小
 
 我这有一家，但是周六再去估计也没了。不折腾的话就万达了
-
-
-
-
-
 
 
 -----
 
 ####  kidoo  
 ##### 1000#       发表于 2019-1-10 21:46
-
 
 
  本帖最后由 kidoo 于 2019-1-10 21:48 编辑 
@@ -19788,16 +13110,10 @@ FSN根本不存在R姐好感度，只有相关的选择肢影响是否会进BE38
 买完了正好看到南京有人早早就倒卖的，吃屎的操作
 
 
-
-
-
-
-
 -----
 
 ####  kmno4  
 ##### 1001#       发表于 2019-1-10 21:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42221885&amp;ptid=1359460" target="_blank">linux40 发表于 2019-1-10 08:33</a>
@@ -19815,16 +13131,10 @@ ufo改编时没有刻意避开这些限制级内容的。
 不过这是你们菌哥哥自己说要改的。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  shanajiang  
 ##### 1002#       发表于 2019-1-10 21:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42230998&amp;ptid=1359460" target="_blank">mhss 发表于 2019-1-10 21:16</a>
@@ -19834,13 +13144,9 @@ ufo改编时没有刻意避开这些限制级内容的。
 15cm左右的正方形，不大不小，其实感觉质量一般般吧
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -19850,20 +13156,13 @@ ufo改编时没有刻意避开这些限制级内容的。
 | mhss| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  faxi  
 ##### 1003#       发表于 2019-1-10 22:01
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201901/10/220024fbmj5znyysytb5pe.jpg" referrerpolicy="no-referrer">
@@ -19876,19 +13175,12 @@ ufo改编时没有刻意避开这些限制级内容的。
 2019-1-10 22:00 上传
 
 
-
-
-
 尺寸和平时的不一样，是170X150，正头痛用什么方法保存<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -19898,20 +13190,13 @@ ufo改编时没有刻意避开这些限制级内容的。
 | mhss| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  jum  
 ##### 1004#       发表于 2019-1-10 22:17
-
-
 
 
 为什么放个电影，要等圆盘都出来好几个月了第二部都要上映了才在国内放？
@@ -19927,16 +13212,10 @@ ufo改编时没有刻意避开这些限制级内容的。
 你他妈的看看还有人看吗？
 
 
-
-
-
-
-
 -----
 
 ####  linux40  
 ##### 1005#       发表于 2019-1-10 22:46
-
 
 
  本帖最后由 linux40 于 2019-1-10 22:47 编辑 
@@ -19945,25 +13224,13 @@ ufo改编时没有刻意避开这些限制级内容的。
 皋月是谁那个老师吗。。。卧槽，改动这么大的。。。
 
 
-
-
-
-
-
 -----
 
 ####  des138e  
 ##### 1006#       发表于 2019-1-10 23:29
 
 
-
-
 靠，买了票才知道是第一部的，害我白激动了。
-
-
-
-
-
 
 
 -----
@@ -19972,22 +13239,15 @@ ufo改编时没有刻意避开这些限制级内容的。
 ##### 1007#       发表于 2019-1-10 23:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=42232198&amp;amp;ptid=1359460" target="_blank">des138e 发表于 2019-1-10 23:29</a>
 靠，买了票才知道是第一部的，害我白激动了。</blockquote>
 想啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 1008#         楼主| 发表于 2019-1-10 23:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42231541&amp;ptid=1359460" target="_blank">jum 发表于 2019-1-10 22:17</a>
@@ -20000,16 +13260,10 @@ ufo改编时没有刻意避开这些限制级内容的。
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">人家为了引进忙了一整年，跑内跑外的……
 
 
-
-
-
-
-
 -----
 
 ####  名津流  
 ##### 1009#       发表于 2019-1-10 23:45
-
 
 
 [https://bbs.saraba1st.com/2b/for ... 93&amp;pid=42185244](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1798693&amp;pid=42185244)
@@ -20020,16 +13274,10 @@ ufo改编时没有刻意避开这些限制级内容的。
 今天一天涨了近600万
 
 
-
-
-
-
-
 -----
 
 ####  winoros  
 ##### 1010#       发表于 2019-1-10 23:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42231541&amp;ptid=1359460" target="_blank">jum 发表于 2019-1-10 22:17</a>
@@ -20042,25 +13290,13 @@ ufo改编时没有刻意避开这些限制级内容的。
 因为没办法早啊，你看某冈花官博开了大半年现在档都没订<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  noobtizi  
 ##### 1011#       发表于 2019-1-10 23:51
 
 
-
-
 就算删减了去影院看的体验也吊打看bd吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20069,16 +13305,10 @@ ufo改编时没有刻意避开这些限制级内容的。
 ##### 1012#       发表于 2019-1-11 00:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42232222&amp;ptid=1359460" target="_blank">龙娘777 发表于 2019-1-10 23:31</a>
 
 想啥呢</blockquote>
 我还以为是第二部和日本同步上映，加班加的老眼昏花了
-
-
-
-
-
 
 
 -----
@@ -20087,16 +13317,10 @@ ufo改编时没有刻意避开这些限制级内容的。
 ##### 1013#       发表于 2019-1-11 00:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42232398&amp;ptid=1359460" target="_blank">noobtizi 发表于 2019-1-10 23:51</a>
 
 就算删减了去影院看的体验也吊打看bd吧</blockquote>
 电影院的观众干扰，音响/屏幕效果，空调，吃喝，可能都不如在家看，也就冲个首映或者聚会才会去电影院了
-
-
-
-
-
 
 
 -----
@@ -20105,13 +13329,7 @@ ufo改编时没有刻意避开这些限制级内容的。
 ##### 1014#       发表于 2019-1-11 01:02
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">去年在香港看了先行，普通场，4dx场的表示，还是值得影院的音响轰炸一遍的，尤其那个op的演出的冲击，看三遍三遍都鸟肌
-
-
-
-
-
 
 
 -----
@@ -20120,14 +13338,7 @@ ufo改编时没有刻意避开这些限制级内容的。
 ##### 1015#       发表于 2019-1-11 01:04
 
 
-
-
 刚看到南昌也有色纸活动，冲色纸买明早的票了<img src="https://static.saraba1st.com/image/smiley/carton2017/051.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20136,15 +13347,9 @@ ufo改编时没有刻意避开这些限制级内容的。
 ##### 1016#       发表于 2019-1-11 01:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42232742&amp;ptid=1359460" target="_blank">正统MOBA 发表于 2019-1-11 00:33</a>
 电影院的观众干扰，音响/屏幕效果，空调，吃喝，可能都不如在家看，也就冲个首映或者聚会才会去电影院了 ...</blockquote>
 音响屏幕空调只能怪自己去的影院不行吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20153,16 +13358,10 @@ ufo改编时没有刻意避开这些限制级内容的。
 ##### 1017#       发表于 2019-1-11 01:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42233079&amp;ptid=1359460" target="_blank">noobtizi 发表于 2019-1-11 01:30</a>
 
 音响屏幕空调只能怪自己去的影院不行吧</blockquote>
 哪家影院最行，你举个例子？
-
-
-
-
-
 
 
 -----
@@ -20171,16 +13370,9 @@ ufo改编时没有刻意避开这些限制级内容的。
 ##### 1018#       发表于 2019-1-11 01:45
 
 
-
-
 去看国内场的有没人能说下有没有第二部的预告？是放在ED前还是ED后？
 
 实在不想听大妈，要是没预告就不听ED先退场了。
-
-
-
-
-
 
 
 -----
@@ -20189,15 +13381,8 @@ ufo改编时没有刻意避开这些限制级内容的。
 ##### 1019#       发表于 2019-1-11 01:58
 
 
-
-
 国内1月11日上映的是第一章还是第二章啊？
 是樱和士郎初遇那章么？
-
-
-
-
-
 
 
 -----
@@ -20206,14 +13391,7 @@ ufo改编时没有刻意避开这些限制级内容的。
 ##### 1020#       发表于 2019-1-11 02:06
 
 
-
-
 不想看电影，只想要色纸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20222,15 +13400,9 @@ ufo改编时没有刻意避开这些限制级内容的。
 ##### 1021#       发表于 2019-1-11 02:12
 
 
-
  本帖最后由 Nelioer 于 2019-1-11 09:04 编辑 
 
 非月球人，没看过fsn,仅仅是在大荧幕上看到纸片人就很满足了，希望明天，哦不今天，能看懂剧情吧
-
-
-
-
-
 
 
 -----
@@ -20239,23 +13411,16 @@ ufo改编时没有刻意避开这些限制级内容的。
 ##### 1022#       发表于 2019-1-11 02:36
 
 
-
  本帖最后由 没有未来的未来 于 2019-1-11 02:40 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42232931&amp;ptid=1359460" target="_blank">PKVSBOSS 发表于 2019-1-11 01:04</a>
 刚看到南昌也有色纸活动，冲色纸买明早的票了</blockquote>
  原来南昌也有金逸…感谢提醒
 
 
-
-
-
-
-
 -----
 
 ####  gary76  
 ##### 1023#       发表于 2019-1-11 07:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42230537&amp;ptid=1359460" target="_blank">冬夜女公爵 发表于 2019-1-10 20:29</a>
@@ -20269,16 +13434,10 @@ ufo改编时没有刻意避开这些限制级内容的。
 這才是她冠位的理由
 
 
-
-
-
-
-
 -----
 
 ####  gary76  
 ##### 1024#       发表于 2019-1-11 08:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42233199&amp;ptid=1359460" target="_blank">Agsd 发表于 2019-1-11 01:58</a>
@@ -20287,16 +13446,10 @@ ufo改编时没有刻意避开这些限制级内容的。
 是
 
 
-
-
-
-
-
 -----
 
 ####  gpx234mqx  
 ##### 1025#       发表于 2019-1-11 08:17
-
 
 
 <blockquote>冬夜女公爵 发表于 2019-1-10 20:29
@@ -20307,16 +13460,10 @@ ufo改编时没有刻意避开这些限制级内容的。
 冠位人形师不是白叫的
 
 
-
-
-
-
-
 -----
 
 ####  本职是魔法使  
 ##### 1026#       发表于 2019-1-11 09:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42233804&amp;ptid=1359460" target="_blank">gary76 发表于 2019-01-11 07:59:22</a>
@@ -20325,17 +13472,10 @@ ufo改编时没有刻意避开这些限制级内容的。
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  韶华白首  
 ##### 1027#       发表于 2019-1-11 09:20
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201901/11/092038easxjse1zx401xaj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
@@ -20348,16 +13488,7 @@ ufo改编时没有刻意避开这些限制级内容的。
 2019-1-11 09:20 上传
 
 
-
-
-
-
 这个点意外的人不少
-
-
-
-
-
 
 
 -----
@@ -20366,16 +13497,9 @@ ufo改编时没有刻意避开这些限制级内容的。
 ##### 1028#       发表于 2019-1-11 09:21
 
 
-
-
 还没个人来讲观后感吗？删了多少）
 
 — from OnePlus ONEPLUS A5010, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -20384,14 +13508,7 @@ ufo改编时没有刻意避开这些限制级内容的。
 ##### 1029#       发表于 2019-1-11 09:37
 
 
-
-
 下午准备提前一小时跑路，这还没色纸我就举报了
-
-
-
-
-
 
 
 -----
@@ -20400,16 +13517,9 @@ ufo改编时没有刻意避开这些限制级内容的。
 ##### 1030#       发表于 2019-1-11 09:45
 
 
-
-
 早上人少,没看过BD不知道删了啥,看完感觉就是相比起06版删了召saber那段,同行的朋友那里看得一脸懵完全不知道士郎为啥就成master 233
 
 然后文戏感觉还是挺闷的,但是打戏在屏幕上看非常爽快,特别是枪兵车上战assassin那段
-
-
-
-
-
 
 
 -----
@@ -20418,16 +13528,9 @@ ufo改编时没有刻意避开这些限制级内容的。
 ##### 1031#       发表于 2019-1-11 09:45
 
 
-
-
 最后一张海报樱的脚是什么魔术<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -20436,17 +13539,10 @@ ufo改编时没有刻意避开这些限制级内容的。
 ##### 1032#       发表于 2019-1-11 10:30
 
 
-
-
 和朋友都是抽到大狗，隔壁俩男的金闪闪，都表示亏大了
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
-
-
-
-
-
 
 
 -----
@@ -20455,15 +13551,9 @@ ufo改编时没有刻意避开这些限制级内容的。
 ##### 1033#       发表于 2019-1-11 10:46
 
 
-
  本帖最后由 wen88 于 2019-1-11 13:47 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">广州 太 阳 城金逸开了十几张全是金闪闪
-
-
-
-
-
 
 
 -----
@@ -20472,13 +13562,7 @@ ufo改编时没有刻意避开这些限制级内容的。
 ##### 1034#       发表于 2019-1-11 10:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">抽齐了两套，我好了
-
-
-
-
-
 
 
 -----
@@ -20487,14 +13571,7 @@ ufo改编时没有刻意避开这些限制级内容的。
 ##### 1035#       发表于 2019-1-11 11:26
 
 
-
-
 sb金逸 南昌一大早就抢光了连库存都没了
-
-
-
-
-
 
 
 -----
@@ -20503,14 +13580,7 @@ sb金逸 南昌一大早就抢光了连库存都没了
 ##### 1036#       发表于 2019-1-11 11:32
 
 
-
-
 太sb了买水不买电影票还能拿色纸 草（中国语）
-
-
-
-
-
 
 
 -----
@@ -20519,23 +13589,15 @@ sb金逸 南昌一大早就抢光了连库存都没了
 ##### 1037#       发表于 2019-1-11 11:47
 
 
-
-
 魔都 近铁旁边的金逸很实诚的，让你自己选。现在好了四张票 我一个人看<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 —— 来自 motorola XT1929-15, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
-
-
-
-
-
 
 
 -----
 
 ####  小妻水亚美  
 ##### 1038#       发表于 2019-1-11 11:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42235679&amp;ptid=1359460" target="_blank">PKVSBOSS 发表于 2019-1-11 10:54</a>
@@ -20545,32 +13607,19 @@ sb金逸 南昌一大早就抢光了连库存都没了
 —— 来自 motorola XT1929-15, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  龙娘777  
 ##### 1039#       发表于 2019-1-11 11:50
 
 
-
-
 让我想起了当初你名十几刷侠<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  gpx234mqx  
 ##### 1040#       发表于 2019-1-11 11:54
-
 
 
 <blockquote>本职是魔法使 发表于 2019-1-11 09:13
@@ -20584,32 +13633,19 @@ sb金逸 南昌一大早就抢光了连库存都没了
 最终手段解放体内使魔就赢了
 
 
-
-
-
-
-
 -----
 
 ####  loaflace  
 ##### 1041#       发表于 2019-1-11 11:56
 
 
-
-
 南昌金逸是傻逼吧，字幕都显示不完整的
-
-
-
-
-
 
 
 -----
 
 ####  PKVSBOSS  
 ##### 1042#       发表于 2019-1-11 11:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42236437&amp;ptid=1359460" target="_blank">小妻水亚美 发表于 2019-1-11 11:49</a>
@@ -20619,16 +13655,10 @@ sb金逸 南昌一大早就抢光了连库存都没了
 就是楼上说的，南昌金逸这里买饮料就能拿一张，在场的都买疯了，我也上头买了一堆饮料，都不知道该怎么提回家了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  jhjy217  
 ##### 1043#       发表于 2019-1-11 11:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42236506&amp;ptid=1359460" target="_blank">gpx234mqx 发表于 2019-1-11 11:54</a>
@@ -20640,25 +13670,13 @@ sb金逸 南昌一大早就抢光了连库存都没了
 然而魔法使是她妹妹<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  PKVSBOSS  
 ##### 1044#       发表于 2019-1-11 12:05
 
 
-
-
 不过我早上刚来的时候看到有人买了好多票来着，后来人多了才能买饮料送色纸的。
-
-
-
-
-
 
 
 -----
@@ -20667,14 +13685,7 @@ sb金逸 南昌一大早就抢光了连库存都没了
 ##### 1045#       发表于 2019-1-11 12:14
 
 
-
-
 喷了，为啥会有人觉得上的是第二部？
-
-
-
-
-
 
 
 -----
@@ -20683,22 +13694,15 @@ sb金逸 南昌一大早就抢光了连库存都没了
 ##### 1046#       发表于 2019-1-11 12:19
 
 
-
 <blockquote>PKVSBOSS 发表于 2019-1-11 12:05
 不过我早上刚来的时候看到有人买了好多票来着，后来人多了才能买饮料送色纸的。 ...</blockquote>
 我们来谈一下吧
-
-
-
-
-
 
 
 -----
 
 ####  舌怪  
 ##### 1047#       发表于 2019-1-11 12:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42233150&amp;ptid=1359460" target="_blank">消防 发表于 2019-1-11 01:45</a>
@@ -20708,13 +13712,9 @@ sb金逸 南昌一大早就抢光了连库存都没了
 有，ed后，还有大大的“2018公开”几个大字<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -20723,17 +13723,7 @@ sb金逸 南昌一大早就抢光了连库存都没了
 |----|---|---|
 
 
-
-
-
-
-
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -20742,22 +13732,15 @@ sb金逸 南昌一大早就抢光了连库存都没了
 ##### 1048#       发表于 2019-1-11 12:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42236634&amp;ptid=1359460" target="_blank">PKVSBOSS 发表于 2019-1-11 12:05</a>
  不过我早上刚来的时候看到有人买了好多票来着，后来人多了才能买饮料送色纸的。 ...</blockquote>
 买饮料就能换色纸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是的话就好了不想给阿睿贡献票房
-
-
-
-
-
 
 
 -----
 
 ####  小妻水亚美  
 ##### 1049#       发表于 2019-1-11 12:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42236557&amp;ptid=1359460" target="_blank">PKVSBOSS 发表于 2019-1-11 11:58</a>
@@ -20769,25 +13752,13 @@ _
 —— 来自 motorola XT1929-15, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  natmk  
 ##### 1050#       发表于 2019-1-11 12:29
 
 
-
-
 南昌金逸有没有人送我一张色纸啊 买瓶饮料送也行啊
-
-
-
-
-
 
 
 -----
@@ -20796,14 +13767,7 @@ _
 ##### 1051#       发表于 2019-1-11 12:34
 
 
-
-
 太痛苦了，两个钟的字幕显示不全，观影体验太差了，金逸到底怎么回事
-
-
-
-
-
 
 
 -----
@@ -20812,22 +13776,13 @@ _
 ##### 1052#       发表于 2019-1-11 12:36
 
 
-
-
 南昌金逸的观影体验也太差了，不是为了色纸真的不会来<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  韶华白首  
 ##### 1053#       发表于 2019-1-11 12:38
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201901/11/123849bokqng5non4nz550.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
@@ -20840,17 +13795,7 @@ _
 2019-1-11 12:38 上传
 
 
-
-
-
-
-
 山东万达，观影体验极佳。20人4女16男，都是25+的老月球人，太幸福了。
-
-
-
-
-
 
 
 -----
@@ -20859,14 +13804,7 @@ _
 ##### 1054#       发表于 2019-1-11 12:41
 
 
-
-
 大佬在哪里啊
-
-
-
-
-
 
 
 -----
@@ -20875,15 +13813,9 @@ _
 ##### 1055#       发表于 2019-1-11 12:47
 
 
-
 <blockquote>loaflace 发表于 2019-1-11 12:36
 南昌金逸的观影体验也太差了，不是为了色纸真的不会来</blockquote>
 大佬有多余的色纸吗
-
-
-
-
-
 
 
 -----
@@ -20892,14 +13824,7 @@ _
 ##### 1056#       发表于 2019-1-11 12:48
 
 
-
-
 我只抽了一张<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你问问上面那位
-
-
-
-
-
 
 
 -----
@@ -20908,14 +13833,7 @@ _
 ##### 1057#       发表于 2019-1-11 12:49
 
 
-
-
 没有人说到底删减了什么吗？大头照还是黑幕？
-
-
-
-
-
 
 
 -----
@@ -20924,16 +13842,10 @@ _
 ##### 1058#       发表于 2019-1-11 12:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42237184&amp;ptid=1359460" target="_blank">ladiesman802 发表于 2019-1-11 12:49</a>
 
 没有人说到底删减了什么吗？大头照还是黑幕？</blockquote>
 春梦删了，内脏黑幕，还有最血腥的地方也删了……
-
-
-
-
-
 
 
 -----
@@ -20942,15 +13854,9 @@ _
 ##### 1059#       发表于 2019-1-11 12:52
 
 
-
 <blockquote>PKVSBOSS 发表于 2019-1-11 11:58
 就是楼上说的，南昌金逸这里买饮料就能拿一张，在场的都买疯了，我也上头买了一堆饮料，都不知道该怎么提 ...</blockquote>
 大佬有多余的色纸吗
-
-
-
-
-
 
 
 -----
@@ -20959,16 +13865,10 @@ _
 ##### 1060#       发表于 2019-1-11 12:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42237216&amp;ptid=1359460" target="_blank">韶华白首 发表于 2019-1-11 12:51</a>
 
 春梦删了，内脏黑幕，还有最血腥的地方也删了……</blockquote>
 手动再见，把票留给冈花
-
-
-
-
-
 
 
 -----
@@ -20977,22 +13877,15 @@ _
 ##### 1061#       发表于 2019-1-11 12:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42237232&amp;ptid=1359460" target="_blank">natmk 发表于 2019-1-11 12:52</a>
 大佬有多余的色纸吗</blockquote>
 就多了张闪闪打算给朋友来着，不好意思。
-
-
-
-
-
 
 
 -----
 
 ####  韶华白首  
 ##### 1062#       发表于 2019-1-11 12:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42237286&amp;ptid=1359460" target="_blank">ladiesman802 发表于 2019-1-11 12:56</a>
@@ -21003,26 +13896,15 @@ _
 找个杜比厅便宜票吧，爽的一逼。
 
 
-
-
-
-
-
 -----
 
 ####  natmk  
 ##### 1063#       发表于 2019-1-11 12:58
 
 
-
 <blockquote>PKVSBOSS 发表于 2019-1-11 12:57
 就多了张闪闪打算给朋友来着，不好意思。</blockquote>
 没事😂
-
-
-
-
-
 
 
 -----
@@ -21031,23 +13913,15 @@ _
 ##### 1064#       发表于 2019-1-11 13:02
 
 
-
-
 不要因为一些无关紧要的删减就放弃啊，大屏幕的观感是真的太爽了，果然剧场版就应该在电影院看啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  本职是魔法使  
 ##### 1065#       发表于 2019-1-11 13:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42236567&amp;ptid=1359460" target="_blank">jhjy217 发表于 2019-01-11 11:59:22</a>
@@ -21057,33 +13931,19 @@ _
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  病少爷  
 ##### 1066#       发表于 2019-1-11 13:10
 
 
-
-
 金逸看片的色纸需要抽的吗？还是凭电影票根直接换的啊，下午三点场感觉应该人不会多，而且外面还下小雨<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  精疯MAN  
 ##### 1067#       发表于 2019-1-11 13:12
-
-
 
 
 气死我了，我为了抢到好位置，提前了一周购票，票买在别的影院
@@ -21093,25 +13953,13 @@ _
 妈的，早不讲晚不讲
 
 
-
-
-
-
-
 -----
 
 ####  fshzx  
 ##### 1068#       发表于 2019-1-11 13:16
 
 
-
-
 终于拿到色纸了，狗哥一只，幸好不是金闪闪，不然我会吐血的。
-
-
-
-
-
 
 
 -----
@@ -21120,21 +13968,13 @@ _
 ##### 1069#       发表于 2019-1-11 13:19
 
 
-
-
 金逸不错，厅很大，人数比我想象的要多。拿到樱的色纸，开心
-
-
-
-
-
 
 
 -----
 
 ####  lintmx  
 ##### 1070#       发表于 2019-1-11 13:21
-
 
 
 <img src="https://i.loli.net/2019/01/11/5c382779113c1.jpg" referrerpolicy="no-referrer">
@@ -21146,17 +13986,10 @@ _
 现场都快变成氪电影票抽色纸了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  逆袭的黑月  
 ##### 1071#       发表于 2019-1-11 13:23
-
-
 
 
 家附近金逸明后天都不排场了..周六两场周日一场全是下午晚上....真的没牌面
@@ -21166,25 +13999,13 @@ _
 晚上考虑下去不去金逸今晚的晚场
 
 
-
-
-
-
-
 -----
 
 ####  b741574322  
 ##### 1072#       发表于 2019-1-11 13:26
 
 
-
-
 抽了2张闪闪，吐血，算啦，月球了这么多年都没所谓了
-
-
-
-
-
 
 
 -----
@@ -21193,16 +14014,10 @@ _
 ##### 1073#       发表于 2019-1-11 13:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42237286&amp;ptid=1359460" target="_blank">ladiesman802 发表于 2019-1-11 12:56</a>
 
 手动再见，把票留给冈花</blockquote>
 我觉得没啥影响，也就C妈那里有点莫名其妙
-
-
-
-
-
 
 
 -----
@@ -21211,16 +14026,9 @@ _
 ##### 1074#       发表于 2019-1-11 13:32
 
 
-
-
 片源是不是有问题啊，为什么觉得人物在移动的时候有蓝色的拖影啊 好难受啊。
 
 —— 来自 motorola XT1929-15, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
-
-
-
-
-
 
 
 -----
@@ -21229,16 +14037,9 @@ _
 ##### 1075#       发表于 2019-1-11 13:32
 
 
-
-
 去年在HK看的第一部，抽到了B站的赠票下午休假去看，不知道有多少人抽中票去广州天娱广场看的，第二部打算二月份去澳门看<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony G8142, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
-
-
-
-
-
 
 
 -----
@@ -21247,16 +14048,10 @@ _
 ##### 1076#       发表于 2019-1-11 13:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42234772&amp;ptid=1359460" target="_blank">亚瑟姆·明日野 发表于 2019-1-11 09:45</a>
 
 早上人少,没看过BD不知道删了啥,看完感觉就是相比起06版删了召saber那段,同行的朋友那里看得一脸懵完全不知 ...</blockquote>
 电影原版就是这样，跳过共同线的，完全面向了解原作的观众。删的是血腥和色情的部分。
-
-
-
-
-
 
 
 -----
@@ -21265,14 +14060,7 @@ _
 ##### 1077#       发表于 2019-1-11 13:35
 
 
-
-
 看完我觉得还是挺值的，看的早场，也没有几个人
-
-
-
-
-
 
 
 -----
@@ -21281,21 +14069,13 @@ _
 ##### 1078#       发表于 2019-1-11 13:40
 
 
-
-
 这部我觉得好看的部分全都在忠义无双刷战绩了，其他都一般
-
-
-
-
-
 
 
 -----
 
 ####  gpx234mqx  
 ##### 1079#       发表于 2019-1-11 14:01
-
 
 
 <blockquote>本职是魔法使 发表于 2019-1-11 13:06
@@ -21306,16 +14086,10 @@ _
 想到一个事情，漫威的章鱼博士就在做和橙子一样的事情，复制了很多帕克的身体自己用，死了就转移意识启动另一个，事实上达成肉体不朽
 
 
-
-
-
-
-
 -----
 
 ####  亚瑟姆·明日野  
 ##### 1080#       发表于 2019-1-11 14:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42237859&amp;ptid=1359460" target="_blank">大气水平运动 发表于 2019-1-11 13:34</a>
@@ -21324,17 +14098,10 @@ _
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">表述不清,我后面说的删的那段指的是把召saber到初战枪兵那段全删成OP了,朋友一起去表示完全看不懂怎么突然冒出来了saber
 
 
-
-
-
-
-
 -----
 
 ####  h02t  
 ##### 1081#       发表于 2019-1-11 14:23
-
-
 
 
 一进去就有人大声说原来我看过了，亏了
@@ -21349,25 +14116,13 @@ _
 下次再也不在万达看动画了
 
 
-
-
-
-
-
 -----
 
 ####  cybernetics  
 ##### 1082#       发表于 2019-1-11 14:25
 
 
-
-
 看完了，满足了。
-
-
-
-
-
 
 
 -----
@@ -21376,14 +14131,7 @@ _
 ##### 1083#       发表于 2019-1-11 14:28
 
 
-
-
 跟UBW剧场一样面向系列粉丝，比UBWTV还拖节奏，如果看过网上资源我是不会去电影院看的，唯一值票价的就是樱和rider的乳摇
-
-
-
-
-
 
 
 -----
@@ -21392,14 +14140,7 @@ _
 ##### 1084#       发表于 2019-1-11 14:58
 
 
-
-
 看完了，第一次在电影院看日本动画电影，大荧幕就是爽，片场环境可以，没有人吵闹。
-
-
-
-
-
 
 
 -----
@@ -21408,14 +14149,7 @@ _
 ##### 1085#       发表于 2019-1-11 15:22
 
 
-
-
 分辨率好低啊
-
-
-
-
-
 
 
 -----
@@ -21424,14 +14158,7 @@ _
 ##### 1086#       发表于 2019-1-11 16:03
 
 
-
-
 大屏幕看打斗真是太爽了，我社保
-
-
-
-
-
 
 
 -----
@@ -21440,14 +14167,7 @@ _
 ##### 1087#       发表于 2019-1-11 16:04
 
 
-
-
 看完了，大屏幕包场，爽到
-
-
-
-
-
 
 
 -----
@@ -21456,21 +14176,13 @@ _
 ##### 1088#       发表于 2019-1-11 16:25
 
 
-
-
 今天的单日票房已经过千万了
-
-
-
-
-
 
 
 -----
 
 ####  zhDesire  
 ##### 1089#       发表于 2019-1-11 16:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42237021&amp;ptid=1359460" target="_blank">loaflace 发表于 2019-1-11 12:36</a>
@@ -21481,16 +14193,10 @@ _
 前几天在那看的大黄蜂就觉得长宽比有点问题
 
 
-
-
-
-
-
 -----
 
 ####  pl0okm  
 ##### 1090#       发表于 2019-1-11 16:44
-
 
 
  本帖最后由 pl0okm 于 2019-1-11 16:48 编辑 
@@ -21500,16 +14206,10 @@ _
 就是普通音响听着有点不过瘾 想试试全景声怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  loaflace  
 ##### 1091#       发表于 2019-1-11 16:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42240356&amp;ptid=1359460" target="_blank">zhDesire 发表于 2019-1-11 16:43</a>
@@ -21520,24 +14220,13 @@ _
 不是，绿茵路天虹那个
 
 
-
-
-
-
-
 -----
 
 ####  海鸟封  
 ##### 1092#       发表于 2019-1-11 16:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">用抢到的兑换券买了广州塔上最贵的票，应该没有KY
-
-
-
-
-
 
 
 -----
@@ -21546,14 +14235,7 @@ _
 ##### 1093#       发表于 2019-1-11 17:20
 
 
-
-
 排片真是少的可怜，周末2天都没能排上几场好时间和大影厅，金逸只有人傻钱多的VIP厅放弃去了，为了赶个万达的大厅明天得起早了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21562,14 +14244,7 @@ _
 ##### 1094#       发表于 2019-1-11 17:43
 
 
-
-
 今天下午看了一场，全场连我在内只有6个人。
-
-
-
-
-
 
 
 -----
@@ -21578,14 +14253,7 @@ _
 ##### 1095#       发表于 2019-1-11 17:54
 
 
-
-
 今天的第一场是30人vip小场，工作日中午坐了二十人左右，果然厨子一起观影效果好
-
-
-
-
-
 
 
 -----
@@ -21594,16 +14262,9 @@ _
 ##### 1096#       发表于 2019-1-11 18:11
 
 
-
-
 luone看的，观众素质不错，没有话痨和看手机的。就是散场的时候两个阿宅吐槽删减影响观感，去年都看过完整版了还有什么好在意的，能在电影院看就不错了，至少我是开场樱在门口登场bgm响起就觉得值回票价了
 
 —— 来自 HUAWEI ALP-AL00, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -21612,14 +14273,7 @@ luone看的，观众素质不错，没有话痨和看手机的。就是散场的
 ##### 1097#       发表于 2019-1-11 18:13
 
 
-
-
 买了明天晚上的票，上海市中心电影院，目前只有我一个人购票<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21628,24 +14282,16 @@ luone看的，观众素质不错，没有话痨和看手机的。就是散场的
 ##### 1098#       发表于 2019-1-11 18:16
 
 
-
 [https://bbs.saraba1st.com/2b/for ... 93&amp;pid=42185244](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1798693&amp;pid=42185244)
 
 
 连上今天之后的预售，总票房已经进入日本电影在国内票房的前30
 
 
-
-
-
-
-
 -----
 
 ####  cloudskate  
 ##### 1099#       发表于 2019-1-11 18:17
-
-
 
 
 感觉大银幕上反而没什么优势，当然画面很好，但整体而言是OVA等级，算强化版吧。
@@ -21657,27 +14303,15 @@ luone看的，观众素质不错，没有话痨和看手机的。就是散场的
 顺便的顺便，虽然是一个人去看的，但是旁边坐了JK服的可爱小姐姐，满足。
 
 
-
-
-
-
-
 -----
 
 ####  脚本水平  
 ##### 1100#       发表于 2019-1-11 18:30
 
 
-
-
 还行吧
 
 樱真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21686,14 +14320,7 @@ luone看的，观众素质不错，没有话痨和看手机的。就是散场的
 ##### 1101#       发表于 2019-1-11 18:31
 
 
-
-
 今天看完原版我突然动了找个配音版看看的邪念了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21702,15 +14329,9 @@ luone看的，观众素质不错，没有话痨和看手机的。就是散场的
 ##### 1102#       发表于 2019-1-11 18:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42225867&amp;ptid=1359460" target="_blank">小妻水亚美 发表于 2019-1-10 14:18</a>
  金逸的色纸今天就可以换了，如果信官微的说法，明天再来就没了。我过来换了一套四张，居然帮贡献了100的票 ...</blockquote>
 原来如此，昨天闲鱼上就有大批量卖色纸的了，今天去看，金逸的员工表示通知看完电影出来才能拿票根换，一个人只能拿一张色纸，票再多也不行。另外封口都粘的牢牢的，据说这个影院的全是闪闪…<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我拿到的和见到的也都是闪
-
-
-
-
-
 
 
 -----
@@ -21719,16 +14340,9 @@ luone看的，观众素质不错，没有话痨和看手机的。就是散场的
 ##### 1103#       发表于 2019-1-11 18:38
 
 
-
-
 看了国语版，蛋疼。
 
 音效不错。
-
-
-
-
-
 
 
 -----
@@ -21737,15 +14351,9 @@ luone看的，观众素质不错，没有话痨和看手机的。就是散场的
 ##### 1104#       发表于 2019-1-11 18:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42233150&amp;ptid=1359460" target="_blank">消防 发表于 2019-1-11 01:45</a>
  去看国内场的有没人能说下有没有第二部的预告？是放在ED前还是ED后？ 实在不想听大妈，要是没预告就不听ED ...</blockquote>
 有预告，ed后
-
-
-
-
-
 
 
 -----
@@ -21754,16 +14362,10 @@ luone看的，观众素质不错，没有话痨和看手机的。就是散场的
 ##### 1105#       发表于 2019-1-11 18:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42238568&amp;ptid=1359460" target="_blank">saintsimpler 发表于 2019-01-11 14:28:47</a>
 跟UBW剧场一样面向系列粉丝，比UBWTV还拖节奏，如果看过网上资源我是不会去电影院看的，唯一值票价的就是樱 ...</blockquote>这部片子相对于原作，有的地方节奏很慢、有的地方则是狂赶剧情（我这里没有包括OP那一段，那里已经超越“赶剧情”的范畴了）。毕竟监督主要是想做士郎和樱的故事，所以与此相关的剧情节奏就很慢。另外ufo里有狗厨，所以大狗的剧情也给够了时间。
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -21772,23 +14374,15 @@ luone看的，观众素质不错，没有话痨和看手机的。就是散场的
 ##### 1106#       发表于 2019-1-11 18:58
 
 
-
-
 你们说的色纸是啥玩意？
 
 我是下午一点场的，5个人，其他场次人还是蛮多的
-
-
-
-
-
 
 
 -----
 
 ####  xHole  
 ##### 1107#       发表于 2019-1-11 19:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42241861&amp;ptid=1359460" target="_blank">不乖 发表于 2019-01-11 18:58:34</a>
@@ -21799,16 +14393,10 @@ luone看的，观众素质不错，没有话痨和看手机的。就是散场的
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  nukejoker  
 ##### 1108#       发表于 2019-1-11 19:38
-
 
 
  本帖最后由 nukejoker 于 2019-1-11 19:49 编辑 
@@ -21826,32 +14414,19 @@ luone看的，观众素质不错，没有话痨和看手机的。就是散场的
 影片开始有个卫宫家餐厅的镜头和卫宫饭一除了人物和色调模一样。真是令人唏嘘。
 
 
-
-
-
-
-
 -----
 
 ####  shimotsuki14  
 ##### 1109#       发表于 2019-1-11 19:45
 
 
-
-
 本地的金逸vip厅今天白天都卖19块来着…今晚还有两场也就25。不过今天白嫖，感觉屏幕小还是不爽，加上票根换色纸了，买了个明天的巨幕再资瓷一个
-
-
-
-
-
 
 
 -----
 
 ####  Momechen  
 ##### 1110#       发表于 2019-1-11 20:03
-
 
 
 <img src="https://i.loli.net/2019/01/11/5c3885c3b91ec.png" referrerpolicy="no-referrer">
@@ -21864,31 +14439,19 @@ luone看的，观众素质不错，没有话痨和看手机的。就是散场的
 —— 来自 Sony G8341, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  cybernetics  
 ##### 1111#       发表于 2019-1-11 20:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">明天去二刷，这次5000万妥妥的
-
-
-
-
-
 
 
 -----
 
 ####  origen  
 ##### 1112#       发表于 2019-1-11 20:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42242300&amp;ptid=1359460" target="_blank">nukejoker 发表于 2019-1-11 19:38</a>
@@ -21901,17 +14464,10 @@ luone看的，观众素质不错，没有话痨和看手机的。就是散场的
 昆山金逸好几年没去过了，住的地方过去好远，而且城南现在好堵，因为年底加班，本来还想明天晚上去试试有没有色纸，看了层主明天晚上估计拿不到了，直接去保利或者万达看好了。。。
 
 
-
-
-
-
-
 -----
 
 ####  麻花疼  
 ##### 1113#       发表于 2019-1-11 20:24
-
-
 
 
 算是给15年的型月补票，满足了。
@@ -21920,25 +14476,13 @@ luone看的，观众素质不错，没有话痨和看手机的。就是散场的
 虽然后边不可能引进了，但还是希望HF能大卖。
 
 
-
-
-
-
-
 -----
 
 ####  Yeaha123  
 ##### 1114#       发表于 2019-1-11 20:36
 
 
-
-
 看完，话说这电影，不是月厨谁看得懂啊
-
-
-
-
-
 
 
 -----
@@ -21947,16 +14491,10 @@ luone看的，观众素质不错，没有话痨和看手机的。就是散场的
 ##### 1115#       发表于 2019-1-11 20:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42242894&amp;ptid=1359460" target="_blank">Yeaha123 发表于 2019-1-11 20:36</a>
 
 看完，话说这电影，不是月厨谁看得懂啊</blockquote>
 也没啥大规模宣传，主动去看的不是月厨也至少是肥肥了
-
-
-
-
-
 
 
 -----
@@ -21965,16 +14503,9 @@ luone看的，观众素质不错，没有话痨和看手机的。就是散场的
 ##### 1116#       发表于 2019-1-11 20:43
 
 
-
-
 电影院那个不算好的音响放打斗时轰隆隆的响声加上油鸡女士最爱的那个人声配乐<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">灾难啊
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -21983,16 +14514,9 @@ luone看的，观众素质不错，没有话痨和看手机的。就是散场的
 ##### 1117#       发表于 2019-1-11 20:45
 
 
-
-
 呜哇
 
 FATE系列只看过这一部还是在十年前，有点想看但没看过的家属也想一起凑热闹于是正在犹豫要不要带去<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22001,17 +14525,10 @@ FATE系列只看过这一部还是在十年前，有点想看但没看过的家�
 ##### 1118#       发表于 2019-1-11 20:50
 
 
-
-
 买的今晚最后一场,这选位可以说是人间真实了.
 
 一看这座位就知道不怕今晚有人打扰了
 <img src="https://wx1.sinaimg.cn/mw690/4df17e7egy1fz2xkdy6szj20g80it0zd.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22020,22 +14537,13 @@ FATE系列只看过这一部还是在十年前，有点想看但没看过的家�
 ##### 1119#       发表于 2019-1-11 20:53
 
 
-
-
 因为各种原因看一场前前后后买了三张票，看的时候电影院声音还出问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过忽略这点还是看得很投入
-
-
-
-
-
 
 
 -----
 
 ####  消防  
 ##### 1120#       发表于 2019-1-11 20:55
-
-
 
 
 最开始订的那个场包场了，换了一家坐了一半多的人。
@@ -22055,26 +14563,13 @@ saber召唤前还挺多人摸手机的，所以算是这个城市的法狗玩家
 到士樱烤火的那段，周围纷纷响起喝水看手机和冲去厕所的声音
 
 
-
-
-
-
-
-
 -----
 
 ####  Donglinjie  
 ##### 1121#       发表于 2019-1-11 20:55
 
 
-
-
 看的b站专场，电影院看打戏的效果实在太好了。我很喜欢这个阴郁的氛围，不过确实太粉丝向了，我只有HF原作没玩过都有看不懂的地方
-
-
-
-
-
 
 
 -----
@@ -22083,14 +14578,7 @@ saber召唤前还挺多人摸手机的，所以算是这个城市的法狗玩家
 ##### 1122#       发表于 2019-1-11 20:58
 
 
-
-
 南宁的万达不知道是片源还是什么的问题，看着都是模糊的，还没bd清晰，绝了
-
-
-
-
-
 
 
 -----
@@ -22099,21 +14587,13 @@ saber召唤前还挺多人摸手机的，所以算是这个城市的法狗玩家
 ##### 1123#       发表于 2019-1-11 20:59
 
 
-
-
 顺便说一句，这个抽卡完全出不了货啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"><img src="https://i.loli.net/2019/01/11/5c3893140bb31.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  海鸟封  
 ##### 1124#       发表于 2019-1-11 21:00
-
 
 
  本帖最后由 海鸟封 于 2019-1-11 21:02 编辑 
@@ -22131,32 +14611,15 @@ saber召唤前还挺多人摸手机的，所以算是这个城市的法狗玩家
 2019-1-11 21:02 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Kirihara  
 ##### 1125#       发表于 2019-1-11 21:14
 
 
-
-
 电影院看着还是挺爽的，人也不多，还好没有ky
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -22165,15 +14628,9 @@ saber召唤前还挺多人摸手机的，所以算是这个城市的法狗玩家
 ##### 1126#       发表于 2019-1-11 21:23
 
 
-
  本帖最后由 gg326 于 2019-1-11 21:30 编辑 
 
 我看的那家万达音响很带感，特别是士郎碰到黑泥那一下音效让我都感受到一种穿脑的感觉，但是2D动画工艺所限，放到大屏幕上面那粗线条，那距离远点人物还是很“大”但细节已经开始模糊不清（特别是人物五官）的观感……我推荐尽量选小场<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22182,16 +14639,9 @@ saber召唤前还挺多人摸手机的，所以算是这个城市的法狗玩家
 ##### 1127#       发表于 2019-1-11 21:34
 
 
-
-
 电影院里简直是月厨生态大观园，有玩fgo抽卡的，有扯设定的，有讲剧情的，有看一段吐槽一句的，还有金闪闪露一面就开始浪叫的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 不过打戏都还是安安静静看的，冲这打戏这票钱就算没白花<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22200,16 +14650,9 @@ saber召唤前还挺多人摸手机的，所以算是这个城市的法狗玩家
 ##### 1128#       发表于 2019-1-11 21:38
 
 
-
-
 一开始以为大多数会是玩废狗的年轻人
 
 结果大多数都是和我差不多年纪的……
-
-
-
-
-
 
 
 -----
@@ -22218,19 +14661,11 @@ saber召唤前还挺多人摸手机的，所以算是这个城市的法狗玩家
 ##### 1129#       发表于 2019-1-11 21:39
 
 
-
-
 你们都拿到色纸的么，为什么我拿到的是文件夹啊_(:3」∠)_
-
-
-
-
 
 
 IMG_9814.JPG
 (1.73 MB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -22239,24 +14674,7 @@ IMG_9814.JPG
 2019-1-11 21:39 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201901/11/213900wonhyiokahkxzpws.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -22265,16 +14683,9 @@ IMG_9814.JPG
 ##### 1130#       发表于 2019-1-11 21:43
 
 
-
-
 今天算是仔细又看了一遍，与其说是hf那种感觉不如说是在力求还原空境剧场。好想飞日本看2啊。这次和不太宅的老同学一起看的，人家都吐槽怎么全是宅男。。。
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -22283,14 +14694,7 @@ IMG_9814.JPG
 ##### 1131#       发表于 2019-1-11 21:49
 
 
-
-
 电影基本只去看动画的，HF应该是宅度最高的了，然后发现了一群没有弹幕就只能发出声音的懂梗人士
-
-
-
-
-
 
 
 -----
@@ -22299,17 +14703,10 @@ IMG_9814.JPG
 ##### 1132#       发表于 2019-1-11 21:49
 
 
-
-
 明天广州金逸海珠城下午五点的票有人要么？两张位置不错，淘票票90买的80转，可以领色纸
 
 发自我的iPhone via [Saralin 2.1.1](https://itunes.apple.com/cn/app/saralin/id1086444812)
 来自: iPhone客户端
-
-
-
-
-
 
 
 -----
@@ -22318,14 +14715,7 @@ IMG_9814.JPG
 ##### 1133#       发表于 2019-1-11 21:58
 
 
-
-
 晚上看了虹口金逸的场，过去已经说色纸全没了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22334,16 +14724,10 @@ IMG_9814.JPG
 ##### 1134#       发表于 2019-1-11 22:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42243755&amp;ptid=1359460" target="_blank">yukinouta 发表于 2019-1-11 21:58</a>
 
 晚上看了虹口金逸的场，过去已经说色纸全没了</blockquote>
 你看着楼早上的情况，月球人把电影票抽色纸当氪金的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22352,14 +14736,7 @@ IMG_9814.JPG
 ##### 1135#       发表于 2019-1-11 22:02
 
 
-
-
 观影时，看到有一位母亲带一个女小学生看这部电影<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22368,15 +14745,9 @@ IMG_9814.JPG
 ##### 1136#       发表于 2019-1-11 22:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42243780&amp;ptid=1359460" target="_blank">消防 发表于 2019-1-11 22:00</a>
 你看着楼早上的情况，月球人把电影票抽色纸当氪金的</blockquote>
 好像有的电影院买饮料送色卡
-
-
-
-
-
 
 
 -----
@@ -22385,16 +14756,10 @@ IMG_9814.JPG
 ##### 1137#         楼主| 发表于 2019-1-11 22:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42243794&amp;ptid=1359460" target="_blank">车欠 发表于 2019-1-11 22:02</a>
 
 观影时，看到有一位母亲带一个女小学生看这部电影</blockquote>
 还有人抱婴儿来的……
-
-
-
-
-
 
 
 -----
@@ -22403,14 +14768,7 @@ IMG_9814.JPG
 ##### 1138#       发表于 2019-1-11 22:12
 
 
-
-
 刚才上cctv6了，嘉宾表示原作是个“文字游戏”
-
-
-
-
-
 
 
 -----
@@ -22419,16 +14777,10 @@ IMG_9814.JPG
 ##### 1139#         楼主| 发表于 2019-1-11 22:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42243928&amp;ptid=1359460" target="_blank">改名了的 发表于 2019-1-11 22:12</a>
 
 刚才上cctv6了，嘉宾表示原作是个“文字游戏”</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">就我的印象来说，好像也没错？
-
-
-
-
-
 
 
 -----
@@ -22437,14 +14789,7 @@ IMG_9814.JPG
 ##### 1140#       发表于 2019-1-11 22:17
 
 
-
-
 有什么问题么，十几年前gal别人说一句电子小说说的还少了吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22453,15 +14798,9 @@ IMG_9814.JPG
 ##### 1141#       发表于 2019-1-11 22:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42243945&amp;ptid=1359460" target="_blank">xingenge 发表于 2019-1-11 22:13</a>
 就我的印象来说，好像也没错？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">是没错啊
-
-
-
-
-
 
 
 -----
@@ -22470,19 +14809,11 @@ IMG_9814.JPG
 ##### 1142#       发表于 2019-1-11 22:18
 
 
-
-
 FSN作为一个黄油也值了吧。
-
-
-
-
 
 
 QQ图片20190111221746.png
 (147.88 KB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -22491,82 +14822,33 @@ QQ图片20190111221746.png
 2019-1-11 22:17 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201901/11/221758vm27ymm2mlz8b1pm.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 d26b992397dda14410d3e442bfb7d0a20ef486a1.jpg
 (22.63 KB, 下载次数: 2)
 
 
-
-
 下载附件
 
 
 2019-1-11 22:16 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201901/11/221657qhovoo6fo6konoo3.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 68bc32f33a87e95084da7d9c1d385343f9f2b4aa.jpg
 (29.07 KB, 下载次数: 3)
 
 
-
-
 下载附件
 
 
 2019-1-11 22:16 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201901/11/221648ea4kalqr4nleabct.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -22575,23 +14857,15 @@ d26b992397dda14410d3e442bfb7d0a20ef486a1.jpg
 ##### 1143#       发表于 2019-1-11 22:28
 
 
-
-
 作为樱厨补票了
 
 —— 来自 Xiaomi MI MAX, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
-
-
-
-
-
 
 
 -----
 
 ####  消防  
 ##### 1144#       发表于 2019-1-11 22:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42244005&amp;ptid=1359460" target="_blank">EMIYARIN 发表于 2019-1-11 22:18</a>
@@ -22602,16 +14876,10 @@ FSN作为一个黄油也值了吧。</blockquote>
 一股子肥皂剧味<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ggrreen33  
 ##### 1145#       发表于 2019-1-11 22:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42244103&amp;ptid=1359460" target="_blank">消防 发表于 2019-01-11 22:29:38</a>
@@ -22622,32 +14890,19 @@ FSN作为一个黄油也值了吧。</blockquote>
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 1146#       发表于 2019-1-11 22:32
 
 
-
-
 旁边路人情侣来看吵吵不停实在糟心<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  改名了的  
 ##### 1147#       发表于 2019-1-11 22:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42244103&amp;ptid=1359460" target="_blank">消防 发表于 2019-1-11 22:29</a>
@@ -22657,27 +14912,15 @@ FSN作为一个黄油也值了吧。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">上边的妹子看到呆毛背着士郎回家那段，表示要樱要白学场景打耳光了
 
 
-
-
-
-
-
 -----
 
 ####  ingiz  
 ##### 1148#       发表于 2019-1-11 22:36
 
 
-
-
 片子剪得都是打戏里的血腥场面，造成动作场面有点割裂不连贯，观感有点差，然后剧情对于非粉丝的观众实在是不够友好。当然，能在电影院看到这片子还要什么飞机。对票房前景不乐观
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -22686,14 +14929,7 @@ FSN作为一个黄油也值了吧。</blockquote>
 ##### 1149#       发表于 2019-1-11 22:38
 
 
-
-
 刚看完了  对路人真是不友好  前面一个多小时几乎没打戏  剧情略白开水   总的来说很一般  完全没有电影的感觉  就是当TV动画在拍啊
-
-
-
-
-
 
 
 -----
@@ -22702,16 +14938,9 @@ FSN作为一个黄油也值了吧。</blockquote>
 ##### 1150#       发表于 2019-1-11 22:43
 
 
-
-
 刚看完，8点这个场次居然全场坐满，剪了好多<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 想问下，金闪闪在路上遇到樱时候说了啥？
-
-
-
-
-
 
 
 -----
@@ -22720,21 +14949,13 @@ FSN作为一个黄油也值了吧。</blockquote>
 ##### 1151#       发表于 2019-1-11 22:46
 
 
-
-
 我觉得能在大陆看到这片子我就很满足了，删减什么的已经不是大问题<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  改名了的  
 ##### 1152#       发表于 2019-1-11 22:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42244238&amp;ptid=1359460" target="_blank">Carta_Issue 发表于 2019-1-11 22:43</a>
@@ -22744,32 +14965,19 @@ FSN作为一个黄油也值了吧。</blockquote>
 可怜的女人，死去吧
 
 
-
-
-
-
-
 -----
 
 ####  applebloom  
 ##### 1153#       发表于 2019-1-11 22:48
 
 
-
-
 为了Rider的乳摇坚持了两个小时，最后真不好说是值还是不值，文戏真的是灾难，我都心疼旁边的路人，粉丝看着也足够难受了，打戏配合4dx挺high的，但不配合这些特效我是真的欣赏不来
-
-
-
-
-
 
 
 -----
 
 ####  消防  
 ##### 1154#       发表于 2019-1-11 22:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42244238&amp;ptid=1359460" target="_blank">Carta_Issue 发表于 2019-1-11 22:43</a>
@@ -22787,16 +14995,10 @@ FSN作为一个黄油也值了吧。</blockquote>
 闪闪三部剧场版加起来出场不够三分钟，周边除了一大堆<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  roy1996  
 ##### 1155#       发表于 2019-1-11 22:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42244005&amp;ptid=1359460" target="_blank">EMIYARIN 发表于 2019-1-11 22:18</a>
@@ -22805,17 +15007,10 @@ FSN作为一个黄油也值了吧。</blockquote>
 能有波兰蠢驴的宣发待遇，很好了
 
 
-
-
-
-
-
 -----
 
 ####  左梓喵右受兔  
 ##### 1156#       发表于 2019-1-11 23:05
-
-
 
 
 公司附近的小电影院 6点半场 不到十分之一的上座率 
@@ -22827,25 +15022,13 @@ FSN作为一个黄油也值了吧。</blockquote>
 对了居然还有几个JK 就是比我都肥的赶脚
 
 
-
-
-
-
-
 -----
 
 ####  weary10  
 ##### 1157#       发表于 2019-1-11 23:07
 
 
-
-
 超级粉丝向，路人一脸懵逼。
-
-
-
-
-
 
 
 -----
@@ -22854,21 +15037,13 @@ FSN作为一个黄油也值了吧。</blockquote>
 ##### 1158#       发表于 2019-1-11 23:18
 
 
-
-
 刚看完，粉丝向，影院效果不错，差不多有一两分钟的删减，还没看或者想二刷的强烈推荐金逸的mx4d，会配合动画情景从椅子吹出凉风，打斗时候的晃动也很恰当，实体感十足，值得一试
-
-
-
-
-
 
 
 -----
 
 ####  ramiel  
 ##### 1159#       发表于 2019-1-11 23:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42244005&amp;ptid=1359460" target="_blank">EMIYARIN 发表于 2019-1-11 22:18</a>
@@ -22880,25 +15055,13 @@ FSN作为一个黄油也值了吧。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  渺晓  
 ##### 1160#       发表于 2019-1-11 23:22
 
 
-
-
 刚看完回来，一段段不连续的片段接起来，我自己都快看睡着了，观感不好，战斗不错感觉太少。
-
-
-
-
-
 
 
 -----
@@ -22907,16 +15070,9 @@ FSN作为一个黄油也值了吧。</blockquote>
 ##### 1161#       发表于 2019-1-11 23:25
 
 
-
-
 对了，删减我觉得其实还好。
 
 小次郎是没看出哪里不自然，C妈处有点跳跃，春梦咬一下惊醒反而更符合场景，原版切得太突兀了（虽然删减掉后早上看樱喝汤脸红会有点莫名）
-
-
-
-
-
 
 
 -----
@@ -22925,14 +15081,7 @@ FSN作为一个黄油也值了吧。</blockquote>
 ##### 1162#       发表于 2019-1-12 00:10
 
 
-
-
 整场后面三个月球人在那吵吵闹闹太膈应<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">预告看完还想去影院看一遍R姐的乳摇，第二部也挺期待的，不过看这上座率估计没希望吧，后面几天的排片估计都要大幅度减少了
-
-
-
-
-
 
 
 -----
@@ -22941,14 +15090,7 @@ FSN作为一个黄油也值了吧。</blockquote>
 ##### 1163#       发表于 2019-1-12 00:13
 
 
-
-
 影院效果爽啊
-
-
-
-
-
 
 
 -----
@@ -22957,23 +15099,15 @@ FSN作为一个黄油也值了吧。</blockquote>
 ##### 1164#       发表于 2019-1-12 00:18
 
 
-
-
 战斗的删减我觉得不影响观感，反而是春梦删了士郎醒来后手抓了下空气会让人觉得莫名其妙
 
 晚上8点半这场竟然有一位穿着运动服的35+大叔来看，想必是真正的粉丝吧
-
-
-
-
-
 
 
 -----
 
 ####  消防  
 ##### 1165#       发表于 2019-1-12 00:34
-
 
 
 <blockquote>henry8848 发表于 2019-1-12 00:18
@@ -22983,17 +15117,10 @@ FSN作为一个黄油也值了吧。</blockquote>
 第一批月球人如果当年跳坑20岁，现在都奔四了……
 
 
-
-
-
-
-
 -----
 
 ####  一个陆仁贾  
 ##### 1166#       发表于 2019-1-12 00:35
-
-
 
 
 网上看过后去电影院看，这次就更注意士郎和樱的互动，那一声声“前辈”<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
@@ -23003,17 +15130,10 @@ FSN作为一个黄油也值了吧。</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  kmno4  
 ##### 1167#       发表于 2019-1-12 00:42
-
-
 
 
 后面就不剧透了，r姐剧情会说明的。。
@@ -23025,16 +15145,10 @@ FSN作为一个黄油也值了吧。</blockquote>
 做了这么久的樱厨，也可以发发这个了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  evangelina  
 ##### 1168#       发表于 2019-1-12 00:48
-
 
 
  本帖最后由 evangelina 于 2019-1-12 00:56 编辑 
@@ -23045,25 +15159,13 @@ FSN作为一个黄油也值了吧。</blockquote>
 全国的节目一本正经介绍黄油改合适吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1169#         楼主| 发表于 2019-1-12 01:08
 
 
-
-
 劇場予告で公開。劇場版「Fate/stay night [Heaven’s Feel] 第3章 spring song」2020年春公開予定とのこと ​​​​
-
-
-
-
-
 
 
 -----
@@ -23072,21 +15174,13 @@ FSN作为一个黄油也值了吧。</blockquote>
 ##### 1170#       发表于 2019-1-12 01:10
 
 
-
-
 后面几个冲着黑呆喊黑贞老婆的傻逼，我看了一圈好像还是个普遍现象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  紫水晶  
 ##### 1171#       发表于 2019-1-12 01:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42245569&amp;ptid=1359460" target="_blank">xingenge 发表于 2019-1-12 01:08</a>
@@ -23096,16 +15190,10 @@ FSN作为一个黄油也值了吧。</blockquote>
 —— 来自 Xiaomi MI MAX, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  小松莉奈  
 ##### 1172#       发表于 2019-1-12 01:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42245569&amp;ptid=1359460" target="_blank">xingenge 发表于 2019-1-12 01:08</a>
@@ -23114,17 +15202,10 @@ FSN作为一个黄油也值了吧。</blockquote>
 看这标题是走春天归来？
 
 
-
-
-
-
-
 -----
 
 ####  stonedeus  
 ##### 1173#       发表于 2019-1-12 01:21
-
-
 
 
 白嫖的b站票订了个4d场。晃得浑身难受<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
@@ -23132,16 +15213,10 @@ FSN作为一个黄油也值了吧。</blockquote>
 —— 来自 Xiaomi MIX 2, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  h02t  
 ##### 1174#       发表于 2019-1-12 01:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42245227&amp;ptid=1359460" target="_blank">henry8848 发表于 2019-1-12 00:18</a>
@@ -23153,27 +15228,15 @@ FSN作为一个黄油也值了吧。</blockquote>
 —— 来自 nubia NX563J, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  simpleyan  
 ##### 1175#       发表于 2019-1-12 01:31
 
 
-
-
 看完，上天入地的虫爷一本满足
 
 等一个上天入地的麻婆
-
-
-
-
-
 
 
 -----
@@ -23182,21 +15245,13 @@ FSN作为一个黄油也值了吧。</blockquote>
 ##### 1176#       发表于 2019-1-12 01:32
 
 
-
-
 应该是春归吧，感觉稍微改一改把樱之梦做进电影里也是可以的吧。。。。
-
-
-
-
-
 
 
 -----
 
 ####  消防  
 ##### 1177#       发表于 2019-1-12 01:42
-
 
 
  本帖最后由 消防 于 2019-1-12 01:45 编辑 
@@ -23211,32 +15266,19 @@ FSN作为一个黄油也值了吧。</blockquote>
 spring song这名字还真容易想到冰与火之歌第七本预定名，春晓的梦想
 
 
-
-
-
-
-
 -----
 
 ####  elflie  
 ##### 1178#       发表于 2019-1-12 01:43
 
 
-
-
 话说第二章剧情到哪里啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  fycwhat  
 ##### 1179#       发表于 2019-1-12 01:46
-
 
 
 <blockquote>消防 发表于 2019-1-12 01:42
@@ -23246,16 +15288,10 @@ spring song这名字还真容易想到冰与火之歌第七本预定名，春晓
 我觉得不也挺好吗。。。。。。bd做badend38不是更好
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 1180#       发表于 2019-1-12 01:51
-
 
 
  本帖最后由 消防 于 2019-1-12 01:53 编辑 
@@ -23267,16 +15303,10 @@ BD做樱梦结局还有点可能，BE38不可能
 梦里上了一个女人现实上了第二个女人发誓成为第二个女人的同伴路上碰到saber开挂同归于尽自封相爱相杀？做人留点脸皮啦
 
 
-
-
-
-
-
 -----
 
 ####  fycwhat  
 ##### 1181#       发表于 2019-1-12 01:59
-
 
 
 <blockquote>消防 发表于 2019-1-12 01:51
@@ -23286,16 +15316,10 @@ BD做樱梦结局还有点可能，BE38不可能
 所以我也知道基本上不可能，做一做宝可梦吧。。。。。。不过badend38也算是hf线saber的小结局吧，有saber的心理描写。。。。。。大人不能全都要吗？反正第一章已经把路人赶跑了。。。。。。
 
 
-
-
-
-
-
 -----
 
 ####  钦念以忱  
 ##### 1182#       发表于 2019-1-12 02:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42243928&amp;ptid=1359460" target="_blank">改名了的 发表于 2019-1-11 22:12</a>
@@ -23304,16 +15328,10 @@ BD做樱梦结局还有点可能，BE38不可能
 文字冒险游戏是标准的日本说法，文字AVG，这比国内惯用的galgame更官方
 
 
-
-
-
-
-
 -----
 
 ####  钦念以忱  
 ##### 1183#       发表于 2019-1-12 02:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42244103&amp;ptid=1359460" target="_blank">消防 发表于 2019-1-11 22:29</a>
@@ -23324,16 +15342,10 @@ BD做樱梦结局还有点可能，BE38不可能
 这一段我有点没看懂，樱为啥这时候要如此退让？
 
 
-
-
-
-
-
 -----
 
 ####  欧阳明  
 ##### 1184#       发表于 2019-1-12 02:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42245924&amp;ptid=1359460" target="_blank">钦念以忱 发表于 2019-1-12 02:04</a>
@@ -23342,25 +15354,13 @@ BD做樱梦结局还有点可能，BE38不可能
 樱在暴露真相之前都不想让士郎知道自己肮脏的那面，而肾二就用这点要挟她
 
 
-
-
-
-
-
 -----
 
 ####  loaflace  
 ##### 1185#       发表于 2019-1-12 02:17
 
 
-
-
 樱花也是春天开啊，说不定须藤爹就做樱之梦<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23369,16 +15369,10 @@ BD做樱梦结局还有点可能，BE38不可能
 ##### 1186#       发表于 2019-1-12 02:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42245959&amp;ptid=1359460" target="_blank">欧阳明 发表于 2019-1-12 02:12</a>
 
 樱在暴露真相之前都不想让士郎知道自己肮脏的那面，而肾二就用这点要挟她 ...</blockquote>
 原来这里慎二想爆樱黑料，看对话完全没发现啊
-
-
-
-
-
 
 
 -----
@@ -23387,16 +15381,10 @@ BD做樱梦结局还有点可能，BE38不可能
 ##### 1187#       发表于 2019-1-12 02:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42245993&amp;ptid=1359460" target="_blank">钦念以忱 发表于 2019-1-12 02:20</a>
 
 原来这里慎二想爆樱黑料，看对话完全没发现啊</blockquote>
 肾二就是日常就说你不听话我就把你的秘密说给士郎听来要挟樱的啦
-
-
-
-
-
 
 
 -----
@@ -23405,20 +15393,13 @@ BD做樱梦结局还有点可能，BE38不可能
 ##### 1188#       发表于 2019-1-12 03:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">spring song也可以解释说是春去春来的等待嘛，樱之梦会有的大家不要慌
-
-
-
-
-
 
 
 -----
 
 ####  we89623  
 ##### 1189#       发表于 2019-1-12 03:34
-
 
 
  本帖最后由 we89623 于 2019-1-12 03:36 编辑 
@@ -23429,25 +15410,13 @@ BD做樱梦结局还有点可能，BE38不可能
 35很正常好不 国内最早那批月厨当年最小的现在差不多也过30了
 
 
-
-
-
-
-
 -----
 
 ####  居于月上伊莫库  
 ##### 1190#       发表于 2019-1-12 04:07
 
 
-
-
 春歌<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">。
-
-
-
-
-
 
 
 -----
@@ -23456,14 +15425,7 @@ BD做樱梦结局还有点可能，BE38不可能
 ##### 1191#       发表于 2019-1-12 04:16
 
 
-
-
 因为第一章剧情比较无聊，原打算等到第二章出来再看的，不过刚从电影院回来感觉还不错？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23472,22 +15434,13 @@ BD做樱梦结局还有点可能，BE38不可能
 ##### 1192#       发表于 2019-1-12 04:47
 
 
-
-
 在扶他吧看完第二章流水账详细剧透我要说须藤牛逼!
-
-
-
-
-
 
 
 -----
 
 ####  俾斯麥  
 ##### 1193#       发表于 2019-1-12 05:42
-
-
 
 
 上映了两天的当前票房，好像还不错？不愧百万月厨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -23502,23 +15455,10 @@ BD做樱梦结局还有点可能，BE38不可能
 2019-1-12 05:41 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  rizutoaoitori  
 ##### 1194#       发表于 2019-1-12 08:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42246470&amp;ptid=1359460" target="_blank">俾斯麥 发表于 2019-1-12 05:42</a>
@@ -23527,16 +15467,10 @@ BD做樱梦结局还有点可能，BE38不可能
 虽然同期没什么能打的大热门，也挺不错了，毕竟二次元实质小众……
 
 
-
-
-
-
-
 -----
 
 ####  ioridx99  
 ##### 1195#       发表于 2019-1-12 09:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42246470&amp;ptid=1359460" target="_blank">俾斯麥 发表于 2019-1-12 05:42</a>
@@ -23548,17 +15482,10 @@ BD做樱梦结局还有点可能，BE38不可能
 1分是时间1分是删减
 
 
-
-
-
-
-
 -----
 
 ####  phoenixxj  
 ##### 1196#       发表于 2019-1-12 09:38
-
-
 
 
 真，好多同龄人。和旁边几位聊了下都是不玩废狗的，纯粹就是想来看看会动的xx233.
@@ -23568,32 +15495,19 @@ BD做樱梦结局还有点可能，BE38不可能
 ps：如果整个剧场版粉丝向，那文戏基本就是樱厨向的，看得好爽
 
 
-
-
-
-
-
 -----
 
 ####  suanli  
 ##### 1197#       发表于 2019-1-12 10:24
 
 
-
-
 看过后再在电影院看要好懂不少，大家都好好看<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  小妻水亚美  
 ##### 1198#       发表于 2019-1-12 10:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42243573&amp;ptid=1359460" target="_blank">蓬莱妹红 发表于 2019-1-11 21:39</a>
@@ -23603,25 +15517,13 @@ ps：如果整个剧场版粉丝向，那文戏基本就是樱厨向的，看得
 —— 来自 motorola XT1929-15, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  66367749  
 ##### 1199#       发表于 2019-1-12 10:47
 
 
-
-
 真有人看吗？几乎是包场就3个人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23630,14 +15532,7 @@ ps：如果整个剧场版粉丝向，那文戏基本就是樱厨向的，看得
 ##### 1200#       发表于 2019-1-12 10:56
 
 
-
-
 第二章制作质量爆炸，看完表示舒服
-
-
-
-
-
 
 
 -----
@@ -23646,23 +15541,15 @@ ps：如果整个剧场版粉丝向，那文戏基本就是樱厨向的，看得
 ##### 1201#       发表于 2019-1-12 11:05
 
 
-
-
 不同电影院特典不一样的样子 nga有人是樱的奶茶杯
 
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
-
-
-
-
-
 
 
 -----
 
 ####  蓬莱妹红  
 ##### 1202#       发表于 2019-1-12 11:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42247637&amp;ptid=1359460" target="_blank">小妻水亚美 发表于 2019-1-12 10:43</a>
@@ -23674,25 +15561,13 @@ ps：如果整个剧场版粉丝向，那文戏基本就是樱厨向的，看得
 三林的一个大光明电影院，那边工作人员说没有色纸只有这个，我们就拿了回来，然后发现好像其它地方都没人拿到这个的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 1203#       发表于 2019-1-12 11:17
 
 
-
-
 第二章口碑比第一章强很多啊，票房首日也比第一章强。ufo这次请外援了
-
-
-
-
-
 
 
 -----
@@ -23701,16 +15576,10 @@ ps：如果整个剧场版粉丝向，那文戏基本就是樱厨向的，看得
 ##### 1204#         楼主| 发表于 2019-1-12 11:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42247870&amp;ptid=1359460" target="_blank">蓬莱妹红 发表于 2019-1-12 11:17</a>
 
 三林的一个大光明电影院，那边工作人员说没有色纸只有这个，我们就拿了回来，然后发现好像其它地方都没人 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我都怀疑现在是不是有影院工作人员拿去扫描复印变成新的色纸，或者你手中的文件夹
-
-
-
-
-
 
 
 -----
@@ -23719,21 +15588,13 @@ ps：如果整个剧场版粉丝向，那文戏基本就是樱厨向的，看得
 ##### 1205#       发表于 2019-1-12 11:54
 
 
-
-
 八线乡下表示一个人包场，连工作人员都笑着帮我开门说一个人呢……
-
-
-
-
-
 
 
 -----
 
 ####  小妻水亚美  
 ##### 1206#       发表于 2019-1-12 12:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42247870&amp;ptid=1359460" target="_blank">蓬莱妹红 发表于 2019-1-12 11:17</a>
@@ -23743,25 +15604,13 @@ ps：如果整个剧场版粉丝向，那文戏基本就是樱厨向的，看得
 —— 来自 motorola XT1929-15, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  areklose  
 ##### 1207#       发表于 2019-1-12 12:02
 
 
-
-
 2人包场，但应该是因为我是看9点，25分开场。。。商城都没开门要走后门
-
-
-
-
-
 
 
 -----
@@ -23770,14 +15619,7 @@ ps：如果整个剧场版粉丝向，那文戏基本就是樱厨向的，看得
 ##### 1208#       发表于 2019-1-12 12:21
 
 
-
-
 咱们这里VIP75元，肉疼。。。
-
-
-
-
-
 
 
 -----
@@ -23786,21 +15628,13 @@ ps：如果整个剧场版粉丝向，那文戏基本就是樱厨向的，看得
 ##### 1209#       发表于 2019-1-12 12:29
 
 
-
-
 看了一下我们这小破地方上座率还是挺高的，比预想的好很多。
-
-
-
-
-
 
 
 -----
 
 ####  mhss  
 ##### 1210#       发表于 2019-1-12 12:55
-
 
 
  本帖最后由 mhss 于 2019-1-12 12:56 编辑 
@@ -23811,17 +15645,10 @@ ps：如果整个剧场版粉丝向，那文戏基本就是樱厨向的，看得
 —— 来自 Sony H8296, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  殻  
 ##### 1211#       发表于 2019-1-12 12:58
-
-
 
 
 记忆没出错的话国内版的字幕有一处较为明显的错译
@@ -23839,17 +15666,10 @@ ps：如果整个剧场版粉丝向，那文戏基本就是樱厨向的，看得
 不知道有没有注意到这里的人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  h02t  
 ##### 1212#       发表于 2019-1-12 13:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42248779&amp;ptid=1359460" target="_blank">殻 发表于 2019-1-12 12:58</a>
@@ -23862,25 +15682,13 @@ ps：如果整个剧场版粉丝向，那文戏基本就是樱厨向的，看得
 —— 来自 nubia NX563J, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  （待定  
 ##### 1213#       发表于 2019-1-12 13:11
 
 
-
-
 第2部看完，总体感觉比第1部好。黑桶打b叔碉堡。床戏太全年龄。瞩目的「くうくうおなかがなりました」情节的视觉化效果很赞。敲碗等最后一部！
-
-
-
-
-
 
 
 -----
@@ -23889,14 +15697,7 @@ ps：如果整个剧场版粉丝向，那文戏基本就是樱厨向的，看得
 ##### 1214#       发表于 2019-1-12 13:13
 
 
-
-
 巨幕厅看HF固然效果好，但遇上隔壁厅放大黄蜂漏声对HF这种经常安静的片子来说就很惨了，再加上后排角落里有一对SB全程絮絮叨叨动来动去（中途回头提醒加上盯了几眼，看动作甚至怀疑是在干那事儿），只有锤爆的心了。 ​​​<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23905,21 +15706,13 @@ ps：如果整个剧场版粉丝向，那文戏基本就是樱厨向的，看得
 ##### 1215#       发表于 2019-1-12 13:39
 
 
-
-
 散场了工作人员还特意过来聊，看来也是憋了好久啊
-
-
-
-
-
 
 
 -----
 
 ####  殻  
 ##### 1216#       发表于 2019-1-12 13:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42248864&amp;ptid=1359460" target="_blank">h02t 发表于 2019-1-12 13:09</a>
@@ -23931,32 +15724,19 @@ ps：如果整个剧场版粉丝向，那文戏基本就是樱厨向的，看得
 好吧我错了我才是弱智，消消火气<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  wangandh  
 ##### 1217#       发表于 2019-1-12 13:51
 
 
-
-
 No Traitors Tomorrow<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  bdangel1984  
 ##### 1218#       发表于 2019-1-12 14:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42248864&amp;ptid=1359460" target="_blank">h02t 发表于 2019-1-12 13:09</a>
@@ -23968,32 +15748,19 @@ No Traitors Tomorrow<img src="https://static.saraba1st.com/image/smiley/face2017
 引进片用弱智翻译的事太多了
 
 
-
-
-
-
-
 -----
 
 ####  bgmilk  
 ##### 1219#       发表于 2019-1-12 14:03
 
 
-
-
 有床戏！有床戏！有床戏！<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  saintsimpler  
 ##### 1220#       发表于 2019-1-12 14:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42247017&amp;ptid=1359460" target="_blank">ioridx99 发表于 2019-1-12 09:08</a>
@@ -24004,26 +15771,15 @@ No Traitors Tomorrow<img src="https://static.saraba1st.com/image/smiley/face2017
 8分？只看第一部来说根本不及格
 
 
-
-
-
-
-
 -----
 
 ####  山形石雄  
 ##### 1221#       发表于 2019-1-12 14:10
 
 
-
  本帖最后由 山形石雄 于 2019-1-12 14:14 编辑 
 
 电影院重看一次发现，脚本写得太好了，最强改遍之一。期待第二章。
-
-
-
-
-
 
 
 -----
@@ -24032,14 +15788,7 @@ No Traitors Tomorrow<img src="https://static.saraba1st.com/image/smiley/face2017
 ##### 1222#       发表于 2019-1-12 14:14
 
 
-
-
 听说听说第二章士郎和樱啪啪啪2分钟<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24048,14 +15797,7 @@ No Traitors Tomorrow<img src="https://static.saraba1st.com/image/smiley/face2017
 ##### 1223#       发表于 2019-1-12 14:48
 
 
-
-
 目前打算下周末再去看，不过从现在的票房看到下周排片会大幅减少吗？
-
-
-
-
-
 
 
 -----
@@ -24064,21 +15806,13 @@ No Traitors Tomorrow<img src="https://static.saraba1st.com/image/smiley/face2017
 ##### 1224#       发表于 2019-1-12 15:11
 
 
-
-
 等会国内版画质是有问题吗，还是我中奖了，还是我眼睛有问题，在中关村美嘉感觉仿佛在看720P，要瞎了
-
-
-
-
-
 
 
 -----
 
 ####  as960131  
 ##### 1225#       发表于 2019-1-12 15:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42248864&amp;ptid=1359460" target="_blank">h02t 发表于 2019-1-12 13:09</a>
@@ -24090,27 +15824,15 @@ No Traitors Tomorrow<img src="https://static.saraba1st.com/image/smiley/face2017
 你开心就好
 
 
-
-
-
-
-
 -----
 
 ####  astrayveller  
 ##### 1226#       发表于 2019-1-12 15:43
 
 
-
-
 除开原作这部片及格不能再多了……
 
 — from Xiaomi MI 8 UD, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -24119,14 +15841,7 @@ No Traitors Tomorrow<img src="https://static.saraba1st.com/image/smiley/face2017
 ##### 1227#       发表于 2019-1-12 15:48
 
 
-
-
 第一部好看，强无敌，等几个月不看就是为了在电影院大屏幕看，爽到了
-
-
-
-
-
 
 
 -----
@@ -24135,14 +15850,7 @@ No Traitors Tomorrow<img src="https://static.saraba1st.com/image/smiley/face2017
 ##### 1228#       发表于 2019-1-12 15:52
 
 
-
-
 电影院音效太棒，这就是去看大荧幕的原因，家里有电视都比不上电影院的音响
-
-
-
-
-
 
 
 -----
@@ -24151,17 +15859,10 @@ No Traitors Tomorrow<img src="https://static.saraba1st.com/image/smiley/face2017
 ##### 1229#       发表于 2019-1-12 16:27
 
 
-
-
 2章整体拍得还是漂亮，就是剧本不怎么断开，中间打戏场次也少，导致没啥时间感觉，看着看着体感没过多久就放完了，情绪的宣泄点不大好找（
 啊终章还要等到明年春orz
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -24170,16 +15871,9 @@ No Traitors Tomorrow<img src="https://static.saraba1st.com/image/smiley/face2017
 ##### 1230#         楼主| 发表于 2019-1-12 17:07
 
 
-
-
 劇場版「Fate/stay night [Heaven‘s Feel]」Ⅱ.lost butterfly CM第二弾
 [https://www.youtube.com/watch?v=4-LX-Fz0V1g](https://www.youtube.com/watch?v=4-LX-Fz0V1g)
 [http://v.youku.com/v_show/id_XND ... j.8428770.3416059.1](http://v.youku.com/v_show/id_XNDAwOTU1ODc0MA==.html?spm=a2h3j.8428770.3416059.1)
-
-
-
-
-
 
 
 -----
@@ -24188,16 +15882,10 @@ No Traitors Tomorrow<img src="https://static.saraba1st.com/image/smiley/face2017
 ##### 1231#       发表于 2019-1-12 17:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42246014&amp;ptid=1359460" target="_blank">欧阳明 发表于 2019-1-12 02:25</a>
 
 肾二就是日常就说你不听话我就把你的秘密说给士郎听来要挟樱的啦</blockquote>
 我大概懂了，慎二和樱平时有关于听话和保密的约定。这次慎二杀上卫宫家来想把樱带回去，传达出来的信息就是你继续呆在卫宫家就是不听话的表现。那即便这次慎二和士郎打架的时候不一定爆黑料，一旦慎二强化了这个判断，比如卫宫士郎帮樱出头，樱在边上装哑巴就是在反抗和不听话，那随时随地比如学校里慎二都有可能突然就向士郎爆黑料了。樱接收到了这个信息，于是赶紧表忠，说我只是最近住卫宫家爽一爽，以后还是听你话的。
-
-
-
-
-
 
 
 -----
@@ -24206,16 +15894,9 @@ No Traitors Tomorrow<img src="https://static.saraba1st.com/image/smiley/face2017
 ##### 1232#       发表于 2019-1-12 17:19
 
 
-
-
 集合群里二章的盗摄部分和fate吧流水账感觉二章很强啊
 
 坐等了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24224,13 +15905,7 @@ No Traitors Tomorrow<img src="https://static.saraba1st.com/image/smiley/face2017
 ##### 1233#       发表于 2019-1-12 17:34
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">真的好看 不过确实太粉丝向了 登场人物都一股劲憋着不说 而且还一脸默认“观众老爷一定都懂的” 这种感觉太微妙了
-
-
-
-
-
 
 
 -----
@@ -24239,14 +15914,7 @@ No Traitors Tomorrow<img src="https://static.saraba1st.com/image/smiley/face2017
 ##### 1234#       发表于 2019-1-12 17:39
 
 
-
-
 好看啊，阴郁的味道太棒了啊
-
-
-
-
-
 
 
 -----
@@ -24255,16 +15923,9 @@ No Traitors Tomorrow<img src="https://static.saraba1st.com/image/smiley/face2017
 ##### 1235#       发表于 2019-1-12 17:49
 
 
-
-
 没人搬吗？央视真的给这18禁游戏改编的作品做宣传了，见证历史
 
 [https://www.bilibili.com/video/av40002644](https://www.bilibili.com/video/av40002644)
-
-
-
-
-
 
 
 -----
@@ -24273,14 +15934,7 @@ No Traitors Tomorrow<img src="https://static.saraba1st.com/image/smiley/face2017
 ##### 1236#       发表于 2019-1-12 18:05
 
 
-
-
 群里有人发床戏视频被QQ秒杀了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24289,14 +15943,7 @@ No Traitors Tomorrow<img src="https://static.saraba1st.com/image/smiley/face2017
 ##### 1237#       发表于 2019-1-12 18:07
 
 
-
-
 电影院仔细重看了一遍一章，说说我的体会吧。标题开始前的那段可以说是对原作前面略有冗长的日常的浓缩的最佳方式，还加上了过去的描写，非常有美感。后面的段落会出现长时间的没有任何声音，而且画面很暗的情况，就造成非常压抑无处释放的感觉。几个战斗段落也都是各种憋屈，到最后主题曲一出，绝望感都快溢出银幕了。这片确实影院看体验完全不一样。监督是真原作厨无误。
-
-
-
-
-
 
 
 -----
@@ -24305,23 +15952,16 @@ No Traitors Tomorrow<img src="https://static.saraba1st.com/image/smiley/face2017
 ##### 1238#       发表于 2019-1-12 18:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42248205&amp;ptid=1359460" target="_blank">areklose 发表于 2019-1-12 12:02</a>
 
 2人包场，但应该是因为我是看9点，25分开场。。。商城都没开门要走后门</blockquote>
 和你包场的是肥宅还是咕哒子？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  冬夜女公爵  
 ##### 1239#       发表于 2019-1-12 18:22
-
 
 
  本帖最后由 冬夜女公爵 于 2019-1-12 19:09 编辑 
@@ -24332,25 +15972,13 @@ No Traitors Tomorrow<img src="https://static.saraba1st.com/image/smiley/face2017
 删掉了
 
 
-
-
-
-
-
 -----
 
 ####  rootss  
 ##### 1240#       发表于 2019-1-12 18:32
 
 
-
-
 本来只是想难得引进了去看看就好，现在有点想二刷
-
-
-
-
-
 
 
 -----
@@ -24359,13 +15987,7 @@ No Traitors Tomorrow<img src="https://static.saraba1st.com/image/smiley/face2017
 ##### 1241#         楼主| 发表于 2019-1-12 18:32
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 建议不放盗摄
-
-
-
-
-
 
 
 -----
@@ -24374,15 +15996,9 @@ No Traitors Tomorrow<img src="https://static.saraba1st.com/image/smiley/face2017
 ##### 1242#       发表于 2019-1-12 18:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42251477&amp;ptid=1359460" target="_blank">冬夜女公爵 发表于 2019-1-12 18:22</a>
  看了下偷拍，没漏点</blockquote>
 分级是pg12怎么可能有露 醒醒
-
-
-
-
-
 
 
 -----
@@ -24391,14 +16007,7 @@ No Traitors Tomorrow<img src="https://static.saraba1st.com/image/smiley/face2017
 ##### 1243#       发表于 2019-1-12 18:41
 
 
-
-
 穿衣显瘦 脱衣有肉<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24407,23 +16016,16 @@ No Traitors Tomorrow<img src="https://static.saraba1st.com/image/smiley/face2017
 ##### 1244#       发表于 2019-1-12 18:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42251477&amp;ptid=1359460" target="_blank">冬夜女公爵 发表于 2019-1-12 18:22</a>
 
 看了下偷拍，没漏点</blockquote>
 第一张图的眼泪（？）看着好诡异<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 1245#       发表于 2019-1-12 19:01
-
 
 
  本帖最后由 we89623 于 2019-1-12 19:36 编辑 
@@ -24433,16 +16035,10 @@ No Traitors Tomorrow<img src="https://static.saraba1st.com/image/smiley/face2017
 https://m.weibo.cn/6003334729/4327704633666488
 
 
-
-
-
-
-
 -----
 
 ####  冬夜女公爵  
 ##### 1246#       发表于 2019-1-12 19:04
-
 
 
  本帖最后由 冬夜女公爵 于 2019-1-12 19:09 编辑 
@@ -24455,25 +16051,13 @@ https://m.weibo.cn/6003334729/4327704633666488
 删掉，不放盗摄
 
 
-
-
-
-
-
 -----
 
 ####  离魂仙  
 ##### 1247#       发表于 2019-1-12 19:20
 
 
-
-
 好急。谢谢飞碟桌让我想起自己是个桜厨
-
-
-
-
-
 
 
 -----
@@ -24482,15 +16066,9 @@ https://m.weibo.cn/6003334729/4327704633666488
 ##### 1248#       发表于 2019-1-12 19:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我怎么没觉得好看？虽说我不是铁粉，但是三条线也都是有所了解的
 
 电影去掉战斗部分，文戏部分的镜头切得我一脸问号
-
-
-
-
-
 
 
 -----
@@ -24499,14 +16077,7 @@ https://m.weibo.cn/6003334729/4327704633666488
 ##### 1249#       发表于 2019-1-12 19:39
 
 
-
-
 第二章还能引进吗
-
-
-
-
-
 
 
 -----
@@ -24515,24 +16086,15 @@ https://m.weibo.cn/6003334729/4327704633666488
 ##### 1250#       发表于 2019-1-12 19:41
 
 
-
-
 恐怖气氛做得不错，撒库拉梦游仙境那段真神<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
 
 一章没去影院看，这二章感观远超预期，有时间再二刷
-
-
-
-
-
 
 
 -----
 
 ####  好多树  
 ##### 1251#       发表于 2019-1-12 19:45
-
-
 
 
 刚看完回来，好爽。之前虽然在电脑上看过，但电影院的效果就是不一样，不论是大银幕还是音响，特别带劲。现场入座率挺高的，我坐的前面有三个妹子一直在兴奋的叽叽喳喳，被别人提醒了一下就声音小多了。总体还行。
@@ -24542,25 +16104,13 @@ https://m.weibo.cn/6003334729/4327704633666488
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  龙娘777  
 ##### 1252#       发表于 2019-1-12 19:46
 
 
-
-
 感觉这楼已经开始关公战秦琼了 有的在说第一章有的在聊第二章 然后居然聊到一块了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24569,21 +16119,13 @@ https://m.weibo.cn/6003334729/4327704633666488
 ##### 1253#       发表于 2019-1-12 19:59
 
 
-
-
 2章真是瑟琴，不过观感还是有点粉丝向
-
-
-
-
-
 
 
 -----
 
 ####  mhss  
 ##### 1254#       发表于 2019-1-12 20:00
-
 
 
  本帖最后由 mhss 于 2019-1-12 20:02 编辑 
@@ -24607,25 +16149,13 @@ X X X O O O X X X
 放完离场时后面突然传来了archer念经“我是剑骨头”，不知道后面拿手机在干嘛
 
 
-
-
-
-
-
 -----
 
 ####  qqwliao  
 ##### 1255#       发表于 2019-1-12 20:17
 
 
-
-
 其实还好吧，第二章不是粉丝也能很好享受
-
-
-
-
-
 
 
 -----
@@ -24634,14 +16164,7 @@ X X X O O O X X X
 ##### 1256#       发表于 2019-1-12 20:27
 
 
-
-
 看完一脸懵逼<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24650,14 +16173,7 @@ X X X O O O X X X
 ##### 1257#       发表于 2019-1-12 20:41
 
 
-
-
 全场只有我和一个大哥看，并排坐在影院中间尴尬的看完了，中途工作人员还多次跑进来看我们走了没有想清场<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24666,23 +16182,15 @@ X X X O O O X X X
 ##### 1258#       发表于 2019-1-12 20:46
 
 
-
-
 我就想问问哪些地方被删减了？
 
 我看到的是caster、春梦、大狗被吃心脏这三个地方，还有哪些地方删了？
-
-
-
-
-
 
 
 -----
 
 ####  黑沢逢世  
 ##### 1259#       发表于 2019-1-12 20:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42252876&amp;ptid=1359460" target="_blank">沙包王 发表于 2019-1-12 20:46</a>
@@ -24693,17 +16201,10 @@ X X X O O O X X X
 送214(大雾)去麻婆那解开上衣那段
 
 
-
-
-
-
-
 -----
 
 ####  尚风悦  
 ##### 1260#       发表于 2019-1-12 21:08
-
-
 
 
 一直以为我虽然没玩游戏，好歹也是看了动画，应该能比较get。结果该懵的地方还是懵orz
@@ -24713,17 +16214,10 @@ X X X O O O X X X
 观众比预想的多，坐满了大半个厅。而且年龄层比我想象中的要高好多，本来今天放假还担心会不会碰上学生，结果灯亮了一看全是同龄人……观影效果相当良好，每次偷笑起哄都在梗上，哎本18线小破城市大半死宅估计都在这里了……
 
 
-
-
-
-
-
 -----
 
 ####  IDIDID  
 ##### 1261#       发表于 2019-1-12 21:10
-
-
 
 
 昨晚旁边坐的一对情侣 而且全程唧唧我我观影体验极差<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
@@ -24732,26 +16226,14 @@ X X X O O O X X X
 二章被吹爆了吧 现在就想看<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  韶华白首  
 ##### 1262#       发表于 2019-1-12 21:13
 
 
-
-
 日本上映的第二章本垒图透 剧透勿点
 [https://ww1.sinaimg.cn/large/007i4MEmgy1fz43yjofydj30ql377wmp点jpg](https://ww1.sinaimg.cn/large/007i4MEmgy1fz43yjofydj30ql377wmp.jpg)
-
-
-
-
-
 
 
 -----
@@ -24760,16 +16242,10 @@ X X X O O O X X X
 ##### 1263#       发表于 2019-1-12 21:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42253149&amp;ptid=1359460" target="_blank">韶华白首 发表于 2019-01-12 21:13:49</a>
 日本上映的第二章本垒图透 剧透勿点</blockquote>？？？
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -24778,14 +16254,7 @@ X X X O O O X X X
 ##### 1264#       发表于 2019-1-12 21:21
 
 
-
-
 成都comiday观影会归来，气氛良好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24794,22 +16263,14 @@ X X X O O O X X X
 ##### 1265#       发表于 2019-1-12 21:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42252835&amp;ptid=1359460" target="_blank"> chidori 发表于 2019-1-12 20:41</a> 全场只有我和一个大哥看，并排坐在影院中间尴尬的看完了，中途工作人员还多次跑进来看我们走了没有想清场 </blockquote>
 差点怀疑是同一场的，不过我跟另一位大哥不在同一排，有效避免了尴尬来自: iPhone客户端
-
-
-
-
-
 
 
 -----
 
 ####  偶滴小乔  
 ##### 1266#       发表于 2019-1-12 22:25
-
-
 
 
 后排一男一女
@@ -24838,16 +16299,10 @@ X X X O O O X X X
 <img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  elflie  
 ##### 1267#       发表于 2019-1-12 22:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42253784&amp;ptid=1359460" target="_blank">偶滴小乔 发表于 2019-1-12 22:25</a>
@@ -24860,25 +16315,13 @@ X X X O O O X X X
 知道原作就是这么厉害<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  exalbion01  
 ##### 1268#       发表于 2019-1-12 22:38
 
 
-
-
 碰到月球人逼逼的还算好了，我这后面一对中年老狗对着手机看视频逼逼，气的我播到一半往后面砸了卫生纸团
-
-
-
-
-
 
 
 -----
@@ -24887,14 +16330,7 @@ X X X O O O X X X
 ##### 1269#       发表于 2019-1-12 22:44
 
 
-
-
 hf第二章票房初动大概率会左。
-
-
-
-
-
 
 
 -----
@@ -24903,20 +16339,12 @@ hf第二章票房初动大概率会左。
 ##### 1270#       发表于 2019-1-12 22:47
 
 
-
-
 二刷。
 
 隔壁坐着个肥宅不断喘着粗气超恶心！
 
 
-
 更可恨他搂着个妹子！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24925,14 +16353,7 @@ hf第二章票房初动大概率会左。
 ##### 1271#       发表于 2019-1-12 22:50
 
 
-
-
 二章什么时候会有网络资源流出？
-
-
-
-
-
 
 
 -----
@@ -24941,15 +16362,9 @@ hf第二章票房初动大概率会左。
 ##### 1272#       发表于 2019-1-12 22:55
 
 
-
  本帖最后由 xzhlj0325 于 2019-1-13 15:06 编辑 
 
 编辑
-
-
-
-
-
 
 
 -----
@@ -24958,15 +16373,9 @@ hf第二章票房初动大概率会左。
 ##### 1273#       发表于 2019-1-12 22:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42252260&amp;ptid=1359460" target="_blank">好多树 发表于 2019-1-12 19:45</a>
 刚看完回来，好爽。之前虽然在电脑上看过，但电影院的效果就是不一样，不论是大银幕还是音响，特别带劲。现 ...</blockquote>
 想问个问题，为什么r姐几下秒了的哈桑大狗打起来那么费劲？就算对面是在引诱，这是不是有点丢人
-
-
-
-
-
 
 
 -----
@@ -24975,14 +16384,7 @@ hf第二章票房初动大概率会左。
 ##### 1274#       发表于 2019-1-12 23:06
 
 
-
-
 5555终于看完了第一章，果然跟同龄懂fate的小伙伴们去看观感最佳，真的很想去看第二章啊，去香港看算了
-
-
-
-
-
 
 
 -----
@@ -24991,16 +16393,10 @@ hf第二章票房初动大概率会左。
 ##### 1275#       发表于 2019-1-12 23:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42254122&amp;ptid=1359460" target="_blank">66367749 发表于 2019-1-12 22:59</a>
 想问个问题，为什么r姐几下秒了的哈桑大狗打起来那么费劲？就算对面是在引诱，这是不是有点丢人 ...</blockquote>
 因为大狗的戏份在ubw线
 当然设定上是说他的任务是出来接触所有servant并撤退，但被真A阴了。因为老头是hf线真主角（误）
-
-
-
-
-
 
 
 -----
@@ -25009,16 +16405,10 @@ hf第二章票房初动大概率会左。
 ##### 1276#       发表于 2019-1-12 23:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42254032&amp;ptid=1359460" target="_blank">eilaya2005 发表于 2019-1-12 22:50</a>
 
 二章什么时候会有网络资源流出？</blockquote>
 如果你说的是bd，那估计6月上下，如果你说的是枪版，就我个人而言，上一个看到的在日本上映流出的枪版动画电影还是10年的凉宫春日的消失，你名那种属于特例
-
-
-
-
-
 
 
 -----
@@ -25027,16 +16417,10 @@ hf第二章票房初动大概率会左。
 ##### 1277#       发表于 2019-1-12 23:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42254366&amp;ptid=1359460" target="_blank">kalavine 发表于 2019-1-12 23:27</a>
 
 如果你说的是bd，那估计6月上下，如果你说的是枪版，就我个人而言，上一个看到的在日本上映流出的枪版动 ...</blockquote>
 六月啊，看来还有的等
-
-
-
-
-
 
 
 -----
@@ -25045,21 +16429,13 @@ hf第二章票房初动大概率会左。
 ##### 1278#       发表于 2019-1-12 23:43
 
 
-
-
 香港很快会出枪版吧，不过香港那边不管吗每次看到枪版都是在香港上映后
-
-
-
-
-
 
 
 -----
 
 ####  阿提拉  
 ##### 1279#       发表于 2019-1-12 23:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42254122&amp;ptid=1359460" target="_blank">66367749 发表于 2019-01-12 22:59:04</a>
@@ -25072,16 +16448,10 @@ hf第二章票房初动大概率会左。
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  日下轮太  
 ##### 1280#       发表于 2019-1-13 00:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42254122&amp;ptid=1359460" target="_blank">66367749 发表于 2019-1-12 22:59</a>
@@ -25092,16 +16462,10 @@ hf第二章票房初动大概率会左。
 没有这段加的动作戏那更不
 
 
-
-
-
-
-
 -----
 
 ####  black199  
 ##### 1281#       发表于 2019-1-13 00:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42254665&amp;ptid=1359460" target="_blank">日下轮太 发表于 2019-1-13 00:03</a>
@@ -25114,26 +16478,15 @@ hf第二章票房初动大概率会左。
 ufo编剧水准大家也都知道，没指望能把这部分拍出花来，这段打戏扩充算加进去的小高潮了
 
 
-
-
-
-
-
 -----
 
 ####  defer  
 ##### 1282#       发表于 2019-1-13 00:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42254122&amp;ptid=1359460" target="_blank">66367749 发表于 2019-1-12 22:59</a>
 想问个问题，为什么r姐几下秒了的哈桑大狗打起来那么费劲？就算对面是在引诱，这是不是有点丢人 ...</blockquote>
 这时候r姐master的魔力已经和麻婆不是一个次元了。
-
-
-
-
-
 
 
 -----
@@ -25142,17 +16495,10 @@ ufo编剧水准大家也都知道，没指望能把这部分拍出花来，这�
 ##### 1283#       发表于 2019-1-13 00:37
 
 
-
-
 我看的时候发现我已经忘了那东西为什么在湖底
 以及为什么会和樱扯上关系了
 十多年前的东西依然可以抱着疑问看
 真是太棒了
-
-
-
-
-
 
 
 -----
@@ -25161,15 +16507,9 @@ ufo编剧水准大家也都知道，没指望能把这部分拍出花来，这�
 ##### 1284#       发表于 2019-1-13 00:42
 
 
-
 <img src="https://wx2.sinaimg.cn/mw690/718f29c7ly1fz3w1fpgg3j20u01bxwnd.jpg" referrerpolicy="no-referrer">
 
 名句啊，攥了一把西北风
-
-
-
-
-
 
 
 -----
@@ -25178,14 +16518,7 @@ ufo编剧水准大家也都知道，没指望能把这部分拍出花来，这�
 ##### 1285#       发表于 2019-1-13 00:43
 
 
-
-
 有对原作的了解打底的话，这电影的观感除了大狗对忠义无双的打戏之外其实能算优秀的。所以对片子评价持对立意见的双方，很多是各自在对空气输出……偏偏两边都批评不得，啥功课都不做就来看看完还逼逼不蠢么VS劳资想骂要你批准烂片批评不得么优越狗……也算是fate独有的一种奇景了
-
-
-
-
-
 
 
 -----
@@ -25194,21 +16527,13 @@ ufo编剧水准大家也都知道，没指望能把这部分拍出花来，这�
 ##### 1286#       发表于 2019-1-13 00:59
 
 
-
-
 三肥宅看完，广州igc，气氛良好，没有杂音。笑场了4次，1慎二吃瘪，2麻婆豆腐，3突然推凛，4カップ好大
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 1287#         楼主| 发表于 2019-1-13 01:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42254089&amp;ptid=1359460" target="_blank">xzhlj0325 发表于 2019-1-12 22:55</a>
@@ -25219,17 +16544,10 @@ ps：有没有大神能把这纸张材质造成的噪点给修了原图：/s/1Dk
 过几天就有人扫了，等等
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1288#         楼主| 发表于 2019-1-13 01:05
-
-
 
 
 我看完了，首先不是月厨，只看过FSN（06），最近因为一些原因，有预习了一下。
@@ -25242,32 +16560,19 @@ ps：有没有大神能把这纸张材质造成的噪点给修了原图：/s/1Dk
 但是好看啊，毕竟三章，第一章暗流涌动的感觉，最后才能大感动啊。
 
 
-
-
-
-
-
 -----
 
 ####  supersssbc  
 ##### 1289#       发表于 2019-1-13 02:07
 
 
-
-
 感觉第一章最后黑saber那里出来卖角色味道太重了，虽然hf原作黑saber正式登场也没什么仪式感，但毕竟是突然出现又暴打b叔，加上完全无口不说话，非人感超强，和saber的对比完全不同，作为boss的压迫感很强
-
-
-
-
-
 
 
 -----
 
 ####  玖羽  
 ##### 1290#       发表于 2019-1-13 03:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42254999&amp;ptid=1359460" target="_blank">shimotsuki14 发表于 2019-1-13 00:42</a>
@@ -25279,25 +16584,13 @@ ps：有没有大神能把这纸张材质造成的噪点给修了原图：/s/1Dk
 没看过原作怎么知道那是风
 
 
-
-
-
-
-
 -----
 
 ####  韶华白首  
 ##### 1291#       发表于 2019-1-13 06:52
 
 
-
-
 提醒各位小城市同学，抓紧时间看，后面几天都没有排片了，太惨了。
-
-
-
-
-
 
 
 -----
@@ -25306,16 +16599,9 @@ ps：有没有大神能把这纸张材质造成的噪点给修了原图：/s/1Dk
 ##### 1292#       发表于 2019-1-13 06:52
 
 
-
-
 官方原画流出
 
 <img src="https://i.loli.net/2019/01/13/5c3a6be36be09.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25324,16 +16610,10 @@ ps：有没有大神能把这纸张材质造成的噪点给修了原图：/s/1Dk
 ##### 1293#       发表于 2019-1-13 09:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42256076&amp;ptid=1359460" target="_blank">madrid2011 发表于 2019-01-13 06:52:31</a>
 官方原画流出</blockquote>这谁顶得住
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -25342,14 +16622,7 @@ ps：有没有大神能把这纸张材质造成的噪点给修了原图：/s/1Dk
 ##### 1294#       发表于 2019-1-13 09:17
 
 
-
-
 这也太劲爆了吧
-
-
-
-
-
 
 
 -----
@@ -25358,21 +16631,13 @@ ps：有没有大神能把这纸张材质造成的噪点给修了原图：/s/1Dk
 ##### 1295#       发表于 2019-1-13 09:22
 
 
-
-
 和樱厨有点互相理解了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  gpx234mqx  
 ##### 1296#       发表于 2019-1-13 09:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42256525&amp;ptid=1359460" target="_blank">kyogngn 发表于 2019-1-13 09:14</a>
@@ -25384,16 +16649,10 @@ ps：有没有大神能把这纸张材质造成的噪点给修了原图：/s/1Dk
 肉肉的樱真是太好了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  areklose  
 ##### 1297#       发表于 2019-1-13 09:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42251418&amp;ptid=1359460" target="_blank">dante888 发表于 2019-1-12 18:15</a>
@@ -25402,16 +16661,10 @@ ps：有没有大神能把这纸张材质造成的噪点给修了原图：/s/1Dk
 肥宅<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Quokka  
 ##### 1298#       发表于 2019-1-13 09:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42256076&amp;ptid=1359460" target="_blank">madrid2011 发表于 2019-1-13 06:52</a>
@@ -25421,16 +16674,10 @@ ps：有没有大神能把这纸张材质造成的噪点给修了原图：/s/1Dk
 —— 来自 vivo NEX S, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  marxel  
 ##### 1299#       发表于 2019-1-13 10:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42255795&amp;ptid=1359460" target="_blank">玖羽 发表于 2019-1-13 03:35</a>
@@ -25443,16 +16690,10 @@ ps：有没有大神能把这纸张材质造成的噪点给修了原图：/s/1Dk
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1300#         楼主| 发表于 2019-1-13 10:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42256076&amp;ptid=1359460" target="_blank">madrid2011 发表于 2019-1-13 06:52</a>
@@ -25461,26 +16702,15 @@ ps：有没有大神能把这纸张材质造成的噪点给修了原图：/s/1Dk
 怎么看怎么不像
 
 
-
-
-
-
-
 -----
 
 ####  人形灾害  
 ##### 1301#       发表于 2019-1-13 11:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42256076&amp;ptid=1359460" target="_blank">madrid2011 发表于 2019-1-13 06:52</a>
 官方原画流出</blockquote>
 兄啊这哪里像是官方原画了
-
-
-
-
-
 
 
 -----
@@ -25489,14 +16719,7 @@ ps：有没有大神能把这纸张材质造成的噪点给修了原图：/s/1Dk
 ##### 1302#       发表于 2019-1-13 11:21
 
 
-
-
 不是小裙裙一脱就剩内衣了吗，这张没什么印象啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25505,16 +16728,10 @@ ps：有没有大神能把这纸张材质造成的噪点给修了原图：/s/1Dk
 ##### 1303#       发表于 2019-1-13 12:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42255567&amp;ptid=1359460" target="_blank">supersssbc 发表于 2019-01-13 02:07:30</a>
 感觉第一章最后黑saber那里出来卖角色味道太重了，虽然hf原作黑saber正式登场也没什么仪式感，但毕竟是突然 ...</blockquote>卖卖角色其实也没啥，都过了十几年了谁还不知道saber有个黑化版<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那身吊带连衣裙都是后来补充的，原作全程就是铁桶一样的全身铠甲233。
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -25523,16 +16740,10 @@ ps：有没有大神能把这纸张材质造成的噪点给修了原图：/s/1Dk
 ##### 1304#       发表于 2019-1-13 12:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42254122&amp;ptid=1359460" target="_blank">66367749 发表于 2019-01-12 22:59:04</a>
 想问个问题，为什么r姐几下秒了的哈桑大狗打起来那么费劲？就算对面是在引诱，这是不是有点丢人 ...</blockquote>大狗被麻婆施加的令咒就是和全部servant交手一次，试探为主，不要用全力也不要被干掉。所以一开始大狗就是半吊子打，后来被黑泥搞了要翻车了令咒的束缚才解开，为了自保才开宝具，但是晚了
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -25541,14 +16752,7 @@ ps：有没有大神能把这纸张材质造成的噪点给修了原图：/s/1Dk
 ##### 1305#       发表于 2019-1-13 12:11
 
 
-
-
 包场<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25557,16 +16761,10 @@ ps：有没有大神能把这纸张材质造成的噪点给修了原图：/s/1Dk
 ##### 1306#       发表于 2019-1-13 12:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42255169&amp;ptid=1359460" target="_blank">xingenge 发表于 2019-1-13 01:02</a>
 
 过几天就有人扫了，等等</blockquote>
 这就是我自扫的
-
-
-
-
-
 
 
 -----
@@ -25575,16 +16773,9 @@ ps：有没有大神能把这纸张材质造成的噪点给修了原图：/s/1Dk
 ##### 1307#       发表于 2019-1-13 12:53
 
 
-
-
 为啥现在好多的奈子都画的这么大 感觉失真了 而且比例也不协调 有点难受
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -25593,16 +16784,9 @@ ps：有没有大神能把这纸张材质造成的噪点给修了原图：/s/1Dk
 ##### 1308#       发表于 2019-1-13 13:19
 
 
-
-
 第二章什么时候上映？
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -25611,24 +16795,16 @@ ps：有没有大神能把这纸张材质造成的噪点给修了原图：/s/1Dk
 ##### 1309#         楼主| 发表于 2019-1-13 13:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42258370&amp;ptid=1359460" target="_blank">xzhlj0325 发表于 2019-1-13 12:49</a>
 
 这就是我自扫的</blockquote>
 我知道，我的意思是有扫了又会修，还会放很大分辨率的扫图分享的人
 
 
-
-
-
-
-
 -----
 
 ####  aaron17  
 ##### 1310#       发表于 2019-1-13 14:01
-
-
 
 
 2章看完了。这次做的真是好，文戏武戏都很棒，特别是感情描写很细腻，土狼下定只为樱一个人战斗的决心的过程和樱的几次感情波动都很打动人。
@@ -25639,17 +16815,10 @@ ps：有没有大神能把这纸张材质造成的噪点给修了原图：/s/1Dk
 — from Sony SOV36, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1311#         楼主| 发表于 2019-1-13 14:06
-
-
 
 
 6.1M，自行打开下载：[https://yande.re/post/show/508139](https://yande.re/post/show/508139)
@@ -25657,16 +16826,10 @@ ps：有没有大神能把这纸张材质造成的噪点给修了原图：/s/1Dk
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fz4x9e3ejlj216r0u04qu.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xzhlj0325  
 ##### 1312#       发表于 2019-1-13 14:15
-
 
 
  本帖最后由 xzhlj0325 于 2019-1-13 14:21 编辑 
@@ -25678,32 +16841,19 @@ ps：有没有大神能把这纸张材质造成的噪点给修了原图：/s/1Dk
 我没经验而且可能要求太苛刻了
 
 
-
-
-
-
-
 -----
 
 ####  没有未来的未来  
 ##### 1313#       发表于 2019-1-13 14:20
 
 
-
-
 南昌…多一张狗哥… 求换其它任意
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 1314#         楼主| 发表于 2019-1-13 14:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42259083&amp;ptid=1359460" target="_blank">xzhlj0325 发表于 2019-1-13 14:15</a>
@@ -25714,16 +16864,10 @@ ps：有没有大神能把这纸张材质造成的噪点给修了原图：/s/1Dk
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">如果要修的话也行吧，要等这种成品估计要等上一个月
 
 
-
-
-
-
-
 -----
 
 ####  xzhlj0325  
 ##### 1315#       发表于 2019-1-13 15:01
-
 
 
  本帖最后由 xzhlj0325 于 2019-1-13 15:12 编辑 
@@ -25735,30 +16879,13 @@ ps：有没有大神能把这纸张材质造成的噪点给修了原图：/s/1Dk
 topaz挺好用
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  martinhe  
 ##### 1316#       发表于 2019-1-13 16:45
 
 
-
-
 选电影场没看仔细，选了国语的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，逼自己二刷了
-
-
-
-
-
 
 
 -----
@@ -25767,14 +16894,7 @@ topaz挺好用
 ##### 1317#       发表于 2019-1-13 16:46
 
 
-
-
 18线城市心疼下被“悬疑片”骗进来的小情侣，一路快进跳剧情最后还只能看1/3
-
-
-
-
-
 
 
 -----
@@ -25783,13 +16903,7 @@ topaz挺好用
 ##### 1318#       发表于 2019-1-13 17:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">你们说的砍掉樱滋味的镜头在哪里啊,我看了2遍下载版也没找到
-
-
-
-
-
 
 
 -----
@@ -25798,16 +16912,10 @@ topaz挺好用
 ##### 1319#       发表于 2019-1-13 17:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42260275&amp;ptid=1359460" target="_blank">nexus1 发表于 2019-1-13 17:08</a>
 
 你们说的砍掉樱滋味的镜头在哪里啊,我看了2遍下载版也没找到</blockquote>
 这楼已经是第1部国内上映版和第2部日本上映版夹杂在一起讨论了，你在第1部的下载版里自然找不到<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25816,14 +16924,7 @@ topaz挺好用
 ##### 1320#       发表于 2019-1-13 17:41
 
 
-
-
 补了完整版，可能是历史太久远，Fsn线和ubw线我都不曾记得大狗有一个远程输入无效的技能，我寻思一下这技能不是完克金皮卡么？
-
-
-
-
-
 
 
 -----
@@ -25832,14 +16933,7 @@ topaz挺好用
 ##### 1321#       发表于 2019-1-13 17:46
 
 
-
-
 想问下，原版hf线金闪闪和樱的战斗有没有具体描写？
-
-
-
-
-
 
 
 -----
@@ -25848,16 +16942,10 @@ topaz挺好用
 ##### 1322#       发表于 2019-1-13 18:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42260437&amp;ptid=1359460" target="_blank">mhss 发表于 2019-1-13 17:30</a>
 
 这楼已经是第1部国内上映版和第2部日本上映版夹杂在一起讨论了，你在第1部的下载版里自然找不到 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">浪费时间了
-
-
-
-
-
 
 
 -----
@@ -25866,14 +16954,7 @@ topaz挺好用
 ##### 1323#       发表于 2019-1-13 18:14
 
 
-
-
 这片子第一部的删减镜头是不是只有一个士郎做春梦？我看了下载版，也就是个摸胸，尺度比《白蛇》的半裸啪啪啪小多了，不知道有啥好删的。
-
-
-
-
-
 
 
 -----
@@ -25882,16 +16963,10 @@ topaz挺好用
 ##### 1324#         楼主| 发表于 2019-1-13 18:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42260768&amp;ptid=1359460" target="_blank">本异末同 发表于 2019-1-13 18:14</a>
 
 这片子第一部的删减镜头是不是只有一个士郎做春梦？我看了下载版，也就是个摸胸，尺度比《白蛇》的半裸啪啪 ...</blockquote>
 还有一些血腥镜头，比如几个从者的死之类的
-
-
-
-
-
 
 
 -----
@@ -25900,16 +16975,10 @@ topaz挺好用
 ##### 1325#       发表于 2019-1-13 18:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42260848&amp;ptid=1359460" target="_blank">xingenge 发表于 2019-1-13 18:23</a>
 
 还有一些血腥镜头，比如几个从者的死之类的</blockquote>
 这样啊，看的时候这些地方没注意到明显的剪切痕迹，春梦那里注意到是因为士郎伸出来的手。
-
-
-
-
-
 
 
 -----
@@ -25918,16 +16987,10 @@ topaz挺好用
 ##### 1326#       发表于 2019-1-13 18:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42260516&amp;ptid=1359460" target="_blank">7sword 发表于 2019-1-13 17:41</a>
 
 补了完整版，可能是历史太久远，Fsn线和ubw线我都不曾记得大狗有一个远程输入无效的技能，我寻思一下这技能 ...</blockquote>
 所以FATE线动画版里才是被天之锁链锁起来然后砍死的吧
-
-
-
-
-
 
 
 -----
@@ -25936,16 +16999,10 @@ topaz挺好用
 ##### 1327#       发表于 2019-1-13 18:37
 
 
-
  本帖最后由 we89623 于 2019-1-13 18:40 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42260516&amp;ptid=1359460" target="_blank">7sword 发表于 2019-1-13 17:41</a>
 补了完整版，可能是历史太久远，Fsn线和ubw线我都不曾记得大狗有一个远程输入无效的技能，我寻思一下这技能 ...</blockquote>
 就是因有此被动大狗在FATE线可以跟金皮卡纠缠半天，跟金皮卡能纠缠数小时什么概念，至少冬木圣杯体系下的没有第二个吧
-
-
-
-
-
 
 
 -----
@@ -25954,21 +17011,13 @@ topaz挺好用
 ##### 1328#       发表于 2019-1-13 19:10
 
 
-
-
 大狗鼻屎的加护我很有印象，我倒真不记得真A有个防风功能
-
-
-
-
-
 
 
 -----
 
 ####  nexus1  
 ##### 1329#       发表于 2019-1-13 19:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42242971&amp;ptid=1359460" target="_blank">ggrreen33 发表于 2019-1-11 20:43</a>
@@ -25980,32 +17029,19 @@ topaz挺好用
 <img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">经常莫名其妙拉一个镜头,"咚"的一声,好累啊
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 1330#       发表于 2019-1-13 19:52
 
 
-
-
 金皮卡吧洋溢着批斗须藤的欢乐气息wwwwwwww
-
-
-
-
-
 
 
 -----
 
 ####  离魂仙  
 ##### 1331#       发表于 2019-1-13 20:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42261611&amp;ptid=1359460" target="_blank">we89623 发表于 2019-1-13 19:52</a>
@@ -26018,16 +17054,10 @@ topaz挺好用
 有点好奇这十年间是怎么熬过来了，从记忆里抹杀掉FSN的存在？
 
 
-
-
-
-
-
 -----
 
 ####  你说这个谁懂  
 ##### 1332#       发表于 2019-1-13 20:13
-
 
 
  本帖最后由 你说这个谁懂 于 2019-1-13 20:21 编辑 
@@ -26038,11 +17068,8 @@ topaz挺好用
 <img src="http://ww1.sinaimg.cn/large/45cafeb5gy1fz582sgpopj22c0340u0y.jpg" referrerpolicy="no-referrer">
 
 
-
 门口的幽浮桌LOGO
 <img src="https://i.loli.net/2019/01/13/5c3b29e0aae82.jpg" referrerpolicy="no-referrer">
-
-
 
 
 随便拍一些店内装潢，英文对白感觉很迷
@@ -26055,16 +17082,13 @@ topaz挺好用
 <img src="https://i.loli.net/2019/01/13/5c3b2a6a949b1.jpg" referrerpolicy="no-referrer">
 
 
-
 联动HF第二章的菜单和实物，味道还不错
 <img src="https://i.loli.net/2019/01/13/5c3b2aaadce75.jpg" referrerpolicy="no-referrer">
 <img src="https://i.loli.net/2019/01/13/5c3b2aabd8afe.jpg" referrerpolicy="no-referrer">
 
 
-
 甜点和饮料送的特典，随机，我这个抽的大概还算不错
 <img src="http://ww1.sinaimg.cn/large/45cafeb5gy1fz584o3tvqj22c0340u0x.jpg" referrerpolicy="no-referrer">
-
 
 
 最后当然少不了买买买了。土狼的家门钥匙给专门做了出来，没忍住买了一个。
@@ -26074,13 +17098,9 @@ topaz挺好用
 <img src="https://i.loli.net/2019/01/13/5c3b2b479fe79.jpg" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -26090,12 +17110,7 @@ topaz挺好用
 | GuDaZi| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -26104,16 +17119,10 @@ topaz挺好用
 ##### 1333#       发表于 2019-1-13 20:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42260516&amp;ptid=1359460" target="_blank">7sword 发表于 2019-1-13 17:41</a>
 
 补了完整版，可能是历史太久远，Fsn线和ubw线我都不曾记得大狗有一个远程输入无效的技能，我寻思一下这技能 ...</blockquote>
 防不了地图炮和视距外攻击，而且王财里有特殊效果的太多了。大狗能凭这招拖住金皮卡很久，但离完克差很远
-
-
-
-
-
 
 
 -----
@@ -26122,14 +17131,7 @@ topaz挺好用
 ##### 1334#       发表于 2019-1-13 20:53
 
 
-
-
 我去的这个影院可能是音箱不够好，开场大河和樱在远处对话基本听不到，回家用耳机听了一下还是很清楚的。
-
-
-
-
-
 
 
 -----
@@ -26138,14 +17140,7 @@ topaz挺好用
 ##### 1335#       发表于 2019-1-13 21:08
 
 
-
-
 有没有第一部专楼……刚看完
-
-
-
-
-
 
 
 -----
@@ -26154,15 +17149,9 @@ topaz挺好用
 ##### 1336#       发表于 2019-1-13 21:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42260558&amp;ptid=1359460" target="_blank">xzhlj0325 发表于 2019-1-13 17:46</a>
 想问下，原版hf线金闪闪和樱的战斗有没有具体描写？</blockquote>
 没有 秒杀
-
-
-
-
-
 
 
 -----
@@ -26171,15 +17160,9 @@ topaz挺好用
 ##### 1337#       发表于 2019-1-13 21:34
 
 
-
 <blockquote>xzhlj0325 发表于 2019-1-13 17:46
 想问下，原版hf线金闪闪和樱的战斗有没有具体描写？</blockquote>
 原作就是闪闪远程吊打 樱濒死 闪闪想要浪一波近战补刀然后被吃掉。
-
-
-
-
-
 
 
 -----
@@ -26188,23 +17171,16 @@ topaz挺好用
 ##### 1338#       发表于 2019-1-13 21:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42260558&amp;ptid=1359460" target="_blank">xzhlj0325 发表于 2019-1-13 17:46</a>
 
 想问下，原版hf线金闪闪和樱的战斗有没有具体描写？</blockquote>
 没有，就是金皮卡浪一波然后黑影一口的事（
 
 
-
-
-
-
-
 -----
 
 ####  Temori  
 ##### 1339#       发表于 2019-1-13 21:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42261768&amp;ptid=1359460" target="_blank">你说这个谁懂 发表于 2019-1-13 20:13</a>
@@ -26217,16 +17193,10 @@ topaz挺好用
 感谢安利，过两天去瞅瞅
 
 
-
-
-
-
-
 -----
 
 ####  你说这个谁懂  
 ##### 1340#       发表于 2019-1-13 21:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42262642&amp;ptid=1359460" target="_blank">Temori 发表于 2019-1-13 21:54</a>
@@ -26237,16 +17207,10 @@ topaz挺好用
 真是难得，大佬也在名古屋吗<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 1341#       发表于 2019-1-13 21:59
-
 
 
  本帖最后由 消防 于 2019-1-13 22:09 编辑 
@@ -26257,16 +17221,10 @@ topaz挺好用
 要是闪能把樱宰了是不是就能把saber救回来……至少能让她死得不那么遗憾<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Temori  
 ##### 1342#       发表于 2019-1-13 22:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42262666&amp;ptid=1359460" target="_blank">你说这个谁懂 发表于 2019-1-13 21:56</a>
@@ -26275,16 +17233,10 @@ topaz挺好用
 待到二三月吧，然后估计是跑路去京都<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  gpx234mqx  
 ##### 1343#       发表于 2019-1-13 22:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42260950&amp;ptid=1359460" target="_blank">we89623 发表于 2019-1-13 18:37</a>
@@ -26293,26 +17245,15 @@ topaz挺好用
 叫出小恩就没问题，冬木圣杯是可行的
 
 
-
-
-
-
-
 -----
 
 ####  dudideng  
 ##### 1344#       发表于 2019-1-13 22:56
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">本体游戏没玩过，只看过系列TV动画，所以是当作新作来看的。
 
 第二部刚看完感觉不错，期待最终章。
-
-
-
-
-
 
 
 -----
@@ -26321,14 +17262,7 @@ topaz挺好用
 ##### 1345#       发表于 2019-1-13 23:13
 
 
-
-
 今天终于看了第一章，删减真的好蠢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">两次C妈相关和春梦那里上下文衔接都有问题了，以为1分钟影响不大我真是太年轻了
-
-
-
-
-
 
 
 -----
@@ -26337,16 +17271,10 @@ topaz挺好用
 ##### 1346#       发表于 2019-1-13 23:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42252271&amp;ptid=1359460" target="_blank">龙娘777 发表于 2019-1-12 19:46</a>
 
 感觉这楼已经开始关公战秦琼了 有的在说第一章有的在聊第二章 然后居然聊到一块了 ...</blockquote>
 关公战秦琼不正是Fate的特色吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26355,22 +17283,14 @@ topaz挺好用
 ##### 1347#       发表于 2019-1-13 23:45
 
 
-
-
 刚刚看了游戏文本，电影对闪闪这段剧情的合并改动还挺好的
 感觉死的更惨了
-
-
-
-
-
 
 
 -----
 
 ####  卡蓮  
 ##### 1348#       发表于 2019-1-13 23:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42263455&amp;ptid=1359460" target="_blank">winoros 发表于 2019-1-13 23:13</a>
@@ -26382,25 +17302,13 @@ topaz挺好用
 死人民教师的那个地方特别突兀，镜头一切发生什么了都不知道
 
 
-
-
-
-
-
 -----
 
 ####  白叹夜  
 ##### 1349#       发表于 2019-1-14 04:07
 
 
-
-
 不懂就问，樱有句台词说士郎是第二个这么关心她的人，那么第一个是谁<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26409,16 +17317,10 @@ topaz挺好用
 ##### 1350#       发表于 2019-1-14 06:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42265090&amp;ptid=1359460" target="_blank">白叹夜 发表于 2019-1-14 04:07</a>
 
 不懂就问，樱有句台词说士郎是第二个这么关心她的人，那么第一个是谁 ...</blockquote>
 间桐雁夜吧。。。 FZ看过么
-
-
-
-
-
 
 
 -----
@@ -26427,14 +17329,7 @@ topaz挺好用
 ##### 1351#       发表于 2019-1-14 08:05
 
 
-
-
 看人提到才发现，美缀这B86/W58/H83的身材完全不输樱的嘛，没有异性缘是因为太像214了吧（
-
-
-
-
-
 
 
 -----
@@ -26443,16 +17338,10 @@ topaz挺好用
 ##### 1352#       发表于 2019-1-14 08:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42265090&amp;ptid=1359460" target="_blank">白叹夜 发表于 2019-1-14 04:07</a>
 
 不懂就问，樱有句台词说士郎是第二个这么关心她的人，那么第一个是谁 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">樱的头饰是凛送的,感觉是凛
-
-
-
-
-
 
 
 -----
@@ -26461,22 +17350,15 @@ topaz挺好用
 ##### 1353#       发表于 2019-1-14 08:37
 
 
-
 <blockquote>斯卡哈 发表于 2019-1-14 08:05
 看人提到才发现，美缀这B86/W58/H83的身材完全不输樱的嘛，没有异性缘是因为太像214了吧（ ...</blockquote>
 发型吧，换个发型就好了
-
-
-
-
-
 
 
 -----
 
 ####  linux40  
 ##### 1354#       发表于 2019-1-14 09:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42254122&amp;ptid=1359460" target="_blank">66367749 发表于 2019-1-12 22:59</a>
@@ -26486,16 +17368,10 @@ topaz挺好用
 之后r姐master换樱了，魔力供给和伊莉雅差不多水平。
 
 
-
-
-
-
-
 -----
 
 ####  des138e  
 ##### 1355#       发表于 2019-1-14 10:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42246374&amp;ptid=1359460" target="_blank">we89623 发表于 2019-01-12 04:47:38</a>
@@ -26504,17 +17380,10 @@ topaz挺好用
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  洋芋头  
 ##### 1356#       发表于 2019-1-14 10:48
-
-
 
 
 南京有色纸拿的电影院得过江，就随便找了一家权当电影院复习了一遍。
@@ -26524,17 +17393,10 @@ topaz挺好用
 fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现在想想只穿长袖T恤和超短裙绝对领域也太耐寒了
 
 
-
-
-
-
-
 -----
 
 ####  monseiur13  
 ##### 1357#       发表于 2019-1-14 10:58
-
-
 
 
 一纯路人妹子打算去看，我给她贴了b站UBW的链接说你先看两集了解下背景，电影后面走别的路线。
@@ -26543,16 +17405,10 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Teiume  
 ##### 1358#       发表于 2019-1-14 10:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42267234&amp;ptid=1359460" target="_blank">洋芋头 发表于 2019-1-14 10:48</a>
@@ -26563,16 +17419,10 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 原作也记得不太清了，最近看到的说法（监督谈话，真假待定？）是：樱由于虫子的原因，本身已经感受不到寒冷，最多也就是看别人换季换衣服为了不引人注目所以我也换。白色裙子因为是士郎买给樱的，樱一直穿着想展示给士郎美好的一面。
 
 
-
-
-
-
-
 -----
 
 ####  七堂伽蓝  
 ##### 1359#       发表于 2019-1-14 11:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42267397&amp;ptid=1359460" target="_blank">monseiur13 发表于 2019-1-14 10:58</a>
@@ -26583,16 +17433,10 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 所以某种意义上樱黑化也不是没有理由的，二次元、三次元全都不待见她
 
 
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 1360#       发表于 2019-1-14 11:33
-
 
 
  本帖最后由 消防 于 2019-1-14 12:58 编辑 
@@ -26607,13 +17451,7 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 说樱感知不了寒冷，但烤火前一段分明站在门口抖……
 
 
-
 另，有暗恋对象的高中生送裙子给认识的学妹，总感觉好恶心……
-
-
-
-
-
 
 
 -----
@@ -26622,14 +17460,7 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 ##### 1361#       发表于 2019-1-14 12:16
 
 
-
-
 擦，豆瓣评分已经7.7了，比bgm评分还低，豆瓣评论区不吐槽了，现在豆瓣的新番一堆虚高的，而一些不错的老番才7分多。。。
-
-
-
-
-
 
 
 -----
@@ -26638,15 +17469,9 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 ##### 1362#       发表于 2019-1-14 12:31
 
 
-
 <blockquote>白叹夜 发表于 2019-1-14 04:07
 不懂就问，樱有句台词说士郎是第二个这么关心她的人，那么第一个是谁 ...</blockquote>
 应该是雁夜，为了和FZ对上号。原作里是没这句话的，因为那时候FZ还没开始写。
-
-
-
-
-
 
 
 -----
@@ -26655,14 +17480,7 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 ##### 1363#       发表于 2019-1-14 12:34
 
 
-
-
 所以说你弱就成为雁夜 你强就成为士郎<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26671,21 +17489,13 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 ##### 1364#       发表于 2019-1-14 13:58
 
 
-
-
 谢答，其实我也希望是雁夜<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  香辣鸡腿饭套餐  
 ##### 1365#       发表于 2019-1-14 15:03
-
 
 
  本帖最后由 香辣鸡腿饭套餐 于 2019-1-14 15:06 编辑 
@@ -26697,16 +17507,10 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 第一次是凛送的发带，第二次是士郎给的钥匙（樱心里重要的人也就这两位了）
 
 
-
-
-
-
-
 -----
 
 ####  oh_my_god  
 ##### 1366#       发表于 2019-1-14 15:05
-
 
 
 <blockquote>白叹夜 发表于 2019-1-14 04:07
@@ -26716,16 +17520,10 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 后面有提到的第二次获得珍爱之人赠送的重要之物，就是在说凛送的发带，对应起来，前面说的这个人就应该是凛了
 
 
-
-
-
-
-
 -----
 
 ####  trb315  
 ##### 1367#       发表于 2019-1-14 15:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42269741&amp;ptid=1359460" target="_blank">白叹夜 发表于 2019-1-14 13:58</a>
@@ -26734,16 +17532,10 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 不是，樱对雁夜根本没啥印象
 
 
-
-
-
-
-
 -----
 
 ####  trb315  
 ##### 1368#       发表于 2019-1-14 15:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42265465&amp;ptid=1359460" target="_blank">斯卡哈 发表于 2019-1-14 08:05</a>
@@ -26752,16 +17544,10 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 性格关系，像个假小子，和凛比谁先交到男友的时候还想抓士郎冒充她男友
 
 
-
-
-
-
-
 -----
 
 ####  trb315  
 ##### 1369#       发表于 2019-1-14 15:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42268519&amp;ptid=1359460" target="_blank">葡萄牙的高山 发表于 2019-1-14 12:16</a>
@@ -26770,25 +17556,13 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 7.7都是虚高了
 
 
-
-
-
-
-
 -----
 
 ####  ATRO  
 ##### 1370#       发表于 2019-1-14 16:09
 
 
-
-
 ＋1，路人没给打1分就不错了。门槛太高
-
-
-
-
-
 
 
 -----
@@ -26797,16 +17571,10 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 ##### 1371#       发表于 2019-1-14 16:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42268519&amp;ptid=1359460" target="_blank">葡萄牙的高山 发表于 2019-1-14 12:16</a>
 
 擦，豆瓣评分已经7.7了，比bgm评分还低，豆瓣评论区不吐槽了，现在豆瓣的新番一堆虚高的，而一些不错的老番 ...</blockquote>
 本身就是宅片，别人不打一星就是手下留情了，这片儿还是被骗进去看，估计要提前立场，心里想的是什么鬼玩意儿。。。
-
-
-
-
-
 
 
 -----
@@ -26815,22 +17583,15 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 ##### 1372#       发表于 2019-1-14 16:32
 
 
-
 <blockquote>白叹夜 发表于 2019-1-14 13:58
 谢答，其实我也希望是雁夜</blockquote>
 樱对雁夜的印象是小时候见到的妖怪，以为是自己的空气朋友
-
-
-
-
-
 
 
 -----
 
 ####  好多树  
 ##### 1373#       发表于 2019-1-14 16:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42267931&amp;ptid=1359460" target="_blank">消防 发表于 2019-01-14 11:33:20</a>
@@ -26844,16 +17605,10 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  requiem116  
 ##### 1374#       发表于 2019-1-14 16:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42267234&amp;ptid=1359460" target="_blank">洋芋头 发表于 2019-1-14 10:48</a>
@@ -26868,16 +17623,10 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 不过那种你终于在外面浪完知道回来了的感觉还挺带感的
 
 
-
-
-
-
-
 -----
 
 ####  kmno4  
 ##### 1375#       发表于 2019-1-14 17:56
-
 
 
  本帖最后由 kmno4 于 2019-1-14 17:58 编辑 
@@ -26893,17 +17642,10 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 讲下去就剧透了。。
 
 
-
-
-
-
-
-
 -----
 
 ####  gary76  
 ##### 1376#       发表于 2019-1-14 17:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42267234&amp;ptid=1359460" target="_blank">洋芋头 发表于 2019-1-14 10:48</a>
@@ -26914,16 +17656,10 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 對於櫻來說，冰天雪地穿涼鞋和夏裝只是冷，並沒有到痛苦的地步
 
 
-
-
-
-
-
 -----
 
 ####  66367749  
 ##### 1377#       发表于 2019-1-14 17:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42267397&amp;ptid=1359460" target="_blank">monseiur13 发表于 2019-1-14 10:58</a>
@@ -26933,17 +17669,10 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 看完什么表情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kmno4  
 ##### 1378#       发表于 2019-1-14 18:07
-
-
 
 
 今天妖都江南西金逸午场，没数错的话，7个人有5个小姐姐<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
@@ -26958,26 +17687,13 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 什么？内容？看staff耍厨就是啦<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  噬熵  
 ##### 1379#       发表于 2019-1-14 18:46
 
 
-
-
 本来bd看了一遍犹豫要不要去 果然影院看效果还是很不一样的 虽然不是月厨 但个人觉得不是很妨碍看 还是很带感的 一个细节印象蛮深的 女英灵的尸体被黑影包裹准备回收的时候 用的效果不是溶解 也不是颗粒化 而是擦除 蛮tie虚数空间这个概念的 另外扒了运动服穿白色立领的士郎真的好帅啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26986,16 +17702,10 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 ##### 1380#       发表于 2019-1-14 18:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42271697&amp;ptid=1359460" target="_blank">black199 发表于 2019-1-14 16:32</a>
 
 樱对雁夜的印象是小时候见到的妖怪，以为是自己的空气朋友</blockquote>
 这是哪个衍生里提到的啊<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27004,21 +17714,13 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 ##### 1381#       发表于 2019-1-14 18:58
 
 
-
-
 所以这么喜欢姐姐能不能双飞<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  aukia  
 ##### 1382#       发表于 2019-1-14 20:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42267234&amp;ptid=1359460" target="_blank">洋芋头 发表于 2019-1-14 10:48</a>
@@ -27029,16 +17731,10 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 哪个影院有色纸？
 
 
-
-
-
-
-
 -----
 
 ####  宫崎和香  
 ##### 1383#       发表于 2019-1-14 20:14
-
 
 
 <img src="https://wx3.sinaimg.cn/mw690/72a5256dgy1fz6diy9o7pj20u017vk2i.jpg" referrerpolicy="no-referrer">
@@ -27047,16 +17743,10 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 香港2月21日上映第二章
 
 
-
-
-
-
-
 -----
 
 ####  海域生还者  
 ##### 1384#       发表于 2019-1-14 20:33
-
 
 
  本帖最后由 海域生还者 于 2019-1-14 20:48 编辑 
@@ -27066,17 +17756,10 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 德国1月26-2月10号的akiba pass，日本以外最早了吧
 
 
-
-
-
-
-
-
 -----
 
 ####  葡萄牙的高山  
 ##### 1385#       发表于 2019-1-14 20:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42271101&amp;ptid=1359460" target="_blank">trb315 发表于 2019-1-14 15:46</a>
@@ -27085,16 +17768,10 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 你可以看下豆瓣现在的新番的分数，倒不如说bangumi7.9的分数虚高了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  noobtizi  
 ##### 1386#       发表于 2019-1-14 20:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42274097&amp;ptid=1359460" target="_blank">宫崎和香 发表于 2019-1-14 20:14</a>
@@ -27102,16 +17779,10 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 问一下澳门有上吗
 
 
-
-
-
-
-
 -----
 
 ####  宫崎和香  
 ##### 1387#       发表于 2019-1-14 20:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42274412&amp;ptid=1359460" target="_blank">noobtizi 发表于 2019-1-14 20:44</a>
@@ -27121,16 +17792,10 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 —— 来自 vivo NEX S, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  6x6z6w  
 ##### 1388#       发表于 2019-1-14 22:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42267411&amp;ptid=1359460" target="_blank">Teiume 发表于 2019-1-14 10:59</a>
@@ -27139,16 +17804,10 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 根据蘑菇和社长在第一部剧场版出来后的访谈，樱在家里受苦受惯了，所以大冬天穿个裙子出门也就是“有点冷"的程度，和她所受的痛苦本身比起来不值一提<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  左梓喵右受兔  
 ##### 1389#       发表于 2019-1-14 22:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42256076&amp;ptid=1359460" target="_blank">madrid2011 发表于 2019-1-13 06:52</a>
@@ -27157,26 +17816,15 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 胖次是破了还是有樱花图案?
 
 
-
-
-
-
-
 -----
 
 ####  gary76  
 ##### 1390#       发表于 2019-1-14 22:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42274412&amp;ptid=1359460" target="_blank">noobtizi 发表于 2019-1-14 20:44</a>
 问一下澳门有上吗</blockquote>
 澳門肯定上，今天澳門大會堂已經掛海報了
-
-
-
-
-
 
 
 -----
@@ -27185,14 +17833,7 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 ##### 1391#       发表于 2019-1-15 01:14
 
 
-
-
 想去香港看第二章……
-
-
-
-
-
 
 
 -----
@@ -27201,15 +17842,9 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 ##### 1392#       发表于 2019-1-15 01:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42275644&amp;ptid=1359460" target="_blank">gary76 发表于 2019-1-14 22:47</a>
 澳門肯定上，今天澳門大會堂已經掛海報了</blockquote>
 感谢，那我就注意着点买票了
-
-
-
-
-
 
 
 -----
@@ -27218,21 +17853,13 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 ##### 1393#       发表于 2019-1-15 01:20
 
 
-
-
 本来以为没有多夸张，结果真在微博各种repo的评论转发里看到闪厨妹子们大肆抱怨戏份<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  消防  
 ##### 1394#       发表于 2019-1-15 01:31
-
 
 
  本帖最后由 消防 于 2019-1-15 02:00 编辑 
@@ -27245,16 +17872,10 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 不过仔细想想原因可能是，蛤你出周边每次都带上正片居然说没有要给加戏？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  钦念以忱  
 ##### 1395#       发表于 2019-1-15 01:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42268519&amp;ptid=1359460" target="_blank">葡萄牙的高山 发表于 2019-1-14 12:16</a>
@@ -27263,16 +17884,10 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 豆瓣这个7.7分是去和宫崎骏、今敏、君名们比的，不是和新番比的，那这7.7在大众眼里的打分，也还好了
 
 
-
-
-
-
-
 -----
 
 ####  钦念以忱  
 ##### 1396#       发表于 2019-1-15 02:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42276883&amp;ptid=1359460" target="_blank">消防 发表于 2019-1-15 01:31</a>
@@ -27283,16 +17898,10 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 追星的逻辑吧，人气天皇巨星参演，就是演个龙套，没戏份也得加些戏份出来才是
 
 
-
-
-
-
-
 -----
 
 ####  斯卡哈  
 ##### 1397#       发表于 2019-1-15 07:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42276883&amp;ptid=1359460" target="_blank">消防 发表于 2019-1-15 01:31</a>
@@ -27306,27 +17915,15 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 伊莉雅厨都还没抱怨被砍了重要戏份呢，HF线明明伊莉雅才是真女主（
 
 
-
-
-
-
-
 -----
 
 ####  小妻水亚美  
 ##### 1398#       发表于 2019-1-15 10:22
 
 
-
-
 话说在魔都好像只有日配，我现在倒想听国配<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 —— 来自 motorola XT1929-15, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
-
-
-
-
-
 
 
 -----
@@ -27335,22 +17932,15 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 ##### 1399#       发表于 2019-1-15 10:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42277619&amp;ptid=1359460" target="_blank">斯卡哈 发表于 2019-1-15 07:42</a>
 已经加了戏份了啊，原本就是一口吞全篇只有两句话，这次变成了两口吞还追加了体现他高傲性的一句 ...</blockquote>
 伊莉雅被砍啥戏份了
-
-
-
-
-
 
 
 -----
 
 ####  gary76  
 ##### 1400#       发表于 2019-1-15 11:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42276834&amp;ptid=1359460" target="_blank">noobtizi 发表于 2019-1-15 01:20</a>
@@ -27362,25 +17952,13 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 最重要是留意放映時間，上映那個星期才會知道什麼時間播
 
 
-
-
-
-
-
 -----
 
 ####  7sword  
 ##### 1401#       发表于 2019-1-15 11:52
 
 
-
-
 昨晚一人包场，准备爽一把，谁知道这画质出乎意料的差，比手机720画质差远了，看到c妈搓火球那里，没看完就走人了，实在扛不住提前走人了，当补票吧
-
-
-
-
-
 
 
 -----
@@ -27389,14 +17967,7 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 ##### 1402#       发表于 2019-1-15 12:02
 
 
-
-
 在东京看了，这部用了原版补魔，我担心在香港也会被剪
-
-
-
-
-
 
 
 -----
@@ -27405,22 +17976,15 @@ fsn游戏有设定是在冬天么？06年玩原作的时候没注意日期，现
 ##### 1403#       发表于 2019-1-15 12:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42279452&amp;ptid=1359460" target="_blank">vermingfire 发表于 2019-1-15 10:46</a>
 伊莉雅被砍啥戏份了</blockquote>
 第一章只剩下带B叔出场和结尾，日常戏份全堆在第二章还被大幅度压缩了吧
-
-
-
-
-
 
 
 -----
 
 ####  winoros  
 ##### 1404#       发表于 2019-1-15 12:48
-
 
 
  本帖最后由 winoros 于 2019-1-15 13:23 编辑 
@@ -27437,19 +18001,9 @@ HF2首周末动员数当周#1<img src="https://static.saraba1st.com/image/smiley
 2019-1-15 12:50 上传
 
 
-
-
-
-
-
 『ボヘミアン・ラプソディ』2018年度興収ランキング1位に！10週目の土日(1/12・13)は469スクリーンで動員27万2344人、興収3億9785万円。1/14までの累計で683万6433人、興収94億3739万円となって『劇場版コード・ブルー ドクターヘリ緊急救命』(91.8億円)を抜き去りました
 
 二位动员27.2万人
-
-
-
-
-
 
 
 -----
@@ -27458,16 +18012,10 @@ HF2首周末动员数当周#1<img src="https://static.saraba1st.com/image/smiley
 ##### 1405#       发表于 2019-1-15 13:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42276986&amp;ptid=1359460" target="_blank">钦念以忱 发表于 2019-1-15 01:56</a>
 
 豆瓣这个7.7分是去和宫崎骏、今敏、君名们比的，不是和新番比的，那这7.7在大众眼里的打分，也还好了 ...</blockquote>
 你的名字从9.1降到8.4了，也行吧，，，
-
-
-
-
-
 
 
 -----
@@ -27476,16 +18024,9 @@ HF2首周末动员数当周#1<img src="https://static.saraba1st.com/image/smiley
 ##### 1406#       发表于 2019-1-15 15:00
 
 
-
-
 看电影给了张黑saber的卡纸...行吧，你人气高你说了算
 
 — from Sony SO-04J, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
-
-
-
-
-
 
 
 -----
@@ -27494,21 +18035,13 @@ HF2首周末动员数当周#1<img src="https://static.saraba1st.com/image/smiley
 ##### 1407#       发表于 2019-1-15 17:08
 
 
-
-
 实时票房还不错，破5000万的话第二章能加快引进吗
-
-
-
-
-
 
 
 -----
 
 ####  ioridx99  
 ##### 1408#       发表于 2019-1-15 17:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42284144&amp;ptid=1359460" target="_blank">seedees3 发表于 2019-1-15 17:08</a>
@@ -27521,17 +18054,10 @@ HF2首周末动员数当周#1<img src="https://static.saraba1st.com/image/smiley
 我刚瞄了一眼今天100W都没到
 
 
-
-
-
-
-
-
 -----
 
 ####  消防  
 ##### 1409#       发表于 2019-1-15 17:28
-
 
 
 <blockquote>seedees3 发表于 2019-1-15 17:08
@@ -27541,16 +18067,10 @@ HF2首周末动员数当周#1<img src="https://static.saraba1st.com/image/smiley
 要是本周末没有足够回升……也就这样了。
 
 
-
-
-
-
-
 -----
 
 ####  seedees3  
 ##### 1410#       发表于 2019-1-15 17:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42284406&amp;ptid=1359460" target="_blank">ioridx99 发表于 2019-1-15 17:25</a>
@@ -27561,26 +18081,15 @@ HF2首周末动员数当周#1<img src="https://static.saraba1st.com/image/smiley
 说错了，看的是累计，横向比较其他几部算很可以了
 
 
-
-
-
-
-
 -----
 
 ####  wxshaonv2000  
 ##### 1411#       发表于 2019-1-15 18:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42276986&amp;ptid=1359460" target="_blank">钦念以忱 发表于 2019-1-15 01:56</a>
 豆瓣这个7.7分是去和宫崎骏、今敏、君名们比的，不是和新番比的，那这7.7在大众眼里的打分，也还好了 ...</blockquote>
 关键这fz和ubw的动画都是9分台 hf只有7.7很难说是公平啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27589,21 +18098,13 @@ HF2首周末动员数当周#1<img src="https://static.saraba1st.com/image/smiley
 ##### 1412#       发表于 2019-1-15 19:06
 
 
-
-
 今週の映画動員ランキングは、『劇場版Fate／stay night Heaven’s FeelII. lost butterfly』（アニプレックス）が、動員27万7000人、興収4億9100万円をあげ初登場1位を飾った。第1章のオープニングと比較すると動員比で112％、興収比118％と、いずれも上回る好調なスタート。1月14日（月・祝）までの累計では、動員36万3000人、興収6億円を突破している。人気のPCゲーム「Fate/stay night」を3部作の劇場版アニメーション化した第2章で、劇場では1週目来場者特典プレゼントとして特製イラストボードが配られたほか、2017年に公開された第1章同様、劇場内でゲームアプリを起動すると1週目〜4週目まで、週替わりでスマホに劇場来場者特典が送られるなどのキャンペーンが行われており、今後もゲームファンを中心に高稼働が見込まれる。監督は第1章に引き続き「空の境界」シリーズの須藤友徳、声の出演は杉山紀彰、下屋則子、神谷浩史ほか。
-
-
-
-
-
 
 
 -----
 
 ####  black199  
 ##### 1413#       发表于 2019-1-15 19:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42273285&amp;ptid=1359460" target="_blank">白叹夜 发表于 2019-1-14 18:56</a>
@@ -27618,33 +18119,19 @@ HA，樱对士郎说小时候送到间桐家的早些时候在间桐家看见了
 大意如此
 
 
-
-
-
-
-
 -----
 
 ####  秋月涼  
 ##### 1414#       发表于 2019-1-15 19:19
 
 
-
-
 刚看了第二部，感觉闪闪和二爷死状处理得还不够惨，不过也算是大快人心<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 1415#         楼主| 发表于 2019-1-15 19:26
-
-
 
 
 劇場版「Fate/stay night [Heaven's Feel]」 Ⅱ.lost butterfly 来場者特典 2週目「ufotable描き下ろしクリアポスターファイルⅠ」紹介動画
@@ -27667,16 +18154,10 @@ HA，樱对士郎说小时候送到间桐家的早些时候在间桐家看见了
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fz7hqo9gu8j20rs0fm75n.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  钦念以忱  
 ##### 1416#       发表于 2019-1-15 19:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42285312&amp;ptid=1359460" target="_blank">wxshaonv2000 发表于 2019-1-15 18:49</a>
@@ -27685,27 +18166,15 @@ HA，樱对士郎说小时候送到间桐家的早些时候在间桐家看见了
 FZ和UBW是TV新番，你甚至可以看作不同的两个打分网站
 
 
-
-
-
-
-
 -----
 
 ####  winoros  
 ##### 1417#       发表于 2019-1-15 19:32
 
 
-
-
 4.9e円 顺利卡9<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 期待三章了
-
-
-
-
-
 
 
 -----
@@ -27714,15 +18183,9 @@ FZ和UBW是TV新番，你甚至可以看作不同的两个打分网站
 ##### 1418#       发表于 2019-1-15 20:07
 
 
-
  本帖最后由 we89623 于 2019-1-16 00:06 编辑 
 
 编辑
-
-
-
-
-
 
 
 -----
@@ -27731,15 +18194,9 @@ FZ和UBW是TV新番，你甚至可以看作不同的两个打分网站
 ##### 1419#       发表于 2019-1-15 23:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42274097&amp;ptid=1359460" target="_blank">宫崎和香 发表于 2019-1-14 20:14</a>
 香港2月21日上映第二章</blockquote>
 这张不错呀，还是接前一张宣传图的后续？
-
-
-
-
-
 
 
 -----
@@ -27748,23 +18205,16 @@ FZ和UBW是TV新番，你甚至可以看作不同的两个打分网站
 ##### 1420#       发表于 2019-1-15 23:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42287704&amp;ptid=1359460" target="_blank">Agsd 发表于 2019-1-15 23:08</a>
 
 这张不错呀，还是接前一张宣传图的后续？</blockquote>
 这是第一张keyvisual
 
 
-
-
-
-
-
 -----
 
 ####  kmno4  
 ##### 1421#       发表于 2019-1-16 00:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42285312&amp;ptid=1359460" target="_blank">wxshaonv2000 发表于 2019-1-15 18:49</a>
@@ -27776,25 +18226,13 @@ FZ和UBW是TV新番，你甚至可以看作不同的两个打分网站
 剧情基本是：大概了解fate的劝退》》不懂HF线的也劝退》》非樱厨的还是劝退。<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  博尔赫斯  
 ##### 1422#       发表于 2019-1-16 04:41
 
 
-
-
 路人冲画面给个1分都算非常宽容了
-
-
-
-
-
 
 
 -----
@@ -27803,14 +18241,7 @@ FZ和UBW是TV新番，你甚至可以看作不同的两个打分网站
 ##### 1423#       发表于 2019-1-16 05:11
 
 
-
-
 第三部的PV盗摄居然都有了<img src="https://static.saraba1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">有点期待高清版射杀九头了
-
-
-
-
-
 
 
 -----
@@ -27819,23 +18250,15 @@ FZ和UBW是TV新番，你甚至可以看作不同的两个打分网站
 ##### 1424#       发表于 2019-1-16 09:35
 
 
-
-
 HF第二部美国3月14日上映
 
 2月24日好莱坞点映两场
-
-
-
-
-
 
 
 -----
 
 ####  UNISONIA  
 ##### 1425#       发表于 2019-1-16 09:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42285312&amp;ptid=1359460" target="_blank">wxshaonv2000 发表于 2019-1-15 18:49</a>
@@ -27846,16 +18269,10 @@ HF第二部美国3月14日上映
 在基数不小的这个群体可能去打低分的情况下，7.7已经算是还行了
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 1426#       发表于 2019-1-16 10:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42290600&amp;ptid=1359460" target="_blank">UNISONIA 发表于 2019-1-16 09:45</a>
@@ -27865,16 +18282,10 @@ HF第二部美国3月14日上映
 你这被害妄想的程度已经可以直接反映出是谁推了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧场版画风吊着打ubw，凛厨高兴还来不及呢，更别提很多就是路人看不懂打差评
 
 
-
-
-
-
-
 -----
 
 ####  UNISONIA  
 ##### 1427#       发表于 2019-1-16 10:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42290970&amp;ptid=1359460" target="_blank">圈量子 发表于 2019-1-16 10:16</a>
@@ -27895,16 +18306,10 @@ HF第二部美国3月14日上映
 倒是论坛这个载体别看凛厨数量多，扭曲的很少见。所以我才说是“部分”凛厨
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 1428#       发表于 2019-1-16 11:20
-
 
 
  本帖最后由 圈量子 于 2019-1-16 11:29 编辑 
@@ -27918,16 +18323,10 @@ HF第二部美国3月14日上映
 能有这种动员力给电影刷差评那B萌都早该赢了，你真是看得起凛厨。承认本身素质就那样连月厨都不会完全一致给高分有那么困难吗
 
 
-
-
-
-
-
 -----
 
 ####  wangandh  
 ##### 1429#       发表于 2019-1-16 11:43
-
 
 
 <blockquote>圈量子 发表于 2019-1-16 11:20
@@ -27937,16 +18336,10 @@ HF第二部美国3月14日上映
 从远坂凛贴吧来看还行吧
 
 
-
-
-
-
-
 -----
 
 ####  香辣鸡腿饭套餐  
 ##### 1430#       发表于 2019-1-16 11:56
-
 
 
  本帖最后由 香辣鸡腿饭套餐 于 2019-1-16 12:02 编辑 
@@ -27964,16 +18357,10 @@ HF第二部美国3月14日上映
 笑死。
 
 
-
-
-
-
-
 -----
 
 ####  UNISONIA  
 ##### 1431#       发表于 2019-1-16 12:01
-
 
 
  本帖最后由 UNISONIA 于 2019-1-16 13:13 编辑 
@@ -28004,16 +18391,10 @@ B萌那场已经体现了凛厨的拉票能力了，不仅是王厨狗（FGO）�
 类似UBW剧场版的评价轨迹，可能要热度过去以后，“删掉拖泥带水的东西加强了节奏”这种公正一些的评价才能浮出水面
 
 
-
-
-
-
-
 -----
 
 ####  UNISONIA  
 ##### 1432#       发表于 2019-1-16 12:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42292170&amp;ptid=1359460" target="_blank">wangandh 发表于 2019-1-16 11:43</a>
@@ -28025,16 +18406,10 @@ B萌那场已经体现了凛厨的拉票能力了，不仅是王厨狗（FGO）�
 论坛的话…先不论S1这边了，澄空以前对于这个问题都是没什么倾向的，整体氛围还算正常
 
 
-
-
-
-
-
 -----
 
 ####  UNISONIA  
 ##### 1433#       发表于 2019-1-16 12:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42292361&amp;ptid=1359460" target="_blank">香辣鸡腿饭套餐 发表于 2019-1-16 11:56</a>
@@ -28054,32 +18429,19 @@ B萌那场已经体现了凛厨的拉票能力了，不仅是王厨狗（FGO）�
 我见过大于三次偏激厨造谣须藤用FGO赚来的钱做HF的说法，敢情他们当HF立项时间和Aniplex财报这些东西不存在了
 
 
-
-
-
-
-
 -----
 
 ####  惣流明日香  
 ##### 1434#       发表于 2019-1-16 12:29
 
 
-
-
 有没有群体抹黑我不知道，刚上映的时候评价倾向是中规中矩，虽有不足但是整体还可以。BD发售了之后风评一下子就下来了，须藤各种飞妈，感觉国内观众口味是更刁一些。
-
-
-
-
-
 
 
 -----
 
 ####  香辣鸡腿饭套餐  
 ##### 1435#       发表于 2019-1-16 12:37
-
 
 
  本帖最后由 香辣鸡腿饭套餐 于 2019-1-16 12:39 编辑 
@@ -28100,16 +18462,10 @@ B萌那场已经体现了凛厨的拉票能力了，不仅是王厨狗（FGO）�
 这第一部剧场版大家都看了，到底什么水平，这个评分合不合理心里都有数，你带这个节奏意义真不大，要搅屎换个地方去搅。
 
 
-
-
-
-
-
 -----
 
 ####  UNISONIA  
 ##### 1436#       发表于 2019-1-16 12:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42292942&amp;ptid=1359460" target="_blank">香辣鸡腿饭套餐 发表于 2019-1-16 12:37</a>
@@ -28124,16 +18480,10 @@ B萌那场已经体现了凛厨的拉票能力了，不仅是王厨狗（FGO）�
 利害关系上我是挺看不起任何角色的偏激厨的，但是给我扣角色厨的帽子我就不怎么感冒了。要扣帽子给我扣个HF线厨比较好，或者须藤厨什么的
 
 
-
-
-
-
-
 -----
 
 ####  wxshaonv2000  
 ##### 1437#       发表于 2019-1-16 13:01
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么你大菲特现在都有饭圈思维了
@@ -28141,16 +18491,10 @@ B萌那场已经体现了凛厨的拉票能力了，不仅是王厨狗（FGO）�
 论制作质量hf剧场版难到不比ubw和fz强吗 为什么都这么不懂欣赏
 
 
-
-
-
-
-
 -----
 
 ####  香辣鸡腿饭套餐  
 ##### 1438#       发表于 2019-1-16 13:06
-
 
 
  本帖最后由 香辣鸡腿饭套餐 于 2019-1-16 13:14 编辑 
@@ -28164,17 +18508,10 @@ B萌那场已经体现了凛厨的拉票能力了，不仅是王厨狗（FGO）�
 我也挺看不起你的。
 
 
-
-
-
-
-
-
 -----
 
 ####  UNISONIA  
 ##### 1439#       发表于 2019-1-16 13:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42293268&amp;ptid=1359460" target="_blank">香辣鸡腿饭套餐 发表于 2019-1-16 13:06</a>
@@ -28192,25 +18529,13 @@ B萌那场已经体现了凛厨的拉票能力了，不仅是王厨狗（FGO）�
 得，你不打住就我打住吧，再那么下去好像我是在钓鱼一样了
 
 
-
-
-
-
-
 -----
 
 ####  冰狼芬里尔  
 ##### 1440#       发表于 2019-1-16 13:42
 
 
-
-
 话说黑呆那个面罩有什么意味吗？
-
-
-
-
-
 
 
 -----
@@ -28219,15 +18544,9 @@ B萌那场已经体现了凛厨的拉票能力了，不仅是王厨狗（FGO）�
 ##### 1441#       发表于 2019-1-16 13:48
 
 
-
 <blockquote>冰狼芬里尔 发表于 2019-1-16 13:42
 话说黑呆那个面罩有什么意味吗？</blockquote>
 装成大家都不认识的样子……类夏亚的面具
-
-
-
-
-
 
 
 -----
@@ -28236,22 +18555,15 @@ B萌那场已经体现了凛厨的拉票能力了，不仅是王厨狗（FGO）�
 ##### 1442#       发表于 2019-1-16 14:06
 
 
-
 <blockquote>冰狼芬里尔 发表于 2019-1-16 13:42
 话说黑呆那个面罩有什么意味吗？</blockquote>
 装成大家都不认识的样子，类夏亚的面具。
-
-
-
-
-
 
 
 -----
 
 ####  香辣鸡腿饭套餐  
 ##### 1443#       发表于 2019-1-16 14:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42293552&amp;ptid=1359460" target="_blank">UNISONIA 发表于 2019-01-16 13:31:05</a>
@@ -28263,13 +18575,9 @@ B萌那场已经体现了凛厨的拉票能力了，不仅是王厨狗（FGO）�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -28279,19 +18587,13 @@ B萌那场已经体现了凛厨的拉票能力了，不仅是王厨狗（FGO）�
 | shelmy| + 1|hf作为序章真的可以了好吗|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  wangandh  
 ##### 1444#       发表于 2019-1-16 15:10
-
 
 
 <blockquote>冰狼芬里尔 发表于 2019-1-16 13:42
@@ -28301,25 +18603,13 @@ B萌那场已经体现了凛厨的拉票能力了，不仅是王厨狗（FGO）�
 武内改成了眼罩就毫无意义了
 
 
-
-
-
-
-
 -----
 
 ####  龙娘777  
 ##### 1445#       发表于 2019-1-16 15:14
 
 
-
-
 虽然各位婆罗门不屑 但 枪版出了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28328,21 +18618,13 @@ B萌那场已经体现了凛厨的拉票能力了，不仅是王厨狗（FGO）�
 ##### 1446#       发表于 2019-1-16 15:18
 
 
-
-
 。。。枪版出了，资源就不发了，也太快了。
-
-
-
-
-
 
 
 -----
 
 ####  小妻水亚美  
 ##### 1447#       发表于 2019-1-16 15:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42294820&amp;ptid=1359460" target="_blank">龙娘777 发表于 2019-1-16 15:14</a>
@@ -28352,25 +18634,13 @@ B萌那场已经体现了凛厨的拉票能力了，不仅是王厨狗（FGO）�
 —— 来自 motorola XT1929-15, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 1448#       发表于 2019-1-16 16:30
 
 
-
-
 别的不说，凛这人设就比ubw好太多，当然ubw后面也有点习惯了（
-
-
-
-
-
 
 
 -----
@@ -28379,22 +18649,15 @@ B萌那场已经体现了凛厨的拉票能力了，不仅是王厨狗（FGO）�
 ##### 1449#       发表于 2019-1-16 17:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42294820&amp;ptid=1359460" target="_blank">龙娘777 发表于 2019-1-16 15:14</a>
 虽然各位婆罗门不屑 但 枪版出了</blockquote>
 麻烦私信<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Friede-  
 ##### 1450#       发表于 2019-1-16 18:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42294871&amp;ptid=1359460" target="_blank">fantuanxiaoyi 发表于 2019-1-16 15:18</a>
@@ -28404,16 +18667,10 @@ B萌那场已经体现了凛厨的拉票能力了，不仅是王厨狗（FGO）�
 —— 来自 HUAWEI MHA-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  black199  
 ##### 1451#       发表于 2019-1-16 20:17
-
 
 
  本帖最后由 black199 于 2019-1-16 20:38 编辑 
@@ -28425,26 +18682,16 @@ B萌那场已经体现了凛厨的拉票能力了，不仅是王厨狗（FGO）�
 反正也就这点人看才会觉得这点低分显眼
 
 
-
-
-
 另外豆瓣是三个打分平台
 
 
 况且HF本质是做成电影的电视剧
 
 
-
-
-
-
-
 -----
 
 ####  满月美夜子  
 ##### 1452#       发表于 2019-1-16 21:02
-
-
 
 
 第二章1月12—13日获得日本周末电影票房冠军，周末两天动员观众27.7万人、票房4.91亿日元，相当于第一章同期1.18倍
@@ -28455,24 +18702,13 @@ B萌那场已经体现了凛厨的拉票能力了，不仅是王厨狗（FGO）�
 興行通信社：今週の映画動員ランキングは、『劇場版Fate／stay night Heaven’s FeelII. lost butterfly』（アニプレックス）が、動員27万7000人、興収4億9100万円をあげ初登場1位を飾った。第1章のオープニングと比較すると動員比で112％、興収比118％と、いずれも上回る好調なスタート。1月14日（月・祝）までの累計では、動員36万3000人、興収6億円を突破している。人気のPCゲーム「Fate/stay night」を3部作の劇場版アニメーション化した第2章で、劇場では1週目来場者特典プレゼントとして特製イラストボードが配られたほか、2017年に公開された第1章同様、劇場内でゲームアプリを起動すると1週目〜4週目まで、週替わりでスマホに劇場来場者特典が送られるなどのキャンペーンが行われており、今後もゲームファンを中心に高稼働が見込まれる。
 
 
-
-
-
-
-
 -----
 
 ####  6030sylar  
 ##### 1453#       发表于 2019-1-16 21:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">多谢大狗，在大狗扑街那里抽剧情池出白枪呆
-
-
-
-
-
 
 
 -----
@@ -28481,16 +18717,9 @@ B萌那场已经体现了凛厨的拉票能力了，不仅是王厨狗（FGO）�
 ##### 1454#       发表于 2019-1-16 22:37
 
 
-
-
 我认罪看了枪版 有机会补票一定赎罪<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 气氛做的超出想象 肯定有人不对胃口但现在的想法只有飞碟牛逼
-
-
-
-
-
 
 
 -----
@@ -28499,14 +18728,7 @@ B萌那场已经体现了凛厨的拉票能力了，不仅是王厨狗（FGO）�
 ##### 1455#       发表于 2019-1-16 23:35
 
 
-
-
 枪版看了，我又是云观众啦<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28515,23 +18737,15 @@ B萌那场已经体现了凛厨的拉票能力了，不仅是王厨狗（FGO）�
 ##### 1456#       发表于 2019-1-17 00:32
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">新映你倒是快把排片放出来啊，手持枪版看了几个片段受不了了
 
 —— 来自 Xiaomi MI 6, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
 
 ####  akari1864  
 ##### 1457#       发表于 2019-1-17 04:00
-
-
 
 
 原作党很多都觉得凛在hf塑造的比ubw好<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">。
@@ -28542,16 +18756,10 @@ B萌那场已经体现了凛厨的拉票能力了，不仅是王厨狗（FGO）�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  千本blur  
 ##### 1458#       发表于 2019-1-17 08:01
-
 
 
  本帖最后由 千本blur 于 2019-1-17 08:07 编辑 
@@ -28561,27 +18769,15 @@ B萌那场已经体现了凛厨的拉票能力了，不仅是王厨狗（FGO）�
 cp厨角色厨真的很讨厌啊。
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 1459#       发表于 2019-1-17 12:00
 
 
-
-
 看了枪版 B叔和黑无毛那场的表现力真恐怖，真神仙打架，拿任意一个FATE系列的TV版角色（包括金皮卡）来跟他们任意一个打估计都要被爆锤。
 
 PS:伊莉雅真可爱
-
-
-
-
-
 
 
 -----
@@ -28590,21 +18786,13 @@ PS:伊莉雅真可爱
 ##### 1460#       发表于 2019-1-17 12:57
 
 
-
-
 这片豆瓣我看是7.7啊，这分数还嫌低吗
-
-
-
-
-
 
 
 -----
 
 ####  多汁多水  
 ##### 1461#       发表于 2019-1-17 13:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42304129&amp;ptid=1359460" target="_blank">we89623 发表于 2019-01-17 12:00:52</a>
@@ -28615,25 +18803,13 @@ PS:伊莉雅真可爱
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  seedees3  
 ##### 1462#       发表于 2019-1-17 13:58
 
 
-
-
 顶级英灵的对打就应该这样，fa不管怎么说后期的打戏画质虽差但大开大合爆发力十足，无比爽快，fate该及早从废萌娘化人设+日常卖梗路线转型到武斗正剧路线，不管是动画还是游戏现在的fate完全可以搞几个大开发，而不是出卫宫饭这种小品
-
-
-
-
-
 
 
 -----
@@ -28642,23 +18818,16 @@ PS:伊莉雅真可爱
 ##### 1463#       发表于 2019-1-17 14:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42293552&amp;ptid=1359460" target="_blank">UNISONIA 发表于 2019-1-16 13:31</a>
 你的理解能力也是很厉害的，拖低分数这点一两百个低星评价就可以了，其他作品由个人做到的控评例子也不少 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">钓鱼不钓鱼我不诛心的猜测你 但前面那一堆饭圈臭的发言是真的在你坛不招人待见
 希望角色粉们还是去B萌发力
 
 
-
-
-
-
-
 -----
 
 ####  斯卡哈  
 ##### 1464#       发表于 2019-1-17 15:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42304129&amp;ptid=1359460" target="_blank">we89623 发表于 2019-1-17 12:00</a>
@@ -28670,16 +18839,10 @@ PS:伊莉雅真可爱
 当然表现力确实是比当年连柳洞寺地板都打不破的情况强多了
 
 
-
-
-
-
-
 -----
 
 ####  diyihaoshitu  
 ##### 1465#       发表于 2019-1-17 15:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42294871&amp;ptid=1359460" target="_blank">fantuanxiaoyi 发表于 2019-1-16 15:18</a>
@@ -28688,16 +18851,10 @@ PS:伊莉雅真可爱
 求私信资源
 
 
-
-
-
-
-
 -----
 
 ####  39号绝望王  
 ##### 1466#       发表于 2019-1-17 15:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42294871&amp;ptid=1359460" target="_blank">fantuanxiaoyi 发表于 2019-1-16 15:18</a>
@@ -28706,32 +18863,19 @@ PS:伊莉雅真可爱
 大佬求一下<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  shelmy  
 ##### 1467#       发表于 2019-1-17 16:11
 
 
-
-
 还是看banguim的评分吧 然后我觉得枪版不正规啊 还是等bd吧
-
-
-
-
-
 
 
 -----
 
 ####  fantuanxiaoyi  
 ##### 1468#       发表于 2019-1-17 16:39
-
 
 
  本帖最后由 fantuanxiaoyi 于 2019-1-17 16:40 编辑 
@@ -28745,24 +18889,13 @@ PS:伊莉雅真可爱
 如果违反版规了我自己编辑掉，版主高抬贵手
 
 
-
-
-
-
-
 -----
 
 ####  dudideng  
 ##### 1469#       发表于 2019-1-17 16:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">还是推荐有机会去电影院看
-
-
-
-
-
 
 
 -----
@@ -28771,14 +18904,7 @@ PS:伊莉雅真可爱
 ##### 1470#       发表于 2019-1-17 17:53
 
 
-
-
 听说这枪版清晰度也算挺不错的了，就是体积真吉儿大啊...
-
-
-
-
-
 
 
 -----
@@ -28787,14 +18913,7 @@ PS:伊莉雅真可爱
 ##### 1471#       发表于 2019-1-17 23:03
 
 
-
-
 引进的话肯定是要去看的，但心痒难耐啊。有枪版先缓解一下
-
-
-
-
-
 
 
 -----
@@ -28803,14 +18922,7 @@ PS:伊莉雅真可爱
 ##### 1472#       发表于 2019-1-17 23:25
 
 
-
-
 请问大佬，提取码错误是怎么回事？
-
-
-
-
-
 
 
 -----
@@ -28819,16 +18931,9 @@ PS:伊莉雅真可爱
 ##### 1473#       发表于 2019-1-17 23:55
 
 
-
-
 黑呆海叔战看剧透的时候是按照DC超人电影的打斗脑补的
 
 实际看下来效果确实也比较接近
-
-
-
-
-
 
 
 -----
@@ -28837,22 +18942,15 @@ PS:伊莉雅真可爱
 ##### 1474#       发表于 2019-1-18 00:15
 
 
-
  本帖最后由 terminator1990 于 2019-1-18 00:20 编辑 
 
 枪版啃完，樱挺刀剑神域的，自wei和非处发言<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">你们说卖碟时会不会像刀剑神域剧场版那样也来个乳首解禁呢？
-
-
-
-
-
 
 
 -----
 
 ####  消防  
 ##### 1475#       发表于 2019-1-18 01:05
-
 
 
  本帖最后由 消防 于 2019-1-18 10:12 编辑 
@@ -28868,15 +18966,9 @@ PS:伊莉雅真可爱
 八日目幕间删除，对话内容完全改动并时间线后移。虽然闪闪很帅气地金鸡独立两分钟，但跳坑的起始没了，对前几天家里厨子们的暴动感同身受中。
 
 
-
 另外，游戏是闪闪把樱打了半死再被偷袭吞了，访谈写明因为“慢心”，剧场版改动成王财(又双叒叕)被克制，束手就擒，削惨了。
 
 现在是个人都拿王财刷时毛，连UBW都不如，太惨了我也想暴动……
-
-
-
-
-
 
 
 -----
@@ -28885,14 +18977,7 @@ PS:伊莉雅真可爱
 ##### 1476#       发表于 2019-1-18 02:50
 
 
-
-
 下下来憋了超久都没看，终于赶上电影院了，时间合适的只有4D，真是摇踏马的，摇到晕车，不过体验还是蛮好看，家里屏幕再大也不了，全场就我和另一个老哥包场，4D好就没看了，后面适应了以后看打戏还是很不错的。
-
-
-
-
-
 
 
 -----
@@ -28901,15 +18986,9 @@ PS:伊莉雅真可爱
 ##### 1477#       发表于 2019-1-18 03:57
 
 
-
  本帖最后由 we89623 于 2019-1-18 04:02 编辑 
 
 R姐开眼真的帅，红A瞬间怂到流汗被石化，头发扰动犹如真的美杜莎
-
-
-
-
-
 
 
 -----
@@ -28918,14 +18997,7 @@ R姐开眼真的帅，红A瞬间怂到流汗被石化，头发扰动犹如真的
 ##### 1478#       发表于 2019-1-18 17:24
 
 
-
-
 十八线小县城已经没有影院放hf了
-
-
-
-
-
 
 
 -----
@@ -28934,21 +19006,13 @@ R姐开眼真的帅，红A瞬间怂到流汗被石化，头发扰动犹如真的
 ##### 1479#       发表于 2019-1-18 18:10
 
 
-
-
 枪版不存在了？
-
-
-
-
-
 
 
 -----
 
 ####  Agsd  
 ##### 1480#       发表于 2019-1-18 18:32
-
 
 
  本帖最后由 Agsd 于 2019-1-18 18:40 编辑 
@@ -28958,24 +19022,13 @@ R姐开眼真的帅，红A瞬间怂到流汗被石化，头发扰动犹如真的
 感谢好心的坛友，已经收到了，我就自己看看，不会宣扬。<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  紫水晶  
 ##### 1481#       发表于 2019-1-18 18:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没熟肉。。。。还是谢谢聚聚了
-
-
-
-
-
 
 
 -----
@@ -28984,21 +19037,13 @@ R姐开眼真的帅，红A瞬间怂到流汗被石化，头发扰动犹如真的
 ##### 1482#       发表于 2019-1-18 19:47
 
 
-
-
 上次说组织去香港看的那位大佬在吗，佛山坛友要上车啊
-
-
-
-
-
 
 
 -----
 
 ####  museqsou  
 ##### 1483#       发表于 2019-1-18 21:52
-
 
 
  本帖最后由 museqsou 于 2019-1-18 23:53 编辑 
@@ -29009,17 +19054,10 @@ R姐开眼真的帅，红A瞬间怂到流汗被石化，头发扰动犹如真的
 感谢大佬，已收到
 
 
-
-
-
-
-
 -----
 
 ####  金色暗影  
 ##### 1484#       发表于 2019-1-18 23:16
-
-
 
 
 第二部打戏还是好少<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -29029,25 +19067,13 @@ R姐开眼真的帅，红A瞬间怂到流汗被石化，头发扰动犹如真的
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  大厨麦当牛  
 ##### 1485#       发表于 2019-1-18 23:30
 
 
-
-
 食完，怎么说呢。。。好的位置做得好，原创的部分更是赞，但莫名其妙的位置也更甚第一部，特别是伊莉雅对士郎的态度180度转变的理由，非原作党大概全程都会对剧情和人物行动逻辑莫名其妙吧。
-
-
-
-
-
 
 
 -----
@@ -29056,14 +19082,7 @@ R姐开眼真的帅，红A瞬间怂到流汗被石化，头发扰动犹如真的
 ##### 1486#       发表于 2019-1-18 23:42
 
 
-
-
 说真的，虽然平时也没少黑大妈，但HF2的BGM真不错<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">期待OST
-
-
-
-
-
 
 
 -----
@@ -29072,22 +19091,14 @@ R姐开眼真的帅，红A瞬间怂到流汗被石化，头发扰动犹如真的
 ##### 1487#       发表于 2019-1-19 09:30
 
 
-
-
 不是月球人，请问这是什么片？（突然出现在我的推荐里
 https://youtu.be/GtaLQBa3btg
-
-
-
-
-
 
 
 -----
 
 ####  卡蓮  
 ##### 1488#       发表于 2019-1-19 09:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42322086&amp;ptid=1359460" target="_blank">kubikiri 发表于 2019-1-19 09:30</a>
@@ -29098,13 +19109,9 @@ https://youtu.be/GtaLQBa3btg ...</blockquote>
 幻想嘉年华，神作
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -29114,12 +19121,7 @@ https://youtu.be/GtaLQBa3btg ...</blockquote>
 | kubikiri| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -29128,15 +19130,9 @@ https://youtu.be/GtaLQBa3btg ...</blockquote>
 ##### 1489#       发表于 2019-1-19 11:48
 
 
-
  本帖最后由 龙娘777 于 2019-1-19 11:54 编辑 
 
 能看出须藤真是投入感情了 跟ubw受时长所限流水帐跑流程鲜明对比 用心做出的作品是能感染观看者的 缺点当然有 但最重要的是那颗赤诚的心传达到了
-
-
-
-
-
 
 
 -----
@@ -29145,14 +19141,7 @@ https://youtu.be/GtaLQBa3btg ...</blockquote>
 ##### 1490#       发表于 2019-1-19 11:51
 
 
-
-
 看完枪版后觉得第二次从重要的人那里收到东西说的确实是凛，然后就是金皮卡那里原创的临死王财确实没必要，战力设定继续混沌化了不说，金皮卡面子也丢光了，还不如原作的没反应过来被从背后秒杀。
-
-
-
-
-
 
 
 -----
@@ -29161,14 +19150,7 @@ https://youtu.be/GtaLQBa3btg ...</blockquote>
 ##### 1491#       发表于 2019-1-19 13:28
 
 
-
-
 没人发一下枪版么，想看看打戏
-
-
-
-
-
 
 
 -----
@@ -29177,15 +19159,8 @@ https://youtu.be/GtaLQBa3btg ...</blockquote>
 ##### 1492#       发表于 2019-1-19 14:06
 
 
-
-
 人体和打戏一泡污
 就是奶子画的好
-
-
-
-
-
 
 
 -----
@@ -29194,16 +19169,9 @@ https://youtu.be/GtaLQBa3btg ...</blockquote>
 ##### 1493#       发表于 2019-1-19 14:36
 
 
-
-
 中午在十八线小城看了一场，整场除了我就只有两个人，没进场我以为又是一对肥宅或者情侣，结果竟然是两妹子，无意中听了下她们的讨论，似乎也不是随手买票进来看一场的样子，月球人在国内有这么多的么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 —— 来自 nubia NX531J, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -29212,20 +19180,13 @@ https://youtu.be/GtaLQBa3btg ...</blockquote>
 ##### 1494#         楼主| 发表于 2019-1-19 16:46
 
 
-
 <img src="http://wx4.sinaimg.cn/large/006QZHfMly1fzbzju56atj339a2xyx6p.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  消防  
 ##### 1495#       发表于 2019-1-19 16:50
-
 
 
 <blockquote>xingenge 发表于 2019-1-19 16:46
@@ -29235,24 +19196,13 @@ https://youtu.be/GtaLQBa3btg ...</blockquote>
 换算成日元也有快5亿了(还是很少)
 
 
-
-
-
-
-
 -----
 
 ####  cybernetics  
 ##### 1496#       发表于 2019-1-19 17:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">估计就是这个3000多点了，下周估计都没有排片了
-
-
-
-
-
 
 
 -----
@@ -29261,13 +19211,7 @@ https://youtu.be/GtaLQBa3btg ...</blockquote>
 ##### 1497#       发表于 2019-1-19 17:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">“这届月球人不行（”
-
-
-
-
-
 
 
 -----
@@ -29276,22 +19220,15 @@ https://youtu.be/GtaLQBa3btg ...</blockquote>
 ##### 1498#       发表于 2019-1-19 17:49
 
 
-
 <blockquote>cybernetics 发表于 2019-1-19 17:29
 估计就是这个3000多点了，下周估计都没有排片了</blockquote>
 别说下周，十八线小地方连这周都基本没有排片啦
-
-
-
-
-
 
 
 -----
 
 ####  7sword  
 ##### 1499#       发表于 2019-1-19 21:25
-
 
 
  本帖最后由 7sword 于 2019-1-20 09:49 编辑 
@@ -29301,22 +19238,12 @@ https://youtu.be/GtaLQBa3btg ...</blockquote>
 已收到，感谢dalao
 
 
-
-
-
-
-
 -----
 
 ####  sigma0716  
 ##### 1500#       发表于 2019-1-19 21:47
 
 
-
-
 第二部這色情暴力血腥的，國内還能上映？PTA不要鬧翻天了
-
-
-
 
 

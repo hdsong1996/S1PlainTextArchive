@@ -1,13 +1,10 @@
 > ## **本文件最后更新于2020-02-22 01:11** 
 
 
-
 -----
 
 ####  derceres  
 ##### 1#       楼主       发表于 2020-2-2 05:48
-
-
 
 
 1月27日，SCIENCE发布的一则新闻提出，2019-nCoV的理想疗法很可能是一种名为remdesivir（瑞德西韦）的药物与单克隆抗体的组合。remdesivir被认为可能对MERS及新型冠状病毒都很有效。
@@ -66,25 +63,13 @@ NEJM：美国首例新型冠状病毒感染者使用新型抗病**物后退烧�
 抗击2019-nCoV：实验性埃博拉药物Remdesivir或具有抗新型冠状病毒的潜力
 
 
-
-
-
-
-
 -----
 
 ####  传说中的天才  
 ##### 2#       发表于 2020-2-2 06:30
 
 
-
-
 又到了最喜爱的把人原文写的明明白白结果翻译成双黄连时间。
-
-
-
-
-
 
 
 -----
@@ -93,16 +78,9 @@ NEJM：美国首例新型冠状病毒感染者使用新型抗病**物后退烧�
 ##### 3#       发表于 2020-2-2 06:33
 
 
-
-
 阴谋论
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -111,16 +89,9 @@ NEJM：美国首例新型冠状病毒感染者使用新型抗病**物后退烧�
 ##### 4#       发表于 2020-2-2 06:42
 
 
-
-
 孤例不证。
 
 没有证据表明是这药起了作用。
-
-
-
-
-
 
 
 -----
@@ -129,14 +100,7 @@ NEJM：美国首例新型冠状病毒感染者使用新型抗病**物后退烧�
 ##### 5#       发表于 2020-2-2 06:47
 
 
-
-
 是自发吹捧还是收费软文？
-
-
-
-
-
 
 
 -----
@@ -145,23 +109,16 @@ NEJM：美国首例新型冠状病毒感染者使用新型抗病**物后退烧�
 ##### 6#       发表于 2020-2-2 07:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 看了文章还是不知道这东西到底好用不好用
 
 
 但是至少知道标题的来头100%是微信公众号
 
 
-
-
-
-
-
 -----
 
 ####  UGDJ  
 ##### 7#       发表于 2020-2-2 08:11
-
 
 
  本帖最后由 UGDJ 于 2020-2-2 08:31 编辑 
@@ -175,26 +132,15 @@ NEJM：美国首例新型冠状病毒感染者使用新型抗病**物后退烧�
 现在没这篇了，搞得我也想不起来之前上去究竟看到没有
 
 
-
-
-
-
-
 -----
 
 ####  魔法酪饼  
 ##### 8#       发表于 2020-2-2 08:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">据说本来用来治埃博拉的，结果没能过绝大多数国家的上市标准被封存，现在借着风头造个孤立然后炒作想死灰复燃能骗多少骗多少？
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -203,21 +149,13 @@ NEJM：美国首例新型冠状病毒感染者使用新型抗病**物后退烧�
 ##### 9#       发表于 2020-2-2 08:19
 
 
-
-
 还轻松搞定，不讨论药品，看标题就知道这文的作者是什么东西
-
-
-
-
-
 
 
 -----
 
 ####  HinataY  
 ##### 10#       发表于 2020-2-2 08:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46303238&amp;ptid=1911821" target="_blank">魔法酪饼 发表于 2020-2-2 08:13</a>
@@ -227,25 +165,13 @@ NEJM：美国首例新型冠状病毒感染者使用新型抗病**物后退烧�
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  luowei_nowe  
 ##### 11#       发表于 2020-2-2 08:28
 
 
-
-
 傻逼营销号标题，一看就知道内容是什么垃圾。。
-
-
-
-
-
 
 
 -----
@@ -254,17 +180,10 @@ NEJM：美国首例新型冠状病毒感染者使用新型抗病**物后退烧�
 ##### 12#       发表于 2020-2-2 08:40
 
 
-
-
 这个药跟双黄连比有什么区别？
 
 
 就因为是西药？
-
-
-
-
-
 
 
 -----
@@ -273,21 +192,13 @@ NEJM：美国首例新型冠状病毒感染者使用新型抗病**物后退烧�
 ##### 13#       发表于 2020-2-2 08:56
 
 
-
-
 先别摆屁股，等三期临床结果啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Diabolosis  
 ##### 14#       发表于 2020-2-2 08:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46303391&amp;ptid=1911821" target="_blank">Thermo 发表于 2020-2-2 08:56</a>
@@ -297,16 +208,10 @@ NEJM：美国首例新型冠状病毒感染者使用新型抗病**物后退烧�
 —— 来自 samsung SM-G9300, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  lvcha  
 ##### 15#       发表于 2020-2-2 09:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46303268&amp;ptid=1911821" target="_blank">HinataY 发表于 2020-2-2 08:23</a>
@@ -317,25 +222,13 @@ NEJM：美国首例新型冠状病毒感染者使用新型抗病**物后退烧�
 那个截图的study complete的日子是4月27呢
 
 
-
-
-
-
-
 -----
 
 ####  哈桑  
 ##### 16#       发表于 2020-2-2 09:35
 
 
-
-
 也就是双黄连名字太土一看就被识破了，要是改叫这个洛韦那个夫定估计早就被一路欢送了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -344,14 +237,7 @@ NEJM：美国首例新型冠状病毒感染者使用新型抗病**物后退烧�
 ##### 17#       发表于 2020-2-2 09:37
 
 
-
-
 ls一堆人不信这个么，我信这个药，核苷类似物在抗乙肝病毒方面早就是标配了。。。真的能抑制病毒逆转录的
-
-
-
-
-
 
 
 -----
@@ -360,21 +246,13 @@ ls一堆人不信这个么，我信这个药，核苷类似物在抗乙肝病毒
 ##### 18#       发表于 2020-2-2 09:38
 
 
-
-
 gilead超级叼的，多浪漫的事啊
-
-
-
-
-
 
 
 -----
 
 ####  Thermo  
 ##### 19#       发表于 2020-2-2 09:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46303408&amp;ptid=1911821" target="_blank">Diabolosis 发表于 2020-2-2 08:58</a>
@@ -384,26 +262,15 @@ gilead超级叼的，多浪漫的事啊
 摆屁股的意思是：可以向左摆，也可以向右摆
 
 
-
-
-
-
-
 -----
 
 ####  UGDJ  
 ##### 20#       发表于 2020-2-2 09:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46303601&amp;ptid=1911821" target="_blank">gouchaoer 发表于 2020-2-2 09:37</a>
 ls一堆人不信这个么，我信这个药，核苷类似物在抗乙肝病毒方面早就是标配了。。。真的能抑制病毒逆转录的 ...</blockquote>
 信他有效和认为作者屁股不正（或者说轻点，兴奋过度）不矛盾
-
-
-
-
-
 
 
 -----
@@ -412,14 +279,7 @@ ls一堆人不信这个么，我信这个药，核苷类似物在抗乙肝病毒
 ##### 21#       发表于 2020-2-2 10:01
 
 
-
-
 因为前置药gs441已经是猫主子眼中的神药。
-
-
-
-
-
 
 
 -----
@@ -428,16 +288,9 @@ ls一堆人不信这个么，我信这个药，核苷类似物在抗乙肝病毒
 ##### 22#       发表于 2020-2-2 10:16
 
 
-
-
 有希望，比起双黄连
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -446,21 +299,13 @@ ls一堆人不信这个么，我信这个药，核苷类似物在抗乙肝病毒
 ##### 23#       发表于 2020-2-2 10:18
 
 
-
-
 也别yygq什么了，有没有效看最终结果吧，谁都希望有效
-
-
-
-
-
 
 
 -----
 
 ####  heisenberg  
 ##### 24#       发表于 2020-2-2 10:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46303079&amp;ptid=1911821" target="_blank">chotong 发表于 2020-2-2 06:42</a>
@@ -471,25 +316,13 @@ ls一堆人不信这个么，我信这个药，核苷类似物在抗乙肝病毒
 不是孤例，这玩意是兽药，治猫的冠状病毒的，本来给人的伊波拉和非典设计的但是还没通过人的审核
 
 
-
-
-
-
-
 -----
 
 ####  萨义德库特布  
 ##### 25#       发表于 2020-2-2 10:28
 
 
-
-
 你们不信没关系，政府反正是已经信了，明天就要开始在北京中日友好医院开展这个药的临床试验
-
-
-
-
-
 
 
 -----
@@ -498,22 +331,15 @@ ls一堆人不信这个么，我信这个药，核苷类似物在抗乙肝病毒
 ##### 26#       发表于 2020-2-2 10:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46303907&amp;ptid=1911821" target="_blank">heisenberg 发表于 2020-2-2 10:25</a>
 不是孤例，这玩意是兽药，治猫的冠状病毒的，本来给人的伊波拉和非典设计的但是还没通过人的审核 ...</blockquote>
 不不不，兽药的分子式和remdesivir不一样，是衍生药物。同样都是非上市实验药物，兽药伦理风险低一点所以在灰色市场很普遍，所以国内的合成能力其实是很强的。
-
-
-
-
-
 
 
 -----
 
 ####  spoony  
 ##### 27#       发表于 2020-2-2 10:42
-
 
 
 <blockquote>哈桑 发表于 2020-2-2 09:35
@@ -523,25 +349,13 @@ ls一堆人不信这个么，我信这个药，核苷类似物在抗乙肝病毒
 佛瑟西亚O
 
 
-
-
-
-
-
 -----
 
 ####  ext^3at  
 ##### 28#       发表于 2020-2-2 10:51
 
 
-
-
 猫传腹用的441就是这药的前体
-
-
-
-
-
 
 
 -----
@@ -550,23 +364,16 @@ ls一堆人不信这个么，我信这个药，核苷类似物在抗乙肝病毒
 ##### 29#       发表于 2020-2-2 11:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46303966&amp;ptid=1911821" target="_blank">尼曼兔 发表于 2020-2-2 10:33</a>
 
 不不不，兽药的分子式和remdesivir不一样，是衍生药物。同样都是非上市实验药物，兽药伦理风险低一点所以 ...</blockquote>
 不知道有没有人觉得干脆莽一把算了，亲自吃猫药试试看
 
 
-
-
-
-
-
 -----
 
 ####  heisenberg  
 ##### 30#       发表于 2020-2-2 11:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46304018&amp;ptid=1911821" target="_blank">spoony 发表于 2020-2-2 10:42</a>
@@ -577,16 +384,10 @@ ls一堆人不信这个么，我信这个药，核苷类似物在抗乙肝病毒
 那个叫传染病的电影，里面就有骗子卖银翘片给全世界
 
 
-
-
-
-
-
 -----
 
 ####  尼曼兔  
 ##### 31#       发表于 2020-2-2 11:53
-
 
 
  本帖最后由 尼曼兔 于 2020-2-2 11:58 编辑 
@@ -597,25 +398,13 @@ https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5844999/
 还有明明官方已经许可实验了，人就别莽了，亲身经历441现在黑市鱼龙混杂，质量根本不可控，要买到有效的看运气。
 
 
-
-
-
-
-
 -----
 
 ####  eurydice  
 ##### 32#       发表于 2020-2-2 11:54
 
 
-
-
 没错，不如双黄连
-
-
-
-
-
 
 
 -----
@@ -624,14 +413,7 @@ https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5844999/
 ##### 33#       发表于 2020-2-2 11:57
 
 
-
-
 美国最近举动有些异常，谨慎观望。
-
-
-
-
-
 
 
 -----
@@ -640,22 +422,15 @@ https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5844999/
 ##### 34#       发表于 2020-2-2 12:02
 
 
-
 <blockquote>uswhzh 发表于 2020-2-2 11:57
 美国最近举动有些异常，谨慎观望。</blockquote>
 第一个宣布关注疫情，第一个要撤侨，第一个研究对中国封锁，第一个宣布可能有特效药，撤侨立刻找到了空军基地腾出了房子，治疗特别快速。哪怕出现人传人依旧乐观，向大众积极宣传，不防控。但愿都是巧合。
-
-
-
-
-
 
 
 -----
 
 ####  传说中的天才  
 ##### 35#       发表于 2020-2-2 12:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46303601&amp;ptid=1911821" target="_blank">gouchaoer 发表于 2020-2-2 09:37</a>
@@ -673,26 +448,15 @@ While there are no antiviral data for remdesivir that show activity against 2019
 ***轻松搞定新型冠状病毒肺炎。
 
 
-
-
-
-
-
 -----
 
 ####  mengmie11  
 ##### 36#       发表于 2020-2-2 12:14
 
 
-
 <blockquote>uswhzh 发表于 2020-2-2 12:02
 第一个宣布关注疫情，第一个要撤侨，第一个研究对中国封锁，第一个宣布可能有特效药，撤侨立刻找到了空军 ...</blockquote>
 cdc都最高警报。已经全线红灯。都承认错误了
-
-
-
-
-
 
 
 -----
@@ -701,21 +465,13 @@ cdc都最高警报。已经全线红灯。都承认错误了
 ##### 37#       发表于 2020-2-2 12:36
 
 
-
-
 不管这药真滴神还是假滴神，还是建议走完流程。不然病毒虽然杀死了，病人却阳痿了，那就不好了。就算不阳痿，有点其他毒副作用也不好啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  幽蓝飘郁  
 ##### 38#       发表于 2020-2-2 12:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46304630&amp;ptid=1911821" target="_blank">uswhzh 发表于 2020-2-2 12:02</a>
@@ -725,16 +481,10 @@ cdc都最高警报。已经全线红灯。都承认错误了
 —— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  幽蓝飘郁  
 ##### 39#       发表于 2020-2-2 12:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46304916&amp;ptid=1911821" target="_blank">哈桑 发表于 2020-2-2 12:36</a>
@@ -744,26 +494,15 @@ cdc都最高警报。已经全线红灯。都承认错误了
 —— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  wszweill  
 ##### 40#       发表于 2020-2-2 12:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46303268&amp;ptid=1911821" target="_blank">HinataY 发表于 2020-2-1 19:23</a>
 
 过不了临床是因为抗埃博拉效果差，安全性还是有的，实验中显示对冠状病毒的广谱抑制性，从原理上看对新冠 ...</blockquote><blockquote>对冠状病毒的广谱抑制性</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -772,23 +511,16 @@ cdc都最高警报。已经全线红灯。都承认错误了
 ##### 41#       发表于 2020-2-2 12:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46304630&amp;ptid=1911821" target="_blank">uswhzh 发表于 2020-2-2 12:02</a>
 
 第一个宣布关注疫情，第一个要撤侨，第一个研究对中国封锁，第一个宣布可能有特效药，撤侨立刻找到了空军 ...</blockquote>
 醒醒吧。这根本不算是巧合。
 
 
-
-
-
-
-
 -----
 
 ####  ❃✽✾✶✻✼  
 ##### 42#       发表于 2020-2-2 13:07
-
 
 
 <blockquote>传说中的天才 发表于 2020-2-2 12:04
@@ -802,20 +534,13 @@ cdc都最高警报。已经全线红灯。都承认错误了
 这个不是诊疗记录     应该是药厂发的文章
 
 
-
 美国治愈仍然是0     就算今天出院相较于自然病程或者中国医疗并没有显著缩短   只在平均值左右
-
-
-
-
-
 
 
 -----
 
 ####  zerona  
 ##### 43#       发表于 2020-2-2 13:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46304941&amp;ptid=1911821" target="_blank">幽蓝飘郁 发表于 2020-2-2 12:38</a>
@@ -827,16 +552,10 @@ cdc都最高警报。已经全线红灯。都承认错误了
 这病治疗恢复健康的也不少了，大部分患者还没到阳痿和成盒二选一呢。
 
 
-
-
-
-
-
 -----
 
 ####  传说中的天才  
 ##### 44#       发表于 2020-2-2 13:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46305178&amp;ptid=1911821" target="_blank">❃✽✾✶✻✼ 发表于 2020-2-2 13:07</a>
@@ -848,16 +567,10 @@ cdc都最高警报。已经全线红灯。都承认错误了
 这个是药厂发的，但是记录是CDC发的。
 
 
-
-
-
-
-
 -----
 
 ####  HinataY  
 ##### 45#       发表于 2020-2-2 14:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46304976&amp;ptid=1911821" target="_blank">wszweill 发表于 2020-2-2 12:43</a>
@@ -867,25 +580,13 @@ cdc都最高警报。已经全线红灯。都承认错误了
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  pigofsunny  
 ##### 46#       发表于 2020-2-2 14:27
 
 
-
-
 别人说要做三期才能确证，你张口就来轻松搞定，你钓啥？
-
-
-
-
-
 
 
 -----
@@ -894,14 +595,7 @@ cdc都最高警报。已经全线红灯。都承认错误了
 ##### 47#       发表于 2020-2-2 14:56
 
 
-
-
 还是美国吊啊 
-
-
-
-
-
 
 
 -----
@@ -910,21 +604,13 @@ cdc都最高警报。已经全线红灯。都承认错误了
 ##### 48#       发表于 2020-2-2 15:00
 
 
-
-
 我寻思埃博拉也不是冠状的啊  
-
-
-
-
-
 
 
 -----
 
 ####  sblnrrk  
 ##### 49#       发表于 2020-2-2 15:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46303238&amp;ptid=1911821" target="_blank">魔法酪饼 发表于 2020-2-2 08:13</a>
@@ -938,17 +624,10 @@ cdc都最高警报。已经全线红灯。都承认错误了
 —— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  aiplus  
 ##### 50#       发表于 2020-2-2 20:20
-
-
 
 
 轻松搞定新型冠状病毒肺炎<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -957,17 +636,10 @@ cdc都最高警报。已经全线红灯。都承认错误了
 自媒体不哗众取宠可能真的会死<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aiplus  
 ##### 51#       发表于 2020-2-2 20:23
-
-
 
 
 挺好的东西，到了造谣为本职工作的自媒体嘴里就变味
@@ -976,26 +648,15 @@ cdc都最高警报。已经全线红灯。都承认错误了
 等III期临床做完了再来“轻松搞定”行不行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  尼曼兔  
 ##### 52#       发表于 2020-2-2 20:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46306043&amp;ptid=1911821" target="_blank">qqdragon 发表于 2020-2-2 15:00</a>
 我寻思埃博拉也不是冠状的啊</blockquote>
 抑制rna病毒的转录和片段，最终减缓病毒数量增加，不能彻底治愈主要靠人后期自己抵抗力，基本逻辑是这个。
-
-
-
-
-
 
 
 -----
@@ -1004,16 +665,10 @@ cdc都最高警报。已经全线红灯。都承认错误了
 ##### 53#       发表于 2020-2-2 21:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46304630&amp;ptid=1911821" target="_blank">uswhzh 发表于 2020-02-02 12:02:02</a>
 第一个宣布关注疫情，第一个要撤侨，第一个研究对中国封锁，第一个宣布可能有特效药，撤侨立刻找到了空军 ...</blockquote>第一个宣布特效药可是双黄连，再者之前也传出王广发说治疗艾滋病的药对他有奇效。此外我印象中第一个对中国封锁的国家是朝鲜
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -1022,16 +677,9 @@ cdc都最高警报。已经全线红灯。都承认错误了
 ##### 54#       发表于 2020-2-2 21:30
 
 
-
-
 真正要判断药有效，对患者有作用，临床要试好几期了。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 —— 来自 motorola XT1929-15, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -1040,23 +688,15 @@ cdc都最高警报。已经全线红灯。都承认错误了
 ##### 55#       发表于 2020-2-2 21:31
 
 
-
-
 又到了喜闻乐见的记者母亲惨遭科学家强奸环节了？
 
 —— 来自 vivo NEX, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
 
 ####  wszweill  
 ##### 56#       发表于 2020-2-3 00:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46305670&amp;ptid=1911821" target="_blank">HinataY 发表于 2020-2-2 01:08</a>
@@ -1068,17 +708,10 @@ cdc都最高警报。已经全线红灯。都承认错误了
 广谱一般指的是抗菌类药品，广谱~=对很多类细菌有效，窄谱~=对特定细菌有效。广谱抗病毒从概念上就有问题，因为病毒得变异性远高于细菌，对细菌来说，针对特定位点可以保证广谱，对病毒来说，下一波冠状病毒你都不知道是啥，更不要说其他病毒（毕竟得&gt;2种病毒才能叫广谱吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）所以肯定是扯淡得讲法
 
 
-
-
-
-
-
 -----
 
 ####  棺材叔叔  
 ##### 57#       发表于 2020-2-3 02:24
-
-
 
 
 要真能轻松搞定还特么能等着你说出来吗<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
@@ -1086,16 +719,10 @@ cdc都最高警报。已经全线红灯。都承认错误了
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  zcomic  
 ##### 58#       发表于 2020-2-3 03:09
-
 
 
 <blockquote>幽蓝飘郁 发表于 2020-2-2 12:37
@@ -1106,16 +733,10 @@ cdc都最高警报。已经全线红灯。都承认错误了
 别急着吹，为什么最强军事基地被伊朗肆无忌惮轰击也不敢还手呢？另外一边还跟阿富汗多年鏖战打成个平手，这是不是水了点啊？
 
 
-
-
-
-
-
 -----
 
 ####  表里比兴  
 ##### 59#       发表于 2020-2-3 03:20
-
 
 
 <blockquote>❃✽✾✶✻✼ 发表于 2020-2-2 13:07
@@ -1127,16 +748,10 @@ cdc都最高警报。已经全线红灯。都承认错误了
 治愈为0？不是说之前用的药物都不行，最后眼看重症快挂了，死马当活马医，结果有奇效的吗？
 
 
-
-
-
-
-
 -----
 
 ####  wzh5555  
 ##### 60#       发表于 2020-2-3 03:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46310600&amp;ptid=1911821" target="_blank">wszweill 发表于 2020-2-3 00:32</a>
@@ -1147,16 +762,10 @@ cdc都最高警报。已经全线红灯。都承认错误了
 虽然病毒变异频繁，但往往也有很高的同源性，其关键的代谢物结构、关键的蛋白酶、聚合酶这种往往相似性较高，所以如果是针对某些结构稳定的酶靶点的药物，往往会出现这种广谱效果。
 
 
-
-
-
-
-
 -----
 
 ####  御众师  
 ##### 61#       发表于 2020-2-3 06:39
-
 
 
 <blockquote>传说中的天才 发表于 2020-2-2 06:30
@@ -1164,17 +773,10 @@ cdc都最高警报。已经全线红灯。都承认错误了
 看不懂原文，但如果个例就大谈特效，和中医也没很大区别
 
 
-
-
-
-
-
 -----
 
 ####  kvll32  
 ##### 62#       发表于 2020-2-3 07:48
-
-
 
 
 我信这个药有效
@@ -1184,16 +786,10 @@ cdc都最高警报。已经全线红灯。都承认错误了
 所以说它能治疗新冠肺炎，我一点不怀疑，这事要说不好也就一点，那就是阴谋论的味道更加重了。来自: iPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  ❃✽✾✶✻✼  
 ##### 63#       发表于 2020-2-3 08:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46311329&amp;ptid=1911821" target="_blank">表里比兴 发表于 2020-2-3 03:20</a>
@@ -1202,16 +798,10 @@ cdc都最高警报。已经全线红灯。都承认错误了
 这本身就非常奇怪
 
 
-
 湖北外的死亡率只有千分之二      国外就菲律宾死了一个    他美国才几个啊就眼看重症快挂了
 
 
 当然了这是我的感想    也可能他们确实这个水平    但美国治愈0到今天为止是实打实的
-
-
-
-
-
 
 
 -----
@@ -1220,15 +810,9 @@ cdc都最高警报。已经全线红灯。都承认错误了
 ##### 64#       发表于 2020-2-3 09:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46304630&amp;ptid=1911821" target="_blank">uswhzh 发表于 2020-2-2 12:02</a>
 第一个宣布关注疫情，第一个要撤侨，第一个研究对中国封锁，第一个宣布可能有特效药，撤侨立刻找到了空军 ...</blockquote>
 能拍《传染病》的国家，我觉得这都是正常操作
-
-
-
-
-
 
 
 -----
@@ -1237,16 +821,10 @@ cdc都最高警报。已经全线红灯。都承认错误了
 ##### 65#       发表于 2020-2-3 09:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46310600&amp;ptid=1911821" target="_blank">wszweill 发表于 2020-2-3 00:32</a>
 
 广谱一般指的是抗菌类药品，广谱~=对很多类细菌有效，窄谱~=对特定细菌有效。广谱抗病毒从概念上就有问题 ...</blockquote>
 利巴韦林
-
-
-
-
-
 
 
 -----
@@ -1255,21 +833,13 @@ cdc都最高警报。已经全线红灯。都承认错误了
 ##### 66#       发表于 2020-2-3 23:58
 
 
-
-
 这么说呢，我希望是真的，但我又怕是科学家艹记者的🐎系列
-
-
-
-
-
 
 
 -----
 
 ####  Laniakea  
 ##### 67#       发表于 2020-2-4 00:14
-
 
 
  本帖最后由 Laniakea 于 2020-2-4 00:19 编辑 
@@ -1300,25 +870,13 @@ Remdesivir为核苷类RNA依赖的RNA聚合酶（RdRp）竞争性抑制剂，其
 最后，我没有在任何美国新闻网站看到“Trump特批该药物专利豁免”，我在发表这些新闻的微博中也没有看到引用。目前关于该药物的用于治疗2019-nCoV的唯一可靠信息，就是Gilead网站的新闻发布：[**](http://t.cn/A6PNfUFq) 。</blockquote>
 
 
-
-
-
-
-
 -----
 
 ####  シャスタ  
 ##### 68#       发表于 2020-2-4 00:16
 
 
-
-
 吉利德股价开盘小跳了一下
-
-
-
-
-
 
 
 -----
@@ -1327,21 +885,13 @@ Remdesivir为核苷类RNA依赖的RNA聚合酶（RdRp）竞争性抑制剂，其
 ##### 69#       发表于 2020-2-4 00:23
 
 
-
-
 前有双黄连兽药，今有XX西韦前置的猫药。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  wzh5555  
 ##### 70#       发表于 2020-2-4 00:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46319732&amp;ptid=1911821" target="_blank">Laniakea 发表于 2020-2-4 00:14</a>
@@ -1353,25 +903,13 @@ Remdesivir为核苷类RNA依赖的RNA聚合酶（RdRp）竞争性抑制剂，其
 如果文中事实均无误的话，他的结论没问题，目前这一例确实远不能说明什么的问题，最多算一个利好迹象。给时间发酵吧。
 
 
-
-
-
-
-
 -----
 
 ####  両儀織  
 ##### 71#       发表于 2020-2-4 00:41
 
 
-
-
 前天的帖子就回复过了，上面有人转了详细的药本身的说明，那就再提一下价格吧：据说10毫克765美元，整个疗程要用1100毫克，要8万美元，美国神药的常态
-
-
-
-
-
 
 
 -----
@@ -1380,21 +918,13 @@ Remdesivir为核苷类RNA依赖的RNA聚合酶（RdRp）竞争性抑制剂，其
 ##### 72#       发表于 2020-2-4 00:48
 
 
-
-
 资本狂欢，先把概念炒起来
-
-
-
-
-
 
 
 -----
 
 ####  DeepFishing  
 ##### 73#       发表于 2020-2-4 00:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46319917&amp;ptid=1911821" target="_blank">両儀織 发表于 2020-2-4 00:41</a>
@@ -1404,25 +934,13 @@ Remdesivir为核苷类RNA依赖的RNA聚合酶（RdRp）竞争性抑制剂，其
 —— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  绝赞販売中  
 ##### 74#       发表于 2020-2-4 03:05
 
 
-
-
 今晚查了吉利德的财报，这药最新进展在2017年财报提到，2018基本没有提及.大概是who认可了这东西对中东呼吸综合征和马尔堡出血热有一定效果，马尔堡病毒还没有进入临床试验，中东呼吸综合征已经完成了灵长类的试验，本来打算18年进行临床但是不了了之...
-
-
-
-
-
 
 
 -----
@@ -1431,14 +949,7 @@ Remdesivir为核苷类RNA依赖的RNA聚合酶（RdRp）竞争性抑制剂，其
 ##### 75#       发表于 2020-2-4 07:33
 
 
-
-
 中国第一个临床试验者的效果和米国那例差不多，24小时明显改善
-
-
-
-
-
 
 
 -----
@@ -1447,15 +958,9 @@ Remdesivir为核苷类RNA依赖的RNA聚合酶（RdRp）竞争性抑制剂，其
 ##### 76#       发表于 2020-2-4 07:43
 
 
-
 <blockquote>TonyKune 发表于 2020-2-4 07:33
 中国第一个临床试验者的效果和米国那例差不多，24小时明显改善</blockquote>
 有消息来源么？
-
-
-
-
-
 
 
 -----
@@ -1464,16 +969,10 @@ Remdesivir为核苷类RNA依赖的RNA聚合酶（RdRp）竞争性抑制剂，其
 ##### 77#       发表于 2020-2-4 08:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46304976&amp;ptid=1911821" target="_blank">wszweill 发表于 2020-2-2 12:43</a>
 广谱抗病毒还行</blockquote>
 不懂还瞎比比就是你这种人了。
 干扰素利巴韦林都是针对多种病毒有效，广谱抗病毒的说法也是早已有之。就你这种丈育在那一惊一乍还自以为是误导别人的样子真是可笑<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1482,23 +981,16 @@ Remdesivir为核苷类RNA依赖的RNA聚合酶（RdRp）竞争性抑制剂，其
 ##### 78#       发表于 2020-2-4 08:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46319961&amp;ptid=1911821" target="_blank">Holie 发表于 2020-2-4 00:48</a>
 
 资本狂欢，先把概念炒起来</blockquote>
 传染病特效药是炒不起来…一锤子买卖
 
 
-
-
-
-
-
 -----
 
 ####  宫崎和香  
 ##### 79#       发表于 2020-2-4 08:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46319980&amp;ptid=1911821" target="_blank">DeepFishing 发表于 2020-2-4 00:52</a>
@@ -1510,16 +1002,10 @@ Remdesivir为核苷类RNA依赖的RNA聚合酶（RdRp）竞争性抑制剂，其
 —— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  crazyt  
 ##### 80#       发表于 2020-2-4 08:38
-
 
 
 <blockquote>DeepFishing 发表于 2020-2-4 00:52
@@ -1530,16 +1016,10 @@ Remdesivir为核苷类RNA依赖的RNA聚合酶（RdRp）竞争性抑制剂，其
 有分子式就行了。泥潭血葫芦让兽药厂做的治丙肝的应该是同一类药。
 
 
-
-
-
-
-
 -----
 
 ####  萨义德库特布  
 ##### 81#       发表于 2020-2-4 09:18
-
 
 
 <blockquote>crazyt 发表于 2020-2-4 07:43
@@ -1547,14 +1027,8 @@ Remdesivir为核苷类RNA依赖的RNA聚合酶（RdRp）竞争性抑制剂，其
 中日友好医院的医生透露的
 
 
-
-
-
-
 img-c9c9634dbbec26ea00119c56f37c76b2.jpg
 (41.33 KB, 下载次数: 6)
-
-
 
 
 下载附件
@@ -1563,24 +1037,7 @@ img-c9c9634dbbec26ea00119c56f37c76b2.jpg
 2020-2-4 09:17 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202002/04/091752lxm1s2ok2oq28sl2.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -1589,14 +1046,7 @@ img-c9c9634dbbec26ea00119c56f37c76b2.jpg
 ##### 82#       发表于 2020-2-4 09:22
 
 
-
-
 GS-441524说是给猫打了也是一天退烧
-
-
-
-
-
 
 
 -----
@@ -1605,22 +1055,15 @@ GS-441524说是给猫打了也是一天退烧
 ##### 83#       发表于 2020-2-4 09:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46321168&amp;ptid=1911821" target="_blank">crazyt 发表于 2020-2-4 08:38</a>
 有分子式就行了。泥潭血葫芦让兽药厂做的治丙肝的应该是同一类药。</blockquote>
 也是吉利德的
-
-
-
-
-
 
 
 -----
 
 ####  aiplus  
 ##### 84#       发表于 2020-2-4 10:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46321401&amp;ptid=1911821" target="_blank">萨义德库特布 发表于 2020-2-4 09:18</a>
@@ -1634,16 +1077,10 @@ GS-441524说是给猫打了也是一天退烧
 还有2.3才开始临床试验，怎么就到他发微博的时候过去十七个小时了？
 
 
-
-
-
-
-
 -----
 
 ####  aiplus  
 ##### 85#       发表于 2020-2-6 10:44
-
 
 
 瑞德西韦 在Clinical Trials上线了
@@ -1657,25 +1094,13 @@ GS-441524说是给猫打了也是一天退烧
 [https://clinicaltrials.gov/ct2/show/NCT04252664](https://clinicaltrials.gov/ct2/show/NCT04252664)
 
 
-
-
-
-
-
 -----
 
 ####  beta10  
 ##### 86#       发表于 2020-2-6 11:49
 
 
-
-
 还是希望有效吧
-
-
-
-
-
 
 
 -----
@@ -1684,16 +1109,10 @@ GS-441524说是给猫打了也是一天退烧
 ##### 87#       发表于 2020-2-6 12:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46304630&amp;ptid=1911821" target="_blank">uswhzh 发表于 2020-2-2 12:02</a>
 
 第一个宣布关注疫情，第一个要撤侨，第一个研究对中国封锁，第一个宣布可能有特效药，撤侨立刻找到了空军 ...</blockquote>
 去空军基地是被当地群众抗议的，先定的去三番，三番拼命抗议，然后定的去洛杉矶边上的Ontario，结果洛杉矶人拼命抗议，我这妈妈群都号召去签字，最后被迫去了空军基地……
-
-
-
-
-
 
 
 -----
@@ -1702,22 +1121,15 @@ GS-441524说是给猫打了也是一天退烧
 ##### 88#       发表于 2020-2-6 12:36
 
 
-
  本帖最后由 UGDJ 于 2020-2-6 12:37 编辑 
 
 想想美国也有12个了，好像还没见报道第2例用这个的？是都很轻不够同情用药标准不能用？用了效果一般般？不算突破就不发了？写了论文在审议？
-
-
-
-
-
 
 
 -----
 
 ####  aiplus  
 ##### 89#       发表于 2020-2-6 14:55
-
 
 
  本帖最后由 aiplus 于 2020-2-6 14:56 编辑 
@@ -1730,7 +1142,6 @@ GS-441524说是给猫打了也是一天退烧
 但是，患者永远是第一位！
 
 
-
 链接：[https://xueqiu.com/8075462627/140614883](https://xueqiu.com/8075462627/140614883)
 </blockquote>
 [https://m.weibo.cn/detail/4468840489014279](https://m.weibo.cn/detail/4468840489014279)
@@ -1741,26 +1152,13 @@ GS-441524说是给猫打了也是一天退烧
 这波公关满分<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  567478  
 ##### 90#       发表于 2020-2-6 14:59
 
 
-
-
 Gilead 20一支而不是免费卖给中国，这就实际是捐助而不算捐助了，之前gov说没有任何实际援助，这样既保全了gov的面子又做到了慈善，Gilead CEO真是会做人啊
-
-
-
-
-
 
 
 -----
@@ -1769,16 +1167,10 @@ Gilead 20一支而不是免费卖给中国，这就实际是捐助而不算捐�
 ##### 91#       发表于 2020-2-6 15:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46342478&amp;ptid=1911821" target="_blank">567478 发表于 2020-2-6 14:59</a>
 
 Gilead 20一支而不是免费卖给中国，这就实际是捐助而不算捐助了，之前gov说没有任何实际援助，这样既保全了 ...</blockquote>
 说的是美国zf没有实质援助，美国企业也是国企算美国zf一部分吗？？？
-
-
-
-
-
 
 
 -----
@@ -1787,15 +1179,9 @@ Gilead 20一支而不是免费卖给中国，这就实际是捐助而不算捐�
 ##### 92#       发表于 2020-2-6 15:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46342478&amp;ptid=1911821" target="_blank">567478 发表于 2020-2-6 14:59</a>
 Gilead 20一支而不是免费卖给中国，这就实际是捐助而不算捐助了，之前gov说没有任何实际援助，这样既保全了 ...</blockquote>
 z f和企业要分开，吉利德之前已经捐了100w。
-
-
-
-
-
 
 
 -----
@@ -1804,23 +1190,16 @@ z f和企业要分开，吉利德之前已经捐了100w。
 ##### 93#       发表于 2020-2-6 15:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46342502&amp;ptid=1911821" target="_blank">eraghjk 发表于 2020-2-6 15:03</a>
 
 说的是美国zf没有实质援助，美国企业也是国企算美国zf一部分吗？？？</blockquote>
 记者问的是美方，华春莹第一次答的是美国GOV，第二次是美方
 
 
-
-
-
-
-
 -----
 
 ####  eraghjk  
 ##### 94#       发表于 2020-2-6 15:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46342664&amp;ptid=1911821" target="_blank">567478 发表于 2020-2-6 15:26</a>
@@ -1869,17 +1248,10 @@ z f和企业要分开，吉利德之前已经捐了100w。
 看不得说美国zf不好吗？
 
 
-
-
-
-
-
 -----
 
 ####  aiplus  
 ##### 95#       发表于 2020-2-6 15:57
-
-
 
 
 哎，老有SB冲进来爱讨论什么美方援助不援助之类的文字游戏
@@ -1888,17 +1260,10 @@ z f和企业要分开，吉利德之前已经捐了100w。
 上一个贴本来也是好好讨论药物临床进展的，然后就这样被封了……
 
 
-
-
-
-
-
 -----
 
 ####  宫崎和香  
 ##### 96#       发表于 2020-2-6 16:24
-
-
 
 
 说一些情况吧。
@@ -1908,16 +1273,10 @@ z f和企业要分开，吉利德之前已经捐了100w。
 反映还可以。
 
 
-
-
-
-
-
 -----
 
 ####  田黄石  
 ##### 97#       发表于 2020-2-6 16:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46343203&amp;ptid=1911821" target="_blank">宫崎和香 发表于 2020-2-6 16:24</a>
@@ -1930,16 +1289,10 @@ z f和企业要分开，吉利德之前已经捐了100w。
 没有临床什么都免谈
 
 
-
-
-
-
-
 -----
 
 ####  宫崎和香  
 ##### 98#       发表于 2020-2-6 16:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46343347&amp;ptid=1911821" target="_blank">田黄石 发表于 2020-2-6 16:41</a>
@@ -1957,50 +1310,28 @@ z f和企业要分开，吉利德之前已经捐了100w。
 当然这个纯属个例了，死马当活马医。
 
 
-
-
-
-
-
 -----
 
 ####  derceres  
 ##### 99#         楼主| 发表于 2020-2-6 18:49
 
 
-
-
 据新华社消息，昨日下午（2月5日），武汉市金银潭医院召开科技部应急攻关“瑞德西韦治疗2019新型冠状病毒感染研究”项目启动会，会上宣布，启动瑞德西韦（Remdesivir）治疗2019新型冠状病毒感染研究。
-
-
 
 
 据瑞德西韦临床试验项目负责人、中日友好医院副院长曹彬教授介绍，瑞德西韦是美国吉利德公司的在研药物，在前期的细胞和动物实验中均显示出对SARS冠状病毒、MERS冠状病毒有较好的抗病毒活性，国外已开展瑞德西韦针对埃博拉冠状病毒感染的临床试验；近日，我国学者报道瑞德西韦在细胞水平上对2019新型冠状病毒也有较好的活性，但在人体应用前仍需严谨的临床试验评价。目前针对新型冠状病毒感染患者缺乏有效的抗病**物，期待瑞德西韦在临床中的表现。
 
 
-
-
 中国工程院副院长、中国医学科学院院长王辰院士在启动会上表示，各界对这一试验有期望，但有无效果，还需要等待严格的科学试验结果。
-
-
 
 
 另据澎湃新闻的报道，吉利德已与中国卫生部门达成了协议，支持对2019-nCoV感染者开展两项临床试验，以确定瑞德西韦作为冠状病毒潜在治疗手段的安全性和有效性，吉利德无偿提供研究所需的药物，并为研究的设计和开展提供支持。
 
 
-
-
 其中一项研究评估瑞德西韦用于确诊感染2019-nCoV且已住院但未表现出显著临床症状（如，需要额外吸氧）的患者的治疗效果，另一项研究则评估瑞德西韦用于出现较严重临床症状（如，需要吸氧）的确诊病患的疗效。
 
 
-
-
 上述临床试验将一共入组患者761例，其中轻、中症患者308例，重症患者453例，曹彬教授介绍，该研究将执行严格的随机双盲试验，以评价瑞德西韦在新冠状病毒性肺炎的疗效和安全性，并在武汉金银潭医院等多家临床一线接诊新型冠状病毒感染肺炎患者的医院中进行，首批新型冠状病毒感染的肺炎重症患者于今日（2月6日）接受用药。
-
-
-
-
-
 
 
 -----
@@ -2009,45 +1340,27 @@ z f和企业要分开，吉利德之前已经捐了100w。
 ##### 100#         楼主| 发表于 2020-2-6 18:54
 
 
-
  本帖最后由 derceres 于 2020-2-6 18:56 编辑 
 
 一、先是，2020年2月4日，中国科学院武汉病毒研究所官网发布，在抑制2019新型冠状病毒（2019-nCoV）药物筛选方面取得重要进展。
 
 
-
-
 相关研究成果《瑞得西韦和磷酸氯喹能在体外有效抑制新型冠状病毒（2019-nCoV）》为题发表在中国自主知识产权的国际知名学术期刊Cell Research（《细胞研究》）上。
-
-
 
 
 二、2月5日消息，第一批2843盒瑞德西韦（remdisivir）在2月4日已经运抵北京，即将投入临床实验。
 
 
-
-
 根据这份药品通关单，美国吉利德公司生产的瑞德西韦，进口数量2843盒，货值564065.12美元，报关价折合200美元一盒。
-
-
 
 
 三、瑞德西韦是什么
 
 
-
-
 瑞德西韦（remdisivir）是美国吉利德公司2013年为了治疗非洲埃博拉病毒开发的药物，但是效果不理想，后来曾用于SARS冠状病毒治疗，最近发现有可能是治疗新冠病毒的特效药。
 
 
-
-
 瑞德西韦也一夜之间受到了前所未有的关注，几天之内中国药监局确认受理瑞德西韦的临床试验申请，并于2月3日由中日友好医院曹彬教授牵头，直接在武汉开启III期临床，进行针对270个轻/中症新冠肺炎成人患者的多中心随机双盲安慰剂对照临床试验，用于验证其有效性和安全性，预计在2020年4月27日结束，此试验在ClinicalTrials的注册号为NCT042526642。
-
-
-
-
-
 
 
 -----
@@ -2056,16 +1369,10 @@ z f和企业要分开，吉利德之前已经捐了100w。
 ##### 101#       发表于 2020-2-6 19:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46344415&amp;ptid=1911821" target="_blank">derceres 发表于 2020-2-6 18:54</a>
 
 一、先是，2020年2月4日，中国科学院武汉病毒研究所官网发布，在抑制2019新型冠状病毒（2019-nCoV）药物筛 ...</blockquote>
 网上的截图是56405.12美元，折合20美元一盒
-
-
-
-
-
 
 
 -----
@@ -2074,16 +1381,10 @@ z f和企业要分开，吉利德之前已经捐了100w。
 ##### 102#         楼主| 发表于 2020-2-6 19:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46344784&amp;ptid=1911821" target="_blank">scourgen 发表于 2020-2-6 19:39</a>
 
 网上的截图是56405.12美元，折合20美元一盒</blockquote>
 哦，那不算贵
-
-
-
-
-
 
 
 -----
@@ -2092,23 +1393,15 @@ z f和企业要分开，吉利德之前已经捐了100w。
 ##### 103#       发表于 2020-2-6 19:43
 
 
-
 <blockquote>derceres 发表于 2020-2-6 19:41
 哦，那不算贵</blockquote>
 就是无偿的，不懂海关报关单的人以为是售价。
-
-
-
-
-
 
 
 -----
 
 ####  aiplus  
 ##### 104#       发表于 2020-2-6 20:11
-
-
 
 
 通关单上的货值并不代表售价
@@ -2120,26 +1413,15 @@ z f和企业要分开，吉利德之前已经捐了100w。
 —— 来自 realme RMX1971, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  UGDJ  
 ##### 105#       发表于 2020-2-6 20:28
 
 
-
  本帖最后由 UGDJ 于 2020-2-6 20:32 编辑 
 
 规定上应该是参照同类产品市场价格。不过情况特殊，和海关商量着定吧，把程序走掉就得了。如果报0货值好像手续更麻烦。
-
-
-
-
-
 
 
 -----
@@ -2148,23 +1430,16 @@ z f和企业要分开，吉利德之前已经捐了100w。
 ##### 106#       发表于 2020-2-6 20:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46342502&amp;ptid=1911821" target="_blank">eraghjk 发表于 2020-2-6 15:03</a>
 
 说的是美国zf没有实质援助，美国企业也是国企算美国zf一部分吗？？？</blockquote>
 美国政府又没钱。然而在美国做慈善可以抵税，美国个人或者企业NGO做出去的慈善就相当于从美国政府的财政收入中扣除。这么看来的话也可以说美国zf援助了吧。
 
 
-
-
-
-
-
 -----
 
 ####  UGDJ  
 ##### 107#       发表于 2020-2-6 20:36
-
 
 
  本帖最后由 UGDJ 于 2020-2-6 20:39 编辑 
@@ -2174,16 +1449,10 @@ z f和企业要分开，吉利德之前已经捐了100w。
 中国税法里慈善捐款也能抵所得税，把这部分说成政府给的，肯定没人答应啊。
 
 
-
-
-
-
-
 -----
 
 ####  eraghjk  
 ##### 108#       发表于 2020-2-6 20:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46345228&amp;ptid=1911821" target="_blank">riin1 发表于 2020-2-6 20:32</a>
@@ -2195,16 +1464,10 @@ z f和企业要分开，吉利德之前已经捐了100w。
 不说比较富有的邻国日韩都有政府层面的援助，连土耳其、哈萨克斯坦这两本身不怎么富有的都有，大国中法国、英国、俄罗斯都有，就美国政府穷到拿美国企业、个人或NGO的援助当做自己政府的援助，真是好不要脸
 
 
-
-
-
-
-
 -----
 
 ####  wzh5555  
 ##### 109#       发表于 2020-2-6 20:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46345080&amp;ptid=1911821" target="_blank">aiplus 发表于 2020-2-6 20:11</a>
@@ -2215,26 +1478,15 @@ z f和企业要分开，吉利德之前已经捐了100w。
 可能是先针对受众人群市场估值，然后对未来的售价估值，折算一下。
 
 
-
-
-
-
-
 -----
 
 ####  UGDJ  
 ##### 110#       发表于 2020-2-6 20:51
 
 
-
  本帖最后由 UGDJ 于 2020-2-6 20:56 编辑 
 
 话说我觉得外交部真该单独感谢一下美国企业提供的帮助，也和那个只会搞事的政府做个对比
-
-
-
-
-
 
 
 -----
@@ -2243,16 +1495,10 @@ z f和企业要分开，吉利德之前已经捐了100w。
 ##### 111#       发表于 2020-2-6 21:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46345355&amp;ptid=1911821" target="_blank">UGDJ 发表于 2020-2-6 20:51</a>
 
 话说我觉得外交部真该单独感谢一下美国企业提供的帮助，也和那个只会搞事的政府做个对比 ...</blockquote>
 这事儿上美国药企反映速度都蛮快，强生，辉瑞明确的消息都已经捐了好几拨了，抗生素，消毒液，口罩和现金
-
-
-
-
-
 
 
 -----
@@ -2261,14 +1507,7 @@ z f和企业要分开，吉利德之前已经捐了100w。
 ##### 112#       发表于 2020-2-6 21:31
 
 
-
-
 网上说这个神药副作用很大
-
-
-
-
-
 
 
 -----
@@ -2277,24 +1516,16 @@ z f和企业要分开，吉利德之前已经捐了100w。
 ##### 113#       发表于 2020-2-6 22:42
 
 
-
 <img src="https://xqimg.imedao.com/1701ae593dca54e3fec0f545.png" referrerpolicy="no-referrer">
 
 
 重症的临床方案也是双盲，但是联合了标准疗法
 
 
-
-
-
-
-
-
 -----
 
 ####  观自在  
 ##### 114#       发表于 2020-2-6 23:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46342664&amp;ptid=1911821" target="_blank">567478 发表于 2020-2-6 15:26</a>
@@ -2304,16 +1535,10 @@ z f和企业要分开，吉利德之前已经捐了100w。
 —— 来自 Xiaomi Redmi Note 5, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  Ritchie.Player  
 ##### 115#       发表于 2020-2-6 23:10
-
 
 
  本帖最后由 Ritchie.Player 于 2020-2-6 23:13 编辑 
@@ -2321,16 +1546,10 @@ z f和企业要分开，吉利德之前已经捐了100w。
 估计结果出来了也差不多控制了。
 
 
-
-
-
-
-
 -----
 
 ####  riin1  
 ##### 116#       发表于 2020-2-7 02:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46345279&amp;ptid=1911821" target="_blank">eraghjk 发表于 2020-2-6 20:40</a>
@@ -2342,26 +1561,15 @@ z f和企业要分开，吉利德之前已经捐了100w。
 军费是经过国会审批的所以没问题。疫情这种援助，我也不太了解，不过有可能美国纳税人不会很高兴？
 
 
-
-
-
-
-
 -----
 
 ####  jimmy_nyc  
 ##### 117#       发表于 2020-2-7 08:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46345695&amp;ptid=1911821" target="_blank">JJDUB3VQ 发表于 2020-2-6 08:31</a>
 网上说这个神药副作用很大</blockquote>
 还真么有，ebola 实验里两百多个病人，只有一例确信是由这个药引起的严重副作用
-
-
-
-
-
 
 
 -----
@@ -2370,16 +1578,10 @@ z f和企业要分开，吉利德之前已经捐了100w。
 ##### 118#       发表于 2020-2-7 08:44
 
 
-
  本帖最后由 UGDJ 于 2020-2-7 08:46 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46349136&amp;ptid=1911821" target="_blank">jimmy_nyc 发表于 2020-2-7 08:42</a>
 还真么有，ebola 实验里两百多个病人，只有一例确信是由这个药引起的严重副作用 ...</blockquote>
 效果不好的话什么副作用都被埃博拉的巨大破坏掩盖了吧
-
-
-
-
-
 
 
 -----
@@ -2388,16 +1590,10 @@ z f和企业要分开，吉利德之前已经捐了100w。
 ##### 119#       发表于 2020-2-7 08:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46349140&amp;ptid=1911821" target="_blank">UGDJ 发表于 2020-2-6 19:44</a>
 
 效果不好的话什么副作用也比不上埃博拉自己的破坏力吧</blockquote>
 在ebola的实验里，这个药还真并没有比对照组更有疗效。对新冠，目前没有对照实验。不过NEJM的那个case report确实让人印象深刻，用药前一天还在发热吸氧，第二天就不发热了，氧气也撤了。感觉这个药还是很有希望的
-
-
-
-
-
 
 
 -----
@@ -2406,22 +1602,15 @@ z f和企业要分开，吉利德之前已经捐了100w。
 ##### 120#       发表于 2020-2-7 08:52
 
 
-
 <blockquote>jimmy_nyc 发表于 2020-2-7 08:49
 在ebola的实验里，这个药还真并没有比对照组更有疗效。对新冠，目前没有对照实验。不过NEJM的那个case re ...</blockquote>
 在同情用药前，患者体内病毒浓度已经连降多日。
-
-
-
-
-
 
 
 -----
 
 ####  cryczp  
 ##### 121#       发表于 2020-2-7 08:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46304544&amp;ptid=1911821" target="_blank">heisenberg 发表于 2020-2-2 11:50</a>
@@ -2431,16 +1620,10 @@ z f和企业要分开，吉利德之前已经捐了100w。
 有必要以身试药么？
 
 
-
-
-
-
-
 -----
 
 ####  jimmy_nyc  
 ##### 122#       发表于 2020-2-7 08:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46345279&amp;ptid=1911821" target="_blank">eraghjk 发表于 2020-2-6 07:40</a>
@@ -2452,16 +1635,10 @@ z f和企业要分开，吉利德之前已经捐了100w。
 所以捐的钱抵的税都不算吗
 
 
-
-
-
-
-
 -----
 
 ####  jimmy_nyc  
 ##### 123#       发表于 2020-2-7 08:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46349189&amp;ptid=1911821" target="_blank">tillnight 发表于 2020-2-6 19:52</a>
@@ -2470,16 +1647,10 @@ z f和企业要分开，吉利德之前已经捐了100w。
 是吗，没看到这点。是另外一篇？
 
 
-
-
-
-
-
 -----
 
 ####  tillnight  
 ##### 124#       发表于 2020-2-7 09:01
-
 
 
 <blockquote>jimmy_nyc 发表于 2020-2-7 08:52
@@ -2487,16 +1658,10 @@ z f和企业要分开，吉利德之前已经捐了100w。
 世界上大多数的现代国家都有慈善款项抵扣税规则，所以你想说相当于全世界的慈善都是各国政府做的？何况类似这样的特殊事件里捐赠大多数是企业自身的捐赠行为，并不是专门通过慈善基金，不符合相关税务规则。
 
 
-
-
-
-
-
 -----
 
 ####  UGDJ  
 ##### 125#       发表于 2020-2-7 09:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46349193&amp;ptid=1911821" target="_blank">jimmy_nyc 发表于 2020-2-7 08:52</a>
@@ -2508,16 +1673,10 @@ z f和企业要分开，吉利德之前已经捐了100w。
 试想如果把这部分宣传成中国政府给的，你会怎么反应<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  jimmy_nyc  
 ##### 126#       发表于 2020-2-7 09:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46349287&amp;ptid=1911821" target="_blank">UGDJ 发表于 2020-2-6 20:12</a>
@@ -2530,16 +1689,10 @@ z f和企业要分开，吉利德之前已经捐了100w。
 确实是中国政府给的，没问题啊
 
 
-
-
-
-
-
 -----
 
 ####  jimmy_nyc  
 ##### 127#       发表于 2020-2-7 09:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46349225&amp;ptid=1911821" target="_blank">tillnight 发表于 2020-2-6 20:01</a>
@@ -2548,16 +1701,10 @@ z f和企业要分开，吉利德之前已经捐了100w。
 不然呢？扣税的部分自然要算作政府的啊。
 
 
-
-
-
-
-
 -----
 
 ####  UGDJ  
 ##### 128#       发表于 2020-2-7 09:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46349336&amp;ptid=1911821" target="_blank">jimmy_nyc 发表于 2020-2-7 09:19</a>
@@ -2565,16 +1712,10 @@ z f和企业要分开，吉利德之前已经捐了100w。
 好吧，是我狭隘了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  宫崎和香  
 ##### 129#       发表于 2020-2-7 09:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46345695&amp;ptid=1911821" target="_blank">JJDUB3VQ 发表于 2020-2-6 21:31</a>
@@ -2587,25 +1728,13 @@ z f和企业要分开，吉利德之前已经捐了100w。
 他很早就推荐这个药和克立芝。
 
 
-
-
-
-
-
 -----
 
 ####  gouchaoer  
 ##### 130#       发表于 2020-2-7 10:05
 
 
-
-
 估计这2天有消息就是好消息，没消息就是坏消息了
-
-
-
-
-
 
 
 -----
@@ -2614,22 +1743,15 @@ z f和企业要分开，吉利德之前已经捐了100w。
 ##### 131#       发表于 2020-2-7 10:09
 
 
-
 <blockquote>gouchaoer 发表于 2020-2-7 10:05
 估计这2天有消息就是好消息，没消息就是坏消息了</blockquote>
 不是很懂一个双盲测试你们为什么要违背科学规律的来。你都知道好消息坏消息了还怎么双盲，知道双盲是对医生也盲的意思吗？
-
-
-
-
-
 
 
 -----
 
 ####  aiplus  
 ##### 132#       发表于 2020-2-7 10:33
-
 
 
  本帖最后由 aiplus 于 2020-2-7 10:35 编辑 
@@ -2645,32 +1767,19 @@ z f和企业要分开，吉利德之前已经捐了100w。
 另有消息说，该试验实时揭盲，结果公布比预计更快
 
 
-
-
-
-
-
 -----
 
 ####  UGDJ  
 ##### 133#       发表于 2020-2-7 10:37
 
 
-
-
 如果真是神药应该挺容易猜的
-
-
-
-
-
 
 
 -----
 
 ####  heisenberg  
 ##### 134#       发表于 2020-2-7 11:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46349192&amp;ptid=1911821" target="_blank">cryczp 发表于 2020-2-7 08:52</a>
@@ -2682,17 +1791,10 @@ z f和企业要分开，吉利德之前已经捐了100w。
 医生什么的被感染
 
 
-
-
-
-
-
 -----
 
 ####  白头盔  
 ##### 135#       发表于 2020-2-7 11:14
-
-
 
 
 还是不要对这个药寄予太大希望的好。
@@ -2700,16 +1802,10 @@ z f和企业要分开，吉利德之前已经捐了100w。
 给出的实验结果没有很明显
 
 
-
-
-
-
-
 -----
 
 ####  aiplus  
 ##### 136#       发表于 2020-2-7 11:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46350220&amp;ptid=1911821" target="_blank">heisenberg 发表于 2020-2-7 11:10</a>
@@ -2721,16 +1817,10 @@ GS441就算了
 又贵，还没有合适的给药途径，口服容易降解不能起作用，且已知的毒性比Remdesivir大
 
 
-
-
-
-
-
 -----
 
 ####  aiplus  
 ##### 137#       发表于 2020-2-7 11:26
-
 
 
 <img src="https://wx2.sinaimg.cn/large/b7ba4c0ely1gbn2alix4wj20hs0ts76c.jpg" referrerpolicy="no-referrer">
@@ -2743,17 +1833,10 @@ GS441就算了
 据瑞德西韦临床试验项目负责人、中日友好医院副院长曹彬教授介绍，总计拟入组761例患者，采用随机、双盲、安慰剂对照方法展开。首位受药的是一位68岁的男性重症患者。戳视频↓ 新华视点的微博视频
 
 
-
-
-
-
-
-
 -----
 
 ####  byfaith  
 ##### 138#       发表于 2020-2-7 12:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46350244&amp;ptid=1911821" target="_blank">白头盔 发表于 2020-02-07 11:14:54</a>
@@ -2764,17 +1847,10 @@ GS441就算了
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  红丽  
 ##### 139#       发表于 2020-2-7 12:26
-
-
 
 
 很多人不知道吉利德吧
@@ -2784,16 +1860,10 @@ GS441就算了
 我记得艾滋的药差不多已经是紧急避孕药的效果了，可以先上车后补票
 
 
-
-
-
-
-
 -----
 
 ####  白头盔  
 ##### 140#       发表于 2020-2-7 12:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46350694&amp;ptid=1911821" target="_blank">byfaith 发表于 2020-2-7 12:00</a>
@@ -2803,16 +1873,10 @@ GS441就算了
 —— 来自 Xiaomi MI 5s Plus, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  yyccq  
 ##### 141#       发表于 2020-2-7 15:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46350931&amp;ptid=1911821" target="_blank">红丽 发表于 2020-2-7 12:26</a>
@@ -2825,16 +1889,10 @@ GS441就算了
 过于干脆地干死丙肝，导致自己股票大跌的公司
 
 
-
-
-
-
-
 -----
 
 ####  aiplus  
 ##### 142#       发表于 2020-2-7 15:44
-
 
 
  本帖最后由 aiplus 于 2020-2-7 15:45 编辑 
@@ -2850,16 +1908,10 @@ GS441就算了
 过于吹捧吉利德成圣人也没什么意思，都是商业行为，定价也是尽量最大化，受到监管的大棒之后才有所收敛
 
 
-
-
-
-
-
 -----
 
 ####  aiplus  
 ##### 143#       发表于 2020-2-7 16:04
-
 
 
  本帖最后由 aiplus 于 2020-2-7 16:07 编辑 
@@ -2872,33 +1924,19 @@ GS441就算了
 一个单纯的抗病毒 药 物 很难说能起到如此效果，而且前期的体外和动物试验都没有相应证据
 
 
-
-
-
-
-
-
 -----
 
 ####  changdrod  
 ##### 144#       发表于 2020-2-7 16:12
 
 
-
-
 特效药的几率很低，特效药出现就是一个小概率事件，是惊喜。期望不要太大。
-
-
-
-
-
 
 
 -----
 
 ####  叶子  
 ##### 145#       发表于 2020-2-7 16:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46352744&amp;ptid=1911821" target="_blank">aiplus 发表于 2020-2-7 16:04</a>
@@ -2909,16 +1947,10 @@ GS441就算了
 按这个药的原理是早期压制病毒，病毒量不大就不太会产生强烈的免疫反应。
 
 
-
-
-
-
-
 -----
 
 ####  卡缪911  
 ##### 146#       发表于 2020-2-7 16:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46352785&amp;ptid=1911821" target="_blank">changdrod 发表于 2020-2-7 16:12</a>
@@ -2930,16 +1962,10 @@ GS441就算了
 个人觉得可以报很大期望。
 
 
-
-
-
-
-
 -----
 
 ####  ❃✽✾✶✻✼  
 ##### 147#       发表于 2020-2-7 16:32
-
 
 
 <blockquote>红丽 发表于 2020-2-7 12:26
@@ -2951,26 +1977,13 @@ GS441就算了
 阻断药和紧急避孕可差远了    紧急避孕一个可以吃一次    阻断药一吃就是一个月
 
 
-
-
-
-
-
 -----
 
 ####  JJDUB3VQ  
 ##### 148#       发表于 2020-2-7 18:04
 
 
-
-
-
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -2979,21 +1992,13 @@ GS441就算了
 ##### 149#       发表于 2020-2-7 18:16
 
 
-
-
 药效应该不大
-
-
-
-
-
 
 
 -----
 
 ####  aiplus  
 ##### 150#       发表于 2020-2-7 21:23
-
 
 
 [https://www.biocentury.com/bc-ex ... e-new-vaccines-and-](https://www.biocentury.com/bc-extra/clinical-news/2020-01-30/industry-and-academic-centers-are-rushing-create-new-vaccines-and-)
@@ -3004,7 +2009,6 @@ Biocentury  1月31日的时候总结了目前的冠状病毒在研疫苗和抗
 <img src="https://wx3.sinaimg.cn/large/4a994b1dly1gbg2t6ekdgj20rm0ou413.jpg" referrerpolicy="no-referrer">
 
 
-
 给力，全世界加起来有十七组企业和机构了
 
 
@@ -3013,47 +2017,29 @@ Biocentury  1月31日的时候总结了目前的冠状病毒在研疫苗和抗
 和国外机构合作开发的有，苏州艾棣维欣，同济大学，复旦大学  
 
 
-
-
-
-
-
 -----
 
 ####  aiplus  
 ##### 151#       发表于 2020-2-7 21:34
 
 
-
  本帖最后由 aiplus 于 2020-2-7 21:38 编辑 
 <blockquote>如果说Gilead公司的强项是开发抗病毒的小分子化合物，那么Regeneron的强项就是开发抗病毒的抗体。
-
-
 
 
 2014年Ebola病毒在非洲爆发，Regeneron用了10个月就开发出针对性的混合抗体EB3， 这时候疫情已经结束，EB3被束之高阁。
 
 
-
-
 2018年Ebola病毒在非洲刚果共和国爆发， EB3和remdesivir同场竞技，良好的治疗效果把差强人意的remdesivir碾压成灰。
-
-
 
 
 因为这一点，面对这次的危机，Gilead公司自己也承认Regeneron的新冠病毒单抗可能会优于remdesivir， 终极的治疗方案可能是remdesivir联合Regeneron的新冠病毒单抗。
 
 
-
-
 我前面曾经删掉一篇文章，里面提到Regeneron已经开发出针对MERS冠状病毒Spike蛋白的两个单抗， REGN3048和REGN3051.
 
 
-
-
 现在Regeneron在做的事情，流程和开发REGN3048和REGN3051一样，人工合成新冠病毒的Spike蛋白，包装成伪病毒用于免疫可以产生人源抗体的遗传改造嵌合小鼠， 然后筛选可以识别新冠病毒Spike蛋白的单抗，将2-3个高效单抗混在一起，就是可能治疗新冠病毒感染的最强单项武器。
-
-
 
 
 火神之剑，雷神之锤，这就是Regeneron开发新冠病毒抗体的王道。</blockquote>
@@ -3098,17 +2084,10 @@ If any 2019-nCoV antibodies graduate to clinical trials, the saga continues at R
 In the end, the company hopes to have a handful of antibodies that can be packaged as a cocktail.</blockquote>
 
 
-
-
-
-
-
-
 -----
 
 ####  卡洛德  
 ##### 152#       发表于 2020-2-7 22:00
-
 
 
  本帖最后由 卡洛德 于 2020-2-8 09:00 编辑 
@@ -3116,16 +2095,10 @@ In the end, the company hopes to have a handful of antibodies that can be packag
 原来同情疗法这么给力，扩大不需要什么审批
 
 
-
-
-
-
-
 -----
 
 ####  yyccq  
 ##### 153#       发表于 2020-2-8 08:44
-
 
 
 <blockquote>aiplus 发表于 2020-2-7 16:04
@@ -3136,26 +2109,15 @@ In the end, the company hopes to have a handful of antibodies that can be packag
 只要能把病毒压制住，临床现在对付CRS的办法很多。
 
 
-
-
-
-
-
 -----
 
 ####  卡洛德  
 ##### 154#       发表于 2020-2-8 08:59
 
 
-
  本帖最后由 卡洛德 于 2020-2-8 09:06 编辑 
 
 重症大多数转轻症，对节约武汉医疗资源很有帮助
-
-
-
-
-
 
 
 -----
@@ -3164,23 +2126,16 @@ In the end, the company hopes to have a handful of antibodies that can be packag
 ##### 155#       发表于 2020-2-8 12:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46357764&amp;ptid=1911821" target="_blank">卡洛德 发表于 2020-2-8 08:59</a>
 
 重症大多数转轻症，对节约武汉医疗资源很有帮助</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">真的有同情用药的例子出现了？
 
 
-
-
-
-
-
 -----
 
 ####  aiplus  
 ##### 156#       发表于 2020-2-9 12:30
-
 
 
 <blockquote>子陵在听歌 
@@ -3196,17 +2151,10 @@ In the end, the company hopes to have a handful of antibodies that can be packag
 第二个研究（图3），回应了病毒“人工重组论”，指出2019-nCoV与蝙蝠冠状病毒RaTG13具有96.3%同源性。因此，2019-nCoV很大可能来源于蝙蝠。有意思的是，2019-nCoV和RaTG13两者基因组序列10901nt - 27933nt高度同源，且来源于同一进化分支，但与其他betacoronavirus-sarbecovirus不属于同一进化分支。而RaTG13实际上是在蝙蝠上发现的冠状病毒bat/Yunnan/RaTG13/2013株。这个结论与Trevor Bedford在nextstrain.org发表的进化树分析和石正丽2月3日Nature文章完全一致（图3）。尤其是与宿主结合的Spike蛋白序列的高同源性提示，2019-nCoV不是“人工重组”的，而极大可能是由蝙蝠冠状进化而来的，而后跨种传播给人类。我现在最想看到的就是2019-nCoV和RaTG13高分辨率晶体结构，从而获知哪些氨基酸突变引起了2019-nCoV与宿主受体结合的变化。</blockquote>[https://m.weibo.cn/detail/4470031322758548](https://m.weibo.cn/detail/4470031322758548)
 
 
-
-
-
-
-
 -----
 
 ####  aiplus  
 ##### 157#       发表于 2020-2-11 14:34
-
-
 
 
 知乎的杀生丸一系列文章很有看头
@@ -3221,16 +2169,10 @@ In the end, the company hopes to have a handful of antibodies that can be packag
 [https://zhuanlan.zhihu.com/p/105691752](https://zhuanlan.zhihu.com/p/105691752)
 
 
-
-
-
-
-
 -----
 
 ####  walawa  
 ##### 158#       发表于 2020-2-11 18:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46321401&amp;ptid=1911821" target="_blank">萨义德库特布 发表于 2020-2-4 09:18</a>
@@ -3239,16 +2181,10 @@ In the end, the company hopes to have a handful of antibodies that can be packag
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 造谣现场，话说这药2月4号下午到中国的，看这截图，这医生怎么能在2月2号就发帖表示重症就恢复了？感情中日友好医院院长在未来3天后当着官媒的面辟谣都是造谣吗？
 
 
-
-
-
-
-
 -----
 
 ####  walawa  
 ##### 159#       发表于 2020-2-11 18:28
-
 
 
  本帖最后由 walawa 于 2020-2-11 18:29 编辑 
@@ -3263,17 +2199,10 @@ In the end, the company hopes to have a handful of antibodies that can be packag
 <img src="https://pic2.zhimg.com/v2-f1bf91466f729973320b5a753c7c7da1_r.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  keytomylife  
 ##### 160#       发表于 2020-2-11 18:34
-
-
 
 
 这么说吧
@@ -3281,16 +2210,10 @@ In the end, the company hopes to have a handful of antibodies that can be packag
 无效就不会去抢注了
 
 
-
-
-
-
-
 -----
 
 ####  walawa  
 ##### 161#       发表于 2020-2-11 18:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46390064&amp;ptid=1911821" target="_blank">keytomylife 发表于 2020-2-11 18:34</a>
@@ -3304,17 +2227,10 @@ In the end, the company hopes to have a handful of antibodies that can be packag
 说实话，不是很看好，你看这几天死亡病例统计，湖北昨天死亡病例都破百了。北京也多死了一个。反倒是浙江和江苏，到现在一个都没死。广东这么大的确诊人数，到现在才死一个。试验再怎么算已经开展了也有3~4天了吧？武汉都2：1用药了，但从每日统计上来看，明显这三个省市的治疗效果还是要好于临床3期的两个地方。
 
 
-
-
-
-
-
 -----
 
 ####  aiplus  
 ##### 162#       发表于 2020-2-11 20:05
-
-
 
 
 最近没有新的消息了，连新谣言都没有了
@@ -3322,16 +2238,10 @@ In the end, the company hopes to have a handful of antibodies that can be packag
 静观其变吧
 
 
-
-
-
-
-
 -----
 
 ####  joymii  
 ##### 163#       发表于 2020-2-11 20:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46390768&amp;ptid=1911821" target="_blank">aiplus 发表于 2020-2-11 20:05</a>
@@ -3342,24 +2252,13 @@ In the end, the company hopes to have a handful of antibodies that can be packag
 还没到我大县城就有人说实验结果是96%了，还能比这个更谣的？那就只有活死人肉白骨了吧
 
 
-
-
-
-
-
 -----
 
 ####  CR2  
 ##### 164#       发表于 2020-2-11 20:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">感觉之前黑双黄连的评论也可以发到这里来
-
-
-
-
-
 
 
 -----
@@ -3368,14 +2267,7 @@ In the end, the company hopes to have a handful of antibodies that can be packag
 ##### 165#       发表于 2020-2-11 20:51
 
 
-
-
 没消息是SEC重拳警告见效了吧... 
-
-
-
-
-
 
 
 -----
@@ -3384,17 +2276,10 @@ In the end, the company hopes to have a handful of antibodies that can be packag
 ##### 166#       发表于 2020-2-11 21:01
 
 
-
-
 临床试验没那么快有结果吧
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
-
-
-
-
-
 
 
 -----
@@ -3403,23 +2288,15 @@ In the end, the company hopes to have a handful of antibodies that can be packag
 ##### 167#       发表于 2020-2-11 21:19
 
 
-
-
 这药适合早期介入，对重症效果不佳，对武汉的数字帮助不大很正常
 
 —— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
 
 ####  coldhot3  
 ##### 168#       发表于 2020-2-12 22:01
-
 
 
 <blockquote>aiplus 发表于 2020-2-11 20:05
@@ -3429,16 +2306,10 @@ In the end, the company hopes to have a handful of antibodies that can be packag
 说明至少没好到直接破盲了，也没出tgn1412那样的事情
 
 
-
-
-
-
-
 -----
 
 ####  lampharelove  
 ##### 169#       发表于 2020-2-12 23:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46349189&amp;ptid=1911821" target="_blank">tillnight 发表于 2020-2-7 08:52</a>
@@ -3447,16 +2318,10 @@ In the end, the company hopes to have a handful of antibodies that can be packag
 患者病程到了中晚期，病毒负荷会自行下降，因为接下来重点就是引发的自身免疫风暴和肺组织一起自爆了。
 
 
-
-
-
-
-
 -----
 
 ####  lampharelove  
 ##### 170#       发表于 2020-2-13 00:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46390135&amp;ptid=1911821" target="_blank">walawa 发表于 2020-2-11 18:45</a>
@@ -3470,13 +2335,9 @@ In the end, the company hopes to have a handful of antibodies that can be packag
 而对于R药这样一个精确针对病毒复制过程开火+IC50超级低的药物，作用机制明确，副作用在ebola的I期临床已经证实了可以接受，此次针对新冠早中期病人的临床实验我认为基本没有失败的可能（此时的主要矛盾就在于抑制病毒的复制），重症和晚期患者效果不好说因为此时的主要矛盾在于炎性因子风暴和自身免疫过程，和病毒本身已经没啥关系。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 -1
@@ -3486,19 +2347,13 @@ In the end, the company hopes to have a handful of antibodies that can be packag
 | dpdwx|-1|精确靶点+ic50低的angiostatin已经死过了，.|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  ❃✽✾✶✻✼  
 ##### 171#       发表于 2020-2-13 00:59
-
 
 
 <blockquote>lampharelove 发表于 2020-2-13 00:33
@@ -3515,17 +2370,10 @@ In the end, the company hopes to have a handful of antibodies that can be packag
 甚至有人说就这个报道说的给药有效都是设计的功劳     在病程后半段给药     给不给都会大幅好转的       估计给双黄连也行
 
 
-
-
 疾病的治疗是系统性的     一切以临床实验为准     其它都是假的     要是业内可以分析分析   对自己的工作能提供资料    最重要还是动手做     
 
 
 一般人没有动手做的能力    关注这个就是中了算计     把这些信息披露给大众一律可以认为别有用心     证监会警告
-
-
-
-
-
 
 
 -----
@@ -3534,11 +2382,7 @@ In the end, the company hopes to have a handful of antibodies that can be packag
 ##### 172#       发表于 2020-2-13 22:13
 
 
-
-
-
 2月13日，据中国临床试验注册中心显示，「托珠单抗」登记了一项在新型冠状病毒肺炎(COVID-19)中的有效性及安全性的多中心、随机对照临床研究（注册号：ChiCTR2000029765 ）。
-
 
 
 该项研究的目的是评估托珠单抗治疗普通型NCP（含重症高危因素）及重型NCP患者的有效性和安全性 。
@@ -3566,18 +2410,10 @@ In the end, the company hopes to have a handful of antibodies that can be packag
 本次登记的临床试验不仅包括普通NCP患者还包括重症患者，目前登记的众多新冠肺炎临床试验中，仅有1/4针对重症患者，重症患者的临床用药也非常有限，我们也期待托珠单抗对新冠肺炎重症患者起效。
 
 
-
-
-
-
-
-
 -----
 
 ####  aiplus  
 ##### 173#       发表于 2020-2-14 11:48
-
-
 
 
 上班摸鱼，把WHO 2018年关于瑞德西韦以及其他三种埃博拉药物的总结看了一遍
@@ -3593,32 +2429,19 @@ In the end, the company hopes to have a handful of antibodies that can be packag
 另外mab114这个单抗，是来源于埃博拉痊愈者的血清中分离提取，然后拿到CHO细胞里去大规模培养表达结合新冠那个痊愈者血浆抗体的新闻，这也是条路，但是研发过程太漫长了，等不起……
 
 
-
-
-
-
-
 -----
 
 ####  ycwzq  
 ##### 174#       发表于 2020-2-14 11:54
 
 
-
-
 用CarT的时候，针对CRS还有一招：血浆置换
-
-
-
-
-
 
 
 -----
 
 ####  aiplus  
 ##### 175#       发表于 2020-2-14 12:04
-
 
 
  本帖最后由 aiplus 于 2020-2-14 12:05 编辑 
@@ -3629,16 +2452,10 @@ In the end, the company hopes to have a handful of antibodies that can be packag
 [https://m.weibo.cn/detail/4470885110731003](https://m.weibo.cn/detail/4470885110731003)
 
 
-
-
-
-
-
 -----
 
 ####  iceplatinum  
 ##### 176#       发表于 2020-2-14 12:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46402300&amp;ptid=1911821" target="_blank">lampharelove 发表于 2020-2-13 00:33</a>
@@ -3647,16 +2464,10 @@ In the end, the company hopes to have a handful of antibodies that can be packag
 这药就是针对埃博拉的，那为什么失效了 ？
 
 
-
-
-
-
-
 -----
 
 ####  aiplus  
 ##### 177#       发表于 2020-2-14 14:05
-
 
 
  本帖最后由 aiplus 于 2020-2-14 14:10 编辑 
@@ -3676,17 +2487,10 @@ By contrast, 53% of patients who received the anti-viral drug remdesivir died, a
  <blockquote>The trial is monitored by an independent Data and Safety Monitoring Board (DSMB) that meets periodically to review interim safety and efficacy data and to make recommendations to the study team and the sponsors. As a result of their August 9, 2019 review, the DSMB recommended that the study be stopped and that all future patients be randomized to receive either REGN-EB3 or mAb114 in what is being considered an extension phase of the study. This recommendation was based on the fact that an early stopping criterion in the protocol had been met by one of the products, REGN-EB3. The preliminary results in 499 study participants indicated that those individuals receiving REGN-EB3 or mAb114 had a greater chance of survival compared to those participants in the other two arms.</blockquote>
 
 
-
-
-
-
-
-
 -----
 
 ####  aiplus  
 ##### 178#       发表于 2020-2-15 12:11
-
 
 
  本帖最后由 aiplus 于 2020-2-15 12:12 编辑 
@@ -3695,16 +2499,10 @@ By contrast, 53% of patients who received the anti-viral drug remdesivir died, a
 [https://mp.weixin.qq.com/s/mccvALc0ULIgjfl36Frz7Q?url=https%3A%2F%2Fmp.weixin.qq.com%2Fs%2FmccvALc0ULIgjfl36Frz7Q&amp;share_menu=1&amp;sinainternalbrowser=topnav&amp;mid=4472156840707221&amp;luicode=10000011&amp;lfid=100103type%3D1%26q%3D%E5%BE%AA%E8%AF%81%E7%9A%84%E5%B4%A9%E6%BA%83&amp;u=https%3A%2F%2Fmp.weixin.qq.com%2Fs%2FmccvALc0ULIgjfl36Frz7Q](https://mp.weixin.qq.com/s/mccvALc0ULIgjfl36Frz7Q?url=https%3A%2F%2Fmp.weixin.qq.com%2Fs%2FmccvALc0ULIgjfl36Frz7Q&amp;share_menu=1&amp;sinainternalbrowser=topnav&amp;mid=4472156840707221&amp;luicode=10000011&amp;lfid=100103type%3D1%26q%3D%E5%BE%AA%E8%AF%81%E7%9A%84%E5%B4%A9%E6%BA%83&amp;u=https%3A%2F%2Fmp.weixin.qq.com%2Fs%2FmccvALc0ULIgjfl36Frz7Q)
 
 
-
-
-
-
-
 -----
 
 ####  不是橘子皮  
 ##### 179#       发表于 2020-2-15 12:18
-
 
 
 <blockquote>引用第177楼aiplus于2020-02-15 12:11发表的  :
@@ -3719,16 +2517,10 @@ By contrast, 53% of patients who received the anti-viral drug remdesivir died, a
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.29)
 
 
-
-
-
-
-
 -----
 
 ####  第八协奏曲  
 ##### 180#       发表于 2020-2-21 23:46
-
 
 
  本帖最后由 第八协奏曲 于 2020-2-21 23:49 编辑 
@@ -3744,17 +2536,10 @@ By contrast, 53% of patients who received the anti-viral drug remdesivir died, a
 —— 来自 Meizu 16th Plus, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  ❃✽✾✶✻✼  
 ##### 181#       发表于 2020-2-22 00:52
-
-
 
 
 瑞德西韦基本上无效了       从叫唤实验到现在一个自然病程过去了
@@ -3763,17 +2548,10 @@ By contrast, 53% of patients who received the anti-viral drug remdesivir died, a
 磷酸氯奎倒是比较对味
 
 
-
-
-
-
-
 -----
 
 ####  memory-s1  
 ##### 182#       发表于 2020-2-22 00:55
-
-
 
 
 瑞德西韦是以我们医院为主展开了临床研究。我们整体的目标的入组人数，重症的病例大概是400多人，轻症有300多人。目前的入组情况，是以2:1的比例来投药，就是让活性药组的人数稍微多一些，安慰剂组的人数少一点。但是临床大夫实际上是能够感觉到哪个药是安慰剂，哪个药是活性药，整体的感觉瑞德西韦的效果还是比较明显，能够阻止重症滑向危重症的这么一个状况。
@@ -3789,9 +2567,6 @@ By contrast, 53% of patients who received the anti-viral drug remdesivir died, a
 
 
 原话，具体结果还是等揭盲
-
-
-
 
 
                                            

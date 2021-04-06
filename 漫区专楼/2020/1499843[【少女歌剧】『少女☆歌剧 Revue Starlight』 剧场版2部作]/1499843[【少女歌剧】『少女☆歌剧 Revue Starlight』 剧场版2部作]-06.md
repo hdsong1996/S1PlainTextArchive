@@ -1,21 +1,13 @@
 > ## **本文件最后更新于2020-02-28 22:46** 
 
 
-
 -----
 
 ####  钱君  
 ##### 7501#       发表于 2018-10-12 00:40
 
 
-
-
 开始补番了，第一话看的我一脸懵
-
-
-
-
-
 
 
 -----
@@ -24,14 +16,7 @@
 ##### 7502#       发表于 2018-10-12 01:13
 
 
-
-
 好想赶紧看到舞台剧#2
-
-
-
-
-
 
 
 -----
@@ -40,14 +25,7 @@
 ##### 7503#       发表于 2018-10-12 03:01
 
 
-
-
 #2要来了, 明天要无心上班了
-
-
-
-
-
 
 
 -----
@@ -56,14 +34,7 @@
 ##### 7504#       发表于 2018-10-12 10:42
 
 
-
-
 明天舞台剧2也要开始公演了，等看过的人剧透
-
-
-
-
-
 
 
 -----
@@ -72,14 +43,7 @@
 ##### 7505#       发表于 2018-10-12 12:00
 
 
-
-
 熬夜把动画看完了，感觉看掉了一年份的长颈鹿。。。。。。
-
-
-
-
-
 
 
 -----
@@ -88,15 +52,9 @@
 ##### 7506#       发表于 2018-10-12 15:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41224087&amp;ptid=1499843" target="_blank">物流大亨常凯申 发表于 2018-10-10 21:39</a>
 这也太真实了8</blockquote>
 应该撇掉主角加成 如果按比例来讲露女士最惨无误
-
-
-
-
-
 
 
 -----
@@ -105,13 +63,7 @@
 ##### 7507#       发表于 2018-10-12 20:18
 
 
-
 <img src="https://wx3.sinaimg.cn/mw690/b0c08ab5ly1fw5my34f1qj20ak0f00ts.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -120,15 +72,9 @@
 ##### 7508#       发表于 2018-10-12 20:26
 
 
-
  本帖最后由 IWS2000 于 2018-10-12 20:28 编辑 
 
 <img src="https://wx3.sinaimg.cn/mw690/0065qAWxly1fw5dpojz8tj310o1kw7hy.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -137,13 +83,7 @@
 ##### 7509#       发表于 2018-10-12 20:27
 
 
-
 <img src="https://wx4.sinaimg.cn/bmiddle/eb3e1b36ly1fw5a47u60rj20m80eqjsf.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -152,14 +92,7 @@
 ##### 7510#       发表于 2018-10-12 20:45
 
 
-
-
 舞女抱<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -168,15 +101,8 @@
 ##### 7511#       发表于 2018-10-12 21:04
 
 
-
-
 等一波明天的repo了，很感兴趣#2会怎么演
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">手游也要上线了，泥潭连专贴都没
-
-
-
-
-
 
 
 -----
@@ -185,21 +111,13 @@
 ##### 7512#       发表于 2018-10-13 17:10
 
 
-
-
 舞台剧#2出了，你楼一点点的反应都没有，凉的透彻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  安广多惠子  
 ##### 7513#       发表于 2018-10-13 18:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41253881&amp;ptid=1499843" target="_blank">404670637 发表于 2018-10-13 17:10</a>
@@ -211,17 +129,10 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">没有#2看我要死了
 
 
-
-
-
-
-
 -----
 
 ####  ianny544  
 ##### 7514#       发表于 2018-10-13 18:30
-
-
 
 
 病人早跑去别的地方发病了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -229,16 +140,10 @@
 —— 来自 samsung SM-G965W, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  安广多惠子  
 ##### 7515#       发表于 2018-10-13 18:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41253881&amp;ptid=1499843" target="_blank">404670637 发表于 2018-10-13 17:10</a>
@@ -250,25 +155,14 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">没有#2看我要死了
 
 
-
-
-
-
-
 -----
 
 ####  greelmr1981  
 ##### 7516#       发表于 2018-10-13 18:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41245683&amp;ptid=1499843" target="_blank">IWS2000 发表于 2018-10-12 20:26</a></blockquote>
 神无月的迷宫<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -277,14 +171,7 @@
 ##### 7517#       发表于 2018-10-13 18:46
 
 
-
-
 挺王buff太强了，光昼石锤还附赠露女士校外的青梅竹马
-
-
-
-
-
 
 
 -----
@@ -293,14 +180,7 @@
 ##### 7518#       发表于 2018-10-13 18:57
 
 
-
-
 想看舞台剧！！！！
-
-
-
-
-
 
 
 -----
@@ -309,14 +189,7 @@
 ##### 7519#       发表于 2018-10-13 19:11
 
 
-
-
 据说露女士翻身 光昼实锤了<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -325,15 +198,7 @@
 ##### 7520#       发表于 2018-10-13 19:35
 
 
-
-
-
 公开彩排片段，剧透有
-
-
-
-
-
 
 
 -----
@@ -342,14 +207,7 @@
 ##### 7521#       发表于 2018-10-13 19:35
 
 
-
-
 看剧透舞台版蕉哥哥的不败记录还在保持，TV蕉退群吧(不
-
-
-
-
-
 
 
 -----
@@ -358,14 +216,7 @@
 ##### 7522#       发表于 2018-10-13 19:38
 
 
-
-
 蕉哥哥那独孤求败的天花板形象太深刻了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -374,14 +225,7 @@
 ##### 7523#       发表于 2018-10-13 20:08
 
 
-
-
 问下，后几集的插曲啥时候出？
-
-
-
-
-
 
 
 -----
@@ -390,23 +234,16 @@
 ##### 7524#       发表于 2018-10-13 20:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41253881&amp;ptid=1499843" target="_blank">404670637 发表于 2018-10-13 17:10</a>
 
 舞台剧#2出了，你楼一点点的反应都没有，凉的透彻</blockquote>
 没资源也不懂日语没办法啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 7525#       发表于 2018-10-13 20:27
-
 
 
  本帖最后由 we89623 于 2018-10-13 20:35 编辑 
@@ -417,20 +254,10 @@
 <img src="https://wx4.sinaimg.cn/mw690/41628a93gy1fw6vgxk0kmj208r09ijsj.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  zjylyy  
 ##### 7526#       发表于 2018-10-13 21:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41254522&amp;ptid=1499843" target="_blank">安广多惠子 发表于 2018-10-13 18:32:22</a>
@@ -441,16 +268,10 @@
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  unnilennium  
 ##### 7527#       发表于 2018-10-13 21:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41254522&amp;ptid=1499843" target="_blank">安广多惠子 发表于 2018-10-13 18:32</a>
@@ -460,16 +281,10 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">岩田女士大活跃，我非常兴奋
 
 
-
-
-
-
-
 -----
 
 ####  404670637  
 ##### 7528#       发表于 2018-10-13 21:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41255474&amp;ptid=1499843" target="_blank">we89623 发表于 2018-10-13 20:27</a>
@@ -481,25 +296,14 @@
 对面是假面骑士Marika，haruki已经累计和两个来打同台过了，这是暗示出演下一作来打的节奏<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  尚风悦  
 ##### 7529#       发表于 2018-10-13 23:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41245690&amp;ptid=1499843" target="_blank">IWS2000 发表于 2018-10-12 20:27</a></blockquote>
 蕉汪汪超绝无敌可爱了！！！
-
-
-
-
-
 
 
 -----
@@ -508,22 +312,13 @@
 ##### 7530#       发表于 2018-10-13 23:59
 
 
-
-
 露妈妈竟然有小迷妹！ 挺王BUFF恐怖如斯嘛...
-
-
-
-
-
 
 
 -----
 
 ####  inflation  
 ##### 7531#       发表于 2018-10-14 00:39
-
-
 
 
 转战吧（剧透）
@@ -534,14 +329,8 @@
 来自: iPhone客户端
 
 
-
-
-
-
 image.jpg
 (102.31 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -550,31 +339,13 @@ image.jpg
 2018-10-14 00:39 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/13/113944femp1s31onsi3z1i.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  Kurishi  
 ##### 7532#       发表于 2018-10-14 01:09
-
 
 
  本帖最后由 Kurishi 于 2018-10-14 01:11 编辑 
@@ -585,14 +356,8 @@ image.jpg
 <img src="https://imgur.com/a/61RhIb5" id="aimg_gOG0A" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
-
-
-
-
 DpS2mSiUcAAHjUT.jpg
 (522.63 KB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -601,24 +366,7 @@ DpS2mSiUcAAHjUT.jpg
 2018-10-14 01:11 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/14/011142zanbovzapl5zhasv.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -627,21 +375,13 @@ DpS2mSiUcAAHjUT.jpg
 ##### 7533#       发表于 2018-10-14 02:12
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">虽然预约了，但不会日语的情况下，玩mltd这种音游还凑合，玩少歌感觉会很吃力
-
-
-
-
-
 
 
 -----
 
 ####  karloku  
 ##### 7534#       发表于 2018-10-14 13:25
-
-
 
 
 剧情紧接着TV并且接上手游了
@@ -653,32 +393,19 @@ DpS2mSiUcAAHjUT.jpg
 期待TV能把舞台剧里指留了个线索或者结论的东西演详细
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 7535#       发表于 2018-10-14 13:28
 
 
-
-
 不知道青岚会不会有二次角色形象
-
-
-
-
-
 
 
 -----
 
 ####  安广多惠子  
 ##### 7536#       发表于 2018-10-14 13:30
-
 
 
 <blockquote>karloku 发表于 2018-10-14 13:25
@@ -688,16 +415,10 @@ DpS2mSiUcAAHjUT.jpg
 如果这一轮公演结束有后续的动画情报就好了，哪怕是第一季总集型的剧场版，不然的话还是担心热度会下降得很快
 
 
-
-
-
-
-
 -----
 
 ####  karloku  
 ##### 7537#       发表于 2018-10-14 13:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41261628&amp;ptid=1499843" target="_blank">安广多惠子 发表于 2018-10-14 13:30</a>
@@ -706,25 +427,13 @@ DpS2mSiUcAAHjUT.jpg
 祖传绝技：手游续命(掩面
 
 
-
-
-
-
-
 -----
 
 ####  karloku  
 ##### 7538#       发表于 2018-10-14 14:18
 
 
-
-
 艾玛退场的时候moyo和mmrn飞吻了两个来回
-
-
-
-
-
 
 
 -----
@@ -733,14 +442,7 @@ DpS2mSiUcAAHjUT.jpg
 ##### 7539#       发表于 2018-10-15 10:51
 
 
-
-
 revue曲Vol.2怎么还没有偷跑<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -749,14 +451,8 @@ revue曲Vol.2怎么还没有偷跑<img src="https://static.saraba1st.com/image/s
 ##### 7540#       发表于 2018-10-15 21:40
 
 
-
 <img src="http://wx3.sinaimg.cn/large/b246ad8dgy1fw92h3jw8qg20b4069x6p.gif" referrerpolicy="no-referrer">
 <img src="http://wx3.sinaimg.cn/mw690/b246ad8dgy1fw92h6uixqg208w050kcg.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -765,14 +461,7 @@ revue曲Vol.2怎么还没有偷跑<img src="https://static.saraba1st.com/image/s
 ##### 7541#       发表于 2018-10-15 22:31
 
 
-
-
 话说舞台剧的剧中歌没有发过CD吗？找了一圈完全没影子
-
-
-
-
-
 
 
 -----
@@ -781,14 +470,7 @@ revue曲Vol.2怎么还没有偷跑<img src="https://static.saraba1st.com/image/s
 ##### 7542#       发表于 2018-10-15 22:42
 
 
-
-
 看见别人发P站首页推荐全是各种少歌的图，自己上PC端看了下，确实如此。。。有这么火吗（本人没在P站搜过任何少歌相关的词）
-
-
-
-
-
 
 
 -----
@@ -797,23 +479,16 @@ revue曲Vol.2怎么还没有偷跑<img src="https://static.saraba1st.com/image/s
 ##### 7543#       发表于 2018-10-15 23:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41277073&amp;ptid=1499843" target="_blank">damian-wade 发表于 2018-10-15 22:31:31</a>
 话说舞台剧的剧中歌没有发过CD吗？找了一圈完全没影子</blockquote>剧中歌cd是舞台剧bd特典，不单卖的。不过我记得楼里就有人分享过啊，我就是在这楼里偷的<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  damian-wade  
 ##### 7544#       发表于 2018-10-16 00:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41277426&amp;ptid=1499843" target="_blank">ColinWine 发表于 2018-10-15 23:14</a>
@@ -825,17 +500,10 @@ revue曲Vol.2怎么还没有偷跑<img src="https://static.saraba1st.com/image/s
 哦哦，知道哪里有就好找，楼太高不清楚以前的了，谢谢
 
 
-
-
-
-
-
 -----
 
 ####  panda  
 ##### 7545#       发表于 2018-10-16 00:53
-
-
 
 
 10月19日发售
@@ -850,30 +518,13 @@ revue曲Vol.2怎么还没有偷跑<img src="https://static.saraba1st.com/image/s
 2018-10-16 00:52 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  大新闻  
 ##### 7546#       发表于 2018-10-16 02:33
 
 
-
-
 光昼到底是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -882,21 +533,14 @@ revue曲Vol.2怎么还没有偷跑<img src="https://static.saraba1st.com/image/s
 ##### 7547#       发表于 2018-10-16 08:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41276650&amp;ptid=1499843" target="_blank">IWS2000 发表于 2018-10-15 21:40</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">歌学患者特有幻视
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 7548#       发表于 2018-10-16 08:37
-
 
 
  本帖最后由 amulelernen 于 2018-10-16 09:45 编辑 
@@ -916,11 +560,6 @@ revue曲Vol.2怎么还没有偷跑<img src="https://static.saraba1st.com/image/s
 2018-10-16 08:36 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/16/083633uwfkiiuirdfdsdkd.jpg" referrerpolicy="no-referrer">
 
 
@@ -929,11 +568,6 @@ revue曲Vol.2怎么还没有偷跑<img src="https://static.saraba1st.com/image/s
 下载附件
 
 2018-10-16 08:36 上传
-
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201810/16/083633gwramffyvqfnxbfs.jpg" referrerpolicy="no-referrer">
@@ -946,11 +580,6 @@ revue曲Vol.2怎么还没有偷跑<img src="https://static.saraba1st.com/image/s
 2018-10-16 08:36 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/16/083634lix53352s8ljgppy.jpg" referrerpolicy="no-referrer">
 
 
@@ -959,11 +588,6 @@ revue曲Vol.2怎么还没有偷跑<img src="https://static.saraba1st.com/image/s
 下载附件
 
 2018-10-16 08:36 上传
-
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201810/16/094454rkybwfbdmnxbsxbn.jpg" referrerpolicy="no-referrer">
@@ -976,11 +600,6 @@ revue曲Vol.2怎么还没有偷跑<img src="https://static.saraba1st.com/image/s
 2018-10-16 09:44 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/16/094453clle92hzyly2f8z3.jpg" referrerpolicy="no-referrer">
 
 
@@ -989,11 +608,6 @@ revue曲Vol.2怎么还没有偷跑<img src="https://static.saraba1st.com/image/s
 下载附件
 
 2018-10-16 09:44 上传
-
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201810/16/094453rxq66ihqqgq46xhe.jpg" referrerpolicy="no-referrer">
@@ -1006,29 +620,13 @@ revue曲Vol.2怎么还没有偷跑<img src="https://static.saraba1st.com/image/s
 2018-10-16 09:44 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  greelmr1981  
 ##### 7549#       发表于 2018-10-16 09:24
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">少歌各色邪教等待你的加入
-
-
-
-
-
 
 
 -----
@@ -1037,16 +635,10 @@ revue曲Vol.2怎么还没有偷跑<img src="https://static.saraba1st.com/image/s
 ##### 7550#       发表于 2018-10-16 09:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41279612&amp;ptid=1499843" target="_blank">greelmr1981 发表于 2018-10-16 09:24</a>
 
 少歌各色邪教等待你的加入</blockquote>
 那么有笨蛋恋香子组吗（无端联想
-
-
-
-
-
 
 
 -----
@@ -1055,15 +647,9 @@ revue曲Vol.2怎么还没有偷跑<img src="https://static.saraba1st.com/image/s
 ##### 7551#       发表于 2018-10-16 09:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41279235&amp;ptid=1499843" target="_blank">amulelernen 发表于 2018-10-16 08:37</a>
 满足你</blockquote>
 问一下最后两张的出处，顺便等下我占个位置也来一波光昼
-
-
-
-
-
 
 
 -----
@@ -1072,16 +658,10 @@ revue曲Vol.2怎么还没有偷跑<img src="https://static.saraba1st.com/image/s
 ##### 7552#       发表于 2018-10-16 09:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41279875&amp;ptid=1499843" target="_blank">unnilennium 发表于 2018-10-16 09:49</a>
 
 问一下最后两张的出处，顺便等下我占个位置也来一波光昼</blockquote>
 不是有水印？不过我是随手转别人的，所以具体来源就不清楚咯
-
-
-
-
-
 
 
 -----
@@ -1090,22 +670,15 @@ revue曲Vol.2怎么还没有偷跑<img src="https://static.saraba1st.com/image/s
 ##### 7553#       发表于 2018-10-16 10:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41279949&amp;ptid=1499843" target="_blank">amulelernen 发表于 2018-10-16 09:56</a>
 不是有水印？不过我是随手转别人的，所以具体来源就不清楚咯</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">原来有水印，谢啦，之前没注意到
-
-
-
-
-
 
 
 -----
 
 ####  inflation  
 ##### 7554#       发表于 2018-10-16 10:05
-
 
 
 <blockquote>大新闻 发表于 2018-10-15 13:33<[img src="static/image/common/back.gif" referrerpolicy="no-referrer">
@@ -1116,16 +689,10 @@ revue曲Vol.2怎么还没有偷跑<img src="https://static.saraba1st.com/image/s
 来自: iPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  安广多惠子  
 ##### 7555#       发表于 2018-10-16 11:05
-
 
 
 <blockquote>inflation 发表于 2018-10-16 10:05
@@ -1136,16 +703,10 @@ revue曲Vol.2怎么还没有偷跑<img src="https://static.saraba1st.com/image/s
 明明是恋哥哥先来的，为什么会这样呢（
 
 
-
-
-
-
-
 -----
 
 ####  iceskey  
 ##### 7556#       发表于 2018-10-16 11:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41279235&amp;ptid=1499843" target="_blank">amulelernen 发表于 2018-10-16 08:37</a>
@@ -1154,27 +715,13 @@ revue曲Vol.2怎么还没有偷跑<img src="https://static.saraba1st.com/image/s
 倒数第三张，迫真少革<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  404670637  
 ##### 7557#       发表于 2018-10-16 15:19
 
 
-
-
-
 剧中曲Vol.2终于来了，不过音质有点感人，能忍就先凑合着听，不能忍就再等等
-
-
-
-
-
 
 
 -----
@@ -1183,14 +730,7 @@ revue曲Vol.2怎么还没有偷跑<img src="https://static.saraba1st.com/image/s
 ##### 7558#       发表于 2018-10-16 16:15
 
 
-
-
 全损音质还行，先过过瘾了，碟已发货
-
-
-
-
-
 
 
 -----
@@ -1199,21 +739,13 @@ revue曲Vol.2怎么还没有偷跑<img src="https://static.saraba1st.com/image/s
 ##### 7559#       发表于 2018-10-16 16:53
 
 
-
-
 这剧中歌是真的爽啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  rayforran  
 ##### 7560#       发表于 2018-10-16 17:19
-
 
 
 [https://pan.baidu.com/s/1uW0eE84x4tkK1JfalGjUwA](https://pan.baidu.com/s/1uW0eE84x4tkK1JfalGjUwA) 召唤码:weln
@@ -1225,27 +757,15 @@ revue曲Vol.2怎么还没有偷跑<img src="https://static.saraba1st.com/image/s
 starlight真好听 AWSL
 
 
-
-
-
-
-
 -----
 
 ####  skmdfong  
 ##### 7561#       发表于 2018-10-16 17:27
 
 
-
-
 剧中歌2太爽了，我听爆，等大佬晚上偷跑OST<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 CD还要一星期才能到<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1254,16 +774,9 @@ CD还要一星期才能到<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 7562#       发表于 2018-10-16 17:27
 
 
-
-
 谢谢大佬！！！！！！我死了！！！
 
 —— 来自 Sony G8142, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
-
-
-
-
-
 
 
 -----
@@ -1272,14 +785,7 @@ CD还要一星期才能到<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 7563#       发表于 2018-10-16 17:49
 
 
-
-
 啊 这一针强效药 我死了<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1288,23 +794,14 @@ CD还要一星期才能到<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 7564#       发表于 2018-10-16 18:00
 
 
-
-
 无言投下吉他兄贵
 https://youtu.be/hxnpT6M3U4M
-
-
-
-
-
 
 
 -----
 
 ####  Lyzers  
 ##### 7565#       发表于 2018-10-16 18:04
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201810/16/180350q0s2ws7t0z270wh7.jpg" referrerpolicy="no-referrer">
@@ -1317,31 +814,13 @@ https://youtu.be/hxnpT6M3U4M
 2018-10-16 18:03 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  faxi  
 ##### 7566#       发表于 2018-10-16 18:27
 
 
-
-
-
 OST也上传了<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1350,16 +829,9 @@ OST也上传了<img src="https://static.saraba1st.com/image/smiley/face2017/063.
 ##### 7567#       发表于 2018-10-16 18:42
 
 
-
-
 65:10开始的无限循环
 
 —— 来自 Sony G8142, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
-
-
-
-
-
 
 
 -----
@@ -1368,14 +840,7 @@ OST也上传了<img src="https://static.saraba1st.com/image/smiley/face2017/063.
 ##### 7568#       发表于 2018-10-16 18:47
 
 
-
-
 啊，双倍的快乐，再死一次<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1384,17 +849,10 @@ OST也上传了<img src="https://static.saraba1st.com/image/smiley/face2017/063.
 ##### 7569#       发表于 2018-10-16 18:50
 
 
-
-
 AWSL<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
 今天听爆
-
-
-
-
-
 
 
 -----
@@ -1403,13 +861,7 @@ AWSL<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referr
 ##### 7570#       发表于 2018-10-16 19:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">蕉哥哥的专属钢琴曲，我要循环一辈子！
-
-
-
-
-
 
 
 -----
@@ -1418,16 +870,9 @@ AWSL<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referr
 ##### 7571#       发表于 2018-10-16 19:36
 
 
-
-
 vol.1 vol.2 ost三连下单了，等发货
 
 先听B站上的解毒
-
-
-
-
-
 
 
 -----
@@ -1436,14 +881,7 @@ vol.1 vol.2 ost三连下单了，等发货
 ##### 7572#       发表于 2018-10-16 19:37
 
 
-
-
 下单了！
-
-
-
-
-
 
 
 -----
@@ -1452,14 +890,7 @@ vol.1 vol.2 ost三连下单了，等发货
 ##### 7573#       发表于 2018-10-16 19:47
 
 
-
-
 ！！！！！！！！！！！！！！！！！！！！！！！！！！awsl<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1468,13 +899,7 @@ vol.1 vol.2 ost三连下单了，等发货
 ##### 7574#       发表于 2018-10-16 19:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">妈的这摘星之歌也唱得太好听了吧，可惜在剧中只是背景音乐啊
-
-
-
-
-
 
 
 -----
@@ -1483,24 +908,14 @@ vol.1 vol.2 ost三连下单了，等发货
 ##### 7575#       发表于 2018-10-16 20:01
 
 
-
-
 CD1才到，就出CD2了，啊啊啊WSL<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
 
 
 CD2之前不想订的，现在听了后连着OST一起下单了。。。
 
 
-
-
-
-
-
-
 QQ截图20181016195938.jpg
 (48.8 KB, 下载次数: 7)
-
-
 
 
 下载附件
@@ -1509,24 +924,7 @@ QQ截图20181016195938.jpg
 2018-10-16 20:00 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/16/200033qutpymsyxpho3uop.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -1535,14 +933,7 @@ QQ截图20181016195938.jpg
 ##### 7576#       发表于 2018-10-16 20:18
 
 
-
-
 有没有人来吹一下藤泽庆昌，从宝石之国的时候开始关注这个人 ​​​​
-
-
-
-
-
 
 
 -----
@@ -1551,23 +942,16 @@ QQ截图20181016195938.jpg
 ##### 7577#       发表于 2018-10-16 20:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41286485&amp;ptid=1499843" target="_blank">Acatv 发表于 2018-10-16 20:18</a>
 
 有没有人来吹一下藤泽庆昌，从宝石之国的时候开始关注这个人 ​​​​</blockquote>
 查了一下，发现这人以前给去南极、梵蒂冈奇迹调查官、有顶天家族和ll配过乐。
 
 
-
-
-
-
-
 -----
 
 ####  wuaistage1  
 ##### 7578#       发表于 2018-10-16 20:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41286485&amp;ptid=1499843" target="_blank">Acatv 发表于 2018-10-16 20:18</a>
@@ -1579,17 +963,10 @@ QQ截图20181016195938.jpg
 OST前半段是藤泽庆昌主场，后半段加藤达也，部分混合。
 
 
-
-
-
-
-
 -----
 
 ####  丹生谷森夏  
 ##### 7579#       发表于 2018-10-16 20:48
-
-
 
 
 看了#2，光昼真成了，真昼被吓的时候选择躲光身后了都<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
@@ -1599,25 +976,13 @@ OST前半段是藤泽庆昌主场，后半段加藤达也，部分混合。
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  kyogngn  
 ##### 7580#       发表于 2018-10-16 20:52
 
 
-
-
 啊我死了 光蕉这首一开场就鸟肌了
-
-
-
-
-
 
 
 -----
@@ -1626,22 +991,13 @@ OST前半段是藤泽庆昌主场，后半段加藤达也，部分混合。
 ##### 7581#       发表于 2018-10-16 21:31
 
 
-
-
 我 再复活 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  yoyokrieg  
 ##### 7582#       发表于 2018-10-16 21:41
-
-
 
 
 再一次
@@ -1653,16 +1009,10 @@ OST前半段是藤泽庆昌主场，后半段加藤达也，部分混合。
 抹布吸
 
 
-
-
-
-
-
 -----
 
 ####  inflation  
 ##### 7583#       发表于 2018-10-16 22:15
-
 
 
 <blockquote>丹生谷森夏 发表于 2018-10-16 07:48<[img src="static/image/common/back.gif" referrerpolicy="no-referrer">
@@ -1673,26 +1023,14 @@ OST前半段是藤泽庆昌主场，后半段加藤达也，部分混合。
 来自: iPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  尚风悦  
 ##### 7584#       发表于 2018-10-16 22:33
 
 
-
-
 蕉哥哥的钢琴曲我听……
 哭了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1701,25 +1039,16 @@ OST前半段是藤泽庆昌主场，后半段加藤达也，部分混合。
 ##### 7585#       发表于 2018-10-16 23:10
 
 
-
-
 RECREATE中间那段八音盒响起来的时候真的鼻子一酸<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
 然后星々の絆这首开场那么狂的吗,看动画的时候完全被台词掩盖住了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  modedd  
 ##### 7586#       发表于 2018-10-16 23:12
-
-
 
 
 问个关于手游的问题，我用我的电脑的126邮箱事先登陆了一次，收到了官方的邮件
@@ -1729,16 +1058,10 @@ RECREATE中间那段八音盒响起来的时候真的鼻子一酸<img src="https
 这算登陆上了吗？到时候就能玩了？很不安<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  YF30  
 ##### 7587#       发表于 2018-10-16 23:12
-
 
 
  本帖最后由 YF30 于 2018-10-17 20:22 编辑 
@@ -1758,17 +1081,10 @@ RECREATE中间那段八音盒响起来的时候真的鼻子一酸<img src="https
 傻逼了，曲名是错的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  wuaistage1  
 ##### 7588#       发表于 2018-10-17 00:23
-
-
 
 
 10月17日 - 劇中曲2及OST發售(已偷跑)
@@ -1785,16 +1101,10 @@ RECREATE中间那段八音盒响起来的时候真的鼻子一酸<img src="https
 最强十月。
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 7589#       发表于 2018-10-17 00:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41286780&amp;ptid=1499843" target="_blank">丹生谷森夏 发表于 2018-10-16 20:48</a>
@@ -1803,25 +1113,13 @@ RECREATE中间那段八音盒响起来的时候真的鼻子一酸<img src="https
 露女士真…真的赢了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kyogngn  
 ##### 7590#       发表于 2018-10-17 00:47
 
 
-
-
 无损出了
-
-
-
-
-
 
 
 -----
@@ -1830,23 +1128,16 @@ RECREATE中间那段八音盒响起来的时候真的鼻子一酸<img src="https
 ##### 7591#       发表于 2018-10-17 00:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41288747&amp;ptid=1499843" target="_blank">amulelernen 发表于 2018-10-17 00:25</a>
 
 露女士真…真的赢了吗？</blockquote>
 不如说最后是变成了"我喜欢三个人(四个人)吧"
 
 
-
-
-
-
-
 -----
 
 ####  inflation  
 ##### 7592#       发表于 2018-10-17 01:04
-
 
 
 <blockquote>karloku 发表于 2018-10-16 11:52<[img src="static/image/common/back.gif" referrerpolicy="no-referrer">
@@ -1857,16 +1148,10 @@ RECREATE中间那段八音盒响起来的时候真的鼻子一酸<img src="https
 来自: iPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 7593#       发表于 2018-10-17 01:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41288929&amp;ptid=1499843" target="_blank">karloku 发表于 2018-10-17 00:52</a>
@@ -1874,16 +1159,10 @@ RECREATE中间那段八音盒响起来的时候真的鼻子一酸<img src="https
 等等，四个人是啥情况？
 
 
-
-
-
-
-
 -----
 
 ####  方片杰克  
 ##### 7594#       发表于 2018-10-17 02:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41288112&amp;ptid=1499843" target="_blank">Totokei 发表于 2018-10-16 23:10</a>
@@ -1895,32 +1174,19 @@ RECREATE中间那段八音盒响起来的时候真的鼻子一酸
 别提了，动画版这歌就听清楚开头两句，9话音监出来陪9话演出挨打
 
 
-
-
-
-
-
 -----
 
 ####  wuaistage1  
 ##### 7595#       发表于 2018-10-17 02:31
 
 
-
-
 现在想想真是草了，第九集这revue做得洗都不想去洗，太拖后腿太碍眼了。
-
-
-
-
-
 
 
 -----
 
 ####  greelmr1981  
 ##### 7596#       发表于 2018-10-17 07:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41288979&amp;ptid=1499843" target="_blank">inflation 发表于 2018-10-17 01:04</a>
@@ -1932,26 +1198,13 @@ RECREATE中间那段八音盒响起来的时候真的鼻子一酸
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">救救露女士，1DLK快装不下后宫了，请往这个账号打钱
 
 
-
-
-
-
-
 -----
 
 ####  greelmr1981  
 ##### 7597#       发表于 2018-10-17 08:16
 
 
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">法国结婚登记办事处在哪？我去替你们登记去
-
-
-
-
-
 
 
 -----
@@ -1960,14 +1213,7 @@ RECREATE中间那段八音盒响起来的时候真的鼻子一酸
 ##### 7598#       发表于 2018-10-17 08:48
 
 
-
-
 天堂感觉已经半步踏入专业舞台人员的程度了，其他人感觉都还只是单纯的舞台烧酒
-
-
-
-
-
 
 
 -----
@@ -1976,14 +1222,7 @@ RECREATE中间那段八音盒响起来的时候真的鼻子一酸
 ##### 7599#       发表于 2018-10-17 09:08
 
 
-
-
 果然是轮舞·轮舞·轮舞这首…<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1992,22 +1231,13 @@ RECREATE中间那段八音盒响起来的时候真的鼻子一酸
 ##### 7600#       发表于 2018-10-17 09:30
 
 
-
-
 不得不说动画里有部分台词盖过歌曲实在是在拖后腿，还是得听cd才行，各种细节，像re：create这么多层次的音乐实在无法抵抗，哭惹
-
-
-
-
-
 
 
 -----
 
 ####  rayforran  
 ##### 7601#       发表于 2018-10-17 09:53
-
-
 
 
 nyaa上有少女歌剧系列的音乐合辑打包下载了，320k，求无损版本
@@ -2020,17 +1250,10 @@ nyaa上有少女歌剧系列的音乐合辑打包下载了，320k，求无损版
 magnet:?xt=urn:btih:3cc2148b5c0444db38dbaa2c567d908187eccf40&amp;dn=%5B2017%7E2018%5D%20%E5%B0%91%E5%A5%B3%E2%98%86%E6%AD%8C%E5%8A%87%20%E3%83%AC%E3%83%B4%E3%83%A5%E3%83%BC%E3%82%B9%E3%82%BF%E3%82%A1%E3%83%A9%E3%82%A4%E3%83%88%20Music%20Collection%20%5BMP3%20320K%5D&amp;tr=http%3A%2F%2Fnyaa.tracker.wf%3A7777%2Fannounce&amp;tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&amp;tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&amp;tr=udp%3A%2F%2Ftracker.coppersurfer.tk%3A6969%2Fannounce&amp;tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce
 
 
-
-
-
-
-
 -----
 
 ####  inflation  
 ##### 7602#       发表于 2018-10-17 10:12
-
-
 
 
 [quote]rayforran 发表于 2018-10-16 20:53<[img src="static/image/common/back.gif" referrerpolicy="no-referrer">
@@ -2042,33 +1265,19 @@ tsdm 除了特典都有了，有些甚至还是hi-res<img src="https://static.sa
 来自: iPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  fujissw  
 ##### 7603#       发表于 2018-10-17 11:02
 
 
-
-
 台词盖过歌的问题第一集就有<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  摩天城  
 ##### 7604#       发表于 2018-10-17 13:27
-
-
 
 
 http://www.bilibili.com/video/av33989663
@@ -2078,25 +1287,13 @@ http://www.bilibili.com/video/av33989663
 应该是6月23号的演唱会
 
 
-
-
-
-
-
 -----
 
 ####  七堂伽蓝  
 ##### 7605#       发表于 2018-10-17 14:18
 
 
-
-
 蕉这魔王曲真狂气，第九集音监出来谢罪
-
-
-
-
-
 
 
 -----
@@ -2105,14 +1302,7 @@ http://www.bilibili.com/video/av33989663
 ##### 7606#       发表于 2018-10-17 14:18
 
 
-
-
 看你们说露女士届到了，我还在想恋哥哥这么专一官方搞了什么骚操作居然能成的。然后去搜了剧透发现只是届到了光，从舞台剧恋哥哥不可原谅三连来看露女士真ntr走光会被恋哥哥打死的吧
-
-
-
-
-
 
 
 -----
@@ -2121,16 +1311,10 @@ http://www.bilibili.com/video/av33989663
 ##### 7607#       发表于 2018-10-17 15:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41293712&amp;ptid=1499843" target="_blank">tagerto 发表于 2018-10-17 14:18</a>
 
 看你们说露女士届到了，我还在想恋哥哥这么专一官方搞了什么骚操作居然能成的。然后去搜了剧透发现只是届到 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">来踢馆的学校不是还有个露女士的天降青梅嘛
-
-
-
-
-
 
 
 -----
@@ -2139,15 +1323,9 @@ http://www.bilibili.com/video/av33989663
 ##### 7608#       发表于 2018-10-17 15:40
 
 
-
 <blockquote>CJkingmaker 发表于 2018-10-17 15:34
 来踢馆的学校不是还有个露女士的天降青梅嘛</blockquote>
 但是这跟露女士届到恋哥哥有什么关系吗，不过露女士反正已经介怀了，是时候投入和天降青梅的新感情，成为人生赢家了。
-
-
-
-
-
 
 
 -----
@@ -2156,15 +1334,9 @@ http://www.bilibili.com/video/av33989663
 ##### 7609#       发表于 2018-10-17 16:59
 
 
-
 <blockquote>tagerto 发表于 2018-10-17 14:18
 看你们说露女士届到了，我还在想恋哥哥这么专一官方搞了什么骚操作居然能成的。然后去搜了剧透发现只是届到 ...</blockquote>
 阿光可以搞地下恋，白天跟恋哥哥イチャイチャ，晚上等恋哥哥睡了摸上真昼的床
-
-
-
-
-
 
 
 -----
@@ -2173,16 +1345,9 @@ http://www.bilibili.com/video/av33989663
 ##### 7610#       发表于 2018-10-17 18:23
 
 
-
-
 今天是女性限定公演，好想变成女粉啊
 
 —— 来自 samsung SM-G965W, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
-
-
-
-
-
 
 
 -----
@@ -2191,15 +1356,9 @@ http://www.bilibili.com/video/av33989663
 ##### 7611#       发表于 2018-10-18 00:00
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">想买碟了
 
 想听fry me to the star的完整版
-
-
-
-
-
 
 
 -----
@@ -2208,23 +1367,16 @@ http://www.bilibili.com/video/av33989663
 ##### 7612#       发表于 2018-10-18 00:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41288989&amp;ptid=1499843" target="_blank">amulelernen 发表于 2018-10-17 01:05</a>
 
 等等，四个人是啥情况？</blockquote>
 光 昼 凉(幼驯染)的夏空大三角 加上一个忠犬恋哥哥在边上(
 
 
-
-
-
-
-
 -----
 
 ####  wuaistage1  
 ##### 7613#       发表于 2018-10-18 01:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41289941&amp;ptid=1499843" target="_blank">greelmr1981 发表于 2018-10-17 08:16</a>
@@ -2239,26 +1391,14 @@ https://www.bilibili.com/video/av33925273/?spm_id_from=333.334.chief_recommend.1
 可能是因为这首配乐浪漫到没边。
 
 
-
-
-
-
-
 -----
 
 ####  IWS2000  
 ##### 7614#       发表于 2018-10-18 20:28
 
 
-
-
 “喜欢！？还是！？二人交缠的复杂情感……”
 <img src="https://wx4.sinaimg.cn/mw690/644d93bbgy1fwceqjakdaj22c03407wj.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2267,16 +1407,10 @@ https://www.bilibili.com/video/av33925273/?spm_id_from=333.334.chief_recommend.1
 ##### 7615#       发表于 2018-10-19 01:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41286653&amp;ptid=1499843" target="_blank">龙之峰 发表于 2018-10-16 20:35</a>
 
 查了一下，发现这人以前给去南极、梵蒂冈奇迹调查官、有顶天家族和ll配过乐。 ...</blockquote>
 我也查了下,发现就是当年波女春男的迷之配乐马甲Franz Maxwell I.里的F(ranz)...至于当年出了多少力就不清楚了
-
-
-
-
-
 
 
 -----
@@ -2285,17 +1419,10 @@ https://www.bilibili.com/video/av33925273/?spm_id_from=333.334.chief_recommend.1
 ##### 7616#       发表于 2018-10-19 17:35
 
 
-
-
 安妮他妈上的少歌Revue曲分析文章：
 [https://zhuanlan.zhihu.com/p/47154595](https://zhuanlan.zhihu.com/p/47154595)
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -2304,17 +1431,10 @@ https://www.bilibili.com/video/av33925273/?spm_id_from=333.334.chief_recommend.1
 ##### 7617#       发表于 2018-10-19 20:27
 
 
-
-
 按照麻帆的脑洞，感觉舞台剧2真矢的行为也讲的通了。天堂小时候起开始注意克洛，憧憬着克洛走向舞台。谁知道好不容易在圣翔相遇了，自己的实力却已经超过自己所憧憬的对象了，而且克洛似乎对于比不过自己这事暂时认命。
 天堂的心理估计是:你快加油，你可是我憧憬到现在的人，你的实力还没有全部发挥出来！来打败我，来挑战我！！！我知道的，我的克洛蒂娜，你快点发挥出你真正的力量啊！！！
 所以舞台剧2，真矢才会做出为了引出克洛真正实力而假装输了叛校的事情。。。因为她从小时候，就憧憬着关注着克洛。。。
 按这个脑洞走的话，天堂实在，太闷骚太深情了吧。。。明明从小就憧憬着，入学考试被克洛邀请一起拉伸，内心一定也是dokidoki不行，所以圣翔祭结束还美滋滋伸手想和克洛交朋友，所以克洛问她记不记得入学考试的事情的时候，她其实清清楚楚记得。对于克洛的每一件事，她不光记得，甚至可能每一天，每一次被克洛针锋相对以后，都会反复回味，反复思考哪里出了差错，让她们没有能成为朋友，所以才会一个人在房间反复看当时圣翔祭的照片，留着被克洛碰到过的发夹。天呐，这个人太毒了<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2323,20 +1443,13 @@ https://www.bilibili.com/video/av33925273/?spm_id_from=333.334.chief_recommend.1
 ##### 7618#       发表于 2018-10-19 20:43
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">饭爱抖露这么恐怖的吗，什么时候能告诉我10话也是装输，为了撩偶像
-
-
-
-
-
 
 
 -----
 
 ####  justinebelgium  
 ##### 7619#       发表于 2018-10-19 20:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41299579&amp;ptid=1499843" target="_blank">绝望勇者的反击 发表于 2018-10-18 00:00</a>
@@ -2347,16 +1460,10 @@ https://www.bilibili.com/video/av33925273/?spm_id_from=333.334.chief_recommend.1
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">fry什么，aiai：要折一下吗
 
 
-
-
-
-
-
 -----
 
 ####  greelmr1981  
 ##### 7620#       发表于 2018-10-19 21:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41317201&amp;ptid=1499843" target="_blank">IWS2000 发表于 2018-10-19 20:27</a>
@@ -2365,16 +1472,10 @@ https://www.bilibili.com/video/av33925273/?spm_id_from=333.334.chief_recommend.1
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">超级stalker真矢：“如果不是读了圣翔，我大概现在是犯罪者吧”
 
 
-
-
-
-
-
 -----
 
 ####  ianny544  
 ##### 7621#       发表于 2018-10-19 22:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41317201&amp;ptid=1499843" target="_blank">IWS2000 发表于 2018-10-19 20:27</a>
@@ -2384,32 +1485,19 @@ https://www.bilibili.com/video/av33925273/?spm_id_from=333.334.chief_recommend.1
 —— 来自 samsung SM-G965W, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  树皮83  
 ##### 7622#       发表于 2018-10-19 22:40
 
 
-
-
 呜呜呜岩田阳葵真可爱，周二看完2nd舞台剧之后天天期待着她推特发照片（说起来她还是我学姐呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  inflation  
 ##### 7623#       发表于 2018-10-19 22:47
-
 
 
 <blockquote>树皮83 发表于 2018-10-19 09:40<[img src="static/image/common/back.gif" referrerpolicy="no-referrer">
@@ -2420,16 +1508,10 @@ https://www.bilibili.com/video/av33925273/?spm_id_from=333.334.chief_recommend.1
 来自: iPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  树皮83  
 ##### 7624#       发表于 2018-10-19 22:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41318203&amp;ptid=1499843" target="_blank">inflation 发表于 2018-10-19 22:47</a>
@@ -2441,25 +1523,13 @@ https://www.bilibili.com/video/av33925273/?spm_id_from=333.334.chief_recommend.1
 不过这么多人我没见过她就是了。。我总感觉她们这种俳優应该是比较远的sfc校区的。。
 
 
-
-
-
-
-
 -----
 
 ####  czs13  
 ##### 7625#       发表于 2018-10-19 23:52
 
 
-
-
 然而手游是渣渣<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2468,16 +1538,10 @@ https://www.bilibili.com/video/av33925273/?spm_id_from=333.334.chief_recommend.1
 ##### 7626#       发表于 2018-10-20 00:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41318691&amp;ptid=1499843" target="_blank">czs13 发表于 2018-10-19 23:52:17</a>
 然而手游是渣渣</blockquote>此话怎讲<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -2486,16 +1550,9 @@ https://www.bilibili.com/video/av33925273/?spm_id_from=333.334.chief_recommend.1
 ##### 7627#       发表于 2018-10-20 00:13
 
 
-
-
 渣不渣明天就知道了
 
 PVE感觉就那样，但天梯和剧情说不定有点意思
-
-
-
-
-
 
 
 -----
@@ -2504,13 +1561,7 @@ PVE感觉就那样，但天梯和剧情说不定有点意思
 ##### 7628#       发表于 2018-10-20 00:13
 
 
-
 <img src="https://wx2.sinaimg.cn/mw690/a611f452gy1fwdz9gswdfj21kw2tbb2g.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2519,21 +1570,13 @@ PVE感觉就那样，但天梯和剧情说不定有点意思
 ##### 7629#       发表于 2018-10-20 00:46
 
 
-
-
 克洛要靠天堂装输打假赛激励才能认真？天堂继蕉之后又被克洛放水？再加上万年咸鱼恋哥哥，这个首席当得这么惨的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  karloku  
 ##### 7630#       发表于 2018-10-20 01:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41319104&amp;ptid=1499843" target="_blank">NODY 发表于 2018-10-20 00:46</a>
@@ -2544,16 +1587,10 @@ PVE感觉就那样，但天梯和剧情说不定有点意思
 (不过舞台剧篇幅太短了, 这第二轮没怎么打起来大家就一起 PVE Starlight 了
 
 
-
-
-
-
-
 -----
 
 ####  NODY  
 ##### 7631#       发表于 2018-10-20 10:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41319376&amp;ptid=1499843" target="_blank">karloku 发表于 2018-10-20 01:42</a>
@@ -2565,16 +1602,10 @@ PVE感觉就那样，但天梯和剧情说不定有点意思
 不过在对外校的战斗里放水故意输居然没有被开除首席，圣翔也是挺开明的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  bbjajdd  
 ##### 7632#       发表于 2018-10-20 11:01
-
 
 
 <blockquote>NODY 发表于 2018-10-20 00:46
@@ -2584,32 +1615,19 @@ PVE感觉就那样，但天梯和剧情说不定有点意思
 所以maya就是想创造这种情况
 
 
-
-
-
-
-
 -----
 
 ####  冰原狼  
 ##### 7633#       发表于 2018-10-20 11:19
 
 
-
-
 所以maya本质就是：来呀克洛子，正面上我啊<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  czs13  
 ##### 7634#       发表于 2018-10-20 12:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41318786&amp;ptid=1499843" target="_blank">modedd 发表于 2018-10-20 00:04</a>
@@ -2620,37 +1638,22 @@ PVE感觉就那样，但天梯和剧情说不定有点意思
   -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
 
 
-
-
-
-
-
-
 -----
 
 ####  ziyer  
 ##### 7635#       发表于 2018-10-20 12:58
 
 
-
-
 手游感覺和fgo差不多
 
 
-
 不過，同樣是廚力游戲的話，我爲什麽不玩少歌而是玩fgo呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  karloku  
 ##### 7636#       发表于 2018-10-20 13:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41320805&amp;ptid=1499843" target="_blank">NODY 发表于 2018-10-20 10:04</a>
@@ -2662,16 +1665,10 @@ PVE感觉就那样，但天梯和剧情说不定有点意思
 不过看天堂还有空玩这手, 感觉心态崩也是顺势配合大家表现一下而已. maya同学满脑子估计就只有想和克洛打, 想怎么才能让克洛提回到自己小时候追的天才.
 
 
-
-
-
-
-
 -----
 
 ####  jstcsjx  
 ##### 7637#       发表于 2018-10-20 15:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41319104&amp;ptid=1499843" target="_blank">NODY 发表于 2018-10-20 00:46</a>
@@ -2680,17 +1677,10 @@ PVE感觉就那样，但天梯和剧情说不定有点意思
 动画maya可是九人中唯一一个踏入职业舞台人员半只脚的人，其他人充其量还只是舞台烧酒的程度。动画九个人中思想上maya最成熟，这一点不需要revue来体现。动画天堂没有被人嘴炮过，没有内心崩溃过。首席当之无愧。
 
 
-
-
-
-
-
 -----
 
 ####  zhl1989666  
 ##### 7638#       发表于 2018-10-20 16:03
-
-
 
 
 不是每次轮回都被问抹布洗？
@@ -2699,16 +1689,10 @@ PVE感觉就那样，但天梯和剧情说不定有点意思
 说起来每次回到一年前都要maya把人拉出来批判一下，蕉蕉脾气真好！
 
 
-
-
-
-
-
 -----
 
 ####  NODY  
 ##### 7639#       发表于 2018-10-20 17:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41323619&amp;ptid=1499843" target="_blank">jstcsjx 发表于 2018-10-20 15:44</a>
@@ -2717,16 +1701,10 @@ PVE感觉就那样，但天梯和剧情说不定有点意思
 动画是动画，就就目前的情况看来，舞台剧里天堂第一部被班长说破真心恼羞成怒，第二部被柳小春看穿恼羞成怒，加上重要的校际对决里为了克洛打假赛投敌，怎么看都只是个热血上头的战斗狂罢辽
 
 
-
-
-
-
-
 -----
 
 ####  jstcsjx  
 ##### 7640#       发表于 2018-10-20 17:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41323784&amp;ptid=1499843" target="_blank">zhl1989666 发表于 2018-10-20 16:03</a>
@@ -2735,16 +1713,10 @@ PVE感觉就那样，但天梯和剧情说不定有点意思
 还不如说蕉轮回这么多次还没变通，这是有多死脑筋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  fujissw  
 ##### 7641#       发表于 2018-10-20 17:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41323784&amp;ptid=1499843" target="_blank">zhl1989666 发表于 2018-10-20 16:03:30</a>
@@ -2756,25 +1728,13 @@ PVE感觉就那样，但天梯和剧情说不定有点意思
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  绝望勇者的反击  
 ##### 7642#       发表于 2018-10-20 18:32
 
 
-
-
 话说蕉哥哥那个手机壳莫名高时髦，有大佬知道该怎么定制吗
-
-
-
-
-
 
 
 -----
@@ -2783,14 +1743,7 @@ PVE感觉就那样，但天梯和剧情说不定有点意思
 ##### 7643#       发表于 2018-10-20 18:38
 
 
-
-
 个人心目中动画九个人的心理年龄高低：光&lt;恋哥哥&lt;香子&lt;双叶&lt;露女士&lt;蕉&lt;纯那&lt;克洛&lt;maya
-
-
-
-
-
 
 
 -----
@@ -2799,14 +1752,7 @@ PVE感觉就那样，但天梯和剧情说不定有点意思
 ##### 7644#       发表于 2018-10-20 18:44
 
 
-
-
 手游明天几点开服啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2815,16 +1761,10 @@ PVE感觉就那样，但天梯和剧情说不定有点意思
 ##### 7645#       发表于 2018-10-20 22:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41325211&amp;ptid=1499843" target="_blank">堆雪若叶 发表于 2018-10-20 18:44</a>
 
 手游明天几点开服啊</blockquote>
 官方说是千秋乐公演后，晚上七八点吧大概
-
-
-
-
-
 
 
 -----
@@ -2833,16 +1773,9 @@ PVE感觉就那样，但天梯和剧情说不定有点意思
 ##### 7646#       发表于 2018-10-21 02:48
 
 
-
-
 萌p出演的放课后战姬也很有趣啊，在里面演的也是本格姬佬<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 —— 来自 samsung SM-G965W, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
-
-
-
-
-
 
 
 -----
@@ -2851,22 +1784,14 @@ PVE感觉就那样，但天梯和剧情说不定有点意思
 ##### 7647#       发表于 2018-10-21 06:46
 
 
-
-
 新的扭曲已经出现<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 发自我的iPhone via [Saralin 2.1.1](https://itunes.apple.com/cn/app/saralin/id1086444812)
 来自: iPhone客户端
 
 
-
-
-
-
 image.jpg
 (147.67 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -2875,24 +1800,7 @@ image.jpg
 2018-10-21 06:46 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/20/174603wijz4czy5b51bhj1.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -2901,16 +1809,10 @@ image.jpg
 ##### 7648#       发表于 2018-10-21 16:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41325138&amp;ptid=1499843" target="_blank">jstcsjx 发表于 2018-10-20 18:38</a>
 
 个人心目中动画九个人的心理年龄高低：光</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">异议，我认为香子应该在最后面
-
-
-
-
-
 
 
 -----
@@ -2919,13 +1821,7 @@ image.jpg
 ##### 7649#       发表于 2018-10-21 16:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">游戏已经可以安装了，等公演结束就开服
-
-
-
-
-
 
 
 -----
@@ -2934,14 +1830,7 @@ image.jpg
 ##### 7650#       发表于 2018-10-21 16:22
 
 
-
-
 请教手游需不需要掛日本VPN?
-
-
-
-
-
 
 
 -----
@@ -2950,16 +1839,10 @@ image.jpg
 ##### 7651#       发表于 2018-10-21 16:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41333838&amp;ptid=1499843" target="_blank">Lyzers 发表于 2018-10-21 16:11</a>
 
 异议，我认为香子应该在最后面</blockquote>
 香子？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2968,16 +1851,10 @@ image.jpg
 ##### 7652#       发表于 2018-10-21 18:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41334222&amp;ptid=1499843" target="_blank">jstcsjx 发表于 2018-10-21 16:54</a>
 
 香子？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">九人组里最菜（revue和现实表演）又最摸的熊孩子。光恋虽然有谐戏，但多数时候还是该干嘛干嘛的，还有闪耀和异地恋的debuff，纠正前的香子天天被男朋友宠着却连路人都打不过，论心态着实九人组里的弟弟
-
-
-
-
-
 
 
 -----
@@ -2986,21 +1863,13 @@ image.jpg
 ##### 7653#       发表于 2018-10-21 20:31
 
 
-
-
 ios无能狂怒<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  ziyer  
 ##### 7654#       发表于 2018-10-21 20:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41336494&amp;ptid=1499843" target="_blank">YESIARE 发表于 2018-10-21 20:31</a>
@@ -3013,33 +1882,19 @@ ios无能狂怒问下已经玩上的觉得这游戏是不是粪game？</blockquo
 唯一可能是粪点的应该就是礼装和角色混池，其他的还算合理范围内
 
 
-
-
-
-
-
 -----
 
 ####  小松莉奈  
 ##### 7655#       发表于 2018-10-21 21:03
 
 
-
-
 为什么IOS还要一周<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">想抽九九组，听说锁IP，是只有第一次登陆要日本IP还是每次登陆都要挂VPN？
-
-
-
-
-
 
 
 -----
 
 ####  ラーメン子  
 ##### 7656#       发表于 2018-10-21 21:03
-
-
 
 
 去看了舞台2千秋的live viewing，
@@ -3052,17 +1907,10 @@ ios无能狂怒问下已经玩上的觉得这游戏是不是粪game？</blockquo
 明年的2nd也能有lv就好了...人老了比较喜欢坐着专心听
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 7657#       发表于 2018-10-21 21:11
-
-
 
 
 佐伯伊织的ゆゆ子贺图
@@ -3077,17 +1925,7 @@ ios无能狂怒问下已经玩上的觉得这游戏是不是粪game？</blockquo
 2018-10-21 21:10 上传
 
 
-
-
-
-
-
 IOS势好难受
-
-
-
-
-
 
 
 -----
@@ -3096,14 +1934,7 @@ IOS势好难受
 ##### 7658#       发表于 2018-10-21 21:45
 
 
-
-
 手游开服了，请问各位舞台创造课怎么样的号才能开盘啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3112,21 +1943,13 @@ IOS势好难受
 ##### 7659#       发表于 2018-10-21 21:56
 
 
-
-
 换了三个梯子，数据下好了但是还是登不进去，有没有合适的梯子指路啊求私信<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  KuonjiClara  
 ##### 7660#       发表于 2018-10-21 22:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41337308&amp;ptid=1499843" target="_blank">Ginnody 发表于 2018-10-21 21:56</a>
@@ -3136,16 +1959,10 @@ IOS势好难受
 —— 来自 samsung SM-N9500, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  Ginnody  
 ##### 7661#       发表于 2018-10-21 22:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41337482&amp;ptid=1499843" target="_blank">KuonjiClara 发表于 2018-10-21 22:15</a>
@@ -3155,16 +1972,10 @@ IOS势好难受
 已经搞定了就是每次过场载十年<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  karloku  
 ##### 7662#       发表于 2018-10-21 22:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41336794&amp;ptid=1499843" target="_blank">ラーメン子 发表于 2018-10-21 21:03</a>
@@ -3176,27 +1987,15 @@ IOS势好难受
 2nd记得是圣诞节前不久在横滨
 
 
-
-
-
-
-
 -----
 
 ####  zhDesire  
 ##### 7663#       发表于 2018-10-21 22:47
 
 
-
-
 手游的话挂日本节点vpn，系统语言设置日语能顺畅玩
 
 不过质量一般 算不上好玩
-
-
-
-
-
 
 
 -----
@@ -3205,21 +2004,13 @@ IOS势好难受
 ##### 7664#       发表于 2018-10-21 23:29
 
 
-
-
 四星华恋的必杀是披风钻头踢... 还真是夜骑...
-
-
-
-
-
 
 
 -----
 
 ####  物流大亨常凯申  
 ##### 7665#       发表于 2018-10-22 00:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41337801&amp;ptid=1499843" target="_blank">zhDesire 发表于 2018-10-21 22:47</a>
@@ -3237,25 +2028,13 @@ IOS势好难受
 还是有点发展的
 
 
-
-
-
-
-
 -----
 
 ####  杂灰  
 ##### 7666#       发表于 2018-10-22 00:52
 
 
-
-
 （4星的）闪耀始终无法触及，只能无限的再演（刷初始）<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3264,21 +2043,13 @@ IOS势好难受
 ##### 7667#       发表于 2018-10-22 08:48
 
 
-
-
 maya好像是有阴阳眼吧，能看到别人看不到的东西
-
-
-
-
-
 
 
 -----
 
 ####  ziyer  
 ##### 7668#       发表于 2018-10-22 08:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41340098&amp;ptid=1499843" target="_blank">jstcsjx 发表于 2018-10-22 08:48</a>
@@ -3288,32 +2059,19 @@ maya好像是有阴阳眼吧，能看到别人看不到的东西</blockquote>
 —— 来自 HUAWEI KNT-AL20, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  邬德强  
 ##### 7669#       发表于 2018-10-22 08:56
 
 
-
-
 淘宝嗨店订了剧中歌1、2+飞我上星，总共590，舒服了
-
-
-
-
-
 
 
 -----
 
 ####  你的全家  
 ##### 7670#       发表于 2018-10-22 09:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41340098&amp;ptid=1499843" target="_blank">jstcsjx 发表于 2018-10-22 08:48</a>
@@ -3323,16 +2081,10 @@ maya好像是有阴阳眼吧，能看到别人看不到的东西</blockquote>
 —— 来自 vivo NEX S, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  ラーメン子  
 ##### 7671#       发表于 2018-10-22 09:34
-
 
 
 <blockquote>karloku 发表于 2018-10-21 22:26
@@ -3342,33 +2094,20 @@ maya好像是有阴阳眼吧，能看到别人看不到的东西</blockquote>
 记得一个12/22一个1/x9之类的数字（
 
 
-
-
-
-
-
 -----
 
 ####  moondigi  
 ##### 7672#       发表于 2018-10-22 09:36
 
 
-
-
 库洛&amp;天堂
 <img src="https://i.loli.net/2018/10/22/5bcd298f68459.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  karloku  
 ##### 7673#       发表于 2018-10-22 09:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41340534&amp;ptid=1499843" target="_blank">ラーメン子 发表于 2018-10-22 09:34</a>
@@ -3378,16 +2117,10 @@ maya好像是有阴阳眼吧，能看到别人看不到的东西</blockquote>
 1/9 5th
 
 
-
-
-
-
-
 -----
 
 ####  jstcsjx  
 ##### 7674#       发表于 2018-10-22 11:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41340242&amp;ptid=1499843" target="_blank">你的全家 发表于 2018-10-22 09:03</a>
@@ -3399,26 +2132,15 @@ maya好像是有阴阳眼吧，能看到别人看不到的东西</blockquote>
 前传漫画里她能看到别人看不到的鬼魂一样的东西
 
 
-
-
-
-
-
 -----
 
 ####  YESIARE  
 ##### 7675#       发表于 2018-10-22 11:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41340561&amp;ptid=1499843" target="_blank">moondigi 发表于 2018-10-22 09:36</a>
 库洛&amp;天堂</blockquote>
 听话！ 让我看看！
-
-
-
-
-
 
 
 -----
@@ -3427,23 +2149,16 @@ maya好像是有阴阳眼吧，能看到别人看不到的东西</blockquote>
 ##### 7676#       发表于 2018-10-22 11:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41340561&amp;ptid=1499843" target="_blank">moondigi 发表于 2018-10-22 09:36</a>
 
 库洛&amp;天堂</blockquote>
 maya姐，不要啊
 
 
-
-
-
-
-
 -----
 
 ####  inflation  
 ##### 7677#       发表于 2018-10-22 11:24
-
 
 
  本帖最后由 inflation 于 2018-10-21 22:31 编辑 
@@ -3458,17 +2173,10 @@ maya姐，不要啊
 来自: iPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  ColinWine  
 ##### 7678#       发表于 2018-10-22 12:24
-
-
 
 
 放弃刷初始了，梯子翻出去载入太慢了。。刷了两次初始只出了一个三星，不过好像可以升星，继续肝
@@ -3477,16 +2185,10 @@ maya姐，不要啊
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  jstcsjx  
 ##### 7679#       发表于 2018-10-22 13:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41340121&amp;ptid=1499843" target="_blank">ziyer 发表于 2018-10-22 08:51</a>
@@ -3498,16 +2200,10 @@ maya姐，不要啊
 官方没明说相关内容，不过前传漫画里貌似显示她能看到别人看不到的鬼魂一样的东西。
 
 
-
-
-
-
-
 -----
 
 ####  Toby_dak  
 ##### 7680#       发表于 2018-10-22 20:16
-
 
 
 <img src="https://wx1.sinaimg.cn/large/82f2a336gy1fwh98rev02j22bc334u0z.jpg" referrerpolicy="no-referrer">
@@ -3517,16 +2213,10 @@ maya姐，不要啊
 上星期回国，刚刚才跑去Animate拿CD。购入特典居然都是露崎女士<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">联动特典是6月23日公演DVD？ ​​​​ 
 
 
-
-
-
-
-
 -----
 
 ####  Toby_dak  
 ##### 7681#       发表于 2018-10-22 20:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41336559&amp;ptid=1499843" target="_blank">ziyer 发表于 2018-10-21 21:41</a>
@@ -3537,16 +2227,10 @@ maya姐，不要啊
 看到才能开花我就喷了。在公主连接已经拼了不少尸块，现在这手游又要拼尸块<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  unnilennium  
 ##### 7682#       发表于 2018-10-22 20:20
-
 
 
  本帖最后由 unnilennium 于 2018-10-22 20:27 编辑 
@@ -3560,16 +2244,10 @@ maya姐，不要啊
 顺便明年的五单的店特也出了一部分，A店仍旧是露女士，选图是结尾的100期圣翔祭
 
 
-
-
-
-
-
 -----
 
 ####  renkan119  
 ##### 7683#       发表于 2018-10-22 20:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41347184&amp;ptid=1499843" target="_blank">Toby_dak 发表于 2018-10-22 20:18</a>
@@ -3578,16 +2256,10 @@ maya姐，不要啊
 升星感觉还行 有专门的素材本 一天能刷四五个 刷个三四天就能升一个五星了
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 7684#       发表于 2018-10-22 20:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41347313&amp;ptid=1499843" target="_blank">renkan119 发表于 2018-10-22 20:32</a>
@@ -3596,16 +2268,10 @@ maya姐，不要啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那不能刷吧，一个关卡的奖励只能拿一次的样子
 
 
-
-
-
-
-
 -----
 
 ####  renkan119  
 ##### 7685#       发表于 2018-10-22 20:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41347327&amp;ptid=1499843" target="_blank">Goisdust 发表于 2018-10-22 20:34</a>
@@ -3614,25 +2280,13 @@ maya姐，不要啊
 关卡有掉落的啊 几率还挺大的
 
 
-
-
-
-
-
 -----
 
 ####  404670637  
 ##### 7686#       发表于 2018-10-22 20:47
 
 
-
-
 说起来BD里的OVA大概什么时候会出来
-
-
-
-
-
 
 
 -----
@@ -3641,16 +2295,10 @@ maya姐，不要啊
 ##### 7687#       发表于 2018-10-22 20:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41347327&amp;ptid=1499843" target="_blank">Goisdust 发表于 2018-10-22 20:34</a>
 
 那不能刷吧，一个关卡的奖励只能拿一次的样子</blockquote>
 听说初级关卡就有50%左右的掉率，你刷个一星期没有5星也能升一两个4星了
-
-
-
-
-
 
 
 -----
@@ -3659,15 +2307,9 @@ maya姐，不要啊
 ##### 7688#       发表于 2018-10-22 20:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41347437&amp;ptid=1499843" target="_blank">404670637 发表于 2018-10-22 20:47</a>
 说起来BD里的OVA大概什么时候会出来</blockquote>
 那就看字幕组的厨力有多深了
-
-
-
-
-
 
 
 -----
@@ -3676,24 +2318,16 @@ maya姐，不要啊
 ##### 7689#       发表于 2018-10-22 21:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41347437&amp;ptid=1499843" target="_blank">404670637 发表于 2018-10-22 20:47</a>
 
 说起来BD里的OVA大概什么时候会出来</blockquote>
 最理想的情况是25号B站会放一集
 
 
-
-
-
-
-
 -----
 
 ####  xwr  
 ##### 7690#       发表于 2018-10-23 13:02
-
-
 
 
 生肉：
@@ -3703,13 +2337,9 @@ maya姐，不要啊
 [http://himado.in/451238](http://himado.in/451238)
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -3719,12 +2349,7 @@ maya姐，不要啊
 | YESIARE| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -3733,25 +2358,16 @@ maya姐，不要啊
 ##### 7691#       发表于 2018-10-23 13:10
 
 
-
-
 安妮他妈上的revue曲文章：
 [https://zhuanlan.zhihu.com/p/47428554](https://zhuanlan.zhihu.com/p/47428554)
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  ColinWine  
 ##### 7692#       发表于 2018-10-23 13:40
-
-
 
 
 贴吧大佬更的手游剧情
@@ -3766,16 +2382,10 @@ maya姐，不要啊
 [https://tieba.baidu.com/p/592253 ... 043814#122535642389](https://tieba.baidu.com/p/5922538205?pid=122535642389&amp;cid=0&amp;red_tag=2128043814#122535642389)
 
 
-
-
-
-
-
 -----
 
 ####  404670637  
 ##### 7693#       发表于 2018-10-23 14:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41354156&amp;ptid=1499843" target="_blank">ColinWine 发表于 2018-10-23 13:40</a>
@@ -3788,25 +2398,13 @@ https://tieba.baidu.com/p/5921962290?pn=1
 离别战记系列的卡图真的是帅出了格调<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  YESIARE  
 ##### 7694#       发表于 2018-10-23 14:10
 
 
-
-
 ova光叶邪教还行<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">铁了心要大乱炖
-
-
-
-
-
 
 
 -----
@@ -3815,14 +2413,7 @@ ova光叶邪教还行<img src="https://static.saraba1st.com/image/smiley/face201
 ##### 7695#       发表于 2018-10-23 14:17
 
 
-
-
 看完了，这OVA怪怪的，感觉画面被裁切了还是怎么，演出还是分镜哪里说不上来的奇怪，而且收录可能很早，当时岩田女士还在棒读<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3831,16 +2422,9 @@ ova光叶邪教还行<img src="https://static.saraba1st.com/image/smiley/face201
 ##### 7696#       发表于 2018-10-23 18:00
 
 
-
-
 阿光真是社障啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 —— 来自 samsung SM-G965W, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
-
-
-
-
-
 
 
 -----
@@ -3849,14 +2433,7 @@ ova光叶邪教还行<img src="https://static.saraba1st.com/image/smiley/face201
 ##### 7697#       发表于 2018-10-23 18:35
 
 
-
-
 ova熟肉已出 av34447803
-
-
-
-
-
 
 
 -----
@@ -3865,13 +2442,7 @@ ova熟肉已出 av34447803
 ##### 7698#       发表于 2018-10-23 18:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没了恋哥哥直接重度社恐的光
-
-
-
-
-
 
 
 -----
@@ -3880,14 +2451,7 @@ ova熟肉已出 av34447803
 ##### 7699#       发表于 2018-10-23 19:01
 
 
-
-
 求问下，动画后半截几集的revue曲什么时候放出来？一个多月没爬楼，是已经放了吗？
-
-
-
-
-
 
 
 -----
@@ -3896,17 +2460,10 @@ ova熟肉已出 av34447803
 ##### 7700#       发表于 2018-10-23 19:03
 
 
-
-
 社恐戏痴这两个萌点在正片里全被打自闭后的高冷盖掉了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
 而和舞台剧基本上就是两个人设了……
-
-
-
-
-
 
 
 -----
@@ -3915,15 +2472,9 @@ ova熟肉已出 av34447803
 ##### 7701#       发表于 2018-10-23 19:03
 
 
-
 <blockquote>这就是奇迹 发表于 2018-10-23 19:01
 求问下，动画后半截几集的revue曲什么时候放出来？一个多月没爬楼，是已经放了吗？ ...</blockquote>
 剧中曲cd2和ost均已发售
-
-
-
-
-
 
 
 -----
@@ -3932,16 +2483,10 @@ ova熟肉已出 av34447803
 ##### 7702#       发表于 2018-10-23 19:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41357936&amp;ptid=1499843" target="_blank">这就是奇迹 发表于 2018-10-23 19:01</a>
 
 求问下，动画后半截几集的revue曲什么时候放出来？一个多月没爬楼，是已经放了吗？ ...</blockquote>
 vol2：av33958236 ost：av33972930 
-
-
-
-
-
 
 
 -----
@@ -3950,23 +2495,16 @@ vol2：av33958236 ost：av33972930
 ##### 7703#       发表于 2018-10-23 20:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41358013&amp;ptid=1499843" target="_blank">YESIARE 发表于 2018-10-23 19:11</a>
 
 vol2：av33958236 ost：av33972930</blockquote>
 多谢多谢，上次实时爬楼还是第十集时候的事了，后面实在刷不动
 
 
-
-
-
-
-
 -----
 
 ####  龙之峰  
 ##### 7704#       发表于 2018-10-23 20:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41357953&amp;ptid=1499843" target="_blank">堆雪若叶 发表于 2018-10-23 19:03:18</a>
@@ -3978,24 +2516,13 @@ vol2：av33958236 ost：av33972930</blockquote>
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  PLANETDANCE  
 ##### 7705#       发表于 2018-10-23 20:32
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">双叶真的矮啊
-
-
-
-
-
 
 
 -----
@@ -4004,14 +2531,7 @@ vol2：av33958236 ost：av33972930</blockquote>
 ##### 7706#       发表于 2018-10-23 21:14
 
 
-
-
 小光成功的尬到我了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4020,14 +2540,7 @@ vol2：av33958236 ost：av33972930</blockquote>
 ##### 7707#       发表于 2018-10-23 21:24
 
 
-
-
 转型手游讨论楼
-
-
-
-
-
 
 
 -----
@@ -4036,14 +2549,7 @@ vol2：av33958236 ost：av33972930</blockquote>
 ##### 7708#       发表于 2018-10-23 21:51
 
 
-
-
 小光一脸怕怕的样子太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4052,22 +2558,13 @@ vol2：av33958236 ost：av33972930</blockquote>
 ##### 7709#       发表于 2018-10-23 22:21
 
 
-
-
 手游里的歪头光<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  damian-wade  
 ##### 7710#       发表于 2018-10-23 22:54
-
-
 
 
 双叶人设要是高点，向中之人靠拢一些，人气也不至于这样
@@ -4079,25 +2576,13 @@ vol2：av33958236 ost：av33972930</blockquote>
 看了下手游剧透，似乎和动画完全接上，感觉直接按这剧情做第二季都没什么问题
 
 
-
-
-
-
-
 -----
 
 ####  8822  
 ##### 7711#       发表于 2018-10-24 16:30
 
 
-
-
 社交障碍神乐光
-
-
-
-
-
 
 
 -----
@@ -4106,21 +2591,13 @@ vol2：av33958236 ost：av33972930</blockquote>
 ##### 7712#       发表于 2018-10-24 19:43
 
 
-
-
 http://www.bilibili.com/read/cv1382899
-
-
-
-
-
 
 
 -----
 
 ####  inflation  
 ##### 7713#       发表于 2018-10-25 09:24
-
 
 
 <blockquote>saybestty 发表于 2018-10-24 06:43<[img src="static/image/common/back.gif" referrerpolicy="no-referrer">
@@ -4133,25 +2610,13 @@ http://www.bilibili.com/read/cv1382899</blockquote>
 来自: iPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  550616  
 ##### 7714#       发表于 2018-10-25 11:34
 
 
-
-
 天堂真是惨，游戏he公演2又又又败了
-
-
-
-
-
 
 
 -----
@@ -4160,23 +2625,16 @@ http://www.bilibili.com/read/cv1382899</blockquote>
 ##### 7715#       发表于 2018-10-25 13:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41375333&amp;ptid=1499843" target="_blank">550616 发表于 2018-10-25 11:34</a>
 
 天堂真是惨，游戏he公演2又又又败了</blockquote>
 又是跟谁打败了
 
 
-
-
-
-
-
 -----
 
 ####  550616  
 ##### 7716#       发表于 2018-10-25 13:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41376216&amp;ptid=1499843" target="_blank">jstcsjx 发表于 2018-10-25 13:00</a>
@@ -4187,16 +2645,10 @@ http://www.bilibili.com/read/cv1382899</blockquote>
 然后惯例克洛子大叫不服，不过这次天堂都没搭理直接去后台了。。
 
 
-
-
-
-
-
 -----
 
 ####  jstcsjx  
 ##### 7717#       发表于 2018-10-25 13:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41376312&amp;ptid=1499843" target="_blank">550616 发表于 2018-10-25 13:08</a>
@@ -4209,16 +2661,10 @@ http://www.bilibili.com/read/cv1382899</blockquote>
 天堂想跟克洛打，那场输了之后就可以跟克洛打于是天堂故意输掉。
 
 
-
-
-
-
-
 -----
 
 ####  karloku  
 ##### 7718#       发表于 2018-10-25 13:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41376312&amp;ptid=1499843" target="_blank">550616 发表于 2018-10-25 13:08</a>
@@ -4229,16 +2675,10 @@ http://www.bilibili.com/read/cv1382899</blockquote>
 #2里就是开打前99组每个人都表现得慌得一笔, 结果真的打起来每个人内心都有个小算盘, 把青岚几个血气方刚的老实人当道具在耍...(
 
 
-
-
-
-
-
 -----
 
 ####  550616  
 ##### 7719#       发表于 2018-10-25 14:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41376416&amp;ptid=1499843" target="_blank">karloku 发表于 2018-10-25 13:19</a>
@@ -4249,16 +2689,10 @@ http://www.bilibili.com/read/cv1382899</blockquote>
 所以说只有片段好吃亏的，还是等完整版吧
 
 
-
-
-
-
-
 -----
 
 ####  550616  
 ##### 7720#       发表于 2018-10-25 14:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41376388&amp;ptid=1499843" target="_blank">jstcsjx 发表于 2018-10-25 13:15</a>
@@ -4269,25 +2703,13 @@ http://www.bilibili.com/read/cv1382899</blockquote>
 明白了
 
 
-
-
-
-
-
 -----
 
 ####  kyogngn  
 ##### 7721#       发表于 2018-10-25 18:53
 
 
-
-
 公式集有了
-
-
-
-
-
 
 
 -----
@@ -4296,16 +2718,10 @@ http://www.bilibili.com/read/cv1382899</blockquote>
 ##### 7722#       发表于 2018-10-25 19:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41380241&amp;ptid=1499843" target="_blank">kyogngn 发表于 2018-10-25 18:53</a>
 
 公式集有了</blockquote>
 给个地址
-
-
-
-
-
 
 
 -----
@@ -4314,16 +2730,10 @@ http://www.bilibili.com/read/cv1382899</blockquote>
 ##### 7723#       发表于 2018-10-25 19:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41380584&amp;ptid=1499843" target="_blank">jstcsjx 发表于 2018-10-25 19:25</a>
 
 给个地址</blockquote>
 我在熊猫那看到的
-
-
-
-
-
 
 
 -----
@@ -4332,14 +2742,7 @@ http://www.bilibili.com/read/cv1382899</blockquote>
 ##### 7724#       发表于 2018-10-25 19:27
 
 
-
-
 对光的好感度提高5点
-
-
-
-
-
 
 
 -----
@@ -4348,14 +2751,7 @@ http://www.bilibili.com/read/cv1382899</blockquote>
 ##### 7725#       发表于 2018-10-25 19:29
 
 
-
-
 手游4星天堂强无敌....
-
-
-
-
-
 
 
 -----
@@ -4364,16 +2760,10 @@ http://www.bilibili.com/read/cv1382899</blockquote>
 ##### 7726#       发表于 2018-10-25 19:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41380593&amp;ptid=1499843" target="_blank">kyogngn 发表于 2018-10-25 19:26</a>
 
 我在熊猫那看到的</blockquote>
 有具体地址吗
-
-
-
-
-
 
 
 -----
@@ -4382,23 +2772,15 @@ http://www.bilibili.com/read/cv1382899</blockquote>
 ##### 7727#       发表于 2018-10-26 00:11
 
 
-
-
 刚抽空看OVA，长颈鹿失格，阿光这是要变团宠的感觉，后两话估计也要继续cp乱炖<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">，CD明天到，BD还要等到月底，饥渴难耐
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  c933103  
 ##### 7728#       发表于 2018-10-26 01:56
-
 
 
 <blockquote>550616 发表于 2018-10-25 13:08
@@ -4408,25 +2790,13 @@ http://www.bilibili.com/read/cv1382899</blockquote>
 流出是說官方剪輯還是
 
 
-
-
-
-
-
 -----
 
 ####  sauron.j  
 ##### 7729#       发表于 2018-10-26 02:20
 
 
-
-
 越看越觉得神乐光也是个和新条茜一样的性转死宅了。房间一团糟、社恐、冷无缺、神出鬼没、拘泥于过去（幼驯染的约定）、谈到擅长领域就滔滔不绝不读空气<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4435,25 +2805,16 @@ http://www.bilibili.com/read/cv1382899</blockquote>
 ##### 7730#       发表于 2018-10-26 02:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41383543&amp;ptid=1499843" target="_blank">c933103 发表于 2018-10-26 01:56</a>
 
 流出是說官方剪輯還是</blockquote>
 正式演出之前的一天进行了带妆彩排，结束以后还有记者见面会，当时允许媒体放出一部分#2的内容，具体这里
 
 
-
-
-
-
-
-
-
 -----
 
 ####  unnilennium  
 ##### 7731#       发表于 2018-10-26 02:40
-
 
 
  本帖最后由 unnilennium 于 2018-10-26 02:45 编辑 
@@ -4480,16 +2841,10 @@ http://www.bilibili.com/read/cv1382899</blockquote>
 [https://m.weibo.cn/status/4297983182360599](https://m.weibo.cn/status/4297983182360599)
 
 
-
-
-
-
-
 -----
 
 ####  550616  
 ##### 7732#       发表于 2018-10-26 03:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41383543&amp;ptid=1499843" target="_blank">c933103 发表于 2018-10-26 01:56</a>
@@ -4498,85 +2853,39 @@ http://www.bilibili.com/read/cv1382899</blockquote>
 [https://www.youtube.com/watch?v=jakeN7A7_No](https://www.youtube.com/watch?v=jakeN7A7_No)
 
 
-
-
-
-
-
 -----
 
 ####  wuaistage1  
 ##### 7733#       发表于 2018-10-27 00:37
 
 
-
-
 隔壁有人逛秋叶原看见的，是泥潭病人么<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
 
 
 QQ截图20181027002858.jpg
 (103.3 KB, 下载次数: 15)
 
 
-
-
 下载附件
 
 
 2018-10-27 00:36 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/27/003625zyhpz1m7yljtcfyh.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 QQ截图20181027002707.jpg
 (50.52 KB, 下载次数: 12)
 
 
-
-
 下载附件
 
 
 2018-10-27 00:36 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/27/003631kdcp2wh8n08czzkr.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -4585,17 +2894,10 @@ QQ截图20181027002707.jpg
 ##### 7734#       发表于 2018-10-27 20:06
 
 
-
-
 昨天才跑去B站看第一场live，果然天堂哈哈已经定型，没得救了，另外蕉哥哥也太池面了……<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
 整场live的气氛真的high到爆啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4604,15 +2906,9 @@ QQ截图20181027002707.jpg
 ##### 7735#       发表于 2018-10-27 20:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41394389&amp;ptid=1499843" target="_blank">wuaistage1 发表于 2018-10-27 00:37</a>
 隔壁有人逛秋叶原看见的，是泥潭病人么</blockquote>
 泰拳+双刀警告<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4621,14 +2917,7 @@ QQ截图20181027002707.jpg
 ##### 7736#       发表于 2018-10-27 22:25
 
 
-
-
 如果圣翔是龙骑，那边境线就是fourze了，谁都敢撩的阿露露，直球收队友，别的学校的也不放过，晶：我该怎么回应才不会被阿满骂，在线等
-
-
-
-
-
 
 
 -----
@@ -4637,15 +2926,7 @@ QQ截图20181027002707.jpg
 ##### 7737#       发表于 2018-10-28 01:55
 
 
-
-
-
 少 女 粵 劇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4654,17 +2935,10 @@ QQ截图20181027002707.jpg
 ##### 7738#       发表于 2018-10-28 03:55
 
 
-
-
 油管senraikai这位，不仅看了1st公演+live
 
 
 还有单独吹少歌的视频，真爱粉了
-
-
-
-
-
 
 
 -----
@@ -4673,14 +2947,7 @@ QQ截图20181027002707.jpg
 ##### 7739#       发表于 2018-10-28 12:44
 
 
-
-
 通过代购买的OST到了，但是BD live特典该怎么获得呢？看亚马逊介绍是发到邮箱里？
-
-
-
-
-
 
 
 -----
@@ -4689,16 +2956,9 @@ QQ截图20181027002707.jpg
 ##### 7740#       发表于 2018-10-29 14:48
 
 
-
-
 迫害刘女士
 
 <img src="https://wx4.sinaimg.cn/mw690/41628a93ly1fwp3egivg4j20fu0b4q70.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4707,16 +2967,10 @@ QQ截图20181027002707.jpg
 ##### 7741#       发表于 2018-10-29 22:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41418703&amp;ptid=1499843" target="_blank">we89623 发表于 2018-10-29 14:48</a>
 
 迫害刘女士</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">少歌最擅长的就是迫害营业吗？
-
-
-
-
-
 
 
 -----
@@ -4725,21 +2979,13 @@ QQ截图20181027002707.jpg
 ##### 7742#       发表于 2018-10-29 22:31
 
 
-
-
 少歌bd 4549 作为高价bd来说这销量貌似不错了
-
-
-
-
-
 
 
 -----
 
 ####  inflation  
 ##### 7743#       发表于 2018-10-29 22:51
-
 
 
 <blockquote>we89623 发表于 2018-10-29 01:48<[img src="static/image/common/back.gif" referrerpolicy="no-referrer">
@@ -4750,25 +2996,13 @@ QQ截图20181027002707.jpg
 来自: iPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  roamer  
 ##### 7744#       发表于 2018-10-29 22:59
 
 
-
-
 BD到了，充值奶粉钱<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4777,23 +3011,16 @@ BD到了，充值奶粉钱<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 7745#       发表于 2018-10-29 23:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41423536&amp;ptid=1499843" target="_blank">YESIARE 发表于 2018-10-29 22:31</a>
 
 少歌bd 4549 作为高价bd来说这销量貌似不错了</blockquote>
 正式榜单数字还没出吧...就这个数的话不过不失吧，不算差也吹不动
 
 
-
-
-
-
-
 -----
 
 ####  karloku  
 ##### 7746#       发表于 2018-10-30 02:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41424037&amp;ptid=1499843" target="_blank">damian-wade 发表于 2018-10-29 23:26</a>
@@ -4804,16 +3031,10 @@ BD到了，充值奶粉钱<img src="https://static.saraba1st.com/image/smiley/fa
 有live抽选券也就只有这个数啊
 
 
-
-
-
-
-
 -----
 
 ####  YESIARE  
 ##### 7747#       发表于 2018-10-30 02:30
-
 
 
  本帖最后由 YESIARE 于 2018-10-30 02:31 编辑 
@@ -4825,24 +3046,13 @@ BD到了，充值奶粉钱<img src="https://static.saraba1st.com/image/smiley/fa
 还有买四星卡送BD的大招没出呢（X
 
 
-
-
-
-
-
 -----
 
 ####  Umichika  
 ##### 7748#       发表于 2018-10-30 18:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">有坛友买了BD的出抽选券吗，想去年底的2nd Live
-
-
-
-
-
 
 
 -----
@@ -4851,17 +3061,12 @@ BD到了，充值奶粉钱<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 7749#       发表于 2018-10-30 20:00
 
 
-
 <img src="http://wx1.sinaimg.cn/large/005RQuL7gy1fwqgkxqyozg30hs0a0kjl.gif" referrerpolicy="no-referrer">
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -4871,12 +3076,7 @@ BD到了，充值奶粉钱<img src="https://static.saraba1st.com/image/smiley/fa
 | xwr| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -4885,19 +3085,11 @@ BD到了，充值奶粉钱<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 7750#       发表于 2018-10-31 20:03
 
 
-
-
 资料书到了。然而……
-
-
-
-
 
 
 截图00.png
 (401.66 KB, 下载次数: 11)
-
-
 
 
 下载附件
@@ -4906,27 +3098,11 @@ BD到了，充值奶粉钱<img src="https://static.saraba1st.com/image/smiley/fa
 2018-10-31 20:02 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/31/200234scnjnu7n85n8hhom.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 截图01.png
 (226.13 KB, 下载次数: 6)
-
-
 
 
 下载附件
@@ -4935,28 +3111,12 @@ BD到了，充值奶粉钱<img src="https://static.saraba1st.com/image/smiley/fa
 2018-10-31 20:03 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/31/200301iobo6s2bojib2s9r.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 6战斗力 +6
@@ -4971,19 +3131,13 @@ BD到了，充值奶粉钱<img src="https://static.saraba1st.com/image/smiley/fa
 | wuliaozheX| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  ziyer  
 ##### 7751#       发表于 2018-10-31 20:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41445138&amp;ptid=1499843" target="_blank">龙之峰 发表于 2018-10-31 20:03</a>
@@ -4993,16 +3147,10 @@ BD到了，充值奶粉钱<img src="https://static.saraba1st.com/image/smiley/fa
 —— 来自 HUAWEI KNT-AL20, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  龙之峰  
 ##### 7752#       发表于 2018-10-31 21:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41445366&amp;ptid=1499843" target="_blank">ziyer 发表于 2018-10-31 20:26:26</a>
@@ -5013,16 +3161,10 @@ BD到了，充值奶粉钱<img src="https://static.saraba1st.com/image/smiley/fa
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  404670637  
 ##### 7753#       发表于 2018-10-31 22:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41445138&amp;ptid=1499843" target="_blank">龙之峰 发表于 2018-10-31 20:03</a>
@@ -5031,25 +3173,13 @@ BD到了，充值奶粉钱<img src="https://static.saraba1st.com/image/smiley/fa
 草，太真实了
 
 
-
-
-
-
-
 -----
 
 ####  lokibear  
 ##### 7754#       发表于 2018-11-1 08:17
 
 
-
-
 会出第二季吗，接手游剧情<img src="https://static.saraba1st.com/image/smiley/carton2017/248.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5058,14 +3188,7 @@ BD到了，充值奶粉钱<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 7755#       发表于 2018-11-1 10:15
 
 
-
-
 资料书里，某人还是土豆啊。。。
-
-
-
-
-
 
 
 -----
@@ -5074,16 +3197,10 @@ BD到了，充值奶粉钱<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 7756#       发表于 2018-11-1 10:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41445138&amp;ptid=1499843" target="_blank">龙之峰 发表于 2018-10-31 20:03:07</a>
 资料书到了。然而</blockquote>草，过于真实
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -5092,22 +3209,13 @@ BD到了，充值奶粉钱<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 7757#       发表于 2018-11-2 15:50
 
 
-
-
-
 这个粤配组配的少女粤剧好棒啊，声线挺还原的，star divine的填词也好棒，带感得一批
-
-
-
-
-
 
 
 -----
 
 ####  Fingest  
 ##### 7758#       发表于 2018-11-2 16:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41464441&amp;ptid=1499843" target="_blank">ColinWine 发表于 2018-11-2 15:50</a>
@@ -5118,16 +3226,10 @@ https://www.bilibili.com/video/av35094345
 失礼说一句 star divine那一段看得比原版爽
 
 
-
-
-
-
-
 -----
 
 ####  ColinWine  
 ##### 7759#       发表于 2018-11-2 16:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41464585&amp;ptid=1499843" target="_blank">Fingest 发表于 2018-11-2 16:03</a>
@@ -5138,24 +3240,13 @@ https://www.bilibili.com/video/av35094345
 不过实话说我觉得这版star divine的最后两句唱得不行，没有小山的气场，其他地方都超棒的
 
 
-
-
-
-
-
 -----
 
 ####  沙包王  
 ##### 7760#       发表于 2018-11-2 17:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">粤语版的歌也很棒啊
-
-
-
-
-
 
 
 -----
@@ -5164,16 +3255,7 @@ https://www.bilibili.com/video/av35094345
 ##### 7761#       发表于 2018-11-2 23:41
 
 
-
-
-
-
 啊啊抹布蜥蜴<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5182,23 +3264,16 @@ https://www.bilibili.com/video/av35094345
 ##### 7762#       发表于 2018-11-2 23:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41423536&amp;ptid=1499843" target="_blank">YESIARE 发表于 2018-10-29 22:31</a>
 
 少歌bd 4549 作为高价bd来说这销量貌似不错了</blockquote>
 不算好的，有公演票捆绑才这点
 
 
-
-
-
-
-
 -----
 
 ####  greelmr1981  
 ##### 7763#       发表于 2018-11-2 23:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41464441&amp;ptid=1499843" target="_blank">ColinWine 发表于 2018-11-2 15:50</a>
@@ -5212,32 +3287,19 @@ https://www.bilibili.com/video/av35094345
 这个长颈鹿的配音实在太女人形了
 
 
-
-
-
-
-
 -----
 
 ####  树皮83  
 ##### 7764#       发表于 2018-11-2 23:58
 
 
-
-
 虽然这个销量但我居然在高兴年底live没那么多人和我抢了（（这回买了两套bd总共昼夜申请了八张（（
-
-
-
-
-
 
 
 -----
 
 ####  寺川愛美  
 ##### 7765#       发表于 2018-11-3 01:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41468749&amp;ptid=1499843" target="_blank">greelmr1981 发表于 2018-11-2 23:53</a>
@@ -5249,16 +3311,10 @@ https://www.bilibili.com/video/av35094345
 香港公開考試的聆聽錄音裡，提供指示的旁白就是這種刻意拿捏出來的腔調<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  unnilennium  
 ##### 7766#       发表于 2018-11-3 02:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41464441&amp;ptid=1499843" target="_blank">ColinWine 发表于 2018-11-2 15:50</a>
@@ -5269,16 +3325,10 @@ https://www.bilibili.com/video/av35094345
 对，这个填词很不错，一上来感觉star divine跟粤语的匹配度还蛮高，这么一弄突然感觉像一些粤语老歌了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  大新闻  
 ##### 7767#       发表于 2018-11-3 02:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41464441&amp;ptid=1499843" target="_blank">ColinWine 发表于 2018-11-2 15:50</a>
@@ -5290,25 +3340,13 @@ https://www.bilibili.com/video/av35094345
 —— 来自 LGE LG-F700L, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  Kurishi  
 ##### 7768#       发表于 2018-11-3 06:17
 
 
-
-
 啊光直接笑爆了www
-
-
-
-
-
 
 
 -----
@@ -5317,23 +3355,16 @@ https://www.bilibili.com/video/av35094345
 ##### 7769#       发表于 2018-11-3 09:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41418703&amp;ptid=1499843" target="_blank">we89623 发表于 2018-10-29 14:48</a>
 
 迫害刘女士</blockquote>
 绝了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，我就说刘女士总有种状况外的感觉
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 7770#       发表于 2018-11-3 09:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41468733&amp;ptid=1499843" target="_blank">550616 发表于 2018-11-2 23:51</a>
@@ -5346,16 +3377,10 @@ bangdream捆武道馆Live好像也就5-6K吧
 看后续发展了
 
 
-
-
-
-
-
 -----
 
 ####  Umichika  
 ##### 7771#       发表于 2018-11-4 16:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41468775&amp;ptid=1499843" target="_blank">树皮83 发表于 2018-11-2 23:58</a>
@@ -5364,30 +3389,17 @@ bangdream捆武道馆Live好像也就5-6K吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">您好，请问如果你抽选结果抽多了能出票给我吗
 
 
-
-
-
-
-
 -----
 
 ####  roy1996  
 ##### 7772#       发表于 2018-11-4 22:41
 
 
-
-
 参加早稲田祭的小山百代女士和岩田阳葵女士                            
-
-
-
-
 
 
 QQ图片20181104223245.jpg
 (31.96 KB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -5396,24 +3408,7 @@ QQ图片20181104223245.jpg
 2018-11-4 22:41 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201811/04/224145u29s6ib936xvzfuj.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -5422,16 +3417,10 @@ QQ图片20181104223245.jpg
 ##### 7773#       发表于 2018-11-4 22:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41487145&amp;ptid=1499843" target="_blank">roy1996 发表于 2018-11-4 22:41</a>
 
 参加早稲田祭的小山百代女士和岩田阳葵女士</blockquote>
 这些人没完了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5440,14 +3429,7 @@ QQ图片20181104223245.jpg
 ##### 7774#       发表于 2018-11-4 22:48
 
 
-
-
 我day到了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5456,15 +3438,8 @@ QQ图片20181104223245.jpg
 ##### 7775#       发表于 2018-11-4 23:34
 
 
-
-
 看了三集。
 哦哦哦哦哦哦哦！这也太好看了吧，有点憋不住，过来吼一声
-
-
-
-
-
 
 
 -----
@@ -5473,20 +3448,11 @@ QQ图片20181104223245.jpg
 ##### 7776#       发表于 2018-11-5 11:53
 
 
-
-
 届 到 了
-
-
-
-
-
 
 
 DrJ-tm6UwAEGx0N.jpg
 (175.7 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -5495,24 +3461,7 @@ DrJ-tm6UwAEGx0N.jpg
 2018-11-5 11:50 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201811/05/115052tqq8k9275q03eq76.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -5521,21 +3470,13 @@ DrJ-tm6UwAEGx0N.jpg
 ##### 7777#       发表于 2018-11-5 13:25
 
 
-
-
 第7777樓，仍然想念蕉哥哥
-
-
-
-
-
 
 
 -----
 
 ####  chexk03  
 ##### 7778#       发表于 2018-11-5 13:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41464441&amp;ptid=1499843" target="_blank">ColinWine 发表于 2018-11-2 15:50</a>
@@ -5545,16 +3486,10 @@ https://www.bilibili.com/video/av35094345
 唱词那里感觉配的最好的是露女士和花柳，结果后面新出的revue是二打二的，是因为能出场更多人么？不过大家总体都配的很不错，唯二感觉弱点的一是长颈鹿太娘，二是光估计想配的高冷但实际是老了点
 
 
-
-
-
-
-
 -----
 
 ####  YESIARE  
 ##### 7779#       发表于 2018-11-5 14:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41487596&amp;ptid=1499843" target="_blank">HOLIDAY 发表于 2018-11-4 23:34</a>
@@ -5563,25 +3498,13 @@ https://www.bilibili.com/video/av35094345
 众所周知 少歌是十月番<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  HOLIDAY  
 ##### 7780#       发表于 2018-11-5 14:09
 
 
-
-
 追番跟不上各位的思必得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5590,15 +3513,9 @@ https://www.bilibili.com/video/av35094345
 ##### 7781#       发表于 2018-11-5 14:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41492782&amp;ptid=1499843" target="_blank">HOLIDAY 发表于 2018-11-5 14:09</a>
 追番跟不上各位的思必得补番还能避开一些奇怪的东西</blockquote>
 主要是第一歌吧（萌战吧）首页的少歌贴就没消失过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5607,16 +3524,10 @@ https://www.bilibili.com/video/av35094345
 ##### 7782#       发表于 2018-11-5 14:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41492835&amp;ptid=1499843" target="_blank">YESIARE 发表于 2018-11-5 14:15</a>
 
 主要是第一歌吧（萌战吧）首页的少歌贴就没消失过</blockquote>
 素质过于硬<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">舞台剧演绎、意象描写、角色刻画都强，要说有点不满就是声优功力缺些火候。还没看完，估计是要去投票区吹爆的
-
-
-
-
-
 
 
 -----
@@ -5625,15 +3536,9 @@ https://www.bilibili.com/video/av35094345
 ##### 7783#       发表于 2018-11-5 15:09
 
 
-
 <blockquote>HOLIDAY 发表于 2018-11-5 14:26
 素质过于硬舞台剧演绎、意象描写、角色刻画都强，要说有点不满就是声优功力缺些火候。还没看完， ...</blockquote>
 问题是这片糟糕的在后半(
-
-
-
-
-
 
 
 -----
@@ -5642,16 +3547,10 @@ https://www.bilibili.com/video/av35094345
 ##### 7784#       发表于 2018-11-5 18:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41493380&amp;ptid=1499843" target="_blank">xiaocheng 发表于 2018-11-5 15:09</a>
 
 问题是这片糟糕的在后半(</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">可别，我观望一哈
-
-
-
-
-
 
 
 -----
@@ -5660,16 +3559,7 @@ https://www.bilibili.com/video/av35094345
 ##### 7785#       发表于 2018-11-5 19:26
 
 
-
-
-
-
 这组到底怎么回事。
-
-
-
-
-
 
 
 -----
@@ -5678,14 +3568,7 @@ https://www.bilibili.com/video/av35094345
 ##### 7786#       发表于 2018-11-5 20:10
 
 
-
-
 OST到了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5694,16 +3577,10 @@ OST到了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" r
 ##### 7787#       发表于 2018-11-5 20:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41495944&amp;ptid=1499843" target="_blank">HOLIDAY 发表于 2018-11-5 18:58</a>
 
 可别，我观望一哈</blockquote>
 别太紧张，这片最烂的地方也称不上屎
-
-
-
-
-
 
 
 -----
@@ -5712,23 +3589,16 @@ OST到了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" r
 ##### 7788#       发表于 2018-11-5 20:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41495944&amp;ptid=1499843" target="_blank">HOLIDAY 发表于 2018-11-5 18:58</a>
 
 可别，我观望一哈</blockquote>
 别听风就是雨， 某一集revue做得不行而已，但收尾两集很争气。
 
 
-
-
-
-
-
 -----
 
 ####  wuaistage1  
 ##### 7789#       发表于 2018-11-5 20:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41496194&amp;ptid=1499843" target="_blank">Steinray 发表于 2018-11-5 19:26</a>
@@ -5740,16 +3610,10 @@ https://www.bilibili.com/video/av33983218
 百合营业很常见，但还真没见过这么gay的。这两的肢体接触过于自然过于亲密，我前女友都没这么粘过我<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 怀疑是不是真的在交往。
 
 
-
-
-
-
-
 -----
 
 ####  树皮83  
 ##### 7790#       发表于 2018-11-5 21:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41484089&amp;ptid=1499843" target="_blank">Umichika 发表于 2018-11-4 16:47</a>
@@ -5758,16 +3622,10 @@ https://www.bilibili.com/video/av33983218
 感觉多不了啊（多的话会发微博的，来联系我就可以
 
 
-
-
-
-
-
 -----
 
 ####  Steinray  
 ##### 7791#       发表于 2018-11-5 22:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41497041&amp;ptid=1499843" target="_blank">wuaistage1 发表于 2018-11-5 20:59</a>
@@ -5776,25 +3634,13 @@ https://www.bilibili.com/video/av33983218
 爱美：那我呢？
 
 
-
-
-
-
-
 -----
 
 ####  Mr_DECADE  
 ##### 7792#       发表于 2018-11-5 22:45
 
 
-
-
 maho姐真是超级静态美女啊，果然只要静下来就是天堂真矢
-
-
-
-
-
 
 
 -----
@@ -5803,16 +3649,10 @@ maho姐真是超级静态美女啊，果然只要静下来就是天堂真矢
 ##### 7793#       发表于 2018-11-5 22:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41497902&amp;ptid=1499843" target="_blank">Mr_DECADE 发表于 2018-11-5 22:45</a>
 
 maho姐真是超级静态美女啊，果然只要静下来就是天堂真矢</blockquote>
 不行我已经满脑子天堂口合口合口合口合口合口合了
-
-
-
-
-
 
 
 -----
@@ -5821,16 +3661,10 @@ maho姐真是超级静态美女啊，果然只要静下来就是天堂真矢</bl
 ##### 7794#       发表于 2018-11-5 23:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41497267&amp;ptid=1499843" target="_blank">树皮83 发表于 2018-11-5 21:25</a>
 
 感觉多不了啊（多的话会发微博的，来联系我就可以</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">好的谢谢
-
-
-
-
-
 
 
 -----
@@ -5839,15 +3673,9 @@ maho姐真是超级静态美女啊，果然只要静下来就是天堂真矢</bl
 ##### 7795#       发表于 2018-11-7 18:17
 
 
-
 [https://entertainmentstation.jp/313186](https://entertainmentstation.jp/313186)
 
 昨天的一篇古川监督的访谈
-
-
-
-
-
 
 
 -----
@@ -5856,14 +3684,7 @@ maho姐真是超级静态美女啊，果然只要静下来就是天堂真矢</bl
 ##### 7796#       发表于 2018-11-10 10:55
 
 
-
-
 woc第7话绝了，这展开我人都傻了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5872,21 +3693,13 @@ woc第7话绝了，这展开我人都傻了<img src="https://static.saraba1st.co
 ##### 7797#       发表于 2018-11-10 11:13
 
 
-
-
 网易云音乐入坑…
-
-
-
-
-
 
 
 -----
 
 ####  jstcsjx  
 ##### 7798#       发表于 2018-11-11 20:52
-
 
 
  本帖最后由 jstcsjx 于 2018-11-11 21:08 编辑 
@@ -6069,17 +3882,10 @@ I can not lose.Because I am with you.
 （完）
 
 
-
-
-
-
-
-
 -----
 
 ####  jstcsjx  
 ##### 7799#       发表于 2018-11-11 21:06
-
 
 
  本帖最后由 jstcsjx 于 2018-11-11 21:08 编辑 
@@ -6270,17 +4076,10 @@ Moyo酱是那种特别在意他人感受的人，总是会很快就对我说“�
 （完）
 
 
-
-
-
-
-
 -----
 
 ####  jstcsjx  
 ##### 7800#       发表于 2018-11-11 21:13
-
-
 
 
 源：ArcticWolf
@@ -6550,17 +4349,10 @@ Moyo酱是那种特别在意他人感受的人，总是会很快就对我说“�
 （完）
 
 
-
-
-
-
-
 -----
 
 ####  jstcsjx  
 ##### 7801#       发表于 2018-11-11 21:21
-
-
 
 
 圣翔音乐学院放送科
@@ -6762,32 +4554,19 @@ Moyo酱是那种特别在意他人感受的人，总是会很快就对我说“�
 （完）
 
 
-
-
-
-
-
 -----
 
 ####  jstcsjx  
 ##### 7802#       发表于 2018-11-11 21:43
 
 
-
-
 四个人的访谈中唯一一个都提到的人是maho姐。而且提到maho姐四个人都有说maho姐实力很强。
-
-
-
-
-
 
 
 -----
 
 ####  mofheka  
 ##### 7803#       发表于 2018-11-11 21:58
-
 
 
  本帖最后由 mofheka 于 2018-11-11 22:12 编辑 
@@ -6800,17 +4579,10 @@ Moyo酱是那种特别在意他人感受的人，总是会很快就对我说“�
 出自：[https://mytrix.in/post/guan-ju/2018-11-11](https://mytrix.in/post/guan-ju/2018-11-11)
 
 
-
-
-
-
-
 -----
 
 ####  leleq  
 ##### 7804#       发表于 2018-11-11 22:16
-
-
 
 
 古川「全是该反省的地方」。不是指其他Staff说的那些问题，而是我自己作为监督的问题
@@ -6822,17 +4594,10 @@ Moyo酱是那种特别在意他人感受的人，总是会很快就对我说“�
 分镜 想法 都不错如果能涨涨控制力会是个很好的监督 比师傅几原有“钱途”
 
 
-
-
-
-
-
 -----
 
 ####  unnilennium  
 ##### 7805#       发表于 2018-11-15 20:21
-
-
 
 
 BD2的封面，这次的新歌是前传里天堂怕鬼的段落相关的梗，封面让我怀疑你们跟BD1不是同一个作品的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -6848,24 +4613,13 @@ BOXには未放送エピソード②「99.419 討論」や九九組の新規楽�
 <img src="https://s3-ap-northeast-1.amazonaws.com/revuestarlight.com/wp-content/uploads/2018/11/vol2.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  roamer  
 ##### 7806#       发表于 2018-11-18 13:34
 
 
-
 <img src="https://i.loli.net/2018/11/18/5bf0f99da238b.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6874,20 +4628,14 @@ BOXには未放送エピソード②「99.419 討論」や九九組の新規楽�
 ##### 7807#         楼主| 发表于 2018-11-18 21:05
 
 
-
-
 TVアニメ「少女☆歌劇 レヴュースタァライト」Blu-ray BOX② 特典CD「You are a ghost, I am a ghost 〜劇場のゴースト〜」試聴動画
 [https://www.youtube.com/watch?v=hK4DdJIrdDs](https://www.youtube.com/watch?v=hK4DdJIrdDs)
 [https://weibo.com/tv/v/H3hfoEIO5?fid=1034:4307812621463790](https://weibo.com/tv/v/H3hfoEIO5?fid=1034:4307812621463790)
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -6897,12 +4645,7 @@ TVアニメ「少女☆歌劇 レヴュースタァライト」Blu-ray BOX② �
 | xwr| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -6911,14 +4654,7 @@ TVアニメ「少女☆歌劇 レヴュースタァライト」Blu-ray BOX② �
 ##### 7808#       发表于 2018-11-18 21:58
 
 
-
-
 bd2的特典曲太好听了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6927,14 +4663,7 @@ bd2的特典曲太好听了<img src="https://static.saraba1st.com/image/smiley/f
 ##### 7809#       发表于 2018-11-18 22:50
 
 
-
-
 小泉萌香已经认定纯那是蕉蕉的妈了，妈中之妈还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6943,13 +4672,7 @@ bd2的特典曲太好听了<img src="https://static.saraba1st.com/image/smiley/f
 ##### 7810#       发表于 2018-11-18 23:12
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这算是跟手游的联动吗？
-
-
-
-
-
 
 
 -----
@@ -6958,14 +4681,7 @@ bd2的特典曲太好听了<img src="https://static.saraba1st.com/image/smiley/f
 ##### 7811#       发表于 2018-11-18 23:30
 
 
-
-
 你鬼我鬼真好听<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6974,14 +4690,7 @@ bd2的特典曲太好听了<img src="https://static.saraba1st.com/image/smiley/f
 ##### 7812#       发表于 2018-11-18 23:30
 
 
-
-
 我的天，新的特典曲好听到<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6990,17 +4699,10 @@ bd2的特典曲太好听了<img src="https://static.saraba1st.com/image/smiley/f
 ##### 7813#         楼主| 发表于 2018-11-19 16:21
 
 
-
-
 Blu-ray「少女☆歌劇 レヴュースタァライト -The LIVE-#2 Transition」2019年2月27日(水)発売決定💫12月13日(木)19時より全国24か所の映画館ならびに香港にて#2 Transitionディレイビューイング開催決定
 
 <img src="http://wx3.sinaimg.cn/large/0068TvVBgy1fxdfvod2bpj30xc0ir42e.jpg" referrerpolicy="no-referrer">
 <img src="http://wx4.sinaimg.cn/large/0068TvVBgy1fxdfvokdhrj30xc0iraf3.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7009,14 +4711,7 @@ Blu-ray「少女☆歌劇 レヴュースタァライト -The LIVE-#2 Transition
 ##### 7814#       发表于 2018-11-19 18:58
 
 
-
-
 真好啊真好啊.jpg
-
-
-
-
-
 
 
 -----
@@ -7025,14 +4720,7 @@ Blu-ray「少女☆歌劇 レヴュースタァライト -The LIVE-#2 Transition
 ##### 7815#       发表于 2018-11-19 19:07
 
 
-
-
 也太好听了
-
-
-
-
-
 
 
 -----
@@ -7041,14 +4729,7 @@ Blu-ray「少女☆歌劇 レヴュースタァライト -The LIVE-#2 Transition
 ##### 7816#       发表于 2018-11-19 19:15
 
 
-
-
 这新曲，又有药吃了（
-
-
-
-
-
 
 
 -----
@@ -7057,14 +4738,7 @@ Blu-ray「少女☆歌劇 レヴュースタァライト -The LIVE-#2 Transition
 ##### 7817#       发表于 2018-11-19 21:07
 
 
-
-
 这歌，我又想买了
-
-
-
-
-
 
 
 -----
@@ -7073,14 +4747,7 @@ Blu-ray「少女☆歌劇 レヴュースタァライト -The LIVE-#2 Transition
 ##### 7818#       发表于 2018-11-19 21:20
 
 
-
-
 新歌好听
-
-
-
-
-
 
 
 -----
@@ -7089,14 +4756,7 @@ Blu-ray「少女☆歌劇 レヴュースタァライト -The LIVE-#2 Transition
 ##### 7819#       发表于 2018-11-19 21:31
 
 
-
-
 新歌是sound horizon的调调
-
-
-
-
-
 
 
 -----
@@ -7105,14 +4765,7 @@ Blu-ray「少女☆歌劇 レヴュースタァライト -The LIVE-#2 Transition
 ##### 7820#       发表于 2018-11-19 21:36
 
 
-
-
 你是鬼 比我更鬼（吹爆<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7121,14 +4774,7 @@ Blu-ray「少女☆歌劇 レヴュースタァライト -The LIVE-#2 Transition
 ##### 7821#       发表于 2018-11-21 23:30
 
 
-
-
 源义经活动卡面太尊了(
-
-
-
-
-
 
 
 -----
@@ -7137,24 +4783,16 @@ Blu-ray「少女☆歌劇 レヴュースタァライト -The LIVE-#2 Transition
 ##### 7822#       发表于 2018-11-27 22:17
 
 
-
  本帖最后由 we89623 于 2018-11-27 22:37 编辑 
 
 西格菲尔特会在99组的Live出演...
 另外三所学校的曲子试听已出... 
 
 
-
-
-
-
-
 -----
 
 ####  龙之峰  
 ##### 7823#       发表于 2018-11-30 20:01
-
-
 
 
 古川监督、樋口系构和中村彼方的访谈的上半部分。
@@ -7164,31 +4802,19 @@ Blu-ray「少女☆歌劇 レヴュースタァライト -The LIVE-#2 Transition
 nga有简单的翻译：[https://akiba-souken.com/article/37324/](https://akiba-souken.com/article/37324/)
 
 
-
-
-
-
-
 -----
 
 ####  安广多惠子  
 ##### 7824#       发表于 2018-11-30 20:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">香港DV有谭友来看吗
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 7825#         楼主| 发表于 2018-12-13 09:15
-
 
 
 [https://twitter.com/SG550_SIG/status/1072854615001944065](https://twitter.com/SG550_SIG/status/1072854615001944065)
@@ -7200,16 +4826,10 @@ nga有简单的翻译：[https://akiba-souken.com/article/37324/](https://akiba-
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fy4umelxwoj20sc0mn7gu.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ianny544  
 ##### 7826#       发表于 2018-12-13 09:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41926763&amp;ptid=1499843" target="_blank">xingenge 发表于 2018-12-13 09:15</a>
@@ -7221,16 +4841,10 @@ https://twitter.com/SG550_SIG/status/1072854615001944065
 这个幼蕉官设真的棒，比起某蕉娜厨画师的幼蕉少了几分鬼畜多了一些柔弱
 
 
-
-
-
-
-
 -----
 
 ####  安广多惠子  
 ##### 7827#       发表于 2018-12-13 23:35
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">#2 DV看好了，其实糖分没有想象中的足，不过青岚的3+1个演员都挺不错的，走驼老师气场依旧十足
@@ -7238,16 +4852,10 @@ https://twitter.com/SG550_SIG/status/1072854615001944065
 出第三集的话希望能有更大一点的舞台和复杂一点的机关了，现在这个表现力还是不足
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 7828#       发表于 2018-12-14 23:22
-
 
 
  本帖最后由 we89623 于 2018-12-14 23:25 编辑 
@@ -7257,16 +4865,10 @@ https://twitter.com/SG550_SIG/status/1072854615001944065
 [https://weibo.com/tv/v/H7eZg2Uu4?fid=1034:4317258860974984](https://weibo.com/tv/v/H7eZg2Uu4?fid=1034:4317258860974984)
 
 
-
-
-
-
-
 -----
 
 ####  龙之峰  
 ##### 7829#       发表于 2018-12-14 23:43
-
 
 
  本帖最后由 龙之峰 于 2018-12-21 20:25 编辑 
@@ -7299,16 +4901,10 @@ https://twitter.com/SG550_SIG/status/1072854615001944065
 11.光全裸是为了表现她失去一切变得弱小。同时也表现她在地狱中被美丽和虚无的东西缠绕（类似的意思），并且也意在同时展现冲击和美丽这两点。
 
 
-
-
-
-
-
 -----
 
 ####  YESIARE  
 ##### 7830#       发表于 2018-12-15 00:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41947633&amp;ptid=1499843" target="_blank">龙之峰 发表于 2018-12-14 23:43</a>
@@ -7321,16 +4917,10 @@ https://akiba-souken.com/article/37334/
 天堂和克洛住单人间的原因我觉得其实是惨（雷）剧（普）回避
 
 
-
-
-
-
-
 -----
 
 ####  龙之峰  
 ##### 7831#       发表于 2018-12-15 00:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41947856&amp;ptid=1499843" target="_blank">YESIARE 发表于 2018-12-15 00:05:32</a>
@@ -7341,25 +4931,13 @@ https://akiba-souken.com/article/37334/
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  ColinWine  
 ##### 7832#       发表于 2018-12-15 00:31
 
 
-
-
 99组的滑稽团真是太棒了
-
-
-
-
-
 
 
 -----
@@ -7368,22 +4946,14 @@ https://akiba-souken.com/article/37334/
 ##### 7833#       发表于 2018-12-15 01:02
 
 
-
-
 haruki的进步确实明显，回去看前两集她的表现和后半段判若两人了
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">然而蕉哥仍需努力
-
-
-
-
-
 
 
 -----
 
 ####  unnilennium  
 ##### 7834#       发表于 2018-12-15 01:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41948274&amp;ptid=1499843" target="_blank">安广多惠子 发表于 2018-12-15 01:02</a>
@@ -7394,27 +4964,15 @@ haruki的进步确实明显，回去看前两集她的表现和后半段判若�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">游戏和动画就不太一样，基本上手游基本上大家都挺不错了
 
 
-
-
-
-
-
 -----
 
 ####  御坂422x  
 ##### 7835#       发表于 2018-12-15 03:11
 
 
-
-
 而且我感觉露妈妈那个声线好像还挺难的……生放里说过好几次haruki在台本上密密麻麻做笔记一到录音棚就去请教声优前辈的事了，这个女人是天使(确信)
 
 — from samsung SM-G955W, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
-
-
-
-
-
 
 
 -----
@@ -7423,14 +4981,7 @@ haruki的进步确实明显，回去看前两集她的表现和后半段判若�
 ##### 7836#       发表于 2018-12-15 07:03
 
 
-
-
 新曲真好听，又要犯病了
-
-
-
-
-
 
 
 -----
@@ -7439,16 +4990,9 @@ haruki的进步确实明显，回去看前两集她的表现和后半段判若�
 ##### 7837#         楼主| 发表于 2018-12-21 12:50
 
 
-
-
 TVアニメ「少女☆歌劇 レヴュースタァライト」5thシングルCD「約束タワー」クロスフェード試聴
 [https://www.youtube.com/watch?v=f8etr_4xxOU](https://www.youtube.com/watch?v=f8etr_4xxOU)
 [http://v.youku.com/v_show/id_XMz ... j.8428770.3416059.1](http://v.youku.com/v_show/id_XMzk3NDI5NjAxNg==.html?spm=a2h3j.8428770.3416059.1)
-
-
-
-
-
 
 
 -----
@@ -7457,21 +5001,13 @@ TVアニメ「少女☆歌劇 レヴュースタァライト」5thシングルCD
 ##### 7838#       发表于 2018-12-21 19:06
 
 
-
-
 才发现批站剧中歌vol 1 不见了
-
-
-
-
-
 
 
 -----
 
 ####  上杉打老虎  
 ##### 7839#       发表于 2018-12-21 19:43
-
 
 
 <blockquote>龙之峰 发表于 2018-12-14 23:43
@@ -7487,25 +5023,13 @@ https://akiba-souken.com/article/37334/
 住一起后就没法偷偷学习鸟语了吧
 
 
-
-
-
-
-
 -----
 
 ####  wuaistage1  
 ##### 7840#       发表于 2018-12-21 20:20
 
 
-
-
 少歌还是只有动画内那些revue曲才欣赏得来。
-
-
-
-
-
 
 
 -----
@@ -7514,22 +5038,13 @@ https://akiba-souken.com/article/37334/
 ##### 7841#       发表于 2018-12-21 20:25
 
 
-
-
 新出的就你是鬼，我是鬼可以循环，其他都不太行啊
-
-
-
-
-
 
 
 -----
 
 ####  karloku  
 ##### 7842#       发表于 2018-12-22 22:11
-
-
 
 
 第二话秒杀纯纯
@@ -7540,24 +5055,13 @@ https://akiba-souken.com/article/37334/
 根本来说TV还是revue没做好...
 
 
-
-
-
-
-
 -----
 
 ####  安广多惠子  
 ##### 7843#       发表于 2018-12-22 23:24
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">羡慕能看live
-
-
-
-
-
 
 
 -----
@@ -7566,17 +5070,9 @@ https://akiba-souken.com/article/37334/
 ##### 7844#       发表于 2018-12-23 00:20
 
 
-
-
 第二卷BD是26号吧
 
 第二公演要明年了
-
-
-
-
-
-
 
 
 -----
@@ -7585,16 +5081,9 @@ https://akiba-souken.com/article/37334/
 ##### 7845#       发表于 2018-12-23 00:47
 
 
-
-
 感觉群里就我不在现场了，北美巡演快来吧
 
 — from samsung SM-G965W, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
-
-
-
-
-
 
 
 -----
@@ -7603,23 +5092,14 @@ https://akiba-souken.com/article/37334/
 ##### 7846#       发表于 2018-12-23 00:57
 
 
-
-
 恋露合唱飞我去星
 <img src="https://nmbimg.fastmirror.org/image/2018-12-23/5c1e6406e3bfb.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  ラーメン子  
 ##### 7847#       发表于 2018-12-23 01:05
-
-
 
 
 恋は太陽特地现场迫害一次露女士，公式的执着我感受到了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
@@ -7631,16 +5111,10 @@ https://akiba-souken.com/article/37334/
 中午那场的干冰事故强烈要求收录BD，这么无法预测的舞台不收可惜（
 
 
-
-
-
-
-
 -----
 
 ####  karloku  
 ##### 7848#       发表于 2018-12-23 01:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42035198&amp;ptid=1499843" target="_blank">roy1996 发表于 2018-12-23 00:57</a>
@@ -7656,16 +5130,10 @@ https://akiba-souken.com/article/37334/
 (BD3卷的特典曲是花叶情歌, 然后也让moyo和haru与花叶组一起唱了(
 
 
-
-
-
-
-
 -----
 
 ####  Quokka  
 ##### 7849#       发表于 2018-12-23 01:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42035269&amp;ptid=1499843" target="_blank">ラーメン子 发表于 2018-12-23 01:05</a>
@@ -7677,16 +5145,10 @@ https://akiba-souken.com/article/37334/
 —— 来自 vivo NEX S, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.1
 
 
-
-
-
-
-
 -----
 
 ####  ラーメン子  
 ##### 7850#       发表于 2018-12-23 01:33
-
 
 
  本帖最后由 ラーメン子 于 2018-12-23 13:44 编辑 
@@ -7702,10 +5164,6 @@ https://akiba-souken.com/article/37334/
 2018-12-23 01:33 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/23/013327tgxhyujsig1sxj0g.jpg" referrerpolicy="no-referrer">
 
 
@@ -7716,16 +5174,7 @@ https://akiba-souken.com/article/37334/
 2018-12-23 01:33 上传
 
 
-
-
-
-
 歌单
-
-
-
-
-
 
 
 -----
@@ -7734,16 +5183,10 @@ https://akiba-souken.com/article/37334/
 ##### 7851#       发表于 2018-12-23 18:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42035198&amp;ptid=1499843" target="_blank">roy1996 发表于 2018-12-23 00:57</a>
 
 恋露合唱飞我去星</blockquote>
 WXY么<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7752,13 +5195,7 @@ WXY么<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" refe
 ##### 7852#       发表于 2018-12-25 20:22
 
 
-
  药来了药来了 我先死一个
-
-
-
-
-
 
 
 -----
@@ -7767,21 +5204,13 @@ WXY么<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" refe
 ##### 7853#       发表于 2018-12-25 20:24
 
 
-
-
 你鬼我鬼太好听了，awsl
-
-
-
-
-
 
 
 -----
 
 ####  xwr  
 ##### 7854#       发表于 2018-12-26 04:35
-
 
 
  本帖最后由 xwr 于 2018-12-26 04:39 编辑 
@@ -7792,25 +5221,13 @@ WXY么<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" refe
 找到另一个
 
 
-
-
-
-
-
 -----
 
 ####  ianny544  
 ##### 7855#       发表于 2018-12-26 05:48
 
 
-
-
 你鬼我鬼比第一卷那个阿里好听啊
-
-
-
-
-
 
 
 -----
@@ -7819,22 +5236,13 @@ WXY么<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" refe
 ##### 7856#       发表于 2018-12-26 09:43
 
 
-
-
 OVA2什么时候出，看到图透好像maya又谐星了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  ColinWine  
 ##### 7857#       发表于 2018-12-26 11:33
-
-
 
 
 himado.in/457095
@@ -7844,27 +5252,15 @@ ova2生肉
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  ziyer  
 ##### 7858#       发表于 2018-12-26 11:45
 
 
-
-
 你鬼我鬼也太好听了吧！！！！！！！！！！！！！！！！！！！！！！！！！！
 
 好想看这首歌做成revue<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7873,16 +5269,9 @@ ova2生肉
 ##### 7859#       发表于 2018-12-26 12:31
 
 
-
-
 敲碗等ova2<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 —— 来自 vivo NEX S, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -7891,14 +5280,7 @@ ova2生肉
 ##### 7860#       发表于 2018-12-26 12:37
 
 
-
-
 等OVA2，顺便OVA1的熟肉出了么？
-
-
-
-
-
 
 
 -----
@@ -7907,16 +5289,10 @@ ova2生肉
 ##### 7861#       发表于 2018-12-26 13:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42073157&amp;ptid=1499843" target="_blank">xwr 发表于 2018-12-26 12:37:38</a>
 等OVA2，顺便OVA1的熟肉出了么？</blockquote>OVA1熟肉: 
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -7925,16 +5301,7 @@ ova2生肉
 ##### 7862#       发表于 2018-12-26 16:07
 
 
-
-
-
-
 太强了，b站弹幕已经煮熟了
-
-
-
-
-
 
 
 -----
@@ -7943,13 +5310,7 @@ ova2生肉
 ##### 7863#       发表于 2018-12-26 16:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">麻帆姐本色演出那里笑尿了
-
-
-
-
-
 
 
 -----
@@ -7958,14 +5319,7 @@ ova2生肉
 ##### 7864#       发表于 2018-12-26 19:17
 
 
-
-
 看了一圈好多地方都在吐槽首席ooc啊，99组感觉全员苦大仇深的样子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7974,17 +5328,10 @@ ova2生肉
 ##### 7865#       发表于 2018-12-26 21:10
 
 
-
-
 OVA2比起1有意思多了，虽然maya中之人化那段太谐，但补上她输掉以后的不甘还有被欺凌的黑历史，人设丰富了好多
 
 
 自闭光第一次叫了华恋以外的名字，纯那意外地受欢迎？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7993,14 +5340,7 @@ OVA2比起1有意思多了，虽然maya中之人化那段太谐，但补上她�
 ##### 7866#       发表于 2018-12-26 22:30
 
 
-
-
 笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8009,15 +5349,9 @@ OVA2比起1有意思多了，虽然maya中之人化那段太谐，但补上她�
 ##### 7867#       发表于 2018-12-26 22:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42077937&amp;ptid=1499843" target="_blank">ColinWine 发表于 2018-12-26 19:17</a>
 看了一圈好多地方都在吐槽首席ooc啊，99组感觉全员苦大仇深的样子</blockquote>
 圣翔精神疗养院（x
-
-
-
-
-
 
 
 -----
@@ -8026,14 +5360,7 @@ OVA2比起1有意思多了，虽然maya中之人化那段太谐，但补上她�
 ##### 7868#       发表于 2018-12-26 22:40
 
 
-
-
 首席，你在干什么啊首席！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8042,13 +5369,7 @@ OVA2比起1有意思多了，虽然maya中之人化那段太谐，但补上她�
 ##### 7869#       发表于 2018-12-27 22:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首席你在干什么啊！
-
-
-
-
-
 
 
 -----
@@ -8057,15 +5378,7 @@ OVA2比起1有意思多了，虽然maya中之人化那段太谐，但补上她�
 ##### 7870#       发表于 2018-12-28 09:04
 
 
-
-
 【OVA/1080P/熟肉】少女☆歌剧 Revue Starlight OVA 02【个人中字】
-
-
-
-
-
-
 
 
 -----
@@ -8074,15 +5387,8 @@ OVA2比起1有意思多了，虽然maya中之人化那段太谐，但补上她�
 ##### 7871#       发表于 2018-12-28 09:23
 
 
-
-
 emm.....
 <img src="http://wx1.sinaimg.cn/mw690/dcec95dfgy1fym74okx29j208w0i4gmo.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8091,13 +5397,7 @@ emm.....
 ##### 7872#       发表于 2018-12-28 09:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首席TV正片之后一直在被人设崩坏2333
-
-
-
-
-
 
 
 -----
@@ -8106,15 +5406,9 @@ emm.....
 ##### 7873#       发表于 2018-12-28 14:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42095507&amp;ptid=1499843" target="_blank">xwr 发表于 2018-12-28 09:23</a>
 emm.....</blockquote>
 这手<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8123,14 +5417,7 @@ emm.....</blockquote>
 ##### 7874#       发表于 2018-12-28 16:09
 
 
-
-
 夜骑vs王蛇
-
-
-
-
-
 
 
 -----
@@ -8139,23 +5426,16 @@ emm.....</blockquote>
 ##### 7875#       发表于 2018-12-29 21:26
 
 
-
 <img src="https://wx2.sinaimg.cn/large/82f2a336gy1fynx3xwatbj23k0200npe.jpg" referrerpolicy="no-referrer">
 
 
 某种意义上的人气排名？
 
 
-
-
-
-
-
 -----
 
 ####  ianny544  
 ##### 7876#       发表于 2018-12-29 21:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42115065&amp;ptid=1499843" target="_blank">Toby_dak 发表于 2018-12-29 21:26</a>
@@ -8165,25 +5445,13 @@ emm.....</blockquote>
 — from samsung SM-G965W, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  光系植物人  
 ##### 7877#       发表于 2018-12-30 00:23
 
 
-
-
 哈？新人？？？？？你认真？？？？？
-
-
-
-
-
 
 
 -----
@@ -8192,16 +5460,9 @@ emm.....</blockquote>
 ##### 7878#       发表于 2018-12-31 19:12
 
 
-
-
 喷了，少歌专辑在网易云年度日语专里排第四<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 2018要过去了，这些热门歌曲你都听说过吗？ https://music.163.com/m/at/musicof2018?market=MUSIC&amp;userid=50543886
-
-
-
-
-
 
 
 -----
@@ -8210,14 +5471,7 @@ emm.....</blockquote>
 ##### 7879#       发表于 2018-12-31 21:28
 
 
-
-
 11区aiai人气很高的，剧情来说就是另外回事了
-
-
-
-
-
 
 
 -----
@@ -8226,13 +5480,7 @@ emm.....</blockquote>
 ##### 7880#       发表于 2018-12-31 21:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">华恋难道真的会跟真昼打棒球吗，下雪了还在练习挥棒
-
-
-
-
-
 
 
 -----
@@ -8241,15 +5489,7 @@ emm.....</blockquote>
 ##### 7881#       发表于 2018-12-31 22:53
 
 
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在连壁吧都成了少歌的形状了吗？
-
-
-
-
-
 
 
 -----
@@ -8258,15 +5498,9 @@ emm.....</blockquote>
 ##### 7882#       发表于 2019-1-1 11:28
 
 
-
  本帖最后由 xwr 于 2019-1-1 11:31 编辑 
 
 <img src="https://wx1.sinaimg.cn/mw690/da768966ly1fyqw50h2suj20u00w81ky.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8275,22 +5509,14 @@ emm.....</blockquote>
 ##### 7883#       发表于 2019-1-1 13:12
 
 
-
-
 天照神乐光
 有这卡图吗？
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 7884#       发表于 2019-1-1 15:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42138266&amp;ptid=1499843" target="_blank">cmyk1234 发表于 2019-1-1 13:12</a>
@@ -8309,32 +5535,15 @@ emm.....</blockquote>
 2019-1-1 15:23 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  ianny544  
 ##### 7885#       发表于 2019-1-3 21:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有没有好哥哥分享下天照光的台词和剧情啊，我我保底出的是恋哥哥
 
 — from samsung SM-G965W, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
-
-
-
-
-
 
 
 -----
@@ -8343,14 +5552,8 @@ emm.....</blockquote>
 ##### 7886#       发表于 2019-1-3 21:49
 
 
-
 <img src="https://i.loli.net/2019/01/03/5c2e12d443353.jpg" referrerpolicy="no-referrer">
 什么我才看了6遍<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8359,15 +5562,9 @@ emm.....</blockquote>
 ##### 7887#       发表于 2019-1-3 22:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42153092&amp;ptid=1499843" target="_blank">Mika-S 发表于 2019-1-3 21:49</a>
 什么我才看了6遍</blockquote>
 他好像是按你一天之内哪一个看了最多次数算的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8376,21 +5573,13 @@ emm.....</blockquote>
 ##### 7888#       发表于 2019-1-4 01:38
 
 
-
-
 2看完后满脑子都是口合口合口合口合附体<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  扶桑洛槿  
 ##### 7889#       发表于 2019-1-5 11:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42131516&amp;ptid=1499843" target="_blank">Acatv 发表于 2018-12-31 19:12:20</a>
@@ -8401,26 +5590,15 @@ emm.....</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  傘木希美  
 ##### 7890#       发表于 2019-1-7 07:27
 
 
-
 <img src="https://i.loli.net/2019/01/07/5c328ea3e3abc.jpg" referrerpolicy="no-referrer">わかります
 
 —— 来自 vivo NEX S, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -8429,21 +5607,13 @@ emm.....</blockquote>
 ##### 7891#       发表于 2019-1-7 23:38
 
 
-
-
 佛系征集一下，有没有国内长颈鹿BD2、3卷抽明年#2再演的抽选卷不用的能让出来，知道白嫖可耻所以就只是先问问，有意者可以私信详谈<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  白色誓言  
 ##### 7892#       发表于 2019-1-9 20:24
-
 
 
  本帖最后由 白色誓言 于 2019-1-9 20:30 编辑 
@@ -8455,25 +5625,13 @@ emm.....</blockquote>
 <img src="http://ww1.sinaimg.cn/large/8001f760ly1fyx3ba6u3eg20b307ex6s.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 7893#       发表于 2019-1-29 18:27
 
 
-
-
 差点错过了
-
-
-
-
-
 
 
 -----
@@ -8482,14 +5640,7 @@ emm.....</blockquote>
 ##### 7894#       发表于 2019-1-29 18:47
 
 
-
-
 浮起来了就顺便问一声《You are a ghost, I am a ghost 〜劇場のゴース》有没有好点的资源……
-
-
-
-
-
 
 
 -----
@@ -8498,16 +5649,7 @@ emm.....</blockquote>
 ##### 7895#       发表于 2019-2-4 20:45
 
 
-
-
-
-
 之前这个龙骑系列的第三回，完全没有违和感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8516,16 +5658,9 @@ emm.....</blockquote>
 ##### 7896#       发表于 2019-2-11 21:55
 
 
-
-
 b站放送科凉了，以后去哪刷live呀<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -8534,23 +5669,16 @@ b站放送科凉了，以后去哪刷live呀<img src="https://static.saraba1st.c
 ##### 7897#       发表于 2019-2-11 23:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42560694&amp;ptid=1499843" target="_blank">ColinWine 发表于 2019-02-11 21:55:21</a>
 b站放送科凉了，以后去哪刷live呀</blockquote>什么情况，版权方警告？
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  元亓  
 ##### 7898#       发表于 2019-2-11 23:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42561335&amp;ptid=1499843" target="_blank">一个陆仁贾 发表于 2019-2-11 23:02</a>
@@ -8562,16 +5690,10 @@ b站放送科凉了，以后去哪刷live呀</blockquote>什么情况，版权�
 波丽佳音警告咯。。不是第一次干了  版权时代就这样 <img src="https://static.saraba1st.com/image/smiley/face2017/151.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  一个陆仁贾  
 ##### 7899#       发表于 2019-2-11 23:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42561495&amp;ptid=1499843" target="_blank">元亓 发表于 2019-02-11 23:17:32</a>
@@ -8580,25 +5702,13 @@ b站放送科凉了，以后去哪刷live呀</blockquote>什么情况，版权�
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  damian-wade  
 ##### 7900#       发表于 2019-2-12 01:20
 
 
-
-
 live和舞台剧就算了，连生放和其他活动的所有熟肉都一网打尽...少鸽好不容易攒来的那点热度药丸
-
-
-
-
-
 
 
 -----
@@ -8607,14 +5717,7 @@ live和舞台剧就算了，连生放和其他活动的所有熟肉都一网打�
 ##### 7901#       发表于 2019-2-12 03:09
 
 
-
-
 人类史上最大最恶绝望事件<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8623,14 +5726,7 @@ live和舞台剧就算了，连生放和其他活动的所有熟肉都一网打�
 ##### 7902#       发表于 2019-2-12 03:23
 
 
-
-
 草泥马傻逼资本家
-
-
-
-
-
 
 
 -----
@@ -8639,17 +5735,10 @@ live和舞台剧就算了，连生放和其他活动的所有熟肉都一网打�
 ##### 7903#       发表于 2019-2-12 07:09
 
 
-
-
 艹，TV动画播放前的youtube live西天夜谈我才到第2啊！
 
 
 ----发送自 [Sony G8342,Android 9](http://stage1.5j4m.com/?1.33)
-
-
-
-
-
 
 
 -----
@@ -8658,14 +5747,7 @@ live和舞台剧就算了，连生放和其他活动的所有熟肉都一网打�
 ##### 7904#       发表于 2019-2-12 08:09
 
 
-
-
 放送科竟然没了。。。。。。。。。。。。。。。。。。。。。
-
-
-
-
-
 
 
 -----
@@ -8674,14 +5756,7 @@ live和舞台剧就算了，连生放和其他活动的所有熟肉都一网打�
 ##### 7905#       发表于 2019-2-12 11:30
 
 
-
-
 完了，全TM完了.jpg
-
-
-
-
-
 
 
 -----
@@ -8690,14 +5765,7 @@ live和舞台剧就算了，连生放和其他活动的所有熟肉都一网打�
 ##### 7906#       发表于 2019-2-12 12:03
 
 
-
-
 转投a站吧
-
-
-
-
-
 
 
 -----
@@ -8706,16 +5774,7 @@ live和舞台剧就算了，连生放和其他活动的所有熟肉都一网打�
 ##### 7907#       发表于 2019-2-12 20:19
 
 
-
-
-
-
 这个MAD真棒<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8724,15 +5783,9 @@ live和舞台剧就算了，连生放和其他活动的所有熟肉都一网打�
 ##### 7908#       发表于 2019-2-12 20:43
 
 
-
  本帖最后由 寺川愛美 于 2019-2-12 20:52 编辑 
 
 我決定去大馬哈魚看看有什麼可以撈<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8741,14 +5794,7 @@ live和舞台剧就算了，连生放和其他活动的所有熟肉都一网打�
 ##### 7909#       发表于 2019-2-12 20:50
 
 
-
-
 下载，你去哪下载各种活动熟肉？
-
-
-
-
-
 
 
 -----
@@ -8757,16 +5803,10 @@ live和舞台剧就算了，连生放和其他活动的所有熟肉都一网打�
 ##### 7910#       发表于 2019-2-12 20:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42571065&amp;ptid=1499843" target="_blank">wuaistage1 发表于 2019-2-12 20:50</a>
 
 下载，你去哪下载各种活动熟肉？</blockquote>
 又不是整組人間蒸發...我在群裡問就好了啊...<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8775,16 +5815,10 @@ live和舞台剧就算了，连生放和其他活动的所有熟肉都一网打�
 ##### 7911#       发表于 2019-2-13 02:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42571105&amp;ptid=1499843" target="_blank">寺川愛美 发表于 2019-02-12 20:54:57</a>
 又不是整組人間蒸發...我在群裡問就好了啊...</blockquote>有网盘资源么 主要是生放送 舞台剧跟live求个字幕就好  生态浩劫 救救长颈鹿
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -8793,15 +5827,7 @@ live和舞台剧就算了，连生放和其他活动的所有熟肉都一网打�
 ##### 7912#       发表于 2019-2-13 21:40
 
 
-
-
 革命形势那么差，来吃点糖吧，我都被这两个人营业进去了……
-
-
-
-
-
-
 
 
 -----
@@ -8810,14 +5836,7 @@ live和舞台剧就算了，连生放和其他活动的所有熟肉都一网打�
 ##### 7913#       发表于 2019-2-13 23:09
 
 
-
-
 资本家有病。
-
-
-
-
-
 
 
 -----
@@ -8826,14 +5845,7 @@ live和舞台剧就算了，连生放和其他活动的所有熟肉都一网打�
 ##### 7914#       发表于 2019-2-14 00:42
 
 
-
-
 生放的搬运也被干掉了？
-
-
-
-
-
 
 
 -----
@@ -8842,22 +5854,13 @@ live和舞台剧就算了，连生放和其他活动的所有熟肉都一网打�
 ##### 7915#       发表于 2019-2-15 21:43
 
 
-
-
 放送科补档了
-
-
-
-
-
 
 
 -----
 
 ####  zhDesire  
 ##### 7916#       发表于 2019-2-20 00:25
-
-
 
 
 刚才打csgo遇到对面有个id叫恋哥哥牛逼的
@@ -8870,16 +5873,10 @@ live和舞台剧就算了，连生放和其他活动的所有熟肉都一网打�
 唉  想必网线另一边牵着的也是一位抠脚大汉
 
 
-
-
-
-
-
 -----
 
 ####  ianny544  
 ##### 7917#       发表于 2019-2-20 00:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42655333&amp;ptid=1499843" target="_blank">zhDesire 发表于 2019-2-20 00:25</a>
@@ -8892,17 +5889,10 @@ live和舞台剧就算了，连生放和其他活动的所有熟肉都一网打�
 是命运的相会
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 7918#         楼主| 发表于 2019-2-27 11:14
-
-
 
 
 TVアニメ「少女☆歌劇 レヴュースタァライト」Blu-ray BOX③ 特典CD「恋は太陽　～CIRCUS!～」試聴動画
@@ -8910,17 +5900,10 @@ TVアニメ「少女☆歌劇 レヴュースタァライト」Blu-ray BOX③ �
 [http://v.youku.com/v_show/id_XND ... j.8428770.3416059.1](http://v.youku.com/v_show/id_XNDA3OTUwNjcyMA==.html?spm=a2h3j.8428770.3416059.1)
 
 
-
-
-
-
-
 -----
 
 ####  ColinWine  
 ##### 7919#       发表于 2019-2-27 13:06
-
-
 
 
 少歌新药发放了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">：
@@ -8931,16 +5914,10 @@ OVA3:
 舞台剧2（抓紧缓存，别三连）：
 
 
-
-
-
-
-
 -----
 
 ####  waster112  
 ##### 7920#       发表于 2019-2-27 15:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42739882&amp;ptid=1499843" target="_blank">ColinWine 发表于 2019-2-27 13:06</a>
@@ -8951,16 +5928,10 @@ OVA3: https://www.bilibili.com/video/av44817181</blockquote>
 权限下吧？
 
 
-
-
-
-
-
 -----
 
 ####  modedd  
 ##### 7921#       发表于 2019-2-27 15:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42739882&amp;ptid=1499843" target="_blank">ColinWine 发表于 2019-2-27 13:06</a>
@@ -8971,25 +5942,13 @@ OVA3: https://www.bilibili.com/video/av44817181</blockquote>
 这OVA糖拉满啊真是<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  sad6504  
 ##### 7922#       发表于 2019-2-27 16:11
 
 
-
-
 这班上不下去了，我要吸少歌！
-
-
-
-
-
 
 
 -----
@@ -8998,13 +5957,7 @@ OVA3: https://www.bilibili.com/video/av44817181</blockquote>
 ##### 7923#       发表于 2019-2-27 16:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">恋哥哥两话OVA连台词都没有结果是为了去赢嫁妆
-
-
-
-
-
 
 
 -----
@@ -9013,14 +5966,7 @@ OVA3: https://www.bilibili.com/video/av44817181</blockquote>
 ##### 7924#       发表于 2019-2-27 18:20
 
 
-
-
 啊啊啊，药来了，更有糖。九九组赛高！好喜欢舞台剧。<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9029,21 +5975,13 @@ OVA3: https://www.bilibili.com/video/av44817181</blockquote>
 ##### 7925#       发表于 2019-2-27 19:51
 
 
-
-
 ova真好看！感觉要旧病复发
-
-
-
-
-
 
 
 -----
 
 ####  550616  
 ##### 7926#       发表于 2019-2-27 20:18
-
 
 
  本帖最后由 550616 于 2019-2-27 20:20 编辑 
@@ -9056,17 +5994,10 @@ ova真好看！感觉要旧病复发
 都忘记第三卷BD的事情了，补全最后3话NCED
 
 
-
-
-
-
-
-
 -----
 
 ####  秋雨灰灰  
 ##### 7927#       发表于 2019-2-27 21:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42744754&amp;ptid=1499843" target="_blank">550616 发表于 2019-2-27 20:18</a>
@@ -9075,26 +6006,15 @@ ova真好看！感觉要旧病复发
 拖了，Rose Poems还行
 
 
-
-
-
-
-
 -----
 
 ####  YESIARE  
 ##### 7928#       发表于 2019-2-27 21:23
 
 
-
  本帖最后由 YESIARE 于 2019-2-27 21:24 编辑 
 
 少歌ova+一小时后的小畜生直面会 今天双份的快乐<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9103,14 +6023,7 @@ ova真好看！感觉要旧病复发
 ##### 7929#       发表于 2019-2-28 15:47
 
 
-
-
 这OVA3甜死我了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9119,15 +6032,9 @@ ova真好看！感觉要旧病复发
 ##### 7930#       发表于 2019-3-1 08:56
 
 
-
  本帖最后由 zjylyy 于 2019-3-1 09:03 编辑 
 
 这哪是准备舞台剧，这是准备结婚啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9136,14 +6043,7 @@ ova真好看！感觉要旧病复发
 ##### 7931#       发表于 2019-3-1 10:00
 
 
-
-
 第二季给老子出！！！！
-
-
-
-
-
 
 
 -----
@@ -9152,15 +6052,8 @@ ova真好看！感觉要旧病复发
 ##### 7932#       发表于 2019-3-1 12:21
 
 
-
-
 蕉哥哥轮舞一出就泪奔了
 这也是流动的时间和耀眼的舞台啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9169,14 +6062,7 @@ ova真好看！感觉要旧病复发
 ##### 7933#       发表于 2019-3-1 23:28
 
 
-
-
 舞台剧#2 字幕版出来了，没人关注么？
-
-
-
-
-
 
 
 -----
@@ -9185,16 +6071,10 @@ ova真好看！感觉要旧病复发
 ##### 7934#       发表于 2019-3-1 23:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42769665&amp;ptid=1499843" target="_blank">101207777 发表于 2019-3-1 23:28</a>
 
 舞台剧#2 字幕版出来了，没人关注么？</blockquote>
 发个AV号链接 马上缓存啊 谢谢告知
-
-
-
-
-
 
 
 -----
@@ -9203,14 +6083,7 @@ ova真好看！感觉要旧病复发
 ##### 7935#       发表于 2019-3-2 00:08
 
 
-
-
 舞台剧2说真的远不如1，这条线的续写也不太感兴趣。希望能有手游剧情动画化或舞台化
-
-
-
-
-
 
 
 -----
@@ -9219,21 +6092,13 @@ ova真好看！感觉要旧病复发
 ##### 7936#       发表于 2019-3-2 00:12
 
 
-
-
 看完OVA3才有一种少鸽终于完结的感觉，可惜太短了，要是正常长度就好了，不知何时能有二期<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  550616  
 ##### 7937#       发表于 2019-3-2 00:27
-
 
 
  本帖最后由 550616 于 2019-3-2 02:15 编辑 
@@ -9245,17 +6110,10 @@ ova真好看！感觉要旧病复发
 小山百代这场也太轻松（快够）
 
 
-
-
-
-
-
-
 -----
 
 ####  550616  
 ##### 7938#       发表于 2019-3-2 01:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42769798&amp;ptid=1499843" target="_blank">chexk03 发表于 2019-3-1 23:44</a>
@@ -9264,27 +6122,15 @@ ova真好看！感觉要旧病复发
 44960475
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 7939#       发表于 2019-3-2 04:12
 
 
-
-
 青岚这三人感觉还挺有意思的，互相顾忌着不敢争主角这种人在圣翔是缺少的
 
 但maya都跳反了你倒是让她跟克洛打呀！刚分完组就不打了是想糊弄本长颈鹿吗！
-
-
-
-
-
 
 
 -----
@@ -9293,16 +6139,9 @@ ova真好看！感觉要旧病复发
 ##### 7940#       发表于 2019-3-2 10:39
 
 
-
-
 10.21那个周末正好去东京看青鸟加映，在秋叶原只能眼巴巴的看着<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"><img src="https://i.loli.net/2019/03/02/5c79ecb911d27.jpg" referrerpolicy="no-referrer">
 
 —— 来自 vivo NEX S, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -9311,21 +6150,13 @@ ova真好看！感觉要旧病复发
 ##### 7941#       发表于 2019-3-2 12:46
 
 
-
-
 OVA看得全程傻笑，感觉自己有点不妙。<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Stellar_Frost  
 ##### 7942#       发表于 2019-3-2 12:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42773565&amp;ptid=1499843" target="_blank">不是很懂二次元 发表于 2019-3-2 12:46</a>
@@ -9336,32 +6167,19 @@ OVA看得全程傻笑，感觉自己有点不妙。</blockquote>
 感觉自己💊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Mr_DECADE  
 ##### 7943#       发表于 2019-3-2 18:27
 
 
-
-
 舞台剧2剧情不如1
-
-
-
-
-
 
 
 -----
 
 ####  unnilennium  
 ##### 7944#       发表于 2019-3-2 18:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42770176&amp;ptid=1499843" target="_blank">550616 发表于 2019-3-2 00:27</a>
@@ -9372,16 +6190,10 @@ OVA看得全程傻笑，感觉自己有点不妙。</blockquote>
 对，座长因为#2摸鱼太久了所以2nd没有放过她（滚
 
 
-
-
-
-
-
 -----
 
 ####  550616  
 ##### 7945#       发表于 2019-3-2 19:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42776302&amp;ptid=1499843" target="_blank">unnilennium 发表于 2019-3-2 18:36</a>
@@ -9392,32 +6204,19 @@ OVA看得全程傻笑，感觉自己有点不妙。</blockquote>
 认真说，#2剧情不太好
 
 
-
-
-
-
-
 -----
 
 ####  Cynical  
 ##### 7946#       发表于 2019-3-2 19:14
 
 
-
-
 第二季，请！！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  秋雨灰灰  
 ##### 7947#       发表于 2019-3-2 22:22
-
 
 
  本帖最后由 秋雨灰灰 于 2019-3-2 23:16 编辑 
@@ -9427,17 +6226,10 @@ OVA看得全程傻笑，感觉自己有点不妙。</blockquote>
 —— 来自 LGE LM-G710, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  Totokei  
 ##### 7948#       发表于 2019-3-2 22:56
-
-
 
 
 其实我在想露妈妈在OVA3说她只能打150是不是说明她也曾经为了小光去参加过那个比赛?
@@ -9445,16 +6237,10 @@ OVA看得全程傻笑，感觉自己有点不妙。</blockquote>
 但是恋哥哥是开演当天才去打球又给我一种是当天限定的比赛的感觉,还是说150那个只是露妈妈平时的水平<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  8822  
 ##### 7949#       发表于 2019-3-2 23:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42778437&amp;ptid=1499843" target="_blank">Totokei 发表于 2019-3-2 22:56</a>
@@ -9464,16 +6250,10 @@ OVA看得全程傻笑，感觉自己有点不妙。</blockquote>
 我当时也觉得露妈妈是为了某人去打的棒球，至于是为了恋哥哥还是小光另说
 
 
-
-
-
-
-
 -----
 
 ####  unnilennium  
 ##### 7950#       发表于 2019-3-2 23:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42776608&amp;ptid=1499843" target="_blank">550616 发表于 2019-3-2 19:13</a>
@@ -9486,25 +6266,13 @@ OVA看得全程傻笑，感觉自己有点不妙。</blockquote>
 演员很努力，听听歌总是好的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 7951#       发表于 2019-3-2 23:23
 
 
-
-
 我是觉得#2还不错啊。。。舞台剧冲突手段逻辑性本来就不强，2里面的主线简单明了，相比1就要好理解的多（说实话1如果没有动画加成我是看不太懂的）
-
-
-
-
-
 
 
 -----
@@ -9513,16 +6281,10 @@ OVA看得全程傻笑，感觉自己有点不妙。</blockquote>
 ##### 7952#       发表于 2019-3-2 23:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42778534&amp;ptid=1499843" target="_blank">8822 发表于 2019-3-2 23:06</a>
 
 我当时也觉得露妈妈是为了某人去打的棒球，至于是为了恋哥哥还是小光另说 ...</blockquote>
 露妈本来就喜欢棒球吧
-
-
-
-
-
 
 
 -----
@@ -9531,14 +6293,7 @@ OVA看得全程傻笑，感觉自己有点不妙。</blockquote>
 ##### 7953#       发表于 2019-3-3 02:21
 
 
-
-
 #2演员们的进步都很明显，歌的水平也没有下降（tear好听爆），打斗也帅掉渣，也丰富了人设（真实二层展开）。但我不太满意的地方也有不少，比如青岚三人的人设没有立住，估计就出场一次就隐了；还有就是冲突比较迷（很多地方看不太懂），华恋再生产的动机比较怪。#1也有各种问题，但总体而言我还是更喜欢#1。不过我还是很乐观的，看完#2更加期待动画第二季和#3了，真演到毕业的时候我怕是会哭崩吧。
-
-
-
-
-
 
 
 -----
@@ -9547,17 +6302,10 @@ OVA看得全程傻笑，感觉自己有点不妙。</blockquote>
 ##### 7954#       发表于 2019-3-3 09:16
 
 
-
-
 二显得简单直白的原因，其实是因为一可是有九个人不同的个性和矛盾可以展现，自然会显得冲突更加激烈竞争和复杂。二里大家的心结基本上都解开了，只能靠仨外校学生制造新的冲突。但是人数少，又很唐突，自然差一点。
 不过这也是没办法的事情，只能说现在还能做出这样的水准已经挺棒了。而且动画逆输出也挺厉害的
 
 —— 来自 HUAWEI KNT-AL20, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -9566,16 +6314,10 @@ OVA看得全程傻笑，感觉自己有点不妙。</blockquote>
 ##### 7955#       发表于 2019-3-3 09:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42778534&amp;ptid=1499843" target="_blank">8822 发表于 2019-3-2 23:06</a>
 
 我当时也觉得露妈妈是为了某人去打的棒球，至于是为了恋哥哥还是小光另说 ...</blockquote>
 手游里不止一次表现出露妈是真喜欢棒球，还会去现场应援
-
-
-
-
-
 
 
 -----
@@ -9584,15 +6326,9 @@ OVA看得全程傻笑，感觉自己有点不妙。</blockquote>
 ##### 7956#       发表于 2019-3-3 13:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42778695&amp;ptid=1499843" target="_blank">Goisdust 发表于 2019-3-2 23:26</a>
 露妈本来就喜欢棒球吧</blockquote>
 毕竟revue都是棒球场地，真爱了
-
-
-
-
-
 
 
 -----
@@ -9601,22 +6337,15 @@ OVA看得全程傻笑，感觉自己有点不妙。</blockquote>
 ##### 7957#       发表于 2019-3-3 15:37
 
 
-
  本帖最后由 550616 于 2019-3-3 15:40 编辑 
 
 岩田做过棒球兼职，纯粹是个人喜好
-
-
-
-
-
 
 
 -----
 
 ####  cmyk1234  
 ##### 7958#       发表于 2019-3-3 23:09
-
 
 
  本帖最后由 cmyk1234 于 2019-3-3 23:15 编辑 
@@ -9633,28 +6362,15 @@ P.K.O=鸟海浩辅、サエキ トモ（佐伯智，女，通称兄贵）、铃�
 Milky Holmes=德井青空，三森铃子，橘田泉，佐佐木未来
 
 
-
-
-
-
-
-
 -----
 
 ####  好多树  
 ##### 7959#       发表于 2019-3-4 09:50
 
 
-
-
 OVA3一堆人围着安慰小光，怎么看都是娘家人嫁女儿婚礼前一天的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -9663,14 +6379,7 @@ OVA3一堆人围着安慰小光，怎么看都是娘家人嫁女儿婚礼前一�
 ##### 7960#       发表于 2019-3-4 22:15
 
 
-
-
 话说第二场舞台剧的歌不是在BD的CD里有附吗？怎么在网上还搜不到...
-
-
-
-
-
 
 
 -----
@@ -9679,17 +6388,10 @@ OVA3一堆人围着安慰小光，怎么看都是娘家人嫁女儿婚礼前一�
 ##### 7961#       发表于 2019-3-5 13:43
 
 
-
-
 #2武戏是真的帅，剧情是真的烂，歌是真的好，台词是真的尬……
 然后我一定要吐槽一下舞台剧部分的编舞，看结尾staff表好像振付一共就两个人，怎么做到的舞台剧部分和live部分编舞差距那么大，舞台剧几乎就是那么几个动作转圈翻来覆去，卡不上点又用不上力的别扭死了，再看看live动作潇洒帅气优雅撩人不一而足，怎么差距特么就那么大，舞台剧真的用心编了吗
 
 — from samsung SM-G955W, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
-
-
-
-
-
 
 
 -----
@@ -9698,16 +6400,9 @@ OVA3一堆人围着安慰小光，怎么看都是娘家人嫁女儿婚礼前一�
 ##### 7962#       发表于 2019-3-5 13:47
 
 
-
-
 剧情我有一个地方好无语，青岚你们一共就三个人revue还没打赢为什么非要在starlight这棵树上吊死，你要是打赢revue夺走别人的闪耀了那你演就演吧，反正别人没你闪耀，你抢又没抢来人又少得一比，还非要演同一个剧。圣翔改成9人starlight已经很了不得了，你们特么要演3人starlight比圣翔还牛逼，整个日本是就剩下这么一台剧了吗，你演个moonlight是能死吗
 
 — from samsung SM-G955W, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
-
-
-
-
-
 
 
 -----
@@ -9716,23 +6411,16 @@ OVA3一堆人围着安慰小光，怎么看都是娘家人嫁女儿婚礼前一�
 ##### 7963#       发表于 2019-3-5 14:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42797376&amp;ptid=1499843" target="_blank">秋雨灰灰 发表于 2019-03-04 22:15:28</a>
 话说第二场舞台剧的歌不是在BD的CD里有附吗？怎么在网上还搜不到...</blockquote>网易云今天11:22上传了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  秋雨灰灰  
 ##### 7964#       发表于 2019-3-5 14:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42803081&amp;ptid=1499843" target="_blank">aceralon 发表于 2019-3-5 14:23</a>
@@ -9744,17 +6432,10 @@ OVA3一堆人围着安慰小光，怎么看都是娘家人嫁女儿婚礼前一�
 我来惹，10遍tear
 
 
-
-
-
-
-
 -----
 
 ####  damian-wade  
 ##### 7965#       发表于 2019-3-6 00:08
-
-
 
 
 要找九个对应的舞台剧演员成本太高了吧，手游其他学校都放弃九人组了...直接导致#2为了对戏各种25、放水、多大小的尴尬局面，最后直接让老师当boss
@@ -9766,25 +6447,13 @@ OVA3一堆人围着安慰小光，怎么看都是娘家人嫁女儿婚礼前一�
 给真昼和蕉哥哥空降过去的女人有点突兀，一个习惯依赖一个习惯孤独的角色其实以前都有天狗，感觉好微妙
 
 
-
-
-
-
-
 -----
 
 ####  nodkane  
 ##### 7966#       发表于 2019-3-6 00:24
 
 
-
-
 就不知道假如有动画第二季的话是走舞台剧线还是手游线 舞台剧线就只有3个人 手游线有三间学校但好像戏份太分散
-
-
-
-
-
 
 
 -----
@@ -9793,15 +6462,7 @@ OVA3一堆人围着安慰小光，怎么看都是娘家人嫁女儿婚礼前一�
 ##### 7967#       发表于 2019-3-6 21:43
 
 
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">王虫它出现了！
-
-
-
-
-
 
 
 -----
@@ -9810,14 +6471,7 @@ OVA3一堆人围着安慰小光，怎么看都是娘家人嫁女儿婚礼前一�
 ##### 7968#       发表于 2019-3-8 19:53
 
 
-
-
 萌p要出演七海灯子了
-
-
-
-
-
 
 
 -----
@@ -9826,16 +6480,10 @@ OVA3一堆人围着安慰小光，怎么看都是娘家人嫁女儿婚礼前一�
 ##### 7969#       发表于 2019-3-8 20:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42809063&amp;ptid=1499843" target="_blank">nodkane 发表于 2019-03-06 00:24:43</a>
 就不知道假如有动画第二季的话是走舞台剧线还是手游线 舞台剧线就只有3个人 手游线有三间学校但好像戏份太 ...</blockquote>走手游线复制邦模式即可，外校身世也不必多交代，对角色有兴趣的人自然会去玩游戏
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -9844,16 +6492,9 @@ OVA3一堆人围着安慰小光，怎么看都是娘家人嫁女儿婚礼前一�
 ##### 7970#       发表于 2019-3-8 22:01
 
 
-
-
 七海灯子出来挨打
 
 糟了，是斜阳的多重斩，打不过，溜了溜了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9862,14 +6503,7 @@ OVA3一堆人围着安慰小光，怎么看都是娘家人嫁女儿婚礼前一�
 ##### 7971#       发表于 2019-3-9 01:51
 
 
-
-
 你们在哪看的舞台剧2啊 有字幕吗
-
-
-
-
-
 
 
 -----
@@ -9878,15 +6512,7 @@ OVA3一堆人围着安慰小光，怎么看都是娘家人嫁女儿婚礼前一�
 ##### 7972#       发表于 2019-3-9 13:02
 
 
-
-
-
 鬼才剪辑 BD3特典：爱是苏联
-
-
-
-
-
 
 
 -----
@@ -9895,16 +6521,9 @@ OVA3一堆人围着安慰小光，怎么看都是娘家人嫁女儿婚礼前一�
 ##### 7973#       发表于 2019-3-29 06:59
 
 
-
-
 阿b好像入正了
 
 —— 来自 Xiaomi MI 6, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -9913,14 +6532,7 @@ OVA3一堆人围着安慰小光，怎么看都是娘家人嫁女儿婚礼前一�
 ##### 7974#       发表于 2019-3-29 07:37
 
 
-
-
 ASL2018碟源出了，99组的帝国华击团调音比之前富士版舒服了
-
-
-
-
-
 
 
 -----
@@ -9929,21 +6541,13 @@ ASL2018碟源出了，99组的帝国华击团调音比之前富士版舒服了
 ##### 7975#       发表于 2019-3-29 11:04
 
 
-
-
 阿b那个番剧茶会里说4月会公布关于少女歌剧的消息，也不知道是买了舞台剧还是啥。。。
-
-
-
-
-
 
 
 -----
 
 ####  memphiseme  
 ##### 7976#       发表于 2019-3-29 18:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43082955&amp;ptid=1499843" target="_blank">cybernetics 发表于 2019-3-29 11:04</a>
@@ -9960,15 +6564,7 @@ ASL2018碟源出了，99组的帝国华击团调音比之前富士版舒服了
 2019-3-29 18:31 上传
 
 
-
-
-
 是舞台剧，土妞输了？
-
-
-
-
-
 
 
 -----
@@ -9977,14 +6573,7 @@ ASL2018碟源出了，99组的帝国华击团调音比之前富士版舒服了
 ##### 7977#       发表于 2019-3-29 19:22
 
 
-
-
 阿b这个操作还像话<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">招安太爽叻
-
-
-
-
-
 
 
 -----
@@ -9993,16 +6582,9 @@ ASL2018碟源出了，99组的帝国华击团调音比之前富士版舒服了
 ##### 7978#         楼主| 发表于 2019-3-29 19:26
 
 
-
-
 我觉得本来招安肯定比自己搞方便，很多人说什么什么为什么不如民间汉化组的水平，因为那些都有人外包了吧
 
 印象中当时说网易漫画也是招安了天麻吧的汉化组
-
-
-
-
-
 
 
 -----
@@ -10011,21 +6593,13 @@ ASL2018碟源出了，99组的帝国华击团调音比之前富士版舒服了
 ##### 7979#       发表于 2019-3-29 20:34
 
 
-
-
 B站各种推 也是真爱了
-
-
-
-
-
 
 
 -----
 
 ####  若荼泱  
 ##### 7980#       发表于 2019-3-29 21:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43090796&amp;ptid=1499843" target="_blank">元亓 发表于 2019-3-29 20:34</a>
@@ -10035,24 +6609,13 @@ B站各种推 也是真爱了</blockquote>
 —— 来自 Google Pixel, Android Q上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.1-alpha
 
 
-
-
-
-
-
 -----
 
 ####  ky刃  
 ##### 7981#       发表于 2019-3-31 18:22
 
 
-
 <img src="https://wx4.sinaimg.cn/mw1024/8c175430gy1g1m5dwqc0jj20xc0irwi5.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10061,14 +6624,7 @@ B站各种推 也是真爱了</blockquote>
 ##### 7982#       发表于 2019-3-31 18:47
 
 
-
-
 期待这个新番<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10077,14 +6633,7 @@ B站各种推 也是真爱了</blockquote>
 ##### 7983#       发表于 2019-3-31 19:20
 
 
-
-
 刀马旦都先后出沙雕小动画了，第二季什么时候安排下<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10093,16 +6642,9 @@ B站各种推 也是真爱了</blockquote>
 ##### 7984#       发表于 2019-3-31 19:42
 
 
-
-
 第二季！第二季！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 —— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -10111,14 +6653,7 @@ B站各种推 也是真爱了</blockquote>
 ##### 7985#       发表于 2019-3-31 20:12
 
 
-
-
 邦邦那边都剧场版+第三季了，少歌加油啊
-
-
-
-
-
 
 
 -----
@@ -10127,14 +6662,7 @@ B站各种推 也是真爱了</blockquote>
 ##### 7986#       发表于 2019-3-31 20:16
 
 
-
-
 交响乐生演奏revue曲，好想听
-
-
-
-
-
 
 
 -----
@@ -10143,14 +6671,7 @@ B站各种推 也是真爱了</blockquote>
 ##### 7987#       发表于 2019-3-31 20:17
 
 
-
-
 果然是复制邦的老路
-
-
-
-
-
 
 
 -----
@@ -10159,16 +6680,7 @@ B站各种推 也是真爱了</blockquote>
 ##### 7988#       发表于 2019-3-31 20:23
 
 
-
-
-
-
 奥丁蕉出场了！奥丁蕉使用了时间降临！
-
-
-
-
-
 
 
 -----
@@ -10177,16 +6689,9 @@ B站各种推 也是真爱了</blockquote>
 ##### 7989#       发表于 2019-3-31 22:09
 
 
-
-
 这次是只有6000日元的bd有交响乐么，那那个通常盘会有啥？
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -10195,21 +6700,13 @@ B站各种推 也是真爱了</blockquote>
 ##### 7990#       发表于 2019-3-31 22:23
 
 
-
-
 迷你動畫是個好的商業決定<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xjx  
 ##### 7991#       发表于 2019-3-31 22:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43113733&amp;ptid=1499843" target="_blank">安广多惠子 发表于 2019-03-31 20:16:37</a>
@@ -10219,25 +6716,13 @@ B站各种推 也是真爱了</blockquote>
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  JustW  
 ##### 7992#       发表于 2019-3-31 22:43
 
 
-
-
 爽了，沙雕四格是不是就这么安排上了？
-
-
-
-
-
 
 
 -----
@@ -10246,21 +6731,13 @@ B站各种推 也是真爱了</blockquote>
 ##### 7993#       发表于 2019-4-1 22:41
 
 
-
-
 甭管什么形式只要少女歌剧能续命。我就是幸福的人！
-
-
-
-
-
 
 
 -----
 
 ####  xwr  
 ##### 7994#       发表于 2019-4-12 09:39
-
 
 
 <blockquote>SOS动漫社团-SOS姬
@@ -10279,16 +6756,10 @@ B站各种推 也是真爱了</blockquote>
 <img src="https://wx3.sinaimg.cn/mw690/64a00586ly1g1ziwfvzgcj20yb0plkjl.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  greelmr1981  
 ##### 7995#       发表于 2019-4-14 21:07
-
 
 
 [https://www.bilibili.com/bangumi ... 6e65725f6c696e6b.13](https://www.bilibili.com/bangumi/play/ss26930?spm_id_from=333.5.b_62616e6e65725f6c696e6b.13)
@@ -10297,27 +6768,15 @@ B站各种推 也是真爱了</blockquote>
 来了来了，长颈鹿的狂欢！
 
 
-
-
-
-
-
 -----
 
 ####  KIMINO  
 ##### 7996#       发表于 2019-4-14 21:48
 
 
-
-
 昨天在上海参加线下的时候发现少歌女粉是真的多，到场男女比例差不多一比一。而且舞台剧＃2据在场b站的人说再过两个月应该也能安排上。果然是朝中有人好办事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。
 
 —— 来自 HUAWEI PAR-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -10326,16 +6785,10 @@ B站各种推 也是真爱了</blockquote>
 ##### 7997#         楼主| 发表于 2019-4-14 22:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43303341&amp;ptid=1499843" target="_blank">KIMINO 发表于 2019-4-14 21:48</a>
 
 昨天在上海参加线下的时候发现少歌女粉是真的多，到场男女比例差不多一比一。而且舞台剧＃2据在场b站的人说 ...</blockquote>
 当时少女歌剧在BW有个剧场活动，到场的都是邦邦人，男性较多（当时好像才播到第2话还是第3话），主要是来看伊藤彩沙的……
-
-
-
-
-
 
 
 -----
@@ -10344,16 +6797,10 @@ B站各种推 也是真爱了</blockquote>
 ##### 7998#       发表于 2019-4-15 09:05
 
 
-
 <img src="https://wx4.sinaimg.cn/large/6ab0a3e6ly1g220ia8mc7j21kw11uwsf.jpg" referrerpolicy="no-referrer">
 <img src="https://wx3.sinaimg.cn/large/6ab0a3e6ly1g220iajl64j211u1kw7gp.jpg" referrerpolicy="no-referrer">
 <img src="https://wx2.sinaimg.cn/large/6ab0a3e6ly1g220iatqhaj21kw11uk0h.jpg" referrerpolicy="no-referrer">
 <img src="https://wx1.sinaimg.cn/large/6ab0a3e6ly1g220ibk5n1j21kw11ugw1.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10362,14 +6809,7 @@ B站各种推 也是真爱了</blockquote>
 ##### 7999#       发表于 2019-4-17 17:12
 
 
-
-
 ateam这车有点帅啊
-
-
-
-
-
 
 
 -----
@@ -10378,16 +6818,9 @@ ateam这车有点帅啊
 ##### 8000#       发表于 2019-4-17 17:24
 
 
-
-
 想看渣恋上墙(
 
 —— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -10396,14 +6829,7 @@ ateam这车有点帅啊
 ##### 8001#       发表于 2019-4-17 19:09
 
 
-
-
 现在有没有2nd live看了啊- -
-
-
-
-
-
 
 
 -----
@@ -10412,16 +6838,9 @@ ateam这车有点帅啊
 ##### 8002#       发表于 2019-4-17 20:28
 
 
-
-
 舞台剧太好看！
 
 74分钟还是有点看不过瘾，期待舞台剧2
-
-
-
-
-
 
 
 -----
@@ -10430,15 +6849,9 @@ ateam这车有点帅啊
 ##### 8003#       发表于 2019-4-17 20:47
 
 
-
 <blockquote>傘木希美 发表于 2019-4-17 19:09
 现在有没有2nd live看了啊- -</blockquote>
 b站有纯revue曲的部分
-
-
-
-
-
 
 
 -----
@@ -10447,16 +6860,9 @@ b站有纯revue曲的部分
 ##### 8004#       发表于 2019-4-17 22:27
 
 
-
-
 2nd live弥补了我心中对momoyo在动画里一直捏声线唱歌的遗憾…
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -10465,22 +6871,15 @@ b站有纯revue曲的部分
 ##### 8005#       发表于 2019-4-18 20:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">露女士终于届到了
 
 —— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
 
 ####  karloku  
 ##### 8006#       发表于 2019-4-18 20:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43345105&amp;ptid=1499843" target="_blank">JustW 发表于 2019-4-17 22:27</a>
@@ -10492,26 +6891,15 @@ b站有纯revue曲的部分
 蕉哥哥那战, 恋的旋律出来的时候有种拨云见日的清爽坚定, 蕉哥哥混沌入魔丧失心智的主旋律输的不冤.
 
 
-
-
-
-
-
 -----
 
 ####  karloku  
 ##### 8007#       发表于 2019-4-18 20:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43303584&amp;ptid=1499843" target="_blank">xingenge 发表于 2019-4-14 22:06</a>
 当时少女歌剧在BW有个剧场活动，到场的都是邦邦人，男性较多（当时好像才播到第2话还是第3话），主要是来 ...</blockquote>
 还有来看小日向的水水人, 拿着孔雀在排队的时候对着我喊了一句耶太噶, 喊的我莫名其妙(
-
-
-
-
-
 
 
 -----
@@ -10520,16 +6908,10 @@ b站有纯revue曲的部分
 ##### 8008#         楼主| 发表于 2019-4-18 21:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43358948&amp;ptid=1499843" target="_blank">karloku 发表于 2019-4-18 20:44</a>
 
 还有来看小日向的水水人, 拿着孔雀在排队的时候对着我喊了一句耶太噶, 喊的我莫名其妙( ...</blockquote>
 感觉看日向的比较少，可能是因为看彩沙的太显眼了……
-
-
-
-
-
 
 
 -----
@@ -10538,16 +6920,10 @@ b站有纯revue曲的部分
 ##### 8009#       发表于 2019-4-18 21:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43358915&amp;ptid=1499843" target="_blank">karloku 发表于 2019-4-18 20:41</a>
 
 当时看的时候就是觉得. 差评如潮的恋纯二番战和恋蕉战, 去掉了干巴巴的对白纯听演员把歌词唱出来, 恋哥哥 ...</blockquote>
 我回头单听曲子的时候，华恋出来也吓了一跳，才发现原来这么清澈，动画都没听清。
-
-
-
-
-
 
 
 -----
@@ -10556,16 +6932,10 @@ b站有纯revue曲的部分
 ##### 8010#       发表于 2019-4-19 15:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40843151&amp;ptid=1499843" target="_blank">不是很懂二次元 发表于 2018-09-02 17:54:16</a>
 我有个想法，长颈鹿就是观众意识的一种具现化，不是单纯的善恶一方。</blockquote>卧槽牛逼
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -10574,23 +6944,16 @@ b站有纯revue曲的部分
 ##### 8011#       发表于 2019-4-19 15:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40843151&amp;ptid=1499843" target="_blank">不是很懂二次元 发表于 2018-09-02 17:54:16</a>
 我有个想法，长颈鹿就是观众意识的一种具现化，不是单纯的善恶一方。</blockquote>你的id和你严重不符，我看你就是最懂二次元的那个
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  不是很懂二次元  
 ##### 8012#       发表于 2019-4-20 02:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43368583&amp;ptid=1499843" target="_blank">hu794 发表于 2019-4-19 15:27</a>
@@ -10602,30 +6965,16 @@ b站有纯revue曲的部分
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">别这样，好羞耻。
 
 
-
-
-
-
-
 -----
 
 ####  wuaistage1  
 ##### 8013#       发表于 2019-4-26 00:44
 
 
-
-
 「少女☆歌劇 レヴュースタァライト」2ndスタァライブ “Starry Desert
 
 
-
-
 说起来快有大半个月没看少歌动画了，戒断症状算是好了。
-
-
-
-
-
 
 
 -----
@@ -10634,17 +6983,10 @@ b站有纯revue曲的部分
 ##### 8014#       发表于 2019-4-26 18:26
 
 
-
-
 BD已经看了好几遍，每次都觉得现场版revue曲好羞耻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
 ----发送自 [Sony G8342,Android 9](http://stage1.5j4m.com/?1.33)
-
-
-
-
-
 
 
 -----
@@ -10653,16 +6995,9 @@ BD已经看了好几遍，每次都觉得现场版revue曲好羞耻<img src="htt
 ##### 8015#       发表于 2019-4-27 22:05
 
 
-
-
 2nd live的revue部分一定要看定点镜头，价值百万（指灯光师
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -10671,14 +7006,7 @@ BD已经看了好几遍，每次都觉得现场版revue曲好羞耻<img src="htt
 ##### 8016#       发表于 2019-4-28 12:49
 
 
-
-
 ASL2019  8月31日   九九组
-
-
-
-
-
 
 
 -----
@@ -10687,21 +7015,13 @@ ASL2019  8月31日   九九组
 ##### 8017#       发表于 2019-5-2 01:38
 
 
-
-
 看完2ndlive的感想，想看一遍她们演动画剧情的舞台剧<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">revue还原的真不错了，中之人上舞台演比起在录音室的水准强太多...
-
-
-
-
-
 
 
 -----
 
 ####  550616  
 ##### 8018#       发表于 2019-5-9 12:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43537450&amp;ptid=1499843" target="_blank">damian-wade 发表于 2019-5-2 01:38</a>
@@ -10713,16 +7033,10 @@ ASL2019  8月31日   九九组
 另外现在手游剧情+各种相关联动，再出个12集季番吧
 
 
-
-
-
-
-
 -----
 
 ####  550616  
 ##### 8019#       发表于 2019-5-10 10:32
-
 
 
  本帖最后由 550616 于 2019-5-14 03:00 编辑 
@@ -10741,35 +7055,19 @@ Star Divine;星のダイアローグ;檄! 帝国华撃団
 av32773088也是存活的，实在不理解审核标准
 
 
-
-
-
-
-
-
-
 -----
 
 ####  xwr  
 ##### 8020#       发表于 2019-5-16 12:17
 
 
-
-
 【熟肉】将故事上演！少女歌剧的视觉剧场
-
-
-
-
-
-
 
 
 -----
 
 ####  Bananaive_Hood  
 ##### 8021#       发表于 2019-5-16 13:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43716220&amp;ptid=1499843" target="_blank">xwr 发表于 2019-5-16 12:17</a>
@@ -10781,16 +7079,10 @@ https://www.bilibili.com/video/av52573891</blockquote>
 —— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  550616  
 ##### 8022#       发表于 2019-5-21 08:54
-
 
 
  本帖最后由 550616 于 2019-5-21 08:59 编辑 
@@ -10803,15 +7095,9 @@ https://www.bilibili.com/video/av52573891</blockquote>
 感谢翻译者
 
 
-
 本楼最烂的就是7，8话衔接的地方（第九话是真烂）
 
 日本nico那边，少女歌剧第八集好评率是最高的，而国内因为播放时第七集所谓轮回，觉得是神展开,脑补刹不住车，或者说离脑补剧情差太远，俗称打脸，所以第八集点评很糟糕，海水象征水族馆，小光主场，被疯狂刷屏，蕉哥哥放水（海）
-
-
-
-
-
 
 
 -----
@@ -10820,14 +7106,7 @@ https://www.bilibili.com/video/av52573891</blockquote>
 ##### 8023#       发表于 2019-6-1 06:12
 
 
-
-
 少歌手游这新章剧情也未免太有既视感了，消失梗玩得有点太频繁【4chan：Maya willed herself out of existence just to toy with Claudine's feelings some more
-
-
-
-
-
 
 
 -----
@@ -10836,17 +7115,10 @@ https://www.bilibili.com/video/av52573891</blockquote>
 ##### 8024#       发表于 2019-6-1 06:48
 
 
-
-
 在vtb楼看到传闻小山百代当vtb去了，看了半天不敢确认，来这里求证一下，传闻为vtb猿乐町双叶的中之人，这里有B站搬运组 [https://space.bilibili.com/406965262](https://space.bilibili.com/406965262)
 
 
 以及四月一日之家 [https://www.bilibili.com/bangumi/media/md26900954/](https://www.bilibili.com/bangumi/media/md26900954/) 就这个片里的二姐 四月一日二叶，也是她演的，我耳朵实在不太好使，虽然听着有点像，各位有耳朵比较灵的给听听这个是小山百代吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10855,16 +7127,10 @@ https://www.bilibili.com/video/av52573891</blockquote>
 ##### 8025#       发表于 2019-6-1 06:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43939930&amp;ptid=1499843" target="_blank">free 发表于 2019-6-1 06:48</a>
 
 在vtb楼看到传闻小山百代当vtb去了，看了半天不敢确认，来这里求证一下，传闻为vtb猿乐町双叶的中之人，这 ...</blockquote>
 听声音的话应该就是她了，期待一个萌p也vtb出道
-
-
-
-
-
 
 
 -----
@@ -10873,16 +7139,9 @@ https://www.bilibili.com/video/av52573891</blockquote>
 ##### 8026#       发表于 2019-6-1 10:06
 
 
-
-
 手游新主线剧情炸裂，天堂真矢的消失？
 
 古川监修的剧情都这么爆炸么？
-
-
-
-
-
 
 
 -----
@@ -10891,22 +7150,13 @@ https://www.bilibili.com/video/av52573891</blockquote>
 ##### 8027#       发表于 2019-6-1 10:09
 
 
-
-
 恋哥哥这是有多少工作，soundorion活动也不少吧，铁人吗233
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 8028#         楼主| 发表于 2019-6-8 15:26
-
-
 
 
 【7月5日配信開始！】少女☆寸劇（コント） オールスタァライト PV
@@ -10921,25 +7171,13 @@ https://www.bilibili.com/video/av52573891</blockquote>
 游戏内配信，够绝的
 
 
-
-
-
-
-
 -----
 
 ####  萌即正义  
 ##### 8029#       发表于 2019-6-8 15:37
 
 
-
-
 专门弄个动画，用来拯救颓势的手游，也太拼
-
-
-
-
-
 
 
 -----
@@ -10948,23 +7186,16 @@ https://www.bilibili.com/video/av52573891</blockquote>
 ##### 8030#       发表于 2019-6-8 15:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43939930&amp;ptid=1499843" target="_blank">free 发表于 2019-6-1 06:48</a>
 
 在vtb楼看到传闻小山百代当vtb去了，看了半天不敢确认，来这里求证一下，传闻为vtb猿乐町双叶的中之人，这 ...</blockquote>
 去看了，听起来太像了，不如说应该就是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">完了，单推失格
 
 
-
-
-
-
-
 -----
 
 ####  carroy  
 ##### 8031#       发表于 2019-6-8 19:26
-
 
 
  本帖最后由 carroy 于 2019-6-10 11:14 编辑 
@@ -10988,16 +7219,10 @@ mmy忙的过来吗
 双叶殿这周的生放在12号<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 8032#       发表于 2019-6-8 20:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44043772&amp;ptid=1499843" target="_blank">carroy 发表于 2019-6-8 19:26</a>
@@ -11010,16 +7235,10 @@ mmy忙的过来吗
 奇怪的是评论都没有问这个的，是粉丝心照不宣还是vtuber观众和少歌粉群体真的差别很大
 
 
-
-
-
-
-
 -----
 
 ####  free  
 ##### 8033#       发表于 2019-6-9 00:29
-
 
 
  本帖最后由 free 于 2019-6-9 02:46 编辑 
@@ -11045,30 +7264,13 @@ vtb楼里一开始就听出来的也不少，但是最初还比较怀疑，引�
 2019-6-9 00:54 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  JustW  
 ##### 8034#       发表于 2019-6-9 00:34
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">关键momoyo本身重心就不在声优吧，当vtuber还是有些让人震惊。我感觉萌p这种沙雕体质更适合当vtuber
-
-
-
-
-
 
 
 -----
@@ -11077,22 +7279,13 @@ vtb楼里一开始就听出来的也不少，但是最初还比较怀疑，引�
 ##### 8035#       发表于 2019-6-9 01:15
 
 
-
-
 唉，之前还以为寸剧能类比pico，现在看着pv的廉价感还是手游配信，基本不抱什么期望了。
-
-
-
-
-
 
 
 -----
 
 ####  550616  
 ##### 8036#       发表于 2019-7-4 19:41
-
-
 
 
 舞台剧#2
@@ -11104,24 +7297,13 @@ vtb楼里一开始就听出来的也不少，但是最初还比较怀疑，引�
 还有线下活动什么的
 
 
-
-
-
-
-
 -----
 
 ####  傘木希美  
 ##### 8037#       发表于 2019-7-5 06:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好像动画要再放送，7月新番来了
-
-
-
-
-
 
 
 -----
@@ -11130,14 +7312,7 @@ vtb楼里一开始就听出来的也不少，但是最初还比较怀疑，引�
 ##### 8038#       发表于 2019-7-5 07:47
 
 
-
-
 アタシ 再放送 
-
-
-
-
-
 
 
 -----
@@ -11146,17 +7321,10 @@ vtb楼里一开始就听出来的也不少，但是最初还比较怀疑，引�
 ##### 8039#       发表于 2019-7-8 00:10
 
 
-
-
 去了一趟动物园，收货了两张图片
 
 <img src="https://puui.qpic.cn/fans_admin/0/3_1218999906_1562515747020/0" id="aimg_PfJr1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 <img src="https://puui.qpic.cn/fans_admin/0/3_522574113_1562515737508/0" id="aimg_twjo3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-
-
-
-
-
 
 
 -----
@@ -11165,13 +7333,7 @@ vtb楼里一开始就听出来的也不少，但是最初还比较怀疑，引�
 ##### 8040#         楼主| 发表于 2019-7-15 20:48
 
 
-
 <img src="http://wx2.sinaimg.cn/large/0068TvVBgy1g50t7ryhkbj31hc0u0tbm.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11180,14 +7342,7 @@ vtb楼里一开始就听出来的也不少，但是最初还比较怀疑，引�
 ##### 8041#       发表于 2019-7-15 20:57
 
 
-
-
 明年年内BD能出吗<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11196,14 +7351,7 @@ vtb楼里一开始就听出来的也不少，但是最初还比较怀疑，引�
 ##### 8042#       发表于 2019-7-15 21:07
 
 
-
-
 这舞台剧是#3吗
-
-
-
-
-
 
 
 -----
@@ -11212,16 +7360,9 @@ vtb楼里一开始就听出来的也不少，但是最初还比较怀疑，引�
 ##### 8043#       发表于 2019-7-15 21:20
 
 
-
-
 再来个动画二期吧，想再看一次命运的舞台<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 — from samsung SM-G965W, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
-
-
-
-
-
 
 
 -----
@@ -11230,16 +7371,10 @@ vtb楼里一开始就听出来的也不少，但是最初还比较怀疑，引�
 ##### 8044#       发表于 2019-7-15 22:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44528317&amp;ptid=1499843" target="_blank">元亓 发表于 2019-7-15 20:57</a>
 
 明年年内BD能出吗</blockquote>
 BD和演出差不多都差半年吧
-
-
-
-
-
 
 
 -----
@@ -11248,23 +7383,15 @@ BD和演出差不多都差半年吧
 ##### 8045#       发表于 2019-7-15 22:13
 
 
-
-
 动画二期gkd！！！！
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  550616  
 ##### 8046#       发表于 2019-7-15 22:25
-
 
 
  本帖最后由 550616 于 2019-7-17 22:39 编辑 
@@ -11274,18 +7401,10 @@ BD和演出差不多都差半年吧
 估计和上次齐格飞一样
 
 
-
-
-
-
-
-
-
 -----
 
 ####  550616  
 ##### 8047#       发表于 2019-7-15 22:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44528524&amp;ptid=1499843" target="_blank">ianny544 发表于 2019-7-15 21:20</a>
@@ -11297,25 +7416,13 @@ BD和演出差不多都差半年吧
 动画季番都爆炸了，还是安心出四格吧
 
 
-
-
-
-
-
 -----
 
 ####  安广多惠子  
 ##### 8048#       发表于 2019-7-16 08:17
 
 
-
-
 #3好啊，这次给个海外lv吧拜托
-
-
-
-
-
 
 
 -----
@@ -11324,23 +7431,15 @@ BD和演出差不多都差半年吧
 ##### 8049#       发表于 2019-8-24 01:14
 
 
-
-
 BW上海站八八组出演，以后我就是批小将了<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi MI 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
 
 ####  unnilennium  
 ##### 8050#       发表于 2019-8-24 01:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45023993&amp;ptid=1499843" target="_blank">ColinWine 发表于 2019-8-24 01:14</a>
@@ -11352,16 +7451,10 @@ BW上海站八八组出演，以后我就是批小将了
 不太了解BW的具体内容和情况，往年有参加的话能给一个参考吗，是只有talk show还是什么内容？
 
 
-
-
-
-
-
 -----
 
 ####  ziyer  
 ##### 8051#       发表于 2019-8-24 10:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45024099&amp;ptid=1499843" target="_blank">unnilennium 发表于 2019-8-24 01:40</a>
@@ -11372,26 +7465,15 @@ BW上海站八八组出演，以后我就是批小将了
 —— 来自 Xiaomi MI 9, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  unnilennium  
 ##### 8052#       发表于 2019-8-24 17:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45026147&amp;ptid=1499843" target="_blank">ziyer 发表于 2019-8-24 10:55</a>
 会有演出环节的，原本就是歌手的话肯定会唱上几首的，甚至不是歌手的主播都会强行表演节目。。。所以我果 ...</blockquote>
 好的谢谢，其实我主要想知道除了可能有talk+mini live之外还会不会有别的什么签售手渡之类的幺蛾子，如果只是这俩然后有付费直播的话我倒是不介意给B掏钱，毕竟人在外地过去路费还是很客观的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11400,16 +7482,7 @@ BW上海站八八组出演，以后我就是批小将了
 ##### 8053#       发表于 2019-8-29 05:12
 
 
-
-
 【熟肉】打造舞台少女·少歌Staff谈制作幕后二三事
-
-
-
-
-
-
-
 
 
 -----
@@ -11418,21 +7491,13 @@ BW上海站八八组出演，以后我就是批小将了
 ##### 8054#       发表于 2019-8-29 08:26
 
 
-
-
 #3好
-
-
-
-
-
 
 
 -----
 
 ####  aceralon  
 ##### 8055#       发表于 2019-8-29 20:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44531470&amp;ptid=1499843" target="_blank"> 安广多惠子 发表于 2019-7-16 08:17</a> #3好啊，这次给个海外lv吧拜托 </blockquote>
@@ -11442,17 +7507,10 @@ BW上海站八八组出演，以后我就是批小将了
 来自: iPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  ColinWine  
 ##### 8056#       发表于 2019-10-5 15:57
-
-
 
 
 今天的bw live太棒了，现场嗨到不行，近距离看hrk太可爱了
@@ -11462,16 +7520,10 @@ https://b23.tv/av70155297
 —— 来自 Xiaomi MI 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 8057#       发表于 2019-10-5 16:28
-
 
 
 <blockquote>ColinWine 发表于 2019-10-5 15:57
@@ -11483,16 +7535,10 @@ https://b23.tv/av70155297
 萌p自我介绍的“香蕉”xs
 
 
-
-
-
-
-
 -----
 
 ####  mooerfoes  
 ##### 8058#       发表于 2019-10-5 17:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45142086&amp;ptid=1499843" target="_blank">ColinWine 发表于 2019-10-5 15:57</a>
@@ -11505,17 +7551,10 @@ https://b23.tv/av70155297
 谢谢谢谢，本来还想问问看的结果发现有人在我提问之前就给出了答案<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xjx  
 ##### 8059#       发表于 2019-10-5 17:41
-
-
 
 
 唱那么多首，超良心
@@ -11523,17 +7562,10 @@ https://b23.tv/av70155297
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Toby_dak  
 ##### 8060#       发表于 2019-10-21 18:18
-
-
 
 
 手游一周年生放送。
@@ -11543,27 +7575,15 @@ https://b23.tv/av70155297
 不知道会不会公布什么…………
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 8061#         楼主| 发表于 2019-10-21 20:40
 
 
-
-
 【スタリラ】 新アニメーションPV 15秒Ver
 [https://www.youtube.com/watch?v=znxN9_wsPv0](https://www.youtube.com/watch?v=znxN9_wsPv0)
 [https://v.youku.com/v_show/id_XN ... j.8428770.3416059.1](https://v.youku.com/v_show/id_XNDQwNzM0MTQyOA==.html?spm=a2h3j.8428770.3416059.1)
-
-
-
-
-
 
 
 -----
@@ -11572,14 +7592,7 @@ https://b23.tv/av70155297
 ##### 8062#       发表于 2019-10-21 20:49
 
 
-
-
 PV这脸感觉怪怪的
-
-
-
-
-
 
 
 -----
@@ -11588,23 +7601,16 @@ PV这脸感觉怪怪的
 ##### 8063#       发表于 2019-10-21 20:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45269135&amp;ptid=1499843" target="_blank">lunaticfear 发表于 2019-10-21 21:49</a>
 
 PV这脸感觉怪怪的</blockquote>
 这是手游3D建模的风格。
 
 
-
-
-
-
-
 -----
 
 ####  kkkttt777  
 ##### 8064#       发表于 2019-10-22 04:54
-
 
 
  本帖最后由 kkkttt777 于 2019-10-22 04:58 编辑 
@@ -11618,24 +7624,13 @@ PV这脸感觉怪怪的</blockquote>
 我信了，创作者和泥潭一部分人真的是一样水准，业界还有救吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  greelmr1981  
 ##### 8065#       发表于 2019-10-22 08:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">这种脸，我不承认这是starlight！
-
-
-
-
-
 
 
 -----
@@ -11644,21 +7639,13 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8066#       发表于 2019-10-22 09:03
 
 
-
-
 这pv。。emm至少珠绪那段还可以舔
-
-
-
-
-
 
 
 -----
 
 ####  xiaocheng  
 ##### 8067#       发表于 2019-10-22 09:48
-
 
 
 <blockquote>kkkttt777 发表于 2019-10-22 04:54
@@ -11670,16 +7657,10 @@ PV这脸感觉怪怪的</blockquote>
 这怎么看都是手游的pv吧……
 
 
-
-
-
-
-
 -----
 
 ####  unnilennium  
 ##### 8068#       发表于 2019-10-22 11:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45269174&amp;ptid=1499843" target="_blank">Toby_dak 发表于 2019-10-21 20:56</a>
@@ -11687,16 +7668,10 @@ PV这脸感觉怪怪的</blockquote>
 电脑无纸作画，分镜演出作监是一个人。大概作画监督跟动画不一样加上屑游没钱可能工期还紧张就这样了……
 
 
-
-
-
-
-
 -----
 
 ####  unnilennium  
 ##### 8069#       发表于 2019-10-22 11:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45271025&amp;ptid=1499843" target="_blank">kkkttt777 发表于 2019-10-22 04:54</a>
@@ -11709,16 +7684,10 @@ PV这脸感觉怪怪的</blockquote>
 这破游戏生放昨天连个送石头环节都没有，最近每天送的无料十连早上还出问题维护，实在是太垃圾了也不知道该说什么<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kkkttt777  
 ##### 8070#       发表于 2019-10-22 12:10
-
 
 
  本帖最后由 kkkttt777 于 2019-10-22 12:13 编辑 
@@ -11730,16 +7699,10 @@ PV这脸感觉怪怪的</blockquote>
 武士道提拔廖化做片。那部小圆翻拍先播，盾勇后播，把作画资源吸干了。我现在特别想知道廖化能把小圆翻拍成什么样？shaft救社计划别两部一起砸了。
 
 
-
-
-
-
-
 -----
 
 ####  unnilennium  
 ##### 8071#       发表于 2019-10-22 12:29
-
 
 
  本帖最后由 unnilennium 于 2019-10-22 12:30 编辑 
@@ -11752,16 +7715,10 @@ PV这脸感觉怪怪的</blockquote>
 至于那个lily，谨慎不看好。能做好了当然好，但巧妇难为无米之炊，这楼你看看播出的时候的论调，按以往来说武士道contents的动画，能做成少歌这样真是一个奇迹。
 
 
-
-
-
-
-
 -----
 
 ####  kkkttt777  
 ##### 8072#       发表于 2019-10-22 12:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45273686&amp;ptid=1499843" target="_blank">unnilennium 发表于 2019-10-22 12:29</a>
@@ -11770,16 +7727,10 @@ PV这脸感觉怪怪的</blockquote>
 话别说早，不妨看看最终结果，看到staff表就知道了
 
 
-
-
-
-
-
 -----
 
 ####  unnilennium  
 ##### 8073#       发表于 2019-10-22 14:44
-
 
 
  本帖最后由 unnilennium 于 2019-10-22 14:49 编辑 
@@ -11797,16 +7748,10 @@ PV这脸感觉怪怪的</blockquote>
 包括昨天出来这个手游的PV，如果将来跟邦邦一样动画加入了手游角色然后动画就是这种质量的话，简直是压垮了这个企划的最后一根稻草。
 
 
-
-
-
-
-
 -----
 
 ####  kkkttt777  
 ##### 8074#       发表于 2019-10-22 23:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45274903&amp;ptid=1499843" target="_blank">unnilennium 发表于 2019-10-22 14:44</a>
@@ -11832,32 +7777,19 @@ PV这脸感觉怪怪的</blockquote>
 武士道现在心思很明显了，直接照着少歌的模式抄一个企划出来骗钱。然而这是shaft救社大作二之一<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  JustW  
 ##### 8075#       发表于 2019-10-23 01:08
 
 
-
-
 看你们讨论的这两句我都快自闭了（）
-
-
-
-
-
 
 
 -----
 
 ####  unnilennium  
 ##### 8076#       发表于 2019-10-23 01:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45280098&amp;ptid=1499843" target="_blank">kkkttt777 发表于 2019-10-22 23:49</a>
@@ -11878,16 +7810,10 @@ PV这脸感觉怪怪的</blockquote>
 何必一口一个小圆翻拍，人家卖了那么多年手办也不是没有自己的世界观啊。
 
 
-
-
-
-
-
 -----
 
 ####  kkkttt777  
 ##### 8077#       发表于 2019-10-23 01:34
-
 
 
  本帖最后由 kkkttt777 于 2019-10-23 02:00 编辑 
@@ -11902,13 +7828,7 @@ PV这脸感觉怪怪的</blockquote>
 古川想做少歌的时候，带了多少人到kc和他一起做starlight，现在就有多少人要跟着廖化到shaft。shaft人才流失严重的连肥宅都能看出来，明年还有一部小圆手游正统续作，去哪里给你找人手<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">烟花,fe，还是阳炎，bd重修大法好
 
 
-
 武士道要的就是shaft这个牌子，小圆，粉黑这个既视感，以此来让人看，哪里去找人，还能有谁，自然是变成武士道形状的那家<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11917,21 +7837,13 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8078#       发表于 2019-10-23 04:34
 
 
-
-
 根本第二季这个项都没立，现在也不可能立，怎么就讨论资源占用的问题了。你歌现在出第二季的各种问题中动画公司有没有空恐怕是最不重要的因素。
-
-
-
-
-
 
 
 -----
 
 ####  kkkttt777  
 ##### 8079#       发表于 2019-10-23 04:58
-
 
 
  本帖最后由 kkkttt777 于 2019-10-23 05:33 编辑 
@@ -11952,16 +7864,10 @@ PV这脸感觉怪怪的</blockquote>
 要是新ip的话，还有看头，翻拍的话，本肥宅高呼业界要玩。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 8080#         楼主| 发表于 2019-11-3 19:37
-
 
 
  本帖最后由 xingenge 于 2019-11-3 19:46 编辑 
@@ -11976,25 +7882,13 @@ PV这脸感觉怪怪的</blockquote>
 再生産総集編は2020年初夏に公開予定です！
 
 
-
-
-
-
-
 -----
 
 ####  Mika-S  
 ##### 8081#       发表于 2019-11-3 19:42
 
 
-
-
 ？？？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12003,16 +7897,10 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8082#       发表于 2019-11-3 19:45
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">好！
 好起来了！
 
 —— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -12021,16 +7909,9 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8083#       发表于 2019-11-3 19:45
 
 
-
-
 啊，我活了
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -12039,17 +7920,10 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8084#       发表于 2019-11-3 19:46
 
 
-
-
 わかります。
 
 
 ----发送自 [Sony G8342,Android 9](http://stage1.5j4m.com/?1.33)
-
-
-
-
-
 
 
 -----
@@ -12058,13 +7932,7 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8085#         楼主| 发表于 2019-11-3 19:46
 
 
-
 <img src="http://wx2.sinaimg.cn/large/0068TvVBgy1g8l3ab7os1j31hc0u0zr3.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12073,15 +7941,8 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8086#       发表于 2019-11-3 19:50
 
 
-
-
 黑化恋哥哥(龙牙)要从Revue(镜世界)里出来了吗？
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12090,14 +7951,7 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8087#       发表于 2019-11-3 19:51
 
 
-
-
 多谢各位毒奶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12106,14 +7960,7 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8088#       发表于 2019-11-3 19:53
 
 
-
-
 好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12122,14 +7969,7 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8089#       发表于 2019-11-3 19:53
 
 
-
-
 大哥大嫂过年好！！！！
-
-
-
-
-
 
 
 -----
@@ -12138,14 +7978,7 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8090#       发表于 2019-11-3 19:54
 
 
-
-
 再 生 产 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12154,14 +7987,7 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8091#       发表于 2019-11-3 19:55
 
 
-
-
 过年力
-
-
-
-
-
 
 
 -----
@@ -12170,13 +7996,7 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8092#       发表于 2019-11-3 19:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">预告那句banananice也太帅了吧
-
-
-
-
-
 
 
 -----
@@ -12185,14 +8005,7 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8093#       发表于 2019-11-3 19:56
 
 
-
-
 爱城前辈<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12201,14 +8014,7 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8094#       发表于 2019-11-3 19:57
 
 
-
-
 看到帖子浮上来，第一眼是毒奶，看着看着就发现是新作剧场版<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12217,14 +8023,7 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8095#       发表于 2019-11-3 20:01
 
 
-
-
 多谢各位毒奶
-
-
-
-
-
 
 
 -----
@@ -12233,14 +8032,7 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8096#       发表于 2019-11-3 20:02
 
 
-
-
 过年
-
-
-
-
-
 
 
 -----
@@ -12249,14 +8041,7 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8097#       发表于 2019-11-3 20:06
 
 
-
-
 舒服了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12265,14 +8050,7 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8098#       发表于 2019-11-3 20:07
 
 
-
-
 完全新作，好期待啊
-
-
-
-
-
 
 
 -----
@@ -12281,14 +8059,7 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8099#       发表于 2019-11-3 20:09
 
 
-
-
 我活了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12297,14 +8068,7 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8100#       发表于 2019-11-3 20:09
 
 
-
-
 再演开始了！！！
-
-
-
-
-
 
 
 -----
@@ -12313,13 +8077,7 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8101#       发表于 2019-11-3 20:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这恋哥哥好漂亮啊
-
-
-
-
-
 
 
 -----
@@ -12328,14 +8086,7 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8102#       发表于 2019-11-3 20:14
 
 
-
-
 大喜日子<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12344,14 +8095,7 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8103#       发表于 2019-11-3 20:15
 
 
-
-
 摩多摩多
-
-
-
-
-
 
 
 -----
@@ -12360,14 +8104,7 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8104#       发表于 2019-11-3 20:16
 
 
-
-
 惊了，看爆
-
-
-
-
-
 
 
 -----
@@ -12376,14 +8113,7 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8105#       发表于 2019-11-3 20:21
 
 
-
-
 我活了我活了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12392,14 +8122,7 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8106#       发表于 2019-11-3 20:22
 
 
-
-
 现在的动画好喜欢出总集篇剧场版来捞钱啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12408,14 +8131,7 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8107#       发表于 2019-11-3 20:23
 
 
-
-
 多谢楼上的毒奶啊，爽了啊啊啊啊啊啊啊啊啊
-
-
-
-
-
 
 
 -----
@@ -12424,19 +8140,11 @@ PV这脸感觉怪怪的</blockquote>
 ##### 8108#       发表于 2019-11-3 20:24
 
 
-
-
 动作很快，这就有p图了
-
-
-
-
 
 
 FWA{UN98B[HC3PP9O)AYTWY.jpg
 (89.17 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -12445,28 +8153,12 @@ FWA{UN98B[HC3PP9O)AYTWY.jpg
 2019-11-3 20:24 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201911/03/202430jglcxzrroxmhyggr.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -12476,12 +8168,7 @@ FWA{UN98B[HC3PP9O)AYTWY.jpg
 | curiousnoob| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -12490,14 +8177,7 @@ FWA{UN98B[HC3PP9O)AYTWY.jpg
 ##### 8109#       发表于 2019-11-3 20:25
 
 
-
-
 继续奶，不要停<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12506,16 +8186,10 @@ FWA{UN98B[HC3PP9O)AYTWY.jpg
 ##### 8110#       发表于 2019-11-3 20:28
 
 
-
 <img src="http://pbs.twimg.com/media/EIcnccQWsAAu-nM?format=jpg&amp;name=medium" id="aimg_Ksclv" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/TOPPY1218/status/1190963999078154240](https://twitter.com/TOPPY1218/status/1190963999078154240)
 
 映画の内容とは関係無く、所信表明をさせて下さい。
-
-
-
-
-
 
 
 -----
@@ -12524,14 +8198,7 @@ FWA{UN98B[HC3PP9O)AYTWY.jpg
 ##### 8111#       发表于 2019-11-3 20:29
 
 
-
-
 预告片一股子eva味儿，信息量还蛮大。话说还是古川哥哥吗
-
-
-
-
-
 
 
 -----
@@ -12540,24 +8207,15 @@ FWA{UN98B[HC3PP9O)AYTWY.jpg
 ##### 8112#       发表于 2019-11-3 20:32
 
 
-
-
 长颈鹿们从四面八方赶了过来.jpg
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  kkkttt777  
 ##### 8113#       发表于 2019-11-3 20:35
-
-
 
 
 毒奶<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -12567,27 +8225,15 @@ FWA{UN98B[HC3PP9O)AYTWY.jpg
 吞了一个第二季换来一个三年后的剧场版
 
 
-
-
-
-
-
 -----
 
 ####  ぽんぽこ仮面  
 ##### 8114#       发表于 2019-11-3 20:38
 
 
-
  本帖最后由 ぽんぽこ仮面 于 2019-11-3 20:40 编辑 
 
 预告片是直接用了台本吧，爱城前辈和2019年5月14日都很让人在意呀<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">后辈角色出场预定。还提到“毕业之后我也会继续当舞台少女”，大概会涉及到毕业前夕甚至之后的事
-
-
-
-
-
-
 
 
 -----
@@ -12596,16 +8242,9 @@ FWA{UN98B[HC3PP9O)AYTWY.jpg
 ##### 8115#       发表于 2019-11-3 20:38
 
 
-
-
 完全新作是要毕业的了吗，2019年5月14日、爱城先辈、终演开始这些字眼分明是高三的剧情啊。
 
 不过新国立第一歌剧团是什么意思，毕业后组歌剧团了吗
-
-
-
-
-
 
 
 -----
@@ -12614,14 +8253,7 @@ FWA{UN98B[HC3PP9O)AYTWY.jpg
 ##### 8116#       发表于 2019-11-3 20:43
 
 
-
-
 继续毒奶，不要停啊
-
-
-
-
-
 
 
 -----
@@ -12630,16 +8262,9 @@ FWA{UN98B[HC3PP9O)AYTWY.jpg
 ##### 8117#       发表于 2019-11-3 20:48
 
 
-
-
 有动静太好了
 
 虽然不是第二季但总比只有个手游苟活强多了
-
-
-
-
-
 
 
 -----
@@ -12648,14 +8273,7 @@ FWA{UN98B[HC3PP9O)AYTWY.jpg
 ##### 8118#       发表于 2019-11-3 20:49
 
 
-
-
 わかります！
-
-
-
-
-
 
 
 -----
@@ -12664,13 +8282,7 @@ FWA{UN98B[HC3PP9O)AYTWY.jpg
 ##### 8119#       发表于 2019-11-3 20:52
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">真好啊
-
-
-
-
-
 
 
 -----
@@ -12679,15 +8291,8 @@ FWA{UN98B[HC3PP9O)AYTWY.jpg
 ##### 8120#       发表于 2019-11-3 20:53
 
 
-
-
             死与新生                                   真心为你
 <img src="https://i.loli.net/2019/11/03/x2sL8qMVTkBKocj.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12696,13 +8301,7 @@ FWA{UN98B[HC3PP9O)AYTWY.jpg
 ##### 8121#       发表于 2019-11-3 20:56
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还有剧场版啊，不知道做成啥样，虽然tv已经觉得结束很好了
-
-
-
-
-
 
 
 -----
@@ -12711,13 +8310,7 @@ FWA{UN98B[HC3PP9O)AYTWY.jpg
 ##### 8122#       发表于 2019-11-3 21:02
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12726,21 +8319,13 @@ FWA{UN98B[HC3PP9O)AYTWY.jpg
 ##### 8123#       发表于 2019-11-3 21:08
 
 
-
-
 好 很好 非常好<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  无聊者X  
 ##### 8124#       发表于 2019-11-3 21:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45397535&amp;ptid=1499843" target="_blank">haluka 发表于 2019-11-3 20:53</a>
@@ -12750,17 +8335,10 @@ FWA{UN98B[HC3PP9O)AYTWY.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  第五秋  
 ##### 8125#       发表于 2019-11-3 21:10
-
-
 
 
 转一下PV信息摘录
@@ -12854,13 +8432,9 @@ XX的是不知何处的车站，华恋说：急急忙忙快步前行的蕉哥哥
 用你的闪耀 来贯穿给我看啊
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +2
@@ -12871,12 +8445,7 @@ XX的是不知何处的车站，华恋说：急急忙忙快步前行的蕉哥哥
 | 龙之峰| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -12885,14 +8454,7 @@ XX的是不知何处的车站，华恋说：急急忙忙快步前行的蕉哥哥
 ##### 8126#       发表于 2019-11-3 21:10
 
 
-
-
 提前过节，那么会不会有rt龙骑的那个名场面呢<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12901,22 +8463,15 @@ XX的是不知何处的车站，华恋说：急急忙忙快步前行的蕉哥哥
 ##### 8127#       发表于 2019-11-3 21:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">三森又要传统艺能了？
 
 —— 来自 samsung SM-G965W, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
-
-
-
-
-
 
 
 -----
 
 ####  DOACAON  
 ##### 8128#       发表于 2019-11-3 21:19
-
 
 
  本帖最后由 DOACAON 于 2019-11-3 07:20 编辑 
@@ -12933,25 +8488,13 @@ XX的是不知何处的车站，华恋说：急急忙忙快步前行的蕉哥哥
 从这说法看来应该还是，能提案的话最差也依然是主创团队的一员
 
 
-
-
-
-
-
 -----
 
 ####  fujissw  
 ##### 8129#       发表于 2019-11-3 21:21
 
 
-
-
 总集篇最后蕉哥哥的语气吓到我了
-
-
-
-
-
 
 
 -----
@@ -12960,16 +8503,10 @@ XX的是不知何处的车站，华恋说：急急忙忙快步前行的蕉哥哥
 ##### 8130#       发表于 2019-11-3 21:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45397835&amp;ptid=1499843" target="_blank">fujissw 发表于 2019-11-3 21:21</a>
 
 总集篇最后蕉哥哥的语气吓到我了</blockquote>
 我感觉那个bananice非常有味道..
-
-
-
-
-
 
 
 -----
@@ -12978,14 +8515,7 @@ XX的是不知何处的车站，华恋说：急急忙忙快步前行的蕉哥哥
 ##### 8131#       发表于 2019-11-3 21:26
 
 
-
-
 总集篇剧场版用banana是因为banana代表了过去吧。然后新作剧场版是未来。
-
-
-
-
-
 
 
 -----
@@ -12994,14 +8524,7 @@ XX的是不知何处的车站，华恋说：急急忙忙快步前行的蕉哥哥
 ##### 8132#       发表于 2019-11-3 21:26
 
 
-
-
 炸裂，狂喜乱舞，然后是漫长的等待<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13010,14 +8533,7 @@ XX的是不知何处的车站，华恋说：急急忙忙快步前行的蕉哥哥
 ##### 8133#       发表于 2019-11-3 21:26
 
 
-
-
 我活了！过年了！
-
-
-
-
-
 
 
 -----
@@ -13026,14 +8542,7 @@ XX的是不知何处的车站，华恋说：急急忙忙快步前行的蕉哥哥
 ##### 8134#       发表于 2019-11-3 21:33
 
 
-
-
 草 看3rd的repo 金牛座那首居然是首席背刺蕉哥哥笑死我了233
-
-
-
-
-
 
 
 -----
@@ -13042,13 +8551,7 @@ XX的是不知何处的车站，华恋说：急急忙忙快步前行的蕉哥哥
 ##### 8135#       发表于 2019-11-3 21:43
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">太棒了，期待
-
-
-
-
-
 
 
 -----
@@ -13057,22 +8560,13 @@ XX的是不知何处的车站，华恋说：急急忙忙快步前行的蕉哥哥
 ##### 8136#       发表于 2019-11-3 21:44
 
 
-
-
 好想在电影院看少鸽总集篇。<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  安广多惠子  
 ##### 8137#       发表于 2019-11-3 21:54
-
-
 
 
 濱祐斗 ɐɯɐɥ oʇnʎ
@@ -13091,25 +8585,13 @@ XX的是不知何处的车站，华恋说：急急忙忙快步前行的蕉哥哥
 稳了，古川哥哥我们信你啊
 
 
-
-
-
-
-
 -----
 
 ####  carroy  
 ##### 8138#       发表于 2019-11-3 22:07
 
 
-
-
 古川哥哥<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13118,14 +8600,7 @@ XX的是不知何处的车站，华恋说：急急忙忙快步前行的蕉哥哥
 ##### 8139#       发表于 2019-11-3 22:15
 
 
-
-
 过年啦！！！
-
-
-
-
-
 
 
 -----
@@ -13134,23 +8609,16 @@ XX的是不知何处的车站，华恋说：急急忙忙快步前行的蕉哥哥
 ##### 8140#       发表于 2019-11-3 22:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45397238&amp;ptid=1499843" target="_blank">zxc4563982 发表于 2019-11-3 20:24</a>
 
 动作很快，这就有p图了</blockquote>
 eva什么的就图一乐 少女歌剧才是真正的大作<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  wly  
 ##### 8141#       发表于 2019-11-3 23:43
-
 
 
 <blockquote>kkkttt777 发表于 2019-11-3 20:35
@@ -13162,25 +8630,13 @@ eva什么的就图一乐 少女歌剧才是真正的大作<img src="https://stat
 同感怎么看都是系列最终作。从kc工期来看最早也是2022年才能做完。换句话说百分百掐死第二季了。单纯的动画粉丝可能无所谓，但作为企划粉丝的话这样的风光大葬真的是好消息吗。
 
 
-
-
-
-
-
 -----
 
 ####  Risten  
 ##### 8142#       发表于 2019-11-4 00:00
 
 
-
-
 感觉要等好久，不过好歹有个盼头
-
-
-
-
-
 
 
 -----
@@ -13200,27 +8656,15 @@ eva什么的就图一乐 少女歌剧才是真正的大作<img src="https://stat
 可是能怎么办，痛骂舞台剧无聊和屑手游都做过了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">除非来个大金主，否则药丸
 
 
-
-
-
-
-
 -----
 
 ####  小黄酱  
 ##### 8144#       发表于 2019-11-4 00:05
 
 
-
-
 有武士道就是好啦，我好酸啊。
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -13229,14 +8673,7 @@ eva什么的就图一乐 少女歌剧才是真正的大作<img src="https://stat
 ##### 8145#       发表于 2019-11-4 00:09
 
 
-
-
 又有了新的希望<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13245,21 +8682,13 @@ eva什么的就图一乐 少女歌剧才是真正的大作<img src="https://stat
 ##### 8146#       发表于 2019-11-4 00:10
 
 
-
-
 有新作就还没死，总比已经死了要强得多，心怀希望吧
-
-
-
-
-
 
 
 -----
 
 ####  wly  
 ##### 8147#       发表于 2019-11-4 00:42
-
 
 
 <blockquote>kkkttt777 发表于 2019-11-4 00:04
@@ -13271,16 +8700,10 @@ eva什么的就图一乐 少女歌剧才是真正的大作<img src="https://stat
 你的奶其实可能真不是毒奶，对于一个还没火，号召力也还很小的企划，突然公布个至少三年后的剧场版卫星从企划整体发展角度真的很奇怪。在热度持续走低的现在到剧场版的三年靠什么来苟啊。
 
 
-
-
-
-
-
 -----
 
 ####  kkkttt777  
 ##### 8148#       发表于 2019-11-4 01:18
-
 
 
  本帖最后由 kkkttt777 于 2019-11-4 01:26 编辑 
@@ -13299,25 +8722,13 @@ eva什么的就图一乐 少女歌剧才是真正的大作<img src="https://stat
 哦，还可以看小圆翻拍。反正就廖化那水平，也拍不出好东西，就算还能看，那片子的各种既视感也会变成摆脱不掉的原罪。<img src="https://static.saraba1st.com/image/smiley/face2017/172.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  loli炮  
 ##### 8149#       发表于 2019-11-4 01:37
 
 
-
-
 我第一次进这楼 1L小图差点看成内裤了
-
-
-
-
-
 
 
 -----
@@ -13326,16 +8737,9 @@ eva什么的就图一乐 少女歌剧才是真正的大作<img src="https://stat
 ##### 8150#       发表于 2019-11-4 02:25
 
 
-
-
 如果今晚公布TV二期 你们说三年后2022放送没啥问题<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
 剧场版制作周期没有那么长 应该明年底能看到完全新作剧场版上映（话放这了不怕打脸
-
-
-
-
-
 
 
 -----
@@ -13344,14 +8748,7 @@ eva什么的就图一乐 少女歌剧才是真正的大作<img src="https://stat
 ##### 8151#       发表于 2019-11-4 04:07
 
 
-
-
 其实不论制作周期和工期了，这个剧场版是奔着少女歌剧系列大结局去的啊，这个系列动画还就定死一季一剧场版了，这还不如晚点公布让我多做几年二季的梦。
-
-
-
-
-
 
 
 -----
@@ -13360,14 +8757,7 @@ eva什么的就图一乐 少女歌剧才是真正的大作<img src="https://stat
 ##### 8152#       发表于 2019-11-4 05:33
 
 
-
-
 过于炸裂……说实话本来并没有对动画后续抱有很高的期望，古川被企划绑手绑脚坚持做完了自己想做的内容已经实属不易，再来接续并不太敢奢求。现在肯把说尽了的故事又拿出来，可能古川真的又有了更强烈的想法，虽然是否会和前作一样争议颇多暂且难说，但风格表现更鲜明浓郁还是可以期待的。
-
-
-
-
-
 
 
 -----
@@ -13376,15 +8766,8 @@ eva什么的就图一乐 少女歌剧才是真正的大作<img src="https://stat
 ##### 8153#       发表于 2019-11-4 07:24
 
 
-
-
 自制
 <img src="https://i.loli.net/2019/11/04/RdepshYMjPHWJ2E.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13393,15 +8776,9 @@ eva什么的就图一乐 少女歌剧才是真正的大作<img src="https://stat
 ##### 8154#       发表于 2019-11-4 07:58
 
 
-
 <img src="https://s2.ax1x.com/2019/11/04/KvpnxS.jpg" referrerpolicy="no-referrer">
 
 剧场版finale，三森咋就能赶上两次这种鬼才企划呢<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13410,14 +8787,7 @@ eva什么的就图一乐 少女歌剧才是真正的大作<img src="https://stat
 ##### 8155#       发表于 2019-11-4 08:34
 
 
-
-
 我炸裂了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13426,13 +8796,7 @@ eva什么的就图一乐 少女歌剧才是真正的大作<img src="https://stat
 ##### 8156#       发表于 2019-11-4 10:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">总集篇？？？能让我做一下重置后几场revue的梦吗
-
-
-
-
-
 
 
 -----
@@ -13441,13 +8805,7 @@ eva什么的就图一乐 少女歌剧才是真正的大作<img src="https://stat
 ##### 8157#       发表于 2019-11-4 10:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得总集篇把之前TV中间那些日常删点把几场revue弄密集点就很值了
-
-
-
-
-
 
 
 -----
@@ -13456,14 +8814,7 @@ eva什么的就图一乐 少女歌剧才是真正的大作<img src="https://stat
 ##### 8158#       发表于 2019-11-4 11:11
 
 
-
-
 正在厕所里摸鱼，看到标题浑身一激灵，被世界的美好感动得热泪盈眶，决定回去认真工作回报社会了。
-
-
-
-
-
 
 
 -----
@@ -13472,14 +8823,7 @@ eva什么的就图一乐 少女歌剧才是真正的大作<img src="https://stat
 ##### 8159#       发表于 2019-11-4 11:39
 
 
-
-
 （。）能求求重做蕉恋那场revue吗……
-
-
-
-
-
 
 
 -----
@@ -13488,15 +8832,9 @@ eva什么的就图一乐 少女歌剧才是真正的大作<img src="https://stat
 ##### 8160#         楼主| 发表于 2020-1-21 20:17
 
 
-
 <img src="http://wx2.sinaimg.cn/large/0068TvVBgy1gb4fy1vuifj31hc0u07nt.jpg" referrerpolicy="no-referrer">
 <img src="http://wx4.sinaimg.cn/large/0068TvVBgy1gb4fy2ebhzj31hc0u0b29.jpg" referrerpolicy="no-referrer">
 <img src="http://wx1.sinaimg.cn/mw1024/0068TvVBgy1gb4g2ij3mxj31hc0u0qv5.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13505,14 +8843,7 @@ eva什么的就图一乐 少女歌剧才是真正的大作<img src="https://stat
 ##### 8161#       发表于 2020-1-21 20:39
 
 
-
-
 废案的吸血🍌野蛮人🍌好帅啊！！！
-
-
-
-
-
 
 
 -----
@@ -13521,16 +8852,10 @@ eva什么的就图一乐 少女歌剧才是真正的大作<img src="https://stat
 ##### 8162#       发表于 2020-1-21 20:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46214265&amp;ptid=1499843" target="_blank">IDIDIDID 发表于 2020-1-21 20:39</a>
 
 废案的吸血🍌野蛮人🍌好帅啊！！！</blockquote>
 那个大披风感觉是轮回多了披肩增生了（（
-
-
-
-
-
 
 
 -----
@@ -13539,16 +8864,9 @@ eva什么的就图一乐 少女歌剧才是真正的大作<img src="https://stat
 ##### 8163#         楼主| 发表于 2020-1-21 23:53
 
 
-
-
 【予告編】少女☆歌劇 レヴュースタァライト ロンド・ロンド・ロンド
 [https://www.youtube.com/watch?v=lerxXinJE7s](https://www.youtube.com/watch?v=lerxXinJE7s)
 [https://v.youku.com/v_show/id_XNDUxODYxMzc4OA==.html](https://v.youku.com/v_show/id_XNDUxODYxMzc4OA==.html)
-
-
-
-
-
 
 
 -----
@@ -13557,14 +8875,7 @@ eva什么的就图一乐 少女歌剧才是真正的大作<img src="https://stat
 ##### 8164#       发表于 2020-1-22 07:27
 
 
-
-
 少女歌剧OOO，说了会有新场景和重绘，还是可以期待下的，续作剧场版暂时没什么料
-
-
-
-
-
 
 
 -----
@@ -13573,16 +8884,9 @@ eva什么的就图一乐 少女歌剧才是真正的大作<img src="https://stat
 ##### 8165#       发表于 2020-2-7 14:20
 
 
-
-
 这两个剧场版的海报都就只放恋一个人，有点出乎意料<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -13591,12 +8895,7 @@ eva什么的就图一乐 少女歌剧才是真正的大作<img src="https://stat
 ##### 8166#       发表于 2020-2-7 19:49
 
 
-
-
 要来了要来了，(长颈鹿狂喜
-
-
-
 
 
                            

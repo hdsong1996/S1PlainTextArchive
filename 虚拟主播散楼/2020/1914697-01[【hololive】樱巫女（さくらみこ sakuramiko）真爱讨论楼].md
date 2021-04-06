@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2020-03-04 18:06** 
 
 
-
 -----
 
 ####  森下未散  
 ##### 1#       楼主       发表于 2020-2-19 18:30
-
 
 
  本帖最后由 森下未散 于 2020-2-22 17:45 编辑 
@@ -22,9 +20,6 @@ hololive所属的虚拟巫女~NyaHello～(❀ㆆ ㆆ)و✧，这里是Sakura mik
 下载附件
 
 2020-2-19 18:05 上传
-
-
-
 
 
 <strong>[[bilibili]](https://space.bilibili.com/366690056)  [[Youtube]](https://www.youtube.com/channel/UC-hM6YJuNYVAmUWxeIr9FeA)  [[Twitter]](https://twitter.com/sakuramiko35)
@@ -55,18 +50,9 @@ hololive所属的虚拟巫女~NyaHello～(❀ㆆ ㆆ)و✧，这里是Sakura mik
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">这么会整活的精英白给巫女，不来fo一发吗
 
 
-
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +2
@@ -77,19 +63,13 @@ hololive所属的虚拟巫女~NyaHello～(❀ㆆ ㆆ)و✧，这里是Sakura mik
 | 木板春香| + 1|35P加油|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  森下未散  
 ##### 2#         楼主| 发表于 2020-2-19 18:31
-
 
 
  本帖最后由 森下未散 于 2020-3-4 17:23 编辑 
@@ -108,10 +88,6 @@ hololive所属的虚拟巫女~NyaHello～(❀ㆆ ㆆ)و✧，这里是Sakura mik
 2020-2-19 20:45 上传
 
 
-
-
-
-
 <strong>论如何在英文圈生草</strong>
 
 “ni~gger~~？”<[strong>[推特]</strong>](https://twitter.com/WeebMs/status/1130183394887815170) <[strong>[B站熟肉]</strong>](http://www.bilibili.com/video/av55647909)
@@ -126,11 +102,6 @@ hololive所属的虚拟巫女~NyaHello～(❀ㆆ ㆆ)و✧，这里是Sakura mik
 2020-2-19 20:48 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202002/20/011124j8vfxaq9zxyp9vwg.png" referrerpolicy="no-referrer">
 
 
@@ -139,9 +110,6 @@ hololive所属的虚拟巫女~NyaHello～(❀ㆆ ㆆ)و✧，这里是Sakura mik
 下载附件
 
 2020-2-20 01:11 上传
-
-
-
 
 
 “we are..we are..fxxk u！”<[strong>[推特]</strong>](https://twitter.com/outofvtubers/status/1228760277899808768?s=21) <[strong>[B站熟肉]</strong>](http://www.bilibili.com/video/av88149219)
@@ -154,11 +122,6 @@ hololive所属的虚拟巫女~NyaHello～(❀ㆆ ㆆ)و✧，这里是Sakura mik
 下载附件
 
 2020-2-19 20:48 上传
-
-
-
-
-
 
 
 <img src="https://i0.hdslb.com/bfs/article/59d23c52806b3cda1bb885a73eec12d7d05b7e36.gif" referrerpolicy="no-referrer">
@@ -185,9 +148,6 @@ hololive所属的虚拟巫女~NyaHello～(❀ㆆ ㆆ)و✧，这里是Sakura mik
 2020-2-20 19:10 上传
 
 
-
-
-
    
 <strong>
 </strong><[strong>【十万粉丝纪念歌回】</strong><strong>奏</strong>](http://www.bilibili.com/video/av79052446)<[strong>【十万粉丝纪念歌回】みこのズンドコ節</strong>](http://www.bilibili.com/video/av78853146)<[strong>【十万粉丝纪念歌回】白金DISCO（Miko ver.）</strong>](http://www.bilibili.com/video/av82752070)<[strong>【一周年纪念】ユキトキ（雪融）翻唱</strong><strong>【原创MV】樱巫女 cover.</strong>](http://www.bilibili.com/video/av62188343)<[strong>miko的首部原创曲『マイネームイズエリート☆』</strong>](http://www.bilibili.com/video/av44809246)<strong>[呀啦那一卡【樱污女/Homolive】](http://www.bilibili.com/video/av75978312)</strong><[strong>你不在的时候，全世界都是你【ARK歌回】</strong>](http://www.bilibili.com/video/av92386505)
@@ -206,27 +166,10 @@ hololive所属的虚拟巫女~NyaHello～(❀ㆆ ㆆ)و✧，这里是Sakura mik
 2020-2-20 01:23 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  雷修特  
 ##### 3#       发表于 2020-2-19 18:59
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">来了来了，万人同接好几次了吧，自从深夜ARK后数据就一路大好
@@ -234,17 +177,10 @@ hololive所属的虚拟巫女~NyaHello～(❀ㆆ ㆆ)و✧，这里是Sakura mik
 另外没找到猩猩，谢罪会还开不起来，笑死了
 
 
-
-
-
-
-
 -----
 
 ####  stuka1942  
 ##### 4#       发表于 2020-2-19 19:09
-
-
 
 
 整活能手黄油污女miko有专楼了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
@@ -254,16 +190,10 @@ hololive所属的虚拟巫女~NyaHello～(❀ㆆ ㆆ)و✧，这里是Sakura mik
 miko的确挺好玩的
 
 
-
-
-
-
-
 -----
 
 ####  MisForTunez  
 ##### 5#       发表于 2020-2-20 00:39
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">https://www.bilibili.com/video/av67186058
@@ -273,16 +203,10 @@ miko的确挺好玩的
 这段我反复看了几次 还是笑了出声
 
 
-
-
-
-
-
 -----
 
 ####  森下未散  
 ##### 6#         楼主| 发表于 2020-2-20 00:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46466554&amp;ptid=1914697" target="_blank">MisForTunez 发表于 2020-2-20 00:39</a>
@@ -295,25 +219,13 @@ https://www.bilibili.com/video/av67186058
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，真实孤独传说
 
 
-
-
-
-
-
 -----
 
 ####  茉莉呐噶米谬谬  
 ##### 7#       发表于 2020-2-20 01:17
 
 
-
-
 u1s1，确实可爱，好想看那个〇体小视频啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -322,22 +234,13 @@ u1s1，确实可爱，好想看那个〇体小视频啊啊啊<img src="https://s
 ##### 8#       发表于 2020-2-20 01:21
 
 
-
-
 勃了勃了，差点以为今天要独食ARK了
-
-
-
-
-
 
 
 -----
 
 ####  森下未散  
 ##### 9#         楼主| 发表于 2020-2-20 04:21
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202002/20/042000z9knrnkkobmbbhzb.gif" referrerpolicy="no-referrer">
@@ -350,17 +253,7 @@ u1s1，确实可爱，好想看那个〇体小视频啊啊啊<img src="https://s
 2020-2-20 04:20 上传
 
 
-
-
-
-
-
 绝了，今天估计又是同期视听羊歌和无缝衔接早安COCO，我D不住了先昏迷了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -369,21 +262,13 @@ u1s1，确实可爱，好想看那个〇体小视频啊啊啊<img src="https://s
 ##### 10#       发表于 2020-2-20 04:23
 
 
-
-
 这个月35已经播了120+小时了，酬勤酬勤
-
-
-
-
-
 
 
 -----
 
 ####  雷修特  
 ##### 11#       发表于 2020-2-20 04:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46467367&amp;ptid=1914697" target="_blank">森下未散 发表于 2020-2-20 04:21</a>
@@ -394,25 +279,13 @@ u1s1，确实可爱，好想看那个〇体小视频啊啊啊<img src="https://s
 刚开播那会35自己就说了，要播到早安COCO了，也就昨天水管爆了要起来等维修人员了吧
 
 
-
-
-
-
-
 -----
 
 ####  stuka1942  
 ##### 12#       发表于 2020-2-20 09:01
 
 
-
-
 现在35已经是第一ark废人了，时长远超其他人
-
-
-
-
-
 
 
 -----
@@ -421,14 +294,7 @@ u1s1，确实可爱，好想看那个〇体小视频啊啊啊<img src="https://s
 ##### 13#         楼主| 发表于 2020-2-20 13:56
 
 
-
-
 昨天我记得404那有个SC说是庆祝ARK配信超过100小时的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -437,24 +303,16 @@ u1s1，确实可爱，好想看那个〇体小视频啊啊啊<img src="https://s
 ##### 14#       发表于 2020-2-20 18:39
 
 
-
-
 官方做的模型太呆了，实际上中之人表情很丰富，感兴趣的朋友可以看一下av58460506
 另外想问下各位有没有比较精彩的3d联动推荐，看过好几遍pekomiko圣诞联动的录播，感觉挺有意思的
 
 —— 来自 OnePlus ONEPLUS A5000, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  森下未散  
 ##### 15#         楼主| 发表于 2020-2-20 19:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46473570&amp;ptid=1914697" target="_blank">L-JoeW 发表于 2020-2-20 18:39</a>
@@ -468,17 +326,10 @@ u1s1，确实可爱，好想看那个〇体小视频啊啊啊<img src="https://s
 顺便楼上提到过的链接都编辑在2L了
 
 
-
-
-
-
-
 -----
 
 ####  闇の魔導師  
 ##### 16#       发表于 2020-2-20 20:00
-
-
 
 
 那张图是昨天污女玩自己模型，神の光
@@ -488,31 +339,19 @@ u1s1，确实可爱，好想看那个〇体小视频啊啊啊<img src="https://s
 miko的声线特别有特色，配上他那慵懒呆滞的模型特别有表现力，让人印象深刻
 
 
-
-
-
-
-
 -----
 
 ####  Reimu853  
 ##### 17#       发表于 2020-2-20 20:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">上面那个链接笑死我，皮套限制了miko的发展
-
-
-
-
-
 
 
 -----
 
 ####  stuka1942  
 ##### 18#       发表于 2020-2-20 21:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46473570&amp;ptid=1914697" target="_blank">L-JoeW 发表于 2020-2-20 18:39</a>
@@ -525,31 +364,19 @@ miko真是太可爱了<img src="https://static.saraba1st.com/image/smiley/face20
 好活好活
 
 
-
-
-
-
-
 -----
 
 ####  雷修特  
 ##### 19#       发表于 2020-2-20 22:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">22点恐怖游戏，然后ARK回复SAN值，估计又是早安COCO了
-
-
-
-
-
 
 
 -----
 
 ####  森下未散  
 ##### 20#         楼主| 发表于 2020-2-20 22:08
-
 
 
  本帖最后由 森下未散 于 2020-2-21 00:29 编辑 
@@ -559,24 +386,13 @@ miko真是太可爱了<img src="https://static.saraba1st.com/image/smiley/face20
 感觉她根本没弄明白怎么玩，只是个莫得感情的龙鸣bot<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  森下未散  
 ##### 21#         楼主| 发表于 2020-2-21 00:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">开心的ARK时间又开始了
-
-
-
-
-
 
 
 -----
@@ -585,13 +401,7 @@ miko真是太可爱了<img src="https://static.saraba1st.com/image/smiley/face20
 ##### 22#       发表于 2020-2-21 00:24
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天还播到早安吗
-
-
-
-
-
 
 
 -----
@@ -600,21 +410,13 @@ miko真是太可爱了<img src="https://static.saraba1st.com/image/smiley/face20
 ##### 23#         楼主| 发表于 2020-2-21 04:33
 
 
-
-
 现在35真是太稳了，35p血压毫无波动，降压药滞销了<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  森下未散  
 ##### 24#         楼主| 发表于 2020-2-22 00:46
-
 
 
  本帖最后由 森下未散 于 2020-2-22 01:05 编辑 
@@ -624,26 +426,15 @@ miko真是太可爱了<img src="https://static.saraba1st.com/image/smiley/face20
 话说以后播这种小品恐怖游戏要成为定番了吗<img src="https://static.saraba1st.com/image/smiley/face2017/238.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  雷修特  
 ##### 25#       发表于 2020-2-22 04:54
 
 
-
  本帖最后由 雷修特 于 2020-2-22 05:07 编辑 
 
 真是生草了，樱火龙整新活，虚空羊歌，最草的是羊还在隔壁ARK，绝了，早安miko来了
-
-
-
-
-
 
 
 -----
@@ -652,14 +443,7 @@ miko真是太可爱了<img src="https://static.saraba1st.com/image/smiley/face20
 ##### 26#       发表于 2020-2-22 06:05
 
 
-
-
 miko确实是很有直播的才能，我总觉得模型还是欠缺那么一点精美，模型限制了她的发挥
-
-
-
-
-
 
 
 -----
@@ -668,13 +452,7 @@ miko确实是很有直播的才能，我总觉得模型还是欠缺那么一点�
 ##### 27#       发表于 2020-2-22 09:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">铁人35不需要睡眠的强者
-
-
-
-
-
 
 
 -----
@@ -683,13 +461,7 @@ miko确实是很有直播的才能，我总觉得模型还是欠缺那么一点�
 ##### 28#         楼主| 发表于 2020-2-22 13:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，早上还有这么多戏，原来早安COCO才是废人的限制器
-
-
-
-
-
 
 
 -----
@@ -698,14 +470,7 @@ miko确实是很有直播的才能，我总觉得模型还是欠缺那么一点�
 ##### 29#       发表于 2020-2-22 16:46
 
 
-
-
 今早十点起来看到直播还在 以为35是半夜下了再开 结果这废人真就熬到中午了 
-
-
-
-
-
 
 
 -----
@@ -714,14 +479,7 @@ miko确实是很有直播的才能，我总觉得模型还是欠缺那么一点�
 ##### 30#       发表于 2020-2-22 17:41
 
 
-
-
 真就铁人35，她这波播了多少小时？
-
-
-
-
-
 
 
 -----
@@ -730,16 +488,10 @@ miko确实是很有直播的才能，我总觉得模型还是欠缺那么一点�
 ##### 31#         楼主| 发表于 2020-2-22 17:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46491708&amp;ptid=1914697" target="_blank">Reimu853 发表于 2020-2-22 17:41</a>
 
 真就铁人35，她这波播了多少小时？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">光今天从0点算就十小时耐久了，再加上昨天晚上的怎么也超过12小时了
-
-
-
-
-
 
 
 -----
@@ -748,16 +500,10 @@ miko确实是很有直播的才能，我总觉得模型还是欠缺那么一点�
 ##### 32#       发表于 2020-2-23 00:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46487155&amp;ptid=1914697" target="_blank">莉蒂亚丝 发表于 2020-2-22 06:05</a>
 
 miko确实是很有直播的才能，我总觉得模型还是欠缺那么一点精美，模型限制了她的发挥 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">miko是自带模型半路进组，所以皮套肯定比不了
-
-
-
-
-
 
 
 -----
@@ -766,14 +512,7 @@ miko确实是很有直播的才能，我总觉得模型还是欠缺那么一点�
 ##### 33#       发表于 2020-2-23 19:02
 
 
-
-
 邪能巫女成了！
-
-
-
-
-
 
 
 -----
@@ -782,14 +521,7 @@ miko确实是很有直播的才能，我总觉得模型还是欠缺那么一点�
 ##### 34#         楼主| 发表于 2020-2-23 19:12
 
 
-
-
 看了眼监视器，又是下播不下游，不知道今天会不会半夜突击到早安COCO，我明天就复工了是真D不动了，35畜真的太伤身体了还是算了算了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -798,23 +530,15 @@ miko确实是很有直播的才能，我总觉得模型还是欠缺那么一点�
 ##### 35#       发表于 2020-2-24 23:29
 
 
-
-
 35成功被ark官方推特关注了…正好要开新版本了不找arklive工商一波么
 
 —— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
 
 ####  xiaohuidoufu  
 ##### 36#       发表于 2020-2-25 10:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46514975&amp;ptid=1914697" target="_blank">黑耀星尘 发表于 2020-2-24 23:29</a>
@@ -826,16 +550,10 @@ miko确实是很有直播的才能，我总觉得模型还是欠缺那么一点�
 要是有ARK新版本工商就好了 老父亲的泪冲了出来
 
 
-
-
-
-
-
 -----
 
 ####  基情飞扬  
 ##### 37#       发表于 2020-2-25 14:09
-
 
 
  本帖最后由 基情飞扬 于 2020-2-25 14:10 编辑 
@@ -851,21 +569,12 @@ miko确实是很有直播的才能，我总觉得模型还是欠缺那么一点�
 2020-2-25 14:08 上传
 
 
-
-
-
-
-
 简单P了张，miko接ARK工商应该是这种效果
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -875,12 +584,7 @@ miko确实是很有直播的才能，我总觉得模型还是欠缺那么一点�
 | 黑耀星尘| + 1|欢乐多|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -889,23 +593,15 @@ miko确实是很有直播的才能，我总觉得模型还是欠缺那么一点�
 ##### 38#       发表于 2020-2-26 01:16
 
 
-
-
 新人，超喜欢樱火龙的龙鸣声欲罢不能，我因为胆子太小晚上没有声音睡不着，所以自从知道了樱巫女然后开始了ark每天晚上都开着直播可以睡得很香哈哈(ಡωಡ)hiahiahia。顺便希望能搬运一些她那些有趣的表情图，gif什么的，每次看到拿来挡日文弹幕的那些图感觉特别有意思，但是又不知道去哪能收集到。
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  莉蒂亚丝  
 ##### 39#       发表于 2020-2-26 02:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46527139&amp;ptid=1914697" target="_blank">炎言 发表于 2020-2-26 01:16</a>
@@ -917,13 +613,9 @@ miko确实是很有直播的才能，我总觉得模型还是欠缺那么一点�
 表情包我在这个专栏看到过收集的
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -933,12 +625,7 @@ miko确实是很有直播的才能，我总觉得模型还是欠缺那么一点�
 | 炎言| + 1|爽到，感谢。|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -947,13 +634,7 @@ miko确实是很有直播的才能，我总觉得模型还是欠缺那么一点�
 ##### 40#       发表于 2020-2-26 02:48
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">这半夜跟绵羊又整活了，钩了绵羊上老鹰飞出去当鱼饵了，然后猛犸跟着摔下去了XD
-
-
-
-
-
 
 
 -----
@@ -962,15 +643,9 @@ miko确实是很有直播的才能，我总觉得模型还是欠缺那么一点�
 ##### 41#         楼主| 发表于 2020-2-26 08:13
 
 
-
 <blockquote>基情飞扬 发表于 2020-2-25 14:09
 简单P了张，miko接ARK工商应该是这种效果</blockquote>
 绝了，感觉黑眼圈应该是35p的，35自己是那个戴着墨镜“爽啊”的表情。。。
-
-
-
-
-
 
 
 -----
@@ -979,22 +654,13 @@ miko确实是很有直播的才能，我总觉得模型还是欠缺那么一点�
 ##### 42#         楼主| 发表于 2020-2-26 08:24
 
 
-
-
 表情包可能进群就有，我没去加协会群，瞎猜的(
-
-
-
-
-
 
 
 -----
 
 ####  董卓  
 ##### 43#       发表于 2020-2-26 11:56
-
-
 
 
 35平时就个斜着头，准备搞活+沙雕傲娇网友的样子
@@ -1005,16 +671,10 @@ miko确实是很有直播的才能，我总觉得模型还是欠缺那么一点�
 DD小心肝就dokidoki了 这是怎么回事？
 
 
-
-
-
-
-
 -----
 
 ####  森下未散  
 ##### 44#         楼主| 发表于 2020-2-26 12:21
-
 
 
 <blockquote>董卓 发表于 2020-2-26 11:56
@@ -1026,25 +686,13 @@ DD小心肝就dokidoki了 这是怎么回事？
 好像是因为摄像头/手机是侧着对着脸放的，所以正脸过来就是看摄像头了，一般侧颜就是在看电脑屏幕吧
 
 
-
-
-
-
-
 -----
 
 ####  sosadfish  
 ##### 45#       发表于 2020-2-26 15:13
 
 
-
-
 35这月已经快把自己榨干了，真正的自杀式直播，不希望homo又一个把自己播成姨妈紊乱的人出现了，但是考虑到35社内的处境，好像也没有这个底气跟别人一样一个月就播十几个小时不到<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1053,23 +701,16 @@ DD小心肝就dokidoki了 这是怎么回事？
 ##### 46#       发表于 2020-2-26 16:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46532870&amp;ptid=1914697" target="_blank">sosadfish 发表于 2020-2-26 15:13</a>
 
 35这月已经快把自己榨干了，真正的自杀式直播，不希望homo又一个把自己播成姨妈紊乱的人出现了，但是考虑到 ...</blockquote>
 又不是第一次，自从去年开始播MC开始她的深夜耐久节奏就没停下来过
 
 
-
-
-
-
-
 -----
 
 ####  泡芙好吃  
 ##### 47#       发表于 2020-2-26 16:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46532870&amp;ptid=1914697" target="_blank">sosadfish 发表于 2020-2-26 15:13</a>
@@ -1080,16 +721,10 @@ DD小心肝就dokidoki了 这是怎么回事？
 当然能经常熬夜前提也要是身体要够好，毕竟miko还很年轻所以这么闹腾还受得了
 
 
-
-
-
-
-
 -----
 
 ####  森下未散  
 ##### 48#         楼主| 发表于 2020-2-27 00:43
-
 
 
  本帖最后由 森下未散 于 2020-2-27 00:52 编辑 
@@ -1108,23 +743,13 @@ DD小心肝就dokidoki了 这是怎么回事？
 2020-2-27 00:48 上传
 
 
-
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">我错了，原来人在第三层
-
-
-
-
-
 
 
 -----
 
 ####  炎言  
 ##### 49#       发表于 2020-2-27 00:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538766&amp;ptid=1914697" target="_blank">森下未散 发表于 2020-2-27 00:43</a>
@@ -1135,16 +760,10 @@ DD小心肝就dokidoki了 这是怎么回事？
 真可惜了，超想看哎。。
 
 
-
-
-
-
-
 -----
 
 ####  森下未散  
 ##### 50#         楼主| 发表于 2020-2-27 00:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538787&amp;ptid=1914697" target="_blank">炎言 发表于 2020-2-27 00:46</a>
@@ -1153,27 +772,15 @@ DD小心肝就dokidoki了 这是怎么回事？
 只留了一个35的转播间又开起来了<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Reimu853  
 ##### 51#       发表于 2020-2-27 00:52
 
 
-
-
 草，这转播求生欲太强了8
 
 没关注过这游戏，看了半天也没看到会被和谐的地方……
-
-
-
-
-
 
 
 -----
@@ -1182,23 +789,16 @@ DD小心肝就dokidoki了 这是怎么回事？
 ##### 52#       发表于 2020-2-27 00:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538809&amp;ptid=1914697" target="_blank">森下未散 发表于 2020-02-27 00:49:34</a>
 只留了一个35的转播间又开起来了</blockquote>看到了，太聪明了哈哈哈，也挺好，正好听听声音睡觉了wwwww
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  森下未散  
 ##### 53#         楼主| 发表于 2020-2-27 00:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538835&amp;ptid=1914697" target="_blank">Reimu853 发表于 2020-2-27 00:52</a>
@@ -1209,16 +809,10 @@ DD小心肝就dokidoki了 这是怎么回事？
 后面打起来了是真残肢乱飞，血乱飚，敌人都是裸男以及裸男聚合体，而且有食人京观<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Reimu853  
 ##### 54#       发表于 2020-2-27 00:57
-
 
 
  本帖最后由 Reimu853 于 2020-2-27 01:04 编辑 
@@ -1230,25 +824,13 @@ DD小心肝就dokidoki了 这是怎么回事？
 syl，半夜可能还是不太适合看这个……
 
 
-
-
-
-
-
 -----
 
 ####  stuka1942  
 ##### 55#       发表于 2020-2-27 01:41
 
 
-
-
 35这女人就算不玩ark晚上也不睡觉啊，可注意点身体吧
-
-
-
-
-
 
 
 -----
@@ -1257,23 +839,16 @@ syl，半夜可能还是不太适合看这个……
 ##### 56#         楼主| 发表于 2020-2-27 01:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46539202&amp;ptid=1914697" target="_blank">stuka1942 发表于 2020-2-27 01:41</a>
 
 35这女人就算不玩ark晚上也不睡觉啊，可注意点身体吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">她刚说了每天都看早安COCO的，你说她是什么作息。。。。
 
 
-
-
-
-
-
 -----
 
 ####  森下未散  
 ##### 57#         楼主| 发表于 2020-3-1 14:36
-
 
 
  本帖最后由 森下未散 于 2020-3-1 14:45 编辑 
@@ -1287,27 +862,15 @@ syl，半夜可能还是不太适合看这个……
 原版35自己整的早安COCO就有，直播那时候还cut了好几回<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  森下未散  
 ##### 58#         楼主| 发表于 2020-3-2 10:29
 
 
-
  本帖最后由 森下未散 于 2020-3-4 17:15 编辑 
 
 编辑一波，素情和PCR都是试水，能不能接到工商未知<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1316,10 +879,7 @@ syl，半夜可能还是不太适合看这个……
 ##### 59#         楼主| 发表于 2020-3-4 17:20
 
 
-
-
 精英工厂的MIX
-
 
 
 捞一下，晚上生日会待机<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
@@ -1327,16 +887,10 @@ syl，半夜可能还是不太适合看这个……
 话说为毛帖子主题还有字符限制，我都没法把生日信息编辑进去<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  泡芙好吃  
 ##### 60#       发表于 2020-3-4 17:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46588026&amp;ptid=1914697" target="_blank">森下未散 发表于 2020-3-2 10:29</a>
@@ -1347,16 +901,10 @@ syl，半夜可能还是不太适合看这个……
 konofan的话不太好说 但是非案件同接破万说实话也很不错了 而且她本身播抽卡的直播效果就很好 他们都说只要运营看了这场直播基本都会考虑
 
 
-
-
-
-
-
 -----
 
 ####  森下未散  
 ##### 61#         楼主| 发表于 2020-3-4 18:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46615415&amp;ptid=1914697" target="_blank">泡芙好吃 发表于 2020-3-4 17:35</a>
@@ -1365,9 +913,6 @@ konofan的话不太好说 但是非案件同接破万说实话也很不错了 �
 
 konofan的话不太好说 但是非案件同接破万说 ...</blockquote>
 素晴我也看了确实不错，35明显是熟知剧情的，介绍起来头头是道，然后抽到第一个SSR是个黄毛男很嫌弃就很真实<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
-
-
-
 
 
                                                

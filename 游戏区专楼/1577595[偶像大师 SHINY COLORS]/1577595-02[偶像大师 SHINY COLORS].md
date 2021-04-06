@@ -1,20 +1,13 @@
 > ## **本文件最后更新于2021-01-18 05:28** 
 
 
-
 -----
 
 ####  areklose  
 ##### 1501#       发表于 2020-9-22 09:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">SC其实也没啥好讨论。。
-
-
-
-
-
 
 
 -----
@@ -23,16 +16,9 @@
 ##### 1502#         楼主| 发表于 2020-9-22 09:49
 
 
-
-
 上位平衡做的实在稀烂，游戏的部分越提越火大，开发出来的新内容全是都是刷人数的技巧(这帮闲人2020年了还在同时刷モバマス)。
 
 剧情能说的内容还是很多的，note上好的感想文章不少，就是光是转链接也没意思。有时效性的内容SNS上基本一眼都看得到，论坛上发帖还是想找点有沉淀的话题。
-
-
-
-
-
 
 
 -----
@@ -41,14 +27,7 @@
 ##### 1503#         楼主| 发表于 2020-9-23 15:44
 
 
-
-
 新手任务增加了WING通关的任务，最后过了半决赛给SSSR的票。
-
-
-
-
-
 
 
 -----
@@ -57,22 +36,13 @@
 ##### 1504#       发表于 2020-9-23 18:23
 
 
-
-
 每天几分钟做做每日，活动结束前一天爆肝两三小时搞定，抽卡沉船，不外乎这些
-
-
-
-
-
 
 
 -----
 
 ####  accdexr  
 ##### 1505#       发表于 2020-9-25 10:28
-
-
 
 
 其实还有对推特美图发情 脑洞小偶像互动 读剧情和剧情感想文儿
@@ -85,16 +55,10 @@
 昨天迷光上地上波了，球个录像
 
 
-
-
-
-
-
 -----
 
 ####  zechins  
 ##### 1506#       发表于 2020-9-25 13:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48847160&amp;ptid=1577595" target="_blank">accdexr 发表于 2020-9-25 10:28</a>
@@ -108,13 +72,9 @@
 [https://www.bilibili.com/video/BV1Uz4y1Z7Ut](https://www.bilibili.com/video/BV1Uz4y1Z7Ut) wdc地上波演出单独版
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +2
@@ -125,12 +85,7 @@
 | accdexr| + 1|感谢！|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -139,14 +94,7 @@
 ##### 1507#       发表于 2020-9-30 14:47
 
 
-
-
 这月卡除了限定必得，感觉意义不大。。。
-
-
-
-
-
 
 
 -----
@@ -155,20 +103,13 @@
 ##### 1508#       发表于 2020-9-30 14:56
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">溢出道具金银能换SSR必得和十连卷是不是新加的。我感觉亏了一个亿
-
-
-
-
-
 
 
 -----
 
 ####  lhawp  
 ##### 1509#       发表于 2020-9-30 14:59
-
 
 
  本帖最后由 lhawp 于 2020-9-30 15:30 编辑 
@@ -178,16 +119,10 @@
 话说这次加了一堆氪金点，却唯独不肯卖限定必得券…新入坑的想追进度是真难
 
 
-
-
-
-
-
 -----
 
 ####  wfhtony  
 ##### 1510#       发表于 2020-10-6 23:03
-
 
 
 <img src="https://raw.githubusercontent.com/wfhtony/pic-deploy-01/master/img/LACM-14983.jpg" referrerpolicy="no-referrer">
@@ -204,16 +139,10 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1650/)、[03](https://www.
 其他线上商店：[02](https://lnk.to/lzc-1650)、[03](https://lnk.to/lzc-1651)
 
 
-
-
-
-
-
 -----
 
 ####  shadowof  
 ##### 1511#         楼主| 发表于 2020-10-7 12:15
-
 
 
  本帖最后由 shadowof 于 2020-10-8 01:44 编辑 
@@ -248,19 +177,9 @@ THE LEGEND 30
 同样的情况GRAD决胜，特化编成流一流二退场很快，流三最后剩下需要连战2-3回合的情况非常常见，奄奄一息的时候一发メンタルキュア的效果远远大于一次不一致的appeal，绝对不会消掉。
 
 
-
-
-
-
-
 另外一个很无聊的理由就是icon的识别度问题。
 
 刷歌姬刷的多就知道两面属性(DaVi或者DaVo)刷歌姬肯定先把对应的一倍消掉，减少辨别同样icon技能的时间，メンタルキュア一眼就能识别出，对于一些不带オーディションSP的编成或是节省点技能时间的时候，只点到3个技能(不会事故的最低限度)，肯定不会选择先消掉メンタルキュア。
-
-
-
-
-
 
 
 -----
@@ -269,14 +188,7 @@ THE LEGEND 30
 ##### 1512#       发表于 2020-10-8 00:36
 
 
-
-
 完全没有关注过回血这个初始技能，打te大部分时候玩双偏流，每次都会先把回血给点成2.5刀。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -285,21 +197,13 @@ THE LEGEND 30
 ##### 1513#       发表于 2020-10-8 01:25
 
 
-
-
 白嫖那几天登陆了几天给了几个2.5周年碎片，然后就不给了？然后现在就6个碎片在那也不能抽，强迫症要犯了
-
-
-
-
-
 
 
 -----
 
 ####  shadowof  
 ##### 1514#         楼主| 发表于 2020-10-8 01:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48983045&amp;ptid=1577595" target="_blank">zeroed 发表于 2020-10-8 01:25</a>
@@ -313,24 +217,13 @@ THE LEGEND 30
 <img src="https://i.imgur.com/tBxU9B0.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  areklose  
 ##### 1515#       发表于 2020-10-8 08:52
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打TE一直单极，所以根本不缺血
-
-
-
-
-
 
 
 -----
@@ -339,14 +232,7 @@ THE LEGEND 30
 ##### 1516#       发表于 2020-10-9 03:11
 
 
-
-
 要是有加注目度或者降防御的技能和buff的话有个メンタルキュア还是安心些，尤其是grad
-
-
-
-
-
 
 
 -----
@@ -355,13 +241,7 @@ THE LEGEND 30
 ##### 1517#       发表于 2020-10-13 14:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这活动是刷粉活动？
-
-
-
-
-
 
 
 -----
@@ -370,23 +250,15 @@ THE LEGEND 30
 ##### 1518#       发表于 2020-10-13 15:26
 
 
-
-
 不要妄想跟这群肝比排名了
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  lhawp  
 ##### 1519#       发表于 2020-10-14 00:25
-
 
 
  本帖最后由 lhawp 于 2020-10-14 00:27 编辑 
@@ -398,26 +270,13 @@ THE LEGEND 30
 自己的Vi单极阵容一周平均只能刷150W人出头，算了下每天1-2次WING+3个远征槽全部同角色单人营业，应该勉强够混个银称号
 
 
-
-
-
-
-
-
 -----
 
 ####  嘲哳的声音  
 ##### 1520#       发表于 2020-10-14 03:20
 
 
-
-
 银非常好拿的，即使是上次也就10个左右过了千万，而且感觉这次线会比上次低(指白金以下)
-
-
-
-
-
 
 
 -----
@@ -426,15 +285,8 @@ THE LEGEND 30
 ##### 1521#       发表于 2020-10-14 18:29
 
 
-
-
 顺带问下是只能拿一个偶像的称号吗，还是能拿到所有进榜偶像的称号？
 另外今天翻了下旧贴，原来这游戏一开始连天井都没有的么…
-
-
-
-
-
 
 
 -----
@@ -443,14 +295,7 @@ THE LEGEND 30
 ##### 1522#       发表于 2020-10-14 20:05
 
 
-
-
 今天就打了一把WING140w粉就2000多名了。看来只追求一个的话应该还可以
-
-
-
-
-
 
 
 -----
@@ -459,14 +304,7 @@ THE LEGEND 30
 ##### 1523#       发表于 2020-10-19 20:22
 
 
-
-
 问下17号那个アソビス的imas生放是啥内容啊 哪里有留档吗（
-
-
-
-
-
 
 
 -----
@@ -475,20 +313,15 @@ THE LEGEND 30
 ##### 1524#       发表于 2020-10-20 00:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49093704&amp;ptid=1577595" target="_blank">accdexr 发表于 2020-10-19 20:22</a>
 
 问下17号那个アソビス的imas生放是啥内容啊 哪里有留档吗（</blockquote>
 电视购物
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -498,19 +331,13 @@ THE LEGEND 30
 | accdexr| + 1|爆笑|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  shadowof  
 ##### 1525#         楼主| 发表于 2020-10-20 07:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49093704&amp;ptid=1577595" target="_blank">accdexr 发表于 2020-10-19 20:22</a>
@@ -522,13 +349,9 @@ THE LEGEND 30
 这次直播活动就是宣传让你们买周边，非常没营养。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -538,12 +361,7 @@ THE LEGEND 30
 | accdexr| + 1|感谢|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -552,14 +370,7 @@ THE LEGEND 30
 ##### 1526#       发表于 2020-10-20 17:21
 
 
-
-
 磨刀霍霍等円香
-
-
-
-
-
 
 
 -----
@@ -568,13 +379,7 @@ THE LEGEND 30
 ##### 1527#       发表于 2020-10-21 14:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">草210,第一张。最近好非，上2次限定，我分别是160,190才抽出来
-
-
-
-
-
 
 
 -----
@@ -583,16 +388,9 @@ THE LEGEND 30
 ##### 1528#       发表于 2020-10-21 22:01
 
 
-
-
 這張霧子運營已經放棄治療啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 200抽出了円香
-
-
-
-
-
 
 
 -----
@@ -601,16 +399,9 @@ THE LEGEND 30
 ##### 1529#       发表于 2020-10-21 23:21
 
 
-
-
 这雾子认真的，你游膨胀也太厉害了吧
 
 虽然我90抽2雾子1园香<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -619,14 +410,7 @@ THE LEGEND 30
 ##### 1530#       发表于 2020-10-22 01:23
 
 
-
-
 唔……小糸……和小小红真像呢……
-
-
-
-
-
 
 
 -----
@@ -635,13 +419,7 @@ THE LEGEND 30
 ##### 1531#       发表于 2020-10-22 01:52
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">我好不容易攒的一井啊，就这么没了，円香你这个罪孽深重的女人
-
-
-
-
-
 
 
 -----
@@ -650,23 +428,14 @@ THE LEGEND 30
 ##### 1532#       发表于 2020-10-22 10:05
 
 
-
-
 上头抽了一井，之前小糸s卡也抽了一井，免费钻一下就见底了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">希望雛菜和小糸的限定p卡不要来得太快吧
 不过Voctchill强度是真的离谱，现在就等GRAD实装了
-
-
-
-
-
 
 
 -----
 
 ####  wfhtony  
 ##### 1533#       发表于 2020-10-24 00:03
-
-
 
 
 《偶像大师 闪耀色彩》插画集 VOL.1
@@ -691,15 +460,9 @@ BOOKWALKER：[https://bookwalker.jp/de3c24a3ab-0d43-4f0e-adca-a75230f0c667/](htt
 Rakuten Book(Kobo)：[https://books.rakuten.co.jp/rk/e1367e63c2a2337c83f6196d59a9f81d/](https://books.rakuten.co.jp/rk/e1367e63c2a2337c83f6196d59a9f81d/)
 
 
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -709,19 +472,13 @@ Rakuten Book(Kobo)：[https://books.rakuten.co.jp/rk/e1367e63c2a2337c83f6196d59a
 | caiseni| + 2|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  areklose  
 ##### 1534#       发表于 2020-10-24 08:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49124502&amp;ptid=1577595" target="_blank">lhawp 发表于 2020-10-22 10:05</a>
@@ -732,27 +489,15 @@ Rakuten Book(Kobo)：[https://books.rakuten.co.jp/rk/e1367e63c2a2337c83f6196d59a
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我觉得周年前2次限定跑不了
 
 
-
-
-
-
-
 -----
 
 ####  冰风血羽  
 ##### 1535#       发表于 2020-10-25 05:06
 
 
-
-
 本咸鱼又忘记了周日刷新周常<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -761,21 +506,13 @@ Rakuten Book(Kobo)：[https://books.rakuten.co.jp/rk/e1367e63c2a2337c83f6196d59a
 ##### 1536#       发表于 2020-10-27 22:23
 
 
-
-
 不得不说感谢祭真是你游最nt的玩法，蜜汁失败率而且失败惩罚巨高。要不是刷LV5做偶像之路根本不会碰的东西，刚才一把个位数的失败概率让我失败了3次，中间只要成功一次我就满回忆了，气的我想砸电脑<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  wfhtony  
 ##### 1537#       发表于 2020-10-27 23:03
-
 
 
 <img src="https://raw.githubusercontent.com/wfhtony/pic-deploy-01/master/img/LACM-14984.jpg" referrerpolicy="no-referrer">
@@ -792,16 +529,10 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1676/)、[03](https://www.
 其他线上商店：[02](https://lnk.to/lzc-1676)、[03](https://lnk.to/lzc-1677)
 
 
-
-
-
-
-
 -----
 
 ####  嘲哳的声音  
 ##### 1538#       发表于 2020-10-28 04:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49196844&amp;ptid=1577595" target="_blank">不应 发表于 2020-10-27 22:23</a>
@@ -809,16 +540,10 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1676/)、[03](https://www.
 你需要トラブル守り<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  shadowof  
 ##### 1539#         楼主| 发表于 2020-10-29 13:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49196844&amp;ptid=1577595" target="_blank">不应 发表于 2020-10-27 22:23</a>
@@ -835,17 +560,10 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1676/)、[03](https://www.
 具体的做法就是先随便选激活一个不用的NOTE，然后再选自己需要的那册NOTE，这样同一周内第二册激活的NOTE的第一页惩罚就不会生效。
 
 
-
 解3星NOTE的时候，取消掉第一页惩罚是上位育成的基本，特别是3星特有的10%摔和TALK杂志的体力大减都可以取消一次，之后会多出很多余裕。
 
 
-
 感謝祭的攻略以前写了一大半，如果ノクチル先更新感謝祭的话，到时候再发。
-
-
-
-
-
 
 
 -----
@@ -854,14 +572,7 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1676/)、[03](https://www.
 ##### 1540#       发表于 2020-10-30 17:36
 
 
-
-
 N组还没感谢祭和grad，等得我好苦啊
-
-
-
-
-
 
 
 -----
@@ -870,16 +581,10 @@ N组还没感谢祭和grad，等得我好苦啊
 ##### 1541#       发表于 2020-10-30 22:02
 
 
-
 <img src="https://tc2.wfhtony.space/images/2020/10/30/183114e55ac5348f52a41041f42b0d30.png" referrerpolicy="no-referrer">
 [MUSIC DAWN的场刊（附带特典蓝光盘）](https://shop.asobistore.jp/products/detail/152202-00-00-00)之后还会再卖一次。
 
 之前购买的[大概24号就到手](https://twitter.com/search?q=MUSIC%20DAWN%20%E5%85%AC%E5%BC%8F%E3%83%91%E3%83%B3%E3%83%95%E3%83%AC%E3%83%83%E3%83%88&amp;src=typed_query&amp;f=live)了。
-
-
-
-
-
 
 
 -----
@@ -888,20 +593,13 @@ N组还没感谢祭和grad，等得我好苦啊
 ##### 1542#       发表于 2020-10-31 14:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">限定继续！
-
-
-
-
-
 
 
 -----
 
 ####  shadowof  
 ##### 1543#         楼主| 发表于 2020-10-31 16:10
-
 
 
  本帖最后由 shadowof 于 2020-10-31 19:41 编辑 
@@ -911,26 +609,13 @@ N组还没感谢祭和grad，等得我好苦啊
 带了其他东西都是今天到的。
 
 
-
-
-
-
-
-
 -----
 
 ####  嘲哳的声音  
 ##### 1544#       发表于 2020-10-31 18:29
 
 
-
-
 グレフェス还能不能正常玩了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">捧新卡就捧吧，能别用这么恶心的方式吗
-
-
-
-
-
 
 
 -----
@@ -939,21 +624,13 @@ N组还没感谢祭和grad，等得我好苦啊
 ##### 1545#       发表于 2020-10-31 18:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">グレフェス太畸形了。收益和投入性价比太低。我现在基本就靠N组来玩到4-5升降机。不要太认真
-
-
-
-
-
 
 
 -----
 
 ####  shadowof  
 ##### 1546#         楼主| 发表于 2020-10-31 18:36
-
-
 
 
 GRAD去拿个属性マスター就可以解掉debuff
@@ -969,16 +646,10 @@ GRAD去拿个属性マスター就可以解掉debuff
 这游戏根本不存在平衡。
 
 
-
-
-
-
-
 -----
 
 ####  嘲哳的声音  
 ##### 1547#       发表于 2020-10-31 18:45
-
 
 
  本帖最后由 嘲哳的声音 于 2020-11-1 16:30 编辑 
@@ -991,27 +662,15 @@ GRAD去拿个属性マスター就可以解掉debuff
 试了下，只要有マスター技能アイドル的在队伍里，有几个一次アピール就消几个，无论是谁的アピール都行
 
 
-
-
-
-
-
 -----
 
 ####  shadowof  
 ##### 1548#         楼主| 发表于 2020-10-31 18:53
 
 
-
-
 对手也吃BUFF其实没那么麻烦，没被评审喷到的时候输出就可以了。
 
 老老实实Vi特化最简单，7评审现在360万，最后反正是比PL的分数。
-
-
-
-
-
 
 
 -----
@@ -1020,14 +679,7 @@ GRAD去拿个属性マスター就可以解掉debuff
 ##### 1549#         楼主| 发表于 2020-11-1 16:47
 
 
-
-
 明年要出solo了。
-
-
-
-
-
 
 
 -----
@@ -1036,14 +688,7 @@ GRAD去拿个属性マスター就可以解掉debuff
 ##### 1550#       发表于 2020-11-1 16:57
 
 
-
-
 什么solo
-
-
-
-
-
 
 
 -----
@@ -1052,20 +697,13 @@ GRAD去拿个属性マスター就可以解掉debuff
 ##### 1551#       发表于 2020-11-1 16:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">谜之分组，虽然个人来说全都会买，没分别。
-
-
-
-
-
 
 
 -----
 
 ####  wfhtony  
 ##### 1552#       发表于 2020-11-1 18:28
-
 
 
 <img src="https://tc2.wfhtony.space/images/2020/11/01/03e4ce25e58750acd312c340d70afb11.png" referrerpolicy="no-referrer"><blockquote>■対象商品
@@ -1111,7 +749,6 @@ GRAD去拿个属性マスター就可以解掉debuff
 品番：LACA-15863
 
 価格：2,500円+税
-
 
 
 ■対象店舗：特典内容
@@ -1174,17 +811,10 @@ WonderGOO/新星堂：L判ブロマイド
 ※生産予定数を超過した場合、ご注文の途中終了や発売日の変更を行う場合がございます。ご了承下さい。</blockquote>via [Asobi Store](https://shop.asobistore.jp/products/detail/153845-00-00-00)
 
 
-
-
-
-
-
 -----
 
 ####  镜hinata  
 ##### 1553#       发表于 2020-11-1 19:18
-
-
 
 
 solo来得有点快
@@ -1193,26 +823,14 @@ solo来得有点快
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  koodooliz  
 ##### 1554#       发表于 2020-11-1 19:36
 
 
-
-
 Team Sol
 <img src="https://p.sda1.dev/0/2ae7380e054dfbfa2d58aa6cfe185dea/IMG_CMP_14794171.jpeg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1221,14 +839,7 @@ Team Sol
 ##### 1555#       发表于 2020-11-3 13:35
 
 
-
-
 感谢祭要怎么玩。。。新手完全不懂求教
-
-
-
-
-
 
 
 -----
@@ -1237,14 +848,7 @@ Team Sol
 ##### 1556#       发表于 2020-11-3 15:40
 
 
-
-
 人权卡都是限定吗
-
-
-
-
-
 
 
 -----
@@ -1253,24 +857,15 @@ Team Sol
 ##### 1557#       发表于 2020-11-3 15:46
 
 
-
-
 感谢祭我基本不玩了。追求活动毕业的话，其实也就是组一队单属性的队伍，然后根据note来补人。实际上单流行，属性合格的话只是追求通关不难。
 
 至于限定是不是和人权卡划上句话。那就是是。限定现在的性能比常驻强很多是一定的。无论是S卡和P卡。实际上。如果无氪单纯抽卡，建议只抽限定。毕竟这游戏太能歪了
-
-
-
-
-
 
 
 -----
 
 ####  eternal-f  
 ##### 1558#       发表于 2020-11-4 11:26
-
-
 
 
 GRAD是真的玩不来，问一下这样的算是勉强能用还是P废了？总感觉主属性900好低<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
@@ -1285,10 +880,6 @@ GRAD是真的玩不来，问一下这样的算是勉强能用还是P废了？总
 2020-11-4 11:22 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202011/04/112206j9299wv7768dz7it.png" referrerpolicy="no-referrer">
 
 
@@ -1297,10 +888,6 @@ GRAD是真的玩不来，问一下这样的算是勉强能用还是P废了？总
 下载附件
 
 2020-11-4 11:22 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202011/04/112206od95nes86dr0neiq.png" referrerpolicy="no-referrer">
@@ -1313,10 +900,6 @@ GRAD是真的玩不来，问一下这样的算是勉强能用还是P废了？总
 2020-11-4 11:22 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202011/04/112207hupbg0t2x3tgmug3.png" referrerpolicy="no-referrer">
 
 
@@ -1325,10 +908,6 @@ GRAD是真的玩不来，问一下这样的算是勉强能用还是P废了？总
 下载附件
 
 2020-11-4 11:22 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202011/04/112207dwzlrbwaff3xfgdd.png" referrerpolicy="no-referrer">
@@ -1341,10 +920,6 @@ GRAD是真的玩不来，问一下这样的算是勉强能用还是P废了？总
 2020-11-4 11:22 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202011/04/112207t34xs38fcicshkwk.png" referrerpolicy="no-referrer">
 
 
@@ -1353,10 +928,6 @@ GRAD是真的玩不来，问一下这样的算是勉强能用还是P废了？总
 下载附件
 
 2020-11-4 11:22 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202011/04/112208mhi5nrulyr8pqyu8.png" referrerpolicy="no-referrer">
@@ -1369,10 +940,6 @@ GRAD是真的玩不来，问一下这样的算是勉强能用还是P废了？总
 2020-11-4 11:22 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202011/04/112209gouxh3oo1b171f1b.png" referrerpolicy="no-referrer">
 
 
@@ -1383,23 +950,10 @@ GRAD是真的玩不来，问一下这样的算是勉强能用还是P废了？总
 2020-11-4 11:22 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  shadowof  
 ##### 1559#         楼主| 发表于 2020-11-4 11:42
-
-
 
 
 还少个Dance◎
@@ -1407,16 +961,10 @@ GRAD是真的玩不来，问一下这样的算是勉强能用还是P废了？总
 另外最好有物静か
 
 
-
-
-
-
-
 -----
 
 ####  shadowof  
 ##### 1560#         楼主| 发表于 2020-11-10 14:24
-
 
 
  本帖最后由 shadowof 于 2020-11-10 14:25 编辑 
@@ -1426,31 +974,19 @@ GRAD是真的玩不来，问一下这样的算是勉强能用还是P废了？总
 三星册子现在多了一周完成时间，第三页增加了支援发动率上升的效果。10%事故的效果去掉了
 
 
-
-
-
-
-
 -----
 
 ####  areklose  
 ##### 1561#       发表于 2020-11-10 14:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感谢祭终于加剧本了。。我很久没推感谢祭了。。平时活动也不刷。。
-
-
-
-
-
 
 
 -----
 
 ####  wfhtony  
 ##### 1562#       发表于 2020-11-10 23:10
-
 
 
 <img src="https://raw.githubusercontent.com/wfhtony/pic-deploy-01/master/img/LACM-14985.jpg" referrerpolicy="no-referrer">
@@ -1467,25 +1003,13 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1772/)、[03](https://www.
 其他线上商店：[02](https://lnk.to/lzc-1772)、[03](https://lnk.to/lzc-1773)
 
 
-
-
-
-
-
 -----
 
 ####  冰风血羽  
 ##### 1563#       发表于 2020-11-11 02:59
 
 
-
-
 活动任务里有感谢祭书本完成数，我就喜欢打这个，放宽要求真是太好了。GRAD经常失败搞得我都没啥兴趣去玩。
-
-
-
-
-
 
 
 -----
@@ -1496,14 +1020,12 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1772/)、[03](https://www.
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Mozlynx  
 ##### 1565#       发表于 2020-11-11 14:13
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -1514,14 +1036,12 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1772/)、[03](https://www.
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Mozlynx  
 ##### 1567#       发表于 2020-11-11 14:13
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -1532,14 +1052,12 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1772/)、[03](https://www.
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Mozlynx  
 ##### 1569#       发表于 2020-11-11 14:14
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -1550,14 +1068,12 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1772/)、[03](https://www.
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Mozlynx  
 ##### 1571#       发表于 2020-11-11 14:14
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -1568,14 +1084,12 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1772/)、[03](https://www.
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Mozlynx  
 ##### 1573#       发表于 2020-11-11 14:14
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -1586,14 +1100,12 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1772/)、[03](https://www.
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Mozlynx  
 ##### 1575#       发表于 2020-11-11 14:14
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -1604,14 +1116,12 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1772/)、[03](https://www.
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Mozlynx  
 ##### 1577#       发表于 2020-11-11 14:15
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -1622,14 +1132,12 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1772/)、[03](https://www.
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Mozlynx  
 ##### 1579#       发表于 2020-11-11 14:15
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -1640,14 +1148,12 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1772/)、[03](https://www.
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Mozlynx  
 ##### 1581#       发表于 2020-11-11 14:15
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -1658,14 +1164,12 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1772/)、[03](https://www.
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Mozlynx  
 ##### 1583#       发表于 2020-11-11 14:15
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -1676,14 +1180,12 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1772/)、[03](https://www.
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Mozlynx  
 ##### 1585#       发表于 2020-11-11 14:15
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -1694,14 +1196,12 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1772/)、[03](https://www.
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Mozlynx  
 ##### 1587#       发表于 2020-11-11 14:15
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -1712,14 +1212,12 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1772/)、[03](https://www.
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Mozlynx  
 ##### 1589#       发表于 2020-11-11 14:15
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -1730,14 +1228,12 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1772/)、[03](https://www.
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Mozlynx  
 ##### 1591#       发表于 2020-11-11 14:15
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -1748,14 +1244,12 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1772/)、[03](https://www.
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Mozlynx  
 ##### 1593#       发表于 2020-11-11 14:15
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -1766,14 +1260,12 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1772/)、[03](https://www.
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Mozlynx  
 ##### 1595#       发表于 2020-11-11 14:15
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -1784,14 +1276,12 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1772/)、[03](https://www.
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Mozlynx  
 ##### 1597#       发表于 2020-11-11 14:16
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -1802,14 +1292,12 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1772/)、[03](https://www.
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Mozlynx  
 ##### 1599#       发表于 2020-11-11 14:16
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -1820,14 +1308,12 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1772/)、[03](https://www.
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Mozlynx  
 ##### 1601#       发表于 2020-11-11 14:16
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -1838,14 +1324,12 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1772/)、[03](https://www.
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Mozlynx  
 ##### 1603#       发表于 2020-11-11 14:16
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -1856,14 +1340,12 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1772/)、[03](https://www.
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Mozlynx  
 ##### 1605#       发表于 2020-11-11 14:16
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -1874,14 +1356,12 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1772/)、[03](https://www.
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Mozlynx  
 ##### 1607#       发表于 2020-11-11 14:16
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -1892,14 +1372,12 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1772/)、[03](https://www.
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Mozlynx  
 ##### 1609#       发表于 2020-11-11 14:16
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -1910,13 +1388,10 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1772/)、[03](https://www.
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  didiren  
 ##### 1611#       发表于 2020-11-15 15:23
-
-
 
 
 NOCTCHILL的在剧情里的表现，依旧是让人心寒
@@ -1926,13 +1401,9 @@ NOCTCHILL的在剧情里的表现，依旧是让人心寒
 这几天心情不是很好，如果言重了我先抱歉。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -1942,12 +1413,7 @@ NOCTCHILL的在剧情里的表现，依旧是让人心寒
 | shadowof| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -1956,21 +1422,13 @@ NOCTCHILL的在剧情里的表现，依旧是让人心寒
 ##### 1612#       发表于 2020-11-15 15:27
 
 
-
-
 我始终是无法接受浅藏透和雏菜这种随性的角色设定。曾经我以为会有所转变，但是看了感谢祭后我明白了：这作家就是想把这两个人这种无所谓的态度给诠释下去。但可笑的是，作家他却是个谜语人，永远不会去正面回答作品中的各种矛盾，和读者玩躲猫猫。这种作家，只能用“可恶”来形容了吧。
-
-
-
-
-
 
 
 -----
 
 ####  shadowof  
 ##### 1613#         楼主| 发表于 2020-11-15 20:55
-
 
 
  本帖最后由 shadowof 于 2020-11-16 00:16 编辑 
@@ -2009,13 +1467,9 @@ NOCTCHILL的在剧情里的表现，依旧是让人心寒
 シャニマス的剧情比较喜欢绕圈，喜好问题肯定很多，所以上次才搞了アジェンダ283来follow多样性，我构筑的TL上包容意见比较多，反倒是觉得follow有点多余。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +2
@@ -2026,19 +1480,13 @@ NOCTCHILL的在剧情里的表现，依旧是让人心寒
 | accdexr| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  lhawp  
 ##### 1614#       发表于 2020-11-16 07:02
-
 
 
  本帖最后由 lhawp 于 2020-11-16 07:11 编辑 
@@ -2066,13 +1514,9 @@ Noctchill的另一个特点在于，“偶像”最初对她们而言都只是�
 写手爱讲谜语这点不假，不过我相信他们对这种写法造成的反响心里也是有数的，这点从天尘里网民对Noctchill的评价中可见一斑。我个人略感不满的是从天尘到感谢祭期间Noctchill的活动内容描写不足，只知道有在搞网络直播，但无法很直观地把握她们现在的知名度和坊间评价（不过透的感谢祭对话有提到说目前Noctchill粉丝数仍然较少）
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -2082,20 +1526,13 @@ Noctchill的另一个特点在于，“偶像”最初对她们而言都只是�
 | shadowof| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  accdexr  
 ##### 1615#       发表于 2020-11-16 11:29
-
-
 
 
 很好读啊，哪来的谜语（
@@ -2114,25 +1551,13 @@ LSS都把角色性讲的差不多了ww
 才2.5周年将将3周年呢
 
 
-
-
-
-
-
 -----
 
 ####  404489039  
 ##### 1616#       发表于 2020-11-16 11:51
 
 
-
-
 作为剧情为主的游戏，然而如果个个都像本家那样个个理想化模板化的偶像，一潭死水也就离倒闭不远了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2141,15 +1566,9 @@ LSS都把角色性讲的差不多了ww
 ##### 1617#       发表于 2020-11-16 17:07
 
 
-
 <blockquote>404489039 发表于 2020-11-16 11:51
 作为剧情为主的游戏，然而如果个个都像本家那样个个理想化模板化的偶像，一潭死水也就离倒闭不远了吧[f:037 ...</blockquote>
 我原本也挺期待这个写手能写出什么的.....但是看完感谢祭后我认为，这人可能真的整不出什么活.....实在是不愿意看到NOCTCHILL的剧情继续谜语下去....太煎熬了
-
-
-
-
-
 
 
 -----
@@ -2158,14 +1577,7 @@ LSS都把角色性讲的差不多了ww
 ##### 1618#       发表于 2020-11-16 18:03
 
 
-
-
 实际上，感谢祭的故事想表达的内容其实挺好的，但是发展和结果.... 允许我使用平庸这个词。哎，我无法确定NOCT到底是个想放长线的组合，还是个吸引CP粉，以及用这种空洞的对话来一下当代虚无感满满的年轻人，以此来吸引新人这种定位的组合..... 
-
-
-
-
-
 
 
 -----
@@ -2174,22 +1586,13 @@ LSS都把角色性讲的差不多了ww
 ##### 1619#       发表于 2020-11-16 18:11
 
 
-
-
 我觉得283的小偶像基本上都是现实生活过得挺充实的，有的可能对未来迷茫，但是却相信努力的人..... NOCT的冷暖差，的是确让我心寒..... 我不懂她们来做偶像是为了什么，不懂她们维持这种可能算得上随意的青梅竹马关系是为了什么..... 我对答案很期待，但是NOCT的每一次剧情都是以根本找不到答案的谜语来回答我的问题，甚至还提出新的问题。一个单方法灌输信息而不是双向的交互，我感觉挺不爽的
-
-
-
-
-
 
 
 -----
 
 ####  shadowof  
 ##### 1620#         楼主| 发表于 2020-11-16 18:11
-
-
 
 
 ノクチル缺少fan视点感觉也是故意的。円香的WING里出现的fan和感谢祭的剧情共通的内容实际上就是凸出円香作为偶像只存在表面性，作为描写需要而存在。
@@ -2203,26 +1606,15 @@ LSS都把角色性讲的差不多了ww
 今年不能搞现实的live活动反而对ノクチル的描写有帮助，少了「现实」的全肯定饭圈的影响，角色的把握全掌握在剧本手里是好事。
 
 
-
-
-
-
-
 -----
 
 ####  didiren  
 ##### 1621#       发表于 2020-11-16 18:20
 
 
-
 <blockquote>shadowof 发表于 2020-11-16 18:11
 ノクチル缺少fan视点感觉也是故意的。円香的WING里出现的fan和感谢祭的剧情共通的内容实际上就是凸出円香作 ...</blockquote>
 大佬理解的挺透彻的，希望的确是这么一回事吧。我虽然失望，但是并不完全认为NOCT的剧情会走向无限猜谜的死循环。我担心的其实是过多的猜谜导致剧情的积重难返，最后归于一团混乱的毛线团。没有人能理顺剧情，每个希望理顺剧情脉络的人都会发现其中过多的自相矛盾.....
-
-
-
-
-
 
 
 -----
@@ -2231,17 +1623,10 @@ LSS都把角色性讲的差不多了ww
 ##### 1622#       发表于 2020-11-22 23:04
 
 
-
-
 其实雛菜和小糸在这次感谢祭反映出俩人态度的转变和成长吧，倒是透和円香是比较糟糕。
 
 
 其实玩这个游戏最吸引我的是看P如何像辅导员和老师一样帮姑娘们慢慢向好的一面成长，直视她们的优点和缺点
-
-
-
-
-
 
 
 -----
@@ -2250,27 +1635,18 @@ LSS都把角色性讲的差不多了ww
 ##### 1623#         楼主| 发表于 2020-11-30 18:17
 
 
-
  本帖最后由 shadowof 于 2020-11-30 18:24 编辑 
 
 抽卡弄了个脑白金广告。
 
 
-
-
 之前的育成期间给感谢祭加了无脑的单属性册子，ノクチル都在憋2000Vo。就是fes用不上，上一期评审体力实在太少用低体力150%和100%三峰一发送走全部，搞得这期体力猛涨又延迟环境全是アルスト，这游戏部分基本就是外行在搞调整，不能玩。
-
-
-
-
-
 
 
 -----
 
 ####  wfhtony  
 ##### 1624#       发表于 2020-12-1 23:02
-
 
 
 <img src="https://raw.githubusercontent.com/wfhtony/pic-deploy-01/master/img/LACM-14986.jpg" referrerpolicy="no-referrer">
@@ -2287,16 +1663,10 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1799/)、[03](https://www.
 其他线上商店：[02](https://lnk.to/lzc-1799)、[03](https://lnk.to/lzc-1800)
 
 
-
-
-
-
-
 -----
 
 ####  azbycx4111  
 ##### 1625#       发表于 2020-12-7 00:16
-
 
 
  本帖最后由 azbycx4111 于 2020-12-7 00:18 编辑 
@@ -2668,14 +2038,9 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1799/)、[03](https://www.
 23_市川雛菜_【HAPPY-!NG】_memory.mp4</blockquote>
 
 
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -2685,12 +2050,7 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1799/)、[03](https://www.
 | 嘲哳的声音| + 2||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -2699,24 +2059,15 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1799/)、[03](https://www.
 ##### 1626#       发表于 2020-12-11 14:59
 
 
-
-
 這張智代子又是迫死人般可愛<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 然後這張透...我看不透
-
-
-
-
-
 
 
 -----
 
 ####  我是地雷我自豪  
 ##### 1627#       发表于 2020-12-16 17:42
-
-
 
 
 刚刚亲妈露脸直播
@@ -2732,16 +2083,7 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1799/)、[03](https://www.
 2020-12-16 17:41 上传
 
 
-
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2750,15 +2092,9 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1799/)、[03](https://www.
 ##### 1628#       发表于 2020-12-22 19:51
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">大 友 暴 露
 
 —— 来自 OnePlus IN2010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -2767,14 +2103,7 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1799/)、[03](https://www.
 ##### 1629#       发表于 2020-12-22 21:00
 
 
-
-
 重点不是让P进冬柚子自己房间吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2783,14 +2112,7 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1799/)、[03](https://www.
 ##### 1630#       发表于 2020-12-24 03:47
 
 
-
-
 最近忽悠和P是不是越来越没羞没臊了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你们快去领证吧
-
-
-
-
-
 
 
 -----
@@ -2799,13 +2121,7 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1799/)、[03](https://www.
 ##### 1631#       发表于 2020-12-24 19:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">这剧情怎么有种互相调情的感觉
-
-
-
-
-
 
 
 -----
@@ -2814,14 +2130,7 @@ e-onkyo：[02](https://www.e-onkyo.com/music/album/lzc1799/)、[03](https://www.
 ##### 1632#       发表于 2020-12-26 01:16
 
 
-
-
 p和忽悠的剧情倒是越看越觉得是老同事的关系了，可以从卑し女开除了
-
-
-
-
-
 
 
 -----
@@ -2830,16 +2139,10 @@ p和忽悠的剧情倒是越看越觉得是老同事的关系了，可以从卑�
 ##### 1633#       发表于 2020-12-26 17:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49846631&amp;ptid=1577595" target="_blank">不应 发表于 2020-12-26 01:16</a>
 
 p和忽悠的剧情倒是越看越觉得是老同事的关系了，可以从卑し女开除了</blockquote>
 这游戏怎么看，除了小学生外其他都对P有意思吧。何况这P的魅力大得很，圈粉的力量也不小<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2848,14 +2151,7 @@ p和忽悠的剧情倒是越看越觉得是老同事的关系了，可以从卑�
 ##### 1634#       发表于 2020-12-26 20:42
 
 
-
-
 忽悠应该算不上卑しい，反倒是忽悠线的P一直卑しい得不行（从GRAD开始尤其明显，可能跟换了担当写手有一定关系）
-
-
-
-
-
 
 
 -----
@@ -2864,14 +2160,7 @@ p和忽悠的剧情倒是越看越觉得是老同事的关系了，可以从卑�
 ##### 1635#       发表于 2020-12-27 20:46
 
 
-
-
 个人感觉交流中透露出P喜欢的女性类型应该是真乃和雾子
-
-
-
-
-
 
 
 -----
@@ -2880,15 +2169,9 @@ p和忽悠的剧情倒是越看越觉得是老同事的关系了，可以从卑�
 ##### 1636#       发表于 2020-12-29 15:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">tkym这是在整什么活啊 必须要有一个巫妖王？
 
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -2897,16 +2180,10 @@ p和忽悠的剧情倒是越看越觉得是老同事的关系了，可以从卑�
 ##### 1637#       发表于 2020-12-29 17:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49633893&amp;ptid=1577595" target="_blank">azbycx4111 发表于 2020-12-7 00:16</a>
 
 由于官网ssr总选举的视频都是原生1080P，就顺手扒了下。包括目前还没放出投票的“思い出アピール演出”内容 ...</blockquote>
 好评<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2915,13 +2192,7 @@ p和忽悠的剧情倒是越看越觉得是老同事的关系了，可以从卑�
 ##### 1638#       发表于 2020-12-29 20:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">新年卡池小糸+04
-
-
-
-
-
 
 
 -----
@@ -2930,13 +2201,7 @@ p和忽悠的剧情倒是越看越觉得是老同事的关系了，可以从卑�
 ##### 1639#       发表于 2020-12-29 21:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">透这第几张ssr了都
-
-
-
-
-
 
 
 -----
@@ -2945,14 +2210,7 @@ p和忽悠的剧情倒是越看越觉得是老同事的关系了，可以从卑�
 ##### 1640#       发表于 2020-12-30 12:15
 
 
-
-
 高山这出卡也太屑了
-
-
-
-
-
 
 
 -----
@@ -2961,13 +2219,7 @@ p和忽悠的剧情倒是越看越觉得是老同事的关系了，可以从卑�
 ##### 1641#       发表于 2021-1-2 10:34
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么这SOLO曲封面7个人，游戏内只有6首
-
-
-
-
-
 
 
 -----
@@ -2976,21 +2228,13 @@ p和忽悠的剧情倒是越看越觉得是老同事的关系了，可以从卑�
 ##### 1642#       发表于 2021-1-3 19:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没人聊聊这次活动剧情么，SC最近两次剧情的文本量都好大
-
-
-
-
-
 
 
 -----
 
 ####  lhawp  
 ##### 1643#       发表于 2021-1-5 09:01
-
-
 
 
 円香的新solo曲太不讲武德了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
@@ -3016,19 +2260,10 @@ p和忽悠的剧情倒是越看越觉得是老同事的关系了，可以从卑�
 骑马战最后那一跃和跨年那一跃遥相呼应，同时还让人联想到円香的WING败退台词
 
 
-
-
-
-
-
-
-
 -----
 
 ####  shadowof  
 ##### 1644#         楼主| 发表于 2021-1-5 11:25
-
-
 
 
 明るい部屋也是有原题的书。
@@ -3062,13 +2297,7 @@ p和忽悠的剧情倒是越看越觉得是老同事的关系了，可以从卑�
 S卡比较重要的コミュ２也是和之前各种合同活动内一致的描写，ノクチル还是处于局外人的心态。
 
 
-
 另外这次活动日常描写很多，幼馴染平常生活当中，円香就没那么多刺（ういうい　はいはい）也没内心独白，估计这就是是円香想保持的状态。海へ的构成和其他组合的初期剧情比，完全可以当作ノクチル第一个活动，之前采访里说要慢慢描写，感觉按这个进度下一次活动都不知道能不能有什么变化。
-
-
-
-
-
 
 
 -----
@@ -3077,21 +2306,13 @@ S卡比较重要的コミュ２也是和之前各种合同活动内一致的描�
 ##### 1645#       发表于 2021-1-5 23:14
 
 
-
-
 asahi这solo不错，不过不像初中生就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  didiren  
 ##### 1646#       发表于 2021-1-7 01:19
-
 
 
 <blockquote>shadowof 发表于 2021-1-5 11:25
@@ -3103,16 +2324,10 @@ asahi这solo不错，不过不像初中生就是了<img src="https://static.sara
 请问这本书的英文名叫什么?
 
 
-
-
-
-
-
 -----
 
 ####  shadowof  
 ##### 1647#         楼主| 发表于 2021-1-7 02:32
-
 
 
  本帖最后由 shadowof 于 2021-1-7 02:33 编辑 
@@ -3132,24 +2347,13 @@ asahi这solo不错，不过不像初中生就是了<img src="https://static.sara
 作者Roland Barthes本身是研究符号学的，著作以学术内容为主，这本可读性应该不是很强。基本上剧本私货的比例比较高。
 
 
-
-
-
-
-
 -----
 
 ####  腐竹好吃  
 ##### 1648#       发表于 2021-1-7 16:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">SC我想了解去玩，结果再去看...多了好多东西，贴吧教程也对不到
-
-
-
-
-
 
 
 -----
@@ -3158,16 +2362,10 @@ asahi这solo不错，不过不像初中生就是了<img src="https://static.sara
 ##### 1649#       发表于 2021-1-7 16:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49966692&amp;ptid=1577595" target="_blank">腐竹好吃 发表于 2021-1-7 16:11</a>
 
 SC我想了解去玩，结果再去看...多了好多东西，贴吧教程也对不到</blockquote>
 看顶楼就是，不会就在这里问
-
-
-
-
-
 
 
 -----
@@ -3176,23 +2374,15 @@ SC我想了解去玩，结果再去看...多了好多东西，贴吧教程也对
 ##### 1650#       发表于 2021-1-18 11:21
 
 
-
-
 打算入坑，想请问下是推荐直接自创号开荒还是买个初始号<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
-
 
 
 -----
 
 ####  areklose  
 ##### 1651#       发表于 2021-1-18 12:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50070163&amp;ptid=1577595" target="_blank">hahuhi 发表于 2021-1-18 11:21</a>
@@ -3202,9 +2392,6 @@ SC我想了解去玩，结果再去看...多了好多东西，贴吧教程也对
 
 —— 来自 S1Fun ...</blockquote>
 建议石头号。号有多少SSR卡并不重要。
-
-
-
 
 
                                             

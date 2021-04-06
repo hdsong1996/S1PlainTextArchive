@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2021-02-09 18:19** 
 
 
-
 -----
 
 ####  savagealexander  
 ##### 1#       楼主       发表于 2021-2-6 02:32
-
 
 
  本帖最后由 savagealexander 于 2021-2-9 17:13 编辑 
@@ -17,7 +15,6 @@ update4：
 目前steam china已经上线，对原来的国区没有任何影响，倒是绑定完美世界的dota2玩家被莫名和谐了。
 
 目前我贷款吃屎实锤了，欢迎打脸，同时关注后续，期望是美好延续而不是温水煮青蛙
-
 
 
 Update3：
@@ -32,7 +29,6 @@ DOTA2的接入FAQ已经更新了
 下次再有散播恐慌的能不能塞了
 
 
-
 链接内Q&amp;A提到：
 
 2. 如果您之前通过Steam登陆国服DOTA2，可继续使用-perfectworld参数登录游戏：在接入完成后，您首次以这种方式登录国服DOTA2时，您需要完成实名认证，认证后即可开始国服游戏。
@@ -40,7 +36,6 @@ Q：接入完成后，我还可以继续通过Steam玩国服DOTA2吗？A：可�
 
 
 从这个内容来猜测，steam国区和蒸汽平台可以长期存在，或者说至少目前没有要封杀的迹象，希望美好可以延续。
-
 
 
 历史信息如下：
@@ -88,8 +83,6 @@ update1：泥潭舆论认为无所谓，反正最差有国际服，那么我就�
 另，这贴的各种回复是我很烦婆罗门的原因之一。一方面对手游和氪金母猪充满鄙视，另一方面对培养健康单机或买断消费的环境又一幅“我会用国际服，完全不care”的样子，真就完全为了优越感而优越感
 
 
-
-
 update2：针对泥潭认为本贴是贩卖焦虑的集中回复
 
 
@@ -116,17 +109,9 @@ update2：针对泥潭认为本贴是贩卖焦虑的集中回复
 所以，刘睿哲就是这么来的。
 
 
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 34战斗力 -34
@@ -155,12 +140,7 @@ update2：针对泥潭认为本贴是贩卖焦虑的集中回复
 | ginsdaz|-1|思路广|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -169,14 +149,7 @@ update2：针对泥潭认为本贴是贩卖焦虑的集中回复
 ##### 2#       发表于 2021-2-6 02:37
 
 
-
-
 我还以为有什么新消息<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -185,16 +158,9 @@ update2：针对泥潭认为本贴是贩卖焦虑的集中回复
 ##### 3#       发表于 2021-2-6 03:42
 
 
-
-
 一切的一切问题都来自于不透明的上限蒸汽平台<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -203,14 +169,7 @@ update2：针对泥潭认为本贴是贩卖焦虑的集中回复
 ##### 4#       发表于 2021-2-6 05:05
 
 
-
-
 话说最近火的那些国产单机其实是能过审的吧。。。
-
-
-
-
-
 
 
 -----
@@ -219,15 +178,9 @@ update2：针对泥潭认为本贴是贩卖焦虑的集中回复
 ##### 5#       发表于 2021-2-6 06:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50253237&amp;ptid=1986508" target="_blank">孤蜀安安 发表于 2021-2-6 05:05</a>
 话说最近火的那些国产单机其实是能过审的吧。。。</blockquote>
 审一年都破产了。
-
-
-
-
-
 
 
 -----
@@ -236,21 +189,13 @@ update2：针对泥潭认为本贴是贩卖焦虑的集中回复
 ##### 6#       发表于 2021-2-6 06:47
 
 
-
-
 看你这么说你是有点路子啊
-
-
-
-
-
 
 
 -----
 
 ####  白行简5566  
 ##### 7#       发表于 2021-2-6 06:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50253317&amp;ptid=1986508" target="_blank">acejoe 发表于 2021-2-6 06:32</a>
@@ -260,17 +205,10 @@ update2：针对泥潭认为本贴是贩卖焦虑的集中回复
 —— 来自 HUAWEI YAL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  xbhuang  
 ##### 8#       发表于 2021-2-6 07:13
-
-
 
 
 不知道啥意思？上了国内蒸汽平台难道就不能上现在的国区了吗？
@@ -279,16 +217,10 @@ update2：针对泥潭认为本贴是贩卖焦虑的集中回复
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
-
-
-
-
 -----
 
 ####  酷乐  
 ##### 9#       发表于 2021-2-6 07:34
-
 
 
  本帖最后由 酷乐 于 2021-2-6 07:35 编辑 
@@ -301,25 +233,13 @@ update2：针对泥潭认为本贴是贩卖焦虑的集中回复
 这家只有五个人呢。
 
 
-
-
-
-
-
 -----
 
 ####  zwqcm  
 ##### 10#       发表于 2021-2-6 07:41
 
 
-
-
 说白了还是审核制度不适合游戏这种版本一直更新，内容不断变化的产品。如果哪天一个游戏过了审，但是因为后续更新踩了雷，大概审核还会更严吧。
-
-
-
-
-
 
 
 -----
@@ -330,21 +250,13 @@ update2：针对泥潭认为本贴是贩卖焦虑的集中回复
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Pettabuz  
 ##### 12#       发表于 2021-2-6 07:47
 
 
-
-
 我觉得还是玩游戏的有点自知之明，抱点赛博弃民心态比较好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -353,18 +265,12 @@ update2：针对泥潭认为本贴是贩卖焦虑的集中回复
 ##### 13#       发表于 2021-2-6 08:46
 
 
-
-
 还是希望国产游戏能在本民族的平台上发展，毕竟只有本民族的人才是最值得信任的。如果不团结，又怎么和半岛那些天生反动派斗争呢？
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 -2
@@ -375,12 +281,7 @@ update2：针对泥潭认为本贴是贩卖焦虑的集中回复
 | saintsun77|-1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -389,16 +290,9 @@ update2：针对泥潭认为本贴是贩卖焦虑的集中回复
 ##### 14#       发表于 2021-2-6 09:01
 
 
-
-
 我想想欢迎steam china的话该怎么说...规范游戏市场、防止像hy那样的游戏“毒害”玩家？这点还是有点难想到比较实际意义的。
 
 权力越大责任越大哦
-
-
-
-
-
 
 
 -----
@@ -407,19 +301,14 @@ update2：针对泥潭认为本贴是贩卖焦虑的集中回复
 ##### 15#       发表于 2021-2-6 09:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50253642&amp;ptid=1986508" target="_blank">厨具战士 发表于 2021-2-6 08:46</a>
 还是希望国产游戏能在本民族的平台上发展，毕竟只有本民族的人才是最值得信任的。如果不团结，又怎么和半岛 ...</blockquote>
 笑了，老爷让你发展了么。  版号这么难拿。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 6战斗力 +2
@@ -434,19 +323,13 @@ update2：针对泥潭认为本贴是贩卖焦虑的集中回复
 | saintsun77| + 1|就是如此.|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  ffmzsj  
 ##### 16#       发表于 2021-2-6 09:05
-
 
 
 <blockquote>xbhuang 发表于 2021-2-6 07:13
@@ -456,25 +339,13 @@ update2：针对泥潭认为本贴是贩卖焦虑的集中回复
 你确定以后还有steam国区这个东西吗 怕不是这波之后就要战网化了 你们直接自己找外区待着(甚至直接给你号扬了或者强行打回蒸汽平台)
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 17#       发表于 2021-2-6 09:08
 
 
-
-
 你说steam China要做到什么程度才会让大家心甘情愿吃这坨屎？大作限时免费？支持支付宝？还是国产游戏都先国区独占个一年半载，然后再开放给外区
-
-
-
-
-
 
 
 -----
@@ -483,22 +354,15 @@ update2：针对泥潭认为本贴是贩卖焦虑的集中回复
 ##### 18#       发表于 2021-2-6 09:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50253772&amp;ptid=1986508" target="_blank">天邪鬼 发表于 2021-2-6 09:08</a>
 你说steam China要做到什么程度才会让大家心甘情愿吃这坨屎？大作限时免费？支持支付宝？还是国产游戏都先 ...</blockquote>
 原地爆炸就行了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xbhuang  
 ##### 19#       发表于 2021-2-6 09:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50253753&amp;ptid=1986508" target="_blank">ffmzsj 发表于 2021-2-6 09:05</a>
@@ -508,16 +372,10 @@ update2：针对泥潭认为本贴是贩卖焦虑的集中回复
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
-
-
-
-
 -----
 
 ####  厨具战士  
 ##### 20#       发表于 2021-2-6 09:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50253751&amp;ptid=1986508" target="_blank">不热爱讨论 发表于 2021-2-6 09:04</a>
@@ -526,13 +384,9 @@ update2：针对泥潭认为本贴是贩卖焦虑的集中回复
 我国自古以来就有“父母官”的说法。子女在成长的过程中总会和父母发生矛盾，我认为游戏制作者和gov之间的矛盾类似于此。毕竟是一家人，这个矛盾终究是能解决的。而异民族之间的矛盾是不可调和的。互联网现在将世界联系的这么紧密，民族之间的冲突反而加剧了，这就是证明。大同世界建立第一步就是**的大同。我不爱讨论，仅限于此吧。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 22战斗力 -27
@@ -561,12 +415,7 @@ update2：针对泥潭认为本贴是贩卖焦虑的集中回复
 | 香蜂草|-1|谁tm和你一家人|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -575,14 +424,7 @@ update2：针对泥潭认为本贴是贩卖焦虑的集中回复
 ##### 21#       发表于 2021-2-6 09:23
 
 
-
-
 steam跟战网可区别太大了，战网上的大部分游戏你在国内的战网也能玩到，steam上不能过审的才是大部分。g胖闲的没事自断财路。最可能出现的情况是，以后游戏过审了登陆蒸汽平台的，都会在steam国区下架。
-
-
-
-
-
 
 
 -----
@@ -591,21 +433,13 @@ steam跟战网可区别太大了，战网上的大部分游戏你在国内的战
 ##### 22#       发表于 2021-2-6 09:49
 
 
-
-
 反正我steam帐号已经不当中国人了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  savagealexander  
 ##### 23#         楼主| 发表于 2021-2-6 09:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50253367&amp;ptid=1986508" target="_blank">xbhuang 发表于 2021-02-06 07:13:33</a>
@@ -615,13 +449,9 @@ steam跟战网可区别太大了，战网上的大部分游戏你在国内的战
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 -2
@@ -631,12 +461,7 @@ steam跟战网可区别太大了，战网上的大部分游戏你在国内的战
 | 这就是奇迹|-2||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -645,16 +470,10 @@ steam跟战网可区别太大了，战网上的大部分游戏你在国内的战
 ##### 24#         楼主| 发表于 2021-2-6 09:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50253642&amp;ptid=1986508" target="_blank">厨具战士 发表于 2021-02-06 08:46:42</a>
 还是希望国产游戏能在本民族的平台上发展，毕竟只有本民族的人才是最值得信任的。如果不团结，又怎么和半岛 ...</blockquote>你说的wegame吗？你认真的吗？
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -663,16 +482,10 @@ steam跟战网可区别太大了，战网上的大部分游戏你在国内的战
 ##### 25#         楼主| 发表于 2021-2-6 09:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50253772&amp;ptid=1986508" target="_blank">天邪鬼 发表于 2021-02-06 09:08:33</a>
 你说steam China要做到什么程度才会让大家心甘情愿吃这坨屎？大作限时免费？支持支付宝？还是国产游戏都先 ...</blockquote>做到跟现在国区没差别就行
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -681,19 +494,14 @@ steam跟战网可区别太大了，战网上的大部分游戏你在国内的战
 ##### 26#       发表于 2021-2-6 09:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50253854&amp;ptid=1986508" target="_blank">厨具战士 发表于 2021-2-6 09:23</a>
 我国自古以来就有“父母官”的说法。子女在成长的过程中总会和父母发生矛盾，我认为游戏制作者和gov之间的 ...</blockquote>
 爹味儿溢出了
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -703,12 +511,7 @@ steam跟战网可区别太大了，战网上的大部分游戏你在国内的战
 | saintsun77| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -717,20 +520,15 @@ steam跟战网可区别太大了，战网上的大部分游戏你在国内的战
 ##### 27#         楼主| 发表于 2021-2-6 09:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50253854&amp;ptid=1986508" target="_blank">厨具战士 发表于 2021-02-06 09:23:02</a>
 我国自古以来就有“父母官”的说法。子女在成长的过程中总会和父母发生矛盾，我认为游戏制作者和gov之间的 ...</blockquote>这位朋友，你确定你不需要去看医生？我到真的希望你其实拿工资发帖
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 3战斗力 0
@@ -742,12 +540,7 @@ steam跟战网可区别太大了，战网上的大部分游戏你在国内的战
 | saintsun77| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -756,20 +549,15 @@ steam跟战网可区别太大了，战网上的大部分游戏你在国内的战
 ##### 28#       发表于 2021-2-6 10:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50253854&amp;ptid=1986508" target="_blank">厨具战士 发表于 2021-2-6 09:23</a>
 
 我国自古以来就有“父母官”的说法。子女在成长的过程中总会和父母发生矛盾，我认为游戏制作者和gov之间的 ...</blockquote>
 哄堂大孝<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -779,12 +567,7 @@ steam跟战网可区别太大了，战网上的大部分游戏你在国内的战
 | saintsun77| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -793,16 +576,10 @@ steam跟战网可区别太大了，战网上的大部分游戏你在国内的战
 ##### 29#       发表于 2021-2-6 10:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">steam这东西 买办和政府都不喜欢呀 买办觉得哪有这么割韭菜的 政府觉的凭什么你不受管
 
 
 游戏不是小猫小狗可以做的 一个小地方可以割全中国 给你脸了？
-
-
-
-
-
 
 
 -----
@@ -811,18 +588,12 @@ steam跟战网可区别太大了，战网上的大部分游戏你在国内的战
 ##### 30#       发表于 2021-2-6 10:10
 
 
-
-
 哎，本该是一个经常接触多元文化的论坛，但有些人说起话来满嘴民族主义叙事，就没想到过自己和韩国的民族主义者并无区别吗？真的令人厌倦，无尽的轱辘话，无尽主题相似的贴子却无法指出问题的根本。
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 8战斗力 +8
@@ -839,12 +610,7 @@ steam跟战网可区别太大了，战网上的大部分游戏你在国内的战
 | DoomsDay| + 1|泥潭是多元文化论坛这是最好笑的笑话.|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -853,14 +619,7 @@ steam跟战网可区别太大了，战网上的大部分游戏你在国内的战
 ##### 31#       发表于 2021-2-6 10:13
 
 
-
-
 我觉得可能蒸汽平台是完美要拿来向网吧征税用的……
-
-
-
-
-
 
 
 -----
@@ -869,23 +628,16 @@ steam跟战网可区别太大了，战网上的大部分游戏你在国内的战
 ##### 32#       发表于 2021-2-6 10:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50253642&amp;ptid=1986508" target="_blank">厨具战士 发表于 2021-2-6 08:46</a>
 
 还是希望国产游戏能在本民族的平台上发展，毕竟只有本民族的人才是最值得信任的。如果不团结，又怎么和半岛 ...</blockquote>
 如果目的真的是要斗争，那就更应该在国际市场斗争了。否则在自己家里自娱自乐怎么斗争?
 
 
-
-
-
-
-
 -----
 
 ####  未平真人  
 ##### 33#       发表于 2021-2-6 10:27
-
 
 
  本帖最后由 未平真人 于 2021-2-6 10:57 编辑 
@@ -897,17 +649,10 @@ steam跟战网可区别太大了，战网上的大部分游戏你在国内的战
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
-
-
-
-
 -----
 
 ####  savagealexander  
 ##### 34#         楼主| 发表于 2021-2-6 10:28
-
-
 
 
 不明白这贴为啥要追着扣分的
@@ -916,25 +661,13 @@ steam跟战网可区别太大了，战网上的大部分游戏你在国内的战
 想问问扣分的这么确定国区今后完全不受影响吗？
 
 
-
-
-
-
-
 -----
 
 ####  GameEternal  
 ##### 35#       发表于 2021-2-6 10:29
 
 
-
-
 没有一个***是蘑菇的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -943,21 +676,13 @@ steam跟战网可区别太大了，战网上的大部分游戏你在国内的战
 ##### 36#       发表于 2021-2-6 10:31
 
 
-
-
 国单和独游要是靠着一缕光就能长，早把房顶给掀了。
-
-
-
-
-
 
 
 -----
 
 ####  savagealexander  
 ##### 37#         楼主| 发表于 2021-2-6 10:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50254272&amp;ptid=1986508" target="_blank">未平真人 发表于 2021-2-6 10:27</a>
@@ -975,17 +700,10 @@ steam跟战网可区别太大了，战网上的大部分游戏你在国内的战
 设计到监管层面，脑子有屎的和背个恶名的，少吗？
 
 
-
-
-
-
-
 -----
 
 ####  丹德里恩  
 ##### 38#       发表于 2021-2-6 10:38
-
-
 
 
 贷款吃屎原来都是要被封到真吃屎的那一天
@@ -993,16 +711,10 @@ steam跟战网可区别太大了，战网上的大部分游戏你在国内的战
 LZ现在还能回帖已经说明足够宽容了，扣鹅怎么了？
 
 
-
-
-
-
-
 -----
 
 ####  savagealexander  
 ##### 39#         楼主| 发表于 2021-2-6 10:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50254359&amp;ptid=1986508" target="_blank">丹德里恩 发表于 2021-2-6 10:38</a>
@@ -1028,13 +740,9 @@ LZ现在还能回帖已经说明足够宽容了，扣鹅怎么了？ ...</blockq
 看起来你是经常吃屎了，不然怎么这么熟悉，满嘴喷屎？
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 -2
@@ -1045,12 +753,7 @@ LZ现在还能回帖已经说明足够宽容了，扣鹅怎么了？ ...</blockq
 | peh|-1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -1059,14 +762,7 @@ LZ现在还能回帖已经说明足够宽容了，扣鹅怎么了？ ...</blockq
 ##### 40#       发表于 2021-2-6 10:52
 
 
-
-
   lz之前不是求封号管理员没鸟他吗，现在那么魔怔就成全他吧
-
-
-
-
-
 
 
 -----
@@ -1075,16 +771,10 @@ LZ现在还能回帖已经说明足够宽容了，扣鹅怎么了？ ...</blockq
 ##### 41#       发表于 2021-2-6 10:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50254444&amp;ptid=1986508" target="_blank">savagealexander 发表于 2021-2-6 10:50</a>
 
 泥潭真高贵 我跟泥潭主流舆论不对付也不是一天两天了，看婆罗门装逼早就恶心了，如果这几句话都要被封，那 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">既然这么不爽那你还在这论坛待着干嘛？还是头一次见自己说自己喜欢吃屎的
-
-
-
-
-
 
 
 -----
@@ -1093,21 +783,13 @@ LZ现在还能回帖已经说明足够宽容了，扣鹅怎么了？ ...</blockq
 ##### 42#       发表于 2021-2-6 10:55
 
 
-
-
 上网这么多年第一次听说贷款吃屎还行 那你确实和论坛主流不对付 水这种没什么卵用的贴被扣分不是很正常<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  savagealexander  
 ##### 43#         楼主| 发表于 2021-2-6 11:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50254464&amp;ptid=1986508" target="_blank">丹德里恩 发表于 2021-2-6 10:53</a>
@@ -1119,13 +801,9 @@ LZ现在还能回帖已经说明足够宽容了，扣鹅怎么了？ ...</blockq
 吃屎是你的爱好，别瞎甩锅
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 -1
@@ -1135,12 +813,7 @@ LZ现在还能回帖已经说明足够宽容了，扣鹅怎么了？ ...</blockq
 | hellgate22|-1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -1149,16 +822,9 @@ LZ现在还能回帖已经说明足够宽容了，扣鹅怎么了？ ...</blockq
 ##### 44#       发表于 2021-2-6 11:32
 
 
-
-
 差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -1167,14 +833,7 @@ LZ现在还能回帖已经说明足够宽容了，扣鹅怎么了？ ...</blockq
 ##### 45#       发表于 2021-2-6 11:37
 
 
-
-
 反正我是做了两手准备，大不了回美区。一方面，Steam搞国服玩家完全不符合任何逻辑，尤其不符合G胖自己的利益。另一方面，这不是一个讲逻辑的世界。
-
-
-
-
-
 
 
 -----
@@ -1183,21 +842,13 @@ LZ现在还能回帖已经说明足够宽容了，扣鹅怎么了？ ...</blockq
 ##### 46#       发表于 2021-2-6 11:50
 
 
-
-
 不是，g胖能有多少利益。你在steam买东西不给中国缴税的同时是要给美国缴税的，这国家能愿意?
-
-
-
-
-
 
 
 -----
 
 ####  xbhuang  
 ##### 47#       发表于 2021-2-6 11:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50254019&amp;ptid=1986508" target="_blank">savagealexander 发表于 2021-2-6 09:55</a>
@@ -1211,27 +862,15 @@ LZ现在还能回帖已经说明足够宽容了，扣鹅怎么了？ ...</blockq
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
-
-
-
-
 -----
 
 ####  哈毛  
 ##### 48#       发表于 2021-2-6 11:55
 
 
-
-
 先不说别的，完美政府关系很强，游戏公司上央视第一名。
 
 要是有一天出问题，还能有机会沟通沟通，不然就等着翻着上Steam了。
-
-
-
-
-
 
 
 -----
@@ -1240,21 +879,13 @@ LZ现在还能回帖已经说明足够宽容了，扣鹅怎么了？ ...</blockq
 ##### 49#       发表于 2021-2-6 11:59
 
 
-
-
 根本就和有没有steam中国没关系………完全是看你爹想不想让你玩，要是你爹觉得玩游戏影响韭菜下崽发育了，怎么着都得给你封了
-
-
-
-
-
 
 
 -----
 
 ####  观自在  
 ##### 50#       发表于 2021-2-6 12:03
-
 
 
  本帖最后由 观自在 于 2021-2-6 12:04 编辑 
@@ -1266,25 +897,13 @@ LZ现在还能回帖已经说明足够宽容了，扣鹅怎么了？ ...</blockq
 开发组能有什么背景。
 
 
-
-
-
-
-
 -----
 
 ####  卿卿雅儿  
 ##### 51#       发表于 2021-2-6 12:11
 
 
-
-
 PSN国区都出了好几年了，你们还在这臆想国区“可能”steam带来的影响，感觉和985论坛应有的智商不匹配啊。
-
-
-
-
-
 
 
 -----
@@ -1293,18 +912,12 @@ PSN国区都出了好几年了，你们还在这臆想国区“可能”steam带
 ##### 52#       发表于 2021-2-6 12:17
 
 
-
-
 泥潭现在是标准的有狗洞钻就行的犬儒主义者论坛，确实也没必要和这帮自觉当狗的东西多纠缠
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 -2
@@ -1315,19 +928,13 @@ PSN国区都出了好几年了，你们还在这臆想国区“可能”steam带
 | hellgate22|-1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  savagealexander  
 ##### 53#         楼主| 发表于 2021-2-6 12:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50255153&amp;ptid=1986508" target="_blank">卿卿雅儿 发表于 2021-2-6 12:11</a>
@@ -1339,13 +946,9 @@ PSN国区都出了好几年了，你们还在这臆想国区“可能”steam带
 再说，现在的steam国区如果退化到使用体验/价格跟psn港服一样还不叫吃屎？
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 0
@@ -1356,12 +959,7 @@ PSN国区都出了好几年了，你们还在这臆想国区“可能”steam带
 | hellgate22|-1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -1370,22 +968,15 @@ PSN国区都出了好几年了，你们还在这臆想国区“可能”steam带
 ##### 54#       发表于 2021-2-6 12:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50253402&amp;ptid=1986508" target="_blank">酷乐 发表于 2021-2-5 18:34</a>
 戴森球计划        深圳中青宝互动网络股份有限公司        上海心愉计算机科技有限公司        国新出审[ ...</blockquote>
 卖身中青宝这种大发行商当然可以活下去
-
-
-
-
-
 
 
 -----
 
 ####  920619lqy  
 ##### 55#       发表于 2021-2-6 12:36
-
 
 
 <blockquote>savagealexander 发表于 2021-2-5 22:21
@@ -1396,16 +987,10 @@ PSN国区都出了好几年了，你们还在这臆想国区“可能”steam带
 PSN港区那都是好的，好歹有得玩，PSN国区…
 
 
-
-
-
-
-
 -----
 
 ####  savagealexander  
 ##### 56#         楼主| 发表于 2021-2-6 12:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50255368&amp;ptid=1986508" target="_blank">920619lqy 发表于 2021-2-6 12:36</a>
@@ -1417,16 +1002,10 @@ PSN港区那都是好的，好歹有得玩，PSN国区…</blockquote>
 他们选择性无视了steam是先有个完整而且低价的国区的
 
 
-
-
-
-
-
 -----
 
 ####  savagealexander  
 ##### 57#         楼主| 发表于 2021-2-6 12:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50255206&amp;ptid=1986508" target="_blank">坏未来 发表于 2021-2-6 12:17</a>
@@ -1435,16 +1014,10 @@ PSN港区那都是好的，好歹有得玩，PSN国区…</blockquote>
 +10086，但是话还是要说的，因为其它地方比泥潭更不如。毕竟这里的人是有内容鉴别能力和买断支付意愿的少数人了
 
 
-
-
-
-
-
 -----
 
 ####  中出无用  
 ##### 58#       发表于 2021-2-6 12:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50254272&amp;ptid=1986508" target="_blank">未平真人 发表于 2021-2-6 10:27</a>
@@ -1457,16 +1030,10 @@ ps ns 还有新出的重生细胞
 还是说你觉得这样就已经够好了？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  920619lqy  
 ##### 59#       发表于 2021-2-6 12:49
-
 
 
 <blockquote>savagealexander 发表于 2021-2-5 22:43
@@ -1477,16 +1044,10 @@ ps ns 还有新出的重生细胞
 说实在的就现在这样下去估计过几年不管你是PS还是XBOX还是PC，港区也得成阉货
 
 
-
-
-
-
-
 -----
 
 ####  skgaminger1988  
 ##### 60#       发表于 2021-2-6 13:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50255206&amp;ptid=1986508" target="_blank">坏未来 发表于 2021-2-6 12:17</a>
@@ -1494,16 +1055,10 @@ ps ns 还有新出的重生细胞
 不钻狗洞还能把墙扒了不成 躺平了爱咋咋地吧<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  石化金鱼  
 ##### 61#       发表于 2021-2-6 13:08
-
 
 
  本帖最后由 石化金鱼 于 2021-2-6 13:10 编辑 
@@ -1515,31 +1070,19 @@ ps ns 还有新出的重生细胞
 给你自己感动完了
 
 
-
-
-
-
-
 -----
 
 ####  杉田悠一  
 ##### 62#       发表于 2021-2-6 13:12
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  泰非力的答复  
 ##### 63#       发表于 2021-2-6 13:18
-
 
 
 <blockquote>xbhuang 发表于 2021-2-6 11:55
@@ -1551,16 +1094,10 @@ ps ns 还有新出的重生细胞
 再问下mh电影里那么大的意识形态问题咋就过审了呢？
 
 
-
-
-
-
-
 -----
 
 ####  卿卿雅儿  
 ##### 64#       发表于 2021-2-6 13:20
-
 
 
  本帖最后由 卿卿雅儿 于 2021-2-6 13:23 编辑 
@@ -1577,22 +1114,15 @@ steam国区和PSN港区，其实性质上区别不大，叫法不同而已。
 其中境内代理卖key是灰色地带，算半件事。
 
 
-
 这三件半事不做，政府就不管。而且一直以来都是这么实行的。
 
 所以三男一狗、男友4这种上了黑名单的游戏，你仍然可以直接买、直接连服务器。
-
-
-
-
-
 
 
 -----
 
 ####  未平真人  
 ##### 65#       发表于 2021-2-6 13:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50255470&amp;ptid=1986508" target="_blank">中出无用 发表于 2021-2-6 12:48</a>
@@ -1607,16 +1137,10 @@ ps ns 还有新出的重生细胞
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
-
-
-
-
 -----
 
 ####  hypnossz86  
 ##### 66#       发表于 2021-2-6 13:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50255744&amp;ptid=1986508" target="_blank">卿卿雅儿 发表于 2021-2-6 13:20</a>
@@ -1630,17 +1154,10 @@ steam国区和PSN港区，其实性质上区别不大，叫法不同而已。
 港区ps商店可没这个优势
 
 
-
-
-
-
-
 -----
 
 ####  -SLSL-  
 ##### 67#       发表于 2021-2-6 13:27
-
-
 
 
 还以为能有啥新消息<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
@@ -1648,16 +1165,10 @@ steam国区和PSN港区，其实性质上区别不大，叫法不同而已。
 建议塞到steam china滚出china<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  听风不是雨  
 ##### 68#       发表于 2021-2-6 13:28
-
 
 
 <blockquote>hypnossz86 发表于 2021-2-6 13:26
@@ -1667,16 +1178,10 @@ steam国区和PSN港区，其实性质上区别不大，叫法不同而已。
 psn和ns开国区，港区也没涨价，甚至我记得psn因为国内铺了cdn上港服也快了点，为啥steam开真国区，旧国区就要涨价呢
 
 
-
-
-
-
-
 -----
 
 ####  920619lqy  
 ##### 69#       发表于 2021-2-6 13:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50255795&amp;ptid=1986508" target="_blank">听风不是雨 发表于 2021-2-5 23:28</a>
@@ -1685,16 +1190,10 @@ psn和ns开国区，港区也没涨价，甚至我记得psn因为国内铺了cdn
 因为steam已经有了一个高价区的港区，所以这个类比对不上。
 
 
-
-
-
-
-
 -----
 
 ####  hypnossz86  
 ##### 70#       发表于 2021-2-6 13:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50255795&amp;ptid=1986508" target="_blank">听风不是雨 发表于 2021-2-6 13:28</a>
@@ -1707,17 +1206,10 @@ psn和ns开国区，港区也没涨价，甚至我记得psn因为国内铺了cdn
 要是到时候能保持双轨制自然大_大的好
 
 
-
-
-
-
-
 -----
 
 ####  exia00raiser  
 ##### 71#       发表于 2021-2-6 13:35
-
-
 
 
 说句不好听的，国单发展的咋样管我啥事，没有国单就没人做游戏了?
@@ -1726,16 +1218,10 @@ psn和ns开国区，港区也没涨价，甚至我记得psn因为国内铺了cdn
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  xbhuang  
 ##### 72#       发表于 2021-2-6 13:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50255731&amp;ptid=1986508" target="_blank">泰非力的答复 发表于 2021-2-6 13:18</a>
@@ -1749,13 +1235,9 @@ psn和ns开国区，港区也没涨价，甚至我记得psn因为国内铺了cdn
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 -1
@@ -1765,12 +1247,7 @@ psn和ns开国区，港区也没涨价，甚至我记得psn因为国内铺了cdn
 | 病態極端|-1|思路广|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -1779,21 +1256,15 @@ psn和ns开国区，港区也没涨价，甚至我记得psn因为国内铺了cdn
 ##### 73#       发表于 2021-2-6 13:40
 
 
-
-
 原来说了半天是怕玩不到便宜游戏，不是怕玩不到
 扯什么民族民主大义，伪君子得一逼
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 0
@@ -1804,19 +1275,13 @@ psn和ns开国区，港区也没涨价，甚至我记得psn因为国内铺了cdn
 | 皆月镜| + 1|看完了才发现这个才是楼主担心的问题，其他.|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  卿卿雅儿  
 ##### 74#       发表于 2021-2-6 13:41
-
 
 
 <blockquote>hypnossz86 发表于 2021-2-6 13:31
@@ -1830,16 +1295,10 @@ psn和ns开国区，港区也没涨价，甚至我记得psn因为国内铺了cdn
 而游戏领域“开了国服就墙掉外服”这件事，国内政府也从来没做过。
 
 
-
-
-
-
-
 -----
 
 ####  hypnossz86  
 ##### 75#       发表于 2021-2-6 13:48
-
 
 
  本帖最后由 hypnossz86 于 2021-2-6 13:50 编辑 
@@ -1863,16 +1322,10 @@ psn和ns开国区，港区也没涨价，甚至我记得psn因为国内铺了cdn
 说实在的这种事情也不是没有，我曾经在sc2刚出的时代注册的美区战网，地址也选的香港，去年登上去看已经变成大陆账号了....翻墙想买cod都买不了
 
 
-
-
-
-
-
 -----
 
 ####  天成小次郎  
 ##### 76#       发表于 2021-2-6 13:55
-
 
 
 <blockquote>卿卿雅儿 发表于 2021-2-6 13:41
@@ -1884,16 +1337,10 @@ psn和ns开国区，港区也没涨价，甚至我记得psn因为国内铺了cdn
 应该是“也不是没做过”才对
 
 
-
-
-
-
-
 -----
 
 ####  卿卿雅儿  
 ##### 77#       发表于 2021-2-6 14:00
-
 
 
 <blockquote>天成小次郎 发表于 2021-2-6 13:55
@@ -1903,25 +1350,13 @@ psn和ns开国区，港区也没涨价，甚至我记得psn因为国内铺了cdn
 可能是我游戏玩的少，哪家的游戏商店在开国区后，港区、美区大幅涨价或是直接被墙了的？
 
 
-
-
-
-
-
 -----
 
 ####  C男  
 ##### 78#       发表于 2021-2-6 14:01
 
 
-
-
 在论坛无能狂怒能解决什么问题？
-
-
-
-
-
 
 
 -----
@@ -1930,22 +1365,15 @@ psn和ns开国区，港区也没涨价，甚至我记得psn因为国内铺了cdn
 ##### 79#       发表于 2021-2-6 14:01
 
 
-
 <blockquote>卿卿雅儿 发表于 2021-2-6 14:00
 可能是我游戏玩的少，哪家的游戏商店在开国区后，港区、美区大幅涨价或是直接被墙了的？ ...</blockquote>
 我刚想编辑，我看错了，没看到游戏领域这个限定
-
-
-
-
-
 
 
 -----
 
 ####  中出无用  
 ##### 80#       发表于 2021-2-6 14:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50255754&amp;ptid=1986508" target="_blank">未平真人 发表于 2021-2-6 13:21</a>
@@ -1958,17 +1386,10 @@ psn和ns开国区，港区也没涨价，甚至我记得psn因为国内铺了cdn
 那和您没什么可聊的了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  未平真人  
 ##### 81#       发表于 2021-2-6 14:09
-
 
 
  本帖最后由 未平真人 于 2021-2-9 17:29 编辑 
@@ -1982,13 +1403,9 @@ psn和ns开国区，港区也没涨价，甚至我记得psn因为国内铺了cdn
 编辑：嘻嘻您打滚的样子真好看
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 -2
@@ -1999,19 +1416,13 @@ psn和ns开国区，港区也没涨价，甚至我记得psn因为国内铺了cdn
 | 病態極端|-1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  jbjack1215  
 ##### 82#       发表于 2021-2-6 14:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50256072&amp;ptid=1986508" target="_blank">卿卿雅儿 发表于 2021-2-6 14:00</a>
@@ -2021,25 +1432,13 @@ psn和ns开国区，港区也没涨价，甚至我记得psn因为国内铺了cdn
 像app store 算是“补墙”
 
 
-
-
-
-
-
 -----
 
 ####  bronzitro  
 ##### 83#       发表于 2021-2-6 14:30
 
 
-
-
 psn港服现在根本没法直连了，以前还是可以的
-
-
-
-
-
 
 
 -----
@@ -2048,14 +1447,7 @@ psn港服现在根本没法直连了，以前还是可以的
 ##### 84#       发表于 2021-2-6 14:32
 
 
-
-
 说到底能干什么呢？
-
-
-
-
-
 
 
 -----
@@ -2064,21 +1456,13 @@ psn港服现在根本没法直连了，以前还是可以的
 ##### 85#       发表于 2021-2-6 14:55
 
 
-
-
 谁能给我翻译一下 lz在说什么?
-
-
-
-
-
 
 
 -----
 
 ####  卿卿雅儿  
 ##### 86#       发表于 2021-2-6 15:00
-
 
 
 <blockquote>bronzitro 发表于 2021-2-6 14:30
@@ -2088,32 +1472,19 @@ psn港服现在根本没法直连了，以前还是可以的</blockquote>
 反而以前网页版用不作恶的验证码，我登不上。
 
 
-
-
-
-
-
 -----
 
 ####  猫不萌  
 ##### 87#       发表于 2021-2-6 15:06
 
 
-
-
 啥东西都没有，突出一个对着垃圾桶一顿发泄情绪，建议去完美门口拉屎<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  ffmzsj  
 ##### 88#       发表于 2021-2-6 15:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50255969&amp;ptid=1986508" target="_blank">hypnossz86 发表于 2021-2-6 13:48</a>
@@ -2126,16 +1497,10 @@ psn港服现在根本没法直连了，以前还是可以的</blockquote>
 你别是有两个号用的同一个邮箱吧……战网国服和外服是俩完全不通的体系 你建同样邮箱的账号都是没问题的 我觉得不会出现把你外服号直接打回国服的
 
 
-
-
-
-
-
 -----
 
 ####  听风不是雨  
 ##### 89#       发表于 2021-2-6 15:11
-
 
 
 <blockquote>卿卿雅儿 发表于 2021-2-6 15:00
@@ -2145,17 +1510,10 @@ psn港服现在根本没法直连了，以前还是可以的</blockquote>
 以前psn港服商店网页直接登录有一层谷歌验证，不翻基本过不去，得从另一个不用谷歌验证的页面登录再转到psn商店
 
 
-
-
-
-
-
 -----
 
 ####  再买自检星剁手  
 ##### 90#       发表于 2021-2-6 15:39
-
-
 
 
 快进到塞到steam china干掉国区<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
@@ -2163,17 +1521,10 @@ psn港服现在根本没法直连了，以前还是可以的</blockquote>
 —— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  朔方原的星MK.2  
 ##### 91#       发表于 2021-2-6 15:43
-
-
 
 
 有新消息就聊，没消息就等，一群人一天天搁这虚空高潮个什么劲
@@ -2188,16 +1539,7 @@ steam社区一堆帖子放黑屁，steam要没了
 这回狼真的来了，这回狼真的来了，这回狼又TM真的来了
 
 
-
-
 有消息就聊，没消息就等这么难吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 -----
@@ -2206,15 +1548,9 @@ steam社区一堆帖子放黑屁，steam要没了
 ##### 92#       发表于 2021-2-6 15:48
 
 
-
  本帖最后由 千本blur 于 2021-2-7 02:11 编辑 
 
 没消息就等，有消息就听，被搞了就翻，受不了就跑。
-
-
-
-
-
 
 
 -----
@@ -2223,17 +1559,10 @@ steam社区一堆帖子放黑屁，steam要没了
 ##### 93#       发表于 2021-2-6 15:57
 
 
-
-
 一个是现在steam国区还没怎么样，不妨等到怎么样了再说，steam社区和网络大姨妈也很久了，不还说该怎么样就怎么样。
 二是真怎么样了也没什么办法啊，难道要去击鼓鸣冤吗。
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -2244,23 +1573,15 @@ steam社区一堆帖子放黑屁，steam要没了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  莉拉厨  
 ##### 95#       发表于 2021-2-6 16:05
 
 
-
-
 推荐塞到国区被橄榄的那一天，真被强了你再发个贴大家帮你把鹅加回来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -2269,15 +1590,9 @@ steam社区一堆帖子放黑屁，steam要没了
 ##### 96#       发表于 2021-2-6 16:09
 
 
-
 <blockquote>不说话 发表于 2021-2-6 15:59
 最烦的就是创意工坊 每次还要fan 才能上</blockquote>
 网易UU免费加速steam，合法软件
-
-
-
-
-
 
 
 -----
@@ -2286,24 +1601,16 @@ steam社区一堆帖子放黑屁，steam要没了
 ##### 97#       发表于 2021-2-6 16:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50257031&amp;ptid=1986508" target="_blank">卿卿雅儿 发表于 2021-2-6 02:09</a>
 
 网易UU免费加速steam，合法软件</blockquote>
 本来没病没灾的，和得了糖尿病要打胰岛素然后告诉你医保给付，两个能一样吗。
 
 
-
-
-
-
-
 -----
 
 ####  悠然幻影  
 ##### 98#       发表于 2021-2-6 16:36
-
-
 
 
 我就一句话
@@ -2318,17 +1625,10 @@ steam社区一堆帖子放黑屁，steam要没了
 需要在乎吗？
 
 
-
-
-
-
-
 -----
 
 ####  beater  
 ##### 99#       发表于 2021-2-6 16:51
-
-
 
 
 照着psn国行、switch微信版改也算是铁拳在乎了？
@@ -2336,16 +1636,10 @@ steam社区一堆帖子放黑屁，steam要没了
 要不是对我影响不大，天天看到steam china looming 的消息我也不舒服。
 
 
-
-
-
-
-
 -----
 
 ####  savagealexander  
 ##### 100#         楼主| 发表于 2021-2-6 16:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50255859&amp;ptid=1986508" target="_blank">exia00raiser 发表于 2021-02-06 13:35:42</a>
@@ -2361,13 +1655,9 @@ steam社区一堆帖子放黑屁，steam要没了
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 -1
@@ -2377,20 +1667,13 @@ steam社区一堆帖子放黑屁，steam要没了
 | Yohane|-1|欢乐多|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  Tring  
 ##### 101#       发表于 2021-2-6 17:00
-
-
 
 
 且不论事态还没清晰到可以抗议的程度。
@@ -2402,25 +1685,13 @@ steam社区一堆帖子放黑屁，steam要没了
 这帖子标题真是一股子皿煮把戏的恶臭。
 
 
-
-
-
-
-
 -----
 
 ####  Ceraldur  
 ##### 102#       发表于 2021-2-6 17:01
 
 
-
-
 没有权利不要想嗷。该电一电了，重新推绿坝挺好。
-
-
-
-
-
 
 
 -----
@@ -2429,15 +1700,8 @@ steam社区一堆帖子放黑屁，steam要没了
 ##### 103#       发表于 2021-2-6 17:05
 
 
-
-
 能不能玩到steam国区和steam China有什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 这两者根本不形成竞争关系，因为后者根本就没有几个游戏。
-
-
-
-
-
 
 
 -----
@@ -2446,14 +1710,7 @@ steam社区一堆帖子放黑屁，steam要没了
 ##### 104#       发表于 2021-2-6 17:06
 
 
-
-
 本来就没人怕玩不到游戏好吧，当然是怕买不到低价方便的正版服务，要玩游戏还不简单吗，仁王2发售2天已经破解了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2462,23 +1719,15 @@ steam社区一堆帖子放黑屁，steam要没了
 ##### 105#       发表于 2021-2-6 17:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">再说一次，除了DOTA2和COGO这2国内运营的游戏要换个软件登录以外
 
 这开不开蒸汽平台，和封不封steam没关系
-
-
-
-
-
 
 
 -----
 
 ####  荀子的梦  
 ##### 106#       发表于 2021-2-6 17:12
-
-
 
 
 2021年了，优越感获得的方式已经多样化了，你这套话术，是95年~05年上海本地出租车司机师傅最喜欢的话术模式，因为在当年，这套话术能让他们获得巨大的优越感。
@@ -2489,16 +1738,10 @@ steam社区一堆帖子放黑屁，steam要没了
 但是，现在是2021年了。。。
 
 
-
-
-
-
-
 -----
 
 ####  AgarthaWinds  
 ##### 107#       发表于 2021-2-6 17:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50255880&amp;ptid=1986508" target="_blank">xbhuang 发表于 2021-02-06 13:37:55</a>
@@ -2508,33 +1751,20 @@ steam社区一堆帖子放黑屁，steam要没了
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 108#       发表于 2021-2-6 17:37
 
 
-
-
 敢情lz还呆在国区，那没事了
 话说国区能进创意工坊吗？我创意工坊也进不了
-
-
-
-
-
 
 
 -----
 
 ####  NEIN  
 ##### 109#       发表于 2021-2-6 17:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50256806&amp;ptid=1986508" target="_blank">朔方原的星MK.2 发表于 2021-2-6 15:43</a>
@@ -2546,16 +1776,10 @@ steam社区一堆帖子放黑屁，steam要没了
 —— 来自 Xiaomi Mi Note 3, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  雪地白狼  
 ##### 110#       发表于 2021-2-6 17:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50257762&amp;ptid=1986508" target="_blank">天邪鬼 发表于 2021-2-6 17:37</a>
@@ -2566,32 +1790,19 @@ steam社区一堆帖子放黑屁，steam要没了
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">steam社区和创意工坊去下个本地反代就能上了，stcn有大佬做好现成的工具了
 
 
-
-
-
-
-
 -----
 
 ####  acg_gyanc  
 ##### 111#       发表于 2021-2-6 17:51
 
 
-
-
 看出来有些人是真喜欢贷款吃屎<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  hypnossz86  
 ##### 112#       发表于 2021-2-6 18:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50256578&amp;ptid=1986508" target="_blank">ffmzsj 发表于 2021-2-6 15:06</a>
@@ -2604,17 +1815,10 @@ steam社区一堆帖子放黑屁，steam要没了
 只能再用不同的邮箱注册国服，所以不可能是同一个邮箱的
 
 
-
-
-
-
-
-
 -----
 
 ####  哆哆鸡  
 ##### 113#       发表于 2021-2-6 18:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50257031&amp;ptid=1986508" target="_blank">卿卿雅儿 发表于 2021-2-6 16:09</a>
@@ -2625,16 +1829,10 @@ steam社区一堆帖子放黑屁，steam要没了
 哪天老爷不想让你用了，它就是不合法的了
 
 
-
-
-
-
-
 -----
 
 ####  Litccc  
 ##### 114#       发表于 2021-2-6 18:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50257490&amp;ptid=1986508" target="_blank">椎名mahuyo 发表于 2021-2-6 17:07</a>
@@ -2644,27 +1842,15 @@ steam社区一堆帖子放黑屁，steam要没了
 2021年了不会还有人在用国服启动器吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  afer  
 ##### 115#       发表于 2021-2-6 19:05
 
 
-
-
 跟各位介绍下这位楼主，原神楼老米卫兵。
 
 知道为何这么大火气了吧，这位。
-
-
-
-
-
 
 
 -----
@@ -2673,21 +1859,13 @@ steam社区一堆帖子放黑屁，steam要没了
 ##### 116#       发表于 2021-2-6 19:35
 
 
-
-
 如果steam china能把国内的数字pc游戏销售环境搅烂了，pc实体游戏有没有机会复兴啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  bigraymond  
 ##### 117#       发表于 2021-2-6 20:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50255777&amp;ptid=1986508" target="_blank">hypnossz86 发表于 2021-2-6 13:26</a>
@@ -2699,16 +1877,10 @@ steam社区一堆帖子放黑屁，steam要没了
 —— 来自 Xiaomi M2007J1SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  田黄石  
 ##### 118#       发表于 2021-2-6 20:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50253237&amp;ptid=1986508" target="_blank">孤蜀安安 发表于 2021-02-06 05:05:35</a>
@@ -2718,16 +1890,10 @@ steam社区一堆帖子放黑屁，steam要没了
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  天邪鬼  
 ##### 119#       发表于 2021-2-6 20:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50259162&amp;ptid=1986508" target="_blank">田黄石 发表于 2021-2-6 20:17</a>
@@ -2737,16 +1903,10 @@ steam社区一堆帖子放黑屁，steam要没了
 互联网不是法外之地，自我阉割搞起来，没割明白就打回去重割
 
 
-
-
-
-
-
 -----
 
 ####  ffmzsj  
 ##### 120#       发表于 2021-2-7 00:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50257959&amp;ptid=1986508" target="_blank">hypnossz86 发表于 2021-2-6 18:01</a>
@@ -2757,27 +1917,15 @@ steam社区一堆帖子放黑屁，steam要没了
 能的 我就是
 
 
-
-
-
-
-
 -----
 
 ####  血蹄  
 ##### 121#       发表于 2021-2-7 01:20
 
 
-
-
 所以说dota2饰品这些会锁国区吗？会涨价还是降价呢。能理解楼主的火气，但我已经准备躺平了
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -2786,16 +1934,9 @@ steam社区一堆帖子放黑屁，steam要没了
 ##### 122#       发表于 2021-2-7 01:22
 
 
-
-
 所以说dota2饰品这些会锁国区吗？会涨价还是降价呢。能理解楼主的火气，但我已经准备躺平了，捧着赵老爷的腿求踹轻点那种<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -2804,16 +1945,9 @@ steam社区一堆帖子放黑屁，steam要没了
 ##### 123#       发表于 2021-2-7 01:59
 
 
-
-
 真希望steam能关了，少点智障玩游戏，厂里有招残疾人的
 
 —— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -2822,21 +1956,13 @@ steam社区一堆帖子放黑屁，steam要没了
 ##### 124#       发表于 2021-2-7 02:23
 
 
-
-
 完美公司上市了吗，现在是不是应该超级看空。
-
-
-
-
-
 
 
 -----
 
 ####  白笛之音  
 ##### 125#       发表于 2021-2-7 03:40
-
 
 
  本帖最后由 白笛之音 于 2021-2-7 03:42 编辑 
@@ -2846,14 +1972,9 @@ steam社区一堆帖子放黑屁，steam要没了
 这么恶心s1，您可以滚而不是来这里倒垃圾
 
 
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -2863,12 +1984,7 @@ steam社区一堆帖子放黑屁，steam要没了
 | 超纯锑| + 1|欢乐多|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -2877,21 +1993,13 @@ steam社区一堆帖子放黑屁，steam要没了
 ##### 126#       发表于 2021-2-7 06:52
 
 
-
-
 这贴有潜力
-
-
-
-
-
 
 
 -----
 
 ####  hypnossz86  
 ##### 127#       发表于 2021-2-7 07:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50261355&amp;ptid=1986508" target="_blank">ffmzsj 发表于 2021-2-7 00:46</a>
@@ -2904,16 +2012,10 @@ steam社区一堆帖子放黑屁，steam要没了
 国服和外服也不可能串通才对
 
 
-
-
-
-
-
 -----
 
 ####  卿卿雅儿  
 ##### 128#       发表于 2021-2-7 08:20
-
 
 
 <blockquote>NEIN 发表于 2021-2-6 17:42
@@ -2924,16 +2026,10 @@ steam社区一堆帖子放黑屁，steam要没了
 其实就是和咪蒙一样，通过贩卖焦虑创造流量
 
 
-
-
-
-
-
 -----
 
 ####  凉宫绿豆沙  
 ##### 129#       发表于 2021-2-7 08:29
-
 
 
 <blockquote>卿卿雅儿 发表于 2021-2-7 08:20
@@ -2941,16 +2037,10 @@ steam社区一堆帖子放黑屁，steam要没了
 外野也差不多
 
 
-
-
-
-
-
 -----
 
 ####  ffmzsj  
 ##### 130#       发表于 2021-2-7 08:38
-
 
 
 <blockquote>hypnossz86 发表于 2021-2-7 07:53
@@ -2962,17 +2052,10 @@ steam社区一堆帖子放黑屁，steam要没了
 确实不串通 应该是12~13年 我觉得你已经注册了俩号了
 
 
-
-
-
-
-
 -----
 
 ####  AlerHugues  
 ##### 131#       发表于 2021-2-7 09:45
-
-
 
 
 建议少yy，多玩游戏<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
@@ -2980,16 +2063,10 @@ steam社区一堆帖子放黑屁，steam要没了
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  savagealexander  
 ##### 132#         楼主| 发表于 2021-2-7 10:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50261959&amp;ptid=1986508" target="_blank">白笛之音 发表于 2021-2-7 03:40</a>
@@ -3003,13 +2080,9 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1955481
 要不然我时不时的就会恶心到某些人呢
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 -3
@@ -3020,19 +2093,13 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1955481
 | 这就是奇迹|-2||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  savagealexander  
 ##### 133#         楼主| 发表于 2021-2-7 11:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50254998&amp;ptid=1986508" target="_blank">xbhuang 发表于 2021-2-6 11:55</a>
@@ -3052,13 +2119,9 @@ ios里面的书，音乐，视频，说没有就没有了，只能自己认了�
 其它的工作范围的，比如环评，规划，税务，再说多了就爱讨论了也不是这个坛子的内容了
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 -1
@@ -3068,19 +2131,13 @@ ios里面的书，音乐，视频，说没有就没有了，只能自己认了�
 | МаксФёд|-1|那你赶紧去上啊|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  散装星空  
 ##### 134#       发表于 2021-2-7 11:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50258489&amp;ptid=1986508" target="_blank">afer 发表于 2021-02-06 19:05:00</a>
@@ -3093,17 +2150,10 @@ ios里面的书，音乐，视频，说没有就没有了，只能自己认了�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Onelooker  
 ##### 135#       发表于 2021-2-7 11:37
-
-
 
 
 这id老蠢比了
@@ -3113,16 +2163,10 @@ ios里面的书，音乐，视频，说没有就没有了，只能自己认了�
 不会还是白天回形针学知识，晚上hololive撸管子的货吧
 
 
-
-
-
-
-
 -----
 
 ####  qderaaa  
 ##### 136#       发表于 2021-2-7 11:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50255153&amp;ptid=1986508" target="_blank">卿卿雅儿 发表于 2021-02-06 12:11:28</a>
@@ -3131,16 +2175,10 @@ PSN国区都出了好几年了，你们还在这臆想国区“可能”steam带
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Litccc  
 ##### 137#       发表于 2021-2-7 11:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50261544&amp;ptid=1986508" target="_blank">血蹄 发表于 2021-2-7 01:22</a>
@@ -3149,31 +2187,19 @@ PSN国区都出了好几年了，你们还在这臆想国区“可能”steam带
 没有任何影响
 
 
-
-
-
-
-
 -----
 
 ####  雁落北山  
 ##### 138#       发表于 2021-2-7 11:56
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">好活
-
-
-
-
-
 
 
 -----
 
 ####  savagealexander  
 ##### 139#         楼主| 发表于 2021-2-7 12:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50258489&amp;ptid=1986508" target="_blank">afer 发表于 2021-2-6 19:05</a>
@@ -3195,25 +2221,13 @@ PSN国区都出了好几年了，你们还在这臆想国区“可能”steam带
 元神楼里我一共也没发过几贴，但是元神这事就是你们婆罗门恶臭的集中体现，任天堂法务部都没认为抄袭，你们婆罗门可以集体指控，蓝星人都喜欢的产品你们婆罗门看不顺眼，你们不氪金自己玩自己的买断就行了，凭什么去喷别人氪金母猪？按照这个逻辑如果你爸抽烟你不抽，你是不是要把你爸按在地上打？我就是这观点，但我不是米卫兵，你们婆罗门鄙视哪个我就代表那个出来撕你们
 
 
-
-
-
-
-
 -----
 
 ####  Stellar_Frost  
 ##### 140#       发表于 2021-2-7 12:07
 
 
-
-
 我记得那个知名不具是叫刘睿哲...
-
-
-
-
-
 
 
 -----
@@ -3222,16 +2236,10 @@ PSN国区都出了好几年了，你们还在这臆想国区“可能”steam带
 ##### 141#         楼主| 发表于 2021-2-7 12:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50264442&amp;ptid=1986508" target="_blank">Stellar_Frost 发表于 2021-2-7 12:07</a>
 
 我记得那个知名不具是叫刘睿哲...</blockquote>
 感谢提醒 已修改
-
-
-
-
-
 
 
 -----
@@ -3240,23 +2248,15 @@ PSN国区都出了好几年了，你们还在这臆想国区“可能”steam带
 ##### 142#       发表于 2021-2-7 12:16
 
 
-
-
 说怼婆罗门，实际上比谁都婆
 
 —— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
 
 ####  Sorcerian  
 ##### 143#       发表于 2021-2-7 13:09
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">游戏无所谓，饰品不能锁。
@@ -3269,16 +2269,10 @@ PSN国区都出了好几年了，你们还在这臆想国区“可能”steam带
 —— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  天成小次郎  
 ##### 144#       发表于 2021-2-7 13:13
-
 
 
 <blockquote>qderaaa 发表于 2021-2-7 11:53
@@ -3289,16 +2283,10 @@ PSN国区都出了好几年了，你们还在这臆想国区“可能”steam带
 很烂，但比NS国区强，就这个水平
 
 
-
-
-
-
-
 -----
 
 ####  卿卿雅儿  
 ##### 145#       发表于 2021-2-7 14:26
-
 
 
 <blockquote>qderaaa 发表于 2021-2-7 11:53
@@ -3313,25 +2301,13 @@ PSN国区都出了好几年了，你们还在这臆想国区“可能”steam带
 实际上就我自己的体验，对比PS3时代，PSN港服现在明显更好用了。
 
 
-
-
-
-
-
 -----
 
 ####  kalavinka  
 ##### 146#       发表于 2021-2-7 14:53
 
 
-
-
 来戏了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">来自: iPhone客户端
-
-
-
-
-
 
 
 -----
@@ -3340,22 +2316,15 @@ PSN国区都出了好几年了，你们还在这臆想国区“可能”steam带
 ##### 147#       发表于 2021-2-7 14:57
 
 
-
  本帖最后由 女仆高达 于 2021-2-7 14:59 编辑 
 
 虫各哈，原来是个正宗mwb，那讲出什么话都不奇怪了。
-
-
-
-
-
 
 
 -----
 
 ####  oldknight  
 ##### 148#       发表于 2021-2-7 15:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50257418&amp;ptid=1986508" target="_blank">savagealexander 发表于 2021-2-6 16:57</a>
@@ -3367,16 +2336,10 @@ PSN国区都出了好几年了，你们还在这臆想国区“可能”steam带
 这么一想的话其实巫师3水平的武侠游戏也许应该指望越南来做出来<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  卿卿雅儿  
 ##### 149#       发表于 2021-2-7 15:55
-
 
 
 <blockquote>oldknight 发表于 2021-2-7 15:44
@@ -3396,25 +2359,13 @@ PSN国区都出了好几年了，你们还在这臆想国区“可能”steam带
 这也是为什么国产游戏里，有较多中国文化，且最接近GOTY的是那个二次元游戏的原因——必须套上世界玩家认可的那层二刺猿的壳，才能走出去。
 
 
-
-
-
-
-
 -----
 
 ####  首领  
 ##### 150#       发表于 2021-2-7 15:59
 
 
-
-
 拆腻子仙剑不行，波兰仙剑行！赛博波兰不行，赛博越南，行！
-
-
-
-
-
 
 
 -----
@@ -3423,14 +2374,7 @@ PSN国区都出了好几年了，你们还在这臆想国区“可能”steam带
 ##### 151#       发表于 2021-2-7 16:41
 
 
-
-
 steam
-
-
-
-
-
 
 
 -----
@@ -3439,16 +2383,9 @@ steam
 ##### 152#       发表于 2021-2-7 18:06
 
 
-
-
 就算你这么说，这是政策要求也没办法啊
 
 —— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -3457,14 +2394,7 @@ steam
 ##### 153#       发表于 2021-2-7 18:12
 
 
-
-
 依据过去案例和现行条纹，更有可能是steam与蒸汽中国共存，但会严重阉割，比如说把大部分服务器转移给蒸汽中国，游戏照买照更新但不能联机，要联机只能去蒸汽中国玩过审的游戏
-
-
-
-
-
 
 
 -----
@@ -3473,14 +2403,7 @@ steam
 ##### 154#       发表于 2021-2-7 19:46
 
 
-
-
 我可以接受现在的steam国区不再是低价区，贵是贵了些，但至少还能玩嘛，以前也是这么过来的。不是国区可能反倒好些，省的有些游戏被限制地区了我还要用我的美服小号去买
-
-
-
-
-
 
 
 -----
@@ -3489,14 +2412,7 @@ steam
 ##### 155#       发表于 2021-2-7 20:15
 
 
-
-
 我觉得最后可能和坦克世界一样，国服价格“稍低”，但是有阉割，直营服照玩，但是价格和东南亚一样。
-
-
-
-
-
 
 
 -----
@@ -3505,16 +2421,10 @@ steam
 ##### 156#       发表于 2021-2-7 20:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50268734&amp;ptid=1986508" target="_blank">MineFreeman 发表于 2021-2-7 19:46</a>
 
 我可以接受现在的steam国区不再是低价区，贵是贵了些，但至少还能玩嘛，以前也是这么过来的。不是国区可能 ...</blockquote>
 同意....最好再能把现国区那个真18x的限制打开......
-
-
-
-
-
 
 
 -----
@@ -3523,17 +2433,10 @@ steam
 ##### 157#       发表于 2021-2-7 20:29
 
 
-
-
 原来没啥干货，无聊
 
 
 你在这儿嚎有啥用，泥潭是完美官方还是政府下属单位啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3542,14 +2445,7 @@ steam
 ##### 158#       发表于 2021-2-7 20:29
 
 
-
-
 我身边常用steam的朋友已经准备转生成阿根廷人了，再说了要是真的情况不妙又能怎样呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">来自: iPhone客户端
-
-
-
-
-
 
 
 -----
@@ -3558,23 +2454,16 @@ steam
 ##### 159#       发表于 2021-2-7 20:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50254144&amp;ptid=1986508" target="_blank">vuder 发表于 2021-2-6 10:13</a>
 
 我觉得可能蒸汽平台是完美要拿来向网吧征税用的……</blockquote>
 特许经营权？
 
 
-
-
-
-
-
 -----
 
 ####  savagealexander  
 ##### 160#         楼主| 发表于 2021-2-7 21:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50268734&amp;ptid=1986508" target="_blank">MineFreeman 发表于 2021-2-7 19:46</a>
@@ -3595,16 +2484,10 @@ steam
 总的来说还是希望不要有任何改动
 
 
-
-
-
-
-
 -----
 
 ####  afer  
 ##### 161#       发表于 2021-2-7 23:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50264426&amp;ptid=1986508" target="_blank">savagealexander 发表于 2021-2-7 12:05</a>
@@ -3616,16 +2499,10 @@ steam
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么急着自爆我都不用科普了。
 
 
-
-
-
-
-
 -----
 
 ####  nesrelax  
 ##### 162#       发表于 2021-2-8 08:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50256806&amp;ptid=1986508" target="_blank">朔方原的星MK.2 发表于 2021-2-6 16:43</a>
@@ -3638,25 +2515,13 @@ steam
 —— 来自 Google Pixel 5, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  Dank_Memes  
 ##### 163#       发表于 2021-2-8 08:55
 
 
-
-
 言论蠢得恰到好处
-
-
-
-
-
 
 
 -----
@@ -3665,14 +2530,7 @@ steam
 ##### 164#       发表于 2021-2-8 09:00
 
 
-
-
 哪有人说自己是知名巨魔啊，这不跟对着别人说自己是自己是知名傻逼一样吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3681,13 +2539,7 @@ steam
 ##### 165#       发表于 2021-2-8 09:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">隔壁尼姑庵已经有人拿着诸葛舅舅和贴吧的消息让看衰的人出来叫爸爸了，你们好自为之
-
-
-
-
-
 
 
 -----
@@ -3696,14 +2548,7 @@ steam
 ##### 166#       发表于 2021-2-8 09:16
 
 
-
-
 贷款吃屎爱好者
-
-
-
-
-
 
 
 -----
@@ -3712,23 +2557,16 @@ steam
 ##### 167#       发表于 2021-2-8 09:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50273853&amp;ptid=1986508" target="_blank">梅林的三角裤 发表于 2021-2-8 09:00</a>
 
 哪有人说自己是知名巨魔啊，这不跟对着别人说自己是自己是知名傻逼一样吗？ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这年头傻逼也算是骄傲的标签了。
 
 
-
-
-
-
-
 -----
 
 ####  路西恩  
 ##### 168#       发表于 2021-2-8 10:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50254186&amp;ptid=1986508" target="_blank">孤蜀安安 发表于 2021-02-06 10:19:15</a>
@@ -3738,16 +2576,10 @@ steam
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  AlerHugues  
 ##### 169#       发表于 2021-2-8 10:59
-
 
 
 [https://www.dota2.com.cn/article/details/20210203/219571.html](https://www.dota2.com.cn/article/details/20210203/219571.html)
@@ -3760,16 +2592,10 @@ DOTA2的接入FAQ已经更新了
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  savagealexander  
 ##### 170#         楼主| 发表于 2021-2-8 11:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50270720&amp;ptid=1986508" target="_blank">afer 发表于 2021-2-7 23:10</a>
@@ -3781,16 +2607,10 @@ DOTA2的接入FAQ已经更新了
 但请不要扣卫兵帽子
 
 
-
-
-
-
-
 -----
 
 ####  savagealexander  
 ##### 171#         楼主| 发表于 2021-2-8 12:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50264147&amp;ptid=1986508" target="_blank">Onelooker 发表于 2021-2-7 11:37</a>
@@ -3812,13 +2632,9 @@ DOTA2的接入FAQ已经更新了
 但你这种货就是要有人出来骂，不然你们婆罗门还真觉得自己掌握真理了
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 0
@@ -3829,19 +2645,13 @@ DOTA2的接入FAQ已经更新了
 | 拉菲尔神父|-1|真理也不掌握在傻逼巨魔嘴里|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  savagealexander  
 ##### 172#         楼主| 发表于 2021-2-8 12:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50275440&amp;ptid=1986508" target="_blank">AlerHugues 发表于 2021-2-8 10:59</a>
@@ -3854,17 +2664,10 @@ DOTA2的接入FAQ已经更新了
 感谢分享，已经引用更新
 
 
-
-
-
-
-
 -----
 
 ####  Trompete  
 ##### 173#       发表于 2021-2-8 12:08
-
-
 
 
 想法不要太极端
@@ -3876,16 +2679,10 @@ DOTA2的接入FAQ已经更新了
 理性一点，做好准备就是了
 
 
-
-
-
-
-
 -----
 
 ####  散装星空  
 ##### 174#       发表于 2021-2-8 12:18
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">乐了，前有我婆我光荣，后有巨魔救世界。你们能不能别搞泛化把自己人搞傻了，什么标签都乐意往自己身上贴的吗？
@@ -3893,16 +2690,10 @@ DOTA2的接入FAQ已经更新了
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  瓜苗乐章  
 ##### 175#       发表于 2021-2-8 13:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50269107&amp;ptid=1986508" target="_blank">busher 发表于 2021-2-7 20:36</a>
@@ -3912,16 +2703,10 @@ DOTA2的接入FAQ已经更新了
 —— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  neolane  
 ##### 176#       发表于 2021-2-8 14:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50253854&amp;ptid=1986508" target="_blank">厨具战士 发表于 2021-02-06 09:23:02</a>
@@ -3930,32 +2715,19 @@ DOTA2的接入FAQ已经更新了
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  石化金鱼  
 ##### 177#       发表于 2021-2-8 14:38
 
 
-
-
 又是独自一人用巨魔之力对抗泥潭婆罗门的一天呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  共享栈  
 ##### 178#       发表于 2021-2-8 15:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50258489&amp;ptid=1986508" target="_blank">afer 发表于 2021-2-6 19:05</a>
@@ -3968,13 +2740,9 @@ DOTA2的接入FAQ已经更新了
 游戏圈身份政治还是你们会玩<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 3战斗力 -4
@@ -3986,12 +2754,7 @@ DOTA2的接入FAQ已经更新了
 | 欠损|-2|+1|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -4000,14 +2763,7 @@ DOTA2的接入FAQ已经更新了
 ##### 179#       发表于 2021-2-8 16:09
 
 
-
-
 泥潭过去3年，每隔几个月都有人出来说“steam药丸，这次是真的狼来了”言之凿凿有理有据，比张家墩的中国崩溃论更有说服力。但是看了三年，一直都没啥干货，没见政府发文，没见steam公告，甚至连舅舅党都没有，只有“兄弟论坛”和“游戏社区”来源的猜测。
-
-
-
-
-
 
 
 -----
@@ -4016,16 +2772,10 @@ DOTA2的接入FAQ已经更新了
 ##### 180#       发表于 2021-2-8 19:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50279034&amp;ptid=1986508" target="_blank">卿卿雅儿 发表于 2021-2-8 16:09</a>
 
 泥潭过去3年，每隔几个月都有人出来说“steam药丸，这次是真的狼来了”言之凿凿有理有据，比张家墩的中国崩 ...</blockquote>
 这不就来了一位不一样的，楼主连“兄弟论坛”和“游戏社区”级别的信息来源都没有，看了个批站专栏就预言起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4034,21 +2784,13 @@ DOTA2的接入FAQ已经更新了
 ##### 181#       发表于 2021-2-8 19:45
 
 
-
-
 相信完美，相信v社，中国游戏稳中向好，v社完美亲如一家
-
-
-
-
-
 
 
 -----
 
 ####  sliencer  
 ##### 182#       发表于 2021-2-8 20:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50261787&amp;ptid=1986508" target="_blank">千本blur 发表于 2021-2-7 02:23</a>
@@ -4058,16 +2800,10 @@ DOTA2的接入FAQ已经更新了
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">否则就他自己的那些玩意，游族网络出事前才给散户闪了腰，再鱼的记忆他也不会这么快就没了
 
 
-
-
-
-
-
 -----
 
 ####  savagealexander  
 ##### 183#         楼主| 发表于 2021-2-8 20:57
-
 
 
  本帖最后由 savagealexander 于 2021-2-8 21:13 编辑 
@@ -4083,19 +2819,10 @@ DOTA2的接入FAQ已经更新了
 国服渠道定了国际服开始封IP的例子还少吗？2月9号开始正式公测算不算国服上线？
 
 
-
-
-
-
-
-
-
 -----
 
 ####  dren_zheng  
 ##### 184#       发表于 2021-2-8 21:00
-
-
 
 
 按我国法规，未取得版号的游戏不得上架发行
@@ -4109,17 +2836,10 @@ DOTA2的接入FAQ已经更新了
 另一方面，有可能会对外服STEAM做登录限制什么的，但这些你们现在急也没用，转区也不过是自己骗自己
 
 
-
-
-
-
-
-
 -----
 
 ####  afer  
 ##### 185#       发表于 2021-2-8 21:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50278701&amp;ptid=1986508" target="_blank">共享栈 发表于 2021-2-8 15:35</a>
@@ -4134,17 +2854,10 @@ DOTA2的接入FAQ已经更新了
 好比某些传教的，总是温文尔雅特客气，你反驳他就说啥世界这么大你们不知道奥妙，不好好交流，一堆看热闹还来个你没礼貌，您老拿着一盆屎跟我这让我尝尝，再客气不也是让我吃屎？我没打你算客气的了。这傻逼还扯什么自己是黑子，不就是说自己是大便恶心别人的么，还不许我恶心他了。
 
 
-
-
-
-
-
 -----
 
 ####  savagealexander  
 ##### 186#         楼主| 发表于 2021-2-8 21:12
-
-
 
 
 话说这贴到现在，多数回帖的朋友都是好好讨论的，我感谢你们。
@@ -4162,26 +2875,13 @@ DOTA2的接入FAQ已经更新了
 屎就是屎，人不吃，但是没事骂300里说它臭这种行为比屎还可恶，屎还能当肥料养一方土地，充满优越感的狂骂能干嘛？还砸ps4，还骂到大使馆，自己被鹅厂当搅屎棍了还觉得自己很优越不知道怎么想的
 
 
-
-
-
-
-
-
 -----
 
 ####  听风不是雨  
 ##### 187#       发表于 2021-2-8 21:19
 
 
-
-
 经典转进鹅场，太对味了
-
-
-
-
-
 
 
 -----
@@ -4190,14 +2890,7 @@ DOTA2的接入FAQ已经更新了
 ##### 188#       发表于 2021-2-8 21:27
 
 
-
-
 蒸汽平台是国内卖游戏，steam买是去国外海淘，性质还是有点不一样的
-
-
-
-
-
 
 
 -----
@@ -4206,23 +2899,15 @@ DOTA2的接入FAQ已经更新了
 ##### 189#       发表于 2021-2-8 21:35
 
 
-
-
 泥潭是真的不知道国服dota和csgo是咋运营的？那还扯了这么多楼<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi Mi Note 3, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
-
-
-
-
-
 
 
 -----
 
 ####  林无德  
 ##### 190#       发表于 2021-2-8 21:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50280842&amp;ptid=1986508" target="_blank">savagealexander 发表于 2021-2-8 20:57</a>
@@ -4234,16 +2919,10 @@ DOTA2的接入FAQ已经更新了
 行，我不识字<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  savagealexander  
 ##### 191#         楼主| 发表于 2021-2-8 21:56
-
 
 
  本帖最后由 savagealexander 于 2021-2-8 21:57 编辑 
@@ -4276,25 +2955,13 @@ DOTA2的接入FAQ已经更新了
 认清现实，认清自己的爱好是小众，认清小众不等于优越，认清并且接受，然后再看MHY和氪金母猪，他们就跟路边的绿化一样存在着但同时跟你没啥关系，自己不玩，也不要去骂玩的人，真金白银给自己爱好投票，这也是我为啥特别忧虑steam china的原因
 
 
-
-
-
-
-
 -----
 
 ####  听风不是雨  
 ##### 192#       发表于 2021-2-8 22:06
 
 
-
-
 你不希望看到氪金满天飞的实际行动就是跑来讨厌氪金的婆罗门论坛来用巨魔之力说教婆罗门不要去骂氪金母猪，恕我直言我没看出来实际意义在哪里，婆罗门认清自己之后难道氪金游戏就不满天飞了？或者你想让婆罗门趁早放弃抵抗投降之后被温水煮青蛙的时候少痛苦几分？那还真是真爱啊
-
-
-
-
-
 
 
 -----
@@ -4303,23 +2970,15 @@ DOTA2的接入FAQ已经更新了
 ##### 193#       发表于 2021-2-8 22:12
 
 
-
-
 这楼主的发言也太婆罗门了吧，让泥潭的婆罗门情何以堪，婆过头了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
-
 
 
 -----
 
 ####  林无德  
 ##### 194#       发表于 2021-2-8 22:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50281418&amp;ptid=1986508" target="_blank">听风不是雨 发表于 2021-2-8 22:06</a>
@@ -4331,16 +2990,10 @@ DOTA2的接入FAQ已经更新了
 《巨魔转生~到了游戏区就拿出真本事~》，堂堂连载<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  afer  
 ##### 195#       发表于 2021-2-8 22:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50281326&amp;ptid=1986508" target="_blank">savagealexander 发表于 2021-2-8 21:56</a>
@@ -4352,16 +3005,10 @@ DOTA2的接入FAQ已经更新了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们知道得了自闭症，然后有交流障碍、不会聊天、还自以为是的宅男是啥样了吧。
 
 
-
-
-
-
-
 -----
 
 ####  alleriawr9  
 ##### 196#       发表于 2021-2-8 22:44
-
 
 
  本帖最后由 alleriawr9 于 2021-2-9 00:25 编辑 
@@ -4374,16 +3021,10 @@ DOTA2的接入FAQ已经更新了
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
-
-
-
-
 -----
 
 ####  savagealexander  
 ##### 197#         楼主| 发表于 2021-2-9 00:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50281418&amp;ptid=1986508" target="_blank">听风不是雨 发表于 2021-2-8 22:06</a>
@@ -4401,16 +3042,10 @@ DOTA2的接入FAQ已经更新了
 如果婆罗门认为自己喜欢的内容更优越，那更不应该用谩骂来对待氪金玩家，因为有不少氪金玩家是缺少分辨能力的，如果做不到友善的推荐和引导，至少不要用谩骂引起别人的反感。毕竟婆罗门才是市场份额和投资金额的少数，毕竟需要壮大人群的是买断制群体，群体壮大了才能有更多作品，秀优越和谩骂只会让圈子越来越小，产品越来越少
 
 
-
-
-
-
-
 -----
 
 ####  savagealexander  
 ##### 198#         楼主| 发表于 2021-2-9 01:07
-
 
 
  本帖最后由 savagealexander 于 2021-2-9 01:16 编辑 
@@ -4420,20 +3055,13 @@ DOTA2的接入FAQ已经更新了
 感谢建议
 
 
-
 这贴其实想表达的就是最初的反差，国单开始有起色了，但是最重要的steam又有了不确定性。之前一直是说有steam china这事，都在说可能会怎样，那么目前的事态是steam china这事实锤到上线日期确定了，相比之前都不知道什么时候上线，最坏的可能性实锤的风险增大了，国单这时候卖的好更加重忧虑。
-
-
-
-
-
 
 
 -----
 
 ####  afer  
 ##### 199#       发表于 2021-2-9 01:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50282952&amp;ptid=1986508" target="_blank">savagealexander 发表于 2021-2-9 00:51</a>
@@ -4453,21 +3081,10 @@ DOTA2的接入FAQ已经更新了
 2021-2-9 01:16 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  听风不是雨  
 ##### 200#       发表于 2021-2-9 01:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50282952&amp;ptid=1986508" target="_blank">savagealexander 发表于 2021-2-9 00:51</a>
@@ -4481,25 +3098,13 @@ DOTA2的接入FAQ已经更新了
 圈子兴衰是业界发展的必然趋势，dota2玩家即使各个态度友善礼貌待人也干不过lol，lol对于王者荣耀亦如是，和用户态度无关
 
 
-
-
-
-
-
 -----
 
 ####  听风不是雨  
 ##### 201#       发表于 2021-2-9 01:24
 
 
-
-
 如果你真想扩大买断制的圈子，比起来s1教婆罗门说话，去手游玩家群体里推广买断单机有意义的多
-
-
-
-
-
 
 
 -----
@@ -4508,15 +3113,9 @@ DOTA2的接入FAQ已经更新了
 ##### 202#         楼主| 发表于 2021-2-9 01:30
 
 
-
  本帖最后由 savagealexander 于 2021-2-9 01:32 编辑 
 <blockquote>
 </blockquote>
-
-
-
-
-
 
 
 -----
@@ -4525,23 +3124,16 @@ DOTA2的接入FAQ已经更新了
 ##### 203#         楼主| 发表于 2021-2-9 01:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50283215&amp;ptid=1986508" target="_blank">听风不是雨 发表于 2021-2-9 01:24</a>
 
 如果你真想扩大买断制的圈子，比起来s1教婆罗门说话，去手游玩家群体里推广买断单机有意义的多 ...</blockquote>
 我去了，并且我说的不是避免刺激，这太小心谨慎了，我说是不要狂骂和鄙视别人，和从游戏当中寻找优越感
 
 
-
-
-
-
-
 -----
 
 ####  afer  
 ##### 204#       发表于 2021-2-9 01:35
-
 
 
  本帖最后由 afer 于 2021-2-9 02:25 编辑 
@@ -4555,16 +3147,10 @@ DOTA2的接入FAQ已经更新了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你介是没让我吃屎，我谢谢你啊，你在这自己吃，自己拉，一口一个自己是巨魔还怪别人来车你。说你介是自闭肥宅你还谦虚，都侮辱自闭肥宅了，您赶紧去当地精神病院挂个号。别人说你真恶心你来个你是吃屎英雄，别人围观你看你来个别人恶趣味，建议您老自己发个帖子锁个99999权限然后让版主把你封了。你老做人就是烂，还不许别人说？张口闭口氪金手游是未来，介个我还真不知道，我也懒得搭理什么流水，也没挣我兜里去，倒是您阴阳人烂屁股男根都烂透了是现实啊。张口就叫自己巨魔的傻逼还怪别人身攻击？介帖子只能你自己骂你自己是吧？那您老给我们耍一段，我们看看，我这有个锣，我敲下您蹦个我看看？要我看也别这么麻烦了，您这么拿自己挡块料，巨魔巨魔的张口就来，以后这论坛啊，巨魔你就您一个，婆罗门也就您一个，您小母牛上电线——牛逼带放电，接上魔球您就逼光闪闪。介论坛就您一个诸葛亮，我们都陪您搞对象，您是大伙亲伯伯，你的嘴引领我呲尿的方向，您以后说哪，我们滋哪就行了——伯伯我错了，给您陪个不是，我啊，哪凉快哪待着去，您自己玩好吧您了。
 
 
-
-
-
-
-
 -----
 
 ####  听风不是雨  
 ##### 205#       发表于 2021-2-9 01:42
-
 
 
  本帖最后由 听风不是雨 于 2021-2-9 01:44 编辑 
@@ -4575,32 +3161,19 @@ DOTA2的接入FAQ已经更新了
 说直白点，我捍卫任何一方鄙视另一方的权利，只要在自家一亩三分地想拉屎吃屎玩屎笑对家的屎都是自由
 
 
-
-
-
-
-
 -----
 
 ####  zxz1994  
 ##### 206#       发表于 2021-2-9 01:47
 
 
-
-
 众所周知，dota2玩家不在客户端，打算放弃绑定什么中国蒸汽了，这样还要把我账号并入国服那就老老实实玩主机，反正一年也玩不了多少游戏了
-
-
-
-
-
 
 
 -----
 
 ####  kalavinka  
 ##### 207#       发表于 2021-2-9 02:24
-
 
 
  本帖最后由 kalavinka 于 2021-2-9 05:01 编辑 
@@ -4610,16 +3183,10 @@ DOTA2的接入FAQ已经更新了
 来自: iPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  savagealexander  
 ##### 208#         楼主| 发表于 2021-2-9 17:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50283271&amp;ptid=1986508" target="_blank">afer 发表于 2021-2-9 01:35</a>
@@ -4631,16 +3198,10 @@ DOTA2的接入FAQ已经更新了
 我就是好奇秒删的帖子你怎么回复的
 
 
-
-
-
-
-
 -----
 
 ####  savagealexander  
 ##### 209#         楼主| 发表于 2021-2-9 17:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50283309&amp;ptid=1986508" target="_blank">听风不是雨 发表于 2021-2-9 01:42</a>
@@ -4655,32 +3216,19 @@ DOTA2的接入FAQ已经更新了
 终归是大家都做人更好点
 
 
-
-
-
-
-
 -----
 
 ####  kilty  
 ##### 210#       发表于 2021-2-9 17:21
 
 
-
-
 我愿称楼主为婆罗门hunter
-
-
-
-
-
 
 
 -----
 
 ####  秋之实  
 ##### 211#       发表于 2021-2-9 17:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50285997&amp;ptid=1986508" target="_blank">savagealexander 发表于 2021-2-9 17:10</a>
@@ -4692,17 +3240,10 @@ DOTA2的接入FAQ已经更新了
 因为呼吁两边不要互相鄙视的是真的圣母，而拉偏架则可以看出一个人的屁股所在。至于狗咬人，看似贬低其中一方，实则是在道德绑架另一方，这才是真正的理客中。
 
 
-
-
-
-
-
 -----
 
 ####  syndrome2032  
 ##### 212#       发表于 2021-2-9 17:25
-
-
 
 
 这事具体落地时候发声的是valve而不是完美，
@@ -4711,16 +3252,10 @@ DOTA2的接入FAQ已经更新了
 这也算是目前环境下最好的出路了吧，单独的steam china。
 
 
-
-
-
-
-
 -----
 
 ####  afer  
 ##### 213#       发表于 2021-2-9 17:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50285925&amp;ptid=1986508" target="_blank">savagealexander 发表于 2021-2-9 17:03</a>
@@ -4732,29 +3267,18 @@ DOTA2的接入FAQ已经更新了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别在这又当又立了，自己干不过还扯个屁，拉偏架你妈屁股都他妈飞出屏幕了，还在这装当大家是瞎子。
 
 
-
-
-
-
-
 -----
 
 ####  孤蜀安安  
 ##### 214#       发表于 2021-2-9 19:19
 
 
-
-
 我觉得其实还是会慢慢墙掉的，至少站在政府角度上来说，一方面需要做监管，另一方面也给steam准备了迁移时间，也算是对商业公司友好，是一个挺稳妥的做法。
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 -2
@@ -4764,10 +3288,7 @@ DOTA2的接入FAQ已经更新了
 | luciffer|-2|欢乐多|
 
 
-
 查看全部评分
-
-
 
 
                                           

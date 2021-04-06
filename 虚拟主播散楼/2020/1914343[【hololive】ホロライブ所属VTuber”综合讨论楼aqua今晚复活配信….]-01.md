@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2020-02-21 18:07** 
 
 
-
 -----
 
 ####  儒门正御应无骞  
 ##### 1#       楼主       发表于 2020-2-17 18:26
-
 
 
  本帖最后由 儒门正御应无骞 于 2020-2-21 14:32 编辑 
@@ -24,11 +22,6 @@ hololive（日语：ホロライブ）是COVER株式会社制作的虚拟YouTube
 下载附件
 
 2020-2-17 23:29 上传
-
-
-
-
-
 
 
 时乃空是一名虚拟JK。 
@@ -54,10 +47,6 @@ hololive（日语：ホロライブ）是COVER株式会社制作的虚拟YouTube
 2020-2-17 23:35 上传
 
 
-
-
-
-
 自我介绍视频
 
 樱巫女：
@@ -73,10 +62,6 @@ hololive（日语：ホロライブ）是COVER株式会社制作的虚拟YouTube
 下载附件
 
 2020-2-17 23:40 上传
-
-
-
-
 
 
 自我介绍视频
@@ -104,10 +89,6 @@ hololive（日语：ホロライブ）是COVER株式会社制作的虚拟YouTube
 2020-2-17 23:43 上传
 
 
-
-
-
-
 自我介绍视频
 <strong>一期生</strong>
 [backcolor=rgba(255, 255, 255, 0.8)]<strong>夜空梅露：</strong>夜空 メル／Yozora Mel）是从2018年5月13日在YouTube开始活动的VTuber（YouTube频道设立于2018年4月24日），所属业界团体hololive的一期生。
@@ -124,12 +105,6 @@ hololive所属的虚拟吸血鬼女孩。明明是吸血鬼，但其实对血不
 下载附件
 
 2020-2-19 23:27 上传
-
-
-
-
-
-
 
 
 亚绮·罗森塔尔：
@@ -149,9 +124,6 @@ hololive所属的虚拟吸血鬼女孩。明明是吸血鬼，但其实对血不
 下载附件
 
 2020-2-19 23:31 上传
-
-
-
 
 
 自我介绍视频
@@ -175,9 +147,6 @@ hololive所属的虚拟吸血鬼女孩。明明是吸血鬼，但其实对血不
 2020-2-19 23:35 上传
 
 
-
-
-
 【终于轮到少主了】
 <strong>白上吹雪：</strong>（白上 フブキ，Shirakami Fubuki）是属于[hololive](https://zh.moegirl.org/Hololive)一期生的虚拟YouTuber，2018年6月开始活动发兽耳的女高中生（狐狸），性格害羞安静，但其实喜欢和人们聊天。住在[妖精之森](https://zh.moegirl.org/index.php?title=%E5%A6%96%E7%B2%BEElu&amp;action=edit&amp;redlink=1)附近的山里，喜欢吃玉米、喝茶。粉丝通称为“すこん部”，对应的emoji为🌽。白发，有兽耳和尾巴。扎有三股辫，长着呆毛。左耳上有耳环。由于与碧蓝航线的[江风](https://zh.moegirl.org/%E7%A2%A7%E8%93%9D%E8%88%AA%E7%BA%BF:%E6%B1%9F%E9%A3%8E)的画师都是[凪白みと](https://zh.moegirl.org/%E5%87%AA%E7%99%BDmito)，因此形象比较相似。
 
@@ -189,9 +158,6 @@ hololive所属的虚拟吸血鬼女孩。明明是吸血鬼，但其实对血不
 下载附件
 
 2020-2-19 23:39 上传
-
-
-
 
 
 自我介绍视频<strong>夏色祭：</strong>（夏色 まつり，Natsuiro Matsuri）是属于[hololive](https://zh.moegirl.org/Hololive)一期生的虚拟YouTuber，2018年6月开始活动。棕发，扎单马尾，长着呆毛的元气女高中生，自称是啦啦队成员大陆观众多以まつり（Matsuri）的汉译发音"马自立"称呼之，也被称为夏哥、夏妹、祭妹等。其粉丝多被称为“まつりす”（Matsurisu，祭丝）。声音经常充满活力，表现出略微笨蛋的清楚形象；声域较广，在VTuber中具备较优秀的歌唱实力，
@@ -207,18 +173,12 @@ hololive所属的虚拟吸血鬼女孩。明明是吸血鬼，但其实对血不
 2020-2-19 23:45 上传
 
 
-
-
 个人介绍视频【一期生更新完成】
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 4战斗力 +5
@@ -231,12 +191,7 @@ hololive所属的虚拟吸血鬼女孩。明明是吸血鬼，但其实对血不
 | thisisaspider| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -245,14 +200,7 @@ hololive所属的虚拟吸血鬼女孩。明明是吸血鬼，但其实对血不
 ##### 2#       发表于 2020-2-17 18:27
 
 
-
-
 希望专楼能正常讨论杏了
-
-
-
-
-
 
 
 -----
@@ -261,22 +209,13 @@ hololive所属的虚拟吸血鬼女孩。明明是吸血鬼，但其实对血不
 ##### 3#       发表于 2020-2-17 18:28
 
 
-
-
 holo，holo，holo，holo，hololive——！
-
-
-
-
-
 
 
 -----
 
 ####  ggby  
 ##### 4#       发表于 2020-2-17 18:30
-
-
 
 
 ━━━━━┒
@@ -308,25 +247,13 @@ holo，holo，holo，holo，hololive——！
 ┻┻┻┻┻┻
 
 
-
-
-
-
-
 -----
 
 ####  wsotaku  
 ##### 5#       发表于 2020-2-17 18:30
 
 
-
-
 小肥妹gachi恋大叔来咯wwww
-
-
-
-
-
 
 
 -----
@@ -335,14 +262,7 @@ holo，holo，holo，holo，hololive——！
 ##### 6#       发表于 2020-2-17 18:34
 
 
-
-
 我有专楼吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -351,14 +271,7 @@ holo，holo，holo，holo，hololive——！
 ##### 7#       发表于 2020-2-17 18:48
 
 
-
-
 现在专楼有 夸哥 憨憨龙和粽子哥
-
-
-
-
-
 
 
 -----
@@ -367,20 +280,13 @@ holo，holo，holo，holo，hololive——！
 ##### 8#       发表于 2020-2-17 18:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为什么是mk2开专楼
-
-
-
-
-
 
 
 -----
 
 ####  儒门正御应无骞  
 ##### 9#         楼主| 发表于 2020-2-17 19:09
-
 
 
  本帖最后由 儒门正御应无骞 于 2020-2-17 19:11 编辑 
@@ -390,16 +296,10 @@ holo，holo，holo，holo，hololive——！
 syl,我保证我不在这儿黑夸，人头担保，希望大家截图为证，望周知。
 
 
-
-
-
-
-
 -----
 
 ####  stedckk  
 ##### 10#       发表于 2020-2-17 19:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46443416&amp;ptid=1914343" target="_blank">儒门正御应无骞 发表于 2020-2-17 19:09</a>
@@ -408,16 +308,10 @@ syl,我保证我不在这儿黑夸，人头担保，希望大家截图为证，�
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">你不是黑屁大亏哥最勤奋的那个吗
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 11#       发表于 2020-2-17 19:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46443416&amp;ptid=1914343" target="_blank">儒门正御应无骞 发表于 2020-2-17 19:09</a>
@@ -427,25 +321,13 @@ v综扯到holo只有反串，攻击和嘲讽 我就是因为这从不在v综聊h
 v3时候我反对分区 v5时候已经是怎么还不分区拆楼了
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 12#       发表于 2020-2-17 21:01
 
 
-
-
 奇迹之海 真是少见有人唱
-
-
-
-
-
 
 
 -----
@@ -454,14 +336,7 @@ v3时候我反对分区 v5时候已经是怎么还不分区拆楼了
 ##### 13#       发表于 2020-2-17 22:10
 
 
-
-
 来了来了，这楼禁中之人吗
-
-
-
-
-
 
 
 -----
@@ -470,14 +345,7 @@ v3时候我反对分区 v5时候已经是怎么还不分区拆楼了
 ##### 14#       发表于 2020-2-17 22:18
 
 
-
-
 如果禁中之人不如回去nga算了，我觉得不要搬些没实锤的黑屁都可以<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -486,18 +354,12 @@ v3时候我反对分区 v5时候已经是怎么还不分区拆楼了
 ##### 15#         楼主| 发表于 2020-2-17 23:52
 
 
-
-
 时乃空，萝卜子，樱女巫，星街彗星资料已更新
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +2
@@ -508,12 +370,7 @@ v3时候我反对分区 v5时候已经是怎么还不分区拆楼了
 | 商博良| + 1|更新|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -522,21 +379,13 @@ v3时候我反对分区 v5时候已经是怎么还不分区拆楼了
 ##### 16#       发表于 2020-2-17 23:58
 
 
-
-
  = =HOLO人员其实还挺多，慢慢更新。
-
-
-
-
-
 
 
 -----
 
 ####  蒹葭公子  
 ##### 17#       发表于 2020-2-18 00:34
-
 
 
  本帖最后由 蒹葭公子 于 2020-2-18 00:36 编辑 
@@ -548,25 +397,13 @@ v3时候我反对分区 v5时候已经是怎么还不分区拆楼了
 syl隔壁新月云开的虹楼人更多，不过mk2要全更新完那我觉得难度还挺大的……
 
 
-
-
-
-
-
 -----
 
 ####  落雪无痕  
 ##### 18#       发表于 2020-2-18 01:24
 
 
-
-
 加油吧，帮你顶一下<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -575,21 +412,13 @@ syl隔壁新月云开的虹楼人更多，不过mk2要全更新完那我觉得�
 ##### 19#       发表于 2020-2-18 02:15
 
 
-
-
 终于有了专楼，希望能把那群弱智挡出去
-
-
-
-
-
 
 
 -----
 
 ####  wsotaku  
 ##### 20#       发表于 2020-2-18 02:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46446499&amp;ptid=1914343" target="_blank">蒹葭公子 发表于 2020-2-18 00:34</a>
@@ -600,16 +429,10 @@ syl隔壁新月云开的虹楼人更多，不过mk2要全更新完那我觉得�
 以前不敢这么说，这两个月阿逼第一次sc，**第一次黄橙和红sc都给了她，已经是痴迷了，她能念我ID名字就很爽那种状态了
 
 
-
-
-
-
-
 -----
 
 ####  蒹葭公子  
 ##### 21#       发表于 2020-2-18 02:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46447220&amp;ptid=1914343" target="_blank">wsotaku 发表于 2020-2-18 02:38</a>
@@ -622,16 +445,10 @@ syl隔壁新月云开的虹楼人更多，不过mk2要全更新完那我觉得�
 所以我不喜欢夏吹而喜欢推一些冷cp
 
 
-
-
-
-
-
 -----
 
 ####  儒门正御应无骞  
 ##### 22#         楼主| 发表于 2020-2-18 02:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46447225&amp;ptid=1914343" target="_blank">蒹葭公子 发表于 2020-2-18 02:40</a>
@@ -641,16 +458,10 @@ syl隔壁新月云开的虹楼人更多，不过mk2要全更新完那我觉得�
 夏色诗音赞！我觉得少给热门cp拾柴还是不错的。
 
 
-
-
-
-
-
 -----
 
 ####  蒹葭公子  
 ##### 23#       发表于 2020-2-18 02:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46447234&amp;ptid=1914343" target="_blank">儒门正御应无骞 发表于 2020-2-18 02:42</a>
@@ -661,16 +472,10 @@ syl隔壁新月云开的虹楼人更多，不过mk2要全更新完那我觉得�
 最暖的是有中国dd发言，然后he酱谢谢茄子，结果夏哥表示不要说“谢谢茄子啊很不好的”，又宠粉又宠he酱，不要更棒<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  qdaqd123  
 ##### 24#       发表于 2020-2-18 05:25
-
 
 
  本帖最后由 qdaqd123 于 2020-2-18 05:31 编辑 
@@ -694,18 +499,10 @@ hololive 2nd. official song
 [https://linkco.re/qdMuYfdc](https://linkco.re/qdMuYfdc)
 
 
-
-
-
-
-
-
-
 -----
 
 ####  Oshino57  
 ##### 25#       发表于 2020-2-18 05:54
-
 
 
 <blockquote>Hololive はバーチャルキャバクラ
@@ -714,27 +511,15 @@ hololive 2nd. official song
 ー桐生ココ</blockquote>
 
 
-
-
-
-
-
 -----
 
 ####  asdfrfefd  
 ##### 26#       发表于 2020-2-18 12:26
 
 
-
-
 我喜欢萝卜子啊！！！！
 
 —— 来自 Meizu 16th, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -743,22 +528,14 @@ hololive 2nd. official song
 ##### 27#         楼主| 发表于 2020-2-18 22:48
 
 
-
-
 麻自立与马自立联动()
 这是什么梦幻组合
-
-
-
-
-
 
 
 -----
 
 ####  嵐ステリ  
 ##### 28#       发表于 2020-2-18 22:48
-
 
 
  本帖最后由 嵐ステリ 于 2020-2-18 22:50 编辑 
@@ -768,16 +545,10 @@ hololive 2nd. official song
 syl:另一首【キラメキライダー】24号才上架，
 
 
-
-
-
-
-
 -----
 
 ####  wsotaku  
 ##### 29#       发表于 2020-2-18 22:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46455404&amp;ptid=1914343" target="_blank">嵐ステリ 发表于 2020-2-18 22:48</a>
@@ -788,33 +559,19 @@ syl:另一首【キラメ ...</blockquote>
 单听口水歌，live上那就是神曲
 
 
-
-
-
-
-
 -----
 
 ####  qdaqd123  
 ##### 30#       发表于 2020-2-18 23:22
 
 
-
-
 时乃空28w
-
-
-
-
-
 
 
 -----
 
 ####  qdaqd123  
 ##### 31#       发表于 2020-2-18 23:24
-
-
 
 
 癒月ちょこ💋@ASMRボイス発売中♆◥(⃔*`꒳´* )⃕◤↝
@@ -835,24 +592,13 @@ syl:另一首【キラメ ...</blockquote>
 [https://t.co/aX5CskcJxA?amp=1](https://t.co/aX5CskcJxA?amp=1)
 
 
-
-
-
-
-
 -----
 
 ####  雷修特  
 ##### 32#       发表于 2020-2-19 00:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这活又找上樱火龙了，猩猩繁殖导致服务器卡死被会长全删，歌回变成记念35p女爸爸
-
-
-
-
-
 
 
 -----
@@ -861,21 +607,13 @@ syl:另一首【キラメ ...</blockquote>
 ##### 33#         楼主| 发表于 2020-2-19 01:59
 
 
-
-
 巧可居然播ark了，事业厨居然有点欢喜()
-
-
-
-
-
 
 
 -----
 
 ####  雷修特  
 ##### 34#       发表于 2020-2-19 02:49
-
 
 
  本帖最后由 雷修特 于 2020-2-19 02:52 编辑 
@@ -887,14 +625,8 @@ syl:另一首【キラメ ...</blockquote>
 这樱火龙就是会整活
 
 
-
-
-
-
 QQ图片20200219035343.png
 (234.68 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -903,24 +635,7 @@ QQ图片20200219035343.png
 2020-2-19 02:52 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202002/19/025213ewpw35zz22qcj22n.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -929,14 +644,7 @@ QQ图片20200219035343.png
 ##### 35#       发表于 2020-2-19 18:14
 
 
-
-
 这次会长的大型ARK活动，不起个专楼吗？
-
-
-
-
-
 
 
 -----
@@ -945,14 +653,7 @@ QQ图片20200219035343.png
 ##### 36#         楼主| 发表于 2020-2-19 22:51
 
 
-
-
 巧可ark要来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -961,21 +662,13 @@ QQ图片20200219035343.png
 ##### 37#         楼主| 发表于 2020-2-19 23:50
 
 
-
-
 终于把一期生更新完成了
-
-
-
-
-
 
 
 -----
 
 ####  雷修特  
 ##### 38#       发表于 2020-2-20 01:29
-
 
 
  本帖最后由 雷修特 于 2020-2-20 01:34 编辑 
@@ -985,17 +678,10 @@ QQ图片20200219035343.png
 果然是扭曲坛坛
 
 
-
-
-
-
-
-
 -----
 
 ####  wsotaku  
 ##### 39#       发表于 2020-2-20 02:06
-
 
 
 <blockquote>雷修特 发表于 2020-2-20 01:29
@@ -1005,32 +691,19 @@ QQ图片20200219035343.png
 习惯就好，我们要做的就是在自己推楼尽可能的发情和刷楼
 
 
-
-
-
-
-
 -----
 
 ####  talse  
 ##### 40#       发表于 2020-2-20 02:50
 
 
-
-
 巧克老师平时下班TC台直播睡觉也就算了，怎么这上班到TC台播也直播睡觉……别睡醒喊错自己名字……
-
-
-
-
-
 
 
 -----
 
 ####  yuandi0120  
 ##### 41#       发表于 2020-2-20 03:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46467187&amp;ptid=1914343" target="_blank">talse 发表于 2020-2-20 02:50</a>
@@ -1040,16 +713,10 @@ QQ图片20200219035343.png
 —— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  talse  
 ##### 42#       发表于 2020-2-20 03:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46467222&amp;ptid=1914343" target="_blank">yuandi0120 发表于 2020-2-20 03:02</a>
@@ -1061,26 +728,15 @@ QQ图片20200219035343.png
 听TC台的和平时听她下班播TC台的都是一波听众吧，都习惯的……
 
 
-
-
-
-
-
 -----
 
 ####  wsotaku  
 ##### 43#       发表于 2020-2-20 03:24
 
 
-
 <blockquote>talse 发表于 2020-2-20 03:04
 听TC台的和平时听她下班播TC台的都是一波听众吧，都习惯的……</blockquote>
 t台转生的都是这样的
-
-
-
-
-
 
 
 -----
@@ -1089,22 +745,13 @@ t台转生的都是这样的
 ##### 44#       发表于 2020-2-20 06:27
 
 
-
-
 检索 日南 + holo 就能给全自动冲塔出团长的频道，YouTube 这个智能度真是够未来
-
-
-
-
-
-
 
 
 -----
 
 ####  雷修特  
 ##### 45#       发表于 2020-2-20 08:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46467507&amp;ptid=1914343" target="_blank">Oshino57 发表于 2020-2-20 06:27</a>
@@ -1116,16 +763,10 @@ t台转生的都是这样的
 不是，你活在0202年吗，在B站那直接在团长的频道下面推荐就是日南的视频
 
 
-
-
-
-
-
 -----
 
 ####  Oshino57  
 ##### 46#       发表于 2020-2-20 09:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46467863&amp;ptid=1914343" target="_blank">雷修特 发表于 2020-2-20 08:35</a>
@@ -1134,16 +775,10 @@ t台转生的都是这样的
 相似视频关联大家都很熟悉了，我只是感叹一下 ytb 搜索框做的是真好
 
 
-
-
-
-
-
 -----
 
 ####  NBXX  
 ##### 47#       发表于 2020-2-20 10:15
-
 
 
 <strong>ARK直播时长</strong>
@@ -1161,16 +796,7 @@ t台转生的都是这样的
 2020-2-20 10:13 上传
 
 
-
-
-
 [https://www.battlemetrics.com/servers/ark/2923195](https://www.battlemetrics.com/servers/ark/2923195)
-
-
-
-
-
-
 
 
 -----
@@ -1179,13 +805,7 @@ t台转生的都是这样的
 ##### 48#       发表于 2020-2-20 10:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">35怎么拼命播
-
-
-
-
-
 
 
 -----
@@ -1194,14 +814,7 @@ t台转生的都是这样的
 ##### 49#       发表于 2020-2-20 11:59
 
 
-
-
 从这次ark大活动哪些人开台是不是就可以看出权力变更了
-
-
-
-
-
 
 
 -----
@@ -1210,16 +823,9 @@ t台转生的都是这样的
 ##### 50#       发表于 2020-2-20 17:36
 
 
-
-
 最想结婚的hololive成员投票
 
 t.bilibili.com/357546745968905580
-
-
-
-
-
 
 
 -----
@@ -1228,16 +834,9 @@ t.bilibili.com/357546745968905580
 ##### 51#       发表于 2020-2-20 17:39
 
 
-
-
 这个结果什么时候出啊
 
 我估计夸皇无悬念第一吧？
-
-
-
-
-
 
 
 -----
@@ -1246,21 +845,13 @@ t.bilibili.com/357546745968905580
 ##### 52#       发表于 2020-2-20 17:42
 
 
-
-
 认真思考投了个星姐，看到结果还是人气投票（
-
-
-
-
-
 
 
 -----
 
 ####  儒门正御应无骞  
 ##### 53#         楼主| 发表于 2020-2-20 17:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46472968&amp;ptid=1914343" target="_blank">普通人止戈 发表于 2020-2-20 17:36</a>
@@ -1270,33 +861,19 @@ t.bilibili.com/357546745968905580</blockquote>
 这个昨天就见人讨论了，看点在于哪个官号投了谁。奈何就只是皮套man操作罢了，我对有些萌二对此欢声雀跃，还出图的行为不敢苟同。
 
 
-
-
-
-
-
 -----
 
 ####  儒门正御应无骞  
 ##### 54#         楼主| 发表于 2020-2-20 17:47
 
 
-
-
 看到了sv飘神投给了凑阿库娅。
-
-
-
-
-
 
 
 -----
 
 ####  Igarashi  
 ##### 55#       发表于 2020-2-20 17:50
-
-
 
 
 木口各位收到了如下同事的投票
@@ -1343,26 +920,14 @@ t.bilibili.com/357546745968905580</blockquote>
 白银诺艾尔：
 
 
-
-
-
-
-
 -----
 
 ####  儒门正御应无骞  
 ##### 56#         楼主| 发表于 2020-2-20 22:40
 
 
-
-
 巧可老师的歌声一如既往的别扭，可能真的没有学过唱歌<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 如同柯南一般的能力。
-
-
-
-
-
 
 
 -----
@@ -1371,14 +936,7 @@ t.bilibili.com/357546745968905580</blockquote>
 ##### 57#       发表于 2020-2-21 05:49
 
 
-
-
 巧克老师怕不是沉迷ARK。。。早安COCO结束了才下播
-
-
-
-
-
 
 
 -----
@@ -1387,14 +945,7 @@ t.bilibili.com/357546745968905580</blockquote>
 ##### 58#       发表于 2020-2-21 13:39
 
 
-
-
 报  狗狗进ark服了 萝卜子在带她
-
-
-
-
-
 
 
 -----
@@ -1403,16 +954,9 @@ t.bilibili.com/357546745968905580</blockquote>
 ##### 59#       发表于 2020-2-21 15:34
 
 
-
-
 再探再报
 
 —— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -1421,16 +965,9 @@ t.bilibili.com/357546745968905580</blockquote>
 ##### 60#       发表于 2020-2-21 16:08
 
 
-
-
 我觉得楼标题和副标题中间应该加个空格
 
 这样太密集了费眼睛
-
-
-
-
-
 
 
 -----
@@ -1439,21 +976,13 @@ t.bilibili.com/357546745968905580</blockquote>
 ##### 61#       发表于 2020-2-21 17:55
 
 
-
-
 这次大型ARK废人活动不开个专楼吗？
-
-
-
-
-
 
 
 -----
 
 ####  董卓  
 ##### 62#       发表于 2020-2-21 17:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46472968&amp;ptid=1914343" target="_blank">普通人止戈 发表于 2020-2-20 17:36</a>
@@ -1464,9 +993,6 @@ t.bilibili.com/357546745968905580</blockquote>
 KUSO，兔子居然这么低
 
 你们说好的要草兔子的呢？
-
-
-
 
 
                                                

@@ -1,13 +1,10 @@
 > ## **本文件最后更新于2020-02-28 23:18** 
 
 
-
 -----
 
 ####  xingenge  
 ##### 1501#       发表于 2018-12-8 23:33
-
-
 
 
 《アリシゼーション》編、第2クール新主題歌決定！
@@ -22,17 +19,10 @@
 <img src="http://wx1.sinaimg.cn/large/0068TvVBgy1fxzraovt7aj30xb0m779i.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  皇马王子劳尔  
 ##### 1502#       发表于 2018-12-8 23:35
-
-
 
 
 爱！丽！丝！爱！丽！丝！
@@ -49,21 +39,10 @@ awsl<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referr
 2018-12-8 23:35 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 1503#       发表于 2018-12-8 23:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41879084&amp;ptid=1550732" target="_blank">xingenge 发表于 2018-12-8 23:33</a>
@@ -74,16 +53,10 @@ awsl<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referr
 曲目标题很切合内容了
 
 
-
-
-
-
-
 -----
 
 ####  皇马王子劳尔  
 ##### 1504#       发表于 2018-12-8 23:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41879247&amp;ptid=1550732" target="_blank">reekilynn 发表于 2018-12-8 23:45</a>
@@ -92,25 +65,13 @@ awsl<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referr
 ed标题看着有点扎心啊
 
 
-
-
-
-
-
 -----
 
 ####  Archlich  
 ##### 1505#       发表于 2018-12-9 00:09
 
 
-
-
 连绵不绝的超lowB反派已经是这个系列的死穴了
-
-
-
-
-
 
 
 -----
@@ -119,16 +80,9 @@ ed标题看着有点扎心啊
 ##### 1506#       发表于 2018-12-9 00:15
 
 
-
-
 我太痛苦了……这集就看得很痛苦，然后新ED情报出来更痛苦。<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 倒是没想到竟然还会连续花语暗示……难道第三季所有ED都要以花来命名吗（staff啊……我的眼泪就那么不值钱吗……
-
-
-
-
-
 
 
 -----
@@ -137,14 +91,7 @@ ed标题看着有点扎心啊
 ##### 1507#       发表于 2018-12-9 00:33
 
 
-
-
 看了下b站视频长度，居然没有删减，也是炸裂。
-
-
-
-
-
 
 
 -----
@@ -153,15 +100,8 @@ ed标题看着有点扎心啊
 ##### 1508#       发表于 2018-12-9 00:38
 
 
-
-
 不过画面被剪切过了。
 说实话，这种恶心内容，还不如就这么处理掉。
-
-
-
-
-
 
 
 -----
@@ -170,16 +110,10 @@ ed标题看着有点扎心啊
 ##### 1509#       发表于 2018-12-9 00:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41879721&amp;ptid=1550732" target="_blank">reekilynn 发表于 2018-12-9 00:33</a>
 
 看了下b站视频长度，居然没有删减，也是炸裂。</blockquote>
 生肉也有黑幕。
-
-
-
-
-
 
 
 -----
@@ -188,15 +122,9 @@ ed标题看着有点扎心啊
 ##### 1510#       发表于 2018-12-9 00:44
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这内裤都没脱，最后的慢动作演的像要进去一样。
 
 各种姿势摆了半天还是rape未遂，就跟阳痿一样难受。
-
-
-
-
-
 
 
 -----
@@ -205,22 +133,15 @@ ed标题看着有点扎心啊
 ##### 1511#       发表于 2018-12-9 00:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41879813&amp;ptid=1550732" target="_blank">任天索尼子 发表于 2018-12-9 00:43</a>
 生肉也有黑幕。</blockquote>
 是的，这个只能等bd了。
-
-
-
-
-
 
 
 -----
 
 ####  任天索尼子  
 ##### 1512#       发表于 2018-12-9 00:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41879830&amp;ptid=1550732" target="_blank">dudideng 发表于 2018-12-9 00:44</a>
@@ -231,25 +152,13 @@ ed标题看着有点扎心啊
 WEB版已经被艹了
 
 
-
-
-
-
-
 -----
 
 ####  皇马王子劳尔  
 ##### 1513#       发表于 2018-12-9 00:51
 
 
-
-
 批站这一波波关键镜头的放大和模糊处理<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -258,14 +167,7 @@ WEB版已经被艹了
 ##### 1514#       发表于 2018-12-9 00:53
 
 
-
-
 这个世界的规则是上级贵族可以随便艹低级贵族甚至是平民的吗？
-
-
-
-
-
 
 
 -----
@@ -274,16 +176,9 @@ WEB版已经被艹了
 ##### 1515#       发表于 2018-12-9 00:54
 
 
-
-
 所以这ai到底是卡死的还是流血太多死的啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 —— 來自 Google Pixel 2 XL, Android 9上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
-
-
-
-
-
 
 
 -----
@@ -292,23 +187,16 @@ WEB版已经被艹了
 ##### 1516#       发表于 2018-12-9 00:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41879919&amp;ptid=1550732" target="_blank">战列驱逐舰POI 发表于 2018-12-9 00:53</a>
 
 这个世界的规则是上级贵族可以随便艹低级贵族甚至是平民的吗？</blockquote>
 上级贵族可以裁决低级贵族以及领地内的平民，嘛，所以说五等六等贵族还不如平头老百姓<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dudideng  
 ##### 1517#       发表于 2018-12-9 00:55
-
 
 
  本帖最后由 dudideng 于 2018-12-9 01:01 编辑 
@@ -322,26 +210,15 @@ WEB版已经被艹了</blockquote>
 这作者还真是好这口啊
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 1518#       发表于 2018-12-9 00:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41879919&amp;ptid=1550732" target="_blank">战列驱逐舰POI 发表于 2018-12-9 00:53</a>
 这个世界的规则是上级贵族可以随便艹低级贵族甚至是平民的吗？</blockquote>
 无非是学妹被下了套。web版里有没有这个设定我记不太清了……
-
-
-
-
-
 
 
 -----
@@ -350,14 +227,7 @@ WEB版已经被艹了</blockquote>
 ##### 1519#       发表于 2018-12-9 00:56
 
 
-
-
 对这种lowb真是有执念
-
-
-
-
-
 
 
 -----
@@ -366,23 +236,16 @@ WEB版已经被艹了</blockquote>
 ##### 1520#       发表于 2018-12-9 00:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41879721&amp;ptid=1550732" target="_blank">reekilynn 发表于 2018-12-9 00:33</a>
 
 看了下b站视频长度，居然没有删减，也是炸裂。</blockquote>
 有删减啊...
 
 
-
-
-
-
-
 -----
 
 ####  战列驱逐舰POI  
 ##### 1521#       发表于 2018-12-9 00:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41879932&amp;ptid=1550732" target="_blank">皇马王子劳尔 发表于 2018-12-9 00:55</a>
@@ -393,16 +256,10 @@ WEB版已经被艹了</blockquote>
 结果这禁忌目录把底层洗脑了，上层特权阶集就可以任意裁决？
 
 
-
-
-
-
-
 -----
 
 ####  皇马王子劳尔  
 ##### 1522#       发表于 2018-12-9 01:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41879965&amp;ptid=1550732" target="_blank">战列驱逐舰POI 发表于 2018-12-9 00:57</a>
@@ -413,16 +270,10 @@ WEB版已经被艹了</blockquote>
 大概下下集的设定回（划掉）吧就会讲，这个世界是如何变得如此畸形，对应小说第12卷前半
 
 
-
-
-
-
-
 -----
 
 ####  皇马王子劳尔  
 ##### 1523#       发表于 2018-12-9 01:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41879954&amp;ptid=1550732" target="_blank">xn4002586 发表于 2018-12-9 00:56</a>
@@ -431,25 +282,13 @@ WEB版已经被艹了</blockquote>
 24:03，可能剪了1s，对比生放送来看主要是暗牧面积变大还有镜头放大
 
 
-
-
-
-
-
 -----
 
 ####  太太  
 ##### 1524#       发表于 2018-12-9 01:01
 
 
-
-
 每次都是裤子脱了给我看这个，能不能有点新花样，又恶心人又不能社保<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -458,16 +297,9 @@ WEB版已经被艹了</blockquote>
 ##### 1525#       发表于 2018-12-9 01:02
 
 
-
-
 生放也有暗牧，b站版加了更多暗牧以及放大之类的操作，不过这是aniplex的片，国内应该都是统一处理的，不知道271那边尺度怎样
 
 —— 来自 OnePlus ONEPLUS A6000, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
-
-
-
-
-
 
 
 -----
@@ -476,23 +308,15 @@ WEB版已经被艹了</blockquote>
 ##### 1526#       发表于 2018-12-9 01:03
 
 
-
-
 这集做出来的效果真够恶心的，很好的把原作的氛围传达了出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 砍手时真的是大快人心啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  勺子的梦想  
 ##### 1527#       发表于 2018-12-9 01:05
-
 
 
 <blockquote>战列驱逐舰POI 发表于 2018-12-9 00:57
@@ -502,17 +326,10 @@ WEB版已经被艹了</blockquote>
 只要没违反禁忌目录怎么都行，底层上层都有反过来利用禁忌目录的，不过上层享受惯了，还有荣耀感，看不起下层人，恶心事干的比较流畅
 
 
-
-
-
-
-
 -----
 
 ####  白色的120  
 ##### 1528#       发表于 2018-12-9 01:13
-
-
 
 
 这反派实在low爆了，连点反派的魅力都没有，纯属恶心人的
@@ -520,16 +337,10 @@ WEB版已经被艹了</blockquote>
 —— 来自 Xiaomi MI 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  战列驱逐舰POI  
 ##### 1529#       发表于 2018-12-9 01:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41880041&amp;ptid=1550732" target="_blank">勺子的梦想 发表于 2018-12-9 01:05</a>
@@ -540,24 +351,13 @@ WEB版已经被艹了</blockquote>
 上层却能奸淫下层女性，这明显的一部极不平等的禁忌目录。却在一开始塑造成美好和谐的世界
 
 
-
-
-
-
-
 -----
 
 ####  镜hinata  
 ##### 1530#       发表于 2018-12-9 01:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">为什么这个世界这么扭曲,看下去就是了
-
-
-
-
-
 
 
 -----
@@ -566,22 +366,13 @@ WEB版已经被艹了</blockquote>
 ##### 1531#       发表于 2018-12-9 01:23
 
 
-
-
 等了2个月爱丽丝终于出来了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  kira1988  
 ##### 1532#       发表于 2018-12-9 01:24
-
-
 
 
 有人放個WEB版給我重溫下嗎？
@@ -591,17 +382,10 @@ WEB版已经被艹了</blockquote>
 我記得當時WEB版是直接說事後的
 
 
-
-
-
-
-
 -----
 
 ####  战列驱逐舰POI  
 ##### 1533#       发表于 2018-12-9 01:24
-
-
 
 
 不会一开始是美好的乌托邦
@@ -609,16 +393,10 @@ WEB版已经被艹了</blockquote>
 后来一部分人有了权力和财富慢慢就变成了统治阶级，鱼肉百姓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  elflie  
 ##### 1534#       发表于 2018-12-9 01:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41880131&amp;ptid=1550732" target="_blank">战列驱逐舰POI 发表于 2018-12-9 01:24</a>
@@ -629,25 +407,13 @@ WEB版已经被艹了</blockquote>
 其实是一开始也不是做成乌托邦，但是某些人强行做成乌托邦了<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  404489039  
 ##### 1535#       发表于 2018-12-9 01:31
 
 
-
-
 有这个闲情把妹子五花大绑，真干的时候半天连奶罩都没脱掉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -656,16 +422,9 @@ WEB版已经被艹了</blockquote>
 ##### 1536#       发表于 2018-12-9 01:33
 
 
-
-
 这种反派除了恶心人就没别的了吧，虽然我看的还挺过瘾的……
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -674,16 +433,10 @@ WEB版已经被艹了</blockquote>
 ##### 1537#       发表于 2018-12-9 01:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41880164&amp;ptid=1550732" target="_blank">404489039 发表于 2018-12-9 01:31</a>
 
 有这个闲情把妹子五花大绑，真干的时候半天连奶罩都没脱掉</blockquote>
 所以还是要web版才够味ugo一进去俩学妹就已经全颗体了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -692,14 +445,7 @@ WEB版已经被艹了</blockquote>
 ##### 1538#       发表于 2018-12-9 01:53
 
 
-
-
 好人和坏人都太克制了，这种拖沓无力的感觉真难受
-
-
-
-
-
 
 
 -----
@@ -708,16 +454,9 @@ WEB版已经被艹了</blockquote>
 ##### 1539#       发表于 2018-12-9 01:56
 
 
-
-
 川原对这种lowb反派真是有莫名的执着
 
 —— 来自 Xiaomi MIX 2S, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
-
-
-
-
-
 
 
 -----
@@ -726,16 +465,9 @@ WEB版已经被艹了</blockquote>
 ##### 1540#       发表于 2018-12-9 01:56
 
 
-
-
 川原还在推特说了下这集分镜是做过加速世界的
 
 —— 来自 Xiaomi Redmi Note 4X, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
-
-
-
-
-
 
 
 -----
@@ -744,21 +476,13 @@ WEB版已经被艹了</blockquote>
 ##### 1541#       发表于 2018-12-9 01:59
 
 
-
-
 她真美<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  dudideng  
 ##### 1542#       发表于 2018-12-9 02:09
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">twitter上看到的
@@ -773,32 +497,13 @@ WEB版已经被艹了</blockquote>
 2018-12-9 02:09 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  yujie  
 ##### 1543#       发表于 2018-12-9 02:43
 
 
-
-
 生肉都各种莫名其妙的黑幕<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -807,16 +512,10 @@ WEB版已经被艹了</blockquote>
 ##### 1544#       发表于 2018-12-9 06:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41859929&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2018-12-7 10:42</a>
 
 希望下个篇章不要有雷普相关的这种剧情了。第一季亚丝娜，第二季诗乃，人界篇学妹（与优吉欧），暗界篇直叶 ...</blockquote>
 想看悠久被雷普啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -825,14 +524,7 @@ WEB版已经被艹了</blockquote>
 ##### 1545#       发表于 2018-12-9 07:59
 
 
-
-
 是不是只有川原这种大low反派才能不脱裤子蹭？现在开始害怕大祭司是不是届时也得疯狂颜艺几波了……不过一直没搞懂op里的尤娜到底干什么的☜
-
-
-
-
-
 
 
 -----
@@ -841,16 +533,9 @@ WEB版已经被艹了</blockquote>
 ##### 1546#       发表于 2018-12-9 08:06
 
 
-
-
 一般套路：大家好，我要开始装逼了
 
 SAO套路：大家好，我要开始lowb了
-
-
-
-
-
 
 
 -----
@@ -859,17 +544,10 @@ SAO套路：大家好，我要开始lowb了
 ##### 1547#       发表于 2018-12-9 08:41
 
 
-
-
 所以嘛，web版那样真干了才比较合理。
 现在没干后面两个妹子也还是各种纠结。
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -878,14 +556,8 @@ SAO套路：大家好，我要开始lowb了
 ##### 1548#       发表于 2018-12-9 08:43
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">但为什么你们就在那舔，又让这傻逼男主们装逼成功了看着好难受
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这些年我经历了什么，当年看子安舔本子娜好难受，现在看这两lowbi舔学妹好兴奋，狠不得他们当着两男主的面雷普完再屌打两男主
-
-
-
-
-
 
 
 -----
@@ -894,14 +566,7 @@ SAO套路：大家好，我要开始lowb了
 ##### 1549#       发表于 2018-12-9 08:45
 
 
-
-
 SAO每个boss都是舔狗强奸犯而且奇low无比，同样的套路复读了多少遍了，也不知道作者是不是和舔狗有仇
-
-
-
-
-
 
 
 -----
@@ -910,14 +575,7 @@ SAO每个boss都是舔狗强奸犯而且奇low无比，同样的套路复读了�
 ##### 1550#       发表于 2018-12-9 09:23
 
 
-
-
 雷普戏不错，要是雷普成功了就更好了
-
-
-
-
-
 
 
 -----
@@ -926,14 +584,7 @@ SAO每个boss都是舔狗强奸犯而且奇low无比，同样的套路复读了�
 ##### 1551#       发表于 2018-12-9 10:34
 
 
-
-
 所以原本是强奸之后秀给你看被砍，现在是两个喜欢夫の目前犯的家伙准备当面强奸被砍？
-
-
-
-
-
 
 
 -----
@@ -942,24 +593,16 @@ SAO每个boss都是舔狗强奸犯而且奇low无比，同样的套路复读了�
 ##### 1552#       发表于 2018-12-9 10:38
 
 
-
-
 这段强奸戏表现力相当不错，可以算作是经典了，我觉得这个情节算是很恰到其分的，从很多人观看之后的反应可以看出来，制作组试图营造这样一种令人不适的氛围这样的目的达到了。
 
 
 另外这段是动画制作组做的这么细致呀，我记得原作小说没有这么仔细的描写，为什么一堆人都在批评川原？
 
 
-
-
-
-
-
 -----
 
 ####  卡爹  
 ##### 1553#       发表于 2018-12-9 10:40
-
 
 
  本帖最后由 卡爹 于 2018-12-9 10:43 编辑 
@@ -970,17 +613,10 @@ SAO每个boss都是舔狗强奸犯而且奇low无比，同样的套路复读了�
 —— 来自 vivo NEX, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  raynor_1999  
 ##### 1554#       发表于 2018-12-9 10:42
-
-
 
 
 问个问题，前几集说过现实世界的人是打算绕过机器人三定律（虽然我觉得这三定律挺扯淡但却是很多科幻作品的基础）做出能杀人的AI，所以做了个温室等能违反禁忌目录的AI出现
@@ -989,27 +625,15 @@ SAO每个boss都是舔狗强奸犯而且奇low无比，同样的套路复读了�
 那干嘛不一开始就做个直接把人性的最恶一面展现出来的末世环境？
 
 
-
-
-
-
-
 -----
 
 ####  Hidewhite  
 ##### 1555#       发表于 2018-12-9 11:00
 
 
-
-
 这段是改的吗？那感觉改得挺不错的，夫目前犯的场景配合禁忌目录的作用两者结合的挺好，放在一般现实里比较荒谬但放在这个背景设定下正好合理地凸显UW里的诡异与不合理。
 
 就是rape部分做得太收着了，只有舔舌怪之类的表现，太弱了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1018,15 +642,9 @@ SAO每个boss都是舔狗强奸犯而且奇low无比，同样的套路复读了�
 ##### 1556#       发表于 2018-12-9 11:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41881909&amp;ptid=1550732" target="_blank">holiverse 发表于 2018-12-9 10:38</a>
 这段强奸戏表现力相当不错，可以算作是经典了，我觉得这个情节算是很恰到其分的，从很多人观看之后的反应可 ...</blockquote>
 因为强奸犯已经是第三或者第四次出现了……
-
-
-
-
-
 
 
 -----
@@ -1035,16 +653,9 @@ SAO每个boss都是舔狗强奸犯而且奇low无比，同样的套路复读了�
 ##### 1557#       发表于 2018-12-9 11:53
 
 
-
-
 这段是按文库版才这样设计的吧，web这段记得是都事后了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不过川原还真喜欢这种剧情，
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -1053,15 +664,9 @@ SAO每个boss都是舔狗强奸犯而且奇low无比，同样的套路复读了�
 ##### 1558#       发表于 2018-12-9 12:11
 
 
-
 <blockquote>raynor_1999 发表于 2018-12-9 10:42
 问个问题，前几集说过现实世界的人是打算绕过机器人三定律（虽然我觉得这三定律挺扯淡但却是很多科幻作品的 ...</blockquote>
 这个三定律的问题好无聊，阿西莫夫自己都给出来两个方案了，其中一个还特别简单，没啥太大缺点
-
-
-
-
-
 
 
 -----
@@ -1070,15 +675,9 @@ SAO每个boss都是舔狗强奸犯而且奇low无比，同样的套路复读了�
 ##### 1559#       发表于 2018-12-9 12:13
 
 
-
 <blockquote>404489039 发表于 2018-12-9 01:31
 有这个闲情把妹子五花大绑，真干的时候半天连奶罩都没脱掉</blockquote>
 健康剧情要求   按实际  这时候2个女的应该都是白浊液了 = =b
-
-
-
-
-
 
 
 -----
@@ -1087,15 +686,9 @@ SAO每个boss都是舔狗强奸犯而且奇low无比，同样的套路复读了�
 ##### 1560#       发表于 2018-12-9 12:25
 
 
-
 <blockquote>raynor_1999 发表于 2018-12-9 10:42
 问个问题，前几集说过现实世界的人是打算绕过机器人三定律（虽然我觉得这三定律挺扯淡但却是很多科幻作品的 ...</blockquote>
 慢慢看下去或者去补小说，这世界从根上就很扭曲，你现在看到的都只是表面而已
-
-
-
-
-
 
 
 -----
@@ -1104,16 +697,10 @@ SAO每个boss都是舔狗强奸犯而且奇low无比，同样的套路复读了�
 ##### 1561#       发表于 2018-12-9 12:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41880164&amp;ptid=1550732" target="_blank">404489039 发表于 2018-12-09 01:31:15</a>
 有这个闲情把妹子五花大绑，真干的时候半天连奶罩都没脱掉</blockquote>简单科普，这个绑法挺有意思，大小腿折起来绑，但两腿不绑在一起，这叫M脚开缚<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -1122,15 +709,8 @@ SAO每个boss都是舔狗强奸犯而且奇low无比，同样的套路复读了�
 ##### 1562#       发表于 2018-12-9 13:06
 
 
-
-
 这么一弄的确是火了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 请各位务必坚持下去啊
-
-
-
-
-
 
 
 -----
@@ -1139,19 +719,14 @@ SAO每个boss都是舔狗强奸犯而且奇low无比，同样的套路复读了�
 ##### 1563#       发表于 2018-12-9 13:18
 
 
-
 [https://www.pixiv.net/member_ill ... ;illust_id=52172785](https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=52172785)
 
 原来三年前就有人照着web版描述画过了
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -1161,19 +736,13 @@ SAO每个boss都是舔狗强奸犯而且奇low无比，同样的套路复读了�
 | 妒客| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  独钓寒江雪  
 ##### 1564#       发表于 2018-12-9 13:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41879930&amp;ptid=1550732" target="_blank">SilverBrady 发表于 2018-12-9 00:54</a>
@@ -1184,17 +753,10 @@ SAO每个boss都是舔狗强奸犯而且奇low无比，同样的套路复读了�
 —— 來自 Google Pixel 2 XL, Android 9上的 S1Next-鵝 ...</blockquote><blockquote>金发的死是因为禁忌目录里说不许做有损别人天命的事，而金发已经到了不输血必死的阶段，在禁忌目录和生命面前他无法做出一个判断，导致摇光无法衡量两者的轻重，因此摇光崩坏了。</blockquote>
 
 
-
-
-
-
-
 -----
 
 ####  cyberalogo  
 ##### 1565#       发表于 2018-12-9 13:39
-
-
 
 
 看了第十集，这不就是SAO剑神域桐人虐杀子安变态权限狗的套路再重复吗。<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
@@ -1206,16 +768,10 @@ SAO每个boss都是舔狗强奸犯而且奇low无比，同样的套路复读了�
 你特么干脆再播一次刀剑神域好啦。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1566#       发表于 2018-12-9 13:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41883796&amp;ptid=1550732" target="_blank">cyberalogo 发表于 2018-12-9 13:39</a>
@@ -1227,25 +783,14 @@ SAO每个boss都是舔狗强奸犯而且奇low无比，同样的套路复读了�
 这里其实让优吉欧突破右眼的封印的意义更大些……虽然是同一个套路<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dudideng  
 ##### 1567#       发表于 2018-12-9 13:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">一个像天使龙的胚芽
 一个像国家队的满
-
-
-
-
-
 
 
 -----
@@ -1254,21 +799,13 @@ SAO每个boss都是舔狗强奸犯而且奇low无比，同样的套路复读了�
 ##### 1568#       发表于 2018-12-9 13:50
 
 
-
-
 我爱刀剑！
-
-
-
-
-
 
 
 -----
 
 ####  kira1988  
 ##### 1569#       发表于 2018-12-9 13:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41883565&amp;ptid=1550732" target="_blank">捣♂湿 发表于 2018-12-9 13:18</a>
@@ -1279,16 +816,10 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=52172785
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个畫師一直關注中
 
 
-
-
-
-
-
 -----
 
 ####  zechins  
 ##### 1570#       发表于 2018-12-9 13:57
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">第一季alo雷普亚丝娜，第二季雷普诗乃，第三季雷普学妹，算上分割剩下一季还有个直叶
@@ -1296,16 +827,10 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=52172785
 贯穿始终<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kira1988  
 ##### 1571#       发表于 2018-12-9 14:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41883978&amp;ptid=1550732" target="_blank">zechins 发表于 2018-12-9 13:57</a>
@@ -1316,32 +841,19 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=52172785
 直葉怎麼了，求反白劇透
 
 
-
-
-
-
-
 -----
 
 ####  Wilmes  
 ##### 1572#       发表于 2018-12-9 14:12
 
 
-
-
 川原砾就这破毛病，你自己喜欢自己玩儿去，写出来恶心人就算了，这又不是在拍**<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  kira1988  
 ##### 1573#       发表于 2018-12-9 14:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41883256&amp;ptid=1550732" target="_blank">Neil-Rowads 发表于 2018-12-9 12:51</a>
@@ -1353,16 +865,10 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=52172785
 捆綁大師
 
 
-
-
-
-
-
 -----
 
 ####  holiverse  
 ##### 1574#       发表于 2018-12-9 14:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41884072&amp;ptid=1550732" target="_blank">Wilmes 发表于 2018-12-9 14:12</a>
@@ -1373,16 +879,10 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=52172785
 是的，其实我就是希望川原能写严肃小说。
 
 
-
-
-
-
-
 -----
 
 ####  Wilmes  
 ##### 1575#       发表于 2018-12-9 14:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41884095&amp;ptid=1550732" target="_blank">kira1988 发表于 2018-12-9 14:14</a>
@@ -1391,16 +891,10 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=52172785
 日式动作片里经常用，尤其是放课后JK系列<img src="https://static.saraba1st.com/image/smiley/face2017/189.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Wilmes  
 ##### 1576#       发表于 2018-12-9 14:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41884126&amp;ptid=1550732" target="_blank">holiverse 发表于 2018-12-9 14:17</a>
@@ -1409,16 +903,10 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=52172785
 那就要向太宰治和三岛由纪夫的方向发展了，不过这样就是拍电影（比如昼颜这种）而不是动画化了。
 
 
-
-
-
-
-
 -----
 
 ####  天堂懵懂人  
 ##### 1577#       发表于 2018-12-9 14:20
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟处女橱占比多，要一下子惹恼大部分肥肥这一招够用了
@@ -1427,16 +915,10 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=52172785
 把美好的事物破坏掉“来……玩……吧……大……哥……哥”
 
 
-
-
-
-
-
 -----
 
 ####  zechins  
 ##### 1578#       发表于 2018-12-9 14:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41884069&amp;ptid=1550732" target="_blank">kira1988 发表于 2018-12-9 14:11</a>
@@ -1445,25 +927,13 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=52172785
 http:// wx4.sinaimg.cn/large/0070WDskly1fy0h22hcelj30t615otn2.jpg
 
 
-
-
-
-
-
 -----
 
 ####  Wilmes  
 ##### 1579#       发表于 2018-12-9 14:33
 
 
-
-
 直叶和诗乃的勉强能接受，亚丝娜这个在我混YY小说吧之前也还能选择遗忘，两个学妹这儿web版是踩了绝对的红线，文库版就好多了。
-
-
-
-
-
 
 
 -----
@@ -1472,16 +942,10 @@ http:// wx4.sinaimg.cn/large/0070WDskly1fy0h22hcelj30t615otn2.jpg
 ##### 1580#       发表于 2018-12-9 14:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41884148&amp;ptid=1550732" target="_blank">Wilmes 发表于 2018-12-9 14:19</a>
 
 那就要向太宰治和三岛由纪夫的方向发展了，不过这样就是拍电影（比如昼颜这种）而不是动画化了。 ...</blockquote>
 为什么不能有动画呢？动画为什么不能严肃呢？
-
-
-
-
-
 
 
 -----
@@ -1490,16 +954,10 @@ http:// wx4.sinaimg.cn/large/0070WDskly1fy0h22hcelj30t615otn2.jpg
 ##### 1581#       发表于 2018-12-9 14:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41884174&amp;ptid=1550732" target="_blank">zechins 发表于 2018-12-9 14:22</a>
 
 http:// wx4.sinaimg.cn/large/0070WDskly1fy0h22hcelj30t615otn2.jpg</blockquote>
 謝謝
-
-
-
-
-
 
 
 -----
@@ -1508,16 +966,10 @@ http:// wx4.sinaimg.cn/large/0070WDskly1fy0h22hcelj30t615otn2.jpg</blockquote>
 ##### 1582#       发表于 2018-12-9 14:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41884285&amp;ptid=1550732" target="_blank">holiverse 发表于 2018-12-9 14:35</a>
 
 为什么不能有动画呢？动画为什么不能严肃呢？</blockquote>
 业界动画还是要卖钱的，自从启用了制作委员会的制度后连长篇都变少了，更别说那些不讨受众喜欢的作品了。这些年你应该也能感受到业界废萌轻松向的作品变多了，而像今敏押井守监督的蕴意深刻的作品变少了，大势所趋啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">川原砾web版写的事后，然后被电击文库的编辑一顿惩戒，文库版就学乖了。你想小说尚且如此，更何况花费更高昂还要冲业绩的动画呢？
-
-
-
-
-
 
 
 -----
@@ -1526,14 +978,7 @@ http:// wx4.sinaimg.cn/large/0070WDskly1fy0h22hcelj30t615otn2.jpg</blockquote>
 ##### 1583#       发表于 2018-12-9 15:51
 
 
-
-
 断臂bs生肉也打了暗幕，记得以前日版本atx台播放是不修改的，就不知道这次有没有？
-
-
-
-
-
 
 
 -----
@@ -1542,14 +987,7 @@ http:// wx4.sinaimg.cn/large/0070WDskly1fy0h22hcelj30t615otn2.jpg</blockquote>
 ##### 1584#       发表于 2018-12-9 15:59
 
 
-
-
 这打斗也太磕碜了吧   两个人拿两根光剑站桩对吼  动都没动人就画崩了   是不是没钱了啊
-
-
-
-
-
 
 
 -----
@@ -1558,21 +996,13 @@ http:// wx4.sinaimg.cn/large/0070WDskly1fy0h22hcelj30t615otn2.jpg</blockquote>
 ##### 1585#       发表于 2018-12-9 17:16
 
 
-
-
 居然把舔妹子下面的画面裁掉了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  shadow001  
 ##### 1586#       发表于 2018-12-9 17:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41883978&amp;ptid=1550732" target="_blank">zechins 发表于 2018-12-9 13:57</a>
@@ -1585,27 +1015,15 @@ http:// wx4.sinaimg.cn/large/0070WDskly1fy0h22hcelj30t615otn2.jpg</blockquote>
 還是說愛麗絲的留待UR篇再來<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1587#       发表于 2018-12-9 17:33
 
 
-
-
 说起来传说川原在写SAO前画过一个小薄本，就是一个VR游戏的背景，好像是女主角被雷普了然后男主角赶到救下女主然后女主为了驱赶被雷普的恶心记忆跟男主做的这么个剧情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 只是听说，嗯，听说<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1614,14 +1032,7 @@ http:// wx4.sinaimg.cn/large/0070WDskly1fy0h22hcelj30t615otn2.jpg</blockquote>
 ##### 1588#       发表于 2018-12-9 17:47
 
 
-
-
 所以说动画还是未遂吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1630,20 +1041,13 @@ http:// wx4.sinaimg.cn/large/0070WDskly1fy0h22hcelj30t615otn2.jpg</blockquote>
 ##### 1589#       发表于 2018-12-9 18:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">当初看小说的时候最恶心的就是这段 关键动画前面这么多的瑞普情节 就不能换个形式吗 动画组自己就不能稍微魔改一下？
-
-
-
-
-
 
 
 -----
 
 ####  bf194  
 ##### 1590#       发表于 2018-12-9 19:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41883565&amp;ptid=1550732" target="_blank">捣♂湿 发表于 2018-12-9 13:18</a>
@@ -1654,16 +1058,10 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=52172785
 牛逼牛逼～
 
 
-
-
-
-
-
 -----
 
 ####  bf194  
 ##### 1591#       发表于 2018-12-9 19:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41884126&amp;ptid=1550732" target="_blank">holiverse 发表于 2018-12-9 14:17</a>
@@ -1672,26 +1070,15 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=52172785
 关键轻小说作者是宅男群体 处女嗜好啊--
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 1592#       发表于 2018-12-9 19:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41886544&amp;ptid=1550732" target="_blank">bf194 发表于 2018-12-9 19:05</a>
 关键轻小说作者是宅男群体 处女嗜好啊--</blockquote>
 是读者不是作者吧。
-
-
-
-
-
 
 
 -----
@@ -1700,16 +1087,10 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=52172785
 ##### 1593#       发表于 2018-12-9 19:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41886554&amp;ptid=1550732" target="_blank">reekilynn 发表于 2018-12-9 19:07</a>
 
 是读者不是作者吧。</blockquote>
 读者 写错了 抱歉
-
-
-
-
-
 
 
 -----
@@ -1718,16 +1099,10 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=52172785
 ##### 1594#       发表于 2018-12-9 19:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41886544&amp;ptid=1550732" target="_blank">bf194 发表于 2018-12-9 19:05</a>
 
 关键轻小说作者是宅男群体 处女嗜好啊--</blockquote>
 为啥宅男就非要处女嗜好了
-
-
-
-
-
 
 
 -----
@@ -1736,14 +1111,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=52172785
 ##### 1595#       发表于 2018-12-9 20:01
 
 
-
-
 我甚至开始怀疑整个SAO宇宙其实只有一个反派，他如同高维生物一样游走在各个子世界之间<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1752,24 +1120,16 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=52172785
 ##### 1596#       发表于 2018-12-9 20:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41887047&amp;ptid=1550732" target="_blank">roy1996 发表于 2018-12-9 20:01</a>
 
 我甚至开始怀疑整个SAO宇宙其实只有一个反派，他如同高维生物一样游走在各个子世界之间 ...</blockquote>
 舌头长且柔软的那个就是<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mhfdt  
 ##### 1597#       发表于 2018-12-9 20:28
-
-
 
 
 web雷普文库改掉这个就别太深入讨论了，本来也是讨论烂掉的东西
@@ -1781,25 +1141,13 @@ web雷普文库改掉这个就别太深入讨论了，本来也是讨论烂掉�
 照顾读者情绪只是一方面
 
 
-
-
-
-
-
 -----
 
 ####  芝士排骨  
 ##### 1598#       发表于 2018-12-9 20:40
 
 
-
-
 sao的反派就a姐和茅场有点逼格，茅场的行为动机还有点强行。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1808,14 +1156,7 @@ sao的反派就a姐和茅场有点逼格，茅场的行为动机还有点强行�
 ##### 1599#       发表于 2018-12-9 20:44
 
 
-
-
 关于打斗我已经在这个帖子吐槽两集了，我还是忍不住要说，求求小野学灵活地加点动作，别比力气加特效了。，，再这样我爬塔篇都不敢看了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1824,13 +1165,7 @@ sao的反派就a姐和茅场有点逼格，茅场的行为动机还有点强行�
 ##### 1600#       发表于 2018-12-9 20:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这作者是不是老干这种当婊子又要拿牌坊的事啊,当初第一季后半ALO就有类似的想强 奸亚斯娜的剧情,怎么这最新的还是强 奸一半没做完啊。他能不能有一次写完强 奸啊,我特别想看这种剧情啊。弱鸡眼睁睁看着妹子在自己面前被强 奸这剧情光是想想就兴奋啊。
-
-
-
-
-
 
 
 -----
@@ -1839,16 +1174,10 @@ sao的反派就a姐和茅场有点逼格，茅场的行为动机还有点强行�
 ##### 1601#       发表于 2018-12-9 20:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41887501&amp;ptid=1550732" target="_blank">亚瑟姆·明日野 发表于 2018-12-9 20:47</a>
 
 这作者是不是老干这种当婊子又要拿牌坊的事啊,当初第一季后半ALO就有类似的想强 奸亚斯娜的剧情,怎 ...</blockquote>
 web版？
-
-
-
-
-
 
 
 -----
@@ -1857,13 +1186,7 @@ web版？
 ##### 1602#       发表于 2018-12-9 20:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">还有有没有好心人给我发一下详细的禁忌目录列表,为什么当初爱丽丝踏了一步,就马上出现说你犯错第二天就被抓走了。而这边砍人手明显更过分的违反禁忌目录但什么事都没发生是为什么呢。如果说之前靠想象能在游戏里变强的话...那谁再跟我说一下这游戏本身的逻辑究竟是什么.....说好的违法就会被抓呢...
-
-
-
-
-
 
 
 -----
@@ -1872,15 +1195,9 @@ web版？
 ##### 1603#       发表于 2018-12-9 20:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41887558&amp;ptid=1550732" target="_blank">亚瑟姆·明日野 发表于 2018-12-9 20:54</a>
 还有有没有好心人给我发一下详细的禁忌目录列表,为什么当初爱丽丝踏了一步,就马上出现说你犯错第二 ...</blockquote>
 这不是爱丽丝来抓人了么，没仔细看吧…
-
-
-
-
-
 
 
 -----
@@ -1889,16 +1206,10 @@ web版？
 ##### 1604#       发表于 2018-12-9 20:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41887569&amp;ptid=1550732" target="_blank">reekilynn 发表于 2018-12-9 20:55</a>
 
 这不是爱丽丝来抓人了么，没仔细看吧…</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哦,我想说的是整合骑士自己来,关键是当初爱丽丝的时候来得这么突然。这边就演完再来....实在是...
-
-
-
-
-
 
 
 -----
@@ -1907,16 +1218,10 @@ web版？
 ##### 1605#       发表于 2018-12-9 21:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41887588&amp;ptid=1550732" target="_blank">亚瑟姆·明日野 发表于 2018-12-9 20:58</a>
 哦,我想说的是整合骑士自己来,关键是当初爱丽丝的时候来得这么突然。这边就演完再来....实在是... ...</blockquote>
 所以说仔细看片啊…
 两边都是系统探测到违法行为后第二天就派整合骑士来抓人了。
-
-
-
-
-
 
 
 -----
@@ -1925,14 +1230,7 @@ web版？
 ##### 1606#       发表于 2018-12-9 21:06
 
 
-
-
 都是第二天来。
-
-
-
-
-
 
 
 -----
@@ -1941,21 +1239,13 @@ web版？
 ##### 1607#       发表于 2018-12-9 21:09
 
 
-
-
 还是泥潭大佬最懂<img src="https://i.loli.net/2018/12/09/5c0d13f981044.gif" referrerpolicy="no-referrer"><img src="https://i.loli.net/2018/12/09/5c0d13fa5f60f.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  亚瑟姆·明日野  
 ##### 1608#       发表于 2018-12-9 21:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41887645&amp;ptid=1550732" target="_blank">reekilynn 发表于 2018-12-9 21:05</a>
@@ -1966,16 +1256,10 @@ web版？
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我说弹系统提示那,人家是踏了一步就秒弹了吧。这边是演完了,该砍手砍手,然后杀人。而且这里也有时间差,不是该先弹一次砍手,再弹一次杀人,再来抓人么。这游戏延迟是不是太高了一点
 
 
-
-
-
-
-
 -----
 
 ####  Ichthys  
 ##### 1609#       发表于 2018-12-9 21:14
-
 
 
  本帖最后由 Ichthys 于 2018-12-9 21:15 编辑 
@@ -2017,16 +1301,10 @@ web版？
 但是，缇卓红叶色的眼睛 - 就在昨天，搂着优吉欧，将要溢出来的感情闪着光辉的那双美丽的眼睛，如今空虚地向着上方，失去了光彩 - 在那下面白色的脸颊上，印着几道半干的泪痕。优吉欧彻底明白了，在这个房间里发生了的，残酷而无情的一切。
 
 
-
-
-
-
-
 -----
 
 ####  触手控  
 ##### 1610#       发表于 2018-12-9 21:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41887047&amp;ptid=1550732" target="_blank">roy1996 发表于 2018-12-9 20:01</a>
@@ -2036,16 +1314,10 @@ web版？
 你说的这个，当年美战用过
 
 
-
-
-
-
-
 -----
 
 ####  天地明察  
 ##### 1611#       发表于 2018-12-9 22:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41885012&amp;ptid=1550732" target="_blank">haozi513 发表于 2018-12-9 15:59</a>
@@ -2054,16 +1326,10 @@ web版？
 +1 太草了，动作戏还不及隔壁偶像大尸第10话上山露营多
 
 
-
-
-
-
-
 -----
 
 ####  kira1988  
 ##### 1612#       发表于 2018-12-9 22:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41887684&amp;ptid=1550732" target="_blank">Ichthys 发表于 2018-12-9 21:09</a>
@@ -2072,16 +1338,10 @@ web版？
 漏了樹頂控制房的亞絲娜被觸手跟病房亞絲娜被舔臉
 
 
-
-
-
-
-
 -----
 
 ####  Ichthys  
 ##### 1613#       发表于 2018-12-9 22:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41888174&amp;ptid=1550732" target="_blank">天地明察 发表于 2018-12-9 22:03</a>
@@ -2089,17 +1349,10 @@ web版？
 钱都花在雷普镜头上啦
 
 
-
-
-
-
-
 -----
 
 ####  Destiny4073  
 ##### 1614#       发表于 2018-12-9 22:36
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201812/09/223534fkudxn8duddd3uyd.png" referrerpolicy="no-referrer">
@@ -2112,16 +1365,7 @@ web版？
 2018-12-9 22:35 上传
 
 
-
-
-
-
 字幕组怎么也用和谐的片源<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2130,16 +1374,10 @@ web版？
 ##### 1615#       发表于 2018-12-9 23:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41888511&amp;ptid=1550732" target="_blank">Destiny4073 发表于 2018-12-9 22:36</a>
 
 字幕组怎么也用和谐的片源</blockquote>
 V2已經換了BS11的片源了
-
-
-
-
-
 
 
 -----
@@ -2148,15 +1386,9 @@ V2已經換了BS11的片源了
 ##### 1616#       发表于 2018-12-10 00:05
 
 
-
  本帖最后由 没取名啊 于 2018-12-10 00:06 编辑 
 <blockquote>
 </blockquote>
-
-
-
-
-
 
 
 -----
@@ -2165,16 +1397,9 @@ V2已經換了BS11的片源了
 ##### 1617#       发表于 2018-12-10 00:07
 
 
-
-
 如果爬塔时作战还是这样俩剑㨃在一起拼力气的话那就太搞笑了，小野学我求求你把战斗拍好看一点吧<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">武装完全支配和记忆解放的演出我也期待得很，麻烦做的浪漫一点好吗，看小说时就觉得那些武器的记忆都很浪漫很梦幻
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -2183,16 +1408,9 @@ V2已經換了BS11的片源了
 ##### 1618#       发表于 2018-12-10 00:36
 
 
-
-
 这两个妹子先是被舔来舔去差点被上，后是被喷了一脸一身的血，真的是惨<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -2201,14 +1419,7 @@ V2已經換了BS11的片源了
 ##### 1619#       发表于 2018-12-10 00:52
 
 
-
-
 过了这集终于可以看了
-
-
-
-
-
 
 
 -----
@@ -2217,14 +1428,7 @@ V2已經換了BS11的片源了
 ##### 1620#       发表于 2018-12-10 02:01
 
 
-
-
 真是够赶的……最后还来了段棒读
-
-
-
-
-
 
 
 -----
@@ -2233,21 +1437,13 @@ V2已經換了BS11的片源了
 ##### 1621#       发表于 2018-12-10 02:03
 
 
-
-
 这是不是一个典型的 冰箱女性 的案列 用雷普侮辱杀害女性的方式激发男性角色的战斗力？
-
-
-
-
-
 
 
 -----
 
 ####  evangelina  
 ##### 1622#       发表于 2018-12-10 02:24
-
 
 
  本帖最后由 evangelina 于 2018-12-10 02:26 编辑 
@@ -2259,18 +1455,10 @@ V2已經換了BS11的片源了
 川原也知道是STAFF作画演出和CV演技牛逼啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  roy1996  
 ##### 1623#       发表于 2018-12-10 14:40
-
-
 
 
 某国际知名刀剑黑的感想
@@ -2278,16 +1466,8 @@ V2已經換了BS11的片源了
 顺带一提这一话在欧美的排名居然挺高的
 
 
-
-
-
-
-
-
 QQ截图20181210143846.png
 (521.37 KB, 下载次数: 44)
-
-
 
 
 下载附件
@@ -2296,24 +1476,7 @@ QQ截图20181210143846.png
 2018-12-10 14:40 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/10/144018y531rdb7zf34ksbs.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -2322,21 +1485,13 @@ QQ截图20181210143846.png
 ##### 1624#       发表于 2018-12-10 15:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  kiritokun  
 ##### 1625#       发表于 2018-12-10 15:40
-
-
 
 
 看到有组传了BS11的**就重新看了一遍，发现了点有趣的地方。
@@ -2351,11 +1506,6 @@ QQ截图20181210143846.png
 2018-12-10 15:24 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201812/10/152933dzd94zh98rjsila4.jpg" referrerpolicy="no-referrer">
 
 
@@ -2364,12 +1514,6 @@ QQ截图20181210143846.png
 下载附件
 
 2018-12-10 15:29 上传
-
-
-
-
-
-
 
 
 结尾staff的时候发现百脑汇称呼不一样了
@@ -2385,11 +1529,6 @@ QQ截图20181210143846.png
 2018-12-10 15:29 上传
 
 
-
-
-
-
-
 这是第一集的，然后这玩意到底是什么意思，我查了一圈告诉我是煤气灶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
@@ -2401,11 +1540,6 @@ QQ截图20181210143846.png
 下载附件
 
 2018-12-10 15:29 上传
-
-
-
-
-
 
 
 这集就明白多了
@@ -2424,11 +1558,6 @@ QQ截图20181210143846.png
 2018-12-10 15:29 上传
 
 
-
-
-
-
-
 回去仔细看了一下那幅壁画，应该就是爱丽丝出现时的那幅
 
 
@@ -2442,25 +1571,10 @@ QQ截图20181210143846.png
 2018-12-10 15:29 上传
 
 
-
-
-
-
-
 这么一看不就是三女神大战贝库塔么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
 虽然这个源的和谐是去了，但是依然是像蒙了一层纱一样，不知道BD会不会去干净。
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -2469,24 +1583,16 @@ QQ截图20181210143846.png
 ##### 1626#       发表于 2018-12-10 19:46
 
 
-
-
 谁给我说一下第几卷才有现实世界各剧情？这边的我看得有点厌烦了
 
 
 我刚看到桐人和爱丽丝在幽会，嗯，在通风透气的几百米墙壁上幽会
 
 
-
-
-
-
-
 -----
 
 ####  ffffe  
 ##### 1627#       发表于 2018-12-10 20:04
-
 
 
 <blockquote>月夜凝雪 发表于 2018-12-10 19:46
@@ -2497,16 +1603,10 @@ QQ截图20181210143846.png
 UW篇的精华都在UW，现实世界无聊的要死
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1628#       发表于 2018-12-10 20:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41899077&amp;ptid=1550732" target="_blank">ffffe 发表于 2018-12-10 20:04</a>
@@ -2515,16 +1615,10 @@ UW篇的精华都在UW，现实世界无聊的要死</blockquote>
 恰恰相反，UW篇后期剧情精彩的都是RW这边，UW那边则是完全的剧情暴走了。
 
 
-
-
-
-
-
 -----
 
 ####  zechins  
 ##### 1629#       发表于 2018-12-10 20:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41898911&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2018-12-10 19:46</a>
@@ -2536,16 +1630,10 @@ UW篇的精华都在UW，现实世界无聊的要死</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">印象里现实部分的剧情都是穿插着讲的，目录找“断章”字眼的章节看吧
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 1630#       发表于 2018-12-10 21:46
-
 
 
  本帖最后由 mhss 于 2018-12-10 21:51 编辑 
@@ -2557,16 +1645,10 @@ UW篇的精华都在UW，现实世界无聊的要死</blockquote>
 暗牧除了爆眼那里，实在想不出有什么意义，明明正片连个内裤都没露还要装模作样的加层黑雾
 
 
-
-
-
-
-
 -----
 
 ####  elflie  
 ##### 1631#       发表于 2018-12-10 21:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41898911&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2018-12-10 19:46</a>
@@ -2578,16 +1660,10 @@ UW篇的精华都在UW，现实世界无聊的要死</blockquote>
 应该是到最后一两集才会有吧...
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1632#       发表于 2018-12-10 22:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41900123&amp;ptid=1550732" target="_blank">elflie 发表于 2018-12-10 21:55</a>
@@ -2599,16 +1675,10 @@ UW篇的精华都在UW，现实世界无聊的要死</blockquote>
 动画方面都做到年番分割放送了怎么都应该做完整个篇章了吧
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1633#       发表于 2018-12-10 22:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41900034&amp;ptid=1550732" target="_blank">mhss 发表于 2018-12-10 21:46</a>
@@ -2622,16 +1692,10 @@ UW篇的精华都在UW，现实世界无聊的要死</blockquote>
 其实我比较在意这两个算不算他们的击杀经验
 
 
-
-
-
-
-
 -----
 
 ####  elflie  
 ##### 1634#       发表于 2018-12-10 22:13
-
 
 
  本帖最后由 elflie 于 2018-12-10 22:26 编辑 
@@ -2646,25 +1710,13 @@ UW篇的精华都在UW，现实世界无聊的要死</blockquote>
 小说的话，14卷最后面吧
 
 
-
-
-
-
-
 -----
 
 ####  杜庶仁  
 ##### 1635#       发表于 2018-12-10 22:21
 
 
-
-
 虽然雷普戏争议很大，不过，我觉得优吉欧挣扎着拔剑那里，吼叫配合画面的蒙太奇效果还是让我看的很爽的。可惜后面桐人发威的地方就感觉渲染的一般般了。
-
-
-
-
-
 
 
 -----
@@ -2673,22 +1725,13 @@ UW篇的精华都在UW，现实世界无聊的要死</blockquote>
 ##### 1636#       发表于 2018-12-10 22:22
 
 
-
-
 能在看之前把一集的心理预期放到相当低的位置再看，得到的效果是真真好。。爱丽丝终于上线了，她女骑士的造型我蛮中意的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  伊斯塔废灵  
 ##### 1637#       发表于 2018-12-10 22:26
-
-
 
 
 爬塔终于要开始啦
@@ -2698,16 +1741,10 @@ UW篇的精华都在UW，现实世界无聊的要死</blockquote>
 谨慎看好，想要吹
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1638#       发表于 2018-12-10 22:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41900396&amp;ptid=1550732" target="_blank">杜庶仁 发表于 2018-12-10 22:21</a>
@@ -2716,16 +1753,10 @@ UW篇的精华都在UW，现实世界无聊的要死</blockquote>
 桐人本身没有受到任何限制，对他来说砍这两个和之前砍哥布林没啥区别，心理准备在砍哥布林的时候就做好了，所以没啥好渲染的。
 
 
-
-
-
-
-
 -----
 
 ####  杜庶仁  
 ##### 1639#       发表于 2018-12-10 22:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41900515&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2018-12-10 22:32</a>
@@ -2734,17 +1765,10 @@ UW篇的精华都在UW，现实世界无聊的要死</blockquote>
 讲道理，哥布林那里打的很好看啊。这里的打斗的话，有点省钱的感觉在了。
 
 
-
-
-
-
-
 -----
 
 ####  没什么bu好  
 ##### 1640#       发表于 2018-12-10 23:01
-
-
 
 
 现在都喜欢用这种剧情博眼球了吗？
@@ -2753,16 +1777,10 @@ UW篇的精华都在UW，现实世界无聊的要死</blockquote>
 ----发送自 [Xiaomi Mi Note 3,Android 7.1.1](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 1641#       发表于 2018-12-10 23:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41900300&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2018-12-10 22:13</a>
@@ -2776,16 +1794,10 @@ UW篇的精华都在UW，现实世界无聊的要死</blockquote>
 杀人还能升级的？<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 1642#       发表于 2018-12-10 23:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41900832&amp;ptid=1550732" target="_blank">mhss 发表于 2018-12-10 23:02</a>
@@ -2795,16 +1807,10 @@ UW篇的精华都在UW，现实世界无聊的要死</blockquote>
 这个世界最有效率的升级方式就是杀人或者狩猎动物。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1643#       发表于 2018-12-10 23:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41900577&amp;ptid=1550732" target="_blank">杜庶仁 发表于 2018-12-10 22:38</a>
@@ -2813,16 +1819,10 @@ UW篇的精华都在UW，现实世界无聊的要死</blockquote>
 之后的爬塔连续战斗而且武装支配术还需要大量特效支持，现在省省钱我觉得可以接受（
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1644#       发表于 2018-12-10 23:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41900832&amp;ptid=1550732" target="_blank">mhss 发表于 2018-12-10 23:02:02</a>
@@ -2833,17 +1833,10 @@ UW篇的精华都在UW，现实世界无聊的要死</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1645#       发表于 2018-12-11 16:03
-
-
 
 
 第11話 セントラル・カセドラル
@@ -2867,26 +1860,14 @@ UW篇的精华都在UW，现实世界无聊的要死</blockquote>
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fy2v67y8zxj20p00e2771.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 1646#       发表于 2018-12-11 16:15
 
 
-
-
 按理说两个学妹应该是很勉强才拿得动那两把剑的
 然而这里…算了
-
-
-
-
-
 
 
 -----
@@ -2895,16 +1876,9 @@ UW篇的精华都在UW，现实世界无聊的要死</blockquote>
 ##### 1647#       发表于 2018-12-11 16:54
 
 
-
-
 web翻译版以前看的快忘光细节了，正式中文版小说还没看，相对现实世界中，uw是N倍速运行，一旦检测到违反禁忌的人，将运行速度即时降下来或者暂停是做不到的吗？这种类似检索关键字然后触发停止命令的活电脑干起来很简单的吧？ 后期有没有打补丁？
 
 虽然也理解要是真的能这样剧情都不用发展了~
-
-
-
-
-
 
 
 -----
@@ -2913,15 +1887,9 @@ web翻译版以前看的快忘光细节了，正式中文版小说还没看，�
 ##### 1648#       发表于 2018-12-11 17:17
 
 
-
 <blockquote>alien 发表于 2018-12-11 16:54
 web翻译版以前看的快忘光细节了，正式中文版小说还没看，相对现实世界中，uw是N倍速运行，一旦检测到违反禁 ...</blockquote>
 研究人员把这个世界想的太简单了，而且权限管理问题极大，可以说瞎胡闹
-
-
-
-
-
 
 
 -----
@@ -2930,24 +1898,16 @@ web翻译版以前看的快忘光细节了，正式中文版小说还没看，�
 ##### 1649#       发表于 2018-12-11 18:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41908992&amp;ptid=1550732" target="_blank">alien 发表于 2018-12-11 16:54</a>
 
 web翻译版以前看的快忘光细节了，正式中文版小说还没看，相对现实世界中，uw是N倍速运行，一旦检测到违反禁 ...</blockquote>
 产品经理和程序员不和谐，所以被坑了。
 
 
-
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 1650#       发表于 2018-12-11 18:23
-
 
 
  本帖最后由 reekilynn 于 2018-12-11 18:24 编辑 
@@ -2958,16 +1918,10 @@ web翻译版以前看的快忘光细节了，正式中文版小说还没看，�
 第三，RATH招人的时候眼睛不好使，招了个商业间谍进来，这个人写下了右眼的封印(第1集和第10集都出现过)，而且对人界和暗黑界都通用(暗黑界的人，哥布林，兽人，食人魔，巨人本质上也是人工FL)。这个人引发的恶果后面还会提到。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1651#       发表于 2018-12-11 19:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41908992&amp;ptid=1550732" target="_blank">alien 发表于 2018-12-11 16:54</a>
@@ -2978,25 +1932,13 @@ web翻译版以前看的快忘光细节了，正式中文版小说还没看，�
 而且Rath也得能在外面注意到这个事的。爱丽丝的发现实际上是Rath送了桐人进去实验后一直盯着优吉欧和爱丽丝的结果。而爱丽丝实际上并不是第一个打破禁忌目录的人（同样也不是第一个打破右眼封印的人，可考的范围内UW第一个突破右眼封印的人是优吉欧，小爱丽丝打破禁忌的事说实在的……有意外的成分在）
 
 
-
-
-
-
-
 -----
 
 ####  alien  
 ##### 1652#       发表于 2018-12-11 20:08
 
 
-
-
 烂游戏+25仔~~自卫队这投资真冤大头
-
-
-
-
-
 
 
 -----
@@ -3005,14 +1947,7 @@ web翻译版以前看的快忘光细节了，正式中文版小说还没看，�
 ##### 1653#       发表于 2018-12-11 20:19
 
 
-
-
 QJ未遂 罪不至死。这段改完了就圆不上了
-
-
-
-
-
 
 
 -----
@@ -3021,23 +1956,16 @@ QJ未遂 罪不至死。这段改完了就圆不上了
 ##### 1654#       发表于 2018-12-11 20:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41908992&amp;ptid=1550732" target="_blank">alien 发表于 2018-12-11 16:54</a>
  web翻译版以前看的快忘光细节了，正式中文版小说还没看，相对现实世界中，uw是N倍速运行，一旦检测到违反禁 ...</blockquote>
 如果有这样的技术rath就可以直接回收爱丽丝就没桐人的事了。
 然而文库第10卷菊冈说做不到，定位花了两天。然后两天之后结果嘛你马上就知道了
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1655#       发表于 2018-12-11 20:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41911421&amp;ptid=1550732" target="_blank">kiritokun 发表于 2018-12-11 20:33</a>
@@ -3049,16 +1977,10 @@ QJ未遂 罪不至死。这段改完了就圆不上了
 13卷里丘德尔金说爱丽丝被带去中央大教堂后过了2年才被强制整合……
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1656#       发表于 2018-12-11 21:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41910784&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2018-12-11 19:26</a>
@@ -3069,16 +1991,10 @@ QJ未遂 罪不至死。这段改完了就圆不上了
 禁忌目录不是拿到权限的admin编写散布的吗？开发人员本身就没有做那些设定，admin为了维持自己的最高权限地位不让其他人知道杀人升级的事情所以把禁止杀人列在了最优先禁止项目。
 
 
-
-
-
-
-
 -----
 
 ####  kiritokun  
 ##### 1657#       发表于 2018-12-11 22:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41911592&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2018-12-11 20:54</a>
@@ -3095,16 +2011,10 @@ QJ未遂 罪不至死。这段改完了就圆不上了
 　　「没有啦……应该没有。为了维持秩序而对Under World的全体居民设定了某种权限级别，级别高的居民可以行使叫作《神圣术》的系统连接权，但就算是权限最高的神圣教会祭司能做到的最多也只是操纵寿命而已。但是，他们不知何时发现了系统的小道……总之，详细的之后会给你们看原始数据。看看《爱丽丝》过去和现在的样子。」
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1658#       发表于 2018-12-11 22:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41911711&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2018-12-11 21:08</a>
@@ -3115,16 +2025,10 @@ QJ未遂 罪不至死。这段改完了就圆不上了
 所以Rath才没办法完全掌握然后做更新程序进去啊（虽然做了也不一定有用）
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1659#       发表于 2018-12-11 22:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41912145&amp;ptid=1550732" target="_blank">kiritokun 发表于 2018-12-11 22:03</a>
@@ -3135,16 +2039,10 @@ QJ未遂 罪不至死。这段改完了就圆不上了
 这两年间小爱丽丝甚至还出去参加过央都的祭奠过啊喂，所以才说是bug啊……对FL进行修正很明显就是指整合化吧
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1660#       发表于 2018-12-11 22:55
-
 
 
  本帖最后由 月夜凝雪 于 2018-12-11 23:39 编辑 
@@ -3154,16 +2052,10 @@ QJ未遂 罪不至死。这段改完了就圆不上了
 应该是曾经还更改过一次记忆吧，但当时更改的只是让她成为见习修女之类的生活了两年，但都已经不是原本的那个她了。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1661#       发表于 2018-12-11 23:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41912625&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2018-12-11 22:55</a>
@@ -3172,16 +2064,10 @@ QJ未遂 罪不至死。这段改完了就圆不上了
 说了当时的小爱丽丝认为还有机会回到家乡并且因为还有天职所以拒绝说解除FL保护的术句了啊……还有记得反白（
 
 
-
-
-
-
-
 -----
 
 ####  kiritokun  
 ##### 1662#       发表于 2018-12-11 23:16
-
 
 
  本帖最后由 kiritokun 于 2018-12-12 10:47 编辑 
@@ -3193,25 +2079,13 @@ QJ未遂 罪不至死。这段改完了就圆不上了
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Mika-S  
 ##### 1663#       发表于 2018-12-11 23:39
 
 
-
-
 越想越觉得，爱丽丝感觉就像fate没有fa之前的那个大家脑补的贞德啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3220,24 +2094,15 @@ QJ未遂 罪不至死。这段改完了就圆不上了
 ##### 1664#       发表于 2018-12-13 18:44
 
 
-
-
 ソードアート・オンライン　アリシゼーション 第11話「セントラル・カセドラル」 予告映像
 [https://www.youtube.com/watch?v=nmG0nbo2UKM](https://www.youtube.com/watch?v=nmG0nbo2UKM)
 [https://weibo.com/tv/v/H72ZY1pH4?fid=1034:4316787924246227](https://weibo.com/tv/v/H72ZY1pH4?fid=1034:4316787924246227)
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 1665#       发表于 2018-12-15 01:36
-
-
 
 
 看开头：做尼玛啊，一开始就突入犯罪现场，呕
@@ -3248,16 +2113,10 @@ QJ未遂 罪不至死。这段改完了就圆不上了
 说实话，那段是恶心，但从这故事发展来说是够OK的，只是没有补刀把另外一个带走，这是美中不足了
 
 
-
-
-
-
-
 -----
 
 ####  battleship64  
 ##### 1666#       发表于 2018-12-15 15:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41948436&amp;ptid=1550732" target="_blank">xingenge 发表于 2018-12-15 01:36</a>
@@ -3272,16 +2131,10 @@ QJ未遂 罪不至死。这段改完了就圆不上了
 土豆服务器bgm快笑死了
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1667#       发表于 2018-12-15 16:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41913079&amp;ptid=1550732" target="_blank">Mika-S 发表于 2018-12-11 23:39</a>
@@ -3292,16 +2145,10 @@ QJ未遂 罪不至死。这段改完了就圆不上了
 应该是以自我意志认为违反了还去做的才会突破，像那些拐弯抹角找理由来证明自己合情合理才做的即使做的是相同的事情也不会突破。
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 1668#       发表于 2018-12-15 16:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41952648&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2018-12-15 16:07</a>
@@ -3310,16 +2157,10 @@ QJ未遂 罪不至死。这段改完了就圆不上了
 暗黑界的绝对法则比较简单，就一条，绝对服从强者。
 
 
-
-
-
-
-
 -----
 
 ####  shadow001  
 ##### 1669#       发表于 2018-12-15 16:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41952648&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2018-12-15 16:07</a>
@@ -3330,16 +2171,10 @@ QJ未遂 罪不至死。这段改完了就圆不上了
 那麼愛麗絲在第1集想去救人時就應該會出現,但是當時愛麗絲似乎不受CODE871影響,所以愛麗絲是因為某些BUG而引致她沒有CODE871?被帶到大聖堂修正FL就是洗腦+重新植入CODE871?
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 1670#       发表于 2018-12-15 16:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41952764&amp;ptid=1550732" target="_blank">shadow001 发表于 2018-12-15 16:20</a>
@@ -3351,16 +2186,10 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 爱丽丝没有触发code 871是因为她跨过边境是一个“下意识的行为”(此处重点)，不是自己主动想跨过去的。
 
 
-
-
-
-
-
 -----
 
 ####  shadow001  
 ##### 1671#       发表于 2018-12-15 17:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41952812&amp;ptid=1550732" target="_blank">reekilynn 发表于 2018-12-15 16:25</a>
@@ -3371,16 +2200,10 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 結果愛麗絲也只是千萬普通FL之一<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 1672#       发表于 2018-12-15 17:20
-
 
 
  本帖最后由 reekilynn 于 2018-12-15 17:26 编辑 
@@ -3389,16 +2212,10 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 就是这么一个普通的人工FL被美国国家安全局盯上了。
 
 
-
-
-
-
-
 -----
 
 ####  shadow001  
 ##### 1673#       发表于 2018-12-15 17:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41953340&amp;ptid=1550732" target="_blank">reekilynn 发表于 2018-12-15 17:20</a></blockquote>
@@ -3407,16 +2224,10 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 另外所謂貝庫塔的迷路人是不是RATH從UW取出FL研究後再放回去的結果?
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1674#       发表于 2018-12-15 17:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41953295&amp;ptid=1550732" target="_blank">shadow001 发表于 2018-12-15 17:16</a>
@@ -3427,16 +2238,10 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 我觉得那搞不好其实是AW里面说的第三阶段心意（
 
 
-
-
-
-
-
 -----
 
 ####  kiritokun  
 ##### 1675#       发表于 2018-12-15 21:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41953295&amp;ptid=1550732" target="_blank">shadow001 发表于 2018-12-15 17:16</a>
@@ -3447,16 +2252,10 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 就是因为她做这件事并不会受到code871的限制所以她才不普通
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1676#       发表于 2018-12-15 22:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41955402&amp;ptid=1550732" target="_blank">kiritokun 发表于 2018-12-15 21:29</a>
@@ -3467,16 +2266,10 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 我觉得小爱丽丝不受Code871限制的原理，跟Cardinal的展示以及Admin能对桐人他们下杀手是一个原因……
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 1677#       发表于 2018-12-15 23:13
-
 
 
  本帖最后由 reekilynn 于 2018-12-15 23:16 编辑 
@@ -3486,25 +2279,13 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 这一集制作组已经犯了两个错误了，一个是机器人上的1emom写成了1emon，还有一个是监狱里时间点的5.24写成了5.25
 
 
-
-
-
-
-
 -----
 
 ####  shadow001  
 ##### 1678#       发表于 2018-12-15 23:21
 
 
-
-
 這個遊戲獨有的開鎖法<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3513,13 +2294,7 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 ##### 1679#       发表于 2018-12-15 23:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">下周cardinal要来了
-
-
-
-
-
 
 
 -----
@@ -3528,14 +2303,7 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 ##### 1680#       发表于 2018-12-15 23:29
 
 
-
-
 这集前半段有丶小崩啊
-
-
-
-
-
 
 
 -----
@@ -3544,13 +2312,7 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 ##### 1681#       发表于 2018-12-15 23:34
 
 
-
 <img src="http://wx2.sinaimg.cn/large/740ca5e5ly1fy7uq33noij20qo0k0wi0.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3559,21 +2321,13 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 ##### 1682#       发表于 2018-12-15 23:36
 
 
-
-
 亚马逊特典。嗯，第四套衣服出来了。
-
-
-
-
-
 
 
 -----
 
 ####  皇马王子劳尔  
 ##### 1683#       发表于 2018-12-15 23:57
-
 
 
  本帖最后由 皇马王子劳尔 于 2018-12-16 01:01 编辑 
@@ -3583,16 +2337,10 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 这是Cardinal给桐人的那件？
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 1684#       发表于 2018-12-16 00:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41956654&amp;ptid=1550732" target="_blank">皇马王子劳尔 发表于 2018-12-15 23:57</a>
@@ -3600,16 +2348,10 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 上级修剑士的衣服在下一集对31的战斗中破掉了，之后在大教堂3楼的武器库换了一套一直穿到本期动画结束。
 
 
-
-
-
-
-
 -----
 
 ####  elflie  
 ##### 1685#       发表于 2018-12-16 00:59
-
 
 
  本帖最后由 elflie 于 2018-12-16 01:00 编辑 
@@ -3619,16 +2361,10 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我也一直认为是那个原理，只要意识里把“越过暗之国”行为替换成“帮倒下的人”，就能躲掉禁忌目录，如果更傻一点没意识到自己已经越界甚至都不会触发元老脸
 
 
-
-
-
-
-
 -----
 
 ####  shadow001  
 ##### 1686#       发表于 2018-12-16 01:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41955402&amp;ptid=1550732" target="_blank">kiritokun 发表于 2018-12-15 21:29</a>
@@ -3639,16 +2375,10 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 小愛麗絲沒突破CODE871吧,那麼她當時就只是一個普通的人工FL
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1687#       发表于 2018-12-16 01:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41957065&amp;ptid=1550732" target="_blank">elflie 发表于 2018-12-16 00:59</a>
@@ -3657,26 +2387,15 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 不过对于一般UW人来说能做到这种程度已经不错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 1688#       发表于 2018-12-16 01:04
 
 
-
  本帖最后由 reekilynn 于 2018-12-16 14:30 编辑 
 
 编辑掉，后面更新。
-
-
-
-
-
 
 
 -----
@@ -3685,14 +2404,7 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 ##### 1689#       发表于 2018-12-16 01:25
 
 
-
-
 这集崩了半集。。水了半集。。
-
-
-
-
-
 
 
 -----
@@ -3701,14 +2413,7 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 ##### 1690#       发表于 2018-12-16 01:28
 
 
-
-
 不过好久没看见亚总颜艺了还是蛮开心的
-
-
-
-
-
 
 
 -----
@@ -3717,14 +2422,7 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 ##### 1691#       发表于 2018-12-16 01:49
 
 
-
-
 有的片集数不够用，这片为了凑够集数拼命水
-
-
-
-
-
 
 
 -----
@@ -3733,14 +2431,7 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 ##### 1692#       发表于 2018-12-16 02:03
 
 
-
-
 3集没看了，强奸完了么，剧情到哪啦
-
-
-
-
-
 
 
 -----
@@ -3749,16 +2440,10 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 ##### 1693#       发表于 2018-12-16 02:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41957390&amp;ptid=1550732" target="_blank">Ichthys 发表于 2018-12-16 02:03</a>
 
 3集没看了，强奸完了么，剧情到哪啦</blockquote>
 越狱成功，和31号碰面了
-
-
-
-
-
 
 
 -----
@@ -3767,16 +2452,10 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 ##### 1694#       发表于 2018-12-16 02:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41957342&amp;ptid=1550732" target="_blank">战列驱逐舰POI 发表于 2018-12-16 01:49</a>
 
 有的片集数不够用，这片为了凑够集数拼命水</blockquote>
 然而并没有水剧情，要是真的集数那么够用前面就把桐人和优吉欧前往央都的旅行的内容做出来了。
-
-
-
-
-
 
 
 -----
@@ -3785,23 +2464,15 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 ##### 1695#       发表于 2018-12-16 10:20
 
 
-
-
 我感觉不是很崩，不过后半段有些乏味，再加上昨天有点累，看到最后都打瞌睡了
 
 记忆中只有两人好像有点给给的场景<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  asda  
 ##### 1696#       发表于 2018-12-16 10:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41956243&amp;ptid=1550732" target="_blank">reekilynn 发表于 2018-12-15 23:13</a>
@@ -3817,33 +2488,19 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 作监多的话数, 多数也会崩
 
 
-
-
-
-
-
 -----
 
 ####  lyf1944  
 ##### 1697#       发表于 2018-12-16 10:37
 
 
-
-
 一开始我还以为便当袋里另有乾坤呢，给那么多镜头<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
 
 ####  天堂懵懂人  
 ##### 1698#       发表于 2018-12-16 11:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41958893&amp;ptid=1550732" target="_blank">asda 发表于 2018-12-16 10:27</a>
@@ -3856,17 +2513,10 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">也看是哪些作监吧，如果来的7个都是T1级别的，估计就不是一个层级的啦
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 1699#       发表于 2018-12-16 14:33
-
-
 
 
 对比了一下文库本和动画的时间轴。
@@ -3881,24 +2531,13 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 看来动画是在第9集野餐之前那天的时间轴就向后平移了一天。
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 1700#       发表于 2018-12-16 14:44
 
 
-
 距离前半动画内剧情上的时间结束还剩下最后的二十四个小时。
-
-
-
-
-
 
 
 -----
@@ -3907,13 +2546,7 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 ##### 1701#       发表于 2018-12-16 20:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">学妹过膝瞬间变短袜
-
-
-
-
-
 
 
 -----
@@ -3922,14 +2555,7 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 ##### 1702#       发表于 2018-12-17 03:38
 
 
-
-
 为什么逃狱不会触犯禁忌目录呀，这比起游戏更像是给异世界啊。
-
-
-
-
-
 
 
 -----
@@ -3938,16 +2564,10 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 ##### 1703#       发表于 2018-12-17 03:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41966295&amp;ptid=1550732" target="_blank">银岚 发表于 2018-12-17 03:38</a>
 
 为什么逃狱不会触犯禁忌目录呀，这比起游戏更像是给异世界啊。</blockquote>
 桐人不是UW的人没这个限制，优吉欧的话，砍人的时候已经打破871的封印了不过这确实也不是游戏就是了，就是一个军方的实验
-
-
-
-
-
 
 
 -----
@@ -3956,24 +2576,16 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 ##### 1704#       发表于 2018-12-17 08:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41966295&amp;ptid=1550732" target="_blank">银岚 发表于 2018-12-17 03:38</a>
 
 为什么逃狱不会触犯禁忌目录呀，这比起游戏更像是给异世界啊。</blockquote>
 触犯有什么问题，桐人本身就不受禁忌目录限制，优吉欧的话，上集砍人时就已经以自己的意志突破禁忌目录的束缚了啊。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1705#       发表于 2018-12-18 16:12
-
-
 
 
 第12話 図書室の賢者
@@ -3996,17 +2608,10 @@ code 871是存在于所有人工fl内的(不论人界还是暗黑界都是如此
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fyayif8ke8j20p00e2jug.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1706#       发表于 2018-12-18 19:54
-
-
 
 
 BD第一卷特典有桐优爱的合唱角色歌以及松冈信长肉松毛衣四人的第一话评论音轨……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -4014,17 +2619,10 @@ BD第一卷特典有桐优爱的合唱角色歌以及松冈信长肉松毛衣四
 我比较好奇合唱角色歌该不会是要用小桐优爱三人的声线吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 1707#       发表于 2018-12-19 22:31
-
-
 
 
 明明是越狱，两人居然还在花园里愉悦的脱戏聊天<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
@@ -4034,16 +2632,10 @@ BD第一卷特典有桐优爱的合唱角色歌以及松冈信长肉松毛衣四
 另外力大如牛爱丽丝，一手一把基友剑毫不费力，她相当于多少级别？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1708#       发表于 2018-12-19 23:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42000123&amp;ptid=1550732" target="_blank">mhss 发表于 2018-12-19 22:31</a>
@@ -4056,16 +2648,10 @@ BD第一卷特典有桐优爱的合唱角色歌以及松冈信长肉松毛衣四
 反正金木樨之剑的优先度比桐人的黑剑都要高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（桐人的黑剑的优先度比起作为Rath设置的由龙守护的神器青蔷薇之剑要高1）
 
 
-
-
-
-
-
 -----
 
 ####  Ichthys  
 ##### 1709#       发表于 2018-12-20 01:42
-
 
 
  本帖最后由 Ichthys 于 2018-12-20 02:31 编辑 
@@ -4073,16 +2659,10 @@ BD第一卷特典有桐优爱的合唱角色歌以及松冈信长肉松毛衣四
 今天愉快的补了3集，其实我觉得雷普戏不如直接用web小说的事后剧情呢，这又舔又打的，观感反而更恶劣。而且全集的作画都放到这几卡了吧，凸现恶趣味。<img src="https://i.loli.net/2018/12/20/5c1a8e722231e.jpg" referrerpolicy="no-referrer">黑短直还是个隐藏巨乳
 
 
-
-
-
-
-
 -----
 
 ####  就烦起名字  
 ##### 1710#       发表于 2018-12-20 11:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42001615&amp;ptid=1550732" target="_blank">Ichthys 发表于 2018-12-20 01:42</a>
@@ -4095,16 +2675,10 @@ BD第一卷特典有桐优爱的合唱角色歌以及松冈信长肉松毛衣四
 另外关于隐藏巨R 一般来说运动型的内衣都会固定的比较紧吧 看不出来也正常 毕竟都是需要打斗(拉刀光)的剑士
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1711#       发表于 2018-12-20 12:28
-
 
 
 [https://www.sonymobile.co.jp/pro ... campaign/xea20_sao/](https://www.sonymobile.co.jp/product/smartproducts/xea20/campaign/xea20_sao/)
@@ -4114,27 +2688,15 @@ BD第一卷特典有桐优爱的合唱角色歌以及松冈信长肉松毛衣四
 <img src="http://wx3.sinaimg.cn/large/0068TvVBgy1fyd3j6m3ncj30u02a5dx2.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1712#       发表于 2018-12-20 16:10
 
 
-
-
 ソードアート・オンライン　アリシゼーション 第12話「図書室の賢者」 予告映像
 [https://www.youtube.com/watch?v=JgFpDtkmwPY](https://www.youtube.com/watch?v=JgFpDtkmwPY)
 [https://weibo.com/tv/v/H86Z5bWqE?fid=1034:4319098365005975](https://weibo.com/tv/v/H86Z5bWqE?fid=1034:4319098365005975)
-
-
-
-
-
 
 
 -----
@@ -4143,14 +2705,7 @@ BD第一卷特典有桐优爱的合唱角色歌以及松冈信长肉松毛衣四
 ##### 1713#       发表于 2018-12-20 16:39
 
 
-
-
 出桐人版的，我就买一个。
-
-
-
-
-
 
 
 -----
@@ -4159,17 +2714,10 @@ BD第一卷特典有桐优爱的合唱角色歌以及松冈信长肉松毛衣四
 ##### 1714#       发表于 2018-12-22 19:19
 
 
-
-
 冬コミ１日目 東 A 27b「流星のはなし」参加します！今回はようやくSAOです。6年間に描いたSAO絵を詰め込みましたので、結構厚い本になると思いますが、懐かしくて面白いです。よろしくお願いします。(*'ω'*)
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fyfqp25x3qj20rs0rs43y.jpg" referrerpolicy="no-referrer">
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fyfqp2prhxj20rs0rstcs.jpg" referrerpolicy="no-referrer">
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fyfqp33tdhj20rs0rswhz.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4178,16 +2726,10 @@ BD第一卷特典有桐优爱的合唱角色歌以及松冈信长肉松毛衣四
 ##### 1715#       发表于 2018-12-22 23:03
 
 
-
  本帖最后由 reekilynn 于 2018-12-22 23:24 编辑 
 
 后半段宣传图出了，有个角色不知道是谁。
 好吧是小admin
-
-
-
-
-
 
 
 -----
@@ -4196,14 +2738,7 @@ BD第一卷特典有桐优爱的合唱角色歌以及松冈信长肉松毛衣四
 ##### 1716#       发表于 2018-12-22 23:14
 
 
-
-
 是唔姆怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4212,14 +2747,7 @@ BD第一卷特典有桐优爱的合唱角色歌以及松冈信长肉松毛衣四
 ##### 1717#       发表于 2018-12-22 23:15
 
 
-
-
 圖書管理員尼祿<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4228,15 +2756,8 @@ BD第一卷特典有桐优爱的合唱角色歌以及松冈信长肉松毛衣四
 ##### 1718#       发表于 2018-12-22 23:25
 
 
-
-
 cardinal丹下樱
 admin坂本真绫
-
-
-
-
-
 
 
 -----
@@ -4245,14 +2766,7 @@ admin坂本真绫
 ##### 1719#       发表于 2018-12-22 23:26
 
 
-
-
 丹下樱跟坂本真绫<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4261,21 +2775,13 @@ admin坂本真绫
 ##### 1720#       发表于 2018-12-22 23:30
 
 
-
-
 SABER,尼祿和貞德都來了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 1721#       发表于 2018-12-22 23:43
-
 
 
 <img src="http://wx4.sinaimg.cn/large/0068TvVBgy1fyfy1qomhmj30nj0xc458.jpg" referrerpolicy="no-referrer">
@@ -4287,26 +2793,15 @@ TVアニメ「ソードアート・オンライン アリシゼーション」�
 [https://weibo.com/tv/v/H8sLJAfgi?fid=1034:4320171989632540](https://weibo.com/tv/v/H8sLJAfgi?fid=1034:4320171989632540)
 
 
-
-
-
-
-
 -----
 
 ####  haibara  
 ##### 1722#       发表于 2018-12-22 23:45
 
 
-
  本帖最后由 haibara 于 2018-12-22 23:46 编辑 
 
 不管原作党再怎么吹符合原作，观感就是没有以前的好，其实还是伊藤更懂观众心目中的SAO吧
-
-
-
-
-
 
 
 -----
@@ -4315,20 +2810,13 @@ TVアニメ「ソードアート・オンライン アリシゼーション」�
 ##### 1723#       发表于 2018-12-23 00:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">贞德勾引了立香
-
-
-
-
-
 
 
 -----
 
 ####  reekilynn  
 ##### 1724#       发表于 2018-12-23 00:18
-
 
 
  本帖最后由 reekilynn 于 2018-12-23 00:23 编辑 
@@ -4339,16 +2827,10 @@ TVアニメ「ソードアート・オンライン アリシゼーション」�
 还有，这破海报是不是剧透了啊喂喂喂
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1725#       发表于 2018-12-23 00:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42034357&amp;ptid=1550732" target="_blank">haibara 发表于 2018-12-22 23:45</a>
@@ -4357,25 +2839,13 @@ TVアニメ「ソードアート・オンライン アリシゼーション」�
 因为前面的战斗烂是主线剧情之一，如果你前面做得太华丽后面就得编过理由来说明，否则就会变成说不过去显得很矛盾。
 
 
-
-
-
-
-
 -----
 
 ####  Ichthys  
 ##### 1726#       发表于 2018-12-23 00:43
 
 
-
-
 打戏如何还是又站桩输出了一集？
-
-
-
-
-
 
 
 -----
@@ -4384,14 +2854,7 @@ TVアニメ「ソードアート・オンライン アリシゼーション」�
 ##### 1727#       发表于 2018-12-23 00:54
 
 
-
-
 白期待了，这简直是早泻啊，前戏还没开始就完事了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4400,14 +2863,7 @@ TVアニメ「ソードアート・オンライン アリシゼーション」�
 ##### 1728#       发表于 2018-12-23 00:57
 
 
-
-
 下一话继续是世界观和历史的解说，爬塔看来要从14话开始
-
-
-
-
-
 
 
 -----
@@ -4416,16 +2872,9 @@ TVアニメ「ソードアート・オンライン アリシゼーション」�
 ##### 1729#       发表于 2018-12-23 01:01
 
 
-
-
 这集比前面几集好看些
 
 起码揭露了世界观设定
-
-
-
-
-
 
 
 -----
@@ -4434,23 +2883,15 @@ TVアニメ「ソードアート・オンライン アリシゼーション」�
 ##### 1730#       发表于 2018-12-23 01:01
 
 
-
-
 目前看来打戏应该就这水平了，不做过高的期待了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 之后桐人和优吉欧两人的武器解放能做好看点，特效不太违和我也就知足了
-
-
-
-
-
 
 
 -----
 
 ####  eienyami  
 ##### 1731#       发表于 2018-12-23 01:04
-
 
 
  本帖最后由 eienyami 于 2018-12-23 01:05 编辑 
@@ -4460,16 +2901,10 @@ TVアニメ「ソードアート・オンライン アリシゼーション」�
 完全是被爱丽丝碾压的吧。UW最美的女人，这那里是了。。。
 
 
-
-
-
-
-
 -----
 
 ####  Ichthys  
 ##### 1732#       发表于 2018-12-23 01:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42035260&amp;ptid=1550732" target="_blank">eienyami 发表于 2018-12-23 01:04</a>
@@ -4481,16 +2916,10 @@ TVアニメ「ソードアート・オンライン アリシゼーション」�
 人家权限那么高换个皮肤就是了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">想要多马叉虫都没问题
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 1733#       发表于 2018-12-23 01:10
-
 
 
  本帖最后由 ramiel 于 2018-12-23 01:12 编辑 
@@ -4500,16 +2929,10 @@ TVアニメ「ソードアート・オンライン アリシゼーション」�
 另外罗马市民和贞推冷静一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1734#       发表于 2018-12-23 01:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42035236&amp;ptid=1550732" target="_blank">jy02394668 发表于 2018-12-23 01:01</a>
@@ -4524,16 +2947,10 @@ TVアニメ「ソードアート・オンライン アリシゼーション」�
 啊，还有Administrator VS Cardinal的回忆如果不是简略跳过的话也应该不错。
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1735#       发表于 2018-12-23 01:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42035260&amp;ptid=1550732" target="_blank">eienyami 发表于 2018-12-23 01:04</a>
@@ -4546,17 +2963,10 @@ TVアニメ「ソードアート・オンライン アリシゼーション」�
 Administrator被称之为最美的女人时爱丽丝都还没出生吧，这之后见过她的人都凤毛麟角了
 
 
-
-
-
-
-
 -----
 
 ####  qhlixpfh  
 ##### 1736#       发表于 2018-12-23 01:14
-
-
 
 
 一开始没听懂为啥贤者说祭司的名字无耻
@@ -4564,16 +2974,10 @@ Administrator被称之为最美的女人时爱丽丝都还没出生吧，这之�
 后来多念了几遍 不就是管理员吗…
 
 
-
-
-
-
-
 -----
 
 ####  Ichthys  
 ##### 1737#       发表于 2018-12-23 01:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42035357&amp;ptid=1550732" target="_blank">qhlixpfh 发表于 2018-12-23 01:14</a>
@@ -4583,16 +2987,10 @@ Administrator被称之为最美的女人时爱丽丝都还没出生吧，这之�
 哈哈日式发音受害者
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1738#       发表于 2018-12-23 01:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42035357&amp;ptid=1550732" target="_blank">qhlixpfh 发表于 2018-12-23 01:14</a>
@@ -4603,33 +3001,19 @@ Administrator被称之为最美的女人时爱丽丝都还没出生吧，这之�
 字幕如果在她最后自称的时候用英文Administrator而不是音译的话观众就应该大部分都懂了
 
 
-
-
-
-
-
 -----
 
 ####  Ichthys  
 ##### 1739#       发表于 2018-12-23 01:22
 
 
-
-
 也就是个ai不小心刷出了全命令列表开了外挂，最后想取代监督程序结果被合并了的故事呗？
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 1740#       发表于 2018-12-23 01:23
-
-
 
 
 丹下樱和坂本真绫啊……没想到。
@@ -4639,26 +3023,15 @@ Administrator被称之为最美的女人时爱丽丝都还没出生吧，这之�
 虽然丹下樱在Fate里最知名的角色肯定是尼禄但是考虑到坂本真绫的贞德这层关系，搞不好这个CV选择是neta的FA的杰克跟贞德来着（
 
 
-
-
-
-
-
 -----
 
 ####  取个中文名  
 ##### 1741#       发表于 2018-12-23 01:25
 
 
-
  本帖最后由 取个中文名 于 2018-12-23 01:27 编辑 
 
 这系统bug还真多。比sao那堆游戏bug还多，这还是军方项目。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4667,14 +3040,7 @@ Administrator被称之为最美的女人时爱丽丝都还没出生吧，这之�
 ##### 1742#       发表于 2018-12-23 01:27
 
 
-
-
 总裁X？Cardinal？
-
-
-
-
-
 
 
 -----
@@ -4683,14 +3049,7 @@ Administrator被称之为最美的女人时爱丽丝都还没出生吧，这之�
 ##### 1743#       发表于 2018-12-23 01:27
 
 
-
-
 坂本真绫的声音听得我总有股性冷淡的味道
-
-
-
-
-
 
 
 -----
@@ -4699,16 +3058,10 @@ Administrator被称之为最美的女人时爱丽丝都还没出生吧，这之�
 ##### 1744#       发表于 2018-12-23 01:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42035356&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2018-12-23 01:14</a>
 
 Administrator被称之为最美的女人时爱丽丝都还没出生吧，这之后见过她的人都凤毛麟角了 ...</blockquote>
 只能说 插画 厉害了一一
-
-
-
-
-
 
 
 -----
@@ -4717,14 +3070,7 @@ Administrator被称之为最美的女人时爱丽丝都还没出生吧，这之�
 ##### 1745#       发表于 2018-12-23 01:35
 
 
-
-
 thirty,thirty-one,cardinal,administrator如果用英文表述就很明白了....
-
-
-
-
-
 
 
 -----
@@ -4733,15 +3079,9 @@ thirty,thirty-one,cardinal,administrator如果用英文表述就很明白了....
 ##### 1746#       发表于 2018-12-23 01:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42035522&amp;ptid=1550732" target="_blank">elflie 发表于 2018-12-23 01:35</a>
 thirty,thirty-one,cardinal,administrator如果用英文表述就很明白了....</blockquote>
 所以这片英文字幕应该咋做……
-
-
-
-
-
 
 
 -----
@@ -4750,22 +3090,15 @@ thirty,thirty-one,cardinal,administrator如果用英文表述就很明白了....
 ##### 1747#       发表于 2018-12-23 01:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42035541&amp;ptid=1550732" target="_blank">vuder 发表于 2018-12-23 01:38</a>
 所以这片英文字幕应该咋做……</blockquote>
 直接把英文单词打出来。
-
-
-
-
-
 
 
 -----
 
 ####  haibara  
 ##### 1748#       发表于 2018-12-23 01:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42034923&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2018-12-23 00:31</a>
@@ -4777,32 +3110,19 @@ thirty,thirty-one,cardinal,administrator如果用英文表述就很明白了....
 如果推广这个IP，首要目标是吸引新粉丝，对此原来小说的结构不行的，象伊藤那样乱改有可能
 
 
-
-
-
-
-
 -----
 
 ####  Ichthys  
 ##### 1749#       发表于 2018-12-23 01:48
 
 
-
-
 推荐个YouTuber的剧情解说，目前内容是第二集。https://www.youtube.com/playlist?list=PLm2jBphuYI-d2nWQkNkPuM2dwfcaLRe1g
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 1750#       发表于 2018-12-23 01:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42035588&amp;ptid=1550732" target="_blank">haibara 发表于 2018-12-23 01:47:44</a>
@@ -4814,25 +3134,13 @@ thirty,thirty-one,cardinal,administrator如果用英文表述就很明白了....
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  杂灰  
 ##### 1751#       发表于 2018-12-23 01:50
 
 
-
-
 这堆名词看的我晕.........
-
-
-
-
-
 
 
 -----
@@ -4841,23 +3149,16 @@ thirty,thirty-one,cardinal,administrator如果用英文表述就很明白了....
 ##### 1752#       发表于 2018-12-23 01:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42035442&amp;ptid=1550732" target="_blank">取个中文名 发表于 2018-12-23 01:25</a>
 
 这系统bug还真多。比sao那堆游戏bug还多，这还是军方项目。</blockquote>
 虽然是军方，但是THE SEED是茂场的黑科技，一直没人能完全解析的cardinal system（其实就是最顶级的bottom AI）
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1753#       发表于 2018-12-23 01:57
-
 
 
  本帖最后由 xingenge 于 2018-12-23 01:59 编辑 
@@ -4868,25 +3169,13 @@ thirty,thirty-one,cardinal,administrator如果用英文表述就很明白了....
 还是说这跟技能一样，等级到了解锁可用命令？
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1754#       发表于 2018-12-23 01:58
 
 
-
-
 我觉得这集挺有意思的，讲了设定其实也不乏味，主要是感觉这个系统很逗，虽然都是基本语句，但是命令是给你试出来的，颇有日本程序员的风格。
-
-
-
-
-
 
 
 -----
@@ -4895,21 +3184,13 @@ thirty,thirty-one,cardinal,administrator如果用英文表述就很明白了....
 ##### 1755#       发表于 2018-12-23 01:59
 
 
-
-
 这打斗从站桩变成回合制了........只能说做成年番变成这样无法避免吗？这军方系统bug是故意的？
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 1756#       发表于 2018-12-23 02:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42035639&amp;ptid=1550732" target="_blank">xingenge 发表于 2018-12-23 01:57</a>
@@ -4925,16 +3206,10 @@ thirty,thirty-one,cardinal,administrator如果用英文表述就很明白了....
 然后最后那段是她试出来了全命令菜单，里面写着所有可以调用的函数及其意义和效果，然后Admin就只要在此基础上搭积木编术式就好了。
 
 
-
-
-
-
-
 -----
 
 ####  haibara  
 ##### 1757#       发表于 2018-12-23 02:08
-
 
 
  本帖最后由 haibara 于 2018-12-23 02:14 编辑 
@@ -4950,16 +3225,10 @@ thirty,thirty-one,cardinal,administrator如果用英文表述就很明白了....
 虽然她那时每时每刻就一直在那组合命令也是NB啦，一般人老早放弃了
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1758#       发表于 2018-12-23 02:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42035713&amp;ptid=1550732" target="_blank">haibara 发表于 2018-12-23 02:08</a>
@@ -4970,16 +3239,10 @@ thirty,thirty-one,cardinal,administrator如果用英文表述就很明白了....
 就之前发觉就后然后捕猎的那段，我就觉得其实没有受限，就是你知不知道的问题……
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1759#       发表于 2018-12-23 02:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42035708&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2018-12-23 02:07</a>
@@ -4990,16 +3253,10 @@ thirty,thirty-one,cardinal,administrator如果用英文表述就很明白了....
 那真的是有点扯，我之前也学过软件方面，所以就觉得太逗……
 
 
-
-
-
-
-
 -----
 
 ####  haibara  
 ##### 1760#       发表于 2018-12-23 02:12
-
 
 
  本帖最后由 haibara 于 2018-12-23 02:13 编辑 
@@ -5011,26 +3268,15 @@ thirty,thirty-one,cardinal,administrator如果用英文表述就很明白了....
 没有权限吗，我怎么记得最后那命令好像是没加权限保护的而已
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1761#       发表于 2018-12-23 02:13
 
 
-
  本帖最后由 xingenge 于 2018-12-23 02:18 编辑 
 
 仔细想想还不一定对，不过日本人倒是挺爱这种非常逻辑性的组合的，所以稍微改动一下就能看到未公布的东西
-
-
-
-
-
 
 
 -----
@@ -5039,21 +3285,13 @@ thirty,thirty-one,cardinal,administrator如果用英文表述就很明白了....
 ##### 1762#       发表于 2018-12-23 02:13
 
 
-
-
 字幕能像有些游戏一样把英文放在对应的字词上就好了
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 1763#       发表于 2018-12-23 02:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42035744&amp;ptid=1550732" target="_blank">haibara 发表于 2018-12-23 02:12</a>
@@ -5064,32 +3302,19 @@ thirty,thirty-one,cardinal,administrator如果用英文表述就很明白了....
 Admin的权限应该早就到了可以随便用UW的全术式的水平了（所以才能打开这个命令菜单，权限不够是打不开的，原作Cardinal给桐人解说时特地说了这是桐人现在用不了的术式）
 
 
-
-
-
-
-
 -----
 
 ####  不是很懂二次元  
 ##### 1764#       发表于 2018-12-23 03:10
 
 
-
-
 问一下新出的PV3里面，跳出的LOGO画面下写的年份为啥是2017啊，一般不是写放送时间吗？
-
-
-
-
-
 
 
 -----
 
 ####  漫区专号  
 ##### 1765#       发表于 2018-12-23 09:14
-
 
 
  本帖最后由 漫区专号 于 2018-12-23 09:22 编辑 
@@ -5102,18 +3327,10 @@ Admin的权限应该早就到了可以随便用UW的全术式的水平了（所�
 。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1766#       发表于 2018-12-23 09:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42036976&amp;ptid=1550732" target="_blank">漫区专号 发表于 2018-12-23 09:14</a>
@@ -5126,16 +3343,10 @@ Admin的权限应该早就到了可以随便用UW的全术式的水平了（所�
 —— 来自 Sony F8132, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  XSK小龙王  
 ##### 1767#       发表于 2018-12-23 09:59
-
 
 
  本帖最后由 XSK小龙王 于 2018-12-23 10:00 编辑 
@@ -5145,16 +3356,10 @@ Admin的权限应该早就到了可以随便用UW的全术式的水平了（所�
 这个是立项的时间，会涉及到版权什么的，三期的消息在去年10月公布的
 
 
-
-
-
-
-
 -----
 
 ####  ffffe  
 ##### 1768#       发表于 2018-12-23 10:27
-
 
 
  本帖最后由 ffffe 于 2018-12-23 10:50 编辑 
@@ -5170,13 +3375,7 @@ Admin的权限应该早就到了可以随便用UW的全术式的水平了（所�
 而我们伟大的男主角桐人同学则是祭司的救命稻草<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
 这个系统从一开始就注定要失败了
-
-
-
-
-
 
 
 -----
@@ -5185,14 +3384,7 @@ Admin的权限应该早就到了可以随便用UW的全术式的水平了（所�
 ##### 1769#       发表于 2018-12-23 11:00
 
 
-
-
 唔姆怪原装声线，辣是贞滴牛啤
-
-
-
-
-
 
 
 -----
@@ -5201,15 +3393,9 @@ Admin的权限应该早就到了可以随便用UW的全术式的水平了（所�
 ##### 1770#       发表于 2018-12-23 11:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42035646&amp;ptid=1550732" target="_blank">xingenge 发表于 2018-12-23 01:58</a>
 我觉得这集挺有意思的，讲了设定其实也不乏味，主要是感觉这个系统很逗，虽然都是基本语句，但是命令是给你 ...</blockquote>
 日本程序员也经不起这么侮辱，这是日本文科生。
-
-
-
-
-
 
 
 -----
@@ -5218,21 +3404,13 @@ Admin的权限应该早就到了可以随便用UW的全术式的水平了（所�
 ##### 1771#       发表于 2018-12-23 11:15
 
 
-
-
 这剧情笑死我惹
-
-
-
-
-
 
 
 -----
 
 ####  cmyk1234  
 ##### 1772#       发表于 2018-12-23 11:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42035789&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2018-12-23 02:20</a>
@@ -5243,16 +3421,10 @@ Admin的权限应该早就到了可以随便用UW的全术式的水平了 ...</b
 （总之名字听起来像Quora from Tron Legacy的管理员）
 
 
-
-
-
-
-
 -----
 
 ####  台球论坛网友  
 ##### 1773#       发表于 2018-12-23 11:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42035522&amp;ptid=1550732" target="_blank">elflie 发表于 2018-12-23 01:35</a>
@@ -5261,16 +3433,10 @@ thirty,thirty-one,cardinal,administrator如果用英文表述就很明白了....
 还有整合骑士的名字 辛赛西斯，synthesis，合成……
 
 
-
-
-
-
-
 -----
 
 ####  Ichthys  
 ##### 1774#       发表于 2018-12-23 11:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42037972&amp;ptid=1550732" target="_blank">cmyk1234 发表于 2018-12-23 11:21</a>
@@ -5279,16 +3445,10 @@ thirty,thirty-one,cardinal,administrator如果用英文表述就很明白了....
 871是她和CardinalSystem合并后才写的啊
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 1775#       发表于 2018-12-23 11:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42038199&amp;ptid=1550732" target="_blank">Ichthys 发表于 2018-12-23 11:45</a>
@@ -5297,17 +3457,10 @@ thirty,thirty-one,cardinal,administrator如果用英文表述就很明白了....
 那哥布林那边适不适用871的限制？还是admin只能管人间界这边？
 
 
-
-
-
-
-
 -----
 
 ####  cmyk1234  
 ##### 1776#       发表于 2018-12-23 11:56
-
-
 
 
 请问丹下樱配音cardinal像以下哪个声线：
@@ -5317,16 +3470,10 @@ thirty,thirty-one,cardinal,administrator如果用英文表述就很明白了....
 邓布鲁夫（网文：自称贤者弟子的贤者）
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1777#       发表于 2018-12-23 13:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42037972&amp;ptid=1550732" target="_blank">cmyk1234 发表于 2018-12-23 11:21</a>
@@ -5341,16 +3488,10 @@ thirty,thirty-one,cardinal,administrator如果用英文表述就很明白了....
 而像优吉欧一样意识里明确意识到要做的是禁忌也依然靠意志力突破了的之后就不会再受Code871的限制了。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1778#       发表于 2018-12-23 13:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42038199&amp;ptid=1550732" target="_blank">Ichthys 发表于 2018-12-23 11:45</a>
@@ -5359,16 +3500,10 @@ thirty,thirty-one,cardinal,administrator如果用英文表述就很明白了....
 我不知道你怎么得出这个结论的，Code871是UW刚建立时就被藏进去的东西，Admin和Cardinal都要受到Code 871的限制。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1779#       发表于 2018-12-23 13:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42038311&amp;ptid=1550732" target="_blank">Mr.BBWoLf 发表于 2018-12-23 11:55</a>
@@ -5379,26 +3514,15 @@ Code 871本身不是Admin写的，影响范围是从UW建立起存在全UW的人
 优吉欧是历史上第一个，仅凭自己的意志就完全突破了Code 871的限制的人工FL（也正因为这个原因他之后不再会受到Code 871的限制）
 
 
-
-
-
-
-
 -----
 
 ####  Ichthys  
 ##### 1780#       发表于 2018-12-23 13:12
 
 
-
  本帖最后由 Ichthys 于 2018-12-23 13:15 编辑 
 
 ，
-
-
-
-
-
 
 
 -----
@@ -5407,23 +3531,15 @@ Code 871本身不是Admin写的，影响范围是从UW建立起存在全UW的人
 ##### 1781#       发表于 2018-12-23 14:03
 
 
-
-
 从rath的草台班子程度来看
 将利己心这种人性恶的部分传给uw人应该是无意中发生的
 系统命令没删，应该也只是这帮人脑残忘了
-
-
-
-
-
 
 
 -----
 
 ####  Ichthys  
 ##### 1782#       发表于 2018-12-23 14:03
-
 
 
  本帖最后由 Ichthys 于 2018-12-23 14:14 编辑 
@@ -5461,8 +3577,6 @@ Code 871本身不是Admin写的，影响范围是从UW建立起存在全UW的人
     这时似乎沉浸在回忆里的柳井，表情再次从脸上消失。
 
 
-
-
     「在右视觉皮层……注入拟似痛觉？这样即使人工摇光快要突破界限，整个过程也会因为疼痛而取消吧。你们甚至给Underworld人设下这种限制吗？」
 
 
@@ -5490,16 +3604,10 @@ Code 871本身不是Admin写的，影响范围是从UW建立起存在全UW的人
     「这件白袍是……刚才和比嘉一起到下面去的工作人员柳井先生的……」
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 1783#       发表于 2018-12-23 14:19
-
 
 
  本帖最后由 Mr.BBWoLf 于 2018-12-23 14:21 编辑 
@@ -5511,17 +3619,10 @@ Code 871本身不是Admin写的，影响范围是从UW建立起存在全UW的人
 等一下，那就是说code871本身是一个“可成长”的限定？类似：统治阶级颁布的法律法规必须遵守。而优吉欧干涉的贵族裁判权并不是admin写入才导致的限制，而是搭了系统的便车？
 
 
-
-
-
-
-
 -----
 
 ####  芝士排骨  
 ##### 1784#       发表于 2018-12-23 14:19
-
-
 
 
 看pv没什么好的作画。连管理员（神）之间的对波表现力都很一般，不能太指望打戏了，小野学真的一根筋还原原著动作。
@@ -5531,16 +3632,10 @@ Code 871本身不是Admin写的，影响范围是从UW建立起存在全UW的人
 只要a姐不崩我就满意了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1785#       发表于 2018-12-23 16:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42039577&amp;ptid=1550732" target="_blank">Ichthys 发表于 2018-12-23 14:03</a>
@@ -5557,16 +3652,10 @@ Code 871本身不是Admin写的，影响范围是从UW建立起存在全UW的人
 非要解释的话，提供的帮助可以是多种多样的，并不一定是Code 871，帮忙隐瞒Admin的行为拖延Rath发现触犯禁忌的人工FL也可以是协助（实际上Rath直到小爱丽丝被抓才第一次发现触犯了禁忌的人工FL，这还是因为送了桐人进去一直盯着他身边的人）
 
 
-
-
-
-
-
 -----
 
 ####  Ichthys  
 ##### 1786#       发表于 2018-12-23 16:23
-
 
 
  本帖最后由 Ichthys 于 2018-12-23 16:25 编辑 
@@ -5579,16 +3668,10 @@ Code 871本身不是Admin写的，影响范围是从UW建立起存在全UW的人
 吃书太正常了，不过我不知道你看的是哪个版本，可能有区别。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1787#       发表于 2018-12-23 16:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42039709&amp;ptid=1550732" target="_blank">Mr.BBWoLf 发表于 2018-12-23 14:19</a>
@@ -5597,16 +3680,10 @@ Code 871本身不是Admin写的，影响范围是从UW建立起存在全UW的人
 并不是，Code 871本身是强制性阻止违反规则的代码，这个规则只要是被说了的都要遵守。优吉欧能突破是凭借心意。也就是他的意志坚定到这段会妨碍思考的代码都无法阻止的地步，于是这段代码就出了问题毁掉了……这种感觉吧。
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 1788#       发表于 2018-12-23 17:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42040696&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2018-12-23 16:23</a>
@@ -5615,16 +3692,10 @@ Code 871本身不是Admin写的，影响范围是从UW建立起存在全UW的人
 原来如此，谢谢！
 
 
-
-
-
-
-
 -----
 
 ####  花海境  
 ##### 1789#       发表于 2018-12-23 17:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42040696&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2018-12-23 16:23:38</a>
@@ -5633,16 +3704,10 @@ Code 871本身不是Admin写的，影响范围是从UW建立起存在全UW的人
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 1790#       发表于 2018-12-23 17:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42041168&amp;ptid=1550732" target="_blank">花海境 发表于 2018-12-23 17:16</a>
@@ -5652,16 +3717,10 @@ Code 871本身不是Admin写的，影响范围是从UW建立起存在全UW的人
 然而这个世界的视力缺陷是可以被修复的。
 
 
-
-
-
-
-
 -----
 
 ####  ffffe  
 ##### 1791#       发表于 2018-12-23 18:36
-
 
 
  本帖最后由 ffffe 于 2018-12-23 18:43 编辑 
@@ -5683,32 +3742,19 @@ Code 871本身不是Admin写的，影响范围是从UW建立起存在全UW的人
 这个世界不存在无处不在的探头监控所有人的行为，这个世界的核心是摇光，一切操作都是对摇光的操作
 
 
-
-
-
-
-
 -----
 
 ####  jacket  
 ##### 1792#       发表于 2018-12-23 22:11
 
 
-
-
 让大家重拾对管理员应有的敬重
-
-
-
-
-
 
 
 -----
 
 ####  elflie  
 ##### 1793#       发表于 2018-12-23 22:28
-
 
 
  本帖最后由 elflie 于 2018-12-23 22:30 编辑 
@@ -5719,27 +3765,15 @@ Code 871本身不是Admin写的，影响范围是从UW建立起存在全UW的人
 我怎么记得柳井从混进海龟就是间谍，871是一开始就设置好的，管理员活用了871的设定制作了禁忌目录，也是获得了全命令后才获得跟rw沟通的办法，柳井的活动也是从这里开始混入私心<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  没取名啊  
 ##### 1794#       发表于 2018-12-23 23:37
 
 
-
-
 我还蛮喜欢看讲设定的，起码比这动画的战斗好看，小野学也太耿直了，战斗分镜完全就是照搬小说的站桩打，就不能原创几个镜头的动作戏吗？另外小贤者是uw篇我第二喜欢的角色，还想听她多讲几集设定<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -5748,16 +3782,9 @@ Code 871本身不是Admin写的，影响范围是从UW建立起存在全UW的人
 ##### 1795#       发表于 2018-12-23 23:51
 
 
-
-
 同意讲设定的几集都还挺有意思的，说明这个作者应该自己想设定剧情交给编剧<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
 
 —— 來自 Google Pixel 2 XL, Android 9上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
-
-
-
-
-
 
 
 -----
@@ -5766,14 +3793,7 @@ Code 871本身不是Admin写的，影响范围是从UW建立起存在全UW的人
 ##### 1796#       发表于 2018-12-24 00:40
 
 
-
-
 唔姆过于出戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5782,23 +3802,15 @@ Code 871本身不是Admin写的，影响范围是从UW建立起存在全UW的人
 ##### 1797#       发表于 2018-12-24 18:34
 
 
-
-
 所以最高司机现在还有自己的意识吗？
 
 是不是只会呆呆的维护自己创造的禁忌法典？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 1798#       发表于 2018-12-24 19:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42053851&amp;ptid=1550732" target="_blank">ricotte 发表于 2018-12-24 18:34</a>
@@ -5809,16 +3821,10 @@ Code 871本身不是Admin写的，影响范围是从UW建立起存在全UW的人
 下集就会说了着什么急<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 1799#       发表于 2018-12-24 20:30
-
 
 
  本帖最后由 mhss 于 2018-12-24 20:32 编辑 
@@ -5830,17 +3836,10 @@ ruler，这就是你在OP和正片结尾不穿衣服的理由么<img src="https:
 要说美个人觉得比爱丽丝要强一点，爱丽丝感觉变成整合骑士登场后那张脸英气太重了，紫发的脸妖艳一点
 
 
-
-
-
-
-
-
 -----
 
 ####  dragonfalls  
 ##### 1800#       发表于 2018-12-24 20:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42054941&amp;ptid=1550732" target="_blank">mhss 发表于 2018-12-24 20:30</a>
@@ -5852,16 +3851,10 @@ ruler，这就是你在OP和正片结尾不穿衣服的理由么
 小说插画要好看不少，tv的餐厅脸太影响观感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 1801#       发表于 2018-12-24 20:41
-
 
 
  本帖最后由 mhss 于 2018-12-24 20:44 编辑 
@@ -5873,16 +3866,10 @@ ruler，这就是你在OP和正片结尾不穿衣服的理由么
 搜了下插图，确实不如爱丽丝，动画感觉反过来了
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1802#       发表于 2018-12-24 20:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42054941&amp;ptid=1550732" target="_blank">mhss 发表于 2018-12-24 20:30</a>
@@ -5895,17 +3882,10 @@ ruler，这就是你在OP和正片结尾不穿衣服的理由么
 连优吉欧都被这身躯色诱走了
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1803#       发表于 2018-12-25 16:05
-
-
 
 
 第13話 支配者と調停者
@@ -5928,27 +3908,15 @@ ruler，这就是你在OP和正片结尾不穿衣服的理由么
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fyj1xltbbgj20p00e2wgl.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1804#       发表于 2018-12-25 17:51
 
 
-
-
 TVアニメ「ソードアート・オンライン アリシゼーション」Symphonic Alicization Orchestra PV
 [https://www.youtube.com/watch?v=cN3BGW9U3Os](https://www.youtube.com/watch?v=cN3BGW9U3Os)
 [http://v.youku.com/v_show/id_XMz ... j.8428770.3416059.1](http://v.youku.com/v_show/id_XMzk4MTIxMTYzMg==.html?spm=a2h3j.8428770.3416059.1)
-
-
-
-
-
 
 
 -----
@@ -5957,14 +3925,8 @@ TVアニメ「ソードアート・オンライン アリシゼーション」Sy
 ##### 1805#       发表于 2018-12-25 19:12
 
 
-
 这么说来顶层决战的段落有一个巨大的漏洞
 既然admin有足够的能力把被切掉的右臂转换成一把剑，为什么不把胳膊接上再去动用剑巨人被解体之后插在地面上的那些剑，难道是因为没有足够的神圣力？
-
-
-
-
-
 
 
 -----
@@ -5973,14 +3935,7 @@ TVアニメ「ソードアート・オンライン アリシゼーション」Sy
 ##### 1806#       发表于 2018-12-25 19:40
 
 
-
-
 才想起小野学是学战都市的监督
-
-
-
-
-
 
 
 -----
@@ -5989,14 +3944,7 @@ TVアニメ「ソードアート・オンライン アリシゼーション」Sy
 ##### 1807#       发表于 2018-12-26 19:05
 
 
-
-
 几百年就出了一个语言学家，行吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6005,16 +3953,10 @@ TVアニメ「ソードアート・オンライン アリシゼーション」Sy
 ##### 1808#       发表于 2018-12-26 19:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42077777&amp;ptid=1550732" target="_blank">Thalassa 发表于 2018-12-26 19:05</a>
 
 几百年就出了一个语言学家，行吧</blockquote>
 语言学家也要配合操作权限，在被限制了杀掠后其他人的权限难以提升，就算想要测试语言也测试不出效果
-
-
-
-
-
 
 
 -----
@@ -6023,22 +3965,13 @@ TVアニメ「ソードアート・オンライン アリシゼーション」Sy
 ##### 1809#       发表于 2018-12-30 09:06
 
 
-
-
 这周停更？
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 1810#       发表于 2018-12-30 10:55
-
-
 
 
 新年休假吧
@@ -6048,16 +3981,10 @@ TVアニメ「ソードアート・オンライン アリシゼーション」Sy
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  芝士排骨  
 ##### 1811#       发表于 2018-12-31 18:48
-
 
 
 想到了一个问题，摇光繁殖的原理和暗黑神账号的能力都说明拉丝可以对摇光进行内部编辑，那为什么还要进行这么大的实验？
@@ -6066,16 +3993,10 @@ TVアニメ「ソードアート・オンライン アリシゼーション」Sy
 话说回来，摇光很听话地遵守命令（像整合骑士哪样）不是已经满足作为军事ai的条件了吗？为什么非得把他们搞得那么有人性呢？
 
 
-
-
-
-
-
 -----
 
 ####  shadow001  
 ##### 1812#       发表于 2018-12-31 19:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42131257&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2018-12-31 18:48</a>
@@ -6084,16 +4005,10 @@ TVアニメ「ソードアート・オンライン アリシゼーション」Sy
 按前面的討論，現在搖光的缺陷貌似會影響到敵我識別的功能，所以不能用
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1813#       发表于 2018-12-31 22:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42131257&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2018-12-31 18:48</a>
@@ -6106,27 +4021,15 @@ TVアニメ「ソードアート・オンライン アリシゼーション」Sy
 还有就是Rath对FL的操作能力比不了做了上百年实验的Admin（
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1814#       发表于 2019-1-3 16:05
 
 
-
-
 ソードアート・オンライン　アリシゼーション 第13話「支配者と調停者」 予告映像
 [https://www.youtube.com/watch?v=j7-RgoxU0mM](https://www.youtube.com/watch?v=j7-RgoxU0mM)
 [http://v.youku.com/v_show/id_XMz ... j.8428770.3416059.1](http://v.youku.com/v_show/id_XMzk5NDk1NDU2NA==.html?spm=a2h3j.8428770.3416059.1)
-
-
-
-
-
 
 
 -----
@@ -6135,23 +4038,14 @@ TVアニメ「ソードアート・オンライン アリシゼーション」Sy
 ##### 1815#       发表于 2019-1-3 16:07
 
 
-
-
 中字
 [https://weibo.com/tv/v/HaeXbkWBP?fid=1034:4324345343053820](https://weibo.com/tv/v/HaeXbkWBP?fid=1034:4324345343053820)
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 1816#       发表于 2019-1-3 17:13
-
-
 
 
 终于看到16卷了，从封面看亚丝娜你终于有机会有长剧情了，但扉页这简介亚丝娜你使用的这账号也太屌了
@@ -6161,16 +4055,10 @@ TVアニメ「ソードアート・オンライン アリシゼーション」Sy
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1817#       发表于 2019-1-4 10:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42150391&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-1-3 17:13</a>
@@ -6183,16 +4071,10 @@ TVアニメ「ソードアート・オンライン アリシゼーション」Sy
 三女神账号名义上是GM账号但是性能上根本没法和团长账号之于旧SAO和须乡的妖精王账号相对于原ALO这种。
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1818#       发表于 2019-1-4 20:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42157447&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-1-4 10:55</a>
@@ -6211,16 +4093,10 @@ SAO是基于茅场需要在内部操作所以才会有游戏内部使用的开�
 正在看17卷的途中，等待着主角方玩家军团降临的大场面。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1819#       发表于 2019-1-4 21:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42164340&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-1-4 20:46</a>
@@ -6233,25 +4109,13 @@ SAO是基于茅场需要在内部 ...</blockquote>
 我觉得跟个人精神都没那么大关系……三女神账号对UW几乎是没有什么可以算得上GM的操作权限的。亚丝娜的地形操作，Admin用神圣术做过类似的事还不受数据负荷反作用。诗音的无限制歼灭，歼灭力比不过桐人起床时那发青蔷薇的歼灭力，而且空间神圣力充足的话爱丽丝的神圣术也能做到差不多的效果。也就莉法那个在地面上无限回复天命的能力似乎没被拟似过，然而有这能力的莉法一样最后天命归0了……
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1820#       发表于 2019-1-5 18:55
 
 
-
-
 我总算理解你们为什么要说优吉欧是女主角了，原来是作者钦定的
-
-
-
-
-
 
 
 -----
@@ -6260,16 +4124,10 @@ SAO是基于茅场需要在内部 ...</blockquote>
 ##### 1821#       发表于 2019-1-5 19:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42172257&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-1-5 18:55</a>
 
 我总算理解你们为什么要说优吉欧是女主角了，原来是作者钦定的</blockquote>
 SAOP里桐人和亚丝娜内心中对对方的看法几乎和桐人和优吉欧内心中对对方的看法基本是一样的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6278,14 +4136,7 @@ SAOP里桐人和亚丝娜内心中对对方的看法几乎和桐人和优吉欧�
 ##### 1822#       发表于 2019-1-5 23:15
 
 
-
-
 連記憶容量的介面也有...做這種介面出來有什麼用?<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6294,22 +4145,13 @@ SAOP里桐人和亚丝娜内心中对对方的看法几乎和桐人和优吉欧�
 ##### 1823#       发表于 2019-1-6 00:55
 
 
-
-
 Cardinal的解说和跟Admin的战斗删掉了不少内容啊<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  芝士排骨  
 ##### 1824#       发表于 2019-1-6 01:24
-
-
 
 
 神仙打架的细节川原没细写动作，所以我想，这下小野学得自己搞个牛逼点的打斗了吧。
@@ -6324,16 +4166,10 @@ a1真的投入最高资源在上面了?还是说a1上限仅此?
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  dragonfalls  
 ##### 1825#       发表于 2019-1-6 01:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42175323&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-1-6 01:24</a>
@@ -6343,16 +4179,10 @@ a1真的投入最高资源在上面了?还是说a1上限仅此?
 小野学不行，不会变通；打戏方面A1确实没有会画打戏的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  芝士排骨  
 ##### 1826#       发表于 2019-1-6 01:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42175352&amp;ptid=1550732" target="_blank">dragonfalls 发表于 2019-01-06 01:28:40</a>
@@ -6361,16 +4191,10 @@ a1真的投入最高资源在上面了?还是说a1上限仅此?
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  青菜子  
 ##### 1827#       发表于 2019-1-6 01:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42175323&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-01-06 01:24:04</a>
@@ -6383,17 +4207,10 @@ a1真的投入最高资源在上面了?还是说a1上限仅此?
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1828#       发表于 2019-1-6 01:44
-
-
 
 
 A1资源可以啊，我觉得不能存在擅长不擅长一说，关键是能不能做出来（包括社内社外）
@@ -6404,16 +4221,10 @@ A1资源可以啊，我觉得不能存在擅长不擅长一说，关键是能不
 看完然后没感想……喔最大的感想就是卡迪纳尔被桐人抱了（虽然是卡迪纳尔先的）……（这算什么感想）
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1829#       发表于 2019-1-6 01:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42175323&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-1-6 01:24</a>
@@ -6426,27 +4237,15 @@ A1资源可以啊，我觉得不能存在擅长不擅长一说，关键是能不
 基础术式咏唱速度快啊，另外别看她们就咏唱了那么短的术式，实际上谁知道是不是用心意省略了几段的咏唱<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  摩天城  
 ##### 1830#       发表于 2019-1-6 01:52
 
 
-
-
 我记得之前在泥潭看人说，a1就是平时各种摸，关键回爆发一下。
 
 这么看，这集挺正常的。
-
-
-
-
-
 
 
 -----
@@ -6455,14 +4254,7 @@ A1资源可以啊，我觉得不能存在擅长不擅长一说，关键是能不
 ##### 1831#       发表于 2019-1-6 02:39
 
 
-
-
 下一集该换oped了吧
-
-
-
-
-
 
 
 -----
@@ -6471,21 +4263,13 @@ A1资源可以啊，我觉得不能存在擅长不擅长一说，关键是能不
 ##### 1832#       发表于 2019-1-6 03:35
 
 
-
-
 所以把资源放在雷普戏是为什么
-
-
-
-
-
 
 
 -----
 
 ####  reekilynn  
 ##### 1833#       发表于 2019-1-6 07:39
-
 
 
  本帖最后由 reekilynn 于 2019-1-7 11:50 编辑 
@@ -6505,16 +4289,10 @@ Append Maximal Solidity（追加最大可靠性or固性）
 发现错了一个词，编辑一下。
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1834#       发表于 2019-1-6 09:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42175323&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-1-6 01:24</a>
@@ -6526,16 +4304,10 @@ Append Maximal Solidity（追加最大可靠性or固性）
 —— 来自 Sony F8132, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  haibara  
 ##### 1835#       发表于 2019-1-6 10:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42176453&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-1-6 09:23</a>
@@ -6550,32 +4322,19 @@ Append Maximal Solidity（追加最大可靠性or固性）
 我打赌后面也是这样照搬原作，资源再大导演拘泥于原作其实是没能力
 
 
-
-
-
-
-
 -----
 
 ####  b2c  
 ##### 1836#       发表于 2019-1-6 12:37
 
 
-
-
 话说“亚丝娜你要坚强”这个梗是从哪儿来的？
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 1837#       发表于 2019-1-6 13:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42176873&amp;ptid=1550732" target="_blank">haibara 发表于 2019-01-06 10:24:56</a>
@@ -6587,16 +4346,10 @@ Append Maximal Solidity（追加最大可靠性or固性）
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  haibara  
 ##### 1838#       发表于 2019-1-6 13:26
-
 
 
  本帖最后由 haibara 于 2019-1-6 13:30 编辑 
@@ -6615,16 +4368,10 @@ Append Maximal Solidity（追加最大可靠性or固性）
 小野学先把普通的战斗做好再说
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1839#       发表于 2019-1-6 15:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42178541&amp;ptid=1550732" target="_blank">haibara 发表于 2019-01-06 13:26:49</a>
@@ -6640,16 +4387,10 @@ Append Maximal Solidity（追加最大可靠性or固性）
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  haibara  
 ##### 1840#       发表于 2019-1-6 16:06
-
 
 
  本帖最后由 haibara 于 2019-1-6 16:15 编辑 
@@ -6662,16 +4403,10 @@ Append Maximal Solidity（追加最大可靠性or固性）
 UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比较完整，其他大多工具人，一半观众能记住名字就不错，唯一区别傻娜3那边反派篇章有正面印象的多点，UW就基本没有印象就个暗黑将军是正面的
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1841#       发表于 2019-1-6 18:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42180024&amp;ptid=1550732" target="_blank">haibara 发表于 2019-1-6 16:06</a>
@@ -6681,25 +4416,13 @@ UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比�
 迪索鲁巴特、艾尔德利耶剧情都不少，雷恩利更是这个时候正式觉醒的意志，谢塔和伊修凯恩的战场爱情故事，反而爱丽丝在大混战的时候长时间处于掉线状态一个人在赶路，诗侬除了起手的AOE之后就只有单挑戏，直叶更是全程脱离主力部队，其他一般卫士虽然没有着重描写，但双方都是大军对垒，而不是单纯几个人的对打。
 
 
-
-
-
-
-
 -----
 
 ####  D．Va  
 ##### 1842#       发表于 2019-1-7 04:07
 
 
-
-
 这集的氛围做的不错
-
-
-
-
-
 
 
 -----
@@ -6708,23 +4431,14 @@ UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比�
 ##### 1843#       发表于 2019-1-7 14:03
 
 
-
-
 丹下樱那段配的也太赶时间了吧。拥抱这剧情就这么两句话说完没了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 我感觉我是洗不动了
-
-
-
-
-
 
 
 -----
 
 ####  stardust1224  
 ##### 1844#       发表于 2019-1-7 14:24
-
-
 
 
 我先前還去木棉花的攤位花了六千多NTD給這一季買週邊
@@ -6738,16 +4452,10 @@ UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比�
 跟前兩週比這一周是個什麼JB
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1845#       发表于 2019-1-7 14:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42189931&amp;ptid=1550732" target="_blank">stardust1224 发表于 2019-1-7 14:24</a>
@@ -6758,16 +4466,10 @@ UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比�
 哪来的硬塞妹子，Cardinal可不是后宫
 
 
-
-
-
-
-
 -----
 
 ####  stardust1224  
 ##### 1846#       发表于 2019-1-7 17:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42190019&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-1-7 14:31</a>
@@ -6778,16 +4480,10 @@ UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比�
 還行<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1847#       发表于 2019-1-7 17:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42191797&amp;ptid=1550732" target="_blank">stardust1224 发表于 2019-01-07 17:06:28</a>
@@ -6799,17 +4495,10 @@ UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比�
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 1848#       发表于 2019-1-7 21:58
-
-
 
 
 爆机神装，点击就送<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -6821,16 +4510,10 @@ UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比�
 之前第一季和第二季虽然都是半年番，但实际都是能前后分割成2个季番(SAO、ALO，GGO、绝剑)的故事，但是这次的第三季进度过半，而且明显不会立即收尾，是要一直爬塔到结束么？我实在无法想象能一路打到结尾<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dragonfalls  
 ##### 1849#       发表于 2019-1-7 22:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42194947&amp;ptid=1550732" target="_blank">mhss 发表于 2019-1-7 21:58</a>
@@ -6841,13 +4524,9 @@ UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比�
 这是年番，进度刚过1/4，前半年是一直爬到顶<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -6857,19 +4536,13 @@ UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比�
 | mhss| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  mhss  
 ##### 1850#       发表于 2019-1-7 22:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42195115&amp;ptid=1550732" target="_blank">dragonfalls 发表于 2019-1-7 22:17</a>
@@ -6880,16 +4553,10 @@ UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比�
 看来依然能前后分割成两个故事，但还是太拖沓了
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1851#       发表于 2019-1-7 22:28
-
 
 
  本帖最后由 月夜凝雪 于 2019-1-7 22:39 编辑 
@@ -6909,14 +4576,9 @@ UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比�
 从下一话开始的分割前半的后段部分大多数时间都在战斗，从集数算的话大概18-20话左右还会有一话“幽会”的谈话，其他主要都是赶路和战斗。
 
 
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -6926,20 +4588,13 @@ UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比�
 | mhss| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 1852#       发表于 2019-1-9 16:07
-
-
 
 
 第14話 紅蓮の騎士
@@ -6962,25 +4617,13 @@ UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比�
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fz0e7xwn65j20p00e20wc.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dragonfalls  
 ##### 1853#       发表于 2019-1-9 16:16
 
 
-
-
 这火的特效不错
-
-
-
-
-
 
 
 -----
@@ -6989,15 +4632,9 @@ UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比�
 ##### 1854#       发表于 2019-1-9 18:03
 
 
-
  本帖最后由 绯冉老师 于 2019-1-9 18:15 编辑 
 
 这话打多久？现在最怕的是sao爽不起来<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7006,22 +4643,15 @@ UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比�
 ##### 1855#       发表于 2019-1-9 19:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42216281&amp;ptid=1550732" target="_blank">绯冉老师 发表于 2019-01-09 18:03:12</a></blockquote>如果硬按原作来的话，和前面打31号差不多水平<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  绯冉老师  
 ##### 1856#       发表于 2019-1-10 10:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42217349&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-1-9 19:44</a>
@@ -7033,16 +4663,10 @@ UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比�
 那岂不是凉了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  fsckamui  
 ##### 1857#       发表于 2019-1-10 12:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42175352&amp;ptid=1550732" target="_blank">dragonfalls 发表于 2019-1-6 01:28</a>
@@ -7051,17 +4675,10 @@ UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比�
 你让小野学带三癞子的团队就做的出来了...
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1858#       发表于 2019-1-10 17:09
-
-
 
 
 ソードアート・オンライン　アリシゼーション 第14話「紅蓮の騎士」 予告映像
@@ -7069,16 +4686,10 @@ UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比�
 [https://weibo.com/tv/v/HbiXumYEO?fid=1034:4326909312740936](https://weibo.com/tv/v/HbiXumYEO?fid=1034:4326909312740936)
 
 
-
-
-
-
-
 -----
 
 ####  皇马王子劳尔  
 ##### 1859#       发表于 2019-1-10 17:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42194947&amp;ptid=1550732" target="_blank">mhss 发表于 2019-1-7 21:58</a>
@@ -7089,16 +4700,10 @@ UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比�
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">下一集就有新衣服穿了
 
 
-
-
-
-
-
 -----
 
 ####  皇马王子劳尔  
 ##### 1860#       发表于 2019-1-12 23:44
-
 
 
  本帖最后由 皇马王子劳尔 于 2019-1-12 23:47 编辑 
@@ -7115,11 +4720,6 @@ UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比�
 2019-1-12 23:44 上传
 
 
-
-
-
-
-
 新oped很棒的说，但看着真是扎心啊，每一帧都像是在开告别仪式。
 
 <img src="https://img.saraba1st.com/forum/201901/12/234732arn0rmqliyiuyqdy.jpg" referrerpolicy="no-referrer">
@@ -7132,22 +4732,10 @@ UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比�
 2019-1-12 23:47 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  镜hinata  
 ##### 1861#       发表于 2019-1-12 23:46
-
-
 
 
 报!
@@ -7155,17 +4743,10 @@ UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比�
 阿鲁迪巴又被打掉角了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  皇马王子劳尔  
 ##### 1862#       发表于 2019-1-12 23:55
-
-
 
 
 补双子声优：
@@ -7175,17 +4756,10 @@ UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比�
 （转自PTT西洽板：[https://www.ptt.cc/bbs/C_Chat/M.1547307008.A.F0B.html](https://www.ptt.cc/bbs/C_Chat/M.1547307008.A.F0B.html)）
 
 
-
-
-
-
-
 -----
 
 ####  普通的围观群众  
 ##### 1863#       发表于 2019-1-13 00:10
-
-
 
 
 爱撕衣讨论的人多些233333
@@ -7197,16 +4771,10 @@ UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比�
 我怀疑一会儿看动画的时候会不会笑场噗
 
 
-
-
-
-
-
 -----
 
 ####  皇马王子劳尔  
 ##### 1864#       发表于 2019-1-13 00:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42254723&amp;ptid=1550732" target="_blank">普通的围观群众 发表于 2019-1-13 00:10</a>
@@ -7218,16 +4786,10 @@ UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比�
 这一集只在最后露了面，我看生放的时候甚至没有注意到她们说了话<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  普通的围观群众  
 ##### 1865#       发表于 2019-1-13 00:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42254814&amp;ptid=1550732" target="_blank">皇马王子劳尔 发表于 2019-1-13 00:20</a>
@@ -7239,16 +4801,10 @@ UW半斤八两，3神都是以前篇章，新人物就爱丽丝和骑士长比�
 考哥.jpg
 
 
-
-
-
-
-
 -----
 
 ####  dragonfalls  
 ##### 1866#       发表于 2019-1-13 00:59
-
 
 
  本帖最后由 dragonfalls 于 2019-1-13 01:15 编辑 
@@ -7265,22 +4821,13 @@ OP/ED各种重复镜头（当然OP那段打戏还可以），正片打戏就是�
 2019-1-13 01:15 上传
 
 
-
-
-
 这双剑似曾相识啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  芝士排骨  
 ##### 1867#       发表于 2019-1-13 01:04
-
 
 
  本帖最后由 芝士排骨 于 2019-1-13 01:12 编辑 
@@ -7296,25 +4843,13 @@ OP/ED各种重复镜头（当然OP那段打戏还可以），正片打戏就是�
 —— 来自 HUAWEI VTR-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  任天索尼子  
 ##### 1868#       发表于 2019-1-13 01:07
 
 
-
-
 这集感觉还不如隔壁魔禁做得好，虽然魔禁也很烂但是起码这集还算在打，UW这集除了站桩特效还有啥
-
-
-
-
-
 
 
 -----
@@ -7323,14 +4858,7 @@ OP/ED各种重复镜头（当然OP那段打戏还可以），正片打戏就是�
 ##### 1869#       发表于 2019-1-13 01:10
 
 
-
-
 不过居然在op里看到了升降机小姐姐，都忘了这个角色<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7339,14 +4867,7 @@ OP/ED各种重复镜头（当然OP那段打戏还可以），正片打戏就是�
 ##### 1870#       发表于 2019-1-13 01:43
 
 
-
-
 对于看过原作的人来说，除了某人的两件事之外OP几乎把这一个季度的剧情全部透掉了
-
-
-
-
-
 
 
 -----
@@ -7355,21 +4876,13 @@ OP/ED各种重复镜头（当然OP那段打戏还可以），正片打戏就是�
 ##### 1871#       发表于 2019-1-13 01:44
 
 
-
-
 刀剑三有翻车迹象
-
-
-
-
-
 
 
 -----
 
 ####  haibara  
 ##### 1872#       发表于 2019-1-13 01:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42255218&amp;ptid=1550732" target="_blank">任天索尼子 发表于 2019-1-13 01:07</a>
@@ -7381,32 +4894,19 @@ OP/ED各种重复镜头（当然OP那段打戏还可以），正片打戏就是�
 以前的伊藤还好，小野学完全怕改编担责，不过估计川原自己挺满意的
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1873#       发表于 2019-1-13 01:48
 
 
-
-
 就原著来说下一话的战斗还算精彩的，就看制作得怎么样了，如果下一话不行那么本季的只剩爬塔的最终战可能好点了。
-
-
-
-
-
 
 
 -----
 
 ####  haibara  
 ##### 1874#       发表于 2019-1-13 01:50
-
 
 
  本帖最后由 haibara 于 2019-1-13 01:52 编辑 
@@ -7419,16 +4919,10 @@ OP/ED各种重复镜头（当然OP那段打戏还可以），正片打戏就是�
 这次换监督糊了
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 1875#       发表于 2019-1-13 01:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42255480&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-1-13 01:48</a>
@@ -7437,16 +4931,10 @@ OP/ED各种重复镜头（当然OP那段打戏还可以），正片打戏就是�
 本质上桐人爬塔这一段就一直在被吊着打…
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1876#       发表于 2019-1-13 01:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42255499&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-1-13 01:52</a>
@@ -7457,16 +4945,10 @@ OP/ED各种重复镜头（当然OP那段打戏还可以），正片打戏就是�
 最终战当然是看女主角的表现啊
 
 
-
-
-
-
-
 -----
 
 ####  芝士排骨  
 ##### 1877#       发表于 2019-1-13 01:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42255480&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-1-13 01:48</a>
@@ -7477,16 +4959,10 @@ OP/ED各种重复镜头（当然OP那段打戏还可以），正片打戏就是�
 —— 来自 HUAWEI VTR-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  haibara  
 ##### 1878#       发表于 2019-1-13 01:58
-
 
 
  本帖最后由 haibara 于 2019-1-13 02:01 编辑 
@@ -7502,25 +4978,13 @@ OP/ED各种重复镜头（当然OP那段打戏还可以），正片打戏就是�
 即使3整体的设定和剧情很好，但对动画来说他的一些弱点监督完全没花心思改善，小野学唯一做的事砍设定讲解大概砍了不少
 
 
-
-
-
-
-
 -----
 
 ####  dragonfalls  
 ##### 1879#       发表于 2019-1-13 01:59
 
 
-
-
 站桩打戏已经不期待了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">上半段也就期待一下挂在塔外那段文戏
-
-
-
-
-
 
 
 -----
@@ -7529,14 +4993,7 @@ OP/ED各种重复镜头（当然OP那段打戏还可以），正片打戏就是�
 ##### 1880#       发表于 2019-1-13 02:01
 
 
-
-
 妈的放送之前我还期待小野学呢，这已经洗不动了，多给几下平A再拼力气都好啊，擅自期待的我就像傻子一样。<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7545,23 +5002,15 @@ OP/ED各种重复镜头（当然OP那段打戏还可以），正片打戏就是�
 ##### 1881#       发表于 2019-1-13 02:03
 
 
-
-
 话说新op感觉好廉价啊。a1降低在刀剑上的投入了?
 
 —— 来自 HUAWEI VTR-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
 
 ####  Wilmes  
 ##### 1882#       发表于 2019-1-13 02:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42255526&amp;ptid=1550732" target="_blank">haibara 发表于 2019-1-13 01:58</a>
@@ -7573,16 +5022,10 @@ OP/ED各种重复镜头（当然OP那段打戏还可以），正片打戏就是�
 设定讲解砍了也能理解，毕竟如果全部做出来太占用时间，也会带坏节奏；不过你这打戏是什么情况啊？站桩加特效就行了？更别说人物侧脸总有崩坏，新一集甚至还有些掉帧，总的来说emmm，md坑啊
 
 
-
-
-
-
-
 -----
 
 ####  Wilmes  
 ##### 1883#       发表于 2019-1-13 02:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42255554&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-1-13 02:03</a>
@@ -7594,16 +5037,10 @@ OP/ED各种重复镜头（当然OP那段打戏还可以），正片打戏就是�
 我在b站看的时候还有人发弹幕吹爆op，评论也有不少，我就<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这新op和ADAMAS一比根本不行啊
 
 
-
-
-
-
-
 -----
 
 ####  天堂懵懂人  
 ##### 1884#       发表于 2019-1-13 02:12
-
 
 
  本帖最后由 天堂懵懂人 于 2019-1-13 02:13 编辑 
@@ -7617,26 +5054,15 @@ OP/ED各种重复镜头（当然OP那段打戏还可以），正片打戏就是�
 —— 来自 OnePlus ONEPLUS A3010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 1885#       发表于 2019-1-13 02:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42255513&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-1-13 01:55</a>
 最终战当然是看女主角的表现啊</blockquote>
 那不还是特效对a么……
-
-
-
-
-
 
 
 -----
@@ -7645,14 +5071,7 @@ OP/ED各种重复镜头（当然OP那段打戏还可以），正片打戏就是�
 ##### 1886#       发表于 2019-1-13 02:30
 
 
-
-
 越看越无聊，跳车了
-
-
-
-
-
 
 
 -----
@@ -7661,16 +5080,10 @@ OP/ED各种重复镜头（当然OP那段打戏还可以），正片打戏就是�
 ##### 1887#       发表于 2019-1-13 02:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">熟悉小野学都知道做刀剑怎么可能好得过伊藤智彦....
 
 
 就剧场版最后raid的那段,小野学这辈子都做不出来
-
-
-
-
-
 
 
 -----
@@ -7679,21 +5092,13 @@ OP/ED各种重复镜头（当然OP那段打戏还可以），正片打戏就是�
 ##### 1888#       发表于 2019-1-13 03:47
 
 
-
-
 同样的小野学，川上稔＞佐岛勤＞川原砾？
-
-
-
-
-
 
 
 -----
 
 ####  reekilynn  
 ##### 1889#       发表于 2019-1-13 04:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42255819&amp;ptid=1550732" target="_blank">LilighT 发表于 2019-1-13 03:47</a>
@@ -7703,16 +5108,10 @@ OP/ED各种重复镜头（当然OP那段打戏还可以），正片打戏就是�
 没了连续技打底，战斗的流畅性自然就有很大问题。
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 1890#       发表于 2019-1-13 04:24
-
 
 
  本帖最后由 reekilynn 于 2019-1-13 04:43 编辑 
@@ -7728,32 +5127,19 @@ OP/ED各种重复镜头（当然OP那段打戏还可以），正片打戏就是�
 admin…什么都会什么都精，要不是丢了一条胳膊+废掉了剑(那把剑还起到神圣术电池的作用)，桐人没有任何胜算。其实admin真的是把自己浪死的。
 
 
-
-
-
-
-
 -----
 
 ####  dropdead  
 ##### 1891#       发表于 2019-1-13 05:46
 
 
-
-
 能打的都在OP然后正片摸了？这OP也不如第一个
-
-
-
-
-
 
 
 -----
 
 ####  汤武革命  
 ##### 1892#       发表于 2019-1-13 08:58
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">OP真是差一口气，ED还是挺不错的。
@@ -7763,26 +5149,15 @@ admin…什么都会什么都精，要不是丢了一条胳膊+废掉了剑(那�
 后面的解说果然还是闷
 
 
-
-
-
-
-
 -----
 
 ####  cybernetics  
 ##### 1893#       发表于 2019-1-13 09:02
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">op真不咋地，ed还行。
 
 小野学是真的按原作来啊，这打斗加了一堆特效咋还不如你当年的魔劣有来回呢，年番的经费不是这么花的啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7791,21 +5166,13 @@ admin…什么都会什么都精，要不是丢了一条胳膊+废掉了剑(那�
 ##### 1894#       发表于 2019-1-13 09:44
 
 
-
-
 站桩真不好看<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 1895#       发表于 2019-1-13 10:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42255867&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-01-13 04:16:10</a>
@@ -7815,25 +5182,13 @@ admin…什么都会什么都精，要不是丢了一条胳膊+废掉了剑(那�
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Yeaha123  
 ##### 1896#       发表于 2019-1-13 11:39
 
 
-
-
 删剧情，打斗难看，这是sao最烂的一季了
-
-
-
-
-
 
 
 -----
@@ -7842,17 +5197,10 @@ admin…什么都会什么都精，要不是丢了一条胳膊+废掉了剑(那�
 ##### 1897#       发表于 2019-1-13 12:03
 
 
-
-
 比上不足比下有余，的确和序列之争最后的100层BOSS战相比没激情，但起码比隔壁魔禁好多了，我觉得还行<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
 以及本集又出现了名台词“不要停下来啊！”小说原文有这句话吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7861,21 +5209,13 @@ admin…什么都会什么都精，要不是丢了一条胳膊+废掉了剑(那�
 ##### 1898#       发表于 2019-1-13 12:40
 
 
-
-
 op迷之卡顿，是B站又压出锅了吗？
-
-
-
-
-
 
 
 -----
 
 ####  芝士排骨  
 ##### 1899#       发表于 2019-1-13 12:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42255867&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-1-13 04:16</a>
@@ -7886,16 +5226,10 @@ op迷之卡顿，是B站又压出锅了吗？
 —— 来自 HUAWEI VTR-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1900#       发表于 2019-1-13 12:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42258300&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-1-13 12:42</a>
@@ -7907,16 +5241,10 @@ op迷之卡顿，是B站又压出锅了吗？
 平A和剑技的差距巨大，你平A过去别人一个剑技过来你输定了
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 1901#       发表于 2019-1-13 12:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42257922&amp;ptid=1550732" target="_blank">AincradWanderer 发表于 2019-1-13 12:03</a>
@@ -7924,16 +5252,10 @@ op迷之卡顿，是B站又压出锅了吗？
 我记得有。
 
 
-
-
-
-
-
 -----
 
 ####  深绘白描  
 ##### 1902#       发表于 2019-1-13 13:27
-
 
 
  本帖最后由 深绘白描 于 2019-1-13 13:32 编辑 
@@ -7943,26 +5265,15 @@ op迷之卡顿，是B站又压出锅了吗？
 如果没有这句话，UGO再和桐人互相喊两遍名字，那真是难以忍受，我也只能强行说服自己火焰弓大哥技能CD长，硬直高，那这段还算能看
 
 
-
-
-
-
-
 -----
 
 ####  任天索尼子  
 ##### 1903#       发表于 2019-1-13 13:30
 
 
-
 <blockquote>AincradWanderer 发表于 2019-1-13 12:03
 比上不足比下有余，的确和序列之争最后的100层BOSS战相比没激情，但起码比隔壁魔禁好多了，我觉得还行[f:06 ...</blockquote>
 魔禁什么待遇 sao什么待遇 这么比好意思么。你给魔禁也来个年番啊
-
-
-
-
-
 
 
 -----
@@ -7971,16 +5282,9 @@ op迷之卡顿，是B站又压出锅了吗？
 ##### 1904#       发表于 2019-1-13 13:31
 
 
-
-
 还有特别想吐槽OP第一秒黑幕二人转
 
 虽然大家喜欢看二人转没错，但是连BB素材都直接给好的制作组是鉴（可能吧）
-
-
-
-
-
 
 
 -----
@@ -7989,21 +5293,13 @@ op迷之卡顿，是B站又压出锅了吗？
 ##### 1905#       发表于 2019-1-13 13:54
 
 
-
-
 这集刀剑III翻身了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有
-
-
-
-
-
 
 
 -----
 
 ####  芝士排骨  
 ##### 1906#       发表于 2019-1-13 13:55
-
 
 
  本帖最后由 芝士排骨 于 2019-1-13 13:59 编辑 
@@ -8017,32 +5313,19 @@ op迷之卡顿，是B站又压出锅了吗？
 —— 来自 HUAWEI VTR-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  fanisy  
 ##### 1907#       发表于 2019-1-13 13:56
 
 
-
-
 连续4次打戏都用这种弱智演出方式，让我怀疑制作组是不是故意卖蠢。 明明打哥布林不是做得挺好？
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 1908#       发表于 2019-1-13 14:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42258907&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-1-13 13:55</a>
@@ -8058,17 +5341,10 @@ op迷之卡顿，是B站又压出锅了吗？
 只是因为删掉了小镇的比武大会和学园的入学考试所以人界群众们的单调剑技看动画的只能从剧情中去理解，这种是任何一部动画化的几乎无法避免的缺失的一环。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1909#       发表于 2019-1-13 14:13
-
-
 
 
 1.好像是OP还没完成，所以是这样
@@ -8079,33 +5355,19 @@ op迷之卡顿，是B站又压出锅了吗？
 这集主要是打完后和大叔的对话太站桩了，这段不好看，其他还算过得去吧
 
 
-
-
-
-
-
 -----
 
 ####  dragonfalls  
 ##### 1910#       发表于 2019-1-13 14:20
 
 
-
-
 原来不止我一人掉帧。。我以为刀剑还玩起减帧来了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Mr.BBWoLf  
 ##### 1911#       发表于 2019-1-13 17:13
-
-
 
 
 如果是小说或游戏，见到敌人，直接开技能打一套把对面秒了是很正常的事，在短短几秒或十几秒之间。
@@ -8115,24 +5377,13 @@ op迷之卡顿，是B站又压出锅了吗？
 这集脚本和演出都没什么想法吗？
 
 
-
-
-
-
-
 -----
 
 ####  zechins  
 ##### 1912#       发表于 2019-1-13 19:45
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">有点担心ugo和骑士长那场也是站桩嘴炮然后扔个宝具完事
-
-
-
-
-
 
 
 -----
@@ -8141,23 +5392,15 @@ op迷之卡顿，是B站又压出锅了吗？
 ##### 1913#       发表于 2019-1-13 19:59
 
 
-
-
 这新OP的调有魔劣的感觉 但是正片打斗差远了……
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  皇马王子劳尔  
 ##### 1914#       发表于 2019-1-14 06:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42255499&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-1-13 01:52</a>
@@ -8168,16 +5411,10 @@ op迷之卡顿，是B站又压出锅了吗？
 我寻思整个前半最终战里唯一打赢的只有vs丘德尔金一场吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 1915#       发表于 2019-1-14 22:09
-
 
 
  本帖最后由 mhss 于 2019-1-14 22:13 编辑 
@@ -8197,27 +5434,15 @@ OP开头就感觉没钱了
 这大叔我感觉后面会出来挡枪死掉，认命不可能，继续追击桐人他们更不可能
 
 
-
-
-
-
-
 -----
 
 ####  天堂懵懂人  
 ##### 1916#       发表于 2019-1-15 17:43
 
 
-
-
 周二了 寻思着应该有先行图了？
 
 —— 来自 OnePlus ONEPLUS A3010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -8226,22 +5451,13 @@ OP开头就感觉没钱了
 ##### 1917#       发表于 2019-1-15 23:11
 
 
-
-
 打斗演出太差了，这经费真是浪费啊
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 1918#       发表于 2019-1-16 16:31
-
-
 
 
 第15話 烈日の騎士
@@ -8263,24 +5479,13 @@ OP开头就感觉没钱了
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fz8iafb85wj20p00e2jti.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  天堂懵懂人  
 ##### 1919#       发表于 2019-1-16 17:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">虽然迟了一天 不过这四张图看着似乎难得的没啥问题
-
-
-
-
-
 
 
 -----
@@ -8289,16 +5494,10 @@ OP开头就感觉没钱了
 ##### 1920#       发表于 2019-1-16 18:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42296132&amp;ptid=1550732" target="_blank">天堂懵懂人 发表于 2019-1-16 17:08</a>
 
 虽然迟了一天 不过这四张图看着似乎难得的没啥问题</blockquote>
 上一集那四张先行图我寻思也没啥问题<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8307,16 +5506,9 @@ OP开头就感觉没钱了
 ##### 1921#       发表于 2019-1-17 16:13
 
 
-
-
 ソードアート・オンライン　アリシゼーション 第15話「烈日の騎士」 予告映像
 [https://www.youtube.com/watch?v=3DYvxmAuN90](https://www.youtube.com/watch?v=3DYvxmAuN90)
 [https://weibo.com/tv/v/HcmWXsIMU?fid=1034:4329481481987647](https://weibo.com/tv/v/HcmWXsIMU?fid=1034:4329481481987647)
-
-
-
-
-
 
 
 -----
@@ -8325,13 +5517,7 @@ OP开头就感觉没钱了
 ##### 1922#       发表于 2019-1-19 23:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">左右分屏的对战
-
-
-
-
-
 
 
 -----
@@ -8340,15 +5526,8 @@ OP开头就感觉没钱了
 ##### 1923#       发表于 2019-1-19 23:32
 
 
-
-
 2/27（水）発売のBD＆DVD Vol.2完全生産限定版特典、キャラクター原案：abec先生による描き下ろし収納BOXのイラストを公開！
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fzcbb7m4ooj20xc0dk4qp.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8357,14 +5536,7 @@ OP开头就感觉没钱了
 ##### 1924#       发表于 2019-1-20 00:56
 
 
-
-
 虽然对剑时那个画法很喜感不过这集的战斗观感还不错<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8373,14 +5545,7 @@ OP开头就感觉没钱了
 ##### 1925#       发表于 2019-1-20 00:56
 
 
-
-
 这话比上集强多了 虽然中间那段站桩和鬼畜打斗还是有点蠢。
-
-
-
-
-
 
 
 -----
@@ -8389,14 +5554,7 @@ OP开头就感觉没钱了
 ##### 1926#       发表于 2019-1-20 00:59
 
 
-
-
 这么说来川原又把两个熊孩子性转的锅扣到了三木头上。
-
-
-
-
-
 
 
 -----
@@ -8405,14 +5563,7 @@ OP开头就感觉没钱了
 ##### 1927#       发表于 2019-1-20 01:03
 
 
-
-
 王八剑法笑出声来
-
-
-
-
-
 
 
 -----
@@ -8421,16 +5572,10 @@ OP开头就感觉没钱了
 ##### 1928#       发表于 2019-1-20 01:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42329380&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-1-20 00:59</a>
 
 这么说来川原又把两个熊孩子性转的锅扣到了三木头上。</blockquote>
 直叶的巨R，诗乃的眼镜，熊孩子的性转，还有什么三木的锅吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8439,16 +5584,9 @@ OP开头就感觉没钱了
 ##### 1929#       发表于 2019-1-20 01:07
 
 
-
-
 这集打得还行，一副尽力了的样子
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -8457,14 +5595,7 @@ OP开头就感觉没钱了
 ##### 1930#       发表于 2019-1-20 01:12
 
 
-
-
 王八剑法有点真实，剧情进度倒是推得稳健，不影响主线叙事的琐碎桥段基本都删了
-
-
-
-
-
 
 
 -----
@@ -8473,14 +5604,7 @@ OP开头就感觉没钱了
 ##### 1931#       发表于 2019-1-20 01:12
 
 
-
-
 虽然观感回来了点，但是小野学这样不背锅式的改编真的没意思，川原就一写小说的，他懂个P的战斗描写，你适当改编一下不影响结果就行了，这样照搬的做，资源丢进去了效果也不好，何必呢。
-
-
-
-
-
 
 
 -----
@@ -8489,15 +5613,9 @@ OP开头就感觉没钱了
 ##### 1932#       发表于 2019-1-20 01:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42329469&amp;ptid=1550732" target="_blank">不是很懂二次元 发表于 2019-1-20 01:12</a>
 虽然观感回来了点，但是小野学这样不背锅式的改编真的没意思，川原就一写小说的，他懂个P的战斗描写，你适 ...</blockquote>
 这么说来佐岛的战斗描写怎么样的
-
-
-
-
-
 
 
 -----
@@ -8506,23 +5624,15 @@ OP开头就感觉没钱了
 ##### 1933#       发表于 2019-1-20 01:40
 
 
-
-
 OP完成了，加了一段优吉欧VS骑士长的
 
 这集看着不错
-
-
-
-
-
 
 
 -----
 
 ####  不是很懂二次元  
 ##### 1934#       发表于 2019-1-20 01:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42329484&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-1-20 01:14</a>
@@ -8542,33 +5652,19 @@ OP完成了，加了一段优吉欧VS骑士长的
 哪怕是这一话其实看得出吃了挺多资源的，二人原画至少说明工期上这一话绝对给足了，放在别的动画里这资源可能是高潮回了，然后这一话观感还是卡在一个不上不下尴尬的点。我不知道小野学是怕背锅还是因为刀剑IP太大有很多大人的原因，反正最后他还是背锅了。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1935#       发表于 2019-1-20 02:01
 
 
-
-
 从这一话来看爬塔的最终战合后半年的大混战还是可以期待下的
-
-
-
-
-
 
 
 -----
 
 ####  dafangwoo  
 ##### 1936#       发表于 2019-1-20 02:06
-
-
 
 
 没仔细看ed
@@ -8580,25 +5676,13 @@ OP完成了，加了一段优吉欧VS骑士长的
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  wyhman  
 ##### 1937#       发表于 2019-1-20 02:49
 
 
-
-
 知足点挺好，这集观感可以
-
-
-
-
-
 
 
 -----
@@ -8607,14 +5691,7 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1938#       发表于 2019-1-20 03:07
 
 
-
-
 这集打戏除了电焊和王八剑法以外好多了……话说我记得前两季和游戏里的剑法都没那么尬啊……
-
-
-
-
-
 
 
 -----
@@ -8623,15 +5700,9 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1939#       发表于 2019-1-20 03:31
 
 
-
  本帖最后由 sevencoolmax 于 2019-1-20 03:39 编辑 
 
 哎，这打斗还是一言难尽，完全照搬书尬到飞起，要是交给madhouse或者骨头社就不会是这吊样…………小野学你就这么喜欢左右分屏么，快要受不了
-
-
-
-
-
 
 
 -----
@@ -8640,16 +5711,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1940#       发表于 2019-1-20 10:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42329484&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-1-20 01:14</a>
 
 这么说来佐岛的战斗描写怎么样的</blockquote>
 佐岛烂的要死，打着打着就要说一点设定说明文，为啥之前我还期待一下小野学就是因为他把魔劣里头的打斗改的还不错，至少到了能看的程度，然而刀剑是啥的没改。。。。。
-
-
-
-
-
 
 
 -----
@@ -8658,16 +5723,9 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1941#       发表于 2019-1-20 10:40
 
 
-
-
 这集打的比上集舒服多了  但是总体感觉也比较一般
 
 —— 来自 Meizu 15 Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -8676,13 +5734,7 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1942#       发表于 2019-1-20 10:45
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么这集又是不要停下来
-
-
-
-
-
 
 
 -----
@@ -8691,14 +5743,7 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1943#       发表于 2019-1-20 11:01
 
 
-
-
 自带解说，嘴炮，加上打斗越来越欢乐了。
-
-
-
-
-
 
 
 -----
@@ -8707,13 +5752,7 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1944#       发表于 2019-1-20 11:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这打斗你们就满足了啊 那段高速对剑的打斗都看笑了 突然想到加速黑王对黄王那段打斗真的比这个好太多了 也不知道是谁的锅 经费是有的 可总觉得没花在刀刃上
-
-
-
-
-
 
 
 -----
@@ -8722,14 +5761,7 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1945#       发表于 2019-1-20 12:51
 
 
-
-
 不用讲了就是A1不行 A1就是个弟弟 A1本来做打斗就比不过业界标杆的如PIG 骨头 疯房子 日升等动画公司 甚至比同样是去年10的轻改半年番 不管是作画质量还是打戏都优秀的史莱姆完爆 要求那么高干嘛 我觉得这集打戏挺不错了 果然还是因为SAO太出名死黑子多吗
-
-
-
-
-
 
 
 -----
@@ -8738,16 +5770,9 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1946#       发表于 2019-1-20 12:54
 
 
-
-
 还可以了这集。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -8756,24 +5781,15 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1947#       发表于 2019-1-20 12:55
 
 
-
-
 满脑子的时髦神万解既视感<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  没取名啊  
 ##### 1948#       发表于 2019-1-20 21:36
-
-
 
 
 感觉这集可以的，就是这个全损音质的音效实在是恼人，对剑时好几个音效糊在一起噼里啪啦的，感觉这集的音效除了天穿剑发射前那声“叮”以外没一个好听的。
@@ -8783,31 +5799,19 @@ OP完成了，加了一段优吉欧VS骑士长的
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  zikimi  
 ##### 1949#       发表于 2019-1-20 23:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> CW虽然是从A1分出来的，两边人马又几乎都是共用的，但我觉得让福岛P带着CW的人做可能会比现在A1本社做好看太多吧
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 1950#       发表于 2019-1-21 00:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42332483&amp;ptid=1550732" target="_blank">青菜子 发表于 2019-1-20 12:55</a>
@@ -8819,25 +5823,13 @@ OP完成了，加了一段优吉欧VS骑士长的
 这武装完全支配术和记忆解放本身就是那个路数
 
 
-
-
-
-
-
 -----
 
 ####  b2c  
 ##### 1951#       发表于 2019-1-21 05:37
 
 
-
-
 这集桐人反杀俩熊孩子那段我真的想求本子了
-
-
-
-
-
 
 
 -----
@@ -8846,14 +5838,7 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1952#       发表于 2019-1-21 08:43
 
 
-
-
 我本来以为要是男人就上100层的，这怎么这样就直接到顶楼了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8862,13 +5847,7 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1953#       发表于 2019-1-21 09:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">虽然打斗比之前的站桩好了一点，但我感觉演出还是很尬啊，节奏也感觉不太好
-
-
-
-
-
 
 
 -----
@@ -8877,22 +5856,15 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1954#       发表于 2019-1-21 16:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">这集OP开头双人舞剑比起上一集的纯黑背景多了几个音游特效 怎么回事 
 
 上一集的OP没做完吗？
-
-
-
-
-
 
 
 -----
 
 ####  dragonfalls  
 ##### 1955#       发表于 2019-1-21 16:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42344725&amp;ptid=1550732" target="_blank">深绘白描 发表于 2019-1-21 16:16</a>
@@ -8903,25 +5875,13 @@ OP完成了，加了一段优吉欧VS骑士长的
 不止这点啊。。OP多加了一段优吉欧和大叔的澡堂打戏。。顺便一提这段打戏是国人原画师黄成希负责的 [https://weibo.com/1948805307/HcQ8k3nTG](https://weibo.com/1948805307/HcQ8k3nTG)
 
 
-
-
-
-
-
 -----
 
 ####  szzyf7  
 ##### 1956#       发表于 2019-1-21 18:04
 
 
-
-
 动画这个天穿剑大招太沙比了..........按照球体辐射先死的不是自己么
-
-
-
-
-
 
 
 -----
@@ -8930,16 +5890,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1957#       发表于 2019-1-21 19:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42339342&amp;ptid=1550732" target="_blank">jiangmaomao123 发表于 2019-1-21 08:43</a>
 
 我本来以为要是男人就上100层的，这怎么这样就直接到顶楼了</blockquote>
 这才50层啊
-
-
-
-
-
 
 
 -----
@@ -8948,14 +5902,7 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1958#       发表于 2019-1-21 19:18
 
 
-
-
 德田一人身担多职也是尽力做了，作画上也有保证。可是在剧情好像有一些很重要的部分没有交代出来感情上的逻辑不是很能理解，打得有点神棍看着这集内心有点落差。
-
-
-
-
-
 
 
 -----
@@ -8964,13 +5911,7 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1959#       发表于 2019-1-21 19:27
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么两人对剑的时候还混着吨吨那种打到钝器的音效的
-
-
-
-
-
 
 
 -----
@@ -8979,14 +5920,7 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1960#       发表于 2019-1-21 20:07
 
 
-
-
 感觉比前两季观感差，BGM和新的OP也是毫无感觉
-
-
-
-
-
 
 
 -----
@@ -8995,19 +5929,12 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1961#       发表于 2019-1-21 20:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42345967&amp;ptid=1550732" target="_blank">szzyf7 发表于 2019-1-21 18:04</a>
 动画这个天穿剑大招太沙比了..........按照球体辐射先死的不是自己么</blockquote>
 动画组很好的做出了这种傻屌感
 
 
-
 只打中桐人一发，自己却中了四五发（
-
-
-
-
-
 
 
 -----
@@ -9016,23 +5943,15 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1962#       发表于 2019-1-21 22:08
 
 
-
-
 对面的整合骑士：我就静静地听你放完嘴炮再来放我的光炮<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 太蠢了，这演出实在太蠢了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  深绘白描  
 ##### 1963#       发表于 2019-1-22 06:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42345052&amp;ptid=1550732" target="_blank">dragonfalls 发表于 2019-1-21 16:43</a>
@@ -9045,16 +5964,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 他也太强了吧
 
 
-
-
-
-
-
 -----
 
 ####  dragonfalls  
 ##### 1964#       发表于 2019-1-22 08:00
-
 
 
  本帖最后由 dragonfalls 于 2019-1-22 08:07 编辑 
@@ -9068,16 +5981,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 毕竟博人传65集的作画监督[https://www.bilibili.com/bangumi/play/ep202723](https://www.bilibili.com/bangumi/play/ep202723)，火影的那批人都很厉害<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  镜hinata  
 ##### 1965#       发表于 2019-1-22 11:07
-
 
 
 <blockquote>引用第1961楼mhss于2019-01-21 22:08发表的  :
@@ -9091,16 +5998,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 1966#       发表于 2019-1-22 11:13
-
 
 
  本帖最后由 mhss 于 2019-1-22 11:14 编辑 
@@ -9116,16 +6017,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 —— 来自 Sony H8296, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1967#       发表于 2019-1-22 12:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42352116&amp;ptid=1550732" target="_blank">mhss 发表于 2019-1-22 11:13</a>
@@ -9140,16 +6035,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 下集整合骑士第二强的爱丽丝上线就可以颠覆你这个认知了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 1968#       发表于 2019-1-22 12:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42352709&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-1-22 12:03</a>
@@ -9158,16 +6047,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 虽然吹得很神，就看到时候动画做出来的效果了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1969#       发表于 2019-1-22 12:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42352907&amp;ptid=1550732" target="_blank">mhss 发表于 2019-1-22 12:21</a>
@@ -9178,16 +6061,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 虽然说爱丽丝这边是有身体能力和武器优先度的优势以及UW的特殊环境在，但是放在整个SAO作品中能把桐人在剑技对决中这样按在地上暴打的角色并不多，上一个做到了这个事的角色叫茅场，下一个做到这个事的角色叫Administrator<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">嘛文库版的话死枪姑且也算一个，不过GGO环境下桐人本身实力发挥受一定限制而且武器的相性太差（
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1970#       发表于 2019-1-22 12:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42352709&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-01-22 12:03:08</a>
@@ -9196,16 +6073,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1971#       发表于 2019-1-22 13:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42353173&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-1-22 12:50</a>
@@ -9216,32 +6087,19 @@ OP完成了，加了一段优吉欧VS骑士长的
 不过考虑到前两战对老7和副骑士长两人时也没那么大劣势，真的就是爱丽丝强（
 
 
-
-
-
-
-
 -----
 
 ####  天堂懵懂人  
 ##### 1972#       发表于 2019-1-23 13:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">又是周三了还没先行图，这周也要翻身了么
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 1973#       发表于 2019-1-23 13:35
-
-
 
 
 第16話 金木犀の騎士
@@ -9266,24 +6124,13 @@ OP完成了，加了一段优吉欧VS骑士长的
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fzggi5pzntj20p00e278o.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  破鞋三公主  
 ##### 1974#       发表于 2019-1-23 14:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">重看了一下打斗部分，原来两人站桩的时候是在烧焊啊
-
-
-
-
-
 
 
 -----
@@ -9292,14 +6139,7 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1975#       发表于 2019-1-23 17:27
 
 
-
-
 黄成这样和背景绿成那样......怕了这色调了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9308,23 +6148,15 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1976#       发表于 2019-1-23 17:42
 
 
-
-
 升降機妹子prpr<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 後面還有戲份嗎？
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 1977#       发表于 2019-1-24 01:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42367412&amp;ptid=1550732" target="_blank">shadow001 发表于 2019-1-23 17:42</a>
@@ -9335,27 +6167,15 @@ OP完成了，加了一段优吉欧VS骑士长的
 要有戏份需要到星王登基历程了吧，但这个篇章做不到那里，而且感觉19、20卷那些以后应该还会像番外篇的形式继续写。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1978#       发表于 2019-1-24 18:14
 
 
-
-
 ソードアート・オンライン　アリシゼーション 第16話「金木犀の騎士」 予告映像
 [https://www.youtube.com/watch?v=SLFxPHP91n8](https://www.youtube.com/watch?v=SLFxPHP91n8)
 [https://weibo.com/tv/v/HdrIkv3qK?fid=1034:4332047779481453](https://weibo.com/tv/v/HdrIkv3qK?fid=1034:4332047779481453)
-
-
-
-
-
 
 
 -----
@@ -9364,24 +6184,16 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1979#       发表于 2019-1-26 14:22
 
 
-
-
 其实我很奇怪为什么要设计升降机妹子和熊孩子这三个人物。没什么塑造，对剧情推动作用好像也不大，只是人形电梯。特别是升降机妹子，后面干脆没戏份了（番外露个脸）。
 
 
 话说web版完结和uw文库版完结差这么多年，川原也没有对剧情优化，真的偷懒。明明uw优缺点都蛮明显的。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 1980#       发表于 2019-1-26 16:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42395907&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-1-26 14:22</a>
@@ -9392,17 +6204,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 与贵族制度所不同的扭曲。
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 1981#       发表于 2019-1-26 18:15
-
-
 
 
 刚看完15集，好游戏化啊。一阶段，过场嘴炮，二阶段，过场嘴炮，三阶段，boss自杀攻击。
@@ -9414,18 +6219,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 不过脚本写成战斗中焊剑嘴炮这样，德田发挥再好也救不了
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 1982#       发表于 2019-1-26 23:33
-
-
-
 
 
 2/27（水）発売のBD＆DVD Vol.2のジャケットイラストを本日解禁！
@@ -9434,26 +6231,14 @@ OP完成了，加了一段优吉欧VS骑士长的
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fzkepsoqmmj20qq0xc439.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 1983#       发表于 2019-1-27 00:12
 
 
-
-
 所以说我对uw的打斗就不抱多少指望。
 实际上还是因为uw是一个剧情为设定服务的篇章…
-
-
-
-
-
 
 
 -----
@@ -9462,21 +6247,13 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1984#       发表于 2019-1-27 00:18
 
 
-
-
 这周真的不行
-
-
-
-
-
 
 
 -----
 
 ####  芝士排骨  
 ##### 1985#       发表于 2019-1-27 00:41
-
 
 
  本帖最后由 芝士排骨 于 2019-1-27 01:05 编辑 
@@ -9489,27 +6266,15 @@ OP完成了，加了一段优吉欧VS骑士长的
 —— 来自 HUAWEI VTR-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  共和政治文彦博  
 ##### 1986#       发表于 2019-1-27 00:54
 
 
-
-
 这打斗怎么过关的。
 
 —— 来自 samsung SM-G9508, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2-play
-
-
-
-
-
 
 
 -----
@@ -9518,14 +6283,7 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1987#       发表于 2019-1-27 00:56
 
 
-
-
 感觉爱丽丝和桐人对剑那里不要慢镜头那么多效果会更好吧……嘛，虽然从篇幅角度考虑确实有必要拖这个时间。
-
-
-
-
-
 
 
 -----
@@ -9534,14 +6292,7 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1988#       发表于 2019-1-27 01:00
 
 
-
-
 慢镜头+缺帧，本来万分紧急的关头演不出紧迫感，人脸崩坏增多，这是要凉凉的感觉
-
-
-
-
-
 
 
 -----
@@ -9550,16 +6301,9 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1989#       发表于 2019-1-27 01:08
 
 
-
-
 真的不好看，pose都不会摆，音效有问题，演出感觉也不好
 
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -9568,14 +6312,7 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1990#       发表于 2019-1-27 01:15
 
 
-
-
 看来下一话要幽会一整话了
-
-
-
-
-
 
 
 -----
@@ -9584,14 +6321,7 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1991#       发表于 2019-1-27 01:22
 
 
-
-
 下集爬塔再做不好就直接-2了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9600,17 +6330,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1992#       发表于 2019-1-27 01:34
 
 
-
-
 我现在希望销量低点，a1是不是觉得这ip怎样敷衍都能榨到钱?sao系列正传动画还是就此结束吧。
 (进击篇的糖还是要吃的
 
 —— 来自 HUAWEI VTR-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -9619,14 +6342,7 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1993#       发表于 2019-1-27 01:48
 
 
-
-
 这片A1怎么也不算敷衍吧，SAO在我看来一直就这质量，也就剧场版好一个档次
-
-
-
-
-
 
 
 -----
@@ -9635,13 +6351,7 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1994#       发表于 2019-1-27 01:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所以接下来就是桐人和爱丽丝在外面二人世界，那优吉欧在塔里干啥
-
-
-
-
-
 
 
 -----
@@ -9650,13 +6360,7 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1995#       发表于 2019-1-27 01:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">下一集又到了挂哥一晚泡个妞的回合
-
-
-
-
-
 
 
 -----
@@ -9665,16 +6369,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1996#       发表于 2019-1-27 01:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42400694&amp;ptid=1550732" target="_blank">xingenge 发表于 2019-1-27 01:53</a>
 
 所以接下来就是桐人和爱丽丝在外面二人世界，那优吉欧在塔里干啥</blockquote>
 和坂本真绫做一些不可言状之事
-
-
-
-
-
 
 
 -----
@@ -9683,22 +6381,15 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 1997#       发表于 2019-1-27 01:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42400694&amp;ptid=1550732" target="_blank">xingenge 发表于 2019-1-27 01:53</a>
 所以接下来就是桐人和爱丽丝在外面二人世界，那优吉欧在塔里干啥</blockquote>
 嘿嘿嘿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  起晨Fly  
 ##### 1998#       发表于 2019-1-27 02:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42400694&amp;ptid=1550732" target="_blank">xingenge 发表于 2019-1-27 01:53</a>
@@ -9708,16 +6399,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 —— 来自 HUAWEI LON-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 1999#       发表于 2019-1-27 07:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42400797&amp;ptid=1550732" target="_blank">起晨Fly 发表于 2019-01-27 02:21:46</a>
@@ -9728,25 +6413,13 @@ OP完成了，加了一段优吉欧VS骑士长的
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  紅天蛾  
 ##### 2000#       发表于 2019-1-27 09:25
 
 
-
-
 例行的荒岛剧情咯。
-
-
-
-
-
 
 
 -----
@@ -9755,13 +6428,7 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 2001#       发表于 2019-1-27 09:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9770,14 +6437,7 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 2002#       发表于 2019-1-27 09:54
 
 
-
-
 这打戏是真的不行啊，武装完全支配术居然做成赛亚人对波，之后桐人对战爱丽丝的部分也是一点都不流畅<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9786,16 +6446,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 2003#       发表于 2019-1-27 11:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42400707&amp;ptid=1550732" target="_blank">任天索尼子 发表于 2019-1-27 01:56</a>
 
 和坂本真绫做一些不可言状之事</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9804,16 +6458,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 2004#       发表于 2019-1-27 11:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42400707&amp;ptid=1550732" target="_blank">任天索尼子 发表于 2019-01-27 01:56:47</a>
 和坂本真绫做一些不可言状之事</blockquote>这段大概要看下载了，画面上比之前的弓虽女干更过
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -9822,14 +6470,7 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 2005#       发表于 2019-1-27 11:47
 
 
-
-
 死神的时髦度还是高，我在脑内卧槽：剑还能这样玩的吗的稍后想到了千本樱
-
-
-
-
-
 
 
 -----
@@ -9838,21 +6479,13 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 2006#       发表于 2019-1-27 11:50
 
 
-
-
 这集特效还是拉满了呀
-
-
-
-
-
 
 
 -----
 
 ####  cccjjjhhh  
 ##### 2007#       发表于 2019-1-27 12:08
-
 
 
  本帖最后由 cccjjjhhh 于 2019-1-27 15:23 编辑 
@@ -9869,16 +6502,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 优吉欧这处男被那么简单就勾走了不说，最后别说进去了。摸都没摸一下就被洗脑了
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2008#       发表于 2019-1-27 12:09
-
 
 
  本帖最后由 月夜凝雪 于 2019-1-27 18:15 编辑 
@@ -9890,16 +6517,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2009#       发表于 2019-1-27 12:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42403133&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-1-27 12:09</a>
@@ -9909,17 +6530,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 我怀疑admin也就对他这么干过…
 
 
-
-
-
-
-
 -----
 
 ####  eienyami  
 ##### 2010#       发表于 2019-1-27 13:47
-
-
 
 
 怎么觉得从你们话里 20话就要完结闯塔的样子。。。
@@ -9927,16 +6541,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 后面有那么多灭世入侵的剧情吗？
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2011#       发表于 2019-1-27 14:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42404005&amp;ptid=1550732" target="_blank">eienyami 发表于 2019-1-27 13:47</a>
@@ -9949,32 +6557,19 @@ OP完成了，加了一段优吉欧VS骑士长的
 爬塔剧情肯定是做到这个半年结束的。
 
 
-
-
-
-
-
 -----
 
 ####  dragonfalls  
 ##### 2012#       发表于 2019-1-27 14:11
 
 
-
-
 说起来暗之国好像没有咏唱我记得？应该等到大战就不用站桩了？
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2013#       发表于 2019-1-27 14:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42404189&amp;ptid=1550732" target="_blank">dragonfalls 发表于 2019-1-27 14:11</a>
@@ -9985,16 +6580,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 川原没写咏唱句o
 
 
-
-
-
-
-
 -----
 
 ####  cccjjjhhh  
 ##### 2014#       发表于 2019-1-27 15:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42403133&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-1-27 12:09</a>
@@ -10006,26 +6595,15 @@ OP完成了，加了一段优吉欧VS骑士长的
 噗，没注意，赶快加上反白
 
 
-
-
-
-
-
 -----
 
 ####  绯冉老师  
 ##### 2015#       发表于 2019-1-27 17:37
 
 
-
  本帖最后由 绯冉老师 于 2019-1-27 17:38 编辑 
 
 16话完了，如果没记错，还有大概两册讲完到大战篇前吧……
-
-
-
-
-
 
 
 -----
@@ -10034,16 +6612,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 2016#       发表于 2019-1-27 20:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42405752&amp;ptid=1550732" target="_blank">绯冉老师 发表于 2019-1-27 17:37</a>
 
 16话完了，如果没记错，还有大概两册讲完到大战篇前吧……</blockquote>
 爬塔篇章半年，大战篇章半年，基本是这个进度了。
-
-
-
-
-
 
 
 -----
@@ -10052,14 +6624,7 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 2017#       发表于 2019-1-27 22:49
 
 
-
-
 白哉，是你吗？
-
-
-
-
-
 
 
 -----
@@ -10068,14 +6633,7 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 2018#       发表于 2019-1-28 06:18
 
 
-
-
 你以为你染了头我就认不出来了吗，千本樱！
-
-
-
-
-
 
 
 -----
@@ -10084,22 +6642,15 @@ OP完成了，加了一段优吉欧VS骑士长的
 ##### 2019#       发表于 2019-1-28 07:11
 
 
-
 <blockquote>月夜凝雪 发表于 2019-1-27 20:36
 爬塔篇章半年，大战篇章半年，基本是这个进度了。</blockquote>
 嗯……看得出来，节奏是四话一册还是蛮准的（笑）。照这样说，月之摇篮也是没得跑了?放在大战篇里?
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2020#       发表于 2019-1-28 11:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42409887&amp;ptid=1550732" target="_blank">绯冉老师 发表于 2019-1-28 07:11</a>
@@ -10110,32 +6661,19 @@ OP完成了，加了一段优吉欧VS骑士长的
 之后把月摇做成OVA/剧场版倒是有可能。
 
 
-
-
-
-
-
 -----
 
 ####  zechins  
 ##### 2021#       发表于 2019-1-28 11:17
 
 
-
-
 最近几集的圣母嘴炮真的好烦<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  绯冉老师  
 ##### 2022#       发表于 2019-1-28 16:33
-
 
 
  本帖最后由 绯冉老师 于 2019-1-28 16:35 编辑 
@@ -10147,16 +6685,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 不合适是有点吧，不过照现在4话一册的节奏：15—18，4×4＝16，嗯，再来两册，让我不禁觉得川原就是为了动画补的摇篮?<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2023#       发表于 2019-1-28 19:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42415480&amp;ptid=1550732" target="_blank">绯冉老师 发表于 2019-1-28 16:33</a>
@@ -10169,17 +6701,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 实际上，轻改动画比较理想的是2卷做12-13集左右。SAO第二季时后半年圣剑+绝剑两篇总共就一本半的内容还删去了不少内容呢。
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 2024#       发表于 2019-1-28 20:28
-
-
 
 
 这集的打斗就是左手一个慢动作，右手一个慢动作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就连跑步的镜头都格外的拖沓
@@ -10189,16 +6714,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 桐人就带着爱丽丝老老实实去做gal吧，不要再去管什么塔了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  绯冉老师  
 ##### 2025#       发表于 2019-1-29 07:16
-
 
 
 <blockquote>pokemon最爱 发表于 2019-1-28 19:05
@@ -10206,16 +6725,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 嗯，是我臆断了(ಡωಡ) 。
 
 
-
-
-
-
-
 -----
 
 ####  Toby_dak  
 ##### 2026#       发表于 2019-1-29 15:16
-
 
 
  本帖最后由 Toby_dak 于 2019-1-29 17:40 编辑 
@@ -10228,16 +6741,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 ----发送自 [Sony G8342,Android 8.0.0](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2027#       发表于 2019-1-30 01:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42425958&amp;ptid=1550732" target="_blank">Toby_dak 发表于 2019-1-29 15:16</a>
@@ -10248,16 +6755,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 鬼知道A1为什么要莫名其妙的用全程慢镜头这种拖节奏的东西处理这一战。
 
 
-
-
-
-
-
 -----
 
 ####  elflie  
 ##### 2028#       发表于 2019-1-30 01:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42430965&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-1-30 01:18</a>
@@ -10266,16 +6767,10 @@ OP完成了，加了一段优吉欧VS骑士长的
 估计是学大战量产机一样想用慢动作体现力量感，但是效果完全做不出来
 
 
-
-
-
-
-
 -----
 
 ####  绯冉老师  
 ##### 2029#       发表于 2019-1-30 15:25
-
 
 
  本帖最后由 绯冉老师 于 2019-1-30 15:31 编辑 
@@ -10293,25 +6788,13 @@ OP完成了，加了一段优吉欧VS骑士长的
 是因为前几话把观众期望叼得太高了？还是只有我要求低了？<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  就烦起名字  
 ##### 2030#       发表于 2019-1-30 15:33
 
 
-
-
 OP画面里的打斗有哪一段出现在正片里面了吗
-
-
-
-
-
 
 
 -----
@@ -10320,24 +6803,16 @@ OP画面里的打斗有哪一段出现在正片里面了吗
 ##### 2031#       发表于 2019-1-30 15:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42436256&amp;ptid=1550732" target="_blank">就烦起名字 发表于 2019-1-30 15:33</a>
 
 OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 没有<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">现在看弓那打戏和op上对比就是个笑话
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2032#       发表于 2019-1-30 16:10
-
-
 
 
 第17話 休戦協定
@@ -10361,16 +6836,10 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fzoo9vm867j20p00e2gno.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  芝士排骨  
 ##### 2033#       发表于 2019-1-30 19:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42436188&amp;ptid=1550732" target="_blank">绯冉老师 发表于 2019-1-30 15:25</a>
@@ -10385,26 +6854,15 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 —— 来自 HUAWEI VTR-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2034#       发表于 2019-1-30 20:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42436188&amp;ptid=1550732" target="_blank">绯冉老师 发表于 2019-01-30 15:25:33</a></blockquote>先欺骗自己，前半年差是为了把资金留在后半年的大决战
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -10413,23 +6871,16 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 ##### 2035#       发表于 2019-1-31 11:06
 
 
-
  本帖最后由 绯冉老师 于 2019-1-31 11:14 编辑 
 <blockquote>芝士排骨 发表于 2019-1-30 19:24
 是不是不堪。。看和什么比吧。比魔禁3好口气。就弹幕评论的路人反应和单集播放量变化看来，观感还是蛮差 ...</blockquote>
 四话其实我说还行的是那场打戏吧。不过这演出尬到死的行为艺术能算谁的锅？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2036#       发表于 2019-1-31 11:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42444543&amp;ptid=1550732" target="_blank">绯冉老师 发表于 2019-1-31 11:06</a>
@@ -10440,17 +6891,10 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 前面的剧情太无厘头了，没有点精彩的战斗很难吸引没看小说的甚至是新看到的入坑吧
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2037#       发表于 2019-1-31 16:18
-
-
 
 
 第17話「休戦協定」 予告映像
@@ -10458,16 +6902,10 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 [http://v.youku.com/v_show/id_XND ... j.8428770.3416059.1](http://v.youku.com/v_show/id_XNDA0MDg0MTE3Ng==.html?spm=a2h3j.8428770.3416059.1)
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2038#       发表于 2019-2-1 10:34
-
 
 
  本帖最后由 reekilynn 于 2019-2-1 10:45 编辑 
@@ -10477,17 +6915,10 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 让立场比较中立的人来看的话，每一卷都不缺槽点。而这样的人现成的就有一位，在天角的封面上挂着呢。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2039#       发表于 2019-2-1 13:18
-
-
 
 
 刚刚看到，BD1的特典CD已经有人放出来了[https://www.bilibili.com/audio/am28769663](https://www.bilibili.com/audio/am28769663)
@@ -10495,17 +6926,10 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 嗯……感觉还不错，期待后面的（
 
 
-
-
-
-
-
 -----
 
 ####  芝士排骨  
 ##### 2040#       发表于 2019-2-1 22:38
-
-
 
 
 说一下我对uw总体的看法
@@ -10536,7 +6960,6 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 同时兄弟情也没怎么刻画，日后读者回忆桐尤往昔得靠脑补。顺便说下，川原刻画优吉欧太依赖心理描写了，但动画无法表现出来，不出意外动画那段的弹幕都是“毫无波澜”
 
 
-
 原作我比较喜欢的地方：
 
 我知道这设定不经推敲，但确实够新鲜有意思。我非常喜欢uw的设定，看uw最大乐趣就是看川原扯皮。
@@ -10544,7 +6967,6 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 两条线叙事，在战争时双线激烈发展、冲突。（其实我觉得玩家大战虽狗血，但也没那么不堪。）
 
 相较于前作，格局明显变大，真的开始有点科幻感。
-
 
 
 再讲讲动画
@@ -10575,18 +6997,10 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 最后讲画面，我知道年番很辛苦，要维持不崩很难。如果从十五六集开始崩是可以理解的。但是这么一个号称准备很久的48集番，你从出村第六集开始崩就太过分了吧？后面还愈演愈烈
 
 
-
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 2041#       发表于 2019-2-1 22:45
-
-
 
 
 说实话，刀剑系列动画我看得最爽的反而是外传的GGO
@@ -10594,16 +7008,10 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 这次的第三季越看越觉得不合格<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  绯冉老师  
 ##### 2042#       发表于 2019-2-1 23:09
-
 
 
  本帖最后由 绯冉老师 于 2019-2-2 08:13 编辑 
@@ -10615,16 +7023,10 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 还有救么？没了！
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2043#       发表于 2019-2-2 00:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42460977&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-2-1 22:38</a>
@@ -10639,16 +7041,10 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 使用Cardinal System的游戏出现啥都不奇怪这点ALO篇就已经有了，圣剑篇不就是工作人员放假期间系统自动生成了可能完全清除整个游戏的任务剧情。
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2044#       发表于 2019-2-2 00:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42461641&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-2-2 00:00</a>
@@ -10658,24 +7054,13 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 其实最大的槽点还不在这个，而是uw的人口问题，要知道这个可是有硬上限的(受lightcube数量的限制，最多也就二十多万，还得是人界和暗黑界加起来)，没人口做基础怎么搞星际移民…
 
 
-
-
-
-
-
 -----
 
 ####  镜hinata  
 ##### 2045#       发表于 2019-2-2 23:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">BD特典还有新短篇小说.....
-
-
-
-
-
 
 
 -----
@@ -10684,14 +7069,7 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 ##### 2046#       发表于 2019-2-2 23:30
 
 
-
-
 骑士长是诹访部顺一……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10700,15 +7078,9 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 ##### 2047#       发表于 2019-2-2 23:44
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这周感觉也不行
 
 等下周了
-
-
-
-
-
 
 
 -----
@@ -10717,13 +7089,7 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 ##### 2048#       发表于 2019-2-2 23:45
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">下集就是ugo对大叔了，这段要还是做成左手右手一个慢动作...
-
-
-
-
-
 
 
 -----
@@ -10732,14 +7098,7 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 ##### 2049#       发表于 2019-2-3 01:01
 
 
-
-
 降低期待后这集还是挺满意的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">就是想吐槽桐姥爷这杂技，看小说的时候就觉得这么光滑的墙壁怎么可能上得去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10748,16 +7107,9 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 ##### 2050#       发表于 2019-2-3 01:09
 
 
-
-
 还行，看的要恐高症发作，我要是爱丽丝都要变桐人迷妹了。
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -10766,15 +7118,9 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 ##### 2051#       发表于 2019-2-3 01:09
 
 
-
  本帖最后由 绯冉老师 于 2019-2-3 01:10 编辑 
 
 总感觉高处的感觉没上来，不过以后和别人解释14—15卷爱丽丝好感度为何突增，就说是13的所谓吊桥(针)效应吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10783,15 +7129,9 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 ##### 2052#       发表于 2019-2-3 01:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42470722&amp;ptid=1550732" target="_blank">绯冉老师 发表于 2019-02-03 01:09:40</a></blockquote>就是这个道理。<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -10800,23 +7140,16 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 ##### 2053#       发表于 2019-2-3 01:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42470722&amp;ptid=1550732" target="_blank">绯冉老师 发表于 2019-2-3 01:09</a>
 
 总感觉高处的感觉没上来，不过以后和别人解释14—15卷爱丽丝好感度为何突增，就说是13的所谓吊桥(针)效应吧 ...</blockquote>
 核心的幽会还在下一话呢
 
 
-
-
-
-
-
 -----
 
 ####  绯冉老师  
 ##### 2054#       发表于 2019-2-3 01:31
-
 
 
  本帖最后由 绯冉老师 于 2019-2-3 01:35 编辑 
@@ -10826,17 +7159,10 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 嗯嘛，炸眼那段？不过一直有疑问，炸眼那时爱丽丝喊的到底是“桐人，抱住我！”还是“按住我”？记得天角上是后者来着（大概），不过貌似看某个翻译版本是前者（吃了日语的亏）当然，如果是前者这攻略就快成跑车啦<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2055#       发表于 2019-2-3 01:40
-
-
 
 
 @绯冉老师
@@ -10848,17 +7174,10 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 那段看日文啊，两个词又不同，那种情况明显是后者，之后的描述里也是双手按着双肩而不是抱紧
 
 
-
-
-
-
-
 -----
 
 ####  烟花缭乱  
 ##### 2056#       发表于 2019-2-3 01:40
-
-
 
 
 不打针，不吃药，就是吊着跟你唠
@@ -10867,24 +7186,13 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 前半部分还剩三场重要打戏，希望别再慢镜头吧……
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2057#       发表于 2019-2-3 01:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">可以从语气听出来爱丽丝的变化，其他就那样啦
-
-
-
-
-
 
 
 -----
@@ -10893,21 +7201,13 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 ##### 2058#       发表于 2019-2-3 01:43
 
 
-
-
 为啥爱丽丝铁签铁链要用手套变，桐人就能直接凭空生成呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  绯冉老师  
 ##### 2059#       发表于 2019-2-3 01:45
-
 
 
  本帖最后由 绯冉老师 于 2019-2-3 01:47 编辑 
@@ -10920,16 +7220,10 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 受教了<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  绯冉老师  
 ##### 2060#       发表于 2019-2-3 01:52
-
 
 
  本帖最后由 绯冉老师 于 2019-2-3 01:54 编辑 
@@ -10939,16 +7233,10 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 桐人凭空生成是利用空间资源，太阳下沉后不足以再生成，于是爱丽丝才利用手套变化嘛
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2061#       发表于 2019-2-3 02:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42470841&amp;ptid=1550732" target="_blank">justevil 发表于 2019-2-3 01:43</a>
@@ -10961,16 +7249,10 @@ OP画面里的打斗有哪一段出现在正片里面了吗</blockquote>
 后面则是单纯的因为空间资源不够生成钢素了，所以爱丽丝用消耗更低的形态变换术把手甲变成了桩子来用。
 
 
-
-
-
-
-
 -----
 
 ####  battleship64  
 ##### 2062#       发表于 2019-2-3 06:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42470184&amp;ptid=1550732" target="_blank">zechins 发表于 2019-2-2 23:45</a>
@@ -10984,17 +7266,10 @@ ugo冲锋，大叔一刀
 说不定讲大叔屠龙啊什么的故事还多点
 
 
-
-
-
-
-
 -----
 
 ####  battleship64  
 ##### 2063#       发表于 2019-2-3 06:11
-
-
 
 
 话说，为啥长门号换成朝日号了啊
@@ -11004,17 +7279,10 @@ ugo冲锋，大叔一刀
 uw应该是2025年之后这种吧，用新船或者架空的不是更好一点么
 
 
-
-
-
-
-
 -----
 
 ####  newise  
 ##### 2064#       发表于 2019-2-3 07:42
-
-
 
 
 这集好蠢
@@ -11023,33 +7291,19 @@ uw的物理引擎是一定是加入了轻功的吧
 制作组是不是混进了某催婚协会的人？
 
 
-
-
-
-
-
 -----
 
 ####  苌楚  
 ##### 2065#       发表于 2019-2-3 08:05
 
 
-
-
 错别字<img src="https://i.loli.net/2019/02/03/5c563032351cd.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  芝士排骨  
 ##### 2066#       发表于 2019-2-3 09:14
-
-
 
 
 越想越觉得好可惜，uw的设定和整体故事框架应该还算可以的，尤其对比这年头各种劣质异世界。
@@ -11059,17 +7313,10 @@ uw的物理引擎是一定是加入了轻功的吧
 —— 来自 HUAWEI VTR-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  亚瑟邓特  
 ##### 2067#       发表于 2019-2-3 09:20
-
-
 
 
 看这几集幸亏没追…
@@ -11078,16 +7325,10 @@ uw的物理引擎是一定是加入了轻功的吧
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  绯冉老师  
 ##### 2068#       发表于 2019-2-3 09:49
-
 
 
  本帖最后由 绯冉老师 于 2019-2-3 10:01 编辑 
@@ -11098,26 +7339,14 @@ uw的物理引擎是一定是加入了轻功的吧
 “提升空间很大”——sao篇又何尝不是呢？终究是苦了这些看得过去的设定啊。不过依赖心理描写塑造人物难道不是轻文惯例吗？我倒觉得动画化后的心理描写太少了呢，不过对于ugo而言倒是。
 
 
-
-
-
-
-
 -----
 
 ####  千里茜  
 ##### 2069#       发表于 2019-2-3 09:56
 
 
-
-
 这话挂在墙上聊天简直蠢爆了
 <img src="https://wx3.sinaimg.cn/mw690/007vIRi6gy1fzsz1akeooj30hc09n45s.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11126,14 +7355,7 @@ uw的物理引擎是一定是加入了轻功的吧
 ##### 2070#       发表于 2019-2-3 10:06
 
 
-
-
 单手臂力逆天（还是这跟游戏设定一样不需要耗费力气的？），感觉他们在外面挂个一百年都会若无其事的样子
-
-
-
-
-
 
 
 -----
@@ -11142,14 +7364,7 @@ uw的物理引擎是一定是加入了轻功的吧
 ##### 2071#       发表于 2019-2-3 10:08
 
 
-
-
 桐人挂壁确认？
-
-
-
-
-
 
 
 -----
@@ -11158,13 +7373,7 @@ uw的物理引擎是一定是加入了轻功的吧
 ##### 2072#       发表于 2019-2-3 10:12
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不是，你不是会千本樱吗，你放出来石像鬼不都能死了，非要近战？
-
-
-
-
-
 
 
 -----
@@ -11173,16 +7382,10 @@ uw的物理引擎是一定是加入了轻功的吧
 ##### 2073#       发表于 2019-2-3 10:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42472379&amp;ptid=1550732" target="_blank">Hidewhite 发表于 2019-2-3 10:06</a>
 
 单手臂力逆天（还是这跟游戏设定一样不需要耗费力气的？），感觉他们在外面挂个一百年都会若无其事的样子 ...</blockquote>
 权限设定，爱丽丝身上的盔甲所需权限也不低，再加上剑得所需权限，所以勉强到达持有神器权限的桐人拉起来才觉得重，这点小说在这段的时候有提到。
-
-
-
-
-
 
 
 -----
@@ -11191,22 +7394,15 @@ uw的物理引擎是一定是加入了轻功的吧
 ##### 2074#       发表于 2019-2-3 10:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42472428&amp;ptid=1550732" target="_blank">nerugigannte 发表于 2019-2-3 10:12</a>
 不是，你不是会千本樱吗，你放出来石像鬼不都能死了，非要近战？</blockquote>
 那玩意本来就不能随便用，用的代价是损耗剑本身的hp。
-
-
-
-
-
 
 
 -----
 
 ####  haibara  
 ##### 2075#       发表于 2019-2-3 10:22
-
 
 
  本帖最后由 haibara 于 2019-2-3 10:25 编辑 
@@ -11216,17 +7412,10 @@ uw的物理引擎是一定是加入了轻功的吧
 物件天命修复
 
 
-
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2076#       发表于 2019-2-3 10:25
-
 
 
  本帖最后由 reekilynn 于 2019-2-3 10:27 编辑 
@@ -11241,16 +7430,10 @@ uw应该是2025年之后这种吧，用新船或者架 ...</blockquote>
 这么说来我国要是在海上搞这种项目派来警备的会是052d还是054系列…？
 
 
-
-
-
-
-
 -----
 
 ####  Hidewhite  
 ##### 2077#       发表于 2019-2-3 10:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42472464&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-2-3 10:15</a>
@@ -11261,16 +7444,10 @@ uw应该是2025年之后这种吧，用新船或者架 ...</blockquote>
 不过这种一个设定延伸到方方面面的还是挺麻烦的，动画也确实没讲细。视觉直观上是仿照现实而设定上有微妙不同的游戏设定世界，在描述上确乎有点困难。同类型里《全职高手》也差不多，看动画很多时候都看不出设定来了。小说文字载体可以随意插叙添加设定的优势动画比不了。
 
 
-
-
-
-
-
 -----
 
 ####  芝士排骨  
 ##### 2078#       发表于 2019-2-3 11:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42472379&amp;ptid=1550732" target="_blank">Hidewhite 发表于 2019-2-3 10:06</a>
@@ -11282,16 +7459,10 @@ uw应该是2025年之后这种吧，用新船或者架 ...</blockquote>
 —— 来自 HUAWEI VTR-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2079#       发表于 2019-2-3 11:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42472889&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-2-3 11:03</a>
@@ -11301,16 +7472,10 @@ uw应该是2025年之后这种吧，用新船或者架 ...</blockquote>
 这个世界本质上是个唯心主义的世界。
 
 
-
-
-
-
-
 -----
 
 ####  Hidewhite  
 ##### 2080#       发表于 2019-2-3 11:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42472889&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-2-3 11:03</a>
@@ -11325,16 +7490,10 @@ uw应该是2025年之后这种吧，用新船或者架 ...</blockquote>
 目前动画表现来看，天命似乎是种数值资源，但战斗似乎又跟意志挂钩，而意志本身是种非数值化的东西。
 
 
-
-
-
-
-
 -----
 
 ####  芝士排骨  
 ##### 2081#       发表于 2019-2-3 11:28
-
 
 
  本帖最后由 芝士排骨 于 2019-2-3 11:32 编辑 
@@ -11353,16 +7512,10 @@ uw应该是2025年之后这种吧，用新船或者架 ...</blockquote>
 在现实中，就这么抓着肯定会马上掉下来。但这里，意志力可以让你一直坚持着抓着，直到天命归零死掉
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2082#       发表于 2019-2-3 11:34
-
 
 
  本帖最后由 月夜凝雪 于 2019-2-3 11:35 编辑 
@@ -11379,16 +7532,10 @@ uw应该是2025年之后这种吧，用新船或者架 ...</blockquote>
 这个世界是以多边形的网游为雏形基础，再通过人工瑶光把多边形的数据转化为记忆，然后读取记忆展现出UW的世界，那么意志力够强记忆就可以覆写，把从记忆具现化的现象用自己的想象力来覆盖。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2083#       发表于 2019-2-3 11:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42471892&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-2-3 09:14</a>
@@ -11403,16 +7550,10 @@ uw应该是2025年之后这种吧，用新船或者架 ...</blockquote>
 川原对SAO篇的故事进行大改的结果就是出了SAOP这个把过去的泛SAO篇（即算上圈内事件起始之日和第二卷的短篇集）的设定吃了个大半的桐亚日常发糖秀恩爱的东西（
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2084#       发表于 2019-2-3 11:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42473072&amp;ptid=1550732" target="_blank">Hidewhite 发表于 2019-2-3 11:22</a>
@@ -11427,16 +7568,10 @@ uw应该是2025年之后这种吧，用新船或者架 ...</blockquote>
 年龄不同，耐久度最大值不同。
 
 
-
-
-
-
-
 -----
 
 ####  Hidewhite  
 ##### 2085#       发表于 2019-2-3 11:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42473345&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-2-3 11:48</a>
@@ -11447,16 +7582,10 @@ uw应该是2025年之后这种吧，用新船或者架 ...</blockquote>
 明白了，就是一个数据化拟合现实规则的设定，但部分依然保留了数据化的特点。一个接近于真实世界的游戏，但底层规则依然是游戏化的，在部分地方保留了有别于现实的游戏特征。所以在动画不对这些局部规则说明的情况下，依照现实惯性理解就显得突兀。
 
 
-
-
-
-
-
 -----
 
 ####  alien  
 ##### 2086#       发表于 2019-2-3 12:07
-
 
 
  本帖最后由 alien 于 2019-2-3 12:14 编辑 
@@ -11471,21 +7600,13 @@ uw应该是2025年之后这种吧，用新船或者架 ...</blockquote>
 16:15 这幕看不到石像平台，高度在4个格石板之上~而前面作画锁链长度应该是2到3格之间（也有1格多一点的长度的作画，蜜汁长度~） 后面甩爱丽丝上平台之前那幕平台在2格之上……看看BD会不会修正了~
 
 
-
 这集看的快恐高了~~2人站钢针站的真tm稳啊~~
-
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2087#       发表于 2019-2-3 12:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42473446&amp;ptid=1550732" target="_blank">Hidewhite 发表于 2019-2-3 11:59</a>
@@ -11500,16 +7621,10 @@ uw应该是2025年之后这种吧，用新船或者架 ...</blockquote>
 emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内容可能也差不了太多吧（
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2088#       发表于 2019-2-3 12:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42473508&amp;ptid=1550732" target="_blank">alien 发表于 2019-2-3 12:07</a>
@@ -11523,33 +7638,20 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 看不到石像平台大概是作画太麻烦了吧（
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2089#       发表于 2019-2-3 12:15
 
 
-
-
 其实最唯心的设定(虽然是后面追加的)是这么一个东西:
 由于uw人的灵魂和一般物品具有同样的数据构成，所以只要意志力够强，甚至能让物品临时性的附着有人的意识。
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2090#       发表于 2019-2-3 12:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42473580&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-2-3 12:15</a>
@@ -11560,16 +7662,10 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 要说的话这个设定其实在武装支配术出来时就有苗头了吧……（
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2091#       发表于 2019-2-3 12:30
-
 
 
  本帖最后由 reekilynn 于 2019-2-3 12:33 编辑 
@@ -11579,16 +7675,10 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 当然你这么说好像也没什么问题…在我看来uw里面武器是手的延长，手是意志的延长，这个理论应该没有毛病吧
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2092#       发表于 2019-2-3 13:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42473710&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-2-3 12:30</a>
@@ -11599,16 +7689,10 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 爬塔中怎么说也是提到了上位骑士是被神器选择这点，所以神器自身应该是算有意识的（
 
 
-
-
-
-
-
 -----
 
 ####  battleship64  
 ##### 2093#       发表于 2019-2-3 15:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42472549&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-2-3 10:25</a>
@@ -11628,17 +7712,10 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 说实话，我感觉多半会用海警船，管撞不管捞<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  起晨Fly  
 ##### 2094#       发表于 2019-2-3 15:37
-
-
 
 
 诹访部顺一配贝尔库利也太太太违和了吧，有这么年轻🐴
@@ -11646,17 +7723,10 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 —— 来自 HUAWEI LON-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  深绘白描  
 ##### 2095#       发表于 2019-2-3 17:09
-
-
 
 
 这第17集终于画面不崩了
@@ -11667,16 +7737,10 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 爱丽丝可爱到
 
 
-
-
-
-
-
 -----
 
 ####  V5Style  
 ##### 2096#       发表于 2019-2-3 17:37
-
 
 
  本帖最后由 V5Style 于 2019-2-4 12:48 编辑 
@@ -11691,16 +7755,10 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 —— 来自 HUAWEI NXT-TL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  西奈？！  
 ##### 2097#       发表于 2019-2-3 19:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42476115&amp;ptid=1550732" target="_blank">V5Style 发表于 2019-2-3 17:37</a>
@@ -11709,16 +7767,10 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  就烦起名字  
 ##### 2098#       发表于 2019-2-3 23:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42476115&amp;ptid=1550732" target="_blank">V5Style 发表于 2019-2-3 17:37</a>
@@ -11727,25 +7779,13 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 这只"桐人"看上去有点中暑 不如我们把他......
 
 
-
-
-
-
-
 -----
 
 ####  Hint  
 ##### 2099#       发表于 2019-2-4 00:54
 
 
-
-
 拎着后颈就跟拎小猫一样……
-
-
-
-
-
 
 
 -----
@@ -11754,15 +7794,9 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 ##### 2100#       发表于 2019-2-4 01:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42479445&amp;ptid=1550732" target="_blank">Hint 发表于 2019-2-4 00:54</a>
 拎着后颈就跟拎小猫一样……</blockquote>
 幸好后脖颈不是致命部位。
-
-
-
-
-
 
 
 -----
@@ -11771,13 +7805,7 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 ##### 2101#       发表于 2019-2-4 10:03
 
 
-
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fzu5vvffcyj20xc0nyadl.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11786,14 +7814,7 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 ##### 2102#       发表于 2019-2-5 05:49
 
 
-
-
 仔细看了一遍17集，虽然是个过渡回，文戏部分做的还不错，，把爱丽丝情绪上的变化做的挺好的，最后背过身去说你要记得还手帕，明显关系有变化了。以前看web的时候没仔细读这段，现在动画这么做确实是把前后态度的变化衔接起来了
-
-
-
-
-
 
 
 -----
@@ -11802,14 +7823,7 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 ##### 2103#       发表于 2019-2-5 07:23
 
 
-
-
 针挂壁
-
-
-
-
-
 
 
 -----
@@ -11818,22 +7832,13 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 ##### 2104#       发表于 2019-2-5 15:08
 
 
-
-
 别的不提，这集我觉得至少“笑”果是有了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2105#       发表于 2019-2-5 19:31
-
-
 
 
 第18話 伝説の英雄
@@ -11858,25 +7863,13 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fzvrwoymp2j20p00e23zn.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  突发性哮喘病患  
 ##### 2106#       发表于 2019-2-6 13:05
 
 
-
-
 说实话我觉得优吉欧才是男主角，桐人做事情合理性太强了
-
-
-
-
-
 
 
 -----
@@ -11885,16 +7878,10 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 ##### 2107#       发表于 2019-2-6 13:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42504017&amp;ptid=1550732" target="_blank">突发性哮喘病患 发表于 2019-02-06 13:05:47</a>
 说实话我觉得优吉欧才是男主角，桐人做事情合理性太强了</blockquote>尤吉欧是女主角，看下去你就会明白了
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -11903,15 +7890,7 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 ##### 2108#       发表于 2019-2-6 13:21
 
 
-
-
 其实岛崎配很多角色我都不自觉地把他脑补成妹子
-
-
-
-
-
-
 
 
 -----
@@ -11920,14 +7899,7 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 ##### 2109#       发表于 2019-2-6 15:33
 
 
-
-
 初动销量竟然有1W2........
-
-
-
-
-
 
 
 -----
@@ -11936,16 +7908,9 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 ##### 2110#       发表于 2019-2-7 16:12
 
 
-
-
 ソードアート・オンライン　アリシゼーション 第18話「伝説の英雄」 予告映像
 [https://www.youtube.com/watch?v=sPXKe3cTGTc](https://www.youtube.com/watch?v=sPXKe3cTGTc)
 [https://weibo.com/tv/v/HfyVMDa2K?fid=1034:4337078406691671](https://weibo.com/tv/v/HfyVMDa2K?fid=1034:4337078406691671)
-
-
-
-
-
 
 
 -----
@@ -11954,14 +7919,7 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 ##### 2111#       发表于 2019-2-9 23:23
 
 
-
-
 优吉欧扔剑的位置改成扔到天花板上了……
-
-
-
-
-
 
 
 -----
@@ -11970,13 +7928,7 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 ##### 2112#       发表于 2019-2-9 23:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">动作戏就几s
-
-
-
-
-
 
 
 -----
@@ -11985,14 +7937,7 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 ##### 2113#       发表于 2019-2-9 23:35
 
 
-
-
 騎士長給人的感覺就是個雜魚<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12001,23 +7946,15 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 ##### 2114#       发表于 2019-2-10 00:01
 
 
-
-
 下一话似乎是总集篇？
 
 看来是要攒大招啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 2115#       发表于 2019-2-10 01:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42540973&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-2-10 00:01</a>
@@ -12030,16 +7967,10 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 难道现实世界那些全部要留到后半年了吗
 
 
-
-
-
-
-
 -----
 
 ####  任天索尼子  
 ##### 2116#       发表于 2019-2-10 01:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42505520&amp;ptid=1550732" target="_blank">偶像程序员POI 发表于 2019-2-6 15:33</a>
@@ -12048,16 +7979,10 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 魔禁都有5000多，正常。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2117#       发表于 2019-2-10 01:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42541405&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-2-10 01:00</a>
@@ -12072,33 +7997,19 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 剩下的以打戏为主，相对好压缩时间吧……大概。
 
 
-
-
-
-
-
 -----
 
 ####  alerbe  
 ##### 2118#       发表于 2019-2-10 01:46
 
 
-
-
 蓄力的一回啊
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2119#       发表于 2019-2-10 01:56
-
-
 
 
 下集总集篇，不懂这一部分（半年）会做到哪（虽然我也不懂原作的具体剧情）
@@ -12111,16 +8022,10 @@ emmm刚刚提的说法似乎有点问题，不过考虑到UW本身唯心的内�
 前面耐不住翻了翻wiki，所以想知道桐人和爱丽丝的二人世界占了多少篇幅？
 
 
-
-
-
-
-
 -----
 
 ####  烟花缭乱  
 ##### 2120#       发表于 2019-2-10 03:06
-
 
 
  本帖最后由 烟花缭乱 于 2019-2-10 03:09 编辑 
@@ -12134,16 +8039,10 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 下半部分爱丽丝这个角色对演技有一定要求，不少独角戏的心理活动。当然对毛衣来说应该不构成障碍
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2121#       发表于 2019-2-10 03:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42541742&amp;ptid=1550732" target="_blank">xingenge 发表于 2019-2-10 01:56</a>
@@ -12155,32 +8054,19 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 爱丽丝和桐人的二人世界，虽然是照顾了半年但是小说剧情上这段时间并没有详细描写，基本上直接跳到了爱丽丝快离开村庄回去前线的部分，后来就是大战没什么二人世界的内容，亚丝娜也很快就过来了。桐人不算回忆之类的差不多得下线16集左右吧。
 
 
-
-
-
-
-
 -----
 
 ####  jacket  
 ##### 2122#       发表于 2019-2-10 07:10
 
 
-
-
 这澡堂打架傻的我浑身发痒，你俩话咋这么多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  alien  
 ##### 2123#       发表于 2019-2-10 09:39
-
 
 
  本帖最后由 alien 于 2019-2-10 09:40 编辑 
@@ -12190,33 +8076,19 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 20：55 2个包子被爱丽丝拿过去后，桐人手上还有2个包子。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2124#       发表于 2019-2-10 09:58
 
 
-
-
 感谢回答，就不AT了
-
-
-
-
-
 
 
 -----
 
 ####  芝士排骨  
 ##### 2125#       发表于 2019-2-10 10:26
-
-
 
 
 这集优吉欧那个连招表现的不错啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
@@ -12230,32 +8102,19 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 —— 来自 HUAWEI VTR-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2126#       发表于 2019-2-10 13:26
 
 
-
-
 说实话，如果是25集而不是现在这样的24集，也许评价能更高一点点。
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 2127#       发表于 2019-2-10 13:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42544631&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-2-10 13:26</a>
@@ -12266,16 +8125,10 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 不过如果总集篇能补回一些删减的画面那可能还不错。
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2128#       发表于 2019-2-10 13:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42544655&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-2-10 13:29</a>
@@ -12285,16 +8138,10 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 我觉得难。不过二期就是24+总集，这次应该也差不多？
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2129#       发表于 2019-2-12 09:52
-
 
 
 [http://www.lawson.co.jp/lab/camp ... ign=20190212-sao-cp](http://www.lawson.co.jp/lab/campaign/sao/?utm_source=twitter&amp;utm_medium=social&amp;utm_term=&amp;utm_content=sns&amp;utm_campaign=20190212-sao-cp)
@@ -12302,16 +8149,10 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1g03ein37lhj20m8088teb.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  MagicMirai  
 ##### 2130#       发表于 2019-2-12 22:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42329484&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-1-20 01:14</a>
@@ -12321,32 +8162,19 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 — from SHARP FS8016, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.3-play
 
 
-
-
-
-
-
 -----
 
 ####  szzyf7  
 ##### 2131#       发表于 2019-2-12 23:11
 
 
-
-
 看书的时候就觉得了，这个骑士长脑子算是很灵光了，活了那么久做了那么多任务，就一点没发现他老板干的各种龌龊事么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">而且看情况他早就和元老院那帮人闹僵了，这ADMIN的的体制能维持这么多年也是奇迹...........
-
-
-
-
-
 
 
 -----
 
 ####  reekilynn  
 ##### 2132#       发表于 2019-2-12 23:37
-
 
 
  本帖最后由 reekilynn 于 2019-2-12 23:48 编辑 
@@ -12358,16 +8186,10 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 另外元老院的真相吗…后面你会看到的。
 
 
-
-
-
-
-
 -----
 
 ####  alerbe  
 ##### 2133#       发表于 2019-2-13 01:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42572645&amp;ptid=1550732" target="_blank">szzyf7 发表于 2019-2-12 23:11</a>
@@ -12376,16 +8198,10 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 贝尔库里是个明白人，活的时间足够长，基本上问题都看的很准了，好多事情也看开了。
 
 
-
-
-
-
-
 -----
 
 ####  alerbe  
 ##### 2134#       发表于 2019-2-13 01:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42572949&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-2-12 23:37</a>
@@ -12396,33 +8212,20 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 多少还是依靠了骑士长对她的仰慕吧，要不很多事情没法圆滑的糊弄过去。
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2135#       发表于 2019-2-13 02:50
 
 
-
-
 这么说来我很想知道下两集会有怎样的弹幕
 (就是admin福利放送和"那个人已经把我想要的给我了"这两个地方)
-
-
-
-
-
 
 
 -----
 
 ####  烟花缭乱  
 ##### 2136#       发表于 2019-2-13 11:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42574136&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-2-13 02:50</a>
@@ -12433,16 +8236,10 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">"贞德你在干什么啊贞德"
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2137#       发表于 2019-2-13 12:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42574136&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-02-13 02:50:46</a>
@@ -12452,17 +8249,10 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 2138#       发表于 2019-2-13 21:22
-
-
 
 
 结冰的那个场景明明很美，但是对话的却是两个汉子，要是其中一个是妹子或两个都是就完美了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -12472,16 +8262,10 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 小丑说的时穿剑的另一面是什么技能？
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2139#       发表于 2019-2-13 21:26
-
 
 
  本帖最后由 月夜凝雪 于 2019-2-13 21:28 编辑 
@@ -12497,16 +8281,10 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 而记忆解放是可以无视时间无视距离直接斩指定时间的指定坐标，也就是斩未来，在指定坐标于指定时间被斩是没得躲的
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 2140#       发表于 2019-2-13 21:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42584173&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-2-13 21:26</a>
@@ -12519,16 +8297,10 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 第一种攻击模式我就觉得奇怪了，就动画表现出来的效果就是一道无法肉眼观测的剑气而已，如果换个方向或者跳跃或者滑铲是完全能避开的吧（不考虑对方再次出招）？除非像空境那样是先预测到未来，再对指定方位挥剑
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2141#       发表于 2019-2-13 21:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42584138&amp;ptid=1550732" target="_blank">mhss 发表于 2019-2-13 21:22</a>
@@ -12540,16 +8312,10 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 限制比较大，需要准确击中10分钟前敌人所在的位置。相应的这招无法防御无法躲避，并且带即死效果，打中就死。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2142#       发表于 2019-2-13 21:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42584173&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-2-13 21:26</a>
@@ -12560,16 +8326,10 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 你这不是完全记错了吗……
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2143#       发表于 2019-2-13 21:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42584229&amp;ptid=1550732" target="_blank">mhss 发表于 2019-2-13 21:31</a>
@@ -12580,16 +8340,10 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 因为只要能准确到秒的时间和坐标，可以做到一击必杀，连两个最高等级神账号都打不过的BOSS也被他秒了
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2144#       发表于 2019-2-13 21:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42584229&amp;ptid=1550732" target="_blank">mhss 发表于 2019-2-13 21:31</a>
@@ -12598,16 +8352,10 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 表斩最头疼的是如果骑士长在自己周围砍了一圈那么你就没办法打他了，攻击会一直维持在那里（直到骑士长自己解开术）
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2145#       发表于 2019-2-13 21:40
-
 
 
  本帖最后由 月夜凝雪 于 2019-2-13 21:41 编辑 
@@ -12617,16 +8365,10 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 虽然说是那样说，但就小说里两次的表现，没见有斩过去这个效果，只是把原本的斩击直接放到了没接触过的位置
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2146#       发表于 2019-2-13 21:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42584333&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-2-13 21:40</a>
@@ -12636,16 +8378,10 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 砍龙砍加百列都是打中了“十分钟前的他们”导致对方天命归0的。
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2147#       发表于 2019-2-13 21:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42584349&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-2-13 21:42</a>
@@ -12656,16 +8392,10 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 我知道是这样写，但他唯二的使用都不是直接斩过去而是用过去来计算未来来斩，否则第二次哪需要磨那么久
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2148#       发表于 2019-2-13 21:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42584360&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-2-13 21:42</a>
@@ -12676,16 +8406,10 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 时穿剑里的攻击效果是，10分钟（600s）前位于时穿剑攻击位置的单位，天命归0。
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2149#       发表于 2019-2-13 21:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42584381&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-2-13 21:44</a>
@@ -12696,16 +8420,10 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 但龙没归零啊只是斩了翅膀
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2150#       发表于 2019-2-13 21:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42584405&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-2-13 21:46</a>
@@ -12715,16 +8433,10 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 加百列·米勒毫无感动地俯视着以最后的力气挥动着单翅软着陆，发出细微的鸣叫后断了气的黑色飞龙。 在视线离开的那一刻，关于飞龙的存在就从他的记忆和思考中完全排除了。他表情没有一丝变化地环视周围。
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2151#       发表于 2019-2-13 21:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42584424&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-2-13 21:48</a>
@@ -12735,16 +8447,10 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 那记错了，我都是在开车的时候听的
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 2152#       发表于 2019-2-13 22:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42584318&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-2-13 21:39</a>
@@ -12753,25 +8459,13 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 想想拿剑围着自己瞎挥成一个笼子状，好傻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2153#       发表于 2019-2-14 18:45
 
 
-
-
 卧槽川原新ME本是外传X3，桐优骑士铠封面的if线……我原地爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12780,15 +8474,9 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 ##### 2154#       发表于 2019-2-15 02:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42595828&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-2-14 18:45</a>
 卧槽川原新ME本是外传X3，桐优骑士铠封面的if线……我原地爆炸</blockquote>
 这就是他连续四个月不出新文库本的理由吗？
-
-
-
-
-
 
 
 -----
@@ -12797,16 +8485,10 @@ UW里半步破碎的爱丽丝照顾植物人挂哥，占下半部60%时间（最
 ##### 2155#       发表于 2019-2-15 04:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42599918&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-2-15 02:51</a>
 
 这就是他连续四个月不出新文库本的理由吗？</blockquote>
 ME的量并不大吧，我记得内容每次都不多。
-
-
-
-
-
 
 
 -----
@@ -12815,15 +8497,9 @@ ME的量并不大吧，我记得内容每次都不多。
 ##### 2156#       发表于 2019-2-15 06:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42600057&amp;ptid=1550732" target="_blank">alerbe 发表于 2019-2-15 04:04</a>
 ME的量并不大吧，我记得内容每次都不多。</blockquote>
 每次都是8页b5，连载个十几本也能凑出来个200多页的文库本了(这人真这么干过)
-
-
-
-
-
 
 
 -----
@@ -12832,24 +8508,16 @@ ME的量并不大吧，我记得内容每次都不多。</blockquote>
 ##### 2157#       发表于 2019-2-15 07:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42599918&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-2-15 02:51</a>
 
 这就是他连续四个月不出新文库本的理由吗？</blockquote>
 嘛谁知道呢（
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2158#       发表于 2019-2-17 12:39
-
-
 
 
 me28(桐人和优吉欧的if篇)出了，大致内容如下
@@ -12861,17 +8529,10 @@ me28(桐人和优吉欧的if篇)出了，大致内容如下
 hmmmm顺便这次的同人本编号为外传X3，已经确定是和sugary days一样的长期连载，最后大概还是会出文库本贩售。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2159#       发表于 2019-2-17 13:54
-
-
 
 
 剧毒螃蟹名字叫キバオオカニ，也就是牙王螃蟹吗！牙王干的漂亮！（似乎那里有问题）
@@ -12885,16 +8546,10 @@ hmmmm顺便这次的同人本编号为外传X3，已经确定是和sugary days�
 最后吐槽一句怎么看桐优能打四帝国统一大会的时间线都已经过了原作爱丽丝照顾桐人半年后去前线的最终压力测试的时间了吧，川原你又吃书，还是说动画要改掉最终压力测试的时间？
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2160#       发表于 2019-2-17 14:01
-
 
 
  本帖最后由 月夜凝雪 于 2019-2-17 14:02 编辑 
@@ -12906,26 +8561,15 @@ hmmmm顺便这次的同人本编号为外传X3，已经确定是和sugary days�
 本身压力测试就是受到外部影响提前了吧，IF线他们还能搞那么久到比武大会那么改动不就是外部没受到干扰
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2161#       发表于 2019-2-17 14:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42624646&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-2-17 14:01</a>
 本身压力测试就是受到外部影响提前了吧，IF线他们还能搞那么久到比武大会那么改动不就是外部没受到干扰 ...</blockquote>
 压力测试的参数是固定的，不受外界侵入的影响…所以这才是问题所在。
-
-
-
-
-
 
 
 -----
@@ -12934,23 +8578,16 @@ hmmmm顺便这次的同人本编号为外传X3，已经确定是和sugary days�
 ##### 2162#       发表于 2019-2-17 14:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42624646&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-2-17 14:01</a>
 
 本身压力测试就是受到外部影响提前了吧，IF线他们还能搞那么久到比武大会那么改动不就是外部没受到干扰 ...</blockquote>
 最终压力测试的时间是事先Rath由东大门的天命设置的固定时间，不会受任何影响的（除非有人没事闲的拿高位神器去打门，然而小说里没看出有发生过这种事）
 
 
-
-
-
-
-
 -----
 
 ####  alerbe  
 ##### 2163#       发表于 2019-2-17 14:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42623966&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-2-17 12:39</a>
@@ -12962,25 +8599,13 @@ me28(桐人和优吉欧的if篇)出了，大致内容如下
 这是从正面抗爱丽丝变成了澡堂突袭（看）吗<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  芝士排骨  
 ##### 2164#       发表于 2019-2-17 20:52
 
 
-
-
 大浴场就该搭配美少女啊！<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12989,25 +8614,16 @@ me28(桐人和优吉欧的if篇)出了，大致内容如下
 ##### 2165#       发表于 2019-2-17 20:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42628218&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-2-17 20:52</a>
 
 大浴场就该搭配美少女啊！</blockquote>
 大浴场配美少女的部分这两期的动画都做不到
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2166#       发表于 2019-2-19 16:07
-
-
-
 
 
 第19話 右目の封印
@@ -13030,27 +8646,15 @@ me28(桐人和优吉欧的if篇)出了，大致内容如下
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1g0bsk09pnmj20p00e2gnd.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2167#       发表于 2019-2-21 16:51
 
 
-
-
 ソードアート・オンライン　アリシゼーション 第19話「右目の封印」 予告映像
 [https://www.youtube.com/watch?v=ozRAyXW-qv8](https://www.youtube.com/watch?v=ozRAyXW-qv8)
 [https://weibo.com/tv/v/HhHbRjfej?fid=1034:4342175912389018](https://weibo.com/tv/v/HhHbRjfej?fid=1034:4342175912389018)
-
-
-
-
-
 
 
 -----
@@ -13059,22 +8663,14 @@ me28(桐人和优吉欧的if篇)出了，大致内容如下
 ##### 2168#       发表于 2019-2-22 12:42
 
 
-
-
 这一集大概率得看直播或者字幕组的肉了。
 b站不要指望…
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2169#       发表于 2019-2-22 14:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42684581&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-2-22 12:42</a>
@@ -13087,16 +8683,10 @@ B站源感觉在Admin说话的时候会全程放大只给一个头<img src="http
 我比较在意之后对Admin战怎么处理，动画组会不会给Admin穿上衣服（
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2170#       发表于 2019-2-22 14:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42685575&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-02-22 14:07:55</a>
@@ -13107,16 +8697,10 @@ B站源感觉在Admin说话的时候会全程放大只给一个头
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  镜hinata  
 ##### 2171#       发表于 2019-2-22 16:56
-
 
 
 <blockquote>引用第2167楼reekilynn于2019-02-22 12:42发表的  :
@@ -13130,16 +8714,10 @@ B站源感觉在Admin说话的时候会全程放大只给一个头
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2172#       发表于 2019-2-22 19:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42687849&amp;ptid=1550732" target="_blank">镜hinata 发表于 2019-2-22 16:56</a>
@@ -13152,17 +8730,10 @@ B站源感觉在Admin说话的时候会全程放大只给一个头
 说明白点就是小说里Admin的登场几乎全程都是全果出镜的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  芝士排骨  
 ##### 2173#       发表于 2019-2-23 17:40
-
-
 
 
 刀剑3打斗成这样 ，还有啥可看的?！
@@ -13174,27 +8745,15 @@ a姐的奶子！<img src="https://static.saraba1st.com/image/smiley/face2017/073
 —— 来自 HUAWEI VTR-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  就烦起名字  
 ##### 2174#       发表于 2019-2-23 20:03
 
 
-
-
 有除了B站之外能看到 直播的地方吗
 
 求一个
-
-
-
-
-
 
 
 -----
@@ -13203,21 +8762,13 @@ a姐的奶子！<img src="https://static.saraba1st.com/image/smiley/face2017/073
 ##### 2175#       发表于 2019-2-23 20:17
 
 
-
-
 求一个直播地址
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2176#       发表于 2019-2-23 23:24
-
 
 
  本帖最后由 pokemon最爱 于 2019-2-23 23:28 编辑 
@@ -13227,32 +8778,19 @@ a姐的奶子！<img src="https://static.saraba1st.com/image/smiley/face2017/073
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  shadow001  
 ##### 2177#       发表于 2019-2-23 23:27
 
 
-
-
 Eugeo被BBA強上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 2178#       发表于 2019-2-23 23:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42701491&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-2-23 23:24</a>
@@ -13264,24 +8802,13 @@ Eugeo被BBA強上了<img src="https://static.saraba1st.com/image/smiley/face2017
 然后BD恢复可以再买一波？
 
 
-
-
-
-
-
 -----
 
 ####  zechins  
 ##### 2179#       发表于 2019-2-23 23:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">放开那个无辜少年，有甚麽冲我来
-
-
-
-
-
 
 
 -----
@@ -13290,21 +8817,13 @@ Eugeo被BBA強上了<img src="https://static.saraba1st.com/image/smiley/face2017
 ##### 2180#       发表于 2019-2-23 23:30
 
 
-
-
 把衣服给穿上是要突出脱下来时对ugo的冲击力吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2181#       发表于 2019-2-23 23:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42701510&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-2-23 23:27</a>
@@ -13315,16 +8834,10 @@ Eugeo被BBA強上了<img src="https://static.saraba1st.com/image/smiley/face2017
 不过BD确实可以卖一波，毕竟自主规制……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2182#       发表于 2019-2-23 23:31
-
 
 
  本帖最后由 reekilynn 于 2019-2-23 23:50 编辑 
@@ -13334,17 +8847,10 @@ Eugeo被BBA強上了<img src="https://static.saraba1st.com/image/smiley/face2017
 顺便这一集专门弄了个ed
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2183#       发表于 2019-2-23 23:32
-
-
 
 
 19 ご視聴頂きありがとうございました！ 
@@ -13353,16 +8859,10 @@ Eugeo被BBA強上了<img src="https://static.saraba1st.com/image/smiley/face2017
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1g0gs01cc8gj20qq0xctd6.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  芝士排骨  
 ##### 2184#       发表于 2019-2-23 23:34
-
 
 
  本帖最后由 芝士排骨 于 2019-2-23 23:37 编辑 
@@ -13376,26 +8876,15 @@ Eugeo被BBA強上了<img src="https://static.saraba1st.com/image/smiley/face2017
 这里完全是原作问题。
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2185#       发表于 2019-2-23 23:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42701564&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-2-23 23:34</a>
 感觉优吉欧缺爱在之前从来没表现（甚至还有两个妹子喜欢，以及好基友），在这里突然被这种低级嘴炮制服感觉 ...</blockquote>
 这应该是web改文库时候出现的问题，因为web这一段的洗脑失败了。
-
-
-
-
-
 
 
 -----
@@ -13404,16 +8893,10 @@ Eugeo被BBA強上了<img src="https://static.saraba1st.com/image/smiley/face2017
 ##### 2186#       发表于 2019-2-23 23:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42701564&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-2-23 23:34</a>
 
 感觉优吉欧缺爱在之前从来没表现（甚至还有两个妹子喜欢，以及好基友），在这里突然被这种低级嘴炮制服感觉 ...</blockquote>
 其实稍微加一点，把和父母关系不好，和村里人几乎不交流，还有家里排老三没有继承权也不能结婚这一点也做出来，应该不怎么花时间的。ugo从这20集来看有一个很明显的特征就是冲动，软弱则刻画的不够。
-
-
-
-
-
 
 
 -----
@@ -13422,16 +8905,10 @@ Eugeo被BBA強上了<img src="https://static.saraba1st.com/image/smiley/face2017
 ##### 2187#       发表于 2019-2-23 23:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42701564&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-2-23 23:34</a>
 
 感觉优吉欧缺爱在之前从来没表现（甚至还有两个妹子喜欢，以及好基友），在这里突然被这种低级嘴炮制服感觉 ...</blockquote>
 其实稍微加一点，把和父母关系不好，和村里人几乎不交流，还有家里排老三没有继承权也不能结婚这一点也做出来，应该不怎么花时间的。ugo从这20集来看有一个很明显的特征就是冲动，软弱则刻画的不够。
-
-
-
-
-
 
 
 -----
@@ -13440,15 +8917,9 @@ Eugeo被BBA強上了<img src="https://static.saraba1st.com/image/smiley/face2017
 ##### 2188#       发表于 2019-2-23 23:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42701615&amp;ptid=1550732" target="_blank">alerbe 发表于 2019-2-23 23:41</a>
 其实稍微加一点，把和父母关系不好，和村里人几乎不交流，还有家里排老三没有继承权也不能结婚这一点也做 ...</blockquote>
 应该还是uw太过依赖心理描写的锅
-
-
-
-
-
 
 
 -----
@@ -13457,14 +8928,7 @@ Eugeo被BBA強上了<img src="https://static.saraba1st.com/image/smiley/face2017
 ##### 2189#       发表于 2019-2-24 01:28
 
 
-
-
 ed真好听
-
-
-
-
-
 
 
 -----
@@ -13473,16 +8937,9 @@ ed真好听
 ##### 2190#       发表于 2019-2-24 01:30
 
 
-
-
 老阿姨真带劲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
-
-
-
-
-
 
 
 -----
@@ -13491,15 +8948,9 @@ ed真好听
 ##### 2191#       发表于 2019-2-24 02:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">唠差不多了，下一集解说老阿姨那些统治手段快点的话能开怪
 
 不过还有五集的量，我寻思着再纯唠两集也不是不可能……
-
-
-
-
-
 
 
 -----
@@ -13508,14 +8959,7 @@ ed真好听
 ##### 2192#       发表于 2019-2-24 02:35
 
 
-
-
 我和弟弟一起硬着头皮看完的。<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13524,16 +8968,10 @@ ed真好听
 ##### 2193#       发表于 2019-2-24 03:00
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">问一下阿批的这一集删减过吗
 
 
 老太婆这集可真奶光啊
-
-
-
-
-
 
 
 -----
@@ -13542,21 +8980,13 @@ ed真好听
 ##### 2194#       发表于 2019-2-24 03:03
 
 
-
-
 巴哈看的，不知道有没有被删减。。。
-
-
-
-
-
 
 
 -----
 
 ####  欧阳明  
 ##### 2195#       发表于 2019-2-24 06:16
-
 
 
 <blockquote>alerbe 发表于 2019-2-23 23:41
@@ -13566,27 +8996,15 @@ ed真好听
 我还以为ugo是孤儿呢
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 2196#       发表于 2019-2-24 07:36
 
 
-
-
 有放大
 
 —— 来自 Xiaomi MI 6, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -13595,23 +9013,16 @@ ed真好听
 ##### 2197#       发表于 2019-2-24 08:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42701615&amp;ptid=1550732" target="_blank">alerbe 发表于 2019-2-23 23:41</a>
 
 其实稍微加一点，把和父母关系不好，和村里人几乎不交流，还有家里排老三没有继承权也不能结婚这一点也做 ...</blockquote>
 这算是根本人设情报被直接丢掉吧<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">........这制作组该直接被抬下去
 
 
-
-
-
-
-
 -----
 
 ####  小妻水亚美  
 ##### 2198#       发表于 2019-2-24 10:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42702726&amp;ptid=1550732" target="_blank">海鸟封 发表于 2019-2-24 03:00</a>
@@ -13624,16 +9035,10 @@ ed真好听
 —— 来自 motorola XT1929-15, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  XSK小龙王  
 ##### 2199#       发表于 2019-2-24 10:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42702726&amp;ptid=1550732" target="_blank">海鸟封 发表于 2019-2-24 03:00</a>
@@ -13645,17 +9050,10 @@ ed真好听
 拉近景，替换画面<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  raynor_1999  
 ##### 2200#       发表于 2019-2-24 11:35
-
-
 
 
 哎~不是~我说啊，老阿姨每个骑士都要来这么一出的吗？公车？双向插头？说好的冰雕女神呢？
@@ -13664,16 +9062,10 @@ ed真好听
 我是不是可以期待小薄本了？外表冰山内心碧池的老阿姨感觉也不错啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2201#       发表于 2019-2-24 12:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42704552&amp;ptid=1550732" target="_blank">raynor_1999 发表于 2019-2-24 11:35</a>
@@ -13684,16 +9076,10 @@ ed真好听
 应该只有对优吉欧才这么搞了，别的没有。
 
 
-
-
-
-
-
 -----
 
 ####  XSK小龙王  
 ##### 2202#       发表于 2019-2-24 12:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42703308&amp;ptid=1550732" target="_blank">dropdead 发表于 2019-2-24 08:43</a>
@@ -13702,16 +9088,10 @@ ed真好听
 打算很聪明的放在以后嘴炮时再做吧
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2203#       发表于 2019-2-24 13:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42704552&amp;ptid=1550732" target="_blank">raynor_1999 发表于 2019-02-24 11:35:47</a>
@@ -13723,24 +9103,13 @@ ed真好听
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  fanisy  
 ##### 2204#       发表于 2019-2-24 14:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">  阿姨我是你忠实的骑士！！
-
-
-
-
-
 
 
 -----
@@ -13749,23 +9118,16 @@ ed真好听
 ##### 2205#       发表于 2019-2-24 14:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42704875&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-2-24 12:11</a>
 
 应该只有对优吉欧才这么搞了，别的没有。</blockquote>
 我觉得贝尔库里也是半骗半送的
 
 
-
-
-
-
-
 -----
 
 ####  dudideng  
 ##### 2206#       发表于 2019-2-24 14:37
-
 
 
  本帖最后由 dudideng 于 2019-2-24 14:44 编辑 
@@ -13775,16 +9137,10 @@ ed真好听
 看到别人截图还以为有点啥，10集左右就弃的我又捡起来看了下，感觉亏了
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2207#       发表于 2019-2-24 14:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42706139&amp;ptid=1550732" target="_blank">alerbe 发表于 2019-2-24 14:28</a>
@@ -13793,16 +9149,10 @@ ed真好听
 骑士长被整合时灵魂已经被Admin玩坏了（
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2208#       发表于 2019-2-24 15:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42706205&amp;ptid=1550732" target="_blank">dudideng 发表于 2019-02-24 14:37:01</a>
@@ -13813,24 +9163,13 @@ ed真好听
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  默默沉睡  
 ##### 2209#       发表于 2019-2-24 15:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">我记得文库版就一直不穿衣服的
-
-
-
-
-
 
 
 -----
@@ -13839,16 +9178,9 @@ ed真好听
 ##### 2210#       发表于 2019-2-24 15:55
 
 
-
-
 妈蛋，我觉得正常人都会选大祭司的，ugo不亏<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 —— 来自 nubia NX531J, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -13857,16 +9189,9 @@ ed真好听
 ##### 2211#       发表于 2019-2-24 17:58
 
 
-
-
 敬神模块的三面墙演出不错
 
 A姐a-1也弄的精致<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13875,14 +9200,7 @@ A姐a-1也弄的精致<img src="https://static.saraba1st.com/image/smiley/face20
 ##### 2212#       发表于 2019-2-24 19:18
 
 
-
-
 a1的床戏都做的好棒<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13891,14 +9209,7 @@ a1的床戏都做的好棒<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 2213#       发表于 2019-2-24 19:32
 
 
-
-
 你妈的，为什么不是我
-
-
-
-
-
 
 
 -----
@@ -13907,14 +9218,7 @@ a1的床戏都做的好棒<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 2214#       发表于 2019-2-24 20:19
 
 
-
-
 我也选BBA......
-
-
-
-
-
 
 
 -----
@@ -13923,14 +9227,7 @@ a1的床戏都做的好棒<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 2215#       发表于 2019-2-24 21:06
 
 
-
-
 老阿姨随便脱两下都跨次元洗脑了，要不要这么真实
-
-
-
-
-
 
 
 -----
@@ -13939,16 +9236,10 @@ a1的床戏都做的好棒<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 2216#       发表于 2019-2-24 21:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42704875&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-2-24 12:11</a>
 
 应该只有对优吉欧才这么搞了，别的没有。</blockquote>
 真没有磨过爱丽丝吗？
-
-
-
-
-
 
 
 -----
@@ -13957,16 +9248,10 @@ a1的床戏都做的好棒<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 2217#       发表于 2019-2-24 21:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42709725&amp;ptid=1550732" target="_blank">itzpapalotl 发表于 2019-2-24 21:30</a>
 
 真没有磨过爱丽丝吗？</blockquote>
 爱丽丝没记错是花了三天三夜硬破的
-
-
-
-
-
 
 
 -----
@@ -13975,13 +9260,7 @@ a1的床戏都做的好棒<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 2218#       发表于 2019-2-24 21:45
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13990,14 +9269,7 @@ a1的床戏都做的好棒<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 2219#       发表于 2019-2-24 21:49
 
 
-
-
 等等你们在羡慕什么啊，哪有什么老阿姨的奶？！都是仙人跳的好吧，念完咒语身心都是老阿姨的形状了可能硬的功能都没了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14006,21 +9278,13 @@ a1的床戏都做的好棒<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 2220#       发表于 2019-2-24 23:04
 
 
-
-
 看过原著的能解释一下，老阿姨醒过来之前，u弟弟耳边的警告女声是怎么回事么？
-
-
-
-
-
 
 
 -----
 
 ####  haibara  
 ##### 2221#       发表于 2019-2-24 23:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42710821&amp;ptid=1550732" target="_blank">心灵的乳头 发表于 2019-2-24 23:04</a>
@@ -14031,16 +9295,10 @@ a1的床戏都做的好棒<img src="https://static.saraba1st.com/image/smiley/fa
 小爱丽丝
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2222#       发表于 2019-2-25 00:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42710821&amp;ptid=1550732" target="_blank">心灵的乳头 发表于 2019-2-24 23:04</a>
@@ -14053,16 +9311,10 @@ a1的床戏都做的好棒<img src="https://static.saraba1st.com/image/smiley/fa
 这个天花板上的小爱丽丝得存在你可以参照一下剧场版的白尤娜（
 
 
-
-
-
-
-
 -----
 
 ####  赤字大王  
 ##### 2223#       发表于 2019-2-25 18:53
-
 
 
 <blockquote>pokemon最爱 发表于 2019-2-25 00:53
@@ -14072,16 +9324,10 @@ a1的床戏都做的好棒<img src="https://static.saraba1st.com/image/smiley/fa
 小爱丽丝是不是永远得不到解放了
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2224#       发表于 2019-2-25 19:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42709846&amp;ptid=1550732" target="_blank">尤金·海德里希 发表于 2019-2-24 21:45</a>
@@ -14090,16 +9336,10 @@ a1的床戏都做的好棒<img src="https://static.saraba1st.com/image/smiley/fa
 后面的UGO超帅的
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2225#       发表于 2019-2-25 19:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42720885&amp;ptid=1550732" target="_blank">赤字大王 发表于 2019-2-25 18:53</a>
@@ -14108,27 +9348,15 @@ a1的床戏都做的好棒<img src="https://static.saraba1st.com/image/smiley/fa
 这个涉及到前半年结局的重大剧透
 
 
-
-
-
-
-
 -----
 
 ####  奶绷子  
 ##### 2226#       发表于 2019-2-25 21:34
 
 
-
-
 老阿姨： system call repair maidenhead
 
 <img src="https://ws1.sinaimg.cn/large/006vK2Tuly1g0izoo8tr8g30go0957wl.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14137,14 +9365,7 @@ a1的床戏都做的好棒<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 2227#       发表于 2019-2-26 01:45
 
 
-
-
 讲道理,上过老阿姨了也算不亏了,但是UJO这明显亏出翔好吗
-
-
-
-
-
 
 
 -----
@@ -14153,22 +9374,13 @@ a1的床戏都做的好棒<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 2228#       发表于 2019-2-26 21:25
 
 
-
-
 我叛变了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  evangelina  
 ##### 2229#       发表于 2019-2-27 05:54
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201902/27/055445ryyqzk7zumv7xkvq.jpg" referrerpolicy="no-referrer">
@@ -14181,9 +9393,6 @@ a1的床戏都做的好棒<img src="https://static.saraba1st.com/image/smiley/fa
 2019-2-27 05:54 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201902/27/055446oxidjiovqofqsiws.jpg" referrerpolicy="no-referrer">
 
 
@@ -14194,16 +9403,7 @@ a1的床戏都做的好棒<img src="https://static.saraba1st.com/image/smiley/fa
 2019-2-27 05:54 上传
 
 
-
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14212,21 +9412,13 @@ a1的床戏都做的好棒<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 2230#       发表于 2019-2-28 02:31
 
 
-
-
 ED戛然而止，就像UGO被封闭了思想一样……
-
-
-
-
-
 
 
 -----
 
 ####  烟花缭乱  
 ##### 2231#       发表于 2019-2-28 09:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42748018&amp;ptid=1550732" target="_blank">xingenge 发表于 2019-2-28 02:31</a>
@@ -14237,16 +9429,10 @@ ED戛然而止，就像UGO被封闭了思想一样……</blockquote>
 二垒都没上，一个洗面奶就变成老阿姨的打手了，属实five
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2232#       发表于 2019-2-28 16:45
-
 
 
  本帖最后由 xingenge 于 2019-2-28 18:11 编辑 
@@ -14278,16 +9464,10 @@ ED戛然而止，就像UGO被封闭了思想一样……</blockquote>
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1g0mann3ntej20p00e2q5z.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 2233#       发表于 2019-2-28 22:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42735997&amp;ptid=1550732" target="_blank">evangelina 发表于 2019-2-27 05:54</a></blockquote>
@@ -14296,24 +9476,13 @@ ED戛然而止，就像UGO被封闭了思想一样……</blockquote>
 基友其实是被肉体诱惑了吧，毕竟那些嘴炮显得太low了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">这集的最高祭司确实比爱丽丝画的要精细一些，大概是肉戏不能崩的缘故吧
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2234#       发表于 2019-3-2 23:37
 
 
-
 <img src="http://wx4.sinaimg.cn/large/0068TvVBgy1g0ovib4nk5j30m80vkwkl.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14322,22 +9491,14 @@ ED戛然而止，就像UGO被封闭了思想一样……</blockquote>
 ##### 2235#       发表于 2019-3-2 23:38
 
 
-
-
 这一部分admin负责刷时髦，所以反派恶心的那一面分给元老长了。
 高木涉够辛苦的。
-
-
-
-
-
 
 
 -----
 
 ####  vuder  
 ##### 2236#       发表于 2019-3-3 00:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42757984&amp;ptid=1550732" target="_blank">mhss 发表于 2019-2-28 22:25</a>
@@ -14347,25 +9508,13 @@ ED戛然而止，就像UGO被封闭了思想一样……</blockquote>
 现实世界哪有时间慢慢看，事情都是超高速发生的
 
 
-
-
-
-
-
 -----
 
 ####  Wilmes  
 ##### 2237#       发表于 2019-3-3 01:00
 
 
-
-
 额...一如既往的不咸不淡，现在每周看一集已经成例行公事了
-
-
-
-
-
 
 
 -----
@@ -14374,14 +9523,7 @@ ED戛然而止，就像UGO被封闭了思想一样……</blockquote>
 ##### 2238#       发表于 2019-3-3 01:40
 
 
-
-
 这四平八稳的节奏该说是原著使然吗……本质是点子文，动画化要出彩只能在作画美术音乐摄影之类的地方堆料，看上半部分最后几话能打成啥样吧
-
-
-
-
-
 
 
 -----
@@ -14390,13 +9532,7 @@ ED戛然而止，就像UGO被封闭了思想一样……</blockquote>
 ##### 2239#       发表于 2019-3-3 02:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为什么每次做恶心的部分都那么传神
-
-
-
-
-
 
 
 -----
@@ -14405,13 +9541,7 @@ ED戛然而止，就像UGO被封闭了思想一样……</blockquote>
 ##### 2240#       发表于 2019-3-3 03:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">又是一集废话
-
-
-
-
-
 
 
 -----
@@ -14420,14 +9550,7 @@ ED戛然而止，就像UGO被封闭了思想一样……</blockquote>
 ##### 2241#       发表于 2019-3-3 10:57
 
 
-
-
 感觉爱丽丝蒙着一只眼睛更好看了算不算慕残<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14436,14 +9559,7 @@ ED戛然而止，就像UGO被封闭了思想一样……</blockquote>
 ##### 2242#       发表于 2019-3-3 11:10
 
 
-
-
 总感觉这节奏回到上世纪了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14452,14 +9568,7 @@ ED戛然而止，就像UGO被封闭了思想一样……</blockquote>
 ##### 2243#       发表于 2019-3-3 12:25
 
 
-
-
 特别强调和UGO只分开了一小时<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14468,23 +9577,16 @@ ED戛然而止，就像UGO被封闭了思想一样……</blockquote>
 ##### 2244#       发表于 2019-3-3 12:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42782343&amp;ptid=1550732" target="_blank">XSK小龙王 发表于 2019-03-03 12:25:01</a>
 特别强调和UGO只分开了一小时</blockquote>恶意满满，其实1小时也很厉害了！ugo！（破音）<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2245#       发表于 2019-3-3 13:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42782567&amp;ptid=1550732" target="_blank">马肉刺身 发表于 2019-3-3 12:48</a>
@@ -14496,16 +9598,10 @@ ED戛然而止，就像UGO被封闭了思想一样……</blockquote>
 大部分时间都在昏迷，某人在怪叫的时候就是上周的剧情啊
 
 
-
-
-
-
-
 -----
 
 ####  XSK小龙王  
 ##### 2246#       发表于 2019-3-3 13:11
-
 
 
 <blockquote>引用第2243楼马肉刺身于2019-03-03 12:48发表的  :
@@ -14519,25 +9615,13 @@ ED戛然而止，就像UGO被封闭了思想一样……</blockquote>
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  7sword  
 ##### 2247#       发表于 2019-3-3 13:35
 
 
-
-
 这一季是真缺钱还是原作就是这样，全程叨唠，打戏短而且感觉很敷衍，基本是跳着看，而且看剧透才知道为啥找来茅野爱衣充当cv了，原来这爱丽丝不是一般的后宫啊，完全是骑脸正宫的，真人被一个纸片人欺负也是惨了
-
-
-
-
-
 
 
 -----
@@ -14546,16 +9630,9 @@ ED戛然而止，就像UGO被封闭了思想一样……</blockquote>
 ##### 2248#       发表于 2019-3-3 14:27
 
 
-
-
 好糟糕的台词，老阿姨她给了我想要的！其他都无所谓啦
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -14564,21 +9641,13 @@ ED戛然而止，就像UGO被封闭了思想一样……</blockquote>
 ##### 2249#       发表于 2019-3-3 14:48
 
 
-
-
 还是想不通，两年时间为啥rath没能回收小爱丽丝<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2250#       发表于 2019-3-3 15:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42783488&amp;ptid=1550732" target="_blank">kiritokun 发表于 2019-3-3 14:48</a>
@@ -14589,16 +9658,10 @@ ED戛然而止，就像UGO被封闭了思想一样……</blockquote>
 唯一的（强行）解释就是因为潜行时开着FLA机能，和人是潜行了3天后出来的（并且正好里面是爱丽丝被抓的那天），Rath这时还没发现爱丽丝打破禁忌，然后内部加速倍率在桐人离开后升到了5000，Rath差不多3个半小时后才发现爱丽丝的事，然后这时候已经晚了（
 
 
-
-
-
-
-
 -----
 
 ####  alerbe  
 ##### 2251#       发表于 2019-3-3 16:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42782962&amp;ptid=1550732" target="_blank">7sword 发表于 2019-3-3 13:35</a>
@@ -14607,16 +9670,10 @@ ED戛然而止，就像UGO被封闭了思想一样……</blockquote>
 其实也不能说是纸片人，以她在现实世界一个月就能学会把自己打包送到桐人家这点来说，即使人类智慧而言也是非常聪明的了
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 2252#       发表于 2019-3-3 16:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42779429&amp;ptid=1550732" target="_blank">vuder 发表于 2019-3-3 00:57</a>
@@ -14627,16 +9684,10 @@ ED戛然而止，就像UGO被封闭了思想一样……</blockquote>
 也就是现实世界只是维持服务器稳定，然后坐等成果而已？
 
 
-
-
-
-
-
 -----
 
 ####  烟花缭乱  
 ##### 2253#       发表于 2019-3-3 17:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42784202&amp;ptid=1550732" target="_blank">mhss 发表于 2019-3-3 16:47</a>
@@ -14649,16 +9700,10 @@ ED戛然而止，就像UGO被封闭了思想一样……</blockquote>
 流速提到失真程度以上好像得按个红按钮，有人潜行在里面的时候属于危险操作，对精神寿命伤害太大
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2254#       发表于 2019-3-3 18:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42784202&amp;ptid=1550732" target="_blank">mhss 发表于 2019-3-3 16:47</a>
@@ -14669,33 +9714,19 @@ ED戛然而止，就像UGO被封闭了思想一样……</blockquote>
 因为FLA的原因外面大部分时候是没办法实时监控的……只能从服务器里调数据然后派大量人手之后一段一段的观察。
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 2255#       发表于 2019-3-3 18:58
 
 
-
-
 staff真是...人界百态不好好做，桐人的心理描写不好好做，一到整这种近似符号化的丑角的时候，脑袋里的好点子一个个往外冒
-
-
-
-
-
 
 
 -----
 
 ####  BYSora  
 ##### 2256#       发表于 2019-3-3 19:45
-
-
 
 
 小野学能够把魔劣那又臭又长的说明文改得还可以看下去，为什么到了UW篇却做成了叨剑？
@@ -14705,16 +9736,10 @@ staff真是...人界百态不好好做，桐人的心理描写不好好做，一
 但现在动画我只想看亚总和爱丽丝的修罗场
 
 
-
-
-
-
-
 -----
 
 ####  kiritokun  
 ##### 2257#       发表于 2019-3-3 19:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42783852&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-3-3 15:51</a>
@@ -14725,16 +9750,10 @@ staff真是...人界百态不好好做，桐人的心理描写不好好做，一
 描述是触犯禁忌目录后两天，这个实在是圆不回来
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2258#       发表于 2019-3-3 21:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42785744&amp;ptid=1550732" target="_blank">kiritokun 发表于 2019-3-3 19:57</a>
@@ -14745,16 +9764,10 @@ staff真是...人界百态不好好做，桐人的心理描写不好好做，一
 是讨论过这个问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cybernetics  
 ##### 2259#       发表于 2019-3-3 23:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42785633&amp;ptid=1550732" target="_blank">BYSora 发表于 2019-03-03 19:45:32</a>
@@ -14765,16 +9778,10 @@ staff真是...人界百态不好好做，桐人的心理描写不好好做，一
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  alerbe  
 ##### 2260#       发表于 2019-3-3 23:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42785633&amp;ptid=1550732" target="_blank">BYSora 发表于 2019-3-3 19:45</a>
@@ -14785,16 +9792,10 @@ staff真是...人界百态不好好做，桐人的心理描写不好好做，一
 魔劣的动画其实也就那样。。 UW篇的小说我觉得好看的部分其实还就是爱丽丝回村那段，以及和后来和亚斯娜吵架那段，两个人水平差不多才有看头。
 
 
-
-
-
-
-
 -----
 
 ####  烟花缭乱  
 ##### 2261#       发表于 2019-3-3 23:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42787667&amp;ptid=1550732" target="_blank">alerbe 发表于 2019-3-3 23:39</a>
@@ -14806,32 +9807,19 @@ staff真是...人界百态不好好做，桐人的心理描写不好好做，一
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">媚宅杀必死我肯定也选蒂法的触手PLAY啊，老阿姨缩水仙人跳有锤子看头啦
 
 
-
-
-
-
-
 -----
 
 ####  Ichthy  
 ##### 2262#       发表于 2019-3-4 00:05
 
 
-
-
 我逗忘了自己看到第几集了，不过好像也没有接着看的必要了。
-
-
-
-
-
 
 
 -----
 
 ####  马肉刺身  
 ##### 2263#       发表于 2019-3-4 11:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42782759&amp;ptid=1550732" target="_blank">XSK小龙王 发表于 2019-3-3 13:11</a>
@@ -14842,25 +9830,13 @@ staff真是...人界百态不好好做，桐人的心理描写不好好做，一
 ！！！！！！靠，我看得不仔细。可能和大叔XX00太累了吧. 1连2场，吃不消，我不怪他. 
 
 
-
-
-
-
-
 -----
 
 ####  绯冉老师  
 ##### 2264#       发表于 2019-3-4 18:04
 
 
-
-
 得吧，现在每周就像查水表一样看了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14869,22 +9845,13 @@ staff真是...人界百态不好好做，桐人的心理描写不好好做，一
 ##### 2265#       发表于 2019-3-4 21:18
 
 
-
-
 又丑又low的小丑反派躲在自己的房间里用水晶球看毛片<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2266#       发表于 2019-3-6 17:16
-
-
 
 
 第21話 三十二番目の騎士
@@ -14908,24 +9875,13 @@ staff真是...人界百态不好好做，桐人的心理描写不好好做，一
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1g0t6rj7i1ej20p00e2myd.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2267#       发表于 2019-3-6 19:32
 
 
-
 <img src="http://wx4.sinaimg.cn/large/0068TvVBgy1g0taqmpt3yj30nk0xbjyq.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14934,19 +9890,13 @@ staff真是...人界百态不好好做，桐人的心理描写不好好做，一
 ##### 2268#       发表于 2019-3-7 08:14
 
 
-
-
 为培训AI 科学家为其研发了MMO游戏 有远攻、近战和法师职业
 
 
 科技行业已经一次又一次的证明：视频游戏并非只面向人类玩家的。近年来，诸多科学团队已经尝试通过游戏来培训各种类型的人工智能，甚至于某些机器学习模型可以击败世界顶级的《星际争霸》和《DOTA2》玩家。然而这对于AI研究团队OpenAI仍然不够，因此他们现在将注意力瞄准了大型多人在线游戏（MMO）。
 
 
-
-
 OpenAI现阶段并不会向《魔兽世界》这样的游戏释放数百名AI玩家，相反而是了一款名为“Neural MMO”的大规模多代理游戏（massively multiagent），只有机器人在里面“游戏”。目前Neural MMO游戏内容还是相当简单的，神经网络代理必须要在游戏世界中争夺包括食物、水和石头在内的各种资源。Neural MMO以RuneScape为灵感，为AI玩家提供了远程、近战和法师三种职业。
-
-
 
 
 Neural MMO的目的是为了了解AI在更接近于现实世界虚拟环境中的表现。目前OpenAI已经掌握了一些非常有趣的数据。在Neural MMO游戏中伴随着AI玩家数量的增加，会迫使每位玩家尽可能的探索地图并避免竞争，这种行为和当代MMO游戏中的人类玩家惊人的相似。
@@ -14955,26 +9905,13 @@ Neural MMO的目的是为了了解AI在更接近于现实世界虚拟环境中�
 经过几分钟的培训之后，AI玩家在收集资源、相互学习和掌握经验方面变得更有效率。与传统MMO一样，Neural MMO将继续随着时间的推移接收更新，这将迫使AI玩家定期适应新情况。从研究的角度来看，很难说神经MMO是多么实用，但它确实是一个引人入胜的项目。
 
 
-
-
-
-
-
-
 抄袭UGO 无耻
-
-
-
-
-
 
 
 -----
 
 ####  kiritokun  
 ##### 2269#       发表于 2019-3-9 11:51
-
-
 
 
 姑且和这楼有关吧
@@ -14992,25 +9929,13 @@ ALfheimOL
 哎，能看的东西又少了一个<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2270#       发表于 2019-3-9 23:10
 
 
-
-
 OP画面变了！
-
-
-
-
-
 
 
 -----
@@ -15019,21 +9944,13 @@ OP画面变了！
 ##### 2271#       发表于 2019-3-9 23:21
 
 
-
-
 不受金屬物件傷害,然而桐人他們三把劍都不是金屬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2272#       发表于 2019-3-9 23:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42852346&amp;ptid=1550732" target="_blank">shadow001 发表于 2019-3-9 23:21</a>
@@ -15046,26 +9963,15 @@ OP画面变了！
 桐人的黑剑是真的纯木剑……
 
 
-
-
-
-
-
 -----
 
 ####  shadow001  
 ##### 2273#       发表于 2019-3-9 23:30
 
 
-
  本帖最后由 shadow001 于 2019-3-9 23:38 编辑 
 
 還有什麼片有Admin這樣全程全裸戰鬥的BOSS?<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15074,16 +9980,9 @@ OP画面变了！
 ##### 2274#       发表于 2019-3-9 23:33
 
 
-
-
 话说动画把丘德尔金犯蠢用冰素攻击被爱丽丝一个武装支配打掉的部分跳过了直接就上了火元素巨人了啊。
 
 那么下集就是黑大衣桐人的招牌单手剑剑技Vorpal Strike了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15092,16 +9991,10 @@ OP画面变了！
 ##### 2275#       发表于 2019-3-9 23:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42852425&amp;ptid=1550732" target="_blank">shadow001 发表于 2019-3-9 23:30</a>
 
 還有什麼片有Admin這樣全程全裸戰鬥的BOSS?</blockquote>
 一拳超人的蚊子女（确信）
-
-
-
-
-
 
 
 -----
@@ -15110,14 +10003,7 @@ OP画面变了！
 ##### 2276#       发表于 2019-3-9 23:53
 
 
-
-
 希望接下来两集小野学能搞一个可以让我小吹一下的打戏，准哥布林水平就够了
-
-
-
-
-
 
 
 -----
@@ -15126,15 +10012,9 @@ OP画面变了！
 ##### 2277#       发表于 2019-3-10 00:08
 
 
-
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1g0wzrkk5nrg20dc07ie84.gif" referrerpolicy="no-referrer">
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1g0wzrs2akgg20hs0a01l3.gif" referrerpolicy="no-referrer">
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1g0wzrvrvrjg20hs0a0u0z.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15143,14 +10023,8 @@ OP画面变了！
 ##### 2278#       发表于 2019-3-10 00:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42852709&amp;ptid=1550732" target="_blank">xingenge 发表于 2019-3-10 00:08</a></blockquote>
 a姐社保！
-
-
-
-
-
 
 
 -----
@@ -15159,14 +10033,7 @@ a姐社保！
 ##### 2279#       发表于 2019-3-10 00:41
 
 
-
-
 用的旧op
-
-
-
-
-
 
 
 -----
@@ -15175,15 +10042,9 @@ a姐社保！
 ##### 2280#       发表于 2019-3-10 00:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">gkd
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -15192,14 +10053,7 @@ a姐社保！
 ##### 2281#       发表于 2019-3-10 00:49
 
 
-
-
 草，还是OPv2，不看了
-
-
-
-
-
 
 
 -----
@@ -15208,14 +10062,7 @@ a姐社保！
 ##### 2282#       发表于 2019-3-10 00:52
 
 
-
-
 b站真的无语，op整个换，，，那接下来打斗得剪成啥样？    我现在知道圣光的好了
-
-
-
-
-
 
 
 -----
@@ -15224,16 +10071,10 @@ b站真的无语，op整个换，，，那接下来打斗得剪成啥样？   
 ##### 2283#       发表于 2019-3-10 00:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42853005&amp;ptid=1550732" target="_blank">xingenge 发表于 2019-3-10 00:49</a>
 
 草，还是OPv2，不看了</blockquote>
 正版受害者szyd，爱奇艺也是旧op，估计是你国这边版权方直接给阉割了（毕竟可以不用纠结怎么在op里抠图删减<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
-
-
-
-
-
 
 
 -----
@@ -15242,14 +10083,7 @@ b站真的无语，op整个换，，，那接下来打斗得剪成啥样？   
 ##### 2284#       发表于 2019-3-10 00:59
 
 
-
-
 原来看小说的时候因为uw篇长得不得了还是日轻文风就跳了好几卷，现在看了动画就觉得幸亏跳了，要不然看这拖沓的剧情和恶心的角色肯定就弃了
-
-
-
-
-
 
 
 -----
@@ -15258,14 +10092,8 @@ b站真的无语，op整个换，，，那接下来打斗得剪成啥样？   
 ##### 2285#       发表于 2019-3-10 01:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42852709&amp;ptid=1550732" target="_blank">xingenge 发表于 2019-3-10 00:08</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/208.png" referrerpolicy="no-referrer">直接换OP和画面剪辑循环播放了
-
-
-
-
-
 
 
 -----
@@ -15274,16 +10102,10 @@ b站真的无语，op整个换，，，那接下来打斗得剪成啥样？   
 ##### 2286#       发表于 2019-3-10 01:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42853034&amp;ptid=1550732" target="_blank">皇马王子劳尔 发表于 2019-3-10 00:53</a>
 
 正版受害者szyd，爱奇艺也是旧op，估计是你国这边版权方直接给阉割了（毕竟可以不用纠结怎么在op里抠图删 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">应该是版权方阉割，一般一上就有的就是拿到就这样的
-
-
-
-
-
 
 
 -----
@@ -15292,13 +10114,7 @@ b站真的无语，op整个换，，，那接下来打斗得剪成啥样？   
 ##### 2287#       发表于 2019-3-10 01:03
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为啥战斗前要全裸呢，那个床周围的帘子也没了
-
-
-
-
-
 
 
 -----
@@ -15307,16 +10123,10 @@ b站真的无语，op整个换，，，那接下来打斗得剪成啥样？   
 ##### 2288#       发表于 2019-3-10 01:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42853034&amp;ptid=1550732" target="_blank">皇马王子劳尔 发表于 2019-3-10 00:53</a>
 
 正版受害者szyd，爱奇艺也是旧op，估计是你国这边版权方直接给阉割了（毕竟可以不用纠结怎么在op里抠图删 ...</blockquote>
 A爹处理的吗？
-
-
-
-
-
 
 
 -----
@@ -15325,23 +10135,16 @@ A爹处理的吗？
 ##### 2289#       发表于 2019-3-10 01:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42853117&amp;ptid=1550732" target="_blank">小妻水亚美 发表于 2019-3-10 01:05</a>
 
 A爹处理的吗？</blockquote>
 A爹所有的片子都是A爹自己直接给熟肉
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2290#       发表于 2019-3-10 01:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42853105&amp;ptid=1550732" target="_blank">lxx4869 发表于 2019-3-10 01:03</a>
@@ -15353,33 +10156,20 @@ A爹所有的片子都是A爹自己直接给熟肉
 帘子是受到伤害天命耗尽
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2291#       发表于 2019-3-10 01:21
 
 
-
-
 这么说吧，桐优对打是三木出的主意，但是我个人认为现在这种不上不下的处理方法(文库本就是这样)很不好
 要么别黑，要么一黑到底，哪怕川原写个优吉欧替admin挡了桐人一刀致命伤的剧情也比现在要强…
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 2292#       发表于 2019-3-10 01:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42852442&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-3-9 23:33</a>
@@ -15393,25 +10183,13 @@ A爹所有的片子都是A爹自己直接给熟肉
 换了画面的OP依然保留了某人往后的各种暗示
 
 
-
-
-
-
-
 -----
 
 ####  一个陆仁贾  
 ##### 2293#       发表于 2019-3-10 01:44
 
 
-
-
 我看微博上的新OP也没见需要和谐的地方啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15420,20 +10198,13 @@ A爹所有的片子都是A爹自己直接给熟肉
 ##### 2294#       发表于 2019-3-10 02:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">听别人说就OP改了，后面没有，去看，结果也都没见到
-
-
-
-
-
 
 
 -----
 
 ####  小妻水亚美  
 ##### 2295#       发表于 2019-3-10 06:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42853416&amp;ptid=1550732" target="_blank">xingenge 发表于 2019-3-10 02:04</a>
@@ -15444,25 +10215,13 @@ A爹所有的片子都是A爹自己直接给熟肉
 —— 来自 motorola XT1929-15, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  欧阳明  
 ##### 2296#       发表于 2019-3-10 06:10
 
 
-
-
 ugo这反复横跳看的我……这个人刻画的也太肤浅了
-
-
-
-
-
 
 
 -----
@@ -15471,16 +10230,10 @@ ugo这反复横跳看的我……这个人刻画的也太肤浅了
 ##### 2297#       发表于 2019-3-10 07:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42853872&amp;ptid=1550732" target="_blank">欧阳明 发表于 2019-3-10 06:10</a>
 ugo这反复横跳看的我……这个人刻画的也太肤浅了</blockquote>
 web根本没有反复横跳。这是编辑出的主意。
 然而黑就算了，没有一黑到底…嘛当时川原也没那个精力大改。
-
-
-
-
-
 
 
 -----
@@ -15489,23 +10242,15 @@ web根本没有反复横跳。这是编辑出的主意。
 ##### 2298#       发表于 2019-3-10 07:21
 
 
-
-
 行吧，小期待下最终战吧。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2299#       发表于 2019-3-10 07:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42853236&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-3-10 01:24</a>
@@ -15519,16 +10264,10 @@ web根本没有反复横跳。这是编辑出的主意。
 桐人的黑大衣就是这时候出来的（我又没说是二刀流）
 
 
-
-
-
-
-
 -----
 
 ####  绯冉老师  
 ##### 2300#       发表于 2019-3-10 07:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42853949&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-03-10 07:16:16</a>
@@ -15539,25 +10278,13 @@ web根本没有反复横跳。这是编辑出的主意。
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  光宗薫  
 ##### 2301#       发表于 2019-3-10 09:00
 
 
-
-
 老女人好骚，想看老女人和侏儒球的本子
-
-
-
-
-
 
 
 -----
@@ -15566,21 +10293,13 @@ web根本没有反复横跳。这是编辑出的主意。
 ##### 2302#       发表于 2019-3-10 09:23
 
 
-
-
 这和谐也太多了，，，，
-
-
-
-
-
 
 
 -----
 
 ####  闽明  
 ##### 2303#       发表于 2019-3-10 09:47
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">想看这种本子
@@ -15591,17 +10310,10 @@ IF元老长击败了主角三人，拿到了大祭司的承诺一夜，大祭司
 只恨自己20年前为什么这么懒，没专心学画画<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 2304#       发表于 2019-3-10 10:44
-
-
 
 
 一直没追了，然后被微博上新OP给炸进来了，接着B站和谐了？
@@ -15609,16 +10321,10 @@ IF元老长击败了主角三人，拿到了大祭司的承诺一夜，大祭司
 不过也难怪就是了。
 
 
-
-
-
-
-
 -----
 
 ####  alien  
 ##### 2305#       发表于 2019-3-10 10:52
-
 
 
  本帖最后由 alien 于 2019-3-10 11:01 编辑 
@@ -15634,16 +10340,10 @@ OPv2.1有一段老太婆果体和桐人对打，所以直接替换了。
 手机播放器好像没逐帧看的功能(๑&gt;؂&lt;๑） 有没有漏看呢？😊
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2306#       发表于 2019-3-10 11:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42855197&amp;ptid=1550732" target="_blank">alien 发表于 2019-3-10 10:52</a>
@@ -15653,32 +10353,19 @@ OPv2.1有一段老太婆果体和桐人对打，所以直接替换了。
 别想了，小说插图都没有点，动画怎么可能做出来
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 2307#       发表于 2019-3-10 16:50
 
 
-
-
 没有羞耻心诱惑小年轻的老菩萨<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  shadow001  
 ##### 2308#       发表于 2019-3-10 16:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42855197&amp;ptid=1550732" target="_blank">alien 发表于 2019-3-10 10:52</a>
@@ -15691,16 +10378,10 @@ TV就別想了
 BD就看士大夫有沒有服務精神(大概率沒有
 
 
-
-
-
-
-
 -----
 
 ####  cat1230  
 ##### 2309#       发表于 2019-3-10 18:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42855197&amp;ptid=1550732" target="_blank">alien 发表于 2019-3-10 10:52</a>
@@ -15711,16 +10392,10 @@ OPv2.1有一段老太婆果体和桐人对打，所以直接替换了。
 B站这集正片有删改么，今天看完倒是没觉得正片哪里特别不舒服，但总感觉有删改，ptsd了已经。现在都懒的下载，某站字幕组版本也很久没更新了。
 
 
-
-
-
-
-
 -----
 
 ####  hlazd  
 ##### 2310#       发表于 2019-3-10 18:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42858703&amp;ptid=1550732" target="_blank">cat1230 发表于 2019-3-10 18:06</a>
@@ -15730,16 +10405,10 @@ B站这集正片有删改么，今天看完倒是没觉得正片哪里特别不�
 — from Sony G8441, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  Observer1379  
 ##### 2311#       发表于 2019-3-10 20:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42858170&amp;ptid=1550732" target="_blank">shadow001 发表于 2019-3-10 16:59</a>
@@ -15749,32 +10418,19 @@ BD就看士大夫有沒有服務精神(大概率沒有</blockquote>
 bd：修复了打斗过程中头发挡住点的bug<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  大丈夫萌大乃  
 ##### 2312#       发表于 2019-3-10 23:36
 
 
-
-
 我就想问问这紫色老太婆没有羞耻心的么,就这么光着身子跟别人谈笑风生?简直羡...气死我了
-
-
-
-
-
 
 
 -----
 
 ####  alien  
 ##### 2313#       发表于 2019-3-11 10:17
-
 
 
  本帖最后由 alien 于 2019-3-12 12:16 编辑 
@@ -15793,25 +10449,13 @@ bd：修复了打斗过程中头发挡住点的bug<img src="https://static.sarab
 <img src="https://s16.directupload.net/images/190312/t8bztrhu.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cxxx  
 ##### 2314#       发表于 2019-3-11 20:53
 
 
-
-
 拥有神一般力量的紫色老太婆还要跟猴子一样光着腚蹦来蹦去跟挂b拼刀<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15820,23 +10464,15 @@ bd：修复了打斗过程中头发挡住点的bug<img src="https://static.sarab
 ##### 2315#       发表于 2019-3-11 20:56
 
 
-
-
 这个版本的OP2比前面的酷炫了好多啊
 
 最高祭司太喜欢玩仙人跳了，用身体骗了一个又一个却不去兑现，早点给优吉欧了搞不好黄毛就不会反了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  woshenc  
 ##### 2316#       发表于 2019-3-11 21:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42872477&amp;ptid=1550732" target="_blank">mhss 发表于 2019-3-11 20:56</a>
@@ -15847,27 +10483,15 @@ bd：修复了打斗过程中头发挡住点的bug<img src="https://static.sarab
 出本子的话是不是就是所有被欺骗的骑士一齐上阵对着a姐发泄怒火<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  星空天神  
 ##### 2317#       发表于 2019-3-12 00:36
 
 
-
-
 好想看a姐的本子啊
 
 —— 来自 OnePlus ONEPLUS A5000, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -15876,14 +10500,7 @@ bd：修复了打斗过程中头发挡住点的bug<img src="https://static.sarab
 ##### 2318#       发表于 2019-3-12 11:28
 
 
-
-
 我觉得换装镜头是做不好了。
-
-
-
-
-
 
 
 -----
@@ -15892,14 +10509,8 @@ bd：修复了打斗过程中头发挡住点的bug<img src="https://static.sarab
 ##### 2319#       发表于 2019-3-12 23:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42852709&amp;ptid=1550732" target="_blank">xingenge 发表于 2019-3-10 00:08</a></blockquote>
 第三图看不到好急啊！！！
-
-
-
-
-
 
 
 -----
@@ -15908,16 +10519,10 @@ bd：修复了打斗过程中头发挡住点的bug<img src="https://static.sarab
 ##### 2320#       发表于 2019-3-13 00:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42885719&amp;ptid=1550732" target="_blank">czs13 发表于 2019-3-12 23:48</a>
 
 第三图看不到好急啊！！！</blockquote>
 [https://imgur.com/rtKINKS](https://imgur.com/rtKINKS)
-
-
-
-
-
 
 
 -----
@@ -15926,14 +10531,7 @@ bd：修复了打斗过程中头发挡住点的bug<img src="https://static.sarab
 ##### 2321#       发表于 2019-3-13 10:55
 
 
-
-
 看完逐帧截图，感觉光着身子打斗实在很傻，没有任何风情可言。对处男可能有些威力，可是kirito不是处男……
-
-
-
-
-
 
 
 -----
@@ -15942,23 +10540,16 @@ bd：修复了打斗过程中头发挡住点的bug<img src="https://static.sarab
 ##### 2322#       发表于 2019-3-13 14:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42861601&amp;ptid=1550732" target="_blank">大丈夫萌大乃 发表于 2019-3-10 23:36</a>
 
 我就想问问这紫色老太婆没有羞耻心的么,就这么光着身子跟别人谈笑风生?简直羡...气死我了 ...</blockquote>
 作者解释说这是因为她已经知道UW是个虚假世界，外加拿到权限，羞耻心啥的已经不需要了
 
 
-
-
-
-
-
 -----
 
 ####  芝士排骨  
 ##### 2323#       发表于 2019-3-13 14:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42892383&amp;ptid=1550732" target="_blank">发财就手 发表于 2019-3-13 14:52</a>
@@ -15968,26 +10559,14 @@ bd：修复了打斗过程中头发挡住点的bug<img src="https://static.sarab
 —— 来自 HUAWEI VTR-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  kiritokun  
 ##### 2324#       发表于 2019-3-13 18:26
 
 
-
-
 按设定admin是uw最漂亮的，而某人也不是什么正人君子，所以讲道理的话...是吧...
 不过话又说回来，某人一根筋的脑袋可能真的单方面屏蔽了也说不定<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15996,14 +10575,7 @@ bd：修复了打斗过程中头发挡住点的bug<img src="https://static.sarab
 ##### 2325#       发表于 2019-3-13 18:34
 
 
-
-
 admin算是最美反派了吧
-
-
-
-
-
 
 
 -----
@@ -16012,22 +10584,15 @@ admin算是最美反派了吧
 ##### 2326#       发表于 2019-3-13 18:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42892383&amp;ptid=1550732" target="_blank">发财就手 发表于 2019-3-13 14:52</a>
 作者解释说这是因为她已经知道UW是个虚假世界，外加拿到权限，羞耻心啥的已经不需要了 ...</blockquote>
 就是媚俗，读者喜欢
-
-
-
-
-
 
 
 -----
 
 ####  tkss1111  
 ##### 2327#       发表于 2019-3-14 12:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42895085&amp;ptid=1550732" target="_blank">vuder 发表于 2019-3-13 18:41</a>
@@ -16038,33 +10603,19 @@ admin算是最美反派了吧
 何况道理上说的过去，本来就是上个厕所都能被围观，虽然是数据层面。
 
 
-
-
-
-
-
 -----
 
 ####  皇马王子劳尔  
 ##### 2328#       发表于 2019-3-14 16:39
 
 
-
-
 这周先行图和pv怎么还没出，难道要停一周？
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2329#       发表于 2019-3-15 16:28
-
-
 
 
 第22話 剣の巨人
@@ -16098,32 +10649,19 @@ admin算是最美反派了吧
 [https://akiba.or.jp/denkigai2019spring/](https://akiba.or.jp/denkigai2019spring/)
 
 
-
-
-
-
-
 -----
 
 ####  绯冉老师  
 ##### 2330#       发表于 2019-3-15 17:21
 
 
-
-
 pv特效到了，不知道正片怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  芝士排骨  
 ##### 2331#       发表于 2019-3-15 21:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42917077&amp;ptid=1550732" target="_blank">绯冉老师 发表于 2019-3-15 17:21</a>
@@ -16133,16 +10671,10 @@ pv特效到了，不知道正片怎么样</blockquote>
 —— 来自 HUAWEI VTR-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  绯冉老师  
 ##### 2332#       发表于 2019-3-16 12:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42919841&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-3-15 21:58</a>
@@ -16156,25 +10688,13 @@ pv特效到了，不知道正片怎么样</blockquote>
 不过这话pv最后一幕，老爷那段最长音速冲击的架势（架在手上），莫名看出滑稽味，有点怕正片演出会尬<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  shadow001  
 ##### 2333#       发表于 2019-3-16 23:29
 
 
-
-
 4人突然間悠閑地聊天,還以為已經打完ADMIN<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16183,14 +10703,7 @@ pv特效到了，不知道正片怎么样</blockquote>
 ##### 2334#       发表于 2019-3-16 23:58
 
 
-
-
 小说时完全感觉不到但是动画化后就充满了槽点<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16199,14 +10712,7 @@ pv特效到了，不知道正片怎么样</blockquote>
 ##### 2335#       发表于 2019-3-17 01:23
 
 
-
-
 司祭最后整个掉线，演出出来挨打<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16215,21 +10721,13 @@ pv特效到了，不知道正片怎么样</blockquote>
 ##### 2336#       发表于 2019-3-17 01:23
 
 
-
-
 这演出。。。。你们聊天能给a姐一个分镜吗？
-
-
-
-
-
 
 
 -----
 
 ####  皇马王子劳尔  
 ##### 2337#       发表于 2019-3-17 01:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42923987&amp;ptid=1550732" target="_blank">绯冉老师 发表于 2019-3-16 12:15</a>
@@ -16240,16 +10738,10 @@ pv特效到了，不知道正片怎么样</blockquote>
 在动画疯看到的弹幕：像是在打撞球<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  芝士排骨  
 ##### 2338#       发表于 2019-3-17 01:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42930218&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-3-16 23:58</a>
@@ -16258,27 +10750,15 @@ pv特效到了，不知道正片怎么样</blockquote>
 川原的心理描写渲染还算可以，不过看完以后想想发生了啥剧情，就发现槽点挺多
 
 
-
-
-
-
-
 -----
 
 ####  lmclmc2  
 ##### 2339#       发表于 2019-3-17 01:27
 
 
-
-
 秒了，又秒了，又秒了，妈耶
 
 秒完就开始站桩聊天了。这集到底是在干什么！
-
-
-
-
-
 
 
 -----
@@ -16287,14 +10767,7 @@ pv特效到了，不知道正片怎么样</blockquote>
 ##### 2340#       发表于 2019-3-17 01:38
 
 
-
-
 话说这个老太婆有没X欲的
-
-
-
-
-
 
 
 -----
@@ -16303,14 +10776,7 @@ pv特效到了，不知道正片怎么样</blockquote>
 ##### 2341#       发表于 2019-3-17 01:39
 
 
-
-
 所以说现在的刀剑果然是粉丝向续作了吗？这剧情节奏是哪个鬼才搞出来的？原著的问题不但没改善反而还更严重了啊
-
-
-
-
-
 
 
 -----
@@ -16319,16 +10785,10 @@ pv特效到了，不知道正片怎么样</blockquote>
 ##### 2342#       发表于 2019-3-17 01:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42930965&amp;ptid=1550732" target="_blank">Wilmes 发表于 2019-03-17 01:39:12</a>
 所以说现在的刀剑果然是粉丝向续作了吗？这剧情节奏是哪个鬼才搞出来的？原著的问题不但没改善反而还更严重 ...</blockquote>剧情无所谓啊，我就是来看肉的
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -16337,22 +10797,13 @@ pv特效到了，不知道正片怎么样</blockquote>
 ##### 2343#       发表于 2019-3-17 01:55
 
 
-
-
 小野学，真的不行
-
-
-
-
-
 
 
 -----
 
 ####  杂灰  
 ##### 2344#       发表于 2019-3-17 02:01
-
-
 
 
 动画党观后感
@@ -16365,16 +10816,10 @@ pv特效到了，不知道正片怎么样</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2345#       发表于 2019-3-17 02:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42930905&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-3-17 01:26</a>
@@ -16385,17 +10830,10 @@ pv特效到了，不知道正片怎么样</blockquote>
 说起来心理描写也算是动画这类媒介最难描绘的内容吧……
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2346#       发表于 2019-3-17 02:06
-
-
 
 
 时候已晚，然后说的话好像过去听过再加上有些地方有点谜，都想睡觉了。
@@ -16403,16 +10841,10 @@ pv特效到了，不知道正片怎么样</blockquote>
 所以他们这次是要搞定BBA吧，UGO是在这里挂了的吗，但是之后怎么演啊
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2347#       发表于 2019-3-17 02:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42931080&amp;ptid=1550732" target="_blank">杂灰 发表于 2019-3-17 02:01</a>
@@ -16429,16 +10861,10 @@ pv特效到了，不知道正片怎么样</blockquote>
 而剑巨人也说了全身神器级武器构成，超高攻击超高防御（
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2348#       发表于 2019-3-17 02:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42931107&amp;ptid=1550732" target="_blank">xingenge 发表于 2019-3-17 02:06</a>
@@ -16451,32 +10877,19 @@ pv特效到了，不知道正片怎么样</blockquote>
 然后UGO便当桐人植物人，RW那边侵入者来抢Rath的技术，UW这边残余的骑士们训练军队准备跟DT的大战
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2349#       发表于 2019-3-17 02:12
 
 
-
-
 说起来现在看动画对比小说内容有点当初看文库版对比WEB版时的感觉，都是前期有不少内容的改动让人期待结果后面几乎没怎么修改导致观感下降。
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 2350#       发表于 2019-3-17 02:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42931080&amp;ptid=1550732" target="_blank">杂灰 发表于 2019-3-17 02:01</a>
@@ -16489,16 +10902,10 @@ pv特效到了，不知道正片怎么样</blockquote>
 这就是删减了前面小镇剧情的弊端，小蜘蛛的内心世界全部没有了。
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2351#       发表于 2019-3-17 02:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42930905&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-3-17 01:26</a>
@@ -16507,25 +10914,13 @@ pv特效到了，不知道正片怎么样</blockquote>
 然而动画还删除了大量的心理活动
 
 
-
-
-
-
-
 -----
 
 ####  欧阳明  
 ##### 2352#       发表于 2019-3-17 06:26
 
 
-
-
 ugo和alice看到现在感觉特别平淡，a姐的人物刻画但是很好
-
-
-
-
-
 
 
 -----
@@ -16534,23 +10929,15 @@ ugo和alice看到现在感觉特别平淡，a姐的人物刻画但是很好
 ##### 2353#       发表于 2019-3-17 07:33
 
 
-
-
 sao3到这都是意料之中的尬演了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 确实，你不话叨拖拖节奏，到这了24话又演不完<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  捣♂湿  
 ##### 2354#       发表于 2019-3-17 09:36
-
 
 
 <img src="http://wx1.sinaimg.cn/large/a117c058gy1g15jh0h7j4g20eo088qv5.gif" referrerpolicy="no-referrer">
@@ -16561,35 +10948,19 @@ sao3到这都是意料之中的尬演了吧<img src="https://static.saraba1st.co
 抽插老干妈
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  newise  
 ##### 2355#       发表于 2019-3-17 09:50
 
 
-
-
 bba蠢啊，拿秒杀桐傲天的机关兽控制程序跟自 慰队交易不行吗？那个弱点只有怕俄罗斯黑客吧
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2356#       发表于 2019-3-17 10:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42931117&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-3-17 02:08</a>
@@ -16600,16 +10971,10 @@ bba蠢啊，拿秒杀桐傲天的机关兽控制程序跟自 慰队交易不行�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可能看小说还不会有感觉，主要动画上集最后搞得那么隆重，这集开场没多久就被一招秒了，落差感……
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2357#       发表于 2019-3-17 10:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42931124&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-3-17 02:10</a>
@@ -16618,31 +10983,19 @@ bba蠢啊，拿秒杀桐傲天的机关兽控制程序跟自 慰队交易不行�
 噢噢这样就接上了我之前被剧透的后来的部分了
 
 
-
-
-
-
-
 -----
 
 ####  芝士排骨  
 ##### 2358#       发表于 2019-3-17 10:55
 
 
-
 话说之前图书馆好像没好好解释摇光的行为准则，下一集c姐不能攻击估计会表现得单纯圣母，很糟糕啊
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2359#       发表于 2019-3-17 12:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42932430&amp;ptid=1550732" target="_blank">newise 发表于 2019-3-17 09:50</a>
@@ -16653,16 +11006,10 @@ bba蠢啊，拿秒杀桐傲天的机关兽控制程序跟自 慰队交易不行�
 另外Yui和茅场表示我们两个还存在于网络世界一天就别想有人在黑客技术上超越我们<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2360#       发表于 2019-3-17 12:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42932919&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-3-17 10:55</a>
@@ -16671,32 +11018,19 @@ bba蠢啊，拿秒杀桐傲天的机关兽控制程序跟自 慰队交易不行�
 制作组应该是觉得两个Code 871的表现足够了吧。
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 2361#       发表于 2019-3-17 20:48
 
 
-
-
 为什么要安排木属性的爱丽丝来挡火属性的攻击，而旁边冰属性的ugo却去吸引老太婆的注意力？
-
-
-
-
-
 
 
 -----
 
 ####  ualiant  
 ##### 2362#       发表于 2019-3-17 21:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42939331&amp;ptid=1550732" target="_blank">Mr.BBWoLf 发表于 2019-3-17 20:48</a>
@@ -16707,16 +11041,10 @@ bba蠢啊，拿秒杀桐傲天的机关兽控制程序跟自 慰队交易不行�
 原来这里面还是有属性克制存在的么？完全看不出来啊。
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 2363#       发表于 2019-3-17 21:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42939580&amp;ptid=1550732" target="_blank">ualiant 发表于 2019-3-17 21:13</a>
@@ -16725,16 +11053,10 @@ bba蠢啊，拿秒杀桐傲天的机关兽控制程序跟自 慰队交易不行�
 因为...武器由什么构成按照现实规则它就是有属性的啊，老太婆之前也提到了金属不能近身，所以挺好奇原作是通过什么决定三个人这样配合的
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2364#       发表于 2019-3-17 21:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42939783&amp;ptid=1550732" target="_blank">Mr.BBWoLf 发表于 2019-3-17 21:33</a>
@@ -16743,16 +11065,10 @@ bba蠢啊，拿秒杀桐傲天的机关兽控制程序跟自 慰队交易不行�
 因为只有爱丽丝和桐人有防御技啊，爱丽丝自认自己射程无法远距离秒杀，UGO也办不到，那么不就只能这样了。
 
 
-
-
-
-
-
 -----
 
 ####  haibara  
 ##### 2365#       发表于 2019-3-17 21:48
-
 
 
  本帖最后由 haibara 于 2019-3-17 22:02 编辑 
@@ -16782,20 +11098,10 @@ UGO声东击西，同人用心意作长距离攻击是比较恰当的选择
 这个战斗元老长优势比较大的，近战被封锁的情况下，远战要与法师打，对战士很不利
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  haibara  
 ##### 2366#       发表于 2019-3-17 22:17
-
 
 
  本帖最后由 haibara 于 2019-3-17 22:23 编辑 
@@ -16814,18 +11120,10 @@ A姐最强法师，但为了确保干掉第2强小贤者，宁愿让场地可以
 如果是我，即使剑技再强，对手是可能伤到我情况的下，毕竟因为UW HP大家平等，不能用神圣术回复的情况下是有风险的，是不能大意的
 
 
-
-
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2367#       发表于 2019-3-17 22:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42939331&amp;ptid=1550732" target="_blank">Mr.BBWoLf 发表于 2019-3-17 20:48</a>
@@ -16838,17 +11136,10 @@ A姐最强法师，但为了确保干掉第2强小贤者，宁愿让场地可以
 基于同样的道理也只能桐人对元老长进行攻击，因为不使用武装支配术以及神圣术的话，桐人是我方唯一持有远距离攻击手段的。（目前所出现的所有剑技当中，唯一能进行“远距离”攻击的剑技就只有Vorpal Strike一招，这招的判定长度比起刺出去的剑要长很多，射程是3米来着？当然UW这次因为心意射程变成了5倍。）所以这里桐人直接就摆出架势准备用Vorpal Strike并叫优吉欧去干扰元老长的视线了。
 
 
-
-
-
-
-
 -----
 
 ####  kiritokun  
 ##### 2368#       发表于 2019-3-17 22:46
-
-
 
 
 后知后觉，夏洛特是不是标准工具人了。
@@ -16858,16 +11149,10 @@ A姐最强法师，但为了确保干掉第2强小贤者，宁愿让场地可以
 这tv不知道还能好么<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2369#       发表于 2019-3-17 22:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42940552&amp;ptid=1550732" target="_blank">kiritokun 发表于 2019-3-17 22:46</a>
@@ -16880,25 +11165,13 @@ A姐最强法师，但为了确保干掉第2强小贤者，宁愿让场地可以
 把桐人带到之后它的任务就完成了，再跟着桐人爬塔完全是自己的意愿。
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 2370#       发表于 2019-3-17 23:39
 
 
-
-
 谢谢三位的解释，我忘考虑武装支配术吟诵时间这件事了，老记不住3季里要战斗读条。
-
-
-
-
-
 
 
 -----
@@ -16907,13 +11180,7 @@ A姐最强法师，但为了确保干掉第2强小贤者，宁愿让场地可以
 ##### 2371#       发表于 2019-3-17 23:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这灾难性的尬聊演出我真是看得想死
-
-
-
-
-
 
 
 -----
@@ -16922,20 +11189,13 @@ A姐最强法师，但为了确保干掉第2强小贤者，宁愿让场地可以
 ##### 2372#       发表于 2019-3-18 01:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">所以换衣服+武器变长就是桐人的卐解了吗
-
-
-
-
-
 
 
 -----
 
 ####  reekilynn  
 ##### 2373#       发表于 2019-3-18 01:44
-
 
 
  本帖最后由 reekilynn 于 2019-3-18 01:45 编辑 
@@ -16950,16 +11210,10 @@ A姐最强法师，但为了确保干掉第2强小贤者，宁愿让场地可以
 至于看打戏的………hmmmm也许saop还行？不过这个得问幽远，我都好久没看saop了
 
 
-
-
-
-
-
 -----
 
 ####  alerbe  
 ##### 2374#       发表于 2019-3-18 01:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42941827&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-3-18 01:44</a>
@@ -16970,17 +11224,10 @@ A姐最强法师，但为了确保干掉第2强小贤者，宁愿让场地可以
 saop就我看到的第七层的内容，不如说推进剧情部分写的还可以，其他并不算重点。单纯说打斗我觉得还不如看比村乳业的漫画，他画分镜比动画的还好一些<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2375#       发表于 2019-3-18 01:50
-
-
 
 
 实际上sao的游戏(或者说异世界)只是披在表面的一层皮
@@ -16990,16 +11237,10 @@ saop就我看到的第七层的内容，不如说推进剧情部分写的还可�
 至于saop，说不准才是川原新尝试的开始。
 
 
-
-
-
-
-
 -----
 
 ####  alerbe  
 ##### 2376#       发表于 2019-3-18 01:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42931636&amp;ptid=1550732" target="_blank">欧阳明 发表于 2019-3-17 06:26</a>
@@ -17008,16 +11249,10 @@ ugo和alice看到现在感觉特别平淡，a姐的人物刻画但是很好</blo
 爱丽丝这个人物真正塑造起来要回乡那段，有了心理上的斗争，剧情才有张力。现在这部分只能算她人格成长的开端，到了大战时期拍着胸脯说为人民而战才算是到了一个高度，但是那也不是终点就是了。 UGO就真的是以后背后灵担当了
 
 
-
-
-
-
-
 -----
 
 ####  alerbe  
 ##### 2377#       发表于 2019-3-18 01:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42941849&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-3-18 01:50</a>
@@ -17028,16 +11263,10 @@ ugo和alice看到现在感觉特别平淡，a姐的人物刻画但是很好</blo
 战斗细节其实可以不太追究，临场气氛的差距才是要命的，对比75层迷宫boss战那段，现在打斗环节真的还是有不足，对观众观感上的影响比细枝末节要更重要。
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2378#       发表于 2019-3-18 01:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42941863&amp;ptid=1550732" target="_blank">alerbe 发表于 2019-3-18 01:53</a>
@@ -17046,16 +11275,10 @@ ugo和alice看到现在感觉特别平淡，a姐的人物刻画但是很好</blo
 顺便我很弄不明白的一个细节问题就是干嘛这帮人要把顶层的玻璃墙全改掉，要知道这也是个比较重要的点
 
 
-
-
-
-
-
 -----
 
 ####  MagicMirai  
 ##### 2379#       发表于 2019-3-18 06:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42940552&amp;ptid=1550732" target="_blank">kiritokun 发表于 2019-3-17 22:46</a>
@@ -17066,26 +11289,15 @@ ugo和alice看到现在感觉特别平淡，a姐的人物刻画但是很好</blo
 rkl大大现在还有在翻啥小说吗
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2380#       发表于 2019-3-18 06:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42942295&amp;ptid=1550732" target="_blank">MagicMirai 发表于 2019-3-18 06:22</a>
 rkl大大现在还有在翻啥小说吗</blockquote>
 目前没有了……毕业之后也没那么多空闲时间
-
-
-
-
-
 
 
 -----
@@ -17094,16 +11306,9 @@ rkl大大现在还有在翻啥小说吗</blockquote>
 ##### 2381#       发表于 2019-3-19 02:55
 
 
-
-
 仔细思考了一下admin到底是怎样的存在
 从一个UW人的角度来说，大概是个拿到了危险玩具的熊孩子
 从管理系统的角度来说，大概就是被利己主义污染暴走的系统了
-
-
-
-
-
 
 
 -----
@@ -17112,14 +11317,7 @@ rkl大大现在还有在翻啥小说吗</blockquote>
 ##### 2382#       发表于 2019-3-19 02:57
 
 
-
-
 是不是B站删减了，这个蜘蛛哪来的
-
-
-
-
-
 
 
 -----
@@ -17128,22 +11326,15 @@ rkl大大现在还有在翻啥小说吗</blockquote>
 ##### 2383#       发表于 2019-3-19 02:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42954524&amp;ptid=1550732" target="_blank">宅心难改 发表于 2019-3-19 02:57</a>
 是不是B站删减了，这个蜘蛛哪来的</blockquote>
 前面有提到。大概在动画12-13话
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 2384#       发表于 2019-3-19 08:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42954524&amp;ptid=1550732" target="_blank">宅心难改 发表于 2019-3-19 02:57</a>
@@ -17153,16 +11344,10 @@ rkl大大现在还有在翻啥小说吗</blockquote>
 —— 来自 vivo V1813BT, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  欧阳明  
 ##### 2385#       发表于 2019-3-19 08:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42941851&amp;ptid=1550732" target="_blank">alerbe 发表于 2019-3-18 01:50</a>
@@ -17175,16 +11360,10 @@ ugo的问题是太好男二套路
 有点看acg经验都觉得这两角色太太太套路到没啥优点
 
 
-
-
-
-
-
 -----
 
 ####  alerbe  
 ##### 2386#       发表于 2019-3-19 10:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42955180&amp;ptid=1550732" target="_blank">欧阳明 发表于 2019-3-19 08:16</a>
@@ -17197,17 +11376,10 @@ ugo的问题是太好男二套路
 并非圣母，只是根据受到的教育作出的选择来确立自我。UGO除了冲动易怒之外几乎没显示出什么性格特点来，原作就有相当的问题了。
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 2387#       发表于 2019-3-19 23:00
-
-
 
 
 真不是一般的难看啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -17221,16 +11393,10 @@ ugo的问题是太好男二套路
 眼镜出场怀念蜘蛛几人尬聊那BGM就像是已经打完boss战后追忆一般，简直尴尬的要死<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  memphiseme  
 ##### 2388#       发表于 2019-3-20 08:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42965191&amp;ptid=1550732" target="_blank">mhss 发表于 2019-3-19 23:00</a>
@@ -17245,27 +11411,15 @@ ugo的问题是太好男二套路
 —— 來自 Xiaomi MI 8, Android 9上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  woshenc  
 ##### 2389#       发表于 2019-3-20 21:03
 
 
-
-
 这几天p站上A姐的图暴增，而且不乏高质量作品
 
 给人一种刀剑3期人气全靠A姐卖力演出的错觉
-
-
-
-
-
 
 
 -----
@@ -17274,24 +11428,16 @@ ugo的问题是太好男二套路
 ##### 2390#       发表于 2019-3-20 21:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42941766&amp;ptid=1550732" target="_blank">アルメリア 发表于 2019-3-18 01:29</a>
 
 所以换衣服+武器变长就是桐人的卐解了吗</blockquote>
 要比喻的话这只是月华天冲
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2391#       发表于 2019-3-22 16:23
-
-
 
 
 第23話 アドミニストレータ
@@ -17321,17 +11467,10 @@ ugo的问题是太好男二套路
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1g1bnatjif7j20p00e2did.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  绯冉老师  
 ##### 2392#       发表于 2019-3-22 19:02
-
-
 
 
 怕又得聊一集<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
@@ -17339,17 +11478,10 @@ ugo的问题是太好男二套路
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2393#       发表于 2019-3-22 20:13
-
-
 
 
 【BD&amp;DVD Vol.4ジャケットイラスト解禁】
@@ -17361,17 +11493,10 @@ ugo的问题是太好男二套路
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1g1bty33eabj20ei0i2tmt.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  芝士排骨  
 ##### 2394#       发表于 2019-3-23 23:36
-
-
 
 
 。。。。。。
@@ -17389,16 +11514,10 @@ ugo的问题是太好男二套路
 看在优吉欧的份上，我留点嘴德吧
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2395#       发表于 2019-3-23 23:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43015219&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-3-23 23:36</a>
@@ -17411,25 +11530,13 @@ ugo的问题是太好男二套路
 其他部分我同意。
 
 
-
-
-
-
-
 -----
 
 ####  shadow001  
 ##### 2396#       发表于 2019-3-24 00:15
 
 
-
-
 打ADMIN這段真是越看越傻逼,已經沒救了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17438,15 +11545,9 @@ ugo的问题是太好男二套路
 ##### 2397#       发表于 2019-3-24 00:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43015581&amp;ptid=1550732" target="_blank">shadow001 发表于 2019-3-24 00:15</a>
 打ADMIN這段真是越看越傻逼,已經沒救了</blockquote>
 川原本来14年的时候可以改一下，然而他没有。
-
-
-
-
-
 
 
 -----
@@ -17455,21 +11556,13 @@ ugo的问题是太好男二套路
 ##### 2398#       发表于 2019-3-24 00:51
 
 
-
-
 聊天20分钟，打3分钟这节奏是怎么回事，完全就是在看当年的Re:CREATORS
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2399#       发表于 2019-3-24 00:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43015902&amp;ptid=1550732" target="_blank">高原命 发表于 2019-3-24 00:51</a>
@@ -17480,25 +11573,13 @@ ugo的问题是太好男二套路
 唯独这段真是不希望还原原作。
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2400#       发表于 2019-3-24 01:00
 
 
-
-
 这段看小说的时候就已经是槽点满载了，希望下一话的战斗能做好点吧
-
-
-
-
-
 
 
 -----
@@ -17507,14 +11588,7 @@ ugo的问题是太好男二套路
 ##### 2401#       发表于 2019-3-24 01:11
 
 
-
-
 冰剑不是断了？后面两把剑又是咋回事？
-
-
-
-
-
 
 
 -----
@@ -17523,16 +11597,9 @@ ugo的问题是太好男二套路
 ##### 2402#       发表于 2019-3-24 01:13
 
 
-
-
 聊了半天，打戏不是3d就是慢镜拼刺刀<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这演出你想感动什么人
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -17541,14 +11608,7 @@ ugo的问题是太好男二套路
 ##### 2403#       发表于 2019-3-24 01:17
 
 
-
-
 我一会单独开贴讲讲这段(也包括后续的内容)的问题吧。
-
-
-
-
-
 
 
 -----
@@ -17557,22 +11617,13 @@ ugo的问题是太好男二套路
 ##### 2404#       发表于 2019-3-24 01:20
 
 
-
-
 现如今在充分尊重原著的情况下尬聊尬演愈演愈烈只能说明一个问题，那就是原著本身存在很大的思想逻辑上的问题，并且行文布局杂乱不清。小个子死了的时候我居然有点想笑，你这操作最后啥作用也没起还是要打，你这白死了强行煽情真的没问题吗？
-
-
-
-
-
 
 
 -----
 
 ####  moooooonlight  
 ##### 2405#       发表于 2019-3-24 01:45
-
-
 
 
 论演出的重要性。bgm看到一个我挺同意的评论：回合制战斗引入子弹时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -17583,17 +11634,10 @@ ugo的问题是太好男二套路
 另外还是没有二刀流啊，我还以为结尾会是二刀流收掉boss
 
 
-
-
-
-
-
 -----
 
 ####  杂灰  
 ##### 2406#       发表于 2019-3-24 01:59
-
-
 
 
 细想实在太草了，矮子想拿命换其他人安全离开，但保证手段却是让对面发誓，还以为是下套结果人都死了也没反应，就只是个口头承诺<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -17605,16 +11649,10 @@ ugo想到变成剑来打架没什么问题，但等到矮子死了才想到就�
 桐人爱丽丝全程没起到任何作用，四个人一副齐心协力的样子到头来是各干各的还挨个送人头，你让桐人拿着ugo甩几手在和爱丽丝打几波连携再让剑碎掉也好啊，一整集下来感觉每个人都在眼睁睁的看着队友去死然后换自己继续送
 
 
-
-
-
-
-
 -----
 
 ####  高原命  
 ##### 2407#       发表于 2019-3-24 02:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43015944&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-3-24 00:57</a>
@@ -17627,25 +11665,13 @@ ugo想到变成剑来打架没什么问题，但等到矮子死了才想到就�
 回想当年玩マブラヴAlternative，最后冥夜之死足足死了30分钟还没开炮去死得成，本来的悲壮感通通变成粗鄙之语，唉~~~~~
 
 
-
-
-
-
-
 -----
 
 ####  杂灰  
 ##### 2408#       发表于 2019-3-24 02:11
 
 
-
-
 如果把矮子以命换其他人安全的剧情和ugo舍身变剑领便当的剧情对调一下，感觉合理了不少
-
-
-
-
-
 
 
 -----
@@ -17654,14 +11680,7 @@ ugo想到变成剑来打架没什么问题，但等到矮子死了才想到就�
 ##### 2409#       发表于 2019-3-24 05:01
 
 
-
-
 全员掉线排队送死？服了
-
-
-
-
-
 
 
 -----
@@ -17670,16 +11689,9 @@ ugo想到变成剑来打架没什么问题，但等到矮子死了才想到就�
 ##### 2410#       发表于 2019-3-24 07:20
 
 
-
-
 也是，就算你杀不了人不要这么急啊，优吉欧那句“我明白了”来得'总是迟<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -17688,16 +11700,9 @@ ugo想到变成剑来打架没什么问题，但等到矮子死了才想到就�
 ##### 2411#       发表于 2019-3-24 07:38
 
 
-
-
 这片也就跟葫芦娃救爷爷一个档次吧
 
 团战一个一个上，那就是白给，难怪日本人打LOL,dota2不行的。
-
-
-
-
-
 
 
 -----
@@ -17706,14 +11711,7 @@ ugo想到变成剑来打架没什么问题，但等到矮子死了才想到就�
 ##### 2412#       发表于 2019-3-24 08:06
 
 
-
-
 没有配合能力。明明三人一起上集火对方稳赢，但因为没有PVP的经验，就变成了回合制一样一个个上吃对方的无限反击而悲剧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17722,16 +11720,9 @@ ugo想到变成剑来打架没什么问题，但等到矮子死了才想到就�
 ##### 2413#       发表于 2019-3-24 09:17
 
 
-
-
 元永庆太郎：我刻意不玩原作游戏。玩的话会让自己的视野变得狭隘，导致存在看不到其他有趣要素的危险。这不光是游戏，漫画和轻小说也一样，我总是会留心、同原作保持一定的距离。因为之前有过太沉迷原作的情况，所以我也反省了。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我现在宁愿动画组全都没看过小说
-
-
-
-
-
 
 
 -----
@@ -17740,23 +11731,15 @@ ugo想到变成剑来打架没什么问题，但等到矮子死了才想到就�
 ##### 2414#       发表于 2019-3-24 09:39
 
 
-
-
 感觉又看到了新的下限，支撑我看下去的动力就是还能有多蠢么。
 
 后半段优吉欧变把剑还是去拆高达去了，那整个前半集的意义就是没有理由也要找理由送队友么
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2415#       发表于 2019-3-24 10:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43016281&amp;ptid=1550732" target="_blank">高原命 发表于 2019-3-24 02:04</a>
@@ -17767,16 +11750,10 @@ ugo想到变成剑来打架没什么问题，但等到矮子死了才想到就�
 小说原作这里也是满满的槽点，只能说SAO第一季大火的负面影响川原没有足够的精力去修改这段内容了。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2416#       发表于 2019-3-24 11:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43016948&amp;ptid=1550732" target="_blank">漫区专号 发表于 2019-3-24 08:06</a>
@@ -17787,16 +11764,10 @@ ugo想到变成剑来打架没什么问题，但等到矮子死了才想到就�
 桐优爱三人连像当初SAO时75层boss战的桐亚和团长一样挡住对面的攻击都做不到……
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2417#       发表于 2019-3-24 11:13
-
 
 
  本帖最后由 月夜凝雪 于 2019-3-24 11:14 编辑 
@@ -17810,17 +11781,10 @@ ugo想到变成剑来打架没什么问题，但等到矮子死了才想到就�
 而且拆剑这里是动画的锅，小说有提到不解决掉无法触及BOSS，UGO变剑得目的就是拆剑。
 
 
-
-
-
-
-
 -----
 
 ####  kiritokun  
 ##### 2418#       发表于 2019-3-24 11:21
-
-
 
 
 往好了想，至少是按原作来还原了剧情你说是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -17829,25 +11793,13 @@ ugo想到变成剑来打架没什么问题，但等到矮子死了才想到就�
 期待越大失望越大，刚出来那会就不该吹这玩意
 
 
-
-
-
-
-
 -----
 
 ####  DeepWhite  
 ##### 2419#       发表于 2019-3-24 13:05
 
 
-
-
 21世纪TV动画的下限
-
-
-
-
-
 
 
 -----
@@ -17856,14 +11808,7 @@ ugo想到变成剑来打架没什么问题，但等到矮子死了才想到就�
 ##### 2420#       发表于 2019-3-24 13:18
 
 
-
-
 本集的剧本和演出都是负分
-
-
-
-
-
 
 
 -----
@@ -17872,24 +11817,15 @@ ugo想到变成剑来打架没什么问题，但等到矮子死了才想到就�
 ##### 2421#       发表于 2019-3-24 13:19
 
 
-
-
 好久没看了   每集都是尬聊，并且尬聊设定还都是边边角角。  打戏也是垃圾水平 
 
 结果昨天晚上突然风评全网爆炸
-
-
-
-
-
 
 
 -----
 
 ####  青菜子  
 ##### 2422#       发表于 2019-3-24 13:39
-
-
 
 
 那个白送的剧情真尼玛智障……究极尴尬的嘴炮，傻逼一样的演出，还不如回忆杀一整集直接开打被打死好过，简直了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
@@ -17899,32 +11835,19 @@ ugo想到变成剑来打架没什么问题，但等到矮子死了才想到就�
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  独钓寒江雪  
 ##### 2423#       发表于 2019-3-24 13:54
 
 
-
-
 除了笑还是想笑，什么鬼剧情。
-
-
-
-
-
 
 
 -----
 
 ####  奈落的孤火花  
 ##### 2424#       发表于 2019-3-24 14:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42460977&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-2-1 22:38</a>
@@ -17946,16 +11869,10 @@ ugo想到变成剑来打架没什么问题，但等到矮子死了才想到就�
 后面的都部分同意
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2425#       发表于 2019-3-24 16:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43016031&amp;ptid=1550732" target="_blank">qhlixpfh 发表于 2019-3-24 01:11</a>
@@ -17964,27 +11881,15 @@ ugo想到变成剑来打架没什么问题，但等到矮子死了才想到就�
 心意
 
 
-
-
-
-
-
 -----
 
 ####  共和政治文彦博  
 ##### 2426#       发表于 2019-3-24 16:25
 
 
-
-
 快顶不住了，二刀流是支撑我的动力
 
 —— 来自 samsung SM-G9508, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -17993,22 +11898,15 @@ ugo想到变成剑来打架没什么问题，但等到矮子死了才想到就�
 ##### 2427#       发表于 2019-3-24 16:44
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">好久没来了 不知道说这些为不违反版规...b站的画面和谐就是直接拉伸吗...太难受了...逼得人去下载看
 
 尤吉欧也太惨了...看着两个老女人扯皮半集然后直接把自己献祭了...心疼 
-
-
-
-
-
 
 
 -----
 
 ####  haibara  
 ##### 2428#       发表于 2019-3-24 17:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43015944&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-3-24 00:57</a>
@@ -18022,17 +11920,10 @@ ugo想到变成剑来打架没什么问题，但等到矮子死了才想到就�
 前面我说了好多次，动画是动画，小说是小说，靠小野学这样随便混日子态度根本不行
 
 
-
-
-
-
-
 -----
 
 ####  镜hinata  
 ##### 2429#       发表于 2019-3-24 17:15
-
-
 
 
 老实说，当时看小说就觉得cardinal完全没有便当的必要
@@ -18041,17 +11932,10 @@ ugo想到变成剑来打架没什么问题，但等到矮子死了才想到就�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  woshenc  
 ##### 2430#       发表于 2019-3-24 17:24
-
-
 
 
 看小矮子和ugo送死毫无感动
@@ -18059,16 +11943,10 @@ ugo想到变成剑来打架没什么问题，但等到矮子死了才想到就�
 下周a姐退场我可能还会伤心下，这么好的卖福利的boss
 
 
-
-
-
-
-
 -----
 
 ####  haibara  
 ##### 2431#       发表于 2019-3-24 17:27
-
 
 
  本帖最后由 haibara 于 2019-3-24 17:28 编辑 
@@ -18087,19 +11965,10 @@ UW AI有一定的思维界限，怎么说比较死板的感觉，所以象爱丽
 C姐在不知道UGO那样厉害的情况下，牺牲自己是符合她的设定，毕竟她自认是修正程序而已，虽然她渴望人类的温暖，但是她心里的理性回路很明白该怎么选择的。象人类一样拼死一搏对AI来说是很难的，看看流浪地球的MOSS就知道啦
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  真忘私绵  
 ##### 2432#       发表于 2019-3-24 17:38
-
 
 
  本帖最后由 真忘私绵 于 2019-3-24 17:54 编辑 
@@ -18107,14 +11976,8 @@ C姐在不知道UGO那样厉害的情况下，牺牲自己是符合她的设定�
 彻底沦为 对话神域了……
 
 
-
-
-
-
 25B8910F-A51B-4FCA-B47C-25BF2AB2229D.jpeg
 (341.69 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -18123,32 +11986,13 @@ C姐在不知道UGO那样厉害的情况下，牺牲自己是符合她的设定�
 2019-3-24 17:38 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/24/173808rkwlqc44w9c6468c.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  芝士排骨  
 ##### 2433#       发表于 2019-3-24 17:46
-
-
 
 
 其实从与首席战斗那集开始，制作组的态度与水平就展现得差不多了，我做好了烂的打算，不过没想到小野学比我想象的还不行<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
@@ -18158,14 +12002,7 @@ C姐在不知道UGO那样厉害的情况下，牺牲自己是符合她的设定�
 小野学这b以后我要绕道走了。
 
 
-
-
 —— 来自 HUAWEI VTR-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -18174,16 +12011,10 @@ C姐在不知道UGO那样厉害的情况下，牺牲自己是符合她的设定�
 ##### 2434#       发表于 2019-3-24 17:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43021581&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-3-24 17:46</a>
 
 其实从与首席战斗那集开始，制作组的态度与水平就展现得差不多了，我做好了烂的打算，不过没想到小野学比我 ...</blockquote>
 感觉从幽灵子弹开始就水了
-
-
-
-
-
 
 
 -----
@@ -18192,23 +12023,15 @@ C姐在不知道UGO那样厉害的情况下，牺牲自己是符合她的设定�
 ##### 2435#       发表于 2019-3-24 18:03
 
 
-
-
 我记得刚开始还吹了波小野学节奏稳来着<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 二刺猿就是不长记性，大概是被打脸打惯了吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  芝士排骨  
 ##### 2436#       发表于 2019-3-24 18:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43021651&amp;ptid=1550732" target="_blank">真忘私绵 发表于 2019-3-24 17:55</a>
@@ -18219,16 +12042,10 @@ C姐在不知道UGO那样厉害的情况下，牺牲自己是符合她的设定�
 —— 来自 HUAWEI VTR-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2437#       发表于 2019-3-24 18:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43021581&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-3-24 17:46</a>
@@ -18239,26 +12056,15 @@ C姐在不知道UGO那样厉害的情况下，牺牲自己是符合她的设定�
 精彩的我还是觉得要等谢塔和伊斯卡恩那一场
 
 
-
-
-
-
-
 -----
 
 ####  瓦格雷  
 ##### 2438#       发表于 2019-3-24 18:16
 
 
-
 <blockquote>真忘私绵 发表于 2019-3-24 17:38
 彻底沦为 对话神域了……</blockquote>
 为了混脱光了牺牲好大的哟
-
-
-
-
-
 
 
 -----
@@ -18267,23 +12073,15 @@ C姐在不知道UGO那样厉害的情况下，牺牲自己是符合她的设定�
 ##### 2439#       发表于 2019-3-24 18:20
 
 
-
-
 bili都和谐了啥？
 
 原版也不应该露吧
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 2440#       发表于 2019-3-24 18:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43021879&amp;ptid=1550732" target="_blank">真忘私绵 发表于 2019-3-24 18:20</a>
@@ -18294,16 +12092,10 @@ bili都和谐了啥？
 都是近镜的时候拉得更近看不到胸，远镜没变
 
 
-
-
-
-
-
 -----
 
 ####  alien  
 ##### 2441#       发表于 2019-3-24 18:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43021879&amp;ptid=1550732" target="_blank">真忘私绵 发表于 2019-3-24 18:20</a>
@@ -18314,26 +12106,15 @@ bili都和谐了啥？
 一些近景推移的镜头直接替换成远景静止画面。本来都在聊天水剧情了~~B站和谐后显得制作更加水~~~
 
 
-
-
-
-
-
 -----
 
 ####  真忘私绵  
 ##### 2442#       发表于 2019-3-24 19:54
 
 
-
 <blockquote>alien 发表于 2019-3-24 18:32
 一些近景推移的镜头直接替换成远景静止画面。本来都在聊天水剧情了~~B站和谐后显得制作更加水~~~ ...</blockquote>
 怪不得！都赶上幻灯片了。
-
-
-
-
-
 
 
 -----
@@ -18342,14 +12123,7 @@ bili都和谐了啥？
 ##### 2443#       发表于 2019-3-24 20:21
 
 
-
-
 没爬楼，有没人知道为啥B站没有新OP的版权么
-
-
-
-
-
 
 
 -----
@@ -18358,16 +12132,10 @@ bili都和谐了啥？
 ##### 2444#       发表于 2019-3-24 20:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43023129&amp;ptid=1550732" target="_blank">霖星 发表于 2019-3-24 20:21</a>
 
 没爬楼，有没人知道为啥B站没有新OP的版权么</blockquote>
 新OP全裸啊
-
-
-
-
-
 
 
 -----
@@ -18376,16 +12144,10 @@ bili都和谐了啥？
 ##### 2445#       发表于 2019-3-24 20:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43023136&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-3-24 20:22</a>
 
 新OP全裸啊</blockquote>
 囧，就A姐翻跟斗那几下么，可以把旧OP画面剪一点回去嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18394,13 +12156,7 @@ bili都和谐了啥？
 ##### 2446#       发表于 2019-3-24 20:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为啥卡迪那不直接拆换成UGO就能拆了 这还不是间接杀human unit吗
-
-
-
-
-
 
 
 -----
@@ -18409,16 +12165,10 @@ bili都和谐了啥？
 ##### 2447#       发表于 2019-3-24 21:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43023523&amp;ptid=1550732" target="_blank">アルメリア 发表于 2019-3-24 20:58</a>
 
 为啥卡迪那不直接拆换成UGO就能拆了 这还不是间接杀human unit吗</blockquote>
 UGO可以杀人啊
-
-
-
-
-
 
 
 -----
@@ -18427,21 +12177,13 @@ UGO可以杀人啊
 ##### 2448#       发表于 2019-3-24 21:28
 
 
-
-
 我是感觉前半段聊天太漫长点，要说做不好看是不好看啊，我没看过原作如果原作就是那么多话的话那也只能这样，除非改成边打边嘴炮，那到头来还是有人在看着，所以不好看是不好看，差评是另外一回事了
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2449#       发表于 2019-3-24 21:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43023129&amp;ptid=1550732" target="_blank">霖星 发表于 2019-3-24 20:21</a>
@@ -18452,32 +12194,19 @@ UGO可以杀人啊
 不过反正马上就新季度OP了，无所谓啦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
 
 
-
-
-
-
-
 -----
 
 ####  ky刃  
 ##### 2450#       发表于 2019-3-24 21:32
 
 
-
-
 死得太搞笑了，这让人怎么感动起来
-
-
-
-
-
 
 
 -----
 
 ####  镜hinata  
 ##### 2451#       发表于 2019-3-24 21:44
-
 
 
 <blockquote>引用第2434楼绯冉老师于2019-03-24 18:03发表的  :
@@ -18493,16 +12222,10 @@ UGO可以杀人啊
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  霖星  
 ##### 2452#       发表于 2019-3-24 23:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43023804&amp;ptid=1550732" target="_blank">xingenge 发表于 2019-3-24 21:28</a>
@@ -18513,16 +12236,10 @@ UGO可以杀人啊
 一集动画有必要做出两份片源一份旧OP一份新OP么，这种事情以前好像都没出现过吧，也是奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2453#       发表于 2019-3-24 23:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43024945&amp;ptid=1550732" target="_blank">霖星 发表于 2019-3-24 23:26</a>
@@ -18531,16 +12248,10 @@ UGO可以杀人啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实就是剪一下，总比打光容易，具体我也不清楚，只是猜测一下。可以是审查了不行用了旧OP，也可能是自己先割了再送
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2454#       发表于 2019-3-24 23:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43021299&amp;ptid=1550732" target="_blank">haibara 发表于 2019-3-24 17:13</a>
@@ -18554,25 +12265,13 @@ UGO可以杀人啊
 要说的话因为前几集的剧情改动我原本期待动画组对UW篇剧情进一步动刀子的，然后嘛……呵呵（
 
 
-
-
-
-
-
 -----
 
 ####  monseiur13  
 ##### 2455#       发表于 2019-3-25 00:02
 
 
-
-
 我怎么记得这段是5人一场恶斗，爱丽丝躺尸桐人剩半条命，优吉欧和萝莉濒死然后两人一合计“变剑吧”，最后桐人抄起黑剑和优吉欧变身的剑双刀流砍翻admin，难道这些都是我以前脑补出来的？？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18581,21 +12280,13 @@ UGO可以杀人啊
 ##### 2456#       发表于 2019-3-25 00:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">还是坚持我的观点，爱丽丝回家的半年，和最后大结局的部分好看，哦还有两个女主角为了男人打架的部分好看，其他部分就适应一下好了。 其他部分你当web小说看还是可以的，动画需要调整的地方太多，基本改不过来了。
-
-
-
-
-
 
 
 -----
 
 ####  fanisy  
 ##### 2457#       发表于 2019-3-25 00:21
-
-
 
 
 别黑前两季，一、二期真不错的，经常会挑出来回味下，叙事连贯，后宫、开挂轮着来，不时还搞点挫折、阴谋给你留着期待，总之爽就完事了。
@@ -18613,27 +12304,15 @@ UGO可以杀人啊
 剩下还有半年，干脆腰斩吧，把工期留给别人好吗
 
 
-
-
-
-
-
 -----
 
 ####  martinium  
 ##### 2458#       发表于 2019-3-25 05:11
 
 
-
-
 千里送人头。笑死我了。
 
 — from Google Pixel 2, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
-
-
-
-
-
 
 
 -----
@@ -18642,24 +12321,16 @@ UGO可以杀人啊
 ##### 2459#       发表于 2019-3-25 09:18
 
 
-
-
 小野学监督水平怎么样不知道，毕竟不一定把这项目很放心上
 但川原这逼肯定不适合写小说
 
 —— 来自 HUAWEI VTR-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  绯冉老师  
 ##### 2460#       发表于 2019-3-25 12:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43027504&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-3-25 09:18</a>
@@ -18670,13 +12341,9 @@ UGO可以杀人啊
 可这b偏偏就是火了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -18686,20 +12353,13 @@ UGO可以杀人啊
 | 贝希摩斯| + 1|贾斯汀比伯火了，吴亦凡也火了.|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  mhss  
 ##### 2461#       发表于 2019-3-25 21:32
-
-
 
 
 一群高ping战士的嘴炮斗争
@@ -18713,16 +12373,10 @@ UGO可以杀人啊
 刀剑动画我看着最爽的是外传GGO，和这第三季一比，第一二季简直显得完美了许多，以前我还觉得第一季对我们动画党不友好爬塔的节奏太快，结果这第三季老牛拉破车的节奏简直了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2462#       发表于 2019-3-25 21:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43037402&amp;ptid=1550732" target="_blank">mhss 发表于 2019-3-25 21:32</a>
@@ -18733,16 +12387,10 @@ UGO可以杀人啊
 有剑巨人在桐人他们没法打到Admin，而Cardinal不能杀人因此无法打倒剑巨人，Cardinal这里牺牲自己的话剩下三人能活下来不牺牲的话就是4人团灭所以牺牲了自己，虽然逻辑很迷但是原作没记错是这么个逻辑……
 
 
-
-
-
-
-
 -----
 
 ####  烟花缭乱  
 ##### 2463#       发表于 2019-3-25 21:54
-
 
 
  本帖最后由 烟花缭乱 于 2019-3-25 21:57 编辑 
@@ -18758,16 +12406,10 @@ UGO可以杀人啊
 补充一下：上半期我认为小野学不粘锅还有个原因就是这完全单线程的爬塔模式就没法改，要么原创文戏丰富人物（原作爬塔期间的角色塑造就这么硬）要么砸资源拍特效拉长武戏，否则可不就是站桩尬念原作么。得亏还有传统艺能回忆杀能强行调整一下画风，否则谁也顶不住这白开水
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 2464#       发表于 2019-3-25 21:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43037571&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-3-25 21:49</a>
@@ -18784,16 +12426,10 @@ BOSS使出杀手锏，勇者们一思量打不赢了，干脆我们送一个，�
 而且就动画而言眼镜既然无法灭掉巨人，只要牵制住攻击（身为一个法师，放放护盾之类的技能总不难吧？），让剩下三个去专心打紫毛就好，偏偏选择了最匪夷所思的送肉这一条路<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  烟花缭乱  
 ##### 2465#       发表于 2019-3-25 22:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43037656&amp;ptid=1550732" target="_blank">mhss 发表于 2019-3-25 21:57</a>
@@ -18810,17 +12446,10 @@ BOSS使出杀手锏，勇者们一思量打不赢 ...</blockquote>
 扯远一点，川原这个人挺怪，我认为是笔力跟不上脑子，写出来的故事接不住核心设计理念，结果点子书愣是变成了卖角色大IP，点子成附件主客颠倒了。小野学如果有追求，可能会把结局的演讲作扩展多塞一些正经内容，而不是止于喊口号
 
 
-
-
-
-
-
 -----
 
 ####  zmw_831110  
 ##### 2466#       发表于 2019-3-25 22:31
-
-
 
 
 这部头几集还挺好看的,后面的都是什么玩意
@@ -18830,16 +12459,10 @@ BOSS使出杀手锏，勇者们一思量打不赢 ...</blockquote>
 B站这次压片压的很差,平移画面丢帧成狗.我下载了用AFM插帧才效果稍微好些.
 
 
-
-
-
-
-
 -----
 
 ####  sgpt55  
 ##### 2467#       发表于 2019-3-25 22:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43037798&amp;ptid=1550732" target="_blank">烟花缭乱 发表于 2019-3-25 22:13</a>
@@ -18848,16 +12471,10 @@ B站这次压片压的很差,平移画面丢帧成狗.我下载了用AFM插帧�
 既然都帮桐尤越狱了，之前cardinal说为啥她不能出来正面作战来着？
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2468#       发表于 2019-3-25 23:00
-
 
 
  本帖最后由 月夜凝雪 于 2019-3-25 23:02 编辑 
@@ -18871,17 +12488,10 @@ B站这次压片压的很差,平移画面丢帧成狗.我下载了用AFM插帧�
 只不过是不知道admin开了金属无法伤害的护盾所以结果才变成只能正面刚的局面。
 
 
-
-
-
-
-
 -----
 
 ####  普通的围观群众  
 ##### 2469#       发表于 2019-3-25 23:02
-
-
 
 
 首先是动画的评价：
@@ -18904,8 +12514,6 @@ B站这次压片压的很差,平移画面丢帧成狗.我下载了用AFM插帧�
 从改编细节来看，再举个例子，Cardinal要送头给Administrator，让A姐发誓不能伤害其他3人，并让他们安全离开。A姐马上说对史提西亚神发誓(和之前对元老长丘德尔金的发誓方法是一致的，骗人的发誓)，然后Cardinal说对你唯一有价值的是你自己的摇光(灵魂)，所以你必须对自己的摇光发誓。此时小说里面提到的细节是A姐的表情变成了苦笑，然后点头承诺了誓言。结果动画里既没有展现出A姐的表情变化，也没有让铃村太太在声线上做一定的改变，直接给观众的观感就是这老女人随便说说而已你们几个瓜皮居然就信了，这就不由得动画的效果非常难看了……
 
 <strong>原作中渲染气氛的细节不抓，需要用动画手法表现出的细节却又奇怪的死扣原作，不得不说UW这确实是教科书般的轻改反例了。</strong>
-
-
 
 
 再谈谈原作：
@@ -18938,20 +12546,13 @@ B站这次压片压的很差,平移画面丢帧成狗.我下载了用AFM插帧�
 我觉得UW的小说不错，但我也认同UW有很多傻逼的地方，相比之下川原的小说我更喜欢《加速世界》的1-10卷，从作者上来说，我个人主观又觉得渡航的《春物》、葵光南的《碧阳》、野村美月的《文学少女》更好看……但这并不妨碍我为UW的某些精彩的部分摇旗呐喊，因为我觉得这些都是可以求同存异的，是不存在为此争个你死我活的。
 
 
-
 （屎黄色论坛也发了一遍，重复见谅）
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2470#       发表于 2019-3-25 23:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43037656&amp;ptid=1550732" target="_blank">mhss 发表于 2019-3-25 21:57</a>
@@ -18966,16 +12567,10 @@ Cardinal就是希望他们三个安全离开后通过锻炼再来打倒Admin吧�
 另外剩下三个其实也打不过Admin，有剑巨人的情况下可能甚至都没法打到Admin（首先Admin飞着呢，不用武装支配术就只能靠桐人的Vorpal Strike，这个距离下随便躲，而且爱丽丝的剑做出来时就被转换成金属属性了没法造成伤害）
 
 
-
-
-
-
-
 -----
 
 ####  martinium  
 ##### 2471#       发表于 2019-3-26 03:01
-
 
 
  本帖最后由 martinium 于 2019-3-26 03:05 编辑 
@@ -18987,16 +12582,10 @@ Cardinal就是希望他们三个安全离开后通过锻炼再来打倒Admin吧�
 — from Google Pixel 2, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2472#       发表于 2019-3-26 08:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43040266&amp;ptid=1550732" target="_blank">martinium 发表于 2019-3-26 03:01</a>
@@ -19005,25 +12594,13 @@ Cardinal就是希望他们三个安全离开后通过锻炼再来打倒Admin吧�
 原作这段逻辑本身也挺谜的，但是气氛渲染的好所以第一遍看不一定能看出问题来。
 
 
-
-
-
-
-
 -----
 
 ####  sevencoolmax  
 ##### 2473#       发表于 2019-3-26 23:08
 
 
-
-
 这集我只能给负分！煞笔剧情和演出，真是太智障了
-
-
-
-
-
 
 
 -----
@@ -19032,14 +12609,7 @@ Cardinal就是希望他们三个安全离开后通过锻炼再来打倒Admin吧�
 ##### 2474#       发表于 2019-3-27 00:05
 
 
-
-
 川原自己看这集不觉得尬吗，会不会想砍死自己和小野学……
-
-
-
-
-
 
 
 -----
@@ -19048,13 +12618,7 @@ Cardinal就是希望他们三个安全离开后通过锻炼再来打倒Admin吧�
 ##### 2475#       发表于 2019-3-27 07:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">桐人，为什么你只是看着！
-
-
-
-
-
 
 
 -----
@@ -19063,16 +12627,10 @@ Cardinal就是希望他们三个安全离开后通过锻炼再来打倒Admin吧�
 ##### 2476#       发表于 2019-3-28 16:18
 
 
-
 <img src="https://i.loli.net/2019/03/28/5c9c8352a8e12.jpg" referrerpolicy="no-referrer">
 这一集贡献了这个魔性沙雕表情就够了
 
 —— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -19081,13 +12639,7 @@ Cardinal就是希望他们三个安全离开后通过锻炼再来打倒Admin吧�
 ##### 2477#       发表于 2019-3-28 16:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">如出一辙
-
-
-
-
-
 
 
 -----
@@ -19096,22 +12648,15 @@ Cardinal就是希望他们三个安全离开后通过锻炼再来打倒Admin吧�
 ##### 2478#       发表于 2019-3-29 12:04
 
 
-
  本帖最后由 Meteors 于 2020-2-26 02:52 编辑 
 
 编辑
-
-
-
-
-
 
 
 -----
 
 ####  绯冉老师  
 ##### 2479#       发表于 2019-3-29 12:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43083868&amp;ptid=1550732" target="_blank">Meteors 发表于 2019-3-29 12:04</a>
@@ -19124,16 +12669,10 @@ Cardinal就是希望他们三个安全离开后通过锻炼再来打倒Admin吧�
 我觉得吧，RATH观测时先察觉到的是ALICE（当然那时Alice也没突破吧），Rath也只是遗憾ALICE被admin先带走了。而UW加速很高，Rath观测也很难捕捉UGO突破这几天的事。然后UGO凉了嘛，当然只带ALICE出去了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kiritokun  
 ##### 2480#       发表于 2019-3-29 12:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43083868&amp;ptid=1550732" target="_blank">Meteors 发表于 2019-3-29 12:04</a>
@@ -19148,17 +12687,10 @@ Cardinal就是希望他们三个安全离开后通过锻炼再来打倒Admin吧�
 被带走并不是因为突破code 871，硬要说的话可能是无影响的越过禁忌目录（类似于茶杯放在盘子上）
 
 
-
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2481#       发表于 2019-3-29 13:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43083868&amp;ptid=1550732" target="_blank">Meteors 发表于 2019-3-29 12:04</a>
@@ -19176,16 +12708,10 @@ Cardinal就是希望他们三个安全离开后通过锻炼再来打倒Admin吧�
 如果优吉欧活着？那肯定会被带出去啊，Rath不说肯定桐人也要带他出去的啊。在桐人心里优吉欧的地位可是很高的，虽然一个是挚友一个是老婆不能完全划等号但是地位跟亚丝娜是差不多的。
 
 
-
-
-
-
-
 -----
 
 ####  芝士排骨  
 ##### 2482#       发表于 2019-3-29 14:34
-
 
 
  本帖最后由 芝士排骨 于 2019-3-29 14:36 编辑 
@@ -19195,16 +12721,10 @@ Cardinal就是希望他们三个安全离开后通过锻炼再来打倒Admin吧�
 —— 来自 HUAWEI VTR-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  取个中文名  
 ##### 2483#       发表于 2019-3-29 14:47
-
 
 
 <blockquote>普通的围观群众 发表于 2019-3-25 23:02
@@ -19215,16 +12735,10 @@ Cardinal就是希望他们三个安全离开后通过锻炼再来打倒Admin吧�
 最大的问题是送了cardinal之后还是打起来了。所以不管你这段描写地多精彩，只要后面打起来了，最后都没法让这段送cardinal的剧情显得不白痴。
 
 
-
-
-
-
-
 -----
 
 ####  D．Va  
 ##### 2484#       发表于 2019-3-29 14:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43085638&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-3-29 14:34</a>
@@ -19236,16 +12750,10 @@ Cardinal就是希望他们三个安全离开后通过锻炼再来打倒Admin吧�
 惊了，那么什么时候才有第二季呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9090asd  
 ##### 2485#       发表于 2019-3-29 15:16
-
 
 
 <blockquote>普通的围观群众 发表于 2019-3-25 23:02
@@ -19263,25 +12771,13 @@ Cardinal就是希望他们三个安全离开后通过锻炼再来打倒Admin吧�
 连战争都不是，就是个新世界观加爬塔的东西
 
 
-
-
-
-
-
 -----
 
 ####  绯冉老师  
 ##### 2486#       发表于 2019-3-29 16:21
 
 
-
-
 怎么讲呢，这“宏大”故事终于完了（笑）<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19290,11 +12786,8 @@ Cardinal就是希望他们三个安全离开后通过锻炼再来打倒Admin吧�
 ##### 2487#       发表于 2019-3-29 16:22
 
 
-
-
 ソードアート・オンライン　アリシゼーション 第24話「ぼくの英雄」 予告映像
 [https://www.youtube.com/watch?v=F_npu-7X1l8](https://www.youtube.com/watch?v=F_npu-7X1l8)
-
 
 
 カーディナル、ユージオ、そしてアリスの想いを身のうちに宿し、キリトは再び立ち上がる。《人界》最強の存在であるアドミニストレータを倒すため、キリトが心意で強くイメージしたのは、かつて《SAO》を攻略したトッププレイヤーである《黒の剣士》の姿だった。この世界で出会ったすべての人の想いを胸に、二本の剣を携えたキリトはアドミニストレータとの一騎打ちに挑む。
@@ -19316,17 +12809,10 @@ Cardinal就是希望他们三个安全离开后通过锻炼再来打倒Admin吧�
 <img src="http://wx1.sinaimg.cn/large/740ca5e5ly1g1jq7ay4p4j20p00e2go5.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  芝士排骨  
 ##### 2488#       发表于 2019-3-29 17:24
-
-
 
 
 虽然我前面喷了这么多。
@@ -19337,16 +12823,10 @@ Cardinal就是希望他们三个安全离开后通过锻炼再来打倒Admin吧�
 —— 来自 HUAWEI VTR-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  9090asd  
 ##### 2489#       发表于 2019-3-29 17:39
-
 
 
 <blockquote>芝士排骨 发表于 2019-3-29 17:24
@@ -19367,16 +12847,10 @@ Cardinal就是希望他们三个安全离开后通过锻炼再来打倒Admin吧�
 然而uw这个世界，无论规则，时间，还是面积，乃至剧情，对于桐人，对于读者观众，都不能算宏大
 
 
-
-
-
-
-
 -----
 
 ####  woshenc  
 ##### 2490#       发表于 2019-3-29 17:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43088519&amp;ptid=1550732" target="_blank">9090asd 发表于 2019-3-29 17:39</a>
@@ -19394,16 +12868,10 @@ Cardinal就是希望他们三个安全离开后通过锻炼再来打倒Admin吧�
 跑到现实世界的a姐和ai化的茅场晶彦，根本就是一体两面
 
 
-
-
-
-
-
 -----
 
 ####  9090asd  
 ##### 2491#       发表于 2019-3-29 17:51
-
 
 
 <blockquote>woshenc 发表于 2019-3-29 17:45
@@ -19413,13 +12881,7 @@ Cardinal就是希望他们三个安全离开后通过锻炼再来打倒Admin吧�
 作者死活放着网游的模板不放，乃至后来的加速世界都写得像网游才是宏大不起来的关键
 
 
-
 像你说的跑到现实世界当隐藏boss，搞不好就能突破了
-
-
-
-
-
 
 
 -----
@@ -19428,21 +12890,13 @@ Cardinal就是希望他们三个安全离开后通过锻炼再来打倒Admin吧�
 ##### 2492#       发表于 2019-3-29 17:53
 
 
-
-
 而且从动画来看a妈的性能实际非常一般罢，一个靠蒙管理员代码蒙出的教主...
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2493#       发表于 2019-3-29 19:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43088519&amp;ptid=1550732" target="_blank">9090asd 发表于 2019-3-29 17:39</a>
@@ -19456,16 +12910,10 @@ Cardinal就是希望他们三个安全离开后通过锻炼再来打倒Admin吧�
 Admin被彻底清算？她怕什么彻底清算。下集如果动画不做改动你会发现，如果不是被队友坑了，桐人拼尽全力的一击也差点被解决Admin让Admin逃到现实世界去。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2494#       发表于 2019-3-29 19:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43088739&amp;ptid=1550732" target="_blank">9090asd 发表于 2019-3-29 17:53</a>
@@ -19476,32 +12924,19 @@ Admin被彻底清算？她怕什么彻底清算。下集如果动画不做改动
 关于Admin多可怕这点再说下去就要剧透到大战篇RW侧的内容了。
 
 
-
-
-
-
-
 -----
 
 ####  发财就手  
 ##### 2495#       发表于 2019-3-30 11:42
 
 
-
-
 A姐真跑到现实世界，到时搞出个邪教来谁能阻止她，靠茅场么，而且解决完后现实世界政府对VRMNO的态度以及人工智能研发相关准要打压，到时桐人还读什么相关专业大学
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2496#       发表于 2019-3-30 13:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43096693&amp;ptid=1550732" target="_blank">发财就手 发表于 2019-3-30 11:42</a>
@@ -19512,25 +12947,14 @@ Admin要真逃到现实世界的话，我看茅场+Yui两人拼尽全力可能�
 或者来个红A（黑A）一样的角色弄掉她的Light Cube顺便炸死其信徒（
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 2497#       发表于 2019-3-30 16:10
 
 
-
  本帖最后由 Meteors 于 2020-2-26 02:51 编辑 
 <blockquote>编辑</blockquote>
-
-
-
-
-
 
 
 -----
@@ -19539,14 +12963,7 @@ Admin要真逃到现实世界的话，我看茅场+Yui两人拼尽全力可能�
 ##### 2498#       发表于 2019-3-30 23:17
 
 
-
-
 桐人變金眼是甚麼意思?
-
-
-
-
-
 
 
 -----
@@ -19555,16 +12972,10 @@ Admin要真逃到现实世界的话，我看茅场+Yui两人拼尽全力可能�
 ##### 2499#       发表于 2019-3-30 23:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43103835&amp;ptid=1550732" target="_blank">shadow001 发表于 2019-3-30 23:17</a>
 桐人變金眼是甚麼意思?</blockquote>
 就当动画搞出来的心意强化效果得了。前三个主线章节的动画都出现过
 原作没这么描述。
-
-
-
-
-
 
 
 -----
@@ -19573,14 +12984,7 @@ Admin要真逃到现实世界的话，我看茅场+Yui两人拼尽全力可能�
 ##### 2500#       发表于 2019-3-30 23:27
 
 
-
-
 UW后半，SAO Alicization War of Underworld，10月
-
-
-
-
-
 
 
 -----
@@ -19589,21 +12993,13 @@ UW后半，SAO Alicization War of Underworld，10月
 ##### 2501#       发表于 2019-3-30 23:29
 
 
-
-
 卧槽UW游戏化……
-
-
-
-
-
 
 
 -----
 
 ####  shadow001  
 ##### 2502#       发表于 2019-3-30 23:32
-
 
 
  本帖最后由 shadow001 于 2019-3-30 23:33 编辑 
@@ -19615,26 +13011,15 @@ UW后半，SAO Alicization War of Underworld，10月
 全裸DLC?
 
 
-
-
-
-
-
 -----
 
 ####  cybernetics  
 ##### 2503#       发表于 2019-3-30 23:32
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -19643,23 +13028,16 @@ UW后半，SAO Alicization War of Underworld，10月
 ##### 2504#       发表于 2019-3-30 23:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43103965&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-3-30 23:29</a>
 
 卧槽UW游戏化……</blockquote>
 可惜万代的SAO游戏万年不换建模<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2505#       发表于 2019-3-30 23:37
-
 
 
  本帖最后由 月夜凝雪 于 2019-3-30 23:44 编辑 
@@ -19675,25 +13053,13 @@ UW后半，SAO Alicization War of Underworld，10月
 祈祷可以像FB那样捏原创角色而不是单纯给桐人换外形
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2506#       发表于 2019-3-30 23:39
 
 
-
-
 后半段能改成啥样，“我想大家心里都有数”。
-
-
-
-
-
 
 
 -----
@@ -19702,21 +13068,13 @@ UW后半，SAO Alicization War of Underworld，10月
 ##### 2507#       发表于 2019-3-30 23:40
 
 
-
-
 补充下，UW游戏叫Alicization Lycoris
-
-
-
-
-
 
 
 -----
 
 ####  芝士排骨  
 ##### 2508#       发表于 2019-3-30 23:44
-
 
 
  本帖最后由 芝士排骨 于 2019-3-31 00:44 编辑 
@@ -19726,25 +13084,13 @@ UW后半，SAO Alicization War of Underworld，10月
 看来没有
 
 
-
-
-
-
-
 -----
 
 ####  忧郁  
 ##### 2509#       发表于 2019-3-30 23:46
 
 
-
-
 希望uw游戏可以有自捏
-
-
-
-
-
 
 
 -----
@@ -19753,16 +13099,10 @@ UW后半，SAO Alicization War of Underworld，10月
 ##### 2510#       发表于 2019-3-30 23:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43104058&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-3-30 23:39</a>
 
 后半段能改成啥样，“我想大家心里都有数”。</blockquote>
 只求把前面几集爱丽丝和桐人二人世界那段做好，我就满足了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19771,14 +13111,7 @@ UW后半，SAO Alicization War of Underworld，10月
 ##### 2511#       发表于 2019-3-30 23:52
 
 
-
-
 游戏pv看着就是用来补充动画细节的
-
-
-
-
-
 
 
 -----
@@ -19787,14 +13120,7 @@ UW后半，SAO Alicization War of Underworld，10月
 ##### 2512#       发表于 2019-3-31 00:36
 
 
-
-
 刚刚问了原作党这集是否基本还原，说基本还原了但删减也很多。既然是还原了的话我觉得原作的问题很大，a part的情节安排很蠢，有更多的方法可以自然地利用以前的铺垫来煽情和展现两人的羁绊，但川原选择让a姐装一波b然后ugo忽然开口说话。
-
-
-
-
-
 
 
 -----
@@ -19803,14 +13129,7 @@ UW后半，SAO Alicization War of Underworld，10月
 ##### 2513#       发表于 2019-3-31 00:54
 
 
-
-
 平淡的一集，比前面强点，但也仅此而已了，普通水平。
-
-
-
-
-
 
 
 -----
@@ -19819,14 +13138,7 @@ UW后半，SAO Alicization War of Underworld，10月
 ##### 2514#       发表于 2019-3-31 00:54
 
 
-
-
 原来桐人是这么菜的么，打架全靠莽。看前两部还以为技能是街机搓招搓出来的，结果其实是山口山按个键就放个技能啊
-
-
-
-
-
 
 
 -----
@@ -19835,21 +13147,13 @@ UW后半，SAO Alicization War of Underworld，10月
 ##### 2515#       发表于 2019-3-31 00:56
 
 
-
-
 实在有点蠢
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2516#       发表于 2019-3-31 01:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43104614&amp;ptid=1550732" target="_blank">moooooonlight 发表于 2019-3-31 00:36</a>
@@ -19860,16 +13164,10 @@ UW后半，SAO Alicization War of Underworld，10月
 原作这里没记错的话是桐人直接被Admin用“我所不知道的剑技”再次打到自闭后被优吉欧的话所鼓励振作起来，然后直接双剑一边一发Vorpal Strike打倒了Admin，之后就是Admin脱离时被元老长拖住弄死。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2517#       发表于 2019-3-31 01:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43104783&amp;ptid=1550732" target="_blank">ualiant 发表于 2019-3-31 00:54</a>
@@ -19882,16 +13180,10 @@ Admin的强度的话，虽然没有直接对比，但是基本上你可以看作
 也就是实际上可以把其他所有玩家按在地上暴打的级别。
 
 
-
-
-
-
-
 -----
 
 ####  ualiant  
 ##### 2518#       发表于 2019-3-31 01:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43104880&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-3-31 01:04</a>
@@ -19902,32 +13194,19 @@ Admin的强度的话，虽然没有直接对比，但是基本上你可以看作
 强我实在看不出来，被一通xjbd换了一只手。但人家居合姿势都摆出来了，桐姥爷跟看不到一样，倒是让我明白了他玩的确实不是格斗游戏
 
 
-
-
-
-
-
 -----
 
 ####  褪色的雪花  
 ##### 2519#       发表于 2019-3-31 01:17
 
 
-
-
 别的我不管啦 我就想知道游戏化能不能攻略老太婆 
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2520#       发表于 2019-3-31 01:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43104925&amp;ptid=1550732" target="_blank">ualiant 发表于 2019-3-31 01:09</a>
@@ -19938,17 +13217,10 @@ Admin的强度的话，虽然没有直接对比，但是基本上你可以看作
 当时桐人的心态在Admin用出水平四方斩时就开始崩了，动画里也有做出来说“从优吉欧的记忆里知道的吗，那么我就用没给优吉欧展示过的上位剑技”，然后被Admin一个6连击细剑技打了过来，这时的想法是“难道是从我的记忆里知道的吗”，然后开始逃避现实用Vorpal Strike——然后被Admin用桐人没见过的剑技打爆。
 
 
-
-
-
-
-
 -----
 
 ####  kiritokun  
 ##### 2521#       发表于 2019-3-31 01:28
-
-
 
 
 虽然我知道这片很烂，但是虹の彼方响起的时候我还是难受了。
@@ -19957,16 +13229,10 @@ Admin的强度的话，虽然没有直接对比，但是基本上你可以看作
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2522#       发表于 2019-3-31 01:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43104783&amp;ptid=1550732" target="_blank">ualiant 发表于 2019-3-31 00:54</a>
@@ -19976,32 +13242,19 @@ sao第一话桐人教克莱因玩游戏的时候就说过了，使用剑技时�
 —— 来自 vivo V1813BT, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  cat1230  
 ##### 2523#       发表于 2019-3-31 01:34
 
 
-
-
 A姐就这样跪了？被自己的手下背刺而亡？不能接受啊。
-
-
-
-
-
 
 
 -----
 
 ####  moooooonlight  
 ##### 2524#       发表于 2019-3-31 01:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43104865&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-3-31 01:02</a>
@@ -20015,16 +13268,10 @@ A姐就这样跪了？被自己的手下背刺而亡？不能接受啊。
 比如魔改成ugo上集升天这集灵魂托剑，两人对视一下，不用任何对话，特写桐人眼神从崩溃到惊讶到坚定，然后拔剑说搭档一起上，这样就很简单地表现兄弟情了，也不会有a姐下线的情况
 
 
-
-
-
-
-
 -----
 
 ####  moooooonlight  
 ##### 2525#       发表于 2019-3-31 01:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43104865&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-3-31 01:02</a>
@@ -20038,25 +13285,13 @@ A姐就这样跪了？被自己的手下背刺而亡？不能接受啊。
 我觉得这样做比现在ugo诈尸还说一大堆话要好多了，重要的遗言可以全搬到被腰斩之后的几分钟
 
 
-
-
-
-
-
 -----
 
 ####  摩天城  
 ##### 2526#       发表于 2019-3-31 01:58
 
 
-
-
 一点小事情，看完一季了还是感觉颜色有点太亮了，而且各种略带渐变的效果，为什么要这么搞<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20065,14 +13300,7 @@ A姐就这样跪了？被自己的手下背刺而亡？不能接受啊。
 ##### 2527#       发表于 2019-3-31 01:59
 
 
-
-
 不烂吧这话，没有什么惊艳也没有什么太臭的地方。
-
-
-
-
-
 
 
 -----
@@ -20081,15 +13309,9 @@ A姐就这样跪了？被自己的手下背刺而亡？不能接受啊。
 ##### 2528#       发表于 2019-3-31 02:04
 
 
-
  本帖最后由 dragonfalls 于 2019-3-31 02:05 编辑 
 
 前半部分6卷做半年都这样了，后半部分4卷希望是季番不是半年番。。不然真的太拖。。求换个监督（做梦）
-
-
-
-
-
 
 
 -----
@@ -20098,14 +13320,7 @@ A姐就这样跪了？被自己的手下背刺而亡？不能接受啊。
 ##### 2529#       发表于 2019-3-31 02:21
 
 
-
-
 感觉还是太肝了，不过后半段还可以
-
-
-
-
-
 
 
 -----
@@ -20114,21 +13329,13 @@ A姐就这样跪了？被自己的手下背刺而亡？不能接受啊。
 ##### 2530#       发表于 2019-3-31 02:24
 
 
-
-
 其实这个剧情你放在小说里，读文字的时候应该不会想那么多，但是做成影像，画面上那么多内容就是不行
-
-
-
-
-
 
 
 -----
 
 ####  haibara  
 ##### 2531#       发表于 2019-3-31 02:29
-
 
 
  本帖最后由 haibara 于 2019-3-31 02:34 编辑 
@@ -20147,18 +13354,10 @@ A姐就这样跪了？被自己的手下背刺而亡？不能接受啊。
 总体感觉就是投了钱但是做的东西就是还不如第一季的PPT观感好
 
 
-
-
-
-
-
-
-
 -----
 
 ####  moooooonlight  
 ##### 2532#       发表于 2019-3-31 02:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43105316&amp;ptid=1550732" target="_blank">haibara 发表于 2019-03-31 02:29:11</a>
@@ -20170,16 +13369,10 @@ A姐就这样跪了？被自己的手下背刺而亡？不能接受啊。
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  haibara  
 ##### 2533#       发表于 2019-3-31 02:38
-
 
 
  本帖最后由 haibara 于 2019-3-31 02:40 编辑 
@@ -20198,16 +13391,10 @@ A姐就这样跪了？被自己的手下背刺而亡？不能接受啊。
 前2季没听说川原积极发TW解说的
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2534#       发表于 2019-3-31 02:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43105351&amp;ptid=1550732" target="_blank">haibara 发表于 2019-3-31 02:38</a>
@@ -20219,25 +13406,13 @@ A姐就这样跪了？被自己的手下背刺而亡？不能接受啊。
 至于每一话结束之后的解说，这个前两期也有。
 
 
-
-
-
-
-
 -----
 
 ####  gameseve  
 ##### 2535#       发表于 2019-3-31 02:50
 
 
-
-
 A姐不会再出现了吗？就这样的结局吗？挺有趣的角色。。真可惜。
-
-
-
-
-
 
 
 -----
@@ -20246,22 +13421,15 @@ A姐不会再出现了吗？就这样的结局吗？挺有趣的角色。。真�
 ##### 2536#       发表于 2019-3-31 02:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  reekilynn  
 ##### 2537#       发表于 2019-3-31 02:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43105395&amp;ptid=1550732" target="_blank">cybernetics 发表于 2019-3-31 02:50</a>
@@ -20271,16 +13439,10 @@ A姐不会再出现了吗？就这样的结局吗？挺有趣的角色。。真�
 完全不可靠，甚至在动画开播的时候就证伪了。
 
 
-
-
-
-
-
 -----
 
 ####  cybernetics  
 ##### 2538#       发表于 2019-3-31 02:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43105399&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-03-31 02:51:43</a>
@@ -20289,16 +13451,10 @@ A姐不会再出现了吗？就这样的结局吗？挺有趣的角色。。真�
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2539#       发表于 2019-3-31 02:57
-
 
 
  本帖最后由 reekilynn 于 2019-3-31 03:01 编辑 
@@ -20311,16 +13467,10 @@ A姐不会再出现了吗？就这样的结局吗？挺有趣的角色。。真�
 回头我把我的译者后记里关于动画的这一段贴出来。
 
 
-
-
-
-
-
 -----
 
 ####  moooooonlight  
 ##### 2540#       发表于 2019-3-31 03:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43105416&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-3-31 02:57</a>
@@ -20340,18 +13490,10 @@ A姐不会再出现了吗？就这样的结局吗？挺有趣的角色。。真�
 再接下来是川原的人物塑造很差。我看了三季动画+一剧场版+小说前两卷还是说不清楚桐人到底是怎样的一个人
 
 
-
-
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2541#       发表于 2019-3-31 03:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43105469&amp;ptid=1550732" target="_blank">moooooonlight 发表于 2019-3-31 03:20</a>
@@ -20360,25 +13502,13 @@ A姐不会再出现了吗？就这样的结局吗？挺有趣的角色。。真�
 动画删除了太多桐人的心理描写……
 
 
-
-
-
-
-
 -----
 
 ####  D．Va  
 ##### 2542#       发表于 2019-3-31 05:22
 
 
-
-
 前半段最后一集还是不错的，吊足了胃口
-
-
-
-
-
 
 
 -----
@@ -20387,14 +13517,7 @@ A姐不会再出现了吗？就这样的结局吗？挺有趣的角色。。真�
 ##### 2543#       发表于 2019-3-31 07:19
 
 
-
-
 这次战斗的用心度还不如第一季第二话吧
-
-
-
-
-
 
 
 -----
@@ -20403,15 +13526,9 @@ A姐不会再出现了吗？就这样的结局吗？挺有趣的角色。。真�
 ##### 2544#       发表于 2019-3-31 07:31
 
 
-
 <blockquote>gameseve 发表于 2019-3-31 02:50
 A姐不会再出现了吗？就这样的结局吗？挺有趣的角色。。真可惜。</blockquote>
 我不懂为什么不选a姐当样本。她哪里不像真人了
-
-
-
-
-
 
 
 -----
@@ -20420,22 +13537,15 @@ A姐不会再出现了吗？就这样的结局吗？挺有趣的角色。。真�
 ##### 2545#       发表于 2019-3-31 08:04
 
 
-
 <blockquote>欧阳明 发表于 2019-3-31 07:31
 我不懂为什么不选a姐当样本。她哪里不像真人了</blockquote>
 选A姐就是天网了啊
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2546#       发表于 2019-3-31 08:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43105179&amp;ptid=1550732" target="_blank">moooooonlight 发表于 2019-3-31 01:48</a>
@@ -20449,16 +13559,10 @@ A姐不会再出现了吗？就这样的结局吗？挺有趣的角色。。真�
 虽然我不认为你说的处理方法真的就好多少。实际上动画这里已经为了节奏进行了处理了，Admin也没掉线多长时间。
 
 
-
-
-
-
-
 -----
 
 ####  欧阳明  
 ##### 2547#       发表于 2019-3-31 08:23
-
 
 
 <blockquote>Renes 发表于 2019-3-31 08:04
@@ -20466,16 +13570,10 @@ A姐不会再出现了吗？就这样的结局吗？挺有趣的角色。。真�
 那他们怎么认为爱丽丝不会搞出天网的？
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2548#       发表于 2019-3-31 08:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43105247&amp;ptid=1550732" target="_blank">dragonfalls 发表于 2019-3-31 02:04</a>
@@ -20485,25 +13583,13 @@ A姐不会再出现了吗？就这样的结局吗？挺有趣的角色。。真�
 —— 来自 vivo V1813BT, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  Yeaha123  
 ##### 2549#       发表于 2019-3-31 08:40
 
 
-
-
 这boss战至少也得搞出打哥布林的水平吧
-
-
-
-
-
 
 
 -----
@@ -20512,16 +13598,9 @@ A姐不会再出现了吗？就这样的结局吗？挺有趣的角色。。真�
 ##### 2550#       发表于 2019-3-31 08:52
 
 
-
-
 这季真的太烂了，倒不是剧情难看，就是感觉演出手法太平庸太尴尬，打戏更是尤其难看
 
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -20530,16 +13609,10 @@ A姐不会再出现了吗？就这样的结局吗？挺有趣的角色。。真�
 ##### 2551#       发表于 2019-3-31 09:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43106247&amp;ptid=1550732" target="_blank">Yeaha123 发表于 2019-3-31 08:40</a>
 
 这boss战至少也得搞出打哥布林的水平吧</blockquote>
 然而泥潭渔夫没有吹错，哥布林似乎就是目前表现最好的一场战斗了
-
-
-
-
-
 
 
 -----
@@ -20548,23 +13621,16 @@ A姐不会再出现了吗？就这样的结局吗？挺有趣的角色。。真�
 ##### 2552#       发表于 2019-3-31 09:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43105066&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-3-31 01:28</a>
 
 sao第一话桐人教克莱因玩游戏的时候就说过了，使用剑技时不要强行控制，把身体交给系统，其余那些动作也 ...</blockquote>
 也对，其实是我自己一直误解了。不过这种以为对面是微操高玩，结果发现是1234惩戒骑的感觉很不爽啊。
 
 
-
-
-
-
-
 -----
 
 ####  moooooonlight  
 ##### 2553#       发表于 2019-3-31 09:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43106045&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-03-31 08:05:58</a>
@@ -20575,25 +13641,13 @@ sao第一话桐人教克莱因玩游戏的时候就说过了，使用剑技时�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  武の炽羽  
 ##### 2554#       发表于 2019-3-31 09:55
 
 
-
-
 其实我倒是觉得上一集比这集好看，而且这一季都是现实世界里面的戏份比较吸引我...
-
-
-
-
-
 
 
 -----
@@ -20602,13 +13656,7 @@ sao第一话桐人教克莱因玩游戏的时候就说过了，使用剑技时�
 ##### 2555#       发表于 2019-3-31 10:02
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">鉴赏区投票呢？我现在只想上去打-10000分
-
-
-
-
-
 
 
 -----
@@ -20617,13 +13665,7 @@ sao第一话桐人教克莱因玩游戏的时候就说过了，使用剑技时�
 ##### 2556#       发表于 2019-3-31 10:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">结果这一集我整个人都毫无波动，倒是最后终于和现实连上线了的时候有了点感觉
-
-
-
-
-
 
 
 -----
@@ -20632,13 +13674,7 @@ sao第一话桐人教克莱因玩游戏的时候就说过了，使用剑技时�
 ##### 2557#       发表于 2019-3-31 10:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这打戏真TM烂
-
-
-
-
-
 
 
 -----
@@ -20647,21 +13683,13 @@ sao第一话桐人教克莱因玩游戏的时候就说过了，使用剑技时�
 ##### 2558#       发表于 2019-3-31 10:23
 
 
-
-
 惨遭动画化了，原作这部分燃死了。动画看的想拉进度条。
-
-
-
-
-
 
 
 -----
 
 ####  mcq_2  
 ##### 2559#       发表于 2019-3-31 10:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43106339&amp;ptid=1550732" target="_blank">cao1rui2 发表于 2019-3-31 08:52</a>
@@ -20673,16 +13701,10 @@ sao第一话桐人教克莱因玩游戏的时候就说过了，使用剑技时�
 OP欺诈。
 
 
-
-
-
-
-
 -----
 
 ####  XSK小龙王  
 ##### 2560#       发表于 2019-3-31 10:34
-
 
 
  本帖最后由 XSK小龙王 于 2019-3-31 10:37 编辑 
@@ -20697,16 +13719,10 @@ OP欺诈。
 川原唯一参与脚本的是第一期的特别篇，就是总编集+打海底神殿那个
 
 
-
-
-
-
-
 -----
 
 ####  cybernetics  
 ##### 2561#       发表于 2019-3-31 10:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43107120&amp;ptid=1550732" target="_blank">XSK小龙王 发表于 2019-3-31 10:34</a>
@@ -20717,17 +13733,10 @@ OP欺诈。
 唯一的变量就是监督小野学咯，，，，，，感觉他的锅越来越大了，，，，，
 
 
-
-
-
-
-
 -----
 
 ####  koei327  
 ##### 2562#       发表于 2019-3-31 11:58
-
-
 
 
 很烂，桐人优吉欧的感情铺垫都没有……唉，原作那句“さぁ…立って、キリト!ボクの…親友…ボクの英雄…”出来的时候哭得有多惨动画就让我有多麻木………………好吧我还是泪目了，演出效果这么烂还是骗到我眼泪了尼玛还能怎么办我也好绝望啊<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
@@ -20738,25 +13747,13 @@ OP欺诈。
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  苍蓝之枪  
 ##### 2563#       发表于 2019-3-31 12:30
 
 
-
-
 我一直觉得这片要和现实部分搭起来才好看，纯游戏一点意思都没
-
-
-
-
-
 
 
 -----
@@ -20765,16 +13762,10 @@ OP欺诈。
 ##### 2564#       发表于 2019-3-31 12:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43108007&amp;ptid=1550732" target="_blank">koei327 发表于 2019-3-31 11:58</a>
 
 很烂，桐人优吉欧的感情铺垫都没有……唉，原作那句“さぁ…立って、キリト!ボクの…親友…ボクの英雄…” ...</blockquote>
 不要期待打打打，后半都是女主角们之间的互动有意思一些，爱丽丝和妹妹，爱丽丝和亚斯娜，等桐人能动弹了都快大结局了。
-
-
-
-
-
 
 
 -----
@@ -20783,17 +13774,10 @@ OP欺诈。
 ##### 2565#       发表于 2019-3-31 12:42
 
 
-
-
 作画高水准没人说吗？但是批站居然和谐了吉成钢的作画部分！！服了。。。。
 虽然剧本和演出确实有硬伤，但我觉得还行。。。
 
 —— 來自 Sony G8142, Android 8.0.0上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.0.3
-
-
-
-
-
 
 
 -----
@@ -20802,21 +13786,13 @@ OP欺诈。
 ##### 2566#       发表于 2019-3-31 13:16
 
 
-
-
 题外话很久就想吐槽了同样是足立慎吾做人设为什么一、二季的脸看着就很舒服，剧场版和第三季的那个脸就做的那么难看
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 2567#       发表于 2019-3-31 14:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43108387&amp;ptid=1550732" target="_blank">苍蓝之枪 发表于 2019-3-31 12:30</a>
@@ -20826,16 +13802,10 @@ OP欺诈。
 —— 来自 vivo V1813BT, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  zikimi  
 ##### 2568#       发表于 2019-3-31 14:50
-
 
 
 <blockquote>dragonfalls 发表于 2019-3-31 13:16
@@ -20843,16 +13813,10 @@ OP欺诈。
 因为总作监换了，第三季的总作监分别由西口智也 铃木豪 山本由美子担任，前两季都是足立慎吾和另外一个人组合
 
 
-
-
-
-
-
 -----
 
 ####  dragonfalls  
 ##### 2569#       发表于 2019-3-31 14:52
-
 
 
  本帖最后由 dragonfalls 于 2019-3-31 15:00 编辑 
@@ -20862,32 +13826,19 @@ OP欺诈。
 这样啊。。。看了下第二季人设山下祐做的另外一部动画《终末的伊泽塔》的人设，感觉相当还原abec了
 
 
-
-
-
-
-
 -----
 
 ####  404489039  
 ##### 2570#       发表于 2019-3-31 15:51
 
 
-
-
 战斗嘴炮回合制，最后变成剑的战斗真是弱智到我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 2571#       发表于 2019-3-31 19:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43105179&amp;ptid=1550732" target="_blank">moooooonlight 发表于 2019-3-31 01:48</a>
@@ -20901,16 +13852,10 @@ OP欺诈。
 反而是后面那段比较尴尬，这个时候也算是收上了桐人神圣术不行的伏笔，否则这个时段的桐人完全可以救到人的，只是他自己没去记高级术式。
 
 
-
-
-
-
-
 -----
 
 ####  woshenc  
 ##### 2572#       发表于 2019-3-31 19:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43112934&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-3-31 19:15</a>
@@ -20921,16 +13866,10 @@ ugo都腰斩了还能救回来吗？
 我看a姐都说自己没得救了得往现实世界跑了，ugo这腰斩的伤不比a姐开个洞轻吧
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2573#       发表于 2019-3-31 19:33
-
 
 
  本帖最后由 月夜凝雪 于 2019-3-31 19:35 编辑 
@@ -20947,16 +13886,10 @@ ugo都腰斩了还能救回来吗？
 admin说的是收集这里的资源都不够修复，并不是伤到无法修复，为了不再给Cardinal逃跑的这一手算是作茧自缚
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2574#       发表于 2019-3-31 20:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43112934&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-3-31 19:15</a>
@@ -20967,16 +13900,10 @@ admin说的是收集这里的资源都不够修复，并不是伤到无法修复
 记得UW的治疗术主要就只是生成光素填伤口而已，更多的还是看施术者个人的权限等级吧。
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2575#       发表于 2019-3-31 20:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43113769&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-3-31 20:19</a>
@@ -20991,16 +13918,10 @@ admin说的是收集这里的资源都不够修复，并不是伤到无法修复
 就像前面UGO只是跟着桐人混哥布林就能达到可以掌握神器的级别。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2576#       发表于 2019-3-31 20:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43113824&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-3-31 20:24</a>
@@ -21013,16 +13934,10 @@ admin说的是收集这里的资源都不够修复，并不是伤到无法修复
 可能是受桐人自己的心意的影响吧，还有就是周围的空间神圣力真的供不应求。
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2577#       发表于 2019-3-31 20:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43114171&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-3-31 20:50</a>
@@ -21035,32 +13950,19 @@ admin说的是收集这里的资源都不够修复，并不是伤到无法修复
 这里的空间神圣力肯定是不够的，所以admin才会说即使收集全这里的都不够修复自己才要逃往现实。
 
 
-
-
-
-
-
 -----
 
 ####  百响  
 ##### 2578#       发表于 2019-3-31 21:02
 
 
-
-
 这季演出太差，剧本就是那个剧本，但理论上也不是不可能处理好，打斗问题就不说了，UGO死3次这种也太出戏了吧，中间一些剧情也莫名其妙，没有弹幕剧透原著真的不晓得在搞什么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2579#       发表于 2019-3-31 21:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43114232&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-3-31 20:55</a>
@@ -21073,17 +13975,10 @@ admin说的是收集这里的资源都不够修复，并不是伤到无法修复
 空间资源又不是立刻就能提供过来的，优吉欧这情况除非立刻送到楼底蔷薇园拿蔷薇做触媒发动神圣术不然没救（当然桐人没有后面那么强的心意的情况下估计也做不到，爱丽丝醒来的话可以）
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 2580#       发表于 2019-3-31 21:08
-
-
 
 
 第三季除了哥布林，就没有什么合格的打戏吧？
@@ -21093,16 +13988,10 @@ admin说的是收集这里的资源都不够修复，并不是伤到无法修复
 同样是肋骨处一堆尖刃抖抖抖的BOSS，剑魔像的压迫感比75层的骨头差太多了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2581#       发表于 2019-3-31 21:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43114356&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-3-31 21:03</a>
@@ -21113,16 +14002,10 @@ admin说的是收集这里的资源都不够修复，并不是伤到无法修复
 桐人那心理问题实在太严重了，作为精神上经历过那么多事情的人就没点担当，这个时候的他即使不用心意抱着UGO跳下去其实是一点压力都没的，只需要靠神圣术辅助降落。
 
 
-
-
-
-
-
 -----
 
 ####  kiritokun  
 ##### 2582#       发表于 2019-3-31 21:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43109965&amp;ptid=1550732" target="_blank">zikimi 发表于 2019-3-31 14:50</a>
@@ -21131,16 +14014,10 @@ admin说的是收集这里的资源都不够修复，并不是伤到无法修复
 并不是，剧场版换人设是足立他们讨论之后决定改的，就是单纯想换个新的，然后弄出来一个鼻子是白点的莫名其妙的设计。
 
 
-
-
-
-
-
 -----
 
 ####  kiritokun  
 ##### 2583#       发表于 2019-3-31 21:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43114569&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-3-31 21:18</a>
@@ -21151,16 +14028,10 @@ admin说的是收集这里的资源都不够修复，并不是伤到无法修复
 不过川原肯定是要把优吉欧写死的，这样还看着好接受一点。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2584#       发表于 2019-3-31 22:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43114569&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-3-31 21:18</a>
@@ -21169,16 +14040,10 @@ admin说的是收集这里的资源都不够修复，并不是伤到无法修复
 100层没法跳下去吧……好像……
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2585#       发表于 2019-3-31 22:20
-
 
 
  本帖最后由 月夜凝雪 于 2019-3-31 22:22 编辑 
@@ -21188,16 +14053,10 @@ admin说的是收集这里的资源都不够修复，并不是伤到无法修复
 20卷的桐人经常干这种事，貌似是他们爬上来的那层来着？只是不记得有没提过是否可以用风魔法代替心意来操作
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2586#       发表于 2019-3-31 23:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43115417&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-3-31 22:20</a>
@@ -21206,16 +14065,10 @@ admin说的是收集这里的资源都不够修复，并不是伤到无法修复
 这时候的桐人这么干我觉得八成会自身使用神圣术的水平跟不上最后摔死……桐爱爬上来记得是95层。
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2587#       发表于 2019-4-1 00:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43115417&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-3-31 22:20</a>
@@ -21226,17 +14079,10 @@ admin说的是收集这里的资源都不够修复，并不是伤到无法修复
 爱丽丝在16卷开的地图炮也是临时学的……桐人18卷那个完全是川原给他开了挂，可以无视。反正他到21卷的时候已经忘的差不多了。
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2588#       发表于 2019-4-1 00:43
-
-
 
 
 把译者后记里关于动画的部分单独贴出来。
@@ -21259,11 +14105,6 @@ admin说的是收集这里的资源都不够修复，并不是伤到无法修复
 我承认自己很喜欢上纲上线，但既然这是个筐，凭什么不能往里塞点东西呢233
 
 
-
-
-
-
-
 -----
 
 ####  liangjiami3  
@@ -21277,16 +14118,10 @@ admin说的是收集这里的资源都不够修复，并不是伤到无法修复
 这片STAFF一本正经地拍烂片我是服气的，打戏和文戏都找不到一丝闪光点的大制作也算少见。隔壁烟草一集就把最初之人的形象立起来了，这边演了24集我都不知道尤吉欧这个角色有什么存在价值。
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2590#       发表于 2019-4-1 01:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43117389&amp;ptid=1550732" target="_blank">liangjiami3 发表于 2019-4-1 01:14</a>
@@ -21295,16 +14130,10 @@ admin说的是收集这里的资源都不够修复，并不是伤到无法修复
 这种例子我们见到过太多次了。
 
 
-
-
-
-
-
 -----
 
 ####  moooooonlight  
 ##### 2591#       发表于 2019-4-1 01:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43112934&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-3-31 19:15</a>
@@ -21316,17 +14145,10 @@ admin说的是收集这里的资源都不够修复，并不是伤到无法修复
 又或者只是我真的不适合看刀剑
 
 
-
-
-
-
-
 -----
 
 ####  kobushi  
 ##### 2592#       发表于 2019-4-1 07:35
-
-
 
 
 我还以为上一集UGO就便当的差不多了，这里竟然还能说那么多话<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
@@ -21336,25 +14158,13 @@ admin说的是收集这里的资源都不够修复，并不是伤到无法修复
 如果说懂得爱是给予了却不爱自己这不还是根本不懂吗<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  真忘私绵  
 ##### 2593#       发表于 2019-4-1 08:17
 
 
-
-
 想想剧场版的决战……再看看这个，哎……
-
-
-
-
-
 
 
 -----
@@ -21363,21 +14173,13 @@ admin说的是收集这里的资源都不够修复，并不是伤到无法修复
 ##### 2594#       发表于 2019-4-1 08:19
 
 
-
-
 admin一开始还碾压，什么招式都知道，为啥桐人双持后就打不过了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 2595#       发表于 2019-4-1 08:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43118246&amp;ptid=1550732" target="_blank">kobushi 发表于 2019-4-1 07:35</a>
@@ -21388,16 +14190,10 @@ admin一开始还碾压，什么招式都知道，为啥桐人双持后就打不
 主要还是桐人懂的术式等级太低和这个空间的资源不多，解决这两个条件是可以救出来的
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2596#       发表于 2019-4-1 09:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43118852&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-4-1 08:59</a>
@@ -21408,16 +14204,10 @@ admin一开始还碾压，什么招式都知道，为啥桐人双持后就打不
 某种意义上优吉欧那个时候已经不想活了吧。
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2597#       发表于 2019-4-1 10:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43119335&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-4-1 09:39</a>
@@ -21430,16 +14220,10 @@ admin一开始还碾压，什么招式都知道，为啥桐人双持后就打不
 两人在旁看着隔壁三人修罗场不也挺有趣。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2598#       发表于 2019-4-1 11:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43118246&amp;ptid=1550732" target="_blank">kobushi 发表于 2019-4-1 07:35</a>
@@ -21454,32 +14238,19 @@ admin一开始还碾压，什么招式都知道，为啥桐人双持后就打不
 当然，如果是后面大战篇起床后的桐人的话，可以用把优吉欧变回小孩子这种处理方式解决（
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2599#       发表于 2019-4-1 11:16
 
 
-
-
 现在看SAO我最关心的反而是克莱因什么时候才能获得幸福
-
-
-
-
-
 
 
 -----
 
 ####  欧阳明  
 ##### 2600#       发表于 2019-4-1 11:27
-
 
 
 <blockquote>月夜凝雪 发表于 2019-4-1 10:24
@@ -21489,27 +14260,15 @@ admin一开始还碾压，什么招式都知道，为啥桐人双持后就打不
 其实ugo和小爱丽丝真活下来，你们就要吐槽ugo萝莉控了
 
 
-
-
-
-
-
 -----
 
 ####  zmw_831110  
 ##### 2601#       发表于 2019-4-1 11:39
 
 
-
-
 boss ob的太狠了，基友死了我一点感觉也没有，直到本子娜出现，我才发现，本子娜才是刀剑神域的本源，没她，看个P啊
 
 —— 来自 HMD Global Nokia 7 plus, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -21518,23 +14277,15 @@ boss ob的太狠了，基友死了我一点感觉也没有，直到本子娜出�
 ##### 2602#       发表于 2019-4-1 11:47
 
 
-
-
 的确想不明白a姐为什么会从碾压变成被换手然后被秒，说好的最强呢
 
 是不知道桐人的剑非金属属性所以玩脱了吗？从台词上看似乎也只能这样理解了
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 2603#       发表于 2019-4-1 11:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43120999&amp;ptid=1550732" target="_blank">欧阳明 发表于 2019-4-1 11:27</a>
@@ -21545,16 +14296,10 @@ boss ob的太狠了，基友死了我一点感觉也没有，直到本子娜出�
 真操作起来就应该是把爱丽丝的摇光复制，然后把小爱丽丝的部分还原到其中一个里，只会是变成两个大的爱丽丝
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2604#       发表于 2019-4-1 12:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43121542&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-4-1 11:55</a>
@@ -21565,16 +14310,10 @@ boss ob的太狠了，基友死了我一点感觉也没有，直到本子娜出�
 现实世界可以造两个机器人解决这个问题，但是uw里做不了这个操作…
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2605#       发表于 2019-4-1 12:18
-
 
 
  本帖最后由 月夜凝雪 于 2019-4-1 12:21 编辑 
@@ -21586,16 +14325,10 @@ boss ob的太狠了，基友死了我一点感觉也没有，直到本子娜出�
 根本没难度，那堆超级账号也不是慢慢成长的，在外面操作要在内部增加个没有摇光的角色多简单。看过原作的话应该知道超级账号是什么，又没规定必须在内部操作。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2606#       发表于 2019-4-1 13:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43121829&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-4-1 12:12</a>
@@ -21606,25 +14339,13 @@ boss ob的太狠了，基友死了我一点感觉也没有，直到本子娜出�
 主要是Cardinal也死了所以没办法弄。如果Cardinal也活着，赋予小爱丽丝的记忆一个新的人界人账号应该并不困难。
 
 
-
-
-
-
-
 -----
 
 ####  发财就手  
 ##### 2607#       发表于 2019-4-1 22:06
 
 
-
-
 突然想到个事，就算A姐这集没有元老长的阻扰逃了，但拉斯是没有对外联网的那她怎么打算跑出去，是有人接应把她装到个U盘里带走还是用之前出现过的那台机器人身体逃跑呢
-
-
-
-
-
 
 
 -----
@@ -21633,14 +14354,7 @@ boss ob的太狠了，基友死了我一点感觉也没有，直到本子娜出�
 ##### 2608#       发表于 2019-4-1 22:13
 
 
-
-
 看完24很纳闷? A姐逃跑没成功炸了？本子娜出现后续发展是什么？
-
-
-
-
-
 
 
 -----
@@ -21649,16 +14363,10 @@ boss ob的太狠了，基友死了我一点感觉也没有，直到本子娜出�
 ##### 2609#       发表于 2019-4-1 22:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43129900&amp;ptid=1550732" target="_blank">发财就手 发表于 2019-4-1 22:06</a>
 
 突然想到个事，就算A姐这集没有元老长的阻扰逃了，但拉斯是没有对外联网的那她怎么打算跑出去，是有人接应 ...</blockquote>
 当然是有人接应她把她的Light Cube拿走。
-
-
-
-
-
 
 
 -----
@@ -21667,16 +14375,10 @@ boss ob的太狠了，基友死了我一点感觉也没有，直到本子娜出�
 ##### 2610#       发表于 2019-4-1 22:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43129900&amp;ptid=1550732" target="_blank">发财就手 发表于 2019-4-1 22:06</a>
 
 突然想到个事，就算A姐这集没有元老长的阻扰逃了，但拉斯是没有对外联网的那她怎么打算跑出去，是有人接应 ...</blockquote>
 写入左眼CODE的那个人
-
-
-
-
-
 
 
 -----
@@ -21685,21 +14387,13 @@ boss ob的太狠了，基友死了我一点感觉也没有，直到本子娜出�
 ##### 2611#       发表于 2019-4-1 22:38
 
 
-
-
 不过就算A姐逃了，按她的性格，就算在美国人手里，早晚也会掀起奥创纪元
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2612#       发表于 2019-4-2 00:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43130235&amp;ptid=1550732" target="_blank">stygianlunar 发表于 2019-4-1 22:38</a>
@@ -21710,32 +14404,19 @@ boss ob的太狠了，基友死了我一点感觉也没有，直到本子娜出�
 之前看21卷剧透时我就猜想UR这东西是不是原本是Admin搞出来为了到现实世界后支配现实世界用的了（
 
 
-
-
-
-
-
 -----
 
 ####  大丈夫萌大乃  
 ##### 2613#       发表于 2019-4-2 08:51
 
 
-
-
 紫色老太婆跪得也太强行了,还不如直接被砍死呢
-
-
-
-
-
 
 
 -----
 
 ####  9090asd  
 ##### 2614#       发表于 2019-4-2 09:06
-
 
 
 <blockquote>pokemon最爱 发表于 2019-3-29 19:21
@@ -21745,16 +14426,10 @@ Admin被彻底清算 ...</blockquote>
 巨魔的思路来看这个问题
 
 
-
 这种秘密科研项目一般来说，网络应该都是物理隔绝的吧
 
 
 a妈能逃到哪去呢？说到底就是个ai，还被灭的那么low
-
-
-
-
-
 
 
 -----
@@ -21763,22 +14438,15 @@ a妈能逃到哪去呢？说到底就是个ai，还被灭的那么low
 ##### 2615#       发表于 2019-4-2 09:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43133369&amp;ptid=1550732" target="_blank">9090asd 发表于 2019-4-2 09:06</a>
 巨魔的思路来看这个问题</blockquote>
 外面有NSA安插进来的间谍接应，可以直接把lightcube弹出带走。
-
-
-
-
-
 
 
 -----
 
 ####  欧阳明  
 ##### 2616#       发表于 2019-4-2 09:24
-
 
 
 <blockquote>月夜凝雪 发表于 2019-4-1 11:55
@@ -21788,16 +14456,10 @@ a妈能逃到哪去呢？说到底就是个ai，还被灭的那么low
 但是实际小爱丽丝的实际年龄还是小吧
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2617#       发表于 2019-4-2 09:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43133629&amp;ptid=1550732" target="_blank">欧阳明 发表于 2019-4-2 09:24</a>
@@ -21807,16 +14469,10 @@ a妈能逃到哪去呢？说到底就是个ai，还被灭的那么low
 —— 来自 vivo V1813BT, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  woshenc  
 ##### 2618#       发表于 2019-4-2 10:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43129900&amp;ptid=1550732" target="_blank">发财就手 发表于 2019-4-1 22:06</a>
@@ -21825,32 +14481,19 @@ a妈能逃到哪去呢？说到底就是个ai，还被灭的那么low
 逃到现实世界就是奥创或者天网啊
 
 
-
-
-
-
-
 -----
 
 ####  武の炽羽  
 ##### 2619#       发表于 2019-4-2 10:50
 
 
-
-
 其实Sao第二季前半部分还是相当好看的，作画不错剧情也过瘾，对于我这种没看过原作的人来说一口气补完相当爽快。第三季前几集也不错，大概到了学妹被强X了就有点不想看了，后面捡起来一口气看完倒也没感觉太糟，但是没有第二季那种一口气看完的爽快感。
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 2620#       发表于 2019-4-2 11:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43134967&amp;ptid=1550732" target="_blank">武の炽羽 发表于 2019-4-2 10:50</a>
@@ -21862,16 +14505,10 @@ a妈能逃到哪去呢？说到底就是个ai，还被灭的那么low
 —— 来自 vivo V1813BT, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  9090asd  
 ##### 2621#       发表于 2019-4-2 11:25
-
 
 
 <blockquote>reekilynn 发表于 2019-4-2 09:15
@@ -21879,13 +14516,7 @@ a妈能逃到哪去呢？说到底就是个ai，还被灭的那么low
 一样的丫，接走后一般来说还是进某个物理隔绝的实验室的宿命
 
 
-
 a妈的所作所为对应到现实，总是很奇怪
-
-
-
-
-
 
 
 -----
@@ -21894,14 +14525,7 @@ a妈的所作所为对应到现实，总是很奇怪
 ##### 2622#       发表于 2019-4-2 11:30
 
 
-
-
 你要说a妈当天网嘛，那也是low的不得了，看uw的治理方针就该明白，绝对的守序正义，本身除了玩系统以外功能性也看不出比桐人的女儿那个抢多少，所谓玩系统也不过是比别人更早破译了管理代码...这到底哪里强大了
-
-
-
-
-
 
 
 -----
@@ -21910,23 +14534,16 @@ a妈的所作所为对应到现实，总是很奇怪
 ##### 2623#       发表于 2019-4-2 12:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43133369&amp;ptid=1550732" target="_blank">9090asd 发表于 2019-4-2 09:06</a>
 
 巨魔的思路来看这个问题</blockquote>
 Admin自然是早就准备好后手了，外面那个当初将利己心这个东西带进UW的人早就被她控制住成为她忠实的仆人了。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2624#       发表于 2019-4-2 12:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43133629&amp;ptid=1550732" target="_blank">欧阳明 发表于 2019-4-2 09:24</a>
@@ -21937,16 +14554,10 @@ Admin自然是早就准备好后手了，外面那个当初将利己心这个东
 记得小爱丽丝是经过2年大教堂的学习后才被强制整合的，而且到天花板上以后恐怕也一直都有相当程度的自我意识。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2625#       发表于 2019-4-2 12:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43135652&amp;ptid=1550732" target="_blank">9090asd 发表于 2019-4-2 11:30</a>
@@ -21957,16 +14568,10 @@ Admin自然是早就准备好后手了，外面那个当初将利己心这个东
 这几天在各种地方讨论Admin时我总会拉出一个对比对象，这个对象是Fate系列的杀生院。杀生院在黑A那条线干出过什么，Admin到了现实世界就能干出什么。
 
 
-
-
-
-
-
 -----
 
 ####  卡爹  
 ##### 2626#       发表于 2019-4-2 14:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43085788&amp;ptid=1550732" target="_blank">取个中文名 发表于 2019-3-29 14:47</a>
@@ -21977,16 +14582,10 @@ Admin自然是早就准备好后手了，外面那个当初将利己心这个东
 —— 来自 vivo NEX, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2627#       发表于 2019-4-2 14:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43138093&amp;ptid=1550732" target="_blank">卡爹 发表于 2019-4-2 14:02</a>
@@ -21997,16 +14596,10 @@ Admin自然是早就准备好后手了，外面那个当初将利己心这个东
 —— 来自 vivo V1813BT, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  h02t  
 ##### 2628#       发表于 2019-4-2 15:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43136731&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-4-2 12:36</a>
@@ -22021,16 +14614,10 @@ Admin自然是早就准备好后手了，外面那个当初将利己心这个东
 这作者就几斤几两大家早就看透了，还能编出什么真正OO的东西，日本人格局就那么小，还不让人笑掉大牙，
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2629#       发表于 2019-4-2 17:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43139329&amp;ptid=1550732" target="_blank">h02t 发表于 2019-4-2 15:22</a>
@@ -22044,16 +14631,10 @@ Admin自然是早就准备好后手了，外面那个当初将利己心这个东
 Rath的团队混入了原须乡的手下，把利己心带进UW、设置Code 871的就是这人。动画最后一集海龟被侵入也是这人卖情报给美国的。然后这个人，已经被Admin洗脑成另一个元老长丘德尔金那个状态了。顺便，桐人在本篇上100层的时候，仅仅是看到Admin就被吓得差点迈不出脚，在整合骑士if，桐人也是战战兢兢不敢用往常那个随便的口气说话。真让Admin出来？我看大部分情况下负责看管这家伙的人都会被她逐渐洗脑控制住。
 
 
-
-
-
-
-
 -----
 
 ####  9090asd  
 ##### 2630#       发表于 2019-4-2 18:04
-
 
 
 <blockquote>pokemon最爱 发表于 2019-4-2 17:46
@@ -22067,16 +14648,10 @@ Rath的团队混入了原须乡的手下，把利己心带进UW、设置Code 871
 还有是靠什么吓傻桐人的？网游技能特别多特别好？
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2631#       发表于 2019-4-2 20:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43141848&amp;ptid=1550732" target="_blank">9090asd 发表于 2019-4-2 18:04</a>
@@ -22092,16 +14667,10 @@ Rath的团队混入了原须乡的手下，把利己心带进UW、设置Code 871
 用AW的说法，就是情报压的效果。
 
 
-
-
-
-
-
 -----
 
 ####  masonknight  
 ##### 2632#       发表于 2019-4-2 22:09
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">第三季真难看……打斗是真的烂！桐姥爷拿起双剑的时候亏我还激动了一下，想着，终于要来精彩的了吗？
@@ -22109,16 +14678,10 @@ Rath的团队混入了原须乡的手下，把利己心带进UW、设置Code 871
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有UGO死还没死绝也是无语，你就不能学学爱丽丝趴着不说话吗？死人都不会演要不要让星爷来教你啊
 
 
-
-
-
-
-
 -----
 
 ####  stygianlunar  
 ##### 2633#       发表于 2019-4-2 23:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43131208&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-4-2 00:17</a>
@@ -22129,16 +14692,10 @@ Rath的团队混入了原须乡的手下，把利己心带进UW、设置Code 871
 应该不是，UR这个可能真的是SEED自进化了，感觉或许存在SEED自身的意志，这样说来AW的AABBCCDD这些可能不是人为制造的游戏，而是SEED自己搞出来的。
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2634#       发表于 2019-4-2 23:24
-
 
 
  本帖最后由 reekilynn 于 2019-4-2 23:34 编辑 
@@ -22149,32 +14706,19 @@ Rath的团队混入了原须乡的手下，把利己心带进UW、设置Code 871
 更何况，现在这个大量vr游戏出现故障的状况持续下去，各国政府肯定要介入的吧，比如美帝…
 
 
-
-
-
-
-
 -----
 
 ####  stygianlunar  
 ##### 2635#       发表于 2019-4-2 23:27
 
 
-
-
 另外， 感觉情报压，心意现象这些越来越玄学了，都不能单纯用seed或摇光解释了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">，按AW的伏笔和SAO目前的一些细节来说，出现心意干涉现实以及对那些“闹鬼”现象的解释是早晚的事。
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 2636#       发表于 2019-4-2 23:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43131208&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-4-2 00:17</a>
@@ -22187,16 +14731,10 @@ Rath的团队混入了原须乡的手下，把利己心带进UW、设置Code 871
 从对话中可以了解到后来的UR是SEED自我进化的结果。
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2637#       发表于 2019-4-2 23:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43145512&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-4-2 23:24</a>
@@ -22209,16 +14747,10 @@ Rath的团队混入了原须乡的手下，把利己心带进UW、设置Code 871
 这个不能太过深究啦，否则最初的SAO事件其实也有可以从外部解决的方法。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2638#       发表于 2019-4-2 23:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43145498&amp;ptid=1550732" target="_blank">stygianlunar 发表于 2019-4-2 23:23</a>
@@ -22237,16 +14769,10 @@ UR篇开头星王和茅场（2026.9.15）的对话提到过统合这件事，但
 有动机有能力，我觉得有足够高的可能性是Admin推动了The Seed连接体统合成UR这事。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2639#       发表于 2019-4-2 23:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43145733&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-4-2 23:48</a>
@@ -22259,16 +14785,10 @@ UR篇开头星王和茅场（2026.9.15）的对话提到过统合这件事，但
 但是Admin是持有Cardinal System权限的。她完全可能发现这个机能，并为了自己去干涉这个机能推动统合化甚至影响到之后UR的部分内容设定。
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2640#       发表于 2019-4-2 23:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43145812&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-4-2 23:57</a>
@@ -22279,17 +14799,10 @@ UR篇开头星王和茅场（2026.9.15）的对话提到过统合这件事，但
 UW内可没有能连接外部网络的手段，除非UR里包括UW
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2641#       发表于 2019-4-3 00:03
-
-
 
 
 要么还是去小说专楼讨论小说的问题吧
@@ -22297,16 +14810,10 @@ https://bbs.saraba1st.com/2b/thread-1551439-0-1.html
 现在占着动画楼有点不太友好。
 
 
-
-
-
-
-
 -----
 
 ####  h02t  
 ##### 2642#       发表于 2019-4-3 11:37
-
 
 
  本帖最后由 h02t 于 2019-4-3 11:39 编辑 
@@ -22322,16 +14829,10 @@ Rath的团队混入了原须乡的手下，把利己心带进UW、设置Code 871
 人统治人是靠手段以及实力，不是靠威压，罚你去看10遍甄嬛传可不可以提升你的现实感?
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2643#       发表于 2019-4-3 12:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43150015&amp;ptid=1550732" target="_blank">h02t 发表于 2019-4-3 11:37</a>
@@ -22344,16 +14845,10 @@ Rath的团队混入了原须乡的手下，把利己心带进UW、设置Code 871
 动画做得烂没把该表现出来的表现出来我也喷了不是一回两回了，我这里又没拿动画说事。
 
 
-
-
-
-
-
 -----
 
 ####  h02t  
 ##### 2644#       发表于 2019-4-3 13:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43150657&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-4-3 12:16</a>
@@ -22372,32 +14867,19 @@ Rath的团队混入了原须乡的手下，把利己心带进UW、设置Code 871
 何况真实世界还有衰老寿命疾病死亡，对了，还有肉体，算了说多了你也理解不了吧
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2645#       发表于 2019-4-3 13:05
 
 
-
-
 各种邪教各种诈骗为什么有那么多人信我也理解不了
-
-
-
-
-
 
 
 -----
 
 ####  Gooddays  
 ##### 2646#       发表于 2019-4-3 13:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43145739&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-4-2 23:49</a>
@@ -22407,16 +14889,10 @@ SAO 初期事件即使有外部解决方法，但一失败便救不回来，所�
 — from Sony SO-01H, Android 7.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2647#       发表于 2019-4-3 13:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43151519&amp;ptid=1550732" target="_blank">Gooddays 发表于 2019-4-3 13:12</a>
@@ -22425,16 +14901,10 @@ SAO 初期事件即使有外部解决方法，但一失败便救不回来，所�
 然而背景上不信邪作死的人已经很多了，那些作死的怎么也没去考虑增加保险才去干
 
 
-
-
-
-
-
 -----
 
 ####  Gooddays  
 ##### 2648#       发表于 2019-4-3 13:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43150657&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-4-3 12:16</a>
@@ -22450,16 +14920,10 @@ Admin 再强也强不过打代码的程序员，UW 她强在于现实世界那�
 — from Sony SO-01H, Android 7.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2649#       发表于 2019-4-3 13:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43151328&amp;ptid=1550732" target="_blank">h02t 发表于 2019-4-3 13:00</a>
@@ -22479,16 +14943,10 @@ Admin 再强也强不过打代码的程序员，UW 她强在于现实世界那�
 UW结尾时出来到现实世界的爱丽丝都已经是一挥机械臂就能把收到的邮件用旁边的打印机打印出来了。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2650#       发表于 2019-4-3 13:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43151736&amp;ptid=1550732" target="_blank">Gooddays 发表于 2019-4-3 13:27</a>
@@ -22504,16 +14962,10 @@ UW结尾时出来到现实世界的爱丽丝都已经是一挥机械臂就能把
 3、世界最强黑客Yui和AI茅场表示，哦，原来打代码的程序员能打过我们啊。
 
 
-
-
-
-
-
 -----
 
 ####  Gooddays  
 ##### 2651#       发表于 2019-4-3 13:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43151645&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-4-3 13:20</a>
@@ -22527,16 +14979,10 @@ UW结尾时出来到现实世界的爱丽丝都已经是一挥机械臂就能把
 — from Sony SO-01H, Android 7.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2652#       发表于 2019-4-3 13:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43151791&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-4-3 13:30</a>
@@ -22547,16 +14993,10 @@ UW结尾时出来到现实世界的爱丽丝都已经是一挥机械臂就能把
 其实茅场和Yui的情况已经要去参考Tron: Legacy、电光超人和洛克人EXE那些了
 
 
-
-
-
-
-
 -----
 
 ####  Gooddays  
 ##### 2653#       发表于 2019-4-3 13:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43151791&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-4-3 13:30</a>
@@ -22570,16 +15010,10 @@ SAO 只是游戏，现实世界政府把游戏整个删掉难道那班游戏宅�
 — from Sony SO-01H, Android 7.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2654#       发表于 2019-4-3 14:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43152039&amp;ptid=1550732" target="_blank">Gooddays 发表于 2019-4-3 13:50</a>
@@ -22590,16 +15024,10 @@ SAO 只是游戏，现实世界政府把游戏整个删掉难道那班游戏宅�
 2、SAO世界观下VR的应用比你想象的广泛。另外，VR设备的连接是有一定范围的，做特制的设备的话完全有可能做到非接触式控制。
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 2655#       发表于 2019-4-3 22:31
-
 
 
  本帖最后由 mhss 于 2019-4-3 22:33 编辑 
@@ -22609,26 +15037,15 @@ SAO 只是游戏，现实世界政府把游戏整个删掉难道那班游戏宅�
 半年就看了这么个注水货，最后还没见到下集预告，是分割放还是这周接着播第25集？哦，看到前面楼里提到了10月
 
 
-
-
-
-
-
 -----
 
 ####  dragonfalls  
 ##### 2656#       发表于 2019-4-3 22:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43158754&amp;ptid=1550732" target="_blank">mhss 发表于 2019-4-3 22:31</a>
 第24集各种诈尸，基友强行没有凉透还苏醒对话两次也就算了，就连小矮子都能复活强上紫毛（这段真是本子见的 ...</blockquote>
 二期10月番
-
-
-
-
-
 
 
 -----
@@ -22637,14 +15054,7 @@ SAO 只是游戏，现实世界政府把游戏整个删掉难道那班游戏宅�
 ##### 2657#       发表于 2019-4-3 22:53
 
 
-
-
 我觉得老女人挺好，作为boss是合格的，平时还喜欢果飘，一个ai进化成这样挺不容易了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22653,17 +15063,8 @@ SAO 只是游戏，现实世界政府把游戏整个删掉难道那班游戏宅�
 ##### 2658#       发表于 2019-4-3 23:59
 
 
-
-
 借着隔壁土色论坛的某个兄弟的脑洞，补全延伸了一下，这边也发一份吧，素材皆来自网络<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 <img src="http://wx4.sinaimg.cn/large/69634f81gy1g1pvu727vkj20zk780npi.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 -----
@@ -22672,22 +15073,15 @@ SAO 只是游戏，现实世界政府把游戏整个删掉难道那班游戏宅�
 ##### 2659#       发表于 2019-4-4 11:18
 
 
-
  本帖最后由 selain.meneth 于 2019-4-4 11:22 编辑 
 
 全片的精华（包括剧情）大概就是打哥布林那一段了。
-
-
-
-
-
 
 
 -----
 
 ####  欧阳明  
 ##### 2660#       发表于 2019-4-5 05:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43136731&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-4-2 12:36</a>
@@ -22700,17 +15094,10 @@ SAO 只是游戏，现实世界政府把游戏整个删掉难道那班游戏宅�
 我本来就很喜欢ssy
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2661#       发表于 2019-4-5 07:29
-
-
 
 
 无力吐嘈了。。。
@@ -22719,17 +15106,10 @@ SAO 只是游戏，现实世界政府把游戏整个删掉难道那班游戏宅�
 这剧情虽然拖拉但看着像要大结局了。这周我在等26话，最后完结一话，结果NTM告诉我不播了等10月还有下一季。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2662#       发表于 2019-4-5 09:25
-
-
 
 
 我现在更想看二十二卷，还是回到玩游戏适合川原
@@ -22737,17 +15117,10 @@ SAO 只是游戏，现实世界政府把游戏整个删掉难道那班游戏宅�
 —— 来自 vivo V1813BT, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  芝士排骨  
 ##### 2663#       发表于 2019-4-5 12:09
-
-
 
 
 话说你们觉得第二季做的怎么样？
@@ -22760,16 +15133,10 @@ SAO 只是游戏，现实世界政府把游戏整个删掉难道那班游戏宅�
 —— 来自 HUAWEI VTR-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  haibara  
 ##### 2664#       发表于 2019-4-5 12:20
-
 
 
  本帖最后由 haibara 于 2019-4-5 12:23 编辑 
@@ -22788,32 +15155,19 @@ SAO 只是游戏，现实世界政府把游戏整个删掉难道那班游戏宅�
 不过第2季是有问题，文戏太多，为了凑集数，丧心病狂，补番还行
 
 
-
-
-
-
-
 -----
 
 ####  n2z  
 ##### 2665#       发表于 2019-4-6 10:42
 
 
-
-
 这片看得我真难受，男主的表现太过弱智，完全不像一个经历了几年生死游戏还没什么事出来的人
-
-
-
-
-
 
 
 -----
 
 ####  mhss  
 ##### 2666#       发表于 2019-4-6 14:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43178348&amp;ptid=1550732" target="_blank">haibara 发表于 2019-4-5 12:20</a>
@@ -22825,16 +15179,10 @@ SAO 只是游戏，现实世界政府把游戏整个删掉难道那班游戏宅�
 监狱学园应该能算吧？
 
 
-
-
-
-
-
 -----
 
 ####  D．Va  
 ##### 2667#       发表于 2019-4-6 14:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43178193&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-4-5 12:09</a>
@@ -22846,31 +15194,19 @@ SAO 只是游戏，现实世界政府把游戏整个删掉难道那班游戏宅�
 ggo桐子和诗乃的互动很有意思，其他一般，然后绝剑篇是个人认为除第一季前半外做的最好的篇章
 
 
-
-
-
-
-
 -----
 
 ####  アルメリア  
 ##### 2668#       发表于 2019-4-7 22:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是 上周就完结了？ 这不是啥都没讲完吗
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 2669#       发表于 2019-4-7 22:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43210721&amp;ptid=1550732" target="_blank">アルメリア 发表于 2019-4-7 22:54</a>
@@ -22881,17 +15217,10 @@ ggo桐子和诗乃的互动很有意思，其他一般，然后绝剑篇是个�
 连续制作工作量大分割可以有缓冲期，十月才上那是可以缓冲半年。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2670#       发表于 2019-4-20 23:15
-
-
 
 
 【BD&amp;DVD Vol.5ジャケットイラスト解禁】
@@ -22903,14 +15232,12 @@ ggo桐子和诗乃的互动很有意思，其他一般，然后绝剑篇是个�
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1g29hvzmpuyj20qr0xc7c2.jpg" referrerpolicy="no-referrer">
 
 
-
 【BD&amp;DVD情報更新】
 
 BD&amp;DVD Vol.8完全生産限定版に原作者：川原礫先生 書き下ろし新規短編小説の収録が決定しました！
 
 
 さらに、Vol.7〜8には音楽を担当する梶浦由記さんのサウンドトラックを収録！
-
 
 
 【BD&amp;DVD情報更新】
@@ -22932,11 +15259,6 @@ BD&amp;DVD Vol.5〜8完全生産限定版に収録される「Symphonic Alicizat
 ■特製ブックレット（12P）
 
 撮影監督・脇 顯太朗×林 賢太インタビューなど収録
-
-
-
-
-
 
 
 -----
@@ -22945,8 +15267,6 @@ BD&amp;DVD Vol.5〜8完全生産限定版に収録される「Symphonic Alicizat
 ##### 2671#       发表于 2019-4-20 23:15
 
 
-
-
 【BD&amp;DVD Vol.5ジャケットイラスト解禁】
 
 5/29（水）発売のBD&amp;DVD Vol.5のジャケットイラストを公開！
@@ -22956,14 +15276,12 @@ BD&amp;DVD Vol.5〜8完全生産限定版に収録される「Symphonic Alicizat
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1g29hvzmpuyj20qr0xc7c2.jpg" referrerpolicy="no-referrer">
 
 
-
 【BD&amp;DVD情報更新】
 
 BD&amp;DVD Vol.8完全生産限定版に原作者：川原礫先生 書き下ろし新規短編小説の収録が決定しました！
 
 
 さらに、Vol.7〜8には音楽を担当する梶浦由記さんのサウンドトラックを収録！
-
 
 
 【BD&amp;DVD情報更新】
@@ -22987,16 +15305,10 @@ BD&amp;DVD Vol.5〜8完全生産限定版に収録される「Symphonic Alicizat
 撮影監督・脇 顯太朗×林 賢太インタビューなど収録
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2672#       发表于 2019-4-20 23:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43383769&amp;ptid=1550732" target="_blank">xingenge 发表于 2019-4-20 23:15</a>
@@ -23007,17 +15319,10 @@ BD&amp;DVD Vol.5〜8完全生産限定版に収録される「Symphonic Alicizat
 结果到最后也没有桐优的合唱啊……反而有桐爱的合唱，协会成员们又在狂喜乱舞了（
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2673#       发表于 2019-4-20 23:45
-
-
 
 
 鈴木 豪 🐾@kurogomasama
@@ -23028,16 +15333,10 @@ BD&amp;DVD Vol.5〜8完全生産限定版に収録される「Symphonic Alicizat
 封面是足立画的，也不知道为什么写铃木
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2674#       发表于 2019-4-20 23:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43383987&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-4-20 23:39</a>
@@ -23046,16 +15345,10 @@ BD&amp;DVD Vol.5〜8完全生産限定版に収録される「Symphonic Alicizat
 不是还有下半吗，确定女主角们的那一段
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2675#       发表于 2019-4-21 00:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43384082&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-4-20 23:51</a>
@@ -23066,30 +15359,17 @@ BD&amp;DVD Vol.5〜8完全生産限定版に収録される「Symphonic Alicizat
 谁知道那时候还有没有角色歌系列，以及是不是桐人起床那里是桐优呢（
 
 
-
-
-
-
-
 -----
 
 ####  绯冉老师  
 ##### 2676#       发表于 2019-5-11 12:25
 
 
-
-
 不出所料，2dm这热度还是得蹭的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
 
 
 IMG_20190511_121954.jpg
 (89.33 KB, 下载次数: 14)
-
-
 
 
 下载附件
@@ -23098,24 +15378,7 @@ IMG_20190511_121954.jpg
 2019-5-11 12:24 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201905/11/122442a8g5fk1p8kf283c5.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -23124,16 +15387,9 @@ IMG_20190511_121954.jpg
 ##### 2677#       发表于 2019-7-7 09:04
 
 
-
-
 「ソードアート・オンライン アリシゼーション War of Underworld」Anime Expo 2019ティザー映像
 [https://www.youtube.com/watch?v=hSlltJDcgOo](https://www.youtube.com/watch?v=hSlltJDcgOo)
 [https://v.youku.com/v_show/id_XN ... j.8428770.3416059.1](https://v.youku.com/v_show/id_XNDI2MTc3OTM2MA==.html?spm=a2h3j.8428770.3416059.1)
-
-
-
-
-
 
 
 -----
@@ -23142,22 +15398,13 @@ IMG_20190511_121954.jpg
 ##### 2678#       发表于 2019-7-7 11:09
 
 
-
-
 这画的感觉还挺有精神的是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  奈落的孤火花  
 ##### 2679#       发表于 2019-7-7 22:12
-
-
 
 
 我觉得后半小说让我眼前一亮的地方：
@@ -23173,32 +15420,19 @@ IMG_20190511_121954.jpg
 其余好像还有一点但我想不起来了，就这样吧
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2680#       发表于 2019-7-21 17:47
 
 
-
 <img src="http://wx3.sinaimg.cn/large/0068TvVBgy1g57lrlkwpwj30u016hdtp.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2681#       发表于 2019-7-21 19:33
-
-
 
 
 【Blu-ray&amp;DVD Vol.8 ジャケットイラスト解禁】
@@ -23212,22 +15446,15 @@ IMG_20190511_121954.jpg
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1g57o1zu4n2j20u011fb2c.jpg" referrerpolicy="no-referrer">
 
 
-
 TVアニメ「ソードアート・オンライン アリシゼーション War of Underworld」PV第1弾／2019.10 On AIR
 [https://www.youtube.com/watch?v=QNuKFjQZyAo](https://www.youtube.com/watch?v=QNuKFjQZyAo)
 [https://v.youku.com/v_show/id_XN ... j.8428770.3416059.1](https://v.youku.com/v_show/id_XNDI4MTkwODUyOA==.html?spm=a2h3j.8428770.3416059.1)
-
-
-
-
-
 
 
 -----
 
 ####  woshenc  
 ##### 2682#       发表于 2019-7-21 19:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44607240&amp;ptid=1550732" target="_blank">xingenge 发表于 2019-7-21 19:33</a>
@@ -23238,16 +15465,10 @@ TVアニメ「ソードアート・オンライン アリシゼーション War 
 这a姐的姿势和桐人的位置。。。。。
 
 
-
-
-
-
-
 -----
 
 ####  烟花缭乱  
 ##### 2683#       发表于 2019-7-21 20:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44607240&amp;ptid=1550732" target="_blank">xingenge 发表于 2019-7-21 19:33</a>
@@ -23258,27 +15479,15 @@ TVアニメ「ソードアート・オンライン アリシゼーション War 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这构图恕我欣赏不能
 
 
-
-
-
-
-
 -----
 
 ####  芝士排骨  
 ##### 2684#       发表于 2019-7-21 20:15
 
 
-
-
 封逼者桐人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 —— 来自 HUAWEI VTR-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -23287,14 +15496,7 @@ TVアニメ「ソードアート・オンライン アリシゼーション War 
 ##### 2685#       发表于 2019-7-21 20:24
 
 
-
-
 這構圖<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23303,23 +15505,15 @@ TVアニメ「ソードアート・オンライン アリシゼーション War 
 ##### 2686#       发表于 2019-10-3 16:59
 
 
-
-
 12+1总集
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  皇马王子劳尔  
 ##### 2687#       发表于 2019-10-6 17:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45128492&amp;ptid=1550732" target="_blank">-Vanitas- 发表于 2019-10-3 16:59</a>
@@ -23331,16 +15525,10 @@ TVアニメ「ソードアート・オンライン アリシゼーション War 
 最后12明年7月放送？
 
 
-
-
-
-
-
 -----
 
 ####  HuangKai127  
 ##### 2688#       发表于 2019-10-6 19:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45149685&amp;ptid=1550732" target="_blank">皇马王子劳尔 发表于 2019-10-6 17:11</a>
@@ -23349,17 +15537,10 @@ TVアニメ「ソードアート・オンライン アリシゼーション War 
 4月
 
 
-
-
-
-
-
 -----
 
 ####  HuangKai127  
 ##### 2689#       发表于 2019-10-6 20:18
-
-
 
 
 为了质量我支持
@@ -23368,17 +15549,10 @@ TVアニメ「ソードアート・オンライン アリシゼーション War 
 这样看来很有可能后半部分(17-18卷)剧情要大改， 那个原剧情正好撞在东京奥运会的节骨眼上播出来不用我们动手安倍就要先把电击和aniplex的妈给扬了
 
 
-
-
-
-
-
 -----
 
 ####  gameseve  
 ##### 2690#       发表于 2019-10-6 22:41
-
-
 
 
 这下半部分，还会出现A姐老女人的剧情吗？
@@ -23387,16 +15561,10 @@ TVアニメ「ソードアート・オンライン アリシゼーション War 
 还是说就这么干脆的挂啦
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2691#       发表于 2019-10-6 22:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45152114&amp;ptid=1550732" target="_blank">gameseve 发表于 2019-10-6 22:41</a>
@@ -23408,17 +15576,10 @@ TVアニメ「ソードアート・オンライン アリシゼーション War 
 骑士长回忆里出现，桐人开挂时一起当背后灵……大概这些吧？
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2692#       发表于 2019-10-9 17:43
-
-
 
 
 #01 北の地にて
@@ -23443,25 +15604,13 @@ TVアニメ「ソードアート・オンライン アリシゼーション War 
 <img src="https://s2.ax1x.com/2019/10/09/u5OoSP.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2693#       发表于 2019-10-9 18:36
 
 
-
-
 从先行图来看开打是结尾预兆还是第二话呢，就看现实世界多少剧情了
-
-
-
-
-
 
 
 -----
@@ -23470,21 +15619,13 @@ TVアニメ「ソードアート・オンライン アリシゼーション War 
 ##### 2694#       发表于 2019-10-12 23:41
 
 
-
-
 怎么感觉这集乱糟糟的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">尤其是砍树那段
-
-
-
-
-
 
 
 -----
 
 ####  芝士排骨  
 ##### 2695#       发表于 2019-10-13 00:50
-
 
 
  本帖最后由 芝士排骨 于 2019-10-13 00:53 编辑 
@@ -23494,24 +15635,13 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 这个系列在我心中能称得上优秀的部分就是这两个op
 
 
-
-
-
-
-
 -----
 
 ####  帕蕾莉亚  
 ##### 2696#       发表于 2019-10-13 01:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">亚总头上好绿啊
-
-
-
-
-
 
 
 -----
@@ -23520,13 +15650,7 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 ##### 2697#       发表于 2019-10-13 01:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别的不管 我上床了
-
-
-
-
-
 
 
 -----
@@ -23535,14 +15659,7 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 ##### 2698#       发表于 2019-10-13 01:13
 
 
-
-
 写反派low也就算了，怎么连路人都一个吊样........ed好听
-
-
-
-
-
 
 
 -----
@@ -23551,13 +15668,7 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 ##### 2699#       发表于 2019-10-13 01:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">川原是真的NTR爱好者
-
-
-
-
-
 
 
 -----
@@ -23566,16 +15677,10 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 ##### 2700#       发表于 2019-10-13 01:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45199848&amp;ptid=1550732" target="_blank">杂灰 发表于 2019-10-13 01:13:06</a>
 写反派low也就算了，怎么连路人都一个吊样........ed好听</blockquote>这里是因为在村民眼里爱丽丝和桐人都是罪人
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -23584,16 +15689,10 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 ##### 2701#       发表于 2019-10-13 01:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45199385&amp;ptid=1550732" target="_blank">hlazd 发表于 2019-10-12 23:41</a>
 
 怎么感觉这集乱糟糟的尤其是砍树那段</blockquote>
 因为删减了很多啊，我还以为第一话能做到开打呢，谁知道哥布林都还没露面
-
-
-
-
-
 
 
 -----
@@ -23602,21 +15701,13 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 ##### 2702#       发表于 2019-10-13 01:28
 
 
-
-
 前面没看，等一年了人妻爱丽丝终于来了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  杂灰  
 ##### 2703#       发表于 2019-10-13 01:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45199873&amp;ptid=1550732" target="_blank">HuangKai127 发表于 2019-10-13 01:17</a>
@@ -23628,16 +15719,10 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 不管啥罪人不罪人，有求于人还这种态度也太rz了吧，这边砍完树这边就抢剑
 
 
-
-
-
-
-
 -----
 
 ####  HuangKai127  
 ##### 2704#       发表于 2019-10-13 01:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45199917&amp;ptid=1550732" target="_blank">杂灰 发表于 2019-10-13 01:29:03</a>
@@ -23646,16 +15731,10 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  HuangKai127  
 ##### 2705#       发表于 2019-10-13 01:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45199917&amp;ptid=1550732" target="_blank">杂灰 发表于 2019-10-13 01:29:03</a>
@@ -23664,16 +15743,10 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  微冷  
 ##### 2706#       发表于 2019-10-13 01:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45199979&amp;ptid=1550732" target="_blank">HuangKai127 发表于 2019-10-13 01:46</a>
@@ -23685,16 +15758,10 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 <img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">是不是因为是主角所以先设定个主角这边不杀人，然后再设置小角色剧情，让他们都是弱智，随便搞主角这边的人，反正主角不用杀人但是可以让弱智们吃瘪。
 
 
-
-
-
-
-
 -----
 
 ####  HuangKai127  
 ##### 2707#       发表于 2019-10-13 02:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45200004&amp;ptid=1550732" target="_blank">微冷 发表于 2019-10-13 01:54:21</a>
@@ -23703,16 +15770,10 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  杂灰  
 ##### 2708#       发表于 2019-10-13 02:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45199979&amp;ptid=1550732" target="_blank">HuangKai127 发表于 2019-10-13 01:46:30</a>
@@ -23723,25 +15784,13 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  lmclmc2  
 ##### 2709#       发表于 2019-10-13 02:44
 
 
-
-
 这不就是一个大概10多年前常见的爽文套路来的么。。
-
-
-
-
-
 
 
 -----
@@ -23750,16 +15799,10 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 ##### 2710#       发表于 2019-10-13 02:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45200098&amp;ptid=1550732" target="_blank">lmclmc2 发表于 2019-10-13 02:44</a>
 
 这不就是一个大概10多年前常见的爽文套路来的么。。</blockquote>
 因为这确实是十多年前的啊……
-
-
-
-
-
 
 
 -----
@@ -23768,17 +15811,10 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 ##### 2711#       发表于 2019-10-13 02:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45200106&amp;ptid=1550732" target="_blank">nixidek 发表于 2019-10-13 02:48</a>
 
 因为这确实是十多年前的啊……</blockquote>
 是的呀，所以说也没什么毛病嘛，不用太纠结为什么这些人这个奇怪的态度
-
-
-
-
-
-
 
 
 -----
@@ -23787,16 +15823,10 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 ##### 2712#       发表于 2019-10-13 02:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45200091&amp;ptid=1550732" target="_blank">杂灰 发表于 2019-10-13 02:38:50</a>
 主要的态度太统一了，给我的感觉都不是什么好东西，就显得很怪了，就算社会现实也很少出现全员一致没品的情 ...</blockquote>这几个人都是跟着小人老板的，很正常，也有对爱丽丝好的村民
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -23805,16 +15835,10 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 ##### 2713#       发表于 2019-10-13 02:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45200098&amp;ptid=1550732" target="_blank">lmclmc2 发表于 2019-10-13 02:44:06</a>
 这不就是一个大概10多年前常见的爽文套路来的么。。</blockquote>本来就是10多年前写的<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -23823,14 +15847,7 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 ##### 2714#       发表于 2019-10-13 03:10
 
 
-
-
 亚丝娜，别低头，王冠会掉。
-
-
-
-
-
 
 
 -----
@@ -23839,16 +15856,10 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 ##### 2715#       发表于 2019-10-13 03:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45200091&amp;ptid=1550732" target="_blank">杂灰 发表于 2019-10-13 02:38</a>
 
 主要的态度太统一了，给我的感觉都不是什么好东西，就显得很怪了，就算社会现实也很少出现全员一致没品的情 ...</blockquote>
 继续看下一集就行了，看看老爹最后的态度。这个世界毕竟不是真正的现实生活，有些地方还是很扭曲的
-
-
-
-
-
 
 
 -----
@@ -23857,14 +15868,7 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 ##### 2716#       发表于 2019-10-13 04:16
 
 
-
-
 这直接睡一起了是什么操作<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23873,16 +15877,9 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 ##### 2717#       发表于 2019-10-13 04:37
 
 
-
-
 这ed还真是不错，比隔壁强
 
 至于剧情，反正现在看来sao的第一话都不能作数的…
-
-
-
-
-
 
 
 -----
@@ -23891,14 +15888,7 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 ##### 2718#       发表于 2019-10-13 10:34
 
 
-
-
 还是问一下，一期一开头三人小时候的剧情算是什么？多个轮回中的其中一次？还是后面的是其延续只是把桐人以前的存在屏蔽了？
-
-
-
-
-
 
 
 -----
@@ -23907,15 +15897,9 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 ##### 2719#       发表于 2019-10-13 10:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45200905&amp;ptid=1550732" target="_blank">midearth 发表于 2019-10-13 10:34</a>
 还是问一下，一期一开头三人小时候的剧情算是什么？多个轮回中的其中一次？还是后面的是其延续只是把桐人以 ...</blockquote>
 第二个
-
-
-
-
-
 
 
 -----
@@ -23924,22 +15908,15 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 ##### 2720#       发表于 2019-10-13 10:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45200905&amp;ptid=1550732" target="_blank">midearth 发表于 2019-10-13 10:34</a>
  还是问一下，一期一开头三人小时候的剧情算是什么？多个轮回中的其中一次？还是后面的是其延续只是把桐人以 ...</blockquote>
 桐人不在的时候会把两边的相关记忆都屏蔽，否则某个人突然出现突然消失很难操作
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2721#       发表于 2019-10-13 11:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45200905&amp;ptid=1550732" target="_blank">midearth 发表于 2019-10-13 10:34</a>
@@ -23952,25 +15929,13 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 优吉欧在打哥布林和打Admin的两次濒死的时候都恢复了真正的记忆。
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2722#       发表于 2019-10-13 11:56
 
 
-
-
 眼睛以后不治了？？？这黑眼罩太丑了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就不能换个？？
-
-
-
-
-
 
 
 -----
@@ -23979,22 +15944,15 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 ##### 2723#       发表于 2019-10-13 12:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45201363&amp;ptid=1550732" target="_blank">漫区专号 发表于 2019-10-13 11:56</a>
  眼睛以后不治了？？？这黑眼罩太丑了。就不能换个？？</blockquote>
 没记错就下一话来着？
-
-
-
-
-
 
 
 -----
 
 ####  漫区专号  
 ##### 2724#       发表于 2019-10-13 12:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45201385&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-10-13 12:00</a>
@@ -24006,16 +15964,10 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 本话两人都睡同张床了，亚丝娜知道了感觉如何？？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2725#       发表于 2019-10-13 12:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45201363&amp;ptid=1550732" target="_blank">漫区专号 发表于 2019-10-13 11:56</a>
@@ -24024,16 +15976,10 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 下集就没了（
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2726#       发表于 2019-10-13 12:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45201426&amp;ptid=1550732" target="_blank">漫区专号 发表于 2019-10-13 12:08</a>
@@ -24049,17 +15995,10 @@ op很棒，和op1一样棒，不过我不会和当初一样根据op判断制作�
 以小说的情况看跟桐人在SAO里不知道滚了多少次床单的桐人的恋人的亚丝娜在听说爱丽丝（同床而寝的）照顾桐人照顾了半年后也是毫无余裕（之后两人与桐人的学姐学妹在失去意识的桐人面前愉快的展开了四方会谈讨论桐人的种种行径）
 
 
-
-
-
-
-
 -----
 
 ####  阿虚家的三味  
 ##### 2727#       发表于 2019-10-13 12:39
-
-
 
 
 ed是kemu啊，挺不错的
@@ -24068,16 +16007,10 @@ ed是kemu啊，挺不错的
 看了圈大家都那么在意同床，那么这个世界有没有R18系统呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2728#       发表于 2019-10-13 12:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45201625&amp;ptid=1550732" target="_blank">阿虚家的三味 发表于 2019-10-13 12:39</a>
@@ -24098,25 +16031,13 @@ ed是kemu啊，挺不错的
 「只是单纯的系统命令而已。虽然形式上会举行双方向丝提西亚神宣誓婚姻的仪式。最早的时代是由各村的村长主持的，在各地的教会陆续建立之后，执行婚礼就变成了教会中的修道士和修女们的特权了。
 
 
-
-
-
-
-
 -----
 
 ####  叉加叉  
 ##### 2729#       发表于 2019-10-13 12:56
 
 
-
-
 这种略带NTR的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">，感觉这季能看下去
-
-
-
-
-
 
 
 -----
@@ -24125,13 +16046,7 @@ ed是kemu啊，挺不错的
 ##### 2730#       发表于 2019-10-13 13:02
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/231.gif" referrerpolicy="no-referrer">这种时候还玩装逼打脸这一套是有点尬
-
-
-
-
-
 
 
 -----
@@ -24140,14 +16055,7 @@ ed是kemu啊，挺不错的
 ##### 2731#       发表于 2019-10-13 13:15
 
 
-
-
 这个前面几集没看，上个桐女郎是死了？
-
-
-
-
-
 
 
 -----
@@ -24156,16 +16064,10 @@ ed是kemu啊，挺不错的
 ##### 2732#       发表于 2019-10-13 14:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45201811&amp;ptid=1550732" target="_blank">ツナシ·タクト 发表于 2019-10-13 13:15</a>
 
 这个前面几集没看，上个桐女郎是死了？</blockquote>
 如果你指的是优吉欧的话，嗯，死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24174,14 +16076,7 @@ ed是kemu啊，挺不错的
 ##### 2733#       发表于 2019-10-13 14:36
 
 
-
-
 因为NTR的截图，顺带把上一季补完了，爱丽丝这比上季度温油了好多啊，未亡人的感觉好满<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referrerpolicy="no-referrer">，又有追下去的动力了
-
-
-
-
-
 
 
 -----
@@ -24190,14 +16085,7 @@ ed是kemu啊，挺不错的
 ##### 2734#       发表于 2019-10-13 14:36
 
 
-
-
 所以这段弱智村民的剧情存在意义是啥？十多年前写的十多年前的套路，你做动画就一定要照抄一遍？
-
-
-
-
-
 
 
 -----
@@ -24206,16 +16094,9 @@ ed是kemu啊，挺不错的
 ##### 2735#       发表于 2019-10-13 14:44
 
 
-
-
 ED不错。
 
 整话节奏有点跟不上。尤其是由台长吐槽碧蓝像境界线后，想起当年境界线的节奏……
-
-
-
-
-
 
 
 -----
@@ -24224,20 +16105,12 @@ ED不错。
 ##### 2736#       发表于 2019-10-13 14:46
 
 
-
 <img src="https://s2.ax1x.com/2019/10/13/uvYptg.jpg" referrerpolicy="no-referrer">
-
-
 
 
 剧场版做成那样也已经是刀剑的上限了
 
 “要求不要太过分了啊死宅们”
-
-
-
-
-
 
 
 -----
@@ -24246,16 +16119,10 @@ ED不错。
 ##### 2737#       发表于 2019-10-13 17:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45202208&amp;ptid=1550732" target="_blank">ualiant 发表于 2019-10-13 14:36:56</a>
 所以这段弱智村民的剧情存在意义是啥？十多年前写的十多年前的套路，你做动画就一定要照抄一遍？ ...</blockquote>体现一个真实的社会
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -24264,23 +16131,16 @@ ED不错。
 ##### 2738#       发表于 2019-10-13 17:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45203134&amp;ptid=1550732" target="_blank">HuangKai127 发表于 2019-10-13 17:42:16</a>
 体现一个真实的社会</blockquote>你这话加个双引号讽刺力度更强<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  凛凛233  
 ##### 2739#       发表于 2019-10-13 22:07
-
 
 
  本帖最后由 凛凛233 于 2019-10-13 23:01 编辑 
@@ -24291,16 +16151,10 @@ ED不错。
 松岗这工资真好领，嗯嗯啊啊十来话估计就过去了
 
 
-
-
-
-
-
 -----
 
 ####  HuangKai127  
 ##### 2740#       发表于 2019-10-13 22:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45203154&amp;ptid=1550732" target="_blank">绯冉老师 发表于 2019-10-13 17:45:01</a>
@@ -24309,25 +16163,13 @@ ED不错。
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  moooooonlight  
 ##### 2741#       发表于 2019-10-13 23:49
 
 
-
-
 看完第一集，比起什么生活气息浓厚，弱智路人，更加只想说爱丽丝老婆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24336,16 +16178,10 @@ ED不错。
 ##### 2742#       发表于 2019-10-14 00:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45205423&amp;ptid=1550732" target="_blank">moooooonlight 发表于 2019-10-13 23:49</a>
 
 看完第一集，比起什么生活气息浓厚，弱智路人，更加只想说爱丽丝老婆 ...</blockquote>
 唯一的缺点是料理水平和成为骑士前一样差<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24354,16 +16190,10 @@ ED不错。
 ##### 2743#       发表于 2019-10-14 01:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45205489&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-10-14 00:01</a>
 
 唯一的缺点是料理水平和成为骑士前一样差</blockquote>
 不对吧？是小时候料理水平很好成为骑士之后完蛋的？
-
-
-
-
-
 
 
 -----
@@ -24372,21 +16202,13 @@ ED不错。
 ##### 2744#       发表于 2019-10-14 03:09
 
 
-
-
 爱丽丝<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2745#       发表于 2019-10-14 08:05
-
 
 
  本帖最后由 pokemon最爱 于 2019-10-14 08:20 编辑 
@@ -24404,16 +16226,10 @@ ED不错。
 趁这么说着的爱丽丝为了掩饰害羞转过头的空隙，优吉欧给桐人使了个眼色，两人交换了一瞬的笑容。从上个月开始，两人的便当就是爱丽丝做的，虽然这样宣称，可实际上爱丽丝的母亲萨提娜阿姨帮忙和不帮忙时候的区别一目了然。关乎万事，技能这种东西只有用长年的修炼让身体记住才行——不过，优吉欧和桐人总算用身体记住了这是不能说出口的事情。
 
 
-
-
-
-
-
 -----
 
 ####  hlazd  
 ##### 2746#       发表于 2019-10-14 13:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45206349&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-10-14 08:05</a>
@@ -24422,27 +16238,15 @@ ED不错。
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那是我记错了
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2747#       发表于 2019-10-14 16:44
 
 
-
-
 前半BD8的特典小说……笑喷了，吃货拯救世界是这样的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 虽然顺势恢复了小时候送剑的记忆但是却完全忘记了爱丽丝的料理水平并不好的桐人真是（
-
-
-
-
-
 
 
 -----
@@ -24451,13 +16255,7 @@ ED不错。
 ##### 2748#       发表于 2019-10-14 17:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">亚总要坚强
-
-
-
-
-
 
 
 -----
@@ -24466,16 +16264,9 @@ ED不错。
 ##### 2749#       发表于 2019-10-14 18:48
 
 
-
-
 村民真是low到爆<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 户松遥的OP还是那么一言难尽，就是亚丝娜那一身轻飘飘的衣服感觉太像情趣装了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24484,21 +16275,13 @@ ED不错。
 ##### 2750#       发表于 2019-10-14 18:48
 
 
-
-
 二次元的好还是现实的好，这是个问题。
-
-
-
-
-
 
 
 -----
 
 ####  Ritchie.Player  
 ##### 2751#       发表于 2019-10-14 18:58
-
 
 
  本帖最后由 Ritchie.Player 于 2019-10-14 19:00 编辑 
@@ -24508,20 +16291,13 @@ ED不错。
 20年前网文剧情 √
 
 
-
 后面的日本理智网民VS中韩美三国混沌恶网民岂不是更要被吐槽到死....
-
-
-
-
-
 
 
 -----
 
 ####  涡森今日子  
 ##### 2752#       发表于 2019-10-14 19:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45211838&amp;ptid=1550732" target="_blank">Ritchie.Player 发表于 2019-10-14 18:58</a>
@@ -24531,16 +16307,10 @@ ED不错。
 话说文库本改了没
 
 
-
-
-
-
-
 -----
 
 ####  HuangKai127  
 ##### 2753#       发表于 2019-10-14 20:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45212056&amp;ptid=1550732" target="_blank">涡森今日子 发表于 2019-10-14 19:29</a>
@@ -24549,25 +16319,13 @@ ED不错。
 有改，但是没改大方向，估计动画还要再改（播出时间正好撞在东京奥运会的节点上）
 
 
-
-
-
-
-
 -----
 
 ####  kobushi  
 ##### 2754#       发表于 2019-10-14 21:51
 
 
-
-
 感觉爱丽丝像桐哥的妈
-
-
-
-
-
 
 
 -----
@@ -24576,21 +16334,13 @@ ED不错。
 ##### 2755#       发表于 2019-10-15 23:06
 
 
-
-
 感谢几分钟系列，让我看完了整个前面剧情。
-
-
-
-
-
 
 
 -----
 
 ####  reekilynn  
 ##### 2756#       发表于 2019-10-16 00:13
-
 
 
  本帖最后由 reekilynn 于 2019-10-16 00:16 编辑 
@@ -24604,16 +16354,10 @@ ED不错。
 讲道理，除非有哪天我们能通过生物学和行为学上的实验证明这一点(考虑到技术和伦理问题，恐怕永远不可能实现)，否则认为一个人的性格在先天就已经决定了基本内容这种近乎于宗教论述的观点能被踩上一万只脚。
 
 
-
-
-
-
-
 -----
 
 ####  伊可费斯  
 ##### 2757#       发表于 2019-10-16 00:23
-
 
 
  本帖最后由 伊可费斯 于 2019-10-16 00:30 编辑 
@@ -24621,16 +16365,10 @@ ED不错。
 奸夫淫妇现在住的就是当年砍树那个小屋？
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2758#       发表于 2019-10-16 00:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45221491&amp;ptid=1550732" target="_blank">伊可费斯 发表于 2019-10-16 00:23</a>
@@ -24640,16 +16378,10 @@ ED不错。
 —— 来自 OnePlus GM1917, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  芝士排骨  
 ##### 2759#       发表于 2019-10-16 00:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45221453&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-10-16 00:13</a>
@@ -24663,16 +16395,10 @@ ED不错。
 —— 来自 HUAWEI VTR-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  伊可费斯  
 ##### 2760#       发表于 2019-10-16 00:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45221569&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-10-16 00:47</a>
@@ -24681,16 +16407,10 @@ ED不错。
 这个设定经不起推敲的，看热闹就行了。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2761#       发表于 2019-10-16 00:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45221569&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-10-16 00:47</a>
@@ -24705,16 +16425,10 @@ Admin为了达到制作出整合骑士水平的FL精确操作进行了少说10�
 而且问题还是在守规矩那个问题上啊。
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2762#       发表于 2019-10-16 01:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45221569&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-10-16 00:47</a>
@@ -24729,16 +16443,10 @@ Admin为了达到制作出整合骑士水平的FL精确操作进行了少说10�
 （2）暗黑神：理论上这个账号应该也是有一定限制的，对FL的修改仅限于更改某个FL的所在坐标点，或者更改这个FL和其他FL之间的联系，而无法对FL本身进行修改。
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 2763#       发表于 2019-10-16 02:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45221692&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-10-16 01:20</a>
@@ -24751,16 +16459,10 @@ Admin为了达到制作出整合骑士水平的FL精确操作进行了少说10�
 就像有了基因编辑技术还一个劲得靠传统诱变育种，不是说不可以，但是确实意义不大了。
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2764#       发表于 2019-10-16 03:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45221802&amp;ptid=1550732" target="_blank">望月凝香 发表于 2019-10-16 02:07</a>
@@ -24771,16 +16473,10 @@ Admin为了达到制作出整合骑士水平的FL精确操作进行了少说10�
 —— 来自 OnePlus GM1917, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 2765#       发表于 2019-10-16 04:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45221894&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-10-16 03:35</a>
@@ -24793,16 +16489,10 @@ Admin为了达到制作出整合骑士水平的FL精确操作进行了少说10�
 真能做到定制适合士兵的FL，那直接定制的时候顺便微操一下自我认知成“一连一排一班王大”“一班王二”就解决问题了。
 
 
-
-
-
-
-
 -----
 
 ####  alerbe  
 ##### 2766#       发表于 2019-10-16 13:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45201426&amp;ptid=1550732" target="_blank">漫区专号 发表于 2019-10-13 12:08</a>
@@ -24814,16 +16504,10 @@ Admin为了达到制作出整合骑士水平的FL精确操作进行了少说10�
 感觉很不好，几乎晕过去了。
 
 
-
-
-
-
-
 -----
 
 ####  alerbe  
 ##### 2767#       发表于 2019-10-16 13:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45202208&amp;ptid=1550732" target="_blank">ualiant 发表于 2019-10-13 14:36</a>
@@ -24832,33 +16516,19 @@ Admin为了达到制作出整合骑士水平的FL精确操作进行了少说10�
 原作的意思还是可以领会的，反复打磨爱丽丝对人性的理解，之前就算她突破了限制指令，不代表她真的懂了人性的复杂。只是在村子里这段剧情确实挺老套的就是了，只有妹妹和老爹的心态可以看看。  动画其实删了一些更生活化的内容，我觉得那个才是比较有意思的，现在就是普通过剧情了。
 
 
-
-
-
-
-
 -----
 
 ####  烟花缭乱  
 ##### 2768#       发表于 2019-10-16 15:12
 
 
-
-
 村里这段就是常规起头，不涉及什么思辨的。整个大战篇谈得上有点思考的内容得到后期现实剧情
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2769#       发表于 2019-10-16 16:05
-
-
 
 
 #02 襲撃
@@ -24883,16 +16553,10 @@ Admin为了达到制作出整合骑士水平的FL精确操作进行了少说10�
 <img src="https://s2.ax1x.com/2019/10/16/KFCzrD.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2770#       发表于 2019-10-16 19:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45221802&amp;ptid=1550732" target="_blank">望月凝香 发表于 2019-10-16 02:07</a>
@@ -24911,17 +16575,10 @@ Rath现在可以基因编辑吗？可以，可以准确的对碱基对进行想�
 Admin在UW里也是研究了十几年甚至几十年进行了大量非人道的实验才能做到制作整合骑士这种水平的FL操作。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2771#       发表于 2019-10-16 20:19
-
-
 
 
 隔了好几天，终于把第1话看完了
@@ -24931,16 +16588,10 @@ Admin在UW里也是研究了十几年甚至几十年进行了大量非人道的�
 所以这一掉线，要掉多久，到这季结尾？，下一季全程在线？
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2772#       发表于 2019-10-16 20:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45227976&amp;ptid=1550732" target="_blank">xingenge 发表于 2019-10-16 20:19</a>
@@ -24953,16 +16604,10 @@ Admin在UW里也是研究了十几年甚至几十年进行了大量非人道的�
 如果是还有下一个季度的话那就是一个季度
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2773#       发表于 2019-10-16 22:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45227976&amp;ptid=1550732" target="_blank">xingenge 发表于 2019-10-16 20:19</a>
@@ -24975,16 +16620,10 @@ Admin在UW里也是研究了十几年甚至几十年进行了大量非人道的�
 掉线到下季的中间吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2774#       发表于 2019-10-16 22:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45228817&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-10-16 22:23</a>
@@ -24993,17 +16632,10 @@ Admin在UW里也是研究了十几年甚至几十年进行了大量非人道的�
 掉线一季半的主角
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2775#       发表于 2019-10-16 23:17
-
-
 
 
 说句不好听的，如果桐人心态没崩，根本不会掉线，这仗就不用打了。
@@ -25011,16 +16643,10 @@ Admin在UW里也是研究了十几年甚至几十年进行了大量非人道的�
 UW大战死了几万人，还造成了现实世界和UW的全面对立，桐人要负全部责任。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2776#       发表于 2019-10-16 23:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45229174&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-10-16 23:17</a>
@@ -25031,16 +16657,10 @@ UW大战死了几万人，还造成了现实世界和U ...</blockquote>
 如果桐人心态没崩，桐人就不会掉线，就可以直接带着爱丽丝去现实世界，加百列和PoH就根本来不及进UW，接下来只要沙斯特不被暗杀公会给暗杀掉的话人界和暗黑界也可以谈和，皆大欢喜皆大欢喜——剩下的问题就是可能依然会有的炸主轴怎么去解了（
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2777#       发表于 2019-10-17 00:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45228071&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-10-16 20:35</a>
@@ -25049,16 +16669,10 @@ UW大战死了几万人，还造成了现实世界和U ...</blockquote>
 嗯 后半年是分割的 另外一部分（一季度）挪到4月去放
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2778#       发表于 2019-10-17 01:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45229639&amp;ptid=1550732" target="_blank">xingenge 发表于 2019-10-17 00:46</a>
@@ -25068,16 +16682,10 @@ UW大战死了几万人，还造成了现实世界和U ...</blockquote>
 —— 来自 OnePlus GM1917, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2779#       发表于 2019-10-17 01:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45229690&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-10-17 01:04</a>
@@ -25089,16 +16697,10 @@ UW大战死了几万人，还造成了现实世界和U ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">那有点久，这一季主要就是看爱丽丝么，亚丝娜啥时候上线
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2780#       发表于 2019-10-17 06:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45229752&amp;ptid=1550732" target="_blank">xingenge 发表于 2019-10-17 01:26</a>
@@ -25108,33 +16710,19 @@ UW大战死了几万人，还造成了现实世界和U ...</blockquote>
 —— 来自 OnePlus GM1917, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  就烦起名字  
 ##### 2781#       发表于 2019-10-17 16:33
 
 
-
-
 竟然是分割 再分割 2+1+1 的模式放送吗......那桐老爷这季的工资拿的轻松
-
-
-
-
-
 
 
 -----
 
 ####  kiralzb  
 ##### 2782#       发表于 2019-10-17 18:46
-
-
 
 
 把第三季补完了，真是越来越难看，打BBA那战简直灾难<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
@@ -25152,9 +16740,6 @@ UW大战死了几万人，还造成了现实世界和U ...</blockquote>
 现在新的第一话看着倒是不错，最后ED的插入也很有水准，下集怕是得有战斗了，谨慎不看好<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
 另外想问一下原作党，小说里有没有描写过主要角色的颜值水平？本子娜看SAO里的路人评价应该是游戏CG美女水平的，龙使萝莉能当偶像应该也还行，莉兹我以为是路人水平，结果动画特典里说是美少女？？
 
 出了SAO，ALO里能捏脸人人美女，本子娜用素颜依旧能没违和感，直叶脸和现实肯定不一样，桐人虽然看着差不多但实际肯定也是认不出程度的两张脸，所以其他妹子包括诗乃虽然看着一样其实都是不同的脸吧
@@ -25165,16 +16750,10 @@ UW大战死了几万人，还造成了现实世界和U ...</blockquote>
 还有听说桐人平时很低调，我怎么觉得他在ALO里出名得不行？拦路的时候对面都知道他很强，圣剑篇时基友还说要攻略完然后上头条，GGO就打了个酱油，估计也就像外传那样“说起来有这么个人”，ALO作为主要活动的游戏，原作有没有提过桐人在里面的地位？
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2783#       发表于 2019-10-17 19:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45235617&amp;ptid=1550732" target="_blank">kiralzb 发表于 2019-10-17 18:46</a>
@@ -25189,16 +16768,10 @@ SAO生还者在转换到ALO时基本都保留了SAO的数据，包括脸。
 桐人在ALO算是知名高玩，不能说谁看到他都能立刻认出他是桐人但是也是基本都能认出他的程度吧（参见UR篇）
 
 
-
-
-
-
-
 -----
 
 ####  kiralzb  
 ##### 2784#       发表于 2019-10-17 21:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45236091&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-10-17 19:53</a>
@@ -25211,27 +16784,15 @@ SAO生还者在转换到ALO时基本都保留了SAO的数据，包括脸。
 就是说ALO里除了桐人和诗乃，小伙伴都是用素颜？真勇啊，不过GGO里不能继承吧
 
 
-
-
-
-
-
 -----
 
 ####  SaltyGhoti  
 ##### 2785#       发表于 2019-10-17 21:18
 
 
-
-
 没看过这部分的小说，但是听说爱丽丝和亚斯娜会打一架。
 
 我对修罗场有点兴趣，想问问老哥们这一季度能看到吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25240,21 +16801,13 @@ SAO生还者在转换到ALO时基本都保留了SAO的数据，包括脸。
 ##### 2786#       发表于 2019-10-17 21:19
 
 
-
-
 在我少数看过的轻小说里，少数动画观感比小说差的一季。
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2787#       发表于 2019-10-17 21:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45236635&amp;ptid=1550732" target="_blank">kiralzb 发表于 2019-10-17 21:11</a>
@@ -25271,16 +16824,10 @@ SAO生还者在转换到ALO时基本都保留了SAO的数据，包括脸。
 亚丝娜左手从NERvGear上移开，伸了过来。只是这样就要使用很大的气力，她的身体微微颤动起来。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2788#       发表于 2019-10-17 21:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45236694&amp;ptid=1550732" target="_blank">SaltyGhoti 发表于 2019-10-17 21:18</a>
@@ -25291,13 +16838,9 @@ SAO生还者在转换到ALO时基本都保留了SAO的数据，包括脸。
 应该可以吧，OP里有骑士长对加百列，这段剧情发生在亚丝娜和爱丽丝的对决之后了。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -25307,19 +16850,13 @@ SAO生还者在转换到ALO时基本都保留了SAO的数据，包括脸。
 | SaltyGhoti| + 1|谢谢|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 2789#       发表于 2019-10-17 21:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45236806&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-10-17 21:30</a>
@@ -25330,16 +16867,10 @@ SAO生还者在转换到ALO时基本都保留了SAO的数据，包括脸。
 然后现实大军降临部分放在后半。
 
 
-
-
-
-
-
 -----
 
 ####  kiralzb  
 ##### 2790#       发表于 2019-10-17 21:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45236795&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-10-17 21:29</a>
@@ -25348,16 +16879,10 @@ SAO生还者在转换到ALO时基本都保留了SAO的数据，包括脸。
 声音这是没办法，不过桐人第一次进入ALO时外形就是随机的，我觉得单纯是两人的外貌都不一样所以没认出来，认女儿那里也拼命解释自己是桐人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  HuangKai127  
 ##### 2791#       发表于 2019-10-17 22:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45236716&amp;ptid=1550732" target="_blank">tkss1111 发表于 2019-10-17 21:19:58</a>
@@ -25366,16 +16891,10 @@ SAO生还者在转换到ALO时基本都保留了SAO的数据，包括脸。
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2792#       发表于 2019-10-17 22:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45236874&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-10-17 21:38</a>
@@ -25388,16 +16907,10 @@ SAO生还者在转换到ALO时基本都保留了SAO的数据，包括脸。
 看现实世界玩家进入UW这些内容怎么修改吧，虽然看爬塔内容我完全不抱任何期待（
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2793#       发表于 2019-10-17 22:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45236926&amp;ptid=1550732" target="_blank">kiralzb 发表于 2019-10-17 21:46</a>
@@ -25406,16 +16919,10 @@ SAO生还者在转换到ALO时基本都保留了SAO的数据，包括脸。
 最主要的应该还是双方都没想到对方会玩VRMMO，不然早就暴露身份了（
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2794#       发表于 2019-10-17 22:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45237169&amp;ptid=1550732" target="_blank">HuangKai127 发表于 2019-10-17 22:28</a>
@@ -25431,16 +16938,10 @@ SAO生还者在转换到ALO时基本都保留了SAO的数据，包括脸。
 我个人还是认为是制作组对应该进行大幅改动的爬塔篇内容不修改导致的。另外可能分镜质量也有所下滑吧，之前的监督被提上来当监督就是因为分镜优秀，这方面没太研究过不多做评论了。
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2795#       发表于 2019-10-17 22:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45237195&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-10-17 22:33</a>
@@ -25451,32 +16952,19 @@ SAO生还者在转换到ALO时基本都保留了SAO的数据，包括脸。
 我只祈祷夫妻战做好点
 
 
-
-
-
-
-
 -----
 
 ####  kiralzb  
 ##### 2796#       发表于 2019-10-18 01:54
 
 
-
-
 说起来武器的耐久有没有回复手段的？好像青蔷薇初登场就不是满天命的，像骑士长那些打了几百年的武器耐久不会回复不是很尴尬？
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2797#       发表于 2019-10-18 08:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45238333&amp;ptid=1550732" target="_blank">kiralzb 发表于 2019-10-18 01:54</a>
@@ -25487,16 +16975,10 @@ SAO生还者在转换到ALO时基本都保留了SAO的数据，包括脸。
 青蔷薇初登场时是动画用错贴图了（
 
 
-
-
-
-
-
 -----
 
 ####  kiralzb  
 ##### 2798#       发表于 2019-10-18 12:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45238889&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-10-18 08:18</a>
@@ -25507,16 +16989,10 @@ SAO生还者在转换到ALO时基本都保留了SAO的数据，包括脸。
 动画是真的菜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  tkss1111  
 ##### 2799#       发表于 2019-10-18 16:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45237169&amp;ptid=1550732" target="_blank">HuangKai127 发表于 2019-10-17 22:28</a>
@@ -25530,26 +17006,14 @@ SAO生还者在转换到ALO时基本都保留了SAO的数据，包括脸。
 大概是因为我习惯中国的行文，日本写作习惯加上翻译水平的问题造成感官下降。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2800#       发表于 2019-10-18 16:25
 
 
-
-
 ソードアート・オンライン アリシゼーション WOU 第2話「襲撃」 予告映像
 [https://www.youtube.com/watch?v=5YGqAQiXKoo](https://www.youtube.com/watch?v=5YGqAQiXKoo)
-
-
-
-
-
 
 
 -----
@@ -25558,14 +17022,7 @@ SAO生还者在转换到ALO时基本都保留了SAO的数据，包括脸。
 ##### 2801#       发表于 2019-10-19 23:29
 
 
-
-
 下周预告：最终负荷测试
-
-
-
-
-
 
 
 -----
@@ -25574,14 +17031,7 @@ SAO生还者在转换到ALO时基本都保留了SAO的数据，包括脸。
 ##### 2802#       发表于 2019-10-19 23:30
 
 
-
-
 这个ed有点意思
-
-
-
-
-
 
 
 -----
@@ -25590,14 +17040,7 @@ SAO生还者在转换到ALO时基本都保留了SAO的数据，包括脸。
 ##### 2803#       发表于 2019-10-20 00:51
 
 
-
-
 捧读？
-
-
-
-
-
 
 
 -----
@@ -25606,14 +17049,7 @@ SAO生还者在转换到ALO时基本都保留了SAO的数据，包括脸。
 ##### 2804#       发表于 2019-10-20 00:57
 
 
-
-
 这个废话解说占了快一半时间，醉了
-
-
-
-
-
 
 
 -----
@@ -25622,14 +17058,7 @@ SAO生还者在转换到ALO时基本都保留了SAO的数据，包括脸。
 ##### 2805#       发表于 2019-10-20 00:58
 
 
-
-
 妈的正片跟看oped脑部的差几万里<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25638,21 +17067,13 @@ SAO生还者在转换到ALO时基本都保留了SAO的数据，包括脸。
 ##### 2806#       发表于 2019-10-20 00:58
 
 
-
-
 刚看完第二集，剧情蠢得一比，爱丽丝那老掉牙的装逼套路，小说看起来还行，动画看起来好尬
-
-
-
-
-
 
 
 -----
 
 ####  芝士排骨  
 ##### 2807#       发表于 2019-10-20 01:00
-
 
 
  本帖最后由 芝士排骨 于 2019-10-20 01:18 编辑 
@@ -25667,17 +17088,10 @@ emmm，对打戏还是乐观不起来。。
 —— 来自 HUAWEI VTR-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  Theory_茶叶  
 ##### 2808#       发表于 2019-10-20 01:18
-
-
 
 
 这个ED好，我爱了。
@@ -25685,16 +17099,10 @@ emmm，对打戏还是乐观不起来。。
 特别是最后那部分，回味无穷。
 
 
-
-
-
-
-
 -----
 
 ####  alerbe  
 ##### 2809#       发表于 2019-10-20 01:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45254309&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-10-20 01:00</a>
@@ -25707,25 +17115,13 @@ emmm，对打戏还是乐观不起来。。
 不用期待打戏了
 
 
-
-
-
-
-
 -----
 
 ####  liangjiami4  
 ##### 2810#       发表于 2019-10-20 01:46
 
 
-
-
 看得睡着，真不懂当初为啥有人吹uw
-
-
-
-
-
 
 
 -----
@@ -25734,14 +17130,7 @@ emmm，对打戏还是乐观不起来。。
 ##### 2811#       发表于 2019-10-20 03:11
 
 
-
-
 眼睛换了颜色也是心意导致的吗
-
-
-
-
-
 
 
 -----
@@ -25750,21 +17139,13 @@ emmm，对打戏还是乐观不起来。。
 ##### 2812#       发表于 2019-10-20 03:29
 
 
-
-
 现在来看演出还是有问题。
-
-
-
-
-
 
 
 -----
 
 ####  望月凝香  
 ##### 2813#       发表于 2019-10-20 07:00
-
 
 
  本帖最后由 望月凝香 于 2019-10-20 07:03 编辑 
@@ -25776,16 +17157,10 @@ emmm，对打戏还是乐观不起来。。
 ED不错是真的，有意思的是爱丽丝的画风和正片比变化不小。
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2814#       发表于 2019-10-20 07:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45254899&amp;ptid=1550732" target="_blank">Einsatz 发表于 2019-10-20 03:11:39</a>
@@ -25794,33 +17169,19 @@ ED不错是真的，有意思的是爱丽丝的画风和正片比变化不小。
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  plpl782  
 ##### 2815#       发表于 2019-10-20 08:49
 
 
-
-
 反正刀剑神域UW前半段都做成这样了 你们还对后半段有啥期待不成 有的看就不错了 要求太高本来失望就越大 顺便说一下小野学垃圾不如伊藤智彦 魔劣就是小野学的正常水准 像境界线功劳可不止小野学一个还有知名脚本家浦畑达彦当系列构成 然后是日升八组全员厨力制作做出来的质量顶级的轻改动画魔劣则是疯房子NB A1做打斗真的不擅长 
-
-
-
-
-
 
 
 -----
 
 ####  绯冉老师  
 ##### 2816#       发表于 2019-10-20 09:04
-
-
 
 
 ed爱了。可正片这里……不是我说，分镜怎么到哪里都喜欢晃来晃去？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">镜头拉的实在不好看，就算快切一点也比这一张张平移舒服一些嘛。看着好累啊……
@@ -25830,25 +17191,13 @@ ed爱了。可正片这里……不是我说，分镜怎么到哪里都喜欢晃
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Yeaha123  
 ##### 2817#       发表于 2019-10-20 09:19
 
 
-
-
 新樱花大战怎么也是小野学，吐了
-
-
-
-
-
 
 
 -----
@@ -25857,14 +17206,7 @@ ed爱了。可正片这里……不是我说，分镜怎么到哪里都喜欢晃
 ##### 2818#       发表于 2019-10-20 09:57
 
 
-
-
 废话半天劝村民撤离结果村民还没跑几步就平砍连击带顺劈就击退了哥布林猪头大军这个整合骑士是不是慎重过头了？
-
-
-
-
-
 
 
 -----
@@ -25873,16 +17215,10 @@ ed爱了。可正片这里……不是我说，分镜怎么到哪里都喜欢晃
 ##### 2819#       发表于 2019-10-20 10:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45255751&amp;ptid=1550732" target="_blank">newise 发表于 2019-10-20 09:57:56</a>
 废话半天劝村民撤离结果村民还没跑几步就平砍连击带顺劈就击退了哥布林猪头大军这个整合骑士是不是慎重过头 ...</blockquote>开打有人在旁边还是可能会造成误伤的
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -25891,23 +17227,16 @@ ed爱了。可正片这里……不是我说，分镜怎么到哪里都喜欢晃
 ##### 2820#       发表于 2019-10-20 10:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45255493&amp;ptid=1550732" target="_blank">绯冉老师 发表于 2019-10-20 09:04:47</a>
 ed爱了。可正片这里……不是我说，分镜怎么到哪里都喜欢晃来晃去？</blockquote>反正后半段又会有人长时间掉线
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  newise  
 ##### 2821#       发表于 2019-10-20 10:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45255766&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-10-20 10:02</a>
@@ -25921,17 +17250,10 @@ ed爱了。可正片这里……不是我说，分镜怎么到哪里都喜欢晃
 现在也是要叫防线上的人滚开啊，有那个废话的时间都够鬼子进村前灭它们好几回了
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 2822#       发表于 2019-10-20 11:38
-
-
 
 
 ED挺好。
@@ -25939,16 +17261,10 @@ ED挺好。
 眼睛这就没事啦，浪费感情。
 
 
-
-
-
-
-
 -----
 
 ####  HuangKai127  
 ##### 2823#       发表于 2019-10-20 11:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45256361&amp;ptid=1550732" target="_blank">midearth 发表于 2019-10-20 11:38</a>
@@ -25959,25 +17275,13 @@ ED挺好。
 对于爱丽丝来说恢复眼睛是很容易的，这里是体现她重新确立战斗的决心
 
 
-
-
-
-
-
 -----
 
 ####  ualiant  
 ##### 2824#       发表于 2019-10-20 13:17
 
 
-
-
 啥意思，前面不是高权限就能命令低权限的么，这里为啥还是靠亮水户黄门的外观才镇住场子，不该下了命令之后不听令的就404警告么？
-
-
-
-
-
 
 
 -----
@@ -25986,14 +17290,7 @@ ED挺好。
 ##### 2825#       发表于 2019-10-20 13:29
 
 
-
-
 话说为啥剧场版开始就用这种线很细的风格作画了，前两季都感觉是拿3像素的笔在720p上画画，剧场版和现在的感觉就是3像素的笔在4K上画画。背景啥的确实精细了，但是人物那边反而没跟上
-
-
-
-
-
 
 
 -----
@@ -26002,16 +17299,10 @@ ED挺好。
 ##### 2826#       发表于 2019-10-20 13:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45257024&amp;ptid=1550732" target="_blank">ualiant 发表于 2019-10-20 13:17:24</a>
 啥意思，前面不是高权限就能命令低权限的么，这里为啥还是靠亮水户黄门的外观才镇住场子，不该下了命令之后 ...</blockquote>因为村民意识里不知道爱丽丝是高权限呗
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -26020,22 +17311,14 @@ ED挺好。
 ##### 2827#       发表于 2019-10-20 13:54
 
 
-
-
 上一话就想吐槽，开头这个bgm，怎么那么像亡灵序曲<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 大妈这么摸鱼真的好吗
-
-
-
-
-
 
 
 -----
 
 ####  月夜凝雪  
 ##### 2828#       发表于 2019-10-20 14:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45257024&amp;ptid=1550732" target="_blank">ualiant 发表于 2019-10-20 13:17:24</a>
@@ -26045,16 +17328,10 @@ ED挺好。
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  凛凛233  
 ##### 2829#       发表于 2019-10-20 14:38
-
 
 
  本帖最后由 凛凛233 于 2019-10-20 14:51 编辑 
@@ -26070,17 +17347,10 @@ ed，刚开始还想，上下白色填充的部分用黑色不是更好看吗
 小说前面没什么印象了，爱丽丝是怎么爱上桐人的？
 
 
-
-
-
-
-
 -----
 
 ####  moooooonlight  
 ##### 2830#       发表于 2019-10-20 16:43
-
-
 
 
 没看过小说。如果说脱眼罩是为了表现爱丽丝的决心，那这段也太赶，至少我不太能感受她到放弃日常重回战斗的决心。
@@ -26092,16 +17362,10 @@ b part说设定看得快睡着了<img src="https://static.saraba1st.com/image/sm
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  凛凛233  
 ##### 2831#       发表于 2019-10-20 16:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45258196&amp;ptid=1550732" target="_blank">moooooonlight 发表于 2019-10-20 16:43</a>
@@ -26112,16 +17376,10 @@ b part说设定看得快睡着了<img src="https://static.saraba1st.com/image/sm
 我一定是记错了
 
 
-
-
-
-
-
 -----
 
 ####  芝士排骨  
 ##### 2832#       发表于 2019-10-20 17:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45258196&amp;ptid=1550732" target="_blank">moooooonlight 发表于 2019-10-20 16:43</a>
@@ -26132,16 +17390,10 @@ b part说设定看得快睡着了<img src="https://static.saraba1st.com/image/sm
 少表现点挺好
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2833#       发表于 2019-10-20 17:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45258196&amp;ptid=1550732" target="_blank">moooooonlight 发表于 2019-10-20 16:43:07</a>
@@ -26150,16 +17402,10 @@ b part说设定看得快睡着了<img src="https://static.saraba1st.com/image/sm
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  moooooonlight  
 ##### 2834#       发表于 2019-10-20 19:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45258301&amp;ptid=1550732" target="_blank">凛凛233 发表于 2019-10-20 16:58:42</a>
@@ -26172,16 +17418,10 @@ b part说设定看得快睡着了<img src="https://static.saraba1st.com/image/sm
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  moooooonlight  
 ##### 2835#       发表于 2019-10-20 19:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45258492&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-10-20 17:24:27</a>
@@ -26190,25 +17430,13 @@ b part说设定看得快睡着了<img src="https://static.saraba1st.com/image/sm
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  woshenc  
 ##### 2836#       发表于 2019-10-20 19:24
 
 
-
-
 这个世界离开a姐的日子，连天空都变得灰灰的
-
-
-
-
-
 
 
 -----
@@ -26217,14 +17445,7 @@ b part说设定看得快睡着了<img src="https://static.saraba1st.com/image/sm
 ##### 2837#       发表于 2019-10-20 19:46
 
 
-
-
 这ed看起来像桐姥爷和爱丽丝在数据世界和现实世界中天人永隔了，但我认为以川原的尿性，应该是写不出这种悲伤的场景
-
-
-
-
-
 
 
 -----
@@ -26233,14 +17454,7 @@ b part说设定看得快睡着了<img src="https://static.saraba1st.com/image/sm
 ##### 2838#       发表于 2019-10-20 19:47
 
 
-
-
 除了ed我真的不知道这番还能看啥了……
-
-
-
-
-
 
 
 -----
@@ -26249,14 +17463,7 @@ b part说设定看得快睡着了<img src="https://static.saraba1st.com/image/sm
 ##### 2839#       发表于 2019-10-20 22:36
 
 
-
-
 第二集我真的尬的不行了，大概不是看这个的年龄了吧。
-
-
-
-
-
 
 
 -----
@@ -26265,22 +17472,13 @@ b part说设定看得快睡着了<img src="https://static.saraba1st.com/image/sm
 ##### 2840#       发表于 2019-10-20 22:39
 
 
-
-
 小野学nmsl
-
-
-
-
-
 
 
 -----
 
 ####  伊可费斯  
 ##### 2841#       发表于 2019-10-20 22:42
-
-
 
 
 你也好意思说这话<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -26295,21 +17493,10 @@ b part说设定看得快睡着了<img src="https://static.saraba1st.com/image/sm
 2019-10-20 22:42 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  凛凛233  
 ##### 2842#       发表于 2019-10-20 23:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45259550&amp;ptid=1550732" target="_blank">hqtkkb 发表于 2019-10-20 19:47</a>
@@ -26319,17 +17506,10 @@ b part说设定看得快睡着了<img src="https://static.saraba1st.com/image/sm
 如果正片也是pig做，会是什么样啊
 
 
-
-
-
-
-
 -----
 
 ####  HuangKai127  
 ##### 2843#       发表于 2019-10-21 00:21
-
-
 
 
 我就知道这里容易引起PTSD
@@ -26340,25 +17520,13 @@ b part说设定看得快睡着了<img src="https://static.saraba1st.com/image/sm
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  deadpeople  
 ##### 2844#       发表于 2019-10-21 00:25
 
 
-
-
 要不是先提前看了再看你楼的评价差点就信了，想挑刺真是怎么都挑的出来
-
-
-
-
-
 
 
 -----
@@ -26367,15 +17535,8 @@ b part说设定看得快睡着了<img src="https://static.saraba1st.com/image/sm
 ##### 2845#       发表于 2019-10-21 00:53
 
 
-
-
 时至今日，我只有一个问题，这画面风格怎么鼓捣出来的，透着一股塑料质感。主要好像应该是上色，加上一部分摄影，就各种泛白的渐变色。
 剑没有金属质感，尽管它们有些的确不是金属，但看上去一点都不锋利，就很怪。
-
-
-
-
-
 
 
 -----
@@ -26384,24 +17545,16 @@ b part说设定看得快睡着了<img src="https://static.saraba1st.com/image/sm
 ##### 2846#       发表于 2019-10-21 10:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45261591&amp;ptid=1550732" target="_blank">deadpeople 发表于 2019-10-21 00:25:36</a>
 要不是先提前看了再看你楼的评价差点就信了，想挑刺真是怎么都挑的出来</blockquote>毕竟精英论坛<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2847#       发表于 2019-10-21 13:41
-
-
 
 
 我觉得还行啊 倒不如说ED和正片完全是两种画风 
@@ -26411,16 +17564,10 @@ b part说设定看得快睡着了<img src="https://static.saraba1st.com/image/sm
 你单看还是挺好的，但这也很有分割感
 
 
-
-
-
-
-
 -----
 
 ####  就烦起名字  
 ##### 2848#       发表于 2019-10-21 13:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45257024&amp;ptid=1550732" target="_blank">ualiant 发表于 2019-10-20 13:17</a>
@@ -26429,17 +17576,10 @@ b part说设定看得快睡着了<img src="https://static.saraba1st.com/image/sm
 root登录和sudo命令的区别吧
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 2849#       发表于 2019-10-21 19:59
-
-
 
 
 这ED配合画面真的是美<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
@@ -26451,16 +17591,10 @@ root登录和sudo命令的区别吧
 装逼过后一掀衣，没错，她就是史上最年轻的整合骑士爱丽丝
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2850#       发表于 2019-10-21 20:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45259355&amp;ptid=1550732" target="_blank">moooooonlight 发表于 2019-10-20 19:20</a>
@@ -26472,16 +17606,10 @@ root登录和sudo命令的区别吧
 这个问题几乎存在于所有改编动画里
 
 
-
-
-
-
-
 -----
 
 ####  伊可费斯  
 ##### 2851#       发表于 2019-10-21 20:24
-
 
 
  本帖最后由 伊可费斯 于 2019-10-21 20:28 编辑 
@@ -26492,17 +17620,10 @@ root登录和sudo命令的区别吧
 ed是ig做的 监督还是大成丈宗
 
 
-
-
-
-
-
 -----
 
 ####  奈落的孤火花  
 ##### 2852#       发表于 2019-10-21 20:40
-
-
 
 
 【秋アニメ特集】『ソードアート・オンライン アリシゼーション War of Underworld』アリス役・茅野愛衣さんインタビュー｜長年の役者仲間である松岡禎丞さん・島﨑信長さんとの思い出
@@ -26513,16 +17634,10 @@ ed是ig做的 监督还是大成丈宗
 我看不动了 搬一下
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2853#       发表于 2019-10-21 20:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45268987&amp;ptid=1550732" target="_blank">伊可费斯 发表于 2019-10-21 20:24</a>
@@ -26531,16 +17646,10 @@ ed是ig做的 监督还是大成丈宗</blockquote>
 我知道，就是意思说即使不是一家做的，但是风格可以靠近点，但完全是可以独立开来看的，就是这种感觉
 
 
-
-
-
-
-
 -----
 
 ####  moooooonlight  
 ##### 2854#       发表于 2019-10-21 20:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45268839&amp;ptid=1550732" target="_blank">月夜凝雪 发表于 2019-10-21 20:00</a>
@@ -26549,17 +17658,10 @@ ed是ig做的 监督还是大成丈宗</blockquote>
 我只是感觉动画有办法做得更好
 
 
-
-
-
-
-
 -----
 
 ####  kiralzb  
 ##### 2855#       发表于 2019-10-21 20:56
-
-
 
 
 后半讲设定倒是没什么，问题是前面爱丽丝表明身份和自我表决心看得实在尴尬，站楼梯口侧身摆姿势是什么鬼，之后的大招也是软绵绵毫无气势……
@@ -26568,16 +17670,10 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  kiralzb  
 ##### 2856#       发表于 2019-10-21 22:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45269079&amp;ptid=1550732" target="_blank">奈落的孤火花 发表于 2019-10-21 20:40</a>
@@ -26592,16 +17688,10 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 这段笑爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  天堂懵懂人  
 ##### 2857#       发表于 2019-10-21 22:26
-
 
 
 <img src="https://s2.ax1x.com/2019/10/21/K1R09x.png" referrerpolicy="no-referrer">
@@ -26610,33 +17700,19 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 随机到这图  这好像也是sao部分除了打架以外，制作最好一段了
 
 
-
-
-
-
-
 -----
 
 ####  ghsakv  
 ##### 2858#       发表于 2019-10-21 23:36
 
 
-
-
 爱丽丝太对胃口了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">不过装逼那段确实太小学生了
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2859#       发表于 2019-10-23 16:02
-
-
 
 
 #03 最終負荷実験
@@ -26665,26 +17741,15 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1g886yhbzl5j20xc0irn2j.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kiralzb  
 ##### 2860#       发表于 2019-10-23 17:22
 
 
-
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1g886yhbzl5j20xc0irn2j.jpg" referrerpolicy="no-referrer">
 
 可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26693,13 +17758,7 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2861#       发表于 2019-10-23 17:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没看过小说，后宫团什么时候加入战局？
-
-
-
-
-
 
 
 -----
@@ -26708,23 +17767,16 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2862#       发表于 2019-10-23 17:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45287172&amp;ptid=1550732" target="_blank">闽明 发表于 2019-10-23 17:37:06</a>
 没看过小说，后宫团什么时候加入战局？</blockquote>后半季
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2863#       发表于 2019-10-23 18:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45287172&amp;ptid=1550732" target="_blank">闽明 发表于 2019-10-23 17:37</a>
@@ -26737,16 +17789,10 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 剩下人过来请等后半。
 
 
-
-
-
-
-
 -----
 
 ####  天堂懵懂人  
 ##### 2864#       发表于 2019-10-23 19:11
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">亚丝娜剧场版救场也是从天而降
@@ -26757,18 +17803,10 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 亚丝娜自由高达说
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2865#       发表于 2019-10-24 16:07
-
-
-
 
 
 【第3話：各話描き下ろしイラスト展開】
@@ -26784,27 +17822,15 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 <img src="https://s2.ax1x.com/2019/10/24/KUuOBT.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2866#       发表于 2019-10-25 16:15
 
 
-
-
 ソードアート・オンライン アリシゼーション WOU 第3話「最終負荷実験」 予告映像
 [https://www.youtube.com/watch?v=O5sfT2LMY1Y](https://www.youtube.com/watch?v=O5sfT2LMY1Y)
 [https://v.youku.com/v_show/id_XN ... j.8428770.3416059.1](https://v.youku.com/v_show/id_XNDQxMjc3NDI2NA==.html?spm=a2h3j.8428770.3416059.1)
-
-
-
-
-
 
 
 -----
@@ -26813,14 +17839,7 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2867#       发表于 2019-10-26 23:29
 
 
-
-
 原创了一段Yui在ALO里对后宫团进行UW和亚丝娜潜行进UW的相关解说以及说可能会求援的内容啊……
-
-
-
-
-
 
 
 -----
@@ -26829,16 +17848,10 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2868#       发表于 2019-10-27 01:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45318829&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-10-26 23:29</a>
 
 原创了一段Yui在ALO里对后宫团进行UW和亚丝娜潜行进UW的相关解说以及说可能会求援的内容啊…… ...</blockquote>
 这样没有那么唐突而且有更多的时间去准备和说服其他人
-
-
-
-
-
 
 
 -----
@@ -26847,14 +17860,7 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2869#       发表于 2019-10-27 01:03
 
 
-
-
 感觉这集不错 好歹讲了不少事情 顺序和推进上也挺合理的
-
-
-
-
-
 
 
 -----
@@ -26863,14 +17869,7 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2870#       发表于 2019-10-27 01:30
 
 
-
-
 给情节发展做信息准备，转场做挺好的，节奏也不拖沓基本没灌水
-
-
-
-
-
 
 
 -----
@@ -26879,14 +17878,7 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2871#       发表于 2019-10-27 01:50
 
 
-
-
 终于有一集能看了，石头大魔王好评
-
-
-
-
-
 
 
 -----
@@ -26895,14 +17887,7 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2872#       发表于 2019-10-27 02:50
 
 
-
-
 话说现在这局面不就是一般网游出现bug怪了，然后GM开一个账号去A掉吗？
-
-
-
-
-
 
 
 -----
@@ -26911,24 +17896,16 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2873#       发表于 2019-10-27 07:34
 
 
-
-
 期待下一话：千里寻夫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 不知道亚丝娜会上啥账号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2874#       发表于 2019-10-27 08:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45320163&amp;ptid=1550732" target="_blank">漫区专号 发表于 2019-10-27 07:34</a>
@@ -26940,26 +17917,15 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 如果剧情没改动的话亚丝娜出现在UW里还得有段时间呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 2875#       发表于 2019-10-27 08:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45320260&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-10-27 08:12</a>
 如果剧情没改动的话亚丝娜出现在UW里还得有段时间呢</blockquote>
 敌人都上线了，这边还在磨趁什么？
-
-
-
-
-
 
 
 -----
@@ -26968,23 +17934,16 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2876#       发表于 2019-10-27 08:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45320293&amp;ptid=1550732" target="_blank">漫区专号 发表于 2019-10-27 08:20:44</a>
 敌人都上线了，这边还在磨趁什么？</blockquote>先讲那边的故事，而且两边的时间流动现在还是处于1000倍的差吧
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  绯冉老师  
 ##### 2877#       发表于 2019-10-27 09:57
-
 
 
  本帖最后由 绯冉老师 于 2019-10-27 09:59 编辑 
@@ -26994,16 +17953,10 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2878#       发表于 2019-10-27 10:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45320293&amp;ptid=1550732" target="_blank">漫区专号 发表于 2019-10-27 08:20</a>
@@ -27012,25 +17965,13 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 两边潜行进入的时间并不一样，而UW本身处于加速状态，如果剧情没改的话亚丝娜实际进去时已经打了有一阵了。
 
 
-
-
-
-
-
 -----
 
 ####  hac0101  
 ##### 2879#       发表于 2019-10-27 11:22
 
 
-
-
 感觉还是有点拖，剧情的密度太低了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27039,15 +17980,8 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2880#       发表于 2019-10-27 11:54
 
 
-
-
 诗乃ALO形象太好看了
 <img src="https://i.loli.net/2019/10/27/qDwyXM4ECmYr39u.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27056,16 +17990,9 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2881#       发表于 2019-10-27 12:22
 
 
-
-
 我觉得这一集过度回还行吧，保持这个节奏很不错了
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -27074,24 +18001,16 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2882#       发表于 2019-10-27 12:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45321322&amp;ptid=1550732" target="_blank">hac0101 发表于 2019-10-27 11:22</a>
 
 感觉还是有点拖，剧情的密度太低了</blockquote>
 这些都是剧情发展必要的解说吧……怎么压缩。
 
 
-
-
-
-
-
 -----
 
 ####  芝士排骨  
 ##### 2883#       发表于 2019-10-27 12:56
-
-
 
 
 这集动画还行了，槽点基本都是小说有的。
@@ -27101,16 +18020,10 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 节奏上其实已经加快了，后面黑暗帝国那个戏放ed其实已经赶了
 
 
-
-
-
-
-
 -----
 
 ####  hac0101  
 ##### 2884#       发表于 2019-10-27 13:08
-
 
 
  本帖最后由 hac0101 于 2019-10-27 13:10 编辑 
@@ -27120,16 +18033,10 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 敌方开无密码账号这段和我方开高级账号这段大部分内容重合。完全可以删掉敌方那一大堆磨磨唧唧的东西，本话我方程序员的停顿+最后那一幕就足够说明开账号的问题，其余的事情我方补充说几句就完事了。
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2885#       发表于 2019-10-27 13:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45322052&amp;ptid=1550732" target="_blank">hac0101 发表于 2019-10-27 13:08</a>
@@ -27140,16 +18047,10 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 还要解释为什么对方要进UW抢爱丽丝而不是直接外界物理抢。
 
 
-
-
-
-
-
 -----
 
 ####  hac0101  
 ##### 2886#       发表于 2019-10-27 13:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45322139&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-10-27 13:22</a>
@@ -27167,17 +18068,10 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 这一话有些无意义的桥段，一些解释内容前后还重复，说白了就是轻小说的流水账模式直接变成动画了。
 
 
-
-
-
-
-
 -----
 
 ####  凛凛233  
 ##### 2887#       发表于 2019-10-27 14:34
-
-
 
 
 这不是挺好的吗，这不是能看了吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
@@ -27188,16 +18082,10 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 应该把这3话压成一小时的一话，把编剧和演出，监督… 
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2888#       发表于 2019-10-27 14:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45322293&amp;ptid=1550732" target="_blank">hac0101 发表于 2019-10-27 13:44</a>
@@ -27206,25 +18094,13 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 这段算是角色塑造的一部分吧，吵架这两位后面都还有不少戏份的。（尤其进去那位，真实身份嘛……看CV）
 
 
-
-
-
-
-
 -----
 
 ####  nerugigannte  
 ##### 2889#       发表于 2019-10-28 08:48
 
 
-
-
 这啥技术研究出来了不是对日本有利?自卫队里有一半是汉奸？这都不来救吗
-
-
-
-
-
 
 
 -----
@@ -27233,21 +18109,13 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2890#       发表于 2019-10-28 10:10
 
 
-
-
 这话还真不错，大部分时间讲设定也不无聊，不过我觉得前面两边控制室的剧情同时进行会更好
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2891#       发表于 2019-10-28 11:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45327982&amp;ptid=1550732" target="_blank">nerugigannte 发表于 2019-10-28 08:48</a>
@@ -27260,16 +18128,10 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 虽然这也就是川原写的设定而没有具体写怎么阻碍利益了。
 
 
-
-
-
-
-
 -----
 
 ####  HuangKai127  
 ##### 2892#       发表于 2019-10-28 11:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45328742&amp;ptid=1550732" target="_blank">moooooonlight 发表于 2019-10-28 10:10:15</a>
@@ -27278,33 +18140,20 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  xaniag  
 ##### 2893#       发表于 2019-10-28 23:02
 
 
-
-
 可以问一下读过小说的诸位吗？
 为何第15卷（大战篇第一卷）里，至少有两次提到贝尔库利跟桐人用心念互击过，而我对之前的人界篇完全没有这段战斗的印象
-
-
-
-
-
 
 
 -----
 
 ####  pokemon最爱  
 ##### 2894#       发表于 2019-10-28 23:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45336108&amp;ptid=1550732" target="_blank">xaniag 发表于 2019-10-28 23:02</a>
@@ -27315,16 +18164,10 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 是爱丽丝带桐人去营地后骑士长用心意之剑对着爱丽丝打被桐人无意识的用心意之剑挡住了。
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 2895#       发表于 2019-10-29 01:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45327982&amp;ptid=1550732" target="_blank">nerugigannte 发表于 2019-10-28 08:48</a>
@@ -27335,16 +18178,10 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 前者楼上说了，后者咋说呢，不提代代木，哪怕在所谓“右翼”势力里，宪法第九条也是政治正确。
 
 
-
-
-
-
-
 -----
 
 ####  HuangKai127  
 ##### 2896#       发表于 2019-10-29 02:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45336108&amp;ptid=1550732" target="_blank">xaniag 发表于 2019-10-28 23:02:18</a>
@@ -27354,16 +18191,10 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  HuangKai127  
 ##### 2897#       发表于 2019-10-29 02:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45327982&amp;ptid=1550732" target="_blank">nerugigannte 发表于 2019-10-28 08:48:07</a>
@@ -27374,25 +18205,13 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  伊可费斯  
 ##### 2898#       发表于 2019-10-29 22:43
 
 
-
-
 这日语夹日式英语看了这么多年还是尬啊，全部说日语得了。
-
-
-
-
-
 
 
 -----
@@ -27401,23 +18220,15 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2899#       发表于 2019-10-29 22:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45327982&amp;ptid=1550732" target="_blank">nerugigannte 发表于 2019-10-28 08:48</a>
 这啥技术研究出来了不是对日本有利?自卫队里有一半是汉奸？这都不来救吗</blockquote>
 是和奸
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2900#       发表于 2019-10-30 16:08
-
-
 
 
 #04 ダークテリトリー
@@ -27442,27 +18253,15 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1g8gah9gx17j20xc0irq6f.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 2901#       发表于 2019-10-30 19:17
 
 
-
-
 反派一开口第一反应CV是石头？但是声音特显老又不敢确定，结尾看staff表果然是石田彰<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 原来暗黑界不全是怪物啊，还是有长得人模人样的反派，就是这暗黑骑士大叔长的一脸便当像，理想也是过于美好显然与剧情走向相悖，甚至结尾连死亡flag都说出来了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27471,14 +18270,7 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2902#       发表于 2019-10-30 21:07
 
 
-
-
 刚把UW上半季后十几集一口气补完了，这演出，直接是大型尬聊现场啊，监督把轻改动画拍成舞台剧，效果太差了。
-
-
-
-
-
 
 
 -----
@@ -27487,21 +18279,13 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2903#       发表于 2019-10-30 22:10
 
 
-
-
 这个政治戏我觉得是不是太看不起美国人了，美国人真要拿到还需要偷偷摸摸，估计日本人心里怎么想？直接大兵压上去就能解决问题的事情。
-
-
-
-
-
 
 
 -----
 
 ####  凛凛233  
 ##### 2904#       发表于 2019-10-30 22:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45352830&amp;ptid=1550732" target="_blank">xingenge 发表于 2019-10-30 16:08</a>
@@ -27515,25 +18299,13 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 还是说不是扁平的
 
 
-
-
-
-
-
 -----
 
 ####  ghsakv  
 ##### 2905#       发表于 2019-10-31 00:19
 
 
-
-
 这集比第二集好多了
-
-
-
-
-
 
 
 -----
@@ -27542,23 +18314,15 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2906#       发表于 2019-10-31 11:25
 
 
-
-
 看OP这暗黑骑士团团长和贝尔库利还要打一架？终于能看到两个成年人互殴了，希望这段做好点。
 
 这集其实做得还是不错的，诗乃被虐那段动作戏也很流畅好看了。我都怀疑制作组是不是只是不会画两个剑士互砍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">...
-
-
-
-
-
 
 
 -----
 
 ####  芝士排骨  
 ##### 2907#       发表于 2019-10-31 12:00
-
 
 
 <blockquote>武の炽羽 发表于 2019-10-31 11:25
@@ -27568,27 +18332,15 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 因为小说这段川原砾没有编具体动作，包括第一季打哥布林，桐人击退众哥布林也没怎么编动作。其他打戏大都是按小说动作一板一眼来的
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2908#       发表于 2019-11-1 16:24
 
 
-
-
 ソードアート・オンライン アリシゼーション WOU 第4話「ダークテリトリー」 予告映像
 [https://www.youtube.com/watch?v=S9lIY7NGG34](https://www.youtube.com/watch?v=S9lIY7NGG34)
 [https://v.youku.com/v_show/id_XNDQyMTE2MjY0NA==.html](https://v.youku.com/v_show/id_XNDQyMTE2MjY0NA==.html)
-
-
-
-
-
 
 
 -----
@@ -27597,14 +18349,7 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2909#       发表于 2019-11-1 16:58
 
 
-
-
 这pv的镜头有点low啊，还有加百列这表情，，sao每个boss都要这么丑角吗？别的动画里也不乏扭曲中二的反派，但表现得好说不定还会有小孩子喜欢，sao这反派。。。。
-
-
-
-
-
 
 
 -----
@@ -27613,16 +18358,9 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2910#       发表于 2019-11-2 23:25
 
 
-
-
 小加百列是钉宫……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 艾丽西亚的CV也是爱衣（
-
-
-
-
-
 
 
 -----
@@ -27631,16 +18369,9 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2911#       发表于 2019-11-2 23:28
 
 
-
-
 这对鸳鸯真是大写的一个惨
 
 — from Sony G8441, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -27649,14 +18380,7 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2912#       发表于 2019-11-3 00:20
 
 
-
-
 杀萝莉.......<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27665,14 +18389,7 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2913#       发表于 2019-11-3 01:02
 
 
-
-
 这boss也太那个了吧。。
-
-
-
-
-
 
 
 -----
@@ -27681,14 +18398,7 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2914#       发表于 2019-11-3 01:05
 
 
-
-
 这反派还是sao那味儿，不过相较于之前反派，他的动机设计感有点强
-
-
-
-
-
 
 
 -----
@@ -27697,17 +18407,10 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2915#       发表于 2019-11-3 01:16
 
 
-
-
 每周看一遍ed脑内yy意境
 其实喜欢的是当初在诺亚舟上看小说的回忆<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -27716,16 +18419,10 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2916#       发表于 2019-11-3 01:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45389990&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-11-03 01:05:15</a>
 这反派还是sao那味儿，不过相较于之前反派，他的动机设计感有点强</blockquote>准确来说这货根本没有动机，像dio那样的纯恶，纯粹的对欲望的放纵
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -27734,14 +18431,7 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2917#       发表于 2019-11-3 01:21
 
 
-
-
 太呕了吧 不禁想问川原的恶役都是要设计成这种变态吗
-
-
-
-
-
 
 
 -----
@@ -27750,16 +18440,9 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2918#       发表于 2019-11-3 01:46
 
 
-
-
 没想到动画这么直白的把这段做出来了，有点吃惊
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -27768,16 +18451,10 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2919#       发表于 2019-11-3 01:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45390082&amp;ptid=1550732" target="_blank">xingenge 发表于 2019-11-03 01:21:42</a>
 太呕了吧 不禁想问川原的恶役都是要设计成这种变态吗</blockquote>毕竟写作时间太早了，加百列是那种纯粹的反社会人格，就像那个杀十岁小女孩的小学生，他的恶是dio那种完全没有来由的，虚无的
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -27786,14 +18463,7 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2920#       发表于 2019-11-3 01:50
 
 
-
-
 虽然知道交代背景交代反派有其必要之处，但是这两集还是看着好无聊
-
-
-
-
-
 
 
 -----
@@ -27802,14 +18472,7 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2921#       发表于 2019-11-3 01:55
 
 
-
-
 这集刀剑呕了，又杀女人杀小女孩。这lowb兴趣什么时候能改，玩不腻啊
-
-
-
-
-
 
 
 -----
@@ -27818,13 +18481,7 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2922#       发表于 2019-11-3 02:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没听错猪头族族长是卫浴柜?....这staff够恶趣味的
-
-
-
-
-
 
 
 -----
@@ -27833,23 +18490,16 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 ##### 2923#       发表于 2019-11-3 02:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45390218&amp;ptid=1550732" target="_blank">HuangKai127 发表于 2019-11-3 01:49</a>
 
 毕竟写作时间太早了，加百列是那种纯粹的反社会人格，就像那个杀十岁小女孩的小学生，他的恶是dio那种完全 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实他恶心就算了，但回想一下之前的出现过的，就没话可说
 
 
-
-
-
-
-
 -----
 
 ####  kiralzb  
 ##### 2924#       发表于 2019-11-3 02:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45390207&amp;ptid=1550732" target="_blank">一个陆仁贾 发表于 2019-11-3 01:46</a>
@@ -27861,17 +18511,10 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 感觉这话各种意义上都很危险，这么直白的小孩杀小孩，之前有没有呢.......
 
 
-
-
-
-
-
 -----
 
 ####  lmclmc2  
 ##### 2925#       发表于 2019-11-3 02:22
-
-
 
 
 川原的BOSS设计的全是这种纯粹的恶人。。倒是省了担心什么洗白之类乱七八糟的玩意。。上来就万恶不赦然后让桐姥爷砍爆
@@ -27880,16 +18523,10 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 虽然说这种快感爆发手段比较原始，不过一是本来也很老的作品了，二是还挺有效的。就是不要老让我看这种变态啊
 
 
-
-
-
-
-
 -----
 
 ####  不灭人形  
 ##### 2926#       发表于 2019-11-3 02:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45390336&amp;ptid=1550732" target="_blank">lmclmc2 发表于 2019-11-3 02:22</a>
@@ -27898,32 +18535,19 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 恶心是一回事，但是来来去去那么几招就lowb透了啊。
 
 
-
-
-
-
-
 -----
 
 ####  取个中文名  
 ##### 2927#       发表于 2019-11-3 02:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对女的只是单纯的杀掉吗？不该先做点其他事？
-
-
-
-
-
 
 
 -----
 
 ####  whzfjk  
 ##### 2928#       发表于 2019-11-3 03:47
-
-
 
 
 因为这集挑了几集看看，明明是小野学监督的片，走形的地方总感觉有点多，这个画风更加凸显走形带来的不适感。
@@ -27934,16 +18558,10 @@ ed的确很有感觉，二胡有灵魂<img src="https://static.saraba1st.com/ima
 SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  HuangKai127  
 ##### 2929#       发表于 2019-11-3 08:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45390291&amp;ptid=1550732" target="_blank">镜hinata 发表于 2019-11-03 02:08:46</a>
@@ -27952,16 +18570,10 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  sgpt55  
 ##### 2930#       发表于 2019-11-3 10:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45390353&amp;ptid=1550732" target="_blank">不灭人形 发表于 2019-11-3 02:31</a>
@@ -27972,17 +18584,10 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 但是除了boss之外其他还想看 这就尴尬了
 
 
-
-
-
-
-
 -----
 
 ####  Toby_dak  
 ##### 2931#       发表于 2019-11-3 10:54
-
-
 
 
 千本木彩花的角色居然没失禁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明明口水鼻涕眼泪都流了，还给了股间特写。
@@ -27991,32 +18596,19 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 ----发送自 [Sony G8342,Android 9](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  依然荏苒  
 ##### 2932#       发表于 2019-11-3 11:23
 
 
-
-
 强奸犯！强奸犯！强奸犯！果然川原乐少不了强奸犯！<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  依然荏苒  
 ##### 2933#       发表于 2019-11-3 11:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45391908&amp;ptid=1550732" target="_blank">Toby_dak 发表于 2019-11-3 10:54</a>
@@ -28027,31 +18619,19 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 高潮可不是那么容易的
 
 
-
-
-
-
-
 -----
 
 ####  KT-7  
 ##### 2934#       发表于 2019-11-3 11:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">第几集能看到肉丝娜和爱丽丝开撕呢
-
-
-
-
-
 
 
 -----
 
 ####  alien  
 ##### 2935#       发表于 2019-11-3 12:56
-
 
 
  本帖最后由 alien 于 2019-11-3 12:59 编辑 
@@ -28064,17 +18644,10 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 不是高潮~
 
 
-
-
-
-
-
-
 -----
 
 ####  HuangKai127  
 ##### 2936#       发表于 2019-11-3 12:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45391908&amp;ptid=1550732" target="_blank">Toby_dak 发表于 2019-11-03 10:54:25</a>
@@ -28083,27 +18656,16 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  HuangKai127  
 ##### 2937#       发表于 2019-11-3 13:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45393191&amp;ptid=1550732" target="_blank">alien 发表于 2019-11-03 12:56:12</a>
 人的括约肌在丧失控制能力或死亡后就会自然松弛，造成大小便失禁 奇怪的地方是都给了这么多特写了就不差 ...</blockquote>因为UW没有排泄系统
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -28117,25 +18679,13 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">加百列起码不猥琐 作为boss  比前几个还是稍微好点
 
 
-
-
-
-
-
 -----
 
 ####  武の炽羽  
 ##### 2939#       发表于 2019-11-3 13:20
 
 
-
-
 中间杀萝莉那段感到不适...话说这内容放美帝不能播出的吧？
-
-
-
-
-
 
 
 -----
@@ -28144,16 +18694,9 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2940#       发表于 2019-11-3 13:45
 
 
-
-
 居然把这个真做出来了，厉害了，胆子够大。该算至少是R15了吧……
 
 另外这也算是心意技之间对抗的描写了？话说心意技的互相克制刀剑和加速里有写么？
-
-
-
-
-
 
 
 -----
@@ -28162,15 +18705,9 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2941#       发表于 2019-11-3 14:01
 
 
-
 <blockquote>whzfjk 发表于 2019-11-3 03:47
 因为这集挑了几集看看，明明是小野学监督的片，走形的地方总感觉有点多，这个画风更加凸显走形带来的不适感 ...</blockquote>
 动员时气氛和bgm感觉完全不搭
-
-
-
-
-
 
 
 -----
@@ -28179,14 +18716,7 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2942#       发表于 2019-11-3 14:02
 
 
-
-
 川原好像在加速世界没有这种lowb反派和过度变 态情节吧?我总感觉加速世界是川原砾的亲儿子。刀剑的火在川原意料之外，即使刀剑火了，川原也不想多放心思，尽情在里面展现恶趣味
-
-
-
-
-
 
 
 -----
@@ -28195,16 +18725,10 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2943#       发表于 2019-11-3 14:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45393822&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-11-03 14:02:43</a>
 川原好像在加速世界没有这种lowb反派和过度变 态情节吧?我总感觉加速世界是川原砾的亲儿子。刀剑的火在川原 ...</blockquote>因为他写SAO的时间是在加速世界之前，那时候这类情节在主流影视挺多的
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -28213,16 +18737,10 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2944#       发表于 2019-11-3 14:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45393822&amp;ptid=1550732" target="_blank">芝士排骨 发表于 2019-11-3 14:02</a>
 
 川原好像在加速世界没有这种lowb反派和过度变 态情节吧?我总感觉加速世界是川原砾的亲儿子。刀剑的火在川原 ...</blockquote>
 单纯是因为加速是直接文库出的，所以这方面收敛了些。
-
-
-
-
-
 
 
 -----
@@ -28231,21 +18749,13 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2945#       发表于 2019-11-3 16:19
 
 
-
-
 加百列小时候杀萝莉是怎么会看到她的魂魄的？那个时候不是现实世界吗？还是说看到的魂只是他的脑补？
-
-
-
-
-
 
 
 -----
 
 ####  kiralzb  
 ##### 2946#       发表于 2019-11-3 16:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45395004&amp;ptid=1550732" target="_blank">大厨麦当牛 发表于 2019-11-03 16:19:02</a>
@@ -28256,16 +18766,10 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 2947#       发表于 2019-11-3 16:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45395004&amp;ptid=1550732" target="_blank">大厨麦当牛 发表于 2019-11-3 16:19</a>
@@ -28274,16 +18778,10 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 就是脑补。
 
 
-
-
-
-
-
 -----
 
 ####  凛凛233  
 ##### 2948#       发表于 2019-11-3 16:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45390336&amp;ptid=1550732" target="_blank">lmclmc2 发表于 2019-11-3 02:22</a>
@@ -28292,27 +18790,15 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 后面毛场晶彦还会出场，洗个不明不白
 
 
-
-
-
-
-
 -----
 
 ####  凛凛233  
 ##### 2949#       发表于 2019-11-3 17:04
 
 
-
-
 我都忘了小说还有杀萝莉这段，
 
 真™<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28321,14 +18807,7 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2950#       发表于 2019-11-3 19:02
 
 
-
-
 几年前看过的网络版翻译早都忘干净了，看到暗黑的女将军人设这么漂亮还以为会是下篇的重要角色，没想到出来才两集就挂了……
-
-
-
-
-
 
 
 -----
@@ -28337,14 +18816,7 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2951#       发表于 2019-11-3 23:12
 
 
-
-
 这样对比起来，a姐简直是女神啊！
-
-
-
-
-
 
 
 -----
@@ -28353,14 +18825,7 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2952#       发表于 2019-11-3 23:26
 
 
-
-
 不够变态，不够时髦，不够美学
-
-
-
-
-
 
 
 -----
@@ -28369,14 +18834,7 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2953#       发表于 2019-11-4 02:16
 
 
-
-
 因为作者整体笔力不行导致这种桥段格外让人不舒服
-
-
-
-
-
 
 
 -----
@@ -28385,16 +18843,10 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2954#       发表于 2019-11-4 08:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45396462&amp;ptid=1550732" target="_blank">starfisher 发表于 2019-11-3 19:02</a>
 
 几年前看过的网络版翻译早都忘干净了，看到暗黑的女将军人设这么漂亮还以为会是下篇的重要角色，没想到出来 ...</blockquote>
 讲道理，那个女将军上集结尾出场的时候死亡flag都竖到天上去了啊，那个大叔想要签合约，刚说完就2个反派登录进来了，一看就是要杀了祭天的，我本来还以为按照川原的恶趣味又要雷普了呢，只是杀了砍头算是还行了
-
-
-
-
-
 
 
 -----
@@ -28403,15 +18855,7 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2955#       发表于 2019-11-4 11:04
 
 
-
-
 日本那边反应估计也挺大的，川原表示动画无论是好的还是坏的都不会踩下刹车，佐久间表示做出温和的影像才是对原作、动画staff以及原作粉丝的失礼<img src="http://wx1.sinaimg.cn/large/88705131gy1g8ltgdv2puj20t81fhqel.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
@@ -28420,20 +18864,13 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 ##### 2956#       发表于 2019-11-4 11:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你妈嗨这花了一话写个新角色然后就这么光速炮灰掉了，我真的醉，这OP就纯欺诈咯
-
-
-
-
-
 
 
 -----
 
 ####  newise  
 ##### 2957#       发表于 2019-11-4 11:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45400369&amp;ptid=1550732" target="_blank">zodiac137 发表于 2019-11-4 08:01</a>
@@ -28445,16 +18882,10 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 不对！人界那边天命归零就魂飞魄散化成光了这怎么能枭首示众的？
 
 
-
-
-
-
-
 -----
 
 ####  凛凛233  
 ##### 2958#       发表于 2019-11-4 12:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45402287&amp;ptid=1550732" target="_blank">AlfredXC 发表于 2019-11-4 11:04</a>
@@ -28466,16 +18897,10 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 我只想看亚丝娜
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2959#       发表于 2019-11-4 12:14
-
 
 
  本帖最后由 reekilynn 于 2019-11-4 12:20 编辑 
@@ -28486,16 +18911,10 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 —— 来自 OnePlus GM1917, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 2960#       发表于 2019-11-4 12:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45403175&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-11-4 12:14</a>
@@ -28506,16 +18925,10 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 指？
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2961#       发表于 2019-11-4 12:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45402802&amp;ptid=1550732" target="_blank">暗黑能乐 发表于 2019-11-4 11:41</a>
@@ -28526,16 +18939,10 @@ SAO 是不是也就这样了<img src="https://static.saraba1st.com/image/smiley/
 OP欺诈是UW日常，你看看前半的OP2和正片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cybernetics31  
 ##### 2962#       发表于 2019-11-4 12:29
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">原来这么多人没看过原作吗，uw里恶心人的玩意还少吗？还黑深残？就是故意写出来恶心人的啊。
@@ -28543,16 +18950,10 @@ OP欺诈是UW日常，你看看前半的OP2和正片<img src="https://static.sar
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2963#       发表于 2019-11-4 12:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45403268&amp;ptid=1550732" target="_blank">望月凝香 发表于 2019-11-4 12:22</a>
@@ -28568,16 +18969,10 @@ OP欺诈是UW日常，你看看前半的OP2和正片<img src="https://static.sar
 —— 来自 OnePlus GM1917, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 2964#       发表于 2019-11-4 12:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45403369&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-11-4 12:31</a>
@@ -28592,16 +18987,10 @@ mbr这个说法其实是和pokemon还有你们几个讨论中，我提的。想�
 川原毫无疑问在写剧场版的时候是意识到问题的，但是不知道是没空间多说还是因为西斯空寂所以干脆绕过去，反正没有深挖。
 
 
-
-
-
-
-
 -----
 
 ####  sgpt55  
 ##### 2965#       发表于 2019-11-4 12:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45403369&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-11-4 12:31</a>
@@ -28612,16 +19001,10 @@ mbr这个说法其实是和pokemon还有你们几个讨论中，我提的。想�
 ......嗦不出话<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2966#       发表于 2019-11-4 12:48
-
 
 
  本帖最后由 reekilynn 于 2019-11-4 13:02 编辑 
@@ -28639,16 +19022,10 @@ mbr这个说法其实是和pokemon还有你们几个讨论中，我提的。想�
 —— 来自 OnePlus GM1917, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  lixianfyss  
 ##### 2967#       发表于 2019-11-4 12:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45398951&amp;ptid=1550732" target="_blank">woshenc 发表于 2019-11-3 23:12</a>
@@ -28657,16 +19034,10 @@ mbr这个说法其实是和pokemon还有你们几个讨论中，我提的。想�
 A姐本来就是，看到现在我就替A姐不值。桐老爷干的事情突出一个没有价值。
 
 
-
-
-
-
-
 -----
 
 ####  woshenc  
 ##### 2968#       发表于 2019-11-4 13:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45403685&amp;ptid=1550732" target="_blank">lixianfyss 发表于 2019-11-4 12:57</a>
@@ -28677,16 +19048,10 @@ a姐说要把一半人界居民献祭了造那些剑巨人
 真要是按她的计划来的话，能不能挡住暗黑帝国最终压力测试？
 
 
-
-
-
-
-
 -----
 
 ####  lixianfyss  
 ##### 2969#       发表于 2019-11-4 13:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45403791&amp;ptid=1550732" target="_blank">woshenc 发表于 2019-11-4 13:04</a>
@@ -28699,16 +19064,10 @@ a姐说要把一半人界居民献祭了造那些剑巨人
 只要A姐在那里，暗黑界就不可能倾全力进攻，很明显暗黑界不是铁板一块，真被皇帝压着进攻，怕不是私下各种划水。这样维持一个均势没有问题。
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2970#       发表于 2019-11-4 13:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45403836&amp;ptid=1550732" target="_blank">lixianfyss 发表于 2019-11-4 13:09</a>
@@ -28721,16 +19080,10 @@ a姐说要把一半人界居民献祭了造那些剑巨人
 —— 来自 OnePlus GM1917, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2971#       发表于 2019-11-4 13:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45403485&amp;ptid=1550732" target="_blank">望月凝香 发表于 2019-11-4 12:40</a>
@@ -28743,16 +19096,10 @@ UW的桐人和剧场版尤娜的情况还是有区别的——剧场版尤娜的
 所以问题就在于桐人自身的记忆能否对用他我来重新构筑的自我进行纠错使其恢复成原本的自我。
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 2972#       发表于 2019-11-4 13:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45403308&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-11-4 12:26</a>
@@ -28763,16 +19110,10 @@ OP欺诈是UW日常，你看看前半的OP2和正片 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">上半的OP我只记得桐人UGO二人尬舞剑了
 
 
-
-
-
-
-
 -----
 
 ####  lixianfyss  
 ##### 2973#       发表于 2019-11-4 13:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45403871&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-11-4 13:14</a>
@@ -28783,16 +19124,10 @@ OP欺诈是UW日常，你看看前半的OP2和正片 ...</blockquote>
 服从强者的乌合之众还是乌合之众，正面遇上A姐率领的骑士团加人间兵器还是会恐惧会逃跑。关键就看A姐有没有足够实力抵御持续的人海战术。
 
 
-
-
-
-
-
 -----
 
 ####  凛凛233  
 ##### 2974#       发表于 2019-11-4 13:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45403960&amp;ptid=1550732" target="_blank">lixianfyss 发表于 2019-11-4 13:22</a>
@@ -28801,16 +19136,10 @@ OP欺诈是UW日常，你看看前半的OP2和正片 ...</blockquote>
 大概服从强者的意思就是，皇帝命令冲，下面的人就会像炮灰一样送
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2975#       发表于 2019-11-4 13:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45403960&amp;ptid=1550732" target="_blank">lixianfyss 发表于 2019-11-4 13:22</a>
@@ -28822,16 +19151,10 @@ uw不算暗黑界，人界本身就八万人，住在半径七百五十公里的
 —— 来自 OnePlus GM1917, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 2976#       发表于 2019-11-4 13:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45403899&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2019-11-4 13:16</a>
@@ -28842,16 +19165,10 @@ UW的桐人和剧场版尤娜的情况还是有区别的——剧场版尤娜的
 如果川原也这样思考的话，那会是一个很好的切入点。当然了，这就需要稍微吃书，哦不吃电影，让尤娜没有彻底消失。反正他写SAOP吃书已经成习惯了，这儿吃一下也无所谓了。
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2977#       发表于 2019-11-4 13:42
-
 
 
  本帖最后由 reekilynn 于 2019-11-4 13:57 编辑 
@@ -28868,16 +19185,10 @@ UW的桐人和剧场版尤娜的情况还是有区别的——剧场版尤娜的
 —— 来自 OnePlus GM1917, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 2978#       发表于 2019-11-4 14:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45404147&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-11-4 13:42</a>
@@ -28890,16 +19201,10 @@ UW的桐人和剧场版尤娜的情况还是有区别的——剧场版尤娜的
 说道尤娜，UW的OP里有尤娜，是单纯背景板？还是前半已经出场过？我前半实在没完全看下去……
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2979#       发表于 2019-11-4 14:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45404394&amp;ptid=1550732" target="_blank">望月凝香 发表于 2019-11-4 14:07</a>
@@ -28915,16 +19220,10 @@ https://rath.work/2018/10/18/%E6%8B%89%E6%96%AF%E8%A7%82%E6%B5%8B%E7%BB%84-%E5%8
 —— 来自 OnePlus GM1917, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 2980#       发表于 2019-11-4 14:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45404537&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-11-4 14:19</a>
@@ -28935,16 +19234,10 @@ https://rath.work/2018/10/18/%E6%8B%89%E6%96%AF%E8%A7%82%E6%B5%8B%E7%BB%84-%E5%8
 3x
 
 
-
-
-
-
-
 -----
 
 ####  lixianfyss  
 ##### 2981#       发表于 2019-11-4 14:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45404075&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-11-4 13:34</a>
@@ -28955,16 +19248,10 @@ uw不算暗黑界，人界本身就八万人，住在半径七百五 ...</blockq
 半径750km太扯，你说750平方公里还行。
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2982#       发表于 2019-11-4 14:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45404733&amp;ptid=1550732" target="_blank">lixianfyss 发表于 2019-11-4 14:36</a>
@@ -28974,27 +19261,15 @@ uw不算暗黑界，人界本身就八万人，住在半径七百五 ...</blockq
 —— 来自 OnePlus GM1917, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  moooooonlight  
 ##### 2983#       发表于 2019-11-4 15:38
 
 
-
-
 sao的反派总是这么变态，这点我非常欣赏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -29003,16 +19278,10 @@ sao的反派总是这么变态，这点我非常欣赏<img src="https://static.s
 ##### 2984#       发表于 2019-11-4 17:26
 
 
-
  本帖最后由 nerugigannte 于 2019-11-4 17:28 编辑 
 
 这是分割播放后观感最好的一集了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我懂了，我也想开个皇帝号当反派丧尽天良
-
-
-
-
-
 
 
 -----
@@ -29021,16 +19290,10 @@ sao的反派总是这么变态，这点我非常欣赏<img src="https://static.s
 ##### 2985#       发表于 2019-11-4 18:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45404147&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-11-04 13:42:03</a>
 v2.1.0-play</blockquote>桐人这段我个人的理解是四位女主角只是重建了引导，并没有改编程序本身，桐人缺失的是外部和内部的链接，只是那个部分需要被激活，而不是数据丢失需要重构。
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -29039,16 +19302,10 @@ v2.1.0-play</blockquote>桐人这段我个人的理解是四位女主角只是�
 ##### 2986#       发表于 2019-11-4 19:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45404810&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-11-4 14:42</a>
 
 这么说来，以上海为中心，半径750公里画一个圆，扣掉东边的大海之后剩下的区域，汉唐宋明清以及现在各有 ...</blockquote>
 直接上澳大利亚不就好了。。
-
-
-
-
-
 
 
 -----
@@ -29057,15 +19314,8 @@ v2.1.0-play</blockquote>桐人这段我个人的理解是四位女主角只是�
 ##### 2987#       发表于 2019-11-4 19:15
 
 
-
-
 我想起来了，以前的反派只想着雷普肉体，现在这个反派更高级了，渴望雷普“灵魂”
 [@爱丽丝](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=45505)
-
-
-
-
-
 
 
 -----
@@ -29074,23 +19324,15 @@ v2.1.0-play</blockquote>桐人这段我个人的理解是四位女主角只是�
 ##### 2988#       发表于 2019-11-4 22:20
 
 
-
-
 让人说不出话的恶心反派<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那个萝莉和他是什么关系？普通的邻居？青梅竹马？
 
 本来以为就大叔一脸便当相，结果直接一集就连带老婆一起挂了
-
-
-
-
-
 
 
 -----
 
 ####  cat1230  
 ##### 2989#       发表于 2019-11-4 23:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45409677&amp;ptid=1550732" target="_blank">mhss 发表于 2019-11-4 22:20</a>
@@ -29101,16 +19343,10 @@ v2.1.0-play</blockquote>桐人这段我个人的理解是四位女主角只是�
 没看原著，动画片里我记得是青梅竹马+女朋友？回头等字幕组WX片源的出来再看一遍
 
 
-
-
-
-
-
 -----
 
 ####  pokemon最爱  
 ##### 2990#       发表于 2019-11-4 23:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45409677&amp;ptid=1550732" target="_blank">mhss 发表于 2019-11-4 22:20</a>
@@ -29123,17 +19359,10 @@ v2.1.0-play</blockquote>桐人这段我个人的理解是四位女主角只是�
 然后艾丽西亚被杀前正好她家破产了，要搬走过上贫穷的生活，然后加百列就把她杀了（这段剧情挺长的这么缩短可能有点问题……但是实在是不太好解释）
 
 
-
-
-
-
-
 -----
 
 ####  cyberalogo  
 ##### 2991#       发表于 2019-11-4 23:29
-
-
 
 
 特么描写一个变态的内心戏用了尼玛两集多的时间。
@@ -29142,17 +19371,10 @@ v2.1.0-play</blockquote>桐人这段我个人的理解是四位女主角只是�
 作者和监督究竟有多喜欢变态啊？
 
 
-
-
-
-
-
 -----
 
 ####  坂木静香  
 ##### 2992#       发表于 2019-11-4 23:54
-
-
 
 
 这个反派设计一个杀了青梅竹马的剧情我觉得很失败啊，有什么意义？就为了让观众恨他？
@@ -29161,16 +19383,10 @@ v2.1.0-play</blockquote>桐人这段我个人的理解是四位女主角只是�
 这个UW世界对反派来说本质只是一个游戏世界，所以他在里面做什么都很难引起观众共鸣，所以才给他安排这么个很突兀的杀人剧情？
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 2993#       发表于 2019-11-5 00:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45410503&amp;ptid=1550732" target="_blank">坂木静香 发表于 2019-11-4 23:54</a>
@@ -29182,17 +19398,10 @@ v2.1.0-play</blockquote>桐人这段我个人的理解是四位女主角只是�
 原著里这段是用来描述他的内心，他对于杀戮本身没有感觉，不是单纯的变态杀人狂，原著这段比起让人恨更让人觉得只是一个什么都得不到的可怜人。
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2994#       发表于 2019-11-5 05:19
-
-
 
 
 我不确定这个楼里有多少人看过web版，所以我决定把Web加百列身世相关的内容贴出来，大家可以作为参考。
@@ -29548,7 +19757,6 @@ v2.1.0-play</blockquote>桐人这段我个人的理解是四位女主角只是�
 　　从加入陆军以来已经度过了七年的，位于斯图亚特堡的第三步兵师转到位于麦克迪尔空军基地，成员多数都是空军和海军陆战队出身的《方差》部队的加百列，在此处也以自己满怀爱国心和同伴意识的好汉样子，很快获得了同僚和上级的信任。在导入的VR模拟器一号机的最初测试潜行选拔中能够获选，他认为这也并非偶然。
 
 
-
 　　那之后又过了一年。
 
 　　现在的加百列，不要说部队里，就算说他是美国全部军人中最为适应VR模拟训练的士兵也不为过。私下里，他还在好不容易发售的民用机器《AmuSphere》的发售当天就购入了一台，涉猎各种VR游戏。
@@ -29564,13 +19772,9 @@ v2.1.0-play</blockquote>桐人这段我个人的理解是四位女主角只是�
 重点以红色字标出，虽然这段基本在文库本的时候已经被改的面目全非，只剩下了你们看到的那一段。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -29580,21 +19784,13 @@ v2.1.0-play</blockquote>桐人这段我个人的理解是四位女主角只是�
 | mhss| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 2995#       发表于 2019-11-6 16:04
-
-
-
 
 
 #05 開戦前夜
@@ -29625,16 +19821,10 @@ v2.1.0-play</blockquote>桐人这段我个人的理解是四位女主角只是�
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1g8odndzb0bj20xc0irq6z.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  HuangKai127  
 ##### 2996#       发表于 2019-11-6 16:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45404075&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-11-04 13:34:19</a>
@@ -29644,16 +19834,10 @@ uw不算暗黑界，人界本身就八万人，住在半径七百五 ...</blockq
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  HuangKai127  
 ##### 2997#       发表于 2019-11-6 18:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45428585&amp;ptid=1550732" target="_blank">HuangKai127 发表于 2019-11-06 16:37:28</a>
@@ -29664,16 +19848,10 @@ uw不算暗黑界，人界本身就八万人，住在半径七百五 ...</blockq
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  reekilynn  
 ##### 2998#       发表于 2019-11-6 23:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45429728&amp;ptid=1550732" target="_blank">HuangKai127 发表于 2019-11-6 18:06</a>
@@ -29685,16 +19863,10 @@ uw不算暗黑界，人界本身就八万人，住在半径七百五 ...</blockq
 西伯利亚和格陵兰都属于高纬度地区吧？UW还不至于到这种程度。
 
 
-
-
-
-
-
 -----
 
 ####  HuangKai127  
 ##### 2999#       发表于 2019-11-7 13:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45432660&amp;ptid=1550732" target="_blank">reekilynn 发表于 2019-11-06 23:29:26</a>
@@ -29703,22 +19875,12 @@ uw不算暗黑界，人界本身就八万人，住在半径七百五 ...</blockq
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  有妹是老婆  
 ##### 3000#       发表于 2019-11-7 15:22
 
 
-
-
 话说，uw篇是不是有点像电影《创，战纪》的设定啊？
-
-
-
 
 

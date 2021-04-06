@@ -1,21 +1,13 @@
 > ## **本文件最后更新于2020-02-29 00:53** 
 
 
-
 -----
 
 ####  侃侃而谈喵泽西  
 ##### 3001#       发表于 2018-5-20 23:55
 
 
-
-
 然而这么算一下，可怜的东海帝王身为女三但是打了一季的酱油
-
-
-
-
-
 
 
 -----
@@ -24,14 +16,7 @@
 ##### 3002#       发表于 2018-5-20 23:55
 
 
-
-
 话说训练师真的好，这片这么好看他也起了很大作用吧。这集看完简直想嫁（x
-
-
-
-
-
 
 
 -----
@@ -40,16 +25,10 @@
 ##### 3003#       发表于 2018-5-20 23:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39696712&amp;ptid=1590696" target="_blank">暗黑能乐 发表于 2018-5-20 23:39</a>
 
 剩下三话，天皇赏秋，日本杯，有马纪念？</blockquote>
 都是怒涛般展开，天皇赏秋实现和玲鹿一起赛跑的约定，日本杯上帮神鹰出气，赢得神鹰芳心，有马纪念赛先赢后输，巧用普兰，最后输了比赛赢得美人归，特别渣，我看好你哦<img src="https://static.saraba1st.com/image/smiley/carton2017/092.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -58,16 +37,10 @@
 ##### 3004#       发表于 2018-5-20 23:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39696852&amp;ptid=1590696" target="_blank">侃侃而谈喵泽西 发表于 2018-5-20 23:55</a>
 
 然而这么算一下，可怜的东海帝王身为女三但是打了一季的酱油</blockquote>
 ova补全吧，否则东海帝王一直伤不太好拍 
-
-
-
-
-
 
 
 -----
@@ -76,16 +49,10 @@ ova补全吧，否则东海帝王一直伤不太好拍
 ##### 3005#       发表于 2018-5-20 23:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39696857&amp;ptid=1590696" target="_blank">韩子 发表于 2018-5-20 23:55</a>
 
 话说训练师真的好，这片这么好看他也起了很大作用吧。这集看完简直想嫁（x ...</blockquote>
 虽然穷且行为猥琐，阿花还是深深爱上了这个美男子
-
-
-
-
-
 
 
 -----
@@ -94,23 +61,15 @@ ova补全吧，否则东海帝王一直伤不太好拍
 ##### 3006#       发表于 2018-5-21 00:01
 
 
-
-
 以这片的毒性，草上飞本尊瑟瑟发抖中
 
 死兆星一闪一闪的
-
-
-
-
-
 
 
 -----
 
 ####  xzhei  
 ##### 3007#       发表于 2018-5-21 00:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39696907&amp;ptid=1590696" target="_blank">PENTAX-DA 发表于 2018-5-21 00:01</a>
@@ -121,32 +80,19 @@ ova补全吧，否则东海帝王一直伤不太好拍
 确实有毒……
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 3008#       发表于 2018-5-21 00:07
 
 
-
-
 比起草上飞，不应该担心一下30岁的好天资么？
-
-
-
-
-
 
 
 -----
 
 ####  神户⑨小鸟  
 ##### 3009#       发表于 2018-5-21 00:08
-
 
 
  本帖最后由 神户⑨小鸟 于 2018-5-21 00:12 编辑 
@@ -162,16 +108,10 @@ ova补全吧，否则东海帝王一直伤不太好拍
 后面剧情戏份一直这么少<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 3010#       发表于 2018-5-21 00:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39696945&amp;ptid=1590696" target="_blank">神户⑨小鸟 发表于 2018-5-21 00:08</a>
@@ -187,16 +127,10 @@ ova补全吧，否则东海帝王一直伤不太好拍
 其他人都得往后面靠
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3011#       发表于 2018-5-21 00:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39696985&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-5-21 00:13</a>
@@ -208,16 +142,10 @@ ova补全吧，否则东海帝王一直伤不太好拍
 還是話數問題,特別週自己都跳了好些G1賽了(包括贏了的)
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 3012#       发表于 2018-5-21 00:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39697021&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-5-21 00:18</a>
@@ -228,25 +156,13 @@ ova补全吧，否则东海帝王一直伤不太好拍
 如果从一开始就安排半年番可能效果好点？
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 3013#       发表于 2018-5-21 00:22
 
 
-
-
 望族的CV好像是星马豪，秀了几句法语，原居民的马甲有CV话说不定秀几句粤语，奶哪个CV会说粤语？
-
-
-
-
-
 
 
 -----
@@ -255,23 +171,16 @@ ova补全吧，否则东海帝王一直伤不太好拍
 ##### 3014#       发表于 2018-5-21 00:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39697074&amp;ptid=1590696" target="_blank">天狼Q娃 发表于 2018-5-21 00:22</a>
 
 望族的CV好像是星马豪，秀了几句法语，原居民的马甲有CV话说不定秀几句粤语，奶哪个CV会说粤语？ ...</blockquote>
 [https://bbs.saraba1st.com/2b/for ... 96&amp;pid=39696741](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1590696&amp;pid=39696741)
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 3015#       发表于 2018-5-21 00:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39697074&amp;ptid=1590696" target="_blank">天狼Q娃 发表于 2018-5-21 00:22</a>
@@ -282,16 +191,10 @@ ova补全吧，否则东海帝王一直伤不太好拍
 但是人家已经配了菱曙
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3016#       发表于 2018-5-21 00:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39697110&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-5-21 00:28</a>
@@ -302,25 +205,13 @@ ova补全吧，否则东海帝王一直伤不太好拍
 野中藍記得會幾句
 
 
-
-
-
-
-
 -----
 
 ####  神户⑨小鸟  
 ##### 3017#       发表于 2018-5-21 00:32
 
 
-
-
 话说赌萝卜那里，你们4只马玩个大小牌结果不是1就是2...抽牌运有多差啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -329,14 +220,7 @@ ova补全吧，否则东海帝王一直伤不太好拍
 ##### 3018#       发表于 2018-5-21 00:32
 
 
-
-
 这话崩出翔了，跑步都是鬼畜素材
-
-
-
-
-
 
 
 -----
@@ -345,24 +229,15 @@ ova补全吧，否则东海帝王一直伤不太好拍
 ##### 3019#       发表于 2018-5-21 00:33
 
 
-
-
 这一话PA终于撑不住了
 
 只能解释为集中精力应付后面机场关键比赛吧
-
-
-
-
-
 
 
 -----
 
 ####  stuka1942  
 ##### 3020#       发表于 2018-5-21 00:38
-
-
 
 
 训练师真是个好教练
@@ -373,32 +248,19 @@ ova补全吧，否则东海帝王一直伤不太好拍
 铃鹿和小特都恢复状态了真好
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 3021#       发表于 2018-5-21 00:39
 
 
-
-
 小草：那我（的戏份）呢？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  多多天下  
 ##### 3022#       发表于 2018-5-21 00:43
-
 
 
  本帖最后由 多多天下 于 2018-5-21 00:49 编辑 
@@ -414,32 +276,19 @@ ova补全吧，否则东海帝王一直伤不太好拍
 不过一个变数是社台马。如果之前CY说在谈已经搞定了，13 a可能通过两家学院交流的形式引入大震撼什么的，然后跑一场WDT，宣传效果max
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3023#       发表于 2018-5-21 00:46
 
 
-
-
 训练员松冈修造化
-
-
-
-
-
 
 
 -----
 
 ####  D-JoeII  
 ##### 3024#       发表于 2018-5-21 00:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39697199&amp;ptid=1590696" target="_blank">多多天下 发表于 2018-5-21 00:43</a>
@@ -450,16 +299,10 @@ ova补全吧，否则东海帝王一直伤不太好拍
 京都大賞典很簡單啦,那場特別週去到486kg(生涯最胖的一次),下集開頭提一下就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神户⑨小鸟  
 ##### 3025#       发表于 2018-5-21 00:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39697217&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-5-21 00:46</a>
@@ -468,16 +311,10 @@ ova补全吧，否则东海帝王一直伤不太好拍
 看生肉的时候我倒是串戏到clannad21话，啊秋鼓励古河渚那里了...
 
 
-
-
-
-
-
 -----
 
 ####  多多天下  
 ##### 3026#       发表于 2018-5-21 00:51
-
 
 
  本帖最后由 多多天下 于 2018-5-21 00:55 编辑 
@@ -492,25 +329,13 @@ ova补全吧，否则东海帝王一直伤不太好拍
 10话缓一下的方式可能是Spica其他几人的情节，特别是帝皇和麦昆现在还没跑过，其他几个人好歹还有个ppt
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3027#       发表于 2018-5-21 00:53
 
 
-
-
 WDT随便胡弄一下请观众进手游体验就好了，退役战不可能跳的吧
-
-
-
-
-
 
 
 -----
@@ -519,14 +344,7 @@ WDT随便胡弄一下请观众进手游体验就好了，退役战不可能跳�
 ##### 3028#       发表于 2018-5-21 00:53
 
 
-
-
 特别渣下一个目标是小鹰么？
-
-
-
-
-
 
 
 -----
@@ -535,16 +353,10 @@ WDT随便胡弄一下请观众进手游体验就好了，退役战不可能跳�
 ##### 3029#       发表于 2018-5-21 00:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39696573&amp;ptid=1590696" target="_blank">amulelernen 发表于 2018-5-20 23:25</a>
 
 旧马学：</blockquote>
 草酱已经是过去时了
-
-
-
-
-
 
 
 -----
@@ -553,16 +365,10 @@ WDT随便胡弄一下请观众进手游体验就好了，退役战不可能跳�
 ##### 3030#       发表于 2018-5-21 00:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39697074&amp;ptid=1590696" target="_blank">天狼Q娃 发表于 2018-5-21 00:22</a>
 
 望族的CV好像是星马豪，秀了几句法语，原居民的马甲有CV话说不定秀几句粤语，奶哪个CV会说粤语？ ...</blockquote>
 石上静香会不会说粤语了
-
-
-
-
-
 
 
 -----
@@ -571,16 +377,10 @@ WDT随便胡弄一下请观众进手游体验就好了，退役战不可能跳�
 ##### 3031#       发表于 2018-5-21 00:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39697244&amp;ptid=1590696" target="_blank">多多天下 发表于 2018-5-21 00:51</a>
 
 胖了的桥段只能用一次，后面的剧情不断的提示小特在注意体重（虽然还是每次肚子感人)。真要做大赏典那这 ...</blockquote>
 不,如果真有的話也會跟之前不同,因為頂多在開頭(例如OP前)講一下之後就回復天皇賞秋主線,不像整個第3集後半都在暗示
-
-
-
-
-
 
 
 -----
@@ -589,16 +389,10 @@ WDT随便胡弄一下请观众进手游体验就好了，退役战不可能跳�
 ##### 3032#       发表于 2018-5-21 00:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39697136&amp;ptid=1590696" target="_blank">神户⑨小鸟 发表于 2018-5-21 00:32</a>
 
 话说赌萝卜那里，你们4只马玩个大小牌结果不是1就是2...抽牌运有多差啊 ...</blockquote>
 我觉得是暗示乳量 <img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -607,23 +401,16 @@ WDT随便胡弄一下请观众进手游体验就好了，退役战不可能跳�
 ##### 3033#       发表于 2018-5-21 01:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39697199&amp;ptid=1590696" target="_blank">多多天下 发表于 2018-5-21 00:43</a>
 
 不过日本杯在有马前面，望族好不容易渲染出的最终boss气氛就让给了草上飞了。可能日本杯会作为最终战，把 ...</blockquote>
 但是日本杯赢了望族等一干强马马上要君临天下的渣特尽全力输给草上飞，不更符合啪社扭曲的本质吗，当然有马可能是平手居多，毕竟一个马鼻优势实在是太遗憾了。毕竟渣特前面也少了一个G1冠军 ，在这里可能要做补偿 
 
 
-
-
-
-
-
 -----
 
 ####  多多天下  
 ##### 3034#       发表于 2018-5-21 01:01
-
 
 
  本帖最后由 多多天下 于 2018-5-21 01:03 编辑 
@@ -636,16 +423,10 @@ WDT随便胡弄一下请观众进手游体验就好了，退役战不可能跳�
 跳了天皇赏春的胜利，再跳次惨败也算公平了
 
 
-
-
-
-
-
 -----
 
 ####  百升飞上天  
 ##### 3035#       发表于 2018-5-21 01:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39697244&amp;ptid=1590696" target="_blank">多多天下 发表于 2018-5-21 00:51</a>
@@ -654,16 +435,10 @@ WDT随便胡弄一下请观众进手游体验就好了，退役战不可能跳�
 大赏典渣特成绩也太渣了，还是隐去渣特的黑历史吧 
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3036#       发表于 2018-5-21 01:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39697296&amp;ptid=1590696" target="_blank">多多天下 发表于 2018-5-21 01:01</a>
@@ -674,17 +449,10 @@ WDT随便胡弄一下请观众进手游体验就好了，退役战不可能跳�
 況且你把死宅想得太高了,基本上對98%死宅來說,一話動畫只要做好最後5分鐘,前面17分鐘根本不是事,可況現在只是前面1分鐘的程度
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 3037#       发表于 2018-5-21 01:04
-
-
 
 
 这个黑历史隐去吧
@@ -694,25 +462,13 @@ WDT随便胡弄一下请观众进手游体验就好了，退役战不可能跳�
 少个黑历史也行，一换一扯平了（怎么感觉还是亏了）
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 3038#       发表于 2018-5-21 01:18
 
 
-
-
 如果铃鹿也参加日本杯话，感觉英国的高楼大厦很大几率被换掉，而原居民当时最后领跑第一位，望族其后，加上小特日本杯武丰那句：仿佛铃鹿推了小特一把。最后冲刺赶超望族，追上了原居民，比赛结果小特第一，原居民第二，铃鹿或是望族第三的安排。武丰再登场解说。
-
-
-
-
-
 
 
 -----
@@ -721,23 +477,13 @@ WDT随便胡弄一下请观众进手游体验就好了，退役战不可能跳�
 ##### 3039#       发表于 2018-5-21 01:19
 
 
-
-
 本周的阿草
 
 换宿舍已经没戏了，但病友们要坚强的生存下去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 DS8G78748.jpg
 (140.62 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -746,31 +492,13 @@ DS8G78748.jpg
 2018-5-21 01:11 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/21/011100gh55voinbj5vtzmn.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  xiyue365  
 ##### 3040#       发表于 2018-5-21 01:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39697389&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-05-21 01:19:18</a>
@@ -781,16 +509,10 @@ DS8G78748.jpg
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 3041#       发表于 2018-5-21 01:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39697389&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-5-21 01:19</a>
@@ -801,30 +523,17 @@ DS8G78748.jpg
 好好的自己队伍有位不坐，跑小特旁坐，pa你很皮哦<img src="https://static.saraba1st.com/image/smiley/carton2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 3042#       发表于 2018-5-21 01:30
 
 
-
-
 太巧合了
-
-
-
-
 
 
 011100gh55voinbj5vtzmn.jpg
 (174.73 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -833,24 +542,7 @@ DS8G78748.jpg
 2018-5-21 01:30 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/21/013025sri3azqeqbq0b0pi.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -859,14 +551,7 @@ DS8G78748.jpg
 ##### 3043#       发表于 2018-5-21 01:31
 
 
-
-
 好歌剧和小特都是最近才走的，剧组在好歌剧走前这分镜安排太巧合了。
-
-
-
-
-
 
 
 -----
@@ -875,14 +560,7 @@ DS8G78748.jpg
 ##### 3044#       发表于 2018-5-21 01:33
 
 
-
-
 把框再拉长点，伏特加应该感到了寒意
-
-
-
-
-
 
 
 -----
@@ -891,14 +569,7 @@ DS8G78748.jpg
 ##### 3045#       发表于 2018-5-21 01:38
 
 
-
-
 别说高楼大厦，我估计原居民也不会有。因为不止铃鹿要出场，神鹰没退役那也是要回来参加日本杯的（当年神鹰退役就是在日本杯当天赛前）。
-
-
-
-
-
 
 
 -----
@@ -907,14 +578,7 @@ DS8G78748.jpg
 ##### 3046#       发表于 2018-5-21 01:39
 
 
-
-
 嘛，看后续安排，有也罢，没有也罢
-
-
-
-
-
 
 
 -----
@@ -923,15 +587,8 @@ DS8G78748.jpg
 ##### 3047#       发表于 2018-5-21 02:09
 
 
-
-
 这集看弹幕说几次我倒了几次。。。
 眼神不好（
-
-
-
-
-
 
 
 -----
@@ -940,16 +597,10 @@ DS8G78748.jpg
 ##### 3048#       发表于 2018-5-21 02:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39697473&amp;ptid=1590696" target="_blank">DOACAON 发表于 2018-5-21 01:38</a>
 
 别说高楼大厦，我估计原居民也不会有。因为不止铃鹿要出场，神鹰没退役那也是要回来参加日本杯的（当年神鹰 ...</blockquote>
 我觉得不大可能，做成神鹰回来参加日本杯，结果是要再做一个双冠还是要做成神鹰输给特别周啊<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -958,15 +609,7 @@ DS8G78748.jpg
 ##### 3049#       发表于 2018-5-21 02:19
 
 
-
-
 既然枫叶飘下了，是不是该让小特表现一回了？这集感觉之后应该让小特赢一次了吧，就是天皇赏秋啊。
-
-
-
-
-
-
 
 
 -----
@@ -975,23 +618,16 @@ DS8G78748.jpg
 ##### 3050#       发表于 2018-5-21 02:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39697584&amp;ptid=1590696" target="_blank">pwlong 发表于 2018-5-20 12:13</a>
 
 我觉得不大可能，做成神鹰回来参加日本杯，结果是要再做一个双冠还是要做成神鹰输给特别周啊 ...</blockquote>
 如果PA敢做小特赢过铃鹿，那也就敢做小特赢过神鹰
 
 
-
-
-
-
-
 -----
 
 ####  joshuafx  
 ##### 3051#       发表于 2018-5-21 02:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39696621&amp;ptid=1590696" target="_blank">shadow001 发表于 2018-5-20 23:30</a>
@@ -1002,25 +638,13 @@ DS8G78748.jpg
 手机不能免提的话岂不是iPhone18那么长了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拿个大长条，手机还不能弯。
 
 
-
-
-
-
-
 -----
 
 ####  hover  
 ##### 3052#       发表于 2018-5-21 02:51
 
 
-
-
 这一集真是砸招牌。无论画面、演出还是台词，全部都逗B化。搞笑情节完全是上个世纪的水平。可怜铃鹿刚振作起来就变成谐星！
-
-
-
-
-
 
 
 -----
@@ -1029,21 +653,13 @@ DS8G78748.jpg
 ##### 3053#       发表于 2018-5-21 02:52
 
 
-
-
 作画到凯旋门终于有点顶不住了，祈祷只是技术性调整，后面四场都是重要戏码啊<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  金色先锋  
 ##### 3054#       发表于 2018-5-21 03:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39697696&amp;ptid=1590696" target="_blank">hover 发表于 2018-5-21 02:51</a>
@@ -1054,16 +670,10 @@ DS8G78748.jpg
 看来是受pa毒害不浅啊233
 
 
-
-
-
-
-
 -----
 
 ####  金色先锋  
 ##### 3055#       发表于 2018-5-21 03:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39697696&amp;ptid=1590696" target="_blank">hover 发表于 2018-5-21 02:51</a>
@@ -1075,25 +685,13 @@ DS8G78748.jpg
 [https://xn--o9j0bk9l4k169rk1cxv4aci7a739c.com/post-6867](https://xn--o9j0bk9l4k169rk1cxv4aci7a739c.com/post-6867)
 
 
-
-
-
-
-
 -----
 
 ####  meailove  
 ##### 3056#       发表于 2018-5-21 03:59
 
 
-
-
 最近2集小特提铃鹿是不是太多了点，第7集处理的很好，铃鹿恢复确实也需要花时间处理，但是其实看到现在的观众有挺多都是看赛马（跑步）的，百合虽好，然而这种单调的体现方式很影响观感，并且比赛内容也减少了，虽然我知道是因为制作组想给主角找个输的理由，但是风格这一下转变太快还是让人很难适应
-
-
-
-
-
 
 
 -----
@@ -1102,13 +700,7 @@ DS8G78748.jpg
 ##### 3057#       发表于 2018-5-21 04:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">特别周真是一个罪孽深重的女人
-
-
-
-
-
 
 
 -----
@@ -1117,23 +709,15 @@ DS8G78748.jpg
 ##### 3058#       发表于 2018-5-21 06:05
 
 
-
-
 中间铃鹿突然颜艺有点出戏，但是
 
 同僚，她真可爱.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 3059#       发表于 2018-5-21 06:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39697413&amp;ptid=1590696" target="_blank">xiyue365 发表于 2018-5-21 01:24</a>
@@ -1143,16 +727,10 @@ DS8G78748.jpg
 听了小特一番话，神鹰回家又要被小草虐待了……
 
 
-
-
-
-
-
 -----
 
 ####  韩子  
 ##### 3060#       发表于 2018-5-21 07:25
-
 
 
 <blockquote>金色先锋 发表于 2018-5-21 03:26
@@ -1165,27 +743,15 @@ DS8G78748.jpg
 其实监督之前也用了类似的演出，比如大和伏特加黄金船一起把教练踢上天，就非常地高桥留美子。
 
 
-
-
-
-
-
 -----
 
 ####  nihse  
 ##### 3061#       发表于 2018-5-21 07:52
 
 
-
-
 这集崩的…万策尽了还是人力都放到接下来重要比赛回了啊…
 
 —— 来自 360 1801-A01, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2
-
-
-
-
-
 
 
 -----
@@ -1194,14 +760,7 @@ DS8G78748.jpg
 ##### 3062#       发表于 2018-5-21 08:11
 
 
-
-
 大家要相信十元p，一定是为了给live……我意思是跑步让步才会这么崩的！
-
-
-
-
-
 
 
 -----
@@ -1210,16 +769,10 @@ DS8G78748.jpg
 ##### 3063#       发表于 2018-5-21 08:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39697473&amp;ptid=1590696" target="_blank">DOACAON 发表于 2018-5-21 01:38</a>
 
 别说高楼大厦，我估计原居民也不会有。因为不止铃鹿要出场，神鹰没退役那也是要回来参加日本杯的（当年神鹰 ...</blockquote>
 神鷹參加98天皇賞秋是因為98天皇賞秋的第1名和神鷹是同一馬主=靈魂附體
-
-
-
-
-
 
 
 -----
@@ -1228,16 +781,9 @@ DS8G78748.jpg
 ##### 3064#       发表于 2018-5-21 08:33
 
 
-
-
 这集小特看到神鹰，兴趣又大增了，所以其实她是个强者控吧！草上飞这个方法说不定是可行的！只要你挡在她前面，她的目光才会停在你身上
 
 —— 来自 OnePlus ONEPLUS A5010, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -1246,16 +792,10 @@ DS8G78748.jpg
 ##### 3065#       发表于 2018-5-21 08:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39697199&amp;ptid=1590696" target="_blank">多多天下 发表于 2018-5-21 00:43</a>
 
 不过日本杯在有马前面，望族好不容易渲染出的最终boss气氛就让给了草上飞了。可能日本杯会作为最终战，把 ...</blockquote>
 想多了，就算是这话纯训练都塞了一场凯旋门，目前没有哪话是不比的。。
-
-
-
-
-
 
 
 -----
@@ -1264,23 +804,16 @@ DS8G78748.jpg
 ##### 3066#       发表于 2018-5-21 08:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39703555&amp;ptid=1590696" target="_blank">香蕉芭菲 发表于 2018-05-21 08:33:57</a>
 这集小特看到神鹰，兴趣又大增了，所以其实她是个强者控吧！草上飞这个方法说不定是可行的！只要你挡在她前 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">星云sky：那…那我呢…
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3067#       发表于 2018-5-21 08:43
-
 
 
  本帖最后由 Goisdust 于 2018-5-21 08:45 编辑 
@@ -1292,16 +825,10 @@ DS8G78748.jpg
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  香蕉芭菲  
 ##### 3068#       发表于 2018-5-21 08:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39703618&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-5-21 08:43</a>
@@ -1313,16 +840,10 @@ DS8G78748.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">仔细想想，从小特和神鹰pk过之后，星云sky的戏份就少很多了，小特真的是恶女！（喂
 
 
-
-
-
-
-
 -----
 
 ####  香蕉芭菲  
 ##### 3069#       发表于 2018-5-21 08:47
-
 
 
  本帖最后由 香蕉芭菲 于 2018-5-21 08:49 编辑 
@@ -1335,16 +856,10 @@ DS8G78748.jpg
 我也风怒了。
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 3070#       发表于 2018-5-21 08:49
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前看来上一话的比赛真的是目前最巅峰的一场了，分镜帅不拖泥带水
@@ -1353,32 +868,19 @@ DS8G78748.jpg
 草上飞若无其事的坐到了spica那边真是太强了
 
 
-
-
-
-
-
 -----
 
 ####  soranoguiji  
 ##### 3071#       发表于 2018-5-21 08:53
 
 
-
-
 其实上集的时候已经有日本阿宅怒喷竞马厨了，特别周大胜五个马位的德比和天皇赏春都没了，如果后面把7着和有马一鼻做出来我还真觉得这主角当的有点惨<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 3072#       发表于 2018-5-21 08:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39703663&amp;ptid=1590696" target="_blank">暗黑能乐 发表于 2018-5-21 08:49</a>
@@ -1389,16 +891,10 @@ DS8G78748.jpg
 其实我觉得她提出换队申请就好了……又不是不能换
 
 
-
-
-
-
-
 -----
 
 ####  zechins  
 ##### 3073#       发表于 2018-5-21 08:56
-
 
 
  本帖最后由 zechins 于 2018-5-21 09:13 编辑 
@@ -1419,24 +915,14 @@ DS8G78748.jpg
 2018-5-21 09:00 上传
 
 
-
-
-
-
 @hanyw 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">原画师是知道这集小草酱油，所以特地把上周该发的图留到这周发镇静病人吗
-
-
-
-
-
 
 
 -----
 
 ####  侃侃而谈喵泽西  
 ##### 3074#       发表于 2018-5-21 09:16
-
 
 
  本帖最后由 侃侃而谈喵泽西 于 2018-5-21 09:18 编辑 
@@ -1451,16 +937,10 @@ DS8G78748.jpg
 PS:心疼星云，明明也是饭桌四人组，连个画面都没
 
 
-
-
-
-
-
 -----
 
 ####  depthlee  
 ##### 3075#       发表于 2018-5-21 09:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39703648&amp;ptid=1590696" target="_blank">香蕉芭菲 发表于 2018-5-21 08:47</a>
@@ -1469,16 +949,10 @@ PS:心疼星云，明明也是饭桌四人组，连个画面都没
 然而幸运赢过斯陪酱的啊！可见其实斯陪是长发控！你仔细想想是不是这个道理！（或者是棕毛控！
 
 
-
-
-
-
-
 -----
 
 ####  百升飞上天  
 ##### 3076#       发表于 2018-5-21 09:23
-
 
 
 <blockquote>depthlee 发表于 2018-5-21 09:19
@@ -1486,16 +960,10 @@ PS:心疼星云，明明也是饭桌四人组，连个画面都没
     那我呢？发出草上飞的声音
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3077#       发表于 2018-5-21 09:46
-
 
 
  本帖最后由 musicat 于 2018-5-21 09:54 编辑 
@@ -1507,7 +975,6 @@ PS:心疼星云，明明也是饭桌四人组，连个画面都没
 本来就是一场不太关键的G2比赛，为了故事情节，G1天皇春赏都跳过了，拿冠军的G2跳过不说的就更多了。
 
 “无端端”的拿了一场和铃鹿有关的天皇赏，还不如把故事集中在下次的天皇秋赏里。 *知道是不同的比赛，只是容易让纯动画观众迷惑。
-
 
 
 这集最大的伏笔可能是，训练员说，希望看到Spc全队跑一场正式比赛，
@@ -1531,35 +998,19 @@ PS:心疼星云，明明也是饭桌四人组，连个画面都没
 利吉露+多位外国马娘，然后spc的某位，顺理成章的“日本总大将”。
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  fsjrday  
 ##### 3078#       发表于 2018-5-21 09:54
 
 
-
-
 不懂赛马不懂作画，看出心潮澎湃的感觉了。一集讲的内容也挺充实的，想买个BD（碧蓝套餐）了
-
-
-
-
-
 
 
 -----
 
 ####  多多天下  
 ##### 3079#       发表于 2018-5-21 09:57
-
 
 
  本帖最后由 多多天下 于 2018-5-21 10:02 编辑 
@@ -1577,16 +1028,10 @@ PS:心疼星云，明明也是饭桌四人组，连个画面都没
 其实想想这片子如果做分割放松，第一期只做98年会好很多吧。98年末WDT小特替代铃鹿登场，望着一马当先的皇帝决定来年要和铃鹿一起要站在台上，多好的1期结尾。这样其他成员也能多一些戏份，还能做做学园日常，虽然跑步很热血，但当时看游戏PV的时候还是很期待这些的
 
 
-
-
-
-
-
 -----
 
 ####  zechins  
 ##### 3080#       发表于 2018-5-21 09:58
-
 
 
 <img src="http://wx1.sinaimg.cn/mw690/0070WDskly1friq4wn366j30k50htagt.jpg" referrerpolicy="no-referrer">
@@ -1595,16 +1040,10 @@ PS:心疼星云，明明也是饭桌四人组，连个画面都没
 看人提到ブロワイエ是法语砕く的意思，让小鹰世界第一的梦想破灭的“夢を砕く”的意义吧
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3081#       发表于 2018-5-21 10:21
-
 
 
 <blockquote>musicat 发表于 2018-5-21 09:46
@@ -1616,16 +1055,10 @@ PS:心疼星云，明明也是饭桌四人组，连个画面都没
 不過也像多多天下所說，這麼早全員上場有點怪，說不定是天皇賞秋就鈴特一起參賽吧？
 
 
-
-
-
-
-
 -----
 
 ####  韩子  
 ##### 3082#       发表于 2018-5-21 10:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39704353&amp;ptid=1590696" target="_blank">zechins 发表于 2018-5-21 09:58</a>
@@ -1641,17 +1074,10 @@ PS:心疼星云，明明也是饭桌四人组，连个画面都没
 前面有人贴过了，来源是Montjeu→有个城堡叫Chateau de Montjeu→在法国的索恩·卢瓦尔省的“Broye”这个城市。
 
 
-
-
-
-
-
-
 -----
 
 ####  韩子  
 ##### 3083#       发表于 2018-5-21 10:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39702994&amp;ptid=1590696" target="_blank">nihse 发表于 2018-5-21 07:52</a>
@@ -1663,25 +1089,13 @@ PS:心疼星云，明明也是饭桌四人组，连个画面都没
 这集外包回啊，其实作画也还好，觉得崩的去看看vrains和GBD吧（x
 
 
-
-
-
-
-
 -----
 
 ####  depthlee  
 ##### 3084#       发表于 2018-5-21 10:27
 
 
-
-
 这一集前面教练摸塞冷头，和后面神鹰的哭真是揪心，就算没画面，倒不如说，真是因为没有画面才让人觉得特别痛心啊
-
-
-
-
-
 
 
 -----
@@ -1690,13 +1104,7 @@ PS:心疼星云，明明也是饭桌四人组，连个画面都没
 ##### 3085#       发表于 2018-5-21 10:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">最近有些观众扭曲过头，看的着重点不同，感觉让动画都变味了
-
-
-
-
-
 
 
 -----
@@ -1705,13 +1113,7 @@ PS:心疼星云，明明也是饭桌四人组，连个画面都没
 ##### 3086#       发表于 2018-5-21 10:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">怎么这么多人说崩啊。。。我昨晚看了两遍看的感动又开心的，也没觉得哪里特别作画崩坏的啊。。。
-
-
-
-
-
 
 
 -----
@@ -1720,16 +1122,10 @@ PS:心疼星云，明明也是饭桌四人组，连个画面都没
 ##### 3087#       发表于 2018-5-21 10:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39704743&amp;ptid=1590696" target="_blank">depthlee 发表于 2018-5-21 10:27</a>
 
 这一集前面教练摸塞冷头，和后面神鹰的哭真是揪心，就算没画面，倒不如说，真是因为没有画面才让人觉得特别 ...</blockquote>
 神鹰那段的演出好评，虽然都是套路，但是看着声音渐渐变成哭腔，还边哭变哈哈哈地笑出来，镜头还一直对着通讯录上面那个笑靥如花的头像，这种把实际画面交给观众想象力的处理方式太赞了。
-
-
-
-
-
 
 
 -----
@@ -1738,22 +1134,13 @@ PS:心疼星云，明明也是饭桌四人组，连个画面都没
 ##### 3088#       发表于 2018-5-21 10:51
 
 
-
-
 星云天空：剧组我要戏份！下一场天皇赏是我最后的比赛了！求给多戏份别过！还有跟小特的互动也给我多点！
-
-
-
-
-
 
 
 -----
 
 ####  sherlockchu  
 ##### 3089#       发表于 2018-5-21 10:51
-
-
 
 
 看了战吧某帖，已经无法直视这话的剧情了……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -1763,32 +1150,19 @@ PS:心疼星云，明明也是饭桌四人组，连个画面都没
 除了特别渣，铃鹿、神鹰、草上飞都知道这句话的言外之意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  izumlily  
 ##### 3090#       发表于 2018-5-21 10:52
 
 
-
-
 ED里spc全员排序是依据什么规律,小特铃鹿排前二好理解,为什么伏特加排第三
-
-
-
-
-
 
 
 -----
 
 ####  musicat  
 ##### 3091#       发表于 2018-5-21 10:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39705029&amp;ptid=1590696" target="_blank">韩子 发表于 2018-5-21 10:47</a>
@@ -1802,16 +1176,10 @@ ED里spc全员排序是依据什么规律,小特铃鹿排前二好理解,为什�
 “帝国凶暴虎”，“帝国破坏龙”，解说届都是人才。
 
 
-
-
-
-
-
 -----
 
 ####  vrb  
 ##### 3092#       发表于 2018-5-21 11:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39698274&amp;ptid=1590696" target="_blank">金色先锋 发表于 2018-5-21 03:26</a>
@@ -1822,33 +1190,20 @@ ED里spc全员排序是依据什么规律,小特铃鹿排前二好理解,为什�
 动画观众与赛马观众的区别
 
 
-
-
-
-
-
 -----
 
 ####  神户⑨小鸟  
 ##### 3093#       发表于 2018-5-21 11:07
 
 
-
-
 特别周游戏里建模的标志性ドヤ顔
 <img src="http://wx1.sinaimg.cn/large/867a2f5dgy1fris7n1rmpj216o1kwnpf.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 3094#       发表于 2018-5-21 11:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39705100&amp;ptid=1590696" target="_blank">izumlily 发表于 2018-5-21 10:52</a>
@@ -1858,16 +1213,10 @@ ED里spc全员排序是依据什么规律,小特铃鹿排前二好理解,为什�
 —— 來自 samsung SM-J5007, Android 5.1.1上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
-
-
-
-
-
 -----
 
 ####  celadon  
 ##### 3095#       发表于 2018-5-21 12:13
-
 
 
  本帖最后由 celadon 于 2018-5-21 12:17 编辑 
@@ -1883,26 +1232,13 @@ ED里spc全员排序是依据什么规律,小特铃鹿排前二好理解,为什�
 伏特加达比参赛号码就是3号
 
 
-
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3096#       发表于 2018-5-21 12:15
 
 
-
-
 好想赶快玩上游戏啊……
-
-
-
-
-
 
 
 -----
@@ -1911,15 +1247,9 @@ ED里spc全员排序是依据什么规律,小特铃鹿排前二好理解,为什�
 ##### 3097#       发表于 2018-5-21 12:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39696713&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-5-20 23:39</a>
 一般想塑造一个“欧美角色”，金发这个标识是少不了的</blockquote>
 既然是欧洲马，其实配合毛发做成黑皮现在看来也是挺合适的。
-
-
-
-
-
 
 
 -----
@@ -1928,24 +1258,16 @@ ED里spc全员排序是依据什么规律,小特铃鹿排前二好理解,为什�
 ##### 3098#       发表于 2018-5-21 12:37
 
 
-
-
 重新看了一遍
 
 
 ………………池泽春菜这法语发音完全不行啊，难道对日本人来说这样的水平已经可以吹了吗？唉orz
 
 
-
-
-
-
-
 -----
 
 ####  nylonchina1  
 ##### 3099#       发表于 2018-5-21 12:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39704213&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-21 09:46</a>
@@ -1956,16 +1278,10 @@ ED里spc全员排序是依据什么规律,小特铃鹿排前二好理解,为什�
 直接来个梦的11次比赛吧
 
 
-
-
-
-
-
 -----
 
 ####  PENTAX-DA  
 ##### 3100#       发表于 2018-5-21 12:46
-
 
 
  本帖最后由 PENTAX-DA 于 2018-5-21 12:47 编辑 
@@ -1977,20 +1293,13 @@ ED里spc全员排序是依据什么规律,小特铃鹿排前二好理解,为什�
 无铃鹿参赛，就是精神鼓舞了，别搞得一堆回忆杀那么坏节奏就ok了
 
 
-
 不过赛前小特一定要骑脸嘲讽望族才带劲
-
-
-
-
-
 
 
 -----
 
 ####  物流大亨常凯申  
 ##### 3101#       发表于 2018-5-21 12:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39706560&amp;ptid=1590696" target="_blank">韩子 发表于 2018-5-21 12:37</a>
@@ -2005,16 +1314,10 @@ ED里spc全员排序是依据什么规律,小特铃鹿排前二好理解,为什�
 你看德国人听bios第一反应就是，唱的什么JB
 
 
-
-
-
-
-
 -----
 
 ####  神户⑨小鸟  
 ##### 3102#       发表于 2018-5-21 12:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39706560&amp;ptid=1590696" target="_blank">韩子 发表于 2018-5-21 12:37</a>
@@ -2027,16 +1330,10 @@ ED里spc全员排序是依据什么规律,小特铃鹿排前二好理解,为什�
 <img src="http://wx2.sinaimg.cn/large/867a2f5dgy1friv6bb6qmj21050u74qp.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 3103#       发表于 2018-5-21 12:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39706667&amp;ptid=1590696" target="_blank">PENTAX-DA 发表于 2018-5-21 12:46</a>
@@ -2049,16 +1346,10 @@ ED里spc全员排序是依据什么规律,小特铃鹿排前二好理解,为什�
 没得玩
 
 
-
-
-
-
-
 -----
 
 ####  韩子  
 ##### 3104#       发表于 2018-5-21 12:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39706709&amp;ptid=1590696" target="_blank">神户⑨小鸟 发表于 2018-5-21 12:49</a>
@@ -2070,16 +1361,10 @@ ED里spc全员排序是依据什么规律,小特铃鹿排前二好理解,为什�
 Broye和神鹰的第二次对话直接就用“Tu”称呼她了，无论从人物关系还是角色设定这都算崩了吧（。
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3105#       发表于 2018-5-21 12:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39706667&amp;ptid=1590696" target="_blank">PENTAX-DA 发表于 2018-5-21 12:46</a>
@@ -2090,16 +1375,10 @@ Broye和神鹰的第二次对话直接就用“Tu”称呼她了，无论从人�
 赛马组队不少见的
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3106#       发表于 2018-5-21 12:55
-
 
 
 <blockquote>PENTAX-DA 发表于 2018-5-21 12:46
@@ -2109,17 +1388,10 @@ Broye和神鹰的第二次对话直接就用“Tu”称呼她了，无论从人�
 噴了這不就是WP坑差追NPC馬的戰術嗎w
 
 
-
-
-
-
-
 -----
 
 ####  PENTAX-DA  
 ##### 3107#       发表于 2018-5-21 13:08
-
-
 
 
 是铃鹿，铃鹿下山啦
@@ -2128,32 +1400,19 @@ Broye和神鹰的第二次对话直接就用“Tu”称呼她了，无论从人�
 赛马娘的本质，也是复读机
 
 
-
-
-
-
-
 -----
 
 ####  κύων  
 ##### 3108#       发表于 2018-5-21 13:23
 
 
-
-
 “草上飞”这个名字我一直以为是Grass Wander，一查才发现是Grass Wonder，这是怎么翻成“草上飞”的？
-
-
-
-
-
 
 
 -----
 
 ####  神王西格玛  
 ##### 3109#       发表于 2018-5-21 13:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39706560&amp;ptid=1590696" target="_blank">韩子 发表于 2018-5-21 12:37</a>
@@ -2165,25 +1424,13 @@ Broye和神鹰的第二次对话直接就用“Tu”称呼她了，无论从人�
 想听法文回去看Waifu，哦不是Wakfu啊
 
 
-
-
-
-
-
 -----
 
 ####  loli炮  
 ##### 3110#       发表于 2018-5-21 13:43
 
 
-
-
 小鹰这集刷满好感了
-
-
-
-
-
 
 
 -----
@@ -2192,24 +1439,16 @@ Broye和神鹰的第二次对话直接就用“Tu”称呼她了，无论从人�
 ##### 3111#       发表于 2018-5-21 14:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39707309&amp;ptid=1590696" target="_blank">神王西格玛 发表于 2018-5-21 13:35</a>
 
 想听法文回去看Waifu，哦不是Wakfu啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">这集可是日本人自己吹了一通法语的，不然谁会吐槽啊
 
 
-
-
-
-
-
 -----
 
 ####  zechins  
 ##### 3112#       发表于 2018-5-21 14:55
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201805/21/145211nnk62an68rcxgo23.jpg" referrerpolicy="no-referrer">
@@ -2222,23 +1461,13 @@ Broye和神鹰的第二次对话直接就用“Tu”称呼她了，无论从人�
 2018-5-21 14:52 上传
 
 
-
-
-
-
 哈哈哈哈哈，入部了也被埋了啊spe酱<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  DOACAON  
 ##### 3113#       发表于 2018-5-21 14:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39707662&amp;ptid=1590696" target="_blank">韩子 发表于 2018-5-21 00:06</a>
@@ -2249,16 +1478,10 @@ Broye和神鹰的第二次对话直接就用“Tu”称呼她了，无论从人�
 考虑到池泽的出身，搞不好她说的是希腊味法语
 
 
-
-
-
-
-
 -----
 
 ####  韩子  
 ##### 3114#       发表于 2018-5-21 15:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39708224&amp;ptid=1590696" target="_blank">DOACAON 发表于 2018-5-21 14:55</a>
@@ -2274,26 +1497,14 @@ Broye和神鹰的第二次对话直接就用“Tu”称呼她了，无论从人�
 法语有非常多日语里面没有元音辅音，港真直接让法国角色说日语也没问题嘛（。
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3115#       发表于 2018-5-21 15:07
 
 
-
-
 看數值有速度,體力,加速,根性,聰明度
 [https://wiki.denfaminicogamer.jp ... E%E8%A6%8B%E6%96%B9](https://wiki.denfaminicogamer.jp/umamusu_prettyderby/%E3%82%B2%E3%83%BC%E3%83%A0%E7%94%BB%E9%9D%A2%E3%81%AE%E8%A6%8B%E6%96%B9)
-
-
-
-
-
 
 
 -----
@@ -2302,21 +1513,13 @@ Broye和神鹰的第二次对话直接就用“Tu”称呼她了，无论从人�
 ##### 3116#       发表于 2018-5-21 15:09
 
 
-
-
 手游快开啊 等不及了
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 3117#       发表于 2018-5-21 15:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39707163&amp;ptid=1590696" target="_blank">κύων 发表于 2018-5-21 13:23</a>
@@ -2327,25 +1530,13 @@ A wonder is something that causes people to feel great surprise or admiration
 用飞可以理解；wander就是晃晃悠悠了
 
 
-
-
-
-
-
 -----
 
 ####  celadon  
 ##### 3118#       发表于 2018-5-21 15:16
 
 
-
-
 我一直有个疑问，日本杯小特的日本总大将的称号是怎么来的？并不是赢了之后才喊的，开赛前就有解说这么说了，而其他看过的日本杯视频里没有这么称呼过其他马，手头资料比较少故有此一问。
-
-
-
-
-
 
 
 -----
@@ -2354,16 +1545,10 @@ A wonder is something that causes people to feel great surprise or admiration
 ##### 3119#       发表于 2018-5-21 15:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39708221&amp;ptid=1590696" target="_blank">zechins 发表于 2018-5-21 14:55</a>
 
 哈哈哈哈哈，入部了也被埋了啊spe酱</blockquote>
 所以说最开始实拍做出海报的三位还真是神经病呢……
-
-
-
-
-
 
 
 -----
@@ -2372,14 +1557,7 @@ A wonder is something that causes people to feel great surprise or admiration
 ##### 3120#       发表于 2018-5-21 15:23
 
 
-
-
 说起来小特还有个无冕的称号，我最初还以为是JRA给取的，然而宣传片里写的是德比马，这难道是以前的粉丝叫出来的？
-
-
-
-
-
 
 
 -----
@@ -2388,16 +1566,10 @@ A wonder is something that causes people to feel great surprise or admiration
 ##### 3121#       发表于 2018-5-21 15:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39708482&amp;ptid=1590696" target="_blank">celadon 发表于 2018-5-21 15:16</a>
 
 我一直有个疑问，日本杯小特的日本总大将的称号是怎么来的？并不是赢了之后才喊的，开赛前就有解说这么说了 ...</blockquote>
 那次有6隻外國馬參戰,然後日本一方真叫厲害的也就特別週吧(不然期待阿寒湖特別嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2406,27 +1578,15 @@ A wonder is something that causes people to feel great surprise or admiration
 ##### 3122#       发表于 2018-5-21 15:44
 
 
-
-
-
-
-
-
 3个不同的up主搬运的黄金船视频，这马真是太逗，超级爱出风头的性格。
 
 怪不得大家抢着上传。
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 3123#       发表于 2018-5-21 15:52
-
 
 
 id=68843561
@@ -2441,22 +1601,10 @@ id=68843561
 2018-5-21 15:52 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  κύων  
 ##### 3124#       发表于 2018-5-21 16:10
-
-
 
 
 没想到铃鹿复活得这么快，而且似乎合宿时实力还是spica最强，那后面日本总大将可能要魔改啊。
@@ -2466,16 +1614,10 @@ id=68843561
 另外上集最后铃鹿到底干啥去了？
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3125#       发表于 2018-5-21 16:19
-
 
 
  本帖最后由 Goisdust 于 2018-5-21 16:20 编辑 
@@ -2486,16 +1628,10 @@ id=68843561
 —— 來自 samsung SM-J5007, Android 5.1.1上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3126#       发表于 2018-5-21 16:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39708569&amp;ptid=1590696" target="_blank">soranoguiji 发表于 2018-5-21 15:23</a>
@@ -2504,16 +1640,10 @@ id=68843561
 没听说这个称号……倒是不少日本马迷之前就爱称特别周“主人公”
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3127#       发表于 2018-5-21 16:28
-
 
 
  本帖最后由 musicat 于 2018-5-21 16:31 编辑 
@@ -2541,7 +1671,6 @@ if归if，该史实的时候还是会按照史实来的。
 心情郁闷，跑出去发泄一下而已。
 
 
-
 ===============
 
 另外B站上看到08年”伊丽莎白女王杯“的视频了，那场大家说的，
@@ -2559,19 +1688,10 @@ if归if，该史实的时候还是会按照史实来的。
 是你限制了我的实力！
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  p35535  
 ##### 3128#       发表于 2018-5-21 16:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39709349&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-21 16:28</a>
@@ -2585,16 +1705,10 @@ if归if，该史实的时候还是会按照史实来的。
 —— 来自 OPPO R9s Plus, Android 6.0.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3129#       发表于 2018-5-21 16:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39709349&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-21 16:28</a>
@@ -2607,16 +1721,10 @@ if归if，该史实的时候还是会按照史实来的。
 少了骑手，起码比其他马少负重50kg吧，跑的快也正常……比较少有的是居然跑完了……
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3130#       发表于 2018-5-21 16:38
-
 
 
  本帖最后由 musicat 于 2018-5-21 16:44 编辑 
@@ -2635,16 +1743,10 @@ if归if，该史实的时候还是会按照史实来的。
 不愧是竞马。
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3131#       发表于 2018-5-21 16:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39709468&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-21 16:38</a>
@@ -2655,25 +1757,13 @@ if归if，该史实的时候还是会按照史实来的。
 说明还是有些斗心吧，不过这匹马的习性好像很不稳定的样子，虽然是超良血马
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 3132#       发表于 2018-5-21 16:47
 
 
-
-
 望族给神鹰签的“我会比鹰飞的更快”，跟后面望族加速时候音效是飞机飞过的声音相呼应了，挺有意思的
-
-
-
-
-
 
 
 -----
@@ -2682,14 +1772,7 @@ if归if，该史实的时候还是会按照史实来的。
 ##### 3133#       发表于 2018-5-21 16:50
 
 
-
-
 感觉spica全员一起跑的会放到13话去吧
-
-
-
-
-
 
 
 -----
@@ -2698,23 +1781,15 @@ if归if，该史实的时候还是会按照史实来的。
 ##### 3134#       发表于 2018-5-21 17:03
 
 
-
-
 去youtube上看了看99年的凯旋门杯，这集也是基本还原，大部分时间神鹰用逃的跑法领先，最后望族追了上来，以半个马身赢了
 
 解说台词也是还原了，特别周她们喊得“追上来了”三连发就是当时的解说词，最后“神鹰真的很努力了”也还原了
-
-
-
-
-
 
 
 -----
 
 ####  musicat  
 ##### 3135#       发表于 2018-5-21 17:13
-
 
 
  本帖最后由 musicat 于 2018-5-21 17:15 编辑 
@@ -2736,16 +1811,10 @@ Almond Eye 大优势赢了，加上之前已经赢下了樱花赏，雌马3冠�
 然后这周末，就是新的一届日本德比了。
 
 
-
-
-
-
-
 -----
 
 ####  百升飞上天  
 ##### 3136#       发表于 2018-5-21 17:24
-
 
 
 <blockquote>celadon 发表于 2018-5-21 15:16
@@ -2753,16 +1822,10 @@ Almond Eye 大优势赢了，加上之前已经赢下了樱花赏，雌马3冠�
 那次好像日本名马中也就特别周出战的吧
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3137#       发表于 2018-5-21 17:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39709922&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-21 17:13</a>
@@ -2775,16 +1838,10 @@ Almond Eye 大优势赢了，加上之前已经赢下了樱花赏，雌马3冠�
 Almond Eye不一定会跑秋华吧，野心大的话说不定会去跑凯旋门？反正凯旋门3岁牝马希望最大。
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 3138#       发表于 2018-5-21 17:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39709114&amp;ptid=1590696" target="_blank">κύων 发表于 2018-5-21 02:10</a>
@@ -2796,16 +1853,10 @@ Almond Eye不一定会跑秋华吧，野心大的话说不定会去跑凯旋门�
 由于史实上99年日本杯有一大堆日本名马由于各种各样的原因无法出赛，不如动画就搞成流感大流行，整个学校半数马躺平，百病不侵的小特被迫硬着头皮当上特雷森学园的代表
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3139#       发表于 2018-5-21 17:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39709922&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-21 17:13</a>
@@ -2818,16 +1869,10 @@ Almond Eye 大优势赢了，加上之前已经赢下了樱花赏，雌马3冠�
 —— 來自 samsung SM-J5007, Android 5.1.1上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3140#       发表于 2018-5-21 17:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39710086&amp;ptid=1590696" target="_blank">百升飞上天 发表于 2018-5-21 17:24</a>
@@ -2836,16 +1881,10 @@ Almond Eye 大优势赢了，加上之前已经赢下了樱花赏，雌马3冠�
 还有当时快退役的黄金旅程……
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3141#       发表于 2018-5-21 17:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39710147&amp;ptid=1590696" target="_blank">xzhei 发表于 2018-5-21 17:30</a>
@@ -2867,26 +1906,15 @@ Almond Eye不一定会跑秋华吧，野心大的话说不定会 ...</blockquote
 让死宅实际出去露营都没问题，大热天坐在空调房里看比赛，不难做到啊。
 
 
-
-
-
-
-
 -----
 
 ####  百升飞上天  
 ##### 3142#       发表于 2018-5-21 17:36
 
 
-
 <blockquote>xzhei 发表于 2018-5-21 17:33
 还有当时快退役的黄金旅程……</blockquote>
 阿寒湖当时那战绩
-
-
-
-
-
 
 
 -----
@@ -2895,16 +1923,10 @@ Almond Eye不一定会跑秋华吧，野心大的话说不定会 ...</blockquote
 ##### 3143#       发表于 2018-5-21 17:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39710234&amp;ptid=1590696" target="_blank">百升飞上天 发表于 2018-5-21 17:36</a>
 
 阿寒湖当时那战绩</blockquote>
 那时候已经不是阿寒湖了，起码赢过G2，就是年纪已经很大了，还好最后在香港赢了个G1
-
-
-
-
-
 
 
 -----
@@ -2913,23 +1935,16 @@ Almond Eye不一定会跑秋华吧，野心大的话说不定会 ...</blockquote
 ##### 3144#       发表于 2018-5-21 17:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39710166&amp;ptid=1590696" target="_blank">DOACAON 发表于 2018-5-21 17:31</a>
 
 由于史实上99年日本杯有一大堆日本名马由于各种各样的原因无法出赛，不如动画就搞成流感大流行，整个学校 ...</blockquote>
 这有点靠谱的样子，不然迎战望族再怎么说也应该是同队的草上飞、皇帝、成田白仁的事，总不能他们不参赛反而是特别周当了个日本总大将
 
 
-
-
-
-
-
 -----
 
 ####  lyzcs  
 ##### 3145#       发表于 2018-5-21 17:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39709226&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-5-21 16:19</a>
@@ -2940,32 +1955,19 @@ Almond Eye不一定会跑秋华吧，野心大的话说不定会 ...</blockquote
 不过这个叫法确实应该就只是wpstud流传出来的
 
 
-
-
-
-
-
 -----
 
 ####  恶魔娘阿洛  
 ##### 3146#       发表于 2018-5-21 17:40
 
 
-
-
 这几天马娘专楼怎么涨的这么快！你们别卖假药了！（发出草上飞的声音）
-
-
-
-
-
 
 
 -----
 
 ####  xzhei  
 ##### 3147#       发表于 2018-5-21 17:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39710223&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-21 17:35</a>
@@ -2978,16 +1980,10 @@ Almond Eye不一定会跑秋华吧，野心大的话说不定会 ...</blockquote
 不过动画里都是过去的马吧，就连种马大都退役了，纯动画宅可能不一定对现在的马有兴趣。
 
 
-
-
-
-
-
 -----
 
 ####  lyzcs  
 ##### 3148#       发表于 2018-5-21 17:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39710147&amp;ptid=1590696" target="_blank">xzhei 发表于 2018-5-21 17:30</a>
@@ -2998,16 +1994,10 @@ Almond Eye不一定会跑秋华吧，野心大的话说不定会 ...</blockquote
 lucky lilac之前就有消息报名参加凯旋门，结果橡树赛只得了个第三。。。本身偏早熟估计之后也不会有太大成长了
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3149#       发表于 2018-5-21 17:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39710408&amp;ptid=1590696" target="_blank">lyzcs 发表于 2018-5-21 17:47</a>
@@ -3016,32 +2006,19 @@ lucky lilac之前就有消息报名参加凯旋门，结果橡树赛只得了个
 2400应该没希望了……凯旋门听说是不会去跑了
 
 
-
-
-
-
-
 -----
 
 ####  classa  
 ##### 3150#       发表于 2018-5-21 17:57
 
 
-
-
 参加日本杯，估计日本内部也要有一把选拔赛吧，要不就来个if让草上飞，灵鹿，小周都参加吧，小周第一
-
-
-
-
-
 
 
 -----
 
 ####  D-JoeII  
 ##### 3151#       发表于 2018-5-21 18:01
-
 
 
  本帖最后由 D-JoeII 于 2018-5-21 18:03 编辑 
@@ -3055,16 +2032,10 @@ G2是2000贏的,99年日本盃還是阿寒湖
 另外牠01年底才退役,99日本盃後還再跑了2年多
 
 
-
-
-
-
-
 -----
 
 ####  百升飞上天  
 ##### 3152#       发表于 2018-5-21 18:06
-
 
 
 <blockquote>xzhei 发表于 2018-5-21 17:37
@@ -3074,16 +2045,10 @@ G2是2000贏的,99年日本盃還是阿寒湖
 只赢g2还是不够啊，还不如if黄金船代父出征，毕竟黄金船动画里面和玲鹿相仿
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3153#       发表于 2018-5-21 18:13
-
 
 
  本帖最后由 xzhei 于 2018-5-21 18:18 编辑 
@@ -3095,32 +2060,19 @@ G2是2000贏的,99年日本盃還是阿寒湖
 啊，年数搞错了，99年的话属于状态还可以，但赢不了比赛的时期，后来换了主战才好起来
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3154#       发表于 2018-5-21 19:03
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">经你们提醒才想到动画阿特现在是2胜4败1平（1胜是新马赛）啊…
-
-
-
-
-
 
 
 -----
 
 ####  神户⑨小鸟  
 ##### 3155#       发表于 2018-5-21 19:05
-
-
 
 
 上一页有人提到这话跟99凯旋门差不多基本都还原了
@@ -3133,16 +2085,10 @@ G2是2000贏的,99年日本盃還是阿寒湖
 那个 嫁の第11レース 貌似除了黄金船和小草以外，动画基本的主役都包含了，最后不会真这么跑吧？
 
 
-
-
-
-
-
 -----
 
 ####  金色先锋  
 ##### 3156#       发表于 2018-5-21 19:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39710166&amp;ptid=1590696" target="_blank">DOACAON 发表于 2018-5-21 17:31</a>
@@ -3151,16 +2097,10 @@ G2是2000贏的,99年日本盃還是阿寒湖
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">特地去查了下，确实有马流感，但是马流感流行区马匹的流动和比赛都是停止的
 
 
-
-
-
-
-
 -----
 
 ####  寿由香里  
 ##### 3157#       发表于 2018-5-21 19:11
-
 
 
 <blockquote>引用第3153楼Goisdust于2018-05-21 19:03发表的  :
@@ -3174,26 +2114,15 @@ G2是2000贏的,99年日本盃還是阿寒湖
 ----发送自 [HUAWEI PE-TL20,Android 4.4.2](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  百升飞上天  
 ##### 3158#       发表于 2018-5-21 19:41
 
 
-
 <blockquote>Goisdust 发表于 2018-5-21 19:03
 经你们提醒才想到动画阿特现在是2胜4败1平（1胜是新马赛）啊…</blockquote>
 阿特参加皋月赏前不是有两胜吗
-
-
-
-
-
 
 
 -----
@@ -3202,21 +2131,13 @@ G2是2000贏的,99年日本盃還是阿寒湖
 ##### 3159#       发表于 2018-5-21 19:52
 
 
-
-
 看了遍熟肉后觉得训练员训人那段如果有好点的作画 会更有感染力啊 可惜了
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 3160#       发表于 2018-5-21 19:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39709349&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-21 16:28</a>
@@ -3229,16 +2150,10 @@ if归if，该史实的时候还是会按照史实来的。
 85年击败过鲁道夫的Gallop Dyna也发生过一模一样的事情，也是拿第一。不过解说员很镇静地从头到尾无视没有骑手还在跑的那匹马<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 3161#       发表于 2018-5-21 20:34
-
 
 
  本帖最后由 DOACAON 于 2018-5-21 06:37 编辑 
@@ -3263,16 +2178,10 @@ Montjeu, a bay horse standing 16.1 hands high, was bred in Ireland by Sir James 
 完全连起来了，并不是单纯的同名，而是Montjeu就是用这座城堡命名的。
 
 
-
-
-
-
-
 -----
 
 ####  loli炮  
 ##### 3162#       发表于 2018-5-21 20:49
-
 
 
  本帖最后由 loli炮 于 2018-5-21 20:58 编辑 
@@ -3280,16 +2189,10 @@ Montjeu, a bay horse standing 16.1 hands high, was bred in Ireland by Sir James 
 已经有了 
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3163#       发表于 2018-5-21 21:04
-
 
 
  本帖最后由 D-JoeII 于 2018-5-21 21:06 编辑 
@@ -3304,16 +2207,10 @@ Montjeu, a bay horse standing 16.1 hands high, was bred in Ireland by Sir James 
 <img src="https://i.imgur.com/EarUM5K.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  韩子  
 ##### 3164#       发表于 2018-5-21 21:44
-
 
 
 <blockquote>DOACAON 发表于 2018-5-21 20:34
@@ -3325,17 +2222,10 @@ Montjeu的英语维基词条写道：
 是啊，然后马主的名字还叫去黄金巨匠（大雾
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3165#       发表于 2018-5-21 21:45
-
-
 
 
 Kxiang @kisetsu2010
@@ -3348,14 +2238,8 @@ Kxiang @kisetsu2010
 阿草<img src="https://static.saraba1st.com/image/smiley/carton2017/169.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
 DduFxCkV0AAxb7e.png
 (747.47 KB, 下载次数: 4)
-
-
 
 
 下载附件
@@ -3364,24 +2248,7 @@ DduFxCkV0AAxb7e.png
 2018-5-21 21:44 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/21/214412flqpy36ye64qoqe6.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -3390,14 +2257,7 @@ DduFxCkV0AAxb7e.png
 ##### 3166#       发表于 2018-5-21 22:05
 
 
-
-
 望族在日本杯后半段还没追上原居民和高楼大厦，之后小特追上来后望族连前三都未进，这boss是烟雾弹，原居民或是高楼大厦下集说不定会出场看谁才是小特的真.Boss，
-
-
-
-
-
 
 
 -----
@@ -3406,22 +2266,13 @@ DduFxCkV0AAxb7e.png
 ##### 3167#       发表于 2018-5-21 22:26
 
 
-
-
 退役赛马大都被送去屠宰，大部分被食用，我眼前已经浮现出好几个guro的本子，敲碗坐等！<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  天狼Q娃  
 ##### 3168#       发表于 2018-5-21 22:30
-
-
 
 
 瞎猜第十集，特星糖，特铃糖天皇赏回，安插IF铃鹿也在天皇赏克服赛场恶梦，小特发动极限超越铃鹿，星云天空，陪跑王，然后小特赢第一，铃鹿第二，武丰再来说道仿佛铃鹿助攻，星云天空祝福小特，陪跑王和黄金旅程马甲微笑，最后镜头转到机场各国的马王到来，望族，原居民，高楼大厦等马甲，高潮日本杯开启。
@@ -3438,16 +2289,10 @@ DduFxCkV0AAxb7e.png
 第十三集：全员日常交流，之后梦之杯，两队伍全员上场，完结散花。宣布第二季启动，OVA广告。完美。
 
 
-
-
-
-
-
 -----
 
 ####  Laie  
 ##### 3169#       发表于 2018-5-21 22:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39706769&amp;ptid=1590696" target="_blank">韩子 发表于 2018-5-21 12:54</a>
@@ -3472,22 +2317,10 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 2018-5-21 22:34 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  zechins  
 ##### 3170#       发表于 2018-5-21 22:48
-
 
 
 <img src="http://wx3.sinaimg.cn/mw690/0070WDskly1frjcbo2o2oj30b40cin4j.jpg" referrerpolicy="no-referrer">
@@ -3495,16 +2328,10 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">毫无违和
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3171#       发表于 2018-5-21 22:53
-
 
 
  本帖最后由 D-JoeII 于 2018-5-21 23:01 编辑 
@@ -3514,16 +2341,10 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 突然想到法國那邊的馬娘贏了是不是演歌劇啊(然後按排名分配角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 3172#       发表于 2018-5-21 22:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39713207&amp;ptid=1590696" target="_blank">Laie 发表于 2018-5-21 22:46</a>
@@ -3535,16 +2356,10 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 还是西班牙语简单
 
 
-
-
-
-
-
 -----
 
 ####  普罗茶  
 ##### 3173#       发表于 2018-5-21 22:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39713266&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-5-21 22:53</a>
@@ -3553,24 +2368,13 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 演歌剧有点dio 有这能力还跑什么步<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 3174#       发表于 2018-5-21 22:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">阿草这张美炸了，小特你赶紧看着她啊
-
-
-
-
-
 
 
 -----
@@ -3579,16 +2383,10 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 ##### 3175#       发表于 2018-5-21 23:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39713066&amp;ptid=1590696" target="_blank">天狼Q娃 发表于 2018-5-21 22:30</a>
 
 瞎猜第十集，特星糖，特铃糖天皇赏回，安插IF铃鹿也在天皇赏克服赛场恶梦，小特发动极限超越铃鹿，星云天空 ...</blockquote>
 這片就算沒版權角色也大概沒招黑性格型馬娘的,望族大概就是那種走到那都自帶背景類,另外兩隻能加點背景的話,大概原居民是要證明香港的馬娘不是辣雞的心態(日本盃那場牠獨贏冷到80多倍),高樓大廈比示我只是來旅遊順帶比賽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3597,16 +2395,9 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 ##### 3176#       发表于 2018-5-21 23:29
 
 
-
-
 歌剧……宝塚的音乐剧因为是流行唱法还好，歌剧让女性来唱男役会超违和的吧，音域的差距过大了
 
 歌剧里有全女性角色的著名唱段吗？
-
-
-
-
-
 
 
 -----
@@ -3615,20 +2406,13 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 ##### 3177#       发表于 2018-5-21 23:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我只想看阿草，没阿草的戏份有什么好看的
-
-
-
-
-
 
 
 -----
 
 ####  韩子  
 ##### 3178#       发表于 2018-5-22 00:48
-
 
 
 <blockquote>Laie 发表于 2018-5-21 22:46
@@ -3639,17 +2423,10 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 更别说望族根本是上流人士的人设，这里用Tu完全是性格崩坏…
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 3179#       发表于 2018-5-22 00:50
-
-
 
 
 这番石原功劳也很大，压住另一个编剧不乱来，这编剧上部的熊巫女最终话导致业界话题烂尾，如果没有石原负责一半，这人最终话谁知会搞事，前面攒的好一个烂尾的最终话毁于一切，PA找有前科的来也是心大。
@@ -3658,16 +2435,10 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 如果没有石原压住话，假设游戏有结婚元素话，最终话铃鹿突然要跟训练员结婚，来宣传结婚系统玩家可跟自己的马娘结婚，前面的特铃糖全毁，口碑炸裂，CY找人要编剧手脚。
 
 
-
-
-
-
-
 -----
 
 ####  韩子  
 ##### 3180#       发表于 2018-5-22 00:58
-
 
 
 <blockquote>Laie 发表于 2018-5-21 22:46
@@ -3678,32 +2449,19 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 实际上望族这种直接捏他凡尔赛玫瑰的外形，与其说是根据赛马进行拟人，不如说是日本人虚构那种典型刻板印象法国贵族（像少战的毛妹们一样现实中不存在的老外，也不能拿我们留学的经验来套）……剧情里和神鹰之间表现出来的那种带有距离感的交往方式也是一方面，总之突然蹦出个Tu违和感挺强的。
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 3181#       发表于 2018-5-22 01:00
 
 
-
-
 原居民的服装可能性，李小龙服装，旗袍，僵尸道仙、
-
-
-
-
-
 
 
 -----
 
 ####  韩子  
 ##### 3182#       发表于 2018-5-22 01:03
-
 
 
 <blockquote>D-JoeII 发表于 2018-5-21 22:53
@@ -3714,16 +2472,10 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 还是别分名次排成一排跳康康舞吧，平等嘛（x
 
 
-
-
-
-
-
 -----
 
 ####  Laie  
 ##### 3183#       发表于 2018-5-22 01:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39714378&amp;ptid=1590696" target="_blank">韩子 发表于 2018-5-22 00:58</a>
@@ -3732,26 +2484,15 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 我觉得这里还是要把自己先入的设想跟创作方的意图分开吧，最直接的就是那对白下面给的日文字幕是君はすごかった
 
 
-
-
-
-
-
 -----
 
 ####  韩子  
 ##### 3184#       发表于 2018-5-22 01:40
 
 
-
 <blockquote>Laie 发表于 2018-5-22 01:31
 我觉得这里还是要把自己先入的设想跟创作方的意图分开吧，最直接的就是那对白下面给的日文字幕是君はすご ...</blockquote>
 就没什么意图吧，估计他们就是只把那些日文字幕给了法国人翻译，别的资料啥都没（甚至更随便点就是把东西丢进翻译机然后让法国人检查下语法有没有问题……这种事日本人干得出
-
-
-
-
-
 
 
 -----
@@ -3760,14 +2501,7 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 ##### 3185#       发表于 2018-5-22 02:33
 
 
-
-
 根据我在法国和魁北克生活了五年的经验。。。vous 和tu真的没啥讲究，办公室有同事现在还跟我vouvoyer，但绝大多数人第二次见面开始tutoyer是没问题的。。。
-
-
-
-
-
 
 
 -----
@@ -3776,14 +2510,7 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 ##### 3186#       发表于 2018-5-22 07:20
 
 
-
-
 楼里什么人才都有
-
-
-
-
-
 
 
 -----
@@ -3792,23 +2519,15 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 ##### 3187#       发表于 2018-5-22 07:46
 
 
-
-
 好在意凯旋门赏结束后跳不跳live<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这法式live是啥味的
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  韩子  
 ##### 3188#       发表于 2018-5-22 08:19
-
 
 
 <blockquote>南风森琉璃 发表于 2018-5-22 02:33
@@ -3819,17 +2538,10 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 不过港真我觉得跟一个日本动画纠结法语其实也是挺蛋疼的，人家也没想专门做给会法语的看……也看了这么多年日本动画了，能用对说对的至今没见过
 
 
-
-
-
-
-
 -----
 
 ####  侃侃而谈喵泽西  
 ##### 3189#       发表于 2018-5-22 09:54
-
-
 
 
 唱歌剧的应该是意大利赛马娘
@@ -3840,16 +2552,10 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 不过想想，这样的话 日本赛马娘不该来个歌舞伎么？
 
 
-
-
-
-
-
 -----
 
 ####  raynor_1999  
 ##### 3190#       发表于 2018-5-22 10:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39727483&amp;ptid=1590696" target="_blank">侃侃而谈喵泽西 发表于 2018-5-22 09:54</a>
@@ -3860,16 +2566,10 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 当个赛马娘真不容易，必须多才多艺<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  侃侃而谈喵泽西  
 ##### 3191#       发表于 2018-5-22 10:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39727702&amp;ptid=1590696" target="_blank">raynor_1999 发表于 2018-5-22 10:08</a>
@@ -3880,16 +2580,10 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 因为在赛马娘世界里面是不存在赌马这个活动的，于是乎就变成文艺表演了
 
 
-
-
-
-
-
 -----
 
 ####  loli炮  
 ##### 3192#       发表于 2018-5-22 10:14
-
 
 
 <blockquote>天狼Q娃 发表于 2018-5-22 00:50
@@ -3897,16 +2591,10 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 不会的那个编剧要是正常人，熊巫女一事够他记一辈子的，在敢胡来业界不会再有他一点容身之地
 
 
-
-
-
-
-
 -----
 
 ####  raynor_1999  
 ##### 3193#       发表于 2018-5-22 10:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39727759&amp;ptid=1590696" target="_blank">侃侃而谈喵泽西 发表于 2018-5-22 10:11</a>
@@ -3920,16 +2608,10 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 让马娘单独组成成建制的部队，快速穿插？想像一下一群美少女拿着长枪举着圆盾高速冲锋简直画美不看（正面意思）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  戏谑二次元  
 ##### 3194#       发表于 2018-5-22 10:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39728047&amp;ptid=1590696" target="_blank">raynor_1999 发表于 2018-5-22 10:32</a>
@@ -3941,16 +2623,10 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 然后一群马娘被俘虏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  侃侃而谈喵泽西  
 ##### 3195#       发表于 2018-5-22 10:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39728047&amp;ptid=1590696" target="_blank">raynor_1999 发表于 2018-5-22 10:32</a>
@@ -3962,16 +2638,10 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 没有马的话，美洲人民应该是骑着羊驼，欧亚的话，可能是骑驴 骆驼啥的
 
 
-
-
-
-
-
 -----
 
 ####  raynor_1999  
 ##### 3196#       发表于 2018-5-22 10:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39728121&amp;ptid=1590696" target="_blank">侃侃而谈喵泽西 发表于 2018-5-22 10:38</a>
@@ -3980,16 +2650,10 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 羊驼负重很低吧
 
 
-
-
-
-
-
 -----
 
 ####  raynor_1999  
 ##### 3197#       发表于 2018-5-22 10:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39728114&amp;ptid=1590696" target="_blank">戏谑二次元 发表于 2018-5-22 10:37</a>
@@ -4001,17 +2665,10 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 这种配置只要不是碰到对面的马娘部队基本都是进可攻退可跑的，当然对全身甲胄的欧洲骑士老爷估计就没什么太好的办法了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  韩子  
 ##### 3198#       发表于 2018-5-22 11:02
-
-
 
 
 脑洞一下
@@ -4026,32 +2683,19 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 马娘其实是一种宗教？（大雾
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 3199#       发表于 2018-5-22 11:05
 
 
-
-
 你们怎么又绕回去讲这个了喂
-
-
-
-
-
 
 
 -----
 
 ####  侃侃而谈喵泽西  
 ##### 3200#       发表于 2018-5-22 11:14
-
 
 
  本帖最后由 侃侃而谈喵泽西 于 2018-5-22 11:18 编辑 
@@ -4061,16 +2705,10 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 负载不低，羊驼是南美洲在进口马以前最重要的负重牲畜，大羊驼（Llamas）负载一个成年人没问题，毕竟体重超过400磅，不比矮种马小，而且胆子比马大很多。
 
 
-
-
-
-
-
 -----
 
 ####  侃侃而谈喵泽西  
 ##### 3201#       发表于 2018-5-22 11:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39728258&amp;ptid=1590696" target="_blank">raynor_1999 发表于 2018-5-22 10:50</a>
@@ -4079,17 +2717,10 @@ Broye和神鹰的第二次对话直接就用“Tu”称 ...</blockquote>
 完全成长的大羊驼全高1.6-1.8米。它们重约127-204公斤。初出生的大羊驼重约9-14公斤。大羊驼是群居的动物，喜欢与其他的大羊驼组成族群。大羊驼所生产的纤维非常柔软及没有羊毛脂。它们在几次尝试后就可以学会东西，非常聪明。它们可以背负其体重的25-30%的重物行走几里路。
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 3202#       发表于 2018-5-22 11:15
-
-
 
 
 好了，又到了脑洞时间了，既然之前的换宿舍计划流产了，就再来一波新的计划吧，出国计划。
@@ -4109,16 +2740,10 @@ TV最终话，铃鹿与spica利吉露的人一同到机场给草特送行，并�
 BD收录梦幻对决spica全队登场，以及东海帝皇的特别篇
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 3203#       发表于 2018-5-22 11:22
-
 
 
 <blockquote>暗黑能乐 发表于 2018-5-22 11:15
@@ -4129,17 +2754,10 @@ BD收录梦幻对决spica全队登场，以及东海帝皇的特别篇
 可以加一发成田机场世界名画嘛233
 
 
-
-
-
-
-
 -----
 
 ####  水银之王  
 ##### 3204#       发表于 2018-5-22 11:58
-
-
 
 
 话说要后面还原日本杯肯定要还原日本总大将吧？
@@ -4148,16 +2766,10 @@ BD收录梦幻对决spica全队登场，以及东海帝皇的特别篇
 问题在于，这种不同时代的全明星阵容，要怎么圆才能合理让特别周挂上日本总大将的旗号？无论是现实还是剧中她的实力地位成绩都不支持吧……其他马娘不可能不出场，出场的话皇帝成天白仁之类都要压她一头；强行其他人不出场，那陪跑的就真都是杂鱼了。
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3205#       发表于 2018-5-22 12:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39729235&amp;ptid=1590696" target="_blank">水银之王 发表于 2018-5-22 11:58</a>
@@ -4169,25 +2781,13 @@ BD收录梦幻对决spica全队登场，以及东海帝皇的特别篇
 所以就是天皇賞秋?例如你說的兩位都跑過天皇賞秋但都沒贏,Spica全隊都有輸天皇賞秋的記錄+黃金船沒參加過
 
 
-
-
-
-
-
 -----
 
 ####  soranoguiji  
 ##### 3206#       发表于 2018-5-22 12:07
 
 
-
-
 话说草上飞既然没受伤那应该能跑天皇赏和日本杯的吧，历史上因为腿伤从来没参加过这两个比赛也是可惜
-
-
-
-
-
 
 
 -----
@@ -4196,15 +2796,8 @@ BD收录梦幻对决spica全队登场，以及东海帝皇的特别篇
 ##### 3207#       发表于 2018-5-22 12:43
 
 
-
-
 10W关注贺图
 <img src="http://wx4.sinaimg.cn/large/867a2f5dgy1frk0fj4a18j20p00hpagr.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4213,24 +2806,16 @@ BD收录梦幻对决spica全队登场，以及东海帝皇的特别篇
 ##### 3208#       发表于 2018-5-22 13:09
 
 
-
-
 hummmmmmmmm第9话神鹰输了居然跑来找特别周暴露自己罕见的脆弱一面。。。。。。。
 
 
 特别渣实锤，居然又开启了神鹰攻略路线
 
 
-
-
-
-
-
 -----
 
 ####  dcatzz  
 ##### 3209#       发表于 2018-5-22 13:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39730088&amp;ptid=1590696" target="_blank">恶魔娘阿洛 发表于 2018-5-22 13:09</a>
@@ -4243,33 +2828,19 @@ hummmmmmmmm第9话神鹰输了居然跑来找特别周暴露自己罕见的脆�
 —— 来自 vivo Xplay6, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2
 
 
-
-
-
-
-
 -----
 
 ####  Garterbelt  
 ##### 3210#       发表于 2018-5-22 13:22
 
 
-
-
 无声羚鹿——》（加速超过所有人时）大声羚鹿——》（坠海后爬起来）大笑羚鹿
-
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 3211#       发表于 2018-5-22 13:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39728610&amp;ptid=1590696" target="_blank">暗黑能乐 发表于 2018-5-22 11:15</a>
@@ -4282,16 +2853,10 @@ hummmmmmmmm第9话神鹰输了居然跑来找特别周暴露自己罕见的脆�
 —— 來自 samsung SM-J5007, Android 5.1.1上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
-
-
-
-
-
 -----
 
 ####  韩子  
 ##### 3212#       发表于 2018-5-22 13:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39729784&amp;ptid=1590696" target="_blank">神户⑨小鸟 发表于 2018-5-22 12:43</a>
@@ -4300,17 +2865,10 @@ hummmmmmmmm第9话神鹰输了居然跑来找特别周暴露自己罕见的脆�
 这个是游戏那边发的图，所以游戏里男教练也会出场吗……？（希望能出场啊（或者当玩家是女性的时候可以出场作为攻略对象（阿华：？！
 
 
-
-
-
-
-
 -----
 
 ####  神户⑨小鸟  
 ##### 3213#       发表于 2018-5-22 13:49
-
-
 
 
 教练说不定是作为NPC强敌登场？？
@@ -4321,20 +2879,13 @@ hummmmmmmmm第9话神鹰输了居然跑来找特别周暴露自己罕见的脆�
 <img src="http://wx3.sinaimg.cn/large/867a2f5dgy1frk2f261mej20wq0wrhdt.jpg" referrerpolicy="no-referrer">
 
 
-
 漫画3卷gamers的特典
 <img src="https://wx3.sinaimg.cn/mw1024/867a2f5dgy1frk2enm9f5j204o06odgo.jpg" referrerpolicy="no-referrer">
 
 <img src="https://wx2.sinaimg.cn/mw1024/867a2f5dgy1frk2en4zjoj21cw0yjaf1.jpg" referrerpolicy="no-referrer">
 
 
-
 PS，8月发售的p.a shop里的马娘设定集大家买么？
-
-
-
-
-
 
 
 -----
@@ -4343,23 +2894,16 @@ PS，8月发售的p.a shop里的马娘设定集大家买么？
 ##### 3214#       发表于 2018-5-22 13:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39728363&amp;ptid=1590696" target="_blank">raynor_1999 发表于 2018-5-22 10:58</a>
 
 怎么会？以马娘的身体素质装备轻甲长枪中型盾牌就是标准的骑兵了，后排可以配备身体素质差一点的装备弓弩 ...</blockquote>
 没有马，骑士老爷穿全身甲胄怕是路都走不动了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  韩子  
 ##### 3215#       发表于 2018-5-22 13:56
-
 
 
 <blockquote>神户⑨小鸟 发表于 2018-5-22 13:49
@@ -4372,16 +2916,10 @@ PS，8月发售的p.a shop里的马娘设定集大家买么？
 设定集页数是80p，感觉很微妙了，以这片的设定量来说肯定没法放全，不然就是图会被缩很厉害orz（不过PA的书大多都这样
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 3216#       发表于 2018-5-22 14:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39730347&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-5-22 13:33</a>
@@ -4390,25 +2928,13 @@ PS，8月发售的p.a shop里的马娘设定集大家买么？
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要也出国一起肥啊
 
 
-
-
-
-
-
 -----
 
 ####  wilkyway  
 ##### 3217#       发表于 2018-5-22 15:00
 
 
-
-
 说起来这集说梦话那里唯独渣特没说吃不下233
-
-
-
-
-
 
 
 -----
@@ -4417,16 +2943,10 @@ PS，8月发售的p.a shop里的马娘设定集大家买么？
 ##### 3218#       发表于 2018-5-22 15:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39731161&amp;ptid=1590696" target="_blank">wilkyway 发表于 2018-5-22 15:00</a>
 
 说起来这集说梦话那里唯独渣特没说吃不下233</blockquote>
 渣特各种意义上都嫌吃得不够
-
-
-
-
-
 
 
 -----
@@ -4435,21 +2955,13 @@ PS，8月发售的p.a shop里的马娘设定集大家买么？
 ##### 3219#       发表于 2018-5-22 15:31
 
 
-
-
 …………渣特又是什么鬼啦你们233333
-
-
-
-
-
 
 
 -----
 
 ####  DOACAON  
 ##### 3220#       发表于 2018-5-22 15:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39728047&amp;ptid=1590696" target="_blank">raynor_1999 发表于 2018-5-21 20:32</a>
@@ -4463,17 +2975,10 @@ PS，8月发售的p.a shop里的马娘设定集大家买么？
 倒是玩弓箭放风筝比现实中的弓骑还强
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3221#       发表于 2018-5-22 15:45
-
-
 
 
 讲真你们能不能别再玩特别渣的梗了，要叫肥特或什么都行，渣真的太难听了吧<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
@@ -4481,16 +2986,10 @@ PS，8月发售的p.a shop里的马娘设定集大家买么？
 —— 來自 samsung SM-J5007, Android 5.1.1上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
-
-
-
-
-
 -----
 
 ####  raynor_1999  
 ##### 3222#       发表于 2018-5-22 15:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39731510&amp;ptid=1590696" target="_blank">DOACAON 发表于 2018-5-22 15:31</a>
@@ -4501,16 +3000,10 @@ PS，8月发售的p.a shop里的马娘设定集大家买么？
 3米长枪以40km/h的速度冲过来串糖葫芦啊，骑兵又不是只靠撞的<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  κύων  
 ##### 3223#       发表于 2018-5-22 15:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39728047&amp;ptid=1590696" target="_blank">raynor_1999 发表于 2018-5-22 10:32</a>
@@ -4528,16 +3021,10 @@ PS，8月发售的p.a shop里的马娘设定集大家买么？
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  κύων  
 ##### 3224#       发表于 2018-5-22 16:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39731510&amp;ptid=1590696" target="_blank">DOACAON 发表于 2018-5-22 15:31</a>
@@ -4548,16 +3035,10 @@ PS，8月发售的p.a shop里的马娘设定集大家买么？
 根据现在公布的设定，马娘好像是真有半吨重。
 
 
-
-
-
-
-
 -----
 
 ####  raynor_1999  
 ##### 3225#       发表于 2018-5-22 16:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39731813&amp;ptid=1590696" target="_blank">κύων 发表于 2018-5-22 15:56</a>
@@ -4566,16 +3047,10 @@ PS，8月发售的p.a shop里的马娘设定集大家买么？
 哪怕食草动物都会因为争夺配偶地盘发生争斗，都是高等物种了就别白莲花了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 3226#       发表于 2018-5-22 16:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39731752&amp;ptid=1590696" target="_blank">raynor_1999 发表于 2018-5-22 01:51</a>
@@ -4587,16 +3062,10 @@ PS，8月发售的p.a shop里的马娘设定集大家买么？
 现实中的冲锋用骑枪都是一次性消耗品，触人就断，通过枪杆爆碎来减轻反作用力。想在马背上玩丈八蛇矛就要放弃冲锋，改在快速掠过敌军侧面时向侧后方戳刺，本质上跟马刀的用法类似。
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 3227#       发表于 2018-5-22 16:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39731873&amp;ptid=1590696" target="_blank">κύων 发表于 2018-5-22 02:01</a>
@@ -4605,16 +3074,10 @@ PS，8月发售的p.a shop里的马娘设定集大家买么？
 现在公布的设定，马娘的体重是“微減”、“増減なし”、“測定不能”之类，你说半吨信不信黄金船来打爆狗头
 
 
-
-
-
-
-
 -----
 
 ####  κύων  
 ##### 3228#       发表于 2018-5-22 16:16
-
 
 
  本帖最后由 κύων 于 2018-5-22 16:26 编辑 
@@ -4626,16 +3089,10 @@ PS，8月发售的p.a shop里的马娘设定集大家买么？
 日本海没加盖，不服游<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  絹川健一  
 ##### 3229#       发表于 2018-5-22 16:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39732104&amp;ptid=1590696" target="_blank">κύων 发表于 2018-5-22 16:16</a>
@@ -4648,16 +3105,10 @@ PS，8月发售的p.a shop里的马娘设定集大家买么？
 虽然没有公布体重，但实际大概是按照1/10来做的
 
 
-
-
-
-
-
 -----
 
 ####  κύων  
 ##### 3230#       发表于 2018-5-22 16:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39732172&amp;ptid=1590696" target="_blank">絹川健一 发表于 2018-5-22 16:21</a>
@@ -4670,16 +3121,10 @@ PS，8月发售的p.a shop里的马娘设定集大家买么？
 马娘这么诡异的东西，物理学和生物学上没法细究啊
 
 
-
-
-
-
-
 -----
 
 ####  Garterbelt  
 ##### 3231#       发表于 2018-5-22 16:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39731676&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-5-22 15:45</a>
@@ -4698,31 +3143,17 @@ PS，8月发售的p.a shop里的马娘设定集大家买么？
 挑一个吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Wotamin28  
 ##### 3232#       发表于 2018-5-22 16:52
 
 
-
-
-
 不知道有人发过没 小草的cm
-
-
-
-
 
 
 QQ截图20180522165151.png
 (250.77 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -4731,31 +3162,13 @@ QQ截图20180522165151.png
 2018-5-22 16:52 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/22/165239tcmfn67c627o2ufu.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  对号入座  
 ##### 3233#       发表于 2018-5-22 16:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39730541&amp;ptid=1590696" target="_blank">celadon 发表于 2018-5-22 13:51</a>
@@ -4765,16 +3178,10 @@ QQ截图20180522165151.png
 <img src="https://wx2.sinaimg.cn/mw690/8640df37gy1frk7wdpb4eg207s04etmn.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 3234#       发表于 2018-5-22 17:03
-
 
 
  本帖最后由 物流大亨常凯申 于 2018-5-22 17:30 编辑 
@@ -4804,23 +3211,15 @@ QQ截图20180522165151.png
 亚历山大大帝的伙伴（hougong）马娘军团
 
 
-
 还有，这个世界的游牧民族怕不是都是马娘，结合马娘只有女性这一点，画美不看。
 
 马娘游牧部落四处放牧，劫掠农耕民族男性用以繁衍后代，武德非常充沛
-
-
-
-
-
-
 
 
 -----
 
 ####  celadon  
 ##### 3235#       发表于 2018-5-22 17:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39732645&amp;ptid=1590696" target="_blank">对号入座 发表于 2018-5-22 16:55</a>
@@ -4833,16 +3232,10 @@ QQ截图20180522165151.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">面对时速50km手持标枪飞斧的马娘可以说是活靶子了
 
 
-
-
-
-
-
 -----
 
 ####  对号入座  
 ##### 3236#       发表于 2018-5-22 18:05
-
 
 
  本帖最后由 对号入座 于 2018-5-22 18:09 编辑 
@@ -4857,16 +3250,10 @@ QQ截图20180522165151.png
 可见人类除开跑步速度，抗击打能力简直无情，加上人口优势，人头换人头，最后随便赢
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3237#       发表于 2018-5-22 18:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39732743&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-5-22 17:03</a>
@@ -4878,32 +3265,19 @@ QQ截图20180522165151.png
 噗，最后这点很好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“特姐，不要啊特姐！”
 
 
-
-
-
-
-
 -----
 
 ####  drilleye  
 ##### 3238#       发表于 2018-5-22 19:14
 
 
-
-
 除了马现实中就没有其他替代品了吗，改良牛或者引进骆驼之类的行不行？马娘也没说数量稀不稀有。
-
-
-
-
-
 
 
 -----
 
 ####  物流大亨常凯申  
 ##### 3239#       发表于 2018-5-22 19:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39734196&amp;ptid=1590696" target="_blank">drilleye 发表于 2018-5-22 19:14</a>
@@ -4914,17 +3288,10 @@ QQ截图20180522165151.png
 牛 驴 羊驼这些都有各自的问题
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3240#       发表于 2018-5-22 20:23
-
-
 
 
 さいくら脳腫
@@ -4940,16 +3307,8 @@ QQ截图20180522165151.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">果然不只有我这么想，训练员桑…
 
 
-
-
-
-
-
-
 Ddy-axiVwAMoU5C.jpg
 (219.6 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -4958,31 +3317,13 @@ Ddy-axiVwAMoU5C.jpg
 2018-5-22 20:22 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/22/202241vnn7ikfnaa7n5uk7.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  平贺才人  
 ##### 3241#       发表于 2018-5-22 21:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39732392&amp;ptid=1590696" target="_blank">Garterbelt 发表于 2018-5-22 16:38</a>
@@ -4995,17 +3336,10 @@ Ddy-axiVwAMoU5C.jpg
 扎马特
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3242#       发表于 2018-5-22 22:09
-
-
 
 
 福来小道具的正确用法
@@ -5022,21 +3356,10 @@ id=68869323
 2018-5-22 22:09 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  snakezsd  
 ##### 3243#       发表于 2018-5-22 22:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39730509&amp;ptid=1590696" target="_blank">神户⑨小鸟 发表于 2018-5-22 13:49</a>
@@ -5049,16 +3372,10 @@ id=68869323
 小马驹玩偶激萌啊！！<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">好像要
 
 
-
-
-
-
-
 -----
 
 ####  hsyg  
 ##### 3244#       发表于 2018-5-22 23:43
-
 
 
  本帖最后由 hsyg 于 2018-5-22 23:45 编辑 
@@ -5066,16 +3383,10 @@ id=68869323
 春丽这KITTY头套 真是拿儿童尿布改的？<img src="http://2cat.cf/~tedc21thc/live/src/1526975735416.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  百升飞上天  
 ##### 3245#       发表于 2018-5-22 23:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39735985&amp;ptid=1590696" target="_blank">amulelernen 发表于 2018-5-22 22:09</a>
@@ -5086,16 +3397,10 @@ id=68869323</blockquote>
 原来玩的是道具赛啊
 
 
-
-
-
-
-
 -----
 
 ####  vrb  
 ##### 3246#       发表于 2018-5-23 01:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39713344&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-5-21 23:01</a>
@@ -5106,16 +3411,10 @@ id=68869323</blockquote>
 原居民：我们香港的记者....
 
 
-
-
-
-
-
 -----
 
 ####  vrb  
 ##### 3247#       发表于 2018-5-23 01:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39714415&amp;ptid=1590696" target="_blank">天狼Q娃 发表于 2018-5-22 01:00</a>
@@ -5124,16 +3423,10 @@ id=68869323</blockquote>
 记者制服！
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 3248#       发表于 2018-5-23 02:44
-
 
 
  本帖最后由 天狼Q娃 于 2018-5-23 03:03 编辑 
@@ -5143,15 +3436,8 @@ id=68869323</blockquote>
 在雪中有何感想？
 
 
-
-
-
-
-
 真圖.jpg
 (437.51 KB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -5160,32 +3446,13 @@ id=68869323</blockquote>
 2018-5-23 03:02 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/23/030234iccu0ucjcfqjn111.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 3249#       发表于 2018-5-23 07:15
-
-
 
 
 虽然没有换宿舍，也不能忘记马学
@@ -5202,22 +3469,10 @@ id=68875356
 2018-5-23 07:15 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 3250#       发表于 2018-5-23 08:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39737612&amp;ptid=1590696" target="_blank">天狼Q娃 发表于 2018-5-23 02:44</a>
@@ -5228,26 +3483,15 @@ id=68875356
 左边这位是谁啊
 
 
-
-
-
-
-
 -----
 
 ####  depthlee  
 ##### 3251#       发表于 2018-5-23 08:23
 
 
-
 <blockquote>暗黑能乐 发表于 2018-5-23 08:22
 左边这位是谁啊</blockquote>
 看马尾是神鹰，倒是神鹰旁边那个是谁……
-
-
-
-
-
 
 
 -----
@@ -5256,23 +3500,16 @@ id=68875356
 ##### 3252#       发表于 2018-5-23 08:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39739205&amp;ptid=1590696" target="_blank">depthlee 发表于 2018-5-23 08:23</a>
 
 看马尾是神鹰，倒是神鹰旁边那个是谁……</blockquote>
 是周日宁静家公用rbq吧
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3253#       发表于 2018-5-23 08:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39739205&amp;ptid=1590696" target="_blank">depthlee 发表于 2018-5-23 08:23</a>
@@ -5282,17 +3519,10 @@ id=68875356
 —— 來自 samsung SM-J5007, Android 5.1.1上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
-
-
-
-
-
 -----
 
 ####  寿由香里  
 ##### 3254#       发表于 2018-5-23 09:00
-
-
 
 
 神鹰旁边是丸善斯基，渣特的外公
@@ -5301,32 +3531,19 @@ id=68875356
 ----发送自 [HUAWEI PE-TL20,Android 4.4.2](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3255#       发表于 2018-5-23 09:14
 
 
-
-
 突然好奇馬娘一天睡多久,因為現實馬一天只要平均睡3小時<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  101207777  
 ##### 3256#       发表于 2018-5-23 09:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39739485&amp;ptid=1590696" target="_blank">寿由香里 发表于 2018-5-23 09:00</a>
@@ -5338,16 +3555,10 @@ id=68875356
 看耳朵，是母马，应该是rbq
 
 
-
-
-
-
-
 -----
 
 ####  百升飞上天  
 ##### 3257#       发表于 2018-5-23 10:15
-
 
 
  本帖最后由 百升飞上天 于 2018-5-23 10:44 编辑 
@@ -5359,16 +3570,10 @@ id=68875356
 马在做，城在看
 
 
-
-
-
-
-
 -----
 
 ####  raynor_1999  
 ##### 3258#       发表于 2018-5-23 10:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39739205&amp;ptid=1590696" target="_blank">depthlee 发表于 2018-5-23 08:23</a>
@@ -5377,16 +3582,10 @@ id=68875356
 看着像星云天空<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  侃侃而谈喵泽西  
 ##### 3259#       发表于 2018-5-23 11:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39740806&amp;ptid=1590696" target="_blank">raynor_1999 发表于 2018-5-23 10:44</a>
@@ -5395,25 +3594,13 @@ id=68875356
 星云天空在最右边，你看耳饰，在右边的，应该是母马，应该是现实中小特啪啪啪过的目白家大小姐
 
 
-
-
-
-
-
 -----
 
 ####  loli炮  
 ##### 3260#       发表于 2018-5-23 11:34
 
 
-
-
 日本杯是邀请赛制！
-
-
-
-
-
 
 
 -----
@@ -5422,16 +3609,10 @@ id=68875356
 ##### 3261#       发表于 2018-5-23 11:48
 
 
-
 <img src="http://wx3.sinaimg.cn/large/0070WDskly1frl4mf1swkj30js0sgwgq.jpg" referrerpolicy="no-referrer">
 <img src="http://wx3.sinaimg.cn/large/0070WDskly1frl4mg5j6mj31040rm1kx.jpg" referrerpolicy="no-referrer">
 <img src="http://wx2.sinaimg.cn/large/0070WDskly1frl4mgumttj30iu0qb77j.jpg" referrerpolicy="no-referrer">
 <img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">你们脑补太多了啦
-
-
-
-
-
 
 
 -----
@@ -5440,14 +3621,7 @@ id=68875356
 ##### 3262#       发表于 2018-5-23 12:36
 
 
-
-
 说起来今天是玉藻十字生日，可是没有贺图，大空直美没表示～有点惨(´Д` )
-
-
-
-
-
 
 
 -----
@@ -5456,21 +3630,13 @@ id=68875356
 ##### 3263#       发表于 2018-5-23 12:44
 
 
-
-
 你们不要这样，小栗帽也上过渣特他妈啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  zechins  
 ##### 3264#       发表于 2018-5-23 12:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39742275&amp;ptid=1590696" target="_blank">神户⑨小鸟 发表于 2018-5-23 12:36</a>
@@ -5487,24 +3653,15 @@ id=68875356
 2018-5-23 12:49 上传
 
 
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">官推其实有说一嘴
 
 玉藻十字好可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 动画里的说话的口癖和最后抱着小栗帽哭的样子都好可爱
-
-
-
-
-
 
 
 -----
 
 ####  神户⑨小鸟  
 ##### 3265#       发表于 2018-5-23 13:08
-
 
 
 <blockquote>zechins 发表于 2018-5-23 12:52
@@ -5518,16 +3675,10 @@ id=68875356
 然后大空直美卖得一手好萌（褒义）貌似俘获了不少人，看推特上都说要加推她了233
 
 
-
-
-
-
-
 -----
 
 ####  韩子  
 ##### 3266#       发表于 2018-5-23 13:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39742434&amp;ptid=1590696" target="_blank">zechins 发表于 2018-5-23 12:52</a>
@@ -5540,16 +3691,10 @@ id=68875356
 那个头带总有种虾夷元素的错觉，虽然应该没什么关系……
 
 
-
-
-
-
-
 -----
 
 ####  old.just  
 ##### 3267#       发表于 2018-5-23 13:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39741775&amp;ptid=1590696" target="_blank">zechins 发表于 2018-5-23 11:48</a>
@@ -5558,16 +3703,10 @@ id=68875356
 <img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">没有阿草都是邪教
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 3268#       发表于 2018-5-23 14:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39742610&amp;ptid=1590696" target="_blank">韩子 发表于 2018-5-22 23:08</a>
@@ -5578,17 +3717,10 @@ id=68875356
 玉藻十字的官方称呼是“浪花節ウマ娘”，浪花节好像是大阪那边的传统曲艺吧，所以那发饰说不定是关西的某种地区传统风格？
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3269#       发表于 2018-5-23 14:21
-
-
 
 
 官推太中二啦…
@@ -5597,16 +3729,10 @@ id=68875356
 —— 來自 samsung SM-J5007, Android 5.1.1上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 3270#       发表于 2018-5-23 14:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39743353&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-5-23 14:21</a>
@@ -5617,16 +3743,10 @@ id=68875356
 JRA那些赛马CM更加中二
 
 
-
-
-
-
-
 -----
 
 ####  depthlee  
 ##### 3271#       发表于 2018-5-23 14:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39743353&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-5-23 14:21</a>
@@ -5637,16 +3757,10 @@ JRA那些赛马CM更加中二
 我觉得这就是官方赛马的时候给的头衔吧……
 
 
-
-
-
-
-
 -----
 
 ####  韩子  
 ##### 3272#       发表于 2018-5-23 15:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39743167&amp;ptid=1590696" target="_blank">DOACAON 发表于 2018-5-23 14:03</a>
@@ -5655,16 +3769,10 @@ JRA那些赛马CM更加中二
 演歌倒是经常听到这个……查了一下，浪花节这个词形容人的时候是指“義理人情を考えや行動の中心におく，通俗的で古風なさま。”，估计说的是性格吧orz
 
 
-
-
-
-
-
 -----
 
 ####  二月十日  
 ##### 3273#       发表于 2018-5-23 16:20
-
 
 
 [のろり  @nyororiso  16:55 - 2018年5月23日](https://twitter.com/nyororiso/status/999197148427137024)
@@ -5676,16 +3784,10 @@ JRA那些赛马CM更加中二
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
 
 
-
-
-
-
-
 -----
 
 ####  old.just  
 ##### 3274#       发表于 2018-5-23 16:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39744577&amp;ptid=1590696" target="_blank">二月十日 发表于 2018-5-23 16:20</a>
@@ -5696,16 +3798,10 @@ JRA那些赛马CM更加中二
 快住手。。。！！！这样下去阿草迟早杀了所有人
 
 
-
-
-
-
-
 -----
 
 ####  絹川健一  
 ##### 3275#       发表于 2018-5-23 16:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39742610&amp;ptid=1590696" target="_blank">韩子 发表于 2018-5-23 13:08</a>
@@ -5716,16 +3812,10 @@ JRA那些赛马CM更加中二
 玉藻十字一股子岛风既视感
 
 
-
-
-
-
-
 -----
 
 ####  金色先锋  
 ##### 3276#       发表于 2018-5-23 16:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39744577&amp;ptid=1590696" target="_blank">二月十日 发表于 2018-5-23 16:20</a>
@@ -5738,31 +3828,17 @@ JRA那些赛马CM更加中二
 老实人们都在讨论第8话是不是粪回
 
 
-
-
-
-
-
 -----
 
 ####  金色先锋  
 ##### 3277#       发表于 2018-5-23 16:53
 
 
-
-
 还是上面那作者画的
-
-
-
-
-
 
 
 Dde-MxbV0AAAccY.jpg
 (71.26 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -5771,31 +3847,13 @@ Dde-MxbV0AAAccY.jpg
 2018-5-23 16:53 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/23/165345njiku319fd988fj4.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 3278#       发表于 2018-5-23 16:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39744577&amp;ptid=1590696" target="_blank">二月十日 发表于 2018-5-23 16:20</a>
@@ -5807,25 +3865,13 @@ Dde-MxbV0AAAccY.jpg
 —— 來自 samsung SM-J5007, Android 5.1.1上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3279#       发表于 2018-5-23 16:56
 
 
-
-
 哇 小草扭曲的气息已经溢出屏幕了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5834,22 +3880,15 @@ Dde-MxbV0AAAccY.jpg
 ##### 3280#       发表于 2018-5-23 16:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39744577&amp;ptid=1590696" target="_blank">二月十日 发表于 2018-05-23 16:20:37</a></blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">好啊好啊，小草快干翻所有人
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  暗黑能乐  
 ##### 3281#       发表于 2018-5-23 17:15
-
 
 
  本帖最后由 暗黑能乐 于 2018-5-23 17:17 编辑 
@@ -5861,16 +3900,10 @@ Dde-MxbV0AAAccY.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">称目前比赛演出最佳的一场为粪回还行吧，哪里的人这么强，2ch？反正NICO好评有93%，看来只有3%的老实人
 
 
-
-
-
-
-
 -----
 
 ####  二月十日  
 ##### 3282#       发表于 2018-5-23 17:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39744907&amp;ptid=1590696" target="_blank">金色先锋 发表于 2018-5-23 16:48</a>
@@ -5881,16 +3914,10 @@ Dde-MxbV0AAAccY.jpg
 少看点营销号吧,要看日本人的讨论看看5ch或者双叶都好啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  金色先锋  
 ##### 3283#       发表于 2018-5-23 17:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39745379&amp;ptid=1590696" target="_blank">二月十日 发表于 2018-5-23 17:24</a>
@@ -5899,16 +3926,10 @@ Dde-MxbV0AAAccY.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">那些全是营销号的评论？
 
 
-
-
-
-
-
 -----
 
 ####  韩子  
 ##### 3284#       发表于 2018-5-23 18:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39745379&amp;ptid=1590696" target="_blank">二月十日 发表于 2018-5-23 17:24</a>
@@ -5917,16 +3938,10 @@ Dde-MxbV0AAAccY.jpg
 5ch和双叶这些地方才扭曲吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">……
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3285#       发表于 2018-5-23 18:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39744907&amp;ptid=1590696" target="_blank">金色先锋 发表于 2018-5-23 16:48</a>
@@ -5939,16 +3954,10 @@ Dde-MxbV0AAAccY.jpg
 讨厌的理由除了反串可能就像我之前说的，不是每个人都能接受两条硬汉的对决变成女人之间的争风吃醋<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  韩子  
 ##### 3286#       发表于 2018-5-23 18:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39746287&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-5-23 18:40</a>
@@ -5961,16 +3970,10 @@ Dde-MxbV0AAAccY.jpg
 （看过特别周那啥和特别周和草上飞那啥的视频以后已经无法正视这两匹马了
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 3287#       发表于 2018-5-23 18:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39745839&amp;ptid=1590696" target="_blank">韩子 发表于 2018-5-23 18:04</a>
@@ -5979,16 +3982,10 @@ Dde-MxbV0AAAccY.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">双叶的马串完全是群魔乱舞什么都在说的赶脚，尤其是周末基本是讨论当天竞马
 
 
-
-
-
-
-
 -----
 
 ####  侃侃而谈喵泽西  
 ##### 3288#       发表于 2018-5-23 19:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39746429&amp;ptid=1590696" target="_blank">センコウ 发表于 2018-5-23 18:54</a>
@@ -5997,27 +3994,16 @@ Dde-MxbV0AAAccY.jpg
 赌狗狂欢串
 
 
-
-
-
-
-
 -----
 
 ####  cao1rui2  
 ##### 3289#       发表于 2018-5-23 19:14
 
 
-
 [https://www.youtube.com/watch?v=42IJ0mkO7Ss](https://www.youtube.com/watch?v=42IJ0mkO7Ss)
 
 
 黄金船全题正解勇获动画猜谜王
-
-
-
-
-
 
 
 -----
@@ -6038,16 +4024,10 @@ TOHO animation在youtube上传了細江純子说的关于赛马的科普视频�
 顺带一说細江純子也算是日本赛马界的传奇了，她出身是骑手，可以上赛马场的那种，JRA历史上 算上最近一个在读还没毕业的，总共就7个女性骑手
 
 
-
-
-
-
-
 -----
 
 ####  二月十日  
 ##### 3291#       发表于 2018-5-23 19:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39745696&amp;ptid=1590696" target="_blank">金色先锋 发表于 2018-5-23 17:53</a>
@@ -6058,32 +4038,19 @@ TOHO animation在youtube上传了細江純子说的关于赛马的科普视频�
 一般正文部分是从推特或者5ch上复制过来的感想,下面那些评论就是爱看营销号的人留下的咯..
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 3292#       发表于 2018-5-23 19:21
 
 
-
-
 第一个问题，赛马是什么，emmmmmmm
-
-
-
-
-
 
 
 -----
 
 ####  二月十日  
 ##### 3293#       发表于 2018-5-23 19:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39745839&amp;ptid=1590696" target="_blank">韩子 发表于 2018-5-23 18:04</a>
@@ -6093,16 +4060,10 @@ TOHO animation在youtube上传了細江純子说的关于赛马的科普视频�
 双叶上是扭曲CP厨贼多....<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3294#       发表于 2018-5-23 19:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39746634&amp;ptid=1590696" target="_blank">侃侃而谈喵泽西 发表于 2018-5-23 19:15</a>
@@ -6114,32 +4075,19 @@ TOHO animation在youtube上传了細江純子说的关于赛马的科普 ...</bl
 我也想看夜晚赛马…
 
 
-
-
-
-
-
 -----
 
 ####  神户⑨小鸟  
 ##### 3295#       发表于 2018-5-23 19:55
 
 
-
-
 生放送看完，就是帮3卷漫画卖了广告，没什么特别的News
-
-
-
-
-
 
 
 -----
 
 ####  百升飞上天  
 ##### 3296#       发表于 2018-5-23 21:27
-
 
 
 <blockquote>戏谑二次元 发表于 2018-5-23 16:57
@@ -6150,32 +4098,19 @@ TOHO animation在youtube上传了細江純子说的关于赛马的科普 ...</bl
 等一个有马纪念赛，一身黑化气息小草站在君临天下准备和铃鹿去德国双宿双飞的特别渣面前
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 3297#       发表于 2018-5-23 21:29
 
 
-
-
 话说草上飞生涯初期是什么跑法，一样是从后面追的类型吗。
-
-
-
-
-
 
 
 -----
 
 ####  hsyg  
 ##### 3298#       发表于 2018-5-23 21:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39746405&amp;ptid=1590696" target="_blank">韩子 发表于 2018-5-23 18:51</a>
@@ -6193,32 +4128,19 @@ TOHO animation在youtube上传了細江純子说的关于赛马的科普 ...</bl
 然后比赛的时候，就是一群蒙面带各种皮带装钉刺之类的北斗军团一边互喊着一边狂奔
 
 
-
-
-
-
-
 -----
 
 ####  soranoguiji  
 ##### 3299#       发表于 2018-5-23 21:46
 
 
-
-
 话说菊花赏的星云天空算是很强了吧，3000米的距离还能一跑到底，怎么第二年就跟不上特别周了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  韩子  
 ##### 3300#       发表于 2018-5-23 21:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39748115&amp;ptid=1590696" target="_blank">hsyg 发表于 2018-5-23 21:43</a>
@@ -6229,16 +4151,10 @@ TOHO animation在youtube上传了細江純子说的关于赛马的科普 ...</bl
 你说的这个，听上去像是孙渣画的画面啊……
 
 
-
-
-
-
-
 -----
 
 ####  百升飞上天  
 ##### 3301#       发表于 2018-5-23 21:55
-
 
 
 <blockquote>soranoguiji 发表于 2018-5-23 21:46
@@ -6246,16 +4162,10 @@ TOHO animation在youtube上传了細江純子说的关于赛马的科普 ...</bl
 天赋差了些，你看神鹰在达比赛前直接无视星云天空
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 3302#       发表于 2018-5-23 21:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39748115&amp;ptid=1590696" target="_blank">hsyg 发表于 2018-5-23 21:43</a>
@@ -6268,18 +4178,10 @@ TOHO animation在youtube上传了細江純子说的关于赛马的科普 ...</bl
 这画面感
 
 
-
-
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 3303#       发表于 2018-5-23 21:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39747965&amp;ptid=1590696" target="_blank">暗黑能乐 发表于 2018-5-23 07:29</a>
@@ -6295,16 +4197,10 @@ TOHO animation在youtube上传了細江純子说的关于赛马的科普 ...</bl
 不好说刚开始是不是跑法和后面不一样，因为初期的对手毕竟是战五渣，而第4场就是G1了
 
 
-
-
-
-
-
 -----
 
 ####  snakezsd  
 ##### 3304#       发表于 2018-5-23 22:06
-
 
 
  本帖最后由 snakezsd 于 2018-5-23 22:17 编辑 
@@ -6316,32 +4212,19 @@ TOHO animation在youtube上传了細江純子说的关于赛马的科普 ...</bl
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我竟然很期待想看到这样的画面
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 3305#       发表于 2018-5-23 22:46
 
 
-
-
 预告又要鸽一天了
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 3306#       发表于 2018-5-23 22:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39748281&amp;ptid=1590696" target="_blank">DOACAON 发表于 2018-5-23 21:59</a>
@@ -6354,16 +4237,10 @@ TOHO animation在youtube上传了細江純子说的关于赛马的科普 ...</bl
 倒是小特菊花赏后到京都大赏典这一年间突然转型成先行马（铃鹿同学好帅我也要学大逃<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">）直到京都大败后才变回差马…不知道发生了什么
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3307#       发表于 2018-5-24 00:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39747965&amp;ptid=1590696" target="_blank">暗黑能乐 发表于 2018-5-23 21:29</a>
@@ -6376,16 +4253,10 @@ TOHO animation在youtube上传了細江純子说的关于赛马的科普 ...</bl
 想看其他馬的找牠們的日文名就行
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 3308#       发表于 2018-5-24 00:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39748115&amp;ptid=1590696" target="_blank">hsyg 发表于 2018-5-23 07:43</a>
@@ -6399,25 +4270,13 @@ TOHO animation在youtube上传了細江純子说的关于赛马的科普 ...</bl
 P站上正好有个好歌剧=テイエムオペラオー=テイエムオペ拉奥=称号“世纪末霸王”的梗
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 3309#       发表于 2018-5-24 00:03
 
 
-
-
 游戏大概啥时候开啊 有准信吗
-
-
-
-
-
 
 
 -----
@@ -6426,22 +4285,13 @@ P站上正好有个好歌剧=テイエムオペラオー=テイエムオペ拉�
 ##### 3310#       发表于 2018-5-24 00:18
 
 
-
-
 无声铃鹿平时总是戴个绿色耳罩有什么梗吗？
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 3311#       发表于 2018-5-24 00:22
-
-
 
 
 ちくわん@yuyukopikumin　3 小時前
@@ -6454,15 +4304,8 @@ P站上正好有个好歌剧=テイエムオペラオー=テイエムオペ拉�
 特“对不起，对不起，我在比赛中想着铃鹿同学（咬）…！！”
 
 
-
-
-
-
-
 Dd4n8kvUwAAt6i-.jpg
 (141.67 KB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -6471,24 +4314,7 @@ Dd4n8kvUwAAt6i-.jpg
 2018-5-24 00:08 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/24/000803zd88bxcobz8z8om2.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -6497,23 +4323,16 @@ Dd4n8kvUwAAt6i-.jpg
 ##### 3312#       发表于 2018-5-24 00:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39749552&amp;ptid=1590696" target="_blank">CZ75 发表于 2018-5-24 00:18</a>
 
 无声铃鹿平时总是戴个绿色耳罩有什么梗吗？</blockquote>
 可以看看真马照片，耳罩就是原本的造型
 
 
-
-
-
-
-
 -----
 
 ####  snakezsd  
 ##### 3313#       发表于 2018-5-24 00:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39749585&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-5-24 00:22</a>
@@ -6525,25 +4344,13 @@ Dd4n8kvUwAAt6i-.jpg
 小特渣马特的名头算是被你们锤死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 3314#       发表于 2018-5-24 01:01
 
 
-
-
 话说能科普下现在当前日本跑马届的当打选手都是谁…跟这些老一辈是啥关系？
-
-
-
-
-
 
 
 -----
@@ -6552,21 +4359,13 @@ Dd4n8kvUwAAt6i-.jpg
 ##### 3315#       发表于 2018-5-24 07:50
 
 
-
-
 前几年那个草特相遇的视频，小特瘦削的很啊，只剩个大骨架。
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 3316#       发表于 2018-5-24 07:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39749585&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-5-24 00:22</a>
@@ -6577,16 +4376,10 @@ Dd4n8kvUwAAt6i-.jpg
 太渣了！！！特别渣！！！
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 3317#       发表于 2018-5-24 08:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39749413&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-5-24 00:00</a>
@@ -6599,16 +4392,10 @@ http://db.netkeiba.com/horse/1995108676/
 谢了，居然还有专门记这个的
 
 
-
-
-
-
-
 -----
 
 ####  侃侃而谈喵泽西  
 ##### 3318#       发表于 2018-5-24 09:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39750704&amp;ptid=1590696" target="_blank">amulelernen 发表于 2018-5-24 07:55</a>
@@ -6617,16 +4404,10 @@ http://db.netkeiba.com/horse/1995108676/
 马交配的时候会通过咬脖子的方法来站立固定住位置，所以说这张图极其**
 
 
-
-
-
-
-
 -----
 
 ####  raynor_1999  
 ##### 3319#       发表于 2018-5-24 09:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39748115&amp;ptid=1590696" target="_blank">hsyg 发表于 2018-5-23 21:43</a>
@@ -6640,32 +4421,19 @@ http://db.netkeiba.com/horse/1995108676/
 我真的不是故意纯表的，相信我
 
 
-
-
-
-
-
 -----
 
 ####  小仓  
 ##### 3320#       发表于 2018-5-24 09:15
 
 
-
-
 特酱原来是攻受均可啊！
-
-
-
-
-
 
 
 -----
 
 ####  戏谑二次元  
 ##### 3321#       发表于 2018-5-24 09:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39749585&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-05-24 00:22:00</a>
@@ -6677,16 +4445,10 @@ http://db.netkeiba.com/horse/1995108676/
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  zimimar  
 ##### 3322#       发表于 2018-5-24 09:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39749425&amp;ptid=1590696" target="_blank">DOACAON 发表于 2018-5-24 00:02</a>
@@ -6698,17 +4460,10 @@ P站上正好有个好歌剧=テイエムオペラオー=テイエムオペ拉�
 因为不管是名字还是战绩都很符合世纪末霸王的梗。。。。如果长得像拉奥的那匹黑王就更赞了。。。
 
 
-
-
-
-
-
 -----
 
 ####  celadon  
 ##### 3323#       发表于 2018-5-24 09:55
-
-
 
 
 求告知本周日达比在哪能看？有梯子
@@ -6717,16 +4472,10 @@ P站上正好有个好歌剧=テイエムオペラオー=テイエムオペ拉�
 顺便问下北部玄驹年初退役了，目前日本马王是哪个？
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3324#       发表于 2018-5-24 10:08
-
 
 
 <blockquote>celadon 发表于 2018-5-24 09:55
@@ -6737,27 +4486,15 @@ P站上正好有个好歌剧=テイエムオペラオー=テイエムオペ拉�
 才年初誰知道，如果Almond Eye能保持下去說不定又一個女帝
 
 
-
-
-
-
-
 -----
 
 ####  侃侃而谈喵泽西  
 ##### 3325#       发表于 2018-5-24 10:08
 
 
-
-
 北部玄駒退役战也挺好玩的，17年有马纪念，因为北部玄駒在这之前从来没有赢过有马纪念，所以马主北岛三郎（日本著名演歌家，红白合战常客，出场次数堪比我想死你们了的那位）就说如果赢了有马就现场唱歌。
 
 最终结果是在武豊策骑下成功收官拿了有马纪念冠军，完美收官。北岛三郎高兴的在现场唱了一曲，场面极其欢乐
-
-
-
-
-
 
 
 -----
@@ -6766,24 +4503,16 @@ P站上正好有个好歌剧=テイエムオペラオー=テイエムオペ拉�
 ##### 3326#       发表于 2018-5-24 10:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39751879&amp;ptid=1590696" target="_blank">侃侃而谈喵泽西 发表于 2018-5-24 10:08</a>
 
 北部玄駒退役战也挺好玩的，17年有马纪念，因为北部玄駒在这之前从来没有赢过有马纪念，所以马主北岛三郎（ ...</blockquote>
 北部玄駒每次赢G1貌似北岛三郎在场的话都会唱一首的
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 3327#       发表于 2018-5-24 10:32
-
-
 
 
 昨天的预告又鸽了
@@ -6795,32 +4524,19 @@ P站上正好有个好歌剧=テイエムオペラオー=テイエムオペ拉�
 这周又是崩成狗的外包回么？
 
 
-
-
-
-
-
 -----
 
 ####  soranoguiji  
 ##### 3328#       发表于 2018-5-24 10:39
 
 
-
-
 看了下一路通的战绩也挺神奇的，10连败之后连拿三个G1，之后出征凯旋门惨败，回来参加稳赢的日本杯结果被小特的外孙神威启示后来居上给赢了，最后的谢幕战有马纪念被赢过的贵妇人成功复仇，最后三连败黯然退役，实在是大起大落啊
-
-
-
-
-
 
 
 -----
 
 ####  侃侃而谈喵泽西  
 ##### 3329#       发表于 2018-5-24 10:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39752150&amp;ptid=1590696" target="_blank">xzhei 发表于 2018-5-24 10:31</a>
@@ -6832,16 +4548,10 @@ P站上正好有个好歌剧=テイエムオペラオー=テイエムオペ拉�
 [https://www.youtube.com/watch?time_continue=3&amp;v=XLwx7ZOAAn4](https://www.youtube.com/watch?time_continue=3&amp;v=XLwx7ZOAAn4)
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3330#       发表于 2018-5-24 10:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39752234&amp;ptid=1590696" target="_blank">soranoguiji 发表于 2018-5-24 10:39</a>
@@ -6850,17 +4560,10 @@ P站上正好有个好歌剧=テイエムオペラオー=テイエムオペ拉�
 因为一路通是中距离马，2400对它来说太长了
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 3331#       发表于 2018-5-24 10:49
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201805/24/104839pvnkcx3q83qym6x2.png" referrerpolicy="no-referrer">
@@ -6873,9 +4576,6 @@ P站上正好有个好歌剧=テイエムオペラオー=テイエムオペ拉�
 2018-5-24 10:48 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/24/104838zcbhhuaffampp6yy.png" referrerpolicy="no-referrer">
 
 
@@ -6886,17 +4586,7 @@ P站上正好有个好歌剧=テイエムオペラオー=テイエムオペ拉�
 2018-5-24 10:48 上传
 
 
-
-
-
-
-
 才发现这个Finemotion也是两个耳朵都有装饰的
-
-
-
-
-
 
 
 -----
@@ -6905,23 +4595,16 @@ P站上正好有个好歌剧=テイエムオペラオー=テイエムオペ拉�
 ##### 3332#       发表于 2018-5-24 11:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39752374&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-5-24 10:49</a>
 
 才发现这个Finemotion也是两个耳朵都有装饰的</blockquote>
 看资料是雌马
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3333#       发表于 2018-5-24 11:24
-
 
 
 <blockquote>soranoguiji 发表于 2018-5-24 10:39
@@ -6931,16 +4614,10 @@ P站上正好有个好歌剧=テイエムオペラオー=テイエムオペ拉�
 不過現在應該很念掛黃金船
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3334#       发表于 2018-5-24 11:27
-
 
 
  本帖最后由 musicat 于 2018-5-24 11:43 编辑 
@@ -6948,16 +4625,10 @@ P站上正好有个好歌剧=テイエムオペラオー=テイエムオペ拉�
 这几天好容易风怒啊。
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3335#       发表于 2018-5-24 11:28
-
 
 
  本帖最后由 musicat 于 2018-5-24 16:27 编辑 
@@ -6988,7 +4659,6 @@ P站上正好有个好歌剧=テイエムオペラオー=テイエムオペ拉�
 龟波王系，父亲是统治地位（Rulership），外公也是出身美国的Kurofune
 
 
-
 雄马方面，这周日会跑3冠赛中最重要的“日本德比”。
 
 
@@ -6997,7 +4667,6 @@ P站上正好有个好歌剧=テイエムオペラオー=テイエムオペ拉�
 出道以来4战4胜，17年的最佳2岁雄马，不过没有参加三冠赛第一战的皋月赏。弥生賞第一。
 
 父系大震撼，爷爷当然还是周日宁静。外公一样是出生美国的Intikhab。
-
 
 
 二番人气（5.8）的是，Blast Onepiece（ブラストワンピース）
@@ -7012,13 +4681,11 @@ P站上正好有个好歌剧=テイエムオペラオー=テイエムオペ拉�
 *PS：ND配SS周日宁静，是以前最最常见的冠军马组合。特别周其实正是这种优良搭配的后代，真不是村姑出生。
 
 
-
 三番人气（6.6）的是，Wagnerian（ワグネリアン）
 
 上一战皋月赏第一人气只跑了个第七，虽然之前成绩不错。弥生賞第二，之前出道3战3胜。
 
 父系大震撼，外公龟波王。
-
 
 
 *第四人气的Kitano Commandeur（キタノコマンドール）
@@ -7032,17 +4699,10 @@ Epoca d'Oro （エポカドーロ），这个名字依旧是意大利语吧。�
 预计8.4的赔率，好像值得一试耶？
 
 
-
-
-
-
-
-
 -----
 
 ####  dcatzz  
 ##### 3336#       发表于 2018-5-24 11:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39748115&amp;ptid=1590696" target="_blank">hsyg 发表于 2018-5-23 21:43</a>
@@ -7053,16 +4713,10 @@ Epoca d'Oro （エポカドーロ），这个名字依旧是意大利语吧。�
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">看马腿那种大块的肌肉就可以想象了。。。
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3337#       发表于 2018-5-24 11:28
-
 
 
  本帖最后由 musicat 于 2018-5-24 16:23 编辑 
@@ -7102,7 +4756,6 @@ Duramente，“龟波王”的子嗣，外公“周日宁静”。
 以及“Cheval Grand”。
 
 
-
 17年日本杯冠军马，
 
 “高尚骏逸”Cheval Grand（シュヴァルグラン）
@@ -7120,8 +4773,6 @@ Duramente，“龟波王”的子嗣，外公“周日宁静”。
 爷爷是周日宁静，外公美国马Machiavellian，其母亲倒是Northern Dancer的血统。
 
 
-
-
 17年最佳3岁雄马， *今年应该是备受期待的一年。
 
 金之霸，Rey de Oro（レイデオロ），
@@ -7133,8 +4784,6 @@ Duramente，“龟波王”的子嗣，外公“周日宁静”。
 最近的一战是今年3月，跑迪拜司马经典赛，也就是迪拜世界杯的前面的一场草地赛，跑第四。
 
 父系是龟波王，外公是Symboli Kris S美国产马，不过这匹是02年和03年日本年度代表马。
-
-
 
 
 17年最佳3岁雌马：
@@ -7150,17 +4799,10 @@ Duramente，“龟波王”的子嗣，外公“周日宁静”。
 血统方面，父亲Frankel英国马，Northern Dancer系。外公Monsun德国马。
 
 
-
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3338#       发表于 2018-5-24 11:30
-
 
 
  本帖最后由 musicat 于 2018-5-27 07:58 编辑 
@@ -7186,7 +4828,6 @@ JRA日本年度代表马。
 期望小马驹会有光明的未来。
 
 
-
 13年年度代表马，
 
 龙王 Lord Kanaloa （ロードカナロア）
@@ -7196,7 +4837,6 @@ JRA日本年度代表马。
 另外还有4次国内的G1，当然全部是短途。
 
 血统方面，是龟波王子嗣，外公是Storm Cat，Northern Dancer血脉。
-
 
 
 12年和14年两夺年度代表马，
@@ -7211,7 +4851,6 @@ JRA日本年度代表马。
 *18年，贵妇人也和满乐时来了一炮。迷人景致也一样，之前都是和龟波王配。
 
 
-
 11年年度代表
 
 黄金巨匠，Orfevre（オルフェーヴル）
@@ -7222,7 +4861,6 @@ JRA日本年度代表马。
 
 一生中获得的亚军基本都是输给牝马。。。比如贵妇人。
 [https://baike.baidu.com/item/](https://baike.baidu.com/item/黄金巨匠)黄金巨匠
-
 
 
 10年年度代表马，
@@ -7240,7 +4878,6 @@ G1七亚两季，全生涯21战，只有3战没能获得前三名以上的成绩
 *安利一下自己写的小剧本：[http://bbs.ngacn.cc/read.php?tid=13722211&amp;pid=276683145](http://bbs.ngacn.cc/read.php?tid=13722211&amp;pid=276683145)
 
 
-
 08以及09，蝉联年度代表马，
 
 伏特加，Vodka（ウオッカ），
@@ -7255,7 +4892,6 @@ G1七亚两季，全生涯21战，只有3战没能获得前三名以上的成绩
 *退役后出国，配上都是欧洲马王级别的，“海洋之星”以及“范高尔”，子嗣不在日本比赛。
 
 
-
 07年年度代表
 
 Admire Moon，アドマイヤムーン
@@ -7265,7 +4901,6 @@ Admire Moon，アドマイヤムーン
 3岁成绩算一般，但是07年4岁的成绩相当的稳定，3次G1冠军，1次第三。外加1次G2冠军。
 
 父亲是End Sweep，外公周日宁静。
-
 
 
 05以及06年，年度代表马，
@@ -7278,7 +4913,6 @@ Admire Moon，アドマイヤムーン
 [https://baike.baidu.com/item/](https://baike.baidu.com/item/大震撼/16699099)大震撼/16699099
 
 
-
 04年年度代表马，
 
 荒漠英雄，Zenno Rob Roy，ゼンノロブロイ *马娘有版权，人设是文学少女。
@@ -7286,7 +4920,6 @@ Admire Moon，アドマイヤムーン
 04年天皇秋赏，日本杯，有马纪念，3场G1三连冠。
 
 周日宁静儿子，外公Mining美国马。
-
 
 
 03年以及02年，都是一匹外国马，
@@ -7304,7 +4937,6 @@ G1四冠，2次日本杯都是第三。
 06年开始由大震撼，到17年，连续12年都是本土马获得。
 
 
-
 01年年度代表
 
 Jungle Pocket（ジャングルポケット），
@@ -7312,7 +4944,6 @@ Jungle Pocket（ジャングルポケット），
 01年德比马以及01年日本杯两个G1冠军，以及02年天皇春赏亚军。*冠军是游戏里拥有版权的黑马，“曼哈顿咖啡”。
 
 父系是Tony Bin爱尔兰出生，外公Nureyev美国马。*话说这匹不算外国马吗？父母都是被日本马场购买回来的吧。
-
 
 
 00年千禧代表，
@@ -7331,7 +4962,6 @@ G1七胜，不过没能获得3岁3冠，不算严格意义上的七冠马？
 不过感觉好歌剧之后，大震撼之前，日本赛马届算是相对星光黯淡的时代吧。
 
 也是如此，更能衬托98-99特别周他们的“最强世代”？
-
 
 
 附，其他的年度代表马：（[https://en.wikipedia.org/wiki/Japanese_Horse_of_the_Year](https://en.wikipedia.org/wiki/Japanese_Horse_of_the_Year)）
@@ -7362,18 +4992,10 @@ G1七胜，不过没能获得3岁3冠，不算严格意义上的七冠马？
 83，Mr. CB.
 
 
-
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 3339#       发表于 2018-5-24 11:34
-
-
 
 
 黄金巨匠这个只输给母马这个………………
@@ -7382,17 +5004,10 @@ G1七胜，不过没能获得3岁3冠，不算严格意义上的七冠马？
 马中F91？？
 
 
-
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 3340#       发表于 2018-5-24 12:08
-
 
 
 <blockquote>musicat 发表于 2018-5-24 11:28
@@ -7406,16 +5021,10 @@ http://www.horsechinaone.com/news/2018/9097.html
 看上去除了黄金一系，现在动画里面主要角色后代不是很多的样子…
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3341#       发表于 2018-5-24 12:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39752624&amp;ptid=1590696" target="_blank">侃侃而谈喵泽西 发表于 2018-5-24 11:06</a>
@@ -7424,16 +5033,10 @@ http://www.horsechinaone.com/news/2018/9097.html
 fine  motion没有生育能力，经常被称作阴阳马……
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3342#       发表于 2018-5-24 12:17
-
 
 
  本帖最后由 musicat 于 2018-5-24 12:20 编辑 
@@ -7454,16 +5057,10 @@ fine  motion没有生育能力，经常被称作阴阳马……
 有4位G1冠军马，其中2匹马后级别的，沙西里奥和迷人景致。
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3343#       发表于 2018-5-24 12:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39752936&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-24 11:28</a>
@@ -7474,16 +5071,10 @@ http://www.horsechinaone.com/news/2018/9097.html</blockquote>
 Black Tide是Deep Impact全兄，血统不差的
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3344#       发表于 2018-5-24 12:24
-
 
 
  本帖最后由 xzhei 于 2018-5-24 12:25 编辑 
@@ -7493,32 +5084,19 @@ Black Tide是Deep Impact全兄，血统不差的
 作为父系除了黄金一族，草上飞也还好，起码screen hero作为种马是有成就的，，特别周儿子reach the crown可能也有希望，其他的现在基本就只能作为母父活跃了。
 
 
-
-
-
-
-
 -----
 
 ####  natmk  
 ##### 3345#       发表于 2018-5-24 12:27
 
 
-
-
 这周预告怎么还没出
-
-
-
-
-
 
 
 -----
 
 ####  musicat  
 ##### 3346#       发表于 2018-5-24 12:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39753617&amp;ptid=1590696" target="_blank">xzhei 发表于 2018-5-24 12:24</a>
@@ -7536,16 +5114,10 @@ Black Tide是Deep Impact全兄，血统不差的
 要找，只能找“最好”的来配种。
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3347#       发表于 2018-5-24 12:38
-
 
 
  本帖最后由 xzhei 于 2018-5-24 12:42 编辑 
@@ -7558,18 +5130,10 @@ Black Tide是Deep Impact全兄，血统不差的
 配主的不是马主，是牧场，一般牧场会养一些繁殖马，然后找种马配种，出生的小马会拍卖或者不通过拍卖卖给马主。大种马太贵了小牧场不一定配的起，而且也不是有钱就能配的，血统不好的繁殖马也不给配。种马能否成功和是否有好的繁殖马支持也有关的。那种价格适中血统不错的其实最受一般牧场欢迎了。DI啊龟王啊这些很多都被社台自己的繁殖马占了。其实一般能赢马不错了，就算不能赢重赏，如果保持健康赢个几场，几年下来也能积累不少奖金了，有很多新马都赢不了只能退役或者移籍地方。
 
 
-
-
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3348#       发表于 2018-5-24 12:39
-
 
 
 <blockquote>musicat 发表于 2018-5-24 12:29
@@ -7581,16 +5145,10 @@ Black Tide是Deep Impact全兄，血统不差的
 不會，因為也不可能一直讓大震撼不停配，full了的話也只能找其他的去配種
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3349#       发表于 2018-5-24 12:50
-
 
 
  本帖最后由 musicat 于 2018-5-24 12:52 编辑 
@@ -7612,16 +5170,10 @@ Reach the Crown
 虽说G1六冠的逗逼黄金船也只是300万，黄金巨匠500万。
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3350#       发表于 2018-5-24 12:52
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">名将后代固然让人感兴趣，但也会期待再出现星云天空 美浦波旁这样血统平凡的名马
@@ -7629,16 +5181,10 @@ Reach the Crown
 —— 來自 samsung SM-J5007, Android 5.1.1上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3351#       发表于 2018-5-24 12:58
-
 
 
  本帖最后由 xzhei 于 2018-5-24 13:01 编辑 
@@ -7651,16 +5197,10 @@ Reach the Crown</blockquote>
 Reach the Crown没有赢过G1，后期成绩都不好，这个价格还好啦，查了下比去年还涨价了。种马成功也要看配种数的，目前子嗣表现还好。特别周还有一个唯一赢过中央G1的儿子Toho Jackal，说不定也有希望。
 
 
-
-
-
-
-
 -----
 
 ####  zechins  
 ##### 3352#       发表于 2018-5-24 13:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39752956&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-24 11:30</a>
@@ -7675,32 +5215,19 @@ JRA日本年度代表马。</blockquote>
 然后就被成田白仁和大震撼超过了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  loli炮  
 ##### 3353#       发表于 2018-5-24 14:02
 
 
-
-
 陪跑光环现在子嗣如何
-
-
-
-
-
 
 
 -----
 
 ####  DOACAON  
 ##### 3354#       发表于 2018-5-24 16:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39754661&amp;ptid=1590696" target="_blank">loli炮 发表于 2018-5-24 00:02</a>
@@ -7718,16 +5245,10 @@ JRA日本年度代表马。</blockquote>
 孙辈现在还没有G1胜者，外孙Jo Strictly现有一个G2胜利，外孙King’s Guard有8胜但最高就一个G3的胜利。
 
 
-
-
-
-
-
 -----
 
 ####  loli炮  
 ##### 3355#       发表于 2018-5-24 16:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39756087&amp;ptid=1590696" target="_blank">DOACAON 发表于 2018-5-24 16:06</a>
@@ -7738,16 +5259,10 @@ JRA日本年度代表马。</blockquote>
 嗯 多谢
 
 
-
-
-
-
-
 -----
 
 ####  depthlee  
 ##### 3356#       发表于 2018-5-24 16:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39756087&amp;ptid=1590696" target="_blank">DOACAON 发表于 2018-5-24 16:06</a>
@@ -7760,16 +5275,10 @@ JRA日本年度代表马。</blockquote>
 不过讲道理伏特加感觉这么厉害却（动画）完全没戏份，也是微妙（虽然除了斯陪赛冷别人都没啥戏份就是了
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3357#       发表于 2018-5-24 16:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39756325&amp;ptid=1590696" target="_blank">depthlee 发表于 2018-5-24 16:24</a>
@@ -7780,16 +5289,10 @@ JRA日本年度代表马。</blockquote>
 因为伏特加不是特别周那个年代的，排不进太多戏份
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 3358#       发表于 2018-5-24 16:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39756325&amp;ptid=1590696" target="_blank">depthlee 发表于 2018-5-24 16:24</a>
@@ -7804,16 +5307,10 @@ JRA日本年度代表马。</blockquote>
 不如集中笔墨先做出一两个非常有印象的角色来？
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3359#       发表于 2018-5-24 18:39
-
 
 
 id=68897400
@@ -7828,21 +5325,10 @@ id=68897400
 2018-5-24 18:39 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 3360#       发表于 2018-5-24 18:57
-
-
 
 
 预告怎么还没出
@@ -7851,16 +5337,10 @@ id=68897400
 怕不是万策尽了
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3361#       发表于 2018-5-24 19:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39758449&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-5-24 18:57</a>
@@ -7874,17 +5354,10 @@ id=68897400
 [https://twitter.com/uma_musu_anime/status/999606225930080256](https://twitter.com/uma_musu_anime/status/999606225930080256)
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 3362#       发表于 2018-5-24 19:07
-
-
 
 
 第10R「何度負けても」
@@ -7899,16 +5372,10 @@ id=68897400
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1frmmxy0s90j20nw0dfai7.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  snakezsd  
 ##### 3363#       发表于 2018-5-24 19:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39758449&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-5-24 18:57</a>
@@ -7920,25 +5387,13 @@ id=68897400
 预告已更新~<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 3364#       发表于 2018-5-24 19:08
 
 
-
-
 小特你果然又吃胖了，下场是你历来最重。
-
-
-
-
-
 
 
 -----
@@ -7947,14 +5402,7 @@ id=68897400
 ##### 3365#       发表于 2018-5-24 19:09
 
 
-
-
 从预告来看大家都意识到了自己的梦想 第二季预定
-
-
-
-
-
 
 
 -----
@@ -7963,14 +5411,7 @@ id=68897400
 ##### 3366#       发表于 2018-5-24 19:10
 
 
-
-
 前半是京都赏太重导致败仗，后半就是天皇赏比赛逆袭。
-
-
-
-
-
 
 
 -----
@@ -7979,14 +5420,7 @@ id=68897400
 ##### 3367#       发表于 2018-5-24 19:11
 
 
-
-
 还有目白家的家境，终于可以看到其他目白马吗？期待期待
-
-
-
-
-
 
 
 -----
@@ -7995,14 +5429,7 @@ id=68897400
 ##### 3368#       发表于 2018-5-24 19:11
 
 
-
-
 还有目白家的家境，终于可以看到其他目白马吗？期待期待
-
-
-
-
-
 
 
 -----
@@ -8011,23 +5438,16 @@ id=68897400
 ##### 3369#       发表于 2018-5-24 19:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39758609&amp;ptid=1590696" target="_blank">天狼Q娃 发表于 2018-5-24 19:11</a>
 
 还有目白家的家境，终于可以看到其他目白马吗？期待期待</blockquote>
 其實第7集就出現過一位了吧
 
 
-
-
-
-
-
 -----
 
 ####  神户⑨小鸟  
 ##### 3370#       发表于 2018-5-24 19:14
-
 
 
  本帖最后由 神户⑨小鸟 于 2018-5-24 19:17 编辑 
@@ -8037,16 +5457,10 @@ id=68897400
 看预告貌似要回归正常，还不错~<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 3371#       发表于 2018-5-24 19:14
-
 
 
 <blockquote>D-JoeII 发表于 2018-5-24 19:13
@@ -8054,17 +5468,10 @@ id=68897400
 对，但我更期待她的女儿出现，目白多伯。
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3372#       发表于 2018-5-24 19:17
-
-
 
 
 还是会做出生涯唯一惨败的那一战？虽然是用玩梗性质的一笔带过。
@@ -8074,26 +5481,15 @@ id=68897400
 然后天皇秋赏，20天后狂减了16公斤。
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3373#       发表于 2018-5-24 19:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真的要把京都大败做出来啊
 
 其实我觉得这集下定决心就够了，没必要又扯一回
-
-
-
-
-
 
 
 -----
@@ -8102,21 +5498,13 @@ id=68897400
 ##### 3374#       发表于 2018-5-24 19:19
 
 
-
-
 结果还是要把第七的那场做了啊。。天皇赏秋是星云最后的打酱油机会了（
-
-
-
-
-
 
 
 -----
 
 ####  D-JoeII  
 ##### 3375#       发表于 2018-5-24 19:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39758653&amp;ptid=1590696" target="_blank">天狼Q娃 发表于 2018-5-24 19:14</a>
@@ -8130,27 +5518,15 @@ id=68897400
 話說99天皇賞秋雖然贏得精彩但也驚險,因為這也是阿寒湖特別在香港G1前生涯最接近G1冠軍的一次,只輸一個馬鼻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  侃侃而谈喵泽西  
 ##### 3376#       发表于 2018-5-24 19:23
 
 
-
-
 预告里面小特那个吃饭速度..怕不是深得小栗帽大佬真传。
 
 要迎来马生最重了
-
-
-
-
-
 
 
 -----
@@ -8159,14 +5535,7 @@ id=68897400
 ##### 3377#       发表于 2018-5-24 19:27
 
 
-
-
 增重减肥一气呵成
-
-
-
-
-
 
 
 -----
@@ -8175,19 +5544,11 @@ id=68897400
 ##### 3378#       发表于 2018-5-24 19:30
 
 
-
-
 顺带黄金船和自己外公简直..姬情溢出屏幕。所有人里面就你俩吧手放在一起的
-
-
-
-
 
 
 D($W)(HLZR7I$KF{E_FZFQW.png
 (325 KB, 下载次数: 4)
-
-
 
 
 下载附件
@@ -8196,24 +5557,7 @@ D($W)(HLZR7I$KF{E_FZFQW.png
 2018-5-24 19:29 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/24/192931sky9vktk8he9mzdn.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -8222,14 +5566,7 @@ D($W)(HLZR7I$KF{E_FZFQW.png
 ##### 3379#       发表于 2018-5-24 19:38
 
 
-
-
 京都大赏典除了好歌剧以外还有黄金旅程、鲁道夫的儿子Tsumaru Tsuyoshi，目白瑞安的儿子目白光明。这些选手在99有马亦会出场，不知道会不会带一下他们的戏份？<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8238,15 +5575,9 @@ D($W)(HLZR7I$KF{E_FZFQW.png
 ##### 3380#       发表于 2018-5-24 19:46
 
 
-
 <blockquote>Goisdust 发表于 2018-5-24 19:38
 京都大赏典除了好歌剧以外还有黄金旅程、鲁道夫的儿子Tsumaru Tsuyoshi，目白瑞安的儿子目白光明。这些选手 ...</blockquote>
 不过之前赛事确实if，对手都有更变，说不定马甲或找其他马娘上场，然后我们猜猜致敬彩蛋。
-
-
-
-
-
 
 
 -----
@@ -8255,22 +5586,15 @@ D($W)(HLZR7I$KF{E_FZFQW.png
 ##### 3381#       发表于 2018-5-24 19:52
 
 
-
 <blockquote>侃侃而谈喵泽西 发表于 2018-5-24 19:30
 顺带黄金船和自己外公简直..姬情溢出屏幕。所有人里面就你俩吧手放在一起的 ...</blockquote>
 …………黄金船这完全小学生一样的抬杠行为啊
-
-
-
-
-
 
 
 -----
 
 ####  神户⑨小鸟  
 ##### 3382#       发表于 2018-5-24 20:05
-
 
 
  本帖最后由 神户⑨小鸟 于 2018-5-24 20:21 编辑 
@@ -8282,16 +5606,10 @@ D($W)(HLZR7I$KF{E_FZFQW.png
 而且还是黄金巨匠的儿子，身负黄金家血统。
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3383#       发表于 2018-5-24 20:40
-
 
 
  本帖最后由 musicat 于 2018-5-24 20:51 编辑 
@@ -8324,18 +5642,10 @@ D($W)(HLZR7I$KF{E_FZFQW.png
 [https://www.youtube.com/watch?v=kaAn6AFMsh0](https://www.youtube.com/watch?v=kaAn6AFMsh0)，“日本ダービー 2018 参考レース”
 
 
-
-
-
-
-
-
-
 -----
 
 ####  神户⑨小鸟  
 ##### 3384#       发表于 2018-5-24 20:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39759567&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-24 20:40</a>
@@ -8347,25 +5657,13 @@ D($W)(HLZR7I$KF{E_FZFQW.png
 噗，看了阪神大賞典(G2)的视频，黄金家一家逗比
 
 
-
-
-
-
-
 -----
 
 ####  a94939291  
 ##### 3385#       发表于 2018-5-24 20:59
 
 
-
-
 预告里饭堂画面果然有小栗帽出现，制作组也是真爱了
-
-
-
-
-
 
 
 -----
@@ -8374,21 +5672,13 @@ D($W)(HLZR7I$KF{E_FZFQW.png
 ##### 3386#       发表于 2018-5-24 21:13
 
 
-
-
 麦昆：有这种孙子们都怪女婿-黄金旅程，
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 3387#       发表于 2018-5-24 21:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39759567&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-24 20:40</a>
@@ -8400,26 +5690,15 @@ D($W)(HLZR7I$KF{E_FZFQW.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">是不是粉丝都不看好黄金一族的大舞台能力
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3388#       发表于 2018-5-24 21:17
 
 
-
  本帖最后由 Goisdust 于 2018-5-24 21:18 编辑 
 
 风怒
-
-
-
-
-
 
 
 -----
@@ -8428,15 +5707,9 @@ D($W)(HLZR7I$KF{E_FZFQW.png
 ##### 3389#       发表于 2018-5-24 21:17
 
 
-
  本帖最后由 Goisdust 于 2018-5-24 21:18 编辑 
 
 风怒X2
-
-
-
-
-
 
 
 -----
@@ -8445,16 +5718,10 @@ D($W)(HLZR7I$KF{E_FZFQW.png
 ##### 3390#       发表于 2018-5-24 21:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39759982&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-5-24 21:16</a>
 
 最后冲劲好足，与上一场G2被龙王之子Stelvio迎头赶上的样子截然不同。但是…也不至于落到七番人气 ...</blockquote>
 现在还早呢，等当天赔率会变的
-
-
-
-
-
 
 
 -----
@@ -8463,19 +5730,11 @@ D($W)(HLZR7I$KF{E_FZFQW.png
 ##### 3391#       发表于 2018-5-24 21:49
 
 
-
-
 熊爸爸 黄金旅程马甲-金色旅程
-
-
-
-
 
 
 未命名-1.jpg
 (267.09 KB, 下载次数: 4)
-
-
 
 
 下载附件
@@ -8484,24 +5743,7 @@ D($W)(HLZR7I$KF{E_FZFQW.png
 2018-5-24 21:49 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/24/214918ejjj5a2rj5zp9nb2.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -8510,103 +5752,46 @@ D($W)(HLZR7I$KF{E_FZFQW.png
 ##### 3392#       发表于 2018-5-24 23:02
 
 
-
-
 发几个和朋友随便弄的渣嵌
-
-
-
-
 
 
 001.jpg
 (520.9 KB, 下载次数: 1)
 
 
-
-
 下载附件
 
 
 2018-5-24 23:02 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/24/230227gbjpeqboqzshhgju.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 002.jpg
 (459.36 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2018-5-24 23:02 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/24/230230sb1txl1og1q5g0f5.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 003.jpg
 (179.72 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2018-5-24 23:02 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/24/230231q02zt9ob0bpv07u7.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -8615,19 +5800,11 @@ D($W)(HLZR7I$KF{E_FZFQW.png
 ##### 3393#       发表于 2018-5-24 23:24
 
 
-
-
 刀使X赛马娘
-
-
-
-
 
 
 大叔大婶.png
 (1.54 MB, 下载次数: 4)
-
-
 
 
 下载附件
@@ -8636,24 +5813,7 @@ D($W)(HLZR7I$KF{E_FZFQW.png
 2018-5-24 23:24 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/24/232402ti4kphhz4jjxjb2j.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -8662,13 +5822,7 @@ D($W)(HLZR7I$KF{E_FZFQW.png
 ##### 3394#       发表于 2018-5-24 23:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">后背位咬脖子多半是马娘本标配了
-
-
-
-
-
 
 
 -----
@@ -8677,15 +5831,8 @@ D($W)(HLZR7I$KF{E_FZFQW.png
 ##### 3395#       发表于 2018-5-25 00:18
 
 
-
-
 不知一路通的兒女能不能再杜拜贏多次,來個另類三代連霸
 <img src="https://i.imgur.com/bxGYHIZ.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8694,22 +5841,13 @@ D($W)(HLZR7I$KF{E_FZFQW.png
 ##### 3396#       发表于 2018-5-25 11:06
 
 
-
-
 事前登录25w突破，要开特别放送，终于打算上架了？
-
-
-
-
-
 
 
 -----
 
 ####  暗黑能乐  
 ##### 3397#       发表于 2018-5-25 11:15
-
-
 
 
 「ウマ娘 プリティーダービー Abemaステークス第4R(レース)　アニメ最終話放送記念スペシャル」
@@ -8740,13 +5878,7 @@ Machico（トウカイテイオー役）
 放送チャンネル：Abemaアニメ2チャンネル
 
 
-
 最终话放送纪念有前田玲奈出演，有马纪念稳了吧
-
-
-
-
-
 
 
 -----
@@ -8755,13 +5887,7 @@ Machico（トウカイテイオー役）
 ##### 3398#       发表于 2018-5-25 11:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 小栗帽无处不在，这才是亲女儿吧
-
-
-
-
-
 
 
 -----
@@ -8770,21 +5896,13 @@ Machico（トウカイテイオー役）
 ##### 3399#       发表于 2018-5-25 11:21
 
 
-
-
 事前刚刚突破25W了，不知道什么时候开服，而且貌似有机会内置中文
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 3400#       发表于 2018-5-25 11:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39765873&amp;ptid=1590696" target="_blank">暗黑能乐 发表于 2018-5-25 11:15</a>
@@ -8797,16 +5915,10 @@ Machico（トウカイテイオー役）
 —— 來自 samsung SM-J5007, Android 5.1.1上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 3401#       发表于 2018-5-25 11:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39765971&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-5-25 11:21</a>
@@ -8818,16 +5930,10 @@ Machico（トウカイテイオー役）
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">出场那么高，亲女儿啊
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3402#       发表于 2018-5-25 11:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39766005&amp;ptid=1590696" target="_blank">暗黑能乐 发表于 2018-5-25 11:23</a>
@@ -8837,26 +5943,15 @@ Machico（トウカイテイオー役）
 —— 來自 samsung SM-J5007, Android 5.1.1上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
-
-
-
-
-
 -----
 
 ####  神户⑨小鸟  
 ##### 3403#       发表于 2018-5-25 11:28
 
 
-
 <blockquote>meailove 发表于 2018-5-25 11:21
 事前刚刚突破25W了，不知道什么时候开服，而且貌似有机会内置中文</blockquote>
 cy爹的游戏，不锁日本ip就很仁慈了
-
-
-
-
-
 
 
 -----
@@ -8865,24 +5960,16 @@ cy爹的游戏，不锁日本ip就很仁慈了
 ##### 3404#       发表于 2018-5-25 11:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39766081&amp;ptid=1590696" target="_blank">神户⑨小鸟 发表于 2018-5-25 11:28</a>
 
 cy爹的游戏，不锁日本ip就很仁慈了</blockquote>
 额，CY哪个游戏锁日本IP了？
 
 
-
-
-
-
-
 -----
 
 ####  wuxiaojing  
 ##### 3405#       发表于 2018-5-25 11:31
-
-
 
 
 因为是有马纪念，所以小栗帽一定是要出场的呀（大笑）
@@ -8893,26 +5980,15 @@ cy爹的游戏，不锁日本ip就很仁慈了</blockquote>
 我还记得JRA的那个有马CM：“神はいる。そう思った。”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  meailove  
 ##### 3406#       发表于 2018-5-25 11:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39766081&amp;ptid=1590696" target="_blank">神户⑨小鸟 发表于 2018-5-25 11:28</a>
 cy爹的游戏，不锁日本ip就很仁慈了</blockquote>
 额，游戏官推是有投票的，不过票数最多的不是中文
-
-
-
-
-
 
 
 -----
@@ -8921,15 +5997,9 @@ cy爹的游戏，不锁日本ip就很仁慈了</blockquote>
 ##### 3407#       发表于 2018-5-25 11:36
 
 
-
 <blockquote>暗黑能乐 发表于 2018-5-25 11:29
 额，CY哪个游戏锁日本IP了？</blockquote>
 公主链接
-
-
-
-
-
 
 
 -----
@@ -8938,16 +6008,10 @@ cy爹的游戏，不锁日本ip就很仁慈了</blockquote>
 ##### 3408#       发表于 2018-5-25 11:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39766205&amp;ptid=1590696" target="_blank">神户⑨小鸟 发表于 2018-5-25 11:36</a>
 
 公主链接</blockquote>
 B站不是有拿到各种马娘生放的转播权吗，感觉应该有在谈
-
-
-
-
-
 
 
 -----
@@ -8956,14 +6020,7 @@ B站不是有拿到各种马娘生放的转播权吗，感觉应该有在谈
 ##### 3409#       发表于 2018-5-25 11:39
 
 
-
-
 手机没法编辑好麻烦，另外的官推只是问问除了英语以外你还想学什么外语吧
-
-
-
-
-
 
 
 -----
@@ -8972,13 +6029,7 @@ B站不是有拿到各种马娘生放的转播权吗，感觉应该有在谈
 ##### 3410#       发表于 2018-5-25 11:44
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">小栗帽好歹也是最早的pv里和皇帝一起花样滑冰的女主！
-
-
-
-
-
 
 
 -----
@@ -8987,15 +6038,9 @@ B站不是有拿到各种马娘生放的转播权吗，感觉应该有在谈
 ##### 3411#       发表于 2018-5-25 11:46
 
 
-
 <blockquote>zechins 发表于 2018-5-25 11:44
 小栗帽好歹也是最早的pv里和皇帝一起花样滑冰的女主！</blockquote>
 然后那一个kiss之后镜头突然出现了帝皇，让我有了新的想法(｡ì _ í｡)
-
-
-
-
-
 
 
 -----
@@ -9004,14 +6049,7 @@ B站不是有拿到各种马娘生放的转播权吗，感觉应该有在谈
 ##### 3412#       发表于 2018-5-25 11:47
 
 
-
-
 玉藻十字有话要说<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9020,14 +6058,7 @@ B站不是有拿到各种马娘生放的转播权吗，感觉应该有在谈
 ##### 3413#       发表于 2018-5-25 12:00
 
 
-
-
 其实游戏里的小栗帽也已经有潜力当第二号特别周了，光是游戏人物介绍里写明关系的就已经有跟稻荷一和超级小海湾一个班还互相认同，外加一个有事没事就去找小栗帽挑战想超越她的青竹回忆，再加个玉藻十字，也是乱的一逼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
-
-
-
-
-
 
 
 -----
@@ -9036,16 +6067,10 @@ B站不是有拿到各种马娘生放的转播权吗，感觉应该有在谈
 ##### 3414#       发表于 2018-5-25 12:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39766514&amp;ptid=1590696" target="_blank">wuxiaojing 发表于 2018-5-25 12:00</a>
 
 其实游戏里的小栗帽也已经有潜力当第二号特别周了，光是游戏人物介绍里写明关系的就已经有跟稻荷一和超级小 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单看最初那个PV主角完全是小栗帽，特别周镜头特别少，结果最后站中间的居然是特别周，喷了。。
-
-
-
-
-
 
 
 -----
@@ -9054,14 +6079,7 @@ B站不是有拿到各种马娘生放的转播权吗，感觉应该有在谈
 ##### 3415#       发表于 2018-5-25 12:11
 
 
-
-
 估计制作人喜欢特别周吧，所以一开始就是c位
-
-
-
-
-
 
 
 -----
@@ -9070,23 +6088,16 @@ B站不是有拿到各种马娘生放的转播权吗，感觉应该有在谈
 ##### 3416#       发表于 2018-5-25 12:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39766514&amp;ptid=1590696" target="_blank">wuxiaojing 发表于 2018-5-25 12:00</a>
 
 其实游戏里的小栗帽也已经有潜力当第二号特别周了，光是游戏人物介绍里写明关系的就已经有跟稻荷一和超级小 ...</blockquote>
 小提示特别周的妈宣传女郎是和小栗帽是生过孩子的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3417#       发表于 2018-5-25 12:30
-
 
 
  本帖最后由 D-JoeII 于 2018-5-25 12:36 编辑 
@@ -9101,16 +6112,10 @@ B站不是有拿到各种马娘生放的转播权吗，感觉应该有在谈
 倒是21世紀打後名馬的版權目前真的嚴重不足<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zechins  
 ##### 3418#       发表于 2018-5-25 12:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39766514&amp;ptid=1590696" target="_blank">wuxiaojing 发表于 2018-5-25 12:00</a>
@@ -9119,32 +6124,19 @@ B站不是有拿到各种马娘生放的转播权吗，感觉应该有在谈
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">我滋磁玉藻十字
 
 
-
-
-
-
-
 -----
 
 ####  soranoguiji  
 ##### 3419#       发表于 2018-5-25 13:00
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer"> 那就搞点外国马咯，像香港那几匹原住民啊靓虾王啊肯定好谈还能顺便气气社台
-
-
-
-
-
 
 
 -----
 
 ####  mjlic  
 ##### 3420#       发表于 2018-5-25 14:57
-
-
 
 
 话说第10话嘉宾（应该是11话播出后的广播）是什么情况，琵琶晨光根本没有出过场吧？帝皇线要开了？
@@ -9159,21 +6151,10 @@ B站不是有拿到各种马娘生放的转播权吗，感觉应该有在谈
 2018-5-25 14:54 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  natmk  
 ##### 3421#       发表于 2018-5-25 15:05
-
 
 
 <blockquote>mjlic 发表于 2018-5-25 14:57
@@ -9184,27 +6165,15 @@ B站不是有拿到各种马娘生放的转播权吗，感觉应该有在谈
 近藤唯配的是琵琶晨光吧真有帝皇线的话第10话怎么插内容
 
 
-
-
-
-
-
 -----
 
 ####  loli炮  
 ##### 3422#       发表于 2018-5-25 15:09
 
 
-
-
 我发现年终的有马纪念实在太重要了  是很多马的盖棺之战 直接影响后人评价  好的就是小栗帽帝皇黄金巨匠这种载誉退役生涯圆满  负面说渣特 
 
 另外神鹰之子 赤兔马 也好牛逼  
-
-
-
-
-
 
 
 -----
@@ -9213,21 +6182,13 @@ B站不是有拿到各种马娘生放的转播权吗，感觉应该有在谈
 ##### 3423#       发表于 2018-5-25 15:31
 
 
-
-
 我有点预感，OVA不是讲帝皇的戏份，可以讲讲春丽出名的故事，小栗帽的入学比赛故事，大和和伏特加，黄金船三人的小故事比赛。
-
-
-
-
-
 
 
 -----
 
 ####  D-JoeII  
 ##### 3424#       发表于 2018-5-25 15:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39768611&amp;ptid=1590696" target="_blank">mjlic 发表于 2018-5-25 14:57</a>
@@ -9242,16 +6203,10 @@ B站不是有拿到各种马娘生放的转播权吗，感觉应该有在谈
 反正讓多些馬娘在動畫版也客串一下挺好的
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3425#       发表于 2018-5-25 15:50
-
 
 
  本帖最后由 musicat 于 2018-5-25 16:11 编辑 
@@ -9284,17 +6239,10 @@ B站不是有拿到各种马娘生放的转播权吗，感觉应该有在谈
 如果没有神鹰的凯旋门亚军，特别周年度马应该妥妥的，“无冕之王”这个称呼，也多少是因为特别周获得过日本杯。
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 3426#       发表于 2018-5-25 16:14
-
-
 
 
 等会
@@ -9302,16 +6250,10 @@ B站不是有拿到各种马娘生放的转播权吗，感觉应该有在谈
 渣特这名号就算是坐实了？
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 3427#       发表于 2018-5-25 16:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39768611&amp;ptid=1590696" target="_blank">mjlic 发表于 2018-5-25 14:57</a>
@@ -9326,16 +6268,10 @@ B站不是有拿到各种马娘生放的转播权吗，感觉应该有在谈
 哪里有戏份讲帝皇啊
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3428#       发表于 2018-5-25 16:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39769264&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-25 15:50</a>
@@ -9351,16 +6287,10 @@ B站不是有拿到各种马娘生放的转播权吗，感觉应该有在谈
 特别周当年有马没有输的话应该可以年度代表马的，当初第一轮投票还比神鹰票数多的，结果只能平分特别奖……
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3429#       发表于 2018-5-25 16:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39769580&amp;ptid=1590696" target="_blank">xzhei 发表于 2018-5-25 16:16</a>
@@ -9376,16 +6306,10 @@ B站不是有拿到各种马娘生放的转播权吗，感觉应该有在谈
 和现实中，只拿了日本杯，而没有拿到有马纪念，一样年度马没戏。
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3430#       发表于 2018-5-25 16:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39769709&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-25 16:26</a>
@@ -9396,16 +6320,10 @@ B站不是有拿到各种马娘生放的转播权吗，感觉应该有在谈
 主要是神鹰当年国内一场都没有比，所以争议比较大，特别周的调教师都说输给草上飞可以接受，输给神鹰不令人信服
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3431#       发表于 2018-5-25 16:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39769775&amp;ptid=1590696" target="_blank">xzhei 发表于 2018-5-25 16:32</a>
@@ -9414,16 +6332,10 @@ B站不是有拿到各种马娘生放的转播权吗，感觉应该有在谈
 所以说，神鹰这个第一次凯旋门突破的亚军，再当年评选委员会里的分量是由多重。
 
 
-
-
-
-
-
 -----
 
 ####  loli炮  
 ##### 3432#       发表于 2018-5-25 16:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39769264&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-25 15:50</a>
@@ -9436,16 +6348,10 @@ B站不是有拿到各种马娘生放的转播权吗，感觉应该有在谈
 前几天我看日本一级赛排名 有马跟日本杯最高 而且有马还在前边
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3433#       发表于 2018-5-25 16:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39769844&amp;ptid=1590696" target="_blank">loli炮 发表于 2018-5-25 16:37</a>
@@ -9460,16 +6366,10 @@ B站不是有拿到各种马娘生放的转播权吗，感觉应该有在谈
 14        有馬紀念賽        2500        L        草地        中山        日本        3+        121.00
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3434#       发表于 2018-5-25 16:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39769794&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-25 16:33</a>
@@ -9478,16 +6378,10 @@ B站不是有拿到各种马娘生放的转播权吗，感觉应该有在谈
 其实不止凯旋门，主要是当年一年海外成绩都很优秀，应该还是日本马第一次赢欧洲长距离G1。现在神鹰的评价都是3强里最高的，已经彰显马了
 
 
-
-
-
-
-
 -----
 
 ####  loli炮  
 ##### 3435#       发表于 2018-5-25 16:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39769885&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-5-25 16:40</a>
@@ -9496,16 +6390,10 @@ http://racing.hkjc.com/racing/chinese/international-racing/world-rankings/world1
 这个<img src="http://www.daluma.com/cc_admin/editor/php/upload/58161485318870.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3436#       发表于 2018-5-25 17:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39770044&amp;ptid=1590696" target="_blank">loli炮 发表于 2018-5-25 16:56</a>
@@ -9514,16 +6402,10 @@ http://racing.hkjc.com/racing/chinese/international-racing/world-rankings/world1
 你覺得2016的列表新還是香港賽馬會官方的列表新...
 
 
-
-
-
-
-
 -----
 
 ####  loli炮  
 ##### 3437#       发表于 2018-5-25 17:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39770088&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-5-25 17:00</a>
@@ -9532,25 +6414,13 @@ http://racing.hkjc.com/racing/chinese/international-racing/world-rankings/world1
 好像会根据当年成绩变动   反正差不多就那个水平线了
 
 
-
-
-
-
-
 -----
 
 ####  old.just  
 ##### 3438#       发表于 2018-5-25 17:18
 
 
-
-
 再没有草上飞的戏份我要死了，这片没了阿草还有什么看点。
-
-
-
-
-
 
 
 -----
@@ -9559,16 +6429,10 @@ http://racing.hkjc.com/racing/chinese/international-racing/world-rankings/world1
 ##### 3439#       发表于 2018-5-25 17:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39770123&amp;ptid=1590696" target="_blank">loli炮 发表于 2018-5-25 17:03</a>
 
 好像会根据当年成绩变动   反正差不多就那个水平线了</blockquote>
 这个应该是根据当年的成绩评的，2017年天春破纪录了所以评分特别高
-
-
-
-
-
 
 
 -----
@@ -9577,16 +6441,10 @@ http://racing.hkjc.com/racing/chinese/international-racing/world-rankings/world1
 ##### 3440#       发表于 2018-5-25 18:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39769050&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-5-25 15:33</a>
 
 第10話劇情好像是訓練員放大家短假?那帝皇遇上琵琶晨光也不奇怪,說不定麥昆會遇上米浴,黃金船遇上東瀛佐 ...</blockquote>
 有道理，一开始是觉得广播聊的内容跟动画有关所以不可能安排个根本没出过场的马娘cv当嘉宾，然后就想多了哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9595,24 +6453,16 @@ http://racing.hkjc.com/racing/chinese/international-racing/world-rankings/world1
 ##### 3441#       发表于 2018-5-25 18:35
 
 
-
-
 對了剛剛看了下日本德比出馬表,發現最冷門的那隻
 [http://db.netkeiba.com/horse/2015100122/](http://db.netkeiba.com/horse/2015100122/)
 
 剛贏地方泥地G2冠軍,老爸是泥地王,老爸的老爸是富士奇蹟,可以賭一下隔代遺傳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 3442#       发表于 2018-5-25 18:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39766322&amp;ptid=1590696" target="_blank">神户⑨小鸟 发表于 2018-5-24 21:46</a>
@@ -9623,16 +6473,10 @@ http://racing.hkjc.com/racing/chinese/international-racing/world-rankings/world1
 反而是“帝王，给你介绍一下，这是你妈”的感觉
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3443#       发表于 2018-5-25 19:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39771370&amp;ptid=1590696" target="_blank">DOACAON 发表于 2018-5-25 18:59</a>
@@ -9645,16 +6489,10 @@ http://racing.hkjc.com/racing/chinese/international-racing/world-rankings/world1
 最低的关系都起码是那种贴身侍女担当。
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3444#       发表于 2018-5-25 19:07
-
 
 
 <blockquote>D-JoeII 发表于 2018-5-25 18:35
@@ -9666,16 +6504,10 @@ http://db.netkeiba.com/horse/2015100122/
 然而没草地赛经验，而且只参加过一次G2，这是不被看好的原因吧
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3445#       发表于 2018-5-25 19:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39771442&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-5-25 19:07</a>
@@ -9686,17 +6518,10 @@ http://db.netkeiba.com/horse/2015100122/
 所以300多倍當買個奇蹟吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Laie  
 ##### 3446#       发表于 2018-5-25 19:17
-
-
 
 
 距离每周的raison d'être还有两天，度日如年<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
@@ -9704,17 +6529,10 @@ http://db.netkeiba.com/horse/2015100122/
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  mjlic  
 ##### 3447#       发表于 2018-5-25 19:44
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201805/25/183823rp8ml85t3oa58kll.jpg" referrerpolicy="no-referrer">
@@ -9727,9 +6545,6 @@ http://db.netkeiba.com/horse/2015100122/
 2018-5-25 18:38 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/25/194419tuwvxobtun7wz057.jpg" referrerpolicy="no-referrer">
 
 
@@ -9740,19 +6555,7 @@ http://db.netkeiba.com/horse/2015100122/
 2018-5-25 19:44 上传
 
 
-
-
-
-
 官方漫画更新了！芦毛组支持者大欢喜<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
 
 
 -----
@@ -9761,14 +6564,7 @@ http://db.netkeiba.com/horse/2015100122/
 ##### 3448#       发表于 2018-5-25 19:55
 
 
-
-
 芦毛组是穷得向两个极端发展啊，一个是穷到什么都吃，一个是穷到有吃也不敢吃
-
-
-
-
-
 
 
 -----
@@ -9777,16 +6573,10 @@ http://db.netkeiba.com/horse/2015100122/
 ##### 3449#       发表于 2018-5-25 20:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39771891&amp;ptid=1590696" target="_blank">DOACAON 发表于 2018-5-25 19:55</a>
 
 芦毛组是穷得向两个极端发展啊，一个是穷到什么都吃，一个是穷到有吃也不敢吃 ...</blockquote>
 麥昆和黃金船表示:
-
-
-
-
-
 
 
 -----
@@ -9795,16 +6585,10 @@ http://db.netkeiba.com/horse/2015100122/
 ##### 3450#       发表于 2018-5-25 20:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39771776&amp;ptid=1590696" target="_blank">mjlic 发表于 2018-5-25 19:44</a>
 
 官方漫画更新了！芦毛组支持者大欢喜</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">哦哦哦芦毛组大好~
-
-
-
-
-
 
 
 -----
@@ -9813,21 +6597,13 @@ http://db.netkeiba.com/horse/2015100122/
 ##### 3451#       发表于 2018-5-25 20:47
 
 
-
-
 动画里特别周这是连输了多少场了，都快输得意识模糊了吧
-
-
-
-
-
 
 
 -----
 
 ####  PENTAX-DA  
 ##### 3452#       发表于 2018-5-25 20:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39759567&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-24 20:40</a>
@@ -9839,16 +6615,10 @@ http://db.netkeiba.com/horse/2015100122/
 黄金家=赌狗死星
 
 
-
-
-
-
-
 -----
 
 ####  zechins  
 ##### 3453#       发表于 2018-5-25 20:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39771776&amp;ptid=1590696" target="_blank">mjlic 发表于 2018-5-25 19:44</a>
@@ -9857,16 +6627,10 @@ http://db.netkeiba.com/horse/2015100122/
 <img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">是我第二喜欢的天然配傲娇
 
 
-
-
-
-
-
 -----
 
 ####  侃侃而谈喵泽西  
 ##### 3454#       发表于 2018-5-25 20:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39771776&amp;ptid=1590696" target="_blank">mjlic 发表于 2018-5-25 19:44</a>
@@ -9875,25 +6639,13 @@ http://db.netkeiba.com/horse/2015100122/
 可爱到爆炸，玉藻和小栗帽是在太萌了
 
 
-
-
-
-
-
 -----
 
 ####  natmk  
 ##### 3455#       发表于 2018-5-25 21:01
 
 
-
-
 芦毛组真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9902,14 +6654,7 @@ http://db.netkeiba.com/horse/2015100122/
 ##### 3456#       发表于 2018-5-25 21:42
 
 
-
-
 求个栗毛组的翻译
-
-
-
-
-
 
 
 -----
@@ -9918,14 +6663,7 @@ http://db.netkeiba.com/horse/2015100122/
 ##### 3457#       发表于 2018-5-26 00:35
 
 
-
-
 墙裂要求加入超级小海湾和稻荷君！快！打起来打起来！.jpg
-
-
-
-
-
 
 
 -----
@@ -9934,24 +6672,16 @@ http://db.netkeiba.com/horse/2015100122/
 ##### 3458#       发表于 2018-5-26 09:32
 
 
-
-
 【グッズ情報】グッドスマイルカンパニー様より「スペシャルウィーク」のねんどろいど化が決定いたしました！
 
 現在鋭意制作中です。続報にご期待ください！
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1frohk467cpj20ok0ok4lu.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3459#       发表于 2018-5-26 10:05
-
 
 
  本帖最后由 musicat 于 2018-5-26 10:27 编辑 
@@ -9965,10 +6695,6 @@ http://db.netkeiba.com/horse/2015100122/
 下载附件
 
 2018-5-26 09:38 上传
-
-
-
-
 
 
 早上整理的，周日德比赛马的一些情况。
@@ -9989,7 +6715,6 @@ http://db.netkeiba.com/horse/2015100122/
 外加富士奇石，这次也有一匹他的孙子参赛。不过和父亲kane hekili这匹泥地王一样，跑泥地出身。
 
 
-
 另外一大系，就是龟波王了，龙王和统治地位，都是龟波王的儿子。
 
 2018年龟波王17岁，作为种马的生涯应该还有一大段时间。*网站显示配种费用是“私聊”，不知道具体多少。
@@ -9997,18 +6722,9 @@ http://db.netkeiba.com/horse/2015100122/
 同时是作为最重要的母系之一，和周日宁静这个父系搭配。
 
 
-
 草上飞作为父系，这次也有他的孙子参赛。儿子银幕英雄也是市场的主要种马吧。
 
 就这次德比来说，是动画几位主角的最终赢家。“还不能笑.jpg”
-
-
-
-
-
-
-
-
 
 
 -----
@@ -10017,21 +6733,13 @@ http://db.netkeiba.com/horse/2015100122/
 ##### 3460#       发表于 2018-5-26 10:46
 
 
-
-
 地方G1跟中央G1区别在哪
-
-
-
-
-
 
 
 -----
 
 ####  xzhei  
 ##### 3461#       发表于 2018-5-26 10:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39776254&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-26 10:05</a>
@@ -10045,16 +6753,10 @@ http://db.netkeiba.com/horse/2015100122/
 父系一样的话，其实不能叫兄弟了，是真竞争对手，因为要抢同一批血统不重合的繁殖马，没有SS血统的种马倒好过一点
 
 
-
-
-
-
-
 -----
 
 ####  noHentai  
 ##### 3462#       发表于 2018-5-26 16:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39765971&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-5-25 11:21</a>
@@ -10066,16 +6768,10 @@ http://db.netkeiba.com/horse/2015100122/
 万一宣布二期了呢（
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3463#       发表于 2018-5-26 16:23
-
 
 
 <blockquote>noHentai 发表于 2018-5-26 16:09
@@ -10083,16 +6779,10 @@ http://db.netkeiba.com/horse/2015100122/
 有2期也是拍東海帝皇吧
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 3464#       发表于 2018-5-26 16:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39779477&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-5-26 16:23</a>
@@ -10103,16 +6793,10 @@ http://db.netkeiba.com/horse/2015100122/
 帝皇的人气不给个二期难说过去。这季是小特和铃鹿的一生赛事演完，下季是帝皇和麦昆一生的赛事演完。
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 3465#       发表于 2018-5-26 16:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39779477&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-5-26 16:23</a>
@@ -10121,24 +6805,13 @@ http://db.netkeiba.com/horse/2015100122/
 顺便还能拯救米浴的悲剧。
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3466#       发表于 2018-5-26 17:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">但帝皇感觉故事不好编啊…缺乏那种精彩的名胜负。生涯３败第一次是没跑过2400以上，长距离被麦昆击败。第二次自己失速，第三次还是因为吃泻药…一直演复健的话也很没意思
-
-
-
-
-
 
 
 -----
@@ -10147,14 +6820,7 @@ http://db.netkeiba.com/horse/2015100122/
 ##### 3467#       发表于 2018-5-26 17:19
 
 
-
-
 我想看小栗帽啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10163,16 +6829,10 @@ http://db.netkeiba.com/horse/2015100122/
 ##### 3468#       发表于 2018-5-26 17:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39779903&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-5-26 17:18</a>
 
 但帝皇感觉故事不好编啊…缺乏那种精彩的名胜负。生涯３败第一次是没跑过2400以上，长距离被麦昆击 ...</blockquote>
 看改篇功力啦,不然硬要較真歷史這麼算其實小栗帽也沒啥好看,來中央後跑的20次比賽裡前期一堆G2G3,玉藻十字又88年就退役<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10181,14 +6841,7 @@ http://db.netkeiba.com/horse/2015100122/
 ##### 3469#       发表于 2018-5-26 18:27
 
 
-
-
 看了下nico的东海帝王介绍，才知道wp8那个小马跳出围栏又跳回来的剧情是捏他东海帝王的啊
-
-
-
-
-
 
 
 -----
@@ -10197,14 +6850,7 @@ http://db.netkeiba.com/horse/2015100122/
 ##### 3470#       发表于 2018-5-26 18:43
 
 
-
-
 或许说可以再加入一位成员，这样帝皇的败战戏份也不会太集中导致无聊，主角队中还可以再加一位新成员。
-
-
-
-
-
 
 
 -----
@@ -10213,24 +6859,15 @@ http://db.netkeiba.com/horse/2015100122/
 ##### 3471#       发表于 2018-5-26 18:53
 
 
-
-
 小特这季全部赛事都演完了，就算是梦之杯下季也很少戏份吧，女儿迷人景致版权都不知几时谈好。
 
 小特和铃鹿要在下季戏份安排也是问题。
-
-
-
-
-
 
 
 -----
 
 ####  金色先锋  
 ##### 3472#       发表于 2018-5-26 19:42
-
-
 
 
 漫画终于更新了
@@ -10240,16 +6877,10 @@ http://db.netkeiba.com/horse/2015100122/
 漫画里亚马逊才是最皮的吧
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 3473#       发表于 2018-5-26 20:37
-
 
 
 <blockquote>金色先锋 发表于 2018-5-26 19:42
@@ -10261,33 +6892,20 @@ http://db.netkeiba.com/horse/2015100122/
 求一个漫画地址…
 
 
-
-
-
-
-
 -----
 
 ####  猿飞日斩3  
 ##### 3474#       发表于 2018-5-26 20:40
 
 
-
-
 看了下nico的弹幕，伏特加和麦昆对话那段，耳朵的动作做得很细，特别是伏特加怀疑麦昆和黄金船很亲密时，麦昆的耳朵是向后平直伸直的，查了下资料，马的耳朵处于这个状态时，代表愤怒
 [http://sports.sina.com.cn/o/e/20 ... xprucu3011215.shtml](http://sports.sina.com.cn/o/e/2016-02-19/doc-ifxprucu3011215.shtml)
-
-
-
-
-
 
 
 -----
 
 ####  物流大亨常凯申  
 ##### 3475#       发表于 2018-5-26 20:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39781721&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-5-26 20:40</a>
@@ -10305,16 +6923,10 @@ http://db.netkeiba.com/horse/2015100122/
 还是说从古代被狼追的记忆被刻在基因里，见到狗就本能害怕？
 
 
-
-
-
-
-
 -----
 
 ####  猿飞日斩3  
 ##### 3476#       发表于 2018-5-26 21:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39781787&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-5-26 20:48</a>
@@ -10326,16 +6938,10 @@ http://db.netkeiba.com/horse/2015100122/
 可能是对肉食动物的恐惧吧？毕竟马一直是被捕食者，不也经常被比自己小很多的肉食动物追着跑
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 3477#       发表于 2018-5-26 21:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39781787&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-5-26 20:48</a>
@@ -10347,16 +6953,10 @@ http://db.netkeiba.com/horse/2015100122/
 马还怕骆驼呢...<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  pwlong  
 ##### 3478#       发表于 2018-5-26 21:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39781787&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-5-26 20:48</a>
@@ -10368,25 +6968,13 @@ http://db.netkeiba.com/horse/2015100122/
 因为马听觉灵敏而视觉较差。听觉灵敏还怕高音，所以突然出现什么大声的东西容易受惊，跟臭鼬怼狗一样，狗叫声也是直击马灵魂的攻击<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3479#       发表于 2018-5-26 22:40
 
 
-
-
 冒昧问一下有没有和专楼基调差不多的马娘/竟马群，明天就是德比了想找个组织，却不知道除了专楼哪里有马娘粉丝兼聊真马的
-
-
-
-
-
 
 
 -----
@@ -10395,21 +6983,13 @@ http://db.netkeiba.com/horse/2015100122/
 ##### 3480#       发表于 2018-5-26 22:50
 
 
-
-
 我好奇你坛专楼怎么不开一个群的
-
-
-
-
-
 
 
 -----
 
 ####  明年春日  
 ##### 3481#       发表于 2018-5-26 22:51
-
 
 
  本帖最后由 明年春日 于 2018-5-26 22:52 编辑 
@@ -10419,16 +6999,10 @@ http://db.netkeiba.com/horse/2015100122/
 微博有你搜下有马字幕组，他那公告有好几个群号，里面有讨论真实赛马的
 
 
-
-
-
-
-
 -----
 
 ####  lyzcs  
 ##### 3482#       发表于 2018-5-26 22:54
-
 
 
  本帖最后由 lyzcs 于 2018-5-27 09:41 编辑 
@@ -10440,30 +7014,17 @@ http://db.netkeiba.com/horse/2015100122/
 Special Victory：378127907
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 3483#       发表于 2018-5-27 00:37
 
 
-
-
 刀使X馬娘
-
-
-
-
 
 
 result.H16M02S42.jpg
 (506.36 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -10472,24 +7033,7 @@ result.H16M02S42.jpg
 2018-5-27 00:36 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/27/003654rvtstwe6vsxpt8j5.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -10498,15 +7042,9 @@ result.H16M02S42.jpg
 ##### 3484#       发表于 2018-5-27 00:53
 
 
-
 <blockquote>天狼Q娃 发表于 2018-5-27 00:37
 刀使X馬娘</blockquote>
 搁战吧要扭成麻花了
-
-
-
-
-
 
 
 -----
@@ -10515,23 +7053,16 @@ result.H16M02S42.jpg
 ##### 3485#       发表于 2018-5-27 01:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39784548&amp;ptid=1590696" target="_blank">天狼Q娃 发表于 2018-5-27 00:37</a>
 
 刀使X馬娘</blockquote>
 骑马与砍杀
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 3486#       发表于 2018-5-27 01:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39784714&amp;ptid=1590696" target="_blank">loli炮 发表于 2018-5-27 00:53</a>
@@ -10542,25 +7073,13 @@ result.H16M02S42.jpg
 战吧就成刀马旦扭曲吧了
 
 
-
-
-
-
-
 -----
 
 ####  百升飞上天  
 ##### 3487#       发表于 2018-5-27 02:16
 
 
-
-
 历史上草上飞为何没有参加天皇赏和日本杯了
-
-
-
-
-
 
 
 -----
@@ -10569,16 +7088,10 @@ result.H16M02S42.jpg
 ##### 3488#       发表于 2018-5-27 02:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39785382&amp;ptid=1590696" target="_blank">百升飞上天 发表于 2018-5-27 02:16</a>
 
 历史上草上飞为何没有参加天皇赏和日本杯了</blockquote>
 国产马保护政策，外国马不能参赛
-
-
-
-
-
 
 
 -----
@@ -10587,15 +7100,9 @@ result.H16M02S42.jpg
 ##### 3489#       发表于 2018-5-27 03:07
 
 
-
  本帖最后由 天狼Q娃 于 2018-5-27 03:33 编辑 
 
 隔壁麦昆也在WWW
-
-
-
-
-
 
 
 -----
@@ -10604,23 +7111,16 @@ result.H16M02S42.jpg
 ##### 3490#       发表于 2018-5-27 03:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39785430&amp;ptid=1590696" target="_blank">多多天下 发表于 2018-5-27 02:27</a>
 
 国产马保护政策，外国马不能参赛</blockquote>
 以馬娘有登場的角色來說,丸善滑雪真是當時這政策的最大受害者,馬主當時想讓牠參加德比試試真正實力,跟JRA說排最外檔,不要獎金之類的條件都接受,然而JRA還是不批准,然後當時G1賽又不多,只能等到有馬記念,結果準備有馬時在訓練期間弄傷被迫退役<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zechins  
 ##### 3491#       发表于 2018-5-27 07:43
-
 
 
 <img src="http://wx4.sinaimg.cn/mw690/0070WDskly1frpjy496v0j30hy0f6thh.jpg" referrerpolicy="no-referrer">
@@ -10632,16 +7132,10 @@ result.H16M02S42.jpg
 顺带一提今天是日本ダービー<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3492#       发表于 2018-5-27 07:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39785430&amp;ptid=1590696" target="_blank">多多天下 发表于 2018-5-27 02:27</a>
@@ -10650,16 +7144,10 @@ result.H16M02S42.jpg
 日本杯可以参加的，当时好像脚上的伤又出现了点小问题，稳妥起见避战。
 
 
-
-
-
-
-
 -----
 
 ####  百升飞上天  
 ##### 3493#       发表于 2018-5-27 08:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39785430&amp;ptid=1590696" target="_blank">多多天下 发表于 2018-5-27 02:27</a>
@@ -10668,26 +7156,15 @@ result.H16M02S42.jpg
 神鹰不参加日本杯吗？ 
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3494#       发表于 2018-5-27 08:33
 
 
-
 <blockquote>天狼Q娃 发表于 2018-5-27 03:07
 隔壁麦昆也在WWW</blockquote>
 最新话变闪电麦昆了
-
-
-
-
-
 
 
 -----
@@ -10696,23 +7173,16 @@ result.H16M02S42.jpg
 ##### 3495#       发表于 2018-5-27 09:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39785430&amp;ptid=1590696" target="_blank">多多天下 发表于 2018-5-27 02:27</a>
 
 国产马保护政策，外国马不能参赛</blockquote>
 日本杯没有保护政策吧，神鹰参加了前一年的日本杯
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3496#       发表于 2018-5-27 10:17
-
 
 
  本帖最后由 musicat 于 2018-5-27 10:40 编辑 
@@ -10742,14 +7212,9 @@ result.H16M02S42.jpg
 2018-5-27 09:33 上传
 
 
-
-
-
-
 神鹰的全生涯成绩单真的是很亮眼。（[http://www.jbis.or.jp/horse/0000299155/record/](http://www.jbis.or.jp/horse/0000299155/record/)）
 
 就是退役之后因肠炎死得早，3年配种生涯，没什么出色的子嗣。
-
 
 
 ===========================
@@ -10786,7 +7251,6 @@ result.H16M02S42.jpg
 皇帝在当年接下来的有马纪念复仇成功，并且在第二年的85日本杯夺冠。
 
 
-
 之后的6年，日本杯旁落外国马。
 
 直到92年，引用B站相关视频里的一个评论，
@@ -10794,7 +7258,6 @@ result.H16M02S42.jpg
 “即使是状态最不稳定伤病最严重的时候，还拿下了日本杯这座价值连城的G1，夺回了旁落外国马六年的日本杯”
 
 这位就是皇帝的儿子，东海帝王。 
-
 
 
 93年Legacy World，94年Marvelous Crown，都是日本马夺冠。
@@ -10805,7 +7268,6 @@ result.H16M02S42.jpg
 98年就是“最强世代的登场了”，神鹰，气槽，特别周，前3都是日本马。
 
 不过神鹰归根还有出身美国的因素，99年特别周得冠，以及当年的年度马评选，特别周和神鹰之争，还带上了民族主义的色彩。
-
 
 
 之后偶有挫折，到06年大震撼夺冠，直到17年的高尚骏逸“Cheval Grand”，
@@ -10822,32 +7284,19 @@ result.H16M02S42.jpg
 以及第一次两夺日本杯（12-13），也是雌马的贵妇人（Gentildonna）。
 
 
-
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 3497#       发表于 2018-5-27 11:06
 
 
-
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1frpps5a1nqj20p00e2482.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 3498#       发表于 2018-5-27 11:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39787292&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-27 10:17</a>
@@ -10858,17 +7307,10 @@ result.H16M02S42.jpg
 Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决，却被一个出道两年才开始跑重赏的大黑马给双双击杀，过程还没啥波折。后来有马也跑了第二，胜过CB（虽然CB当时好像衰退了，自己失速）调教师野平给皇帝留下的那段话，赛马不是绝对但对鲁道夫来说是绝对的，我反而觉得这一场败仗就印证了赛场的不确定性
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3499#       发表于 2018-5-27 12:50
-
-
 
 
 對了如果有興趣看日本德比的話,富士(倒A檔那台)會直播(其實G1賽他們都播)
@@ -10877,13 +7319,9 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 北京時間兩點開始節目,2點40分左右開跑(G1賽都是這個時間點)
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -10893,19 +7331,13 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 | badapple| + 2|3Q|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  musicat  
 ##### 3500#       发表于 2018-5-27 14:14
-
 
 
  本帖最后由 musicat 于 2018-5-27 14:37 编辑 
@@ -10928,16 +7360,10 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 现场还有国歌独唱。。。虽然日本的国歌独唱起来比美国为代表的那些，有点。。。
 
 
-
-
-
-
-
 -----
 
 ####  多多天下  
 ##### 3501#       发表于 2018-5-27 14:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39788102&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-5-27 11:37</a>
@@ -10946,32 +7372,19 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 手上这个WP8档被Katsuragi Ace截了好几次胡，CB 4岁尝试春秋制霸就被搞掉了宝塚，还有好几个G2
 
 
-
-
-
-
-
 -----
 
 ####  多多天下  
 ##### 3502#       发表于 2018-5-27 14:36
 
 
-
-
 エポカドーロ上到4番人气了lol
-
-
-
-
-
 
 
 -----
 
 ####  musicat  
 ##### 3503#       发表于 2018-5-27 14:43
-
 
 
  本帖最后由 musicat 于 2018-5-27 14:49 编辑 
@@ -10990,32 +7403,19 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 最后时刻被追上啊，可惜，应该是第二。冠军是wagnerian。
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3504#       发表于 2018-5-27 14:49
 
 
-
-
 福永不坑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  多多天下  
 ##### 3505#       发表于 2018-5-27 14:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39789746&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-27 14:43</a>
@@ -11026,24 +7426,13 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 2着，最后头差可惜了
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 3506#       发表于 2018-5-27 14:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">福永初达比
-
-
-
-
-
 
 
 -----
@@ -11052,14 +7441,7 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 ##### 3507#       发表于 2018-5-27 14:52
 
 
-
-
 达农吹暴死了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11068,23 +7450,15 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 ##### 3508#       发表于 2018-5-27 14:53
 
 
-
-
 最后的冲刺好漂亮
 
 骑手带着眼镜都能看出哭了
-
-
-
-
-
 
 
 -----
 
 ####  musicat  
 ##### 3509#       发表于 2018-5-27 14:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39789793&amp;ptid=1590696" target="_blank">センコウ 发表于 2018-5-27 14:49</a>
@@ -11095,25 +7469,13 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 这位好像是一直评价不太高，经常失误坑马？
 
 
-
-
-
-
-
 -----
 
 ####  PENTAX-DA  
 ##### 3510#       发表于 2018-5-27 14:54
 
 
-
-
 达能果然暴死了，那天看到人气赔率就感觉赢不了
-
-
-
-
-
 
 
 -----
@@ -11122,21 +7484,13 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 ##### 3511#       发表于 2018-5-27 14:55
 
 
-
-
 エポカドーロ 好可惜，最后关头被超过去了
-
-
-
-
-
 
 
 -----
 
 ####  センコウ  
 ##### 3512#       发表于 2018-5-27 14:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39789824&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-27 14:54</a>
@@ -11147,16 +7501,10 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马娘里达比kinghalo成绩一塌糊涂就是福永跑的啊，根本没控制住马，开始就狂冲
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3513#       发表于 2018-5-27 14:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39789835&amp;ptid=1590696" target="_blank">センコウ 发表于 2018-5-27 14:55</a>
@@ -11165,16 +7513,10 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 也不容易啊，跑了19年。。。
 
 
-
-
-
-
-
 -----
 
 ####  多多天下  
 ##### 3514#       发表于 2018-5-27 15:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39789824&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-27 14:54</a>
@@ -11185,17 +7527,10 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 陪跑光环打比失速14位惨败就是福永<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猿飞日斩3  
 ##### 3515#       发表于 2018-5-27 15:03
-
-
 
 
 圣王光环的骑手居然赢了
@@ -11203,16 +7538,10 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 不过这位之后的评价也变好了
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3516#       发表于 2018-5-27 15:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39789824&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-27 14:54</a>
@@ -11223,16 +7552,10 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 因为出道多年一直被捧，但从来没赢过打比，还坑过几次打比
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3517#       发表于 2018-5-27 15:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39789893&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-5-27 15:03</a>
@@ -11251,19 +7574,7 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 2018-5-27 15:08 上传
 
 
-
-
-
-
-
-
 也算是小冷的赛果了。
-
-
-
-
-
-
 
 
 -----
@@ -11272,23 +7583,16 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 ##### 3518#       发表于 2018-5-27 15:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39789951&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-27 15:10</a>
 
 也算是小冷的赛果了。</blockquote>
 好吧，不过一直有达比胜利的马都是怪物的说法，看看这马接下去有什么表现吧
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3519#       发表于 2018-5-27 15:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39789951&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-27 15:10</a>
@@ -11310,16 +7614,10 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 这些国内外所谓大佬的预测真是一点也不靠谱，倒是皋月赏1番人气落败真的有玄学
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3520#       发表于 2018-5-27 15:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39789973&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-5-27 15:13</a>
@@ -11328,16 +7626,10 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 没有这种说法吧，只听过打比是运气最好的马赢，皋月是最快的马，菊花是最强的马
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3521#       发表于 2018-5-27 15:17
-
 
 
  本帖最后由 musicat 于 2018-5-27 15:19 编辑 
@@ -11354,16 +7646,10 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 然后刚才查了一下，这马皋月赏是第一人气，然后被骑手坑了只拿到第七，就是被今天这位冠军骑手坑了。。。
 
 
-
-
-
-
-
 -----
 
 ####  猿飞日斩3  
 ##### 3522#       发表于 2018-5-27 15:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39790004&amp;ptid=1590696" target="_blank">xzhei 发表于 2018-5-27 15:16</a>
@@ -11372,16 +7658,10 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 好吧
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3523#       发表于 2018-5-27 15:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39790013&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-27 15:17</a>
@@ -11392,16 +7672,10 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">Epoca d'Oro的名字是意大利语黄金的时代的意思，应该可以翻黄金时代/黄金世代/黄金年代？
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3524#       发表于 2018-5-27 15:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39789984&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-5-27 15:14</a>
@@ -11416,32 +7690,19 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 足球里面的话，更多的是“专家算出来的，大众所期待的胜率“，并不完全是”当时的实力“。
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3525#       发表于 2018-5-27 15:27
 
 
-
-
 泥地王之子テーオーエナジー不负众望跑了最后…
-
-
-
-
-
 
 
 -----
 
 ####  猿飞日斩3  
 ##### 3526#       发表于 2018-5-27 15:34
-
 
 
 <blockquote>musicat 发表于 2018-5-27 15:17
@@ -11451,16 +7712,10 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 这个骑手已经背锅习惯了，nico上还搞了个福永被害者协会，圣王光环理所当然的成了会长
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3527#       发表于 2018-5-27 15:41
-
 
 
  本帖最后由 musicat 于 2018-5-27 15:45 编辑 
@@ -11481,16 +7736,10 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 1号人气的达能，多少有点被挡住了路，没能加起速来。
 
 
-
-
-
-
-
 -----
 
 ####  猿飞日斩3  
 ##### 3528#       发表于 2018-5-27 15:44
-
 
 
 <blockquote>musicat 发表于 2018-5-27 15:41
@@ -11502,16 +7751,10 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 谢谢，我去看看，不过明显日本马娘观众那边挺喜欢调侃福永的，连带圣王光环也风评被害了
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3529#       发表于 2018-5-27 15:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39790206&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-5-27 15:44</a>
@@ -11520,16 +7763,10 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 因为圣王光环是第一个受害者……今年之前也是福永本人印象最深的打比，现在推特上已经各位曾经的被害者名字出没中……
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3530#       发表于 2018-5-27 15:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39790243&amp;ptid=1590696" target="_blank">xzhei 发表于 2018-5-27 15:48</a>
@@ -11538,16 +7775,10 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 这么一说，今天的德比冠军Wagnerian，人设上，应该是运气SS，被其他赛马娘嫉妒的要死的那种。
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3531#       发表于 2018-5-27 15:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39790183&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-27 15:41</a>
@@ -11558,16 +7789,10 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 ダノン其实是马主野田的姓（Noda）倒过来念的冠名，一般翻译都直接翻成野田的
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3532#       发表于 2018-5-27 16:00
-
 
 
  本帖最后由 xzhei 于 2018-5-27 16:01 编辑 
@@ -11577,16 +7802,10 @@ Katsuragi Ace也挺传奇的，那回好像是日本杯首次2匹三冠马对决
 可能被其他福永被害者嫉妒……也说不定是金子光环太厉害，连福永都可以克过……
 
 
-
-
-
-
-
 -----
 
 ####  多多天下  
 ##### 3533#       发表于 2018-5-27 16:01
-
 
 
  本帖最后由 多多天下 于 2018-5-27 16:07 编辑 
@@ -11598,17 +7817,10 @@ niconico上9话全是福永祐一、許される
 中了3联单的赌狗，285w<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猿飞日斩3  
 ##### 3534#       发表于 2018-5-27 16:14
-
-
 
 
 NICO上大量福永弹幕发生
@@ -11616,16 +7828,10 @@ NICO上大量福永弹幕发生
 还有个阿寒湖特别之子，阿寒湖也笑死人了
 
 
-
-
-
-
-
 -----
 
 ####  汝者  
 ##### 3535#       发表于 2018-5-27 16:26
-
 
 
  本帖最后由 汝者 于 2018-5-27 16:27 编辑 
@@ -11638,26 +7844,13 @@ NICO上大量福永弹幕发生
 翻了才发现才有人回了
 
 
-
-
-
-
-
-
 -----
 
 ####  韩子  
 ##### 3536#       发表于 2018-5-27 16:36
 
 
-
-
 撸个铁回来一开推福永居然第一了，真是不容易啊…
-
-
-
-
-
 
 
 -----
@@ -11666,21 +7859,13 @@ NICO上大量福永弹幕发生
 ##### 3537#       发表于 2018-5-27 16:43
 
 
-
-
 香港那邊現在好奇巴基之星會不會參加寶塚爭香港馬王...
-
-
-
-
-
 
 
 -----
 
 ####  downforce  
 ##### 3538#       发表于 2018-5-27 17:33
-
 
 
 <blockquote>引用第3532楼多多天下于2018-05-27 16:01发表的  :
@@ -11692,32 +7877,19 @@ NICO上大量福永弹幕发生
 ----发送自 [samsung SM-G9350,Android 7.0](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3539#       发表于 2018-5-27 17:42
 
 
-
-
 希望今晚能够出现小草<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 3540#       发表于 2018-5-27 18:18
-
 
 
  本帖最后由 Goisdust 于 2018-5-27 22:46 编辑 
@@ -11733,25 +7905,19 @@ NICO上大量福永弹幕发生
 高野/无声铃鹿：铃鹿给人虚幻的印象，原本是以悲剧的女主角一样的感觉塑造的。动画中铃鹿是小特憧憬的存在，不成为那样的存在就不行。因此平时温和的她在决胜负时就会变得认真又酷，意识着虚无飘渺中的坚强去扮演
 
 
-
 前田/草上飞：小草是美国出身喜爱和文化的大和抚子，总是温柔的对待周围、给予众人建议。演出要留意的是用慢条斯理的感觉去说话，而这样的她也有给神鹰暗肘，以及对胜负执着的一面，会考量其中的平衡去诠释角色。
-
 
 
 鬼头/星云天空：星云天空不是最初甄选时准备的角色，而是在现场被要求「这个人物也试试看」接受下来的。因为是个轻飘飘又我行我素的孩子，最初搞不懂她在想什么，但在演出过程中萌生了也许和自己很相似的念头。从那之后就与自己重合，变成会思考自己是这么想的，那星云天空会不会也是同样的想法？的感觉
 
 
-
 （哪个部份相似呢？）
-
 
 
 鬼头：我行我素的…但是认真起来时姑且还是有点能干的地方（笑）。我如果全力以赴还输了的话也会很受打击，因此一般不怎么想太拼命，很少有这样与我有共通点的角色，能相遇应该是命运吧。
 
 
-
 首藤/乌拉拉：确定出演乌拉拉的时候，其实我去拜访了真正的ハルウララ一趟。当时觉得马儿是很帅气的，但是乌拉拉给人像小孩子一样可爱的感觉。赛马娘的乌拉拉也正是这种孩子气的印象，在至今甄选过的角色中是最容易扮演的，很快就掌握了。
-
 
 
 （也就是说自己像小孩子吗？）
@@ -11759,17 +7925,13 @@ NICO上大量福永弹幕发生
 首藤：被家人说相似的地方很多，但自己不是很清楚（笑）魅力点是樱花色的发色和眼睛，很容易给观众留下印象。与大家互动的时候会毫不在乎的把距离感给粉粹，留意着乌拉拉不懂阅读空气的个性来扮演。
 
 
-
 （至今印象深刻的集数？）
-
 
 
 和气：5话的日本德比，与史实不同加入了神鹰参赛，令人期待会有怎样的展开。喜欢片尾曲的「ありがとう、神様」，德比被称为是最幸运的马才能优胜，正因为如此特别周才会涌现出感谢神明大人的话语。Spica为小特找来的四叶草，以及冲线后的那席话，感受到小特真的邂逅了一支好队伍。
 
 
-
 高野：8话训练员给了Spica成员们各自不同的指点的地方很喜欢，7话铃鹿受伤落败虽然很冲击，但从至今为止的走向也能预想得到。然而在此之后铃鹿要如何振作，想象不到未来的情况下迎来的第8-9话变得格外重要。我很喜欢训练员对铃鹿说的「去年妳让我看见了梦想，但是这还不足够，我想在你身上看到更多的梦。」这也是让喜爱着无声铃鹿的大家有所共鸣的一句话。训练员对Spica而言虽然是像父亲一样的指导者，但也和为真正赛马声援的观众们有着相同的心情，这点让我高兴。8-9话是令人对铃鹿接下来的梦想萌生出期待感的话数，因此非常喜欢。
-
 
 
 前田：8话草上飞和小特的直接对决。草上飞因为受伤一直无法出赛，6话在焦虑不安的心情中被铃鹿败得体无完肤。在这样迎来的第8话，明明是和小特的比赛，小特却一直形影不离守在先前受伤的铃鹿身边。虽然能理解那种心情，但对小草而言明明将小特认定为对手，想一起奔跑的，小特却只顾着看铃鹿那边，再也没有比这更悲伤的了（笑）不管看多少次剧本都很难过，真的完全没回头看草上飞这边。
@@ -11779,21 +7941,16 @@ NICO上大量福永弹幕发生
 希望总有一天还能再交手，然后如果小特能因此意识到什么、变得更坚强的话就好了，就是这样的一集。
 
 
-
 鬼头：我也对5话印象深刻，3话输掉比赛时星云天空并没有表现出那么悔恨的模样。但是第5话的日本德比，正因为竭尽所能的努力了才会那么不甘心。虽然输了但也表现出了她的决心，努力却还是失败是很让人懊悔的，但正因为有这样的经验才会变得更强。从今以后星云天空的成长我也很期待。
-
 
 
 首藤：4话乌拉拉从高知出道战回到学园的地方，这里加入了「日本的黎明临近了」的即兴台词。乌拉拉虽然是没赢过比赛的马娘，但是心想「下次会赢的！」所以丝毫不感到气馁。和其他角色不同她既没有那种非赢比赛不可的强烈意志，也不会嫉妒他人，只是单纯抱着能获胜就太好了的乐观态度。这句台词便贯注了乌拉拉「输多少次都要加油！」的心情在里面。不过我自己的话输成那样子一定会很沮丧，连学校都不想去了（笑）所以这样的乌拉拉也勉励着我
 
 
-
 （先前说到了史实的话题，与实际赛事连结也是本动画的特证。从这些地方对竟马产生兴趣，出演这部作品后带来的影响请告诉我们）
 
 
-
 高野：我和爸爸感情变好了呢，饰演的是无声铃鹿的关系，我表现出喜欢逃马之后被爸爸「最后追上来的马更帅气！」这样热烈的说服着（笑）托这部作品的福，和爸爸聊天的契机也增加了，真的是很厉害的影响，带给我很开心的时间。
-
 
 
 和气：本来我对赛马基本不了解，甄选的时候也抱着就是一般拟人化作品的想法。但获得出演机会后感受到了staff们的认真程度。与赛马娘同样地，对真正的马儿奔跑的模样也感到帅气。
@@ -11801,9 +7958,7 @@ NICO上大量福永弹幕发生
 知道了马会和猫狗一样用耳朵和尾巴表达心情这样的事情，觉得马儿在心中更加可爱了。
 
 
-
 （实际也看过赛马比赛吗？）
-
 
 
 和气：BD BOX第一卷的特典影像中和Machico、高野一起去了佐贺竟马场，去北海道见到了特别周。在牧场也看见了母马和小孩，小马一直依偎着妈妈的样子真的很可爱。我相当喜欢动物呢。
@@ -11812,11 +7967,9 @@ NICO上大量福永弹幕发生
 前田：看过剧本后，知道了像是铃鹿会在房间里转圈，小特比赛前变胖原来是真的这些事。比赛包括骑手的衣装的也是遵循史实的，诸如此类从Staff和观众得到的小知识很多。然后草上飞额头上的流星也反映在了赛马娘的人设里，真是对考虑得这么细致的Staff和察觉到的观众都感到佩服。明明我应该要是最先发现的才对呀！下次不会再看走眼了。
 
 
-
 鬼头：动画开播后在其他现场，被身为竟马迷的原作老师搭话说看了赛马娘。至今为止对都赛马一无所知，然而因为这部作品也变得能理解大家聊的话题了。
 
 赛马最初我认为只是单纯的竞争而已，但是以作品为契机，了解到马不同的个性和比赛风格。对竟马fans不用说，不懂赛马的人来看也是有趣的动画，并自然而然能从其中学习到比赛的知识，真的是很优秀的作品。
-
 
 
 首藤：狗不是有腊肠犬、柯基犬、柴犬这样的品种吗。但我对马就好像是「全部腊肠犬，有时是白色腊肠」这样几乎一样的认知。仔细观察的话，体型和毛色都是完全不同的，往后希望也能变成猛地看到一匹马，就能说出这是XX的程度。虽然目前完全不行啦
@@ -11824,25 +7977,19 @@ NICO上大量福永弹幕发生
 人设的制作真的非常精心考究，我现在在电视上看到马，也会在脑中想象着这匹马变成赛马娘的模样。
 
 
-
 （最后请说说接下来的看点）
-
 
 
 和气：小特将铃鹿作为憧憬的对象，想追赶上她、和她一起奔跑。但后半段开始也酝酿出了想超越铃鹿的想法，这份感情的变化希望大家务必能看看。
 
 
-
 高野：对于大家在意的铃鹿接下来是否还能看到梦想这件事，我自身也非常好奇，将会慎重的琢摩演技。
-
 
 
 前田：我想已经让大家看见了小草平时温驯但发怒起来很可怕的一面，但在此之后，将会回归温柔地观察众人的草上飞，守望着大家的成长。
 
 
-
 鬼头：前半段都是遵循史实的剧情，可以预见接下来会发生的事情。后半段我想原创展开将会增加，对此非常地期待。
-
 
 
 首藤：观众第一在意的应该就是小特能不能和铃鹿一起奔跑，铃鹿能不能实现梦想这部份了，我也会关注的！
@@ -11851,13 +7998,9 @@ NICO上大量福永弹幕发生
 —— 來自 samsung SM-J5007, Android 5.1.1上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +2
@@ -11868,12 +8011,7 @@ NICO上大量福永弹幕发生
 | musicat| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -11882,16 +8020,10 @@ NICO上大量福永弹幕发生
 ##### 3541#       发表于 2018-5-27 19:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39780016&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-5-26 17:31</a>
 
 看改篇功力啦,不然硬要較真歷史這麼算其實小栗帽也沒啥好看,來中央後跑的20次比賽裡前期一堆G2G3,玉藻十 ...</blockquote>
 芦毛顶上是小栗帽生涯的一方面又不是全部<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">…………
-
-
-
-
-
 
 
 -----
@@ -11900,14 +8032,7 @@ NICO上大量福永弹幕发生
 ##### 3542#       发表于 2018-5-27 19:34
 
 
-
-
 看来会有一大波if了吗。。。
-
-
-
-
-
 
 
 -----
@@ -11916,15 +8041,7 @@ NICO上大量福永弹幕发生
 ##### 3543#       发表于 2018-5-27 19:42
 
 
-
-
-
 【赛马娘/AMV】白色马厩 Pretty Day
-
-
-
-
-
 
 
 -----
@@ -11933,20 +8050,13 @@ NICO上大量福永弹幕发生
 ##### 3544#       发表于 2018-5-27 19:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">），好吧我先给自己关灯。
-
-
-
-
-
 
 
 -----
 
 ####  D-JoeII  
 ##### 3545#       发表于 2018-5-27 19:44
-
 
 
 <blockquote>wuxiaojing 发表于 2018-5-27 19:06
@@ -11957,16 +8067,10 @@ NICO上大量福永弹幕发生
 精彩到隨便一個庸才也能寫成佳作的大概也就伏特加和大和赤驥的四連戰了
 
 
-
-
-
-
-
 -----
 
 ####  wuxiaojing  
 ##### 3546#       发表于 2018-5-27 19:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39792127&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-5-27 19:44</a>
@@ -11977,16 +8081,10 @@ NICO上大量福永弹幕发生
 附议：其实我们可以换个方向，把故事往类似魔劣一拳手机侠那种看主角俺TUEEEEEEEEE！！！去做<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3547#       发表于 2018-5-27 20:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39791399&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-5-27 18:18</a>
@@ -12012,16 +8110,10 @@ NICO上大量福永弹幕发生
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  snakezsd  
 ##### 3548#       发表于 2018-5-27 22:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39792538&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-27 20:28</a>
@@ -12034,16 +8126,10 @@ NICO上大量福永弹幕发生
 这样的小草好棒啊<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3549#       发表于 2018-5-27 22:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39792538&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-27 20:28</a>
@@ -12056,16 +8142,10 @@ NICO上大量福永弹幕发生
 下一集不还是腆着脸坐到小特旁边了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  snakezsd  
 ##### 3550#       发表于 2018-5-27 22:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39793821&amp;ptid=1590696" target="_blank">amulelernen 发表于 2018-5-27 22:34</a>
@@ -12074,28 +8154,15 @@ NICO上大量福永弹幕发生
 草：小特的身边……还可以有我吧？<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 3551#       发表于 2018-5-27 23:03
 
 
-
-
 绝了
 
 京都大典赏
-
-
-
-
-
-
 
 
 -----
@@ -12104,22 +8171,13 @@ NICO上大量福永弹幕发生
 ##### 3552#       发表于 2018-5-27 23:04
 
 
-
-
 还没出力就倒下了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  mjlic  
 ##### 3553#       发表于 2018-5-27 23:04
-
-
 
 
 绝了，京都大典赏7着居然做出来了
@@ -12130,25 +8188,13 @@ NICO上大量福永弹幕发生
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  unnilennium  
 ##### 3554#       发表于 2018-5-27 23:04
 
 
-
-
 开场就跪了，很对得起这集标题<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12157,14 +8203,7 @@ NICO上大量福永弹幕发生
 ##### 3555#       发表于 2018-5-27 23:05
 
 
-
-
 神鹰回来了
-
-
-
-
-
 
 
 -----
@@ -12173,14 +8212,7 @@ NICO上大量福永弹幕发生
 ##### 3556#       发表于 2018-5-27 23:06
 
 
-
-
 阿草赶跑了神鹰还行
-
-
-
-
-
 
 
 -----
@@ -12189,14 +8221,7 @@ NICO上大量福永弹幕发生
 ##### 3557#       发表于 2018-5-27 23:07
 
 
-
-
 小特回家居然不带老婆哦?突然就方言了
-
-
-
-
-
 
 
 -----
@@ -12205,14 +8230,7 @@ NICO上大量福永弹幕发生
 ##### 3558#       发表于 2018-5-27 23:08
 
 
-
-
 刀叉切萝卜……
-
-
-
-
-
 
 
 -----
@@ -12221,14 +8239,7 @@ NICO上大量福永弹幕发生
 ##### 3559#       发表于 2018-5-27 23:09
 
 
-
-
 白目家出现了
-
-
-
-
-
 
 
 -----
@@ -12237,14 +8248,7 @@ NICO上大量福永弹幕发生
 ##### 3560#       发表于 2018-5-27 23:10
 
 
-
-
 我草要上位了？！<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12253,14 +8257,7 @@ NICO上大量福永弹幕发生
 ##### 3561#       发表于 2018-5-27 23:13
 
 
-
-
 小特要回归初心了？
-
-
-
-
-
 
 
 -----
@@ -12269,14 +8266,7 @@ NICO上大量福永弹幕发生
 ##### 3562#       发表于 2018-5-27 23:14
 
 
-
-
 回家说方言的小特真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12285,15 +8275,8 @@ NICO上大量福永弹幕发生
 ##### 3563#       发表于 2018-5-27 23:15
 
 
-
-
 玲鹿的联系人头像真的是萝卜啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12302,14 +8285,7 @@ NICO上大量福永弹幕发生
 ##### 3564#       发表于 2018-5-27 23:16
 
 
-
-
 鈴鹿復歸戰昤日本盃前一天,看來最快的鈴鹿if也要有馬了
-
-
-
-
-
 
 
 -----
@@ -12318,14 +8294,7 @@ NICO上大量福永弹幕发生
 ##### 3565#       发表于 2018-5-27 23:18
 
 
-
-
 我艹，小特你这轮胎拖的，顶十个詹姆斯啊
-
-
-
-
-
 
 
 -----
@@ -12334,14 +8303,7 @@ NICO上大量福永弹幕发生
 ##### 3566#       发表于 2018-5-27 23:18
 
 
-
-
 要被人吐槽输的最多的主角了，没怎么赢过<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12350,14 +8312,7 @@ NICO上大量福永弹幕发生
 ##### 3567#       发表于 2018-5-27 23:19
 
 
-
-
 铃鹿这是if要去美国啊
-
-
-
-
-
 
 
 -----
@@ -12366,16 +8321,10 @@ NICO上大量福永弹幕发生
 ##### 3568#       发表于 2018-5-27 23:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39794310&amp;ptid=1590696" target="_blank">meailove 发表于 2018-5-27 23:18</a>
 
 要被人吐槽输的最多的主角了，没怎么赢过</blockquote>
 没事，开始比天皇赏了
-
-
-
-
-
 
 
 -----
@@ -12384,14 +8333,7 @@ NICO上大量福永弹幕发生
 ##### 3569#       发表于 2018-5-27 23:24
 
 
-
-
 陪跑光环的戏份居然变多了
-
-
-
-
-
 
 
 -----
@@ -12400,21 +8342,13 @@ NICO上大量福永弹幕发生
 ##### 3570#       发表于 2018-5-27 23:26
 
 
-
-
 小草：都意念合一了，根本就赢不了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  物流大亨常凯申  
 ##### 3571#       发表于 2018-5-27 23:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39794370&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-5-27 23:24</a>
@@ -12425,32 +8359,19 @@ NICO上大量福永弹幕发生
 更可喜的是，绿发女路人戏份居然有这么多
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 3572#       发表于 2018-5-27 23:27
 
 
-
-
 小特的真老婆真出了
-
-
-
-
-
 
 
 -----
 
 ####  猿飞日斩3  
 ##### 3573#       发表于 2018-5-27 23:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39794381&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-5-27 23:26</a>
@@ -12461,16 +8382,10 @@ NICO上大量福永弹幕发生
 估计是最后的戏份了吧，日本杯和有马的主要对手都不是她
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 3574#       发表于 2018-5-27 23:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39794395&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-5-27 23:27</a>
@@ -12479,25 +8394,13 @@ NICO上大量福永弹幕发生
 可以找剧组结清工资了
 
 
-
-
-
-
-
 -----
 
 ####  unnilennium  
 ##### 3575#       发表于 2018-5-27 23:29
 
 
-
-
 在背后推了一把的感觉能if成听着实况时空交织的竞走，真的太棒了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12506,14 +8409,7 @@ NICO上大量福永弹幕发生
 ##### 3576#       发表于 2018-5-27 23:29
 
 
-
-
 下集剧情怕不是前半段铃鹿复健成功 后半段日本杯
-
-
-
-
-
 
 
 -----
@@ -12522,14 +8418,7 @@ NICO上大量福永弹幕发生
 ##### 3577#       发表于 2018-5-27 23:29
 
 
-
-
 目白博波登场真是吓我一跳，本以为这季她不可能登场。
-
-
-
-
-
 
 
 -----
@@ -12538,16 +8427,10 @@ NICO上大量福永弹幕发生
 ##### 3578#       发表于 2018-5-27 23:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39794423&amp;ptid=1590696" target="_blank">天狼Q娃 发表于 2018-5-27 23:29</a>
 
 目白博波登场真是吓我一跳，本以为这季她不可能登场。</blockquote>
 正宫当然是要出场一下的
-
-
-
-
-
 
 
 -----
@@ -12556,14 +8439,7 @@ NICO上大量福永弹幕发生
 ##### 3579#       发表于 2018-5-27 23:31
 
 
-
-
 PA是預知福永今天會贏嗎,標題+戲份都來得剛好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12572,16 +8448,9 @@ PA是預知福永今天會贏嗎,標題+戲份都來得剛好<img src="https://s
 ##### 3580#       发表于 2018-5-27 23:33
 
 
-
-
 神鹰回来参加日本杯吗。。。好了这下小特一下子赢了个爽。。。。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后一话，有马纪念稳了吧
-
-
-
-
-
 
 
 -----
@@ -12590,19 +8459,11 @@ PA是預知福永今天會贏嗎,標題+戲份都來得剛好<img src="https://s
 ##### 3581#       发表于 2018-5-27 23:39
 
 
-
-
 多伯跟小特下季戏份互动多话，这图差不多要成真
-
-
-
-
 
 
 發大廈的.jpg
 (464.4 KB, 下载次数: 16)
-
-
 
 
 下载附件
@@ -12611,24 +8472,7 @@ PA是預知福永今天會贏嗎,標題+戲份都來得剛好<img src="https://s
 2018-5-27 23:38 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/27/233822ss38nzputznsot3u.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -12637,14 +8481,7 @@ PA是預知福永今天會贏嗎,標題+戲份都來得剛好<img src="https://s
 ##### 3582#       发表于 2018-5-27 23:46
 
 
-
-
 这集感想，教练是不是看过这边世界的发展，知道小特要硬需要有铃鹿背后灵buff，于是提前派铃鹿去空场和小特同步跑出背后推一把效果……（x
-
-
-
-
-
 
 
 -----
@@ -12653,22 +8490,13 @@ PA是預知福永今天會贏嗎,標題+戲份都來得剛好<img src="https://s
 ##### 3583#       发表于 2018-5-27 23:49
 
 
-
-
 武丰没来解说可惜，大概现实忙吧
-
-
-
-
-
 
 
 -----
 
 ####  猿飞日斩3  
 ##### 3584#       发表于 2018-5-27 23:55
-
-
 
 
 这种解说都没几句的，有的话估计早录好了
@@ -12678,27 +8506,15 @@ PA是預知福永今天會贏嗎,標題+戲份都來得剛好<img src="https://s
 毕竟是最后也是最重大的胜利了
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 3585#       发表于 2018-5-28 00:13
 
 
-
-
 神鹰这一上来连发扎心的镜头笑cry<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 小特你真是个罪孽深重的（
-
-
-
-
-
 
 
 -----
@@ -12707,15 +8523,9 @@ PA是預知福永今天會贏嗎,標題+戲份都來得剛好<img src="https://s
 ##### 3586#       发表于 2018-5-28 00:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不同场也能这样眉来眼去的还行
 
 没想到圣王这集还有单独镜头，放在今天真应景
-
-
-
-
-
 
 
 -----
@@ -12724,23 +8534,15 @@ PA是預知福永今天會贏嗎,標題+戲份都來得剛好<img src="https://s
 ##### 3587#       发表于 2018-5-28 00:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">每次吃饭都有小栗帽同框，然而开头铺垫半天结果得第七什么鬼……
 
 这集特别渣的后宫团应该是全员出镜了吧，果然还是铃鹿戏份最多陪跑光环这集待遇也上来了，有两个特写镜头漂亮
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 3588#       发表于 2018-5-28 00:33
-
-
 
 
 果然穿胜负服的马娘一多起来作画还是吃不消
@@ -12750,16 +8552,10 @@ PA是預知福永今天會贏嗎,標題+戲份都來得剛好<img src="https://s
 希望至少有马那场能拼一下
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 3589#       发表于 2018-5-28 00:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39794991&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-5-28 00:33</a>
@@ -12774,33 +8570,19 @@ PA是預知福永今天會贏嗎,標題+戲份都來得剛好<img src="https://s
 还是宝塚比较巅峰，各种分镜角度都是前所未有的，你看这话追人角度大部分都是侧拍，太普通了。宝塚追击的时候那镜头动感，漂移过弯，还有闪电般的超越。。干净利落的美感
 
 
-
-
-
-
-
 -----
 
 ####  zhaoyanggolden  
 ##### 3590#       发表于 2018-5-28 00:50
 
 
-
-
 小特手机里得铃鹿头像还真的是胡萝卜2333<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  多多天下  
 ##### 3591#       发表于 2018-5-28 00:50
-
-
 
 
 这话很省卡的，前面训练阶段背景人物全是ppt
@@ -12812,32 +8594,19 @@ PA终于也要撑不住了
 这么说13话肯定是有长时间的Live镜头了
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 3592#       发表于 2018-5-28 00:54
 
 
-
-
 突然觉得，制作组有刻意淡化有马纪念的意思，难道下一话铃鹿复活战，十二话日本杯收尾强行避开有马？既然神鹰回来要IF日本杯了，那干脆再塞草上飞进去，送小特一次性复仇。然后前三名分别是特别周草上飞神鹰，一起把望族给吊打了（
-
-
-
-
-
 
 
 -----
 
 ####  xer1xxx  
 ##### 3593#       发表于 2018-5-28 00:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39795088&amp;ptid=1590696" target="_blank">暗黑能乐 发表于 2018-5-28 00:46</a>
@@ -12852,16 +8621,10 @@ PA终于也要撑不住了
 宝冢这场基本和现实赛马时间对上了，过程不拖沓，加上小草充满动感的跑动姿势，加上斗气特效，看几遍都觉得爽飞了
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3594#       发表于 2018-5-28 00:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39795139&amp;ptid=1590696" target="_blank">暗黑能乐 发表于 2018-5-28 00:54</a>
@@ -12870,16 +8633,10 @@ PA终于也要撑不住了
 這片13話...
 
 
-
-
-
-
-
 -----
 
 ####  cs0111  
 ##### 3595#       发表于 2018-5-28 00:58
-
 
 
 <blockquote>xer1xxx 发表于 2018-5-28 00:54
@@ -12889,17 +8646,10 @@ PA终于也要撑不住了
 日本动画时间概念不现实并不少见吧？jojo里5秒的时停实际过了10分钟都出现过
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 3596#       发表于 2018-5-28 00:58
-
-
 
 
 小草现在这么逆来顺受的，扭曲怪估计要憋坏了
@@ -12907,16 +8657,10 @@ PA终于也要撑不住了
 有马纪念如果按史实来的话，可以预见到马学家一波爆炸式反弹
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3597#       发表于 2018-5-28 01:02
-
 
 
 <blockquote>DOACAON 发表于 2018-5-28 00:58
@@ -12926,27 +8670,15 @@ PA终于也要撑不住了
 这集假药质量比9R好，草直接坦护小特
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 3598#       发表于 2018-5-28 01:05
 
 
-
-
 这两话作画水平下来了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 我想要看更多阿草啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12955,14 +8687,7 @@ PA终于也要撑不住了
 ##### 3599#       发表于 2018-5-28 01:05
 
 
-
-
 毕竟赛跑的作画很累的，又不能全3d，pa已经尽力了，保留全力日本杯和有马赛爆发
-
-
-
-
-
 
 
 -----
@@ -12971,15 +8696,9 @@ PA终于也要撑不住了
 ##### 3600#       发表于 2018-5-28 01:07
 
 
-
 <blockquote>D-JoeII 发表于 2018-5-28 00:57
 這片13話...</blockquote>
 13话会tv放送吗，我原本也认为是13，但是好像哪里又看到是12就以为bd第四卷收录的全是未放送
-
-
-
-
-
 
 
 -----
@@ -12988,14 +8707,7 @@ PA终于也要撑不住了
 ##### 3601#       发表于 2018-5-28 01:08
 
 
-
-
 小特说比完日本杯后，想和铃鹿一起比赛，得原居民和高楼大厦有希望了
-
-
-
-
-
 
 
 -----
@@ -13004,21 +8716,13 @@ PA终于也要撑不住了
 ##### 3602#       发表于 2018-5-28 01:10
 
 
-
-
 现在这部的预定情况怎样…好想看二季！
-
-
-
-
-
 
 
 -----
 
 ####  zechins  
 ##### 3603#       发表于 2018-5-28 01:10
-
 
 
  本帖最后由 zechins 于 2018-5-28 01:12 编辑 
@@ -13033,16 +8737,10 @@ PA终于也要撑不住了
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">小心机的帝皇和一脸无奈纵容的皇帝，过激推已经血压升高到快升天了...
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3604#       发表于 2018-5-28 01:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39795222&amp;ptid=1590696" target="_blank">暗黑能乐 发表于 2018-5-28 01:07</a>
@@ -13053,16 +8751,10 @@ PA终于也要撑不住了
 13話TV會播
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 3605#       发表于 2018-5-28 01:12
-
 
 
 <blockquote>zechins 发表于 2018-5-28 01:10
@@ -13073,16 +8765,10 @@ PA终于也要撑不住了
 从漫画看来，希希亚马逊是和富士奇迹来着，嘛反正马娘cp乱的要死大家早就知道了(
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 3606#       发表于 2018-5-28 01:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39795237&amp;ptid=1590696" target="_blank">ramiel 发表于 2018-5-28 01:10</a>
@@ -13096,25 +8782,13 @@ PA终于也要撑不住了
 二期只要想出肯定会有的
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 3607#       发表于 2018-5-28 01:15
 
 
-
-
 那时间充裕了好多，12话有马纪念，13话wdt吧
-
-
-
-
-
 
 
 -----
@@ -13123,14 +8797,7 @@ PA终于也要撑不住了
 ##### 3608#       发表于 2018-5-28 01:18
 
 
-
-
 我觉得主要问题是pa时间不够，今年还有2部，其中一部还是打戏为主的动画，更别说还有个刚画完饼的白箱，作画确实有所下降不过还没到不能接受的地步，反而我觉得这集观感上升了，小特和铃鹿的不同地点赛跑这想法真的很有趣和新颖，ls说的不够燃的原因我觉得主要还是2边赛场的不断切换所造成的
-
-
-
-
-
 
 
 -----
@@ -13139,14 +8806,7 @@ PA终于也要撑不住了
 ##### 3609#       发表于 2018-5-28 01:23
 
 
-
-
 本以为剧组是要安排铃鹿一起出战日本杯，代替原居民和高楼大厦的戏份，但剧组并没那么做
-
-
-
-
-
 
 
 -----
@@ -13155,22 +8815,13 @@ PA终于也要撑不住了
 ##### 3610#       发表于 2018-5-28 01:26
 
 
-
-
 铃鹿的复活战可能也就是个PPT，真正跑起来应该还是WDT。嫁の第11レース就是游戏和整个动画烘托出来的卖点，WDT作为载体再合适不过了。把铃鹿拿去日本杯那小特超越铃鹿的剧情就和WDT重复了
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 3611#       发表于 2018-5-28 01:27
-
-
 
 
 10R
@@ -13181,17 +8832,10 @@ PA终于也要撑不住了
 —— 來自 samsung SM-J5007, Android 5.1.1上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
-
-
-
-
-
 -----
 
 ####  pwlong  
 ##### 3612#       发表于 2018-5-28 01:29
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201805/28/012836ko8oyjembjj3jowb.jpg" referrerpolicy="no-referrer">
@@ -13204,16 +8848,7 @@ PA终于也要撑不住了
 2018-5-28 01:28 上传
 
 
-
-
-
-
 PA：你们要的马学新药来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13222,14 +8857,7 @@ PA：你们要的马学新药来了<img src="https://static.saraba1st.com/image/
 ##### 3613#       发表于 2018-5-28 01:42
 
 
-
-
 这话实现推一把的方法确实挺新颖的，很厉害。但是还是希望后面能有更棒的赛跑
-
-
-
-
-
 
 
 -----
@@ -13238,15 +8866,9 @@ PA：你们要的马学新药来了<img src="https://static.saraba1st.com/image/
 ##### 3614#       发表于 2018-5-28 01:46
 
 
-
 <blockquote>pwlong 发表于 2018-5-28 01:29
 PA：你们要的马学新药来了</blockquote>
 亚美洛233
-
-
-
-
-
 
 
 -----
@@ -13255,23 +8877,16 @@ PA：你们要的马学新药来了</blockquote>
 ##### 3615#       发表于 2018-5-28 02:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39795326&amp;ptid=1590696" target="_blank">多多天下 发表于 2018-5-28 01:26</a>
 
 铃鹿的复活战可能也就是个PPT，真正跑起来应该还是WDT。嫁の第11レース就是游戏和整个动画烘托出来的卖点， ...</blockquote>
 我一直觉得马娘这个企划就是受了JRA那个CM的影响，那个CM15年，马娘企划16年时间对的上，而且第一个Pv里面镜头给的多的角色基本上也都是那个CM里面出场的马
 
 
-
-
-
-
-
 -----
 
 ####  noHentai  
 ##### 3616#       发表于 2018-5-28 02:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39795113&amp;ptid=1590696" target="_blank">多多天下 发表于 2018-5-28 00:50</a>
@@ -13283,16 +8898,10 @@ PA终于也要撑不住了</blockquote>
 不要想多了，PA小作坊今年满载已经快爆炸了，去年才两部TV都被井上埋怨前期根本没人手画冈妈剧场版
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 3617#       发表于 2018-5-28 02:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39795574&amp;ptid=1590696" target="_blank">noHentai 发表于 2018-5-28 02:36</a>
@@ -13301,16 +8910,10 @@ PA终于也要撑不住了</blockquote>
 前段时间的冈花，4月马娘，7月天狼，10月青春，未来剧场白箱，今年PA怕不是肝爆了
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 3618#       发表于 2018-5-28 03:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39795574&amp;ptid=1590696" target="_blank">noHentai 发表于 2018-5-28 02:36</a>
@@ -13319,16 +8922,10 @@ PA终于也要撑不住了</blockquote>
 也不知是不是以前作品成绩不佳才追加多作品，前几年pa除了白箱之后的成绩都不咋样，今年冈花还凑合吧，马娘pa好像有加入委员会能回血一波
 
 
-
-
-
-
-
 -----
 
 ####  多多天下  
 ##### 3619#       发表于 2018-5-28 03:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39795517&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-5-28 02:14</a>
@@ -13340,25 +8937,13 @@ PA终于也要撑不住了</blockquote>
 JRA关于这个CM的专页，odds里面看到单胜人气最高的是CB 3.0，复胜最高是大震撼和铃鹿以及大震撼和神鹰的5.3
 
 
-
-
-
-
-
 -----
 
 ####  Laie  
 ##### 3620#       发表于 2018-5-28 04:17
 
 
-
-
 这集陪跑光环的对白跟今天的福永真是神同步，现实里两次德比刚好相隔20年，连标题都很应景，冥冥中钦定感
-
-
-
-
-
 
 
 -----
@@ -13367,16 +8952,9 @@ JRA关于这个CM的专页，odds里面看到单胜人气最高的是CB 3.0，�
 ##### 3621#       发表于 2018-5-28 06:24
 
 
-
-
 我求求你唱首歌吼不吼啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -13385,15 +8963,9 @@ JRA关于这个CM的专页，odds里面看到单胜人气最高的是CB 3.0，�
 ##### 3622#       发表于 2018-5-28 06:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39795630&amp;ptid=1590696" target="_blank">天狼Q娃 发表于 2018-5-28 03:04</a>
 也不知是不是以前作品成绩不佳才追加多作品，前几年pa除了白箱之后的成绩都不咋样，今年冈花还凑合吧，马 ...</blockquote>
 单纯是发展顺利，社内原画有所成长才接这么多的，要是因为成绩不佳的话接打工的改编才是更好的选择
-
-
-
-
-
 
 
 -----
@@ -13402,13 +8974,7 @@ JRA关于这个CM的专页，odds里面看到单胜人气最高的是CB 3.0，�
 ##### 3623#       发表于 2018-5-28 07:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">看到讨论才想起来，我已经忘了这片还有live元素了
-
-
-
-
-
 
 
 -----
@@ -13417,16 +8983,10 @@ JRA关于这个CM的专页，odds里面看到单胜人气最高的是CB 3.0，�
 ##### 3624#       发表于 2018-5-28 07:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39795959&amp;ptid=1590696" target="_blank">死去的御景柚姬 发表于 2018-05-28 06:24:07</a>
 我求求你唱首歌吼不吼啊</blockquote>别说了，皇帝连第一句都不让唱完<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -13435,14 +8995,7 @@ JRA关于这个CM的专页，odds里面看到单胜人气最高的是CB 3.0，�
 ##### 3625#       发表于 2018-5-28 07:50
 
 
-
-
 最终的live可以让小特小草小鹿一起唱吗？虽然我知道CD是和东海帝王一组
-
-
-
-
-
 
 
 -----
@@ -13451,14 +9004,7 @@ JRA关于这个CM的专页，odds里面看到单胜人气最高的是CB 3.0，�
 ##### 3626#       发表于 2018-5-28 07:54
 
 
-
-
 别说这集帝皇有跑再加上琵琶晨光出现我都怀疑帝皇剧情都演完了
-
-
-
-
-
 
 
 -----
@@ -13467,15 +9013,9 @@ JRA关于这个CM的专页，odds里面看到单胜人气最高的是CB 3.0，�
 ##### 3627#       发表于 2018-5-28 07:55
 
 
-
 <blockquote>天狼Q娃 发表于 2018-5-28 03:04
 也不知是不是以前作品成绩不佳才追加多作品，前几年pa除了白箱之后的成绩都不咋样，今年冈花还凑合吧，马 ...</blockquote>
 PA没进委员会
-
-
-
-
-
 
 
 -----
@@ -13484,21 +9024,13 @@ PA没进委员会
 ##### 3628#       发表于 2018-5-28 08:06
 
 
-
-
 不存在了吧，live，已经好几话完全没提了，真的会再有吗
-
-
-
-
-
 
 
 -----
 
 ####  musicat  
 ##### 3629#       发表于 2018-5-28 08:13
-
 
 
  本帖最后由 musicat 于 2018-5-28 08:19 编辑 
@@ -13519,7 +9051,6 @@ PA没进委员会
 也许还有staff想传递给的我们所有观众。
 
 
-
 然后是短短的日常，也显示不俗的功力，
 
 目白家的“红酒萝卜排”，皇帝溺宠小心机的帝王，
@@ -13531,7 +9062,6 @@ PA没进委员会
 *这个马蹄铁就不要单单的成为碧蓝虚拟黑钢了啦，实物周边不也挺好的吗。
 
 
-
 实在要说的话，演出有点平淡过了，
 
 可能是staff故意的，只是铃鹿和小特跨时空的互动，特别是冲线前的一刻，
@@ -13539,21 +9069,10 @@ PA没进委员会
 额外加点特写不会更好吗？整一话都是王道的展开，俗（王）套（道）的特效会更热血沸腾吧。
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  zechins  
 ##### 3630#       发表于 2018-5-28 08:21
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201805/28/080645hzsfsw66j8o9fs36.jpg" referrerpolicy="no-referrer">
@@ -13566,12 +9085,7 @@ PA没进委员会
 2018-5-28 08:06 上传
 
 
-
-
-
-
 黑色号码布14号、HAN SH：神戸新聞杯(G2)
-
 
 
 <img src="https://img.saraba1st.com/forum/201805/28/080645i0riyb0n99303wjs.jpg" referrerpolicy="no-referrer">
@@ -13582,10 +9096,6 @@ PA没进委员会
 下载附件
 
 2018-5-28 08:06 上传
-
-
-
-
 
 
 白色号码布4号、身后的是7号、13号 ：2006 新馬戦
@@ -13601,10 +9111,6 @@ PA没进委员会
 2018-5-28 08:06 上传
 
 
-
-
-
-
 白色号码布3号 ：2006 新馬戦
 
 
@@ -13616,10 +9122,6 @@ PA没进委员会
 下载附件
 
 2018-5-28 08:06 上传
-
-
-
-
 
 
 白色号码布、第二位的是4号 ：1990 新馬戦
@@ -13635,10 +9137,6 @@ PA没进委员会
 2018-5-28 08:06 上传
 
 
-
-
-
-
 黑色号码布9号、第二位4号：2007 エルフィンステークス
 
 
@@ -13650,10 +9148,6 @@ PA没进委员会
 下载附件
 
 2018-5-28 08:06 上传
-
-
-
-
 
 
 黑色号码布1号、第二位3号：2006 中京2歳ステークス
@@ -13669,10 +9163,6 @@ PA没进委员会
 2018-5-28 08:06 上传
 
 
-
-
-
-
 白色号码布6号、第二位8号：1990 4歳新馬戦
 
 
@@ -13686,22 +9176,14 @@ PA没进委员会
 2018-5-28 08:06 上传
 
 
-
-
-
-
 黑色号码布4号、第二位7号：2011 コスモス賞
 
 ppt里的比赛大多数是新马战，难为麦昆帝皇横跨着十几年和年轻人一起跑新马赛了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -13711,12 +9193,7 @@ ppt里的比赛大多数是新马战，难为麦昆帝皇横跨着十几年和�
 | celadon| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -13725,13 +9202,7 @@ ppt里的比赛大多数是新马战，难为麦昆帝皇横跨着十几年和�
 ##### 3631#       发表于 2018-5-28 09:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 天皇秋给陪跑光环和星云天空这么多戏份那肯定杀青了，日本杯望族也有了，而且看样子神鹰还会上？那小特赚翻，不过这么一来最后的大BOSS果然还是有马纪念的草上飞了啊
-
-
-
-
-
 
 
 -----
@@ -13740,23 +9211,16 @@ ppt里的比赛大多数是新马战，难为麦昆帝皇横跨着十几年和�
 ##### 3632#       发表于 2018-5-28 09:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39796309&amp;ptid=1590696" target="_blank">zechins 发表于 2018-5-28 08:21</a>
 
 黑色号码布14号、HAN SH：神戸新聞杯(G2)</blockquote>
 麦昆新马是泥地，考究
 
 
-
-
-
-
-
 -----
 
 ####  鸣神  
 ##### 3633#       发表于 2018-5-28 09:36
-
 
 
  本帖最后由 鸣神 于 2018-5-28 09:40 编辑 
@@ -13772,9 +9236,6 @@ ppt里的比赛大多数是新马战，难为麦昆帝皇横跨着十几年和�
 2018-5-28 09:36 上传
 
 
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">">https://twitter.com/kidachi_p/status/1000751767645122560
 
 <img src="https://img.saraba1st.com/forum/201805/28/093945jdf7mg5ddug5id5u.jpg" referrerpolicy="no-referrer">
@@ -13787,15 +9248,7 @@ ppt里的比赛大多数是新马战，难为麦昆帝皇横跨着十几年和�
 2018-5-28 09:39 上传
 
 
-
-
-
 [https://twitter.com/hinodeneko1](https://twitter.com/hinodeneko1)
-
-
-
-
-
 
 
 -----
@@ -13804,13 +9257,7 @@ ppt里的比赛大多数是新马战，难为麦昆帝皇横跨着十几年和�
 ##### 3634#       发表于 2018-5-28 09:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">结局是属于我草上飞女士的，你们这些该死的小三
-
-
-
-
-
 
 
 -----
@@ -13819,21 +9266,13 @@ ppt里的比赛大多数是新马战，难为麦昆帝皇横跨着十几年和�
 ##### 3635#       发表于 2018-5-28 10:10
 
 
-
-
 B站上看到一个有趣的nete评论，@有节操的红白 <blockquote>“速趴赛马娘二会极大的增强赛马娘的实力，但有一些赛马娘为了极致的追求力量，拼命的增加肌肉，虽然力量比正常形态的速趴赛马娘要强但敏捷却下降了，从而导致实力不增反降”</blockquote>
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 3636#       发表于 2018-5-28 10:13
-
 
 
 <blockquote>zechins 发表于 2018-5-28 08:21
@@ -13844,16 +9283,10 @@ B站上看到一个有趣的nete评论，@有节操的红白 <blockquote>“速�
 装嫩BBA，看来二期时间溯行帝皇线不是不可能
 
 
-
-
-
-
-
 -----
 
 ####  cyberpenk  
 ##### 3637#       发表于 2018-5-28 10:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39796850&amp;ptid=1590696" target="_blank">絹川健一 发表于 2018-5-28 09:25</a>
@@ -13862,16 +9295,10 @@ B站上看到一个有趣的nete评论，@有节操的红白 <blockquote>“速�
 一说才注意到，讲究
 
 
-
-
-
-
-
 -----
 
 ####  wuxiaojing  
 ##### 3638#       发表于 2018-5-28 10:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39796850&amp;ptid=1590696" target="_blank">絹川健一 发表于 2018-5-28 09:25</a>
@@ -13880,16 +9307,10 @@ B站上看到一个有趣的nete评论，@有节操的红白 <blockquote>“速�
 才注意到，考究+1
 
 
-
-
-
-
-
 -----
 
 ####  natmk  
 ##### 3639#       发表于 2018-5-28 11:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39796850&amp;ptid=1590696" target="_blank">絹川健一 发表于 2018-5-28 09:25</a>
@@ -13898,29 +9319,19 @@ B站上看到一个有趣的nete评论，@有节操的红白 <blockquote>“速�
 太硬核了这都注意到了
 
 
-
-
-
-
-
 -----
 
 ####  nekkihs  
 ##### 3640#       发表于 2018-5-28 11:15
 
 
-
 <img src="http://ww3.sinaimg.cn/large/0064xBUTly1frqvskassej30lc1hsne8.jpg" referrerpolicy="no-referrer">
 <img src="http://ww1.sinaimg.cn/large/0064xBUTly1frqvswebq9j30lc1gkgpu.jpg" referrerpolicy="no-referrer">
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -13930,12 +9341,7 @@ B站上看到一个有趣的nete评论，@有节操的红白 <blockquote>“速�
 | badapple| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -13944,21 +9350,13 @@ B站上看到一个有趣的nete评论，@有节操的红白 <blockquote>“速�
 ##### 3641#       发表于 2018-5-28 11:20
 
 
-
-
 这集伏特加和大和赤骥买鞋，看到这我才想到她俩都没穿过决胜服？和决胜服配套的鞋还得自己买
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 3642#       发表于 2018-5-28 11:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39798371&amp;ptid=1590696" target="_blank">cao1rui2 发表于 2018-5-28 11:20</a>
@@ -13968,16 +9366,10 @@ B站上看到一个有趣的nete评论，@有节操的红白 <blockquote>“速�
 —— 來自 samsung SM-J5007, Android 5.1.1上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
-
-
-
-
-
 -----
 
 ####  zimimar  
 ##### 3643#       发表于 2018-5-28 12:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39795631&amp;ptid=1590696" target="_blank">多多天下 发表于 2018-5-28 03:04</a>
@@ -13989,34 +9381,19 @@ JRA关于这个CM的专页，odds里面看到单胜人气最高的是CB  ...</
 很迷 CB怎么也赢不过鲁铎象征吧。。。时计和别的马比也差很多
 
 
-
-
-
-
-
 -----
 
 ####  平贺才人  
 ##### 3644#       发表于 2018-5-28 12:21
 
 
-
-
-
-
 好像没人发？
-
-
-
-
-
 
 
 -----
 
 ####  D-JoeII  
 ##### 3645#       发表于 2018-5-28 12:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39798888&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-5-28 11:55</a>
@@ -14035,16 +9412,10 @@ JRA关于这个CM的专页，odds里面看到单胜人气最高的是CB  ...</
 馬娘裡因為就馬娘和訓練員分,所以可能是8:2吧,那贏了新人賽的幾位其實也完全夠為自己買一套裝備了,訓練員還要自己出錢租場地提供伙食之類,將就下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mikelin  
 ##### 3646#       发表于 2018-5-28 12:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39798371&amp;ptid=1590696" target="_blank">cao1rui2 发表于 2018-5-28 11:20</a>
@@ -14053,16 +9424,10 @@ JRA关于这个CM的专页，odds里面看到单胜人气最高的是CB  ...</
 有穿啊，OP里
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3647#       发表于 2018-5-28 12:44
-
 
 
  本帖最后由 amulelernen 于 2018-5-28 12:46 编辑 
@@ -14076,17 +9441,10 @@ JRA关于这个CM的专页，odds里面看到单胜人气最高的是CB  ...</
 4 星云不想进去，是原型的特殊习惯吗？
 
 
-
-
-
-
-
-
 -----
 
 ####  cao1rui2  
 ##### 3648#       发表于 2018-5-28 13:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39799362&amp;ptid=1590696" target="_blank">mikelin 发表于 2018-5-28 12:37</a>
@@ -14095,16 +9453,10 @@ JRA关于这个CM的专页，odds里面看到单胜人气最高的是CB  ...</
 op里我知道，所以才说她们连决胜服的鞋子都要自己买。我记得小特的鞋子貌似是配套的？
 
 
-
-
-
-
-
 -----
 
 ####  nylonchina1  
 ##### 3649#       发表于 2018-5-28 13:01
-
 
 
 <blockquote>soranoguiji 发表于 2018-5-28 09:05
@@ -14112,16 +9464,10 @@ op里我知道，所以才说她们连决胜服的鞋子都要自己买。我记
 夺妻之仇不共戴天
 
 
-
-
-
-
-
 -----
 
 ####  zimimar  
 ##### 3650#       发表于 2018-5-28 13:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39799333&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-5-28 12:34</a>
@@ -14134,25 +9480,13 @@ https://matome.naver.jp/odai/2136751806914684701
 原来厩務員也可以分奖金的啊。。。那还挺不错的 好像有部分奖金会保留给赛马本身作为退役的养老费
 
 
-
-
-
-
-
 -----
 
 ####  natmk  
 ##### 3651#       发表于 2018-5-28 13:15
 
 
-
-
 帝皇为啥会唱皇帝的歌应该是neta了去年年末马娘活动machico唱了kraz的歌
-
-
-
-
-
 
 
 -----
@@ -14161,15 +9495,9 @@ https://matome.naver.jp/odai/2136751806914684701
 ##### 3652#       发表于 2018-5-28 13:18
 
 
-
 <blockquote>pwlong 发表于 2018-5-28 01:29
 PA：你们要的马学新药来了</blockquote>
 一名帅气老婆加入混战
-
-
-
-
-
 
 
 -----
@@ -14178,23 +9506,16 @@ PA：你们要的马学新药来了</blockquote>
 ##### 3653#       发表于 2018-5-28 13:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39789951&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-27 15:10</a>
 
 也算是小冷的赛果了。</blockquote>
 blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位失误 马房调教也失败了 重了10公斤 不知道自然成长 还是发胖 532公斤也太重了 每日杯之后直接凉到打比才出战 状态早没了 后面看看能不能挽救回来。。。整体来看这场水平不太高 菜鸡互啄 如果one piece后面没起色 今年最强的三岁马恐怕就是母马组的杏仁眼了
 
 
-
-
-
-
-
 -----
 
 ####  萝莉的伙伴  
 ##### 3654#       发表于 2018-5-28 13:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39799442&amp;ptid=1590696" target="_blank">amulelernen 发表于 2018-5-28 12:44</a>
@@ -14214,17 +9535,10 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 3655#       发表于 2018-5-28 13:44
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201805/28/134356maqaodjvjvdpzadr.png" referrerpolicy="no-referrer">
@@ -14237,27 +9551,16 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 2018-5-28 13:43 上传
 
 
-
-
-
-
-
 一个问题，琵琶晨光这眼镜怎么带的？
 
 
 后脑勺上有根带子？
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3656#       发表于 2018-5-28 13:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39799921&amp;ptid=1590696" target="_blank">萝莉的伙伴 发表于 2018-5-28 13:25</a>
@@ -14272,16 +9575,10 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 我个人希望后面能有一话来回收小草当时赛后的质疑<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cao1rui2  
 ##### 3657#       发表于 2018-5-28 13:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39800114&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-5-28 13:44</a>
@@ -14293,25 +9590,13 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 哈哈哈
 
 
-
-
-
-
-
 -----
 
 ####  old.just  
 ##### 3658#       发表于 2018-5-28 14:02
 
 
-
-
 再没有草上飞戏份我要死了。<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14320,21 +9605,13 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 ##### 3659#       发表于 2018-5-28 14:10
 
 
-
-
 她妈是打了1对啊，只是拿了1只起来而已。
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 3660#       发表于 2018-5-28 14:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39800117&amp;ptid=1590696" target="_blank">amulelernen 发表于 2018-5-28 13:44</a>
@@ -14346,25 +9623,14 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 —— 來自 samsung SM-J5007, Android 5.1.1上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3661#       发表于 2018-5-28 16:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39798282&amp;ptid=1590696" target="_blank">nekkihs 发表于 2018-5-28 11:15</a></blockquote>
 抗议，把其他马的趣事安在黄金船的身上。。。。。嗯，好像也满不错的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14373,27 +9639,16 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 ##### 3662#       发表于 2018-5-28 16:39
 
 
-
  本帖最后由 amulelernen 于 2018-5-28 16:44 编辑 
 
 恶搞一下，可怕（渣）的小特……
 <img src="https://i.loli.net/2018/05/28/5b0bc062924ee.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Musician_B  
 ##### 3663#       发表于 2018-5-28 16:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39800406&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-5-28 14:11</a>
@@ -14405,33 +9660,20 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 等铃鹿去美国，那么真正的女主角就是……
 
 
-
-
-
-
-
 -----
 
 ####  郁夫  
 ##### 3664#       发表于 2018-5-28 16:55
 
 
-
-
 小嬌妻背手....
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  DOACAON  
 ##### 3665#       发表于 2018-5-28 17:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39800117&amp;ptid=1590696" target="_blank">amulelernen 发表于 2018-5-27 23:44</a>
@@ -14442,16 +9684,10 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 其实是打了上万只马掌，除了一个给女儿以外其他全塞BD特典里了
 
 
-
-
-
-
-
 -----
 
 ####  zechins  
 ##### 3666#       发表于 2018-5-28 17:08
-
 
 
  本帖最后由 zechins 于 2018-5-28 17:13 编辑 
@@ -14473,25 +9709,15 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 2018-5-28 17:06 上传
 
 
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 的视频
 
 比赛开始之前星云天空本体就是在闹别扭不肯进去，拽它的时候还尥蹶子<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
 
 ####  kanpachi  
 ##### 3667#       发表于 2018-5-28 17:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39802385&amp;ptid=1590696" target="_blank">zechins 发表于 2018-5-28 17:08</a>
@@ -14502,16 +9728,10 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 船15年天皇赏不也是，船最后还赢了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  nylonchina1  
 ##### 3668#       发表于 2018-5-28 19:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39802079&amp;ptid=1590696" target="_blank">amulelernen 发表于 2018-5-28 16:39</a>
@@ -14520,16 +9740,10 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 小特，我从国外回来啦<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  stuka1942  
 ##### 3669#       发表于 2018-5-28 19:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39802079&amp;ptid=1590696" target="_blank">amulelernen 发表于 2018-5-28 16:39</a>
@@ -14538,20 +9752,13 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 逼真马学
 
 
-
 云赛跑可以<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Renes  
 ##### 3670#       发表于 2018-5-28 20:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39800114&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-5-28 13:44</a>
@@ -14563,16 +9770,10 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 夹住就行了
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3671#       发表于 2018-5-28 20:56
-
 
 
  本帖最后由 musicat 于 2018-5-28 21:05 编辑 
@@ -14592,7 +9793,6 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 *动画为了表现铃鹿和小特的时空交错，完整的比赛多少有点割裂感。
 
 用回顾的心态看一些经典的赛马比赛，比动画还好看，并不是难于理解的事情。毕竟现实中的3d引擎强大多了（笑）
-
 
 
 赛后武丰那句“感觉铃鹿在身后推了一把”大家多次提起了，其实这句话的另一方面，说明这场特别周真的是赢得不易。
@@ -14622,8 +9822,6 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 *获得第一的话，整个赛马娘的企划，她成为主角是不是都会有可能呢？
 
 
-
-
 整个赛马娘动画看到现在，个人的一大遗憾是，星云天空的戏份做了极大的牺牲。
 *换个角度，星云当主角，小特就变成大boss的那种，勇者挑战魔王的悲剧故事。
 
@@ -14632,39 +9830,19 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 本来也是可以描写一番的，和圣王光环竞争一下最佳陪跑，更是相当励志的故事。
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  loli炮  
 ##### 3672#       发表于 2018-5-28 21:31
 
 
-
-
 星云是先扬后抑，当主角剧情没法编
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 3673#       发表于 2018-5-28 21:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39804466&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-28 20:56</a>
@@ -14675,17 +9853,10 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 可惜后期不行，收官战惨不忍睹，要写的话在菊花赏戛然而止最适合。说起来星云天空的特典小说也许会比较详细地描述这场比赛
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3674#       发表于 2018-5-28 21:52
-
-
 
 
 崩坏一张
@@ -14700,30 +9871,13 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 2018-5-28 21:52 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  OrianaThomson  
 ##### 3675#       发表于 2018-5-28 22:08
 
 
-
-
 星云啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14732,15 +9886,8 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 ##### 3676#       发表于 2018-5-28 22:47
 
 
-
-
 杂志预览
 <img src="http://wx4.sinaimg.cn/large/bcfcde0agy1frrfnxxgt1j20dw0kmk3p.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14749,19 +9896,11 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 ##### 3677#       发表于 2018-5-28 23:48
 
 
-
-
 小特目前的后宫基本齐了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
 
 
 未命名-3.jpg
 (708.05 KB, 下载次数: 7)
-
-
 
 
 下载附件
@@ -14770,24 +9909,7 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 2018-5-28 23:48 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/28/234817kbgdec3nzcckgck6.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -14796,22 +9918,15 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 ##### 3678#       发表于 2018-5-29 00:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39802385&amp;ptid=1590696" target="_blank">zechins 发表于 2018-05-28 17:08:21</a></blockquote>星云闹别扭好好玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  cyberpenk  
 ##### 3679#       发表于 2018-5-29 00:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39804466&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-28 20:56</a>
@@ -14824,16 +9939,10 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 确实挺可惜的
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3680#       发表于 2018-5-29 00:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39806075&amp;ptid=1590696" target="_blank">cyberpenk 发表于 2018-5-29 00:24</a>
@@ -14848,16 +9957,10 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 個人覺得最high的一場天皇賞秋
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 3681#       发表于 2018-5-29 01:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39806075&amp;ptid=1590696" target="_blank">cyberpenk 发表于 2018-5-28 10:24</a>
@@ -14868,17 +9971,10 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 因为黄金旅程冲线之前0.1秒，记录已经被更新到1分58秒0了啊，逻辑上是没问题的
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 3682#       发表于 2018-5-29 01:58
-
-
 
 
 话说版权是怎么个算法？每匹马都要去找马主么，还是JRA就行？
@@ -14886,16 +9982,10 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 另外黄金船和别的黄金系列的版权不是一家人么？
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 3683#       发表于 2018-5-29 03:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39806449&amp;ptid=1590696" target="_blank">ramiel 发表于 2018-5-28 11:58</a>
@@ -14906,25 +9996,13 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 第二个问题只要稍微想想就能明白吧，小马的所有权当然是跟妈而不是跟爹的
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3684#       发表于 2018-5-29 08:09
 
 
-
-
 有個比較煩的問題其實有不少馬競賽生涯不是社台/金子真人的,但退役後被他們的牧場買了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14933,13 +10011,7 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 ##### 3685#       发表于 2018-5-29 09:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 黄金旅程运气太差了，本来在铃鹿都没起来之前能拿个G1的，结果在98年天皇赏春输给了另一个陪跑王目白光明
-
-
-
-
-
 
 
 -----
@@ -14948,14 +10020,7 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 ##### 3686#       发表于 2018-5-29 09:20
 
 
-
-
 等等，目白牧场11年就关门了，动画还把目白家做出来，真是恶意啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14964,23 +10029,16 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 ##### 3687#       发表于 2018-5-29 09:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39806380&amp;ptid=1590696" target="_blank">DOACAON 发表于 2018-05-29 01:29:55</a>
 因为黄金旅程冲线之前0.1秒，记录已经被更新到1分58秒0了啊，逻辑上是没问题的 ...</blockquote>有道理有道理
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  raynor_1999  
 ##### 3688#       发表于 2018-5-29 09:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39802385&amp;ptid=1590696" target="_blank">zechins 发表于 2018-5-28 17:08</a>
@@ -14991,16 +10049,10 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 为什么非要行云天空第一个进去？不能让其它马先进去省点时间吗？还是说有什么讲究？
 
 
-
-
-
-
-
 -----
 
 ####  小大头菜  
 ##### 3689#       发表于 2018-5-29 10:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39807475&amp;ptid=1590696" target="_blank">kanpachi 发表于 2018-05-29 09:20:15</a>
@@ -15010,16 +10062,10 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  絹川健一  
 ##### 3690#       发表于 2018-5-29 10:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39807475&amp;ptid=1590696" target="_blank">kanpachi 发表于 2018-5-29 09:20</a>
@@ -15028,33 +10074,19 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 目白大小姐的家计事
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3691#       发表于 2018-5-29 10:46
 
 
-
-
 查了下，目白原来的staff和所有马重新开了新牧场，不过不再是目白名义了
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 3692#       发表于 2018-5-29 11:17
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201805/29/111711o52czxz3o025xj56.jpg" referrerpolicy="no-referrer">
@@ -15065,16 +10097,6 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 下载附件
 
 2018-5-29 11:17 上传
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -15091,26 +10113,15 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 动画的时间点还是1999年，有目白家没毛病
 
 
-
-
-
-
-
 -----
 
 ####  ジュリア  
 ##### 3694#       发表于 2018-5-29 14:08
 
 
-
 <blockquote>物流大亨常凯申 发表于 2018-5-29 11:17
 动画的时间点还是1999年，有目白家没毛病</blockquote>
 10年后已是人妻的麦昆成了目白家的家主，然而苦于竞赛成绩不理想，家境每况愈下。另一方面，黄金一族则是横扫赛场，夺下一个又一个冠军。1年前，从家父黄金旅程手上接过族长大任的正是曾经追求麦昆未果的黄金船。面对上门寻求援助的曾经的女神，黄金船开出的条件是。。。
-
-
-
-
-
 
 
 -----
@@ -15119,14 +10130,7 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 ##### 3695#       发表于 2018-5-29 14:10
 
 
-
-
 阿草就这样路人到最后吗？<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15135,15 +10139,9 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 ##### 3696#       发表于 2018-5-29 14:40
 
 
-
 <blockquote>ジュリア 发表于 2018-5-29 14:08
 10年后已是人妻的麦昆成了目白家的家主，然而苦于竞赛成绩不理想，家境每况愈下。另一方面，黄金一族则是 ...</blockquote>
 麦昆无惨
-
-
-
-
-
 
 
 -----
@@ -15152,21 +10150,13 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 ##### 3697#       发表于 2018-5-29 14:55
 
 
-
-
 血统上麦昆不是黄金船的外公么……
-
-
-
-
-
 
 
 -----
 
 ####  kanpachi  
 ##### 3698#       发表于 2018-5-29 15:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39810847&amp;ptid=1590696" target="_blank">ジュリア 发表于 2018-5-29 14:08</a>
@@ -15177,16 +10167,10 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 黄金巨匠和黄金船的妈不是同一个但是外公都是麦昆，所以你看。。这里可脑补出姐妹本了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  小大头菜  
 ##### 3699#       发表于 2018-5-29 16:32
-
 
 
 <blockquote>sherlockchu 发表于 2018-5-29 14:10
@@ -15194,16 +10178,10 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 不要急，阿草还有一次把渣特压在身下的机会
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3700#       发表于 2018-5-29 16:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39807872&amp;ptid=1590696" target="_blank">raynor_1999 发表于 2018-5-29 09:52</a>
@@ -15216,16 +10194,10 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 小时候还有入闸的考试，通过了才能上场比赛。
 
 
-
-
-
-
-
 -----
 
 ####  戏谑二次元  
 ##### 3701#       发表于 2018-5-29 16:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39810863&amp;ptid=1590696" target="_blank">sherlockchu 发表于 2018-5-29 14:10</a>
@@ -15234,16 +10206,10 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 有马纪念啊，让小特怨念一辈子<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">一鼻之差
 
 
-
-
-
-
-
 -----
 
 ####  ジュリア  
 ##### 3702#       发表于 2018-5-29 17:07
-
 
 
 <blockquote>kanpachi 发表于 2018-5-29 15:57
@@ -15253,33 +10219,19 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 黄金旅程远征法国，交给弟弟（妹妹）当三代目
 
 
-
-
-
-
-
 -----
 
 ####  ジュリア  
 ##### 3703#       发表于 2018-5-29 17:07
 
 
-
-
 哦黄金巨匠www
-
-
-
-
-
 
 
 -----
 
 ####  D-JoeII  
 ##### 3704#       发表于 2018-5-29 17:59
-
-
 
 
 話說這個機伶系列的馬主是不是阿宅啊,真機伶(其實讀音就是機伶醬)的女兒叫萌機伶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -15291,16 +10243,10 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 話說機伶其實是馬主女兒的名字,這位馬主也是心大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ching921217  
 ##### 3705#       发表于 2018-5-29 17:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39790754&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-5-27 16:43</a>
@@ -15322,16 +10268,10 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 媽的一群騙子，身體比嘴巴誠實多了
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3706#       发表于 2018-5-29 18:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39813183&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-5-29 17:59</a>
@@ -15344,20 +10284,13 @@ http://db.netkeib ...</blockquote>
 “機伶酱~機伶萌~~”，做他女儿辛苦了（笑）
 
 
-
 “機伶酱”记得游戏官网有人设，两匹短途血统生出来的女儿，确实可以期望一下。
-
-
-
-
-
 
 
 -----
 
 ####  DOACAON  
 ##### 3707#       发表于 2018-5-29 18:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39813183&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-5-29 03:59</a>
@@ -15375,16 +10308,10 @@ http://db.netkeib ...</blockquote>
 是医院的院长来着，应该不至于是宅吧
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3708#       发表于 2018-5-29 18:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39813241&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-29 18:11</a>
@@ -15398,25 +10325,13 @@ http://db.netkeib ...</blockquote>
 另外目前生的兩隻都是芦毛,母系基因挺強勢
 
 
-
-
-
-
-
 -----
 
 ####  Musician_B  
 ##### 3709#       发表于 2018-5-29 18:37
 
 
-
-
 听了广播剧，特别周还喜欢和铃鹿一起睡
-
-
-
-
-
 
 
 -----
@@ -15425,22 +10340,15 @@ http://db.netkeib ...</blockquote>
 ##### 3710#       发表于 2018-5-29 19:04
 
 
-
 <blockquote>Musician_B 发表于 2018-5-29 18:37
 听了广播剧，特别周还喜欢和铃鹿一起睡</blockquote>
 毕竟特别渣，所有人都在想怎么安排scarlet的时候斯佩已经说谢谢塞冷今晚一起睡了……
-
-
-
-
-
 
 
 -----
 
 ####  musicat  
 ##### 3711#       发表于 2018-5-29 19:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39799877&amp;ptid=1590696" target="_blank">zimimar 发表于 2018-5-28 13:22</a>
@@ -15458,10 +10366,6 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 2018-5-29 19:00 上传
 
 
-
-
-
-
 冠军Wagnerian的最终成绩“2分23秒6”，根据上面的显示已经是历史第三好的成绩了。
 
 大震撼和龟波王，当年跑德比的成绩都是“2分23秒3”。
@@ -15474,7 +10378,6 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 看比赛实况，觉得更多的是最后的直路没找到找到空位发力冲出来，被死死的按在内栏。
 
 
-
 *说起来忽然有个想法，比赛成绩是实打实的时间记录，虽然有不同的赛场因素，
 
 但是把相同长度的草地/泥地赛事的成绩，拿出来直观的做一番比较，
@@ -15482,16 +10385,10 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 多少也可以衡量日本比较世界的赛马水准呢。
 
 
-
-
-
-
-
 -----
 
 ####  多多天下  
 ##### 3712#       发表于 2018-5-29 19:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39813817&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-29 19:16</a>
@@ -15503,16 +10400,10 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 之前连续几天的数场比赛成绩都很好，天气影响因素不可忽略的
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3713#       发表于 2018-5-29 19:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39813817&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-29 19:16</a>
@@ -15524,16 +10415,10 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 不同马场成绩拿来比较其实意义不大
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3714#       发表于 2018-5-29 20:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39814020&amp;ptid=1590696" target="_blank">xzhei 发表于 2018-5-29 19:36</a>
@@ -15549,17 +10434,10 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 比较日本赛马，还是直接参考国际协会上的评分好了，毕竟他们才是专业。
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3715#       发表于 2018-5-29 22:22
-
-
 
 
 ダイスキなもの】手綱と絆 🐴凹凸でん【集めよう数えよう
@@ -15572,15 +10450,8 @@ blast one piece这匹看起来挺强的 池添明显是失手了 出迟加走位
 草：明天是和小特的比赛…没问题吗？够可爱吗？不会输给那个绿色吧…？
 
 
-
-
-
-
-
 DeQmCqNX4AIpQ72.jpg
 (97.35 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -15589,32 +10460,13 @@ DeQmCqNX4AIpQ72.jpg
 2018-5-29 22:21 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/29/222110bcm4kvkb4fkkbl0f.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  物流大亨常凯申  
 ##### 3716#       发表于 2018-5-29 22:56
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201805/29/225421yaeq1lo51ns2bv77.jpg" referrerpolicy="no-referrer">
@@ -15627,28 +10479,13 @@ DeQmCqNX4AIpQ72.jpg
 2018-5-29 22:54 上传
 
 
-
-
-
-
-
 现在CV还真是多才多艺呢
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  物流大亨常凯申  
 ##### 3717#       发表于 2018-5-29 23:06
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201805/29/230622e8zepgy39ypcx080.jpg" referrerpolicy="no-referrer">
@@ -15659,11 +10496,6 @@ DeQmCqNX4AIpQ72.jpg
 下载附件
 
 2018-5-29 23:06 上传
-
-
-
-
-
 
 
 野兽先辈特别周说
@@ -15695,17 +10527,10 @@ DeQmCqNX4AIpQ72.jpg
 Q.E.D
 
 
-
-
-
-
-
-
 -----
 
 ####  zechins  
 ##### 3718#       发表于 2018-5-29 23:31
-
 
 
  本帖最后由 zechins 于 2018-5-29 23:36 编辑 
@@ -15715,26 +10540,15 @@ Q.E.D
 <img src="http://wx2.sinaimg.cn/large/0070WDskly1frsmu9sre6j31hc0u07bs.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  classa  
 ##### 3719#       发表于 2018-5-29 23:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39816064&amp;ptid=1590696" target="_blank">zechins 发表于 2018-05-29 23:31:06</a></blockquote>哇的一声哭了出来，太虐了
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -15743,14 +10557,8 @@ Q.E.D
 ##### 3720#       发表于 2018-5-29 23:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39816064&amp;ptid=1590696" target="_blank">zechins 发表于 2018-5-29 23:31</a></blockquote>
 喷了，这是拿什么做出来的？
-
-
-
-
-
 
 
 -----
@@ -15759,21 +10567,13 @@ Q.E.D
 ##### 3721#       发表于 2018-5-30 00:48
 
 
-
-
 你们这些扭曲马学家233
-
-
-
-
-
 
 
 -----
 
 ####  zechins  
 ##### 3722#       发表于 2018-5-30 08:47
-
 
 
 <img src="http://wx2.sinaimg.cn/large/0070WDskly1frt2p0q13bj31kw147nb7.jpg" referrerpolicy="no-referrer">
@@ -15784,25 +10584,13 @@ Q.E.D
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">小草的成功学讲座
 
 
-
-
-
-
-
 -----
 
 ####  natmk  
 ##### 3723#       发表于 2018-5-30 09:39
 
 
-
-
 亚美咯你们这群扭曲的马学家<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15811,17 +10599,10 @@ Q.E.D
 ##### 3724#       发表于 2018-5-30 10:18
 
 
-
-
 有个问题请教一下，像乌拉拉这种113连败一生无胜的赛马是怎么安然活到退休的，一般这种不是都送肉联厂了吗？还有钱过退休生活
 
 
 乌拉拉好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15830,16 +10611,10 @@ Q.E.D
 ##### 3725#       发表于 2018-5-30 10:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39819569&amp;ptid=1590696" target="_blank">raynor_1999 发表于 2018-5-30 10:18</a>
 
 有个问题请教一下，像乌拉拉这种113连败一生无胜的赛马是怎么安然活到退休的，一般这种不是都送肉联厂了吗 ...</blockquote>
 乌拉拉没钱过啊，直接被马主扔了，现在养他那个牧场搞了个粉丝会募捐才没成刺身
-
-
-
-
-
 
 
 -----
@@ -15848,15 +10623,9 @@ Q.E.D
 ##### 3726#       发表于 2018-5-30 10:26
 
 
-
  本帖最后由 Goisdust 于 2018-5-30 10:30 编辑 
 
 編輯
-
-
-
-
-
 
 
 -----
@@ -15865,15 +10634,9 @@ Q.E.D
 ##### 3727#       发表于 2018-5-30 10:34
 
 
-
 <blockquote>kanpachi 发表于 2018-5-30 10:24
 乌拉拉没钱过啊，直接被马主扔了，现在养他那个牧场搞了个粉丝会募捐才没成刺身 ...</blockquote>
 接收牠的牧場一開募捐沒多久就因為太多人申請所以暫時停止申請到現在，所以還是很滋潤的
-
-
-
-
-
 
 
 -----
@@ -15882,23 +10645,15 @@ Q.E.D
 ##### 3728#       发表于 2018-5-30 10:54
 
 
-
-
 草上飞至今还在做种马，身体素质好的不行。。。
 
 特别周最后几年都瘦的要死了。像被榨干了一样。<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 3729#       发表于 2018-5-30 11:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39820050&amp;ptid=1590696" target="_blank">old.just 发表于 2018-5-30 10:54</a>
@@ -15911,16 +10666,10 @@ Q.E.D
 —— 來自 samsung SM-J5007, Android 5.1.1上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
-
-
-
-
-
 -----
 
 ####  韩子  
 ##### 3730#       发表于 2018-5-30 11:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39820482&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-5-30 11:29</a>
@@ -15931,25 +10680,13 @@ Q.E.D
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">特别浪这个翻译…………这……………………
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3731#       发表于 2018-5-30 11:42
 
 
-
-
 查了下。草上飞去年打种56次，数量还不错……
-
-
-
-
-
 
 
 -----
@@ -15958,21 +10695,13 @@ Q.E.D
 ##### 3732#       发表于 2018-5-30 12:02
 
 
-
-
 特别周死的早跟压榨过甚有关吧 后期看着那体格真是一言难尽 
-
-
-
-
-
 
 
 -----
 
 ####  zimimar  
 ##### 3733#       发表于 2018-5-30 12:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39813817&amp;ptid=1590696" target="_blank">musicat 发表于 2018-5-29 19:16</a>
@@ -15984,16 +10713,10 @@ Q.E.D
 东京2400米场地记录是05年日本杯 美国马意志和真心呼唤跑出来的2分22秒1 之前的记录是好利时和小栗帽跑出来的2分22秒2 当时就是世界纪录。。。。东京马场在02年-03年经历了一次改造 具体改了哪些不详说了 总之是快了 具体到日本打比这个比赛 撇去新宇宙和黄金巨匠遭遇台风造成的重马场和不良马场 时间平均比改造前快了2-3秒 赛马不是田径比赛 不同的场地差异很大 天气因素影响也很大 不能单纯比较时间来确定强弱 就好像马拉松以前都是用世界最好成绩来算 不算世界纪录（现在虽然算世界纪录 但是争议还是很大 比如有领跑员带的不算纪录啊 女子选手有男子选手带着领跑不算纪录啊等等）
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 3734#       发表于 2018-5-30 12:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39819569&amp;ptid=1590696" target="_blank">raynor_1999 发表于 2018-5-30 10:18</a>
@@ -16002,16 +10725,10 @@ Q.E.D
 有人炒作
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3735#       发表于 2018-5-30 12:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39820852&amp;ptid=1590696" target="_blank">loli炮 发表于 2018-5-30 12:02</a>
@@ -16020,16 +10737,10 @@ Q.E.D
 23岁其实也不算太早吧，查了下2011年以后打种就不算多了，而且受胎率太低，所以种马引退了。黄金旅程倒是被压榨的比较厉害
 
 
-
-
-
-
-
 -----
 
 ####  百升飞上天  
 ##### 3736#       发表于 2018-5-30 13:31
-
 
 
 <blockquote>Goisdust 发表于 2018-5-30 11:29
@@ -16040,26 +10751,15 @@ Q.E.D
 渣特：没想到吧，小草，i'm your father
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 3737#       发表于 2018-5-30 13:54
 
 
-
 <blockquote>百升飞上天 发表于 2018-5-30 13:31
 渣特：没想到吧，小草，i'm your father</blockquote>
 特别不悔（
-
-
-
-
-
 
 
 -----
@@ -16068,16 +10768,10 @@ Q.E.D
 ##### 3738#       发表于 2018-5-30 14:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39820936&amp;ptid=1590696" target="_blank">センコウ 发表于 2018-5-30 12:09</a>
 
 有人炒作</blockquote>
 炒作开始的时候已经输了70多场了。。。
-
-
-
-
-
 
 
 -----
@@ -16086,24 +10780,16 @@ Q.E.D
 ##### 3739#       发表于 2018-5-30 14:56
 
 
-
-
 马主喜欢春丽，不忍心杀。反正地方马场，总需要陪跑。而且每周都有比赛，输个两年就有70场了吧
 
 
 ----发送自 [HUAWEI PE-TL20,Android 4.4.2](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  Fingest  
 ##### 3740#       发表于 2018-5-30 15:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39820482&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-5-30 11:29</a>
@@ -16122,25 +10808,13 @@ Q.E.D
 黑人草:不..不行了,要被..要被榨干了..
 
 
-
-
-
-
-
 -----
 
 ####  猿飞日斩3  
 ##### 3741#       发表于 2018-5-30 16:04
 
 
-
-
 我也觉得特别周退役后不懂是吃的不好，还是本来就有病，比在役时瘦了很多，特别是14年和草上飞见面的那个视频，简直比草上飞瘦了一圈，这么瘦弱也难怪会有放牧事故导致死亡啊
-
-
-
-
-
 
 
 -----
@@ -16149,23 +10823,15 @@ Q.E.D
 ##### 3742#       发表于 2018-5-30 19:06
 
 
-
-
 「ウマ旅」スペシャルウィーク編 プロモーション映像
 [https://weibo.com/tv/v/Gj4qQnEZO ... 677c6d98e5aa444c699](https://weibo.com/tv/v/Gj4qQnEZO?fid=1034:fb2742091ba4c677c6d98e5aa444c699)
 [https://www.youtube.com/watch?v= ... =uG0vcKPNXQyGATV1-6](https://www.youtube.com/watch?v=tr5PPQpkG1Y&amp;feature=push-u-sub&amp;attr_tag=uG0vcKPNXQyGATV1-6)
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 3743#       发表于 2018-5-30 19:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39825002&amp;ptid=1590696" target="_blank">xingenge 发表于 2018-5-30 19:06</a>
@@ -16176,16 +10842,10 @@ https://weibo.com/tv/v/Gj4qQnEZO?fid=1034:fb274209 ...</blockquote>
 如今这些影像弥足珍贵吧
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3744#       发表于 2018-5-30 19:19
-
 
 
  本帖最后由 Goisdust 于 2018-5-30 19:28 编辑 
@@ -16202,16 +10862,8 @@ Refoca @Yuuurefoca  5月27日
 #ウマ娘
 
 
-
-
-
-
-
-
 DeMqxTHV4AIEzN5-c.jpg
 (509.83 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -16220,53 +10872,20 @@ DeMqxTHV4AIEzN5-c.jpg
 2018-5-30 19:19 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/30/191911lr8etmshzfs06r0m.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 DeMqxS9V4AAWvBl-c.jpg
 (340.31 KB, 下载次数: 3)
 
 
-
-
 下载附件
 
 
 2018-5-30 19:19 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/30/191904kw6d2zfmqpmv0b6e.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -16275,15 +10894,9 @@ DeMqxS9V4AAWvBl-c.jpg
 ##### 3745#       发表于 2018-5-30 19:23
 
 
-
 <blockquote>猿飞日斩3 发表于 2018-5-30 16:04
 我也觉得特别周退役后不懂是吃的不好，还是本来就有病，比在役时瘦了很多，特别是14年和草上飞见面的那个视 ...</blockquote>
 和气跑去看小特的那个栏目看到真是瘦得皮包骨头
-
-
-
-
-
 
 
 -----
@@ -16292,23 +10905,15 @@ DeMqxS9V4AAWvBl-c.jpg
 ##### 3746#       发表于 2018-5-30 19:36
 
 
-
 <blockquote>ジュリア 发表于 2018-5-30 19:23
 和气跑去看小特的那个栏目看到真是瘦得皮包骨头</blockquote>
 是啊，所以我估计胃肠有毛病的可能性比较大，好像当种马的时候已经很瘦了，那时候应该还不至于营养不足
-
-
-
-
-
 
 
 -----
 
 ####  musicat  
 ##### 3747#       发表于 2018-5-30 20:11
-
-
 
 
 有些想法也太消极了吧。
@@ -16323,26 +10928,13 @@ DeMqxS9V4AAWvBl-c.jpg
 退休之后的花费会多花几个钱呢。
 
 
-
-
-
-
-
-
 -----
 
 ####  pwlong  
 ##### 3748#       发表于 2018-5-30 20:20
 
 
-
-
 我觉得不要乱想，好歌剧不说，特别周作为马娘企划的主角，在动画播出及之后一段时间都是瞩目焦点，可以预见必然会有很多官方的采访和爱好者的圣地巡礼，真没必要在这时候饿着小特
-
-
-
-
-
 
 
 -----
@@ -16351,14 +10943,7 @@ DeMqxS9V4AAWvBl-c.jpg
 ##### 3749#       发表于 2018-5-30 20:52
 
 
-
-
 這種情況主要是馬本身因為老了沒什麼食慾
-
-
-
-
-
 
 
 -----
@@ -16367,14 +10952,7 @@ DeMqxS9V4AAWvBl-c.jpg
 ##### 3750#       发表于 2018-5-30 21:13
 
 
-
-
 听说小特不喜欢配种..成为种马前是匹很亲人又温顺的马,当了种马后因为被人强迫去交配,脾气变得暴躁....
-
-
-
-
-
 
 
 -----
@@ -16383,16 +10961,10 @@ DeMqxS9V4AAWvBl-c.jpg
 ##### 3751#       发表于 2018-5-30 21:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39825911&amp;ptid=1590696" target="_blank">二月十日 发表于 2018-5-30 21:13</a>
 
 听说小特不喜欢配种..成为种马前是匹很亲人又温顺的马,当了种马后因为被人强迫去交配,脾气变得暴躁.... ...</blockquote>
 有听说是因为小时候的奶妈对它不好，所以对母马有恶感，对人反而比较亲。特别周配种的时候是蛮抖S的，年长的母马受不了，受胎率也不高，其实不太适合当种马
-
-
-
-
-
 
 
 -----
@@ -16401,16 +10973,10 @@ DeMqxS9V4AAWvBl-c.jpg
 ##### 3752#       发表于 2018-5-30 21:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39825511&amp;ptid=1590696" target="_blank">pwlong 发表于 2018-5-30 20:20</a>
 
 我觉得不要乱想，好歌剧不说，特别周作为马娘企划的主角，在动画播出及之后一段时间都是瞩目焦点，可以预见 ...</blockquote>
 就算没有动画，好歌剧特别周这种级别的马都会有粉丝参观的，不用担心
-
-
-
-
-
 
 
 -----
@@ -16419,22 +10985,13 @@ DeMqxS9V4AAWvBl-c.jpg
 ##### 3753#       发表于 2018-5-30 21:39
 
 
-
-
 这些都是活招牌，不说粉丝。你连马王都亏待，哪个马主还找你干活。
-
-
-
-
-
 
 
 -----
 
 ####  D-JoeII  
 ##### 3754#       发表于 2018-5-30 21:55
-
-
 
 
 就算沒版權沒對白,出現次數多了還是會被人留意到的
@@ -16444,17 +11001,10 @@ DeMqxS9V4AAWvBl-c.jpg
 <img src="https://i.imgur.com/biDFC03.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猿飞日斩3  
 ##### 3755#       发表于 2018-5-30 22:11
-
-
 
 
 毕竟麦昆的女儿都很大只好像。
@@ -16464,17 +11014,10 @@ DeMqxS9V4AAWvBl-c.jpg
 看WIKI还发现大和绯红的马主之一居然是社台创始人的长子，居然能被CY搞到版权，大和绯红的异父哥哥居然没有版权，难不成是直接卖给社台了。
 
 
-
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3756#       发表于 2018-5-30 22:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39826405&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-5-30 22:11</a>
@@ -16488,25 +11031,13 @@ DeMqxS9V4AAWvBl-c.jpg
 說不定其實只是單純商業原因,Cy要一隻隻的談下來,而不是直接一整批牧場所屬的都得到許可
 
 
-
-
-
-
-
 -----
 
 ####  loli炮  
 ##### 3757#       发表于 2018-5-30 22:19
 
 
-
-
 B站50美马里好多巨大的母马，比公马大一圈，像伏特加就挺大的
-
-
-
-
-
 
 
 -----
@@ -16515,14 +11046,7 @@ B站50美马里好多巨大的母马，比公马大一圈，像伏特加就挺�
 ##### 3758#       发表于 2018-5-30 22:20
 
 
-
-
 大震撼配种都几千万呢，看CY爹有钱不往死里要
-
-
-
-
-
 
 
 -----
@@ -16531,14 +11055,7 @@ B站50美马里好多巨大的母马，比公马大一圈，像伏特加就挺�
 ##### 3759#       发表于 2018-5-30 22:23
 
 
-
-
 還有Cy肯定有些談下來了只是先擺著不公佈,例如CB先生動畫已經直接提名字+有人設,但目前手遊官網還沒正式公佈這位
-
-
-
-
-
 
 
 -----
@@ -16547,21 +11064,13 @@ B站50美马里好多巨大的母马，比公马大一圈，像伏特加就挺�
 ##### 3760#       发表于 2018-5-30 22:27
 
 
-
-
 感觉动画Pv都改在周四公布了
-
-
-
-
-
 
 
 -----
 
 ####  猿飞日斩3  
 ##### 3761#       发表于 2018-5-30 22:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39826457&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-5-30 22:18</a>
@@ -16579,16 +11088,10 @@ B站50美马里好多巨大的母马，比公马大一圈，像伏特加就挺�
 所以真的挺迷的
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3762#       发表于 2018-5-30 22:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39826405&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-5-30 22:11</a>
@@ -16599,17 +11102,10 @@ B站50美马里好多巨大的母马，比公马大一圈，像伏特加就挺�
 日高大洋牧场就是特别周的生产者，一般马卖了以后放牧什么的还是在生产牧场的，特别周99年的时候一半权利就卖给社台了。退休了以后大概就回老家养老了
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 3763#       发表于 2018-5-30 22:48
-
-
 
 
 所以综上所述
@@ -16621,16 +11117,10 @@ B站50美马里好多巨大的母马，比公马大一圈，像伏特加就挺�
 还是说，其实很多都谈好了，只是石原哥哥压着不放？
 
 
-
-
-
-
-
 -----
 
 ####  猿飞日斩3  
 ##### 3764#       发表于 2018-5-30 22:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39826641&amp;ptid=1590696" target="_blank">xzhei 发表于 2018-5-30 22:39</a>
@@ -16639,16 +11129,10 @@ B站50美马里好多巨大的母马，比公马大一圈，像伏特加就挺�
 好吧。看来退休金可能是社台马主牧场一起出的，那估计是没什么问题
 
 
-
-
-
-
-
 -----
 
 ####  gcxonly  
 ##### 3765#       发表于 2018-5-31 00:12
-
 
 
 广播剧里面特别渣和铃鹿同床了....<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -16665,9 +11149,6 @@ B站50美马里好多巨大的母马，比公马大一圈，像伏特加就挺�
 2018-5-31 00:12 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201805/31/001232cl4aios6i4oi4r04.png" referrerpolicy="no-referrer">
 
 
@@ -16678,31 +11159,14 @@ B站50美马里好多巨大的母马，比公马大一圈，像伏特加就挺�
 2018-5-31 00:12 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 3766#       发表于 2018-5-31 12:04
 
 
-
-
 链接：[https://pan.baidu.com/s/1ufDHqFot5Pn1zJEn8mdu_Q](https://pan.baidu.com/s/1ufDHqFot5Pn1zJEn8mdu_Q) 密码：pq3p
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1frualg036nj21kw2abqv6.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16711,16 +11175,10 @@ B站50美马里好多巨大的母马，比公马大一圈，像伏特加就挺�
 ##### 3767#       发表于 2018-5-31 12:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39827310&amp;ptid=1590696" target="_blank">gcxonly 发表于 2018-5-31 00:12</a>
 
 https://www.bilibili.com/video/av24071291?from=search&amp;seid=16932940349499239154广播剧里面特别渣和铃 ...</blockquote>
 托你的福……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">特别周难道你一直觊觎铃鹿的肉体嘛
-
-
-
-
-
 
 
 -----
@@ -16729,23 +11187,16 @@ https://www.bilibili.com/video/av24071291?from=search&amp;seid=16932940349499239
 ##### 3768#       发表于 2018-5-31 12:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39830929&amp;ptid=1590696" target="_blank">amulelernen 发表于 2018-05-31 12:23:18</a>
 托你的福……特别周难道你一直觊觎铃鹿的肉体嘛</blockquote>特别渣实锤特别色了吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 3769#       发表于 2018-5-31 13:37
-
 
 
 <blockquote>gcxonly 发表于 2018-5-31 12:46
@@ -16756,25 +11207,13 @@ https://www.bilibili.com/video/av24071291?from=search&amp;seid=16932940349499239
 毕竟肉食系马娘233
 
 
-
-
-
-
-
 -----
 
 ####  mjlic  
 ##### 3770#       发表于 2018-5-31 20:04
 
 
-
-
 11话预告呢……？要延到周五吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">有点担心之后的作画质量……
-
-
-
-
-
 
 
 -----
@@ -16783,16 +11222,10 @@ https://www.bilibili.com/video/av24071291?from=search&amp;seid=16932940349499239
 ##### 3771#       发表于 2018-5-31 21:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39835856&amp;ptid=1590696" target="_blank">mjlic 发表于 2018-5-31 20:04</a>
 
 11话预告呢……？要延到周五吗有点担心之后的作画质量……</blockquote>
 因为这集是日本杯，大批外国马马甲比赛，作画是很赶的预料。
-
-
-
-
-
 
 
 -----
@@ -16801,24 +11234,16 @@ https://www.bilibili.com/video/av24071291?from=search&amp;seid=16932940349499239
 ##### 3772#       发表于 2018-5-31 22:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39836675&amp;ptid=1590696" target="_blank">天狼Q娃 发表于 2018-5-31 21:37</a>
 
 因为这集是日本杯，大批外国马马甲比赛，作画是很赶的预料。</blockquote>
 是呀，而且估计后面集集都有比赛，所以有点担心……不过就算崩了BD也会修吧，只求最后能来个第二季或者手游开服消息<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  huaiyi2604  
 ##### 3773#       发表于 2018-5-31 22:25
-
-
 
 
 网易云草女士个人曲翻译出了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -16953,28 +11378,19 @@ My secret graduation
 [color=rgba(255, 255, 255, 0.8)]
 
 
-
 -----
 
 ####  猿飞日斩3  
 ##### 3774#       发表于 2018-5-31 22:41
 
 
-
-
 找新的恋爱去了还行
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 3775#       发表于 2018-5-31 22:55
-
 
 
  本帖最后由 amulelernen 于 2018-5-31 22:56 编辑 
@@ -16996,35 +11412,19 @@ My secret graduation
 新的心动在呼唤着我 - 特别浪GET<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  loli炮  
 ##### 3776#       发表于 2018-5-31 23:12
 
 
-
-
 年度悲情草女士
-
-
-
-
-
 
 
 -----
 
 ####  物流大亨常凯申  
 ##### 3777#       发表于 2018-5-31 23:13
-
-
-
 
 
 たったみつの季節だけ 心のグラスに色が着きました
@@ -17040,32 +11440,19 @@ My secret graduation
 这一切都是Cy早就安排好的？
 
 
-
-
-
-
-
 -----
 
 ####  natmk  
 ##### 3778#       发表于 2018-5-31 23:15
 
 
-
-
 心疼草女士
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 3779#       发表于 2018-5-31 23:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39837471&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-5-31 23:13</a>
@@ -17076,16 +11463,10 @@ My secret graduation
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">呀灭咯越说我画面感越强了
 
 
-
-
-
-
-
 -----
 
 ####  猿飞日斩3  
 ##### 3780#       发表于 2018-5-31 23:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39837471&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-5-31 23:13</a>
@@ -17096,25 +11477,13 @@ My secret graduation
 还是有修改的啦，看歌词应该和特别周是同桌的，那样就更可悲了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  多多天下  
 ##### 3781#       发表于 2018-5-31 23:51
 
 
-
-
 心疼草女士
-
-
-
-
-
 
 
 -----
@@ -17123,14 +11492,7 @@ My secret graduation
 ##### 3782#       发表于 2018-5-31 23:53
 
 
-
-
 这歌词。。官方有病<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17139,22 +11501,15 @@ My secret graduation
 ##### 3783#       发表于 2018-6-1 01:42
 
 
-
 <blockquote>amulelernen 发表于 2018-5-29 23:57
 喷了，这是拿什么做出来的？</blockquote>
 恋活，新出的游戏
-
-
-
-
-
 
 
 -----
 
 ####  nylonchina1  
 ##### 3784#       发表于 2018-6-1 01:45
-
 
 
 <blockquote>Goisdust 发表于 2018-5-29 22:22
@@ -17166,24 +11521,13 @@ My secret graduation
 呀么楼
 
 
-
-
-
-
-
 -----
 
 ####  cyberpenk  
 ##### 3785#       发表于 2018-6-1 03:00
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 官方发病可还行
-
-
-
-
-
 
 
 -----
@@ -17192,16 +11536,9 @@ My secret graduation
 ##### 3786#       发表于 2018-6-1 10:25
 
 
-
-
 没有第11R看我要死了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -17210,14 +11547,7 @@ My secret graduation
 ##### 3787#       发表于 2018-6-1 14:52
 
 
-
-
 也该出预告了吧，日本杯都知道，没什么好藏的。
-
-
-
-
-
 
 
 -----
@@ -17226,15 +11556,9 @@ My secret graduation
 ##### 3788#       发表于 2018-6-1 16:02
 
 
-
  本帖最后由 hsyg 于 2018-6-1 17:58 编辑 
 
 这楼越来越病了……不过貌似CY墙了锅GO，不知道到时候马娘有没有影响。
-
-
-
-
-
 
 
 -----
@@ -17243,23 +11567,15 @@ My secret graduation
 ##### 3789#       发表于 2018-6-1 18:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39844148&amp;ptid=1590696" target="_blank">hsyg 发表于 2018-6-1 16:02</a>
 这楼越来越病了……不过貌似CY墙了锅GO，不知道到时候马娘有没有影响。</blockquote>
 只是公主链接墙了acgp而已
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 3790#       发表于 2018-6-1 19:02
-
-
 
 
 第11R「おかえりなさい！」
@@ -17272,17 +11588,10 @@ My secret graduation
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1frvvsni1mbj20nw0dfgwy.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3791#       发表于 2018-6-1 19:15
-
-
 
 
 掉去跑OP了…等等，下集就演一场原创赛？我的日本总大将呢…<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -17290,16 +11599,10 @@ My secret graduation
 —— 來自 samsung SM-J5007, Android 5.1.1上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3792#       发表于 2018-6-1 19:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39846211&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-1 19:15</a>
@@ -17311,17 +11614,10 @@ My secret graduation
 第10話有說鈴鹿的OP賽在日本盃前一天
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 3793#       发表于 2018-6-1 19:21
-
-
 
 
 11R 搜狐
@@ -17332,33 +11628,19 @@ My secret graduation
 [https://weibo.com/tv/v/GjngvkeTq ... 45fffe81d9750577489](https://weibo.com/tv/v/GjngvkeTq?fid=1034:4e29a131decc245fffe81d9750577489)
 
 
-
-
-
-
-
 -----
 
 ####  Musician_B  
 ##### 3794#       发表于 2018-6-1 19:26
 
 
-
-
 那位女士已经没有机会了
-
-
-
-
-
 
 
 -----
 
 ####  多多天下  
 ##### 3795#       发表于 2018-6-1 19:27
-
-
 
 
 10R周四
@@ -17371,25 +11653,13 @@ My secret graduation
 13R万策尽了吧
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 3796#       发表于 2018-6-1 19:31
 
 
-
-
 日本杯，有马赛，梦之杯。有马赛比重会多吧，梦之杯可能一笔带过。
-
-
-
-
-
 
 
 -----
@@ -17398,14 +11668,7 @@ My secret graduation
 ##### 3797#       发表于 2018-6-1 19:31
 
 
-
-
 铃鹿复出比赛那下集日本杯下下集有马
-
-
-
-
-
 
 
 -----
@@ -17414,16 +11677,10 @@ My secret graduation
 ##### 3798#       发表于 2018-6-1 19:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39846355&amp;ptid=1590696" target="_blank">天狼Q娃 发表于 2018-6-1 19:31</a>
 
 日本杯，有马赛，梦之杯。有马赛比重会多吧，梦之杯可能一笔带过。</blockquote>
 夢之杯估計是起跑那刻當ending
-
-
-
-
-
 
 
 -----
@@ -17432,14 +11689,7 @@ My secret graduation
 ##### 3799#       发表于 2018-6-1 19:35
 
 
-
-
 看校服也换成长袖了
-
-
-
-
-
 
 
 -----
@@ -17448,14 +11698,7 @@ My secret graduation
 ##### 3800#       发表于 2018-6-1 19:39
 
 
-
-
 说起来是泥地赛，跟铃鹿比的会是哪匹马娘？
-
-
-
-
-
 
 
 -----
@@ -17464,22 +11707,14 @@ My secret graduation
 ##### 3801#       发表于 2018-6-1 19:48
 
 
-
-
 BD2卷封面
 <img src="https://i.imgur.com/JC6fXHc.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 3802#       发表于 2018-6-1 19:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39846508&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-6-1 19:48</a>
@@ -17489,25 +11724,13 @@ BD2卷封面</blockquote>
 —— 來自 samsung SM-J5007, Android 5.1.1上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3803#       发表于 2018-6-1 20:07
 
 
-
-
 感觉大和的腿画的瘦了一点……
-
-
-
-
-
 
 
 -----
@@ -17516,23 +11739,16 @@ BD2卷封面</blockquote>
 ##### 3804#       发表于 2018-6-1 20:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39846508&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-6-1 19:48</a>
 
 BD2卷封面</blockquote>
 封面欺诈！最强雌马世代的这两位，根本没戏份啊！
 
 
-
-
-
-
-
 -----
 
 ####  badapple  
 ##### 3805#       发表于 2018-6-1 20:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39846117&amp;ptid=1590696" target="_blank">xingenge 发表于 2018-6-1 19:02</a>
@@ -17548,17 +11764,10 @@ BD2卷封面</blockquote>
 感觉某飞完全在状况外啊  后面的有马会不会跳过啊
 
 
-
-
-
-
-
-
 -----
 
 ####  noHentai  
 ##### 3806#       发表于 2018-6-1 22:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39837471&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-5-31 23:13</a>
@@ -17569,25 +11778,13 @@ BD2卷封面</blockquote>
 还有这种操作么<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  loli炮  
 ##### 3807#       发表于 2018-6-1 22:32
 
 
-
-
 草女士凉了呀
-
-
-
-
-
 
 
 -----
@@ -17596,14 +11793,7 @@ BD2卷封面</blockquote>
 ##### 3808#       发表于 2018-6-1 23:59
 
 
-
-
 有马千万别跳啊！小草最后的戏份了
-
-
-
-
-
 
 
 -----
@@ -17612,24 +11802,16 @@ BD2卷封面</blockquote>
 ##### 3809#       发表于 2018-6-2 00:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39846422&amp;ptid=1590696" target="_blank">天狼Q娃 发表于 2018-6-1 19:39</a>
 
 说起来是泥地赛，跟铃鹿比的会是哪匹马娘？</blockquote>
 那应该是入场前地下马道的地面不是赛道。中央马没有血统或者成绩不佳想转战，几乎不会去碰泥地的吧。不过假设真的泥地赛，以同期又有可能跑OP的，说不定可以让Meisei Opera的马甲来与铃鹿一战（岩手怪物，唯一胜出过中央G1的地方马）<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3810#       发表于 2018-6-2 00:22
-
-
 
 
 おえぴつ@田園マラソン２
@@ -17639,16 +11821,8 @@ BD2卷封面</blockquote>
 ９話漫画。スペちゃんの後方に座るグラスと、テレビが観えなさそうな位置にいたテイオーから妄想しました。 #ウマ娘
 
 
-
-
-
-
-
-
 DenUzsHU0AE_Kvg.jpg
 (163.47 KB, 下载次数: 6)
-
-
 
 
 下载附件
@@ -17657,31 +11831,13 @@ DenUzsHU0AE_Kvg.jpg
 2018-6-2 00:22 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/02/002237ptfz9jrcppczqg9p.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 3811#       发表于 2018-6-2 00:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39848652&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-2 00:22</a>
@@ -17693,16 +11849,10 @@ DenUzsHU0AE_Kvg.jpg
 原来是这样换的座位……小草你不要停下来啊
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 3812#       发表于 2018-6-2 00:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39848652&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-2 00:22</a>
@@ -17715,32 +11865,19 @@ DenUzsHU0AE_Kvg.jpg
 草女士这么拼了渣特头都不回一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3813#       发表于 2018-6-2 00:38
 
 
-
-
 等等，还有一个U盘，莫非是……<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  百升飞上天  
 ##### 3814#       发表于 2018-6-2 00:58
-
 
 
 <blockquote>Goisdust 发表于 2018-6-2 00:22
@@ -17752,16 +11889,10 @@ DenUzsHU0AE_Kvg.jpg
 小草：我没那种命，她一定不会爱上我
 
 
-
-
-
-
-
 -----
 
 ####  萝莉的伙伴  
 ##### 3815#       发表于 2018-6-2 01:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39846648&amp;ptid=1590696" target="_blank">amulelernen 发表于 2018-6-1 20:07</a>
@@ -17770,16 +11901,10 @@ DenUzsHU0AE_Kvg.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">比动画里瘦了不少，这种照应该都会PS下吧
 
 
-
-
-
-
-
 -----
 
 ####  萝莉的伙伴  
 ##### 3816#       发表于 2018-6-2 01:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39848652&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-2 00:22</a>
@@ -17792,27 +11917,15 @@ DenUzsHU0AE_Kvg.jpg
 心机草<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  EvgaRay  
 ##### 3817#       发表于 2018-6-2 08:03
 
 
-
-
 心疼草女士
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -17821,16 +11934,9 @@ DenUzsHU0AE_Kvg.jpg
 ##### 3818#       发表于 2018-6-2 08:12
 
 
-
-
 草女士都这么努力了，小特你就不能换个宿舍么<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -17839,21 +11945,13 @@ DenUzsHU0AE_Kvg.jpg
 ##### 3819#       发表于 2018-6-2 10:33
 
 
-
-
 换宿舍是不可能换宿舍的，这辈子不可能换宿舍的。减肥又不会减，就是雷普这种东西，才能维持的了生活的样子，进Spica感觉像回家一样，里面个个都是人才，说话又好听，我超喜欢里面的！
-
-
-
-
-
 
 
 -----
 
 ####  musicat  
 ##### 3820#       发表于 2018-6-2 10:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39847039&amp;ptid=1590696" target="_blank">badapple 发表于 2018-6-1 20:55</a>
@@ -17868,25 +11966,13 @@ DenUzsHU0AE_Kvg.jpg
 不然作为对手再一次被吊打的话<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 3821#       发表于 2018-6-2 12:09
 
 
-
-
 感觉BD3封面SPICA剩余三人，BD4星草鹰
-
-
-
-
-
 
 
 -----
@@ -17895,14 +11981,7 @@ DenUzsHU0AE_Kvg.jpg
 ##### 3822#       发表于 2018-6-2 12:13
 
 
-
-
 BD4给个草特吧<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17911,14 +11990,7 @@ BD4给个草特吧<img src="https://static.saraba1st.com/image/smiley/face2017/1
 ##### 3823#       发表于 2018-6-2 13:30
 
 
-
-
 其实帝王更可怜啊，本来第三主角，结果正片里存在感不如利吉露的神草，bd封面的待遇也有可能不如同队的两只小母马要和麦昆黄金船一起挤
-
-
-
-
-
 
 
 -----
@@ -17927,14 +11999,7 @@ BD4给个草特吧<img src="https://static.saraba1st.com/image/smiley/face2017/1
 ##### 3824#       发表于 2018-6-2 15:26
 
 
-
-
 要是来个帝王X皇帝封面<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17943,16 +12008,9 @@ BD4给个草特吧<img src="https://static.saraba1st.com/image/smiley/face2017/1
 ##### 3825#       发表于 2018-6-2 16:04
 
 
-
-
 ウマ娘応援キャンペーン！開催のお知らせ
 [http://granbluefantasy.jp/pages/?p=18184](http://granbluefantasy.jp/pages/?p=18184)
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1frww8wyfgtj20go08c0vc.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17961,16 +12019,10 @@ BD4给个草特吧<img src="https://static.saraba1st.com/image/smiley/face2017/1
 ##### 3826#       发表于 2018-6-2 16:26
 
 
-
  本帖最后由 DOACAON 于 2018-6-2 02:31 编辑 
 
 这下马娘游戏应该稳了吧，刻意找了这个理由来减半
 马勒隔壁，明天晚上1200荣誉要肝死我了
-
-
-
-
-
 
 
 -----
@@ -17979,22 +12031,13 @@ BD4给个草特吧<img src="https://static.saraba1st.com/image/smiley/face2017/1
 ##### 3827#       发表于 2018-6-2 17:14
 
 
-
-
 kmr:看到这个特别周了么 她没走丢我也没做联动任务 我就是想做个减半然后让你们看看她多可爱!
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 3828#       发表于 2018-6-2 17:39
-
-
 
 
 11话铃鹿复活，看到日本有粉丝推测这场比赛的原型：2001「キャピタルS」
@@ -18014,17 +12057,10 @@ Rascal Suzuka在前一次出赛，2000年的宝冢纪念赛后发现右脚屈腱
 03年因为屈腱炎复发而退役，经历6年种马时代于2010去势，在北海道的北国优骏公园作为一般民众的乘用马生活
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3829#       发表于 2018-6-2 17:53
-
-
 
 
 Rascal，“流氓”<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
@@ -18035,16 +12071,10 @@ Rascal，“流氓”<img src="https://static.saraba1st.com/image/smiley/face201
 虽然感觉略惨。
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3830#       发表于 2018-6-2 18:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39854173&amp;ptid=1590696" target="_blank">musicat 发表于 2018-6-2 17:53</a>
@@ -18056,16 +12086,10 @@ Rascal，“流氓”
 一般当不了种马又有点成绩的都是这个出路吧，当乘马或者马术学校教学用马，还有当马场的诱导马
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3831#       发表于 2018-6-2 21:01
-
 
 
  本帖最后由 musicat 于 2018-6-2 21:13 编辑 
@@ -18082,17 +12106,9 @@ Rascal，“流氓”
 2018-6-2 21:00 上传
 
 
-
-
-
-
-
-
 来源：[https://www.bilibili.com/read/cv544666](https://www.bilibili.com/read/cv544666)  @hyq78 
 
 特别周的女儿——迷人景致，文章也值得一看。
-
-
 
 
 顺便吹自己一波？之前只是看比赛的赛况，对于现实里的情况完全不知情，
@@ -18102,30 +12118,17 @@ Rascal，“流氓”
 居然和现实里几乎一模一样（笑）
 
 
-
-
-
-
-
 -----
 
 ####  wuxiaojing  
 ##### 3832#       发表于 2018-6-2 21:40
 
 
-
-
 四格第十话，果然超级小海湾加入了（大爆笑）。下一个就是你了稻荷一。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
 
 
 QQ图片20180602212338.png
 (1.01 MB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -18134,24 +12137,7 @@ QQ图片20180602212338.png
 2018-6-2 21:39 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/02/213946nbzpn2726ppcdtdr.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -18160,24 +12146,16 @@ QQ图片20180602212338.png
 ##### 3833#       发表于 2018-6-3 00:00
 
 
-
  本帖最后由 amulelernen 于 2018-6-3 00:02 编辑 
 
 小幸铃鹿超卡哇伊
 [url=]http://www.bilibili.com/video/av24150935[/url]
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3834#       发表于 2018-6-3 00:18
-
-
 
 
 4格還有張榮進閃耀的
@@ -18187,16 +12165,10 @@ QQ图片20180602212338.png
 <img src="https://i.imgur.com/7sPGd8x.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3835#       发表于 2018-6-3 00:19
-
 
 
  本帖最后由 musicat 于 2018-6-3 00:49 编辑 
@@ -18212,8 +12184,6 @@ QQ图片20180602212338.png
 里面更介绍了“大树快车”，“伏特加”，“小栗帽”，“大和主将”（绯红她半哥），“满乐时”（草上飞孙子）等短途马王。
 
 
-
-
 之前看帖子说好像有香港马参赛，查了一下并没有。。。
 
 <img src="https://img.saraba1st.com/forum/201806/03/004532u4z4334aw44aa4wi.jpg" referrerpolicy="no-referrer">
@@ -18224,10 +12194,6 @@ QQ图片20180602212338.png
 下载附件
 
 2018-6-3 00:45 上传
-
-
-
-
 
 
 自己比较期待第4人气的“Lys Gracieux”，毕竟是匹4岁的真马娘（笑），实力有，父系血统和人气第1的都是“真心呼唤”
@@ -18245,17 +12211,10 @@ QQ图片20180602212338.png
 还有就是，不明白“He's in Love”为什么人气这么低（12人气），明明只看时间记录的话，是匹不错的专门跑1600的马。
 
 
-
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3836#       发表于 2018-6-3 00:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39857293&amp;ptid=1590696" target="_blank">musicat 发表于 2018-6-3 00:19</a>
@@ -18268,16 +12227,10 @@ QQ图片20180602212338.png
 還跟8號同個老爸
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3837#       发表于 2018-6-3 00:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39857373&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-6-3 00:29</a>
@@ -18292,16 +12245,10 @@ QQ图片20180602212338.png
 IRE这个后缀表示的是爱尔兰？
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3838#       发表于 2018-6-3 00:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39857436&amp;ptid=1590696" target="_blank">musicat 发表于 2018-6-3 00:37</a>
@@ -18314,16 +12261,10 @@ IRE这个后缀表示的是爱尔兰？
 所以找香港馬可以去netkeiba從比賽名單看練馬師的名字,鬼佬名的肯定不是日本馬就對了
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 3839#       发表于 2018-6-3 01:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39857279&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-6-3 00:18</a>
@@ -18334,16 +12275,10 @@ IRE这个后缀表示的是爱尔兰？
 第3格有什么neta呢？
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 3840#       发表于 2018-6-3 01:18
-
 
 
  本帖最后由 DOACAON 于 2018-6-2 11:19 编辑 
@@ -18357,32 +12292,19 @@ He's in Love不被看好一个原因是主胜鞍只有一个G3，但似乎更大
 这骑手的成绩相当惨，今年至今唯一一个胜出的有Grade的比赛就是He's in Love的那个G3。然后今年G1他出场5次，拿到一个11位，两个17位和两个18位……大家都觉得这人很坑的样子
 
 
-
-
-
-
-
 -----
 
 ####  Kirihara  
 ##### 3841#       发表于 2018-6-3 04:13
 
 
-
-
 真心不错，看出了少女与战车的感觉，而恰到好处的白学气息也是更添一分精彩；了解了一些赛马的知识算是意外。
-
-
-
-
-
 
 
 -----
 
 ####  xzhei  
 ##### 3842#       发表于 2018-6-3 08:45
-
 
 
  本帖最后由 xzhei 于 2018-6-3 08:48 编辑 
@@ -18394,16 +12316,10 @@ He's in Love不被看好一个原因是主胜鞍只有一个G3，但似乎更大
 后缀里表示的是马的生产地，香港没有育马，都是买来的，一般香港马产地纽澳和爱尔兰居多
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3843#       发表于 2018-6-3 08:54
-
 
 
  本帖最后由 xzhei 于 2018-6-3 09:30 编辑 
@@ -18415,17 +12331,10 @@ He's in Love不被看好一个原因是主胜鞍只有一个G3，但似乎更大
 Suave Richard号称现役最强，又擅长东京，所以虽然没跑过一哩，人气还是高于其他。He's in love可能不被看好在东京的表现吧
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3844#       发表于 2018-6-3 09:05
-
-
 
 
 對了安田那場的日本馬名官方翻譯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -18464,16 +12373,10 @@ Suave Richard号称现役最强，又擅长东京，所以虽然没跑过一哩�
 16        20180603_S1_r01_h16.gif        (16)勝者行        16        128        津村明秀        西園正都        79        16        
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3845#       发表于 2018-6-3 09:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39858865&amp;ptid=1590696" target="_blank">xzhei 发表于 2018-6-3 08:54</a>
@@ -18503,34 +12406,19 @@ He's in Love从去年一哩锦标到现在成绩太差，加上年纪大，所�
 马主帮马匹报名参加符合条件的比赛，然后马主指定骑手？规则上不是赛事组织方指定骑手吧。
 
 
-
-
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3846#       发表于 2018-6-3 09:32
 
 
-
-
 香港马名翻译有的翻的挺好的，像黄金旅程，但经常有意译过头的，明明直译比较好……
-
-
-
-
-
 
 
 -----
 
 ####  xzhei  
 ##### 3847#       发表于 2018-6-3 09:42
-
 
 
  本帖最后由 xzhei 于 2018-6-3 09:48 编辑 
@@ -18542,16 +12430,10 @@ He's in Love从去年一哩锦标到现在成绩太差，加上年纪大，所�
 报名什么比赛一般都是调教师负责的，大比赛马主也会决定，像泥地马跑打比，估计就是马主的意思了。现在骑手都有中间人的，类似经纪人那种，和经纪人关系好的调教师一般就会和他的骑手合作多，马主有时候也会制定，不过一般都是调教师为主。像武丰福永那种老骑手都有自己的人脉的，新骑手出道的时候都会所属在某个练马师旗下，骑的马以该马房为主，站稳脚跟后会独立
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3848#       发表于 2018-6-3 09:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39858914&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-6-3 09:05</a>
@@ -18570,16 +12452,10 @@ He's in Love从去年一哩锦标到现在成绩太差，加上年纪大，所�
 然后是Lys，为什么不采用”百合“！
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3849#       发表于 2018-6-3 10:11
-
 
 
  本帖最后由 xzhei 于 2018-6-3 10:18 编辑 
@@ -18593,16 +12469,10 @@ He's in Love从去年一哩锦标到现在成绩太差，加上年纪大，所�
 大概觉得白荷更加文绉绉吧，不过这样意思反而就不对了吧…发现Campbell Junior被翻成唱作人，是因为有个音乐家叫Junior Campbell 吗，但官方马名的由来只是“Campbell的儿子”，真是引申的太远了……
 
 
-
-
-
-
-
 -----
 
 ####  mjlic  
 ##### 3850#       发表于 2018-6-3 10:40
-
 
 
  本帖最后由 mjlic 于 2018-6-3 10:41 编辑 
@@ -18612,8 +12482,6 @@ He's in Love从去年一哩锦标到现在成绩太差，加上年纪大，所�
 因为荣进闪耀设定上是来自德国的留学生，时间观念很严格，图上说的是她每天看新闻的时间也被划入了日程安排表
 
 但是棒球赛季时，棒球实况转播有时会导致新闻的播放时间被延后，这样一来荣进闪耀的日程表就被打乱了，所以她觉得棒球是敌人<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
-
-
 
 
 搬一个萌娘百科上的马娘角色简介翻译
@@ -18633,28 +12501,14 @@ He's in Love从去年一哩锦标到现在成绩太差，加上年纪大，所�
 兴趣是制作故乡德国的甜点。砂糖连1g的误差都不会有，似乎是严格遵照食谱来制作。
 
 
-
-
-
-
-
-
-
 -----
 
 ####  五更伪境  
 ##### 3851#       发表于 2018-6-3 10:51
 
 
-
-
 gbf的特别周
 <img src="https://i.loli.net/2018/06/03/5b13577d8cbe6.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18663,16 +12517,10 @@ gbf的特别周
 ##### 3852#       发表于 2018-6-3 10:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39855833&amp;ptid=1590696" target="_blank">wuxiaojing 发表于 2018-6-2 21:40</a>
 
 四格第十话，果然超级小海湾加入了（大爆笑）。下一个就是你了稻荷一。 ...</blockquote>
 这一代关系好和谐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18681,16 +12529,10 @@ gbf的特别周
 ##### 3853#       发表于 2018-6-3 10:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39859752&amp;ptid=1590696" target="_blank">五更伪境 发表于 2018-6-3 10:51</a>
 
 gbf的特别周</blockquote>
 尾巴的颜色暴露了这是黄金船假扮的
-
-
-
-
-
 
 
 -----
@@ -18699,24 +12541,16 @@ gbf的特别周</blockquote>
 ##### 3854#       发表于 2018-6-3 11:02
 
 
-
-
 ウマ娘プロジェクト公式アカウント@uma_musu
 
 #ウマ娘
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1frxt57dq93j20p00e2wnc.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3855#       发表于 2018-6-3 11:28
-
 
 
 <blockquote>xingenge 发表于 2018-6-3 11:02
@@ -18726,16 +12560,10 @@ gbf的特别周</blockquote>
 还以为一定是大坪快车，囧
 
 
-
-
-
-
-
 -----
 
 ####  natmk  
 ##### 3856#       发表于 2018-6-3 11:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39859852&amp;ptid=1590696" target="_blank">xingenge 发表于 2018-6-3 11:02</a>
@@ -18746,25 +12574,13 @@ gbf的特别周</blockquote>
 真官方亲女儿小栗帽
 
 
-
-
-
-
-
 -----
 
 ####  Fingest  
 ##### 3857#       发表于 2018-6-3 11:52
 
 
-
-
 这个特别周这么瘦 一看就是假的
-
-
-
-
-
 
 
 -----
@@ -18773,15 +12589,9 @@ gbf的特别周</blockquote>
 ##### 3858#       发表于 2018-6-3 11:59
 
 
-
 <blockquote>Fingest 发表于 2018-6-3 11:52
 这个特别周这么瘦 一看就是假的</blockquote>
 一看就是目白麦昆假扮的
-
-
-
-
-
 
 
 -----
@@ -18790,14 +12600,7 @@ gbf的特别周</blockquote>
 ##### 3859#       发表于 2018-6-3 11:59
 
 
-
-
 吃饭组超赞的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18806,23 +12609,16 @@ gbf的特别周</blockquote>
 ##### 3860#       发表于 2018-6-3 12:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39860214&amp;ptid=1590696" target="_blank">natmk 发表于 2018-6-3 11:45</a>
 
 真官方亲女儿小栗帽</blockquote>
 小栗帽赢过安田啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3861#       发表于 2018-6-3 12:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39860052&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-3 11:28</a>
@@ -18833,17 +12629,10 @@ gbf的特别周</blockquote>
 其實小栗帽也可以畫年底有馬的,不過可能留給帝王了
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3862#       发表于 2018-6-3 12:16
-
-
 
 
 千六不败——オグリキャップ（小栗帽）
@@ -18870,16 +12659,10 @@ gbf的特别周</blockquote>
 引自:[http://blog.sina.com.cn/s/blog_41f6875f0102wkjq.html](http://blog.sina.com.cn/s/blog_41f6875f0102wkjq.html) (日本一哩马王全接触 )
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3863#       发表于 2018-6-3 12:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39860485&amp;ptid=1590696" target="_blank">musicat 发表于 2018-6-3 12:16</a>
@@ -18891,26 +12674,15 @@ gbf的特别周</blockquote>
 大樹快車7場1600全部不敗啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3864#       发表于 2018-6-3 12:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39860511&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-6-3 12:18</a>
 大樹快車7場1600全部不敗啊</blockquote>
 小栗帽：亲女儿真香，嚼嚼嚼。
-
-
-
-
-
 
 
 -----
@@ -18919,23 +12691,16 @@ gbf的特别周</blockquote>
 ##### 3865#       发表于 2018-6-3 13:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39860511&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-6-3 12:18</a>
 
 大樹快車7場1600全部不敗啊</blockquote>
 初代偶像马小栗帽，比不过比不过
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3866#       发表于 2018-6-3 14:50
-
 
 
  本帖最后由 D-JoeII 于 2018-6-3 14:51 编辑 
@@ -18946,16 +12711,10 @@ gbf的特别周</blockquote>
 被鬼佬騎隻之前沒贏過G1的連鬥馬戰翻,日本騎師丟人啊
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3867#       发表于 2018-6-3 15:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39861756&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-6-3 14:50</a>
@@ -18967,16 +12726,10 @@ gbf的特别周</blockquote>
 前面没注意到这匹，一看老爸不得了
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3868#       发表于 2018-6-3 15:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39861855&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-3 15:02</a>
@@ -18985,32 +12738,19 @@ gbf的特别周</blockquote>
 我去,還真是,原來是范高爾
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3869#       发表于 2018-6-3 15:19
 
 
-
-
 跑完了？看预告时间不是3点40吗。
-
-
-
-
-
 
 
 -----
 
 ####  ramiel  
 ##### 3870#       发表于 2018-6-3 15:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39860485&amp;ptid=1590696" target="_blank">musicat 发表于 2018-6-3 12:16</a>
@@ -19022,16 +12762,10 @@ gbf的特别周</blockquote>
 我看有说小栗帽虽然父亲不咋的，但是祖父也是怪物级，其实血统也很屌？
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3871#       发表于 2018-6-3 15:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39861978&amp;ptid=1590696" target="_blank">musicat 发表于 2018-6-3 15:19</a>
@@ -19040,16 +12774,10 @@ gbf的特别周</blockquote>
 日本時間3點40...
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 3872#       发表于 2018-6-3 15:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39861978&amp;ptid=1590696" target="_blank">musicat 发表于 2018-6-3 15:19</a>
@@ -19058,16 +12786,10 @@ gbf的特别周</blockquote>
 你大概看成日本时间了，一般重赏都是北京时间两点四十左右开始的
 
 
-
-
-
-
-
 -----
 
 ####  hsyg  
 ##### 3873#       发表于 2018-6-3 15:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39861985&amp;ptid=1590696" target="_blank">ramiel 发表于 2018-6-3 15:21</a>
@@ -19078,16 +12800,10 @@ gbf的特别周</blockquote>
 上面那个一里马王里面就有春丽的爸爸，然而……不知道春丽有啥子嗣？
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 3874#       发表于 2018-6-3 15:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39862010&amp;ptid=1590696" target="_blank">hsyg 发表于 2018-6-3 15:26</a>
@@ -19098,16 +12814,10 @@ gbf的特别周</blockquote>
 小栗帽有后代么...
 
 
-
-
-
-
-
 -----
 
 ####  hsyg  
 ##### 3875#       发表于 2018-6-3 15:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39862089&amp;ptid=1590696" target="_blank">ramiel 发表于 2018-6-3 15:39</a>
@@ -19116,25 +12826,13 @@ gbf的特别周</blockquote>
 肯定有呀，但是成绩都不行，所以一般没介绍。有没有能凑合做个地方马的就不知道了。
 
 
-
-
-
-
-
 -----
 
 ####  猿飞日斩3  
 ##### 3876#       发表于 2018-6-3 15:57
 
 
-
-
 话说判断一个马的血统好不好是不是看它有没个好爹或者好妈，至于爷爷那辈多厉害毫无关系？
-
-
-
-
-
 
 
 -----
@@ -19143,16 +12841,10 @@ gbf的特别周</blockquote>
 ##### 3877#       发表于 2018-6-3 16:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39862089&amp;ptid=1590696" target="_blank">ramiel 发表于 2018-6-3 01:39</a>
 
 小栗帽有后代么...</blockquote>
 有个地方赛马的强者オグリエンゼル，47战27胜10亚，但并没能进军中央所以不怎么有名
-
-
-
-
-
 
 
 -----
@@ -19161,16 +12853,10 @@ gbf的特别周</blockquote>
 ##### 3878#       发表于 2018-6-3 16:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39862199&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-6-3 15:57</a>
 
 话说判断一个马的血统好不好是不是看它有没个好爹或者好妈，至于爷爷那辈多厉害毫无关系？ ...</blockquote>
 当然有关系，一般血统表都列到5代以内
-
-
-
-
-
 
 
 -----
@@ -19179,16 +12865,10 @@ gbf的特别周</blockquote>
 ##### 3879#       发表于 2018-6-3 16:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39862238&amp;ptid=1590696" target="_blank">xzhei 发表于 2018-6-3 16:03</a>
 
 当然有关系，一般血统表都列到5代以内</blockquote>
 所以小栗帽更像少年jump男主？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19197,16 +12877,9 @@ gbf的特别周</blockquote>
 ##### 3880#       发表于 2018-6-3 17:34
 
 
-
-
 话说养退役的赛马很花钱吗？
 
 前两天去附近的一个野生公园，有牧场养了不少的马，感觉马比很多动物好养啊，圈块地筑篱笆就乖乖啃草
-
-
-
-
-
 
 
 -----
@@ -19215,23 +12888,16 @@ gbf的特别周</blockquote>
 ##### 3881#       发表于 2018-6-3 17:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39862365&amp;ptid=1590696" target="_blank">ramiel 发表于 2018-6-3 16:20</a>
 
 所以小栗帽更像少年jump男主？</blockquote>
 jump男主不是一般老爸就蛮厉害么…
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3882#       发表于 2018-6-3 18:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39862979&amp;ptid=1590696" target="_blank">坂木静香 发表于 2018-6-3 17:34</a>
@@ -19254,27 +12920,15 @@ jump男主不是一般老爸就蛮厉害么…
 马本身早就把自己的养老金赚够了。马主心血来潮的话，还能过来看看为自己带来财富的老朋友。
 
 
-
-
-
-
-
 -----
 
 ####  loli炮  
 ##### 3883#       发表于 2018-6-3 18:34
 
 
-
-
 日本人的一些习性让人费解 爱马跟吃马似乎毫不违和 我们看的只是一些养退役的马很少成本甚至转其它工作也能盈利的情况下 马主宁可杀马也不养 因为那些马主大多把赛马当成投资工具 赚不了钱连一点微末投入都不给 甚至有杀马泄愤的意味在里边。动画只是动画 太深究这些东西也没啥意思 赛马运动本身就是建立在不人道跟赌博上 善终的还有几匹。
 
 ps真正对马有感情的可能也就是朝夕相处的饲养员了 可是这些人对马没有所有权也就爱莫能助了
-
-
-
-
-
 
 
 -----
@@ -19283,16 +12937,10 @@ ps真正对马有感情的可能也就是朝夕相处的饲养员了 可是这�
 ##### 3884#       发表于 2018-6-3 18:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39862199&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-6-3 15:57</a>
 
 话说判断一个马的血统好不好是不是看它有没个好爹或者好妈，至于爷爷那辈多厉害毫无关系？ ...</blockquote>
 爹和外公是一个级别的，妈可能还没那么重要。。。
-
-
-
-
-
 
 
 -----
@@ -19301,22 +12949,13 @@ ps真正对马有感情的可能也就是朝夕相处的饲养员了 可是这�
 ##### 3885#       发表于 2018-6-3 19:01
 
 
-
-
 外公血统很重要，所谓母父，似乎是比父亲还重要
-
-
-
-
-
 
 
 -----
 
 ####  ramiel  
 ##### 3886#       发表于 2018-6-3 19:09
-
-
 
 
 说起来好像没看到楼里发这个
@@ -19331,23 +12970,13 @@ ps真正对马有感情的可能也就是朝夕相处的饲养员了 可是这�
 2018-6-3 19:08 上传
 
 
-
-
-
-
 二次元（里面的三次元）与三次元草上飞的合影<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xzhei  
 ##### 3887#       发表于 2018-6-3 19:09
-
 
 
  本帖最后由 xzhei 于 2018-6-3 19:10 编辑 
@@ -19357,16 +12986,10 @@ ps真正对马有感情的可能也就是朝夕相处的饲养员了 可是这�
 因为好像研究表明马的遗传受母系影响比父系大
 
 
-
-
-
-
-
 -----
 
 ####  klushyo  
 ##### 3888#       发表于 2018-6-3 19:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39863475&amp;ptid=1590696" target="_blank">loli炮 发表于 2018-6-3 18:34</a>
@@ -19375,16 +12998,10 @@ ps真正对马有感情的可能也就是朝夕相处的饲养员了 可是这�
 说到喜欢马和吃马，想到pa自己的有顶天家族……
 
 
-
-
-
-
-
 -----
 
 ####  loli炮  
 ##### 3889#       发表于 2018-6-3 20:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39864108&amp;ptid=1590696" target="_blank">klushyo 发表于 2018-6-3 19:49</a>
@@ -19393,16 +13010,10 @@ ps真正对马有感情的可能也就是朝夕相处的饲养员了 可是这�
 确实跟有顶天那个奇葩脑回路有的一比  全世界都没有食用马肉的传统 日本是屈指可数的那几个特例之一
 
 
-
-
-
-
-
 -----
 
 ####  猿飞日斩3  
 ##### 3890#       发表于 2018-6-3 22:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39863591&amp;ptid=1590696" target="_blank">センコウ 发表于 2018-6-3 18:50</a>
@@ -19411,16 +13022,10 @@ ps真正对马有感情的可能也就是朝夕相处的饲养员了 可是这�
 好吧，我再去打WP8熟悉熟悉
 
 
-
-
-
-
-
 -----
 
 ####  wuxiaojing  
 ##### 3891#       发表于 2018-6-3 22:47
-
 
 
  本帖最后由 wuxiaojing 于 2018-6-3 23:08 编辑 
@@ -19430,16 +13035,10 @@ ps真正对马有感情的可能也就是朝夕相处的饲养员了 可是这�
 赛马这个东西，越往上越是一堆大种马，硬要扒起关系树没几个现在的顶级好马没有牛逼的XXX亲属的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3892#       发表于 2018-6-3 23:01
-
 
 
  本帖最后由 musicat 于 2018-6-3 23:03 编辑 
@@ -19463,25 +13062,13 @@ ps真正对马有感情的可能也就是朝夕相处的饲养员了 可是这�
 看来这集只是铺垫日本杯？
 
 
-
-
-
-
-
 -----
 
 ####  猿飞日斩3  
 ##### 3893#       发表于 2018-6-3 23:02
 
 
-
-
 BOSS出现了啊，不懂这集有没日本杯
-
-
-
-
-
 
 
 -----
@@ -19490,14 +13077,7 @@ BOSS出现了啊，不懂这集有没日本杯
 ##### 3894#       发表于 2018-6-3 23:04
 
 
-
-
 黄金船居然殴打外公
-
-
-
-
-
 
 
 -----
@@ -19506,21 +13086,13 @@ BOSS出现了啊，不懂这集有没日本杯
 ##### 3895#       发表于 2018-6-3 23:07
 
 
-
-
 这样看下来boss居然是望族啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xzhei  
 ##### 3896#       发表于 2018-6-3 23:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39865773&amp;ptid=1590696" target="_blank">musicat 发表于 2018-6-3 23:01</a>
@@ -19531,25 +13103,13 @@ BOSS出现了啊，不懂这集有没日本杯
 有类似的，大种马sadler's wells的全弟Fairy King比赛一次后骨折就直接做种马了，种马成绩也很好。日本也有类似的情况，大震撼全弟只出赛3场赢过1次也有种马当，大种马的全兄弟多少是有市场的，半兄弟就不一定
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3897#       发表于 2018-6-3 23:10
 
 
-
-
 特别渣你也会用这么媚的眼神看马了哦……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19558,14 +13118,7 @@ BOSS出现了啊，不懂这集有没日本杯
 ##### 3898#       发表于 2018-6-3 23:12
 
 
-
-
 必敗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19574,14 +13127,7 @@ BOSS出现了啊，不懂这集有没日本杯
 ##### 3899#       发表于 2018-6-3 23:14
 
 
-
-
 这新马又是原创的大众马？本来让大震撼来就好了吧，可惜没版权
-
-
-
-
-
 
 
 -----
@@ -19590,14 +13136,7 @@ BOSS出现了啊，不懂这集有没日本杯
 ##### 3900#       发表于 2018-6-3 23:19
 
 
-
-
 新马的声优是钉宫吗总听着不像啊
-
-
-
-
-
 
 
 -----
@@ -19606,16 +13145,10 @@ BOSS出现了啊，不懂这集有没日本杯
 ##### 3901#       发表于 2018-6-3 23:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39863475&amp;ptid=1590696" target="_blank">loli炮 发表于 2018-6-3 18:34</a>
 
 日本人的一些习性让人费解 爱马跟吃马似乎毫不违和 我们看的只是一些养退役的马很少成本甚至转其它工作也能 ...</blockquote>
 这点貌似不如美国人道些
-
-
-
-
-
 
 
 -----
@@ -19624,21 +13157,13 @@ BOSS出现了啊，不懂这集有没日本杯
 ##### 3902#       发表于 2018-6-3 23:22
 
 
-
-
 喷了，大洋马你还有专属王座的？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  musicat  
 ##### 3903#       发表于 2018-6-3 23:24
-
 
 
  本帖最后由 musicat 于 2018-6-3 23:27 编辑 
@@ -19649,25 +13174,13 @@ BOSS出现了啊，不懂这集有没日本杯
 日本杯直接ed前开跑啊，看来原居民不会有名有姓地出场了，旗袍包子头马娘啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  natmk  
 ##### 3904#       发表于 2018-6-3 23:25
 
 
-
-
 日本杯！
-
-
-
-
-
 
 
 -----
@@ -19676,14 +13189,7 @@ BOSS出现了啊，不懂这集有没日本杯
 ##### 3905#       发表于 2018-6-3 23:25
 
 
-
-
 这集结尾准备开日本杯。。这么算下，有马很玄啊...可怜的那我呢女士
-
-
-
-
-
 
 
 -----
@@ -19692,14 +13198,7 @@ BOSS出现了啊，不懂这集有没日本杯
 ##### 3906#       发表于 2018-6-3 23:25
 
 
-
-
 看到原居民了，最后几秒的橘色衣服。
-
-
-
-
-
 
 
 -----
@@ -19708,16 +13207,9 @@ BOSS出现了啊，不懂这集有没日本杯
 ##### 3907#       发表于 2018-6-3 23:26
 
 
-
-
 看完
 
 还真的是动画版的《奔腾年代》啊
-
-
-
-
-
 
 
 -----
@@ -19726,14 +13218,7 @@ BOSS出现了啊，不懂这集有没日本杯
 ##### 3908#       发表于 2018-6-3 23:26
 
 
-
-
 下一话直接开始日本杯，怎么搞的跟大结局似的。。。
-
-
-
-
-
 
 
 -----
@@ -19742,20 +13227,13 @@ BOSS出现了啊，不懂这集有没日本杯
 ##### 3909#       发表于 2018-6-3 23:27
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">日本总大将
-
-
-
-
-
 
 
 -----
 
 ####  猿飞日斩3  
 ##### 3910#       发表于 2018-6-3 23:27
-
 
 
  本帖最后由 猿飞日斩3 于 2018-6-3 23:30 编辑 
@@ -19767,24 +13245,13 @@ BOSS出现了啊，不懂这集有没日本杯
 要不是没有伸出小拇指，玲鹿和教练挺CP的<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">马娘2个条目都上推特热搜了，本话的确挺不错的
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 3911#       发表于 2018-6-3 23:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">13话把铃鹿塞进有马，让小草一次性吊打两个吧
-
-
-
-
-
 
 
 -----
@@ -19793,14 +13260,7 @@ BOSS出现了啊，不懂这集有没日本杯
 ##### 3912#       发表于 2018-6-3 23:30
 
 
-
-
 最后跟训练员说话那段的铃鹿太棒了！！！<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">话说这个钉宫马娘应该不会进游戏？之后应该单纯算动画里出现的？有原型吗？
-
-
-
-
-
 
 
 -----
@@ -19809,16 +13269,10 @@ BOSS出现了啊，不懂这集有没日本杯
 ##### 3913#       发表于 2018-6-3 23:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39866046&amp;ptid=1590696" target="_blank">侃侃而谈喵泽西 发表于 2018-6-3 23:25</a>
 
 这集结尾准备开日本杯。。这么算下，有马很玄啊...可怜的那我呢女士</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">讲道理的话这个世界有WDT这种玩意而且时间点是新年，这有马的地位已经跌到不知道哪里去了
-
-
-
-
-
 
 
 -----
@@ -19827,14 +13281,7 @@ BOSS出现了啊，不懂这集有没日本杯
 ##### 3914#       发表于 2018-6-3 23:32
 
 
-
-
 传送念力的那个笑死麦昆也被带坏了
-
-
-
-
-
 
 
 -----
@@ -19843,14 +13290,7 @@ BOSS出现了啊，不懂这集有没日本杯
 ##### 3915#       发表于 2018-6-3 23:33
 
 
-
-
 没戏份你们也要提前把某草女士拿出来鞭啊，缺德<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19859,14 +13299,7 @@ BOSS出现了啊，不懂这集有没日本杯
 ##### 3916#       发表于 2018-6-3 23:35
 
 
-
-
 重头戏果然是日本杯最后一话....这个结尾真是套路的不行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19875,15 +13308,9 @@ BOSS出现了啊，不懂这集有没日本杯
 ##### 3917#       发表于 2018-6-3 23:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这话小草说了“又能在一起跑了呢”，一股子想正面干倒铃鹿复仇的味道
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">铃鹿这话怒撩气槽，真是。。
-
-
-
-
-
 
 
 -----
@@ -19892,14 +13319,7 @@ BOSS出现了啊，不懂这集有没日本杯
 ##### 3918#       发表于 2018-6-3 23:36
 
 
-
-
 原居民在结尾的几秒有亮相，非常明显的橘色衣服，黑长发。
-
-
-
-
-
 
 
 -----
@@ -19908,21 +13328,13 @@ BOSS出现了啊，不懂这集有没日本杯
 ##### 3919#       发表于 2018-6-3 23:38
 
 
-
-
 樓上幾位,這片13話啊
-
-
-
-
-
 
 
 -----
 
 ####  ramiel  
 ##### 3920#       发表于 2018-6-3 23:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39866087&amp;ptid=1590696" target="_blank">暗黑能乐 发表于 2018-6-3 23:30</a>
@@ -19933,32 +13345,19 @@ BOSS出现了啊，不懂这集有没日本杯
 非要让那我呢女士赢了比赛输了人生么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hsyg  
 ##### 3921#       发表于 2018-6-3 23:40
 
 
-
-
 主要还是这么断下来，下集开场几分钟就跑完了吧，那日本杯和略过没区别呀，有点微妙……
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 3922#       发表于 2018-6-3 23:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39866141&amp;ptid=1590696" target="_blank">暗黑能乐 发表于 2018-6-3 23:36</a>
@@ -19970,32 +13369,19 @@ BOSS出现了啊，不懂这集有没日本杯
 小草就算干翻特鹿两马……好像还是得不到幸福啊，为什么会这样子呢？<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  natmk  
 ##### 3923#       发表于 2018-6-3 23:41
 
 
-
-
 重点描写有马纪念不也挺好吗
-
-
-
-
-
 
 
 -----
 
 ####  ramiel  
 ##### 3924#       发表于 2018-6-3 23:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39866180&amp;ptid=1590696" target="_blank">hsyg 发表于 2018-6-3 23:40</a>
@@ -20006,16 +13392,10 @@ BOSS出现了啊，不懂这集有没日本杯
 下话开始也可以先铺垫一下，就跟第二话出道战一样
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3925#       发表于 2018-6-3 23:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39866180&amp;ptid=1590696" target="_blank">hsyg 发表于 2018-6-3 23:40</a>
@@ -20026,16 +13406,10 @@ BOSS出现了啊，不懂这集有没日本杯
 再想下,第一集最後不也是準備起跑
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 3926#       发表于 2018-6-3 23:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39866180&amp;ptid=1590696" target="_blank">hsyg 发表于 2018-6-3 23:40</a>
@@ -20044,25 +13418,13 @@ BOSS出现了啊，不懂这集有没日本杯
 下一话，倒叙回来日本杯的详细情况。
 
 
-
-
-
-
-
 -----
 
 ####  hsyg  
 ##### 3927#       发表于 2018-6-3 23:47
 
 
-
-
 也对，就是感觉望族的镜头有了，小特这集也插了几个镜头。那下集给原居民加戏不？毕竟第2呢。这集也给钉宫不少戏。看看有没有机会。
-
-
-
-
-
 
 
 -----
@@ -20071,23 +13433,15 @@ BOSS出现了啊，不懂这集有没日本杯
 ##### 3928#       发表于 2018-6-3 23:47
 
 
-
-
 玲鹿胜利后到特别周比赛不是还有一个晚上么？
 
 一个晚上能发生很多事情的，还怕没有的讲么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  ramiel  
 ##### 3929#       发表于 2018-6-3 23:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39866244&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-6-3 23:47</a>
@@ -20100,17 +13454,10 @@ BOSS出现了啊，不懂这集有没日本杯
 总不能是铃鹿用寝技鼓励小特（<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  wfhtony  
 ##### 3930#       发表于 2018-6-3 23:52
-
-
 
 
 赌徒的末路。
@@ -20122,32 +13469,19 @@ BOSS出现了啊，不懂这集有没日本杯
 via Twitter（↑[4/23](https://twitter.com/daiwa510/status/988076054261653504)、↓[6/4](https://twitter.com/satsukimikogami/status/1003295877031530503)）
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 3931#       发表于 2018-6-3 23:53
 
 
-
-
 下一话先回到铃鹿胜利的当天晚上，大家庆祝之余轮流去给特别周加油鼓劲。小草在其他人散去之后，和小特单独见面，对她鼓励道：不许在和我再战之前输给其他人。激起了特别周斗志，十二话练出红色斗气，并引出第十三话有马再战草上飞(做梦
-
-
-
-
-
 
 
 -----
 
 ####  猿飞日斩3  
 ##### 3932#       发表于 2018-6-3 23:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39866286&amp;ptid=1590696" target="_blank">ramiel 发表于 2018-6-3 23:51</a>
@@ -20158,32 +13492,19 @@ via Twitter（↑[4/23](https://twitter.com/daiwa510/status/988076054261653504)�
 我是觉得有可能一起躺草地看星空什么的，也有可能直接去最初和玲鹿相遇的地方，话说玲鹿第一集比赛的地方是不是东京竞马场，是的话日本杯正好也在那边举办，赛前一起回忆往事多好呀，相比之前特别周像是有了玲鹿依存症一样，这两集其实特意疏远了两个人的关系，估计下集要触底反弹<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kanpachi  
 ##### 3933#       发表于 2018-6-4 00:00
 
 
-
-
 望族日本杯才第四，这要怎么编…
-
-
-
-
-
 
 
 -----
 
 ####  D-JoeII  
 ##### 3934#       发表于 2018-6-4 00:02
-
 
 
  本帖最后由 D-JoeII 于 2018-6-4 00:03 编辑 
@@ -20198,25 +13519,13 @@ via Twitter（↑[4/23](https://twitter.com/daiwa510/status/988076054261653504)�
 <img src="https://i.imgur.com/9V43cRe.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  pwlong  
 ##### 3935#       发表于 2018-6-4 00:10
 
 
-
-
 1号虎山行、7号原居民、12号高楼大厦、13号小特、14号望族、顺带6号淘气铃鹿
-
-
-
-
-
 
 
 -----
@@ -20225,21 +13534,13 @@ via Twitter（↑[4/23](https://twitter.com/daiwa510/status/988076054261653504)�
 ##### 3936#       发表于 2018-6-4 00:10
 
 
-
-
 看字幕才发铃鹿扭伤之后过了一年之后才复出要是出第二季这不是跟帝王的剧情重叠了吗
-
-
-
-
-
 
 
 -----
 
 ####  猿飞日斩3  
 ##### 3937#       发表于 2018-6-4 00:13
-
 
 
  本帖最后由 猿飞日斩3 于 2018-6-4 00:15 编辑 
@@ -20257,17 +13558,10 @@ via Twitter（↑[4/23](https://twitter.com/daiwa510/status/988076054261653504)�
 特别动画里多次用有限的篇幅表现帝王很喜欢跳舞，好像看NICO的帝王介绍视频来说，帝王会骨折也就是来源于这种类似舞姿的步伐，那时候要在跑步和跳舞里作出选择，估计会更艰难
 
 
-
-
-
-
-
 -----
 
 ####  mjlic  
 ##### 3938#       发表于 2018-6-4 00:18
-
-
 
 
 虎山行第9话也出过场啊，独特的猫耳（？）有点可爱，希望能给个cv<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
@@ -20282,9 +13576,6 @@ via Twitter（↑[4/23](https://twitter.com/daiwa510/status/988076054261653504)�
 2018-6-4 00:17 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/04/001805p9rnt98aiz20ddd0.png" referrerpolicy="no-referrer">
 
 
@@ -20295,31 +13586,13 @@ via Twitter（↑[4/23](https://twitter.com/daiwa510/status/988076054261653504)�
 2018-6-4 00:18 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Renes  
 ##### 3939#       发表于 2018-6-4 00:29
 
 
-
-
 啊 这集太感动了 太感动了
-
-
-
-
-
 
 
 -----
@@ -20328,13 +13601,7 @@ via Twitter（↑[4/23](https://twitter.com/daiwa510/status/988076054261653504)�
 ##### 3940#       发表于 2018-6-4 00:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">我靠。。。这集做的真好。。。感动哭了~~~铃鹿也变追马了
-
-
-
-
-
 
 
 -----
@@ -20343,14 +13610,7 @@ via Twitter（↑[4/23](https://twitter.com/daiwa510/status/988076054261653504)�
 ##### 3941#       发表于 2018-6-4 00:33
 
 
-
-
 钉宫理惠好可爱
-
-
-
-
-
 
 
 -----
@@ -20359,14 +13619,7 @@ via Twitter（↑[4/23](https://twitter.com/daiwa510/status/988076054261653504)�
 ##### 3942#       发表于 2018-6-4 00:33
 
 
-
-
 于是防晒帽是谁啊，满可爱的，难道就只是一匹路人的马甲
-
-
-
-
-
 
 
 -----
@@ -20375,16 +13628,10 @@ via Twitter（↑[4/23](https://twitter.com/daiwa510/status/988076054261653504)�
 ##### 3943#       发表于 2018-6-4 00:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39866617&amp;ptid=1590696" target="_blank">snakezsd 发表于 2018-6-4 00:31</a>
 
 我靠。。。这集做的真好。。。感动哭了~~~铃鹿也变追马了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">应该是做回追马吧（
-
-
-
-
-
 
 
 -----
@@ -20393,14 +13640,7 @@ via Twitter（↑[4/23](https://twitter.com/daiwa510/status/988076054261653504)�
 ##### 3944#       发表于 2018-6-4 00:37
 
 
-
-
 下集日本杯，那13集就应该是WDT了，草女士的有马纪念是彻底没戏了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20409,16 +13649,10 @@ via Twitter（↑[4/23](https://twitter.com/daiwa510/status/988076054261653504)�
 ##### 3945#       发表于 2018-6-4 00:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39866663&amp;ptid=1590696" target="_blank">xer1xxx 发表于 2018-6-4 00:37</a>
 
 下集日本杯，那13集就应该是WDT了，草女士的有马纪念是彻底没戏了吧</blockquote>
 13集有马高潮完结，那位女士的绝地反攻。WDT当作BD未放送话就好了
-
-
-
-
-
 
 
 -----
@@ -20427,14 +13661,7 @@ via Twitter（↑[4/23](https://twitter.com/daiwa510/status/988076054261653504)�
 ##### 3946#       发表于 2018-6-4 00:40
 
 
-
-
 还有2集，下一集日本杯，最后一集肯定是有全明星了，就不知道和草上飞激战的有马会怎么安排。
-
-
-
-
-
 
 
 -----
@@ -20443,16 +13670,10 @@ via Twitter（↑[4/23](https://twitter.com/daiwa510/status/988076054261653504)�
 ##### 3947#       发表于 2018-6-4 00:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39866663&amp;ptid=1590696" target="_blank">xer1xxx 发表于 2018-6-4 00:37</a>
 
 下集日本杯，那13集就应该是WDT了，草女士的有马纪念是彻底没戏了吧</blockquote>
 彻底届不到了
-
-
-
-
-
 
 
 -----
@@ -20461,14 +13682,7 @@ via Twitter（↑[4/23](https://twitter.com/daiwa510/status/988076054261653504)�
 ##### 3948#       发表于 2018-6-4 00:49
 
 
-
-
 小特还算好了时间，跑到赛场附近听广播解说的赛果，虽然动画视角没有做到，不过小特应该也是跟铃鹿差不多时间起速全力跑到赛场附近的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20477,15 +13691,8 @@ via Twitter（↑[4/23](https://twitter.com/daiwa510/status/988076054261653504)�
 ##### 3949#       发表于 2018-6-4 00:56
 
 
-
-
 啊,原來這話播的時間剛好也是米浴的死忌...
 [http://db.netkeiba.com/horse/1989107699/](http://db.netkeiba.com/horse/1989107699/)
-
-
-
-
-
 
 
 -----
@@ -20494,16 +13701,10 @@ via Twitter（↑[4/23](https://twitter.com/daiwa510/status/988076054261653504)�
 ##### 3950#       发表于 2018-6-4 00:56
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer"> 虽然一路看下来并没有特别激动 但还是要说 好！
 
 
 日本杯日本杯！WDTWDT！
-
-
-
-
-
 
 
 -----
@@ -20512,14 +13713,7 @@ via Twitter（↑[4/23](https://twitter.com/daiwa510/status/988076054261653504)�
 ##### 3951#       发表于 2018-6-4 00:57
 
 
-
-
 这集对百合厨不友好啊，铃鹿和训练员的互动太那啥了，以正常眼光来看几年后妥妥要从训练员变配种员
-
-
-
-
-
 
 
 -----
@@ -20528,14 +13722,7 @@ via Twitter（↑[4/23](https://twitter.com/daiwa510/status/988076054261653504)�
 ##### 3952#       发表于 2018-6-4 01:07
 
 
-
-
 这集真好看，铃鹿<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20544,15 +13731,9 @@ via Twitter（↑[4/23](https://twitter.com/daiwa510/status/988076054261653504)�
 ##### 3953#       发表于 2018-6-4 01:08
 
 
-
 <blockquote>Goisdust 发表于 2018-6-4 00:57
 这集对百合厨不友好啊，铃鹿和训练员的互动太那啥了，以正常眼光来看几年后妥妥要从训练员变配种员 ...</blockquote>
 想多了吧，别强行扯，铃鹿最后小指还想着特别周怎么就和训练员互动咋了。
-
-
-
-
-
 
 
 -----
@@ -20561,16 +13742,10 @@ via Twitter（↑[4/23](https://twitter.com/daiwa510/status/988076054261653504)�
 ##### 3954#       发表于 2018-6-4 01:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39865934&amp;ptid=1590696" target="_blank">金色先锋 发表于 2018-6-3 23:14</a>
 
 这新马又是原创的大众马？本来让大震撼来就好了吧，可惜没版权</blockquote>
 就算有版权，公开级别的比赛也不能把大震撼塞进去，大震撼哪怕现在16岁了，回去跑个公开级说不定还能赢。。。话说虽然saxon warrior输掉了6月2号的英国德比，但6月3号法国德比冠军study of man也是大震撼的仔，周日宁静血脉走向世界的旅程又近了一步
-
-
-
-
-
 
 
 -----
@@ -20579,19 +13754,11 @@ via Twitter（↑[4/23](https://twitter.com/daiwa510/status/988076054261653504)�
 ##### 3955#       发表于 2018-6-4 01:33
 
 
-
-
 这群扭曲怪233
-
-
-
-
 
 
 img-59a3b82f5676357038c9af4c2b1ac332.jpg
 (75.89 KB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -20600,31 +13767,13 @@ img-59a3b82f5676357038c9af4c2b1ac332.jpg
 2018-6-4 01:33 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/04/013357xl8kkd06d80n870k.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  lyzcs  
 ##### 3956#       发表于 2018-6-4 01:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39866787&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-6-4 00:56</a>
@@ -20635,16 +13784,10 @@ http://db.netkeiba.com/horse/1989107699/</blockquote>
 二十年前的赛程跟现在差别好大，现在宝塚纪念都是六月底
 
 
-
-
-
-
-
 -----
 
 ####  郁夫  
 ##### 3957#       发表于 2018-6-4 01:48
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以說好的愛抖露回呢 
@@ -20652,16 +13795,10 @@ http://db.netkeiba.com/horse/1989107699/</blockquote>
 "你們給我玩遊戲去!"?
 
 
-
-
-
-
-
 -----
 
 ####  lesangel  
 ##### 3958#       发表于 2018-6-4 01:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39864512&amp;ptid=1590696" target="_blank">loli炮 发表于 2018-6-3 20:32</a>
@@ -20672,26 +13809,15 @@ http://db.netkeiba.com/horse/1989107699/</blockquote>
 [http://style.sina.com.cn/tas/industry/2013-02-22/0723116642.shtml](http://style.sina.com.cn/tas/industry/2013-02-22/0723116642.shtml)
 
 
-
-
-
-
-
 -----
 
 ####  lesangel  
 ##### 3959#       发表于 2018-6-4 01:56
 
 
-
  本帖最后由 lesangel 于 2018-6-4 01:59 编辑 
 
 欧美彻底不吃马肉的是英语圈国家
-
-
-
-
-
 
 
 -----
@@ -20700,21 +13826,13 @@ http://db.netkeiba.com/horse/1989107699/</blockquote>
 ##### 3960#       发表于 2018-6-4 02:56
 
 
-
-
 制作组对望族马甲相当上心，可望族要按史实来说就是第四，这剧情不太好圆吧
-
-
-
-
-
 
 
 -----
 
 ####  Laie  
 ##### 3961#       发表于 2018-6-4 04:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39867095&amp;ptid=1590696" target="_blank">lesangel 发表于 2018-6-4 01:53</a>
@@ -20732,17 +13850,10 @@ http://db.netkeiba.com/horse/1989107699/</blockquote>
 顺便这报导有不少宰马场的照片，重口慎入……
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 3962#       发表于 2018-6-4 08:10
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/04/080929eoumzaolp2zsp452.png" referrerpolicy="no-referrer">
@@ -20755,20 +13866,10 @@ http://db.netkeiba.com/horse/1989107699/</blockquote>
 2018-6-4 08:09 上传
 
 
-
-
-
-
-
 神鹰这个真实丈育
 
 
 还有弹幕里面各种刷“我已经在研究日本杯（msi）的对手了”闹哪样?
-
-
-
-
-
 
 
 -----
@@ -20777,13 +13878,7 @@ http://db.netkeiba.com/horse/1989107699/</blockquote>
 ##### 3963#       发表于 2018-6-4 08:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> WDT讲一集明显不可能吧，去了也是小特被吊打，那还不如让那我呢女士上呢，有马稳的
-
-
-
-
-
 
 
 -----
@@ -20792,21 +13887,13 @@ http://db.netkeiba.com/horse/1989107699/</blockquote>
 ##### 3964#       发表于 2018-6-4 09:11
 
 
-
-
 其实看完这集我觉得铃鹿和训练员蛮搭的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">小特你跑完后就拜拜咯
-
-
-
-
-
 
 
 -----
 
 ####  彩虹之羽  
 ##### 3965#       发表于 2018-6-4 09:49
-
 
 
 <blockquote>物流大亨常凯申 发表于 2018-6-4 08:10
@@ -20818,16 +13905,10 @@ http://db.netkeiba.com/horse/1989107699/</blockquote>
 b站新来的电竞区观众喜欢玩4396的梗 
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 3966#       发表于 2018-6-4 09:53
-
 
 
  本帖最后由 暗黑能乐 于 2018-6-4 09:57 编辑 
@@ -20842,13 +13923,7 @@ b站新来的电竞区观众喜欢玩4396的梗
 小特跑不过小草那里感觉可以刷个什么，训练员：“她为什么不放大招？”，“这个人思想出问题了。”“你刚才为什么不放大，最后一个弯道也不放，直线冲刺的时候也不放。”
 
 
-
 特别周狂摸鼻子然后摊手死人脸状，口中直念叨些什么对面小草一直抢我跑道之类的话。
-
-
-
-
-
 
 
 -----
@@ -20857,17 +13932,10 @@ b站新来的电竞区观众喜欢玩4396的梗
 ##### 3967#       发表于 2018-6-4 10:00
 
 
-
-
 草上飞跟在我后面，她为什么不先加速啊
 
 教练一直叫我追，我怎么追啊，别人一直卡我身位
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20876,23 +13944,15 @@ b站新来的电竞区观众喜欢玩4396的梗
 ##### 3968#       发表于 2018-6-4 10:02
 
 
-
-
 挺細節的,原居民是閹馬所以沒耳飾
 [https://twitter.com/natsuyuki1307/status/1003413047891746816](https://twitter.com/natsuyuki1307/status/1003413047891746816)
 <img src="https://i.imgur.com/XZpqL20.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  暗黑能乐  
 ##### 3969#       发表于 2018-6-4 10:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39868727&amp;ptid=1590696" target="_blank">就是剑鞘 发表于 2018-6-4 10:00</a>
@@ -20905,16 +13965,10 @@ b站新来的电竞区观众喜欢玩4396的梗
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">SPICA永不团灭
 
 
-
-
-
-
-
 -----
 
 ####  a94939291  
 ##### 3970#       发表于 2018-6-4 10:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39868749&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-6-4 10:02</a>
@@ -20927,16 +13981,10 @@ https://twitter.com/natsuyuki1307/status/1003413047891746816
 路人马娘很多都没设计耳饰的，比如这集的防晒帽。总不能都是骟马吧
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 3971#       发表于 2018-6-4 10:24
-
 
 
 <blockquote>a94939291 发表于 2018-6-4 10:19
@@ -20946,26 +13994,14 @@ https://twitter.com/natsuyuki1307/status/1003413047891746816
 當然也有虎山行那種因為貓耳所以裝不上耳飾
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 3972#       发表于 2018-6-4 11:24
 
 
-
-
 不懂有没有发过
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fryzcurvj0j20xc0vu7wh.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20974,21 +14010,13 @@ https://twitter.com/natsuyuki1307/status/1003413047891746816
 ##### 3973#       发表于 2018-6-4 11:27
 
 
-
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fryzgosiauj20zk0qob2a.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 3974#       发表于 2018-6-4 11:49
-
-
 
 
 大概是新马学？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
@@ -21005,31 +14033,15 @@ id=69068752
 2018-6-4 11:49 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  nice女武神  
 ##### 3975#       发表于 2018-6-4 12:27
 
 
-
 <blockquote>xingenge 发表于 2018-6-4 11:27
 </blockquote>
 乌拉拉为啥是粉毛
-
-
-
-
-
 
 
 -----
@@ -21038,16 +14050,10 @@ id=69068752
 ##### 3976#       发表于 2018-6-4 12:43
 
 
-
  本帖最后由 Goisdust 于 2018-6-4 12:44 编辑 
 <blockquote>nice女武神 发表于 2018-6-4 12:27
 乌拉拉为啥是粉毛</blockquote>
 标志的粉色胖次头罩
-
-
-
-
-
 
 
 -----
@@ -21056,16 +14062,10 @@ id=69068752
 ##### 3977#       发表于 2018-6-4 12:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39869745&amp;ptid=1590696" target="_blank">xingenge 发表于 2018-6-4 11:24</a>
 
 不懂有没有发过</blockquote>
 国家队
-
-
-
-
-
 
 
 -----
@@ -21074,23 +14074,16 @@ id=69068752
 ##### 3978#       发表于 2018-6-4 13:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39869745&amp;ptid=1590696" target="_blank">xingenge 发表于 2018-6-4 11:24</a>
 
 不懂有没有发过</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">特别满意吗？
 
 
-
-
-
-
-
 -----
 
 ####  戏谑二次元  
 ##### 3979#       发表于 2018-6-4 13:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39870019&amp;ptid=1590696" target="_blank">amulelernen 发表于 2018-6-4 11:49</a>
@@ -21105,16 +14098,10 @@ id=69068752</blockquote>
 -------------------小草
 
 
-
-
-
-
-
 -----
 
 ####  modedd  
 ##### 3980#       发表于 2018-6-4 14:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39870019&amp;ptid=1590696" target="_blank">amulelernen 发表于 2018-06-04 11:49:13</a>
@@ -21123,16 +14110,10 @@ id=69068752</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 3981#       发表于 2018-6-4 14:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39870019&amp;ptid=1590696" target="_blank">amulelernen 发表于 2018-6-4 11:49</a>
@@ -21147,33 +14128,19 @@ id=69068752</blockquote>
 阿草：小特～ 真是可爱的反应…原来小特会露出这种表情啊。小特真是个坏孩子呢。对于坏孩子，要好好惩罚下才行呢…呵呵呵呵呵<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> （草上飞露出嗜虐的表情）
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 3982#       发表于 2018-6-4 15:04
 
 
-
-
 训练员x铃鹿，草x特我缩滋慈
-
-
-
-
-
 
 
 -----
 
 ####  D-JoeII  
 ##### 3983#       发表于 2018-6-4 15:37
-
-
 
 
 一眾馬娘的中文翻譯,轉自  的17樓
@@ -21211,25 +14178,13 @@ id=69068752</blockquote>
 <img src="https://i.imgur.com/9V43cRe.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  EvgaRay  
 ##### 3984#       发表于 2018-6-4 18:18
 
 
-
-
 硬核考据
-
-
-
-
-
 
 
 -----
@@ -21238,16 +14193,10 @@ id=69068752</blockquote>
 ##### 3985#       发表于 2018-6-4 19:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39862199&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-6-3 15:57</a>
 
 话说判断一个马的血统好不好是不是看它有没个好爹或者好妈，至于爷爷那辈多厉害毫无关系？ ...</blockquote>
 实际上一些冠军马一配就是上千匹后代，纯血马育种本身也是一个很封闭的系统，大部分纯血马往上追几代都是名门。
-
-
-
-
-
 
 
 -----
@@ -21256,21 +14205,13 @@ id=69068752</blockquote>
 ##### 3986#       发表于 2018-6-4 20:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">这就是体育竞技的浪漫之处啊，这两集太好看了
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 3987#       发表于 2018-6-4 20:28
-
-
 
 
 据说是防晒帽原型的马：サンフレア（Sun Flare）
@@ -21284,16 +14225,8 @@ id=69068752</blockquote>
 Sun Flare只是一匹凡马，除了数字外几乎没有事迹流传后世。但也许同样故障的遭遇令她在动画中与铃鹿有一段对手戏（人设真不错，还是钉宫。游戏能不能登场啊）
 
 
-
-
-
-
-
-
 De1jhgVV4AIDjJs.jpg
 (31.27 KB, 下载次数: 3)
-
-
 
 
 下载附件
@@ -21302,31 +14235,13 @@ De1jhgVV4AIDjJs.jpg
 2018-6-4 20:27 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/04/202754rdukuk1pk9jupn1p.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  cyberpenk  
 ##### 3988#       发表于 2018-6-4 20:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39875131&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-4 20:28</a>
@@ -21339,26 +14254,15 @@ De1jhgVV4AIDjJs.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer"> 考据大佬 这帽子一看就应该是。。
 
 
-
-
-
-
-
 -----
 
 ####  猿飞日斩3  
 ##### 3989#       发表于 2018-6-4 20:56
 
 
-
 <blockquote>紫吹兰 发表于 2018-6-4 19:11
 实际上一些冠军马一配就是上千匹后代，纯血马育种本身也是一个很封闭的系统，大部分纯血马往上追几代都是 ...</blockquote>
 我是挺好奇什么叫血统不好的，听说周日宁静就是血统评价很差才被卖了，最近打wp8也买到了周日宁静，非常惨，电脑的成绩太差了，所以很便宜就买了
-
-
-
-
-
 
 
 -----
@@ -21367,23 +14271,15 @@ De1jhgVV4AIDjJs.jpg
 ##### 3990#       发表于 2018-6-4 21:00
 
 
-
-
 很喜欢赛前和教练在过道那段和赛后小特在会场外围跑那段
 
 —— 来自 OnePlus ONEPLUS A5010, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
 
 ####  xzhei  
 ##### 3991#       发表于 2018-6-4 21:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39875131&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-4 20:28</a>
@@ -21396,16 +14292,10 @@ De1jhgVV4AIDjJs.jpg
 可能是サニーブライアン（sunny brian）？也是逃马，还是二冠马，打比后因伤引退
 
 
-
-
-
-
-
 -----
 
 ####  pwlong  
 ##### 3992#       发表于 2018-6-4 21:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39875338&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-6-4 20:56</a>
@@ -21414,16 +14304,10 @@ De1jhgVV4AIDjJs.jpg
 周日宁静小时候两次没卖出去是因为脚外翻+发育不良，种马后是天价（16亿五千万日元）卖去日本的
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 3993#       发表于 2018-6-4 21:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39875338&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-6-4 20:56</a>
@@ -21432,16 +14316,10 @@ De1jhgVV4AIDjJs.jpg
 母父不论是竞赛成绩或者种马成绩都非常差,父作为种马成绩也不怎么好,所以自己本身成绩可以评价也不高
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 3994#       发表于 2018-6-4 21:14
-
 
 
  本帖最后由 センコウ 于 2018-6-4 21:25 编辑 
@@ -21456,25 +14334,13 @@ De1jhgVV4AIDjJs.jpg
 说白了1100万刀在当时是日本这边当了冤大头（另外如果结合时代的时候看，这个时间点刚好是日本泡沫的最巅峰即将炸掉……）……只是后来赌对了
 
 
-
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 3995#       发表于 2018-6-4 21:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">另外就是不得不说的泡沫期那段时间的竞马真的很夸张，记得看说小栗帽这个地方杀出来的马带出来的赛马梦不断有人进来当马主甚至马房都不够了
-
-
-
-
-
 
 
 -----
@@ -21483,23 +14349,16 @@ De1jhgVV4AIDjJs.jpg
 ##### 3996#       发表于 2018-6-4 21:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39875607&amp;ptid=1590696" target="_blank">センコウ 发表于 2018-6-4 21:30</a>
 
 另外就是不得不说的泡沫期那段时间的竞马真的很夸张，记得看说小栗帽这个地方杀出来的马带出来的赛 ...</blockquote>
 所以说，海南事项赶紧的！（说起来蛮后悔当时没跟风追高赛马概念股）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 3997#       发表于 2018-6-4 21:49
-
 
 
  本帖最后由 センコウ 于 2018-6-4 21:52 编辑 
@@ -21515,25 +14374,13 @@ De1jhgVV4AIDjJs.jpg
 （不过相对来说就按中国人这好赌的情况来看真搞成了规模也大……日本赛马一年马卷大概是3万亿日元）
 
 
-
-
-
-
-
 -----
 
 ####  猿飞日斩3  
 ##### 3998#       发表于 2018-6-4 21:57
 
 
-
-
 看纪录片新疆那边有人在搞赛马育种 种马也是引进英国纯血马的，而且直接人工授精，真是简单粗暴
-
-
-
-
-
 
 
 -----
@@ -21542,18 +14389,10 @@ De1jhgVV4AIDjJs.jpg
 ##### 3999#       发表于 2018-6-4 21:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39875842&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-6-4 21:57</a>
 
 看纪录片新疆那边有人在搞赛马育种 种马也是引进英国纯血马的，而且直接人工授精，真是简单粗暴 ...</blockquote>
 人工授精世界赛马会不认的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 -----
@@ -21562,22 +14401,14 @@ De1jhgVV4AIDjJs.jpg
 ##### 4000#       发表于 2018-6-4 22:03
 
 
-
-
 【ウマ娘】JRA･CM　スーパークリーク ウマ娘Ver.
 [http://www.nicovideo.jp/watch/sm33314568](http://www.nicovideo.jp/watch/sm33314568)
 
 超级小海湾，武先生的初恋<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
 564HDF.jpg
 (113.33 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -21586,31 +14417,13 @@ De1jhgVV4AIDjJs.jpg
 2018-6-4 22:03 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/04/220350h4wfetn1egn84c44.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  D-JoeII  
 ##### 4001#       发表于 2018-6-4 22:08
-
 
 
  本帖最后由 D-JoeII 于 2018-6-4 22:10 编辑 
@@ -21620,16 +14433,10 @@ De1jhgVV4AIDjJs.jpg
 <img src="https://i.imgur.com/29taQbR.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猿飞日斩3  
 ##### 4002#       发表于 2018-6-4 22:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39875863&amp;ptid=1590696" target="_blank">センコウ 发表于 2018-6-4 21:59</a>
@@ -21638,16 +14445,10 @@ De1jhgVV4AIDjJs.jpg
 先改良品种吧……是拿伊犁马和纯血马育种的，不玩人工授精，估计也要育个一百多年
 
 
-
-
-
-
-
 -----
 
 ####  hsyg  
 ##### 4003#       发表于 2018-6-4 22:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39876012&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-6-4 22:14</a>
@@ -21656,16 +14457,10 @@ De1jhgVV4AIDjJs.jpg
 拿其他马和纯血赛马混血是可以接受的？
 
 
-
-
-
-
-
 -----
 
 ####  Demi.Albertini  
 ##### 4004#       发表于 2018-6-4 23:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39876394&amp;ptid=1590696" target="_blank">hsyg 发表于 2018-6-4 22:57</a>
@@ -21674,16 +14469,10 @@ De1jhgVV4AIDjJs.jpg
 看是什么比赛……比如马术比赛这种低智的纯血马肯定不能胜任
 
 
-
-
-
-
-
 -----
 
 ####  紫吹兰  
 ##### 4005#       发表于 2018-6-4 23:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39876394&amp;ptid=1590696" target="_blank">hsyg 发表于 2018-06-04 22:57:56</a>
@@ -21693,16 +14482,10 @@ De1jhgVV4AIDjJs.jpg
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  noHentai  
 ##### 4006#       发表于 2018-6-4 23:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39875952&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-6-4 22:08</a>
@@ -21713,16 +14496,10 @@ https://www.youtube.com/watch?v=mzUe3yeUuAg</blockquote>
 我的妈呀，这广告真的假的？
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 4007#       发表于 2018-6-4 23:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39875338&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-6-4 06:56</a>
@@ -21741,26 +14518,15 @@ https://www.youtube.com/watch?v=mzUe3yeUuAg</blockquote>
 而SS的外公Understanding就更惨了，几乎没有数据的，只知道他生涯87战7胜——光看这87战就知道他是美国的乡下马
 
 
-
-
-
-
-
 -----
 
 ####  猿飞日斩3  
 ##### 4008#       发表于 2018-6-4 23:49
 
 
-
 <blockquote>DOACAON 发表于 2018-6-4 23:45
 美国人评价种马时比较看重AEI（average earnings index），大致算法是产驹平均获得奖金数/同时期赛马平均 ...</blockquote>
 原来如此，受教了，周日宁静能取得的赛马成绩也和小栗帽一样是奇迹了，吉田家买周日宁静当种马也是豪赌啊，合该他家因为一匹马发大财垄断日本赛马界配种
-
-
-
-
-
 
 
 -----
@@ -21769,14 +14535,7 @@ https://www.youtube.com/watch?v=mzUe3yeUuAg</blockquote>
 ##### 4009#       发表于 2018-6-4 23:55
 
 
-
-
 SS主要是母系血统太差了吧，Halo不管怎么样还当过leading sire，不过SS留在美国当种马说不定也是flop
-
-
-
-
-
 
 
 -----
@@ -21785,15 +14544,9 @@ SS主要是母系血统太差了吧，Halo不管怎么样还当过leading sire�
 ##### 4010#       发表于 2018-6-5 00:03
 
 
-
 <blockquote>紫吹兰 发表于 2018-6-4 23:09
 纯血马本身就是中东马(阿拉伯马为主)和英格兰本地马混血培养出来的，到了普通纯血马在跑圈中吊打一流阿拉伯 ...</blockquote>
 要入围国际赛马届的话需要上查几代么？
-
-
-
-
-
 
 
 -----
@@ -21802,16 +14555,10 @@ SS主要是母系血统太差了吧，Halo不管怎么样还当过leading sire�
 ##### 4011#       发表于 2018-6-5 00:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39876892&amp;ptid=1590696" target="_blank">ramiel 发表于 2018-6-5 00:03</a>
 
 要入围国际赛马届的话需要上查几代么？</blockquote>
 查到当年那几匹英国马吧
-
-
-
-
-
 
 
 -----
@@ -21820,16 +14567,10 @@ SS主要是母系血统太差了吧，Halo不管怎么样还当过leading sire�
 ##### 4012#       发表于 2018-6-5 00:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39876495&amp;ptid=1590696" target="_blank">紫吹兰 发表于 2018-6-4 23:09</a>
 
 纯血马本身就是中东马(阿拉伯马为主)和英格兰本地马混血培养出来的，到了普通纯血马在跑圈中吊打一流阿拉伯 ...</blockquote>
 现在赛马这么大的规模很难去说替代纯血马。本身整个游戏就是建立在这套血统系统上的，靠混血搞个NT马种出来还不如直接修饰基因了
-
-
-
-
-
 
 
 -----
@@ -21838,22 +14579,15 @@ SS主要是母系血统太差了吧，Halo不管怎么样还当过leading sire�
 ##### 4013#       发表于 2018-6-5 00:21
 
 
-
 <blockquote>多多天下 发表于 2018-6-5 00:13
 查到当年那几匹英国马吧</blockquote>
 这也太…逼着新玩家花钱买门票么…
-
-
-
-
-
 
 
 -----
 
 ####  猿飞日斩3  
 ##### 4014#       发表于 2018-6-5 00:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39875952&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-6-4 22:08</a>
@@ -21864,16 +14598,10 @@ https://www.youtube.com/watch?v=mzUe3yeUuAg</blockquote>
 像素游戏里的草上飞的cut-in立绘怎么也是一副黑化的样子啊，真是吓人
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 4015#       发表于 2018-6-5 01:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39876892&amp;ptid=1590696" target="_blank">ramiel 发表于 2018-6-5 00:03</a>
@@ -21882,16 +14610,10 @@ https://www.youtube.com/watch?v=mzUe3yeUuAg</blockquote>
 族谱八代内全是纯血马就可以，注意是8代。。。。
 
 
-
 不过目前分纯血马和纯血系马，后者可以混入不多于多少%的阿拉伯马血统似乎
 
 
 目前日本是允许纯血系马参赛，但能拿出好成绩的也没多少。。。
-
-
-
-
-
 
 
 -----
@@ -21900,16 +14622,10 @@ https://www.youtube.com/watch?v=mzUe3yeUuAg</blockquote>
 ##### 4016#       发表于 2018-6-5 07:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39877030&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-6-5 00:24</a>
 
 像素游戏里的草上飞的cut-in立绘怎么也是一副黑化的样子啊，真是吓人</blockquote>
 不仅如此……追逐的时候的台词也是“スペちゃん。。。”，把我也吓到了
-
-
-
-
-
 
 
 -----
@@ -21918,21 +14634,13 @@ https://www.youtube.com/watch?v=mzUe3yeUuAg</blockquote>
 ##### 4017#       发表于 2018-6-5 07:46
 
 
-
-
 日本杯小特vs望族，铃鹿贡献了小指/精彩的复出，神鹰贡献了攻略（未收），那草上飞会给小特什么呢？
-
-
-
-
-
 
 
 -----
 
 ####  a94939291  
 ##### 4018#       发表于 2018-6-5 08:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39875952&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-6-4 22:08</a>
@@ -21946,17 +14654,10 @@ https://www.youtube.com/watch?v=mzUe3yeUuAg</blockquote>
 这视频的油管版本，可以看到1600m赛根本不带大树快车、小栗帽和伏特加玩ww
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 4019#       发表于 2018-6-5 10:30
-
-
 
 
 id=69074784
@@ -21972,30 +14673,13 @@ id=69074784
 2018-6-5 10:29 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  κύων  
 ##### 4020#       发表于 2018-6-5 12:18
 
 
-
-
 我还好奇要怎么解释只有特别周参加日本杯其他铃草鹰什么的都不去，现在看来可能根本不解释。
-
-
-
-
-
 
 
 -----
@@ -22004,15 +14688,9 @@ id=69074784
 ##### 4021#       发表于 2018-6-5 12:54
 
 
-
 <blockquote>amulelernen 发表于 2018-6-5 07:46
 日本杯小特vs望族，铃鹿贡献了小指/精彩的复出，神鹰贡献了攻略（未收），那草上飞会给小特什么呢？ ...</blockquote>
 为什么要期待三周没和小特对上一句话的阿草能带给她什么嘛…说到这个昨天听马娘广播第8回，就是前田玲奈当贵宾那集，ajuju刚好休息没来。前田女士打过招呼第一句话就是用草声线说“spe酱在哪？”233
-
-
-
-
-
 
 
 -----
@@ -22021,23 +14699,16 @@ id=69074784
 ##### 4022#       发表于 2018-6-5 13:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39881426&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-5 12:54</a>
 
 为什么要期待三周没和小特对上一句话的阿草能带给她什么嘛…说到这个昨天听马娘广播第8回，就是前田玲奈 ...</blockquote>
 草女士对小特的感情是有意义的<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">并且第八集并没有完全回收（坚信）……
 
 
-
-
-
-
-
 -----
 
 ####  郁夫  
 ##### 4023#       发表于 2018-6-5 13:31
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">草女士 自从 那我呢 之后 
@@ -22049,30 +14720,17 @@ id=69074784
 但是鹰酱 各种电话本子 一路倒贴 能行!
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 4024#       发表于 2018-6-5 14:26
 
 
-
-
 阿草现在已经和皮皮船混作堆了233
-
-
-
-
 
 
 img-ee541867d26203bd6f97361d91011c66.jpg
 (73.97 KB, 下载次数: 11)
-
-
 
 
 下载附件
@@ -22081,24 +14739,7 @@ img-ee541867d26203bd6f97361d91011c66.jpg
 2018-6-5 14:25 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/05/142535x5ln8ddg5kgdgcgd.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -22107,14 +14748,7 @@ img-ee541867d26203bd6f97361d91011c66.jpg
 ##### 4025#       发表于 2018-6-5 14:58
 
 
-
-
 毕竟阿草和黄金船在一个牧场配种
-
-
-
-
-
 
 
 -----
@@ -22123,15 +14757,9 @@ img-ee541867d26203bd6f97361d91011c66.jpg
 ##### 4026#       发表于 2018-6-5 16:03
 
 
-
  本帖最后由 EvgaRay 于 2018-6-5 16:05 编辑 
 
 部分纯血马是脾气差，或者说精神面不稳定，但这不代表智商低。脾气臭就是低能儿，有这个等式么？那成立的话得有一票科学家艺术家都是傻X了<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22140,22 +14768,15 @@ img-ee541867d26203bd6f97361d91011c66.jpg
 ##### 4027#       发表于 2018-6-5 17:23
 
 
-
 <blockquote>amulelernen 发表于 2018-6-4 09:11
 其实看完这集我觉得铃鹿和训练员蛮搭的小特你跑完后就拜拜咯</blockquote>
 想看铃鹿和普罗丢撒的本子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  センコウ  
 ##### 4028#       发表于 2018-6-5 17:30
-
 
 
  本帖最后由 センコウ 于 2018-6-5 17:32 编辑 
@@ -22173,32 +14794,19 @@ img-ee541867d26203bd6f97361d91011c66.jpg
 马只比猪聪明，不如猫狗，而纯血马本身又是马里面倒数的
 
 
-
-
-
-
-
 -----
 
 ####  a94939291  
 ##### 4029#       发表于 2018-6-5 17:39
 
 
-
-
 按照惯例，马娘也应该会有训练员被扶她马娘们按着干的本子。参考武内P
-
-
-
-
-
 
 
 -----
 
 ####  old.just  
 ##### 4030#       发表于 2018-6-5 17:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39884653&amp;ptid=1590696" target="_blank">センコウ 发表于 2018-6-5 17:30</a>
@@ -22214,16 +14822,10 @@ img-ee541867d26203bd6f97361d91011c66.jpg
 猫猪嘛。。。验证了一句话，颜值决定一切
 
 
-
-
-
-
-
 -----
 
 ####  wasdf  
 ##### 4031#       发表于 2018-6-5 18:05
-
 
 
 <blockquote>amulelernen 发表于 2018-6-4 09:11
@@ -22231,16 +14833,10 @@ img-ee541867d26203bd6f97361d91011c66.jpg
 想看铃鹿和普罗丢撒的本子
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 4032#       发表于 2018-6-5 18:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39884932&amp;ptid=1590696" target="_blank">old.just 发表于 2018-6-5 17:55</a>
@@ -22251,16 +14847,10 @@ img-ee541867d26203bd6f97361d91011c66.jpg
 猫狗猴＞马＞牛猪，这是天生脑子大小决定的。。。
 
 
-
-
-
-
-
 -----
 
 ####  κύων  
 ##### 4033#       发表于 2018-6-5 19:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39884583&amp;ptid=1590696" target="_blank">wasdf 发表于 2018-6-5 17:23</a>
@@ -22268,16 +14858,10 @@ img-ee541867d26203bd6f97361d91011c66.jpg
 不是trainer吗
 
 
-
-
-
-
-
 -----
 
 ####  κύων  
 ##### 4034#       发表于 2018-6-5 19:38
-
 
 
  本帖最后由 κύων 于 2018-6-5 19:40 编辑 
@@ -22288,17 +14872,10 @@ img-ee541867d26203bd6f97361d91011c66.jpg
 http://www.dailymail.co.uk/sciencetech/article-3122303/Move-Lassie-IQ-tests-reveal-pigs-outsmart-dogs-chimpanzees.html
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 4035#       发表于 2018-6-5 20:53
-
-
 
 
 NAiK◆ﾋ垢
@@ -22313,15 +14890,8 @@ NAiK◆ﾋ垢
 原居民
 
 
-
-
-
-
-
 De2zvITU0AE-g5x.jpg
 (98.56 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -22330,53 +14900,20 @@ De2zvITU0AE-g5x.jpg
 2018-6-5 20:53 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/05/205315wk50kk711iec540e.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 DbPM6B7VQAAPVW4.jpg
 (25.6 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2018-6-5 20:53 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/05/205308sfcqh33ht9bu7kff.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -22385,23 +14922,14 @@ DbPM6B7VQAAPVW4.jpg
 ##### 4036#       发表于 2018-6-5 22:31
 
 
-
-
 剛發現今天確定香港馬明月千里會參加寶塚記念
 [https://hk.sports.appledaily.com ... e/20180605/58279744](https://hk.sports.appledaily.com/racing/realtime/article/20180605/58279744)
-
-
-
-
-
 
 
 -----
 
 ####  猿飞日斩3  
 ##### 4037#       发表于 2018-6-5 22:44
-
-
 
 
 这个圣王光环的MAD做的还不错，选曲也很合适，果然喜欢圣王光环这种永不屈服的高领杂草系女孩
@@ -22411,16 +14939,10 @@ DbPM6B7VQAAPVW4.jpg
 b站搬运 
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 4038#       发表于 2018-6-5 23:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39887723&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-6-5 22:44</a>
@@ -22437,16 +14959,10 @@ b站搬运
 nico静画那边给了圣王光环一个专属tag：“ 高貴な雑草魂 ”
 
 
-
-
-
-
-
 -----
 
 ####  猿飞日斩3  
 ##### 4039#       发表于 2018-6-5 23:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39887978&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-5 23:09</a>
@@ -22461,27 +14977,15 @@ nico静画那边给了圣王光环一个专属tag：“ 高貴な雑草魂 ”
 毕竟挺多人认为圣王是坑在福永手上的吧，不还挂了个福永受害者协会会长的称号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  EvgaRay  
 ##### 4040#       发表于 2018-6-6 00:55
 
 
-
-
 分不清智商 智慧 认知 服从度的何必来瞎扯什么纯血马智商倒数，养马这么多年的都没你懂<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -22490,16 +14994,9 @@ nico静画那边给了圣王光环一个专属tag：“ 高貴な雑草魂 ”
 ##### 4041#       发表于 2018-6-6 01:19
 
 
-
-
 分不清智商 智慧 认知 服从度的何必来瞎扯什么纯血马智商倒数，养马这么多年的都没你懂<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -22508,23 +15005,15 @@ nico静画那边给了圣王光环一个专属tag：“ 高貴な雑草魂 ”
 ##### 4042#       发表于 2018-6-6 07:42
 
 
-
  本帖最后由 Goisdust 于 2018-6-6 07:44 编辑 
 
 风怒
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 4043#       发表于 2018-6-6 07:43
-
-
 
 
 黒烏龍
@@ -22542,21 +15031,10 @@ nico静画那边给了圣王光环一个专属tag：“ 高貴な雑草魂 ”
 2018-6-6 07:43 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 4044#       发表于 2018-6-6 09:41
-
-
 
 
 搏了馬命贏下天皇賞春的Rainbow Line因傷退役了,跟牠老爸黃金旅程一樣最後一戰贏G1
@@ -22565,16 +15043,10 @@ nico静画那边给了圣王光环一个专属tag：“ 高貴な雑草魂 ”
 被優駿SS買下當種馬,查了下優駿SS是帝王光環所在的牧場,Cy要不要談一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  絹川健一  
 ##### 4045#       发表于 2018-6-6 11:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39889856&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-6 07:43</a>
@@ -22585,17 +15057,10 @@ nico静画那边给了圣王光环一个专属tag：“ 高貴な雑草魂 ”
 KH福永这梗真是欲罢不能
 
 
-
-
-
-
-
 -----
 
 ####  n.dante  
 ##### 4046#       发表于 2018-6-6 11:45
-
-
 
 
 几周没看，最近补上了。感觉是自本家偶像大师后最好看的偶像（？）动画了。感受到了制作组对大腿的执着，最近几年之内最棒的腿部绘画了。健美的大腿真棒！
@@ -22604,33 +15069,20 @@ KH福永这梗真是欲罢不能
 另外你们真专业啊，都快变成赛马楼了。
 
 
-
-
-
-
-
 -----
 
 ####  kanpachi  
 ##### 4047#       发表于 2018-6-6 15:05
 
 
-
-
 没人提黄金船的马鹿tuber？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 [https://www.youtube.com/channel/UCAWxPGGuIfWME2KTLUmSCHw](https://www.youtube.com/channel/UCAWxPGGuIfWME2KTLUmSCHw)
-
-
-
-
-
 
 
 -----
 
 ####  badapple  
 ##### 4048#       发表于 2018-6-6 22:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39889856&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-6 07:43</a>
@@ -22641,26 +15093,14 @@ KH福永这梗真是欲罢不能
 圣王：福永好不容易赢一场 mdzz大屏幕上英语还拼错
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 4049#       发表于 2018-6-6 23:59
 
 
-
-
 發現93年天皇賞春米浴/麥昆跟99年寶塚特別週/草上飛的走法挺相像,剛好也是的場均vs武豐,然後評述中後段還來一句"米浴來了,好可怕"<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 [http://www.nicovideo.jp/watch/sm10634432](http://www.nicovideo.jp/watch/sm10634432)
-
-
-
-
-
 
 
 -----
@@ -22669,16 +15109,10 @@ KH福永这梗真是欲罢不能
 ##### 4050#       发表于 2018-6-7 10:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39899838&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-6-6 23:59</a>
 
 發現93年天皇賞春米浴/麥昆跟99年寶塚特別週/草上飛的走法挺相像,剛好也是的場均vs武豐,然後評述中後段還來 ...</blockquote>
 感觉以麦昆作为中心人物也挺好看，
-
-
-
-
-
 
 
 -----
@@ -22687,14 +15121,7 @@ KH福永这梗真是欲罢不能
 ##### 4051#       发表于 2018-6-7 11:58
 
 
-
-
 圣王的体型也很健壮  起码身形看着就健康的多少长寿些
-
-
-
-
-
 
 
 -----
@@ -22703,16 +15130,10 @@ KH福永这梗真是欲罢不能
 ##### 4052#       发表于 2018-6-7 14:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39875338&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-6-4 20:56</a>
 
 我是挺好奇什么叫血统不好的，听说周日宁静就是血统评价很差才被卖了，最近打wp8也买到了周日宁静，非常 ...</blockquote>
 血统好不好一般看母系为主 如果母马 母马的母马 母马的母马的母马 总之往上数当中曾经生出过强马 那一般才会认为这支母系血统很好 其次才看父系的种马 因为能成为种马一般都有比较成功的竞赛成绩 随便哪匹马的父系都可以找出强马 参考意义不大。。。 周日宁静的母系非常差 4代以内的母马都是未胜利马或者未出走马 7代以内都没赢过重赏。。。相反 作为周日宁静对手的easy goer 母系却是北美第一大望族La Troienne。。。对比之下 就更显得周日宁静的血统不好了
-
-
-
-
-
 
 
 -----
@@ -22721,14 +15142,7 @@ KH福永这梗真是欲罢不能
 ##### 4053#       发表于 2018-6-7 14:33
 
 
-
-
 还有玄学认为大心脏基因也要靠母系来遗传
-
-
-
-
-
 
 
 -----
@@ -22737,16 +15151,10 @@ KH福永这梗真是欲罢不能
 ##### 4054#       发表于 2018-6-7 18:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39905289&amp;ptid=1590696" target="_blank">zimimar 发表于 2018-6-7 14:04</a>
 
 血统好不好一般看母系为主 如果母马 母马的母马 母马的母马的母马 总之往上数当中曾经生出过强马 那一般 ...</blockquote>
 这就是所谓的牝系吧？难怪周日宁静退役后没人要，真是父系母系都不好
-
-
-
-
-
 
 
 -----
@@ -22755,21 +15163,13 @@ KH福永这梗真是欲罢不能
 ##### 4055#       发表于 2018-6-7 18:13
 
 
-
-
 这里……真的是动画楼吗？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  物流大亨常凯申  
 ##### 4056#       发表于 2018-6-7 18:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39908421&amp;ptid=1590696" target="_blank">sherlockchu 发表于 2018-6-7 18:13</a>
@@ -22785,16 +15185,10 @@ KH福永这梗真是欲罢不能
 那就只有硬核赛马了
 
 
-
-
-
-
-
 -----
 
 ####  多多天下  
 ##### 4057#       发表于 2018-6-7 20:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39905609&amp;ptid=1590696" target="_blank">EvgaRay 发表于 2018-6-7 14:33</a>
@@ -22803,17 +15197,10 @@ KH福永这梗真是欲罢不能
 那小栗帽他妈咋没啥繁育牝马成绩呢
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 4058#       发表于 2018-6-7 20:33
-
-
 
 
 细江纯子讲解赛马第二回也上线了
@@ -22831,16 +15218,10 @@ KH福永这梗真是欲罢不能
 预告没意外又要等到明天
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 4059#       发表于 2018-6-7 21:00
-
 
 
  本帖最后由 musicat 于 2018-6-7 21:15 编辑 
@@ -22872,7 +15253,6 @@ KH福永这梗真是欲罢不能
 看她比赛，比她老爸的，都更能看到“坚韧”这个名词的具现。
 
 
-
 希望早日入选殿堂马吧，G1六冠有说法是，部分的雌马限定赛含金量不足。
 
 但是迷人景致还有实打实的G1七亚啊，这些除了1个是雌马限定的“伊丽莎白女王杯”，
@@ -22889,21 +15269,10 @@ KH福永这梗真是欲罢不能
  *对了，记得以前看过科普，头几胎一般成绩不太好，3-5胎才容易出强力马？
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 4060#       发表于 2018-6-7 21:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39908421&amp;ptid=1590696" target="_blank">sherlockchu 发表于 2018-6-7 18:13</a>
@@ -22912,16 +15281,10 @@ KH福永这梗真是欲罢不能
 毕竟硬核赛马楼，白学也是比赛为基础，不像隔壁沙雕操作
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 4061#       发表于 2018-6-7 21:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39910204&amp;ptid=1590696" target="_blank">musicat 发表于 2018-6-7 21:00</a>
@@ -22940,16 +15303,10 @@ KH福永这梗真是欲罢不能
 期待小小的奇迹（若是都获选，就是史上第五对亲子殿堂马）
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 4062#       发表于 2018-6-7 21:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39910672&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-7 21:45</a>
@@ -22962,16 +15319,10 @@ KH福永这梗真是欲罢不能
 还是很有希望的，投票这个东西，没什么门槛，死宅twitter上一呼可谓百应！
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 4063#       发表于 2018-6-7 22:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39910769&amp;ptid=1590696" target="_blank">musicat 发表于 2018-6-7 21:55</a>
@@ -22982,16 +15333,10 @@ KH福永这梗真是欲罢不能
 这个是委员会投的吧，死宅没啥用啊……
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 4064#       发表于 2018-6-7 22:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39910672&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-7 21:45</a>
@@ -23002,32 +15347,19 @@ KH福永这梗真是欲罢不能
 退役20年以内有效，这么看特别周希望不大啊，龙王和北部玄驹肯定在它前面
 
 
-
-
-
-
-
 -----
 
 ####  loli炮  
 ##### 4065#       发表于 2018-6-7 22:49
 
 
-
-
 迷人精致那个冠军被黑掉，弄的骑手都直喷黑幕
-
-
-
-
-
 
 
 -----
 
 ####  D-JoeII  
 ##### 4066#       发表于 2018-6-7 23:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39911233&amp;ptid=1590696" target="_blank">xzhei 发表于 2018-6-7 22:40</a>
@@ -23040,16 +15372,10 @@ KH福永这梗真是欲罢不能
 [http://www.scmp.com/sport/racing ... ng-japan-shock-move](http://www.scmp.com/sport/racing/article/2149794/magic-man-joao-moreira-quits-hong-kong-racing-japan-shock-move)
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 4067#       发表于 2018-6-7 23:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39911451&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-6-7 23:07</a>
@@ -23061,32 +15387,19 @@ KH福永这梗真是欲罢不能
 看了下历年投票情况，感觉委员会还是蛮无情的……
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 4068#       发表于 2018-6-7 23:24
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">今年墨尔本杯奖金提高到了730万澳元……
-
-
-
-
-
 
 
 -----
 
 ####  DOACAON  
 ##### 4069#       发表于 2018-6-7 23:38
-
-
 
 
 投票选殿堂马的不是委员会而是记者啊
@@ -23098,16 +15411,10 @@ KH福永这梗真是欲罢不能
 迷人景致要入选至少要先把上述三位熬过去，然后还要祈祷没有强力新马出现，即便如此还是要跟黄金船缠斗，形势很不乐观啊
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 4070#       发表于 2018-6-7 23:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39911751&amp;ptid=1590696" target="_blank">DOACAON 发表于 2018-6-7 23:38</a>
@@ -23118,16 +15425,10 @@ KH福永这梗真是欲罢不能
 是10年以上赛马报道经验的记者等资深媒体人组成的选考委员会，就是一回事吧。龙王今年有种马成绩加成，基本稳了，北部玄驹的成绩加人气估计也是第一年就能选上了。迷人景致时间长着呢，多半在黄金船前面
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 4071#       发表于 2018-6-8 03:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39911857&amp;ptid=1590696" target="_blank">xzhei 发表于 2018-6-7 09:50</a>
@@ -23138,16 +15439,10 @@ KH福永这梗真是欲罢不能
 而且满乐时和龙王的定位还挺像的，搞不好会出现两匹都过了70而不到75的场面
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 4072#       发表于 2018-6-8 07:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39912777&amp;ptid=1590696" target="_blank">DOACAON 发表于 2018-6-8 03:46</a>
@@ -23156,16 +15451,10 @@ KH福永这梗真是欲罢不能
 感觉早点变成1人4票的话，特别周机会大很多，现在已经过了最佳时机了时效又快到了，生不逢时啊……
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 4073#       发表于 2018-6-8 08:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39913153&amp;ptid=1590696" target="_blank">xzhei 发表于 2018-6-8 07:51</a>
@@ -23174,16 +15463,10 @@ KH福永这梗真是欲罢不能
 其实不能比照代表马那样塞个特别赏吗，连年下来特别周总票数应该是最高了吧，却没能入选。(特别赏也符合“special ”之名<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 4074#       发表于 2018-6-8 09:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39913472&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-8 08:41</a>
@@ -23192,17 +15475,10 @@ KH福永这梗真是欲罢不能
 现役退役都领安慰奖也太悲剧了……看了下有特例的是JRA50周年的时候有放宽年限投过一次，还有60周年从1人2票变成1人4票（下一年就变成常规了），70周年的时候说不定还有机会吧，不过肯定还是要投票
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 4075#       发表于 2018-6-8 19:03
-
-
 
 
 ◆第12R「夢の舞台」
@@ -23213,16 +15489,10 @@ KH福永这梗真是欲罢不能
 [https://www.youtube.com/watch?v= ... =NtxdRRf88ZPhRn86-6](https://www.youtube.com/watch?v=6VknQhRNl3o&amp;feature=push-u-sub&amp;attr_tag=NtxdRRf88ZPhRn86-6)
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 4076#       发表于 2018-6-8 19:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39919544&amp;ptid=1590696" target="_blank">xingenge 发表于 2018-6-8 19:03</a>
@@ -23233,25 +15503,14 @@ KH福永这梗真是欲罢不能
 虽然不知道她说的是什么鸟语，总之就是很厉害的东西吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 4077#       发表于 2018-6-8 19:09
 
 
-
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fs3zbdc7tmj20nw0dfk19.jpg" referrerpolicy="no-referrer">
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fs3zbe56vwj20nw0b4n1a.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23260,14 +15519,7 @@ KH福永这梗真是欲罢不能
 ##### 4078#       发表于 2018-6-8 19:10
 
 
-
-
 好像听到一个climax……
-
-
-
-
-
 
 
 -----
@@ -23276,16 +15528,8 @@ KH福永这梗真是欲罢不能
 ##### 4079#       发表于 2018-6-8 19:12
 
 
-
-
-
 【サラブレ×ウマ娘】コラボ冊子「サラブレ ウマ娘版」第5号（最終号）が6月23日（土）頃よりアニメイト、ゲーマーズ、ソフマップ、とらのあな、TOWER RECORDS、メロンブックスなどの一部店舗店頭で順次配布を開始予定！表紙＆特集はゴールドシップとメジロマックイーン※なくなり次第配布終了 
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fs3zeka98fj20ho0p04qp.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23294,14 +15538,7 @@ KH福永这梗真是欲罢不能
 ##### 4080#       发表于 2018-6-8 19:20
 
 
-
-
 强烈期待，巅峰之战已经打响了<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">（帝皇大失败！）
-
-
-
-
-
 
 
 -----
@@ -23310,21 +15547,13 @@ KH福永这梗真是欲罢不能
 ##### 4081#       发表于 2018-6-8 20:26
 
 
-
-
 小特的巅峰之战要来啦~~~<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">“训练员先生，你最辉煌的时刻是是什么时候呢？我的话，就是这里了！”
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 4082#       发表于 2018-6-8 20:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39920118&amp;ptid=1590696" target="_blank">snakezsd 发表于 2018-6-8 20:26</a>
@@ -23335,16 +15564,10 @@ KH福永这梗真是欲罢不能
 不过听阿花和他最开始的对白，训练员感觉也是有“黑历史”的，不知道后面会不会做出来
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 4083#       发表于 2018-6-8 21:30
-
 
 
 <blockquote>xingenge 发表于 2018-6-8 19:09
@@ -23352,16 +15575,10 @@ KH福永这梗真是欲罢不能
 这封面浓浓的爱马仕赶脚…
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 4084#       发表于 2018-6-9 00:12
-
 
 
  本帖最后由 物流大亨常凯申 于 2018-6-9 00:24 编辑 
@@ -23380,23 +15597,10 @@ KH福永这梗真是欲罢不能
 2018-6-9 00:12 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  klushyo  
 ##### 4085#       发表于 2018-6-9 00:45
-
-
 
 
 监督忍不住把一些黑暗的东西拍到隔壁超能力女儿里了233
@@ -23404,16 +15608,10 @@ KH福永这梗真是欲罢不能
 要是马娘这边搞私货，不怕cy悬赏他人头？
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 4086#       发表于 2018-6-9 01:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39922059&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-6-9 00:12</a>
@@ -23430,25 +15628,13 @@ KH福永这梗真是欲罢不能
 就认出这仨<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 4087#       发表于 2018-6-9 03:27
 
 
-
-
 小特的赔率好高啊，导演其实很讨厌小特吧
-
-
-
-
-
 
 
 -----
@@ -23457,22 +15643,13 @@ KH福永这梗真是欲罢不能
 ##### 4088#       发表于 2018-6-9 08:53
 
 
-
-
 枠連5-7了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  猿飞日斩3  
 ##### 4089#       发表于 2018-6-9 12:14
-
-
 
 
 赔率设定太高，动画里肯定会提，那时候版权什么的就不好收场了
@@ -23482,16 +15659,10 @@ KH福永这梗真是欲罢不能
 已经算是导演私货了，应该不是没爱的表现吧，没爱不做出来就是了
 
 
-
-
-
-
-
 -----
 
 ####  κύων  
 ##### 4090#       发表于 2018-6-9 12:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39922059&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-6-9 00:12</a>
@@ -23501,16 +15672,10 @@ KH福永这梗真是欲罢不能
 六号是“神鹰 Jr.”？
 
 
-
-
-
-
-
 -----
 
 ####  depthlee  
 ##### 4091#       发表于 2018-6-9 12:29
-
 
 
 <blockquote>κύων 发表于 2018-6-9 12:17
@@ -23518,16 +15683,10 @@ KH福永这梗真是欲罢不能
 小鹰，看来草上飞的手了（不对）
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 4092#       发表于 2018-6-9 14:35
-
 
 
  本帖最后由 DOACAON 于 2018-6-9 00:46 编辑 
@@ -23544,16 +15703,10 @@ KH福永这梗真是欲罢不能
 大概是这样？パサージュ=passage，跟西班牙原文Pasa=英语pass的意思微妙地相关
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 4093#       发表于 2018-6-9 19:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39926147&amp;ptid=1590696" target="_blank">DOACAON 发表于 2018-6-9 14:35</a>
@@ -23565,17 +15718,10 @@ KH福永这梗真是欲罢不能
 又不带星云天空玩，说好的一起吃饭的。。。
 
 
-
-
-
-
-
 -----
 
 ####  金色先锋  
 ##### 4094#       发表于 2018-6-9 19:14
-
-
 
 
 漫画最新话，还是铃鹿赢了（气槽成陪跑的了，主角还是铃特）
@@ -23583,16 +15729,10 @@ KH福永这梗真是欲罢不能
 接下来怎么展开呢，但亚马逊可能又要被骂一顿了
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 4095#       发表于 2018-6-9 19:30
-
 
 
 <blockquote>金色先锋 发表于 2018-6-9 19:14
@@ -23602,16 +15742,10 @@ KH福永这梗真是欲罢不能
 漫画铃鹿太阴暗了，还是喜欢动画的
 
 
-
-
-
-
-
 -----
 
 ####  Demi.Albertini  
 ##### 4096#       发表于 2018-6-9 20:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39922059&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-6-9 00:12</a>
@@ -23622,17 +15756,10 @@ KH福永这梗真是欲罢不能
 星云天空：那我呢
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 4097#       发表于 2018-6-9 20:52
-
-
 
 
 みかづき@findeart
@@ -23657,22 +15784,10 @@ KH福永这梗真是欲罢不能
 2018-6-9 20:52 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 4098#       发表于 2018-6-9 21:46
-
 
 
  本帖最后由 D-JoeII 于 2018-6-9 21:47 编辑 
@@ -23690,17 +15805,10 @@ KH福永这梗真是欲罢不能
 <img src="https://i.imgur.com/Agj426F.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 4099#       发表于 2018-6-10 00:55
-
-
 
 
 今天将是龙王与西沙里奥之子，2岁马サートゥルナーリア出道战
@@ -23712,16 +15820,10 @@ KH福永这梗真是欲罢不能
 2015年最优秀2岁马，朝日杯冠军，可惜达比后就受伤早早引退。期待弟弟的表现
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 4100#       发表于 2018-6-10 04:12
-
 
 
 <blockquote>Goisdust 发表于 2018-6-9 20:52
@@ -23732,33 +15834,20 @@ KH福永这梗真是欲罢不能
 成绩就不谈了…黄金老爹的生涯累计奖金能好好养老么…
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 4101#       发表于 2018-6-10 07:59
 
 
-
-
 链接：[https://pan.baidu.com/s/11RwXWJ-OcvOcWkcsw3lcwQ](https://pan.baidu.com/s/11RwXWJ-OcvOcWkcsw3lcwQ) 密码：814u
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fs5r4zvk7qj21kw12ou0x.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  musicat  
 ##### 4102#       发表于 2018-6-10 08:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39933317&amp;ptid=1590696" target="_blank">ramiel 发表于 2018-6-10 04:12</a>
@@ -23787,16 +15876,10 @@ KH福永这梗真是欲罢不能
 更悲剧的是，之后真是配种配到死，字面意思上的配种配到死。。。
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 4103#       发表于 2018-6-10 08:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39933317&amp;ptid=1590696" target="_blank">ramiel 发表于 2018-6-10 04:12</a>
@@ -23805,16 +15888,10 @@ KH福永这梗真是欲罢不能
 本土奖金就有7亿多，再加上杜拜香港的，这都不能养老大多数马也别活了…万年G1老二老三不可能没钱啦，而且黄金旅程是种马当红的时候去世的，可以说是到死都在赚钱…
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 4104#       发表于 2018-6-10 09:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39931864&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-10 00:55</a>
@@ -23827,16 +15904,10 @@ KH福永这梗真是欲罢不能
 话说当年Leontes被香港赐名醋丈夫<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 4105#       发表于 2018-6-10 09:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39934181&amp;ptid=1590696" target="_blank">musicat 发表于 2018-6-10 08:42</a>
@@ -23847,16 +15918,10 @@ KH福永这梗真是欲罢不能
 黄金旅程退役的时候种马评价应该不高，否则不会身为社台的俱乐部马却没有在社台当种马，而卖给别人，初年度配种费也不高
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 4106#       发表于 2018-6-10 09:24
-
 
 
  本帖最后由 musicat 于 2018-6-10 09:48 编辑 
@@ -23900,16 +15965,10 @@ KH福永这梗真是欲罢不能
 外加一些G1亚军，G2冠军级别的出名子嗣，设定成黄金12圣“逗”士，完全没问题的。
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 4107#       发表于 2018-6-10 10:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39934438&amp;ptid=1590696" target="_blank">musicat 发表于 2018-6-10 09:24</a>
@@ -23920,16 +15979,10 @@ KH福永这梗真是欲罢不能
 黄金旅程优秀子嗣比较多，大震撼之前最成功也不一定，爱丽速子早死之前应该是SS系最成功的种马，真心呼唤大和主将它们的AEI和黄金旅程差不多，平均下来好像还更高些。不过黄金旅程作为非社台系种马，早年繁殖对象质量不高，有这个成绩很好了。
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 4108#       发表于 2018-6-10 11:39
-
 
 
  本帖最后由 musicat 于 2018-6-10 11:50 编辑 
@@ -23943,16 +15996,10 @@ KH福永这梗真是欲罢不能
 488的体重，一匹很壮实的新驹。
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 4109#       发表于 2018-6-10 11:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39934290&amp;ptid=1590696" target="_blank">xzhei 发表于 2018-6-10 09:00</a>
@@ -23967,16 +16014,10 @@ KH福永这梗真是欲罢不能
 Dee Ex Bee被翻成"前度男友"<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 4110#       发表于 2018-6-10 12:08
-
 
 
  本帖最后由 xzhei 于 2018-6-10 12:09 编辑 
@@ -23987,16 +16028,10 @@ Dee Ex Bee被翻成"前度男友"<img src="https://static.saraba1st.com/image/sm
 马会翻译估计是英文直接搜一下就算，不大研究马名的命名含义，Leontes这种是引申的太远了，意思方向倒没错。以前香港把ジャガーメイル翻译成网络电邮，应该就是直接从英文Jaguar Mail翻过来，其实官方命名含义是ヒョウの鎧（豹的铠甲），和这个前度男友错的差不多
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 4111#       发表于 2018-6-10 13:29
-
 
 
  本帖最后由 ramiel 于 2018-6-10 13:40 编辑 
@@ -24010,15 +16045,9 @@ Dee Ex Bee被翻成"前度男友"<img src="https://static.saraba1st.com/image/sm
 另外这算精尽而亡么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
 你管子上面看到一句评论
 “ステイゴールドはテイエムオペラオー恐怖症。﻿”
 感觉可以有CP<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24027,14 +16056,7 @@ Dee Ex Bee被翻成"前度男友"<img src="https://static.saraba1st.com/image/sm
 ##### 4112#       发表于 2018-6-10 13:58
 
 
-
-
 今天美国那边好像出了个三冠马？发现赛马娘动画的官推比游戏的更爱转赛马新闻
-
-
-
-
-
 
 
 -----
@@ -24043,16 +16065,10 @@ Dee Ex Bee被翻成"前度男友"<img src="https://static.saraba1st.com/image/sm
 ##### 4113#       发表于 2018-6-10 14:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39937097&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-6-10 13:58</a>
 
 今天美国那边好像出了个三冠马？发现赛马娘动画的官推比游戏的更爱转赛马新闻 ...</blockquote>
 近年第二个三冠马了，还是无败三冠马，马主好像还有中国资本
-
-
-
-
-
 
 
 -----
@@ -24061,15 +16077,9 @@ Dee Ex Bee被翻成"前度男友"<img src="https://static.saraba1st.com/image/sm
 ##### 4114#       发表于 2018-6-10 14:18
 
 
-
 <blockquote>xzhei 发表于 2018-6-10 14:02
 近年第二个三冠马了，还是无败三冠马，马主好像还有中国资本</blockquote>
 看了下，胜负服居然是五星红旗？
-
-
-
-
-
 
 
 -----
@@ -24078,16 +16088,10 @@ Dee Ex Bee被翻成"前度男友"<img src="https://static.saraba1st.com/image/sm
 ##### 4115#       发表于 2018-6-10 14:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39937291&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-6-10 14:18</a>
 
 看了下，胜负服居然是五星红旗？</blockquote>
 马主是大头是winstar farm，小头是China Horse Club，前者本身就是星星吧（
-
-
-
-
-
 
 
 -----
@@ -24096,16 +16100,10 @@ Dee Ex Bee被翻成"前度男友"<img src="https://static.saraba1st.com/image/sm
 ##### 4116#       发表于 2018-6-10 14:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39937291&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-6-10 14:18</a>
 
 看了下，胜负服居然是五星红旗？</blockquote>
 是马主china horse club的胜负服，查了下占25%的所有权
-
-
-
-
-
 
 
 -----
@@ -24114,16 +16112,10 @@ Dee Ex Bee被翻成"前度男友"<img src="https://static.saraba1st.com/image/sm
 ##### 4117#       发表于 2018-6-10 14:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39937330&amp;ptid=1590696" target="_blank">センコウ 发表于 2018-6-10 14:22</a>
 
 马主是大头是winstar farm，小头是China Horse Club，前者本身就是星星吧（</blockquote>
 好吧，看到番茄炒蛋还是很有即视感的
-
-
-
-
-
 
 
 -----
@@ -24132,16 +16124,10 @@ Dee Ex Bee被翻成"前度男友"<img src="https://static.saraba1st.com/image/sm
 ##### 4118#       发表于 2018-6-10 14:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39937345&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-6-10 14:25</a>
 
 好吧，看到番茄炒蛋还是很有即视感的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然是番茄炒蛋，那星星也太多了。。
-
-
-
-
-
 
 
 -----
@@ -24150,23 +16136,15 @@ Dee Ex Bee被翻成"前度男友"<img src="https://static.saraba1st.com/image/sm
 ##### 4119#       发表于 2018-6-10 14:28
 
 
-
 <blockquote>xzhei 发表于 2018-6-10 14:23
 是马主china horse club的胜负服，查了下占25%的所有权</blockquote>
 好吧这个胜负服挺亲切的
-
-
-
-
-
 
 
 -----
 
 ####  センコウ  
 ##### 4120#       发表于 2018-6-10 14:29
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/10/142852twzk8rkwxfmse2eu.png" referrerpolicy="no-referrer">
@@ -24179,22 +16157,7 @@ Dee Ex Bee被翻成"前度男友"<img src="https://static.saraba1st.com/image/sm
 2018-6-10 14:28 上传
 
 
-
-
-
-
-
-
 这星星数量，换成蓝底白星就是星条旗了。。
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -24203,14 +16166,7 @@ Dee Ex Bee被翻成"前度男友"<img src="https://static.saraba1st.com/image/sm
 ##### 4121#       发表于 2018-6-10 14:47
 
 
-
-
 Justify的血统表真华丽…………
-
-
-
-
-
 
 
 -----
@@ -24219,14 +16175,7 @@ Justify的血统表真华丽…………
 ##### 4122#       发表于 2018-6-10 15:46
 
 
-
-
 http://www.acgdoge.net/archives/27617
-
-
-
-
-
 
 
 -----
@@ -24235,14 +16184,7 @@ http://www.acgdoge.net/archives/27617
 ##### 4123#       发表于 2018-6-10 15:46
 
 
-
-
 acg狗屋把赛马娘的访谈翻译了
-
-
-
-
-
 
 
 -----
@@ -24251,14 +16193,7 @@ acg狗屋把赛马娘的访谈翻译了
 ##### 4124#       发表于 2018-6-10 15:49
 
 
-
-
 对于赛马娘描写女孩子们努力故事这一点，石原章弘表示，从 EVA 之后，被时代和大人操弄世界观的作品就在增加，某种意义上友情、努力、胜利，这样的王道作品无论什么时代都能打动人心，赛马娘用「竞跑」这个主题，就像是「为了妈妈而努力」「为了遵守和铃鹿同学的约定」以这样通俗易懂的简单方法率直的传达出来。而《赛马娘》的声优阵容中，有声优说自己的父亲也看了《赛马娘》动画，特别周的声优和气杏未，无声铃鹿的声优高野麻里佳，东海帝王的声优 Machico 都这么说。声优们也有说因为这部动画和父亲的交流沟通机会也增加了，其他方面也有「女儿模仿赛马娘」，「太太开始对赛马感兴趣」这样的声音，而且为《赛马娘》企划担任宣传大使的武丰骑手也说，自己亲戚的女儿非常喜欢赛马娘，听说平时不看动画的人现在也看《赛马娘》。
-
-
-
-
-
 
 
 -----
@@ -24267,23 +16202,16 @@ acg狗屋把赛马娘的访谈翻译了
 ##### 4125#       发表于 2018-6-10 15:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39938038&amp;ptid=1590696" target="_blank">彩虹之羽 发表于 2018-6-10 15:49</a>
 
 对于赛马娘描写女孩子们努力故事这一点，石原章弘表示，从 EVA 之后，被时代和大人操弄世界观的作品就在增 ...</blockquote>
 强烈要求出第二季or剧场版
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 4126#       发表于 2018-6-10 15:59
-
 
 
  本帖最后由 センコウ 于 2018-6-10 16:08 编辑 
@@ -24294,16 +16222,10 @@ acg狗屋把赛马娘的访谈翻译了
 参考一下去年大震撼好几个仔卖到换美刀超过200W刀，最贵的那个快500W刀了
 
 
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 4127#       发表于 2018-6-10 16:18
-
 
 
 <blockquote>amulelernen 发表于 2018-6-10 15:50
@@ -24311,16 +16233,10 @@ acg狗屋把赛马娘的访谈翻译了
 这得看影响力了  动画能在日本本土有现象级的影响力让观众对赛马感兴趣 cy能拿到新一批名马版权才有戏    本身 cy做这个也只是为了推广手游 但是因为部分赛马团体就对马娘企划抱有敌意，拒绝合作 把马娘化这是耻辱 这种反对观点一直存在  cy也是拼命在宣传  包括送碧蓝特典都是为了吸引骑空士们去看一看   没有成绩的话，企划也就到这里就算结束了  
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 4128#       发表于 2018-6-10 16:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39938038&amp;ptid=1590696" target="_blank">彩虹之羽 发表于 2018-6-10 15:49</a>
@@ -24331,16 +16247,10 @@ acg狗屋把赛马娘的访谈翻译了
 武丰：我上过的马，加起来有，有一两千匹了吧
 
 
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 4129#       发表于 2018-6-10 16:29
-
 
 
  本帖最后由 彩虹之羽 于 2018-6-10 16:33 编辑 
@@ -24351,16 +16261,10 @@ acg狗屋把赛马娘的访谈翻译了
 当做赛马宣传的广告片吧  业内人士感觉也是对此褒贬不一  不然也不会有很多团体反对导致cy版权不齐
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 4130#       发表于 2018-6-10 16:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39938320&amp;ptid=1590696" target="_blank">彩虹之羽 发表于 2018-6-10 16:18</a>
@@ -24369,13 +16273,7 @@ acg狗屋把赛马娘的访谈翻译了
 这玩意就没实锤过，一直是网络流言
 
 
-
 而且事实上就是关于那票没出的马问题日本最高院给的结果就是马没有知识产权，一票马cy可以强行上，只是cy现在还要脸
-
-
-
-
-
 
 
 -----
@@ -24384,16 +16282,10 @@ acg狗屋把赛马娘的访谈翻译了
 ##### 4131#       发表于 2018-6-10 16:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39938484&amp;ptid=1590696" target="_blank">センコウ 发表于 2018-6-10 16:33</a>
 
 这玩意就没实锤过，一直是网络流言</blockquote>
 这么有意思的么？
-
-
-
-
-
 
 
 -----
@@ -24402,23 +16294,16 @@ acg狗屋把赛马娘的访谈翻译了
 ##### 4132#       发表于 2018-6-10 16:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39938539&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-6-10 16:37</a>
 
 这么有意思的么？</blockquote>
 以前TECMO有个赛马游戏系列无断使用被社台告过，最后官司一路打到最高法院被判竞走马没有知识产权，社台败诉
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 4133#       发表于 2018-6-10 16:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39938603&amp;ptid=1590696" target="_blank">センコウ 发表于 2018-6-10 16:41</a>
@@ -24431,16 +16316,10 @@ acg狗屋把赛马娘的访谈翻译了
 还是想和平解决
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 4134#       发表于 2018-6-10 16:48
-
 
 
  本帖最后由 センコウ 于 2018-6-10 16:51 编辑 
@@ -24462,16 +16341,10 @@ acg狗屋把赛马娘的访谈翻译了
 如果今晚日本cup能拿到授权ファンファーレ的话就好了
 
 
-
-
-
-
-
 -----
 
 ####  lyzcs  
 ##### 4135#       发表于 2018-6-10 20:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39937517&amp;ptid=1590696" target="_blank">Demi.Albertini 发表于 2018-6-10 14:47</a>
@@ -24480,16 +16353,10 @@ Justify的血统表真华丽…………</blockquote>
 求讲解，表示三代以内只认识一个Mr. Prospector。。。
 
 
-
-
-
-
-
 -----
 
 ####  supergilaboy  
 ##### 4136#       发表于 2018-6-10 20:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39938320&amp;ptid=1590696" target="_blank">彩虹之羽 发表于 2018-6-10 16:18</a>
@@ -24498,16 +16365,10 @@ Justify的血统表真华丽…………</blockquote>
 送碧蓝特典这招确定不是搬石头砸脚吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 4137#       发表于 2018-6-10 20:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39940805&amp;ptid=1590696" target="_blank">supergilaboy 发表于 2018-6-10 20:43</a>
@@ -24516,16 +16377,10 @@ Justify的血统表真华丽…………</blockquote>
 如果拍得不好是的,但既然拍得好就沒問題
 
 
-
-
-
-
-
 -----
 
 ####  supergilaboy  
 ##### 4138#       发表于 2018-6-10 21:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39940878&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-6-10 20:50</a>
@@ -24534,16 +16389,10 @@ Justify的血统表真华丽…………</blockquote>
 和你持相反想法，就是拍得好才不需要画蛇添足
 
 
-
-
-
-
-
 -----
 
 ####  aaron17  
 ##### 4139#       发表于 2018-6-10 21:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39940971&amp;ptid=1590696" target="_blank">supergilaboy 发表于 2018-6-10 21:01</a>
@@ -24552,17 +16401,10 @@ Justify的血统表真华丽…………</blockquote>
 但说实话，没有碧蓝特典这片可能吸不到现在这么高的人气
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 4140#       发表于 2018-6-10 21:22
-
-
 
 
 这位小姐你的眼神比那我呢女士还要可怕诶<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
@@ -24579,21 +16421,10 @@ pid = 68950502
 2018-6-10 21:22 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 4141#       发表于 2018-6-10 22:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39940971&amp;ptid=1590696" target="_blank">supergilaboy 发表于 2018-6-10 21:01</a>
@@ -24602,16 +16433,10 @@ pid = 68950502
 拍的再好也就是1W撑死，现在有可能4W保底
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 4142#       发表于 2018-6-10 22:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39941735&amp;ptid=1590696" target="_blank">センコウ 发表于 2018-6-10 22:21</a>
@@ -24620,16 +16445,10 @@ pid = 68950502
 4W 不现实，看壁吧预测，大约1W5的样子
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 4143#       发表于 2018-6-10 22:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39941845&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-6-10 22:33</a>
@@ -24643,25 +16462,13 @@ pid = 68950502
 巴哈现在没使用的单纯码价格比当初4个bd总价还贵……
 
 
-
-
-
-
-
 -----
 
 ####  猿飞日斩3  
 ##### 4144#       发表于 2018-6-10 22:56
 
 
-
-
 对于我这种马娘骑空士双修的再好不过了
-
-
-
-
-
 
 
 -----
@@ -24670,14 +16477,7 @@ pid = 68950502
 ##### 4145#       发表于 2018-6-10 23:05
 
 
-
-
 这集的駅变成4点了（重点错<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24686,15 +16486,9 @@ pid = 68950502
 ##### 4146#       发表于 2018-6-10 23:13
 
 
-
  本帖最后由 shadow001 于 2018-6-10 23:14 编辑 
 
 抛披風後原來要自己拾回來<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24703,14 +16497,7 @@ pid = 68950502
 ##### 4147#       发表于 2018-6-10 23:16
 
 
-
-
 我靠大洋马还有这种骚操作？草上飞又要放杀气了
-
-
-
-
-
 
 
 -----
@@ -24719,21 +16506,13 @@ pid = 68950502
 ##### 4148#       发表于 2018-6-10 23:22
 
 
-
-
 我是不是能够期待一下有马了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 4149#       发表于 2018-6-10 23:23
-
 
 
  本帖最后由 amulelernen 于 2018-6-10 23:25 编辑 
@@ -24754,38 +16533,19 @@ pid = 68950502
 2018-6-10 23:24 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  tioit  
 ##### 4150#       发表于 2018-6-10 23:24
 
 
-
-
 居然有live！！<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  センコウ  
 ##### 4151#       发表于 2018-6-10 23:25
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/10/232440ydkkhtt7qhkkq4h4.png" referrerpolicy="no-referrer">
@@ -24798,26 +16558,13 @@ pid = 68950502
 2018-6-10 23:24 上传
 
 
-
-
-
-
-
-
 肯定是暗示2期主角！
-
-
-
-
-
 
 
 -----
 
 ####  物流大亨常凯申  
 ##### 4152#       发表于 2018-6-10 23:25
-
-
 
 
 绝了
@@ -24827,27 +16574,15 @@ pid = 68950502
 动了两秒回归ppt本质
 
 
-
-
-
-
-
 -----
 
 ####  aaron17  
 ##### 4153#       发表于 2018-6-10 23:26
 
 
-
-
 夢の第１１レース<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 — from Sony SOV36, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0-play
-
-
-
-
-
 
 
 -----
@@ -24856,23 +16591,16 @@ pid = 68950502
 ##### 4154#       发表于 2018-6-10 23:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942358&amp;ptid=1590696" target="_blank">センコウ 发表于 2018-6-10 23:25</a>
 
 肯定是暗示2期主角！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">目前的版权马里又没有长这样的啊
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 4155#       发表于 2018-6-10 23:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942366&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-6-10 23:25</a>
@@ -24885,25 +16613,13 @@ pid = 68950502
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我赌5毛下话有真LIVEwdt一起来うまうまぴょい
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 4156#       发表于 2018-6-10 23:28
 
 
-
-
 有马被吃了，这直接WDT了吧
-
-
-
-
-
 
 
 -----
@@ -24912,16 +16628,10 @@ pid = 68950502
 ##### 4157#       发表于 2018-6-10 23:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942358&amp;ptid=1590696" target="_blank">センコウ 发表于 2018-6-10 23:25</a>
 
 肯定是暗示2期主角！</blockquote>
 看衣服迷人景致和Red Desire没跑了
-
-
-
-
-
 
 
 -----
@@ -24930,14 +16640,7 @@ pid = 68950502
 ##### 4158#       发表于 2018-6-10 23:28
 
 
-
-
 卧槽，这名单，做出来我吹爆<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24946,14 +16649,7 @@ pid = 68950502
 ##### 4159#       发表于 2018-6-10 23:28
 
 
-
-
 下集看来是wdt了，有马被跳了 小草看来已经杀青了
-
-
-
-
-
 
 
 -----
@@ -24962,14 +16658,7 @@ pid = 68950502
 ##### 4160#       发表于 2018-6-10 23:29
 
 
-
-
 其他五人戏份就不演了吗 我的帝王<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24978,13 +16667,7 @@ pid = 68950502
 ##### 4161#       发表于 2018-6-10 23:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个WDT，可以看出监督的私心程度了
-
-
-
-
-
 
 
 -----
@@ -24993,13 +16676,7 @@ pid = 68950502
 ##### 4162#       发表于 2018-6-10 23:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">下集预告果然大家一起上，夢の第１１レース啊啊啊
-
-
-
-
-
 
 
 -----
@@ -25008,18 +16685,10 @@ pid = 68950502
 ##### 4163#       发表于 2018-6-10 23:30
 
 
-
-
-
 确定这个企划的最初，就是这个CM了，“JRA 2015年ＣＭ 「夢の第１１レース」 ，夢幻的第十一場比賽”
 
 
 这集最大的惊喜应该是最后面的live吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25028,14 +16697,7 @@ pid = 68950502
 ##### 4164#       发表于 2018-6-10 23:31
 
 
-
-
 高楼大厦：MMP！
-
-
-
-
-
 
 
 -----
@@ -25044,17 +16706,10 @@ pid = 68950502
 ##### 4165#       发表于 2018-6-10 23:32
 
 
-
-
 那么问题来了，BD4收录的那个新规动画，要做什么内容呢（
 
 
 哎呀把有马补了吧（
-
-
-
-
-
 
 
 -----
@@ -25063,13 +16718,7 @@ pid = 68950502
 ##### 4166#       发表于 2018-6-10 23:32
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这世界架空的WDT新年初头而且是最强级别的比赛，作为年末的有马纪念肯定是异常尴尬……甚至根本没有
-
-
-
-
-
 
 
 -----
@@ -25078,14 +16727,7 @@ pid = 68950502
 ##### 4167#       发表于 2018-6-10 23:33
 
 
-
-
 圣王光环成功挤进饭桌四人组，还和星云天空有点cp像已经可喜可贺了
-
-
-
-
-
 
 
 -----
@@ -25094,16 +16736,10 @@ pid = 68950502
 ##### 4168#       发表于 2018-6-10 23:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942463&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-6-10 23:33</a>
 
 圣王光环成功挤进饭桌四人组，还和星云天空有点cp像已经可喜可贺了</blockquote>
 我觉得是星云天空比较可喜可贺，明明是饭桌四人组但大多时候和乌拉拉差不多空气（
-
-
-
-
-
 
 
 -----
@@ -25112,22 +16748,13 @@ pid = 68950502
 ##### 4169#       发表于 2018-6-10 23:34
 
 
-
-
 忘了直播时间<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  天狼Q娃  
 ##### 4170#       发表于 2018-6-10 23:35
-
-
 
 
 望族：编剧当时我状态不好而已，我是真有实力的，求你查明啊！
@@ -25139,16 +16766,10 @@ pid = 68950502
 高楼大厦：Ohit！MMP！
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 4171#       发表于 2018-6-10 23:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942397&amp;ptid=1590696" target="_blank">金色先锋 发表于 2018-6-10 23:28</a>
@@ -25164,16 +16785,10 @@ pid = 68950502
 惊不惊喜，意不意外？
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 4172#       发表于 2018-6-10 23:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942455&amp;ptid=1590696" target="_blank">センコウ 发表于 2018-6-10 23:32</a>
@@ -25182,25 +16797,13 @@ pid = 68950502
 主要这个WDT，可能过得时间不短了吧。。spica其他人根本G1比赛都还没跑过几次啊。。
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 4173#       发表于 2018-6-10 23:36
 
 
-
-
 日本盃那邊沒想到石原用了一招"只說第一位是特別週,其他名次自己查吧"<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25209,23 +16812,16 @@ pid = 68950502
 ##### 4174#       发表于 2018-6-10 23:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942494&amp;ptid=1590696" target="_blank">暗黑能乐 发表于 2018-6-10 23:36</a>
 
 主要这个WDT，可能过得时间不短了吧。。spica其他人根本G1比赛都还没跑过几次啊。。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一般这种時は流れて时间都不会短了吧
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 4175#       发表于 2018-6-10 23:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942409&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-6-10 23:28</a>
@@ -25236,16 +16832,10 @@ pid = 68950502
 颜色和体型算是可以对的上，红色系体型高大的Red Desire，以及小巧的黄色Buena Vista
 
 
-
-
-
-
-
 -----
 
 ####  猿飞日斩3  
 ##### 4176#       发表于 2018-6-10 23:41
-
 
 
 <blockquote>暗黑能乐 发表于 2018-6-10 23:34
@@ -25253,16 +16843,10 @@ pid = 68950502
 海报团中最空气的，路人里最主角的，这不正好一对么（拍
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 4177#       发表于 2018-6-10 23:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942532&amp;ptid=1590696" target="_blank">musicat 发表于 2018-6-10 23:41</a>
@@ -25273,17 +16857,10 @@ pid = 68950502
 但看发型不像啊
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 4178#       发表于 2018-6-10 23:42
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/10/234247etzrputehtu7t3ly.jpg" referrerpolicy="no-referrer">
@@ -25296,21 +16873,10 @@ pid = 68950502
 2018-6-10 23:42 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 4179#       发表于 2018-6-10 23:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942539&amp;ptid=1590696" target="_blank">天狼Q娃 发表于 2018-6-10 23:42</a>
@@ -25321,16 +16887,10 @@ Red Desire的人设还没出，
 迷人景致方面，小时候的短发，长大变成长直发，很合理啊。
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 4180#       发表于 2018-6-10 23:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942532&amp;ptid=1590696" target="_blank">musicat 发表于 2018-6-10 23:41</a>
@@ -25344,17 +16904,10 @@ Red Desire的人设还没出，
 那么石原哥哥汗隔壁锦织哥哥一样在泥潭看脑洞就算石锤了吧
 
 
-
-
-
-
-
 -----
 
 ####  hsyg  
 ##### 4181#       发表于 2018-6-10 23:49
-
-
 
 
 望族那里应该还是原来的赛果，所以镜头故意转了。而且最后瞳孔变小应该是表示失速掉下去了。
@@ -25364,32 +16917,19 @@ Red Desire的人设还没出，
 而且LIVE不是3个人的？1个和3个是怎么分？
 
 
-
-
-
-
-
 -----
 
 ####  natmk  
 ##### 4182#       发表于 2018-6-10 23:49
 
 
-
-
 第二季主要真要是迷人景致和红色梦想 那帝王就从三主角变两主角加路人主角了
-
-
-
-
-
 
 
 -----
 
 ####  D-JoeII  
 ##### 4183#       发表于 2018-6-10 23:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942595&amp;ptid=1590696" target="_blank">hsyg 发表于 2018-6-10 23:49</a>
@@ -25400,16 +16940,10 @@ Red Desire的人设还没出，
 PA&amp;石原:會粵語已經不易找,還要找個阿拉伯語的,放過我們吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 4184#       发表于 2018-6-10 23:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942581&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-6-10 23:47</a>
@@ -25430,16 +16964,10 @@ PA&amp;石原:會粵語已經不易找,還要找個阿拉伯語的,放過我們�
 原型里两者的故事足够戏剧性，都不用改编的那种浑然天成。
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 4185#       发表于 2018-6-10 23:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942595&amp;ptid=1590696" target="_blank">hsyg 发表于 2018-6-10 23:49</a>
@@ -25450,16 +16978,10 @@ PA&amp;石原:會粵語已經不易找,還要找個阿拉伯語的,放過我們�
 当时原居民和高楼大厦差距不大，IF话可能是两个挤一下，但舞台都没这三匹，赛果除了小特也没见望族到终点，可能剧组也怕外国马迷们愤怒，干脆赛果你们自己查，我们谁都不想惹。
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 4186#       发表于 2018-6-10 23:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942618&amp;ptid=1590696" target="_blank">musicat 发表于 2018-6-10 23:52</a>
@@ -25471,16 +16993,10 @@ PA&amp;石原:會粵語已經不易找,還要找個阿拉伯語的,放過我們�
 那看看下周结局后有没有宣布第二期制作决定的消息。
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 4187#       发表于 2018-6-10 23:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942629&amp;ptid=1590696" target="_blank">天狼Q娃 发表于 2018-6-10 23:52</a>
@@ -25493,17 +17009,10 @@ PA&amp;石原:會粵語已經不易找,還要找個阿拉伯語的,放過我們�
 现在好像小特领先冲线的优势大过天。
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 4188#       发表于 2018-6-11 00:00
-
-
 
 
 谁都不得罪
@@ -25511,16 +17020,10 @@ PA&amp;石原:會粵語已經不易找,還要找個阿拉伯語的,放過我們�
 这是坠吼的
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 4189#       发表于 2018-6-11 00:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942650&amp;ptid=1590696" target="_blank">天狼Q娃 发表于 2018-6-10 23:55</a>
@@ -25539,25 +17042,13 @@ PA&amp;石原:會粵語已經不易找,還要找個阿拉伯語的,放過我們�
 马娘没理由不做
 
 
-
-
-
-
-
 -----
 
 ####  猿飞日斩3  
 ##### 4190#       发表于 2018-6-11 00:08
 
 
-
-
 pa接下去很忙啊，保守估计等个一年，连cy的亲儿子gbf的二期都没消息，马娘估计要等更久了
-
-
-
-
-
 
 
 -----
@@ -25566,21 +17057,13 @@ pa接下去很忙啊，保守估计等个一年，连cy的亲儿子gbf的二期�
 ##### 4191#       发表于 2018-6-11 00:14
 
 
-
-
 还有下集的话该怎么演夢の第１１レース吗但是有帝王在时间是怎么安排的
-
-
-
-
-
 
 
 -----
 
 ####  物流大亨常凯申  
 ##### 4192#       发表于 2018-6-11 00:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942777&amp;ptid=1590696" target="_blank">natmk 发表于 2018-6-11 00:14</a>
@@ -25597,16 +17080,10 @@ pa接下去很忙啊，保守估计等个一年，连cy的亲儿子gbf的二期�
 直接跳Live，大家都在台上，你也看不出谁是赢家。
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 4193#       发表于 2018-6-11 00:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942792&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-6-11 00:17</a>
@@ -25619,25 +17096,13 @@ pa接下去很忙啊，保守估计等个一年，连cy的亲儿子gbf的二期�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">站C位的就是冠军啊
 
 
-
-
-
-
-
 -----
 
 ####  xer1xxx  
 ##### 4194#       发表于 2018-6-11 00:31
 
 
-
-
 小特终于赢了，还有个人live，猛男落泪了
-
-
-
-
-
 
 
 -----
@@ -25646,14 +17111,7 @@ pa接下去很忙啊，保守估计等个一年，连cy的亲儿子gbf的二期�
 ##### 4195#       发表于 2018-6-11 00:32
 
 
-
-
 本来已经很感动的要关掉了，最后WTF？下周直接WDT？
-
-
-
-
-
 
 
 -----
@@ -25662,22 +17120,13 @@ pa接下去很忙啊，保守估计等个一年，连cy的亲儿子gbf的二期�
 ##### 4196#       发表于 2018-6-11 00:34
 
 
-
-
 星云太惨啦，WDT都没得进。。。我有一个梦想，看草上飞和铃鹿再次直接对决www
-
-
-
-
-
 
 
 -----
 
 ####  cyberpenk  
 ##### 4197#       发表于 2018-6-11 00:35
-
-
 
 
 握日，这个WDT无解了。。。。不是，你们一周目放这样的大招，二期要怎么收尾考虑过吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
@@ -25722,25 +17171,13 @@ pa接下去很忙啊，保守估计等个一年，连cy的亲儿子gbf的二期�
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">人生一片无悔
 
 
-
-
-
-
-
 -----
 
 ####  天命  
 ##### 4198#       发表于 2018-6-11 00:36
 
 
-
-
 已经最终回了吧，夢の第１１レース只是作为彩蛋而已...
-
-
-
-
-
 
 
 -----
@@ -25749,15 +17186,9 @@ pa接下去很忙啊，保守估计等个一年，连cy的亲儿子gbf的二期�
 ##### 4199#       发表于 2018-6-11 00:36
 
 
-
 <img src="https://wx1.sinaimg.cn/mw690/8c175430gy1fs6k0w2topg20fk08rnpd.gif" referrerpolicy="no-referrer">
 
 草上飞女士真可爱
-
-
-
-
-
 
 
 -----
@@ -25766,22 +17197,15 @@ pa接下去很忙啊，保守估计等个一年，连cy的亲儿子gbf的二期�
 ##### 4200#       发表于 2018-6-11 00:39
 
 
-
  本帖最后由 雨猫 于 2018-6-11 00:41 编辑 
 
 完了，这就完了，只有12集
-
-
-
-
-
 
 
 -----
 
 ####  物流大亨常凯申  
 ##### 4201#       发表于 2018-6-11 00:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942892&amp;ptid=1590696" target="_blank">暗黑能乐 发表于 2018-6-11 00:31</a>
@@ -25792,16 +17216,10 @@ pa接下去很忙啊，保守估计等个一年，连cy的亲儿子gbf的二期�
 几个小组合分别登台唱歌，刚好卖CP
 
 
-
-
-
-
-
 -----
 
 ####  nylonchina1  
 ##### 4202#       发表于 2018-6-11 00:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942387&amp;ptid=1590696" target="_blank">aaron17 发表于 2018-6-10 23:26</a>
@@ -25813,16 +17231,10 @@ pa接下去很忙啊，保守估计等个一年，连cy的亲儿子gbf的二期�
 后面出场表都几乎是一样的
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 4203#       发表于 2018-6-11 00:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942924&amp;ptid=1590696" target="_blank">cyberpenk 发表于 2018-6-11 00:35</a>
@@ -25834,17 +17246,10 @@ pa接下去很忙啊，保守估计等个一年，连cy的亲儿子gbf的二期�
 二期石原哥哥掏出了黄金巨匠 大震撼 贵妇人 迷人景致这些
 
 
-
-
-
-
-
 -----
 
 ####  stuka1942  
 ##### 4204#       发表于 2018-6-11 00:41
-
-
 
 
 真好看，跑步真开心，小特后宫团这集齐聚，被遗忘的live也想起来了。
@@ -25853,17 +17258,10 @@ pa接下去很忙啊，保守估计等个一年，连cy的亲儿子gbf的二期�
 下一集更厉害的样子<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 4205#       发表于 2018-6-11 00:41
-
-
 
 
 看完熟肉，感想只有一个：
@@ -25873,33 +17271,19 @@ CY爸爸！！！<img src="https://static.saraba1st.com/image/smiley/face2017/13
 <strong>居然真的是把JRA的夢の第１１レース拿来了，3年的诚意！<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"></strong>
 
 
-
-
-
-
-
 -----
 
 ####  101207777  
 ##### 4206#       发表于 2018-6-11 00:42
 
 
-
-
 最后wdt的时间也定了，伏特加制霸日本杯那一年 2009年
-
-
-
-
-
 
 
 -----
 
 ####  nylonchina1  
 ##### 4207#       发表于 2018-6-11 00:44
-
-
 
 
 感觉这回跑的不是非常带感
@@ -25911,16 +17295,10 @@ CY爸爸！！！<img src="https://static.saraba1st.com/image/smiley/face2017/13
 特别是达比，可以说是整部动画里最好看的赛马部分
 
 
-
-
-
-
-
 -----
 
 ####  多多天下  
 ##### 4208#       发表于 2018-6-11 00:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942494&amp;ptid=1590696" target="_blank">暗黑能乐 发表于 2018-6-10 23:36</a>
@@ -25934,16 +17312,10 @@ CY爸爸！！！<img src="https://static.saraba1st.com/image/smiley/face2017/13
 起码一年了啊这。所以前半应该就是这一年多的略版了
 
 
-
-
-
-
-
 -----
 
 ####  unnilennium  
 ##### 4209#       发表于 2018-6-11 00:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942933&amp;ptid=1590696" target="_blank">天命 发表于 2018-6-11 00:36</a>
@@ -25962,17 +17334,10 @@ CY爸爸！！！<img src="https://static.saraba1st.com/image/smiley/face2017/13
 【ご視聴ありがとうございました！】TOKYO MX・BS11でのアニメ『ウマ娘 』第12Rの放送が終了いたしました。このあとカンテレでは26:00～放送！いつもと放送時間が変更となっていますので、ご視聴の際はご注意ください。他各局での放送・配信もお楽しみに！<strong>次週放送も宜しくお願い致します！</strong>
 
 
-
-
-
-
-
 -----
 
 ####  Fingest  
 ##### 4210#       发表于 2018-6-11 00:49
-
-
 
 
 上周铃鹿特别周跑法 这周特别周铃鹿跑法
@@ -25980,16 +17345,10 @@ CY爸爸！！！<img src="https://static.saraba1st.com/image/smiley/face2017/13
 又睡不着了继续二刷
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 4211#       发表于 2018-6-11 00:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942997&amp;ptid=1590696" target="_blank">多多天下 发表于 2018-6-11 00:46</a>
@@ -26000,16 +17359,10 @@ CY爸爸！！！<img src="https://static.saraba1st.com/image/smiley/face2017/13
 我觉得这时间线也未必按真实世界来啊....动画完全可以原创一个WDT出来接着日本杯嘛
 
 
-
-
-
-
-
 -----
 
 ####  多多天下  
 ##### 4212#       发表于 2018-6-11 01:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39943032&amp;ptid=1590696" target="_blank">ramiel 发表于 2018-6-11 00:52</a>
@@ -26021,25 +17374,13 @@ CY爸爸！！！<img src="https://static.saraba1st.com/image/smiley/face2017/13
 其实过个5年比较好，这样方便把迷人景致直接放去观众席上看她爹跑步
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 4213#       发表于 2018-6-11 01:07
 
 
-
-
 希望一年后版权谈好来，下次迷人景致等版权搞定再搞次梦之杯，毕竟梦之杯能重复参赛马，来场父子对决赛
-
-
-
-
-
 
 
 -----
@@ -26048,21 +17389,13 @@ CY爸爸！！！<img src="https://static.saraba1st.com/image/smiley/face2017/13
 ##### 4214#       发表于 2018-6-11 01:15
 
 
-
-
 WDT不会真做吧，谁赢都不合适啊
-
-
-
-
-
 
 
 -----
 
 ####  ramiel  
 ##### 4215#       发表于 2018-6-11 01:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39943101&amp;ptid=1590696" target="_blank">多多天下 发表于 2018-6-11 01:06</a>
@@ -26074,32 +17407,19 @@ WDT不会真做吧，谁赢都不合适啊
 迷人景致没放在名单里面吧....
 
 
-
-
-
-
-
 -----
 
 ####  金色先锋  
 ##### 4216#       发表于 2018-6-11 01:23
 
 
-
-
 小栗帽那一代的马好惨，就小栗帽一个参加WDT（玉藻十字、稻荷一、超级小海湾：那我呢？）
-
-
-
-
-
 
 
 -----
 
 ####  多多天下  
 ##### 4217#       发表于 2018-6-11 01:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39943183&amp;ptid=1590696" target="_blank">ramiel 发表于 2018-6-11 01:21</a>
@@ -26111,16 +17431,10 @@ WDT不会真做吧，谁赢都不合适啊
 OK二期有了
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 4218#       发表于 2018-6-11 01:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39943199&amp;ptid=1590696" target="_blank">多多天下 发表于 2018-6-11 01:23</a>
@@ -26132,16 +17446,10 @@ OK二期有了</blockquote>
 那要看cy爸爸版权究竟想怎么搞了....
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 4219#       发表于 2018-6-11 01:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39943221&amp;ptid=1590696" target="_blank">ramiel 发表于 2018-6-11 01:26</a>
@@ -26154,25 +17462,13 @@ OK二期有了</blockquote>
 打个擦边球
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 4220#       发表于 2018-6-11 01:38
 
 
-
-
 先看看ova做啥吧，多半会换主角…
-
-
-
-
-
 
 
 -----
@@ -26181,21 +17477,13 @@ OK二期有了</blockquote>
 ##### 4221#       发表于 2018-6-11 01:43
 
 
-
-
 ova多半就是搞笑日常卖cp了
-
-
-
-
-
 
 
 -----
 
 ####  ramiel  
 ##### 4222#       发表于 2018-6-11 01:49
-
 
 
 <blockquote>物流大亨常凯申 发表于 2018-6-11 01:43
@@ -26205,27 +17493,15 @@ ova多半就是搞笑日常卖cp了</blockquote>
 搞笑日常喝茶片反倒还要现编剧情了…
 
 
-
-
-
-
-
 -----
 
 ####  郁夫  
 ##### 4223#       发表于 2018-6-11 01:56
 
 
-
-
 草女士這耳朵 萌到我 
 
 嬌妻 嬌妻!
-
-
-
-
-
 
 
 -----
@@ -26234,15 +17510,9 @@ ova多半就是搞笑日常卖cp了</blockquote>
 ##### 4224#       发表于 2018-6-11 02:20
 
 
-
 <blockquote>ramiel 发表于 2018-6-11 01:38
 先看看ova做啥吧，多半会换主角…</blockquote>
 可能做空白期内其他队员的赛事，特别是帝皇。也有可能是乌拉拉，小栗帽的个人故事。
-
-
-
-
-
 
 
 -----
@@ -26251,16 +17521,9 @@ ova多半就是搞笑日常卖cp了</blockquote>
 ##### 4225#       发表于 2018-6-11 02:38
 
 
-
-
 下集这个阵容厉害了
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -26269,14 +17532,7 @@ ova多半就是搞笑日常卖cp了</blockquote>
 ##### 4226#       发表于 2018-6-11 02:40
 
 
-
-
 阿草真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26285,15 +17541,9 @@ ova多半就是搞笑日常卖cp了</blockquote>
 ##### 4227#       发表于 2018-6-11 02:40
 
 
-
  本帖最后由 猿飞日斩3 于 2018-6-11 02:44 编辑 
 
 战吧突然冒出个铃鹿幽灵论，其实这集铃鹿瞬移到地下通道对着小特笑是挺诡异的，细思极恐
-
-
-
-
-
 
 
 -----
@@ -26302,14 +17552,7 @@ ova多半就是搞笑日常卖cp了</blockquote>
 ##### 4228#       发表于 2018-6-11 02:55
 
 
-
-
 这话有些地方和第八话有点像，特别周一贯跑法，望族和草上飞同样紧盯特别周，特别周脸部阴影处理看不到眼睛和那话的草上飞一样，特别周冲线后跪在了草地上也和第八话一样。
-
-
-
-
-
 
 
 -----
@@ -26318,14 +17561,7 @@ ova多半就是搞笑日常卖cp了</blockquote>
 ##### 4229#       发表于 2018-6-11 04:03
 
 
-
-
 奶一口我草就算下集没有有马戏份，到时候BD完全新规也是讲有马，一集长度刚刚好！
-
-
-
-
-
 
 
 -----
@@ -26334,13 +17570,7 @@ ova多半就是搞笑日常卖cp了</blockquote>
 ##### 4230#       发表于 2018-6-11 05:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">阿草太可爱了我要死了
-
-
-
-
-
 
 
 -----
@@ -26349,16 +17579,10 @@ ova多半就是搞笑日常卖cp了</blockquote>
 ##### 4231#       发表于 2018-6-11 05:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39943704&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-6-11 02:40</a>
 
 战吧突然冒出个铃鹿幽灵论，其实这集铃鹿瞬移到地下通道对着小特笑是挺诡异的，细思极恐 ...</blockquote>
 刚看到那是挺恐怖的，但铃鹿后来有回到观众席的镜头啊
-
-
-
-
-
 
 
 -----
@@ -26367,22 +17591,13 @@ ova多半就是搞笑日常卖cp了</blockquote>
 ##### 4232#       发表于 2018-6-11 05:55
 
 
-
-
 另外之前学园祭的时候就觉得连续几集作画都太用力了，果然最后这三分之一明显撑不住了w
-
-
-
-
-
 
 
 -----
 
 ####  Laie  
 ##### 4233#       发表于 2018-6-11 06:09
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/11/060902fo44eept04ey0enx.png" referrerpolicy="no-referrer">
@@ -26395,16 +17610,7 @@ ova多半就是搞笑日常卖cp了</blockquote>
 2018-6-11 06:09 上传
 
 
-
-
-
-
 果然不止我一个被这集細江姐姐配音水平的提高惊到了w
-
-
-
-
-
 
 
 -----
@@ -26413,16 +17619,10 @@ ova多半就是搞笑日常卖cp了</blockquote>
 ##### 4234#       发表于 2018-6-11 06:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39943331&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-6-11 01:43</a>
 
 ova多半就是搞笑日常卖cp了</blockquote>
 說不定OVA把之前跳過了的比賽補回來
-
-
-
-
-
 
 
 -----
@@ -26431,21 +17631,13 @@ ova多半就是搞笑日常卖cp了</blockquote>
 ##### 4235#       发表于 2018-6-11 06:44
 
 
-
-
 大树快车：我只跑短距离，长距离的梦之杯拿我开玩喜吗？
-
-
-
-
-
 
 
 -----
 
 ####  zechins  
 ##### 4236#       发表于 2018-6-11 07:57
-
 
 
  本帖最后由 zechins 于 2018-6-11 08:04 编辑 
@@ -26464,9 +17656,6 @@ ova多半就是搞笑日常卖cp了</blockquote>
 2018-6-11 08:03 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/11/080342akxiaiuu7laxussk.png" referrerpolicy="no-referrer">
 
 
@@ -26477,22 +17666,13 @@ ova多半就是搞笑日常卖cp了</blockquote>
 2018-6-11 08:03 上传
 
 
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 4237#       发表于 2018-6-11 08:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39945918&amp;ptid=1590696" target="_blank">zechins 发表于 2018-6-11 07:57</a>
@@ -26503,16 +17683,10 @@ ova多半就是搞笑日常卖cp了</blockquote>
 右边那对晚上约好喝酒的样子
 
 
-
-
-
-
-
 -----
 
 ####  depthlee  
 ##### 4238#       发表于 2018-6-11 08:25
-
 
 
 <blockquote>zechins 发表于 2018-6-11 07:57
@@ -26523,16 +17697,10 @@ ova多半就是搞笑日常卖cp了</blockquote>
 虽然只是无端妄想，当妈妈说出这是我们两个的女儿的时候，我满脑袋都是：你终于承认是你上了斯佩的妈了吧！（死）
 
 
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 4239#       发表于 2018-6-11 08:37
-
 
 
 <blockquote>zechins 发表于 2018-6-11 07:57
@@ -26543,32 +17711,19 @@ ova多半就是搞笑日常卖cp了</blockquote>
 随便猜测一下可能是7.7 abematv 会在6.20号直播动画最终话加放送特番  这时候正适合公布手游开服信息   因为首卷会在7.18发售 这算是离这个最近的节日了
 
 
-
-
-
-
-
 -----
 
 ####  wuxiaojing  
 ##### 4240#       发表于 2018-6-11 08:43
 
 
-
-
 虽然做出来的确很开心，但是果然还是更想看真正带大震撼西皮先生黄金巨匠和龟波王的原版（虽然我知道万恶的大人因素没法做……但果然还是好想看游戏版黄金巨匠啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
-
-
-
-
-
 
 
 -----
 
 ####  musicat  
 ##### 4241#       发表于 2018-6-11 08:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39945918&amp;ptid=1590696" target="_blank">zechins 发表于 2018-6-11 07:57</a>
@@ -26580,16 +17735,10 @@ ova多半就是搞笑日常卖cp了</blockquote>
 辛苦了，要知道撞到你的可是特别胖啊<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 4242#       发表于 2018-6-11 08:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39946262&amp;ptid=1590696" target="_blank">wuxiaojing 发表于 2018-6-11 08:43</a>
@@ -26598,16 +17747,10 @@ ova多半就是搞笑日常卖cp了</blockquote>
 西皮先生有拿到版權
 
 
-
-
-
-
-
 -----
 
 ####  金色先锋  
 ##### 4243#       发表于 2018-6-11 08:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39946294&amp;ptid=1590696" target="_blank">musicat 发表于 2018-6-11 08:47</a>
@@ -26616,25 +17759,13 @@ ova多半就是搞笑日常卖cp了</blockquote>
 日本杯这时，特别周体重468kg
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 4244#       发表于 2018-6-11 08:52
 
 
-
-
 SYGG求你快开服吧，没游戏玩我要死了欧捏该，他诺姆
-
-
-
-
-
 
 
 -----
@@ -26643,16 +17774,10 @@ SYGG求你快开服吧，没游戏玩我要死了欧捏该，他诺姆
 ##### 4245#       发表于 2018-6-11 09:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39946305&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-6-11 08:47</a>
 
 西皮先生有拿到版權</blockquote>
 哦哦，那就请cy爹加油把黄金巨匠拿下来吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
-
-
-
-
-
 
 
 -----
@@ -26661,16 +17786,10 @@ SYGG求你快开服吧，没游戏玩我要死了欧捏该，他诺姆
 ##### 4246#       发表于 2018-6-11 09:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39946305&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-6-11 08:47</a>
 
 西皮先生有拿到版權</blockquote>
 抽了
-
-
-
-
-
 
 
 -----
@@ -26679,21 +17798,13 @@ SYGG求你快开服吧，没游戏玩我要死了欧捏该，他诺姆
 ##### 4247#       发表于 2018-6-11 09:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> cy粑粑不要脸强行上个迷人景致吧，只求父女团聚
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 4248#       发表于 2018-6-11 09:22
-
-
 
 
 完   全   一   致
@@ -26708,11 +17819,6 @@ SYGG求你快开服吧，没游戏玩我要死了欧捏该，他诺姆
 2018-6-11 09:22 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/11/092201taxtilttv2alvtir.jpg" referrerpolicy="no-referrer">
 
 
@@ -26723,30 +17829,13 @@ SYGG求你快开服吧，没游戏玩我要死了欧捏该，他诺姆
 2018-6-11 09:22 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 4249#       发表于 2018-6-11 09:22
 
 
-
-
 没有马娘最后一话和手游玩我要死了.jpg
-
-
-
-
-
 
 
 -----
@@ -26755,14 +17844,7 @@ SYGG求你快开服吧，没游戏玩我要死了欧捏该，他诺姆
 ##### 4250#       发表于 2018-6-11 09:32
 
 
-
-
 草女士太可爱了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这怎么遭得住呀
-
-
-
-
-
 
 
 -----
@@ -26771,16 +17853,9 @@ SYGG求你快开服吧，没游戏玩我要死了欧捏该，他诺姆
 ##### 4251#       发表于 2018-6-11 10:05
 
 
-
-
 其实想想，最后的梦幻出马表，只是12集的小彩蛋吧，放最后也许就不会直接做出来了。
 
 下一话还是周日晚上吗？不知道会演什么。
-
-
-
-
-
 
 
 -----
@@ -26789,14 +17864,7 @@ SYGG求你快开服吧，没游戏玩我要死了欧捏该，他诺姆
 ##### 4252#       发表于 2018-6-11 10:11
 
 
-
-
 虽然没有大震撼和黄金巨匠让WDT比起夢の第１１レース稍显遗憾，但不得不说CY真是懂人心啊，连马娘的介绍都是参照CM的内容，超级感动
-
-
-
-
-
 
 
 -----
@@ -26805,16 +17873,9 @@ SYGG求你快开服吧，没游戏玩我要死了欧捏该，他诺姆
 ##### 4253#       发表于 2018-6-11 10:44
 
 
-
-
 少了爱丽速子      龟波王    cb先生  大震撼    迷人景致  黄金巨匠   
 
 增了希希亚马逊  丸善滑雪  草上飞  富士奇迹  黄金船    琵琶晨光
-
-
-
-
-
 
 
 -----
@@ -26823,14 +17884,7 @@ SYGG求你快开服吧，没游戏玩我要死了欧捏该，他诺姆
 ##### 4254#       发表于 2018-6-11 11:31
 
 
-
-
 OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上飞篇（有马记念）这样如何
-
-
-
-
-
 
 
 -----
@@ -26839,14 +17893,7 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 ##### 4255#       发表于 2018-6-11 11:41
 
 
-
-
 话说你们怎么确定是三篇，没说过吧
-
-
-
-
-
 
 
 -----
@@ -26855,23 +17902,15 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 ##### 4256#       发表于 2018-6-11 11:53
 
 
-
-
 哎，最后那段梦幻对决，感动死了
 
 —— 来自 OnePlus ONEPLUS A5010, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
 
 ####  mjlic  
 ##### 4257#       发表于 2018-6-11 12:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39948488&amp;ptid=1590696" target="_blank">暗黑能乐 发表于 2018-6-11 11:41</a>
@@ -26891,37 +17930,19 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 2018-6-11 12:00 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  坂木静香  
 ##### 4258#       发表于 2018-6-11 12:33
 
 
-
-
 想摸草上飞的耳朵
-
-
-
-
-
 
 
 -----
 
 ####  DOACAON  
 ##### 4259#       发表于 2018-6-11 13:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39942989&amp;ptid=1590696" target="_blank">nylonchina1 发表于 2018-6-10 10:44</a>
@@ -26936,16 +17957,10 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 如果有二期，还是应该做群像剧，每匹马用各自不同的跑法来获胜就会比较精彩
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 4260#       发表于 2018-6-11 13:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39948765&amp;ptid=1590696" target="_blank">mjlic 发表于 2018-6-11 12:00</a>
@@ -26956,25 +17971,13 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 写是这么写，但也有可能是14-16联播成一话吧
 
 
-
-
-
-
-
 -----
 
 ####  classa  
 ##### 4261#       发表于 2018-6-11 13:37
 
 
-
-
 小草贴耳的那个动作太萌了吧，严重犯规啊
-
-
-
-
-
 
 
 -----
@@ -26983,15 +17986,9 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 ##### 4262#       发表于 2018-6-11 14:00
 
 
-
 <blockquote>DOACAON 发表于 2018-6-11 13:21
 主要也是小特的跑法一以贯之，之前能做的套路也都做出来了，跑步本身也是很单纯直接的运动，后面的比赛就 ...</blockquote>
 其实我觉得表情和冲刺特效可以再加强一些 其实最后冲刺的时候有特别周压低身子的表现 但是有些不够明显…
-
-
-
-
-
 
 
 -----
@@ -27000,22 +17997,15 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 ##### 4263#       发表于 2018-6-11 14:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39950018&amp;ptid=1590696" target="_blank">Renes 发表于 2018-6-11 14:00</a>
 其实我觉得表情和冲刺特效可以再加强一些 其实最后冲刺的时候有特别周压低身子的表现 但是有些不够明显… ...</blockquote>
 其实做的最好的那一场还是小草那一次，小草跑的太帅了
-
-
-
-
-
 
 
 -----
 
 ####  絹川健一  
 ##### 4264#       发表于 2018-6-11 14:21
-
 
 
  本帖最后由 絹川健一 于 2018-6-11 14:23 编辑 
@@ -27025,16 +18015,10 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 这个镜头挺莫名其妙的，希望BD能修掉，这里完全没有铃鹿出场的意义在。小特走出通道就跑去观众席和Spica交流了，不存在看不到铃鹿的情况；说用来树立信心吧，这个时点插个神鹰也比铃鹿合适吧
 
 
-
-
-
-
-
 -----
 
 ####  κύων  
 ##### 4265#       发表于 2018-6-11 15:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39948371&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-11 11:31</a>
@@ -27043,16 +18027,10 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 我记得帝王好像原本名义上是和铃特组三巨头的<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 4266#       发表于 2018-6-11 15:20
-
 
 
  本帖最后由 Goisdust 于 2018-6-11 23:04 编辑 
@@ -27064,27 +18042,15 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  偶像程序员POI  
 ##### 4267#       发表于 2018-6-11 15:40
 
 
-
-
 感觉这集拍得不好，最后决战的气氛没搞出来。甚至没前几集的某场比赛好看
 
 估计还是一集塞太多东西进去的原因
-
-
-
-
-
 
 
 -----
@@ -27093,16 +18059,9 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 ##### 4268#       发表于 2018-6-11 15:51
 
 
-
-
 我倒觉得单纯因为这一集是真的毫无悬念的原因吧，所有人都知道肯定会赢……
 
 不过反过来说，小草这一集真是。。。萌度爆炸，就一个动作简直是。。万马无光
-
-
-
-
-
 
 
 -----
@@ -27111,14 +18070,7 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 ##### 4269#       发表于 2018-6-11 16:01
 
 
-
-
 东海帝王还是时间上挤不进去啊，倒不如说她自己那段包括麦昆米浴这些都能组个自己的故事了
-
-
-
-
-
 
 
 -----
@@ -27127,13 +18079,7 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 ##### 4270#       发表于 2018-6-11 17:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">及川监督草上飞厨无误吧，坐等私货
-
-
-
-
-
 
 
 -----
@@ -27142,16 +18088,10 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 ##### 4271#       发表于 2018-6-11 17:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39952587&amp;ptid=1590696" target="_blank">暗黑能乐 发表于 2018-6-11 17:36</a>
 
 及川监督草上飞厨无误吧，坐等私货</blockquote>
 最后同框大好评！我永远支持草女士！
-
-
-
-
-
 
 
 -----
@@ -27160,24 +18100,16 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 ##### 4272#       发表于 2018-6-11 18:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39941105&amp;ptid=1590696" target="_blank">aaron17 发表于 2018-6-10 21:16</a>
 
 但说实话，没有碧蓝特典这片可能吸不到现在这么高的人气</blockquote>
 这片人气跟碧蓝特点有啥关系，只能说碟片没碧蓝特典可能没这么高预约量。
 
 
-
-
-
-
-
 -----
 
 ####  猿飞日斩3  
 ##### 4273#       发表于 2018-6-11 18:52
-
-
 
 
 草上飞那集可是导演及川启当分镜，副监督当演出啊
@@ -27187,27 +18119,15 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 如果没有那真是草上飞厨了
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 4274#       发表于 2018-6-11 19:46
 
 
-
-
 阿草那只耳朵是真的<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 最后还能强行同框，知足了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27216,14 +18136,7 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 ##### 4275#       发表于 2018-6-11 19:58
 
 
-
-
 草特没认真干一次的话心里还是有缺憾，假如放OVA4卷必收
-
-
-
-
-
 
 
 -----
@@ -27232,14 +18145,7 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 ##### 4276#       发表于 2018-6-11 22:02
 
 
-
-
 隔壁超女里都出现名字同框了，肯定是草上飞厨啊
-
-
-
-
-
 
 
 -----
@@ -27248,14 +18154,7 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 ##### 4277#       发表于 2018-6-11 22:15
 
 
-
-
 绿发路人<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27264,22 +18163,13 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 ##### 4278#       发表于 2018-6-11 22:22
 
 
-
-
 小车那段太可爱了 好想捏下耳朵<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 4279#       发表于 2018-6-11 23:04
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/11/230452z4cvzkp4p3azmxqm.jpg" referrerpolicy="no-referrer">
@@ -27292,18 +18182,9 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 2018-6-11 23:04 上传
 
 
-
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -27313,20 +18194,13 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 | 白房子| + 1|太惨了|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  zechins  
 ##### 4280#       发表于 2018-6-11 23:24
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/11/232354dm502npbbw88hatw.png" referrerpolicy="no-referrer">
@@ -27339,22 +18213,13 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 2018-6-11 23:23 上传
 
 
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">“你们爹当年（ry”
-
-
-
-
-
 
 
 -----
 
 ####  musicat  
 ##### 4281#       发表于 2018-6-11 23:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39956072&amp;ptid=1590696" target="_blank">zechins 发表于 2018-6-11 23:24</a>
@@ -27365,16 +18230,10 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 不过左边的发色也要改淡一点。
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 4282#       发表于 2018-6-11 23:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39956072&amp;ptid=1590696" target="_blank">zechins 发表于 2018-6-11 23:24</a>
@@ -27383,16 +18242,10 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 就不能P个草女士么？<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cyberpenk  
 ##### 4283#       发表于 2018-6-12 00:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39956072&amp;ptid=1590696" target="_blank">zechins 发表于 2018-6-11 23:24</a>
@@ -27401,26 +18254,15 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 <img src="http://cdn.image.rainman.me/images/f4fE.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 4284#       发表于 2018-6-12 00:11
 
 
-
 <blockquote>cyberpenk 发表于 2018-6-12 00:09
 </blockquote>
 皮皮船：你看看你（
-
-
-
-
-
 
 
 -----
@@ -27429,21 +18271,13 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 ##### 4285#       发表于 2018-6-12 01:16
 
 
-
-
 看了看手游的宣传视频，果然是跟所有的偶像类游戏一样，同一个角色会出好几张卡……每张卡都要从头培养。而养成模式部分更像是单机游戏……估计养成周期不短
-
-
-
-
-
 
 
 -----
 
 ####  物流大亨常凯申  
 ##### 4286#       发表于 2018-6-12 01:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39956950&amp;ptid=1590696" target="_blank">a94939291 发表于 2018-6-12 01:16</a>
@@ -27454,25 +18288,13 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 隔壁SC的玩法，不过这套本质上都是从偶像大师街机过来的
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 4287#       发表于 2018-6-12 02:04
 
 
-
-
 其实我还挺想看cy做那个广告里的红白机风格马娘游戏…
-
-
-
-
-
 
 
 -----
@@ -27481,22 +18303,13 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 ##### 4288#       发表于 2018-6-12 13:29
 
 
-
-
 刚看了这集，神鹰那句法语是“胜利属于我”，日语字幕翻译成“别太得意”，总觉得这两个嘲讽度完全不同。
-
-
-
-
-
 
 
 -----
 
 ####  鸣神  
 ##### 4289#       发表于 2018-6-12 15:08
-
-
 
 
 今年殿堂马评选结果出来了，龙王殿堂马，小特女儿和小特第二第三
@@ -27525,27 +18338,15 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 ゴールドシップ 44 (23.2%)
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 4290#       发表于 2018-6-12 15:22
 
 
-
-
 唉，老特没有机会了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -27554,14 +18355,7 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 ##### 4291#       发表于 2018-6-12 15:36
 
 
-
-
 满乐时意外地不行嘛，居然票数还超不过老特
-
-
-
-
-
 
 
 -----
@@ -27570,21 +18364,13 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 ##### 4292#       发表于 2018-6-12 15:41
 
 
-
-
 2-4没差几票啊，看来有不少人想在最后机会推一下特别周，不过明年肯定是北部玄驹
-
-
-
-
-
 
 
 -----
 
 ####  DOACAON  
 ##### 4293#       发表于 2018-6-12 15:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39963496&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-12 01:22</a>
@@ -27598,25 +18384,13 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 不过实际上明年北部玄驹当选应该毫无悬念，最多也就是看后年了
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 4294#       发表于 2018-6-12 15:44
 
 
-
-
 老特的成绩也确实不太够殿堂级别的，只能说生不逢时，同期太多对手互抢冠军和荣誉。
-
-
-
-
-
 
 
 -----
@@ -27625,23 +18399,16 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 ##### 4295#       发表于 2018-6-12 15:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39963779&amp;ptid=1590696" target="_blank">musicat 发表于 2018-6-12 15:44</a>
 
 老特的成绩也确实不太够殿堂级别的，只能说生不逢时，同期太多对手互抢冠军和荣誉。 ...</blockquote>
 如果不是一鼻之差其实也差不多的，从没有年度代表马开始，简直一鼻抱憾终身……
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 4296#       发表于 2018-6-12 15:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39963767&amp;ptid=1590696" target="_blank">DOACAON 发表于 2018-6-12 15:43</a>
@@ -27652,25 +18419,13 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 后年感觉还有些机会，就是要和女儿分票了
 
 
-
-
-
-
-
 -----
 
 ####  soranoguiji  
 ##### 4297#       发表于 2018-6-12 16:06
 
 
-
-
 老特还是让给女儿吧，迷人景致的竞争对手也蛮多的
-
-
-
-
-
 
 
 -----
@@ -27679,16 +18434,10 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 ##### 4298#       发表于 2018-6-12 16:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39964109&amp;ptid=1590696" target="_blank">soranoguiji 发表于 2018-6-12 16:06</a>
 
 老特还是让给女儿吧，迷人景致的竞争对手也蛮多的</blockquote>
 但是老特时间不多了，迷人景致时间还长，而且机会还比老特大些
-
-
-
-
-
 
 
 -----
@@ -27697,14 +18446,7 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 ##### 4299#       发表于 2018-6-12 18:32
 
 
-
-
 分票的话是一定没有希望，不知道后年还有解禁什么有力马，如果最后一次挑战输给女儿和女婿也算相对好的结局了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27713,24 +18455,16 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 ##### 4300#       发表于 2018-6-12 18:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39965812&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-12 18:32</a>
 
 分票的话是一定没有希望，不知道后年还有解禁什么有力马，如果最后一次挑战输给女儿和女婿也算相对好的结局 ...</blockquote>
 后年应该没有绝对优势的马了，这次投票看满乐时好像也没那么多支持，希望到时候有人给老特造造势
 
 
-
-
-
-
-
 -----
 
 ####  unnilennium  
 ##### 4301#       发表于 2018-6-12 22:39
-
-
 
 
 【あらすじ＆WEB予告公開】EXTRA R「響け、ファンファーレ！」
@@ -27743,16 +18477,10 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 还说为什么这周下集预告出的那么早，结果完全是12集最后那一段，然后不告诉你到底怎么讲，只多了一个13集的标题
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 4302#       发表于 2018-6-12 22:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39968286&amp;ptid=1590696" target="_blank">unnilennium 发表于 2018-6-12 22:39</a>
@@ -27765,16 +18493,10 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 那個14-16話真的是指第2季嗎
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 4303#       发表于 2018-6-12 22:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39968318&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-6-12 22:41</a>
@@ -27787,16 +18509,10 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 从预告看来一定要跑了，不是那种一出闸机就切的开放结局，那么谁赢好呢<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 4304#       发表于 2018-6-12 23:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39968473&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-12 22:59</a>
@@ -27809,16 +18525,10 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 之前跑步各显本事
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 4305#       发表于 2018-6-12 23:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39968687&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-6-12 23:21</a>
@@ -27829,16 +18539,10 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 那也挺无趣的吧，造势成这样结果只是场假赛。不过真如12话旁白的话表示下集伏特加她们的经典战役全跳过了，只能期待之后OVA补完。个人押丸善姥爷，越古越强，没同期比较对象，争议少
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 4306#       发表于 2018-6-12 23:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39968796&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-12 23:31</a>
@@ -27847,32 +18551,19 @@ OVA1星云天空篇（菊花赏）OVA2神鹰篇（圣格卢大赛）OVA3草上�
 JRA都不敢寫結局
 
 
-
-
-
-
-
 -----
 
 ####  多多天下  
 ##### 4307#       发表于 2018-6-12 23:52
 
 
-
-
 开放结局就好，希望前面能做长点，最好能是2400m，大概3分钟左右的完整比赛镜头
-
-
-
-
-
 
 
 -----
 
 ####  物流大亨常凯申  
 ##### 4308#       发表于 2018-6-12 23:55
-
 
 
  本帖最后由 物流大亨常凯申 于 2018-6-13 00:06 编辑 
@@ -27892,26 +18583,13 @@ JRA都不敢寫結局
 也应了开头那句“胜负尚未可知
 
 
-
-
-
-
-
 -----
 
 ####  平贺才人  
 ##### 4309#       发表于 2018-6-13 11:52
 
 
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">硬核，硬核
-
-
-
-
-
 
 
 -----
@@ -27920,14 +18598,7 @@ JRA都不敢寫結局
 ##### 4310#       发表于 2018-6-13 16:35
 
 
-
-
 下集就做WDT的话，这中间几年(?)的坑要怎么填啊？
-
-
-
-
-
 
 
 -----
@@ -27936,16 +18607,10 @@ JRA都不敢寫結局
 ##### 4311#       发表于 2018-6-13 16:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39976959&amp;ptid=1590696" target="_blank">TCone 发表于 2018-6-13 16:35</a>
 
 下集就做WDT的话，这中间几年(?)的坑要怎么填啊？</blockquote>
 手游火热预约中
-
-
-
-
-
 
 
 -----
@@ -27954,14 +18619,7 @@ JRA都不敢寫結局
 ##### 4312#       发表于 2018-6-13 16:53
 
 
-
-
 突然想到，几年后的话，有没有可能玩发型变化www
-
-
-
-
-
 
 
 -----
@@ -27970,14 +18628,7 @@ JRA都不敢寫結局
 ##### 4313#       发表于 2018-6-13 17:27
 
 
-
-
 我还是觉得不一定会过多长时间…字幕也只是说的含混
-
-
-
-
-
 
 
 -----
@@ -27986,24 +18637,16 @@ JRA都不敢寫結局
 ##### 4314#       发表于 2018-6-13 17:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39977674&amp;ptid=1590696" target="_blank">ramiel 发表于 2018-6-13 17:27</a>
 
 我还是觉得不一定会过多长时间…字幕也只是说的含混</blockquote>
 至少一年了，因为有些比赛当年SPICA的队员肯定没参加过啊
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 4315#       发表于 2018-6-13 18:26
-
-
 
 
 2ch看到
@@ -28016,16 +18659,10 @@ JRA都不敢寫結局
 原來的場均(以前草上飛的主戰騎師)也有看啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 4316#       发表于 2018-6-13 18:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39978311&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-6-13 18:26</a>
@@ -28038,16 +18675,10 @@ JRA都不敢寫結局
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">感想只有卡哇伊而已吗，第八集的草上飞算半个的场了吧
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 4317#       发表于 2018-6-13 18:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39977993&amp;ptid=1590696" target="_blank">暗黑能乐 发表于 2018-6-13 17:57</a>
@@ -28062,32 +18693,19 @@ JRA都不敢寫結局
 然后13集开头就是这样的，一位转学来的新人赛马娘在学园里迷路了，正紧张的四处走时远处传来一阵迷妹尖叫。挤进人群一看，发现是特别周领队的7人全员胜负服，在众人夹道欢迎下高调登场<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  TCone  
 ##### 4318#       发表于 2018-6-13 19:57
 
 
-
-
 WDT这个时间点，估计小特和铃鹿已经在阿草老家转一圈回来了
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 4319#       发表于 2018-6-13 20:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39978665&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-13 18:56</a>
@@ -28099,16 +18717,10 @@ WDT这个时间点，估计小特和铃鹿已经在阿草老家转一圈回来�
 然后立马接一个平地摔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 4320#       发表于 2018-6-13 20:45
-
 
 
  本帖最后由 Goisdust 于 2018-6-13 21:26 编辑 
@@ -28125,7 +18737,6 @@ WDT这个时间点，估计小特和铃鹿已经在阿草老家转一圈回来�
 馬にはストレスから自分の馬体を噛む「身っ喰い」という癖があります。
 
 グラスの悲しみを否定せず、噛み付きを拒まず、愛情を持ってそれらを受け入れてあげられる。 スペちゃんにはそういうウマ娘であって欲しいと思い描きました。#ウマ娘
-
 
 
 ①
@@ -28148,10 +18759,6 @@ WDT这个时间点，估计小特和铃鹿已经在阿草老家转一圈回来�
 2018-6-13 20:27 上传
 
 
-
-
-
-
 ②
 
 草：（咦…为什么小特倒下了？齿痕…我对小特…？）
@@ -28166,11 +18773,6 @@ WDT这个时间点，估计小特和铃鹿已经在阿草老家转一圈回来�
 下载附件
 
 2018-6-13 20:27 上传
-
-
-
-
-
 
 
 ③
@@ -28193,24 +18795,10 @@ WDT这个时间点，估计小特和铃鹿已经在阿草老家转一圈回来�
 2018-6-13 20:28 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 4321#       发表于 2018-6-13 21:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39979677&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-13 20:45</a>
@@ -28221,16 +18809,10 @@ WDT这个时间点，估计小特和铃鹿已经在阿草老家转一圈回来�
 我靠，这tm什么展开？这位草也太黑了点……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mjlic  
 ##### 4322#       发表于 2018-6-13 22:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39979677&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-13 20:45</a>
@@ -28246,31 +18828,19 @@ WDT这个时间点，估计小特和铃鹿已经在阿草老家转一圈回来�
 阿草可是老实马啊
 
 
-
-
-
-
-
 -----
 
 ####  猿飞日斩3  
 ##### 4323#       发表于 2018-6-13 22:25
 
 
-
 [https://tieba.baidu.com/p/5745402519](https://tieba.baidu.com/p/5745402519) 毒奶帝王说，真是xswl
-
-
-
-
-
 
 
 -----
 
 ####  TCone  
 ##### 4324#       发表于 2018-6-13 23:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39980620&amp;ptid=1590696" target="_blank">mjlic 发表于 2018-6-13 22:25</a>
@@ -28281,27 +18851,15 @@ WDT这个时间点，估计小特和铃鹿已经在阿草老家转一圈回来�
 意思是老实草+个子小都是有原型的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  meailove  
 ##### 4325#       发表于 2018-6-14 06:47
 
 
-
-
 #赛马娘# 目前，最终话的作监工作已全部完成。今天起，总作画监督椛島洋介就将投入新版权绘及OVA用新人设的工作，敬请期待！
 
 OVA新人设？果然是另外主角的故事啊
-
-
-
-
-
 
 
 -----
@@ -28310,14 +18868,7 @@ OVA新人设？果然是另外主角的故事啊
 ##### 4326#       发表于 2018-6-14 07:47
 
 
-
-
 铃鹿第七话经过的那棵树居然这么玄学。。 本来是要砍了的，影响观看比赛。关键问题是树下面是井田是政的墓地（马场后面这整个地区地名就叫是政，你就知道这个人多*。），井田的后代挥武士刀抗议，最后就作为历史遗迹保留了。另外本来是有两棵树的。一棵被砍了，砍的人突然暴毙，谣传是受到了古墓的报应，之后想请人砍了剩下那棵也没人敢接这个活。 
-
-
-
-
-
 
 
 -----
@@ -28326,21 +18877,13 @@ OVA新人设？果然是另外主角的故事啊
 ##### 4327#       发表于 2018-6-14 08:08
 
 
-
-
 新人设也有可能是加新角色啊，为啥就觉得是新主角了呢
-
-
-
-
-
 
 
 -----
 
 ####  sherlockchu  
 ##### 4328#       发表于 2018-6-14 09:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39979677&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-13 20:45</a>
@@ -28353,16 +18896,10 @@ OVA新人设？果然是另外主角的故事啊
 记得数据上看比特别周有料。
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 4329#       发表于 2018-6-14 10:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39983773&amp;ptid=1590696" target="_blank">sherlockchu 发表于 2018-06-14 09:51:48</a>
@@ -28373,27 +18910,16 @@ OVA新人设？果然是另外主角的故事啊
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 4330#       发表于 2018-6-14 10:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39982584&amp;ptid=1590696" target="_blank">meailove 发表于 2018-6-14 06:47</a>
 
 #赛马娘# 目前，最终话的作监工作已全部完成。今天起，总作画监督椛島洋介就将投入新版权绘及OVA用新人设的 ...</blockquote>
 新主角?小栗帽？米浴？乌拉拉？还是其他游戏马娘的单人故事。
-
-
-
-
-
 
 
 -----
@@ -28402,15 +18928,9 @@ OVA新人设？果然是另外主角的故事啊
 ##### 4331#       发表于 2018-6-14 10:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39984089&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-14 10:21</a>
 本体都是大GG就不要在意这种细节了，不过我特地去看了下数据小特B79小草B78，而且小特还神奇的比草 ...</blockquote>
 胸围不说明问题啊。在其他数据缺乏的状况下，胸围差不多的，乳量大小看腰围，而小草比特别周腰细很多……其实，小草是隐藏巨乳才对呢（然而都不如神鹰）。
-
-
-
-
-
 
 
 -----
@@ -28419,16 +18939,10 @@ OVA新人设？果然是另外主角的故事啊
 ##### 4332#       发表于 2018-6-14 10:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39982584&amp;ptid=1590696" target="_blank">meailove 发表于 2018-6-14 06:47</a>
 
 #赛马娘# 目前，最终话的作监工作已全部完成。今天起，总作画监督椛島洋介就将投入新版权绘及OVA用新人设的 ...</blockquote>
 新主角?小栗帽？米浴？乌拉拉？还是其他游戏马娘的单人故事。
-
-
-
-
-
 
 
 -----
@@ -28437,21 +18951,13 @@ OVA新人设？果然是另外主角的故事啊
 ##### 4333#       发表于 2018-6-14 10:51
 
 
-
-
 帝皇的故事真要第二季见了
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 4334#       发表于 2018-6-14 11:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39982584&amp;ptid=1590696" target="_blank">meailove 发表于 2018-6-14 06:47</a>
@@ -28473,16 +18979,10 @@ OVA新人设？果然是另外主角的故事啊
 新角色
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 4335#       发表于 2018-6-14 11:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39984429&amp;ptid=1590696" target="_blank">天狼Q娃 发表于 2018-6-14 10:50</a>
@@ -28491,32 +18991,19 @@ OVA新人设？果然是另外主角的故事啊
 新角色的人設,不是新主角(主角的話3話OVA哪夠用)
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 4336#       发表于 2018-6-14 11:42
 
 
-
-
 soudayo，就算是像秋日祭那堆一闪而过的马娘也是要人设的，正常猜测OVA是群像剧
-
-
-
-
-
 
 
 -----
 
 ####  D-JoeII  
 ##### 4337#       发表于 2018-6-14 15:53
-
 
 
  本帖最后由 D-JoeII 于 2018-6-14 15:59 编辑 
@@ -28529,16 +19016,10 @@ soudayo，就算是像秋日祭那堆一闪而过的马娘也是要人设的，�
 這隻退役後應該能進殿堂馬吧?戰績強+勝差大,另外比賽特殊性加成
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 4338#       发表于 2018-6-14 18:43
-
 
 
  本帖最后由 Goisdust 于 2018-6-14 18:50 编辑 
@@ -28550,16 +19031,10 @@ soudayo，就算是像秋日祭那堆一闪而过的马娘也是要人设的，�
 战绩堪称障害马中的好歌剧，应该很有希望吧。若是入选，就是继85年的グランドマーチス（中山大障害４冠）后30年来第二匹殿堂障害马。而且当年还没导入Grade制，可能是史上最强的障害马也说不定。stay gold的血统果然蕴含无限的可能性<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">至于跑平地赛听说是马主的意思，骑手和练马师不算支持。也许是为了园出道时平地未胜利的梦吧，运气好摸到一胜就可以风风光光退役了
 
 
-
-
-
-
-
 -----
 
 ####  lyzcs  
 ##### 4339#       发表于 2018-6-14 19:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39989875&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-14 18:43</a>
@@ -28568,16 +19043,10 @@ soudayo，就算是像秋日祭那堆一闪而过的马娘也是要人设的，�
 刚转战障碍赛的时候也是连续不胜，5岁以后才觉醒，逐渐成长到现在这种程度，实力比当初肯定是强多了，关键是不一定能适应平地赛的节奏，而且负重上比较吃亏
 
 
-
-
-
-
-
 -----
 
 ####  猿飞日斩3  
 ##### 4340#       发表于 2018-6-14 20:34
-
 
 
 [https://www.youtube.com/watch?v=PTEMokbC6cg](https://www.youtube.com/watch?v=PTEMokbC6cg)
@@ -28585,16 +19054,10 @@ soudayo，就算是像秋日祭那堆一闪而过的马娘也是要人设的，�
 真实马娘跳舞
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 4341#       发表于 2018-6-14 21:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39990663&amp;ptid=1590696" target="_blank">lyzcs 发表于 2018-6-14 19:53</a>
@@ -28606,17 +19069,10 @@ soudayo，就算是像秋日祭那堆一闪而过的马娘也是要人设的，�
 我覺得還是有機會的
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 4342#       发表于 2018-6-14 22:56
-
-
 
 
 サラブレ7月号，东宝的伊藤P和小岛太一骑手对谈
@@ -28641,22 +19097,10 @@ soudayo，就算是像秋日祭那堆一闪而过的马娘也是要人设的，�
 2018-6-14 22:56 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 4343#       发表于 2018-6-14 22:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39992597&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-14 22:56</a>
@@ -28669,16 +19113,10 @@ soudayo，就算是像秋日祭那堆一闪而过的马娘也是要人设的，�
 还行
 
 
-
-
-
-
-
 -----
 
 ####  ramiel  
 ##### 4344#       发表于 2018-6-14 23:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39989875&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-14 18:43</a>
@@ -28687,16 +19125,10 @@ soudayo，就算是像秋日祭那堆一闪而过的马娘也是要人设的，�
 黄金老爹真是赛场外的赢家....<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lyzcs  
 ##### 4345#       发表于 2018-6-14 23:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39991678&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-6-14 21:30</a>
@@ -28707,17 +19139,10 @@ http://db.netkeiba.com/?pid ...</blockquote>
 应该是因为没资格吧，障碍赛获得的赏金不算数
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 4346#       发表于 2018-6-15 00:38
-
-
 
 
 ９　　８　　世　　代
@@ -28739,10 +19164,6 @@ http://db.netkeiba.com/?pid ...</blockquote>
 2018-6-15 00:37 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/15/003751tuhqjzph3kbp336h.jpg" referrerpolicy="no-referrer">
 
 
@@ -28753,24 +19174,10 @@ http://db.netkeiba.com/?pid ...</blockquote>
 2018-6-15 00:37 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  dcatzz  
 ##### 4347#       发表于 2018-6-15 01:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39993572&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-15 00:38</a>
@@ -28782,17 +19189,10 @@ http://db.netkeiba.com/?pid ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">可惜动画里不会有这种展开了
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 4348#       发表于 2018-6-15 02:53
-
-
 
 
 说到老特在殿堂马选举里当老害，其实还有一个比老特更老害的。
@@ -28819,16 +19219,10 @@ JRA殿堂马选举从1984年开始，至今举办了35届。老特从01年到18�
 显然这个改革的最大受害者就是竹芝王，但JRA官员中显然也是有竹芝王铁粉的，居然在改制的同时开了一次后门。2004年第21届殿堂马评选改成了特殊形式，原本每人两张自由票变成了每人一票选21年以内的马，另一票只能选21年以上的马。这特例的保送对象显然是司马昭之心了，竹芝王在这张给老马准备的票上取得了82%的支持，和支持度87.8%好歌剧一起双双加入殿堂。一次危机反而成了竹芝王入选的机会，也堪称塞翁失马了。
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 4349#       发表于 2018-6-15 09:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39994299&amp;ptid=1590696" target="_blank">DOACAON 发表于 2018-6-15 02:53</a>
@@ -28840,16 +19234,10 @@ JRA殿堂马选举从1984年开始，至今举办了35 ...</blockquote>
 04年是借X0周年的名义，14年的时候也是周年名义变成1人4票神鹰得益，特别周24年说不定也能出个名义来保送
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 4350#       发表于 2018-6-15 11:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39995873&amp;ptid=1590696" target="_blank">xzhei 发表于 2018-6-15 09:33</a>
@@ -28858,16 +19246,10 @@ JRA殿堂马选举从1984年开始，至今举办了35 ...</blockquote>
 那得看JRA里面有没有铁粉，有的话说不定真能保送渣特
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 4351#       发表于 2018-6-15 12:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39993572&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-15 00:38</a>
@@ -28878,16 +19260,10 @@ JRA殿堂马选举从1984年开始，至今举办了35 ...</blockquote>
 像我这种不喜欢赛马只喜欢贵乱的还是这类内容适合我<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xzhei  
 ##### 4352#       发表于 2018-6-15 12:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39997667&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-6-15 11:54</a>
@@ -28896,16 +19272,10 @@ JRA殿堂马选举从1984年开始，至今举办了35 ...</blockquote>
 看有没有人能造势到2024年了……其实这么多年还能保持一定的支持已经很厉害了……
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 4353#       发表于 2018-6-15 13:22
-
 
 
  本帖最后由 Goisdust 于 2018-6-15 13:38 编辑 
@@ -28923,17 +19293,10 @@ JRA殿堂马选举从1984年开始，至今举办了35 ...</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  cloudliu  
 ##### 4354#       发表于 2018-6-15 14:31
-
-
 
 
 2018年4月23日，特别周在放草时跌倒导致左边马身受创，其后于马房内接受观察。同月27日，它被发现于马房内跌倒，最终于日本时间下午4时40分死亡。
@@ -28942,16 +19305,10 @@ JRA殿堂马选举从1984年开始，至今举办了35 ...</blockquote>
 这个本楼里有人提过？
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 4355#       发表于 2018-6-15 15:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39999339&amp;ptid=1590696" target="_blank">cloudliu 发表于 2018-6-15 14:31</a>
@@ -28960,16 +19317,10 @@ JRA殿堂马选举从1984年开始，至今举办了35 ...</blockquote>
 你这是火星多久了
 
 
-
-
-
-
-
 -----
 
 ####  cloudliu  
 ##### 4356#       发表于 2018-6-15 15:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39999984&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-6-15 15:23</a>
@@ -28978,16 +19329,10 @@ JRA殿堂马选举从1984年开始，至今举办了35 ...</blockquote>
 我再4月23日附近翻了翻 没找到……
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 4357#       发表于 2018-6-15 15:46
-
 
 
  本帖最后由 DOACAON 于 2018-6-15 01:47 编辑 
@@ -28999,16 +19344,10 @@ JRA殿堂马选举从1984年开始，至今举办了35 ...</blockquote>
 楼里的新闻大约在1000L前后
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 4358#       发表于 2018-6-15 16:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40000071&amp;ptid=1590696" target="_blank">cloudliu 发表于 2018-06-15 15:30:23</a>
@@ -29017,16 +19356,10 @@ JRA殿堂马选举从1984年开始，至今举办了35 ...</blockquote>
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  κύων  
 ##### 4359#       发表于 2018-6-15 17:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39999339&amp;ptid=1590696" target="_blank">cloudliu 发表于 2018-6-15 14:31</a>
@@ -29034,19 +19367,10 @@ JRA殿堂马选举从1984年开始，至今举办了35 ...</blockquote>
 神鹰输池泽那一场，特别周正好坐好歌剧对面，还被玩过梗
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 4360#       发表于 2018-6-15 23:37
-
-
-
-
 
 
 有人看了这个没有
@@ -29058,16 +19382,10 @@ JRA殿堂马选举从1984年开始，至今举办了35 ...</blockquote>
 马娘看起来还是正常人类作息
 
 
-
-
-
-
-
 -----
 
 ####  TCone  
 ##### 4361#       发表于 2018-6-15 23:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40004555&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-6-15 23:37</a>
@@ -29079,26 +19397,13 @@ https://www.bilibili.com/video/av24769695?from=search&amp;seid=15248651738961337
 好大的训练场，真和一个学校有点像
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 4362#       发表于 2018-6-16 02:56
 
 
-
-
 把黃金旅程的最後一場比賽上傳了一下B站,真的是發動慢了0.5秒就很可能會少了黃金一族啊
-
-
-
-
-
-
 
 
 -----
@@ -29107,22 +19412,13 @@ https://www.bilibili.com/video/av24769695?from=search&amp;seid=15248651738961337
 ##### 4363#       发表于 2018-6-16 08:14
 
 
-
-
 销量咋样，有没有可能二期或者剧场版什么都好，做成像战车道一样的企划也行啊！！
-
-
-
-
-
-
 
 
 -----
 
 ####  D-JoeII  
 ##### 4364#       发表于 2018-6-16 10:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40006609&amp;ptid=1590696" target="_blank">麻花疼 发表于 2018-6-16 08:14</a>
@@ -29134,31 +19430,19 @@ https://www.bilibili.com/video/av24769695?from=search&amp;seid=15248651738961337
 騎空士買單,感覺良好
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 4365#       发表于 2018-6-16 12:55
 
 
-
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fscxgs1ettj20i203wwez.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 4366#       发表于 2018-6-16 14:14
-
 
 
  本帖最后由 Goisdust 于 2018-6-16 14:19 编辑 
@@ -29170,16 +19454,10 @@ https://www.bilibili.com/video/av24769695?from=search&amp;seid=15248651738961337
 这一波销量霸权，然而后续游戏没把人气带上去还是要黄
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 4367#       发表于 2018-6-16 14:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40009687&amp;ptid=1590696" target="_blank">Goisdust 发表于 2018-6-16 14:14</a>
@@ -29192,25 +19470,13 @@ https://www.bilibili.com/video/av24769695?from=search&amp;seid=15248651738961337
 還行,本來就分了兩個twitter帳號,遊戲那個加得比動畫那個快很多
 
 
-
-
-
-
-
 -----
 
 ####  meailove  
 ##### 4368#       发表于 2018-6-16 15:01
 
 
-
-
 av24909698有人做了cy公司宣传短片的熟肉，cy真是有钱就可以为所欲为，而且感觉这次马娘游戏的质量也会很高
-
-
-
-
-
 
 
 -----
@@ -29219,19 +19485,14 @@ av24909698有人做了cy公司宣传短片的熟肉，cy真是有钱就可以为
 ##### 4369#       发表于 2018-6-16 15:40
 
 
-
  本帖最后由 gaomao 于 2018-9-24 18:54 编辑 
 
 -
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -29241,12 +19502,7 @@ av24909698有人做了cy公司宣传短片的熟肉，cy真是有钱就可以为
 | kazuma| + 1|b站av24909698 cy肯下资本|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -29255,20 +19511,15 @@ av24909698有人做了cy公司宣传短片的熟肉，cy真是有钱就可以为
 ##### 4370#       发表于 2018-6-16 16:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40010298&amp;ptid=1590696" target="_blank">gaomao 发表于 2018-6-16 15:40</a>
 
 这是动画里的？还是游戏里的？</blockquote>
 游戏里面的
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -29278,12 +19529,7 @@ av24909698有人做了cy公司宣传短片的熟肉，cy真是有钱就可以为
 | gaomao| + 1|谢谢|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -29292,15 +19538,9 @@ av24909698有人做了cy公司宣传短片的熟肉，cy真是有钱就可以为
 ##### 4371#       发表于 2018-6-16 17:40
 
 
-
 <blockquote>gaomao 发表于 2018-6-16 15:40
 这是动画里的？还是游戏里的？</blockquote>
 好像都是男的
-
-
-
-
-
 
 
 -----
@@ -29309,15 +19549,9 @@ av24909698有人做了cy公司宣传短片的熟肉，cy真是有钱就可以为
 ##### 4372#       发表于 2018-6-16 17:43
 
 
-
  本帖最后由 amulelernen 于 2018-6-17 16:01 编辑 
 
 编辑
-
-
-
-
-
 
 
 -----
@@ -29326,16 +19560,10 @@ av24909698有人做了cy公司宣传短片的熟肉，cy真是有钱就可以为
 ##### 4373#       发表于 2018-6-16 17:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40010298&amp;ptid=1590696" target="_blank">gaomao 发表于 2018-6-16 15:40</a>
 
 这是动画里的？还是游戏里的？</blockquote>
 动画LIVE都是PPT和广播体操，什么时候有过这种的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29344,14 +19572,7 @@ av24909698有人做了cy公司宣传短片的熟肉，cy真是有钱就可以为
 ##### 4374#       发表于 2018-6-17 04:04
 
 
-
-
 莫名肥肠期待最终话<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29360,21 +19581,13 @@ av24909698有人做了cy公司宣传短片的熟肉，cy真是有钱就可以为
 ##### 4375#       发表于 2018-6-17 07:17
 
 
-
-
 最新一集好评率96.7%，排在四月番所有好评率第二，现在4月单集好评率前三全被马娘包了<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  平井姨夫  
 ##### 4376#       发表于 2018-6-17 08:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40011316&amp;ptid=1590696" target="_blank">雨猫 发表于 2018-6-16 17:40</a>
@@ -29384,27 +19597,15 @@ av24909698有人做了cy公司宣传短片的熟肉，cy真是有钱就可以为
 <img src="http://ww1.sinaimg.cn/large/65e2753bly1fsdvoeunvfj20ni0ogmze.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  EvgaRay  
 ##### 4377#       发表于 2018-6-17 09:01
 
 
-
-
 最终话了，非常不舍得
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -29413,15 +19614,8 @@ av24909698有人做了cy公司宣传短片的熟肉，cy真是有钱就可以为
 ##### 4378#       发表于 2018-6-17 15:55
 
 
-
-
 这最终话eyecatch小特，ova无声羚鹿或者反过来的节奏么
 <img src="https://i.imgur.com/5Ff1kFE.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29430,22 +19624,15 @@ av24909698有人做了cy公司宣传短片的熟肉，cy真是有钱就可以为
 ##### 4379#       发表于 2018-6-17 16:03
 
 
-
 <blockquote>Laie 发表于 2018-6-17 15:55
 这最终话eyecatch小特，ova无声羚鹿或者反过来的节奏么</blockquote>
 也许是铃鹿+小特？
-
-
-
-
-
 
 
 -----
 
 ####  Goisdust  
 ##### 4380#       发表于 2018-6-17 16:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40021878&amp;ptid=1590696" target="_blank">Laie 发表于 2018-6-17 15:55</a>
@@ -29463,30 +19650,13 @@ av24909698有人做了cy公司宣传短片的熟肉，cy真是有钱就可以为
 2018-6-17 16:03 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 4381#       发表于 2018-6-17 16:06
 
 
-
-
 今晚最后一集了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29495,14 +19665,7 @@ av24909698有人做了cy公司宣传短片的熟肉，cy真是有钱就可以为
 ##### 4382#       发表于 2018-6-17 16:08
 
 
-
-
 时间过得好快……
-
-
-
-
-
 
 
 -----
@@ -29511,14 +19674,7 @@ av24909698有人做了cy公司宣传短片的熟肉，cy真是有钱就可以为
 ##### 4383#       发表于 2018-6-17 16:15
 
 
-
-
 求CY粑粑出个第二季
-
-
-
-
-
 
 
 -----
@@ -29527,15 +19683,9 @@ av24909698有人做了cy公司宣传短片的熟肉，cy真是有钱就可以为
 ##### 4384#       发表于 2018-6-17 16:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40010298&amp;ptid=1590696" target="_blank">gaomao 发表于 2018-6-16 15:40</a>
 这是动画里的？还是游戏里的？</blockquote>
 帝王的表演着一样是可爱的小个子<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29544,17 +19694,10 @@ av24909698有人做了cy公司宣传短片的熟肉，cy真是有钱就可以为
 ##### 4385#       发表于 2018-6-17 16:39
 
 
-
-
 Cygames Producer 石原章弘 x TOHO animation Producer 伊藤隼之介 x 监督 及川启 x P.A.WORKS Line Producer 桥本真英
 
 新鲜的四人对谈，干货很多。
 [https://entertainmentstation.jp/234846](https://entertainmentstation.jp/234846)
-
-
-
-
-
 
 
 -----
@@ -29563,19 +19706,11 @@ Cygames Producer 石原章弘 x TOHO animation Producer 伊藤隼之介 x 监督
 ##### 4386#       发表于 2018-6-17 17:19
 
 
-
-
 先行图
-
-
-
-
 
 
 739c256a2248dddf.jpg
 (27.12 KB, 下载次数: 3)
-
-
 
 
 下载附件
@@ -29584,24 +19719,7 @@ Cygames Producer 石原章弘 x TOHO animation Producer 伊藤隼之介 x 监督
 2018-6-17 17:19 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/17/171931at7tch7qie5thbch.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -29610,14 +19728,7 @@ Cygames Producer 石原章弘 x TOHO animation Producer 伊藤隼之介 x 监督
 ##### 4387#       发表于 2018-6-17 17:29
 
 
-
-
 特别渣一副“我全都要”的大义凛然的样子
-
-
-
-
-
 
 
 -----
@@ -29626,21 +19737,13 @@ Cygames Producer 石原章弘 x TOHO animation Producer 伊藤隼之介 x 监督
 ##### 4388#       发表于 2018-6-17 17:38
 
 
-
-
 这是回老家的那身衣服吧。振兴北海道，开启？
-
-
-
-
-
 
 
 -----
 
 ####  Toby_dak  
 ##### 4389#       发表于 2018-6-17 17:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39999339&amp;ptid=1590696" target="_blank">cloudliu 发表于 2018-6-15 15:31</a>
@@ -29651,25 +19754,13 @@ Cygames Producer 石原章弘 x TOHO animation Producer 伊藤隼之介 x 监督
 虽然我不在专楼发贴，但记得漫区右边固定版图还特地出了纪念图，在当时国家队霸占的情况很显眼。
 
 
-
-
-
-
-
 -----
 
 ####  Toby_dak  
 ##### 4390#       发表于 2018-6-17 17:44
 
 
-
-
 话说一直看下载，有直播网址吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29678,21 +19769,13 @@ Cygames Producer 石原章弘 x TOHO animation Producer 伊藤隼之介 x 监督
 ##### 4391#       发表于 2018-6-17 18:10
 
 
-
-
 动画官推好像在轮番介绍WDT登场选手
-
-
-
-
-
 
 
 -----
 
 ####  unnilennium  
 ##### 4392#       发表于 2018-6-17 18:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40022817&amp;ptid=1590696" target="_blank">Toby_dak 发表于 2018-6-17 17:44</a>
@@ -29703,16 +19786,10 @@ Cygames Producer 石原章弘 x TOHO animation Producer 伊藤隼之介 x 监督
 昨天晚上看国家队是用这个，今天应该也是这边
 
 
-
-
-
-
-
 -----
 
 ####  小大头菜  
 ##### 4393#       发表于 2018-6-17 18:21
-
 
 
 <blockquote>TCone 发表于 2018-6-17 17:38
@@ -29723,16 +19800,10 @@ Cygames Producer 石原章弘 x TOHO animation Producer 伊藤隼之介 x 监督
 大概是bd封面的礼服吧，参加年度表彰大会
 
 
-
-
-
-
-
 -----
 
 ####  101207777  
 ##### 4394#       发表于 2018-6-17 18:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40023126&amp;ptid=1590696" target="_blank">小大头菜 发表于 2018-6-17 18:21</a>
@@ -29744,16 +19815,10 @@ Cygames Producer 石原章弘 x TOHO animation Producer 伊藤隼之介 x 监督
 跟草上飞女士荣获年度代表特别奖么。。。。
 
 
-
-
-
-
-
 -----
 
 ####  TCone  
 ##### 4395#       发表于 2018-6-17 18:50
-
 
 
 <blockquote>小大头菜 发表于 2018-6-17 18:21
@@ -29764,16 +19829,10 @@ Cygames Producer 石原章弘 x TOHO animation Producer 伊藤隼之介 x 监督
 和上面那张图是一件吧，领口都一样，外套好像换了一件
 
 
-
-
-
-
-
 -----
 
 ####  noHentai  
 ##### 4396#       发表于 2018-6-17 19:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40022682&amp;ptid=1590696" target="_blank">amulelernen 发表于 2018-6-17 17:29</a>
@@ -29790,22 +19849,10 @@ Cygames Producer 石原章弘 x TOHO animation Producer 伊藤隼之介 x 监督
 2018-6-17 19:08 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 4397#       发表于 2018-6-17 19:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40023176&amp;ptid=1590696" target="_blank">101207777 发表于 2018-6-17 18:27</a>
@@ -29814,17 +19861,10 @@ Cygames Producer 石原章弘 x TOHO animation Producer 伊藤隼之介 x 监督
 还行，就这么定了www
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 4398#       发表于 2018-6-17 20:30
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/17/202916ll82pdys9ctoyytl.png" referrerpolicy="no-referrer">
@@ -29837,12 +19877,6 @@ Cygames Producer 石原章弘 x TOHO animation Producer 伊藤隼之介 x 监督
 2018-6-17 20:29 上传
 
 
-
-
-
-
-
-
 初代PV里面铃鹿好小一只啊。
 
 
@@ -29853,32 +19887,19 @@ Cygames Producer 石原章弘 x TOHO animation Producer 伊藤隼之介 x 监督
 估计动画就变成《迷人景致和她的丢人平地摔老父亲》了
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 4399#       发表于 2018-6-17 20:44
 
 
-
-
 今晚生放哪里有转播吗，战旗那个好像没开？
-
-
-
-
-
 
 
 -----
 
 ####  Toby_dak  
 ##### 4400#       发表于 2018-6-17 21:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40023107&amp;ptid=1590696" target="_blank">unnilennium 发表于 2018-6-17 19:20</a>
@@ -29889,16 +19910,10 @@ https://www.zhanqi.tv/873062876
 突然发觉跟德国队同一时间开始<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 4401#       发表于 2018-6-17 21:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40024548&amp;ptid=1590696" target="_blank">Toby_dak 发表于 2018-6-17 21:18</a>
@@ -29907,16 +19922,10 @@ https://www.zhanqi.tv/873062876
 双倍的快乐不好么？
 
 
-
-
-
-
-
 -----
 
 ####  κύων  
 ##### 4402#       发表于 2018-6-17 21:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40024116&amp;ptid=1590696" target="_blank">物流大亨常凯申 发表于 2018-6-17 20:30</a>
@@ -29928,25 +19937,13 @@ https://www.zhanqi.tv/873062876
 按近大远小来看，特别周好像也很小
 
 
-
-
-
-
-
 -----
 
 ####  κύων  
 ##### 4403#       发表于 2018-6-17 21:46
 
 
-
-
 前段时间在贴吧看到有人说圣王光环有点像北泽志保，仔细一想还真有点像<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29955,23 +19952,16 @@ https://www.zhanqi.tv/873062876
 ##### 4404#       发表于 2018-6-17 22:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40024808&amp;ptid=1590696" target="_blank">κύων 发表于 2018-6-17 21:46</a>
 
 前段时间在贴吧看到有人说圣王光环有点像北泽志保，仔细一想还真有点像 ...</blockquote>
 志保成天颜艺的，圣王可没这么崩坏（
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 4405#       发表于 2018-6-17 23:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40025480&amp;ptid=1590696" target="_blank">暗黑能乐 发表于 2018-6-17 22:55</a>
@@ -29982,27 +19972,15 @@ https://www.zhanqi.tv/873062876
 真的很相似
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 4406#       发表于 2018-6-17 23:02
 
 
-
-
 绝了
 
 有马一句话带过
-
-
-
-
-
 
 
 -----
@@ -30011,14 +19989,7 @@ https://www.zhanqi.tv/873062876
 ##### 4407#       发表于 2018-6-17 23:03
 
 
-
-
 没了全没了，op这样一笔过回收
-
-
-
-
-
 
 
 -----
@@ -30027,14 +19998,7 @@ https://www.zhanqi.tv/873062876
 ##### 4408#       发表于 2018-6-17 23:03
 
 
-
-
 猜对了，有马纪念果然一笔带过啦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30043,14 +20007,7 @@ https://www.zhanqi.tv/873062876
 ##### 4409#       发表于 2018-6-17 23:04
 
 
-
-
 全礼服！！
-
-
-
-
-
 
 
 -----
@@ -30059,14 +20016,7 @@ https://www.zhanqi.tv/873062876
 ##### 4410#       发表于 2018-6-17 23:07
 
 
-
-
 看铃鹿小特大和伏特加，这集礼服是BD封面上那个？
-
-
-
-
-
 
 
 -----
@@ -30075,14 +20025,7 @@ https://www.zhanqi.tv/873062876
 ##### 4411#       发表于 2018-6-17 23:08
 
 
-
-
 有有马的镜头我就知足了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30091,9 +20034,7 @@ https://www.zhanqi.tv/873062876
 ##### 4412#       发表于 2018-6-17 23:12
 
 
-
  本帖最后由 センコウ 于 2018-6-17 23:14 编辑 
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/17/231245pg8jb1baap7lilz8.png" referrerpolicy="no-referrer">
@@ -30106,18 +20047,7 @@ https://www.zhanqi.tv/873062876
 2018-6-17 23:12 上传
 
 
-
-
-
-
-
-
 不小心引用到了。。
-
-
-
-
-
 
 
 -----
@@ -30126,14 +20056,7 @@ https://www.zhanqi.tv/873062876
 ##### 4413#       发表于 2018-6-17 23:12
 
 
-
-
 过场图果然铃特两人了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30142,13 +20065,7 @@ https://www.zhanqi.tv/873062876
 ##### 4414#       发表于 2018-6-17 23:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30157,21 +20074,13 @@ https://www.zhanqi.tv/873062876
 ##### 4415#       发表于 2018-6-17 23:17
 
 
-
-
 麦昆你从哪儿变出来的球拍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  物流大亨常凯申  
 ##### 4416#       发表于 2018-6-17 23:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40025691&amp;ptid=1590696" target="_blank">pwlong 发表于 2018-6-17 23:16</a>
@@ -30183,25 +20092,13 @@ PA不会画胸
 超级小海湾也画的就那样
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 4417#       发表于 2018-6-17 23:19
 
 
-
-
 我觉得会是小栗帽赢
-
-
-
-
-
 
 
 -----
@@ -30210,22 +20107,13 @@ PA不会画胸
 ##### 4418#       发表于 2018-6-17 23:20
 
 
-
-
 简直是pv 2d重置
-
-
-
-
-
 
 
 -----
 
 ####  物流大亨常凯申  
 ##### 4419#       发表于 2018-6-17 23:24
-
-
 
 
 好吧
@@ -30235,33 +20123,19 @@ PA不会画胸
 分析了半天开放结局，最后还是全员撞线一起快乐Live的节奏
 
 
-
-
-
-
-
 -----
 
 ####  musicat  
 ##### 4420#       发表于 2018-6-17 23:24
 
 
-
-
 cy：反正最后了，不烧钱不舒服！
-
-
-
-
-
 
 
 -----
 
 ####  物流大亨常凯申  
 ##### 4421#       发表于 2018-6-17 23:25
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/17/232456fw2rb7b6bx77jicc.png" referrerpolicy="no-referrer">
@@ -30274,19 +20148,7 @@ cy：反正最后了，不烧钱不舒服！
 2018-6-17 23:24 上传
 
 
-
-
-
-
 是路人还是?
-
-
-
-
-
-
-
-
 
 
 -----
@@ -30295,14 +20157,7 @@ cy：反正最后了，不烧钱不舒服！
 ##### 4422#       发表于 2018-6-17 23:25
 
 
-
-
 迷人景致真出現耶
-
-
-
-
-
 
 
 -----
@@ -30311,14 +20166,7 @@ cy：反正最后了，不烧钱不舒服！
 ##### 4423#       发表于 2018-6-17 23:25
 
 
-
-
 最后摸腿是摸的谁？大震撼还是迷人景致？
-
-
-
-
-
 
 
 -----
@@ -30327,14 +20175,7 @@ cy：反正最后了，不烧钱不舒服！
 ##### 4424#       发表于 2018-6-17 23:26
 
 
-
-
 WDT=舞蹈团<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30343,14 +20184,7 @@ WDT=舞蹈团<img src="https://static.saraba1st.com/image/smiley/face2017/112.pn
 ##### 4425#       发表于 2018-6-17 23:26
 
 
-
-
 发型不像迷人景致啊
-
-
-
-
-
 
 
 -----
@@ -30359,14 +20193,7 @@ WDT=舞蹈团<img src="https://static.saraba1st.com/image/smiley/face2017/112.pn
 ##### 4426#       发表于 2018-6-17 23:26
 
 
-
-
 live不够啊 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30375,14 +20202,7 @@ live不够啊 <img src="https://static.saraba1st.com/image/smiley/face2017/068.p
 ##### 4427#       发表于 2018-6-17 23:26
 
 
-
-
 这样子算是二期有望了吧？
-
-
-
-
-
 
 
 -----
@@ -30391,14 +20211,7 @@ live不够啊 <img src="https://static.saraba1st.com/image/smiley/face2017/068.p
 ##### 4428#       发表于 2018-6-17 23:26
 
 
-
-
 只有小草斗气颜色不一样
-
-
-
-
-
 
 
 -----
@@ -30407,22 +20220,13 @@ live不够啊 <img src="https://static.saraba1st.com/image/smiley/face2017/068.p
 ##### 4429#       发表于 2018-6-17 23:27
 
 
-
-
 求考据新人谁啊，完全不在有设定的59+1人里，也跟迷人景致旧设不一样，前额的挑染也比迷人景致大好多（迷人景致前额像小草）<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  物流大亨常凯申  
 ##### 4430#       发表于 2018-6-17 23:27
-
-
 
 
 等会看一下Staff表吧
@@ -30432,24 +20236,13 @@ live不够啊 <img src="https://static.saraba1st.com/image/smiley/face2017/068.p
 可能是路人吧
 
 
-
-
-
-
-
 -----
 
 ####  huaiyi2604  
 ##### 4431#       发表于 2018-6-17 23:27
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我现在只想看马娘第二季
-
-
-
-
-
 
 
 -----
@@ -30458,13 +20251,7 @@ live不够啊 <img src="https://static.saraba1st.com/image/smiley/face2017/068.p
 ##### 4432#       发表于 2018-6-17 23:28
 
 
-
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fseldqn2kpj20xc0ir46b.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30473,14 +20260,7 @@ live不够啊 <img src="https://static.saraba1st.com/image/smiley/face2017/068.p
 ##### 4433#       发表于 2018-6-17 23:28
 
 
-
-
 还是猜错了，并没有直接宣布二期
-
-
-
-
-
 
 
 -----
@@ -30489,14 +20269,7 @@ live不够啊 <img src="https://static.saraba1st.com/image/smiley/face2017/068.p
 ##### 4434#       发表于 2018-6-17 23:29
 
 
-
-
 应该不是迷人景致刘海都不一样
-
-
-
-
-
 
 
 -----
@@ -30505,15 +20278,9 @@ live不够啊 <img src="https://static.saraba1st.com/image/smiley/face2017/068.p
 ##### 4435#       发表于 2018-6-17 23:29
 
 
-
  本帖最后由 unnilennium 于 2018-6-17 23:31 编辑 
 
 最后快完这段做的多少有点着急啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30522,23 +20289,15 @@ live不够啊 <img src="https://static.saraba1st.com/image/smiley/face2017/068.p
 ##### 4436#       发表于 2018-6-17 23:30
 
 
-
-
 看清楚點是黑髮+白前額,應該不是
 
 不知有沒有參照馬
-
-
-
-
-
 
 
 -----
 
 ####  センコウ  
 ##### 4437#       发表于 2018-6-17 23:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40025827&amp;ptid=1590696" target="_blank">D-JoeII 发表于 2018-6-17 23:30</a>
@@ -30549,25 +20308,13 @@ live不够啊 <img src="https://static.saraba1st.com/image/smiley/face2017/068.p
 北部玄驹？
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 4438#       发表于 2018-6-17 23:32
 
 
-
-
 【ウマ娘 プリティーダービー】第13Rで披露された新曲「Special Record!」と、第12Rで披露された「Find My Only Way」の2曲を収録したCD「ウマ娘 プリティーダービー ANIMATION DERBY 03 Special Record!／Find My Only Way」が、7/25に発売決定しました！！
-
-
-
-
-
 
 
 -----
@@ -30576,21 +20323,13 @@ live不够啊 <img src="https://static.saraba1st.com/image/smiley/face2017/068.p
 ##### 4439#       发表于 2018-6-17 23:32
 
 
-
-
 还有最后果然还是うまぴょい啊
-
-
-
-
-
 
 
 -----
 
 ####  D-JoeII  
 ##### 4440#       发表于 2018-6-17 23:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40025840&amp;ptid=1590696" target="_blank">センコウ 发表于 2018-6-17 23:31</a>
@@ -30601,17 +20340,10 @@ live不够啊 <img src="https://static.saraba1st.com/image/smiley/face2017/068.p
 <img src="https://i.imgur.com/R2z0vOF.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 4441#       发表于 2018-6-17 23:38
-
-
 
 
 PA最后还是撑不太住啊，以前那个见不到崩坏的制作公司已经不复存在了（
@@ -30620,25 +20352,13 @@ PA最后还是撑不太住啊，以前那个见不到崩坏的制作公司已经
 总体来说还是很快乐的追番体验，希望能快点在游戏里见到小草，期待20号的生放
 
 
-
-
-
-
-
 -----
 
 ####  loli炮  
 ##### 4442#       发表于 2018-6-17 23:39
 
 
-
-
 完美的王道收官，其实我一直想说PA的风格，太正不奇 以细节写实出名的风格到底是好坏 剧情上大纲甚至主要脉络网友都能猜个七七八八，以致给观众留下剧情白开水的印象  这也是pa番普遍缺少很高议论度的根源。
-
-
-
-
-
 
 
 -----
@@ -30647,14 +20367,7 @@ PA最后还是撑不太住啊，以前那个见不到崩坏的制作公司已经
 ##### 4443#       发表于 2018-6-17 23:39
 
 
-
-
 最后登场的马娘有谁知道吗，我瞎猜是周日宁静，黑发一条很长的白斑纹，橘黄的衣服。
-
-
-
-
-
 
 
 -----
@@ -30663,14 +20376,7 @@ PA最后还是撑不太住啊，以前那个见不到崩坏的制作公司已经
 ##### 4444#       发表于 2018-6-17 23:39
 
 
-
-
 是北都的话不是牛逼大发了
-
-
-
-
-
 
 
 -----
@@ -30679,22 +20385,15 @@ PA最后还是撑不太住啊，以前那个见不到崩坏的制作公司已经
 ##### 4445#       发表于 2018-6-17 23:40
 
 
-
 <blockquote>D-JoeII 发表于 2018-6-17 23:33
 正好查到這隻,還真說不定</blockquote>
 骑手的衣服上橘黄吗？
-
-
-
-
-
 
 
 -----
 
 ####  物流大亨常凯申  
 ##### 4446#       发表于 2018-6-17 23:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40025931&amp;ptid=1590696" target="_blank">暗黑能乐 发表于 2018-6-17 23:38</a>
@@ -30708,16 +20407,10 @@ PA最后还是撑不太住啊，以前那个见不到崩坏的制作公司已经
 开播前三天才完成，估计主力队伍去天狼片场了
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 4447#       发表于 2018-6-17 23:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40025946&amp;ptid=1590696" target="_blank">猿飞日斩3 发表于 2018-6-17 23:39</a>
@@ -30726,32 +20419,19 @@ PA最后还是撑不太住啊，以前那个见不到崩坏的制作公司已经
 北都玄驹马主实际北岛三郎，等着以后给你真出来winning live<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  natmk  
 ##### 4448#       发表于 2018-6-17 23:41
 
 
-
-
 北部玄駒当主角吗战绩也太厉害了
-
-
-
-
-
 
 
 -----
 
 ####  noHentai  
 ##### 4449#       发表于 2018-6-17 23:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40025931&amp;ptid=1590696" target="_blank">暗黑能乐 发表于 2018-6-17 23:38</a>
@@ -30763,17 +20443,10 @@ PA最后还是撑不太住啊，以前那个见不到崩坏的制作公司已经
 毕竟也不是以前那个产量的PA了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 4450#       发表于 2018-6-17 23:42
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/17/094232qxammczdr49mzcrr.jpg" referrerpolicy="no-referrer">
@@ -30786,23 +20459,13 @@ PA最后还是撑不太住啊，以前那个见不到崩坏的制作公司已经
 2018-6-17 23:42 上传
 
 
-
-
-
-
 西沙里奥的可能性有没有？
-
-
-
-
-
 
 
 -----
 
 ####  D-JoeII  
 ##### 4451#       发表于 2018-6-17 23:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40025958&amp;ptid=1590696" target="_blank">天狼Q娃 发表于 2018-6-17 23:40</a>
@@ -30814,25 +20477,13 @@ PA最后还是撑不太住啊，以前那个见不到崩坏的制作公司已经
 <img src="https://i.imgur.com/8wmWTAu.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 4452#       发表于 2018-6-17 23:44
 
 
-
-
 还真是北部玄駒，骑手的衣服就是橘黄，公的
-
-
-
-
-
 
 
 -----
@@ -30841,13 +20492,7 @@ PA最后还是撑不太住啊，以前那个见不到崩坏的制作公司已经
 ##### 4453#       发表于 2018-6-17 23:49
 
 
-
 [生肉](https://bbs.saraba1st.com/2b/magnet:?xt=urn:btih:YGL2BSK6UN5KBZOKPVMCD4D4Y3G3QK4A&amp;dn=%5BOhys-Raws%5D+Uma+Musume+Pretty+Derby+-+13+END+%28BS11+1280x720+x264+AAC%29.mp4&amp;tr=http%3A%2F%2Fnyaa.tracker.wf%3A7777%2Fannounce&amp;tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&amp;tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&amp;tr=udp%3A%2F%2Ftracker.coppersurfer.tk%3A6969%2Fannounce&amp;tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce)
-
-
-
-
-
 
 
 -----
@@ -30856,14 +20501,7 @@ PA最后还是撑不太住啊，以前那个见不到崩坏的制作公司已经
 ##### 4454#       发表于 2018-6-17 23:53
 
 
-
-
 北部玄駒搞定话，迷人景致感觉不远了。等明年第二季企划
-
-
-
-
-
 
 
 -----
@@ -30872,21 +20510,13 @@ PA最后还是撑不太住啊，以前那个见不到崩坏的制作公司已经
 ##### 4455#       发表于 2018-6-17 23:55
 
 
-
-
 高清图   
 
 三倍作画量的决胜服，《赛马娘》动画制作人与监督四人对谈——在今天公开的三位制作人和监督的对谈中，提到了《赛马娘》动画的决胜服原先预定是最终话才让角色穿上，但改为了在 G1 级比赛中参赛全员身着决胜服。穿着决胜服赛跑场景的作画量是普通作品三倍http://t.cn/RB87esx ​​​
 
 
-
-
-
-
 img-40ea582890e9d1fd7c5b99686dc829d7.jpg
 (94.46 KB, 下载次数: 44)
-
-
 
 
 下载附件
@@ -30895,24 +20525,7 @@ img-40ea582890e9d1fd7c5b99686dc829d7.jpg
 2018-6-17 23:54 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/17/235448qy746tn1nu93u748.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -30921,22 +20534,14 @@ img-40ea582890e9d1fd7c5b99686dc829d7.jpg
 ##### 4456#       发表于 2018-6-17 23:56
 
 
-
-
 アニメ「ウマ娘 プリティーダービー」全話ご視聴頂きありがとうございました！写真は監督の及川さんと制作の橋本Pとお二人で。息の合った制作現場でした。これからもBD第4コーナー新作アニメの制作とまだまだ続きますので応援よろしくお願いします！この後のカンテレさんもぜひお楽しみに！
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fsem7p1lqbj20xb0iq1kx.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  wfhtony  
 ##### 4457#       发表于 2018-6-18 00:07
-
 
 
 <img src="https://wx1.sinaimg.cn/large/6475aebagy1fsemangdflj20k70iktfd.jpg" referrerpolicy="no-referrer">
@@ -30946,17 +20551,10 @@ via [Twitter](https://twitter.com/mnstrobokuro62/status/1008370418405634049)
 酱mio，咱觉得你还是继续送快递比较好...
 
 
-
-
-
-
-
 -----
 
 ####  物流大亨常凯申  
 ##### 4458#       发表于 2018-6-18 00:09
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/18/000932zyg0hdue7y80ywnu.png" referrerpolicy="no-referrer">
@@ -30969,26 +20567,16 @@ via [Twitter](https://twitter.com/mnstrobokuro62/status/1008370418405634049)
 2018-6-18 00:09 上传
 
 
-
-
-
-
 这个时光飞逝的有点久
 
 
 至少2年吧
 
 
-
-
-
-
-
 -----
 
 ####  warlock228  
 ##### 4459#       发表于 2018-6-18 00:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40026094&amp;ptid=1590696" target="_blank">彩虹之羽 发表于 2018-6-17 23:55</a>
@@ -30999,35 +20587,20 @@ via [Twitter](https://twitter.com/mnstrobokuro62/status/1008370418405634049)
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">大坪快车也是吃货？  咋跟小栗帽一起吃成孕妇了
 
 
-
-
-
-
-
 -----
 
 ####  Toby_dak  
 ##### 4460#       发表于 2018-6-18 00:14
 
 
-
-
 这纸片人感觉有点过分…………
 <img src="http://wx4.sinaimg.cn/large/82f2a336gy1fsemqccqc0j20zk0k0jvn.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
 
 ####  物流大亨常凯申  
 ##### 4461#       发表于 2018-6-18 00:16
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/18/001618y14wyz1vkvg9ku1q.png" referrerpolicy="no-referrer">
@@ -31040,22 +20613,10 @@ via [Twitter](https://twitter.com/mnstrobokuro62/status/1008370418405634049)
 2018-6-18 00:16 上传
 
 
-
-
-
-
-
-
-
 新角色似乎没给名字
 
 
 有生吞能听出新角色的CV么？
-
-
-
-
-
 
 
 -----
@@ -31064,14 +20625,7 @@ via [Twitter](https://twitter.com/mnstrobokuro62/status/1008370418405634049)
 ##### 4462#       发表于 2018-6-18 00:17
 
 
-
-
 新CV只看到了五十岚裕美和赤崎千夏
-
-
-
-
-
 
 
 -----
@@ -31080,16 +20634,10 @@ via [Twitter](https://twitter.com/mnstrobokuro62/status/1008370418405634049)
 ##### 4463#       发表于 2018-6-18 00:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40026264&amp;ptid=1590696" target="_blank">natmk 发表于 2018-6-18 00:17</a>
 
 新CV只看到了五十岚裕美和赤崎千夏</blockquote>
 那两似乎是之前队里那两个
-
-
-
-
-
 
 
 -----
@@ -31098,16 +20646,10 @@ via [Twitter](https://twitter.com/mnstrobokuro62/status/1008370418405634049)
 ##### 4464#       发表于 2018-6-18 00:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40026264&amp;ptid=1590696" target="_blank">natmk 发表于 2018-6-18 00:17</a>
 
 新CV只看到了五十岚裕美和赤崎千夏</blockquote>
 这两个就是之前活在训练员回忆里面那两个吧
-
-
-
-
-
 
 
 -----
@@ -31116,14 +20658,7 @@ via [Twitter](https://twitter.com/mnstrobokuro62/status/1008370418405634049)
 ##### 4465#       发表于 2018-6-18 00:28
 
 
-
-
 最后一集看的很开心 跑步真开心啊
-
-
-
-
-
 
 
 -----
@@ -31132,14 +20667,7 @@ via [Twitter](https://twitter.com/mnstrobokuro62/status/1008370418405634049)
 ##### 4466#       发表于 2018-6-18 00:35
 
 
-
-
 小栗帽跟她的三个后宫差点没笑疯我，你们干脆就叫暴食世代算了，每天人手一盘炒面在校园里招摇过市<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -31148,15 +20676,9 @@ via [Twitter](https://twitter.com/mnstrobokuro62/status/1008370418405634049)
 ##### 4467#       发表于 2018-6-18 00:35
 
 
-
  本帖最后由 κύων 于 2018-6-18 00:37 编辑 
 
 年纪最小的黄金船居然是Spica资格最老的元老
-
-
-
-
-
 
 
 -----
@@ -31165,14 +20687,7 @@ via [Twitter](https://twitter.com/mnstrobokuro62/status/1008370418405634049)
 ##### 4468#       发表于 2018-6-18 00:40
 
 
-
-
 喷了，铃鹿还在Rigil队时就和冲野T暗通款曲，这大训练员老婆的身份是越坐越实了。
-
-
-
-
-
 
 
 -----
@@ -31181,23 +20696,16 @@ via [Twitter](https://twitter.com/mnstrobokuro62/status/1008370418405634049)
 ##### 4469#       发表于 2018-6-18 00:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40026401&amp;ptid=1590696" target="_blank">wuxiaojing 发表于 2018-6-18 00:35</a>
 
 小栗帽跟她的三个后宫差点没笑疯我，你们干脆就叫暴食世代算了，每天人手一盘炒面在校园里招摇过市 ...</blockquote>
 感觉边吃边来加油就是在故意害小栗帽肚子饿的(
 
 
-
-
-
-
-
 -----
 
 ####  cs0111  
 ##### 4470#       发表于 2018-6-18 00:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40025931&amp;ptid=1590696" target="_blank">暗黑能乐 发表于 2018-6-17 23:38</a>
@@ -31211,25 +20719,13 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 以前PA哪有这个产量，而且马娘到目前为止外包出去的就1话，其他都是自家原画，和早期平均每3集左右就有一话完全外包，平均每年还只能出1到2部片比起来，要求不能太高啦
 
 
-
-
-
-
-
 -----
 
 ####  天狼Q娃  
 ##### 4471#       发表于 2018-6-18 00:41
 
 
-
-
 如果第二季话，我希望迷人景致主角。
-
-
-
-
-
 
 
 -----
@@ -31238,13 +20734,7 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 ##### 4472#       发表于 2018-6-18 00:48
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">大树快车到底做错了什么，连观战席上的镜头都没有
-
-
-
-
-
 
 
 -----
@@ -31253,21 +20743,13 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 ##### 4473#       发表于 2018-6-18 00:48
 
 
-
-
 脑洞第二季，迷人景致入学崇拜特别周的队伍，希望加入，但训练员说之前邀请了北部玄駒，部员已满经费不够，要求两者有一位胜出加入。之后迷人景致剧情杀输给北部玄駒，没能加入，特别周等队员安慰。迷人景致还在迷茫除了spc还有啥队伍能加入，之后看到穿女巫服的马娘和像机器的马娘在和训练元搞事情被罚，其中还有戴口罩的，感觉这队伍说不定能成为自己归宿
-
-
-
-
-
 
 
 -----
 
 ####  101207777  
 ##### 4474#       发表于 2018-6-18 00:51
-
 
 
  本帖最后由 101207777 于 2018-6-18 01:05 编辑 
@@ -31277,25 +20759,13 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 其实看科普，超级小渠、玉藻十字和小栗帽都是先天不被人看好的那种，小马拍卖的价格分别是810w，500w，250w
 
 
-
-
-
-
-
 -----
 
 ####  Goisdust  
 ##### 4475#       发表于 2018-6-18 00:54
 
 
-
-
 老实说这话有点一言难尽，不能说非常满意，但还是期待开服
-
-
-
-
-
 
 
 -----
@@ -31304,17 +20774,10 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 ##### 4476#       发表于 2018-6-18 00:54
 
 
-
-
 小草好可爱
 
 
 快让我玩游戏
-
-
-
-
-
 
 
 -----
@@ -31323,14 +20786,8 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 ##### 4477#       发表于 2018-6-18 00:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40025810&amp;ptid=1590696" target="_blank">xingenge 发表于 2018-6-17 23:28</a></blockquote>
 中间混进来几个水平不行的
-
-
-
-
-
 
 
 -----
@@ -31339,16 +20796,9 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 ##### 4478#       发表于 2018-6-18 00:57
 
 
-
-
 心疼一下星云天空和陪跑光环
 
 真好看，等第二季<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -31357,16 +20807,10 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 ##### 4479#       发表于 2018-6-18 00:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40026445&amp;ptid=1590696" target="_blank">κύων 发表于 2018-6-18 00:40</a>
 
 喷了，铃鹿还在Rigil队时就和冲野T暗通款曲，这大训练员老婆的身份是越坐越实了。 ...</blockquote>
 你是不把我阿花放到眼里喽？
-
-
-
-
-
 
 
 -----
@@ -31375,16 +20819,10 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 ##### 4480#       发表于 2018-6-18 01:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40026213&amp;ptid=1590696" target="_blank">warlock228 发表于 2018-6-17 10:11</a>
 
 大坪快车也是吃货？  咋跟小栗帽一起吃成孕妇了</blockquote>
 大坪确实有吃货属性的，CD4附带广播剧里大树快车跟小特喝茶聊天，结果端上来的茶点是大盆土豆，把在场的神鹰吓得不轻
-
-
-
-
-
 
 
 -----
@@ -31393,14 +20831,7 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 ##### 4481#       发表于 2018-6-18 01:03
 
 
-
-
 这结局挺不错
-
-
-
-
-
 
 
 -----
@@ -31409,13 +20840,7 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 ##### 4482#       发表于 2018-6-18 01:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">训练员在铃鹿身上看到梦想而在GI6胜身上看不到么
-
-
-
-
-
 
 
 -----
@@ -31424,14 +20849,7 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 ##### 4483#       发表于 2018-6-18 01:06
 
 
-
-
 省省吧 这动画可以说是戴着镣铐跳舞的典型了 剧情受显示因素制约太多了 能做到这个地步我是很满意了
-
-
-
-
-
 
 
 -----
@@ -31440,14 +20858,7 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 ##### 4484#       发表于 2018-6-18 01:14
 
 
-
-
 北部玄驹的话，CV要请77来才行了<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -31456,17 +20867,10 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 ##### 4485#       发表于 2018-6-18 01:15
 
 
-
-
 没看这动画以前我就听说过小栗帽，感觉非常有名，我还以为是乔丹在nba那种级别的赛马，查了一下冠军也不是特别多嘛。
 
 
 这动画里人设也最漂亮，非常有主角相，虽然大多数时候都在吃。
-
-
-
-
-
 
 
 -----
@@ -31475,14 +20879,7 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 ##### 4486#       发表于 2018-6-18 01:16
 
 
-
-
 阿草最后的CP就神鹰了嘛……
-
-
-
-
-
 
 
 -----
@@ -31491,14 +20888,7 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 ##### 4487#       发表于 2018-6-18 01:20
 
 
-
-
 还有铃鹿和梦想挂钩的梗 出自99年宝塚的解说 我的梦想是无声铃鹿，你们的梦想是什么呢？
-
-
-
-
-
 
 
 -----
@@ -31507,14 +20897,7 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 ##### 4488#       发表于 2018-6-18 01:21
 
 
-
-
 居然连皇帝哭这个梗都说出来了么…………
-
-
-
-
-
 
 
 -----
@@ -31523,22 +20906,15 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 ##### 4489#       发表于 2018-6-18 01:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">总之希望有第二季
 
 游戏快点出 live常驻spe酱center 铃鹿小草一左一右
-
-
-
-
-
 
 
 -----
 
 ####  物流大亨常凯申  
 ##### 4490#       发表于 2018-6-18 01:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40026750&amp;ptid=1590696" target="_blank">多多天下 发表于 2018-6-18 01:14</a>
@@ -31550,16 +20926,10 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 估计是个出道一两年，稍微有点点名气的新人
 
 
-
-
-
-
-
 -----
 
 ####  κύων  
 ##### 4491#       发表于 2018-6-18 01:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40026653&amp;ptid=1590696" target="_blank">nylonchina1 发表于 2018-6-18 00:59</a>
@@ -31569,16 +20939,10 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 阿花做得到吗？其他人做得到吗！？<img src="https://static.saraba1st.com/image/smiley/carton2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  DOACAON  
 ##### 4492#       发表于 2018-6-18 02:11
-
 
 
  本帖最后由 DOACAON 于 2018-6-17 12:14 编辑 
@@ -31602,13 +20966,7 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 [https://twitter.com/HiRoMi_ig/status/1008370504682487808](https://twitter.com/HiRoMi_ig/status/1008370504682487808)
 
 
-
 椛島还特别说了“希望能看到那孩子当主角”，二期有戏的感觉？
-
-
-
-
-
 
 
 -----
@@ -31617,14 +20975,7 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 ##### 4493#       发表于 2018-6-18 02:53
 
 
-
-
 想起那個地鐵廣告 牛皮了 
-
-
-
-
-
 
 
 -----
@@ -31633,13 +20984,7 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 ##### 4494#       发表于 2018-6-18 03:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">现在就等游戏上线了
-
-
-
-
-
 
 
 -----
@@ -31648,14 +20993,7 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 ##### 4495#       发表于 2018-6-18 03:51
 
 
-
-
 跑的时候只有草上飞是蓝色气流啊
-
-
-
-
-
 
 
 -----
@@ -31664,14 +21002,7 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 ##### 4496#       发表于 2018-6-18 06:17
 
 
-
-
 这么看ova帝皇小草都没戏了啊，真的只能是新角色了？
-
-
-
-
-
 
 
 -----
@@ -31680,21 +21011,13 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 ##### 4497#       发表于 2018-6-18 06:29
 
 
-
-
 到最后也没看见小栗帽穿决胜服<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 4498#       发表于 2018-6-18 08:29
-
 
 
  本帖最后由 amulelernen 于 2018-6-18 09:56 编辑 
@@ -31712,29 +21035,13 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 2018-6-18 08:29 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  cao1rui2  
 ##### 4499#       发表于 2018-6-18 09:03
 
 
-
-
 这兼用卡用的妙哇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -31743,12 +21050,8 @@ PA今年连着来4部片（3部TV加1部剧场版），还加一个宣布剧场�
 ##### 4500#       发表于 2018-6-18 09:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40026764&amp;ptid=1590696" target="_blank">sherlockchu 发表于 2018-6-18 01:16</a>
 阿草最后的CP就神鹰了嘛……</blockquote>
 等到毕业了铃鹿和训练员结婚以后，呼呼呼～
-
-
-
 
 

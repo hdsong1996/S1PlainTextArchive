@@ -1,13 +1,10 @@
 > ## **本文件最后更新于2020-02-28 13:00** 
 
 
-
 -----
 
 ####  xingenge  
 ##### 6001#         楼主| 发表于 2017-9-21 17:03
-
-
 
 
 声优 最终话的评论 
@@ -49,16 +46,10 @@
 古木　「プリンセス・プリンシパル」は最後まで目が離せないよ！　ワクワクで待ってて下さーい！　最後まで楽しんでもらえたら本当に嬉しいです。まだまだ、チーム白鳩の姿が見ていたいねー！　これからも、応援してもらえたら嬉しいです。
 
 
-
-
-
-
-
 -----
 
 ####  zhouyz  
 ##### 6002#       发表于 2017-9-21 17:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37267030&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-9-21 17:03</a>
@@ -70,16 +61,10 @@
 看上去……1.应该是HE，2.应该有神展开，3.应该没2期了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6003#         楼主| 发表于 2017-9-21 17:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37267186&amp;ptid=1486439" target="_blank">zhouyz 发表于 2017-9-21 17:15</a>
@@ -88,16 +73,10 @@
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">没事 都是万代爹 几年后就翻脸不认人了
 
 
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 6004#       发表于 2017-9-21 17:17
-
 
 
 <blockquote>xingenge 发表于 2017-9-21 17:03
@@ -108,17 +87,10 @@
 感觉稳定的不行啊  看这个气氛 就看怎么圆结局了
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6005#       发表于 2017-9-21 18:02
-
-
 
 
 没第二季-2走起
@@ -126,16 +98,10 @@
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  元亓  
 ##### 6006#       发表于 2017-9-21 18:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37267684&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-21 18:02</a>
@@ -147,16 +113,10 @@
 不要方，，大河内说了很想写后续。。还有些盼想。。大概。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6007#       发表于 2017-9-21 18:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37267210&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-9-21 17:17</a>
@@ -165,25 +125,13 @@
 但是商业价值和叛逆可不是一个等级的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6008#       发表于 2017-9-21 18:43
 
 
-
-
 就事论事,千世写信回和工厂回的意义也许有但是和这片整体气氛是有矛盾的,就应该把其本身的意义和剧情发展融合在一起来发展,而且现在想想共和国这次调动军队进行这种没有胜算的入侵除非事先和公爵达成政治交易否则简直就是把这群人当弃子的感觉(帝国方有优势这点很明显)
-
-
-
-
-
 
 
 -----
@@ -192,16 +140,10 @@
 ##### 6009#       发表于 2017-9-21 19:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37268178&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-09-21 18:43:58</a>
 就事论事,千世写信回和工厂回的意义也许有但是和这片整体气氛是有矛盾的,就应该把其本身的意义和剧情发展融 ...</blockquote>难说，万一神展开说洗衣女工是ge命领袖呢
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -210,16 +152,10 @@
 ##### 6010#       发表于 2017-9-21 19:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37268178&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-9-21 18:43</a>
 
 就事论事,千世写信回和工厂回的意义也许有但是和这片整体气氛是有矛盾的,就应该把其本身的意义和剧情发展融 ...</blockquote>
 千世回和工厂回应该拼起来一集讲完，这样还能省下一集时间来完善主线。不过我们这里马后炮也没什么用
-
-
-
-
-
 
 
 -----
@@ -228,23 +164,16 @@
 ##### 6011#       发表于 2017-9-21 19:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37268019&amp;ptid=1486439" target="_blank">元亓 发表于 2017-9-21 18:29</a>
 
 不要方，，大河内说了很想写后续。。还有些盼想。。大概。。</blockquote>
 那得19年走起了吧<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6012#       发表于 2017-9-21 19:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37268354&amp;ptid=1486439" target="_blank">wfm 发表于 2017-9-21 19:01</a>
@@ -256,24 +185,13 @@
 叛军的人,掘公说的你的友人,这就完美了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 6013#       发表于 2017-9-21 19:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你们觉得洗衣女能当这种角色吗，真这么写才是崩了吧
-
-
-
-
-
 
 
 -----
@@ -282,16 +200,10 @@
 ##### 6014#       发表于 2017-9-21 19:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37268421&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-21 19:08</a>
 
 那得19年走起了吧</blockquote>
 或者18年换人了,反正橘正纪已经能把大河内都能控制那么多话的情况下,控制别人更没什么问题<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -300,14 +212,7 @@
 ##### 6015#       发表于 2017-9-21 19:29
 
 
-
-
 洗衣工当这个角色问题是没有铺垫吧,那话工厂里面的气氛也明显没有反抗这个帝国的味道,甚至在表现陈述这个时代悲哀性感上还不如多罗西父亲那个回合,所以确实还不如女仆加入到了叛军这里合理一些
-
-
-
-
-
 
 
 -----
@@ -316,14 +221,7 @@
 ##### 6016#       发表于 2017-9-21 19:45
 
 
-
-
 看来今天一如既往的也没有先行图了
-
-
-
-
-
 
 
 -----
@@ -332,24 +230,16 @@
 ##### 6017#         楼主| 发表于 2017-9-21 20:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37268103&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-9-21 18:37</a>
 
 但是商业价值和叛逆可不是一个等级的,虽然公主对帝国这种程度的背叛对于早年能发表虚伪演说的鲁路 ...</blockquote>
 近几年没什么了  所以才炒冷饭
 
 
-
-
-
-
-
 -----
 
 ####  胡椒  
 ##### 6018#       发表于 2017-9-21 23:21
-
-
 
 
 看看会不会有双公主路线。即王室承认安洁和夏洛特都是公主……
@@ -361,32 +251,19 @@ L干掉了GENERAL~
 千世大活跃~多萝西和贝阿特让安洁得以续命~
 
 
-
-
-
-
-
 -----
 
 ####  万千百十  
 ##### 6019#       发表于 2017-9-21 23:35
 
 
-
-
 其实是终将成为你吗？与其说是内化的夙愿，不如说是要达成她心中的夏洛特
-
-
-
-
-
 
 
 -----
 
 ####  皇神樂耶  
 ##### 6020#       发表于 2017-9-21 23:46
-
 
 
 <blockquote>胡椒 发表于 2017-9-21 23:21
@@ -396,16 +273,10 @@ L干掉了GENERAL~
 还珠格格1结局？
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 6021#       发表于 2017-9-21 23:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37270749&amp;ptid=1486439" target="_blank">万千百十 发表于 2017-9-21 23:35</a>
@@ -416,25 +287,13 @@ L干掉了GENERAL~
 不过我也认同公主需要解开这个心结，她的责任没有自己想的那么大，所以她只要看到国家有改变的希望民众聚集起力量我觉得就足够放下了，她和安洁都失去太多不要再给自己增加太多枷锁。之前有什么讨论如何上位如何为政都有点偏离的感觉，这作品就当成两个人的故事来看或许也还好？
 
 
-
-
-
-
-
 -----
 
 ####  废基  
 ##### 6022#       发表于 2017-9-21 23:50
 
 
-
-
 最后真的有黑蜥蜴星人就神作了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -443,23 +302,16 @@ L干掉了GENERAL~
 ##### 6023#       发表于 2017-9-21 23:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37270865&amp;ptid=1486439" target="_blank">废基 发表于 2017-9-21 23:50</a>
 
 最后真的有黑蜥蜴星人就神作了</blockquote>
 请不要让我想起某武士弗拉明戈谢谢<img src="https://static.saraba1st.com/image/smiley/carton2017/112.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  胡椒  
 ##### 6024#       发表于 2017-9-22 00:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37270833&amp;ptid=1486439" target="_blank">皇神樂耶 发表于 2017-9-21 23:46</a>
@@ -471,24 +323,13 @@ L干掉了GENERAL~
 这两人长得那么像，有血缘关系才对吧~
 
 
-
-
-
-
-
 -----
 
 ####  M82  
 ##### 6025#       发表于 2017-9-22 00:29
 
 
-
 <img src="http://img.2cat.org/~tedc21thc/live/src/1506008521399.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -497,15 +338,9 @@ L干掉了GENERAL~
 ##### 6026#       发表于 2017-9-22 01:46
 
 
-
 <blockquote>M82 发表于 2017-9-22 00:29
 </blockquote>
 生存确认？！！
-
-
-
-
-
 
 
 -----
@@ -514,12 +349,9 @@ L干掉了GENERAL~
 ##### 6027#       发表于 2017-9-22 02:43
 
 
-
  本帖最后由 Norn 于 2017-9-22 23:45 编辑 
 
 之前的访谈完整版人肉翻,水平有限随便看看,2-8问都是上次杂志图里的 _(:з」∠)_
-
-
 
 
 白土晴一先生和速水螺旋人先生都是我的间谍老师.
@@ -591,13 +423,9 @@ L干掉了GENERAL~
 大河内:虽说作品本身只有12话,但我个人非常喜欢几位主角,加上与本作staff和声优们的合作也很愉快.有机会的话我希望能参与书写这个故事的后续,若能得到各位fans的支持我会感到非常荣幸.
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 5战斗力 +5
@@ -611,19 +439,13 @@ L干掉了GENERAL~
 | xingenge| + 1|辛苦了|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  万千百十  
 ##### 6028#       发表于 2017-9-22 08:02
-
 
 
 <blockquote>堆雪若叶 发表于 2017-9-21 23:49
@@ -633,25 +455,13 @@ L干掉了GENERAL~
 这又不矛盾
 
 
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 6029#       发表于 2017-9-22 11:47
 
 
-
-
 我觉得这周不会有先行图了，不可预知的原创番大结局放个先行图出来太容易剧透了 
-
-
-
-
-
 
 
 -----
@@ -660,23 +470,16 @@ L干掉了GENERAL~
 ##### 6030#       发表于 2017-9-22 12:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37274100&amp;ptid=1486439" target="_blank">彩虹之羽 发表于 2017-09-22 11:47:29</a>
 我觉得这周不会有先行图了，不可预知的原创番大结局放个先行图出来太容易剧透了  ...</blockquote>12集完结，没有第二季，没有先行图，一话定生死，突然死亡问你怕未<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 6031#       发表于 2017-9-22 12:50
-
 
 
 <blockquote>xtwx1716 发表于 2017-9-22 12:25
@@ -687,25 +490,13 @@ L干掉了GENERAL~
 怕什么，一点都不慌。就算不信大河内，我也信橘正纪 。集大成之作不是瞎吹的
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 6032#       发表于 2017-9-22 13:15
 
 
-
-
 还是想看先行图啊，不过还不出。。。上周这时候已经出了吧
-
-
-
-
-
 
 
 -----
@@ -714,24 +505,16 @@ L干掉了GENERAL~
 ##### 6033#       发表于 2017-9-22 14:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37275151&amp;ptid=1486439" target="_blank">暗黑能乐 发表于 2017-09-22 13:15:08</a>
 还是想看先行图啊，不过还不出。。。上周这时候已经出了吧</blockquote>先行图的情报没什么用，等于没有<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6034#       发表于 2017-9-22 15:15
-
-
 
 
 橘正紀 Masaki Tachibana‏ @tachicol_ 
@@ -752,21 +535,10 @@ L干掉了GENERAL~
 2017-9-22 15:15 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6035#         楼主| 发表于 2017-9-22 15:23
-
-
 
 
 第12話「case24 Fall of the Wall」
@@ -788,24 +560,13 @@ L干掉了GENERAL~
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fjsdacuczzj20b4069wez.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6036#       发表于 2017-9-22 15:27
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">泽尔达果然还是看起来不像好人……当初手游见到她的时候还以为是男性角色……
-
-
-
-
-
 
 
 -----
@@ -814,14 +575,7 @@ L干掉了GENERAL~
 ##### 6037#       发表于 2017-9-22 15:37
 
 
-
-
 安洁又在跑..
-
-
-
-
-
 
 
 -----
@@ -830,16 +584,9 @@ L干掉了GENERAL~
 ##### 6038#       发表于 2017-9-22 15:40
 
 
-
-
 已经比等伊泽塔结局时还紧张了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -848,13 +595,7 @@ L干掉了GENERAL~
 ##### 6039#       发表于 2017-9-22 15:43
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">奶不死的,我永远相信大河内.jpg
-
-
-
-
-
 
 
 -----
@@ -863,16 +604,9 @@ L干掉了GENERAL~
 ##### 6040#       发表于 2017-9-22 16:15
 
 
-
-
 马德好看！<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 
 （虽然刚补到第四话）
-
-
-
-
-
 
 
 -----
@@ -881,14 +615,7 @@ L干掉了GENERAL~
 ##### 6041#       发表于 2017-9-22 16:36
 
 
-
-
 这标题，墙要塌了？
-
-
-
-
-
 
 
 -----
@@ -897,16 +624,10 @@ L干掉了GENERAL~
 ##### 6042#       发表于 2017-9-22 17:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37276714&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-09-22 15:40:06</a>
 已经比等伊泽塔结局时还紧张了</blockquote>稳了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -915,14 +636,7 @@ L干掉了GENERAL~
 ##### 6043#       发表于 2017-9-22 17:36
 
 
-
-
 最后，我想看五个人躺在雪地上欢笑的画面
-
-
-
-
-
 
 
 -----
@@ -931,21 +645,13 @@ L干掉了GENERAL~
 ##### 6044#       发表于 2017-9-22 17:50
 
 
-
-
 目测安洁把飞船炸了跑了出来
-
-
-
-
-
 
 
 -----
 
 ####  问楫  
 ##### 6045#       发表于 2017-9-22 18:18
-
 
 
  本帖最后由 问楫 于 2017-9-22 18:36 编辑 
@@ -960,20 +666,10 @@ L干掉了GENERAL~
 一道绿色的光缓缓降落……
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6046#       发表于 2017-9-22 19:00
-
-
 
 
 Princess Principal游戏全剧情翻译_萌战吧@3gokumuso
@@ -988,16 +684,10 @@ Phantom Detective
 <img src="http://wx2.sinaimg.cn/large/006tJ7Zcly1fjsjkf19wjj30u01hcqla.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6047#       发表于 2017-9-22 19:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37276714&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-22 15:40</a>
@@ -1009,16 +699,10 @@ Phantom Detective
 大势基本不会改变的感觉,不可能比终末更完整的收尾,但是主角方死人的概率也不高
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6048#       发表于 2017-9-22 19:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37279020&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-09-22 19:05:51</a>
@@ -1027,17 +711,10 @@ Phantom Detective
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6049#       发表于 2017-9-22 19:12
-
-
 
 
 这片请来的staff都是怪物
@@ -1058,20 +735,10 @@ Phantom Detective
 2017-9-22 19:09 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 6050#       发表于 2017-9-22 19:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37278984&amp;ptid=1486439" target="_blank">白房子 发表于 2017-9-22 19:00</a>
@@ -1084,32 +751,19 @@ https://tieba.baidu.com/p/5288957503?pn=9
 索菲枪娘游戏亲女儿啦<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6051#       发表于 2017-9-22 20:39
 
 
-
-
 我敢说大河内这回稳了，佳作预定，就算你们不信我，也得信橘正纪啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  问楫  
 ##### 6052#       发表于 2017-9-22 22:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37279804&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-9-22 20:39</a>
@@ -1133,19 +787,12 @@ https://tieba.baidu.com/p/5288957503?pn=9
 “从最开始你就是这样，惹麻烦的总是你，而为你收拾烂摊子的总是我……从我们合作开始，我最讨厌的就是你这一点。”
 
 
-
-
-
 “永别了，大河内。”
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 6战斗力 +6
@@ -1160,19 +807,13 @@ https://tieba.baidu.com/p/5288957503?pn=9
 | 白房子| + 1|来人 喂公子吃药|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  堆雪若叶  
 ##### 6053#       发表于 2017-9-22 23:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37280987&amp;ptid=1486439" target="_blank">问楫 发表于 2017-9-22 22:48</a>
@@ -1186,7 +827,6 @@ https://tieba.baidu.com/p/5288957503?pn=9
 ##### 6054#       发表于 2017-9-22 23:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37278516&amp;ptid=1486439" target="_blank">问楫 发表于 2017-9-22 18:18</a>
 
 安洁劫持飞船径直冲向了巨大的墙壁，伴随着一声“公主乎阿克巴！”的高呼，墙壁轰然倒下
@@ -1196,25 +836,13 @@ https://tieba.baidu.com/p/5288957503?pn=9
 不同于任何意义，你就是绿光，如此的唯一~
 
 
-
-
-
-
-
 -----
 
 ####  iceplatinum  
 ##### 6055#       发表于 2017-9-22 23:29
 
 
-
-
 我真怕你们奶爆... ... 
-
-
-
-
-
 
 
 -----
@@ -1223,14 +851,8 @@ https://tieba.baidu.com/p/5288957503?pn=9
 ##### 6056#       发表于 2017-9-22 23:58
 
 
-
 <img src="http://wx1.sinaimg.cn/mw690/006tJ7Zcly1fjsrt7upz4j30ii0ae0zv.jpg" referrerpolicy="no-referrer">
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">钦定译名？看来这译名真的甩不掉了。前几天也看到白鹅纪做了班长回的专栏，这期扭曲宅新闻做了3分钟长篇幅介绍，但回看之前的投稿只有新番扫雷特辑才出场了一下嘛w
-
-
-
-
-
 
 
 -----
@@ -1239,19 +861,11 @@ https://tieba.baidu.com/p/5288957503?pn=9
 ##### 6057#       发表于 2017-9-23 00:02
 
 
-
-
 good hope?
-
-
-
-
 
 
 DKVQfQ_VAAAXVYz.jpg
 (120.12 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -1260,24 +874,7 @@ DKVQfQ_VAAAXVYz.jpg
 2017-9-23 00:01 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201709/23/000150enwa4wnanfzumxcg.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -1286,14 +883,7 @@ DKVQfQ_VAAAXVYz.jpg
 ##### 6058#       发表于 2017-9-23 00:09
 
 
-
-
 既然大河内说想写【她们】的后续，基本稳得不行，这世界又没有code之类可以复活的设定，怎么可能死人嘛
-
-
-
-
-
 
 
 -----
@@ -1302,18 +892,11 @@ DKVQfQ_VAAAXVYz.jpg
 ##### 6059#       发表于 2017-9-23 00:54
 
 
-
 [https://twitter.com/ninaryo/status/911255440637403136](https://twitter.com/ninaryo/status/911255440637403136)
-
-
-
-
 
 
 DKVt0W6VoAEPR_W.jpg
 (68.25 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -1322,24 +905,7 @@ DKVt0W6VoAEPR_W.jpg
 2017-9-23 00:54 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201709/23/005431jl8lx0811p4uv328.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -1348,23 +914,16 @@ DKVt0W6VoAEPR_W.jpg
 ##### 6060#       发表于 2017-9-23 04:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37281507&amp;ptid=1486439" target="_blank">白房子 发表于 2017-09-22 23:58:31</a>
 钦定译名？看来这译名真的甩不掉了。前几天也看到白鹅纪做了班长回的专栏，这期扭曲宅新闻做了3分钟长篇幅 ...</blockquote>并不是，我写的文案是英文名<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  问楫  
 ##### 6061#       发表于 2017-9-23 09:15
-
 
 
  本帖最后由 问楫 于 2017-9-23 15:41 编辑 
@@ -1382,37 +941,19 @@ good hope?</blockquote>
 2017-9-23 15:41 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6062#       发表于 2017-9-23 09:26
 
 
-
-
 假如动画有二期的话把枪娘加进来也不错嘛，游戏立绘超好舔
-
-
-
-
-
 
 
 -----
 
 ####  迪门修斯  
 ##### 6063#       发表于 2017-9-23 09:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37281855&amp;ptid=1486439" target="_blank">暗黑能乐 发表于 2017-9-23 00:54</a>
@@ -1422,17 +963,10 @@ good hope?</blockquote>
 倒是安捷一直把自己当外星人去成长这种靠武力解决问题的习惯，一旦到了掣肘之地很容易钻牛角尖
 
 
-
-
-
-
-
 -----
 
 ####  神龙小生  
 ##### 6064#       发表于 2017-9-23 10:37
-
-
 
 
 今天才补了最新话，虽然似乎一般认为最后的“公主”是曾经是小偷的现在是公主的伪公主夏洛特，不过我看完后却突然有个想法，这个“公主”其实是曾经是公主现在是spy的安洁。
@@ -1440,16 +974,10 @@ good hope?</blockquote>
 夏洛特向安洁表达决意，把自己反锁进房，希望安洁回去重新做回本来的公主身份，去完成夏洛特想要完成的愿望。
 
 
-
-
-
-
-
 -----
 
 ####  hein  
 ##### 6065#       发表于 2017-9-23 10:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37283642&amp;ptid=1486439" target="_blank">神龙小生 发表于 2017-09-23 10:37:40</a>
@@ -1462,16 +990,10 @@ good hope?</blockquote>
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 6066#       发表于 2017-9-23 10:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37282990&amp;ptid=1486439" target="_blank">问楫 发表于 2017-9-23 09:15</a>
@@ -1480,25 +1002,13 @@ good hope?</blockquote>
 下一话就要炸咸鱼了么（
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 6067#       发表于 2017-9-23 11:07
 
 
-
-
 不去想为啥第11话为啥不见大河内了。最后一话，我已经师母已呆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1507,16 +1017,10 @@ good hope?</blockquote>
 ##### 6068#       发表于 2017-9-23 11:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37283642&amp;ptid=1486439" target="_blank">神龙小生 发表于 2017-9-23 10:37</a>
 
 今天才补了最新话，虽然似乎一般认为最后的“公主”是曾经是小偷的现在是公主的伪公主夏洛特，不过我看完后 ...</blockquote>
 应该不会有这种操作，自设囚牢岂不是正如安捷所愿了。
-
-
-
-
-
 
 
 -----
@@ -1525,16 +1029,9 @@ good hope?</blockquote>
 ##### 6069#       发表于 2017-9-23 11:17
 
 
-
-
 早知道id-0就该找大河内来写，增加点话题度和娱乐性。太硬核了也不好。
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -1543,15 +1040,9 @@ good hope?</blockquote>
 ##### 6070#       发表于 2017-9-23 11:23
 
 
-
 <blockquote>漫区专号 发表于 2017-9-23 11:07
 不去想为啥第11话为啥不见大河内了。最后一话，我已经师母已呆</blockquote>
 大河内忙啊 鲁鲁修剧场版加恶魔人的同期 还有甲鱼2
-
-
-
-
-
 
 
 -----
@@ -1560,14 +1051,7 @@ good hope?</blockquote>
 ##### 6071#       发表于 2017-9-23 11:25
 
 
-
-
 要判刑了，好紧张，大河内我信你啊！以后不说你坏话啦！
-
-
-
-
-
 
 
 -----
@@ -1576,15 +1060,9 @@ good hope?</blockquote>
 ##### 6072#       发表于 2017-9-23 11:26
 
 
-
 <blockquote>暗黑能乐 发表于 2017-9-23 00:54
 https://twitter.com/ninaryo/status/911255440637403136</blockquote>
 好色情
-
-
-
-
-
 
 
 -----
@@ -1593,102 +1071,46 @@ https://twitter.com/ninaryo/status/911255440637403136</blockquote>
 ##### 6073#       发表于 2017-9-23 12:10
 
 
-
 [https://twitter.com/yousion99/status/911388043306713088](https://twitter.com/yousion99/status/911388043306713088)
-
-
-
-
 
 
 TIM图片20170923120154.jpg
 (149.3 KB, 下载次数: 1)
 
 
-
-
 下载附件
 
 
 2017-9-23 12:10 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201709/23/121007lc73r5rw453zzv5h.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 TIM图片20170923120211.jpg
 (134.72 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2017-9-23 12:10 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201709/23/121011ds6balqb94334ks7.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 TIM图片20170923120216.jpg
 (85.1 KB, 下载次数: 1)
 
 
-
-
 下载附件
 
 
 2017-9-23 12:10 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201709/23/121014s4p4c8px0g2pbczx.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -1697,15 +1119,9 @@ TIM图片20170923120216.jpg
 ##### 6074#       发表于 2017-9-23 12:13
 
 
-
 <blockquote>迪门修斯 发表于 2017-9-23 11:09
 应该不会有这种操作，自设囚牢岂不是正如安捷所愿了。</blockquote>
 只是关起自己又不是跑路有什么用，出来不还是要被追杀。这是逼安洁去做自己完成愿望。
-
-
-
-
-
 
 
 -----
@@ -1714,16 +1130,10 @@ TIM图片20170923120216.jpg
 ##### 6075#       发表于 2017-9-23 13:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37284544&amp;ptid=1486439" target="_blank">神龙小生 发表于 2017-9-23 12:13</a>
 
 只是关起自己又不是跑路有什么用，出来不还是要被追杀。这是逼安洁去做自己完成愿望。 ...</blockquote>
 第11集这么明白为何要强行误解？难不成密闭空间里演戏给上帝看？
-
-
-
-
-
 
 
 -----
@@ -1732,23 +1142,16 @@ TIM图片20170923120216.jpg
 ##### 6076#       发表于 2017-9-23 13:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37284102&amp;ptid=1486439" target="_blank">万千百十 发表于 2017-9-23 11:25</a>
 
 要判刑了，好紧张，大河内我信你啊！以后不说你坏话啦！</blockquote>
 我反正还是不会忽视当年vvv的那些“展开”的，虽然这锅熊谷和松尾要分走一些<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6077#       发表于 2017-9-23 17:34
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">此图可P，还有这个视角泽尔达的腿应该挺好舔的。最后一集了先行图都是没什么信息量的场景……
@@ -1764,37 +1167,19 @@ TIM图片20170923120216.jpg
 2017-9-23 17:32 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 6078#       发表于 2017-9-23 17:43
 
 
-
-
 感觉这个应该是泽尔达已经把公主揭穿身份后的了
-
-
-
-
-
 
 
 -----
 
 ####  Kirihara  
 ##### 6079#       发表于 2017-9-23 17:48
-
-
 
 
 一口气补完，不得不说，就目前这剧情，稳得不行啊。
@@ -1804,33 +1189,19 @@ TIM图片20170923120216.jpg
 最后，大胆的预测一个，公主会gg，然后安洁恢复真身，并加冕为王，带着二人共同的梦想，迎来新时代。
 
 
-
-
-
-
-
 -----
 
 ####  sxwd025825  
 ##### 6080#       发表于 2017-9-23 17:51
 
 
-
-
 推特有新图出来了，看到那图我慌了，悲剧结局？！
-
-
-
-
-
 
 
 -----
 
 ####  堆雪若叶  
 ##### 6081#       发表于 2017-9-23 17:56
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201709/23/175541vqi1sqsx9zisq1c0.jpg" referrerpolicy="no-referrer">
@@ -1843,17 +1214,7 @@ TIM图片20170923120216.jpg
 2017-9-23 17:55 上传
 
 
-
-
-
-
-
 原画你放这图？！
-
-
-
-
-
 
 
 -----
@@ -1862,16 +1223,9 @@ TIM图片20170923120216.jpg
 ##### 6082#       发表于 2017-9-23 17:56
 
 
-
-
 公主能不能不带这个绿眼镜了，我严肃不起来啊…
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -1880,14 +1234,7 @@ TIM图片20170923120216.jpg
 ##### 6083#       发表于 2017-9-23 17:58
 
 
-
-
 我开始慌了，怎么有股真的要分道扬镳的感觉
-
-
-
-
-
 
 
 -----
@@ -1896,14 +1243,7 @@ TIM图片20170923120216.jpg
 ##### 6084#       发表于 2017-9-23 18:11
 
 
-
-
 原画放的图是个人喜好吧，不得不说这虐感画得很棒<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1912,14 +1252,7 @@ TIM图片20170923120216.jpg
 ##### 6085#       发表于 2017-9-23 18:23
 
 
-
-
 不要慌，只是技术性调整！！大概....
-
-
-
-
-
 
 
 -----
@@ -1928,14 +1261,7 @@ TIM图片20170923120216.jpg
 ##### 6086#       发表于 2017-9-23 18:28
 
 
-
-
 什么鬼？<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1944,13 +1270,7 @@ TIM图片20170923120216.jpg
 ##### 6087#       发表于 2017-9-23 18:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">不要慌 是技术性调整
-
-
-
-
-
 
 
 -----
@@ -1959,16 +1279,9 @@ TIM图片20170923120216.jpg
 ##### 6088#       发表于 2017-9-23 18:35
 
 
-
-
 现在发这个图难道不是说明结局肯定HE吗 你们慌什么
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -1977,13 +1290,7 @@ TIM图片20170923120216.jpg
 ##### 6089#       发表于 2017-9-23 18:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">好慌啊，不要真玩分手
-
-
-
-
-
 
 
 -----
@@ -1992,14 +1299,7 @@ TIM图片20170923120216.jpg
 ##### 6090#       发表于 2017-9-23 18:37
 
 
-
-
 不要方，烟雾弹<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2008,24 +1308,15 @@ TIM图片20170923120216.jpg
 ##### 6091#       发表于 2017-9-23 18:37
 
 
-
-
 不要慌，一切还在掌控之中
 
 这一定是先苦后甜，这么稳的节奏下最后怎么能不发糖
-
-
-
-
-
 
 
 -----
 
 ####  zhouyz  
 ##### 6092#       发表于 2017-9-23 18:51
-
-
 
 
 真正的公主本该在十年前就死了，可是你为什么要出现呢？给了我十年的期盼与希望，又给了十年后的我如此短暂而美妙的时光，却又将给我带来整个余生的寂寞与悲伤……为什么呢？
@@ -2037,16 +1328,10 @@ TIM图片20170923120216.jpg
 千世教会了我他们的诗歌和书法，如今的我只能将自己的痛苦与思念寄托纸上，“昔日佳人何处在，唯见残镜照落花。十年吴越一场梦，明月空樽泪不流。”
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6093#       发表于 2017-9-23 20:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37284524&amp;ptid=1486439" target="_blank">暗黑能乐 发表于 2017-9-23 12:10</a>
@@ -2055,31 +1340,19 @@ https://twitter.com/yousion99/status/911388043306713088</blockquote>
 第二张安洁嘴角的是流口水吗？。。
 
 
-
-
-
-
-
 -----
 
 ####  kimone  
 ##### 6094#       发表于 2017-9-23 20:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 6095#       发表于 2017-9-23 20:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37287114&amp;ptid=1486439" target="_blank">Kirihara 发表于 2017-9-23 17:48</a>
@@ -2090,16 +1363,10 @@ https://twitter.com/yousion99/status/911388043306713088</blockquote>
 只有一个能成为女王，是经历了十年磨炼的小偷，还是忍辱负重十年的真公主？不管是谁，都要舍弃原本的自己，这就是王之力带来的孤独<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">貌似有点出入呢，对吗？安洁
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6096#       发表于 2017-9-23 20:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37287189&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-23 17:56</a>
@@ -2111,16 +1378,10 @@ https://twitter.com/yousion99/status/911388043306713088</blockquote>
 流氓公主的品味就是叼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6097#       发表于 2017-9-23 20:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37288313&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-9-23 20:02</a>
@@ -2131,17 +1392,10 @@ https://twitter.com/yousion99/status/911388043306713088</blockquote>
 多萝西女巫，安洁吸血鬼，千世恶灵？比阿特科学怪人弗兰肯斯坦，捏它的万圣节，不知道如果有公主的话会是什么角色。
 
 
-
-
-
-
-
 -----
 
 ####  此木  
 ##### 6098#       发表于 2017-9-23 20:25
-
-
 
 
 staff这图一出来好方啊 还能继续相信大河内吗？<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
@@ -2149,16 +1403,10 @@ staff这图一出来好方啊 还能继续相信大河内吗？<img src="https:/
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6099#       发表于 2017-9-23 20:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37288484&amp;ptid=1486439" target="_blank">白房子 发表于 2017-9-23 20:23</a>
@@ -2169,25 +1417,13 @@ staff这图一出来好方啊 还能继续相信大河内吗？<img src="https:/
 那么是吸谁的血？
 
 
-
-
-
-
-
 -----
 
 ####  killng  
 ##### 6100#       发表于 2017-9-23 20:40
 
 
-
-
 公主-眼镜.ver <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">:一曲肝肠断 天涯何处觅知音
-
-
-
-
-
 
 
 -----
@@ -2196,16 +1432,10 @@ staff这图一出来好方啊 还能继续相信大河内吗？<img src="https:/
 ##### 6101#       发表于 2017-9-23 20:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37288566&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-9-23 20:35</a>
 
 那么是吸谁的血？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">之前你觉得她对着谁流口水那就是吸谁的血啦~
-
-
-
-
-
 
 
 -----
@@ -2214,16 +1444,9 @@ staff这图一出来好方啊 还能继续相信大河内吗？<img src="https:/
 ##### 6102#       发表于 2017-9-23 21:03
 
 
-
-
 我觉得staff之所以有魄力把那么多伏笔留在一集收完，说明最后故事的结束方式一定是非常规的
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -2232,24 +1455,16 @@ staff这图一出来好方啊 还能继续相信大河内吗？<img src="https:/
 ##### 6103#       发表于 2017-9-23 21:18
 
 
-
-
 我觉得这张图正好说明结局是HE
 
 
 应该是公主成为一个寂寞的王，安洁独自离开在白房子里开面包店
 
 
-
-
-
-
-
 -----
 
 ####  Miel  
 ##### 6104#       发表于 2017-9-23 21:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37285437&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-9-23 13:55</a>
@@ -2261,32 +1476,19 @@ staff这图一出来好方啊 还能继续相信大河内吗？<img src="https:/
 所以你这贴就这么写了?那再套这片试试<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  只等待明天  
 ##### 6105#       发表于 2017-9-23 22:10
 
 
-
-
 今晚是睡不安稳了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  万千百十  
 ##### 6106#       发表于 2017-9-23 22:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37288910&amp;ptid=1486439" target="_blank">皇神樂耶 发表于 2017-9-23 21:18</a>
@@ -2298,17 +1500,10 @@ staff这图一出来好方啊 还能继续相信大河内吗？<img src="https:/
 天天在白房子里等着公主，一天又一天，一年又一年，从少年等到中年，从中年等到老年，终于有一天早晨睡醒的时候发现年少的公主推开了白房子的门笑着说“安洁，我来找你了”。<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6107#         楼主| 发表于 2017-9-23 23:07
-
-
 
 
 本日！9/24（日）読売新聞朝刊【東京本社版】に『プリンセス・プリンシパル』全面広告が掲載！
@@ -2321,25 +1516,13 @@ staff这图一出来好方啊 还能继续相信大河内吗？<img src="https:/
 买了整版做广告……
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6108#       发表于 2017-9-23 23:09
 
 
-
-
 官方就剩这点钱了，赌一把吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说了这制作组一股穷酸样，不过就动画而言，也算是小成本里做得挺出彩的了
-
-
-
-
-
 
 
 -----
@@ -2348,15 +1531,9 @@ staff这图一出来好方啊 还能继续相信大河内吗？<img src="https:/
 ##### 6109#       发表于 2017-9-23 23:14
 
 
-
 <blockquote>神之叹息 发表于 2017-9-23 23:09
 官方就剩这点钱了，赌一把吧说了这制作组一股穷酸样，不过就动画而言，也算是小成本里做得挺出彩的 ...</blockquote>
 泥潭还是喜欢够味的，大河内娱乐性有保证
-
-
-
-
-
 
 
 -----
@@ -2365,22 +1542,14 @@ staff这图一出来好方啊 还能继续相信大河内吗？<img src="https:/
 ##### 6110#         楼主| 发表于 2017-9-23 23:22
 
 
-
-
 画 伯 对 决
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fjtwre0r0nj20sg0lb0w5.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Kirihara  
 ##### 6111#       发表于 2017-9-23 23:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37288339&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-9-23 20:05</a>
@@ -2391,16 +1560,10 @@ staff这图一出来好方啊 还能继续相信大河内吗？<img src="https:/
 另外，整个看下来，就觉得，大河内一楼写这种单元剧貌似还不错；目前的话，感觉整个这一季只是个背景，很多设定都没挖，强烈的怀疑有第二季。
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 6112#       发表于 2017-9-23 23:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37289791&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-9-23 23:09</a>
@@ -2409,17 +1572,10 @@ staff这图一出来好方啊 还能继续相信大河内吗？<img src="https:/
 你说这动画做得低调吧，但是制作阵容请来橘正纪大河内这些人又不像是为了混混过去的，这片怎么定位的我还是有点迷。
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 6113#       发表于 2017-9-23 23:47
-
-
 
 
 关于上位成为女王这个问题，我还是想说虽然公主反复在提及，但是其实这只是一个手段一种途径，这个手段途径指向的就是公主想要国家统一体制改变的理想。实际上前面有很多人都说过公主和共和国合作以来对自己上位完全没有做出任何努力完全看不懂公主的意图什么的，我觉得或许是因为动画没有往这方面发展靠拢的想法，没有想要公主走王国的途径宫斗上位当上女王再政治军事角逐拿下共和国最后一同治理整治国家这种繁琐复杂的展开，提及王国那边的继承顺序更多的是拿来给诺曼底公的行动做文章的，所以这一直没有成为公主行动的根据。
@@ -2427,16 +1583,10 @@ staff这图一出来好方啊 还能继续相信大河内吗？<img src="https:/
 但是公主的理想还是要实现，如果不走这条路怎么办呢？那就是现在突然出现的叛军设定为所秉持的理念和公主的理想保持相当的一致，我认为这就可以看做是编剧给公主开的金手指，为了让公主在前十一集划水后还能在最后一集拿出解决问题的方法，如果这么考虑的话，公主要不要最后成为女王已经不重要了，获取权力不是她的理想，国家能在某种力量下发生改变才是她的愿望，这样的话给她戴上女王的头冠就是一种无谓的束缚。
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6114#       发表于 2017-9-24 00:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37288921&amp;ptid=1486439" target="_blank">Miel 发表于 2017-9-23 21:20</a>
@@ -2448,27 +1598,15 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 所以大河内现在还没有爆走，他现在还处在”死后文“那个年代<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6115#       发表于 2017-9-24 00:08
 
 
-
-
 终于养出来一个觉醒枪娘，肝得我肝颤<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -2477,16 +1615,10 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6116#       发表于 2017-9-24 00:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37289942&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-9-23 23:27</a>
 
 你说这动画做得低调吧，但是制作阵容请来橘正纪大河内这些人又不像是为了混混过去的，这片怎么定位的我还 ...</blockquote>
 那不是低调，根本是宣传问题了。而且送的东西都没什么吸引力，要不是靠剧情取胜恐怕早就GG了
-
-
-
-
-
 
 
 -----
@@ -2495,23 +1627,16 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6117#       发表于 2017-9-24 00:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37289898&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-09-23 23:22:39</a>
 画 伯 对 决</blockquote>今村彩夏画的好像是公主啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 6118#       发表于 2017-9-24 00:13
-
 
 
 <blockquote>xingenge 发表于 2017-9-23 23:07
@@ -2521,27 +1646,15 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 早点休息等报纸图片扫图
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6119#       发表于 2017-9-24 00:16
 
 
-
-
 手游剧情又不多，为啥不来个全语音啊，这个企划的确挺寒酸的
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -2550,14 +1663,7 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6120#       发表于 2017-9-24 00:24
 
 
-
-
 为什么都说prpr是小制作低成本？
-
-
-
-
-
 
 
 -----
@@ -2566,16 +1672,10 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6121#       发表于 2017-9-24 00:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37290247&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-9-24 00:04</a>
 
 所以大河内现在还没有爆走，他现在还处在”死后文“那个年代</blockquote>
 看到这贴我才想起之前的讨论,你说"这种善意在大河内的作风里面是几乎不太可能看到的""并没有犯下让反派戏份过多的这一错误",就这两点来说,这片把公爵派当背景板和搞两集喝茶回明明是你的菜嘛,结果你反而抱怨来抱怨去是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2584,24 +1684,16 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6122#       发表于 2017-9-24 00:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37290468&amp;ptid=1486439" target="_blank">Miel 发表于 2017-9-24 00:34</a>
 
 看到这贴我才想起之前的讨论,你说"这种善意在大河内的作风里面是几乎不太可能看到的""并没有犯下让反派戏 ...</blockquote>
 ”善意“可不是直接去喝茶呀，那更像是在逃避”剧情发展“了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6123#       发表于 2017-9-24 00:59
-
-
 
 
 距离最后一话开播只有不到24小时了，是天堂还是地狱马上就能一见分晓。
@@ -2617,25 +1709,13 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 不知道想表达什么了，总之二期希望吧。
 
 
-
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6124#         楼主| 发表于 2017-9-24 01:02
 
 
-
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fjtzmgpu89j20p10xc4qp.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2644,14 +1724,8 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6125#       发表于 2017-9-24 01:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37290646&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-9-24 01:02</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">终于有宣传了 虽然只是最终话
-
-
-
-
-
 
 
 -----
@@ -2660,15 +1734,7 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6126#       发表于 2017-9-24 02:58
 
 
-
-
 最终任务………………<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
@@ -2677,13 +1743,7 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6127#         楼主| 发表于 2017-9-24 03:36
 
 
-
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fju43e0d63j20p00xcb29.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2692,16 +1752,10 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6128#       发表于 2017-9-24 07:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37246844&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-9-19 14:20</a>
 
 我是认为与其说千世写信回和工厂回合内容的意义到不如说那两话悠闲气氛的意义是什么,这和前6话以及最后三 ...</blockquote>
 这跟llx的校园回有区别吗,难道就因为那部是连续剧最后一分钟能掏出个神展开,所以前面20分钟的轻松内容就跟上一集的战争大片气氛合拍了<img src="https://static.saraba1st.com/image/smiley/carton2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2710,16 +1764,10 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6129#       发表于 2017-9-24 07:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37290564&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-9-24 00:47</a>
 
 ”善意“可不是直接去喝茶呀，那更像是在逃避”剧情发展“了，而公爵变背景板其实是说明官方发觉 ...</blockquote>
 喝茶的氛围就是给善意用的嘛,否则不就是第1话那种"善意",你吃吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2728,14 +1776,8 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6130#       发表于 2017-9-24 07:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37291125&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-9-24 03:36</a></blockquote>
 这里的ange是小写a，其他人的名字开头都是大写。。
-
-
-
-
-
 
 
 -----
@@ -2744,16 +1786,10 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6131#       发表于 2017-9-24 07:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37291383&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-09-24 07:09:51</a>
 这里的ange是小写a，其他人的名字开头都是大写。。</blockquote>说明安洁一辈子只能做小
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -2762,16 +1798,10 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6132#       发表于 2017-9-24 07:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37290564&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-9-24 00:47</a>
 
 ”善意“可不是直接去喝茶呀，那更像是在逃避”剧情发展“了，而公爵变背景板其实是说明官方发觉 ...</blockquote>
 这种番已经有伊泽塔作为前车之鉴了，观众老爷只想吃喜糖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最好你来多几集
-
-
-
-
-
 
 
 -----
@@ -2780,23 +1810,15 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6133#       发表于 2017-9-24 07:50
 
 
-
-
 这片子虽然号称间谍剧，但实际上谍战部分演的挺逗比的，反倒是人情的部分写的最好。剧组这样安排剧情也算是有自知之明，扬长避短吧
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  迪门修斯  
 ##### 6134#       发表于 2017-9-24 07:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37287186&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-9-23 17:56</a>
@@ -2807,17 +1829,10 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 然后“我们做朋友吧！”
 
 
-
-
-
-
-
 -----
 
 ####  间咒  
 ##### 6135#       发表于 2017-9-24 08:22
-
-
 
 
 就是今晚了，请务必稳住..
@@ -2825,16 +1840,10 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 最终话只要不崩，BD全卷走起！！
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6136#       发表于 2017-9-24 09:36
-
 
 
 【本日最終回！】『プリンセス・プリンシパル』第12話（最終話）が本日9/24（日）放送です！！本編終了後には特別CMが流れますのでお見逃しなく！TOKYOMX・BS11は60秒ver.、KBS京都・サンテレビは30秒ver.となります。[#pripri](https://twitter.com/hashtag/pripri?src=hash)
@@ -2850,30 +1859,13 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 2017-9-24 09:36 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 6137#       发表于 2017-9-24 09:50
 
 
-
-
 安洁在哭泣啊！
-
-
-
-
-
 
 
 -----
@@ -2882,14 +1874,7 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6138#       发表于 2017-9-24 09:57
 
 
-
-
 安洁这表情似乎是看到了熟人，莫非真是隔壁关着被公爵送去白房子的L
-
-
-
-
-
 
 
 -----
@@ -2898,14 +1883,7 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6139#       发表于 2017-9-24 10:03
 
 
-
-
 标题是最终任务，我现在好慌怎么办？？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2914,16 +1892,10 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6140#       发表于 2017-9-24 10:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37292159&amp;ptid=1486439" target="_blank">皇神樂耶 发表于 2017-9-24 09:57</a>
 
 安洁这表情似乎是看到了熟人，莫非真是隔壁关着被公爵送去白房子的L</blockquote>
 不是被橘正纪送去白房子的大河内吗
-
-
-
-
-
 
 
 -----
@@ -2932,14 +1904,7 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6141#       发表于 2017-9-24 10:06
 
 
-
-
 想起来，这周的先行图是最少的，也是最正常的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还不如不发~
-
-
-
-
-
 
 
 -----
@@ -2948,23 +1913,16 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6142#       发表于 2017-9-24 10:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37292229&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-09-24 10:06:19</a>
 想起来，这周的先行图是最少的，也是最正常的还不如不发~</blockquote>追加的还没出来呢
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6143#       发表于 2017-9-24 10:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37292242&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-24 10:07</a>
@@ -2976,16 +1934,10 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 目测没有了，都这个点数了，今晚就是最终话了呀
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6144#         楼主| 发表于 2017-9-24 10:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37292249&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-9-24 10:08</a>
@@ -2994,26 +1946,15 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 11~12 电击追加 12~14 animate会再放一遍
 
 
-
-
-
-
-
 -----
 
 ####  Tochika  
 ##### 6145#       发表于 2017-9-24 10:24
 
 
-
 <img src="https://wx2.sinaimg.cn/mw690/53c8408fgy1fjufv5ugz8j206005qt8q.jpg" referrerpolicy="no-referrer">
 
 やる下面是守る ​​​​，再也没什么好怕了
-
-
-
-
-
 
 
 -----
@@ -3022,14 +1963,7 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6146#       发表于 2017-9-24 10:35
 
 
-
-
 听说4chan的发现的？那里的太厉害了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">都是什么怪物？
-
-
-
-
-
 
 
 -----
@@ -3038,16 +1972,10 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6147#       发表于 2017-9-24 10:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37291383&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-9-24 07:09</a>
 
 这里的ange是小写a，其他人的名字开头都是大写。。</blockquote>
 可能只是因为字体。有些字体没有A，而是把a放大尺寸当大写字母用。
-
-
-
-
-
 
 
 -----
@@ -3056,16 +1984,10 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6148#       发表于 2017-9-24 10:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37292465&amp;ptid=1486439" target="_blank">LadySaazbaum 发表于 2017-9-24 10:37</a>
 
 可能只是因为字体。有些字体没有A，而是把a放大尺寸当大写字母用。</blockquote>
 感觉这个可能性特小吧。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看样子也不是什么很特殊的字体。要么是官方伏笔？。。
-
-
-
-
-
 
 
 -----
@@ -3074,14 +1996,7 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6149#       发表于 2017-9-24 10:54
 
 
-
-
 有一种当初看flfl专楼的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3090,14 +2005,7 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6150#       发表于 2017-9-24 10:56
 
 
-
-
 别想太多，不然到时又要大叫什么喂屎。
-
-
-
-
-
 
 
 -----
@@ -3106,14 +2014,7 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6151#         楼主| 发表于 2017-9-24 11:06
 
 
-
-
 电击放的都是旧图 不发了 有一张将军的 可有可无
-
-
-
-
-
 
 
 -----
@@ -3122,16 +2023,10 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6152#       发表于 2017-9-24 11:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37292712&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-9-24 11:06</a>
 
 电击放的都是旧图 不发了 有一张将军的 可有可无</blockquote>
 制作组都不敢放图了，怕引起退订狂潮<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3140,16 +2035,10 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6153#       发表于 2017-9-24 11:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37291445&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-9-24 07:37</a>
 
 这种番已经有伊泽塔作为前车之鉴了，观众老爷只想吃喜糖最好你来多几集 ...</blockquote>
 伊泽塔挺好的除了西格和将军强行泄密那段太尴尬了点其他的都还不错,至于数据这东西,当年大河内的死后文也 是爆死的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3158,16 +2047,10 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6154#       发表于 2017-9-24 11:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37291374&amp;ptid=1486439" target="_blank">Miel 发表于 2017-9-24 07:07</a>
 
 这跟llx的校园回有区别吗,难道就因为那部是连续剧最后一分钟能掏出个神展开,所以前面20分钟的轻松内容就 ...</blockquote>
 一期我记不清了,但是二期的校园回基本上是维持虚假平静下的剑拔弩张了,朱雀拿电话试探鲁路修那段印象深刻<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3176,21 +2059,13 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6155#       发表于 2017-9-24 11:38
 
 
-
-
 说起来当初安洁为什么要提出替换计划？想找公主私底下偷偷接触就好了，把公主推到风口浪尖怎么想都很危险吧，尤其原版还包含杀死公主这一步。
-
-
-
-
-
 
 
 -----
 
 ####  keroro80722  
 ##### 6156#       发表于 2017-9-24 11:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37290398&amp;ptid=1486439" target="_blank">sxwd025825 发表于 2017-9-24 00:24</a>
@@ -3207,16 +2082,10 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 能有現在的熱度全靠製作組的硬實力跟大河內的名氣
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6157#       发表于 2017-9-24 11:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37292991&amp;ptid=1486439" target="_blank">midearth 发表于 2017-9-24 11:38</a>
@@ -3225,16 +2094,10 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 我记得提出替换计划的不是L吗，难道第一话有解释是安洁提出的吗，第二话会议时候L表示要在王室里送人
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6158#       发表于 2017-9-24 11:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37293090&amp;ptid=1486439" target="_blank">keroro80722 发表于 2017-9-24 11:51</a>
@@ -3245,16 +2108,10 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 杂志图里面关于pp的还是不少的，有些作品才是杂志图都很少看到
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6159#       发表于 2017-9-24 11:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37293093&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-09-24 11:51:37</a>
@@ -3263,16 +2120,10 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  keroro80722  
 ##### 6160#       发表于 2017-9-24 11:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37293117&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-9-24 11:53</a>
@@ -3285,16 +2136,10 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 至少跟終末的伊澤塔．．．．．．差距不小
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6161#       发表于 2017-9-24 11:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37293141&amp;ptid=1486439" target="_blank">keroro80722 发表于 2017-9-24 11:55</a>
@@ -3307,31 +2152,19 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 杂志图pr明显比终末多，至于动画经费投入的话，pr除了有一话比较崩外其他的感觉还行，终末中期之后感觉作画更不稳定
 
 
-
-
-
-
-
 -----
 
 ####  无梦女  
 ##### 6162#       发表于 2017-9-24 12:02
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">看似稳如老狗，实则慌的一笔
-
-
-
-
-
 
 
 -----
 
 ####  暗黑能乐  
 ##### 6163#       发表于 2017-9-24 12:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37292838&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-9-24 11:20</a>
@@ -3342,24 +2175,13 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 然后主角那边也特别纯粹，或许大部分百合党更喜欢这种纯粹的发糖吧。。但我个人更喜欢这种被现实与过去束缚，搭配上事件发生产生的不同人物内心的冲突，这会让角色的魅力和相互之间羁绊感倍增，给我的吸引力更大
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 6164#       发表于 2017-9-24 12:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">还有一点不得不吹，BGM很棒！让我对梶浦由记印象焕然一新，可能是我对她的初印象不大对，但是prpr里的感觉真的很棒。特别喜欢CBALL那首（
-
-
-
-
-
 
 
 -----
@@ -3368,15 +2190,9 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6165#       发表于 2017-9-24 12:19
 
 
-
 <blockquote>midearth 发表于 2017-9-24 11:38
 说起来当初安洁为什么要提出替换计划？想找公主私底下偷偷接触就好了，把公主推到风口浪尖怎么想都很危险吧 ...</blockquote>
 间谍哪来的人身自由，到时候C机关大笔一挥把安洁送到某个殖民地总督那里当个十年女仆，她还怎么去找公主
-
-
-
-
-
 
 
 -----
@@ -3385,17 +2201,10 @@ https://bbs.saraba1st.com/2b/thread-1318305-1-1.html
 ##### 6166#       发表于 2017-9-24 12:27
 
 
-
-
 Amazon提前把最后一集放出了。
 
 
 结局安排二期有望。
-
-
-
-
-
 
 
 -----
@@ -3404,16 +2213,10 @@ Amazon提前把最后一集放出了。
 ##### 6167#       发表于 2017-9-24 12:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37293356&amp;ptid=1486439" target="_blank">暗黑能乐 发表于 2017-9-24 12:18</a>
 
 还有一点不得不吹，BGM很棒！让我对梶浦由记印象焕然一新，可能是我对她的初印象不大对，但是prpr里 ...</blockquote>
 焕然一新？这是梶浦由记老本行。她早期就做了不少打枪少女动画的BGM。
-
-
-
-
-
 
 
 -----
@@ -3422,14 +2225,7 @@ Amazon提前把最后一集放出了。
 ##### 6168#       发表于 2017-9-24 12:33
 
 
-
-
 恩？？？又有剧透，拒绝拒绝！！！
-
-
-
-
-
 
 
 -----
@@ -3438,16 +2234,10 @@ Amazon提前把最后一集放出了。
 ##### 6169#       发表于 2017-9-24 12:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37293449&amp;ptid=1486439" target="_blank">tmpfs 发表于 2017-9-24 12:29</a>
 
 焕然一新？这是梶浦由记老本行。她早期就做了不少打枪少女动画的BGM。</blockquote>
 依然觉得NOIR的OST是梶浦的巅峰。都不敢相信一部TV动画的OST会这么精彩，这么充满想象力。prpr也就是正常发挥稍微好点。
-
-
-
-
-
 
 
 -----
@@ -3456,14 +2246,7 @@ Amazon提前把最后一集放出了。
 ##### 6170#       发表于 2017-9-24 12:41
 
 
-
-
 最新这张图安洁的发色是变回来了？
-
-
-
-
-
 
 
 -----
@@ -3472,14 +2255,7 @@ Amazon提前把最后一集放出了。
 ##### 6171#       发表于 2017-9-24 12:41
 
 
-
-
 音乐方面感觉还行，我记得当初az的原声出来的时候我听了一遍感觉音监到后边一定是醉酒上班瞎搞
-
-
-
-
-
 
 
 -----
@@ -3488,16 +2264,10 @@ Amazon提前把最后一集放出了。
 ##### 6172#       发表于 2017-9-24 12:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37293449&amp;ptid=1486439" target="_blank">tmpfs 发表于 2017-9-24 12:29</a>
 
 焕然一新？这是梶浦由记老本行。她早期就做了不少打枪少女动画的BGM。</blockquote>
 所以我说是我对她印象不大对嘛
-
-
-
-
-
 
 
 -----
@@ -3506,13 +2276,7 @@ Amazon提前把最后一集放出了。
 ##### 6173#       发表于 2017-9-24 12:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">不要剧透啊，我想把悬念放到晚上啊！
-
-
-
-
-
 
 
 -----
@@ -3521,16 +2285,9 @@ Amazon提前把最后一集放出了。
 ##### 6174#       发表于 2017-9-24 12:47
 
 
-
-
 亚马逊是不是傻逼
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -3539,24 +2296,16 @@ Amazon提前把最后一集放出了。
 ##### 6175#       发表于 2017-9-24 12:50
 
 
-
-
 European turtle dove 欧斑鸠
 
 
 Perhaps because of Biblical references (especially the well-known verse from the Song of Songs), its mournful voice, and the fact that it forms strong pair bonds, European turtle doves have become emblems of devoted love.
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6176#       发表于 2017-9-24 12:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37293427&amp;ptid=1486439" target="_blank">tmpfs 发表于 2017-9-24 12:27</a>
@@ -3568,24 +2317,13 @@ Amazon提前把最后一集放出了。
 整个楼都看不见你，现在过来透一句很有趣吗？滚吧
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6177#         楼主| 发表于 2017-9-24 12:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">就知道有这幺蛾子的事，我也不好强制性规定什么，希望大家把悬念留到生放吧
-
-
-
-
-
 
 
 -----
@@ -3594,16 +2332,10 @@ Amazon提前把最后一集放出了。
 ##### 6178#       发表于 2017-9-24 12:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37293670&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-24 12:52</a>
 
 整个楼都看不见你，现在过来透一句很有趣吗？滚吧</blockquote>
 欸 不要这样说啦 前三集有出现的
-
-
-
-
-
 
 
 -----
@@ -3612,16 +2344,10 @@ Amazon提前把最后一集放出了。
 ##### 6179#       发表于 2017-9-24 12:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37292991&amp;ptid=1486439" target="_blank">midearth 发表于 2017-9-24 11:38</a>
 
 说起来当初安洁为什么要提出替换计划？想找公主私底下偷偷接触就好了，把公主推到风口浪尖怎么想都很危险吧 ...</blockquote>
 战争阶段你没有组织支持，一个十来岁少女能见到双方间谍围着的公主？
-
-
-
-
-
 
 
 -----
@@ -3630,21 +2356,13 @@ Amazon提前把最后一集放出了。
 ##### 6180#       发表于 2017-9-24 12:59
 
 
-
-
 隔壁来自深渊就一直有leak……不知道什么情况<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 6181#         楼主| 发表于 2017-9-24 13:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37293743&amp;ptid=1486439" target="_blank">钢琴猫 发表于 2017-9-24 12:59</a>
@@ -3657,25 +2375,13 @@ Amazon提前把最后一集放出了。
 还有就是少年JUMP的杂志偷跑，一般就给几个关注度高的情报，其他几个就往后了，除非有人找他们要
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6182#       发表于 2017-9-24 13:04
 
 
-
-
 gtmdAmazon<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">隔壁影视区剧透是可以找版主塞抹布的。
-
-
-
-
-
 
 
 -----
@@ -3684,13 +2390,7 @@ gtmdAmazon<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" 
 ##### 6183#         楼主| 发表于 2017-9-24 13:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">除非从源头抓，JUMP的偷跑，一是有警方压力，二是发货那儿延迟，所以现在都从周四推到周五了（估计楼里不看JUMP的多）
-
-
-
-
-
 
 
 -----
@@ -3699,16 +2399,10 @@ gtmdAmazon<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" 
 ##### 6184#         楼主| 发表于 2017-9-24 13:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37293785&amp;ptid=1486439" target="_blank">白房子 发表于 2017-9-24 13:04</a>
 
 gtmdAmazon隔壁影视区剧透是可以找版主塞抹布的。</blockquote>
 好像漫区也可以，举报是有受理的
-
-
-
-
-
 
 
 -----
@@ -3717,14 +2411,7 @@ gtmdAmazon隔壁影视区剧透是可以找版主塞抹布的。</blockquote>
 ##### 6185#       发表于 2017-9-24 13:09
 
 
-
-
 求加qq群
-
-
-
-
-
 
 
 -----
@@ -3733,14 +2420,7 @@ gtmdAmazon隔壁影视区剧透是可以找版主塞抹布的。</blockquote>
 ##### 6186#       发表于 2017-9-24 13:09
 
 
-
-
 是不是可以吹起来了<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3749,16 +2429,9 @@ gtmdAmazon隔壁影视区剧透是可以找版主塞抹布的。</blockquote>
 ##### 6187#       发表于 2017-9-24 13:11
 
 
-
-
 最终回都偷跑亚马逊真是
 
 怕剧透晚上之前都不能上网了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3767,16 +2440,10 @@ gtmdAmazon隔壁影视区剧透是可以找版主塞抹布的。</blockquote>
 ##### 6188#       发表于 2017-9-24 13:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37293363&amp;ptid=1486439" target="_blank">aeolus039 发表于 2017-9-24 12:19</a>
 
 间谍哪来的人身自由，到时候C机关大笔一挥把安洁送到某个殖民地总督那里当个十年女仆，她还怎么去找公主 ...</blockquote>
 你看班长打药当双重间谍这么久不也是白鸽小队出马才搞定的嘛，安洁连卡萨布兰卡的房子都搞到了，想找公主不会太难。
-
-
-
-
-
 
 
 -----
@@ -3785,14 +2452,8 @@ gtmdAmazon隔壁影视区剧透是可以找版主塞抹布的。</blockquote>
 ##### 6189#       发表于 2017-9-24 14:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37290646&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-9-24 01:02</a></blockquote>
 最终任务，从标题看，如果官方不欺诈，短时间内不会有二期了，如果官方欺诈的话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3801,16 +2462,10 @@ gtmdAmazon隔壁影视区剧透是可以找版主塞抹布的。</blockquote>
 ##### 6190#       发表于 2017-9-24 14:01
 
 
-
 <img src="https://my.mixtape.moe/nyxauw.png" referrerpolicy="no-referrer">
 
 
 最后一集的 Biblical reference，耶利哥城的号角[约书亚6]
-
-
-
-
-
 
 
 -----
@@ -3819,16 +2474,10 @@ gtmdAmazon隔壁影视区剧透是可以找版主塞抹布的。</blockquote>
 ##### 6191#       发表于 2017-9-24 14:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37293822&amp;ptid=1486439" target="_blank">sxwd025825 发表于 2017-9-24 13:09</a>
 
 求加qq群</blockquote>
 啥QQ群啊，我也想加 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3837,14 +2486,7 @@ gtmdAmazon隔壁影视区剧透是可以找版主塞抹布的。</blockquote>
 ##### 6192#       发表于 2017-9-24 14:06
 
 
-
-
 这结局... 的确倒是接上手游了
-
-
-
-
-
 
 
 -----
@@ -3853,14 +2495,7 @@ gtmdAmazon隔壁影视区剧透是可以找版主塞抹布的。</blockquote>
 ##### 6193#       发表于 2017-9-24 14:21
 
 
-
-
 要把S1封印直至看到結局了...
-
-
-
-
-
 
 
 -----
@@ -3869,13 +2504,7 @@ gtmdAmazon隔壁影视区剧透是可以找版主塞抹布的。</blockquote>
 ##### 6194#       发表于 2017-9-24 14:25
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">还好没看见，明天之前不能来这楼了
-
-
-
-
-
 
 
 -----
@@ -3884,21 +2513,13 @@ gtmdAmazon隔壁影视区剧透是可以找版主塞抹布的。</blockquote>
 ##### 6195#       发表于 2017-9-24 14:27
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">今天不进专楼了 怕被剧透一脸
-
-
-
-
-
 
 
 -----
 
 ####  皇神樂耶  
 ##### 6196#       发表于 2017-9-24 14:27
-
-
 
 
 没有大范围爆炸，没有一堆激动万分的病人
@@ -3909,16 +2530,10 @@ gtmdAmazon隔壁影视区剧透是可以找版主塞抹布的。</blockquote>
 拜拜，大家晚上10点见
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 6197#       发表于 2017-9-24 14:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37293777&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-9-24 13:03</a>
@@ -3931,32 +2546,19 @@ gtmdAmazon隔壁影视区剧透是可以找版主塞抹布的。</blockquote>
 他們老是這樣
 
 
-
-
-
-
-
 -----
 
 ####  sxwd025825  
 ##### 6198#       发表于 2017-9-24 14:34
 
 
-
-
 的确比较平稳，没有什么大场面大爆炸，也没死反派，整体比较稳，最后发了点糖
-
-
-
-
-
 
 
 -----
 
 ####  猴区观光团  
 ##### 6199#       发表于 2017-9-24 14:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37293879&amp;ptid=1486439" target="_blank">midearth 发表于 2017-9-24 13:15</a>
@@ -3967,16 +2569,10 @@ gtmdAmazon隔壁影视区剧透是可以找版主塞抹布的。</blockquote>
 而且卡萨布兰卡又不像伦敦一样是间谍战前线到处都是双方眼线，在间谍组织很少关注的城市弄套房子，跟在双方间谍高度紧张的城市接触对方公主。这难度差太多了吧。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6200#       发表于 2017-9-24 14:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37293660&amp;ptid=1486439" target="_blank">tmpfs 发表于 2017-9-24 12:50</a>
@@ -3988,17 +2584,10 @@ Perhaps because of Biblical references (especially the well-known verse ...</blo
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  刹帝利  
 ##### 6201#       发表于 2017-9-24 14:36
-
-
 
 
 看了就看了能不能不要跑进来转楼刷存在感啊……
@@ -4006,16 +2595,10 @@ Perhaps because of Biblical references (especially the well-known verse ...</blo
 —— 来自 samsung SM-G9500, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  烈之斩  
 ##### 6202#       发表于 2017-9-24 14:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37294572&amp;ptid=1486439" target="_blank">D-JoeII 发表于 2017-9-24 01:30</a>
@@ -4028,32 +2611,19 @@ Perhaps because of Biblical references (especially the well-known verse ...</blo
 [https://www.amazon.com/Wired-Lia ... =princess+principal](https://www.amazon.com/Wired-Liar/dp/B073SFK4ZW/ref=sr_1_1?ie=UTF8&amp;qid=1506233648&amp;sr=8-1&amp;keywords=princess+principal)
 
 
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 6203#       发表于 2017-9-24 14:40
 
 
-
-
 是不是可以请看过最终话的去动漫鉴赏区开帖评分了？   有哪位大佬要开？
-
-
-
-
-
 
 
 -----
 
 ####  D-JoeII  
 ##### 6204#       发表于 2017-9-24 14:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37294630&amp;ptid=1486439" target="_blank">烈之斩 发表于 2017-9-24 14:38</a>
@@ -4068,16 +2638,10 @@ https://www.amazon.com/Wired-Liar/dp/B073SFK4ZW/ref=sr_1_1?ie=UT ...</blockquote
 <img src="https://imgur.com/LtOGYsK.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6205#         楼主| 发表于 2017-9-24 14:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37294663&amp;ptid=1486439" target="_blank">D-JoeII 发表于 2017-9-24 14:41</a>
@@ -4090,17 +2654,10 @@ https://www.amazon.com/Wired-Liar/dp/B073SFK4ZW/ref=sr_1_1?ie=UT ...</blockquote
 2.没去看过，看你的描述是他们自己公开来的，那就不谈了
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6206#         楼主| 发表于 2017-9-24 14:53
-
-
 
 
 小島 えり‏ @harami_chang  
@@ -4109,32 +2666,19 @@ https://www.amazon.com/Wired-Liar/dp/B073SFK4ZW/ref=sr_1_1?ie=UT ...</blockquote
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fjunc9affqj20ng0xcdi9.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6207#       发表于 2017-9-24 14:54
 
 
-
-
 亚马逊内部就有prpr学家啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等不及给病友们发药了
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 6208#       发表于 2017-9-24 14:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37294736&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-9-24 14:53</a>
@@ -4147,16 +2691,10 @@ https://www.amazon.com/Wired-Liar/dp/B073SFK4ZW/ref=sr_1_1?ie=UT ...</blockquote
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">公主的手轻轻地抚在安洁头上……
 
 
-
-
-
-
-
 -----
 
 ####  tmpfs  
 ##### 6209#       发表于 2017-9-24 15:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37293670&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-24 12:52</a>
@@ -4168,16 +2706,10 @@ https://www.amazon.com/Wired-Liar/dp/B073SFK4ZW/ref=sr_1_1?ie=UT ...</blockquote
 之前没来是因为之前忙，没看。其次是因为这楼七成在讨论大河内，不想看，我在/a/发帖。
 
 
-
-
-
-
-
 -----
 
 ####  钢琴猫  
 ##### 6210#       发表于 2017-9-24 15:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37294736&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-9-24 14:53</a>
@@ -4190,32 +2722,19 @@ https://www.amazon.com/Wired-Liar/dp/B073SFK4ZW/ref=sr_1_1?ie=UT ...</blockquote
 这个屁股是不是有点<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6211#       发表于 2017-9-24 15:38
 
 
-
-
 说真的，不太满意，有的地方不知道是脚本问题还是演出问题。不过不多说了，可能各人观感有差别吧
-
-
-
-
-
 
 
 -----
 
 ####  等边三角形  
 ##### 6212#       发表于 2017-9-24 15:39
-
 
 
  本帖最后由 等边三角形 于 2017-9-24 15:59 编辑 
@@ -4248,18 +2767,7 @@ https://www.amazon.com/Wired-Liar/dp/B073SFK4ZW/ref=sr_1_1?ie=UT ...</blockquote
 2017-9-24 15:40 上传
 
 
-
-
-
-
-
 你们感不感动？感不感动？
-
-
-
-
-
-
 
 
 -----
@@ -4268,23 +2776,16 @@ https://www.amazon.com/Wired-Liar/dp/B073SFK4ZW/ref=sr_1_1?ie=UT ...</blockquote
 ##### 6213#       发表于 2017-9-24 15:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37295080&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-9-24 15:38</a>
 
 说真的，不太满意，有的地方不知道是脚本问题还是演出问题。不过不多说了，可能各人观感有差别吧 ...</blockquote>
 如果你考虑这结局可能是中途看反响然后改动过或许能理解一点？
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6214#       发表于 2017-9-24 15:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37295141&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-9-24 15:47</a>
@@ -4296,32 +2797,19 @@ https://www.amazon.com/Wired-Liar/dp/B073SFK4ZW/ref=sr_1_1?ie=UT ...</blockquote
 觉得这个脚本稳过头了，只是在模仿大河内定下的风格，感觉没到位，写得吃力。只能说赶工期只有及格分而已
 
 
-
-
-
-
-
 -----
 
 ####  万千百十  
 ##### 6215#       发表于 2017-9-24 16:10
 
 
-
-
 gtmdAmazon
-
-
-
-
-
 
 
 -----
 
 ####  keroro80722  
 ##### 6216#       发表于 2017-9-24 16:14
-
 
 
  本帖最后由 keroro80722 于 2017-9-24 16:16 编辑 
@@ -4354,16 +2842,10 @@ gtmdAmazon
 不過我不討厭這結尾
 
 
-
-
-
-
-
 -----
 
 ####  LadySaazbaum  
 ##### 6217#       发表于 2017-9-24 16:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37292500&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-9-24 10:41</a>
@@ -4374,25 +2856,13 @@ gtmdAmazon
 个人感觉不需要从这里进行过度解读。
 
 
-
-
-
-
-
 -----
 
 ####  LadySaazbaum  
 ##### 6218#       发表于 2017-9-24 16:19
 
 
-
-
 玛德。回完贴就被剧透了一脸<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4401,14 +2871,7 @@ gtmdAmazon
 ##### 6219#       发表于 2017-9-24 16:31
 
 
-
-
 这次选择相信大河内居然赢了  以后也是多相信他好了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4417,13 +2880,7 @@ gtmdAmazon
 ##### 6220#       发表于 2017-9-24 16:56
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">不错
-
-
-
-
-
 
 
 -----
@@ -4432,14 +2889,7 @@ gtmdAmazon
 ##### 6221#       发表于 2017-9-24 17:12
 
 
-
-
 十二话脚本也是桧垣亮吗？
-
-
-
-
-
 
 
 -----
@@ -4448,17 +2898,10 @@ gtmdAmazon
 ##### 6222#       发表于 2017-9-24 17:13
 
 
-
-
 我猜原本大河内是给prpr写了最后两集的脚本的，最后临时被砍换成现在的这个结局。也许是因为反响那么好中途决定出二期吧……
 
 
 如果是这样好想看到大河内的结局是什么样的呀
-
-
-
-
-
 
 
 -----
@@ -4467,16 +2910,10 @@ gtmdAmazon
 ##### 6223#       发表于 2017-9-24 17:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37295861&amp;ptid=1486439" target="_blank">cmyk1234 发表于 2017-9-24 17:12</a>
 
 十二话脚本也是桧垣亮吗？</blockquote>
 是的
-
-
-
-
-
 
 
 -----
@@ -4485,22 +2922,15 @@ gtmdAmazon
 ##### 6224#       发表于 2017-9-24 17:19
 
 
-
  本帖最后由 rei12 于 2017-9-24 17:21 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  moree  
 ##### 6225#       发表于 2017-9-24 17:28
-
 
 
  本帖最后由 moree 于 2017-9-24 17:29 编辑 
@@ -4510,16 +2940,10 @@ gtmdAmazon
 还是等字幕组出片。另外前11话整体上其实并没有多么出色，但也不差，但是肯定不如同为大河内系构同是单元剧的《死后文》，《死》还有神回
 
 
-
-
-
-
-
 -----
 
 ####  moree  
 ##### 6226#       发表于 2017-9-24 17:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37219812&amp;ptid=1486439" target="_blank">问楫 发表于 2017-9-16 20:40</a>
@@ -4536,32 +2960,19 @@ gtmdAmazon
 个人觉得02，06，08，10话不错
 
 
-
-
-
-
-
 -----
 
 ####  soranoguiji  
 ##### 6227#       发表于 2017-9-24 17:38
 
 
-
-
 以路人角度来看这结尾实在平庸，之前的很多伏笔都没用上，但我还是想说我喜欢这结尾
-
-
-
-
-
 
 
 -----
 
 ####  qhlixpfh  
 ##### 6228#       发表于 2017-9-24 17:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37295083&amp;ptid=1486439" target="_blank">等边三角形 发表于 2017-9-24 15:39</a>
@@ -4573,25 +2984,13 @@ gtmdAmazon
 大河内:我不敢动
 
 
-
-
-
-
-
 -----
 
 ####  skmdfong  
 ##### 6229#       发表于 2017-9-24 17:39
 
 
-
-
 喷了，泄露也就罢了，还有傻逼要做成gif贴出来，上个战吧就被剧透了，草泥马
-
-
-
-
-
 
 
 -----
@@ -4600,16 +2999,9 @@ gtmdAmazon
 ##### 6230#       发表于 2017-9-24 18:38
 
 
-
-
 这季度追的几部片，NEW GAME 意料之中的发展看得难受，狂赌最后一话崩了，战姬完全套路化..
 
 至少这片的结局我还是满意的..追剧的过程也很欢乐，没选错这片真是太好了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4618,14 +3010,7 @@ gtmdAmazon
 ##### 6231#       发表于 2017-9-24 18:40
 
 
-
-
 你们不要剧透先，我都不知道要不要进这楼了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4634,23 +3019,15 @@ gtmdAmazon
 ##### 6232#       发表于 2017-9-24 18:43
 
 
-
-
 只能说N个坑没填
 
 如果以以往的惯例估计会有很多冬鳗高手喷的吧
-
-
-
-
-
 
 
 -----
 
 ####  万千百十  
 ##### 6233#       发表于 2017-9-24 18:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37296058&amp;ptid=1486439" target="_blank">moree 发表于 2017-9-24 17:37</a>
@@ -4661,32 +3038,19 @@ gtmdAmazon
 这篇片不les，但是纯真友情？大家高兴就好。
 
 
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 6234#       发表于 2017-9-24 19:02
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">又泄露了。。还是结局。。真蛋疼。。
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 6235#       发表于 2017-9-24 19:05
-
-
 
 
 如果多萝西有了齐刘海……
@@ -4710,11 +3074,6 @@ gtmdAmazon
 2017-9-24 19:05 上传
 
 
-
-
-
-
-
 片貝文洋 KatagaiFumihilo‏ @fumihilo 
 
 (プリプリ豆知識)ベアトリスの喉は黒星紅白さんのキャラクター原案図を元に設定を膨らませました。この段階では首にめり込んでいないように見せるために内部に部品がびっしり入っています。アンジェの拳銃は速水螺旋人さんのスケッチを元に候補を出しました。 #pripri
@@ -4729,21 +3088,10 @@ gtmdAmazon
 2017-9-24 19:05 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6236#       发表于 2017-9-24 19:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37295873&amp;ptid=1486439" target="_blank">zhouyz 发表于 2017-9-24 17:13</a>
@@ -4755,33 +3103,19 @@ gtmdAmazon
 尤其第八集之后，销量保本已经毫无问题了。就是看怎么冲击二期线了。今天如果宣布二期/剧场版？对于27号的发售估计是一个利好消息。反正先赚它一波，至于P2什么时候才有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁管啊~跳下票就好了吧
 
 
-
-
-
-
-
 -----
 
 ####  hein  
 ##### 6237#       发表于 2017-9-24 19:10
 
 
-
-
 今天会不会临时砍12集的放送，然后让大河内改剧本？
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 6238#       发表于 2017-9-24 19:11
-
-
 
 
 表白公主声优
@@ -4815,36 +3149,19 @@ gtmdAmazon
 2017-9-24 19:11 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  隐形术的隐形书  
 ##### 6239#       发表于 2017-9-24 19:20
 
 
-
-
 今夜哪里可以看直播
-
-
-
-
-
 
 
 -----
 
 ####  vxzms  
 ##### 6240#       发表于 2017-9-24 19:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37296778&amp;ptid=1486439" target="_blank">hein 发表于 2017-9-24 19:10</a>
@@ -4856,25 +3173,13 @@ gtmdAmazon
 所以说有没有这样的先例
 
 
-
-
-
-
-
 -----
 
 ####  D-JoeII  
 ##### 6241#       发表于 2017-9-24 19:32
 
 
-
-
 你們當做一集動畫是變魔法啊
-
-
-
-
-
 
 
 -----
@@ -4883,14 +3188,7 @@ gtmdAmazon
 ##### 6242#       发表于 2017-9-24 19:34
 
 
-
-
 多读读书吧，看着心疼
-
-
-
-
-
 
 
 -----
@@ -4899,14 +3197,7 @@ gtmdAmazon
 ##### 6243#       发表于 2017-9-24 19:39
 
 
-
-
 看了下生放，小队CV除了千世其他个个都是真.画伯...
-
-
-
-
-
 
 
 -----
@@ -4915,16 +3206,10 @@ gtmdAmazon
 ##### 6244#       发表于 2017-9-24 19:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37295873&amp;ptid=1486439" target="_blank">zhouyz 发表于 2017-9-24 17:13</a>
 
 我猜原本大河内是给prpr写了最后两集的脚本的，最后临时被砍换成现在的这个结局。也许是因为反响那么好中途 ...</blockquote>
 后两集延期两个月我就信
-
-
-
-
-
 
 
 -----
@@ -4933,16 +3218,9 @@ gtmdAmazon
 ##### 6245#       发表于 2017-9-24 20:01
 
 
-
-
 最后一集合格，手游送十连。就等二期了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -4951,15 +3229,9 @@ gtmdAmazon
 ##### 6246#       发表于 2017-9-24 20:12
 
 
-
 <blockquote>隐形术的隐形书 发表于 2017-9-24 19:20
 今夜哪里可以看直播</blockquote>
 战旗 果厨果厨果
-
-
-
-
-
 
 
 -----
@@ -4968,16 +3240,9 @@ gtmdAmazon
 ##### 6247#       发表于 2017-9-24 20:13
 
 
-
-
 看完这片让我觉得是否大河内适合的药就是单元剧
 
 他给我的感觉就是一个故事一路讲下去，不同单元段落转换时的就很容易放飞自我。如果是单元剧，不同单元本身就是分离的似乎就好多了。
-
-
-
-
-
 
 
 -----
@@ -4986,16 +3251,10 @@ gtmdAmazon
 ##### 6248#       发表于 2017-9-24 20:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37297330&amp;ptid=1486439" target="_blank">彩虹之羽 发表于 2017-9-24 20:12</a>
 
 战旗 果厨果厨果</blockquote>
 感谢
-
-
-
-
-
 
 
 -----
@@ -5004,14 +3263,7 @@ gtmdAmazon
 ##### 6249#       发表于 2017-9-24 21:39
 
 
-
-
 记不得名字的卫兵甲或成本作最惨角色，明明脚本都不是大河内了，结果还是死了。
-
-
-
-
-
 
 
 -----
@@ -5020,17 +3272,10 @@ gtmdAmazon
 ##### 6250#         楼主| 发表于 2017-9-24 21:56
 
 
-
-
 黒星紅白‏ @kuroboshi 
 
  この後23：00からTOKYO MXにて『プリンセス・プリンシパル』最終回放送です！みるっきゃない
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fjuzvq4xf1j20lv0lv17k.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5039,21 +3284,13 @@ gtmdAmazon
 ##### 6251#         楼主| 发表于 2017-9-24 21:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">还是醒来再看吧 下午打全场比赛 累爆了
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 6252#         楼主| 发表于 2017-9-24 21:57
-
-
 
 
 古木のぞみ‏ @nozomi_f 
@@ -5068,17 +3305,10 @@ gtmdAmazon
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fjuzy5u7osj20xc0p0whi.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6253#         楼主| 发表于 2017-9-24 21:59
-
-
 
 
 橘正紀 Masaki Tachibana‏ @tachicol_  
@@ -5087,32 +3317,19 @@ gtmdAmazon
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fjuzzaw955j20ov0xc1iv.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6254#       发表于 2017-9-24 22:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">待机了，推特更了一波图，麻烦楼主搬下再睡~~~
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 6255#         楼主| 发表于 2017-9-24 22:03
-
-
 
 
 橘正紀 Masaki Tachibana‏ @tachicol_  
@@ -5123,24 +3340,13 @@ gtmdAmazon
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fjv03ggix5j20kb0xc1dx.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6256#         楼主| 发表于 2017-9-24 22:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">安洁怎么那么软
-
-
-
-
-
 
 
 -----
@@ -5149,14 +3355,7 @@ gtmdAmazon
 ##### 6257#       发表于 2017-9-24 22:13
 
 
-
-
 本质受，软才对啊<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5165,14 +3364,7 @@ gtmdAmazon
 ##### 6258#       发表于 2017-9-24 22:16
 
 
-
-
 貌似安定结局是吧，国庆就可以开始看了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5181,13 +3373,7 @@ gtmdAmazon
 ##### 6259#         楼主| 发表于 2017-9-24 22:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这士兵 是真的把希望寄托着公主身上了吗
-
-
-
-
-
 
 
 -----
@@ -5196,13 +3382,7 @@ gtmdAmazon
 ##### 6260#         楼主| 发表于 2017-9-24 22:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么你要脸红
-
-
-
-
-
 
 
 -----
@@ -5211,14 +3391,7 @@ gtmdAmazon
 ##### 6261#       发表于 2017-9-24 22:26
 
 
-
-
 没大河内没法看啊
-
-
-
-
-
 
 
 -----
@@ -5227,14 +3400,7 @@ gtmdAmazon
 ##### 6262#       发表于 2017-9-24 22:26
 
 
-
-
 这就...完了？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5243,17 +3409,10 @@ gtmdAmazon
 ##### 6263#       发表于 2017-9-24 22:26
 
 
-
-
 这收尾emmmmmmmmm
 
 
 高配伊泽塔？
-
-
-
-
-
 
 
 -----
@@ -5262,13 +3421,7 @@ gtmdAmazon
 ##### 6264#       发表于 2017-9-24 22:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">好甜
-
-
-
-
-
 
 
 -----
@@ -5277,14 +3430,7 @@ gtmdAmazon
 ##### 6265#       发表于 2017-9-24 22:27
 
 
-
-
 怎么这就完了，一堆伏笔呢！
-
-
-
-
-
 
 
 -----
@@ -5293,14 +3439,7 @@ gtmdAmazon
 ##### 6266#       发表于 2017-9-24 22:29
 
 
-
-
 还真去了卡萨布兰卡！
-
-
-
-
-
 
 
 -----
@@ -5309,14 +3448,7 @@ gtmdAmazon
 ##### 6267#       发表于 2017-9-24 22:29
 
 
-
-
 留二期回收<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5325,14 +3457,7 @@ gtmdAmazon
 ##### 6268#       发表于 2017-9-24 22:30
 
 
-
-
 这集。。。和墙有什么关系呢？
-
-
-
-
-
 
 
 -----
@@ -5341,14 +3466,7 @@ gtmdAmazon
 ##### 6269#       发表于 2017-9-24 22:30
 
 
-
-
 只能说第二季了
-
-
-
-
-
 
 
 -----
@@ -5357,14 +3475,7 @@ gtmdAmazon
 ##### 6270#       发表于 2017-9-24 22:30
 
 
-
-
 居然是個超長的bd發售預告，而不是二期發表。。
-
-
-
-
-
 
 
 -----
@@ -5373,14 +3484,7 @@ gtmdAmazon
 ##### 6271#       发表于 2017-9-24 22:30
 
 
-
-
 只好买全卷支持2期
-
-
-
-
-
 
 
 -----
@@ -5389,17 +3493,10 @@ gtmdAmazon
 ##### 6272#       发表于 2017-9-24 22:30
 
 
-
-
 没有第二季我要死了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
 大家快给制作组送钱<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5408,14 +3505,7 @@ gtmdAmazon
 ##### 6273#       发表于 2017-9-24 22:30
 
 
-
-
 怂成一匹马<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5424,16 +3514,10 @@ gtmdAmazon
 ##### 6274#       发表于 2017-9-24 22:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37298424&amp;ptid=1486439" target="_blank">frz111z1 发表于 2017-9-24 22:30</a>
 
 这集。。。和墙有什么关系呢？</blockquote>
 “心墙”……
-
-
-
-
-
 
 
 -----
@@ -5442,21 +3526,13 @@ gtmdAmazon
 ##### 6275#       发表于 2017-9-24 22:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">墙？安洁心里的墙倒了啊
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 6276#         楼主| 发表于 2017-9-24 22:32
-
-
 
 
 『プリンセス・プリンシパル』第12話本編後に流れた特別CM“チーム白鳩編”が、BD＆DVDの映像特典に収録決定！60秒版／30秒版を共に収録いたします。
@@ -5466,25 +3542,13 @@ gtmdAmazon
 本編と合わせて是非お楽しみください♪
 
 
-
-
-
-
-
 -----
 
 ####  aaron17  
 ##### 6277#       发表于 2017-9-24 22:32
 
 
-
-
 总之先来套BD！加油出后续啊！<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5493,14 +3557,7 @@ gtmdAmazon
 ##### 6278#       发表于 2017-9-24 22:33
 
 
-
-
 有伏笔没回收又怎样，看到公主和安洁在卡萨布兰卡牵着手就足够了！+2走起
-
-
-
-
-
 
 
 -----
@@ -5509,14 +3566,7 @@ gtmdAmazon
 ##### 6279#       发表于 2017-9-24 22:34
 
 
-
-
 心之壁<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么最后没有大家围一圈鼓掌
-
-
-
-
-
 
 
 -----
@@ -5525,21 +3575,13 @@ gtmdAmazon
 ##### 6280#       发表于 2017-9-24 22:34
 
 
-
-
 昨天原画放的那张两人背道而驰的图没出现啊，这是怎么回事？
-
-
-
-
-
 
 
 -----
 
 ####  石头歪  
 ##### 6281#       发表于 2017-9-24 22:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37298462&amp;ptid=1486439" target="_blank">beaver 发表于 2017-9-24 22:33</a>
@@ -5550,25 +3592,13 @@ gtmdAmazon
 想看伏笔回收多多买周边 手游多多氪金没准有奇迹（cv昨晚生放送的暗示w
 
 
-
-
-
-
-
 -----
 
 ####  cgtv123  
 ##### 6282#       发表于 2017-9-24 22:35
 
 
-
-
 你们多多买盘课手游二期就有望（<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5577,16 +3607,9 @@ gtmdAmazon
 ##### 6283#       发表于 2017-9-24 22:35
 
 
-
-
 公爵似乎發現公主的身分有問題
 
 才不信沒第二季,不過大河內有前科
-
-
-
-
-
 
 
 -----
@@ -5595,14 +3618,7 @@ gtmdAmazon
 ##### 6284#       发表于 2017-9-24 22:36
 
 
-
-
 安杰抱着公主包包闻的时候真是软的不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5611,16 +3627,9 @@ gtmdAmazon
 ##### 6285#       发表于 2017-9-24 22:36
 
 
-
-
 。。。啊？。。哈？。额<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">那个时代的泳装真的不行啊，快发明比基尼吧
-
-
-
-
-
 
 
 -----
@@ -5629,14 +3638,7 @@ gtmdAmazon
 ##### 6286#         楼主| 发表于 2017-9-24 22:36
 
 
-
-
 推特上有人不知道从哪里找来的图 又是续篇又是剧场版的  （现在这个时间点当然是假的） 微博某账号估计是不看直播 蹲推特吧  被欺骗 虽然推特有时候是快 ​​​​
-
-
-
-
-
 
 
 -----
@@ -5645,22 +3647,13 @@ gtmdAmazon
 ##### 6287#       发表于 2017-9-24 22:36
 
 
-
-
 我觉得这一集的内容做三集应该也不会很拖沓，这样压缩太粗暴了
-
-
-
-
-
 
 
 -----
 
 ####  doas9  
 ##### 6288#       发表于 2017-9-24 22:37
-
-
 
 
 真的，太可惜了。
@@ -5670,16 +3663,10 @@ gtmdAmazon
 就这样戛然而止。
 
 
-
-
-
-
-
 -----
 
 ####  frz111z1  
 ##### 6289#       发表于 2017-9-24 22:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37298442&amp;ptid=1486439" target="_blank">alvin051414 发表于 2017-9-24 22:31</a>
@@ -5688,32 +3675,19 @@ gtmdAmazon
 好吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我想的太狭隘了
 
 
-
-
-
-
-
 -----
 
 ####  doas9  
 ##### 6290#       发表于 2017-9-24 22:37
 
 
-
-
 而且这最后一话也是感觉在“他妈的赶紧给我结束”、根本没时间画更多分镜一样。。。。
-
-
-
-
-
 
 
 -----
 
 ####  shadow001  
 ##### 6291#       发表于 2017-9-24 22:37
-
 
 
  本帖最后由 shadow001 于 2017-9-24 22:50 编辑 
@@ -5723,24 +3697,13 @@ gtmdAmazon
 那圖又不是原畫
 
 
-
-
-
-
-
 -----
 
 ####  间咒  
 ##### 6292#       发表于 2017-9-24 22:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">好了，下单买BD吧
-
-
-
-
-
 
 
 -----
@@ -5749,16 +3712,9 @@ gtmdAmazon
 ##### 6293#       发表于 2017-9-24 22:39
 
 
-
-
 最后帽子落诺公手里，这个后续暗示是不是有点明显
 
 不管了先奶一口二期
-
-
-
-
-
 
 
 -----
@@ -5767,14 +3723,7 @@ gtmdAmazon
 ##### 6294#       发表于 2017-9-24 22:43
 
 
-
-
 明明可以做一个吊胃口的结局，然后放BD的13话来收尾。
-
-
-
-
-
 
 
 -----
@@ -5783,14 +3732,7 @@ gtmdAmazon
 ##### 6295#       发表于 2017-9-24 22:46
 
 
-
-
 太棒了  不够看啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5799,14 +3741,7 @@ gtmdAmazon
 ##### 6296#         楼主| 发表于 2017-9-24 22:47
 
 
-
-
 虽然做动画是规规矩矩按日程的，但我觉得最后两话可能是【改的】。可能是看前几话好评，突然就把大河内原来写的换了。但是大河内已经交差，在别的片场，所以没法，赶鸭子上架。看以前的STAFF制作秘闻，都是说一开始决定做什么做什么，都是定死的，你要说大河内搞成这样我是有点意外的，况且还是在换人的情况下。估计是有续篇吧，感觉毛事都没讲，这只是一段短暂的和平而已。
-
-
-
-
-
 
 
 -----
@@ -5815,16 +3750,10 @@ gtmdAmazon
 ##### 6297#       发表于 2017-9-24 22:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37298525&amp;ptid=1486439" target="_blank">shadow001 发表于 2017-9-24 22:37</a>
 
 那圖又不是原圖</blockquote>
 所以那是？
-
-
-
-
-
 
 
 -----
@@ -5833,16 +3762,10 @@ gtmdAmazon
 ##### 6298#       发表于 2017-9-24 22:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37298628&amp;ptid=1486439" target="_blank">间咒 发表于 2017-9-24 22:47</a>
 
 所以那是？</blockquote>
 并不是原画，而是原画师所画的画，所以都单纯的是原画师个人兴趣所画的同人而已w
-
-
-
-
-
 
 
 -----
@@ -5851,19 +3774,12 @@ gtmdAmazon
 ##### 6299#       发表于 2017-9-24 22:50
 
 
-
  本帖最后由 D-JoeII 于 2017-9-24 22:52 编辑 
 
 結局雖然不爆但夠穩,而且有為2期留後路
 
 
-
 話說我因為一天內把王牌特工2和這套的最後一話看了,突然腦洞了下有第2季的話走王牌特工2會怎樣w
-
-
-
-
-
 
 
 -----
@@ -5872,13 +3788,7 @@ gtmdAmazon
 ##### 6300#         楼主| 发表于 2017-9-24 22:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">看完反而不困了  不过有点头疼  先把这周还没看的补了 等汉化组出货
-
-
-
-
-
 
 
 -----
@@ -5887,15 +3797,9 @@ gtmdAmazon
 ##### 6301#       发表于 2017-9-24 22:51
 
 
-
  本帖最后由 thez 于 2017-9-24 22:53 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这结尾仓简单粗暴得，是临时改的吧……另外公主说要完成夏洛特的心愿打碎墙，但她们见面时不都是小萝莉一起玩的关系么，小时候夏洛特觉悟有这么高么？一点不像啊
-
-
-
-
-
 
 
 -----
@@ -5904,17 +3808,10 @@ gtmdAmazon
 ##### 6302#         楼主| 发表于 2017-9-24 22:52
 
 
-
-
 转微博 三池暁
 
 
 pripri广播12  Q:安洁真心展露笑容的那一天会到来吗? A:请各位自行想象！ 哎呀 不过要是有2期的话说不定就能看到了 （众人问）要怎么才能有2期呢？ 答: 如果BD和手游有一边能够大卖 就会积极考虑制作2期 （再问）等等等等 手游要怎么才能大卖呀 答:当然是要氪金啦 氪金！
-
-
-
-
-
 
 
 -----
@@ -5923,16 +3820,10 @@ pripri广播12  Q:安洁真心展露笑容的那一天会到来吗? A:请各�
 ##### 6303#       发表于 2017-9-24 22:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37298628&amp;ptid=1486439" target="_blank">间咒 发表于 2017-9-24 22:47</a>
 
 所以那是？</blockquote>
 就是原畫師發推說有畫12話原畫，然後再畫張圖來宣傳一下<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5941,23 +3832,16 @@ pripri广播12  Q:安洁真心展露笑容的那一天会到来吗? A:请各�
 ##### 6304#       发表于 2017-9-24 22:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37298645&amp;ptid=1486439" target="_blank">白房子 发表于 2017-9-24 22:49</a>
 
 并不是原画，而是原画师所画的画，所以都单纯的是原画师个人兴趣所画的同人而已w ...</blockquote>
 明白了，我是觉得自己画的话不会用那种阴影表示方式...
 
 
-
-
-
-
-
 -----
 
 ####  皇神樂耶  
 ##### 6305#       发表于 2017-9-24 22:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37298665&amp;ptid=1486439" target="_blank">thez 发表于 2017-9-24 22:51</a>
@@ -5969,32 +3853,19 @@ pripri广播12  Q:安洁真心展露笑容的那一天会到来吗? A:请各�
 公主的愿望来自于夏洛特，并很长一段时间以此作为生存动力。但到最后这小爱已经变成了大爱，公主是名副其实的圣母（褒义）
 
 
-
-
-
-
-
 -----
 
 ####  正太刀  
 ##### 6306#       发表于 2017-9-24 22:58
 
 
-
-
 这换脚本+跑题，怕不是天诛大河内强行GE了
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 6307#       发表于 2017-9-24 22:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37298707&amp;ptid=1486439" target="_blank">间咒 发表于 2017-9-24 22:56</a>
@@ -6005,17 +3876,10 @@ pripri广播12  Q:安洁真心展露笑容的那一天会到来吗? A:请各�
 而且我觉得很酷！原画师这个职业真的酷！
 
 
-
-
-
-
-
 -----
 
 ####  keroro80722  
 ##### 6308#       发表于 2017-9-24 22:58
-
-
 
 
 這腳本實力確實不如大河內．．．．結尾雖然穩＋ＨＥ，但除了穩＋ＨＥ基本上很多東西都沒交代，女王怎麼了？儀式之後怎ˋ麼了？
@@ -6024,32 +3888,19 @@ pripri广播12  Q:安洁真心展露笑容的那一天会到来吗? A:请各�
 橘正記看走眼了吧，這樣還不如讓大河內幹到最後（雖然大河內本來就是系列構成）
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 6309#       发表于 2017-9-24 22:59
 
 
-
-
 要第二季直接拍中间的case呗，都留出来了的
-
-
-
-
-
 
 
 -----
 
 ####  thez  
 ##### 6310#       发表于 2017-9-24 22:59
-
 
 
  本帖最后由 thez 于 2017-9-24 23:05 编辑 
@@ -6059,25 +3910,13 @@ pripri广播12  Q:安洁真心展露笑容的那一天会到来吗? A:请各�
 夏洛特小时候有和公主说过要推墙的愿望么？我完全没印象。
 
 
-
-
-
-
-
 -----
 
 ####  猴区观光团  
 ##### 6311#       发表于 2017-9-24 23:00
 
 
-
-
 这结局好LOW啊。。。竟然没有任何反转。这番感觉真是奇怪，前两话各种反转搞得各种华丽，到后面一路白开水。一直以为这是为了最后反转铺垫。结果竟然真就白开水到结束了。。。
-
-
-
-
-
 
 
 -----
@@ -6086,14 +3925,7 @@ pripri广播12  Q:安洁真心展露笑容的那一天会到来吗? A:请各�
 ##### 6312#       发表于 2017-9-24 23:02
 
 
-
-
 我还以为大结局能看到成为女王的，这才是高潮啊。可惜了，不过总的来说观感还是7月最佳
-
-
-
-
-
 
 
 -----
@@ -6102,22 +3934,15 @@ pripri广播12  Q:安洁真心展露笑容的那一天会到来吗? A:请各�
 ##### 6313#       发表于 2017-9-24 23:02
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">不说了，我订BD去了
-
-
-
-
-
 
 
 -----
 
 ####  皇神樂耶  
 ##### 6314#       发表于 2017-9-24 23:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37298752&amp;ptid=1486439" target="_blank">thez 发表于 2017-9-24 22:59</a>
@@ -6129,16 +3954,10 @@ pripri广播12  Q:安洁真心展露笑容的那一天会到来吗? A:请各�
 公主的想法真是非常坚定，并为此牺牲自己成全安洁的觉悟……但我们作为局外人，知道安洁替她上断头台的可能性很大，所以有些人还是会难以为此感动吧
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6315#       发表于 2017-9-24 23:03
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">最后一话看得很爽！！！！！这结局已经很不错了，我看得很开心，安洁公主发糖吃得更开心~
@@ -6148,26 +3967,15 @@ pripri广播12  Q:安洁真心展露笑容的那一天会到来吗? A:请各�
 求求老爷们买BD吧，就买一卷也好，单元剧买了不吃亏不上当，第1话2话都制作的很精良，更有橘监督的分镜和大河内的第二种剧本！现在更是亚马逊直降至5568日元！直邮到您家！！！还在等什么呢~欲购从速哦请抓紧时间订购吧！
 
 
-
-
-
-
-
 -----
 
 ####  梦诗歌雪  
 ##### 6316#       发表于 2017-9-24 23:04
 
 
-
 <blockquote>thez 发表于 2017-9-24 22:59
 夏洛特小时候有和公主说过要推墙的愿望么？我完全没印象。所以这话公主说夏洛特的愿望是推墙，自己取代了 ...</blockquote>
 你再看一遍第八集吧，两人小时候最后一次互换然后革命爆发的时候，真夏洛特跟真安洁说完我要推墙之后就爆炸掉进坑里了
-
-
-
-
-
 
 
 -----
@@ -6176,16 +3984,10 @@ pripri广播12  Q:安洁真心展露笑容的那一天会到来吗? A:请各�
 ##### 6317#       发表于 2017-9-24 23:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37298806&amp;ptid=1486439" target="_blank">梦诗歌雪 发表于 2017-9-24 23:04</a>
 
 你再看一遍第八集吧，两人小时候最后一次互换然后革命爆发的时候，真夏洛特跟真安洁说完我要推墙之后就爆 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">找到了，看来是我记性不行
-
-
-
-
-
 
 
 -----
@@ -6194,14 +3996,7 @@ pripri广播12  Q:安洁真心展露笑容的那一天会到来吗? A:请各�
 ##### 6318#       发表于 2017-9-24 23:06
 
 
-
-
 文戏挺有趣的……而且这话竟然都坦白内心了……
-
-
-
-
-
 
 
 -----
@@ -6210,19 +4005,10 @@ pripri广播12  Q:安洁真心展露笑容的那一天会到来吗? A:请各�
 ##### 6319#       发表于 2017-9-24 23:07
 
 
-
-
 有二期我就永远喜欢大河内一楼
 
 
-
-
 当我听到卡萨布兰卡五个字的时候喷了<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6231,22 +4017,13 @@ pripri广播12  Q:安洁真心展露笑容的那一天会到来吗? A:请各�
 ##### 6320#       发表于 2017-9-24 23:08
 
 
-
-
 感觉最后两集的剧情走向不是有人猜测的临时换下大河内导致的，毕竟企划应该一开始就跟手游联动了，手游相当于后续剧情，所以这最后两集应该也是没把故事讲完，不过过于平淡是因为不是大河内亲手写所以节奏和细节比较差
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 6321#         楼主| 发表于 2017-9-24 23:08
-
-
 
 
 関根 明良‏ @aki_lucky1216 
@@ -6277,34 +4054,20 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fjv1zdt8o3j20v60p0acj.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6322#       发表于 2017-9-24 23:10
 
 
-
-
 最后那暗示够明显了吧，这是要继续演了
 <img src="http://ww4.sinaimg.cn/large/0060lm7Tly1fjv20z9lcnj30sk0gj4bl.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  堆雪若叶  
 ##### 6323#       发表于 2017-9-24 23:10
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201709/24/230927khu2tcdxs9ecdnyi.jpg" referrerpolicy="no-referrer">
@@ -6317,10 +4080,6 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 2017-9-24 23:09 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201709/24/230955opnt6tpizqq6stus.jpg" referrerpolicy="no-referrer">
 
 
@@ -6331,15 +4090,7 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 2017-9-24 23:09 上传
 
 
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6348,14 +4099,7 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 ##### 6324#       发表于 2017-9-24 23:11
 
 
-
-
 这集被多萝西和公主刷好感了……好棒
-
-
-
-
-
 
 
 -----
@@ -6364,16 +4108,10 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 ##### 6325#       发表于 2017-9-24 23:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37298864&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-24 23:10</a>
 
 最后那暗示够明显了吧，这是要继续演了</blockquote>
 怎么看都是集体被公爵起底了
-
-
-
-
-
 
 
 -----
@@ -6382,14 +4120,7 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 ##### 6326#       发表于 2017-9-24 23:12
 
 
-
-
 快点出第二季把<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6398,14 +4129,7 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 ##### 6327#       发表于 2017-9-24 23:13
 
 
-
-
 泽尔塔没死有点意外，她知道的也太多了
-
-
-
-
-
 
 
 -----
@@ -6414,15 +4138,9 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 ##### 6328#       发表于 2017-9-24 23:13
 
 
-
 <blockquote>xtwx1716 发表于 2017-9-24 23:10
 最后那暗示够明显了吧，这是要继续演了</blockquote>
 坑肯定是挖了的，鲸头鹳都没死，明显是留给后续剧情的一个Boss，安洁命中要迈过的一道坎。就怕这些全放手游，所以还是要多多支持才能出二期
-
-
-
-
-
 
 
 -----
@@ -6431,16 +4149,9 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 ##### 6329#       发表于 2017-9-24 23:14
 
 
-
-
 监督教育业界：找大河内，记住最后两集换人写剧本，明白了吗
 
 —— 来自 Meizu PRO 5, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0
-
-
-
-
-
 
 
 -----
@@ -6449,23 +4160,16 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 ##### 6330#       发表于 2017-9-24 23:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37298875&amp;ptid=1486439" target="_blank">kiyorukiyoru 发表于 2017-9-24 23:11</a>
 
 这集被多萝西和公主刷好感了……好棒</blockquote>
 生肉观感，这集最紧张的时候大概是安捷开第二枪要杀人那个档口上，无论从哪方面讲多罗西出现的都太及时了
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6331#       发表于 2017-9-24 23:15
-
 
 
  本帖最后由 xtwx1716 于 2017-9-24 23:17 编辑 
@@ -6475,25 +4179,13 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 跟手游已经不是一个世界线了，手游zelda还是友军呢。按时间线应该比这集更早才对，而且就手游任务的风格也是偏戏谑一些，后续内容也是慢慢追加各种原创角色的戏份，不像是要演什么重要主线
 
 
-
-
-
-
-
 -----
 
 ####  风真人  
 ##### 6332#       发表于 2017-9-24 23:15
 
 
-
-
 我忍到现在都没有看，别剧透只想知道大河内疯了没，可以开始补了吗<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6502,13 +4194,7 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 ##### 6333#       发表于 2017-9-24 23:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过这片最后L回来就把所有白鸽队弄出的烂摊子都清空了，还能继续执行任务，也太简单粗暴了。而且现场那么多人都亲眼目睹公主这么飞出来了，跟这种恐怖袭击事情扯上关系，公主也别想着能继承王位了吧，何况前面还有3个顺位比她高的继承人呢
-
-
-
-
-
 
 
 -----
@@ -6517,16 +4203,10 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 ##### 6334#       发表于 2017-9-24 23:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37298919&amp;ptid=1486439" target="_blank">风真人 发表于 2017-9-24 23:15</a>
 
 我忍到现在都没有看，别剧透只想知道大河内疯了没，可以开始补了吗</blockquote>
 没疯，被STAFF一榔头敲晕过去了。
-
-
-
-
-
 
 
 -----
@@ -6535,23 +4215,16 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 ##### 6335#       发表于 2017-9-24 23:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37298919&amp;ptid=1486439" target="_blank">风真人 发表于 2017-9-24 23:15</a>
 
 我忍到现在都没有看，别剧透只想知道大河内疯了没，可以开始补了吗</blockquote>
 可以啊，硬挑毛病也说是太稳了，跟暴走差了十万八千里
 
 
-
-
-
-
-
 -----
 
 ####  keroro80722  
 ##### 6336#       发表于 2017-9-24 23:17
-
 
 
  本帖最后由 keroro80722 于 2017-9-24 23:21 编辑 
@@ -6561,26 +4234,15 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 可以，安心補<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kiyorukiyoru  
 ##### 6337#       发表于 2017-9-24 23:17
 
 
-
 <blockquote>风真人 发表于 2017-9-24 23:15
 我忍到现在都没有看，别剧透只想知道大河内疯了没，可以开始补了吗</blockquote>
 疯了（褒义），好看，安全，赶紧补！
-
-
-
-
-
 
 
 -----
@@ -6589,16 +4251,9 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 ##### 6338#       发表于 2017-9-24 23:18
 
 
-
-
 看了一下公主的帽子是什么时候遗落的，9:15之前都在头上，之后就没有出现在画面里了，应该是入席之前放在衣帽架上没有回收吧。
 
 不对，啊，接下来12:13打算离开的时候又戴着，看来是取回了。这么说是被塞尔达击倒以后遗落的。
-
-
-
-
-
 
 
 -----
@@ -6607,23 +4262,16 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 ##### 6339#       发表于 2017-9-24 23:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37298928&amp;ptid=1486439" target="_blank">thez 发表于 2017-9-24 23:16</a>
 
 不过这片最后L回来就把所有白鸽队弄出的烂摊子都清空了，还能继续执行任务，也太简单粗暴了。而且现 ...</blockquote>
 这是即兴表演<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kiyorukiyoru  
 ##### 6340#       发表于 2017-9-24 23:19
-
 
 
 <blockquote>迪门修斯 发表于 2017-9-24 23:15
@@ -6635,17 +4283,10 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 公主的好感是这两集刷起来的（x）
 
 
-
-
-
-
-
 -----
 
 ####  毛利元贞  
 ##### 6341#       发表于 2017-9-24 23:21
-
-
 
 
 想起来大河内下一个比较的大活是和汤浅的恶魔人吧
@@ -6655,25 +4296,13 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 —— 来自 Meizu PRO 5, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0
 
 
-
-
-
-
-
 -----
 
 ####  tj8m23le  
 ##### 6342#       发表于 2017-9-24 23:21
 
 
-
-
 最后换剧本666 看到出手游就感觉稳得不行
-
-
-
-
-
 
 
 -----
@@ -6682,23 +4311,16 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 ##### 6343#       发表于 2017-9-24 23:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37298928&amp;ptid=1486439" target="_blank">thez 发表于 2017-9-24 23:16</a>
 
 不过这片最后L回来就把所有白鸽队弄出的烂摊子都清空了，还能继续执行任务，也太简单粗暴了。而且现 ...</blockquote>
 看到公主飞出去的只有那帮要革命的士兵
 
 
-
-
-
-
-
 -----
 
 ####  keroro80722  
 ##### 6344#       发表于 2017-9-24 23:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37298928&amp;ptid=1486439" target="_blank">thez 发表于 2017-9-24 23:16</a>
@@ -6709,16 +4331,10 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 公主畢竟沒有實權（所以離開首都也不要緊），加上典禮出了這麼大事，倒也不是說不通
 
 
-
-
-
-
-
 -----
 
 ####  keroro80722  
 ##### 6345#       发表于 2017-9-24 23:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37298916&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-24 23:15</a>
@@ -6729,17 +4345,10 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 有幾個挺喜歡的
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6346#       发表于 2017-9-24 23:25
-
-
 
 
 这结局我很满意了，坐等二期。
@@ -6747,16 +4356,10 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 看来这片主要功臣还是橘导，就算大河内没时间写我也觉得没什么问题，二期换个黑田或者横手美智子岂不是更好？
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6347#       发表于 2017-9-24 23:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37299008&amp;ptid=1486439" target="_blank">keroro80722 发表于 2017-9-24 23:24</a>
@@ -6767,16 +4370,10 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 我比较喜欢枪娘，肝满破肝到肝颤<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  keroro80722  
 ##### 6348#       发表于 2017-9-24 23:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37298625&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-9-24 22:47</a>
@@ -6788,17 +4385,10 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 這作品銷量變好起飛是第８集，離最後兩集就兩周的時間，我不同意這看法
 
 
-
-
-
-
-
-
 -----
 
 ####  shadow001  
 ##### 6349#       发表于 2017-9-24 23:29
-
 
 
  本帖最后由 shadow001 于 2017-9-24 23:40 编辑 
@@ -6810,16 +4400,10 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 不過看大家的反應,更愛看大河內就是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kiyorukiyoru  
 ##### 6350#       发表于 2017-9-24 23:30
-
 
 
 <blockquote>xtwx1716 发表于 2017-9-24 23:25
@@ -6831,16 +4415,10 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 黑田的话就会从角色情感和探讨主题入手了，可能没现在这么紧张了……
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6351#       发表于 2017-9-24 23:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37299047&amp;ptid=1486439" target="_blank">keroro80722 发表于 2017-9-24 23:28</a>
@@ -6852,25 +4430,13 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 最后一集的质量明显高出其他几集一个档次，不可能是临时做的
 
 
-
-
-
-
-
 -----
 
 ####  Re:从零开始的s1  
 ##### 6352#       发表于 2017-9-24 23:30
 
 
-
-
 一般般吧，没有期待的神展开，药味不够
-
-
-
-
-
 
 
 -----
@@ -6879,16 +4445,9 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 ##### 6353#       发表于 2017-9-24 23:31
 
 
-
-
 这结局还是太仓促了，这么多内容压缩到1集中，很多细节铺垫都不够，看完了让人一脸懵逼，这就结束了？
 
 虽然摆明了会出第二季就是了，但这11、12话的编剧水平还是明显有失水准，对不起前10话的高质量表现
-
-
-
-
-
 
 
 -----
@@ -6897,21 +4456,13 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 ##### 6354#       发表于 2017-9-24 23:32
 
 
-
-
 这收尾急匆匆的，很多事情没交代清楚。
-
-
-
-
-
 
 
 -----
 
 ####  kiyorukiyoru  
 ##### 6355#       发表于 2017-9-24 23:33
-
 
 
 <blockquote>纯白花火 发表于 2017-9-24 23:31
@@ -6921,16 +4472,10 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 我觉得就算叫大河内写 最后两话也差不多这样啊……系构是他哦 这个结局我不讨厌
 
 
-
-
-
-
-
 -----
 
 ####  keroro80722  
 ##### 6356#       发表于 2017-9-24 23:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37299013&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-24 23:25</a>
@@ -6946,17 +4491,10 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひお聴き下�
 這年頭什麼牛鬼蛇神都能第二季
 
 
-
-
-
-
-
 -----
 
 ####  yjysrkl  
 ##### 6357#       发表于 2017-9-24 23:35
-
-
 
 
 My turtledove
@@ -6970,14 +4508,8 @@ My turtledove
 翻译成挚友，辣鸡aiqiyi<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
 百合.PNG
 (176.86 KB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -6986,24 +4518,7 @@ My turtledove
 2017-9-24 23:32 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201709/24/233214q0mmeqgnhmr4fhh6.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -7012,14 +4527,7 @@ My turtledove
 ##### 6358#       发表于 2017-9-24 23:35
 
 
-
-
 就是细节交给大河内可能会更好，不过这种第二季基本稳了的也不用说太多了
-
-
-
-
-
 
 
 -----
@@ -7028,15 +4536,9 @@ My turtledove
 ##### 6359#       发表于 2017-9-24 23:35
 
 
-
  本帖最后由 thez 于 2017-9-24 23:36 编辑 
 
 我比较遗憾的主要还是第一话营造的那种黑暗蒸汽风动作片的调调完全是欺诈啊，后面单元剧其实基本都是各种以角色团队的人物感情刻画为主了，没了第一话那种悬疑紧张感，安洁冷酷背后带着温柔的形象从第三话开始基本就彻底没了，光剩温柔了……给个+1吧
-
-
-
-
-
 
 
 -----
@@ -7045,16 +4547,9 @@ My turtledove
 ##### 6360#       发表于 2017-9-24 23:37
 
 
-
-
 说实话真想看看大河内负责的11、12话，感觉应该会非常刺激精彩，当然 不一定会是HE
 
 不过2集的篇幅还是太紧张，或许可以和当年鲁鲁修一样，后续追加2集？
-
-
-
-
-
 
 
 -----
@@ -7063,23 +4558,15 @@ My turtledove
 ##### 6361#       发表于 2017-9-24 23:38
 
 
-
-
 这集爱奇艺翻译的……有些差劲。
 
 挚爱强行变挚友。<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">最后一集了努力一下啊！讨厌。
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 6362#       发表于 2017-9-24 23:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37299111&amp;ptid=1486439" target="_blank">keroro80722 发表于 2017-9-24 23:34</a>
@@ -7097,16 +4584,10 @@ My turtledove
 总得来说，前边没那么好，这个结尾也没那么差。说跟前边反差大的恕我不能理解
 
 
-
-
-
-
-
 -----
 
 ####  纯白花火  
 ##### 6363#       发表于 2017-9-24 23:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37299103&amp;ptid=1486439" target="_blank">kiyorukiyoru 发表于 2017-9-24 23:33</a>
@@ -7115,17 +4596,10 @@ My turtledove
 确实 2集篇幅太短，不过可以后续追加OVA
 
 
-
-
-
-
-
 -----
 
 ####  莉莉橙  
 ##### 6364#       发表于 2017-9-24 23:40
-
-
 
 
 这样就好，这样就好……
@@ -7134,16 +4608,10 @@ My turtledove
 +1良作
 
 
-
-
-
-
-
 -----
 
 ####  kiyorukiyoru  
 ##### 6365#       发表于 2017-9-24 23:41
-
 
 
 <blockquote>纯白花火 发表于 2017-9-24 23:38
@@ -7151,16 +4619,10 @@ My turtledove
 其实我觉得最开始就不打算给这个故事写句号吧，不过我也真的没看够，求更多啊啊啊……
 
 
-
-
-
-
-
 -----
 
 ####  纯白花火  
 ##### 6366#       发表于 2017-9-24 23:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37299145&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-24 23:38</a>
@@ -7171,25 +4633,13 @@ My turtledove
 第十话虽然潜入部分做的马虎了点，但各种细节铺垫，剧情反转，着实让人拍案叫绝。11、12话就不行了，感觉完全是按着套路在演，细节铺垫也明显不足
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6367#       发表于 2017-9-24 23:42
 
 
-
-
 这最后还特意让公爵盯着c球看，这是告诉我们一定会有二期，否则就是个7成品的剧本吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7198,16 +4648,9 @@ My turtledove
 ##### 6368#       发表于 2017-9-24 23:43
 
 
-
-
 最后两集稳但是太平庸了
 
 真的想看大河内的版本 哎
-
-
-
-
-
 
 
 -----
@@ -7216,16 +4659,9 @@ My turtledove
 ##### 6369#       发表于 2017-9-24 23:44
 
 
-
-
 话说塞尔达到底是谁的人？军方高层的？
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -7234,16 +4670,10 @@ My turtledove
 ##### 6370#       发表于 2017-9-24 23:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37299103&amp;ptid=1486439" target="_blank">kiyorukiyoru 发表于 2017-9-24 23:33</a>
 
 我觉得就算叫大河内写 最后两话也差不多这样啊……系构是他哦 这个结局我不讨厌 ...</blockquote>
 前面大趋势是这样，所以我在想那两话的意义，工厂回合公主没有暴露身份的情况下因此也很难说积累了什么人望，到不如留给她和军队互动为这话少佐倒向立场埋伏笔<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7252,21 +4682,13 @@ My turtledove
 ##### 6371#       发表于 2017-9-24 23:47
 
 
-
-
 细节只能说参差不齐吧，愿意细心的地方就会多加解释，为了剧情的流畅或许需要的地方就不解释了，而千世这话肯定是早有预谋的，不过其他人已经偏离正常路线的情况下她能及时冲过来这速度也够可怕的了
-
-
-
-
-
 
 
 -----
 
 ####  killng  
 ##### 6372#       发表于 2017-9-24 23:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37294830&amp;ptid=1486439" target="_blank">tmpfs 发表于 2017-9-24 15:03</a>
@@ -7281,16 +4703,10 @@ My turtledove
 然后，要比较无脑跟风与不自觉的剧透哪个更缺乏教养是件很麻烦的事，如果还要为剧透细分等级就更麻烦了
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6373#       发表于 2017-9-24 23:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37299201&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-9-24 23:44</a>
@@ -7301,16 +4717,10 @@ My turtledove
 反正最后留了后续的坑，这些对我来说都无所谓了
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6374#       发表于 2017-9-24 23:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37299117&amp;ptid=1486439" target="_blank">yjysrkl 发表于 2017-9-24 23:35</a>
@@ -7322,25 +4732,13 @@ My turtledove
 <img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">辣鸡aiqiyi，还我<strong>挚爱</strong>啊啊啊啊啊啊啊！！！！！
 
 
-
-
-
-
-
 -----
 
 ####  小张翔  
 ##### 6375#       发表于 2017-9-24 23:51
 
 
-
-
 快出第二季啊
-
-
-
-
-
 
 
 -----
@@ -7349,22 +4747,13 @@ My turtledove
 ##### 6376#       发表于 2017-9-24 23:53
 
 
-
-
 最后两话还是单元剧式的收尾，不过还是完成了一个阶段性任务的，就是打破安洁和其他人的隔阂，顺便让安洁和公主再次心意相通
-
-
-
-
-
 
 
 -----
 
 ####  posion  
 ##### 6377#       发表于 2017-9-24 23:53
-
-
 
 
 其实事情是这样的
@@ -7386,16 +4775,10 @@ My turtledove
 楼：<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">？？？？
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6378#       发表于 2017-9-24 23:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37299122&amp;ptid=1486439" target="_blank">thez 发表于 2017-9-24 23:35</a>
@@ -7404,16 +4787,10 @@ My turtledove
 欺骗世界和自己？夕阳下决断的意义？我现在只想保住自己的妻子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6379#       发表于 2017-9-24 23:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37298383&amp;ptid=1486439" target="_blank">深暗风扇妄想 发表于 2017-9-24 22:26</a>
@@ -7425,27 +4802,15 @@ My turtledove
 没有二期的话，完成度就不如了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  米德  
 ##### 6380#       发表于 2017-9-24 23:59
 
 
-
-
 讲真 这结局不讨厌 he深得人心
 但是<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 这结局也太敷衍了 好多能说的都没说 这一集感觉都能做成2-3集<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7454,16 +4819,10 @@ My turtledove
 ##### 6381#       发表于 2017-9-25 00:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37298342&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-9-24 22:21</a>
 
 这士兵 是真的把希望寄托着公主身上了吗</blockquote>
 是少佐级别的人，所以希尔达也会给点面子让他听公主说话，当然最后她就动手了
-
-
-
-
-
 
 
 -----
@@ -7472,16 +4831,9 @@ My turtledove
 ##### 6382#       发表于 2017-9-25 00:01
 
 
-
-
 没二期这结尾肯定让人失望。
 
 不过给这种结局反过来想就意味着二期很稳？
-
-
-
-
-
 
 
 -----
@@ -7490,14 +4842,7 @@ My turtledove
 ##### 6383#       发表于 2017-9-25 00:02
 
 
-
-
 和he与否无关，甲铁城理论上也是he结果还是很不舒服，主要是主要角色们普遍逻辑正常，行动合理，虽然安洁明显没了当初夕阳的那个决断冷酷感
-
-
-
-
-
 
 
 -----
@@ -7506,23 +4851,15 @@ My turtledove
 ##### 6384#       发表于 2017-9-25 00:03
 
 
-
-
 塞尔达强无敌
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 6385#       发表于 2017-9-25 00:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37299350&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-9-25 00:01</a>
@@ -7533,25 +4870,13 @@ My turtledove
 目前这个预约，肯定是达到二期的标准了，从制作组的访谈也能看出来他们心知肚明好多该讲的都没讲。最后大公的那几个镜头又特别的刻意。所以，我觉得还是比较稳的吧
 
 
-
-
-
-
-
 -----
 
 ####  stuka1942  
 ##### 6386#       发表于 2017-9-25 00:06
 
 
-
-
 最后如此之稳，这根本不是结局，还是个单元剧啊，那么第二季呢
-
-
-
-
-
 
 
 -----
@@ -7560,14 +4885,7 @@ My turtledove
 ##### 6387#       发表于 2017-9-25 00:07
 
 
-
-
 制作组都明白告诉你们了，买bd和手游氪金，都对出第二季有积极作用
-
-
-
-
-
 
 
 -----
@@ -7576,16 +4894,10 @@ My turtledove
 ##### 6388#       发表于 2017-9-25 00:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37299371&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-25 00:03</a>
 
 目前这个预约，肯定是达到二期的标准了，从制作组的访谈也能看出来他们心知肚明好多该讲的都没讲。最后大 ...</blockquote>
 只是为啥不现在就宣布二期企划呢，趁着完结效应二期消息应该能再带动一波销量吧。
-
-
-
-
-
 
 
 -----
@@ -7594,23 +4906,16 @@ My turtledove
 ##### 6389#       发表于 2017-9-25 00:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37299396&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-9-25 00:07</a>
 
 只是为啥不现在就宣布二期企划呢，趁着完结效应二期消息应该能再带动一波销量吧。 ...</blockquote>
 如果说二期不是一开始就决定好的话，决定后续如何操作还是需要一些时间的吧。大佬们不开几个会怕是定不下来的
 
 
-
-
-
-
-
 -----
 
 ####  dc5281  
 ##### 6390#       发表于 2017-9-25 00:12
-
 
 
  本帖最后由 dc5281 于 2017-9-25 00:16 编辑 
@@ -7620,24 +4925,13 @@ My turtledove
 现在这种情况虽然很多内容没讲完，但作为收官是挺稳的
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6391#       发表于 2017-9-25 00:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">还有请一些人不要拿其他作品来对比，这样不好吧……各有各的特色，否认哪一部都是不礼貌的行为。
-
-
-
-
-
 
 
 -----
@@ -7646,14 +4940,7 @@ My turtledove
 ##### 6392#       发表于 2017-9-25 00:23
 
 
-
-
 有续集怕不是2019年甚至2020年的事了
-
-
-
-
-
 
 
 -----
@@ -7662,14 +4949,7 @@ My turtledove
 ##### 6393#       发表于 2017-9-25 00:24
 
 
-
-
 我的斑鸠……啊啊啊公主太回来撩人了啊啊啊啊啊！简单地翻译成“挚友”没问题吗？！
-
-
-
-
-
 
 
 -----
@@ -7678,16 +4958,9 @@ My turtledove
 ##### 6394#       发表于 2017-9-25 00:29
 
 
-
-
 所以爬了半天楼，大公面前那块布是啥？
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -7696,21 +4969,13 @@ My turtledove
 ##### 6395#       发表于 2017-9-25 00:31
 
 
-
-
 这集我比较满意的地方在于，首先台词写的不错，动作场面够火爆，角色戏份主次分明。另外还有一点就是反派够给力，塞尔达除了上集差点玩脱之外这集时髦值没掉过，另外黑皮和大公卫队战斗力看起来也很强
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 6396#       发表于 2017-9-25 00:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37299551&amp;ptid=1486439" target="_blank">一色いろは 发表于 2017-9-25 00:29</a>
@@ -7722,17 +4987,10 @@ My turtledove
 公主的帽子吖
 
 
-
-
-
-
-
 -----
 
 ####  M82  
 ##### 6397#       发表于 2017-9-25 00:32
-
-
 
 
 结果第一集的表现是最强的。不过谢谢大河内不杀之恩。
@@ -7740,17 +4998,10 @@ My turtledove
 +1
 
 
-
-
-
-
-
 -----
 
 ####  hac0101  
 ##### 6398#       发表于 2017-9-25 00:40
-
-
 
 
 完结撒花，等二期。
@@ -7760,25 +5011,13 @@ My turtledove
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  mengyao  
 ##### 6399#       发表于 2017-9-25 00:45
 
 
-
-
 小贝急的原地打转那一幕太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7787,16 +5026,9 @@ My turtledove
 ##### 6400#       发表于 2017-9-25 00:49
 
 
-
-
 这铁定有二期的结尾。。
 
 上集就觉得赛尔达那身间谍服的下半身太エロ了，这集更是完全把持不住<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7805,14 +5037,8 @@ My turtledove
 ##### 6401#       发表于 2017-9-25 00:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37298869&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-9-24 23:10</a></blockquote>
 你太坏了！
-
-
-
-
-
 
 
 -----
@@ -7821,23 +5047,16 @@ My turtledove
 ##### 6402#       发表于 2017-9-25 00:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37299180&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-9-24 23:42</a>
 
 这最后还特意让公爵盯着c球看，这是告诉我们一定会有二期，否则就是个7成品的剧本吗，将军就因为这 ...</blockquote>
 那个是烟雾弹。。
 
 
-
-
-
-
-
 -----
 
 ####  Archlich  
 ##### 6403#       发表于 2017-9-25 00:59
-
 
 
  本帖最后由 Archlich 于 2017-9-25 01:11 编辑 
@@ -7851,20 +5070,10 @@ My turtledove
 至于什么换人不换人的，白箱都白看了吧。
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6404#         楼主| 发表于 2017-9-25 01:00
-
-
 
 
 あきづきりょう‏ @akizuki072  
@@ -7893,16 +5102,10 @@ My turtledove
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fjv574ktoij20km0xcdhw.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6405#       发表于 2017-9-25 01:04
-
 
 
  本帖最后由 白房子 于 2017-9-25 01:06 编辑 
@@ -7923,26 +5126,13 @@ My turtledove
 #pripri
 
 
-
-
-
-
-
-
 -----
 
 ####  大厨麦当牛  
 ##### 6406#       发表于 2017-9-25 01:23
 
 
-
-
 其实仔细想了想这几个人根本不适合当间谍吧，安洁恋爱脑，公主太天真，多萝西太讲义气且心软，千世脑冲。唯一一个不是活在童话里的间谍就是反派塞尔达了…
-
-
-
-
-
 
 
 -----
@@ -7951,16 +5141,10 @@ My turtledove
 ##### 6407#       发表于 2017-9-25 01:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37299842&amp;ptid=1486439" target="_blank">大厨麦当牛 发表于 2017-9-25 01:23</a>
 
 其实仔细想了想这几个人根本不适合当间谍吧，安洁恋爱脑，公主太天真，多萝西太讲义气且心软，千世脑冲。唯 ...</blockquote>
 总感觉好像少了谁，算了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">  主角队不就是这样的吗
-
-
-
-
-
 
 
 -----
@@ -7969,22 +5153,13 @@ My turtledove
 ##### 6408#       发表于 2017-9-25 01:27
 
 
-
-
 期望过高了，本来以为能有第二话的水准的。在这个剧本框架内，如果月下飞行的百合度更高点就好了……
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 6409#       发表于 2017-9-25 01:36
-
-
 
 
 官推放的这个大图深得我心。<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
@@ -8015,10 +5190,6 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime
 2017-9-25 01:30 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201709/25/013053e1sqxxqxi5yugmgy.jpg" referrerpolicy="no-referrer">
 
 
@@ -8027,10 +5198,6 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime
 下载附件
 
 2017-9-25 01:30 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201709/25/013054gpkuskhsjp1s4nvj.jpg" referrerpolicy="no-referrer">
@@ -8043,10 +5210,6 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime
 2017-9-25 01:30 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201709/25/013055hpado1r4i44leop8.jpg" referrerpolicy="no-referrer">
 
 
@@ -8055,11 +5218,6 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime
 下载附件
 
 2017-9-25 01:30 上传
-
-
-
-
-
 
 
 橘正紀 Masaki Tachibana‏ @tachicol_
@@ -8082,11 +5240,6 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime
 2017-9-25 01:33 上传
 
 
-
-
-
-
-
 米田㌠FF11＊Odin‏ @maita1118 
 
 あと１時間半ですよっ姫様っ #pripri
@@ -8101,11 +5254,6 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime
 2017-9-25 01:31 上传
 
 
-
-
-
-
-
 Хаями Расэндзин ‏ @RASENJIN
 
 ドロシーは将来コントロールの管理側に出世しそうな気もしますね（胃に穴を開けつつ頑張るタイプ）。
@@ -8113,16 +5261,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime
 说是多萝西像是将来会在Control当官的人才呢，像7(泽城美雪)那样的吗？
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6410#         楼主| 发表于 2017-9-25 01:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37299896&amp;ptid=1486439" target="_blank">白房子 发表于 2017-9-25 01:36</a>
@@ -8134,16 +5276,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 2图画的太奇怪了。。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6411#         楼主| 发表于 2017-9-25 01:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37299731&amp;ptid=1486439" target="_blank">Archlich 发表于 2017-9-25 00:59</a>
@@ -8155,16 +5291,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 白箱也是业界冰山一角吧，谁知道制作片场是怎么样的，能通过白箱了解大概的情况，但又不是标准指南了。换是肯定不会换，但最重要的却不是大河内亲自操刀，宁愿前面换成其他人也好啊。唯一能想到的是有个大概方向，但是改动如果交给大河内的话会赶不上死线，就让别人在他们的授意下创作啊
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6412#       发表于 2017-9-25 01:45
-
 
 
  本帖最后由 白房子 于 2017-9-25 02:03 编辑 
@@ -8179,16 +5309,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">然后发现自己说泽尔达手下的事情被战吧截图了，讨厌啦~
 
 
-
-
-
-
-
 -----
 
 ####  尚风悦  
 ##### 6413#       发表于 2017-9-25 01:48
-
 
 
 <blockquote>kiyorukiyoru 发表于 2017-9-24 23:33
@@ -8200,25 +5324,13 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 换脚本还是不行，节奏信息量人物刻画都不行。大河内估计本来是按照自己的节奏安排的剧情，这个脚本要跟上大河内的步子太吃力了
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 6414#       发表于 2017-9-25 01:50
 
 
-
-
 我觉得想要都有第二话的程度的话，那对手应该都得是诺曼底公，恩期待一下第二季吧（
-
-
-
-
-
 
 
 -----
@@ -8227,23 +5339,16 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 ##### 6415#       发表于 2017-9-25 01:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37299122&amp;ptid=1486439" target="_blank">thez 发表于 2017-9-24 23:35</a>
 
 我比较遗憾的主要还是第一话营造的那种黑暗蒸汽风动作片的调调完全是欺诈啊，后面单元剧其实基本都是各种以 ...</blockquote>
 你按case排一下再看就不一样了。。
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6416#       发表于 2017-9-25 01:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37299956&amp;ptid=1486439" target="_blank">暗黑能乐 发表于 2017-9-25 01:50</a>
@@ -8254,32 +5359,19 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 嗯，所以想再多了解公爵买亚马逊限定特典吧，送广播剧。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6417#         楼主| 发表于 2017-9-25 01:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看看啥时有EVENT，指不定一高兴就说漏嘴呢
-
-
-
-
-
 
 
 -----
 
 ####  LadySaazbaum  
 ##### 6418#       发表于 2017-9-25 01:54
-
-
 
 
 不能说对这个结尾感到失望但是emmmmmmmm……
@@ -8297,16 +5389,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 &gt;&gt;&gt;&gt;求大河内先森被黑的心理阴影面积。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6419#       发表于 2017-9-25 01:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37298928&amp;ptid=1486439" target="_blank">thez 发表于 2017-9-24 23:16</a>
@@ -8315,27 +5401,15 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 看到的那些是革命军，你觉得他们的下场会是什么？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6420#       发表于 2017-9-25 01:55
 
 
-
-
 大河内不是系构吗，最后两话他没首肯过？他来执笔和换人写也就是1和1.2的关系吧，别忘了最傻逼的第七集也是大河内出品。现在觉得最后换他写就能大不一样的到底是怎么想的？跟那些说出“大河内监督”的家伙恐怕也没什么区别吧，橘正纪哭晕在厕所
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -8344,15 +5418,9 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 ##### 6421#       发表于 2017-9-25 01:56
 
 
-
  本帖最后由 CIV5 于 2017-9-25 02:02 编辑 
 
 这什么狗屎结局。。。。过程恐怕是整篇里最儿戏的部分，皇家寺院守卫如空气，公爵背景墙送分题，共和国一帮弱鸡，跳出窗了后面呢？说好的fall of the wall呢？明明可以分成两话13话放BD做一个完美收官的，搞成现在这样，恐怕是没有第二季了。
-
-
-
-
-
 
 
 -----
@@ -8361,22 +5429,13 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 ##### 6422#       发表于 2017-9-25 01:57
 
 
-
-
 日亚实时新高，可以给制作组看看观众的诚意了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 6423#       发表于 2017-9-25 01:59
-
-
 
 
 下午我的决定果然没错，还是得看中文熟肉。英文的不暂停一下不行，看得也有点不太适应。官肉后观感提升不少。
@@ -8388,32 +5447,19 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 因此官方说的没错，还是氪金和剁手吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cat122802501  
 ##### 6424#       发表于 2017-9-25 02:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">看到最后居然是诺基亚软广
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 6425#       发表于 2017-9-25 02:04
-
-
 
 
 最后两集稳得不行，但剧情的展开还是带有一些大河内风格的。平时当系构背的锅，这次怎么说功也是有的吧，毕竟光是1/2/6/8集就足够了。
@@ -8425,16 +5471,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 另外这集的帽子，安洁手里的和公爵手里的，就是一个照应，暗示公主的一个成长和变化。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6426#         楼主| 发表于 2017-9-25 02:08
-
 
 
  本帖最后由 xingenge 于 2017-9-25 02:11 编辑 
@@ -8446,16 +5486,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 不过即使一开始就定这个结局，可能一些东西换大河内可能把握得更好点吧，毕竟曾经做到过的大家都看过。当然这是没有看到过的“虚幻”，只是猜测 而已
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6427#       发表于 2017-9-25 02:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37299984&amp;ptid=1486439" target="_blank">CIV5 发表于 2017-09-25 01:56:04</a>
@@ -8464,33 +5498,19 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6428#       发表于 2017-9-25 02:11
 
 
-
-
 今天的广播好像也有点爆点，等Norn翻译君一个努力w
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 6429#       发表于 2017-9-25 02:13
-
-
 
 
 抱怨的只是剧情细节上可以做得更好，如果大河内来的话。怎么说熟悉的都知道，大河内还是挺有一手的
@@ -8502,17 +5522,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 而且这个动画的企划，从一开始没钱的气息到中期出乎意料的人气，再到现在完结恳求观众支持。所以说之前官方的眼光真是短了点，有大河内在，你找个靠谱点的监督，八成八是要保本的，好的话像这回二期线妥妥的过，怕啥子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  北条早苗  
 ##### 6430#       发表于 2017-9-25 02:13
-
-
 
 
 作为一集动画这集还是成功的，信息量很大也算是交代清楚，纵向比较不如2和8
@@ -8520,17 +5533,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 作为一季动画的结尾就完全是失败的了，等于是把故事完整性当儿戏
 
 
-
-
-
-
-
 -----
 
 ####  阿狸狸狸狸狸  
 ##### 6431#       发表于 2017-9-25 02:13
-
-
 
 
 只留最后两集果然是太急了啊，又要讲故事，又要描写情感
@@ -8543,25 +5549,13 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 只能希望第二季快点来了
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6432#         楼主| 发表于 2017-9-25 02:14
 
 
-
-
 倒是有点想知道一些设定 ，是一开始决定的，还是在中途修改过的。一开始决定了就是万代无敌，中间换了也是资本的胜利，反正就是很现实
-
-
-
-
-
 
 
 -----
@@ -8570,16 +5564,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 ##### 6433#       发表于 2017-9-25 02:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">单元剧真的是勾引你买全卷，我喜欢1/2/3/5/8/10/12，这些看多少遍都看不腻。（虽然还是觉得第3话的比阿特太吵了w）
 
 
 再加购一套吧。
-
-
-
-
-
 
 
 -----
@@ -8588,14 +5576,7 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 ##### 6434#       发表于 2017-9-25 02:30
 
 
-
-
 最后一集小贝完全没表现，不满
-
-
-
-
-
 
 
 -----
@@ -8604,23 +5585,16 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 ##### 6435#       发表于 2017-9-25 02:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37300084&amp;ptid=1486439" target="_blank">Yeaha123 发表于 2017-9-25 02:30</a>
 
 最后一集小贝完全没表现，不满</blockquote>
 卖萌不就是小贝的表现了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 那个急的团团转的动作
 
 
-
-
-
-
-
 -----
 
 ####  捣♂湿  
 ##### 6436#       发表于 2017-9-25 02:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37298498&amp;ptid=1486439" target="_blank">killng 发表于 2017-9-24 22:36</a>
@@ -8640,23 +5614,13 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 2017-9-25 02:32 上传
 
 
-
-
-
-
 裤袜是60年代出现的，其实那时候比基尼已经流行了。
-
-
-
-
-
 
 
 -----
 
 ####  某某某人  
 ##### 6437#       发表于 2017-9-25 02:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37300098&amp;ptid=1486439" target="_blank">捣♂湿 发表于 2017-9-25 02:36</a>
@@ -8670,17 +5634,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 總之,能平穩地HE收尾真是太好了
 
 
-
-
-
-
-
 -----
 
 ####  满月美夜子  
 ##### 6438#       发表于 2017-9-25 03:05
-
-
 
 
 公主好棒
@@ -8689,25 +5646,13 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 完结撒花<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">希望第2季
 
 
-
-
-
-
-
 -----
 
 ####  shadow001  
 ##### 6439#       发表于 2017-9-25 03:06
 
 
-
-
 推特上的反應和S1的差不多,全世界的宅都是一樣<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8716,14 +5661,7 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 ##### 6440#       发表于 2017-9-25 03:11
 
 
-
-
 最后主角组竟然是全程吃瘪大结局=-= 没出口气啊...不过结局还是稳 四平八稳 一点意外都没有
-
-
-
-
-
 
 
 -----
@@ -8732,16 +5670,9 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 ##### 6441#       发表于 2017-9-25 03:29
 
 
-
-
 我说这片的系构要不是大河内，大家的要求会不会不那么高啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -8750,16 +5681,9 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 ##### 6442#       发表于 2017-9-25 03:36
 
 
-
-
 多萝西又惨了一次，爱车因为班长回跑了好久回来之后好不容易想保养一下还突然被叫去做任务，这次更是被黑皮把爱车给打烂了，最后更是拍照给公爵留底……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">除了夺走父亲的性命，连心爱的车子也被摧毁了，缅怀一下多萝西万能的爱车……等一个多萝西和黑皮的对枪。
 
 社团的地板也被安洁打穿两次……地毯好贵的好吧！
-
-
-
-
-
 
 
 -----
@@ -8768,16 +5692,9 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 ##### 6443#       发表于 2017-9-25 03:38
 
 
-
-
 作为单元回还行，作为结局还是太平淡了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 — from LGE Nexus 5, Android 7.1.2 of [S1 Next Goose](https://play.google.com/store/apps/details?id=me.ykrank.s1next) v1.3.1.0-play-debug
-
-
-
-
-
 
 
 -----
@@ -8786,16 +5703,9 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 ##### 6444#       发表于 2017-9-25 03:40
 
 
-
-
 12集完结，你要结局很有故事性？
 
 还记得夏洛特么
-
-
-
-
-
 
 
 -----
@@ -8804,16 +5714,9 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 ##### 6445#       发表于 2017-9-25 03:43
 
 
-
-
 我tm吹爆PriPri！！！！！！！！
 
 七月最强！！！！！
-
-
-
-
-
 
 
 -----
@@ -8822,14 +5725,7 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 ##### 6446#       发表于 2017-9-25 03:48
 
 
-
-
 聊胜于无，给二期添砖 <img src="https://wx2.sinaimg.cn/large/62e33a99gy1fjva1hx81yj20d506l3yl.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8838,14 +5734,7 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 ##### 6447#       发表于 2017-9-25 03:53
 
 
-
-
 这不是很好吗，最后也没吃上大河内的屎，现在不比以前半年番遍地走，12集既要把人物形象性格树立起来又要把故事讲好谈何容易。
-
-
-
-
-
 
 
 -----
@@ -8854,20 +5743,13 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 ##### 6448#       发表于 2017-9-25 03:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">睡前再骂一次辣鸡aiqiyi的翻译，这集英文水平是真的差，turtledove<strong>挚爱</strong>强行翻译成挚友、live as Ange作为安洁活下去翻译成署名安洁、Principal小队强行翻译成守则小队…（喵喵喵？？都最后一话了，你以前的翻译被吃了吗？）
-
-
-
-
-
 
 
 -----
 
 ####  Sliark  
 ##### 6449#       发表于 2017-9-25 03:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37300233&amp;ptid=1486439" target="_blank">pf67 发表于 2017-9-25 03:40</a>
@@ -8878,16 +5760,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime</blockquo
 我至今都认为Chalotte13是非常精彩的单集<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猴区观光团  
 ##### 6450#       发表于 2017-9-25 04:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37300233&amp;ptid=1486439" target="_blank">pf67 发表于 2017-9-25 03:40</a>
@@ -8904,16 +5780,10 @@ PRPR就头两话的信息量，如果12话大部分能保持那个水准，完�
 我只能说大河内犯病时其他人打晕他很合理。但是直接打死这就过分了吧。。。
 
 
-
-
-
-
-
 -----
 
 ####  Norn  
 ##### 6451#       发表于 2017-9-25 04:43
-
 
 
  本帖最后由 Norn 于 2017-10-11 15:40 编辑 
@@ -8996,13 +5866,9 @@ pripri小知识,出自机械设定片貝文洋
 01.关于C球的凯铂莱管会破碎的设定,是从很久以前的闪光灯泡里得到的灵感.
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +2
@@ -9013,12 +5879,7 @@ pripri小知识,出自机械设定片貝文洋
 | 白房子| + 1|辛苦啦|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -9027,23 +5888,15 @@ pripri小知识,出自机械设定片貝文洋
 ##### 6452#       发表于 2017-9-25 04:57
 
 
-
-
 &gt; 只要BD,DVD或者手游中的哪一个大卖的话,第2季的事我们会积极商讨的.
 
 大家一起上吧
-
-
-
-
-
 
 
 -----
 
 ####  downforce  
 ##### 6453#       发表于 2017-9-25 05:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37300048&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-9-25 02:14</a>
@@ -9059,17 +5912,10 @@ pripri小知识,出自机械设定片貝文洋
 实际可以看看雷加利亚三圣星，播出4话后不满意停播一个月重制后，重新从第一话开始播，重制的前4话画面改动并不大。
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 6454#       发表于 2017-9-25 05:39
-
-
 
 
 有事情还没看最后一话。不过看到这句喷了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -9078,17 +5924,10 @@ pripri小知识,出自机械设定片貝文洋
 :只要BD,DVD或者手游中的哪一个大卖的话,第2季的事我们会积极考虑的.
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6455#       发表于 2017-9-25 07:01
-
-
 
 
 居然真的直接说出来了，太无耻了
@@ -9096,16 +5935,10 @@ pripri小知识,出自机械设定片貝文洋
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6456#       发表于 2017-9-25 07:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37300284&amp;ptid=1486439" target="_blank">猴区观光团 发表于 2017-09-25 04:11:53</a>
@@ -9115,17 +5948,10 @@ pripri小知识,出自机械设定片貝文洋
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Tehebe  
 ##### 6457#       发表于 2017-9-25 07:09
-
-
 
 
 军部又独走了，你们不是共和国么，虽然公主救出来了，但替换作战已经是透光了，如果有第二季大概诺曼底公要强行搜查学校了吧，不管怎么说，这片子还是稳到了最后，资本的力量就是强大<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
@@ -9133,16 +5959,10 @@ pripri小知识,出自机械设定片貝文洋
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6458#       发表于 2017-9-25 07:17
-
 
 
 <blockquote>Norn 发表于 2017-9-25 04:43
@@ -9152,26 +5972,15 @@ pripri小知识,出自机械设定片貝文洋
 前面重要的一些信息很多都是任凭想象...看到最后一句，直接喷了....
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6459#       发表于 2017-9-25 07:30
 
 
-
 <blockquote>大厨麦当牛 发表于 2017-9-25 01:23
 其实仔细想了想这几个人根本不适合当间谍吧，安洁恋爱脑，公主太天真，多萝西太讲义气且心软，千世脑冲。唯 ...</blockquote>
 当初夕阳表现残酷中的温柔的安洁还是比较合适当间谍的，但是那份“残酷”什么时候完全消失了就不好说了...
-
-
-
-
-
 
 
 -----
@@ -9180,24 +5989,16 @@ pripri小知识,出自机械设定片貝文洋
 ##### 6460#       发表于 2017-9-25 07:36
 
 
-
-
 看完这片只能感叹自己老了，跟不上节奏了。看着这一话公主和安吉刻意卖萌一脸的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。
 
 
 这年头想要看PP朱妹这样思维正常点的角色还真是难啊。
 
 
-
-
-
-
-
 -----
 
 ####  kimone  
 ##### 6461#       发表于 2017-9-25 07:44
-
 
 
  本帖最后由 kimone 于 2017-9-25 08:04 编辑 
@@ -9211,17 +6012,10 @@ My turtledove
 自主规制<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6462#       发表于 2017-9-25 08:09
-
-
 
 
 从手游观察的话，现在斯蒂芬尼，公主和安洁的人气最高。虽然跟技能好用不无关系，但是这样看来枪娘未来客串的可能性也是相当高的，如果有二期的话
@@ -9229,17 +6023,10 @@ My turtledove
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6463#       发表于 2017-9-25 08:20
-
-
 
 
 因为有人问到了就如实回答了，感觉挺好的。反正不喜欢的也不会去帮衬，只能说官方的目标客户很明确<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -9249,17 +6036,10 @@ My turtledove
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6464#       发表于 2017-9-25 08:41
-
-
 
 
 02.Q:在这集之后塞尔达的命运会如何?今后她还会作为Control的间谍而活动吗?
@@ -9272,16 +6052,10 @@ My turtledove
 除非手游也是乱序时间轴，至少现阶段是没办法和安洁多萝西一起从L那边接任务的。
 
 
-
-
-
-
-
 -----
 
 ####  M82  
 ##### 6465#       发表于 2017-9-25 08:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37299936&amp;ptid=1486439" target="_blank">白房子 发表于 2017-9-25 01:45</a>
@@ -9294,16 +6068,10 @@ My turtledove
 补张图，确实她也是双重间谍。露脸漏最多的军方组，结果还是自己人。
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6466#       发表于 2017-9-25 08:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37300933&amp;ptid=1486439" target="_blank">M82 发表于 2017-9-25 08:43</a>
@@ -9314,32 +6082,19 @@ My turtledove
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">谢补图，但兄弟你的截图完全把她的脸挡住啦w而且到最后我们也不知道她的名字。
 
 
-
-
-
-
-
 -----
 
 ####  roamer  
 ##### 6467#       发表于 2017-9-25 09:13
 
 
-
-
 什么<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，这是最后一集？
-
-
-
-
-
 
 
 -----
 
 ####  斑比  
 ##### 6468#       发表于 2017-9-25 09:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37300764&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-9-25 08:20</a>
@@ -9350,25 +6105,13 @@ My turtledove
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">鲁鲁修在哪个世界线的泥潭被贬的那么惨
 
 
-
-
-
-
-
 -----
 
 ####  hac0101  
 ##### 6469#       发表于 2017-9-25 09:32
 
 
-
-
 说到安杰的名字，动画里也是a放大了写。
-
-
-
-
-
 
 
 -----
@@ -9377,22 +6120,13 @@ My turtledove
 ##### 6470#       发表于 2017-9-25 09:34
 
 
-
-
 突如其来的ed<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  辰藻涧  
 ##### 6471#       发表于 2017-9-25 09:46
-
-
 
 
 算这一季里的佼佼者了，剧情平稳有亮点，作画稳定，结局温暖人心。要是每季能多几部这样的原创就好了。虽然我还是觉得“准备自杀时刚好碰到和自己长得一模一样的的人”这种放童话里都近似奇迹的剧情实在有点神棍（一开始还以为是什么安排好的大新闻）。另外有两个人物设定一直很在意，到完结都没想通（也可能前面看漏了），来请教一下——
@@ -9402,16 +6136,10 @@ My turtledove
 2. 安洁和公主长得这么像，除了知道替换计划的人，旁人就不觉得奇怪吗？这俩还经常在一起活动，同学、护卫、间谍…看到了全都没什么反应？连多萝西都是在安洁戴上假发之后才惊叹和公主这么像，平时就没觉得？
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6472#       发表于 2017-9-25 09:49
-
 
 
  本帖最后由 白房子 于 2017-9-25 09:52 编辑 
@@ -9429,11 +6157,6 @@ My turtledove
 2017-9-25 09:47 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201709/25/094738h8nhpedykpsu2ss8.png" referrerpolicy="no-referrer">
 
 
@@ -9444,29 +6167,13 @@ My turtledove
 2017-9-25 09:47 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  白色过膝袜  
 ##### 6473#       发表于 2017-9-25 09:57
 
 
-
-
 这一话标题叫高墙陷落，别说墙了天花板也没落呀
-
-
-
-
-
 
 
 -----
@@ -9475,16 +6182,10 @@ My turtledove
 ##### 6474#       发表于 2017-9-25 09:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37301662&amp;ptid=1486439" target="_blank">白色过膝袜 发表于 2017-09-25 09:57:47</a>
 这一话标题叫高墙陷落，别说墙了天花板也没落呀</blockquote>是安洁的心墙
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -9493,14 +6194,7 @@ My turtledove
 ##### 6475#       发表于 2017-9-25 10:18
 
 
-
-
 7带回L这段很莫名其妙。L是被调走了，又不是军方趁L不知道偷偷来指挥。你查出一个已经被调走的人调到哪了然后跑去把人接回有屁用啊。他是不知道有人接替自己，还是被软禁了，还是说傻了不认识路不知道怎么回来？你要解释为7暗中收集军部瞎搞必然失败的证据跑去跟上级掀桌了那还说的过去，说7是去找L位置了这太tm蠢了吧。
-
-
-
-
-
 
 
 -----
@@ -9509,14 +6203,7 @@ My turtledove
 ##### 6476#       发表于 2017-9-25 10:25
 
 
-
-
 我永远相信大河内<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9525,23 +6212,16 @@ My turtledove
 ##### 6477#         楼主| 发表于 2017-9-25 10:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37300360&amp;ptid=1486439" target="_blank">downforce 发表于 2017-9-25 05:35</a>
 
 不管是理想状态还是现实都没时间给你中途大改剧本，顶多改个几秒钟的镜头。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/006.png" referrerpolicy="no-referrer">那估计就是系构定了大方向 万代也早就决定好了  大河内赶往别的片场了
 
 
-
-
-
-
-
 -----
 
 ####  Fstt  
 ##### 6478#       发表于 2017-9-25 10:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37294830&amp;ptid=1486439" target="_blank">tmpfs 发表于 2017-9-24 15:03</a>
@@ -9553,25 +6233,13 @@ My turtledove
 哇，你们俩，这真不是在秀恩爱？？话说我也在想你是不是都弃了
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6479#         楼主| 发表于 2017-9-25 10:27
 
 
-
-
 首卷5k应该有了？（有）大河内（参与的）真的保底啊
-
-
-
-
-
 
 
 -----
@@ -9580,16 +6248,10 @@ My turtledove
 ##### 6480#       发表于 2017-9-25 10:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37301978&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-9-25 10:27</a>
 
 首卷5k应该有了？（有）大河内（参与的）真的保底啊</blockquote>
 死后文:我呢?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9598,23 +6260,16 @@ My turtledove
 ##### 6481#         楼主| 发表于 2017-9-25 10:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37302030&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-9-25 10:31</a>
 
 死后文:我呢?,我可还是当初评价很高的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/055.png" referrerpolicy="no-referrer">马有失蹄
 
 
-
-
-
-
-
 -----
 
 ####  posion  
 ##### 6482#       发表于 2017-9-25 10:43
-
 
 
  本帖最后由 posion 于 2017-9-25 10:47 编辑 
@@ -9635,16 +6290,10 @@ My turtledove
 2.比起相像的问题，我更想知道安洁的发色为什么变了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6483#       发表于 2017-9-25 10:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37298913&amp;ptid=1486439" target="_blank">迪门修斯 发表于 2017-9-24 23:15</a>
@@ -9653,26 +6302,15 @@ My turtledove
 不过实际上就算杀了那个人,要想圆过去也不是不可以,但是这样会让多萝西处理起来更麻烦,阻止安结后又找回了L，也没杀自己人，这样结果就好多了
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6484#       发表于 2017-9-25 10:53
 
 
-
  本帖最后由 aptx8285144 于 2017-9-25 10:59 编辑 
 
 之前翻楼才发现，这会场帝国的守卫几乎没有镜头？秘书不可能都带走的，公爵就算有伏兵肯定也要给镜头才行，而且发生情况时候也没有守卫慌张的镜头，上面都是共和国的伏兵，这<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9681,21 +6319,13 @@ My turtledove
 ##### 6485#       发表于 2017-9-25 10:53
 
 
-
-
 对设定完全就是不讲了的态度啊，到了最后也没成为我的菜，诶。
-
-
-
-
-
 
 
 -----
 
 ####  ネロ  
 ##### 6486#       发表于 2017-9-25 11:00
-
 
 
  本帖最后由 ネロ 于 2017-9-25 11:06 编辑 
@@ -9709,16 +6339,10 @@ My turtledove
 最后，IQIYI去死
 
 
-
-
-
-
-
 -----
 
 ####  mumubear  
 ##### 6487#       发表于 2017-9-25 11:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37301886&amp;ptid=1486439" target="_blank">猴区观光团 发表于 2017-9-25 10:18</a>
@@ -9727,33 +6351,19 @@ My turtledove
 我觉得这集能写两集。。。然后会好很多。。。
 
 
-
-
-
-
-
 -----
 
 ####  Fingest  
 ##### 6488#       发表于 2017-9-25 11:23
 
 
-
-
 还行吧，完全符合一直以来的走势 明线本质喝茶
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 6489#       发表于 2017-9-25 11:34
-
-
 
 
 TVアニメ『プリンセス・プリンシパル』
@@ -9770,16 +6380,10 @@ TVアニメ『プリンセス・プリンシパル』
 这可是个大新闻…………
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 6490#       发表于 2017-9-25 11:37
-
 
 
 <blockquote>Yeaha123 发表于 2017-9-25 02:30
@@ -9787,16 +6391,10 @@ TVアニメ『プリンセス・プリンシパル』
 比阿特其实有表现的，就那个被安洁砸晕的哥们其实是在和变声的比阿特打电话。多萝西她们本来是打算这样骗出公主的行踪来的，结果被安洁强行逼问了，所以多萝西提起电话喊的是比阿特并且说安洁打乱了她们的计划。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6491#       发表于 2017-9-25 11:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37302866&amp;ptid=1486439" target="_blank">白房子 发表于 2017-09-25 11:34:31</a>
@@ -9809,17 +6407,10 @@ TVアニメ『プリンセス・プリンシパル』
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6492#       发表于 2017-9-25 11:40
-
-
 
 
 橘监督访谈，很多内容，有讲诉洗衣工厂回的情况，还有其他问题太多了请自行观看吧。
@@ -9840,10 +6431,6 @@ TVアニメ『プリンセス・プリンシパル』
 2017-9-25 11:39 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201709/25/113952yoho21lfwp2441z1.jpg" referrerpolicy="no-referrer">
 
 
@@ -9852,10 +6439,6 @@ TVアニメ『プリンセス・プリンシパル』
 下载附件
 
 2017-9-25 11:39 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201709/25/113953t3e976r93tt1frmr.jpg" referrerpolicy="no-referrer">
@@ -9868,21 +6451,10 @@ TVアニメ『プリンセス・プリンシパル』
 2017-9-25 11:39 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  alvin051414  
 ##### 6493#       发表于 2017-9-25 11:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37302866&amp;ptid=1486439" target="_blank">白房子 发表于 2017-9-25 11:34</a>
@@ -9895,16 +6467,10 @@ TVアニメ『プリンセス・プリンシパル』
 早10年凉宫TVA就玩过的路数了…有啥大新闻的…
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6494#       发表于 2017-9-25 11:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37302978&amp;ptid=1486439" target="_blank">alvin051414 发表于 2017-9-25 11:42</a>
@@ -9913,25 +6479,13 @@ TVアニメ『プリンセス・プリンシパル』
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">因为我没看懂，如果把6/9话放一张碟了我可能就不用买了（x虽然还是会买的。
 
 
-
-
-
-
-
 -----
 
 ####  间咒  
 ##### 6495#       发表于 2017-9-25 11:46
 
 
-
-
 还以为8、10话这样隔话精彩的安排是为了骗BD，原来不是啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9940,16 +6494,9 @@ TVアニメ『プリンセス・プリンシパル』
 ##### 6496#       发表于 2017-9-25 11:47
 
 
-
-
 我严重怀疑每卷BD送一个人物的六星卡。昨天官方送了一次免费11连之后我感觉这个游戏又能继续玩下去了<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -9958,16 +6505,10 @@ TVアニメ『プリンセス・プリンシパル』
 ##### 6497#       发表于 2017-9-25 11:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37303055&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-25 11:47</a>
 
 我严重怀疑每卷BD送一个人物的六星卡。昨天官方送了一次免费11连之后我感觉这个游戏又能继续玩下去了[f:043 ...</blockquote>
 沉迷抽卡……
-
-
-
-
-
 
 
 -----
@@ -9976,16 +6517,10 @@ TVアニメ『プリンセス・プリンシパル』
 ##### 6498#       发表于 2017-9-25 11:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37303055&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-25 11:47</a>
 
 我严重怀疑每卷BD送一个人物的六星卡。昨天官方送了一次免费11连之后我感觉这个游戏又能继续玩下去了[f:043 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">你抽中6星公主了吗？
-
-
-
-
-
 
 
 -----
@@ -9994,16 +6529,10 @@ TVアニメ『プリンセス・プリンシパル』
 ##### 6499#       发表于 2017-9-25 11:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37303103&amp;ptid=1486439" target="_blank">白房子 发表于 2017-09-25 11:50:32</a>
 你抽中6星公主了吗？</blockquote>六星公主+千世<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -10012,21 +6541,13 @@ TVアニメ『プリンセス・プリンシパル』
 ##### 6500#       发表于 2017-9-25 12:02
 
 
-
-
 感觉全世界就我一个非洲人了，三次抽卡没六星
-
-
-
-
-
 
 
 -----
 
 ####  堆雪若叶  
 ##### 6501#       发表于 2017-9-25 12:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37303178&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-25 11:57</a>
@@ -10038,17 +6559,10 @@ TVアニメ『プリンセス・プリンシパル』
 我严重怀疑这楼以后要变成你们海豹晒卡楼<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猴区观光团  
 ##### 6502#       发表于 2017-9-25 12:06
-
-
 
 
 心中理想的PRPR
@@ -10060,16 +6574,10 @@ TVアニメ『プリンセス・プリンシパル』
 3、刺杀公主事件明面是共和国军方作死。诺曼底和L都应该增加些预先已经得到情报将计就计之类的反转。军方出来卖一波蠢，结果被诺曼底利用要坑共和国一波，然后L这时候插手进来反制诺曼底。这样军方颜面尽失，L**合情合理。现在这剧情“7找到了L被调去的部门所以L就回来了”简直蠢爆天际。
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 6503#       发表于 2017-9-25 12:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37303253&amp;ptid=1486439" target="_blank">暗黑能乐 发表于 2017-9-25 12:02</a>
@@ -10078,16 +6586,10 @@ TVアニメ『プリンセス・プリンシパル』
 刷刷初始吧……三次十连没六星也太惨了，即使科学抽卡如我也是按百分之三的出率每三次出一个六的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  艾诺琳  
 ##### 6504#       发表于 2017-9-25 12:13
-
 
 
  本帖最后由 艾诺琳 于 2017-9-25 12:14 编辑 
@@ -10105,17 +6607,10 @@ TVアニメ『プリンセス・プリンシパル』
 革命军的想法可能是英国现实这种君主立宪，公主的想法是隔壁法国革命
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 6505#       发表于 2017-9-25 12:17
-
-
 
 
 虽然说这个结局很稳，但是感觉只是稳，不够好<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
@@ -10125,17 +6620,10 @@ TVアニメ『プリンセス・プリンシパル』
 以及这个新脚本的水平不够啊。。。
 
 
-
-
-
-
-
 -----
 
 ####  丹生谷森夏  
 ##### 6506#       发表于 2017-9-25 12:19
-
-
 
 
 结局稳的，但总感觉意犹未尽<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -10144,16 +6632,10 @@ TVアニメ『プリンセス・プリンシパル』
 顺便问下OP是还没发售吗
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 6507#       发表于 2017-9-25 12:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37303437&amp;ptid=1486439" target="_blank">丹生谷森夏 发表于 2017-9-25 12:19</a>
@@ -10165,16 +6647,10 @@ TVアニメ『プリンセス・プリンシパル』
 oped早就发售了吧，ost后天发售
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6508#       发表于 2017-9-25 12:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37303437&amp;ptid=1486439" target="_blank">丹生谷森夏 发表于 2017-09-25 12:19:08</a>
@@ -10187,26 +6663,15 @@ oped早就发售了吧，ost后天发售
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6509#       发表于 2017-9-25 12:26
 
 
-
 <blockquote>Fingest 发表于 2017-9-25 11:23
 还行吧，完全符合一直以来的走势 明线本质喝茶</blockquote>
 讲道理，要是本质喝茶片，那公主这话策反少佐的话语的决心和意义就显得十分诡异了，也对不起他还有一口气时候的恳求（？）
-
-
-
-
-
 
 
 -----
@@ -10215,24 +6680,16 @@ oped早就发售了吧，ost后天发售
 ##### 6510#       发表于 2017-9-25 12:29
 
 
-
-
 说好的厉害少女呢？看起来公主想要做的事就是乖乖的听共和国的话慢慢的坑死王国这边
 
 
 说到底还是放弃自己主动权把选择交给共和国<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6511#       发表于 2017-9-25 12:33
-
 
 
  本帖最后由 aptx8285144 于 2017-9-25 12:37 编辑 
@@ -10244,16 +6701,10 @@ oped早就发售了吧，ost后天发售
 这里关于L的问题回答上显然十分奇怪，正常做法应该是7去找委员会指控将军强行调走L，前面回答都说了委员会没有同意，7应该抓住这点才对，这种级别的调动哪里是想找回来就能调回来的呀，虽然最后明显是借助任务失败的冲击杀回来的
 
 
-
-
-
-
-
 -----
 
 ####  Fingest  
 ##### 6512#       发表于 2017-9-25 12:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37303530&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-9-25 12:26</a>
@@ -10268,17 +6719,10 @@ oped早就发售了吧，ost后天发售
 我喜欢这部，但也不用抬层次立意，看得舒服就行
 
 
-
-
-
-
-
 -----
 
 ####  名津流  
 ##### 6513#       发表于 2017-9-25 12:34
-
-
 
 
 10集谍战片，2集动作片 
@@ -10286,16 +6730,10 @@ oped早就发售了吧，ost后天发售
 感觉最后两集安洁有点OOC
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6514#       发表于 2017-9-25 12:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37303307&amp;ptid=1486439" target="_blank">猴区观光团 发表于 2017-9-25 12:06</a>
@@ -10314,17 +6752,10 @@ oped早就发售了吧，ost后天发售
 你可以说剧情安排的太短，这一话再多分出来一话详解讲解一下，但是你理解成L是7"找"回来的蠢爆剧情有点不对吧？
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6515#       发表于 2017-9-25 12:37
-
-
 
 
 L回来的时候不是捏了下手腕，感觉是刚放出来。明面上是调动，说的话好听点而已。也可能拘禁起来审问了。班长那回开头L还在指挥，中途突然就被请去喝茶了，结尾就是军方接管组织。至于军方的暗杀公主任务，感觉就是自作主张的向上建议，可以说不需要，但有种强行趁L不在的时候动手，虽然理由也说得通。
@@ -10336,25 +6767,13 @@ L回来的时候不是捏了下手腕，感觉是刚放出来。明面上是调�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  猴区观光团  
 ##### 6516#       发表于 2017-9-25 12:40
 
 
-
-
 话说有没有大佬对这游戏具体评测一下。。。
-
-
-
-
-
 
 
 -----
@@ -10363,21 +6782,13 @@ L回来的时候不是捏了下手腕，感觉是刚放出来。明面上是调�
 ##### 6517#       发表于 2017-9-25 12:41
 
 
-
-
 居然真的白房子End了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 6518#       发表于 2017-9-25 12:45
-
 
 
  本帖最后由 xtwx1716 于 2017-9-25 12:48 编辑 
@@ -10390,16 +6801,10 @@ L回来的时候不是捏了下手腕，感觉是刚放出来。明面上是调�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6519#       发表于 2017-9-25 12:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37303709&amp;ptid=1486439" target="_blank">8822 发表于 2017-9-25 12:41</a>
@@ -10408,17 +6813,10 @@ L回来的时候不是捏了下手腕，感觉是刚放出来。明面上是调�
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">虽然来到了卡萨布兰卡但我好像还没出场，关于白房子手游里最近可能会有相关剧情，请持续关注哦~
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6520#       发表于 2017-9-25 13:02
-
-
 
 
 重看11话，之前我会认为堀河公说收到情报叛军领导层有千世朋友这件事是让千世救队友简直是大错特错了……
@@ -10428,16 +6826,10 @@ L回来的时候不是捏了下手腕，感觉是刚放出来。明面上是调�
 一度放松警惕以为公爵没什么危险性了……唉<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">失策失策。
 
 
-
-
-
-
-
 -----
 
 ####  posion  
 ##### 6521#       发表于 2017-9-25 13:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37303663&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-9-25 12:37</a>
@@ -10448,16 +6840,10 @@ L回来的时候不是捏了下手腕，感觉是刚放出来。明面上是调�
 公爵通过对比现场证物，知道了谁才是真公主<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  shadow001  
 ##### 6522#       发表于 2017-9-25 13:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37303663&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-9-25 12:37</a>
@@ -10466,33 +6852,19 @@ L回来的时候不是捏了下手腕，感觉是刚放出来。明面上是调�
 共和國軍方行動成功的結果就是和王國的全面戰爭,打起上來真是不知哪邊個贏,共和國政府肯定是不願意這樣
 
 
-
-
-
-
-
 -----
 
 ####  hosilly  
 ##### 6523#       发表于 2017-9-25 13:19
 
 
-
-
 我有种预感，下次手游的卡池就是泳装五人组了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  漫区专号  
 ##### 6524#       发表于 2017-9-25 13:20
-
-
 
 
 说好的“我将欺骗全世界，甚至自己”呢？？？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
@@ -10504,17 +6876,10 @@ L回来的时候不是捏了下手腕，感觉是刚放出来。明面上是调�
 12话这四平八稳以及意犹未尽的感觉做1期结局还是不错的。可以给个好评。可是要是没有2期，这样的结局处理就算是烂尾了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 6525#       发表于 2017-9-25 13:21
-
-
 
 
 有点赶。
@@ -10524,33 +6889,20 @@ L回来的时候不是捏了下手腕，感觉是刚放出来。明面上是调�
 公主那段“我会上断头台吧”的感慨，我的理解是她是表态知道自己肩上的责任。就算路易十六那样都不是没有流亡的机会被自己浪掉了而已。19世纪背景的欧洲又不注重肉体消灭，流亡海外当寓公说不定还能回去呢。她所表达的是，她清楚所选择的道路艰难曲折，有着不止于生命危险的重重险阻。但是她依然要为可能的更好的路线去闯——其实上校也不傻，他也知道这次刺杀对于解决问题没啥卯月，就是搅浑水碰运气罢了。所以有了至少不会更坏的选择才能被说服。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6526#         楼主| 发表于 2017-9-25 13:21
 
 
-
-
 #Anitama# “强迫”观众集中精神的动画的声音 - 岩浪美和谈《Princess Principal》的音响制作。 
 [http://www.anitama.cn/article/f6 ... 47a7b7e80a40613cfe1](http://www.anitama.cn/article/f6b42f81b221b43e#0-tsina-1-56461-397232819ff9a47a7b7e80a40613cfe1)
-
-
-
-
-
 
 
 -----
 
 ####  aptx8285144  
 ##### 6527#       发表于 2017-9-25 13:23
-
 
 
  本帖最后由 aptx8285144 于 2017-9-25 13:25 编辑 
@@ -10566,32 +6918,19 @@ L回来的时候不是捏了下手腕，感觉是刚放出来。明面上是调�
 突然想想,这段交锋如果有的话,会很刺激吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kimone  
 ##### 6528#       发表于 2017-9-25 13:27
 
 
-
-
 难道要变成政治大戏？<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  漫区专号  
 ##### 6529#       发表于 2017-9-25 13:27
-
 
 
  本帖最后由 漫区专号 于 2017-9-25 13:30 编辑 
@@ -10601,33 +6940,19 @@ L回来的时候不是捏了下手腕，感觉是刚放出来。明面上是调�
 是的。如果没有2期那么这样的结局会导致故事的完整性太差------剧情没有完整串起及收回伏笔。虽然是单元剧，但主线才能保证故事的完整性。如果有2期的话，那么这么一个意犹未尽的结局就是一个恰到好处的处理。
 
 
-
-
-
-
-
 -----
 
 ####  小柁Todd  
 ##### 6530#       发表于 2017-9-25 13:27
 
 
-
-
 想看大河内喂药来着，死的人也太少了，而且还不是以前出现过的人，希望下一季好好搞吧，绝望系。
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 6531#       发表于 2017-9-25 13:28
-
-
 
 
 再发一下正确的时间轴吧，方便顺时观看。
@@ -10697,16 +7022,10 @@ L回来的时候不是捏了下手腕，感觉是刚放出来。明面上是调�
 第12話「case24 Fall of the Wall」
 
 
-
-
-
-
-
 -----
 
 ####  杨雪崩  
 ##### 6532#       发表于 2017-9-25 13:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37304161&amp;ptid=1486439" target="_blank">kimone 发表于 2017-9-25 13:27</a>
@@ -10718,17 +7037,10 @@ L回来的时候不是捏了下手腕，感觉是刚放出来。明面上是调�
 —— 来自 Xiaomi MI 5s, Android 6.0.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6533#       发表于 2017-9-25 13:40
-
-
 
 
 手游这边的剧情有小小的提到公主有一个"可靠的途径"，猜测是因为帮Control做任务而积累了不少人脉，再加上幸运女神的天赋和国民偶像的形象，组织成一个真正的背后势力也不是不可能。如果将来变成政治戏的话……也能会好看吧。
@@ -10737,16 +7049,10 @@ L回来的时候不是捏了下手腕，感觉是刚放出来。明面上是调�
 虽然目前手游的剧本大部分都让我觉得很日常很无聊。<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">期待来一些有点爆点的剧情吧。
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 6534#       发表于 2017-9-25 13:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37304186&amp;ptid=1486439" target="_blank">杨雪崩 发表于 2017-9-25 13:30</a>
@@ -10758,32 +7064,19 @@ L回来的时候不是捏了下手腕，感觉是刚放出来。明面上是调�
 这叛军领袖确实是塑造得太软弱犹豫了，只是外援的泽尔达说要钥匙就马上给她，公主嘴炮一通就马上中止策划多时的动乱，就这种决策力这次革命确实就像泽尔达说的那样一成的成功率都没有。
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6535#       发表于 2017-9-25 13:44
 
 
-
-
 幸运女神的天赋<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  猴区观光团  
 ##### 6536#       发表于 2017-9-25 13:44
-
 
 
 <blockquote>白房子 发表于 2017-9-25 12:37
@@ -10794,16 +7087,10 @@ L回来的时候不是捏了下手腕，感觉是刚放出来。明面上是调�
 7去吧L找回来这是官方给的解释。。。
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6537#       发表于 2017-9-25 13:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37304318&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-9-25 13:43</a>
@@ -10812,16 +7099,10 @@ L回来的时候不是捏了下手腕，感觉是刚放出来。明面上是调�
 泽尔达这话真是给人一种干大事的人,抛开立场不说(何况官方也认定她是共和国的得力间谍),心理素质比在场的几个军人要强太多
 
 
-
-
-
-
-
 -----
 
 ####  shadow001  
 ##### 6538#       发表于 2017-9-25 13:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37304328&amp;ptid=1486439" target="_blank">猴区观光团 发表于 2017-9-25 13:44</a>
@@ -10830,16 +7111,10 @@ L回来的时候不是捏了下手腕，感觉是刚放出来。明面上是调�
 找回來是結果，過程是怎樣大家都不知道
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 6539#       发表于 2017-9-25 13:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37304290&amp;ptid=1486439" target="_blank">白房子 发表于 2017-9-25 13:40</a>
@@ -10848,16 +7123,10 @@ L回来的时候不是捏了下手腕，感觉是刚放出来。明面上是调�
 经此一役共和国方面的进步性也破产了，之后公主和诺曼底公爵斗争中有合作是可期的。对于间谍来说需要忠诚可靠，对于政客来说则需要长袖善舞。
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 6540#       发表于 2017-9-25 13:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37304366&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-9-25 13:47</a>
@@ -10866,16 +7135,10 @@ L回来的时候不是捏了下手腕，感觉是刚放出来。明面上是调�
 泽尔达我都怀疑她后面会是自成一派的势力，就上一集她在公主耳边说战争开始了的那种兴奋表现，这次利用叛军的行动策划没准就是她煽动军部实施的。
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 6541#       发表于 2017-9-25 13:54
-
 
 
  本帖最后由 望月凝香 于 2017-9-25 13:57 编辑 
@@ -10887,16 +7150,10 @@ L回来的时候不是捏了下手腕，感觉是刚放出来。明面上是调�
 由于大陆的文艺传统，对于革命军人的塑造是有选择的。看了这样的表现觉得奇怪没啥，然而要意识到这才是许多“革命者”开始的样子——就是三湾改编还有不愿意上井冈山的发给路费呢。
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6542#       发表于 2017-9-25 13:55
-
 
 
  本帖最后由 白房子 于 2017-9-25 14:06 编辑 
@@ -10916,17 +7173,10 @@ http://ww ...</blockquote>
 音乐真的好听，人声慢放之后会得很怪异，而乐器的声音慢放之后还是很悦耳。用0.2倍速看动画真是难为我了。
 
 
-
-
-
-
-
 -----
 
 ####  colohot  
 ##### 6543#       发表于 2017-9-25 14:06
-
-
 
 
 这种戛然而止的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -10940,22 +7190,13 @@ http://ww ...</blockquote>
 说了这么多就想问一下，到底会不会有续作啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  snailium  
 ##### 6544#       发表于 2017-9-25 14:06
 
 
-
-
 总结了一下各话的间谍人物和大概情节，重新按case number排列了一下
-
-
 
 
 2.case1 Dancy Conspiracy
@@ -11066,17 +7307,10 @@ http://ww ...</blockquote>
    重组失败 白鸽队离开阿尔比昂 公爵已探明白鸽队身份
 
 
-
-
-
-
-
 -----
 
 ####  阿虚家的三味  
 ##### 6545#       发表于 2017-9-25 14:09
-
-
 
 
 大部分剧情都猜到了，比如塞尔达c球，墙怎么可能就那么快倒了什么
@@ -11087,16 +7321,10 @@ http://ww ...</blockquote>
 当然我看这军部肥大三粗的造型，更可能纯粹是军部人蠢吧…………
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6546#       发表于 2017-9-25 14:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37304560&amp;ptid=1486439" target="_blank">colohot 发表于 2017-9-25 14:06</a>
@@ -11107,16 +7335,10 @@ http://ww ...</blockquote>
 我觉得难以理解的是官方都明确声称多来买买就非常可能有二期的情况下为什么还要设置工厂回这种日常气氛的剧情,明显应该是尽力发展剧情到底再留坑不是更好吗,向观众表明我们尽力了,所以现在轮到你们的钱包努力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  crazymarky  
 ##### 6547#       发表于 2017-9-25 14:31
-
 
 
  本帖最后由 crazymarky 于 2017-9-25 14:33 编辑 
@@ -11128,16 +7350,10 @@ http://ww ...</blockquote>
 决斗回有什么意义，表示出上层社会贵族子弟的傲慢?
 
 
-
-
-
-
-
 -----
 
 ####  shadow001  
 ##### 6548#       发表于 2017-9-25 14:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37304812&amp;ptid=1486439" target="_blank">crazymarky 发表于 2017-9-25 14:31</a>
@@ -11146,16 +7362,10 @@ http://ww ...</blockquote>
 日本鄉下佬對英帝的看法
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6549#       发表于 2017-9-25 14:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37304812&amp;ptid=1486439" target="_blank">crazymarky 发表于 2017-9-25 14:31</a>
@@ -11166,27 +7376,15 @@ http://ww ...</blockquote>
 决斗回体现日本国犹豫不决的地方更明显以及公主勇气的表现(具体那里有点忘了),其实我觉得那悠闲的气氛本身是不太对的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  md2501  
 ##### 6550#       发表于 2017-9-25 14:49
 
 
-
-
 表面冷酷无情，内心却无比温柔；装作坚强冷静，但实际上胆小懦弱，一碰到公主的事情就慌乱的黑蜥蜴星人真是太让人喜欢啦<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 黑蜥蜴星人流落民间之后对王国失望到放弃自己的理想、不再对他人交心，但仍然跑回来找小偷，想要补偿她；小偷则继承挚友(爱人)的理想，希望建成没有墙的世界。这两个人真是处处为了对方，甜得要死。
 真希望黑蜥蜴星人最后能获得幸福。故事才讲了个开头，等一个第二期<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11195,14 +7393,7 @@ http://ww ...</blockquote>
 ##### 6551#       发表于 2017-9-25 14:51
 
 
-
-
 就这样戛然而止了，必然二期<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11211,23 +7402,16 @@ http://ww ...</blockquote>
 ##### 6552#       发表于 2017-9-25 14:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37304909&amp;ptid=1486439" target="_blank">shadow001 发表于 2017-9-25 14:40</a>
 
 日本鄉下佬對英帝的看法</blockquote>
 为了这点而用一话,这果然是半年番的气度呀(
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6553#       发表于 2017-9-25 14:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37304971&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-9-25 14:46</a>
@@ -11238,25 +7422,13 @@ http://ww ...</blockquote>
 第七集我所不能容忍的是言之无物，人物塑造没有，情节推进没有，气氛问题相比之下都是小问题。
 
 
-
-
-
-
-
 -----
 
 ####  niyikaowo  
 ##### 6554#       发表于 2017-9-25 14:57
 
 
-
-
 单这一季的话有点高开低走啊，挖了一堆坑。但愿有二期吧
-
-
-
-
-
 
 
 -----
@@ -11265,16 +7437,10 @@ http://ww ...</blockquote>
 ##### 6555#       发表于 2017-9-25 15:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37305105&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-25 14:57</a>
 
 我对决斗回比较宽容。因为描写主角方的日常生活也是必要的，而且还讲了日本方态度的转变，干货还是不少的 ...</blockquote>
 其实日本方的态度在公主拜见女王,女王提婚事时候,掘公已经和千世提过选择的态度了,虽然再强调几次也不是不行,不过感觉还是再留给共和国和公爵感觉更好,这时候我才突然发觉掘公的台词时间好像不比公爵和共和国的几个少甚至千世入队那次算他半个主场都可以<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11283,23 +7449,15 @@ http://ww ...</blockquote>
 ##### 6556#       发表于 2017-9-25 15:34
 
 
-
-
 那个男间谍安洁一威胁就把什么都招了，这共和国的谍报机关怕不都是废物。
 
 公主一席话语就让革命军官以礼来降，这是王国公主还是裕仁天皇啊。
-
-
-
-
-
 
 
 -----
 
 ####  aptx8285144  
 ##### 6557#       发表于 2017-9-25 15:37
-
 
 
 <blockquote>望月凝香 发表于 2017-9-25 13:54
@@ -11309,16 +7467,10 @@ http://ww ...</blockquote>
 至少理想或者说目的应该有的吧，摧毁帝国建立共和国，努力实现经济平等之类的，但是比较缺对于具体步骤的规划和变革的意志
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6558#       发表于 2017-9-25 15:44
-
 
 
 <blockquote>schutzstaffel 发表于 2017-9-25 15:34
@@ -11328,16 +7480,10 @@ http://ww ...</blockquote>
 后面那段好歹算是公主掏心掏肺了，加上军官意志不够坚定....但是共和国方间谍看到自己同僚对计划的背叛不说还威胁自己说出秘密，这还激不起心里的血气还屈服，这还当什么间谍呀！
 
 
-
-
-
-
-
 -----
 
 ####  kxh007458  
 ##### 6559#       发表于 2017-9-25 15:45
-
 
 
 <blockquote>阿虚家的三味 发表于 2017-9-25 14:09
@@ -11347,27 +7493,15 @@ http://ww ...</blockquote>
 没有冲突，王国叛乱军能成功上位的可能性几乎没有，肯定会被镇压下去。但这天花板一砸，王国高层就差不多全灭了，剩下的人为争夺权力必然乱成一锅粥。之后共和国趁乱出击，这就是军队的计划。
 
 
-
-
-
-
-
 -----
 
 ####  acejoe  
 ##### 6560#       发表于 2017-9-25 15:53
 
 
-
-
 一个外来人员，枪指着自己反叛的象征。周围一群士兵，居然屁啊不放一个。
 
 后来这个外来人员枪指着自己的士官长，还一枪毙了士官长。尼玛一个士兵都没有举起枪对着这个外来人员……这帮人还是军人吗？这帮人能反叛成功有鬼了。
-
-
-
-
-
 
 
 -----
@@ -11376,14 +7510,7 @@ http://ww ...</blockquote>
 ##### 6561#       发表于 2017-9-25 16:03
 
 
-
-
 其实希尔达杀少佐时,我还真觉得周围的士兵会有反应了,结果只有吃惊的表情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11392,23 +7519,15 @@ http://ww ...</blockquote>
 ##### 6562#       发表于 2017-9-25 16:04
 
 
-
 <blockquote>aptx8285144 发表于 2017-9-25 16:03
 其实希尔达杀少佐时,我还真觉得周围的士兵会有反应了,结果只有吃惊的表情 ...</blockquote>
 所以说这些革命者先天的软弱性注定了他们不能夺得胜利，只有她才能改变英国
-
-
-
-
-
 
 
 -----
 
 ####  捣♂湿  
 ##### 6563#       发表于 2017-9-25 16:08
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201709/25/160847k4wkrwzwtik7j4jr.jpg" referrerpolicy="no-referrer">
@@ -11421,37 +7540,19 @@ http://ww ...</blockquote>
 2017-9-25 16:08 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 6564#       发表于 2017-9-25 16:19
 
 
-
-
 房间里的兵哥哥们看着就都是些小年轻啊，感觉看着就是没真正上过战场的那种。说到底，这个片子里的兵哥哥一个比一个好骗吧，多萝西色诱术基本没有不中招的
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 6565#       发表于 2017-9-25 16:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37305727&amp;ptid=1486439" target="_blank">acejoe 发表于 2017-09-25 15:53:44</a>
@@ -11462,25 +7563,13 @@ http://ww ...</blockquote>
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  kimone  
 ##### 6566#       发表于 2017-9-25 16:21
 
 
-
-
 所以黑蜥蜴星到底是个什么典故呢？<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11489,23 +7578,15 @@ http://ww ...</blockquote>
 ##### 6567#       发表于 2017-9-25 16:22
 
 
-
 <blockquote>问楫 发表于 2017-9-25 16:04
 所以说这些革命者先天的软弱性注定了他们不能夺得胜利，只有她才能改变英国 ...</blockquote>
 其实很诡异，这种类似冷战对峙下的双方军人，对于突发情况下最基本反应还是不可能缺的，少佐以下按照常理也该有“尉”级别的军官，穿同一制服的人中枪第一反应不是应该大怒举枪：你这家伙...电影小说这种情况我记得也有些的，这里描写其实并不合理
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 6568#       发表于 2017-9-25 16:27
-
-
 
 
 十年前的革命分裂成两个国家，王国这边虽然依然那鸟样，但以公爵的经验和手段，这波革命军根本没进他的法眼
@@ -11515,16 +7596,10 @@ http://ww ...</blockquote>
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  bamboom  
 ##### 6569#       发表于 2017-9-25 16:35
-
 
 
  本帖最后由 bamboom 于 2017-9-25 16:40 编辑 
@@ -11532,17 +7607,10 @@ http://ww ...</blockquote>
 还有空中调情没有放上去，剧情上两位公主同样被快死的男人（这两男的还都挺帅的……）寄托了希望，还有两位公主同样被射了一枪，一个被射的腿，一个射的手臂<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  废基  
 ##### 6570#       发表于 2017-9-25 16:38
-
-
 
 
 诺曼底公本来想借这波来篡位吧
@@ -11552,24 +7620,13 @@ http://ww ...</blockquote>
 只是没想到对面会直接简单粗暴炸天花
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 6571#       发表于 2017-9-25 17:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实我从第一话就觉得这是大河内对吉野的复仇
-
-
-
-
-
 
 
 -----
@@ -11578,16 +7635,9 @@ http://ww ...</blockquote>
 ##### 6572#       发表于 2017-9-25 17:18
 
 
-
-
 大公禁卫军很帅的呀
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -11596,15 +7646,9 @@ http://ww ...</blockquote>
 ##### 6573#       发表于 2017-9-25 17:24
 
 
-
 <blockquote>crazymarky 发表于 2017-9-25 14:31
 工厂回可以说是展露劳苦大众生活，如果死心塌地走工人革命路线的话可以用做铺垫，走登基改革路线也可以为 ...</blockquote>
 引出千世擅自行动的原因 
-
-
-
-
-
 
 
 -----
@@ -11613,15 +7657,9 @@ http://ww ...</blockquote>
 ##### 6574#       发表于 2017-9-25 17:27
 
 
-
 <blockquote>xtwx1716 发表于 2017-9-25 14:57
 我对决斗回比较宽容。因为描写主角方的日常生活也是必要的，而且还讲了日本方态度的转变，干货还是不少的 ...</blockquote>
 第七话就是橘正纪监督坚持的，搞个日常轻松一下 2333
-
-
-
-
-
 
 
 -----
@@ -11630,14 +7668,7 @@ http://ww ...</blockquote>
 ##### 6575#       发表于 2017-9-25 17:29
 
 
-
-
 日亚实时第八 看了下折扣减半 快缺货了
-
-
-
-
-
 
 
 -----
@@ -11646,23 +7677,15 @@ http://ww ...</blockquote>
 ##### 6576#         楼主| 发表于 2017-9-25 17:45
 
 
-
-
 大概就这张图有看点 
 
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fjvy8on97lj20wz0xcwju.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  acejoe  
 ##### 6577#       发表于 2017-9-25 17:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37306039&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-9-25 16:20</a>
@@ -11676,33 +7699,19 @@ http://ww ...</blockquote>
 就如一个外国来的大佬到别人国家军队里去，军人也尊敬他。如果这个外国大佬开枪干上级你看军人会不会去干他
 
 
-
-
-
-
-
 -----
 
 ####  alonebill  
 ##### 6578#       发表于 2017-9-25 17:50
 
 
-
-
 最后一幕的糖好棒啊，但是这纯粹挖坑的结局……妥妥的骗钱结局啊
-
-
-
-
-
 
 
 -----
 
 ####  killng  
 ##### 6579#       发表于 2017-9-25 17:52
-
-
 
 
 那个教堂明明建得一幅很适合落下来的样子，可惜，看看人家玻璃窗就很敬业的被砸碎了三次
@@ -11712,32 +7721,19 @@ http://ww ...</blockquote>
 这样对公主，再见面安洁咬也要咬死泽尔达了
 
 
-
-
-
-
-
 -----
 
 ####  alonebill  
 ##### 6580#       发表于 2017-9-25 17:54
 
 
-
-
 说实话，最后一幕其实我觉得公主一幅要死了的样子，其实萨尔达那一枪不打腿，打胸口，然后公主死了，安洁最后再次成为公主，这个结局也行吧
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 6581#       发表于 2017-9-25 17:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37307031&amp;ptid=1486439" target="_blank">acejoe 发表于 2017-09-25 17:47:44</a>
@@ -11748,25 +7744,13 @@ http://ww ...</blockquote>
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  未来起航  
 ##### 6582#       发表于 2017-9-25 17:57
 
 
-
-
 话说泥潭这是对大河内有什么特殊的眷恋么？prpr这么个高开低走在泥潭成了7月霸权有点费解...还是我低估了百合厨的数量？<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11775,23 +7759,16 @@ http://ww ...</blockquote>
 ##### 6583#       发表于 2017-9-25 18:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37307133&amp;ptid=1486439" target="_blank">未来起航 发表于 2017-9-25 17:57</a>
 
 话说泥潭这是对大河内有什么特殊的眷恋么？prpr这么个高开低走在泥潭成了7月霸权有点费解...还是我低估了百 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你这是小号吗，不要怕区区百合豚啊
 
 
-
-
-
-
-
 -----
 
 ####  猴区观光团  
 ##### 6584#       发表于 2017-9-25 18:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37307031&amp;ptid=1486439" target="_blank">acejoe 发表于 2017-9-25 17:47</a>
@@ -11806,16 +7783,10 @@ http://ww ...</blockquote>
 就好比你有个项目本身没市场没投资，结果有个甲方把你收了。你启动项目时甲方派来个人“指导工作”。名义上不是你们的上级，但他说的话你们敢不听？
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6585#       发表于 2017-9-25 18:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37307133&amp;ptid=1486439" target="_blank">未来起航 发表于 2017-9-25 17:57</a>
@@ -11826,16 +7797,10 @@ http://ww ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">而且……你是说只有2000战斗力的百合豚？
 
 
-
-
-
-
-
 -----
 
 ####  shadow001  
 ##### 6586#       发表于 2017-9-25 18:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37307133&amp;ptid=1486439" target="_blank">未来起航 发表于 2017-9-25 17:57</a>
@@ -11844,16 +7809,10 @@ http://ww ...</blockquote>
 泥潭有斯德哥爾摩症,邊說大河內喂屎,邊說相信大河內,結局後還幻想如果是大河內寫結局會多棒<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6587#       发表于 2017-9-25 18:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37307009&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-9-25 17:45</a>
@@ -11865,16 +7824,10 @@ http://ww ...</blockquote>
 王立病院是怎么回事，似乎看到白色房子了，又看到普通的友情？？？
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6588#       发表于 2017-9-25 18:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37307242&amp;ptid=1486439" target="_blank">shadow001 发表于 2017-9-25 18:09</a>
@@ -11883,16 +7836,10 @@ http://ww ...</blockquote>
 一有什么风吹草动全是大河内，怪不得监督都愿意跟大河内合作，锅反正都他背了
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6589#       发表于 2017-9-25 18:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37307225&amp;ptid=1486439" target="_blank">白房子 发表于 2017-9-25 18:07</a>
@@ -11904,25 +7851,13 @@ http://ww ...</blockquote>
 白河豚800战斗力，2000也太高了
 
 
-
-
-
-
-
 -----
 
 ####  大丈夫萌大乃  
 ##### 6590#       发表于 2017-9-25 18:43
 
 
-
-
 话说黑蜥蜴星人的发色还是没解释...C球说在班长那集已经证明不对了,难道就是自己染的?
-
-
-
-
-
 
 
 -----
@@ -11931,15 +7866,9 @@ http://ww ...</blockquote>
 ##### 6591#       发表于 2017-9-25 18:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37307101&amp;ptid=1486439" target="_blank">alonebill 发表于 2017-9-25 17:54</a>
 说实话，最后一幕其实我觉得公主一幅要死了的样子，其实萨尔达那一枪不打腿，打胸口，然后公主死了，安洁最 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11948,23 +7877,16 @@ http://ww ...</blockquote>
 ##### 6592#       发表于 2017-9-25 18:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37307101&amp;ptid=1486439" target="_blank">alonebill 发表于 2017-9-25 17:54</a>
 
 说实话，最后一幕其实我觉得公主一幅要死了的样子，其实萨尔达那一枪不打腿，打胸口，然后公主死了，安洁最 ...</blockquote>
 这个其实是很多人当时猜测的结局。虽然药味大，但是总感觉有点没新意
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6593#       发表于 2017-9-25 18:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37307082&amp;ptid=1486439" target="_blank">killng 发表于 2017-9-25 17:52</a>
@@ -11975,16 +7897,10 @@ http://ww ...</blockquote>
 所以说去卡萨布兰卡与其说是度假，不如说是去避风头？
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6594#       发表于 2017-9-25 18:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37307567&amp;ptid=1486439" target="_blank">大丈夫萌大乃 发表于 2017-9-25 18:43</a>
@@ -11995,25 +7911,13 @@ http://ww ...</blockquote>
 大概就是染色的了。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6595#       发表于 2017-9-25 19:09
 
 
-
-
 十年如一日，这得多伤头发啊？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12022,28 +7926,16 @@ http://ww ...</blockquote>
 ##### 6596#       发表于 2017-9-25 19:12
 
 
-
-
-
-
 【PrPr】完结撒花：单手相连 - 能登麻美子 【【AMV/公主准则】
 
 
 泥潭的手速是挺快的啊。。
 
 
-
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6597#       发表于 2017-9-25 19:15
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201709/25/191413c1qixkjixdyanqk4.png" referrerpolicy="no-referrer">
@@ -12056,16 +7948,7 @@ http://ww ...</blockquote>
 2017-9-25 19:14 上传
 
 
-
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无语了
-
-
-
-
-
 
 
 -----
@@ -12074,21 +7957,13 @@ http://ww ...</blockquote>
 ##### 6598#       发表于 2017-9-25 19:23
 
 
-
-
 公爵挺像育良书记
-
-
-
-
-
 
 
 -----
 
 ####  alonebill  
 ##### 6599#       发表于 2017-9-25 19:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37307657&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-25 18:53</a>
@@ -12100,16 +7975,10 @@ http://ww ...</blockquote>
 真心坑啊
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 6600#       发表于 2017-9-25 19:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37307712&amp;ptid=1486439" target="_blank">白房子 发表于 2017-9-25 18:59</a>
@@ -12120,16 +7989,10 @@ http://ww ...</blockquote>
 染色怎么都不合理啊，在间谍窝里被发现了肯定会被怀疑身份的吧。
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 6601#       发表于 2017-9-25 19:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37307101&amp;ptid=1486439" target="_blank">alonebill 发表于 2017-9-25 17:54</a>
@@ -12138,32 +8001,19 @@ http://ww ...</blockquote>
 既然都尘埃落定了，那我也不怕说了，这个结局是不可接受的。因为这完全是遂了军方的意，主角方的完全失败，简单来说就是喂屎。
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 6602#       发表于 2017-9-25 19:52
 
 
-
-
 为啥前面这么多人认为这结局意味着有二期？根本就是烂尾啊。除了公爵算是留了展开的伏笔，其他主要剧情线都是匆匆给了带有“任君想象”的开放性的交待而已。当然开放性结局不排斥二期，但只要给够钱什么结局不能出二期呢。
-
-
-
-
-
 
 
 -----
 
 ####  问楫  
 ##### 6603#       发表于 2017-9-25 20:00
-
 
 
 <img src="http://img.saraba1st.com/forum/201709/24/233214q0mmeqgnhmr4fhh6.png" referrerpolicy="no-referrer">
@@ -12189,17 +8039,10 @@ http://ww ...</blockquote>
 几分钟后，安洁舔着嘴唇走出了机舱……
 
 
-
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6604#       发表于 2017-9-25 20:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37308144&amp;ptid=1486439" target="_blank">midearth 发表于 2017-09-25 19:47:22</a>
@@ -12208,16 +8051,10 @@ http://ww ...</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6605#       发表于 2017-9-25 20:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37308319&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-25 20:01</a>
@@ -12229,16 +8066,10 @@ http://ww ...</blockquote>
 应该是军方里激进派的意，而且替换作战虽然是安洁提出的，但附带的结果肯定是要杀了公主。这点上军方的说法并无不妥，但安洁和公主，以及白鸽小队在搞事而已
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 6606#       发表于 2017-9-25 20:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37308319&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-25 20:01</a>
@@ -12250,16 +8081,10 @@ http://ww ...</blockquote>
 10话结尾军方的要求不就是这个么，这是我当时的想法，虽然现在说这个确实晚了。。
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 6607#       发表于 2017-9-25 20:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37308222&amp;ptid=1486439" target="_blank">midearth 发表于 2017-9-25 19:52</a>
@@ -12268,16 +8093,10 @@ http://ww ...</blockquote>
 因为这个结局单拿出来看糟糕所以才会有二期啊，不是为了二期我真不知道制作组要多心大才会给这么一个结局，就算最后一集真的收束完故事可能也会比这个要好，毕竟不需要分这些篇幅去挖那么多新坑。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6608#       发表于 2017-9-25 20:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37308432&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-09-25 20:12:21</a>
@@ -12286,16 +8105,10 @@ http://ww ...</blockquote>
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6609#       发表于 2017-9-25 20:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37308453&amp;ptid=1486439" target="_blank">midearth 发表于 2017-09-25 20:13:49</a>
@@ -12304,17 +8117,10 @@ http://ww ...</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6610#       发表于 2017-9-25 20:29
-
-
 
 
 个人感觉军方实质上还是不想搞大新闻的，case1大佐表达的意思也到了，维持目前微妙的平衡。
@@ -12338,16 +8144,10 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 另外我觉得大佐有点逗比，很希望他的戏份多一些啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 6611#       发表于 2017-9-25 20:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37308458&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-9-25 20:14</a>
@@ -12356,25 +8156,13 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 因为有手游，所以动画结局需要回到喝茶日常，这中途就能预留到的吧。结局除了公爵盯着帽子，并没有觉得挖了什么坑啊。
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 6612#       发表于 2017-9-25 20:32
 
 
-
-
 顺便那顶帽子到底说明了什么？公爵自己早知道公主是间谍的吧，对外拿个帽子也不能当什么证据，还不如那几张照片有说服力。
-
-
-
-
-
 
 
 -----
@@ -12383,14 +8171,7 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 ##### 6613#       发表于 2017-9-25 20:34
 
 
-
-
 其实我挺喜欢泽尔达这个角色的，比安洁表情还面瘫，比安洁思维更冷静，比安洁手法还干练<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12399,16 +8180,10 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 ##### 6614#       发表于 2017-9-25 20:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37308655&amp;ptid=1486439" target="_blank">midearth 发表于 2017-9-25 20:32</a>
 
 顺便那顶帽子到底说明了什么？公爵自己早知道公主是间谍的吧，对外拿个帽子也不能当什么证据，还不如那几张 ...</blockquote>
 公主没有被邀请参加这个典礼
-
-
-
-
-
 
 
 -----
@@ -12417,16 +8192,10 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 ##### 6615#       发表于 2017-9-25 20:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37308655&amp;ptid=1486439" target="_blank">midearth 发表于 2017-9-25 20:32</a>
 
 顺便那顶帽子到底说明了什么？公爵自己早知道公主是间谍的吧，对外拿个帽子也不能当什么证据，还不如那几张 ...</blockquote>
 公主没有被邀请参加这个典礼
-
-
-
-
-
 
 
 -----
@@ -12435,23 +8204,16 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 ##### 6616#       发表于 2017-9-25 20:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37308631&amp;ptid=1486439" target="_blank">midearth 发表于 2017-9-25 20:30</a>
 
 因为有手游，所以动画结局需要回到喝茶日常，这中途就能预留到的吧。结局除了公爵盯着帽子，并没有觉得挖 ...</blockquote>
 手游我感觉暂时理解做别的世界线比较好，泽尔达在动画这个结尾可不像是能大摇大摆出现在主角面前的样子
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 6617#       发表于 2017-9-25 20:44
-
 
 
  本帖最后由 堆雪若叶 于 2017-9-25 20:47 编辑 
@@ -12461,16 +8223,10 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 比如说公主那顿嘴炮里明确表达自己的政治路线啊，突然抛出泽尔达持有c球的设定啊，还有就是最后公爵收集到的信息啊，这些都算是能产生相当多矛盾的伏笔了。不过说到手游又要求动画回到喝茶日常来我感觉确实也还是怎么解释都行……个人是觉得如果只是一个十二集的宣传片只要吸引到人来就行，至于结局是否能衔接上手游剧情不会引起太大问题吧。
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 6618#       发表于 2017-9-25 20:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37308670&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-9-25 20:34</a>
@@ -12479,16 +8235,10 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 我倒是知道很多公主厨都喊着要手撕了泽尔达<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 6619#       发表于 2017-9-25 20:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37308785&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-9-25 20:44</a>
@@ -12497,25 +8247,13 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 泽尔达确实是，但公主的两个目标，当女王用一句“你才是我们的女王”作了回应，推墙变成了安洁心中的墙，这种强行点题也是我觉得起码目前不像是有二期的原因。
 
 
-
-
-
-
-
 -----
 
 ####  tonyshva  
 ##### 6620#       发表于 2017-9-25 20:54
 
 
-
-
 想不通 干嘛最后两话换人 人物性格剧情展开都low穿了 还不如全员爆炸型大河内呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12524,16 +8262,10 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 ##### 6621#       发表于 2017-9-25 20:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37308876&amp;ptid=1486439" target="_blank">tonyshva 发表于 2017-09-25 20:54:07</a>
 想不通 干嘛最后两话换人 人物性格剧情展开都low穿了 还不如全员爆炸型大河内呢 ...</blockquote>大河内是系构，自己默念三遍
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -12542,14 +8274,7 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 ##### 6622#       发表于 2017-9-25 20:58
 
 
-
-
 准备补番，字幕组有推荐么？
-
-
-
-
-
 
 
 -----
@@ -12558,16 +8283,10 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 ##### 6623#       发表于 2017-9-25 20:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37308859&amp;ptid=1486439" target="_blank">midearth 发表于 2017-09-25 20:52:26</a>
 泽尔达确实是，但公主的两个目标，当女王用一句“你才是我们的女王”作了回应，推墙变成了安洁心中的墙， ...</blockquote>这不叫强行点题，谁都知道公主要推的墙不是这个，你就当成这是阶段性成果吧
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -12576,16 +8295,10 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 ##### 6624#       发表于 2017-9-25 21:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37308859&amp;ptid=1486439" target="_blank">midearth 发表于 2017-9-25 20:52</a>
 
 泽尔达确实是，但公主的两个目标，当女王用一句“你才是我们的女王”作了回应，推墙变成了安洁心中的墙， ...</blockquote>
 重点是公主决心要和平上位整治国家废除王权这个具体路线啊，这个过程其实想想就觉得很麻烦头大了……如果不为后续做打算这个不需要说这么详细的吧，毕竟前面除了说上位推墙是真的什么都没提及过。
-
-
-
-
-
 
 
 -----
@@ -12594,14 +8307,7 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 ##### 6625#       发表于 2017-9-25 21:04
 
 
-
-
 这推墙直到倒数第二集都没见有什么实际行动，真两集平推才是喂屎吧，这结尾虽然仓促但不是最差解
-
-
-
-
-
 
 
 -----
@@ -12610,23 +8316,15 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 ##### 6626#       发表于 2017-9-25 21:09
 
 
-
-
 剧情都是以监督为首的staff们讨论出来的，大河内是系构对整体剧情做整合把关，真以为换个人整个剧情走向都变了？日本动画换个脚本写几集很稀奇吗？连贴吧都知道大河内被换下来是玩梗了泥潭居然还没完没了的纠结这个
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  killng  
 ##### 6627#       发表于 2017-9-25 21:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37307678&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-25 18:55</a>
@@ -12639,16 +8337,10 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 公主从王国消失一段时间是好事，就是有点欲盖弥彰
 
 
-
-
-
-
-
 -----
 
 ####  tonyshva  
 ##### 6628#       发表于 2017-9-25 21:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37308911&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-25 20:58</a>
@@ -12660,16 +8352,10 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 大河内两话开大一波全带走不挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">前面节奏和气氛这么好 换人直接崩肯定的事
 
 
-
-
-
-
-
 -----
 
 ####  尚风悦  
 ##### 6629#       发表于 2017-9-25 21:17
-
 
 
 <blockquote>xtwx1716 发表于 2017-9-25 21:09
@@ -12679,25 +8365,13 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 大河内亲自上的话这个结局估计还挺能懵人的
 
 
-
-
-
-
-
 -----
 
 ####  fkinway  
 ##### 6630#       发表于 2017-9-25 21:20
 
 
-
-
 就这样结束了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12706,15 +8380,7 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 ##### 6631#       发表于 2017-9-25 21:21
 
 
-
-
 难得最终话作画那么好，然而这什么鬼结局……
-
-
-
-
-
-
 
 
 -----
@@ -12723,16 +8389,10 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 ##### 6632#       发表于 2017-9-25 21:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37309146&amp;ptid=1486439" target="_blank">rp的游魂 发表于 2017-9-25 21:21</a>
 
 难得最终话作画那么好，然而这什么鬼结局……</blockquote>
 最终话作画哪里好了。。。虽然比起中间几话是要好些。
-
-
-
-
-
 
 
 -----
@@ -12741,16 +8401,9 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 ##### 6633#       发表于 2017-9-25 21:24
 
 
-
-
 最后这两集作为单元剧看着还算勉强不错，但是作为一条主线的收尾结局感觉很糟糕，不合格
 
 没干死开枪射公主腿的要大大大大扣分
-
-
-
-
-
 
 
 -----
@@ -12759,17 +8412,10 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 ##### 6634#       发表于 2017-9-25 21:25
 
 
-
-
 今天白天我TM还努力工作了一整天，没上论坛，也没进任何Q群，就是为了不被剧透
 
 
 结果这……比甲铁城最终话还不如啊，甲铁城好歹贡献了个low穿地心的美马踮脚鬼子进村让大家嘲讽一整年呢
-
-
-
-
-
 
 
 -----
@@ -12778,20 +8424,13 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 ##### 6635#       发表于 2017-9-25 21:27
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">这什么鬼结局，看了等于没看
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 6636#       发表于 2017-9-25 21:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37309107&amp;ptid=1486439" target="_blank">尚风悦 发表于 2017-09-25 21:17:09</a>
@@ -12802,17 +8441,10 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6637#       发表于 2017-9-25 21:32
-
-
 
 
 大河内未被使用的剧本部分渣翻，见谅。
@@ -12894,32 +8526,19 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 安洁「……（心情复杂）」
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 6638#       发表于 2017-9-25 21:39
 
 
-
-
 之前amazon的偷跑你们是哪里找的？给个地址收藏备用
-
-
-
-
-
 
 
 -----
 
 ####  mhss  
 ##### 6639#       发表于 2017-9-25 21:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37308913&amp;ptid=1486439" target="_blank">長門改 发表于 2017-9-25 20:58</a>
@@ -12931,17 +8550,10 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 画质清晰，注释简介
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6640#       发表于 2017-9-25 21:53
-
-
 
 
 安洁布置白房子可是够用心的……特意设定在地中海边的卡萨布兰卡面对着大海也是够浪漫的。
@@ -12950,16 +8562,10 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 内容大体和动画一样，看起来像第3话的剧本，多了个设定是公主手臂受伤，安洁的头发是染的，必要的时候用喷雾来褪色。
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 6641#       发表于 2017-9-25 21:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37309460&amp;ptid=1486439" target="_blank">白房子 发表于 2017-9-25 21:53</a>
@@ -12973,16 +8579,10 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 褪色好像没什么卵用啊。。。
 
 
-
-
-
-
-
 -----
 
 ####  间咒  
 ##### 6642#       发表于 2017-9-25 22:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37309460&amp;ptid=1486439" target="_blank">白房子 发表于 2017-9-25 21:53</a>
@@ -12998,27 +8598,15 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 越看越心痛安洁，辛辛苦苦准备的房子老婆不愿意去..<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6643#       发表于 2017-9-25 22:10
 
 
-
-
 这个未使用剧本跟目前的设定似乎也不太冲突？作为剧情的补充也不错吧
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -13027,22 +8615,13 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 ##### 6644#       发表于 2017-9-25 22:29
 
 
-
-
 所以这确实是位于天空清澈的小镇中一间看得见海的白房子
-
-
-
-
-
 
 
 -----
 
 ####  asda  
 ##### 6645#       发表于 2017-9-25 22:32
-
-
 
 
 完结了
@@ -13072,16 +8651,10 @@ L和7与大佐对事件的看法和角度都不一样，这也是间谍和军人
 希望她能突出重围
 
 
-
-
-
-
-
 -----
 
 ####  長門改  
 ##### 6646#       发表于 2017-9-25 22:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37309456&amp;ptid=1486439" target="_blank">mhss 发表于 2017-9-25 21:52</a>
@@ -13094,17 +8667,10 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 多谢<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 6647#       发表于 2017-9-25 22:43
-
-
 
 
 这个剧本里替换作战不是安洁提出来的，只是申请参加吗？
@@ -13116,16 +8682,10 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 莫名觉得这里面两人关系有点走钢丝的意思……不过反正不是正片了。
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 6648#       发表于 2017-9-25 22:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37309862&amp;ptid=1486439" target="_blank">asda 发表于 2017-9-25 22:32</a>
@@ -13136,25 +8696,13 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 这一话公主的镜头后面就接安洁扮公主的镜头，我在知道声优是谁的情况下愣是听了两遍才听出区别
 
 
-
-
-
-
-
 -----
 
 ####  lokok  
 ##### 6649#       发表于 2017-9-25 22:51
 
 
-
-
 总之看到发糖就满足了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13163,16 +8711,9 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 ##### 6650#       发表于 2017-9-25 22:55
 
 
-
-
 最后确实稳 都是正常的走向 倒有点心欠欠
 
 不过公主和安洁长的这么像 不在身世上做点文章么
-
-
-
-
-
 
 
 -----
@@ -13181,16 +8722,10 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 ##### 6651#       发表于 2017-9-25 23:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37305555&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-9-25 15:37</a>
 
 至少理想或者说目的应该有的吧，摧毁帝国建立共和国，努力实现经济平等之类的，但是比较缺对于具体步骤的 ...</blockquote>
 难。这些人你要说没有进步性那不至于，至少比农民起义的进步性要高。好歹是近代社会的中高级军官，对专制帝制反动性的感性模糊认识还是会有的，尤其他还是殖民地军队的军官。你要说他能说清楚共和主义的一二三四，请去看近现代的法兰西军官团，直到戴高乐将军才把这帮人给艹服了——应该说是美国人和苏联人才把这帮人给艹服了。
-
-
-
-
-
 
 
 -----
@@ -13199,17 +8734,10 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 ##### 6652#       发表于 2017-9-25 23:20
 
 
-
-
 最后能裱一下军部乱用谍报机关也算可以了。上次看类似情节还是D机关。
 
 
 从结局来看，真夏洛特在共和国这边还没暴露？还是说L知道了但顺水推舟没想管？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13218,16 +8746,10 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 ##### 6653#       发表于 2017-9-25 23:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37307242&amp;ptid=1486439" target="_blank">shadow001 发表于 2017-9-25 18:09</a>
 
 泥潭有斯德哥爾摩症,邊說大河內喂屎,邊說相信大河內,結局後還幻想如果是大河內寫結局會多棒 ...</blockquote>
 其实我发现最搞笑的是现在外面很多声音坚持，这两话让大河内写会更好，大河内以这样的方式证明了自己<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13236,23 +8758,16 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 ##### 6654#       发表于 2017-9-25 23:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37307133&amp;ptid=1486439" target="_blank">未来起航 发表于 2017-9-25 17:57</a>
 
 话说泥潭这是对大河内有什么特殊的眷恋么？prpr这么个高开低走在泥潭成了7月霸权有点费解...还是我低估了百 ...</blockquote>
 谈不上高开低走吧，只能说有些地方还不尽人意，最终两话也有些细节可以处理的更好，至于百合厨，虽然发糖就容易开心是确实是人性，但是至少个人觉得糖归糖，剧情归剧情
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6655#       发表于 2017-9-25 23:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37309981&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-9-25 22:43</a>
@@ -13268,16 +8783,10 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 感觉如果不是安洁迁就公主，态度再强硬点，这个失去王之力躺在医院的公主下一秒就会掏枪233<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6656#       发表于 2017-9-25 23:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37310152&amp;ptid=1486439" target="_blank">望月凝香 发表于 2017-9-25 23:04</a>
@@ -13286,16 +8795,10 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 毕竟像拿破仑这样的能颁布（法典）的皇帝（也是军官之位升上来）的是少数<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  冬夜女公爵  
 ##### 6657#       发表于 2017-9-26 00:04
-
 
 
  本帖最后由 冬夜女公爵 于 2017-9-26 00:08 编辑 
@@ -13308,25 +8811,13 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 何况安洁硬闯，黑皮立马通知公爵有人“冒充”公主闯入会场，显然和睦门卫一样知道之前公主已经进入，不然怎么会认为是冒充的。
 
 
-
-
-
-
-
 -----
 
 ####  ether_crow  
 ##### 6658#       发表于 2017-9-26 00:16
 
 
-
-
 最后两集我最不能理解的是王国怎么就被渗透成筛子了。。。
-
-
-
-
-
 
 
 -----
@@ -13335,23 +8826,16 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 ##### 6659#       发表于 2017-9-26 00:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37310832&amp;ptid=1486439" target="_blank">ether_crow 发表于 2017-9-26 00:16</a>
 
 最后两集我最不能理解的是王国怎么就被渗透成筛子了。。。</blockquote>
 王国的高官都想爬墙，真是为难公爵了，这家子不好管啊
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6660#       发表于 2017-9-26 00:36
-
 
 
  本帖最后由 神之叹息 于 2017-9-26 00:38 编辑 
@@ -13365,35 +8849,19 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 不论从民心、政治、经济和民生，王国都一副药丸的节奏，公主也抱着最后一任女王的觉悟。王国改制势在必行，只是公爵一等守旧势力不会让你那么轻松吧。
 
 
-
-
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 6661#       发表于 2017-9-26 00:42
 
 
-
-
 公主的困难也不止如此，她当真要改变这个国家打破墙壁，那就不止是王国了，甚至共和国都会成为她的敌人啊
-
-
-
-
-
 
 
 -----
 
 ####  skmdfong  
 ##### 6662#       发表于 2017-9-26 00:43
-
-
 
 
 终于抽空看完了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">作为结尾确实仓促了一点，空中告白那段本想着再吃点糖，突然就插入OP结束，有一种戛然而止的感觉，还没看够啊，BD买爆务必出二期
@@ -13403,16 +8871,10 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 大河内菊苣这次表现还是很不错的，希望二期继续执笔，但是考虑到近期他的工作都排满了，不知道要等到猴年马月了，一想到下周开始就没prpr看了，浑身难过都要出戒断反应了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6663#       发表于 2017-9-26 00:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37311011&amp;ptid=1486439" target="_blank">暗黑能乐 发表于 2017-09-26 00:42:20</a>
@@ -13421,25 +8883,14 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6664#       发表于 2017-9-26 00:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">我想问一下有没有人看到插入OP播放演职员表就当作动画结束关掉动画的？
 虽然生放的时候我也以为看到这里就结束了，但不会真的把这里当作结局吧……
-
-
-
-
-
 
 
 -----
@@ -13448,24 +8899,16 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 ##### 6665#       发表于 2017-9-26 01:01
 
 
-
-
 最后一集好像埋了好多伏笔：公爵那边发现了什么重要东西？共和国政府和军方关于这个间谍组织的内斗又是如何？最后两集冒出来的那个女管事间谍就那么跑了？为何日本女武士小姐姐看见她用C球逃跑会极为吃惊？
 
 
 好吧，楼里谁解答一下，这最后一集剧本掉线不说，演出上也特别干瘪，让我根本没法仔细看...
 
 
-
-
-
-
-
 -----
 
 ####  yjysrkl  
 ##### 6666#       发表于 2017-9-26 01:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37311115&amp;ptid=1486439" target="_blank">混沌大陆 发表于 2017-9-26 01:01</a>
@@ -13477,16 +8920,10 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 总结一下回答就是请自行想象
 
 
-
-
-
-
-
 -----
 
 ####  whn1103  
 ##### 6667#       发表于 2017-9-26 01:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37309862&amp;ptid=1486439" target="_blank">asda 发表于 2017-9-25 22:32</a>
@@ -13498,17 +8935,10 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 —— 来自 OnePlus A0001, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  yjysrkl  
 ##### 6668#       发表于 2017-9-26 01:46
-
-
 
 
 没有邀请的公主的会场出现了公主的帽子
@@ -13527,27 +8957,15 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 只是在挖坑制造一种隐藏的危机感罢了
 
 
-
-
-
-
-
 -----
 
 ####  Umichika  
 ##### 6669#       发表于 2017-9-26 01:49
 
 
-
-
 这个手游要怎么玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -13556,14 +8974,7 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 ##### 6670#       发表于 2017-9-26 02:40
 
 
-
-
 上周我就想好如果prpr结局不像样或者没结局开放到第二季的话就吹一波动物朋友。。。结果今天大新闻。。。唉
-
-
-
-
-
 
 
 -----
@@ -13572,10 +8983,7 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 ##### 6671#       发表于 2017-9-26 03:59
 
 
-
-
 这结局该说是虎头蛇尾，还是狗尾续貂呢
-
 
 
 感觉还不如干脆写成安洁救出公主，天花板掉落砸死女王，殖民地士兵推倒城墙，共和国起兵过墙，公爵带兵肃清。最后在白房子，养好伤的公主说一句我要回去结束这乱世、解放我的人民，然后带着白鸽队启程回阿尔比恩。五人启程背影，全剧终。
@@ -13583,16 +8991,10 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 —— 来自 OnePlus ONEPLUS A3000, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  alonebill  
 ##### 6672#       发表于 2017-9-26 05:04
-
 
 
  本帖最后由 alonebill 于 2017-9-26 05:08 编辑 
@@ -13605,16 +9007,10 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 摆明了，想看后续请氪金的结局而已
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6673#       发表于 2017-9-26 05:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37311115&amp;ptid=1486439" target="_blank">混沌大陆 发表于 2017-09-26 01:01:09</a>
@@ -13623,32 +9019,19 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 6674#       发表于 2017-9-26 05:47
 
 
-
-
 一天补完 好看...
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 6675#       发表于 2017-9-26 07:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37311742&amp;ptid=1486439" target="_blank">alonebill 发表于 2017-09-26 05:04:33</a>
@@ -13660,17 +9043,10 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  麻花疼  
 ##### 6676#       发表于 2017-9-26 07:38
-
-
 
 
 最后一集感觉不像是原来的结局，怕是被改过了。
@@ -13679,16 +9055,10 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 多罗西X安洁这对可以有啊！
 
 
-
-
-
-
-
 -----
 
 ####  whn1103  
 ##### 6677#       发表于 2017-9-26 08:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37311642&amp;ptid=1486439" target="_blank">snailium 发表于 2017-9-26 03:59</a>
@@ -13698,17 +9068,10 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 —— 来自 OnePlus A0001, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  mothership  
 ##### 6678#       发表于 2017-9-26 09:50
-
-
 
 
 共和国这边L回来了,对白鸽团的支持可以认为回到前几话的状态了.
@@ -13720,17 +9083,10 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 如果第二季再开,公主要回去等于跟公爵宣战,还能不能好好喝茶了啊!
 
 
-
-
-
-
-
 -----
 
 ####  hyjsttt  
 ##### 6679#       发表于 2017-9-26 09:50
-
-
 
 
 军官革命什么的， 不就是日本那一套“革命”“维新”么？
@@ -13738,16 +9094,10 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 还有共和国的“政府和军方的纷争”，只能说和银英一样，不管编剧怎么努力，给人的感觉双方都是日本
 
 
-
-
-
-
-
 -----
 
 ####  璇瑢子  
 ##### 6680#       发表于 2017-9-26 09:50
-
 
 
  本帖最后由 璇瑢子 于 2017-9-26 09:52 编辑 
@@ -13758,36 +9108,22 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 包括卡萨布兰卡本位面也是法国殖民地。。。。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6681#       发表于 2017-9-26 09:52
 
 
-
-
 现在终于感到完结后的落寞了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
 只能寄情于抽卡了<img src="https://static.saraba1st.com/image/smiley/carton2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 6682#       发表于 2017-9-26 10:15
-
 
 
  本帖最后由 白房子 于 2017-9-26 10:19 编辑 
@@ -13811,31 +9147,13 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 2017-9-26 10:14 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  夜色的蓬莱  
 ##### 6683#       发表于 2017-9-26 10:23
 
 
-
-
 公主打了一季白工，疯狂卖国，然后啥也没得到，政治地位没上升，政治财产没有，太过高调被提出政治联姻，里通外国的证据外泄了，把公爵彻底推向对立面，最后表现得就只会嘴炮，要当女王也没有计划，莫非想熬死前三继承人和女王？在革命军必定会被清算的时候还跑去度蜜月了，简直完全失败，而共和国啥好处也不给还吃定公主，最后权利斗争完了大家就当无事发生过，毫无表示让公主继续卖命，公主也不反对，她到底图个啥啊？
-
-
-
-
-
 
 
 -----
@@ -13844,16 +9162,10 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 ##### 6684#       发表于 2017-9-26 10:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37313137&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-26 09:52</a>
 
 现在终于感到完结后的落寞了。</blockquote>
 你个十连两六星的海豹<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13862,16 +9174,10 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 ##### 6685#       发表于 2017-9-26 11:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37313933&amp;ptid=1486439" target="_blank">hosilly 发表于 2017-9-26 10:58</a>
 
 你个十连两六星的海豹</blockquote>
 你们玩手游的有组织吗？
-
-
-
-
-
 
 
 -----
@@ -13880,16 +9186,10 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 ##### 6686#       发表于 2017-9-26 11:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37314397&amp;ptid=1486439" target="_blank">Umichika 发表于 2017-09-26 11:27:57</a>
 你们玩手游的有组织吗？</blockquote>我是自己一个人的…随便玩玩，prpr吧里边有个楼是手游楼
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -13898,14 +9198,7 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 ##### 6687#       发表于 2017-9-26 11:39
 
 
-
-
 按那个prpr吧手游贴里面说的做，但是我怎么领不了手游最终话送的十连？
-
-
-
-
-
 
 
 -----
@@ -13914,16 +9207,10 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 ##### 6688#       发表于 2017-9-26 11:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37313513&amp;ptid=1486439" target="_blank">夜色的蓬莱 发表于 2017-9-26 10:23</a>
 
 公主打了一季白工，疯狂卖国，然后啥也没得到，政治地位没上升，政治财产没有，太过高调被提出政治联姻，里 ...</blockquote>
 最后那情况能跑路就不错了，王国内部已成筛子，等着其他人互艹就差不多了<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13932,15 +9219,9 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 ##### 6689#       发表于 2017-9-26 11:44
 
 
-
 <blockquote>夜色的蓬莱 发表于 2017-9-26 10:23
 公主打了一季白工，疯狂卖国，然后啥也没得到，政治地位没上升，政治财产没有，太过高调被提出政治联姻，里 ...</blockquote>
 公主最后一集说了，她当女王是为了解决墙的问题。已经有做好上断头台成为最后一位女王的觉悟了
-
-
-
-
-
 
 
 -----
@@ -13949,16 +9230,10 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 ##### 6690#       发表于 2017-9-26 11:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37314397&amp;ptid=1486439" target="_blank">Umichika 发表于 2017-9-26 11:27</a>
 
 你们玩手游的有组织吗？</blockquote>
 没有组织，当单机玩玩。另外我还是觉得这游戏比较肝……
-
-
-
-
-
 
 
 -----
@@ -13967,16 +9242,9 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 ##### 6691#       发表于 2017-9-26 11:59
 
 
-
-
 日亚第二次断货了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -13985,21 +9253,13 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 ##### 6692#       发表于 2017-9-26 12:11
 
 
-
-
 公主不能用卖国来形容，她是如同马克思一样背叛了自己的阶层
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 6693#       发表于 2017-9-26 12:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37313113&amp;ptid=1486439" target="_blank">mothership 发表于 2017-09-26 09:50:19</a>
@@ -14011,16 +9271,10 @@ https://share.dmhy.org/topics/list?keyword=lolihouse+Princess+Principal
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  万千百十  
 ##### 6694#       发表于 2017-9-26 12:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37299117&amp;ptid=1486439" target="_blank">yjysrkl 发表于 2017-9-24 23:35</a>
@@ -14032,16 +9286,10 @@ My turtledove
 字幕组直接上“挚爱”，爱奇艺这出不知道啥意思，怕观众讨厌百合？
 
 
-
-
-
-
-
 -----
 
 ####  万千百十  
 ##### 6695#       发表于 2017-9-26 13:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37310412&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-9-25 23:30</a>
@@ -14050,17 +9298,10 @@ My turtledove
 这种话题性足够的成不了泥潭季度霸主才是怪了，难不成去凑B霸教室的热闹？我怕泥潭失格。
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 6696#       发表于 2017-9-26 13:09
-
-
 
 
 想了好几遍，越来越觉得如果有第二期，公主和公爵会有很多形式特殊的合作。
@@ -14068,16 +9309,10 @@ My turtledove
 前面说了，经此一役，共和国的先进性（这个是重点）和control的可信度不破产也差不多了，公主和白鸽队不找后路才奇怪；而同时做到了这么多的公主在公爵那儿分量就不是一个可以当普通大牌打出去的花瓶继承人。以公爵的枭雄，他不会意识不到帝国（以及共和国）就蹲在火山口上随时完蛋，再怎么殚精竭力也不过是裱糊匠。这个时候能力强、形象好、各方通吃的公主会一跃成为一个牌桌上的交易对象。
 
 
-
-
-
-
-
 -----
 
 ####  万千百十  
 ##### 6697#       发表于 2017-9-26 13:13
-
 
 
  本帖最后由 万千百十 于 2017-9-26 14:05 编辑 
@@ -14089,16 +9324,10 @@ My turtledove
 闻这公主的包包怕是要觉醒不好的属性<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6698#       发表于 2017-9-26 14:06
-
 
 
  本帖最后由 白房子 于 2017-9-26 14:08 编辑 
@@ -14113,16 +9342,10 @@ My turtledove
 现在亚马逊1卷两个版本6141pt 日增100
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6699#       发表于 2017-9-26 14:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37315554&amp;ptid=1486439" target="_blank">望月凝香 发表于 2017-9-26 13:09</a>
@@ -14133,16 +9356,10 @@ My turtledove
 我其实还有个担心,有二期的话中途会不会再来一次工厂和决斗这种意义不算太大的回合<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 6700#       发表于 2017-9-26 14:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37316283&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-9-26 14:23</a>
@@ -14151,16 +9368,10 @@ My turtledove
 如果片方真的想做正剧，工厂、决斗都是不错的铺垫。不过再来就尴尬了。
 
 
-
-
-
-
-
 -----
 
 ####  大厨麦当牛  
 ##### 6701#       发表于 2017-9-26 15:08
-
 
 
 <blockquote>万千百十 发表于 2017-9-26 12:49
@@ -14168,16 +9379,10 @@ My turtledove
 国家的新网络视频播放标准吧，其中一条是不得宣扬**。所以B站的捏造陷阱这种两女亲个嘴还不是舌吻都要自己加个阳光码。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6702#       发表于 2017-9-26 15:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37316098&amp;ptid=1486439" target="_blank">白房子 发表于 2017-09-26 14:06:23</a>
@@ -14190,17 +9395,10 @@ My turtledove
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  间咒  
 ##### 6703#       发表于 2017-9-26 15:51
-
-
 
 
 微博说原来大河内设定公主是王储的..
@@ -14210,16 +9408,10 @@ My turtledove
 不过这样的话也就没理由跟共和国合作了..
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6704#       发表于 2017-9-26 15:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37317128&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-26 15:40</a>
@@ -14243,23 +9435,10 @@ My turtledove
 2017-9-26 15:54 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  alonebill  
 ##### 6705#       发表于 2017-9-26 16:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37317243&amp;ptid=1486439" target="_blank">间咒 发表于 2017-9-26 15:51</a>
@@ -14272,16 +9451,10 @@ My turtledove
 至于怎么做就有看企划了
 
 
-
-
-
-
-
 -----
 
 ####  间咒  
 ##### 6706#       发表于 2017-9-26 16:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37317738&amp;ptid=1486439" target="_blank">alonebill 发表于 2017-9-26 16:33</a>
@@ -14292,25 +9465,13 @@ My turtledove
 不是，原本的对话是只要公主不在，公爵就是第一继承人。这个对立面就很明显了。
 
 
-
-
-
-
-
 -----
 
 ####  killng  
 ##### 6707#       发表于 2017-9-26 17:12
 
 
-
-
 什么叫“安洁和公主在浴室里坦诚相对互相确认身上痣的位置”呀<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14319,16 +9480,10 @@ My turtledove
 ##### 6708#       发表于 2017-9-26 17:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37318040&amp;ptid=1486439" target="_blank">间咒 发表于 2017-9-26 16:56</a>
 
 不是，原本的对话是只要公主不在，公爵就是第一继承人。这个对立面就很明显了。 ...</blockquote>
 这设定的话，那矛盾就尖锐了，原设定估计是可能是冲着高频率冲突写的。然后公主行动估计还要带假面之类的隐藏身份。但是这就跟老式的带上面具就完全认不出来的戏码一样了。感觉还是现在的设定好点
-
-
-
-
-
 
 
 -----
@@ -14337,16 +9492,10 @@ My turtledove
 ##### 6709#       发表于 2017-9-26 17:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37318217&amp;ptid=1486439" target="_blank">killng 发表于 2017-9-26 17:12</a>
 
 什么叫“安洁和公主在浴室里坦诚相对互相确认身上痣的位置”呀</blockquote>
 这设定，怕是有双胞胎嫌疑？而且以前互相见过裸果体
-
-
-
-
-
 
 
 -----
@@ -14355,21 +9504,13 @@ My turtledove
 ##### 6710#       发表于 2017-9-26 17:37
 
 
-
-
 确认身体上的痣是为了更好伪装的设定吧，这个版本在描写安洁怎么伪装上下了不少功夫。
-
-
-
-
-
 
 
 -----
 
 ####  killng  
 ##### 6711#       发表于 2017-9-26 18:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37318457&amp;ptid=1486439" target="_blank">白房子 发表于 2017-9-26 17:37</a>
@@ -14380,16 +9521,10 @@ My turtledove
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">等等，那句话的重点是那个行为本身不是行为的目的呀
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6712#       发表于 2017-9-26 18:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37318809&amp;ptid=1486439" target="_blank">killng 发表于 2017-9-26 18:16</a>
@@ -14404,25 +9539,13 @@ My turtledove
 （所以转移话题）
 
 
-
-
-
-
-
 -----
 
 ####  hac0101  
 ##### 6713#       发表于 2017-9-26 18:44
 
 
-
-
 刚刚游戏里的通知，第一卷送假安杰的UR？买买买<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14431,24 +9554,15 @@ My turtledove
 ##### 6714#       发表于 2017-9-26 18:48
 
 
-
-
 据说现在日本那边缺货缺的挺严重的，不知道是真卖的好还是单纯的出货太少
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  midearth  
 ##### 6715#       发表于 2017-9-26 18:53
-
-
 
 
 还是想再说下第一话的剧情。前面安洁跟研究员套近乎、说自己的“身世”，还可以认为是出于任务需要，为了获取他的信任，但最后杀研究员那里，就有点太用力了。一方面，这里无疑是想让观众产生安洁由于共同的经历对研究员产生了同情而不忍下手的印象（注意这里安洁说自己的身世是在谎言，在观众看来的意思就应该是真的），但观众后来知道，这“身世”是假的，而且她对自己真正的亲人也并没什么留恋；另一方面，虽然之后没有再出现安洁杀人的情节，但从她出任务的表现来看，需要下手的时候她是不会手软的。
@@ -14460,25 +9574,13 @@ My turtledove
 啰嗦这么多，只是觉得这片有很好的底子，如果能再细心雕琢下是有希望成为经典的。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6716#         楼主| 发表于 2017-9-26 19:30
 
 
-
-
 我认为圆盘铺货问题，的确是官方可能觉得没有特别大的希望，取而代之的是把重点放在手游上…毕竟现在圆盘销量一直不行，手游倒是一直氪的愉快
-
-
-
-
-
 
 
 -----
@@ -14487,23 +9589,16 @@ My turtledove
 ##### 6717#       发表于 2017-9-26 19:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37319468&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-9-26 19:30</a>
 
 我认为圆盘铺货问题，的确是官方可能觉得没有特别大的希望，取而代之的是把重点放在手游上…毕竟现在圆盘销 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">重点放手游的话，好歹全语音吧。。。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6718#       发表于 2017-9-26 19:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37319597&amp;ptid=1486439" target="_blank">暗黑能乐 发表于 2017-09-26 19:45:28</a>
@@ -14513,25 +9608,13 @@ My turtledove
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6719#       发表于 2017-9-26 19:50
 
 
-
-
 啊？原来你们手游还没语音的？制作组到底多没钱……
-
-
-
-
-
 
 
 -----
@@ -14540,23 +9623,16 @@ My turtledove
 ##### 6720#       发表于 2017-9-26 19:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37319644&amp;ptid=1486439" target="_blank">白房子 发表于 2017-09-26 19:50:12</a>
 啊？原来你们手游还没语音的？制作组到底多没钱……</blockquote>全都是嗯嗯啊啊的，最多几个单词
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6721#         楼主| 发表于 2017-9-26 19:57
-
 
 
  本帖最后由 xingenge 于 2017-9-26 19:58 编辑 
@@ -14566,17 +9642,10 @@ My turtledove
 <img src="https://static.saraba1st.com/image/smiley/carton2017/055.png" referrerpolicy="no-referrer">只能说这个企划真的没花太多力气…
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6722#         楼主| 发表于 2017-9-26 19:58
-
-
 
 
 看完了，比我看生放的时候感觉更好，毕竟知道了具体意思，我觉得这个结局还是可以的。我的遗憾倒是建立在与鲁鲁修第一季结尾的对比上。细想一下这是不对的，因为鲁鲁修是2个季度，所以做的更加详细，那个结局也足够刺激，但是pri由于篇幅有限，能达到这个结局已经不错。
@@ -14603,32 +9672,19 @@ My turtledove
 最后，期待续篇！
 
 
-
-
-
-
-
 -----
 
 ####  vazoe  
 ##### 6723#       发表于 2017-9-26 20:01
 
 
-
-
 印象里 初始和第一个casino池的角色，技能cut in立绘应该没糊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后来的嘛...
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 6724#       发表于 2017-9-26 20:15
-
 
 
  本帖最后由 白房子 于 2017-9-26 21:17 编辑 
@@ -14646,33 +9702,19 @@ My turtledove
 pripri：给我买BD，我们想做二期。
 
 
-
-
-
-
-
-
 -----
 
 ####  万千百十  
 ##### 6725#       发表于 2017-9-26 20:17
 
 
-
-
 明明是个小偷，十年皇室生活成了活生生的圣母，甚至有了上断头台的心理准备与气概，公主你才十几岁啊！<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  堆雪若叶  
 ##### 6726#       发表于 2017-9-26 20:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37319847&amp;ptid=1486439" target="_blank">白房子 发表于 2017-9-26 20:15</a>
@@ -14683,32 +9725,19 @@ pripri：给我买BD，我们想做二期。
 不过游戏人设不错也是真的，特别枪娘索菲这一对，加上管家如月干脆给这个小队单独做一季算了，天麻还有阿知贺篇呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 6727#       发表于 2017-9-26 20:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这也叫结局？
-
-
-
-
-
 
 
 -----
 
 ####  yjysrkl  
 ##### 6728#       发表于 2017-9-26 20:44
-
-
 
 
 看到未使用脚本有一部分内容是说
@@ -14721,16 +9750,10 @@ pripri：给我买BD，我们想做二期。
 而且确实在为推墙做准备<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6729#       发表于 2017-9-26 20:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37320119&amp;ptid=1486439" target="_blank">yjysrkl 发表于 2017-9-26 20:44</a>
@@ -14741,17 +9764,10 @@ pripri：给我买BD，我们想做二期。
 被列为特一级危险对象，有点酷。
 
 
-
-
-
-
-
 -----
 
 ####  大气水平运动  
 ##### 6730#       发表于 2017-9-26 21:03
-
-
 
 
 完结了可以补了，大河内居然这么稳
@@ -14759,16 +9775,10 @@ pripri：给我买BD，我们想做二期。
 请问哪个字幕组的比较好呢
 
 
-
-
-
-
-
 -----
 
 ####  keroro80722  
 ##### 6731#       发表于 2017-9-26 21:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37319951&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-9-26 20:26</a>
@@ -14779,16 +9789,10 @@ pripri：给我买BD，我们想做二期。
 期待第二季出場<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6732#       发表于 2017-9-26 21:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37320086&amp;ptid=1486439" target="_blank">古桥一浩 发表于 2017-09-26 20:41:34</a>
@@ -14799,16 +9803,10 @@ pripri：给我买BD，我们想做二期。
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6733#         楼主| 发表于 2017-9-26 21:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37320289&amp;ptid=1486439" target="_blank">大气水平运动 发表于 2017-9-26 21:03</a>
@@ -14819,16 +9817,10 @@ pripri：给我买BD，我们想做二期。
 茉语星梦&amp;风之圣殿字幕组
 
 
-
-
-
-
-
 -----
 
 ####  hosilly  
 ##### 6734#       发表于 2017-9-26 21:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37319847&amp;ptid=1486439" target="_blank">白房子 发表于 2017-9-26 20:15</a>
@@ -14837,16 +9829,10 @@ pripri：给我买BD，我们想做二期。
 游戏内已经有各个角色的cv了，索菲是本渡枫，斯蒂芬妮是山村响<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">游戏官网上的角色介绍应该也有列出cv
 
 
-
-
-
-
-
 -----
 
 ####  keroro80722  
 ##### 6735#       发表于 2017-9-26 21:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37319847&amp;ptid=1486439" target="_blank">白房子 发表于 2017-9-26 20:15</a>
@@ -14855,16 +9841,10 @@ pripri：给我买BD，我们想做二期。
 真的期待部分手遊角色登場<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  古桥一浩  
 ##### 6736#       发表于 2017-9-26 21:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37320328&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-26 21:08</a>
@@ -14884,16 +9864,10 @@ pripri：给我买BD，我们想做二期。
 节奏全乱了。。
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6737#       发表于 2017-9-26 21:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37320341&amp;ptid=1486439" target="_blank">hosilly 发表于 2017-9-26 21:10</a>
@@ -14902,26 +9876,15 @@ pripri：给我买BD，我们想做二期。
 <img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">这样说来好像是公布角色的时候就定好声优了，看到有个金毛池面是安济知佳还激动了下，居然忘了……
 
 
-
-
-
-
-
 -----
 
 ####  kimone  
 ##### 6738#       发表于 2017-9-26 21:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37319873&amp;ptid=1486439" target="_blank">万千百十 发表于 2017-9-26 20:17</a>
 明明是个小偷，十年皇室生活成了活生生的圣母，甚至有了上断头台的心理准备与气概，公主你才十几岁啊！[f:0 ...</blockquote>
 皇室教育当然好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14930,16 +9893,10 @@ pripri：给我买BD，我们想做二期。
 ##### 6739#       发表于 2017-9-26 21:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37320339&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-9-26 21:09</a>
 
 茉语星梦&amp;风之圣殿字幕组</blockquote>
 谢谢
-
-
-
-
-
 
 
 -----
@@ -14948,14 +9905,7 @@ pripri：给我买BD，我们想做二期。
 ##### 6740#       发表于 2017-9-26 21:45
 
 
-
-
 有下一季最多也就光荣革命，法国大革命那就是“热爱”革命没玩没了了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14964,14 +9914,7 @@ pripri：给我买BD，我们想做二期。
 ##### 6741#       发表于 2017-9-26 21:52
 
 
-
-
 我觉得动画和游戏还是分开的好，动画组尽力了，到头来这手游还真得靠动画才留得住人。现在二季就两条路，一是买碟，二是氪金。我觉得喜欢的可能更乐意买碟，但偏偏碟子断货了。之前已经试过一次了，这官方真是够可以的，有点爱买不买的感觉。另外看战吧晒碟，拿个透明塑料盒包装也可以的，感觉好像地摊货一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这逼格也低了点吧，安洁和公主真是捡来的
-
-
-
-
-
 
 
 -----
@@ -14980,19 +9923,10 @@ pripri：给我买BD，我们想做二期。
 ##### 6742#       发表于 2017-9-26 21:54
 
 
-
-
 老外看Princess Principal第12话开黑版
 
 
-
-
 追下来感觉不错
-
-
-
-
-
 
 
 -----
@@ -15001,14 +9935,7 @@ pripri：给我买BD，我们想做二期。
 ##### 6743#       发表于 2017-9-26 22:07
 
 
-
-
 公主忠犬两部曲之后，战吧连“弘楼梦”都发明出来了，真爱无敌<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15017,16 +9944,10 @@ pripri：给我买BD，我们想做二期。
 ##### 6744#       发表于 2017-9-26 22:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37320618&amp;ptid=1486439" target="_blank">万千百十 发表于 2017-9-26 21:45</a>
 
 有下一季最多也就光荣革命，法国大革命那就是“热爱”革命没玩没了了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真要法国大革命也没什么不好对不对……安洁或者多萝西套了波拿巴模版那画面不要太美
-
-
-
-
-
 
 
 -----
@@ -15035,14 +9956,7 @@ pripri：给我买BD，我们想做二期。
 ##### 6745#       发表于 2017-9-26 22:25
 
 
-
-
 最后一集的堀河公因为千世的“玩忽职守”的行动反而捡回一条命…prpr的本子如果是正常向的话感觉最有可能出的就是千世和堀河公了，接下来就是L和7,英格威和塞尔达的足控本吧。话说出身显赫能力强的主角被地位低很多的女主的人格魅力迷得神魂颠倒言听计从甘做裙下鬼，这是哪门子的酸臭偶像剧嘛…
-
-
-
-
-
 
 
 -----
@@ -15051,23 +9965,15 @@ pripri：给我买BD，我们想做二期。
 ##### 6746#       发表于 2017-9-26 23:01
 
 
-
 <blockquote>大厨麦当牛 发表于 2017-9-26 22:25
 最后一集的堀河公因为千世的“玩忽职守”的行动反而捡回一条命…prpr的本子如果是正常向的话感觉最有可能出 ...</blockquote>
 说着空气公主，其实是全民idol，连殖民地的士兵都不例外，没公爵压制掌控全国简直so easy
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 6747#       发表于 2017-9-26 23:12
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201709/26/230940i0n004408kvvynb0.jpg" referrerpolicy="no-referrer">
@@ -15080,16 +9986,7 @@ pripri：给我买BD，我们想做二期。
 2017-9-26 23:09 上传
 
 
-
-
-
-
 诺曼底公X公主？
-
-
-
-
-
 
 
 -----
@@ -15098,23 +9995,16 @@ pripri：给我买BD，我们想做二期。
 ##### 6748#       发表于 2017-9-26 23:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37321197&amp;ptid=1486439" target="_blank">万千百十 发表于 2017-9-26 23:01</a>
 
 说着空气公主，其实是全民idol，连殖民地的士兵都不例外，没公爵压制掌控全国简直so easy ...</blockquote>
 除了boss水平的角色就没有公主攻略不下来的，泽尔达都知道不能和公主话说多了赶快一枪崩掉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 6749#       发表于 2017-9-26 23:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37319712&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-9-26 19:58</a>
@@ -15127,16 +10017,10 @@ pripri：给我买BD，我们想做二期。
 共和国方面这次最糟糕的就是撕下了共和改良的画皮，揭露了其战争贩子的本质。其先进性是彻底破产了——最起码在能和洗衣女工打成一片的公主那儿是破产了。
 
 
-
-
-
-
-
 -----
 
 ####  whn1103  
 ##### 6750#       发表于 2017-9-26 23:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37321536&amp;ptid=1486439" target="_blank">望月凝香 发表于 2017-9-26 23:37</a>
@@ -15148,16 +10032,10 @@ pripri：给我买BD，我们想做二期。
 —— 来自 OnePlus A0001, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 6751#       发表于 2017-9-26 23:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37321536&amp;ptid=1486439" target="_blank">望月凝香 发表于 2017-9-26 23:37</a>
@@ -15170,17 +10048,10 @@ pripri：给我买BD，我们想做二期。
 另外其实要说对战争最狂热还应该是泽尔达，她的言行其实都没有直接表现出是为了共和国的利益，而更像只是让这次共和国能有机会进攻开战。她要是真这样没有政治立场只有个人喜好的话迟早会成为最棘手的敌人。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6752#       发表于 2017-9-26 23:57
-
-
 
 
 风水轮流转，刚才十连一张新卡没有，最高五星索菲，喷了
@@ -15188,16 +10059,10 @@ pripri：给我买BD，我们想做二期。
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6753#         楼主| 发表于 2017-9-27 00:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37321536&amp;ptid=1486439" target="_blank">望月凝香 发表于 2017-9-26 23:37</a>
@@ -15212,17 +10077,10 @@ pripri：给我买BD，我们想做二期。
 反正两个国家都很乱。公主其实也表现得很好了，不过之后能怎么发挥就不清楚了
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6754#       发表于 2017-9-27 00:32
-
-
 
 
 最近的nico评价怎么样了？
@@ -15241,16 +10099,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  
 #pripri
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 6755#       发表于 2017-9-27 00:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37321872&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-9-27 00:10</a>
@@ -15261,16 +10113,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  
 所以才更有空间长袖善舞、浑水摸鱼。
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 6756#       发表于 2017-9-27 00:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37321672&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-9-26 23:50</a>
@@ -15279,16 +10125,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  
 共和国你基本可以代入“93年”之后的法国，你要说不是战争贩子那哪怕是今天的第五共和国都恐怕会脸颊泛红。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6757#         楼主| 发表于 2017-9-27 00:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37322042&amp;ptid=1486439" target="_blank">白房子 发表于 2017-9-27 00:32</a>
@@ -15300,27 +10140,15 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  </bloc
 没注意看 都是97往上的吧
 
 
-
-
-
-
-
 -----
 
 ####  ml1642879  
 ##### 6758#       发表于 2017-9-27 00:47
 
 
-
-
 秋季番快没了才看了第一集，看见这专楼天天浮起来才去看的，不行了，性冷淡女主超棒
 
 —— 来自 Sony E5823, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0
-
-
-
-
-
 
 
 -----
@@ -15329,16 +10157,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  </bloc
 ##### 6759#       发表于 2017-9-27 01:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37322102&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-9-27 00:39</a>
 
 没注意看 都是97往上的吧</blockquote>
 11集96.5
-
-
-
-
-
 
 
 -----
@@ -15347,22 +10169,15 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  </bloc
 ##### 6760#       发表于 2017-9-27 06:40
 
 
-
 <blockquote>yjysrkl 发表于 2017-9-27 01:13
 11集96.5</blockquote>
 有图么？ 麻烦能发下么？ 星期天那天大家都去看最终话了 没人注意第11话的好评率了
-
-
-
-
-
 
 
 -----
 
 ####  第三视点  
 ##### 6761#       发表于 2017-9-27 07:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37322159&amp;ptid=1486439" target="_blank">ml1642879 发表于 2017-09-27 00:47:46</a>
@@ -15373,16 +10188,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  </bloc
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  万千百十  
 ##### 6762#       发表于 2017-9-27 08:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37322919&amp;ptid=1486439" target="_blank">第三视点 发表于 2017-9-27 07:05</a>
@@ -15394,25 +10203,13 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  </bloc
 哪里冷淡了，明明是个恋爱脑，公主想推倒她简直就是抬抬手的事<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 6763#       发表于 2017-9-27 11:32
 
 
-
-
 无论是帮助日本武士刺杀日本使节还是这次放纵革命军刺杀女王，大公都是计划事情顺利后顺便干掉公主。然而公主几次都安然无恙，所以大公最后一幕才说“还算有点收获”。也就他在12话这个时间点正式确认了公主背后有势力，公主不死可不是单纯的运气好。
-
-
-
-
-
 
 
 -----
@@ -15421,22 +10218,15 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  </bloc
 ##### 6764#       发表于 2017-9-27 12:54
 
 
-
 <img src="http://ww2.sinaimg.cn/large/0060lm7Tly1fjy12uxm9gj30hs0vkwi0.jpg" referrerpolicy="no-referrer">
 
 今天见到的第一张空中浮游安洁
-
-
-
-
-
 
 
 -----
 
 ####  moree  
 ##### 6765#       发表于 2017-9-27 16:25
-
 
 
  本帖最后由 moree 于 2017-9-27 16:28 编辑 
@@ -15453,18 +10243,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  </bloc
 个人比较喜欢有野心的脚本，虽然风险高
 
 
-
-
-
-
-
-
 -----
 
 ####  moree  
 ##### 6766#       发表于 2017-9-27 16:47
-
-
 
 
 第12话果然中规中矩地完结了，没什么惊喜，但也不差。
@@ -15474,16 +10256,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  </bloc
 如果有第二期请给公爵和泽尔达多一点戏份吧
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6767#       发表于 2017-9-27 18:10
-
 
 
  本帖最后由 白房子 于 2017-9-27 18:11 编辑 
@@ -15493,25 +10269,13 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  </bloc
 BD24位 比RE:C 4卷还低 DVD没上榜 暴死暴死
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6768#       发表于 2017-9-27 18:21
 
 
-
-
 会不会是断货影响了？官方不仅眼光短浅，而且很逗，不愧是棒呆
-
-
-
-
-
 
 
 -----
@@ -15520,21 +10284,13 @@ BD24位 比RE:C 4卷还低 DVD没上榜 暴死暴死
 ##### 6769#       发表于 2017-9-27 18:23
 
 
-
-
 这回估计真不能吊打伊泽塔了，谁也别笑话谁了~这波百合党的战斗力真是弱鸡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 6770#       发表于 2017-9-27 18:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37329608&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-9-27 18:21</a>
@@ -15545,16 +10301,10 @@ BD24位 比RE:C 4卷还低 DVD没上榜 暴死暴死
 我看了下RE:C卷均2000……这都没卖过2000，还是等周榜出来鞭尸吧。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6771#       发表于 2017-9-27 18:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37329659&amp;ptid=1486439" target="_blank">白房子 发表于 2017-9-27 18:26</a>
@@ -15565,25 +10315,13 @@ BD24位 比RE:C 4卷还低 DVD没上榜 暴死暴死
 就这销量，还想有二季。。除非金主是公安厨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  whn1103  
 ##### 6772#       发表于 2017-9-27 18:30
 
 
-
-
 兴许手游赚的不少呢，不要放弃希望
-
-
-
-
-
 
 
 -----
@@ -15592,16 +10330,10 @@ BD24位 比RE:C 4卷还低 DVD没上榜 暴死暴死
 ##### 6773#       发表于 2017-9-27 18:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37329624&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-9-27 18:23</a>
 
 这回估计真不能吊打伊泽塔了，谁也别笑话谁了~这波百合党的战斗力真是弱鸡 ...</blockquote>
 那得水多少pt才不能吊打伊泽塔
-
-
-
-
-
 
 
 -----
@@ -15610,23 +10342,16 @@ BD24位 比RE:C 4卷还低 DVD没上榜 暴死暴死
 ##### 6774#       发表于 2017-9-27 18:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37329705&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-27 18:31</a>
 
 那得水多少pt才不能吊打伊泽塔</blockquote>
 这是和REC4卷比。。不是首卷吧，REC首卷多少来着？。。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6775#       发表于 2017-9-27 18:36
-
 
 
  本帖最后由 xtwx1716 于 2017-9-27 18:41 编辑 
@@ -15639,16 +10364,10 @@ BD24位 比RE:C 4卷还低 DVD没上榜 暴死暴死
 另外现在A店是无货状态
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6776#       发表于 2017-9-27 18:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37329691&amp;ptid=1486439" target="_blank">whn1103 发表于 2017-9-27 18:30</a>
@@ -15657,16 +10376,10 @@ BD24位 比RE:C 4卷还低 DVD没上榜 暴死暴死
 手游太肝了，我玩了两天就卸了，氪金是不是会好一些？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  940045933  
 ##### 6777#       发表于 2017-9-27 18:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37329757&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-9-27 18:37</a>
@@ -15675,25 +10388,13 @@ BD24位 比RE:C 4卷还低 DVD没上榜 暴死暴死
 根据壁吧那边还是观察观察明天的情况再下定论
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 6778#       发表于 2017-9-27 18:49
 
 
-
-
 都说今天这日榜问题比较大？
-
-
-
-
-
 
 
 -----
@@ -15702,16 +10403,10 @@ BD24位 比RE:C 4卷还低 DVD没上榜 暴死暴死
 ##### 6779#       发表于 2017-9-27 19:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37319712&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-9-26 19:58</a>
 
 看完了，比我看生放的时候感觉更好，毕竟知道了具体意思，我觉得这个结局还是可以的。我的遗憾倒是建立在与 ...</blockquote>
 其实刚才我重新看一下，结果会场里面还真没看见帝国守卫的镜头，这里的安排实在诡异，只能理解官方失误没画了，这种各国大使（比如掘公）出席的地方竟然没有守卫，然后上面一群共和国伏兵<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，而少佐那群部下感觉确实是是很年轻可能没上过战场的，但是只要他们耳朵没问题应该也能知道事态的严重性，因此正常的训练应该还是有的（所以肯定也配枪了）
-
-
-
-
-
 
 
 -----
@@ -15720,14 +10415,7 @@ BD24位 比RE:C 4卷还低 DVD没上榜 暴死暴死
 ##### 6780#       发表于 2017-9-27 22:03
 
 
-
-
  第12话的考据总结，怎么一完结泥潭都没人讨论这个。。 都在等二期和做总评么？http://tieba.baidu.com/p/5344917155?share=9105&amp;fr=share&amp;see_lz=0&amp;sfc=copy&amp;client_type=2&amp;client_version=8.8.8.6&amp;st=1506520788&amp;unique=8A0F803638B787F1FAFED06BF8378208
-
-
-
-
-
 
 
 -----
@@ -15736,23 +10424,16 @@ BD24位 比RE:C 4卷还低 DVD没上榜 暴死暴死
 ##### 6781#       发表于 2017-9-27 22:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37330378&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-9-27 19:52</a>
 
 其实刚才我重新看一下，结果会场里面还真没看见帝国守卫的镜头，这里的安排实在诡异，只能理解官方失误没 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实都在地板下面！（
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6782#       发表于 2017-9-27 23:03
-
 
 
  本帖最后由 aptx8285144 于 2017-9-27 23:04 编辑 
@@ -15762,17 +10443,10 @@ BD24位 比RE:C 4卷还低 DVD没上榜 暴死暴死
 公爵大概是把人全藏起来埋伏了，给秘书下了指令后他自己大概觉得在场贵宾们即使会场没看见守卫也都是不会起疑心的智商<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，所以果断就溜了（
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6783#       发表于 2017-9-27 23:54
-
-
 
 
 niconico弹幕，受大家欢迎的比阿特。
@@ -15785,12 +10459,6 @@ niconico弹幕，受大家欢迎的比阿特。
 下载附件
 
 2017-9-27 23:54 上传
-
-
-
-
-
-
 
 
 谷口ごー@プリンセスプリンシパル制作参加‏ @g_artgow  
@@ -15807,10 +10475,6 @@ niconico弹幕，受大家欢迎的比阿特。
 2017-9-27 23:53 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201709/27/235316hqxzqzg0qjd47xrw.jpg" referrerpolicy="no-referrer">
 
 
@@ -15821,20 +10485,10 @@ niconico弹幕，受大家欢迎的比阿特。
 2017-9-27 23:53 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  killng  
 ##### 6784#       发表于 2017-9-28 00:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37328652&amp;ptid=1486439" target="_blank">moree 发表于 2017-9-27 16:47</a>
@@ -15851,17 +10505,10 @@ niconico弹幕，受大家欢迎的比阿特。
 简单来说就是，我是不会让她死的那么痛快的
 
 
-
-
-
-
-
 -----
 
 ####  Kirihara  
 ##### 6785#       发表于 2017-9-28 01:06
-
-
 
 
 这尼玛就很甜，安洁被警卫怀疑然后变声这段我循环看了好几次，就很帅，我永远喜欢安洁.jpg
@@ -15870,16 +10517,10 @@ niconico弹幕，受大家欢迎的比阿特。
 另外这是有第二季的吧！是吧！
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6786#       发表于 2017-9-28 09:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37331548&amp;ptid=1486439" target="_blank">彩虹之羽 发表于 2017-09-27 22:03:25</a>
@@ -15888,25 +10529,13 @@ niconico弹幕，受大家欢迎的比阿特。
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 6787#       发表于 2017-9-28 10:25
 
 
-
-
 这最后一集药力不够，都没得讨论了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15915,14 +10544,7 @@ niconico弹幕，受大家欢迎的比阿特。
 ##### 6788#       发表于 2017-9-28 10:39
 
 
-
-
 去壁吧看了下首日数据，这动画榜单可以用魔幻来形容，嗦不粗话<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15931,14 +10553,7 @@ niconico弹幕，受大家欢迎的比阿特。
 ##### 6789#       发表于 2017-9-28 10:42
 
 
-
-
 发售日榜单如果不是有问题，就是PRPR……销量……亡了
-
-
-
-
-
 
 
 -----
@@ -15947,14 +10562,7 @@ niconico弹幕，受大家欢迎的比阿特。
 ##### 6790#       发表于 2017-9-28 11:02
 
 
-
-
 刚看新闻上说prpr比rec还低。。
-
-
-
-
-
 
 
 -----
@@ -15963,13 +10571,7 @@ niconico弹幕，受大家欢迎的比阿特。
 ##### 6791#       发表于 2017-9-28 11:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">卖缺货就这种程度，这企划是多不受待见啊...
-
-
-
-
-
 
 
 -----
@@ -15978,14 +10580,7 @@ niconico弹幕，受大家欢迎的比阿特。
 ##### 6792#       发表于 2017-9-28 11:44
 
 
-
-
 昨天漏记啦，战姬也是奇怪的不行，日榜有问题
-
-
-
-
-
 
 
 -----
@@ -15994,14 +10589,7 @@ niconico弹幕，受大家欢迎的比阿特。
 ##### 6793#       发表于 2017-9-28 12:02
 
 
-
-
 是因为缺货+漏记吧
-
-
-
-
-
 
 
 -----
@@ -16010,16 +10598,10 @@ niconico弹幕，受大家欢迎的比阿特。
 ##### 6794#       发表于 2017-9-28 13:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37336250&amp;ptid=1486439" target="_blank">间咒 发表于 2017-9-28 11:06</a>
 
 卖缺货就这种程度，这企划是多不受待见啊...</blockquote>
 缺货有时候只是日亚失误吧,没什么的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16028,16 +10610,10 @@ niconico弹幕，受大家欢迎的比阿特。
 ##### 6795#       发表于 2017-9-28 16:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37337656&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-9-28 13:21</a>
 
 缺货有时候只是日亚失误吧,没什么的</blockquote>
 不止日亚吧，A店也缺了，看微博秋叶原都买不到现货...
-
-
-
-
-
 
 
 -----
@@ -16046,16 +10622,10 @@ niconico弹幕，受大家欢迎的比阿特。
 ##### 6796#       发表于 2017-9-28 16:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37339782&amp;ptid=1486439" target="_blank">间咒 发表于 2017-09-28 16:45:44</a>
 不止日亚吧，A店也缺了，看微博秋叶原都买不到现货...</blockquote>我的A店买的现在还没发货，这样看起来感觉影响还是挺大的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -16064,23 +10634,15 @@ niconico弹幕，受大家欢迎的比阿特。
 ##### 6797#       发表于 2017-9-28 17:03
 
 
-
-
 应该说是动画不受待见，钱都投游戏了，结果游戏还没动画人气好。要不是冲着动画，玩个啥游戏？
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  moree  
 ##### 6798#       发表于 2017-9-28 17:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37332863&amp;ptid=1486439" target="_blank">killng 发表于 2017-9-28 00:18</a>
@@ -16097,17 +10659,10 @@ niconico弹幕，受大家欢迎的比阿特。
 如果这片不是单元剧，班长的故事可能更长
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6799#       发表于 2017-9-28 17:45
-
-
 
 
 我们是不是搞错了一点，官方说的是，如果碟子大卖或者游戏氪金到位了，会积极考虑第二季动画的，所以…也就是说肯定会有二季吧，官方话里并没有说绝对啊？只是会考虑而已<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -16115,16 +10670,10 @@ niconico弹幕，受大家欢迎的比阿特。
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6800#       发表于 2017-9-28 17:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37340134&amp;ptid=1486439" target="_blank">moree 发表于 2017-09-28 17:08:56</a>
@@ -16135,16 +10684,10 @@ niconico弹幕，受大家欢迎的比阿特。
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 6801#       发表于 2017-9-28 17:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37340557&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-9-28 17:45</a>
@@ -16153,16 +10696,10 @@ niconico弹幕，受大家欢迎的比阿特。
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你要知道这和手游绑在一起，要不是这动画有谁来玩？卖的不好，那就一起死了，卖得好，那肯定会做续作给这个企划续命的
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6802#       发表于 2017-9-28 18:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37340557&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-9-28 17:45</a>
@@ -16171,16 +10708,10 @@ niconico弹幕，受大家欢迎的比阿特。
 是啊，谁也没保证说一定给你做续作啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6803#       发表于 2017-9-28 18:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37340557&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-9-28 17:45</a>
@@ -16191,16 +10722,10 @@ niconico弹幕，受大家欢迎的比阿特。
 推上甚至开始区分1期2期的称呼了wwwww
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6804#       发表于 2017-9-28 18:05
-
 
 
  本帖最后由 白房子 于 2017-9-28 18:07 编辑 
@@ -16219,25 +10744,13 @@ NG 14位
 DVD未上榜
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 6805#       发表于 2017-9-28 18:14
 
 
-
-
 噗 动画卖的好不是你们说的么，怎么现在又奶死了
-
-
-
-
-
 
 
 -----
@@ -16246,23 +10759,16 @@ DVD未上榜
 ##### 6806#       发表于 2017-9-28 18:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37340837&amp;ptid=1486439" target="_blank">midearth 发表于 2017-09-28 18:14:51</a>
 噗 动画卖的好不是你们说的么，怎么现在又奶死了</blockquote>因为昨天日榜有问题
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6807#         楼主| 发表于 2017-9-28 18:57
-
 
 
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fjzh4i5s1kj20g40580ze.jpg" referrerpolicy="no-referrer">
@@ -16275,16 +10781,10 @@ DVD未上榜
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fjzh5gs9bzj20go0kuqui.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6808#       发表于 2017-9-28 19:10
-
 
 
 <img src="http://ww2.sinaimg.cn/large/0060lm7Tly1fjzhiwvaokj30hs0vkdjl.jpg" referrerpolicy="no-referrer">
@@ -16293,17 +10793,10 @@ DVD未上榜
 这俩狗女女果然度假去了
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 6809#       发表于 2017-9-28 19:35
-
-
 
 
 那个刀疤女双手是义肢吗？
@@ -16312,16 +10805,10 @@ DVD未上榜
 史蒂芬妮真的看着有股会黑化的感觉。。。
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 6810#       发表于 2017-9-28 19:56
-
 
 
 <blockquote>暗黑能乐 发表于 2017-9-28 19:35
@@ -16332,16 +10819,10 @@ DVD未上榜
 枪娘确实是仇视贵族阶级的，虽然主线已经被公主攻略一次甚至帮公主挡了一枪。不过现在更新的枪娘本剧情似乎透露枪娘小队有着监视白鸽队的任务，甚至枪娘自己还接有监视cp索菲的任务......总之这队目前也很有爆点。
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 6811#       发表于 2017-9-28 20:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37341643&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-9-28 19:56</a>
@@ -16353,32 +10834,19 @@ DVD未上榜
 主要是索菲和史蒂芬妮的这对“正相反”，让人觉得兴趣很深，如果有第二季完全可以让这群人出场，然后嘛，虐一虐之类的（
 
 
-
-
-
-
-
 -----
 
 ####  jia3yu3sheng1  
 ##### 6812#       发表于 2017-9-28 21:11
 
 
-
-
 这个楼感觉要靠手游来续命了
-
-
-
-
-
 
 
 -----
 
 ####  堆雪若叶  
 ##### 6813#       发表于 2017-9-28 21:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37342055&amp;ptid=1486439" target="_blank">暗黑能乐 发表于 2017-9-28 20:49</a>
@@ -16390,17 +10858,10 @@ DVD未上榜
 我感觉枪娘索菲这一对确实套了蛮多安洁公主的设定的，包括这个正相反，以及枪娘被安排如果索菲越界则将其处理掉，这些设定确实会让枪娘成为一个悲剧人物的感觉……
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 6814#       发表于 2017-9-28 21:32
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201709/28/213148stf2wcnyncf134fc.jpg" referrerpolicy="no-referrer">
@@ -16413,25 +10874,13 @@ DVD未上榜
 2017-9-28 21:31 上传
 
 
-
-
-
-
 公主这真是职业笑容……
-
-
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 6815#       发表于 2017-9-28 21:55
-
 
 
  本帖最后由 xtwx1716 于 2017-9-28 21:56 编辑 
@@ -16445,17 +10894,10 @@ DVD未上榜
 另外，打死你这欧洲人<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6816#       发表于 2017-9-28 22:16
-
-
 
 
 个人觉得大河内的剧本应该是有个一季完结的大纲的，作为业界资深脚本家，我不信连个故事大纲都写不好。而且大河内还算是写小说出身的，还兼职过报纸专栏？所以单元剧的高密度信息量对他来说可谓轻车熟路。虽然他走主线老被人吐槽暴走什么的，我是认为，如果没有其他人的干预，他也是可以做好的
@@ -16473,17 +10915,10 @@ DVD未上榜
 一路追过来，也会发现制作组这次的舍取是值得的，在配合手游和动画制作上取得不错的平衡。观众老爷也有不少掏腰包的，我觉得从刚开播的访谈也可以看出，这片之所以请来大河内不就是要他把故事写得有娱乐性，这点是请对人了。
 
 
-
-
-
-
-
 -----
 
 ####  第三视点  
 ##### 6817#       发表于 2017-9-28 22:19
-
-
 
 
 这手游是真的肝<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
@@ -16491,16 +10926,10 @@ DVD未上榜
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6818#       发表于 2017-9-28 22:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37342778&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-09-28 22:16:44</a>
@@ -16511,17 +10940,10 @@ DVD未上榜
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6819#       发表于 2017-9-28 22:26
-
-
 
 
 我觉得最后两集的剧情还是可以接受的，毕竟你已经占了两集日常回，四到五集的个人回，剩下的强行讲推主线也太勉强了。
@@ -16530,16 +10952,10 @@ DVD未上榜
 不过按照工期，可能也碰上大河内同时担当了的其他作品的影响吧，所以没法亲自写到最后两集了，只能找人代笔，反正大纲一开始就应该通过大家的讨论定下来了，具体剧情，细节上的填充，找个稳点的脚本来就可以了，当然模仿大河内的风格另说。说真的，其实第十一集不是看到最后真没太感觉，还以为大河内吃了药稳了呢。但整体上来看，确实稳了，另一个角度看的话
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6820#       发表于 2017-9-28 22:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37342825&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-28 22:22</a>
@@ -16548,16 +10964,10 @@ DVD未上榜
 不不，娱乐性是这片的卖点，黑田太稳了。我觉得他适合写硬派风格的。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6821#       发表于 2017-9-28 22:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37342889&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-09-28 22:28:57</a>
@@ -16566,32 +10976,19 @@ DVD未上榜
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  tokinonamida  
 ##### 6822#       发表于 2017-9-28 22:39
 
 
-
-
 黑田最近写的美少女战斗片"装神少女小缠"和"战斗女子高校"好看不?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 6823#       发表于 2017-9-28 22:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37342980&amp;ptid=1486439" target="_blank">tokinonamida 发表于 2017-09-28 22:39:07</a>
@@ -16601,16 +10998,10 @@ DVD未上榜
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  tokinonamida  
 ##### 6824#       发表于 2017-9-28 22:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37343002&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-28 22:42</a>
@@ -16623,16 +11014,10 @@ DVD未上榜
 你再去看看橘正紀那篇访谈,通篇在告诉你任务是人物的陪衬,主线提都不提.你觉得这种风格的监督让黑田他有本事自己写个id0出来?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kiyorukiyoru  
 ##### 6825#       发表于 2017-9-28 22:47
-
 
 
 <blockquote>tokinonamida 发表于 2017-9-28 22:39
@@ -16640,16 +11025,10 @@ DVD未上榜
 小缠我豆瓣打了五分，战女高我打了一分，这两不是在一个水平线上的玩意儿……顺便prpr我也打了五分就是了……
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6826#       发表于 2017-9-28 22:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37341494&amp;ptid=1486439" target="_blank">暗黑能乐 发表于 2017-9-28 19:35</a>
@@ -16665,16 +11044,10 @@ DVD未上榜
 仿佛甲壳虫成精般的背景路人……不是很理解贵族们的审美啊（望天）。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6827#       发表于 2017-9-28 22:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37343053&amp;ptid=1486439" target="_blank">tokinonamida 发表于 2017-09-28 22:47:08</a>
@@ -16685,16 +11058,10 @@ DVD未上榜
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 6828#       发表于 2017-9-28 23:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37342778&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-9-28 22:16</a>
@@ -16707,13 +11074,9 @@ DVD未上榜
 但是如果考虑这个上位并不是矛盾本身而是解决矛盾的方法之一那一季完结就成为可能了，包括这楼一些前面我关于这季完结为考虑前提的一些打脸想法……虽然是一些很不成型的思路但是或许也能引出别的可行性。只是现在公主在结局已经明确了自己的政治路线后才使得这个矛盾确定了一种解决方式，而这个导向与喝茶展开无疑是不相容的，所以要是有后续的话这片要保持水准确实只能以更紧张的气氛进展了。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -16723,19 +11086,13 @@ DVD未上榜
 | aptx8285144| + 1|正是如此,如果有后续,日常的气氛的意义将大.|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  killng  
 ##### 6829#       发表于 2017-9-28 23:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37340572&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-9-28 17:46</a>
@@ -16751,21 +11108,14 @@ DVD未上榜
 班长还活着也能成为第二季的伏笔（坑）吧
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6830#       发表于 2017-9-28 23:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37343095&amp;ptid=1486439" target="_blank">白房子 发表于 2017-09-28 22:51:45</a>
 说起义肢我想起这个画面……
-
 
 
 仿佛甲壳虫成精般的背景路人……不是很理解贵族们的审美啊（望天）。
@@ -16775,32 +11125,19 @@ DVD未上榜
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6831#       发表于 2017-9-28 23:28
 
 
-
-
 实际上从工厂回合和千世写信回合开始,一期解决矛盾的可能性就开始降低了,而一期的后期要想解决矛盾就只能加快节奏,然而节奏过快的危险性不言而俞<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  hac0101  
 ##### 6832#       发表于 2017-9-28 23:32
-
 
 
  本帖最后由 hac0101 于 2017-9-28 23:59 编辑 
@@ -16810,16 +11147,10 @@ DVD未上榜
 两个活动重叠在一起……3分钟回一点体力……真是肝<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6833#       发表于 2017-9-28 23:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37343329&amp;ptid=1486439" target="_blank">killng 发表于 2017-9-28 23:17</a>
@@ -16833,18 +11164,10 @@ DVD未上榜
 从那一刻我有一个很病的想法，班长染上毒瘾的原因除了被算计之外，更是想从幻觉与梦境中获取与多萝西相处的点点滴滴……
 
 
-
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6834#       发表于 2017-9-29 00:07
-
-
 
 
 名台词「歯止めがきかなくなる」
@@ -16859,13 +11182,7 @@ DVD未上榜
 2017-9-29 00:02 上传
 
 
-
-
-
-
-
 歯止めが効かなくなった二人 | まぐろシャイニング [pixiv] [https://www.pixiv.net/member_ill ... ;illust_id=65176468](https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=65176468)
-
 
 
 <img src="https://img.saraba1st.com/forum/201709/29/000311qend9lrz8j48j68d.jpg" referrerpolicy="no-referrer">
@@ -16878,20 +11195,9 @@ DVD未上榜
 2017-9-29 00:03 上传
 
 
-
-
-
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +2
@@ -16902,12 +11208,7 @@ DVD未上榜
 | 万千百十| + 1|喷了|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -16916,16 +11217,10 @@ DVD未上榜
 ##### 6835#       发表于 2017-9-29 00:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37343095&amp;ptid=1486439" target="_blank">白房子 发表于 2017-9-28 22:51</a>
 
 说起义肢我想起这个画面……</blockquote>
 噗，看起来防御力就很高
-
-
-
-
-
 
 
 -----
@@ -16934,12 +11229,9 @@ DVD未上榜
 ##### 6836#       发表于 2017-9-29 01:04
 
 
-
  本帖最后由 Norn 于 2017-10-3 22:40 编辑 
 
 人肉翻了下监督那篇访谈,水平有限随便看看 _(:з」∠)_
-
-
 
 
 任务跟角色就如镜子的两面催生出了故事
@@ -17005,13 +11297,9 @@ DVD未上榜
 橘:个人来说如果有机会制作续作是再好不过了.现在角色们基本都很好地培养出来了,以后若还能用什么形式让她们与大家见面就最好了.
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +2
@@ -17022,12 +11310,7 @@ DVD未上榜
 | xingenge| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -17036,15 +11319,9 @@ DVD未上榜
 ##### 6837#       发表于 2017-9-29 01:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37343450&amp;ptid=1486439" target="_blank">hac0101 发表于 2017-09-28 23:32:49</a></blockquote>我TM瞎了 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你这是要干什么…
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -17053,23 +11330,16 @@ DVD未上榜
 ##### 6838#       发表于 2017-9-29 09:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37343746&amp;ptid=1486439" target="_blank">白房子 发表于 2017-9-29 00:07</a>
 
 名台词「歯止めがきかなくなる」</blockquote>
 这是什么梗啊……没看懂求解释
 
 
-
-
-
-
-
 -----
 
 ####  hac0101  
 ##### 6839#       发表于 2017-9-29 09:38
-
 
 
  本帖最后由 hac0101 于 2017-9-29 09:44 编辑 
@@ -17087,16 +11357,10 @@ DVD未上榜
 新活动贝阿特的技能居然是种花，真好玩，而且十分好用啊<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  whn1103  
 ##### 6840#       发表于 2017-9-29 10:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37345758&amp;ptid=1486439" target="_blank">bamboom 发表于 2017-9-29 09:29</a>
@@ -17106,16 +11370,10 @@ DVD未上榜
 —— 来自 OnePlus A0001, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6841#       发表于 2017-9-29 10:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37345758&amp;ptid=1486439" target="_blank">bamboom 发表于 2017-9-29 09:29</a>
@@ -17131,16 +11389,10 @@ DVD未上榜
 所以，所有安洁和公主亲昵的情景都适合打上这个tag[二哈脸]。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6842#       发表于 2017-9-29 11:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37346217&amp;ptid=1486439" target="_blank">whn1103 发表于 2017-09-29 10:10:23</a>
@@ -17151,16 +11403,10 @@ DVD未上榜
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6843#       发表于 2017-9-29 11:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37344117&amp;ptid=1486439" target="_blank">Norn 发表于 2017-9-29 01:04</a>
@@ -17187,27 +11433,15 @@ DVD未上榜
 喷了，本作的预算居然还算宽松的……
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6844#       发表于 2017-9-29 11:17
 
 
-
-
 手游主线剧情更到了之前说好的卡萨布兰卡白房子回，不过还是安洁中途就被公主拒绝。（安洁你可是第三次被拒绝私奔了！到底行不行啊你！）
 
 但有一点信息是手游提到了王国间谍要置公主于死地，也提到动画里安洁第一次对公主说私奔的情景，可推测手游时间线在动画之后。
-
-
-
-
-
 
 
 -----
@@ -17216,17 +11450,10 @@ DVD未上榜
 ##### 6845#       发表于 2017-9-29 11:21
 
 
-
-
 这番我一路追下来都是当007系列看的，有几集精彩的甚至都让我产生了谍影重重的感觉，但最后两集还是拍醒了我，这果然还是动画片啊！主角真爱无敌，配角智商下线，嘴炮拯救世界，就是要那个中二feel<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
 间谍一个人跑出来说干掉了公主大家纷纷表示那敢情好，迫不及待的去赶下一个场子了，喂，那可是公主被干掉了啊，你们不去核实下，处理现场吗？女王出席，政要在场，其它各国大使都参加的重要活动，那个卵蛋的安保是什么鬼？场外两个小兵守桥，一个智商40被骗过，一个智商50差点被骗过；场内……革命军都在你们隔壁包场打麻将了啊喂！你看看你们革命军，过得凄惨我同情，想要革命我理解，但能不能在行动前填饱肚子啊，古代被围决死突击前都知道宰杀马匹分发最后的粮食，你们两个黑面包都发不起吗？给公主端曲奇自己肚子叫出声是什么play啊？少校同志，你要干的是政变，是要掉脑袋的，同志已经聚集，炸弹已经埋下，革命的风暴已经吹起，啊？中嘴炮了？对面的公主你是尤里伪装的吧？control方，你们是共和国吧，军部独走是什么鬼？你们国内比王国先发证政变了？呃，不得不说这确实很现实很历史，你们国名里肯定有个假潘的单词吧？安洁和公主你们双飞秀恩爱是很好啦，但真不顾虑下这么多目击者的问题吗，嘛，虽然大公肯定在拷打拿完口供后会给你们擦屁股啦……这完全让人止不住吐槽的欲望啊，也就塞尔达一人在苦苦挽救间谍片的名誉，及时一枪崩了傻逼少校顺带发动降智+定身AOE，周围一圈智力40的革命军都没过得了判定<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17235,16 +11462,10 @@ DVD未上榜
 ##### 6846#       发表于 2017-9-29 11:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37346960&amp;ptid=1486439" target="_blank">白房子 发表于 2017-09-29 11:07:11</a>
 喷了，本作的预算居然还算宽松的……</blockquote>嗯…做片子预算给足了所以在其他地方就很穷酸吗…的确是熟悉的3hz
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -17253,16 +11474,9 @@ DVD未上榜
 ##### 6847#       发表于 2017-9-29 11:34
 
 
-
-
 宽松的意思也有可能是做一季有余，二季不足吧。而且作为监督，要保持整体的平稳，宁可掐紧点也不会一下子浪太多，做完了还算有盈余？
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -17271,14 +11485,7 @@ DVD未上榜
 ##### 6848#       发表于 2017-9-29 11:37
 
 
-
-
 动画预算是否宽裕不说，反正就这穷酸的BD盒子就该被黑，买了这么多年BD第一次见这么简陋的特装版，对比同样是一开始没出货不足的友奈，高下立判
-
-
-
-
-
 
 
 -----
@@ -17287,14 +11494,7 @@ DVD未上榜
 ##### 6849#       发表于 2017-9-29 12:53
 
 
-
-
 我20号下单的bd现在都不发货，是任你购的问题还是animate的问题？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17303,17 +11503,10 @@ DVD未上榜
 ##### 6850#         楼主| 发表于 2017-9-29 15:28
 
 
-
-
 movic pripri 多萝西、比阿特、千世 抱枕
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fk0grw6jdej20go0go436.jpg" referrerpolicy="no-referrer">
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fk0grw86obj20go0gon0y.jpg" referrerpolicy="no-referrer">
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fk0grwc2g1j20go0godk1.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17322,16 +11515,9 @@ movic pripri 多萝西、比阿特、千世 抱枕
 ##### 6851#       发表于 2017-9-29 15:52
 
 
-
-
 这手游让我找回了当初肝舰c的感觉，这活动刷不完呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -17340,14 +11526,7 @@ movic pripri 多萝西、比阿特、千世 抱枕
 ##### 6852#       发表于 2017-9-29 16:06
 
 
-
-
 终于补完了！安洁真可爱！
-
-
-
-
-
 
 
 -----
@@ -17356,23 +11535,16 @@ movic pripri 多萝西、比阿特、千世 抱枕
 ##### 6853#       发表于 2017-9-29 17:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37348042&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-09-29 12:53:04</a>
 我20号下单的bd现在都不发货，是任你购的问题还是animate的问题？</blockquote>总比任意门的好啊，我的货一个多月没见过影子了
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 6854#       发表于 2017-9-29 17:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37349833&amp;ptid=1486439" target="_blank">第三视点 发表于 2017-9-29 15:52</a>
@@ -17384,16 +11556,10 @@ movic pripri 多萝西、比阿特、千世 抱枕
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">手机太垃圾玩两局就发烫的我每天就玩个一两把，十分休闲，就是突破遥遥无期。。。
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6855#       发表于 2017-9-29 18:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37347337&amp;ptid=1486439" target="_blank">skmdfong 发表于 2017-9-29 11:37</a>
@@ -17416,24 +11582,15 @@ movic pripri 多萝西、比阿特、千世 抱枕
 2017-9-29 18:23 上传
 
 
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer"> 
 
 みんな、悪いこと言わないからプリンセス・プリンシパルのBDを買え！
-
-
-
-
-
 
 
 -----
 
 ####  whn1103  
 ##### 6856#       发表于 2017-9-29 19:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37347144&amp;ptid=1486439" target="_blank">mdk11223344 发表于 2017-9-29 11:21</a>
@@ -17443,17 +11600,10 @@ movic pripri 多萝西、比阿特、千世 抱枕
 —— 来自 OnePlus A0001, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6857#       发表于 2017-9-29 19:22
-
-
 
 
 忘了说今天的日榜
@@ -17463,17 +11613,10 @@ movic pripri 多萝西、比阿特、千世 抱枕
 DVD未上榜
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6858#       发表于 2017-9-29 20:07
-
-
 
 
 不是说公爵谋害论吗？那么守卫松散也说得过去，放点水呗。而且多萝西她们走的路根本就没有可能有守卫看得住。除非能飞天了。
@@ -17483,16 +11626,10 @@ DVD未上榜
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  md2501  
 ##### 6859#       发表于 2017-9-29 20:21
-
 
 
 <img src="http://wx1.sinaimg.cn/large/68d3c6dbly1fk0p77j3s1j20xc0nle13.jpg" referrerpolicy="no-referrer">
@@ -17501,17 +11638,10 @@ DVD未上榜
 [https://www.pixiv.net/member_ill ... ;illust_id=65151459](https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=65151459)
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6860#       发表于 2017-9-29 20:37
-
-
 
 
 说一下对片里各方势力的理解
@@ -17538,33 +11668,19 @@ DVD未上榜
 可能只是科技树比王国的高一些。比如夺取王国C球那回，路人提到共和国是窃国贼，我觉得当初共和国那批叛逃的人，带走的就是C球的黑科技和人员。导致王国不得不重新开始研究。另外case1大佐的话，我觉得共和国缺少大型战争武器，这点是比不过王国的，至少人家还有空中舰队吧。而且那个建造书的东西看得出共和国是偷偷在做的，是不能放在台面的，不然会激起两国战争。应该说共和国是在韬光养晦，王国是休养生息，哪边都不愿意先挑起战争。但共和国这边就有个笨蛋将军，背着共和国政府暗地里搞一套，表面上又捅一把L。将军也提到L他们的那一套搞地下战争的不适合了，不如干他娘的一炮来得实际。再不济也得带一波节奏，让王国内斗，总比坐着干不了事的好
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6861#       发表于 2017-9-29 20:40
 
 
-
-
 泽尔达的立场是最迷的，她不像哪一方的使者，也不依靠哪方势力，有种独来独往的感觉。只是间谍这个身份适合她隐藏自己，才会逗留在组织里而已。另外看最后白鸽小队接到任务，似乎是对共和国内部的将军都要自查一番了？毕竟刚出了一个笨蛋将军，难保没有其他鼹鼠的吧
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 6862#       发表于 2017-9-29 20:57
-
-
 
 
 还有共和国之所以保留公主的存在，也许在于公主的立场来看，她才是那个行走在危险地带的人。对于共和国，她确实有一定的利用价值，对于王国，如果她暴露了就是叛国贼。怎么说都是一把双刃剑，虽然L的决定有不对的地方，但公主的价值是不能简单粗暴就否定的。因此到最后公主也能继续留在小队里，笨蛋将军的主张随着计划的溃败也就没人支持了。
@@ -17576,17 +11692,10 @@ DVD未上榜
 当她成为女王之日，便是共和国胜利之日，一般来说。当然也有可能阴了一道共和国，当了女王还能反将一军，也是有这个操作的空间的。因此 有二季的话，还是可以期待的
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6863#       发表于 2017-9-29 22:09
-
-
 
 
 你们以为12话只玩了小贝转圈圈？其实这里也有！
@@ -17606,11 +11715,6 @@ DVD未上榜
 2017-9-29 22:06 上传
 
 
-
-
-
-
-
 这里的多萝西和安洁挺帅的。
 
 <img src="https://img.saraba1st.com/forum/201709/29/220842liis9kzi2q9wlxx0.png" referrerpolicy="no-referrer">
@@ -17623,22 +11727,10 @@ DVD未上榜
 2017-9-29 22:08 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 6864#       发表于 2017-9-29 23:58
-
-
 
 
 怪盗多萝西GET~真帅啊
@@ -17647,25 +11739,13 @@ DVD未上榜
 希望能赶紧搞出漫画企划，手游的演出还是不够啊，漫画能更直观点
 
 
-
-
-
-
-
 -----
 
 ####  大厨麦当牛  
 ##### 6865#       发表于 2017-9-30 00:25
 
 
-
-
 关键是公主是个白莲花这设定太让人大跌眼镜了，想不流血革命，自己还要上位，纯靠替共和国打工怎么想都不可能实现。安洁真是个苦命的老公。。
-
-
-
-
-
 
 
 -----
@@ -17674,14 +11754,7 @@ DVD未上榜
 ##### 6866#       发表于 2017-9-30 00:53
 
 
-
-
 刚逛了下隔壁猴区，因为什么鬼实名制，我的号可以永久封存了。我看到有人说为啥替换作战还能继续下去？纳尼？其实这个计划随着最后最后两个case后已经终结了，将军都挂了，还有什么替换作战。公主自己就能上，用不着安洁了。
-
-
-
-
-
 
 
 -----
@@ -17690,15 +11763,8 @@ DVD未上榜
 ##### 6867#         楼主| 发表于 2017-9-30 09:56
 
 
-
-
 转@一般会社员Nagi_沉迷pripri
 <img src="http://wx4.sinaimg.cn/large/644d93bbgy1fk1bo36s4ij20qn12t14i.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17707,16 +11773,10 @@ DVD未上榜
 ##### 6868#       发表于 2017-9-30 09:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37355826&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-9-30 09:56</a>
 
 转@一般会社员Nagi_沉迷pripri</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17725,23 +11785,15 @@ DVD未上榜
 ##### 6869#       发表于 2017-9-30 10:05
 
 
-
-
 说个不可思议的，大河内未被采用的第3话试验稿剧本，标记日期居然是2015/04/22……
 
 两年多了，这到底是个什么企划啊……
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 6870#       发表于 2017-9-30 10:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37355938&amp;ptid=1486439" target="_blank">白房子 发表于 2017-09-30 10:05:20</a>
@@ -17752,26 +11804,15 @@ DVD未上榜
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  苏格拉底叔  
 ##### 6871#       发表于 2017-9-30 10:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37353936&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-9-30 00:53</a>
 刚逛了下隔壁猴区，因为什么鬼实名制，我的号可以永久封存了。我看到有人说为啥替换作战还能继续下去？纳尼 ...</blockquote>
 btw看公告s1十月份也要实名制了
-
-
-
-
-
 
 
 -----
@@ -17780,24 +11821,16 @@ btw看公告s1十月份也要实名制了
 ##### 6872#       发表于 2017-9-30 10:15
 
 
-
-
 OST听了好几圈，感觉最心水的还是两首钢琴曲，一个是ED的钢琴版（第八集狗粮广告BGM），一个是第六集死老爸之歌的钢琴版
 
 
 剩下的曲子虽然感觉到大妈在努力改变风格，但还是一股子小圆和空境味扑面而来
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6873#       发表于 2017-9-30 10:15
-
 
 
  本帖最后由 aptx8285144 于 2017-9-30 10:17 编辑 
@@ -17807,16 +11840,10 @@ OST听了好几圈，感觉最心水的还是两首钢琴曲，一个是ED的钢
 大河内以前原创动画的主角(他自己全部负责,或者负责大部分剧情的)们至少有一个不会是白莲花类型的,包括死后文也是把另一个人格巧妙设计到自己的计划里面的,但是公主这个感觉确实有强行塑造光伟正的感觉,或者说脏活不用自己亲自干有其他几个人干的讽刺感<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">,  而真正意义上不流血上台就几乎是自我欺骗了,毕竟光是给共和国执行的任务就干死了帝国不少人了,公主能指望的是不要引发动乱直接开火,而是把交战限制在这种台面下的较量里面吧
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6874#       发表于 2017-9-30 10:25
-
 
 
  本帖最后由 xtwx1716 于 2017-9-30 10:33 编辑 
@@ -17835,27 +11862,15 @@ OST听了好几圈，感觉最心水的还是两首钢琴曲，一个是ED的钢
 另外公主怎么就不干活了，早就开始亲自参与任务了吧，第四集不就是讲这个的？
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6875#       发表于 2017-9-30 11:12
 
 
-
-
 不要无视公主的极端处境，我觉得共和国没有第一时间干掉她已经不错了。
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -17864,16 +11879,10 @@ OST听了好几圈，感觉最心水的还是两首钢琴曲，一个是ED的钢
 ##### 6876#       发表于 2017-9-30 11:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37356154&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-30 10:25</a>
 
 死后文那种过家家的小计划能跟流血革命比么。公主不是鲁路修，你看看这片前几集公主的塑造，是突然扛起革 ...</blockquote>
 是的,我的意思就是官方应该是想让公主把较量限制在台面下那种,我说的脏活其实刚才想到的已经不仅仅是搞点夺取帝国的计划之类的那种而是直接涉及处置帝国皇室命运那种大事,但是既然官方还没写到那种,那倒是没必要想那么多<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">,当然本来就是同伴,这种区分也没多大意义
-
-
-
-
-
 
 
 -----
@@ -17882,16 +11891,10 @@ OST听了好几圈，感觉最心水的还是两首钢琴曲，一个是ED的钢
 ##### 6877#       发表于 2017-9-30 11:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37356801&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-09-30 11:23:38</a>
 是的,我的意思就是官方应该是想让公主把较量限制在台面下那种,我说的脏活其实刚才想到的已经不仅仅是搞点 ...</blockquote>嗯…从游戏来看公主就是个奶妈，攻击力也就小贝水平<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -17900,23 +11903,16 @@ OST听了好几圈，感觉最心水的还是两首钢琴曲，一个是ED的钢
 ##### 6878#       发表于 2017-9-30 12:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37356021&amp;ptid=1486439" target="_blank">苏格拉底叔 发表于 2017-09-30 10:13:05</a>
 btw看公告s1十月份也要实名制了</blockquote>不能换绑手机号真是恶心人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6879#       发表于 2017-9-30 13:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37356835&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-30 11:28</a>
@@ -17928,17 +11924,10 @@ btw看公告s1十月份也要实名制了</blockquote>不能换绑手机号真�
 作为女王的候选人之一既然有那么多功课(击剑之类的应该也有）个人的武力值应该还是有点的，但是如果是以间谍的标准去衡量的话，估计那就不行了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6880#       发表于 2017-9-30 13:36
-
-
 
 
 我也很赞同公主最大的伤痛就是革命给的，让她现在再亲自发动革命这显然不可能。动画本篇中公主以自身的魅力受人爱戴，原来的剧本里公主更是靠演讲赢得群众的内心支持，所以12话靠自己的真心话能打动少校合情合理。
@@ -17947,17 +11936,10 @@ btw看公告s1十月份也要实名制了</blockquote>不能换绑手机号真�
 关于王国士兵安排不周到的问题，从第2话第4话都有王国贵族聚集的场景来看，场内也都未有王国士兵，猜测除特殊情况之外士兵是没有必要和资格进入会场的。在多萝西制造混乱时没有士兵在场内把守在很正常，而叛军们则是没见过共和国的黑科技C球，看到有人抱着公主在飞被震惊到也情有可原。这些问题是可以解释到的，其他的因为节奏和篇幅的问题安排不下没表现出来吧。
 
 
-
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6881#       发表于 2017-9-30 14:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37358043&amp;ptid=1486439" target="_blank">白房子 发表于 2017-9-30 13:36</a>
@@ -17966,16 +11948,10 @@ btw看公告s1十月份也要实名制了</blockquote>不能换绑手机号真�
 没有资格还勉强可以理解,没有必要<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">就太夸张了,外交官级别的人物们都明显不少在会场的情况下....特殊情况肯定是发生爆炸或者有人喊有刺客之类的,最后个问题倒是很正常,别说叛军了,连千世都露出吃惊的表情
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6882#       发表于 2017-9-30 14:48
-
 
 
  本帖最后由 白房子 于 2017-9-30 14:58 编辑 
@@ -17987,20 +11963,16 @@ btw看公告s1十月份也要实名制了</blockquote>不能换绑手机号真�
 <img src="http://wx2.sinaimg.cn/mw690/006tJ7Zcly1fk1ky9ye93j30go0lowoi.jpg" referrerpolicy="no-referrer">
 
 
-
 这是小夏洛特呢？还是小安洁呢？
 <img src="http://wx3.sinaimg.cn/mw690/006tJ7Zcly1fk1kybk64gj30go0cqn97.jpg" referrerpolicy="no-referrer">
-
 
 
 原来2年前就有安洁和公主的故事了。
 <img src="http://wx3.sinaimg.cn/mw690/006tJ7Zcly1fk1kyccb2hj30go08i443.jpg" referrerpolicy="no-referrer">
 
 
-
 比阿特的消失……本体都不在了……
 <img src="http://wx1.sinaimg.cn/mw690/006tJ7Zcly1fk1kyd8cznj30go0qoqf0.jpg" referrerpolicy="no-referrer">
-
 
 
 教你怎么样画安洁。
@@ -18009,13 +11981,9 @@ btw看公告s1十月份也要实名制了</blockquote>不能换绑手机号真�
 <img src="http://wx3.sinaimg.cn/mw690/006tJ7Zcly1fk1kydwxjyj30go0ab45o.jpg" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -18025,12 +11993,7 @@ btw看公告s1十月份也要实名制了</blockquote>不能换绑手机号真�
 | aptx8285144| + 1|小时候更可爱|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -18039,20 +12002,13 @@ btw看公告s1十月份也要实名制了</blockquote>不能换绑手机号真�
 ##### 6883#         楼主| 发表于 2017-9-30 16:07
 
 
-
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fk1nhcq0g9j22me3t47wj.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 6884#       发表于 2017-9-30 16:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37358716&amp;ptid=1486439" target="_blank">白房子 发表于 2017-9-30 14:48</a>
@@ -18064,25 +12020,13 @@ btw看公告s1十月份也要实名制了</blockquote>不能换绑手机号真�
 emmmm 我的还没发货。。。。。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6885#       发表于 2017-9-30 16:34
 
 
-
-
 玩舰c三年，总共花了不到2000块，这个手游一个十连就要200多。。。舰c果然是大良心游戏。。。氪几床位就能全船
-
-
-
-
-
 
 
 -----
@@ -18091,24 +12035,15 @@ emmmm 我的还没发货。。。。。
 ##### 6886#       发表于 2017-9-30 17:46
 
 
-
-
 既然两年半以前剧本就开始起草了，那么现在这个完成度不高的结尾是不是可以认为是为了后续临时改的？或者说是“以防”人气太高而作的planB？
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 6887#       发表于 2017-9-30 20:08
-
-
 
 
 今天日榜
@@ -18129,16 +12064,10 @@ DVD 未上榜
 30日16位
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6888#       发表于 2017-9-30 20:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37360391&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-9-30 17:46</a>
@@ -18147,17 +12076,10 @@ DVD 未上榜
 。。人气太高？这种开播前上架直接石沉大海差点捞不起来的杂鱼，即便是先行上映第一话推特上也是鸦雀无声，虽然听说11区的盆友不热衷剧透，但这一点生气都木有的。。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6889#       发表于 2017-9-30 20:18
-
-
 
 
 我记得大概开播前，大河内还晒过自己深夜写剧本的照片，当然那是他的职业习惯。根据那个啥创作者之魂的访谈来看，他一般都是下午到工作室，然后一直写到深夜甚至通宵。就是一只夜猫子的感觉。
@@ -18169,16 +12091,10 @@ DVD 未上榜
 不过最重头的还是他的鲁路修啊啊，听谷口说这是十年的企划！我觉得谷口应该没夸大，而且最近对鲁路修的杂志访谈，他也说道有时候做梦醒来，发现这么做会更好。可见当年R2那个腰斩简直就是他的十年来的心魔，挥之不去。如果不把心目中的构思都做出来，估计出不了那口气？但大河内感觉就是被谷口鞭着走，很大几率反倒是谷口找上大河内也说不定w
 
 
-
-
-
-
-
 -----
 
 ####  尚风悦  
 ##### 6890#       发表于 2017-9-30 20:36
-
 
 
 <blockquote>神之叹息 发表于 2017-9-30 20:18
@@ -18188,16 +12104,10 @@ DVD 未上榜
 搞不好那时候就搭上头了……
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6891#       发表于 2017-9-30 20:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37361640&amp;ptid=1486439" target="_blank">尚风悦 发表于 2017-9-30 20:36</a>
@@ -18208,32 +12118,19 @@ DVD 未上榜
 很可能啊。然后我突然担心到时候R3如果又像prpr这样的偷跑就惨了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">神转折不再神了~
 
 
-
-
-
-
-
 -----
 
 ####  胡椒  
 ##### 6892#       发表于 2017-9-30 21:01
 
 
-
-
 我很想知道19世纪末的医疗水平，公主挨了那一枪后腿为什么还不瘸！
-
-
-
-
-
 
 
 -----
 
 ####  kiyorukiyoru  
 ##### 6893#       发表于 2017-9-30 21:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37358716&amp;ptid=1486439" target="_blank">白房子 发表于 2017-9-30 14:48</a>
@@ -18245,16 +12142,10 @@ DVD 未上榜
 萝莉“公主”真是太可爱了！！！金发萝莉.....<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6894#       发表于 2017-9-30 21:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37361832&amp;ptid=1486439" target="_blank">胡椒 发表于 2017-9-30 21:01</a>
@@ -18263,16 +12154,10 @@ DVD 未上榜
 公主可是有护体神功的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过最后一集，她还是得把腿架起来，应该是伤还没痊愈
 
 
-
-
-
-
-
 -----
 
 ####  皇神樂耶  
 ##### 6895#       发表于 2017-9-30 22:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37361832&amp;ptid=1486439" target="_blank">胡椒 发表于 2017-9-30 21:01</a>
@@ -18281,16 +12166,10 @@ DVD 未上榜
 如果没有击中大动脉和骨头，及时急诊还是能行走自如的
 
 
-
-
-
-
-
 -----
 
 ####  问楫  
 ##### 6896#       发表于 2017-9-30 22:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37361832&amp;ptid=1486439" target="_blank">胡椒 发表于 2017-9-30 21:01</a>
@@ -18299,16 +12178,10 @@ DVD 未上榜
 在那个遥远的时代，英国骨科应该比德国骨科强大……
 
 
-
-
-
-
-
 -----
 
 ####  问楫  
 ##### 6897#       发表于 2017-9-30 23:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37361832&amp;ptid=1486439" target="_blank">胡椒 发表于 2017-9-30 21:01</a>
@@ -18339,13 +12212,10 @@ DVD 未上榜
 安洁：princess，只有这个我不能听你的……
 
 
-
 （低头吮吸伤口）
 
 
-
 几分钟后
-
 
 
 比阿特：（推开门）公主大人，医生来了！
@@ -18355,22 +12225,7 @@ DVD 未上榜
 公主：诶嘿嘿，安洁不知怎么的突然开始流鼻血了……
 
 
-
-
 <img src="https://static.saraba1st.com/image/smiley/goose2017/012.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -18379,16 +12234,9 @@ DVD 未上榜
 ##### 6898#       发表于 2017-9-30 23:26
 
 
-
-
 提心吊胆一路追完，虽然大大大河内被按手按脚，但是整个过程是非常愉快的，每周都能按时吃药的感觉太好了
 
 现在完结了，又回到以前没药的日子，真是难过
-
-
-
-
-
 
 
 -----
@@ -18397,22 +12245,13 @@ DVD 未上榜
 ##### 6899#       发表于 2017-9-30 23:45
 
 
-
-
 感觉好多人买了红茶杯，我也有点想要。。。
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 6900#       发表于 2017-10-1 00:07
-
-
 
 
 Princess Principal游戏全剧情翻译_萌战吧@3gokumuso
@@ -18425,17 +12264,10 @@ Princess Principal游戏全剧情翻译_萌战吧@3gokumuso
 <img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">斯蒂芬果然有点黑……同样也是和相手正反対的两个人，斯蒂芬对索菲有所隐瞒，这一对以后会坦诚相待吗……？
 
 
-
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6901#       发表于 2017-10-1 00:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37363309&amp;ptid=1486439" target="_blank">白房子 发表于 2017-10-01 00:07:57</a>
@@ -18448,16 +12280,10 @@ Princess Principal游戏全剧情翻译_萌战吧@3gokumuso
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6902#       发表于 2017-10-1 00:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37363120&amp;ptid=1486439" target="_blank">暗黑能乐 发表于 2017-9-30 23:45</a>
@@ -18466,17 +12292,10 @@ Princess Principal游戏全剧情翻译_萌战吧@3gokumuso
 确实很好看……还很实用。但是这个不好寄啊……
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6903#       发表于 2017-10-1 00:16
-
-
 
 
 既然是要暴露共和国最高机密的，为何又留她在组织里？还要监视白鸽小队
@@ -18485,16 +12304,10 @@ Princess Principal游戏全剧情翻译_萌战吧@3gokumuso
 另外公主为了自保这点我觉得可以接受
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 6904#       发表于 2017-10-1 00:59
-
 
 
 <blockquote>神之叹息 发表于 2017-10-1 00:16
@@ -18505,33 +12318,19 @@ Princess Principal游戏全剧情翻译_萌战吧@3gokumuso
 索菲其实应该是个发明宅，大概属于短缺人才control舍不得放弃吧。
 
 
-
-
-
-
-
 -----
 
 ####  间咒  
 ##### 6905#       发表于 2017-10-1 12:34
 
 
-
-
 共和国会得出公主要自保这个结论，是不是说明他们一开始怀疑公主有背后势力的这个猜测已经被否决掉了？
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 6906#       发表于 2017-10-1 17:50
-
-
 
 
 看到有人吐槽最后公主嘴炮拯救世界，我觉得不对吧，那样被绑着了除了动嘴我想不出有啥方式了。。另外这拯救世界的没啥大毛病吧？难道真的要王国内乱甚至两国开战？另外革命军的头如果真是一意孤行，真是傻子了，被人当枪使。是公主提醒了吧，无奈泽尔达打破了这种可能而已。
@@ -18543,16 +12342,10 @@ Princess Principal游戏全剧情翻译_萌战吧@3gokumuso
 至于前面的很精彩？我怎么觉得凡是追过来的都会吐槽并不是吧，光是第三集和第七集还有第九集不是够拉低水准了呢？相对来说。。要说精彩，我只能推1/2/6/8
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6907#       发表于 2017-10-1 17:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37366232&amp;ptid=1486439" target="_blank">间咒 发表于 2017-10-1 12:34</a>
@@ -18561,16 +12354,10 @@ Princess Principal游戏全剧情翻译_萌战吧@3gokumuso
 也许是这样，那么这个计划一直搁着的原因可能是将军的要求。我是觉得L把这事扛下来了，既然他拍板的，这个锅得接着。但是也会成为将军拿来打报告的理由，后来L也突然被请去喝茶了吧
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6908#       发表于 2017-10-1 17:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37366232&amp;ptid=1486439" target="_blank">间咒 发表于 2017-10-1 12:34</a>
@@ -18579,32 +12366,19 @@ Princess Principal游戏全剧情翻译_萌战吧@3gokumuso
 组织内部有调查过吧，可能也没什么好怕的，当然公主不被信任也是一直都存在的
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6909#       发表于 2017-10-1 18:10
 
 
-
-
 初动三千不到？暴死了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 6910#       发表于 2017-10-1 18:35
-
 
 
  本帖最后由 白房子 于 2017-10-1 18:39 编辑 
@@ -18618,16 +12392,10 @@ DVD未上榜
 OST未上榜
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6911#       发表于 2017-10-1 18:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37368490&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-10-01 18:10:40</a>
@@ -18636,16 +12404,10 @@ OST未上榜
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6912#       发表于 2017-10-1 18:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37368753&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-10-1 18:50</a>
@@ -18657,16 +12419,10 @@ OST未上榜
 好像是贴吧说的？小道消息？
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6913#       发表于 2017-10-1 19:02
-
 
 
  本帖最后由 白房子 于 2017-10-1 19:04 编辑 
@@ -18676,16 +12432,10 @@ OST未上榜
 初动(首周数据) 周二16点出，因为有漏记的问题看首周数据比较靠谱。因此pripri的初日数据会很难看……
 
 
-
-
-
-
-
 -----
 
 ####  alonebill  
 ##### 6914#       发表于 2017-10-1 19:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37368795&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-10-1 18:58</a>
@@ -18697,16 +12447,10 @@ OST未上榜
 你在哪看的都信啊
 
 
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 6915#       发表于 2017-10-1 19:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37361832&amp;ptid=1486439" target="_blank">胡椒 发表于 2017-9-30 21:01</a>
@@ -18715,16 +12459,10 @@ OST未上榜
 这可是蒸汽朋克的世界，第一话研究员妹妹能做眼睛手术，贝阿特连声带都换了
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6916#       发表于 2017-10-1 19:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37368795&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-10-01 18:58:20</a>
@@ -18734,17 +12472,10 @@ OST未上榜
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6917#         楼主| 发表于 2017-10-1 19:30
-
-
 
 
 最快偷跑是周一吧
@@ -18752,17 +12483,10 @@ OST未上榜
 现在壁吧自己都搞不清楚，不是分裂了吗
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6918#       发表于 2017-10-1 20:31
-
-
 
 
 不说销量了，看prpr的造化吧。这个怎么没看到你们搬<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">甜到入心入肺~
@@ -18778,25 +12502,13 @@ OST未上榜
 2017-10-1 20:30 上传
 
 
-
-
-
-
-
 Yes Or No！！谁赞成，谁反对！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 6919#       发表于 2017-10-1 21:40
-
-
 
 
 niconico生放送12话上映会开始了，也是最后的制作秘闻了……观众和弹幕还蛮多的。
@@ -18809,11 +12521,6 @@ niconico生放送12话上映会开始了，也是最后的制作秘闻了……�
 下载附件
 
 2017-10-1 21:37 上传
-
-
-
-
-
 
 
 因为7不在，大佐和胖子来到7的桌子前做情报整理工作…
@@ -18832,38 +12539,19 @@ niconico生放送12话上映会开始了，也是最后的制作秘闻了……�
 2017-10-1 21:33 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 6920#       发表于 2017-10-1 22:03
 
 
-
-
 今晚似乎电视台还要再放一遍总集篇？
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 6921#       发表于 2017-10-1 22:09
-
-
 
 
 ＬＧＢＴ推奨アニメwww
@@ -18878,11 +12566,6 @@ niconico生放送12话上映会开始了，也是最后的制作秘闻了……�
 2017-10-1 21:58 上传
 
 
-
-
-
-
-
 你们是在哪里看到黑蜥蜴的啦！
 
 <img src="https://img.saraba1st.com/forum/201710/01/215847lehq3jcdvhqdvf6d.png" referrerpolicy="no-referrer">
@@ -18893,11 +12576,6 @@ niconico生放送12话上映会开始了，也是最后的制作秘闻了……�
 下载附件
 
 2017-10-1 21:58 上传
-
-
-
-
-
 
 
 连C球都看到啦？？？
@@ -18912,11 +12590,6 @@ niconico生放送12话上映会开始了，也是最后的制作秘闻了……�
 2017-10-1 21:58 上传
 
 
-
-
-
-
-
 あら＾〜　贯穿全剧的弹幕（好像另有梗）
 
 <img src="https://img.saraba1st.com/forum/201710/01/215849fhcrkrzztgmkx6kn.png" referrerpolicy="no-referrer">
@@ -18927,10 +12600,6 @@ niconico生放送12话上映会开始了，也是最后的制作秘闻了……�
 下载附件
 
 2017-10-1 21:58 上传
-
-
-
-
 
 
 　
@@ -18946,11 +12615,6 @@ niconico生放送12话上映会开始了，也是最后的制作秘闻了……�
 2017-10-1 21:58 上传
 
 
-
-
-
-
-
 补上这是11话的评分
 
 <img src="https://img.saraba1st.com/forum/201710/01/220643vtjsjpp1ca5nlda5.jpg" referrerpolicy="no-referrer">
@@ -18961,11 +12625,6 @@ niconico生放送12话上映会开始了，也是最后的制作秘闻了……�
 下载附件
 
 2017-10-1 22:06 上传
-
-
-
-
-
 
 
 第8話～第11話振り返り上映会的评分
@@ -18980,16 +12639,7 @@ niconico生放送12话上映会开始了，也是最后的制作秘闻了……�
 2017-10-1 22:08 上传
 
 
-
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">第一次看niconico生放就评错分什么的……撞墙了。
-
-
-
-
-
 
 
 -----
@@ -18998,16 +12648,10 @@ niconico生放送12话上映会开始了，也是最后的制作秘闻了……�
 ##### 6922#       发表于 2017-10-1 22:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37370052&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-10-1 22:03</a>
 
 今晚似乎电视台还要再放一遍总集篇？</blockquote>
 1-8集順序總集篇+人物介紹
-
-
-
-
-
 
 
 -----
@@ -19016,21 +12660,13 @@ niconico生放送12话上映会开始了，也是最后的制作秘闻了……�
 ##### 6923#         楼主| 发表于 2017-10-1 22:21
 
 
-
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fk33y7xs7yj20xc0irn1k.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 6924#         楼主| 发表于 2017-10-1 22:33
-
-
 
 
 秋谷 有紀恵‏ @akiyayukie  
@@ -19044,27 +12680,15 @@ niconico生放送12话上映会开始了，也是最后的制作秘闻了……�
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fk34bpajifj20xc0ir7wh.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  skmdfong  
 ##### 6925#       发表于 2017-10-1 22:34
 
 
-
-
 官方爸爸真是懂人心，螺旋升天<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 什么时候来个无字版的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19073,22 +12697,13 @@ niconico生放送12话上映会开始了，也是最后的制作秘闻了……�
 ##### 6926#       发表于 2017-10-1 22:35
 
 
-
-
 这次总集篇结束连bd广告都不放了……官方到底想干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 6927#         楼主| 发表于 2017-10-1 22:39
-
-
 
 
 【速報！】
@@ -19101,17 +12716,10 @@ niconico生放送12话上映会开始了，也是最后的制作秘闻了……�
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fk34g9vd8wj20xc0ip4np.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6928#         楼主| 发表于 2017-10-1 22:41
-
-
 
 
 関根 明良‏ @aki_lucky1216  3分3分钟前
@@ -19132,27 +12740,15 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひ！✨
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fk34jfnj0oj20p00umqpt.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6929#       发表于 2017-10-1 22:50
 
 
-
-
 有没有…第二季…的消息<img src="https://static.saraba1st.com/image/smiley/face2017/150.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -19161,14 +12757,7 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひ！✨
 ##### 6930#       发表于 2017-10-1 22:50
 
 
-
-
 总作监这图……本质百合片。
-
-
-
-
-
 
 
 -----
@@ -19177,21 +12766,13 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひ！✨
 ##### 6931#       发表于 2017-10-2 00:42
 
 
-
-
 晚上和朋友看了英伦对决，突然想到prpr
-
-
-
-
-
 
 
 -----
 
 ####  Norn  
 ##### 6932#       发表于 2017-10-2 01:41
-
 
 
  本帖最后由 Norn 于 2017-10-2 02:11 编辑 
@@ -19228,13 +12809,9 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひ！✨
 11.最后安洁她们在海边的那个打扮,正是这个时代的泳装.之前我也说过啦,这种衣服真的是连色气的se字都没有.
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +2
@@ -19245,12 +12822,7 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひ！✨
 | tmpfs| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -19259,24 +12831,16 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひ！✨
 ##### 6933#       发表于 2017-10-2 02:03
 
 
-
-
 空中战舰！革命的水兵……（闭嘴）
 
 
 居然是泳装……我还纳闷穿睡衣到沙滩几个意思。
 
 
-
-
-
-
-
 -----
 
 ####  Zxian49  
 ##### 6934#       发表于 2017-10-2 03:32
-
 
 
  本帖最后由 Zxian49 于 2017-10-2 03:38 编辑 
@@ -19286,17 +12850,10 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひ！✨
 还有，制作组果然有考虑弄死塞尔达啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6935#       发表于 2017-10-2 04:28
-
-
 
 
 泳装这个，你就是还原了，观众也不会高兴的啊…
@@ -19305,17 +12862,10 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひ！✨
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  yjysrkl  
 ##### 6936#       发表于 2017-10-2 07:17
-
-
 
 
 广播里介绍第二卷的特典广播剧是case11.5
@@ -19325,26 +12875,13 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひ！✨
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">别说了，我买
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6937#       发表于 2017-10-2 07:44
 
 
-
-
 电话里头的是泽尔达？说真的，没听出来。。然后就是观众怎么会第一时间反应过来是小贝假扮泽尔达，官方也是有种理所当然啊。。
-
-
-
-
-
-
 
 
 -----
@@ -19353,21 +12890,13 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひ！✨
 ##### 6938#       发表于 2017-10-2 07:56
 
 
-
-
 话说staff talk show会有大河内吗？
-
-
-
-
-
 
 
 -----
 
 ####  间咒  
 ##### 6939#       发表于 2017-10-2 09:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37372118&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-10-2 07:44</a>
@@ -19378,17 +12907,10 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひ！✨
 本来就是小贝在这边套话，被安洁给捣乱了。
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6940#       发表于 2017-10-2 11:36
-
-
 
 
 特意强调了大佐和将军所属不同，是所属的立场吗？所以11话12话里大佐在将军发火L回来的时候也是很不以为然的表情就是因为这个原因吧，这一点有些意想不到。
@@ -19397,17 +12919,10 @@ WEBラジオ「プリプリ・秘密レポート」も是非ぜひ！✨
 还有白土晴一说，关于‏在表现「My turtledove」这一句的时候可是相当烦恼了。如果太直白太简洁会显得爱意不够，不行。如果说的太详细太复杂又会显得冗长啰嗦，也不行。所以这时候参考了莎士比亚的诗歌《The Phoenix and the Turtle》。
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6941#       发表于 2017-10-2 11:44
-
-
 
 
 2卷封面是被雨淋湿的公主~太棒了~
@@ -19429,11 +12944,6 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime
 下载附件
 
 2017-10-2 11:39 上传
-
-
-
-
-
 
 
 2卷特典Case11.5，公主和安洁打电话谈论关于比阿特的事情。
@@ -19458,10 +12968,6 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  8
 2017-10-2 11:39 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201710/02/113921gcqttctc66pr6rsk.jpg" referrerpolicy="no-referrer">
 
 
@@ -19472,22 +12978,10 @@ TVアニメ『プリンセス・プリンシパル』‏ @pripri_anime  8
 2017-10-2 11:39 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 6942#         楼主| 发表于 2017-10-2 11:45
-
-
 
 
 プリンセス・プリンシパル Ⅱ
@@ -19572,16 +13066,10 @@ DVD：￥6,000（税抜）
 ・アニメーションキャラクターデザイン秋谷有紀恵によるW表紙ジャケット
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6943#       发表于 2017-10-2 11:50
-
 
 
  本帖最后由 aptx8285144 于 2017-10-2 11:56 编辑 
@@ -19591,16 +13079,10 @@ DVD：￥6,000（税抜）
 所属不同也有可能的，但是我觉得比较尴尬的是，官方既然自己提到了这个问题，就不要用“似乎”这种词语了，自己提出来的也好歹给个肯定的答复吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6944#       发表于 2017-10-2 12:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37373522&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-10-2 11:50</a>
@@ -19613,16 +13095,10 @@ DVD：￥6,000（税抜）
 可见大佐在Control有一席之地也并不是太坏的人嘛。
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6945#       发表于 2017-10-2 12:24
-
 
 
  本帖最后由 aptx8285144 于 2017-10-2 12:26 编辑 
@@ -19634,32 +13110,19 @@ DVD：￥6,000（税抜）
 不能太相信，因为间谍都是会说谎的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，性格够耿直了
 
 
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 6946#       发表于 2017-10-2 12:44
 
 
-
-
 http://www.bilibili.com/video/av14982014  广播剧有人上次上传了
-
-
-
-
-
 
 
 -----
 
 ####  moree  
 ##### 6947#       发表于 2017-10-2 13:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37340572&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-9-28 17:46</a>
@@ -19673,16 +13136,10 @@ http://www.bilibili.com/video/av14982014  广播剧有人上次上传了
 当然STAFF什么都不管不顾，就是要主角方每个人物都有幸福的HE，硬要这样写的剧本也是可行。个人是不喜欢如此随便
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6948#       发表于 2017-10-2 13:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37372613&amp;ptid=1486439" target="_blank">间咒 发表于 2017-10-2 09:37</a>
@@ -19693,32 +13150,19 @@ http://www.bilibili.com/video/av14982014  广播剧有人上次上传了
 我是没发现那是泽尔达。。
 
 
-
-
-
-
-
 -----
 
 ####  chaos7  
 ##### 6949#       发表于 2017-10-2 13:23
 
 
-
-
 话说现在prpr完结了 , 是不是为大河內吉野两人盖棺定论 , 大河內实力还是高吉野一个身位<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 6950#       发表于 2017-10-2 13:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37374172&amp;ptid=1486439" target="_blank">moree 发表于 2017-10-2 13:16</a>
@@ -19729,16 +13173,10 @@ http://www.bilibili.com/video/av14982014  广播剧有人上次上传了
 我觉得班长的情况，怎么看都难有好的下场，还不如领便当退群。。
 
 
-
-
-
-
-
 -----
 
 ####  moree  
 ##### 6951#       发表于 2017-10-2 13:25
-
 
 
  本帖最后由 moree 于 2017-10-2 13:27 编辑 
@@ -19753,17 +13191,10 @@ http://www.bilibili.com/video/av14982014  广播剧有人上次上传了
 也许还有2010年的剧本束之高阁
 
 
-
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 6952#       发表于 2017-10-2 13:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37374214&amp;ptid=1486439" target="_blank">chaos7 发表于 2017-10-2 13:23</a>
@@ -19772,25 +13203,13 @@ http://www.bilibili.com/video/av14982014  广播剧有人上次上传了
 我是不在意数据的，何况吉野也有个人气更高的舞hime，但是如果要比较终末伊泽塔和现在的Princess Principal，我选完成度更高和节奏更顺的终末<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6953#       发表于 2017-10-2 13:32
 
 
-
-
 我怎么感觉第二卷封面是两个人？左边的是安洁，右边的是公主？。。
-
-
-
-
-
 
 
 -----
@@ -19799,24 +13218,16 @@ http://www.bilibili.com/video/av14982014  广播剧有人上次上传了
 ##### 6954#       发表于 2017-10-2 13:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37374214&amp;ptid=1486439" target="_blank">chaos7 发表于 2017-10-2 13:23</a>
 
 话说现在prpr完结了 , 是不是为大河內吉野两人盖棺定论 , 大河內实力还是高吉野一个身位 ...</blockquote>
 不是我吹，一直都高一个身位<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6955#       发表于 2017-10-2 13:39
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201710/02/133916yjtvdftzf774nzfp.png" referrerpolicy="no-referrer">
@@ -19829,16 +13240,7 @@ http://www.bilibili.com/video/av14982014  广播剧有人上次上传了
 2017-10-2 13:39 上传
 
 
-
-
-
-
 突然发现公主的腿真是可以prpr的<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19847,23 +13249,16 @@ http://www.bilibili.com/video/av14982014  广播剧有人上次上传了
 ##### 6956#       发表于 2017-10-2 13:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37374218&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-10-2 13:23</a>
 
 我觉得班长的情况，怎么看都难有好的下场，还不如领便当退群。。</blockquote>
 有第二季并且大河内有心的话可以把班长这条线再挖出来，比如多萝西在班长留下的手提包里截留了一份文件之类的。
 
 
-
-
-
-
-
 -----
 
 ####  间咒  
 ##### 6957#       发表于 2017-10-2 14:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37374322&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-10-2 13:39</a>
@@ -19874,16 +13269,10 @@ http://www.bilibili.com/video/av14982014  广播剧有人上次上传了
 这片真的是在一些细小的地方莫名的执着.....
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6958#       发表于 2017-10-2 15:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37374746&amp;ptid=1486439" target="_blank">间咒 发表于 2017-10-2 14:46</a>
@@ -19894,17 +13283,10 @@ http://www.bilibili.com/video/av14982014  广播剧有人上次上传了
 <img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">真的啊……仔细一看从室内抱着公主开始，直到上天的时候都有这块垫布……佩服。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6959#       发表于 2017-10-2 15:10
-
-
 
 
 公主一直都是卖腿的，看看手游立绘就知道了…
@@ -19912,16 +13294,10 @@ http://www.bilibili.com/video/av14982014  广播剧有人上次上传了
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  间咒  
 ##### 6960#       发表于 2017-10-2 15:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37374892&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-10-2 15:10</a>
@@ -19933,16 +13309,10 @@ http://www.bilibili.com/video/av14982014  广播剧有人上次上传了
 其实安洁也卖腿，看那间谍服的设计<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6961#       发表于 2017-10-2 16:20
-
 
 
  本帖最后由 xtwx1716 于 2017-10-2 16:57 编辑 
@@ -19954,16 +13324,10 @@ http://www.bilibili.com/video/av14982014  广播剧有人上次上传了
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 6962#       发表于 2017-10-2 17:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37375317&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-10-2 16:20</a>
@@ -19975,25 +13339,13 @@ http://www.bilibili.com/video/av14982014  广播剧有人上次上传了
 身♀体曲线就这样被你说成了肌♂肉线条<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6963#       发表于 2017-10-2 17:13
 
 
-
-
 怎么回事？今天出不了数据吗？真暴死了？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20002,23 +13354,16 @@ http://www.bilibili.com/video/av14982014  广播剧有人上次上传了
 ##### 6964#       发表于 2017-10-2 18:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37375591&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-10-02 17:02:12</a>
 身♀体曲线就这样被你说成了肌♂肉线条</blockquote>嗯…想的是身体曲线打出来了却是肌肉线条<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 6965#       发表于 2017-10-2 18:02
-
 
 
  本帖最后由 白房子 于 2017-10-2 18:03 编辑 
@@ -20034,17 +13379,10 @@ OST未上榜
 不得不说pripri的DVD死的很惨，明天就出周榜了然而一天都没上榜，DVD能卖出200份吗？
 
 
-
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6966#       发表于 2017-10-2 18:20
-
 
 
  本帖最后由 xtwx1716 于 2017-10-2 18:24 编辑 
@@ -20067,16 +13405,10 @@ OST未上榜
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  异界送  
 ##### 6967#       发表于 2017-10-2 20:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37374322&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-10-2 13:39</a>
@@ -20085,25 +13417,13 @@ OST未上榜
 公主抱抱公主
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6968#       发表于 2017-10-2 21:14
 
 
-
-
 为何要DVD数据？BD的又不算很贵吧，加点钱都上BD啦
-
-
-
-
-
 
 
 -----
@@ -20112,14 +13432,7 @@ OST未上榜
 ##### 6969#         楼主| 发表于 2017-10-2 21:51
 
 
-
-
 *5422 プリンセス
-
-
-
-
-
 
 
 -----
@@ -20128,14 +13441,7 @@ OST未上榜
 ##### 6970#       发表于 2017-10-2 21:53
 
 
-
-
 就这初动。。后面估计更不行了。。还想出第二季，难啊
-
-
-
-
-
 
 
 -----
@@ -20144,14 +13450,7 @@ OST未上榜
 ##### 6971#       发表于 2017-10-2 22:02
 
 
-
-
 我觉得应该全程发糖，这样过万不是梦
-
-
-
-
-
 
 
 -----
@@ -20160,21 +13459,13 @@ OST未上榜
 ##### 6972#       发表于 2017-10-2 22:04
 
 
-
-
 官方赶快宣布二期来救命啊<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 6973#       发表于 2017-10-2 22:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37378091&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-10-02 22:02:01</a>
@@ -20184,16 +13475,10 @@ OST未上榜
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 6974#       发表于 2017-10-2 22:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37378176&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-10-02 22:11:50</a></blockquote>pt真正起航的是第八集吧，一整集都是糖。我觉得监督还是有所顾虑，没完全放开
@@ -20201,16 +13486,10 @@ OST未上榜
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 6975#       发表于 2017-10-2 22:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37378305&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-10-2 22:26</a>
@@ -20222,24 +13501,13 @@ pt真正起航的是第八集吧，一整集都是糖。我觉得监督还是有
 理智点第八集起航主要是因为收束了前面许多伏笔剧情达到高潮，发糖有用但肯定不是主要作用。至于pripri能走到现在这一步也是很不容易，我也不知道到底期待什么样的剧情让这个数字变得更好了。
 
 
-
-
-
-
-
 -----
 
 ####  saverok  
 ##### 6976#       发表于 2017-10-2 22:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5400还不满意 这年头还行了吧
-
-
-
-
-
 
 
 -----
@@ -20248,16 +13516,10 @@ pt真正起航的是第八集吧，一整集都是糖。我觉得监督还是有
 ##### 6977#       发表于 2017-10-2 23:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37378444&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-10-02 22:40:19</a>
 理智点第八集起航主要是因为收束了前面许多伏笔剧情达到高潮，发糖有用但肯定不是主要作用。至于pripri能 ...</blockquote>最后一集要是把坑全填上大概能卖到八千？因为毕竟最后一集肯定是惊天神回。现在这样最后全是坑的情况下卖5500我觉得还是比较匹配的，剩下的就看万代那边怎么看这个企划了，起码观众还算给力了
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -20266,16 +13528,10 @@ pt真正起航的是第八集吧，一整集都是糖。我觉得监督还是有
 ##### 6978#       发表于 2017-10-2 23:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37378607&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-10-2 23:00</a>
 
 最后一集要是把坑全填上大概能卖到八千？因为毕竟最后一集肯定是惊天神回。现在这样最后全是坑的情况下卖55 ...</blockquote>
 全填上就没有后续了……私心上是想看更多的所以现在这样确实也是无话可说，只能求官方表个态了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20284,16 +13540,10 @@ pt真正起航的是第八集吧，一整集都是糖。我觉得监督还是有
 ##### 6979#       发表于 2017-10-2 23:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37378647&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-10-02 23:05:04</a>
 全填上就没有后续了……私心上是想看更多的所以现在这样确实也是无话可说，只能求官方表个态了 ...</blockquote>是的，所以这是个矛盾。现在只能等大佬们的决定了…起码活着就好…
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -20302,14 +13552,7 @@ pt真正起航的是第八集吧，一整集都是糖。我觉得监督还是有
 ##### 6980#       发表于 2017-10-2 23:52
 
 
-
-
 比新游戏高，算是不错了在这个时代
-
-
-
-
-
 
 
 -----
@@ -20318,16 +13561,10 @@ pt真正起航的是第八集吧，一整集都是糖。我觉得监督还是有
 ##### 6981#       发表于 2017-10-3 00:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37378000&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-10-2 21:51</a>
 
 *5422 プリンセス</blockquote>
 这个算上DVD了吗？
-
-
-
-
-
 
 
 -----
@@ -20336,16 +13573,10 @@ pt真正起航的是第八集吧，一整集都是糖。我觉得监督还是有
 ##### 6982#         楼主| 发表于 2017-10-3 00:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37379167&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-10-3 00:04</a>
 
 这个算上DVD了吗？</blockquote>
 DVD数据好像少于370还是多少 没统计上榜
-
-
-
-
-
 
 
 -----
@@ -20354,17 +13585,10 @@ DVD数据好像少于370还是多少 没统计上榜
 ##### 6983#       发表于 2017-10-3 00:09
 
 
-
-
 6000都卖不到，而且DVD真的不够200没数据，二期可能活在梦里。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 再见我去黑蜥蜴星了吨吨吨.jpg
 （明天16点我再来鞭尸一次）
-
-
-
-
-
 
 
 -----
@@ -20373,16 +13597,10 @@ DVD数据好像少于370还是多少 没统计上榜
 ##### 6984#       发表于 2017-10-3 00:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37379182&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-10-3 00:06</a>
 
 DVD数据好像少于370还是多少 没统计上榜</blockquote>
 单单就bd而言初动胜过了vvv（大河内，熊谷，松尾的“天才”组合）的初动3份，当年是5419，这点算是很开心了，但是当年vvvDVD有2206这就没法打了，不过bd上能赢就很开心了<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20391,14 +13609,7 @@ DVD数据好像少于370还是多少 没统计上榜</blockquote>
 ##### 6985#       发表于 2017-10-3 00:17
 
 
-
-
 你们就不能乐观点么，难说这周补了货继续长卖就能破6000了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20407,16 +13618,10 @@ DVD数据好像少于370还是多少 没统计上榜</blockquote>
 ##### 6986#       发表于 2017-10-3 00:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37379266&amp;ptid=1486439" target="_blank">skmdfong 发表于 2017-10-3 00:17</a>
 
 你们就不能乐观点么，难说这周补了货继续长卖就能破6000了</blockquote>
 店头特典不吸引人，日榜掉的也很快，不是后劲高的类型。而且第1卷收录的前2话和BD特典算6卷中最好的了，之后几卷怕不是要右肩了……
-
-
-
-
-
 
 
 -----
@@ -20425,20 +13630,12 @@ DVD数据好像少于370还是多少 没统计上榜</blockquote>
 ##### 6987#       发表于 2017-10-3 00:57
 
 
-
-
 彻夜用流量补完，可以，强，有力！
-
 
 
 最后一集有点虎头蛇尾啊……然后呢，大家当无事发生过吗…………案件24基本算最后了，啥也没说大家就喝茶了吗……
 
 —— 来自 nubia NX511J, Android 5.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0
-
-
-
-
-
 
 
 -----
@@ -20447,14 +13644,7 @@ DVD数据好像少于370还是多少 没统计上榜</blockquote>
 ##### 6988#       发表于 2017-10-3 00:58
 
 
-
-
 如果下一部大河内系构的作品也是最后两话进小黑屋，那说明业界真的找到说明书了233.
-
-
-
-
-
 
 
 -----
@@ -20463,14 +13653,7 @@ DVD数据好像少于370还是多少 没统计上榜</blockquote>
 ##### 6989#       发表于 2017-10-3 01:20
 
 
-
-
 你们，真是贪心
-
-
-
-
-
 
 
 -----
@@ -20479,13 +13662,7 @@ DVD数据好像少于370还是多少 没统计上榜</blockquote>
 ##### 6990#       发表于 2017-10-3 01:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不过算了，本来第二季估计也没戏的
-
-
-
-
-
 
 
 -----
@@ -20494,17 +13671,10 @@ DVD数据好像少于370还是多少 没统计上榜</blockquote>
 ##### 6991#       发表于 2017-10-3 04:12
 
 
-
-
 5400可以了呀，本来就不是什么大热的题材
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.29)
-
-
-
-
-
 
 
 -----
@@ -20513,16 +13683,9 @@ DVD数据好像少于370还是多少 没统计上榜</blockquote>
 ##### 6992#       发表于 2017-10-3 04:29
 
 
-
-
 一口闷完，我现在感觉大河内稳得一笔……从反映来看已经知道这次没搞什么大新闻，所以观看过程比较轻松，不用提心吊胆真是好
 
 不求爆点只求亮点，剧情稳，角色讨喜，让人看得舒服没啥可指摘的，有点像目前打牌王的感觉……只能说稳和神展开各有各的好……
-
-
-
-
-
 
 
 -----
@@ -20531,15 +13694,9 @@ DVD数据好像少于370还是多少 没统计上榜</blockquote>
 ##### 6993#       发表于 2017-10-3 05:46
 
 
-
 <blockquote>白房子 发表于 2017-10-3 00:31
 店头特典不吸引人，日榜掉的也很快，不是后劲高的类型。而且第1卷收录的前2话和BD特典算6卷中最好的了， ...</blockquote>
 日榜掉的其实不快 星期六 星期天都是君名 海洋奇缘这些卖的好，星期一的时候是因为虎穴店头一周一发货。俗称虎穴炮，黄漫路人靠这些才压了一头。prpr虎穴是没卖的，所以真正要看水平还要在今天的日榜
-
-
-
-
-
 
 
 -----
@@ -20548,16 +13705,9 @@ DVD数据好像少于370还是多少 没统计上榜</blockquote>
 ##### 6994#       发表于 2017-10-3 09:18
 
 
-
-
 5400可以了，3hz之前3部加起来才到prpr的一半
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -20566,23 +13716,15 @@ DVD数据好像少于370还是多少 没统计上榜</blockquote>
 ##### 6995#       发表于 2017-10-3 10:39
 
 
-
-
 能超过伊泽塔就是胜利<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">吉野：这波还是你比较强，大河内桑～
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  苍之轨迹  
 ##### 6996#       发表于 2017-10-3 11:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37381697&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-10-3 10:39</a>
@@ -20594,16 +13736,10 @@ DVD数据好像少于370还是多少 没统计上榜</blockquote>
 伊泽塔3000多吧，大河内赢了啊
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 6997#       发表于 2017-10-3 11:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37381985&amp;ptid=1486439" target="_blank">苍之轨迹 发表于 2017-10-03 11:25:42</a>
@@ -20612,25 +13748,13 @@ DVD数据好像少于370还是多少 没统计上榜</blockquote>
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  万千百十  
 ##### 6998#       发表于 2017-10-3 12:58
 
 
-
-
 前半都悄无声息的，有5400不错了，1万是做梦
-
-
-
-
-
 
 
 -----
@@ -20639,14 +13763,7 @@ DVD数据好像少于370还是多少 没统计上榜</blockquote>
 ##### 6999#       发表于 2017-10-3 13:36
 
 
-
-
 真的没搞明白为什么有人会喊暴死了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20655,14 +13772,7 @@ DVD数据好像少于370还是多少 没统计上榜</blockquote>
 ##### 7000#       发表于 2017-10-3 14:03
 
 
-
-
 突然想到，其他手游想骗氪一波开个泳装卡池就好了，你游要是出维多利亚泳装卡池……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">全身紧紧包裹的卡面一定太美。
-
-
-
-
-
 
 
 -----
@@ -20671,14 +13781,7 @@ DVD数据好像少于370还是多少 没统计上榜</blockquote>
 ##### 7001#       发表于 2017-10-3 14:32
 
 
-
-
 SP01 case10.5 潜入west ham男校<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20687,14 +13790,7 @@ SP01 case10.5 潜入west ham男校<img src="https://static.saraba1st.com/image/s
 ##### 7002#       发表于 2017-10-3 14:59
 
 
-
-
 SP01贝阿特萌死了
-
-
-
-
-
 
 
 -----
@@ -20703,16 +13799,9 @@ SP01贝阿特萌死了
 ##### 7003#       发表于 2017-10-3 15:21
 
 
-
-
 如果有第二季，希望安洁不要那么恋爱脑了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">最后一集那个表情，幸好放了个烟雾弹让泽尔达防备了一会，不然转头这会的破绽，就让泽尔达崩了
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -20721,24 +13810,16 @@ SP01贝阿特萌死了
 ##### 7004#       发表于 2017-10-3 15:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37383589&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-10-3 15:21</a>
 
 如果有第二季，希望安洁不要那么恋爱脑了最后一集那个表情，幸好放了个烟雾弹让泽尔达防备了一会， ...</blockquote>
 其实吧，我觉得倒是安洁如果不关心公主那真不如被泽尔达崩了，这倒不是恋爱脑而是安洁的形象塑造就是一切为了公主。
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7005#       发表于 2017-10-3 16:10
-
-
 
 
 今天周榜，转自圈吧。
@@ -20762,10 +13843,6 @@ SP01贝阿特萌死了
 2017-10-3 16:10 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201710/03/160719m94x0s54dset04f9.jpg" referrerpolicy="no-referrer">
 
 
@@ -20776,21 +13853,10 @@ SP01贝阿特萌死了
 2017-10-3 16:07 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7006#       发表于 2017-10-3 18:44
-
-
 
 
 今天日榜
@@ -20805,16 +13871,10 @@ OST未上榜
 BD明天可能就飞榜了
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 7007#       发表于 2017-10-3 18:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37381697&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-10-3 10:39</a>
@@ -20826,32 +13886,19 @@ BD明天可能就飞榜了
 吉野:但是我最高的记录舞hime校友你还是没能打破<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 7008#       发表于 2017-10-3 19:05
 
 
-
-
 但是如果没有二期的话，夕阳下那个欺骗世界和欺骗自己的演出效果就有误导观众的嫌疑了，现在唯一确定的是要看数据来决定二期，因此还是有误导观众的味道<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 7009#       发表于 2017-10-3 19:35
-
 
 
  本帖最后由 xtwx1716 于 2017-10-3 19:36 编辑 
@@ -20866,16 +13913,10 @@ BD明天可能就飞榜了
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 7010#       发表于 2017-10-3 19:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37385321&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-10-3 19:35</a>
@@ -20884,16 +13925,10 @@ BD明天可能就飞榜了
 无需对观众负责就夸张了，很多剧本其实只是官方内部在争夺“怎么写才是即想表达我想要的，也能对观众负责”    当然对“观众负责”这点很多时候只是他们自己这么觉得<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7011#       发表于 2017-10-3 20:02
-
 
 
  本帖最后由 xtwx1716 于 2017-10-3 20:03 编辑 
@@ -20907,16 +13942,10 @@ BD明天可能就飞榜了
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 7012#       发表于 2017-10-3 20:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37385575&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-10-3 20:02</a>
@@ -20925,25 +13954,13 @@ BD明天可能就飞榜了
 其实不矛盾，类似希尔达听说手游里面好像还不是敌人吧，有时候当不同的线也是可以的
 
 
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 7013#       发表于 2017-10-3 21:59
 
 
-
-
 dvd215 初动5637
-
-
-
-
-
 
 
 -----
@@ -20952,14 +13969,7 @@ dvd215 初动5637
 ##### 7014#       发表于 2017-10-3 22:18
 
 
-
-
 哦不对 可能o榜下限会比215高 所以应该看不到
-
-
-
-
-
 
 
 -----
@@ -20968,24 +13978,16 @@ dvd215 初动5637
 ##### 7015#       发表于 2017-10-3 22:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37385854&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-10-03 20:36:15</a>
 其实不矛盾，类似希尔达听说手游里面好像还不是敌人吧，有时候当不同的线也是可以的 ...</blockquote>我现在只希望官方能尽快对于后续企划做个表态<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7016#       发表于 2017-10-3 23:54
-
-
 
 
 后知后觉，DHR百合组出了特典字幕。
@@ -20995,16 +13997,10 @@ dvd215 初动5637
 可以和她玩很多羞羞的play了~
 
 
-
-
-
-
-
 -----
 
 ####  yjysrkl  
 ##### 7017#       发表于 2017-10-4 00:14
-
 
 
  本帖最后由 yjysrkl 于 2017-10-4 03:29 编辑 
@@ -21018,13 +14014,9 @@ Princess Principal第三话试验稿类型B2015/04/22本脚本是在制作阶段
 <strong>OP</strong>学校全景<strong>部室</strong>房间里有A、D、B，和手上还缠着绷带的PA：新的任务书来了（在桌上放下任务书）桌上只有P和B的红茶杯和D自带的喝威士忌的容器安洁前什么都没有A：下周末，@@大臣会从西边来访。任务是防止他被暗杀。P：啊呀，说到@@大臣，我会作为女王的代理在@@会场仪式上见到他呢D：@@仪式是暗杀者最喜欢狙击的地点呢B：难道说，是想让公主大人对暗杀者做点什么吗！A：能做到么？（看向公主）P：不能像安洁那样战斗啦B：安洁？（不加称谓？）（译者：这里指公主对安洁的称呼很亲密让B感到奇怪）安洁的表情放松了一些A：有作战计划。我变成公主然后护卫大臣。B：这是什么玩笑？D：这个嘛……确实听起来像玩笑话（笑嘻嘻地说）A：即使说了你也不会信吧（说着解开了发带）B：诶？安洁用喷雾器把头发上的染料洗掉。整理了衣服。改变了发型。表情也变的温柔起来。在一边愉快地看着的D和在一边不知为何也很愉快地看着的P慢慢被吓到的B不到一会儿，安洁就变成了公主的样子。B：这……怎么可能……A：再次确认作战计划。仪式当天，我和公主互换后，贴身保护大臣。B：这、这不行。 只是外表相似也不能代理公主A：所以，教我吧。（看向公主）A：你的口癖，讨厌的东西，怎么称呼别人之类的<strong>餐厅</strong>吃饭的公主学着公主吃饭的安洁多萝西在一边指点，手肘抬高的方向不对之类的。<strong>化妆室</strong>笑着的公主在边上一样学着笑的安洁。<strong>浴室</strong>互相确认身上痣的位置的安洁和公主。在一边把下半脸埋进水中不满地看着她俩的贝阿特<strong>部室</strong>打开相册，面对面说话的P和AD和B也坐在一起P：这是@@卿（指着照片中的人物）P：我和他妹妹夏尔洛特小姐一起上的中学，一起出去玩过几次。安洁边听边记B：仪式当天，@@@大佐也会到来，咳……嗯……（按着喉咙）A：？B：失陪一下（快速地起身离开）剩下的人沉默D：我去厕所（轻飘飘地起身离开）一瞬间的沉默，安洁又像是没事一样继续作业A：我认识@@@大佐，大佐的称呼是按军衔叫还是叫姓？P：真顽固，只有我们两个人就别这样了嘛A：不行。不知道会不会有人偷听。P：贝阿特的话没事的哦，那个孩子，是个很好的人呢<strong>学生宿舍</strong>跑向宿舍的B。紧追的DD：（她想干什么？）<strong>部室</strong>A：决定了，直到破坏墙壁，我都会一直带着假面。P：那样会很寂寞的A：我一直都是没有自己的 “脸” 的人，这样只是变回原来而已。P沉默，又开始了别的话题P：这城堡里呢，全是谎言。做作的假笑，身边充满的欺瞒和诈骗。A：……？（在说什么？）P：话语，表情，就连身份，说多少慌都行。所以呢，我变得只会去看着别人的行动。比起只会在嘴上同情别人，实际去做了什么。做出笑脸，不去伤害任何人。A：同意，间谍的世界也是这样。P：所以啊安洁，是你来拯救我了。这份温柔，才是你真实的 “脸” 哦A：我，一点也不温柔。P：话语是会撒谎的，对自己也不例外A：……<strong>B</strong><strong>的房间</strong>B用工具，对脖子后面的机械作调整B：啊—啊— a i u e o总算变回了声音门外，从钥匙孔偷看的D起身D：是 “白” 的吗。真是的，间谍真是个烦人的生意呢<strong>A和D的房间（学生宿舍）</strong>穿着背心锻炼腹肌的D，A在记忆之前的笔记D还在怀疑着是谁把自己的身份泄露给公主的重新考虑着不能让安洁知道公主的事<strong>P</strong><strong>的房间</strong>取下P绷带的BB：（放下心来）愈合了呢P：太好了，这样就赶得上仪式了P：但是出席仪式的是安洁呢（苦笑）觉得不安的B，安慰着B的P看着这温柔的笑容，B在心中下了决心<strong>学校</strong>第二天，放学后<strong>体育用具室</strong>变妆成P的A ，衣服也是向P借来的，完全变成了P的样子B：这么会……D：真是太像了A：这是演习。先在学校中试演公主P：太厉害了，像在和镜子说话D：嘛…在学校的话，即使暴露了也有善后的方法。A：（变成公主的语气）那么，贝阿特，我们走吧。B：别那么随便叫，只有公主才能这么叫我A：是啊，贝阿特，现在我就是你的公主哦P：（温柔地）贝阿特B：……好吧，公主大人<strong>校内</strong>在校内走动的A和B女学生：早上好，公主A：你好（微笑着打招呼）<strong>校内</strong>遇到修女们的A和B修女：公主，明天的礼拜就拜托了A：好的，是赞美歌的312号吧<strong>校内</strong>与千世初次相遇的A她们<strong>内庭</strong>走动着的A和B ，周围没有旁人A：两小时，57人，没有人怀疑，回去吧，贝阿特丽丝B：……回答我（站在A前面）B：你是不是想要替代公主？A：你为什么会这么想？B：因为，与公主大人一模一样的间谍什么的，这太奇怪了！A：……是的，我就是来杀掉公主，取而代之的B：！？（震惊）B：……果然，但是……（拿出qiang）B：我来保护公主！（qiang口对准安洁）但是A却迅速地把qiang打飞A：我早就注意到你藏着qiang了（将B的手掰到身后，身体压向地面）然后却看见了B脖子后的机械A：机械？B：我是个残次品A放开了BB：没了这机械，我就说不了话B每次一说话，脖子上的机械就会精巧地动一下B：公主大人是对我来说最重要的人，因为她给了这样的我一个容身之处（站起身）B：如果公主大人出了什么事，我是绝对不允许的，绝对（瞪着安洁）A：……中CM
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 7战斗力 +7
@@ -21040,20 +14032,13 @@ Princess Principal第三话试验稿类型B2015/04/22本脚本是在制作阶段
 | 白房子| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 7018#       发表于 2017-10-4 01:48
-
-
 
 
 感谢翻译。
@@ -21069,27 +14054,15 @@ Princess Principal第三话试验稿类型B2015/04/22本脚本是在制作阶段
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7019#       发表于 2017-10-4 02:11
 
 
-
-
 未采用脚本设定安洁头发是染的，计划是高层提出来的。这个设定的好处是安洁头发颜色的千古之谜解决了，另外安洁由杀害公主计划的提出者改为接受者更加符合人物立场，从情理上来讲与十一集安洁惊慌失措的表现违和感更小一些。
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -21098,14 +14071,7 @@ Princess Principal第三话试验稿类型B2015/04/22本脚本是在制作阶段
 ##### 7020#       发表于 2017-10-4 02:30
 
 
-
-
 安洁头发一直是一个疑点，就好像C.C.的真名一样，就是故意那样的吧。反正不解释反而更吸引人<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21114,14 +14080,7 @@ Princess Principal第三话试验稿类型B2015/04/22本脚本是在制作阶段
 ##### 7021#       发表于 2017-10-4 02:31
 
 
-
-
 这就是抛弃一定的合理性，换来的娱乐性？<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21130,14 +14089,7 @@ Princess Principal第三话试验稿类型B2015/04/22本脚本是在制作阶段
 ##### 7022#       发表于 2017-10-4 03:11
 
 
-
-
 nico这次全话无料到10日，Twitter那边很多先前没看的日本朋友都一气补了。
-
-
-
-
-
 
 
 -----
@@ -21146,17 +14098,10 @@ nico这次全话无料到10日，Twitter那边很多先前没看的日本朋友�
 ##### 7023#       发表于 2017-10-4 08:10
 
 
-
-
 把第八集的那句你已经是公主了提前了那么多，可以确认大河内是按照一季度完结的节奏来构建剧本的，只差具体的润色修改了。看剧本上的说辞，这也是大河内提意见和建议的时机，所以别都把锅扣大河内身上啊，诚然大河内有时候的脑洞确实该毙了，但也可能有好的点子因监督或者制片人的选择被毙了
 
 
 说回来，为何最后是单元剧？和未使用的剧本来看，可以推测是企划更改的需要。然后大河内根据要求又把故事重新编排，保留了安洁和公主的线，然后其他都做成了角色回。本质手游片，本质卖角色，定位很清晰，不走伊泽塔那套一季的完整故事了。做好了能卖安洁公主，做不好可能整个都没人买账。而且按照任务case的方式，和游戏的玩法也是契合的，所以最后定下来就是这样吧
-
-
-
-
-
 
 
 -----
@@ -21165,23 +14110,16 @@ nico这次全话无料到10日，Twitter那边很多先前没看的日本朋友�
 ##### 7024#       发表于 2017-10-4 08:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37388455&amp;ptid=1486439" target="_blank">kos_mos 发表于 2017-10-4 03:11</a>
 
 nico这次全话无料到10日，Twitter那边很多先前没看的日本朋友都一气补了。</blockquote>
 起初的人气太低了，现在能这么好应该保持，官方也是挺有诚意
 
 
-
-
-
-
-
 -----
 
 ####  尚风悦  
 ##### 7025#       发表于 2017-10-4 08:45
-
 
 
 <blockquote>yjysrkl 发表于 2017-10-4 00:14
@@ -21191,16 +14129,10 @@ nico这次全话无料到10日，Twitter那边很多先前没看的日本朋友�
 正式版的第三话的任务太扯了，节奏也不尽人意，这个本子就是个正经任务了……
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7026#       发表于 2017-10-4 08:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37389090&amp;ptid=1486439" target="_blank">尚风悦 发表于 2017-10-04 08:45:33</a>
@@ -21211,16 +14143,10 @@ nico这次全话无料到10日，Twitter那边很多先前没看的日本朋友�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 7027#       发表于 2017-10-4 08:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37389128&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-10-4 08:53</a>
@@ -21229,16 +14155,10 @@ nico这次全话无料到10日，Twitter那边很多先前没看的日本朋友�
 买到碟子的观众肯定不是眼瞎吧，会知道大河内的好的啦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7028#       发表于 2017-10-4 09:02
-
 
 
  本帖最后由 xtwx1716 于 2017-10-4 09:07 编辑 
@@ -21250,28 +14170,18 @@ nico这次全话无料到10日，Twitter那边很多先前没看的日本朋友�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  yjysrkl  
 ##### 7029#       发表于 2017-10-4 09:31
 
 
-
 <strong>以下是Part B部分（后半）</strong><strong>庭园</strong><strong></strong>挤在一起的摄影师的镁光灯一齐亮了起来。被照相的是西边一方的大臣，和与他一起种树苗的公主（实则为安洁）。广播员：现在，公主用她娇贵的双手将树苗结实地种了下去。在播音员直播的庭园画面的后面，是高耸的帝国大厦。<strong>市郊</strong><strong></strong>停着一辆卡车从附近的电线杆上伸出一个缆线，连接着卡车里广播员的声音：为了欢迎@@大臣的纪念仪式<strong>车厢（卡车）</strong><strong></strong>广播员的声音：平安无事地结束了。西边的大臣也被公主那高贵的气质所折服。B和P听着广播D在操作窃听器（用外部的电话线强行接上的）广播员的声音：接下来，直到下一次的共同采访前，请听这个节目。铃铛的声音响起，下个节目开始了。B把广播关闭P：看上去没什么问题呢D：安洁说过没问题的，像她那样的优等生这么说的话……哦？接上了。说着D调节器了窃听器的拨盘混着杂音，听见了说话声。B：窃听什么的，是犯罪行为！P：但是，却很像间谍做的事（愉快地说）诺曼底公爵的声音（以下简称N）：船准备的怎么样了？P：！（惊讶）引航员的声音：很顺利。按照预定，@点@分出发。D：是港口的隐藏通信线吗？N：这是最后一次通信了，挂了。通信结束了。D：听上去好牛的大叔啊P：刚才的声音是……！？<strong>庭园</strong><strong></strong>从舞台上下来的安洁和大臣。拍手欢送的观众。A内心：到最后也什么都没发生啊。是看见这么高度的警备后放弃了吗？说着环视周围。庭园周围的建筑从上到下布满了卫兵卫兵：您辛苦了，公主卫兵：这之后，在帝国大厦的最上层，将进行共同采访。安洁看向在庭园后方耸立的帝国大厦。A：晚宴是采访之后？卫兵：是的，晚宴要移动到白金汉宫举行。<strong>车厢（卡车）</strong><strong></strong>D：好了，要开车了哦（站起）D：最好在共同采访结束之前进入帝国大厦的停车场。P：是在晚宴开始之前换回来吧D：在晚宴上，贵族的数量会增多，和有流程的仪式不同，晚宴的难度高。B：当然了，那种临时抱的佛脚，是不可能一直取代公主的D内心：确实现在还不行，但安洁的话说不定……D：我去把电话线切了（从车厢出去）<strong>帝国大厦最上层</strong><strong></strong>视野超级开阔的楼层南面的墙壁是一整面玻璃窗背对着玻璃窗，是公主和西边大臣接受采访的位置。记者席已经被记者占据，话筒也布置好了。这时，安洁注意到了敌人的陷阱。工作人员说着电梯不能动了是故障码这样的话。安洁去看了紧急出口，发现也已经锁上了。A内心：被锁起来了吗？只是这样的话暗杀是不会成功的。毒气？不对，打破窗户就能解决。如果是大部队杀入，也没有必要将我们锁起来……脑内进行着高速推理A的视线朝着一整面的大玻璃窗看去。从那里看出去的天空中，飞浮着几艘飞行船。其中一艘飞行船正缓缓地调头，冲着这里飞来。A内心：特攻？难道连会场里的其它人也要一起卷进来吗！？（愕然）分析状况的A。情形非常不利。并没有与飞行船对抗的手段。如果这样，就只能想办法逃出去了。但是逃跑路线也已经被封锁。如果引爆飞行船里的氢气（敌人确实是准备引爆氢气），大厦周围也会受到巨大的破坏。这种情况下不可能再让公主过来。怎么办，安洁，快想办法，快想办法，快想办法。<strong>车厢（卡车）</strong><strong></strong>由于D出去了，只剩下B和P。P：对不起，贝阿特，让你也一起说谎。B：没关系。公主大人没有做错，安洁才是坏人。P为难地笑了P：安洁是坏人？B：是的，因为…… 回想场景A：我是来杀公主，然后取而代之的。回想结束 B：她是自己这么说的。P：我说，贝阿特，你想想安洁来这之后发生的事。B：她代替了公主。P：是啊，也正因如此，我才能确保安全。B：您偏袒了这些间谍，所以才从阳台上摔下去了。P：那是我自己做的，而且，安洁她第一时间就冲过来救我了。B：！（震惊） 第二话回想场景为了就从阳台上掉下去的P，飞身冲来的A。那时A的表情，是B唯一见到过的，如此拼命的样子。回想结束 P：单从安洁做的事来判断，她一定不是我们的敌人。B：……窃听器突然响起。B：诶！？爬上电线杆准备切断电话线的D，听见了呼叫的声音回了头D：打来电话了？窃听器还在响着。盯着话筒的P（一定是A打来的）B：怎、怎么办，公主。P接起话筒。P：是安洁吧。 <strong>采访会场（帝国大厦最上层）</strong>会场的角落。使用电话的A。A：公主？你怎么知道是我？P的声音：如果是安洁的事，我肯定知道啊D的声音：喂，是安洁吗<strong>车厢（卡车）</strong><strong></strong>D回到了车厢里D：发生不寻常的事了吗？P：我们现在正要往你那里去，有什么需要的吗？A静静地吸了口气（为说谎做准备）A：没有需要，连公主也不需要。P：诶？D：你说啥？A：我超出想象地完美扮演了公主。现在决定就这样让我继续参加晚宴也没事。B：替代公主什么的，没有这么简单的事！D：别擅自改变作战计划啊，突然这样的话风险太大了。A看着窗外——渐渐靠近的飞行船，十分焦急。A：在会场附近再次进行互换风险才高。D：所以说，你别擅自决定，我可不是你安洁的部下啊A：替换作战没了我根本就不成立。鼓起嘴的DD：是啊是啊，我才是可有可无的人啊。（挂断电话）<strong>帝国大厦最上层</strong><strong></strong>A：这样就行了回过头看向了慢慢靠近南面一整面玻璃墙的飞船。A：之后，就看我的了<strong>车厢（卡车）</strong><strong></strong>B：就这样让她胡闹吗？这么简单就让她替代公主……D：安洁的话，能做到的（鼓着脸生气）D：虽然不甘心，但那家伙是完美的。不管是上课还是任务。B：……P：安洁说谎了。B：诶！？D：公主大人啊，那家伙是个间谍啊，最擅长的就是说谎了。P：但是，我是明白的。 <strong>天空</strong><strong></strong>飞行船朝着帝国大厦飞来。 <strong>帝国大厦最上层</strong><strong></strong>记者们：“喂，看啊”，“那个飞行船在搞什么”，“要撞上了啊”注意到了飞船，引起了骚动卫兵：请冷静，冷静一下从安抚记者们的卫兵那里安洁偷出了蒸汽朋克样式的qiang <strong>车厢（卡车）</strong><strong></strong>P：安洁是为了不让我们去会场才这么说的D：是为了我们好？P：是的。有个笼罩全会场的大危机正在接近安洁。多萝西さん，你应该也能明白吧？D：你这么说我也不懂啊……（烦恼） D回想场景N的声音：船准备的怎么样了？回想结束 D：那原来不是水里的船，是空中飘的船啊！P：是飞行船吗？D：敌人要用飞行船撞整个大厦啊B：不可能的。这么做的话，连公主也会卷进去的。P：不，他们就是冲着这个去的。B：什么？P：刚才的通话，发出指令声音，是我的叔父。B：难道是，诺曼底公爵！？P：如果我不在的话，叔叔他就是王位第一继承人了。 <strong>帝国大厦最上层</strong><strong></strong>记者们挤向了紧急出口记者们：喂，这门打不开啊！怎么办啊！A一个人，走到了空无一人的窗前，面对着正面飞来的飞行船，准备迎接挑战般地站着。A：还不能放弃A用蒸汽朋克样式的qiang朝着飞行船射击。玻璃窗被打碎，风一下子吹了进来。 <strong>驾驶舱（飞行船）</strong><strong></strong>管制官像悲鸣一般的通话重复播放着。管制官的声音：这片区域是禁飞区，请立即返航，这里已经准备好迎击，这不是威胁。但是时飞行员却像没听见一样，开始准备起了降落伞。 <strong>车厢（卡车）</strong><strong></strong>吵闹的D她们，正在讨论救A的方法。B：不能打下来吗？D：别胡说了，能做到的话安洁早就做了。P：说真正的公主在这里的话怎么样？D：不会相信的吧，而且，他们也要杀大臣的。B：你是专家啊，多萝西さんD：我是身体派的啊，动脑子是安洁的任务（烦恼）P：我和叔叔通话吧向窃听器伸出手P：告诉他在那里的不是我。D：从这种路线打去的电话他是不可能接的。B：多萝西，请调到刚才频率数（说着取出了小工具）D：你想干嘛？B：发出命令，让他们返航。（说着打开了后脖子，开始调节机械）D：你傻啊，你怎么可能发出命令……B：（男人的声音）这样就好了。D：啊！？B调整着N的声音B：因为我的声音全是人造的。P：太棒了，贝阿特。（对B微笑）D慌忙地的调节窃听器，把话筒交给了BB：（以下全是N的声音）终止作战！ <strong>操作席（飞行船）</strong><strong></strong>N的声音：快返航。已经准备跳伞的飞行员十分困惑飞行员：这是……N的声音：没听见吗，这是紧急情况。 <strong>帝国大厦最上层</strong><strong></strong>飞行船没改变路线，越来越接近大厦。A从口袋里取出了小型C球。A：虽说用小型C球从这里跳还不行…启动了C球的A <strong>车厢（卡车）</strong><strong></strong>B：快把飞船飞回来，这是命令。 <strong>天空</strong>没改变路线的飞船，越来越近 <strong>帝国大厦最上层</strong><strong></strong>飞船已经要到眼前了。A：公主，如果不行的话……对不起。（向前迈出步） <strong>车厢（卡车）</strong><strong></strong>P：贝阿特，叔叔说话如果情绪高昂的话，会用女性语气的B小小地吸了口气B：你这家伙！我说了让你返航了呀！ <strong>操纵席（飞行船）</strong><strong></strong>被吓到了的飞行员 <strong>上空</strong><strong></strong>飞行船缓缓改变了行进方向。 <strong>帝国大厦最上层</strong><strong></strong>A：诶！？记者们：喂，看啊  飞走了  搞什么啊吓人A内心：得救了，但是……D驾驶着卡车从刚才种树的庭园进来，副驾驶席上P在大大地招手A：公主！？B和D慌忙地把P拉了回来（被看见了怎么办！）A：你啊……微微的苦笑（这是这几话里安洁第一次笑颜） <strong>学校</strong><strong></strong>第二天，平和的气氛 <strong>部室</strong><strong></strong>围坐着桌子，A她们在写这次任务的报告书。B：这任务报告书是什么啊！（对安洁生气）B：这个“战术欺瞒兵器”是在说我吗！？A：准确的说，是说你可以自如变换声音的喉咙。B：请别把人说的像机器一样好吗，说起来，你这个人……（说着声音出现了不稳，机械的状态不是很好）B慌忙地找着工具，不过好像放在房间里了。B：（奇怪的声音）公主，我好像把工具放在房间里了。P：这没关系了，你去吧。B行了一礼，瞪了一眼A，然后出去了。A：……D：你被彻底讨厌了啊P：不是这样哦A&amp;D：？P：A的杯子，是贝阿特选的哦安洁眼前放着一个可爱黑猫的茶杯。D：哦——（重新审视）P：我说过的吧，贝阿特是个好孩子。 <strong>通往学生宿舍的路上</strong><strong></strong>快步走着的B，听见有人叫而回头D从后面追了上来。 <strong>部室</strong><strong></strong>P：多萝西也是个好人呢A：都过了20岁了，是个大人了。（察觉到接近自己身边的P）A：太近了（远离）P：反正也没人看见A：就怕万一，要注意细节。P：这样啊，关于这件事，我想到了一个好的作战计划。（可爱地敬了一个礼）A：作战？P：我和安洁虽然是第一次见，但从见面那天开始就意气相投，成为了闺蜜。（非常认真地说）A呆住了，情不自禁地笑了出来A：哈、哈哈哈P：你笑了！安洁你笑了！A：还不是因为你这么正经地说这些P：笑了，安洁笑了啊看上去十分幸福的俩人 <strong>暗</strong><strong></strong>昨天仪式的新闻一整面是向民众挥手的公主（实则为A）的照片。巨大的桌子边坐着N和N的部下部下甲：公主的演讲，好像对西边传达了非常大的好感部下乙：让英国统一的新气象什么的，女神什么的部下丙：对于继承着传统的我们王国来说，不得不说是个危险人物。N：我们王室谍报部，从现在起，将公主列为特一级危险对象开始监视。 END
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +2
@@ -21282,12 +14192,7 @@ nico这次全话无料到10日，Twitter那边很多先前没看的日本朋友�
 | 堆雪若叶| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -21296,17 +14201,10 @@ nico这次全话无料到10日，Twitter那边很多先前没看的日本朋友�
 ##### 7030#       发表于 2017-10-4 09:55
 
 
-
-
 果然跟诺曼底的矛盾一开始就非常的尖锐了…这个版本的诺曼底真的把公主当作对手来看，而实际版本则根本没有放在眼里…
 b part各有千秋吧，没有安洁躲子弹、安洁听电话，神棍感减弱了；但是相对的诺曼底作为boss的逼格降低了，变成了感觉是一季可以解决的敌人，有些落入俗套
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -21315,16 +14213,9 @@ b part各有千秋吧，没有安洁躲子弹、安洁听电话，神棍感减�
 ##### 7031#       发表于 2017-10-4 09:57
 
 
-
-
 另外最后安洁和公主的对话看起来像是第四话的简化版？
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -21333,14 +14224,7 @@ b part各有千秋吧，没有安洁躲子弹、安洁听电话，神棍感减�
 ##### 7032#       发表于 2017-10-4 10:04
 
 
-
-
 我更喜欢这个第三话....
-
-
-
-
-
 
 
 -----
@@ -21349,17 +14233,10 @@ b part各有千秋吧，没有安洁躲子弹、安洁听电话，神棍感减�
 ##### 7033#       发表于 2017-10-4 10:24
 
 
-
-
 对了，原设里边公主就是第一继承人，所以主线任务就是干死诺曼底保命而已，根本不存在现在版本里“如何当女王”这个最尖锐的矛盾…
 现在这个版本对公主为当女王做出的努力基本没怎么提，恐怕跟这个原设不无关系
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -21368,14 +14245,11 @@ b part各有千秋吧，没有安洁躲子弹、安洁听电话，神棍感减�
 ##### 7034#       发表于 2017-10-4 10:26
 
 
-
  本帖最后由 Norn 于 2017-10-5 20:34 编辑 
 
 人肉翻一下BD booklet里系构的访谈,水平有限随便看看,感谢tmpfs坛友提供扫图 _(:з」∠)_
 
 ※原图:[https://wx2.sinaimg.cn/large/62e33a99gy1fk4l7n7z9pj21kw18v1kx.jpg](https://wx2.sinaimg.cn/large/62e33a99gy1fk4l7n7z9pj21kw18v1kx.jpg)
-
-
 
 
 少女们为何组队──从这个理由开始思考
@@ -21494,13 +14368,9 @@ b part各有千秋吧，没有安洁躲子弹、安洁听电话，神棍感减�
   我想本作能让大家这么上心,应该是托了各位staff的福.像监督和白土先生的认真制作,还有美术方面的说服力等等.记得当初制片人他们也提过,想让本作成为能让观众重复观看的作品,能见到观众这样的反应真的很让人高兴啊.本作想做的就是那种,粗看一遍不多想就能得到乐趣,而认真地看,重复地看能不断发现更多乐趣的作品.
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 3战斗力 +3
@@ -21512,19 +14382,13 @@ b part各有千秋吧，没有安洁躲子弹、安洁听电话，神棍感减�
 | 白房子| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  尚风悦  
 ##### 7035#       发表于 2017-10-4 10:37
-
 
 
 <blockquote>yjysrkl 发表于 2017-10-4 09:31
@@ -21534,17 +14398,10 @@ b part各有千秋吧，没有安洁躲子弹、安洁听电话，神棍感减�
 这个版本也好有趣啊
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 7036#       发表于 2017-10-4 11:30
-
-
 
 
 感谢未采用脚本的翻译。
@@ -21554,16 +14411,10 @@ b part各有千秋吧，没有安洁躲子弹、安洁听电话，神棍感减�
 另外既然是保持这样以单元剧为表面主线稳步推进的话，看来这个剧本果然做好了一季完结的准备吧。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 7037#       发表于 2017-10-4 11:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37389513&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-10-4 09:55</a>
@@ -21572,25 +14423,13 @@ b part各有千秋吧，没有安洁躲子弹、安洁听电话，神棍感减�
 所以改成第四继承人了
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 7038#       发表于 2017-10-4 11:37
 
 
-
-
 看来大河内的思路还是比较清晰的啊，就是有时候会开个脑洞
-
-
-
-
-
 
 
 -----
@@ -21599,16 +14438,10 @@ b part各有千秋吧，没有安洁躲子弹、安洁听电话，神棍感减�
 ##### 7039#       发表于 2017-10-4 11:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37390193&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-10-04 11:32:12</a>
 所以改成第四继承人了</blockquote>第一继承人的话就肯定不能说是空气公主了，剧本的难点在于如何让幼年交换和替换作战成立；第四继承人设定剧本的难点在于如何打败其他竞争者当上女王。现在从第一季来看算是回避了这个难点
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -21617,16 +14450,9 @@ b part各有千秋吧，没有安洁躲子弹、安洁听电话，神棍感减�
 ##### 7040#       发表于 2017-10-4 12:23
 
 
-
-
 果然prpr这样完结是最好的，可以承上启下，碟子销量也不错，还有手游可以看可爱的白鸽小队
 
 可怜的伊泽塔虽然故事讲好了不过人气好低，bd里面的吉野访谈都没人翻译……
-
-
-
-
-
 
 
 -----
@@ -21635,19 +14461,10 @@ b part各有千秋吧，没有安洁躲子弹、安洁听电话，神棍感减�
 ##### 7041#       发表于 2017-10-4 12:29
 
 
-
-
 P：太棒了，贝阿特。（对B微笑）
 
 
-
-
 公主对着听到自己的命令后，羞红了脸并不得已解开睡衣的比阿特说道。
-
-
-
-
-
 
 
 -----
@@ -21656,24 +14473,16 @@ P：太棒了，贝阿特。（对B微笑）
 ##### 7042#         楼主| 发表于 2017-10-4 13:59
 
 
-
-
 橘正紀 Masaki Tachibana‏ @tachicol_  
 
  Ｍy turtledove!
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fk66btj55fj20xc0op76j.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 7043#       发表于 2017-10-4 14:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37391372&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-10-4 13:59</a>
@@ -21684,16 +14493,10 @@ P：太棒了，贝阿特。（对B微笑）
 这嘴也太<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 7044#       发表于 2017-10-4 14:24
-
 
 
  本帖最后由 aptx8285144 于 2017-10-4 14:26 编辑 
@@ -21705,16 +14508,10 @@ P：太棒了，贝阿特。（对B微笑）
 因为伊泽塔不像prpr那种在商业上迎合观众，他们走的可是一条更艰难的道路<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，不过业界没有超人幻想和伊泽塔这种类型的剧本（个人认为rec如果把表现能力拉上去的话，也是很有潜力的）也是不行的，有些事情总要有人去做吧
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 7045#       发表于 2017-10-4 14:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37389513&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-10-4 09:55</a>
@@ -21723,16 +14520,10 @@ P：太棒了，贝阿特。（对B微笑）
 实际版本是半路有所警惕吧，千世初次登场时候已经想让公主卷入暗杀的混乱了
 
 
-
-
-
-
-
 -----
 
 ####  bamboom  
 ##### 7046#       发表于 2017-10-4 15:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37391533&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-10-4 14:24</a>
@@ -21741,16 +14532,10 @@ P：太棒了，贝阿特。（对B微笑）
 伊泽塔部分情节还是比较迎合观众的，不过一季完结不好配套营销，手办都只有伊泽塔没有大公……就……很惨
 
 
-
-
-
-
-
 -----
 
 ####  tmpfs  
 ##### 7047#       发表于 2017-10-4 15:57
-
 
 
 <blockquote>像『007』等优秀作品,就成功让间谍题材作为一个专门的类型片而存在.即是说,这个类型本身就有着许多能吸引观众让其可以立足的娱乐元素.因此,我在本作中积极地加入了各种既存的间谍片元素,像是飙车戏啊互骗啊色诱啊变装啊等等,这些既是间谍的基本技能,本身又是很有趣的东西,
@@ -21763,16 +14548,10 @@ P：太棒了，贝阿特。（对B微笑）
 这就是为什么间谍情报战变成了少女间谍的日常，因为他本来就不会写情报战。他擅长写的是人物驱动型故事，而间谍剧需要的是剧情驱动型故事。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7048#       发表于 2017-10-4 16:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37392170&amp;ptid=1486439" target="_blank">tmpfs 发表于 2017-10-04 15:57:31</a>
@@ -21781,16 +14560,10 @@ P：太棒了，贝阿特。（对B微笑）
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  间咒  
 ##### 7049#       发表于 2017-10-4 16:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37391533&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-10-4 14:24</a>
@@ -21799,16 +14572,10 @@ P：太棒了，贝阿特。（对B微笑）
 伊泽塔在剧情平稳的情况下已经很大限度的去迎合百合厨，销量惨淡只是因为百合厨战五渣罢了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  tmpfs  
 ##### 7050#       发表于 2017-10-4 16:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37392366&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-10-4 16:26</a>
@@ -21820,16 +14587,10 @@ P：太棒了，贝阿特。（对B微笑）
 必须引用这个访谈是要解答这个问题：该系构到底会不会写间谍剧情。上次发在网站上的那个访谈还不太说明问题。这次这个访谈大致就体现出来他大抵是不会写的，间谍戏一般要剧情先行，把剧情框架构建好了再来完善人物，他做的事情是试图把间谍要素揉合在一个美少女日常的内核上，以间谍戏的标准来看是流于表面。不过以日常系的标准来看是高于平均，因此这个肯定在日本大卖，不过同时就挫伤了一部分西方趣味的观众的期望。
 
 
-
-
-
-
-
 -----
 
 ####  暗黑能乐  
 ##### 7051#       发表于 2017-10-4 17:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37391508&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-10-4 14:21</a>
@@ -21838,17 +14599,10 @@ P：太棒了，贝阿特。（对B微笑）
 那是薯片<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  bamboom  
 ##### 7052#       发表于 2017-10-4 17:14
-
-
 
 
 yuyuyu1卷的初动4k+累计1w
@@ -21856,16 +14610,10 @@ yuyuyu1卷的初动4k+累计1w
 不知道prpr第一卷能不能卖到一万
 
 
-
-
-
-
-
 -----
 
 ####  whn1103  
 ##### 7053#       发表于 2017-10-4 17:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37392439&amp;ptid=1486439" target="_blank">tmpfs 发表于 2017-10-4 16:35</a>
@@ -21875,32 +14623,19 @@ yuyuyu1卷的初动4k+累计1w
 —— 来自 OnePlus A0001, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  ardito  
 ##### 7054#       发表于 2017-10-4 18:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">原案剧本这么早就用上诺曼底公的声音来处理事件，也太容易暴露了
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 7055#       发表于 2017-10-4 18:30
-
-
 
 
 今天日榜
@@ -21915,32 +14650,19 @@ OST未上榜
 明天开始可以不用看了w
 
 
-
-
-
-
-
 -----
 
 ####  尚风悦  
 ##### 7056#       发表于 2017-10-4 18:33
 
 
-
-
 话说这是日语文化还是确实是什么特点……诺曼底公这个女性腔调很有意思啊
-
-
-
-
-
 
 
 -----
 
 ####  aptx8285144  
 ##### 7057#       发表于 2017-10-4 19:22
-
 
 
 <blockquote>间咒 发表于 2017-10-4 16:32
@@ -21950,16 +14672,10 @@ OST未上榜
 多萝西：所以现在的数据是我的功劳（
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 7058#       发表于 2017-10-4 19:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37393416&amp;ptid=1486439" target="_blank">白房子 发表于 2017-10-4 18:30</a>
@@ -21972,16 +14688,10 @@ DVD未上榜</blockquote>
 不是说后劲可以吗？。。不过估计后续会右了。。这就是结局太稳的锅<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7059#       发表于 2017-10-4 19:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37393799&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-10-04 19:22:37</a>
@@ -21992,16 +14702,10 @@ DVD未上榜</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 7060#       发表于 2017-10-4 19:40
-
 
 
 <blockquote>Norn 发表于 2017-10-4 10:26
@@ -22011,26 +14715,15 @@ DVD未上榜</blockquote>
 观众看片之前应该也知道是间谍类型的片，认识到间谍会杀死一个人就不需要了吧，就算是女仆和公主也只是战斗力不足而不是不会....
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 7061#       发表于 2017-10-4 19:47
 
 
-
 <blockquote>神之叹息 发表于 2017-10-4 19:24
 不是说后劲可以吗？。。不过估计后续会右了。。这就是结局太稳的锅 ...</blockquote>
 说起太稳，我想起其它地方一个读者的戏称：最终话的风格已经不像是害怕大河内搞事而把他藏起来，而像是干脆把他干掉后，结果却发现稳过了头....
-
-
-
-
-
 
 
 -----
@@ -22039,14 +14732,7 @@ DVD未上榜</blockquote>
 ##### 7062#       发表于 2017-10-4 19:50
 
 
-
-
 想起一件事，之前官方是不是否认会有海边福利之类的东西？我看到有人是这么说的，然后最终话却发现有福利....
-
-
-
-
-
 
 
 -----
@@ -22055,16 +14741,10 @@ DVD未上榜</blockquote>
 ##### 7063#       发表于 2017-10-4 19:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37393440&amp;ptid=1486439" target="_blank">尚风悦 发表于 2017-10-04 18:33:11</a>
 话说这是日语文化还是确实是什么特点……诺曼底公这个女性腔调很有意思啊 ...</blockquote>一看到诺曼底的女性语气我就喷了，隐隐约约觉得按照原设这货会跟美马一样最后low炸天
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -22073,23 +14753,16 @@ DVD未上榜</blockquote>
 ##### 7064#       发表于 2017-10-4 19:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37393812&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-10-04 19:24:33</a>
 不是说后劲可以吗？。。不过估计后续会右了。。这就是结局太稳的锅</blockquote>官方应该尽快宣布后续企划刺激下粉丝，如果他们真的想续这个故事的话…<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在这个结局除了让我说出“等二期”以外几乎找不到什么可以继续谈论的话题，这样热度会降温的很快的
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  立花亚梨子  
 ##### 7065#       发表于 2017-10-4 20:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37394010&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-10-4 19:50</a>
@@ -22111,26 +14784,15 @@ DVD未上榜</blockquote>
 有说过不给福利吗?只是说那时的泳装不能看吧.
 
 
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 7066#       发表于 2017-10-4 20:15
 
 
-
 <blockquote>神之叹息 发表于 2017-10-4 19:24
 不是说后劲可以吗？。。不过估计后续会右了。。这就是结局太稳的锅 ...</blockquote>
 今天发售大潮 战姬动画区第十都没上综合top30
-
-
-
-
-
 
 
 -----
@@ -22139,16 +14801,10 @@ DVD未上榜</blockquote>
 ##### 7067#       发表于 2017-10-4 20:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37393991&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-10-4 19:47</a>
 
 说起太稳，我想起其它地方一个读者的戏称：最终话的风格已经不像是害怕大河内搞事而把他藏起来，而像是干 ...</blockquote>
 按原剧本来走估计吃鸡很多，但如果监督驾驭不了节奏的话会很糟糕。也就谷口能做到了，橘正纪还差点火候，求稳选择了这样的结局
-
-
-
-
-
 
 
 -----
@@ -22157,24 +14813,16 @@ DVD未上榜</blockquote>
 ##### 7068#       发表于 2017-10-4 20:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37394062&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-10-4 19:56</a>
 
 官方应该尽快宣布后续企划刺激下粉丝，如果他们真的想续这个故事的话…现在这个结局除了让我说出“ ...</blockquote>
 也就真喜欢的会入全卷了，很多还是支持一下第一卷而已吧
 
 
-
-
-
-
-
 -----
 
 ####  立花亚梨子  
 ##### 7069#       发表于 2017-10-4 20:22
-
-
 
 
 有二期消息也讨论不出个啥啊.
@@ -22186,16 +14834,10 @@ DVD未上榜</blockquote>
 所以这片现在的讨论不热烈我觉得不奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 7070#       发表于 2017-10-5 00:01
-
 
 
  本帖最后由 aptx8285144 于 2017-10-5 00:17 编辑 
@@ -22208,16 +14850,10 @@ DVD未上榜</blockquote>
 但是间谍定位的角色不说杀人，至少对敌人开麻醉qiang之类的应该是家长便饭一样的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">（想起了当年推理之绊的女主以及自己正在补的另一个剧本里开火后最终帅气地倒下的那个人也是）
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 7071#       发表于 2017-10-5 00:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37394236&amp;ptid=1486439" target="_blank">立花亚梨子 发表于 2017-10-4 20:22</a>
@@ -22228,16 +14864,10 @@ DVD未上榜</blockquote>
 已经很热烈了，至少泥谭在一期一个季番已经讨论了200多页<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，去年荒川主持的8科作为半年番才54页，黑田4月主持的系列也才勉强到百页
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7072#       发表于 2017-10-5 00:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37395779&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-10-5 00:10</a>
@@ -22246,16 +14876,10 @@ DVD未上榜</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">虽然过气的更快！
 
 
-
-
-
-
-
 -----
 
 ####  立花亚梨子  
 ##### 7073#       发表于 2017-10-5 00:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37395779&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-10-5 00:10</a>
@@ -22269,17 +14893,10 @@ DVD未上榜</blockquote>
 我说的"现在"是指完结后不是播放中.再说我指的也不是泥潭,而是包括11区内的各bbs,现在的讨论真不高.
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7074#       发表于 2017-10-5 00:36
-
-
 
 
 没得说是必然的啊，这结局让之前关于剧情走向的脑洞全完蛋，二期不但具体走向完全不知道，现在连有没有都是个问题了…
@@ -22288,16 +14905,10 @@ DVD未上榜</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 7075#       发表于 2017-10-5 00:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37395870&amp;ptid=1486439" target="_blank">立花亚梨子 发表于 2017-10-5 00:24</a>
@@ -22308,16 +14919,10 @@ DVD未上榜</blockquote>
 安洁说不是杀手应该是表明以达到任务目的为第一，而杀死敌人或者干掉背叛了的同伴都只是一种手段（突然想起最终话共和国的同僚指责她抛弃计划时候，心情有点微妙，当然感情上完全理解）
 
 
-
-
-
-
-
 -----
 
 ####  立花亚梨子  
 ##### 7076#       发表于 2017-10-5 01:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37395969&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-10-5 00:40</a>
@@ -22326,16 +14931,10 @@ DVD未上榜</blockquote>
 间谍不是杀手,杀人只是完成任务的手段之一,有用的也有不用的.而第1集只是告诉你主角是需要用的那种,仅此而已.而且从原文的意思看,这片既然设了比阿特那种角色,就是有考虑到不懂间谍的那部分观众,在这些人眼里没有所谓的"理所当然",全要靠主角们的具体行为来判断.
 
 
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 7077#       发表于 2017-10-5 02:06
-
 
 
 <blockquote>立花亚梨子 发表于 2017-10-5 00:24
@@ -22345,17 +14944,10 @@ DVD未上榜</blockquote>
 你倒是看看这段时间都在讨论啥 兽娘 魔禁3 刀剑3。。。  毕竟本质冷门番  sns好歹前三了
 
 
-
-
-
-
-
 -----
 
 ####  bamboom  
 ##### 7078#       发表于 2017-10-5 02:24
-
-
 
 
 之前觉得公主最后的嘴炮应该在感情牌后加上对于反叛军处境的论述和对当前局势的分析，这样能够表现公主的政治敏感度和政治觉悟。但后来想了想果然还是动画里面的表现最合适，泽尔达精明强势，如果表现出自己的才能和敏锐程度会被她直接一枪崩掉，对付没有周密计划的莽夫叛军还是动之以情比较妥当。虽然制作组肯定不是这么想的，不过这样一脑补最终话还算是可以的嗯……
@@ -22364,16 +14956,10 @@ DVD未上榜</blockquote>
 另，泽尔达虽然她打了公主一枪，不过业务能力方面相当老到，是个对得起主角的合格反派，我还挺喜欢她的。其实她的衣服和腿也挺好看的……头看就了也有一种迷之美感
 
 
-
-
-
-
-
 -----
 
 ####  萝莉的伙伴  
 ##### 7079#       发表于 2017-10-5 07:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37394010&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-10-4 19:50</a>
@@ -22384,17 +14970,10 @@ DVD未上榜</blockquote>
 阵亡小哥存在感太高了。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 7080#       发表于 2017-10-5 08:12
-
-
 
 
 虽然大河内不精通间谍的知识，不过他能把别人教授的专业东西写出娱乐性，我就觉得不错了，这才是请他来的原因。把角色塑造融入间谍任务里，我们是间谍，怎么看正常人都不会这样说，因为不真实，但就是刻意制造这种感觉。
@@ -22408,17 +14987,10 @@ DVD未上榜</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 7081#       发表于 2017-10-5 08:19
-
-
 
 
 泽尔达如果长得不那么死鱼眼，估计也得圈一波粉。不过这样就没有和主角有区别了。
@@ -22430,16 +15002,10 @@ DVD未上榜</blockquote>
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  迪门修斯  
 ##### 7082#       发表于 2017-10-5 08:32
-
 
 
 <blockquote>神之叹息 发表于 2017-10-5 08:19
@@ -22452,16 +15018,10 @@ DVD未上榜</blockquote>
 特征扁平化的人物设计这样做我认为既规避了政确又降低了观众的负面感受应该算巧妙之处吧
 
 
-
-
-
-
-
 -----
 
 ####  望月凝香  
 ##### 7083#       发表于 2017-10-5 08:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37396981&amp;ptid=1486439" target="_blank">迪门修斯 发表于 2017-10-5 08:32</a>
@@ -22472,16 +15032,10 @@ DVD未上榜</blockquote>
 既然帝国被推测有相当法国成分，那就是来自北非殖民地的呗。
 
 
-
-
-
-
-
 -----
 
 ####  迪门修斯  
 ##### 7084#       发表于 2017-10-5 09:22
-
 
 
 <blockquote>神之叹息 发表于 2017-10-5 08:19
@@ -22494,16 +15048,10 @@ DVD未上榜</blockquote>
 从她和公主对阵不降智动手果断来看，如果有自己的山头当门神级boss绰绰有余。求您千万别被主角队收编，这年头当好一个有个人意志的反派不易
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 7085#       发表于 2017-10-5 09:30
-
 
 
 <blockquote>bamboom 发表于 2017-10-5 02:24
@@ -22515,16 +15063,10 @@ DVD未上榜</blockquote>
 她的眼睛让我觉得不舒服...论颜值还是公爵的秘书好点...
 
 
-
-
-
-
-
 -----
 
 ####  大厨麦当牛  
 ##### 7086#       发表于 2017-10-5 09:32
-
 
 
 <blockquote>迪门修斯 发表于 2017-10-5 09:22
@@ -22534,16 +15076,10 @@ DVD未上榜</blockquote>
 应该是刮了眉毛，面相凶狠的那种太妹。
 
 
-
-
-
-
-
 -----
 
 ####  bamboom  
 ##### 7087#       发表于 2017-10-5 17:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37397252&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-10-5 09:30</a>
@@ -22552,17 +15088,10 @@ DVD未上榜</blockquote>
 虽然大部分时间，尤其是手游里面泽尔达的眼睛很小看着不好看，但是有几卡眼睛大了点，看上去就比较……可爱……p站也有个人画的泽尔达id=65268847还不错
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7088#       发表于 2017-10-5 17:50
-
-
 
 
 Princess Principal游戏全剧情翻译_萌战吧@3gokumuso
@@ -22574,26 +15103,15 @@ Princess Principal游戏全剧情翻译_萌战吧@3gokumuso
 期待已久的剧情终于来了。本次任务的目标人物想要逃亡至摩洛哥，而这里也是安洁最后的栖息地——卡萨布兰卡的白房子所在之地。安洁接到任务后会有何打算呢？会再一次想带着公主私奔吗？而公主又会如何应对安洁呢？
 
 
-
-
-
-
-
 -----
 
 ####  问楫  
 ##### 7089#       发表于 2017-10-5 17:52
 
 
-
 <blockquote>bamboom 发表于 2017-10-5 17:24
 虽然大部分时间，尤其是手游里面泽尔达的眼睛很小看着不好看，但是有几卡眼睛大了点，看上去就比较……可 ...</blockquote>
 那货实在是……太像……鲸头鹳了……
-
-
-
-
-
 
 
 -----
@@ -22602,14 +15120,7 @@ Princess Principal游戏全剧情翻译_萌战吧@3gokumuso
 ##### 7090#       发表于 2017-10-5 19:16
 
 
-
-
 听说手游的剧情和动画的有冲突了？看来两边的人员是要打一架才能达成共识了？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22618,12 +15129,10 @@ Princess Principal游戏全剧情翻译_萌战吧@3gokumuso
 ##### 7091#       发表于 2017-10-5 21:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37401118&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-10-5 19:16</a>
 
 听说手游的剧情和动画的有冲突了？看来两边的人员是要打一架才能达成共识了？ ...</blockquote>
 我觉得看剧情自己理解吧会比较直观一点……
-
 
 
 冲突点是本次手游第六章剧情开篇多余了一句这次故事发生在一次小革命事件前，此刻还有一个细节是「被二人与三人的少女所阻止」。
@@ -22644,17 +15153,10 @@ Princess Principal游戏全剧情翻译_萌战吧@3gokumuso
 其实也可以勉强解释手游这句话所说的革命是动画剧情之后另外的革命，这样本次剧情的冲突也就不存在了。所以在官方后续企划出现之前，还是请各位自行判断吧。
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7092#       发表于 2017-10-5 21:46
-
-
 
 
 其实比起改动画剧本，改手游剧本才比较现实吧？
@@ -22666,18 +15168,10 @@ Princess Principal游戏全剧情翻译_萌战吧@3gokumuso
 所以我认为动画不会按照游戏的步调来走的，只能让手游迎合动画的节奏。（←好像之前也说过类似的话）
 
 
-
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 7093#         楼主| 发表于 2017-10-6 13:12
-
-
 
 
 橘正紀 Masaki Tachibana‏ @tachicol_  
@@ -22686,33 +15180,19 @@ Princess Principal游戏全剧情翻译_萌战吧@3gokumuso
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fk8g6dwu1pj20xc0owu0x.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  skmdfong  
 ##### 7094#       发表于 2017-10-6 19:01
 
 
-
-
 垃圾EMS，今天终于送到了，还不幸被海关开苞，还好没拆到我的prpr<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 7095#       发表于 2017-10-7 23:25
-
-
 
 
 重温鲁路修，发现大河内挺喜欢那种给你一点希望然后就弄成绝望的桥段。刚和尤菲达成意向，转头就把之前的伏笔用上，鸡鸭死暴走大屠杀，尤菲背上杀戮皇女之名
@@ -22725,17 +15205,10 @@ Princess Principal游戏全剧情翻译_萌战吧@3gokumuso
 所以大河内喜欢把主角的亲人朋友爱人一一写死，然后把主角逼疯了。R2鲁路修疯狂吃瘪，众叛亲离。大河内还不够，还要把鲁路修的觉悟这个最大的伏笔用上，造成主角自杀假象。
 
 
-
-
-
-
-
 -----
 
 ####  银河星爆  
 ##### 7096#       发表于 2017-10-7 23:39
-
-
 
 
 大河内难得最后没有乱派便当，游戏剧情也稳步进展中<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
@@ -22751,21 +15224,10 @@ Princess Principal游戏全剧情翻译_萌战吧@3gokumuso
 2017-10-7 23:39 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7097#       发表于 2017-10-7 23:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37420600&amp;ptid=1486439" target="_blank">银河星爆 发表于 2017-10-07 23:39:45</a>
@@ -22774,25 +15236,13 @@ Princess Principal游戏全剧情翻译_萌战吧@3gokumuso
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 7098#       发表于 2017-10-8 21:16
 
 
-
-
 这个片子好不好看要不要补在线等急
-
-
-
-
-
 
 
 -----
@@ -22801,16 +15251,10 @@ Princess Principal游戏全剧情翻译_萌战吧@3gokumuso
 ##### 7099#         楼主| 发表于 2017-10-8 21:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37428171&amp;ptid=1486439" target="_blank">567844 发表于 2017-10-8 21:16</a>
 
 这个片子好不好看要不要补在线等急</blockquote>
 看吧 也不会花太长时间
-
-
-
-
-
 
 
 -----
@@ -22819,21 +15263,13 @@ Princess Principal游戏全剧情翻译_萌战吧@3gokumuso
 ##### 7100#       发表于 2017-10-8 21:48
 
 
-
-
 ost1里没有moonlight melody的清唱合唱版实在是可惜……多罗西和小贝的版本倒是也挺好听的
-
-
-
-
-
 
 
 -----
 
 ####  银河星爆  
 ##### 7101#       发表于 2017-10-9 02:56
-
 
 
  本帖最后由 银河星爆 于 2017-10-9 03:03 编辑 
@@ -22849,27 +15285,15 @@ ost1里没有moonlight melody的清唱合唱版实在是可惜……多罗西和
 好奇主角什么时候发现真假公主的秘密，多萝西她们好像还不知道
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 7102#       发表于 2017-10-9 07:47
 
 
-
-
 这片还是不能和革命机比，过气太快<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -22878,21 +15302,13 @@ ost1里没有moonlight melody的清唱合唱版实在是可惜……多罗西和
 ##### 7103#       发表于 2017-10-9 09:58
 
 
-
-
 （也许是第一季）结局药效太差，之前的脑补全作废，没得讨论了。<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  aptx8285144  
 ##### 7104#       发表于 2017-10-9 10:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37430917&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-10-9 07:47</a>
@@ -22904,25 +15320,13 @@ ost1里没有moonlight melody的清唱合唱版实在是可惜……多罗西和
 .....别,我宁可不要这样比
 
 
-
-
-
-
-
 -----
 
 ####  isowowsl  
 ##### 7105#       发表于 2017-10-9 12:27
 
 
-
-
 刚刚补完，大河内的片子不喂屎已经很感动了，前中期这么棒的单元剧已经够吹了<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22931,14 +15335,7 @@ ost1里没有moonlight melody的清唱合唱版实在是可惜……多罗西和
 ##### 7106#       发表于 2017-10-9 13:26
 
 
-
-
 才开始补，作为从业者表示第一集里的保险公司太扯了。
-
-
-
-
-
 
 
 -----
@@ -22947,22 +15344,15 @@ ost1里没有moonlight melody的清唱合唱版实在是可惜……多罗西和
 ##### 7107#       发表于 2017-10-9 21:08
 
 
-
 <blockquote>possibility 发表于 2017-10-9 13:26
 才开始补，作为从业者表示第一集里的保险公司太扯了。</blockquote>
 19世纪的保险公司 你不要拿现在的标准去看啊。。
-
-
-
-
-
 
 
 -----
 
 ####  moree  
 ##### 7108#       发表于 2017-10-9 23:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37430917&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-10-9 07:47</a>
@@ -22978,16 +15368,10 @@ Pri这片悬念维持太短，很多事件都在一话里解决（比如班长�
 个人觉得如果VVV监督换谷口来也许能成功
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 7109#       发表于 2017-10-9 23:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37439265&amp;ptid=1486439" target="_blank">moree 发表于 2017-10-9 23:27</a>
@@ -22998,16 +15382,10 @@ Pri这片悬念维持太短，很多事件都在一话里解决（比如班长�
 个人在想VVV的副构成要是换成吉野也许会好一点，当然如果是他，也无法预测是哪个时候的吉野<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  moree  
 ##### 7110#       发表于 2017-10-10 01:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37439299&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-10-9 23:31</a>
@@ -23016,27 +15394,15 @@ Pri这片悬念维持太短，很多事件都在一话里解决（比如班长�
 GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河内和他合作
 
 
-
-
-
-
-
 -----
 
 ####  xiluo3344  
 ##### 7111#       发表于 2017-10-10 03:09
 
 
-
-
 好烂，前面不讲究看起来没那么不爽，到最后两集就难看得不行了。
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -23045,14 +15411,7 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 ##### 7112#       发表于 2017-10-10 03:15
 
 
-
-
 话说现在吉野干什么去了，不知不觉伊泽塔都过去整整一年，没什么消息接不到工作了么……
-
-
-
-
-
 
 
 -----
@@ -23061,15 +15420,9 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 ##### 7113#       发表于 2017-10-10 09:35
 
 
-
 <blockquote>wangh 发表于 2017-10-10 03:15
 话说现在吉野干什么去了，不知不觉伊泽塔都过去整整一年，没什么消息接不到工作了么…… ...</blockquote>
 他不是画漫画去了么？ 吸奶新作啊。
-
-
-
-
-
 
 
 -----
@@ -23078,15 +15431,9 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 ##### 7114#       发表于 2017-10-10 09:40
 
 
-
 <blockquote>wangh 发表于 2017-10-10 03:15
 话说现在吉野干什么去了，不知不觉伊泽塔都过去整整一年，没什么消息接不到工作了么…… ...</blockquote>
 《神呪のネクタール》
-
-
-
-
-
 
 
 -----
@@ -23095,23 +15442,15 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 ##### 7115#       发表于 2017-10-10 17:22
 
 
-
-
 发售第二周BD销量累计6252
 
 周销量830
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 7116#       发表于 2017-10-10 17:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37446369&amp;ptid=1486439" target="_blank">白房子 发表于 2017-10-10 17:22:02</a>
@@ -23122,16 +15461,10 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  rp的游魂  
 ##### 7117#       发表于 2017-10-10 17:31
-
 
 
 <blockquote>白房子 发表于 2017-10-10 17:22
@@ -23141,28 +15474,15 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 剧情被伊泽塔吊打，然而销量倍杀伊泽塔，大不起！
 
 
-
-
-
-
-
-
 -----
 
 ####  第三视点  
 ##### 7118#       发表于 2017-10-10 18:12
 
 
-
-
 销量真是不错呀
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -23171,15 +15491,9 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 ##### 7119#       发表于 2017-10-10 21:46
 
 
-
  本帖最后由 muderx 于 2017-10-10 21:48 编辑 
 
 最后诺曼底公说的收获是什么？最后的那破事没有他的黑手不可能的。
-
-
-
-
-
 
 
 -----
@@ -23188,23 +15502,16 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 ##### 7120#       发表于 2017-10-10 21:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37448571&amp;ptid=1486439" target="_blank">muderx 发表于 2017-10-10 21:46:00</a>
 最后诺曼底公说的收获是什么？</blockquote>大概是知道公主有问题，以及有鼹鼠吧
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  muderx  
 ##### 7121#       发表于 2017-10-10 21:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37448587&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-10-10 21:47</a>
@@ -23216,17 +15523,10 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 我还以为他早就发现了
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7122#       发表于 2017-10-10 23:05
-
-
 
 
 一般会社员Nagi_沉迷pripri  
@@ -23237,17 +15537,10 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 <img src="http://wx2.sinaimg.cn/mw1024/644d93bbgy1fkcsudlwavj20if0asab4.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7123#       发表于 2017-10-10 23:14
-
-
 
 
 @一般会社员Nagi_沉迷pripri
@@ -23262,17 +15555,10 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 <img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">对于喜欢安洁的你不也挺好的吗？
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 7124#       发表于 2017-10-11 06:23
-
-
 
 
 不过我很好奇，公主是先进去的，保卫的也看见了。难道这没有通知到公爵吗？还说小兵觉得公主来这样的地方很常见？照这样规格的活动，按理公主应该出席吧？
@@ -23281,25 +15567,13 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 所以说公主的帽子出现在案发现场，还有假扮公主的人。我怎么感觉公爵不是怀疑公主，而是会想到有人想利用公主的身份搞事？
 
 
-
-
-
-
-
 -----
 
 ####  kalamazoo  
 ##### 7125#       发表于 2017-10-11 12:08
 
 
-
-
 为啥爱撕衣专楼这么高233，这几天看了，感觉即使单说药力，也一般啊
-
-
-
-
-
 
 
 -----
@@ -23308,16 +15582,10 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 ##### 7126#       发表于 2017-10-11 18:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37450467&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-10-11 06:23</a>
 
 不过我很好奇，公主是先进去的，保卫的也看见了。难道这没有通知到公爵吗？还说小兵觉得公主来这样的地方很 ...</blockquote>
 公主进去时看到的保卫是叛军这边的人吧，还是少佐给他打招呼的，肯定不可能去通知诺曼底公啊。至于诺曼底公在安洁伪装被黑皮妹举报的时候就应该知道有人有能力假扮公主了，这应该和诺曼底公怀疑公主一起变成后面的坑。
-
-
-
-
-
 
 
 -----
@@ -23326,15 +15594,9 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 ##### 7127#       发表于 2017-10-12 10:34
 
 
-
 <blockquote>kalamazoo 发表于 2017-10-11 12:08
 为啥爱撕衣专楼这么高233，这几天看了，感觉即使单说药力，也一般啊</blockquote>
 第二话 第三话之后就在讨论公主是不是黑的，剧情怎么发展。其实大家更想看大河内怎么圆回来。
-
-
-
-
-
 
 
 -----
@@ -23343,24 +15605,16 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 ##### 7128#       发表于 2017-10-12 15:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37439903&amp;ptid=1486439" target="_blank">moree 发表于 2017-10-10 01:05:13</a>
 GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河内和他合作</blockquote>CG绝大部分都是大河内亲自执笔的，故事也是谷口大河内的。如果忙不过来，副手可以找黑田就够了，绝对够卡司<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 7129#         楼主| 发表于 2017-10-12 16:47
-
-
 
 
 好評配信中のスマートフォン用ゲーム『プリンセス・プリンシパル GAME OF MISSION』。本作において新イベント「スパイたちのショータイム」と、それにちなんだ特別なスカウト「イリュージョニストスカウト」が開始された。
@@ -23381,16 +15635,10 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fkfk3ck6ukj20f70mc48n.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7130#       发表于 2017-10-12 17:07
-
 
 
  本帖最后由 xtwx1716 于 2017-10-12 17:25 编辑 
@@ -23405,34 +15653,19 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 7131#       发表于 2017-10-12 17:47
 
 
-
-
 看了一下这次安洁的塑料小人脸很崩，没打算入。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 7132#         楼主| 发表于 2017-10-13 23:48
-
-
 
 
 橘正紀 Masaki Tachibana‏ @tachicol_
@@ -23449,16 +15682,10 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 <img src="http://wx3.sinaimg.cn/large/740ca5e5ly1fkh1wkoj93j20xc0ndu0x.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 7133#         楼主| 发表于 2017-10-14 17:05
-
 
 
 <img src="http://wx1.sinaimg.cn/large/740ca5e5ly1fkhvo9mdeaj21kw4qnb29.jpg" referrerpolicy="no-referrer">
@@ -23467,25 +15694,13 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 <img src="http://wx4.sinaimg.cn/large/740ca5e5ly1fkhvoc7s6ej21kw4q3b29.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7134#       发表于 2017-10-14 17:26
 
 
-
-
 专楼好凉<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23494,16 +15709,10 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 ##### 7135#       发表于 2017-10-14 18:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37485481&amp;ptid=1486439" target="_blank">白房子 发表于 2017-10-14 17:26</a>
 
 专楼好凉</blockquote>
 等28号顺序上映会结束看看官方能不能搞点什么大新闻吧，话说要场内连着看六个半钟头真的也是辛苦……
-
-
-
-
-
 
 
 -----
@@ -23512,16 +15721,10 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 ##### 7136#       发表于 2017-10-14 18:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37486003&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-10-14 18:26</a>
 
 等28号顺序上映会结束看看官方能不能搞点什么大新闻吧，话说要场内连着看六个半钟头真的也是辛苦…… ...</blockquote>
 能坚持的绝对是真爱，销量翻番<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23530,16 +15733,10 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 ##### 7137#       发表于 2017-10-14 20:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37486003&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-10-14 18:26</a>
 
 等28号顺序上映会结束看看官方能不能搞点什么大新闻吧，话说要场内连着看六个半钟头真的也是辛苦…… ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">27号发2卷，在此之前要是有个爆点能带动一下热度就好了……
-
-
-
-
-
 
 
 -----
@@ -23548,16 +15745,10 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 ##### 7138#       发表于 2017-10-14 20:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37487178&amp;ptid=1486439" target="_blank">白房子 发表于 2017-10-14 20:40:43</a>
 27号发2卷，在此之前要是有个爆点能带动一下热度就好了……</blockquote>放送完之后官方就一直没什么动作
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -23566,14 +15757,7 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 ##### 7139#       发表于 2017-10-15 00:41
 
 
-
-
 又一部典型的高开低走的动画，这种结局还不如一直单元剧到底
-
-
-
-
-
 
 
 -----
@@ -23582,16 +15766,10 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 ##### 7140#       发表于 2017-10-15 00:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37489180&amp;ptid=1486439" target="_blank">liangjiami 发表于 2017-10-15 00:41:47</a>
 又一部典型的高开低走的动画，这种结局还不如一直单元剧到底</blockquote>最后两话不就是个大号的单元剧
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -23600,15 +15778,8 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 ##### 7141#         楼主| 发表于 2017-10-15 00:50
 
 
-
-
 秋谷 💫有紀恵‏ @akiyayukie
 <img src="http://wx2.sinaimg.cn/large/740ca5e5ly1fki9alnkubj20vn0v4tzl.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23617,14 +15788,7 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 ##### 7142#       发表于 2017-10-15 23:47
 
 
-
-
 哈哈哈 这个小贝超可爱
-
-
-
-
-
 
 
 -----
@@ -23633,16 +15797,9 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 ##### 7143#       发表于 2017-10-16 12:14
 
 
-
-
 刚看完，大河内没吃药舒了口气，就是百合戏份太少兴奋度不足<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -23651,18 +15808,12 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 ##### 7144#       发表于 2017-10-16 12:27
 
 
-
-
 [cp]#Princess Principal# web radio里有听众来信说“对公主的大腿开枪无论如何都不可原谅，请在二期里双倍奉还”今村一秒从原来的逗逼声线切换成安洁的冷酷声线“看我给她（泽尔达）的两条大腿都开个洞”[笑cry]请务必！！！ ​​​[/cp]
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -23672,12 +15823,7 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 | 万千百十| + 1|笑cry|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -23686,14 +15832,7 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 ##### 7145#       发表于 2017-10-16 12:29
 
 
-
-
 [cp]#Princess Principal# web radio下周就是最后一期，今村说很不舍得“要不我们就自行说点啥呗，比如朗读本篇未使用的剧本啊，或者大家写了同人小说的话我来配个音啊”喂喂你知道自己在说啥吗[跪了][跪了][跪了]说真的，p站那一堆质量很高的安洁公主同人，非常想听[二哈] ​​​[/cp]
-
-
-
-
-
 
 
 -----
@@ -23702,17 +15841,10 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 ##### 7146#         楼主| 发表于 2017-10-16 19:53
 
 
-
-
 才看到，果然本质手游宣传片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 11/24(金)発売『プリンセス・プリンシパル』BD＆DVD第3巻の特典に、「プリンセス・プリンシパル GAME OF MISSION」限定シリアルコード第2弾（「☆6 ドロシー」「☆6 ベアトリス」）封入が決定！
-
-
-
-
-
 
 
 -----
@@ -23721,17 +15853,10 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 ##### 7147#       发表于 2017-10-16 19:57
 
 
-
-
 这两人已经官方钦定了吗 
 话说公主呢
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -23740,14 +15865,7 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 ##### 7148#       发表于 2017-10-16 20:03
 
 
-
-
 居然多萝西和比阿特打包送，那么公主呢，还有千世该怎么办呢？
-
-
-
-
-
 
 
 -----
@@ -23756,16 +15874,10 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 ##### 7149#       发表于 2017-10-16 20:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37504826&amp;ptid=1486439" target="_blank">白房子 发表于 2017-10-16 20:03:57</a>
 居然多萝西和比阿特打包送，那么公主呢，还有千世该怎么办呢？</blockquote>猜测公主安洁打包送 压轴的 参考这次活动 没准还有合♀体技
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -23774,21 +15886,13 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 ##### 7150#       发表于 2017-10-16 20:15
 
 
-
-
 也许只是立绘的进度没赶上第二卷发售呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  堆雪若叶  
 ##### 7151#       发表于 2017-10-16 20:30
-
 
 
  本帖最后由 堆雪若叶 于 2017-10-16 20:45 编辑 
@@ -23804,11 +15908,6 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 2017-10-16 20:29 上传
 
 
-
-
-
-
-
 微博上看到的顺序上映会时间表。六个半钟头中间只有两次十分钟的休息，坚持看下来可以说是十分的真爱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
@@ -23822,25 +15921,13 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 2017-10-16 20:44 上传
 
 
-
-
-
-
-
 还有座谈会的嘉宾名单
-
-
-
-
-
 
 
 -----
 
 ####  yjysrkl  
 ##### 7152#       发表于 2017-10-16 20:35
-
-
 
 
 这期广播是朴素的提问环节特辑，一直做翻译的大大还有做吗？
@@ -23855,16 +15942,10 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7153#       发表于 2017-10-16 20:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37505011&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-10-16 20:30:59</a></blockquote>重头戏是中间的talk show了 希望能有点新消息吧
@@ -23872,16 +15953,10 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7154#       发表于 2017-10-16 23:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37504875&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-10-16 20:11</a>
@@ -23893,27 +15968,15 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">合体技？！那可真不错！
 
 
-
-
-
-
-
 -----
 
 ####  第三视点  
 ##### 7155#       发表于 2017-10-17 17:26
 
 
-
-
 首卷销量刷到6700了
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -23922,21 +15985,13 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 ##### 7156#         楼主| 发表于 2017-10-17 18:18
 
 
-
 [https://twitter.com/sangsilnoh/status/920219498350649345](https://twitter.com/sangsilnoh/status/920219498350649345)
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 7157#         楼主| 发表于 2017-10-17 22:49
-
-
 
 
 橘正紀 Masaki Tachibana‏ @tachicol_  
@@ -23948,17 +16003,10 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fklmnx4462j20ir0q0qne.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 7158#         楼主| 发表于 2017-10-17 22:50
-
-
 
 
 橘正紀 Masaki Tachibana‏ @tachicol_  
@@ -23969,17 +16017,10 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fklmp9864oj20hm0fh0xs.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  银河星爆  
 ##### 7159#       发表于 2017-10-18 05:39
-
-
 
 
 游戏剧情还没更新，不知要等到哪天？
@@ -23988,17 +16029,10 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 多萝西邀主角陪她喝酒，估计不会写下去了，遗憾
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 7160#         楼主| 发表于 2017-10-18 18:56
-
-
 
 
 倫敦に生息するいろんな宇宙人
@@ -24006,17 +16040,10 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fkmliploujj20kh0hin6w.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 7161#       发表于 2017-10-18 19:30
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201710/18/192515pv4zcvk7dvb116fb.jpg" referrerpolicy="no-referrer">
@@ -24029,16 +16056,7 @@ GEASS新作（非剧场总集篇）貌似没吉野，也许很难再看到大河
 2017-10-18 19:25 上传
 
 
-
-
-
-
 BD第二卷样品照片
-
-
-
-
-
 
 
 -----
@@ -24047,14 +16065,7 @@ BD第二卷样品照片
 ##### 7162#       发表于 2017-10-18 19:41
 
 
-
-
 安洁潜入学校，和多萝西在屋顶对话那里，就有个摘眼镜的动作。可能就是戴着不是很舒服的意思？还有OP开头那里，背对着墙摘眼镜
-
-
-
-
-
 
 
 -----
@@ -24063,16 +16074,10 @@ BD第二卷样品照片
 ##### 7163#       发表于 2017-10-19 18:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37462109&amp;ptid=1486439" target="_blank">彩虹之羽 发表于 2017-10-12 10:34</a>
 
 第二话 第三话之后就在讨论公主是不是黑的，剧情怎么发展。其实大家更想看大河内怎么圆回来。 ...</blockquote>
 原来是这样，大河内果然是爱撕衣用户的真爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24081,22 +16086,13 @@ BD第二卷样品照片
 ##### 7164#       发表于 2017-10-19 20:04
 
 
-
-
 这片的设定如果放二十年前起码可以拍两期半年番，成为一代名作也未可知，但在业界朝不保夕的现在，却只能做手游宣传片，实在生不逢时<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 7165#       发表于 2017-10-20 17:47
-
-
 
 
 还有一个星期，也就是下周五、10月27日即将发售BD第二卷
@@ -24114,11 +16110,6 @@ BD第二卷样品照片
 2017-10-20 14:33 上传
 
 
-
-
-
-
-
 28号顺映会的特典是秋谷有紀恵老师所绘明信片
 
 <img src="https://img.saraba1st.com/forum/201710/20/142103htmcblr18rlr1zub.jpg" referrerpolicy="no-referrer">
@@ -24131,23 +16122,10 @@ BD第二卷样品照片
 2017-10-20 14:21 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7166#       发表于 2017-10-20 17:55
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201710/20/175144b2jfct6shgp2kjy2.png" referrerpolicy="no-referrer">
@@ -24160,18 +16138,9 @@ BD第二卷样品照片
 2017-10-20 17:51 上传
 
 
-
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">十指紧扣，从小这么姬，这样好吗www
 
 严重怀疑她们两个在小时候就做过不可描述的事情，小夏洛特看起来这么纯情，小安洁一定从身心上都征服了小夏洛特让她对自己死心塌地。
-
-
-
-
-
 
 
 -----
@@ -24180,23 +16149,16 @@ BD第二卷样品照片
 ##### 7167#       发表于 2017-10-20 18:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37529283&amp;ptid=1486439" target="_blank">midearth 发表于 2017-10-19 20:04</a>
 
 这片的设定如果放二十年前起码可以拍两期半年番，成为一代名作也未可知，但在业界朝不保夕的现在，却只能做 ...</blockquote>
 时间长下去，真的不担心大河内开始忘记吃药了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 7168#       发表于 2017-10-22 22:59
-
 
 
  本帖最后由 堆雪若叶 于 2017-10-22 23:08 编辑 
@@ -24212,10 +16174,6 @@ BD第二卷样品照片
 2017-10-22 22:57 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201710/22/230722e5zqd0exzd5ittii.jpg" referrerpolicy="no-referrer">
 
 
@@ -24226,19 +16184,7 @@ BD第二卷样品照片
 2017-10-22 23:07 上传
 
 
-
-
-
-
-
 28号看样子不会出大新闻了，重大发表拖到明年四月底，官方要急死人啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 -----
@@ -24247,16 +16193,10 @@ BD第二卷样品照片
 ##### 7169#         楼主| 发表于 2017-10-22 23:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37552024&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-10-22 22:59</a>
 
 28号看样子不会出大新闻了，重大发表拖到明年四月底，官方要急死人啊</blockquote>
 4月挺正常的
-
-
-
-
-
 
 
 -----
@@ -24265,23 +16205,16 @@ BD第二卷样品照片
 ##### 7170#       发表于 2017-10-22 23:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37552134&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-10-22 23:14</a>
 
 4月挺正常的</blockquote>
 可能是因为我之前一直期待着28号上映会结束就有消息吧<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 7171#         楼主| 发表于 2017-10-22 23:19
-
 
 
  本帖最后由 xingenge 于 2017-10-22 23:20 编辑 
@@ -24293,25 +16226,13 @@ BD第二卷样品照片
 晚宣布估计是有东西需要滞后安排，又想保持话题度，这下说完之后就没东西说，彻底凉
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7172#       发表于 2017-10-22 23:24
 
 
-
-
 以这片的Cast的能带动的销量不大。明年四月啊，感觉好遥远啊……<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24320,24 +16241,15 @@ BD第二卷样品照片
 ##### 7173#       发表于 2017-10-22 23:26
 
 
-
-
 半年也是个比较合理的时间了，我并不意外
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 7174#       发表于 2017-10-22 23:27
-
-
 
 
 黒星紅白‏ @kuroboshi  
@@ -24354,24 +16266,13 @@ BD第二卷样品照片
 2017-10-22 23:26 上传
 
 
-
-
-
-
-
 迷之魔法少女
-
-
-
-
-
 
 
 -----
 
 ####  堆雪若叶  
 ##### 7175#       发表于 2017-10-22 23:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37552166&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-10-22 23:19</a>
@@ -24382,16 +16283,10 @@ BD第二卷样品照片
 想想这已经算是官方在透口风了应该还是能理解。本来我想最近就放出消息其实也是觉得这片没什么话题度了需要一点刺激，不过现在放了消息后面等待时间长一样也还是要凉，感觉还是官方中间的策划有点欠缺。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 7176#         楼主| 发表于 2017-10-22 23:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37552291&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-10-22 23:38</a>
@@ -24400,16 +16295,10 @@ BD第二卷样品照片
 这种东西都是一开始定好走向的，我看本来有无所谓都会有续篇，但是手游的核心地位是不能动摇的
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7177#       发表于 2017-10-23 00:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37552291&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-10-22 23:38</a>
@@ -24418,25 +16307,14 @@ BD第二卷样品照片
 这方面咱们考虑那么多也没用。如果真的是二期的话，后边什么漫画广播剧小说就该跟进了。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 7178#         楼主| 发表于 2017-10-23 00:34
 
 
-
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fkrhs6qwxjj20k80lfnbn.jpg" referrerpolicy="no-referrer">
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fkrhs3u2x1j20xc0mgkjl.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24445,23 +16323,15 @@ BD第二卷样品照片
 ##### 7179#       发表于 2017-10-23 00:38
 
 
-
-
 奇怪 这些图的主角为啥都是安洁和多萝西。。。
 
 公主：？？？？
-
-
-
-
-
 
 
 -----
 
 ####  堆雪若叶  
 ##### 7180#       发表于 2017-10-23 00:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37552592&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-10-23 00:38</a>
@@ -24472,16 +16342,10 @@ BD第二卷样品照片
 这样后面的关根就可以独占公主了啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 7181#         楼主| 发表于 2017-10-23 02:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37552592&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-10-23 00:38</a>
@@ -24492,33 +16356,19 @@ BD第二卷样品照片
 今天radio主角是安洁和多萝西
 
 
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 7182#       发表于 2017-10-23 23:51
 
 
-
-
 出自广播节目prpr秘密报告第16回，主播今村彩夏、大地葉，嘉宾橘正紀） （广播环节，双六游戏，参与者轮流掷骰子，走到哪个格子就要完成相应的要求，比谁先走到终点） （前略…轮到橘监督走棋，走到某格：“请披露第二名的角色的一个秘密”） 橘正紀：那就披露一个公主的秘密……那个，如果不行的话…就用【哔】消音吧 橘正紀：第二话的时候，安洁不是把假的红酒泼到公主身上嘛，那之后不是到了休息室里，变成了穿着内衣的样子了嘛。那个时候其实公主是【哔】 今村彩夏：诶、什么什么(ﾟДﾟ≡ﾟдﾟ)!? 橘正紀：请看速写本的最后一页（这期广播监督来做嘉宾的时候顺便带了一本速写本，里面画了很多草创之初的概念图，详见下图） 今村彩夏、大地葉：（翻看）？！Σ(ﾟдﾟ;) 大地葉：这个各位听众是看不到啦，真是太残念了（嘲讽笑） 今村彩夏：诶，等等为什么是【哔】？ 橘正紀：当时秋谷（有紀恵）设计了三套内衣的方案，在讨论要用哪套的时候，秋谷桑极力推荐的就是这套。但是还是觉得【哔】实在太糟糕了，所以我想着“这个涂点颜色能成立吗”于是在工作室里默默地涂着。然后秋谷桑跟我强烈反应说“反正是坐着，看不出来的，大丈夫的哦”，我就说“我明白了，如果看不出来的话，那就这个吧” 今村彩夏：也就是说公主平时一直都是没有【哔】的吗？ 橘正紀：是一直这样的吗（想了想）…穿制服的时候果然【哔】还是不行吧… 今村彩夏：但是一定要说的话还是个比较自然的人（自然体な人）？ 橘正紀：是比较自然的人呢（笑） 大地葉：太牙败了，这算是重量情报了，怎么办，广播里都是【哔】了…
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 7183#       发表于 2017-10-23 23:56
-
-
 
 
 無題 | ミズキ [pixiv] [https://www.pixiv.net/member_ill ... ;illust_id=65566891](https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=65566891)
@@ -24534,20 +16384,10 @@ BD第二卷样品照片
 2017-10-23 23:55 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7184#       发表于 2017-10-23 23:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37560515&amp;ptid=1486439" target="_blank">彩虹之羽 发表于 2017-10-23 23:51</a>
@@ -24556,17 +16396,10 @@ BD第二卷样品照片
 <img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">怪不得在推上看到他们截图公主那一幕的图，原来是【哔】啊！！！
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7185#       发表于 2017-10-24 00:07
-
-
 
 
 片貝文洋 KatagaiFumihilo‏ @fumihilo 
@@ -24584,17 +16417,7 @@ Twitterのキーワード検索で「プリンセス」と入れると最初に�
 2017-10-24 00:07 上传
 
 
-
-
-
-
-
 当时在推上搜索「公主」时，第一个关联词是「公主 没有穿」<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24603,16 +16426,9 @@ Twitterのキーワード検索で「プリンセス」と入れると最初に�
 ##### 7186#       发表于 2017-10-24 00:28
 
 
-
-
 公主一下子就变成痴女了啊！
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -24621,14 +16437,7 @@ Twitterのキーワード検索で「プリンセス」と入れると最初に�
 ##### 7187#       发表于 2017-10-24 00:42
 
 
-
-
 痴女不更好吗！！！！舔爆！
-
-
-
-
-
 
 
 -----
@@ -24637,23 +16446,15 @@ Twitterのキーワード検索で「プリンセス」と入れると最初に�
 ##### 7188#       发表于 2017-10-24 07:51
 
 
-
-
 有消息说继续让大河内担当系构？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  yjysrkl  
 ##### 7189#       发表于 2017-10-24 07:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37561308&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-10-24 07:51</a>
@@ -24665,31 +16466,19 @@ Twitterのキーワード検索で「プリンセス」と入れると最初に�
 麻烦请以后说这种话时附上链接或是来源，谢谢
 
 
-
-
-
-
-
 -----
 
 ####  间咒  
 ##### 7190#       发表于 2017-10-24 08:27
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">等等，我没看懂，不是说设计了三套内衣嘛，怎么变成了没有穿！？
-
-
-
-
-
 
 
 -----
 
 ####  石头歪  
 ##### 7191#       发表于 2017-10-24 08:41
-
 
 
  本帖最后由 石头歪 于 2017-10-24 08:42 编辑 
@@ -24708,32 +16497,15 @@ Twitterのキーワード検索で「プリンセス」と入れると最初に�
 2017-10-24 08:42 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  B2是念着反  
 ##### 7192#       发表于 2017-10-24 09:19
 
 
-
-
 太大胆了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -24742,16 +16514,10 @@ Twitterのキーワード検索で「プリンセス」と入れると最初に�
 ##### 7193#       发表于 2017-10-24 09:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37561549&amp;ptid=1486439" target="_blank">石头歪 发表于 2017-10-24 08:41</a>
 
 没穿下面的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">太牙败了！
-
-
-
-
-
 
 
 -----
@@ -24760,15 +16526,9 @@ Twitterのキーワード検索で「プリンセス」と入れると最初に�
 ##### 7194#       发表于 2017-10-24 09:28
 
 
-
 <blockquote>间咒 发表于 2017-10-24 08:27
 等等，我没看懂，不是说设计了三套内衣嘛，怎么变成了没有穿！？</blockquote>
 内衣不等于胖次啊。。。
-
-
-
-
-
 
 
 -----
@@ -24777,22 +16537,13 @@ Twitterのキーワード検索で「プリンセス」と入れると最初に�
 ##### 7195#       发表于 2017-10-24 09:28
 
 
-
-
 看了看，大概好像十八十九世纪是没有pan
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 7196#       发表于 2017-10-24 12:04
-
-
 
 
 case顺映会时间变更
@@ -24819,16 +16570,10 @@ case顺映会时间变更
 case20这段加了20分钟，总体延迟到21:50结束。
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 7197#       发表于 2017-10-25 00:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37561331&amp;ptid=1486439" target="_blank">yjysrkl 发表于 2017-10-24 07:56:20</a>
@@ -24837,16 +16582,10 @@ case20这段加了20分钟，总体延迟到21:50结束。
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7198#       发表于 2017-10-26 16:38
-
 
 
  本帖最后由 白房子 于 2017-10-26 17:59 编辑 
@@ -24869,9 +16608,6 @@ case20这段加了20分钟，总体延迟到21:50结束。
 2017-10-26 17:28 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201710/26/173113zcqzujkwcuw9kuuc.jpg" referrerpolicy="no-referrer">
 
 
@@ -24880,10 +16616,6 @@ case20这段加了20分钟，总体延迟到21:50结束。
 下载附件
 
 2017-10-26 17:31 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201710/26/172850mcdcddgmsqc30qqk.jpg" referrerpolicy="no-referrer">
@@ -24896,10 +16628,6 @@ case20这段加了20分钟，总体延迟到21:50结束。
 2017-10-26 17:28 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201710/26/173027a70awl0gng880066.jpg" referrerpolicy="no-referrer">
 
 
@@ -24910,31 +16638,13 @@ case20这段加了20分钟，总体延迟到21:50结束。
 2017-10-26 17:30 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7199#       发表于 2017-10-26 16:48
 
 
-
-
 明明今天是BD偷跑日……微博上Nagi都晒2卷特典了推上还没什么热度，2卷销量可能要大跌右肩啦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24943,14 +16653,7 @@ case20这段加了20分钟，总体延迟到21:50结束。
 ##### 7200#       发表于 2017-10-26 16:51
 
 
-
-
 旗袍公主美爆了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24959,16 +16662,10 @@ case20这段加了20分钟，总体延迟到21:50结束。
 ##### 7201#       发表于 2017-10-26 17:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37583507&amp;ptid=1486439" target="_blank">白房子 发表于 2017-10-26 16:48:05</a>
 明明今天是BD偷跑日……微博上Nagi都晒2卷特典了推上还没什么热度，2卷销量可能要大跌右肩啦 ...</blockquote>该买的都买了 。。。二卷日亚排名没什么气色<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 剩下的都是等到手了  过气了
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -24977,16 +16674,9 @@ case20这段加了20分钟，总体延迟到21:50结束。
 ##### 7202#       发表于 2017-10-26 17:46
 
 
-
-
 公主旗袍no  pan  <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -24995,16 +16685,9 @@ case20这段加了20分钟，总体延迟到21:50结束。
 ##### 7203#       发表于 2017-10-26 17:54
 
 
-
-
 我tm抽爆
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -25013,21 +16696,13 @@ case20这段加了20分钟，总体延迟到21:50结束。
 ##### 7204#       发表于 2017-10-26 18:21
 
 
-
-
 这些卡图都太**了。。小道士胸前的可以挡子弹吗？哦，那是八卦镜，不是护心镜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 7205#       发表于 2017-10-26 18:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37584070&amp;ptid=1486439" target="_blank">彩虹之羽 发表于 2017-10-26 17:45</a>
@@ -25039,25 +16714,13 @@ case20这段加了20分钟，总体延迟到21:50结束。
 可能阿宅们都等着送货上门不想跑店头吧……<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7206#       发表于 2017-10-26 19:15
 
 
-
-
 这个公主简直了。。。而且还是nopan。。。<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25066,14 +16729,7 @@ case20这段加了20分钟，总体延迟到21:50结束。
 ##### 7207#       发表于 2017-10-26 19:22
 
 
-
-
 这次几个穿高叉旗袍的都看起来no胖次啊，官方承认动画里公主的表现以后就把这个设定推广了吗……
-
-
-
-
-
 
 
 -----
@@ -25082,23 +16738,16 @@ case20这段加了20分钟，总体延迟到21:50结束。
 ##### 7208#       发表于 2017-10-26 19:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37584702&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-10-26 19:22:19</a>
 这次几个穿高叉旗袍的都看起来no胖次啊，官方承认动画里公主的表现以后就把这个设定推广了吗…… ...</blockquote>自从公主加了这个设定以后痴女感就甩不掉了，回顾正片的时候也有了新的感受…
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 7209#       发表于 2017-10-26 19:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37584756&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-10-26 19:35</a>
@@ -25110,24 +16759,13 @@ case20这段加了20分钟，总体延迟到21:50结束。
 想到最后一集安洁后面要是掀开公主裙子检查大腿的枪伤就很兴♀奋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  间咒  
 ##### 7210#       发表于 2017-10-26 20:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">居然一发11连就中了旗袍公主
-
-
-
-
-
 
 
 -----
@@ -25136,24 +16774,16 @@ case20这段加了20分钟，总体延迟到21:50结束。
 ##### 7211#       发表于 2017-10-26 20:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37585150&amp;ptid=1486439" target="_blank">间咒 发表于 2017-10-26 20:47:23</a>
 居然一发11连就中了旗袍公主</blockquote>三个11连才抽到公主<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">…前几次都随缘的，但是这次的公主特别想要
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7212#       发表于 2017-10-26 21:00
-
-
 
 
 这次的剧情里有一段
@@ -25176,16 +16806,10 @@ case20这段加了20分钟，总体延迟到21:50结束。
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">届不到啊小贝w你喜欢的亦是公主亦是安洁。
 
 
-
-
-
-
-
 -----
 
 ####  问楫  
 ##### 7213#       发表于 2017-10-26 21:11
-
 
 
 <blockquote>堆雪若叶 发表于 2017-10-26 19:52
@@ -25193,16 +16817,10 @@ case20这段加了20分钟，总体延迟到21:50结束。
 那什么，紧急消毒难道不需要唾液吗？
 
 
-
-
-
-
-
 -----
 
 ####  间咒  
 ##### 7214#       发表于 2017-10-26 21:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37585170&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-10-26 20:52</a>
@@ -25214,26 +16832,15 @@ case20这段加了20分钟，总体延迟到21:50结束。
 我也...这高开叉的大腿把持不住啊<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 7215#       发表于 2017-10-27 00:12
 
 
-
  本帖最后由 堆雪若叶 于 2017-10-27 00:15 编辑 
 
 BD第二卷广播剧发糖了[http://t.cn/RW9tMmh](http://t.cn/RW9tMmh)赶着下班回家给老婆庆生什么的，安洁这模范丈夫啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25242,16 +16849,9 @@ BD第二卷广播剧发糖了[http://t.cn/RW9tMmh](http://t.cn/RW9tMmh)赶着下
 ##### 7216#       发表于 2017-10-27 01:27
 
 
-
-
 感谢大河内一楼先生的广播剧脚本，不愧是自己看完都觉得公主安洁尊い的剧情
 
 我永远喜欢大河内.jpg
-
-
-
-
-
 
 
 -----
@@ -25260,16 +16860,9 @@ BD第二卷广播剧发糖了[http://t.cn/RW9tMmh](http://t.cn/RW9tMmh)赶着下
 ##### 7217#       发表于 2017-10-27 01:46
 
 
-
-
 完整周榜出了 这周首卷刷了198  没有下周了  bd6917  dvd215(dvd在水下)
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -25278,14 +16871,8 @@ BD第二卷广播剧发糖了[http://t.cn/RW9tMmh](http://t.cn/RW9tMmh)赶着下
 ##### 7218#         楼主| 发表于 2017-10-27 15:00
 
 
-
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fkwt7wrebmj20p00u41kx.jpg" referrerpolicy="no-referrer">
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fkwt807grgj20kd0kmtl0.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25294,25 +16881,16 @@ BD第二卷广播剧发糖了[http://t.cn/RW9tMmh](http://t.cn/RW9tMmh)赶着下
 ##### 7219#       发表于 2017-10-27 16:39
 
 
-
-
 BD6917+DVD215 马马虎虎吧…
 
 
 等下又要首日销量处刑了。
 
 
-
-
-
-
-
 -----
 
 ####  killng  
 ##### 7220#       发表于 2017-10-27 17:03
-
-
 
 
 。。这广播剧也像是在欺负贝阿特，欺人太甚咧
@@ -25327,25 +16905,13 @@ BD6917+DVD215 马马虎虎吧…
 2017-10-27 16:58 上传
 
 
-
-
-
-
-
 id=65602516
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 7221#       发表于 2017-10-27 18:22
-
-
 
 
 今天日榜 
@@ -25357,17 +16923,10 @@ id=65602516
 DVD未上榜
 
 
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 7222#       发表于 2017-10-27 18:22
-
-
 
 
 二卷首日日榜第二  正常水平吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer"> 等周二先行周榜
@@ -25375,16 +16934,10 @@ DVD未上榜
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 7223#       发表于 2017-10-27 18:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37592316&amp;ptid=1486439" target="_blank">白房子 发表于 2017-10-27 18:22:19</a>
@@ -25399,31 +16952,19 @@ DVD未上榜</blockquote>动画dvdtop20还没出呢。。<img src="https://stati
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7224#       发表于 2017-10-27 18:25
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">日亚延迟发货和尼限无货，还以为首日不行了呢…
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 7225#       发表于 2017-10-27 18:40
-
 
 
  本帖最后由 白房子 于 2017-10-27 18:46 编辑 
@@ -25445,30 +16986,15 @@ DVD未上榜</blockquote>动画dvdtop20还没出呢。。<img src="https://stati
 pripri的DVD卖不出去www居然不如异世界食堂，上榜这些可能都是女性向，pripri的DVD卖不出去也情有可原吧（安慰到）。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 7226#       发表于 2017-10-27 19:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37592436&amp;ptid=1486439" target="_blank">白房子 发表于 2017-10-27 18:40:06</a></blockquote>我还以为首日有机会进前20呢 果然是想多了<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -25477,21 +17003,13 @@ pripri的DVD卖不出去www居然不如异世界食堂，上榜这些可能都�
 ##### 7227#       发表于 2017-10-27 19:09
 
 
-
-
 什么？这次就卖一天吗
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 7228#       发表于 2017-10-27 19:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37592599&amp;ptid=1486439" target="_blank">彩虹之羽 发表于 2017-10-27 19:03</a>
@@ -25503,16 +17021,10 @@ pripri的DVD卖不出去www居然不如异世界食堂，上榜这些可能都�
 你可以期待下第5卷的DVD，因为带抽选，还便宜。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 7229#       发表于 2017-10-27 19:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37592663&amp;ptid=1486439" target="_blank">白房子 发表于 2017-10-27 19:15:17</a>
@@ -25521,16 +17033,10 @@ pripri的DVD卖不出去www居然不如异世界食堂，上榜这些可能都�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7230#       发表于 2017-10-27 19:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37592722&amp;ptid=1486439" target="_blank">彩虹之羽 发表于 2017-10-27 19:27</a>
@@ -25539,25 +17045,14 @@ pripri的DVD卖不出去www居然不如异世界食堂，上榜这些可能都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">仅针对pripri的杂鱼DVD上榜情况。只有5卷有一点点希望。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 7231#         楼主| 发表于 2017-10-28 13:17
 
 
-
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fkxvvr7u9pj20kd0jmtlr.jpg" referrerpolicy="no-referrer">
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fkxvvms5r6j20sz0mm1kx.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25566,16 +17061,9 @@ pripri的DVD卖不出去www居然不如异世界食堂，上榜这些可能都�
 ##### 7232#       发表于 2017-10-28 14:53
 
 
-
-
 日亚第二卷还不发货是要闹哪样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -25584,19 +17072,11 @@ pripri的DVD卖不出去www居然不如异世界食堂，上榜这些可能都�
 ##### 7233#       发表于 2017-10-28 16:42
 
 
-
-
 我宁愿出个新的5星啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
 
 
 微信图片_20171028163928.jpg
 (134.24 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -25605,24 +17085,7 @@ pripri的DVD卖不出去www居然不如异世界食堂，上榜这些可能都�
 2017-10-28 16:41 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201710/28/164130adpudddukxp5eleu.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -25631,16 +17094,9 @@ pripri的DVD卖不出去www居然不如异世界食堂，上榜这些可能都�
 ##### 7234#       发表于 2017-10-28 22:34
 
 
-
-
 今天三场talk show上staff纷纷逼问P什么时候有二期，P只能一遍遍重复“明年4月的活动上希望能带给大家好消息，所以请大家买BD”还表示“目前真的只差一点了，再多一点的话，比如在座的全员都买一张BD的话应该就够了”（在场大约600人）真的从来没见过staff阵这么露骨地逼问二期的，感觉非常稳​​​[/cp]<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -25649,16 +17105,10 @@ pripri的DVD卖不出去www居然不如异世界食堂，上榜这些可能都�
 ##### 7235#       发表于 2017-10-28 22:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37598320&amp;ptid=1486439" target="_blank">hosilly 发表于 2017-10-28 16:42:24</a>
 我宁愿出个新的5星啊</blockquote>节哀，这太正常了
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -25667,16 +17117,10 @@ pripri的DVD卖不出去www居然不如异世界食堂，上榜这些可能都�
 ##### 7236#       发表于 2017-10-28 22:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37600585&amp;ptid=1486439" target="_blank">彩虹之羽 发表于 2017-10-28 22:34:41</a>
 今天三场talk show上staff纷纷逼问P什么时候有二期，P只能一遍遍重复“明年4月的活动上希望能带给大家好消 ...</blockquote>600张BD就够？那下次手游出几个sao点的立绘立马就能达标啊。官方这么说感觉就是已经定下来了
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -25685,13 +17129,7 @@ pripri的DVD卖不出去www居然不如异世界食堂，上榜这些可能都�
 ##### 7237#         楼主| 发表于 2017-10-28 22:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">毕竟财团B 本质手游宣传片
-
-
-
-
-
 
 
 -----
@@ -25700,14 +17138,7 @@ pripri的DVD卖不出去www居然不如异世界食堂，上榜这些可能都�
 ##### 7238#       发表于 2017-10-28 23:01
 
 
-
-
 今天日亚补了一波货，本日也没其他发碟的，霸榜的J家也下去了，杂鱼pripri体验了一下日榜第一。
-
-
-
-
-
 
 
 -----
@@ -25716,14 +17147,7 @@ pripri的DVD卖不出去www居然不如异世界食堂，上榜这些可能都�
 ##### 7239#       发表于 2017-10-28 23:03
 
 
-
-
 感觉二期是已经确定了，现在或许只是在等大河内的档期？
-
-
-
-
-
 
 
 -----
@@ -25732,14 +17156,7 @@ pripri的DVD卖不出去www居然不如异世界食堂，上榜这些可能都�
 ##### 7240#       发表于 2017-10-28 23:03
 
 
-
-
 那肯定不能明着说够了啊，这样算是随口敷衍过去吧，后续稳了稳了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25748,14 +17165,7 @@ pripri的DVD卖不出去www居然不如异世界食堂，上榜这些可能都�
 ##### 7241#       发表于 2017-10-28 23:08
 
 
-
-
 今天还发表了3卷封面是多萝西
-
-
-
-
-
 
 
 -----
@@ -25764,16 +17174,10 @@ pripri的DVD卖不出去www居然不如异世界食堂，上榜这些可能都�
 ##### 7242#         楼主| 发表于 2017-10-28 23:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37600813&amp;ptid=1486439" target="_blank">白房子 发表于 2017-10-28 23:08</a>
 
 今天还发表了3卷封面是多萝西</blockquote>
 那目测明天中午（11~12）公开
-
-
-
-
-
 
 
 -----
@@ -25782,24 +17186,16 @@ pripri的DVD卖不出去www居然不如异世界食堂，上榜这些可能都�
 ##### 7243#       发表于 2017-10-28 23:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37600813&amp;ptid=1486439" target="_blank">白房子 发表于 2017-10-28 23:08:40</a>
 今天还发表了3卷封面是多萝西</blockquote>有图么  <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 没看到图
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7244#       发表于 2017-10-28 23:19
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201710/28/231439ce1uj29aavmeeo19.jpg" referrerpolicy="no-referrer">
@@ -25812,10 +17208,6 @@ pripri的DVD卖不出去www居然不如异世界食堂，上榜这些可能都�
 2017-10-28 23:14 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201710/28/231437ypyacrcr81g2wgwy.jpg" referrerpolicy="no-referrer">
 
 
@@ -25824,10 +17216,6 @@ pripri的DVD卖不出去www居然不如异世界食堂，上榜这些可能都�
 下载附件
 
 2017-10-28 23:14 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201710/28/231525bl4tletttpwzhp9l.jpg" referrerpolicy="no-referrer">
@@ -25840,24 +17228,13 @@ pripri的DVD卖不出去www居然不如异世界食堂，上榜这些可能都�
 2017-10-28 23:15 上传
 
 
-
-
-
-
-
 说来関根明良穿的衣服是小安洁和小夏洛特一对儿的那一套，发型也设计出了公主的那两个角。
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 7245#       发表于 2017-10-28 23:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37600877&amp;ptid=1486439" target="_blank">彩虹之羽 发表于 2017-10-28 23:18</a>
@@ -25869,16 +17246,10 @@ pripri的DVD卖不出去www居然不如异世界食堂，上榜这些可能都�
 repo是没图的，日本人嘛又不可能盗摄，看武嘉说的等之后官方再公开封面吧。
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 7246#       发表于 2017-10-28 23:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37600882&amp;ptid=1486439" target="_blank">白房子 发表于 2017-10-28 23:19</a>
@@ -25889,17 +17260,10 @@ repo是没图的，日本人嘛又不可能盗摄，看武嘉说的等之后官�
 果然两个角才是公主本体么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7247#       发表于 2017-10-28 23:49
-
-
 
 
 现在差不多可以想想第二季该从什么角度写了。
@@ -25911,16 +17275,10 @@ repo是没图的，日本人嘛又不可能盗摄，看武嘉说的等之后官�
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7248#       发表于 2017-10-28 23:54
-
 
 
  本帖最后由 白房子 于 2017-10-29 01:13 编辑 
@@ -25947,18 +17305,10 @@ repo是没图的，日本人嘛又不可能盗摄，看武嘉说的等之后官�
 其实TV放送的顺序和动画制作的顺序不同。
 
 
-
-
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 7249#       发表于 2017-10-29 00:01
-
 
 
  本帖最后由 aptx8285144 于 2017-10-29 00:04 编辑 
@@ -25966,16 +17316,10 @@ repo是没图的，日本人嘛又不可能盗摄，看武嘉说的等之后官�
 要么继续本质宣传片的路线，要么开始全面推动剧情线，前者的话是独立开来继续前进，而后者需要很好的呼应一期留下的少数人物（公爵和以及泽尔达的设定能力），无论是前者还是后者，都能在一定程度上符合我的心理预期<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">（后者自不用多说，前者必然会面对剧本的完成度的问题但是能避开大河内在转折之时的”人间真实“的可能性）
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7250#       发表于 2017-10-29 00:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37601099&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-10-29 00:01:43</a>
@@ -25986,16 +17330,10 @@ repo是没图的，日本人嘛又不可能盗摄，看武嘉说的等之后官�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 7251#       发表于 2017-10-29 00:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37601161&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-10-29 00:12</a>
@@ -26004,16 +17342,10 @@ repo是没图的，日本人嘛又不可能盗摄，看武嘉说的等之后官�
 宣传片之类的其实和走完主线的选择未必是冲突的，比如去年的超九，或者多年前的bc(这个到难说，但是从后来贴吧流传出手游片断来看8组在本来预定二期里面很可能也是想认真想发展剧情的，弗洛姆身份背景揭开等等），但是Pr光是从这季风格来看反而是走单元剧的水准比较高，最后两话反而下降了，因此本质手游路线也许更好<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  大厨麦当牛  
 ##### 7252#       发表于 2017-10-29 00:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37601080&amp;ptid=1486439" target="_blank">白房子 发表于 2017-10-28 23:54</a>
@@ -26026,17 +17358,10 @@ repo是没图的，日本人嘛又不可能盗摄，看武嘉说的等之后官�
 不过如果真的是若本来的话绝对笑尿，整个片的气氛都不一样了。
 
 
-
-
-
-
-
 -----
 
 ####  第三视点  
 ##### 7253#       发表于 2017-10-29 00:47
-
-
 
 
 续作很稳，就看是什么形式了
@@ -26044,16 +17369,10 @@ repo是没图的，日本人嘛又不可能盗摄，看武嘉说的等之后官�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7254#       发表于 2017-10-29 00:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37601232&amp;ptid=1486439" target="_blank">大厨麦当牛 发表于 2017-10-29 00:26</a>
@@ -26064,17 +17383,10 @@ repo是没图的，日本人嘛又不可能盗摄，看武嘉说的等之后官�
 ……不好意思看错名字了，是本来打算找玄田哲章来配，玄田要是有日程冲突的话再上代役若本规夫。对声优不熟搞错顺序了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 7255#         楼主| 发表于 2017-10-29 01:22
-
-
 
 
 トークショー
@@ -26146,16 +17458,10 @@ repo是没图的，日本人嘛又不可能盗摄，看武嘉说的等之后官�
 チーフプロデューサーが「今回は言えない、来年4月に良い話が出来るよう頑張ってるから、質問でそれは無し」と最初に釘刺ししたが、登壇したスタッフから「2期は？やるんじゃないの？だから俺ら呼ばれたんじゃないの？」と突っ込まれまくっていた。
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 7256#       发表于 2017-10-29 10:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37601201&amp;ptid=1486439" target="_blank">aptx8285144 发表于 2017-10-29 00:20</a>
@@ -26166,27 +17472,15 @@ repo是没图的，日本人嘛又不可能盗摄，看武嘉说的等之后官�
 顺便既然后续稳了，现在是不是要重新看看最后两集的水平<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7257#       发表于 2017-10-29 10:17
 
 
-
-
 求个翻译啊啊啊
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -26195,16 +17489,10 @@ repo是没图的，日本人嘛又不可能盗摄，看武嘉说的等之后官�
 ##### 7258#       发表于 2017-10-29 10:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37602748&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-10-29 10:17:00</a>
 求个翻译啊啊啊</blockquote>前面就有啊。。 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -26213,23 +17501,15 @@ repo是没图的，日本人嘛又不可能盗摄，看武嘉说的等之后官�
 ##### 7259#       发表于 2017-10-29 12:19
 
 
-
-
 STAFF 透露动画为了避免万策尽矣是先播出 Actas 提交上来的内容。- 所以这才是乱序的理由啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 7260#       发表于 2017-10-29 12:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37603596&amp;ptid=1486439" target="_blank">彩虹之羽 发表于 2017-10-29 12:19</a>
@@ -26241,17 +17521,10 @@ STAFF 透露动画为了避免万策尽矣是先播出 Actas 提交上来的内�
 hhhhhhhhhhh还是制作组懂Actas。
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7261#       发表于 2017-10-29 12:55
-
-
 
 
 ・三明治、蛋糕果子之类的也有设计，甚至三明治的具体配料都设计了。
@@ -26277,18 +17550,10 @@ hhhhhhhhhhh还是制作组懂Actas。
 并且甄选范围以年轻声优为主。
 
 
-
-
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 7262#       发表于 2017-10-29 20:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37603851&amp;ptid=1486439" target="_blank">白房子 发表于 2017-10-29 12:55:25</a>
@@ -26299,16 +17564,10 @@ hhhhhhhhhhh还是制作组懂Actas。
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7263#       发表于 2017-10-29 20:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37606411&amp;ptid=1486439" target="_blank">彩虹之羽 发表于 2017-10-29 20:28:12</a></blockquote>一般来说妹子都不爱参加这种宅向活动吧，各种百合漫展妹子也没多少。这么一看这片妹子观众没准还真不少
@@ -26316,16 +17575,10 @@ hhhhhhhhhhh还是制作组懂Actas。
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 7264#       发表于 2017-10-29 21:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37606461&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-10-29 20:36:22</a>
@@ -26336,16 +17589,10 @@ hhhhhhhhhhh还是制作组懂Actas。
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7265#       发表于 2017-10-29 21:23
-
 
 
  本帖最后由 白房子 于 2017-10-29 22:08 编辑 
@@ -26368,9 +17615,6 @@ hhhhhhhhhhh还是制作组懂Actas。
 2017-10-29 22:07 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201710/29/220758bmefecexifcx9xio.png" referrerpolicy="no-referrer">
 
 
@@ -26381,39 +17625,20 @@ hhhhhhhhhhh还是制作组懂Actas。
 2017-10-29 22:07 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 7266#         楼主| 发表于 2017-10-29 23:00
 
 
-
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fkzif0e3lcj20pt0xcqv5.jpg" referrerpolicy="no-referrer">
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fkzif2ljakj20k40ju1dc.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 7267#       发表于 2017-10-29 23:32
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201710/29/233141ypif0jy01a0z00fm.png" referrerpolicy="no-referrer">
@@ -26426,16 +17651,7 @@ hhhhhhhhhhh还是制作组懂Actas。
 2017-10-29 23:31 上传
 
 
-
-
-
-
 原来她也去看了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">难道也是粉丝吗？。。
-
-
-
-
-
 
 
 -----
@@ -26444,16 +17660,10 @@ hhhhhhhhhhh还是制作组懂Actas。
 ##### 7268#       发表于 2017-10-29 23:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37607612&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-10-29 23:32:30</a>
 难道也是粉丝吗？。。</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">观摩学习皇室成员的操作吧
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -26462,16 +17672,10 @@ hhhhhhhhhhh还是制作组懂Actas。
 ##### 7269#         楼主| 发表于 2017-10-30 00:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37607612&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-10-29 23:32</a>
 
 原来她也去看了难道也是粉丝吗？。。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/004.png" referrerpolicy="no-referrer">去看的多了去了，此花绮谭的作者也去看了，还po图，从事这行多少都是喜欢动画或漫画的
-
-
-
-
-
 
 
 -----
@@ -26480,16 +17684,10 @@ hhhhhhhhhhh还是制作组懂Actas。
 ##### 7270#       发表于 2017-10-30 02:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37607612&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-10-29 23:32</a>
 
 原来她也去看了难道也是粉丝吗？。。</blockquote>
 之前在我关注的三次元艺人的推上看到和関根一起活动，要知道我有多惊讶……<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">艺人还夸関根很温柔善良……
-
-
-
-
-
 
 
 -----
@@ -26498,15 +17696,12 @@ hhhhhhhhhhh还是制作组懂Actas。
 ##### 7271#         楼主| 发表于 2017-10-30 11:37
 
 
-
-
 プリンセス・プリンシパル Ⅲ
 
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fl04atzk8bj20xc0kojvw.jpg" referrerpolicy="no-referrer">
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fl04au2s27j20xc0koaeh.jpg" referrerpolicy="no-referrer">
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fl04aubfp1j20go0nk460.jpg" referrerpolicy="no-referrer">
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fl04auj450j20go0nkn4l.jpg" referrerpolicy="no-referrer">
-
 
 
 2017年11月24日（金） 発売
@@ -26599,33 +17794,19 @@ DVD：￥6,000（税抜）
 ・アニメーションキャラクターデザイン秋谷有紀恵によるW表紙ジャケット
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7272#       发表于 2017-10-30 11:46
 
 
-
-
 case16.5，印度留学生要和比阿特决斗……之前好像是白土设定和速水设定说想让印度妹子出场，还真的有啊~
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 7273#       发表于 2017-10-30 18:14
-
-
 
 
 一个台湾推主画的GIF，很厉害啊。[https://twitter.com/xl_game/status/924935937942892544](https://twitter.com/xl_game/status/924935937942892544)
@@ -26646,23 +17827,10 @@ XL≒クラゲ‏ @xl_game
 2017-10-30 18:12 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  midearth  
 ##### 7274#       发表于 2017-10-30 20:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37603596&amp;ptid=1486439" target="_blank">彩虹之羽 发表于 2017-10-29 12:19</a>
@@ -26674,16 +17842,10 @@ STAFF 透露动画为了避免万策尽矣是先播出 Actas 提交上来的内�
 啥意思？是说前半是Actas做的？
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7275#       发表于 2017-10-30 21:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37615188&amp;ptid=1486439" target="_blank">midearth 发表于 2017-10-30 20:28:28</a>
@@ -26692,28 +17854,15 @@ STAFF 透露动画为了避免万策尽矣是先播出 Actas 提交上来的内�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7276#       发表于 2017-10-30 21:05
 
 
-
-
 虽说这次的旗袍可以给满分，但是…公主你到底有多喜欢这个眼镜…
 
 <img src="http://ww2.sinaimg.cn/large/0060lm7Tly1fl0koe3oe0j30hs0vktaw.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
@@ -26722,14 +17871,7 @@ STAFF 透露动画为了避免万策尽矣是先播出 Actas 提交上来的内�
 ##### 7277#       发表于 2017-10-30 22:57
 
 
-
-
 公主：安洁不让我带lv帽子，我只能戴lv眼镜了
-
-
-
-
-
 
 
 -----
@@ -26738,24 +17880,16 @@ STAFF 透露动画为了避免万策尽矣是先播出 Actas 提交上来的内�
 ##### 7278#       发表于 2017-10-30 23:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37615188&amp;ptid=1486439" target="_blank">midearth 发表于 2017-10-30 20:28:28</a>
 啥意思？是说前半是</blockquote>我觉得可以理解为13  1  2  7 18 actas主力做的原画和分镜  <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">   第五话江畑谅真单刷回  最后作监这部分还是3hz负责的
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7279#       发表于 2017-10-30 23:48
-
-
 
 
 706名無しさん＠お腹いっぱい。 (ﾜｯﾁｮｲ a1a2-haA8)2017/10/30(月) 02:52:34.13ID:XKLkBXBK0
@@ -26958,16 +18092,10 @@ SP0201A 01:04-02:16 117. titteringly
 SP0202A 02:58-03:41 105. on a day so calm
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7280#       发表于 2017-10-31 11:47
-
 
 
 ※本商品では諸般の事情により、話数の順番をTV放送時と一部変更して収録しております。
@@ -26987,26 +18115,15 @@ SP0202A 02:58-03:41 105. on a day so calm
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">破案了，3Hz你不行啊~
 
 
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 7281#       发表于 2017-10-31 11:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37619751&amp;ptid=1486439" target="_blank">白房子 发表于 2017-10-31 11:47:28</a></blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -27015,15 +18132,9 @@ SP0202A 02:58-03:41 105. on a day so calm
 ##### 7282#       发表于 2017-10-31 11:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37619751&amp;ptid=1486439" target="_blank">白房子 发表于 2017-10-31 11:47:28</a></blockquote>第九话感觉本来是放总集篇 8.5 临时赶出来的
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -27032,16 +18143,10 @@ SP0202A 02:58-03:41 105. on a day so calm
 ##### 7283#       发表于 2017-10-31 11:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37610572&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-10-30 11:37</a>
 
 プリンセス・プリンシパル Ⅲ</blockquote>
 这图人物怎么看起来像CG
-
-
-
-
-
 
 
 -----
@@ -27050,16 +18155,9 @@ SP0202A 02:58-03:41 105. on a day so calm
 ##### 7284#       发表于 2017-10-31 18:21
 
 
-
-
 二卷初动5008  <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer"> 一副药丸的感觉
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -27068,13 +18166,7 @@ SP0202A 02:58-03:41 105. on a day so calm
 ##### 7285#         楼主| 发表于 2017-10-31 18:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我觉得不错了 要求挺高
-
-
-
-
-
 
 
 -----
@@ -27083,16 +18175,10 @@ SP0202A 02:58-03:41 105. on a day so calm
 ##### 7286#       发表于 2017-10-31 18:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37623049&amp;ptid=1486439" target="_blank">彩虹之羽 发表于 2017-10-31 18:21:05</a>
 二卷初动5008</blockquote>正常右肩而已。。。不可能每卷都跟首卷一样
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -27101,16 +18187,10 @@ SP0202A 02:58-03:41 105. on a day so calm
 ##### 7287#       发表于 2017-10-31 18:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37623184&amp;ptid=1486439" target="_blank">第三视点 发表于 2017-10-31 18:41:16</a>
 正常右肩而已。。。不可能每卷都跟首卷一样</blockquote>累计pt7254 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">结果0.7pt不到 第三卷怕是右的更低 到4500了
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -27119,16 +18199,10 @@ SP0202A 02:58-03:41 105. on a day so calm
 ##### 7288#       发表于 2017-10-31 19:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37623279&amp;ptid=1486439" target="_blank">彩虹之羽 发表于 2017-10-31 18:53:47</a>
 累计pt7254</blockquote>等两周再看看
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -27137,13 +18211,7 @@ SP0202A 02:58-03:41 105. on a day so calm
 ##### 7289#         楼主| 发表于 2017-10-31 19:27
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">销量学真厉害
-
-
-
-
-
 
 
 -----
@@ -27152,23 +18220,15 @@ SP0202A 02:58-03:41 105. on a day so calm
 ##### 7290#       发表于 2017-10-31 19:35
 
 
-
-
 2卷才发了4天，觉得少也正常，正常都是发6天的。
 
 而且3卷的话会送两张手游卡，上次的空中浮遊安洁日拍上能卖到2500日元，单为了多萝西和小贝的卡买3卷也是赚啊。
-
-
-
-
-
 
 
 -----
 
 ####  堆雪若叶  
 ##### 7291#       发表于 2017-10-31 20:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37623518&amp;ptid=1486439" target="_blank">白房子 发表于 2017-10-31 19:35</a>
@@ -27179,16 +18239,10 @@ SP0202A 02:58-03:41 105. on a day so calm
 这样考虑不很合适吧，看这游戏的人气真的有什么不看动画的人去玩的吗。玩手游愿意氪的本身就应该是动画粉丝，属于本来就会掏钱买盘的那一类，BD送卡只能是一个添头吧。
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7292#       发表于 2017-10-31 20:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37623939&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-10-31 20:30:45</a>
@@ -27197,16 +18251,10 @@ SP0202A 02:58-03:41 105. on a day so calm
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 7293#       发表于 2017-10-31 20:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37623955&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-10-31 20:33</a>
@@ -27218,17 +18266,10 @@ SP0202A 02:58-03:41 105. on a day so calm
 是这样的吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我以为这游戏的玩家会比较偏核心向的呢
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 7294#       发表于 2017-10-31 20:43
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201710/31/204209yf5l26kao657f6ax.jpg" referrerpolicy="no-referrer">
@@ -27241,17 +18282,7 @@ SP0202A 02:58-03:41 105. on a day so calm
 2017-10-31 20:42 上传
 
 
-
-
-
-
 贴吧看到有张这次活动安洁和公主旗袍立绘的p图<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
@@ -27260,16 +18291,10 @@ SP0202A 02:58-03:41 105. on a day so calm
 ##### 7295#       发表于 2017-10-31 20:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37623999&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-10-31 20:40:58</a>
 是这样的吗我以为这游戏的玩家会比较偏核心向的呢</blockquote>第一卷发售那几天我见到的拿bd安洁当头像的也就十分之一二…要知道每次开活动新卡基本都是刷屏的
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -27278,23 +18303,16 @@ SP0202A 02:58-03:41 105. on a day so calm
 ##### 7296#       发表于 2017-10-31 21:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37623939&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-10-31 20:30</a>
 
 这样考虑不很合适吧，看这游戏的人气真的有什么不看动画的人去玩的吗。玩手游愿意氪的本身就应该是动画粉 ...</blockquote>
 卡是要两张才能觉醒啊<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">架不住真的有人喜欢，不仅日拍，贴吧上都有人在收卡……
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7297#       发表于 2017-10-31 21:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37624098&amp;ptid=1486439" target="_blank">白房子 发表于 2017-10-31 21:00:13</a>
@@ -27305,16 +18323,10 @@ SP0202A 02:58-03:41 105. on a day so calm
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7298#       发表于 2017-10-31 21:09
-
 
 
  本帖最后由 白房子 于 2017-10-31 21:10 编辑 
@@ -27327,27 +18339,15 @@ SP0202A 02:58-03:41 105. on a day so calm
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">原来不需要的吗！那6星觉醒后是几星？5星呢？？？
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7299#       发表于 2017-10-31 21:13
 
 
-
-
 6星觉醒后是七星，你说的那个复数卡的是突破
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -27356,16 +18356,10 @@ SP0202A 02:58-03:41 105. on a day so calm
 ##### 7300#       发表于 2017-10-31 21:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37624098&amp;ptid=1486439" target="_blank">白房子 发表于 2017-10-31 21:00</a>
 
 卡是要两张才能觉醒啊虽然我也觉得花圆盘一半的价格买一张卡很蠢，甚至都能课一个十连了……[c:01 ...</blockquote>
 因为这游戏感人的六星出率实际上买BD拿六星很可能往往比氪金抽卡出六的成本更低……所以真心为玩游戏收特典码并不一定亏成什么样。另外多张相同卡是拿来突破用的，要加满属性需要额外十张相同卡，如果还有别的需求可能用到几十张相同卡，所以有人会大量的收<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27374,16 +18368,10 @@ SP0202A 02:58-03:41 105. on a day so calm
 ##### 7301#       发表于 2017-10-31 21:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37624204&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-10-31 21:16</a>
 
 因为这游戏感人的六星出率实际上买BD拿六星很可能往往比氪金抽卡出六的成本更低……所以真心为玩游戏收特 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">不玩游戏不明觉厉。等发3卷之后再看看多萝西和比阿特能在日拍卖上什么价格。
-
-
-
-
-
 
 
 -----
@@ -27392,14 +18380,7 @@ SP0202A 02:58-03:41 105. on a day so calm
 ##### 7302#       发表于 2017-11-1 20:29
 
 
-
-
 补完之后，作为一个看惯了福赛斯和勒卡雷的间谍小说迷，只能说这片子在“间谍”方面完全不行啊……
-
-
-
-
-
 
 
 -----
@@ -27408,13 +18389,7 @@ SP0202A 02:58-03:41 105. on a day so calm
 ##### 7303#       发表于 2017-11-1 23:00
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不玩手游那兑换码怎么处理啊
-
-
-
-
-
 
 
 -----
@@ -27423,23 +18398,16 @@ SP0202A 02:58-03:41 105. on a day so calm
 ##### 7304#       发表于 2017-11-1 23:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37632469&amp;ptid=1486439" target="_blank">NikaidouShinku 发表于 2017-11-1 23:00</a>
 
 不玩手游那兑换码怎么处理啊</blockquote>
 贴吧上应该有收的，可以去找找看。
 
 
-
-
-
-
-
 -----
 
 ####  NikaidouShinku  
 ##### 7305#       发表于 2017-11-1 23:14
-
 
 
  本帖最后由 NikaidouShinku 于 2017-11-1 23:22 编辑 
@@ -27449,27 +18417,15 @@ SP0202A 02:58-03:41 105. on a day so calm
 emm.....已经送出去了
 
 
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 7306#       发表于 2017-11-2 01:02
 
 
-
-
 二卷dvd  初动224位  142是225<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">  一卷dvd是215份   大右的节奏
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -27478,14 +18434,8 @@ emm.....已经送出去了
 ##### 7307#         楼主| 发表于 2017-11-2 10:57
 
 
-
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fl3k0md0m5j20k80h87m3.jpg" referrerpolicy="no-referrer">
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fl3k0oc2l3j20sg0k2hdt.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27494,14 +18444,7 @@ emm.....已经送出去了
 ##### 7308#       发表于 2017-11-2 17:11
 
 
-
-
 手游又更新了，感觉越来越肝了怎么办<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27510,16 +18453,10 @@ emm.....已经送出去了
 ##### 7309#       发表于 2017-11-2 19:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37638498&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-11-2 17:11</a>
 
 手游又更新了，感觉越来越肝了怎么办</blockquote>
 这次更新后变肝主要是开启活动排名了吧<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">顺便能看看这游戏玩家到底活跃度怎么样
-
-
-
-
-
 
 
 -----
@@ -27528,21 +18465,13 @@ emm.....已经送出去了
 ##### 7310#       发表于 2017-11-2 20:20
 
 
-
-
 手游大把撒狗粮，我肝，我肝还不行吗<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 7311#       发表于 2017-11-2 20:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37639361&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-11-02 19:15:25</a>
@@ -27552,24 +18481,13 @@ emm.....已经送出去了
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  间咒  
 ##### 7312#       发表于 2017-11-2 21:12
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">咸鱼玩家排位600+...这游戏玩的人莫非还没买BD的人多？
-
-
-
-
-
 
 
 -----
@@ -27578,23 +18496,16 @@ emm.....已经送出去了
 ##### 7313#       发表于 2017-11-2 21:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37640167&amp;ptid=1486439" target="_blank">间咒 发表于 2017-11-02 21:12:23</a>
 咸鱼玩家排位600+...这游戏玩的人莫非还没买BD的人多？</blockquote>我就打了几次 排名1600 我估计活跃玩家2500左右
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  间咒  
 ##### 7314#       发表于 2017-11-2 22:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37640215&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-11-2 21:22</a>
@@ -27608,16 +18519,10 @@ emm.....已经送出去了
 所以BD送6星大概是在推销手游了....别人家都是拿手游冲销量，就他家刚好相反<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7315#       发表于 2017-11-2 22:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37640623&amp;ptid=1486439" target="_blank">间咒 发表于 2017-11-02 22:30:27</a>
@@ -27628,17 +18533,10 @@ emm.....已经送出去了
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 7316#       发表于 2017-11-3 07:50
-
-
 
 
 官方赶紧出动画才对<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">手游是拖后腿的
@@ -27646,17 +18544,10 @@ emm.....已经送出去了
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 7317#         楼主| 发表于 2017-11-4 01:21
-
-
 
 
 笑死
@@ -27671,17 +18562,10 @@ case顺上映会，影山灯和关根明良谈到想要小贝和公主的手办
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fl5ej1s69gj20xc0tln0s.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7318#       发表于 2017-11-4 20:19
-
-
 
 
 之前没注意到，公主说的是「大好きだった」"曾经"这个过去式不知有何用意。曾经喜欢……难道你现在就不喜欢安洁了吗？！
@@ -27696,12 +18580,6 @@ case顺上映会，影山灯和关根明良谈到想要小贝和公主的手办
 2017-11-4 19:56 上传
 
 
-
-
-
-
-
-
 比阿特认为东洋料理臭的偏见是来源于是饺子(日式煎饺)，而日本人觉得饺子臭的原因又是因为大蒜。
 
 <img src="https://img.saraba1st.com/forum/201711/04/195633qa66ec6p2hlhajah.jpg" referrerpolicy="no-referrer">
@@ -27714,20 +18592,10 @@ case顺上映会，影山灯和关根明良谈到想要小贝和公主的手办
 2017-11-4 19:56 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7319#       发表于 2017-11-4 20:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37653125&amp;ptid=1486439" target="_blank">白房子 发表于 2017-11-04 20:19:26</a>
@@ -27736,16 +18604,10 @@ case顺上映会，影山灯和关根明良谈到想要小贝和公主的手办
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7320#       发表于 2017-11-4 22:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37653216&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-11-4 20:33</a>
@@ -27760,26 +18622,13 @@ case顺上映会，影山灯和关根明良谈到想要小贝和公主的手办
 如果仅仅是这样的话比阿特作为贵族真是目光短浅啊，还是公主见多识广会说话。
 
 
-
-
-
-
-
-
 -----
 
 ####  hosilly  
 ##### 7321#       发表于 2017-11-4 23:23
 
 
-
-
 这个过去式的用法应该是跟跳船那话说的“我喜欢的是过去的你”一个道理？
-
-
-
-
-
 
 
 -----
@@ -27788,23 +18637,15 @@ case顺上映会，影山灯和关根明良谈到想要小贝和公主的手办
 ##### 7322#       发表于 2017-11-5 10:53
 
 
-
-
 第二卷特典广播剧b站有生肉了  天使动漫有熟肉了 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 早起吃狗粮
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  堆雪若叶  
 ##### 7323#       发表于 2017-11-5 11:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37653125&amp;ptid=1486439" target="_blank">白房子 发表于 2017-11-4 20:19</a>
@@ -27816,16 +18657,10 @@ case顺上映会，影山灯和关根明良谈到想要小贝和公主的手办
 如果要进一步考虑的话，公主用这个说法可能也是对现在和过去安洁的形象所做的区分。既然说到的是她如何成长为如今完美的形象，那自然是因为十年前她所遇见的公主，十年后回来的安洁和此还是有所区别的，而这也并不否定公主对现在安洁的感情吧。
 
 
-
-
-
-
-
 -----
 
 ####  银河星爆  
 ##### 7324#       发表于 2017-11-5 13:15
-
 
 
  本帖最后由 银河星爆 于 2017-11-5 13:26 编辑 
@@ -27836,25 +18671,13 @@ case顺上映会，影山灯和关根明良谈到想要小贝和公主的手办
 倒不如说，真的是为比阿特的心情考虑的话，这样才是此地无银三百两，因为比阿特听了后心里自然而然会想：“你现在还喜欢那个人吗？”
 
 
-
-
-
-
-
 -----
 
 ####  possibility  
 ##### 7325#       发表于 2017-11-5 23:11
 
 
-
-
 最近几天终于补完了，最后两集确实没啥反转剧情太直白，二季希望脚本全是大河内来做。
-
-
-
-
-
 
 
 -----
@@ -27863,22 +18686,13 @@ case顺上映会，影山灯和关根明良谈到想要小贝和公主的手办
 ##### 7326#       发表于 2017-11-6 18:04
 
 
-
-
 SP02看了，有个问题，公主私下不是一直把安洁叫夏洛特的吗
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 7327#       发表于 2017-11-7 16:19
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201711/07/161844fya9ismuca9ggcmu.png" referrerpolicy="no-referrer">
@@ -27891,16 +18705,7 @@ SP02看了，有个问题，公主私下不是一直把安洁叫夏洛特的吗
 2017-11-7 16:18 上传
 
 
-
-
-
-
 第二周销量
-
-
-
-
-
 
 
 -----
@@ -27909,16 +18714,9 @@ SP02看了，有个问题，公主私下不是一直把安洁叫夏洛特的吗
 ##### 7328#       发表于 2017-11-7 18:26
 
 
-
-
 今天<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">日榜22  还有机会出数据
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -27927,16 +18725,9 @@ SP02看了，有个问题，公主私下不是一直把安洁叫夏洛特的吗
 ##### 7329#         楼主| 发表于 2017-11-7 20:17
 
 
-
-
 橘正纪监督的访谈：[http://dengekionline.com/elem/000/001/618/1618967/](http://dengekionline.com/elem/000/001/618/1618967/)
 
 有能力的看一下，本日语渣已经阵亡
-
-
-
-
-
 
 
 -----
@@ -27945,23 +18736,15 @@ SP02看了，有个问题，公主私下不是一直把安洁叫夏洛特的吗
 ##### 7330#       发表于 2017-11-8 01:25
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/150.png" referrerpolicy="no-referrer">努力机翻中  估计明天早上能搞定
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  yjysrkl  
 ##### 7331#       发表于 2017-11-8 01:39
-
-
 
 
 橘正纪监督的新访谈干货很多的，让人真的能感觉到staff们对故事很认真，有很多细节的设定对于喜欢探究的观众来说应该能找到乐趣。
@@ -27971,17 +18754,10 @@ SP02看了，有个问题，公主私下不是一直把安洁叫夏洛特的吗
 但往往就是很多一口气看完的人喜欢跑来抒发一下自己的“看法”，批判这儿，批判那儿，作为一路追来的观众，看到这种人真是不知道说什么好。
 
 
-
-
-
-
-
 -----
 
 ####  yjysrkl  
 ##### 7332#       发表于 2017-11-8 01:49
-
-
 
 
 两卷BD中附赠的声优副音轨和staff副音轨也特别好
@@ -27993,17 +18769,10 @@ Staff音轨里的大叔们虽然说话又快嘴又张不开，但是他们能谈
 （唐突的）结论，请大家多买BD。
 
 
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 7333#       发表于 2017-11-8 03:29
-
-
 
 
 我想―――――――――――一问从目的提问。“2期实现的话什么故事描绘一下？（娜娜先生）”。
@@ -28102,25 +18871,13 @@ J:本作品，在那个时常的小故事中，她们为了想什么而行动的
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  yjysrkl  
 ##### 7334#       发表于 2017-11-8 05:49
 
 
-
-
 感受到了机翻<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28129,16 +18886,9 @@ J:本作品，在那个时常的小故事中，她们为了想什么而行动的
 ##### 7335#       发表于 2017-11-8 08:17
 
 
-
-
 感觉被机翻打败了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -28147,16 +18897,9 @@ J:本作品，在那个时常的小故事中，她们为了想什么而行动的
 ##### 7336#       发表于 2017-11-8 09:25
 
 
-
-
 访谈透露着一股二期的气息
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -28165,16 +18908,9 @@ J:本作品，在那个时常的小故事中，她们为了想什么而行动的
 ##### 7337#       发表于 2017-11-8 20:16
 
 
-
-
 不氪金，不用钻石，体力用的比较彻底大概排名就到500多了，进500还是需要使劲肝的…
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -28183,14 +18919,7 @@ J:本作品，在那个时常的小故事中，她们为了想什么而行动的
 ##### 7338#       发表于 2017-11-8 20:26
 
 
-
-
 官方什么时候能腰斩掉手游？好好做动画行不行？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28199,24 +18928,16 @@ J:本作品，在那个时常的小故事中，她们为了想什么而行动的
 ##### 7339#       发表于 2017-11-8 20:35
 
 
-
-
 为什么有人还不明白手游才是本体？
 
 
 动画碟片肯定是赚了，但不多，不足以吸引官方加大投入到续作
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7340#       发表于 2017-11-8 20:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37684411&amp;ptid=1486439" target="_blank">神之叹息 发表于 2017-11-08 20:26:40</a>
@@ -28227,17 +18948,10 @@ J:本作品，在那个时常的小故事中，她们为了想什么而行动的
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 7341#       发表于 2017-11-8 22:03
-
-
 
 
 #Princess Principal# （关于作品标题）
@@ -28246,16 +18960,10 @@ J:本作品，在那个时常的小故事中，她们为了想什么而行动的
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7342#       发表于 2017-11-8 22:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37685030&amp;ptid=1486439" target="_blank">彩虹之羽 发表于 2017-11-08 22:03:55</a>
@@ -28265,17 +18973,10 @@ J:本作品，在那个时常的小故事中，她们为了想什么而行动的
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 7343#       发表于 2017-11-8 23:27
-
-
 
 
 #Princess Principal#（橘正纪监督提到的容易被考据党忽视的细节）
@@ -28288,32 +18989,19 @@ J:本作品，在那个时常的小故事中，她们为了想什么而行动的
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 7344#       发表于 2017-11-8 23:46
 
 
-
-
 手游赚了多少？没有动画有多少人会玩那手游？。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 7345#       发表于 2017-11-9 00:30
-
 
 
  本帖最后由 xtwx1716 于 2017-11-9 00:33 编辑 
@@ -28331,24 +19019,13 @@ J:本作品，在那个时常的小故事中，她们为了想什么而行动的
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 7346#         楼主| 发表于 2017-11-9 01:02
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你别忘了最大的爸爸是谁，是万代。手游糊了？去你妹的2期
-
-
-
-
-
 
 
 -----
@@ -28357,14 +19034,8 @@ J:本作品，在那个时常的小故事中，她们为了想什么而行动的
 ##### 7347#         楼主| 发表于 2017-11-9 16:38
 
 
-
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1flbx7xw12nj20k00eydhi.jpg" referrerpolicy="no-referrer">
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1flbx7y2eywj20k30ik14l.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28373,15 +19044,9 @@ J:本作品，在那个时常的小故事中，她们为了想什么而行动的
 ##### 7348#       发表于 2017-11-9 17:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37691553&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-11-09 16:38:40</a></blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -28390,23 +19055,16 @@ J:本作品，在那个时常的小故事中，她们为了想什么而行动的
 ##### 7349#       发表于 2017-11-9 17:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37691553&amp;ptid=1486439" target="_blank">xingenge 发表于 2017-11-9 16:38</a></blockquote>
 一眼看到后面的flfl<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 这个色紙的软萌画风像是むろ，放アンプリ两人单独在后面也是很让人注目www
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 7350#         楼主| 发表于 2017-11-9 17:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37692060&amp;ptid=1486439" target="_blank">白房子 发表于 2017-11-9 17:27</a>
@@ -28417,26 +19075,14 @@ J:本作品，在那个时常的小故事中，她们为了想什么而行动的
 贴吧有人找到了 是むろ
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7351#       发表于 2017-11-9 17:42
 
 
-
-
 这、这个公主好妖娆<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 <img src="http://ww2.sinaimg.cn/large/0060lm7Tly1flbz0tu1gij30hs0vk77w.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28445,13 +19091,7 @@ J:本作品，在那个时常的小故事中，她们为了想什么而行动的
 ##### 7352#       发表于 2017-11-14 01:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">没什么新信息好无聊，算了算BD4卷的具体信息公布要到27号，还要两个星期。啊好无聊。这个企划怎么可以这么不紧不慢的。
-
-
-
-
-
 
 
 -----
@@ -28460,16 +19100,10 @@ J:本作品，在那个时常的小故事中，她们为了想什么而行动的
 ##### 7353#         楼主| 发表于 2017-11-14 01:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37726819&amp;ptid=1486439" target="_blank">白房子 发表于 2017-11-14 01:01</a>
 
 没什么新信息好无聊，算了算BD4卷的具体信息公布要到27号，还要两个星期。啊好无聊。这个企划怎么可 ...</blockquote>
 财团B的余裕<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28478,13 +19112,7 @@ J:本作品，在那个时常的小故事中，她们为了想什么而行动的
 ##### 7354#       发表于 2017-11-15 18:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28493,14 +19121,7 @@ J:本作品，在那个时常的小故事中，她们为了想什么而行动的
 ##### 7355#       发表于 2017-11-15 19:17
 
 
-
-
 倒是出个OVA啊<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28509,21 +19130,13 @@ J:本作品，在那个时常的小故事中，她们为了想什么而行动的
 ##### 7356#       发表于 2017-11-15 19:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">倒是出个剧场版啊（妄想
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 7357#         楼主| 发表于 2017-11-16 13:30
-
-
 
 
 【BD＆DVD情報】
@@ -28543,17 +19156,10 @@ J:本作品，在那个时常的小故事中，她们为了想什么而行动的
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fljv3dsc08j20g00k0kgc.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 7358#       发表于 2017-11-16 19:34
-
-
 
 
 橘监督明天要带pripri上Anime NYC了，有了解这个展会相关的来介绍一下吗<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
@@ -28568,21 +19174,10 @@ J:本作品，在那个时常的小故事中，她们为了想什么而行动的
 2017-11-16 19:33 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 7359#       发表于 2017-11-16 20:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37753833&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-11-16 19:34</a>
@@ -28597,16 +19192,10 @@ J:本作品，在那个时常的小故事中，她们为了想什么而行动的
 动画纽约是一个leftfield媒体的创建，一个精品事件公司由专门的粉丝和经验丰富的会议组织者组成。
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 7360#       发表于 2017-11-16 21:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37754333&amp;ptid=1486439" target="_blank">彩虹之羽 发表于 2017-11-16 20:42</a>
@@ -28615,26 +19204,15 @@ J:本作品，在那个时常的小故事中，她们为了想什么而行动的
 其实是想了解一下这个展会的历史和影响力来着，想知道橘监督带pripri参展算是一个什么水平<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 7361#       发表于 2017-11-18 23:12
 
 
-
 <blockquote>堆雪若叶 发表于 2017-11-16 21:26
 其实是想了解一下这个展会的历史和影响力来着，想知道橘监督带pripri参展算是一个什么水平 ...</blockquote>
 水平倒是不知道  不过现场海报宣传在水水和idolish7的中间  挺不错的
-
-
-
-
-
 
 
 -----
@@ -28643,15 +19221,8 @@ J:本作品，在那个时常的小故事中，她们为了想什么而行动的
 ##### 7362#         楼主| 发表于 2017-11-21 16:22
 
 
-
-
 BD特装限定版特典の第6話絵コンテとOP総作監修正集
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1flps5cxmf6j20xc0p0kjl.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28660,14 +19231,7 @@ BD特装限定版特典の第6話絵コンテとOP総作監修正集
 ##### 7363#       发表于 2017-11-22 15:08
 
 
-
-
 咦，今天就有偷跑了吗，看到3卷有人拿到手了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">毫无发售的实感……
-
-
-
-
-
 
 
 -----
@@ -28676,16 +19240,10 @@ BD特装限定版特典の第6話絵コンテとOP総作監修正集
 ##### 7364#       发表于 2017-11-22 15:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37800783&amp;ptid=1486439" target="_blank">白房子 发表于 2017-11-22 15:08</a>
 
 咦，今天就有偷跑了吗，看到3卷有人拿到手了。毫无发售的实感……</blockquote>
 本来就没啥实感，毕竟总共就几千份。。。。
-
-
-
-
-
 
 
 -----
@@ -28694,16 +19252,10 @@ BD特装限定版特典の第6話絵コンテとOP総作監修正集
 ##### 7365#       发表于 2017-11-22 17:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37801089&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2017-11-22 15:41</a>
 
 本来就没啥实感，毕竟总共就几千份。。。。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">行吧行吧，我太膨胀了……慢慢等明年吧。
-
-
-
-
-
 
 
 -----
@@ -28712,15 +19264,9 @@ BD特装限定版特典の第6話絵コンテとOP総作監修正集
 ##### 7366#       发表于 2017-11-22 21:58
 
 
-
 <blockquote>白房子 发表于 2017-11-22 15:08
 咦，今天就有偷跑了吗，看到3卷有人拿到手了。毫无发售的实感……</blockquote>
 其实日亚排名默默上去了 。。
-
-
-
-
-
 
 
 -----
@@ -28729,14 +19275,7 @@ BD特装限定版特典の第6話絵コンテとOP総作監修正集
 ##### 7367#       发表于 2017-11-23 07:26
 
 
-
-
 动画漫画   处处都有梗还想继续讲安洁的故事，《Princess Principal》监督橘正纪在纽约动画节回答粉丝提问  Princess Principal            7 月新番中的原创动画《Princesss Principal》叫好叫座，少女×间谍的题材再加上出色的单元回剧情结构，以及 TV 动画大结局留下的伏笔，让观众对于《Princess Principal》动画未来的续作还是很期待的。而本作的监督橘正纪在参加纽约动画节，回答美国观众提问时说明了《Princess Principal》其实处处都有梗有来源，自己还是想继续讲安洁的故事。   Q：Princess Principal 为什么 OP 选择用英语演唱而非日语？  橘正纪：我们想让作品的 OP 更加符合作品的主题，我们想到的类似 007 系列电影，所以我们决定要使用英语演唱 OP 而非日语。    Q：我注意到安洁的姓是 Le Carré，这和知名的间谍题材小说家约翰·勒卡雷的姓名一样，我想知道约翰·勒卡雷对这部作品有什么影响？  橘正纪：这个命名是来自大河内一楼，他是负责相关资料的研究，大河内一楼说我们必须要让角色的名字有含义有梗，而当你接触间谍相关资料的时候，你就不得不接触到约翰·勒卡雷的作品  Q：Princess Principal 这部作品的名字是源自？  橘正纪：制作团队是觉得 Principal 与 Princess  组在一起，有一定的押韵，Principal 这个词实际上有很多的含义，其中一些含义与动画的内容相符合，如果你看了这部动画，你或许会明白 Principal 的真正含义。    Q：如果未来有第二季，第二季故事的发展方向是什么？  橘正纪：TV 动画的结尾还有些谜团，第二季的故事我想更多的注重在第一季留下的伏笔上。Princess Principal 我们是希望观众能够反复看好几遍，所以我们在故事中放入了很多的谜团，如果你看了好几遍这部动画的话，或许你会发现这些谜团的答案。    Q：动画中卡沃尔物质的概念源自何处？（反重力 C 球）  橘正纪：我和大河内讨论主角应该有什么优势的时候，我们决定让主角手里有蒸汽朋克风格的道具，而这部动画的资料考证团队提到，在 H·G·威尔斯的科幻小说《最早登上月球的人》中提到了一种反重力的物质「卡沃尔」（cavorite），在蒸汽朋克社群中「卡沃尔」是很常见的一种架空反重力物质。    Q：您过去也从事过动画电影的制作，您是更喜欢做电视动画还是动画电影？  橘正纪：大多数的时候做动画电影会得到更多的预算，但从这个意义上说你也就越容易把企划搞砸，另一方面电视动画则是时间安排紧凑，你不可能在 TV 动画制作中完美的完成每一件事，就这个意义上来说，我还是更喜欢做动画电影。  橘正纪在纽约也不忘对粉丝说明，想要看到第二季的话还是需要粉丝们对这部动画的大力支持（买买买），而橘正纪还提到自己对于伦敦的印象是源于自己的新婚蜜月旅行，在蜜月旅行中他在伦敦游览了很多历史建筑和遗迹，动画中看到的很多伦敦相关景色其实是源于那次橘正纪的蜜月之旅，考证团队也为这部动画的制作提供了很多 19 世纪的伦敦照片。     本文链接： http://www.acgdoge.net/archives/22444, 转载请注明出处
-
-
-
-
-
 
 
 -----
@@ -28745,22 +19284,13 @@ BD特装限定版特典の第6話絵コンテとOP総作監修正集
 ##### 7368#       发表于 2017-11-24 03:20
 
 
-
-
 [cp]#Princess Principal# BD第三卷特典广播剧「case16.5 Conciliatory victory」  小贝因为印度留学生说公主是“空气姬”而要跟她决斗，安洁得知理由之后不仅没有阻止还给她打气“一定要赢！把那种女人碾成渣！”[允悲] 多萝西吐槽：还是老样子，一扯到公主就这副德性 结果在她们讨论要怎么赢下决斗的时候公主已经收服了那个印度人让她主动提出放弃决斗 多萝西：这么短时间之内就笼络了人心，果然那种整天笑眯眯的女人才是最可怕的 安洁：嗯，她生气的时候尤其可怕（怎么感觉是在晒[doge]） 多萝西：安洁这么一说就更吓人了 小贝：不准这么说温柔的公主殿下！多萝西桑我要跟你决斗！  恭喜多萝西又贡献表情包一枚
-
-
-
-
-
 
 
 -----
 
 ####  神之叹息  
 ##### 7369#       发表于 2017-11-24 08:48
-
-
 
 
 LS的手机端不好排版吗？。。
@@ -28805,15 +19335,7 @@ Q：您过去也从事过动画电影的制作，您是更喜欢做电视动画�
 橘正纪：大多数的时候做动画电影会得到更多的预算，但从这个意义上说你也就越容易把企划搞砸，另一方面电视动画则是时间安排紧凑，你不可能在 TV 动画制作中完美的完成每一件事，就这个意义上来说，我还是更喜欢做动画电影。  橘正纪在纽约也不忘对粉丝说明，想要看到第二季的话还是需要粉丝们对这部动画的大力支持（买买买），而橘正纪还提到自己对于伦敦的印象是源于自己的新婚蜜月旅行，在蜜月旅行中他在伦敦游览了很多历史建筑和遗迹，动画中看到的很多伦敦相关景色其实是源于那次橘正纪的蜜月之旅，考证团队也为这部动画的制作提供了很多 19 世纪的伦敦照片。     
 
 
-
 本文链接： [http://www.acgdoge.net/archives/22444](http://www.acgdoge.net/archives/22444), 转载请注明出处
-
-
-
-
-
-
-
 
 
 -----
@@ -28822,14 +19344,7 @@ Q：您过去也从事过动画电影的制作，您是更喜欢做电视动画�
 ##### 7370#       发表于 2017-11-24 08:49
 
 
-
-
 看样子二期大几率要出了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不然手游都没人气了
-
-
-
-
-
 
 
 -----
@@ -28838,14 +19353,7 @@ Q：您过去也从事过动画电影的制作，您是更喜欢做电视动画�
 ##### 7371#       发表于 2017-11-24 20:20
 
 
-
-
 三卷发售首日 bd日榜第三 dvd飞榜
-
-
-
-
-
 
 
 -----
@@ -28854,14 +19362,7 @@ Q：您过去也从事过动画电影的制作，您是更喜欢做电视动画�
 ##### 7372#       发表于 2017-11-24 23:33
 
 
-
-
 这手游运营太不要脸了吧……下午更新活动让大家氪了一波抽新卡，这大半夜发通告说黑色星期五活动周末两天每天可半价抽一次，把下午的玩家当猴耍？这手游真的是药丸啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28870,14 +19371,7 @@ Q：您过去也从事过动画电影的制作，您是更喜欢做电视动画�
 ##### 7373#       发表于 2017-11-25 21:02
 
 
-
-
 次日第五 dvd可能昨天漏记 今天动画dvd20名
-
-
-
-
-
 
 
 -----
@@ -28886,14 +19380,8 @@ Q：您过去也从事过动画电影的制作，您是更喜欢做电视动画�
 ##### 7374#         楼主| 发表于 2017-11-26 03:24
 
 
-
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fluwem7dtsj20sg0kub29.jpg" referrerpolicy="no-referrer">
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fluwes1oy0j20sg0mpkjl.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28902,14 +19390,7 @@ Q：您过去也从事过动画电影的制作，您是更喜欢做电视动画�
 ##### 7375#       发表于 2017-11-26 18:48
 
 
-
-
 第三日 bd日榜第八 
-
-
-
-
-
 
 
 -----
@@ -28918,14 +19399,7 @@ Q：您过去也从事过动画电影的制作，您是更喜欢做电视动画�
 ##### 7376#       发表于 2017-11-27 22:24
 
 
-
-
 第四日 bd日榜18
-
-
-
-
-
 
 
 -----
@@ -28934,14 +19408,7 @@ Q：您过去也从事过动画电影的制作，您是更喜欢做电视动画�
 ##### 7377#       发表于 2017-11-28 16:14
 
 
-
-
 三卷初动5023
-
-
-
-
-
 
 
 -----
@@ -28950,24 +19417,16 @@ Q：您过去也从事过动画电影的制作，您是更喜欢做电视动画�
 ##### 7378#       发表于 2017-11-28 22:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37823538&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2017-11-24 23:33</a>
 
 这手游运营太不要脸了吧……下午更新活动让大家氪了一波抽新卡，这大半夜发通告说黑色星期五活动周末两天每 ...</blockquote>
 好好做动画才是正道啊
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 7379#         楼主| 发表于 2017-11-29 18:29
-
-
 
 
 プリンセス・プリンシパル Ⅳ
@@ -29057,27 +19516,15 @@ DVD：￥6,000（税抜）
 ・キャラクターデザイン・総作画監督：秋谷有紀恵によるW表紙ジャケット
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7380#       发表于 2017-11-29 18:40
 
 
-
-
 这个间谍服感觉有点污啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -29086,16 +19533,9 @@ DVD：￥6,000（税抜）
 ##### 7381#         楼主| 发表于 2017-12-3 03:15
 
 
-
-
 川城：アクタス制作のアニメ作品では、12月から全6話で構成された「ガールズ&amp;パンツァー 最終章」の第1話が劇場上映されます。それと並行して、12月下旬から池袋サンシャインシティで「ガールズ＆パンツァー」の大規模な原画展を開催する予定です。これらの施策を通して、5周年になる「ガルパン」を盛り上げていきます。また、<strong>アクタスが制作に携わり今夏TV放送された「プリンセス・プリンシパル」も好評ですので、新規IPとしてさらなる拡大を目指し、施策を打ち出していきたいと考えています。</strong>
 
 [http://www.bandainamco.co.jp/ir/interview/entry5442.html](http://www.bandainamco.co.jp/ir/interview/entry5442.html)
-
-
-
-
-
 
 
 -----
@@ -29104,16 +19544,9 @@ DVD：￥6,000（税抜）
 ##### 7382#       发表于 2017-12-3 09:33
 
 
-
-
 反正还是空头支票呗…目前actas重心肯定都是放在少战上
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -29122,14 +19555,7 @@ DVD：￥6,000（税抜）
 ##### 7383#       发表于 2017-12-3 21:58
 
 
-
-
 http://www.bilibili.com/video/av16873252  第三卷广播剧  
-
-
-
-
-
 
 
 -----
@@ -29138,14 +19564,8 @@ http://www.bilibili.com/video/av16873252  第三卷广播剧  
 ##### 7384#         楼主| 发表于 2017-12-3 22:11
 
 
-
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fm3xoyipc7j20qe0xc4qp.jpg" referrerpolicy="no-referrer">
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fm3xp1dkykj20k40j1ano.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29154,14 +19574,7 @@ http://www.bilibili.com/video/av16873252  第三卷广播剧  
 ##### 7385#       发表于 2017-12-8 00:27
 
 
-
-
 三卷次周674  
-
-
-
-
-
 
 
 -----
@@ -29170,22 +19583,13 @@ http://www.bilibili.com/video/av16873252  第三卷广播剧  
 ##### 7386#       发表于 2017-12-8 11:44
 
 
-
-
 第五卷见面会追加情报 上了stage of mission  
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 7387#         楼主| 发表于 2017-12-8 17:08
-
-
 
 
 medicos-e C93 pripri周边
@@ -29195,24 +19599,13 @@ medicos-e C93 pripri周边
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fm9h0j1sqdj20xc0irae6.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  平井姨夫  
 ##### 7388#       发表于 2017-12-8 20:39
 
 
-
 <img src="http://ww1.sinaimg.cn/large/65e2753bly1fm9n5qdzpsj216g1kudte.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29221,15 +19614,9 @@ medicos-e C93 pripri周边
 ##### 7389#       发表于 2017-12-8 22:06
 
 
-
 <blockquote>平井姨夫 发表于 2017-12-8 20:39
 </blockquote>
 太色气了！
-
-
-
-
-
 
 
 -----
@@ -29238,21 +19625,13 @@ medicos-e C93 pripri周边
 ##### 7390#         楼主| 发表于 2017-12-16 22:56
 
 
-
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fmj014wgulj20xc0owhdt.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 7391#         楼主| 发表于 2017-12-21 21:14
-
-
 
 
 秋谷❖有紀恵‏ 
@@ -29273,25 +19652,13 @@ medicos-e C93 pripri周边
 <img src="http://wx2.sinaimg.cn/large/740ca5e5ly1fmop688z8tj20xc0oz0yc.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  彩虹之羽  
 ##### 7392#       发表于 2017-12-22 22:55
 
 
-
-
 日榜第七  手游新活动也更新了 主题 芭蕾舞 黑白天鹅的公安组合
-
-
-
-
-
 
 
 -----
@@ -29300,23 +19667,14 @@ medicos-e C93 pripri周边
 ##### 7393#         楼主| 发表于 2017-12-23 18:35
 
 
-
-
 她真可爱
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fmqvuvza13j20ir0xcb29.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 7394#         楼主| 发表于 2017-12-24 11:07
-
-
 
 
 ～プリンセスから皆様へ～
@@ -29327,25 +19685,13 @@ Have a Merry Christmas！
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fmro2g4rlkj20j50r3tdq.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7395#       发表于 2017-12-24 11:21
 
 
-
-
 哇 这个公主好棒
-
-
-
-
-
 
 
 -----
@@ -29354,21 +19700,13 @@ Have a Merry Christmas！
 ##### 7396#       发表于 2017-12-24 11:24
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">床上那张图怕不是事后了
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 7397#         楼主| 发表于 2017-12-25 12:09
-
-
 
 
 プリンセス・プリンシパル Ⅴ
@@ -29474,17 +19812,10 @@ DVD：￥6,000（税抜）
 ・キャラクターデザイン・総作画監督：秋谷有紀恵によるW表紙ジャケット
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 7398#         楼主| 发表于 2017-12-26 16:18
-
-
 
 
 4922　プリプリ 
@@ -29506,27 +19837,15 @@ DVD：￥6,000（税抜）
 06巻　*,***　*,***　18.02.23 
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7399#       发表于 2017-12-26 16:35
 
 
-
-
 喷了 突然想起来第四卷还没下单<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -29535,13 +19854,7 @@ DVD：￥6,000（税抜）
 ##### 7400#       发表于 2017-12-26 16:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">第一卷居然过不了7...
-
-
-
-
-
 
 
 -----
@@ -29550,15 +19863,9 @@ DVD：￥6,000（税抜）
 ##### 7401#       发表于 2017-12-27 21:26
 
 
-
 <blockquote>间咒 发表于 2017-12-26 16:50
 第一卷居然过不了7...</blockquote>
 实际上一卷dvd215 只不过在o榜下限 没记  另外 1卷bd累计实际上7100左右  有200多因为在周榜下面 也没记上
-
-
-
-
-
 
 
 -----
@@ -29567,14 +19874,7 @@ DVD：￥6,000（税抜）
 ##### 7402#       发表于 2017-12-27 21:28
 
 
-
-
  5000卷均是稳了 下周500多应该有机会出数据吧 五六两卷都是送的东西好 应该不会右了
-
-
-
-
-
 
 
 -----
@@ -29583,21 +19883,13 @@ DVD：￥6,000（税抜）
 ##### 7403#       发表于 2017-12-28 21:31
 
 
-
-
 二期线是到达了，就看官方有没有二季的意思了....
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 7404#         楼主| 发表于 2017-12-29 11:57
-
 
 
  本帖最后由 xingenge 于 2017-12-29 12:33 编辑 
@@ -29617,17 +19909,10 @@ pripri公认本 黑星红白 “期待4月的发表”
 <img src="http://wx4.sinaimg.cn/large/644d93bbgy1fmxgoirh3yj20qo0zk11m.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7405#       发表于 2018-1-22 11:13
-
-
 
 
 是我出场了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
@@ -29643,21 +19928,10 @@ pripri公认本 黑星红白 “期待4月的发表”
 2018-1-22 11:13 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 7406#         楼主| 发表于 2018-1-22 11:17
-
-
 
 
 【BD＆DVD情報】
@@ -29690,17 +19964,10 @@ pripri公认本 黑星红白 “期待4月的发表”
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fnp7sgtznkj20xc0hf78x.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7407#       发表于 2018-1-22 11:35
-
-
 
 
 伟大！box上公主这个占有欲的表情，还有安洁公主十指紧扣的双手。黑星红白伟大！
@@ -29711,16 +19978,10 @@ BD封面上长大后的两个人和小时候的两个人一如既往地由公主
 快感动哭。又激动又感动。二期希望啊啊啊啊！
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7408#       发表于 2018-1-22 11:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38311237&amp;ptid=1486439" target="_blank">白房子 发表于 2018-1-22 11:35</a>
@@ -29731,17 +19992,10 @@ BD封面上长大后的两个人和 ...</blockquote>
 说实话整套bd都显得简陋，这次收纳盒倒是不错。估计第六卷要左一下了
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7409#       发表于 2018-1-22 22:20
-
-
 
 
 バラ・チャールストン
@@ -29753,17 +20007,10 @@ Rosa Charleston
 <img src="http://wx2.sinaimg.cn/large/006tJ7Zcly1fnpqvrzfntj30hu0vg4qp.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 7410#         楼主| 发表于 2018-1-24 19:00
-
-
 
 
 山口よしみ@Yoshimi08
@@ -29772,27 +20019,15 @@ Rosa Charleston
 <img src="http://wx2.sinaimg.cn/large/740ca5e5ly1fnrwe7i51dj20or0v9h64.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aaron17  
 ##### 7411#       发表于 2018-1-25 10:51
 
 
-
 <img src="https://pbs.twimg.com/media/DUWl6OOVoAA5uA_.jpg" referrerpolicy="no-referrer">
 
 居然在舞滨开，看来是对观众相当有自信啊
-
-
-
-
-
-
 
 
 -----
@@ -29801,14 +20036,7 @@ Rosa Charleston
 ##### 7412#       发表于 2018-1-27 01:08
 
 
-
-
 BD5卷特典广播听了，腹黑公主真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29817,15 +20045,9 @@ BD5卷特典广播听了，腹黑公主真可爱<img src="https://static.saraba1
 ##### 7413#       发表于 2018-1-27 18:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">杂鱼5卷昨天发售日榜综合BD5位，动画DVD18位，今天次日日榜综合BD12位，DVD未上榜。
 
 即便如此5卷也是本作DVD之光了，目前唯一能上过一次O榜的。
-
-
-
-
-
 
 
 -----
@@ -29834,22 +20056,13 @@ BD5卷特典广播听了，腹黑公主真可爱<img src="https://static.saraba1
 ##### 7414#       发表于 2018-1-27 18:39
 
 
-
-
 舞滨这场子能容纳2000人，平时用来开LIVE的多，<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">你pripri开这么大场子想干嘛……不过有大屏幕，很适合发表。
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 7415#         楼主| 发表于 2018-2-14 09:54
-
-
 
 
 Happy Valentine's Day！
@@ -29864,32 +20077,19 @@ Happy Valentine's Day！
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fofqa4t7a8j20j50schdt.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 7416#       发表于 2018-3-12 20:13
 
 
-
-
 过气了？？
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 7417#       发表于 2018-3-12 20:19
-
 
 
  本帖最后由 xtwx1716 于 2018-3-12 20:20 编辑 
@@ -29902,16 +20102,10 @@ Happy Valentine's Day！
 再者说了，event四月份才开呢，你急什么
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 7418#       发表于 2018-3-12 20:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38829673&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2018-3-12 20:19</a>
@@ -29922,16 +20116,10 @@ Happy Valentine's Day！
 我看壁吧专楼一直有消息更新，反倒这里断了很久，由此感叹。。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 7419#         楼主| 发表于 2018-3-13 11:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38829684&amp;ptid=1486439" target="_blank">神之叹息 发表于 2018-3-12 20:21</a>
@@ -29940,32 +20128,20 @@ Happy Valentine's Day！
 对于我自己而言，有些无关痛痒的 一直顶上来也没什么意思，因为要发的很多所以忽略了
 
 
-
-
-
-
-
 -----
 
 ####  一色いろは  
 ##### 7420#       发表于 2018-3-13 11:42
 
 
-
  做梦都想私奔的安洁...
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 7421#       发表于 2018-3-13 12:38
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">其实就是过气了（在漫区专楼）有什么新内容也讨论不起来。
@@ -29978,25 +20154,13 @@ BD也早就到了，但这边没人晒我也不丢人现眼了。销量啥的，
 要我一个人在这里发这些太尬了，所以我选择去群里聊了，偶尔看看壁吧专楼。对于这个企划保持热情和热度其实挺重要的。
 
 
-
-
-
-
-
 -----
 
 ####  漫区专号  
 ##### 7422#       发表于 2018-3-13 19:17
 
 
-
-
 伏笔还有很多没收回来，吊着胃口。除非第二季不然也就这样了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30005,22 +20169,13 @@ BD也早就到了，但这边没人晒我也不丢人现眼了。销量啥的，
 ##### 7423#       发表于 2018-3-13 20:46
 
 
-
-
 关于后续的消息还是太少了，当初收尾也是差强人意，没什么可以持续讨论的剧情内容，热度快速消退可以料想。所以为什么event要拖这么久啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  教皇幻魔拳  
 ##### 7424#       发表于 2018-3-13 20:58
-
-
 
 
 游戏主人公终于痊愈出院了，可喜可贺<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
@@ -30032,18 +20187,10 @@ STAFF看来还是要与动画联系的，这就是为什么主人公没有参加
 不过泽尔达仍然在继续拉拢主人公啊
 
 
-
-
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 7425#       发表于 2018-3-13 21:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38840966&amp;ptid=1486439" target="_blank">教皇幻魔拳 发表于 2018-3-13 20:58</a>
@@ -30055,17 +20202,10 @@ STAFF看来还是要与动画联系的，这就是为什么主人公没有参加
 泽尔达都一副洗白气息了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">运营已经有几期强推她的新卡，剧情上和主角也是cp感越来越强，还有救援枪娘一队的情节，本篇再出怕是真能洗过来
 
 
-
-
-
-
-
 -----
 
 ####  yjysrkl  
 ##### 7426#       发表于 2018-3-14 00:55
-
-
 
 
 event这个时间一看就是去年10月左右才订的场子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -30074,16 +20214,10 @@ event这个时间一看就是去年10月左右才订的场子<img src="https://s
 看见火了才想的下一步
 
 
-
-
-
-
-
 -----
 
 ####  azbycx4111  
 ##### 7427#       发表于 2018-3-26 16:10
-
 
 
  本帖最后由 azbycx4111 于 2018-3-26 16:33 编辑 
@@ -30101,17 +20235,10 @@ prpr手游在非常凉的运营现状下还推了一个四月下旬的大更新�
 加上官方的新活动已经鸽了两周了，我前几天一度以为官方要关服跑路了，结果手游官方跑去参AnimeJapan还放了个4月大更新的大新闻，从预告来说确实是大更新了。主要这个更新发布的时间点选的非常的微妙
 
 
-
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7428#       发表于 2018-3-26 16:33
-
 
 
  本帖最后由 xtwx1716 于 2018-3-26 16:37 编辑 
@@ -30121,16 +20248,10 @@ prpr手游在非常凉的运营现状下还推了一个四月下旬的大更新�
 游戏玩法实在是比较单一，我氪了钱支持已经是极限了，假如之后玩法有变化我会考虑回去的。。。其实刚开排位那会每天上线玩的也不过3000人左右
 
 
-
-
-
-
-
 -----
 
 ####  azbycx4111  
 ##### 7429#       发表于 2018-3-26 16:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38982558&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2018-3-26 16:33</a>
@@ -30143,17 +20264,10 @@ prpr手游在非常凉的运营现状下还推了一个四月下旬的大更新�
 不过官方既然有信心继续给资源做宣发，那估计还是可以期待下后面的
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 7430#         楼主| 发表于 2018-3-30 11:47
-
-
 
 
 4/29(日)開催「プリンセス・プリンシパル STAGE OF MISSION」のイベントビジュアル＆ロゴを公開！
@@ -30162,16 +20276,10 @@ prpr手游在非常凉的运营现状下还推了一个四月下旬的大更新�
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fpup6oqttrj20mi0q378t.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  azbycx4111  
 ##### 7431#       发表于 2018-4-19 15:21
-
 
 
  本帖最后由 azbycx4111 于 2018-4-19 15:22 编辑 
@@ -30208,32 +20316,19 @@ prpr手游在非常凉的运营现状下还推了一个四月下旬的大更新�
 主要手游真的挺凉的。没新发表之前官方也是在强行续命，唉
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 7432#       发表于 2018-4-19 16:59
 
 
-
-
 早说了好好做动画都比做游戏的好。别忘了没有动画，真没人去玩游戏的
-
-
-
-
-
 
 
 -----
 
 ####  azbycx4111  
 ##### 7433#       发表于 2018-4-19 18:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39294557&amp;ptid=1486439" target="_blank">azbycx4111 发表于 2018-4-19 15:21</a>
@@ -30248,26 +20343,14 @@ prpr手游在非常凉的运营现状下还推了一个四月下旬的大更新�
 这运营也不知道是技术水平捉急还是干嘛。。上次也这样。。
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7434#       发表于 2018-4-25 00:54
 
 
-
-
 倒计时五天！
 <img src="http://wx4.sinaimg.cn/large/006tJ7Zcgy1fqo8dsyprzj30hs0lh4cz.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30276,14 +20359,7 @@ prpr手游在非常凉的运营现状下还推了一个四月下旬的大更新�
 ##### 7435#       发表于 2018-4-25 01:06
 
 
-
-
 时间过得还是挺快的<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30292,15 +20368,8 @@ prpr手游在非常凉的运营现状下还推了一个四月下旬的大更新�
 ##### 7436#       发表于 2018-4-25 12:13
 
 
-
-
 倒计时四天！
 <img src="http://wx2.sinaimg.cn/large/006tJ7Zcly1fqos1g34x6j30hs0jcnb0.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30309,16 +20378,9 @@ prpr手游在非常凉的运营现状下还推了一个四月下旬的大更新�
 ##### 7437#       发表于 2018-4-25 12:41
 
 
-
-
 时间太快了…………
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -30327,15 +20389,8 @@ prpr手游在非常凉的运营现状下还推了一个四月下旬的大更新�
 ##### 7438#       发表于 2018-4-26 09:28
 
 
-
-
 三天！
 <img src="http://wx3.sinaimg.cn/large/006tJ7Zcgy1fqpsvkzr4oj30hs0kkwt6.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30344,15 +20399,8 @@ prpr手游在非常凉的运营现状下还推了一个四月下旬的大更新�
 ##### 7439#       发表于 2018-4-27 09:35
 
 
-
-
 还有两天！
 <img src="http://wx3.sinaimg.cn/large/006tJ7Zcgy1fqqyp8axwej30hs0jk7gp.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30361,22 +20409,13 @@ prpr手游在非常凉的运营现状下还推了一个四月下旬的大更新�
 ##### 7440#       发表于 2018-4-27 09:43
 
 
-
-
 到底会是什么呢…
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 7441#         楼主| 发表于 2018-4-27 13:33
-
-
 
 
 pripri event bd发售决定
@@ -30387,26 +20426,14 @@ pripri event bd发售决定
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fqr5hu3c0qj20jz1jd489.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7442#       发表于 2018-4-28 09:02
 
 
-
-
 还有一天！
 <img src="http://wx3.sinaimg.cn/large/006tJ7Zcgy1fqs3dbj9m5j30hs0junbg.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30415,13 +20442,7 @@ pripri event bd发售决定
 ##### 7443#       发表于 2018-4-28 09:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">快了！！
-
-
-
-
-
 
 
 -----
@@ -30430,14 +20451,7 @@ pripri event bd发售决定
 ##### 7444#       发表于 2018-4-28 09:16
 
 
-
-
 二期可能性大吗，至少来个剧场版也行啊<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30446,14 +20460,7 @@ pripri event bd发售决定
 ##### 7445#       发表于 2018-4-28 16:45
 
 
-
-
 续作的概率比较大吧。做倒计时的都是关根，应该是因为有后续出场才这么积极，毕竟到现在也只有公主这一个主役了……
-
-
-
-
-
 
 
 -----
@@ -30462,13 +20469,7 @@ pripri event bd发售决定
 ##### 7446#       发表于 2018-4-28 17:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">期待明天的好消息
-
-
-
-
-
 
 
 -----
@@ -30477,16 +20478,9 @@ pripri event bd发售决定
 ##### 7447#       发表于 2018-4-28 17:37
 
 
-
-
 隔壁白箱已经剧场了
 
 prpr也争气点啊
-
-
-
-
-
 
 
 -----
@@ -30495,22 +20489,13 @@ prpr也争气点啊
 ##### 7448#       发表于 2018-4-28 20:31
 
 
-
-
 如果不是二期，哪怕只是剧场版，估计会差评如潮<img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  白房子  
 ##### 7449#       发表于 2018-4-29 08:12
-
-
 
 
 终于到了今天。
@@ -30521,16 +20506,10 @@ prpr也争气点啊
 天气也很不错！是一个适合（）的日子。<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7450#       发表于 2018-4-29 08:25
-
 
 
  本帖最后由 xtwx1716 于 2018-4-29 08:26 编辑 
@@ -30539,26 +20518,15 @@ prpr也争气点啊
 你说的是你自己吧…剧场版有什么不好，tv变数太大制作上还得不到保证。剧场版好歹有稳定高质量的120分钟作画
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 7451#       发表于 2018-4-29 13:37
 
 
-
 <blockquote>xtwx1716 发表于 2018-4-29 08:25
 你说的是你自己吧…剧场版有什么不好，tv变数太大制作上还得不到保证。剧场版好歹有稳定高质量的120分钟作 ...</blockquote>
 鉴赏区了解一下…如果没有二期就烂尾的说法=.=要是剧场版多半得暴走吧，不然讲不完推墙当女王吧…不希望那样咯
-
-
-
-
-
 
 
 -----
@@ -30567,24 +20535,16 @@ prpr也争气点啊
 ##### 7452#       发表于 2018-4-29 13:43
 
 
-
-
 既要保证作画和动作质量，又怕长度不够，那很简单啊
 
 做成上中下三部共4.5小时的剧场版咯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 是的，我在做梦
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7453#       发表于 2018-4-29 13:52
-
 
 
 <blockquote>nanjolno 发表于 2018-4-29 13:43
@@ -30597,16 +20557,10 @@ prpr也争气点啊
 不过感觉这个比剧场版还不现实
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7454#       发表于 2018-4-29 16:13
-
 
 
  本帖最后由 白房子 于 2018-4-29 16:15 编辑 
@@ -30618,25 +20572,13 @@ prpr也争气点啊
 最左边这个，居然是个C球……<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  神之叹息  
 ##### 7455#       发表于 2018-4-29 16:16
 
 
-
-
 看微博的那个博主说道好像现场切了音乐，让她不太爽？这是什么操作啊？
-
-
-
-
-
 
 
 -----
@@ -30645,23 +20587,16 @@ prpr也争气点啊
 ##### 7456#       发表于 2018-4-29 16:17
 
 
-
 <img src="http://wx2.sinaimg.cn/large/006tJ7Zcly1fqtlkg4hbmj316o1kwx6r.jpg" referrerpolicy="no-referrer">
 
 
 中华圈的
 
 
-
-
-
-
-
 -----
 
 ####  xtwx1716  
 ##### 7457#       发表于 2018-4-29 16:18
-
 
 
 <blockquote>神之叹息 发表于 2018-4-29 16:16
@@ -30671,16 +20606,10 @@ prpr也争气点啊
 ……
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7458#       发表于 2018-4-29 16:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39418086&amp;ptid=1486439" target="_blank">神之叹息 发表于 2018-4-29 16:16</a>
@@ -30691,25 +20620,13 @@ prpr也争气点啊
 起初看到有这个周边的时候就觉得很棒，听了听别人放出来的试听，果然真的很棒。
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 7459#       发表于 2018-4-29 16:32
 
 
-
-
 这送过去的是百合吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30718,14 +20635,7 @@ prpr也争气点啊
 ##### 7460#       发表于 2018-4-29 16:34
 
 
-
-
 这c-ball花篮有点厉害。。。
-
-
-
-
-
 
 
 -----
@@ -30734,14 +20644,7 @@ prpr也争气点啊
 ##### 7461#       发表于 2018-4-29 16:38
 
 
-
-
 所以有什么情报吗？
-
-
-
-
-
 
 
 -----
@@ -30750,16 +20653,10 @@ prpr也争气点啊
 ##### 7462#       发表于 2018-4-29 17:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39418268&amp;ptid=1486439" target="_blank">普罗茶 发表于 2018-4-29 16:38</a>
 
 所以有什么情报吗？</blockquote>
 才刚刚开始
-
-
-
-
-
 
 
 -----
@@ -30768,14 +20665,7 @@ prpr也争气点啊
 ##### 7463#       发表于 2018-4-29 17:01
 
 
-
-
 这演出时长多少啊
-
-
-
-
-
 
 
 -----
@@ -30784,16 +20674,10 @@ prpr也争气点啊
 ##### 7464#         楼主| 发表于 2018-4-29 17:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39418404&amp;ptid=1486439" target="_blank">堆雪若叶 发表于 2018-4-29 17:01</a>
 
 这演出时长多少啊</blockquote>
 一般两小时吧
-
-
-
-
-
 
 
 -----
@@ -30802,13 +20686,7 @@ prpr也争气点啊
 ##### 7465#       发表于 2018-4-29 17:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">就等压轴彩蛋爆2期或者剧场版了……
-
-
-
-
-
 
 
 -----
@@ -30817,14 +20695,7 @@ prpr也争气点啊
 ##### 7466#       发表于 2018-4-29 17:17
 
 
-
-
 或者是NBGI出品开放世界百合RPG，还原整个伦敦城，跳楼少女+刺客信条玩法，PS5首发护航大作
-
-
-
-
-
 
 
 -----
@@ -30833,16 +20704,10 @@ prpr也争气点啊
 ##### 7467#       发表于 2018-4-29 17:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39418485&amp;ptid=1486439" target="_blank">xingenge 发表于 2018-4-29 17:13</a>
 
 一般两小时吧</blockquote>
 最后几个小时有点心焦<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30851,23 +20716,15 @@ prpr也争气点啊
 ##### 7468#       发表于 2018-4-29 17:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39418526&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2018-4-29 17:17</a>
 或者是NBGI出品开放世界百合RPG，还原整个伦敦城，跳楼少女+刺客信条玩法，PS5首发护航大作 ...</blockquote>
 有梦是好事，可惜不现实<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 7469#         楼主| 发表于 2018-4-29 17:26
-
-
 
 
 橘正紀 Masaki Tachibana@tachicol_
@@ -30877,17 +20734,10 @@ prpr也争气点啊
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fqtnkash2aj20xc0lpe81.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 7470#         楼主| 发表于 2018-4-29 18:59
-
-
 
 
 プリンセス・プリンシパル続編製作決定！！！！！！！！！！！！！！！！！
@@ -30896,25 +20746,13 @@ prpr也争气点啊
 全6章2019年劇場公開！！！！！！！！
 
 
-
-
-
-
-
 -----
 
 ####  白房子  
 ##### 7471#       发表于 2018-4-29 19:02
 
 
-
-
 プリンセス・プリンシパル 続編制作決定全6章 2019年劇場公開
-
-
-
-
-
 
 
 -----
@@ -30923,13 +20761,7 @@ prpr也争气点啊
 ##### 7472#       发表于 2018-4-29 19:02
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">等到死
-
-
-
-
-
 
 
 -----
@@ -30938,14 +20770,7 @@ prpr也争气点啊
 ##### 7473#       发表于 2018-4-29 19:03
 
 
-
-
 6章剧场太厉害了，感觉荷包在痛……<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30954,14 +20779,7 @@ prpr也争气点啊
 ##### 7474#       发表于 2018-4-29 19:03
 
 
-
-
 六章剧场版还行，和少战一样续到2022？
-
-
-
-
-
 
 
 -----
@@ -30970,14 +20788,7 @@ prpr也争气点啊
 ##### 7475#       发表于 2018-4-29 19:04
 
 
-
-
 出完我孩子都会打酱油了
-
-
-
-
-
 
 
 -----
@@ -30986,16 +20797,10 @@ prpr也争气点啊
 ##### 7476#         楼主| 发表于 2018-4-29 19:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39419611&amp;ptid=1486439" target="_blank">8822 发表于 2018-4-29 19:03</a>
 
 六章剧场版还行，和少战一样续到2022？</blockquote>
 剧场公开、非剧场版
-
-
-
-
-
 
 
 -----
@@ -31004,15 +20809,9 @@ prpr也争气点啊
 ##### 7477#       发表于 2018-4-29 19:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39419622&amp;ptid=1486439" target="_blank">xingenge 发表于 2018-4-29 19:04</a>
 剧场公开、非剧场版</blockquote>
 这两个有区别吗。。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -31021,14 +20820,7 @@ prpr也争气点啊
 ##### 7478#       发表于 2018-4-29 19:07
 
 
-
-
 六章！
-
-
-
-
-
 
 
 -----
@@ -31037,16 +20829,10 @@ prpr也争气点啊
 ##### 7479#         楼主| 发表于 2018-4-29 19:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39419650&amp;ptid=1486439" target="_blank">8822 发表于 2018-4-29 19:07</a>
 
 这两个有区别吗。。。</blockquote>
 OVA也可以在影院放
-
-
-
-
-
 
 
 -----
@@ -31055,14 +20841,7 @@ OVA也可以在影院放
 ##### 7480#         楼主| 发表于 2018-4-29 19:08
 
 
-
-
 暂时没说长度，一年做六个剧场版，那就太可怕了。OVA什么的还行。等后续吧
-
-
-
-
-
 
 
 -----
@@ -31071,15 +20850,9 @@ OVA也可以在影院放
 ##### 7481#       发表于 2018-4-29 19:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39419664&amp;ptid=1486439" target="_blank">xingenge 发表于 2018-4-29 19:08</a>
 OVA也可以在影院放</blockquote>
 原来如此
-
-
-
-
-
 
 
 -----
@@ -31088,14 +20861,7 @@ OVA也可以在影院放</blockquote>
 ##### 7482#       发表于 2018-4-29 19:10
 
 
-
-
 关键是编剧是谁？！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是大河内？
-
-
-
-
-
 
 
 -----
@@ -31104,14 +20870,7 @@ OVA也可以在影院放</blockquote>
 ##### 7483#       发表于 2018-4-29 19:10
 
 
-
-
 6章。。剧场版感觉可能性很低啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -31120,13 +20879,7 @@ OVA也可以在影院放</blockquote>
 ##### 7484#       发表于 2018-4-29 19:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ova一年一部也很正常啊，做完就2025年了
-
-
-
-
-
 
 
 -----
@@ -31135,22 +20888,13 @@ OVA也可以在影院放</blockquote>
 ##### 7485#       发表于 2018-4-29 19:11
 
 
-
-
 好 支持，又有的看了！
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 7486#         楼主| 发表于 2018-4-29 19:12
-
-
 
 
 点兔SP是“剧场公开”，长度多少我没在意；
@@ -31161,25 +20905,13 @@ OVA也可以在影院放</blockquote>
 说个我最有把握的，就是digimon tri. ，它官方说辞是“剧场上映”。虽然大家认为他是剧场版，但实际上东映官网那儿的作品里列表里，已经把它放在OVA里了。
 
 
-
-
-
-
-
 -----
 
 ####  堆雪若叶  
 ##### 7487#       发表于 2018-4-29 19:14
 
 
-
-
 一年做六部？这个19年不是放送开始的意思吗，还是19年全部放送？
-
-
-
-
-
 
 
 -----
@@ -31188,13 +20920,7 @@ OVA也可以在影院放</blockquote>
 ##### 7488#       发表于 2018-4-29 19:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">现在都流行出六章吗
-
-
-
-
-
 
 
 -----
@@ -31203,14 +20929,7 @@ OVA也可以在影院放</blockquote>
 ##### 7489#       发表于 2018-4-29 19:16
 
 
-
-
 以prpr的基础如果真是一年一章…<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -31219,23 +20938,15 @@ OVA也可以在影院放</blockquote>
 ##### 7490#       发表于 2018-4-29 19:18
 
 
-
-
 要等到天荒地老了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi MIX 2, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2
-
-
-
-
-
 
 
 -----
 
 ####  xtwx1716  
 ##### 7491#       发表于 2018-4-29 19:24
-
 
 
 <blockquote>xtwx1716 发表于 2018-4-29 13:52
@@ -31245,27 +20956,15 @@ OVA也可以在影院放</blockquote>
 妈呀这是奶对了吗
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 7492#         楼主| 发表于 2018-4-29 19:24
 
 
-
-
 估计就是少战的操作吧，毕竟都是bandai，一章2话，6章12话。
 
 看，这就是你们要的2期，不过间隔时间更长了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -31274,13 +20973,7 @@ OVA也可以在影院放</blockquote>
 ##### 7493#         楼主| 发表于 2018-4-29 19:28
 
 
-
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fqtr2w76grj20xc0p0e81.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -31289,14 +20982,7 @@ OVA也可以在影院放</blockquote>
 ##### 7494#       发表于 2018-4-29 19:28
 
 
-
-
 要是独角兽那种半年一集 一集一小时就牛逼了
-
-
-
-
-
 
 
 -----
@@ -31305,14 +20991,7 @@ OVA也可以在影院放</blockquote>
 ##### 7495#       发表于 2018-4-29 19:32
 
 
-
-
 其实我印象当中这几年原创剧场版一败涂地的，还是续集的，几乎没有吧，阿基德本质新ip，所以官方这是稳了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -31321,16 +21000,10 @@ OVA也可以在影院放</blockquote>
 ##### 7496#       发表于 2018-4-29 19:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39419893&amp;ptid=1486439" target="_blank">xtwx1716 发表于 2018-4-29 19:28</a>
 
 要是独角兽那种半年一集 一集一小时就牛逼了</blockquote>
 半年一集还是算了，prpr估计撑不了那么久，感觉可能就是一个月放送一部的频率吧
-
-
-
-
-
 
 
 -----
@@ -31339,15 +21012,9 @@ OVA也可以在影院放</blockquote>
 ##### 7497#       发表于 2018-4-29 19:33
 
 
-
 <blockquote>aptx8285144 发表于 2018-4-29 19:32
 其实我印象当中这几年原创剧场版一败涂地的，还是续集的，几乎没有吧，阿基德本质新ip，所以官方这是稳了？ ...</blockquote>
 TV是最不稳的，现在这样剧情不管怎样，至少制作上比较稳了
-
-
-
-
-
 
 
 -----
@@ -31356,17 +21023,10 @@ TV是最不稳的，现在这样剧情不管怎样，至少制作上比较稳了
 ##### 7498#       发表于 2018-4-29 19:35
 
 
-
-
 是要19年放完吗？
 有没有可能国内网站同步上映(关灯
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -31375,15 +21035,9 @@ TV是最不稳的，现在这样剧情不管怎样，至少制作上比较稳了
 ##### 7499#       发表于 2018-4-29 19:36
 
 
-
 <blockquote>堆雪若叶 发表于 2018-4-29 19:33
 半年一集还是算了，prpr估计撑不了那么久，感觉可能就是一个月放送一部的频率吧 ...</blockquote>
 一季度一集吧。一个月一集太快了
-
-
-
-
-
 
 
 -----
@@ -31392,15 +21046,11 @@ TV是最不稳的，现在这样剧情不管怎样，至少制作上比较稳了
 ##### 7500#         楼主| 发表于 2018-4-29 19:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39419960&amp;ptid=1486439" target="_blank">Lyrical_Magical 发表于 2018-4-29 19:35</a>
 
 是要19年放完吗？
 
 有没有可能国内网站同步上映(关灯</blockquote>
 应该是“顺次”吧。等官方更新再来看看
-
-
-
 
 

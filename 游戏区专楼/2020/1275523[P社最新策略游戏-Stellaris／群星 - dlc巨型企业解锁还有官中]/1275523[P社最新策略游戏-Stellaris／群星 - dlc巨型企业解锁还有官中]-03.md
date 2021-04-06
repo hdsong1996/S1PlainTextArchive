@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2020-02-12 20:29** 
 
 
-
 -----
 
 ####  美利坚大老爹  
 ##### 3001#       发表于 2018-12-10 09:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41891028&amp;ptid=1275523" target="_blank">1000sure 发表于 2018-12-10 08:49</a>
@@ -27,16 +25,10 @@
 总之，等MOD改，或者再多几个版本了，初版很糟糕。
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3002#       发表于 2018-12-10 09:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41891028&amp;ptid=1275523" target="_blank">1000sure 发表于 2018-12-10 08:49</a>
@@ -47,16 +39,10 @@
 —— 来自 Xiaomi MI 8 SE, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 3003#       发表于 2018-12-10 09:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41891001&amp;ptid=1275523" target="_blank">chushou 发表于 2018-12-10 08:47</a>
@@ -71,16 +57,10 @@
 可以省一个飞升了。
 
 
-
-
-
-
-
 -----
 
 ####  chushou  
 ##### 3004#       发表于 2018-12-10 09:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41891152&amp;ptid=1275523" target="_blank">美利坚大老爹 发表于 2018-12-10 09:02</a>
@@ -92,17 +72,10 @@
 没错
 
 
-
-
-
-
-
 -----
 
 ####  sloven  
 ##### 3005#       发表于 2018-12-10 12:45
-
-
 
 
 内政难受的试试看蜂群<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">产卵池+快速繁殖+克隆仓+扩张右二+子人口运动……大概12个月就出一人口，蜂群不吃消费品，矿变科研和合金，食物变人口。经济链条比普通帝国简单得多。
@@ -113,32 +86,19 @@
 母星多做实验室，压着帝国规模攀科技。我的嗜杀蜂群档在隔壁铁心灭绝宣我的时候，已经是攀到4级激光4级装甲4级护盾了。
 
 
-
-
-
-
-
 -----
 
 ####  dumplingpro  
 ##### 3006#       发表于 2018-12-10 14:50
 
 
-
-
 我没打MOD，点举行建筑，直接跳出了不知道什么回事，有人遇到过么？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  1000sure  
 ##### 3007#       发表于 2018-12-10 14:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41895519&amp;ptid=1275523" target="_blank">dumplingpro 发表于 2018-12-10 14:50</a>
@@ -149,16 +109,10 @@
 我有两个档，一个是普通帝国会跳出，另一个是巨型企业不会跳出
 
 
-
-
-
-
-
 -----
 
 ####  ataraxianxy  
 ##### 3008#       发表于 2018-12-10 15:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41895519&amp;ptid=1275523" target="_blank">dumplingpro 发表于 2018-12-10 14:50</a>
@@ -167,16 +121,10 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你用的啥语言？据说是汉化问题
 
 
-
-
-
-
-
 -----
 
 ####  dumplingpro  
 ##### 3009#       发表于 2018-12-10 15:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41895621&amp;ptid=1275523" target="_blank">ataraxianxy 发表于 2018-12-10 15:00</a>
@@ -185,17 +133,10 @@
 官中，看来是官中年的问题了。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  宅男的爱  
 ##### 3010#       发表于 2018-12-10 16:15
-
-
 
 
 一句话提问：
@@ -207,16 +148,10 @@
 丫的当年来不及刷这几个成就，现在感觉有点慌
 
 
-
-
-
-
-
 -----
 
 ####  1000sure  
 ##### 3011#       发表于 2018-12-10 16:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41896537&amp;ptid=1275523" target="_blank">宅男的爱 发表于 2018-12-10 16:15</a>
@@ -228,16 +163,10 @@
 相同游戏环境设定下，更难
 
 
-
-
-
-
-
 -----
 
 ####  宅男的爱  
 ##### 3012#       发表于 2018-12-10 16:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41897047&amp;ptid=1275523" target="_blank">1000sure 发表于 2018-12-10 16:53</a>
@@ -246,16 +175,10 @@
 感谢，我回滚版本去了
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3013#       发表于 2018-12-10 18:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41897085&amp;ptid=1275523" target="_blank">宅男的爱 发表于 2018-12-10 16:55</a>
@@ -264,16 +187,10 @@
 开最低难度就是了啊。。。
 
 
-
-
-
-
-
 -----
 
 ####  normalli  
 ##### 3014#       发表于 2018-12-10 19:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41897085&amp;ptid=1275523" target="_blank">宅男的爱 发表于 2018-12-10 16:55</a>
@@ -282,16 +199,10 @@
 目前有无限刷钱的机制，你可以趁还没和谐前把想做的成就都做了
 
 
-
-
-
-
-
 -----
 
 ####  哈迪斯兜帽  
 ##### 3015#       发表于 2018-12-11 01:27
-
 
 
  本帖最后由 哈迪斯兜帽 于 2018-12-11 01:31 编辑 
@@ -304,26 +215,14 @@
 如果是自己玩的话我很难玩的下去模拟经营和策略类游戏
 
 
-
-
-
-
-
 -----
 
 ####  ataraxianxy  
 ##### 3016#       发表于 2018-12-11 18:19
 
 
-
-
 还是种田有意思啊，开局75年满140行政上线所有资源全部满仓0失业率，国内两开化种族在偏远星球当奴隶生产原料，主种族人类在主星球三盖亚关移民人口管制专攻2级生产，爽翻天<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">我这么强的规划能力什么时候有V3给我挑战啊
-
-
-
-
-
 
 
 -----
@@ -332,14 +231,7 @@
 ##### 3017#       发表于 2018-12-11 18:46
 
 
-
-
 不打仗的话其实收支平衡繁荣发展根本不难，这游戏大头支出还是打仗
-
-
-
-
-
 
 
 -----
@@ -348,14 +240,7 @@
 ##### 3018#       发表于 2018-12-11 23:29
 
 
-
-
 想问下新版本环境改造在哪？科技学了但是行星界面没有啊。
-
-
-
-
-
 
 
 -----
@@ -364,16 +249,10 @@
 ##### 3019#       发表于 2018-12-11 23:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41912990&amp;ptid=1275523" target="_blank">huaiyi2604 发表于 2018-12-11 23:29</a>
 
 想问下新版本环境改造在哪？科技学了但是行星界面没有啊。</blockquote>
 清理地块按钮的左边
-
-
-
-
-
 
 
 -----
@@ -382,15 +261,9 @@
 ##### 3020#       发表于 2018-12-13 22:23
 
 
-
 <blockquote>Stellar_Frost 发表于 2018-12-9 09:22
 新加的那个合金资源太恐怖了，所有的船和空间站都用合金造，然后这玩意的产出规模是战略资源那个级别的🌚 ...</blockquote>
 合金只能靠猛种矿电然后去贸易市场买
-
-
-
-
-
 
 
 -----
@@ -399,24 +272,16 @@
 ##### 3021#       发表于 2018-12-15 09:31
 
 
-
-
 2400后根本不会动了
 
 
 这优化简直。。。
 
 
-
-
-
-
-
 -----
 
 ####  cools  
 ##### 3022#       发表于 2018-12-15 10:37
-
 
 
  本帖最后由 cools 于 2018-12-15 10:43 编辑 
@@ -429,27 +294,15 @@
 老群友入群附上旧群ID，由于突然被封禁原因不明，目前决定控制群内话题，想加的新群友请注意目前禁止郑智和社情内容
 
 
-
-
-
-
-
 -----
 
 ####  VictorWJ  
 ##### 3023#       发表于 2018-12-15 10:43
 
 
-
-
 惊了，突然被封<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -458,15 +311,7 @@
 ##### 3024#         楼主| 发表于 2018-12-15 11:18
 
 
-
-
-
 S1第一个正式P社群104628398，没被爆破过，欢迎任何关注相关游戏和死宅生活的s1er加入。不过本群不欢迎键政，谢谢大家
-
-
-
-
-
 
 
 -----
@@ -475,20 +320,13 @@ S1第一个正式P社群104628398，没被爆破过，欢迎任何关注相关�
 ##### 3025#       发表于 2018-12-15 12:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">回滚了版本 好多mod变得不支持了 气死了这个该死的新版本
-
-
-
-
-
 
 
 -----
 
 ####  sloven  
 ##### 3026#       发表于 2018-12-15 13:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41950736&amp;ptid=1275523" target="_blank">iqbsh38 发表于 2018-12-15 12:21</a>
@@ -500,16 +338,10 @@ tile_resource_minerals_mult，这是原版的物种属性矿物产量增减buff�
 还有更加蠢的，如果说上面这个为了以后的可读性还算合理改动的话，那么领袖属性里的country_resource_minerals_mult被改成了country_minerals_produces_mult就只能说是蠢驴觉得兼容性太好非要找点事情出来了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  iqbsh38  
 ##### 3027#       发表于 2018-12-15 13:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41951095&amp;ptid=1275523" target="_blank">sloven 发表于 2018-12-15 13:01</a>
@@ -520,26 +352,15 @@ P社这波更新在代码里有一堆谜之操作，基本所有modifier都要�
 <img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">我调了好几天 才弄出一个2.13能勉强玩的mod组合 然后100年后经常就跳出 啊 烦 游戏都删了
 
 
-
-
-
-
-
 -----
 
 ####  sloven  
 ##### 3028#       发表于 2018-12-15 13:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41951109&amp;ptid=1275523" target="_blank">iqbsh38 发表于 2018-12-15 13:02</a>
 我调了好几天 才弄出一个2.13能勉强玩的mod组合 然后100年后经常就跳出 啊 烦 游戏都删了 ...</blockquote>
 跳出的去翻一翻error.log，在/Paradox Interactive/stellaris/logs里。里面出现error的排查一下，里面也有蠢驴留下的error，本体里的不用管，找到和mod有关的error处理一下就可以了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -548,15 +369,9 @@ P社这波更新在代码里有一堆谜之操作，基本所有modifier都要�
 ##### 3029#       发表于 2018-12-15 13:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41951109&amp;ptid=1275523" target="_blank">iqbsh38 发表于 2018-12-15 13:02</a>
 我调了好几天 才弄出一个2.13能勉强玩的mod组合 然后100年后经常就跳出 啊 烦 游戏都删了 ...</blockquote>
 大多数的error都不会导致CTD，脚本解释器报的error会被无视，但是图形引擎报的error就会直接崩溃<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -565,18 +380,9 @@ P社这波更新在代码里有一堆谜之操作，基本所有modifier都要�
 ##### 3030#       发表于 2018-12-15 13:15
 
 
-
-
 幸福度变动曲线太大了  经常一下莫名其妙的舒适度或者幸福度大幅变化   
 
 而且这解锁格子的特性  这版本真是有人口就是爸爸   想扩张出去自身人口一定要涨的飞快   这人口特性导致早期根本没法快速扩张殖民  格子不够+人口迁出直接要你命<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 -----
@@ -585,16 +391,10 @@ P社这波更新在代码里有一堆谜之操作，基本所有modifier都要�
 ##### 3031#       发表于 2018-12-15 15:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41951182&amp;ptid=1275523" target="_blank">sloven 发表于 2018-12-15 13:10</a>
 
 大多数的error都不会导致CTD，脚本解释器报的error会被无视，但是图形引擎报的error就会直接崩溃 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">我就想要个自动建造的2.1.3版本 网上的都是2.1 可游戏都没2.1了
-
-
-
-
-
 
 
 -----
@@ -603,14 +403,7 @@ P社这波更新在代码里有一堆谜之操作，基本所有modifier都要�
 ##### 3032#       发表于 2018-12-15 15:42
 
 
-
-
 找到一个提升星球特殊建筑空位的MOD，结果这哥们调太高了游戏分辨率必须调特别高……
-
-
-
-
-
 
 
 -----
@@ -619,21 +412,13 @@ P社这波更新在代码里有一堆谜之操作，基本所有modifier都要�
 ##### 3033#       发表于 2018-12-15 21:21
 
 
-
-
 这个官中 前面的DLC也都能自带翻译了么？
-
-
-
-
-
 
 
 -----
 
 ####  neptunehs  
 ##### 3034#       发表于 2018-12-15 22:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41955342&amp;ptid=1275523" target="_blank">水千秋 发表于 2018-12-15 21:21</a>
@@ -649,17 +434,10 @@ P社这波更新在代码里有一堆谜之操作，基本所有modifier都要�
 所以群星的所有东西都是牵一发而动全身 翻译也不例外
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 3035#       发表于 2018-12-15 23:55
-
-
 
 
 最大的问题，100年后开始爆卡，200年后直接GG不用玩了
@@ -671,16 +449,10 @@ P社这波更新在代码里有一堆谜之操作，基本所有modifier都要�
 蠢驴测试过后期吗？
 
 
-
-
-
-
-
 -----
 
 ####  水千秋  
 ##### 3036#       发表于 2018-12-16 00:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41955710&amp;ptid=1275523" target="_blank">neptunehs 发表于 2018-12-15 22:08</a>
@@ -693,16 +465,10 @@ P社这波更新在代码里有一堆谜之操作，基本所有modifier都要�
 意味着我其他的都要补票了吧
 
 
-
-
-
-
-
 -----
 
 ####  antiultima  
 ##### 3037#       发表于 2018-12-16 01:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41957030&amp;ptid=1275523" target="_blank">水千秋 发表于 2018-12-16 00:54</a>
@@ -718,16 +484,10 @@ P社这波更新在代码里有一堆谜之操作，基本所有modifier都要�
 官中目前有巨型建筑跳出的bug，推荐还是玩cloudwu汉化mod
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3038#       发表于 2018-12-16 11:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41956638&amp;ptid=1275523" target="_blank">美利坚大老爹 发表于 2018-12-15 23:55</a>
@@ -744,16 +504,10 @@ P社这波更新在代码里有一堆谜之操作，基本所有modifier都要�
 这简直
 
 
-
-
-
-
-
 -----
 
 ####  风雪夜归人  
 ##### 3039#       发表于 2018-12-16 11:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41956638&amp;ptid=1275523" target="_blank">美利坚大老爹 发表于 2018-12-15 23:55</a>
@@ -765,17 +519,10 @@ P社这波更新在代码里有一堆谜之操作，基本所有modifier都要�
 付费测试版岂是徒有虚名<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3040#       发表于 2018-12-16 16:36
-
-
 
 
 Stellaris director is moving on to a new 'secret project' at Paradox
@@ -783,16 +530,10 @@ Stellaris director is moving on to a new 'secret project' at Paradox
 不懂P社 这是好事还是坏事？
 
 
-
-
-
-
-
 -----
 
 ####  sloven  
 ##### 3041#       发表于 2018-12-16 18:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41961870&amp;ptid=1275523" target="_blank">neptunehs 发表于 2018-12-16 16:36</a>
@@ -802,16 +543,10 @@ Stellaris director is moving on to a new 'secret project' at Paradox
 应该是内部正常的人事调动<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">是好是坏就要看那个新项目是个啥了。反正P社游戏就算官方更新摸鱼了还有用爱发电的modder来丰富内容/修复bug/扩展功能……爱咋咋地吧
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3042#       发表于 2018-12-16 23:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41962969&amp;ptid=1275523" target="_blank">sloven 发表于 2018-12-16 18:48</a>
@@ -820,16 +555,10 @@ Stellaris director is moving on to a new 'secret project' at Paradox
 还真是用爱发电 我自己的mod下载数31 结果我还是花了接近10天来更新2.2版（
 
 
-
-
-
-
-
 -----
 
 ####  艾诺琳  
 ##### 3043#       发表于 2018-12-17 20:16
-
 
 
  本帖最后由 艾诺琳 于 2018-12-17 20:27 编辑 
@@ -840,17 +569,10 @@ Stellaris director is moving on to a new 'secret project' at Paradox
 上一个存档还是在2.1版本,现在版本稳定了吗?别到处都是bug
 
 
-
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3044#       发表于 2018-12-17 20:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41974873&amp;ptid=1275523" target="_blank">艾诺琳 发表于 2018-12-17 20:16</a>
@@ -862,25 +584,13 @@ Stellaris director is moving on to a new 'secret project' at Paradox
 建议等2.2.2或2.2.3再说
 
 
-
-
-
-
-
 -----
 
 ####  huzhiyangqaz  
 ##### 3045#       发表于 2018-12-17 20:43
 
 
-
-
 这新版本汉化青黄不接，都是问题，我干脆开新档英文直接玩得了…
-
-
-
-
-
 
 
 -----
@@ -889,14 +599,7 @@ Stellaris director is moving on to a new 'secret project' at Paradox
 ##### 3046#       发表于 2018-12-17 21:36
 
 
-
-
 内政更新了那么多次，复杂是复杂了，还是觉得种田没意思。
-
-
-
-
-
 
 
 -----
@@ -905,21 +608,13 @@ Stellaris director is moving on to a new 'secret project' at Paradox
 ##### 3047#       发表于 2018-12-17 22:06
 
 
-
-
 我记得当年群星刚出来还有人说是类文明的4X游戏来着，现在已经快成维多利亚3了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  sloven  
 ##### 3048#       发表于 2018-12-17 22:14
-
 
 
  本帖最后由 sloven 于 2018-12-17 22:16 编辑 
@@ -934,16 +629,10 @@ Stellaris director is moving on to a new 'secret project' at Paradox
 蠢驴要改这个只能把火星资源市场也想奴隶市场一样改成真实市场。但是改成真实市场的话就不是无限刷资源的问题了，按照蠢驴ai水平分分钟被玩家搞破产
 
 
-
-
-
-
-
 -----
 
 ####  blackjeo1  
 ##### 3049#       发表于 2018-12-17 23:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41976187&amp;ptid=1275523" target="_blank">sloven 发表于 2018-12-17 22:14</a>
@@ -952,16 +641,10 @@ Stellaris director is moving on to a new 'secret project' at Paradox
   就算蠢驴的AI能有那个能力，二真实市场就得把所有国家的实时资源变动都得考虑进去，还得另外计算每个国家实时消耗多少资源有多少资源能拿出来交易的诸如此类，就现在这个版本都卡得要死，要搞真实的资源市场基本不用玩了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  iceskey  
 ##### 3050#       发表于 2018-12-17 23:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41976737&amp;ptid=1275523" target="_blank">blackjeo1 发表于 2018-12-17 23:11</a>
@@ -976,16 +659,10 @@ Stellaris director is moving on to a new 'secret project' at Paradox
 不过加上真实的共同市场，这tm就真成了维多利亚3了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">蠢驴智障
 
 
-
-
-
-
-
 -----
 
 ####  normalli  
 ##### 3051#       发表于 2018-12-17 23:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41976187&amp;ptid=1275523" target="_blank">sloven 发表于 2018-12-17 22:14</a>
@@ -994,16 +671,10 @@ Stellaris director is moving on to a new 'secret project' at Paradox
 把火星市场改成系统自动挂一些火星单然后撮合交易的模式，就当模拟民营经济了，因为火星供需也有限了，你把价格炒太高有可能会砸在手里
 
 
-
-
-
-
-
 -----
 
 ####  sloven  
 ##### 3052#       发表于 2018-12-18 00:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41976817&amp;ptid=1275523" target="_blank">iceskey 发表于 2018-12-17 23:20</a>
@@ -1014,17 +685,10 @@ V2的市场本质是所有生产者把他生产的所有产品全部投放到市
 群星如果要做真实市场，那么ai就时时刻刻都要面临买入或卖出的抉择。做的太傻或反应太慢会被玩家玩弄于股掌之中，而聪明和及时反应的ai会大量消耗cpu资源。要是蠢驴真的做出了决策正确反应迅速性能优良的ai……那他们多半就转型金融公司去搜刮全世界了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  居于月上伊莫库  
 ##### 3053#       发表于 2018-12-18 00:37
-
-
 
 
 同看魔法师视频想回坑，之前档还在1.8.*<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
@@ -1034,26 +698,15 @@ DLC只有乌托邦和利维坦想等一个圣诞特惠补买，不过看起来�
 汉化MOD以外，有MOD可以部分改善当前游戏体验的吗（不论成就获得）？
 
 
-
-
-
-
-
 -----
 
 ####  Gymnopedie  
 ##### 3054#       发表于 2018-12-18 08:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41977190&amp;ptid=1275523" target="_blank">sloven 发表于 2018-12-18 00:08</a>
  v2的火星市场机制完全不同 V2的市场本质是所有生产者把他生产的所有产品全部投放到市场，再按照他 ...</blockquote>
 群星经济学<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1062,16 +715,10 @@ DLC只有乌托邦和利维坦想等一个圣诞特惠补买，不过看起来�
 ##### 3055#       发表于 2018-12-18 11:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41976817&amp;ptid=1275523" target="_blank">iceskey 发表于 2018-12-17 23:20</a>
 
 不至于吧，v2的火星市场不就是实时交易也没出问题啊，而且v2的市场涉及的商品种类（打了pod之后）更多， ...</blockquote>
     V2我没玩过，问题在于现在群星一到中期就卡得要死，都已经几个版本了都毫无改善的迹象，如果再在这个游戏上加些什么东西估计会卡得更加厉害
-
-
-
-
-
 
 
 -----
@@ -1080,23 +727,16 @@ DLC只有乌托邦和利维坦想等一个圣诞特惠补买，不过看起来�
 ##### 3056#       发表于 2018-12-18 12:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41981069&amp;ptid=1275523" target="_blank">blackjeo1 发表于 2018-12-18 11:58</a>
 
 V2我没玩过，问题在于现在群星一到中期就卡得要死，都已经几个版本了都毫无改善的迹象，如果再在这个 ...</blockquote>
 看贴吧，貌似和贸易范围穿过星门以及贸易路线每天结算什么的有关系。这些计算似乎虚耗了大量的运算。
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3057#       发表于 2018-12-18 12:40
-
 
 
  本帖最后由 neptunehs 于 2018-12-18 12:41 编辑 
@@ -1110,16 +750,10 @@ V2我没玩过，问题在于现在群星一到中期就卡得要死，都已经
 —— 来自 Xiaomi MI 8 SE, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  猫葳  
 ##### 3058#       发表于 2018-12-18 12:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41891001&amp;ptid=1275523" target="_blank">chushou 发表于 2018-12-10 08:47</a>
@@ -1128,16 +762,10 @@ V2我没玩过，问题在于现在群星一到中期就卡得要死，都已经
 其实现在不是最好，是开局必须要刷，没有理想城合金跟不上，你自己点飞升造的话一个是要等很久科技，第二个是即使飞升点上了，你改造一个理想城也很花时间，因为要把所有格子用城市区填满，格子越多时间越长
 
 
-
-
-
-
-
 -----
 
 ####  antiultima  
 ##### 3059#       发表于 2018-12-18 13:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41977374&amp;ptid=1275523" target="_blank">居于月上伊莫库 发表于 2018-12-18 00:37</a>
@@ -1152,16 +780,10 @@ DLC只有乌托邦和利维坦想等一个圣诞特惠补买，不过看起来�
 建议都补票，毕竟增加新游戏机制了
 
 
-
-
-
-
-
 -----
 
 ####  tokimon  
 ##### 3060#       发表于 2018-12-18 14:04
-
 
 
  本帖最后由 tokimon 于 2018-12-18 14:05 编辑 
@@ -1172,26 +794,15 @@ DLC只有乌托邦和利维坦想等一个圣诞特惠补买，不过看起来�
 与其等特惠不如直接上gamagama买毛区key云激活，基本没风险<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  huzhiyangqaz  
 ##### 3061#       发表于 2018-12-18 14:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41982598&amp;ptid=1275523" target="_blank">tokimon 发表于 2018-12-18 14:04</a>
 与其等特惠不如直接上gamagama买毛区key云激活，基本没风险</blockquote>
 gama 和 yuplay 上卖的群星 key 都是能直接国区激活的，不用云激活
-
-
-
-
-
 
 
 -----
@@ -1200,14 +811,7 @@ gama 和 yuplay 上卖的群星 key 都是能直接国区激活的，不用云�
 ##### 3062#       发表于 2018-12-18 14:14
 
 
-
-
 想知道用dlc破解有什么风险吗
-
-
-
-
-
 
 
 -----
@@ -1216,16 +820,10 @@ gama 和 yuplay 上卖的群星 key 都是能直接国区激活的，不用云�
 ##### 3063#       发表于 2018-12-18 15:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41982707&amp;ptid=1275523" target="_blank">huzhiyangqaz 发表于 2018-12-18 14:12</a>
 
 gama 和 yuplay 上卖的群星 key 都是能直接国区激活的，不用云激活</blockquote>
 由于最近的局势我切出国区了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1234,22 +832,15 @@ gama 和 yuplay 上卖的群星 key 都是能直接国区激活的，不用云�
 ##### 3064#       发表于 2018-12-18 15:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41983428&amp;ptid=1275523" target="_blank">tokimon 发表于 2018-12-18 15:15</a>
  由于最近的局势我切出国区了</blockquote>
 这么着急吓自己干吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">等日子真到了也不迟
-
-
-
-
-
 
 
 -----
 
 ####  居于月上伊莫库  
 ##### 3065#       发表于 2018-12-18 18:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41982531&amp;ptid=1275523" target="_blank">antiultima 发表于 2018-12-18 13:59</a>
@@ -1262,16 +853,10 @@ gama 和 yuplay 上卖的群星 key 都是能直接国区激活的，不用云�
 多谢，我表达意思出了偏差，是我只有这两个DLC想买别的，然后看到巨企这些风评一般才有疑问。
 
 
-
-
-
-
-
 -----
 
 ####  居于月上伊莫库  
 ##### 3066#       发表于 2018-12-18 19:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41982598&amp;ptid=1275523" target="_blank">tokimon 发表于 2018-12-18 14:04</a>
@@ -1282,16 +867,10 @@ gama 和 yuplay 上卖的群星 key 都是能直接国区激活的，不用云�
 DLC这个价位加几块钱去TB也无所谓。
 
 
-
-
-
-
-
 -----
 
 ####  antiultima  
 ##### 3067#       发表于 2018-12-20 01:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41985695&amp;ptid=1275523" target="_blank">居于月上伊莫库 发表于 2018-12-18 18:40</a>
@@ -1317,16 +896,10 @@ DLC这个价位加几块钱去TB也无所谓。
 对于dlc的差评简单看了下，主要还是对版本升级抱怨的多一些，对于dlc本身的内容差评的不多
 
 
-
-
-
-
-
 -----
 
 ####  sloven  
 ##### 3068#       发表于 2018-12-21 22:42
-
 
 
  本帖最后由 sloven 于 2018-12-21 22:48 编辑 
@@ -1336,26 +909,14 @@ DLC这个价位加几块钱去TB也无所谓。
 我tm因为给自己的mod写了个中文名字结果死活上传不了更新<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  juteman  
 ##### 3069#       发表于 2018-12-22 01:15
 
 
-
-
 今天打了吧蜂群好吧，好叼，真的好叼。开局把能增加人口增长速率的全点了，出门多爆点食物免得缺食物，人口增速6点几。战争主义开门点主点探索，3科研船探路，探到一个就造1k的兵直接锤过去，把球打了就吃，吃吃的种族食物每回合至少+80，把食物在银河市场卖了换合金继续造兵，吃下一家。
 我50年灭了3家，人口200+，正准备灭第四家。地图上除了堕落爸爸好吧，见一个吃一家，吃别的种族还有社会学加成，我一直循环海军容量，50年容量就150，第四天灾之名响遍全宇宙。
-
-
-
-
-
 
 
 -----
@@ -1364,21 +925,13 @@ DLC这个价位加几块钱去TB也无所谓。
 ##### 3070#       发表于 2018-12-22 01:17
 
 
-
-
 听说可以卖奴隶的那个巨型企业意识形态也不错，可以卖奴隶，奴隶能卖很多钱，明天试一试
-
-
-
-
-
 
 
 -----
 
 ####  neptunehs  
 ##### 3071#       发表于 2018-12-22 19:41
-
 
 
  本帖最后由 neptunehs 于 2018-12-22 19:48 编辑 
@@ -1397,27 +950,15 @@ DLC这个价位加几块钱去TB也无所谓。
 不过还是再等等2.2.3吧...
 
 
-
-
-
-
-
 -----
 
 ####  战列驱逐舰POI  
 ##### 3072#       发表于 2018-12-22 20:28
 
 
-
-
 现在的版本要保持种族纯洁性又不用受太多外交惩罚应该怎么玩？
 
 打下来的他文明种族如果要共存又应该怎么玩？
-
-
-
-
-
 
 
 -----
@@ -1426,16 +967,9 @@ DLC这个价位加几块钱去TB也无所谓。
 ##### 3073#       发表于 2018-12-22 21:54
 
 
-
-
 新人打算入坑，请问该如何着手<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 —— 来自 OnePlus ONEPLUS A5000, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.1
-
-
-
-
-
 
 
 -----
@@ -1444,21 +978,13 @@ DLC这个价位加几块钱去TB也无所谓。
 ##### 3074#       发表于 2018-12-23 11:01
 
 
-
-
 据说这次的官中质量很差？
-
-
-
-
-
 
 
 -----
 
 ####  风雪夜归人  
 ##### 3075#       发表于 2018-12-23 13:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42037785&amp;ptid=1275523" target="_blank">zzydust 发表于 2018-12-23 11:01</a>
@@ -1473,16 +999,10 @@ DLC这个价位加几块钱去TB也无所谓。
 反正习惯了贴吧汉化以后很难接受这种质量，但也不能说烂，差强人意吧。
 
 
-
-
-
-
-
 -----
 
 ####  flash520  
 ##### 3076#       发表于 2018-12-23 13:07
-
 
 
 <blockquote>引用第3061楼某秋于2018-12-18 14:14发表的  :
@@ -1496,25 +1016,13 @@ DLC这个价位加几块钱去TB也无所谓。
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  Messiah_QY  
 ##### 3077#       发表于 2018-12-23 18:52
 
 
-
-
 太无聊了 节奏又慢 星球管理麻烦的要死 90%时间看海 还不能加速过去
-
-
-
-
-
 
 
 -----
@@ -1523,23 +1031,16 @@ DLC这个价位加几块钱去TB也无所谓。
 ##### 3078#       发表于 2018-12-23 21:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42037785&amp;ptid=1275523" target="_blank">zzydust 发表于 2018-12-23 11:01</a>
 
 据说这次的官中质量很差？</blockquote>
 不兼容mod，只要在localisation文件夹找不到对应的文件都完全不显示，也就是凡是有加新加字符串或者改了字符串的mod都只会显示函数名。
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3079#       发表于 2018-12-23 22:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42043439&amp;ptid=1275523" target="_blank">涂鸦恶魔 发表于 2018-12-23 21:17</a>
@@ -1555,25 +1056,13 @@ DLC这个价位加几块钱去TB也无所谓。
 我自己做的mod就是中英文正常显示
 
 
-
-
-
-
-
 -----
 
 ####  blackjeo1  
 ##### 3080#       发表于 2018-12-23 23:00
 
 
-
-
   更新了2.22的人能说一下那个游戏一卡一卡的BUG还在吗？我现在开新挡都不敢研究L星门了
-
-
-
-
-
 
 
 -----
@@ -1582,21 +1071,13 @@ DLC这个价位加几块钱去TB也无所谓。
 ##### 3081#       发表于 2018-12-23 23:15
 
 
-
-
 我新了几个小时的档 又开始卡了
-
-
-
-
-
 
 
 -----
 
 ####  neptunehs  
 ##### 3082#       发表于 2018-12-24 00:13
-
 
 
  本帖最后由 neptunehs 于 2018-12-24 00:15 编辑 
@@ -1611,17 +1092,10 @@ DLC这个价位加几块钱去TB也无所谓。
 —— 来自 Xiaomi MI 8 SE, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  huaiyi2604  
 ##### 3083#       发表于 2018-12-24 15:57
-
-
 
 
 目前有两个点会卡  一个是星门  一个是L星门     一开星门 贸易路线会从星门中穿过去，然后明显变卡。
@@ -1630,16 +1104,10 @@ DLC这个价位加几块钱去TB也无所谓。
 2.22 电脑还是弱智啊， 关键节点放两个要塞  电脑只会造护卫舰， 几艘带高射炮的小破船根本不可能攻坚，进攻要塞跟自杀一样。随便憋个100来年又是举目望去一片不值一提....   星球产值实在太高了，不过回收成本至少要20~30年以上吧。   感觉应该砍一些星球产值上限  增加一点人口繁殖速度，曲线平滑点。
 
 
-
-
-
-
-
 -----
 
 ####  LilyWhite  
 ##### 3084#       发表于 2018-12-24 16:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42037785&amp;ptid=1275523" target="_blank">zzydust 发表于 2018-12-23 11:01</a>
@@ -1648,16 +1116,10 @@ DLC这个价位加几块钱去TB也无所谓。
 质量马马虎虎，但是巨构跳出这BUG不能忍
 
 
-
-
-
-
-
 -----
 
 ####  帕蕾莉亚  
 ##### 3085#       发表于 2018-12-24 16:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42052471&amp;ptid=1275523" target="_blank">LilyWhite 发表于 2018-12-24 16:33</a>
@@ -1666,17 +1128,10 @@ DLC这个价位加几块钱去TB也无所谓。
 2.2.2已经修复这个问题了
 
 
-
-
-
-
-
 -----
 
 ####  再迷  
 ##### 3086#       发表于 2018-12-24 17:12
-
-
 
 
 新人问一下那个帝国规模怎么处理？扩一下边境再早造点东西很容易就满了，只能硬顶着debuff搞吗？
@@ -1685,16 +1140,10 @@ DLC这个价位加几块钱去TB也无所谓。
 —— 来自 OnePlus ONEPLUS A3010, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  LilyWhite  
 ##### 3087#       发表于 2018-12-24 20:10
-
 
 
 <blockquote>再迷 发表于 2018-12-24 17:12
@@ -1707,31 +1156,19 @@ DLC这个价位加几块钱去TB也无所谓。
 这一版爆铺收益更高一些，debuff代价不大
 
 
-
-
-
-
-
 -----
 
 ####  iqbsh38  
 ##### 3088#       发表于 2018-12-24 20:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">我还在玩2.2之前的版本 等蠢驴再改改然后再继续维多利亚群星吧
-
-
-
-
-
 
 
 -----
 
 ####  neptunehs  
 ##### 3089#       发表于 2018-12-24 22:01
-
 
 
  本帖最后由 neptunehs 于 2018-12-24 22:06 编辑 
@@ -1758,17 +1195,10 @@ P社蠢驴居然还在2.2.2加强了这一系的科技
 后期各种0debuff 循环科技飞快 有病
 
 
-
-
-
-
-
 -----
 
 ####  秦祐明  
 ##### 3090#       发表于 2018-12-24 22:45
-
-
 
 
 来了
@@ -1776,16 +1206,10 @@ P社蠢驴居然还在2.2.2加强了这一系的科技
 — from HMD Global Nokia X6, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  某秋  
 ##### 3091#       发表于 2018-12-25 08:25
-
 
 
 <blockquote>flash520 发表于 2018-12-23 13:07
@@ -1797,17 +1221,10 @@ P社蠢驴居然还在2.2.2加强了这一系的科技
 额 谢谢 正版买了3大dlc 故事dlc不想买
 
 
-
-
-
-
-
 -----
 
 ####  美利坚大老爹  
 ##### 3092#       发表于 2018-12-25 08:39
-
-
 
 
 外交战争不改，这版本就跳过了
@@ -1825,16 +1242,10 @@ P社蠢驴居然还在2.2.2加强了这一系的科技
 只有改一个内政，反而让现阶段有点食之无味，弃之可惜。
 
 
-
-
-
-
-
 -----
 
 ####  Endle  
 ##### 3093#       发表于 2018-12-25 08:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41983428&amp;ptid=1275523" target="_blank">tokimon 发表于 2018-12-18 15:15</a>
@@ -1843,17 +1254,10 @@ P社蠢驴居然还在2.2.2加强了这一系的科技
 切出国区也可以用国内IP激活吧
 
 
-
-
-
-
-
 -----
 
 ####  annoleer  
 ##### 3094#       发表于 2019-3-4 13:50
-
-
 
 
 3个月过去了，现在群星能玩了吗
@@ -1861,16 +1265,10 @@ P社蠢驴居然还在2.2.2加强了这一系的科技
 —— 来自 Xiaomi MIX 2S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3095#       发表于 2019-3-4 14:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42792603&amp;ptid=1275523" target="_blank">annoleer 发表于 2019-3-4 13:50</a>
@@ -1885,25 +1283,13 @@ P社蠢驴居然还在2.2.2加强了这一系的科技
 —— 来自 Xiaomi MI 8 SE, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  Reimu853  
 ##### 3096#       发表于 2019-3-18 13:59
 
 
-
-
 这版本机仆养多少手办合适？感觉养多了稳定度也没高到哪去……就首都挂10个做做样子？
-
-
-
-
-
 
 
 -----
@@ -1912,14 +1298,7 @@ P社蠢驴居然还在2.2.2加强了这一系的科技
 ##### 3097#       发表于 2019-4-8 10:34
 
 
-
-
 2.2版本地平线信号事件触发机制是不是改了？3个科技球照着一个黑洞怼了50年也没出事件。
-
-
-
-
-
 
 
 -----
@@ -1928,16 +1307,10 @@ P社蠢驴居然还在2.2.2加强了这一系的科技
 ##### 3098#       发表于 2019-4-19 19:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42946870&amp;ptid=1275523" target="_blank">Reimu853 发表于 2019-3-18 13:59</a>
 
 这版本机仆养多少手办合适？感觉养多了稳定度也没高到哪去……就首都挂10个做做样子？ ...</blockquote>
 提供的unity够无限开雄心政策就够了，具体要看几倍科技传统，1倍的话每个星球俩房子40个够了
-
-
-
-
-
 
 
 -----
@@ -1946,21 +1319,13 @@ P社蠢驴居然还在2.2.2加强了这一系的科技
 ##### 3099#       发表于 2019-4-19 21:35
 
 
-
-
 老是中后期固定的2号游戏崩溃。需要一个个控制AI国家自爆来找谁引起的，找到了过几年又会跳出，服了。两个档都坏了
-
-
-
-
-
 
 
 -----
 
 ####  櫻玖  
 ##### 3100#       发表于 2019-5-4 16:22
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">有一个问题不知道大佬们能不能解决
@@ -1979,16 +1344,10 @@ P社蠢驴居然还在2.2.2加强了这一系的科技
 但现在贴吧汉化必须官方切到中文，然后这个MACROSS的MOD貌似不支持中文直接都显示成函数名了……这个有办法解决吗？
 
 
-
-
-
-
-
 -----
 
 ####  Sliverstrike  
 ##### 3101#       发表于 2019-5-4 16:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43562819&amp;ptid=1275523" target="_blank">櫻玖 发表于 2019-5-4 16:22</a>
@@ -2004,16 +1363,10 @@ P社蠢驴居然还在2.2.2加强了这一系的科技
 你现在要求是啥呢？如果是想要mod汉化，那你该找作者帮你弄一个呀....
 
 
-
-
-
-
-
 -----
 
 ####  櫻玖  
 ##### 3102#       发表于 2019-5-4 20:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43563040&amp;ptid=1275523" target="_blank">Sliverstrike 发表于 2019-5-4 16:46</a>
@@ -2035,16 +1388,10 @@ P社蠢驴居然还在2.2.2加强了这一系的科技
 我想问的就是这种显示函数名的情况怎么解决？只能请求MOD作者添加针对简体中文版本的支持？
 
 
-
-
-
-
-
 -----
 
 ####  Sliverstrike  
 ##### 3103#       发表于 2019-5-4 21:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43565456&amp;ptid=1275523" target="_blank">櫻玖 发表于 2019-5-4 20:00</a>
@@ -2060,16 +1407,10 @@ P社蠢驴居然还在2.2.2加强了这一系的科技
 2、如果联系不到作者你可以自己去存放日文化macross mod那个文件夹找配置文件或本地化文件试着自己改，一般叫config.ini或pref.ini之类的名字，找找里面支持的语言，写上zhCN。
 
 
-
-
-
-
-
 -----
 
 ####  櫻玖  
 ##### 3104#       发表于 2019-5-7 21:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43566956&amp;ptid=1275523" target="_blank">Sliverstrike 发表于 2019-5-4 21:47</a>
@@ -2086,19 +1427,10 @@ MOD文件夹中的【localisation】文件夹下有对应语言版本的文件�
 <img src="https://i.bmp.ovh/imgs/2019/05/a0875221c7a9afdb.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  skullgreymon  
 ##### 3105#       发表于 2019-5-9 11:32
-
 
 
  本帖最后由 skullgreymon 于 2019-5-9 15:56 编辑 
@@ -2158,27 +1490,10 @@ MOD文件夹中的【localisation】文件夹下有对应语言版本的文件�
 有一家堕落爸爸是废弃星环，后期失业民好去处。
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 3106#       发表于 2019-6-6 04:22
-
-
 
 
 咨询下近几个版本有什么战斗 舰船方面的调整    
@@ -2186,16 +1501,10 @@ MOD文件夹中的【localisation】文件夹下有对应语言版本的文件�
 印象里最后的是2.1的航母2种舰载机合并  以及护甲从减伤计算改为额外血量  再之后没有改动了?
 
 
-
-
-
-
-
 -----
 
 ####  765PRO  
 ##### 3107#       发表于 2019-6-6 05:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44010601&amp;ptid=1275523" target="_blank">妹控使徒 发表于 2019-6-6 04:22</a>
@@ -2206,16 +1515,10 @@ MOD文件夹中的【localisation】文件夹下有对应语言版本的文件�
 等一下，装甲不一直都是跟护盾一样的另一层血吗
 
 
-
-
-
-
-
 -----
 
 ####  antiultima  
 ##### 3108#       发表于 2019-6-6 05:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44010646&amp;ptid=1275523" target="_blank">765PRO 发表于 2019-6-6 05:06</a>
@@ -2224,17 +1527,10 @@ MOD文件夹中的【localisation】文件夹下有对应语言版本的文件�
 1.x时代，装甲的效果是减伤
 
 
-
-
-
-
-
 -----
 
 ####  765PRO  
 ##### 3109#       发表于 2019-6-6 05:53
-
-
 
 
 吐槽一下，现在机械飞升真的太强，在这个人口就是强度的版本前期能造机器人就是双线人口高速增长，机械飞升后涨人口的速度更加夸张，但反观灵能，只能靠+10%的基因诊所buff人口，灵能三件套极度看脸，灵能理论也要看脸，虚境给的buff就算是元神后期也没比机械飞升强多少，基因飞升虽然可以造出很优秀的种族不过一个帝国十多个种族还要分配工作简直超越了人类的处理能力。
@@ -2243,16 +1539,10 @@ MOD文件夹中的【localisation】文件夹下有对应语言版本的文件�
 然而P社居然还认为机械飞升太慢，2.3版本出遗物buff机械，灵能多了一个头和一个虚境抽奖神器，又回到了摸奖的老路，基因更加可怜了，仿佛被遗忘一般
 
 
-
-
-
-
-
 -----
 
 ####  antiultima  
 ##### 3110#       发表于 2019-6-6 05:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44010601&amp;ptid=1275523" target="_blank">妹控使徒 发表于 2019-6-6 04:22</a>
@@ -2263,25 +1553,13 @@ MOD文件夹中的【localisation】文件夹下有对应语言版本的文件�
 2.1之后印象里战斗没有什么大的改动，最近几个版本都是差不多的
 
 
-
-
-
-
-
 -----
 
 ####  chushou  
 ##### 3111#       发表于 2019-6-6 08:38
 
 
-
-
 考古真爽啊，一直考古一直爽
-
-
-
-
-
 
 
 -----
@@ -2290,16 +1568,9 @@ MOD文件夹中的【localisation】文件夹下有对应语言版本的文件�
 ##### 3112#       发表于 2019-6-6 08:44
 
 
-
-
 考古开局100年一条泰坦……
 
 除了堕落爸爸其他的都是横着走啊
-
-
-
-
-
 
 
 -----
@@ -2308,16 +1579,10 @@ MOD文件夹中的【localisation】文件夹下有对应语言版本的文件�
 ##### 3113#       发表于 2019-6-6 09:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44010691&amp;ptid=1275523" target="_blank">765PRO 发表于 2019-6-6 05:53</a>
 吐槽一下，现在机械飞升真的太强，在这个人口就是强度的版本前期能造机器人就是双线人口高速增长，机械飞升 ...</blockquote>
 主要本应该砍在机飞上的刀全歪到智械身上了
 机飞这么强势，我们来砍一刀机械人口吧
-
-
-
-
-
 
 
 -----
@@ -2326,14 +1591,7 @@ MOD文件夹中的【localisation】文件夹下有对应语言版本的文件�
 ##### 3114#       发表于 2019-6-9 11:56
 
 
-
-
 这个挖坟dlc真是太看脸了，挖了几座坟每次都是给点科研点，我花那么长时间不是为了这塞牙缝都不够的科研点的，还不如让科学家出门扫事件来的收益高
-
-
-
-
-
 
 
 -----
@@ -2342,14 +1600,7 @@ MOD文件夹中的【localisation】文件夹下有对应语言版本的文件�
 ##### 3115#       发表于 2019-6-9 13:47
 
 
-
-
 真的是打算把EVE那点东西全部做进去啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2358,14 +1609,7 @@ MOD文件夹中的【localisation】文件夹下有对应语言版本的文件�
 ##### 3116#       发表于 2019-6-9 13:59
 
 
-
-
 同挖坟没出好东西，看你们说什么泰坦简直了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2374,17 +1618,10 @@ MOD文件夹中的【localisation】文件夹下有对应语言版本的文件�
 ##### 3117#       发表于 2019-6-15 10:29
 
 
-
-
 2.3有人打上过1080UI的MOD吗   尝试了几个都是报错  似乎有什么不兼容问题   
 
 
 另外NSC2是否还有什么配套MOD  比如扩展武器  辅助件什么的   以前似乎见过但现在没见到了  不知道是删除了还是没带上额外MOD
-
-
-
-
-
 
 
 -----
@@ -2393,22 +1630,13 @@ MOD文件夹中的【localisation】文件夹下有对应语言版本的文件�
 ##### 3118#       发表于 2019-6-17 23:14
 
 
-
-
 星际要塞有收集范围+1， 贸易中心有范围+1，但是为什么我这个太空基地的收集范围还是1？
-
-
-
-
-
 
 
 -----
 
 ####  -v-  
 ##### 3119#       发表于 2019-6-18 01:02
-
-
 
 
 挖了个坟
@@ -2428,33 +1656,20 @@ MOD文件夹中的【localisation】文件夹下有对应语言版本的文件�
 我:"<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">?????????????????????????????????"
 
 
-
-
-
-
-
 -----
 
 ####  にまビ  
 ##### 3120#       发表于 2019-6-18 05:14
 
 
-
-
 https://github.com/cloudwu/stellaris_cn/blob/master/cn/localisation/english/ancient_relics_events_l_english.yml
 真那么在乎挖坟的收益的话，不如开挖之前先偷看一下坟底有啥
-
-
-
-
-
 
 
 -----
 
 ####  白影  
 ##### 3121#       发表于 2019-6-18 08:03
-
 
 
 <blockquote>-v- 发表于 2019-6-18 01:02
@@ -2470,33 +1685,19 @@ https://github.com/cloudwu/stellaris_cn/blob/master/cn/localisation/english/anci
 真文化差异
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 3122#       发表于 2019-10-2 18:53
 
 
-
-
 问下NSC2这个MOD  上次玩是2.2的版本   而最近和别人讨论舰载机的时候听说NSC2可以设置修改舰载机航程 或者说航母的攻击范围       不过以前用的NSC并没看到这个设定   于是谁有具体进行过这方面操作的吗
-
-
-
-
-
 
 
 -----
 
 ####  洛拉斯  
 ##### 3123#       发表于 2019-10-4 19:40
-
-
 
 
 尝试着玩了一把巨型企业
@@ -2517,16 +1718,10 @@ https://github.com/cloudwu/stellaris_cn/blob/master/cn/localisation/english/anci
 有没有机械飞升的头像包啊，我好好的格里芬窑子变成了罐头！
 
 
-
-
-
-
-
 -----
 
 ####  eno_emos  
 ##### 3124#       发表于 2019-10-15 14:29
-
 
 
 <img src="http://ww1.sinaimg.cn/large/e8ef8283gy1g7yvac8k6uj20xc0ir4ly.jpg" referrerpolicy="no-referrer">
@@ -2542,25 +1737,13 @@ https://github.com/cloudwu/stellaris_cn/blob/master/cn/localisation/english/anci
 <img src="http://ww1.sinaimg.cn/large/e8ef8283gy1g7yvb35fjyj20u00hgdh3.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yanghuangu  
 ##### 3125#       发表于 2019-10-15 15:52
 
 
-
-
 祖宗之法上手游？
-
-
-
-
-
 
 
 -----
@@ -2569,15 +1752,9 @@ https://github.com/cloudwu/stellaris_cn/blob/master/cn/localisation/english/anci
 ##### 3126#       发表于 2019-10-15 19:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这手游质感...
 
 难受
-
-
-
-
-
 
 
 -----
@@ -2586,17 +1763,10 @@ https://github.com/cloudwu/stellaris_cn/blob/master/cn/localisation/english/anci
 ##### 3127#       发表于 2019-10-18 23:05
 
 
-
-
 现在还有人玩吗？请教一下联邦打仗，为啥有时候占领是这家的，有时候是另一家的，是按国界距离算还是随机的？
 
 
 我用巨像打了两次战争，一次占到的地全是我的，另一次没一个星系是我的，但联邦其他成员都分了一小块。
-
-
-
-
-
 
 
 -----
@@ -2605,16 +1775,10 @@ https://github.com/cloudwu/stellaris_cn/blob/master/cn/localisation/english/anci
 ##### 3128#       发表于 2019-10-18 23:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45246320&amp;ptid=1275523" target="_blank">skullgreymon 发表于 2019-10-18 23:05</a>
 
 现在还有人玩吗？请教一下联邦打仗，为啥有时候占领是这家的，有时候是另一家的，是按国界距离算还是随机的 ...</blockquote>
    这个貌似是跟你对占到的地是否有事先宣称有关，另外2.4到底是更新了什么，英语水平太差看不懂
-
-
-
-
-
 
 
 -----
@@ -2623,23 +1787,15 @@ https://github.com/cloudwu/stellaris_cn/blob/master/cn/localisation/english/anci
 ##### 3129#       发表于 2019-10-19 09:09
 
 
-
-
 最新透露，群星下一个大型dlc的内容是：federation
 
 终于要处理这个陈旧古板的外交系统了，但愿能做得舒服点吧，今天PDXCON估计还会有透露
-
-
-
-
-
 
 
 -----
 
 ####  skullgreymon  
 ##### 3130#       发表于 2019-10-19 11:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45246684&amp;ptid=1275523" target="_blank">blackjeo1 发表于 2019-10-19 00:48</a>
@@ -2711,7 +1867,6 @@ https://github.com/cloudwu/stellaris_cn/blob/master/cn/localisation/english/anci
 * Defensive Platforms placed on Outposts now provide 2 points of Piracy Suppression for their system. The Great Game tradition from the Supremacy tree now also reduces the cost to build Defensive Platforms by 33%. (Crossed out)
 
 * 部署在前哨的防御平台现在为它们所在的星系提供2点海盗压制。来自霸权传统树的大博弈The Great Game传统现在也降低33%建造防御平台的成本。（划掉）
-
 
 
 ##########
@@ -2873,32 +2028,19 @@ https://github.com/cloudwu/stellaris_cn/blob/master/cn/localisation/english/anci
 #### Patchnote End ####</blockquote>
 
 
-
-
-
-
-
 -----
 
 ####  博丽灵梦的御币  
 ##### 3131#       发表于 2019-10-19 12:30
 
 
-
-
 群星手游光速下架还行，蠢驴下次找个靠谱点的外包啊
-
-
-
-
-
 
 
 -----
 
 ####  skullgreymon  
 ##### 3132#       发表于 2019-10-21 21:46
-
 
 
  本帖最后由 skullgreymon 于 2019-10-21 22:51 编辑 
@@ -2908,16 +2050,10 @@ https://github.com/cloudwu/stellaris_cn/blob/master/cn/localisation/english/anci
 他战斗力才600k不到吃掉我3M后还剩下200k
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3133#       发表于 2019-10-21 22:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45248034&amp;ptid=1275523" target="_blank">星野航 发表于 2019-10-19 09:09</a>
@@ -2928,24 +2064,13 @@ https://github.com/cloudwu/stellaris_cn/blob/master/cn/localisation/english/anci
 ...不知道还有多久期限 最近完全没空去整修我的mod 哎
 
 
-
-
-
-
-
 -----
 
 ####  老弗爷的菜刀  
 ##### 3134#       发表于 2019-10-21 22:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">喜迎打折，不过后面这几个DLC看评价是真的下不去手。
-
-
-
-
-
 
 
 -----
@@ -2954,16 +2079,10 @@ https://github.com/cloudwu/stellaris_cn/blob/master/cn/localisation/english/anci
 ##### 3135#       发表于 2019-10-21 22:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45269931&amp;ptid=1275523" target="_blank">老弗爷的菜刀 发表于 2019-10-21 14:40</a>
 
 喜迎打折，不过后面这几个DLC看评价是真的下不去手。</blockquote>
 ancient relics当事件包玩还挺有趣的，不得不说我现在开一档就指望着这些事件玩了
-
-
-
-
-
 
 
 -----
@@ -2972,24 +2091,15 @@ ancient relics当事件包玩还挺有趣的，不得不说我现在开一档就
 ##### 3136#       发表于 2019-10-22 02:46
 
 
-
-
 试了一把排外，感觉好难玩啊……殖民和吞球还有外交都有不少限制
 
 是玩法不对吗
-
-
-
-
-
 
 
 -----
 
 ####  粉色猛男  
 ##### 3137#       发表于 2019-10-22 22:08
-
-
 
 
 现在的群星咋玩啊，上次玩都是1.4版本了
@@ -3000,16 +2110,10 @@ ancient relics当事件包玩还挺有趣的，不得不说我现在开一档就
 就打打普通难度
 
 
-
-
-
-
-
 -----
 
 ####  normalli  
 ##### 3138#       发表于 2019-10-22 22:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45269522&amp;ptid=1275523" target="_blank">skullgreymon 发表于 2019-10-21 21:46</a>
@@ -3020,16 +2124,10 @@ ancient relics当事件包玩还挺有趣的，不得不说我现在开一档就
 大船打护卫舰请上电弧，因为厌战度的原因第四天灾不会用护卫海的，但会在舰队里编上20个左右的护卫舰用来狗拉雪橇
 
 
-
-
-
-
-
 -----
 
 ####  洗刷刷  
 ##### 3139#       发表于 2019-10-23 03:47
-
 
 
 <blockquote>skullgreymon 发表于 2019-10-21 21:46
@@ -3039,16 +2137,10 @@ ancient relics当事件包玩还挺有趣的，不得不说我现在开一档就
 这游戏从第一个版本至今护卫海一直最强，贴吧专门测试过。90%闪避太强了，而且这游戏没有未击穿的设定搞得大小炮的dps可以等价计算。但是护卫由于做不到100%闪避所以一定会有战损加厌战度。我建议留一队满编护卫打硬仗，正常还是用泰坦加战列
 
 
-
-
-
-
-
 -----
 
 ####  洗刷刷  
 ##### 3140#       发表于 2019-10-23 03:58
-
 
 
 <blockquote>粉色猛男 发表于 2019-10-22 22:08
@@ -3067,13 +2159,9 @@ ancient relics当事件包玩还挺有趣的，不得不说我现在开一档就
 当然这样玩很累，还要手动迁移人口...
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -3083,12 +2171,7 @@ ancient relics当事件包玩还挺有趣的，不得不说我现在开一档就
 | 粉色猛男| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -3097,22 +2180,15 @@ ancient relics当事件包玩还挺有趣的，不得不说我现在开一档就
 ##### 3141#       发表于 2019-10-23 08:48
 
 
-
 <blockquote>normalli 发表于 2019-10-22 23:38
 大船打护卫舰请上电弧，因为厌战度的原因第四天灾不会用护卫海的，但会在舰队里编上20个左右的护卫舰用来 ...</blockquote>
 破案了，怪不得最近打了几次都光速讲和...
-
-
-
-
-
 
 
 -----
 
 ####  skullgreymon  
 ##### 3142#       发表于 2019-10-23 08:50
-
 
 
 <blockquote>洗刷刷 发表于 2019-10-23 04:58
@@ -3122,16 +2198,10 @@ ancient relics当事件包玩还挺有趣的，不得不说我现在开一档就
 建议打那个自动迁移人口的mod、超级好用，我12000+人口用这个还是能正常运转
 
 
-
-
-
-
-
 -----
 
 ####  洗刷刷  
 ##### 3143#       发表于 2019-10-23 14:11
-
 
 
 <blockquote>skullgreymon 发表于 2019-10-23 08:50
@@ -3139,16 +2209,10 @@ ancient relics当事件包玩还挺有趣的，不得不说我现在开一档就
 名字是什么？手动迁移失业人口太烦了，搞不懂明明有迁移机制结果有失业人口，为什么迁出速度还不如人口增长速度
 
 
-
-
-
-
-
 -----
 
 ####  skullgreymon  
 ##### 3144#       发表于 2019-10-23 15:21
-
 
 
  本帖最后由 skullgreymon 于 2019-10-23 18:23 编辑 
@@ -3162,32 +2226,19 @@ ancient relics当事件包玩还挺有趣的，不得不说我现在开一档就
 这个时候推荐这个mod：“Tiny Outliner v2”，它就像个皮搋子，即使你有200个殖民地也能迅速定位红点星球，一顿操作，慢慢的自动人口移民又舒畅了[https://steamcommunity.com/sharedfiles/filedetails/?id=1610578060](https://steamcommunity.com/sharedfiles/filedetails/?id=1610578060)
 
 
-
-
-
-
-
 -----
 
 ####  勾心豆角  
 ##### 3145#       发表于 2019-10-23 18:46
 
 
-
-
 遇到一个bug，行商赌博机拉完杆之后的那个“结果是”页面卡在界面的最上面，读档往时间线之前跳也不行，根本销不掉，有啥好办法吗，不然就得废档了
-
-
-
-
-
 
 
 -----
 
 ####  skullgreymon  
 ##### 3146#       发表于 2019-10-24 10:03
-
 
 
  本帖最后由 skullgreymon 于 2019-10-24 15:03 编辑 
@@ -3199,19 +2250,10 @@ ancient relics当事件包玩还挺有趣的，不得不说我现在开一档就
 已经解决了 effect destroy_colony = yes 真香
 
 
-
-
-
-
-
-
-
 -----
 
 ####  星野航  
 ##### 3147#       发表于 2019-10-25 20:45
-
-
 
 
 石头人dlc是崩了么，今天难得有空说先买了，结果一看评价...
@@ -3219,17 +2261,10 @@ ancient relics当事件包玩还挺有趣的，不得不说我现在开一档就
 换了game director之后群星的品质真的堪忧啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  蒸汽楼  
 ##### 3148#       发表于 2019-12-9 11:01
-
-
 
 
 有没有大佬介绍一下最新版本蜂巢思维的玩法？
@@ -3244,16 +2279,10 @@ ancient relics当事件包玩还挺有趣的，不得不说我现在开一档就
 开了个新档，想复仇。
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3149#       发表于 2019-12-9 11:43
-
 
 
  本帖最后由 neptunehs 于 2019-12-9 11:46 编辑 
@@ -3271,16 +2300,10 @@ ancient relics当事件包玩还挺有趣的，不得不说我现在开一档就
 如果打不动恶魔 请撤掉所有甲全上盾 撤掉大部分的能量武器换动能武器或者全换忽略甲的鱼雷 现在的恶魔不再是以前的那种双穿50%的恐怖玩意儿了 而是怕盾的武器
 
 
-
-
-
-
-
 -----
 
 ####  暗杀翻看是  
 ##### 3150#       发表于 2019-12-9 12:36
-
 
 
 <blockquote>蒸汽楼 发表于 2019-12-9 11:01
@@ -3293,32 +2316,19 @@ ancient relics当事件包玩还挺有趣的，不得不说我现在开一档就
 这个版本到后期很简单的，就是占球起科研，矿和电全靠巨构，格子多的球就起理想城，基本打天灾是随便打
 
 
-
-
-
-
-
 -----
 
 ####  发霉的马甲  
 ##### 3151#       发表于 2019-12-9 13:46
 
 
-
-
 共和的DLC什麼時候上線？12月底麼？
-
-
-
-
-
 
 
 -----
 
 ####  哈里.谢顿  
 ##### 3152#       发表于 2019-12-14 11:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45782707&amp;ptid=1275523" target="_blank">蒸汽楼 发表于 2019-12-9 11:01</a>
@@ -3341,16 +2351,10 @@ ancient relics当事件包玩还挺有趣的，不得不说我现在开一档就
 <img src="https://wx2.sinaimg.cn/mw690/007Yruthgy1g9w1x7q56nj31hc0u0hdu.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3153#       发表于 2019-12-14 11:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45783311&amp;ptid=1275523" target="_blank">neptunehs 发表于 2019-12-9 11:43</a>
@@ -3362,16 +2366,10 @@ ancient relics当事件包玩还挺有趣的，不得不说我现在开一档就
 求问下飞升能不能换，我之前的飞升点了巨像，但不知道为啥一直点不出环世界（少了什么前置）
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3154#       发表于 2019-12-14 13:00
-
 
 
  本帖最后由 neptunehs 于 2019-12-14 13:06 编辑 
@@ -3380,16 +2378,10 @@ ancient relics当事件包玩还挺有趣的，不得不说我现在开一档就
 不能换 环世界需要宇宙奇观这个飞升 点了之后还要研究该科技 另外宇宙奇观飞升需要mega-engineer这个科技 这个科技需要战列舰 零点能 还有一个忘了是啥的科技
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3155#       发表于 2019-12-14 13:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45858215&amp;ptid=1275523" target="_blank">neptunehs 发表于 2019-12-14 13:00</a>
@@ -3398,16 +2390,10 @@ ancient relics当事件包玩还挺有趣的，不得不说我现在开一档就
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">……完蛋了
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3156#       发表于 2019-12-14 13:50
-
 
 
  本帖最后由 neptunehs 于 2019-12-14 13:51 编辑 
@@ -3417,16 +2403,10 @@ ancient relics当事件包玩还挺有趣的，不得不说我现在开一档就
 何况你选了啥飞升啊 能用的飞升应该没多到又没点大建相关又没点对危机伤害上升啊
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3157#       发表于 2019-12-14 13:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45858664&amp;ptid=1275523" target="_blank">neptunehs 发表于 2019-12-14 13:50</a>
@@ -3437,16 +2417,10 @@ ancient relics当事件包玩还挺有趣的，不得不说我现在开一档就
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  星野航  
 ##### 3158#       发表于 2019-12-14 13:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45858576&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-14 05:39</a>
@@ -3455,16 +2429,10 @@ ancient relics当事件包玩还挺有趣的，不得不说我现在开一档就
 感觉星河卫士顶起来，还是可以扛一扛的，其他的增益一般般
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3159#       发表于 2019-12-14 13:53
-
 
 
  本帖最后由 neptunehs 于 2019-12-14 13:54 编辑 
@@ -3476,16 +2444,10 @@ ancient relics当事件包玩还挺有趣的，不得不说我现在开一档就
 当然如果铺地的时候没注意关键星系无险可守那是蛮麻烦的
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3160#       发表于 2019-12-14 14:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45858690&amp;ptid=1275523" target="_blank">neptunehs 发表于 2019-12-14 13:53</a>
@@ -3501,16 +2463,10 @@ ancient relics当事件包玩还挺有趣的，不得不说我现在开一档就
 对了求问下，L新门我7/7都有了，为啥无法开启灰风老婆的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3161#       发表于 2019-12-14 14:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45858688&amp;ptid=1275523" target="_blank">星野航 发表于 2019-12-14 13:53</a>
@@ -3519,32 +2475,19 @@ ancient relics当事件包玩还挺有趣的，不得不说我现在开一档就
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3162#       发表于 2019-12-14 16:06
 
 
-
-
 上面几位玩的什么难度，准将难度我习惯把领地保持在扩张惩罚很小的情况也2400年三只120k的舰队，除了打机械叛乱有点困难别的都是换换武器随便打。
-
-
-
-
-
 
 
 -----
 
 ####  yoboc  
 ##### 3163#       发表于 2019-12-14 16:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45858824&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-14 14:08</a>
@@ -3554,16 +2497,10 @@ https://space.bilibi ...</blockquote>
 l星门需要领地里有一个l星门，然后情报满了以后去研究就能开了
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3164#       发表于 2019-12-14 16:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45859820&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-14 16:06:23</a>
@@ -3572,16 +2509,10 @@ l星门需要领地里有一个l星门，然后情报满了以后去研究就能
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3165#       发表于 2019-12-14 16:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860008&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-14 16:29</a>
@@ -3593,16 +2524,10 @@ l星门需要领地里有一个l星门，然后情报满了以后去研究就能
 L星门一方面需要领地内有 另一方面灰风几率并不是100%（具体几率忘了）
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3166#       发表于 2019-12-14 16:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860044&amp;ptid=1275523" target="_blank">neptunehs 发表于 2019-12-14 16:35:20</a>
@@ -3613,16 +2538,10 @@ L星门一方面需要领地内有 另 ...</blockquote>地太大了，结果空�
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  zxc4563982  
 ##### 3167#       发表于 2019-12-14 16:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45858824&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-14 14:08</a>
@@ -3635,16 +2554,10 @@ L星门里有四种可能，灰风的要求比较严，很难出
 不过前几局都是大型新手教程，但探索未知的那种感觉也是前几局最强
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3168#       发表于 2019-12-14 16:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860008&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-14 16:29</a>
@@ -3657,16 +2570,10 @@ L星门里有四种可能，灰风的要求比较严，很难出
 还有就是我个人还是建议精铺殖民地，看着你这么多星球没建设感觉可能都是入不敷出状态了。
 
 
-
-
-
-
-
 -----
 
 ####  zxc4563982  
 ##### 3169#       发表于 2019-12-14 16:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860008&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-14 16:29</a>
@@ -3676,16 +2583,10 @@ L星门里有四种可能，灰风的要求比较严，很难出
 众所周知，朝贡是结盟的高级形式(
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3170#       发表于 2019-12-14 16:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860187&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-14 16:53</a>
@@ -3694,25 +2595,13 @@ L星门里有四种可能，灰风的要求比较严，很难出
 高纬入侵前只有电是负的，其他都是爆表所以没问题，凝聚力基本拿来宣对面所有权，本来连巨像都造好了，结果一下打回原型
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3171#       发表于 2019-12-14 16:57
 
 
-
-
 按道理来说引入贸易后不大可能电不够啊。。。电够的话还缺啥
-
-
-
-
-
 
 
 -----
@@ -3721,16 +2610,10 @@ L星门里有四种可能，灰风的要求比较严，很难出
 ##### 3172#       发表于 2019-12-14 16:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860187&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-14 16:53</a>
 
 食物能卖就卖，保持正数就够用了，消费品也是，虽然是高级物资，但远远没有合金有用，你这五万消费品转成 ...</blockquote>
 求教一下殖民怎么处理，我是人类，基本看到海洋什么的就派人过去
-
-
-
-
-
 
 
 -----
@@ -3739,15 +2622,9 @@ L星门里有四种可能，灰风的要求比较严，很难出
 ##### 3173#       发表于 2019-12-14 17:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860231&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-14 16:57</a>
 求教一下殖民怎么处理，我是人类，基本看到海洋什么的就派人过去</blockquote>
 碰到绿色的就占没问题 但占后要第一时间分种类 不要全部都乱建造 比如一水的合金 一水的customer goods 一水的电矿加特殊资源 如果有余力的话一水的科研
-
-
-
-
-
 
 
 -----
@@ -3756,15 +2633,9 @@ L星门里有四种可能，灰风的要求比较严，很难出
 ##### 3174#       发表于 2019-12-14 17:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860231&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-14 16:57</a>
 求教一下殖民怎么处理，我是人类，基本看到海洋什么的就派人过去</blockquote>
 殖民就挑宜居度绿色的，然后看地块数，至少十五以上吧，然后建设就住房点满，三电一矿，建筑就科技凝聚力合金，一个星球尽量造同类建筑，有额外加成，首都没事随便造。
-
-
-
-
-
 
 
 -----
@@ -3773,22 +2644,15 @@ L星门里有四种可能，灰风的要求比较严，很难出
 ##### 3175#       发表于 2019-12-14 17:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860216&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-14 16:56</a>
 高纬入侵前只有电是负的，其他都是爆表所以没问题，凝聚力基本拿来宣对面所有权，本来连巨像都造好了，结 ...</blockquote>
 凝聚力不是影响力，就飞升的那个，你攒了2m了，在左边法令里有能用这个点的，加不少东西的
-
-
-
-
-
 
 
 -----
 
 ####  哈里.谢顿  
 ##### 3176#       发表于 2019-12-14 17:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860282&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-14 17:02:52</a>
@@ -3799,26 +2663,15 @@ L星门里有四种可能，灰风的要求比较严，很难出
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  morale  
 ##### 3177#       发表于 2019-12-14 17:08
 
 
-
 <blockquote>哈里.谢顿 发表于 2019-12-14 16:57
 求教一下殖民怎么处理，我是人类，基本看到海洋什么的就派人过去</blockquote>
 能不能截一张游戏内的界面图，看一下怎么解决
-
-
-
-
-
 
 
 -----
@@ -3827,23 +2680,16 @@ L星门里有四种可能，灰风的要求比较严，很难出
 ##### 3178#       发表于 2019-12-14 17:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860336&amp;ptid=1275523" target="_blank">morale 发表于 2019-12-14 17:08:33</a>
 能不能截一张游戏内的界面图，看一下怎么解决</blockquote>老哥那个界面？
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  morale  
 ##### 3179#       发表于 2019-12-14 17:10
-
 
 
 <blockquote>哈里.谢顿 发表于 2019-12-14 17:09
@@ -3854,16 +2700,10 @@ L星门里有四种可能，灰风的要求比较严，很难出
 星系界面，包括资源产出和地图
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3180#       发表于 2019-12-14 17:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860329&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-14 17:07</a>
@@ -3873,16 +2713,10 @@ L星门里有四种可能，灰风的要求比较严，很难出
 吸收的星球有什么特殊吗？没有种族问题的话都是拆了建筑自己再规划，有种族问题不如直接灭星
 
 
-
-
-
-
-
 -----
 
 ####  Solid/Liquid  
 ##### 3181#       发表于 2019-12-14 17:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860165&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-14 16:50</a>
@@ -3892,26 +2726,14 @@ L星门里有四种可能，灰风的要求比较严，很难出
 这个状态其实可以考虑一下放附庸，吞附庸惩罚也挺大的...要不然就破产了，先保留核心军力刚天灾就好，我说割地就是这个意思
 
 
-
-
-
-
-
 -----
 
 ####  Solid/Liquid  
 ##### 3182#       发表于 2019-12-14 17:21
 
 
-
-
 我感觉食物和消费品不负数就行...除非是新近收了敌对领土要用消费品压不满
 暴铺出去的那些低价值的地，该放弃就放弃，有一些甚至直接拆掉就好，保留主力舰队，用多出来的凝聚度加一波战狂向的buff，反正你都是河长了也不用太在意天灾之外的入侵
-
-
-
-
-
 
 
 -----
@@ -3920,14 +2742,7 @@ L星门里有四种可能，灰风的要求比较严，很难出
 ##### 3183#       发表于 2019-12-14 17:25
 
 
-
-
 前期食物还是很有用的。农夫一个岗位产6，电工一个岗位产4。按照贸易市场1比0.7的比例，6食物能换4.2电，比直接生产高，找友好ai帝国就更高了
-
-
-
-
-
 
 
 -----
@@ -3936,23 +2751,16 @@ L星门里有四种可能，灰风的要求比较严，很难出
 ##### 3184#       发表于 2019-12-14 17:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860398&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-14 17:14</a>
 
 民用工业生产消费品我是只在前期造一两个撑一下，还是说食物是最没用的资源，消费品其次，完全没必要为了 ...</blockquote>
 我是艾玛帝国的信徒，结果走激光的，发现对亚空间变态没有卵用
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3185#       发表于 2019-12-14 17:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860352&amp;ptid=1275523" target="_blank">morale 发表于 2019-12-14 17:10</a>
@@ -3969,9 +2777,6 @@ L星门里有四种可能，灰风的要求比较严，很难出
 2019-12-14 17:27 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201912/14/172757g2qrqcfr0vfzcsrf.png" referrerpolicy="no-referrer">
 
 
@@ -3980,9 +2785,6 @@ L星门里有四种可能，灰风的要求比较严，很难出
 下载附件
 
 2019-12-14 17:27 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201912/14/172757uiauuow8awlljh8a.png" referrerpolicy="no-referrer">
@@ -3995,9 +2797,6 @@ L星门里有四种可能，灰风的要求比较严，很难出
 2019-12-14 17:27 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201912/14/172757x6h9u6ykrc6uhv86.png" referrerpolicy="no-referrer">
 
 
@@ -4008,19 +2807,8 @@ L星门里有四种可能，灰风的要求比较严，很难出
 2019-12-14 17:27 上传
 
 
-
-
-
-
-
-
-
-
-
 tommy830219 -2.jpg
 (85.24 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -4029,24 +2817,7 @@ tommy830219 -2.jpg
 2019-12-14 17:27 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201912/14/172758mxfsg8izrfgsdr8d.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -4055,15 +2826,9 @@ tommy830219 -2.jpg
 ##### 3186#       发表于 2019-12-14 17:36
 
 
-
 <blockquote>哈里.谢顿 发表于 2019-12-14 17:28
 </blockquote>
 1倍天灾吗？循环科技出来了吧？
-
-
-
-
-
 
 
 -----
@@ -4072,23 +2837,16 @@ tommy830219 -2.jpg
 ##### 3187#       发表于 2019-12-14 17:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860491&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-14 17:27</a>
 我是艾玛帝国的信徒，结果走激光的，发现对亚空间变态没有卵用</blockquote>
 立刻研究动能也不会太难啊
 这游戏最强的肯定是激光动能混合配点电弧 就算是要cos那也要有科研储备啊
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3188#       发表于 2019-12-14 17:42
-
 
 
  本帖最后由 yoboc 于 2019-12-14 17:44 编辑 
@@ -4099,16 +2857,10 @@ tommy830219 -2.jpg
 下面看图的问题就是你造这么多太空基地是为了什么。。扩建舰队规模吗？问题是你舰队离满还有点距离；还是说为了收集贸易点？不是特别密集的也没必要；为了防御只在关键道建就行了，而且最好精建，我看你首都基地战力也就几k感觉不像是2480年的东西。。反正这维护费+500%也太伤了，不超额建设能从3800降到五六百
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3189#       发表于 2019-12-14 17:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860559&amp;ptid=1275523" target="_blank">morale 发表于 2019-12-14 17:36:24</a>
@@ -4117,16 +2869,10 @@ tommy830219 -2.jpg
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3190#       发表于 2019-12-14 17:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860605&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-14 17:42:34</a>
@@ -4135,16 +2881,10 @@ tommy830219 -2.jpg
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3191#       发表于 2019-12-14 17:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860605&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-14 17:42:34</a>
@@ -4153,16 +2893,10 @@ tommy830219 -2.jpg
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3192#       发表于 2019-12-14 17:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860707&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-14 17:54</a>
@@ -4174,16 +2908,10 @@ tommy830219 -2.jpg
 反正你经济炸穿这个肯定是罪魁祸首，至于为什么最近才炸或者说最近才发现那我就不知道了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3193#       发表于 2019-12-14 18:00
-
 
 
  本帖最后由 yoboc 于 2019-12-14 18:03 编辑 
@@ -4195,16 +2923,10 @@ tommy830219 -2.jpg
 现在你就把基地能拆的拆拆，食物消费品卖一卖，稀有原料用不到的卖一卖，急用就大量购买合金造船，这天灾一只才30k战力怎么也能造一只银河战舰随便碾压。打天灾除了换武器重点就是以多打少，别和他等战力硬拼，两倍干他就基本无伤了
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3194#       发表于 2019-12-14 18:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860451&amp;ptid=1275523" target="_blank">Solid/Liquid 发表于 2019-12-14 17:21:15</a>
@@ -4215,16 +2937,10 @@ tommy830219 -2.jpg
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3195#       发表于 2019-12-14 18:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860774&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-14 18:00:31</a>
@@ -4237,16 +2953,10 @@ tommy830219 -2.jpg
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3196#       发表于 2019-12-14 18:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860823&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-14 18:06</a>
@@ -4262,16 +2972,10 @@ tommy830219 -2.jpg
 不过你这个刷的位置还不错啊，朝往你的只有一个通道，全部兵力一堵怎么过得来
 
 
-
-
-
-
-
 -----
 
 ####  morale  
 ##### 3197#       发表于 2019-12-14 18:17
-
 
 
  本帖最后由 morale 于 2019-12-14 18:19 编辑 
@@ -4287,16 +2991,10 @@ tommy830219 -2.jpg
 这样一艘战列的造价为六七百合金，加上buff的话只需五百合金左右
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3198#       发表于 2019-12-14 18:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860865&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-14 18:11:39</a>
@@ -4307,16 +3005,10 @@ tommy830219 -2.jpg
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3199#       发表于 2019-12-14 18:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860920&amp;ptid=1275523" target="_blank">morale 发表于 2019-12-14 18:17:20</a>
@@ -4329,16 +3021,10 @@ tommy830219 -2.jpg
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3200#       发表于 2019-12-14 18:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860920&amp;ptid=1275523" target="_blank">morale 发表于 2019-12-14 18:17:20</a>
@@ -4351,16 +3037,10 @@ tommy830219 -2.jpg
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  morale  
 ##### 3201#       发表于 2019-12-14 18:22
-
 
 
 <blockquote>哈里.谢顿 发表于 2019-12-14 18:19
@@ -4371,16 +3051,10 @@ tommy830219 -2.jpg
 先不用，因为你的合金产量和贮存不够，等有了有了一两万合金再换
 
 
-
-
-
-
-
 -----
 
 ####  morale  
 ##### 3202#       发表于 2019-12-14 18:25
-
 
 
 <blockquote>哈里.谢顿 发表于 2019-12-14 18:21
@@ -4391,16 +3065,10 @@ tommy830219 -2.jpg
 把战列当消耗品，以低战损换敌方部队，反正要的合金不多
 
 
-
-
-
-
-
 -----
 
 ####  morale  
 ##### 3203#       发表于 2019-12-14 18:29
-
 
 
 <blockquote>哈里.谢顿 发表于 2019-12-14 18:21
@@ -4411,16 +3079,10 @@ tommy830219 -2.jpg
 同时后方的船坞造多点，战列一没一艘就造一艘，保证续航
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3204#       发表于 2019-12-14 18:36
-
 
 
  本帖最后由 yoboc 于 2019-12-14 18:38 编辑 
@@ -4433,16 +3095,10 @@ tommy830219 -2.jpg
 稀有原料别留着，攒着就是搞自己难受，又没多少用，你全卖出去换合金肯定是血赚的
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3205#       发表于 2019-12-14 18:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45861091&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-14 18:36:08</a>
@@ -4451,24 +3107,13 @@ tommy830219 -2.jpg
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  ledo  
 ##### 3206#       发表于 2019-12-14 19:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">灰风事件是咋样的..我就没触发过
-
-
-
-
-
 
 
 -----
@@ -4477,22 +3122,15 @@ tommy830219 -2.jpg
 ##### 3207#       发表于 2019-12-14 19:26
 
 
-
 <blockquote>ledo 发表于 2019-12-14 19:19
 灰风事件是咋样的..我就没触发过</blockquote>
 L星门打开后，没有纳米机出来。进入L星系会弹出事件，之后在扫描任意纳米星球时有概率会出一个特殊异常。这个异常研究完就能让灰风加入。灰风可以在一个总督，一艘战舰和一个陆军单位之间切换，且死亡后十年会复活
-
-
-
-
-
 
 
 -----
 
 ####  yoboc  
 ##### 3208#       发表于 2019-12-14 19:31
-
 
 
  本帖最后由 yoboc 于 2019-12-14 19:34 编辑 
@@ -4504,18 +3142,10 @@ L星门打开后，没有纳米机出来。进入L星系会弹出事件，之后
 等等，看楼上说的灰风事件和灰蛊风暴还不一样？
 
 
-
-
-
-
-
-
-
 -----
 
 ####  morale  
 ##### 3209#       发表于 2019-12-14 19:53
-
 
 
 <blockquote>yoboc 发表于 2019-12-14 19:31
@@ -4525,16 +3155,10 @@ L星门打开后，没有纳米机出来。进入L星系会弹出事件，之后
 是不一样。灰蛊风暴是L星门一打开，立马出事件并刷出部队。一队固定20k，不享受天灾倍数和ai强度的加成
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3210#       发表于 2019-12-14 19:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45861801&amp;ptid=1275523" target="_blank">morale 发表于 2019-12-14 19:53</a>
@@ -4543,16 +3167,10 @@ L星门打开后，没有纳米机出来。进入L星系会弹出事件，之后
 我还以为l星门只有l星龙纳米国家灰蛊舰队三种，没想到还有别的<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">又得再开一盘了
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3211#       发表于 2019-12-14 20:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45860920&amp;ptid=1275523" target="_blank">morale 发表于 2019-12-14 18:17</a>
@@ -4573,17 +3191,7 @@ L星门打开后，没有纳米机出来。进入L星系会弹出事件，之后
 2019-12-14 20:10 上传
 
 
-
-
-
-
-
 老哥，这战列这么配都要破千啊
-
-
-
-
-
 
 
 -----
@@ -4592,23 +3200,15 @@ L星门打开后，没有纳米机出来。进入L星系会弹出事件，之后
 ##### 3212#       发表于 2019-12-14 20:17
 
 
-
-
 https://steamcommunity.com/sharedfiles/filedetails/?id=1562501671&amp;searchtext=some+event
 
 突然有人讨论 趁机推广mod（
-
-
-
-
-
 
 
 -----
 
 ####  morale  
 ##### 3213#       发表于 2019-12-14 20:23
-
 
 
  本帖最后由 morale 于 2019-12-14 20:32 编辑 
@@ -4618,15 +3218,8 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=1562501671&amp;searchtext
 是这种配置，你的情况用第二张图那种（有跃迁引擎的话，就用跃迁引擎）
 
 
-
-
-
-
-
 电弧战列.png
 (578.86 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -4635,28 +3228,13 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=1562501671&amp;searchtext
 2019-12-14 20:23 上传
 
 
-
-
-
-
-
-
 1
 
 <img src="https://img.saraba1st.com/forum/201912/14/202309c6a9c6gc9iz5azr4.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
 电弧战列2.png
 (580.18 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -4665,32 +3243,15 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=1562501671&amp;searchtext
 2019-12-14 20:29 上传
 
 
-
-
-
-
-
-
 2
 
 <img src="https://img.saraba1st.com/forum/201912/14/202928saxai99kqtxa9i9i.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  哈里.谢顿  
 ##### 3214#       发表于 2019-12-14 20:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45862139&amp;ptid=1275523" target="_blank">morale 发表于 2019-12-14 20:23</a>
@@ -4702,16 +3263,10 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=1562501671&amp;searchtext
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  morale  
 ##### 3215#       发表于 2019-12-14 20:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45862306&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-14 20:36</a>
@@ -4720,14 +3275,8 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=1562501671&amp;searchtext
 右边两个电弧科技，下面的是一级的，上面的是二级的
 
 
-
-
-
-
 电弧.png
 (543.13 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -4736,24 +3285,7 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=1562501671&amp;searchtext
 2019-12-14 20:39 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201912/14/203947xwf30j4fuls43t34.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -4762,15 +3294,9 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=1562501671&amp;searchtext
 ##### 3216#       发表于 2019-12-14 20:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45862306&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-14 20:36</a>
 这电弧估计还没研究，求问下是什么科技</blockquote>
 主力走光线的话不可能没有电弧吧
-
-
-
-
-
 
 
 -----
@@ -4779,16 +3305,10 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=1562501671&amp;searchtext
 ##### 3217#       发表于 2019-12-14 20:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45862306&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-14 20:36</a>
 
 这电弧估计还没研究，求问下是什么科技</blockquote>
 你把第一个板块更换成只有一个X的板块再选应该就有了
-
-
-
-
-
 
 
 -----
@@ -4797,16 +3317,10 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=1562501671&amp;searchtext
 ##### 3218#       发表于 2019-12-15 10:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45862343&amp;ptid=1275523" target="_blank">morale 发表于 2019-12-14 20:40:33</a>
 右边两个电弧科技，下面的是一级的，上面的是二级的</blockquote>真没找到<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -4815,23 +3329,16 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=1562501671&amp;searchtext
 ##### 3219#       发表于 2019-12-15 10:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45862343&amp;ptid=1275523" target="_blank">morale 发表于 2019-12-14 20:40:33</a>
 右边两个电弧科技，下面的是一级的，上面的是二级的</blockquote>有了，要电力提升11以后才行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  morale  
 ##### 3220#       发表于 2019-12-15 12:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45867364&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-15 10:52</a>
@@ -4843,16 +3350,10 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=1562501671&amp;searchtext
 能不能说一下，能量伤害和攻速的循环科技到几级了，舰队上限是多少？
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3221#       发表于 2019-12-15 15:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45868543&amp;ptid=1275523" target="_blank">morale 发表于 2019-12-15 12:49</a>
@@ -4863,16 +3364,10 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=1562501671&amp;searchtext
 现在按照大家说的拆空间站，电是回正了，但对面的破解者人是越来越多
 
 
-
-
-
-
-
 -----
 
 ####  morale  
 ##### 3222#       发表于 2019-12-15 16:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45869960&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-15 15:40</a>
@@ -4886,16 +3381,10 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=1562501671&amp;searchtext
 还有，能量的伤害循环和攻速循环到多少级了？
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3223#       发表于 2019-12-15 19:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45870300&amp;ptid=1275523" target="_blank">morale 发表于 2019-12-15 16:31</a>
@@ -4907,16 +3396,10 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=1562501671&amp;searchtext
 游戏没开，我裂解炮一直没点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大概就是这个原因把
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3224#       发表于 2019-12-16 08:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45870300&amp;ptid=1275523" target="_blank">morale 发表于 2019-12-15 16:31:22</a>
@@ -4930,16 +3413,10 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=1562501671&amp;searchtext
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3225#       发表于 2019-12-16 08:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45876035&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-16 08:26</a>
@@ -4949,16 +3426,10 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=1562501671&amp;searchtext
 如果没有特别追求 开局发现周边都是人的话建议重开
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3226#       发表于 2019-12-16 09:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45876217&amp;ptid=1275523" target="_blank">neptunehs 发表于 2019-12-16 08:53:21</a>
@@ -4968,16 +3439,10 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=1562501671&amp;searchtext
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3227#       发表于 2019-12-16 09:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45876514&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-16 09:27</a>
@@ -4986,16 +3451,10 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=1562501671&amp;searchtext
 就是有突然要求你附庸的危险。。。
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3228#       发表于 2019-12-16 09:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45876587&amp;ptid=1275523" target="_blank">neptunehs 发表于 2019-12-16 09:34:42</a>
@@ -5005,16 +3464,10 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=1562501671&amp;searchtext
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3229#       发表于 2019-12-16 10:14
-
 
 
  本帖最后由 neptunehs 于 2019-12-16 10:22 编辑 
@@ -5030,16 +3483,10 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=1562501671&amp;searchtext
 电弧对小船跟异次元恶魔好使 但整体而言也确实说不上必须（因为削过 确实有一段时间的理论值最高但现在应该不是 另如果打了nscmod倒是必须了）
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3230#       发表于 2019-12-16 10:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45876982&amp;ptid=1275523" target="_blank">neptunehs 发表于 2019-12-16 10:14:12</a>
@@ -5049,16 +3496,10 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=1562501671&amp;searchtext
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3231#       发表于 2019-12-16 10:56
-
 
 
  本帖最后由 neptunehs 于 2019-12-16 11:03 编辑 
@@ -5076,17 +3517,10 @@ megaengineer是科技 我不知道中文叫啥w 刷出条件是战列舰 零点�
 星门跟人造殖民地都只需要对应科技 不需要megaengineer也不需要飞升
 
 
-
-
-
-
-
 -----
 
 ####  蒸汽楼  
 ##### 3232#       发表于 2019-12-16 11:01
-
-
 
 
 看到有大佬推荐MOD，顺势问一下，请问各位有没有不影响解锁成就的MOD推荐？
@@ -5098,16 +3532,10 @@ megaengineer是科技 我不知道中文叫啥w 刷出条件是战列舰 零点�
 不知道有没有别的MOD可以在基本不影响萌新认知、又不影响解锁成就的基础上，优化一下游戏体验？
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3233#       发表于 2019-12-16 11:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45877470&amp;ptid=1275523" target="_blank">neptunehs 发表于 2019-12-16 10:56:32</a>
@@ -5118,16 +3546,10 @@ megaengineer是科技 我不知道中文叫啥w 刷出条件是战列舰 零点 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3234#       发表于 2019-12-16 11:04
-
 
 
  本帖最后由 neptunehs 于 2019-12-16 11:17 编辑 
@@ -5142,16 +3564,10 @@ megaengineer是科技 我不知道中文叫啥w 刷出条件是战列舰 零点 
 另外我真的不是推荐 我自己写的下载500左右的mod哪敢用推荐这个词 应该叫推广（
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3235#       发表于 2019-12-16 11:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45877581&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-16 11:04</a>
@@ -5162,32 +3578,19 @@ megaengineer是科技 我不知道中文叫啥w 刷出条件是战列舰 零点 
 同时有一个飞升送这个科技
 
 
-
-
-
-
-
 -----
 
 ####  博丽灵梦的御币  
 ##### 3236#       发表于 2019-12-16 11:09
 
 
-
-
 新DLC快出了啊，看着还有点意思
-
-
-
-
-
 
 
 -----
 
 ####  morale  
 ##### 3237#       发表于 2019-12-16 14:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45877581&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-16 11:04</a>
@@ -5207,20 +3610,10 @@ megaengineer的贴吧翻译名称是巨构建筑工程，星河奇迹需要这�
 剩下的，星河奇迹，建筑大师和巨像（政体有全面战争理由可以不点）必点，觉得天灾打不过就点星河卫士，其他的看自己的需求点
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3238#       发表于 2019-12-16 14:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45880076&amp;ptid=1275523" target="_blank">morale 发表于 2019-12-16 14:16:08</a></blockquote>求教下非心门和太空知名地的巨构是那种？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -5228,16 +3621,10 @@ megaengineer的贴吧翻译名称是巨构建筑工程，星河奇迹需要这�
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3239#       发表于 2019-12-16 14:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45880110&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-16 14:18</a>
@@ -5247,16 +3634,10 @@ megaengineer的贴吧翻译名称是巨构建筑工程，星河奇迹需要这�
 不点飞升可以建几种奇观的 比如sentry array 前提也是需要megaengineer
 
 
-
-
-
-
-
 -----
 
 ####  morale  
 ##### 3240#       发表于 2019-12-16 14:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45880110&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-16 14:18</a>
@@ -5271,16 +3652,10 @@ megaengineer的贴吧翻译名称是巨构建筑工程，星河奇迹需要这�
 除前三种外，其他的都能在完成巨构科技后通过相应的科技点出来
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3241#       发表于 2019-12-16 14:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45880194&amp;ptid=1275523" target="_blank">morale 发表于 2019-12-16 14:24:13</a>
@@ -5293,17 +3668,10 @@ megaengineer的贴吧翻译名称是巨构建筑工程，星河奇迹需要这�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3242#       发表于 2019-12-16 19:13
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201912/16/191136kahqihqps13zx1lx.jpg" referrerpolicy="no-referrer">
@@ -5316,22 +3684,13 @@ megaengineer的贴吧翻译名称是巨构建筑工程，星河奇迹需要这�
 2019-12-16 19:11 上传
 
 
-
-
-
 淦，黑洞变成蓝洞了。<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">p社的bug总是意想不到中出现
-
-
-
-
-
 
 
 -----
 
 ####  neptunehs  
 ##### 3243#       发表于 2019-12-16 19:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45883665&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-16 19:13</a>
@@ -5347,16 +3706,10 @@ megaengineer的贴吧翻译名称是巨构建筑工程，星河奇迹需要这�
 啥是bug？切
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3244#       发表于 2019-12-16 20:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45884075&amp;ptid=1275523" target="_blank">neptunehs 发表于 2019-12-16 19:56</a>
@@ -5367,16 +3720,10 @@ megaengineer的贴吧翻译名称是巨构建筑工程，星河奇迹需要这�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mod叫“光的多普勒效应”
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3245#       发表于 2019-12-16 20:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45884234&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-16 20:14</a>
@@ -5385,16 +3732,10 @@ mod叫“光的多普勒效应”</blockquote>
 屏幕哪来的多普勒效应（
 
 
-
-
-
-
-
 -----
 
 ####  无尾的树懒  
 ##### 3246#       发表于 2019-12-16 22:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45880230&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-16 14:26</a>
@@ -5405,16 +3746,10 @@ mod叫“光的多普勒效应”</blockquote>
 可千万别造哨兵！造完开全屏卡的一比 满银河小船乱窜直接占满CPU 仔细想想又没屁用 还不如造个战略指挥中心呢
 
 
-
-
-
-
-
 -----
 
 ####  morale  
 ##### 3247#       发表于 2019-12-17 07:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45880230&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-16 14:26</a>
@@ -5429,16 +3764,10 @@ mod叫“光的多普勒效应”</blockquote>
 前者可以提高舰队容量和移速，后者则可以更快地攀科技
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3248#       发表于 2019-12-17 09:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45887711&amp;ptid=1275523" target="_blank">morale 发表于 2019-12-17 07:03</a>
@@ -5451,16 +3780,10 @@ mod叫“光的多普勒效应”</blockquote>
 老哥一般玩什么规模的地图？我开个中型600就觉得舰队跑来跑去太累了
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3249#       发表于 2019-12-17 11:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45888394&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-17 09:17</a>
@@ -5470,16 +3793,10 @@ mod叫“光的多普勒效应”</blockquote>
 如果是喜欢2350前统一的600比较合适？
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3250#       发表于 2019-12-17 12:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45890037&amp;ptid=1275523" target="_blank">neptunehs 发表于 2019-12-17 11:38:34</a>
@@ -5490,26 +3807,15 @@ mod叫“光的多普勒效应”</blockquote>
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  morale  
 ##### 3251#       发表于 2019-12-17 12:54
 
 
-
 <blockquote>哈里.谢顿 发表于 2019-12-17 09:17
 老哥一般玩什么规模的地图？我开个中型600就觉得舰队跑来跑去太累了</blockquote>
 400星或600星，主要是星系数多了体验没上升多少，游戏运行起来反而更卡了
-
-
-
-
-
 
 
 -----
@@ -5518,15 +3824,9 @@ mod叫“光的多普勒效应”</blockquote>
 ##### 3252#       发表于 2019-12-17 14:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45891079&amp;ptid=1275523" target="_blank">morale 发表于 2019-12-17 12:54</a>
 400星或600星，主要是星系数多了体验没上升多少，游戏运行起来反而更卡了 ...</blockquote>
 我反正是情愿把宜居调到0.25x也要开800星的 600动不动堵门真的不爽
-
-
-
-
-
 
 
 -----
@@ -5535,23 +3835,16 @@ mod叫“光的多普勒效应”</blockquote>
 ##### 3253#       发表于 2019-12-17 14:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45891079&amp;ptid=1275523" target="_blank">morale 发表于 2019-12-17 12:54:38</a>
 400星或600星，主要是星系数多了体验没上升多少，游戏运行起来反而更卡了 ...</blockquote>这一盘600星，争取船长难度下造戴森球和环世界刚亚空间，打赢了再换800<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3254#       发表于 2019-12-17 15:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45891864&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-17 14:01</a>
@@ -5561,16 +3854,10 @@ mod叫“光的多普勒效应”</blockquote>
 那么有自信能刷出恶魔？恶魔是三大原版天灾几率最低的吧
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3255#       发表于 2019-12-17 16:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45892618&amp;ptid=1275523" target="_blank">neptunehs 发表于 2019-12-17 15:06:34</a>
@@ -5579,16 +3866,10 @@ mod叫“光的多普勒效应”</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3256#       发表于 2019-12-17 17:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45893341&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-17 16:06</a>
@@ -5599,16 +3880,10 @@ mod叫“光的多普勒效应”</blockquote>
 没mod的情况下一盘只能触发一个大危机
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3257#       发表于 2019-12-17 17:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45894031&amp;ptid=1275523" target="_blank">neptunehs 发表于 2019-12-17 17:00:43</a>
@@ -5618,16 +3893,10 @@ mod叫“光的多普勒效应”</blockquote>
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3258#       发表于 2019-12-17 17:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45894031&amp;ptid=1275523" target="_blank">neptunehs 发表于 2019-12-17 17:00:43</a>
@@ -5637,16 +3906,10 @@ mod叫“光的多普勒效应”</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3259#       发表于 2019-12-17 17:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45894154&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-17 17:11</a>
@@ -5665,16 +3928,10 @@ mod叫“光的多普勒效应”</blockquote>
 堕落还是点开看对面船的装备，基本甲盾都是对半的，武器有主动能有主能量的
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3260#       发表于 2019-12-17 17:55
-
 
 
  本帖最后由 neptunehs 于 2019-12-17 18:03 编辑 
@@ -5689,17 +3946,10 @@ mod叫“光的多普勒效应”</blockquote>
 另外要带p武器
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3261#       发表于 2019-12-17 17:57
-
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">说起来科技惩罚原来不是百分比增加的吗？以前一直以为是，结果一看懵了，这数字不对劲啊
@@ -5715,21 +3965,10 @@ mod叫“光的多普勒效应”</blockquote>
 2019-12-17 17:57 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3262#       发表于 2019-12-17 18:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45894702&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-17 17:57</a>
@@ -5740,16 +3979,10 @@ mod叫“光的多普勒效应”</blockquote>
 基础值的话 一级10000
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3263#       发表于 2019-12-17 18:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45894788&amp;ptid=1275523" target="_blank">neptunehs 发表于 2019-12-17 18:05</a>
@@ -5760,16 +3993,10 @@ mod叫“光的多普勒效应”</blockquote>
 基础10w加42%怎么会变17w多的
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3264#       发表于 2019-12-17 18:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45894825&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-17 18:08</a>
@@ -5778,16 +4005,10 @@ mod叫“光的多普勒效应”</blockquote>
 触发了什么其他惩罚么w
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3265#       发表于 2019-12-17 18:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45894838&amp;ptid=1275523" target="_blank">neptunehs 发表于 2019-12-17 18:09</a>
@@ -5798,16 +4019,10 @@ mod叫“光的多普勒效应”</blockquote>
 p社居然还有不写出来的惩罚吗
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3266#       发表于 2019-12-17 18:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45894870&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-17 18:12</a>
@@ -5816,16 +4031,10 @@ p社居然还有不写出来的惩罚吗</blockquote>
 嘛 不过还是bug的可能性更大？
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3267#       发表于 2019-12-17 18:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45894944&amp;ptid=1275523" target="_blank">neptunehs 发表于 2019-12-17 18:17</a>
@@ -5838,16 +4047,10 @@ p社居然还有不写出来的惩罚吗</blockquote>
 要是bug感觉也太严重了，平白无故多出几万点研究点，感觉不知道是不是哪里算法理解不一样
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3268#       发表于 2019-12-17 20:30
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全面战争加天堂之战，舒服了
@@ -5863,15 +4066,7 @@ p社居然还有不写出来的惩罚吗</blockquote>
 2019-12-17 20:28 上传
 
 
-
-
-
 就不能大家好好种地齐心对抗天灾吗<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5880,23 +4075,16 @@ p社居然还有不写出来的惩罚吗</blockquote>
 ##### 3269#       发表于 2019-12-17 21:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45896599&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-17 20:30</a>
 
 全面战争加天堂之战，舒服了就不能大家好好种地齐心对抗天灾吗 ...</blockquote>
 老哥你这是八百的大型地图？
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3270#       发表于 2019-12-17 21:07
-
 
 
  本帖最后由 yoboc 于 2019-12-17 21:11 编辑 
@@ -5906,16 +4094,10 @@ p社居然还有不写出来的惩罚吗</blockquote>
 我除了调了一下铁人别的都默认的，好久没玩了，先开一盘热热手
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3271#       发表于 2019-12-17 21:51
-
 
 
  本帖最后由 yoboc 于 2019-12-17 22:08 编辑 
@@ -5923,17 +4105,10 @@ p社居然还有不写出来的惩罚吗</blockquote>
 风怒编辑
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3272#       发表于 2019-12-17 22:05
-
-
 
 
 再次遭遇不可名状的bug<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -5948,9 +4123,6 @@ p社居然还有不写出来的惩罚吗</blockquote>
 2019-12-17 21:59 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201912/17/215929b0zf0uihifvu8iu2.jpg" referrerpolicy="no-referrer">
 
 
@@ -5961,26 +4133,15 @@ p社居然还有不写出来的惩罚吗</blockquote>
 2019-12-17 21:59 上传
 
 
-
-
-
-
-
 全银河都是我不结盟联盟的人了，结果我之前的全面战争还不结束，国是联盟的国了，他们的舰队还和我是敌对状态，虽然右面不断有为了联盟！的有识舰队加入，但因为都是敌对状态瞬间就被打散了。。真是牢不可破的联盟啊
 
 我要求对面赶紧投降共同保卫银河的安定，结果就差那么十几点能维持现状，搞得我现在打也不是退也不是，甚至想问问天灾君什么时候来凑凑热闹，能打盘麻将了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  哈里.谢顿  
 ##### 3273#       发表于 2019-12-17 23:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45897640&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-17 22:05</a>
@@ -5994,16 +4155,10 @@ p社居然还有不写出来的惩罚吗</blockquote>
 羊驼的我开个船长，按照大家意思把可居住星系调成0.25，但隔壁还是跑过来跳脸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3274#       发表于 2019-12-17 23:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45897640&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-17 22:05</a>
@@ -6015,16 +4170,10 @@ p社居然还有不写出来的惩罚吗</blockquote>
 你这个地图是不是BUG，右上角这么跑出个角落来了
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3275#       发表于 2019-12-17 23:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45898682&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-17 23:39</a>
@@ -6033,16 +4182,10 @@ p社居然还有不写出来的惩罚吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不，这就是l星门里面的东西，是系外星系
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3276#       发表于 2019-12-17 23:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45898698&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-17 23:40:55</a>
@@ -6051,16 +4194,10 @@ p社居然还有不写出来的惩罚吗</blockquote>
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3277#       发表于 2019-12-17 23:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45898668&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-17 23:38</a>
@@ -6074,16 +4211,10 @@ p社居然还有不写出来的惩罚吗</blockquote>
 上次我刷到了第一联盟先驱加门口盖亚结果碰到铁心灭绝堵门，还是得毅然决然弃档
 
 
-
-
-
-
-
 -----
 
 ####  morale  
 ##### 3278#       发表于 2019-12-17 23:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45897640&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-17 22:05</a>
@@ -6095,16 +4226,10 @@ p社居然还有不写出来的惩罚吗</blockquote>
 把战争分数打到能和解试一下
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3279#       发表于 2019-12-17 23:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45898741&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-17 23:45</a>
@@ -6118,16 +4243,10 @@ p社居然还有不写出来的惩罚吗</blockquote>
 说起来我之前玩都没听说过灰风老婆，这次就是想刷出来一次，结果还是纳米国家。。。不过这个档现在玩这么多乐趣又找回来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3280#       发表于 2019-12-17 23:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45898761&amp;ptid=1275523" target="_blank">morale 发表于 2019-12-17 23:46</a>
@@ -6138,16 +4257,10 @@ p社居然还有不写出来的惩罚吗</blockquote>
 有一说一这内斗有当年国共那味了
 
 
-
-
-
-
-
 -----
 
 ####  morale  
 ##### 3281#       发表于 2019-12-17 23:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45898799&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-17 23:50</a>
@@ -6160,16 +4273,10 @@ p社居然还有不写出来的惩罚吗</blockquote>
 你的运气挺好的，我打了很多据都没出过天堂之战
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3282#       发表于 2019-12-17 23:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45898799&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-17 23:50</a>
@@ -6180,16 +4287,10 @@ p社居然还有不写出来的惩罚吗</blockquote>
 老哥怎么顶觉醒爸爸的？我就是最简单那个难度，抽风用10K打2K的觉醒，结果渣都没剩下<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3283#       发表于 2019-12-18 00:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45898871&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-17 23:57</a>
@@ -6200,16 +4301,10 @@ p社居然还有不写出来的惩罚吗</blockquote>
 关键是得有泰坦和离子炮，爸爸舰队刚进星系就掉两三艘船，后面他们就打不了了
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3284#       发表于 2019-12-18 00:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45898918&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-18 00:03</a>
@@ -6220,16 +4315,10 @@ p社居然还有不写出来的惩罚吗</blockquote>
 我之前那一局泰坦打高纬，直接被秒了
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3285#       发表于 2019-12-18 00:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45898752&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-17 23:45</a>
@@ -6240,26 +4329,15 @@ p社居然还有不写出来的惩罚吗</blockquote>
 老哥怎么耗死AI？电脑加成太多，你怎么造船经济都不一定干的多对方啊
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3286#       发表于 2019-12-18 00:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45898968&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-18 00:08</a>
 老哥怎么耗死AI？电脑加成太多，你怎么造船经济都不一定干的多对方啊</blockquote>
 后期正常发展随便打的，你是说经济分数的话那我觉得ai确实虚高，不过打一波天灾分数玩家一定还是总分数第一
-
-
-
-
-
 
 
 -----
@@ -6268,23 +4346,16 @@ p社居然还有不写出来的惩罚吗</blockquote>
 ##### 3287#       发表于 2019-12-18 07:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45899171&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-18 00:36:04</a>
 后期正常发展随便打的，你是说经济分数的话那我觉得ai确实虚高，不过打一波天灾分数玩家一定还是总分数第 ...</blockquote>主要是前期被骑脸怎么熬过去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3288#       发表于 2019-12-18 13:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45899962&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2019-12-18 07:21</a>
@@ -6298,16 +4369,10 @@ p社居然还有不写出来的惩罚吗</blockquote>
 攻略的话贴吧精华教学贴就有，一个早战一个种田，不妨看看
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3289#       发表于 2019-12-18 13:35
-
 
 
  本帖最后由 yoboc 于 2019-12-18 13:40 编辑 
@@ -6323,9 +4388,6 @@ p社居然还有不写出来的惩罚吗</blockquote>
 2019-12-18 13:26 上传
 
 
-
-
-
 2450年天灾准时来袭<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，像上班一样的准点，球球你不要这么准啊，斗地主还是变成打麻将了（在不知道的时间点一名不知名的大汗无辜的惨遭觉醒爸爸霸凌，在我没看见的地方默默去世了ww）
 
 
@@ -6339,17 +4401,7 @@ p社居然还有不写出来的惩罚吗</blockquote>
 2019-12-18 13:40 上传
 
 
-
-
-
-
 其中一个觉醒爸爸本土被我占光了，另一个觉醒爸爸一共只收到了一个小弟，还是别的国家叛逃出来的w，第一个破界者还刷在我对角，过都过不去，远水救不了火，只能期待离得近的堕落爸爸担任起拯救银河的大任了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
@@ -6358,23 +4410,15 @@ p社居然还有不写出来的惩罚吗</blockquote>
 ##### 3290#       发表于 2019-12-18 13:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45903979&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-18 13:35:51</a></blockquote>小心破戒者钻虫洞过来<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  yoboc  
 ##### 3291#       发表于 2019-12-18 20:18
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201912/18/200758o8tg7w16rb116rw1.jpg" referrerpolicy="no-referrer">
@@ -6387,9 +4431,6 @@ p社居然还有不写出来的惩罚吗</blockquote>
 2019-12-18 20:07 上传
 
 
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恶魔确实不行，就他这扩张速度根本没有第二波第三波来的机会，太fw了
 
 （堕落更fw，被恶魔两只舰队差点推平了老家，120k的舰队打不过恶魔100k的舰队）
@@ -6397,16 +4438,10 @@ p社居然还有不写出来的惩罚吗</blockquote>
 （另一个大汗不知不觉中也不见了）
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3292#       发表于 2019-12-19 22:52
-
 
 
  本帖最后由 neptunehs 于 2019-12-19 22:58 编辑 
@@ -6416,17 +4451,10 @@ p社居然还有不写出来的惩罚吗</blockquote>
 而且2400前根本堆不到100k的舰队 我自己的mod根本没办法在2500前做完主线。。。
 
 
-
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3293#       发表于 2019-12-20 00:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45921567&amp;ptid=1275523" target="_blank">neptunehs 发表于 2019-12-19 22:52</a>
@@ -6437,16 +4465,10 @@ p社居然还有不写出来的惩罚吗</blockquote>
 另外我这一盘居然一个利维坦都没碰到，最后闲的没事干才从别人国境里找到个没开的虫洞里面去打死了个灵能boss，大汗也没崛起，时之虫也没触发，感觉中期真的没啥好干的了
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3294#       发表于 2019-12-20 00:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45922828&amp;ptid=1275523" target="_blank">yoboc 发表于 2019-12-20 00:33</a>
@@ -6457,16 +4479,10 @@ p社居然还有不写出来的惩罚吗</blockquote>
 p社自己的剧情太过注重前期了
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3295#       发表于 2019-12-20 00:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45922949&amp;ptid=1275523" target="_blank">neptunehs 发表于 2019-12-20 00:47</a>
@@ -6476,17 +4492,10 @@ p社自己的剧情太过注重前期了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">这次就是一直在打仗恶魔来了我舰队都没时间换武器搞得差一点玩脱（）倒是p社能把后期加速再优化一下，加速再提几级体验就好多了
 
 
-
-
-
-
-
 -----
 
 ####  frosta  
 ##### 3296#       发表于 2019-12-20 01:35
-
-
 
 
 好久没玩，现在啥都不会了
@@ -6497,16 +4506,10 @@ p社自己的剧情太过注重前期了</blockquote>
 — from samsung SM-G975U, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3297#       发表于 2019-12-20 02:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45923371&amp;ptid=1275523" target="_blank">frosta 发表于 2019-12-20 01:35</a>
@@ -6516,16 +4519,10 @@ p社自己的剧情太过注重前期了</blockquote>
 这也太久没玩了吧。。圈地也不能乱圈，超了之后惩罚依旧高，一般星系圈起来的收益真比不上惩罚，还是主建殖民地。pop一般真不用管，只要建好区划和建筑就行了
 
 
-
-
-
-
-
 -----
 
 ####  yoboc  
 ##### 3298#       发表于 2019-12-24 21:08
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">佛了，天堂之战又来了，我以前打十盘才碰一盘，现在连着两盘出，而且打这玩意真的累，一颗星上动不动45千陆军，太恶心了
@@ -6541,22 +4538,10 @@ p社自己的剧情太过注重前期了</blockquote>
 2019-12-24 21:03 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3299#       发表于 2020-1-14 21:21
-
-
-
 
 
 无法迁都啊
@@ -6571,16 +4556,10 @@ p社自己的剧情太过注重前期了</blockquote>
 <img src="https://wx2.sinaimg.cn/mw690/007Yruthgy1gaweed45m7j31hc0u0tna.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  暗杀翻看是  
 ##### 3300#       发表于 2020-1-14 23:10
-
 
 
  本帖最后由 暗杀翻看是 于 2020-1-14 23:41 编辑 
@@ -6595,16 +4574,10 @@ p社自己的剧情太过注重前期了</blockquote>
 还发现你们舰队容量都不太够用，其实也简单，起几个堡垒星就行了，最好的选择是度假星球，其次是矿物居住站，三个满堡垒的星球加一个战略指挥中心，就能保证你的舰容够用了。剩下的就是多循环科技，然后等天灾出来直接秒了就行了。
 
 
-
-
-
-
-
 -----
 
 ####  csodaszarvas  
 ##### 3301#       发表于 2020-1-14 23:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46186765&amp;ptid=1275523" target="_blank">暗杀翻看是 发表于 2020-1-14 23:10</a>
@@ -6617,16 +4590,10 @@ p社自己的剧情太过注重前期了</blockquote>
 然而经济这一点400星宜居开0.75都能后期爆炸，还是慢慢憋吧，挂着就行
 
 
-
-
-
-
-
 -----
 
 ####  暗杀翻看是  
 ##### 3302#       发表于 2020-1-14 23:54
-
 
 
 <blockquote>哈里.谢顿 发表于 2020-1-14 21:21
@@ -6636,16 +4603,10 @@ p社自己的剧情太过注重前期了</blockquote>
 给了公民权就不会造反，反之只要你研究了合成人，却不给公民权，那无论如何都会造反，咋防都没用。
 
 
-
-
-
-
-
 -----
 
 ####  暗杀翻看是  
 ##### 3303#       发表于 2020-1-15 00:03
-
 
 
 <blockquote>csodaszarvas 发表于 2020-1-14 23:42
@@ -6655,16 +4616,10 @@ p社自己的剧情太过注重前期了</blockquote>
 至于产能科研不匹配，恰恰相反啊，是科研上不去，你产能才上不去。试想你比别人多十年出高级二产建筑，十年过后你的产能绝对是别人的好几倍，这就是个滚雪球的过程，科研越快，产能越高，产能越高科研继续快。也行在刚开始的时候会出现不协调，但我也说了，撑过去就好了。
 
 
-
-
-
-
-
 -----
 
 ####  csodaszarvas  
 ##### 3304#       发表于 2020-1-15 00:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46187141&amp;ptid=1275523" target="_blank">暗杀翻看是 发表于 2020-1-15 00:03</a>
@@ -6673,26 +4628,14 @@ p社自己的剧情太过注重前期了</blockquote>
 游戏规模越小（宜居少/星系少），产能提升的过程就越不平滑，岂是一句撑过去可以解决的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  sloven  
 ##### 3305#       发表于 2020-1-15 01:04
 
 
-
-
 有人知道怎么在mod里添加新的species_rights吗？还是这玩意是tm硬编码的？
 自己折腾到自闭了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6701,23 +4644,16 @@ p社自己的剧情太过注重前期了</blockquote>
 ##### 3306#       发表于 2020-1-15 06:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46187083&amp;ptid=1275523" target="_blank">暗杀翻看是 发表于 2020-01-14 23:54:53</a>
 给了公民权就不会造反，反之只要你研究了合成人，却不给公民权，那无论如何都会造反，咋防都没用。 ...</blockquote>老哥，怎么打堕落帝国？其他天灾该如何应对？听说要暗物质盾牌？
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  暗杀翻看是  
 ##### 3307#       发表于 2020-1-15 09:02
-
 
 
 <blockquote>哈里.谢顿 发表于 2020-1-15 06:56
@@ -6732,26 +4668,15 @@ p社自己的剧情太过注重前期了</blockquote>
 至于天灾也一样，如果你爆2m就差不多够了，因为只用打赢守家舰队就可以了。外出的小舰队规模小，你又有双穿，基本都是可以无伤碾压。
 
 
-
-
-
-
-
 -----
 
 ####  暗杀翻看是  
 ##### 3308#       发表于 2020-1-15 09:07
 
 
-
 <blockquote>csodaszarvas 发表于 2020-1-15 00:54
 游戏规模越小（宜居少/星系少），产能提升的过程就越不平滑，岂是一句撑过去可以解决的 ...</blockquote>
 我还真没打过400星，0.75宜居的图，回头试试看吧。
-
-
-
-
-
 
 
 -----
@@ -6760,21 +4685,13 @@ p社自己的剧情太过注重前期了</blockquote>
 ##### 3309#       发表于 2020-1-15 09:36
 
 
-
-
 话说，什么时候公布联邦DLC的发售日期？
-
-
-
-
-
 
 
 -----
 
 ####  哈里.谢顿  
 ##### 3310#       发表于 2020-1-15 09:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46188547&amp;ptid=1275523" target="_blank">暗杀翻看是 发表于 2020-01-15 09:02:24</a>
@@ -6785,25 +4702,13 @@ p社自己的剧情太过注重前期了</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  转战千里  
 ##### 3311#       发表于 2020-1-15 10:04
 
 
-
-
 现在还是400星后期卡如狗么。。有没有优化一点
-
-
-
-
-
 
 
 -----
@@ -6812,24 +4717,16 @@ p社自己的剧情太过注重前期了</blockquote>
 ##### 3312#       发表于 2020-1-15 10:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46189076&amp;ptid=1275523" target="_blank">转战千里 发表于 2020-1-15 10:04</a>
 
 现在还是400星后期卡如狗么。。有没有优化一点</blockquote>
 400星也这么卡吗，用的什么CPU
 
 
-
-
-
-
-
 -----
 
 ####  sakilin2013  
 ##### 3313#       发表于 2020-1-15 10:21
-
-
 
 
 后期卡一个是因为ai满地轨道站，一个是ai随意杂交和基因裁剪搞出一大堆物种导致算人口星球职位匹配的时候消耗一大堆cpu性能。如果不搞成就的话建议mod关掉ai轨道站建设还有基因裁剪功能。
@@ -6839,16 +4736,10 @@ p社自己的剧情太过注重前期了</blockquote>
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  暗杀翻看是  
 ##### 3314#       发表于 2020-1-15 11:40
-
 
 
 <blockquote>哈里.谢顿 发表于 2020-1-15 09:48
@@ -6860,16 +4751,10 @@ p社自己的剧情太过注重前期了</blockquote>
 正常来说配船就是能量武器循环十级以下，用千兆加农炮和中子鱼雷，十级以上，用聚焦电弧发射器和中子鱼雷，其他配置基本不用考虑的。
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3315#       发表于 2020-1-15 12:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46190223&amp;ptid=1275523" target="_blank">暗杀翻看是 发表于 2020-01-15 11:40:50</a>
@@ -6878,26 +4763,15 @@ p社自己的剧情太过注重前期了</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  暗杀翻看是  
 ##### 3316#       发表于 2020-1-15 12:32
 
 
-
 <blockquote>哈里.谢顿 发表于 2020-1-15 12:01
 我自己做了个种族，但X槽好像只有泰坦以上才有，虽然千兆火力已经研发了，我好奇怪我做的种族为啥战 ...</blockquote>
 不是，泰坦是t槽，x槽只要研究了光矛，兆级加农，电弧发射器就能有。你先去去看一下舰船设计里面，战列舰设计，除去武器选择外，最左边最上层那个细框，点开看看有没有有x槽的，如果的没有话我也不清楚了，我也没自己建过种族。
-
-
-
-
-
 
 
 -----
@@ -6906,24 +4780,16 @@ p社自己的剧情太过注重前期了</blockquote>
 ##### 3317#       发表于 2020-1-15 12:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46189115&amp;ptid=1275523" target="_blank">科本学士 发表于 2020-1-15 10:07</a>
 
 400星也这么卡吗，用的什么CPU</blockquote>
 8600k。。我很久没开过游戏了
 
 
-
-
-
-
-
 -----
 
 ####  Toby_dak  
 ##### 3318#       发表于 2020-1-15 13:33
-
-
 
 
 趁着圣诞新年steam打折入手，不过没买MegaCorp所以建不了指挥中心。
@@ -6934,16 +4800,10 @@ p社自己的剧情太过注重前期了</blockquote>
 ----发送自 [Sony G8342,Android 9](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3319#       发表于 2020-1-15 13:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46187083&amp;ptid=1275523" target="_blank">暗杀翻看是 发表于 2020-1-14 23:54</a>
@@ -6951,16 +4811,10 @@ p社自己的剧情太过注重前期了</blockquote>
 防得住的 打补丁就行 但打补丁的debuff很大不说还是几率触发事件
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3320#       发表于 2020-1-15 13:53
-
 
 
  本帖最后由 neptunehs 于 2020-1-15 14:10 编辑 
@@ -6971,16 +4825,10 @@ p社自己的剧情太过注重前期了</blockquote>
 正确来说 是token=这一项是硬编码
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3321#       发表于 2020-1-15 14:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46191528&amp;ptid=1275523" target="_blank">Toby_dak 发表于 2020-1-15 13:33</a>
@@ -6990,16 +4838,10 @@ M槽炮算防御是1.0时代的事情 现在要防御专心点p 不过因为2.0�
 飞机只有两种 其中一种有三个级别 有第三种飞机的都是打了mod（不算amoeba的飞机的话）
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3322#       发表于 2020-1-15 14:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46190475&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2020-1-15 12:01</a>
@@ -7007,16 +4849,10 @@ M槽炮算防御是1.0时代的事情 现在要防御专心点p 不过因为2.0�
 武器基本跟种族无关 换个section就有了
 
 
-
-
-
-
-
 -----
 
 ####  sloven  
 ##### 3323#       发表于 2020-1-15 14:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46191731&amp;ptid=1275523" target="_blank">neptunehs 发表于 2020-1-15 13:53</a>
@@ -7026,16 +4862,10 @@ M槽炮算防御是1.0时代的事情 现在要防御专心点p 不过因为2.0�
 我发在官方论坛的贴到现在还没回复。
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3324#       发表于 2020-1-15 15:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46192288&amp;ptid=1275523" target="_blank">sloven 发表于 2020-1-15 14:52</a>
@@ -7044,16 +4874,10 @@ M槽炮算防御是1.0时代的事情 现在要防御专心点p 不过因为2.0�
 你也不看看官方论坛user mods模块回别人最多的几个人的id的其中一个是啥
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3325#       发表于 2020-1-15 16:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46191715&amp;ptid=1275523" target="_blank">neptunehs 发表于 2020-01-15 13:51:54</a>
@@ -7062,17 +4886,10 @@ M槽炮算防御是1.0时代的事情 现在要防御专心点p 不过因为2.0�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  sakilin2013  
 ##### 3326#       发表于 2020-1-15 17:01
-
-
 
 
 走机飞路线的话给个公民权没啥所谓。灵飞路线合成人科技权重蛮低的应该不怎么出得来。
@@ -7080,16 +4897,10 @@ M槽炮算防御是1.0时代的事情 现在要防御专心点p 不过因为2.0�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3327#       发表于 2020-1-15 17:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46193308&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2020-1-15 16:34</a>
@@ -7102,16 +4913,10 @@ M槽炮算防御是1.0时代的事情 现在要防御专心点p 不过因为2.0�
 真要玩机器人还是建议唯物装罐飞升走起 还可以一定程度上保证天灾刷的是最弱的肃正 非唯物想让机器人加速帝国那就保证这些机器人都在矿场吧
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3328#       发表于 2020-1-15 17:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46193588&amp;ptid=1275523" target="_blank">sakilin2013 发表于 2020-1-15 17:01</a>
@@ -7121,16 +4926,10 @@ M槽炮算防御是1.0时代的事情 现在要防御专心点p 不过因为2.0�
 其实还是有的 自从有工业消耗品（consumer_goods）概念后给机器人公民权的那一瞬间准备不充分的话可能你的经济就崩了
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3329#       发表于 2020-1-15 17:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46193667&amp;ptid=1275523" target="_blank">neptunehs 发表于 2020-01-15 17:09:40</a>
@@ -7143,17 +4942,10 @@ M槽炮算防御是1.0时代的事情 现在要防御专心点p 不过因为2.0�
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  sakilin2013  
 ##### 3330#       发表于 2020-1-15 17:57
-
-
 
 
 就是飞升天赋里的三大飞升路线，灵能，装罐机飞还有基因，这三个是互斥的，选了一个路线走其他就不能玩。灵能罐头只有领袖有可能刷出来，但不能种族层面搞出人口。（方法是走机飞，收留有灵能特性的拉奇族，难民或者商人事件都可以。拉奇族权利不要设成同化给公民权，然后科技研究会有小概率刷出灵能理论，研究出来就有机会刷出灵能罐头科学家）
@@ -7162,16 +4954,10 @@ M槽炮算防御是1.0时代的事情 现在要防御专心点p 不过因为2.0�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  sloven  
 ##### 3331#       发表于 2020-1-15 17:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46193883&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2020-1-15 17:29</a>
@@ -7181,16 +4967,10 @@ M槽炮算防御是1.0时代的事情 现在要防御专心点p 不过因为2.0�
 效果是全族变成机器人
 
 
-
-
-
-
-
 -----
 
 ####  sakilin2013  
 ##### 3332#       发表于 2020-1-15 18:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46193727&amp;ptid=1275523" target="_blank">neptunehs 发表于 2020-01-15 17:15:15</a>
@@ -7199,33 +4979,20 @@ M槽炮算防御是1.0时代的事情 现在要防御专心点p 不过因为2.0�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3333#       发表于 2020-1-15 18:03
 
 
-
-
 另外装罐千万别点亲外平等 后期人口炸裂又不能控制很痛苦
 不如说现版本亲外平等都是后期每个星球都是炸裂状态 一股子变成堕落帝国的感觉
-
-
-
-
-
 
 
 -----
 
 ####  neptunehs  
 ##### 3334#       发表于 2020-1-15 18:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46194171&amp;ptid=1275523" target="_blank">sakilin2013 发表于 2020-1-15 18:00</a>
@@ -7236,16 +5003,10 @@ M槽炮算防御是1.0时代的事情 现在要防御专心点p 不过因为2.0�
 我这种习惯性亲外平等唯物的 每次点公民权的瞬间都痛苦 要事先铺一些工厂
 
 
-
-
-
-
-
 -----
 
 ####  暗杀翻看是  
 ##### 3335#       发表于 2020-1-15 18:08
-
 
 
 <blockquote>哈里.谢顿 发表于 2020-1-15 17:29
@@ -7255,26 +5016,15 @@ M槽炮算防御是1.0时代的事情 现在要防御专心点p 不过因为2.0�
 机器人叛乱不是天灾，三大天灾是肃正协议，虫群，次元入侵。每一局天灾只会出来一个，出了一个就没有了
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3336#       发表于 2020-1-15 18:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46194247&amp;ptid=1275523" target="_blank">暗杀翻看是 发表于 2020-1-15 18:08</a>
 机器人叛乱不是天灾，三大天灾是肃正协议，虫群，次元入侵。每一局天灾只会出来一个，出了一个就没有了 ...</blockquote>
 其实强烈建议装个mod天灾管理器让三天灾一起刷出来 超酸爽
-
-
-
-
-
 
 
 -----
@@ -7283,15 +5033,9 @@ M槽炮算防御是1.0时代的事情 现在要防御专心点p 不过因为2.0�
 ##### 3337#       发表于 2020-1-15 18:13
 
 
-
 <blockquote>neptunehs 发表于 2020-1-15 18:12
 其实强烈建议装个mod天灾管理器让三天灾一起刷出来 超酸爽</blockquote>
 直接用代码不就行了？
-
-
-
-
-
 
 
 -----
@@ -7300,22 +5044,15 @@ M槽炮算防御是1.0时代的事情 现在要防御专心点p 不过因为2.0�
 ##### 3338#       发表于 2020-1-15 18:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46194292&amp;ptid=1275523" target="_blank">暗杀翻看是 发表于 2020-1-15 18:13</a>
 直接用代码不就行了？</blockquote>
 是没错啦。。。
-
-
-
-
-
 
 
 -----
 
 ####  Toby_dak  
 ##### 3339#       发表于 2020-1-15 18:17
-
 
 
 <blockquote>哈里.谢顿 发表于 2020-1-15 18:29
@@ -7332,16 +5069,10 @@ https://qunxing.huijiwiki.com/wiki/AI%E5%8F%9B%E4%B9%B1
 https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 
 
-
-
-
-
-
 -----
 
 ####  sakilin2013  
 ##### 3340#       发表于 2020-1-15 18:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46194196&amp;ptid=1275523" target="_blank">neptunehs 发表于 2020-01-15 18:03:25</a>
@@ -7353,16 +5084,10 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3341#       发表于 2020-1-15 18:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46194284&amp;ptid=1275523" target="_blank">neptunehs 发表于 2020-01-15 18:12:28</a>
@@ -7371,16 +5096,10 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3342#       发表于 2020-1-15 18:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46194576&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2020-1-15 18:50</a>
@@ -7396,16 +5115,10 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 （而且反正也会被我自己的mod的怪碾死 我一般是一起放出来的）
 
 
-
-
-
-
-
 -----
 
 ####  Toby_dak  
 ##### 3343#       发表于 2020-1-15 19:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45862139&amp;ptid=1275523" target="_blank">morale 发表于 2019-12-14 21:23</a>
@@ -7417,32 +5130,19 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 问一下，甲是暗物质甲？不需要合金的？
 
 
-
-
-
-
-
 -----
 
 ####  morale  
 ##### 3344#       发表于 2020-1-15 19:10
 
 
-
-
 机飞人**炸想降低人口增长速度把组装师岗位关了，不就行吗？
-
-
-
-
-
 
 
 -----
 
 ####  neptunehs  
 ##### 3345#       发表于 2020-1-15 19:10
-
 
 
  本帖最后由 neptunehs 于 2020-1-15 19:12 编辑 
@@ -7456,17 +5156,10 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 图里的是水晶甲 不用合金
 
 
-
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3346#       发表于 2020-1-15 19:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46194748&amp;ptid=1275523" target="_blank">morale 发表于 2020-1-15 19:10</a>
@@ -7475,26 +5168,15 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 亲外平等的话会一直有外族人进来继续爆炸啊
 
 
-
-
-
-
-
 -----
 
 ####  morale  
 ##### 3347#       发表于 2020-1-15 19:13
 
 
-
 <blockquote>Toby_dak 发表于 2020-1-15 19:05
 问一下，甲是暗物质甲？不需要合金的？</blockquote>
 不是，是水晶甲，打野怪晶态怪掉的。不耗合金，只耗水晶
-
-
-
-
-
 
 
 -----
@@ -7503,22 +5185,15 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 ##### 3348#       发表于 2020-1-15 19:16
 
 
-
 <blockquote>neptunehs 发表于 2020-1-15 19:12
 亲外平等的话会一直有外族人进来继续爆炸啊</blockquote>
 那就不清楚了，很少遇到人**炸导致失业的情况
-
-
-
-
-
 
 
 -----
 
 ####  neptunehs  
 ##### 3349#       发表于 2020-1-15 19:19
-
 
 
  本帖最后由 neptunehs 于 2020-1-15 19:22 编辑 
@@ -7534,16 +5209,10 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 50年内就能从10个人开始塞满一个16左右大小的星球（2个人到10个人这段时间倒是挺费时的）
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3350#       发表于 2020-1-15 21:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46190858&amp;ptid=1275523" target="_blank">暗杀翻看是 发表于 2020-1-15 12:32</a>
@@ -7552,16 +5221,10 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 多谢
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3351#       发表于 2020-1-15 21:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46190858&amp;ptid=1275523" target="_blank">暗杀翻看是 发表于 2020-01-15 12:32:55</a>
@@ -7570,16 +5233,10 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3352#       发表于 2020-1-16 08:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46195855&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2020-1-15 21:40</a>
@@ -7589,16 +5246,10 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 模块也换不到X槽？
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3353#       发表于 2020-1-16 09:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46198170&amp;ptid=1275523" target="_blank">neptunehs 发表于 2020-01-16 08:49:27</a>
@@ -7607,25 +5258,13 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Messiah_QY  
 ##### 3354#       发表于 2020-1-16 09:02
 
 
-
-
 打堕落那种船少远程火力强的舰队，可以用带满近距离速射武器的舰队，在折跃点把对方拉进风帆船战斗，消灭对方主力舰队。
-
-
-
-
-
 
 
 -----
@@ -7634,16 +5273,10 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 ##### 3355#       发表于 2020-1-16 09:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46198249&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2020-01-16 09:01:17</a>
 我自设种族的战列舰好像没有模块的，明明地联时候可以改CV什么的</blockquote>X位的话顺着武器研究线往上走就有了，应该是跟防御平台的粒子炮一起，你看下空间站的防御平台那里可以造粒子炮台吗，没有的话应该是科技还没研究到。
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -7652,25 +5285,16 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 ##### 3356#       发表于 2020-1-16 09:33
 
 
-
-
 有些船体分段要科技解锁，比如研究了鱼类才有鱼雷艇，研究了航母才有机库段。战列的X槽分段要粒子光矛、快子光矛、电弧发射器、聚焦型电弧发射器、兆级加农炮、千兆级加农炮其中之一。
 
 
 ----发送自 [Sony G8342,Android 9](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  pulotocore  
 ##### 3357#       发表于 2020-1-16 09:58
-
-
 
 
 开局的时候手滑当了邻居的附庸国，现在想独立了发现自己要和占据整3/4个银河的联邦开打
@@ -7680,16 +5304,10 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 —— 来自 OPPO PCLM10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3358#       发表于 2020-1-16 09:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46198249&amp;ptid=1275523" target="_blank">哈里.谢顿 发表于 2020-1-16 09:01</a>
@@ -7699,16 +5317,10 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 你的自建种族是mod还是说系统自带的自定义帝国？
 
 
-
-
-
-
-
 -----
 
 ####  morale  
 ##### 3359#       发表于 2020-1-20 10:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46193667&amp;ptid=1275523" target="_blank">neptunehs 发表于 2020-1-15 17:09</a>
@@ -7719,33 +5331,19 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 肃正不是最弱的吧？虫灾才是最弱的
 
 
-
-
-
-
-
 -----
 
 ####  kerorokun  
 ##### 3360#       发表于 2020-1-20 10:38
 
 
-
-
 照着架势是没有群星2的样子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Toby_dak  
 ##### 3361#       发表于 2020-1-20 11:15
-
-
 
 
 第一次接触晶状生命体选了共存，研究出蓝晶甲，大概等于4级甲？如果把中立的晶体巢穴打爆，还能捡到红晶甲？大概是6级甲水平？
@@ -7755,26 +5353,15 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 ----发送自 [Sony G8342,Android 9](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  Toby_dak  
 ##### 3362#       发表于 2020-1-20 11:30
 
 
-
  本帖最后由 Toby_dak 于 2020-1-20 12:46 编辑 
 
 泥潭抽风发重复。
-
-
-
-
-
 
 
 -----
@@ -7783,23 +5370,16 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 ##### 3363#       发表于 2020-1-20 11:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46202372&amp;ptid=1275523" target="_blank">Toby_dak 发表于 2020-01-20 11:15:27</a>
 第一次接触晶状生命体选了共存，研究出蓝晶甲，大概等于4级甲？如果把中立的晶体巢穴打爆，还能捡到红晶甲 ...</blockquote>这玩意是加结构的吧
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  morale  
 ##### 3364#       发表于 2020-1-20 11:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46202372&amp;ptid=1275523" target="_blank">Toby_dak 发表于 2020-1-20 11:15</a>
@@ -7810,16 +5390,10 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 一级水晶甲的数值等于四级装甲/护盾的，二级的等于六级的
 
 
-
-
-
-
-
 -----
 
 ####  哈里.谢顿  
 ##### 3365#       发表于 2020-1-20 12:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46198788&amp;ptid=1275523" target="_blank">neptunehs 发表于 2020-01-16 09:59:14</a>
@@ -7828,16 +5402,10 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Toby_dak  
 ##### 3366#       发表于 2020-1-20 12:42
-
 
 
 <blockquote>哈里.谢顿 发表于 2020-1-20 12:51
@@ -7848,16 +5416,10 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 对的，不吃双穿，而且能增加逃逸几率。
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3367#       发表于 2020-1-20 14:13
-
 
 
  本帖最后由 neptunehs 于 2020-1-20 14:17 编辑 
@@ -7868,16 +5430,10 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 除非你要不带其他mod正面杠LEX的boss
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3368#       发表于 2020-1-20 14:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46201574&amp;ptid=1275523" target="_blank">morale 发表于 2020-1-20 10:00</a>
@@ -7888,16 +5444,10 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 不过5x的话那肃正比虫灾强
 
 
-
-
-
-
-
 -----
 
 ####  morale  
 ##### 3369#       发表于 2020-1-20 18:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46204145&amp;ptid=1275523" target="_blank">neptunehs 发表于 2020-1-20 14:29</a>
@@ -7914,18 +5464,10 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 除非为了成就或者拿遗珍，虫灾基本上很难活很久
 
 
-
-
-
-
-
-
 -----
 
 ####  Toby_dak  
 ##### 3370#       发表于 2020-1-20 22:53
-
-
 
 
 什么发电行星、矿产行星是怎么定的？wiki没看到说明。
@@ -7933,16 +5475,10 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 爆科技球时候太难出科技行星了。
 
 
-
-
-
-
-
 -----
 
 ####  暗杀翻看是  
 ##### 3371#       发表于 2020-1-20 23:00
-
 
 
 <blockquote>Toby_dak 发表于 2020-1-20 22:53
@@ -7952,25 +5488,13 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 星球界面右边有一个小齿轮，点它是可以选择星球类别的，不是固定不变的。
 
 
-
-
-
-
-
 -----
 
 ####  机丹尼尔  
 ##### 3372#       发表于 2020-1-28 13:26
 
 
-
-
 话说戴森球只能造一个？
-
-
-
-
-
 
 
 -----
@@ -7979,14 +5503,7 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 ##### 3373#       发表于 2020-1-28 15:24
 
 
-
-
 煞笔ai没事开什么l星门，120年就放出灰风搞得天下大乱，整个银河感觉除了我和堕落帝国全完蛋了，艺术团和三个资源商人全部死绝，日。
-
-
-
-
-
 
 
 -----
@@ -7995,16 +5512,10 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 ##### 3374#       发表于 2020-1-28 17:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46264815&amp;ptid=1275523" target="_blank">机丹尼尔 发表于 2020-1-28 13:26</a>
 
 话说戴森球只能造一个？</blockquote>
 是，不包括野生坏球只能建一个
-
-
-
-
-
 
 
 -----
@@ -8013,16 +5524,10 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 ##### 3375#       发表于 2020-1-28 20:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46266500&amp;ptid=1275523" target="_blank">特冷普 发表于 2020-01-28 17:57:37</a>
 是，不包括野生坏球只能建一个</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -8031,22 +5536,15 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 ##### 3376#       发表于 2020-1-28 21:12
 
 
-
 <blockquote>阿萨托斯 发表于 2020-1-28 15:24
 煞笔ai没事开什么l星门，120年就放出灰风搞得天下大乱，整个银河感觉除了我和堕落帝国全完蛋了，艺术团和三 ...</blockquote>
 灰蛊风暴也好打吧，主要是要快点灭了他们，否则会越来越多的
-
-
-
-
-
 
 
 -----
 
 ####  阿萨托斯  
 ##### 3377#       发表于 2020-1-28 21:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46267912&amp;ptid=1275523" target="_blank">暗杀翻看是 发表于 2020-1-28 21:12</a>
@@ -8057,17 +5555,10 @@ https://qunxing.huijiwiki.com/wiki/%E5%8D%B1%E6%9C%BA
 只能让它们折腾去吧，反正我守好家没问题
 
 
-
-
-
-
-
 -----
 
 ####  Toby_dak  
 ##### 3378#       发表于 2020-2-10 19:26
-
-
 
 
 bug了……
@@ -8117,16 +5608,10 @@ country_event = {
 }</blockquote>这事件MTTH也有点，820月，难得刷到一次……
 
 
-
-
-
-
-
 -----
 
 ####  机丹尼尔  
 ##### 3379#       发表于 2020-2-11 20:56
-
 
 
  本帖最后由 机丹尼尔 于 2020-2-11 20:59 编辑 
@@ -8139,16 +5624,10 @@ country_event = {
 群星里唯心主义好强大，后面出来的灵能系列装备简直强无敌啊……做了个怪力乱神的第二基地，发展灵能后光灵能盾就吊打四方
 
 
-
-
-
-
-
 -----
 
 ####  Toby_dak  
 ##### 3380#       发表于 2020-2-11 21:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46391151&amp;ptid=1275523" target="_blank">机丹尼尔 发表于 2020-2-11 21:56</a>
@@ -8163,16 +5642,10 @@ country_event = {
 现在版本唯心是最郁憋弟弟的吧，机飞100年不到就可以2段飞升下山。
 
 
-
-
-
-
-
 -----
 
 ####  机丹尼尔  
 ##### 3381#       发表于 2020-2-11 21:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46391583&amp;ptid=1275523" target="_blank">Toby_dak 发表于 2020-2-11 21:47</a>
@@ -8186,16 +5659,10 @@ country_event = {
 这次搞个第二基地的灵能，隔段时间就能摸奖外加各类灵能装挺爽的，比之前的彻底唯物爽了不少
 
 
-
-
-
-
-
 -----
 
 ####  Toby_dak  
 ##### 3382#       发表于 2020-2-11 22:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46391640&amp;ptid=1275523" target="_blank">机丹尼尔 发表于 2020-2-11 22:53</a>
@@ -8206,25 +5673,13 @@ country_event = {
 [https://qunxing.huijiwiki.com/wi ... 7%E5%A4%A9%E8%B5%8B](https://qunxing.huijiwiki.com/wiki/%E9%A3%9E%E5%8D%87%E5%A4%A9%E8%B5%8B)
 
 
-
-
-
-
-
 -----
 
 ####  iqbsh38  
 ##### 3383#       发表于 2020-2-11 22:49
 
 
-
-
 看你们挖出来 以为有新DLC了呢 不过这游戏还能有大型更新嘛
-
-
-
-
-
 
 
 -----
@@ -8233,15 +5688,9 @@ country_event = {
 ##### 3384#       发表于 2020-2-12 03:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46392129&amp;ptid=1275523" target="_blank">iqbsh38 发表于 2020-2-11 22:49</a>
 看你们挖出来 以为有新DLC了呢 不过这游戏还能有大型更新嘛</blockquote>
 有，下个版本会重做联邦/银河社区
-
-
-
-
-
 
 
 -----
@@ -8250,23 +5699,16 @@ country_event = {
 ##### 3385#       发表于 2020-2-12 08:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46393716&amp;ptid=1275523" target="_blank">zxc4563982 发表于 2020-2-12 03:43</a>
 
 有，下个版本会重做联邦/银河社区</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">(嚼嚼）我顶多有奴隶和罐头 社区有卵子用
 
 
-
-
-
-
-
 -----
 
 ####  白影  
 ##### 3386#       发表于 2020-2-12 10:01
-
 
 
 <blockquote>iqbsh38 发表于 2020-2-12 08:36
@@ -8277,16 +5719,10 @@ country_event = {
 另外新的联邦影响似乎很大，而且每个倾向都能找到合适的样子（也许会排出几个极端政府？但那些应该就要给补偿了吧？姑且看它怎么改了）
 
 
-
-
-
-
-
 -----
 
 ####  iqbsh38  
 ##### 3387#       发表于 2020-2-12 10:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46394772&amp;ptid=1275523" target="_blank">白影 发表于 2020-2-12 10:01</a>
@@ -8298,16 +5734,10 @@ country_event = {
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">看了下描述 移动型超级系兵器和造船厂 还有这个文明起源全是MOD内容 玩了多少个版本玩烂掉的
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3388#       发表于 2020-2-12 12:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46391640&amp;ptid=1275523" target="_blank">机丹尼尔 发表于 2020-2-11 21:53</a>
@@ -8324,16 +5754,10 @@ psijump说真的。。。现版本意义不算特别大 又不是1.X时代
 相比之下装罐后起飞的人口数更好使
 
 
-
-
-
-
-
 -----
 
 ####  机丹尼尔  
 ##### 3389#       发表于 2020-2-12 12:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46394201&amp;ptid=1275523" target="_blank">iqbsh38 发表于 2020-2-12 08:36</a>
@@ -8342,16 +5766,10 @@ psijump说真的。。。现版本意义不算特别大 又不是1.X时代
 话说回来怎么做罐头。我地盘有没开发的中世纪土著
 
 
-
-
-
-
-
 -----
 
 ####  机丹尼尔  
 ##### 3390#       发表于 2020-2-12 12:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46395949&amp;ptid=1275523" target="_blank">neptunehs 发表于 2020-2-12 12:10</a>
@@ -8366,16 +5784,10 @@ psi ...</blockquote>
 灵能接口还算实惠
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3391#       发表于 2020-2-12 12:39
-
 
 
  本帖最后由 neptunehs 于 2020-2-12 12:45 编辑 
@@ -8386,16 +5798,10 @@ psi ...</blockquote>
 抽风
 
 
-
-
-
-
-
 -----
 
 ####  neptunehs  
 ##### 3392#       发表于 2020-2-12 12:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46396136&amp;ptid=1275523" target="_blank">机丹尼尔 发表于 2020-2-12 12:29</a>
@@ -8417,16 +5823,10 @@ psi ...</blockquote>
 3.不能是机器人或者净化
 
 
-
-
-
-
-
 -----
 
 ####  机丹尼尔  
 ##### 3393#       发表于 2020-2-12 13:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46396268&amp;ptid=1275523" target="_blank">neptunehs 发表于 2020-2-12 12:41</a>
@@ -8441,16 +5841,10 @@ psi ...</blockquote>
 我DLC都有了，但现在这个有清洗的决策
 
 
-
-
-
-
-
 -----
 
 ####  Toby_dak  
 ##### 3394#       发表于 2020-2-12 16:21
-
 
 
  本帖最后由 Toby_dak 于 2020-2-12 17:27 编辑 
@@ -8473,14 +5867,8 @@ psi ...</blockquote>
 当然也可以直接净化宰杀，不过浪费研究点数就才一次性多获得50%粮，还要背上灭族的外交惩罚，实在划不来。
 
 
-
-
-
-
 無題.jpg
 (250.32 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -8489,31 +5877,13 @@ psi ...</blockquote>
 2020-2-12 16:15 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202002/12/161519rkx1p7p11wck142o.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  阿萨托斯  
 ##### 3395#       发表于 2020-2-12 16:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46396581&amp;ptid=1275523" target="_blank">机丹尼尔 发表于 2020-2-12 13:08</a>
@@ -8526,16 +5896,10 @@ psi ...</blockquote>
 在种族里新增对应种族的基因模板，点套用模板，然后确认执行对应的项目就可以改造了
 
 
-
-
-
-
-
 -----
 
 ####  暗杀翻看是  
 ##### 3396#       发表于 2020-2-12 18:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46396581&amp;ptid=1275523" target="_blank">机丹尼尔 发表于 2020-2-12 13:08</a>
@@ -8546,24 +5910,15 @@ psi ...</blockquote>
 想吃人只能用弑杀蜂群，其他种族不能随便吃人的，群星还没丧病到那个地步
 
 
-
-
-
-
-
 -----
 
 ####  zxc4563982  
 ##### 3397#       发表于 2020-2-12 20:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46399214&amp;ptid=1275523" target="_blank">暗杀翻看是 发表于 2020-2-12 18:18</a>
 想吃人只能用弑杀蜂群，其他种族不能随便吃人的，群星还没丧病到那个地步 ...</blockquote>
 抱歉，群星确实大奸大恶，排外就能吃
-
-
-
 
 
                                     

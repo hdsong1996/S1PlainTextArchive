@@ -6,22 +6,15 @@
 ##### 2311#       发表于 2018-6-18 14:58
 
 
-
 <blockquote>sherlockchu 发表于 2018-6-18 11:10
 “永恒静止的快乐和痛并快乐的活着之间理念的冲突”—— Robert Nozick在1974年谈到的体验机器嘛，伦理学中 ...</blockquote>
 因为人根本做不到前者，谈论两者之间的选择总觉得非常空中楼阁……
-
-
-
-
-
 
 
 -----
 
 ####  Mr.BBWoLf  
 ##### 2312#       发表于 2018-6-18 15:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40030801&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-18 14:20</a>
@@ -35,26 +28,15 @@
 就当是13都市遗迹吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2313#       发表于 2018-6-18 15:10
 
 
-
 <blockquote>fengzijiang 发表于 2018-6-18 12:55
 博士应该有研究资料一类的东西，我倒是觉得有可能让阿广走科研路线救02 ...</blockquote>
 至少研究资料可以让大家知道怎么修机器，13队怎么来的之类的还没来得及说的信息吧
-
-
-
-
-
 
 
 -----
@@ -63,29 +45,18 @@
 ##### 2314#       发表于 2018-6-18 15:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40030957&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-6-18 14:36</a>
 楼里吐槽这点的人算少？顺带，我倒没像某些人认为角色崩坏。角色没什么不连贯的，只是没想到底牌揭穿后那 ...</blockquote>
 跟人多人少没关系，我就正好看到了想说一下
 
 
-
-
-
-
 —— 来自 OnePlus A0001, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 2315#       发表于 2018-6-18 15:12
-
 
 
 <blockquote>Mr.BBWoLf 发表于 2018-6-18 15:01
@@ -112,32 +83,19 @@ company
 难道要去#7那种旧都市重拾旧日科技
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 2316#       发表于 2018-6-18 15:15
 
 
-
-
 继续普通跨度发展扯细节根本没法搞，直接（或者半集）三四十年后比较好拍
-
-
-
-
-
 
 
 -----
 
 ####  sherlockchu  
 ##### 2317#       发表于 2018-6-18 15:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40031114&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-18 14:51</a>
@@ -152,16 +110,10 @@ company
 若是国家队真有那么点“哲学”质素，也就是对技术与人的描写上。但是这些都是几十年就已经被说烂的常识了。在国家队里读思想，就跟在沙里淘金子差不多，最多找出几块有用的石头用来砌墙吧。
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2318#       发表于 2018-6-18 15:19
-
 
 
 <img src="https://i.loli.net/2018/06/18/5b275c9672538.png" referrerpolicy="no-referrer">
@@ -173,16 +125,10 @@ company
 鞭尸3回op……？<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2319#       发表于 2018-6-18 15:23
-
 
 
 <blockquote>大江户战士 发表于 2018-6-18 14:24
@@ -198,16 +144,10 @@ company
 以前说心满失忆要占戏份，现在看来在宇宙大战篇反而是因为失忆而减少了戏份……（就像很多人说的把心从觉醒先锋放到了666的位置，把莓又放回了因为216而首先觉醒的位置……）
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 2320#       发表于 2018-6-18 15:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40031184&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-18 14:58</a>
@@ -215,16 +155,10 @@ company
 哲学的基本方法就是思想实验，这类方法本身就很“空中楼阁”……<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">（鉴于方法上的空洞性，当代很多哲学家都开始推行实验哲学，弄调查问卷什么的，比如把语言哲学中的指称理论设计成简单问卷看看学生倾向于直接指称主义或是描述主义；一些心灵哲学家则同神经学家、脑科学家混在一起、一块设计实验了）
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 2321#       发表于 2018-6-18 15:30
-
 
 
 <blockquote>9α 发表于 2018-6-18 15:19
@@ -237,32 +171,19 @@ company
 01也没了
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 2322#       发表于 2018-6-18 15:36
 
 
-
-
 后三集真的不变一下op画面么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 2323#       发表于 2018-6-18 15:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40031446&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-18 15:30</a>
@@ -274,26 +195,15 @@ company
 或者op不会再出现了？
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2324#       发表于 2018-6-18 15:40
 
 
-
 <blockquote>sherlockchu 发表于 2018-6-18 15:29
 哲学的基本方法就是思想实验，这类方法本身就很“空中楼阁”……（鉴于方法上的空洞性，当代很多 ...</blockquote>
 有些问题还是比较有实践支撑的，比如讨论自杀，或者讨论道德是论心还是论迹……还挺给人思考的。但类似永恒的生命与短暂的生命，静止的生命和运动的生命这种讨论，把人类做不到的神之领域和人类本身来对比，很容易搞到觉得人类很糟糕（欲望那么强，赶紧禁欲去追求涅槃一类的），或者搞到人类很伟大（我们如此的变化如此的美，真是完美的生物）……再或者就要神棍地来一句我们的生命既永恒又短暂、既静止又运动这种万金油神句……？（我看这种万金油句子在ditf出现的可能性也不低……）
-
-
-
-
-
 
 
 -----
@@ -302,24 +212,16 @@ company
 ##### 2325#       发表于 2018-6-18 15:42
 
 
-
-
 OP最初开头画面我和7都坏掉了
 博士死了
 正副主席早晚死
 还剩个8没事
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2326#       发表于 2018-6-18 15:44
-
 
 
 <blockquote>9α 发表于 2018-6-18 15:42
@@ -333,32 +235,19 @@ OP最初开头画面我和7都坏掉了
 后面一众遗像，注视着02落下黄泉。
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2327#       发表于 2018-6-18 15:45
 
 
-
-
 或者反过来是存活名单，博士没尸体就是没凉。
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 2328#       发表于 2018-6-18 15:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40031569&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-18 15:44</a>
@@ -373,16 +262,10 @@ papa……
 <img src="https://i.loli.net/2018/06/18/5b2763cce2709.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 2329#       发表于 2018-6-18 15:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40031293&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-18 15:12</a>
@@ -399,25 +282,13 @@ company
 其实之前探讨记忆上传条件的时候，我在想会不会是按都市范围上传，要不然普通克隆人员工肯定算不上大人，没泡过橙汁。若他们没上传走的话，留下不知所措的人其实还挺多的。
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 2330#       发表于 2018-6-18 15:58
 
 
-
-
 博士的立场不就是有点人情味的疯狂科学家，还想有什么高深莫测的东西？
-
-
-
-
-
 
 
 -----
@@ -426,24 +297,16 @@ company
 ##### 2331#       发表于 2018-6-18 15:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40029546&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-18 11:59</a>
 
 博士的立场：撕吧拉稀</blockquote>
 那根本黎明卿……
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 2332#       发表于 2018-6-18 15:59
-
-
 
 
 BD3倒数9天
@@ -454,16 +317,10 @@ BD3倒数9天
 配合#21结尾，真是……
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2333#       发表于 2018-6-18 16:00
-
 
 
  本帖最后由 9α 于 2018-6-18 16:02 编辑 
@@ -479,16 +336,10 @@ iota～
 用用这个收的表情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 2334#       发表于 2018-6-18 16:03
-
 
 
 <blockquote>玖瑶君 发表于 2018-6-18 15:44
@@ -503,16 +354,10 @@ iota～
 所以只有α存活？
 
 
-
-
-
-
-
 -----
 
 ####  ゼロツー  
 ##### 2335#       发表于 2018-6-18 16:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40031724&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-18 16:00</a>
@@ -525,16 +370,10 @@ iota～</blockquote>
 别过来！咱没你这样的儿子！<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2336#       发表于 2018-6-18 16:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40031750&amp;ptid=1712743" target="_blank">ゼロツー 发表于 2018-6-18 16:03</a>
@@ -543,32 +382,19 @@ iota～</blockquote>
 为什么……为什么不要我们了呢……妈妈
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 2337#       发表于 2018-6-18 16:09
 
 
-
-
 跳过时间真没什么好处，该解决的问题解决不了，还是在那，本来不用解决的都要解决了
-
-
-
-
-
 
 
 -----
 
 ####  猪的报恩  
 ##### 2338#       发表于 2018-6-18 16:18
-
 
 
 <blockquote>9α 发表于 2018-6-18 15:49
@@ -583,16 +409,10 @@ papa……</blockquote>
 话说绿毛紫毛是死得最惨的一对吧，死相残酷得我两天都没发释怀。
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 2339#       发表于 2018-6-18 16:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40031522&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-18 15:40</a>
@@ -608,16 +428,10 @@ papa……</blockquote>
 顺带，我是把学院哲学与一般人头脑中的“哲学”区别开来的，不会有学院派去国家队看出哲学，只有一般观众能读出“哲学”—— 虽然现在学院哲学也有很多无聊、且很low的东西，比方说应用伦理学。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 2340#       发表于 2018-6-18 16:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40031856&amp;ptid=1712743" target="_blank">猪的报恩 发表于 2018-6-18 16:18</a>
@@ -626,16 +440,10 @@ papa……</blockquote>
 紫绿看起来还挺有cp相 结果<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2341#       发表于 2018-6-18 16:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40031905&amp;ptid=1712743" target="_blank">davidcch12 发表于 2018-6-18 16:24</a>
@@ -645,16 +453,10 @@ papa……</blockquote>
 顺便阿红和阿蓝一定也是cp呢～
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 2342#       发表于 2018-6-18 16:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40031522&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-18 15:40</a>
@@ -663,32 +465,19 @@ papa……</blockquote>
 我觉得就不会再往下讲了。广那番话都算不上回击ape的进化方向，顶多算并行。v星现在打着信教的旗号搞扩张掠夺，欲求就一个，吞并。叫龙人舍弃族群未来的欲求也是一个，保护星球。一个是中央处理器，一个是留有女王蜂，virm就是叫龙族群的升级版。01看着216说的话：我们舍弃社会性了，也变强了，日子没你们滋润而已。这就是进化方向在欲求之间的取舍。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猪的报恩  
 ##### 2343#       发表于 2018-6-18 16:33
 
 
-
-
 回过神来再想想，当初ape要是拿培养普通驾驶员的资源来多造几个9s岂不是早就天下无敌了。
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 2344#       发表于 2018-6-18 16:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40031856&amp;ptid=1712743" target="_blank">猪的报恩 发表于 2018-6-18 16:18</a>
@@ -708,16 +497,10 @@ papa……</blockquote>
 成长经验值包不对等啊。
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2345#       发表于 2018-6-18 16:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40031970&amp;ptid=1712743" target="_blank">猪的报恩 发表于 2018-6-18 16:33</a>
@@ -729,16 +512,10 @@ papa……</blockquote>
 估计就成功了8个人。
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 2346#       发表于 2018-6-18 16:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40031976&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-18 16:33</a>
@@ -750,16 +527,10 @@ papa……</blockquote>
 可怜的孩子，你爱ape，但ape不爱你<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 2347#       发表于 2018-6-18 16:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40031970&amp;ptid=1712743" target="_blank">猪的报恩 发表于 2018-6-18 16:33</a>
@@ -771,16 +542,10 @@ papa……</blockquote>
 顺带，不光9队基因是02复刻，机体也是02复刻。
 
 
-
-
-
-
-
 -----
 
 ####  mumubear  
 ##### 2348#       发表于 2018-6-18 16:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40031970&amp;ptid=1712743" target="_blank">猪的报恩 发表于 2018-6-18 16:33</a>
@@ -792,16 +557,10 @@ papa……</blockquote>
 说来，给02送饭的蓝人还没讲清楚。。。
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 2349#       发表于 2018-6-18 16:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40030953&amp;ptid=1712743" target="_blank">偶像程序员POI 发表于 2018-6-18 14:36</a>
@@ -816,31 +575,19 @@ papa……</blockquote>
 ……所以它就是出来xjb打一下泄愤的么<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  AminGly  
 ##### 2350#       发表于 2018-6-18 16:40
 
 
-
 <img src="https://wx4.sinaimg.cn/mw690/006ulFuAly1fsfeezroldj30u01at1kx.jpg" referrerpolicy="no-referrer">来一发汉化过得四格，来自微博D-lutz
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 2351#       发表于 2018-6-18 16:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40031386&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-18 15:23</a>
@@ -852,32 +599,19 @@ papa……</blockquote>
 目前看来清除记忆还有个用途——让稍微觉醒的满去追更加瑟缩的心，扯平一次。
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 2352#       发表于 2018-6-18 16:45
 
 
-
-
 ed6也太欢脱了，我是不信后面能多严肃了
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 2353#       发表于 2018-6-18 16:47
-
 
 
 <blockquote>mumubear 发表于 2018-6-18 16:39
@@ -888,16 +622,10 @@ ed6也太欢脱了，我是不信后面能多严肃了
 蓝人多半是失败试验品吧
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 2354#       发表于 2018-6-18 16:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40032026&amp;ptid=1712743" target="_blank">mumubear 发表于 2018-6-18 16:39</a>
@@ -909,16 +637,10 @@ ed6也太欢脱了，我是不信后面能多严肃了
 克隆就跟13话开头有出入克隆不可能放养，大人不会有绘本这东西
 
 
-
-
-
-
-
 -----
 
 ####  soulife7  
 ##### 2355#       发表于 2018-6-18 16:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40032041&amp;ptid=1712743" target="_blank">AminGly 发表于 2018-06-18 16:40:19</a>
@@ -927,16 +649,10 @@ ed6也太欢脱了，我是不信后面能多严肃了
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 2356#       发表于 2018-6-18 16:51
-
 
 
 <blockquote>华尔姬丽雅 发表于 2018-6-18 16:39
@@ -951,17 +667,10 @@ ed6也太欢脱了，我是不信后面能多严肃了
 如果拍下来爆的是骨架和内部都市，但收走了核心的话还行。
 
 
-
-
-
-
-
 -----
 
 ####  soulife7  
 ##### 2357#       发表于 2018-6-18 16:52
-
-
 
 
 已经。。。完全不知道锦织接下来会干啥啦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -969,16 +678,10 @@ ed6也太欢脱了，我是不信后面能多严肃了
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  zxc786  
 ##### 2358#       发表于 2018-6-18 16:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40032126&amp;ptid=1712743" target="_blank">soulife7 发表于 2018-6-18 16:52</a>
@@ -990,17 +693,10 @@ ed6也太欢脱了，我是不信后面能多严肃了
 该“建国”了。
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 2359#       发表于 2018-6-18 16:54
-
-
 
 
 送绘本的蓝人应该是不会讲了。瞎猜吧：
@@ -1017,32 +713,19 @@ ed6也太欢脱了，我是不信后面能多严肃了
 （b）锦织意志的化身<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 2360#       发表于 2018-6-18 16:58
 
 
-
-
 蓝人没有实体也应该有抽象代指
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 2361#       发表于 2018-6-18 17:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40032100&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-18 16:48</a>
@@ -1053,16 +736,10 @@ ed6也太欢脱了，我是不信后面能多严肃了
 说不定这个蓝人就是个普通人类（可能和78一样是孩子长成的大人），只是02记忆有问题才把她记成了蓝人，负责照顾了02一阵子临走时把珍藏的绘本送给她作为纪念。
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 2362#       发表于 2018-6-18 17:05
-
 
 
 <blockquote>大江户战士 发表于 2018-6-18 14:24
@@ -1074,17 +751,10 @@ ed6也太欢脱了，我是不信后面能多严肃了
 否则战场还要嘴炮青葙，很难实现齐心赶去大裂隙帮助02。
 
 
-
-
-
-
-
 -----
 
 ####  喵咪咪格勒  
 ##### 2363#       发表于 2018-6-18 17:11
-
-
 
 
 看完 最后那个重影我还以为02跟机器人化成一体了 这不致敬贰瓶勉吗
@@ -1092,16 +762,10 @@ ed6也太欢脱了，我是不信后面能多严肃了
 结果是碎角<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 2364#       发表于 2018-6-18 17:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40032222&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-18 17:05</a>
@@ -1112,16 +776,10 @@ ed6也太欢脱了，我是不信后面能多严肃了
 那是在旧都市，大人怎么会有这东西，进房间的可是一帮士兵，不是78，就不像是人工培养控制的
 
 
-
-
-
-
-
 -----
 
 ####  mumubear  
 ##### 2365#       发表于 2018-6-18 17:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40032222&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-18 17:05</a>
@@ -1138,32 +796,19 @@ ed6也太欢脱了，我是不信后面能多严肃了
 但是，面具人抢到一半不抢了就很傻了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 2366#       发表于 2018-6-18 17:31
 
 
-
-
 禁书不至于，但是那玩意大人不会有
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 2367#       发表于 2018-6-18 17:33
-
 
 
 <blockquote>AminGly 发表于 2018-6-18 16:40
@@ -1180,32 +825,19 @@ ed6也太欢脱了，我是不信后面能多严肃了
 那之后的剧集蹦出其实纯位数是17岁的克隆，五郎其实是karina的克隆或者莓是广的克隆什么的也觉得毫不违和了……
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2368#       发表于 2018-6-18 17:38
 
 
-
-
 另外，既然都是克隆了，那支持a莓和支持215现在是不是差不多一回事？或者是支持a莓等于让莓成了比216低一辈的？？
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 2369#       发表于 2018-6-18 17:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40032444&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-18 17:33</a>
@@ -1217,16 +849,10 @@ ed6也太欢脱了，我是不信后面能多严肃了
 按照漫画说法可雄蕊也可雌蕊……
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2370#       发表于 2018-6-18 17:44
-
 
 
  本帖最后由 9α 于 2018-6-18 17:55 编辑 
@@ -1241,16 +867,10 @@ ed6也太欢脱了，我是不信后面能多严肃了
 而且现在官方明显只推2对。
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2371#       发表于 2018-6-18 18:00
-
 
 
 <blockquote>9α 发表于 2018-6-18 17:44
@@ -1268,33 +888,19 @@ ed6也太欢脱了，我是不信后面能多严肃了
 当然还有种可能就是你执迷不悟，成了13队新建立的人类聚集地和virm残余势力（紫人）之外的第三势力……
 
 
-
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 2372#       发表于 2018-6-18 18:08
 
 
-
-
 坐等莓队又一个耳刮子抽醒韭黄
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 2373#       发表于 2018-6-18 18:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40032709&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-18 18:00</a>
@@ -1311,27 +917,15 @@ ed6也太欢脱了，我是不信后面能多严肃了
 但之前立了太多对13队感兴趣……及这走向就是把他推着往那边去。
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 2374#       发表于 2018-6-18 18:22
 
 
-
-
 克隆这事只能理解为博士技术力逆天，想怎么调整怎么调整，蓝皮001都能复制成红皮02，红皮02克隆出七彩斑斓的9s也不奇怪。
 
 代代杂交好理解一点，但一般观众要他们接受9s伦理上得喊02妈？还是算了吧……
-
-
-
-
-
 
 
 -----
@@ -1340,16 +934,10 @@ ed6也太欢脱了，我是不信后面能多严肃了
 ##### 2375#       发表于 2018-6-18 18:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40032444&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-18 17:33</a>
 
 说来，02对16感兴趣，9a也对16感兴趣；02调戏15（这图里对假想16调戏方式就是和7集推15一样嘛），9a也调 ...</blockquote>
 克隆体宿命论还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1358,22 +946,13 @@ ed6也太欢脱了，我是不信后面能多严肃了
 ##### 2376#       发表于 2018-6-18 18:33
 
 
-
-
 博士如果这集不死，下集用三分钟复活02就太搞笑了。
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 2377#       发表于 2018-6-18 18:37
-
-
 
 
 想想哈，现在用了两集打了virm的先遣部队，目前需要重整战力和恢复科技，还有个崩溃的9队，还要救回来02，然后还要和virm的后继主力打，还要填完心满和七八的坑……只有三集的情况下大致可以这么安排：
@@ -1386,16 +965,10 @@ ed6也太欢脱了，我是不信后面能多严肃了
 3 同2，但是节奏会超快，结尾只打半集，瞬间秒杀virm的主力，然后救02；或者打不过，全员乘上阿帕斯星际流浪
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 2378#       发表于 2018-6-18 18:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40033007&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-18 18:37</a>
@@ -1408,16 +981,10 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 3也可以，倒数第二集virm来，最后一集02复活秒杀virm大军一气呵成。
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 2379#       发表于 2018-6-18 18:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40033055&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-18 18:41</a>
@@ -1428,32 +995,19 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 我是觉着没有什么镜头能够给机战了，时间太短坑又多，virm光是先遣就占了两回，后面主力不秒杀根本打不完
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 2380#       发表于 2018-6-18 18:45
 
 
-
-
 16脑子好啊，反正没了搭档也不需要他上机了，下集专心搞科研，说不定就找到02复活的办法了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 2381#       发表于 2018-6-18 18:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40033076&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-18 18:43</a>
@@ -1464,16 +1018,10 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 所以我估计virm大军也就后日谈三分钟的待遇……
 
 
-
-
-
-
-
 -----
 
 ####  soulife7  
 ##### 2382#       发表于 2018-6-18 18:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40033090&amp;ptid=1712743" target="_blank">Fnaygih 发表于 2018-06-18 18:45:10</a>
@@ -1482,16 +1030,10 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 2383#       发表于 2018-6-18 18:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40033131&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-18 18:48</a>
@@ -1501,33 +1043,20 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 不过也有可能一句打赢了带过<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 2384#       发表于 2018-6-18 18:57
 
 
-
-
 我也希望16走科研路线，拿博士的研究材料，把02救回来，神童设定不能白费啊。
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 2385#       发表于 2018-6-18 18:57
-
 
 
 <blockquote>soulife7 发表于 2018-6-18 18:49
@@ -1541,25 +1070,13 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 本来博士活着让他带领就是了，博士死了科研怎么办，科学力量不能少，那说不定就是主角方有人要去搞科研。13队里现在看着像是智商比较高能搞科研的就是广、五郎、郁乃了吧，比较有动力的就是广了……
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 2386#       发表于 2018-6-18 19:03
 
 
-
-
 开头一声婴儿啼哭，瞬间跳到10个月后，心满孩子也有了，记忆也恢复了，然后旁白再介绍一下这10个月的情况，下集致敬天元不可避<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1568,15 +1085,9 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 ##### 2387#       发表于 2018-6-18 19:03
 
 
-
  本帖最后由 amulelernen 于 2018-6-18 19:07 编辑 
 
 其实还有一种可能，先填一些坑，13小队失败了被吸入virm的服务器，然后唤醒了里面的人们，从内部把virm击败并破坏掉乐园，最后借助灵缸的叫龙生命获得物理形态返回地球
-
-
-
-
-
 
 
 -----
@@ -1585,16 +1096,9 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 ##### 2388#       发表于 2018-6-18 19:04
 
 
-
-
  反正主席都明说了要带主力过来。
 
  那么“乐园”中央服务器也会过来，这摆明了就是要给你一枪捅爆了。。不要吐槽外星人为啥性子这么直。
-
-
-
-
-
 
 
 -----
@@ -1603,15 +1107,9 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 ##### 2389#       发表于 2018-6-18 19:07
 
 
-
 <blockquote>amulelernen 发表于 2018-6-18 19:03
 其实还有一种可能，先填一些坑，13小队失败了被吸入virm的服务器，然后唤醒了里面的人们，从内部把击败virm ...</blockquote>
 那就成了不要乱吃（吸）东西的宣传片……233
-
-
-
-
-
 
 
 -----
@@ -1620,15 +1118,9 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 ##### 2390#       发表于 2018-6-18 19:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40033301&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-18 19:07</a>
 那就成了不要乱吃（吸）东西的宣传片……233</blockquote>
 精神对精神嘛，内部改造virm。并且这一点也有伏笔，02舔了小草莓就变成莓莓哭了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1637,14 +1129,7 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 ##### 2391#       发表于 2018-6-18 19:08
 
 
-
-
 国16pro的话……太吓人了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">各种一笔带过……
-
-
-
-
-
 
 
 -----
@@ -1653,16 +1138,10 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 ##### 2392#       发表于 2018-6-18 19:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40030039&amp;ptid=1712743" target="_blank">fengzijiang 发表于 2018-6-18 12:55</a>
 
 博士应该有研究资料一类的东西，我倒是觉得有可能让阿广走科研路线救02 ...</blockquote>
 阿广就算了吧，博士算是研究百年了，广一个还没活到博士零头的人就能去继承，监督能再随意点么？
-
-
-
-
-
 
 
 -----
@@ -1671,16 +1150,10 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 ##### 2393#       发表于 2018-6-18 19:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40030119&amp;ptid=1712743" target="_blank">kyota 发表于 2018-6-18 13:02</a>
 
 其实21还有个巨大的问题就是把20话好不容易说服自己的机战党的“这不是神棍这不是超展开这是要上太空”的心 ...</blockquote>
 ……除非virm最后蠢到把自己服务器放地面上，打上太空不可避免的……
-
-
-
-
-
 
 
 -----
@@ -1689,23 +1162,15 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 ##### 2394#       发表于 2018-6-18 19:15
 
 
-
-
 被吸入岂不是能看到703了
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 2395#       发表于 2018-6-18 19:15
-
 
 
 <blockquote>9α 发表于 2018-6-18 19:08
@@ -1719,16 +1184,10 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 结尾来个搞科研的广出现说在叫龙遗迹里找到复活02方法/来个警报告知virm再次来袭什么的……
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 2396#       发表于 2018-6-18 19:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40033368&amp;ptid=1712743" target="_blank">闪亮的彗星 发表于 2018-6-18 19:15</a>
@@ -1738,16 +1197,10 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 703早就凉凉了，见到17岁差不多，还能填第十集的坑
 
 
-
-
-
-
-
 -----
 
 ####  夜雨袭风  
 ##### 2397#       发表于 2018-6-18 19:18
-
 
 
  本帖最后由 夜雨袭风 于 2018-6-18 19:20 编辑 
@@ -1757,17 +1210,10 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 最后人没救回来，但是明确留下希望。阿广点个永生天赋剩下的靠时间慢慢磨吧，从星实体里拉人好像也没难到无法接受。
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 2398#       发表于 2018-6-18 19:18
-
-
 
 
 下一集，郁乃能不能抢救一下，基本就看出13小队的结局了，
@@ -1777,26 +1223,15 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 最后两集准备上路<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 2399#       发表于 2018-6-18 19:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40033337&amp;ptid=1712743" target="_blank">Shylia 发表于 2018-6-18 19:11</a>
 阿广就算了吧，博士算是研究百年了，广一个还没活到博士零头的人就能去继承，监督能再随意点么？ ...</blockquote>
 其实我觉得不太过分，前人数百年的研究成果后人还不是用很短的时间内就消化吸收了，而且看13集的样子孩子们肯定有知识基础，而且广还有神童光环，跳个三两年时间做成功我觉得不算过分。
-
-
-
-
-
 
 
 -----
@@ -1805,23 +1240,15 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 ##### 2400#       发表于 2018-6-18 19:22
 
 
-
-
 郁乃怕不是要莓的爱才能恢复
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 2401#       发表于 2018-6-18 19:23
-
 
 
 <blockquote>Shylia 发表于 2018-6-18 19:11
@@ -1831,17 +1258,10 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 因为阿广是博士克隆所以其实这方面超天才的……什么的。
 
 
-
-
-
-
-
 -----
 
 ####  闪亮的彗星  
 ##### 2402#       发表于 2018-6-18 19:24
-
-
 
 
 复活，失忆，再来个重新爱上的故事2.0？
@@ -1849,16 +1269,10 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2403#       发表于 2018-6-18 19:25
-
 
 
 <blockquote>Fnaygih 发表于 2018-6-18 19:18
@@ -1873,34 +1287,20 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 但是看情况大概是能抢救，只要不再去开机到死应该问题不大吧……
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2404#       发表于 2018-6-18 19:29
 
 
-
-
 9队的设定会不会有再次搭档洗牌可能性，不然浪费了。
 但……跟太开……还是浪费掉这个设定吧<img src="https://static.saraba1st.com/image/smiley/face2017/191.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
 
 ####  闪亮的彗星  
 ##### 2405#       发表于 2018-6-18 19:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40033515&amp;ptid=1712743" target="_blank">9α 发表于 2018-06-18 19:29:42</a>
@@ -1912,16 +1312,10 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2406#       发表于 2018-6-18 19:34
-
 
 
  本帖最后由 9α 于 2018-6-18 19:40 编辑 
@@ -1935,16 +1329,10 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 我不是复制人啊！<img src="https://static.saraba1st.com/image/smiley/face2017/191.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 2407#       发表于 2018-6-18 19:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40033480&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-18 19:25</a>
@@ -1958,25 +1346,13 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 下集旁白杀直接入土，太对不起这个发言了
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 2408#       发表于 2018-6-18 19:37
 
 
-
-
 原来不是蛟龙人这tm是恐龙人啊
-
-
-
-
-
 
 
 -----
@@ -1985,15 +1361,8 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 ##### 2409#       发表于 2018-6-18 19:38
 
 
-
-
 头发白了估计不会让196开了，然后活到结局。
 之后观众任意想象。
-
-
-
-
-
 
 
 -----
@@ -2002,23 +1371,15 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 ##### 2410#       发表于 2018-6-18 19:39
 
 
-
  本帖最后由 栗悟饭177 于 2018-6-18 19:41 编辑 
 
 有技术的已经血肉模糊了，让芋艿跟乌鲁蒂亚一样也挺好的
-
-
-
-
-
 
 
 -----
 
 ####  不再是小孩子了  
 ##### 2411#       发表于 2018-6-18 19:42
-
-
 
 
 下集还是好好回收一些伏笔吧，那些被淘汰的孩子们的去向。703也稍微在露个脸吧，哪怕是背后灵也行。
@@ -2028,30 +1389,17 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 那些还在花园的孩子们怎么办呢，对大人而言已经没有培育的价值了。广还是回花园吧，回实验室继承博士遗志，用02的细胞再克隆一个02出来吧，等她长大了再实现一直在一起的承诺。
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 2412#       发表于 2018-6-18 19:42
 
 
-
-
 找到传染阿广的病原体了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
 
 
 2018-06-18_194026.png
 (632.25 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -2060,31 +1408,13 @@ virm之前和叫龙人打过一场，足足六千万年才又回来，先头部�
 2018-6-18 19:41 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/18/194149rqyzut2d4y2z4uu6.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  Shylia  
 ##### 2413#       发表于 2018-6-18 19:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40031293&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-18 15:12</a>
@@ -2097,16 +1427,10 @@ company
 永生的大人全跪了比如17岁他们，但是哈奇他们这些工作人员，包括新娜娜旧娜娜都是在的，他们虽然短时间不会造个阿帕斯造个灵舡，但是修修机体还是可以的。而熔岩燃料是叫龙人的遗产，原本人类熔岩燃料文明已经随着一堆人上传服务器而结束，拿来打virm也是正当用途。到了virm被打败，估计剩下叫龙也归于熔岩燃料，地表生态恢复，人类新的文明就可以开始了。
 
 
-
-
-
-
-
 -----
 
 ####  不再是小孩子了  
 ##### 2414#       发表于 2018-6-18 19:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40033634&amp;ptid=1712743" target="_blank">Mr.BBWoLf 发表于 2018-6-18 19:42</a>
@@ -2117,33 +1441,19 @@ company
 我只看到可以治愈一切疾病的草莓可爱的笑颜
 
 
-
-
-
-
-
 -----
 
 ####  IWS2000  
 ##### 2415#       发表于 2018-6-18 19:49
 
 
-
-
 阿广变成博士第一次见叫龙公主那副模样，头上两根蓝角，花了一千年才复活了02。萝莉配大叔<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 2416#       发表于 2018-6-18 19:53
-
-
 
 
 下一话可能9队把7放出来了？
@@ -2154,25 +1464,13 @@ company
 这个大广播……
 
 
-
-
-
-
-
 -----
 
 ####  567844  
 ##### 2417#       发表于 2018-6-18 19:54
 
 
-
-
 196不行了为什么不让胖子骑02啊
-
-
-
-
-
 
 
 -----
@@ -2181,23 +1479,16 @@ company
 ##### 2418#       发表于 2018-6-18 19:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40033634&amp;ptid=1712743" target="_blank">Mr.BBWoLf 发表于 2018-6-18 19:42</a>
 
 找到传染阿广的病原体了</blockquote>
 莓...莓毒？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 2419#       发表于 2018-6-18 19:55
-
 
 
 <blockquote>Mr.BBWoLf 发表于 2018-6-18 15:57
@@ -2212,16 +1503,10 @@ company
 另外#7的旧都市不知道要怎么回收。
 
 
-
-
-
-
-
 -----
 
 ####  Shylia  
 ##### 2420#       发表于 2018-6-18 19:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40032026&amp;ptid=1712743" target="_blank">mumubear 发表于 2018-6-18 16:39</a>
@@ -2233,32 +1518,19 @@ company
 现在排除01，剧中有可能的中老年妇女也就17岁和娜娜，而且10话看17岁以前也在garden工作过，姑且算作是17岁给的吧。说起来17岁听到纯位数就知道是666和两人相同瞳色的伏笔现在也没用到，17岁现在又归天了，下话他们应该不至于返回garden来挖这条线吧？
 
 
-
-
-
-
-
 -----
 
 ####  IWS2000  
 ##### 2421#       发表于 2018-6-18 19:59
 
 
-
-
 草莓成为人类的领袖，阿广成为新的博士好像也不错<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">草莓接受了不成熟的叫龙改造技术，虽然大大延长了寿命，但是胸口长满大片蓝瘤子一直痛苦的折磨着她，即使如此她依然出色的贯彻领袖的责任，重建着地球的文明
-
-
-
-
-
 
 
 -----
 
 ####  不再是小孩子了  
 ##### 2422#       发表于 2018-6-18 20:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40033743&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-18 19:55</a>
@@ -2270,16 +1542,10 @@ company
 旧都市可以是新的伊甸园，人类文明重建的地方
 
 
-
-
-
-
-
 -----
 
 ####  Shylia  
 ##### 2423#       发表于 2018-6-18 20:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40032031&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-18 16:39</a>
@@ -2290,16 +1556,10 @@ company
 应该就是收集那个叫龙核心，估计周围挂掉的核心会被星实体自动回收加强星实体。
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2424#       发表于 2018-6-18 20:02
-
 
 
 <blockquote>Fnaygih 发表于 2018-6-18 19:35
@@ -2312,16 +1572,10 @@ company
 比如这片子到最后狂跳时间线，13队都入土为安了，阿广叫龙人活的长，漫长的n年后复活02迎接virm什么的。这种发展貌似也…可能？
 
 
-
-
-
-
-
 -----
 
 ####  Shylia  
 ##### 2425#       发表于 2018-6-18 20:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40032337&amp;ptid=1712743" target="_blank">mumubear 发表于 2018-6-18 17:20</a>
@@ -2333,16 +1587,10 @@ company
 你去看社区楼下大人带小孩的也有拿小孩手里玩的东西逗小孩的。
 
 
-
-
-
-
-
 -----
 
 ####  Shylia  
 ##### 2426#       发表于 2018-6-18 20:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40032877&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-18 18:22</a>
@@ -2351,16 +1599,10 @@ company
 克隆这东西本身就伦理问题，炮姐那一堆是妹妹，01这边就成妈了
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 2427#       发表于 2018-6-18 20:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40033874&amp;ptid=1712743" target="_blank">Shylia 发表于 2018-6-18 20:07</a>
@@ -2371,16 +1613,10 @@ company
 0102、029s，差太大了……
 
 
-
-
-
-
-
 -----
 
 ####  Shylia  
 ##### 2428#       发表于 2018-6-18 20:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40033007&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-18 18:37</a>
@@ -2389,32 +1625,19 @@ company
 会有剧场版么？
 
 
-
-
-
-
-
 -----
 
 ####  hanshanwulu  
 ##### 2429#       发表于 2018-6-18 20:12
 
 
-
-
 问一句，娜娜姐现在到底怎么样了？
-
-
-
-
-
 
 
 -----
 
 ####  Shylia  
 ##### 2430#       发表于 2018-6-18 20:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40033515&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-18 19:29</a>
@@ -2425,16 +1648,10 @@ company
 感觉三个口罩妹要么全死，要么留一个，你结局可能还有机会活下来，另外二位真是凶多吉少啊。
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 2431#       发表于 2018-6-18 20:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40033903&amp;ptid=1712743" target="_blank">hanshanwulu 发表于 2018-6-18 20:12</a>
@@ -2445,16 +1662,10 @@ company
 8要是有点良心大概被关在某个犄角旮旯里。
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 2432#       发表于 2018-6-18 20:17
-
 
 
 <blockquote>hanshanwulu 发表于 2018-6-18 20:12
@@ -2468,25 +1679,13 @@ company
 应该还在鸟巢，不知道是发现外面异样自己出来还是会被8找出来
 
 
-
-
-
-
-
 -----
 
 ####  IWS2000  
 ##### 2433#       发表于 2018-6-18 20:18
 
 
-
-
 下集韭黄身后的口罩妹摘下口罩，用肉松的声音说话，韭黄说了句iota就进ed了
-
-
-
-
-
 
 
 -----
@@ -2495,16 +1694,10 @@ company
 ##### 2434#       发表于 2018-6-18 20:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40033903&amp;ptid=1712743" target="_blank">hanshanwulu 发表于 2018-6-18 20:12</a>
 
 问一句，娜娜姐现在到底怎么样了？</blockquote>
 17话后就关禁闭了，哈奇去看她时一脸生无可恋，记忆洗没洗不清楚，大概率是没洗想起之前的种种抑郁了。
-
-
-
-
-
 
 
 -----
@@ -2513,21 +1706,13 @@ company
 ##### 2435#       发表于 2018-6-18 20:25
 
 
-
-
 又在玩automata那种“上帝已死”的故事模版，新意不足啊
-
-
-
-
-
 
 
 -----
 
 ####  02016  
 ##### 2436#       发表于 2018-6-18 20:32
-
 
 
  本帖最后由 02016 于 2019-8-6 20:41 编辑 
@@ -2539,16 +1724,10 @@ Yashio@so3_yashio
 <img src="http://ww3.sinaimg.cn/large/87c01ec7gy1fsflxs4vd1j20tk180421.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Shylia  
 ##### 2437#       发表于 2018-6-18 20:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40033090&amp;ptid=1712743" target="_blank">Fnaygih 发表于 2018-6-18 18:45</a>
@@ -2559,26 +1738,15 @@ Yashio@so3_yashio
 植物人桥段可以是广读读绘本，说说心里话，甚至13队跑来哭天喊地，当然世上最亲不过母子，还是9a来唤醒比较好吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  magicz2  
 ##### 2438#       发表于 2018-6-18 20:35
 
 
-
 <blockquote>Shylia 发表于 2018-6-18 20:34
 看02最后一幕双眼圆睁这真死了就是死不瞑目啊，明明救活广应该心满意足了这还死不瞑目也太骇人了吧？或许 ...</blockquote>
 浪子回头的9小队和他们的植物人老母亲
-
-
-
-
-
 
 
 -----
@@ -2587,23 +1755,16 @@ Yashio@so3_yashio
 ##### 2439#       发表于 2018-6-18 20:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40034062&amp;ptid=1712743" target="_blank">Shylia 发表于 2018-6-18 20:34</a>
 
 看02最后一幕双眼圆睁这真死了就是死不瞑目啊，明明救活广应该心满意足了这还死不瞑目也太骇人了吧？或许 ...</blockquote>
 下一集变16年后，等新一代和外星人战斗 16爷推02轮椅看夕阳。。。。。。。。。
 
 
-
-
-
-
-
 -----
 
 ####  ######  
 ##### 2440#       发表于 2018-6-18 20:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40033515&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-18 19:29</a>
@@ -2614,17 +1775,10 @@ Yashio@so3_yashio
 02植物以后没准广爷骑你上机
 
 
-
-
-
-
-
 -----
 
 ####  猪的报恩  
 ##### 2441#       发表于 2018-6-18 20:54
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/18/204146cly8iymb9i7knsik.png" referrerpolicy="no-referrer">
@@ -2637,17 +1791,7 @@ Yashio@so3_yashio
 2018-6-18 20:41 上传
 
 
-
-
-
-
-
 有时候真不知道怎么说阿广，02的同步率都快破200了，他还在100出头晃荡（他和叫龙公主都有86的同步率），和11话刚解开心结的心满一个水平，02和他这么多话的心意相通你侬我侬怕是都亲到狗身上了，这哥们到底啥时候才能硬气一点也让02依靠一次呢？
-
-
-
-
-
 
 
 -----
@@ -2656,16 +1800,10 @@ Yashio@so3_yashio
 ##### 2442#       发表于 2018-6-18 20:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40034273&amp;ptid=1712743" target="_blank">猪的报恩 发表于 2018-6-18 20:54</a>
 
 有时候真不知道怎么说阿广，02的同步率都快破200了，他还在100出头晃荡（他和叫龙公主都有86的同步率）， ...</blockquote>
 阿广15话硬过了呀<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2674,13 +1812,7 @@ Yashio@so3_yashio
 ##### 2443#       发表于 2018-6-18 21:00
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">因为现在还不能红皮，不然这话就打完了
-
-
-
-
-
 
 
 -----
@@ -2689,14 +1821,7 @@ Yashio@so3_yashio
 ##### 2444#       发表于 2018-6-18 21:01
 
 
-
-
 同步率200的结果不就是最后那个样子嘛。。
-
-
-
-
-
 
 
 -----
@@ -2705,16 +1830,10 @@ Yashio@so3_yashio
 ##### 2445#       发表于 2018-6-18 21:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40034273&amp;ptid=1712743" target="_blank">猪的报恩 发表于 2018-6-18 20:54</a>
 有时候真不知道怎么说阿广，02的同步率都快破200了，他还在100出头晃荡（他和叫龙公主都有86的同步率）， ...</blockquote>
 <img src="https://i.loli.net/2018/06/18/5b27ada9b1e60.png" referrerpolicy="no-referrer">
 公主还没睡醒，不在状态很正常，理解一下<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2723,14 +1842,7 @@ Yashio@so3_yashio
 ##### 2446#       发表于 2018-6-18 21:05
 
 
-
-
 200是红皮鹿角的结果吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2739,14 +1851,7 @@ Yashio@so3_yashio
 ##### 2447#       发表于 2018-6-18 21:12
 
 
-
-
 同步率太高了导致融入机体了吧？雌蕊暴走时貌似也是同步率条突然暴涨到满……
-
-
-
-
-
 
 
 -----
@@ -2755,14 +1860,7 @@ Yashio@so3_yashio
 ##### 2448#       发表于 2018-6-18 21:16
 
 
-
-
 复活02没啥难度 亲一下就醒了 
-
-
-
-
-
 
 
 -----
@@ -2771,14 +1869,7 @@ Yashio@so3_yashio
 ##### 2449#       发表于 2018-6-18 21:18
 
 
-
-
 02那几句台词对应的14话开头的独白
-
-
-
-
-
 
 
 -----
@@ -2787,14 +1878,7 @@ Yashio@so3_yashio
 ##### 2450#       发表于 2018-6-18 21:18
 
 
-
-
 每次广濒死的时候都是回到那棵槲寄生下，说不定开头小龙女那段不是过去发生的事
-
-
-
-
-
 
 
 -----
@@ -2803,15 +1887,9 @@ Yashio@so3_yashio
 ##### 2451#       发表于 2018-6-18 21:29
 
 
-
 <blockquote>dzrykh 发表于 2018-6-18 21:18
 每次广濒死的时候都是回到那棵槲寄生下，说不定开头小龙女那段不是过去发生的事 ...</blockquote>
 是广梦里/未来濒死时看到的？
-
-
-
-
-
 
 
 -----
@@ -2820,14 +1898,7 @@ Yashio@so3_yashio
 ##### 2452#       发表于 2018-6-18 21:33
 
 
-
-
 说来广嘴炮01时闪回的那些回忆里，比如郁莓告白和五莓拥抱之类的，广应该是不知道的吧？虽然多半只是为了展示下，但还是蛮奇怪的……
-
-
-
-
-
 
 
 -----
@@ -2836,16 +1907,10 @@ Yashio@so3_yashio
 ##### 2453#       发表于 2018-6-18 21:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40034605&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-18 21:29</a>
 
 是广梦里/未来濒死时看到的？</blockquote>
 不是有一大堆叫龙嘛，神棍点就是叫龙人死后灵魂都会聚集在那里<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今天看了寻梦环游记，突然想到的
-
-
-
-
-
 
 
 -----
@@ -2854,14 +1919,7 @@ Yashio@so3_yashio
 ##### 2454#       发表于 2018-6-18 21:43
 
 
-
-
 下集就回收开头，叫龙死了魂魄都会进入星实体，这样我就能见到叫龙公主和可爱的小蛇蛇了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2870,14 +1928,7 @@ Yashio@so3_yashio
 ##### 2455#       发表于 2018-6-18 21:44
 
 
-
-
 想看到02和叫龙公主融合，继承她的记忆，成为新的叫龙公主
-
-
-
-
-
 
 
 -----
@@ -2886,16 +1937,10 @@ Yashio@so3_yashio
 ##### 2456#       发表于 2018-6-18 21:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40034722&amp;ptid=1712743" target="_blank">IWS2000 发表于 2018-6-18 21:44</a>
 
 想看到02和叫龙公主融合，继承她的记忆，成为新的叫龙公主</blockquote>
 人家心心念念想当人类啊……
-
-
-
-
-
 
 
 -----
@@ -2904,14 +1949,7 @@ Yashio@so3_yashio
 ##### 2457#       发表于 2018-6-18 21:52
 
 
-
-
 星实体胎内 大摇篮    明显要孕育新生命的
-
-
-
-
-
 
 
 -----
@@ -2920,16 +1958,10 @@ Yashio@so3_yashio
 ##### 2458#       发表于 2018-6-18 21:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40034790&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-18 21:51</a>
 
 人家心心念念想当人类啊……</blockquote>
 216至少十八集的时候已经认死自己当不成人了，不然也不会怂恿心满结婚了。。。
-
-
-
-
-
 
 
 -----
@@ -2938,16 +1970,10 @@ Yashio@so3_yashio
 ##### 2459#       发表于 2018-6-18 21:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40033634&amp;ptid=1712743" target="_blank">Mr.BBWoLf 发表于 2018-06-18 19:42:56</a>
 找到传染阿广的病原体了</blockquote>哈哈哈哈哈哈
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -2956,16 +1982,10 @@ Yashio@so3_yashio
 ##### 2460#       发表于 2018-6-18 21:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40034790&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-18 21:51</a>
 
 人家心心念念想当人类啊……</blockquote>
 然而早就无所谓了啊
-
-
-
-
-
 
 
 -----
@@ -2974,14 +1994,7 @@ Yashio@so3_yashio
 ##### 2461#       发表于 2018-6-18 21:58
 
 
-
-
 广该成为叫龙王子了，毕竟绘本里面就是王子
-
-
-
-
-
 
 
 -----
@@ -2990,16 +2003,10 @@ Yashio@so3_yashio
 ##### 2462#       发表于 2018-6-18 22:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40034849&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-06-18 21:56:36</a>
 然而早就无所谓了啊</blockquote>也不算无所谓，02应该是已经变成心目中的人类了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -3008,22 +2015,15 @@ Yashio@so3_yashio
 ##### 2463#       发表于 2018-6-18 22:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40034868&amp;ptid=1712743" target="_blank">dzrykh 发表于 2018-6-18 21:58</a>
 广该成为叫龙王子了，毕竟绘本里面就是王子</blockquote>
 广应该会成为新的叫龙公主，毕竟叫龙需要一个公主<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  IWS2000  
 ##### 2464#       发表于 2018-6-18 22:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40034962&amp;ptid=1712743" target="_blank">[A]ZuZe 发表于 2018-6-18 22:07</a>
@@ -3033,32 +2033,19 @@ Yashio@so3_yashio
 所以靠着这份本心接受公主的记忆成功保持了自我这种展开也不错
 
 
-
-
-
-
-
 -----
 
 ####  IWS2000  
 ##### 2465#       发表于 2018-6-18 22:11
 
 
-
-
 话说上集我好像奶中了叫龙是恐龙时代的，不知道这个世界有没有恐龙
-
-
-
-
-
 
 
 -----
 
 ####  Mr.BBWoLf  
 ##### 2466#       发表于 2018-6-18 22:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40033743&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-18 19:55</a>
@@ -3072,25 +2059,13 @@ Yashio@so3_yashio
 7集旧都市看锦织这架势，之前说的50年折旧估计就没考虑，顶多结局当生活根据地了。
 
 
-
-
-
-
-
 -----
 
 ####  dzrykh  
 ##### 2467#       发表于 2018-6-18 22:12
 
 
-
-
 内心完全成为了人类，02变大红皮，阿广变蓝皮多好
-
-
-
-
-
 
 
 -----
@@ -3099,16 +2074,10 @@ Yashio@so3_yashio
 ##### 2468#       发表于 2018-6-18 22:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40034997&amp;ptid=1712743" target="_blank">IWS2000 发表于 2018-6-18 22:11</a>
 
 话说上集我好像奶中了叫龙是恐龙时代的，不知道这个世界有没有恐龙</blockquote>
 应该没有了，恐龙的时代被叫龙取代。
-
-
-
-
-
 
 
 -----
@@ -3117,17 +2086,10 @@ Yashio@so3_yashio
 ##### 2469#       发表于 2018-6-18 22:26
 
 
-
-
 这周还能上196么
 平时着时候100+了
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -3136,22 +2098,13 @@ Yashio@so3_yashio
 ##### 2470#       发表于 2018-6-18 22:49
 
 
-
-
 XX直聘  X乎  世界杯两大傻吊广告
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 2471#       发表于 2018-6-18 22:57
-
-
 
 
 STORY
@@ -3175,16 +2128,10 @@ STORY
 一方、ストレリチアを奪われた形のゼロツーは、自身と叫竜の姫との衝撃的な因縁を博士から聞かされて……。
 
 
-
-
-
-
-
 -----
 
 ####  Shylia  
 ##### 2472#       发表于 2018-6-18 22:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40034997&amp;ptid=1712743" target="_blank">IWS2000 发表于 2018-06-18 22:11:31</a>
@@ -3193,26 +2140,14 @@ STORY
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2473#       发表于 2018-6-18 23:01
 
 
-
-
 [63話]だーりん・いん・ざ・ふらんきす！
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fsfq8yy47vj20j20u0kc8.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3221,13 +2156,7 @@ STORY
 ##### 2474#       发表于 2018-6-18 23:02
 
 
-
 [四格#63](https://shonenjumpplus.com/episode/10834108156631183729)
-
-
-
-
-
 
 
 -----
@@ -3236,14 +2165,7 @@ STORY
 ##### 2475#       发表于 2018-6-18 23:04
 
 
-
-
 没看懂，胖子是想说啥
-
-
-
-
-
 
 
 -----
@@ -3252,21 +2174,13 @@ STORY
 ##### 2476#       发表于 2018-6-18 23:06
 
 
-
-
 额是担心立下死亡FLAG的意思么……
-
-
-
-
-
 
 
 -----
 
 ####  magicz2  
 ##### 2477#       发表于 2018-6-18 23:08
-
 
 
  本帖最后由 magicz2 于 2018-6-18 23:10 编辑 
@@ -3279,25 +2193,13 @@ STORY
 全世界的音效都是由某公司承包的，记得以前玩帝国时代2里面几个动物的叫声不停地在别的片场出现。
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 2478#       发表于 2018-6-18 23:09
 
 
-
-
 前面是正片剧情，然后金雀跳出来不让插旗，说出于生存本能ww
-
-
-
-
-
 
 
 -----
@@ -3306,21 +2208,13 @@ STORY
 ##### 2479#       发表于 2018-6-18 23:11
 
 
-
-
 必须有一个巫妖王<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Shylia  
 ##### 2480#       发表于 2018-6-18 23:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40035003&amp;ptid=1712743" target="_blank">Mr.BBWoLf 发表于 2018-06-18 22:12:04</a>
@@ -3331,25 +2225,13 @@ STORY
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 2481#       发表于 2018-6-18 23:13
 
 
-
-
 猜对了~果然MATO老师也看不下去锦织的所作所为了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3358,16 +2240,10 @@ STORY
 ##### 2482#       发表于 2018-6-18 23:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40035501&amp;ptid=1712743" target="_blank">magicz2 发表于 2018-06-18 23:08:54</a>
 全世界的音效都是由某公司承包的，记得以前玩帝国时代2里面几个动物的叫声不停地在别的片场出现。 ...</blockquote>我是说日语发音
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -3376,16 +2252,9 @@ STORY
 ##### 2483#       发表于 2018-6-18 23:15
 
 
-
-
 mato也觉得。肥宅那段太flag了。太违和了
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -3394,14 +2263,7 @@ mato也觉得。肥宅那段太flag了。太违和了
 ##### 2484#       发表于 2018-6-18 23:17
 
 
-
-
 所以说，mato老师是god
-
-
-
-
-
 
 
 -----
@@ -3410,16 +2272,9 @@ mato也觉得。肥宅那段太flag了。太违和了
 ##### 2485#       发表于 2018-6-18 23:23
 
 
-
-
 这段flag确实刻意。
 
 主要太平时和02就没交流，02连他名字都没叫过，让他来说这段临别赠言还不如miku呢……好歹是女生组里和02关系最好的之一。
-
-
-
-
-
 
 
 -----
@@ -3428,16 +2283,10 @@ mato也觉得。肥宅那段太flag了。太违和了
 ##### 2486#       发表于 2018-6-18 23:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40035452&amp;ptid=1712743" target="_blank">xingenge 发表于 2018-6-18 23:01</a>
 
 [63話]だーりん・いん・ざ・ふらんきす！</blockquote>
 笑死了，心满都觉得不能立flag，生存欲很强了
-
-
-
-
-
 
 
 -----
@@ -3446,14 +2295,7 @@ mato也觉得。肥宅那段太flag了。太违和了
 ##### 2487#       发表于 2018-6-18 23:27
 
 
-
-
 miku：等你回来给我洗头呢
-
-
-
-
-
 
 
 -----
@@ -3462,16 +2304,10 @@ miku：等你回来给我洗头呢
 ##### 2488#       发表于 2018-6-18 23:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40035665&amp;ptid=1712743" target="_blank">大江户战士 发表于 2018-6-18 23:27</a>
 
 笑死了，心满都觉得不能立flag，生存欲很强了</blockquote>
 从第1话开始就不断累积着坚强的生存欲很强了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3480,21 +2316,13 @@ miku：等你回来给我洗头呢
 ##### 2489#       发表于 2018-6-18 23:36
 
 
-
-
 mato老师奋力救国<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  黑沢逢世  
 ##### 2490#       发表于 2018-6-18 23:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40020065&amp;ptid=1712743" target="_blank">吾乃啊噗 发表于 2018-06-17 12:03:04</a>
@@ -3504,16 +2332,10 @@ mato老师奋力救国<img src="https://static.saraba1st.com/image/smiley/face20
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 2491#       发表于 2018-6-18 23:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40035758&amp;ptid=1712743" target="_blank">黑沢逢世 发表于 2018-6-18 23:37</a>
@@ -3522,17 +2344,10 @@ mato老师奋力救国<img src="https://static.saraba1st.com/image/smiley/face20
 op1的广一脸懵逼被捧脸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2492#       发表于 2018-6-18 23:42
-
-
 
 
 我们9队只剩下6个了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
@@ -3544,26 +2359,15 @@ PS4启动，看了眼打折游戏毫无购买欲望，ps4关闭。
 <img src="https://static.saraba1st.com/image/smiley/face2017/191.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2493#       发表于 2018-6-18 23:47
 
 
-
 <blockquote>xingenge 发表于 2018-6-18 23:01
 [63話]だーりん・いん・ざ・ふらんきす！</blockquote>
 这个小郁乃的白发有点挑染的意味还挺好看，正片全白那段看的太揪心了……太揪心了。因为不愿意而不生的百合，连未来也没有吗……TT
-
-
-
-
-
 
 
 -----
@@ -3572,15 +2376,9 @@ PS4启动，看了眼打折游戏毫无购买欲望，ps4关闭。
 ##### 2494#       发表于 2018-6-18 23:51
 
 
-
 <blockquote>大江户战士 发表于 2018-6-18 23:27
 笑死了，心满都觉得不能立flag，生存欲很强了</blockquote>
 他俩立了个超大的（结婚誓言）flag所以已经门清了
-
-
-
-
-
 
 
 -----
@@ -3589,14 +2387,7 @@ PS4启动，看了眼打折游戏毫无购买欲望，ps4关闭。
 ##### 2495#       发表于 2018-6-18 23:52
 
 
-
-
 这话金雀终于有瞳孔了😄
-
-
-
-
-
 
 
 -----
@@ -3605,22 +2396,15 @@ PS4启动，看了眼打折游戏毫无购买欲望，ps4关闭。
 ##### 2496#       发表于 2018-6-19 00:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40035868&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-18 23:47</a>
 这个小郁乃的白发有点挑染的意味还挺好看，正片全白那段看的太揪心了……太揪心了。因为不愿意而不生的百 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  大江户战士  
 ##### 2497#       发表于 2018-6-19 00:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40035868&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-18 23:47</a>
@@ -3632,25 +2416,13 @@ PS4启动，看了眼打折游戏毫无购买欲望，ps4关闭。
 要没颜色也是从根上开始。。当然可能孩子们头发变白和普通人原理不一样
 
 
-
-
-
-
-
 -----
 
 ####  小红飞翼  
 ##### 2498#       发表于 2018-6-19 00:23
 
 
-
-
 是时候让工具人703出场了 703以命换命救02 渣广喜极而泣
-
-
-
-
-
 
 
 -----
@@ -3659,21 +2431,13 @@ PS4启动，看了眼打折游戏毫无购买欲望，ps4关闭。
 ##### 2499#       发表于 2018-6-19 00:24
 
 
-
-
 当然阿尔法是02的克隆 用它的命换成功率更高
-
-
-
-
-
 
 
 -----
 
 ####  Mr.BBWoLf  
 ##### 2500#       发表于 2018-6-19 00:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40035532&amp;ptid=1712743" target="_blank">Shylia 发表于 2018-6-18 23:12</a>
@@ -3685,25 +2449,13 @@ PS4启动，看了眼打折游戏毫无购买欲望，ps4关闭。
 7集遗迹自然侵蚀程度大概是现实中同样城市被侵蚀50年的水平。我记得专楼很久之前提到过。
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 2501#       发表于 2018-6-19 00:31
 
 
-
-
 这集好像是郁乃第一次与太交流吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3712,23 +2464,16 @@ PS4启动，看了眼打折游戏毫无购买欲望，ps4关闭。
 ##### 2502#       发表于 2018-6-19 00:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40036238&amp;ptid=1712743" target="_blank">Mr.BBWoLf 发表于 2018-6-19 00:31</a>
 
 这集好像是郁乃第一次与太交流吧</blockquote>
 11集以来第一次<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 2503#       发表于 2018-6-19 00:52
-
 
 
 <blockquote>Mr.BBWoLf 发表于 2018-6-19 00:31
@@ -3738,32 +2483,19 @@ PS4启动，看了眼打折游戏毫无购买欲望，ps4关闭。
 开会时的话，#17 196有吐槽214来着
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 2504#       发表于 2018-6-19 00:54
 
 
-
-
 有没有可能女生们被吸入virm中，意识组成xxme一起唱歌，唤醒众人，或者让virm受到了冲击，然后拯救世界？
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 2505#       发表于 2018-6-19 01:02
-
 
 
 <blockquote>amulelernen 发表于 2018-6-19 00:54
@@ -3773,27 +2505,15 @@ PS4启动，看了眼打折游戏毫无购买欲望，ps4关闭。
 （话说这梗本来是用在鸟笼上的，现在用在地球上也不违和啊。）
 
 
-
-
-
-
-
 -----
 
 ####  骑驴耍bb  
 ##### 2506#       发表于 2018-6-19 01:32
 
 
-
-
 virm不会隔天就回来吧，说来就来说走就走，话说virm这群b到底图啥，没事找事叫龙人都明确拒绝了还要过来皮一下，本事那么大直接把地球轰了就行了，还要亲自下场皇城pk，而且上次排杂兵被打跑这次还是杂兵能有点出息吗？这片最神奇的就是谁当反派谁傻逼，主角他们只要跑跑龙套谈谈恋爱，反派就自己暴毙了，而且virm这群人是怎么把旧人类给吸了的能吸早点吸干嘛还玩碟中谍，还有阿广说真的废，这大道理看的我尬死啦，前一秒濒临去世，下一秒原地复活，眼睛亮晶晶，一炮解决烦恼，和15的莓莓哭（广限定）有异曲同工之妙。话说02这是复活预订了，坐等白魔法。
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -3802,23 +2522,15 @@ virm不会隔天就回来吧，说来就来说走就走，话说virm这群b到�
 ##### 2507#       发表于 2018-6-19 01:55
 
 
-
-
 这个盖楼速度……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 这周超不过150吧。另外，感觉好久没看到红鸟的加药了
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 2508#       发表于 2018-6-19 02:07
-
 
 
 <blockquote>骑驴耍bb 发表于 2018-6-19 01:32
@@ -3828,17 +2540,10 @@ VIRM吞并发达文明的灵体，不答应就武力镇压；掠夺强大武器�
 下场PK的是别处掠来的武器并非本体。留人类应该是为了消耗叫龙能源和兵力、设法抢夺武器。
 
 
-
-
-
-
-
 -----
 
 ####  whn1103  
 ##### 2509#       发表于 2018-6-19 02:35
-
-
 
 
 底牌当然是准备把星实带走的时候亮，不然还能什么时候。
@@ -3848,17 +2553,10 @@ VIRM吞并发达文明的灵体，不答应就武力镇压；掠夺强大武器�
 —— 来自 OnePlus A0001, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 2510#       发表于 2018-6-19 03:39
-
-
 
 
 对啊，这个世界缺少音乐！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -3878,16 +2576,10 @@ VIRM吞并发达文明的灵体，不答应就武力镇压；掠夺强大武器�
 703对着广的脑袋举起了贝斯。
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2511#       发表于 2018-6-19 03:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40031166&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-18 14:56</a>
@@ -3895,16 +2587,10 @@ VIRM吞并发达文明的灵体，不答应就武力镇压；掠夺强大武器�
 肯定行不通的啦<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2512#       发表于 2018-6-19 04:04
-
 
 
  本帖最后由 猫白羽毛 于 2018-6-19 04:09 编辑 
@@ -3914,16 +2600,10 @@ VIRM吞并发达文明的灵体，不答应就武力镇压；掠夺强大武器�
 再睡会
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 2513#       发表于 2018-6-19 04:39
-
 
 
 <blockquote>Mr.BBWoLf 发表于 2018-6-19 03:39
@@ -3933,16 +2613,10 @@ VIRM吞并发达文明的灵体，不答应就武力镇压；掠夺强大武器�
 噗，看前面还以为要组成13队合唱团献上悼念曲……
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 2514#       发表于 2018-6-19 04:55
-
 
 
  本帖最后由 xyau 于 2018-6-19 05:10 编辑 
@@ -3961,16 +2635,10 @@ APE跑光了，博士血溅三尺了，还是不知道为什么要管都市交�
 #10授勋后8提了一嘴去技术部，所以还是有可能为科技发展做贡献的？
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2515#       发表于 2018-6-19 05:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40037249&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-19 04:55</a>
@@ -3981,16 +2649,10 @@ APE跑光了，博士血溅三尺了，还是不知道为什么要管都市交�
 kissing是拍脑袋决定的
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 2516#       发表于 2018-6-19 05:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40037249&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-19 04:55</a>
@@ -4001,16 +2663,10 @@ kissing是拍脑袋决定的
 因为很像接吻所以叫kissing
 
 
-
-
-
-
-
 -----
 
 ####  mumubear  
 ##### 2517#       发表于 2018-6-19 06:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40035868&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-18 23:47</a>
@@ -4022,25 +2678,13 @@ kissing是拍脑袋决定的
 下集没有莓郁互动，就骂死锦织。。。
 
 
-
-
-
-
-
 -----
 
 ####  五更伪境  
 ##### 2518#       发表于 2018-6-19 06:39
 
 
-
-
 新四格是什么梗？是不让立flag的意思吗
-
-
-
-
-
 
 
 -----
@@ -4049,23 +2693,16 @@ kissing是拍脑袋决定的
 ##### 2519#       发表于 2018-6-19 06:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40037556&amp;ptid=1712743" target="_blank">五更伪境 发表于 2018-6-19 06:39</a>
 
 新四格是什么梗？是不让立flag的意思吗</blockquote>
 差不多就这个意思
 
 
-
-
-
-
-
 -----
 
 ####  お菓子食べたい  
 ##### 2520#       发表于 2018-6-19 06:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40036676&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-06-19 01:55:26</a>
@@ -4076,16 +2713,10 @@ kissing是拍脑袋决定的
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 2521#       发表于 2018-6-19 07:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40037005&amp;ptid=1712743" target="_blank">Mr.BBWoLf 发表于 2018-6-19 03:39</a>
@@ -4095,16 +2726,10 @@ kissing是拍脑袋决定的
 晴子听了会流泪，这才是真正续作
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 2522#       发表于 2018-6-19 07:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40037597&amp;ptid=1712743" target="_blank">お菓子食べたい 发表于 2018-6-19 06:58</a>
@@ -4116,26 +2741,15 @@ kissing是拍脑袋决定的
 心满剧情想想挺无聊的，加了郁乃立马药性十足<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  お菓子食べたい  
 ##### 2523#       发表于 2018-6-19 07:25
 
 
-
  本帖最后由 お菓子食べたい 于 2018-6-19 09:27 编辑 
 
 //
-
-
-
-
-
 
 
 -----
@@ -4144,16 +2758,10 @@ kissing是拍脑袋决定的
 ##### 2524#       发表于 2018-6-19 07:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40037625&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-06-19 07:12:40</a>
 我是真心觉得红鸟的假药比剧情好玩多了……</blockquote>哈哈哈我倒是感觉加了郁乃就跟心满剧情没关系了....或者说这展开不像在这两人剧情基础上加的....3255可能像韩剧 换成郁乃像家庭伦理剧
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -4162,21 +2770,13 @@ kissing是拍脑袋决定的
 ##### 2525#       发表于 2018-6-19 07:27
 
 
-
-
 专楼的药比正片有趣多了，你们都是mato老师<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Shylia  
 ##### 2526#       发表于 2018-6-19 07:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40036211&amp;ptid=1712743" target="_blank">Mr.BBWoLf 发表于 2018-06-19 00:27:50</a>
@@ -4186,16 +2786,10 @@ kissing是拍脑袋决定的
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 2527#       发表于 2018-6-19 07:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40037663&amp;ptid=1712743" target="_blank">お菓子食べたい 发表于 2018-6-19 07:26</a>
@@ -4205,32 +2799,19 @@ kissing是拍脑袋决定的
 11话心说自己也背叛过别人，就算别人背叛自己也能接受。我一直以为这是伏笔呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">看来锦织没有我想的那么扭曲。
 
 
-
-
-
-
-
 -----
 
 ####  magicz2  
 ##### 2528#       发表于 2018-6-19 08:01
 
 
-
-
 13话递绘本的蓝影人还没填呢
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 2529#       发表于 2018-6-19 08:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40036435&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-19 01:02</a>
@@ -4240,16 +2821,10 @@ kissing是拍脑袋决定的
 也有可能十个人一起唱歌
 
 
-
-
-
-
-
 -----
 
 ####  mumubear  
 ##### 2530#       发表于 2018-6-19 08:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40037799&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-6-19 07:57</a>
@@ -4264,31 +2839,19 @@ kissing是拍脑袋决定的
 锦织温柔的不行。。。
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2531#       发表于 2018-6-19 08:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你们对锦织填坑还抱有期待么
-
-
-
-
-
 
 
 -----
 
 ####  猫白羽毛  
 ##### 2532#       发表于 2018-6-19 08:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40037831&amp;ptid=1712743" target="_blank">mumubear 发表于 2018-6-19 08:05</a>
@@ -4299,27 +2862,15 @@ kissing是拍脑袋决定的
 那一开始就别出来恶心人啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kolnko  
 ##### 2533#       发表于 2018-6-19 08:09
 
 
-
-
 这片子现在让我很难受
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -4328,14 +2879,7 @@ kissing是拍脑袋决定的
 ##### 2534#       发表于 2018-6-19 08:11
 
 
-
-
 有些是要填的，毕竟一切对13负责
-
-
-
-
-
 
 
 -----
@@ -4344,15 +2888,9 @@ kissing是拍脑袋决定的
 ##### 2535#       发表于 2018-6-19 08:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40037834&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-19 08:06</a>
 你们对锦织填坑还抱有期待么</blockquote>
 明明说好了“没有无用的展开/细节”……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4361,23 +2899,16 @@ kissing是拍脑袋决定的
 ##### 2536#       发表于 2018-6-19 08:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40037873&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-6-19 08:12</a>
 明明说好了“没有无用的展开/细节”……</blockquote>
 我不是怕他不填
 他怕他填了之后“其实也就这么回事”
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 2537#       发表于 2018-6-19 08:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40037881&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-19 08:14</a>
@@ -4388,16 +2919,10 @@ kissing是拍脑袋决定的
 一个是态度问题，一个是水平问题
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2538#       发表于 2018-6-19 08:22
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
@@ -4407,16 +2932,10 @@ papa……
 为什么我的生存价值观也被彻底被否定掉了……
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 2539#       发表于 2018-6-19 08:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40037831&amp;ptid=1712743" target="_blank">mumubear 发表于 2018-6-19 08:05</a>
@@ -4429,16 +2948,10 @@ papa……
 02倚在某汁男的胸口，用手指在他壮硕的胸口画圆圈，一脸陶醉，并用妖娆夹杂着厌弃的眼神望向广主席。广的刘海挡住了眼睛，双拳紧握，仿佛逃离一般离开那里，草莓一阵小碎步跟在后面，不敢出声。主席停下脚步，嘴唇颤抖，似乎想说些什么……还未说出口，他的嘴唇就被堵上了，眼前的女孩笨拙地垫起了脚尖。“没事的，Hiro，只有我会一直陪着你…嗯，只有我…” 莓幽幽地呢喃道。
 
 
-
-
-
-
-
 -----
 
 ####  mumubear  
 ##### 2540#       发表于 2018-6-19 08:23
-
 
 
  本帖最后由 mumubear 于 2018-6-19 08:30 编辑 
@@ -4446,16 +2959,10 @@ papa……
 、、
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 2541#       发表于 2018-6-19 08:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40037940&amp;ptid=1712743" target="_blank">9α 发表于 2018-06-19 08:22:10</a>
@@ -4469,16 +2976,10 @@ papa……
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2542#       发表于 2018-6-19 08:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40037999&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-19 08:29</a>
@@ -4488,16 +2989,10 @@ papa……
 还有恶化iota和13队关系，产生国14，不然国15的时候无法促成红皮<img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2543#       发表于 2018-6-19 08:40
-
 
 
 <img src="https://i.loli.net/2018/06/19/5b284f8495650.png" referrerpolicy="no-referrer">
@@ -4517,18 +3012,10 @@ papa……
 <img src="https://i.loli.net/2018/06/19/5b2850eb78774.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
 -----
 
 ####  Shylia  
 ##### 2544#       发表于 2018-6-19 08:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40037946&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-06-19 08:22:43</a>
@@ -4539,26 +3026,14 @@ papa……
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2545#       发表于 2018-6-19 08:49
 
 
-
-
 α戏服看着也太惨了吧……
 行了行了大家都知道了
-
-
-
-
-
 
 
 -----
@@ -4567,16 +3042,9 @@ papa……
 ##### 2546#       发表于 2018-6-19 08:50
 
 
-
-
 13队大个五六岁，红鸟的药还有可能。现在这帮孩子三观都是歪的，哪有那么多复杂的感情。
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -4585,14 +3053,7 @@ papa……
 ##### 2547#       发表于 2018-6-19 08:52
 
 
-
-
 毕竟红鸟都为人母了呢
-
-
-
-
-
 
 
 -----
@@ -4601,24 +3062,16 @@ papa……
 ##### 2548#       发表于 2018-6-19 08:53
 
 
-
-
 不行了9a戏份快要奔溃了
 大和抚子戏份快去安慰下
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2549#       发表于 2018-6-19 08:53
-
 
 
  本帖最后由 9α 于 2018-6-19 08:54 编辑 
@@ -4632,26 +3085,15 @@ papa……
 我们9队就是锦织的玩具
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 2550#       发表于 2018-6-19 09:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40037837&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-19 08:06</a>
 那一开始就别出来恶心人啊</blockquote>
 锦织：不要误会，我不是针对02，我只想说在座的各位，我都要恶心一下
-
-
-
-
-
 
 
 -----
@@ -4660,16 +3102,10 @@ papa……
 ##### 2551#       发表于 2018-6-19 09:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40038317&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-19 09:02</a>
 锦织：不要误会，我不是针对02，我只想说在座的各位，我都要恶心一下</blockquote>
 就像15集一集追回
 那非要14集小草莓去拆干什么
-
-
-
-
-
 
 
 -----
@@ -4678,14 +3114,7 @@ papa……
 ##### 2552#       发表于 2018-6-19 09:07
 
 
-
-
 其实我觉得下集开始小α找妈妈应该还有救吧……
-
-
-
-
-
 
 
 -----
@@ -4694,21 +3123,13 @@ papa……
 ##### 2553#       发表于 2018-6-19 09:15
 
 
-
-
 如果我猜的并行没错的话，应该会比预告早出表
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 2554#       发表于 2018-6-19 09:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40038381&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-19 09:07</a>
@@ -4726,16 +3147,10 @@ papa……
 还要夺取我们9队多少人生命！
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2555#       发表于 2018-6-19 09:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40038519&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-19 09:18</a>
@@ -4745,16 +3160,10 @@ papa……
 你是不是把戏服和自己要说的话放反了……
 
 
-
-
-
-
-
 -----
 
 ####  diyihaoshitu  
 ##### 2556#       发表于 2018-6-19 09:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40038231&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-19 08:53</a>
@@ -4766,16 +3175,10 @@ papa……
 9s是02的克隆，很有可能下集就和广主席继续搭档了
 
 
-
-
-
-
-
 -----
 
 ####  mumubear  
 ##### 2557#       发表于 2018-6-19 09:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40038363&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-19 09:06</a>
@@ -4792,16 +3195,10 @@ papa……
 比如骗男主角和别的男人上过床，装瞎子要把男主角毁得身败名裂之类的。。。
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 2558#       发表于 2018-6-19 09:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40038363&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-19 09:06</a>
@@ -4814,16 +3211,10 @@ papa……
 一个顶这一堆加起来呢，展开得还比20集顺畅得多，是不是特别厉害<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2559#       发表于 2018-6-19 09:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40038547&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-19 09:21</a>
@@ -4831,16 +3222,10 @@ papa……
 后文提前顺序会很奇怪啊～
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2560#       发表于 2018-6-19 09:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40038644&amp;ptid=1712743" target="_blank">mumubear 发表于 2018-6-19 09:28</a>
@@ -4856,31 +3241,19 @@ papa……
 现在我反观以前的后宫番恋爱番，那里是谈恋爱根本是一场明知胜负殊死搏斗，这是杀人哇
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2561#       发表于 2018-6-19 09:45
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">恋爱番都是一股残忍血腥的味道啊，生生看成恐怖片
-
-
-
-
-
 
 
 -----
 
 ####  mumubear  
 ##### 2562#       发表于 2018-6-19 09:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40038861&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-19 09:44</a>
@@ -4895,16 +3268,10 @@ papa……
 说不定还有救。。。<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 2563#       发表于 2018-6-19 09:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40038861&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-19 09:44</a>
@@ -4914,16 +3281,10 @@ papa……
 可以考虑心酱结婚以后分完财产抛弃了短命的满，和太再续前缘<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2564#       发表于 2018-6-19 10:00
-
 
 
 <blockquote>mumubear 发表于 2018-6-19 06:36
@@ -4940,16 +3301,10 @@ papa……
 看到那里时还以为是断后部队全灭（被v星人突破了），翠雀也生不见人死不见尸呢，结果最后全好好的。
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 2565#       发表于 2018-6-19 10:03
-
 
 
  本帖最后由 amulelernen 于 2018-6-19 10:05 编辑 
@@ -4957,17 +3312,10 @@ papa……
 胖子和16开机吧，刚好都缺一个人，16也很懂胖子<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 2566#       发表于 2018-6-19 10:03
-
-
 
 
 估计下一话就是莓的抉择了
@@ -4977,16 +3325,10 @@ papa……
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 2567#       发表于 2018-6-19 10:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40039030&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-19 10:00</a>
@@ -5002,16 +3344,10 @@ papa……
 佐仓出场时间戏份之少，退场时候都来了段比较长的虐点剧情，更不用说几十倍于她的郁乃和太跟青葙金雀，至于五郎到底怎么信心十足的跳崖的，就当他叒看剧本了吧……
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 2568#       发表于 2018-6-19 10:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40039081&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-19 10:03</a>
@@ -5019,16 +3355,10 @@ papa……
 别，还是和满爷上机吧，有约定在身，又是基友，而且心怀孕了，该休息了。而且我可以欺骗自己阿广是女主角<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2569#       发表于 2018-6-19 10:15
-
 
 
 <blockquote>猫白羽毛 发表于 2018-6-19 09:44
@@ -5043,16 +3373,10 @@ papa……
 但15现在机会不高了，接下来不管是和56、196甚至9a在一起或者单身，应该都会走自己当leader对方是辅佐的路线吧。
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2570#       发表于 2018-6-19 10:16
-
 
 
  本帖最后由 9α 于 2018-6-19 10:18 编辑 
@@ -5065,16 +3389,10 @@ papa……
 爆出来这设定没用过太浪费了。
 
 
-
-
-
-
-
 -----
 
 ####  Shylia  
 ##### 2571#       发表于 2018-6-19 10:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40037806&amp;ptid=1712743" target="_blank">magicz2 发表于 2018-06-19 08:01:16</a>
@@ -5083,32 +3401,19 @@ papa……
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 2572#       发表于 2018-6-19 10:17
 
 
-
-
 说是跳下去，你们也太较真了，真的杠
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 2573#       发表于 2018-6-19 10:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40039253&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-19 10:16</a>
@@ -5119,16 +3424,10 @@ papa……
 你怎么知道下集开场不是你回头一看口罩妹也便当了……
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2574#       发表于 2018-6-19 10:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40039011&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-19 09:57</a>
@@ -5137,17 +3436,10 @@ papa……
 一定让客户满意，让男方净身出户是我们得职责
 
 
-
-
-
-
-
 -----
 
 ####  kyota  
 ##### 2575#       发表于 2018-6-19 10:25
-
-
 
 
 现在出表也不顶事啊。拯救国家队，要靠后三集而不是一集
@@ -5156,32 +3448,19 @@ papa……
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 2576#       发表于 2018-6-19 10:26
 
 
-
-
 为什么要管救不救，自嗨不行吗
-
-
-
-
-
 
 
 -----
 
 ####  猫白羽毛  
 ##### 2577#       发表于 2018-6-19 10:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40039234&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-19 10:15</a>
@@ -5199,27 +3478,15 @@ papa……
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这么说来锦织的“生个孩子好”真是一股平成气息扑面而来
 
 
-
-
-
-
-
 -----
 
 ####  kyota  
 ##### 2578#       发表于 2018-6-19 10:27
 
 
-
-
 现在JZGG 拿出什么东西来我都觉得不奇怪了
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -5228,23 +3495,15 @@ papa……
 ##### 2579#       发表于 2018-6-19 10:29
 
 
-
-
 嗨不起来啊，又不能像内野一样成语接龙。现在是处在假药都破产，新药不会造的尴尬局面中
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 2580#       发表于 2018-6-19 10:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40039396&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-19 10:27</a>
@@ -5257,16 +3516,10 @@ papa……
 为了未来，只好先牺牲下你了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2581#       发表于 2018-6-19 10:32
-
 
 
 <blockquote>华尔姬丽雅 发表于 2018-6-19 10:07
@@ -5279,16 +3532,10 @@ papa……
 五郎每次搞令人担忧的骚操作，都最后能搭档双双把家还，也是稳得服气……
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2582#       发表于 2018-6-19 10:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40039482&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-19 10:32</a>
@@ -5299,16 +3546,10 @@ papa……
 他只是看了剧本而已
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2583#       发表于 2018-6-19 10:34
-
 
 
 <blockquote>hl8243 发表于 2018-6-19 10:03
@@ -5320,16 +3561,10 @@ papa……
 有可能，一话给莓完结下自己的感情线吧。这话四对的伏笔都有了：郁乃为她白发，五郎和她算是劫后余生、吊桥效应有点吧，9a失魂落魄被她关心（？）了下，广疑似失去了02进入某种空窗期……
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 2584#       发表于 2018-6-19 10:38
-
 
 
  本帖最后由 amulelernen 于 2018-6-19 10:40 编辑 
@@ -5337,16 +3572,10 @@ papa……
 不说了，除掉结尾必须有的216原画，还有两话，没有莓莓原画就 -1<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 2585#       发表于 2018-6-19 10:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40039557&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-19 10:38</a>
@@ -5357,16 +3586,10 @@ papa……
 完美解决没有莓的问题
 
 
-
-
-
-
-
 -----
 
 ####  zjylyy  
 ##### 2586#       发表于 2018-6-19 10:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40039557&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-19 10:38</a>
@@ -5375,17 +3598,10 @@ papa……
 说不定只有结尾齐发狗粮的原画会有莓莓<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2587#       发表于 2018-6-19 10:58
-
-
 
 
 博士爸爸有原画
@@ -5398,17 +3614,10 @@ papa……
 大和抚子的原画呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2588#       发表于 2018-6-19 11:03
-
-
 
 
 ―見つけたよ、ボクのダーリン
@@ -5434,16 +3643,10 @@ TVアニメ大好評放送中の『ダーリン・イン・ザ・フランキス
 [https://www.youtube.com/watch?v=h1nMjc44beI&amp;feature=youtu.be](https://www.youtube.com/watch?v=h1nMjc44beI&amp;feature=youtu.be)
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 2589#       发表于 2018-6-19 11:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40039661&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-19 10:46</a>
@@ -5454,16 +3657,10 @@ TVアニメ大好評放送中の『ダーリン・イン・ザ・フランキス
 那我也给-1
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2590#       发表于 2018-6-19 11:09
-
 
 
  本帖最后由 猫白羽毛 于 2018-6-19 11:11 编辑 
@@ -5474,16 +3671,10 @@ TVアニメ大好評放送中の『ダーリン・イン・ザ・フランキス
 我不如你
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2591#       发表于 2018-6-19 11:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40039661&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-19 10:46</a>
@@ -5494,16 +3685,10 @@ TVアニメ大好評放送中の『ダーリン・イン・ザ・フランキス
 不会上的
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2592#       发表于 2018-6-19 11:17
-
 
 
  本帖最后由 9α 于 2018-6-19 11:20 编辑 
@@ -5516,16 +3701,10 @@ TVアニメ大好評放送中の『ダーリン・イン・ザ・フランキス
 妈妈……奶奶……爸爸……阿绿……阿紫……
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 2593#       发表于 2018-6-19 11:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40039988&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-19 11:10</a>
@@ -5541,16 +3720,10 @@ TVアニメ大好評放送中の『ダーリン・イン・ザ・フランキス
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Gato_shin  
 ##### 2594#       发表于 2018-6-19 11:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40039369&amp;ptid=1712743" target="_blank">kyota 发表于 2018-6-19 10:25</a>
@@ -5561,16 +3734,10 @@ TVアニメ大好評放送中の『ダーリン・イン・ザ・フランキス
 救什么救，没救了，回家等死吧
 
 
-
-
-
-
-
 -----
 
 ####  Gato_shin  
 ##### 2595#       发表于 2018-6-19 11:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40039498&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-19 10:33</a>
@@ -5579,16 +3746,10 @@ TVアニメ大好評放送中の『ダーリン・イン・ザ・フランキス
 五郎才真是JZGG吧<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2596#       发表于 2018-6-19 11:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040143&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-19 11:21</a>
@@ -5606,16 +3767,10 @@ TVアニメ大好評放送中の『ダーリン・イン・ザ・フランキス
 只剩下红蓝了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 2597#       发表于 2018-6-19 11:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40039980&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-19 11:09</a>
@@ -5627,16 +3782,10 @@ TVアニメ大好評放送中の『ダーリン・イン・ザ・フランキス
 万一锦织最后三集神回了呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我说不定流下感动的眼屎
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2598#       发表于 2018-6-19 11:26
-
 
 
 <blockquote>猫白羽毛 发表于 2018-6-19 10:27
@@ -5654,17 +3803,10 @@ TVアニメ大好評放送中の『ダーリン・イン・ザ・フランキス
 虚构的、二次元的就无所谓了……谁都可以轻易地都要……多好啊。
 
 
-
-
-
-
-
-
 -----
 
 ####  Gato_shin  
 ##### 2599#       发表于 2018-6-19 11:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040143&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-19 11:21</a>
@@ -5677,16 +3819,10 @@ TVアニメ大好評放送中の『ダーリン・イン・ザ・フランキス
 真奶成了我去给辣鸡271充会员
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 2600#       发表于 2018-6-19 11:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040182&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-19 11:24</a>
@@ -5698,27 +3834,15 @@ TVアニメ大好評放送中の『ダーリン・イン・ザ・フランキス
 还有你和15  7和8
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 2601#       发表于 2018-6-19 11:30
 
 
-
-
 救国来不及了，别膈应人就行<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -5727,21 +3851,13 @@ TVアニメ大好評放送中の『ダーリン・イン・ザ・フランキス
 ##### 2602#       发表于 2018-6-19 11:31
 
 
-
-
 只要女主不被拉起来再死一次还是可以给个0分的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 2603#       发表于 2018-6-19 11:32
-
 
 
  本帖最后由 9α 于 2018-6-19 11:35 编辑 
@@ -5753,16 +3869,10 @@ TVアニメ大好評放送中の『ダーリン・イン・ザ・フランキス
 现在是，今后也是……
 
 
-
-
-
-
-
 -----
 
 ####  02016  
 ##### 2604#       发表于 2018-6-19 11:33
-
 
 
  本帖最后由 02016 于 2019-8-6 20:41 编辑 
@@ -5778,16 +3888,10 @@ Yashio@so3_yashio
 <img src="http://ww2.sinaimg.cn/large/87c01ec7gy1fsgbxbuwvuj20uh109gp0.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Gato_shin  
 ##### 2605#       发表于 2018-6-19 11:35
-
 
 
  本帖最后由 Gato_shin 于 2018-6-19 11:37 编辑 
@@ -5807,16 +3911,10 @@ Yashio@so3_yashio
 这便当，不服啊……
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2606#       发表于 2018-6-19 11:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040339&amp;ptid=1712743" target="_blank">Gato_shin 发表于 2018-6-19 11:35</a>
@@ -5827,16 +3925,10 @@ Yashio@so3_yashio
 别想了，就是为了让我疯掉让我哭<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2607#       发表于 2018-6-19 11:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040339&amp;ptid=1712743" target="_blank">Gato_shin 发表于 2018-6-19 11:35</a>
@@ -5848,32 +3940,19 @@ Yashio@so3_yashio
 13分尸佐仓都比这说服力大
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 2608#       发表于 2018-6-19 11:41
 
 
-
-
 就是要清场而已
-
-
-
-
-
 
 
 -----
 
 ####  お菓子食べたい  
 ##### 2609#       发表于 2018-6-19 11:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40025522&amp;ptid=1712743" target="_blank">02016 发表于 2018-06-17 22:59:46</a>
@@ -5888,16 +3967,10 @@ Yashio@so3_yashio
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 2610#       发表于 2018-6-19 11:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040316&amp;ptid=1712743" target="_blank">02016 发表于 2018-6-19 11:33</a>
@@ -5913,16 +3986,10 @@ Yashio@so3_yashio</blockquote>
 强烈谴责jzgg
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2611#       发表于 2018-6-19 11:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040208&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-19 11:26</a>
@@ -5938,16 +4005,10 @@ Yashio@so3_yashio</blockquote>
 恋爱番都是恐怖片
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 2612#       发表于 2018-6-19 11:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040339&amp;ptid=1712743" target="_blank">Gato_shin 发表于 2018-6-19 11:35</a>
@@ -5961,16 +4022,10 @@ Yashio@so3_yashio</blockquote>
 至于为啥是那么死的？致敬吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zjylyy  
 ##### 2613#       发表于 2018-6-19 11:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040316&amp;ptid=1712743" target="_blank">02016 发表于 2018-6-19 11:33</a>
@@ -5982,16 +4037,10 @@ Yashio@so3_yashio</blockquote>
 郁乃<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2614#       发表于 2018-6-19 11:47
-
 
 
 <blockquote>Gato_shin 发表于 2018-6-19 11:35
@@ -6004,16 +4053,10 @@ Yashio@so3_yashio</blockquote>
 或者觉得virm是友军反应不过来？
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 2615#       发表于 2018-6-19 11:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40038121&amp;ptid=1712743" target="_blank">Shylia 发表于 2018-6-19 08:42</a>
@@ -6031,16 +4074,10 @@ Yashio@so3_yashio</blockquote>
 国家队观感不好的其中一个原因就是锦织胆子太小了，不敢得罪观众，国14刚刚放出汁男，国15一开头就全便当了。
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2616#       发表于 2018-6-19 11:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040528&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-6-19 11:48</a>
@@ -6053,17 +4090,10 @@ Yashio@so3_yashio</blockquote>
 像这样？
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 2617#       发表于 2018-6-19 11:50
-
-
 
 
 话说，既然9队是02复制体，那么02和9队的人上机按理说9队的人也不会便当吧？
@@ -6072,16 +4102,10 @@ Yashio@so3_yashio</blockquote>
 另外，02都知道自己会把阿广变成叫龙人。为啥博士一叫龙厨不利用这点量产叫龙人？
 
 
-
-
-
-
-
 -----
 
 ####  02016  
 ##### 2618#       发表于 2018-6-19 11:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040431&amp;ptid=1712743" target="_blank">お菓子食べたい 发表于 2018-6-19 11:41</a>
@@ -6093,17 +4117,10 @@ Yashio@so3_yashio</blockquote>
 满温柔宠溺的眼神，心一脸的幸福满足<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 2619#       发表于 2018-6-19 11:51
-
-
 
 
 的确   锦织哥哥不敢让13小队死人
@@ -6113,16 +4130,10 @@ Yashio@so3_yashio</blockquote>
 听说本来56要死的   结果制作组的女同事不让
 
 
-
-
-
-
-
 -----
 
 ####  02016  
 ##### 2620#       发表于 2018-6-19 11:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040442&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-19 11:42</a>
@@ -6135,16 +4146,10 @@ Yashio@so3_yashio</blockquote>
 等安顿下来，说不定在莓的关怀下就成功抗衰老了
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 2621#       发表于 2018-6-19 11:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040545&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-19 11:49</a>
@@ -6156,16 +4161,10 @@ Yashio@so3_yashio</blockquote>
 锦织拍国家队就跟GALGAME中"亚萨西"男主一个模样……
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2622#       发表于 2018-6-19 11:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040551&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-6-19 11:50</a>
@@ -6178,16 +4177,10 @@ Yashio@so3_yashio</blockquote>
 还是会挂吧……
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2623#       发表于 2018-6-19 11:56
-
 
 
 <blockquote>hl8243 发表于 2018-6-19 11:51
@@ -6203,16 +4196,10 @@ Yashio@so3_yashio</blockquote>
 双人开机设计是有这个麻烦。
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2624#       发表于 2018-6-19 11:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040597&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-19 11:54</a>
@@ -6225,16 +4212,10 @@ Yashio@so3_yashio</blockquote>
 噗噗噗
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 2625#       发表于 2018-6-19 11:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040551&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-6-19 11:50</a>
@@ -6248,16 +4229,10 @@ Yashio@so3_yashio</blockquote>
 第二个，别忘了广和02再相遇之前就是个废物，博士又没看剧本，不可能知道广和02凑一对不仅能上机还能持续知制造出叫龙人啊……知道之后也没那么多时间了。
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 2626#       发表于 2018-6-19 11:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040625&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-19 11:56</a>
@@ -6268,16 +4243,10 @@ Yashio@so3_yashio</blockquote>
 死了剧情结构大变，这片子就有救了……<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 2627#       发表于 2018-6-19 11:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040625&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-19 11:56</a>
@@ -6287,16 +4256,10 @@ Yashio@so3_yashio</blockquote>
 听26小队队长的意思，搭档死了是有新的来顶的，其实不是太大问题。我觉得锦织是以拍偶像动画的心态拍这部片的<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Gato_shin  
 ##### 2628#       发表于 2018-6-19 12:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040578&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-6-19 11:52</a>
@@ -6305,16 +4268,10 @@ Yashio@so3_yashio</blockquote>
 你们天天说这是jzgg最后的亚萨西，结果亚萨西到现在也还是……
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 2629#       发表于 2018-6-19 12:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040625&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-19 11:56</a>
@@ -6327,16 +4284,10 @@ Yashio@so3_yashio</blockquote>
 必须双人开机的设定导致了必须一组一组设定角色，13队还好，9队连复制人大法都用出来强行削减戏份了……
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 2630#       发表于 2018-6-19 12:04
-
 
 
  本帖最后由 sherlockchu 于 2018-6-19 12:09 编辑 
@@ -6350,17 +4301,10 @@ Yashio@so3_yashio</blockquote>
 比现在这种莫名展开加温吞水节奏强多了。这个展开第7话也有铺垫，这是奇怪为什么锦织不走这个路线。
 
 
-
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2631#       发表于 2018-6-19 12:04
-
 
 
 <blockquote>fengzijiang 发表于 2018-6-19 11:59
@@ -6370,16 +4314,10 @@ Yashio@so3_yashio</blockquote>
 当然说不定这么改会更好，问题是我不觉得这是女性staff决定的而已。正如你说这个片子整个的调性就不太死人……
 
 
-
-
-
-
-
 -----
 
 ####  歌谭市的  
 ##### 2632#       发表于 2018-6-19 12:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040708&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-6-19 12:04</a>
@@ -6391,16 +4329,10 @@ Yashio@so3_yashio</blockquote>
 13-14话的时候我就在草莓楼里脑补了好几个最low展开，没想到全中了！想想自己那时候每天这么投入这部番，到现在自己已经完全扭曲，真是一种奇妙的追番体验啊
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 2633#       发表于 2018-6-19 12:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040793&amp;ptid=1712743" target="_blank">歌谭市的 发表于 2018-6-19 12:11</a>
@@ -6409,16 +4341,10 @@ Yashio@so3_yashio</blockquote>
 一话凑成1556还没成，不要慌……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 估计下一话就能看到了
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2634#       发表于 2018-6-19 12:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040708&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-6-19 12:04</a>
@@ -6429,16 +4355,10 @@ Yashio@so3_yashio</blockquote>
 没有张力……
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 2635#       发表于 2018-6-19 12:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040836&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-19 12:16</a>
@@ -6453,16 +4373,10 @@ Yashio@so3_yashio</blockquote>
 15话结束的时候，楼里脑补的双线展开也比后来强多了。
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2636#       发表于 2018-6-19 12:22
-
 
 
 <blockquote>sherlockchu 发表于 2018-6-19 12:04
@@ -6477,27 +4391,15 @@ Yashio@so3_yashio</blockquote>
 不过现在看看9a是个好学生plus，不是个爱调戏人却知道一切的强大的人话……这对反而就没意思啊……
 
 
-
-
-
-
-
 -----
 
 ####  知青王卫国  
 ##### 2637#       发表于 2018-6-19 12:22
 
 
-
-
 这集的对话很明显啊，博士故意带02来见阿广，因为他觉得这两位有可能觉醒啊
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -6506,14 +4408,7 @@ Yashio@so3_yashio</blockquote>
 ##### 2638#       发表于 2018-6-19 12:24
 
 
-
-
 薛定谔的觉醒，博士测试了21集，到最后也是含糊其辞“你们上机或许会有发生奇迹的可能”<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6522,21 +4417,13 @@ Yashio@so3_yashio</blockquote>
 ##### 2639#       发表于 2018-6-19 12:27
 
 
-
-
 科学家就是要不放过任何一种可能性 ，科学家的职责，没错啊
-
-
-
-
-
 
 
 -----
 
 ####  davidcch12  
 ##### 2640#       发表于 2018-6-19 12:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040933&amp;ptid=1712743" target="_blank">Fnaygih 发表于 2018-6-19 12:24</a>
@@ -6547,17 +4434,10 @@ Yashio@so3_yashio</blockquote>
 科学家的严谨√<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 2641#       发表于 2018-6-19 12:27
-
-
 
 
 郁乃白头
@@ -6570,16 +4450,10 @@ Yashio@so3_yashio</blockquote>
 五郎已经不战而胜<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2642#       发表于 2018-6-19 12:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040933&amp;ptid=1712743" target="_blank">Fnaygih 发表于 2018-6-19 12:24</a>
@@ -6587,16 +4461,10 @@ Yashio@so3_yashio</blockquote>
 锦织这是连糊弄都懒得糊弄了
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2643#       发表于 2018-6-19 12:29
-
 
 
 <blockquote>Fnaygih 发表于 2018-6-19 12:27
@@ -6611,16 +4479,10 @@ Yashio@so3_yashio</blockquote>
 这仨人这状态岂不是反而更有可能……
 
 
-
-
-
-
-
 -----
 
 ####  skives  
 ##### 2644#       发表于 2018-6-19 12:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040933&amp;ptid=1712743" target="_blank">Fnaygih 发表于 2018-6-19 12:24</a>
@@ -6628,16 +4490,10 @@ Yashio@so3_yashio</blockquote>
 第六集和十五集难道不算觉醒嘛<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 2645#       发表于 2018-6-19 12:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040956&amp;ptid=1712743" target="_blank">Fnaygih 发表于 2018-06-19 12:27:34</a>
@@ -6653,16 +4509,10 @@ Yashio@so3_yashio</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 2646#       发表于 2018-6-19 12:29
-
 
 
  本帖最后由 sherlockchu 于 2018-6-19 12:44 编辑 
@@ -6703,16 +4553,10 @@ Yashio@so3_yashio</blockquote>
 （3）：看来我是想多了
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 2647#       发表于 2018-6-19 12:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040956&amp;ptid=1712743" target="_blank">Fnaygih 发表于 2018-6-19 12:27</a>
@@ -6725,17 +4569,10 @@ Yashio@so3_yashio</blockquote>
 15话就有假药说了：五郎真谋士！<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 2648#       发表于 2018-6-19 12:33
-
-
 
 
 现在就不要一|本道地扯五郎死了
@@ -6744,17 +4581,10 @@ Yashio@so3_yashio</blockquote>
 长期混专楼的都知道，五郎死是给广莓黄莓的假药让个路，推剧情什么的其实都是附带<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2649#       发表于 2018-6-19 12:34
-
-
 
 
 我和大和抚子的互动是为了干什么，还留下了大和抚子这个词一直不解释。
@@ -6765,16 +4595,10 @@ Yashio@so3_yashio</blockquote>
 下话虽然有可能被大和抚子拯救但这个概率……嘛……隔壁还有个  016和196……再怎么讲也是13队优先。
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 2650#       发表于 2018-6-19 12:36
-
 
 
  本帖最后由 华尔姬丽雅 于 2018-6-19 12:37 编辑 
@@ -6788,16 +4612,10 @@ Yashio@so3_yashio</blockquote>
 颇有点不管正方（叫龙）反方（virm），都不如人类最政确，谈恋爱赛高，不谈恋爱的都gg的意思。
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2651#       发表于 2018-6-19 12:36
-
 
 
 <blockquote>9α 发表于 2018-6-19 12:34
@@ -6809,16 +4627,10 @@ Yashio@so3_yashio</blockquote>
 下集莓大爆发，三救你们仨怎么样……
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 2652#       发表于 2018-6-19 12:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40040988&amp;ptid=1712743" target="_blank">skives 发表于 2018-6-19 12:29</a>
@@ -6827,16 +4639,10 @@ Yashio@so3_yashio</blockquote>
 都测试两次了，第三次博士也不敢肯定，你好歹随口扯个概率糊弄一下02和屏幕前的吃瓜群众吧，欺负人02没文化吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2653#       发表于 2018-6-19 12:37
-
 
 
 <blockquote>华尔姬丽雅 发表于 2018-6-19 12:36
@@ -6848,32 +4654,19 @@ Yashio@so3_yashio</blockquote>
 叫龙不就是叫龙人男女化成的吗？开机也和franxx差不多啊？怎么会成了坚信孤独最强？
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 2654#       发表于 2018-6-19 12:39
 
 
-
-
 NW那期还特地把“大和抚子”作为关键词提了一下<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  sherlockchu  
 ##### 2655#       发表于 2018-6-19 12:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041034&amp;ptid=1712743" target="_blank">Fnaygih 发表于 2018-6-19 12:33</a>
@@ -6891,17 +4684,10 @@ NW那期还特地把“大和抚子”作为关键词提了一下<img src="https
 算了，反正现在说什么也没意义了。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2656#       发表于 2018-6-19 12:42
-
-
 
 
 大葉はまち@O_hamachi
@@ -6924,16 +4710,10 @@ NW那期还特地把“大和抚子”作为关键词提了一下<img src="https
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fsgdyjcy1wj20lj0mh40r.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 2657#       发表于 2018-6-19 12:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041049&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-19 12:34</a>
@@ -6946,16 +4726,10 @@ NW那期还特地把“大和抚子”作为关键词提了一下<img src="https
 只能说，那句“大和抚子”就是锦织脑子一拍想出来的，没什么特别意义
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2658#       发表于 2018-6-19 12:43
-
 
 
 <blockquote>Fnaygih 发表于 2018-6-19 12:39
@@ -6965,17 +4739,10 @@ NW那期还特地把“大和抚子”作为关键词提了一下</blockquote>
 9a为什么这么说？当然是因为56把剧本暂时分享给他看了一眼啊。
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 2659#       发表于 2018-6-19 12:43
-
-
 
 
 还有三集
@@ -6987,32 +4754,19 @@ emmmmmmm
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  新人马甲2  
 ##### 2660#       发表于 2018-6-19 12:44
 
 
-
-
 所以没有人吐槽为什么心长角了吗
-
-
-
-
-
 
 
 -----
 
 ####  davidcch12  
 ##### 2661#       发表于 2018-6-19 12:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041124&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-6-19 12:39</a>
@@ -7024,16 +4778,10 @@ emmmmmmm
 我当初觉得五郎肯定是扎姆德男二走向<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 2662#       发表于 2018-6-19 12:46
-
 
 
  本帖最后由 华尔姬丽雅 于 2018-6-19 12:47 编辑 
@@ -7051,32 +4799,19 @@ emmmmmmm
 当然最最奇怪的还是，20集001还一口一个“羁绊”“人类掠夺地底流淌的我等羁绊”“这是我等羁绊诞生出的结晶”，21集就“我们舍弃了链接”“孤独才能变强”……
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 2663#       发表于 2018-6-19 12:48
 
 
-
-
 大和抚子这种词不像是普通孩子能说得出来的词，和kiss这种词一样，可能预示着9队(包括02)获得过旧世界的资料
-
-
-
-
-
 
 
 -----
 
 ####  Fnaygih  
 ##### 2664#       发表于 2018-6-19 12:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041124&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-6-19 12:39</a>
@@ -7091,17 +4826,10 @@ emmmmmmm
   
 
 
-
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 2665#       发表于 2018-6-19 12:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041209&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-19 12:46</a>
@@ -7112,33 +4840,20 @@ emmmmmmm
 为了守护地球的羁绊以及为了守护地球舍弃了链接，没问题啊
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 2666#       发表于 2018-6-19 12:52
 
 
-
-
 锦织估计脑子已经成了一团浆糊了
 反正博士和龙妈也死了，谁知道他们想干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  猫白羽毛  
 ##### 2667#       发表于 2018-6-19 12:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041162&amp;ptid=1712743" target="_blank">xingenge 发表于 2018-6-19 12:42</a>
@@ -7150,16 +4865,10 @@ emmmmmmm
 02身材好粉头发真的很适合和服唉
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2668#       发表于 2018-6-19 12:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041171&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-6-19 12:43</a>
@@ -7169,16 +4878,10 @@ emmmmmmm
 我现在指望着这个词当免死金牌呢<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 2669#       发表于 2018-6-19 12:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041247&amp;ptid=1712743" target="_blank">Fnaygih 发表于 2018-6-19 12:49</a>
@@ -7193,16 +4896,10 @@ emmmmmmm
 虽然泥潭现在不待见心满，真要找点有意思的，一般动画里见不到的，也就是心满了。可惜16-18的温吞剧情和失忆的脑残展开把心满的部分搞砸了。
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 2670#       发表于 2018-6-19 12:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041304&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-19 12:54</a>
@@ -7217,16 +4914,10 @@ emmmmmmm
 除了拿你的命换02的命，还真没什么挂你的理由
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2671#       发表于 2018-6-19 12:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041332&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-6-19 12:56</a>
@@ -7238,16 +4929,10 @@ emmmmmmm
 9队这话就偏偏死了对不是口罩妹的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 2672#       发表于 2018-6-19 12:59
-
 
 
  本帖最后由 华尔姬丽雅 于 2018-6-19 13:00 编辑 
@@ -7261,17 +4946,10 @@ emmmmmmm
 好歹给个展示她“孤独会变强”的佐证也好（结果最后上星实体都是带着广去的），没有，就空口白话我们是孤独的，然后就可以作为“选择了孤独”的那一方去祝福没有舍弃链接还是lovelove的0216了——不觉得很诡异么。
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 2673#       发表于 2018-6-19 13:00
-
-
 
 
 9α现在这个样子很像娘娘这几年配的自大角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">,但论反派程度又比那几个差得远,感觉不上不下的
@@ -7279,16 +4957,10 @@ emmmmmmm
 心满的问题就是拖沓,三话的时间有一大半都讲他们,说他们时候世界观那部分不是没描写但基本被抢风头
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 2674#       发表于 2018-6-19 13:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041242&amp;ptid=1712743" target="_blank">fengzijiang 发表于 2018-6-19 12:48</a>
@@ -7298,16 +4970,10 @@ emmmmmmm
 黄毛也不知道这个词啥意思，总听博士念叨，觉得这词用起来挺时髦的，又不好意思对队里的绿毛佐仓用，好不容易找到草莓就使劲用。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 2675#       发表于 2018-6-19 13:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041355&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-19 12:59</a>
@@ -7318,16 +4984,10 @@ emmmmmmm
 可能3P就可以变得非常强大吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 2676#       发表于 2018-6-19 13:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041355&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-19 12:59</a>
@@ -7342,29 +5002,15 @@ emmmmmmm
 最后你当她不懂爱就行了，看见216想赌一把在他们身上
 
 
-
-
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2677#       发表于 2018-6-19 13:08
 
 
-
-
 教育和社交真的很重要
 
 ——九队血书
-
-
-
-
-
 
 
 -----
@@ -7373,14 +5019,7 @@ emmmmmmm
 ##### 2678#       发表于 2018-6-19 13:09
 
 
-
-
 最后三集了可以预测便当了 我猜 9队组 胖哥组 02全部阵亡。
-
-
-
-
-
 
 
 -----
@@ -7389,21 +5028,13 @@ emmmmmmm
 ##### 2679#       发表于 2018-6-19 13:11
 
 
-
-
 我猜最后结局是很多很多年后，所以除了16是叫龙人和02的灵体外全员死，但可以是寿终正寝的善终，也算每个人的人生明明白白了
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 2680#       发表于 2018-6-19 13:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041446&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-19 13:08</a>
@@ -7424,16 +5055,10 @@ virm离开之后，为了备战则是：
 哪里能看出叫龙的选择是“舍弃了链接”啊……
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 2681#       发表于 2018-6-19 13:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041491&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-19 13:11</a>
@@ -7444,16 +5069,10 @@ virm离开之后，为了备战则是：
 其实可以硬掰，两个人住在一起，连个交流都没有，当然孤独。只有天天说情话，kiss一下，结个婚，生个孩子才叫不孤独啊
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 2682#       发表于 2018-6-19 13:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041491&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-19 13:11</a>
@@ -7467,16 +5086,10 @@ virm离开之后，为了备战则是：
 叫龙虽然也是男女结合，但已经变成纯粹的兵器了
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 2683#       发表于 2018-6-19 13:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041491&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-19 13:11</a>
@@ -7488,16 +5101,10 @@ virm离开之后，为了备战则是：
 20集说了啊，个体之间没有了交流
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 2684#       发表于 2018-6-19 13:18
-
 
 
  本帖最后由 华尔姬丽雅 于 2018-6-19 13:22 编辑 
@@ -7510,32 +5117,19 @@ virm离开之后，为了备战则是：
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但是这片的核心观点是赞美爱情。
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 2685#       发表于 2018-6-19 13:24
 
 
-
-
 真要赞美爱情早就5对CP齐发狗粮了
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 2686#       发表于 2018-6-19 13:26
-
 
 
  本帖最后由 9α 于 2018-6-19 13:31 编辑 
@@ -7546,16 +5140,10 @@ virm离开之后，为了备战则是：
 舍弃感情支配又要被逼迫被感情支配<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 2687#       发表于 2018-6-19 13:26
-
 
 
  本帖最后由 sherlockchu 于 2018-6-19 13:29 编辑 
@@ -7589,16 +5177,10 @@ virm离开之后，为了备战则是：
 无论如何，锦织是没解释清楚的。只能由观众自己推理咯。
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2688#       发表于 2018-6-19 13:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041681&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-6-19 13:26</a>
@@ -7609,16 +5191,10 @@ virm离开之后，为了备战则是：
 博士已经变成酱啦<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 2689#       发表于 2018-6-19 13:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041681&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-6-19 13:26</a>
@@ -7632,32 +5208,19 @@ virm离开之后，为了备战则是：
 至于博士为啥不干，还有一种可能就是只有极少数案例（比如某个九队成员）有叫龙人化倾向，剩下的都像汁男一样三次就挂点。而九队成员数量并不多，出于战力考虑APE不可能让他拿他们随便实验吧。
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 2690#       发表于 2018-6-19 13:32
 
 
-
-
 还有漫画啊，漫画里的博士还活着<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  sherlockchu  
 ##### 2691#       发表于 2018-6-19 13:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041744&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-19 13:31</a>
@@ -7669,16 +5232,10 @@ virm离开之后，为了备战则是：
 好吧，我承认这是挑刺了。
 
 
-
-
-
-
-
 -----
 
 ####  patema  
 ##### 2692#       发表于 2018-6-19 13:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041353&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-19 12:58</a>
@@ -7689,16 +5246,10 @@ virm离开之后，为了备战则是：
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">背景人吧
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 2693#       发表于 2018-6-19 13:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041744&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-19 13:31</a>
@@ -7710,16 +5261,10 @@ virm离开之后，为了备战则是：
 这个状况可以排除。这个肯定留下数据，博士这样的叫龙厨不可能放过实验机会。
 
 
-
-
-
-
-
 -----
 
 ####  黑色蘑菇  
 ##### 2694#       发表于 2018-6-19 13:35
-
 
 
 <blockquote>sherlockchu 发表于 2018-6-19 13:33
@@ -7732,27 +5277,15 @@ virm离开之后，为了备战则是：
 这样02就是大家的麻麻了
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 2695#       发表于 2018-6-19 13:35
 
 
-
-
 说起来漫画怎么又摸了一回……
 
 上次摸鱼之后爆出了九式大战鹤望兰和9队成员雌雄（蕊）同体的料，这次摸鱼之后不知道会爆啥。
-
-
-
-
-
 
 
 -----
@@ -7761,23 +5294,16 @@ virm离开之后，为了备战则是：
 ##### 2696#       发表于 2018-6-19 13:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041171&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-6-19 12:43</a>
 
 只能说，那句“大和抚子”就是锦织脑子一拍想出来的，没什么特别意义</blockquote>
 塑造成品学兼优的尖子生，对比普通驾驶员，随意开开玩笑来体现他们更像人，和之后却是坚定的爸爸派形成反差。试想如果12话遇到时就是一副冷冰冰的表情对13队，到17话他们查岗时恐怕早就提防着了。
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 2697#       发表于 2018-6-19 13:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041795&amp;ptid=1712743" target="_blank">黑色蘑菇 发表于 2018-6-19 13:35</a>
@@ -7789,16 +5315,10 @@ virm离开之后，为了备战则是：
 02把自己的孩子们暴打了一顿……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 2698#       发表于 2018-6-19 13:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041771&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-6-19 13:33</a>
@@ -7812,16 +5332,10 @@ virm离开之后，为了备战则是：
 当然也可能有更惊悚的，9s也有克隆，那就是花园里的孩子们，降低了要求产量大成活率高但是成材率低<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑色蘑菇  
 ##### 2699#       发表于 2018-6-19 13:37
-
 
 
 <blockquote>sherlockchu 发表于 2018-6-19 13:36
@@ -7834,16 +5348,10 @@ virm离开之后，为了备战则是：
 艹麻
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 2700#       发表于 2018-6-19 13:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041824&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-19 13:37</a>
@@ -7851,16 +5359,10 @@ virm离开之后，为了备战则是：
 一个思路：黄血球就是从9队身上提炼，再用生物技术量产的。
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2701#       发表于 2018-6-19 13:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041786&amp;ptid=1712743" target="_blank">patema 发表于 2018-6-19 13:34</a>
@@ -7872,16 +5374,10 @@ virm离开之后，为了备战则是：
 我是单的……
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 2702#       发表于 2018-6-19 13:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041844&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-19 13:38</a>
@@ -7892,32 +5388,19 @@ virm离开之后，为了备战则是：
 队长是大家的<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  小红飞翼  
 ##### 2703#       发表于 2018-6-19 13:39
 
 
-
-
 下集就送9队去见它同伴。
-
-
-
-
-
 
 
 -----
 
 ####  猫白羽毛  
 ##### 2704#       发表于 2018-6-19 13:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041827&amp;ptid=1712743" target="_blank">黑色蘑菇 发表于 2018-6-19 13:37</a>
@@ -7931,16 +5414,10 @@ virm离开之后，为了备战则是：
 广：你艹不到的麻我来艹！
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2705#       发表于 2018-6-19 13:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041849&amp;ptid=1712743" target="_blank">davidcch12 发表于 2018-6-19 13:39</a>
@@ -7949,32 +5426,19 @@ virm离开之后，为了备战则是：
 小绿……小紫……<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 2706#       发表于 2018-6-19 13:49
 
 
-
-
 5532变成兄妹恋，充分证明了216柏拉图爱情的正当性<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  patema  
 ##### 2707#       发表于 2018-6-19 13:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041844&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-19 13:38</a>
@@ -7985,16 +5449,10 @@ virm离开之后，为了备战则是：
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">直接去这样就可以见奶奶博士和小绿小紫了
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2708#       发表于 2018-6-19 13:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041964&amp;ptid=1712743" target="_blank">patema 发表于 2018-6-19 13:50</a>
@@ -8009,16 +5467,10 @@ virm离开之后，为了备战则是：
 <img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mumubear  
 ##### 2709#       发表于 2018-6-19 13:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40041815&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-6-19 13:36</a>
@@ -8030,16 +5482,10 @@ virm离开之后，为了备战则是：
 打了黄血球，大家都是一家人。。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 2710#       发表于 2018-6-19 14:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40042031&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-19 13:56</a>
@@ -8050,16 +5496,10 @@ virm离开之后，为了备战则是：
 你先跟你爸去救你妈吧
 
 
-
-
-
-
-
 -----
 
 ####  黑色蘑菇  
 ##### 2711#       发表于 2018-6-19 14:05
-
 
 
 <blockquote>9α 发表于 2018-6-19 13:56
@@ -8074,17 +5514,10 @@ virm离开之后，为了备战则是：
 真是惨
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 2712#       发表于 2018-6-19 14:09
-
-
 
 
 我一直决定  克隆属于同辈分吧？
@@ -8096,16 +5529,10 @@ virm离开之后，为了备战则是：
 博士是父亲辈分没错  博士创造了002 9A等
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2713#       发表于 2018-6-19 14:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40042136&amp;ptid=1712743" target="_blank">黑色蘑菇 发表于 2018-6-19 14:05</a>
@@ -8123,16 +5550,10 @@ virm离开之后，为了备战则是：
 教导主任说不咱们学校学生都不参加高考了，撕了大家的高考报名表之后跑了
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2714#       发表于 2018-6-19 14:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40042136&amp;ptid=1712743" target="_blank">黑色蘑菇 发表于 2018-6-19 14:05</a>
@@ -8146,17 +5567,10 @@ virm离开之后，为了备战则是：
 只能由我这个队长振作起来照顾他们了。
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 2715#       发表于 2018-6-19 14:12
-
-
 
 
 你国一下子成伦理大片了……
@@ -8171,16 +5585,10 @@ virm离开之后，为了备战则是：
 16：Nooooooooo！<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  soulife7  
 ##### 2716#       发表于 2018-6-19 14:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40042178&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-06-19 14:09:37</a>
@@ -8195,16 +5603,10 @@ virm离开之后，为了备战则是：
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 2717#       发表于 2018-6-19 14:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40042185&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-19 14:10</a>
@@ -8215,16 +5617,10 @@ virm离开之后，为了备战则是：
 给你个提示，你妈虽然跟你们关系不好，但是你妈听你爸的
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2718#       发表于 2018-6-19 14:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40042200&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-6-19 14:12</a>
@@ -8235,27 +5631,15 @@ virm离开之后，为了备战则是：
 我弗了<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2719#       发表于 2018-6-19 14:14
 
 
-
-
 记得谁曾在专楼说要申小绿戏服……
 如果泥潭当时没停止注册
 可能专楼这周在开追悼会<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8264,22 +5648,14 @@ virm离开之后，为了备战则是：
 ##### 2720#       发表于 2018-6-19 14:16
 
 
-
-
 行了我知道了，jzgg的思想中心就是：你们可以一边恋爱一边战斗两不误的。。
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 2721#       发表于 2018-6-19 14:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40042178&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-19 14:09</a>
@@ -8295,16 +5671,10 @@ virm离开之后，为了备战则是：
 博士是父亲
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 2722#       发表于 2018-6-19 14:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40042215&amp;ptid=1712743" target="_blank">9α 发表于 2018-06-19 14:14:03</a>
@@ -8318,26 +5688,15 @@ virm离开之后，为了备战则是：
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2723#       发表于 2018-6-19 14:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40042211&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-19 14:12</a>
 给你个提示，你妈虽然跟你们关系不好，但是你妈听你爸的</blockquote>
 016没和iota妈结婚，现在不算<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8346,24 +5705,16 @@ virm离开之后，为了备战则是：
 ##### 2724#       发表于 2018-6-19 14:19
 
 
-
-
 若是所有人都能和02攀上血缘关系……
 
 
 感觉上一个那么凶残的角色还是泽越止 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑色蘑菇  
 ##### 2725#       发表于 2018-6-19 14:21
-
 
 
 <blockquote>猫白羽毛 发表于 2018-6-19 14:09
@@ -8379,16 +5730,10 @@ virm离开之后，为了备战则是：
 这样一想就更惨了
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 2726#       发表于 2018-6-19 14:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40042265&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-19 14:18</a>
@@ -8397,16 +5742,10 @@ virm离开之后，为了备战则是：
 接受吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  戏谑二次元  
 ##### 2727#       发表于 2018-6-19 14:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40042265&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-19 14:18</a>
@@ -8415,16 +5754,10 @@ virm离开之后，为了备战则是：
 以后他两结婚，你认了亲，再和草莓结婚，嗯，这阿莓不就成了打婆婆的了么，还打了好几次<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2728#       发表于 2018-6-19 14:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40042300&amp;ptid=1712743" target="_blank">黑色蘑菇 发表于 2018-6-19 14:21</a>
@@ -8437,16 +5770,10 @@ virm离开之后，为了备战则是：
 便当太麻烦浪费时间，不带不带
 
 
-
-
-
-
-
 -----
 
 ####  Shylia  
 ##### 2729#       发表于 2018-6-19 14:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40042300&amp;ptid=1712743" target="_blank">黑色蘑菇 发表于 2018-6-19 14:21</a>
@@ -8459,16 +5786,10 @@ virm离开之后，为了备战则是：
  但是现在一想，手册还在9a手上，一下子心满恢复记忆的道具多了，虽然我有预感这手册之后不是为心满准备的。
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 2730#       发表于 2018-6-19 14:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40042365&amp;ptid=1712743" target="_blank">戏谑二次元 发表于 2018-6-19 14:26</a>
@@ -8477,16 +5798,10 @@ virm离开之后，为了备战则是：
 停一下 停一下 我们这里不是家庭伦理剧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2731#       发表于 2018-6-19 14:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40042365&amp;ptid=1712743" target="_blank">戏谑二次元 发表于 2018-6-19 14:26</a>
@@ -8496,18 +5811,10 @@ virm离开之后，为了备战则是：
 14话iota妈也打了大和抚子和她的队员，她们扯平了。
 
 
-
-
-
-
-
-
-
 -----
 
 ####  黑色蘑菇  
 ##### 2732#       发表于 2018-6-19 14:31
-
 
 
 <blockquote>davidcch12 发表于 2018-6-19 14:29
@@ -8517,25 +5824,13 @@ virm离开之后，为了备战则是：
 21集的开萝卜换成车祸毫无违和感
 
 
-
-
-
-
-
 -----
 
 ####  猪的报恩  
 ##### 2733#       发表于 2018-6-19 14:33
 
 
-
-
 你们真能想象，体内有了点别人的血就能和别人扯上亲子关系？那医院里那么多接受输血的患者还活不活了？
-
-
-
-
-
 
 
 -----
@@ -8544,21 +5839,13 @@ virm离开之后，为了备战则是：
 ##### 2734#       发表于 2018-6-19 14:35
 
 
-
-
 心满记忆回流的基点估计是胖哥之死 胖哥是他们感情的见证人
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 2735#       发表于 2018-6-19 14:37
-
 
 
  本帖最后由 9α 于 2018-6-19 14:40 编辑 
@@ -8573,16 +5860,10 @@ virm离开之后，为了备战则是：
 没有iota妈就不会有我们<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2736#       发表于 2018-6-19 14:38
-
 
 
 <blockquote>Meteors 发表于 2018-6-19 14:16
@@ -8598,32 +5879,19 @@ virm离开之后，为了备战则是：
 其实话说一开始就像21集一样的绝望氛围倒是挺好的，现在前面无力让后面展开也断层了。
 
 
-
-
-
-
-
 -----
 
 ####  六花自我中  
 ##### 2737#       发表于 2018-6-19 14:44
 
 
-
-
 你们开始猜13小队是克隆什么的 结果02  柰子小队这边才是一堆bkb
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 2738#       发表于 2018-6-19 14:44
-
 
 
 <blockquote>Shylia 发表于 2018-6-19 14:28
@@ -8637,17 +5905,10 @@ virm离开之后，为了备战则是：
 说来一个很可怕的事实是他们虽然知道结婚和亲吻是重要的人才能做，是1v1的，但繁衍后代这个和谁一起好像没人教。这个社会的伦理理论上会很不正常了……（虽然大概会变成这方面的伦理无师自通吧）
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 2739#       发表于 2018-6-19 14:45
-
-
 
 
 其实我挺好奇锦织为啥要把15集和21集做得这么像……
@@ -8655,16 +5916,10 @@ virm离开之后，为了备战则是：
 之前pro、pro的算楼里随便说说，15和21的相似度已经属于双胞胎程度的了，why啊，真为了扯平？
 
 
-
-
-
-
-
 -----
 
 ####  黑色蘑菇  
 ##### 2740#       发表于 2018-6-19 14:48
-
 
 
 <blockquote>华尔姬丽雅 发表于 2018-6-19 14:45
@@ -8678,17 +5933,10 @@ virm离开之后，为了备战则是：
 lovelovepower轰上了宇宙
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2741#       发表于 2018-6-19 14:49
-
-
 
 
 15话我们9队也没抢什么风头啊……
@@ -8696,16 +5944,10 @@ lovelovepower轰上了宇宙
 到是我从冷静变疯掉了。
 
 
-
-
-
-
-
 -----
 
 ####  猪的报恩  
 ##### 2742#       发表于 2018-6-19 14:52
-
 
 
 <blockquote>9α 发表于 2018-6-19 14:37
@@ -8717,32 +5959,19 @@ lovelovepower轰上了宇宙
 9s队（现在是6s）是02克隆不假，可是楼里的假药商竟能制出“全体驾驶员都有02血脉，所以阿广和02都有亲子关系”这种假药，简直丧心病狂没法看…
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2743#       发表于 2018-6-19 14:56
 
 
-
-
 如果02、9s年龄正常生长，明显比78那一代驾驶员小，可见根本不可能驾驶员是02或者9s克隆吧
-
-
-
-
-
 
 
 -----
 
 ####  不再是小孩子了  
 ##### 2744#       发表于 2018-6-19 15:06
-
 
 
 <blockquote>华尔姬丽雅 发表于 2018-6-19 14:45
@@ -8756,16 +5985,10 @@ lovelovepower轰上了宇宙
 欢欢喜喜过七夕
 
 
-
-
-
-
-
 -----
 
 ####  Shylia  
 ##### 2745#       发表于 2018-6-19 15:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40042596&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-19 14:44</a>
@@ -8779,16 +6002,10 @@ lovelovepower轰上了宇宙
 不过你这么想，锦织可以放飞自我，结局死四个雌蕊或者四个雄蕊，剩下单个收五个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
 
 
-
-
-
-
-
 -----
 
 ####  暮云雨凝  
 ##### 2746#       发表于 2018-6-19 15:11
-
 
 
 <blockquote>玖瑶君 发表于 2018-6-19 14:44
@@ -8800,17 +6017,10 @@ lovelovepower轰上了宇宙
 冲现在给的喊名字就会头痛，想起来是一定的了，看看7也知道了，从逐渐头痛到记忆闪回
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2747#       发表于 2018-6-19 15:14
-
-
 
 
 α——沉香
@@ -8821,17 +6031,10 @@ lovelovepower轰上了宇宙
 综上所述，α拉02回九队其实是沉香救母
 
 
-
-
-
-
-
 -----
 
 ####  kyota  
 ##### 2748#       发表于 2018-6-19 15:16
-
-
 
 
 舍弃链接我觉得挺懵的。
@@ -8842,17 +6045,10 @@ lovelovepower轰上了宇宙
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  02016  
 ##### 2749#       发表于 2018-6-19 15:26
-
-
 
 
 重看以前的访谈，发现BD2的广播剧太那段孤独美食家梗是帮后藤完成心愿<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
@@ -8863,17 +6059,10 @@ lovelovepower轰上了宇宙
 后藤：我们还想着能推出广播剧就好了！另外太是不是可以去出演《孤独的美食家》啊，只要在那儿吃东西就好了
 
 
-
-
-
-
-
 -----
 
 ####  kyota  
 ##### 2750#       发表于 2018-6-19 15:50
-
-
 
 
 居然还有人觉得0216柏拉图恋爱的<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">现在0216是每话都要啃，有时还要啃好几口。我觉得这个动画里并不常见…可能是我头发短吧
@@ -8883,16 +6072,10 @@ lovelovepower轰上了宇宙
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Shylia  
 ##### 2751#       发表于 2018-6-19 16:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40043312&amp;ptid=1712743" target="_blank">kyota 发表于 2018-6-19 15:50</a>
@@ -8901,16 +6084,10 @@ lovelovepower轰上了宇宙
 这个是对比心满的，那边上床这边也就天天画画聊天以及人类看不懂的角交。本垒，生子都没有也就罢了，之前承诺的而且双方都记着的结婚居然都是别人的，这就让观众很不理解了。
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 2752#       发表于 2018-6-19 16:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40043312&amp;ptid=1712743" target="_blank">kyota 发表于 2018-6-19 15:50</a>
@@ -8925,16 +6102,10 @@ lovelovepower轰上了宇宙
 如果只有这对也就算了，对比下心满……去掉例行啃嘴简直可以说这两人的相处状态是老夫老妻相敬如宾那种风格的。
 
 
-
-
-
-
-
 -----
 
 ####  patema  
 ##### 2753#       发表于 2018-6-19 16:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40042185&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-19 14:10</a>
@@ -8945,17 +6116,10 @@ lovelovepower轰上了宇宙
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">这样就可以锤爆v星人救回爸爸了
 
 
-
-
-
-
-
 -----
 
 ####  闪亮的彗星  
 ##### 2754#       发表于 2018-6-19 16:22
-
-
 
 
 恋人个jb，啃啃只是因为16味道比较好而已
@@ -8963,16 +6127,10 @@ lovelovepower轰上了宇宙
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2755#       发表于 2018-6-19 16:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40043513&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-19 16:08</a>
@@ -8984,16 +6142,10 @@ lovelovepower轰上了宇宙
 老夫老妻也要交公粮的<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 2756#       发表于 2018-6-19 16:22
-
 
 
 <blockquote>栗悟饭177 发表于 2018-6-19 05:58
@@ -9003,32 +6155,19 @@ lovelovepower轰上了宇宙
 一定是太扯了所以我选择性失忆了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 2757#       发表于 2018-6-19 16:24
 
 
-
-
 最后一话三啃，回忆的时候啃一下，救的时候啃一下，救出来以后啃一下
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 2758#       发表于 2018-6-19 16:25
-
 
 
  本帖最后由 xyau 于 2018-6-19 16:29 编辑 
@@ -9042,27 +6181,15 @@ BD3倒计时8天
 <img src="https://i.imgur.com/INFHk9N.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 2759#       发表于 2018-6-19 16:41
 
 
-
-
 他们这个相处模式不是挺好的吗<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">除了灵儿攻气不足
 
 不过15话的时候也有预料到，以她现在的心态不会像原来撩阿广那样了
-
-
-
-
-
 
 
 -----
@@ -9071,14 +6198,7 @@ BD3倒计时8天
 ##### 2760#       发表于 2018-6-19 16:45
 
 
-
-
 毕竟片名就是和达令在湖南啃嘴
-
-
-
-
-
 
 
 -----
@@ -9087,16 +6207,10 @@ BD3倒计时8天
 ##### 2761#       发表于 2018-6-19 16:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40043949&amp;ptid=1712743" target="_blank">skives 发表于 2018-6-19 16:45</a>
 毕竟片名就是和达令在湖南啃嘴</blockquote>
 湖南课室<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 他们是湖南大学学生会的呢
-
-
-
-
-
 
 
 -----
@@ -9105,16 +6219,9 @@ BD3倒计时8天
 ##### 2762#       发表于 2018-6-19 16:51
 
 
-
-
 湖南啃嘴啃到的不都是臭豆腐吗……
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -9123,23 +6230,15 @@ BD3倒计时8天
 ##### 2763#       发表于 2018-6-19 16:52
 
 
-
-
 ……我哭前就不会撩人了。
 
 17话后就丢失了什么<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 2764#       发表于 2018-6-19 16:54
-
 
 
 <blockquote>9α 发表于 2018-6-19 16:52
@@ -9149,16 +6248,10 @@ BD3倒计时8天
 因为爸爸只教了撩人没教怎么造人？
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2765#       发表于 2018-6-19 16:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40044076&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-19 16:54</a>
@@ -9171,19 +6264,10 @@ BD3倒计时8天
 造人具体肯定没人教，估计大致清楚旧人类有这行为。
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 2766#       发表于 2018-6-19 17:00
-
 
 
  本帖最后由 华尔姬丽雅 于 2018-6-19 17:02 编辑 
@@ -9199,33 +6283,20 @@ BD3倒计时8天
 可能是前面在危险的边缘试探了太久，得强调下正当性……
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 2767#       发表于 2018-6-19 17:01
 
 
-
-
 我不知道应不应该以现实的经验来考虑动画，就我个人经验，夫妻之间谁当家有一部分是性格决定的，另外也有贡献的影响，说白了，就是谁赚钱多，谁就强势，谁欠对方的多，谁就得弱势一点。
 216前期的情况是，16只能依靠02，别无他选，所以02自然享有主动权。但是随着02发疯，作死，导致的结果就是02亏欠16，再加上把16变成叫龙人更是导致了夫妻之间关系不对等，使02处于一个非常尴尬的状态。换言之，就是扯不平啊。
-
-
-
-
-
 
 
 -----
 
 ####  不再是小孩子了  
 ##### 2768#       发表于 2018-6-19 17:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40043949&amp;ptid=1712743" target="_blank">skives 发表于 2018-6-19 16:45</a>
@@ -9235,16 +6306,10 @@ BD3倒计时8天
 <img src="https://media.giphy.com/media/c6VX6Rs0SLhxak9THp/giphy.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 2769#       发表于 2018-6-19 17:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40044134&amp;ptid=1712743" target="_blank">fengzijiang 发表于 2018-6-19 17:01</a>
@@ -9253,27 +6318,15 @@ BD3倒计时8天
 那现在呢，16是不是扯不平了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  soulife7  
 ##### 2770#       发表于 2018-6-19 17:13
 
 
-
-
 为了比翼鸟，16要做奉献，最后终于扯平了吧
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -9282,25 +6335,13 @@ BD3倒计时8天
 ##### 2771#       发表于 2018-6-19 17:14
 
 
-
-
 恋爱扯平是在恋爱还是在还债呢？
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  kyota  
 ##### 2772#       发表于 2018-6-19 17:17
-
-
 
 
 突然想到一个糟糕的可能性：
@@ -9311,16 +6352,10 @@ Darling in the frankxx
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2773#       发表于 2018-6-19 17:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40044299&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-19 17:14</a>
@@ -9328,16 +6363,10 @@ Darling in the frankxx
 具体应该这么做呢
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 2774#       发表于 2018-6-19 17:21
-
 
 
 <blockquote>kyota 发表于 2018-6-19 17:17
@@ -9349,32 +6378,19 @@ Darling in the frankxx
 这个不是早就有人想到了吗……
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 2775#       发表于 2018-6-19 17:22
 
 
-
-
 标题要融也应该是16融进去
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 2776#       发表于 2018-6-19 17:31
-
 
 
 <blockquote>kyota 发表于 2018-6-19 17:17
@@ -9388,27 +6404,15 @@ Darling in the frankxx
 以后就是和博士一样的机甲恋了
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 2777#       发表于 2018-6-19 17:36
 
 
-
-
 也可能是灵儿融进去
 
 “达令进入了我的身体<img src="https://static.saraba1st.com/image/smiley/carton2017/017.png" referrerpolicy="no-referrer">”
-
-
-
-
-
 
 
 -----
@@ -9417,24 +6421,16 @@ Darling in the frankxx
 ##### 2778#       发表于 2018-6-19 17:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40044196&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-19 17:05</a>
 那现在呢，16是不是扯不平了</blockquote>
 我觉得广迟早是要把02从鹤望兰里捞出来的，要么就是自己也进去，你看又扯不平了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 其实我的想法就是要想真正的扯平需要一个02视角的总集篇并给16看，假如说，仅仅是假如，02在#6时想要融入大家，结果16没想到，把02晾一边，寂寞的又想要变人，#7时发现16可能和别人kiss过，伤心了好久，大晚上跑去大海游泳，#9时送个破镜子，因此深受其害，#12，图书室里16下意识的颤抖导致02受到巨大的伤害，#14，怪物两个词对02造成成吨的伤害。02有错，16也有没做到的地方，02对16有恩，16对02也有恩，这样才能真正的做到扯平。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 2779#       发表于 2018-6-19 18:07
-
-
 
 
 □ 大裂隙外，VIRM宣告，吞并大人意识
@@ -9469,13 +6465,9 @@ Darling in the frankxx
 　02#20一直靠着左面墙壁前行，也因此留下了长长的血痕，其实也可当路标；#21换到右手撑墙，说明她已经转弯换道，故大裂隙底部的通道口到星实突入点不是一条直路相通；而不再留下血痕，大概是终于流干且终点在望了。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 5战斗力 +5
@@ -9489,12 +6481,7 @@ Darling in the frankxx
 | lion16house| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -9503,14 +6490,7 @@ Darling in the frankxx
 ##### 2780#       发表于 2018-6-19 18:19
 
 
-
-
 今晚22:30 [nico上映会](http://live.nicovideo.jp/watch/lv311929483)
-
-
-
-
-
 
 
 -----
@@ -9519,24 +6499,15 @@ Darling in the frankxx
 ##### 2781#       发表于 2018-6-19 18:24
 
 
-
-
 之前我还觉得扯平论虽然经常被拿来槽，但就是小情侣谈恋爱的嘴炮而已，饲料和怪物哪里扯得平……
 
 但21和15的巨大相似感给我一种……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">锦织不会是认真想“扯平”吧，的感觉。
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 2782#       发表于 2018-6-19 18:39
-
-
 
 
 中译成扯平，日文应该是一緒だ，直译感觉是都一样吧
@@ -9546,33 +6517,19 @@ Darling in the frankxx
 都会各种犯错、烦人，但这就是生活啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  步六孤  
 ##### 2783#       发表于 2018-6-19 18:40
 
 
-
-
 终于有空看这集了，锦织究竟在拍什么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 2784#       发表于 2018-6-19 18:49
-
-
 
 
 あんこたん＠ダリフラ考察 [@ankotan0629](https://twitter.com/ankotan0629/status/1009014696312107009)
@@ -9588,30 +6545,17 @@ Darling in the frankxx
 01说鹤望兰是同胞+阿拉斯加的叫龙尸骸像鹤望兰种子→鹤望兰由该尸骸直接改造而来
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 2785#       发表于 2018-6-19 18:59
 
 
-
-
 这算不算物理上扯平的写照？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
 
 
 red02kiss.jpg
 (304.63 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -9620,24 +6564,7 @@ red02kiss.jpg
 2018-6-19 18:58 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/19/185805l5795d9odqqhyc9m.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -9646,22 +6573,15 @@ red02kiss.jpg
 ##### 2786#       发表于 2018-6-19 19:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40045372&amp;ptid=1712743" target="_blank">Mr.BBWoLf 发表于 2018-6-19 18:59</a>
 这算不算物理上扯平的写照？</blockquote>
 笑死
-
-
-
-
-
 
 
 -----
 
 ####  梁山土鸡  
 ##### 2787#       发表于 2018-6-19 19:01
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怪不得外星人的小兵觉得在哪个游戏见过，搞半天原来是fate extella那个无双游戏里的小兵造型。
@@ -9676,32 +6596,19 @@ red02kiss.jpg
 ----发送自 [Sony LT29i,Android 4.3](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 2788#       发表于 2018-6-19 19:08
 
 
-
-
 这集N站好评，我估计够呛<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 2789#       发表于 2018-6-19 19:14
-
 
 
  本帖最后由 xyau 于 2018-6-19 19:15 编辑 
@@ -9715,33 +6622,19 @@ He will bring her back
 鹿角、白发、手上蓝血
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 2790#       发表于 2018-6-19 19:14
 
 
-
-
 看老外笑死了，最后一幕，黑妹哭了，黑哥狂暴，两个捂头，一个直接黑屏
-
-
-
-
-
 
 
 -----
 
 ####  AminGly  
 ##### 2791#       发表于 2018-6-19 19:16
-
-
 
 
 说点题外话
@@ -9757,16 +6650,10 @@ He will bring her back
 只要伤害来源不存在！就不需要抗伤害了（突然暴走）
 
 
-
-
-
-
-
 -----
 
 ####  不再是小孩子了  
 ##### 2792#       发表于 2018-6-19 19:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40045539&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-19 19:14</a>
@@ -9777,16 +6664,10 @@ He will bring her back</blockquote>
 <img src="http://is2.4chan.org/a/1529395367776.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2793#       发表于 2018-6-19 19:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40045547&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-19 19:14</a>
@@ -9794,16 +6675,10 @@ He will bring her back</blockquote>
 这么真实？
 
 
-
-
-
-
-
 -----
 
 ####  IWS2000  
 ##### 2794#       发表于 2018-6-19 19:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40045394&amp;ptid=1712743" target="_blank">梁山土鸡 发表于 2018-6-19 19:01</a>
@@ -9813,16 +6688,10 @@ He will bring her back</blockquote>
 那是啥<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Benighted  
 ##### 2795#       发表于 2018-6-19 19:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40045547&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-19 19:14</a>
@@ -9831,16 +6700,10 @@ He will bring her back</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">有合集吗
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 2796#       发表于 2018-6-19 19:24
-
 
 
 <blockquote>不再是小孩子了 发表于 2018-6-19 19:18
@@ -9850,26 +6713,15 @@ He will bring her back</blockquote>
 黑发色和蓝皮搭配根本就是叫龙本龙了
 
 
-
-
-
-
-
 -----
 
 ####  猪的报恩  
 ##### 2797#       发表于 2018-6-19 19:24
 
 
-
 <blockquote>栗悟饭177 发表于 2018-6-19 19:14
 看老外笑死了，最后一幕，黑妹哭了，黑哥狂暴，两个捂头，一个直接黑屏</blockquote>
 其实02变成灵体与阿广抚手重叠的时候黑姐就已经察觉不对并且有所警觉，而剩下的老哥们还tm在欢喜雀跃，对即将到来的悲剧一无所知，结尾时这帮子家伙错愕暴躁的样子还真逗乐…
-
-
-
-
-
 
 
 -----
@@ -9878,15 +6730,9 @@ He will bring her back</blockquote>
 ##### 2798#       发表于 2018-6-19 19:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40045636&amp;ptid=1712743" target="_blank">Benighted 发表于 2018-6-19 19:24</a>
 有合集吗</blockquote>
 b站有
-
-
-
-
-
 
 
 -----
@@ -9895,14 +6741,8 @@ b站有
 ##### 2799#       发表于 2018-6-19 19:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40045576&amp;ptid=1712743" target="_blank">不再是小孩子了 发表于 2018-6-19 19:18</a></blockquote>
 喷了，别搞到最后还是“我们身体里留着不同颜色的血液”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9911,16 +6751,10 @@ b站有
 ##### 2800#       发表于 2018-6-19 19:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40045547&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-19 19:14</a>
 
 看老外笑死了，最后一幕，黑妹哭了，黑哥狂暴，两个捂头，一个直接黑屏</blockquote>
 还没有调整好看片的状态<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9929,16 +6763,10 @@ b站有
 ##### 2801#       发表于 2018-6-19 19:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40045645&amp;ptid=1712743" target="_blank">猪的报恩 发表于 2018-6-19 19:24</a>
 
 其实02变成灵体与阿广抚手重叠的时候黑姐就已经察觉不对并且有所警觉，而剩下的老哥们还tm在欢喜雀跃，对 ...</blockquote>
 对，那时候黑妹就在waitwait,其他人还在笑嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9947,14 +6775,7 @@ b站有
 ##### 2802#       发表于 2018-6-19 19:37
 
 
-
-
 背后灵一出来我也觉得不对了，明明都在驾驶舱里，干嘛灵体
-
-
-
-
-
 
 
 -----
@@ -9963,22 +6784,13 @@ b站有
 ##### 2803#       发表于 2018-6-19 19:44
 
 
-
-
 这个手拍电叉跟交叉手炮是真的帅，金世俊牛逼
-
-
-
-
-
 
 
 -----
 
 ####  大江户战士  
 ##### 2804#       发表于 2018-6-19 19:51
-
-
 
 
 @_rakuku
@@ -9993,30 +6805,13 @@ b站有
 2018-6-19 19:50 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 2805#       发表于 2018-6-19 19:52
 
 
-
-
 粉毛红衣服的男孩子还是觉得有点奇怪……
-
-
-
-
-
 
 
 -----
@@ -10025,16 +6820,9 @@ b站有
 ##### 2806#       发表于 2018-6-19 19:54
 
 
-
-
 金哥哥是真的牛逼，希望后面还有<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -10043,16 +6831,10 @@ b站有
 ##### 2807#       发表于 2018-6-19 19:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40045645&amp;ptid=1712743" target="_blank">猪的报恩 发表于 2018-06-19 19:24:59</a>
 其实02变成灵体与阿广抚手重叠的时候黑姐就已经察觉不对并且有所警觉，而剩下的老哥们还tm在欢喜雀跃，对 ...</blockquote>我只能说太真实了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -10061,19 +6843,13 @@ b站有
 ##### 2808#       发表于 2018-6-19 20:06
 
 
-
-
 翻译了一张4chan的virgin vs chad 图
 <img src="https://i.loli.net/2018/06/19/5b28f14e1b1de.png" referrerpolicy="no-referrer">
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -10083,12 +6859,7 @@ b站有
 | Mr.BBWoLf| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -10097,16 +6868,10 @@ b站有
 ##### 2809#       发表于 2018-6-19 20:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40046068&amp;ptid=1712743" target="_blank">不再是小孩子了 发表于 2018-6-19 20:06</a>
 
 翻译了一张4chan的virgin vs chad 图</blockquote>
 哈哈哈哈哈
-
-
-
-
-
 
 
 -----
@@ -10115,14 +6880,7 @@ b站有
 ##### 2810#       发表于 2018-6-19 20:21
 
 
-
-
 02 to Hiro &amp; Rei to Shinji : If I had a dick, now would be the time I'd tell you to suck it.<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10131,15 +6889,9 @@ b站有
 ##### 2811#       发表于 2018-6-19 20:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40046068&amp;ptid=1712743" target="_blank">不再是小孩子了 发表于 2018-6-19 20:06</a>
 翻译了一张4chan的virgin vs chad 图</blockquote>
 笑屎<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">鬼佬也认识到渣广的渣了呢
-
-
-
-
-
 
 
 -----
@@ -10148,15 +6900,9 @@ b站有
 ##### 2812#       发表于 2018-6-19 20:25
 
 
-
 <blockquote>不再是小孩子了 发表于 2018-6-19 20:06
 翻译了一张4chan的virgin vs chad 图</blockquote>
 笑死
-
-
-
-
-
 
 
 -----
@@ -10165,15 +6911,9 @@ b站有
 ##### 2813#       发表于 2018-6-19 20:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40046068&amp;ptid=1712743" target="_blank">不再是小孩子了 发表于 2018-6-19 20:06</a>
 翻译了一张4chan的virgin vs chad 图</blockquote>
 群众的眼睛是雪亮的
-
-
-
-
-
 
 
 -----
@@ -10182,14 +6922,7 @@ b站有
 ##### 2814#       发表于 2018-6-19 20:27
 
 
-
-
 爱奇艺的小编诈尸了，不过这次组织语句貌似比较谨慎哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10198,13 +6931,7 @@ b站有
 ##### 2815#       发表于 2018-6-19 20:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">想说些什么，算了，你们开心就好
-
-
-
-
-
 
 
 -----
@@ -10213,15 +6940,9 @@ b站有
 ##### 2816#       发表于 2018-6-19 20:29
 
 
-
 <blockquote>fengzijiang 发表于 2018-6-19 17:01
 我不知道应不应该以现实的经验来考虑动画，就我个人经验，夫妻之间谁当家有一部分是性格决定的，另外也有贡 ...</blockquote>
 开什么玩笑呢，还不是因为02是女性，言情小说里面那个霸道总裁不都是在感情经历了一系列狗血桥段后各种亏欠纯情柔弱的小白花女主么，结果互相道歉原谅之后，霸道总裁不依旧是强势宠爱小白花么，哪来的什么尴尬
-
-
-
-
-
 
 
 -----
@@ -10230,16 +6951,10 @@ b站有
 ##### 2817#       发表于 2018-6-19 20:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40046068&amp;ptid=1712743" target="_blank">不再是小孩子了 发表于 2018-6-19 20:06</a>
 
 翻译了一张4chan的virgin vs chad 图</blockquote>
 小受拉的是大提琴<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10248,16 +6963,10 @@ b站有
 ##### 2818#       发表于 2018-6-19 20:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40046408&amp;ptid=1712743" target="_blank">zjylyy 发表于 2018-6-19 20:40</a>
 
 小受拉的是大提琴</blockquote>
 是的。我给写错了
-
-
-
-
-
 
 
 -----
@@ -10266,23 +6975,16 @@ b站有
 ##### 2819#       发表于 2018-6-19 20:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40046408&amp;ptid=1712743" target="_blank">zjylyy 发表于 2018-6-19 20:40</a>
 小受拉的是大提琴</blockquote>
 cello确实是大提琴
 翻译错了
 
 
-
-
-
-
-
 -----
 
 ####  猪的报恩  
 ##### 2820#       发表于 2018-6-19 20:44
-
 
 
 <blockquote>不再是小孩子了 发表于 2018-6-19 20:06
@@ -10293,16 +6995,10 @@ cello确实是大提琴
 要我说起码童贞阿广开着练习机就敢冲到血肉横飞的战场上去见女朋友，而明日香被量产机大卸八块的时候万人迷真嗣竟在一旁傻看着…
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2821#       发表于 2018-6-19 20:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40046476&amp;ptid=1712743" target="_blank">猪的报恩 发表于 2018-6-19 20:44</a>
@@ -10314,17 +7010,10 @@ cello确实是大提琴
 你笑点太高，太认真了
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 2822#       发表于 2018-6-19 20:50
-
-
 
 
 对比图还是以逗乐搞笑为主吧，也不会太严谨
@@ -10332,14 +7021,8 @@ cello确实是大提琴
 上次在机战吧也看到这种图<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
 DITF.jpg
 (56.47 KB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -10348,31 +7031,13 @@ DITF.jpg
 2018-6-19 20:49 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/19/204951l287svysk5z5q626.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  猪的报恩  
 ##### 2823#       发表于 2018-6-19 21:05
-
 
 
 <blockquote>猫白羽毛 发表于 2018-6-19 20:47
@@ -10382,16 +7047,10 @@ DITF.jpg
 黑别人我也跟着乐，可是黑02喜欢的人还是有点不爽，双标狗就是这种死德行，理解一下。
 
 
-
-
-
-
-
 -----
 
 ####  小天使与ntr  
 ##### 2824#       发表于 2018-6-19 21:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40046476&amp;ptid=1712743" target="_blank">猪的报恩 发表于 2018-6-19 20:44</a>
@@ -10405,16 +7064,10 @@ DITF.jpg
 小受第19集也挺爷们，阿广第3集还把老婆让给基友爽呢
 
 
-
-
-
-
-
 -----
 
 ####  不再是小孩子了  
 ##### 2825#       发表于 2018-6-19 21:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40046724&amp;ptid=1712743" target="_blank">猪的报恩 发表于 2018-6-19 21:05</a>
@@ -10423,32 +7076,19 @@ DITF.jpg
 放心，等下一批机战新番上架了咱们还可以再做个对比图映衬出阿广的光辉形象
 
 
-
-
-
-
-
 -----
 
 ####  magicz2  
 ##### 2826#       发表于 2018-6-19 21:19
 
 
-
-
 那么，大家喜欢什么样的主角呢？反正这片是拿女主当男主使。
-
-
-
-
-
 
 
 -----
 
 ####  猫白羽毛  
 ##### 2827#       发表于 2018-6-19 21:24
-
 
 
  本帖最后由 猫白羽毛 于 2018-6-19 21:28 编辑 
@@ -10458,24 +7098,13 @@ DITF.jpg
 冷漠无情伊奈帆
 
 
-
-
-
-
-
 -----
 
 ####  AminGly  
 ##### 2828#       发表于 2018-6-19 21:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大家好，今天有人买足彩了么（无端提问）
-
-
-
-
-
 
 
 -----
@@ -10484,22 +7113,15 @@ DITF.jpg
 ##### 2829#       发表于 2018-6-19 21:31
 
 
-
 <blockquote>AminGly 发表于 2018-6-19 21:30
 大家好，今天有人买足彩了么（无端提问）</blockquote>
 还买足彩？腿给你打断。
-
-
-
-
-
 
 
 -----
 
 ####  AminGly  
 ##### 2830#       发表于 2018-6-19 21:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40047016&amp;ptid=1712743" target="_blank">magicz2 发表于 2018-6-19 21:31</a>
@@ -10510,16 +7132,10 @@ DITF.jpg
 我买什么保险比较好
 
 
-
-
-
-
-
 -----
 
 ####  [A]ZuZe  
 ##### 2831#       发表于 2018-6-19 21:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40046996&amp;ptid=1712743" target="_blank">AminGly 发表于 2018-06-19 21:30:09</a>
@@ -10528,16 +7144,10 @@ DITF.jpg
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Shylia  
 ##### 2832#       发表于 2018-6-19 21:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40046791&amp;ptid=1712743" target="_blank">不再是小孩子了 发表于 2018-06-19 21:11:20</a>
@@ -10546,16 +7156,10 @@ DITF.jpg
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  戏谑二次元  
 ##### 2833#       发表于 2018-6-19 21:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40046476&amp;ptid=1712743" target="_blank">猪的报恩 发表于 2018-06-19 20:44:46</a>
@@ -10567,16 +7171,10 @@ DITF.jpg
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  [A]ZuZe  
 ##### 2834#       发表于 2018-6-19 21:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40047061&amp;ptid=1712743" target="_blank">戏谑二次元 发表于 2018-06-19 21:34:22</a>
@@ -10587,16 +7185,10 @@ DITF.jpg
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  猪的报恩  
 ##### 2835#       发表于 2018-6-19 21:51
-
 
 
 <blockquote>戏谑二次元 发表于 2018-6-19 21:34
@@ -10607,26 +7199,15 @@ DITF.jpg
 呃，看eva剧场版时间太久远了，情节只记得个大概…
 
 
-
-
-
-
-
 -----
 
 ####  hanshanwulu  
 ##### 2836#       发表于 2018-6-19 21:55
 
 
-
 <blockquote>AminGly 发表于 2018-6-19 21:30
 大家好，今天有人买足彩了么（无端提问）</blockquote>
 哥伦比亚踢的都是啥啊。。。。。今天这比赛不好看，不如前面几场刺激。
-
-
-
-
-
 
 
 -----
@@ -10635,15 +7216,9 @@ DITF.jpg
 ##### 2837#       发表于 2018-6-19 21:57
 
 
-
 <blockquote>hanshanwulu 发表于 2018-6-19 21:55
 哥伦比亚踢的都是啥啊。。。。。今天这比赛不好看，不如前面几场刺激。 ...</blockquote>
 万万没想到……桑切斯回家时还能活着吗……
-
-
-
-
-
 
 
 -----
@@ -10652,23 +7227,15 @@ DITF.jpg
 ##### 2838#       发表于 2018-6-19 22:07
 
 
-
-
 所以还有三集，直美呢……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  山贼先生  
 ##### 2839#       发表于 2018-6-19 22:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40047452&amp;ptid=1712743" target="_blank">xiyue365 发表于 2018-6-19 22:07</a>
@@ -10680,16 +7247,10 @@ DITF.jpg
 死透了 死透了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  IWS2000  
 ##### 2840#       发表于 2018-6-19 22:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40047457&amp;ptid=1712743" target="_blank">山贼先生 发表于 2018-6-19 22:08</a>
@@ -10697,16 +7258,10 @@ DITF.jpg
 也许下次v星人过来时，直美莫名成为v星人领导
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 2841#       发表于 2018-6-19 22:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40047452&amp;ptid=1712743" target="_blank">xiyue365 发表于 2018-6-19 22:07</a>
@@ -10718,16 +7273,10 @@ DITF.jpg
 早死透了啊，还能有啥指望不成……
 
 
-
-
-
-
-
 -----
 
 ####  Shylia  
 ##### 2842#       发表于 2018-6-19 22:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40047482&amp;ptid=1712743" target="_blank">IWS2000 发表于 2018-06-19 22:11:10</a>
@@ -10736,16 +7285,10 @@ DITF.jpg
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  山贼先生  
 ##### 2843#       发表于 2018-6-19 22:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40047482&amp;ptid=1712743" target="_blank">IWS2000 发表于 2018-6-19 22:11</a>
@@ -10754,16 +7297,10 @@ DITF.jpg
 大清水配音的直美酱明明是接小广业务的赠品<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Nemo艇长  
 ##### 2844#       发表于 2018-6-19 22:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40047452&amp;ptid=1712743" target="_blank">xiyue365 发表于 2018-6-19 22:07</a>
@@ -10775,24 +7312,13 @@ DITF.jpg
 别登场了，就当保护性雪藏了，现在再登场与016互动会遭骂的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">。
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2845#       发表于 2018-6-19 22:27
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">code：703的官网待遇比我好。
-
-
-
-
-
 
 
 -----
@@ -10801,14 +7327,7 @@ DITF.jpg
 ##### 2846#       发表于 2018-6-19 22:29
 
 
-
-
 看到老外也喷渣广我就放心了
-
-
-
-
-
 
 
 -----
@@ -10817,15 +7336,9 @@ DITF.jpg
 ##### 2847#       发表于 2018-6-19 22:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40046996&amp;ptid=1712743" target="_blank">AminGly 发表于 2018-6-19 21:30</a>
 大家好，今天有人买足彩了么（无端提问）</blockquote>
 每次看到你出现就说明我又扔钱了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10834,14 +7347,7 @@ DITF.jpg
 ##### 2848#       发表于 2018-6-19 22:44
 
 
-
-
 可能是我看番少吧，要说特别喜欢的主角动画是没有了
-
-
-
-
-
 
 
 -----
@@ -10850,14 +7356,7 @@ DITF.jpg
 ##### 2849#       发表于 2018-6-19 22:44
 
 
-
-
 02死了应该会见到直美
-
-
-
-
-
 
 
 -----
@@ -10866,16 +7365,10 @@ DITF.jpg
 ##### 2850#       发表于 2018-6-19 22:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40047808&amp;ptid=1712743" target="_blank">skives 发表于 2018-6-19 22:44</a>
 
 02死了应该会见到直美</blockquote>
 真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10884,14 +7377,7 @@ DITF.jpg
 ##### 2851#       发表于 2018-6-19 22:50
 
 
-
-
 星实体中融化着所有消失孩子的灵魂
-
-
-
-
-
 
 
 -----
@@ -10900,13 +7386,7 @@ DITF.jpg
 ##### 2852#       发表于 2018-6-19 22:55
 
 
-
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fsgvoniuebj210c0m8ws0.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10915,14 +7395,7 @@ DITF.jpg
 ##### 2853#       发表于 2018-6-19 22:57
 
 
-
-
 阿帕斯是真的帅<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10931,22 +7404,13 @@ DITF.jpg
 ##### 2854#       发表于 2018-6-19 23:08
 
 
-
-
 九黄你怎么突然就人设崩了？
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 2855#       发表于 2018-6-19 23:10
-
-
 
 
 扳.机感ww
@@ -10962,24 +7426,13 @@ DITF.jpg
 [过去数据](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1706960&amp;pid=39968470)
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 2856#       发表于 2018-6-19 23:12
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">阿帕斯出胶吗
-
-
-
-
-
 
 
 -----
@@ -10988,23 +7441,13 @@ DITF.jpg
 ##### 2857#       发表于 2018-6-19 23:15
 
 
-
-
-
 阿帕斯出胶吗，我也想要
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 2858#       发表于 2018-6-19 23:19
-
-
 
 
 说来，其实外星人的出现和之前剧集的断层之处在这集其实也蛮明显的。
@@ -11028,16 +7471,10 @@ DITF.jpg
 那问题就又回到了16-18集的主题很微妙了，lovelovepower的准备在15集就做好了……
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2859#       发表于 2018-6-19 23:24
-
 
 
  本帖最后由 9α 于 2018-6-19 23:27 编辑 
@@ -11052,16 +7489,10 @@ DITF.jpg
 把papa党路线给毁掉，后面是要干什么呢
 
 
-
-
-
-
-
 -----
 
 ####  AminGly  
 ##### 2860#       发表于 2018-6-19 23:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40048191&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-19 23:24</a>
@@ -11074,16 +7505,10 @@ DITF.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你至少还有生命啊
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2861#       发表于 2018-6-19 23:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40048210&amp;ptid=1712743" target="_blank">AminGly 发表于 2018-6-19 23:26</a>
@@ -11096,17 +7521,10 @@ DITF.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 2862#       发表于 2018-6-19 23:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40048191&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-19 23:24</a>
@@ -11119,25 +7537,13 @@ DITF.jpg
 现在连后面三话演什么都不知道，谁知道你会发挥什么作用啊<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  we89623  
 ##### 2863#       发表于 2018-6-19 23:34
 
 
-
-
 我是不是漏剧情了，是不是到现在都没解释像直美这类的孩子到底被送去哪了？？
-
-
-
-
-
 
 
 -----
@@ -11146,15 +7552,9 @@ DITF.jpg
 ##### 2864#       发表于 2018-6-19 23:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40048269&amp;ptid=1712743" target="_blank">we89623 发表于 2018-6-19 23:34</a>
 我是不是漏剧情了，是不是到现在都没解释像直美这类的孩子到底被送去哪了？？ ...</blockquote>
 没，不过我估计是做成机器了
-
-
-
-
-
 
 
 -----
@@ -11163,22 +7563,14 @@ DITF.jpg
 ##### 2865#       发表于 2018-6-19 23:36
 
 
-
-
 消失的孩子都在星实体里
 下集02就能见到他们了
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 2866#       发表于 2018-6-19 23:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40048262&amp;ptid=1712743" target="_blank">davidcch12 发表于 2018-6-19 23:34</a>
@@ -11190,16 +7582,10 @@ DITF.jpg
 根本不知道9α从哪里学来，然后自己搞了套解读……？
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 2867#       发表于 2018-6-19 23:37
-
 
 
 <blockquote>玖瑶君 发表于 2018-6-19 23:19
@@ -11212,33 +7598,20 @@ DITF.jpg
 所以第一是和队友交流分享加深认知后才能想到分享和更好地嘴炮，第二是爱的力量要实现也离不开分享理解后队友的帮助。
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2868#       发表于 2018-6-19 23:38
 
 
-
-
 这周六你们会见到怎样的崭新一面的9α呢……？
 <img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 2869#       发表于 2018-6-19 23:42
-
 
 
 <blockquote>xyau 发表于 2018-6-19 23:37
@@ -11250,16 +7623,10 @@ DITF.jpg
 大概心满是真-监督私货吧。
 
 
-
-
-
-
-
 -----
 
 ####  [A]ZuZe  
 ##### 2870#       发表于 2018-6-19 23:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40048355&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-06-19 23:42:57</a>
@@ -11268,16 +7635,10 @@ DITF.jpg
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2871#       发表于 2018-6-19 23:45
-
 
 
 <blockquote>9α 发表于 2018-6-19 23:24
@@ -11297,16 +7658,10 @@ DITF.jpg
 你被嘴炮后就搞这方面宣传工作，拿出册子带着大家一起读吧
 
 
-
-
-
-
-
 -----
 
 ####  CCYYFF  
 ##### 2872#       发表于 2018-6-19 23:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40048145&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-19 23:19</a>
@@ -11318,16 +7673,10 @@ DITF.jpg
 叫龙人战斗力够强了，6000万年前科技比剧情里人类先进得多了，照样还和v星人打了几百年，最后靠全族自杀才打退对面先锋舰队，而且当时v星人不只宇宙舰队还有大量地面部队，现在打个失了智的叫龙都要墨迹半天的fxx根本就不能比。加上lovelovepower的鹤坦克也才干掉斥候舰队的一部分，这个鹤坦克还是叫龙人兵器改造的
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2873#       发表于 2018-6-19 23:49
-
 
 
 <blockquote>[A]ZuZe 发表于 2018-6-19 23:45
@@ -11338,16 +7687,10 @@ DITF.jpg
 嗯，的确。如果都按照16集结尾广的精神引领者感觉走可能就好点吧……心满那段真的是让人感觉整个故事都要走某一个走向（反乌）结果被狂打脸……
 
 
-
-
-
-
-
 -----
 
 ####  猪的报恩  
 ##### 2874#       发表于 2018-6-19 23:51
-
 
 
 <blockquote>9α 发表于 2018-6-19 23:24
@@ -11359,16 +7702,10 @@ DITF.jpg
 我觉得你得跟你们九字辈的高人，隔壁片场的九龙老师好好学学，你这边才被人轻轻掏了两拳就颓废萎靡了，人家九龙老师被主角花式吊打一辈子，最后落得个断手断脚躺在床上大小便都不能自理的下场，可是一出场还是一派从容，和主角谈笑风生，这才叫反派气度，你们年轻人还是修行不够…
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2875#       发表于 2018-6-19 23:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40048373&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-19 23:45</a>
@@ -11386,17 +7723,10 @@ DITF.jpg
 到处宣传生育太可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kyota  
 ##### 2876#       发表于 2018-6-19 23:57
-
-
 
 
 9a同学您都不用上班的么<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
@@ -11405,16 +7735,10 @@ DITF.jpg
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2877#       发表于 2018-6-19 23:57
-
 
 
 <blockquote>CCYYFF 发表于 2018-6-19 23:47
@@ -11431,16 +7755,10 @@ DITF.jpg
 还是说最后三集会突然出现一个宇宙其它的高级势力（其他外星人或者宇宙意识什么的），和发展静止知性的virm相反，崇尚变动的那种，认可人类的选择然后来帮忙？人类顺势加入那一边？（因为叫龙的兵器化是选错了所以没有得到帮助）反正突兀的势力已经有一个了，再多一个也没什么不正常。
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2878#       发表于 2018-6-19 23:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40048423&amp;ptid=1712743" target="_blank">猪的报恩 发表于 2018-6-19 23:51</a>
@@ -11456,32 +7774,19 @@ DITF.jpg
 跟主角队也就抓起洗脑的仇，然而终究责任也不在他们身上，然后忠诚耿耿还被抛弃了。
 
 
-
-
-
-
-
 -----
 
 ####  IWS2000  
 ##### 2879#       发表于 2018-6-20 00:02
 
 
-
-
 广会不会成为新的叫龙公主呢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 2880#       发表于 2018-6-20 00:03
-
 
 
 <blockquote>9α 发表于 2018-6-19 23:59
@@ -11494,16 +7799,10 @@ DITF.jpg
 估计看你们这么颓废失去战友，13队也就不会再多追究你们之前干的事儿了。要是没有这一出，9队加入13队的战后势力估计会很困难吧……13队那是要群起攻之啊。
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2881#       发表于 2018-6-20 00:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40048487&amp;ptid=1712743" target="_blank">kyota 发表于 2018-6-19 23:57</a>
@@ -11512,16 +7811,10 @@ DITF.jpg
 ……手游戒光了。
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 2882#       发表于 2018-6-20 00:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40048500&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-19 23:59</a>
@@ -11529,16 +7822,10 @@ DITF.jpg
 我给你指条明路，看看16话，你只需要和你的队友半跪和侧跪在地上，之后好好跟阿莓解释一下，让莓摸摸脸就行<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2883#       发表于 2018-6-20 00:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40048532&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-20 00:03</a>
@@ -11552,16 +7839,10 @@ DITF.jpg
 感觉这话13队看见9队作战好像就没怎么记仇了……
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2884#       发表于 2018-6-20 00:12
-
 
 
 <blockquote>9α 发表于 2018-6-20 00:09
@@ -11574,26 +7855,15 @@ DITF.jpg
 嘛我只是觉得这是你们和解的契机，如果紫绿没死你们估计也没有很好的洗白机会了……
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 2885#       发表于 2018-6-20 00:19
 
 
-
 <blockquote>玖瑶君 发表于 2018-6-19 23:42
 是的从现在看16-18的目的就是增强队友情，这样的话就没必要把心满做的那么重，还是以216点醒众人好了，现 ...</blockquote>
 0216就算办婚礼也不会被抓去洗脑啊……应该说这对特权加身，想要实现3255这样13队有<strong>参与感</strong>的点醒比较有难度吧。
-
-
-
-
-
 
 
 -----
@@ -11602,23 +7872,15 @@ DITF.jpg
 ##### 2886#       发表于 2018-6-20 00:28
 
 
-
-
 调低期待，130楼吧。180楼的我真是太乐观了
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  mumubear  
 ##### 2887#       发表于 2018-6-20 00:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40048607&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-20 00:12</a>
@@ -11633,17 +7895,10 @@ DITF.jpg
 这些戏份大概都丢给九黄了，或者口罩妹其实长着02的脸。。。
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 2888#       发表于 2018-6-20 00:38
-
-
 
 
 图标日。
@@ -11653,16 +7908,10 @@ DITF.jpg
 官方不会恶趣味到上白发196和结尾02吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 2889#       发表于 2018-6-20 00:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40048793&amp;ptid=1712743" target="_blank">xyau 发表于 2018-06-20 00:38:46</a>
@@ -11675,16 +7924,10 @@ DITF.jpg
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2890#       发表于 2018-6-20 00:40
-
 
 
  本帖最后由 9α 于 2018-6-20 00:45 编辑 
@@ -11701,16 +7944,10 @@ DITF.jpg
 讲实话我就没觉得9队哪里反派气场过……
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2891#       发表于 2018-6-20 00:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40048793&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-20 00:38</a>
@@ -11722,16 +7959,10 @@ DITF.jpg
 奶个哭哭上图标<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2892#       发表于 2018-6-20 00:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40048653&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-20 00:19</a>
@@ -11754,16 +7985,10 @@ DITF.jpg
 所以其实心满婚礼的最重大结果其实是点醒了纯未组，其次是把太也坚定了，但是把心满组给交代进去失忆了……顺便把9队和13队的关系给紧张化……）
 
 
-
-
-
-
-
 -----
 
 ####  猪的报恩  
 ##### 2893#       发表于 2018-6-20 00:45
-
 
 
 <blockquote>xyau 发表于 2018-6-20 00:38
@@ -11777,16 +8002,10 @@ DITF.jpg
 再加个9绿机甲脑袋被咬爆前的一瞬间。
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 2894#       发表于 2018-6-20 00:46
-
 
 
 <blockquote>davidcch12 发表于 2018-6-20 00:40
@@ -11797,16 +8016,10 @@ DITF.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">乐观地以为是0216檞寄生下神交接吻
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 2895#       发表于 2018-6-20 00:57
-
 
 
 <blockquote>玖瑶君 发表于 2018-6-20 00:44
@@ -11821,33 +8034,20 @@ DITF.jpg
 这段也是反向塑造9's这个爸爸忠犬组。和#5-6写26队#15喂便当却对13队影响甚微相比，现在给了两队相对更复杂的关系，应该也要做出相应更深入的推动吧。
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 2896#       发表于 2018-6-20 01:20
 
 
-
-
 青葙组改变：
 听爸爸的话 －＞ 听队长的话
-
-
-
-
-
 
 
 -----
 
 ####  Mr.BBWoLf  
 ##### 2897#       发表于 2018-6-20 01:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40048935&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-20 00:57</a>
@@ -11863,32 +8063,19 @@ DITF.jpg
 最极端展开：莓教育9黄不成，在v星卷土重来时反被9队背刺。
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 2898#       发表于 2018-6-20 01:49
 
 
-
-
 精神上的成长好像是山下七海的发言，记得当时奶的是17岁相关，万万没想到居然是心满相关....<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 2899#       发表于 2018-6-20 01:52
-
 
 
 <blockquote>Fnaygih 发表于 2018-6-20 01:49
@@ -11898,17 +8085,10 @@ DITF.jpg
 对哦，不让17岁或者未来白发教育下纯未组也是个小遗憾呢。最后是心满自爆式教育了心闺蜜未来，然后ape几乎是自爆不可能变大人（真是耿直啊）彻底搞定了纯位数。
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 2900#       发表于 2018-6-20 03:18
-
-
 
 
 查了一下大和抚子，感觉韭黄用这词未必是在夸莓，可能偏中性或者贬义调侃。 <blockquote>The term "Yamato nadeshiko" is often used referring to a girl or shy young woman[6] and, in a contemporary context, nostalgically of women with good traits which are perceived as being increasingly rare</blockquote>根据17集韭黄对心的评价：ki墨迹瓦累。
@@ -11927,17 +8107,10 @@ DITF.jpg
 关于9α的好奇的原因，我能想到的可能是ape对广或13队的重视导致的嫉妒，或者粉黄假药（神一般的7集镜头屏蔽），再者就是把自身优越性与13队劣性对比而研究这群猴为什么会受到papa重视。
 
 
-
-
-
-
-
 -----
 
 ####  soulife7  
 ##### 2901#       发表于 2018-6-20 06:27
-
-
 
 
 所以特番2给配音室打码是想掩盖什么呢？
@@ -11945,16 +8118,10 @@ DITF.jpg
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2902#       发表于 2018-6-20 06:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40049701&amp;ptid=1712743" target="_blank">soulife7 发表于 2018-6-20 06:27</a>
@@ -11964,17 +8131,10 @@ DITF.jpg
 肉松么
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 2903#       发表于 2018-6-20 07:03
-
-
 
 
 □ 大裂隙外，紫蓝相争，FXX无措
@@ -12016,13 +8176,9 @@ DITF.jpg
 　吊兰和金雀又交换位置组成了雌蕊舍友分组。战场危险升级而迟迟没有指示，15安抚队友并提议自行判断。汇总情报发现0216负责启动的、寄托大家战后自由希望的星实竟然可能变成灭星炸弹，令人（666）抓狂。#2用于锁定16的望远目镜这次被用来搜索0216的所在。15提议去大裂隙探查真相，56提出关心0216的复议，成功说服队友。曾经冒进好胜的青葙组，390继承了556的求生欲，666也不再盲目迷信大人。此去一路硝烟，波折难免。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -12032,12 +8188,7 @@ DITF.jpg
 | 02016| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -12046,21 +8197,13 @@ DITF.jpg
 ##### 2904#       发表于 2018-6-20 07:03
 
 
-
-
 看来我弃的正是时候，什么垃圾展开。。
-
-
-
-
-
 
 
 -----
 
 ####  猪的报恩  
 ##### 2905#       发表于 2018-6-20 07:54
-
 
 
 <blockquote>Mr.BBWoLf 发表于 2018-6-20 03:18
@@ -12075,27 +8218,15 @@ DITF.jpg
 ps：锦织监督不上中国论坛真是他的生涯损失。
 
 
-
-
-
-
-
 -----
 
 ####  xiyue365  
 ##### 2906#       发表于 2018-6-20 08:57
 
 
-
-
 看了下扳机七月的ssss第一集的阵容，四天王和其他主力好像全上了……果然是因为国鱼不是亲生的所以摸爆了吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -12104,23 +8235,16 @@ ps：锦织监督不上中国论坛真是他的生涯损失。
 ##### 2907#       发表于 2018-6-20 09:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40050500&amp;ptid=1712743" target="_blank">xiyue365 发表于 2018-6-20 08:57</a>
 
 看了下扳机七月的ssss第一集的阵容，四天王和其他主力好像全上了……果然是因为国鱼不是亲生的所以摸爆了吗 ...</blockquote>
 今石带头摸鱼
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2908#       发表于 2018-6-20 09:11
-
 
 
  本帖最后由 9α 于 2018-6-20 09:16 编辑 
@@ -12142,17 +8266,10 @@ ps：锦织监督不上中国论坛真是他的生涯损失。
 嫉妒，嫉妒死了你们了。
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2909#       发表于 2018-6-20 09:12
-
-
 
 
 左手幼广，右手悠尼
@@ -12162,16 +8279,10 @@ ps：锦织监督不上中国论坛真是他的生涯损失。
 悠尼不要动，大姐姐就再舔一口
 
 
-
-
-
-
-
 -----
 
 ####  お菓子食べたい  
 ##### 2910#       发表于 2018-6-20 09:16
-
 
 
 <blockquote>xyau 发表于 2018-6-20 09:03
@@ -12183,16 +8294,10 @@ ps：锦织监督不上中国论坛真是他的生涯损失。
  “继承了求生欲”hh
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 2911#       发表于 2018-6-20 09:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40050500&amp;ptid=1712743" target="_blank">xiyue365 发表于 2018-6-20 08:57</a>
@@ -12201,16 +8306,10 @@ ps：锦织监督不上中国论坛真是他的生涯损失。
 这片第一集的阵容不比那个差到哪
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2912#       发表于 2018-6-20 09:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40050708&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-20 09:12</a>
@@ -12226,16 +8325,10 @@ ps：锦织监督不上中国论坛真是他的生涯损失。
 真是太好了呢，白猫毛。
 
 
-
-
-
-
-
 -----
 
 ####  soulife7  
 ##### 2913#       发表于 2018-6-20 09:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40049746&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-06-20 06:51:09</a>
@@ -12244,16 +8337,10 @@ ps：锦织监督不上中国论坛真是他的生涯损失。
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2914#       发表于 2018-6-20 09:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40050811&amp;ptid=1712743" target="_blank">soulife7 发表于 2018-6-20 09:20</a>
@@ -12263,16 +8350,10 @@ ps：锦织监督不上中国论坛真是他的生涯损失。
 那只能说是小清水啦！
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2915#       发表于 2018-6-20 09:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40050792&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-20 09:19</a>
@@ -12282,16 +8363,10 @@ ps：锦织监督不上中国论坛真是他的生涯损失。
 我才没有弯！只不过这个世界没有不喜欢悠尼的人！
 
 
-
-
-
-
-
 -----
 
 ####  山贼先生  
 ##### 2916#       发表于 2018-6-20 09:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40050952&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-20 09:34</a>
@@ -12300,32 +8375,19 @@ ps：锦织监督不上中国论坛真是他的生涯损失。
 回到专楼感觉换了一个世界<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 2917#       发表于 2018-6-20 10:40
 
 
-
-
 woaw专楼一小时没动过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  hl8243  
 ##### 2918#       发表于 2018-6-20 10:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40049775&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-20 07:03</a>
@@ -12340,40 +8402,23 @@ woaw专楼一小时没动过了<img src="https://static.saraba1st.com/image/smil
 你也放弃了？
 
 
-
-
-
-
-
 -----
 
 ####  02016  
 ##### 2919#       发表于 2018-6-20 10:48
 
 
-
-
 这位的画风我很喜欢
 <img src="http://ww4.sinaimg.cn/large/87c01ec7gy1fshg9jqlq8j20j20650w3.jpg" referrerpolicy="no-referrer">
 
 
-
-
 昨天的新作[https://www.pixiv.net/member_ill ... ;illust_id=69312292](https://www.pixiv.net/member_illust.php?mode=manga&amp;illust_id=69312292)
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 2920#       发表于 2018-6-20 10:54
-
-
-
 
 
 贴吧从推特上淘来的照片……
@@ -12388,10 +8433,6 @@ woaw专楼一小时没动过了<img src="https://static.saraba1st.com/image/smil
 2018-6-20 10:51 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/20/105155zbmgorrl0j0bj07j.jpg" referrerpolicy="no-referrer">
 
 
@@ -12400,10 +8441,6 @@ woaw专楼一小时没动过了<img src="https://static.saraba1st.com/image/smil
 下载附件
 
 2018-6-20 10:51 上传
-
-
-
-
 
 
 评论：13队战后合影
@@ -12418,17 +8455,7 @@ woaw专楼一小时没动过了<img src="https://static.saraba1st.com/image/smil
 2018-6-20 10:51 上传
 
 
-
-
-
-
-
 一想还真有可能……<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12437,14 +8464,7 @@ woaw专楼一小时没动过了<img src="https://static.saraba1st.com/image/smil
 ##### 2921#       发表于 2018-6-20 10:55
 
 
-
-
 完蛋，周三了还没到100
-
-
-
-
-
 
 
 -----
@@ -12453,15 +8473,9 @@ woaw专楼一小时没动过了<img src="https://static.saraba1st.com/image/smil
 ##### 2922#       发表于 2018-6-20 10:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40051995&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-20 10:54</a>
 贴吧从推特上淘来的照片……</blockquote>
 过于草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12470,21 +8484,13 @@ woaw专楼一小时没动过了<img src="https://static.saraba1st.com/image/smil
 ##### 2923#       发表于 2018-6-20 10:59
 
 
-
-
 估计得有几个是这样的，芋艿已经预订了
-
-
-
-
-
 
 
 -----
 
 ####  山贼先生  
 ##### 2924#       发表于 2018-6-20 10:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40052010&amp;ptid=1712743" target="_blank">大江户战士 发表于 2018-6-20 10:55</a>
@@ -12501,16 +8507,10 @@ woaw专楼一小时没动过了<img src="https://static.saraba1st.com/image/smil
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  royalblue1127  
 ##### 2925#       发表于 2018-6-20 10:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40051995&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-20 10:54</a>
@@ -12518,16 +8518,10 @@ woaw专楼一小时没动过了<img src="https://static.saraba1st.com/image/smil
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 2926#       发表于 2018-6-20 10:59
-
 
 
 <img src="http://imgsrc.baidu.com/forum/pic/item/bcdd55cb7bcb0a466353cbb56763f6246a60affd.jpg" referrerpolicy="no-referrer">
@@ -12537,34 +8531,19 @@ woaw专楼一小时没动过了<img src="https://static.saraba1st.com/image/smil
 9绿9紫怎么就死了呢
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2927#       发表于 2018-6-20 10:59
 
 
-
-
 我不哭你们就不盖了吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 2928#       发表于 2018-6-20 11:00
-
 
 
  本帖最后由 9α 于 2018-6-20 11:03 编辑 
@@ -12575,17 +8554,10 @@ woaw专楼一小时没动过了<img src="https://static.saraba1st.com/image/smil
 9队版1556……一直都有人想拆的……<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  山贼先生  
 ##### 2929#       发表于 2018-6-20 11:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40052082&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-20 10:59</a>
@@ -12604,16 +8576,7 @@ woaw专楼一小时没动过了<img src="https://static.saraba1st.com/image/smil
 2018-6-20 11:01 上传
 
 
-
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12622,23 +8585,13 @@ woaw专楼一小时没动过了<img src="https://static.saraba1st.com/image/smil
 ##### 2930#       发表于 2018-6-20 11:02
 
 
-
-
 队长的命运——单身。
-
-
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 2931#       发表于 2018-6-20 11:08
-
 
 
 <blockquote>山贼先生 发表于 2018-6-20 10:59
@@ -12662,34 +8615,19 @@ woaw专楼一小时没动过了<img src="https://static.saraba1st.com/image/smil
 （要么就是立刻反向推进器操作缓冲，但看摔下去那段貌似并没有看到…）
 
 
-
-
-
-
-
-
-
 -----
 
 ####  猪的报恩  
 ##### 2932#       发表于 2018-6-20 11:16
 
 
-
-
 说起来截至今天b站的21话弹幕数也不到3000…… 真是世态炎凉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  暮云雨凝  
 ##### 2933#       发表于 2018-6-20 11:17
-
 
 
 <blockquote>02016 发表于 2018-6-20 10:48
@@ -12700,16 +8638,10 @@ woaw专楼一小时没动过了<img src="https://static.saraba1st.com/image/smil
 打不开😭
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2934#       发表于 2018-6-20 11:20
-
 
 
 <blockquote>9α 发表于 2018-6-20 11:00
@@ -12720,16 +8652,10 @@ woaw专楼一小时没动过了<img src="https://static.saraba1st.com/image/smil
 这集9队版和virm打被拆身体死了，用相对主要一点的人物之死制造了压迫感。13队版和virm打也被拆身体（virm这么喜欢拆手拆脚的？），不过大概是因为love爆发一波给挣脱了？？
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2935#       发表于 2018-6-20 11:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40052396&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-20 11:20</a>
@@ -12742,16 +8668,10 @@ woaw专楼一小时没动过了<img src="https://static.saraba1st.com/image/smil
 9绿9紫那个是被一团包围……
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 2936#       发表于 2018-6-20 11:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40052082&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-20 10:59</a>
@@ -12761,17 +8681,10 @@ woaw专楼一小时没动过了<img src="https://static.saraba1st.com/image/smil
 可爱到了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2937#       发表于 2018-6-20 11:27
-
-
 
 
 现在有白毛flag的对象还有56和390
@@ -12784,16 +8697,10 @@ woaw专楼一小时没动过了<img src="https://static.saraba1st.com/image/smil
 可是红蓝是背景板……应该不太可能出现这展开吧……
 
 
-
-
-
-
-
 -----
 
 ####  02016  
 ##### 2938#       发表于 2018-6-20 11:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40052352&amp;ptid=1712743" target="_blank">暮云雨凝 发表于 2018-6-20 11:17</a>
@@ -12815,16 +8722,10 @@ KISS OF DEATHだよ！ミツルくん！
 <img src="http://ww2.sinaimg.cn/large/87c01ec7gy1fshhequ7qaj20xc15ohdt.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2939#       发表于 2018-6-20 11:28
-
 
 
 <blockquote>9α 发表于 2018-6-20 11:23
@@ -12839,16 +8740,10 @@ KISS OF DEATHだよ！ミツルくん！
 只是觉得确实是因为有紫绿的牺牲所以翠雀被摘手时压迫感挺强的，一下子就联想到之前被拆手拆脚捏碎头的终局了（没有这个预设，之后五郎选择去跳崖也变得更迷了……）
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 2940#       发表于 2018-6-20 11:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40052136&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-20 11:02</a>
@@ -12856,16 +8751,10 @@ KISS OF DEATHだよ！ミツルくん！
 你在暗示什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mumubear  
 ##### 2941#       发表于 2018-6-20 11:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40052136&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-20 11:02</a>
@@ -12877,16 +8766,10 @@ KISS OF DEATHだよ！ミツルくん！
 你的口罩妹怕不是给02拿来诈仙用的。。。
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2942#       发表于 2018-6-20 11:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40052557&amp;ptid=1712743" target="_blank">mumubear 发表于 2018-6-20 11:30</a>
@@ -12904,17 +8787,10 @@ KISS OF DEATHだよ！ミツルくん！
 话说，专楼我好像是唯一的假药源了？<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 2943#       发表于 2018-6-20 12:11
-
-
 
 
 国死楼凉了
@@ -12923,16 +8799,10 @@ KISS OF DEATHだよ！ミツルくん！
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  02016  
 ##### 2944#       发表于 2018-6-20 12:11
-
 
 
  本帖最后由 02016 于 2019-8-6 20:42 编辑 
@@ -12949,25 +8819,13 @@ KISS OF DEATHだよ！ミツルくん！
 <img src="http://ww3.sinaimg.cn/large/87c01ec7gy1fshincb60yj20zk0k0gop.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  歌谭市的  
 ##### 2945#       发表于 2018-6-20 12:13
 
 
-
-
 多年以后，再次回想这片，我唯一能想起来的可能也只有心满了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12976,16 +8834,10 @@ KISS OF DEATHだよ！ミツルくん！
 ##### 2946#       发表于 2018-6-20 12:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40053137&amp;ptid=1712743" target="_blank">歌谭市的 发表于 2018-6-20 12:13</a>
 多年以后，再次回想这片，我唯一能想起来的可能也只有心满了</blockquote>
 霹雳有句话我一直觉得很有道理：
 “为什么人总是爱得短暂，却恨得至死不休”
-
-
-
-
-
 
 
 -----
@@ -12994,15 +8846,9 @@ KISS OF DEATHだよ！ミツルくん！
 ##### 2947#       发表于 2018-6-20 12:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40052094&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-20 11:00</a>
 9队版1556……一直都有人想拆的……</blockquote>
 难道这是原本1556的死相吗？
-
-
-
-
-
 
 
 -----
@@ -13011,24 +8857,16 @@ KISS OF DEATHだよ！ミツルくん！
 ##### 2948#       发表于 2018-6-20 12:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40053197&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-20 12:18</a>
 霹雳有句话我一直觉得很有道理：
 “为什么人总是爱得短暂，却恨得至死不休” ...</blockquote>
 太真实，真实的想哭
 
 
-
-
-
-
-
 -----
 
 ####  猪的报恩  
 ##### 2949#       发表于 2018-6-20 12:28
-
-
 
 
 说起来
@@ -13044,17 +8882,7 @@ KISS OF DEATHだよ！ミツルくん！
 2018-6-20 12:18 上传
 
 
-
-
-
-
-
 这种叫龙，15话、20话、21话大量出现，可是除了会走来走去好像毛用没用，它们到底是干嘛来的？
-
-
-
-
-
 
 
 -----
@@ -13063,22 +8891,15 @@ KISS OF DEATHだよ！ミツルくん！
 ##### 2950#       发表于 2018-6-20 12:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40053325&amp;ptid=1712743" target="_blank">猪的报恩 发表于 2018-6-20 12:28</a>
 说起来</blockquote>
 用圆滚滚的身躯和复制黏贴大法显得战场怪物很多的样子
-
-
-
-
-
 
 
 -----
 
 ####  歌谭市的  
 ##### 2951#       发表于 2018-6-20 12:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40053197&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-20 12:18</a>
@@ -13089,16 +8910,10 @@ KISS OF DEATHだよ！ミツルくん！
 这句话非常适用于我对这部片里角色们的感情
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2952#       发表于 2018-6-20 12:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40053233&amp;ptid=1712743" target="_blank">Shylia 发表于 2018-6-20 12:22</a>
@@ -13110,27 +8925,14 @@ KISS OF DEATHだよ！ミツルくん！
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 2953#       发表于 2018-6-20 12:38
 
 
-
-
 【ダリフラ×アトレ秋葉原】23日（土）16時からゼロツーコスプレイヤーによるステッカー配布が決定！※個別撮影は禁止となります。予めご了承ください。
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fshjgjr30aj20p00xckjl.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13139,23 +8941,16 @@ KISS OF DEATHだよ！ミツルくん！
 ##### 2954#       发表于 2018-6-20 12:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40053325&amp;ptid=1712743" target="_blank">猪的报恩 发表于 2018-6-20 12:28</a>
 说起来</blockquote>
 如果15集没13队，大概是拿来破坏城市的。
 可怜小叫龙战力还不如鹤望兰兽型一甩尾巴，里面的叫龙人可能也是童子军……
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2955#       发表于 2018-6-20 12:39
-
 
 
  本帖最后由 9α 于 2018-6-20 12:43 编辑 
@@ -13167,16 +8962,10 @@ KISS OF DEATHだよ！ミツルくん！
 或许角色也只能想起9α了<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猪的报恩  
 ##### 2956#       发表于 2018-6-20 12:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40053357&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-20 12:30</a>
@@ -13185,16 +8974,10 @@ KISS OF DEATHだよ！ミツルくん！
 这么说锦织监督该找光荣公司帮忙才对，在无双系列里找段即时演算，把杂兵的贴图换成叫龙，可控武将换成franxx，再加点卡通渲染效果，一顿无双乱舞，一场打戏就出来了。
 
 
-
-
-
-
-
 -----
 
 ####  猪的报恩  
 ##### 2957#       发表于 2018-6-20 12:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40053447&amp;ptid=1712743" target="_blank">xingenge 发表于 2018-6-20 12:38</a>
@@ -13203,16 +8986,10 @@ KISS OF DEATHだよ！ミツルくん！
 这塑料衣满满都是廉价感啊，讲道理，真心想cos Ditf的战斗服得上人体彩绘才行……
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 2958#       发表于 2018-6-20 12:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40053452&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-06-20 12:38:32</a>
@@ -13222,16 +8999,10 @@ KISS OF DEATHだよ！ミツルくん！
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  暮云雨凝  
 ##### 2959#       发表于 2018-6-20 12:48
-
 
 
 <blockquote>02016 发表于 2018-6-20 11:27
@@ -13246,16 +9017,10 @@ KISS OF DEATHだよ！ミツルくん！
 话说这位太太画的倒数第二张和第三张我没见过😓好看的😍
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 2960#       发表于 2018-6-20 12:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40053557&amp;ptid=1712743" target="_blank">davidcch12 发表于 2018-6-20 12:46</a>
@@ -13267,17 +9032,10 @@ KISS OF DEATHだよ！ミツルくん！
 然而这片的战斗编排……
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 2961#       发表于 2018-6-20 12:57
-
-
 
 
 周三了
@@ -13287,16 +9045,10 @@ KISS OF DEATHだよ！ミツルくん！
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  02016  
 ##### 2962#       发表于 2018-6-20 12:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40053570&amp;ptid=1712743" target="_blank">暮云雨凝 发表于 2018-6-20 12:48</a>
@@ -13324,16 +9076,10 @@ KISS OF DEATHだよ！ミツルくん！
 <img src="http://ww2.sinaimg.cn/large/87c01ec7gy1fshjuk6ym2j20jg0rsdob.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  山贼先生  
 ##### 2963#       发表于 2018-6-20 12:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40053666&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-20 12:57</a>
@@ -13346,16 +9092,10 @@ KISS OF DEATHだよ！ミツルくん！
 不要再折磨5郎了好吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 2964#       发表于 2018-6-20 12:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40053666&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-20 12:57</a>
@@ -13368,32 +9108,19 @@ KISS OF DEATHだよ！ミツルくん！
 别挣扎了，让蝈蝈安详的走吧
 
 
-
-
-
-
-
 -----
 
 ####  02016  
 ##### 2965#       发表于 2018-6-20 13:04
 
 
-
-
 看了眼推舅舅党今天好像心情不是很好，就算搞到片源可能也没心情放表了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  山贼先生  
 ##### 2966#       发表于 2018-6-20 13:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40053754&amp;ptid=1712743" target="_blank">02016 发表于 2018-6-20 13:04</a>
@@ -13405,16 +9132,10 @@ KISS OF DEATHだよ！ミツルくん！
 然而就算有预告 想摸196屁屁也是很难的
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 2967#       发表于 2018-6-20 13:09
-
 
 
 <blockquote>山贼先生 发表于 2018-6-20 13:05
@@ -13425,17 +9146,10 @@ KISS OF DEATHだよ！ミツルくん！
 也未必，预告来个广穿着博士衣服/突入十年后展开，大人化的部分人/一堆墓碑……之类的爆炸新闻，也有可能……
 
 
-
-
-
-
-
 -----
 
 ####  猪的报恩  
 ##### 2968#       发表于 2018-6-20 13:09
-
-
 
 
 试试看能不能转个长图
@@ -13451,24 +9165,13 @@ KISS OF DEATHだよ！ミツルくん！
 2018-6-20 13:09 上传
 
 
-
-
-
-
-
 感觉很甜<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 2969#       发表于 2018-6-20 13:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40053666&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-20 12:57</a>
@@ -13483,16 +9186,10 @@ KISS OF DEATHだよ！ミツルくん！
 下集预告要是又凑1516又让703出来，或许还有点指望。
 
 
-
-
-
-
-
 -----
 
 ####  02016  
 ##### 2970#       发表于 2018-6-20 13:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40053774&amp;ptid=1712743" target="_blank">山贼先生 发表于 2018-6-20 13:05</a>
@@ -13504,16 +9201,10 @@ KISS OF DEATHだよ！ミツルくん！
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说不定来个超级爆炸的预告，五百都不是梦
 
 
-
-
-
-
-
 -----
 
 ####  02016  
 ##### 2971#       发表于 2018-6-20 13:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40053821&amp;ptid=1712743" target="_blank">猪的报恩 发表于 2018-6-20 13:09</a>
@@ -13522,17 +9213,10 @@ KISS OF DEATHだよ！ミツルくん！
 甜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这脑洞可以媲美mato老师了
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 2972#       发表于 2018-6-20 13:16
-
-
 
 
 还不明白吗
@@ -13540,16 +9224,10 @@ KISS OF DEATHだよ！ミツルくん！
 现在预告来什么都没用了……蝈蝈已经没救了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 2973#       发表于 2018-6-20 13:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40050689&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-20 09:11</a>
@@ -13564,17 +9242,10 @@ KISS OF DEATHだよ！ミツルくん！
 9α：“我想和iota一起驾驶Franxx战斗。但是现在的我不像人类，所以不行。如果我学习旧人类知识，变得更像人的话...iota，能和我一起驾驶Franxx吗？”
 
 
-
-
-
-
-
 -----
 
 ####  猪的报恩  
 ##### 2974#       发表于 2018-6-20 13:20
-
-
 
 
 预告想炸裂，我看只有：
@@ -13583,16 +9254,10 @@ KISS OF DEATHだよ！ミツルくん！
 13队某人死亡、9a死亡、搭档换机、直美再临、一觉醒来发现ed才是现实……
 
 
-
-
-
-
-
 -----
 
 ####  山贼先生  
 ##### 2975#       发表于 2018-6-20 13:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40053830&amp;ptid=1712743" target="_blank">02016 发表于 2018-6-20 13:10</a>
@@ -13601,16 +9266,10 @@ KISS OF DEATHだよ！ミツルくん！
 真的是梦里什么都有。。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  02016  
 ##### 2976#       发表于 2018-6-20 13:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40053956&amp;ptid=1712743" target="_blank">山贼先生 发表于 2018-6-20 13:21</a>
@@ -13619,16 +9278,10 @@ KISS OF DEATHだよ！ミツルくん！
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">容我做做梦
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2977#       发表于 2018-6-20 13:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40053927&amp;ptid=1712743" target="_blank">Mr.BBWoLf 发表于 2018-6-20 13:19</a>
@@ -13639,25 +9292,13 @@ KISS OF DEATHだよ！ミツルくん！
 不可能，抛出iota是9队的妈妈，而且9队没有继承叫龙血的设定了。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">开3次照样死
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 2978#       发表于 2018-6-20 13:26
 
 
-
-
 佛一点不好吗，我现在就在期待着新买的显示器<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13666,24 +9307,15 @@ KISS OF DEATHだよ！ミツルくん！
 ##### 2979#       发表于 2018-6-20 13:29
 
 
-
-
 佛些好
 我现在只需要呼吸悠尼就可以活下去
 虽然感觉有点窒息……
-
-
-
-
-
 
 
 -----
 
 ####  Mr.BBWoLf  
 ##### 2980#       发表于 2018-6-20 13:30
-
-
 
 
 啥子算超级爆炸回？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
@@ -13695,17 +9327,10 @@ KISS OF DEATHだよ！ミツルくん！
 703骑着一辆黄色的Vespa...
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 2981#       发表于 2018-6-20 13:31
-
-
 
 
 现在什么预告都没用。
@@ -13721,35 +9346,19 @@ KISS OF DEATHだよ！ミツルくん！
 也可能跑出专楼……
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 2982#       发表于 2018-6-20 13:32
 
 
-
-
 爆炸回：20年后莓广结婚生小孩，02在照片里，立马喷炸
-
-
-
-
-
 
 
 -----
 
 ####  猫白羽毛  
 ##### 2983#       发表于 2018-6-20 13:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40054052&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-20 13:31</a>
@@ -13763,16 +9372,10 @@ KISS OF DEATHだよ！ミツルくん！
 纯粹大家都没精力来讨论罢了
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 2984#       发表于 2018-6-20 13:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40054071&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-20 13:32</a>
@@ -13781,25 +9384,13 @@ KISS OF DEATHだよ！ミツルくん！
 五郎咋办啊？
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 2985#       发表于 2018-6-20 13:48
 
 
-
-
 18集预告那种水平吧，记得骂了很多页<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13808,16 +9399,10 @@ KISS OF DEATHだよ！ミツルくん！
 ##### 2986#       发表于 2018-6-20 13:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40054202&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-20 13:44</a>
 
 五郎咋办啊？</blockquote>
 去照顾白发196啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13826,23 +9411,15 @@ KISS OF DEATHだよ！ミツルくん！
 ##### 2987#       发表于 2018-6-20 13:59
 
 
-
-
 看下集的时间线是接着的还是几个月后，几个月后心的肚子该大了，郁乃头发也白了
 
 我上回造的一周更一次新人设的图的假药还有机会成真
-
-
-
-
-
 
 
 -----
 
 ####  山贼先生  
 ##### 2988#       发表于 2018-6-20 14:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40054365&amp;ptid=1712743" target="_blank">02016 发表于 2018-6-20 13:59</a>
@@ -13853,16 +9430,10 @@ KISS OF DEATHだよ！ミツルくん！
 别闹。。。。。。国21真直接几个月后 那02就彻底凉透了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  02016  
 ##### 2989#       发表于 2018-6-20 14:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40054439&amp;ptid=1712743" target="_blank">山贼先生 发表于 2018-6-20 14:07</a>
@@ -13871,16 +9442,10 @@ KISS OF DEATHだよ！ミツルくん！
 那还是接着21集的时间吧，想办法救救02<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 2990#       发表于 2018-6-20 14:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40050753&amp;ptid=1712743" target="_blank">お菓子食べたい 发表于 2018-6-20 09:16</a>
@@ -13891,16 +9456,10 @@ KISS OF DEATHだよ！ミツルくん！
 自娱自乐拉片吐槽而已
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 2991#       发表于 2018-6-20 14:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40051913&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-20 10:47</a>
@@ -13912,33 +9471,20 @@ KISS OF DEATHだよ！ミツルくん！
 发现太长可能看不全所以决定分开发<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 2992#       发表于 2018-6-20 14:14
 
 
-
-
 02凉透就凉透呗
 要是02凉了我还真想看看他怎么编
-
-
-
-
-
 
 
 -----
 
 ####  mumubear  
 ##### 2993#       发表于 2018-6-20 14:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40054340&amp;ptid=1712743" target="_blank">山贼先生 发表于 2018-6-20 13:57</a>
@@ -13950,25 +9496,13 @@ KISS OF DEATHだよ！ミツルくん！
 老娘活不了多久，你也得不到草莓。。。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 2994#       发表于 2018-6-20 14:17
 
 
-
-
 又看了一眼阿帕斯......这好像像在哭啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13977,15 +9511,9 @@ KISS OF DEATHだよ！ミツルくん！
 ##### 2995#       发表于 2018-6-20 14:17
 
 
-
 <blockquote>amulelernen 发表于 2018-6-20 13:32
 爆炸回：20年后莓广结婚生小孩，02在照片里，立马喷炸</blockquote>
 只要预告有凑莓广迹象吓吓人，196就差不多了。要么凑郁莓、九莓或者五莓应该也有疗效，最有疗效的当然是上述场景都出现糊弄人。该片目前感情线上唯一还能有药效的就只有莓了吧……
-
-
-
-
-
 
 
 -----
@@ -13994,16 +9522,10 @@ KISS OF DEATHだよ！ミツルくん！
 ##### 2996#       发表于 2018-6-20 14:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40054539&amp;ptid=1712743" target="_blank">fengzijiang 发表于 2018-6-20 14:17</a>
 
 又看了一眼阿帕斯......这好像像在哭啊</blockquote>
 有病得治啊
-
-
-
-
-
 
 
 -----
@@ -14012,15 +9534,9 @@ KISS OF DEATHだよ！ミツルくん！
 ##### 2997#       发表于 2018-6-20 14:19
 
 
-
 <blockquote>山贼先生 发表于 2018-6-20 14:07
 别闹。。。。。。国21真直接几个月后 那02就彻底凉透了</blockquote>
 可以植物人个几个月…或者进阿帕斯了的话也要一番功夫才能出来吧？
-
-
-
-
-
 
 
 -----
@@ -14029,16 +9545,10 @@ KISS OF DEATHだよ！ミツルくん！
 ##### 2998#       发表于 2018-6-20 14:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40054539&amp;ptid=1712743" target="_blank">fengzijiang 发表于 2018-6-20 14:17</a>
 又看了一眼阿帕斯......这好像像在哭啊</blockquote>
 我有上好的粉黄药
 等我救完悠尼就来喂你吃
-
-
-
-
-
 
 
 -----
@@ -14047,23 +9557,16 @@ KISS OF DEATHだよ！ミツルくん！
 ##### 2999#       发表于 2018-6-20 14:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40054560&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-20 14:18</a>
 有病得治啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">看起来那两道蓝色的真的像是泪痕啊
 还是我发现的太晚了.......
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3000#       发表于 2018-6-20 14:24
-
 
 
 <blockquote>fengzijiang 发表于 2018-6-20 14:17
@@ -14073,16 +9576,10 @@ KISS OF DEATHだよ！ミツルくん！
 然后眼睛往上的红色代表02，02正好有红眼影。
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3001#       发表于 2018-6-20 14:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40054594&amp;ptid=1712743" target="_blank">fengzijiang 发表于 2018-6-20 14:22</a>
@@ -14092,16 +9589,10 @@ KISS OF DEATHだよ！ミツルくん！
 之前上下都是蓝色来着
 
 
-
-
-
-
-
 -----
 
 ####  新年才醒  
 ##### 3002#       发表于 2018-6-20 14:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40054546&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-20 14:17</a>
@@ -14116,16 +9607,10 @@ KISS OF DEATHだよ！ミツルくん！
 没那魄力把02弄凉凉，就别把我莓扯进来。。。 老老实实写个0216HE的庸俗结尾吧
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 3003#       发表于 2018-6-20 14:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40053897&amp;ptid=1712743" target="_blank">davidcch12 发表于 2018-6-20 13:16</a>
@@ -14135,33 +9620,20 @@ KISS OF DEATHだよ！ミツルくん！
 说的好像有预告可以就蝈蝈一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 3004#       发表于 2018-6-20 14:26
 
 
-
-
 只有日常回预告可以反向救国。。
 我想不出什么正向救国的可能了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 3005#       发表于 2018-6-20 14:27
-
 
 
  本帖最后由 玖瑶君 于 2018-6-20 14:30 编辑 
@@ -14174,16 +9646,10 @@ KISS OF DEATHだよ！ミツルくん！
 你的意思是就算预告片这么吓人，大家也不信了嘛……狼来了。
 
 
-
-
-
-
-
 -----
 
 ####  新年才醒  
 ##### 3006#       发表于 2018-6-20 14:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40054646&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-20 14:27</a>
@@ -14195,16 +9661,10 @@ KISS OF DEATHだよ！ミツルくん！
 国14国15  我就看透了 锦织哥哥是个怂B，根本不敢超展开
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3007#       发表于 2018-6-20 14:34
-
 
 
 <blockquote>Meteors 发表于 2018-6-20 14:26
@@ -14216,17 +9676,10 @@ KISS OF DEATHだよ！ミツルくん！
 不过要是外星人立刻言而有信地打回来我也无话可说233
 
 
-
-
-
-
-
 -----
 
 ####  戏谑二次元  
 ##### 3008#       发表于 2018-6-20 14:35
-
-
 
 
 锦织太怂逼了，本来021516多好的大三角，从第七话就可以展开党争了，结果放着观众喜闻乐见的不敢写，弄一堆日常水回。妈耶，写戏人家看的是激烈的冲突，不是想看你好我好大家好过家家好伐？_(:з」∠)_
@@ -14234,17 +9687,10 @@ KISS OF DEATHだよ！ミツルくん！
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3009#       发表于 2018-6-20 14:36
-
-
 
 
 #6、15之后都是博士搞出的日常
@@ -14254,27 +9700,15 @@ KISS OF DEATHだよ！ミツルくん！
 去星实核心好像又要重新开路了
 
 
-
-
-
-
-
 -----
 
 ####  戏谑二次元  
 ##### 3010#       发表于 2018-6-20 14:37
 
 
-
-
 其实预告也不用演莓广什么的，只要给个阿广和02告别，然后火葬掉02的场景，大家就可以高潮不断了
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -14283,23 +9717,16 @@ KISS OF DEATHだよ！ミツルくん！
 ##### 3011#       发表于 2018-6-20 14:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40054646&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-20 14:27</a>
 
 你的意思是就算预告片这么吓人，大家也不信了嘛……狼来了。</blockquote>
 说真的，就算预告里有广莓甜甜蜜蜜、1556恋爱展开、703出现……等喜闻乐见（或者没人想看）的剧情，我也会直接猜这都是02神游星实体看到的幻觉。
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 3012#       发表于 2018-6-20 14:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40054766&amp;ptid=1712743" target="_blank">戏谑二次元 发表于 2018-6-20 14:37</a>
@@ -14313,16 +9740,10 @@ KISS OF DEATHだよ！ミツルくん！
 杀了jg      O
 
 
-
-
-
-
-
 -----
 
 ####  新年才醒  
 ##### 3013#       发表于 2018-6-20 14:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40054766&amp;ptid=1712743" target="_blank">戏谑二次元 发表于 2018-6-20 14:37</a>
@@ -14337,16 +9758,10 @@ KISS OF DEATHだよ！ミツルくん！
  所以就算连广都死了  02都死不了 
 
 
-
-
-
-
-
 -----
 
 ####  大江户战士  
 ##### 3014#       发表于 2018-6-20 14:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40052513&amp;ptid=1712743" target="_blank">02016 发表于 2018-6-20 11:27</a>
@@ -14359,32 +9774,19 @@ KISS OF DEATHだよ！ミツルくん！</blockquote>
 这位绘柄接近动画啊，很好康
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 3015#       发表于 2018-6-20 14:49
 
 
-
-
 下集02变植物人可能性高于95%<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">肉体死了总感觉不太可能.......要是真肉体死了的话那就只有16也融进去的选项了
-
-
-
-
-
 
 
 -----
 
 ####  戏谑二次元  
 ##### 3016#       发表于 2018-6-20 14:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40054866&amp;ptid=1712743" target="_blank">新年才醒 发表于 2018-6-20 14:45</a>
@@ -14402,16 +9804,10 @@ JZGG都明确说了   “这是为02所写的故事”  
 阿广这集连叫龙都能读记忆了，再加上最后一幕02灵体和阿广重合，说不定双份的记忆，双份的darling哦
 
 
-
-
-
-
-
 -----
 
 ####  arrru  
 ##### 3017#       发表于 2018-6-20 14:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40050500&amp;ptid=1712743" target="_blank">xiyue365 发表于 2018-06-20 08:57:31</a>
@@ -14420,16 +9816,10 @@ JZGG都明确说了   “这是为02所写的故事”  
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  戏谑二次元  
 ##### 3018#       发表于 2018-6-20 14:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40054828&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-20 14:42</a>
@@ -14440,16 +9830,10 @@ JZGG都明确说了   “这是为02所写的故事”  
 等等，在你那里锦织还活着么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 3019#       发表于 2018-6-20 14:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40054953&amp;ptid=1712743" target="_blank">戏谑二次元 发表于 2018-6-20 14:51</a>
@@ -14460,16 +9844,10 @@ JZGG都明确说了   “这是为02所写的故事”  
 你一定是疯了
 
 
-
-
-
-
-
 -----
 
 ####  02016  
 ##### 3020#       发表于 2018-6-20 14:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40054877&amp;ptid=1712743" target="_blank">大江户战士 发表于 2018-6-20 14:46</a>
@@ -14478,16 +9856,10 @@ JZGG都明确说了   “这是为02所写的故事”  
 对，接近动画，很喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mumubear  
 ##### 3021#       发表于 2018-6-20 14:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40054975&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-20 14:52</a>
@@ -14499,16 +9871,10 @@ JZGG都明确说了   “这是为02所写的故事”  
 先在病床上躺两集，你说吼不吼。。。
 
 
-
-
-
-
-
 -----
 
 ####  戏谑二次元  
 ##### 3022#       发表于 2018-6-20 14:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40054975&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-20 14:52</a>
@@ -14523,33 +9889,19 @@ JZGG都明确说了   “这是为02所写的故事”  
 所以锦织还是搞复活变人结婚这路线吧，最起码能拿个庸作的评价<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 3023#       发表于 2018-6-20 15:03
 
 
-
-
 复活，变人，结婚，三天三夜，生孩子，要是都有我就满足了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">要求似乎有点高.....
-
-
-
-
-
 
 
 -----
 
 ####  02016  
 ##### 3024#       发表于 2018-6-20 15:06
-
-
 
 
 推主画的第五弹来了
@@ -14570,32 +9922,19 @@ RirakkumaKaito@RirakkumaKaito
 前四弹[https://bbs.saraba1st.com/2b/for ... age=162#pid39992196](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1706960&amp;page=162#pid39992196)
 
 
-
-
-
-
-
 -----
 
 ####  skives  
 ##### 3025#       发表于 2018-6-20 15:06
 
 
-
-
 02变成精神体看来也是为了否定virm进行的体验之一。
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 3026#       发表于 2018-6-20 15:10
-
 
 
 <blockquote>02016 发表于 2018-6-20 15:06
@@ -14610,32 +9949,19 @@ RirakkumaKaito@RirakkumaKaito
 214可爱，但是真的不会转手都吃掉吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3027#       发表于 2018-6-20 15:11
 
 
-
-
 事到如今我还有幼广可以舔么
-
-
-
-
-
 
 
 -----
 
 ####  royalblue1127  
 ##### 3028#       发表于 2018-6-20 15:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40055145&amp;ptid=1712743" target="_blank">02016 发表于 2018-6-20 15:06</a>
@@ -14645,16 +9971,10 @@ RirakkumaKaito@RirakkumaKaito</blockquote>
 可以可以<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  戏谑二次元  
 ##### 3029#       发表于 2018-6-20 15:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40055099&amp;ptid=1712743" target="_blank">fengzijiang 发表于 2018-6-20 15:03</a>
@@ -14667,16 +9987,10 @@ RirakkumaKaito@RirakkumaKaito</blockquote>
 倒是直接这集把02摁死然后永久下线，下一集把心（连孩子）摁死然后永久下线，这样的剧情才能让人猜不透呢。
 
 
-
-
-
-
-
 -----
 
 ####  02016  
 ##### 3030#       发表于 2018-6-20 15:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40055184&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-20 15:10</a>
@@ -14690,16 +10004,10 @@ RirakkumaKaito@RirakkumaKaito</blockquote>
 这脑洞可以<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太：我要客串的是孤独的美食家不是进击的巨人
 
 
-
-
-
-
-
 -----
 
 ####  02016  
 ##### 3031#       发表于 2018-6-20 15:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40055209&amp;ptid=1712743" target="_blank">royalblue1127 发表于 2018-6-20 15:12</a>
@@ -14708,26 +10016,15 @@ RirakkumaKaito@RirakkumaKaito</blockquote>
 很萌
 
 
-
-
-
-
-
 -----
 
 ####  お菓子食べたい  
 ##### 3032#       发表于 2018-6-20 15:24
 
 
-
 <blockquote>戏谑二次元 发表于 2018-6-20 16:35
 锦织太怂逼了，本来021516多好的大三角，从第七话就可以展开党争了，结果放着观众喜闻乐见的不敢写，弄一堆 ...</blockquote>
 ...那个 党争不是会被骂得更惨吗？当时播到13、14那里群众已经爆炸了吧微博上铺天盖地全是喷子，我没理解？这说的不是同一批观众阿
-
-
-
-
-
 
 
 -----
@@ -14736,23 +10033,16 @@ RirakkumaKaito@RirakkumaKaito</blockquote>
 ##### 3033#       发表于 2018-6-20 15:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40055346&amp;ptid=1712743" target="_blank">お菓子食べたい 发表于 2018-6-20 15:24</a>
 ...那个 党争不是会被骂得更惨吗？当时播到13、14那里群众已经爆炸了吧微博上铺天盖地全是喷子，我没理解 ...</blockquote>
 党争x
 女人撕逼√
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3034#       发表于 2018-6-20 15:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40055346&amp;ptid=1712743" target="_blank">お菓子食べたい 发表于 2018-6-20 15:24</a>
@@ -14764,17 +10054,10 @@ RirakkumaKaito@RirakkumaKaito</blockquote>
 不过考虑到一切对13集负责的原则，前面真党争（让1615有实质箭头而不是纯粹的莓一厢情愿）岂不是02不说人话司马脸数集1516有展开之后来个13集强势翻盘，那效果<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3035#       发表于 2018-6-20 15:31
-
-
 
 
 噗看到[atre现场](https://twitter.com/tyatyasan3/status/1009325461657116674)SP2给AR收录完毕的CV们讲话的锦织
@@ -14785,25 +10068,13 @@ HYDE 新单曲 AFTER LIGHT 收录 KISS OF DEATH
 6.29数字先行，8.1发行
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 3036#       发表于 2018-6-20 15:31
 
 
-
-
 一边倒的不叫党争，白学同理
-
-
-
-
-
 
 
 -----
@@ -14812,14 +10083,7 @@ HYDE 新单曲 AFTER LIGHT 收录 KISS OF DEATH
 ##### 3037#       发表于 2018-6-20 15:33
 
 
-
-
 下集就以02视角介绍她以iota身份征战沙场，和9队一起生活的往事，着重表现她怎样变人，和9队的互动，对汁男的态度变化，darling 的思念，表现好一点的话既感人又能丰富人物形象。当然最后被016一个吻唤醒是少不了的。 这样锦织能被缓刑么
-
-
-
-
-
 
 
 -----
@@ -14828,16 +10092,10 @@ HYDE 新单曲 AFTER LIGHT 收录 KISS OF DEATH
 ##### 3038#       发表于 2018-6-20 15:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40055442&amp;ptid=1712743" target="_blank">不再是小孩子了 发表于 2018-6-20 15:33</a>
 
 下集就以02视角介绍她以iota身份征战沙场，和9队一起生活的往事，着重表现她怎样变人，和9队的互动，对汁男 ...</blockquote>
 早死晚死都是死 所以不要妄想给JZGG缓刑了
-
-
-
-
-
 
 
 -----
@@ -14846,16 +10104,10 @@ HYDE 新单曲 AFTER LIGHT 收录 KISS OF DEATH
 ##### 3039#       发表于 2018-6-20 15:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40055346&amp;ptid=1712743" target="_blank">お菓子食べたい 发表于 2018-6-20 15:24</a>
 
 ...那个 党争不是会被骂得更惨吗？当时播到13、14那里群众已经爆炸了吧微博上铺天盖地全是喷子，我没理解 ...</blockquote>
 从第七集开始，第八集不搞男生女生，开始描写大三角。而不是从13集一锤定音后开始作妖
-
-
-
-
-
 
 
 -----
@@ -14864,22 +10116,15 @@ HYDE 新单曲 AFTER LIGHT 收录 KISS OF DEATH
 ##### 3040#       发表于 2018-6-20 15:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40055442&amp;ptid=1712743" target="_blank">不再是小孩子了 发表于 2018-6-20 15:33</a>
 下集就以02视角介绍她以iota身份征战沙场，和9队一起生活的往事，着重表现她怎样变人，和9队的互动，对汁男 ...</blockquote>
 我觉得不能。。再回忆一集，外星人又双叒叕一集打跑，一样是处以死刑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  davidcch12  
 ##### 3041#       发表于 2018-6-20 15:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40055442&amp;ptid=1712743" target="_blank">不再是小孩子了 发表于 2018-06-20 15:33:29</a>
@@ -14889,26 +10134,15 @@ HYDE 新单曲 AFTER LIGHT 收录 KISS OF DEATH
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 3042#       发表于 2018-6-20 15:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40055521&amp;ptid=1712743" target="_blank">Meteors 发表于 2018-6-20 15:41</a>
 我觉得不能。。再回忆一集，外星人又双叒叕一集打跑，一样是处以死刑 ...</blockquote>
 你觉得打两集外星人就好看了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14917,21 +10151,13 @@ HYDE 新单曲 AFTER LIGHT 收录 KISS OF DEATH
 ##### 3043#       发表于 2018-6-20 15:49
 
 
-
-
 不慌，再来一话半的日常。
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 3044#       发表于 2018-6-20 15:50
-
 
 
 <blockquote>不再是小孩子了 发表于 2018-6-20 15:33
@@ -14941,17 +10167,10 @@ HYDE 新单曲 AFTER LIGHT 收录 KISS OF DEATH
 毕竟还有很多很多别的坑……
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 3045#       发表于 2018-6-20 15:53
-
-
 
 
 其实我也不知道还有三集要做成啥样我才能觉得观感好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -14959,16 +10178,10 @@ HYDE 新单曲 AFTER LIGHT 收录 KISS OF DEATH
 一个月后我应该只记得心满了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑色蘑菇  
 ##### 3046#       发表于 2018-6-20 15:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40055442&amp;ptid=1712743" target="_blank">不再是小孩子了 发表于 2018-6-20 15:33</a>
@@ -14979,17 +10192,10 @@ HYDE 新单曲 AFTER LIGHT 收录 KISS OF DEATH
 现在怎么还敢拍汁男和02同屏
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3047#       发表于 2018-6-20 15:54
-
-
 
 
 不打了机械降神，只能靠漫画打了，剧场版/二期不靠谱
@@ -15002,16 +10208,10 @@ HYDE 新单曲 AFTER LIGHT 收录 KISS OF DEATH
 个中平衡以及如何调整观感，全靠锦织神操作了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑色蘑菇  
 ##### 3048#       发表于 2018-6-20 16:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40055693&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-20 15:54</a>
@@ -15022,17 +10222,10 @@ HYDE 新单曲 AFTER LIGHT 收录 KISS OF DEATH
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我现在开始觉得爱奇艺奶的 4对cp齐发狗粮 是个还行的结局了
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 3049#       发表于 2018-6-20 16:06
-
-
 
 
 打很简单，一集真的够了，前提是好好打一整集，不能全光炮
@@ -15040,16 +10233,10 @@ HYDE 新单曲 AFTER LIGHT 收录 KISS OF DEATH
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  zjylyy  
 ##### 3050#       发表于 2018-6-20 16:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40055693&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-06-20 15:54:54</a>
@@ -15060,32 +10247,19 @@ HYDE 新单曲 AFTER LIGHT 收录 KISS OF DEATH
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3051#       发表于 2018-6-20 16:18
 
 
-
-
 13队这战斗力，打个斥候手下的无人机都费劲；9队还行，但是因为大意送了一只；不打光炮如何解决哟……
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 3052#       发表于 2018-6-20 16:22
-
 
 
  本帖最后由 华尔姬丽雅 于 2018-6-20 16:23 编辑 
@@ -15098,16 +10272,10 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 所以最终大决战恐怕还是一枪/一炮打过去，擦边的不擦边的敌人统统爆炸，问题解决。
 
 
-
-
-
-
-
 -----
 
 ####  cbx0707  
 ##### 3053#       发表于 2018-6-20 16:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40055442&amp;ptid=1712743" target="_blank">不再是小孩子了 发表于 2018-6-20 15:33</a>
@@ -15116,25 +10284,13 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 我觉得这些东西到现在已经没啥意义了，还不如讲讲外星人和地球的渊源之类的靠谱
 
 
-
-
-
-
-
 -----
 
 ####  skives  
 ##### 3054#       发表于 2018-6-20 16:24
 
 
-
-
 希望是virm大军毁灭地球 男主逃难结局
-
-
-
-
-
 
 
 -----
@@ -15143,22 +10299,15 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 ##### 3055#       发表于 2018-6-20 16:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056024&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-20 16:22</a>
 virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困难，何况是叫龙公主回忆里那种，更不用说这集 ...</blockquote>
 不至于一枪/一炮，因为浮游炮还没用，肯定用得上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">........至于近战的打戏，敌方要是也有boss机的话应该会有吧 ........
-
-
-
-
-
 
 
 -----
 
 ####  戏谑二次元  
 ##### 3056#       发表于 2018-6-20 16:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056024&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-20 16:22</a>
@@ -15169,17 +10318,10 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 当然现在的情况更接近飞2
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 3057#       发表于 2018-6-20 16:26
-
-
 
 
 先阿帕斯光炮清场，virm.拿出杀手锏，想带13队就只能合体了
@@ -15187,16 +10329,10 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3058#       发表于 2018-6-20 16:26
-
 
 
 <blockquote>amulelernen 发表于 2018-6-20 16:18
@@ -15210,16 +10346,10 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 比较合理的解释是：外星人攻高防低，只要灵活点不被缠上或者突袭的话一击n个，一旦被缠上就会被拆机重伤完蛋……
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3059#       发表于 2018-6-20 16:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056056&amp;ptid=1712743" target="_blank">cbx0707 发表于 2018-6-20 16:24</a>
@@ -15228,26 +10358,15 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 对这片来说，外星人和地球的渊源才叫没意义……
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3060#       发表于 2018-6-20 16:28
 
 
-
 <blockquote>华尔姬丽雅 发表于 2018-6-20 16:22
 virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困难，何况是叫龙公主回忆里那种，更不用说这集 ...</blockquote>
 其实还有种选择就是virm有某个（合理）的弱点，找到窍门后打起来不难（就像是打叫龙必须打核心那种窍门）。
-
-
-
-
-
 
 
 -----
@@ -15256,14 +10375,7 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 ##### 3061#       发表于 2018-6-20 16:28
 
 
-
-
 所以我还是觉得我奶的精神污染破坏virm比较好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被vrim吸收进入里面然后和夜天使一样冲出来
-
-
-
-
-
 
 
 -----
@@ -15272,17 +10384,10 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 ##### 3062#       发表于 2018-6-20 16:28
 
 
-
-
 蝈蝈的本质就是一招秒杀
 虽然一招秒杀也没什么不好的，但是事到如今……打的好不好看已经无所谓了吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -15291,16 +10396,10 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 ##### 3063#       发表于 2018-6-20 16:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40055587&amp;ptid=1712743" target="_blank">fengzijiang 发表于 2018-6-20 15:45</a>
 
 你觉得打两集外星人就好看了吗？恕我直言，打外星人时间越长越不好看，这片的观感全靠文戏在撑， ...</blockquote>
 并不是外星人时间越长越不好看啊，纯粹只是被金枝哥哥搞砸了而已，把外星人设置得太弱太low，还是那种PVE的模式，当然不好看，如果能塑造成像正解的卡多里剧情暴走之前白毛的那种能力和逼格，我觉得还是挺有看点的
-
-
-
-
-
 
 
 -----
@@ -15309,14 +10408,7 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 ##### 3064#       发表于 2018-6-20 16:30
 
 
-
-
 楼里总在说话的那些感觉换了一批又一批……<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15325,23 +10417,15 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 ##### 3065#       发表于 2018-6-20 16:30
 
 
-
-
 莓在广心里有些地位还能接受，广对莓一点感觉也没有，当时还是02党的我看14话真是吃了屎
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  elflie  
 ##### 3066#       发表于 2018-6-20 16:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056077&amp;ptid=1712743" target="_blank">戏谑二次元 发表于 2018-6-20 16:25</a>
@@ -15353,27 +10437,15 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 top战斗力还是全靠吼啊
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 3067#       发表于 2018-6-20 16:31
 
 
-
-
 那不如进精神空间打了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -15382,16 +10454,10 @@ top战斗力还是全靠吼啊
 ##### 3068#       发表于 2018-6-20 16:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056101&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-20 16:27</a>
 
 对这片来说，外星人和地球的渊源才叫没意义……</blockquote>
 我觉得还好啊，这点感觉是唯一能够挽救这片子的地方了，其他的地方都已经尘埃落定了
-
-
-
-
-
 
 
 -----
@@ -15400,23 +10466,16 @@ top战斗力还是全靠吼啊
 ##### 3069#       发表于 2018-6-20 16:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056126&amp;ptid=1712743" target="_blank">cbx0707 发表于 2018-6-20 16:29</a>
 并不是外星人时间越长越不好看啊，纯粹只是被金枝哥哥搞砸了而已，把外星人设置得太弱太low，还是那种PVE ...</blockquote>
 我不觉得a1的机战能有三癞子的水准<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">，看过az第一季，我不觉得那机战有多好看。所以，尽量缩减吧，节省时间给文戏才是最好的，蝈蝈备受好评的5，13都是文戏 
 另外谈设定讲过去的渊源才是最无聊的事，说好了的确可以，说不好还不如不说扔本设定集让感兴趣的自己看，不过发展到现在真有人对设定感兴趣吗？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  戏谑二次元  
 ##### 3070#       发表于 2018-6-20 16:40
-
 
 
  本帖最后由 戏谑二次元 于 2018-6-20 16:42 编辑 
@@ -15426,16 +10485,10 @@ top战斗力还是全靠吼啊</blockquote>
 TOP靠努力和根性，这片子靠男女之爱，其实也没什么问题，大家都是一招秒，就是表现力上差远了。
 
 
-
-
-
-
-
 -----
 
 ####  yy19  
 ##### 3071#       发表于 2018-6-20 16:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40054740&amp;ptid=1712743" target="_blank">戏谑二次元 发表于 2018-6-20 14:35</a>
@@ -15446,16 +10499,10 @@ TOP靠努力和根性，这片子靠男女之爱，其实也没什么问题，�
 jzGG是个强欲（贪婪）der胖仔呢～<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">～
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3072#       发表于 2018-6-20 16:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056171&amp;ptid=1712743" target="_blank">cbx0707 发表于 2018-6-20 16:33</a>
@@ -15466,16 +10513,10 @@ jzGG是个强欲（贪婪）der胖仔呢～<img src="https://static.saraba1st.co
 而且这片讲设定的能力如何，看19集就明白了，既缺乏新意也缺乏“讲”的能力，19集啰嗦一整集最大的贡献就是告诉你博士是个001痴汉，剩下的内容只看20集都够。
 
 
-
-
-
-
-
 -----
 
 ####  戏谑二次元  
 ##### 3073#       发表于 2018-6-20 16:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056298&amp;ptid=1712743" target="_blank">yy19 发表于 2018-6-20 16:42</a>
@@ -15484,16 +10525,10 @@ jzGG是个强欲（贪婪）der胖仔呢～<img src="https://static.saraba1st.co
 想反乌，放着铺的好好的703线不展开，而去很做做的给心满洗个脑，实在是太智障了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑色蘑菇  
 ##### 3074#       发表于 2018-6-20 16:44
-
 
 
 <blockquote>戏谑二次元 发表于 2018-6-20 16:25
@@ -15507,16 +10542,10 @@ jzGG是个强欲（贪婪）der胖仔呢～<img src="https://static.saraba1st.co
 船和钢巴一样装了退缩炉的
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 3075#       发表于 2018-6-20 16:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056321&amp;ptid=1712743" target="_blank">戏谑二次元 发表于 2018-06-20 16:43:28</a>
@@ -15525,26 +10554,15 @@ jzGG是个强欲（贪婪）der胖仔呢～<img src="https://static.saraba1st.co
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3076#       发表于 2018-6-20 16:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056136&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-6-20 16:30</a>
 楼里总在说话的那些感觉换了一批又一批……</blockquote>
 但我一直都在哦
-
-
-
-
-
 
 
 -----
@@ -15553,15 +10571,9 @@ jzGG是个强欲（贪婪）der胖仔呢～<img src="https://static.saraba1st.co
 ##### 3077#       发表于 2018-6-20 16:45
 
 
-
 <blockquote>华尔姬丽雅 发表于 2018-6-20 16:22
 virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困难，何况是叫龙公主回忆里那种，更不用说这集 ...</blockquote>
 回忆里的先遣部队和#20-21的差不多啊，天降运兵飞梭，小（和叫龙人相比大，但是换算成FXX叫龙就差不多）紫人
-
-
-
-
-
 
 
 -----
@@ -15570,17 +10582,10 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 ##### 3078#       发表于 2018-6-20 16:47
 
 
-
-
 逃难结局也不错的
 驾驶经过人类改造的叫龙飞船驶向星海
 悠悠小船承载两个地球文明
 挺罗曼蒂克的
-
-
-
-
-
 
 
 -----
@@ -15589,23 +10594,16 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 ##### 3079#       发表于 2018-6-20 16:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056265&amp;ptid=1712743" target="_blank">fengzijiang 发表于 2018-6-20 16:39</a>
 
 我不觉得a1的机战能有三癞子的水准我看过a1的机战片不多(a1机战本来就不多吧)，看过az第一季，我 ...</blockquote>
 如果要演文戏的话，我觉得让地球人和外星人来一场思想碰撞般的对话会比较好一些，这帮小屁孩之间的相亲相爱你侬我侬真的是看的够够的了，我也不认为还能演出什么花来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3080#       发表于 2018-6-20 16:49
-
 
 
 <blockquote>猫白羽毛 发表于 2018-6-20 16:47
@@ -15622,16 +10620,10 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 叫龙更没有
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3081#       发表于 2018-6-20 16:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056396&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-20 16:49</a>
@@ -15645,16 +10637,10 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 20集叫龙上天的不是一大堆么，人类自己也有大波斯菊呀
 
 
-
-
-
-
-
 -----
 
 ####  山贼先生  
 ##### 3082#       发表于 2018-6-20 16:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056342&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-20 16:45</a>
@@ -15663,16 +10649,10 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 因为你是专楼偶像啊 白猫毛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cbx0707  
 ##### 3083#       发表于 2018-6-20 16:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056321&amp;ptid=1712743" target="_blank">戏谑二次元 发表于 2018-6-20 16:43</a>
@@ -15681,16 +10661,10 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 703如今看来可能真的是外星人派来卧底呢
 
 
-
-
-
-
-
 -----
 
 ####  戏谑二次元  
 ##### 3084#       发表于 2018-6-20 16:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056340&amp;ptid=1712743" target="_blank">黑色蘑菇 发表于 2018-6-20 16:44</a>
@@ -15705,17 +10679,10 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 诺诺和拉尔克与其他bustermachine巨大的战力差。前面其他机还能打打太阳系防卫系统，真宇宙怪兽出来之后完全就是弱鸡。
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3085#       发表于 2018-6-20 16:51
-
-
 
 
 而且叫龙人自己说比有人更先进的文明
@@ -15723,16 +10690,10 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 没理由不上天
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3086#       发表于 2018-6-20 16:53
-
 
 
 <blockquote>猫白羽毛 发表于 2018-6-20 16:49
@@ -15745,16 +10706,10 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 就记得一个飞短程的01坐骑双蛇……
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3087#       发表于 2018-6-20 16:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056386&amp;ptid=1712743" target="_blank">cbx0707 发表于 2018-6-20 16:48</a>
@@ -15765,16 +10720,10 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 说到底，被派出去作为地球人代表和外星人对话的也只可能是小屁孩，谈谈恋爱还成，搞外交对话更说不出花来。
 
 
-
-
-
-
-
 -----
 
 ####  戏谑二次元  
 ##### 3088#       发表于 2018-6-20 16:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056442&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-20 16:53</a>
@@ -15785,16 +10734,10 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 叫龙导弹
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3089#       发表于 2018-6-20 16:56
-
 
 
 <blockquote>猫白羽毛 发表于 2018-6-20 16:51
@@ -15815,16 +10758,10 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 所以还是开阿帕斯靠谱
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3090#       发表于 2018-6-20 16:58
-
 
 
 <blockquote>戏谑二次元 发表于 2018-6-20 16:55
@@ -15834,16 +10771,10 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 不过那个不是上天就boom了嘛
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3091#       发表于 2018-6-20 16:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056471&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-20 16:56</a>
@@ -15856,16 +10787,10 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 <img src="https://i.loli.net/2018/06/20/5b2a174befd5e.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cbx0707  
 ##### 3092#       发表于 2018-6-20 16:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056443&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-20 16:53</a>
@@ -15876,17 +10801,10 @@ virm大军001回忆里有出现过，13队、9队打这集出现的virm兵都困
 这样看来感觉一边打一边谈恋爱可能是观感最好的展开了，最好对面也派出几个FFF团精英出来强势打断，然后看看谁的觉悟更高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 3093#       发表于 2018-6-20 16:59
-
-
 
 
 【雑誌掲載情報】
@@ -15900,16 +10818,10 @@ OPテーマを歌う中島美嘉さんのインタビュー&amp;撮り下ろし�
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fshr00lwafj20xc0ozu0x.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3094#       发表于 2018-6-20 17:02
-
 
 
 <blockquote>猫白羽毛 发表于 2018-6-20 16:58
@@ -15917,16 +10829,10 @@ OPテーマを歌う中島美嘉さんのインタビュー&amp;撮り下ろし�
 明明是自杀式叫龙导弹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  戏谑二次元  
 ##### 3095#       发表于 2018-6-20 17:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056370&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-20 16:47</a>
@@ -15943,16 +10849,10 @@ OPテーマを歌う中島美嘉さんのインタビュー&amp;撮り下ろし�
 作战场面宏大一些，气氛搞起来，蝈蝈还有一点救
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 3096#       发表于 2018-6-20 17:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056538&amp;ptid=1712743" target="_blank">戏谑二次元 发表于 2018-6-20 17:02</a>
@@ -15963,16 +10863,10 @@ OPテーマを歌う中島美嘉さんのインタビュー&amp;撮り下ろし�
 不是用lovelovepower打败敌人的话就和主题不符了
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3097#       发表于 2018-6-20 17:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056531&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-20 17:02</a>
@@ -15981,26 +10875,15 @@ OPテーマを歌う中島美嘉さんのインタビュー&amp;撮り下ろし�
 具体用来干嘛另说
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3098#       发表于 2018-6-20 17:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056538&amp;ptid=1712743" target="_blank">戏谑二次元 发表于 2018-6-20 17:02</a>
 结局狠一点，残存人类使用叫龙科技把地球改造成决战兵器。剩余人类乘坐APE遗产（叫龙遗产）飞向太空，开 ...</blockquote>
 下集开头就把216愣死得了
-
-
-
-
-
 
 
 -----
@@ -16009,23 +10892,16 @@ OPテーマを歌う中島美嘉さんのインタビュー&amp;撮り下ろし�
 ##### 3099#       发表于 2018-6-20 17:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056538&amp;ptid=1712743" target="_blank">戏谑二次元 发表于 2018-06-20 17:02:47</a>
 结局狠一点，残存人类使用叫龙科技把地球改造成决战兵器。剩余人类乘坐APE遗产（叫龙遗产）飞向太空，开 ...</blockquote>炸地球是不可能的
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  黑色蘑菇  
 ##### 3100#       发表于 2018-6-20 17:06
-
 
 
 <blockquote>猫白羽毛 发表于 2018-6-20 17:04
@@ -16035,32 +10911,19 @@ OPテーマを歌う中島美嘉さんのインタビュー&amp;撮り下ろし�
 别想了 22集大家都成老头老太了
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 3101#       发表于 2018-6-20 17:10
 
 
-
-
 人类抛弃地球....有这类型的番剧吗....<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  戏谑二次元  
 ##### 3102#       发表于 2018-6-20 17:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056545&amp;ptid=1712743" target="_blank">davidcch12 发表于 2018-6-20 17:03</a>
@@ -16075,16 +10938,10 @@ OPテーマを歌う中島美嘉さんのインタビュー&amp;撮り下ろし�
 然而由于生存者只剩下001一人，无法使用。最后阿广和02的鬼魂成功启动，这样就可以了。
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3103#       发表于 2018-6-20 17:13
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
@@ -16095,26 +10952,14 @@ OPテーマを歌う中島美嘉さんのインタビュー&amp;撮り下ろし�
 打不过还跑不过么
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3104#       发表于 2018-6-20 17:14
 
 
-
-
 反过来说v星人侵略地球有必要么
 我觉得火星加木星加土星资源肯定比地球值钱
-
-
-
-
-
 
 
 -----
@@ -16123,15 +10968,8 @@ OPテーマを歌う中島美嘉さんのインタビュー&amp;撮り下ろし�
 ##### 3105#       发表于 2018-6-20 17:14
 
 
-
-
 三 三体？
 最近陪男票开始看三体，三刷的我已经开始程心圣母上脑了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16140,16 +10978,10 @@ OPテーマを歌う中島美嘉さんのインタビュー&amp;撮り下ろし�
 ##### 3106#       发表于 2018-6-20 17:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056690&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-20 17:14</a>
 反过来说v星人侵略地球有必要么
 我觉得火星加木星加土星资源肯定比地球值钱 ...</blockquote>
 可能这些已经被征服了吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16158,16 +10990,9 @@ OPテーマを歌う中島美嘉さんのインタビュー&amp;撮り下ろし�
 ##### 3107#       发表于 2018-6-20 17:16
 
 
-
-
 virm要收集的是意识啊
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -16176,21 +11001,14 @@ virm要收集的是意识啊
 ##### 3108#       发表于 2018-6-20 17:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">我到还真没想到三体
 只不过stm叫龙人把自己埋地底6000多万年就这德行
-
-
-
-
-
 
 
 -----
 
 ####  猫白羽毛  
 ##### 3109#       发表于 2018-6-20 17:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056722&amp;ptid=1712743" target="_blank">闪亮的彗星 发表于 2018-6-20 17:16</a>
@@ -16202,26 +11020,14 @@ virm要收集的是意识啊
 杀鸡取卵不是好习惯
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3110#       发表于 2018-6-20 17:19
 
 
-
-
 我一定是疯了<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 吸不到悠尼……
-
-
-
-
-
 
 
 -----
@@ -16230,24 +11036,16 @@ virm要收集的是意识啊
 ##### 3111#       发表于 2018-6-20 17:20
 
 
-
-
 其实v星人上传意识的时候我已经有点三体上脑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 只是现在上脑的更厉害了。。。。
 \降维/ \降维/
 
 
-
-
-
-
-
 -----
 
 ####  戏谑二次元  
 ##### 3112#       发表于 2018-6-20 17:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056631&amp;ptid=1712743" target="_blank">Fnaygih 发表于 2018-6-20 17:10</a>
@@ -16258,32 +11056,20 @@ virm要收集的是意识啊
 <img src="https://ww2.sinaimg.cn/bmiddle/a4686ce2gy1fqz9stee1jj21hc0u01fz.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3113#       发表于 2018-6-20 17:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056785&amp;ptid=1712743" target="_blank">戏谑二次元 发表于 2018-6-20 17:20</a></blockquote>
 \top2/  \top2/
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 3114#       发表于 2018-6-20 17:23
-
 
 
  本帖最后由 玖瑶君 于 2018-6-20 17:27 编辑 
@@ -16306,26 +11092,15 @@ virm要收集的是意识啊
 反正突兀的势力已经有一个了，再多一个也没什么不正常，不如说反而更正常，那么大一个宇宙，就一个virm到处抢占地盘反而不正常吧？或者说如果宇宙里除了virm其他都是弱小不堪一击的势力，那岂不是说明virm的哲学其实才是更适合宇宙生存的？
 
 
-
-
-
-
-
 -----
 
 ####  不再是小孩子了  
 ##### 3115#       发表于 2018-6-20 17:24
 
 
-
 <blockquote>戏谑二次元 发表于 2018-6-20 17:02
 结局狠一点，残存人类使用叫龙科技把地球改造成决战兵器。剩余人类乘坐APE遗产（叫龙遗产）飞向太空，开 ...</blockquote>
 我现在觉得毁掉人家老巢这种断子绝孙的手段是我们温柔的锦织下不了手的，顶多在防御外敌入侵时用love love beam一炮轰沉敌方主力舰后16一通嘴炮，大不了在宇宙人全军面前和02相互撕咬，释放激情，让看着孩子们长大的virm 从虚无中涌出一股莫名的悸动，并流出悔恨的体液，最终大家相互理解之后就可以结束战争了
-
-
-
-
-
 
 
 -----
@@ -16334,22 +11109,13 @@ virm要收集的是意识啊
 ##### 3116#       发表于 2018-6-20 17:25
 
 
-
-
 说起lovepower，还有比美战更过分的lovepower番吗？？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Fnaygih  
 ##### 3117#       发表于 2018-6-20 17:28
-
-
 
 
 记得有个问答环节问，福岛P会不会亲自挂帅，
@@ -16359,16 +11125,10 @@ virm要收集的是意识啊
 所以福岛P人呢....<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3118#       发表于 2018-6-20 17:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056856&amp;ptid=1712743" target="_blank">Meteors 发表于 2018-6-20 17:25</a>
@@ -16377,16 +11137,10 @@ virm要收集的是意识啊
 美战Q娃这种魔法少女片lovelove抛瓦有啥不对，人家本身就走精神力路线。
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3119#       发表于 2018-6-20 17:31
-
 
 
 <blockquote>猫白羽毛 发表于 2018-6-20 17:18
@@ -16400,17 +11154,10 @@ virm要收集的是意识啊
 所以VIRM才知道利用这茬
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3120#       发表于 2018-6-20 17:32
-
-
 
 
 叫龙人保护地球的情操是伟大的。
@@ -16418,17 +11165,10 @@ virm要收集的是意识啊
 智商是真不够……被virm玩死也不冤。
 
 
-
-
-
-
-
 -----
 
 ####  skives  
 ##### 3121#       发表于 2018-6-20 17:33
-
-
 
 
 抄飞跃巅峰2抄的彻底一点多好
@@ -16439,16 +11179,10 @@ virm要收集的是意识啊
 诺诺莉莉一样的大和抚子
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3122#       发表于 2018-6-20 17:37
-
 
 
 <blockquote>猫白羽毛 发表于 2018-6-20 17:04
@@ -16458,16 +11192,10 @@ virm要收集的是意识啊
 嗯，看来叫龙很不屑在平流层活动
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3123#       发表于 2018-6-20 17:41
-
 
 
  本帖最后由 猫白羽毛 于 2018-6-20 17:43 编辑 
@@ -16482,16 +11210,10 @@ BAKA是会传染的么
 不能细想
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3124#       发表于 2018-6-20 17:41
-
 
 
 <blockquote>Fnaygih 发表于 2018-6-20 17:28
@@ -16505,16 +11227,10 @@ BAKA是会传染的么
 https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creative_producer_of/dup670h/
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3125#       发表于 2018-6-20 17:42
-
 
 
 <blockquote>猫白羽毛 发表于 2018-6-20 17:41
@@ -16528,16 +11244,10 @@ BAKA ...</blockquote>
 飞行器用来监控、运输人机就好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3126#       发表于 2018-6-20 17:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40057050&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-20 17:42</a>
@@ -16549,16 +11259,10 @@ BAKA ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cbx0707  
 ##### 3127#       发表于 2018-6-20 17:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056668&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-20 17:13</a>
@@ -16569,16 +11273,10 @@ BAKA ...</blockquote>
 我觉得不行吧，别把星际飞船想的那么简单啊，想造出星际飞船首先需要模拟出宇宙的环境来，这首先就得需要不断得发射宇宙探测器采集到足够多的数据并成功与地球通信，这就得消耗不知道多少年了，根据这些数据模拟出宇宙的全貌要求计算机拥有海量的内存。感觉仅仅准备工作都不止20年的。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3128#       发表于 2018-6-20 17:52
-
 
 
 <blockquote>猫白羽毛 发表于 2018-6-20 17:45
@@ -16592,16 +11290,10 @@ VIRM AI也如是
 不知道数千万上亿年四处掠夺都没骗到有军事才能的，还是合一后被平均智商拉低了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3129#       发表于 2018-6-20 17:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40057144&amp;ptid=1712743" target="_blank">cbx0707 发表于 2018-6-20 17:51</a>
@@ -16609,16 +11301,10 @@ VIRM AI也如是
 模拟宇宙全貌…<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3130#       发表于 2018-6-20 17:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40057148&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-20 17:52</a>
@@ -16630,16 +11316,10 @@ VIRM AI也如是
 因为人物的智商上限是编剧啊<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mumubear  
 ##### 3131#       发表于 2018-6-20 17:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056631&amp;ptid=1712743" target="_blank">Fnaygih 发表于 2018-6-20 17:10</a>
@@ -16648,16 +11328,10 @@ VIRM AI也如是
 马哭骡死呗。。。
 
 
-
-
-
-
-
 -----
 
 ####  山贼先生  
 ##### 3132#       发表于 2018-6-20 17:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40057215&amp;ptid=1712743" target="_blank">mumubear 发表于 2018-6-20 17:58</a>
@@ -16668,16 +11342,10 @@ VIRM AI也如是
 啊 不对 第一部好像是暂时抛弃过
 
 
-
-
-
-
-
 -----
 
 ####  mumubear  
 ##### 3133#       发表于 2018-6-20 17:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056690&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-20 17:14</a>
@@ -16688,16 +11356,10 @@ VIRM AI也如是
 没人口吧。。。
 
 
-
-
-
-
-
 -----
 
 ####  cbx0707  
 ##### 3134#       发表于 2018-6-20 18:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056829&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-20 17:23</a>
@@ -16709,16 +11371,10 @@ VIRM AI也如是
 难道叫龙们之所以战斗究其根本不也就是为了活着么，如果还有别的选择，它们也不会让自己兵器化不是么？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cbx0707  
 ##### 3135#       发表于 2018-6-20 18:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40056938&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-20 17:32</a>
@@ -16729,16 +11385,10 @@ VIRM AI也如是
 virm也半斤八两，菜鸡互啄而已，13小队坐收渔翁之利，金枝哥哥代入得很开心。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cbx0707  
 ##### 3136#       发表于 2018-6-20 18:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40057196&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-20 17:56</a>
@@ -16747,16 +11397,10 @@ virm也半斤八两，菜鸡互啄而已，13小队坐收渔翁之利，金枝�
 想要飞船能成功穿梭宇宙，这是最基本的吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3137#       发表于 2018-6-20 18:07
-
 
 
  本帖最后由 猫白羽毛 于 2018-6-20 18:10 编辑 
@@ -16765,16 +11409,10 @@ virm也半斤八两，菜鸡互啄而已，13小队坐收渔翁之利，金枝�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那太高级了
 
 
-
-
-
-
-
 -----
 
 ####  magicz2  
 ##### 3138#       发表于 2018-6-20 18:15
-
 
 
  本帖最后由 magicz2 于 2018-6-20 18:19 编辑 
@@ -16783,17 +11421,10 @@ virm也半斤八两，菜鸡互啄而已，13小队坐收渔翁之利，金枝�
 这年头冷战已经结束，航天热也已经过去了，现在的人类哪怕是在科幻作品里也很少抛弃地球的。
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3139#       发表于 2018-6-20 18:16
-
-
 
 
 BD3倒数3日
@@ -16804,16 +11435,10 @@ BD3倒数3日
 今天图标又鸽了啊……
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3140#       发表于 2018-6-20 18:19
-
 
 
 <blockquote>cbx0707 发表于 2018-6-20 18:00
@@ -16830,26 +11455,13 @@ BD3倒数3日
 算了好像现在严肃地讨论战力也没什么意义……
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3141#       发表于 2018-6-20 18:20
 
 
-
-
 人类总是在重复着放鸽子
-
-
-
-
-
-
 
 
 -----
@@ -16858,22 +11470,15 @@ BD3倒数3日
 ##### 3142#       发表于 2018-6-20 18:26
 
 
-
 <blockquote>玖瑶君 发表于 2018-6-20 18:19
 嗯你说的这个我同意，其实我之前也有讲过同感的观点，叫龙人那么选是无可奈何的，被打的太惨烈了，没办法 ...</blockquote>
 叫龙街景有调情的有带小孩的
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 3143#       发表于 2018-6-20 18:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40057427&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-20 18:19</a>
@@ -16884,16 +11489,10 @@ BD3倒数3日
 于是，到底为什么叫龙没有lovelove抛瓦……<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我觉得锦织不会回答这个问题。
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3144#       发表于 2018-6-20 18:30
-
 
 
 <blockquote>xyau 发表于 2018-6-20 18:26
@@ -16905,16 +11504,10 @@ BD3倒数3日
 ……要是这样，祭出lovepower也没用，结果人类最后还赢了virm的话，叫龙人也太可怜了TT
 
 
-
-
-
-
-
 -----
 
 ####  cbx0707  
 ##### 3145#       发表于 2018-6-20 18:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40057427&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-20 18:19</a>
@@ -16923,26 +11516,14 @@ BD3倒数3日
 不觉得爱情这种东西会是个稀奇货，可能叫龙人天生性腺细胞有缺陷，或者基因上就缺乏这种片段吧
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3146#       发表于 2018-6-20 18:34
 
 
-
-
 爱情确实是稀缺货
 因为不利于繁殖
-
-
-
-
-
 
 
 -----
@@ -16951,22 +11532,15 @@ BD3倒数3日
 ##### 3147#       发表于 2018-6-20 18:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40057515&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-20 18:29</a>
 叫龙人看001的回忆应该是有爱情有生殖，和人类没什么区别，而且也跟人类一样是雌雄成对驾驶，弗兰克斯则 ...</blockquote>
 叫龙公主:不允许谈恋爱，敌人都糊到脸上了你们居然还在亲亲我我，左边的那对，听到没有，不许啃嘴，后边的那个粉头发女生，喊darling的声音太大了，严肃一点，不要以为我没看见，还有那边的雄蕊，不要擅自离开驾驶位置，不要摸前面女孩子的头发，系好安全带，气死我了，我今天就要严肃纪律，从今天开始，不打完外星人就不能谈恋爱——外星人6000w年没来<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 3148#       发表于 2018-6-20 18:38
-
 
 
 <blockquote>华尔姬丽雅 发表于 2018-6-20 18:29
@@ -16977,16 +11551,10 @@ BD3倒数3日
 用此改造的FXX居然要有繁殖能力的人类才能启动
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3149#       发表于 2018-6-20 18:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40057525&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-20 18:30</a>
@@ -17003,16 +11571,10 @@ BD3倒数3日
 结果最后的遗孤也挂了，弄出来的大杀器就这么轻轻巧巧成了人类的东西……想想都辛酸。
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 3150#       发表于 2018-6-20 18:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40057032&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-20 17:41</a>
@@ -17023,16 +11585,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 记错了...<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yy19  
 ##### 3151#       发表于 2018-6-20 18:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40057573&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-20 18:34</a>
@@ -17045,16 +11601,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 个人来说，任何鼓吹拉布拉布泡蛙大破天的玩意，咱一向当作者大大在意淫力全开处理的XD<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3152#       发表于 2018-6-20 18:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40057607&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-20 18:38</a>
@@ -17065,16 +11615,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 α和叫龙公主那个更惨
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3153#       发表于 2018-6-20 18:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40057652&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-20 18:42</a>
@@ -17089,16 +11633,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 叫龙公主身份地位都有了，然而编剧令下，让你被坑你就得被坑，让你捧人类你就得捧人类，等了足足六千万年族人还都是SB，天天看着族人被杀自己连反应都不许有，何其惨也。
 
 
-
-
-
-
-
 -----
 
 ####  yy19  
 ##### 3154#       发表于 2018-6-20 18:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40057515&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-20 18:29</a>
@@ -17107,16 +11645,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 设定呗还能是啥。这方面staff最大，鄙人在下，闭嘴就是<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3155#       发表于 2018-6-20 18:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40057688&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-20 18:45</a>
@@ -17130,16 +11662,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 太过分了
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3156#       发表于 2018-6-20 18:47
-
 
 
 <blockquote>yy19 发表于 2018-6-20 18:42
@@ -17151,16 +11677,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 但是古代人有爱情，这个肯定没问题，比如红楼梦、西厢记都很明显有，诗经里也有好多描写男女感情的爱情诗歌呀。
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3157#       发表于 2018-6-20 18:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40057651&amp;ptid=1712743" target="_blank">yy19 发表于 2018-6-20 18:42</a>
@@ -17171,16 +11691,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我觉得这就够了
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3158#       发表于 2018-6-20 18:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40057703&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-20 18:47</a>
@@ -17191,16 +11705,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 不清楚
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3159#       发表于 2018-6-20 18:49
-
 
 
  本帖最后由 9α 于 2018-6-20 18:55 编辑 
@@ -17216,17 +11724,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 还得因为当时还身为papa党还说了区区叫龙<img src="https://static.saraba1st.com/image/smiley/face2017/191.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3160#       发表于 2018-6-20 18:51
-
-
 
 
 不过人类自己发明的“习俗”也很多啊
@@ -17235,16 +11736,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 金刚石卖那么贵，真是智商税
 
 
-
-
-
-
-
 -----
 
 ####  yy19  
 ##### 3161#       发表于 2018-6-20 18:56
-
 
 
  本帖最后由 yy19 于 2018-6-20 19:00 编辑 
@@ -17259,17 +11754,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  soulife7  
 ##### 3162#       发表于 2018-6-20 18:57
-
-
 
 
 我觉得女骗子翻车到自己纯情老公身上把房子骗跑了最惨<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
@@ -17277,16 +11765,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3163#       发表于 2018-6-20 18:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40057795&amp;ptid=1712743" target="_blank">yy19 发表于 2018-6-20 18:56</a>
@@ -17297,16 +11779,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 说到底是财产分配和继承权的问题
 
 
-
-
-
-
-
 -----
 
 ####  mumubear  
 ##### 3164#       发表于 2018-6-20 19:01
-
 
 
  本帖最后由 mumubear 于 2018-6-20 19:04 编辑 
@@ -17327,16 +11803,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 融入十三小队的方法也找到了。。。
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3165#       发表于 2018-6-20 19:01
-
 
 
 <img src="https://s1.ax1x.com/2018/06/20/PSCCDI.png" referrerpolicy="no-referrer">
@@ -17348,16 +11818,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 对比。
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3166#       发表于 2018-6-20 19:02
-
 
 
 <blockquote>yy19 发表于 2018-6-20 18:56
@@ -17369,17 +11833,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 叫龙人可能不是一夫一妻，所以没有片中人类爱情，因此没有发挥出216类型的lovepower……
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 3167#       发表于 2018-6-20 19:03
-
-
 
 
 链接: [https://pan.baidu.com/s/1aCogCjIUHeTakeGI1W-MAw](https://pan.baidu.com/s/1aCogCjIUHeTakeGI1W-MAw) 密码: svh4
@@ -17387,17 +11844,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fshulmr2bnj216h0cqqcd.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3168#       发表于 2018-6-20 19:04
-
-
 
 
 顺便一提
@@ -17412,17 +11862,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 3.钻石都代表着永恒的爱情，拿来出售简直是对神圣爱情的最大亵渎。除非你跟前夫不共戴天，否则很少会卖掉他给你的钻戒，而且就算卖，也不会有人接手，因为那是你的爱情，那不是我的～
 
 
-
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3169#       发表于 2018-6-20 19:05
-
 
 
 <blockquote>华尔姬丽雅 发表于 2018-6-20 19:01
@@ -17435,26 +11878,15 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 接下来又是16-18pro的节奏？
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3170#       发表于 2018-6-20 19:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40057862&amp;ptid=1712743" target="_blank">xingenge 发表于 2018-6-20 19:03</a>
 链接: https://pan.baidu.com/s/1aCogCjIUHeTakeGI1W-MAw 密码: svh4</blockquote>
 广主席你的果冻眼……
-
-
-
-
-
 
 
 -----
@@ -17463,14 +11895,7 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 ##### 3171#       发表于 2018-6-20 19:05
 
 
-
-
 连红皮02都没有
-
-
-
-
-
 
 
 -----
@@ -17479,21 +11904,13 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 ##### 3172#       发表于 2018-6-20 19:08
 
 
-
-
 求求你不要给我看大眼睛阿广了
-
-
-
-
-
 
 
 -----
 
 ####  六花自我中  
 ##### 3173#       发表于 2018-6-20 19:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40057688&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-20 18:45</a>
@@ -17506,17 +11923,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 工具人 不龙都惨啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3174#       发表于 2018-6-20 19:09
-
-
 
 
 悲惨的一家子：001＞α＞02
@@ -17524,16 +11934,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 对这一家有仇的锦织，可能是叫龙掘了他家祖坟吧
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 3175#       发表于 2018-6-20 19:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40057881&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-20 19:05</a>
@@ -17546,17 +11950,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 意思是……现在弃番还来得及？<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3176#       发表于 2018-6-20 19:15
-
-
 
 
 这话也不是12pro啊，原本该12pro的……12-14可能都没了
@@ -17565,33 +11962,20 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 所以下一话万一16pro……
 
 
-
-
-
-
-
 -----
 
 ####  skives  
 ##### 3177#       发表于 2018-6-20 19:16
 
 
-
-
 12男主要被掐死
 12pro女主把自己累死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  yy19  
 ##### 3178#       发表于 2018-6-20 19:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40057915&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-20 19:09</a>
@@ -17603,16 +11987,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 没办法，jzGG被（现代）爱情洗脑了，看不到情爱的其他可能性XD<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3179#       发表于 2018-6-20 19:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40057959&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-20 19:15</a>
@@ -17626,17 +12004,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 嗯，这个加强版的女配战力比莓强太多了……14集还是02掐莓脖子，14pro就变成01拎02了。
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3180#       发表于 2018-6-20 19:26
-
-
 
 
 居然是看到13队脸红的02
@@ -17650,25 +12021,13 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 这次就找16的02变红皮吧
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3181#       发表于 2018-6-20 19:26
 
 
-
-
 14集强吻16的是佐仓会怎么样
-
-
-
-
-
 
 
 -----
@@ -17677,16 +12036,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 ##### 3182#       发表于 2018-6-20 19:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40057862&amp;ptid=1712743" target="_blank">xingenge 发表于 2018-6-20 19:03</a>
 
 链接: https://pan.baidu.com/s/1aCogCjIUHeTakeGI1W-MAw 密码: svh4</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真实你名part2
-
-
-
-
-
 
 
 -----
@@ -17695,15 +12048,9 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 ##### 3183#       发表于 2018-6-20 19:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40057843&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-20 19:01</a>
 毫不意外，和15集一个套路。</blockquote>
 所以ditf其实是loop系么
-
-
-
-
-
 
 
 -----
@@ -17712,23 +12059,15 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 ##### 3184#       发表于 2018-6-20 19:33
 
 
-
-
 这张大眼睛的16作监到底是怎么想的…搞不懂了已经
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 3185#       发表于 2018-6-20 19:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40058033&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-20 19:22</a>
@@ -17741,16 +12080,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 嗯……还是先看预告再判断吧……
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3186#       发表于 2018-6-20 19:38
-
 
 
 <blockquote>9α 发表于 2018-6-20 19:15
@@ -17763,16 +12096,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 看叫龙公主记忆（12-13），莓断手（13-14），大战和五莓送上机（15）……
 
 
-
-
-
-
-
 -----
 
 ####  mumubear  
 ##### 3187#       发表于 2018-6-20 19:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40058033&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-20 19:22</a>
@@ -17783,27 +12110,15 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 19~21三集，把10~15六集的元素全揉在一起了。。。
 
 
-
-
-
-
-
 -----
 
 ####  soulife7  
 ##### 3188#       发表于 2018-6-20 19:41
 
 
-
-
 锦织就是想把打斗就做成子供番的秒杀感，大眼睛就不难理解了。
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -17812,21 +12127,13 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 ##### 3189#       发表于 2018-6-20 19:44
 
 
-
-
 广果然是女主角吧
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 3190#       发表于 2018-6-20 19:47
-
 
 
 <blockquote>9α 发表于 2018-6-20 19:37
@@ -17838,16 +12145,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 16pro给跳个五年先。
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3191#       发表于 2018-6-20 19:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40058224&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-20 19:47</a>
@@ -17858,16 +12159,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 <img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">5年太长了，人都得长大了。还要重做人设。
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 3192#       发表于 2018-6-20 19:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40058232&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-20 19:48</a>
@@ -17876,33 +12171,19 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 死了不就行了吗<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  IWS2000  
 ##### 3193#       发表于 2018-6-20 20:02
 
 
-
-
 下集一千年后，老态龙角广博士，人类领袖莓皇帝。13队其他人都早入土了，被安排得明明白白
-
-
-
-
-
 
 
 -----
 
 ####  猪的报恩  
 ##### 3194#       发表于 2018-6-20 20:17
-
-
 
 
 要是顺着往下来
@@ -17919,28 +12200,13 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 最后一集0216婚礼现场被拆散还行……
 
 
-
-
-
-
-
-
-
-
-
 要不然556326再被拆一次？
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 3195#       发表于 2018-6-20 20:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40058466&amp;ptid=1712743" target="_blank">猪的报恩 发表于 2018-6-20 20:17</a>
@@ -17953,25 +12219,13 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 加强版啊，所以最后应该是集体婚礼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 3196#       发表于 2018-6-20 20:26
 
 
-
-
 下集国5pro阿广爆上回，再下集国13pro02回忆回，再再下集国4pro打外星人后日谈，不说了，我去睡个觉，梦里什么都有
-
-
-
-
-
 
 
 -----
@@ -17980,22 +12234,14 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 ##### 3197#       发表于 2018-6-20 20:33
 
 
-
-
 我知道我怎样才能想立刻处死锦织了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 再拆一次3255<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 3198#       发表于 2018-6-20 20:38
-
 
 
  本帖最后由 9α 于 2018-6-20 20:49 编辑 
@@ -18015,17 +12261,10 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 18pro  016iota用爱打败了v星人，并且iota的灵魂也回到了身体里，结尾集体婚礼，撒花。
 
 
-
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3199#       发表于 2018-6-20 20:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40058520&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-20 20:22</a>
@@ -18035,32 +12274,19 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 于是孩子们的故事迎来了新的篇章
 
 
-
-
-
-
-
 -----
 
 ####  小红飞翼  
 ##### 3200#       发表于 2018-6-20 20:50
 
 
-
-
 最终战场应该还是在地球。 
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 3201#       发表于 2018-6-20 20:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40058628&amp;ptid=1712743" target="_blank">Meteors 发表于 2018-6-20 20:33</a>
@@ -18071,25 +12297,13 @@ https://www.reddit.com/r/anime/comments/7zmqwi/i_am_hiromi_wakabayashi_a_creativ
 塞个便当是很自然的，总比洗脑自然
 
 
-
-
-
-
-
 -----
 
 ####  royalblue1127  
 ##### 3202#       发表于 2018-6-20 21:00
 
 
-
-
 loop系听了都想打人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18098,16 +12312,9 @@ loop系听了都想打人<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 3203#       发表于 2018-6-20 21:12
 
 
-
-
 我真的很在意锦织设计15和21集的想法。
 
 单纯想让人做连线题玩？
-
-
-
-
-
 
 
 -----
@@ -18116,15 +12323,8 @@ loop系听了都想打人<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 3204#       发表于 2018-6-20 21:13
 
 
-
-
 呼吸不到悠尼
 我觉得窒息<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18133,23 +12333,15 @@ loop系听了都想打人<img src="https://static.saraba1st.com/image/smiley/fac
 ##### 3205#       发表于 2018-6-20 21:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40058796&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-20 20:53</a>
 塞个便当是很自然的，总比洗脑自然</blockquote>
 一起便当我也忍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 3206#       发表于 2018-6-20 21:33
-
-
 
 
 逛了一圈知乎，发现原来算是国吹阵地的知乎也沦陷了……
@@ -18166,10 +12358,6 @@ loop系听了都想打人<img src="https://static.saraba1st.com/image/smiley/fac
 2018-6-20 21:31 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/20/213111czdcmkrz7ymhmxzw.jpg" referrerpolicy="no-referrer">
 
 
@@ -18178,10 +12366,6 @@ loop系听了都想打人<img src="https://static.saraba1st.com/image/smiley/fac
 下载附件
 
 2018-6-20 21:31 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/20/213111znbqkiqnip14jf1i.jpg" referrerpolicy="no-referrer">
@@ -18194,21 +12378,10 @@ loop系听了都想打人<img src="https://static.saraba1st.com/image/smiley/fac
 2018-6-20 21:31 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3207#       发表于 2018-6-20 21:38
-
 
 
 <blockquote>玖瑶君 发表于 2018-6-20 21:33
@@ -18221,16 +12394,10 @@ loop系听了都想打人<img src="https://static.saraba1st.com/image/smiley/fac
 作文这个楼里见过
 
 
-
-
-
-
-
 -----
 
 ####  Shylia  
 ##### 3208#       发表于 2018-6-20 21:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40057515&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-06-20 18:29:21</a>
@@ -18239,16 +12406,10 @@ loop系听了都想打人<img src="https://static.saraba1st.com/image/smiley/fac
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 3209#       发表于 2018-6-20 21:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40059101&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-20 21:33</a>
@@ -18263,17 +12424,10 @@ loop系听了都想打人<img src="https://static.saraba1st.com/image/smiley/fac
 看了看reddit都不对劲了
 
 
-
-
-
-
-
 -----
 
 ####  西岚不是花  
 ##### 3210#       发表于 2018-6-20 21:43
-
-
 
 
 我去一个个给同事道歉
@@ -18284,17 +12438,10 @@ loop系听了都想打人<img src="https://static.saraba1st.com/image/smiley/fac
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3211#       发表于 2018-6-20 21:47
-
-
 
 
 BD1发售有#15
@@ -18304,16 +12451,10 @@ BD2发售是#19
 下周BD3发售，#22会有救销量操作吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 3212#       发表于 2018-6-20 21:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40059259&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-20 21:47</a>
@@ -18326,32 +12467,19 @@ BD2发售是#19
 到尾声了，销量只看结局了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 3213#       发表于 2018-6-20 21:51
 
 
-
-
 我都推荐三体赎罪了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 3214#       发表于 2018-6-20 21:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40059259&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-20 21:47</a>
@@ -18364,26 +12492,15 @@ BD2发售是#19
 19集对销量有啥促进效果么……
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3215#       发表于 2018-6-20 21:54
 
 
-
 <blockquote>华尔姬丽雅 发表于 2018-6-20 21:52
 19集对销量有啥促进效果么……</blockquote>
 没关注，只记得右了800
-
-
-
-
-
 
 
 -----
@@ -18392,14 +12509,7 @@ BD2发售是#19
 ##### 3216#       发表于 2018-6-20 21:58
 
 
-
-
 你看我就比较聪明，只推荐露营和马娘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18408,14 +12518,7 @@ BD2发售是#19
 ##### 3217#       发表于 2018-6-20 21:58
 
 
-
-
 这片从第一话开始追专楼，亲眼见证了专楼的陨落。现在去翻翻1-15话的专楼，鲜明的对比。。。
-
-
-
-
-
 
 
 -----
@@ -18424,21 +12527,13 @@ BD2发售是#19
 ##### 3218#       发表于 2018-6-20 21:59
 
 
-
-
 女主都死了 这片还不凉？
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 3219#       发表于 2018-6-20 22:02
-
 
 
  本帖最后由 9α 于 2018-6-20 22:13 编辑 
@@ -18450,18 +12545,10 @@ BD2发售是#19
 让好友躲过去了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 3220#       发表于 2018-6-20 22:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40059101&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-06-20 21:33:40</a>
@@ -18476,26 +12563,15 @@ BD2发售是#19
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  wyjbnb  
 ##### 3221#       发表于 2018-6-20 22:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">趁国22还没出下集预告先语言一下，下一集时间应该是这次大战一年后。
 
 大人们全死光了，剩下的驾驶员建国。556生了小孩，13小队剩余人员基本告别战场。9s加入广，然后跟叫龙抵御virm，广一个人就能开鹤兰望，02应该是泡在缸里这样的展开吧
-
-
-
-
-
 
 
 -----
@@ -18504,21 +12580,13 @@ BD2发售是#19
 ##### 3222#       发表于 2018-6-20 22:41
 
 
-
-
 看番是个很了不起的行为吗？为什么要安利？
-
-
-
-
-
 
 
 -----
 
 ####  davidcch12  
 ##### 3223#       发表于 2018-6-20 22:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40059744&amp;ptid=1712743" target="_blank">magicz2 发表于 2018-6-20 22:41</a>
@@ -18529,26 +12597,15 @@ BD2发售是#19
 虽然我从来不安利<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">游戏动画啥的都是自己开心就好
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 3224#       发表于 2018-6-20 22:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40059744&amp;ptid=1712743" target="_blank">magicz2 发表于 2018-6-20 22:41</a>
 看番是个很了不起的行为吗？为什么要安利？</blockquote>
 可以一起聊一起吐槽啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18557,13 +12614,7 @@ BD2发售是#19
 ##### 3225#       发表于 2018-6-20 22:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这话到现在才108页，看来都失去吐槽的欲望了
-
-
-
-
-
 
 
 -----
@@ -18572,21 +12623,13 @@ BD2发售是#19
 ##### 3226#       发表于 2018-6-20 23:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说道烂片，铁血可是烂片中的鞭尸豪杰
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 3227#       发表于 2018-6-20 23:21
-
-
 
 
 　【紫蔓摩擦的声音】16用力握触手，红血从手心滑落，依旧闭眼叫着咬牙坚持，听到01出声睁开眼。被紫蔓困死身上也渗出蓝血的01垂头丧气道无用，被VIRM算计、吾等已败北。16问从天而降与叫龙战斗的VIRM究竟是什么【太空中、红星上，白色四芒星伴着嗡嗡响声闪耀，一对紫面俯视大地】，说连接上时感觉到了长到难以置信的年月【刘海下01半张着眼】，问究竟何时开始。
@@ -18630,13 +12673,9 @@ BD2发售是#19
 　01的感叹也确证了沉眠千万年的叫龙人确实不再寄望获胜而是尽力而为。01作为最后的叫龙人被绑上这定时炸弹，从叫龙方而言虽不甘但确实无力破局。但战前和02互许承诺的16仍旧抱着希冀，哪怕作用微末，也不会放弃努力。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 6战斗力 +6
@@ -18651,12 +12690,7 @@ BD2发售是#19
 | fengzijiang| + 1|辛苦了|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -18665,21 +12699,13 @@ BD2发售是#19
 ##### 3228#       发表于 2018-6-20 23:28
 
 
-
-
 下一话如果日常，直接跌破100层吧
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 3229#       发表于 2018-6-20 23:29
-
 
 
 <blockquote>xyau 发表于 2018-6-20 23:21
@@ -18689,16 +12715,10 @@ BD2发售是#19
 不过要是没有这个限制，那也就没有必要有孩子们，于是此刻人类也就彻底被virm同化了……
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 3230#       发表于 2018-6-20 23:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40060090&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-6-20 23:28</a>
@@ -18707,26 +12727,15 @@ BD2发售是#19
 最恐怖的是……下集是日常的可能性还不低<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 3231#       发表于 2018-6-20 23:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40060090&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-6-20 23:28</a>
 下一话如果日常，直接跌破100层吧</blockquote>
 喷上100还是有希望的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18735,14 +12744,7 @@ BD2发售是#19
 ##### 3232#       发表于 2018-6-20 23:30
 
 
-
-
 下集是日常很正常吧，不是日常才不正常啊。
-
-
-
-
-
 
 
 -----
@@ -18751,21 +12753,13 @@ BD2发售是#19
 ##### 3233#       发表于 2018-6-20 23:31
 
 
-
-
 大战之后必日常。——jzds
-
-
-
-
-
 
 
 -----
 
 ####  sherlockchu  
 ##### 3234#       发表于 2018-6-20 23:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40060103&amp;ptid=1712743" target="_blank">Meteors 发表于 2018-6-20 23:29</a>
@@ -18775,33 +12769,19 @@ BD2发售是#19
 如果下一话死主角团的人到有可能激起点讨论度。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 3235#       发表于 2018-6-20 23:39
 
 
-
-
 大战之后必日常，八股文给你安排得明明白白<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 3236#       发表于 2018-6-20 23:50
-
-
 
 
 是不是还没人吐槽灵舡等到那么晚才启动，如果16没连接的话早该炸飞了；
@@ -18811,32 +12791,19 @@ BD2发售是#19
 唯一靠谱点的可能性是VIRM实际上还是在试图控制阿帕斯，发现实在搞不定才终于开溜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 3237#       发表于 2018-6-20 23:56
 
 
-
-
 现在想想特番2真是人间真实，也难怪之前锦织透露结局还没定好，结局再不慎重点.....<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 3238#       发表于 2018-6-20 23:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40060275&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-20 23:50</a>
@@ -18847,17 +12814,10 @@ BD2发售是#19
 一开始以为辛辛苦苦造的灵缸是正角，秘密武器牛的一批；结果后来发现是个备胎。和这片子的结构一模一样的
 
 
-
-
-
-
-
 -----
 
 ####  kyota  
 ##### 3239#       发表于 2018-6-20 23:57
-
-
 
 
 按照jzgg之前的操作，下一话日常可能性很大…
@@ -18868,16 +12828,10 @@ BD2发售是#19
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  IWS2000  
 ##### 3240#       发表于 2018-6-20 23:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40060275&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-20 23:50</a>
@@ -18887,16 +12841,10 @@ BD2发售是#19
 为了体现最后一抓吧！本来可以不用照面的
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3241#       发表于 2018-6-21 00:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40060330&amp;ptid=1712743" target="_blank">IWS2000 发表于 2018-6-20 23:58</a>
@@ -18905,27 +12853,15 @@ BD2发售是#19
 但是为什么要抓呢？他们都不知道灵缸能够干啥，观众也不知道
 
 
-
-
-
-
-
 -----
 
 ####  kyota  
 ##### 3242#       发表于 2018-6-21 00:01
 
 
-
-
 02死透是不可能死透的，不然绘本的故事可算是白讲了。而且就21话演出效果来说02这个死的一点都不煽情，甚至不如网管的祭妹和祈妹。要是02这么就死透了真的很没有排面…我觉得jzgg心里还是有逼数的<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -18934,15 +12870,9 @@ BD2发售是#19
 ##### 3243#       发表于 2018-6-21 00:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40060345&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-21 00:00</a>
 但是为什么要抓呢？他们都不知道灵缸能够干啥，观众也不知道</blockquote>
 是v星人说的紫色！先抓了再说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18951,14 +12881,7 @@ BD2发售是#19
 ##### 3244#       发表于 2018-6-21 00:03
 
 
-
-
 死不瞑目是最骚的
-
-
-
-
-
 
 
 -----
@@ -18967,16 +12890,10 @@ BD2发售是#19
 ##### 3245#       发表于 2018-6-21 00:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40060372&amp;ptid=1712743" target="_blank">skives 发表于 2018-6-21 00:03</a>
 
 死不瞑目是最骚的</blockquote>
 这种恶意我都快习惯了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18985,17 +12902,10 @@ BD2发售是#19
 ##### 3246#       发表于 2018-6-21 00:05
 
 
-
-
 如果角碎了=变成人
 可能就是减了一条生命，身体不如以前强了，不能1打N了。。
 
 然后是不是也可以生孩子了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19004,23 +12914,15 @@ BD2发售是#19
 ##### 3247#       发表于 2018-6-21 00:07
 
 
-
-
 不白魔法泽拉图谁看这片子啊，剩下还有哪个人物有吸引力？<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  猪的报恩  
 ##### 3248#       发表于 2018-6-21 00:10
-
 
 
 <blockquote>xyau 发表于 2018-6-20 23:50
@@ -19033,17 +12935,10 @@ BD2发售是#19
 我觉得最值得吐槽的是灵舡这名字给人一种舰船的感觉，没想到实际上是个巨型长矛，宇宙战争时代的冷兵器也是浪漫得不行…
 
 
-
-
-
-
-
 -----
 
 ####  kyota  
 ##### 3249#       发表于 2018-6-21 00:13
-
-
 
 
 话说这个楼里还有没有仍然没有对jzgg放弃希望，幻想着一波救国三连的愚忠的锦卫兵？
@@ -19057,16 +12952,10 @@ BD2发售是#19
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3250#       发表于 2018-6-21 00:14
-
 
 
 <blockquote>猪的报恩 发表于 2018-6-21 00:10
@@ -19079,16 +12968,10 @@ BD2发售是#19
 灵舡本来是北欧神话的哏吧，感觉好像是合并了一下几个道具。
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3251#       发表于 2018-6-21 00:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40060415&amp;ptid=1712743" target="_blank">猪的报恩 发表于 2018-6-21 00:10</a>
@@ -19100,17 +12983,10 @@ BD2发售是#19
 别浪漫了，搞不好要变成第二个锤子高达
 
 
-
-
-
-
-
 -----
 
 ####  kyota  
 ##### 3252#       发表于 2018-6-21 00:22
-
-
 
 
 回味了下13话的专楼<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">为什么会变成现在这样呢
@@ -19120,16 +12996,10 @@ BD2发售是#19
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Gato_shin  
 ##### 3253#       发表于 2018-6-21 00:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40060357&amp;ptid=1712743" target="_blank">kyota 发表于 2018-6-21 00:01</a>
@@ -19138,16 +13008,10 @@ BD2发售是#19
 得了吧，jzgg的逼數，早就不期望了
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3254#       发表于 2018-6-21 00:28
-
 
 
 <blockquote>kyota 发表于 2018-6-20 23:57
@@ -19160,16 +13024,10 @@ BD2发售是#19
 216这边个人想到三种可能吧：（1）不跳时间线，02植物人或者死后16颓废，基本就是等莓或者五郎打醒他 （2）不跳时间线，将02的身体保存好后，16故作镇定引导大家 （3）跳时间线，这种情境下更可能是广走了博士道路决定找到救02办法，甚至可能因此独自离开、从13小队视线内消失，时间线就是跳到13队已经算是自力更生，而广突然因为找到复活线索而回归的那一刻。
 
 
-
-
-
-
-
 -----
 
 ####  猪的报恩  
 ##### 3255#       发表于 2018-6-21 00:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40060447&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-21 00:14</a>
@@ -19181,16 +13039,10 @@ BD2发售是#19
 其实铁血高达不带入主角方，站在看热闹的角度还是蛮欢乐的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  不再是小孩子了  
 ##### 3256#       发表于 2018-6-21 00:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40060397&amp;ptid=1712743" target="_blank">zjylyy 发表于 2018-6-21 00:07</a>
@@ -19202,27 +13054,15 @@ BD2发售是#19
 看还是有人看的，至少20%忠实莓党还会坚守。只不过没人买碟了
 
 
-
-
-
-
-
 -----
 
 ####  kyota  
 ##### 3257#       发表于 2018-6-21 00:32
 
 
-
-
 没有逼数的不是jzgg是我啊！<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -19231,17 +13071,10 @@ BD2发售是#19
 ##### 3258#       发表于 2018-6-21 00:35
 
 
-
-
 现在最尴尬的是，从21话的表现来看，国家队处在了一个上限不高，下限还很低的地方。而且完全不知道后面怎么走。三话仍然有神回的可能但是更有暴走的可能，毕竟按照20话来看半话就够jzgg暴走了。
 是不是22话完了就可以盖棺定论了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -19250,16 +13083,10 @@ BD2发售是#19
 ##### 3259#       发表于 2018-6-21 00:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40060551&amp;ptid=1712743" target="_blank">不再是小孩子了 发表于 2018-6-21 00:30</a>
 
 看还是有人看的，至少20%忠实莓党还会坚守。只不过没人买碟了</blockquote>
 然而莓莓的戏份估计不会管够了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">说不定原画都莓有
-
-
-
-
-
 
 
 -----
@@ -19268,23 +13095,15 @@ BD2发售是#19
 ##### 3260#       发表于 2018-6-21 00:37
 
 
-
-
 以前：救国的永远在下一集
 现在：盖棺定论的永远在下一集
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 3261#       发表于 2018-6-21 00:37
-
 
 
 <blockquote>kyota 发表于 2018-6-21 00:35
@@ -19294,17 +13113,10 @@ BD2发售是#19
 下一话的发展总能让棺材板盖不上……
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 3262#       发表于 2018-6-21 00:37
-
-
 
 
 哏还行。灵舡如果当作特大剑的话下端还有一托手，锦织这设计还怕观众看不出来是冷兵器。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
@@ -19316,16 +13128,10 @@ BD2发售是#19
 话说，生命之枪，最后打英灵殿怕不是得插进一筒状物里。21男主乘精X进子宫救女主我现在都还不明白锦织想要表现什么
 
 
-
-
-
-
-
 -----
 
 ####  kyota  
 ##### 3263#       发表于 2018-6-21 00:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40060593&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-06-21 00:37:30</a>
@@ -19338,16 +13144,10 @@ BD2发售是#19
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3264#       发表于 2018-6-21 00:48
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">都最后几话了逼着我彻底觉醒人类感情
@@ -19356,17 +13156,10 @@ BD2发售是#19
 后面还想把我怎样<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 3265#       发表于 2018-6-21 00:48
-
-
 
 
 从神回六连到救国三连，再做无谓的期待也只会失望更大
@@ -19375,16 +13168,10 @@ BD2发售是#19
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 3266#       发表于 2018-6-21 00:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40060650&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 00:48</a>
@@ -19396,16 +13183,10 @@ BD2发售是#19
 emmmm，该丧偶了？
 
 
-
-
-
-
-
 -----
 
 ####  不再是小孩子了  
 ##### 3267#       发表于 2018-6-21 00:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40060589&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-21 00:36</a>
@@ -19416,14 +13197,8 @@ emmmm，该丧偶了？
 已经彻底56化了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
 8CCA6257-A01C-4A65-A140-C6DFE32544A3.jpeg
 (417.79 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -19432,24 +13207,7 @@ emmmm，该丧偶了？
 2018-6-21 00:54 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/21/005420e6259plr9t6j2c79.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -19458,16 +13216,10 @@ emmmm，该丧偶了？
 ##### 3268#       发表于 2018-6-21 00:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40060670&amp;ptid=1712743" target="_blank">Mr.BBWoLf 发表于 2018-6-21 00:52</a>
 emmmm，该丧偶了？</blockquote>
 我本来就是单身<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 这是队长的命运
-
-
-
-
-
 
 
 -----
@@ -19476,23 +13228,16 @@ emmmm，该丧偶了？</blockquote>
 ##### 3269#       发表于 2018-6-21 01:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40060699&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 00:59</a>
 我本来就是单身
 这是队长的命运</blockquote>
 对面还有个单身队长，还是你感兴趣的，你看怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 3270#       发表于 2018-6-21 01:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40060699&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 00:59</a>
@@ -19516,26 +13261,15 @@ emmmm，该丧偶了？</blockquote>
 总算写了一个自认为合理的让广α一起开机的展开。
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3271#       发表于 2018-6-21 01:39
 
 
-
 <blockquote>Meteors 发表于 2018-6-21 01:29
 对面还有个单身队长，还是你感兴趣的，你看怎么样</blockquote>
 这条路竞争激烈啊……
-
-
-
-
-
 
 
 -----
@@ -19544,23 +13278,16 @@ emmmm，该丧偶了？</blockquote>
 ##### 3272#       发表于 2018-6-21 01:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40060827&amp;ptid=1712743" target="_blank">Meteors 发表于 2018-6-21 01:29</a>
 
 对面还有个单身队长，还是你感兴趣的，你看怎么样</blockquote>
 腹黑五郎完美分离215后再遇危机<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 3273#       发表于 2018-6-21 01:47
-
 
 
  本帖最后由 Fnaygih 于 2018-6-21 01:58 编辑 
@@ -19574,25 +13301,13 @@ emmmm，该丧偶了？</blockquote>
 冥冥之中，我已经预感到了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 3274#       发表于 2018-6-21 02:02
 
 
-
-
 仔细想想心满居然都还没念预告，感觉已经闻到一股硝烟味了.....<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19601,14 +13316,7 @@ emmmm，该丧偶了？</blockquote>
 ##### 3275#       发表于 2018-6-21 02:05
 
 
-
-
 21516来念最后三话吧
-
-
-
-
-
 
 
 -----
@@ -19617,23 +13325,14 @@ emmmm，该丧偶了？</blockquote>
 ##### 3276#       发表于 2018-6-21 02:25
 
 
-
-
 心满两个人一起来念预告啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 疯狂铺垫
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 3277#       发表于 2018-6-21 02:25
-
-
 
 
 第二轮3255和56还没念预告
@@ -19643,26 +13342,14 @@ emmmm，该丧偶了？</blockquote>
 感觉可以3255一起念个预告，556的诗估计是赞美新生了……
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 3278#       发表于 2018-6-21 02:27
 
 
-
-
 心满就一起念预告一起念诗吧，不要一人占一集了，太招仇恨了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
  来自心满党的求生欲<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19671,14 +13358,7 @@ emmmm，该丧偶了？</blockquote>
 ##### 3279#       发表于 2018-6-21 04:38
 
 
-
-
 等一个预告了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19687,14 +13367,7 @@ emmmm，该丧偶了？</blockquote>
 ##### 3280#       发表于 2018-6-21 05:30
 
 
-
-
 心满生孩子，泽拉图火葬场，我已经看到结局了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19703,21 +13376,13 @@ emmmm，该丧偶了？</blockquote>
 ##### 3281#       发表于 2018-6-21 06:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">有莓就行，其他无所谓
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 3282#       发表于 2018-6-21 06:59
-
-
 
 
 □ 02克隆9's
@@ -19758,13 +13423,9 @@ emmmm，该丧偶了？</blockquote>
 <img src="https://i.imgur.com/EVMGYQp.jpg" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -19774,12 +13435,7 @@ emmmm，该丧偶了？</blockquote>
 | Mr.BBWoLf| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -19788,16 +13444,10 @@ emmmm，该丧偶了？</blockquote>
 ##### 3283#       发表于 2018-6-21 07:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40061290&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-6-21 05:30</a>
 心满生孩子，泽拉图火葬场，我已经看到结局了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 心满up～up～
-
-
-
-
-
 
 
 -----
@@ -19806,23 +13456,16 @@ emmmm，该丧偶了？</blockquote>
 ##### 3284#       发表于 2018-6-21 07:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40061589&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-06-21 07:55:12</a>
 心满up～up～</blockquote>再来心满蝈蝈就真没救了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 3285#       发表于 2018-6-21 08:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40061612&amp;ptid=1712743" target="_blank">山贼先生 发表于 2018-6-21 07:59</a>
@@ -19836,16 +13479,10 @@ emmmm，该丧偶了？</blockquote>
 记忆恢复和产子
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3286#       发表于 2018-6-21 08:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40060827&amp;ptid=1712743" target="_blank">Meteors 发表于 2018-6-21 01:29</a>
@@ -19855,19 +13492,10 @@ emmmm，该丧偶了？</blockquote>
 我和大和抚子单独接触不过是为了刺探13队情报罢了！<img src="https://i.loli.net/2018/06/21/5b2af703909ff.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  Shylia  
 ##### 3287#       发表于 2018-6-21 08:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40061700&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-21 08:14</a>
@@ -19876,16 +13504,10 @@ emmmm，该丧偶了？</blockquote>
 将来能说国毁在心满么？
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3288#       发表于 2018-6-21 09:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40060845&amp;ptid=1712743" target="_blank">Mr.BBWoLf 发表于 2018-6-21 01:34</a>
@@ -19894,14 +13516,8 @@ emmmm，该丧偶了？</blockquote>
 谁要跟016驾驶！
 
 
-
 ——————————————————
 会死的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19910,22 +13526,15 @@ emmmm，该丧偶了？</blockquote>
 ##### 3289#       发表于 2018-6-21 09:03
 
 
-
 <blockquote>Shylia 发表于 2018-6-21 08:57
 将来能说国毁在心满么？</blockquote>
 心满只不过把以前的隐患引爆了而已
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 3290#       发表于 2018-6-21 09:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40062045&amp;ptid=1712743" target="_blank">Shylia 发表于 2018-6-21 08:57</a>
@@ -19936,16 +13545,10 @@ emmmm，该丧偶了？</blockquote>
 回头看看但凡是大篇幅描写配角0216边缘的集数基本都……
 
 
-
-
-
-
-
 -----
 
 ####  新年才醒  
 ##### 3291#       发表于 2018-6-21 09:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40062119&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 09:04</a>
@@ -19965,16 +13568,10 @@ emmmm，该丧偶了？</blockquote>
 0216起码有个一半的锅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  戏谑二次元  
 ##### 3292#       发表于 2018-6-21 09:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40062045&amp;ptid=1712743" target="_blank">Shylia 发表于 2018-06-21 08:57:46</a>
@@ -19983,16 +13580,10 @@ emmmm，该丧偶了？</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3293#       发表于 2018-6-21 09:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40062246&amp;ptid=1712743" target="_blank">新年才醒 发表于 2018-6-21 09:17</a>
@@ -20006,16 +13597,10 @@ emmmm，该丧偶了？</blockquote>
 典型代表国10，国19……
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3294#       发表于 2018-6-21 09:27
-
 
 
 <blockquote>xyau 发表于 2018-6-21 06:59
@@ -20027,16 +13612,10 @@ emmmm，该丧偶了？</blockquote>
 “你也很在乎九队吧，快去嘴炮他们”嘛……？
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3295#       发表于 2018-6-21 09:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40061413&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-21 06:59</a>
@@ -20050,18 +13629,10 @@ emmmm，该丧偶了？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">归根结底就是为了速度让他觉醒人类感情罢了～
 
 
-
-
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3296#       发表于 2018-6-21 09:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40062370&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 09:27</a>
@@ -20072,16 +13643,10 @@ emmmm，该丧偶了？</blockquote>
 莓：“原来我喜欢α”
 
 
-
-
-
-
-
 -----
 
 ####  新年才醒  
 ##### 3297#       发表于 2018-6-21 09:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40062347&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 09:25</a>
@@ -20092,20 +13657,13 @@ emmmm，该丧偶了？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你举例的集数除了考据党不会有多少回看的，除非拉出来批判一番才会引人注意
 
 
-
 就像我也只回看下我莓的几个小操作 其它都没兴趣
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 3298#       发表于 2018-6-21 09:35
-
 
 
 <blockquote>猫白羽毛 发表于 2018-6-21 09:28
@@ -20115,17 +13673,10 @@ emmmm，该丧偶了？</blockquote>
 这是阿广对其“教徒”专用的最后一击式助攻啦
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 3299#       发表于 2018-6-21 09:35
-
-
 
 
 笑死我了
@@ -20138,16 +13689,10 @@ emmmm，该丧偶了？</blockquote>
   
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3300#       发表于 2018-6-21 09:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40062401&amp;ptid=1712743" target="_blank">新年才醒 发表于 2018-6-21 09:30</a>
@@ -20158,16 +13703,10 @@ emmmm，该丧偶了？</blockquote>
 两个单集，讲了一堆对剧情发展没有丝毫卵用的设定，立角色也没立起来（有没有第十集的大冒险对日后666的反复横跳有区别么？真正促进他成长的还不是心满洗脑），除了水也没啥好说了……
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3301#       发表于 2018-6-21 09:39
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
@@ -20176,17 +13715,10 @@ emmmm，该丧偶了？</blockquote>
 我这个外人就不参与了……
 
 
-
-
-
-
-
 -----
 
 ####  soulife7  
 ##### 3302#       发表于 2018-6-21 09:40
-
-
 
 
 想到很恐怖的是13pro不会一方面阿广努力救妻一方面02回忆双向展开，刚好两人念诗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -20194,16 +13726,10 @@ emmmm，该丧偶了？</blockquote>
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  IWS2000  
 ##### 3303#       发表于 2018-6-21 09:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40062517&amp;ptid=1712743" target="_blank">soulife7 发表于 2018-6-21 09:40</a>
@@ -20213,32 +13739,19 @@ emmmm，该丧偶了？</blockquote>
 不也挺好的吗
 
 
-
-
-
-
-
 -----
 
 ####  royalblue1127  
 ##### 3304#       发表于 2018-6-21 09:42
 
 
-
-
 枪打出头鸟是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  mumubear  
 ##### 3305#       发表于 2018-6-21 09:42
-
 
 
  本帖最后由 mumubear 于 2018-6-21 09:51 编辑 
@@ -20262,16 +13775,10 @@ emmmm，该丧偶了？</blockquote>
 讲道理，之前1~20集都是过家家水平。。。
 
 
-
 1~15好歹还打怪和大人之间是共生关系。。。
 
 
 16~19怪都不打，完全就是家里蹲啃老族，反抗个屁啊。。。
-
-
-
-
-
 
 
 -----
@@ -20280,16 +13787,8 @@ emmmm，该丧偶了？</blockquote>
 ##### 3306#       发表于 2018-6-21 09:47
 
 
-
-
 生出的小孩拯救世界x
 生出的小孩促进生育o
-
-
-
-
-
-
 
 
 -----
@@ -20298,14 +13797,7 @@ emmmm，该丧偶了？</blockquote>
 ##### 3307#       发表于 2018-6-21 09:47
 
 
-
-
 阿广除了嘴炮还能干什么，除非他也变龙
-
-
-
-
-
 
 
 -----
@@ -20314,14 +13806,7 @@ emmmm，该丧偶了？</blockquote>
 ##### 3308#       发表于 2018-6-21 09:47
 
 
-
-
 为什么我脑海里想的是红**02和叫龙公主在精神世界里交流，然后合伸出一只手碰在一起，最后他们两个融合为一体。成为红皮萝莉02形态，穿上那套黑色羞耻衣服，后面长出叫龙公主的触手，闪红光的那种。所有的叫龙都开始变色，由蓝光变为红光。新的叫龙公主诞生了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20330,22 +13815,15 @@ emmmm，该丧偶了？</blockquote>
 ##### 3309#       发表于 2018-6-21 09:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40062596&amp;ptid=1712743" target="_blank">IWS2000 发表于 2018-6-21 09:47</a>
 为什么我脑海里想的是红**02和叫龙公主在精神世界里交流，然后合伸出一只手碰在一起，最后他们两个融合为一 ...</blockquote>
 挺好的
-
-
-
-
-
 
 
 -----
 
 ####  新年才醒  
 ##### 3310#       发表于 2018-6-21 09:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40062459&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-21 09:35</a>
@@ -20373,16 +13851,10 @@ emmmm，该丧偶了？</blockquote>
   
 
 
-
-
-
-
-
 -----
 
 ####  skives  
 ##### 3311#       发表于 2018-6-21 10:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40062683&amp;ptid=1712743" target="_blank">新年才醒 发表于 2018-6-21 09:53</a>
@@ -20394,27 +13866,15 @@ emmmm，该丧偶了？</blockquote>
 不过把锅都甩给锦织才是正道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 3312#       发表于 2018-6-21 10:04
 
 
-
-
 第六集你就知道后面什么样，马后炮就算了
 
 你说的14主场可是你莓，屁股歪了就是歪了
-
-
-
-
-
 
 
 -----
@@ -20423,14 +13883,7 @@ emmmm，该丧偶了？</blockquote>
 ##### 3313#       发表于 2018-6-21 10:05
 
 
-
-
 梦到下集蝈蝈作画大崩坏
-
-
-
-
-
 
 
 -----
@@ -20439,14 +13892,7 @@ emmmm，该丧偶了？</blockquote>
 ##### 3314#       发表于 2018-6-21 10:14
 
 
-
-
 讲真，16-18每集都有不少216。。。
-
-
-
-
-
 
 
 -----
@@ -20455,14 +13901,7 @@ emmmm，该丧偶了？</blockquote>
 ##### 3315#       发表于 2018-6-21 10:15
 
 
-
-
 也就到处都啃来啃去的了……
-
-
-
-
-
 
 
 -----
@@ -20471,15 +13910,9 @@ emmmm，该丧偶了？</blockquote>
 ##### 3316#       发表于 2018-6-21 10:20
 
 
-
 <img src="https://i.loli.net/2018/06/21/5b2b0b31e2a9b.jpg" referrerpolicy="no-referrer">
 大家好今天起我叫楠田心<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 什么我也是cocoro？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20488,23 +13921,15 @@ emmmm，该丧偶了？</blockquote>
 ##### 3317#       发表于 2018-6-21 10:21
 
 
-
-
 别提了，莓相关的两个感情回都让人觉得编剧不知道在想啥。
 
 现在想想难道是偶像厨的毛病，又想让偶像对自己单箭头又不想让偶像被骂还不想让偶像真喜欢谁（但也不能没人喜欢）……结果就是莓这一团乱麻了？
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 3318#       发表于 2018-6-21 10:28
-
 
 
 <blockquote>华尔姬丽雅 发表于 2018-6-21 10:21
@@ -20514,16 +13939,10 @@ emmmm，该丧偶了？</blockquote>
 14集阿莓可是被狂骂了一通啊……
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3319#       发表于 2018-6-21 10:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40063061&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 10:21</a>
@@ -20541,16 +13960,10 @@ emmmm，该丧偶了？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3320#       发表于 2018-6-21 10:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40063219&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 10:34</a>
@@ -20561,16 +13974,10 @@ emmmm，该丧偶了？</blockquote>
 竞争对手都要gg了
 
 
-
-
-
-
-
 -----
 
 ####  新年才醒  
 ##### 3321#       发表于 2018-6-21 10:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40062832&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-21 10:04</a>
@@ -20584,16 +13991,10 @@ emmmm，该丧偶了？</blockquote>
 都是垃圾群像的错  我莓拖后腿   心满占戏份   都删掉写0216你国就不会是这吊样了
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3322#       发表于 2018-6-21 10:41
-
 
 
  本帖最后由 9α 于 2018-6-21 10:44 编辑 
@@ -20609,16 +14010,10 @@ papa为什么会那么重视13队，实在不明白。
 papa……<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  闪亮的彗星  
 ##### 3323#       发表于 2018-6-21 10:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40063299&amp;ptid=1712743" target="_blank">新年才醒 发表于 2018-06-21 10:41:15</a>
@@ -20630,16 +14025,10 @@ papa……<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  magicz2  
 ##### 3324#       发表于 2018-6-21 10:46
-
 
 
  本帖最后由 magicz2 于 2018-6-21 10:48 编辑 
@@ -20656,10 +14045,6 @@ papa……<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" 
 2018-6-21 10:45 上传
 
 
-
-
-
-
 和这个蓝毛败犬呢。
 
 <img src="https://img.saraba1st.com/forum/201806/21/104620jrrdltb1nr12nd2v.jpg" referrerpolicy="no-referrer">
@@ -20672,21 +14057,10 @@ papa……<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" 
 2018-6-21 10:46 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 3325#       发表于 2018-6-21 10:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40062246&amp;ptid=1712743" target="_blank">新年才醒 发表于 2018-6-21 09:17</a>
@@ -20697,17 +14071,10 @@ papa……<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" 
 蝈蝈风评极好的集数吸粉的集数却全是216提供的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">而且光论泥潭外面的风评，11.16.17其实都烂的不行，18更是烂的不行。当然了，11.16.17质量还行
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 3326#       发表于 2018-6-21 10:54
-
-
 
 
 其实要说单集质量，16 17都还是可以的。。
@@ -20716,16 +14083,10 @@ papa……<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" 
 再次想把系构拖出来暴打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3327#       发表于 2018-6-21 10:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40063137&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 10:28</a>
@@ -20736,25 +14097,13 @@ papa……<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" 
 所以才说是又想让偶像对自己单箭头又不想让偶像被骂……
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 3328#       发表于 2018-6-21 10:59
 
 
-
-
 我觉得蝈蝈最大的错就是还不够简单王道，说实话，在#7就让外星人出现，#15就让外星舰队露个脸，把这层反乌的皮撕掉，这片还不是照样演，大家也就不会有打爸爸起义这种奇怪的期待了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20763,15 +14112,8 @@ papa……<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" 
 ##### 3329#       发表于 2018-6-21 11:00
 
 
-
-
 最好这片就剩男女主，其他人全删<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 整天腻歪最好不过<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20780,15 +14122,8 @@ papa……<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" 
 ##### 3330#       发表于 2018-6-21 11:04
 
 
-
-
 想的太多，能力不够
 俗称，眼高手低
-
-
-
-
-
 
 
 -----
@@ -20797,16 +14132,9 @@ papa……<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" 
 ##### 3331#       发表于 2018-6-21 11:04
 
 
-
-
 前段时间的风评我不是很了解，因为在恩基爱那边基本都是应援肥宅的声音
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -20815,16 +14143,10 @@ papa……<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" 
 ##### 3332#       发表于 2018-6-21 11:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40063545&amp;ptid=1712743" target="_blank">fengzijiang 发表于 2018-6-21 10:59</a>
 
 我觉得蝈蝈最大的错就是还不够简单王道，说实话，在#7就让外星人出现，#15就让外星舰队露个脸，把这层反乌 ...</blockquote>
 你看看同样带点反乌但是主线是打外星人的KLK就知道ditf问题在哪了……
-
-
-
-
-
 
 
 -----
@@ -20833,16 +14155,9 @@ papa……<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" 
 ##### 3333#       发表于 2018-6-21 11:08
 
 
-
-
 jzgg用血肉教训告诉大家，举手制作不可取<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 泥国单集ok，放在整部里不知所云的，应该不少吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20851,22 +14166,14 @@ jzgg用血肉教训告诉大家，举手制作不可取<img src="https://static.
 ##### 3334#       发表于 2018-6-21 11:10
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">锦织一定没看过爆漫王
 只能用自己的血来获得举手和纯气势不可取经验了
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 3335#       发表于 2018-6-21 11:11
-
-
 
 
 216塑造的缺点：
@@ -20876,25 +14183,13 @@ jzgg用血肉教训告诉大家，举手制作不可取<img src="https://static.
 2 高潮后停滞太久。高潮的国15以后，216的发展却停滞了，对角/亲嘴/画画，却没有进一步的深入交谈。到了国21，又是一个国15pro，效果上还在原地打转，无非02瘫和没瘫/阿广的眼睛闪没闪光的区别。哦还有那个绘本，一开始就涂黑故弄玄虚，现在还搞个最后一页，搞笑呢
 
 
-
-
-
-
-
 -----
 
 ####  moekyo  
 ##### 3336#       发表于 2018-6-21 11:12
 
 
-
-
 今天预告之后：jzgg什么时候骗过你，又是怒涛展开.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20903,21 +14198,13 @@ jzgg用血肉教训告诉大家，举手制作不可取<img src="https://static.
 ##### 3337#       发表于 2018-6-21 11:14
 
 
-
-
 这次真的过不了150了
-
-
-
-
-
 
 
 -----
 
 ####  magicz2  
 ##### 3338#       发表于 2018-6-21 11:16
-
 
 
 <blockquote>amulelernen 发表于 2018-6-21 11:11
@@ -20927,17 +14214,10 @@ jzgg用血肉教训告诉大家，举手制作不可取<img src="https://static.
 或许15集过后直接瘫了比较好
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 3339#       发表于 2018-6-21 11:17
-
-
 
 
 等一个预告过后楼里充斥着笑声
@@ -20948,16 +14228,10 @@ jzgg用血肉教训告诉大家，举手制作不可取<img src="https://static.
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  山贼先生  
 ##### 3340#       发表于 2018-6-21 11:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40063713&amp;ptid=1712743" target="_blank">moekyo 发表于 2018-6-21 11:12</a>
@@ -20966,16 +14240,10 @@ jzgg用血肉教训告诉大家，举手制作不可取<img src="https://static.
 然而怕是 -2 三连<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 3341#       发表于 2018-6-21 11:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40063707&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-21 11:11</a>
@@ -20986,17 +14254,10 @@ jzgg用血肉教训告诉大家，举手制作不可取<img src="https://static.
 和#5五台机体偏偏遮住鹤望兰是一个道理<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 3342#       发表于 2018-6-21 11:26
-
-
 
 
 Mt.somo@udon_umee
@@ -21005,27 +14266,15 @@ Mt.somo@udon_umee
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fsimye4sg4j20sg0xck3g.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  闪亮的彗星  
 ##### 3343#       发表于 2018-6-21 11:26
 
 
-
-
 216塑造的缺点就是02戏份太少，大部分是给13小队当狗
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -21034,22 +14283,14 @@ Mt.somo@udon_umee
 ##### 3344#       发表于 2018-6-21 11:28
 
 
-
-
 原来背面是这样的
 <img src="https://i.loli.net/2018/06/21/5b2b1b3d15ab7.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  skives  
 ##### 3345#       发表于 2018-6-21 11:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40063847&amp;ptid=1712743" target="_blank">xingenge 发表于 2018-6-21 11:26</a>
@@ -21059,16 +14300,10 @@ Mt.somo@udon_umee
 人机一体，神机九式
 
 
-
-
-
-
-
 -----
 
 ####  moekyo  
 ##### 3346#       发表于 2018-6-21 11:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40063784&amp;ptid=1712743" target="_blank">山贼先生 发表于 2018-6-21 11:18</a>
@@ -21077,16 +14312,10 @@ Mt.somo@udon_umee
 那肯定是你们期待的问题，不带脑子看还行啊.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 3347#       发表于 2018-6-21 11:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40063678&amp;ptid=1712743" target="_blank">Meteors 发表于 2018-6-21 11:08</a>
@@ -21096,16 +14325,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 这也是我为什么觉得国家队再怎么烂也远远强过Rec。你国大多回单集看不错，Rec单集都没法看。你国可以说节奏烂，骂Rec根本不需要提节奏问题。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3348#       发表于 2018-6-21 11:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40063847&amp;ptid=1712743" target="_blank">xingenge 发表于 2018-6-21 11:26</a>
@@ -21116,16 +14339,10 @@ Mt.somo@udon_umee
 没有丁丁
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 3349#       发表于 2018-6-21 11:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40063678&amp;ptid=1712743" target="_blank">Meteors 发表于 2018-6-21 11:08</a>
@@ -21139,16 +14356,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 国鱼毁就毁在jzgg这种谜一般的操作
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3350#       发表于 2018-6-21 11:53
-
 
 
 <blockquote>davidcch12 发表于 2018-6-21 11:49
@@ -21161,16 +14372,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 但是凭气势做的这个就……不知道是个什么意思了……大纲不是应该最初就定好嘛……
 
 
-
-
-
-
-
 -----
 
 ####  戏谑二次元  
 ##### 3351#       发表于 2018-6-21 11:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40063299&amp;ptid=1712743" target="_blank">新年才醒 发表于 2018-06-21 10:41:15</a>
@@ -21182,16 +14387,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 3352#       发表于 2018-6-21 12:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40064201&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 11:53</a>
@@ -21202,17 +14401,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 但是他的精力到底用到哪里去了……最基本的系构都没做好……<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  soulife7  
 ##### 3353#       发表于 2018-6-21 12:03
-
-
 
 
 锅锅就还剩三集了，还争论什么对错<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
@@ -21221,16 +14413,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 3354#       发表于 2018-6-21 12:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40064323&amp;ptid=1712743" target="_blank">soulife7 发表于 2018-6-21 12:03</a>
@@ -21239,17 +14425,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 看完再开批斗大会的意思嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 3355#       发表于 2018-6-21 12:09
-
-
 
 
 接下来三集。要怎样展开你们才愿意+2呢？？
@@ -21257,16 +14436,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  黑色蘑菇  
 ##### 3356#       发表于 2018-6-21 12:11
-
 
 
 <blockquote>戏谑二次元 发表于 2018-6-21 11:59
@@ -21278,16 +14451,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 后来直接其乐融融  连喷的动力都没有了
 
 
-
-
-
-
-
 -----
 
 ####  mumubear  
 ##### 3357#       发表于 2018-6-21 12:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40064283&amp;ptid=1712743" target="_blank">davidcch12 发表于 2018-6-21 12:01</a>
@@ -21298,16 +14465,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">千辛万苦插flag，然后再千辛万苦把它拔掉。。。
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3358#       发表于 2018-6-21 12:13
-
 
 
 <blockquote>hl8243 发表于 2018-6-21 12:09
@@ -21318,16 +14479,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 广作为叫龙人永生，看着朋友们乃至朋友们的孩子都一个个离他而去，而他一直在寻找复活02的方式……这种永生与短暂的对比情节说不定能赚点眼泪……
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3359#       发表于 2018-6-21 12:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40064388&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-21 12:09</a>
@@ -21337,16 +14492,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 来 粉 黄
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 3360#       发表于 2018-6-21 12:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40064424&amp;ptid=1712743" target="_blank">mumubear 发表于 2018-06-21 12:11:36</a>
@@ -21356,16 +14505,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 3361#       发表于 2018-6-21 12:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40064528&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-06-21 12:18:25</a>
@@ -21375,17 +14518,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3362#       发表于 2018-6-21 12:22
-
-
 
 
 说到展开，这几集又插了一堆BEflag：
@@ -21394,16 +14530,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我很好奇锦织能不能在剩下三集里把这些flag再全拔掉，完美HE结局。
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 3363#       发表于 2018-6-21 12:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40064577&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-06-21 12:22:07</a>
@@ -21418,24 +14548,13 @@ jzgg用血肉教训告诉大家，举手制作不可取
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  AminGly  
 ##### 3364#       发表于 2018-6-21 12:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今天下午会不会有一般展开
-
-
-
-
-
 
 
 -----
@@ -21444,21 +14563,13 @@ jzgg用血肉教训告诉大家，举手制作不可取
 ##### 3365#       发表于 2018-6-21 12:27
 
 
-
-
 想了下，国家队之所以拍的这么烂还是因为703不是女主，703要是女主，那么相互理解的男女主爆发会更早，队霸也不会乱搞，队霸不乱搞就会有更多精力放在队伍其他成员，尤其是心满上，那么心满估计也不会太乱来，心满集数正常了就有更多集数放在机战上，泥潭就会狂吹国家队直至完结，最重要的是没有02，那么广不会龙化，ape不会发现钥匙然后召唤外星人，叫龙公主不会挂，说白了自从有了02一切都乱了。
-
-
-
-
-
 
 
 -----
 
 ####  zjylyy  
 ##### 3366#       发表于 2018-6-21 12:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40064577&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-06-21 12:22:07</a>
@@ -21469,25 +14580,13 @@ jzgg用血肉教训告诉大家，举手制作不可取
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  大江户战士  
 ##### 3367#       发表于 2018-6-21 12:28
 
 
-
-
 约定的梦见岛真好看
-
-
-
-
-
 
 
 -----
@@ -21496,21 +14595,13 @@ jzgg用血肉教训告诉大家，举手制作不可取
 ##### 3368#       发表于 2018-6-21 12:28
 
 
-
-
 如果当年国9真的自爆了，国10再一集复活。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 3369#       发表于 2018-6-21 12:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40064623&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-21 12:25</a>
@@ -21527,16 +14618,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 0216反倒是小问题（反正下集预告里02活蹦乱跳只是没了角也完全ojbk），总之这么多问题放这儿摆着，最后要是来个lovelove抛瓦白魔法……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">好像也不是不行。
 
 
-
-
-
-
-
 -----
 
 ####  zjylyy  
 ##### 3370#       发表于 2018-6-21 12:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40064627&amp;ptid=1712743" target="_blank">AminGly 发表于 2018-06-21 12:26:18</a>
@@ -21545,16 +14630,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  AminGly  
 ##### 3371#       发表于 2018-6-21 12:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40064689&amp;ptid=1712743" target="_blank">zjylyy 发表于 2018-6-21 12:30</a>
@@ -21566,17 +14645,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我觉得会有
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 3372#       发表于 2018-6-21 12:33
-
-
 
 
 我倒觉得孩子肯定大战完了再生，这样就可以打字幕n年后，直接拍出孩子已会走路多简单<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -21584,16 +14656,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 郁乃这个真的有点难，上一个直接描写白发的人是死于人体炸弹<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
 
 
-
-
-
-
-
 -----
 
 ####  黑色蘑菇  
 ##### 3373#       发表于 2018-6-21 12:33
-
 
 
 <blockquote>hl8243 发表于 2018-6-21 12:21
@@ -21606,16 +14672,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 现在只能＋1了
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3374#       发表于 2018-6-21 12:34
-
 
 
  本帖最后由 9α 于 2018-6-21 12:38 编辑 
@@ -21636,16 +14696,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 看最后3话吧
 
 
-
-
-
-
-
 -----
 
 ####  soulife7  
 ##### 3375#       发表于 2018-6-21 12:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40064359&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-06-21 12:07:02</a>
@@ -21654,16 +14708,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 3376#       发表于 2018-6-21 12:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40064675&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-06-21 12:29:31</a>
@@ -21675,16 +14723,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3377#       发表于 2018-6-21 12:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40064740&amp;ptid=1712743" target="_blank">Meteors 发表于 2018-6-21 12:33</a>
@@ -21698,16 +14740,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 要直接这么略过去总之不管咋地孩子好好生下来长大了，心满失忆这个剧情就是真·xjb乱搞毫无卵用。
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3378#       发表于 2018-6-21 12:40
-
 
 
 <blockquote>华尔姬丽雅 发表于 2018-6-21 12:29
@@ -21717,16 +14753,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 我猜测，按照这片的性质，郁乃白发的意义说不准还要落脚到感情线上……而不是他们都要死这种。
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3379#       发表于 2018-6-21 12:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40063786&amp;ptid=1712743" target="_blank">fengzijiang 发表于 2018-6-21 11:19</a>
@@ -21735,16 +14765,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 谜之记忆力，只涂四字，工具涂黑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3380#       发表于 2018-6-21 12:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40064839&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 12:40</a>
@@ -21755,16 +14779,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 但靠lovelove亲亲就能白发转乌，那就真魔法了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  AminGly  
 ##### 3381#       发表于 2018-6-21 12:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40064762&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 12:34</a>
@@ -21779,16 +14797,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 是给02备用吗
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3382#       发表于 2018-6-21 12:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40064918&amp;ptid=1712743" target="_blank">AminGly 发表于 2018-6-21 12:45</a>
@@ -21801,16 +14813,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 当papa的狗，不够能打是26队的下场，够能打是9队的下场，只有觉醒自由意志的13队全员存活还因为积累了生活经验不怕大人消失，对比够鲜明了吧。
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3383#       发表于 2018-6-21 12:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40064918&amp;ptid=1712743" target="_blank">AminGly 发表于 2018-6-21 12:45</a>
@@ -21834,25 +14840,13 @@ jzgg用血肉教训告诉大家，举手制作不可取
 17话看上去他也知道旧人类会做那种事，但具体是怎样的不清楚。
 
 
-
-
-
-
-
 -----
 
 ####  大江户战士  
 ##### 3384#       发表于 2018-6-21 12:54
 
 
-
-
 舅舅党发完小英雄的表了，估计很快就有蝈蝈的表了
-
-
-
-
-
 
 
 -----
@@ -21861,14 +14855,7 @@ jzgg用血肉教训告诉大家，举手制作不可取
 ##### 3385#       发表于 2018-6-21 12:57
 
 
-
-
 表还能救国吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">富野来了都救不了了吧
-
-
-
-
-
 
 
 -----
@@ -21877,15 +14864,9 @@ jzgg用血肉教训告诉大家，举手制作不可取
 ##### 3386#       发表于 2018-6-21 12:58
 
 
-
 <blockquote>塞瑞娜 发表于 2018-6-21 12:27
 想了下，国家队之所以拍的这么烂还是因为703不是女主，703要是女主，那么相互理解的男女主爆发会更早，队霸 ...</blockquote>
 703本身就是一个工具人啊，存在的意义就是说出不合格孩子的下落，作为广主席搭档就注定被剪枝的命运。如果广主席小时候没碰到02，那么广主席就会是顺利成为队长，和15或者是其他强力雌蕊成为搭档。只有广主席舔过龙血后数值下降才会被和低数值的703凑合。即使最后勉强能开机留在13队，但13队本身就是博士安排的，到时候02还是会和广主席见面。这样悲惨的703队内会被广主席青梅竹马15凌霸，队外会被02来实践第一话的抢搭档宣言，广主席这种硬核人外控肯定拴不住的。这种狗血情节就是玛丽全开也不一定搞得好，你还指望偶像厨锦织哥哥写这种极其复杂的感情戏吗
-
-
-
-
-
 
 
 -----
@@ -21894,22 +14875,15 @@ jzgg用血肉教训告诉大家，举手制作不可取
 ##### 3387#       发表于 2018-6-21 13:00
 
 
-
 <blockquote>华尔姬丽雅 发表于 2018-6-21 12:44
 怎么说呢……虽然到目前为止这片都很lovelove抛瓦，但只体现在战斗力上，而感情好战力强是从开头部分就在 ...</blockquote>
 白发的原理是啥也没说……讲道理从根部缓缓长出白发okay，一秒全白也是魔法啊。感情好可以治病（短命），白发也许不能逆转但是可以染黑呀
-
-
-
-
-
 
 
 -----
 
 ####  黑色蘑菇  
 ##### 3388#       发表于 2018-6-21 13:04
-
 
 
 <blockquote>amulelernen 发表于 2018-6-21 12:57
@@ -21919,32 +14893,19 @@ jzgg用血肉教训告诉大家，举手制作不可取
 小草莓可能就成花园丽了。。
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 3389#       发表于 2018-6-21 13:07
 
 
-
-
 表跟表没关系，上周是周三发的mha，ditf直接到了周六
-
-
-
-
-
 
 
 -----
 
 ####  猫白羽毛  
 ##### 3390#       发表于 2018-6-21 13:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40064573&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-21 12:21</a>
@@ -21954,16 +14915,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 做人要一路到底
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3391#       发表于 2018-6-21 13:28
-
 
 
 <blockquote>CCYYFF 发表于 2018-6-21 12:58
@@ -21983,17 +14938,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 （ditf做成gal应该很不错呢）
 
 
-
-
-
-
-
-
 -----
 
 ####  Gato_shin  
 ##### 3392#       发表于 2018-6-21 13:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40065389&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 13:28</a>
@@ -22008,25 +14956,13 @@ jzgg用血肉教训告诉大家，举手制作不可取
 但是那就又更加考验那边的脚本功力了：毕竟你啊你妹只需要一条线，gal要好多条线……
 
 
-
-
-
-
-
 -----
 
 ####  skives  
 ##### 3393#       发表于 2018-6-21 13:42
 
 
-
-
 要出预告了 又是我第二喜欢的日常回
-
-
-
-
-
 
 
 -----
@@ -22035,20 +14971,13 @@ jzgg用血肉教训告诉大家，举手制作不可取
 ##### 3394#       发表于 2018-6-21 13:43
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">我能从主线里解放了吗？让我去好好过一下日常好吗？
-
-
-
-
-
 
 
 -----
 
 ####  猫白羽毛  
 ##### 3395#       发表于 2018-6-21 13:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40065500&amp;ptid=1712743" target="_blank">Gato_shin 发表于 2018-6-21 13:38</a>
@@ -22059,16 +14988,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 不是林大先生本行么……
 
 
-
-
-
-
-
 -----
 
 ####  黑色蘑菇  
 ##### 3396#       发表于 2018-6-21 14:01
-
 
 
 <blockquote>猫白羽毛 发表于 2018-6-21 13:54
@@ -22078,16 +15001,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 这实在是。。。。。。。太刺激了
 
 
-
-
-
-
-
 -----
 
 ####  闪亮的彗星  
 ##### 3397#       发表于 2018-6-21 14:01
-
 
 
  本帖最后由 闪亮的彗星 于 2018-6-21 14:03 编辑 
@@ -22097,17 +15014,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3398#       发表于 2018-6-21 14:07
-
-
 
 
 林哥哥我不太了解
@@ -22116,27 +15026,15 @@ jzgg用血肉教训告诉大家，举手制作不可取
 有个人的企划吗？
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 3399#       发表于 2018-6-21 14:08
 
 
-
-
 等一个ditf的gal来翻案<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -22145,16 +15043,9 @@ jzgg用血肉教训告诉大家，举手制作不可取
 ##### 3400#       发表于 2018-6-21 14:09
 
 
-
-
 前天看了风云2一到六集，昨天又看了四集，发现前面剧情好炸裂，我以为我在看国家队，哈哈，本来想点开一集看看怎么样，发现前面好炸裂的制作，太厉害了！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -22163,21 +15054,13 @@ jzgg用血肉教训告诉大家，举手制作不可取
 ##### 3401#       发表于 2018-6-21 14:14
 
 
-
-
 出一个全是我莓后宫的乙女向买爆啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  戏谑二次元  
 ##### 3402#       发表于 2018-6-21 14:14
-
 
 
  本帖最后由 戏谑二次元 于 2018-6-21 14:17 编辑 
@@ -22187,16 +15070,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 然后心告诉满，孩子是亲吻就有的，所以孩子是满的。十个月过去了，心生下一个红皮小女孩
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3403#       发表于 2018-6-21 14:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40065878&amp;ptid=1712743" target="_blank">戏谑二次元 发表于 2018-6-21 14:14</a>
@@ -22206,16 +15083,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 赞，专楼都是人才
 
 
-
-
-
-
-
 -----
 
 ####  02016  
 ##### 3404#       发表于 2018-6-21 14:21
-
 
 
  本帖最后由 02016 于 2018-6-21 14:27 编辑 
@@ -22236,16 +15107,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 再试一下
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3405#       发表于 2018-6-21 14:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40065878&amp;ptid=1712743" target="_blank">戏谑二次元 发表于 2018-6-21 14:14</a>
@@ -22255,15 +15120,9 @@ jzgg用血肉教训告诉大家，举手制作不可取
 恶心！恶心！恶心<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">你们怎么那么肮脏！
 
 
-
 ————————————————————————————
 你们怎么那么喜欢这种<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 并没继承龙血，生育能力有没有都不知道呢～<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22272,15 +15131,9 @@ jzgg用血肉教训告诉大家，举手制作不可取
 ##### 3406#       发表于 2018-6-21 14:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40065959&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 14:23</a>
 恶心！恶心！恶心你们怎么那么肮脏！</blockquote>
 α没有小丁丁……
-
-
-
-
-
 
 
 -----
@@ -22289,14 +15142,7 @@ jzgg用血肉教训告诉大家，举手制作不可取
 ##### 3407#       发表于 2018-6-21 14:32
 
 
-
-
 出预告的话，估计这楼能超过120，不过到不了130吧。
-
-
-
-
-
 
 
 -----
@@ -22305,23 +15151,16 @@ jzgg用血肉教训告诉大家，举手制作不可取
 ##### 3408#       发表于 2018-6-21 14:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40066014&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-21 14:29</a>
 
 α没有小丁丁……</blockquote>
 应该还是有小丁丁的，但是没有第二性征？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zjylyy  
 ##### 3409#       发表于 2018-6-21 14:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40065878&amp;ptid=1712743" target="_blank">戏谑二次元 发表于 2018-6-21 14:14</a>
@@ -22332,16 +15171,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 这ntr的味道<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  soulife7  
 ##### 3410#       发表于 2018-6-21 14:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40066042&amp;ptid=1712743" target="_blank">sherlockchu 发表于 2018-06-21 14:32:10</a>
@@ -22351,16 +15184,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  山贼先生  
 ##### 3411#       发表于 2018-6-21 14:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40065739&amp;ptid=1712743" target="_blank">闪亮的彗星 发表于 2018-6-21 14:01</a>
@@ -22381,32 +15208,19 @@ jzgg用血肉教训告诉大家，举手制作不可取
 其它有可能的展开几乎为0吧  更何况就56那体格跟汁男们有啥区别
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3412#       发表于 2018-6-21 14:48
 
 
-
-
 游戏啊……昨天脑洞了一下各鸟笼就是一款模拟养成游戏而13都市是博士的mod，结果#15大战后突然断了服务器连接变单机
-
-
-
-
-
 
 
 -----
 
 ####  Meteors  
 ##### 3413#       发表于 2018-6-21 14:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40065941&amp;ptid=1712743" target="_blank">02016 发表于 2018-6-21 14:21</a>
@@ -22417,16 +15231,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3414#       发表于 2018-6-21 14:54
-
 
 
 <img src="https://i.loli.net/2018/06/21/5b2b4ba7310b4.jpg" referrerpolicy="no-referrer">
@@ -22434,16 +15242,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 大姐姐给你吹吹气
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3415#       发表于 2018-6-21 14:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40062370&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 09:27</a>
@@ -22460,16 +15262,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 想起来02舔15，56拍头被打飞；α吻手15，56好像还有点生气<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 3416#       发表于 2018-6-21 15:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40066123&amp;ptid=1712743" target="_blank">soulife7 发表于 2018-6-21 14:39</a>
@@ -22478,27 +15274,15 @@ jzgg用血肉教训告诉大家，举手制作不可取
 你国除了定期卖萌的戏服，就只剩下不痛不痒的吐槽了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 预告出了感觉也激不起神马波澜。
 
 
-
-
-
-
-
 -----
 
 ####  02016  
 ##### 3417#       发表于 2018-6-21 15:01
 
 
-
-
 满心现代全年龄本预约受付[https://ec.toranoana.jp/joshi_r/ec/item/040030644275/](https://ec.toranoana.jp/joshi_r/ec/item/040030644275/)
 
 还看到5月份发售的1656，封面也太不像广了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22507,16 +15291,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 ##### 3418#       发表于 2018-6-21 15:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40066236&amp;ptid=1712743" target="_blank">Meteors 发表于 2018-6-21 14:52</a>
 
 可以</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22525,19 +15303,11 @@ jzgg用血肉教训告诉大家，举手制作不可取
 ##### 3419#       发表于 2018-6-21 15:07
 
 
-
-
 嘻嘻
-
-
-
-
 
 
 90947A55-AE21-4293-8DFD-13BB31D57473.png
 (378.82 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -22546,24 +15316,7 @@ jzgg用血肉教训告诉大家，举手制作不可取
 2018-6-21 15:07 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/21/150728pbx9s999xbr9bnys.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -22572,22 +15325,15 @@ jzgg用血肉教训告诉大家，举手制作不可取
 ##### 3420#       发表于 2018-6-21 15:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40066436&amp;ptid=1712743" target="_blank">lanhao 发表于 2018-6-21 15:07</a>
 嘻嘻</blockquote>
 喷了
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 3421#       发表于 2018-6-21 15:12
-
 
 
 <blockquote>02016 发表于 2018-6-21 15:01
@@ -22597,16 +15343,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 看了下预览，都不太像16，倒是有一张像326……
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3422#       发表于 2018-6-21 15:13
-
 
 
 <blockquote>9α 发表于 2018-6-21 14:07
@@ -22619,16 +15359,10 @@ jzgg用血肉教训告诉大家，举手制作不可取
 名作《命运石之门》游戏原作剧本就是他
 
 
-
-
-
-
-
 -----
 
 ####  02016  
 ##### 3423#       发表于 2018-6-21 15:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40066494&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-21 15:12</a>
@@ -22637,26 +15371,15 @@ jzgg用血肉教训告诉大家，举手制作不可取
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">确实都不太像
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3424#       发表于 2018-6-21 15:18
 
 
-
 <blockquote>royalblue1127 发表于 2018-6-21 14:14
 出一个全是我莓后宫的乙女向买爆啊</blockquote>
 ……好期待啊，虽然不太可能……
-
-
-
-
-
 
 
 -----
@@ -22665,15 +15388,8 @@ jzgg用血肉教训告诉大家，举手制作不可取
 ##### 3425#       发表于 2018-6-21 15:20
 
 
-
-
 他说这话和没说没差<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 毕竟GC历史地位已经升格了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22682,14 +15398,7 @@ jzgg用血肉教训告诉大家，举手制作不可取
 ##### 3426#       发表于 2018-6-21 15:23
 
 
-
-
 GC精神续作石锤<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22698,22 +15407,14 @@ GC精神续作石锤<img src="https://static.saraba1st.com/image/smiley/face2017
 ##### 3427#       发表于 2018-6-21 15:24
 
 
-
-
 毕竟怪物滚开都有呢
 刻进DNA的桥段
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 3428#       发表于 2018-6-21 15:25
-
 
 
  本帖最后由 9α 于 2018-6-21 15:29 编辑 
@@ -22726,32 +15427,19 @@ GC精神续作石锤<img src="https://static.saraba1st.com/image/smiley/face2017
 石头门的原作企画是志仓社长
 
 
-
-
-
-
-
 -----
 
 ####  zjylyy  
 ##### 3429#       发表于 2018-6-21 15:27
 
 
-
-
 但是蝈蝈目前有王之力，希望之花这种经典桥段吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 3430#       发表于 2018-6-21 15:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40066302&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-21 14:57</a>
@@ -22769,16 +15457,10 @@ GC精神续作石锤<img src="https://static.saraba1st.com/image/smiley/face2017
 让我再奶一下获得新名字……
 
 
-
-
-
-
-
 -----
 
 ####  soulife7  
 ##### 3431#       发表于 2018-6-21 15:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40066645&amp;ptid=1712743" target="_blank">zjylyy 发表于 2018-06-21 15:27:35</a>
@@ -22787,33 +15469,20 @@ GC精神续作石锤<img src="https://static.saraba1st.com/image/smiley/face2017
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 3432#       发表于 2018-6-21 15:29
 
 
-
-
 其实我一直觉得gc是仿照种子做的，只是荒木水平不如福田就是了.......
 蝈蝈和这两不是一路
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 3433#       发表于 2018-6-21 15:34
-
 
 
 <blockquote>9α 发表于 2018-6-21 15:25
@@ -22824,16 +15493,10 @@ GC精神续作石锤<img src="https://static.saraba1st.com/image/smiley/face2017
 编剧是他,之前还有秋之回忆系列的编剧…
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3434#       发表于 2018-6-21 15:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40066674&amp;ptid=1712743" target="_blank">fengzijiang 发表于 2018-6-21 15:29</a>
@@ -22844,16 +15507,10 @@ GC精神续作石锤<img src="https://static.saraba1st.com/image/smiley/face2017
 GC不明明白白是仿CG么……和种子的距离很远。
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3435#       发表于 2018-6-21 15:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40066656&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 15:28</a>
@@ -22862,16 +15519,10 @@ GC不明明白白是仿CG么……和种子的距离很远。
 你想要16爸爸还是大和抚子赐名<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3436#       发表于 2018-6-21 15:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40066656&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 15:28</a>
@@ -22882,16 +15533,10 @@ GC不明明白白是仿CG么……和种子的距离很远。
 那就只有等莓队把你收了，阿广下集估计要疯，没法取名了
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3437#       发表于 2018-6-21 15:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40066945&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-21 15:54</a>
@@ -22901,16 +15546,10 @@ GC不明明白白是仿CG么……和种子的距离很远。
 不结婚不认
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3438#       发表于 2018-6-21 16:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40066975&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 15:57</a>
@@ -22921,16 +15560,10 @@ GC不明明白白是仿CG么……和种子的距离很远。
 其实很好奇#18不打断的后段仪式吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3439#       发表于 2018-6-21 16:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40066975&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 15:57</a>
@@ -22942,16 +15575,10 @@ GC不明明白白是仿CG么……和种子的距离很远。
 说真的，18集你要是拆的是爸妈婚礼那是真的好玩
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 3440#       发表于 2018-6-21 16:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40066838&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 15:45</a>
@@ -22964,16 +15591,10 @@ GC不明明白白是仿CG么……和种子的距离很远。</blockquote>
 gc那机甲干爆是不会杀人的，其实就是削人棍的翻版。女主还有机器人也有拉妖哈罗的影子，我觉得从整体上来看，我觉得是在仿照种子。
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3441#       发表于 2018-6-21 16:08
-
 
 
 <blockquote>猫白羽毛 发表于 2018-6-21 16:01
@@ -22991,16 +15612,10 @@ iota不要生九胎！
 三连了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3442#       发表于 2018-6-21 16:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067119&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-21 16:08</a>
@@ -23015,32 +15630,19 @@ iota不要生九胎！
 不要把我们当拖油瓶
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3443#       发表于 2018-6-21 16:17
 
 
-
-
 今天的预告会鸽吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 3444#       发表于 2018-6-21 16:21
-
 
 
  本帖最后由 9α 于 2018-6-21 16:23 编辑 
@@ -23055,32 +15657,19 @@ iota不要生九胎！
 当干妈倒不错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3445#       发表于 2018-6-21 16:24
 
 
-
-
 你们人类的本质不是咕咕吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 3446#       发表于 2018-6-21 16:28
-
 
 
  本帖最后由 9α 于 2018-6-21 16:33 编辑 
@@ -23097,16 +15686,10 @@ B.反了的就我一个，我被9红9蓝抛弃了<img src="https://static.saraba
 C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3447#       发表于 2018-6-21 16:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067247&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 16:21</a>
@@ -23116,16 +15699,10 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 我在说什么
 
 
-
-
-
-
-
 -----
 
 ####  山贼先生  
 ##### 3448#       发表于 2018-6-21 16:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067314&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 16:28</a>
@@ -23138,16 +15715,10 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 你这是要哭哭一礼拜的节奏吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3449#       发表于 2018-6-21 16:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067375&amp;ptid=1712743" target="_blank">山贼先生 发表于 2018-6-21 16:34</a>
@@ -23160,16 +15731,10 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 下周是不是可以正常了……<img src="https://static.saraba1st.com/image/smiley/face2017/191.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  山贼先生  
 ##### 3450#       发表于 2018-6-21 16:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067396&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 16:36</a>
@@ -23182,25 +15747,13 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 看一会预告出来就知道了，万一要继续哭哭呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  arrru  
 ##### 3451#       发表于 2018-6-21 16:39
 
 
-
-
 待机<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">希望今天的预告也准时
-
-
-
-
-
 
 
 -----
@@ -23209,14 +15762,7 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3452#       发表于 2018-6-21 16:41
 
 
-
-
 有点害怕预告的内容<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23225,14 +15771,7 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3453#       发表于 2018-6-21 16:45
 
 
-
-
 王冠啊，至少大剑打戏，魔法圈二段跳，到处飞的光带，偶尔RY一下的香菜还有泽野弘之挺不错，挺时髦的不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23241,22 +15780,13 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3454#       发表于 2018-6-21 16:46
 
 
-
-
 趁着预告出来之前猜一下，阿广发现了02变成植物人可能是因为弗兰克斯，发现了消失的孩子们可能的去处，怀着复杂的心情去请求弗兰克斯之父博士，结果发现博士人不在了，决定自己拿博士的资料做研究<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  西岚不是花  
 ##### 3455#       发表于 2018-6-21 16:49
-
-
 
 
 说起来今天有预告啊……
@@ -23271,32 +15801,19 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 至于v星人  还是下一季再见
 
 
-
-
-
-
-
 -----
 
 ####  五更伪境  
 ##### 3456#       发表于 2018-6-21 16:50
 
 
-
-
 那我奶一口02解迷回
-
-
-
-
-
 
 
 -----
 
 ####  栗悟饭177  
 ##### 3457#       发表于 2018-6-21 16:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067464&amp;ptid=1712743" target="_blank">davidcch12 发表于 2018-6-21 16:41</a>
@@ -23307,25 +15824,13 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 喷就完事了
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 3458#       发表于 2018-6-21 16:53
 
 
-
-
 21的story pics 还是模糊的
-
-
-
-
-
 
 
 -----
@@ -23334,14 +15839,7 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3459#       发表于 2018-6-21 16:55
 
 
-
-
 那我奶一个02叫龙公主回
-
-
-
-
-
 
 
 -----
@@ -23350,21 +15848,13 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3460#       发表于 2018-6-21 16:55
 
 
-
-
 02在预告里会露脸吗？还是为了给人悬疑故意不露呢…
-
-
-
-
-
 
 
 -----
 
 ####  猫白羽毛  
 ##### 3461#       发表于 2018-6-21 16:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067589&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-21 16:52</a>
@@ -23374,32 +15864,19 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 锦织终极打脸：你以为他在打脸其实他没有打脸，打脸以为锦织在打脸的人
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 3462#       发表于 2018-6-21 16:57
 
 
-
-
 是不是该14pro了？预告里莓怒扇9α一巴掌。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 3463#       发表于 2018-6-21 16:58
-
 
 
 <blockquote>xingenge 发表于 2018-6-21 16:53
@@ -23415,32 +15892,19 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 温柔16
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3464#       发表于 2018-6-21 17:00
 
 
-
-
 到时间了？
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 3465#       发表于 2018-6-21 17:00
-
 
 
  本帖最后由 华尔姬丽雅 于 2018-6-21 17:04 编辑 
@@ -23467,31 +15931,19 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 预告是1556双人念。
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 3466#       发表于 2018-6-21 17:00
 
 
-
 [https://www.youtube.com/watch?v=E9qZ-adtHgI](https://www.youtube.com/watch?v=E9qZ-adtHgI)
-
-
-
-
-
 
 
 -----
 
 ####  猫白羽毛  
 ##### 3467#       发表于 2018-6-21 17:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067694&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 17:00</a>
@@ -23501,24 +15953,13 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 鹤望兰……
 
 
-
-
-
-
-
 -----
 
 ####  xingenge  
 ##### 3468#       发表于 2018-6-21 17:01
 
 
-
 [https://weibo.com/tv/v/Gmp1SEZAk?fid=1034:4253394253328126](https://weibo.com/tv/v/Gmp1SEZAk?fid=1034:4253394253328126)
-
-
-
-
-
 
 
 -----
@@ -23527,14 +15968,7 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3469#       发表于 2018-6-21 17:02
 
 
-
-
 我服了，真是日常
-
-
-
-
-
 
 
 -----
@@ -23543,15 +15977,8 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3470#       发表于 2018-6-21 17:02
 
 
-
-
 我佛了
 还是双人预告
-
-
-
-
-
 
 
 -----
@@ -23560,15 +15987,8 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3471#       发表于 2018-6-21 17:03
 
 
-
-
 死刑 彻底救不了了
 盖棺了
-
-
-
-
-
 
 
 -----
@@ -23577,14 +15997,7 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3472#       发表于 2018-6-21 17:03
 
 
-
-
 猜都猜到了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">总不见得下一集外星人又来了吧
-
-
-
-
-
 
 
 -----
@@ -23593,14 +16006,7 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3473#       发表于 2018-6-21 17:03
 
 
-
-
 病人们请开始医闹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23609,14 +16015,7 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3474#       发表于 2018-6-21 17:03
 
 
-
-
 靠我病得不轻了……<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23625,13 +16024,7 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3475#       发表于 2018-6-21 17:03
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">02这是傻了？
-
-
-
-
-
 
 
 -----
@@ -23640,16 +16033,9 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3476#       发表于 2018-6-21 17:04
 
 
-
-
 圣锦织伟大，又是熟悉的什么low来什么。
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -23658,14 +16044,7 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3477#       发表于 2018-6-21 17:04
 
 
-
-
 哈哈哈哈哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23674,16 +16053,10 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3478#       发表于 2018-6-21 17:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067734&amp;ptid=1712743" target="_blank">dzrykh 发表于 2018-6-21 17:03</a>
 
 02这是傻了？</blockquote>
 灵魂融入阿帕斯，变成了香香他妈的样子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23692,14 +16065,7 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3479#       发表于 2018-6-21 17:04
 
 
-
-
 。。。。锦织你在干什么啊锦织
-
-
-
-
-
 
 
 -----
@@ -23708,14 +16074,7 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3480#       发表于 2018-6-21 17:04
 
 
-
-
 又到了我最喜欢的日常回<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23724,16 +16083,9 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3481#       发表于 2018-6-21 17:04
 
 
-
-
 妈妈傻了
 
 儿子病了<img src="https://i.loli.net/2018/06/21/5b2b6a2e25a69.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23742,14 +16094,7 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3482#       发表于 2018-6-21 17:04
 
 
-
-
 连个02都不敢弄死，真废物。还来日常戏，呵呵
-
-
-
-
-
 
 
 -----
@@ -23758,16 +16103,9 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3483#       发表于 2018-6-21 17:05
 
 
-
-
 是
 
 1556回+3255回+0216回
-
-
-
-
-
 
 
 -----
@@ -23776,16 +16114,10 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3484#       发表于 2018-6-21 17:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067731&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 17:03</a>
 
 靠我病得不轻了……</blockquote>
 你病了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23794,13 +16126,7 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3485#       发表于 2018-6-21 17:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要生了吧。
-
-
-
-
-
 
 
 -----
@@ -23809,22 +16135,13 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3486#       发表于 2018-6-21 17:05
 
 
-
-
 真成傻妞了还行
-
-
-
-
-
 
 
 -----
 
 ####  猫白羽毛  
 ##### 3487#       发表于 2018-6-21 17:06
-
-
 
 
 怒一周
@@ -23835,27 +16152,15 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 白白的
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 3488#       发表于 2018-6-21 17:06
 
 
-
-
 56终于咆哮了
 
 56稳了
-
-
-
-
-
 
 
 -----
@@ -23864,14 +16169,7 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3489#       发表于 2018-6-21 17:06
 
 
-
-
 赶紧把故事讲完吧，没什么好期待了
-
-
-
-
-
 
 
 -----
@@ -23880,14 +16178,7 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3490#       发表于 2018-6-21 17:06
 
 
-
-
 笑吐了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这片的风格我是真的猜不透 v星人就是被这群弱智打败的 会不会很伤心
-
-
-
-
-
 
 
 -----
@@ -23896,14 +16187,7 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3491#       发表于 2018-6-21 17:06
 
 
-
-
 预告里唯一没出现的孩子是郁乃……
-
-
-
-
-
 
 
 -----
@@ -23912,15 +16196,8 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3492#       发表于 2018-6-21 17:06
 
 
-
-
 这片彻底完了
 从结尾看 标题里的观星者是02吧
-
-
-
-
-
 
 
 -----
@@ -23929,14 +16206,7 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3493#       发表于 2018-6-21 17:06
 
 
-
-
 你们还在期待什么，早说了这片的定位是青春群像了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23945,20 +16215,13 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3494#       发表于 2018-6-21 17:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">161718pro在路上了
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 3495#       发表于 2018-6-21 17:06
-
 
 
 <blockquote>xingenge 发表于 2018-6-21 17:05
@@ -23968,27 +16231,15 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 16pro？
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 3496#       发表于 2018-6-21 17:07
 
 
-
-
 注意看9a的手  严重老化   
 
 比196还严重老化
-
-
-
-
-
 
 
 -----
@@ -23997,15 +16248,9 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3497#       发表于 2018-6-21 17:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067776&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 17:06</a>
 预告里唯一没出现的孩子是郁乃……</blockquote>
 有的有的
-
-
-
-
-
 
 
 -----
@@ -24014,15 +16259,8 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3498#       发表于 2018-6-21 17:07
 
 
-
-
 脑瘫妈妈和病气儿子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 丈夫十余年不离不弃感动叫龙
-
-
-
-
-
 
 
 -----
@@ -24031,14 +16269,7 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3499#       发表于 2018-6-21 17:07
 
 
-
-
 恐怖。。
-
-
-
-
-
 
 
 -----
@@ -24047,14 +16278,7 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3500#       发表于 2018-6-21 17:07
 
 
-
-
 你们又要开始残酷生存了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小儿麻痹症13部队
-
-
-
-
-
 
 
 -----
@@ -24063,15 +16287,9 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3501#       发表于 2018-6-21 17:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">..326喜当爹被吓到了？
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -24080,21 +16298,13 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3502#       发表于 2018-6-21 17:08
 
 
-
-
 这02好僵啊，怎么处理啊
-
-
-
-
-
 
 
 -----
 
 ####  yy19  
 ##### 3503#       发表于 2018-6-21 17:08
-
 
 
  本帖最后由 yy19 于 2018-6-21 17:09 编辑 
@@ -24104,25 +16314,13 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 傻妞个蛋。02款人偶/人形，参上！<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  CCYYFF  
 ##### 3504#       发表于 2018-6-21 17:08
 
 
-
-
 灵魂在阿帕斯里面，要靠上机才能解决，真in the fxx。话说这又双叒叕是参考eva了吧
-
-
-
-
-
 
 
 -----
@@ -24131,15 +16329,9 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3505#       发表于 2018-6-21 17:09
 
 
-
 <img src="https://s1.ax1x.com/2018/06/21/PSrE2q.png" referrerpolicy="no-referrer">
 
 修正下，郁乃有出现。
-
-
-
-
-
 
 
 -----
@@ -24148,14 +16340,7 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3506#       发表于 2018-6-21 17:09
 
 
-
-
 我感觉五郎想一巴掌扇广了
-
-
-
-
-
 
 
 -----
@@ -24164,22 +16349,13 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3507#       发表于 2018-6-21 17:09
 
 
-
-
 你们想要的五郎怒吼阿广来了啊，还有什么不满的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  hl8243  
 ##### 3508#       发表于 2018-6-21 17:09
-
-
 
 
 懂了懂了   
@@ -24191,27 +16367,15 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 24预告  0216
 
 
-
-
-
-
-
 -----
 
 ####  戏谑二次元  
 ##### 3509#       发表于 2018-6-21 17:09
 
 
-
-
 02不就cos个明日香嘛，有什么难处理的。
 
 到时候暴走：darling darling darling darling
-
-
-
-
-
 
 
 -----
@@ -24220,16 +16384,9 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3510#       发表于 2018-6-21 17:09
 
 
-
-
 麻烦你们一集把13小队那些破事处理干净就行。
 
 别最后一集战场上再来5对CP齐发狗粮。
-
-
-
-
-
 
 
 -----
@@ -24238,14 +16395,7 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3511#       发表于 2018-6-21 17:09
 
 
-
-
 惨啊α果然还是人类啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24254,14 +16404,7 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3512#       发表于 2018-6-21 17:10
 
 
-
-
 日常不比机战好看多了？还有什么可喷的
-
-
-
-
-
 
 
 -----
@@ -24270,16 +16413,10 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3513#       发表于 2018-6-21 17:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067776&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 17:06</a>
 
 预告里唯一没出现的孩子是郁乃……</blockquote>
 出现了，仰望运输机的镜头
-
-
-
-
-
 
 
 -----
@@ -24288,16 +16425,10 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3514#       发表于 2018-6-21 17:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067731&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 17:03</a>
 
 靠我病得不轻了……</blockquote>
 别啊，阿尔法，怎么感觉你要死了（你的表情包又又又不能用了）
-
-
-
-
-
 
 
 -----
@@ -24306,21 +16437,13 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3515#       发表于 2018-6-21 17:10
 
 
-
-
 α太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  whn1103  
 ##### 3516#       发表于 2018-6-21 17:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067750&amp;ptid=1712743" target="_blank">戏谑二次元 发表于 2018-6-21 17:04</a>
@@ -24330,32 +16453,19 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 —— 来自 OnePlus A0001, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  RPG-7  
 ##### 3517#       发表于 2018-6-21 17:10
 
 
-
-
 这周我看也别审了，直接犬决吧
-
-
-
-
-
 
 
 -----
 
 ####  细雪之舞  
 ##### 3518#       发表于 2018-6-21 17:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067843&amp;ptid=1712743" target="_blank">夜雨袭风 发表于 2018-6-21 17:09</a>
@@ -24369,16 +16479,10 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0
 
 
-
-
-
-
-
 -----
 
 ####  royalblue1127  
 ##### 3519#       发表于 2018-6-21 17:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067836&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-21 17:09</a>
@@ -24390,27 +16494,15 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 组织已经决定了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3520#       发表于 2018-6-21 17:11
 
 
-
-
 390来看我的……？
 
 唯一一个没互动的妹子……？
-
-
-
-
-
 
 
 -----
@@ -24419,24 +16511,16 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3521#       发表于 2018-6-21 17:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">锦织哥哥怕你们体验13pro14pro过山车刺激性太强给删掉了。
 还说锦织哥哥不懂系构？<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3522#       发表于 2018-6-21 17:11
-
-
 
 
 1556预告，这标题，要回收#7？
@@ -24466,16 +16550,10 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 16拉住02绑着绷带的左手,02站着看天
 
 
-
-
-
-
-
 -----
 
 ####  AminGly  
 ##### 3523#       发表于 2018-6-21 17:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067824&amp;ptid=1712743" target="_blank">CCYYFF 发表于 2018-6-21 17:08</a>
@@ -24484,24 +16562,13 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 铁血瘫痪的三明了解一下
 
 
-
-
-
-
-
 -----
 
 ####  秋雨灰灰  
 ##### 3524#       发表于 2018-6-21 17:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">等一个笑话看
-
-
-
-
-
 
 
 -----
@@ -24510,14 +16577,7 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3525#       发表于 2018-6-21 17:11
 
 
-
-
 22话的名画  应该是莓了
-
-
-
-
-
 
 
 -----
@@ -24526,16 +16586,9 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3526#       发表于 2018-6-21 17:12
 
 
-
-
 嘻嘻，果然是日常回
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24544,16 +16597,9 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3527#       发表于 2018-6-21 17:12
 
 
-
-
 不如猜猜预告没有的真正爆点是什么？<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -24562,16 +16608,9 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3528#       发表于 2018-6-21 17:13
 
 
-
-
 蛮好的，日常不比打斗好？
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -24580,15 +16619,9 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3529#       发表于 2018-6-21 17:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067884&amp;ptid=1712743" target="_blank">大江户战士 发表于 2018-6-21 17:12</a>
 嘻嘻，果然是日常回</blockquote>
 满爷又是受到惊吓然后去安慰一波<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24597,23 +16630,15 @@ C.没人给9红9蓝取名字/他们不要<img src="https://static.saraba1st.com/
 ##### 3530#       发表于 2018-6-21 17:13
 
 
-
-
 op画面不换点嘛。。。
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  yy19  
 ##### 3531#       发表于 2018-6-21 17:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067843&amp;ptid=1712743" target="_blank">夜雨袭风 发表于 2018-6-21 17:09</a>
@@ -24626,32 +16651,19 @@ op画面不换点嘛。。。
 271小编：还有谁！（敢tm骑我脸！<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">）
 
 
-
-
-
-
-
 -----
 
 ####  lanhao  
 ##### 3532#       发表于 2018-6-21 17:13
 
 
-
-
 看他们锄大地的架势后面还会有萝卜大战吗
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 3533#       发表于 2018-6-21 17:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067894&amp;ptid=1712743" target="_blank">soulife7 发表于 2018-6-21 17:12</a>
@@ -24663,25 +16675,13 @@ op画面不换点嘛。。。
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当然是02清醒过来了。
 
 
-
-
-
-
-
 -----
 
 ####  moekyo  
 ##### 3534#       发表于 2018-6-21 17:13
 
 
-
-
 所以是孩子的用处就是让心满恢复记忆吗，极有可能。工具孩子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24690,15 +16690,8 @@ op画面不换点嘛。。。
 ##### 3535#       发表于 2018-6-21 17:13
 
 
-
-
 中字：
 [https://weibo.com/tv/v/Gmp4WmUUO?fid=1034:4253395855326705](https://weibo.com/tv/v/Gmp4WmUUO?fid=1034:4253395855326705)
-
-
-
-
-
 
 
 -----
@@ -24707,16 +16700,9 @@ op画面不换点嘛。。。
 ##### 3536#       发表于 2018-6-21 17:14
 
 
-
-
 以前我总是吵着要看机战
 
 经过20 21两回后，我觉得还是日常吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24725,16 +16711,10 @@ op画面不换点嘛。。。
 ##### 3537#       发表于 2018-6-21 17:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067907&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 17:13</a>
 
 当然是02清醒过来了。</blockquote>
 按照蝈蝈的“效率论” 一集恢复的可能性极高<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24743,16 +16723,9 @@ op画面不换点嘛。。。
 ##### 3538#       发表于 2018-6-21 17:14
 
 
-
-
 五郎肯定不是怒吼啊，挽留而已，阿广看到02傻了决定以身饲虎，再探阿帕斯，“你这样不一定回得来了”“莓会很伤心的”之类的
 
 看来是七姐带队当头头？记忆恢复以后脑子变聪明了？
-
-
-
-
-
 
 
 -----
@@ -24761,18 +16734,10 @@ op画面不换点嘛。。。
 ##### 3539#       发表于 2018-6-21 17:14
 
 
-
-
 阵痛袭来，孩子落地
 
 
-
 长得像广，神作
-
-
-
-
-
 
 
 -----
@@ -24781,14 +16746,7 @@ op画面不换点嘛。。。
 ##### 3540#       发表于 2018-6-21 17:14
 
 
-
-
 真的是凭自己意志选择的道路吗，papa不跑路大家还热火朝天打叫龙呢
-
-
-
-
-
 
 
 -----
@@ -24797,14 +16755,7 @@ op画面不换点嘛。。。
 ##### 3541#       发表于 2018-6-21 17:14
 
 
-
-
 v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24813,16 +16764,10 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 ##### 3542#       发表于 2018-6-21 17:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067899&amp;ptid=1712743" target="_blank">royalblue1127 发表于 2018-6-21 17:13</a>
 
 满爷又是受到惊吓然后去安慰一波</blockquote>
 这回轮到满爷了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24831,14 +16776,7 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 ##### 3543#       发表于 2018-6-21 17:15
 
 
-
-
 我来闹事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24847,14 +16785,7 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 ##### 3544#       发表于 2018-6-21 17:15
 
 
-
-
 下集1556就成了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24863,16 +16794,10 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 ##### 3545#       发表于 2018-6-21 17:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067924&amp;ptid=1712743" target="_blank">不再是小孩子了 发表于 2018-6-21 17:14</a>
 
 真的是凭自己意志选择的道路吗，papa不跑路大家还热火朝天打叫龙呢</blockquote>
 我也非常好奇是怎么自信十足地说这话的……大概觉得就算papa不跑路也会兑现承诺放他们自由吧。
-
-
-
-
-
 
 
 -----
@@ -24881,14 +16806,7 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 ##### 3546#       发表于 2018-6-21 17:16
 
 
-
-
 想看打炮都看不了了 
-
-
-
-
-
 
 
 -----
@@ -24897,14 +16815,7 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 ##### 3547#       发表于 2018-6-21 17:17
 
 
-
-
 又是我第二喜欢的日常回，锦织这也太怂逼了吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24913,14 +16824,7 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 ##### 3548#       发表于 2018-6-21 17:17
 
 
-
-
 已经看不懂了，可以再相信你一次吗，锦织哥哥？
-
-
-
-
-
 
 
 -----
@@ -24929,16 +16833,9 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 ##### 3549#       发表于 2018-6-21 17:17
 
 
-
-
 怕不是眯眯眼告诉心她怀孕了吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 我觉得我的心满要出事了，就地锦织我准备好了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24947,16 +16844,10 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 ##### 3550#       发表于 2018-6-21 17:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067924&amp;ptid=1712743" target="_blank">不再是小孩子了 发表于 2018-6-21 17:14</a>
 
 真的是凭自己意志选择的道路吗，papa不跑路大家还热火朝天打叫龙呢</blockquote>
 这就不用纠结了，洗脑后阿广还说这归宿是他们自己找到的咧……也不看看鸟笼谁给搭好的
-
-
-
-
-
 
 
 -----
@@ -24965,14 +16856,7 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 ##### 3551#       发表于 2018-6-21 17:17
 
 
-
-
 所以为啥叫龙又发导弹了？VIRM派了新斥候来？
-
-
-
-
-
 
 
 -----
@@ -24981,14 +16865,7 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 ##### 3552#       发表于 2018-6-21 17:17
 
 
-
-
 看那表情还以为孩子没了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24997,14 +16874,7 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 ##### 3553#       发表于 2018-6-21 17:17
 
 
-
-
 看完预告全身无力，服了，佛了
-
-
-
-
-
 
 
 -----
@@ -25013,14 +16883,7 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 ##### 3554#       发表于 2018-6-21 17:17
 
 
-
-
 顺带一提，666那锄头，看着怎么像鹤望兰上拆下来的……
-
-
-
-
-
 
 
 -----
@@ -25029,15 +16892,9 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 ##### 3555#       发表于 2018-6-21 17:18
 
 
-
  本帖最后由 EN5 于 2018-6-21 17:31 编辑 
 
 其实这片就是给肉松放飞自我飙演技的吧，一个02都快把人生五味演全了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我感觉肉松这回主役算是过足瘾了。
-
-
-
-
-
 
 
 -----
@@ -25046,14 +16903,7 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 ##### 3556#       发表于 2018-6-21 17:18
 
 
-
-
 锦织哥哥还是太缩了，02现在这个状态还不如上一集直接肉身去开阿帕斯呢，还能增加点悲壮感。
-
-
-
-
-
 
 
 -----
@@ -25062,16 +16912,10 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 ##### 3557#       发表于 2018-6-21 17:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067924&amp;ptid=1712743" target="_blank">不再是小孩子了 发表于 2018-06-21 17:14:49</a>
 真的是凭自己意志选择的道路吗，papa不跑路大家还热火朝天打叫龙呢</blockquote>外星人是13小队赶走的，没毛病。。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -25080,16 +16924,10 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 ##### 3558#       发表于 2018-6-21 17:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067960&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 17:17</a>
 
 顺带一提，666那锄头，看着怎么像鹤望兰上拆下来的……</blockquote>
 效率利用，这是好事~
-
-
-
-
-
 
 
 -----
@@ -25098,14 +16936,7 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 ##### 3559#       发表于 2018-6-21 17:18
 
 
-
-
 我要跟妈妈病一周了……<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25114,16 +16945,10 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 ##### 3560#       发表于 2018-6-21 17:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067959&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-21 17:17</a>
 
 看完预告全身无力，服了，佛了</blockquote>
 现在你知道我怕什么了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25132,14 +16957,7 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 ##### 3561#       发表于 2018-6-21 17:18
 
 
-
-
 满爷又要重现开门安慰，以退为进，拽回kiss了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25148,23 +16966,16 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 ##### 3562#       发表于 2018-6-21 17:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067963&amp;ptid=1712743" target="_blank">EN5 发表于 2018-6-21 17:18</a>
 其实这片就是给肉松放飞自我飙演技的吧，一个02都快把人生五味演全了。 ...</blockquote>
 “02是怎么样的还请看到最后一集！”
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  IWS2000  
 ##### 3563#       发表于 2018-6-21 17:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067857&amp;ptid=1712743" target="_blank">whn1103 发表于 2018-6-21 17:10</a>
@@ -25174,16 +16985,10 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 滚啊+1
 
 
-
-
-
-
-
 -----
 
 ####  moekyo  
 ##### 3564#       发表于 2018-6-21 17:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067953&amp;ptid=1712743" target="_blank">Meteors 发表于 2018-6-21 17:17</a>
@@ -25195,16 +17000,10 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 外星人都搞不死人，你还觉得还出事？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  大江户战士  
 ##### 3565#       发表于 2018-6-21 17:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067960&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 17:17</a>
@@ -25213,16 +17012,10 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 铸剑为犁没毛病
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3566#       发表于 2018-6-21 17:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067953&amp;ptid=1712743" target="_blank">Meteors 发表于 2018-6-21 17:17</a>
@@ -25237,27 +17030,15 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 按照预告丧正片会好的反转原则，3255和0216里应该至少有一对这集就恢复过来了（大概吧）……
 
 
-
-
-
-
-
 -----
 
 ####  [A]ZuZe  
 ##### 3567#       发表于 2018-6-21 17:19
 
 
-
-
 把我看笑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -25266,22 +17047,13 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 ##### 3568#       发表于 2018-6-21 17:19
 
 
-
-
 .......卧槽这要是开机开的孩子没了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  ゼロツー  
 ##### 3569#       发表于 2018-6-21 17:19
-
-
 
 
 很大的星星在跳动，是彗星吗
@@ -25293,16 +17065,10 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 喂，让咱出去啊，喂～
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3570#       发表于 2018-6-21 17:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067923&amp;ptid=1712743" target="_blank">莉莉橙 发表于 2018-6-21 17:14</a>
@@ -25313,26 +17079,15 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 然后和同为看过本子的α见面了
 
 
-
-
-
-
-
 -----
 
 ####  royalblue1127  
 ##### 3571#       发表于 2018-6-21 17:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067971&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 17:18</a>
 我要跟妈妈病一周了……</blockquote>
 你的嫩手都变成咸鱼干了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25341,23 +17096,16 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 ##### 3572#       发表于 2018-6-21 17:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067960&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 17:17</a>
 
 顺带一提，666那锄头，看着怎么像鹤望兰上拆下来的……</blockquote>
 指甲
 
 
-
-
-
-
-
 -----
 
 ####  whn1103  
 ##### 3573#       发表于 2018-6-21 17:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067924&amp;ptid=1712743" target="_blank">不再是小孩子了 发表于 2018-6-21 17:14</a>
@@ -25367,16 +17115,10 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 —— 来自 OnePlus A0001, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  yy19  
 ##### 3574#       发表于 2018-6-21 17:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067958&amp;ptid=1712743" target="_blank">蓮華 发表于 2018-6-21 17:17</a>
@@ -25385,16 +17127,10 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 万一真没了。老板娘打几分哪？<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 3575#       发表于 2018-6-21 17:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067987&amp;ptid=1712743" target="_blank">moekyo 发表于 2018-6-21 17:19</a>
@@ -25402,16 +17138,10 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 出事啊，这片不就是lovepower嘛。。那来个超强的hatepower也不是不可以嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3576#       发表于 2018-6-21 17:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067997&amp;ptid=1712743" target="_blank">ゼロツー 发表于 2018-6-21 17:19</a>
@@ -25422,16 +17152,10 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 看不懂……
 
 
-
-
-
-
-
 -----
 
 ####  AminGly  
 ##### 3577#       发表于 2018-6-21 17:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067997&amp;ptid=1712743" target="_blank">ゼロツー 发表于 2018-6-21 17:19</a>
@@ -25443,32 +17167,19 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 你的灵魂这是被谁带走了么
 
 
-
-
-
-
-
 -----
 
 ####  lanhao  
 ##### 3578#       发表于 2018-6-21 17:21
 
 
-
-
 我现在就怕这最终boss最后两集也不出现 成为史上最弱boss<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Meteors  
 ##### 3579#       发表于 2018-6-21 17:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067994&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 17:19</a>
@@ -25479,33 +17190,19 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 我觉得0216是恢复不过来的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  大江户战士  
 ##### 3580#       发表于 2018-6-21 17:21
 
 
-
-
 02这是变植物人了还是单纯失忆啊
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 3581#       发表于 2018-6-21 17:21
-
-
 
 
 锦织要在我们母子身上演各种人味。
@@ -25517,17 +17214,10 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 <img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3582#       发表于 2018-6-21 17:21
-
-
 
 
 56——
@@ -25564,27 +17254,15 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 第22集 观星者
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3583#       发表于 2018-6-21 17:21
 
 
-
-
 阿尔法这是心病还是身体病？
 
 别到时候和明日香一样喊妈妈，然后被virm手撕鸡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25593,21 +17271,13 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 ##### 3584#       发表于 2018-6-21 17:22
 
 
-
-
 0216再一集恢复的话，蝈蝈真的救不了了（说的好像不一集就能救一样
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 3585#       发表于 2018-6-21 17:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067996&amp;ptid=1712743" target="_blank">Meteors 发表于 2018-6-21 17:19</a>
@@ -25618,16 +17288,10 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 老实说心现在这失忆状态，跟她说“孩子没了”远比不上告诉她“你肚子里有个孩子”打击大。
 
 
-
-
-
-
-
 -----
 
 ####  skives  
 ##### 3586#       发表于 2018-6-21 17:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068034&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-21 17:21</a>
@@ -25637,32 +17301,19 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 13小队的孩子怎么又又又做出选择了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  royalblue1127  
 ##### 3587#       发表于 2018-6-21 17:22
 
 
-
-
 02属于灵魂被关禁闭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 3588#       发表于 2018-6-21 17:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40067665&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-21 16:58</a>
@@ -25675,17 +17326,10 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 那不知道，我看21与其他不同，
 
 
-
-
-
-
-
 -----
 
 ####  大江户战士  
 ##### 3589#       发表于 2018-6-21 17:22
-
-
 
 
 谁说没郁乃
@@ -25701,36 +17345,19 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 2018-6-21 17:22 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  お菓子食べたい  
 ##### 3590#       发表于 2018-6-21 17:22
 
 
-
-
 佛了 老弱病残孕国家队
-
-
-
-
-
 
 
 -----
 
 ####  AminGly  
 ##### 3591#       发表于 2018-6-21 17:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068015&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-21 17:20</a>
@@ -25741,25 +17368,13 @@ v星人再临是再临不了了 先种田吧<img src="https://static.saraba1st.c
 好像是卡缪疯了说的话
 
 
-
-
-
-
-
 -----
 
 ####  lanhao  
 ##### 3592#       发表于 2018-6-21 17:23
 
 
-
-
 darling in the 辐射4
-
-
-
-
-
 
 
 -----
@@ -25768,16 +17383,10 @@ darling in the 辐射4
 ##### 3593#       发表于 2018-6-21 17:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068029&amp;ptid=1712743" target="_blank">大江户战士 发表于 2018-6-21 17:21</a>
 
 02这是变植物人了还是单纯失忆啊</blockquote>
 都不是吧，失忆需要喂饭么，变物人也不会自己去看星星
-
-
-
-
-
 
 
 -----
@@ -25786,15 +17395,9 @@ darling in the 辐射4
 ##### 3594#       发表于 2018-6-21 17:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068056&amp;ptid=1712743" target="_blank">お菓子食べたい 发表于 2018-6-21 17:22</a>
 佛了 老弱病残孕国家队</blockquote>
 就服你<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25803,23 +17406,15 @@ darling in the 辐射4
 ##### 3595#       发表于 2018-6-21 17:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 不多说了，就看他们惨成这样
 我永远支持粉黄……母子！
-
-
-
-
-
 
 
 -----
 
 ####  hl8243  
 ##### 3596#       发表于 2018-6-21 17:23
-
-
 
 
 196白发了还能劳作
@@ -25829,16 +17424,10 @@ darling in the 辐射4
 估计撑不过下一集
 
 
-
-
-
-
-
 -----
 
 ####  moekyo  
 ##### 3597#       发表于 2018-6-21 17:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068014&amp;ptid=1712743" target="_blank">Meteors 发表于 2018-6-21 17:20</a>
@@ -25847,25 +17436,13 @@ darling in the 辐射4
 那就更加没事啦，真出了事，一个lovelovepower搞定，大家就当什么事都没发生过。说温柔，哪个能超过jzgg的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  舍己为人大师兄  
 ##### 3598#       发表于 2018-6-21 17:23
 
 
-
-
 这对母子好惨啊
-
-
-
-
-
 
 
 -----
@@ -25874,21 +17451,13 @@ darling in the 辐射4
 ##### 3599#       发表于 2018-6-21 17:23
 
 
-
-
 观星者是谁呢，既然virm是从星星的那一边来的，莫非是地球守护者一样的职位的称呼吗？还是单纯指看星星，看星星有关的就只有15吧
-
-
-
-
-
 
 
 -----
 
 ####  Meteors  
 ##### 3600#       发表于 2018-6-21 17:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068047&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 17:22</a>
@@ -25900,17 +17469,10 @@ darling in the 辐射4
 满这个喜当爹的表情，可以载入本集头像了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  大江户战士  
 ##### 3601#       发表于 2018-6-21 17:24
-
-
 
 
 ditf：
@@ -25925,16 +17487,10 @@ ditf：
 可以成为传说了吧
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3602#       发表于 2018-6-21 17:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068029&amp;ptid=1712743" target="_blank">大江户战士 发表于 2018-6-21 17:21</a>
@@ -25943,16 +17499,10 @@ ditf：
 就是精神崩坏，比植物强个还能动。
 
 
-
-
-
-
-
 -----
 
 ####  ゼロツー  
 ##### 3603#       发表于 2018-6-21 17:24
-
 
 
 <blockquote>AminGly 发表于 2018-6-21 17:20
@@ -25963,16 +17513,10 @@ ditf：
 咱真的没说笑话
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3604#       发表于 2018-6-21 17:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068085&amp;ptid=1712743" target="_blank">ゼロツー 发表于 2018-6-21 17:24</a>
@@ -25984,16 +17528,10 @@ ditf：
 别说话了，妈妈，我们一起病一周了。<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3605#       发表于 2018-6-21 17:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068015&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-21 17:20</a>
@@ -26004,16 +17542,10 @@ ditf：
 卡缪逼蛋，Zeta Gundam，一鸡玛斯！
 
 
-
-
-
-
-
 -----
 
 ####  lanhao  
 ##### 3606#       发表于 2018-6-21 17:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068082&amp;ptid=1712743" target="_blank">大江户战士 发表于 2018-6-21 17:24</a>
@@ -26025,26 +17557,15 @@ ditf：
 我是服了 半集讲boss 半集打退 剩下集数废土开荒加治愈13小队老弱病残孕 鬼才
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3607#       发表于 2018-6-21 17:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 不知道国家队世界里有没有人权组织？
 我要控诉，你们不能这样针对一对母子！
-
-
-
-
-
 
 
 -----
@@ -26053,23 +17574,15 @@ ditf：
 ##### 3608#       发表于 2018-6-21 17:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068076&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 17:23</a>
 观星者是谁呢，既然virm是从星星的那一边来的，莫非是地球守护者一样的职位的称呼吗？还是单纯指看星星，看 ...</blockquote>
 预告最后一个镜头02应该是在看星星吧
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 3609#       发表于 2018-6-21 17:26
-
-
 
 
 390回头的表情看上去不是对556
@@ -26079,25 +17592,13 @@ ditf：
 α你吐血啦？还是外伤？
 
 
-
-
-
-
-
 -----
 
 ####  吾乃啊噗  
 ##### 3610#       发表于 2018-6-21 17:26
 
 
-
-
 我感觉良好 再来什么我都不会慌了
-
-
-
-
-
 
 
 -----
@@ -26106,14 +17607,7 @@ ditf：
 ##### 3611#       发表于 2018-6-21 17:26
 
 
-
-
 观星者这标题要怎么体现
-
-
-
-
-
 
 
 -----
@@ -26122,21 +17616,13 @@ ditf：
 ##### 3612#       发表于 2018-6-21 17:26
 
 
-
-
 嗯...天上的星星都是敌人
-
-
-
-
-
 
 
 -----
 
 ####  Meteors  
 ##### 3613#       发表于 2018-6-21 17:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068082&amp;ptid=1712743" target="_blank">大江户战士 发表于 2018-6-21 17:24</a>
@@ -26149,16 +17635,10 @@ ditf：
 <img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ゼロツー  
 ##### 3614#       发表于 2018-6-21 17:27
-
 
 
 <blockquote>9α 发表于 2018-6-21 17:24
@@ -26169,13 +17649,7 @@ ditf：
 也要说出
 
 
-
 咱没有你这个儿子！不要靠近咱啊啊啊啊啊啊啊……
-
-
-
-
-
 
 
 -----
@@ -26184,21 +17658,13 @@ ditf：
 ##### 3615#       发表于 2018-6-21 17:27
 
 
-
-
 希望9蓝9红是死了
-
-
-
-
-
 
 
 -----
 
 ####  zjylyy  
 ##### 3616#       发表于 2018-6-21 17:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068082&amp;ptid=1712743" target="_blank">大江户战士 发表于 2018-6-21 17:24</a>
@@ -26211,32 +17677,19 @@ ditf：
 锦织真是鬼才<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  舍己为人大师兄  
 ##### 3617#       发表于 2018-6-21 17:27
 
 
-
-
 md母子还没相认，就惨成这样了
-
-
-
-
-
 
 
 -----
 
 ####  AminGly  
 ##### 3618#       发表于 2018-6-21 17:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068085&amp;ptid=1712743" target="_blank">ゼロツー 发表于 2018-6-21 17:24</a>
@@ -26248,25 +17701,13 @@ md母子还没相认，就惨成这样了
 啊，果然猜到了（卡缪不是女人的名字吗（故意flag））
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3619#       发表于 2018-6-21 17:28
 
 
-
-
 粉黄党怒了真的怒了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26275,16 +17716,10 @@ md母子还没相认，就惨成这样了
 ##### 3620#       发表于 2018-6-21 17:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068113&amp;ptid=1712743" target="_blank">Meteors 发表于 2018-06-21 17:26:55</a>
 虽然说做好了日常回的准备，但是预告真的放到我眼前，我还是觉得</blockquote>+1，已经看不懂了，jzgg是不是去了德意志斯坦进修啊，圣母绿国一套一套的
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -26293,14 +17728,7 @@ md母子还没相认，就惨成这样了
 ##### 3621#       发表于 2018-6-21 17:28
 
 
-
-
 诶嘿嘿嘿这集的预告看的最开心了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26309,16 +17737,9 @@ md母子还没相认，就惨成这样了
 ##### 3622#       发表于 2018-6-21 17:29
 
 
-
-
 大家都以为是机战片，是青春恋爱片，现在告诉你是真，废土片。种地可还行
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -26327,15 +17748,8 @@ md母子还没相认，就惨成这样了
 ##### 3623#       发表于 2018-6-21 17:29
 
 
-
-
 早说了要用言情视角去看这片，言情小说里男女主你侬我侬之后女主出车祸，难道还要重点讲男主怎么打官司和讨钱不成<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">肯定是讲男主怎么痛苦，悲伤，无助，然后用真爱唤醒女主啊……
-
-
-
-
-
 
 
 -----
@@ -26344,24 +17758,16 @@ md母子还没相认，就惨成这样了
 ##### 3624#       发表于 2018-6-21 17:29
 
 
-
-
 上次预告这么惨的是18<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
 做好准备<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3625#       发表于 2018-6-21 17:29
-
 
 
 <blockquote>skives 发表于 2018-6-21 17:26
@@ -26371,25 +17777,13 @@ md母子还没相认，就惨成这样了
 仔细想想好像第七集她也摆出一副很忧郁的样子看星空？莫非是啥伏笔？？地球守护者，观察星星的动态。
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3626#       发表于 2018-6-21 17:30
 
 
-
-
 基神看海，二姐观星，待到碧池公主阿广即将殒命之时，阿帕斯两眼发光，02就会回来拯救他
-
-
-
-
-
 
 
 -----
@@ -26398,16 +17792,9 @@ md母子还没相认，就惨成这样了
 ##### 3627#       发表于 2018-6-21 17:30
 
 
-
-
 02成了傻子，要么上机解决，要么靠绘本，二选一
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -26416,21 +17803,13 @@ md母子还没相认，就惨成这样了
 ##### 3628#       发表于 2018-6-21 17:30
 
 
-
-
 蝈蝈再一次用预告证明了自己的搞笑片本质<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  davidcch12  
 ##### 3629#       发表于 2018-6-21 17:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068147&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 17:29</a>
@@ -26443,32 +17822,19 @@ md母子还没相认，就惨成这样了
 忧郁脸是看小队
 
 
-
-
-
-
-
 -----
 
 ####  巴啦啦小兔兔儿  
 ##### 3630#       发表于 2018-6-21 17:30
 
 
-
-
 ditf：超新星纪元
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 3631#       发表于 2018-6-21 17:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068114&amp;ptid=1712743" target="_blank">ゼロツー 发表于 2018-6-21 17:27</a>
@@ -26480,16 +17846,10 @@ ditf：超新星纪元
 没有用的，我们绝对是母子了，锦织让我们一起生病一周<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  soulife7  
 ##### 3632#       发表于 2018-6-21 17:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068143&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-06-21 17:29:21</a>
@@ -26498,16 +17858,10 @@ ditf：超新星纪元
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 3633#       发表于 2018-6-21 17:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068172&amp;ptid=1712743" target="_blank">soulife7 发表于 2018-6-21 17:31</a>
@@ -26517,17 +17871,10 @@ ditf：超新星纪元
 锦织——我全都要
 
 
-
-
-
-
-
 -----
 
 ####  大江户战士  
 ##### 3634#       发表于 2018-6-21 17:31
-
-
 
 
 满边上的人是太啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -26542,21 +17889,10 @@ ditf：超新星纪元
 2018-6-21 17:31 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 3635#       发表于 2018-6-21 17:31
-
-
 
 
 56可以啊“一切皆流，无物常驻。”
@@ -26566,16 +17902,10 @@ ditf：超新星纪元
 不愧是20集刚参加完高考誓师大会的孩子。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  夜雨袭风  
 ##### 3636#       发表于 2018-6-21 17:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068143&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 17:29</a>
@@ -26586,25 +17916,13 @@ ditf：超新星纪元
 问题是植物人连虐都虐不起来啊,那这集就会很无聊了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  五更伪境  
 ##### 3637#       发表于 2018-6-21 17:33
 
 
-
-
 还行，就是觉得这两对cp的展开都不讨喜啊。失忆，怀孕，植物人，电视剧经典戏码都安排好了。
-
-
-
-
-
 
 
 -----
@@ -26613,21 +17931,13 @@ ditf：超新星纪元
 ##### 3638#       发表于 2018-6-21 17:33
 
 
-
-
 路数太野了，看不懂看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">。越来越觉得开播前访谈指的任性不单单是偶像要素或沙滩日常回，而是整个故事内容而言
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 3639#       发表于 2018-6-21 17:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068191&amp;ptid=1712743" target="_blank">夜雨袭风 发表于 2018-6-21 17:32</a>
@@ -26638,25 +17948,14 @@ ditf：超新星纪元
 你看预告里广都让56也佛不下去了。
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3640#       发表于 2018-6-21 17:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不能光看着心肚子里的孩子啊
 粉黄也是母子啊
-
-
-
-
-
 
 
 -----
@@ -26665,24 +17964,16 @@ ditf：超新星纪元
 ##### 3641#       发表于 2018-6-21 17:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068170&amp;ptid=1712743" target="_blank">巴啦啦小兔兔儿 发表于 2018-6-21 17:30</a>
 
 ditf：超新星纪元</blockquote>
 连核心的人工智能电脑都没有好意思玩超新星纪元？
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3642#       发表于 2018-6-21 17:33
-
-
 
 
 垦地的只有四雄蕊，16又逃工了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -26696,25 +17987,13 @@ ditf：超新星纪元</blockquote>
 说起来葬身之地这个，以前没提到过，他们不会在给牺牲的孩子挖坟吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lanhao  
 ##### 3643#       发表于 2018-6-21 17:33
 
 
-
-
 v星人赶紧来吧 我是真不想看这群孩子残酷生存的戏码了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">  
-
-
-
-
-
 
 
 -----
@@ -26723,21 +18002,13 @@ v星人赶紧来吧 我是真不想看这群孩子残酷生存的戏码了<img s
 ##### 3644#       发表于 2018-6-21 17:34
 
 
-
-
 阿广基本快废了，那神态快死了，56估计是让他振作
-
-
-
-
-
 
 
 -----
 
 ####  猫白羽毛  
 ##### 3645#       发表于 2018-6-21 17:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068209&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-21 17:33</a>
@@ -26748,16 +18019,10 @@ v星人赶紧来吧 我是真不想看这群孩子残酷生存的戏码了<img s
 中年危机理解一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  不再是小孩子了  
 ##### 3646#       发表于 2018-6-21 17:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068003&amp;ptid=1712743" target="_blank">whn1103 发表于 2018-6-21 17:19</a>
@@ -26771,26 +18036,14 @@ papa不跑路还能说是自己的选择
 给予食物，睡床，生存理由和葬身之地的提供者都跑路了，被逼着独立还说是自己的选择只能摆出微笑的表情了<img src="https://static.saraba1st.com/image/smiley/carton2017/036.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3647#       发表于 2018-6-21 17:35
 
 
-
-
 V星人来了也是被秒，然后日常结局了……
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26799,22 +18052,13 @@ V星人来了也是被秒，然后日常结局了……
 ##### 3648#       发表于 2018-6-21 17:36
 
 
-
-
 都垦荒了，得是真·残酷生存了吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  大江户战士  
 ##### 3649#       发表于 2018-6-21 17:36
-
-
 
 
 最惨母子
@@ -26829,10 +18073,6 @@ V星人来了也是被秒，然后日常结局了……
 2018-6-21 17:36 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/21/173614o2hc8uozh883ruc2.jpg" referrerpolicy="no-referrer">
 
 
@@ -26843,20 +18083,10 @@ V星人来了也是被秒，然后日常结局了……
 2018-6-21 17:36 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  mumubear  
 ##### 3650#       发表于 2018-6-21 17:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068106&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-21 17:26</a>
@@ -26868,16 +18098,10 @@ V星人来了也是被秒，然后日常结局了……
 不过天上飞的不是叫龙，就是v星人吧。。。
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 3651#       发表于 2018-6-21 17:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068237&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-21 17:36</a>
@@ -26886,26 +18110,15 @@ V星人来了也是被秒，然后日常结局了……
 这就是你们16话的时候想要的野外求生<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 3652#       发表于 2018-6-21 17:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068181&amp;ptid=1712743" target="_blank">大江户战士 发表于 2018-6-21 17:31</a>
 满边上的人是太啊</blockquote>
 这样的喜当爹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 也是见所未见了
-
-
-
-
-
 
 
 -----
@@ -26914,21 +18127,13 @@ V星人来了也是被秒，然后日常结局了……
 ##### 3653#       发表于 2018-6-21 17:36
 
 
-
-
 02眼睛中间的红点没了?
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 3654#       发表于 2018-6-21 17:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068237&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-21 17:36</a>
@@ -26938,17 +18143,10 @@ V星人来了也是被秒，然后日常结局了……
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">猜猜看它肚子里能装这群孩子吃多长时间的补给。
 
 
-
-
-
-
-
 -----
 
 ####  AminGly  
 ##### 3655#       发表于 2018-6-21 17:37
-
-
 
 
 我感觉我应该是楼里最淡定的了
@@ -26958,26 +18156,15 @@ V星人来了也是被秒，然后日常结局了……
 泪，已经流不出来了
 
 
-
-
-
-
-
 -----
 
 ####  royalblue1127  
 ##### 3656#       发表于 2018-6-21 17:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068240&amp;ptid=1712743" target="_blank">大江户战士 发表于 2018-6-21 17:36</a>
 最惨母子</blockquote>
 α这还穿的孩子们的病号服<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26986,14 +18173,7 @@ V星人来了也是被秒，然后日常结局了……
 ##### 3657#       发表于 2018-6-21 17:38
 
 
-
-
 观星者的话，来不来一台红异端飞来飞去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27002,22 +18182,15 @@ V星人来了也是被秒，然后日常结局了……
 ##### 3658#       发表于 2018-6-21 17:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068236&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 17:35</a>
 V星人来了也是被秒，然后日常结局了……</blockquote>
 战舰对轰不比这些好看？
-
-
-
-
-
 
 
 -----
 
 ####  whn1103  
 ##### 3659#       发表于 2018-6-21 17:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068235&amp;ptid=1712743" target="_blank">不再是小孩子了 发表于 2018-6-21 17:35</a>
@@ -27028,16 +18201,10 @@ papa不跑路还能说是自己的选择
 前面的交涉估计你也不当回事，反正按照你的思路尽管杠呗
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3660#       发表于 2018-6-21 17:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068251&amp;ptid=1712743" target="_blank">大江户战士 发表于 2018-6-21 17:36</a>
@@ -27047,16 +18214,10 @@ papa不跑路还能说是自己的选择
 眼影没了
 
 
-
-
-
-
-
 -----
 
 ####  [A]ZuZe  
 ##### 3661#       发表于 2018-6-21 17:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068261&amp;ptid=1712743" target="_blank">lanhao 发表于 2018-06-21 17:38:09</a>
@@ -27065,25 +18226,13 @@ papa不跑路还能说是自己的选择
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  dropdead  
 ##### 3662#       发表于 2018-6-21 17:39
 
 
-
-
 这个轨迹是开局自行车，突然歼星舰，瞬间锄大地。结局演啥？
-
-
-
-
-
 
 
 -----
@@ -27092,16 +18241,9 @@ papa不跑路还能说是自己的选择
 ##### 3663#       发表于 2018-6-21 17:39
 
 
-
-
 拿体细胞克隆怎么也算不上是亲子关系吧。。。这假药不恶心嘛<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -27110,16 +18252,10 @@ papa不跑路还能说是自己的选择
 ##### 3664#       发表于 2018-6-21 17:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068261&amp;ptid=1712743" target="_blank">lanhao 发表于 2018-6-21 17:38</a>
 
 战舰对轰不比这些好看？</blockquote>
 地球这边哪能拖出战舰来啊……
-
-
-
-
-
 
 
 -----
@@ -27128,16 +18264,10 @@ papa不跑路还能说是自己的选择
 ##### 3665#       发表于 2018-6-21 17:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068089&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 17:24</a>
 
 别说话了，妈妈，我们一起病一周了。</blockquote>
 感觉你已经离死不远了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27146,16 +18276,10 @@ papa不跑路还能说是自己的选择
 ##### 3666#       发表于 2018-6-21 17:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068249&amp;ptid=1712743" target="_blank">Meteors 发表于 2018-6-21 17:36</a>
 
 这样的喜当爹 也是见所未见了</blockquote>
 耕地的时候  满边上也是太<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27164,14 +18288,7 @@ papa不跑路还能说是自己的选择
 ##### 3667#       发表于 2018-6-21 17:40
 
 
-
-
 这不是最绝望的，最绝望的是预告已经把这集演完了
-
-
-
-
-
 
 
 -----
@@ -27180,16 +18297,9 @@ papa不跑路还能说是自己的选择
 ##### 3668#       发表于 2018-6-21 17:40
 
 
-
-
 α眼睛没光了还很重黑眼圈，手不知道是血管突出还是啥；
 
 02看着消瘦很多啊，喂食时候16表情惊讶，大概是02终于动了？
-
-
-
-
-
 
 
 -----
@@ -27198,23 +18308,16 @@ papa不跑路还能说是自己的选择
 ##### 3669#       发表于 2018-6-21 17:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068261&amp;ptid=1712743" target="_blank">lanhao 发表于 2018-6-21 17:38</a>
 
 战舰对轰不比这些好看？</blockquote>
 醒醒……妈妈和16上去，对面就要被秒了
 
 
-
-
-
-
-
 -----
 
 ####  偶像程序员POI  
 ##### 3670#       发表于 2018-6-21 17:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068255&amp;ptid=1712743" target="_blank">AminGly 发表于 2018-6-21 17:37</a>
@@ -27229,16 +18332,10 @@ papa不跑路还能说是自己的选择
 你还差个投资A股<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  c1ymo  
 ##### 3671#       发表于 2018-6-21 17:41
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
@@ -27247,16 +18344,10 @@ papa不跑路还能说是自己的选择
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3672#       发表于 2018-6-21 17:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068293&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-21 17:40</a>
@@ -27267,16 +18358,10 @@ papa不跑路还能说是自己的选择
 按照一般原则，哪怕像21集那种，预告也至少会藏个尾巴。
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3673#       发表于 2018-6-21 17:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068288&amp;ptid=1712743" target="_blank">山贼先生 发表于 2018-6-21 17:40</a>
@@ -27289,16 +18374,10 @@ papa不跑路还能说是自己的选择
 我先躺一周<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  戏谑二次元  
 ##### 3674#       发表于 2018-6-21 17:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068278&amp;ptid=1712743" target="_blank">dzrykh 发表于 2018-6-21 17:39</a>
@@ -27310,17 +18389,10 @@ papa不跑路还能说是自己的选择
 真嗣和丽被拿着母子关系打了多这么多年了，才觉得这假药有问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  02016  
 ##### 3675#       发表于 2018-6-21 17:42
-
-
 
 
 果然我以前说的一样，外星人这次一战就和15集的大手一个意思
@@ -27330,26 +18402,14 @@ papa不跑路还能说是自己的选择
 外星人彻底毁了一切让孩子们可以更大程度的接触世界，这才要开始真正的自力更生，艰难求生了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽说只有三集时间有点紧了
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 3676#       发表于 2018-6-21 17:42
 
 
-
-
 游泳，做饭，耕地
 还！有！啥！<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27358,14 +18418,7 @@ papa不跑路还能说是自己的选择
 ##### 3677#       发表于 2018-6-21 17:42
 
 
-
-
 02没有眼影是自己没有打扮还是龙的那部分从身体里消去了？
-
-
-
-
-
 
 
 -----
@@ -27374,24 +18427,16 @@ papa不跑路还能说是自己的选择
 ##### 3678#       发表于 2018-6-21 17:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068293&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-21 17:40</a>
 
 这不是最绝望的，最绝望的是预告已经把这集演完了</blockquote>
 你这样说就没道理了，谁知道会不会阿广顺着02的目光一看，天上一片紫色的virm舰队呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 3679#       发表于 2018-6-21 17:42
-
-
 
 
 56在对16吼什么？？
@@ -27401,16 +18446,10 @@ papa不跑路还能说是自己的选择
 还是  02这个样子   广自暴自弃   56在鼓励他？
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3680#       发表于 2018-6-21 17:42
-
 
 
 <blockquote>猫白羽毛 发表于 2018-6-21 17:38
@@ -27426,16 +18465,10 @@ papa不跑路还能说是自己的选择
 好像都还在啊？
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3681#       发表于 2018-6-21 17:42
-
 
 
 <blockquote>mumubear 发表于 2018-6-21 17:36
@@ -27450,16 +18483,10 @@ papa不跑路还能说是自己的选择
 莓办法啊……
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3682#       发表于 2018-6-21 17:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068278&amp;ptid=1712743" target="_blank">dzrykh 发表于 2018-6-21 17:39</a>
@@ -27471,17 +18498,10 @@ papa不跑路还能说是自己的选择
 克隆也叫“无性繁殖”啊……
 
 
-
-
-
-
-
 -----
 
 ####  626704053  
 ##### 3683#       发表于 2018-6-21 17:43
-
-
 
 
 心要流产了吗？？？？？？
@@ -27492,16 +18512,10 @@ gg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrer
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  [A]ZuZe  
 ##### 3684#       发表于 2018-6-21 17:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068301&amp;ptid=1712743" target="_blank">偶像程序员POI 发表于 2018-06-21 17:40:58</a>
@@ -27512,16 +18526,10 @@ gg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrer
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3685#       发表于 2018-6-21 17:43
-
 
 
 <img src="https://i.loli.net/2018/06/21/5b2b72f8c15d9.jpg" referrerpolicy="no-referrer">
@@ -27530,16 +18538,10 @@ gg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrer
 <img src="https://i.loli.net/2018/06/21/5b2b73506aa31.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 3686#       发表于 2018-6-21 17:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068312&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 17:41</a>
@@ -27550,17 +18552,10 @@ gg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrer
 留个尾巴，镜头转到近地轨道，02裸飘看着地球，观星者，嗯<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3687#       发表于 2018-6-21 17:44
-
-
 
 
 我到底是单纯因为被papa抛弃变成这样
@@ -27569,16 +18564,10 @@ gg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrer
 还是因为之后队友全死光了……<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lanhao  
 ##### 3688#       发表于 2018-6-21 17:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068285&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 17:39</a>
@@ -27586,16 +18575,10 @@ gg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrer
 爱的力量使02恢复 阿帕斯再临啊
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 3689#       发表于 2018-6-21 17:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068308&amp;ptid=1712743" target="_blank">c1ymo 发表于 2018-6-21 17:41</a>
@@ -27609,16 +18592,10 @@ gg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrer
 质量高的韩剧没这么差的观感的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  AminGly  
 ##### 3690#       发表于 2018-6-21 17:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068260&amp;ptid=1712743" target="_blank">Meteors 发表于 2018-6-21 17:38</a>
@@ -27627,25 +18604,13 @@ gg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrer
 在下漆黑强袭，前来一战
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 3691#       发表于 2018-6-21 17:45
 
 
-
-
 你们为什么认为不会是日常，<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27654,22 +18619,15 @@ gg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrer
 ##### 3692#       发表于 2018-6-21 17:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068337&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-06-21 17:43:47</a></blockquote>变人类了
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  AminGly  
 ##### 3693#       发表于 2018-6-21 17:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068301&amp;ptid=1712743" target="_blank">偶像程序员POI 发表于 2018-6-21 17:40</a>
@@ -27680,25 +18638,13 @@ gg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrer
 不用了，我前几天怂恿别人买德国巴西，我感觉我活不久了
 
 
-
-
-
-
-
 -----
 
 ####  timepro  
 ##### 3694#       发表于 2018-6-21 17:45
 
 
-
-
 好像预告的镜头一直看不到02的角？
-
-
-
-
-
 
 
 -----
@@ -27707,24 +18653,15 @@ gg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrer
 ##### 3695#       发表于 2018-6-21 17:45
 
 
-
-
 期待下梅原嘴炮演技，上次是#5呢；
 
 上村估计要把“空气感”进行到底了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  kyota  
 ##### 3696#       发表于 2018-6-21 17:46
-
-
 
 
 我觉得02石乐志是最骚的，有没有大手子科普一下以前有这种展开么<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
@@ -27734,16 +18671,10 @@ gg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrer
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 3697#       发表于 2018-6-21 17:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068351&amp;ptid=1712743" target="_blank">fengzijiang 发表于 2018-6-21 17:45</a>
@@ -27751,17 +18682,10 @@ gg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrer
 日常没错，错就错在这是第三次了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3698#       发表于 2018-6-21 17:46
-
-
 
 
 其实预告里还有个大家喜闻乐见的假药（？）：
@@ -27775,16 +18699,10 @@ gg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrer
 从12集到22集，这么久了，best girl终于等到了和9a接触的机会<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3699#       发表于 2018-6-21 17:47
-
 
 
 <blockquote>hl8243 发表于 2018-6-21 17:42
@@ -27802,16 +18720,10 @@ gg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrer
 “广你这个大笨蛋”的pro。
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3700#       发表于 2018-6-21 17:47
-
 
 
 <blockquote>猫白羽毛 发表于 2018-6-21 17:43
@@ -27821,16 +18733,10 @@ gg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrer
 上集这个看着是散瞳效果……
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 3701#       发表于 2018-6-21 17:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068337&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-21 17:43</a>
@@ -27841,16 +18747,10 @@ gg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrer
 视角问题
 
 
-
-
-
-
-
 -----
 
 ####  zjylyy  
 ##### 3702#       发表于 2018-6-21 17:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068372&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 17:46</a>
@@ -27861,16 +18761,10 @@ gg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrer
 然而韭黄就要gg了
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 3703#       发表于 2018-6-21 17:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068368&amp;ptid=1712743" target="_blank">Meteors 发表于 2018-6-21 17:46</a>
@@ -27878,16 +18772,10 @@ gg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrer
 那你在上集结束的时候就该喷了，留到预告有点晚吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  AminGly  
 ##### 3704#       发表于 2018-6-21 17:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068337&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-21 17:43</a>
@@ -27898,17 +18786,10 @@ gg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrer
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你看第6集出舱门的时候也没有红色额的那个
 
 
-
-
-
-
-
 -----
 
 ####  kyota  
 ##### 3705#       发表于 2018-6-21 17:49
-
-
 
 
 jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类寻找自我的故事。
@@ -27918,16 +18799,10 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3706#       发表于 2018-6-21 17:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068383&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-21 17:47</a>
@@ -27936,16 +18811,10 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 可能是没画出来吧
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 3707#       发表于 2018-6-21 17:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068372&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 17:46</a>
@@ -27956,16 +18825,10 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 666真要留下悔恨的眼泪？？？？
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3708#       发表于 2018-6-21 17:50
-
 
 
 <blockquote>timepro 发表于 2018-6-21 17:45
@@ -27976,16 +18839,10 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 说起来16的角看来是不会露出来了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3709#       发表于 2018-6-21 17:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068416&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-21 17:49</a>
@@ -27996,16 +18853,10 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 最多miku关注9a让666吃醋然后赶紧促成这对发狗粮吧，五对CP指标眼瞅着只成了两对，编剧也急啊。
 
 
-
-
-
-
-
 -----
 
 ####  whn1103  
 ##### 3710#       发表于 2018-6-21 17:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068351&amp;ptid=1712743" target="_blank">fengzijiang 发表于 2018-6-21 17:45</a>
@@ -28017,17 +18868,10 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 然后一帮人永远在 “看不懂想干嘛”、“什么鬼”、“搞笑片”、“自己都不知道自己在拍什么”
 
 
-
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3711#       发表于 2018-6-21 17:51
-
 
 
 <blockquote>华尔姬丽雅 发表于 2018-6-21 17:46
@@ -28041,16 +18885,10 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 这待遇还有谁？怪不得op开头大头照正中央。
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3712#       发表于 2018-6-21 17:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068367&amp;ptid=1712743" target="_blank">kyota 发表于 2018-6-21 17:46</a>
@@ -28062,16 +18900,10 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 机战片主角失了智的不少啊，最典型的卡缪不就是。
 
 
-
-
-
-
-
 -----
 
 ####  cbx0707  
 ##### 3713#       发表于 2018-6-21 17:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068351&amp;ptid=1712743" target="_blank">fengzijiang 发表于 2018-6-21 17:45</a>
@@ -28080,25 +18912,13 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 重建家园能算日常么
 
 
-
-
-
-
-
 -----
 
 ####  Slaine  
 ##### 3714#       发表于 2018-6-21 17:52
 
 
-
-
 这集目测是高雄<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28107,14 +18927,7 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 ##### 3715#       发表于 2018-6-21 17:52
 
 
-
-
 希望666能够大哭三天三夜
-
-
-
-
-
 
 
 -----
@@ -28123,23 +18936,15 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 ##### 3716#       发表于 2018-6-21 17:53
 
 
-
-
 吹不动了，56工具人到底，友情破颜拳要来了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  猫白羽毛  
 ##### 3717#       发表于 2018-6-21 17:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068443&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 17:51</a>
@@ -28149,25 +18954,13 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 只是有对手戏而已<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 3718#       发表于 2018-6-21 17:54
 
 
-
-
 是时候国5pro重新定义文戏了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28176,21 +18969,13 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 ##### 3719#       发表于 2018-6-21 17:55
 
 
-
-
 这集矛盾冲突很多，适合那谁
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 3720#       发表于 2018-6-21 17:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068443&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 17:51</a>
@@ -28201,17 +18986,10 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 还有娜娜姐……
 
 
-
-
-
-
-
 -----
 
 ####  [A]ZuZe  
 ##### 3721#       发表于 2018-6-21 17:56
-
-
 
 
 长井龙雪，濑古浩司！
@@ -28219,16 +18997,10 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  timepro  
 ##### 3722#       发表于 2018-6-21 17:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068424&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-21 17:50</a>
@@ -28240,17 +19012,10 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 上次是56看到了瘤子，莫不是这次又发现了16的角？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kyota  
 ##### 3723#       发表于 2018-6-21 17:56
-
-
 
 
 我感觉这一话556应该是已经生了，最开始326被吓得摔倒，后来又跑到病房看望，所以应该是556在病床上出现了什么异变。提前就送到病房，之后还去看望的…只可能是生了吧
@@ -28260,17 +19025,10 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3724#       发表于 2018-6-21 17:57
-
-
 
 
 确实没看到面具大人来着，不过好像看不到孩子们见到满地大人肉身的样子了。
@@ -28280,27 +19038,15 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 7坐的那个椅子也不造是哪。
 
 
-
-
-
-
-
 -----
 
 ####  神不可逾越  
 ##### 3725#       发表于 2018-6-21 17:57
 
 
-
-
 这集唯一➕2的办法就是让心生孩子的时候不幸去世，然后满恢复了记忆看见心死了自己气死了
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -28309,23 +19055,16 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 ##### 3726#       发表于 2018-6-21 17:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068498&amp;ptid=1712743" target="_blank">kyota 发表于 2018-6-21 17:56</a>
 
 我感觉这一话556应该是已经生了，最开始326被吓得摔倒，后来又跑到病房看望，所以应该是556在病床上出现了 ...</blockquote>
 不一定是生啊，可以看到B超的异物，冲击性的事实
 
 
-
-
-
-
-
 -----
 
 ####  kyota  
 ##### 3727#       发表于 2018-6-21 17:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068512&amp;ptid=1712743" target="_blank">xyau 发表于 2018-06-21 17:57:25</a>
@@ -28336,32 +19075,19 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 3728#       发表于 2018-6-21 17:58
 
 
-
-
 我觉得这集不能给高雄，要描写的人太多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  nihongkai  
 ##### 3729#       发表于 2018-6-21 17:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068372&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-06-21 17:46:30</a>
@@ -28374,16 +19100,10 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 3730#       发表于 2018-6-21 17:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068443&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 17:51</a>
@@ -28400,16 +19120,10 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 国17的到来   促进心满本垒   以及国18的196告白
 
 
-
-
-
-
-
 -----
 
 ####  kyota  
 ##### 3731#       发表于 2018-6-21 17:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068529&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-06-21 17:58:15</a>
@@ -28419,16 +19133,10 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  山贼先生  
 ##### 3732#       发表于 2018-6-21 17:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068531&amp;ptid=1712743" target="_blank">kyota 发表于 2018-6-21 17:58</a>
@@ -28443,26 +19151,15 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 除非士兵、工作人员等等也不算大人
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3733#       发表于 2018-6-21 18:00
 
 
-
 <img src="https://i.loli.net/2018/06/21/5b2b76f4e1357.jpg" referrerpolicy="no-referrer">
 
 δ……ε……papa……
-
-
-
-
-
 
 
 -----
@@ -28471,14 +19168,7 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 ##### 3734#       发表于 2018-6-21 18:00
 
 
-
-
 咒印没了，没魔法变成人了，结局也很明显了，阿广把他的咒印给02，虽然又回到了不同物种但还是可以结婚啊，皆大欢喜<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28487,15 +19177,8 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 ##### 3735#       发表于 2018-6-21 18:01
 
 
-
-
 不过这样看来ape是可以检测怀孕的。。
 这样一来只洗脑不打胎的操作更更更弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28504,21 +19187,13 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 ##### 3736#       发表于 2018-6-21 18:01
 
 
-
-
 我看不少地方都有人猜高雄啊
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 3737#       发表于 2018-6-21 18:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068554&amp;ptid=1712743" target="_blank">山贼先生 发表于 2018-6-21 17:59</a>
@@ -28532,16 +19207,10 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 按照ape废物利用的风格，孩子转职的大人都去照顾孩子很合理吧……
 
 
-
-
-
-
-
 -----
 
 ####  timepro  
 ##### 3738#       发表于 2018-6-21 18:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068498&amp;ptid=1712743" target="_blank">kyota 发表于 2018-6-21 17:56</a>
@@ -28550,17 +19219,10 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 筋肉哪吒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  お菓子食べたい  
 ##### 3739#       发表于 2018-6-21 18:01
-
-
 
 
 五莓一起念个预告已经很棒了..娜娜姐还活着也挺好
@@ -28570,16 +19232,10 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3740#       发表于 2018-6-21 18:01
-
 
 
 <blockquote>hl8243 发表于 2018-6-21 17:59
@@ -28596,16 +19252,10 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 对于love第一的国家队这能不重要吗？？
 
 
-
-
-
-
-
 -----
 
 ####  山贼先生  
 ##### 3741#       发表于 2018-6-21 18:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068577&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 18:01</a>
@@ -28616,25 +19266,13 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 果然还得靠吃瓜群众们自行脑补<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 3742#       发表于 2018-6-21 18:01
 
 
-
-
 预告完全看不到标题观星者，其他时候基本都能猜到的
-
-
-
-
-
 
 
 -----
@@ -28643,22 +19281,13 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 ##### 3743#       发表于 2018-6-21 18:01
 
 
-
-
 这集结尾至少要演到阿广动身去找回02意识吧，不然连02个人回都鸽掉那就笑爆了。
-
-
-
-
-
 
 
 -----
 
 ####  kyota  
 ##### 3744#       发表于 2018-6-21 18:01
-
-
 
 
 这话其实就是体现16的丧妻之痛，从英明的领导者变成了浑浑噩噩的的臭皮囊。最后时刻大概就是要56打醒16：
@@ -28669,32 +19298,19 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  wyjbnb  
 ##### 3745#       发表于 2018-6-21 18:01
 
 
-
-
 预告里的02没有露出全头，还不知道有没有角呢
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 3746#       发表于 2018-6-21 18:01
-
 
 
 <blockquote>kyota 发表于 2018-6-21 17:58
@@ -28711,25 +19327,13 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 运输机那会0216和3255都不在……其实送3255找地方安胎去了？？？
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 3747#       发表于 2018-6-21 18:03
 
 
-
-
 连续两集日常，最终话又是216秒杀boss。我已经看到结局了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28738,16 +19342,9 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 ##### 3748#       发表于 2018-6-21 18:03
 
 
-
-
 这集是高雄还有盼头
 
 换其他人估计都没救
-
-
-
-
-
 
 
 -----
@@ -28756,21 +19353,13 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 ##### 3749#       发表于 2018-6-21 18:03
 
 
-
-
 9a迫真红娘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 3750#       发表于 2018-6-21 18:04
-
 
 
 <blockquote>山贼先生 发表于 2018-6-21 17:59
@@ -28783,29 +19372,17 @@ jzgg其实是想做一个死与新生的企划吧。最俗套的那种，人类�
 有备份7的话有备份8也正常
 
 
-
-
-
-
-
 -----
 
 ####  Slaine  
 ##### 3751#       发表于 2018-6-21 18:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
 
 
 WeChat Image_20180621180429.jpg
 (142.46 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -28814,24 +19391,7 @@ WeChat Image_20180621180429.jpg
 2018-6-21 18:04 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/21/180446nolftsudfdvvuxxb.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -28840,15 +19400,8 @@ WeChat Image_20180621180429.jpg
 ##### 3752#       发表于 2018-6-21 18:05
 
 
-
-
 圣高雄是唯一的蝈蝈解药了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 慎用啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28857,14 +19410,7 @@ WeChat Image_20180621180429.jpg
 ##### 3753#       发表于 2018-6-21 18:05
 
 
-
-
 这集心满说不完，下集他俩一起念预告呢<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28873,14 +19419,7 @@ WeChat Image_20180621180429.jpg
 ##### 3754#       发表于 2018-6-21 18:05
 
 
-
-
 那谁是指圣高雄吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">突然兴奋，国5pro是时候奶起来了
-
-
-
-
-
 
 
 -----
@@ -28889,21 +19428,13 @@ WeChat Image_20180621180429.jpg
 ##### 3755#       发表于 2018-6-21 18:06
 
 
-
-
 念了三次预告的15证明了自己的女二地位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 3756#       发表于 2018-6-21 18:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068587&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-21 18:01</a>
@@ -28918,32 +19449,19 @@ WeChat Image_20180621180429.jpg
 那么夜晚很可能再来一次，点题观星。
 
 
-
-
-
-
-
 -----
 
 ####  lanhao  
 ##### 3757#       发表于 2018-6-21 18:06
 
 
-
-
 神回神回！！<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">一集救世
-
-
-
-
-
 
 
 -----
 
 ####  sherlockchu  
 ##### 3758#       发表于 2018-6-21 18:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068627&amp;ptid=1712743" target="_blank">Meteors 发表于 2018-6-21 18:05</a>
@@ -28954,33 +19472,19 @@ WeChat Image_20180621180429.jpg
 最终话上圣高雄，来一整话心满，然后给一分钟16站在02墓碑前的镜头，效果保证炸裂。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 
 
 
-
-
-
-
-
 -----
 
 ####  royalblue1127  
 ##### 3759#       发表于 2018-6-21 18:07
 
 
-
-
 说起来唯三念过三次预告的就021615了
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 3760#       发表于 2018-6-21 18:07
-
-
 
 
 我又没预告念……
@@ -28991,16 +19495,10 @@ WeChat Image_20180621180429.jpg
 锦织你到底还要我怎么样！
 
 
-
-
-
-
-
 -----
 
 ####  AminGly  
 ##### 3761#       发表于 2018-6-21 18:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068657&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 18:07</a>
@@ -29013,16 +19511,10 @@ WeChat Image_20180621180429.jpg
 还是那句话，你不是还有生命吗
 
 
-
-
-
-
-
 -----
 
 ####  kyota  
 ##### 3762#       发表于 2018-6-21 18:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068578&amp;ptid=1712743" target="_blank">timepro 发表于 2018-06-21 18:01:14</a>
@@ -29035,16 +19527,10 @@ WeChat Image_20180621180429.jpg
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 3763#       发表于 2018-6-21 18:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068591&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-21 18:01</a>
@@ -29062,16 +19548,10 @@ WeChat Image_20180621180429.jpg
 之后悄悄地放出了被自己监禁的7
 
 
-
-
-
-
-
 -----
 
 ####  不再是小孩子了  
 ##### 3764#       发表于 2018-6-21 18:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068657&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 18:07</a>
@@ -29084,16 +19564,10 @@ WeChat Image_20180621180429.jpg
 别担心，最后一集还活着的人一人一句把预告念完
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 3765#       发表于 2018-6-21 18:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068657&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 18:07</a>
@@ -29103,16 +19577,10 @@ WeChat Image_20180621180429.jpg
 少年，想活下去吗？恋爱吧
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3766#       发表于 2018-6-21 18:09
-
 
 
 <img src="https://i.loli.net/2018/06/21/5b2b791b4b5cf.jpg" referrerpolicy="no-referrer">
@@ -29120,16 +19588,10 @@ WeChat Image_20180621180429.jpg
 各位下周见……
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3767#       发表于 2018-6-21 18:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068662&amp;ptid=1712743" target="_blank">AminGly 发表于 2018-6-21 18:08</a>
@@ -29140,16 +19602,10 @@ WeChat Image_20180621180429.jpg
 人生还有什么意义……
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3768#       发表于 2018-6-21 18:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068675&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 18:09</a>
@@ -29158,16 +19614,10 @@ WeChat Image_20180621180429.jpg
 看起来你可以每天表演被δε惨死的噩梦吓醒失眠<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3769#       发表于 2018-6-21 18:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068673&amp;ptid=1712743" target="_blank">fengzijiang 发表于 2018-6-21 18:09</a>
@@ -29176,26 +19626,15 @@ WeChat Image_20180621180429.jpg
 红娘不会有对象的。
 
 
-
-
-
-
-
 -----
 
 ####  皇神樂耶  
 ##### 3770#       发表于 2018-6-21 18:11
 
 
-
 <blockquote>amulelernen 发表于 2018-6-21 17:58
 不一定是生啊，可以看到B超的异物，冲击性的事实</blockquote>
 对于没有记忆和相关知识的心来说，婴儿就像是寄生的异形怪物一样恐怖吧……
-
-
-
-
-
 
 
 -----
@@ -29204,16 +19643,9 @@ WeChat Image_20180621180429.jpg
 ##### 3771#       发表于 2018-6-21 18:12
 
 
-
-
 下下集16千辛万苦取出了鹤望兰中的意识，然后02回过神来，说“这赝品的身体还蛮好用的”
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -29222,16 +19654,9 @@ WeChat Image_20180621180429.jpg
 ##### 3772#       发表于 2018-6-21 18:12
 
 
-
-
 这个werkbau是谁   
 
 再说他也没明说是谁
-
-
-
-
-
 
 
 -----
@@ -29240,23 +19665,16 @@ WeChat Image_20180621180429.jpg
 ##### 3773#       发表于 2018-6-21 18:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068630&amp;ptid=1712743" target="_blank">royalblue1127 发表于 2018-6-21 20:05</a>
 
 这集心满说不完，下集他俩一起念预告呢</blockquote>
 别啊这么一说又有人要继续打滚跳脚一周咯，可怜<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  track0  
 ##### 3774#       发表于 2018-6-21 18:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068059&amp;ptid=1712743" target="_blank">lanhao 发表于 2018-06-21 17:23:06</a>
@@ -29266,16 +19684,10 @@ darling in the 辐射4</blockquote>darling in the fallout
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 3775#       发表于 2018-6-21 18:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068649&amp;ptid=1712743" target="_blank">lanhao 发表于 2018-6-21 18:06</a>
@@ -29284,32 +19696,19 @@ darling in the 辐射4</blockquote>darling in the fallout
 我们出去开个单挑楼吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lanhao  
 ##### 3776#       发表于 2018-6-21 18:14
 
 
-
-
 来一首德沃夏克的自新世界 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 神回！！
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 3777#       发表于 2018-6-21 18:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068707&amp;ptid=1712743" target="_blank">お菓子食べたい 发表于 2018-6-21 18:12</a>
@@ -29322,25 +19721,13 @@ darling in the 辐射4</blockquote>darling in the fallout
 同样是悲惨情侣，0216这集恐怕还好不了，3255倒是有望出点剧情恢复记忆（不恢复的话也没法念）……
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 3778#       发表于 2018-6-21 18:17
 
 
-
-
 高雄是很侧重光影的
-
-
-
-
-
 
 
 -----
@@ -29349,15 +19736,8 @@ darling in the 辐射4</blockquote>darling in the fallout
 ##### 3779#       发表于 2018-6-21 18:18
 
 
-
-
 大概15这集要上原画？
 和#7关联的标题+念预告
-
-
-
-
-
 
 
 -----
@@ -29366,16 +19746,10 @@ darling in the 辐射4</blockquote>darling in the fallout
 ##### 3780#       发表于 2018-6-21 18:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068695&amp;ptid=1712743" target="_blank">皇神樂耶 发表于 2018-6-21 18:11</a>
 
 对于没有记忆和相关知识的心来说，婴儿就像是寄生的异形怪物一样恐怖吧…… ...</blockquote>
 对啊 搞不好心承受不了给自己做流产手术也说不定……
-
-
-
-
-
 
 
 -----
@@ -29384,23 +19758,15 @@ darling in the 辐射4</blockquote>darling in the fallout
 ##### 3781#       发表于 2018-6-21 18:18
 
 
-
-
 等一个高雄神回救国，心满黑们纷纷流下了悔恨的泪水
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  track0  
 ##### 3782#       发表于 2018-6-21 18:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068285&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-06-21 17:39:48</a>
@@ -29411,16 +19777,10 @@ darling in the 辐射4</blockquote>darling in the fallout
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3783#       发表于 2018-6-21 18:19
-
 
 
 <blockquote>xyau 发表于 2018-6-21 18:18
@@ -29434,16 +19794,10 @@ darling in the 辐射4</blockquote>darling in the fallout
 不过从预告上完全没看出有什么重要戏份……
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3784#       发表于 2018-6-21 18:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068790&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 18:19</a>
@@ -29456,16 +19810,10 @@ darling in the 辐射4</blockquote>darling in the fallout
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">当然是被56告白了。
 
 
-
-
-
-
-
 -----
 
 ####  mumubear  
 ##### 3785#       发表于 2018-6-21 18:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068767&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-21 18:18</a>
@@ -29474,16 +19822,10 @@ darling in the 辐射4</blockquote>darling in the fallout
 旧柒还活着，想这么玩也会被打断的吧。。。
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3786#       发表于 2018-6-21 18:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068638&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-21 18:06</a>
@@ -29492,16 +19834,10 @@ darling in the 辐射4</blockquote>darling in the fallout
 能不能给个好看点的原画？
 
 
-
-
-
-
-
 -----
 
 ####  お菓子食べたい  
 ##### 3787#       发表于 2018-6-21 18:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068740&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 20:15</a>
@@ -29515,17 +19851,10 @@ darling in the 辐射4</blockquote>darling in the fallout
 这个预告看得有点心塞，回去重听一遍五莓的声音感觉治愈不少，也期待0216压轴啦<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3788#       发表于 2018-6-21 18:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068796&amp;ptid=1712743" target="_blank">mumubear 发表于 2018-6-21 18:20</a>
@@ -29534,32 +19863,19 @@ darling in the 辐射4</blockquote>darling in the fallout
 可以把自己关病房里面拿小拳拳疯狂锤肚子
 
 
-
-
-
-
-
 -----
 
 ####  elflie  
 ##### 3789#       发表于 2018-6-21 18:22
 
 
-
-
 我来奶一口阿尔法要当儿子了，完美解决17话没有生育机能的问题
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 3790#       发表于 2018-6-21 18:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068790&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 18:19</a>
@@ -29573,27 +19889,15 @@ darling in the 辐射4</blockquote>darling in the fallout
 非常谨慎地强调了1556成不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kyota  
 ##### 3791#       发表于 2018-6-21 18:22
 
 
-
-
 话说，这话7看起来很正常的样子。要是7没问题的话，我感觉8哥要接盘了啊<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -29602,21 +19906,13 @@ darling in the 辐射4</blockquote>darling in the fallout
 ##### 3792#       发表于 2018-6-21 18:22
 
 
-
-
 一直在奶的02回忆回看起来没戏了？
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 3793#       发表于 2018-6-21 18:23
-
 
 
 <blockquote>华尔姬丽雅 发表于 2018-6-21 18:20
@@ -29626,17 +19922,10 @@ darling in the 辐射4</blockquote>darling in the fallout
 回看了遍预告里唯一有关情节是莓和五郎说话，五郎有些吃惊的样子……猜不出。
 
 
-
-
-
-
-
 -----
 
 ####  西岚不是花  
 ##### 3794#       发表于 2018-6-21 18:23
-
-
 
 
 这预告里 
@@ -29653,25 +19942,13 @@ darling in the 辐射4</blockquote>darling in the fallout
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3795#       发表于 2018-6-21 18:24
 
 
-
-
 话说这一话和国20的火箭里面都装着啥？叫龙？公主已经知道virm的具体坐标了么？
-
-
-
-
-
 
 
 -----
@@ -29680,16 +19957,10 @@ darling in the 辐射4</blockquote>darling in the fallout
 ##### 3796#       发表于 2018-6-21 18:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068718&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-21 18:13</a>
 我们出去开个单挑楼吧</blockquote>
 不可以
 lanlan是红红的
-
-
-
-
-
 
 
 -----
@@ -29698,16 +19969,10 @@ lanlan是红红的
 ##### 3797#       发表于 2018-6-21 18:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068808&amp;ptid=1712743" target="_blank">fengzijiang 发表于 2018-6-21 18:22</a>
 
 一直在奶的02回忆回看起来没戏了？</blockquote>
 02在想什么 自个猜去吧<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29716,23 +19981,15 @@ lanlan是红红的
 ##### 3798#       发表于 2018-6-21 18:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068762&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-21 18:17</a>
 高雄是很侧重光影的</blockquote>
 你这一提点，我回看预告，觉得稳高雄了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 3799#       发表于 2018-6-21 18:25
-
-
 
 
 上我那么多次图标
@@ -29745,16 +20002,10 @@ lanlan是红红的
 我活着到底是为了干什么……<img src="https://i.loli.net/2018/06/21/5b2b7c488bddc.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3800#       发表于 2018-6-21 18:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068817&amp;ptid=1712743" target="_blank">西岚不是花 发表于 2018-6-21 18:23</a>
@@ -29765,16 +20016,10 @@ lanlan是红红的
 感觉是植物了一阵没法进食所以消瘦了，这次16喂食的时候终于有反应，所以16惊讶；之后就是自闭状态去观星了
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3801#       发表于 2018-6-21 18:25
-
 
 
 <blockquote>xyau 发表于 2018-6-21 18:22
@@ -29788,16 +20033,10 @@ lanlan是红红的
 不过确实可能和56又说了啥和广有关的事儿……直接导致56去和广吼。
 
 
-
-
-
-
-
 -----
 
 ####  闪亮的彗星  
 ##### 3802#       发表于 2018-6-21 18:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068817&amp;ptid=1712743" target="_blank">西岚不是花 发表于 2018-06-21 18:23:22</a>
@@ -29815,16 +20054,10 @@ lanlan是红红的
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3803#       发表于 2018-6-21 18:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068808&amp;ptid=1712743" target="_blank">fengzijiang 发表于 2018-6-21 18:22</a>
@@ -29835,16 +20068,10 @@ lanlan是红红的
 最终回02回忆也不奇怪吧？
 
 
-
-
-
-
-
 -----
 
 ####  西岚不是花  
 ##### 3804#       发表于 2018-6-21 18:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068832&amp;ptid=1712743" target="_blank">闪亮的彗星 发表于 2018-6-21 18:25</a>
@@ -29864,16 +20091,10 @@ lanlan是红红的
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kyota  
 ##### 3805#       发表于 2018-6-21 18:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068767&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-06-21 18:18:20</a>
@@ -29886,32 +20107,19 @@ lanlan是红红的
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  五更伪境  
 ##### 3806#       发表于 2018-6-21 18:27
 
 
-
-
 还是种田适合老子
-
-
-
-
-
 
 
 -----
 
 ####  pissca  
 ##### 3807#       发表于 2018-6-21 18:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068845&amp;ptid=1712743" target="_blank">kyota 发表于 2018-6-21 18:26</a>
@@ -29923,17 +20131,10 @@ lanlan是红红的
 —— 来自 Sony G8342, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3808#       发表于 2018-6-21 18:28
-
-
 
 
 其实观星者可能是指这个：
@@ -29948,21 +20149,10 @@ lanlan是红红的
 2018-6-21 18:28 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3809#       发表于 2018-6-21 18:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068831&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 18:25</a>
@@ -29973,17 +20163,10 @@ lanlan是红红的
 逃工又恢复#1生无可恋脸的16确实该骂<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kyota  
 ##### 3810#       发表于 2018-6-21 18:29
-
-
 
 
 政治经济文化宗教（绿教除外）都可以提，如果你提人权…<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
@@ -29993,16 +20176,10 @@ lanlan是红红的
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  皇神樂耶  
 ##### 3811#       发表于 2018-6-21 18:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068767&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-21 18:18</a>
@@ -30013,17 +20190,10 @@ lanlan是红红的
 怎么都打不掉，结局一定是破开母体成功诞生
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 3812#       发表于 2018-6-21 18:31
-
-
 
 
 真·绝地求生，专楼根据访谈奶的第三部分内容，放在了倒数第三集.....
@@ -30035,17 +20205,10 @@ lanlan是红红的
 综上，应该放在第三部分的内容，结果被安排在了倒数第三集<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 3813#       发表于 2018-6-21 18:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068863&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-06-21 18:28:33</a>
@@ -30054,16 +20217,10 @@ lanlan是红红的
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 3814#       发表于 2018-6-21 18:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068837&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 18:25</a>
@@ -30074,32 +20231,19 @@ lanlan是红红的
 那要看最后是怎么定义的了
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 3815#       发表于 2018-6-21 18:32
 
 
-
-
 剩三集，只能是锦织的亲密战友助力了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 3816#       发表于 2018-6-21 18:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068893&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-21 18:31</a>
@@ -30111,25 +20255,13 @@ lanlan是红红的
 渣广渣操作，和莓莓没有关系
 
 
-
-
-
-
-
 -----
 
 ####  Shiki192423  
 ##### 3817#       发表于 2018-6-21 18:32
 
 
-
-
 想买阿帕斯<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30138,22 +20270,13 @@ lanlan是红红的
 ##### 3818#       发表于 2018-6-21 18:33
 
 
-
-
 说道观星者，我第一个想到的其实是阿帕斯
-
-
-
-
-
 
 
 -----
 
 ####  kyota  
 ##### 3819#       发表于 2018-6-21 18:33
-
-
 
 
 来拓展个假药，如果真是个筋肉哪吒，所以打掉的话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">…
@@ -30163,18 +20286,12 @@ lanlan是红红的
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  西岚不是花  
 ##### 3820#       发表于 2018-6-21 18:33
 
 他
-
 
 
 你不说我都忘了
@@ -30201,17 +20318,10 @@ lanlan是红红的
 其他角色的戏份 容我再想想
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 3821#       发表于 2018-6-21 18:33
-
-
 
 
 看Miku那镜头有水，还是弧形的，156后面有红枝，02最后看天远景有山，应该是回到了收容所。
@@ -30220,16 +20330,10 @@ lanlan是红红的
 16、56外面那云挺好看的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">上午耕地，中午憋雨，下午下雨，黄昏雨停，傍晚02瞎溜达16抓住她在看星星。
 
 
-
-
-
-
-
 -----
 
 ####  AminGly  
 ##### 3822#       发表于 2018-6-21 18:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068685&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 18:10</a>
@@ -30244,25 +20348,13 @@ lanlan是红红的
 要不和我签订契约成为高达吧
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3823#       发表于 2018-6-21 18:34
 
 
-
-
 搞不好阿广是要去自杀殉情啥的，带着脑袋空空的02一起，被上帝之五及时发现
-
-
-
-
-
 
 
 -----
@@ -30271,13 +20363,7 @@ lanlan是红红的
 ##### 3824#       发表于 2018-6-21 18:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">每次都按最不可能最low的展开，这算是套路还是反套路？
-
-
-
-
-
 
 
 -----
@@ -30286,22 +20372,13 @@ lanlan是红红的
 ##### 3825#       发表于 2018-6-21 18:36
 
 
-
-
 下雨吧，应该是要回收这个伏笔，就是不知道雨再怎么下都救不回来，还是一下雨什么都想起来了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  kyota  
 ##### 3826#       发表于 2018-6-21 18:36
-
-
 
 
 不过，讲真，我还觉得如果jzgg大着胆子来的话。是个怪胎的可能性还真不是没有。
@@ -30311,16 +20388,10 @@ lanlan是红红的
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3827#       发表于 2018-6-21 18:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068932&amp;ptid=1712743" target="_blank">AminGly 发表于 2018-6-21 18:34</a>
@@ -30332,25 +20403,13 @@ lanlan是红红的
 已经没有任何想做的事了……
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 3828#       发表于 2018-6-21 18:38
 
 
-
-
 不可能会生怪胎的....这个有点重口了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30359,16 +20418,9 @@ lanlan是红红的
 ##### 3829#       发表于 2018-6-21 18:39
 
 
-
-
 话说，男主失忆，然后发现自己有个老婆还怀着孩子，关键是老婆也失忆了，这剧情好像有丶意思
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -30377,21 +20429,13 @@ lanlan是红红的
 ##### 3830#       发表于 2018-6-21 18:39
 
 
-
-
 如果最终话48min，有没有搞头？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  kyota  
 ##### 3831#       发表于 2018-6-21 18:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068947&amp;ptid=1712743" target="_blank">Fnaygih 发表于 2018-06-21 18:36:15</a>
@@ -30402,33 +20446,19 @@ lanlan是红红的
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 3832#       发表于 2018-6-21 18:39
 
 
-
-
 又看了一遍预告...这孩子应该是没了吧.....
-
-
-
-
-
 
 
 -----
 
 ####  AminGly  
 ##### 3833#       发表于 2018-6-21 18:39
-
-
 
 
 足球全输
@@ -30440,32 +20470,19 @@ a股暴跌
 看着蝈蝈
 
 
-
-
-
-
-
 -----
 
 ####  大江户战士  
 ##### 3834#       发表于 2018-6-21 18:40
 
 
-
-
 23集预告大概率心满了吧
-
-
-
-
-
 
 
 -----
 
 ####  AminGly  
 ##### 3835#       发表于 2018-6-21 18:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068955&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 18:36</a>
@@ -30478,16 +20495,10 @@ a股暴跌
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">（偷偷拿出霜之哀伤）死亡只是个开始
 
 
-
-
-
-
-
 -----
 
 ####  jesperliu  
 ##### 3836#       发表于 2018-6-21 18:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068114&amp;ptid=1712743" target="_blank">ゼロツー 发表于 2018-6-21 17:27</a>
@@ -30499,16 +20510,10 @@ a股暴跌
 第一反应是赫萝疯了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3837#       发表于 2018-6-21 18:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068903&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-21 18:32</a>
@@ -30521,17 +20526,10 @@ a股暴跌
 （外星人？后日谈里出现一分钟不能再多）
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 3838#       发表于 2018-6-21 18:43
-
-
 
 
 访谈不是说了么
@@ -30543,25 +20541,13 @@ a股暴跌
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3839#       发表于 2018-6-21 18:43
 
 
-
-
 万一生了孩子哇哇哭着，把02的记忆唤回来了呢？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30570,23 +20556,16 @@ a股暴跌
 ##### 3840#       发表于 2018-6-21 18:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068983&amp;ptid=1712743" target="_blank">Fnaygih 发表于 2018-6-21 18:39</a>
 
 又看了一遍预告...这孩子应该是没了吧.....</blockquote>
 那心这表情得是恢复记忆之后知道孩子没了
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 3841#       发表于 2018-6-21 18:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069019&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 18:42</a>
@@ -30599,25 +20578,13 @@ a股暴跌
 现在最怕的是已经讲完了而不是还没讲
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 3842#       发表于 2018-6-21 18:44
 
 
-
-
 15体格真的强，右手看上去一点事都没有……
-
-
-
-
-
 
 
 -----
@@ -30626,19 +20593,11 @@ a股暴跌
 ##### 3843#       发表于 2018-6-21 18:45
 
 
-
-
 这镜头正好缺216心满
-
-
-
-
 
 
 7f73KRpNMjWGJF2o.mp4_20180621_184457.040.jpg
 (89.18 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -30647,24 +20606,7 @@ a股暴跌
 2018-6-21 18:45 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/21/184508u0iun2bjm2t9bttq.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -30673,25 +20615,16 @@ a股暴跌
 ##### 3844#       发表于 2018-6-21 18:45
 
 
-
-
 文戏中描写13小队众生相的回数，印象里都是不错的
 
 
 我带头奶吧，这集从单集表现上看，质量应该不会差<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3845#       发表于 2018-6-21 18:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069037&amp;ptid=1712743" target="_blank">大江户战士 发表于 2018-6-21 18:44</a>
@@ -30702,16 +20635,10 @@ a股暴跌
 开franxx是以消耗生殖细胞为代价的
 
 
-
-
-
-
-
 -----
 
 ####  [A]ZuZe  
 ##### 3846#       发表于 2018-6-21 18:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068985&amp;ptid=1712743" target="_blank">AminGly 发表于 2018-06-21 18:39:39</a>
@@ -30726,16 +20653,10 @@ a股暴跌
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  royalblue1127  
 ##### 3847#       发表于 2018-6-21 18:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069041&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-21 18:44</a>
@@ -30743,16 +20664,10 @@ a股暴跌
 时间线估计跳了几周……
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3848#       发表于 2018-6-21 18:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069040&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-21 18:44</a>
@@ -30765,26 +20680,15 @@ a股暴跌
 除非是20-21复制一遍的“最终决战”……22集结尾外星人出现，23广带着失神02上机，24找回记忆lovelove炮轰平virm。
 
 
-
-
-
-
-
 -----
 
 ####  royalblue1127  
 ##### 3849#       发表于 2018-6-21 18:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069045&amp;ptid=1712743" target="_blank">大江户战士 发表于 2018-6-21 18:45</a>
 这镜头正好缺216心满</blockquote>
 莓再怎么也不可能那么矮，这里是蹲着么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30793,14 +20697,7 @@ a股暴跌
 ##### 3850#       发表于 2018-6-21 18:48
 
 
-
-
 最强人类肉体不是瞎吹的，左右手各断一次，还有谁？
-
-
-
-
-
 
 
 -----
@@ -30809,15 +20706,9 @@ a股暴跌
 ##### 3851#       发表于 2018-6-21 18:49
 
 
-
 <blockquote>amulelernen 发表于 2018-6-21 18:48
 最强人类肉体不是瞎吹的，左右手各断一次，还有谁？</blockquote>
 博士啊…
-
-
-
-
-
 
 
 -----
@@ -30826,14 +20717,7 @@ a股暴跌
 ##### 3852#       发表于 2018-6-21 18:50
 
 
-
-
 没有大决战的话就不用让virm留一句“我们会再回来的”了，直接一炮轰干净完事了，不过现在真的不知道是有决战好还是日常到最后更好了<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30842,16 +20726,10 @@ a股暴跌
 ##### 3853#       发表于 2018-6-21 18:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069084&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 18:49</a>
 
 博士啊…</blockquote>
 博士丢的不是同一只手么……
-
-
-
-
-
 
 
 -----
@@ -30860,15 +20738,8 @@ a股暴跌
 ##### 3854#       发表于 2018-6-21 18:53
 
 
-
-
 还是最终回48分钟把02个人回和virm一起处理了比较好一点。。 反正也是靠lovelove刷怪。
 梦里什么都有
-
-
-
-
-
 
 
 -----
@@ -30877,15 +20748,9 @@ a股暴跌
 ##### 3855#       发表于 2018-6-21 18:53
 
 
-
  本帖最后由 lanhao 于 2018-6-21 18:55 编辑 
 
 ？？？文戏你们还能看啥 打戏至少好看好吧  爆米花虽然没啥吃头至少比拿某些东西塞你嘴里好吧
-
-
-
-
-
 
 
 -----
@@ -30894,15 +20759,9 @@ a股暴跌
 ##### 3856#       发表于 2018-6-21 18:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069070&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-21 18:48</a>
 最强人类肉体不是瞎吹的，左右手各断一次，还有谁？</blockquote>
 原来还是断的不同的吗……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">莓队是真的强
-
-
-
-
-
 
 
 -----
@@ -30911,21 +20770,13 @@ a股暴跌
 ##### 3857#       发表于 2018-6-21 18:54
 
 
-
-
 22时间肯定又有跳跃，心肯定不是一下机就被拉去医院，所以孩子没了的概率约等于0
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 3858#       发表于 2018-6-21 18:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069096&amp;ptid=1712743" target="_blank">dzrykh 发表于 2018-6-21 18:50</a>
@@ -30936,32 +20787,19 @@ a股暴跌
 而且还能留个后日谈的尾巴。
 
 
-
-
-
-
-
 -----
 
 ####  Maliya  
 ##### 3859#       发表于 2018-6-21 18:54
 
 
-
-
 什么时候出staff表？？
-
-
-
-
-
 
 
 -----
 
 ####  山贼先生  
 ##### 3860#       发表于 2018-6-21 18:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069060&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-06-21 18:46:36</a>
@@ -30972,16 +20810,10 @@ a股暴跌
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3861#       发表于 2018-6-21 18:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069139&amp;ptid=1712743" target="_blank">大江户战士 发表于 2018-6-21 18:54</a>
@@ -30992,32 +20824,19 @@ a股暴跌
 心可能是因为怀孕反应越来越大才进了医院看病，结果发现自己怀了。
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3862#       发表于 2018-6-21 18:58
 
 
-
-
 既然我病了，那我好好休息一周了……大家再见……
 <img src="https://i.loli.net/2018/06/21/5b2b84c7db42a.jpg" referrerpolicy="no-referrer">
-
 
 
 ——————————————————————
 
 来专楼频率降低，回复量降低。
-
-
-
-
-
 
 
 -----
@@ -31026,14 +20845,7 @@ a股暴跌
 ##### 3863#       发表于 2018-6-21 19:00
 
 
-
-
 nbht转的那段云共鸣，该下注高雄统子？
-
-
-
-
-
 
 
 -----
@@ -31042,21 +20854,13 @@ nbht转的那段云共鸣，该下注高雄统子？
 ##### 3864#       发表于 2018-6-21 19:00
 
 
-
-
 看来移动都市跟APE的衣服就是个吸魂的玩意，不在里面就不会被吸魂<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  davidcch12  
 ##### 3865#       发表于 2018-6-21 19:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069185&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 18:58</a>
@@ -31067,16 +20871,10 @@ nbht转的那段云共鸣，该下注高雄统子？
 振作起来啊……小红和小蓝还需要你的带领，要是小绿和小紫看到现在的你会怎么想！
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3866#       发表于 2018-6-21 19:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069210&amp;ptid=1712743" target="_blank">davidcch12 发表于 2018-6-21 19:00</a>
@@ -31086,32 +20884,19 @@ nbht转的那段云共鸣，该下注高雄统子？
 没关系他们都死了
 
 
-
-
-
-
-
 -----
 
 ####  skives  
 ##### 3867#       发表于 2018-6-21 19:02
 
 
-
-
 看来是高雄回
-
-
-
-
-
 
 
 -----
 
 ####  amulelernen  
 ##### 3868#       发表于 2018-6-21 19:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069128&amp;ptid=1712743" target="_blank">royalblue1127 发表于 2018-6-21 18:53</a>
@@ -31129,11 +20914,6 @@ nbht转的那段云共鸣，该下注高雄统子？
 2018-6-21 19:00 上传
 
 
-
-
-
-
-
 右：
 
 <img src="https://img.saraba1st.com/forum/201806/21/190021nyvnamiefaympdme.jpg" referrerpolicy="no-referrer">
@@ -31144,11 +20924,6 @@ nbht转的那段云共鸣，该下注高雄统子？
 下载附件
 
 2018-6-21 19:00 上传
-
-
-
-
-
 
 
 上：
@@ -31163,12 +20938,6 @@ nbht转的那段云共鸣，该下注高雄统子？
 2018-6-21 19:00 上传
 
 
-
-
-
-
-
-
 下（此处走路一拐一瘸）：
 
 <img src="https://img.saraba1st.com/forum/201806/21/190020a9m86rmxz64m91l6.jpg" referrerpolicy="no-referrer">
@@ -31179,12 +20948,6 @@ nbht转的那段云共鸣，该下注高雄统子？
 下载附件
 
 2018-6-21 19:00 上传
-
-
-
-
-
-
 
 
 内心受伤：
@@ -31199,18 +20962,7 @@ nbht转的那段云共鸣，该下注高雄统子？
 2018-6-21 19:01 上传
 
 
-
-
-
-
-
 然后接着没事人一样蹦跶……
-
-
-
-
-
-
 
 
 -----
@@ -31219,15 +20971,9 @@ nbht转的那段云共鸣，该下注高雄统子？
 ##### 3869#       发表于 2018-6-21 19:09
 
 
-
 <blockquote>royalblue1127 发表于 2018-6-21 18:53
 原来还是断的不同的吗……莓队是真的强</blockquote>
 其实真强的地方是两次都没有断连还能做高难动作（疑似按住鹤望兰和反杀virm），比起未来初次出击被叫龙打头就晕（当然，可能和第一次战斗有关），这次翠雀是被断手加被打头（按着头）好像也没大事……
-
-
-
-
-
 
 
 -----
@@ -31236,24 +20982,16 @@ nbht转的那段云共鸣，该下注高雄统子？
 ##### 3870#       发表于 2018-6-21 19:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069227&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-21 19:02</a>
 
 左：</blockquote>
 别再截以前的草莓图了。<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">越看以前越觉得现在是啥玩意
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 3871#       发表于 2018-6-21 19:10
-
-
 
 
 如果这集日常的话 
@@ -31263,25 +21001,13 @@ nbht转的那段云共鸣，该下注高雄统子？
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 3872#       发表于 2018-6-21 19:11
 
 
-
-
 如果下集高雄，再加上ED新画面，说不定真能给国国挽尊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -31290,16 +21016,10 @@ nbht转的那段云共鸣，该下注高雄统子？
 ##### 3873#       发表于 2018-6-21 19:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069276&amp;ptid=1712743" target="_blank">dropdead 发表于 2018-6-21 19:10</a>
 
 别再截以前的草莓图了。越看以前越觉得现在是啥玩意</blockquote>
 忘记国15，你也可以过得很快乐<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -31308,15 +21028,9 @@ nbht转的那段云共鸣，该下注高雄统子？
 ##### 3874#       发表于 2018-6-21 19:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069227&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-21 19:02</a>
 左：</blockquote>
 莓莓果然世界第一温柔可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -31325,14 +21039,7 @@ nbht转的那段云共鸣，该下注高雄统子？
 ##### 3875#       发表于 2018-6-21 19:12
 
 
-
-
 告诉你们一个残酷的现实，最后一集肯定是机战，3Dboss，倒数第二集99%是机战。
-
-
-
-
-
 
 
 -----
@@ -31341,16 +21048,9 @@ nbht转的那段云共鸣，该下注高雄统子？
 ##### 3876#       发表于 2018-6-21 19:13
 
 
-
-
 风评是救不回来了，来几个神回弥补下追到现在的观众吧
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -31359,16 +21059,10 @@ nbht转的那段云共鸣，该下注高雄统子？
 ##### 3877#       发表于 2018-6-21 19:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069227&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-21 19:02</a>
 
 左：</blockquote>
 哭了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -31377,14 +21071,7 @@ nbht转的那段云共鸣，该下注高雄统子？
 ##### 3878#       发表于 2018-6-21 19:15
 
 
-
-
 猴区开始吹网管跟革命机了，本来今天没笑点一下被承包了
-
-
-
-
-
 
 
 -----
@@ -31393,22 +21080,13 @@ nbht转的那段云共鸣，该下注高雄统子？
 ##### 3879#       发表于 2018-6-21 19:15
 
 
-
-
 外星人回来也是给02送魂，工具boss<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  novem  
 ##### 3880#       发表于 2018-6-21 19:17
-
-
 
 
 妈的智障
@@ -31420,16 +21098,10 @@ nbht转的那段云共鸣，该下注高雄统子？
 我已经预见到02恢复正常后再卖一波狗粮打败BOSS的恶心情节了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dropdead  
 ##### 3881#       发表于 2018-6-21 19:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069295&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-21 19:12</a>
@@ -31438,30 +21110,17 @@ nbht转的那段云共鸣，该下注高雄统子？
 15后都背景板了，没有耍小脾气，没有败犬哭，没有吃醋吃瘪的各式小表情。现在也就只能靠循环国5、7过日，越想越WTF
 
 
-
-
-
-
-
 -----
 
 ####  lanhao  
 ##### 3882#       发表于 2018-6-21 19:19
 
 
-
-
 gigguk的锅
-
-
-
-
 
 
 8FB196F3-FDEC-46E8-9FED-1C3FD305A3B4.png
 (378.82 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -31470,24 +21129,7 @@ gigguk的锅
 2018-6-21 19:19 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/21/191943mzt7a080607okvvr.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -31496,15 +21138,9 @@ gigguk的锅
 ##### 3883#       发表于 2018-6-21 19:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069310&amp;ptid=1712743" target="_blank">华发夜眼[CN] 发表于 2018-6-21 19:13</a>
 哭了</blockquote>
 五次有三次是02弄的，打了两巴掌加一次监禁，大致上扯平了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -31513,16 +21149,10 @@ gigguk的锅
 ##### 3884#       发表于 2018-6-21 19:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069329&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-21 19:15</a>
 
 猴区开始吹网管跟革命机了，本来今天没笑点一下被承包了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">你好歹点进去看看说的是啥，gc挂标题那贴绝大多数内容在喷lex。
-
-
-
-
-
 
 
 -----
@@ -31531,16 +21161,9 @@ gigguk的锅
 ##### 3885#       发表于 2018-6-21 19:23
 
 
-
-
 总有人想挑战锦织哥哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -31549,21 +21172,13 @@ gigguk的锅
 ##### 3886#       发表于 2018-6-21 19:24
 
 
-
-
 一想到五年过后大家也会这样给蝈蝈翻案，我就感到欣慰
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 3887#       发表于 2018-6-21 19:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069288&amp;ptid=1712743" target="_blank">Fnaygih 发表于 2018-6-21 19:11</a>
@@ -31574,16 +21189,10 @@ gigguk的锅
 现在很多观众是看到心满就反感，高雄上也没用……
 
 
-
-
-
-
-
 -----
 
 ####  dropdead  
 ##### 3888#       发表于 2018-6-21 19:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069365&amp;ptid=1712743" target="_blank">lanhao 发表于 2018-6-21 19:19</a>
@@ -31592,27 +21201,15 @@ gigguk的锅</blockquote>
 一个夸紫罗兰的人说的话还有必要复读吗
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3889#       发表于 2018-6-21 19:25
 
 
-
-
 ……我忽然想到一个惊悚的可能：
 
 下集可能会凑下1556，再加上ed6标题是达令，旋律轻快，那会不会ed6真·四对CP齐发狗粮啊……
-
-
-
-
-
 
 
 -----
@@ -31621,20 +21218,13 @@ gigguk的锅</blockquote>
 ##### 3890#       发表于 2018-6-21 19:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069227&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-06-21 19:02:19</a>
 左：
-
 
 
 然后接着没事人一样蹦跶……</blockquote>莓莓是最强的<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -31643,22 +21233,15 @@ gigguk的锅</blockquote>
 ##### 3891#       发表于 2018-6-21 19:26
 
 
-
  本帖最后由 amulelernen 于 2018-6-21 19:27 编辑 
 
 等十年以后锦织更加发达了，楼里面黑过的一个个被新人@出来鞭尸，和外面那贴一样做个鞭尸专楼
-
-
-
-
-
 
 
 -----
 
 ####  davidcch12  
 ##### 3892#       发表于 2018-6-21 19:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069424&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 19:25</a>
@@ -31671,25 +21254,13 @@ gigguk的锅</blockquote>
 看到现在 我觉得1556应该会是冷处理了
 
 
-
-
-
-
-
 -----
 
 ####  skives  
 ##### 3893#       发表于 2018-6-21 19:28
 
 
-
-
 十年后，50岁的锦织监督，已经是业界知名的萝卜片复兴者。
-
-
-
-
-
 
 
 -----
@@ -31698,15 +21269,9 @@ gigguk的锅</blockquote>
 ##### 3894#       发表于 2018-6-21 19:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069419&amp;ptid=1712743" target="_blank">dropdead 发表于 2018-6-21 19:25</a>
 一个夸紫罗兰的人说的话还有必要复读吗</blockquote>
 问题来了紫罗兰和罪恶王冠谁好看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -31715,16 +21280,10 @@ gigguk的锅</blockquote>
 ##### 3895#       发表于 2018-6-21 19:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069392&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 19:22</a>
 
 你好歹点进去看看说的是啥，gc挂标题那贴绝大多数内容在喷lex。</blockquote>
 看了啊，我们看的真是一个帖子？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -31733,21 +21292,13 @@ gigguk的锅</blockquote>
 ##### 3896#       发表于 2018-6-21 19:29
 
 
-
-
 应该是偶像番的教父二次出征机战作品
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 3897#       发表于 2018-6-21 19:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069442&amp;ptid=1712743" target="_blank">davidcch12 发表于 2018-6-21 19:27</a>
@@ -31760,16 +21311,10 @@ gigguk的锅</blockquote>
 也不一定是直接凑成吧，说不定ed里是莓和56、196三人组呢……
 
 
-
-
-
-
-
 -----
 
 ####  royalblue1127  
 ##### 3898#       发表于 2018-6-21 19:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069424&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 19:25</a>
@@ -31779,16 +21324,10 @@ gigguk的锅</blockquote>
 15和56谈216和全队未来生存考量，在安稳下来前应该会继续冷处理彼此的感情……
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3899#       发表于 2018-6-21 19:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069448&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-21 19:28</a>
@@ -31797,26 +21336,15 @@ gigguk的锅</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那贴难道不是从第二页开始就从毒舌老外讨论到lex然后开喷了么。
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 3900#       发表于 2018-6-21 19:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069392&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 19:22</a>
 你好歹点进去看看说的是啥，gc挂标题那贴绝大多数内容在喷lex。</blockquote>
 他说的是三千的帖子吧，发到泥潭估计又和昨天一样被喷成傻逼了，还是被舔白丝好一点
-
-
-
-
-
 
 
 -----
@@ -31825,16 +21353,10 @@ gigguk的锅</blockquote>
 ##### 3901#       发表于 2018-6-21 19:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069477&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-21 19:32</a>
 
 他说的是三千的帖子吧，发到泥潭估计又和昨天一样被喷成傻逼了，还是被舔白丝好一点 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">3000这种纯傻x还能代表猴区了？哪怕我觉得ng2版主放任这种sjb蹦跶很zz也不至于把他当ng2代表。
-
-
-
-
-
 
 
 -----
@@ -31843,23 +21365,16 @@ gigguk的锅</blockquote>
 ##### 3902#       发表于 2018-6-21 19:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069473&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 19:31</a>
 
 那贴难道不是从第二页开始就从毒舌老外讨论到lex然后开喷了么。</blockquote>
 那不是个别人吗
 
 
-
-
-
-
-
 -----
 
 ####  AminGly  
 ##### 3903#       发表于 2018-6-21 19:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069052&amp;ptid=1712743" target="_blank">[A]ZuZe 发表于 2018-6-21 18:45</a>
@@ -31871,25 +21386,13 @@ gigguk的锅</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真实惨烈
 
 
-
-
-
-
-
 -----
 
 ####  arsenalfcc  
 ##### 3904#       发表于 2018-6-21 19:37
 
 
-
-
 最终话五队cp念预告。。
-
-
-
-
-
 
 
 -----
@@ -31898,14 +21401,7 @@ gigguk的锅</blockquote>
 ##### 3905#       发表于 2018-6-21 19:38
 
 
-
-
 我觉得你们还是过于乐观，居然想得是圣高雄救世而不是高雄即将风评被害<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -31914,16 +21410,10 @@ gigguk的锅</blockquote>
 ##### 3906#       发表于 2018-6-21 19:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069447&amp;ptid=1712743" target="_blank">lanhao 发表于 2018-6-21 19:28</a>
 
 问题来了紫罗兰和罪恶王冠谁好看</blockquote>
 这时取决于角色的可舔性与泛用性
-
-
-
-
-
 
 
 -----
@@ -31932,14 +21422,7 @@ gigguk的锅</blockquote>
 ##### 3907#       发表于 2018-6-21 19:41
 
 
-
-
 角色那还是网管的好舔，太精致反而没有欲望
-
-
-
-
-
 
 
 -----
@@ -31948,15 +21431,7 @@ gigguk的锅</blockquote>
 ##### 3908#       发表于 2018-6-21 19:42
 
 
-
-
 紫罗兰和罪恶王冠压根不是一个类型的作品吧....
-
-
-
-
-
-
 
 
 -----
@@ -31965,15 +21440,9 @@ gigguk的锅</blockquote>
 ##### 3909#       发表于 2018-6-21 19:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069534&amp;ptid=1712743" target="_blank">dropdead 发表于 2018-6-21 19:38</a>
 这时取决于角色的可舔性与泛用性</blockquote>
 那成了啊 gigguk这是在夸蝈蝈啊 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
-
-
-
-
-
 
 
 -----
@@ -31982,14 +21451,7 @@ gigguk的锅</blockquote>
 ##### 3910#       发表于 2018-6-21 19:43
 
 
-
-
 吹网管，洗白大宝贝，美滋滋
-
-
-
-
-
 
 
 -----
@@ -31998,14 +21460,7 @@ gigguk的锅</blockquote>
 ##### 3911#       发表于 2018-6-21 19:44
 
 
-
-
 话说，怎么没什么人吹AZ啊，王冠革命机夏洛特REC这些隔一段时间都有人吹/怀念，就AZ没怎么见过<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -32014,13 +21469,7 @@ gigguk的锅</blockquote>
 ##### 3912#       发表于 2018-6-21 19:44
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">……就看剩下的怎么玩了，看着这预告无话可说
-
-
-
-
-
 
 
 -----
@@ -32029,16 +21478,10 @@ gigguk的锅</blockquote>
 ##### 3913#       发表于 2018-6-21 19:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069491&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-06-21 19:33:35</a>
 3000这种纯傻x还能代表猴区了？哪怕我觉得ng2版主放任这种sjb蹦跶很zz也不至于把他当ng2代表。 ...</blockquote>不是，ng2人本来就很少，他三四个号每天首页五六帖，想不代表猴区很难
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -32047,16 +21490,10 @@ gigguk的锅</blockquote>
 ##### 3914#       发表于 2018-6-21 19:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069576&amp;ptid=1712743" target="_blank">Fnaygih 发表于 2018-06-21 19:44:16</a>
 话说，怎么没什么人吹AZ啊，王冠革命机夏洛特REC这些隔一段时间都有人吹/怀念，就AZ没怎么见过 ...</blockquote>有，在s1我都见过<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -32065,14 +21502,7 @@ gigguk的锅</blockquote>
 ##### 3915#       发表于 2018-6-21 19:47
 
 
-
-
 说来，郁莓互动呢……郁莓真的在18集结束了吗
-
-
-
-
-
 
 
 -----
@@ -32081,16 +21511,10 @@ gigguk的锅</blockquote>
 ##### 3916#       发表于 2018-6-21 19:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069576&amp;ptid=1712743" target="_blank">Fnaygih 发表于 2018-6-21 19:44</a>
 
 话说，怎么没什么人吹AZ啊，王冠革命机夏洛特REC这些隔一段时间都有人吹/怀念，就AZ没怎么见过 ...</blockquote>
 不早就吹过了吗“AZ前半真好看”“网管前半真好看”
-
-
-
-
-
 
 
 -----
@@ -32099,16 +21523,10 @@ gigguk的锅</blockquote>
 ##### 3917#       发表于 2018-6-21 19:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069568&amp;ptid=1712743" target="_blank">lanhao 发表于 2018-6-21 19:43</a>
 
 那成了啊 gigguk这是在夸蝈蝈啊</blockquote>
 等大触交出强上NTR少佐慕残向的实用本时蝈蝈拿个锤子竞争
-
-
-
-
-
 
 
 -----
@@ -32117,15 +21535,9 @@ gigguk的锅</blockquote>
 ##### 3918#       发表于 2018-6-21 19:48
 
 
-
  本帖最后由 Fnaygih 于 2018-6-21 19:49 编辑 
 
 风怒
-
-
-
-
-
 
 
 -----
@@ -32134,16 +21546,9 @@ gigguk的锅</blockquote>
 ##### 3919#       发表于 2018-6-21 19:48
 
 
-
-
 泥萌有一天会帮国家队翻案吗<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -32152,22 +21557,15 @@ gigguk的锅</blockquote>
 ##### 3920#       发表于 2018-6-21 19:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069576&amp;ptid=1712743" target="_blank">Fnaygih 发表于 2018-6-21 19:44</a>
 话说，怎么没什么人吹AZ啊，王冠革命机夏洛特REC这些隔一段时间都有人吹/怀念，就AZ没怎么见过 ...</blockquote>
 az至少前面部分比这三好啊 新出的片要比肯定先和最底下片比呀 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 比着比着不就吹起来了吗 
-
-
-
-
-
 
 
 -----
 
 ####  zjylyy  
 ##### 3921#       发表于 2018-6-21 19:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069612&amp;ptid=1712743" target="_blank">闪亮的彗星 发表于 2018-6-21 19:48</a>
@@ -32179,16 +21577,10 @@ az至少前面部分比这三好啊 新出的片要比肯定先和最底下片�
 等下一部屎片吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  [A]ZuZe  
 ##### 3922#       发表于 2018-6-21 19:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069612&amp;ptid=1712743" target="_blank">闪亮的彗星 发表于 2018-06-21 19:48:16</a>
@@ -32197,26 +21589,15 @@ az至少前面部分比这三好啊 新出的片要比肯定先和最底下片�
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  royalblue1127  
 ##### 3923#       发表于 2018-6-21 19:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069608&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 19:47</a>
 说来，郁莓互动呢……郁莓真的在18集结束了吗</blockquote>
 郁为莓头发都白了怎么能算结束了呢<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -32225,16 +21606,10 @@ az至少前面部分比这三好啊 新出的片要比肯定先和最底下片�
 ##### 3924#       发表于 2018-6-21 19:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069610&amp;ptid=1712743" target="_blank">dropdead 发表于 2018-6-21 19:48</a>
 等大触交出强上NTR少佐慕残向的实用本时蝈蝈拿个锤子竞争</blockquote>
 脑残算残疾么
 那我提议……216……
-
-
-
-
-
 
 
 -----
@@ -32243,23 +21618,16 @@ az至少前面部分比这三好啊 新出的片要比肯定先和最底下片�
 ##### 3925#       发表于 2018-6-21 19:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069621&amp;ptid=1712743" target="_blank">zjylyy 发表于 2018-6-21 19:49</a>
 
 等下一部屎片吧</blockquote>
 不需要屎，讨论度高的庸作就够了
 
 
-
-
-
-
-
 -----
 
 ####  royalblue1127  
 ##### 3926#       发表于 2018-6-21 19:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069612&amp;ptid=1712743" target="_blank">闪亮的彗星 发表于 2018-6-21 19:48</a>
@@ -32269,26 +21637,15 @@ az至少前面部分比这三好啊 新出的片要比肯定先和最底下片�
 等出现一个更没眼看的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lanhao  
 ##### 3927#       发表于 2018-6-21 19:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069610&amp;ptid=1712743" target="_blank">dropdead 发表于 2018-6-21 19:48</a>
 等大触交出强上NTR少佐慕残向的实用本时蝈蝈拿个锤子竞争</blockquote>
 蝈蝈可是什么要素都有<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -32297,16 +21654,9 @@ az至少前面部分比这三好啊 新出的片要比肯定先和最底下片�
 ##### 3928#       发表于 2018-6-21 19:53
 
 
-
-
 Gigguk一开始对ditf报以期待，吐槽了下姿势问题，后来13回吹爆，14回说莓没有错，然后现在<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -32315,23 +21665,16 @@ Gigguk一开始对ditf报以期待，吐槽了下姿势问题，后来13回吹�
 ##### 3929#       发表于 2018-6-21 19:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069646&amp;ptid=1712743" target="_blank">lanhao 发表于 2018-6-21 19:51</a>
 
 蝈蝈可是什么要素都有</blockquote>
 又是一个看着从果粉变成国黑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zlzhcqblf  
 ##### 3930#       发表于 2018-6-21 19:54
-
 
 
 <blockquote>Fnaygih 发表于 2018-6-21 19:44
@@ -32341,16 +21684,10 @@ Gigguk一开始对ditf报以期待，吐槽了下姿势问题，后来13回吹�
 另外3v也是，只有打戏强，节奏故事音乐人物塑造完全不如ditf。
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3931#       发表于 2018-6-21 19:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069608&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 19:47</a>
@@ -32361,16 +21698,10 @@ Gigguk一开始对ditf报以期待，吐槽了下姿势问题，后来13回吹�
 不过很有可能就这么结束了……
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3932#       发表于 2018-6-21 19:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069670&amp;ptid=1712743" target="_blank">zlzhcqblf 发表于 2018-6-21 19:54</a>
@@ -32381,26 +21712,15 @@ Gigguk一开始对ditf报以期待，吐槽了下姿势问题，后来13回吹�
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">音乐都不如，真看得起橘麻美啊。
 
 
-
-
-
-
-
 -----
 
 ####  lanhao  
 ##### 3933#       发表于 2018-6-21 19:55
 
 
-
  本帖最后由 lanhao 于 2018-6-21 19:58 编辑 
 
 我觉得拯救ditf就一个办法 结尾宣布第二季  不 应该是拯救专楼众的方法  永远保持期待迎接每一个新的周四
-
-
-
-
-
 
 
 -----
@@ -32409,13 +21729,7 @@ Gigguk一开始对ditf报以期待，吐槽了下姿势问题，后来13回吹�
 ##### 3934#       发表于 2018-6-21 19:56
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">第二季就算了吧，想想铁血
-
-
-
-
-
 
 
 -----
@@ -32424,16 +21738,10 @@ Gigguk一开始对ditf报以期待，吐槽了下姿势问题，后来13回吹�
 ##### 3935#       发表于 2018-6-21 19:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069681&amp;ptid=1712743" target="_blank">lanhao 发表于 2018-6-21 19:55</a>
 
 我觉得拯救ditf就一个办法 结尾宣布第二季</blockquote>
 没见过第二季翻身的……第一季还成第二季更糟的倒是比比皆是。
-
-
-
-
-
 
 
 -----
@@ -32442,15 +21750,9 @@ Gigguk一开始对ditf报以期待，吐槽了下姿势问题，后来13回吹�
 ##### 3936#       发表于 2018-6-21 19:57
 
 
-
 <blockquote>lanhao 发表于 2018-6-21 19:55
 我觉得拯救ditf就一个办法 结尾宣布第二季</blockquote>
 出第二季先把双人萝卜的设定先改了
-
-
-
-
-
 
 
 -----
@@ -32459,21 +21761,13 @@ Gigguk一开始对ditf报以期待，吐槽了下姿势问题，后来13回吹�
 ##### 3937#       发表于 2018-6-21 19:58
 
 
-
-
 宣布第二季就算了，这时候好歹要要有骨气吧，做出来什么就是什么，搞个第二季强行续真没什么意思
-
-
-
-
-
 
 
 -----
 
 ####  ゴロー  
 ##### 3938#       发表于 2018-6-21 19:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40068955&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 18:36</a>
@@ -32488,16 +21782,10 @@ Gigguk一开始对ditf报以期待，吐槽了下姿势问题，后来13回吹�
 简单地把你埋了，扶着你病弱的妈妈，送你一程....
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3939#       发表于 2018-6-21 19:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069716&amp;ptid=1712743" target="_blank">ゴロー 发表于 2018-6-21 19:59</a>
@@ -32508,25 +21796,13 @@ Gigguk一开始对ditf报以期待，吐槽了下姿势问题，后来13回吹�
 你们手丧心病狂！
 
 
-
-
-
-
-
 -----
 
 ####  zjylyy  
 ##### 3940#       发表于 2018-6-21 19:59
 
 
-
-
 宣布第二季那不更是喷爆了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -32535,15 +21811,9 @@ Gigguk一开始对ditf报以期待，吐槽了下姿势问题，后来13回吹�
 ##### 3941#       发表于 2018-6-21 19:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在才记得还有预告看，看来196也死不了，白发少女了，22搞定1556 心满，23集216重新上线，24cp爆破boss，闹着玩呢
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -32552,21 +21822,13 @@ Gigguk一开始对ditf报以期待，吐槽了下姿势问题，后来13回吹�
 ##### 3942#       发表于 2018-6-21 20:00
 
 
-
-
 怎么可能有第二季，BD捆绑OVA顶天了
-
-
-
-
-
 
 
 -----
 
 ####  hl8243  
 ##### 3943#       发表于 2018-6-21 20:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069716&amp;ptid=1712743" target="_blank">ゴロー 发表于 2018-06-21 19:59:08</a>
@@ -32578,26 +21840,15 @@ Gigguk一开始对ditf报以期待，吐槽了下姿势问题，后来13回吹�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  lanhao  
 ##### 3944#       发表于 2018-6-21 20:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069706&amp;ptid=1712743" target="_blank">Fnaygih 发表于 2018-6-21 19:58</a>
 宣布第二季就算了，这时候好歹要要有骨气吧，做出来什么就是什么，搞个第二季强行续真没什么意思 ...</blockquote>
 p：“看我们本来就计划把故事分成两季来讲的” 
-
-
-
-
-
 
 
 -----
@@ -32606,16 +21857,9 @@ p：“看我们本来就计划把故事分成两季来讲的”
 ##### 3945#       发表于 2018-6-21 20:01
 
 
-
-
 我倒是挺在意为啥9a成了这么个虚弱但是还有口气的状态。
 
 他要活蹦乱跳的还能引出些剧情，就这么躺着让13队的人照料，是为了表达13队的孩子都非常善良么……
-
-
-
-
-
 
 
 -----
@@ -32624,21 +21868,13 @@ p：“看我们本来就计划把故事分成两季来讲的”
 ##### 3946#       发表于 2018-6-21 20:01
 
 
-
-
 虽然完全不同，但追鲁鲁修第一集的时候也常常担心讲不完吗？
-
-
-
-
-
 
 
 -----
 
 ####  AminGly  
 ##### 3947#       发表于 2018-6-21 20:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069726&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-21 19:59</a>
@@ -32649,32 +21885,19 @@ p：“看我们本来就计划把故事分成两季来讲的”
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">寡母？！
 
 
-
-
-
-
-
 -----
 
 ####  dropdead  
 ##### 3948#       发表于 2018-6-21 20:02
 
 
-
-
 先把ML动画吐出来
-
-
-
-
-
 
 
 -----
 
 ####  栗悟饭177  
 ##### 3949#       发表于 2018-6-21 20:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069746&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 20:01</a>
@@ -32685,25 +21908,13 @@ p：“看我们本来就计划把故事分成两季来讲的”
 为了洗白啊
 
 
-
-
-
-
-
 -----
 
 ####  skives  
 ##### 3950#       发表于 2018-6-21 20:03
 
 
-
-
 阿尔法深受感动，决定把自己的大脑捐出去
-
-
-
-
-
 
 
 -----
@@ -32712,14 +21923,7 @@ p：“看我们本来就计划把故事分成两季来讲的”
 ##### 3951#       发表于 2018-6-21 20:03
 
 
-
-
 大家都是好孩子。看韭黄一副要死的样子，13队也就不和他计较心满了
-
-
-
-
-
 
 
 -----
@@ -32728,24 +21932,16 @@ p：“看我们本来就计划把故事分成两季来讲的”
 ##### 3952#       发表于 2018-6-21 20:03
 
 
-
-
 不过没有建国还行，继续巨婴日常回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 第二季是不可能的，要完美致敬eva，4部剧场版走起<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3953#       发表于 2018-6-21 20:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069766&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-21 20:02</a>
@@ -32759,16 +21955,10 @@ p：“看我们本来就计划把故事分成两季来讲的”
 ……话说他都这样了，口罩妹估计<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3954#       发表于 2018-6-21 20:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069752&amp;ptid=1712743" target="_blank">AminGly 发表于 2018-6-21 20:01</a>
@@ -32777,16 +21967,10 @@ p：“看我们本来就计划把故事分成两季来讲的”
 α不认爹
 
 
-
-
-
-
-
 -----
 
 ####  lanhao  
 ##### 3955#       发表于 2018-6-21 20:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069768&amp;ptid=1712743" target="_blank">skives 发表于 2018-6-21 20:03</a>
@@ -32794,16 +21978,10 @@ p：“看我们本来就计划把故事分成两季来讲的”
 成了 第二季达令在三体
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3956#       发表于 2018-6-21 20:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069210&amp;ptid=1712743" target="_blank">davidcch12 发表于 2018-6-21 19:00</a>
@@ -32813,27 +21991,15 @@ p：“看我们本来就计划把故事分成两季来讲的”
 他们还活着吗……？<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  细雪之舞  
 ##### 3957#       发表于 2018-6-21 20:05
 
 
-
-
 第二季  Darling in the Universe
 
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0
-
-
-
-
-
 
 
 -----
@@ -32842,16 +22008,9 @@ p：“看我们本来就计划把故事分成两季来讲的”
 ##### 3958#       发表于 2018-6-21 20:06
 
 
-
-
 9黄终于跟390有互动了
 
 这样九黄就达成了和13小队五个女孩子都有互动的成就，可喜可贺<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -32860,21 +22019,13 @@ p：“看我们本来就计划把故事分成两季来讲的”
 ##### 3959#       发表于 2018-6-21 20:06
 
 
-
-
 小红小蓝口罩妹可能都老死在驾驶舱里了……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">α孤身一人
-
-
-
-
-
 
 
 -----
 
 ####  黑色蘑菇  
 ##### 3960#       发表于 2018-6-21 20:08
-
 
 
 <blockquote>华尔姬丽雅 发表于 2018-6-21 20:04
@@ -32888,16 +22039,10 @@ p：“看我们本来就计划把故事分成两季来讲的”
 这次先把祭品养好了 到时祭天让02还魂
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3961#       发表于 2018-6-21 20:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069716&amp;ptid=1712743" target="_blank">ゴロー 发表于 2018-6-21 19:59</a>
@@ -32910,32 +22055,19 @@ p：“看我们本来就计划把故事分成两季来讲的”
 虽然跟你也不熟，你记得把自己16，18话的flag拔掉啊<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3962#       发表于 2018-6-21 20:09
 
 
-
-
 我来帮α翻译：死黄毛从大和抚子身边死开啊啊
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 3963#       发表于 2018-6-21 20:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069775&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 20:04</a>
@@ -32946,25 +22078,13 @@ p：“看我们本来就计划把故事分成两季来讲的”
 <img src="https://i.loli.net/2018/06/21/5b2b95901b0b0.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  大江户战士  
 ##### 3964#       发表于 2018-6-21 20:10
 
 
-
-
 锦织为了凑个24集把吃奶的劲都使出来了，还拍第二季呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -32973,21 +22093,13 @@ p：“看我们本来就计划把故事分成两季来讲的”
 ##### 3965#       发表于 2018-6-21 20:11
 
 
-
-
 02卡疯化了 续作就叫DARLING IN THE FRANXXXX 然后OP就叫机人番じゃない吧
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 3966#       发表于 2018-6-21 20:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069815&amp;ptid=1712743" target="_blank">黑色蘑菇 发表于 2018-6-21 20:08</a>
@@ -33004,16 +22116,10 @@ p：“看我们本来就计划把故事分成两季来讲的”
 真大决战就死一个9a？寒酸了点吧……
 
 
-
-
-
-
-
 -----
 
 ####  黑色蘑菇  
 ##### 3967#       发表于 2018-6-21 20:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069829&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 20:09</a>
@@ -33024,16 +22130,10 @@ p：“看我们本来就计划把故事分成两季来讲的”
 先吃顿好到时jzgg就把你拉去祭天
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3968#       发表于 2018-6-21 20:12
-
 
 
  本帖最后由 9α 于 2018-6-21 20:14 编辑 
@@ -33047,25 +22147,13 @@ p：“看我们本来就计划把故事分成两季来讲的”
 <img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">这就是9队队长的命运啊
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 3969#       发表于 2018-6-21 20:12
 
 
-
-
 7,8,9最后一集可能都要走<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -33074,22 +22162,15 @@ p：“看我们本来就计划把故事分成两季来讲的”
 ##### 3970#       发表于 2018-6-21 20:16
 
 
-
 <blockquote>skives 发表于 2018-6-21 20:03
 阿尔法深受感动，决定把自己的大脑捐出去</blockquote>
 靠，我觉得这个可能性还真高
-
-
-
-
-
 
 
 -----
 
 ####  dropdead  
 ##### 3971#       发表于 2018-6-21 20:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069833&amp;ptid=1712743" target="_blank">大江户战士 发表于 2018-6-21 20:10</a>
@@ -33100,28 +22181,15 @@ p：“看我们本来就计划把故事分成两季来讲的”
 诶，又是15专楼的loop
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3972#       发表于 2018-6-21 20:18
 
 
-
 <img src="https://i.loli.net/2018/06/21/5b2b97615512a.jpg" referrerpolicy="no-referrer">
 是呢……为什么我还没死掉呢……
 大家……
-
-
-
-
-
-
-
 
 
 -----
@@ -33130,16 +22198,9 @@ p：“看我们本来就计划把故事分成两季来讲的”
 ##### 3973#       发表于 2018-6-21 20:21
 
 
-
-
 上次02开机把广弄上病床，这次是广把02弄上病床
 
 扯平了！
-
-
-
-
-
 
 
 -----
@@ -33148,14 +22209,7 @@ p：“看我们本来就计划把故事分成两季来讲的”
 ##### 3974#       发表于 2018-6-21 20:21
 
 
-
-
 被看不起的人类照顾，再加上身心都遭到摧残的窘迫，现在估计比死还难受吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -33164,23 +22218,16 @@ p：“看我们本来就计划把故事分成两季来讲的”
 ##### 3975#       发表于 2018-6-21 20:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069927&amp;ptid=1712743" target="_blank">Fnaygih 发表于 2018-6-21 20:21</a>
 
 被看不起的人类照顾，再加上身心都遭到摧残的窘迫，现在估计比死还难受吧 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">韭黄：我已经累了 对所有事情  papa也好 9s们也好
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 3976#       发表于 2018-6-21 20:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069924&amp;ptid=1712743" target="_blank">AminGly 发表于 2018-6-21 20:21</a>
@@ -33191,32 +22238,19 @@ p：“看我们本来就计划把故事分成两季来讲的”
 这里也可以对仗？
 
 
-
-
-
-
-
 -----
 
 ####  Fnaygih  
 ##### 3977#       发表于 2018-6-21 20:23
 
 
-
-
 九黄下一集说不定还会躺在床上碎碎念“杀了我，杀了我.....”<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  mumubear  
 ##### 3978#       发表于 2018-6-21 20:26
-
 
 
  本帖最后由 mumubear 于 2018-6-21 20:28 编辑 
@@ -33242,16 +22276,10 @@ p：“看我们本来就计划把故事分成两季来讲的”
 消耗太多了。。。
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3979#       发表于 2018-6-21 20:29
-
 
 
 <blockquote>mumubear 发表于 2018-6-21 20:26
@@ -33263,32 +22291,19 @@ p：“看我们本来就计划把故事分成两季来讲的”
 这个有道理，蓝红如果没死估计也是郁乃那样过消耗了……黄更生猛但也老的更厉害
 
 
-
-
-
-
-
 -----
 
 ####  royalblue1127  
 ##### 3980#       发表于 2018-6-21 20:31
 
 
-
-
 α依旧不能算作人类，虽然打叫龙消耗挺大的，变成这样子是不是也和02被吸走魂魄有关联啊？
-
-
-
-
-
 
 
 -----
 
 ####  AminGly  
 ##### 3981#       发表于 2018-6-21 20:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069946&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-21 20:23</a>
@@ -33299,32 +22314,19 @@ p：“看我们本来就计划把故事分成两季来讲的”
 很工整吧，你看还能显示女主的小脾气
 
 
-
-
-
-
-
 -----
 
 ####  Code:703  
 ##### 3982#       发表于 2018-6-21 20:31
 
 
-
-
 5对cp齐塞狗粮。
-
-
-
-
-
 
 
 -----
 
 ####  soulife7  
 ##### 3983#       发表于 2018-6-21 20:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069900&amp;ptid=1712743" target="_blank">9α 发表于 2018-06-21 20:18:20</a>
@@ -33334,25 +22336,13 @@ p：“看我们本来就计划把故事分成两季来讲的”
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  skives  
 ##### 3984#       发表于 2018-6-21 20:33
 
 
-
-
 再也没有什么02回忆回了
-
-
-
-
-
 
 
 -----
@@ -33361,23 +22351,15 @@ p：“看我们本来就计划把故事分成两季来讲的”
 ##### 3985#       发表于 2018-6-21 20:33
 
 
-
 <img src="https://i.loli.net/2018/06/21/5b2b97615512a.jpg" referrerpolicy="no-referrer">
 让我死掉吧……
 大家走了，papa也不要我了，活着还有什么意义……
-
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 3986#       发表于 2018-6-21 20:33
-
 
 
 <blockquote>mumubear 发表于 2018-6-21 20:26
@@ -33391,26 +22373,15 @@ p：“看我们本来就计划把故事分成两季来讲的”
 不然应该先缺油宕机吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  royalblue1127  
 ##### 3987#       发表于 2018-6-21 20:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070032&amp;ptid=1712743" target="_blank">Code:703 发表于 2018-6-21 20:31</a>
 5对cp齐塞狗粮。</blockquote>
 好像塞不下你的戏份了
-
-
-
-
-
 
 
 -----
@@ -33419,16 +22390,10 @@ p：“看我们本来就计划把故事分成两季来讲的”
 ##### 3988#       发表于 2018-6-21 20:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070047&amp;ptid=1712743" target="_blank">skives 发表于 2018-6-21 20:33</a>
 再也没有什么02回忆回了</blockquote>
 听我一句……
 粉黄真的能救国啊……
-
-
-
-
-
 
 
 -----
@@ -33437,16 +22402,10 @@ p：“看我们本来就计划把故事分成两季来讲的”
 ##### 3989#       发表于 2018-6-21 20:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070047&amp;ptid=1712743" target="_blank">skives 发表于 2018-6-21 20:33</a>
 
 再也没有什么02回忆回了</blockquote>
 ed6出来的那一刻就该意识到了，已经完了
-
-
-
-
-
 
 
 -----
@@ -33455,21 +22414,13 @@ ed6出来的那一刻就该意识到了，已经完了
 ##### 3990#       发表于 2018-6-21 20:35
 
 
-
-
 观星者：每一个死去的汁男都会化成天上的一颗星星
-
-
-
-
-
 
 
 -----
 
 ####  黑色蘑菇  
 ##### 3991#       发表于 2018-6-21 20:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070058&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-21 20:33</a>
@@ -33480,17 +22431,10 @@ ed6出来的那一刻就该意识到了，已经完了
 <img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">不是圆10那样的神回 救不了
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 3992#       发表于 2018-6-21 20:36
-
-
 
 
 β……
@@ -33499,16 +22443,10 @@ ed6出来的那一刻就该意识到了，已经完了
 你们还在吗……
 
 
-
-
-
-
-
 -----
 
 ####  lanhao  
 ##### 3993#       发表于 2018-6-21 20:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070084&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 20:36</a>
@@ -33518,17 +22456,10 @@ ed6出来的那一刻就该意识到了，已经完了
 口罩妹也有名字的呀
 
 
-
-
-
-
-
 -----
 
 ####  skives  
 ##### 3994#       发表于 2018-6-21 20:40
-
-
 
 
 再怎么说呢，网管之类的前几集都能看出不妙。
@@ -33537,32 +22468,19 @@ ditf从前半部分来看，顺理成章地发展下去，不去选择最low的�
 现在真的就是缺一个烂梗了。
 
 
-
-
-
-
-
 -----
 
 ####  AminGly  
 ##### 3995#       发表于 2018-6-21 20:44
 
 
-
-
 说起来，为什么7和8喊他们是喊名字的，小孩子的称呼不是应该不能随便改的吗，7和8怎么喊名字喊的那么自然啊
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 3996#       发表于 2018-6-21 20:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070121&amp;ptid=1712743" target="_blank">lanhao 发表于 2018-6-21 20:40</a>
@@ -33574,16 +22492,10 @@ ditf从前半部分来看，顺理成章地发展下去，不去选择最low的�
 但3个都叫zeta总觉得怪怪的还是叫口罩妹们吧
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 3997#       发表于 2018-6-21 20:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070172&amp;ptid=1712743" target="_blank">AminGly 发表于 2018-6-21 20:44</a>
@@ -33594,16 +22506,10 @@ ditf从前半部分来看，顺理成章地发展下去，不去选择最low的�
 或者就是万能的博士特权呗。
 
 
-
-
-
-
-
 -----
 
 ####  AminGly  
 ##### 3998#       发表于 2018-6-21 20:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070178&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 20:44</a>
@@ -33614,16 +22520,10 @@ ditf从前半部分来看，顺理成章地发展下去，不去选择最low的�
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哎，博士一死很多东西就不用细说了呢（真方便）
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 3999#       发表于 2018-6-21 20:45
-
 
 
 <blockquote>AminGly 发表于 2018-6-21 20:44
@@ -33631,16 +22531,10 @@ ditf从前半部分来看，顺理成章地发展下去，不去选择最low的�
 新7就是喊代号的，以前估计是博士同意甚至要求的吧
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 4000#       发表于 2018-6-21 20:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070129&amp;ptid=1712743" target="_blank">skives 发表于 2018-6-21 20:40</a>
@@ -33651,33 +22545,20 @@ ditf从前半部分来看，顺理成章地发展下去，不去选择最low的�
 与其每天被人 王之力 希望之花 还不如被人遗忘呢<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 4001#       发表于 2018-6-21 20:49
 
 
-
-
 除了莓良心 
 国家队还有什么梗么
-
-
-
-
-
 
 
 -----
 
 ####  Mr.BBWoLf  
 ##### 4002#       发表于 2018-6-21 20:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070230&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-21 20:49</a>
@@ -33688,16 +22569,10 @@ ditf从前半部分来看，顺理成章地发展下去，不去选择最low的�
 扯平了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑色蘑菇  
 ##### 4003#       发表于 2018-6-21 20:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070230&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-21 20:49</a>
@@ -33708,16 +22583,10 @@ ditf从前半部分来看，顺理成章地发展下去，不去选择最low的�
 肥仔<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 4004#       发表于 2018-6-21 20:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070186&amp;ptid=1712743" target="_blank">AminGly 发表于 2018-6-21 20:45</a>
@@ -33728,30 +22597,17 @@ ditf从前半部分来看，顺理成章地发展下去，不去选择最low的�
 还能指望一个答案么。
 
 
-
-
-
-
-
 -----
 
 ####  lanhao  
 ##### 4005#       发表于 2018-6-21 20:55
 
 
-
-
 9a
-
-
-
-
 
 
 E9832A5F-1154-4B44-A186-78D727331991.jpeg
 (92.56 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -33760,24 +22616,7 @@ E9832A5F-1154-4B44-A186-78D727331991.jpeg
 2018-6-21 20:55 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/21/205507dpkjotjqpbpjpbtb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -33786,16 +22625,10 @@ E9832A5F-1154-4B44-A186-78D727331991.jpeg
 ##### 4006#       发表于 2018-6-21 20:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070282&amp;ptid=1712743" target="_blank">lanhao 发表于 2018-6-21 20:55</a>
 
 9a</blockquote>
 粉黄的孩子？？？
-
-
-
-
-
 
 
 -----
@@ -33804,21 +22637,13 @@ E9832A5F-1154-4B44-A186-78D727331991.jpeg
 ##### 4007#       发表于 2018-6-21 20:59
 
 
-
-
 为什么进行情感实验不是明摆着吗
-
-
-
-
-
 
 
 -----
 
 ####  cbx0707  
 ##### 4008#       发表于 2018-6-21 20:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40069671&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 19:54</a>
@@ -33829,26 +22654,15 @@ E9832A5F-1154-4B44-A186-78D727331991.jpeg
 这种小细节在我们看不到的私下里她们应该已经互动过形成共识了吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 4009#       发表于 2018-6-21 21:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070304&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-21 20:58</a>
 粉黄的孩子？？？</blockquote>
 广02的孩子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -33857,14 +22671,7 @@ E9832A5F-1154-4B44-A186-78D727331991.jpeg
 ##### 4010#       发表于 2018-6-21 21:02
 
 
-
-
 口罩妹为什么有3个，9队为什么有长得很像1615的人，这些问题都没后续了
-
-
-
-
-
 
 
 -----
@@ -33873,24 +22680,16 @@ E9832A5F-1154-4B44-A186-78D727331991.jpeg
 ##### 4011#       发表于 2018-6-21 21:03
 
 
-
-
 我想了想 下集02去看星星
 阿广跟着
 然后02忽然开始唱一首也好听的歌
 我就原谅锦织哥哥
 
 
-
-
-
-
-
 -----
 
 ####  lanhao  
 ##### 4012#       发表于 2018-6-21 21:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070349&amp;ptid=1712743" target="_blank">skives 发表于 2018-6-21 21:03</a>
@@ -33900,27 +22699,15 @@ E9832A5F-1154-4B44-A186-78D727331991.jpeg
 似曾相识的话在楼里出现过多少次了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  soulife7  
 ##### 4013#       发表于 2018-6-21 21:08
 
 
-
-
 如果高雄都倒了，是不是只有mato老师能够救国了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -33929,22 +22716,15 @@ E9832A5F-1154-4B44-A186-78D727331991.jpeg
 ##### 4014#       发表于 2018-6-21 21:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070374&amp;ptid=1712743" target="_blank">lanhao 发表于 2018-6-21 21:05</a>
 似曾相识的话在楼里出现过多少次了</blockquote>
 反正都这样了，弄点浪漫的小片段不也挺好
-
-
-
-
-
 
 
 -----
 
 ####  hl8243  
 ##### 4015#       发表于 2018-6-21 21:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070389&amp;ptid=1712743" target="_blank">soulife7 发表于 2018-06-21 21:08:08</a>
@@ -33954,17 +22734,10 @@ E9832A5F-1154-4B44-A186-78D727331991.jpeg
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 4016#       发表于 2018-6-21 21:14
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/21/210639qgcgfh55zhgc0gf3.jpg" referrerpolicy="no-referrer">
@@ -33977,10 +22750,6 @@ E9832A5F-1154-4B44-A186-78D727331991.jpeg
 2018-6-21 21:06 上传
 
 
-
-
-
-
 仔细看，这里56是哭了啊（眼中含泪）。
 
 上次他这么哭的时候，是以为自己快死了结果被莓救了给感动的。上次广长了蓝瘤子高烧快死了，被56发现后，也没见56哭。
@@ -33990,16 +22759,10 @@ E9832A5F-1154-4B44-A186-78D727331991.jpeg
 这里到底广是做了啥/说了啥才能让56这么激动啊……
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 4017#       发表于 2018-6-21 21:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070462&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 21:14</a>
@@ -34009,16 +22772,10 @@ E9832A5F-1154-4B44-A186-78D727331991.jpeg
 我以我命换灵儿
 
 
-
-
-
-
-
 -----
 
 ####  lanhao  
 ##### 4018#       发表于 2018-6-21 21:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070427&amp;ptid=1712743" target="_blank">skives 发表于 2018-6-21 21:11</a>
@@ -34026,16 +22783,10 @@ E9832A5F-1154-4B44-A186-78D727331991.jpeg
 说过只要xxx我就原谅锦织的人 你有看到回来反应的吗 不存在的 期待锦织不如对着莓星许愿
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 4019#       发表于 2018-6-21 21:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070462&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 21:14</a>
@@ -34052,16 +22803,10 @@ E9832A5F-1154-4B44-A186-78D727331991.jpeg
 不过这之后应该劝回来了（or奇迹发生02会动了），夜晚广就换上劳动装去找02了。
 
 
-
-
-
-
-
 -----
 
 ####  ゴロー  
 ##### 4020#       发表于 2018-6-21 21:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070462&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 21:14</a>
@@ -34072,26 +22817,15 @@ E9832A5F-1154-4B44-A186-78D727331991.jpeg
 广为了救02，向virm投降了之类的...？
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4021#       发表于 2018-6-21 21:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070512&amp;ptid=1712743" target="_blank">ゴロー 发表于 2018-6-21 21:20</a>
 广为了救02，向virm投降了之类的...？</blockquote>
 56：为了最喜欢的你（16）
-
-
-
-
-
 
 
 -----
@@ -34100,21 +22834,13 @@ E9832A5F-1154-4B44-A186-78D727331991.jpeg
 ##### 4022#       发表于 2018-6-21 21:22
 
 
-
-
 长恨歌走起<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Mr.BBWoLf  
 ##### 4023#       发表于 2018-6-21 21:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070462&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 21:14</a>
@@ -34128,16 +22854,10 @@ E9832A5F-1154-4B44-A186-78D727331991.jpeg
 ape残党不愿面对现实要求鸟巢对广02两位毒瘤进行处决<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 4024#       发表于 2018-6-21 21:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070510&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 21:19</a>
@@ -34147,16 +22867,10 @@ ape残党不愿面对现实要求鸟巢对广02两位毒瘤进行处决<img src=
 殉情吗？可是02顶多是个植物人状态吧，正常逻辑应该是好好照顾吧？殉情的话，广总不能自己去死，留下植物人02一个人呆着吧……带着02一起死更不可能啊……
 
 
-
-
-
-
-
 -----
 
 ####  [A]ZuZe  
 ##### 4025#       发表于 2018-6-21 21:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070510&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-06-21 21:19:57</a>
@@ -34171,27 +22885,15 @@ ape残党不愿面对现实要求鸟巢对广02两位毒瘤进行处决<img src=
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  soulife7  
 ##### 4026#       发表于 2018-6-21 21:24
 
 
-
-
 完了，这等于说下集就是一天的故事，最后给3分钟锦织超展开<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -34200,23 +22902,16 @@ ape残党不愿面对现实要求鸟巢对广02两位毒瘤进行处决<img src=
 ##### 4027#       发表于 2018-6-21 21:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070489&amp;ptid=1712743" target="_blank">lanhao 发表于 2018-6-21 21:17</a>
 
 说过只要xxx我就原谅锦织的人 你有看到回来反应的吗 不存在的 期待锦织不如对着莓星许愿 ...</blockquote>
 我们都以为自己的期望够低了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">结果并没有实现
 
 
-
-
-
-
-
 -----
 
 ####  soulife7  
 ##### 4028#       发表于 2018-6-21 21:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070553&amp;ptid=1712743" target="_blank">[A]ZuZe 发表于 2018-06-21 21:23:57</a>
@@ -34226,33 +22921,20 @@ ape残党不愿面对现实要求鸟巢对广02两位毒瘤进行处决<img src=
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 4029#       发表于 2018-6-21 21:25
 
 
-
-
 我现在想看心满戏又怕看到心满戏<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 jzgg真是会玩
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 4030#       发表于 2018-6-21 21:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070526&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 21:21</a>
@@ -34262,17 +22944,10 @@ jzgg真是会玩
 然而五广假药大概不可能成真了……
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 4031#       发表于 2018-6-21 21:26
-
-
 
 
 话说预告很刻意地按照时间顺序剪了啊……不知道故事里是不是也是这个顺序：
@@ -34291,24 +22966,13 @@ jzgg真是会玩
 夜晚，16找到看星星的02。
 
 
-
-
-
-
-
 -----
 
 ####  dzrykh  
 ##### 4032#       发表于 2018-6-21 21:27
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">故意没有给02的角镜头，估计是没有角了。
-
-
-
-
-
 
 
 -----
@@ -34317,21 +22981,13 @@ jzgg真是会玩
 ##### 4033#       发表于 2018-6-21 21:27
 
 
-
-
 画面上这么多飞行器是什么情况,大家各奔东西吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 4034#       发表于 2018-6-21 21:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070541&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 21:23</a>
@@ -34342,16 +22998,10 @@ jzgg真是会玩
 这里的疑点是上午阶段的广还挺正常的，黄昏眼神就不对了，要么是这之间又跳了一段时间02状况恶化广的状况也恶化，要么就是发生了什么事情刺激了广。
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 4035#       发表于 2018-6-21 21:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070472&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-21 21:14</a>
@@ -34359,16 +23009,10 @@ jzgg真是会玩
 有可能……不过怎么换……
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 4036#       发表于 2018-6-21 21:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070602&amp;ptid=1712743" target="_blank">Fnaygih 发表于 2018-6-21 21:27</a>
@@ -34380,25 +23024,13 @@ jzgg真是会玩
 诡异的是开头的叫龙飞弹……可能是001死后还活着的叫龙进入彻底的混乱状态了？
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 4037#       发表于 2018-6-21 21:29
 
 
-
-
 可能是阿广又回到自我满足状态，被五郎批判一番
-
-
-
-
-
 
 
 -----
@@ -34407,24 +23039,16 @@ jzgg真是会玩
 ##### 4038#       发表于 2018-6-21 21:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070607&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 21:28</a>
 有可能……不过怎么换……</blockquote>
 他是龙，总有办法……
 我倒是希望阿广找死之前能够把自己和草莓亲吻两次的事实告诉五郎<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 4039#       发表于 2018-6-21 21:32
-
-
 
 
 到底是什么事情。根本猜不到
@@ -34434,16 +23058,10 @@ jzgg真是会玩
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  [A]ZuZe  
 ##### 4040#       发表于 2018-6-21 21:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070620&amp;ptid=1712743" target="_blank">davidcch12 发表于 2018-06-21 21:29:38</a>
@@ -34452,25 +23070,13 @@ jzgg真是会玩
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  hanshanwulu  
 ##### 4041#       发表于 2018-6-21 21:32
 
 
-
-
 噫！我康了！我康了！我康了国22了！神回！
-
-
-
-
-
 
 
 -----
@@ -34479,16 +23085,10 @@ jzgg真是会玩
 ##### 4042#       发表于 2018-6-21 21:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070645&amp;ptid=1712743" target="_blank">hanshanwulu 发表于 2018-06-21 21:32:49</a>
 噫！我康了！我康了！我康了国22了！神回！</blockquote>直接埋了吧<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -34497,14 +23097,7 @@ jzgg真是会玩
 ##### 4043#       发表于 2018-6-21 21:33
 
 
-
-
 想到当年初代马裤螺丝最后几集，地球被摧毁后也是一群男女在玩贵乱，不过河森的水平还是高一点吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -34513,21 +23106,13 @@ jzgg真是会玩
 ##### 4044#       发表于 2018-6-21 21:35
 
 
-
-
 这样发展感觉挺正常，不然只能跳时间线了
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 4045#       发表于 2018-6-21 21:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070620&amp;ptid=1712743" target="_blank">davidcch12 发表于 2018-6-21 21:29</a>
@@ -34541,17 +23126,10 @@ jzgg真是会玩
 难道说其实这时候02已经非常恶化（假死了一次之类？），或者其实时间线是乱序，02看星星完后，神明附身般地说了要做某件事，阿广决定听02的，于是要做一件非常不合常理的事情？
 
 
-
-
-
-
-
 -----
 
 ####  CODE:016  
 ##### 4046#       发表于 2018-6-21 21:38
-
-
 
 
 其实我现在猜不透的就是现状的突破口在哪里。02的意识多半是和鹤望兰融合在一起了，怎么才能把02的意识捞回来是个问题啊。目前有关意识消失的信息就是——广曾经失去过意识，并且在下机后意识恢复了，但是怎么利用这个信息救02是个问题啊.......<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -34559,16 +23137,10 @@ jzgg真是会玩
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  [A]ZuZe  
 ##### 4047#       发表于 2018-6-21 21:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070687&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-06-21 21:38:03</a>
@@ -34578,25 +23150,13 @@ jzgg真是会玩
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  大江户战士  
 ##### 4048#       发表于 2018-6-21 21:39
 
 
-
-
 这两天读了夏目漱石的《心》，才知道乃木坂是为了纪念乃木希典而命名的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -34605,14 +23165,7 @@ jzgg真是会玩
 ##### 4049#       发表于 2018-6-21 21:39
 
 
-
-
 能给个阿广一个抱02出舱的镜头就满足了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -34621,16 +23174,10 @@ jzgg真是会玩
 ##### 4050#       发表于 2018-6-21 21:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070689&amp;ptid=1712743" target="_blank">CODE:016 发表于 2018-6-21 21:38</a>
 
 其实我现在猜不透的就是现状的突破口在哪里。02的意识多半是和鹤望兰融合在一起了，怎么才能把02的意识捞回 ...</blockquote>
 带02上机——单人启动——意识突入鹤望兰——把人找回来，完事。
-
-
-
-
-
 
 
 -----
@@ -34639,16 +23186,9 @@ jzgg真是会玩
 ##### 4051#       发表于 2018-6-21 21:43
 
 
-
-
 不是ape被抽走了吗，现在大人到底谁在管事？不会是八八吧
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -34657,16 +23197,9 @@ jzgg真是会玩
 ##### 4052#       发表于 2018-6-21 21:43
 
 
-
-
 我又复习了一下预告。。满这敲门如果不敲下去，怕是还能拖到23话<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
 jzgg快让配角回归配角吧<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -34675,16 +23208,10 @@ jzgg快让配角回归配角吧<img src="https://static.saraba1st.com/image/smil
 ##### 4053#       发表于 2018-6-21 21:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070512&amp;ptid=1712743" target="_blank">ゴロー 发表于 2018-6-21 21:20</a>
 
 广为了救02，向virm投降了之类的...？</blockquote>
 上一个向敌军投降的奥尔加已经low穿地心了
-
-
-
-
-
 
 
 -----
@@ -34693,16 +23220,9 @@ jzgg快让配角回归配角吧<img src="https://static.saraba1st.com/image/smil
 ##### 4054#       发表于 2018-6-21 21:44
 
 
-
-
 02香与广真嗣<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -34711,16 +23231,10 @@ jzgg快让配角回归配角吧<img src="https://static.saraba1st.com/image/smil
 ##### 4055#       发表于 2018-6-21 21:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070720&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-06-21 21:40:24</a>
 带02上机——单人启动——意识突入鹤望兰——把人找回来，完事。</blockquote>站在观众视角，融进去的条件不明，出来的条件也不明，就这么找回来总感觉不太合适，而且广要是直接上机找意识结过还找回来了，这不和五郎在15集的看剧本操作类似啊......感觉下一话应该挺关键的，看锦织哥哥的表演了。
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -34729,16 +23243,10 @@ jzgg快让配角回归配角吧<img src="https://static.saraba1st.com/image/smil
 ##### 4056#       发表于 2018-6-21 21:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070763&amp;ptid=1712743" target="_blank">AminGly 发表于 2018-6-21 21:44</a>
 
 上一个向敌军投降的奥尔加已经low穿地心了</blockquote>
 上上个卖了男主向敌人投降的翔皇已经……<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -34747,15 +23255,9 @@ jzgg快让配角回归配角吧<img src="https://static.saraba1st.com/image/smil
 ##### 4057#       发表于 2018-6-21 21:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070785&amp;ptid=1712743" target="_blank">davidcch12 发表于 2018-6-21 21:46</a>
 上上个卖了男主向敌人投降的翔皇已经……</blockquote>
 成皇了<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -34764,16 +23266,9 @@ jzgg快让配角回归配角吧<img src="https://static.saraba1st.com/image/smil
 ##### 4058#       发表于 2018-6-21 21:48
 
 
-
-
 我现在就想周日看上周那帮老外是什么表情，上集结尾的反应太有趣了
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -34782,14 +23277,7 @@ jzgg快让配角回归配角吧<img src="https://static.saraba1st.com/image/smil
 ##### 4059#       发表于 2018-6-21 21:49
 
 
-
-
 是时候让草莓表演一把什么叫活（mei）着（sha）才有输出了
-
-
-
-
-
 
 
 -----
@@ -34798,16 +23286,10 @@ jzgg快让配角回归配角吧<img src="https://static.saraba1st.com/image/smil
 ##### 4060#       发表于 2018-6-21 21:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070817&amp;ptid=1712743" target="_blank">Kokichi 发表于 2018-06-21 21:49:07</a>
 是时候让草莓表演一把什么叫活（mei）着（sha）才有输出了</blockquote>这集要是莓再f2a一次我就把后三卷也买了hhhhhh<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -34816,23 +23298,16 @@ jzgg快让配角回归配角吧<img src="https://static.saraba1st.com/image/smil
 ##### 4061#       发表于 2018-6-21 21:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070779&amp;ptid=1712743" target="_blank">CODE:016 发表于 2018-6-21 21:46</a>
 站在观众视角，融进去的条件不明，出来的条件也不明，就这么找回来总感觉不太合适，而且广要是直接上机找意 ...</blockquote>
 这集让02最后说个想上鹤望兰/想和达令一起看星星就行了。
 至于条件不明，在lovelove抛瓦的世界里这根本不是问题，你说广死马当活马医成功了和他忽然无师自通扯淡一番弗兰克斯原理然后成功，哪个更顺畅？
 
 
-
-
-
-
-
 -----
 
 ####  黑色蘑菇  
 ##### 4062#       发表于 2018-6-21 21:51
-
 
 
 <blockquote>Kokichi 发表于 2018-6-21 21:49
@@ -34842,25 +23317,13 @@ jzgg快让配角回归配角吧<img src="https://static.saraba1st.com/image/smil
 广疯掉 小草莓推着轮椅上的16看莓良星
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 4063#       发表于 2018-6-21 21:53
 
 
-
-
 结局五郎和莓一人推一个轮椅，坐着傻灵儿和疯阿广……画面太美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -34869,15 +23332,9 @@ jzgg快让配角回归配角吧<img src="https://static.saraba1st.com/image/smil
 ##### 4064#       发表于 2018-6-21 21:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070848&amp;ptid=1712743" target="_blank">davidcch12 发表于 2018-6-21 21:53</a>
 结局五郎和莓一人推一个轮椅，坐着傻灵儿和疯阿广……画面太美</blockquote>
 太疯了，你们两个<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -34886,23 +23343,15 @@ jzgg快让配角回归配角吧<img src="https://static.saraba1st.com/image/smil
 ##### 4065#       发表于 2018-6-21 21:56
 
 
-
-
 住手！这不是武侠！
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  Mr.BBWoLf  
 ##### 4066#       发表于 2018-6-21 21:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070689&amp;ptid=1712743" target="_blank">CODE:016 发表于 2018-6-21 21:38</a>
@@ -34915,16 +23364,10 @@ jzgg快让配角回归配角吧<img src="https://static.saraba1st.com/image/smil
 咱们认为02的意识和鹤望兰融合在一起 √
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 4067#       发表于 2018-6-21 21:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070754&amp;ptid=1712743" target="_blank">Meteors 发表于 2018-6-21 21:43</a>
@@ -34934,33 +23377,19 @@ jzgg快让配角回归配角吧 ...</blockquote>
 肯定拖到最后一话啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dzrykh  
 ##### 4068#       发表于 2018-6-21 22:00
 
 
-
-
 微博一个评论说这集凑齐了老弱病残孕<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 4069#       发表于 2018-6-21 22:03
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/21/220251yabeejrpsu76rl67.png" referrerpolicy="no-referrer">
@@ -34973,25 +23402,15 @@ jzgg快让配角回归配角吧 ...</blockquote>
 2018-6-21 22:02 上传
 
 
-
-
-
-
 手里的布上有血
 
 9a的？心的？还是？？
-
-
-
-
-
 
 
 -----
 
 ####  hl8243  
 ##### 4070#       发表于 2018-6-21 22:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070917&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-06-21 22:03:27</a>
@@ -35002,17 +23421,10 @@ jzgg快让配角回归配角吧 ...</blockquote>
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  CODE:016  
 ##### 4071#       发表于 2018-6-21 22:05
-
-
 
 
 9α这角色也是有够不容易的，希望跳反之后能有一个好结局吧
@@ -35020,16 +23432,10 @@ jzgg快让配角回归配角吧 ...</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 4072#       发表于 2018-6-21 22:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070917&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 22:03</a>
@@ -35044,16 +23450,10 @@ jzgg快让配角回归配角吧 ...</blockquote>
 可能是终于杀到动不了了（别问哪来那么多能源）被孩子们救回去，然后血是当时他身上带的。
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 4073#       发表于 2018-6-21 22:06
-
 
 
 <blockquote>dzrykh 发表于 2018-6-21 22:00
@@ -35070,16 +23470,10 @@ jzgg快让配角回归配角吧 ...</blockquote>
 残是谁呢
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 4074#       发表于 2018-6-21 22:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070945&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 22:06</a>
@@ -35091,16 +23485,10 @@ jzgg快让配角回归配角吧 ...</blockquote>
 02脑残也是残啊
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 4075#       发表于 2018-6-21 22:09
-
 
 
 <blockquote>华尔姬丽雅 发表于 2018-6-21 22:05
@@ -35110,16 +23498,10 @@ jzgg快让配角回归配角吧 ...</blockquote>
 如果是α这边，也可能δε死无全尸，α去收集了他们的血<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  曾经的小书  
 ##### 4076#       发表于 2018-6-21 22:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070945&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 22:06</a>
@@ -35131,16 +23513,10 @@ jzgg快让配角回归配角吧 ...</blockquote>
 满吧……
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 4077#       发表于 2018-6-21 22:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070972&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-21 22:09</a>
@@ -35149,16 +23525,10 @@ jzgg快让配角回归配角吧 ...</blockquote>
 或者9a正杀得爽，发现背后的复制人不会动了，解开口罩吐了他一身血……
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 4078#       发表于 2018-6-21 22:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070945&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-06-21 22:06:12</a>
@@ -35177,16 +23547,10 @@ jzgg快让配角回归配角吧 ...</blockquote>
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 4079#       发表于 2018-6-21 22:12
-
 
 
 <blockquote>华尔姬丽雅 发表于 2018-6-21 22:10
@@ -35194,16 +23558,10 @@ jzgg快让配角回归配角吧 ...</blockquote>
 我更好奇这状况九式会不会兽化……好像比锦织还狠
 
 
-
-
-
-
-
 -----
 
 ####  c1ymo  
 ##### 4080#       发表于 2018-6-21 22:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070576&amp;ptid=1712743" target="_blank">Meteors 发表于 2018-06-21 21:25:28</a>
@@ -35214,16 +23572,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 4081#       发表于 2018-6-21 22:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071004&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-21 22:12</a>
@@ -35232,16 +23584,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 喷了，老弱病残孕齐了可还行
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4082#       发表于 2018-6-21 22:15
-
 
 
 <img src="https://i.loli.net/2018/06/21/5b2bb2f420b07.jpg" referrerpolicy="no-referrer">
@@ -35250,32 +23596,19 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 要让我死就痛快点……
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 4083#       发表于 2018-6-21 22:15
 
 
-
-
 02又不穿鞋乱跑<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 4084#       发表于 2018-6-21 22:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071027&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 22:15</a>
@@ -35287,26 +23620,15 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">忍忍，还差纯未这对，再凑成一对就放你自由。
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4085#       发表于 2018-6-21 22:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071032&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-21 22:16</a>
 忍忍，还差纯未这对，再凑成一对就放你自由。</blockquote>
 过分，让我死掉吧。
-
-
-
-
-
 
 
 -----
@@ -35315,21 +23637,13 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 ##### 4086#       发表于 2018-6-21 22:17
 
 
-
-
 还是等完结再看吧..
-
-
-
-
-
 
 
 -----
 
 ####  hl8243  
 ##### 4087#       发表于 2018-6-21 22:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071027&amp;ptid=1712743" target="_blank">9α 发表于 2018-06-21 22:15:44</a>
@@ -35340,25 +23654,13 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 4088#       发表于 2018-6-21 22:18
 
 
-
-
 我估计9α成这样可能是饿的，#17时就没吃13小队的东西，我估计这群人可能是烧燃料的/爸爸专供的一些药剂——现在没了爸爸们，估计可能没燃料/药剂可以吃，所以成了这个样子。
-
-
-
-
-
 
 
 -----
@@ -35367,14 +23669,7 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 ##### 4089#       发表于 2018-6-21 22:18
 
 
-
-
 娜娜这是变成娜娜莉了？还有韭黄转过头看到的其实是失神梦游的02妈妈
-
-
-
-
-
 
 
 -----
@@ -35383,21 +23678,13 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 ##### 4090#       发表于 2018-6-21 22:18
 
 
-
-
 未来：我也要养一条小狼狗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 4091#       发表于 2018-6-21 22:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071038&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-21 22:17</a>
@@ -35408,16 +23695,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 还不如死掉。
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 4092#       发表于 2018-6-21 22:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071052&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-21 22:18</a>
@@ -35425,16 +23706,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 666这资质不行。。。。只能当儿子养<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 4093#       发表于 2018-6-21 22:20
-
 
 
 <blockquote>9α 发表于 2018-6-21 22:19
@@ -35444,16 +23719,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 那你只能选16了……
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 4094#       发表于 2018-6-21 22:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071055&amp;ptid=1712743" target="_blank">9α 发表于 2018-06-21 22:19:09</a>
@@ -35463,16 +23732,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 4095#       发表于 2018-6-21 22:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071058&amp;ptid=1712743" target="_blank">Meteors 发表于 2018-6-21 22:19</a>
@@ -35481,16 +23744,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 666肯定不行啊，我说的是韭黄
 
 
-
-
-
-
-
 -----
 
 ####  大江户战士  
 ##### 4096#       发表于 2018-6-21 22:21
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -35505,20 +23762,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 2018-6-21 22:21 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4097#       发表于 2018-6-21 22:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071063&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-21 22:20</a>
@@ -35532,16 +23779,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 说不定刚想通立马就被干掉了。
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 4098#       发表于 2018-6-21 22:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071066&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-21 22:21</a>
@@ -35549,16 +23790,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 噗。。。。韭黄资质很优秀<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4099#       发表于 2018-6-21 22:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071065&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-21 22:20</a>
@@ -35570,16 +23805,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 不存在那种感情。
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 4100#       发表于 2018-6-21 22:22
-
 
 
 <blockquote>9α 发表于 2018-6-21 22:21
@@ -35590,16 +23819,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 未来20集来看也算点了嘴炮技能，说不定best girl把你嘴炮了呢
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 4101#       发表于 2018-6-21 22:23
-
 
 
 <blockquote>玖瑶君 发表于 2018-6-21 22:22
@@ -35607,16 +23830,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 被556带出来的390回敬吗？
 
 
-
-
-
-
-
 -----
 
 ####  ゴロー  
 ##### 4102#       发表于 2018-6-21 22:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071027&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 22:15</a>
@@ -35632,17 +23849,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 不过也有可能在天国被直美拯救<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 4103#       发表于 2018-6-21 22:25
-
 
 
  本帖最后由 amulelernen 于 2018-6-21 22:26 编辑 
@@ -35658,16 +23868,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 然后666流下了悔恨的泪水；以后米库幸福地和韭黄一起开机，再也不用吃伤害了
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4104#       发表于 2018-6-21 22:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071106&amp;ptid=1712743" target="_blank">ゴロー 发表于 2018-6-21 22:24</a>
@@ -35680,16 +23884,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 要是真是390来我这里你一定嫉妒的要死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hanshanwulu  
 ##### 4105#       发表于 2018-6-21 22:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070848&amp;ptid=1712743" target="_blank">davidcch12 发表于 2018-6-21 21:53</a>
@@ -35718,16 +23916,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 　　莓轻轻拉了拉她的衣袖，做个手势，众人都悄悄退了开去，但见02在土坟上面南而坐，口中兀自喃喃不休。
 
 
-
-
-
-
-
 -----
 
 ####  IWS2000  
 ##### 4106#       发表于 2018-6-21 22:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071069&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-21 22:21</a>
@@ -35737,17 +23929,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 02妈妈会来拯救你的，虽然失去意识，但还是跑来看你了。听着你的哭诉，虽然表情还是无动于衷，但还是把你搂在怀里<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 4107#       发表于 2018-6-21 22:28
-
-
 
 
 都22集预告了
@@ -35757,16 +23942,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  zeal850910  
 ##### 4108#       发表于 2018-6-21 22:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070848&amp;ptid=1712743" target="_blank">davidcch12 发表于 2018-06-21 21:53:47</a>
@@ -35775,16 +23954,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4109#       发表于 2018-6-21 22:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071136&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-21 22:28</a>
@@ -35799,16 +23972,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 我不会跟任何人达成恋爱关系的。
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 4110#       发表于 2018-6-21 22:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071086&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 22:22</a>
@@ -35821,16 +23988,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 14集作战会议室直接看出莓的强欲不正常<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 4111#       发表于 2018-6-21 22:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071110&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-21 22:25</a>
@@ -35841,16 +24002,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 成了！（拍腿状
 
 
-
-
-
-
-
 -----
 
 ####  ゴロー  
 ##### 4112#       发表于 2018-6-21 22:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071265&amp;ptid=1712743" target="_blank">Meteors 发表于 2018-6-21 22:43</a>
@@ -35864,25 +24019,13 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 谁知道，说到底你倒是长高点啊<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  棒读  
 ##### 4113#       发表于 2018-6-21 22:49
 
 
-
-
 下集还是没有直美酱
-
-
-
-
-
 
 
 -----
@@ -35891,23 +24034,16 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 ##### 4114#       发表于 2018-6-21 22:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071293&amp;ptid=1712743" target="_blank">ゴロー 发表于 2018-06-21 22:46:53</a>
 呜呜呜呜，为什么啊太，为什么未来酱她会……</blockquote>历史是惊人的相似
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 4115#       发表于 2018-6-21 22:52
-
 
 
 <blockquote>ゴロー 发表于 2018-6-21 22:46
@@ -35921,16 +24057,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 你身高最高身材也好长相也帅性格也好……不也没啥用么（目前为止）
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 4116#       发表于 2018-6-21 22:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071313&amp;ptid=1712743" target="_blank">棒读 发表于 2018-06-21 22:49:38</a>
@@ -35939,25 +24069,13 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  栗悟饭177  
 ##### 4117#       发表于 2018-6-21 22:54
 
 
-
-
 赌五毛直美之后会出来一次
-
-
-
-
-
 
 
 -----
@@ -35966,14 +24084,7 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 ##### 4118#       发表于 2018-6-21 22:57
 
 
-
-
 求求你们了不要再让直美出来了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">。
-
-
-
-
-
 
 
 -----
@@ -35982,14 +24093,7 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 ##### 4119#       发表于 2018-6-21 22:58
 
 
-
-
 直美还能出来干嘛啊……作为死掉的孩子代表感谢下0216？
-
-
-
-
-
 
 
 -----
@@ -35998,15 +24102,9 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 ##### 4120#       发表于 2018-6-21 22:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071364&amp;ptid=1712743" target="_blank">栗悟饭177 发表于 2018-6-21 22:54</a>
 赌五毛直美之后会出来一次</blockquote>
 有人又要截图了 你不怕吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 
-
-
-
-
-
 
 
 -----
@@ -36015,16 +24113,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 ##### 4121#       发表于 2018-6-21 23:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071408&amp;ptid=1712743" target="_blank">lanhao 发表于 2018-6-21 22:59</a>
 
 有人又要截图了 你不怕吗</blockquote>
 截图的就几个人，而且这个言论没有截得必要<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">。
-
-
-
-
-
 
 
 -----
@@ -36033,14 +24125,7 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 ##### 4122#       发表于 2018-6-21 23:01
 
 
-
-
 直美在星实体里面，02的灵魂迟早要见到一次的。
-
-
-
-
-
 
 
 -----
@@ -36049,22 +24134,13 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 ##### 4123#       发表于 2018-6-21 23:03
 
 
-
-
 703作为消失的孩子的代表肯定会再登场啊，不过是死是活就不好说了
-
-
-
-
-
 
 
 -----
 
 ####  棒读  
 ##### 4124#       发表于 2018-6-21 23:04
-
-
 
 
 直美酱：其实我是外星人的人造生命体，用来监视你的，你开不了机其实不是因为02，而是因为我……
@@ -36086,16 +24162,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 直美酱：广……达令！
 
 
-
-
-
-
-
 -----
 
 ####  yy19  
 ##### 4125#       发表于 2018-6-21 23:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070785&amp;ptid=1712743" target="_blank">davidcch12 发表于 2018-6-21 21:46</a>
@@ -36111,26 +24181,15 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 你，有意见？<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lanhao  
 ##### 4126#       发表于 2018-6-21 23:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071427&amp;ptid=1712743" target="_blank">Nemo艇长 发表于 2018-6-21 23:01</a>
 截图的就几个人，而且这个言论没有截得必要。即使直美出现也不会怪他，没有正好。 ...</blockquote>
 之前14话预告时 专楼的个人预测都会被截图 
-
-
-
-
-
 
 
 -----
@@ -36139,16 +24198,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 ##### 4127#       发表于 2018-6-21 23:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40070848&amp;ptid=1712743" target="_blank">davidcch12 发表于 2018-6-21 21:53</a>
 
 结局五郎和莓一人推一个轮椅，坐着傻灵儿和疯阿广……画面太美</blockquote>
 若果，俺发去贴吧供众人瞻仰～<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">～
-
-
-
-
-
 
 
 -----
@@ -36157,23 +24210,16 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 ##### 4128#       发表于 2018-6-21 23:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071472&amp;ptid=1712743" target="_blank">lanhao 发表于 2018-6-21 23:05</a>
 
 之前14话预告时 专楼的个人预测都会被截图</blockquote>
 说句不好听的，现在ditf这种展开，对预测的截图已经没啥用了，因为故事已经烂了，黑子已经爽到，这一篇已经翻过。现在要截就要截粉丝的反应，来做最后一击<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">。反正这作完了争议不小，继续等吧。
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 4129#       发表于 2018-6-21 23:17
-
 
 
  本帖最后由 玖瑶君 于 2018-6-21 23:20 编辑 
@@ -36187,16 +24233,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 “带着我们的那份好好活下去”
 
 
-
-
-
-
-
 -----
 
 ####  skives  
 ##### 4130#       发表于 2018-6-21 23:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071565&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-21 23:17</a>
@@ -36208,26 +24248,15 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 实在是想不到消失的孩子这个坑还有什么别的方式填了
 
 
-
-
-
-
-
 -----
 
 ####  xwz  
 ##### 4131#       发表于 2018-6-21 23:18
 
 
-
 <img src="http://wx1.sinaimg.cn/large/566ad848gy1fsj7jqhcfmj21kw100dwn.jpg" referrerpolicy="no-referrer">
 
 看了下预告，02这个样子是卡疯子还是DBOY的状态？不如以后就叫DGIRL好了，反正你一直以来也都挺危险的……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -36236,14 +24265,7 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 ##### 4132#       发表于 2018-6-21 23:24
 
 
-
-
 渣广又颓废了。留给国家队的时间不多了。
-
-
-
-
-
 
 
 -----
@@ -36252,14 +24274,7 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 ##### 4133#       发表于 2018-6-21 23:26
 
 
-
-
 小伙伴挖坑这是要埋了02？
-
-
-
-
-
 
 
 -----
@@ -36268,14 +24283,7 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 ##### 4134#       发表于 2018-6-21 23:29
 
 
-
-
 其实02这个病态的样子让我梦回国五了
-
-
-
-
-
 
 
 -----
@@ -36284,14 +24292,7 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 ##### 4135#       发表于 2018-6-21 23:41
 
 
-
-
 机械降神式的展开
-
-
-
-
-
 
 
 -----
@@ -36300,22 +24301,13 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 ##### 4136#       发表于 2018-6-21 23:42
 
 
-
-
 突然想做个视频，ditf每名孩子一幅图，搭配地球防卫少年的ed。
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 4137#       发表于 2018-6-21 23:47
-
-
 
 
 想当初，在专楼里戏服曾说过好几次你们会认识我更多的一面
@@ -36325,26 +24317,15 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 现在我又是嫉妒又是怒又是疯又是哭又是病
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 4138#       发表于 2018-6-21 23:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071783&amp;ptid=1712743" target="_blank">Mr.BBWoLf 发表于 2018-6-21 23:42</a>
 突然想做个视频，ditf每名孩子一幅图，搭配地球防卫少年的ed。</blockquote>
 为什么不搭配阿姨说？
-
-
-
-
-
 
 
 -----
@@ -36353,24 +24334,16 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 ##### 4139#       发表于 2018-6-21 23:47
 
 
-
-
 这集15说我们已经不能变回孩子了
 
 
 所以其实爸爸们的承诺还是实现了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 4140#       发表于 2018-6-21 23:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071829&amp;ptid=1712743" target="_blank">大江户战士 发表于 2018-6-21 23:47</a>
@@ -36383,25 +24356,13 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 然后飞到宇宙去了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xiyue365  
 ##### 4141#       发表于 2018-6-21 23:52
 
 
-
-
 要是再早一点有互动的话我还是挺支持韭黄和未来或者莓的，毕竟未来和666比起cp更像是家人的感觉，不过现在.....倒不是不喜欢这搭配，但是真的没时间了啊.....
-
-
-
-
-
 
 
 -----
@@ -36410,23 +24371,16 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 ##### 4142#       发表于 2018-6-21 23:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071865&amp;ptid=1712743" target="_blank">xiyue365 发表于 2018-6-21 23:52</a>
 
 要是再早一点有互动的话我还是挺支持韭黄和未来或者莓的，毕竟未来和666比起cp更像是家人的感觉，不过现在. ...</blockquote>
 现在再搞怕不是326556第二<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">。
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4143#       发表于 2018-6-21 23:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071865&amp;ptid=1712743" target="_blank">xiyue365 发表于 2018-6-21 23:52</a>
@@ -36438,16 +24392,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 而且我们9队是工具人<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 4144#       发表于 2018-6-21 23:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071826&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-21 23:47</a>
@@ -36456,16 +24404,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 想不出国家队的素材怎么攒出阿姨说感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 4145#       发表于 2018-6-21 23:56
-
 
 
 <blockquote>大江户战士 发表于 2018-6-21 23:47
@@ -36478,17 +24420,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 不过是从战斗工具变成农夫了，其实也是还很辛苦哇
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4146#       发表于 2018-6-21 23:59
-
-
 
 
 这是他们想要的
@@ -36500,16 +24435,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 <img src="https://i.loli.net/2018/06/21/5b2bcb1f5a6c2.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 4147#       发表于 2018-6-22 00:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071890&amp;ptid=1712743" target="_blank">Mr.BBWoLf 发表于 2018-6-21 23:56</a>
@@ -36534,25 +24463,13 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 最后一段：virm面具+OP2结尾
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 4148#       发表于 2018-6-22 00:01
 
 
-
-
 有没有可能郁乃照顾克隆人三姐妹，要想巩固莓帝的政权得积极发展群众<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -36561,16 +24478,9 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 ##### 4149#       发表于 2018-6-22 00:06
 
 
-
-
 话说9a救回来是要为了之后的终极牺牲做铺垫吗？讲道理不上战场的话，9a的观念转变就没啥用了，感觉下场估计就是洛洛那种了，骗波眼泪，只不过目前是形式估计这眼泪估计是笑出来的。
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -36579,23 +24489,15 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 ##### 4150#       发表于 2018-6-22 00:11
 
 
-
-
 为了最终牺牲我直接-2<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 有意把他扭到这边来还虐了他那么久最后还要搞死他<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">太过分了。
-
-
-
-
-
 
 
 -----
 
 ####  Mr.BBWoLf  
 ##### 4151#       发表于 2018-6-22 00:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40071920&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-22 00:00</a>
@@ -36608,17 +24510,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 好像有点那种感觉，真能攒出来一个。夕阳下奔跑有，玩球有，miku8集结尾的，满转圈演讲、心举手、9黄狂怒、216第6集战前聊天，能弄一个氛围类似的。
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 4152#       发表于 2018-6-22 00:23
-
-
 
 
 弄死9a我感觉没啥意义……
@@ -36627,25 +24522,13 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">虽然这片被强行杀来营造气氛的角色也不止一个两个了……
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 4153#       发表于 2018-6-22 00:25
 
 
-
-
 这集预告看起来，和16差不多啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -36654,23 +24537,16 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 ##### 4154#       发表于 2018-6-22 00:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40072084&amp;ptid=1712743" target="_blank">Meteors 发表于 2018-06-22 00:25:03</a>
 这集预告看起来，和16差不多啊</blockquote>锦八股是这样的，你还没习惯吗
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 4155#       发表于 2018-6-22 00:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40072086&amp;ptid=1712743" target="_blank">davidcch12 发表于 2018-6-22 00:26</a>
@@ -36681,16 +24557,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 以为02敲锅已经是极致的我还是太年轻了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4156#       发表于 2018-6-22 00:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40072075&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-22 00:23</a>
@@ -36709,16 +24579,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 请给我第三条路，反抗！
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 4157#       发表于 2018-6-22 00:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40072084&amp;ptid=1712743" target="_blank">Meteors 发表于 2018-6-22 00:25</a>
@@ -36729,16 +24593,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 就看接下来敢不敢1718再来了。
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4158#       发表于 2018-6-22 00:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40072084&amp;ptid=1712743" target="_blank">Meteors 发表于 2018-6-22 00:25</a>
@@ -36747,16 +24605,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 这一话当然是国16pro
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4159#       发表于 2018-6-22 00:31
-
 
 
  本帖最后由 9α 于 2018-6-22 00:34 编辑 
@@ -36770,16 +24622,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 好像没毛病……
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 4160#       发表于 2018-6-22 00:34
-
 
 
  本帖最后由 玖瑶君 于 2018-6-22 00:41 编辑 
@@ -36792,16 +24638,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 讲真，这是从士兵变成了屯田兵的感觉（若还要打virm的话）……时髦值已经快没有了……
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 4161#       发表于 2018-6-22 00:35
-
 
 
 <blockquote>华尔姬丽雅 发表于 2018-6-22 00:29
@@ -36811,16 +24651,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 谁本垒谁结婚？该轮到216了吧？
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 4162#       发表于 2018-6-22 00:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40072073&amp;ptid=1712743" target="_blank">Mr.BBWoLf 发表于 2018-6-22 00:23</a>
@@ -36829,25 +24663,13 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 等你的大作哟<img src="https://static.saraba1st.com/image/smiley/carton2017/043.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  大江户战士  
 ##### 4163#       发表于 2018-6-22 00:39
 
 
-
-
 所以最终话是18pro咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -36856,16 +24678,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 ##### 4164#       发表于 2018-6-22 00:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40072181&amp;ptid=1712743" target="_blank">大江户战士 发表于 2018-6-22 00:39</a>
 
 所以最终话是18pro咯</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">集体婚礼嘛。
-
-
-
-
-
 
 
 -----
@@ -36874,23 +24690,16 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 ##### 4165#       发表于 2018-6-22 00:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40072163&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-22 00:36</a>
 
 等你的大作哟</blockquote>
 没工夫弄，只能想想<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 4166#       发表于 2018-6-22 00:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40072181&amp;ptid=1712743" target="_blank">大江户战士 发表于 2018-6-22 00:39</a>
@@ -36900,17 +24709,10 @@ jzgg真是会玩</blockquote><img src="https://static.saraba1st.com/image/smiley
 比如下集就16和02（失神状态）婚礼，再下集lovelovepower打败virm啥的……
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 4167#       发表于 2018-6-22 00:46
-
-
 
 
 喷了，国15pro
@@ -36928,24 +24730,13 @@ id=69333590
 2018-6-22 00:45 上传
 
 
-
-
-
-
-
 话说泥潭这传图怎么改倒退了？没法一口气选中多张图
-
-
-
-
-
 
 
 -----
 
 ####  大江户战士  
 ##### 4168#       发表于 2018-6-22 00:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40072212&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-22 00:46</a>
@@ -36956,16 +24747,10 @@ id=69333590</blockquote>
 chrome要启用flash
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 4169#       发表于 2018-6-22 00:50
-
 
 
 <blockquote>amulelernen 发表于 2018-6-22 00:46
@@ -36977,16 +24762,10 @@ id=69333590
 对15的胸太过分了！
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 4170#       发表于 2018-6-22 00:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40072105&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-22 00:29</a>
@@ -36996,25 +24775,13 @@ id=69333590
 18结尾决心要反抗，拿来当开放式结局倒也不错<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  royalblue1127  
 ##### 4171#       发表于 2018-6-22 00:55
 
 
-
-
 国16pro给我一个郁莓互动也就满足了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -37023,23 +24790,16 @@ id=69333590
 ##### 4172#       发表于 2018-6-22 00:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40072151&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-22 00:34</a>
 的确…又是一个虽然合理但略有土气（？）的展开。本来以为13队要开始领导剩下的孩子们开展大生产，没想到 ...</blockquote>
 国16是别的孩子都聚集在一起，只有13小队在烧饭。
 现在也可以只有13小队锄地的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 4173#       发表于 2018-6-22 00:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40072251&amp;ptid=1712743" target="_blank">royalblue1127 发表于 2018-6-22 00:55</a>
@@ -37050,32 +24810,19 @@ id=69333590
 有郁乃的话……你说56能比郁乃强在哪里。
 
 
-
-
-
-
-
 -----
 
 ####  大江户战士  
 ##### 4174#       发表于 2018-6-22 00:57
 
 
-
-
 veggie in the franxx 还行
-
-
-
-
-
 
 
 -----
 
 ####  royalblue1127  
 ##### 4175#       发表于 2018-6-22 01:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40072258&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-22 00:56</a>
@@ -37085,16 +24832,10 @@ veggie in the franxx 还行
 我没觉得五郎比郁乃强诶，百合当然是世界真理<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">但是莓直啊、、、五郎的话，身材和性格对我来说都是加分项？抛开15集那番操作对他的印象就还行……今后的事慢慢来呗，他俩要成也是后日谈了。
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 4176#       发表于 2018-6-22 01:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40072258&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-22 00:56</a>
@@ -37105,25 +24846,13 @@ veggie in the franxx 还行
 56肚子里坏水多啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  大江户战士  
 ##### 4177#       发表于 2018-6-22 01:07
 
 
-
-
 猜猜五郎怒吼那里是劝阿广放弃02还是支持02<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -37132,22 +24861,15 @@ veggie in the franxx 还行
 ##### 4178#       发表于 2018-6-22 01:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40072319&amp;ptid=1712743" target="_blank">大江户战士 发表于 2018-6-22 01:07</a>
 猜猜五郎怒吼那里是劝阿广放弃02还是支持02</blockquote>
 肯定是劝他放弃吧，或者让他换个方法。如果是劝他支持，那阿广真的太渣了
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 4179#       发表于 2018-6-22 01:13
-
 
 
 <blockquote>大江户战士 发表于 2018-6-22 01:07
@@ -37159,16 +24881,10 @@ veggie in the franxx 还行
 可能是教育16要在大家的帮助下一起想办法
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 4180#       发表于 2018-6-22 01:13
-
 
 
 <blockquote>华尔姬丽雅 发表于 2018-6-22 00:56
@@ -37184,16 +24900,10 @@ veggie in the franxx 还行
 不过恋爱这种事倒也和铺垫未必相关，看上眼重要。从上集结束的态势来说郁乃占优，白发buff妥妥加上了，莓的个性不会放下不管。这集五莓对话，五郎转头后其实有点吃惊，也许正是莓说了郁乃告白或者说关于自己和郁乃的事情呢。
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4181#       发表于 2018-6-22 01:13
-
 
 
  本帖最后由 9α 于 2018-6-22 01:15 编辑 
@@ -37208,16 +24918,10 @@ veggie in the franxx 还行
 那应该是打醒。
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 4182#       发表于 2018-6-22 01:17
-
 
 
 <blockquote>玖瑶君 发表于 2018-6-22 01:13
@@ -37230,16 +24934,10 @@ veggie in the franxx 还行
 就算因为196白发了想要做什么也不用特意和56说吧
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 4183#       发表于 2018-6-22 01:20
-
 
 
 <blockquote>xyau 发表于 2018-6-22 01:17
@@ -37251,16 +24949,10 @@ veggie in the franxx 还行
 如果剧情真打算走郁莓线的话，莓和56的感情也肯定会正式地结束下吧。就连她失败地走莓广线，编剧不都把56拉来当观众么……
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 4184#       发表于 2018-6-22 01:25
-
 
 
 <blockquote>玖瑶君 发表于 2018-6-22 01:20
@@ -37275,16 +24967,10 @@ veggie in the franxx 还行
 我甚至脑补出了56委屈地和16说你好歹还有02这个盼头，我彻底被15判死刑了！并成功把自己雷翻<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 4185#       发表于 2018-6-22 01:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40072319&amp;ptid=1712743" target="_blank">大江户战士 发表于 2018-6-22 01:07</a>
@@ -37297,16 +24983,10 @@ veggie in the franxx 还行
 02那个疯婆娘现在只有和广在一起时才能安静，其他人谁去找她她打谁<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 4186#       发表于 2018-6-22 01:30
-
 
 
  本帖最后由 玖瑶君 于 2018-6-22 01:33 编辑 
@@ -37326,17 +25006,10 @@ veggie in the franxx 还行
 （不过讲真我还真在贴吧里看到假药说，56是被莓发了好人卡，所以才是后来那个激动表现……但是，还是别了吧，这样就又崩了一个人物……）
 
 
-
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 4187#       发表于 2018-6-22 01:41
-
 
 
 <blockquote>玖瑶君 发表于 2018-6-22 01:30
@@ -37348,16 +25021,10 @@ veggie in the franxx 还行
 ……56也还插着鸟笼发热的旗呢，对他好一点吧
 
 
-
-
-
-
-
 -----
 
 ####  不再是小孩子了  
 ##### 4188#       发表于 2018-6-22 01:58
-
 
 
 <blockquote>玖瑶君 发表于 2018-6-22 01:30
@@ -37371,34 +25038,20 @@ veggie in the franxx 还行
 虽然这片的高潮总是做的有缺陷，但是下集作为大战前的过渡回应该还是可以期待一下下
 
 
-
-
-
-
-
 -----
 
 ####  lanhao  
 ##### 4189#       发表于 2018-6-22 03:01
 
 
-
-
 lei了lei了 ditf的bb
 http://www.bilibili.com/video/av25047216
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 4190#       发表于 2018-6-22 03:06
-
-
 
 
 　【倒计时<strong>30分01秒</strong>】02说要出发【8疑惑回头】，左手扶着输液杆右手扶墙起身，低头道要去夺回达令。8劝她别勉强，02嘶声道达令在等我，一把拽掉了左臂的三个针头，扶墙站好。博士问去干嘛，提示其中恐有VIRM的陷阱，就算夺回来也会落入它们的算计。02说那又如何，【博士疑惑】，叫龙公主或VIRM怎样都好，我是赝品或怪物也无所谓，【倒计时<strong>29分27秒09</strong>，抬头微笑】和达令约好了，【微眯双眼】要永远在一起，若分开就一定要去找回对方。博士转头看向她，8提醒突入点大门只有代号001能认证，博士起身说要一起去，8惊讶看他。
@@ -37440,13 +25093,9 @@ http://www.bilibili.com/video/av25047216
 　白了头的196发言倒是有几分交代遗言的意思，214也参与进来，乍看有些奇怪，但想想FXX双人开机，吊兰跪在战场一损俱损，倒也合理；之前的坚毅表情应该也是做好了牺牲准备。02#2第一次到13队食堂的表现曾让556猜测她喜欢甜食，#5占位喂食则让214得到被556模仿喂食的机会，214大概对此记忆犹新。#15让留下的16不要偷吃，经历过鸟笼一起做饭、在双方都面临挑战的分离前，约定完成后分享食物，带起疯狂插旗的节奏——翠雀说死了不饶、青葙组喊一定要活。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 3战斗力 +3
@@ -37458,12 +25107,7 @@ http://www.bilibili.com/video/av25047216
 | magicz2| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -37472,23 +25116,15 @@ http://www.bilibili.com/video/av25047216
 ##### 4191#       发表于 2018-6-22 04:10
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">你们还有心情给这片配阿姨说…预告看着我现在只想到用斗地主来配
 
 锄大地实在是…搞笑？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 4192#       发表于 2018-6-22 04:23
-
-
 
 
 预告服装：
@@ -37518,25 +25154,14 @@ http://www.bilibili.com/video/av25047216
 56吼16的背景的白点不知道是啥？如果是雨的话应该会动，有点在意。
 
 
-
-
-
-
-
 -----
 
 ####  gbaing  
 ##### 4193#       发表于 2018-6-22 05:11
 
 
-
 [http://music.163.com/#/song?id=5266866](http://music.163.com/#/song?id=5266866)
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">还是这个最合适，为了咱国求解放（大嘘）
-
-
-
-
-
 
 
 -----
@@ -37545,23 +25170,16 @@ http://www.bilibili.com/video/av25047216
 ##### 4194#       发表于 2018-6-22 05:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40073318&amp;ptid=1712743" target="_blank">gbaing 发表于 2018-06-22 05:11:50</a>
 还是这个最合适，为了咱国求解放（大嘘）</blockquote>你应该来个拉克丝的在希望的田野上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  gbaing  
 ##### 4195#       发表于 2018-6-22 05:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40073406&amp;ptid=1712743" target="_blank">Shylia 发表于 2018-6-22 05:44</a>
@@ -37573,16 +25191,10 @@ http://www.bilibili.com/video/av25047216
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我觉得海星
 
 
-
-
-
-
-
 -----
 
 ####  mumubear  
 ##### 4196#       发表于 2018-6-22 06:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40072481&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-22 01:41</a>
@@ -37591,32 +25203,19 @@ http://www.bilibili.com/video/av25047216
 可是，你的头像更惨啊。。。
 
 
-
-
-
-
-
 -----
 
 ####  sherlockchu  
 ##### 4197#       发表于 2018-6-22 06:35
 
 
-
-
 15话的时候我特别反感1556，以为锦织马上就要推这一对了。结果连续三话心满，之后又是外星人神棍展开，草莓沦落为背景板地位。现在再看，1556也不是完全不能接受了，毕竟外星人都出来了，吐槽凑成什么CP我也不觉突兀了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 4198#       发表于 2018-6-22 06:57
-
 
 
  本帖最后由 xyau 于 2018-6-22 07:05 编辑 
@@ -37630,16 +25229,10 @@ http://www.bilibili.com/video/av25047216
 重点不是比惨啦
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 4199#       发表于 2018-6-22 08:04
-
 
 
  本帖最后由 amulelernen 于 2018-6-22 08:05 编辑 
@@ -37649,17 +25242,10 @@ http://www.bilibili.com/video/av25047216
 并且他们垦荒的锄头也是标准泳装配色，讲究
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 4200#       发表于 2018-6-22 08:26
-
-
 
 
 □ 16嘴炮01
@@ -37700,26 +25286,14 @@ http://www.bilibili.com/video/av25047216
 　无论如何，灵舡的启动意味着时间不多了，VIRM要扔下两败俱伤的叫龙和人类、带走灵舡顺便炸毁星球。余下的9's杀再多叫龙也不可能得到爸爸的回应了。
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 4201#       发表于 2018-6-22 08:51
 
 
-
-
 对了原画日
 红皮02吧。
-
-
-
-
-
 
 
 -----
@@ -37728,15 +25302,8 @@ http://www.bilibili.com/video/av25047216
 ##### 4202#       发表于 2018-6-22 08:56
 
 
-
-
 长角灵儿
 或者掉角灵儿
-
-
-
-
-
 
 
 -----
@@ -37745,23 +25312,15 @@ http://www.bilibili.com/video/av25047216
 ##### 4203#       发表于 2018-6-22 08:56
 
 
-
-
 大眼睛阿广，吼不吼啊
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 4204#       发表于 2018-6-22 09:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40074043&amp;ptid=1712743" target="_blank">[A]ZuZe 发表于 2018-6-22 08:56</a>
@@ -37771,16 +25330,10 @@ http://www.bilibili.com/video/av25047216
 上过图标了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4205#       发表于 2018-6-22 09:25
-
 
 
  本帖最后由 9α 于 2018-6-22 09:26 编辑 
@@ -37796,16 +25349,10 @@ http://www.bilibili.com/video/av25047216
 虽然这话可能连话都说不出来了。
 
 
-
-
-
-
-
 -----
 
 ####  CCYYFF  
 ##### 4206#       发表于 2018-6-22 09:32
-
 
 
 <blockquote>xyau 发表于 2018-6-22 08:51
@@ -37815,16 +25362,10 @@ http://www.bilibili.com/video/av25047216
 也许是最后一卡的02
 
 
-
-
-
-
-
 -----
 
 ####  Shylia  
 ##### 4207#       发表于 2018-6-22 09:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40074279&amp;ptid=1712743" target="_blank">9α 发表于 2018-06-22 09:25:17</a>
@@ -37841,16 +25382,10 @@ http://www.bilibili.com/video/av25047216
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  山贼先生  
 ##### 4208#       发表于 2018-6-22 09:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40074279&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-22 09:25</a>
@@ -37862,16 +25397,10 @@ http://www.bilibili.com/video/av25047216
 也许刚说完这句话 就去见9紫9绿了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4209#       发表于 2018-6-22 09:38
-
 
 
  本帖最后由 9α 于 2018-6-22 09:41 编辑 
@@ -37884,16 +25413,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 嘴唇看起来没喝水……<img src="https://i.loli.net/2018/06/22/5b2c531156a9c.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Shylia  
 ##### 4210#       发表于 2018-6-22 09:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40074411&amp;ptid=1712743" target="_blank">9α 发表于 2018-06-22 09:38:38</a></blockquote>……官方真香预定
@@ -37901,16 +25424,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 4211#       发表于 2018-6-22 09:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40074411&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-22 09:38</a>
@@ -37925,16 +25442,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 所以α四舍五入一下也是享受（里）主角待遇了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4212#       发表于 2018-6-22 09:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40074435&amp;ptid=1712743" target="_blank">Shylia 发表于 2018-6-22 09:41</a>
@@ -37952,16 +25463,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 结论还是缺爱的<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4213#       发表于 2018-6-22 09:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40074467&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-22 09:44</a>
@@ -37975,16 +25480,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 主角队的刺激是同伴洗脑……
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 4214#       发表于 2018-6-22 09:56
-
 
 
  本帖最后由 xyau 于 2018-6-22 10:00 编辑 
@@ -38001,16 +25500,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 13队没见26队自爆没见队友惨死，看样子也见不到大人尸体了…所以剪枝的孩子到底是也变橙汁了还是变紫化生命聚合体了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4215#       发表于 2018-6-22 10:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40074589&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-22 09:56</a>
@@ -38026,17 +25519,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 390看着表情像收拾了东西想走……心里应该是最恨的才对……
 
 
-
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 4216#       发表于 2018-6-22 10:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40074637&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-22 10:00</a>
@@ -38051,16 +25537,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 博士遗产线大概还是7来开吧
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 4217#       发表于 2018-6-22 10:08
-
 
 
 <blockquote>9α 发表于 2018-6-22 10:00
@@ -38071,16 +25551,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 想要摆脱假药的话，让男生，比如56本人来劝你就好了……但貌似除了16其他人不是很爱嘴炮别人……16又精神状态不佳。
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4218#       发表于 2018-6-22 10:10
-
 
 
  本帖最后由 9α 于 2018-6-22 10:19 编辑 
@@ -38094,16 +25568,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 当然不排除我小小年纪就在干活了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 4219#       发表于 2018-6-22 10:10
-
 
 
 <blockquote>xyau 发表于 2018-6-22 10:08
@@ -38114,16 +25582,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 让阿广来开博士遗产多好，一展主角风采。不过这集被56劝过后广也许能往那边想想？
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 4220#       发表于 2018-6-22 10:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40074744&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-22 10:08</a>
@@ -38133,16 +25595,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 不过我提196没有这方面的意思，只是单纯觉得他们好歹有过共识
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4221#       发表于 2018-6-22 10:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40074744&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-22 10:08</a>
@@ -38154,16 +25610,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 56：为了最喜欢的你（16）
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 4222#       发表于 2018-6-22 10:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40074769&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-22 10:10</a>
@@ -38180,17 +25630,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 都是一时兴起的博士搞的鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 4223#       发表于 2018-6-22 10:27
-
-
 
 
 9a确实是惨得比较别致了。
@@ -38200,17 +25643,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 像他这样从头到尾被无可洗白的反派忽悠得赤胆忠心，然后跟主角连打都没打一场（肉身打不算）就输了，再被捡回来的……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4224#       发表于 2018-6-22 10:30
-
-
 
 
 如果9α剩余作用就是加入13队还恋爱了确实能够证明lovelove重要性……但时间不够了
@@ -38220,16 +25656,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 横竖都是死，叛变吧！第三条路才是存活路<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4225#       发表于 2018-6-22 10:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40074949&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-22 10:27</a>
@@ -38243,32 +25673,19 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 过分！我们一家子的人生……<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4226#       发表于 2018-6-22 10:32
 
 
-
-
 完结后是不是能开比惨大会了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  zjylyy  
 ##### 4227#       发表于 2018-6-22 10:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40074982&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-22 10:31</a>
@@ -38279,16 +25696,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 可能是你们一家掘了锦织家祖坟
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 4228#       发表于 2018-6-22 10:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40074975&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-22 10:30</a>
@@ -38298,16 +25709,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 结果是反过来<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 4229#       发表于 2018-6-22 10:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40074982&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-22 10:31</a>
@@ -38320,32 +25725,19 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 001……不提了，攒了几集的逼格被BOSS用嘴炮全变成负值，唯一彰显武力值的地方是欺负女主<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 4230#       发表于 2018-6-22 10:37
 
 
-
-
 9α给我一种尸体的感觉.......那颜色.......
-
-
-
-
-
 
 
 -----
 
 ####  玖瑶君  
 ##### 4231#       发表于 2018-6-22 10:46
-
 
 
 <blockquote>9α 发表于 2018-6-22 10:30
@@ -38359,25 +25751,13 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 成几对都不在话下。
 
 
-
-
-
-
-
 -----
 
 ####  歌谭市的  
 ##### 4232#       发表于 2018-6-22 10:46
 
 
-
-
 这话预告是1556，可以预见下一话预告必是心满。泥潭最爱的心满即将在倒数第二话演绎一出惊天地泣鬼神的刻骨虐恋！我奶一个23话有满总理和大着肚子的心草比剧情，然后重新爱上对方。
-
-
-
-
-
 
 
 -----
@@ -38386,17 +25766,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 ##### 4233#       发表于 2018-6-22 11:14
 
 
-
-
 我就看看完结后能不能开比惨大会了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 ————————————————————————————
 不管如何～今天是g胖夏促，祝大家购物愉快～<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -38405,24 +25778,16 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 ##### 4234#       发表于 2018-6-22 11:36
 
 
-
-
 比惨大会我觉得是001的胜利。
 
 为了成全男女主一场悲恋中必要的“车祸”元素，她被创作出来赋予了看似与背景相当的逼格，然后再用以她的身份来说相当傻x的方式（不管是傻x到自信十足的上敌人开发的兵器还是傻x到把自家大杀器拱手让给敌人装后门）一秒输成负数，最后传功给女主成为悲恋必须的“奇迹”。
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">她，以及整个叫龙人一族，除了惨还有什么能说的么。
 
 
-
-
-
-
-
 -----
 
 ####  IWS2000  
 ##### 4235#       发表于 2018-6-22 11:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40075662&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-22 11:36</a>
@@ -38432,16 +25797,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 真是太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 4236#       发表于 2018-6-22 11:43
-
 
 
 <blockquote>华尔姬丽雅 发表于 2018-6-22 11:36
@@ -38453,25 +25812,13 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 本来是分在好几个人身上的要素，02现在是一人挑了。
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 4237#       发表于 2018-6-22 11:44
 
 
-
-
 韩剧叔叔红鸟都不来了……什么样的结局才能让红鸟再次出现？
-
-
-
-
-
 
 
 -----
@@ -38480,23 +25827,16 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 ##### 4238#       发表于 2018-6-22 11:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40075751&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-06-22 11:44:54</a>
 韩剧叔叔红鸟都不来了……什么样的结局才能让红鸟再次出现？</blockquote>郁满 心太
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 4239#       发表于 2018-6-22 11:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40075738&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-22 11:43</a>
@@ -38507,16 +25847,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 严格来说应该算0216身上集齐了……失忆分离、重新相聚相恋后男主绝症（龙化）、好不容易这道坎迈过去了（虽然不知道咋迈的）换女主车祸。
 
 
-
-
-
-
-
 -----
 
 ####  不再是小孩子了  
 ##### 4240#       发表于 2018-6-22 11:55
-
 
 
 <blockquote>fengzijiang 发表于 2018-6-22 10:37
@@ -38526,16 +25860,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 不过还是有点眼神的，大概也不是得病，精神创伤以及普通人的粗粮吃不惯导致的萎靡，等心灵和胃口都被未来疗愈之后又是条好汉
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 4241#       发表于 2018-6-22 11:57
-
 
 
 <blockquote>华尔姬丽雅 发表于 2018-6-22 11:46
@@ -38545,16 +25873,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 16预告里有个镜头也不知道发现了什么，很吃惊的样子，本来还很温柔的喂饭，后来就颓废了……被56骂……多半是发现02绝症了恢复不了之类？
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 4242#       发表于 2018-6-22 11:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40072258&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-22 00:56</a>
@@ -38565,16 +25887,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 也就强在jz不敢公开宣布走百合路线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 4243#       发表于 2018-6-22 12:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40075918&amp;ptid=1712743" target="_blank">aptx8285144 发表于 2018-6-22 11:58</a>
@@ -38583,16 +25899,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你怎么知道不敢，偶像一定要恋爱，百合怎么都比臭男人强吧。
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 4244#       发表于 2018-6-22 12:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40076034&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-6-22 12:10</a>
@@ -38601,16 +25911,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 关键点难道不是15是直女吗<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 4245#       发表于 2018-6-22 12:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40075909&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-22 11:57</a>
@@ -38621,16 +25925,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 110雄蕊那事应该还没完，要是从02口里说出赎罪一类的话......16估计会疯掉
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 4246#       发表于 2018-6-22 12:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40076038&amp;ptid=1712743" target="_blank">davidcch12 发表于 2018-6-22 12:11</a>
@@ -38641,17 +25939,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 如今郁乃和56都有为了莓不惜生命的表现，56赢在一个童年和发卡，郁乃赢在一个白头，看莓了。
 
 
-
-
-
-
-
 -----
 
 ####  timepro  
 ##### 4247#       发表于 2018-6-22 12:19
-
-
 
 
 可能是广是感到自责：如果当初02没去救我就好了，然后被56骂？
@@ -38659,16 +25950,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 4248#       发表于 2018-6-22 12:24
-
 
 
 <blockquote>fengzijiang 发表于 2018-6-22 12:16
@@ -38680,25 +25965,13 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 我觉得听了这个16也不会成那个样子吧。估计还是02恶化的可能性比较高？要么就是发现02其实和之前不是一个人了（比如是鹤望兰里原本叫龙女的意识什么的，或者融合了01的意识？）
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 4249#       发表于 2018-6-22 12:34
 
 
-
-
 也可能就是02说胡话发疯，然后打击到16了。
-
-
-
-
-
 
 
 -----
@@ -38707,17 +25980,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 ##### 4250#       发表于 2018-6-22 12:37
 
 
-
-
 看到专楼现在的样子
 
 
 196：你们这现在连摸我的欲望都没有了么<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -38726,14 +25992,7 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 ##### 4251#       发表于 2018-6-22 12:38
 
 
-
-
 02搞不好失去控制后说了什么乱七八糟的给阿广听到了
-
-
-
-
-
 
 
 -----
@@ -38742,16 +26001,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 ##### 4252#       发表于 2018-6-22 12:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40076352&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-22 12:38</a>
 
 02搞不好失去控制后说了什么乱七八糟的给阿广听到了</blockquote>
 汁男前任说要复活的节奏???<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -38760,14 +26013,7 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 ##### 4253#       发表于 2018-6-22 12:43
 
 
-
-
 02的意识被110汁男占据了
-
-
-
-
-
 
 
 -----
@@ -38776,22 +26022,14 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 ##### 4254#       发表于 2018-6-22 12:44
 
 
-
-
 或者
 ダーリン？なにそれ？
-
-
-
-
-
 
 
 -----
 
 ####  fengzijiang  
 ##### 4255#       发表于 2018-6-22 12:46
-
 
 
  本帖最后由 fengzijiang 于 2018-6-22 13:00 编辑 
@@ -38803,16 +26041,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 16肯定不会在乎110个死人，毕竟活在当下，但是要是02说不想活了，想去给死人赎罪......16会不会颓废/烦恼就说不准......
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 4256#       发表于 2018-6-22 12:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40073406&amp;ptid=1712743" target="_blank">Shylia 发表于 2018-6-22 05:44</a>
@@ -38822,16 +26054,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 放 放过我拉妖的神曲<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aptx8285144  
 ##### 4257#       发表于 2018-6-22 12:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40076447&amp;ptid=1712743" target="_blank">fengzijiang 发表于 2018-6-22 12:46</a>
@@ -38842,17 +26068,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 02说不想活了,这要是说出来,说明jzg太嫩了，这种赎罪一样的爆点只有爆出来才有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  雪山狼  
 ##### 4258#       发表于 2018-6-22 12:51
-
-
 
 
 16头上蓝角越长越大，作为最后一名叫龙人，与大手进行了深度沟通，为了抵抗几千万年后的virm进攻，16自愿沉入地心成为了新的叫龙领袖
@@ -38864,26 +26083,14 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 从此以后，16只能每天夜里与02在梦中相会，梦中要樱花有樱花，要槲寄生有槲寄生    END
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 4259#       发表于 2018-6-22 12:53
 
 
-
-
 这就是绘本最后一页的用处了，找到了就可以把灵儿的意识拉回来
 下集找半集的绘本<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -38892,19 +26099,14 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 ##### 4260#       发表于 2018-6-22 12:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40074998&amp;ptid=1712743" target="_blank">zjylyy 发表于 2018-6-22 10:32</a>
 可能是你们一家掘了锦织家祖坟</blockquote>
 按大裂隙那位置是锦织老家来看，还真是216+9队掘的他家祖坟<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -38914,12 +26116,7 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 | fengzijiang| + 1|角度刁钻|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -38928,15 +26125,9 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 ##### 4261#       发表于 2018-6-22 12:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40075156&amp;ptid=1712743" target="_blank">歌谭市的 发表于 2018-6-22 10:46</a>
 这话预告是1556，可以预见下一话预告必是心满。泥潭最爱的心满即将在倒数第二话演绎一出惊天地泣鬼神的刻骨 ...</blockquote>
 那应该让门胁舞以来配326
-
-
-
-
-
 
 
 -----
@@ -38945,16 +26136,9 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 ##### 4262#       发表于 2018-6-22 13:05
 
 
-
-
 话说这集是不是暴露出了熔岩能量对叫龙人来说就是和仙豆一样的东西，普通叫龙人就是黄色普通能量，02是红色的大补能量，01就是蓝色的超级能量，加上之前01说过叫龙人可以把自己变成液体，供族人进化，难道要等一个阿广把自己变成液体来助02飞升？
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -38963,15 +26147,9 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 ##### 4263#       发表于 2018-6-22 13:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40076645&amp;ptid=1712743" target="_blank">骑驴耍bb 发表于 2018-6-22 13:05</a>
 话说这集是不是暴露出了熔岩能量对叫龙人来说就是和仙豆一样的东西，普通叫龙人就是黄色普通能量，02是红色 ...</blockquote>
 是阿广把自己的液体给02<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -38980,21 +26158,13 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 ##### 4264#       发表于 2018-6-22 13:23
 
 
-
-
 这个预告药性可以，盖楼速度一下子就上去了，到不了150永远在下一集<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Meteors  
 ##### 4265#       发表于 2018-6-22 13:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40076523&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-22 12:53</a>
@@ -39005,26 +26175,15 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 迫真教育孩子们多读书<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  royalblue1127  
 ##### 4266#       发表于 2018-6-22 13:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40076801&amp;ptid=1712743" target="_blank">02016 发表于 2018-6-22 13:23</a>
 这个预告药性可以，盖楼速度一下子就上去了，到不了150永远在下一集</blockquote>
 不如说是国16以来最具观赏性的预告？是你！圣高雄！
-
-
-
-
-
 
 
 -----
@@ -39033,17 +26192,10 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 ##### 4267#       发表于 2018-6-22 13:37
 
 
-
-
 啥时候出表。
 
 不是圣高雄来的话，我就不信一个植物人能虐到我。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 
 目前看来比较虐的点有赎罪, 婚礼, 约定再加个来年看樱花？来来，你们一起上吧！
-
-
-
-
-
 
 
 -----
@@ -39052,14 +26204,7 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 ##### 4268#       发表于 2018-6-22 13:40
 
 
-
-
 要求不高，看星星能不能做的浪漫一点啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -39068,22 +26213,15 @@ a队啊，我想起来17话9队查岗一口没吃，22话那鬼样子会不会�
 ##### 4269#       发表于 2018-6-22 13:43
 
 
-
 <blockquote>davidcch12 发表于 2018-6-22 13:40
 要求不高，看星星能不能做的浪漫一点啊</blockquote>
 要山崎姐姐来写吧，和7集对应，又是16pro，念预告是1556（算是对应九集吧），把她写过的要素都合集了，而且她写浪漫戏还不错的呢。
-
-
-
-
-
 
 
 -----
 
 ####  02016  
 ##### 4270#       发表于 2018-6-22 13:44
-
 
 
  本帖最后由 02016 于 2019-8-6 20:46 编辑 
@@ -39102,16 +26240,10 @@ atre上展出的四格
 <img src="http://ww3.sinaimg.cn/large/87c01ec7gy1fsjwjwb7yrj216o1kwwpr.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  02016  
 ##### 4271#       发表于 2018-6-22 13:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40076865&amp;ptid=1712743" target="_blank">royalblue1127 发表于 2018-6-22 13:29</a>
@@ -39120,32 +26252,19 @@ atre上展出的四格
 161718的预告也都不错，19总感觉差了点劲，20只有01强吻广那里引起比较多讨论，21战斗场面为主讨论点少
 
 
-
-
-
-
-
 -----
 
 ####  Meteors  
 ##### 4272#       发表于 2018-6-22 14:02
 
 
-
-
 来人啊，给我一个指甲钳<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  曾经的小书  
 ##### 4273#       发表于 2018-6-22 14:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40076333&amp;ptid=1712743" target="_blank">山贼先生 发表于 2018-6-22 12:37</a>
@@ -39156,16 +26275,10 @@ atre上展出的四格
 专楼只喜欢少女，老婆婆的屁股还是算了吧
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4274#       发表于 2018-6-22 14:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40075154&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-22 10:46</a>
@@ -39179,16 +26292,10 @@ atre上展出的四格
 这样不如死了算了<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4275#       发表于 2018-6-22 14:16
-
 
 
  本帖最后由 9α 于 2018-6-22 14:23 编辑 
@@ -39203,16 +26310,10 @@ atre上展出的四格
 <img src="https://i.loli.net/2018/06/22/5b2c9412a74db.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  山贼先生  
 ##### 4276#       发表于 2018-6-22 14:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40077289&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-22 14:16</a>
@@ -39224,17 +26325,10 @@ atre上展出的四格
 如果真是你一个人孤零零的想通了，怕是已经离死不远了 可以去见9绿9紫了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  闪亮的彗星  
 ##### 4277#       发表于 2018-6-22 14:38
-
-
 
 
 当然是390把你救了
@@ -39242,16 +26336,10 @@ atre上展出的四格
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4278#       发表于 2018-6-22 14:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40077427&amp;ptid=1712743" target="_blank">山贼先生 发表于 2018-6-22 14:32</a>
@@ -39262,32 +26350,19 @@ atre上展出的四格
 口罩妹们还在吗……<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  novid  
 ##### 4279#       发表于 2018-6-22 14:44
 
 
-
-
 staff有了吗
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 4280#       发表于 2018-6-22 14:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40077470&amp;ptid=1712743" target="_blank">闪亮的彗星 发表于 2018-6-22 14:38</a>
@@ -39301,17 +26376,10 @@ staff有了吗
 看她脸上流着汗想溜。
 
 
-
-
-
-
-
 -----
 
 ####  davidcch12  
 ##### 4281#       发表于 2018-6-22 14:55
-
-
 
 
 还是五郎吧，最强圣人
@@ -39320,25 +26388,13 @@ staff有了吗
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  fengzijiang  
 ##### 4282#       发表于 2018-6-22 14:58
 
 
-
-
 讲真，9α那样子，我估计嘴炮是没用了，估计得靠一些灵丹妙药才能救回来了.....
-
-
-
-
-
 
 
 -----
@@ -39347,14 +26403,7 @@ staff有了吗
 ##### 4283#       发表于 2018-6-22 15:00
 
 
-
-
 题外话，有人看球了吗？阿根廷真的惨啊。。。梅西压力山大，留给他的时间不多了。
-
-
-
-
-
 
 
 -----
@@ -39363,16 +26412,9 @@ staff有了吗
 ##### 4284#       发表于 2018-6-22 15:06
 
 
-
-
 不是说逼宫换帅了么……
 
 要不专楼转型讨论世界杯吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -39381,14 +26423,7 @@ staff有了吗
 ##### 4285#       发表于 2018-6-22 15:07
 
 
-
-
 就算讨论世界杯要到不了150吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -39397,14 +26432,7 @@ staff有了吗
 ##### 4286#       发表于 2018-6-22 15:07
 
 
-
-
 体面点，就算眼瞅着要不过150了也别拿无关话题水啊……
-
-
-
-
-
 
 
 -----
@@ -39413,16 +26441,9 @@ staff有了吗
 ##### 4287#       发表于 2018-6-22 15:08
 
 
-
-
 214插的旗
 16喂的食物看上去一点也不甜
 骗子<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -39431,16 +26452,9 @@ staff有了吗
 ##### 4288#       发表于 2018-6-22 15:09
 
 
-
-
 这番多少骗子，来讨论下吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -39449,22 +26463,14 @@ staff有了吗
 ##### 4289#       发表于 2018-6-22 15:13
 
 
-
-
 虚假的美丽危险女骗子——02
 真正的美丽危险女骗子——16<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 4290#       发表于 2018-6-22 15:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40077759&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-22 15:09</a>
@@ -39476,26 +26482,15 @@ staff有了吗
 骗02干完这票有甜食吃的214
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 4291#       发表于 2018-6-22 15:19
 
 
-
 <blockquote>fengzijiang 发表于 2018-6-22 14:58
 讲真，9α那样子，我估计嘴炮是没用了，估计得靠一些灵丹妙药才能救回来了..... ...</blockquote>
 爱情不就是本片第一灵丹妙药……起死回生不在话下啊。
-
-
-
-
-
 
 
 -----
@@ -39504,16 +26499,9 @@ staff有了吗
 ##### 4292#       发表于 2018-6-22 15:20
 
 
-
-
 这么说九队都是诚实的好孩子呢
 说报告给爸爸就报告给爸爸
 <img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -39522,22 +26510,14 @@ staff有了吗
 ##### 4293#       发表于 2018-6-22 15:20
 
 
-
-
 别吓唬我 下集016灵机一动给02吃糖
 然后唐突恢复了正常可怎么办
-
-
-
-
-
 
 
 -----
 
 ####  猫白羽毛  
 ##### 4294#       发表于 2018-6-22 15:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40077858&amp;ptid=1712743" target="_blank">skives 发表于 2018-6-22 15:20</a>
@@ -39547,16 +26527,10 @@ darling……个……H……
 （突然眼睛有光）
 
 
-
-
-
-
-
 -----
 
 ####  hl8243  
 ##### 4295#       发表于 2018-6-22 15:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40077807&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-22 15:16</a>
@@ -39569,16 +26543,10 @@ darling……个……H……
 02干完这票的确有甜食啊  只是可能感觉不到甜味了
 
 
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 4296#       发表于 2018-6-22 15:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40077837&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-22 15:19</a>
@@ -39591,17 +26559,10 @@ darling……个……H……
 唯一一个疑似光靠爱情就躲过危机的是满……
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 4297#       发表于 2018-6-22 15:25
-
-
 
 
 想来16一直最喜欢02的双角了
@@ -39610,16 +26571,10 @@ darling……个……H……
 所以16长角就是为了吸引01注意吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 4298#       发表于 2018-6-22 15:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40077879&amp;ptid=1712743" target="_blank">hl8243 发表于 2018-6-22 15:23</a>
@@ -39628,17 +26583,10 @@ darling……个……H……
 说起来，02还有可能改口不叫达令吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 4299#       发表于 2018-6-22 15:30
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/22/153020cpn9na05b8irknw8.jpg" referrerpolicy="no-referrer">
@@ -39651,21 +26599,10 @@ darling……个……H……
 2018-6-22 15:30 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4300#       发表于 2018-6-22 15:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40077846&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-6-22 15:20</a>
@@ -39674,16 +26611,10 @@ darling……个……H……
 我12话说来13队打扰17话就来了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 4301#       发表于 2018-6-22 15:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40078057&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-22 15:41</a>
@@ -39692,17 +26623,10 @@ darling……个……H……
 诚实守信九阿法
 
 
-
-
-
-
-
 -----
 
 ####  大江户战士  
 ##### 4302#       发表于 2018-6-22 15:42
-
-
 
 
 https://twitter.com/pochincoff/status/1010000024447537152?s=21
@@ -39711,16 +26635,10 @@ https://twitter.com/pochincoff/status/1010000024447537152?s=21
 franxx的本子
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 4303#       发表于 2018-6-22 15:46
-
 
 
 <blockquote>xyau 发表于 2018-6-22 15:28
@@ -39740,16 +26658,10 @@ franxx的本子
 16突然意识到那个叫自己darling的02再也回不来了，崩溃。
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 4304#       发表于 2018-6-22 15:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40078073&amp;ptid=1712743" target="_blank">大江户战士 发表于 2018-6-22 15:42</a>
@@ -39761,16 +26673,10 @@ franxx的本子</blockquote>
 放开那个鹤望兰让我来！
 
 
-
-
-
-
-
 -----
 
 ####  不再是小孩子了  
 ##### 4305#       发表于 2018-6-22 15:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40078073&amp;ptid=1712743" target="_blank">大江户战士 发表于 2018-6-22 15:42</a>
@@ -39782,27 +26688,15 @@ franxx的本子</blockquote>
 真有想象力。简直像友少里面志熊理科的妄想
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 4306#       发表于 2018-6-22 15:51
 
 
-
-
 BD3倒数5天
 
 #8抱着偷来的衣服在夕阳下撒欢奔跑的02
-
-
-
-
-
 
 
 -----
@@ -39811,21 +26705,13 @@ BD3倒数5天
 ##### 4307#       发表于 2018-6-22 16:15
 
 
-
-
 下一集是日常太好了，我不喜欢看机战..
-
-
-
-
-
 
 
 -----
 
 ####  9α  
 ##### 4308#       发表于 2018-6-22 16:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40078386&amp;ptid=1712743" target="_blank">枢木スザク 发表于 2018-6-22 16:15</a>
@@ -39836,29 +26722,14 @@ iota妈妈<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" 
 <img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 4309#       发表于 2018-6-22 16:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 你们母子真的太可爱了
-
-
-
-
-
 
 
 -----
@@ -39867,22 +26738,15 @@ iota妈妈<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" 
 ##### 4310#       发表于 2018-6-22 16:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40077949&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-06-22 15:30:30</a></blockquote>原来是joe客串的16啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  xingenge  
 ##### 4311#       发表于 2018-6-22 17:00
-
 
 
  本帖最后由 xingenge 于 2018-6-22 17:18 编辑 
@@ -39896,16 +26760,10 @@ iota妈妈<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" 
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fsk2s9f2jtj20rs0jndj8.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 4312#       发表于 2018-6-22 17:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40078417&amp;ptid=1712743" target="_blank">9α 发表于 2018-6-22 16:17</a>
@@ -39917,16 +26775,10 @@ iota妈妈
 看了下喂食那里02嘴唇下好像有画白点，估计也没好好喝水
 
 
-
-
-
-
-
 -----
 
 ####  IWS2000  
 ##### 4313#       发表于 2018-6-22 17:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40078828&amp;ptid=1712743" target="_blank">xingenge 发表于 2018-6-22 17:00</a>
@@ -39938,25 +26790,13 @@ iota妈妈
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xyau  
 ##### 4314#       发表于 2018-6-22 17:05
 
 
-
-
 想起了睡美人<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">（其实本来想说青蛙王子
-
-
-
-
-
 
 
 -----
@@ -39965,17 +26805,12 @@ iota妈妈
 ##### 4315#       发表于 2018-6-22 17:07
 
 
-
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fsk2hswr5oj20mq0xc1kx.jpg" referrerpolicy="no-referrer">
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -39985,12 +26820,7 @@ iota妈妈
 | 02016| + 1|赞|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -39999,16 +26829,9 @@ iota妈妈
 ##### 4316#       发表于 2018-6-22 17:09
 
 
-
-
 泥萌俩母子真的太好了<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -40017,15 +26840,9 @@ iota妈妈
 ##### 4317#       发表于 2018-6-22 17:10
 
 
-
 <blockquote>xingenge 发表于 2018-6-22 17:07
 </blockquote>
 心满还能再战一个月！
-
-
-
-
-
 
 
 -----
@@ -40034,16 +26851,9 @@ iota妈妈
 ##### 4318#       发表于 2018-6-22 17:11
 
 
-
-
 睡美人广公主<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 醒来过对忠诚的小骑士第一句话是“我一直相信你的<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">”
-
-
-
-
-
 
 
 -----
@@ -40052,16 +26862,9 @@ iota妈妈
 ##### 4319#       发表于 2018-6-22 17:12
 
 
-
-
 下集心满爆上冲到第一<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -40070,15 +26873,9 @@ iota妈妈
 ##### 4320#       发表于 2018-6-22 17:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40078386&amp;ptid=1712743" target="_blank">枢木スザク 发表于 2018-6-22 16:15</a>
 下一集是日常太好了，我不喜欢看机战..</blockquote>
 红鸟哥哥！我想死你啦！<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -40087,21 +26884,13 @@ iota妈妈
 ##### 4321#       发表于 2018-6-22 17:18
 
 
-
-
 有4张，是我错漏了，刚才在上传各种PV，现在才来改
-
-
-
-
-
 
 
 -----
 
 ####  山贼先生  
 ##### 4322#       发表于 2018-6-22 17:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40078828&amp;ptid=1712743" target="_blank">xingenge 发表于 2018-6-22 17:00</a>
@@ -40112,16 +26901,10 @@ iota妈妈
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 4323#       发表于 2018-6-22 17:24
-
 
 
  本帖最后由 玖瑶君 于 2018-6-22 17:33 编辑 
@@ -40129,16 +26912,10 @@ iota妈妈
 这集心满展开其实还挺奇特的，以前有哪个剧是怀上后男女都失忆了忘了一切，然后周围人都记得让他们认孩子的吗……？韩剧/言情网文的感觉有点强，但又想不起来有哪个真的是这样的……
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 4324#       发表于 2018-6-22 17:35
-
 
 
  本帖最后由 amulelernen 于 2018-6-22 17:37 编辑 
@@ -40155,31 +26932,15 @@ iota妈妈
 2018-6-22 17:37 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 4325#       发表于 2018-6-22 17:41
 
 
-
 <blockquote>amulelernen 发表于 2018-6-22 17:35
 哦耶，主角终于kiss了，不容易啊。母女一起乐翻天</blockquote>
 所以01那个强吻到底是个什么意思，完全搞不懂了……就是为了吓人吗
-
-
-
-
-
 
 
 -----
@@ -40188,15 +26949,9 @@ iota妈妈
 ##### 4326#       发表于 2018-6-22 17:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40079234&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-22 17:41</a>
 所以01那个强吻到底是个什么意思，完全搞不懂了……就是为了吓人吗</blockquote>
 “01和男主不可能是单纯的接吻，没必要，肯定是某种仪式，或者是吸什么东西”
-
-
-
-
-
 
 
 -----
@@ -40205,23 +26960,16 @@ iota妈妈
 ##### 4327#       发表于 2018-6-22 17:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40079252&amp;ptid=1712743" target="_blank">skives 发表于 2018-6-22 17:43</a>
 
 “01和男主不可能是单纯的接吻，没必要，肯定是某种仪式，或者是吸什么东西” ...</blockquote>
 jzgg：啥？我就想恶心你们一下
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 4328#       发表于 2018-6-22 17:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40079234&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-22 17:41</a>
@@ -40236,27 +26984,15 @@ jzgg：啥？我就想恶心你们一下
 3 还有三集揭露惊天伏笔<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 4329#       发表于 2018-6-22 17:47
 
 
-
-
 “我们舍弃了<strong>联系</strong>，希望能够变得超级强强强强强强强强强强强强强强强强强强强强强强强强强强强”
 
 啊哦，又发现了一个矛盾的地方耶
-
-
-
-
-
 
 
 -----
@@ -40265,21 +27001,13 @@ jzgg：啥？我就想恶心你们一下
 ##### 4330#       发表于 2018-6-22 17:47
 
 
-
-
 4.锦织：我想代入跟3个女孩子接过吻的感觉……
-
-
-
-
-
 
 
 -----
 
 ####  华尔姬丽雅  
 ##### 4331#       发表于 2018-6-22 17:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40079234&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-22 17:41</a>
@@ -40290,16 +27018,10 @@ jzgg：啥？我就想恶心你们一下
 国15pro前面当然要来个升级版的国14才称得上国15pro……于是就只能让01强拆0216（物理），然后强吻广了。
 
 
-
-
-
-
-
 -----
 
 ####  soulife7  
 ##### 4332#       发表于 2018-6-22 17:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40079291&amp;ptid=1712743" target="_blank">9α 发表于 2018-06-22 17:47:51</a>
@@ -40308,16 +27030,10 @@ jzgg：啥？我就想恶心你们一下
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  soulife7  
 ##### 4333#       发表于 2018-6-22 17:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40079337&amp;ptid=1712743" target="_blank">华尔姬丽雅 发表于 2018-06-22 17:53:08</a>
@@ -40328,17 +27044,10 @@ jzgg：啥？我就想恶心你们一下
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4334#       发表于 2018-6-22 17:57
-
-
 
 
 明明是日常回……
@@ -40350,16 +27059,10 @@ jzgg：啥？我就想恶心你们一下
 <img src="https://i.loli.net/2018/06/22/5b2cc7e04bd44.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 4335#       发表于 2018-6-22 17:59
-
 
 
 <blockquote>9α 发表于 2018-6-22 17:57
@@ -40371,16 +27074,10 @@ jzgg：啥？我就想恶心你们一下
 7集和12集你就很享受啊，和男一女二绯闻不断……
 
 
-
-
-
-
-
 -----
 
 ####  9α  
 ##### 4336#       发表于 2018-6-22 18:00
-
 
 
  本帖最后由 9α 于 2018-6-22 18:02 编辑 
@@ -40393,17 +27090,10 @@ jzgg：啥？我就想恶心你们一下
 这哪里叫真正的日常<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">根本就没好好玩过
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 4337#       发表于 2018-6-22 18:04
-
-
 
 
 Loli——001
@@ -40413,17 +27103,10 @@ Loli——001
 会玩
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 4338#       发表于 2018-6-22 18:06
-
-
 
 
 其实是
@@ -40432,25 +27115,13 @@ Loli——001
 少女——02？
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 4339#       发表于 2018-6-22 18:06
 
 
-
-
 锦织还不如吉村卓
-
-
-
-
-
 
 
 -----
@@ -40459,23 +27130,15 @@ Loli——001
 ##### 4340#       发表于 2018-6-22 18:08
 
 
-
-
 通常套路不是，女怀孕，男女失忆，孩子生出来，孩子长大，孩子遇到父亲，男女重新认识恢复记忆吗
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  xyau  
 ##### 4341#       发表于 2018-6-22 18:23
-
 
 
 <blockquote>9α 发表于 2018-6-22 17:57
@@ -40487,16 +27150,10 @@ Loli——001
 你是想锄地还是想洗衣服？
 
 
-
-
-
-
-
 -----
 
 ####  闪亮的彗星  
 ##### 4342#       发表于 2018-6-22 18:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40079368&amp;ptid=1712743" target="_blank">9α 发表于 2018-06-22 17:57:34</a>
@@ -40511,16 +27168,10 @@ Loli——001
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  玖瑶君  
 ##### 4343#       发表于 2018-6-22 18:36
-
 
 
 <blockquote>xyau 发表于 2018-6-22 18:23
@@ -40528,16 +27179,10 @@ Loli——001
 讲真，比起种地更想看13队作为先觉醒的小队，带领大家的剧情……但预告里种地好像是种了一天（或者好几天？），也不知道该说是真实（没有物质社会的支持的原始状态就要这么累）还是一贯的少描写宏观只关注几个人的情爱部分……
 
 
-
-
-
-
-
 -----
 
 ####  山贼先生  
 ##### 4344#       发表于 2018-6-22 18:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40079440&amp;ptid=1712743" target="_blank">猫白羽毛 发表于 2018-06-22 18:06:12</a>
@@ -40549,16 +27194,10 @@ Loli——001
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  AminGly  
 ##### 4345#       发表于 2018-6-22 18:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40078386&amp;ptid=1712743" target="_blank">枢木スザク 发表于 2018-6-22 16:15</a>
@@ -40569,17 +27208,10 @@ Loli——001
 至于高破，泪，可以流吗
 
 
-
-
-
-
-
 -----
 
 ####  amulelernen  
 ##### 4346#       发表于 2018-6-22 18:41
-
-
 
 
 会有大人之吻吗？七姐也失去过爱人，会不会舌吻阿广让他从02的事故中振作起来？
@@ -40594,21 +27226,10 @@ Loli——001
 2018-6-22 18:42 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  华尔姬丽雅  
 ##### 4347#       发表于 2018-6-22 18:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40079696&amp;ptid=1712743" target="_blank">玖瑶君 发表于 2018-6-22 18:36</a>
@@ -40619,16 +27240,10 @@ Loli——001
 这片（不谈恋爱的）嘴炮环节一向发挥一般，而且13队和其他队实际上有很严重的思想隔阂，写他们怎么沟通还不如专心13内部矛盾，最多拿个9a当papa忠犬代表就行了。
 
 
-
-
-
-
-
 -----
 
 ####  不再是小孩子了  
 ##### 4348#       发表于 2018-6-22 18:47
-
 
 
 <blockquote>玖瑶君 发表于 2018-6-22 17:41
@@ -40636,16 +27251,10 @@ Loli——001
 所有人只有跟16吻过才能跟他开机
 
 
-
-
-
-
-
 -----
 
 ####  猫白羽毛  
 ##### 4349#       发表于 2018-6-22 18:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40079730&amp;ptid=1712743" target="_blank">amulelernen 发表于 2018-6-22 18:41</a>
@@ -40657,16 +27266,10 @@ Loli——001
 所以7姐坐飞机回来就是为了给广送四杀么
 
 
-
-
-
-
-
 -----
 
 ####  mumubear  
 ##### 4350#       发表于 2018-6-22 18:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40079612&amp;ptid=1712743" target="_blank">xyau 发表于 2018-6-22 18:23</a>
@@ -40679,8 +27282,5 @@ Loli——001
 
 
 ditf还缺个养鸡。。。
-
-
-
 
 

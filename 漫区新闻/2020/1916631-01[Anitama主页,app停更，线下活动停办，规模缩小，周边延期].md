@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2020-03-10 18:14** 
 
 
-
 -----
 
 ####  itsmyrailgun  
 ##### 1#       楼主       发表于 2020-3-1 21:14
-
 
 
  本帖最后由 itsmyrailgun 于 2020-3-7 03:08 编辑 
@@ -39,26 +37,15 @@ AnimeTamashii
 啊，庚子年.....更新：做动画媒体为什么死路一条：
 
 
-
-
-
-
-
 -----
 
 ####  nihongkai  
 ##### 2#       发表于 2020-3-1 21:16
 
 
-
  本帖最后由 nihongkai 于 2020-3-1 21:18 编辑 
 
 去年就在说要缩减人数，没想到连新声都没得看了
-
-
-
-
-
 
 
 -----
@@ -67,17 +54,10 @@ AnimeTamashii
 ##### 3#       发表于 2020-3-1 21:25
 
 
-
-
 顺便放一下蓝莲安对之前的事的解释吧。
 https://zhuanlan.zhihu.com/p/109589137
 
 现在anitama只剩nbht了？
-
-
-
-
-
 
 
 -----
@@ -86,14 +66,8 @@ https://zhuanlan.zhihu.com/p/109589137
 ##### 4#       发表于 2020-3-1 21:27
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">谢老师的新声啊
 补个链接[https://weibo.com/5628238455/IwDd1nvj5](https://weibo.com/5628238455/IwDd1nvj5)
-
-
-
-
-
 
 
 -----
@@ -102,14 +76,7 @@ https://zhuanlan.zhihu.com/p/109589137
 ##### 5#       发表于 2020-3-1 21:37
 
 
-
-
 所以就是便利店倒闭了嘛……
-
-
-
-
-
 
 
 -----
@@ -118,16 +85,9 @@ https://zhuanlan.zhihu.com/p/109589137
 ##### 6#       发表于 2020-3-1 21:37
 
 
-
-
 怎么感觉nbht混到最后连个单干的小主播都不如了
 
 —— 来自 Xiaomi MI 9, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -136,14 +96,7 @@ https://zhuanlan.zhihu.com/p/109589137
 ##### 7#       发表于 2020-3-1 21:42
 
 
-
-
 nbht还要当vtb，感觉会累死
-
-
-
-
-
 
 
 -----
@@ -152,16 +105,9 @@ nbht还要当vtb，感觉会累死
 ##### 8#       发表于 2020-3-1 21:49
 
 
-
-
 之前已经抢救过一次了，没有市场，抢救几次都没用。
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -170,21 +116,13 @@ nbht还要当vtb，感觉会累死
 ##### 9#       发表于 2020-3-1 21:50
 
 
-
-
 之前我还买了小恐龙呢，要变成遗物了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Stellar_Frost  
 ##### 10#       发表于 2020-3-1 21:51
-
 
 
  本帖最后由 Stellar_Frost 于 2020-3-1 21:55 编辑 
@@ -194,16 +132,10 @@ nbht还要当vtb，感觉会累死
 有点发早了
 
 
-
-
-
-
-
 -----
 
 ####  findpkq  
 ##### 11#       发表于 2020-3-1 21:53
-
 
 
  本帖最后由 findpkq 于 2020-3-1 21:57 编辑 
@@ -213,26 +145,15 @@ Liar也确认不在anitama了
 —— 来自 Xiaomi Redmi Note 3, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  尼特子很辛苦哟  
 ##### 12#       发表于 2020-3-1 21:53
 
 
-
  本帖最后由 尼特子很辛苦哟 于 2020-3-1 22:09 编辑 
 
 看到去年几个视频企划不成功，而专栏板块栏目缩减到几乎只剩新闻和新声的时候就有预感了……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">新声不做了也就是谢老师也不在了嘛，那现在anitama不就是糊涂光杆司令…
-
-
-
-
-
 
 
 -----
@@ -241,13 +162,7 @@ Liar也确认不在anitama了
 ##### 13#       发表于 2020-3-1 21:56
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">批站卸磨杀驴
-
-
-
-
-
 
 
 -----
@@ -256,16 +171,10 @@ Liar也确认不在anitama了
 ##### 14#       发表于 2020-3-1 21:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46583538&amp;ptid=1916631" target="_blank">INUBASHIRI 发表于 2020-3-1 21:56</a>
 
 批站卸磨杀驴</blockquote>
 下一站知春里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -274,15 +183,9 @@ Liar也确认不在anitama了
 ##### 15#       发表于 2020-3-1 21:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次连吊唁的都没了，说明这条路就走不通，大众不需要那些又干又硬的东西
 
 —— 来自 samsung SM-G950F, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -291,20 +194,13 @@ Liar也确认不在anitama了
 ##### 16#       发表于 2020-3-1 22:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我还指着这网站当每日冻鳗表呢
-
-
-
-
-
 
 
 -----
 
 ####  INUBASHIRI  
 ##### 17#       发表于 2020-3-1 22:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46583560&amp;ptid=1916631" target="_blank">Stellar_Frost 发表于 2020-3-1 21:58</a>
@@ -322,27 +218,15 @@ Liar也确认不在anitama了
 这么可惜的事情，只能明天买罐嘉士伯庆祝庆祝
 
 
-
-
-
-
-
 -----
 
 ####  keasen  
 ##### 18#       发表于 2020-3-1 22:12
 
 
-
-
 不如开个众筹吧，太难了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -351,21 +235,13 @@ Liar也确认不在anitama了
 ##### 19#       发表于 2020-3-1 22:17
 
 
-
-
 真可惜<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">以前访谈、翻译看了很多
-
-
-
-
-
 
 
 -----
 
 ####  spring_VOV  
 ##### 20#       发表于 2020-3-1 22:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46583724&amp;ptid=1916631" target="_blank">keasen 发表于 2020-3-1 22:12</a>
@@ -377,16 +253,10 @@ Liar也确认不在anitama了
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  kraoo  
 ##### 21#       发表于 2020-3-1 22:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46583724&amp;ptid=1916631" target="_blank">keasen 发表于 2020-3-1 22:12</a>
@@ -396,25 +266,13 @@ Liar也确认不在anitama了
 公告里不写了吗，这次众筹的小恐龙还没发货呢就推迟了
 
 
-
-
-
-
-
 -----
 
 ####  樱井初雪  
 ##### 22#       发表于 2020-3-1 22:35
 
 
-
-
 还是不希望死的，起码作为消息溯源点做的还是怪好
-
-
-
-
-
 
 
 -----
@@ -423,14 +281,7 @@ Liar也确认不在anitama了
 ##### 23#       发表于 2020-3-1 22:38
 
 
-
-
 可能自己一个人当个up主播更符合受众市场的发展需要吧...
-
-
-
-
-
 
 
 -----
@@ -439,21 +290,13 @@ Liar也确认不在anitama了
 ##### 24#       发表于 2020-3-1 22:39
 
 
-
-
 现状就是小众连活下去都很困难<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  plazum  
 ##### 25#       发表于 2020-3-1 22:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46583227&amp;ptid=1916631" target="_blank">wfefe 发表于 2020-3-1 21:25</a>
@@ -466,16 +309,10 @@ https://zhuanlan.zhihu.com/p/109589137</blockquote>
 太可惜了
 
 
-
-
-
-
-
 -----
 
 ####  SFLSNZYN  
 ##### 26#       发表于 2020-3-1 22:51
-
 
 
  本帖最后由 SFLSNZYN 于 2020-3-2 01:08 编辑 
@@ -487,27 +324,15 @@ https://zhuanlan.zhihu.com/p/109589137</blockquote>
 去年独立之后要想办法养活自己，奈何你圈讲相声的大up个个活的滋润，讲道理的媒体没人读，从头到尾向大众输出最成功的还是nbht做的东西。苟了一年苟不下去了，结果就这样了。
 
 
-
-
-
-
-
 -----
 
 ####  takitaki  
 ##### 27#       发表于 2020-3-1 22:51
 
 
-
-
 又是一条死路。
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -516,14 +341,7 @@ https://zhuanlan.zhihu.com/p/109589137</blockquote>
 ##### 28#       发表于 2020-3-1 22:53
 
 
-
-
 牛逼火腿这是要过劳死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这年头纯动画资讯站好像根本就没啥变现的法子
-
-
-
-
-
 
 
 -----
@@ -532,23 +350,15 @@ https://zhuanlan.zhihu.com/p/109589137</blockquote>
 ##### 29#       发表于 2020-3-1 22:57
 
 
-
-
 唉，可惜了。
 
 我还想多看看nbht对一些有特点的原画师的分析，访谈也很有收获。
-
-
-
-
-
 
 
 -----
 
 ####  影伴光生  
 ##### 30#       发表于 2020-3-1 23:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46584158&amp;ptid=1916631" target="_blank">SFLSNZYN 发表于 2020-3-1 22:51</a>
@@ -559,13 +369,9 @@ https://zhuanlan.zhihu.com/p/109589137</blockquote>
 B站整个活让出来帮站台都不听的崽，当然不如安心稳定的流水线UP们好用了
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -575,19 +381,13 @@ B站整个活让出来帮站台都不听的崽，当然不如安心稳定的流�
 | INUBASHIRI| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  SFLSNZYN  
 ##### 31#       发表于 2020-3-1 23:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46584211&amp;ptid=1916631" target="_blank">nagitoY 发表于 2020-3-1 22:57</a>
@@ -597,16 +397,10 @@ B站整个活让出来帮站台都不听的崽，当然不如安心稳定的流�
 nbht还在啊，想看nbht还有
 
 
-
-
-
-
-
 -----
 
 ####  nagitoY  
 ##### 32#       发表于 2020-3-1 23:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46584238&amp;ptid=1916631" target="_blank">SFLSNZYN 发表于 2020-3-1 23:00</a>
@@ -618,27 +412,15 @@ nbht还在啊，想看nbht还有</blockquote>
 感觉一方面是因为日更视频能紧跟热点，一方面还是视频简短不会劝退新人。
 
 
-
-
-
-
-
 -----
 
 ####  AbigailWilliams  
 ##### 33#       发表于 2020-3-1 23:11
 
 
-
-
 阿b用这个赚小众的名声还不如用签约的那些up主赚大众的名声，被抛弃也是必然的。毕竟只要赚到大众的名声，小众再怎么样阿b也已经不用管了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -647,15 +429,9 @@ nbht还在啊，想看nbht还有</blockquote>
 ##### 34#       发表于 2020-3-1 23:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">所以到底是不是当初给阿B甩脸导致的后来的结果啊
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -664,22 +440,13 @@ nbht还在啊，想看nbht还有</blockquote>
 ##### 35#       发表于 2020-3-1 23:16
 
 
-
-
 反正nbht已经不需要anitama这个牌子了，当套皮人不好吗。
-
-
-
-
-
 
 
 -----
 
 ####  DolphinAlpha  
 ##### 36#       发表于 2020-3-1 23:16
-
-
 
 
 看了一下，最近几期视频基本不到10w播放，文章基本两三千阅读
@@ -689,32 +456,19 @@ anitama要活下去，要么能流量变现，要么能指导业界，要么能�
 三条路都走不通，靠爱发电能撑多久
 
 
-
-
-
-
-
 -----
 
 ####  Tomorrow_D  
 ##### 37#       发表于 2020-3-1 23:16
 
 
-
-
 和Anitama有过两次合作，受到了Liar君的不少关照。希望离职的员工们今后都能够一切顺利。
-
-
-
-
-
 
 
 -----
 
 ####  INUBASHIRI  
 ##### 38#       发表于 2020-3-1 23:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46584332&amp;ptid=1916631" target="_blank">巴裘拉 发表于 2020-3-1 23:11</a>
@@ -734,19 +488,10 @@ anitama要活下去，要么能流量变现，要么能指导业界，要么能�
 2020-3-1 23:26 上传
 
 
-
-
-
-
 不是
 
 
 2019年4月pilipili还又注资了40W
-
-
-
-
-
 
 
 -----
@@ -755,22 +500,15 @@ anitama要活下去，要么能流量变现，要么能指导业界，要么能�
 ##### 39#       发表于 2020-3-1 23:30
 
 
-
  本帖最后由 kg21xhunter 于 2020-3-1 23:37 编辑 
 
 科普类UP主不转型应该都是这样的结局吧，为什么不改名SakugaTamashii算了
-
-
-
-
-
 
 
 -----
 
 ####  Stellar_Frost  
 ##### 40#       发表于 2020-3-1 23:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46584500&amp;ptid=1916631" target="_blank">INUBASHIRI 发表于 2020-3-1 23:27</a>
@@ -783,16 +521,10 @@ anitama要活下去，要么能流量变现，要么能指导业界，要么能�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  INUBASHIRI  
 ##### 41#       发表于 2020-3-1 23:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46584551&amp;ptid=1916631" target="_blank">Stellar_Frost 发表于 2020-3-1 23:31</a>
@@ -804,24 +536,13 @@ anitama要活下去，要么能流量变现，要么能指导业界，要么能�
 这钱没到账咯
 
 
-
-
-
-
-
 -----
 
 ####  nerugigannte  
 ##### 42#       发表于 2020-3-1 23:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这样一看二刺螈这圈子还是小圈子
-
-
-
-
-
 
 
 -----
@@ -830,14 +551,7 @@ anitama要活下去，要么能流量变现，要么能指导业界，要么能�
 ##### 43#       发表于 2020-3-1 23:37
 
 
-
-
 怪不得魔魔也停更了
-
-
-
-
-
 
 
 -----
@@ -846,14 +560,7 @@ anitama要活下去，要么能流量变现，要么能指导业界，要么能�
 ##### 44#       发表于 2020-3-1 23:37
 
 
-
-
 我昨天整理rss时突然发现anitama停更好久了。。。但是懒得发帖说。新声真的很棒，如果真的不做了的话，希望谢老师能教一下怎么能关注到那么多的话题，想来应该不是靠纯人力完成的
-
-
-
-
-
 
 
 -----
@@ -862,17 +569,10 @@ anitama要活下去，要么能流量变现，要么能指导业界，要么能�
 ##### 45#       发表于 2020-3-1 23:38
 
 
-
-
 Anitama之前的盈利模式是什么呀？关注了挺长时间似乎也没什么靠谱的广告，真的是用爱发电嘛
 
 
 话说会不会以后变成睿站动画区漫评UP主的形状后反而爆红？（大雾
-
-
-
-
-
 
 
 -----
@@ -881,18 +581,12 @@ Anitama之前的盈利模式是什么呀？关注了挺长时间似乎也没什�
 ##### 46#       发表于 2020-3-1 23:38
 
 
-
-
 没有内容是做不下去的。没有版权绘，没有访谈，不搞各种乱七八糟的企划，成不了中国的《newtype》的。
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -902,12 +596,7 @@ Anitama之前的盈利模式是什么呀？关注了挺长时间似乎也没什�
 | Radio147| + 1|思路广|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -916,16 +605,10 @@ Anitama之前的盈利模式是什么呀？关注了挺长时间似乎也没什�
 ##### 47#       发表于 2020-3-1 23:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46584610&amp;ptid=1916631" target="_blank">蓳白 发表于 2020-3-1 23:37</a>
 
 怪不得魔魔也停更了</blockquote>
 可以看lla知乎的最新文章，主要是新工作的限制
-
-
-
-
-
 
 
 -----
@@ -934,14 +617,7 @@ Anitama之前的盈利模式是什么呀？关注了挺长时间似乎也没什�
 ##### 48#       发表于 2020-3-1 23:39
 
 
-
-
 说起来我还在淘宝店买过信仰充值卡。
-
-
-
-
-
 
 
 -----
@@ -950,21 +626,13 @@ Anitama之前的盈利模式是什么呀？关注了挺长时间似乎也没什�
 ##### 49#       发表于 2020-3-1 23:41
 
 
-
-
 nbht感觉被anitama拖累了
-
-
-
-
-
 
 
 -----
 
 ####  SFLSNZYN  
 ##### 50#       发表于 2020-3-1 23:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46584623&amp;ptid=1916631" target="_blank">Rintaro 发表于 2020-3-1 23:38</a>
@@ -975,32 +643,19 @@ Anitama之前的盈利模式是什么呀？关注了挺长时间似乎也没什�
 从阿B独立后和阿B还有合作，包括透镜和一些跑展会的视频，看联合投稿
 
 
-
-
-
-
-
 -----
 
 ####  树皮83  
 ##### 51#       发表于 2020-3-1 23:42
 
 
-
-
 可以 终于不用天天看他们翻译厕纸作家的推当圣旨了 开心<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Stellar_Frost  
 ##### 52#       发表于 2020-3-1 23:42
-
 
 
  本帖最后由 Stellar_Frost 于 2020-3-2 00:26 编辑 
@@ -1015,26 +670,15 @@ Anitama之前的盈利模式是什么呀？关注了挺长时间似乎也没什�
 而且现在另一个认缴40万的已经去某App工厂了，可能那个地方没有草台吧
 
 
-
-
-
-
-
 -----
 
 ####  moekyo  
 ##### 53#       发表于 2020-3-2 00:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46584661&amp;ptid=1916631" target="_blank">树皮83 发表于 2020-3-1 23:42</a>
  可以 终于不用天天看他们翻译厕纸作家的推当圣旨了 开心</blockquote>
 心疼
-
-
-
-
-
 
 
 -----
@@ -1043,15 +687,9 @@ Anitama之前的盈利模式是什么呀？关注了挺长时间似乎也没什�
 ##### 54#       发表于 2020-3-2 00:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46584661&amp;ptid=1916631" target="_blank">树皮83 发表于 2020-3-1 23:42</a>
 可以 终于不用天天看他们翻译厕纸作家的推当圣旨了 开心</blockquote>
 谢老师的推特翻译环节确实欣赏不来<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1060,21 +698,13 @@ Anitama之前的盈利模式是什么呀？关注了挺长时间似乎也没什�
 ##### 55#       发表于 2020-3-2 00:23
 
 
-
-
 前两天看《编舟记》的时候就有想到anitama的事，这样的部门要生存下去必需具备能和总公司斡旋的人才，要让总公司相信他们能做出撑起公司牌面的东西；而部门本身也应有一个能担起牌面之责的目标，所以我个人一直认为动画魂应该走发行实体刊物图书的路子，引进翻译也好整合编辑也好，必须是一条在形式上就不同于一般自媒体的路子，脱离劣币驱逐良币的同质竞争。  我不知道动画魂内部是否有过这样的摇摆，但是从外界视角来看，动画魂始终上不能糊弄天听，下不能接地气，而且从始至终没有过什么要寻找出路的举动。所以不能简单说是时代容不下这样一个编辑部。
-
-
-
-
-
 
 
 -----
 
 ####  Stellar_Frost  
 ##### 56#       发表于 2020-3-2 00:30
-
 
 
  本帖最后由 Stellar_Frost 于 2020-3-2 00:32 编辑 
@@ -1084,32 +714,19 @@ Anitama之前的盈利模式是什么呀？关注了挺长时间似乎也没什�
 至于人的问题，你说的对，但本质还是这个领域没油水的问题。换成游戏圈做toB挣钱是个常用选项（虽然antm之前收入也是从B端来的，但不是同一回事）来自: iPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  普罗茶  
 ##### 57#       发表于 2020-3-2 00:31
 
 
-
-
 其实app用的人也不多吧，我看最近的都很少回复（一两年前还多点）
-
-
-
-
-
 
 
 -----
 
 ####  wfefe  
 ##### 58#       发表于 2020-3-2 00:31
-
 
 
  本帖最后由 wfefe 于 2020-3-2 00:34 编辑 
@@ -1120,26 +737,15 @@ Anitama之前的盈利模式是什么呀？关注了挺长时间似乎也没什�
 而且你是做周刊还是月刊，周刊我觉得没那么多内容，月刊又有点滞后，网络信息这么快，大多数人根本懒得看深度报道。
 
 
-
-
-
-
-
 -----
 
 ####  asdf3240  
 ##### 59#       发表于 2020-3-2 00:32
 
 
-
  本帖最后由 asdf3240 于 2020-3-2 00:51 编辑 
 
 虽然我对ani有点意见，不过总体还是喜欢大于厌恶的，希望以后他们能继续发展
-
-
-
-
-
 
 
 -----
@@ -1148,14 +754,7 @@ Anitama之前的盈利模式是什么呀？关注了挺长时间似乎也没什�
 ##### 60#       发表于 2020-3-2 00:34
 
 
-
-
 anitama在阿b的时候阿b也没赚着名声啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1164,17 +763,10 @@ anitama在阿b的时候阿b也没赚着名声啊<img src="https://static.saraba1
 ##### 61#       发表于 2020-3-2 00:37
 
 
-
-
 建议真爱粉直接给nbht微信打钱
 另外不要给他朋友打SC，有差价的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -1183,14 +775,7 @@ anitama在阿b的时候阿b也没赚着名声啊<img src="https://static.saraba1
 ##### 62#       发表于 2020-3-2 00:44
 
 
-
-
 借楼问一句，2dm现在怎么样了？
-
-
-
-
-
 
 
 -----
@@ -1199,16 +784,9 @@ anitama在阿b的时候阿b也没赚着名声啊<img src="https://static.saraba1
 ##### 63#       发表于 2020-3-2 00:45
 
 
-
-
 anitama的内容输出太少，支撑不起一个网站。
 如果没有每天高质量的更新，根本没人愿意每天去刷，不一会就忘了这回事了，偶尔更新的高质量文章也很难被看到。结果就是只有在快死了才有人想起来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。
 搞成订阅式，周刊/月刊/半月刊向订阅的人推送可能都好很多。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1217,15 +795,9 @@ anitama的内容输出太少，支撑不起一个网站。
 ##### 64#       发表于 2020-3-2 00:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">最近看得少了，以前学习了很多，真没了就来上柱香吧
 
 —— 来自 Xiaomi MIX, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -1234,14 +806,7 @@ anitama的内容输出太少，支撑不起一个网站。
 ##### 65#       发表于 2020-3-2 00:46
 
 
-
-
 连恰饭都不会的人，怎么可能经营好<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1250,19 +815,14 @@ anitama的内容输出太少，支撑不起一个网站。
 ##### 66#       发表于 2020-3-2 00:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46584613&amp;ptid=1916631" target="_blank">奈落的孤火花 发表于 2020-3-1 23:37</a>
 我昨天整理rss时突然发现anitama停更好久了。。。但是懒得发帖说。新声真的很棒，如果真的不做了的话，希望 ...</blockquote>
 纯人力，我记得以前谢老师回答过。有时候刷推正好遇到合适的素材了就好写，没遇到的话经常刷几个小时都只能写一点点，所以新声越短质量越差。可以翻翻Anitama的微博，我说的应该没错
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -1272,12 +832,7 @@ anitama的内容输出太少，支撑不起一个网站。
 | 奈落的孤火花| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -1286,14 +841,7 @@ anitama的内容输出太少，支撑不起一个网站。
 ##### 67#       发表于 2020-3-2 01:03
 
 
-
-
 今天才刚给人推了anitama里面关于超人幻想考据的文章...
-
-
-
-
-
 
 
 -----
@@ -1302,23 +850,15 @@ anitama的内容输出太少，支撑不起一个网站。
 ##### 68#       发表于 2020-3-2 01:05
 
 
-
-
 动画幕后这一块也确实还是小众
 
 和游戏还是不一样
-
-
-
-
-
 
 
 -----
 
 ####  albertuslongius  
 ##### 69#       发表于 2020-3-2 01:10
-
 
 
  本帖最后由 albertuslongius 于 2020-3-2 01:13 编辑 
@@ -1328,13 +868,9 @@ anitama的内容输出太少，支撑不起一个网站。
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +2
@@ -1345,12 +881,7 @@ anitama的内容输出太少，支撑不起一个网站。
 | lxlyandccc| + 1|思路广|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -1359,23 +890,16 @@ anitama的内容输出太少，支撑不起一个网站。
 ##### 70#       发表于 2020-3-2 01:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46584995&amp;ptid=1916631" target="_blank">上下左右 发表于 2020-3-2 00:19</a>
 
 谢老师的推特翻译环节确实欣赏不来</blockquote>
 我把anitama微博取关就是因为这个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  nagitoY  
 ##### 71#       发表于 2020-3-2 01:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46585433&amp;ptid=1916631" target="_blank">albertuslongius 发表于 2020-3-2 01:10</a>
@@ -1388,16 +912,10 @@ anitama的内容输出太少，支撑不起一个网站。
 当初看完天气之子，就看了anitama对整个团队不同职位人的采访，真是感触良多。这个希望能继续做下去。
 
 
-
-
-
-
-
 -----
 
 ####  支仓爱理  
 ##### 72#       发表于 2020-3-2 01:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46584661&amp;ptid=1916631" target="_blank">树皮83 发表于 2020-3-1 23:42</a>
@@ -1406,25 +924,13 @@ anitama的内容输出太少，支撑不起一个网站。
 谢谢 有笑到
 
 
-
-
-
-
-
 -----
 
 ####  韩子  
 ##### 73#       发表于 2020-3-2 01:45
 
 
-
-
 谢老师又不是只翻译轻小说家推文…虽然那些我也不怎么看，但其他翻的一些知名动画人工作中的心得和方法论，还有回忆昭和年代业界、同人界的状况的内容都是非常棒的科普。
-
-
-
-
-
 
 
 -----
@@ -1433,24 +939,16 @@ anitama的内容输出太少，支撑不起一个网站。
 ##### 74#       发表于 2020-3-2 01:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46585722&amp;ptid=1916631" target="_blank">韩子 发表于 2020-3-2 01:45</a>
 
 谢老师又不是只翻译轻小说家推文…虽然那些我也不怎么看，但其他翻的一些知名动画人工作中的心得和方法论， ...</blockquote>
 但体感上确实推特翻译比较多，其中不少有涉及他们的个人经历与想法，个人偶尔看见认识的staff会点进去看看，不认识的话确实没有共鸣。
 
 
-
-
-
-
-
 -----
 
 ####  ipcjs  
 ##### 75#       发表于 2020-3-2 01:57
-
-
 
 
 阿尼他妈总是在做自己喜欢的东西，nbht是作豚就做作画mad，蓝莲安是巨魔就做魔魔。B站有千万萌萌二次元嗷嗷待哺，他们却偏偏要服务2万作豚和1千巨魔<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">
@@ -1462,16 +960,10 @@ anitama的内容输出太少，支撑不起一个网站。
 — from Google Pixel 2 XL, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  一般通过宅宅  
 ##### 76#       发表于 2020-3-2 02:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46585206&amp;ptid=1916631" target="_blank">尼特子很辛苦哟 发表于 2020-3-2 00:44</a>
@@ -1480,17 +972,10 @@ anitama的内容输出太少，支撑不起一个网站。
 新刊还在继续出，不过也活的不咋滋润吧...
 
 
-
-
-
-
-
 -----
 
 ####  御坂MKII  
 ##### 77#       发表于 2020-3-2 02:20
-
-
 
 
 魔魔多少还行了 搞出了一个10万 一个6万5的视频 继续试下去未必不可
@@ -1498,16 +983,10 @@ anitama的内容输出太少，支撑不起一个网站。
 —— 来自 Xiaomi Mi 10 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  Rintaro  
 ##### 78#       发表于 2020-3-2 02:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46585807&amp;ptid=1916631" target="_blank">ipcjs 发表于 2020-3-2 01:57</a>
@@ -1519,17 +998,10 @@ anitama的内容输出太少，支撑不起一个网站。
 睿站搞冻鳗相声的也不少啊（最近已经开始出现有大量事实性错误的了），达到一定的热度也不是很多呀。
 
 
-
-
-
-
-
 -----
 
 ####  紅天蛾  
 ##### 79#       发表于 2020-3-2 03:36
-
-
 
 
 犹记2015-16年网友气吞山河，仿佛接下来就能买下世界的气概。
@@ -1538,25 +1010,13 @@ anitama的内容输出太少，支撑不起一个网站。
 看吧，这就是钱的力量。
 
 
-
-
-
-
-
 -----
 
 ####  jajajzz  
 ##### 80#       发表于 2020-3-2 04:26
 
 
-
-
 之前在anitama写轻小说介绍的人去哪了 还有写介绍吗
-
-
-
-
-
 
 
 -----
@@ -1565,14 +1025,7 @@ anitama的内容输出太少，支撑不起一个网站。
 ##### 81#       发表于 2020-3-2 04:28
 
 
-
-
 唉，业界难道真的……
-
-
-
-
-
 
 
 -----
@@ -1581,14 +1034,7 @@ anitama的内容输出太少，支撑不起一个网站。
 ##### 82#       发表于 2020-3-2 04:36
 
 
-
-
 很少看anitama，前些年偶尔看到也觉得意思不大。看到这个帖子去看了看新声栏目，其实还可以，和刷S1的趣味性五五开吧
-
-
-
-
-
 
 
 -----
@@ -1597,15 +1043,9 @@ anitama的内容输出太少，支撑不起一个网站。
 ##### 83#       发表于 2020-3-2 04:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46585105&amp;ptid=1916631" target="_blank">普罗茶 发表于 2020-3-2 00:31</a>
 其实app用的人也不多吧，我看最近的都很少回复（一两年前还多点）</blockquote>
 国内网站做社交和公共评论需要用户实名认证，没做这个功能也就没有那些功能了
-
-
-
-
-
 
 
 -----
@@ -1614,14 +1054,7 @@ anitama的内容输出太少，支撑不起一个网站。
 ##### 84#       发表于 2020-3-2 06:57
 
 
-
-
 要是把新声做成类似数码资讯视频那种应该不错，不过得有人做才行
-
-
-
-
-
 
 
 -----
@@ -1630,24 +1063,15 @@ anitama的内容输出太少，支撑不起一个网站。
 ##### 85#       发表于 2020-3-2 07:15
 
 
-
-
 隔壁老婆罗门们连买正版作品本身都舍不得，这种二手干货没多少人买账正常<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  修疾尔  
 ##### 86#       发表于 2020-3-2 07:17
-
-
 
 
 这个平台死亡是必然的，老有人说这平台硬核，这就很奇怪。
@@ -1658,13 +1082,9 @@ anitama的所谓“硬核”是宅男观众的硬核，事实上和创作者是�
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +2
@@ -1675,12 +1095,7 @@ anitama的所谓“硬核”是宅男观众的硬核，事实上和创作者是�
 | #@qqqy| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -1689,14 +1104,7 @@ anitama的所谓“硬核”是宅男观众的硬核，事实上和创作者是�
 ##### 87#       发表于 2020-3-2 07:39
 
 
-
-
 翻译推特的那个栏目没了是好事，就是因为不想看到那玩意才很久没点开anitama的。
-
-
-
-
-
 
 
 -----
@@ -1705,22 +1113,13 @@ anitama的所谓“硬核”是宅男观众的硬核，事实上和创作者是�
 ##### 88#       发表于 2020-3-2 07:45
 
 
-
-
 对对对，不看就是萌二，就这垃圾样活该没
-
-
-
-
-
 
 
 -----
 
 ####  杨雪崩  
 ##### 89#       发表于 2020-3-2 09:04
-
-
 
 
 一个媒体风评能做到NGA，S1，萌站吧近乎于人人喊打还是需要水平的<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
@@ -1730,16 +1129,10 @@ anitama的所谓“硬核”是宅男观众的硬核，事实上和创作者是�
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  TheDoctor  
 ##### 90#       发表于 2020-3-2 09:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46585158&amp;ptid=1916631" target="_blank">spring_VOV 发表于 2020-3-2 00:37</a>
@@ -1750,16 +1143,10 @@ anitama的所谓“硬核”是宅男观众的硬核，事实上和创作者是�
 sc是什么黑话
 
 
-
-
-
-
-
 -----
 
 ####  mwj  
 ##### 91#       发表于 2020-3-2 09:10
-
 
 
 <blockquote>jajajzz 发表于 2020-3-2 04:26
@@ -1771,26 +1158,15 @@ https://zhuanlan.zhihu.com/qingxiaoshuo
 应该是同一批人
 
 
-
-
-
-
-
 -----
 
 ####  lushark  
 ##### 92#       发表于 2020-3-2 09:26
 
 
-
 <blockquote>wfefe 发表于 2020-3-2 00:31
 国内纸媒杂志绝大多数都死了，而且审核远比线上严格的多，背后没金主根本做不下去。也不清楚现在的杂志版 ...</blockquote>
 是图书，半年一年一册不定期出版的图书，《xxx的漫画书》《yyy的创作秘诀》……一些买了不用看拍张照就能当婆罗门的图书。
-
-
-
-
-
 
 
 -----
@@ -1799,22 +1175,15 @@ https://zhuanlan.zhihu.com/qingxiaoshuo
 ##### 93#       发表于 2020-3-2 09:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46587207&amp;ptid=1916631" target="_blank">TheDoctor 发表于 2020-3-2 09:08</a>
 sc是什么黑话</blockquote>
 superchat，404打钱留言最近b站管人也实装了这功能
-
-
-
-
-
 
 
 -----
 
 ####  lushark  
 ##### 94#       发表于 2020-3-2 09:40
-
 
 
 <blockquote>Stellar_Frost 发表于 2020-3-2 00:30
@@ -1824,32 +1193,19 @@ superchat，404打钱留言最近b站管人也实装了这功能
 当然不容易。但世间哪有随随便便就有人出钱供你做自己喜欢干的事这种好事，在我来看anitama已经一度非常幸运了。
 
 
-
-
-
-
-
 -----
 
 ####  Fuero  
 ##### 95#       发表于 2020-3-2 09:53
 
 
-
-
 内容方向走歪了吧，但我确实多年没看了…anitama后面有引进类似绘画教程或者原画教学之类的东西吗？说实话这玩意挺搭的而且有不小受众吧，如果独家签很多们，还能变现
-
-
-
-
-
 
 
 -----
 
 ####  spring_VOV  
 ##### 96#       发表于 2020-3-2 09:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46587184&amp;ptid=1916631" target="_blank">杨雪崩 发表于 2020-3-2 09:04</a>
@@ -1865,16 +1221,10 @@ anitama作为守序正义的代表，当然不可能同流合污。<img src="htt
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  mwj  
 ##### 97#       发表于 2020-3-2 10:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46587594&amp;ptid=1916631" target="_blank">Fuero 发表于 2020-3-2 09:53</a>
@@ -1885,25 +1235,13 @@ anitama作为守序正义的代表，当然不可能同流合污。<img src="htt
 何况之前还出了个视频diss了一波培训班，说真正的牛人都是自学的，然后自己再搞培训班不是打自己脸？
 
 
-
-
-
-
-
 -----
 
 ####  xpisces  
 ##### 98#       发表于 2020-3-2 10:32
 
 
-
-
 怎么还没死透<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1912,21 +1250,13 @@ anitama作为守序正义的代表，当然不可能同流合污。<img src="htt
 ##### 99#       发表于 2020-3-2 10:57
 
 
-
-
 阿尼塔玛流量巅峰是大鱼海棠上映的时候吧，那个时候每条大海新闻地下的评论都至少上三位数。
-
-
-
-
-
 
 
 -----
 
 ####  DolphinAlpha  
 ##### 100#       发表于 2020-3-2 11:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46587594&amp;ptid=1916631" target="_blank">Fuero 发表于 2020-3-2 09:53</a>
@@ -1937,17 +1267,10 @@ anitama作为守序正义的代表，当然不可能同流合污。<img src="htt
 然而nbht自己都不会作画<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我是不知道anitama天天整的作画mad，和那些“超燃混剪”有多少本质的区别，都不是自己生产的内容，要高端也没高端到哪里去
 
 
-
-
-
-
-
 -----
 
 ####  默逍  
 ##### 101#       发表于 2020-3-2 11:07
-
-
 
 
 希望离职的各位一切顺利
@@ -1956,14 +1279,9 @@ anitama作为守序正义的代表，当然不可能同流合污。<img src="htt
 没偷没抢堂堂正正做内容，马后炮的积点口德吧
 
 
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 6战斗力 +5
@@ -1978,12 +1296,7 @@ anitama作为守序正义的代表，当然不可能同流合污。<img src="htt
 | albertuslongius|-1|但是蠢得让人膈应啊|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -1992,21 +1305,13 @@ anitama作为守序正义的代表，当然不可能同流合污。<img src="htt
 ##### 102#       发表于 2020-3-2 11:16
 
 
-
-
 至少以前的解系列还算是给我科普了很多东西，现在成这样了还真是心理不舒服
-
-
-
-
-
 
 
 -----
 
 ####  findpkq  
 ##### 103#       发表于 2020-3-2 11:29
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">霓虹那么多动画相关纸媒都和教作画八竿子打不到关系，偶尔剪个作画MAD就觉得怎么不开作画培训，咋不说活的滋润的游戏媒体教做游戏，搞文学分析文学批评的应该出来做名著大师培训班
@@ -2018,25 +1323,13 @@ anitama作为守序正义的代表，当然不可能同流合污。<img src="htt
 当然说生产内容有限倒是差不多，游戏媒体那边成熟的多一手能从制作者那边拿到的信息也多
 
 
-
-
-
-
-
 -----
 
 ####  lzpandakun  
 ##### 104#       发表于 2020-3-2 12:38
 
 
-
-
 赶紧死<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2045,16 +1338,9 @@ anitama作为守序正义的代表，当然不可能同流合污。<img src="htt
 ##### 105#       发表于 2020-3-2 12:58
 
 
-
-
 感觉比起免费日更确实不如做成电子付费月刊或者周刊的形式。内容更精炼，也不那么费力，大家也好掏钱。
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -2063,16 +1349,10 @@ anitama作为守序正义的代表，当然不可能同流合污。<img src="htt
 ##### 106#       发表于 2020-3-2 12:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46585105&amp;ptid=1916631" target="_blank">普罗茶 发表于 2020-3-2 00:31</a>
 
 其实app用的人也不多吧，我看最近的都很少回复（一两年前还多点）</blockquote>
 评论功能关了
-
-
-
-
-
 
 
 -----
@@ -2081,24 +1361,15 @@ anitama作为守序正义的代表，当然不可能同流合污。<img src="htt
 ##### 107#       发表于 2020-3-2 12:59
 
 
-
-
 走免费始终就是走流量路线，小众玩意儿流量又撑不起来。
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  albertuslongius  
 ##### 108#       发表于 2020-3-2 13:02
-
-
 
 
 认真来说 阿你他妈和其他评论家之类的没有区别 都属于作品的“寄生者” 这是纯粹客观 不带褒贬的描述
@@ -2110,16 +1381,10 @@ anitama作为守序正义的代表，当然不可能同流合污。<img src="htt
 所以根源在于现在日本动漫已经没什么高质量的产出 吸引不了足够多热情的观众
 
 
-
-
-
-
-
 -----
 
 ####  1165wm989845  
 ##### 109#       发表于 2020-3-2 13:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46586664&amp;ptid=1916631" target="_blank">修疾尔 发表于 2020-3-2 07:17</a>
@@ -2130,16 +1395,10 @@ anitama的所谓“硬核”是宅男观众的硬核，事实上 ...</blockquote
 半吊子的硬核<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  麻里奈命  
 ##### 110#       发表于 2020-3-2 13:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46586664&amp;ptid=1916631" target="_blank">修疾尔 发表于 2020-3-2 07:17</a>
@@ -2150,16 +1409,10 @@ anitama的所谓“硬核”是宅男观众的硬核，事实上 ...</blockquote
 无比赞同
 
 
-
-
-
-
-
 -----
 
 ####  holla  
 ##### 111#       发表于 2020-3-2 13:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46589766&amp;ptid=1916631" target="_blank">albertuslongius 发表于 2020-3-2 13:02</a>
@@ -2172,16 +1425,10 @@ anitama的所谓“硬核”是宅男观众的硬核，事实上 ...</blockquote
 照你这思路日本动画铁臂阿童木的时候就该亡了，活到现在才是奇迹
 
 
-
-
-
-
-
 -----
 
 ####  albertuslongius  
 ##### 112#       发表于 2020-3-2 13:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46589939&amp;ptid=1916631" target="_blank">holla 发表于 2020-3-2 13:14</a>
@@ -2196,16 +1443,10 @@ anitama的所谓“硬核”是宅男观众的硬核，事实上 ...</blockquote
 当然 我一直认为日本动漫整个类别就不如传统纸媒小说和电影有价值 无论是娱乐价值还是思想价值
 
 
-
-
-
-
-
 -----
 
 ####  INUBASHIRI  
 ##### 113#       发表于 2020-3-2 13:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46589766&amp;ptid=1916631" target="_blank">albertuslongius 发表于 2020-3-2 13:02</a>
@@ -2219,16 +1460,10 @@ anitama的所谓“硬核”是宅男观众的硬核，事实上 ...</blockquote
 日本动画漫画产业本来也就那样了
 
 
-
-
-
-
-
 -----
 
 ####  亚瑟邓特  
 ##### 114#       发表于 2020-3-2 13:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46585807&amp;ptid=1916631" target="_blank">ipcjs 发表于 2020-3-2 01:57</a>
@@ -2238,16 +1473,10 @@ anitama的所谓“硬核”是宅男观众的硬核，事实上 ...</blockquote
 —— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  wfefe  
 ##### 115#       发表于 2020-3-2 13:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46590214&amp;ptid=1916631" target="_blank">亚瑟邓特 发表于 2020-3-2 13:37</a>
@@ -2257,17 +1486,10 @@ anitama的所谓“硬核”是宅男观众的硬核，事实上 ...</blockquote
 你让台长血崩更新，收敛一点，别一次藏那么多梗，说不准能火。
 
 
-
-
-
-
-
 -----
 
 ####  AbigailWilliams  
 ##### 116#       发表于 2020-3-2 13:58
-
-
 
 
 nga那个义愤填膺的贴不知道那个楼主在想什么<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
@@ -2275,16 +1497,10 @@ nga那个义愤填膺的贴不知道那个楼主在想什么<img src="https://st
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  INUBASHIRI  
 ##### 117#       发表于 2020-3-2 14:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46590461&amp;ptid=1916631" target="_blank">AbigailWilliams 发表于 2020-3-2 13:58</a>
@@ -2295,16 +1511,10 @@ nga那个义愤填膺的贴不知道那个楼主在想什么义愤填膺的人�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不都是喜闻乐见的人么
 
 
-
-
-
-
-
 -----
 
 ####  renkan119  
 ##### 118#       发表于 2020-3-2 14:17
-
 
 
 <blockquote>AbigailWilliams 发表于 2020-3-2 13:58
@@ -2314,16 +1524,10 @@ nga那个义愤填膺的贴不知道那个楼主在想什么义愤填膺的人�
 想趁机骂B但找的角度不太对吧 直接开贴骂B可能支持他的人还多点
 
 
-
-
-
-
-
 -----
 
 ####  mqnwbeebwnqm  
 ##### 119#       发表于 2020-3-2 14:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46589766&amp;ptid=1916631" target="_blank">albertuslongius 发表于 2020-3-2 13:02</a>
@@ -2336,17 +1540,10 @@ nga那个义愤填膺的贴不知道那个楼主在想什么义愤填膺的人�
 —— 来自 samsung SM-G950F, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  scny  
 ##### 120#       发表于 2020-3-2 15:17
-
-
 
 
 只剩nbht的话就觉得没啥意思了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -2354,16 +1551,10 @@ nga那个义愤填膺的贴不知道那个楼主在想什么义愤填膺的人�
 —— 来自 Xiaomi MI 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  一般通过宅宅  
 ##### 121#       发表于 2020-3-2 15:19
-
 
 
  本帖最后由 一般通过宅宅 于 2020-3-2 15:20 编辑 
@@ -2379,14 +1570,8 @@ nga那个义愤填膺的贴不知道那个楼主在想什么义愤填膺的人�
 自认为为中国贫瘠的动画专业领域带来了光明，也确实做到了，可是你已经快没了，难道等后世来缅怀你吗？贴个lla19年的回答
 
 
-
-
-
-
 TIM截图20200302150938.png
 (53.78 KB, 下载次数: 4)
-
-
 
 
 下载附件
@@ -2395,24 +1580,7 @@ TIM截图20200302150938.png
 2020-3-2 15:20 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202003/02/152014jrkj2syxtaaaptgs.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -2421,14 +1589,7 @@ TIM截图20200302150938.png
 ##### 122#       发表于 2020-3-2 15:31
 
 
-
-
 如果聪明人就是在做小众内容的死掉的时候过来踩两脚，大喊“看看你们这些寄生虫都是什么垃圾，寄生的东西也垃圾，太垃圾了”，我宁愿继续想办法支持那些“蠢人”做下去
-
-
-
-
-
 
 
 -----
@@ -2437,15 +1598,9 @@ TIM截图20200302150938.png
 ##### 123#       发表于 2020-3-2 15:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">居然活到了现在才是奇迹。
 
 —— 来自 HUAWEI LYA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
-
-
-
-
-
 
 
 -----
@@ -2454,17 +1609,10 @@ TIM截图20200302150938.png
 ##### 124#       发表于 2020-3-2 15:48
 
 
-
-
 没看懂，为什么泥潭这么多人要踩一脚，这是……有什么仇么？
 很惭愧，anitama近来我也不怎么看，是出了啥不好的东西非要记一笔呢？
 
 —— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -2473,16 +1621,10 @@ TIM截图20200302150938.png
 ##### 125#       发表于 2020-3-2 16:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很正常啊
 负责骂死不负责顶上
 过几年遇到更差的再假惺惺在坟头吊个丧
 有些proman是这个样子的。
-
-
-
-
-
 
 
 -----
@@ -2491,23 +1633,16 @@ TIM截图20200302150938.png
 ##### 126#       发表于 2020-3-2 16:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46591579&amp;ptid=1916631" target="_blank">默逍 发表于 2020-3-2 15:31</a>
 
 如果聪明人就是在做小众内容的死掉的时候过来踩两脚，大喊“看看你们这些寄生虫都是什么垃圾，寄生的东西也 ...</blockquote>
 给钱，请
 
 
-
-
-
-
-
 -----
 
 ####  默逍  
 ##### 127#       发表于 2020-3-2 16:06
-
 
 
  本帖最后由 默逍 于 2020-3-2 16:07 编辑 
@@ -2521,24 +1656,13 @@ TIM截图20200302150938.png
 楼里也不乏众筹了小恐龙的，一副杀父之仇得报的样子与旁人弹冠相庆，有这个必要吗
 
 
-
-
-
-
-
 -----
 
 ####  叶夜青  
 ##### 128#       发表于 2020-3-2 16:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">可能不会说相声的就是这样下场
-
-
-
-
-
 
 
 -----
@@ -2547,16 +1671,10 @@ TIM截图20200302150938.png
 ##### 129#       发表于 2020-3-2 16:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46583538&amp;ptid=1916631" target="_blank">INUBASHIRI 发表于 2020-3-1 21:56</a>
 
 批站卸磨杀驴</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">+婆度挂件只是装饰而已，小人物们是不会懂的
-
-
-
-
-
 
 
 -----
@@ -2565,20 +1683,13 @@ TIM截图20200302150938.png
 ##### 130#       发表于 2020-3-2 16:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">太惨了，就剩牛逼火腿了嘛。。
-
-
-
-
-
 
 
 -----
 
 ####  舌怪  
 ##### 131#       发表于 2020-3-2 16:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46591978&amp;ptid=1916631" target="_blank">千里夜雨 发表于 2020-3-2 16:01</a>
@@ -2591,16 +1702,10 @@ TIM截图20200302150938.png
 +1 表演看得够多了
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 132#       发表于 2020-3-2 16:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46591820&amp;ptid=1916631" target="_blank">tonberry 发表于 2020-3-2 15:48</a>
@@ -2609,16 +1714,10 @@ TIM截图20200302150938.png
 很多人对anitama的内容并没有需求，但是却喜闻乐见婆罗门吃瘪。外加anitama之前几次操作确实给人留下不好的映像。真要说得罪人应该是不多的。
 
 
-
-
-
-
-
 -----
 
 ####  渺晓  
 ##### 133#       发表于 2020-3-2 16:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46591820&amp;ptid=1916631" target="_blank">tonberry 发表于 2020-3-2 15:48</a>
@@ -2629,26 +1728,15 @@ TIM截图20200302150938.png
 应该还在B旗下的时候嘲讽B的婆罗门作态得罪了不少人。
 
 
-
-
-
-
-
 -----
 
 ####  未来起航  
 ##### 134#       发表于 2020-3-2 16:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46591820&amp;ptid=1916631" target="_blank">tonberry 发表于 2020-3-2 15:48</a>
  没看懂，为什么泥潭这么多人要踩一脚，这是……有什么仇么？ 很惭愧，anitama近来我也不怎么看，是出了啥不 ...</blockquote>
 雷声大雨点小吧。anitama的产出多数时候就是“能火起来才奇怪”，然后最后也没火。这样情形下上升的氛围自然抬不起来……
-
-
-
-
-
 
 
 -----
@@ -2657,21 +1745,13 @@ TIM截图20200302150938.png
 ##### 135#       发表于 2020-3-2 17:05
 
 
-
-
 我还是想不明白为什么……
-
-
-
-
-
 
 
 -----
 
 ####  INUBASHIRI  
 ##### 136#       发表于 2020-3-2 17:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46592135&amp;ptid=1916631" target="_blank">叶夜青 发表于 2020-3-2 16:12</a>
@@ -2683,16 +1763,10 @@ TIM截图20200302150938.png
 那张截图看来流传度挺广的，，，
 
 
-
-
-
-
-
 -----
 
 ####  INUBASHIRI  
 ##### 137#       发表于 2020-3-2 17:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46592032&amp;ptid=1916631" target="_blank">默逍 发表于 2020-3-2 16:06</a>
@@ -2713,25 +1787,13 @@ TIM截图20200302150938.png
 还杀父之仇，<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  斜阳中的落叶  
 ##### 138#       发表于 2020-3-2 17:49
 
 
-
-
 内容不上不下，路人没兴趣，小白不喜欢，一般爱好者看热闹，专业的不看，半吊子最喜欢
-
-
-
-
-
 
 
 -----
@@ -2740,21 +1802,13 @@ TIM截图20200302150938.png
 ##### 139#       发表于 2020-3-2 17:53
 
 
-
-
 那酱牛腱下一步去哪儿？
-
-
-
-
-
 
 
 -----
 
 ####  默逍  
 ##### 140#       发表于 2020-3-2 17:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46593301&amp;ptid=1916631" target="_blank">INUBASHIRI 发表于 2020-3-2 17:47</a>
@@ -2765,16 +1819,10 @@ TIM截图20200302150938.png
 那是我误会了，部分坛友网上的道德阀值确实高
 
 
-
-
-
-
-
 -----
 
 ####  INUBASHIRI  
 ##### 141#       发表于 2020-3-2 18:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46593379&amp;ptid=1916631" target="_blank">默逍 发表于 2020-3-2 17:55</a>
@@ -2786,32 +1834,19 @@ TIM截图20200302150938.png
 部分坛友道德阈（fa）值更高<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  namelessashen  
 ##### 142#       发表于 2020-3-2 18:15
 
 
-
-
 还是受众太少，就是阉割版本的newtype anigame加作画mad和业内推特，但就算是日本动漫纸媒在中国能活得下去的估计也很少很少，更别提anitama了，当然还是有很多不错的访谈和翻译的……可这些不感兴趣的人根本不会去看，感兴趣的大多可以自己也能看生肉，还有一堆婆罗门觉得半吊子，根本看不到盈利方向嘛。看了这么久的anitama，如果真的要死，还是希望死也死得好看一点…………
-
-
-
-
-
 
 
 -----
 
 ####  yubvc  
 ##### 143#       发表于 2020-3-2 18:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46590214&amp;ptid=1916631" target="_blank">亚瑟邓特 发表于 2020-3-2 13:37</a>
@@ -2823,16 +1858,10 @@ TIM截图20200302150938.png
 除了更新数这个问题外，主要还是对象，台长内容对于从电视年代开始看动画片的3-40岁80-90初经历过中国网络发展初期到现在的的人看还是能看的起劲的，但是就算是95年出生的都25-6了，主力观众基本没30以下的吧，都是为了生活忙碌的人，估计大部分上有老，下有小，实在没时间玩B站了，而年更年轻的一代人除了口味代沟外，就是能不能找到自己想看的资源都不一定（错了是懒的找或根本不知道自己想要看啥），就像X一样，基本你B喂啥就吃啥，都一样，如果在回头看5-60岁的人，你也会发现他们喜欢的和你也很不一样
 
 
-
-
-
-
-
 -----
 
 ####  叶夜青  
 ##### 144#       发表于 2020-3-2 18:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46593460&amp;ptid=1916631" target="_blank">INUBASHIRI 发表于 2020-03-02 18:03:09</a>
@@ -2844,17 +1873,10 @@ TIM截图20200302150938.png
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  black199  
 ##### 145#       发表于 2020-3-2 18:28
-
-
 
 
 内容涉及范围太少，缺乏生态味，文字不够风趣，内容是够多了但除了感兴趣的访谈外我都不太想看
@@ -2864,16 +1886,10 @@ TIM截图20200302150938.png
 至少anitama想活下去肯定不应该只吸引我，甚至泥潭部分用户这些人的
 
 
-
-
-
-
-
 -----
 
 ####  不灭人形  
 ##### 146#       发表于 2020-3-2 18:57
-
 
 
  本帖最后由 不灭人形 于 2020-3-2 20:44 编辑 
@@ -2883,24 +1899,13 @@ TIM截图20200302150938.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这种人到哪都是顶尖人员，放在anitama才是屈才了。
 
 
-
-
-
-
-
 -----
 
 ####  江口夕  
 ##### 147#       发表于 2020-3-2 19:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">核心营收就靠广告，然而动画并不需要他广告。投资烧完就可以散了。特别是这种单兵作战就能做的东西开公司就是自找风险。而且单兵独走有时候都没饭吃
-
-
-
-
-
 
 
 -----
@@ -2909,16 +1914,10 @@ TIM截图20200302150938.png
 ##### 148#       发表于 2020-3-2 20:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46584995&amp;ptid=1916631" target="_blank">上下左右 发表于 2020-3-2 00:19</a>
 
 谢老师的推特翻译环节确实欣赏不来</blockquote>
 那他死哪去了？提前避雷
-
-
-
-
-
 
 
 -----
@@ -2927,15 +1926,9 @@ TIM截图20200302150938.png
 ##### 149#       发表于 2020-3-2 20:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46593988&amp;ptid=1916631" target="_blank">不灭人形 发表于 2020-3-2 18:57</a>
  某你们熟悉的驻中国日企，这种人到哪都是顶尖人员，放在anitama才是屈才了。 ...</blockquote>
 角川吗
-
-
-
-
-
 
 
 -----
@@ -2944,18 +1937,12 @@ TIM截图20200302150938.png
 ##### 150#       发表于 2020-3-2 20:45
 
 
-
-
 资深消费/食腐者
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -2965,12 +1952,7 @@ TIM截图20200302150938.png
 | morment| + 1|精辟|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -2979,16 +1961,9 @@ TIM截图20200302150938.png
 ##### 151#       发表于 2020-3-2 20:47
 
 
-
-
 感觉推特翻译的栏目就是想往短平快试水，但遮遮掩掩地没放开
 
 去年我基本上也就看过那个栏目，奥特曼那个栏目看了一期实在看不懂就懒得看了
-
-
-
-
-
 
 
 -----
@@ -2997,14 +1972,7 @@ TIM截图20200302150938.png
 ##### 152#       发表于 2020-3-2 21:02
 
 
-
-
 两三年前对特摄比较感兴趣的时候曾经看过anitama的东映古早特摄专栏，但是那个更新进步太慢了，还动不动完结然后重新从头写起，追了n久还在初代骑士那里打转，我真正想看的八九十年代特摄一直也没等到
-
-
-
-
-
 
 
 -----
@@ -3013,20 +1981,13 @@ TIM截图20200302150938.png
 ##### 153#       发表于 2020-3-2 21:42
 
 
-
 <img src="https://imgs.aixifan.com/content/2020_03_02/1.5831365125063066E9.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  可乐杜  
 ##### 154#       发表于 2020-3-2 21:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46590214&amp;ptid=1916631" target="_blank">亚瑟邓特 发表于 2020-3-2 13:37</a>
@@ -3038,32 +1999,19 @@ TIM截图20200302150938.png
 台长的梗太多了，有些东西需要细看，很多内容不太适合无脑听的。
 
 
-
-
-
-
-
 -----
 
 ####  发霉长毛等救济  
 ##### 155#       发表于 2020-3-3 00:04
 
 
-
-
 只剩nbht还是挺可惜的，他们的视频一直还可以的，现在动画区的主流还是lex泛式那种什么红蹭什么，速读向导之类的，anitama这种主打婆罗门和作豚的受众设定在现在这个环境下终究起不来，几个一般通过会想看个动画还要上课啊
-
-
-
-
-
 
 
 -----
 
 ####  ipcjs  
 ##### 156#       发表于 2020-3-3 03:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46590214&amp;ptid=1916631" target="_blank">亚瑟邓特 发表于 2020-3-2 13:37</a>
@@ -3075,32 +2023,19 @@ TIM截图20200302150938.png
 — from Google Pixel 2 XL, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  冰原狼  
 ##### 157#       发表于 2020-3-3 09:03
 
 
-
-
 生在网络时代却保留着一股传统纸媒的风格，问题是不管中日纸媒都死的差不多了……
-
-
-
-
-
 
 
 -----
 
 ####  wuwo2  
 ##### 158#       发表于 2020-3-3 11:59
-
 
 
  本帖最后由 wuwo2 于 2020-3-3 12:07 编辑 
@@ -3117,32 +2052,19 @@ TIM截图20200302150938.png
 而且你看真正的大佬如酱牛腱这样的，也没谁喷他yygq他。一般喷的yygq的不都是爱表现自己，爱在微博瞎逼逼，还爱乱发地图炮的吗。
 
 
-
-
-
-
-
 -----
 
 ####  lbzlxx  
 ##### 159#       发表于 2020-3-3 12:04
 
 
-
-
 近期站放出的上年的各种大佬讲座还是很有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  不灭人形  
 ##### 160#       发表于 2020-3-3 13:05
-
 
 
  本帖最后由 不灭人形 于 2020-3-3 13:08 编辑 
@@ -3161,13 +2083,9 @@ TIM截图20200302150938.png
 我也不明白为什么你会觉得膈应，到底是nbht膈应到你了，还是anitama膈应到你了？
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 4战斗力 +5
@@ -3180,19 +2098,13 @@ TIM截图20200302150938.png
 | spring_VOV| + 1|确实，连粉丝群都只有个人群|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  默逍  
 ##### 161#       发表于 2020-3-3 13:28
-
 
 
  本帖最后由 默逍 于 2020-3-3 13:37 编辑 
@@ -3209,33 +2121,19 @@ TIM截图20200302150938.png
 这种“即使你有内容，但是你很讨厌，所以死的不冤”我可能一辈子都理解不了，首先不明白为什么有人不懂就事论事，其次不理解在倒的时候踩上一脚洋洋得意的样子，仿佛把对面贬低的有多狠就能表现自己有多高明，完全理解不了。
 
 
-
-
-
-
-
-
 -----
 
 ####  夹具装配图  
 ##### 162#       发表于 2020-3-3 13:41
 
 
-
-
 懂了 罚值太低就不配当anitama受众
-
-
-
-
-
 
 
 -----
 
 ####  wuwo2  
 ##### 163#       发表于 2020-3-3 13:56
-
 
 
  本帖最后由 wuwo2 于 2020-3-3 14:14 编辑 
@@ -3257,17 +2155,10 @@ TIM截图20200302150938.png
 以前站的高，在山上放臭屁酸屁。现在从山上掉下来了，被人酸三两句就受不了了？况且还不是他们自己受不了，是旁边观众受不了，这我也很难理解。
 
 
-
-
-
-
-
-
 -----
 
 ####  默逍  
 ##### 164#       发表于 2020-3-3 14:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46602422&amp;ptid=1916631" target="_blank">wuwo2 发表于 2020-3-3 13:56</a>
@@ -3277,17 +2168,10 @@ TIM截图20200302150938.png
 又政府了，anitama需要对谁负责？对谁有义务？您又是站在什么立场审判anitama对b站的阴阳怪气的？您还是跟上面回复的那位聊吧，我太坏了不懂装懂
 
 
-
-
-
-
-
 -----
 
 ####  笔仁SaSaSa  
 ##### 165#       发表于 2020-3-3 14:07
-
-
 
 
 1.感谢anitama告诉我的不少动画制作幕后的技术。
@@ -3297,26 +2181,15 @@ TIM截图20200302150938.png
 3.日本深夜动画制的作模式并不适合国内的土壤，这种幕后工作向的媒体也就是给读者们展示出来看个乐；而且anitama在编辑们大多没有动画、设计这些相关行业从业经验的情况anitama竟然活到了今天。
 
 
-
-
-
-
-
 -----
 
 ####  Nico_Minoru  
 ##### 166#       发表于 2020-3-3 14:15
 
 
-
 <blockquote>不灭人形 发表于 2020-3-3 13:05
 这么多人觉得anitama死的好我能理解，可anitama对观众真没啥对不起的，人家和bilibili那些破事也和观众没 ...</blockquote>
 有害群之马，不分割掉，被拖垮了，也不能说无辜吧。
-
-
-
-
-
 
 
 -----
@@ -3325,23 +2198,15 @@ TIM截图20200302150938.png
 ##### 167#       发表于 2020-3-3 14:22
 
 
-
-
 主要内容产出者不能叫害群之马
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
 
 ####  xpisces  
 ##### 168#       发表于 2020-3-3 14:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46602532&amp;ptid=1916631" target="_blank">笔仁SaSaSa 发表于 2020-3-3 14:07</a>
@@ -3353,16 +2218,10 @@ TIM截图20200302150938.png
 第三条我无比赞同<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一堆三无人员号称婆罗门干最没技术含量的活倒卖优越感给半瓶子醋的用户还能混这么久已经够基德了，只能说国内环境和细分市场真的大的吓人
 
 
-
-
-
-
-
 -----
 
 ####  Nico_Minoru  
 ##### 169#       发表于 2020-3-3 14:35
-
 
 
 <blockquote>spring_VOV 发表于 2020-3-3 14:22
@@ -3373,16 +2232,10 @@ TIM截图20200302150938.png
 那换个说法，不知道对不对，既然是核心，分割不掉，因为核心自身的严重缺陷，其他人又没有修补它的能力，要死了也不能说很冤吧。
 
 
-
-
-
-
-
 -----
 
 ####  浩劫余孽  
 ##### 170#       发表于 2020-3-3 15:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46602532&amp;ptid=1916631" target="_blank">笔仁SaSaSa 发表于 2020-3-3 14:07</a>
@@ -3394,16 +2247,10 @@ TIM截图20200302150938.png
 说实话，要不是去年这个团队傻逼，跟B闹翻，估计到今天依然可以混吃等死吧。毕竟从16年开始到19年，B养了3年也没看B对他们有什么业绩要求，估计anitama以为B是个舔狗吧，可以呼之则来挥之则去罢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，至少我觉得那3年B是挺舔的。
 
 
-
-
-
-
-
 -----
 
 ####  wuwo2  
 ##### 171#       发表于 2020-3-3 15:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46602488&amp;ptid=1916631" target="_blank">默逍 发表于 2020-3-3 14:03</a>
@@ -3415,17 +2262,10 @@ TIM截图20200302150938.png
 还有就是我以什么身份看anitama对b站的酸屁？我以一个2010年就注册的b站老用户，并且现在还觉得b站非常好用的普通b站大会员的身份够吗？不行的话再加一个饭b站的粉丝行了吧。
 
 
-
-
-
-
-
 -----
 
 ####  奥柏伦亲王  
 ##### 172#       发表于 2020-3-3 15:23
-
-
 
 
 anitama不行和什么nbht啊所谓谢老师行不行没啥关系，就那些所谓硬核内容可以说是很难找到看点了……以前也装过APP，连着一个礼拜每天打开看一下，发现没有任何想看的东西，偶尔来个业内对谈之类的内容，进去之后发现味同嚼蜡，看完觉得仿佛啥都说了又啥都没说。anitama的东西可读性/可看性太差了，作为内容产出者活不下去我觉得并不奇怪。
@@ -3434,28 +2274,15 @@ anitama不行和什么nbht啊所谓谢老师行不行没啥关系，就那些所
 anitama一直以来所译介的日本动画生产体制的落后和匮乏也是它家内容不行的重要原因之一，前面有人说的意思我比较认同，真爱好者看看动画学术趴（虽然这部分人比例极低），看热闹的追“番剧”听漫评相声，连读漫画都要搜搬运工的漫画视频看，最后就剩下几个假喜欢的做核心受众，而可以想象的是想在假喜欢的人身上赚钱是最难的……
 
 
-
-
-
-
-
 -----
 
 ####  wuwo2  
 ##### 173#       发表于 2020-3-3 15:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46601877&amp;ptid=1916631" target="_blank">不灭人形 发表于 2020-3-3 13:05</a>
 这么多人觉得anitama死的好我能理解，可anitama对观众真没啥对不起的，人家和bilibili那些破事也和观众没 ...</blockquote>
 我在下面回复说过，我不看anitama的。我最开始就是对那位默逍懂装不懂的行为感觉不爽才回的。没想到你这位大佬还回我了。
-
-
-
-
-
-
-
 
 
 -----
@@ -3464,20 +2291,13 @@ anitama一直以来所译介的日本动画生产体制的落后和匮乏也是�
 ##### 174#       发表于 2020-3-3 15:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">生态多样性，减少了
-
-
-
-
-
 
 
 -----
 
 ####  eidos  
 ##### 175#       发表于 2020-3-3 15:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46599334&amp;ptid=1916631" target="_blank">冰原狼 发表于 2020-3-3 09:03</a>
@@ -3488,16 +2308,10 @@ anitama一直以来所译介的日本动画生产体制的落后和匮乏也是�
 anitama专注日本动画，这谁来出钱呢……
 
 
-
-
-
-
-
 -----
 
 ####  lushark  
 ##### 176#       发表于 2020-3-3 15:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46603356&amp;ptid=1916631" target="_blank">eidos 发表于 2020-3-3 15:30</a>
@@ -3510,16 +2324,10 @@ anitama ...</blockquote>
 anitama空有一个口碑，但其实没有足够支撑起品牌的内容，泡沫早晚是要破的。
 
 
-
-
-
-
-
 -----
 
 ####  笔仁SaSaSa  
 ##### 177#       发表于 2020-3-3 17:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46603237&amp;ptid=1916631" target="_blank">浩劫余孽 发表于 2020-3-3 15:16</a>
@@ -3528,16 +2336,10 @@ anitama空有一个口碑，但其实没有足够支撑起品牌的内容，泡�
 根本原因我觉得还是anitama大部分成员有着婆罗门的矜持却没有婆罗门的本事，何况占他们内容最大头的日本深夜动画本来就是个走下坡路的东西。anitama的粉丝营销也几乎跟没有一样，根本没有培育出自己的粉丝群体。；而anitama在探究动画这一媒介时真的太肤浅了，说是深度媒体，其实大多是时候只是纯粹的翻译，日本人的稿子也是那些车轱辘话来回说，anitama做不了自己的深度内容产出最后自然就变成了已有内容复读机。
 
 
-
-
-
-
-
 -----
 
 ####  笔仁SaSaSa  
 ##### 178#       发表于 2020-3-3 17:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46603302&amp;ptid=1916631" target="_blank">奥柏伦亲王 发表于 2020-3-3 15:23</a>
@@ -3548,26 +2350,15 @@ anitama不行和什么nbht啊所谓谢老师行不行没啥关系，就那些所
 马小褂好歹是研究过欧美动画的，来搞日本动画相关内容简直是降维打击
 
 
-
-
-
-
-
 -----
 
 ####  水城君  
 ##### 179#       发表于 2020-3-3 17:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">为什么anitama没路人缘，不就是那个道理吗，大家都恰大众的饭凭啥就你标榜自己“硬核不媚宅”，占着道德高地还拉踩其他媒体，那等你稍微不行的时候被拉踩过的肯定一拥而上吐你唾沫了啊
 
 是不是觉得上面这段话很耳熟，都是一回事啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3576,14 +2367,7 @@ anitama不行和什么nbht啊所谓谢老师行不行没啥关系，就那些所
 ##### 180#       发表于 2020-3-3 17:58
 
 
-
-
 当一个人所做的事变成了自我膨胀的工具的时候，借由这些东西来膨胀自己，壮大自己，他做的事迟早会变成那根戳破气球的钢针。
-
-
-
-
-
 
 
 -----
@@ -3592,15 +2376,8 @@ anitama不行和什么nbht啊所谓谢老师行不行没啥关系，就那些所
 ##### 181#       发表于 2020-3-3 18:13
 
 
-
-
 『anitama这个媒体至少没有嘲讽过观众、没批判过什么作品、没输出负面什么情绪』
 我怎么觉得哪个都干过，还是我看的不是一个媒体？
-
-
-
-
-
 
 
 -----
@@ -3609,16 +2386,9 @@ anitama不行和什么nbht啊所谓谢老师行不行没啥关系，就那些所
 ##### 182#       发表于 2020-3-3 18:43
 
 
-
-
 我觉得新声当段子看还是有点意思的
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -3627,14 +2397,7 @@ anitama不行和什么nbht啊所谓谢老师行不行没啥关系，就那些所
 ##### 183#       发表于 2020-3-3 19:00
 
 
-
-
 阿尼他妈这地位着实尴尬，基本都不在行业内工作，但能拉来的业内人也不少了，至少我觉得anitama对打算入行动画的还是有点帮助的，对婆罗门这种虚无的观众群体作用不大。
-
-
-
-
-
 
 
 -----
@@ -3643,16 +2406,9 @@ anitama不行和什么nbht啊所谓谢老师行不行没啥关系，就那些所
 ##### 184#       发表于 2020-3-3 19:06
 
 
-
-
 就我个人来说，谢老师的新声弥补了国内社交媒体上创作者在“创作”这件事情上氛围不足的问题，这种氛围对我个人而言是非常宝贵的。未来国内应该也会有，但是还早，很少有像羊廷牧老师那样输出创作向干货的创作者，更何况新声上有不同类别创作者们的方法论和脑洞。在晚上画完稿子休息的时候看看新声，“哦～原来还有这样的创作者啊！”，就我个人来说是受益匪浅的。
 
 —— 来自 HUAWEI STF-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -3661,14 +2417,7 @@ anitama不行和什么nbht啊所谓谢老师行不行没啥关系，就那些所
 ##### 185#       发表于 2020-3-3 19:22
 
 
-
-
 动画学术趴是怎么存活下来的呢？感觉也不比anitama火啊
-
-
-
-
-
 
 
 -----
@@ -3677,16 +2426,9 @@ anitama不行和什么nbht啊所谓谢老师行不行没啥关系，就那些所
 ##### 186#       发表于 2020-3-3 20:01
 
 
-
-
 结果连名字都没保住
 
 还要打仨汉字
-
-
-
-
-
 
 
 -----
@@ -3695,14 +2437,7 @@ anitama不行和什么nbht啊所谓谢老师行不行没啥关系，就那些所
 ##### 187#       发表于 2020-3-3 20:21
 
 
-
-
 糊涂：我曾有个梦，做中国的newtype
-
-
-
-
-
 
 
 -----
@@ -3711,15 +2446,8 @@ anitama不行和什么nbht啊所谓谢老师行不行没啥关系，就那些所
 ##### 188#       发表于 2020-3-3 20:44
 
 
-
-
 或许对一些人来讲戳破他们沉醉其中的梦境已经是一种伤害了吧，就如同《they live》里的那个黑人一样，如此激烈的反抗将要面对的真相，他真的不知道真相么？不，是真相太过残酷了。
 (这些话不管是针对anitama还是普通大众都能说得通)
-
-
-
-
-
 
 
 -----
@@ -3728,21 +2456,13 @@ anitama不行和什么nbht啊所谓谢老师行不行没啥关系，就那些所
 ##### 189#       发表于 2020-3-3 21:08
 
 
-
-
 完成度不够高的作品是经不起细细推敲的，画画同人还实在点
-
-
-
-
-
 
 
 -----
 
 ####  依然荏苒  
 ##### 190#       发表于 2020-3-3 21:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46584623&amp;ptid=1916631" target="_blank">Rintaro 发表于 2020-3-1 23:38</a>
@@ -3753,25 +2473,13 @@ Anitama之前的盈利模式是什么呀？关注了挺长时间似乎也没什�
 网站上标pr的文章都是广告
 
 
-
-
-
-
-
 -----
 
 ####  louge19891020  
 ##### 191#       发表于 2020-3-3 22:04
 
 
-
-
 不愧是婆罗门论坛，这东西死了在nga是人人欢声笑语的，这里居然这么多人惋惜
-
-
-
-
-
 
 
 -----
@@ -3780,16 +2488,10 @@ Anitama之前的盈利模式是什么呀？关注了挺长时间似乎也没什�
 ##### 192#       发表于 2020-3-3 22:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46585206&amp;ptid=1916631" target="_blank">尼特子很辛苦哟 发表于 2020-3-2 00:44</a>
 
 借楼问一句，2dm现在怎么样了？</blockquote>
 杂志还在出，最新128期，我算算应该两年多没买过了
-
-
-
-
-
 
 
 -----
@@ -3798,21 +2500,13 @@ Anitama之前的盈利模式是什么呀？关注了挺长时间似乎也没什�
 ##### 193#       发表于 2020-3-3 22:52
 
 
-
-
 惋惜不是很正常，毕竟这里不是bog之家，狗咬主人这里就看个热闹，那里是真的护主
-
-
-
-
-
 
 
 -----
 
 ####  mwj  
 ##### 194#       发表于 2020-3-3 23:03
-
 
 
 <blockquote>AlfredXC 发表于 2020-3-3 19:22
@@ -3822,17 +2516,10 @@ Anitama之前的盈利模式是什么呀？关注了挺长时间似乎也没什�
 对比一下两家的话感觉学术趴的文章比anitama的文章好读不少，而且学术趴涉猎范围比anitama广不少，国产动画日本动画欧美动画都有涉及，接软文应该比限制在日本动画的anitama容易（antama甚至日本漫画都涉猎很少）。
 
 
-
-
-
-
-
 -----
 
 ####  BBBear  
 ##### 195#       发表于 2020-3-3 23:14
-
-
 
 
 nbht这人看待动画的角度与普通观众不一样，最典型的例子就是FA22。如果是作为作画演示，那我简直要起立鼓掌，但是作为tv动画的一集，就是失败，因为绘柄简直是灾难，这也是大量观众对这一集打差评的原因。nbht吹FA22，因为他是个作厨，他看动画是按卡看的，有其中一卡作画好，他就觉得这一集“有可取之处”，有较多精彩的作画，那就是神回。但是一般观众是按集看的，是从整体效果来看，从演出分镜到剧本设计，到摄影绘柄和作画表现，到声优表演和配乐，这些要素结合到一起的整体。比如鬼灭19，nbht吹阿部望，是因为他拿出了全集最精彩的一段作画。但是普通观众吹19集，是因为剧本感情渲染到位，配乐恰到好处，分镜演出到位，作画锦上添花，观众觉得整体感觉非常好，不会觉得功劳是原画的和别的都关系不大的。所以nbht这人吃不到普通观众的饭和流量，anitama经营不下去什么的……果然？那还用说！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -3840,16 +2527,10 @@ nbht这人看待动画的角度与普通观众不一样，最典型的例子就�
 —— 来自 Sony H8296, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  AlfredXC  
 ##### 196#       发表于 2020-3-3 23:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46607534&amp;ptid=1916631" target="_blank">mwj 发表于 2020-3-3 23:03</a>
@@ -3860,25 +2541,13 @@ nbht这人看待动画的角度与普通观众不一样，最典型的例子就�
 关注数是要多，但无论微博还是知乎，基本上都没几条回复，b站视频播放量大多数不过万，远不如anitama
 
 
-
-
-
-
-
 -----
 
 ####  wuwo2  
 ##### 197#       发表于 2020-3-3 23:31
 
 
-
-
 借地问一下，我记得我在s1看到nbht的妻子用nbht的微博号还是自己的微博号卖了一波惨来着，谁能帮忙找到那帖子吗？
-
-
-
-
-
 
 
 -----
@@ -3887,23 +2556,15 @@ nbht这人看待动画的角度与普通观众不一样，最典型的例子就�
 ##### 198#       发表于 2020-3-3 23:34
 
 
-
-
 不喜欢anitama的就是死bog啦<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  mwj  
 ##### 199#       发表于 2020-3-3 23:37
-
 
 
 <blockquote>AlfredXC 发表于 2020-3-3 23:27
@@ -3913,16 +2574,10 @@ nbht这人看待动画的角度与普通观众不一样，最典型的例子就�
 我关注的还有一个三文娱数据上更惨，无论微博和知乎的关注都比anitama还低不少，但是貌似是混的最好的......
 
 
-
-
-
-
-
 -----
 
 ####  wfefe  
 ##### 200#       发表于 2020-3-4 00:03
-
 
 
  本帖最后由 wfefe 于 2020-3-4 00:13 编辑 
@@ -3935,25 +2590,13 @@ nbht这人看待动画的角度与普通观众不一样，最典型的例子就�
 学术趴涉猎范围广上面提高了，我大概查了下最大股东是啊哈娱乐（做刺客伍六七的小疯映画也是他投资的），另外一部分股权应该和中传有点关系，他家是能拿到中传的独家资源的，例如毕设啥的。总的来说还是有资本输血，如果真独立，我也不看好。
 
 
-
-
-
-
-
 -----
 
 ####  老纪  
 ##### 201#       发表于 2020-3-4 00:24
 
 
-
-
 有这么招人恨吗？内容质量不错，又不收钱，咋就这风评
-
-
-
-
-
 
 
 -----
@@ -3962,19 +2605,11 @@ nbht这人看待动画的角度与普通观众不一样，最典型的例子就�
 ##### 202#       发表于 2020-3-4 00:36
 
 
-
-
 难怪nbht赶不走
-
-
-
-
 
 
 Screenshot_2020-03-04-00-32-59-743_com.android.browser.jpg
 (44.97 KB, 下载次数: 22)
-
-
 
 
 下载附件
@@ -3983,31 +2618,13 @@ Screenshot_2020-03-04-00-32-59-743_com.android.browser.jpg
 2020-3-4 00:33 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202003/04/003345gu0ds3r0r3bkfzbk.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  lushark  
 ##### 203#       发表于 2020-3-4 00:46
-
 
 
 <blockquote>mwj 发表于 2020-3-3 23:37
@@ -4017,26 +2634,15 @@ Screenshot_2020-03-04-00-32-59-743_com.android.browser.jpg
 三文鱼是tob号，你看着胡说八道，但人家是能帮业内人骗煤老板钱的。
 
 
-
-
-
-
-
 -----
 
 ####  wfefe  
 ##### 204#       发表于 2020-3-4 01:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46608422&amp;ptid=1916631" target="_blank">lushark 发表于 2020-3-4 00:46</a>
 三文鱼是tob号，你看着胡说八道，但人家是能帮业内人骗煤老板钱的。</blockquote>
 这倒是，国内动漫行业发展状况的看过几篇，数据一片向好。可到底扎样，大家都懂。也不能说不在向好发展，只能说不是我期待的吧。
-
-
-
-
-
 
 
 -----
@@ -4045,20 +2651,13 @@ Screenshot_2020-03-04-00-32-59-743_com.android.browser.jpg
 ##### 205#       发表于 2020-3-4 01:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">yygq不是泥潭喜欢的么，对象还是B站。没想到泥潭b站粉丝还挺多。
-
-
-
-
-
 
 
 -----
 
 ####  shihao  
 ##### 206#       发表于 2020-3-4 11:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46608690&amp;ptid=1916631" target="_blank">wwmmddqqbbpp 发表于 2020-3-4 01:21</a>
@@ -4075,16 +2674,10 @@ yygq不是泥潭喜欢的么，对象还是B站。没想到泥潭b站粉丝还�
 也就泥潭婆罗门本婆,还能有几个给它洗地的
 
 
-
-
-
-
-
 -----
 
 ####  shihao  
 ##### 207#       发表于 2020-3-4 12:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46585433&amp;ptid=1916631" target="_blank">albertuslongius 发表于 2020-3-2 01:10</a>
@@ -4093,16 +2686,10 @@ yygq不是泥潭喜欢的么，对象还是B站。没想到泥潭b站粉丝还�
 这是我觉得啊尼踏马最迷惑的行为之一····
 
 
-
-
-
-
-
 -----
 
 ####  lushark  
 ##### 208#       发表于 2020-3-4 12:27
-
 
 
 <blockquote>shihao 发表于 2020-3-4 11:56
@@ -4112,16 +2699,10 @@ yygq不是泥潭喜欢的么，对象还是B站。没想到泥潭b站粉丝还�
 第一件事情anitama的人应该已经解释过很多遍了，主站也不是铁板一块，主导b斯卡的也不过是和anitama平级部门。  用你的糙话来说，大家都是主人养的狗，听主人差遣也就罢了，还要听其他狗的话？
 
 
-
-
-
-
-
 -----
 
 ####  Nico_Minoru  
 ##### 209#       发表于 2020-3-4 12:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46612037&amp;ptid=1916631" target="_blank">lushark 发表于 2020-3-4 12:27</a>
@@ -4130,16 +2711,10 @@ yygq不是泥潭喜欢的么，对象还是B站。没想到泥潭b站粉丝还�
 叼不到兔子，吃狗粮还多的狗和其他狗咬起来了，你是猎人你打哪只？
 
 
-
-
-
-
-
 -----
 
 ####  shihao  
 ##### 210#       发表于 2020-3-4 12:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46612037&amp;ptid=1916631" target="_blank">lushark 发表于 2020-3-4 12:27</a>
@@ -4148,16 +2723,10 @@ yygq不是泥潭喜欢的么，对象还是B站。没想到泥潭b站粉丝还�
 也就是说至少第一次不算是忘恩负义而是狗咬狗吧？不过联系之后又背刺金主,以及各种扭扭捏捏又当又立的言论,确实容易让人误会,嘿嘿<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Yuririn  
 ##### 211#       发表于 2020-3-4 16:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46608341&amp;ptid=1916631" target="_blank">asdf3240 发表于 2020-03-04 00:36:12</a>
@@ -4166,16 +2735,10 @@ yygq不是泥潭喜欢的么，对象还是B站。没想到泥潭b站粉丝还�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  asdf3240  
 ##### 212#       发表于 2020-3-4 16:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46614357&amp;ptid=1916631" target="_blank">Yuririn 发表于 2020-3-4 16:04</a>
@@ -4187,26 +2750,15 @@ yygq不是泥潭喜欢的么，对象还是B站。没想到泥潭b站粉丝还�
 [https://ngabbs.com/read.php?tid=20619234&amp;page=9](https://ngabbs.com/read.php?tid=20619234&amp;page=9)
 
 
-
-
-
-
-
 -----
 
 ####  Yuririn  
 ##### 213#       发表于 2020-3-4 16:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46614442&amp;ptid=1916631" target="_blank">asdf3240 发表于 2020-03-04 16:13:05</a></blockquote>谢了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -4215,21 +2767,13 @@ yygq不是泥潭喜欢的么，对象还是B站。没想到泥潭b站粉丝还�
 ##### 214#       发表于 2020-3-4 17:05
 
 
-
-
 anitama明明可以做一些更加“媚俗”得内容莱吸引别人的眼球，比如s1一个分析千反田为什么看起来那么“骚”的帖子可以是很好的借鉴
-
-
-
-
-
 
 
 -----
 
 ####  shihao  
 ##### 215#       发表于 2020-3-4 17:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46615077&amp;ptid=1916631" target="_blank">shenmunog 发表于 2020-3-4 17:05</a>
@@ -4244,16 +2788,10 @@ anitama明明可以做一些更加“媚俗”得内容莱吸引别人的眼球�
 更何况你是做的不好,退而求其次去做手游的···
 
 
-
-
-
-
-
 -----
 
 ####  ruio  
 ##### 216#       发表于 2020-3-4 19:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46612037&amp;ptid=1916631" target="_blank">lushark 发表于 2020-3-4 12:27</a>
@@ -4265,16 +2803,10 @@ anitama明明可以做一些更加“媚俗”得内容莱吸引别人的眼球�
 去微博咬就是等于咬整个B站
 
 
-
-
-
-
-
 -----
 
 ####  wuwo2  
 ##### 217#       发表于 2020-3-4 19:59
-
 
 
  本帖最后由 wuwo2 于 2020-3-4 20:02 编辑 
@@ -4285,14 +2817,8 @@ anitama明明可以做一些更加“媚俗”得内容莱吸引别人的眼球�
     而且论据小气吧啦的，给人的感觉就是一个巨婴，疫情稍微打扰了这个巨婴的日常生活，就急急忙忙出来大放厥词，指点江山。
 
 
-
-
-
-
 微信图片_20200304195652.jpg
 (60.69 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -4301,31 +2827,13 @@ anitama明明可以做一些更加“媚俗”得内容莱吸引别人的眼球�
 2020-3-4 19:58 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202003/04/195802hr9esqadlejsj9am.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  Stephen9755  
 ##### 218#       发表于 2020-3-4 20:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46617106&amp;ptid=1916631" target="_blank">wuwo2 发表于 2020-3-4 19:59</a>
@@ -4336,16 +2844,10 @@ anitama明明可以做一些更加“媚俗”得内容莱吸引别人的眼球�
 这是在说新疆的事
 
 
-
-
-
-
-
 -----
 
 ####  spring_VOV  
 ##### 219#       发表于 2020-3-4 20:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46617106&amp;ptid=1916631" target="_blank">wuwo2 发表于 2020-3-4 19:59</a>
@@ -4358,16 +2860,10 @@ anitama明明可以做一些更加“媚俗”得内容莱吸引别人的眼球�
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  水城君  
 ##### 220#       发表于 2020-3-4 20:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46612037&amp;ptid=1916631" target="_blank">lushark 发表于 2020-3-4 12:27</a>
@@ -4380,16 +2876,10 @@ anitama明明可以做一些更加“媚俗”得内容莱吸引别人的眼球�
 太神奇了，真的是太神奇了，我以前还搞不懂为什么有些流量鲜肉的团队办事仿佛弱智一样，原来还真的有这样的人，太长见识了……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lushark  
 ##### 221#       发表于 2020-3-4 21:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46617525&amp;ptid=1916631" target="_blank">水城君 发表于 2020-3-4 20:39</a>
@@ -4398,26 +2888,15 @@ anitama明明可以做一些更加“媚俗”得内容莱吸引别人的眼球�
 挠头。我只是跟不太清楚幕后的人介绍下我知道的情况而已。你这些话应该去跟anitama说。
 
 
-
-
-
-
-
 -----
 
 ####  大小白帝  
 ##### 222#       发表于 2020-3-5 00:14
 
 
-
 <blockquote>AlfredXC 发表于 2020-3-3 19:22
 动画学术趴是怎么存活下来的呢？感觉也不比anitama火啊</blockquote>
 anitama要是不搞那么多盘外事现在不也是一个坚强存活的婆罗门形象然后b站养着他
-
-
-
-
-
 
 
 -----
@@ -4426,18 +2905,12 @@ anitama要是不搞那么多盘外事现在不也是一个坚强存活的婆罗�
 ##### 223#       发表于 2020-3-5 02:16
 
 
-
-
 纯路人，从蓝宝帖子脱离成梗的婆罗门一词，本质就非常虚弱，爱好者中的最上位见了创作者中的底边也只有缩起卵子，上限就是这样了。更何况以婆罗门形象吸引来的粉丝或多或少都对优越感有刚需，但你骗人上船就成天当个没有观点输出的二手贩子，既留不住老粉丝也不容易吸引来新粉丝。anitama的成员如果单干效果应该比一个团队好，因为bili这地儿社区氛围浓厚，比起一群婆罗门组成的团队，能引发偶像崇拜的动漫高手形象更受欢迎。lla套皮出演的那个新番扫雷倒是很有bili爆款视频的潜质，可惜这都是后话了。bili做acg相关虽然钱没多少但流量已经相当密集了，举例就是lex700万粉而被他模仿过的gigguk到现在也才200万关注。当然了，仅仅把这当个业余爱好是无所谓的，但想靠这谋生又不屑于研究下市场只能说这是应该的。
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -4447,12 +2920,7 @@ anitama要是不搞那么多盘外事现在不也是一个坚强存活的婆罗�
 | 闇口憑依| + 1|观点赞同|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -4461,13 +2929,7 @@ anitama要是不搞那么多盘外事现在不也是一个坚强存活的婆罗�
 ##### 224#       发表于 2020-3-5 04:51
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">对anitama颇有微词，但是惋惜还是要惋惜的，我对这个lex这种傻逼能当教主而anitama先死还是不满的
-
-
-
-
-
 
 
 -----
@@ -4476,25 +2938,16 @@ anitama要是不搞那么多盘外事现在不也是一个坚强存活的婆罗�
 ##### 225#       发表于 2020-3-5 07:34
 
 
-
-
 https://www.zhihu.com/answer/1056622485
 所以“一次冲动”指的是恰米忽悠的饭都恰歪了那次么
 
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  Bondrewd  
 ##### 226#       发表于 2020-3-5 07:36
-
-
 
 
 https://www.zhihu.com/answer/1056622485
@@ -4523,16 +2976,10 @@ anitamaBf
 —— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  kongray  
 ##### 227#       发表于 2020-3-5 08:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46621100&amp;ptid=1916631" target="_blank">Bondrewd 发表于 2020-3-5 07:36</a>
@@ -4543,27 +2990,15 @@ https://www.zhihu.com/answer/1056622485
 话说照原回答这意思，不就相当于指明了跟谁有矛盾了吗……<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  spring_VOV  
 ##### 228#       发表于 2020-3-5 08:36
 
 
-
-
 提到了一些人，没提一些人，一共就那些人。
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -4572,16 +3007,10 @@ https://www.zhihu.com/answer/1056622485
 ##### 229#       发表于 2020-3-5 09:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46585238&amp;ptid=1916631" target="_blank">TheDoctor 发表于 2020-3-2 00:48</a>
 
 纯人力，我记得以前谢老师回答过。有时候刷推正好遇到合适的素材了就好写，没遇到的话经常刷几个小时都只 ...</blockquote>
 这样的话我反倒不怎么感兴趣了，因为我觉得这样做特别低效emmmmm，本来想着如果他有什么技巧的话可以学一学，用在自己的浏览上
-
-
-
-
-
 
 
 -----
@@ -4590,22 +3019,13 @@ https://www.zhihu.com/answer/1056622485
 ##### 230#       发表于 2020-3-5 10:13
 
 
-
-
 所以说的是和哪家撕破脸？
-
-
-
-
-
 
 
 -----
 
 ####  uponutopia  
 ##### 231#       发表于 2020-3-5 10:31
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202003/05/103045qt77l6pf4gflgf71.jpg" referrerpolicy="no-referrer">
@@ -4618,16 +3038,7 @@ https://www.zhihu.com/answer/1056622485
 2020-3-5 10:30 上传
 
 
-
-
-
-
 大概是这个吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？
-
-
-
-
-
 
 
 -----
@@ -4636,15 +3047,9 @@ https://www.zhihu.com/answer/1056622485
 ##### 232#       发表于 2020-3-5 10:44
 
 
-
  本帖最后由 Tomorrow_D 于 2020-3-5 10:45 编辑 
 
 编辑
-
-
-
-
-
 
 
 -----
@@ -4653,21 +3058,13 @@ https://www.zhihu.com/answer/1056622485
 ##### 233#       发表于 2020-3-5 10:44
 
 
-
-
 这简直是明着点名了吧
-
-
-
-
-
 
 
 -----
 
 ####  Tomorrow_D  
 ##### 234#       发表于 2020-3-5 10:58
-
 
 
  本帖最后由 Tomorrow_D 于 2020-3-5 11:17 编辑 
@@ -4693,14 +3090,9 @@ https://www.zhihu.com/answer/1056622485
 对于第4点，Anitama的很多文章、活动、专题等等在这方面做了很多尝试，虽然从结果来看这些尝试并没有成功，但是这些尝试绝对不是没有意义的。
 
 
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -4710,12 +3102,7 @@ https://www.zhihu.com/answer/1056622485
 | kongray| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -4724,21 +3111,13 @@ https://www.zhihu.com/answer/1056622485
 ##### 235#       发表于 2020-3-5 11:05
 
 
-
-
 只能说在某些成员的操作下作（第一声）到了今天吧
-
-
-
-
-
 
 
 -----
 
 ####  shihao  
 ##### 236#       发表于 2020-3-5 11:31
-
 
 
  本帖最后由 shihao 于 2020-3-5 11:38 编辑 
@@ -4748,32 +3127,19 @@ https://www.zhihu.com/answer/1056622485
 基本就是点名某人了,但就是现在还有不少怀恋ani的,其实也只是某人粉丝而已
 
 
-
-
-
-
-
 -----
 
 ####  lushark  
 ##### 237#       发表于 2020-3-5 11:50
 
 
-
-
 不是已经说透了吗，这班人本来是想自己做媒体做平台做kol的，结果为了吃饭不知不觉间被扭成了做外包的广告策划公司，打着最辛苦的工拿着吃盒饭的钱还得不到名声，寻思过来大家还不如散了别耽误人。
-
-
-
-
-
 
 
 -----
 
 ####  百千个为什么  
 ##### 238#       发表于 2020-3-5 11:59
-
 
 
  本帖最后由 百千个为什么 于 2020-3-5 12:01 编辑 
@@ -4785,16 +3151,10 @@ https://www.zhihu.com/answer/1056622485
 某人粉丝的话。反正公司倒不倒和nbht视频做不做没有关系。现在就是把anitama里的非nbht成分给剔除了。坑同事一流，自己屁事不会有。
 
 
-
-
-
-
-
 -----
 
 ####  Bondrewd  
 ##### 239#       发表于 2020-3-5 12:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46621333&amp;ptid=1916631" target="_blank">kongray 发表于 2020-3-5 08:31</a>
@@ -4805,16 +3165,10 @@ https://www.zhihu.com/answer/1056622485
 —— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  Stellar_Frost  
 ##### 240#       发表于 2020-3-5 12:27
-
 
 
  本帖最后由 Stellar_Frost 于 2020-3-5 12:55 编辑 
@@ -4828,27 +3182,15 @@ https://www.zhihu.com/answer/1056622485
 至于接不到单子的原因，和我自己知道的没啥出入
 
 
-
-
-
-
-
 -----
 
 ####  spring_VOV  
 ##### 241#       发表于 2020-3-5 12:28
 
 
-
-
 作豚豚不在乎的
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -4857,14 +3199,7 @@ https://www.zhihu.com/answer/1056622485
 ##### 242#       发表于 2020-3-5 12:38
 
 
-
-
 什么5+原来也是anitama的人么，他是我见过的搬运速度和粉丝数相差最远的资讯博主了。
-
-
-
-
-
 
 
 -----
@@ -4873,14 +3208,7 @@ https://www.zhihu.com/answer/1056622485
 ##### 243#       发表于 2020-3-5 14:26
 
 
-
-
 死的不奇怪，可惜的是大概以后不会再有人做这方面的内容了。
-
-
-
-
-
 
 
 -----
@@ -4889,15 +3217,9 @@ https://www.zhihu.com/answer/1056622485
 ##### 244#       发表于 2020-3-5 15:26
 
 
-
 <blockquote>天地明察 发表于 2020-3-5 12:38
 什么5+原来也是anitama的人么，他是我见过的搬运速度和粉丝数相差最远的资讯博主了。 ...</blockquote>
 你是在哪看到他是anitama的人的啊。说明就算搬运的再好，不做宣传不立人设不搞圈子，搬运也只是一个普通人。
-
-
-
-
-
 
 
 -----
@@ -4906,16 +3228,10 @@ https://www.zhihu.com/answer/1056622485
 ##### 245#       发表于 2020-3-5 15:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46625561&amp;ptid=1916631" target="_blank">五性八卦 发表于 2020-3-5 15:26</a>
 
 你是在哪看到他是anitama的人的啊。说明就算搬运的再好，不做宣传不立人设不搞圈子，搬运也只是一个普通 ...</blockquote>
 226楼
-
-
-
-
-
 
 
 -----
@@ -4924,16 +3240,10 @@ https://www.zhihu.com/answer/1056622485
 ##### 246#       发表于 2020-3-5 15:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46623857&amp;ptid=1916631" target="_blank">天地明察 发表于 2020-3-5 12:38</a>
 
 什么5+原来也是anitama的人么，他是我见过的搬运速度和粉丝数相差最远的资讯博主了。 ...</blockquote>
 不少视频的执行制片都是武嘉
-
-
-
-
-
 
 
 -----
@@ -4942,15 +3252,9 @@ https://www.zhihu.com/answer/1056622485
 ##### 247#       发表于 2020-3-5 16:15
 
 
-
 <blockquote>Stellar_Frost 发表于 2020-3-5 15:43
 226楼</blockquote>
 原来如此，就是提了一下啊……
-
-
-
-
-
 
 
 -----
@@ -4959,22 +3263,15 @@ https://www.zhihu.com/answer/1056622485
 ##### 248#       发表于 2020-3-5 16:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这不是就差明说是某位傻逼害的大家饭都没得恰，最后只能打包闪人
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  ohyesHere  
 ##### 249#       发表于 2020-3-5 16:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46618121&amp;ptid=1916631" target="_blank">lushark 发表于 2020-03-04 21:41:49</a>
@@ -4987,16 +3284,10 @@ https://www.zhihu.com/answer/1056622485
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  lushark  
 ##### 250#       发表于 2020-3-5 18:54
-
 
 
 <blockquote>ohyesHere 发表于 2020-3-5 16:41
@@ -5007,16 +3298,10 @@ https://www.zhihu.com/answer/1056622485
 我表达自己看法而已，和他知不知道有关系吗？  再说他自己有手可以跟我回帖，不需要你来代表他解释，还是说你是他肚里蛔虫？
 
 
-
-
-
-
-
 -----
 
 ####  Jobtowna  
 ##### 251#       发表于 2020-3-6 12:33
-
 
 
  本帖最后由 Jobtowna 于 2020-3-6 13:06 编辑 
@@ -5028,17 +3313,10 @@ https://www.zhihu.com/answer/1056622485
 给广告做广告赚不了钱的
 
 
-
-
-
-
-
-
 -----
 
 ####  麻里奈命  
 ##### 252#       发表于 2020-3-6 12:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46635207&amp;ptid=1916631" target="_blank">Jobtowna 发表于 2020-3-6 12:33</a>
@@ -5049,26 +3327,15 @@ https://weibointl.api.weibo.cn/share/129325284.html?weibo_id=447 ...</blockquote
 环境不好环境不好
 
 
-
-
-
-
-
 -----
 
 ####  azbhg1  
 ##### 253#       发表于 2020-3-6 12:51
 
 
-
  本帖最后由 azbhg1 于 2020-3-6 13:50 编辑 
 
 这时候怎么不谈谈自己那个恰饭协议凉了的事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">难既然自己也知道恰饭难，那米哈游那次是几个意思嘛？独立前不谈了，看玉米的知乎和nga发言，你日本动画媒体虽然难做，也不至于活不下去吧？去年那么多新栏目全数失败的情况下还能做到无亏损，要是继续做下去在媒体公关领域站稳，恰饭框架协议搭好，b站创造出个成功点的栏目（目前迷你解数据上看也还算过得去了），再整整一些场刊画集的代购（anitama的受众应该对这个接受度挺高吧？），至少能活吧？弄到今天这个地步再跑出来哭，真的没意思。
-
-
-
-
-
 
 
 -----
@@ -5077,14 +3344,7 @@ https://weibointl.api.weibo.cn/share/129325284.html?weibo_id=447 ...</blockquote
 ##### 254#       发表于 2020-3-6 12:57
 
 
-
-
 日本动画业界有个P要说的 都是一群吃着日本左派老狗留下的屎 整天业界药丸 死了一点不奇怪
-
-
-
-
-
 
 
 -----
@@ -5093,14 +3353,7 @@ https://weibointl.api.weibo.cn/share/129325284.html?weibo_id=447 ...</blockquote
 ##### 255#       发表于 2020-3-6 13:08
 
 
-
-
 我觉得电影、游戏媒体除了明星效应之外，要是天天扯这个镜头怎么拍，那段程序怎么写的话，也是死路一条。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5109,17 +3362,10 @@ https://weibointl.api.weibo.cn/share/129325284.html?weibo_id=447 ...</blockquote
 ##### 256#       发表于 2020-3-6 13:08
 
 
-
-
 这文案是默认 动画＝日本动画 咯……
 
 
 另外做动画媒体确实是死路一条，结论没问题，但是解释就太不专业了。太多槽点。
-
-
-
-
-
 
 
 -----
@@ -5128,23 +3374,15 @@ https://weibointl.api.weibo.cn/share/129325284.html?weibo_id=447 ...</blockquote
 ##### 257#       发表于 2020-3-6 13:28
 
 
-
-
 还是不太能解释为什么走到了今天这步<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 而且壁吧视频的内容不也是偏向专业路线吗，人家也活的还行
-
-
-
-
-
 
 
 -----
 
 ####  spring_VOV  
 ##### 258#       发表于 2020-3-6 13:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46635920&amp;ptid=1916631" target="_blank">魂淡放我出去 发表于 2020-3-6 13:28</a>
@@ -5156,17 +3394,10 @@ https://weibointl.api.weibo.cn/share/129325284.html?weibo_id=447 ...</blockquote
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  断翼  
 ##### 259#       发表于 2020-3-6 13:33
-
-
 
 
 美国手绘动画体系已经是珍稀动物了，迪士尼当初的那套离棺材甚至就差一步的程度（人力物力难以维系）
@@ -5178,25 +3409,13 @@ https://weibointl.api.weibo.cn/share/129325284.html?weibo_id=447 ...</blockquote
 当然，3D的话，美国直接是标准制定方，全世界都向他看齐
 
 
-
-
-
-
-
 -----
 
 ####  bububupupupu  
 ##### 260#       发表于 2020-3-6 14:58
 
 
-
-
 这个视频，我，哭了，哎，还是东朝鲜不给力啊，不过某吒几十亿的时候这帮人忙不迭转发批判国内甲方yygy观众审美底下的时候倒是没觉得某吒团队有谁该被夸的，我们国产动画一片蓝海啊，大佬们不来沾沾剩饭残羹🐴
-
-
-
-
-
 
 
 -----
@@ -5205,16 +3424,10 @@ https://weibointl.api.weibo.cn/share/129325284.html?weibo_id=447 ...</blockquote
 ##### 261#       发表于 2020-3-6 15:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46622341&amp;ptid=1916631" target="_blank">uponutopia 发表于 2020-3-5 10:31</a>
 
 大概是这个吧？</blockquote>
 这也太傻比了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5223,14 +3436,7 @@ https://weibointl.api.weibo.cn/share/129325284.html?weibo_id=447 ...</blockquote
 ##### 262#       发表于 2020-3-6 15:54
 
 
-
-
 一边想打广告，一边想讲道理，我感觉挺不讲道理的
-
-
-
-
-
 
 
 -----
@@ -5239,17 +3445,10 @@ https://weibointl.api.weibo.cn/share/129325284.html?weibo_id=447 ...</blockquote
 ##### 263#       发表于 2020-3-6 15:54
 
 
-
-
 喜闻乐见的大环境不好
 
 
 蓝宝委屈了，队友CBA属实带不动
-
-
-
-
-
 
 
 -----
@@ -5258,21 +3457,13 @@ https://weibointl.api.weibo.cn/share/129325284.html?weibo_id=447 ...</blockquote
 ##### 264#       发表于 2020-3-6 15:58
 
 
-
-
 不背刺金主做内容就能活吗<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Hidewhite  
 ##### 265#       发表于 2020-3-6 16:02
-
 
 
  本帖最后由 Hidewhite 于 2020-3-6 16:06 编辑 
@@ -5287,16 +3478,10 @@ https://weibointl.api.weibo.cn/share/129325284.html?weibo_id=447 ...</blockquote
 3、观众角度喜欢动画真不用切入这么细碎，也不应该是创作视角。日本动画本身就是商业气息非常浓的东西，建立一个纯粹技巧型的评价体系不觉得不合时宜吗？说到底，多数动画属于低俗娱乐产物，在这个低俗产物里寻找理智型受众做这种方向媒体的这个方向本身就很奇怪了。很多人喜欢动画就是因为喜欢这些轻松不用动脑子，而不是他们喜欢动画背后的那些劳动，喜欢吃菜的很多不等于喜欢了解做菜的很多。面对网络小说可以做文学评价，但指望这种文学评价受网络小说受众欢迎，那明显是想多了
 
 
-
-
-
-
-
 -----
 
 ####  秋开  
 ##### 266#       发表于 2020-3-6 16:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46637559&amp;ptid=1916631" target="_blank">智障的最高境界 发表于 2020-3-6 15:58</a>
@@ -5305,24 +3490,13 @@ https://weibointl.api.weibo.cn/share/129325284.html?weibo_id=447 ...</blockquote
 理由千千万，孤芳自赏不就完事了。反正死了就怪大环境不好，打同情牌，毕竟真话总是难听的。
 
 
-
-
-
-
-
 -----
 
 ####  徐逸邈  
 ##### 267#       发表于 2020-3-6 16:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">公司有多方面布局做着生意，但就是有人还带着婆罗门意气觉得和自己想做的事业不一样放不下偶像包袱不肯老老实实恰饭？
-
-
-
-
-
 
 
 -----
@@ -5331,23 +3505,15 @@ https://weibointl.api.weibo.cn/share/129325284.html?weibo_id=447 ...</blockquote
 ##### 268#       发表于 2020-3-6 16:15
 
 
-
-
 这说的都是啥……
 
 nbht不会真的有众叛亲离舍我其谁的错觉吧
-
-
-
-
-
 
 
 -----
 
 ####  hcf220  
 ##### 269#       发表于 2020-3-6 16:19
-
 
 
  本帖最后由 hcf220 于 2020-3-6 16:27 编辑 
@@ -5359,24 +3525,13 @@ nbht不会真的有众叛亲离舍我其谁的错觉吧
 自己眼光高这看不上那看不上活该饿死
 
 
-
-
-
-
-
 -----
 
 ####  智障的最高境界  
 ##### 270#       发表于 2020-3-6 16:24
 
 
-
 <img src="https://tvax4.sinaimg.cn/mw690/005CsXAuly1gckaauh8atj30r40id78q.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5385,14 +3540,8 @@ nbht不会真的有众叛亲离舍我其谁的错觉吧
 ##### 271#       发表于 2020-3-6 16:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46637876&amp;ptid=1916631" target="_blank">智障的最高境界 发表于 2020-3-6 16:24</a></blockquote>
 果然自我感觉良好，本来我只觉得他老婆傻逼，现在觉得果然还是物以类聚
-
-
-
-
-
 
 
 -----
@@ -5401,14 +3550,7 @@ nbht不会真的有众叛亲离舍我其谁的错觉吧
 ##### 272#       发表于 2020-3-6 16:41
 
 
-
-
 真的佛了，就这态度
-
-
-
-
-
 
 
 -----
@@ -5417,13 +3559,7 @@ nbht不会真的有众叛亲离舍我其谁的错觉吧
 ##### 273#       发表于 2020-3-6 16:44
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这话也就骗骗萌二了，谁tm看个动画在意这么多，看再多在意的也只有自己喜欢的，会去翻来覆去的看，找资料，讨论等等等，这部分我觉得不需要anitama来做。不过还是感谢anitama的那些采访，虽然我日语n1会稳定fan qiang，但懒得去刷推特，看杂志什么的，anitama安排采访，整理，还是要点个赞的
-
-
-
-
-
 
 
 -----
@@ -5432,14 +3568,7 @@ nbht不会真的有众叛亲离舍我其谁的错觉吧
 ##### 274#       发表于 2020-3-6 16:45
 
 
-
-
 不是，他牛逼火肠凭啥碰瓷映画研，跟映画研人家直下手比里比他就是个云
-
-
-
-
-
 
 
 -----
@@ -5448,14 +3577,7 @@ nbht不会真的有众叛亲离舍我其谁的错觉吧
 ##### 275#       发表于 2020-3-6 16:47
 
 
-
-
 让金主不满是这次死因，依我看金主满意了也就是晚些死，果然是死路一条
-
-
-
-
-
 
 
 -----
@@ -5464,14 +3586,7 @@ nbht不会真的有众叛亲离舍我其谁的错觉吧
 ##### 276#       发表于 2020-3-6 16:48
 
 
-
-
 他说交接不一致，那么米哈游那事儿还另有内幕咯？
-
-
-
-
-
 
 
 -----
@@ -5480,14 +3595,7 @@ nbht不会真的有众叛亲离舍我其谁的错觉吧
 ##### 277#       发表于 2020-3-6 16:53
 
 
-
-
 泥潭就我喜欢谢老师的微博翻译吗，感觉很轻松风趣
-
-
-
-
-
 
 
 -----
@@ -5496,14 +3604,7 @@ nbht不会真的有众叛亲离舍我其谁的错觉吧
 ##### 278#       发表于 2020-3-6 16:53
 
 
-
-
 之前那个吹泽野吹得很尬的恰饭，是不是也是不情不愿<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5512,18 +3613,12 @@ nbht不会真的有众叛亲离舍我其谁的错觉吧
 ##### 279#       发表于 2020-3-6 17:31
 
 
-
-
 其他方面就不说了，就说视频方面，我真的深切的感受到nbht风格对于anitama的影响过大了。本身对一个B站媒体账号来讲，视频应该是门面，是一般观众接触该媒体的最重要渠道，但是anitama大部分科普视频是nbht自己弄的，其中不少视频里都间接表现出过于强调作画重要性的态度，并往往表现出一种nbht特有的说教风格，再加上文案写得并不易懂，这其实会让不少一般观众难以理解认同视频的观点，久而久之就把nbht和anitama绑定在一起，开始否认其观点，产生不信任，这对于一个视频网站的知识分享媒体其实是挺严重的问题。
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -5533,20 +3628,13 @@ nbht不会真的有众叛亲离舍我其谁的错觉吧
 | spring_VOV| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  Rintaro  
 ##### 280#       发表于 2020-3-6 17:46
-
-
 
 
 条件一：anitama在讨好婆罗门。
@@ -5560,25 +3648,13 @@ nbht不会真的有众叛亲离舍我其谁的错觉吧
 （不严谨，仅图一乐）
 
 
-
-
-
-
-
 -----
 
 ####  比利的微笑  
 ##### 281#       发表于 2020-3-6 17:47
 
 
-
-
 如果我牛逼火腿不来科普动画（指日本动画），从业者的那些心思和追求谁能懂，没人比我更懂动画（指日本动画），只有我是从业者的知音，没有了我业界就完蛋了！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5587,16 +3663,9 @@ nbht不会真的有众叛亲离舍我其谁的错觉吧
 ##### 282#       发表于 2020-3-6 17:50
 
 
-
-
 评论区几个热评让我直接取关<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -5605,17 +3674,9 @@ nbht不会真的有众叛亲离舍我其谁的错觉吧
 ##### 283#       发表于 2020-3-6 17:50
 
 
-
-
 总有人觉得LEX那些说相声的人水平低娱乐至死,所以其粉丝水平也低都是萌二
 
 今天看了看nbht的评论区,这anitama的粉丝不是一样的吗,看科普类的视频,也是这副模样,知识的增加并不会改变萌二的本质<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
@@ -5624,14 +3685,7 @@ nbht不会真的有众叛亲离舍我其谁的错觉吧
 ##### 284#       发表于 2020-3-6 18:08
 
 
-
-
 视频更了再BB几句吧，我也没见哪个电影媒体成天吹剪辑师傅，哪个游戏媒体成天舔建模师傅的。萌二也好，婆罗门也好，对任何形式作品的欣赏都是整体的。您要是想专业，就别这么偏科，要想搞作豚饭圈，至少找个美少女原画
-
-
-
-
-
 
 
 -----
@@ -5640,13 +3694,7 @@ nbht不会真的有众叛亲离舍我其谁的错觉吧
 ##### 285#       发表于 2020-3-6 18:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">虽然看作画mad是挺爽的，但是只吹作画也太。。。有没有喜欢分析动画内核的媒体，现在看上个世纪的很多动画，制作人要表达的东西也不一定能搞懂。
-
-
-
-
-
 
 
 -----
@@ -5655,14 +3703,7 @@ nbht不会真的有众叛亲离舍我其谁的错觉吧
 ##### 286#       发表于 2020-3-6 18:31
 
 
-
-
 评论区给我整笑了，尤其是几个热评底下还有个“up主觉得很赞”<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5671,15 +3712,9 @@ nbht不会真的有众叛亲离舍我其谁的错觉吧
 ##### 287#       发表于 2020-3-6 18:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46639095&amp;ptid=1916631" target="_blank">YODOboi 发表于 2020-3-6 18:08</a>
 视频更了再BB几句吧，我也没见哪个电影媒体成天吹剪辑师傅，哪个游戏媒体成天舔建模师傅的。萌二也好，婆罗 ...</blockquote>
 有一说一，原画师更接近演员吧，和建模师剪辑师差别不是一般大
-
-
-
-
-
 
 
 -----
@@ -5688,16 +3723,9 @@ nbht不会真的有众叛亲离舍我其谁的错觉吧
 ##### 288#       发表于 2020-3-6 18:54
 
 
-
-
 又不是只有视频，还有专栏。新闻和访谈都是些客观的内容。视频除了吹作画，不也有制作流程方面的介绍吗。
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -5706,21 +3734,13 @@ nbht不会真的有众叛亲离舍我其谁的错觉吧
 ##### 289#       发表于 2020-3-6 19:01
 
 
-
-
 大家再看看蓝宝的那片文章，是不是说的一点不差。
-
-
-
-
-
 
 
 -----
 
 ####  秋开  
 ##### 290#       发表于 2020-3-6 19:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46639314&amp;ptid=1916631" target="_blank">yuwe0714 发表于 2020-3-6 18:31</a>
@@ -5732,16 +3752,10 @@ nbht不会真的有众叛亲离舍我其谁的错觉吧
 真正能容纳不同声音的媒体还剩几个？
 
 
-
-
-
-
-
 -----
 
 ####  Jobtowna  
 ##### 291#       发表于 2020-3-6 19:03
-
 
 
  本帖最后由 Jobtowna 于 2020-3-6 19:06 编辑 
@@ -5814,25 +3828,13 @@ nbht不会真的有众叛亲离舍我其谁的错觉吧
 想要做大，除非行业里的动画公司们都有自己造血的能力吧。
 
 
-
-
-
-
-
 -----
 
 ####  moekyo  
 ##### 292#       发表于 2020-3-6 19:05
 
 
-
-
 呀，本来是路人偏同情的，这视频，甚至有点想落进下石了呢
-
-
-
-
-
 
 
 -----
@@ -5841,16 +3843,10 @@ nbht不会真的有众叛亲离舍我其谁的错觉吧
 ##### 293#       发表于 2020-3-6 19:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46639356&amp;ptid=1916631" target="_blank">zikimi 发表于 2020-3-6 18:35</a>
 
 有一说一，原画师更接近演员吧，和建模师剪辑师差别不是一般大</blockquote>
 但影评人也不会把导演的名字提的比演员少吧，虽然商业动画大多改编，但作画这种形式大于内容的东西用文字吹是车轱辘，视频里提一句剩下的扔mad就够了。以及，演员自己就是作品的一部分，而原画是创作了作品的一部分，大概就是台前幕后的差别。你既然以做视频为主，也要看观众愿不愿意看，从播放量来说，并不买账<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5859,14 +3855,7 @@ nbht不会真的有众叛亲离舍我其谁的错觉吧
 ##### 294#       发表于 2020-3-6 19:11
 
 
-
-
 动漫大乱斗
-
-
-
-
-
 
 
 -----
@@ -5875,22 +3864,13 @@ nbht不会真的有众叛亲离舍我其谁的错觉吧
 ##### 295#       发表于 2020-3-6 19:14
 
 
-
-
 看了下动画学术趴的推送，怪不得比阿尼塔妈活得滋润<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  wfefe  
 ##### 296#       发表于 2020-3-6 19:20
-
-
 
 
 楼里不少说为啥不涉及国产的，转下Liar君的微博：
@@ -5901,26 +3881,15 @@ Q：为什么Anitama只做日本相关的不做国内的？
 3、做了，没人注意到。 ​​​
 
 
-
-
-
-
-
 -----
 
 ####  智障的最高境界  
 ##### 297#       发表于 2020-3-6 19:20
 
 
-
 <img src="https://tva4.sinaimg.cn/large/005CsXAuly1gckfdeksnij318108p7dy.jpg" referrerpolicy="no-referrer">
 
 真就成个人号了啊
-
-
-
-
-
 
 
 -----
@@ -5929,14 +3898,7 @@ Q：为什么Anitama只做日本相关的不做国内的？
 ##### 298#       发表于 2020-3-6 19:21
 
 
-
-
 发展下去能不能看到婆罗门大乱斗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5945,16 +3907,9 @@ Q：为什么Anitama只做日本相关的不做国内的？
 ##### 299#       发表于 2020-3-6 19:22
 
 
-
-
 到看完这个视频之前，我觉得都还可以把锅甩到大环境不好这一点，所以我也不想说些什么落井下石的话
 
 现在看来我错了
-
-
-
-
-
 
 
 -----
@@ -5963,16 +3918,10 @@ Q：为什么Anitama只做日本相关的不做国内的？
 ##### 300#       发表于 2020-3-6 19:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46639758&amp;ptid=1916631" target="_blank">阿虚家的三味 发表于 2020-03-06 19:21:45</a>
 发展下去能不能看到婆罗门大乱斗</blockquote>婆罗门会为了这事大乱斗那婆罗门也太接地气了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -5981,18 +3930,12 @@ Q：为什么Anitama只做日本相关的不做国内的？
 ##### 301#       发表于 2020-3-6 19:27
 
 
-
-
 这算自爆吗？那挺成功的，毕竟我之前还抱有同情心
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 -1
@@ -6002,12 +3945,7 @@ Q：为什么Anitama只做日本相关的不做国内的？
 | 拖延|-1|吐多了小心噎着|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -6016,16 +3954,10 @@ Q：为什么Anitama只做日本相关的不做国内的？
 ##### 302#       发表于 2020-3-6 19:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46639758&amp;ptid=1916631" target="_blank">阿虚家的三味 发表于 2020-3-6 19:21</a>
 
 发展下去能不能看到婆罗门大乱斗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下anitama下面的评论也只看到了萌二和踩一脚yygq的
-
-
-
-
-
 
 
 -----
@@ -6034,14 +3966,7 @@ Q：为什么Anitama只做日本相关的不做国内的？
 ##### 303#       发表于 2020-3-6 19:28
 
 
-
-
 动画学术趴比anitama成功看来是真的有原因的……
-
-
-
-
-
 
 
 -----
@@ -6050,14 +3975,7 @@ Q：为什么Anitama只做日本相关的不做国内的？
 ##### 304#       发表于 2020-3-6 19:29
 
 
-
-
 这些用官号说是太low了
-
-
-
-
-
 
 
 -----
@@ -6066,16 +3984,10 @@ Q：为什么Anitama只做日本相关的不做国内的？
 ##### 305#       发表于 2020-3-6 19:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46639758&amp;ptid=1916631" target="_blank">阿虚家的三味 发表于 2020-3-6 19:21</a>
 
 发展下去能不能看到婆罗门大乱斗</blockquote>
 哪来的大乱斗，怎么看都只是nbht一人单挑婆罗门全部<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6084,14 +3996,7 @@ Q：为什么Anitama只做日本相关的不做国内的？
 ##### 306#       发表于 2020-3-6 19:41
 
 
-
-
 其实比起其他自媒体还是个人up主来说，Anitama是挺幸运的了...过去的Anitama还是有人养着情况下，出去自负盈亏算是好好认知了。从言论上来看还是缺少职场和公司的认知。
-
-
-
-
-
 
 
 -----
@@ -6100,15 +4005,9 @@ Q：为什么Anitama只做日本相关的不做国内的？
 ##### 307#       发表于 2020-3-6 19:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46639883&amp;ptid=1916631" target="_blank">魂淡放我出去 发表于 2020-3-6 19:33</a>
 哪来的大乱斗，怎么看都只是nbht一人单挑婆罗门全部</blockquote>
 觉得nbht还是太naive，沉不住气。最近在anitama压力挺大，感觉有点不扛住了，用官号发牢骚确实不够专业
-
-
-
-
-
 
 
 -----
@@ -6117,13 +4016,7 @@ Q：为什么Anitama只做日本相关的不做国内的？
 ##### 308#       发表于 2020-3-6 19:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">活JB该，背信弃义
-
-
-
-
-
 
 
 -----
@@ -6132,21 +4025,13 @@ Q：为什么Anitama只做日本相关的不做国内的？
 ##### 309#       发表于 2020-3-6 19:49
 
 
-
-
 anitama接不到toB推广 还是因为专攻日本动画，而且还是作画占大头吧。 国内虽然现在一年发布会不算少，但是想想anitama真的没哪个适合找他的。
-
-
-
-
-
 
 
 -----
 
 ####  lyz1196  
 ##### 310#       发表于 2020-3-6 19:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46638915&amp;ptid=1916631" target="_blank">shihao 发表于 2020-3-6 17:50</a>
@@ -6157,16 +4042,10 @@ anitama接不到toB推广 还是因为专攻日本动画，而且还是作画占
 看了这么多动画不去思考，还不是白看？懂得鉴赏虚拟的人物，不懂鉴赏现实的人物？
 
 
-
-
-
-
-
 -----
 
 ####  ohyesHere  
 ##### 311#       发表于 2020-3-6 20:06
-
 
 
  本帖最后由 ohyesHere 于 2020-3-6 20:13 编辑 
@@ -6178,16 +4057,10 @@ anitama接不到toB推广 还是因为专攻日本动画，而且还是作画占
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  傲慢的空想家X  
 ##### 312#       发表于 2020-3-6 20:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46639356&amp;ptid=1916631" target="_blank">zikimi 发表于 2020-3-6 18:35</a>
@@ -6195,16 +4068,10 @@ anitama接不到toB推广 还是因为专攻日本动画，而且还是作画占
 动画界的演员那是声优
 
 
-
-
-
-
-
 -----
 
 ####  zikimi  
 ##### 313#       发表于 2020-3-6 20:09
-
 
 
  本帖最后由 zikimi 于 2020-3-6 20:10 编辑 
@@ -6214,25 +4081,13 @@ anitama接不到toB推广 还是因为专攻日本动画，而且还是作画占
 声优能控制表情和动作？动画还有各种配音版，是不是演员等于就换了，那真人影视剧不也大部分都是后期配音乃至吹替
 
 
-
-
-
-
-
 -----
 
 ####  uponutopia  
 ##### 314#       发表于 2020-3-6 20:15
 
 
-
-
 日本动画有个职位叫演出,为什么叫演出用你们聪明的小脑瓜想一想<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6241,14 +4096,7 @@ anitama接不到toB推广 还是因为专攻日本动画，而且还是作画占
 ##### 315#       发表于 2020-3-6 20:16
 
 
-
-
 anitama这死得不冤啊哈哈哈哈哈哈哈哈哈
-
-
-
-
-
 
 
 -----
@@ -6257,23 +4105,16 @@ anitama这死得不冤啊哈哈哈哈哈哈哈哈哈
 ##### 316#       发表于 2020-3-6 20:19
 
 
-
  本帖最后由 普罗茶 于 2020-3-6 20:22 编辑 
 <blockquote>uponutopia 发表于 2020-3-6 20:15
 日本动画有个职位叫演出,为什么叫演出用你们聪明的小脑瓜想一想</blockquote>
 ドラマ也有演出，演出在英文本来就叫「单集导演」
 
 
-
-
-
-
-
 -----
 
 ####  ohyesHere  
 ##### 317#       发表于 2020-3-6 20:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46635920&amp;ptid=1916631" target="_blank">魂淡放我出去 发表于 2020-03-06 13:28:05</a>
@@ -6284,24 +4125,13 @@ anitama这死得不冤啊哈哈哈哈哈哈哈哈哈
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  xpisces  
 ##### 318#       发表于 2020-3-6 20:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6310,16 +4140,10 @@ anitama这死得不冤啊哈哈哈哈哈哈哈哈哈
 ##### 319#       发表于 2020-3-6 20:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46640325&amp;ptid=1916631" target="_blank">普罗茶 发表于 2020-3-6 20:19</a>
 
 ドラマ也有演出，演出在英文本来就叫「单集导演」</blockquote>
 你想表达什么?<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6328,15 +4152,9 @@ anitama这死得不冤啊哈哈哈哈哈哈哈哈哈
 ##### 320#       发表于 2020-3-6 20:33
 
 
-
 <blockquote>uponutopia 发表于 2020-3-6 20:30
 你想表达什么?</blockquote>
 你不是在说楼上原画是不是演员的问题吗？还是我理解错了
-
-
-
-
-
 
 
 -----
@@ -6345,15 +4163,9 @@ anitama这死得不冤啊哈哈哈哈哈哈哈哈哈
 ##### 321#       发表于 2020-3-6 20:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46640193&amp;ptid=1916631" target="_blank">傲慢的空想家X 发表于 2020-3-6 20:07</a>
 动画界的演员那是声优</blockquote>
 影视也有“声优”
-
-
-
-
-
 
 
 -----
@@ -6362,16 +4174,10 @@ anitama这死得不冤啊哈哈哈哈哈哈哈哈哈
 ##### 322#       发表于 2020-3-6 20:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46640460&amp;ptid=1916631" target="_blank">普罗茶 发表于 2020-3-6 20:33</a>
 
 你不是在说楼上原画是不是演员的问题吗？还是我理解错了</blockquote>
 我想说前面那位动画的演员就是声优的论点不合适,这和DRAMA有什么关系?
-
-
-
-
-
 
 
 -----
@@ -6380,16 +4186,10 @@ anitama这死得不冤啊哈哈哈哈哈哈哈哈哈
 ##### 323#       发表于 2020-3-6 20:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46640494&amp;ptid=1916631" target="_blank">uponutopia 发表于 2020-3-6 20:37</a>
 
 我想说前面那位动画的演员就是声优的论点不合适,这和DRAMA有什么关系?</blockquote>
 那你上面那句话不就很像「动画的演员是演出不是声优你们这群白痴」吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">如果你真的这么认为的话，演出这个词在动画和连续剧本就都是单集导演自然不可能是演员啊，这就是我为什么要说ドラマ
-
-
-
-
-
 
 
 -----
@@ -6398,24 +4198,16 @@ anitama这死得不冤啊哈哈哈哈哈哈哈哈哈
 ##### 324#       发表于 2020-3-6 20:55
 
 
-
-
 nbht说的都对，
 
 
 然而他们确实比其他媒体更缺乏专业的撰稿人，把文章写的专业是一种本领，把专业的文章写给更多的人看是另一种本领。
 
 
-
-
-
-
-
 -----
 
 ####  lushark  
 ##### 325#       发表于 2020-3-6 21:10
-
 
 
  本帖最后由 lushark 于 2020-3-6 21:11 编辑 
@@ -6427,16 +4219,10 @@ nbht说的都对，
 来来来，就请你大明大方地分析分析，我是什么立场什么口径，我对的是哪个人你对的又是哪个事。您不来跟我唠个清楚我自己还真不明白了。
 
 
-
-
-
-
-
 -----
 
 ####  uponutopia  
 ##### 326#       发表于 2020-3-6 21:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46640639&amp;ptid=1916631" target="_blank">普罗茶 发表于 2020-3-6 20:52</a>
@@ -6447,16 +4233,10 @@ nbht说的都对，
 我确实有想说"动画的演员不是声优你们这群白痴声豚"的冲动<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">,我的巨魔冲动来自于对你坛部分声豚的敌意.当然我不知道前面这位是不是声豚,语气不太好确实是我的问题.至于演出是不是演员的问题我觉得动画演出当然承担了部分演员的职能,动画演出可以说既是导演又是演员,不能简单的映射其它行业的职位职能
 
 
-
-
-
-
-
 -----
 
 ####  shihao  
 ##### 327#       发表于 2020-3-6 21:17
-
 
 
  本帖最后由 shihao 于 2020-3-6 21:18 编辑 
@@ -6475,16 +4255,10 @@ nbht说的都对，
 哈哈,nbht牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  普罗茶  
 ##### 328#       发表于 2020-3-6 21:25
-
 
 
  本帖最后由 普罗茶 于 2020-3-6 21:27 编辑 
@@ -6493,16 +4267,10 @@ nbht说的都对，
 行，那我明白了，毕竟部分声豚是很白痴。但拿演出说事就很不合适了，因为也不能说指导、指示演技和表演内容（演出的部分职责，可能是你想说的「演员」的那部分）的就叫有演员职能，不然真人影视也有人指导演员演技，他们总不能叫做有演员职能吧
 
 
-
-
-
-
-
 -----
 
 ####  魂淡放我出去  
 ##### 329#       发表于 2020-3-6 21:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46640355&amp;ptid=1916631" target="_blank">ohyesHere 发表于 2020-3-6 20:21</a>
@@ -6514,16 +4282,10 @@ nbht说的都对，
 其实我是想说如果壁吧也得发工资，会不会也比anitama过得好
 
 
-
-
-
-
-
 -----
 
 ####  山形石雄  
 ##### 330#       发表于 2020-3-6 21:32
-
 
 
  本帖最后由 山形石雄 于 2020-3-6 21:35 编辑 
@@ -6531,16 +4293,10 @@ nbht说的都对，
 去年anitama能够活下来，壁吧是出了大力气的，能拉回来和平分手就是因为壁吧的人去B站那里撒泼打滚，总算才把anitama拉回来，结果蜜月期还没过一点屁事就被NBHT一刀捅背后。
 
 
-
-
-
-
-
 -----
 
 ####  ohyesHere  
 ##### 331#       发表于 2020-3-6 21:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46640798&amp;ptid=1916631" target="_blank">lushark 发表于 2020-03-06 21:10:09</a>
@@ -6559,16 +4315,10 @@ anitama B斯卡不成熟，给B惹麻烦坏名声。
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  ohyesHere  
 ##### 332#       发表于 2020-3-6 21:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46640851&amp;ptid=1916631" target="_blank">shihao 发表于 2020-03-06 21:17:12</a></blockquote>这回nbht跳进黄河洗不清了。
@@ -6576,16 +4326,10 @@ anitama B斯卡不成熟，给B惹麻烦坏名声。
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  shihao  
 ##### 333#       发表于 2020-3-6 21:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46641057&amp;ptid=1916631" target="_blank">ohyesHere 发表于 2020-3-6 21:42</a>
@@ -6597,32 +4341,19 @@ anitama B斯卡不成熟，给B惹麻烦坏名声。
 B站玉米也发了这个声明,但是故意去掉了括号里的部分,只有知乎是完整的
 
 
-
-
-
-
-
 -----
 
 ####  ed21）  
 ##### 334#       发表于 2020-3-6 21:46
 
 
-
-
 回去看了一下去年的帖子，这反转有内味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  ohyesHere  
 ##### 335#       发表于 2020-3-6 21:50
-
 
 
  本帖最后由 ohyesHere 于 2020-3-6 21:56 编辑 
@@ -6634,27 +4365,15 @@ B站玉米也发了这个声明,但是故意去掉了括号里的部分,只有�
 上次差点解散大家还都很同情的，这次各个平台都像巴不得anitama死一样，真是一言难尽。
 
 
-
-
-
-
-
 -----
 
 ####  AbigailWilliams  
 ##### 336#       发表于 2020-3-6 21:51
 
 
-
-
 我能意淫玉米在打这段字时有多么的慎重用词<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -6663,22 +4382,15 @@ B站玉米也发了这个声明,但是故意去掉了括号里的部分,只有�
 ##### 337#       发表于 2020-3-6 21:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46640996&amp;ptid=1916631" target="_blank">山形石雄 发表于 2020-3-6 21:32</a>
 去年anitama能够活下来，壁吧是出了大力气的，能拉回来和平分手就是因为壁吧的人去B站那里撒泼打滚，总算才 ...</blockquote>
 我想起来了，当时在壁吧群里说要还人情。算是顶着压力去支持anitama的。
-
-
-
-
-
 
 
 -----
 
 ####  魂淡放我出去  
 ##### 338#       发表于 2020-3-6 21:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46641130&amp;ptid=1916631" target="_blank">ohyesHere 发表于 2020-3-6 21:50</a>
@@ -6689,16 +4401,10 @@ B站玉米也发了这个声明,但是故意去掉了括号里的部分,只有�
 nbht跟声优黑屁那一期有关系吗？按照lla的说法，尺度是全公司成员把控而不是nbht一个人才对
 
 
-
-
-
-
-
 -----
 
 ####  未来起航  
 ##### 339#       发表于 2020-3-6 21:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46640996&amp;ptid=1916631" target="_blank">山形石雄 发表于 2020-3-6 21:32</a>
@@ -6707,26 +4413,15 @@ nbht跟声优黑屁那一期有关系吗？按照lla的说法，尺度是全公�
 老见壁吧的人念叨这事，是这么回事......
 
 
-
-
-
-
-
 -----
 
 ####  Nico_Minoru  
 ##### 340#       发表于 2020-3-6 21:56
 
 
-
 <blockquote>魂淡放我出去 发表于 2020-3-6 21:51
 nbht跟声优黑屁那一期有关系吗？按照lla的说法，尺度是全公司成员把控而不是nbht一个人才对 ...</blockquote>
 如果全体成员管得住他会走到今天？要么大多数人是他那样，要么他一个人管事吧。
-
-
-
-
-
 
 
 -----
@@ -6735,16 +4430,10 @@ nbht跟声优黑屁那一期有关系吗？按照lla的说法，尺度是全公�
 ##### 341#       发表于 2020-3-6 21:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46641155&amp;ptid=1916631" target="_blank">魂淡放我出去 发表于 2020-3-6 21:51</a>
 
 nbht跟声优黑屁那一期有关系吗？按照lla的说法，尺度是全公司成员把控而不是nbht一个人才对 ...</blockquote>
 编辑了，抱歉，你说的对。我觉得视频主要他负责，就认为是他了。
-
-
-
-
-
 
 
 -----
@@ -6753,23 +4442,16 @@ nbht跟声优黑屁那一期有关系吗？按照lla的说法，尺度是全公�
 ##### 342#       发表于 2020-3-6 22:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46640996&amp;ptid=1916631" target="_blank">山形石雄 发表于 2020-3-6 21:32</a>
 
 去年anitama能够活下来，壁吧是出了大力气的，能拉回来和平分手就是因为壁吧的人去B站那里撒泼打滚，总算才 ...</blockquote>
 这又是什么瓜，能不能详细点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  胧楼  
 ##### 343#       发表于 2020-3-6 22:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46641227&amp;ptid=1916631" target="_blank">azbhg1 发表于 2020-3-6 22:01</a>
@@ -6780,25 +4462,13 @@ nbht跟声优黑屁那一期有关系吗？按照lla的说法，尺度是全公�
 去年anitama解散，壁吧号b站下场帮anitama带了一波节奏。这是有人拜托某人下场帮忙的，带这波节奏及的说是帮下忙还人情。是不是anitama拜托的没说，还人情的是谁我忘了，其实壁吧不想参与这事的。以上全是记忆，记错勿怪。
 
 
-
-
-
-
-
 -----
 
 ####  kobushi  
 ##### 344#       发表于 2020-3-6 22:13
 
 
-
-
 为什么这么喜欢大号上阵口嗨捏，是越被一般通过讨厌就越能体现自身话语权心里就越爽吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6807,23 +4477,16 @@ nbht跟声优黑屁那一期有关系吗？按照lla的说法，尺度是全公�
 ##### 345#       发表于 2020-3-6 22:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46639998&amp;ptid=1916631" target="_blank">胧楼 发表于 2020-3-6 19:49</a>
 
 anitama接不到toB推广 还是因为专攻日本动画，而且还是作画占大头吧。 国内虽然现在一年发布会不算少，但是 ...</blockquote>
 同意。这视频看得人很迷惑。日本动画不赚钱→国内动画媒体死路一条？既然只关注日式动画，走讨好作画厨的路线，那一开始就要做好小众的觉悟吧。
 
 
-
-
-
-
-
 -----
 
 ####  zyw0  
 ##### 346#       发表于 2020-3-6 22:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46641298&amp;ptid=1916631" target="_blank">胧楼 发表于 2020-03-06 22:08:16</a>
@@ -6836,32 +4499,19 @@ anitama接不到toB推广 还是因为专攻日本动画，而且还是作画占
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  kraoo  
 ##### 347#       发表于 2020-3-6 22:54
 
 
-
-
 我怎么看着这视频标了个热门，这是给推上热门了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">感觉有点讽刺
-
-
-
-
-
 
 
 -----
 
 ####  lushark  
 ##### 348#       发表于 2020-3-7 00:04
-
 
 
  本帖最后由 lushark 于 2020-3-7 00:24 编辑 
@@ -6889,40 +4539,19 @@ anitama B斯卡不成熟，给B惹麻烦坏名声。
 2020-3-7 00:15 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  nagitoY  
 ##### 349#       发表于 2020-3-7 00:42
 
 
-
-
 拿官方号讲这种事很蠢，我觉得这和微博办公没什么区别。
-
-
-
-
-
 
 
 -----
 
 ####  舌怪  
 ##### 350#       发表于 2020-3-7 00:45
-
 
 
  本帖最后由 舌怪 于 2020-3-7 01:20 编辑 
@@ -6932,20 +4561,10 @@ anitama B斯卡不成熟，给B惹麻烦坏名声。
 那我们为什么要浪费时间专门看你做个视频讲这些我们已经知道的事？看的我满头问号
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  一般通过宅宅  
 ##### 351#       发表于 2020-3-7 01:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46642563&amp;ptid=1916631" target="_blank">nagitoY 发表于 2020-3-7 00:42</a>
@@ -6954,26 +4573,15 @@ anitama B斯卡不成熟，给B惹麻烦坏名声。
 确实，这种个人观点用官号发有点蠢....
 
 
-
-
-
-
-
 -----
 
 ####  南非大金钻  
 ##### 352#       发表于 2020-3-7 01:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46612037&amp;ptid=1916631" target="_blank">lushark 发表于 2020-3-4 12:27</a>
 第一件事情anitama的人应该已经解释过很多遍了，主站也不是铁板一块，主导b斯卡的也不过是和anitama平级 ...</blockquote>
 同样是狗咬狗，在企业微信上咬和在微博上咬的区别可大了。
-
-
-
-
-
 
 
 -----
@@ -6982,25 +4590,16 @@ anitama B斯卡不成熟，给B惹麻烦坏名声。
 ##### 353#       发表于 2020-3-7 01:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46642715&amp;ptid=1916631" target="_blank">南非大金钻 发表于 2020-3-7 01:05</a>
 
 同样是狗咬狗，在企业微信上咬和在微博上咬的区别可大了。</blockquote>
 我要补充的不过就是anitama自身对这一事件的定性始终是“平级内斗”，但在外界看来是“下克上”，至于主站眼里看起来是什么性质的事，我就不知道了。
 
 
-
-
-
-
-
-
 -----
 
 ####  雨子酱  
 ##### 354#       发表于 2020-3-7 01:36
-
-
 
 
 看见anitama（现在应该说nbht了）在评论区点赞了两条评论，一条的核心内容是“作为普通观众就好好看好好学，大家都是来学东西的，憋搁那儿精神股东阴阳怪气”
@@ -7012,25 +4611,13 @@ anitama B斯卡不成熟，给B惹麻烦坏名声。
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Hchan  
 ##### 355#       发表于 2020-3-7 01:38
 
 
-
-
 只能说求仁得仁吧，话说的刻薄一点，nbht配当二次元刘大可么
-
-
-
-
-
 
 
 -----
@@ -7039,15 +4626,9 @@ anitama B斯卡不成熟，给B惹麻烦坏名声。
 ##### 356#       发表于 2020-3-7 01:42
 
 
-
 <blockquote>Hchan 发表于 2020-3-7 01:38
 只能说求仁得仁吧，话说的刻薄一点，nbht配当二次元刘大可么</blockquote>
 印象中，刘大可好像是动画专业科班出身的，没准真画起画来掉打nbht
-
-
-
-
-
 
 
 -----
@@ -7056,14 +4637,8 @@ anitama B斯卡不成熟，给B惹麻烦坏名声。
 ##### 357#       发表于 2020-3-7 01:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46637876&amp;ptid=1916631" target="_blank">智障的最高境界 发表于 2020-3-6 16:24</a></blockquote>
 草了，我们是可以不在意anitama赚不赚钱，前提是你得让他活下来啊？
-
-
-
-
-
 
 
 -----
@@ -7072,14 +4647,7 @@ anitama B斯卡不成熟，给B惹麻烦坏名声。
 ##### 358#       发表于 2020-3-7 01:55
 
 
-
-
 牛逼火腿别他妈败坏群众对anitama的印象了，真的，能被这视频忽悠的人是你拉起anitama时的目标群众吗
-
-
-
-
-
 
 
 -----
@@ -7088,21 +4656,13 @@ anitama B斯卡不成熟，给B惹麻烦坏名声。
 ##### 359#       发表于 2020-3-7 01:57
 
 
-
-
 国内的二次元市场和动画市场明显处于上升期，我认识一些金主有钱都花不出去，就想找一些靠谱的合作者但是找不到，人均草台班子投个项目都各种被坑，anitama至少经验和能力应该没问题的，这么小的班子养不活，估计还是缺少一个好的商业方面的对接人
-
-
-
-
-
 
 
 -----
 
 ####  大圣欢喜天  
 ##### 360#       发表于 2020-3-7 02:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46642900&amp;ptid=1916631" target="_blank">雨子酱 发表于 2020-3-7 01:36</a>
@@ -7114,27 +4674,15 @@ anitama B斯卡不成熟，给B惹麻烦坏名声。
 NBHT真的是婆罗门，人家真的是那么想的
 
 
-
-
-
-
-
-
 -----
 
 ####  Jobtowna  
 ##### 361#       发表于 2020-3-7 02:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46642900&amp;ptid=1916631" target="_blank">雨子酱 发表于 2020-3-7 01:36</a>
 看见anitama（现在应该说nbht了）在评论区点赞了两条评论，一条的核心内容是“作为普通观众就好好看好好学 ...</blockquote>
 已经魔怔了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7143,16 +4691,10 @@ NBHT真的是婆罗门，人家真的是那么想的
 ##### 362#       发表于 2020-3-7 02:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46643090&amp;ptid=1916631" target="_blank">Jobtowna 发表于 2020-03-07 02:07:52</a>
 已经魔怔了吧</blockquote>所谓的看动画看出优越感<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -7161,16 +4703,10 @@ NBHT真的是婆罗门，人家真的是那么想的
 ##### 363#       发表于 2020-3-7 02:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46639095&amp;ptid=1916631" target="_blank">YODOboi 发表于 2020-3-6 18:08</a>
 
 视频更了再BB几句吧，我也没见哪个电影媒体成天吹剪辑师傅，哪个游戏媒体成天舔建模师傅的。萌二也好，婆罗 ...</blockquote>
 我寻思游戏里偏画面党的索狗，电影里的扎斯林不是也挺多，不稀奇
-
-
-
-
-
 
 
 -----
@@ -7179,15 +4715,9 @@ NBHT真的是婆罗门，人家真的是那么想的
 ##### 364#       发表于 2020-3-7 02:27
 
 
-
 <blockquote>lushark 发表于 2020-3-7 00:04
 要不你睁大眼睛再好好看清楚字？ 看看我说的是我解释过很多遍还是anitama的人解释过很多遍？  这个说辞就 ...</blockquote>
 得了吧，你这账号不是一直无脑护主？纯路人被你恶心到了
-
-
-
-
-
 
 
 -----
@@ -7196,17 +4726,10 @@ NBHT真的是婆罗门，人家真的是那么想的
 ##### 365#       发表于 2020-3-7 02:28
 
 
-
-
 感觉可以说说这个个人捏他了
 
 
 我每次都要想一会儿到底是 nbht 还是 nkbz
-
-
-
-
-
 
 
 -----
@@ -7215,21 +4738,13 @@ NBHT真的是婆罗门，人家真的是那么想的
 ##### 366#       发表于 2020-3-7 02:48
 
 
-
-
 真安静啊
-
-
-
-
-
 
 
 -----
 
 ####  野上由加奈  
 ##### 367#       发表于 2020-3-7 02:51
-
 
 
  本帖最后由 野上由加奈 于 2020-3-7 03:00 编辑 
@@ -7251,18 +4766,10 @@ NBHT真的是婆罗门，人家真的是那么想的
 当然专业动画媒体这块的市场肯定是有的，但是回到这个项目一开始对自己的认知偏差了，导致整个定位走上了牛角尖
 
 
-
-
-
-
-
-
 -----
 
 ####  蓬莱妹红  
 ##### 368#       发表于 2020-3-7 08:40
-
-
 
 
 普通观众看动画的体验是：哇这集真nb
@@ -7272,25 +4779,13 @@ nbht看动画的体验是：哇这卡这卡还有这卡真nb
 作为一个普通个人来说怎么看动画都可以，脑内一帧帧播放都行，但是作为一个自媒体，认为所有看动画的爱好者就应该这么看，且应该学着这么看动画，那也太端着了吧，人的本质属性我寻思也不是播放器啊
 
 
-
-
-
-
-
 -----
 
 ####  燃笔  
 ##### 369#       发表于 2020-3-7 08:41
 
 
-
-
 上次那个烂片论恶心到我了，支持他被喷爆
-
-
-
-
-
 
 
 -----
@@ -7299,20 +4794,13 @@ nbht看动画的体验是：哇这卡这卡还有这卡真nb
 ##### 370#       发表于 2020-3-7 08:43
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一，我是不懂为啥现在B站上拿盗版美漫生肉做个ppt讲解视频都可以混到盘满钵满，作豚精心为二刺猿讲解日本动漫精妙之处就混不下去，是不是这个社会的问题，大冬天的我浑身发热，咳咳咳咳咳
-
-
-
-
-
 
 
 -----
 
 ####  n.dante  
 ##### 371#       发表于 2020-3-7 09:46
-
 
 
  本帖最后由 n.dante 于 2020-3-7 09:52 编辑 
@@ -7322,17 +4810,10 @@ nbht看动画的体验是：哇这卡这卡还有这卡真nb
 但是这种观众在认知上的转变，并不能因为“优越感”或是“成为意见领袖的诱惑”而一蹴而就，而是需要一些可遇不可求的契机与意愿。
 
 
-
-
-
-
-
 -----
 
 ####  Rabbitkick  
 ##### 372#       发表于 2020-3-7 10:00
-
-
 
 
 up主觉得很赞属实有被笑到<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
@@ -7340,16 +4821,10 @@ up主觉得很赞属实有被笑到<img src="https://static.saraba1st.com/image/
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  lxlyandccc  
 ##### 373#       发表于 2020-3-7 10:01
-
 
 
  本帖最后由 lxlyandccc 于 2020-3-7 10:43 编辑 
@@ -7361,26 +4836,15 @@ up主觉得很赞属实有被笑到<img src="https://static.saraba1st.com/image/
 所谓“新一层的乐趣”，那是要先满足了“整体不错”的前提之后才能让人有兴趣往深处看，一开始就拆开来说“这个部分好，所以你们应该欣赏这个整体”……这逻辑我觉得不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lushark  
 ##### 374#       发表于 2020-3-7 10:17
 
 
-
 <blockquote>louge19891020 发表于 2020-3-7 02:27
 得了吧，你这账号不是一直无脑护主？纯路人被你恶心到了</blockquote>
 我喷anitama时候都直接怼他们本人，他们当初被b站收购还装没关系时候我就在泥潭冷嘲热讽。还护主，他们配吗？你配吗？ 有一说一，确实被你这“纯路人”逗笑了，要黑就黑，搁S1还玩儿这套？ 自个儿黑不出花样，还见别人就要暗搓搓猜别人站的哪个队，那我明确跟你讲，我看不上anitama，但是更看不上阴阳怪气敢喷不敢认的太监。
-
-
-
-
-
 
 
 -----
@@ -7389,16 +4853,10 @@ up主觉得很赞属实有被笑到<img src="https://static.saraba1st.com/image/
 ##### 375#       发表于 2020-3-7 10:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46642900&amp;ptid=1916631" target="_blank">雨子酱 发表于 2020-3-7 01:36</a>
 
 看见anitama（现在应该说nbht了）在评论区点赞了两条评论，一条的核心内容是“作为普通观众就好好看好好学 ...</blockquote>
 实际上nbht在群里就一直在说这些事情，我的回帖也是对他在群里说的回复，我以为他就自暴自弃一会就完事了，没想到还能一直到现在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7407,16 +4865,10 @@ up主觉得很赞属实有被笑到<img src="https://static.saraba1st.com/image/
 ##### 376#       发表于 2020-3-7 11:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46644350&amp;ptid=1916631" target="_blank">n.dante 发表于 2020-3-7 09:46</a>
 
 不同的人对“动画究竟是什么”会有截然不同的回答。绝大多数人把它看作是故事，是文本。而少部分人把它看作 ...</blockquote>
 动画是故事的原因是因为绝大多数商业作品都是叙事类的，这本来就是动画自己选的题材问题。至于动画看成文本就不知道这里何意了，难道因为人们接受故事概念从识字起就把叙事都归类为文本了吗？至于后面所提的XXX的结合，其他所有体裁也都有分类结合的，但正常分析自然是把这些结合跟主题表达联系的起来了。至于nbht对动画的理解，并不觉得他在一个良好的理解动画的符号体系内。他的口味跟一般意义上的好动画差太多了
-
-
-
-
-
 
 
 -----
@@ -7425,15 +4877,9 @@ up主觉得很赞属实有被笑到<img src="https://static.saraba1st.com/image/
 ##### 377#       发表于 2020-3-7 12:49
 
 
-
  本帖最后由 依然荏苒 于 2020-3-7 12:54 编辑 
 
 anitama的主体是上海动魂文化传媒有限公司 阿睿百分百持股，参保15人。但是在隔壁看到说这个公司是上海漫魂发展有限公司（阿睿会员购）下面的，意思是行政结构？
-
-
-
-
-
 
 
 -----
@@ -7442,15 +4888,9 @@ anitama的主体是上海动魂文化传媒有限公司 阿睿百分百持股，
 ##### 378#       发表于 2020-3-7 13:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -7459,16 +4899,10 @@ anitama的主体是上海动魂文化传媒有限公司 阿睿百分百持股，
 ##### 379#       发表于 2020-3-7 13:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46642835&amp;ptid=1916631" target="_blank">lushark 发表于 2020-3-7 01:26</a>
 
 我要补充的不过就是anitama自身对这一事件的定性始终是“平级内斗”，但在外界看来是“下克上”，至于主 ...</blockquote>
 笑死，自身定位？日本二战自身定位还是大东亚共荣呢。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7477,14 +4911,7 @@ anitama的主体是上海动魂文化传媒有限公司 阿睿百分百持股，
 ##### 380#       发表于 2020-3-7 13:31
 
 
-
-
 天下苦婆罗门久矣。真想当普罗米修斯的话，就老老实实被绑在高加索山上肠子喂老鹰。
-
-
-
-
-
 
 
 -----
@@ -7493,15 +4920,9 @@ anitama的主体是上海动魂文化传媒有限公司 阿睿百分百持股，
 ##### 381#       发表于 2020-3-7 13:43
 
 
-
 <blockquote>lushark 发表于 2020-3-7 10:17
 我喷anitama时候都直接怼他们本人，他们当初被b站收购还装没关系时候我就在泥潭冷嘲热讽。还护主，他们配 ...</blockquote>
 装啥呢，你不是两个帖来回护？我在这两个帖前都不知道这倒霉东西有啥作品，不算路人？护主子就护主子，还一直装啥？
-
-
-
-
-
 
 
 -----
@@ -7510,20 +4931,14 @@ anitama的主体是上海动魂文化传媒有限公司 阿睿百分百持股，
 ##### 382#       发表于 2020-3-7 13:48
 
 
-
-
 本来我觉得nbht这人虽然性格有问题，但是我不关注他私人账号就能假装看不见。
 
 结果在官方号上整这么一出，那只能取关了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">想了解动画业界也不差这个业余人士的二手资料。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -7533,19 +4948,13 @@ anitama的主体是上海动魂文化传媒有限公司 阿睿百分百持股，
 | Nico_Minoru| + 2||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  lushark  
 ##### 383#       发表于 2020-3-7 14:02
-
 
 
  本帖最后由 lushark 于 2020-3-7 14:06 编辑 
@@ -7559,17 +4968,10 @@ anitama的主体是上海动魂文化传媒有限公司 阿睿百分百持股，
 你对anitama有什么意见你就说，又没人拦着你，别磨磨唧唧整些虚头巴脑的。是你自个儿来追着我咬，让你自己讲么又崩不出个屁，只会“我路人我路人”，怂不怂？贱不贱？
 
 
-
-
-
-
-
-
 -----
 
 ####  ohyesHere  
 ##### 384#       发表于 2020-3-7 14:10
-
 
 
  本帖最后由 ohyesHere 于 2020-3-7 14:22 编辑 
@@ -7591,7 +4993,6 @@ anitama的主体是上海动魂文化传媒有限公司 阿睿百分百持股，
 ##### 385#       发表于 2020-3-7 14:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46646665&amp;ptid=1916631" target="_blank">ohyesHere 发表于 2020-3-7 14:10</a>
 
 没人会17年注册（应该是17年吧？）一个小号，攒到20年来用，您太高看自己了。
@@ -7607,16 +5008,10 @@ anitama的主体是上海动魂文化传媒有限公司 阿睿百分百持股，
  别人做什么事说什么话你都要按自己的想法重新诠释一遍然后立个空气靶子打，大概这就是你的“就事论事”吧。
 
 
-
-
-
-
-
 -----
 
 ####  kongray  
 ##### 386#       发表于 2020-3-7 15:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46646665&amp;ptid=1916631" target="_blank">ohyesHere 发表于 2020-3-7 14:10</a>
@@ -7626,17 +5021,10 @@ anitama的主体是上海动魂文化传媒有限公司 阿睿百分百持股，
 看你们吵了好几页我也没看懂你这到底是在杠个啥？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  千本blur  
 ##### 387#       发表于 2020-3-7 16:50
-
-
 
 
 其实我想起老郭的一个段子。
@@ -7648,13 +5036,9 @@ anitama的主体是上海动魂文化传媒有限公司 阿睿百分百持股，
 全场鸦雀无声。最后所有人一致通过：让他走。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -7664,12 +5048,7 @@ anitama的主体是上海动魂文化传媒有限公司 阿睿百分百持股，
 | ゴロー| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -7678,18 +5057,12 @@ anitama的主体是上海动魂文化传媒有限公司 阿睿百分百持股，
 ##### 388#       发表于 2020-3-7 17:00
 
 
-
-
 牛逼火腿把ANTM干死了，那星也什么时候把VR干死?
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -7699,19 +5072,13 @@ anitama的主体是上海动魂文化传媒有限公司 阿睿百分百持股，
 | morment| + 1|欢乐多|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  louge19891020  
 ##### 389#       发表于 2020-3-7 17:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46646606&amp;ptid=1916631" target="_blank">lushark 发表于 2020-3-7 14:02</a>
@@ -7722,16 +5089,10 @@ anitama的主体是上海动魂文化传媒有限公司 阿睿百分百持股，
 我就看你洗地的姿势不爽喷你啊，我都不知道这啥玩意干了啥喷它作甚？
 
 
-
-
-
-
-
 -----
 
 ####  lushark  
 ##### 390#       发表于 2020-3-7 18:08
-
 
 
 <blockquote>louge19891020 发表于 2020-3-7 17:21
@@ -7739,16 +5100,10 @@ anitama的主体是上海动魂文化传媒有限公司 阿睿百分百持股，
 你都不觉得自己说出来的东西逻辑不通？  你不知道这啥玩意儿，也不知道它干了啥，但就觉得我在洗地？
 
 
-
-
-
-
-
 -----
 
 ####  hcho  
 ##### 391#       发表于 2020-3-7 18:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46644350&amp;ptid=1916631" target="_blank">n.dante 发表于 2020-3-7 09:46</a>
@@ -7759,32 +5114,19 @@ anitama的主体是上海动魂文化传媒有限公司 阿睿百分百持股，
 会去这样看的观众是非常非常少的，一般也就是影视专业的从业者或者非常热爱的爱好者才会这样去看，但是要让一个观众从这种创作者的角度去看一部作品是非常非常难的。anitama这种模式注定是个小众媒体
 
 
-
-
-
-
-
 -----
 
 ####  noobtizi  
 ##### 392#       发表于 2020-3-7 19:23
 
 
-
-
 草，太草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  没有龙  
 ##### 393#       发表于 2020-3-7 19:25
-
 
 
  本帖最后由 没有龙 于 2020-3-7 19:31 编辑 
@@ -7794,16 +5136,10 @@ anitama的主体是上海动魂文化传媒有限公司 阿睿百分百持股，
 —— 来自 HUAWEI KNT-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  ohyesHere  
 ##### 394#       发表于 2020-3-7 19:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46647116&amp;ptid=1916631" target="_blank">kongray 发表于 2020-3-7 15:05</a>
@@ -7817,16 +5153,10 @@ anitama的主体是上海动魂文化传媒有限公司 阿睿百分百持股，
 排除掉他左右横跳的部分，主要内容就这么简单。
 
 
-
-
-
-
-
 -----
 
 ####  ohyesHere  
 ##### 395#       发表于 2020-3-7 20:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46647116&amp;ptid=1916631" target="_blank">kongray 发表于 2020-3-7 15:05</a>
@@ -7836,16 +5166,10 @@ anitama的主体是上海动魂文化传媒有限公司 阿睿百分百持股，
 [https://www.saraba1st.com/2b/thread-1862978-1-1.html](https://www.saraba1st.com/2b/thread-1862978-1-1.html)
 
 
-
-
-
-
-
 -----
 
 ####  kongray  
 ##### 396#       发表于 2020-3-7 20:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46649790&amp;ptid=1916631" target="_blank">ohyesHere 发表于 2020-3-7 20:03</a>
@@ -7855,16 +5179,10 @@ https://www.saraba1st.com/2b/thread-1862978-1-1 ...</blockquote>
 搞了半天你们有恩怨啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lushark  
 ##### 397#       发表于 2020-3-7 20:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46649647&amp;ptid=1916631" target="_blank">ohyesHere 发表于 2020-3-7 19:50</a>
@@ -7882,16 +5200,10 @@ https://www.saraba1st.com/2b/thread-1862978-1-1 ...</blockquote>
 追求“实事求是”的你怎么也开始翻别人发言了呢，不要成为自己讨厌的人啊！ 一边说着“我再也不回你了哼”一边去偷偷翻记录，现在都不流行这种傲娇了吧。
 
 
-
-
-
-
-
 -----
 
 ####  lushark  
 ##### 398#       发表于 2020-3-7 20:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46649931&amp;ptid=1916631" target="_blank">kongray 发表于 2020-3-7 20:19</a>
@@ -7900,16 +5212,10 @@ https://www.saraba1st.com/2b/thread-1862978-1-1 ...</blockquote>
 不，我完全不认识他。
 
 
-
-
-
-
-
 -----
 
 ####  没有龙  
 ##### 399#       发表于 2020-3-7 20:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46649647&amp;ptid=1916631" target="_blank">ohyesHere 发表于 2020-3-7 19:50</a>
@@ -7923,16 +5229,10 @@ https://bbs.saraba1st.com/2b/thread-1706805-0-1.html
 —— 来自 HUAWEI KNT-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  ohyesHere  
 ##### 400#       发表于 2020-3-7 20:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46649931&amp;ptid=1916631" target="_blank">kongray 发表于 2020-3-7 20:19</a>
@@ -7948,16 +5248,10 @@ https://bbs.saraba1st.com/2b/thread-1706805-0-1.html
 然后我确信我没错，这人就是喜欢颠倒是非，恶心别人。
 
 
-
-
-
-
-
 -----
 
 ####  kongray  
 ##### 401#       发表于 2020-3-7 20:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46649950&amp;ptid=1916631" target="_blank">lushark 发表于 2020-3-7 20:20</a>
@@ -7965,16 +5259,10 @@ https://bbs.saraba1st.com/2b/thread-1706805-0-1.html
 可能他单方面对你不满吧，这去年的帖子都翻出来了，说不定是以前结的仇……
 
 
-
-
-
-
-
 -----
 
 ####  kongray  
 ##### 402#       发表于 2020-3-7 20:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46650002&amp;ptid=1916631" target="_blank">ohyesHere 发表于 2020-3-7 20:25</a>
@@ -7984,16 +5272,10 @@ https://bbs.saraba1st.com/2b/thread-1706805-0-1.html
 问题是第一个回复的那么上头的我记得是你啊？就像我说的你就算把那句话理解成你的意思，也没必要冲成这样啊？那句话有那么伤害你？还是你其实跟anitama有仇？
 
 
-
-
-
-
-
 -----
 
 ####  ohyesHere  
 ##### 403#       发表于 2020-3-7 20:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46649976&amp;ptid=1916631" target="_blank">没有龙 发表于 2020-3-7 20:23</a>
@@ -8012,16 +5294,10 @@ https://bbs.saraba1st.com/2b/thre ...</blockquote>
 有立场没关系，anitama变成现在这样是喜欢动画的人的损失。可是有立场还装客观，反复横跳就很讨厌了。
 
 
-
-
-
-
-
 -----
 
 ####  ohyesHere  
 ##### 404#       发表于 2020-3-7 20:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46650034&amp;ptid=1916631" target="_blank">kongray 发表于 2020-3-7 20:28</a>
@@ -8032,17 +5308,10 @@ https://bbs.saraba1st.com/2b/thre ...</blockquote>
 不能算历史恩怨，毕竟这几天我才想起S1账号。
 
 
-
-
-
-
-
 -----
 
 ####  kyonkoism  
 ##### 405#       发表于 2020-3-7 20:33
-
-
 
 
 问一下
@@ -8052,16 +5321,10 @@ https://bbs.saraba1st.com/2b/thre ...</blockquote>
 但是我还是不懂anitma当时是怎么和b站闹掰的，能恰b站的饭不是应该活的很滋润么
 
 
-
-
-
-
-
 -----
 
 ####  kongray  
 ##### 406#       发表于 2020-3-7 20:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46650085&amp;ptid=1916631" target="_blank">ohyesHere 发表于 2020-3-7 20:32</a>
@@ -8072,16 +5335,10 @@ https://bbs.saraba1st.com/2b/thre ...</blockquote>
 恕我直言，你这个才叫对人不对事……
 
 
-
-
-
-
-
 -----
 
 ####  ohyesHere  
 ##### 407#       发表于 2020-3-7 20:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46650095&amp;ptid=1916631" target="_blank">kyonkoism 发表于 2020-3-7 20:33</a>
@@ -8102,16 +5359,10 @@ https://bbs.saraba1st.com/2b/thre ...</blockquote>
 上次还是【悲报】，大家都挺遗憾的。作为一个专业动画媒体，没功劳也有苦劳，也没怎么恰饭，这次喊好的反而成了多数。造化弄人。
 
 
-
-
-
-
-
 -----
 
 ####  kyonkoism  
 ##### 408#       发表于 2020-3-7 20:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46650251&amp;ptid=1916631" target="_blank">ohyesHere 发表于 2020-3-7 20:47</a>
@@ -8131,16 +5382,10 @@ https://www.saraba1st.com/2b/thread-1812537-2-1.html
 整糊涂了
 
 
-
-
-
-
-
 -----
 
 ####  ohyesHere  
 ##### 409#       发表于 2020-3-7 21:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46650169&amp;ptid=1916631" target="_blank">kongray 发表于 2020-3-7 20:39</a>
@@ -8149,16 +5394,10 @@ https://www.saraba1st.com/2b/thread-1812537-2-1.html
 对着这个人的事，也算对事不对人呀。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  没有龙  
 ##### 410#       发表于 2020-3-7 21:51
-
 
 
  本帖最后由 没有龙 于 2020-3-7 22:20 编辑 
@@ -8169,20 +5408,13 @@ https://www.saraba1st.com/2b/thread-1812537-2-1.html
 个人看法，你们这整得和《第三少女飞行队》似的。他的看法是，《第三少女飞行队》是由剧中的武藏野动画做的，所以这个动画表达的只有武藏野动画的观点。你的观点是，如果没有PA，《第三少女飞行队》就不会在这里出现，所以这个动画表达的表达的是PA的观点。你们没在一个频道上聊天。
 
 
-
 —— 来自 HUAWEI KNT-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
 
 ####  浩劫余孽  
 ##### 411#       发表于 2020-3-7 21:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46650351&amp;ptid=1916631" target="_blank">kyonkoism 发表于 2020-3-7 20:57</a>
@@ -8194,16 +5426,10 @@ https://www.saraba1st.com/2b/thread-1812537-2-1.html
 B斯卡就是表现呗，所谓的理念不和极可能就是，B的某些部门想要anitama帮忙做点什么，影响到这个群体里某些人装逼了(比如著名的火腿哥)，这些人又有话语权，几次摩擦下来，就造就了B斯卡的壮举了啊。这种事就像中学生体育课要做仰卧起坐，你叫某位同学帮忙压下腿，他有洁癖嫌你鞋子脏，不帮你也就罢了，还骂你一句傻逼，不就闹起来了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  plazum  
 ##### 412#       发表于 2020-3-7 22:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46622628&amp;ptid=1916631" target="_blank">Tomorrow_D 发表于 2020-3-5 10:58</a>
@@ -8212,16 +5438,10 @@ B斯卡就是表现呗，所谓的理念不和极可能就是，B的某些部门
 好评加鹅
 
 
-
-
-
-
-
 -----
 
 ####  ruio  
 ##### 413#       发表于 2020-3-7 22:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46651011&amp;ptid=1916631" target="_blank">浩劫余孽 发表于 2020-3-7 21:55</a>
@@ -8230,16 +5450,10 @@ B斯卡就是表现呗，所谓的理念不和极可能就是，B的某些部门
 其实就是像泥潭婆罗门一样其实B站，还是明着面的歧视，又做不出啥，领导一看这anitama啥都做不出又损B的牌面，每年还吃这么多皇粮，不如取消了把资金分给其他（自己）部门。然后就闹到陈睿那里然后睿总良心那就和平分手anitama的牌子都给你们你们自负盈亏独立。然后不到一年就死了
 
 
-
-
-
-
-
 -----
 
 ####  不灭人形  
 ##### 414#       发表于 2020-3-7 22:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46650095&amp;ptid=1916631" target="_blank">kyonkoism 发表于 2020-3-7 20:33</a>
@@ -8252,16 +5466,10 @@ B斯卡就是表现呗，所谓的理念不和极可能就是，B的某些部门
 bili内部的台巴子从中作梗
 
 
-
-
-
-
-
 -----
 
 ####  wang1309495  
 ##### 415#       发表于 2020-3-7 22:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46649937&amp;ptid=1916631" target="_blank">lushark 发表于 2020-3-7 20:19</a>
@@ -8272,16 +5480,10 @@ bili内部的台巴子从中作梗
 批判别人一口一个洗稿，怎么到自己就各种转述了呢？都是成年人了，还在这装蠢，有意思吗？立场在哪真当别人看不出来？<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lushark  
 ##### 416#       发表于 2020-3-7 23:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46651307&amp;ptid=1916631" target="_blank">wang1309495 发表于 2020-3-7 22:21</a>
@@ -8292,26 +5494,15 @@ bili内部的台巴子从中作梗
 一个个说话弯弯绕绕又没逻辑到底想表达什么，我也很费解啊。
 
 
-
-
-
-
-
 -----
 
 ####  魂淡放我出去  
 ##### 417#       发表于 2020-3-7 23:31
 
 
-
  本帖最后由 魂淡放我出去 于 2020-3-7 23:36 编辑 
 
 绝了，所以跟b站闹掰的事，b斯卡那事是内部冲突的结果而不是起因？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8320,23 +5511,16 @@ bili内部的台巴子从中作梗
 ##### 418#       发表于 2020-3-7 23:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46651804&amp;ptid=1916631" target="_blank">lushark 发表于 2020-3-7 23:03</a>
 
 要批我什么倒是批啊，觉得我是什么立场倒是说出来啊，我批别人洗稿和我转述anitama的说法之间还能有什么 ...</blockquote>
 这不学的你吗？我虽然帮xx转述但是我是中立啊。中立咋只反驳“转述”一方的看法呢？<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  spring_VOV  
 ##### 419#       发表于 2020-3-7 23:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46651269&amp;ptid=1916631" target="_blank">不灭人形 发表于 2020-3-7 22:18</a>
@@ -8346,16 +5530,10 @@ bili内部的台巴子从中作梗</blockquote>
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  十月鼠  
 ##### 420#       发表于 2020-3-8 00:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46652157&amp;ptid=1916631" target="_blank">spring_VOV 发表于 2020-3-7 23:38</a>
@@ -8367,26 +5545,15 @@ bili内部的台巴子从中作梗</blockquote>
 人是台巴子，但分类还是部门间的内部矛盾
 
 
-
-
-
-
-
 -----
 
 ####  继承权  
 ##### 421#       发表于 2020-3-8 01:29
 
 
-
 <blockquote>uponutopia 发表于 2020-3-6 21:16
 这难道不是你自己延伸出来的意思吗?前面在讨论动画演员是原画师还是声优,演出又不是原画师,我只是拿来反 ...</blockquote>
 导演也会指导演员站位动作之类的啊，演员在此基础上自行发挥；演出跟原画的关系也能这样对应起来。
-
-
-
-
-
 
 
 -----
@@ -8395,15 +5562,9 @@ bili内部的台巴子从中作梗</blockquote>
 ##### 422#       发表于 2020-3-8 01:32
 
 
-
 <blockquote>wyjbnb 发表于 2020-3-7 01:42
 印象中，刘大可好像是动画专业科班出身的，没准真画起画来掉打nbht</blockquote>
 nbht可以请大哥打回去呀
-
-
-
-
-
 
 
 -----
@@ -8412,22 +5573,15 @@ nbht可以请大哥打回去呀
 ##### 423#       发表于 2020-3-8 01:34
 
 
-
 <blockquote>lxlyandccc 发表于 2020-3-7 10:01
 大多数一般观众看的时候可不会事先就去想“这是一个XXX的故事，我要从故事的角度去审视它”，大家看的都是 ...</blockquote>
 整体不错这点太难做到了，一年能有几部？
-
-
-
-
-
 
 
 -----
 
 ####  shihao  
 ##### 424#       发表于 2020-3-8 08:25
-
 
 
  本帖最后由 shihao 于 2020-3-8 08:35 编辑 
@@ -8447,32 +5601,19 @@ anitama则是老板失职任由公司员工做死破坏公司信誉和形象,最
 真就是婆罗门也是二刺猿不可分割的一部<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  发光的球  
 ##### 425#       发表于 2020-3-8 08:31
 
 
-
-
 lu医生从来都是正义地见人都有理有据地黑的，怎么会有人觉得他在洗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  shihao  
 ##### 426#       发表于 2020-3-8 08:39
-
 
 
  本帖最后由 shihao 于 2020-3-8 08:43 编辑 
@@ -8490,17 +5631,10 @@ lu医生从来都是正义地见人都有理有据地黑的，怎么会有人觉
 如果他是nbht的粉丝,····不会有人真把自己当婆罗门和nbht心心相惜了把<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  lxlyandccc  
 ##### 427#       发表于 2020-3-8 10:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46653228&amp;ptid=1916631" target="_blank">继承权 发表于 2020-3-8 01:34</a>
@@ -8511,16 +5645,10 @@ lu医生从来都是正义地见人都有理有据地黑的，怎么会有人觉
 如果真的想说有什么“不行”，那也不是这届观众不行而是这届动画人不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lushark  
 ##### 428#       发表于 2020-3-8 10:42
-
 
 
 <blockquote>shihao 发表于 2020-3-8 08:25
@@ -8535,14 +5663,7 @@ lu医生从来都是正义地见人都有理有据地黑的，怎么会有人觉
 ##### 429#       发表于 2020-3-8 11:01
 
 
-
-
 我佛了，lushark也成给antm洗地的了，拜托喷人之前看看发帖记录
-
-
-
-
-
 
 
 -----
@@ -8551,15 +5672,9 @@ lu医生从来都是正义地见人都有理有据地黑的，怎么会有人觉
 ##### 430#       发表于 2020-3-8 11:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一天没看，现在再去做动画媒体死路一条这个视频评论区看
 
 大部分的评论都从舔狗变成理客中分析anitama死的不冤枉了，b站用户在墙倒众人推这块一直可以的
-
-
-
-
-
 
 
 -----
@@ -8568,14 +5683,7 @@ lu医生从来都是正义地见人都有理有据地黑的，怎么会有人觉
 ##### 431#       发表于 2020-3-8 11:52
 
 
-
-
 翻了几楼感觉好神秘啊，这到底是哪几个在打滚真的觉得别人看不出来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8584,22 +5692,15 @@ lu医生从来都是正义地见人都有理有据地黑的，怎么会有人觉
 ##### 432#       发表于 2020-3-8 12:52
 
 
-
  本帖最后由 johnwick 于 2020-3-8 12:57 编辑 
 
 这个年头下,谁还不是个纯路人呢，谁还不是个婆罗门呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  ohyesHere  
 ##### 433#       发表于 2020-3-8 14:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46654407&amp;ptid=1916631" target="_blank">发光的球 发表于 2020-3-8 08:31</a>
@@ -8610,16 +5711,10 @@ lu医生从来都是正义地见人都有理有据地黑的，怎么会有人觉
 有据他确实做到了，有理还是算了。
 
 
-
-
-
-
-
 -----
 
 ####  ohyesHere  
 ##### 434#       发表于 2020-3-8 14:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46654407&amp;ptid=1916631" target="_blank">发光的球 发表于 2020-3-8 08:31</a>
@@ -8628,16 +5723,10 @@ lu医生从来都是正义地见人都有理有据地黑的，怎么会有人觉
 这人原来是个医生啊，只希望他现实中别这么喜欢攻击别人，不然不敢想象。
 
 
-
-
-
-
-
 -----
 
 ####  Jobtowna  
 ##### 435#       发表于 2020-3-8 17:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46657441&amp;ptid=1916631" target="_blank">ohyesHere 发表于 2020-3-8 14:05</a>
@@ -8646,27 +5735,15 @@ lu医生从来都是正义地见人都有理有据地黑的，怎么会有人觉
 至于医生的事你可以去知乎看他自己写的声明
 
 
-
-
-
-
-
 -----
 
 ####  秘封赛高！  
 ##### 436#       发表于 2020-3-8 17:43
 
 
-
-
 我记得搞B斯卡的时候卢医生还是评委来着？（后来还在知乎写了篇文章婊这个？），作为参与者至少比围观群众有发言权吧？
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -8675,14 +5752,7 @@ lu医生从来都是正义地见人都有理有据地黑的，怎么会有人觉
 ##### 437#       发表于 2020-3-8 18:12
 
 
-
-
 前医生！
-
-
-
-
-
 
 
 -----
@@ -8691,23 +5761,15 @@ lu医生从来都是正义地见人都有理有据地黑的，怎么会有人觉
 ##### 438#       发表于 2020-3-8 20:19
 
 
-
-
 本楼趋势：
 Anitama楼—》nbht楼—〉lushark楼
 你们到底在讨论什么呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  wang1309495  
 ##### 439#       发表于 2020-3-8 20:29
-
 
 
  本帖最后由 wang1309495 于 2020-3-8 20:32 编辑 
@@ -8720,25 +5782,13 @@ Anitama楼—》nbht楼—〉lushark楼
 还搁着吹医生呢？知乎那边让他晒证书等了几年没敢晒，后来自称转去做“环境保护”去了。<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  恤兵真綿  
 ##### 440#       发表于 2020-3-8 20:38
 
 
-
-
 每次贴子顶上来了点进来都没有任何新情报，要吵架出去单开一楼行不行
-
-
-
-
-
 
 
 -----
@@ -8747,14 +5797,7 @@ Anitama楼—》nbht楼—〉lushark楼
 ##### 441#       发表于 2020-3-8 20:42
 
 
-
-
 一旦吵起来就扣帽子也是特色了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8763,14 +5806,7 @@ Anitama楼—》nbht楼—〉lushark楼
 ##### 442#       发表于 2020-3-8 20:51
 
 
-
-
 讲道理,在论坛对线的时候,如果不针对发言,而是转移话题,变成动机论,因为你论坛等级低或者是小号所以发言有问题,总感觉先这样做的人就输了
-
-
-
-
-
 
 
 -----
@@ -8779,23 +5815,16 @@ Anitama楼—》nbht楼—〉lushark楼
 ##### 443#       发表于 2020-3-8 20:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46655436&amp;ptid=1916631" target="_blank">lushark 发表于 2020-3-8 10:42</a>
 
 这就更奇怪了，我说到的b斯卡的事也是anitama官微起的头，我从头到底压根没提过nbht，这还不够切割？一定 ...</blockquote>
 我不是路人哈,我就是被nbht恶心的专门针对他的黑子
 
 
-
-
-
-
-
 -----
 
 ####  shihao  
 ##### 444#       发表于 2020-3-8 20:58
-
 
 
  本帖最后由 shihao 于 2020-3-8 21:05 编辑 
@@ -8806,16 +5835,10 @@ Anitama楼—》nbht楼—〉lushark楼
 原来是知乎大V,嘻嘻
 
 
-
-
-
-
-
 -----
 
 ####  shihao  
 ##### 445#       发表于 2020-3-8 21:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46655962&amp;ptid=1916631" target="_blank">kyonkoism 发表于 2020-3-8 11:35</a>
@@ -8830,25 +5853,13 @@ Anitama楼—》nbht楼—〉lushark楼
 然后是听闻nbht落难才赶来的人可不会对他客气<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  TheDoctor  
 ##### 446#       发表于 2020-3-8 21:38
 
 
-
-
 隔壁尼姑庵都有新黑料了，泥潭不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 
-
-
-
-
-
 
 
 -----
@@ -8857,16 +5868,9 @@ Anitama楼—》nbht楼—〉lushark楼
 ##### 447#       发表于 2020-3-8 22:03
 
 
-
-
 尼姑庵一张P图都能讨论半天，我觉得不行
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -8875,23 +5879,16 @@ Anitama楼—》nbht楼—〉lushark楼
 ##### 448#       发表于 2020-3-8 23:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46661327&amp;ptid=1916631" target="_blank">shihao 发表于 2020-3-8 20:58</a>
 
 原来是知乎大V,嘻嘻</blockquote>
 已经被封号了啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  azbhg1  
 ##### 449#       发表于 2020-3-9 00:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46662042&amp;ptid=1916631" target="_blank">spring_VOV 发表于 2020-3-8 22:03</a>
@@ -8903,31 +5900,19 @@ Anitama楼—》nbht楼—〉lushark楼
 啥图啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就看到个吹S1踩尼姑庵的给封号了
 
 
-
-
-
-
-
 -----
 
 ####  可乐杜  
 ##### 450#       发表于 2020-3-9 00:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这楼里面的人就是看见新闻里面出现了犯人的自述就觉得是在给犯人洗地那种吧
-
-
-
-
-
 
 
 -----
 
 ####  Jobtowna  
 ##### 451#       发表于 2020-3-9 00:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46661000&amp;ptid=1916631" target="_blank">wang1309495 发表于 2020-3-8 20:29</a>
@@ -8940,16 +5925,10 @@ https://www.zhihu.com/question/48920545
 我在这还等着看anitama的黑料呢，结果尽看你们几个整活儿了。
 
 
-
-
-
-
-
 -----
 
 ####  spring_VOV  
 ##### 452#       发表于 2020-3-9 01:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46663367&amp;ptid=1916631" target="_blank">azbhg1 发表于 2020-3-9 00:06</a>
@@ -8959,25 +5938,13 @@ QQ群聊天截图，最后一句是“这年头信聊天截图的都是sb”<img
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  nihuo  
 ##### 453#       发表于 2020-3-9 08:57
 
 
-
-
 nbht也不容易，时代的眼泪啊
-
-
-
-
-
 
 
 -----
@@ -8986,21 +5953,13 @@ nbht也不容易，时代的眼泪啊
 ##### 454#       发表于 2020-3-9 09:43
 
 
-
-
 你们要撕特定论坛用户，去外野另开个斗技场不好吗
-
-
-
-
-
 
 
 -----
 
 ####  Heliko  
 ##### 455#       发表于 2020-3-9 09:50
-
 
 
  本帖最后由 Heliko 于 2020-3-9 09:52 编辑 
@@ -9015,27 +5974,15 @@ nbht也不容易，时代的眼泪啊
 <img src="https://p.sda1.dev/0/bc3ed0d6617b0d130a2169f192b3d3ca/chrome_BWMJ9Na2Zs.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  abzoon  
 ##### 456#       发表于 2020-3-9 10:05
 
 
-
-
 "然今卒困于此，此天之亡我也，非战之罪也"
 
 看起来就有这种感觉...
-
-
-
-
-
 
 
 -----
@@ -9044,15 +5991,9 @@ nbht也不容易，时代的眼泪啊
 ##### 457#       发表于 2020-3-9 21:25
 
 
-
 <img src="https://tvax2.sinaimg.cn/large/005CsXAuly1gcnzr0dz4yj30ui0ohdqc.jpg" referrerpolicy="no-referrer">
 
 饭来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9061,14 +6002,7 @@ nbht也不容易，时代的眼泪啊
 ##### 458#       发表于 2020-3-9 21:30
 
 
-
-
 我懂了，先看着自暴自弃的发个视频说是世界的错，然后就被路人数落自己高冷，于是趁着台阶下，之后就可以放下身段的安心恰饭了
-
-
-
-
-
 
 
 -----
@@ -9077,15 +6011,9 @@ nbht也不容易，时代的眼泪啊
 ##### 459#       发表于 2020-3-9 21:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46673482&amp;ptid=1916631" target="_blank">智障的最高境界 发表于 2020-3-9 21:25</a>
 饭来了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">化身**？
-
-
-
-
-
 
 
 -----
@@ -9094,16 +6022,10 @@ nbht也不容易，时代的眼泪啊
 ##### 460#       发表于 2020-3-9 22:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46673482&amp;ptid=1916631" target="_blank">智障的最高境界 发表于 2020-3-9 21:25</a>
 
 饭来了</blockquote>
 这人本质巨婴吧……
-
-
-
-
-
 
 
 -----
@@ -9112,16 +6034,10 @@ nbht也不容易，时代的眼泪啊
 ##### 461#       发表于 2020-3-9 22:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46673482&amp;ptid=1916631" target="_blank">智障的最高境界 发表于 2020-3-9 21:25</a>
 
 饭来了</blockquote>
 东西很棒，老婆很喜欢，已经入职仕上了，觉得头顶越来越凉爽<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9130,16 +6046,10 @@ nbht也不容易，时代的眼泪啊
 ##### 462#       发表于 2020-3-9 22:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46673482&amp;ptid=1916631" target="_blank">智障的最高境界 发表于 2020-3-9 21:25</a>
 
 饭来了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9148,14 +6058,7 @@ nbht也不容易，时代的眼泪啊
 ##### 463#       发表于 2020-3-9 23:00
 
 
-
-
 这。。。
-
-
-
-
-
 
 
 -----
@@ -9164,22 +6067,15 @@ nbht也不容易，时代的眼泪啊
 ##### 464#       发表于 2020-3-9 23:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46673529&amp;ptid=1916631" target="_blank">a85982313 发表于 2020-3-9 21:30</a>
 我懂了，先看着自暴自弃的发个视频说是世界的错，然后就被路人数落自己高冷，于是趁着台阶下，之后就可以放 ...</blockquote>
 有一说一，这波操作还算合情合理，符合人设
-
-
-
-
-
 
 
 -----
 
 ####  Stellar_Frost  
 ##### 465#       发表于 2020-3-9 23:21
-
 
 
  本帖最后由 Stellar_Frost 于 2020-3-9 23:25 编辑 
@@ -9191,27 +6087,15 @@ nbht也不容易，时代的眼泪啊
 怎么挣钱都比端着盆朝粉丝要饭强，除非你是干直播的。
 
 
-
-
-
-
-
 -----
 
 ####  hcf220  
 ##### 466#       发表于 2020-3-9 23:22
 
 
-
-
 这饭有点没水平
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -9220,17 +6104,10 @@ nbht也不容易，时代的眼泪啊
 ##### 467#       发表于 2020-3-9 23:22
 
 
-
-
 作画mad没人提，恰个烂饭都来了。
 泥潭本质还是属苍蝇的。
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
@@ -9239,23 +6116,15 @@ nbht也不容易，时代的眼泪啊
 ##### 468#       发表于 2020-3-9 23:23
 
 
-
-
 不过anitama私信里还是有挺多想入行的，这个广告确实有误导。
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
-
 
 
 -----
 
 ####  浩劫余孽  
 ##### 469#       发表于 2020-3-9 23:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46674688&amp;ptid=1916631" target="_blank">Stellar_Frost 发表于 2020-3-9 23:21</a>
@@ -9267,16 +6136,10 @@ nbht也不容易，时代的眼泪啊
 不是已经在干直播了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">，你也太小瞧他了，就是不知道固定时间上班没有
 
 
-
-
-
-
-
 -----
 
 ####  杨雪崩  
 ##### 470#       发表于 2020-3-9 23:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46673529&amp;ptid=1916631" target="_blank">a85982313 发表于 2020-3-9 21:30</a>
@@ -9286,16 +6149,10 @@ nbht也不容易，时代的眼泪啊
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  Stellar_Frost  
 ##### 471#       发表于 2020-3-9 23:44
-
 
 
  本帖最后由 Stellar_Frost 于 2020-3-9 23:47 编辑 
@@ -9307,25 +6164,13 @@ nbht也不容易，时代的眼泪啊
 我的意思是那种纯靠直播打赏过活的
 
 
-
-
-
-
-
 -----
 
 ####  一般通过宅宅  
 ##### 472#       发表于 2020-3-9 23:45
 
 
-
-
 还好还好，吃点总比饿死强<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9334,21 +6179,13 @@ nbht也不容易，时代的眼泪啊
 ##### 473#       发表于 2020-3-9 23:50
 
 
-
-
 “如果这拯救不了我的二次元，我将化身为恶魔”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  智障的最高境界  
 ##### 474#       发表于 2020-3-10 00:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46674711&amp;ptid=1916631" target="_blank">spring_VOV 发表于 2020-3-9 23:22</a>
@@ -9359,16 +6196,10 @@ nbht也不容易，时代的眼泪啊
 这楼主题不就是Anitama的恰饭问题吗，更新作画mad这事应该去Anitama真爱楼<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  小白吃不明  
 ##### 475#       发表于 2020-3-10 09:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46593988&amp;ptid=1916631" target="_blank">不灭人形 发表于 2020-3-2 18:57</a>
@@ -9379,25 +6210,13 @@ nbht也不容易，时代的眼泪啊
 那就祝他好运吧
 
 
-
-
-
-
-
 -----
 
 ####  Nico_Minoru  
 ##### 476#       发表于 2020-3-10 12:07
 
 
-
-
 “再也没有纯白的灵魂，自人类堕落为半兽人”
-
-
-
-
-
 
 
 -----
@@ -9406,16 +6225,9 @@ nbht也不容易，时代的眼泪啊
 ##### 477#       发表于 2020-3-10 13:03
 
 
-
-
 那么问题来了，接多少个绘画班的活能顶一次大公司的活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 当然现在平均到员工头上没准还多了
-
-
-
-
-
 
 
 -----
@@ -9424,14 +6236,7 @@ nbht也不容易，时代的眼泪啊
 ##### 478#       发表于 2020-3-10 14:52
 
 
-
-
 这波真有点受不了了，恰就恰呗搞这出是几个意思啊
-
-
-
-
-
 
 
 -----
@@ -9440,14 +6245,7 @@ nbht也不容易，时代的眼泪啊
 ##### 479#       发表于 2020-3-10 15:42
 
 
-
-
 合着野鸡培训班的饭就真比米忽悠的饭高贵了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9456,14 +6254,7 @@ nbht也不容易，时代的眼泪啊
 ##### 480#       发表于 2020-3-10 16:54
 
 
-
-
 这世上就是成败论英雄，甭管你有多少理由，别人也不是没给你机会，几次了，自己没把握住那就活该去死
-
-
-
-
-
 
 
 -----
@@ -9472,13 +6263,9 @@ nbht也不容易，时代的眼泪啊
 ##### 481#       发表于 2020-3-10 17:45
 
 
-
 <blockquote>azbhg1 发表于 2020-3-10 15:42
 合着野鸡培训班的饭就真比米忽悠的饭高贵了</blockquote>
 你还别说，万一要是吃原神那口饭，碗都能给他砸了。
-
-
-
 
 
                                  

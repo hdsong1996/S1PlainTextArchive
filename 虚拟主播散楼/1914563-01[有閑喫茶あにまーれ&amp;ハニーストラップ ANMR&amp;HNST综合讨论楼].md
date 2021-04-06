@@ -1,13 +1,10 @@
 > ## **本文件最后更新于2021-02-21 15:45** 
 
 
-
 -----
 
 ####  大神ミオ  
 ##### 1#       楼主       发表于 2020-2-18 20:42
-
-
 
 
 不知道V区还有没有人在看她们的直播了呢……
@@ -15,18 +12,10 @@
 姑且先发个帖，等咱跑团结束编辑
 
 
-
-
-
-
-
-
-
 -----
 
 ####  qw945  
 ##### 2#       发表于 2020-2-18 20:44
-
 
 
  本帖最后由 qw945 于 2020-2-18 20:50 编辑 
@@ -37,26 +26,13 @@
 顺便把公寓也加上吧
 
 
-
-
-
-
-
-
 -----
 
 ####  胡桃丶  
 ##### 3#       发表于 2020-2-18 20:45
 
 
-
-
 歌姬退了太伤了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -65,14 +41,7 @@
 ##### 4#       发表于 2020-2-18 20:47
 
 
-
-
 偶尔看看组长
-
-
-
-
-
 
 
 -----
@@ -81,23 +50,16 @@
 ##### 5#         楼主| 发表于 2020-2-18 20:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46454272&amp;ptid=1914563" target="_blank">胡桃丶 发表于 2020-2-18 20:45</a>
 
 歌姬退了太伤了</blockquote>
 咱也很伤心，而且毕业的真实原因到现在也没有定论……
 
 
-
-
-
-
-
 -----
 
 ####  大神ミオ  
 ##### 6#         楼主| 发表于 2020-2-18 20:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46454264&amp;ptid=1914563" target="_blank">qw945 发表于 2020-2-18 20:44</a>
@@ -109,25 +71,13 @@
 现在大概是看两眼蓝狗和PTR的程度，以前看的最多的是Hinako，V区基本就没见过讨论的
 
 
-
-
-
-
-
 -----
 
 ####  噬珂  
 ##### 7#       发表于 2020-2-18 20:56
 
 
-
-
 组长还是蛮有趣的
-
-
-
-
-
 
 
 -----
@@ -136,16 +86,9 @@
 ##### 8#       发表于 2020-2-18 22:45
 
 
-
-
 我还是很喜欢组长的 最近还来了新成员
 
 不过国内讨论度低又导致了熟肉数量少 
-
-
-
-
-
 
 
 -----
@@ -154,13 +97,7 @@
 ##### 9#       发表于 2020-2-18 23:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">太好了 终于有茶店夜店楼了 每晚必须要听玛丽姐奥数入睡
-
-
-
-
-
 
 
 -----
@@ -169,14 +106,7 @@
 ##### 10#       发表于 2020-2-18 23:28
 
 
-
-
 茶馆那两个新人啥时候出？
-
-
-
-
-
 
 
 -----
@@ -185,14 +115,7 @@
 ##### 11#       发表于 2020-2-19 09:38
 
 
-
-
 基本只看蓝狗和ptr了，偶尔看看mico
-
-
-
-
-
 
 
 -----
@@ -201,22 +124,13 @@
 ##### 12#       发表于 2020-2-19 09:49
 
 
-
-
 😭不要老是把公寓开除774系策划啦
-
-
-
-
-
 
 
 -----
 
 ####  colodes  
 ##### 13#       发表于 2020-2-19 09:55
-
-
 
 
 ANMR新人初配信时间(JST)及由管频道
@@ -230,17 +144,10 @@ ANMR新人初配信时间(JST)及由管频道
 [https://www.youtube.com/channel/UCW8WKciBixmaqaGqrlTITRQ](https://www.youtube.com/channel/UCW8WKciBixmaqaGqrlTITRQ)
 
 
-
-
-
-
-
 -----
 
 ####  Anital  
 ##### 14#       发表于 2020-2-25 09:03
-
-
 
 
 哇是我想看的ANHN楼<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">不如再加个vapart变774inc楼吧
@@ -249,25 +156,13 @@ ANMR新人初配信时间(JST)及由管频道
 anmr新人的鸡感觉很强，以后可能就是茶店歌姬担当+1了
 
 
-
-
-
-
-
 -----
 
 ####  烧饼的愤怒  
 ##### 15#       发表于 2020-2-25 11:01
 
 
-
-
 每次心情不好看看黄豆的直播听听她的笑声都能开朗不少
-
-
-
-
-
 
 
 -----
@@ -276,14 +171,7 @@ anmr新人的鸡感觉很强，以后可能就是茶店歌姬担当+1了
 ##### 16#       发表于 2020-2-25 13:42
 
 
-
-
 新人真的很不错啊。就是这皮有点太廉价了吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -294,13 +182,10 @@ anmr新人的鸡感觉很强，以后可能就是茶店歌姬担当+1了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Anital  
 ##### 18#       发表于 2020-2-26 22:11
-
-
 
 
 今晚的拉新人企划，新人自己的回答回合的时候感觉不错，但是团战时候犬神因幡的存在感真的太强了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
@@ -311,25 +196,13 @@ anmr新人的鸡感觉很强，以后可能就是茶店歌姬担当+1了
 还有柚原izumi的笑声穿透力是真的强，就算在一片混乱之中也能清楚听到...
 
 
-
-
-
-
-
 -----
 
 ####  zore  
 ##### 19#       发表于 2020-2-26 22:24
 
 
-
-
 不建楼就不会有人进来拉屎,为什么还不明白<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -338,16 +211,9 @@ anmr新人的鸡感觉很强，以后可能就是茶店歌姬担当+1了
 ##### 20#       发表于 2020-2-26 22:36
 
 
-
-
 拉屎也不影响人正常吃饭啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 我看这次kuku和izumi都挺强的，说不定就能救起anmr呢
-
-
-
-
-
 
 
 -----
@@ -356,14 +222,7 @@ anmr新人的鸡感觉很强，以后可能就是茶店歌姬担当+1了
 ##### 21#       发表于 2020-2-26 22:39
 
 
-
-
 指望anmr迎来第二春有反攻带路内味儿了，活着就不错了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -372,22 +231,13 @@ anmr新人的鸡感觉很强，以后可能就是茶店歌姬担当+1了
 ##### 22#       发表于 2020-2-27 21:56
 
 
-
-
 izumi今天又提早用完杂谈段子早退了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">加油啊至少已经比上次进步了十几分钟
-
-
-
-
-
 
 
 -----
 
 ####  Anital  
 ##### 23#       发表于 2020-3-4 10:50
-
-
 
 
 捞一捞
@@ -398,25 +248,13 @@ izumi今天又提早用完杂谈段子早退了<img src="https://static.saraba1s
 以及昨晚兰太郎拉kuku打splatoon抓到了播完后偷偷上线的izumi，结成了anmr斯普拉通部，新人好起来了
 
 
-
-
-
-
-
 -----
 
 ####  jijiuuo  
 ##### 24#       发表于 2020-3-4 20:37
 
 
-
-
 玛丽姐也开始玩undertale了
-
-
-
-
-
 
 
 -----
@@ -425,14 +263,7 @@ izumi今天又提早用完杂谈段子早退了<img src="https://static.saraba1s
 ##### 25#       发表于 2020-3-22 20:56
 
 
-
-
 774inc开新团了楼主还是没有回来…
-
-
-
-
-
 
 
 -----
@@ -441,16 +272,10 @@ izumi今天又提早用完杂谈段子早退了<img src="https://static.saraba1s
 ##### 26#         楼主| 发表于 2020-3-25 19:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46837007&amp;ptid=1914563" target="_blank">Anital 发表于 2020-3-22 20:56</a>
 
 774inc开新团了楼主还是没有回来…</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">最近心情差到裂开……也有些忙，所以还没更
-
-
-
-
-
 
 
 -----
@@ -459,14 +284,7 @@ izumi今天又提早用完杂谈段子早退了<img src="https://static.saraba1s
 ##### 27#       发表于 2020-3-28 12:55
 
 
-
-
 今晚新团首播
-
-
-
-
-
 
 
 -----
@@ -475,16 +293,9 @@ izumi今天又提早用完杂谈段子早退了<img src="https://static.saraba1s
 ##### 28#       发表于 2020-4-13 12:01
 
 
-
-
 hnst妹分3人后anmr又加4个新人  白宮みみ还是移籍进来的
 
 这意思是要改大方向，不是上少数精锐而是向774inc大箱发展了吗<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -493,14 +304,7 @@ hnst妹分3人后anmr又加4个新人  白宮みみ还是移籍进来的
 ##### 29#       发表于 2020-4-13 22:04
 
 
-
-
 anmr一下加了四个 推测夜店也要加人<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -509,14 +313,7 @@ anmr一下加了四个 推测夜店也要加人<img src="https://static.saraba1s
 ##### 30#       发表于 2020-4-13 22:31
 
 
-
-
 【熟肉】anmr增加新人是好是坏？https://b23.tv/BV1Bg4y187zc
-
-
-
-
-
 
 
 -----
@@ -525,14 +322,7 @@ anmr一下加了四个 推测夜店也要加人<img src="https://static.saraba1s
 ##### 31#       发表于 2020-4-16 17:02
 
 
-
-
 加点人挺好的 不过为什么是现在疯狂加人
-
-
-
-
-
 
 
 -----
@@ -541,15 +331,9 @@ anmr一下加了四个 推测夜店也要加人<img src="https://static.saraba1s
 ##### 32#       发表于 2020-4-16 18:04
 
 
-
 新箱sugarlyric太惨了，明明新人实力可以和kuku、izumi一比，还有hnst各位前辈疯狂联动，人气却如此惨淡，这就是箱力的差距么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 nanashi继续往anmr加新人也是看到了anmr箱力比较强这一点吧，就是白宫mimi不去vapart而是加入anmr让我感觉有点迷<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -558,14 +342,7 @@ nanashi继续往anmr加新人也是看到了anmr箱力比较强这一点吧，�
 ##### 33#       发表于 2020-4-16 18:08
 
 
-
-
 anmr現在箱力真的有比hnst強嗎...
-
-
-
-
-
 
 
 -----
@@ -574,15 +351,9 @@ anmr現在箱力真的有比hnst強嗎...
 ##### 34#       发表于 2020-4-16 22:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">在你谭人气也是真的低，太惨了
 
 anmr这一系也就ptr搞出头了
-
-
-
-
-
 
 
 -----
@@ -591,13 +362,7 @@ anmr这一系也就ptr搞出头了
 ##### 35#         楼主| 发表于 2020-4-21 15:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">好久没看，ANMR都十个人了……
-
-
-
-
-
 
 
 -----
@@ -606,22 +371,13 @@ anmr这一系也就ptr搞出头了
 ##### 36#       发表于 2020-4-23 18:22
 
 
-
-
 桃乃ゆらり 夭折！
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 37#       发表于 2020-6-8 16:30
-
-
 
 
 捞一下 今晚因幡组长频道23:30（日本时间）animare二周年倒计时暨二周年感谢祭企划发表
@@ -631,14 +387,8 @@ anmr这一系也就ptr搞出头了
 除了休止的那位全员都会参与，可惜受疫情影响这次没办法线下举办了。不过在家举办也好，至少不会出某些篓子...
 
 
-
-
-
-
 EZ-KZF3VcAIrTg4.jpeg
 (75.16 KB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -647,24 +397,7 @@ EZ-KZF3VcAIrTg4.jpeg
 2020-6-8 16:29 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202006/08/162915r0hz2aci9ua0b99z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -673,13 +406,7 @@ EZ-KZF3VcAIrTg4.jpeg
 ##### 38#       发表于 2020-6-8 16:34
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">两周年了，时间过得真快
-
-
-
-
-
 
 
 -----
@@ -688,21 +415,13 @@ EZ-KZF3VcAIrTg4.jpeg
 ##### 39#       发表于 2020-6-8 16:59
 
 
-
-
 774inc只有这俩组有国人看吗
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 40#       发表于 2020-6-8 17:38
-
 
 
 <blockquote>深渊萃取 发表于 2020-6-8 16:59
@@ -712,16 +431,10 @@ EZ-KZF3VcAIrTg4.jpeg
 现在只有因幡组长的组还坚持每天转消息了，新人的组也没有人建
 
 
-
-
-
-
-
 -----
 
 ####  深渊萃取  
 ##### 41#       发表于 2020-6-8 17:52
-
 
 
 <blockquote>huanshen 发表于 2020-6-8 17:38
@@ -731,17 +444,10 @@ EZ-KZF3VcAIrTg4.jpeg
 没官方入驻的慢性死亡
 
 
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 42#       发表于 2020-6-9 00:40
-
-
 
 
 animare终于也走过了两周年，不容易啊这次感谢祭在家举办，邀请来了不少animare的好朋友，果然最感动的还是有这么多人能够来和animare一起庆祝，比起一周年全靠四人在upd8的3D摄影棚內撑过24小时好多了<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
@@ -756,23 +462,10 @@ animare终于也走过了两周年，不容易啊这次感谢祭在家举办，�
 2020-6-9 00:37 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 43#       发表于 2020-6-15 11:42
-
-
 
 
 animare感谢祭看了一部分，整体而言观感比去年好很多。看了同接数据，没有3D最低同接确实比去年低一大截，但今年有来宾一起庆祝，最高同接还是比去年高了的。尤其白宫与羽柴，本来没有对她们的神秘企划抱有希望，结果掏出漫才加去年24小时名场景串烧，虽然在整个感谢祭中不是最出色的节目，但也看出十分用心了。
@@ -790,39 +483,19 @@ animare感谢祭看了一部分，整体而言观感比去年好很多。看了�
 2020-6-15 11:41 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  hjcxiaowo  
 ##### 44#       发表于 2020-6-15 13:17
 
 
-
-
 万一刚加上去 又跑了几个岂不是很尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 45#       发表于 2020-6-17 19:15
-
 
 
  本帖最后由 huanshen 于 2020-6-17 19:21 编辑 
@@ -834,18 +507,10 @@ kuku视角:[https://youtu.be/56MjNPLliD](https://youtu.be/56MjNPLliD)Y
 u1s1，trpg里面谋杀之谜可能是最适合进行直播的了，而且还能开多视角。评论艺也很容易玩起来，观众不容易无聊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 46#       发表于 2020-6-25 20:46
-
-
 
 
 夏露诞生日3D直播
@@ -855,17 +520,10 @@ u1s1，trpg里面谋杀之谜可能是最适合进行直播的了，而且还能
 774inc的3D活动也重开了，hnst那边二周年铁定是3D了，就是还不知道会以什么形式办
 
 
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 47#       发表于 2020-6-25 21:37
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202006/25/213235j1t12bx2j2mm2bsm.jpg" referrerpolicy="no-referrer">
@@ -878,24 +536,13 @@ u1s1，trpg里面谋杀之谜可能是最适合进行直播的了，而且还能
 2020-6-25 21:32 上传
 
 
-
-
-
-
 夏露诞生日限定谷子，受注生产，7/6截止。774inc也开始有学有样卖抹布了，看来抹布是真的赚<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 48#       发表于 2020-6-27 19:17
-
-
 
 
 花奏かのん新3D发表
@@ -905,16 +552,10 @@ u1s1，trpg里面谋杀之谜可能是最适合进行直播的了，而且还能
 vap收编来的也有新3D，好起来了
 
 
-
-
-
-
-
 -----
 
 ####  Anital  
 ##### 49#       发表于 2020-7-5 21:18
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">MMD模型发布了
@@ -922,17 +563,10 @@ vap收编来的也有新3D，好起来了
 感觉再过几天一般摆pose玩法玩厌了之后就会有生草名场景的MMD动画还原来了
 
 
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 50#       发表于 2020-7-5 23:02
-
-
 
 
 anmr最近真刚，holo3D披露都敢箱内联动撞上去
@@ -949,10 +583,6 @@ anmr最近真刚，holo3D披露都敢箱内联动撞上去
 2020-7-5 22:40 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202007/05/224023g3zc43n8ocjy4uyq.jpg" referrerpolicy="no-referrer">
 
 
@@ -961,10 +591,6 @@ anmr最近真刚，holo3D披露都敢箱内联动撞上去
 下载附件
 
 2020-7-5 22:40 上传
-
-
-
-
 
 
 7月5日ppt
@@ -979,10 +605,6 @@ anmr最近真刚，holo3D披露都敢箱内联动撞上去
 2020-7-5 22:40 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202007/05/224024vb6zluml7ma56jzd.jpg" referrerpolicy="no-referrer">
 
 
@@ -993,25 +615,13 @@ anmr最近真刚，holo3D披露都敢箱内联动撞上去
 2020-7-5 22:40 上传
 
 
-
-
-
-
-
 不管几个人联动同接都在2000附近，变化不大。不过规格外的因幡组长没出战，还是看不到anmr箱内联动总战力如何，反正肯定比这高就是了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 51#       发表于 2020-7-6 19:08
-
-
 
 
 anmr元老三人live2d 2.0公布，将于近日各自频道发表。这个应该和彩虹社的2.0一样吧，大幅增加可动域，同时对一些小问题进行修改
@@ -1027,22 +637,10 @@ anmr元老三人live2d 2.0公布，将于近日各自频道发表。这个应该
 2020-7-6 19:03 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 52#       发表于 2020-7-6 19:31
-
 
 
  本帖最后由 huanshen 于 2020-7-6 19:33 编辑 
@@ -1059,21 +657,10 @@ anmr元老三人live2d 2.0公布，将于近日各自频道发表。这个应该
 2020-7-6 19:29 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 53#       发表于 2020-7-7 11:30
-
 
 
  本帖最后由 huanshen 于 2020-7-7 11:32 编辑 
@@ -1094,23 +681,9 @@ patra频道:[https://youtu.be/vWkVSjPZuIU](https://youtu.be/vWkVSjPZuIU)
 2020-7-7 11:20 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -1120,12 +693,7 @@ patra频道:[https://youtu.be/vWkVSjPZuIU](https://youtu.be/vWkVSjPZuIU)
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -1134,23 +702,15 @@ patra频道:[https://youtu.be/vWkVSjPZuIU](https://youtu.be/vWkVSjPZuIU)
 ##### 54#       发表于 2020-7-7 20:01
 
 
-
  本帖最后由 huanshen 于 2020-7-7 20:05 编辑 
 
 图片未上传编辑
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 55#       发表于 2020-7-7 20:04
-
-
 
 
 hnst二周年纪念企划之一，7/7-7/13以下直播中会公布关键词，收集所有关键词，发推有机会抽取hnst纪念周边，14号灰猫会公布具体规则
@@ -1165,10 +725,6 @@ hnst二周年纪念企划之一，7/7-7/13以下直播中会公布关键词，�
 2020-7-7 20:01 上传
 
 
-
-
-
-
 7/14 21:00（日本时间）将举行hnst二周年正式纪念直播
 
 <img src="https://img.saraba1st.com/forum/202007/07/200126ppikgbpnvccuiscf.jpg" referrerpolicy="no-referrer">
@@ -1181,22 +737,10 @@ hnst二周年纪念企划之一，7/7-7/13以下直播中会公布关键词，�
 2020-7-7 20:01 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 56#       发表于 2020-7-9 15:45
-
-
 
 
 今晚22:00(日本时间)绿熊live2d 2.0发布，没想到绿熊是第一棒<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
@@ -1215,26 +759,16 @@ hnst二周年纪念企划之一，7/7-7/13以下直播中会公布关键词，�
 2020-7-9 15:39 上传
 
 
-
-
-
-
 syl 今晚白宫和羽柴两位新人24:00(日本时间)联动逃离生天，就是那个双人合作逃狱游戏，这游戏没有日文，看她们对剧情反应如何了，我估计还是要观众提醒
 
 
 mimi频道:[https://youtu.be/GAsjLlWEQhA](https://youtu.be/GAsjLlWEQhA)
 
 
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 57#       发表于 2020-7-9 17:47
-
 
 
 <blockquote>huanshen 发表于 2020-7-9 15:45
@@ -1247,17 +781,10 @@ mimi频道:[https://youtu.be/GAsjLlWEQhA](https://youtu.be/GAsjLlWEQhA)
 https://youtu.be/Kz_plXn_IZQ
 
 
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 58#       发表于 2020-7-17 23:44
-
-
 
 
 s1闭坛几天发不了贴好难受啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -1294,10 +821,6 @@ hnst二周年发表内容
 2020-7-17 23:38 上传
 
 
-
-
-
-
 ②hnst2.0模型＆新衣装（暂时不知道是新衣装直接2.0还是第一套的2.0）
 
 <img src="https://img.saraba1st.com/forum/202007/17/233814d01uuxqlxuqf0kz1.png" referrerpolicy="no-referrer">
@@ -1308,10 +831,6 @@ hnst二周年发表内容
 下载附件
 
 2020-7-17 23:38 上传
-
-
-
-
 
 
 ③ptr首张专辑「あいあむなんばーわん！」8/1日发售
@@ -1330,10 +849,6 @@ hnst二周年发表内容
 2020-7-17 23:38 上传
 
 
-
-
-
-
 ⑥由A-1Pictures的川上哲也制作的插画作品，发售时间未定
 
 <img src="https://img.saraba1st.com/forum/202007/17/233815b21n83l1fls1llr6.png" referrerpolicy="no-referrer">
@@ -1346,23 +861,10 @@ hnst二周年发表内容
 2020-7-17 23:38 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 59#       发表于 2020-7-18 19:20
-
-
 
 
 今晚24时(日本时间)白宫mimi节奏天国30000订阅耐久
@@ -1384,21 +886,10 @@ mimi来anmr成长真是快，从刚宣布加入anmr时的8000出头，到现在2
 2020-7-18 19:12 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 60#       发表于 2020-7-19 00:06
-
 
 
 <blockquote>huanshen 发表于 2020-7-18 19:20
@@ -1410,17 +901,10 @@ mimi来anmr成长真是快，从刚宣布加入anmr时的8000出头，到现在2
 53分钟达到了，本来打算耐久但考虑到观众还是下播了
 
 
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 61#       发表于 2020-7-19 19:30
-
-
 
 
 20时(日本时间)羽柴和白宫逃离生天联动续篇
@@ -1430,16 +914,10 @@ mimi来anmr成长真是快，从刚宣布加入anmr时的8000出头，到现在2
 有事发晚了，这次在羽柴这边
 
 
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 62#       发表于 2020-7-19 19:47
-
 
 
 <blockquote>huanshen 发表于 2020-7-17 23:44
@@ -1453,13 +931,9 @@ hnst二周年纪念3D全篇熟肉已出
 https://b23.tv/qLBRRR
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -1469,20 +943,13 @@ https://b23.tv/qLBRRR
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 63#       发表于 2020-7-21 13:32
-
-
 
 
 vapart 季咲あんこ3D披露决定 7/26 21时(日本时间)
@@ -1501,18 +968,9 @@ kuku和izumi果然还是按时间排在anko后面啊<img src="https://static.sar
 2020-7-21 13:32 上传
 
 
-
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -1522,19 +980,13 @@ kuku和izumi果然还是按时间排在anko后面啊<img src="https://static.sar
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 64#       发表于 2020-7-21 15:23
-
 
 
  本帖最后由 huanshen 于 2020-7-22 23:08 编辑 
@@ -1554,18 +1006,9 @@ kuku和izumi果然还是按时间排在anko后面啊<img src="https://static.sar
 待机间:[https://youtu.be/sWiZFer6HR0](https://youtu.be/sWiZFer6HR0)
 
 
-
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -1575,19 +1018,13 @@ kuku和izumi果然还是按时间排在anko后面啊<img src="https://static.sar
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 65#       发表于 2020-7-23 21:20
-
 
 
 <blockquote>huanshen 发表于 2020-7-21 15:23
@@ -1599,16 +1036,10 @@ kuku和izumi果然还是按时间排在anko后面啊<img src="https://static.sar
 ptr开始了，捞一下
 
 
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 66#       发表于 2020-7-23 22:50
-
 
 
  本帖最后由 huanshen 于 2020-7-24 13:55 编辑 
@@ -1627,19 +1058,10 @@ mary变成第三棒，7/24 21时（日本时间）
 待机间:[https://youtu.be/5USQFO3C_5Q](https://youtu.be/5USQFO3C_5Q)
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 67#       发表于 2020-7-25 13:43
-
 
 
  本帖最后由 huanshen 于 2020-7-25 13:46 编辑 
@@ -1655,9 +1077,6 @@ mary变成第三棒，7/24 21时（日本时间）
 2020-7-25 13:38 上传
 
 
-
-
-
 [https://youtu.be/cw9CoXG-HC8](https://youtu.be/cw9CoXG-HC8)
 
 推一下白柴，「チューリングラブ」也是非常适合双人翻唱的歌曲了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
@@ -1669,18 +1088,10 @@ mary变成第三棒，7/24 21时（日本时间）
 今天sglr、hnst和蓝狗也有歌曲首播，有兴趣的可以自己去关注一下<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 68#       发表于 2020-7-25 15:13
-
 
 
 <blockquote>huanshen 发表于 2020-7-21 13:32
@@ -1696,17 +1107,10 @@ https://twitter.com/Vtuber_ApArt/status/1286917827480363008
 anko 7/21开始推就没动过，最协的练习赛也没参加，有点担心啊
 
 
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 69#       发表于 2020-7-25 15:45
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202007/25/154141affnmemntrqyoumz.jpg" referrerpolicy="no-referrer">
@@ -1719,18 +1123,10 @@ anko 7/21开始推就没动过，最协的练习赛也没参加，有点担心�
 2020-7-25 15:41 上传
 
 
-
-
-
 [https://mobile.twitter.com/Anko_Kisaki/status/1286925993421107200](https://mobile.twitter.com/Anko_Kisaki/status/1286925993421107200)
 [https://mobile.twitter.com/Anko_Kisaki/status/1286927119994347521](https://mobile.twitter.com/Anko_Kisaki/status/1286927119994347521)
 
 动了，不是传染病。今晚19时（日本时间）杂谈
-
-
-
-
-
 
 
 -----
@@ -1739,21 +1135,13 @@ anko 7/21开始推就没动过，最协的练习赛也没参加，有点担心�
 ##### 70#       发表于 2020-7-25 22:10
 
 
-
-
 anko的杂谈加上前面的待机几分钟一共20分钟出头…听起来也是有点慢吞吞的，印象中之前也有过一次差不多的情况
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 71#       发表于 2020-7-26 15:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48211570&amp;ptid=1914563" target="_blank">huanshen 发表于 2020-7-25 13:43</a>
@@ -1774,25 +1162,15 @@ https://youtu.be/cw9CoXG-HC8
 2020-7-26 15:08 上传
 
 
-
-
-
-
 破1w了，好快<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
 昨天774inc上传的歌曲里只输给了ptr的「ぶいちゅっばの歌」的3D MV版
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 72#       发表于 2020-8-1 19:44
-
 
 
  本帖最后由 huanshen 于 2020-8-1 19:52 编辑 
@@ -1806,10 +1184,6 @@ https://youtu.be/cw9CoXG-HC8
 下载附件
 
 2020-8-1 19:41 上传
-
-
-
-
 
 
 ptr第一张专辑「あいあむなんばーわん！」发售!!!
@@ -1849,19 +1223,10 @@ syl，ptrlive2 线上event现在已经开始预售了
 （5500日元）两档，后面应该还有patlive2纪念谷子
 
 
-
-
-
-
-
-
-
 -----
 
 ####  Anital  
 ##### 73#       发表于 2020-8-1 23:09
-
-
 
 
 鸭见老师明天开始新3d制作rta
@@ -1869,17 +1234,10 @@ syl，ptrlive2 线上event现在已经开始预售了
 看得人傻了怎么这也能rta的<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 74#       发表于 2020-8-2 20:56
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202008/02/204152sgbhii8jqkiflkgk.jpg" referrerpolicy="no-referrer">
@@ -1892,10 +1250,6 @@ syl，ptrlive2 线上event现在已经开始预售了
 2020-8-2 20:41 上传
 
 
-
-
-
-
 季咲あんこ3D披露再次定下来了，8/9 20时（日本时间）
 
 这次v最协UWAs运气真的很差，每次都开头遇到强队火拼，第4局逃跑的时候还被森熊雪队抓住了，本来还蛮有机会冲击前位的。希望anko3D能让她好好平静一下心情吧
@@ -1904,13 +1258,9 @@ syl，ptrlive2 线上event现在已经开始预售了
 syl，这次森熊雪队依靠大腿白雪reid以及高超的苟命技巧，取得了6位的成绩，也恭喜她们了。前5每支战队都很强，能取得这样的成绩也算不错了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -1920,12 +1270,7 @@ syl，这次森熊雪队依靠大腿白雪reid以及高超的苟命技巧，取�
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -1934,21 +1279,13 @@ syl，这次森熊雪队依靠大腿白雪reid以及高超的苟命技巧，取�
 ##### 75#       发表于 2020-8-2 21:32
 
 
-
-
 什么时候兰太郎能再和阿咩联动啊，好急
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 76#       发表于 2020-8-5 19:03
-
 
 
  本帖最后由 huanshen 于 2020-8-5 19:05 编辑 
@@ -1964,18 +1301,9 @@ syl，这次森熊雪队依靠大腿白雪reid以及高超的苟命技巧，取�
 2020-8-5 19:01 上传
 
 
-
-
-
 https://twitter.com/HNST_official/status/1290950980763172864
 
 hnst白制服（第四套）新视觉图，新衣装也快了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
@@ -1984,25 +1312,16 @@ hnst白制服（第四套）新视觉图，新衣装也快了<img src="https://s
 ##### 77#       发表于 2020-8-9 18:16
 
 
-
-
 ptr第一张专辑「あいあむなんばーわん！」MV试听
 [https://youtu.be/vCMwPPPbN5I](https://youtu.be/vCMwPPPbN5I)
 
 制作的MV还挺精良的，欲购从速<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 78#       发表于 2020-8-9 18:32
-
 
 
 <blockquote>huanshen 发表于 2020-8-2 20:56
@@ -2014,33 +1333,19 @@ ptr第一张专辑「あいあむなんばーわん！」MV试听
 https://youtu.be/rIXoiw-cCkc
 
 
-
-
-
-
-
 -----
 
 ####  zore  
 ##### 79#       发表于 2020-8-9 19:26
 
 
-
-
 这3d有2d那股憨憨的味了
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 80#       发表于 2020-8-9 23:14
-
-
 
 
 ptr诞生祭 8/10 20时（日本时间）开始
@@ -2059,29 +1364,10 @@ ptr诞生祭 8/10 20时（日本时间）开始
 2020-8-9 23:10 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 81#       发表于 2020-8-10 21:21
-
-
 
 
 在外面有事，发晚了请见谅<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
@@ -2101,27 +1387,15 @@ ptr诞生日纪念谷子 受注生产 8/23日截止
 2020-8-10 21:14 上传
 
 
-
-
-
-
-
 ptr第一张专辑「あいあむなんばーわん！」的电子版也发售了，电子版没有3D MV，有几首之前已经贩售过，能买首发实体纪念版还是建议买实体版
 
 地址:[https://linkco.re/4mDsDgq1](https://linkco.re/4mDsDgq1)
-
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 82#       发表于 2020-8-14 09:32
-
 
 
  本帖最后由 huanshen 于 2020-8-14 09:53 编辑 
@@ -2144,18 +1418,10 @@ hnst新衣装待机时间出来了
 syl，白宫羽柴会员开放时间还没定，vap和sglr都开放完了，不会真的要等到灰原回归吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 83#       发表于 2020-8-15 14:33
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202008/15/142354fszs1hdc56l2fsg8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
@@ -2168,25 +1434,15 @@ syl，白宫羽柴会员开放时间还没定，vap和sglr都开放完了，不�
 2020-8-15 14:23 上传
 
 
-
-
-
 [https://twitter.com/HNST_official/status/1294516386903937024](https://twitter.com/HNST_official/status/1294516386903937024)
 
 hnst第五套服装公式图，主题是夏季私服。mary一袭长裙虽然和其他人短裙不是同一风格，不过也挺搭的。ptr的新衣装是时雨妈监修的，一股bba感，真的太适合ptr了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 84#       发表于 2020-8-22 21:27
-
-
 
 
 有閑喫茶 風見くく和柚原いづみ 3D披露目决定 9/12
@@ -2203,22 +1459,10 @@ hnst第五套服装公式图，主题是夏季私服。mary一袭长裙虽然和
 2020-8-22 21:23 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 85#       发表于 2020-8-26 15:01
-
-
 
 
 鴨見カモミ从ブイアパ脱退，今晚19时（日本时间）将会有直播讲明原因及后续道路
@@ -2233,10 +1477,6 @@ hnst第五套服装公式图，主题是夏季私服。mary一袭长裙虽然和
 2020-8-26 14:50 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202008/26/145016plxns0lnpxrnoos4.jpg" referrerpolicy="no-referrer">
 
 
@@ -2245,9 +1485,6 @@ hnst第五套服装公式图，主题是夏季私服。mary一袭长裙虽然和
 下载附件
 
 2020-8-26 14:50 上传
-
-
-
 
 
 [https://twitter.com/camomi_camomi/status/1298499000648101888](https://twitter.com/camomi_camomi/status/1298499000648101888)
@@ -2259,17 +1496,10 @@ hnst第五套服装公式图，主题是夏季私服。mary一袭长裙虽然和
 希望鸭见老师还是不要那么自闭，认认真真地去把自己的事情做好。以后虽然不在ブイアパ，但是774inc里想和鸭见老师玩的人有许多，以后随时想回来或者想联动都欢迎的
 
 
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 86#       发表于 2020-8-26 17:58
-
 
 
 <blockquote>huanshen 发表于 2020-8-26 15:01
@@ -2282,16 +1512,10 @@ hnst第五套服装公式图，主题是夏季私服。mary一袭长裙虽然和
 https://youtu.be/2BM8_SxK6KU
 
 
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 87#       发表于 2020-8-29 20:30
-
 
 
  本帖最后由 huanshen 于 2020-8-29 20:31 编辑 
@@ -2311,27 +1535,15 @@ patlive2 限定谷子 受注生产 9/14日截止
 2020-8-29 20:25 上传
 
 
-
-
-
-
-
 syl，9/13日前购买ptr专辑特别实体碟的可以联系spwn参加10/11日特别举办的ptr mini live，想参与的得抓紧时间了<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
 
 联系地址:[https://spwn.jp/_events/201011-patraminilive](https://spwn.jp/_events/201011-patraminilive)
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 88#       发表于 2020-9-3 18:24
-
-
 
 
 uge诞生日纪念暨70000人纪念中发表 9/13日公布新衣装直播档:[https://youtu.be/tJ0A0adPdp8](https://youtu.be/tJ0A0adPdp8)
@@ -2348,21 +1560,10 @@ uge诞生日没搞3D一时忘了，后面看到消息才记起来，vap的待遇
 2020-9-3 18:23 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 89#       发表于 2020-9-3 18:38
-
 
 
  本帖最后由 huanshen 于 2020-9-3 18:47 编辑 
@@ -2382,24 +1583,10 @@ uge诞生日纪念谷子 受注生产 9/14日截止
 2020-9-3 18:33 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 90#       发表于 2020-9-7 17:57
-
-
 
 
 虎城アンナ将暂停活动
@@ -2420,17 +1607,8 @@ uge诞生日纪念谷子 受注生产 9/14日截止
 2020-9-7 17:54 上传
 
 
-
-
-
 [https://twitter.com/Anna_Kojo/status/1302895387389431808](https://twitter.com/Anna_Kojo/status/1302895387389431808)
 [https://twitter.com/Anna_Kojo/status/1302897631127941122](https://twitter.com/Anna_Kojo/status/1302897631127941122)
-
-
-
-
-
-
 
 
 -----
@@ -2439,14 +1617,7 @@ uge诞生日纪念谷子 受注生产 9/14日截止
 ##### 91#       发表于 2020-9-7 19:03
 
 
-
-
 虎城看得人真少 其实她直播蛮有意思 做高数和雕金算是v里面兴趣很冷门的 声线甜美柔和 后台当BGM都是很棒的 希望早点康复
-
-
-
-
-
 
 
 -----
@@ -2455,16 +1626,10 @@ uge诞生日纪念谷子 受注生产 9/14日截止
 ##### 92#       发表于 2020-9-7 22:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48667819&amp;ptid=1914563" target="_blank">jijiuuo 发表于 2020-9-7 19:03</a>
 
 虎城看得人真少 其实她直播蛮有意思 做高数和雕金算是v里面兴趣很冷门的 声线甜美柔和 后台当BGM都是很棒的 ...</blockquote>
 高数我知道，雕金是什么？
-
-
-
-
-
 
 
 -----
@@ -2473,24 +1638,16 @@ uge诞生日纪念谷子 受注生产 9/14日截止
 ##### 93#       发表于 2020-9-8 00:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48669583&amp;ptid=1914563" target="_blank">Cortana 发表于 2020-9-7 22:29</a>
 
 高数我知道，雕金是什么？</blockquote>
 就是搓铁 磨一些戒指手镯之类的 好像有些日本女性很喜欢
 
 
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 94#       发表于 2020-9-8 23:20
-
-
 
 
 kuku诞生日纪念谷子 受注生产 9/21日截止刚刚的诞生日倒计时直播发表了
@@ -2509,23 +1666,14 @@ kuku诞生日纪念谷子 受注生产 9/21日截止刚刚的诞生日倒计时�
 2020-9-8 23:13 上传
 
 
-
-
-
-
-
 kuku明天20时（日本时间）将会进行诞生日&amp;4万人纪念 40首耐久歌回。kuku平时唱歌也很喜欢秀技，40首对她来说应该是小case<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 待机间:[https://youtu.be/sepoU3DXtFw](https://youtu.be/sepoU3DXtFw)
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -2535,20 +1683,13 @@ kuku明天20时（日本时间）将会进行诞生日&amp;4万人纪念 40首�
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 95#       发表于 2020-9-12 13:54
-
-
 
 
 今晚柚原いづみ和風見くく3D发表接力
@@ -2567,14 +1708,9 @@ kuku明天20时（日本时间）将会进行诞生日&amp;4万人纪念 40首�
 syl，根据昨天羽柴的消息，白宮羽柴这个月将会开放会员，后面的vap新人都开放完了，看来灰原的影响还是有点大啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -2584,19 +1720,13 @@ syl，根据昨天羽柴的消息，白宮羽柴这个月将会开放会员，�
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 96#       发表于 2020-9-12 18:52
-
 
 
 <blockquote>huanshen 发表于 2020-9-12 13:54
@@ -2611,17 +1741,10 @@ syl，根据昨天羽柴的消息，白宮羽柴这个月将会开放会员，�
 柚原いづみ新待机间:https://youtu.be/8dp8Q0Dcv7o
 
 
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 97#       发表于 2020-9-13 11:13
-
-
 
 
 uge今晚21时（日本时间）新衣装披露
@@ -2634,13 +1757,9 @@ syl,昨天3Danmr全员都在，后面kuku,izumi,绿熊和羽柴去了组长家�
 直播地址:https://youtu.be/5OWoqR5Ez7Q
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -2650,20 +1769,13 @@ syl,昨天3Danmr全员都在，后面kuku,izumi,绿熊和羽柴去了组长家�
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 98#       发表于 2020-9-13 14:43
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202009/13/143926bb3j3cbbxvioo98x.jpg" referrerpolicy="no-referrer">
@@ -2676,27 +1788,15 @@ syl,昨天3Danmr全员都在，后面kuku,izumi,绿熊和羽柴去了组长家�
 2020-9-13 14:39 上传
 
 
-
-
-
 [https://twitter.com/Mico_HNST/status/1304999830998061056](https://twitter.com/Mico_HNST/status/1304999830998061056)
 
 9/16日20时（日本时间） hnst全员3D直播待机间:[https://youtu.be/IujQC4xNl2M](https://youtu.be/IujQC4xNl2M)
 这是全面放开3D了？看来hnst还是资源占大头的<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -2706,12 +1806,7 @@ syl,昨天3Danmr全员都在，后面kuku,izumi,绿熊和羽柴去了组长家�
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -2720,9 +1815,7 @@ syl,昨天3Danmr全员都在，后面kuku,izumi,绿熊和羽柴去了组长家�
 ##### 99#       发表于 2020-9-13 20:00
 
 
-
  本帖最后由 huanshen 于 2020-9-14 12:53 编辑 
-
 
 
 <img src="https://img.saraba1st.com/forum/202009/13/195309viqwqipwwyicwswq.jpg" referrerpolicy="no-referrer">
@@ -2735,9 +1828,6 @@ syl,昨天3Danmr全员都在，后面kuku,izumi,绿熊和羽柴去了组长家�
 2020-9-13 19:53 上传
 
 
-
-
-
 [https://twitter.com/Natsumi_Hashiba/status/1305100891704311808](https://twitter.com/Natsumi_Hashiba/status/1305100891704311808)
 
 <img src="https://img.saraba1st.com/forum/202009/13/195310hon4r1dfhogzo4zz.jpg" referrerpolicy="no-referrer">
@@ -2748,9 +1838,6 @@ syl,昨天3Danmr全员都在，后面kuku,izumi,绿熊和羽柴去了组长家�
 下载附件
 
 2020-9-13 19:53 上传
-
-
-
 
 
 [https://twitter.com/shiromiya_mimi/status/1305106949780905984](https://twitter.com/shiromiya_mimi/status/1305106949780905984)
@@ -2768,20 +1855,9 @@ syl,昨天3Danmr全员都在，后面kuku,izumi,绿熊和羽柴去了组长家�
 待机间:[https://youtu.be/JqX2KD1zkwU](https://youtu.be/JqX2KD1zkwU)
 
 
-
-
-
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -2791,19 +1867,13 @@ syl,昨天3Danmr全员都在，后面kuku,izumi,绿熊和羽柴去了组长家�
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 100#       发表于 2020-9-16 20:23
-
 
 
  本帖最后由 huanshen 于 2020-9-16 20:25 编辑 
@@ -2814,13 +1884,9 @@ syl,昨天3Danmr全员都在，后面kuku,izumi,绿熊和羽柴去了组长家�
 正式宣布了，此次hnst被nanashi叫来的理由就是以后3D直播频率会上升，不限定于特殊的纪念日和事件了，3D直播将会常态化了<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -2830,12 +1896,7 @@ syl,昨天3Danmr全员都在，后面kuku,izumi,绿熊和羽柴去了组长家�
 | 深渊萃取| + 1|好耶|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -2844,22 +1905,13 @@ syl,昨天3Danmr全员都在，后面kuku,izumi,绿熊和羽柴去了组长家�
 ##### 101#       发表于 2020-9-17 12:18
 
 
-
-
 感觉774这是要好起来了？
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 102#       发表于 2020-9-18 12:59
-
-
 
 
 ptr第一张专辑「あいあむなんばーわん！」的实体普通版已经在spwn上架了，10/14日后可购买。赠送「あいあむなんばーわんパトラちゃん様」的封面特典，没比电子版贵多少，买张来收藏也可以<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
@@ -2877,20 +1929,9 @@ ptr第一张专辑「あいあむなんばーわん！」的实体普通版已�
 2020-9-18 12:54 上传
 
 
-
-
-
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -2900,20 +1941,13 @@ ptr第一张专辑「あいあむなんばーわん！」的实体普通版已�
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 103#       发表于 2020-9-19 17:23
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202009/19/171857vru99gt9t5xdgmgb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
@@ -2926,17 +1960,9 @@ ptr第一张专辑「あいあむなんばーわん！」的实体普通版已�
 2020-9-19 17:18 上传
 
 
-
-
-
 [https://twitter.com/SugarLyric_PI/status/1307228627310764032](https://twitter.com/SugarLyric_PI/status/1307228627310764032)
 
 魔侦组官方新视觉图。马上也要半年了，不知道半年纪念上会不会有重大消息公开，不过看anna情况应该后延了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2945,19 +1971,11 @@ ptr第一张专辑「あいあむなんばーわん！」的实体普通版已�
 ##### 104#       发表于 2020-9-25 01:35
 
 
-
-
 haneru的模型人气意外地低，甚至不如mary。这不河里啊
-
-
-
-
 
 
 屏幕截图 2020-09-25 012847.jpg
 (88.02 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -2966,32 +1984,13 @@ haneru的模型人气意外地低，甚至不如mary。这不河里啊
 2020-9-25 01:33 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202009/25/013327sz2vp1kk8s19h2v2.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 105#       发表于 2020-9-25 12:15
-
-
 
 
 白柴的新翻唱投稿，选曲真好啊
@@ -3001,16 +2000,10 @@ haneru的模型人气意外地低，甚至不如mary。这不河里啊
 https://youtu.be/Ayi-2pjOaOo
 
 
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 106#       发表于 2020-9-26 10:31
-
 
 
  本帖最后由 huanshen 于 2020-9-26 10:35 编辑 
@@ -3022,15 +2015,9 @@ https://youtu.be/Ayi-2pjOaOo
 待机间:[https://youtu.be/3bu-avL_5lE](https://youtu.be/3bu-avL_5lE)
 
 
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -3040,19 +2027,13 @@ https://youtu.be/Ayi-2pjOaOo
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 107#       发表于 2020-9-26 11:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48858562&amp;ptid=1914563" target="_blank">huanshen 发表于 2020-9-26 10:31</a>
@@ -3072,10 +2053,6 @@ https://youtu.be/Ayi-2pjOaOo
 2020-9-26 11:19 上传
 
 
-
-
-
-
 组长20万纪念谷子 受注生产 10/12日截止
 
 有几个是期间再贩
@@ -3083,16 +2060,10 @@ https://youtu.be/Ayi-2pjOaOo
 购买地址:[https://774inc.spwn.jp/events/AniMare/goods](https://774inc.spwn.jp/events/AniMare/goods)
 
 
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 108#       发表于 2020-9-26 17:20
-
 
 
 <blockquote>huanshen 发表于 2020-9-26 10:31
@@ -3103,33 +2074,19 @@ https://youtu.be/Ayi-2pjOaOo
 anmr将有新成员加入，具体消息后续发表
 
 
-
-
-
-
-
 -----
 
 ####  jijiuuo  
 ##### 109#       发表于 2020-9-26 17:30
 
 
-
-
 又来人么 是接替那个抽烟喝酒坏女人么
-
-
-
-
-
 
 
 -----
 
 ####  Anital  
 ##### 110#       发表于 2020-9-26 18:13
-
-
 
 
 新人
@@ -3141,32 +2098,19 @@ anmr将有新成员加入，具体消息后续发表
 然后不知道为啥Enako突然发了条推“anmr的新成员…难道是我吗”<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Homuxus  
 ##### 111#       发表于 2020-9-27 18:05
 
 
-
-
 组长好色，我日日夜夜想色组长
-
-
-
-
-
 
 
 -----
 
 ####  Cortana  
 ##### 112#       发表于 2020-9-27 20:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48875204&amp;ptid=1914563" target="_blank">Homuxus 发表于 2020-9-27 18:05</a>
@@ -3177,17 +2121,10 @@ anmr将有新成员加入，具体消息后续发表
 —— 来自 Xiaomi MIX 2, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 113#       发表于 2020-9-28 00:23
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202009/28/000745gq0im2twm6rnu20p.jpg" referrerpolicy="no-referrer">
@@ -3200,9 +2137,6 @@ anmr将有新成员加入，具体消息后续发表
 2020-9-28 00:07 上传
 
 
-
-
-
 https://twitter.com/Rene_Ryugasaki/status/1310245098274258944
 
 sglr半年纪念重大消息公布，3D发表决定。具体日程和anna的3D配信消息将于近日分开发表
@@ -3212,21 +2146,10 @@ sglr半年纪念直播:[https://youtu.be/o6pAWa1stFo](https://youtu.be/o6pAWa1st
 3D发表没有受到anna生病影响太好了，不过三人不能一起完成3D接力还是实属遗憾<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 114#       发表于 2020-10-1 17:29
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202010/01/172214e1j373ivi011e711.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
@@ -3239,9 +2162,6 @@ sglr半年纪念直播:[https://youtu.be/o6pAWa1stFo](https://youtu.be/o6pAWa1st
 2020-10-1 17:22 上传
 
 
-
-
-
 https://twitter.com/AniMare_cafe/status/1311592039088234496
 
 anmr新人形象公布，前面推特和名字的偷跑都是对的
@@ -3251,17 +2171,10 @@ anmr新人形象公布，前面推特和名字的偷跑都是对的
 rui的名牌写的是しせまる，和以往的传统不同，可能暗示着什么，与蓝狗有关？
 
 
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 115#       发表于 2020-10-1 18:38
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202010/01/183302dnliq3ln2ljol2lc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
@@ -3274,24 +2187,15 @@ rui的名牌写的是しせまる，和以往的传统不同，可能暗示着�
 2020-10-1 18:33 上传
 
 
-
-
-
 [https://twitter.com/Vtuber_ApArt/status/1311608600687640577](https://twitter.com/Vtuber_ApArt/status/1311608600687640577)
 
 Vapart的logo更新，没看出颜色的含义，不过比animare的logo直接用774inc的logo同样的颜色好多了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 116#       发表于 2020-10-2 15:56
-
 
 
  本帖最后由 huanshen 于 2020-10-6 14:48 编辑 
@@ -3323,17 +2227,10 @@ dlsite:[https://dlsite.com/home/announce/=/product_id/RJ299717.html](https://dls
 spwn:[https://774inc.spwn.jp/events/201005-patra30asmr](https://774inc.spwn.jp/events/201005-patra30asmr)
 
 
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 117#       发表于 2020-10-6 15:00
-
 
 
  本帖最后由 huanshen 于 2020-10-6 15:03 编辑 
@@ -3345,18 +2242,10 @@ soundcloud:[https://soundcloud.com/patrasuou](https://soundcloud.com/patrasuou)
 spwn:[https://774inc.spwn.jp/events/201005-patra-inst](https://774inc.spwn.jp/_events/201005-patra-inst)
 
 
-
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 118#       发表于 2020-10-11 17:56
-
 
 
  本帖最后由 huanshen 于 2020-10-11 18:11 编辑 
@@ -3375,21 +2264,10 @@ spwn:[https://774inc.spwn.jp/events/201005-patra-inst](https://774inc.spwn.jp/_e
 好像和anmr海外转播号（老anmr组）无关，不知道是哪两位大佬建的组，看上去像是其他搬运组人员转来建的组吧<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 119#       发表于 2020-10-15 23:02
-
-
 
 
 预告一下，17日因幡はねる和季咲あんこ新衣装发表，18日龍ヶ崎リン和獅子王クリス3D发表
@@ -3397,13 +2275,9 @@ spwn:[https://774inc.spwn.jp/events/201005-patra-inst](https://774inc.spwn.jp/_e
 anmr新衣装这次并没有一齐发表，不知道其他人的在做没有，错开其实也好吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -3413,20 +2287,13 @@ anmr新衣装这次并没有一齐发表，不知道其他人的在做没有，�
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 120#       发表于 2020-10-17 00:28
-
-
 
 
 今晚因幡はねる和季咲あんこ新衣装发表
@@ -3440,17 +2307,10 @@ anmr新衣装这次并没有一齐发表，不知道其他人的在做没有，�
 待机间:https://youtu.be/I-a0l74lzaA
 
 
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 121#       发表于 2020-10-18 00:19
-
-
 
 
 今晚sglr的龍ヶ崎リン和獅子王クリス3D发表
@@ -3464,13 +2324,9 @@ anmr新衣装这次并没有一齐发表，不知道其他人的在做没有，�
 待机间:https://youtu.be/iE6gWxocB2A
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -3480,12 +2336,7 @@ anmr新衣装这次并没有一齐发表，不知道其他人的在做没有，�
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -3494,18 +2345,12 @@ anmr新衣装这次并没有一齐发表，不知道其他人的在做没有，�
 ##### 122#       发表于 2020-10-18 23:57
 
 
-
-
 10月24日组长、ptr、uge、rene将有3D联动，同时会有重大消息发表。四箱之首全部聚集的情况真的很少见啊，看来这个重大发表份量确实很足<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -3515,12 +2360,7 @@ anmr新衣装这次并没有一齐发表，不知道其他人的在做没有，�
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -3529,21 +2369,14 @@ anmr新衣装这次并没有一齐发表，不知道其他人的在做没有，�
 ##### 123#       发表于 2020-10-23 11:57
 
 
-
-
 25日宗谷いちか 新衣装发表，看来anmr最初三人新衣装发表是一周一个？
 
 白柴半年纪念也快了，按照惯例也会有重大发表（3D）的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -3553,12 +2386,7 @@ anmr新衣装这次并没有一齐发表，不知道其他人的在做没有，�
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -3567,21 +2395,13 @@ anmr新衣装这次并没有一齐发表，不知道其他人的在做没有，�
 ##### 124#       发表于 2020-10-23 13:43
 
 
-
-
 虎城是不是休止有一个月了。。。。什么时候复播啊
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 125#       发表于 2020-10-24 01:18
-
 
 
 <blockquote>huanshen 发表于 2020-10-18 23:57
@@ -3591,16 +2411,10 @@ anmr新衣装这次并没有一齐发表，不知道其他人的在做没有，�
 https://youtu.be/q1pgtLqgq9U
 
 
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 126#       发表于 2020-10-24 20:17
-
 
 
  本帖最后由 huanshen 于 2020-10-25 20:53 编辑 
@@ -3620,10 +2434,6 @@ https://youtu.be/q1pgtLqgq9U
 2020-10-24 20:14 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202010/24/201423jid5uwlp5ru2faia.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
 
@@ -3634,26 +2444,14 @@ https://youtu.be/q1pgtLqgq9U
 2020-10-24 20:14 上传
 
 
-
-
-
-
-
 syl，明天20时（日本时间）白柴半年纪念，有重大发表（3D），其实今天也已经预告了
 
 待机间:[https://youtu.be/IuZbsU7AEPU](https://youtu.be/IuZbsU7AEPU)
 
 
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -3663,20 +2461,13 @@ syl，明天20时（日本时间）白柴半年纪念，有重大发表（3D）�
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 127#       发表于 2020-10-25 15:25
-
-
 
 
 今晚22时（日本时间）宗谷いちか新衣装发表
@@ -3687,18 +2478,10 @@ syl，明天20时（日本时间）白柴半年纪念，有重大发表（3D）�
 syl，今天还有多首翻唱首播，uge频道的社内8人翻唱具体内容还未公开，难道还有惊喜<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 128#       发表于 2020-10-25 20:01
-
-
 
 
 白柴半年纪念重大发表，11/7白柴3D披露直播，虽然昨天就差不多透露了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -3713,18 +2496,9 @@ syl，今天还有多首翻唱首播，uge频道的社内8人翻唱具体内容�
 2020-10-25 19:56 上传
 
 
-
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -3734,12 +2508,7 @@ syl，今天还有多首翻唱首播，uge频道的社内8人翻唱具体内容�
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -3748,22 +2517,13 @@ syl，今天还有多首翻唱首播，uge频道的社内8人翻唱具体内容�
 ##### 129#       发表于 2020-10-25 21:26
 
 
-
-
 黄豆这套好大……啊不是好晃
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 130#       发表于 2020-10-26 00:08
-
-
 
 
 宗谷第五套衣装的官方视觉图
@@ -3776,9 +2536,6 @@ syl，今天还有多首翻唱首播，uge频道的社内8人翻唱具体内容�
 下载附件
 
 2020-10-26 00:05 上传
-
-
-
 
 
 [https://twitter.com/AniMare_cafe/status/1320395413287964672](https://twitter.com/AniMare_cafe/status/1320395413287964672)
@@ -3796,19 +2553,12 @@ syl，今天还有多首翻唱首播，uge频道的社内8人翻唱具体内容�
 2020-10-26 00:05 上传
 
 
-
-
-
 [https://twitter.com/AniMare_cafe/status/1317493984537669632](https://twitter.com/AniMare_cafe/status/1317493984537669632)
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -3818,12 +2568,7 @@ syl，今天还有多首翻唱首播，uge频道的社内8人翻唱具体内容�
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -3832,23 +2577,14 @@ syl，今天还有多首翻唱首播，uge频道的社内8人翻唱具体内容�
 ##### 131#       发表于 2020-10-27 11:46
 
 
-
-
 这几天太忙没怎么看，24日晚みみ播GTA的时候因为3D发表和音乐祭的事哭了，一直感谢nanashi让她进入anmr，看来plivyou和个人势时期是真的艰难啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 [https://twitter.com/croissant_is2/status/1320057931421765632?s=20](https://twitter.com/croissant_is2/status/1320057931421765632?s=20)
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 132#       发表于 2020-10-30 21:34
-
-
 
 
 10/31（明天）23:30（日本时间）宗谷いちか将进行诞生日倒计时纪念3D直播
@@ -3859,15 +2595,9 @@ syl，今天还有多首翻唱首播，uge频道的社内8人翻唱具体内容�
 syl，anmr这周末没有新衣装发表，绿熊的还没做好么<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
 
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -3877,20 +2607,13 @@ syl，anmr这周末没有新衣装发表，绿熊的还没做好么<img src="htt
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 133#       发表于 2020-10-31 00:29
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202010/31/002743k4dh91mhovh6zrv1.jpg" referrerpolicy="no-referrer">
@@ -3903,21 +2626,14 @@ syl，anmr这周末没有新衣装发表，绿熊的还没做好么<img src="htt
 2020-10-31 00:27 上传
 
 
-
-
-
 [https://twitter.com/Anna_Kojo/status/1322148780964155392](https://twitter.com/Anna_Kojo/status/1322148780964155392)
 
 11/6 20:00回归？
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -3927,20 +2643,13 @@ syl，anmr这周末没有新衣装发表，绿熊的还没做好么<img src="htt
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 134#       发表于 2020-10-31 20:04
-
-
 
 
 虎城アンナ11/6 20时（日本时间）复归配信
@@ -3957,19 +2666,12 @@ syl，anmr这周末没有新衣装发表，绿熊的还没做好么<img src="htt
 2020-10-31 20:01 上传
 
 
-
-
-
 [https://twitter.com/Anna_Kojo/status/1322481862183301122](https://twitter.com/Anna_Kojo/status/1322481862183301122)
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +2
@@ -3980,20 +2682,13 @@ syl，anmr这周末没有新衣装发表，绿熊的还没做好么<img src="htt
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 135#       发表于 2020-10-31 23:06
-
-
 
 
 宗谷いちか 诞生日纪念谷子 受注生产 11/13日截止
@@ -4010,22 +2705,10 @@ syl，anmr这周末没有新衣装发表，绿熊的还没做好么<img src="htt
 2020-10-31 23:05 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 136#       发表于 2020-11-6 01:33
-
-
 
 
 今晚20时（日本时间）虎城アンナ活动复归配信
@@ -4033,13 +2716,9 @@ syl，anmr这周末没有新衣装发表，绿熊的还没做好么<img src="htt
 待机间:https://youtu.be/pJ7mse6fsiI
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -4049,20 +2728,13 @@ syl，anmr这周末没有新衣装发表，绿熊的还没做好么<img src="htt
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 137#       发表于 2020-11-6 20:44
-
-
 
 
 虎城アンナ3D披露直播时间决定，11/14日19时（日本时间）
@@ -4077,18 +2749,9 @@ syl，anmr这周末没有新衣装发表，绿熊的还没做好么<img src="htt
 2020-11-6 20:44 上传
 
 
-
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -4098,19 +2761,13 @@ syl，anmr这周末没有新衣装发表，绿熊的还没做好么<img src="htt
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 138#       发表于 2020-11-7 00:31
-
 
 
  本帖最后由 huanshen 于 2020-11-7 11:24 编辑 
@@ -4127,10 +2784,6 @@ syl，anmr这周末没有新衣装发表，绿熊的还没做好么<img src="htt
 2020-11-7 00:24 上传
 
 
-
-
-
-
 哎，怎么跳过绿熊了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
@@ -4145,13 +2798,9 @@ syl，今晚白柴3D披露直播
 待机间:[https://youtu.be/pNDsMl9wkX0](https://youtu.be/pNDsMl9wkX0)
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +2
@@ -4162,19 +2811,13 @@ syl，今晚白柴3D披露直播
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 139#       发表于 2020-11-7 18:37
-
 
 
  本帖最后由 huanshen 于 2020-11-7 18:44 编辑 
@@ -4195,12 +2838,6 @@ syl，今晚白柴3D披露直播
 2020-11-7 18:36 上传
 
 
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202011/07/183624tp10c95rpp9qq9wx.jpg" referrerpolicy="no-referrer">
 
 
@@ -4209,11 +2846,6 @@ syl，今晚白柴3D披露直播
 下载附件
 
 2020-11-7 18:36 上传
-
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202011/07/183705bafiyyayhtri6fhy.jpg" referrerpolicy="no-referrer">
@@ -4226,13 +2858,6 @@ syl，今晚白柴3D披露直播
 2020-11-7 18:37 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202011/07/184254ffpz3y6y7ppkft6a.jpg" referrerpolicy="no-referrer">
 
 
@@ -4243,27 +2868,9 @@ syl，今晚白柴3D披露直播
 2020-11-7 18:42 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -4273,20 +2880,13 @@ syl，今晚白柴3D披露直播
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 140#       发表于 2020-11-7 19:16
-
-
 
 
 風見くく刚刚直播发表，明天将会进行新衣装发表
@@ -4302,18 +2902,9 @@ syl，今晚白柴3D披露直播
 2020-11-7 19:12 上传
 
 
-
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -4323,20 +2914,13 @@ syl，今晚白柴3D披露直播
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 141#       发表于 2020-11-8 00:31
-
-
 
 
 今晚anmr的風見くく和柚原いづみ新衣装发表
@@ -4350,13 +2934,9 @@ syl，今晚白柴3D披露直播
 待机间:https://youtu.be/H8kbErL-5KA
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -4366,20 +2946,13 @@ syl，今晚白柴3D披露直播
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 142#       发表于 2020-11-8 23:51
-
-
 
 
 風見くく和柚原いづみ第二套衣装的官方视觉图
@@ -4394,23 +2967,13 @@ syl，今晚白柴3D披露直播
 2020-11-8 23:50 上传
 
 
-
-
-
 [https://twitter.com/AniMare_cafe/status/1325462658804428801](https://twitter.com/AniMare_cafe/status/1325462658804428801)
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 143#       发表于 2020-11-11 20:14
-
-
 
 
 花奏かのん诞生日纪念直播
@@ -4431,22 +2994,10 @@ syl，今晚白柴3D披露直播
 2020-11-11 20:13 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 144#       发表于 2020-11-13 15:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49302552&amp;ptid=1914563" target="_blank">huanshen 发表于 2020-11-6 20:44</a>
@@ -4455,17 +3006,10 @@ syl，今晚白柴3D披露直播
 由于虎城アンナ身体不适，和nanashi商议之后决定3D披露直播延期。刚病养结束回归，还是好好休息一阵子再来3D吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 145#       发表于 2020-11-18 19:18
-
-
 
 
 绿熊生诞祭正在播，和宗谷、风见和羽柴一起3D庆祝还行。哦，还有一只没有3D的鸟也在<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
@@ -4486,22 +3030,9 @@ syl，今晚白柴3D披露直播
 2020-11-18 19:15 上传
 
 
-
-
-
-
-
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -4511,12 +3042,7 @@ syl，今晚白柴3D披露直播
 | 巨尻压面饼| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -4525,19 +3051,11 @@ syl，今晚白柴3D披露直播
 ##### 146#       发表于 2020-11-19 17:54
 
 
-
-
 patra油管账号突然被ban，截止目前仍无法访问，本人推特未做回应
-
-
-
-
 
 
 Screenshot_2020_1119_175344.jpg
 (36.15 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -4546,24 +3064,7 @@ Screenshot_2020_1119_175344.jpg
 2020-11-19 17:54 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202011/19/175405snboxt3to04tdpzy.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -4572,23 +3073,15 @@ Screenshot_2020_1119_175344.jpg
 ##### 147#       发表于 2020-11-19 18:49
 
 
-
 <blockquote>croopmooner96 发表于 2020-11-19 17:54
 patra油管账号突然被ban，截止目前仍无法访问，本人推特未做回应</blockquote>
 目前本人推特已做出回应，正在和运营联系
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 148#       发表于 2020-11-21 18:45
-
-
 
 
 vapart的不磨わっと和小森めと3D披露直播时间确定，现在已经连半年纪念发表的流程都不走了么<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
@@ -4603,9 +3096,6 @@ vapart的不磨わっと和小森めと3D披露直播时间确定，现在已经
 2020-11-21 18:44 上传
 
 
-
-
-
 [https://twitter.com/Wat_Huma/status/1330073489022259201](https://twitter.com/Wat_Huma/status/1330073489022259201)
 
 <img src="https://img.saraba1st.com/forum/202011/21/184439lq2pj8pn2neqtv2k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
@@ -4618,23 +3108,13 @@ vapart的不磨わっと和小森めと3D披露直播时间确定，现在已经
 2020-11-21 18:44 上传
 
 
-
-
-
 [https://twitter.com/Met_Komori/status/1330073465668374530](https://twitter.com/Met_Komori/status/1330073465668374530)
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 149#       发表于 2020-11-22 19:11
-
-
 
 
 西園寺メアリ诞生祭3D直播中
@@ -4655,18 +3135,9 @@ vapart的不磨わっと和小森めと3D披露直播时间确定，现在已经
 2020-11-22 19:11 上传
 
 
-
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -4676,20 +3147,13 @@ vapart的不磨わっと和小森めと3D披露直播时间确定，现在已经
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 150#       发表于 2020-11-25 20:22
-
-
 
 
 虎城アンナ延期的3D披露直播时间确定，12/1日20时（日本时间），希望这次不要再改了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -4704,18 +3168,9 @@ vapart的不磨わっと和小森めと3D披露直播时间确定，现在已经
 2020-11-25 20:22 上传
 
 
-
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -4725,20 +3180,13 @@ vapart的不磨わっと和小森めと3D披露直播时间确定，现在已经
 | 深渊萃取| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 151#       发表于 2020-11-28 11:49
-
-
 
 
 今晚vapart的不磨わっと和小森めと3D发表
@@ -4751,35 +3199,19 @@ vapart的不磨わっと和小森めと3D披露直播时间确定，现在已经
 待机间:[https://youtu.be/Nhlf56Uq-_4](https://youtu.be/Nhlf56Uq-_4)
 
 
-
-
-
-
-
-
-
 -----
 
 ####  dddty  
 ##### 152#       发表于 2020-11-28 19:43
 
 
-
-
 wat的3D真的好可爱，比2D立绘观感好多了。
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 153#       发表于 2020-11-30 23:11
-
-
 
 
 白宮みみ诞生日倒计时直播正在进行
@@ -4800,22 +3232,10 @@ wat的3D真的好可爱，比2D立绘观感好多了。
 2020-11-30 23:10 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 154#       发表于 2020-12-1 00:17
-
-
 
 
 今晚シュガリリ的虎城アンナ3D发表
@@ -4823,13 +3243,9 @@ wat的3D真的好可爱，比2D立绘观感好多了。
 20时（日本时间）待机间:https://youtu.be/L12IPIyAs1Q
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -4839,12 +3255,7 @@ wat的3D真的好可爱，比2D立绘观感好多了。
 | Mr.shelter| + 1|好|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -4853,14 +3264,7 @@ wat的3D真的好可爱，比2D立绘观感好多了。
 ##### 155#       发表于 2020-12-2 17:21
 
 
-
-
 anna这个50连发可爱pose太萌了
-
-
-
-
-
 
 
 -----
@@ -4869,20 +3273,14 @@ anna这个50连发可爱pose太萌了
 ##### 156#       发表于 2020-12-12 11:46
 
 
-
-
 774inc音乐祭典前3D联动，hnst全员带因幡组长和uge，好像有重大发表？
 
 直播地址:https://youtu.be/AVItcZz2OAA
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -4892,20 +3290,13 @@ anna这个50连发可爱pose太萌了
 | 过不了审| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 157#       发表于 2020-12-12 12:26
-
-
 
 
 重大发表，3D偶像服发表。音乐祭典那天全员都是偶像服3D，还未3D化的新成员也是。
@@ -4922,21 +3313,10 @@ anna这个50连发可爱pose太萌了
 2020-12-12 12:25 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 158#       发表于 2020-12-12 12:56
-
 
 
  本帖最后由 huanshen 于 2020-12-19 13:54 编辑 
@@ -4953,19 +3333,12 @@ animare偶像服3D视觉图发表
 2020-12-12 12:54 上传
 
 
-
-
-
 [https://twitter.com/AniMare_cafe/status/1337619356780355584](https://twitter.com/AniMare_cafe/status/1337619356780355584)
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -4975,20 +3348,13 @@ animare偶像服3D视觉图发表
 | 巨尻压面饼| + 1|买了animare的票，有新人3D披露新衣服新曲.|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 159#       发表于 2020-12-19 14:02
-
-
 
 
 774inc音乐祭典免费部分
@@ -5002,14 +3368,9 @@ sugarlyric:[https://youtu.be/7n457Xn5Tsg](https://youtu.be/7n457Xn5Tsg)
 honeystrap:[https://youtu.be/TFEaL6L_iHk](https://youtu.be/TFEaL6L_iHk)
 
 
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -5019,20 +3380,13 @@ honeystrap:[https://youtu.be/TFEaL6L_iHk](https://youtu.be/TFEaL6L_iHk)
 | winda| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 160#       发表于 2020-12-19 20:56
-
-
 
 
 看完了全程，还是挺感动的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -5054,22 +3408,10 @@ syl，774inc音乐祭典谷子发售 受注生产 1/4日截止
 2020-12-19 20:47 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 161#       发表于 2020-12-22 00:01
-
-
 
 
 刚刚白柴联动直播发表，27日白柴有新衣装披露直播
@@ -5084,25 +3426,13 @@ syl，774inc音乐祭典谷子发售 受注生产 1/4日截止
 2020-12-21 23:57 上传
 
 
-
-
-
-
-
 syl，animare的两位新人这周收益化解禁，会员拖就算了，774inc怎么连这种事也要拖<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 162#       发表于 2020-12-27 10:22
-
-
 
 
 今晚animare的白宮みみ和羽柴なつみ新衣装发表
@@ -5116,16 +3446,10 @@ syl，animare的两位新人这周收益化解禁，会员拖就算了，774inc�
 待机间:[https://youtu.be/ZRxQJmsZbPM](https://youtu.be/ZRxQJmsZbPM)
 
 
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 163#       发表于 2020-12-27 19:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49857248&amp;ptid=1914563" target="_blank">huanshen 发表于 2020-12-27 10:22</a>
@@ -5140,16 +3464,10 @@ syl，animare的两位新人这周收益化解禁，会员拖就算了，774inc�
 新待机间:[https://youtu.be/pPRjteIO05w](https://youtu.be/pPRjteIO05w)
 
 
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 164#       发表于 2020-12-27 20:49
-
 
 
  本帖最后由 huanshen 于 2020-12-27 20:50 编辑 
@@ -5166,23 +3484,13 @@ syl，animare的两位新人这周收益化解禁，会员拖就算了，774inc�
 2020-12-27 20:47 上传
 
 
-
-
-
 [https://twitter.com/AniMare_cafe/status/1343169703032750081](https://twitter.com/AniMare_cafe/status/1343169703032750081)
-
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 165#       发表于 2020-12-28 19:11
-
 
 
  本帖最后由 huanshen 于 2020-12-28 19:56 编辑 
@@ -5199,9 +3507,6 @@ vapart的小森めと和不磨わっと新衣装披露直播时间确定。配�
 2020-12-28 19:05 上传
 
 
-
-
-
 [https://twitter.com/Met_Komori/status/1343507981183320064](https://twitter.com/Met_Komori/status/1343507981183320064)
 
 <img src="https://img.saraba1st.com/forum/202012/28/190542i9q0g70i60b9ppgj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
@@ -5214,24 +3519,13 @@ vapart的小森めと和不磨わっと新衣装披露直播时间确定。配�
 2020-12-28 19:05 上传
 
 
-
-
-
 [https://twitter.com/Wat_Huma/status/1343504650868125696](https://twitter.com/Wat_Huma/status/1343504650868125696)
-
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 166#       发表于 2021-1-2 16:30
-
-
 
 
 今晚vapart的小森めと和不磨わっと新衣装披露
@@ -5245,16 +3539,10 @@ vapart的小森めと和不磨わっと新衣装披露直播时间确定。配�
 待机间:https://youtu.be/SDw7cuVschw
 
 
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 167#       发表于 2021-1-10 18:01
-
 
 
 13日20时（日本时间）日ノ隈らん新衣装发表，还以为没了呢<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
@@ -5270,15 +3558,7 @@ vapart的小森めと和不磨わっと新衣装披露直播时间确定。配�
 2021-1-10 16:46 上传
 
 
-
-
-
 [https://twitter.com/Ran_Hinokuma/status/1348104355585564674](https://twitter.com/Ran_Hinokuma/status/1348104355585564674)
-
-
-
-
-
 
 
 -----
@@ -5287,24 +3567,15 @@ vapart的小森めと和不磨わっと新衣装披露直播时间确定。配�
 ##### 168#       发表于 2021-1-13 01:52
 
 
-
-
 今晚20时（日本时间）日ノ隈らん新衣装披露
 
 待机间:[https://youtu.be/5OoxzrSOEEw](https://youtu.be/5OoxzrSOEEw)
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 169#       发表于 2021-1-13 20:45
-
-
 
 
 绿熊新衣装官方视觉图，原来是新年风才拖这么久啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -5319,24 +3590,13 @@ vapart的小森めと和不磨わっと新衣装披露直播时间确定。配�
 2021-1-13 20:38 上传
 
 
-
-
-
 [https://twitter.com/AniMare_cafe/status/1349331163530186757](https://twitter.com/AniMare_cafe/status/1349331163530186757)
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 170#       发表于 2021-1-22 23:15
-
-
-
 
 
 柚原いづみ诞生日倒计时直播正在进行
@@ -5355,23 +3615,10 @@ vapart的小森めと和不磨わっと新衣装披露直播时间确定。配�
 2021-1-22 23:09 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 171#       发表于 2021-1-26 22:39
-
-
-
 
 
 anmr新成员发表，中间的月野木ちろる是个人势换皮加入。又一个不去vapart的，难道anmr给的支援比较多么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -5386,22 +3633,10 @@ anmr新成员发表，中间的月野木ちろる是个人势换皮加入。又�
 2021-1-26 22:06 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 172#       发表于 2021-1-29 21:08
-
-
 
 
 羽柴なつみ休止
@@ -5416,16 +3651,7 @@ anmr新成员发表，中间的月野木ちろる是个人势换皮加入。又�
 2021-1-29 21:07 上传
 
 
-
-
-
-
 https://twitter.com/Natsumi_Hashiba/status/1355139162991546372
-
-
-
-
-
 
 
 -----
@@ -5434,14 +3660,7 @@ https://twitter.com/Natsumi_Hashiba/status/1355139162991546372
 ##### 173#       发表于 2021-1-29 21:21
 
 
-
-
 anmr是什么虚拟血汗工厂吗，怎么人员流动这么快的！
-
-
-
-
-
 
 
 -----
@@ -5450,23 +3669,15 @@ anmr是什么虚拟血汗工厂吗，怎么人员流动这么快的！
 ##### 174#       发表于 2021-1-29 21:25
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">因为是小动物所以进动物园
 
 syl848这突发性耳聋是什么怪病<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 175#       发表于 2021-1-30 22:51
-
-
 
 
 刚刚sglr联动发表，2/11日新衣装披露直播
@@ -5482,21 +3693,10 @@ syl848这突发性耳聋是什么怪病<img src="https://static.saraba1st.com/im
 2021-1-30 22:50 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 176#       发表于 2021-2-1 23:09
-
-
 
 
 虎城アンナ诞生日倒计时直播正在进行
@@ -5517,21 +3717,10 @@ syl848这突发性耳聋是什么怪病<img src="https://static.saraba1st.com/im
 2021-2-1 23:08 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 177#       发表于 2021-2-11 00:37
-
-
 
 
 今晚sugerlyric的虎城アンナ、獅子王クリス和龍ヶ崎リン新衣装发表
@@ -5549,17 +3738,10 @@ syl848这突发性耳聋是什么怪病<img src="https://static.saraba1st.com/im
 待机间:https://youtu.be/WtG-cM6Q14Y
 
 
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 178#       发表于 2021-2-11 20:00
-
-
 
 
 sugarlyric的虎城アンナ、獅子王クリス和龍ヶ崎リン第二套衣装的官方视觉图
@@ -5574,24 +3756,13 @@ sugarlyric的虎城アンナ、獅子王クリス和龍ヶ崎リン第二套衣�
 2021-2-11 19:59 上传
 
 
-
-
-
-
 https://twitter.com/SugarLyric_PI/status/1359832392043667464
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 179#       发表于 2021-2-16 20:27
-
-
 
 
 uge二周年纪念3D直播，vapart五人都在
@@ -5612,21 +3783,10 @@ uge二周年纪念3D直播，vapart五人都在
 2021-2-16 20:26 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  huanshen  
 ##### 180#       发表于 2021-2-21 18:58
-
-
 
 
 月野木ちろる身体不适，去医院检查后医生给出必须治疗的意见，与运营商讨后决定暂时停止活动
@@ -5641,24 +3801,13 @@ uge二周年纪念3D直播，vapart五人都在
 2021-2-21 18:56 上传
 
 
-
-
-
-
 https://twitter.com/tirol0_0lorit/status/1363398050228576256
-
-
-
-
-
 
 
 -----
 
 ####  huanshen  
 ##### 181#       发表于 2021-2-21 23:19
-
-
 
 
 風見くく、柚原いづみ一周年重大发表，明日初始衣装2.0发布
@@ -5679,13 +3828,6 @@ https://twitter.com/tirol0_0lorit/status/1363398050228576256
 下载附件
 
 2021-2-21 23:19 上传
-
-
-
-
-
-
-
 
 
                                            

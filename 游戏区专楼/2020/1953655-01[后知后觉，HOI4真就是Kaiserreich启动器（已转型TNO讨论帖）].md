@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2020-08-25 18:13** 
 
 
-
 -----
 
 ####  Lunamos  
 ##### 1#       楼主       发表于 2020-8-7 22:37
-
 
 
  本帖最后由 Lunamos 于 2020-8-9 21:02 编辑 
@@ -25,26 +23,13 @@ HOI4最为知名的MOD Kaiserreich: Legacy of the Weltkrieg果然名不虚传。
 对比虚假的HOI：一年更新两个国策几个菜单UI就可以卖一个DLC<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
 -----
 
 ####  diodio233  
 ##### 2#       发表于 2020-8-7 22:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暗示下个视频就是平行世界小胡子的奋斗?
-
-
-
-
-
 
 
 -----
@@ -53,16 +38,9 @@ HOI4最为知名的MOD Kaiserreich: Legacy of the Weltkrieg果然名不虚传。
 ##### 3#       发表于 2020-8-7 22:46
 
 
-
-
 现在已经是TNO的模拟器了
 
 如果你对小马有兴趣的话，马国戡乱史这个MOD也非常厉害
-
-
-
-
-
 
 
 -----
@@ -71,14 +49,7 @@ HOI4最为知名的MOD Kaiserreich: Legacy of the Weltkrieg果然名不虚传。
 ##### 4#       发表于 2020-8-7 22:47
 
 
-
-
 假如德国输了一战
-
-
-
-
-
 
 
 -----
@@ -87,23 +58,16 @@ HOI4最为知名的MOD Kaiserreich: Legacy of the Weltkrieg果然名不虚传。
 ##### 5#         楼主| 发表于 2020-8-7 22:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48354309&amp;ptid=1953655" target="_blank">diodio233 发表于 2020-8-7 23:42</a>
 
 暗示下个视频就是平行世界小胡子的奋斗?</blockquote>
 还是回去继续打食人魔战争了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 6#         楼主| 发表于 2020-8-7 22:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48354349&amp;ptid=1953655" target="_blank">炙热之狐 发表于 2020-8-7 23:46</a>
@@ -114,16 +78,10 @@ HOI4最为知名的MOD Kaiserreich: Legacy of the Weltkrieg果然名不虚传。
 多谢推荐，以前还是喜欢真实历史的MOD，现在也算是get到了架空作品的点。
 
 
-
-
-
-
-
 -----
 
 ####  dumplingpro  
 ##### 7#       发表于 2020-8-7 23:00
-
 
 
  本帖最后由 dumplingpro 于 2020-8-7 23:05 编辑 
@@ -138,13 +96,9 @@ HOI4最为知名的MOD Kaiserreich: Legacy of the Weltkrieg果然名不虚传。
 P社只是搞了个国策树偷懒，而武德丰沛的玩家社区自己折腾出了一个新游戏类型。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -154,20 +108,13 @@ P社只是搞了个国策树偷懒，而武德丰沛的玩家社区自己折腾�
 | FUZE| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  catenarygong  
 ##### 8#       发表于 2020-8-7 23:10
-
-
 
 
 TNO和Kaiserreich这种拿策略游戏叙事的潜力其实很值得挖掘。主要是策略游戏叙事天然是多线的和复杂的，玩家的上帝视角更容易对世界观进行全局的理解。
@@ -181,25 +128,13 @@ Lunamos大佬考不考虑做一期？
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  五块太贵不买了  
 ##### 9#       发表于 2020-8-7 23:17
 
 
-
-
 p社游戏的乐趣就是脑补一个架空历史啊，只有开局是既定后面走向只会和历史极大不同，一种想法是修正变成原先历史，另一种就是架空变成小说，期待L大做一期视频
-
-
-
-
-
 
 
 -----
@@ -208,23 +143,16 @@ p社游戏的乐趣就是脑补一个架空历史啊，只有开局是既定后�
 ##### 10#         楼主| 发表于 2020-8-7 23:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48354605&amp;ptid=1953655" target="_blank">catenarygong 发表于 2020-8-8 00:10</a>
 
 TNO和Kaiserreich这种拿策略游戏叙事的潜力其实很值得挖掘。主要是策略游戏叙事天然是多线的和复杂的，玩家 ...</blockquote>
 不是大佬<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  炙热之狐  
 ##### 11#       发表于 2020-8-7 23:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48354605&amp;ptid=1953655" target="_blank">catenarygong 发表于 2020-8-7 23:10</a>
@@ -235,25 +163,13 @@ TNO和Kaiserreich这种拿策略游戏叙事的潜力其实很值得挖掘。主
 暴君是我觉得最可惜的黑曜石的游戏了
 
 
-
-
-
-
-
 -----
 
 ####  王一唯不傲娇  
 ##### 12#       发表于 2020-8-7 23:32
 
 
-
-
 ck2的afeff也很好玩，就是太卡了。。。还有就是继承了原版的不平衡。不过至少吧，他把神罗和天主分开了，现在版本1066神罗太烦人了
-
-
-
-
-
 
 
 -----
@@ -262,23 +178,16 @@ ck2的afeff也很好玩，就是太卡了。。。还有就是继承了原版的
 ##### 13#       发表于 2020-8-7 23:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48354796&amp;ptid=1953655" target="_blank">王一唯不傲娇 发表于 2020-8-7 23:32</a>
 
 ck2的afeff也很好玩，就是太卡了。。。还有就是继承了原版的不平衡。不过至少吧，他把神罗和天主分开了，现 ...</blockquote>
 还有就是ateff的官僚政体太蛋疼了。。。比傀儡皇帝的debuff还恶心人
 
 
-
-
-
-
-
 -----
 
 ####  dumplingpro  
 ##### 14#       发表于 2020-8-8 00:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48354681&amp;ptid=1953655" target="_blank">炙热之狐 发表于 2020-8-7 23:19</a>
@@ -292,27 +201,15 @@ ck2的afeff也很好玩，就是太卡了。。。还有就是继承了原版的
 反正这类不需要太多画质，老手做框架，带新手练手搞个小而全的制作问题这样子，就像那个缩小人。
 
 
-
-
-
-
-
 -----
 
 ####  bojanykc  
 ##### 15#       发表于 2020-8-8 01:37
 
 
-
-
 还有大量的内容隐藏在开发日志里，可以在知乎的专栏上看到
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -321,14 +218,7 @@ ck2的afeff也很好玩，就是太卡了。。。还有就是继承了原版的
 ##### 16#       发表于 2020-8-8 06:50
 
 
-
-
 已经是TNO模拟器了
-
-
-
-
-
 
 
 -----
@@ -337,21 +227,13 @@ ck2的afeff也很好玩，就是太卡了。。。还有就是继承了原版的
 ##### 17#       发表于 2020-8-8 07:23
 
 
-
-
 TNO工坊页面显示被人DMCA侵权举报了，什么情况？mod会下架吗？
-
-
-
-
-
 
 
 -----
 
 ####  hyiang98  
 ##### 18#       发表于 2020-8-8 07:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48356291&amp;ptid=1953655" target="_blank">空想瓶子 发表于 2020-8-8 07:23</a>
@@ -361,25 +243,13 @@ TNO工坊页面显示被人DMCA侵权举报了，什么情况？mod会下架吗�
 —— 来自 HUAWEI HWI-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  约翰里德  
 ##### 19#       发表于 2020-8-8 08:06
 
 
-
-
 你选，喜欢什么势力都无所谓，请记住CSA是美国人民的未来就行<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -388,23 +258,15 @@ TNO工坊页面显示被人DMCA侵权举报了，什么情况？mod会下架吗�
 ##### 20#       发表于 2020-8-8 10:58
 
 
-
-
 看你们说的想去玩玩hoi4了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 需要直接买全dlc吗？
-
-
-
-
-
 
 
 -----
 
 ####  炙热之狐  
 ##### 21#       发表于 2020-8-8 11:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48357330&amp;ptid=1953655" target="_blank">hshiki 发表于 2020-8-8 10:58</a>
@@ -417,16 +279,10 @@ TNO工坊页面显示被人DMCA侵权举报了，什么情况？mod会下架吗�
 —— 来自 Xiaomi MI 5s Plus, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  飞灾  
 ##### 22#       发表于 2020-8-8 11:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48354677&amp;ptid=1953655" target="_blank">Lunamos 发表于 2020-8-7 23:19</a>
@@ -435,16 +291,10 @@ TNO工坊页面显示被人DMCA侵权举报了，什么情况？mod会下架吗�
 那么b站ID也是这个？
 
 
-
-
-
-
-
 -----
 
 ####  飞灾  
 ##### 23#       发表于 2020-8-8 11:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48357330&amp;ptid=1953655" target="_blank">hshiki 发表于 2020-8-8 10:58</a>
@@ -457,27 +307,15 @@ TNO工坊页面显示被人DMCA侵权举报了，什么情况？mod会下架吗�
 全套便宜的话就买全套吧
 
 
-
-
-
-
-
 -----
 
 ####  liu461  
 ##### 24#       发表于 2020-8-8 11:34
 
 
-
-
 TNO目前还是有不少bug问题 推荐还是再等等
 
 当然勃艮第鸡农 迈耶经济学属实笑到了 对历史再构建和讽刺真的一点不输KR
-
-
-
-
-
 
 
 -----
@@ -486,23 +324,15 @@ TNO目前还是有不少bug问题 推荐还是再等等
 ##### 25#       发表于 2020-8-8 11:45
 
 
-
-
 说的我想试试了。。早就听说kr大名了但我钢心打的太菜
 
 tno看到过牧桑的介绍视频，真是魔幻
-
-
-
-
-
 
 
 -----
 
 ####  nsevit  
 ##### 26#       发表于 2020-8-8 12:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48357330&amp;ptid=1953655" target="_blank">hshiki 发表于 2020-8-8 10:58</a>
@@ -514,33 +344,19 @@ tno看到过牧桑的介绍视频，真是魔幻
 尤其是MtG，没有的话海军oob基本一定会出问题
 
 
-
-
-
-
-
 -----
 
 ####  huhu0007  
 ##### 27#       发表于 2020-8-8 12:27
 
 
-
-
 钢4在国内被禁以后购买dlc太不方便了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  beanstar  
 ##### 28#       发表于 2020-8-8 14:40
-
-
 
 
 kr一路玩了两年，一点点地看着更新，现在叙事上已经非常成熟了，每个国家都有几条不同方向的线+大量事件，还有大量的内容被本篇dlc吸收了（csa，莫斯利，法公社之类的）
@@ -551,17 +367,10 @@ kr一路玩了两年，一点点地看着更新，现在叙事上已经非常成
 tno现在还不是很完善，不过很有潜力。当然游戏性上更极端了，打仗实在是没什么好打的
 
 
-
-
-
-
-
 -----
 
 ####  十点半  
 ##### 29#       发表于 2020-8-8 14:49
-
-
 
 
 hoi4本体的不少叙事部分也是做得不错的，例如英国爱美人也爱江山线。
@@ -571,16 +380,10 @@ hoi4本体的不少叙事部分也是做得不错的，例如英国爱美人也�
 有些梗也挺有意思，玩自行车王国荷兰我总喜欢造纯自行车兵，去环法自行车赛，魔法师如果玩的话应该也能玩出不少梗来，只可惜这个游戏一是被禁了，二是前期纯看海后期一直打仗，不适合做视频。
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 30#         楼主| 发表于 2020-8-8 16:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48357647&amp;ptid=1953655" target="_blank">飞灾 发表于 2020-8-8 12:32</a>
@@ -589,16 +392,10 @@ hoi4本体的不少叙事部分也是做得不错的，例如英国爱美人也�
 各种地方只要是这个ID应该都是我，还没见过高仿~
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 31#         楼主| 发表于 2020-8-8 16:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48357330&amp;ptid=1953655" target="_blank">hshiki 发表于 2020-8-8 11:58</a>
@@ -609,17 +406,10 @@ hoi4本体的不少叙事部分也是做得不错的，例如英国爱美人也�
 最好买了兼容性比较好。很多时候版本更新了之后对没买DLC的人很不友好，尤其AI很容易出BUG。
 
 
-
-
-
-
-
 -----
 
 ####  FUZE  
 ##### 32#       发表于 2020-8-8 16:31
-
-
 
 
 现在是KR和TNO模拟器了
@@ -635,16 +425,10 @@ TNO简直就是在黑洞里面滑火柴。
 这洋鬼子太会写事件了
 
 
-
-
-
-
-
 -----
 
 ####  FUZE  
 ##### 33#       发表于 2020-8-8 16:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48356291&amp;ptid=1953655" target="_blank">空想瓶子 发表于 2020-8-8 07:23</a>
@@ -653,17 +437,10 @@ TNO工坊页面显示被人DMCA侵权举报了，什么情况？mod会下架吗�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">据说做了之后被欧洲的右任举报了
 
 
-
-
-
-
-
 -----
 
 ####  nsevit  
 ##### 34#       发表于 2020-8-8 17:44
-
-
 
 
 kr的事件叙事是新闻报道风格，追求一个冷静中立
@@ -672,27 +449,15 @@ tno则完全是架空历史小说了，写作水平受dev主笔影响很大，�
 比如勃艮第的那个著名的“摇篮到坟墓”，中国的“群山中的红旗”(好像是叫这个)，还有核战之后的几个废土事件，都是拿出去扩写成一个短篇也没问题的水平
 
 
-
-
-
-
-
 -----
 
 ####  nsevit  
 ##### 35#       发表于 2020-8-8 17:51
 
 
-
-
 另外kr一个小问题就是，为了追求所有国家都有事做(读作有仗打)，给不直接参与二战的小国也都设计了对手让他们捉对厮杀，所以每次中期开始全球从喜马拉雅山到加勒比海都打成一锅粥了。
 
 你说尼泊尔，海地这种全国估计凑不出两个师的国家都非得让他打一仗是图啥<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -701,14 +466,7 @@ tno则完全是架空历史小说了，写作水平受dev主笔影响很大，�
 ##### 36#       发表于 2020-8-8 19:48
 
 
-
-
 tno也很强，t g游击队的结局给我看哭了
-
-
-
-
-
 
 
 -----
@@ -717,14 +475,7 @@ tno也很强，t g游击队的结局给我看哭了
 ##### 37#       发表于 2020-8-8 19:59
 
 
-
-
 Tno出了吗？不是只有一个小剧本可以玩吗
-
-
-
-
-
 
 
 -----
@@ -733,14 +484,7 @@ Tno出了吗？不是只有一个小剧本可以玩吗
 ##### 38#       发表于 2020-8-8 20:21
 
 
-
-
 话说群星有什么优质的剧情向mod吗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">玩过一些加事件的或者是有主线的（比如始源帝国、人类起源）但感觉都做的一般，还没蠢驴自己的事件链带感
-
-
-
-
-
 
 
 -----
@@ -749,16 +493,9 @@ Tno出了吗？不是只有一个小剧本可以玩吗
 ##### 39#       发表于 2020-8-8 20:22
 
 
-
-
 现在论架空历史最强的是TNO，而且是没有之一的那种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -767,23 +504,16 @@ Tno出了吗？不是只有一个小剧本可以玩吗
 ##### 40#       发表于 2020-8-8 20:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48361944&amp;ptid=1953655" target="_blank">allies 发表于 2020-08-08 19:59:42</a>
 Tno出了吗？不是只有一个小剧本可以玩吗</blockquote>1.0出了，虽然依然是半成品但文本的质与量已经完爆任何一个mod了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  FUZE  
 ##### 41#       发表于 2020-8-9 13:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48361944&amp;ptid=1953655" target="_blank">allies 发表于 2020-8-8 19:59</a>
@@ -796,16 +526,10 @@ Tno出了吗？不是只有一个小剧本可以玩吗</blockquote>
 剩下的两个 摸了
 
 
-
-
-
-
-
 -----
 
 ####  FUZE  
 ##### 42#       发表于 2020-8-9 13:10
-
 
 
 [https://space.bilibili.com/81479](https://space.bilibili.com/81479)
@@ -815,31 +539,19 @@ Tno出了吗？不是只有一个小剧本可以玩吗</blockquote>
 吹一波泥潭的湿湿
 
 
-
-
-
-
-
 -----
 
 ####  johnkamsar  
 ##### 43#       发表于 2020-8-9 16:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">hoi4我记得还有个uc mod，不过还在开发中，把uc里面历史以及设定尽可能还原，还添加了宇宙地图，并且兵种上貌似是还原了uc设定，阵营上大体还是鸡瘟大战连邦，但是有小国家能搞事，总之可以说是一个很值得期待的mod（完全是我心中基连野望完全体啊）
-
-
-
-
-
 
 
 -----
 
 ####  洛亚替身  
 ##### 44#       发表于 2020-8-9 18:51
-
 
 
  本帖最后由 洛亚替身 于 2020-8-9 18:54 编辑 
@@ -849,27 +561,15 @@ tno唯一神！昭和的妖怪，奴隶起义那bgm一出来我整个人都精�
 kr与钢丝本身系统融合的挺完美，事件描述和原版相符合..很多方面都青出于蓝而胜于蓝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Leliel  
 ##### 45#       发表于 2020-8-9 18:58
 
 
-
-
 那么有没有做这个mod解说视频的呢
 
 游戏感觉是玩不动了
-
-
-
-
-
 
 
 -----
@@ -878,22 +578,15 @@ kr与钢丝本身系统融合的挺完美，事件描述和原版相符合..很�
 ##### 46#       发表于 2020-8-9 18:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48371211&amp;ptid=1953655" target="_blank">洛亚替身 发表于 2020-8-9 18:51</a>
 tno唯一神！昭和的妖怪，奴隶起义那bgm一出来我整个人都精神了....但这mod已经算文字小说了，让人不敢想象 ...</blockquote>
 养鸡场玩得我脑袋疼……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">到最后就探索怎么把养鸡场搞崩有点热情
-
-
-
-
-
 
 
 -----
 
 ####  洛亚替身  
 ##### 47#       发表于 2020-8-9 19:02
-
 
 
  本帖最后由 洛亚替身 于 2020-8-9 19:04 编辑 
@@ -903,16 +596,10 @@ tno唯一神！昭和的妖怪，奴隶起义那bgm一出来我整个人都精�
 汉化组都被精污了...越来越好奇希姆莱与勃艮第这群脑抽玩意能玩出什么花活来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  维斯瓦军团  
 ##### 48#       发表于 2020-8-9 19:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48371284&amp;ptid=1953655" target="_blank">洛亚替身 发表于 2020-8-9 19:02</a>
@@ -920,16 +607,10 @@ tno唯一神！昭和的妖怪，奴隶起义那bgm一出来我整个人都精�
 不知道啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，我啃到半道去玩朱可夫洗眼睛去了
 
 
-
-
-
-
-
 -----
 
 ####  炙热之狐  
 ##### 49#       发表于 2020-8-9 19:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48371284&amp;ptid=1953655" target="_blank">洛亚替身 发表于 2020-8-9 19:02</a>
@@ -940,16 +621,10 @@ tno唯一神！昭和的妖怪，奴隶起义那bgm一出来我整个人都精�
 —— 来自 Xiaomi MI 5s Plus, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  洛亚替身  
 ##### 50#       发表于 2020-8-9 19:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48371538&amp;ptid=1953655" target="_blank">炙热之狐 发表于 2020-8-9 19:38</a>
@@ -958,26 +633,15 @@ tno唯一神！昭和的妖怪，奴隶起义那bgm一出来我整个人都精�
 希姆莱大统领这么强？这还不是雅利安超人，怕不是没人是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  维斯瓦军团  
 ##### 51#       发表于 2020-8-9 19:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48371538&amp;ptid=1953655" target="_blank">炙热之狐 发表于 2020-8-9 19:38</a>
 就盗核弹，自己研发核弹，派特工拱火引发全球核战大清洗啊勃艮第有趣的是有些其他国家的事件幕后 ...</blockquote>
 现在就等更新法国国策，我去打爆勃艮第<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -986,15 +650,9 @@ tno唯一神！昭和的妖怪，奴隶起义那bgm一出来我整个人都精�
 ##### 52#       发表于 2020-8-9 19:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48371570&amp;ptid=1953655" target="_blank">洛亚替身 发表于 2020-8-9 19:43</a>
 希姆莱大统领这么强？这还不是雅利安超人，怕不是没人是了</blockquote>
 好像希姆莱有四分之一的非雅利安血统<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1003,16 +661,10 @@ tno唯一神！昭和的妖怪，奴隶起义那bgm一出来我整个人都精�
 ##### 53#       发表于 2020-8-9 19:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48371598&amp;ptid=1953655" target="_blank">维斯瓦军团 发表于 2020-8-9 19:48</a>
 
 好像希姆莱有四分之一的非雅利安血统</blockquote>
 雅利安人是什么？借用祖国里的一句话“真正的雅利安人应该像戈培尔一样身材高大, 像迈耶一样体态健美, 像元首一样金发碧眼”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1021,24 +673,16 @@ tno唯一神！昭和的妖怪，奴隶起义那bgm一出来我整个人都精�
 ##### 54#       发表于 2020-8-9 23:26
 
 
-
-
 纵览了一下日耳曼尼亚区，养鸡场和斯培尔应该算比较有意思的选择。
 
 
 但是斯拉夫区的一堆色块看着头痛有什么推荐国家吗。
 
 
-
-
-
-
-
 -----
 
 ####  炙热之狐  
 ##### 55#       发表于 2020-8-9 23:36
-
 
 
  本帖最后由 炙热之狐 于 2020-8-10 00:01 编辑 
@@ -1058,32 +702,19 @@ tno唯一神！昭和的妖怪，奴隶起义那bgm一出来我整个人都精�
 科米玩政治斗争的，也还行
 
 
-
-
-
-
-
 -----
 
 ####  wangchaofire  
 ##### 56#       发表于 2020-8-9 23:40
 
 
-
-
 说了这么多tno汉化啥时候出
-
-
-
-
-
 
 
 -----
 
 ####  Sabbah  
 ##### 57#       发表于 2020-8-10 00:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48374180&amp;ptid=1953655" target="_blank">炙热之狐 发表于 2020-8-9 23:36</a>
@@ -1094,16 +725,10 @@ tno唯一神！昭和的妖怪，奴隶起义那bgm一出来我整个人都精�
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">谢谢指路，这样欧洲侧的游玩顺序应该就是先从苟延残喘的西俄开始，再到鲍曼，最后魔怔养鸡场了。
 
 
-
-
-
-
-
 -----
 
 ####  FUZE  
 ##### 58#       发表于 2020-8-10 00:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48374240&amp;ptid=1953655" target="_blank">wangchaofire 发表于 2020-8-9 23:40</a>
@@ -1116,27 +741,15 @@ tno唯一神！昭和的妖怪，奴隶起义那bgm一出来我整个人都精�
 他们说 最快 最快 如同法国那样快 也是明年春节的事情
 
 
-
-
-
-
-
 -----
 
 ####  tiancaiyisi  
 ##### 59#       发表于 2020-8-10 01:04
 
 
-
-
 我是拿来玩千禧年的<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi Mi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -1145,14 +758,7 @@ tno唯一神！昭和的妖怪，奴隶起义那bgm一出来我整个人都精�
 ##### 60#       发表于 2020-8-10 01:11
 
 
-
-
 旧世蓝调这个mod有人玩过没?配兵有点懵逼...
-
-
-
-
-
 
 
 -----
@@ -1161,22 +767,15 @@ tno唯一神！昭和的妖怪，奴隶起义那bgm一出来我整个人都精�
 ##### 61#       发表于 2020-8-10 06:40
 
 
-
 <blockquote>notfind404 发表于 2020-8-10 01:11
 旧世蓝调这个mod有人玩过没?配兵有点懵逼...</blockquote>
 OWB我记得堆软攻就行了，有装甲的那几家往往兵不够线都难填，所以支援里的狗非常猛
-
-
-
-
-
 
 
 -----
 
 ####  modedd  
 ##### 62#       发表于 2020-8-10 07:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48371260&amp;ptid=1953655" target="_blank">Leliel 发表于 2020-8-9 18:58</a>
@@ -1189,16 +788,10 @@ BV1JK4y1v7wS
 这个姑且算一个施佩尔路线的说书，美日还都比较配合的选上了改革派领导人
 
 
-
-
-
-
-
 -----
 
 ####  稻希贤  
 ##### 63#       发表于 2020-8-10 08:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48360792&amp;ptid=1953655" target="_blank">nsevit 发表于 2020-08-08 17:44:13</a>
@@ -1208,16 +801,10 @@ tno则完全是架空历史小说了，写作水平受dev主笔影响很大， .
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  稻希贤  
 ##### 64#       发表于 2020-8-10 08:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48361828&amp;ptid=1953655" target="_blank">维斯瓦军团 发表于 2020-08-08 19:48:44</a>
@@ -1226,16 +813,10 @@ tno也很强，t g游击队的结局给我看哭了</blockquote>黄克诚将军�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  nsevit  
 ##### 65#       发表于 2020-8-10 09:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48376915&amp;ptid=1953655" target="_blank">稻希贤 发表于 2020-8-10 08:38</a>
@@ -1250,25 +831,14 @@ tno也很强，t g游击队的结局给我看哭了</blockquote>黄克诚将军�
 黄克诚是哪个事件？
 
 
-
-
-
-
-
 -----
 
 ####  GregMD  
 ##### 66#       发表于 2020-8-10 09:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48376915&amp;ptid=1953655" target="_blank"> 稻希贤 发表于 2020-8-10 08:38</a> 引用:nsevit 发表于 2020-08-08 17:44:13 kr的事件叙事是新闻报道风格，追求一个冷静中立 tno则完全是架空历史小说了，写作水平受dev主笔影响很大， ...群山中的红旗是啥？我就知道一个最后的八路，写的黄克诚将军    -- 来自 能搜索的 Stage1官方 Android客户端 </blockquote>
 康壬坚持游击，最后被农民卖了，睡觉时候全部炸死￼<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">来自: iPhone客户端
-
-
-
-
-
 
 
 -----
@@ -1279,14 +849,12 @@ tno也很强，t g游击队的结局给我看哭了</blockquote>黄克诚将军�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  heisenberg  
 ##### 68#       发表于 2020-8-10 13:19
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -1297,12 +865,10 @@ tno也很强，t g游击队的结局给我看哭了</blockquote>黄克诚将军�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  炙热之狐  
 ##### 70#       发表于 2020-8-10 14:31
-
 
 
  本帖最后由 炙热之狐 于 2020-8-10 14:37 编辑 
@@ -1318,16 +884,10 @@ tno也很强，t g游击队的结局给我看哭了</blockquote>黄克诚将军�
 —— 来自 Xiaomi MI 5s Plus, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  稻希贤  
 ##### 71#       发表于 2020-8-10 15:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48377056&amp;ptid=1953655" target="_blank">nsevit 发表于 2020-08-10 09:01:33</a>
@@ -1339,16 +899,10 @@ tno也很强，t g游击队的结局给我看哭了</blockquote>黄克诚将军�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  稻希贤  
 ##### 72#       发表于 2020-8-10 15:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48377056&amp;ptid=1953655" target="_blank">nsevit 发表于 2020-08-10 09:01:33</a>
@@ -1360,16 +914,10 @@ tno也很强，t g游击队的结局给我看哭了</blockquote>黄克诚将军�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  稻希贤  
 ##### 73#       发表于 2020-8-10 15:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48377275&amp;ptid=1953655" target="_blank">GregMD 发表于 2020-08-10 09:29:21</a>
@@ -1378,16 +926,10 @@ tno也很强，t g游击队的结局给我看哭了</blockquote>黄克诚将军�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  nsevit  
 ##### 74#       发表于 2020-8-10 15:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48381656&amp;ptid=1953655" target="_blank">稻希贤 发表于 2020-8-10 15:45</a>
@@ -1402,11 +944,6 @@ tno也很强，t g游击队的结局给我看哭了</blockquote>黄克诚将军�
 中国只开了一局，中间还碰到MOD升级，读档之后莫名其妙就进入核战了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  heisenberg  
@@ -1415,13 +952,10 @@ tno也很强，t g游击队的结局给我看哭了</blockquote>黄克诚将军�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  catenarygong  
 ##### 76#       发表于 2020-8-10 17:01
-
-
 
 
 Kaiserreich是古典正剧
@@ -1431,26 +965,15 @@ TNO是后现代主义话剧
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  nian1538  
 ##### 77#       发表于 2020-8-10 22:22
 
 
-
 [https://www.youtube.com/watch?v=rVYC6cS6m9w](https://www.youtube.com/watch?v=rVYC6cS6m9w)
 
 TNO 1.04b版本 俄罗斯的44种结局
-
-
-
-
-
 
 
 -----
@@ -1459,14 +982,7 @@ TNO 1.04b版本 俄罗斯的44种结局
 ##### 78#       发表于 2020-8-11 03:07
 
 
-
-
 被说动了，如果完全没有P社游戏基础，策略游戏也不太会玩的话，想直接体验KR或者TNO有很大障碍吗？
-
-
-
-
-
 
 
 -----
@@ -1475,23 +991,15 @@ TNO 1.04b版本 俄罗斯的44种结局
 ##### 79#       发表于 2020-8-11 04:14
 
 
-
-
 诸位有对翻译皮蛇游戏MOD有兴趣的可以来[https://paratranz.cn/projects](https://paratranz.cn/projects)，有一些项目是接受外部申请的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">，但是TNO好像暂不招人。
 
 对小马有兴趣的也可以来申请我们马国戡乱史组<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">。
-
-
-
-
-
 
 
 -----
 
 ####  Toby_dak  
 ##### 80#       发表于 2020-8-11 05:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48368628&amp;ptid=1953655" target="_blank">FUZE 发表于 2020-8-9 14:10</a>
@@ -1504,25 +1012,13 @@ https://space.bilibili.com/81479
 弹幕里面太多要上加急名单了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  infinitesimal7  
 ##### 81#       发表于 2020-8-11 07:40
 
 
-
-
 同问，完全没玩过p社游戏，应该先玩本体还是直接上kr或tno？
-
-
-
-
-
 
 
 -----
@@ -1531,19 +1027,14 @@ https://space.bilibili.com/81479
 ##### 82#       发表于 2020-8-11 08:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48389404&amp;ptid=1953655" target="_blank">infinitesimal7 发表于 2020-8-11 07:40</a>
 同问，完全没玩过p社游戏，应该先玩本体还是直接上kr或tno？</blockquote>
 本体，先把基本概念弄熟了再碰mod
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -1553,19 +1044,13 @@ https://space.bilibili.com/81479
 | infinitesimal7| + 1|谢谢|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  nsevit  
 ##### 83#       发表于 2020-8-11 08:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48389067&amp;ptid=1953655" target="_blank">夜_乌鸦 发表于 2020-8-11 03:07</a>
@@ -1577,16 +1062,10 @@ KR玩法基本上和本体没什么区别（毕竟连科技树都没改过），
 TNO玩法则完全不一样了，除了少数几个国家意外基本上是个内政模拟器+小说阅读器，而且涉及打仗的部分目前基本上没什么平衡性可言。这个说实话反而不需要什么基础，只要英文好直接上就行，反正那堆国家机制哪怕玩过本体也得重新学。
 
 
-
-
-
-
-
 -----
 
 ####  令和忍者  
 ##### 84#       发表于 2020-8-11 10:27
-
 
 
  本帖最后由 令和忍者 于 2020-8-11 10:28 编辑 
@@ -1597,16 +1076,10 @@ TNO玩法则完全不一样了，除了少数几个国家意外基本上是个�
 额，怎么打赢的？背景里有描述吗？
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 85#         楼主| 发表于 2020-8-11 10:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48390635&amp;ptid=1953655" target="_blank">令和忍者 发表于 2020-8-11 11:27</a>
@@ -1688,11 +1161,6 @@ TNO玩法则完全不一样了，除了少数几个国家意外基本上是个�
 由于停火协议即将到期，双方均不愿重新进入直接冲突，鲁登道夫将军向协约国提出了“光荣和平”。剩余协约国成员将承认德国同前协约国成员签订的条约并归还德国殖民地（包括在和平条约中转让的）以换取维持战争现状。和平条约于1921年11月11日上午11时签署，结束了长达7年的世界大战。</blockquote>
 
 
-
-
-
-
-
 -----
 
 ####  heisenberg  
@@ -1701,12 +1169,10 @@ TNO玩法则完全不一样了，除了少数几个国家意外基本上是个�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  令和忍者  
 ##### 87#       发表于 2020-8-11 12:37
-
 
 
  本帖最后由 令和忍者 于 2020-8-11 12:40 编辑 
@@ -1718,18 +1184,10 @@ TNO玩法则完全不一样了，除了少数几个国家意外基本上是个�
 中止无限制潜艇战让美国没有参战......第二次日德兰海战解除英国海上封锁.....还有西线正面打崩了英法联军......嗯嗯嗯嗯....
 
 
-
-
-
-
-
-
-
 -----
 
 ####  飞灾  
 ##### 88#       发表于 2020-8-11 16:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48389067&amp;ptid=1953655" target="_blank">夜_乌鸦 发表于 2020-8-11 03:07</a>
@@ -1748,25 +1206,13 @@ TNO玩法则完全不一样了，除了少数几个国家意外基本上是个�
 教学的话可以看稚嫩魔法师的世界杯系列
 
 
-
-
-
-
-
 -----
 
 ####  defdoublec  
 ##### 89#       发表于 2020-8-11 23:53
 
 
-
-
 Mod下载完启动两次到主界面就崩了，头疼
-
-
-
-
-
 
 
 -----
@@ -1777,21 +1223,13 @@ Mod下载完启动两次到主界面就崩了，头疼
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Toby_dak  
 ##### 91#       发表于 2020-8-12 14:21
 
 
-
-
 看了知乎上面TNO开发日志，日本事件线喷了，这TMD简直就是侦探作品啊。
-
-
-
-
-
 
 
 -----
@@ -1800,15 +1238,9 @@ Mod下载完启动两次到主界面就崩了，头疼
 ##### 92#       发表于 2020-8-12 17:44
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">下午稍稍看了下知乎tno的日志，真的好强
 
 遗憾的是文本量太大了，啃生肉估计吃不消，还是等一等汉化吧……
-
-
-
-
-
 
 
 -----
@@ -1817,22 +1249,15 @@ Mod下载完启动两次到主界面就崩了，头疼
 ##### 93#       发表于 2020-8-12 19:03
 
 
-
  本帖最后由 GregMD 于 2020-8-12 19:05 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48403219&amp;ptid=1953655" target="_blank"> Toby_dak 发表于 2020-8-12 14:21</a> 看了知乎上面TNO开发日志，日本事件线喷了，这TMD简直就是侦探作品啊。 </blockquote>
 知乎上面那个春风大事件是抄的，漏了很多东西，本体在贴吧来自: iPhone客户端
-
-
-
-
-
 
 
 -----
 
 ####  遥仰苍穹  
 ##### 94#       发表于 2020-8-12 20:09
-
 
 
  本帖最后由 遥仰苍穹 于 2020-8-12 20:14 编辑 
@@ -1842,16 +1267,10 @@ Mod下载完启动两次到主界面就崩了，头疼
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">据说后面会有以赖账为最终目标的对德借款，我有点期待看到V2扬言要用战争天使送主角去德属中非吃木薯的情节。
 
 
-
-
-
-
-
 -----
 
 ####  洛亚替身  
 ##### 95#       发表于 2020-8-12 20:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48406604&amp;ptid=1953655" target="_blank">遥仰苍穹 发表于 2020-8-12 20:09</a>
@@ -1862,16 +1281,10 @@ Mod下载完启动两次到主界面就崩了，头疼
 艹，我要去看....想看主角被玩坏，给个地址
 
 
-
-
-
-
-
 -----
 
 ####  遥仰苍穹  
 ##### 96#       发表于 2020-8-12 20:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48406967&amp;ptid=1953655" target="_blank">洛亚替身 发表于 2020-8-12 20:36</a>
@@ -1882,17 +1295,10 @@ Mod下载完启动两次到主界面就崩了，头疼
 才刚到武昌起义那段，估计要等半年左右才能看到德皇讨债吧
 
 
-
-
-
-
-
 -----
 
 ####  zyw0  
 ##### 97#       发表于 2020-8-12 20:48
-
-
 
 
 话说ton这帮纳粹高层人均长寿活到七八十啊（鸡农不出意外能活到82）
@@ -1900,16 +1306,10 @@ Mod下载完启动两次到主界面就崩了，头疼
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  洛亚替身  
 ##### 98#       发表于 2020-8-12 20:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48407113&amp;ptid=1953655" target="_blank">遥仰苍穹 发表于 2020-8-12 20:46</a>
@@ -1920,16 +1320,10 @@ https://www.youdubook.com/book_detail/2949
 底下评论完全没人认识到是kr世界线啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Zh某  
 ##### 99#       发表于 2020-8-12 21:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48403219&amp;ptid=1953655" target="_blank">Toby_dak 发表于 2020-8-12 14:21</a>
@@ -1941,16 +1335,10 @@ https://tieba.baidu.com/p/6845313940
 —— 来自 Xiaomi MI 8 Lite, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
-
-
-
-
-
 -----
 
 ####  遥仰苍穹  
 ##### 100#       发表于 2020-8-12 21:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48407215&amp;ptid=1953655" target="_blank">洛亚替身 发表于 2020-8-12 20:54</a>
@@ -1959,17 +1347,10 @@ https://tieba.baidu.com/p/6845313940
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">“什么，主角账赖不掉了？”、“他妈的，协约国怎么成了这个样子？”
 
 
-
-
-
-
-
 -----
 
 ####  verniy  
 ##### 101#       发表于 2020-8-13 08:07
-
-
 
 
 问个关于TNO美国选举的问题
@@ -1979,16 +1360,10 @@ https://tieba.baidu.com/p/6845313940
 然后是不是所有的提案都会在国会让对立阵营的政党得势？我自己开局让尼克松同意民权法案之后NPP（FR）就得势了，所以如果我想让NPP（C）当选是不是要让尼克松反对民权法案？
 
 
-
-
-
-
-
 -----
 
 ####  nsevit  
 ##### 102#       发表于 2020-8-13 08:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48407133&amp;ptid=1953655" target="_blank">zyw0 发表于 2020-8-12 20:48</a>
@@ -2000,16 +1375,10 @@ https://tieba.baidu.com/p/6845313940
 -刚停战就被暗杀的天降伟人戈培尔点了个踩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zyw0  
 ##### 103#       发表于 2020-8-13 10:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48411287&amp;ptid=1953655" target="_blank">nsevit 发表于 2020-08-13 08:49:20</a>
@@ -2018,17 +1387,10 @@ https://tieba.baidu.com/p/6845313940
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  飞灾  
 ##### 104#       发表于 2020-8-13 11:33
-
-
 
 
 搭车问一下：
@@ -2039,16 +1401,10 @@ KR的烤馒头左派，打完八省联盟以后新皖系会来宣我，但是部
 全靠微操吗？<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  bojanykc  
 ##### 105#       发表于 2020-8-13 12:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48413268&amp;ptid=1953655" target="_blank">飞灾 发表于 2020-08-13 11:33:09</a>
@@ -2062,32 +1418,19 @@ KR的烤馒头左派，打完八省联盟以后新皖系会来宣我，但是部
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  liu461  
 ##### 106#       发表于 2020-8-13 12:19
 
 
-
-
 小黄是被勃艮第鸡农算计掉的 很正常健康情况不搭边嘛
-
-
-
-
-
 
 
 -----
 
 ####  飞灾  
 ##### 107#       发表于 2020-8-13 12:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48413799&amp;ptid=1953655" target="_blank">bojanykc 发表于 2020-8-13 12:14</a>
@@ -2103,16 +1446,10 @@ emmmm
 结果冲了两次腿短冲不过对面
 
 
-
-
-
-
-
 -----
 
 ####  试制甲炮  
 ##### 108#       发表于 2020-8-13 12:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48391935&amp;ptid=1953655" target="_blank">令和忍者 发表于 2020-8-11 12:37</a>
@@ -2121,16 +1458,10 @@ emmmm
 KR的起始设定本来就是都合的，毕竟一切要围绕IF 德国打赢了一战来转。别的不说，就算第二次日德兰海战打赢，同样也不能改变狱卒虽然攻击了看守，但是还是没法逃生的情况。
 
 
-
-
-
-
-
 -----
 
 ####  试制甲炮  
 ##### 109#       发表于 2020-8-13 12:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48413268&amp;ptid=1953655" target="_blank">飞灾 发表于 2020-8-13 11:33</a>
@@ -2142,16 +1473,10 @@ KR的烤馒头左派，打完八省联盟以后新皖系会来宣我，但是部
 打陈调元，我觉得主要还是得指望张天师或者带诗人背刺...毕竟皖系本来就强不说，很多时候鬼子还不识趣地掺和一脚。
 
 
-
-
-
-
-
 -----
 
 ####  试制甲炮  
 ##### 110#       发表于 2020-8-13 12:50
-
 
 
  本帖最后由 试制甲炮 于 2020-8-13 13:25 编辑 
@@ -2159,16 +1484,10 @@ KR的烤馒头左派，打完八省联盟以后新皖系会来宣我，但是部
 KR不知道是制作组的恶趣味还是有意如此，给几个主要的工团国家塞了一些奇奇怪怪的领导人。意大利的领袖，英国的带护国公不说，法国的雅克多里奥特是OTL的法奸，理论上来说接近于本位面法共的雅各宾派的几位：马塞尔.加香、多列士还有杜克洛在OTL评价都还不错，但是36年开局选举选雅各宾派就是要塞一个OTL的转向者，法奸——马塞尔德亚做国家元首。
 
 
-
-
-
-
-
 -----
 
 ####  modedd  
 ##### 111#       发表于 2020-8-13 12:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48414206&amp;ptid=1953655" target="_blank">试制甲炮 发表于 2020-08-13 12:50:08</a>
@@ -2178,16 +1497,10 @@ KR不知道是制作组的恶趣味还是有意如此，给几个主要的工团
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  ティグル  
 ##### 112#       发表于 2020-8-13 12:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48414206&amp;ptid=1953655" target="_blank">试制甲炮 发表于 2020-8-13 12:50</a>
@@ -2196,16 +1509,10 @@ KR不知道是制作组的恶趣味还是有意如此，给几个主要的工团
 kr的工团基于新社，不奇怪
 
 
-
-
-
-
-
 -----
 
 ####  约翰里德  
 ##### 113#       发表于 2020-8-13 13:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48414206&amp;ptid=1953655" target="_blank">试制甲炮 发表于 2020-8-13 12:50</a>
@@ -2213,16 +1520,10 @@ KR不知道是制作组的恶趣味还是有意如此，给几个主要的工团
 在打破枷锁的路上肯定是有些不和谐音的，但是英法的同志们再怎么动乱，都还有我们CSA来依靠<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  FUZE  
 ##### 114#       发表于 2020-8-13 13:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48414471&amp;ptid=1953655" target="_blank">约翰里德 发表于 2020-8-13 13:09</a>
@@ -2233,25 +1534,13 @@ KR不知道是制作组的恶趣味还是有意如此，给几个主要的工团
 马上白劳德就来横夺你的胜利果实！
 
 
-
-
-
-
-
 -----
 
 ####  试制甲炮  
 ##### 115#       发表于 2020-8-13 13:36
 
 
-
-
 而TNO这方面其实可能还好点，DSR在正式版里头基本删了，毕竟那几位DSR的领导人本位面的表现还是挺值得称赞的。其他的虽然有些暴虐的人，但是总的来说并不是特别魔怔。尤其是考虑到TNO世界线变动的起因就在于在二十年代的斗争中，布哈林把斯大林干了下去，按照布哈林的路线导致苏联工业化失败。布哈林的失败导致富兰克林罗斯福在32年未能选上总统（因为他那套和苏联接近，而苏联搞砸了，所以根本没人信他这套），36年上台的约翰肯尼迪他爹不行。最终导致辣脆横冲直撞的时候，两个抑止力代行人米国和苏联都没能起到本位面的作用。
-
-
-
-
-
 
 
 -----
@@ -2260,16 +1549,10 @@ KR不知道是制作组的恶趣味还是有意如此，给几个主要的工团
 ##### 116#       发表于 2020-8-13 16:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48414009&amp;ptid=1953655" target="_blank">试制甲炮 发表于 2020-8-13 12:31</a>
 
 打陈调元，我觉得主要还是得指望张天师或者带诗人背刺...毕竟皖系本来就强不说，很多时候鬼子还不识趣地 ...</blockquote>
 所以说SL大法还是必要的？
-
-
-
-
-
 
 
 -----
@@ -2278,16 +1561,10 @@ KR不知道是制作组的恶趣味还是有意如此，给几个主要的工团
 ##### 117#       发表于 2020-8-13 16:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48414206&amp;ptid=1953655" target="_blank">试制甲炮 发表于 2020-8-13 12:50</a>
 
 KR不知道是制作组的恶趣味还是有意如此，给几个主要的工团国家塞了一些奇奇怪怪的领导人。意大利的领袖，英 ...</blockquote>
 那么中国这边要玩工团的话要选哪个势力开局？
-
-
-
-
-
 
 
 -----
@@ -2296,16 +1573,10 @@ KR不知道是制作组的恶趣味还是有意如此，给几个主要的工团
 ##### 118#       发表于 2020-8-13 17:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48417279&amp;ptid=1953655" target="_blank">飞灾 发表于 2020-8-13 16:34</a>
 
 那么中国这边要玩工团的话要选哪个势力开局？</blockquote>
 南边的八省，等汪**上岸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2314,15 +1585,9 @@ KR不知道是制作组的恶趣味还是有意如此，给几个主要的工团
 ##### 119#       发表于 2020-8-14 07:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48417864&amp;ptid=1953655" target="_blank">modedd 发表于 2020-8-13 17:28</a>
 南边的八省，等汪**上岸</blockquote>
 汪不是激进民生派吗？然后怎么转到工团去？
-
-
-
-
-
 
 
 -----
@@ -2331,14 +1596,7 @@ KR不知道是制作组的恶趣味还是有意如此，给几个主要的工团
 ##### 120#       发表于 2020-8-14 08:36
 
 
-
-
 白劳德在kr里也是屑啊，排除异己打击政敌解散GH还搞无选举，说他是美国教员属实乳教员<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2347,14 +1605,7 @@ KR不知道是制作组的恶趣味还是有意如此，给几个主要的工团
 ##### 121#       发表于 2020-8-14 08:42
 
 
-
-
 据日志里说如果左翼KMT失败了，两广也有机会左转成红色，但开了两局都没打出来，是有什么特殊条件么？
-
-
-
-
-
 
 
 -----
@@ -2363,22 +1614,15 @@ KR不知道是制作组的恶趣味还是有意如此，给几个主要的工团
 ##### 122#       发表于 2020-8-14 16:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48423788&amp;ptid=1953655" target="_blank">nsevit 发表于 2020-8-14 08:42</a>
 据日志里说如果左翼KMT失败了，两广也有机会左转成红色，但开了两局都没打出来，是有什么特殊条件么？ ...</blockquote>
 目前看来转型最容易的好像是云南的朱老总
-
-
-
-
-
 
 
 -----
 
 ####  Stellar_Frost  
 ##### 123#       发表于 2020-8-14 17:25
-
 
 
  本帖最后由 Stellar_Frost 于 2020-8-14 17:30 编辑 
@@ -2391,16 +1635,10 @@ KR不知道是制作组的恶趣味还是有意如此，给几个主要的工团
 主要分歧点就在于KR线德国没有重启无限制潜艇战，于是美国没有那么快入局
 
 
-
-
-
-
-
 -----
 
 ####  Stellar_Frost  
 ##### 124#       发表于 2020-8-14 17:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48414206&amp;ptid=1953655" target="_blank">试制甲炮 发表于 2020-8-13 12:50</a>
@@ -2411,16 +1649,10 @@ KR的一个重要思路是刻意让真实历史上的配角大显身手
 所以就是会奇奇怪怪没错
 
 
-
-
-
-
-
 -----
 
 ####  Stellar_Frost  
 ##### 125#       发表于 2020-8-14 17:35
-
 
 
  本帖最后由 Stellar_Frost 于 2020-8-14 17:47 编辑 
@@ -2436,24 +1668,13 @@ ACOT的五毛特效和更多巨构的无限制狂气玩多了确实会厌倦，�
 不过群星大量兼具皮相和丰富机制的二次元萌豚mod是一绝<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我自己比较喜欢同时叫出一大票原版和mod的天灾搞银河无限制格斗大赛，或者就是不称王称霸专心挖坟收遗珍
 
 
-
-
-
-
-
 -----
 
 ####  Stellar_Frost  
 ##### 126#       发表于 2020-8-14 17:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“那个德国打输了一战的DLC做的太烂了”
-
-
-
-
-
 
 
 -----
@@ -2462,14 +1683,7 @@ ACOT的五毛特效和更多巨构的无限制狂气玩多了确实会厌倦，�
 ##### 127#       发表于 2020-8-14 18:40
 
 
-
-
 “主要是作者实在不知道德国单挑英法怎么才能输，干脆让德国潜艇去炸美国商船了，这降智光环也开得太厉害了吧<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">”
-
-
-
-
-
 
 
 -----
@@ -2478,21 +1692,13 @@ ACOT的五毛特效和更多巨构的无限制狂气玩多了确实会厌倦，�
 ##### 128#       发表于 2020-8-14 20:16
 
 
-
-
 KR有没有人试过用法兰西公社占领西恩的地 能不能放出中华工团？
-
-
-
-
-
 
 
 -----
 
 ####  遥仰苍穹  
 ##### 129#       发表于 2020-8-14 23:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48413268&amp;ptid=1953655" target="_blank">飞灾 发表于 2020-8-13 11:33</a>
@@ -2504,16 +1710,10 @@ KR的烤馒头左派，打完八省联盟以后新皖系会来宣我，但是部
 微操，如果不行的话重新开档，换个鲁系宣战陈调元的档。
 
 
-
-
-
-
-
 -----
 
 ####  遥仰苍穹  
 ##### 130#       发表于 2020-8-14 23:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48423788&amp;ptid=1953655" target="_blank">nsevit 发表于 2020-8-14 08:42</a>
@@ -2522,16 +1722,10 @@ KR的烤馒头左派，打完八省联盟以后新皖系会来宣我，但是部
 得让两广AI选陈铭枢那条线。
 
 
-
-
-
-
-
 -----
 
 ####  遥仰苍穹  
 ##### 131#       发表于 2020-8-14 23:17
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正洋人嘛，不大喜欢斯毛，一个发配阿根廷，另一个直接神隐。
@@ -2542,26 +1736,15 @@ KR的烤馒头左派，打完八省联盟以后新皖系会来宣我，但是部
 教员的话更是如此。
 
 
-
-
-
-
-
 -----
 
 ####  MrSkittles  
 ##### 132#       发表于 2020-8-15 09:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48423788&amp;ptid=1953655" target="_blank">nsevit 发表于 2020-8-14 08:42</a>
 据日志里说如果左翼KMT失败了，两广也有机会左转成红色，但开了两局都没打出来，是有什么特殊条件么？ ...</blockquote>
 得在李宗仁入侵时让马济输掉，然后会有陈铭枢行动的选项
-
-
-
-
-
 
 
 -----
@@ -2570,16 +1753,10 @@ KR的烤馒头左派，打完八省联盟以后新皖系会来宣我，但是部
 ##### 133#       发表于 2020-8-15 09:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48423788&amp;ptid=1953655" target="_blank">nsevit 发表于 2020-8-14 08:42</a>
 
 据日志里说如果左翼KMT失败了，两广也有机会左转成红色，但开了两局都没打出来，是有什么特殊条件么？ ...</blockquote>
 两广如果想变民国的话，你之前得放李宗仁进来，然后让陈铭枢上台变两广人民政府，lkmt亡了你就可以变身国民革命政府，不过即使lkmt没亡你也可以除他左籍然后吞并他
-
-
-
-
-
 
 
 -----
@@ -2588,16 +1765,10 @@ KR的烤馒头左派，打完八省联盟以后新皖系会来宣我，但是部
 ##### 134#       发表于 2020-8-15 10:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48431747&amp;ptid=1953655" target="_blank">林登·万 发表于 2020-8-14 20:16</a>
 
 KR有没有人试过用法兰西公社占领西恩的地 能不能放出中华工团？</blockquote>
 用红俄试过了，放出的还是陈独秀领导的民国，老版本放出的倒是五色旗的prc
-
-
-
-
-
 
 
 -----
@@ -2606,14 +1777,7 @@ KR有没有人试过用法兰西公社占领西恩的地 能不能放出中华�
 ##### 135#       发表于 2020-8-16 11:05
 
 
-
-
 你们说得TNO创意工坊全称是啥？
-
-
-
-
-
 
 
 -----
@@ -2622,14 +1786,7 @@ KR有没有人试过用法兰西公社占领西恩的地 能不能放出中华�
 ##### 136#       发表于 2020-8-16 11:45
 
 
-
-
 请问现在咋买钢丝啊？淘宝？
-
-
-
-
-
 
 
 -----
@@ -2638,23 +1795,16 @@ KR有没有人试过用法兰西公社占领西恩的地 能不能放出中华�
 ##### 137#       发表于 2020-8-16 11:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48446622&amp;ptid=1953655" target="_blank">C.W.Nimitz 发表于 2020-8-16 11:05</a>
 
 你们说得TNO创意工坊全称是啥？</blockquote>
 The New Order: Last Days of Europe
 
 
-
-
-
-
-
 -----
 
 ####  catenarygong  
 ##### 138#       发表于 2020-8-16 13:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48434312&amp;ptid=1953655" target="_blank">遥仰苍穹 发表于 2020-08-14 23:17:29</a>
@@ -2666,17 +1816,10 @@ The New Order: Last Days of Europe
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  飞灾  
 ##### 139#       发表于 2020-8-21 13:47
-
-
 
 
 那么，统一赛里斯以后又该怎么发展？
@@ -2686,17 +1829,10 @@ The New Order: Last Days of Europe
 还是西进搞奥斯曼?
 
 
-
-
-
-
-
 -----
 
 ####  bojanykc  
 ##### 140#       发表于 2020-8-21 16:05
-
-
 
 
 这个要看局势啊…总之与工团呼应，横扫一切反动派就对了
@@ -2704,16 +1840,10 @@ The New Order: Last Days of Europe
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  nsevit  
 ##### 141#       发表于 2020-8-24 15:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48368628&amp;ptid=1953655" target="_blank">FUZE 发表于 2020-8-9 13:10</a>
@@ -2728,17 +1858,10 @@ https://space.bilibili.com/81479
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">UP有气无力的说话风格听久了之后好像也挺适合这种内容的？
 
 
-
-
-
-
-
 -----
 
 ####  楚休红  
 ##### 142#       发表于 2020-8-24 15:33
-
-
 
 
 tno的文字量堪比好多本小说，这个搞剧情视频的话会很好看
@@ -2750,16 +1873,10 @@ tno的文字量堪比好多本小说，这个搞剧情视频的话会很好看
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  nsevit  
 ##### 143#       发表于 2020-8-24 16:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48535505&amp;ptid=1953655" target="_blank">楚休红 发表于 2020-8-24 15:33</a>
@@ -2774,16 +1891,10 @@ tno的文字量堪比好多本小说，这个搞剧情视频的话会很好看
 你看凡是有点敏感性的UP都直接把东亚全程打码了<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  星野航  
 ##### 144#       发表于 2020-8-25 00:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48362202&amp;ptid=1953655" target="_blank">囧Smith 发表于 2020-8-8 12:21</a>
@@ -2796,17 +1907,10 @@ star wars有几个，但也不是剧情向的，虽然可以搞代入
 确实，地平线视界这个专门请作家来写的真的挺有趣
 
 
-
-
-
-
-
 -----
 
 ####  Nebo  
 ##### 145#       发表于 2020-8-25 10:46
-
-
 
 
 到处都有人拿mod抨击原版...虽然我也是玩mod时间远多于玩原版的，不过感觉还是很怪异，在贴吧的一个mod原版比较贴里也为原版说了些话，直接复制到这里算是提供些不同意见吧
@@ -2823,16 +1927,10 @@ star wars有几个，但也不是剧情向的，虽然可以搞代入
 最近几个版本，原版也往比较魔幻的方向上改了，比如德国皇室复辟，西班牙无政府全球造核等等，感觉完全舍本求末，还不如把精力放在调整总体构架上。
 
 
-
-
-
-
-
 -----
 
 ####  zyw0  
 ##### 146#       发表于 2020-8-25 10:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48536052&amp;ptid=1953655" target="_blank">nsevit 发表于 2020-08-24 16:25:32</a>
@@ -2841,16 +1939,10 @@ star wars有几个，但也不是剧情向的，虽然可以搞代入
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  dumplingpro  
 ##### 147#       发表于 2020-8-25 11:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48543327&amp;ptid=1953655" target="_blank">Nebo 发表于 2020-8-25 10:46</a>
@@ -2863,7 +1955,6 @@ star wars有几个，但也不是剧情向的，虽然可以搞代入
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
 国家间的差异，可以用陆军思想/科技树调整。
 
 
@@ -2873,21 +1964,10 @@ star wars有几个，但也不是剧情向的，虽然可以搞代入
 日本强调精准射击不喜欢自动武器，武器需求变少，补给消耗下降，但防御韧性会下降。
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Nebo  
 ##### 148#       发表于 2020-8-25 11:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48543623&amp;ptid=1953655" target="_blank">dumplingpro 发表于 2020-8-25 11:14</a>
@@ -2899,17 +1979,10 @@ star wars有几个，但也不是剧情向的，虽然可以搞代入
 别的国家还好，中日战争只有黑冰这样比较庞杂的装备体系才能最好的体现中日的产能差距。不说原版，几个说专注东亚的mod用中国还是能在太平洋战争前落日，完全没有艰难斗争的味道。黑冰里则是想方设法拖延等老美下场减轻压力
 
 
-
-
-
-
-
 -----
 
 ####  nsevit  
 ##### 149#       发表于 2020-8-25 15:46
-
-
 
 
 这几天终于有时间玩了几盘TNO，这MOD好的地方大家都吹过了，所以只吐槽一下不好的地方。
@@ -2929,20 +2002,13 @@ TNO试图在HOI4这个过于粗糙的框架里面还原真实世界的政治、�
 总结，在TNO人为的限制了原版最重要的“打仗”这个功能之后，原版的“科研/生产/其他子系统-&gt;数值/modifier-&gt;战争能力-&gt;战争结果”这个转化链条在中间完全断掉，玩家随即失去了把积累的游戏时间转化为直观结果的能力，而只能顺着开发者预设好的事件链一路走下去。这与其说是grand strategy的玩法，不如说是预设好剧情、只在关键点才让玩家点选项的GAL游戏了。
 
 
-
 回到最一开始的内容，我完全认同TNO在叙事、背景、文笔这些方面的亮点，但对于整个玩法层面还是不怎么感冒的。
-
-
-
-
-
 
 
 -----
 
 ####  Nebo  
 ##### 150#       发表于 2020-8-25 17:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48546567&amp;ptid=1953655" target="_blank">nsevit 发表于 2020-8-25 15:46</a>
@@ -2956,16 +2022,10 @@ TNO试图在HOI4这个过于粗糙的框架里面还原真实世界的政治、�
 另外TNO的社会经济系统他们日志里说了是学EaW小马利亚的
 
 
-
-
-
-
-
 -----
 
 ####  Yesman  
 ##### 151#       发表于 2020-8-25 17:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48547396&amp;ptid=1953655" target="_blank">Nebo 发表于 2020-8-25 17:09</a>
@@ -2974,9 +2034,6 @@ TNO试图在HOI4这个过于粗糙的框架里面还原真实世界的政治、�
 
 另外TNO的社会经济系统他们日志里 ...</blockquote>
 因为原版除了国策树和自动边界布兵完全不如钢3，你说的那些黑冰的那些优点钢3黑冰也都可以做到
-
-
-
 
 
                                             

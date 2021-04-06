@@ -6,7 +6,6 @@
 ##### 1#       楼主       发表于 2018-6-15 02:49
 
 
-
  本帖最后由 Lunamos 于 2019-5-17 15:05 编辑 
 
 <img src="http://ww1.sinaimg.cn/large/9e918900gy1fscsovas4fj21e00s4dq7.jpg" referrerpolicy="no-referrer">
@@ -124,33 +123,10 @@ Twitter也表示游戏总时长为80-100小时。
 ===================================
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Laie  
 ##### 2#       发表于 2018-6-15 05:29
-
-
 
 
 新demo打了学者 修女 盗贼的开头，就是这个味，兴奋<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -163,25 +139,13 @@ Twitter也表示游戏总时长为80-100小时。
 另外战斗演出还是有点拖沓，能按键skip部分演出或者加速大概更好
 
 
-
-
-
-
-
 -----
 
 ####  fantuanxiaoyi  
 ##### 3#       发表于 2018-6-15 09:13
 
 
-
-
 音乐非常好！
-
-
-
-
-
 
 
 -----
@@ -190,14 +154,7 @@ Twitter也表示游戏总时长为80-100小时。
 ##### 4#       发表于 2018-6-15 09:17
 
 
-
-
 下好了晚上回家可以玩了，兴奋.jpg  传说的三小时限制是一个用户几个存档都只能玩三小时？
-
-
-
-
-
 
 
 -----
@@ -206,16 +163,10 @@ Twitter也表示游戏总时长为80-100小时。
 ##### 5#         楼主| 发表于 2018-6-15 09:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39995728&amp;ptid=1711545" target="_blank">fantuanxiaoyi 发表于 2018-6-15 10:13</a>
 
 音乐非常好！</blockquote>
 戒断反应了，下载了OST听到现在一直在发呆。
-
-
-
-
-
 
 
 -----
@@ -224,13 +175,7 @@ Twitter也表示游戏总时长为80-100小时。
 ##### 6#       发表于 2018-6-15 09:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">SE给我中文啊SE！！
-
-
-
-
-
 
 
 -----
@@ -239,20 +184,13 @@ Twitter也表示游戏总时长为80-100小时。
 ##### 7#       发表于 2018-6-15 09:24
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今晚回家就下载
-
-
-
-
-
 
 
 -----
 
 ####  Lunamos  
 ##### 8#         楼主| 发表于 2018-6-15 09:26
-
 
 
  本帖最后由 Lunamos 于 2018-6-15 11:03 编辑 
@@ -264,24 +202,13 @@ Twitter也表示游戏总时长为80-100小时。
 对了，Demo只有两个存档位，自动和手动。所以试新角色要覆盖之前的。
 
 
-
-
-
-
-
 -----
 
 ####  thez  
 ##### 9#       发表于 2018-6-15 09:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">玩了下这画面风格还是不和胃口，光污染太严重了，而且这文字量这么多，虽然我英文能看懂个8成，但打起来还是比较累……不出中文的话是不会考虑买了
-
-
-
-
-
 
 
 -----
@@ -290,14 +217,7 @@ Twitter也表示游戏总时长为80-100小时。
 ##### 10#       发表于 2018-6-15 09:36
 
 
-
-
 这个demo完全不打算玩，怕把口味玩坏了，等正式发售
-
-
-
-
-
 
 
 -----
@@ -306,16 +226,9 @@ Twitter也表示游戏总时长为80-100小时。
 ##### 11#       发表于 2018-6-15 09:40
 
 
-
-
 游戏是真喜欢 不过现在游戏多的没空玩  没中文还是太无聊了
 
 —— 来自 OnePlus ONEPLUS A5010, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.2
-
-
-
-
-
 
 
 -----
@@ -324,24 +237,15 @@ Twitter也表示游戏总时长为80-100小时。
 ##### 12#       发表于 2018-6-15 09:41
 
 
-
-
 最开心的事情莫过于有一款看起来棒到爆炸的RPG要发售了
 
 而最难过的就是SE不给你出中文……<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Chia  
 ##### 13#       发表于 2018-6-15 09:47
-
-
 
 
 港任发行倒是可以入
@@ -352,25 +256,13 @@ Twitter也表示游戏总时长为80-100小时。
 xb2花了我1个月，这作应该是能玩到肥宅快乐日了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 14#         楼主| 发表于 2018-6-15 09:52
 
 
-
-
 盗贼小哥的剧情很有趣啊……
-
-
-
-
-
 
 
 -----
@@ -379,14 +271,7 @@ xb2花了我1个月，这作应该是能玩到肥宅快乐日了<img src="https:
 ##### 15#       发表于 2018-6-15 09:52
 
 
-
-
 自认为日语还行，以前北欧女神2，星海3这些rpg都硬啃下来，可自从老任第一方开始出中文就被惯出毛病来了，没有中文的rpg真是一点都不想碰
-
-
-
-
-
 
 
 -----
@@ -395,14 +280,7 @@ xb2花了我1个月，这作应该是能玩到肥宅快乐日了<img src="https:
 ##### 16#       发表于 2018-6-15 09:52
 
 
-
-
 rpg没有中文玩个p啊。
-
-
-
-
-
 
 
 -----
@@ -411,18 +289,12 @@ rpg没有中文玩个p啊。
 ##### 17#       发表于 2018-6-15 10:00
 
 
-
-
 明明是demo讨论帖，总有既不玩又不想讨论只为了说一句没中文不玩的人刷存在感，看着烦死了
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -432,12 +304,7 @@ rpg没有中文玩个p啊。
 | swanon| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -446,14 +313,7 @@ rpg没有中文玩个p啊。
 ##### 18#       发表于 2018-6-15 10:01
 
 
-
-
 泥潭水准下降得太快了，不过也对，有中文为啥要学外语233
-
-
-
-
-
 
 
 -----
@@ -462,21 +322,13 @@ rpg没有中文玩个p啊。
 ##### 19#       发表于 2018-6-15 10:03
 
 
-
-
 这贴都什么鸟人。。。。
-
-
-
-
-
 
 
 -----
 
 ####  redsouris  
 ##### 20#       发表于 2018-6-15 10:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39995747&amp;ptid=1711545" target="_blank">kurama221 发表于 2018-6-15 09:17</a>
@@ -487,27 +339,15 @@ rpg没有中文玩个p啊。
 可以每个人物玩一点也可以只玩一个玩久一点
 
 
-
-
-
-
-
 -----
 
 ####  socinius  
 ##### 21#       发表于 2018-6-15 10:04
 
 
-
-
 泥潭巨魔成灾，没中文就滚艹的玩家这么多谁还讨论游戏<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 —— 来自 samsung SM-G9350, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0
-
-
-
-
-
 
 
 -----
@@ -516,14 +356,7 @@ rpg没有中文玩个p啊。
 ##### 22#       发表于 2018-6-15 10:05
 
 
-
-
 希望这个楼能成砖楼，不要再把那个巨魔帖子顶上来了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -532,14 +365,7 @@ rpg没有中文玩个p啊。
 ##### 23#       发表于 2018-6-15 10:08
 
 
-
-
 3小时就过了学者和猎人的序章，中间跑路耽误了一段时间。纠结是拿这个档等正式发售还是重开一个试试三小时三个人物。。。
-
-
-
-
-
 
 
 -----
@@ -548,16 +374,9 @@ rpg没有中文玩个p啊。
 ##### 24#       发表于 2018-6-15 10:12
 
 
-
-
 这游戏可以日语语音英文文本吗
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -566,14 +385,7 @@ rpg没有中文玩个p啊。
 ##### 25#       发表于 2018-6-15 10:13
 
 
-
-
 没中文 差评！！！
-
-
-
-
-
 
 
 -----
@@ -582,21 +394,13 @@ rpg没有中文玩个p啊。
 ##### 26#       发表于 2018-6-15 10:13
 
 
-
-
 不玩，留到7/12。先玩章鱼了
-
-
-
-
-
 
 
 -----
 
 ####  Lunamos  
 ##### 27#         楼主| 发表于 2018-6-15 10:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39996262&amp;ptid=1711545" target="_blank">YFIIII 发表于 2018-6-15 11:12</a>
@@ -608,25 +412,13 @@ rpg没有中文玩个p啊。
 可以，选项里第一项就是选英/日语音。不过语音挺少的。
 
 
-
-
-
-
-
 -----
 
 ####  时之放浪者  
 ##### 28#       发表于 2018-6-15 10:17
 
 
-
-
 这游戏英文翻译和配音都很对胃啊。 语音棒棒棒。没中文不玩就不玩咯， 还进来声明下怕不是脑子有病，去se门口情愿啊，这里闹个锤子。
-
-
-
-
-
 
 
 -----
@@ -635,14 +427,7 @@ rpg没有中文玩个p啊。
 ##### 29#       发表于 2018-6-15 10:19
 
 
-
-
 RPG没中文 告辞
-
-
-
-
-
 
 
 -----
@@ -651,16 +436,10 @@ RPG没中文 告辞
 ##### 30#       发表于 2018-6-15 10:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">泥潭什么时候跟支乎一样都是中文怪了
 
 
 等正式版，3小时不长不短的多难受。。
-
-
-
-
-
 
 
 -----
@@ -669,14 +448,7 @@ RPG没中文 告辞
 ##### 31#       发表于 2018-6-15 10:22
 
 
-
-
 3小时是指一个存档的时间限制么？还是说玩到3个小时就必须要删掉重下？
-
-
-
-
-
 
 
 -----
@@ -685,14 +457,7 @@ RPG没中文 告辞
 ##### 32#       发表于 2018-6-15 10:22
 
 
-
-
 这日语我觉得很简单啊……N2水平<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -701,14 +466,7 @@ RPG没中文 告辞
 ##### 33#       发表于 2018-6-15 10:23
 
 
-
-
 之前的试玩版啃英文玩了下舞女的，战斗系统挺熟悉的…打过了boss 之后城里有个小支线不知道要诱拐哪个人过去
-
-
-
-
-
 
 
 -----
@@ -717,17 +475,10 @@ RPG没中文 告辞
 ##### 34#         楼主| 发表于 2018-6-15 10:26
 
 
-
-
 任天堂昨天树屋试玩Octopath Traveler的时候说游戏主线流程50-60小时，全支线流程大概80-100小时。
 
 
 作为JRPG是不错了，但担心这个时间支撑8人交错叙事可能有点短了，说明后期角色交汇应该比较多。
-
-
-
-
-
 
 
 -----
@@ -736,16 +487,9 @@ RPG没中文 告辞
 ##### 35#       发表于 2018-6-15 10:27
 
 
-
-
 英文字幕和日語語音很不搭，和XB2的英文字幕一樣爛
 
 求中文字幕<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -754,14 +498,7 @@ RPG没中文 告辞
 ##### 36#       发表于 2018-6-15 10:27
 
 
-
-
 没中文不玩<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -770,23 +507,15 @@ RPG没中文 告辞
 ##### 37#       发表于 2018-6-15 10:29
 
 
-
-
 商人妹子線好有趣，竟然能這樣玩
 
 希望系統比之前的demo有大改進，之前感覺太簡單有些簡陋
-
-
-
-
-
 
 
 -----
 
 ####  tasuku  
 ##### 38#       发表于 2018-6-15 10:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39996417&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-6-15 10:26</a>
@@ -798,27 +527,15 @@ RPG没中文 告辞
 没事后面有60个小时都是从第一章打到第四章轮回<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  培根芝士蛋堡XD  
 ##### 39#       发表于 2018-6-15 10:34
 
 
-
-
 这么多没中文不玩，泥潭婆罗门失格啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，感觉英文啃着还行，整个风格的确太对味了
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -827,14 +544,7 @@ RPG没中文 告辞
 ##### 40#       发表于 2018-6-15 10:35
 
 
-
-
 这个游戏其实还是要靠文字带动想象才能达到游戏真正要表达的效果，因为画面简单，文字量大且剧情展现很细腻，所以实际上是可以当电子小说看的，可惜没有中文，如果看不懂文字，画面又比较简单的话，游戏效果真的要比一般的游戏打折更多
-
-
-
-
-
 
 
 -----
@@ -843,16 +553,10 @@ RPG没中文 告辞
 ##### 41#         楼主| 发表于 2018-6-15 10:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39996552&amp;ptid=1711545" target="_blank">西多士 发表于 2018-6-15 11:35</a>
 
 这个游戏其实还是要靠文字带动想象才能达到游戏真正要表达的效果，因为画面简单，文字量大且剧情展现很细腻 ...</blockquote>
 还好吧，我觉得就看画面也很棒了，个人感觉这种风格至少比轨迹传说这种半吊子3D强。文字无论日语还是英语的文笔确实都很不错，不过系统、玩法什么的分量很重，所以也不至于到电子小说的程度。
-
-
-
-
-
 
 
 -----
@@ -861,13 +565,7 @@ RPG没中文 告辞
 ##### 42#       发表于 2018-6-15 10:56
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">选了Ophilia开局，音乐太棒了
-
-
-
-
-
 
 
 -----
@@ -876,14 +574,7 @@ RPG没中文 告辞
 ##### 43#       发表于 2018-6-15 11:13
 
 
-
-
 等出中文再买
-
-
-
-
-
 
 
 -----
@@ -892,14 +583,7 @@ RPG没中文 告辞
 ##### 44#       发表于 2018-6-15 11:37
 
 
-
-
 竟然是限制死时间的？？那还是等发售了再玩好了…
-
-
-
-
-
 
 
 -----
@@ -908,14 +592,7 @@ RPG没中文 告辞
 ##### 45#       发表于 2018-6-15 11:41
 
 
-
-
 是存档计时吗？是的话我去备份存档再覆盖能不能重置？
-
-
-
-
-
 
 
 -----
@@ -924,15 +601,9 @@ RPG没中文 告辞
 ##### 46#         楼主| 发表于 2018-6-15 11:42
 
 
-
 <blockquote>alexi1986 发表于 2018-6-15 11:22
 3小时是指一个存档的时间限制么？还是说玩到3个小时就必须要删掉重下？</blockquote>
 是存档时间。但只有一个存档所以跟删了重下没有本质区别，参考主楼的tips 
-
-
-
-
-
 
 
 -----
@@ -941,15 +612,8 @@ RPG没中文 告辞
 ##### 47#       发表于 2018-6-15 11:44
 
 
-
-
 文本方面英文与日文比有什么因为本地化而改变的地方吗？
 没有就可以考虑首发了
-
-
-
-
-
 
 
 -----
@@ -958,23 +622,15 @@ RPG没中文 告辞
 ##### 48#         楼主| 发表于 2018-6-15 11:46
 
 
-
 <blockquote>田所浩治 发表于 2018-6-15 12:41
 是存档计时吗？是的话我去备份存档再覆盖能不能重置？</blockquote>
 不清楚试玩有没有别的限制。没有的话你破解党说不定有机会白嫖。
-
-
-
-
-
 
 
 -----
 
 ####  Laie  
 ##### 49#       发表于 2018-6-15 11:50
-
-
 
 
 文本难度日英都算很平易近人了，台本trope不少但是刚好够用又不出戏，学者的调查技能其实文本量也不多，最近重新把poe1捡起来搞了德英文本同时显示再来玩这个实在舒爽
@@ -986,16 +642,10 @@ bgm平均素质好高，学者和舞娘的theme印象特别深刻，八个人的
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 50#         楼主| 发表于 2018-6-15 11:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39997515&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-6-15 12:42</a>
@@ -1004,16 +654,10 @@ bgm平均素质好高，学者和舞娘的theme印象特别深刻，八个人的
 看了一下是有限制的。试玩版只有第一章的区域，之后的都没开放。所以改存档时间应该意义不大。
 
 
-
-
-
-
-
 -----
 
 ####  田所浩治  
 ##### 51#       发表于 2018-6-15 11:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39997619&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-6-15 11:51</a>
@@ -1022,16 +666,10 @@ bgm平均素质好高，学者和舞娘的theme印象特别深刻，八个人的
 我只想把试玩给的人都玩一遍……
 
 
-
-
-
-
-
 -----
 
 ####  alexi1986  
 ##### 52#       发表于 2018-6-15 11:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39997515&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-6-15 11:42</a>
@@ -1040,16 +678,10 @@ bgm平均素质好高，学者和舞娘的theme印象特别深刻，八个人的
 存档不能删除么？重下一遍怎么也要一个小时，能删存档的话我就不会玩的太紧张了
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 53#         楼主| 发表于 2018-6-15 11:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39997551&amp;ptid=1711545" target="_blank">JimmyJoker 发表于 2018-6-15 12:44</a>
@@ -1060,25 +692,13 @@ bgm平均素质好高，学者和舞娘的theme印象特别深刻，八个人的
 我是日文玩的，后来切英文看了看，英文很考究入戏，也可能跟游戏气质有点CRPG有关。游戏台词密度不大，本地化质量可能比较高。感觉以后有英日各通一遍的冲动。
 
 
-
-
-
-
-
 -----
 
 ####  gkira  
 ##### 54#       发表于 2018-6-15 11:54
 
 
-
-
 怎么换人，我是用的猎人娘，是要进行到见到队友了才能换成队友的剧情吗
-
-
-
-
-
 
 
 -----
@@ -1087,23 +707,16 @@ bgm平均素质好高，学者和舞娘的theme印象特别深刻，八个人的
 ##### 55#         楼主| 发表于 2018-6-15 11:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39997648&amp;ptid=1711545" target="_blank">alexi1986 发表于 2018-6-15 12:53</a>
 
 存档不能删除么？重下一遍怎么也要一个小时，能删存档的话我就不会玩的太紧张了 ...</blockquote>
 存档只有一个，选New Game覆盖掉前面的，时间就重置了。
 
 
-
-
-
-
-
 -----
 
 ####  socinius  
 ##### 56#       发表于 2018-6-15 11:56
-
 
 
  本帖最后由 socinius 于 2018-6-15 13:54 编辑 
@@ -1114,16 +727,10 @@ bgm平均素质好高，学者和舞娘的theme印象特别深刻，八个人的
 —— 来自 samsung SM-G9350, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 57#         楼主| 发表于 2018-6-15 11:57
-
 
 
  本帖最后由 Lunamos 于 2018-6-15 13:00 编辑 
@@ -1135,27 +742,15 @@ bgm平均素质好高，学者和舞娘的theme印象特别深刻，八个人的
 也可以直接退到主界面重开换人覆盖存档。反正之后初始剧情都能跳。
 
 
-
-
-
-
-
 -----
 
 ####  melvin117  
 ##### 58#       发表于 2018-6-15 12:05
 
 
-
-
 配樂絕了，日廠頂級水平
 
 sex還是有些底子的
-
-
-
-
-
 
 
 -----
@@ -1164,15 +759,9 @@ sex還是有些底子的
 ##### 59#       发表于 2018-6-15 12:11
 
 
-
 <blockquote>Lunamos 发表于 2018-6-15 11:57
 见到队友可以招成同伴，可以选择是否观看队友的初始剧情。猎人应该是碰到神官？这样应该就不用打神官的初 ...</blockquote>
 我猎人貌似碰到的是盗贼?银色头发的青年
-
-
-
-
-
 
 
 -----
@@ -1181,14 +770,7 @@ sex還是有些底子的
 ##### 60#       发表于 2018-6-15 12:16
 
 
-
-
 音乐是谁  真心不错啊 
-
-
-
-
-
 
 
 -----
@@ -1197,16 +779,10 @@ sex還是有些底子的
 ##### 61#         楼主| 发表于 2018-6-15 12:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39997851&amp;ptid=1711545" target="_blank">西兹少爷 发表于 2018-6-15 13:11</a>
 
 我猎人貌似碰到的是盗贼?银色头发的青年</blockquote>
 有个岔路，往右走应该就碰到神官了。
-
-
-
-
-
 
 
 -----
@@ -1215,24 +791,16 @@ sex還是有些底子的
 ##### 62#       发表于 2018-6-15 12:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39996218&amp;ptid=1711545" target="_blank">noirfermion 发表于 2018-6-15 10:08</a>
 
 3小时就过了学者和猎人的序章，中间跑路耽误了一段时间。纠结是拿这个档等正式发售还是重开一个试试三小时 ...</blockquote>
 开个新帐号
 
 
-
-
-
-
-
 -----
 
 ####  Rary  
 ##### 63#       发表于 2018-6-15 12:21
-
-
 
 
 比较关心的两个问题：
@@ -1242,16 +810,10 @@ sex還是有些底子的
 主角间有没有互动，还是队友入队后就成了哑巴？
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 64#         楼主| 发表于 2018-6-15 12:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39997947&amp;ptid=1711545" target="_blank">Rary 发表于 2018-6-15 13:21</a>
@@ -1264,25 +826,13 @@ sex還是有些底子的
 可能后期才能看出来，现在队友互动挺少的，特定人的剧情触发的时候跟队友没什么关系，这也是担心游戏可能会做崩的点，8人交错叙事野心可能有点太大了。
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 65#         楼主| 发表于 2018-6-15 12:41
 
 
-
-
 各处转了转，这游戏的讨论热度基本是被没中文不玩支撑起来的……<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1291,16 +841,10 @@ sex還是有些底子的
 ##### 66#       发表于 2018-6-15 12:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39998131&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-6-15 12:41</a>
 
 各处转了转，这游戏的讨论热度基本是被没中文不玩支撑起来的……</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">我就是想这么回复的，没中文不买不玩
-
-
-
-
-
 
 
 -----
@@ -1309,15 +853,9 @@ sex還是有些底子的
 ##### 67#       发表于 2018-6-15 12:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39997900&amp;ptid=1711545" target="_blank">任毒瘤 发表于 2018-6-14 22:16</a>
 音乐是谁  真心不错啊</blockquote>
 西木康智 Nishiki Yasunori
-
-
-
-
-
 
 
 -----
@@ -1326,14 +864,7 @@ sex還是有些底子的
 ##### 68#       发表于 2018-6-15 12:55
 
 
-
-
 大环境在那，玩家已经习惯玩中文了，由奢入俭难啊，何况小厂游戏都有中文，你SE差哪了凭啥没有？
-
-
-
-
-
 
 
 -----
@@ -1342,15 +873,9 @@ sex還是有些底子的
 ##### 69#       发表于 2018-6-15 13:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39995768&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-6-15 10:21</a>
 戒断反应了，下载了OST听到现在一直在发呆。</blockquote>
 ost发售了？
-
-
-
-
-
 
 
 -----
@@ -1359,13 +884,7 @@ ost发售了？
 ##### 70#       发表于 2018-6-15 13:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">有没有人能3小时通关的？
-
-
-
-
-
 
 
 -----
@@ -1374,15 +893,9 @@ ost发售了？
 ##### 71#         楼主| 发表于 2018-6-15 13:25
 
 
-
 <blockquote>pockee 发表于 2018-6-15 14:16
 ost发售了？</blockquote>
 没有吧，但youtube上有不少，可能不全。
-
-
-
-
-
 
 
 -----
@@ -1391,14 +904,7 @@ ost发售了？</blockquote>
 ##### 72#       发表于 2018-6-15 13:29
 
 
-
-
 游戏好玩，但这剧情简直跟弱智一样。
-
-
-
-
-
 
 
 -----
@@ -1407,16 +913,9 @@ ost发售了？</blockquote>
 ##### 73#       发表于 2018-6-15 13:41
 
 
-
-
  跟第一个demo区别大吗
 
 区别不大我就不下了，反正也定了实体
-
-
-
-
-
 
 
 -----
@@ -1425,23 +924,15 @@ ost发售了？</blockquote>
 ##### 74#       发表于 2018-6-15 13:44
 
 
-
-
 之前那个专楼（伪）就是被没中文不玩给毁了
 
 等改能改存档时间的超能力者出现，起码在demo里把八个人收齐啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  leonyang19  
 ##### 75#       发表于 2018-6-15 13:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39998812&amp;ptid=1711545" target="_blank">cy1988813 发表于 2018-6-15 13:41</a>
@@ -1454,25 +945,13 @@ ost发售了？</blockquote>
 系统有完善和调整
 
 
-
-
-
-
-
 -----
 
 ####  agion117  
 ##### 76#       发表于 2018-6-15 13:50
 
 
-
-
 神职小姐姐的剧情居然是传火<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1481,21 +960,13 @@ ost发售了？</blockquote>
 ##### 77#       发表于 2018-6-15 14:05
 
 
-
-
 都很棒，就是主线boss和杂鱼难度还是太低，A上去就赢了
-
-
-
-
-
 
 
 -----
 
 ####  邪紫  
 ##### 78#       发表于 2018-6-15 14:44
-
 
 
  本帖最后由 邪紫 于 2018-6-15 14:48 编辑 
@@ -1505,25 +976,13 @@ ost发售了？</blockquote>
 说来音乐真的棒，剧情也喜欢，每个角色的交互能有浪漫沙加绯红恩典那样，也满足了。
 
 
-
-
-
-
-
 -----
 
 ####  lolozp  
 ##### 79#       发表于 2018-6-15 15:01
 
 
-
-
 se不怎么在乎中文主机市场的，除非港任抢着做汉化
-
-
-
-
-
 
 
 -----
@@ -1532,15 +991,9 @@ se不怎么在乎中文主机市场的，除非港任抢着做汉化
 ##### 80#       发表于 2018-6-15 15:04
 
 
-
 <blockquote>lolozp 发表于 2018-6-15 15:01
 se不怎么在乎中文主机市场的，除非港任抢着做汉化</blockquote>
 任現在連本家都漢化不齊還是算了吧……
-
-
-
-
-
 
 
 -----
@@ -1549,23 +1002,15 @@ se不怎么在乎中文主机市场的，除非港任抢着做汉化</blockquote
 ##### 81#       发表于 2018-6-15 15:09
 
 
-
-
 “这个西瓜真甜啊 可以在哪儿哪儿买”
 
 “我不吃要吐籽的水果”
-
-
-
-
-
 
 
 -----
 
 ####  奶牛  
 ##### 82#       发表于 2018-6-15 15:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39997786&amp;ptid=1711545" target="_blank">melvin117 发表于 2018-6-15 12:05</a>
@@ -1575,25 +1020,13 @@ sex還是有些底子的</blockquote>
 然而配乐的是KONAMI前员工（
 
 
-
-
-
-
-
 -----
 
 ####  nopherier  
 ##### 83#       发表于 2018-6-15 15:19
 
 
-
-
 盗贼打完，剧情真的可以，挺出人意料的。系统相当好玩，可以说是很给力了。
-
-
-
-
-
 
 
 -----
@@ -1602,17 +1035,10 @@ sex還是有些底子的</blockquote>
 ##### 84#       发表于 2018-6-15 15:23
 
 
-
-
 系统看来是听取玩家建议改进了，怪物从break恢复的回合也会攻击
 
 
 不然真的太无脑了
-
-
-
-
-
 
 
 -----
@@ -1621,16 +1047,9 @@ sex還是有些底子的</blockquote>
 ##### 85#       发表于 2018-6-15 15:26
 
 
-
-
 选的英文字母日语语音，结合起来剧情能看懂五六成的样子。开局选了小偷，这声音很熟悉啊，是不是松冈？游戏画风看着很舒服，bgm太赞了！战斗也是很有意思
 
 —— 来自 OnePlus ONEPLUS A5000, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
-
-
-
-
-
 
 
 -----
@@ -1639,16 +1058,10 @@ sex還是有些底子的</blockquote>
 ##### 86#       发表于 2018-6-15 15:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40000030&amp;ptid=1711545" target="_blank">AincradWanderer 发表于 2018-6-15 15:26</a>
 
 选的英文字母日语语音，结合起来剧情能看懂五六成的样子。开局选了小偷，这声音很熟悉啊，是不是松冈？游戏 ...</blockquote>
 其实日文字幕更好 汉字挺多的..
-
-
-
-
-
 
 
 -----
@@ -1657,23 +1070,16 @@ sex還是有些底子的</blockquote>
 ##### 87#         楼主| 发表于 2018-6-15 15:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40000030&amp;ptid=1711545" target="_blank">AincradWanderer 发表于 2018-6-15 16:26</a>
 
 选的英文字母日语语音，结合起来剧情能看懂五六成的样子。开局选了小偷，这声音很熟悉啊，是不是松冈？游戏 ...</blockquote>
 没错，就是松冈……
 
 
-
-
-
-
-
 -----
 
 ####  tasuku  
 ##### 88#       发表于 2018-6-15 15:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39999710&amp;ptid=1711545" target="_blank">lolozp 发表于 2018-6-15 15:01</a>
@@ -1684,16 +1090,10 @@ se不怎么在乎中文主机市场的，除非港任抢着做汉化</blockquote
 是sony搞的汉化？
 
 
-
-
-
-
-
 -----
 
 ####  zikimi  
 ##### 89#       发表于 2018-6-15 16:13
-
 
 
  本帖最后由 zikimi 于 2018-6-15 16:18 编辑 
@@ -1707,25 +1107,13 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 一般PS系是索尼代理，XBOX系是BNEI，任系是老任发行，台湾媒体问八方旅人的情况就是，如果没有代理做的话就没办法了，港任自己做中文都来不及，也没有替第三方做中文的前例，这游戏这么大的文本量我觉得还是希望渺茫
 
 
-
-
-
-
-
 -----
 
 ####  djinn  
 ##### 90#       发表于 2018-6-15 16:23
 
 
-
-
 我在见到新角色后存档，游戏时间重置了？
-
-
-
-
-
 
 
 -----
@@ -1734,16 +1122,9 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 91#       发表于 2018-6-15 16:36
 
 
-
-
 神官的第一章能遇见别的同伴吗？中午休息时间粗略把神官第一章打完了没太注意<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 —— 来自 Sony G8342, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2
-
-
-
-
-
 
 
 -----
@@ -1752,16 +1133,10 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 92#       发表于 2018-6-15 16:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39998522&amp;ptid=1711545" target="_blank">纯白花火 发表于 2018-6-15 13:17</a>
 
 有没有人能3小时通关的？</blockquote>
 只能在第一章范围里活动
-
-
-
-
-
 
 
 -----
@@ -1770,14 +1145,7 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 93#       发表于 2018-6-15 16:38
 
 
-
-
 美版试玩有吗？
-
-
-
-
-
 
 
 -----
@@ -1786,23 +1154,16 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 94#       发表于 2018-6-15 16:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40000703&amp;ptid=1711545" target="_blank">djinn 发表于 2018-6-15 16:23</a>
 
 我在见到新角色后存档，游戏时间重置了？</blockquote>
 并不是，遇到新角色后会问你要不要回顾你遇到他/她之前的故事，回顾的话才会出现这种情况，回顾完就会接着你现在的时间（大概）
 
 
-
-
-
-
-
 -----
 
 ####  leonyang19  
 ##### 95#       发表于 2018-6-15 16:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40000856&amp;ptid=1711545" target="_blank">pissca 发表于 2018-6-15 16:36</a>
@@ -1814,16 +1175,10 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 每个人的第一章都是独立的，不会遇到其他同伴
 
 
-
-
-
-
-
 -----
 
 ####  djinn  
 ##### 96#       发表于 2018-6-15 16:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40000903&amp;ptid=1711545" target="_blank">leonyang19 发表于 2018-6-15 16:40</a>
@@ -1832,16 +1187,10 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 我还以为可以三小时以内传火给下一个角色。
 
 
-
-
-
-
-
 -----
 
 ####  pissca  
 ##### 97#       发表于 2018-6-15 16:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40000921&amp;ptid=1711545" target="_blank">leonyang19 发表于 2018-6-15 16:41</a>
@@ -1851,16 +1200,10 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 —— 来自 Sony G8342, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2
 
 
-
-
-
-
-
 -----
 
 ####  leonyang19  
 ##### 98#       发表于 2018-6-15 16:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40000939&amp;ptid=1711545" target="_blank">djinn 发表于 2018-6-15 16:43</a>
@@ -1873,25 +1216,13 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 稍微快点的话3小时收4个人还是没问题的
 
 
-
-
-
-
-
 -----
 
 ####  西兹少爷  
 ##### 99#       发表于 2018-6-15 16:51
 
 
-
-
 剧情怎么弱智了?正统jrpg的各种展开没什么问题啊，我就玩了个猎人线是师傅去除怪没回来然后找师傅有什么问题?
-
-
-
-
-
 
 
 -----
@@ -1900,14 +1231,7 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 100#       发表于 2018-6-15 16:57
 
 
-
-
 舞娘为父报仇这里感觉也没什么太弱智的，要么黑一下舞娘的武力以及为什么会武功？
-
-
-
-
-
 
 
 -----
@@ -1916,14 +1240,7 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 101#       发表于 2018-6-15 17:00
 
 
-
-
 昨晚下好，今天开完。赞。在纠结要不要搞个限定版。
-
-
-
-
-
 
 
 -----
@@ -1932,16 +1249,9 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 102#       发表于 2018-6-15 17:01
 
 
-
-
 还想在正式版出来前刷下级等发售后顺畅过剧情，结果是这种机制<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -1950,17 +1260,10 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 103#       发表于 2018-6-15 20:49
 
 
-
-
 为啥这风格看着好想玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
-
-
-
-
-
 
 
 -----
@@ -1969,19 +1272,11 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 104#       发表于 2018-6-15 21:01
 
 
-
-
 玩了一小时商人妹 之前还觉得这游戏卖60刀真坑的 
 现在 真香<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
-
 —— 来自 Sony H8324, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0
-
-
-
-
-
 
 
 -----
@@ -1990,14 +1285,7 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 105#       发表于 2018-6-15 21:02
 
 
-
-
 好玩的，还有 HD 震动
-
-
-
-
-
 
 
 -----
@@ -2006,16 +1294,9 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 106#       发表于 2018-6-15 21:02
 
 
-
-
 猎人妹子说的是。。。额。。。方言吗，为啥看不懂啊，就三个小时又不好边查字典边玩。。。淦嘞<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -2024,23 +1305,15 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 107#       发表于 2018-6-15 21:03
 
 
-
-
 死亡一年，免费更新中文。
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  skullgreymon  
 ##### 108#       发表于 2018-6-15 21:05
-
 
 
  本帖最后由 skullgreymon 于 2018-6-15 23:18 编辑 
@@ -2053,16 +1326,10 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 好吧原来洞边上还有小路<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">3个小时打了3个人，如果熟悉一点差不多能打完4个。
 
 
-
-
-
-
-
 -----
 
 ####  skullgreymon  
 ##### 109#       发表于 2018-6-15 21:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40003174&amp;ptid=1711545" target="_blank">骊歌三叠 发表于 2018-6-15 22:02</a>
@@ -2074,26 +1341,15 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 好像是古英语，感觉冰与火之歌里经常出现这些词
 
 
-
-
-
-
-
 -----
 
 ####  blackll7  
 ##### 110#       发表于 2018-6-15 21:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40003192&amp;ptid=1711545" target="_blank">skullgreymon 发表于 2018-6-15 21:05</a>
 玩了两个小时，初始猎人然后碰到小偷，接下来上面个lv25的洞穴demo不让进，下面有个lv20的洞穴进去遇到怪就 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/001.png" referrerpolicy="no-referrer">小偷巨强啊，只是你第二个加入等级低了而已，小偷自带吸血和吸蓝还是二段的倍率还不低，随便丢技能。
-
-
-
-
-
 
 
 -----
@@ -2102,17 +1358,10 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 111#       发表于 2018-6-15 21:16
 
 
-
-
 玩了demo1，第二个还没空下
 个人来说更喜欢英语配音，但是英字有些乱七八糟的口音看起来甚至不如日语好懂，还没想好玩哪个，玩掉demo2再决定吧
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -2121,16 +1370,10 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 112#       发表于 2018-6-15 21:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40003291&amp;ptid=1711545" target="_blank">冰原狼 发表于 2018-6-15 21:16</a>
 玩了demo1，第二个还没空下
 个人来说更喜欢英语配音，但是英字有些乱七八糟的口音看起来甚至不如日语好懂， ...</blockquote>
 说实话舞女那个英文语音有点出戏……美剧女高中生感
-
-
-
-
-
 
 
 -----
@@ -2139,14 +1382,7 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 113#       发表于 2018-6-15 22:35
 
 
-
-
 打了トレサ线 玩不到正式版我要死了
-
-
-
-
-
 
 
 -----
@@ -2155,23 +1391,15 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 114#       发表于 2018-6-15 22:38
 
 
-
-
 这个游戏 有中文化可能么？
 
 搜了一圈消息 没发现有
-
-
-
-
-
 
 
 -----
 
 ####  桐道悠  
 ##### 115#       发表于 2018-6-15 22:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40003983&amp;ptid=1711545" target="_blank">冰比冰水冰 发表于 2018-6-15 22:38</a>
@@ -2182,17 +1410,10 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 现在没有任何消息说可能有中文，而且按照惯例看来，有中文的可能性也不是很大……
 
 
-
-
-
-
-
 -----
 
 ####  yzxmly  
 ##### 116#       发表于 2018-6-15 22:50
-
-
 
 
 这些有成功率的个人技能，在别的村有办法提高成功率吗
@@ -2200,16 +1421,10 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  冰比冰水冰  
 ##### 117#       发表于 2018-6-15 22:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40004112&amp;ptid=1711545" target="_blank">桐道悠 发表于 2018-6-15 22:48</a>
@@ -2220,17 +1435,10 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 无法享受到这个游戏有点可惜啊
 
 
-
-
-
-
-
 -----
 
 ####  Elaina  
 ##### 118#       发表于 2018-6-15 23:23
-
-
 
 
 刚试玩了第一轮（3小时），初始选神官，逆时针做了猎人和盗贼的第一章剧情刚好时间到
@@ -2245,16 +1453,10 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 唯一不太舒服的一点是跑似乎不能改方向，所以按住B加速的时候断断续续的
 
 
-
-
-
-
-
 -----
 
 ####  osk666  
 ##### 119#       发表于 2018-6-16 00:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40001122&amp;ptid=1711545" target="_blank">nw77 发表于 2018-6-15 17:00</a>
@@ -2263,17 +1465,10 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 好像是日版没限定，美版才有？不过美版也没货了
 
 
-
-
-
-
-
 -----
 
 ####  杰克史密斯  
 ##### 120#       发表于 2018-6-16 00:55
-
-
 
 
 试了demo发现太对胃口了，现在肥肠想要中文<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
@@ -2281,17 +1476,10 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 121#       发表于 2018-6-16 00:59
-
-
 
 
 用商人遇到一个稀有怪？
@@ -2301,27 +1489,15 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 它攻击是乾坤一掷，第二回合跑了
 
 
-
-
-
-
-
 -----
 
 ####  人型战舰  
 ##### 122#       发表于 2018-6-16 01:19
 
 
-
-
 的确很好玩，已经预定了！
 
 说起来推荐一下八方旅人的精神祖宗live a live吧，虽然我不喜欢live a live的战斗系统，但是它的剧情横跨数万年，不同角色世界观差异很大，比如说原始社会没有一句对白，未来世界没有战斗什么的。
-
-
-
-
-
 
 
 -----
@@ -2330,21 +1506,13 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 123#       发表于 2018-6-16 01:22
 
 
-
-
 等上steam，se没节操，估计半年就能上pc能玩中文了
-
-
-
-
-
 
 
 -----
 
 ####  Laie  
 ##### 124#       发表于 2018-6-16 02:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40003174&amp;ptid=1711545" target="_blank">骊歌三叠 发表于 2018-6-15 21:02</a>
@@ -2359,17 +1527,10 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 其实有兴趣的话查下基本的词和变化规则，再看下贝奥武夫的对照本+在线翻译就无压力了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Laie  
 ##### 125#       发表于 2018-6-16 02:09
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/16/020823yb5549hwbbxy0axa.png" referrerpolicy="no-referrer">
@@ -2382,9 +1543,6 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 2018-6-16 02:08 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/16/020828xo9t7zy7dz9ny2d4.png" referrerpolicy="no-referrer">
 
 
@@ -2395,21 +1553,9 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 2018-6-16 02:08 上传
 
 
-
-
-
-
-
 强力路人npc还有背景故事，这分明暗示还有另外7个这么强的npc让你去找吧w
 
 加起来数字也是8，年龄是8x8=64，跟8有关的设定或者小neta看来不会少
-
-
-
-
-
-
-
 
 
 -----
@@ -2418,15 +1564,9 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 126#       发表于 2018-6-16 05:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40004912&amp;ptid=1711545" target="_blank">osk666 发表于 2018-6-16 00:22</a>
 好像是日版没限定，美版才有？不过美版也没货了</blockquote>
 看了下bestbuy货源充足啊，有那个会员还20off
-
-
-
-
-
 
 
 -----
@@ -2435,16 +1575,9 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 127#       发表于 2018-6-16 05:19
 
 
-
-
 在玩商人小姐姐，記得之前的demo每個人都能說話+勾引（用的是舞女），可是這個就只有部分人才可以互動
 
 空虛了很多啊
-
-
-
-
-
 
 
 -----
@@ -2453,16 +1586,9 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 128#       发表于 2018-6-16 05:57
 
 
-
-
 刚下了demo玩了一会小偷。开场全村都能偷光，要是偷了穷人的钱是不是会影响人物某种属性？毕竟人物看着不像帕奇那样的角色，如果不是劫富济贫，和以后的性格刻画怕是会违和。话说穷人身上的好东西还不少。
 战斗还是挺单调的，找出弱点击破就能无脑开无双。也许是我没玩多久。
 还是勇气默示录那个组的话剧情可能没法过多期待了。
-
-
-
-
-
 
 
 -----
@@ -2471,20 +1597,13 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 129#       发表于 2018-6-16 06:51
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">盗贼开头酒馆的bgm听醉了，虽然这旋律总觉得在某个凯尔特风的素材碟里头听过
-
-
-
-
-
 
 
 -----
 
 ####  osk666neo  
 ##### 130#       发表于 2018-6-16 07:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40006171&amp;ptid=1711545" target="_blank">silverashashash 发表于 2018-6-16 05:11</a>
@@ -2496,32 +1615,19 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 —— 来自 Sony G8142, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  hyuy  
 ##### 131#       发表于 2018-6-16 08:01
 
 
-
-
 可惜 没中文这游戏对我吸引力下降80%
-
-
-
-
-
 
 
 -----
 
 ####  osk666neo  
 ##### 132#       发表于 2018-6-16 08:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40006171&amp;ptid=1711545" target="_blank">silverashashash 发表于 2018-6-16 05:11</a>
@@ -2531,27 +1637,15 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 —— 来自 Sony G8142, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  moekyo  
 ##### 133#       发表于 2018-6-16 10:15
 
 
-
-
 有人知道日文的字体什么嘛，有这个平假名死都看不出是什么<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -2560,23 +1654,15 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 134#       发表于 2018-6-16 10:29
 
 
-
-
 发现这游戏有个问题，战斗里找道具只有道具名没有作用说明，我日，都不知道哪些是干嘛的。。
 
 —— 来自 OnePlus ONEPLUS A5010, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
-
-
-
-
-
 
 
 -----
 
 ####  Lunamos  
 ##### 135#         楼主| 发表于 2018-6-16 10:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40007550&amp;ptid=1711545" target="_blank">w酱 发表于 2018-6-16 11:29</a>
@@ -2588,27 +1674,15 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 按一下Y键会有一个说明框
 
 
-
-
-
-
-
 -----
 
 ####  aa_ren  
 ##### 136#       发表于 2018-6-16 11:15
 
 
-
-
 泥潭人人看动画打游戏轻松过N1的大佬，被这个游戏就一个个都炸出来没中文玩不了了？
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -2617,14 +1691,7 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 137#       发表于 2018-6-16 11:42
 
 
-
-
 学者这序章，询问目击者，收集线索抓犯人，倒是更像个检察官
-
-
-
-
-
 
 
 -----
@@ -2633,16 +1700,10 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 138#       发表于 2018-6-16 12:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40006335&amp;ptid=1711545" target="_blank">Laie 发表于 2018-6-16 06:51</a>
 
 盗贼开头酒馆的bgm听醉了，虽然这旋律总觉得在某个凯尔特风的素材碟里头听过 ...</blockquote>
 对对对就是凯尔特风！听着太舒服了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2651,22 +1712,15 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 139#       发表于 2018-6-16 12:02
 
 
-
  本帖最后由 zikimi 于 2018-6-16 12:06 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">圣女有什么比较好的队员吗？本体输出也太低了，根本无法阻止小怪自爆
-
-
-
-
-
 
 
 -----
 
 ####  leonyang19  
 ##### 140#       发表于 2018-6-16 12:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40008515&amp;ptid=1711545" target="_blank">zikimi 发表于 2018-6-16 12:02</a>
@@ -2677,16 +1731,10 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 那个火弱冰，不行的话带上镇子与教会交界处那里，特技是提升防御的那个NPC，她会用冰技能而且是连击，一次攻击可以剥掉两层还是三层壳
 
 
-
-
-
-
-
 -----
 
 ####  zikimi  
 ##### 141#       发表于 2018-6-16 12:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40008567&amp;ptid=1711545" target="_blank">leonyang19 发表于 2018-6-16 12:08</a>
@@ -2696,25 +1744,13 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感谢，我这就试试
 
 
-
-
-
-
-
 -----
 
 ####  Mr_raindrop  
 ##### 142#       发表于 2018-6-16 12:26
 
 
-
-
 很棒，会买实体版
-
-
-
-
-
 
 
 -----
@@ -2723,14 +1759,7 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 143#       发表于 2018-6-16 12:31
 
 
-
-
 把商人和学者打完了，太赞了，有神作潜质
-
-
-
-
-
 
 
 -----
@@ -2739,16 +1768,9 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 144#       发表于 2018-6-16 13:53
 
 
-
-
 为什么我3小时到了还能玩
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -2757,20 +1779,13 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 145#       发表于 2018-6-16 13:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">能众筹要中文吗 感觉很对胃口
-
-
-
-
-
 
 
 -----
 
 ####  Elaina  
 ##### 146#       发表于 2018-6-16 14:00
-
 
 
 <blockquote>gkira 发表于 2018-6-16 13:53
@@ -2781,16 +1796,10 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 好像在checkpoint之前都不会强制终止游戏，比如遇到一段长剧情，在结束前都还可以继续玩的
 
 
-
-
-
-
-
 -----
 
 ####  skullgreymon  
 ##### 147#       发表于 2018-6-16 15:20
-
 
 
  本帖最后由 skullgreymon 于 2018-6-17 01:06 编辑 
@@ -2800,26 +1809,13 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 目前玩了两次通了7个人，神官是一定要的，没有神官奶妈后期要浪费很多时间吃药。舞娘和神官不知道哪能搞到强力npc啊，猎人去小偷城堡里能抓到攻击力很高的冰灯
 
 
-
-
-
-
-
-
 -----
 
 ####  kurama221  
 ##### 148#       发表于 2018-6-16 17:08
 
 
-
-
 你们是不是都学者开场？对我被他的美貌吸引打完第一章溜了半天城里再打完神官已经过去俩小时半了，天啊我不舍得接着玩了呜呜咕
-
-
-
-
-
 
 
 -----
@@ -2828,16 +1824,10 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 149#         楼主| 发表于 2018-6-16 17:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40011006&amp;ptid=1711545" target="_blank">kurama221 发表于 2018-6-16 18:08</a>
 
 你们是不是都学者开场？对我被他的美貌吸引打完第一章溜了半天城里再打完神官已经过去俩小时半了，天啊我不 ...</blockquote>
 感觉最多的可能是猎人开场，很多人被那个腰线和屁股吸进去了……
-
-
-
-
-
 
 
 -----
@@ -2846,22 +1836,13 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 150#       发表于 2018-6-16 17:19
 
 
-
-
 噫屁颠屁颠想去小妖订已经下架了，昨天还有的。求问还有包邮区哪家店靠谱点的，心凉凉
-
-
-
-
-
 
 
 -----
 
 ####  饼脸遥  
 ##### 151#       发表于 2018-6-16 17:22
-
-
 
 
 舞娘那个摩诃不思议之舞太搞了
@@ -2871,17 +1852,10 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 第二次落雷打BOSS97HP 烧光舞娘剩下的MP 在队友丛里点火每人烧了50HP<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  饼脸遥  
 ##### 152#       发表于 2018-6-16 17:24
-
-
 
 
 打了两遍3小时
@@ -2891,16 +1865,10 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 感觉神官的回血和学者的看弱点特别BUG 其他的都还好
 
 
-
-
-
-
-
 -----
 
 ####  skullgreymon  
 ##### 153#       发表于 2018-6-16 17:25
-
 
 
  本帖最后由 skullgreymon 于 2018-6-16 18:27 编辑 
@@ -2909,16 +1877,10 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 但真正最可爱的声音是商人日配，我停不下来了<img src="https://static.saraba1st.com/image/smiley/face2017/146.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  leonyang19  
 ##### 154#       发表于 2018-6-16 17:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40011174&amp;ptid=1711545" target="_blank">skullgreymon 发表于 2018-6-16 17:25</a>
@@ -2927,25 +1889,13 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 看PV的时候，商人的英配也很好听，很有朝气，日配还没来得及玩
 
 
-
-
-
-
-
 -----
 
 ####  Gobioid  
 ##### 155#       发表于 2018-6-16 17:55
 
 
-
-
 还好我中午在小妖家订了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2954,14 +1904,7 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 156#       发表于 2018-6-16 18:03
 
 
-
-
 买了电子版了
-
-
-
-
-
 
 
 -----
@@ -2970,23 +1913,15 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 ##### 157#       发表于 2018-6-16 19:44
 
 
-
-
 商人那几个支线怎么做，讨厌弱气男人的女人
 
 是要买男人那个1w的弓吗
-
-
-
-
-
 
 
 -----
 
 ####  Laie  
 ##### 158#       发表于 2018-6-16 20:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40010159&amp;ptid=1711545" target="_blank">skullgreymon 发表于 2018-6-16 15:20</a>
@@ -3005,16 +1940,7 @@ FF15是SIE搞的中文，不过是应该是SE出的钱，不然X1和steam也不�
 2018-6-16 20:06 上传
 
 
-
-
-
-
 reddit有个2小时47分全收的
-
-
-
-
-
 
 
 -----
@@ -3023,14 +1949,7 @@ reddit有个2小时47分全收的
 ##### 159#       发表于 2018-6-16 20:14
 
 
-
-
 只看宣传视频的话，感觉文本不是特别难，查查字典也能看懂的，就担心实际游戏内的文本会有比较复杂的内容导致看不懂任务卡关<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">这个真的好想买啊…………就怕
-
-
-
-
-
 
 
 -----
@@ -3039,22 +1958,13 @@ reddit有个2小时47分全收的
 ##### 160#       发表于 2018-6-16 20:29
 
 
-
-
 大坑聚聚送我豪华礼盒啊
-
-
-
-
-
 
 
 -----
 
 ####  whzfjk  
 ##### 161#       发表于 2018-6-16 20:36
-
-
 
 
 玩了1h神官线，感觉非常好。明明之前试玩舞娘和剑士时完全没有感觉，但是现在玩就感觉画面爽爆、移动时很有沉浸感、语音脚本不急不缓很是舒服<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
@@ -3067,25 +1977,13 @@ reddit有个2小时47分全收的
 之前试玩最反感的就是菜单界面那戳玻璃一样的手感，没想到竟然真改善了，而且还非常理想，万分感动。
 
 
-
-
-
-
-
 -----
 
 ####  falsethen  
 ##### 162#       发表于 2018-6-16 20:55
 
 
-
-
 不管了，先买了再说。啃不动日文了就信一波地狱，等中文更新。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3094,14 +1992,7 @@ reddit有个2小时47分全收的
 ##### 163#       发表于 2018-6-16 21:11
 
 
-
-
 3小时就是不能出门啊在村里还是可以继续的 药师村里有贼能偷的金斧子3%机会 强行SL到手了
-
-
-
-
-
 
 
 -----
@@ -3110,16 +2001,9 @@ reddit有个2小时47分全收的
 ##### 164#       发表于 2018-6-16 21:40
 
 
-
-
 玩的女猎，30分钟沉沦，有没有中文都入定了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 求问猎人的技能哪些值得学，现在就学了个雷鸟
-
-
-
-
-
 
 
 -----
@@ -3128,14 +2012,7 @@ reddit有个2小时47分全收的
 ##### 165#       发表于 2018-6-16 21:44
 
 
-
-
 音乐真心爽，貌似跟肝报废是同一人。
-
-
-
-
-
 
 
 -----
@@ -3144,16 +2021,10 @@ reddit有个2小时47分全收的
 ##### 166#       发表于 2018-6-16 22:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40013396&amp;ptid=1711545" target="_blank">falsethen 发表于 2018-6-16 20:55</a>
 
 不管了，先买了再说。啃不动日文了就信一波地狱，等中文更新。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这游戏语言跟老任没啥关系啊 这是SE的
-
-
-
-
-
 
 
 -----
@@ -3162,24 +2033,16 @@ reddit有个2小时47分全收的
 ##### 167#       发表于 2018-6-16 22:14
 
 
-
-
 等等，这舞女线的暗示好强烈啊，这到底是去跳舞还是去卖身啊，日剧里经常出现的台词啊
 拒绝破鞋啊
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  skullgreymon  
 ##### 168#       发表于 2018-6-16 22:20
-
 
 
 <blockquote>pei1019 发表于 2018-6-16 22:40
@@ -3189,16 +2052,10 @@ reddit有个2小时47分全收的
 你不打算收齐队友的话就随便学，最强的我觉得是24sp的全体射箭，有个boss必须用这个破甲
 
 
-
-
-
-
-
 -----
 
 ####  skullgreymon  
 ##### 169#       发表于 2018-6-16 22:22
-
 
 
  本帖最后由 skullgreymon 于 2018-6-17 01:09 编辑 
@@ -3207,16 +2064,10 @@ reddit有个2小时47分全收的</blockquote>
 厉害，我1个半小时卡在第四个贼boss这。 第三个猎人boss，sl了无数次才过，血太厚了
 
 
-
-
-
-
-
 -----
 
 ####  falsethen  
 ##### 170#       发表于 2018-6-16 23:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40014103&amp;ptid=1711545" target="_blank">帝蓝 发表于 2018-6-16 22:07</a>
@@ -3225,16 +2076,10 @@ reddit有个2小时47分全收的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">但是魔界战记5不也是第三方的，后期更新了中文么
 
 
-
-
-
-
-
 -----
 
 ####  帝蓝  
 ##### 171#       发表于 2018-6-16 23:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40015086&amp;ptid=1711545" target="_blank">falsethen 发表于 2018-6-16 23:26</a>
@@ -3243,26 +2088,15 @@ reddit有个2小时47分全收的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">日本一跟SE能一样么？后续更新的几率太低
 
 
-
-
-
-
-
 -----
 
 ####  3436  
 ##### 172#       发表于 2018-6-16 23:34
 
 
-
 [https://www.bilibili.com/video/av25025292](https://www.bilibili.com/video/av25025292)
 
 美希命的翻译还是让我觉得，有中文翻译或者有一个好的中文翻译舒服太多了，母语带来的亲切感和代入感不是说笑的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3271,21 +2105,13 @@ reddit有个2小时47分全收的</blockquote>
 ##### 173#       发表于 2018-6-16 23:47
 
 
-
-
 日语的话，虽然不知道准确的中文表达，但是大致意思还是能感觉到，还有音字对应的流畅度加成。
-
-
-
-
-
 
 
 -----
 
 ####  skullgreymon  
 ##### 174#       发表于 2018-6-17 00:03
-
 
 
  本帖最后由 skullgreymon 于 2018-6-17 01:09 编辑 
@@ -3300,25 +2126,13 @@ reddit有个2小时47分全收的</blockquote>
 输出最高的是猎人，最后一个满boost的野兽一下打boss2000多血orz，学者同级别也就600<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 其他人没啥输出，就是补血补魔打崩溃用的。
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 175#         楼主| 发表于 2018-6-17 00:20
 
 
-
-
 居然能3小时全收吗，感觉好刺激。
-
-
-
-
-
 
 
 -----
@@ -3327,16 +2141,9 @@ reddit有个2小时47分全收的</blockquote>
 ##### 176#       发表于 2018-6-17 00:34
 
 
-
-
 上一次试玩过了舞女和战士，这次玩了商人线又顺路收了战士，ns游戏荒时玩到这个真是犹如天降甘霖。可是还不敢买，就怕哪天se良心发现出个中文，却只出在一个发行地区
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -3345,14 +2152,7 @@ reddit有个2小时47分全收的</blockquote>
 ##### 177#       发表于 2018-6-17 00:38
 
 
-
-
 玩了一会感觉很对胃口，就是我这蹩脚英语看着好累<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3361,14 +2161,7 @@ reddit有个2小时47分全收的</blockquote>
 ##### 178#       发表于 2018-6-17 00:56
 
 
-
-
 很好奇他们知道p5和xb2的国内数据吗？是日厂管理死板所以商业上反应慢吗？
-
-
-
-
-
 
 
 -----
@@ -3377,16 +2170,10 @@ reddit有个2小时47分全收的</blockquote>
 ##### 179#       发表于 2018-6-17 01:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40016160&amp;ptid=1711545" target="_blank">wildgazelle 发表于 2018-6-17 00:56</a>
 很好奇他们知道p5和xb2的国内数据吗？是日厂管理死板所以商业上反应慢吗？ ...</blockquote>
 是se这个厂脑袋有洞
 其他日厂现在都知道中国玩家傻多速的道理
-
-
-
-
-
 
 
 -----
@@ -3395,16 +2182,10 @@ reddit有个2小时47分全收的</blockquote>
 ##### 180#       发表于 2018-6-17 09:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40016160&amp;ptid=1711545" target="_blank">wildgazelle 发表于 2018-6-17 00:56</a>
 
 很好奇他们知道p5和xb2的国内数据吗？是日厂管理死板所以商业上反应慢吗？ ...</blockquote>
 那么国内数据到底有多少
-
-
-
-
-
 
 
 -----
@@ -3413,16 +2194,10 @@ reddit有个2小时47分全收的</blockquote>
 ##### 181#       发表于 2018-6-17 09:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40015887&amp;ptid=1711545" target="_blank">没取名啊 发表于 2018-6-17 00:34</a>
 
 上一次试玩过了舞女和战士，这次玩了商人线又顺路收了战士，ns游戏荒时玩到这个真是犹如天降甘霖。可是还不 ...</blockquote>
 这次八方旅人好像是全地区全语言的，要是出中文了感觉也大概率是全区更新。。。不过我也不能确定，反正我是为了豪华版买了美版的就是了
-
-
-
-
-
 
 
 -----
@@ -3431,21 +2206,13 @@ reddit有个2小时47分全收的</blockquote>
 ##### 182#       发表于 2018-6-17 09:49
 
 
-
-
 看了一楼的日版cv才发现盗贼和神官的cv是松冈爱衣，是不是在暗示什么咦嘻嘻
-
-
-
-
-
 
 
 -----
 
 ####  七十六  
 ##### 183#       发表于 2018-6-17 09:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40014161&amp;ptid=1711545" target="_blank">愿墨争皓月 发表于 2018-6-16 22:14</a>
@@ -3456,23 +2223,16 @@ reddit有个2小时47分全收的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">可以说是明示了吧，肥仔两句台词“今晚照常来我房间”“就像平时那样讨好我吧”，只能说舞娘为了复仇牺牲了太多。
 
 
-
-
-
-
-
 -----
 
 ####  Rary  
 ##### 184#       发表于 2018-6-17 10:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40018896&amp;ptid=1711545" target="_blank">kurama221 发表于 2018-6-17 09:49</a>
 
 看了一楼的日版cv才发现盗贼和神官的cv是松冈爱衣，是不是在暗示什么咦嘻嘻 ...</blockquote>
 ost封面，神官和盗贼挺有cp感
-
 
 
 <img src="https://img.saraba1st.com/forum/201806/17/101524qz6h1as836zpxmoa.jpg" referrerpolicy="no-referrer">
@@ -3485,30 +2245,13 @@ ost封面，神官和盗贼挺有cp感
 2018-6-17 10:15 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 185#       发表于 2018-6-17 12:23
 
 
-
-
 请问大佬们某宝上的限定版能买吗，我看跟日亚价格差了一倍啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3517,14 +2260,7 @@ ost封面，神官和盗贼挺有cp感
 ##### 186#       发表于 2018-6-17 14:24
 
 
-
-
 3个小时打发叫花子，不玩了，等发售再玩
-
-
-
-
-
 
 
 -----
@@ -3533,16 +2269,10 @@ ost封面，神官和盗贼挺有cp感
 ##### 187#       发表于 2018-6-17 14:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40020210&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-06-17 12:23:23</a>
 请问大佬们某宝上的限定版能买吗，我看跟日亚价格差了一倍啊</blockquote>这游戏日版没限定吧 你确定你日亚看的不是非自营的美版限定<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -3551,13 +2281,7 @@ ost封面，神官和盗贼挺有cp感
 ##### 188#       发表于 2018-6-17 17:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">怎么找到其他7个人的，有没有点提示？
-
-
-
-
-
 
 
 -----
@@ -3566,16 +2290,10 @@ ost封面，神官和盗贼挺有cp感
 ##### 189#       发表于 2018-6-17 17:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40022535&amp;ptid=1711545" target="_blank">蓝泽玲 发表于 2018-6-17 17:11</a>
 
 怎么找到其他7个人的，有没有点提示？</blockquote>
 大地图上有
-
-
-
-
-
 
 
 -----
@@ -3584,16 +2302,9 @@ ost封面，神官和盗贼挺有cp感
 ##### 190#       发表于 2018-6-17 17:48
 
 
-
-
 好像除了地图上的绿点就没有别的任务提示了？感觉正式版会收了下一个角色忘了上一个的主线在哪啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有支线又是在哪里看的
 
 —— 来自 Sony G8441, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0
-
-
-
-
-
 
 
 -----
@@ -3602,14 +2313,7 @@ ost封面，神官和盗贼挺有cp感
 ##### 191#       发表于 2018-6-17 18:44
 
 
-
-
 旅程记录默认是主线，按R就可以看支线了
-
-
-
-
-
 
 
 -----
@@ -3618,14 +2322,7 @@ ost封面，神官和盗贼挺有cp感
 ##### 192#       发表于 2018-6-17 19:04
 
 
-
-
 随便玩了玩，这日语难度基本上算是小学生水平，玩了一个小时我连字典都没翻过一次
-
-
-
-
-
 
 
 -----
@@ -3634,16 +2331,10 @@ ost封面，神官和盗贼挺有cp感
 ##### 193#       发表于 2018-6-17 20:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40023314&amp;ptid=1711545" target="_blank">Gobioid 发表于 2018-6-17 18:44</a>
 
 旅程记录默认是主线，按R就可以看支线了</blockquote>
 哦哦！感谢！
-
-
-
-
-
 
 
 -----
@@ -3652,16 +2343,9 @@ ost封面，神官和盗贼挺有cp感
 ##### 194#       发表于 2018-6-17 22:23
 
 
-
-
 其实，舞女打完初章boss出去旅行后，完全不用再穿舞女服了啊<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -3670,16 +2354,10 @@ ost封面，神官和盗贼挺有cp感
 ##### 195#       发表于 2018-6-17 22:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40025190&amp;ptid=1711545" target="_blank">没取名啊 发表于 2018-06-17 22:23:08</a>
 其实，舞女打完初章boss出去旅行后，完全不用再穿舞女服了啊</blockquote>不知这游戏会不会有换装要素 感觉工作量不会太大吧也..
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -3688,16 +2366,10 @@ ost封面，神官和盗贼挺有cp感
 ##### 196#       发表于 2018-6-18 00:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40025241&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-06-17 22:29:41</a>
 不知这游戏会不会有换装要素 感觉工作量不会太大吧也..</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">这游戏有混合职业，同时也会影响角色外观。
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -3706,21 +2378,13 @@ ost封面，神官和盗贼挺有cp感
 ##### 197#       发表于 2018-6-18 08:36
 
 
-
-
 2小时50分全收了 路上还打了个经验怪 舞女从5级直接升到了15级 有毅力sl刷的话 试玩版升到50级都有可能
-
-
-
-
-
 
 
 -----
 
 ####  千川ちひろ  
 ##### 198#       发表于 2018-6-18 10:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40027999&amp;ptid=1711545" target="_blank">假山君 发表于 2018-6-18 08:36</a>
@@ -3731,25 +2395,13 @@ ost封面，神官和盗贼挺有cp感
 — from OnePlus ONEPLUS A5010, Android 8.1.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  manyin1  
 ##### 199#       发表于 2018-6-18 10:28
 
 
-
-
 日没中文真是一大遗憾啊
-
-
-
-
-
 
 
 -----
@@ -3758,14 +2410,7 @@ ost封面，神官和盗贼挺有cp感
 ##### 200#       发表于 2018-6-18 10:36
 
 
-
-
 玩了下商人，剧情有点平淡、老套，战斗还是踩地雷+排排站回合制...不过反倒有点想玩了
-
-
-
-
-
 
 
 -----
@@ -3774,20 +2419,13 @@ ost封面，神官和盗贼挺有cp感
 ##### 201#       发表于 2018-6-18 10:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Ultranol  
 ##### 202#       发表于 2018-6-18 12:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40012597&amp;ptid=1711545" target="_blank">cqkxywj 发表于 2018-06-16 19:44:51</a>
@@ -3798,27 +2436,15 @@ ost封面，神官和盗贼挺有cp感
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  pei1019  
 ##### 203#       发表于 2018-6-18 14:50
 
 
-
-
 …………3个小时都不够我刷怪的。
 
 趁着没上瘾把试玩删了，坐等七月。希望能偷跑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3827,23 +2453,16 @@ ost封面，神官和盗贼挺有cp感
 ##### 204#         楼主| 发表于 2018-6-18 14:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40028826&amp;ptid=1711545" target="_blank">lolozp 发表于 2018-6-18 11:38</a>
 
 伪中文系统怎么切换日文的？打开默认是英文设置里只能修改语音 ...</blockquote>
 应该没什么办法吧，只能切日文系统再进游戏。
 
 
-
-
-
-
-
 -----
 
 ####  Pettabuz  
 ##### 205#       发表于 2018-6-18 15:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40028826&amp;ptid=1711545" target="_blank">lolozp 发表于 2018-6-18 10:38</a>
@@ -3855,27 +2474,15 @@ ost封面，神官和盗贼挺有cp感
 这点不如之前那个demo，游戏内可以随便换
 
 
-
-
-
-
-
 -----
 
 ####  千川ちひろ  
 ##### 206#       发表于 2018-6-18 16:52
 
 
-
-
 目前主线能看到联系的也就舞女和老师吧，都和黑衣纹身男有点关系
 
 — from OnePlus ONEPLUS A5010, Android 8.1.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0-play
-
-
-
-
-
 
 
 -----
@@ -3884,23 +2491,15 @@ ost封面，神官和盗贼挺有cp感
 ##### 207#       发表于 2018-6-18 16:59
 
 
-
-
 目前有什么好东西偷么，好多成功率才15的也就是个补给品
 
 — from OnePlus ONEPLUS A5010, Android 8.1.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0-play
-
-
-
-
-
 
 
 -----
 
 ####  Errey  
 ##### 208#       发表于 2018-6-18 19:16
-
 
 
 <blockquote>千川ちひろ 发表于 2018-6-18 16:59
@@ -3911,31 +2510,19 @@ ost封面，神官和盗贼挺有cp感
 商人边的非卖品应该都是靠贼顺的，贼贵的靠贼sl也行，药师村有个金银斧，应该是现最强斧头了
 
 
-
-
-
-
-
 -----
 
 ####  keledou2b  
 ##### 209#       发表于 2018-6-18 19:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  shabee001  
 ##### 210#       发表于 2018-6-18 20:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40032124&amp;ptid=1711545" target="_blank">千川ちひろ 发表于 2018-6-18 16:52</a>
@@ -3947,16 +2534,10 @@ ost封面，神官和盗贼挺有cp感
 —— 来自 Sony G8441, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0
 
 
-
-
-
-
-
 -----
 
 ####  假山君  
 ##### 211#       发表于 2018-6-18 21:11
-
 
 
  本帖最后由 假山君 于 2018-6-18 21:14 编辑 
@@ -3970,16 +2551,10 @@ ost封面，神官和盗贼挺有cp感
 如果想收全学者是必须的 因为有个遇敌减半的被动技能 尽快学会就能保证时间内收全了经验怪背袋子的猫平A全miss 我是用全体魔法轰的每次1点血 三到四下就死了 定位和金属史莱姆差不多吧
 
 
-
-
-
-
-
 -----
 
 ####  千川ちひろ  
 ##### 212#       发表于 2018-6-18 22:40
-
 
 
  本帖最后由 千川ちひろ 于 2018-6-18 22:52 编辑 
@@ -3989,16 +2564,10 @@ ost封面，神官和盗贼挺有cp感
 物攻+96，属攻-20的铁斧？发现商人城里有个弓。物理69属性66命中44.貌似很不错。也是8%的几率
 
 
-
-
-
-
-
 -----
 
 ####  haru橙子  
 ##### 213#       发表于 2018-6-19 08:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40010159&amp;ptid=1711545" target="_blank">skullgreymon 发表于 2018-6-16 15:20</a>
@@ -4008,27 +2577,15 @@ ost封面，神官和盗贼挺有cp感
 剑士村子的自警团长是四科星
 
 
-
-
-
-
-
 -----
 
 ####  g54088  
 ##### 214#       发表于 2018-6-19 08:15
 
 
-
-
 正式版可以兼职的，不用担心缺职业，挑喜欢的玩就是了。<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
 —— 来自 HUAWEI LON-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0
-
-
-
-
-
 
 
 -----
@@ -4037,17 +2594,10 @@ ost封面，神官和盗贼挺有cp感
 ##### 215#       发表于 2018-6-19 08:38
 
 
-
-
 第一个demo玩了会觉得很无聊，今天认真玩了最新的demo我靠超有趣啊，系统很有意思，剧情也不错，关键是玩起来很爽不便秘。
 支线任务有点懵逼，任务描述太简短了不知道要干嘛。比如我在猎人家乡接到个任务，他说听到这里有传说中的魔物使 所以特意过来看看（大概意思在上班记不太清）。然后就不知道怎么做了，用猎人和他对话也没效果
 
 —— 来自 samsung SM-G9550, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
-
-
-
-
-
 
 
 -----
@@ -4056,21 +2606,13 @@ ost封面，神官和盗贼挺有cp感
 ##### 216#       发表于 2018-6-19 08:55
 
 
-
-
 试玩了一下商人的开局，感觉还不错，留到正式版出了再慢慢体验了
-
-
-
-
-
 
 
 -----
 
 ####  osk666neo  
 ##### 217#       发表于 2018-6-19 09:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40033667&amp;ptid=1711545" target="_blank">keledou2b 发表于 2018-6-18 19:46</a>
@@ -4080,16 +2622,10 @@ ost封面，神官和盗贼挺有cp感
 —— 来自 Sony G8142, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  pei1019  
 ##### 218#       发表于 2018-6-19 10:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40038090&amp;ptid=1711545" target="_blank">chan 发表于 2018-6-19 08:38</a>
@@ -4100,17 +2636,10 @@ ost封面，神官和盗贼挺有cp感
 借地求问支线任务有提示吗？
 
 
-
-
-
-
-
 -----
 
 ####  toutun  
 ##### 219#       发表于 2018-6-20 09:19
-
-
 
 
 两个半小时收齐了八个人，从学者开始逆时针到盗贼，SL偷点装备然后从商人顺时针到药师…
@@ -4118,16 +2647,10 @@ ost封面，神官和盗贼挺有cp感
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  kurama221  
 ##### 220#       发表于 2018-6-20 10:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40039738&amp;ptid=1711545" target="_blank">pei1019 发表于 2018-6-19 10:52</a>
@@ -4138,32 +2661,19 @@ ost封面，神官和盗贼挺有cp感
 这种支线一般把四个技能的主角都凑齐就差不多可以解决了！比如说这个支线好像就是你有了学者或者药师后去打听情报就ok了
 
 
-
-
-
-
-
 -----
 
 ####  GMJ  
 ##### 221#       发表于 2018-6-20 12:39
 
 
-
-
 没中文告辞<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Errey  
 ##### 222#       发表于 2018-6-20 12:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40035248&amp;ptid=1711545" target="_blank">千川ちひろ 发表于 2018-6-18 22:40</a>
@@ -4180,16 +2690,10 @@ ost封面，神官和盗贼挺有cp感
 拿完之后搭个商，猎就是本DEMO无敌角色了
 
 
-
-
-
-
-
 -----
 
 ####  千川ちひろ  
 ##### 223#       发表于 2018-6-20 13:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40053550&amp;ptid=1711545" target="_blank">Errey 发表于 2018-6-20 12:46</a>
@@ -4201,33 +2705,19 @@ ost封面，神官和盗贼挺有cp感
 嗯，昨晚sl了三小时没偷到。
 
 
-
-
-
-
-
 -----
 
 ####  Emmerich  
 ##### 224#       发表于 2018-6-20 13:22
 
 
-
-
 reddit上看到几个帖子都在怼野外的boss了 看着就感觉贼强
-
-
-
-
-
 
 
 -----
 
 ####  faust123  
 ##### 225#       发表于 2018-6-20 13:30
-
-
 
 
 这游戏的两个demo都有微秒的套路感（非贬义）
@@ -4239,25 +2729,13 @@ reddit上看到几个帖子都在怼野外的boss了 看着就感觉贼强
 希望能买了以后更新补丁吧
 
 
-
-
-
-
-
 -----
 
 ####  笨笨塞  
 ##### 226#       发表于 2018-6-20 13:37
 
 
-
-
 开始以为战斗模式就是bdff那样，原来还有弱点击破啊。不过整体来说差不太多？
-
-
-
-
-
 
 
 -----
@@ -4266,14 +2744,7 @@ reddit上看到几个帖子都在怼野外的boss了 看着就感觉贼强
 ##### 227#       发表于 2018-6-20 14:28
 
 
-
-
 已经四个人之后再收队友还会增加地区危险度吗，是不是应该不停SL经验怪然后打高级本<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4282,14 +2753,7 @@ reddit上看到几个帖子都在怼野外的boss了 看着就感觉贼强
 ##### 228#       发表于 2018-6-20 15:05
 
 
-
-
 你好s1，我南非服买的预载好了。实在忍不住了，ns现在破解能破那个预载限制，让我现在就能玩上正式版不。没有八房女人玩我要死了。
-
-
-
-
-
 
 
 -----
@@ -4298,14 +2762,7 @@ reddit上看到几个帖子都在怼野外的boss了 看着就感觉贼强
 ##### 229#       发表于 2018-6-20 15:12
 
 
-
-
 打算买实体版，请问淘宝上哪家比较快的？
-
-
-
-
-
 
 
 -----
@@ -4314,16 +2771,10 @@ reddit上看到几个帖子都在怼野外的boss了 看着就感觉贼强
 ##### 230#       发表于 2018-6-20 15:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40054660&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-06-20 14:28:55</a>
 已经四个人之后再收队友还会增加地区危险度吗，是不是应该不停SL经验怪然后打高级本 ...</blockquote>后面就不会增加了，不需要刻意练级，一路开着学者的遇敌率减半跑过去就行了。主力队三个人11级左右就可以虐所有剧情boss了…
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -4332,14 +2783,7 @@ reddit上看到几个帖子都在怼野外的boss了 看着就感觉贼强
 ##### 231#       发表于 2018-6-21 19:40
 
 
-
-
 2小时58分收完8个人了。收完四个人的时候才想起来买点装备会不会更快。<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">再来一次应该可以2小时搞定。从猎人开始顺时针。
-
-
-
-
-
 
 
 -----
@@ -4348,14 +2792,7 @@ reddit上看到几个帖子都在怼野外的boss了 看着就感觉贼强
 ##### 232#       发表于 2018-6-21 19:59
 
 
-
-
 变成竞速游戏了
-
-
-
-
-
 
 
 -----
@@ -4364,14 +2801,7 @@ reddit上看到几个帖子都在怼野外的boss了 看着就感觉贼强
 ##### 233#       发表于 2018-6-22 23:37
 
 
-
-
 这价格也太贵了吧，我的天60刀
-
-
-
-
-
 
 
 -----
@@ -4380,22 +2810,15 @@ reddit上看到几个帖子都在怼野外的boss了 看着就感觉贼强
 ##### 234#       发表于 2018-6-22 23:48
 
 
-
 <blockquote>诶哟卧草 发表于 2018-6-20 15:05
 你好s1，我南非服买的预载好了。实在忍不住了，ns现在破解能破那个预载限制，让我现在就能玩上正式版不。没 ...</blockquote>
 你预载的文件根本就不完全，你破解能黑进开发者系统把文件提出来另说
-
-
-
-
-
 
 
 -----
 
 ####  takayama  
 ##### 235#       发表于 2018-6-23 18:26
-
 
 
  本帖最后由 takayama 于 2018-6-23 18:28 编辑 
@@ -4411,16 +2834,10 @@ sm33396720 sm33396833
 果然舞女和看板娘最强说<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 236#         楼主| 发表于 2018-6-23 19:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40089255&amp;ptid=1711545" target="_blank">takayama 发表于 2018-6-23 19:26</a>
@@ -4432,25 +2849,13 @@ sm33396720 sm33396833</blockquote>
 NB，回去照着试试。
 
 
-
-
-
-
-
 -----
 
 ####  yellow0507  
 ##### 237#       发表于 2018-6-23 19:37
 
 
-
-
 那么这游戏和KH3哪个出中文的概率比较大？
-
-
-
-
-
 
 
 -----
@@ -4459,24 +2864,15 @@ NB，回去照着试试。
 ##### 238#       发表于 2018-6-23 20:44
 
 
-
-
 完全不想竞速，我就喜欢到一个地方就把所有npc里里外外摸一边
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  笛普达克范太希  
 ##### 239#       发表于 2018-6-23 20:50
-
-
 
 
 前期召唤系果然超强啊，猎人宝宝单体2000我以为已经算挺厉害的了，没想到商人aoe直接6000<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
@@ -4488,25 +2884,13 @@ NB，回去照着试试。
 主角们全程只负责break，除了舞娘买了点防装，其他人全初始装，所有boss基本上在break之后就会被打死，全程没存过档，没犹豫过出招<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">极致背板
 
 
-
-
-
-
-
 -----
 
 ####  bruce314314  
 ##### 240#       发表于 2018-6-23 20:58
 
 
-
-
 真解锁了，大家反而不着急了，限时玩的才认真
-
-
-
-
-
 
 
 -----
@@ -4515,21 +2899,13 @@ NB，回去照着试试。
 ##### 241#       发表于 2018-6-26 11:37
 
 
-
-
 舞娘开局，收了盗贼然后就到时间了orz，期待正式版
-
-
-
-
-
 
 
 -----
 
 ####  笛普达克范太希  
 ##### 242#       发表于 2018-6-28 02:06
-
 
 
  本帖最后由 笛普达克范太希 于 2018-6-29 20:05 编辑 
@@ -4546,10 +2922,6 @@ NB，回去照着试试。
 2018-6-28 00:10 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201806/28/001052nhfxj4jnsw5p4wx5.jpg" referrerpolicy="no-referrer">
 
 
@@ -4558,10 +2930,6 @@ NB，回去照着试试。
 下载附件
 
 2018-6-28 00:10 上传
-
-
-
-
 
 
 看到德国回家突然就没心情写攻略了，随便码一点吧
@@ -4684,13 +3052,9 @@ NB，回去照着试试。
 最后强推猎人小姐姐<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -4700,12 +3064,7 @@ NB，回去照着试试。
 | Lunamos| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -4714,23 +3073,15 @@ NB，回去照着试试。
 ##### 243#       发表于 2018-6-28 07:56
 
 
-
-
 玩了会猎人小姐姐，从来没感觉自己英语这么差过
 
 他们说的真的是英语吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  redsouris  
 ##### 244#       发表于 2018-6-28 10:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40139924&amp;ptid=1711545" target="_blank">聚散浮云 发表于 2018-6-28 07:56</a>
@@ -4741,16 +3092,10 @@ NB，回去照着试试。
 日语简单，不清楚为啥英语各种古典风格
 
 
-
-
-
-
-
 -----
 
 ####  Emmerich  
 ##### 245#       发表于 2018-6-28 10:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40139924&amp;ptid=1711545" target="_blank">聚散浮云 发表于 2018-6-28 07:56</a>
@@ -4763,16 +3108,10 @@ NB，回去照着试试。
 不过记住几种变形规则也没啥大问题
 
 
-
-
-
-
-
 -----
 
 ####  聚散浮云  
 ##### 246#       发表于 2018-6-29 01:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40141577&amp;ptid=1711545" target="_blank">Emmerich 发表于 2018-06-28 10:28:06</a>
@@ -4783,16 +3122,10 @@ NB，回去照着试试。
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  yangchunsiyue  
 ##### 247#       发表于 2018-6-29 08:40
-
 
 
 [https://mp.weixin.qq.com/s?__biz ... DZj2cg1qFbgxnKNZ#rd](https://mp.weixin.qq.com/s?__biz=MzUwOTg3NjIwNg==&amp;mid=2247488988&amp;idx=1&amp;sn=a20c171d5f77485a18e952ba1f9b7fb5&amp;chksm=f90ad75dce7d5e4b5c4c9a208a921ac002445a83b639b9122e3b88c392563e52b7d2a962b914&amp;mpshare=1&amp;scene=23&amp;srcid=0629Or9gDZj2cg1qFbgxnKNZ#rd)
@@ -4801,16 +3134,10 @@ NB，回去照着试试。
 jump订阅号发了篇中文化请愿的文章，放到专楼里，感兴趣的朋友可以看看。
 
 
-
-
-
-
-
 -----
 
 ####  whzfjk  
 ##### 248#       发表于 2018-6-29 12:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40153220&amp;ptid=1711545" target="_blank">yangchunsiyue 发表于 2018-6-29 08:40</a>
@@ -4821,16 +3148,10 @@ https://mp.weixin.qq.com/s?__biz=MzUwOTg3NjIwNg==&amp;mid=2247488988&amp;idx=1&a
 关键是要把舆情尽可能直接地传递给决策者，走这种闲职渠道感觉很微妙。
 
 
-
-
-
-
-
 -----
 
 ####  yangchunsiyue  
 ##### 249#       发表于 2018-6-29 12:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40155932&amp;ptid=1711545" target="_blank">whzfjk 发表于 2018-6-29 12:10</a>
@@ -4841,17 +3162,10 @@ https://mp.weixin.qq.com/s?__biz=MzUwOTg3NjIwNg==&amp;mid=2247488988&amp;idx=1&a
 看了眼nga发请愿帖的讨论 - - 有点庆幸我没单独开一帖了。
 
 
-
-
-
-
-
 -----
 
 ####  yangchunsiyue  
 ##### 250#       发表于 2018-6-29 14:19
-
-
 
 
 お問い合わせありがとうございます。 
@@ -4883,16 +3197,10 @@ https://mp.weixin.qq.com/s?__biz=MzUwOTg3NjIwNg==&amp;mid=2247488988&amp;idx=1&a
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  vorfeed  
 ##### 251#       发表于 2018-6-29 14:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40155932&amp;ptid=1711545" target="_blank">whzfjk 发表于 2018-6-29 12:10</a>
@@ -4911,24 +3219,13 @@ Square Enix 客服邮件回应中国玩家请愿《八方旅人》中文化的�
 <img src="https://wx4.sinaimg.cn/large/006BjBn1ly1fss08pnw78j30qo1hck12.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  椎名mahuyo  
 ##### 252#       发表于 2018-6-29 14:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">相信SE 很快会出STEAM版的 那时候有没有汉化就是小事了
-
-
-
-
-
 
 
 -----
@@ -4937,16 +3234,9 @@ Square Enix 客服邮件回应中国玩家请愿《八方旅人》中文化的�
 ##### 253#       发表于 2018-6-29 14:57
 
 
-
-
 感觉要请愿不仅要告诉se，更得告诉任天堂，应该让任天堂明白对中国来说八方旅人这种游戏其实吸引力比他不少第一方游戏还大
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -4955,17 +3245,10 @@ Square Enix 客服邮件回应中国玩家请愿《八方旅人》中文化的�
 ##### 254#         楼主| 发表于 2018-6-29 16:06
 
 
-
-
 看了下，都是客套话嘛。实际上Twitter被墙导致了中国玩家话语权太低，就没什么人注意得到。
 
 
 话说怎么突然都对中文有那么大需求了……感觉许多人好像并不是想买，只是纯粹看SE这种不出中文的公司不爽而已。
-
-
-
-
-
 
 
 -----
@@ -4974,14 +3257,7 @@ Square Enix 客服邮件回应中国玩家请愿《八方旅人》中文化的�
 ##### 255#       发表于 2018-6-29 16:15
 
 
-
-
 客服部门的长达233页的月度报告里多了一行字<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4990,21 +3266,13 @@ Square Enix 客服邮件回应中国玩家请愿《八方旅人》中文化的�
 ##### 256#       发表于 2018-6-29 16:31
 
 
-
-
 玩了一会demo，这个踩地雷遇敌率是不是有点高啊... 走两步打一下真的有点烦
-
-
-
-
-
 
 
 -----
 
 ####  yangchunsiyue  
 ##### 257#       发表于 2018-6-29 16:31
-
 
 
  本帖最后由 yangchunsiyue 于 2018-6-29 16:33 编辑 
@@ -5027,16 +3295,10 @@ Square Enix 客服邮件回应中国玩家请愿《八方旅人》中文化的�
 没有就没有吧，没有抱很大的期望的。
 
 
-
-
-
-
-
 -----
 
 ####  whzfjk  
 ##### 258#       发表于 2018-6-29 16:33
-
 
 
 <blockquote>Lunamos 发表于 2018-6-29 16:06
@@ -5047,32 +3309,19 @@ Square Enix 客服邮件回应中国玩家请愿《八方旅人》中文化的�
 态度的问题是第一位的（
 
 
-
-
-
-
-
 -----
 
 ####  任毒瘤  
 ##### 259#       发表于 2018-6-29 16:34
 
 
-
-
 SE这回复也挺正常的      
-
-
-
-
-
 
 
 -----
 
 ####  Tantalos  
 ##### 260#       发表于 2018-6-29 16:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40141577&amp;ptid=1711545" target="_blank">Emmerich 发表于 2018-6-28 10:28</a>
@@ -5085,16 +3334,10 @@ SE这回复也挺正常的      
 整体上讲这游戏的英文难度比川普的推特略高远远低于黑岛的任何一款游戏，和巫师3好像差不多。
 
 
-
-
-
-
-
 -----
 
 ####  hyuy  
 ##### 261#       发表于 2018-6-29 19:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40158630&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-6-29 16:06</a>
@@ -5106,32 +3349,19 @@ SE这回复也挺正常的      
 反了吧 rpg有中文 才能吸引本来不太想买的
 
 
-
-
-
-
-
 -----
 
 ####  cqkxywj  
 ##### 262#       发表于 2018-6-29 19:38
 
 
-
-
 不去找发行商，找开发商闹什么闹
-
-
-
-
-
 
 
 -----
 
 ####  CogitoCrow  
 ##### 263#       发表于 2018-6-29 20:15
-
 
 
  本帖最后由 CogitoCrow 于 2018-6-29 21:41 编辑 
@@ -5153,16 +3383,10 @@ XB2全球才多少销量（其实还不算少），这玩意在NS上不见得能
 不对不对，原来除了日英还有德法西意语的，那就是实锤看不起亚洲玩家了，中文韩语呢？？？我tm喷爆<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  公车舰队  
 ##### 264#       发表于 2018-6-29 20:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40161053&amp;ptid=1711545" target="_blank">CogitoCrow 发表于 2018-6-29 20:15</a>
@@ -5175,16 +3399,10 @@ XB2全球才多少销量（其实还不算少），这玩意在NS上不见得能
 要到玩家请愿 怎么还能说是玩家懒呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  CogitoCrow  
 ##### 265#       发表于 2018-6-29 21:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40161187&amp;ptid=1711545" target="_blank">公车舰队 发表于 2018-6-29 20:34</a>
@@ -5199,16 +3417,10 @@ XB2全球才多少销量（其实还不算少），这玩意在NS上不见得能
 （不对啊SE不是都在上海开咖啡厅了么。。。
 
 
-
-
-
-
-
 -----
 
 ####  Emmerich  
 ##### 266#       发表于 2018-7-1 16:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40159039&amp;ptid=1711545" target="_blank">Tantalos 发表于 2018-6-29 16:42</a>
@@ -5219,27 +3431,15 @@ XB2全球才多少销量（其实还不算少），这玩意在NS上不见得能
 嗯 玩猎人时候稍微查了下那几个变形规律 理解也毫无压力
 
 
-
-
-
-
-
 -----
 
 ####  vigilance  
 ##### 267#       发表于 2018-7-1 17:14
 
 
-
-
 有没有可能用众筹的方式来求中文啊。真金白银拿出来，开发商只要只要计算下利润就好了。
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -5248,23 +3448,16 @@ XB2全球才多少销量（其实还不算少），这玩意在NS上不见得能
 ##### 268#       发表于 2018-7-1 17:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40179998&amp;ptid=1711545" target="_blank">Emmerich 发表于 2018-7-1 16:59</a>
 
 嗯 玩猎人时候稍微查了下那几个变形规律 理解也毫无压力</blockquote>
 有没有链接指路一下？
 
 
-
-
-
-
-
 -----
 
 ####  HazukiShion  
 ##### 269#       发表于 2018-7-1 19:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40161731&amp;ptid=1711545" target="_blank">CogitoCrow 发表于 2018-6-29 21:44</a>
@@ -5277,32 +3470,19 @@ XB2全球才多少销量（其实还不算少），这玩意在NS上不见得能
 除非评分爆表超95，不然有没有中文中文区都是凉的好吗。。
 
 
-
-
-
-
-
 -----
 
 ####  rak1  
 ##### 270#       发表于 2018-7-1 19:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">其实就是对销量不自信，不愿意承担任何额外风险损失，要是真的“好评热卖”中文就在路上了
-
-
-
-
-
 
 
 -----
 
 ####  fuochai  
 ##### 271#       发表于 2018-7-2 02:05
-
-
 
 
 虽说英文也看得懂，但我有个毛病就是开了英文字幕的话，语音如果是日语脑子就很乱……一定要语音也是英文
@@ -5312,16 +3492,10 @@ XB2全球才多少销量（其实还不算少），这玩意在NS上不见得能
 （之前入的妖精剑士也是因为这个打不下去）
 
 
-
-
-
-
-
 -----
 
 ####  Emmerich  
 ##### 272#       发表于 2018-7-2 11:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40180365&amp;ptid=1711545" target="_blank">水龙头君 发表于 2018-7-1 17:41</a>
@@ -5330,16 +3504,10 @@ XB2全球才多少销量（其实还不算少），这玩意在NS上不见得能
 [http://www.bible-researcher.com/english.html](http://www.bible-researcher.com/english.html)
 
 
-
-
-
-
-
 -----
 
 ####  kingdomkey  
 ##### 273#       发表于 2018-7-3 01:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40185186&amp;ptid=1711545" target="_blank">fuochai 发表于 2018-7-2 02:05</a>
@@ -5350,16 +3518,10 @@ XB2全球才多少销量（其实还不算少），这玩意在NS上不见得能
 像这种情况我都是有语音就不看字幕，反正能听懂。
 
 
-
-
-
-
-
 -----
 
 ####  whzfjk  
 ##### 274#       发表于 2018-7-3 01:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40185186&amp;ptid=1711545" target="_blank">fuochai 发表于 2018-7-2 02:05</a>
@@ -5370,17 +3532,10 @@ XB2全球才多少销量（其实还不算少），这玩意在NS上不见得能
 之前就因为这个打蒸汽A17超级痛苦，还不如花点时间学学日语直接上（当然首先得有的选），反正都是外语，流畅度方面半斤八两。日语这边还有多年的动画经验撑语感，当然对美剧从小看到大的就是另一种选择了。
 
 
-
-
-
-
-
 -----
 
 ####  杨雪飞  
 ##### 275#       发表于 2018-7-3 01:10
-
-
 
 
 这又是几个意思？
@@ -5395,11 +3550,6 @@ XB2全球才多少销量（其实还不算少），这玩意在NS上不见得能
 2018-7-3 01:10 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/03/011024o54w77lw67wnldu5.png" referrerpolicy="no-referrer">
 
 
@@ -5410,21 +3560,10 @@ XB2全球才多少销量（其实还不算少），这玩意在NS上不见得能
 2018-7-3 01:10 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  fuochai  
 ##### 276#       发表于 2018-7-3 01:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40196393&amp;ptid=1711545" target="_blank">whzfjk 发表于 2018-7-3 01:09</a>
@@ -5434,16 +3573,10 @@ XB2全球才多少销量（其实还不算少），这玩意在NS上不见得能
 为了玩游戏真是下血本了
 
 
-
-
-
-
-
 -----
 
 ####  水龙头君  
 ##### 277#       发表于 2018-7-3 08:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40188121&amp;ptid=1711545" target="_blank">Emmerich 发表于 2018-7-2 11:27</a>
@@ -5452,25 +3585,13 @@ http://www.bible-researcher.com/english.html</blockquote>
 谢谢
 
 
-
-
-
-
-
 -----
 
 ####  则卷宝瓜  
 ##### 278#       发表于 2018-7-3 10:30
 
 
-
-
 初始选了药师，真的强，强烈安利
-
-
-
-
-
 
 
 -----
@@ -5479,15 +3600,9 @@ http://www.bible-researcher.com/english.html</blockquote>
 ##### 279#       发表于 2018-7-3 10:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40196402&amp;ptid=1711545" target="_blank">杨雪飞 发表于 2018-7-3 01:10</a>
 这又是几个意思？</blockquote>
 年度大戏，应该单独开帖
-
-
-
-
-
 
 
 -----
@@ -5496,16 +3611,10 @@ http://www.bible-researcher.com/english.html</blockquote>
 ##### 280#       发表于 2018-7-3 14:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40199874&amp;ptid=1711545" target="_blank">则卷宝瓜 发表于 2018-7-3 10:30</a>
 
 初始选了药师，真的强，强烈安利</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">求指点一下药师的科学用法 调和指令舍不得乱用 调出来几个也就是多次判定的低伤害技能 输出靠控血线砸满豆的last stand  体验下来感觉猎人更舒服些
-
-
-
-
-
 
 
 -----
@@ -5514,15 +3623,9 @@ http://www.bible-researcher.com/english.html</blockquote>
 ##### 281#       发表于 2018-7-3 15:11
 
 
-
 <blockquote>Emmerich 发表于 2018-7-3 14:14
 求指点一下药师的科学用法 调和指令舍不得乱用 调出来几个也就是多次判定的低伤害技能 输出靠控血 ...</blockquote>
 我研究了一下，药材初始村买多点，很便宜的，一般用来给自己人回血(药素材+火之类的回200，扩散回100；特别指出的是风素材回1000/500)或者丢对面怪物弱点(调和相应属性的粉一次打两下，破盾还行)，玩到第三个队友的时候药师其实挺肉的，疯狂调药奶奶队友就行了(他的斧子输出并不差)
-
-
-
-
-
 
 
 -----
@@ -5531,24 +3634,16 @@ http://www.bible-researcher.com/english.html</blockquote>
 ##### 282#       发表于 2018-7-3 15:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40203011&amp;ptid=1711545" target="_blank">则卷宝瓜 发表于 2018-7-3 15:11</a>
 
 我研究了一下，药材初始村买多点，很便宜的，一般用来给自己人回血(药素材+火之类的回200，扩散回100；特 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">多谢
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 283#       发表于 2018-7-5 18:39
-
-
 
 
 官推的图<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">倒计时8天
@@ -5564,20 +3659,10 @@ http://www.bible-researcher.com/english.html</blockquote>
 2018-7-5 18:39 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  blackwhalebest  
 ##### 284#       发表于 2018-7-5 18:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40185186&amp;ptid=1711545" target="_blank">fuochai 发表于 2018-7-2 04:05</a>
@@ -5586,26 +3671,14 @@ http://www.bible-researcher.com/english.html</blockquote>
 我也是这个问题，而且日语和英语的翻译上总有些不一致的，更为难受
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 285#         楼主| 发表于 2018-7-5 19:13
 
 
-
-
 看到有人在汉化了。
 [http://47.97.181.67/forum.php?mod=viewthread&amp;tid=20](http://47.97.181.67/forum.php?mod=viewthread&amp;tid=20)
-
-
-
-
-
 
 
 -----
@@ -5614,23 +3687,16 @@ http://www.bible-researcher.com/english.html</blockquote>
 ##### 286#       发表于 2018-7-5 19:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40228268&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-5 18:39</a>
 
 官推的图倒计时8天</blockquote>
 看成∞
 
 
-
-
-
-
-
 -----
 
 ####  古畑任三郎2015  
 ##### 287#       发表于 2018-7-5 19:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40228635&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-5 19:13</a>
@@ -5642,16 +3708,10 @@ http://47.97.181.67/forum.php?mod=viewthread&amp;tid=20</blockquote>
 —— 来自 Sony G8441, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  fuochai  
 ##### 288#       发表于 2018-7-6 00:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40228805&amp;ptid=1711545" target="_blank">古畑任三郎2015 发表于 2018-7-5 19:32</a>
@@ -5663,16 +3723,10 @@ http://47.97.181.67/forum.php?mod=viewthread&amp;tid=20</blockquote>
 如果说“没官中=不打算赚中文区的钱=可以心安理得地玩汉化盗版”还行
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 289#       发表于 2018-7-6 05:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40228805&amp;ptid=1711545" target="_blank">古畑任三郎2015 发表于 2018-07-05 19:32:22</a>
@@ -5681,25 +3735,13 @@ http://47.97.181.67/forum.php?mod=viewthread&amp;tid=20</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  zxy26  
 ##### 290#       发表于 2018-7-6 05:56
 
 
-
-
 4chan上看到不少人说破解玩家已经先玩上了……也不知是真是假
-
-
-
-
-
 
 
 -----
@@ -5708,21 +3750,13 @@ http://47.97.181.67/forum.php?mod=viewthread&amp;tid=20</blockquote>
 ##### 291#       发表于 2018-7-6 06:04
 
 
-
-
 可怕 看见贴吧有人试玩版练到70级....
-
-
-
-
-
 
 
 -----
 
 ####  则卷宝瓜  
 ##### 292#       发表于 2018-7-6 06:49
-
 
 
 <blockquote>fuochai 发表于 2018-7-6 00:12
@@ -5734,17 +3768,10 @@ http://47.97.181.67/forum.php?mod=viewthread&amp;tid=20</blockquote>
 是的！买正版，打汉化补丁玩我服；但是借口说没有中文玩盗版，那还不是白嫖
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 293#         楼主| 发表于 2018-7-6 11:43
-
-
 
 
 评语：
@@ -5774,17 +3801,10 @@ NSw7/13 オクトパストラベラー [ 9 / 9 / 9 / 9 ]
 　サガシリーズの～だの、往年の/1990年代の～みたいな文言が並んでいたりもする。
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 294#       发表于 2018-7-6 12:09
-
-
 
 
 看到TVCM
@@ -5794,17 +3814,10 @@ NSw7/13 オクトパストラベラー [ 9 / 9 / 9 / 9 ]
 对八人剧情的交集感到没信心
 
 
-
-
-
-
-
 -----
 
 ####  osk666neo  
 ##### 295#       发表于 2018-7-6 12:13
-
-
 
 
 喷了，在加拿大本来等豪华版有货，结果亚麻酸连普通版都没了
@@ -5812,16 +3825,10 @@ NSw7/13 オクトパストラベラー [ 9 / 9 / 9 / 9 ]
 —— 来自 Sony G8142, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 296#       发表于 2018-7-6 12:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40236343&amp;ptid=1711545" target="_blank">叶雾 发表于 2018-7-6 12:09</a>
@@ -5838,16 +3845,10 @@ NSw7/13 オクトパストラベラー [ 9 / 9 / 9 / 9 ]
 入队顺序不同组合太多，每个都来一段打酱油的台词也没什么意思
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 297#       发表于 2018-7-6 12:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40236424&amp;ptid=1711545" target="_blank">redsouris 发表于 2018-7-6 12:15</a>
@@ -5860,16 +3861,10 @@ NSw7/13 オクトパストラベラー [ 9 / 9 / 9 / 9 ]
 但是CM里的那个明显是后期boss。。造型有点像飞龙
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 298#       发表于 2018-7-6 14:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40236520&amp;ptid=1711545" target="_blank">叶雾 发表于 2018-7-6 12:22</a>
@@ -5880,17 +3875,10 @@ NSw7/13 オクトパストラベラー [ 9 / 9 / 9 / 9 ]
 再说CM里那段说不定根本就不是想表现组队战，一个队友不收的单人玩法也早就说是可行的了
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 299#       发表于 2018-7-6 15:19
-
-
 
 
 倒计时7天
@@ -5906,20 +3894,10 @@ NSw7/13 オクトパストラベラー [ 9 / 9 / 9 / 9 ]
 2018-7-6 15:19 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Emmerich  
 ##### 300#       发表于 2018-7-7 00:49
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">打个预防针 kotaku编辑玩了20小时以后表示几乎没有角色间互动  这点玩过demo的人应该都能猜到...
@@ -5929,16 +3907,10 @@ NSw7/13 オクトパストラベラー [ 9 / 9 / 9 / 9 ]
 大概也是和预期相符了 佳作以上 神作未满
 
 
-
-
-
-
-
 -----
 
 ####  silverashashash  
 ##### 301#       发表于 2018-7-7 02:51
-
 
 
  本帖最后由 silverashashash 于 2018-7-7 03:13 编辑 
@@ -5959,16 +3931,10 @@ NSw7/13 オクトパストラベラー [ 9 / 9 / 9 / 9 ]
 这么设计怕是对叙事节奏和连贯性影响很大。如果能随便找喜欢的角色通关也就罢了，但是游戏流程靠等级压制，强迫玩家必须找其他角色刷级
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 302#       发表于 2018-7-7 03:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40244839&amp;ptid=1711545" target="_blank">Emmerich 发表于 2018-07-07 00:49:59</a>
@@ -5979,16 +3945,10 @@ NSw7/13 オクトパストラベラー [ 9 / 9 / 9 / 9 ]
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 303#       发表于 2018-7-7 03:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40245415&amp;ptid=1711545" target="_blank">silverashashash 发表于 2018-07-07 02:51:21</a>
@@ -5999,16 +3959,10 @@ NSw7/13 オクトパストラベラー [ 9 / 9 / 9 / 9 ]
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  奶牛  
 ##### 304#       发表于 2018-7-7 05:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40232652&amp;ptid=1711545" target="_blank">假山君 发表于 2018-7-6 06:04</a>
@@ -6019,17 +3973,10 @@ NSw7/13 オクトパストラベラー [ 9 / 9 / 9 / 9 ]
 一下子就等级暴增了
 
 
-
-
-
-
-
 -----
 
 ####  osk666neo  
 ##### 305#       发表于 2018-7-7 07:15
-
-
 
 
 美亚现在豪华版有货，大家快上
@@ -6037,16 +3984,10 @@ NSw7/13 オクトパストラベラー [ 9 / 9 / 9 / 9 ]
 —— 来自 Sony G8142, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  wjfsty  
 ##### 306#       发表于 2018-7-7 08:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40246082&amp;ptid=1711545" target="_blank">osk666neo 发表于 2018-7-7 07:15</a>
@@ -6056,16 +3997,10 @@ NSw7/13 オクトパストラベラー [ 9 / 9 / 9 / 9 ]
 感谢，已下单
 
 
-
-
-
-
-
 -----
 
 ####  silverashashash  
 ##### 307#       发表于 2018-7-7 09:26
-
 
 
  本帖最后由 silverashashash 于 2018-7-7 09:27 编辑 
@@ -6079,17 +4014,10 @@ NSw7/13 オクトパストラベラー [ 9 / 9 / 9 / 9 ]
 可能我一开始对这个游戏期待值比较高，不过看到是bdff制作组，倒是能理解那套祖传的轮回套路了...
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 308#       发表于 2018-7-7 09:47
-
-
 
 
 6
@@ -6105,29 +4033,13 @@ NSw7/13 オクトパストラベラー [ 9 / 9 / 9 / 9 ]
 2018-7-7 09:47 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  pk_man  
 ##### 309#       发表于 2018-7-9 00:00
 
 
-
-
 打完了商人去收舞女，这开头还能再刺激点么
-
-
-
-
-
 
 
 -----
@@ -6136,15 +4048,9 @@ NSw7/13 オクトパストラベラー [ 9 / 9 / 9 / 9 ]
 ##### 310#       发表于 2018-7-9 01:25
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏可以控制女性角色去把妹么
 
 — from LGE LG-H915, Android 7.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0-play
-
-
-
-
-
 
 
 -----
@@ -6153,14 +4059,7 @@ NSw7/13 オクトパストラベラー [ 9 / 9 / 9 / 9 ]
 ##### 311#       发表于 2018-7-9 04:03
 
 
-
-
 gamespot也说到了角色互相没有互动的问题，很奇怪。
-
-
-
-
-
 
 
 -----
@@ -6169,14 +4068,7 @@ gamespot也说到了角色互相没有互动的问题，很奇怪。
 ##### 312#       发表于 2018-7-9 10:00
 
 
-
-
 如果真有没有交集一人单线也能通关，那是不是可以期待主线最短JRPG了
-
-
-
-
-
 
 
 -----
@@ -6185,23 +4077,16 @@ gamespot也说到了角色互相没有互动的问题，很奇怪。
 ##### 313#       发表于 2018-7-9 10:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40246618&amp;ptid=1711545" target="_blank">silverashashash 发表于 2018-7-7 09:26</a>
 
 这样做叙事会有破碎感，除非主线剧情非常神可以让人忽略瑕疵。并且像kotaku编辑说的那样每个角色叙事节奏 ...</blockquote>
 手游大厂当年的鲁多拉秘宝不就是一章一个主角
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 314#       发表于 2018-7-9 10:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40267640&amp;ptid=1711545" target="_blank">灰色的狐狸 发表于 2018-7-9 04:03</a>
@@ -6216,31 +4101,19 @@ gamespot也说到了角色互相没有互动的问题，很奇怪。</blockquote
 我想八方旅人是专注于讲8个人各自的故事，而不是专注于8个主角互相CP
 
 
-
-
-
-
-
 -----
 
 ####  噂の船  
 ##### 315#       发表于 2018-7-9 10:12
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">为什么圣女和学者都画得这么可爱，游戏里觉得最可爱的商人妹子画的这么丑
-
-
-
-
-
 
 
 -----
 
 ####  silverashashash  
 ##### 316#       发表于 2018-7-9 10:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40269061&amp;ptid=1711545" target="_blank">redsouris 发表于 2018-7-9 10:09</a>
@@ -6252,25 +4125,13 @@ gamespot也说到了角色互相没有互动的问题，很奇怪。</blockquote
 真要单独讲8个人的故事也好，可是游戏在组队战斗方面设计了8个主角有交集，剧情却里除了主人公之外其他队友都神隐。主角刚刚独自直面完惨淡的人生开始冒险，打架的时候突然跑出来几个队友...给人一种“哦你们刚刚在啊”的违和感<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
 
 
-
-
-
-
-
 -----
 
 ####  pissca  
 ##### 317#       发表于 2018-7-9 10:56
 
 
-
-
 大概是想做8个故事体现一个完整世界但各个角色并不太有交集的独立孤独的旅途的感觉？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6279,14 +4140,7 @@ gamespot也说到了角色互相没有互动的问题，很奇怪。</blockquote
 ##### 318#         楼主| 发表于 2018-7-9 11:00
 
 
-
-
 这么看是传说的那种skit来表现一些交集？
-
-
-
-
-
 
 
 -----
@@ -6295,24 +4149,16 @@ gamespot也说到了角色互相没有互动的问题，很奇怪。</blockquote
 ##### 319#       发表于 2018-7-9 11:21
 
 
-
-
 沙加也是这样啦，主角间没啥交集，
 
 
 开拓者1某些主角上来就能直冲主线，几小时就可以见最终BOSS……
 
 
-
-
-
-
-
 -----
 
 ####  silverashashash  
 ##### 320#       发表于 2018-7-9 11:23
-
 
 
  本帖最后由 silverashashash 于 2018-7-9 11:26 编辑 
@@ -6327,24 +4173,13 @@ gamespot也说到了角色互相没有互动的问题，很奇怪。</blockquote
 可能是看新闻说游戏跟ff6看齐...期待度过高
 
 
-
-
-
-
-
 -----
 
 ####  haru橙子  
 ##### 321#       发表于 2018-7-9 11:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说来这游戏为啥日亚上还没有打9折，原价数字真的有点肉疼
-
-
-
-
-
 
 
 -----
@@ -6353,16 +4188,10 @@ gamespot也说到了角色互相没有互动的问题，很奇怪。</blockquote
 ##### 322#       发表于 2018-7-9 11:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40269973&amp;ptid=1711545" target="_blank">silverashashash 发表于 2018-7-9 11:23</a>
 
 就不知道现在SE的制作人和编剧有没有这个能力了。我觉得这种没有交集的违和感说得直白点就是设计上的不足 ...</blockquote>
 打完demo的感觉故事还是老一套，看了其他人用非日文打完吹爆，希望文字能很出彩。
-
-
-
-
-
 
 
 -----
@@ -6371,22 +4200,15 @@ gamespot也说到了角色互相没有互动的问题，很奇怪。</blockquote
 ##### 323#       发表于 2018-7-9 11:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40270075&amp;ptid=1711545" target="_blank">pissca 发表于 2018-7-9 11:30</a>
 打完demo的感觉故事还是老一套，看了其他人用非日文打完吹爆，希望文字能很出彩。 ...</blockquote>
 我玩的就是英文版，剧情的确没有特别神的地方，毕竟才第一章。但是英文的润色非常书面语（除了猎人那里我不知道用古英语的词形变化有什么意义外），看着特别高级。
-
-
-
-
-
 
 
 -----
 
 ####  噂の船  
 ##### 324#       发表于 2018-7-9 11:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40270045&amp;ptid=1711545" target="_blank">haru橙子 发表于 2018-7-9 11:28</a>
@@ -6399,16 +4221,10 @@ gamespot也说到了角色互相没有互动的问题，很奇怪。</blockquote
 也许可以看看别的服，我是觉得麻烦
 
 
-
-
-
-
-
 -----
 
 ####  iou90  
 ##### 325#       发表于 2018-7-9 12:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40270241&amp;ptid=1711545" target="_blank">silverashashash 发表于 2018-7-9 11:40</a>
@@ -6416,16 +4232,10 @@ gamespot也说到了角色互相没有互动的问题，很奇怪。</blockquote
 求问台词如何 不求达到ff6水准但肯定也不是传说或者ffbffxv那种水平吧
 
 
-
-
-
-
-
 -----
 
 ####  silverashashash  
 ##### 326#       发表于 2018-7-9 12:51
-
 
 
  本帖最后由 silverashashash 于 2018-7-9 12:58 编辑 
@@ -6436,16 +4246,10 @@ gamespot也说到了角色互相没有互动的问题，很奇怪。</blockquote
 FF6和15我玩的都是中文版，13没玩过。我玩过的英文版FF只有7和9，感觉都比较口语化。这个润色很像FF12，皇骑2和FFT狮子战争的感觉（松野泰己那个哈佛基友负责的英化），非口语化，甚至有文学作品的感觉（个人想法求轻喷）。。剧情方面要是严格点说日式rpg的元素都有（友情啊兄弟情啊），看你接受程度如何了。可以下个demo自己试试。
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 327#       发表于 2018-7-9 14:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40269254&amp;ptid=1711545" target="_blank">silverashashash 发表于 2018-7-9 10:27</a>
@@ -6456,17 +4260,10 @@ FF6和15我玩的都是中文版，13没玩过。我玩过的英文版FF只有7�
 或者你觉得像XB2那样，不管内容有没有关系，和NPC对话一定要有队友插几句客套话才行？
 
 
-
-
-
-
-
 -----
 
 ####  赤魔法师  
 ##### 328#       发表于 2018-7-9 14:29
-
-
 
 
 故事怎么没有交集
@@ -6482,25 +4279,13 @@ FF6和15我玩的都是中文版，13没玩过。我玩过的英文版FF只有7�
 说没有交集的还是要用心玩一下试玩啊
 
 
-
-
-
-
-
 -----
 
 ####  假山君  
 ##### 329#       发表于 2018-7-9 14:37
 
 
-
-
 多主角的交集本来就是在故事上 而不是在角色上 沙加就是这样的
-
-
-
-
-
 
 
 -----
@@ -6509,23 +4294,15 @@ FF6和15我玩的都是中文版，13没玩过。我玩过的英文版FF只有7�
 ##### 330#       发表于 2018-7-9 14:47
 
 
-
-
 商人原来有那么强吗？我该怎样才能打出6000伤害？
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  Errey  
 ##### 331#       发表于 2018-7-9 14:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40272423&amp;ptid=1711545" target="_blank">没取名啊 发表于 2018-7-9 14:47</a>
@@ -6537,32 +4314,19 @@ FF6和15我玩的都是中文版，13没玩过。我玩过的英文版FF只有7�
 佣兵1w 满蓄砸
 
 
-
-
-
-
-
 -----
 
 ####  pockee  
 ##### 332#       发表于 2018-7-9 15:10
 
 
-
-
 在小妖订的啥时候能到货呢？
-
-
-
-
-
 
 
 -----
 
 ####  silverashashash  
 ##### 333#       发表于 2018-7-9 15:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40272194&amp;ptid=1711545" target="_blank">赤魔法师 发表于 2018-7-9 14:29</a>
@@ -6575,16 +4339,10 @@ FF6和15我玩的都是中文版，13没玩过。我玩过的英文版FF只有7�
 我表达得不清楚，是没有interact，没互动。像LAL那种几个完全不同的角色倒也好。。顺别一提这游戏完整版才2.947G
 
 
-
-
-
-
-
 -----
 
 ####  赤魔法师  
 ##### 334#       发表于 2018-7-9 15:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40272792&amp;ptid=1711545" target="_blank">silverashashash 发表于 2018-7-9 15:22</a>
@@ -6601,17 +4359,10 @@ FF6和15我玩的都是中文版，13没玩过。我玩过的英文版FF只有7�
 老实说这个方面也是最让人担心的了……
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 335#       发表于 2018-7-10 03:29
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/10/030631nnwp91pnbp1z0wxr.jpg" referrerpolicy="no-referrer">
@@ -6624,10 +4375,6 @@ FF6和15我玩的都是中文版，13没玩过。我玩过的英文版FF只有7�
 2018-7-10 03:06 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/10/030643tt0kt7br7piix4ki.jpg" referrerpolicy="no-referrer">
 
 
@@ -6636,10 +4383,6 @@ FF6和15我玩的都是中文版，13没玩过。我玩过的英文版FF只有7�
 下载附件
 
 2018-7-10 03:06 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/10/030644qnoyzqtwfyh0nbw7.jpg" referrerpolicy="no-referrer">
@@ -6652,19 +4395,10 @@ FF6和15我玩的都是中文版，13没玩过。我玩过的英文版FF只有7�
 2018-7-10 03:06 上传
 
 
-
-
-
-
 补上这几天的
 
 
 话说现在还有人在刷demo吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">刷完2把魔力剑封盘等正式版了
-
-
-
-
-
 
 
 -----
@@ -6673,21 +4407,13 @@ FF6和15我玩的都是中文版，13没玩过。我玩过的英文版FF只有7�
 ##### 336#       发表于 2018-7-10 15:16
 
 
-
-
 道理我都懂，为啥药师那么老头上还有只狗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  prinny  
 ##### 337#       发表于 2018-7-10 15:47
-
 
 
  本帖最后由 prinny 于 2018-7-10 15:50 编辑 
@@ -6705,26 +4431,15 @@ FF6和15我玩的都是中文版，13没玩过。我玩过的英文版FF只有7�
 要100 exp+肥猫简直…
 
 
-
-
-
-
-
 -----
 
 ####  iou90  
 ##### 338#       发表于 2018-7-10 15:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40271093&amp;ptid=1711545" target="_blank">silverashashash 发表于 2018-7-9 12:51</a>
 FF6和15我玩的都是中文版，13没玩过。我玩过的英文版FF只有7和9，感觉都比较口语化。这个润色很像FF12， ...</blockquote>
 不是风格问题啊 台词要有言有所物 要不体现角色特性要不是故事 重要是有趣吧 ffbffxv太空洞 ff8也很生活化 但是觉得是系列最好的主角台词了 玩的英文版
-
-
-
-
-
 
 
 -----
@@ -6733,14 +4448,7 @@ FF6和15我玩的都是中文版，13没玩过。我玩过的英文版FF只有7�
 ##### 339#       发表于 2018-7-10 16:03
 
 
-
-
 有现货了。
-
-
-
-
-
 
 
 -----
@@ -6749,16 +4457,10 @@ FF6和15我玩的都是中文版，13没玩过。我玩过的英文版FF只有7�
 ##### 340#       发表于 2018-7-10 16:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40285721&amp;ptid=1711545" target="_blank">fantuanhtr 发表于 2018-7-10 16:03</a>
 
 有现货了。</blockquote>
 已经有现货了？！
-
-
-
-
-
 
 
 -----
@@ -6767,14 +4469,7 @@ FF6和15我玩的都是中文版，13没玩过。我玩过的英文版FF只有7�
 ##### 341#       发表于 2018-7-10 16:06
 
 
-
-
 哪家
-
-
-
-
-
 
 
 -----
@@ -6783,16 +4478,10 @@ FF6和15我玩的都是中文版，13没玩过。我玩过的英文版FF只有7�
 ##### 342#       发表于 2018-7-10 16:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40285721&amp;ptid=1711545" target="_blank">fantuanhtr 发表于 2018-7-10 16:03</a>
 
 有现货了。</blockquote>
 会不会像下载版那样不到13号不能玩…
-
-
-
-
-
 
 
 -----
@@ -6801,14 +4490,7 @@ FF6和15我玩的都是中文版，13没玩过。我玩过的英文版FF只有7�
 ##### 343#       发表于 2018-7-10 16:11
 
 
-
-
 淘宝搜八方旅人 现货 也没几家有 直接旺旺问就好了，不打广告了。
-
-
-
-
-
 
 
 -----
@@ -6817,14 +4499,7 @@ FF6和15我玩的都是中文版，13没玩过。我玩过的英文版FF只有7�
 ##### 344#       发表于 2018-7-10 16:13
 
 
-
-
 =评价<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6833,23 +4508,15 @@ FF6和15我玩的都是中文版，13没玩过。我玩过的英文版FF只有7�
 ##### 345#       发表于 2018-7-10 16:15
 
 
-
-
 你们刷魔力剑的差不多几级打赢卫兵
 
 我打不过啊
-
-
-
-
-
 
 
 -----
 
 ####  prinny  
 ##### 346#       发表于 2018-7-10 16:19
-
 
 
  本帖最后由 prinny 于 2018-7-10 16:21 编辑 
@@ -6873,25 +4540,13 @@ FF6和15我玩的都是中文版，13没玩过。我玩过的英文版FF只有7�
 瞎眼了就吃药…
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 347#       发表于 2018-7-10 16:35
 
 
-
-
 日版点开都是英版...有区别吗
-
-
-
-
-
 
 
 -----
@@ -6900,16 +4555,9 @@ FF6和15我玩的都是中文版，13没玩过。我玩过的英文版FF只有7�
 ##### 348#       发表于 2018-7-10 16:55
 
 
-
-
 那家说今晚就能发货，马上就下单了，然而我还在出差，不确定什么时候回
 
 邮寄到出差地要是正好回了就尴尬了，只好邮寄到公司了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6918,16 +4566,10 @@ FF6和15我玩的都是中文版，13没玩过。我玩过的英文版FF只有7�
 ##### 349#       发表于 2018-7-10 17:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40286100&amp;ptid=1711545" target="_blank">Chia 发表于 2018-7-10 16:35</a>
 
 日版点开都是英版...有区别吗</blockquote>
 我也觉得没区别，就怕到时候SE倒打一耙
-
-
-
-
-
 
 
 -----
@@ -6936,19 +4578,11 @@ FF6和15我玩的都是中文版，13没玩过。我玩过的英文版FF只有7�
 ##### 350#       发表于 2018-7-10 18:31
 
 
-
-
 香港那边确实是拿到了 看啥时候能发<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
-
-
-
-
 
 
 sb.png
 (27.44 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -6957,24 +4591,7 @@ sb.png
 2018-7-10 18:30 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/10/183027hf5qqdypvqqqpevo.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -6983,14 +4600,7 @@ sb.png
 ##### 351#       发表于 2018-7-10 22:14
 
 
-
-
 下午拍的，晚上发货了<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6999,20 +4609,13 @@ sb.png
 ##### 352#       发表于 2018-7-11 06:03
 
 
-
  本帖最后由 zxy26 于 2018-7-11 06:05 编辑 
 
 美版实体版的盒子内部好好看啊……港版也是一样的吗？
 
 
-
-
-
-
 1531255722775.jpg
 (194.84 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -7021,32 +4624,13 @@ sb.png
 2018-7-11 06:03 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/11/060312kmdqdwubbdembndq.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  灰色的狐狸  
 ##### 353#       发表于 2018-7-11 07:15
-
-
 
 
 在美亚定的限定版，现在还没准确发货日期，慌得一笔。
@@ -7056,32 +4640,19 @@ sb.png
 再接合最近square本社的剧本。。感觉要出大问题
 
 
-
-
-
-
-
 -----
 
 ####  西兹少爷  
 ##### 354#       发表于 2018-7-11 07:16
 
 
-
-
 后天到货
-
-
-
-
-
 
 
 -----
 
 ####  笛普达克范太希  
 ##### 355#       发表于 2018-7-11 08:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40285496&amp;ptid=1711545" target="_blank">prinny 发表于 2018-7-10 15:47</a>
@@ -7093,16 +4664,10 @@ sb.png
 能掉第二把，两把魔力剑我都是十把以内掉的
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 356#       发表于 2018-7-11 08:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40285882&amp;ptid=1711545" target="_blank">千川ちひろ 发表于 2018-7-10 16:15</a>
@@ -7113,16 +4678,10 @@ sb.png
 能扛过卫兵蓄力斩的1100伤害应该就可以了，我用的是猎人，也没舍得用别的宝宝光靠大猫磨的，旁边房子抓点冰灯啥的应该能打的轻松点，卫兵应该是弱元素攻击
 
 
-
-
-
-
-
 -----
 
 ####  三级怪兽  
 ##### 357#       发表于 2018-7-11 08:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40292347&amp;ptid=1711545" target="_blank">zxy26 发表于 2018-7-11 06:03</a>
@@ -7131,32 +4690,19 @@ sb.png
 港版八成白纸底……<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  纯白花火  
 ##### 358#       发表于 2018-7-11 08:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看了下淘宝 都还在运输中啊，估摸着明天才能发货
-
-
-
-
-
 
 
 -----
 
 ####  笛普达克范太希  
 ##### 359#       发表于 2018-7-11 08:57
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/11/085633lf9g6bry4h4bggg9.jpg" referrerpolicy="no-referrer">
@@ -7167,10 +4713,6 @@ sb.png
 下载附件
 
 2018-7-11 08:56 上传
-
-
-
-
 
 
 看见鬼佬那边好多都玩上了<img src="https://static.saraba1st.com/image/smiley/face2017/157.png" referrerpolicy="no-referrer">
@@ -7186,10 +4728,6 @@ sb.png
 2018-7-11 08:56 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/11/085635ar7zi9zes6lrkrl7.png" referrerpolicy="no-referrer">
 
 
@@ -7200,20 +4738,10 @@ sb.png
 2018-7-11 08:56 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 360#       发表于 2018-7-11 09:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40292729&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-07-11 08:14:05</a>
@@ -7222,25 +4750,13 @@ sb.png
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  ikariam_hk  
 ##### 361#       发表于 2018-7-11 09:22
 
 
-
-
 performance artist还行。。。
-
-
-
-
-
 
 
 -----
@@ -7249,21 +4765,13 @@ performance artist还行。。。
 ##### 362#       发表于 2018-7-11 09:57
 
 
-
-
 江湖传言 偷跑了？
-
-
-
-
-
 
 
 -----
 
 ####  prinny  
 ##### 363#       发表于 2018-7-11 10:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40292697&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-11 08:08</a>
@@ -7274,16 +4782,10 @@ performance artist还行。。。
 话说，你猎人小姐姐多少级可以怼他？
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 364#       发表于 2018-7-11 10:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40293744&amp;ptid=1711545" target="_blank">prinny 发表于 2018-7-11 10:01</a>
@@ -7294,25 +4796,13 @@ performance artist还行。。。
 我是三小时到头了才去打的他，那时候已经40多了，正常的话针对下他,抓点暗乌鸦啥的应该也是20多就行，猎人能打break、能回合末再动，也不怕他的致盲技能
 
 
-
-
-
-
-
 -----
 
 ####  helterskelter  
 ##### 365#       发表于 2018-7-11 10:24
 
 
-
-
 淘宝有店现货到了…已下单
-
-
-
-
-
 
 
 -----
@@ -7321,16 +4811,10 @@ performance artist还行。。。
 ##### 366#       发表于 2018-7-11 10:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40294052&amp;ptid=1711545" target="_blank">helterskelter 发表于 2018-7-11 10:24</a>
 
 淘宝有店现货到了…已下单</blockquote>
 惊了，哪家店？
-
-
-
-
-
 
 
 -----
@@ -7339,13 +4823,7 @@ performance artist还行。。。
 ##### 367#       发表于 2018-7-11 11:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">早上拍的居然已经发货了，惊了
-
-
-
-
-
 
 
 -----
@@ -7354,14 +4832,7 @@ performance artist还行。。。
 ##### 368#       发表于 2018-7-11 11:32
 
 
-
-
 计划7.13 拿到估计要下周了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7370,22 +4841,15 @@ performance artist还行。。。
 ##### 369#       发表于 2018-7-11 12:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40285629&amp;ptid=1711545" target="_blank">iou90 发表于 2018-7-10 15:57</a>
 不是风格问题啊 台词要有言有所物 要不体现角色特性要不是故事 重要是有趣吧 ffbffxv太空洞 ff8也很生活 ...</blockquote>
 我今天把除了商人妹子以外所有主角玩了一遍，个人感觉台词远不如FF9。因为这个游戏设计的原因，8个人篇幅都不长。情节设计说实话有点老套，生动的对白没见到过，所以感觉人物有点平面化....说得我有点怀念以前的FF，6和9多男主一出场我就特别喜欢。另外个人感觉八方旅人的像素在动作和表情上做得不如ff6生动
-
-
-
-
-
 
 
 -----
 
 ####  Tantalos  
 ##### 370#       发表于 2018-7-11 12:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40295435&amp;ptid=1711545" target="_blank">silverashashash 发表于 2018-7-11 12:10</a>
@@ -7396,26 +4860,15 @@ ff6那个吊炸天的开场。小岛秀夫搞那么久电影化。
 都没有ff6那个开头给我的震撼大。。。
 
 
-
-
-
-
-
 -----
 
 ####  helterskelter  
 ##### 371#       发表于 2018-7-11 12:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40294494&amp;ptid=1711545" target="_blank">falsethen 发表于 2018-7-11 10:56</a>
 惊了，哪家店？</blockquote>
 淘宝搜索见344楼 目前销量高的那几家
-
-
-
-
-
 
 
 -----
@@ -7424,14 +4877,7 @@ ff6那个吊炸天的开场。小岛秀夫搞那么久电影化。
 ##### 372#       发表于 2018-7-11 12:30
 
 
-
-
 你们到底都是怎么练这么高级的...我都两小时多了，现在圣女跟猎人才10级不到...现在还在跑学者剧情
-
-
-
-
-
 
 
 -----
@@ -7440,15 +4886,9 @@ ff6那个吊炸天的开场。小岛秀夫搞那么久电影化。
 ##### 373#       发表于 2018-7-11 12:42
 
 
-
 <blockquote>gh1023 发表于 2018-7-11 12:30
 你们到底都是怎么练这么高级的...我都两小时多了，现在圣女跟猎人才10级不到...现在还在跑学者剧情 ...</blockquote>
 舞女有个经验100倍的舞蹈，有些副本有些经验猫一只一千经验
-
-
-
-
-
 
 
 -----
@@ -7457,16 +4897,10 @@ ff6那个吊炸天的开场。小岛秀夫搞那么久电影化。
 ##### 374#       发表于 2018-7-11 13:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40295656&amp;ptid=1711545" target="_blank">gh1023 发表于 2018-07-11 12:30:46</a>
 你们到底都是怎么练这么高级的...我都两小时多了，现在圣女跟猎人才10级不到...现在还在跑学者剧情 ...</blockquote>试玩等级高都是靠出100倍经验舞的效果
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -7475,16 +4909,10 @@ ff6那个吊炸天的开场。小岛秀夫搞那么久电影化。
 ##### 375#       发表于 2018-7-11 13:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40295781&amp;ptid=1711545" target="_blank">则卷宝瓜 发表于 2018-7-11 12:42</a>
 
 舞女有个经验100倍的舞蹈，有些副本有些经验猫一只一千经验</blockquote>
 真特么绝了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还是正常等级玩把，反正也没卡过
-
-
-
-
-
 
 
 -----
@@ -7493,16 +4921,10 @@ ff6那个吊炸天的开场。小岛秀夫搞那么久电影化。
 ##### 376#       发表于 2018-7-11 13:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40295435&amp;ptid=1711545" target="_blank">silverashashash 发表于 2018-07-11 12:10:30</a>
 我今天把除了商人妹子以外所有主角玩了一遍，个人感觉台词远不如FF9。因为这个游戏设计的原因，8个人篇幅 ...</blockquote>八方不是那种天降大任于斯人式的开场啊，你看每个人踏上旅途都不是为了什么复杂的理由，序章收尾都是“他不知道这段旅程会发生什么”，剧情深度在序章是看不出来的
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -7511,15 +4933,9 @@ ff6那个吊炸天的开场。小岛秀夫搞那么久电影化。
 ##### 377#       发表于 2018-7-11 13:17
 
 
-
 <blockquote>silverashashash 发表于 2018-7-11 12:10
 我今天把除了商人妹子以外所有主角玩了一遍，个人感觉台词远不如FF9。因为这个游戏设计的原因，8个人篇幅 ...</blockquote>
 不如不代表玩不来。日本现在能出一个ff6都能改变格局了。
-
-
-
-
-
 
 
 -----
@@ -7528,13 +4944,7 @@ ff6那个吊炸天的开场。小岛秀夫搞那么久电影化。
 ##### 378#       发表于 2018-7-11 13:44
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顺丰已经送到上海了
-
-
-
-
-
 
 
 -----
@@ -7543,15 +4953,8 @@ ff6那个吊炸天的开场。小岛秀夫搞那么久电影化。
 ##### 379#         楼主| 发表于 2018-7-11 14:34
 
 
-
-
 偷跑评价，剧透警告：
 [https://gamefaqs.gamespot.com/bo ... h-traveler/76788054](https://gamefaqs.gamespot.com/boards/204212-octopath-traveler/76788054)
-
-
-
-
-
 
 
 -----
@@ -7560,13 +4963,7 @@ ff6那个吊炸天的开场。小岛秀夫搞那么久电影化。
 ##### 380#       发表于 2018-7-11 14:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">果然8人的剧情交互成硬伤了么
-
-
-
-
-
 
 
 -----
@@ -7575,21 +4972,13 @@ ff6那个吊炸天的开场。小岛秀夫搞那么久电影化。
 ##### 381#       发表于 2018-7-11 14:43
 
 
-
-
 好气啊，淘宝还没发货<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Lunamos  
 ##### 382#         楼主| 发表于 2018-7-11 14:48
-
 
 
  本帖最后由 Lunamos 于 2018-7-11 15:50 编辑 
@@ -7603,25 +4992,13 @@ ff6那个吊炸天的开场。小岛秀夫搞那么久电影化。
 虽然意图一眼就能看出来……
 
 
-
-
-
-
-
 -----
 
 ####  千川ちひろ  
 ##### 383#       发表于 2018-7-11 14:56
 
 
-
-
 试玩版还有20分钟的时间，目前17级。金银斧在手，是不是练练级争取去刷把魔力剑比较好？
-
-
-
-
-
 
 
 -----
@@ -7630,21 +5007,13 @@ ff6那个吊炸天的开场。小岛秀夫搞那么久电影化。
 ##### 384#       发表于 2018-7-11 15:00
 
 
-
-
 我预定的发货了！彭彭那家<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Geminize  
 ##### 385#       发表于 2018-7-11 15:24
-
 
 
  本帖最后由 Geminize 于 2018-7-11 15:28 编辑 
@@ -7654,26 +5023,13 @@ ff6那个吊炸天的开场。小岛秀夫搞那么久电影化。
 跑了，0元版已出
 
 
-
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 386#         楼主| 发表于 2018-7-11 15:25
 
 
-
-
 LS不用这么热情。
-
-
-
-
-
 
 
 -----
@@ -7682,14 +5038,8 @@ LS不用这么热情。
 ##### 387#       发表于 2018-7-11 15:34
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">呜哇，破解狗都能在专楼发言
 我还是买数字版吧 不怎么占空间
-
-
-
-
-
 
 
 -----
@@ -7698,16 +5048,10 @@ LS不用这么热情。
 ##### 388#       发表于 2018-7-11 15:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40297242&amp;ptid=1711545" target="_blank">千川ちひろ 发表于 2018-7-11 14:56</a>
 
 试玩版还有20分钟的时间，目前17级。金银斧在手，是不是练练级争取去刷把魔力剑比较好？ ...</blockquote>
 20分钟的话随便逛逛吧，不一定去刷了，17级血量上限也吃不消那个卫兵的一次buff后蓄力斩，真想打就SL几只经验猫练练剑士
-
-
-
-
-
 
 
 -----
@@ -7716,21 +5060,13 @@ LS不用这么热情。
 ##### 389#       发表于 2018-7-11 15:37
 
 
-
-
 小妖家没动静，另一家订的弟弟游戏光明之响居然也没动静<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">逆向偷跑遭得住啊
-
-
-
-
-
 
 
 -----
 
 ####  花火碳  
 ##### 390#       发表于 2018-7-11 15:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40297783&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-11 15:37</a>
@@ -7742,27 +5078,15 @@ LS不用这么热情。
 确实现在tb上偷跑的都是港版，我问了好几家有现货的都是港版，日版要13号以后了
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 391#       发表于 2018-7-11 15:57
 
 
-
-
 据说版本分区
 
 不同版本的试玩档并不通用继承<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7771,22 +5095,15 @@ LS不用这么热情。
 ##### 392#       发表于 2018-7-11 16:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">有些人真是，玩盗玩破解也懒得说了，偷跑得早盗版文件放出来还一定要别人都知道，
 
 非得跳到在等游戏的人脸上秀一下rom，活得是有多卑微
-
-
-
-
-
 
 
 -----
 
 ####  TANA  
 ##### 393#       发表于 2018-7-11 16:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40298144&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-7-11 16:04</a>
@@ -7799,16 +5116,10 @@ LS不用这么热情。
 破坏讨论环境而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  TheOccuria  
 ##### 394#       发表于 2018-7-11 16:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40298144&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-7-11 16:04</a>
@@ -7821,25 +5132,13 @@ LS不用这么热情。
 去年火纹提前半个月偷炮有人直接带图找人剧透，这个更要命
 
 
-
-
-
-
-
 -----
 
 ####  reficul  
 ##### 395#       发表于 2018-7-11 17:46
 
 
-
-
 我买的上海今天发货了，但是标的是11区，不知道到手是不是也是港版
-
-
-
-
-
 
 
 -----
@@ -7848,24 +5147,16 @@ LS不用这么热情。
 ##### 396#       发表于 2018-7-11 18:36
 
 
-
-
 港版的和日版的什么区别啊？语言不一样吗？
 看到微博有消息说港版用的是韩国的发型号，是不是买港版保险一点啊（万一有中文呢
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Geminize  
 ##### 397#       发表于 2018-7-11 18:54
-
 
 
 <blockquote>引用第397楼CogitoCrow于2018-07-11 18:36发表的  :
@@ -7877,27 +5168,15 @@ LS不用这么热情。
 ----发送自 [STAGE1 Mobile](http://saraba1st.com/2b/?1.0)
 
 
-
-
-
-
-
 -----
 
 ####  g54088  
 ##### 398#       发表于 2018-7-11 18:57
 
 
-
-
 港代韩不能继承日服试玩的存档，不能用日服账号领取点数。
 
 还好我没刷，不然就亏了。正好开个新档了。
-
-
-
-
-
 
 
 -----
@@ -7906,14 +5185,7 @@ LS不用这么热情。
 ##### 399#       发表于 2018-7-11 18:58
 
 
-
-
 日你大爷 香港都没买到你们的港版都是哪来的
-
-
-
-
-
 
 
 -----
@@ -7922,22 +5194,13 @@ LS不用这么热情。
 ##### 400#       发表于 2018-7-11 19:58
 
 
-
-
 真是日了狗了，顺丰说今天没得送了，劳资自己开车到营业点拿的。气死我了
-
-
-
-
-
 
 
 -----
 
 ####  笛普达克范太希  
 ##### 401#       发表于 2018-7-11 20:31
-
-
 
 
 我看见鬼佬那边有人拿到日版偷跑了啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
@@ -7950,11 +5213,6 @@ LS不用这么热情。
 下载附件
 
 2018-7-11 20:19 上传
-
-
-
-
-
 
 
 顺便搬下上位职业的技能
@@ -8183,21 +5441,10 @@ Dreisang's Spell Cost: 50 - Divine
 2018-7-11 20:31 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Trompete  
 ##### 402#       发表于 2018-7-11 20:33
-
-
 
 
 不同的故事之间基本相互独立？
@@ -8209,25 +5456,13 @@ Dreisang's Spell Cost: 50 - Divine
 同世界观的不同故事也挺好的
 
 
-
-
-
-
-
 -----
 
 ####  lly778  
 ##### 403#       发表于 2018-7-11 20:40
 
 
-
-
 所以现在说法是八个独立的故事，没有交汇？
-
-
-
-
-
 
 
 -----
@@ -8236,23 +5471,16 @@ Dreisang's Spell Cost: 50 - Divine
 ##### 404#       发表于 2018-7-11 20:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40300951&amp;ptid=1711545" target="_blank">lly778 发表于 2018-7-11 20:40</a>
 
 所以现在说法是八个独立的故事，没有交汇？</blockquote>
 reddit那边有个意大利测评说最终有交汇，也不知道是真是假
 
 
-
-
-
-
-
 -----
 
 ####  灰色的狐狸  
 ##### 405#       发表于 2018-7-11 21:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40301005&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-11 20:47</a>
@@ -8272,16 +5500,10 @@ Takahashi：我不想透露有关主要情节的任何信息，特别是在冒�
 看着贼矛盾
 
 
-
-
-
-
-
 -----
 
 ####  lly778  
 ##### 406#       发表于 2018-7-11 21:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40301273&amp;ptid=1711545" target="_blank">灰色的狐狸 发表于 2018-7-11 21:19</a>
@@ -8292,16 +5514,10 @@ Takahashi：我不想透露有关主要情节的任何信息，特别是在冒�
 感觉就是人物背景是有联系的，剧情里是独立的？
 
 
-
-
-
-
-
 -----
 
 ####  灰色的狐狸  
 ##### 407#       发表于 2018-7-11 21:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40301303&amp;ptid=1711545" target="_blank">lly778 发表于 2018-7-11 21:22</a>
@@ -8314,25 +5530,13 @@ Takahashi：我不想透露有关主要情节的任何信息，特别是在冒�
 至于背景的话,应该多多少少有点联系
 
 
-
-
-
-
-
 -----
 
 ####  leonyang19  
 ##### 408#       发表于 2018-7-11 23:23
 
 
-
-
 我下午到货了，然而人今天刚出差回来，明天到公司拆封看下
-
-
-
-
-
 
 
 -----
@@ -8341,14 +5545,7 @@ Takahashi：我不想透露有关主要情节的任何信息，特别是在冒�
 ##### 409#       发表于 2018-7-11 23:26
 
 
-
-
 应该是同一世界下的八条故事线吧，也算独特
-
-
-
-
-
 
 
 -----
@@ -8357,17 +5554,10 @@ Takahashi：我不想透露有关主要情节的任何信息，特别是在冒�
 ##### 410#       发表于 2018-7-12 03:14
 
 
-
-
 单独故事也没啥问题，别所有人最终BOSS都一样就行了。
 
 
 真交汇了说不定反而太难写而写崩。一个世界下不同视点也可以很有趣。
-
-
-
-
-
 
 
 -----
@@ -8376,16 +5566,9 @@ Takahashi：我不想透露有关主要情节的任何信息，特别是在冒�
 ##### 411#       发表于 2018-7-12 03:30
 
 
-
-
 OSt和攻略本发货了，不知道北美实体店能否偷跑
 
 —— 来自 Sony G8142, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
-
-
-
-
-
 
 
 -----
@@ -8394,23 +5577,15 @@ OSt和攻略本发货了，不知道北美实体店能否偷跑
 ##### 412#       发表于 2018-7-12 05:13
 
 
-
-
 单独故事线问题不大，但非要把八个人放在一起却当空气存在，光是战斗时才会出来，也太蹩脚了
 
 —— 来自 samsung SM-N9500, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
-
-
-
-
-
 
 
 -----
 
 ####  血狂毘沙门  
 ##### 413#       发表于 2018-7-12 05:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40304771&amp;ptid=1711545" target="_blank">彼方的心 发表于 2018-7-12 05:13</a>
@@ -8422,25 +5597,13 @@ OSt和攻略本发货了，不知道北美实体店能否偷跑
 之前访谈不是说了吗 除了开始游戏选的那个角色不能离队 剩下7个人可以一个不收去进行游戏
 
 
-
-
-
-
-
 -----
 
 ####  则卷宝瓜  
 ##### 414#       发表于 2018-7-12 06:21
 
 
-
-
 广州的店基本昨天都偷跑了，可以去动漫星城吃现，网上的话我买的嘉祥电玩，昨天也发货了…
-
-
-
-
-
 
 
 -----
@@ -8449,18 +5612,12 @@ OSt和攻略本发货了，不知道北美实体店能否偷跑
 ##### 415#       发表于 2018-7-12 06:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40304771&amp;ptid=1711545" target="_blank">彼方的心 发表于 2018-07-12 05:13:10</a>
 单独故事线问题不大，但非要把八个人放在一起却当空气存在，光是战斗时才会出来，也太蹩脚了
 
 —— 来自 sa ...</blockquote>意大利的访谈说8人故事最终会交织，但是没有说明在什么时候以什么方式交织
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -8476,16 +5633,10 @@ Title
 算了，看来也没几个人买日版日文，老老实实港代日
 
 
-
-
-
-
-
 -----
 
 ####  GMJ  
 ##### 417#       发表于 2018-7-12 08:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40304982&amp;ptid=1711545" target="_blank">redsouris 发表于 2018-7-12 06:24</a>
@@ -8499,16 +5650,10 @@ Title
 N个人N条线，互相影响纠不打完所有人都不知道整个故事的发展？
 
 
-
-
-
-
-
 -----
 
 ####  leonyang19  
 ##### 418#       发表于 2018-7-12 08:55
-
 
 
  本帖最后由 leonyang19 于 2018-7-12 08:56 编辑 
@@ -8518,25 +5663,13 @@ N个人N条线，互相影响纠不打完所有人都不知道整个故事的发
 确实是港版，好在试玩版没有狠刷
 
 
-
-
-
-
-
 -----
 
 ####  osk666  
 ##### 419#       发表于 2018-7-12 09:31
 
 
-
-
 话说这次全球版本都是一样的吧，美版也能日音日字吧
-
-
-
-
-
 
 
 -----
@@ -8545,22 +5678,15 @@ N个人N条线，互相影响纠不打完所有人都不知道整个故事的发
 ##### 420#       发表于 2018-7-12 09:33
 
 
-
 <blockquote>leonyang19 发表于 2018-7-12 08:55
 确实是港版，好在试玩版没有狠刷</blockquote>
 港代欧?美?这港任坑爹也不说下
-
-
-
-
-
 
 
 -----
 
 ####  巴巴耶罗  
 ##### 421#       发表于 2018-7-12 09:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40304972&amp;ptid=1711545" target="_blank">则卷宝瓜 发表于 2018-7-12 06:21</a>
@@ -8570,16 +5696,10 @@ N个人N条线，互相影响纠不打完所有人都不知道整个故事的发
 —— 来自 Xiaomi MI 8 SE, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  ルティナ  
 ##### 422#       发表于 2018-7-12 09:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40306449&amp;ptid=1711545" target="_blank">osk666 发表于 2018-7-12 09:31</a>
@@ -8589,16 +5709,10 @@ N个人N条线，互相影响纠不打完所有人都不知道整个故事的发
 —— 来自 Xiaomi MI 5s, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  leonyang19  
 ##### 423#       发表于 2018-7-12 10:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40306483&amp;ptid=1711545" target="_blank">西兹少爷 发表于 2018-7-12 09:33</a>
@@ -8611,16 +5725,10 @@ N个人N条线，互相影响纠不打完所有人都不知道整个故事的发
 除了不能继承存档外其实跟港日欧美也没啥区别了吧
 
 
-
-
-
-
-
 -----
 
 ####  西兹少爷  
 ##### 424#       发表于 2018-7-12 10:27
-
 
 
 <blockquote>leonyang19 发表于 2018-7-12 10:21
@@ -8632,16 +5740,10 @@ N个人N条线，互相影响纠不打完所有人都不知道整个故事的发
 关键是如果是日服，点数也不能拿
 
 
-
-
-
-
-
 -----
 
 ####  则卷宝瓜  
 ##### 425#       发表于 2018-7-12 10:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40307265&amp;ptid=1711545" target="_blank">西兹少爷 发表于 2018-7-12 10:27</a>
@@ -8650,25 +5752,13 @@ N个人N条线，互相影响纠不打完所有人都不知道整个故事的发
 不能继承存档，不能拿金币，坑爹啊。。还好只有三小时，金币就给美版账号好了。
 
 
-
-
-
-
-
 -----
 
 ####  则卷宝瓜  
 ##### 426#       发表于 2018-7-12 10:30
 
 
-
-
 有团队对话，之前说主角们没有交互的担忧可以打消了
-
-
-
-
-
 
 
 -----
@@ -8677,16 +5767,10 @@ N个人N条线，互相影响纠不打完所有人都不知道整个故事的发
 ##### 427#       发表于 2018-7-12 10:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40307265&amp;ptid=1711545" target="_blank">西兹少爷 发表于 2018-7-12 10:27</a>
 
 关键是如果是日服，点数也不能拿</blockquote>
 实体版1%金币吧，也就73金币，就怕到时候官方中文补丁的时候不带着日版一起玩（虽然可能性很低）我美版的塞尔达在日服领的金币，这个不会不能领吧
-
-
-
-
-
 
 
 -----
@@ -8695,16 +5779,10 @@ N个人N条线，互相影响纠不打完所有人都不知道整个故事的发
 ##### 428#       发表于 2018-7-12 10:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40307319&amp;ptid=1711545" target="_blank">则卷宝瓜 发表于 2018-7-12 10:30</a>
 
 有团队对话，之前说主角们没有交互的担忧可以打消了</blockquote>
 大约在第几章？是谁和谁的互动？
-
-
-
-
-
 
 
 -----
@@ -8713,16 +5791,10 @@ N个人N条线，互相影响纠不打完所有人都不知道整个故事的发
 ##### 429#       发表于 2018-7-12 10:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40306449&amp;ptid=1711545" target="_blank">osk666 发表于 2018-7-12 09:31</a>
 
 话说这次全球版本都是一样的吧，美版也能日音日字吧</blockquote>
 欧服和墨西哥服等一些电子版比较便宜的服好像都只有英语
-
-
-
-
-
 
 
 -----
@@ -8731,16 +5803,10 @@ N个人N条线，互相影响纠不打完所有人都不知道整个故事的发
 ##### 430#       发表于 2018-7-12 10:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40307351&amp;ptid=1711545" target="_blank">faust123 发表于 2018-7-12 10:31</a>
 
 大约在第几章？是谁和谁的互动？</blockquote>
 第二章就有，具体的不说了
-
-
-
-
-
 
 
 -----
@@ -8749,14 +5815,7 @@ N个人N条线，互相影响纠不打完所有人都不知道整个故事的发
 ##### 431#       发表于 2018-7-12 10:33
 
 
-
-
 豪华版发货了。不过估摸着得下个礼拜才能拿到。算了，不看讨论帖熬一下也就回来了。
-
-
-
-
-
 
 
 -----
@@ -8765,16 +5824,10 @@ N个人N条线，互相影响纠不打完所有人都不知道整个故事的发
 ##### 432#       发表于 2018-7-12 10:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40307352&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-7-12 10:32</a>
 
 欧服和墨西哥服等一些电子版比较便宜的服好像都只有英语</blockquote>
 美版实体版呢？
-
-
-
-
-
 
 
 -----
@@ -8783,14 +5836,7 @@ N个人N条线，互相影响纠不打完所有人都不知道整个故事的发
 ##### 433#       发表于 2018-7-12 10:38
 
 
-
-
 买的港代，包装背后写着日英
-
-
-
-
-
 
 
 -----
@@ -8799,14 +5845,7 @@ N个人N条线，互相影响纠不打完所有人都不知道整个故事的发
 ##### 434#       发表于 2018-7-12 11:03
 
 
-
-
 贴吧说港版继承的是美版demo存档
-
-
-
-
-
 
 
 -----
@@ -8815,14 +5854,7 @@ N个人N条线，互相影响纠不打完所有人都不知道整个故事的发
 ##### 435#       发表于 2018-7-12 11:16
 
 
-
-
 OTZ幸好测试版没怎么刷，当时就决定要从头玩。这次换了学者开局，AOE多属性魔法真的强得太吓人了，搭配盗贼估计零消耗……目前只对剧情后期能否汇聚有些担忧，没有任何不满点。真的太棒了这个游戏QAQ。如果有中文就能安利给更多的人了，实在可惜啊……
-
-
-
-
-
 
 
 -----
@@ -8831,14 +5863,7 @@ OTZ幸好测试版没怎么刷，当时就决定要从头玩。这次换了学�
 ##### 436#       发表于 2018-7-12 11:19
 
 
-
-
 港代渠道八方拿货版本没谱真是个大问题，伊苏8就看出来了，多少店家标的R文到货一看是英文
-
-
-
-
-
 
 
 -----
@@ -8847,21 +5872,13 @@ OTZ幸好测试版没怎么刷，当时就决定要从头玩。这次换了学�
 ##### 437#       发表于 2018-7-12 11:38
 
 
-
-
 游戏是不是全程都是马赛克状态，会有立绘出现的吗？
-
-
-
-
-
 
 
 -----
 
 ####  笛普达克范太希  
 ##### 438#       发表于 2018-7-12 11:39
-
 
 
  本帖最后由 笛普达克范太希 于 2018-7-12 11:45 编辑 
@@ -8878,11 +5895,6 @@ Bestith Girl isth H’aanit<img src="https://static.saraba1st.com/image/smiley/f
 2018-7-12 11:37 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/12/113831dhnbnc1dd6rlfdlb.jpg" referrerpolicy="no-referrer">
 
 
@@ -8891,10 +5903,6 @@ Bestith Girl isth H’aanit<img src="https://static.saraba1st.com/image/smiley/f
 下载附件
 
 2018-7-12 11:38 上传
-
-
-
-
 
 
 还有豪华版到货图，听说纸张材质不错
@@ -8909,10 +5917,6 @@ Bestith Girl isth H’aanit<img src="https://static.saraba1st.com/image/smiley/f
 2018-7-12 11:39 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/12/113913vjyzyyhvh3xj9hhx.jpg" referrerpolicy="no-referrer">
 
 
@@ -8923,17 +5927,9 @@ Bestith Girl isth H’aanit<img src="https://static.saraba1st.com/image/smiley/f
 2018-7-12 11:39 上传
 
 
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -8943,19 +5939,13 @@ Bestith Girl isth H’aanit<img src="https://static.saraba1st.com/image/smiley/f
 | flyzzhj| + 1|思路广|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  hashire.owl  
 ##### 439#       发表于 2018-7-12 11:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40308048&amp;ptid=1711545" target="_blank">whzfjk 发表于 2018-7-12 11:19</a>
@@ -8965,32 +5955,19 @@ Bestith Girl isth H’aanit<img src="https://static.saraba1st.com/image/smiley/f
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  Errey  
 ##### 440#       发表于 2018-7-12 11:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">学者跟商人的第二章是同一地点的，应该不会完全无交互吧
-
-
-
-
-
 
 
 -----
 
 ####  笛普达克范太希  
 ##### 441#       发表于 2018-7-12 12:05
-
-
 
 
 看见了过河拆桥的一幕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -9005,29 +5982,13 @@ Bestith Girl isth H’aanit<img src="https://static.saraba1st.com/image/smiley/f
 2018-7-12 12:04 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  SEGA  
 ##### 442#       发表于 2018-7-12 12:19
 
 
-
-
 这个游戏有没有可能移植到PS4？
-
-
-
-
-
 
 
 -----
@@ -9036,16 +5997,9 @@ Bestith Girl isth H’aanit<img src="https://static.saraba1st.com/image/smiley/f
 ##### 443#       发表于 2018-7-12 12:57
 
 
-
-
 港版到手了 能继承美区eshop的demo存档
 
 —— 来自 Sony H8324, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
-
-
-
-
-
 
 
 -----
@@ -9054,21 +6008,13 @@ Bestith Girl isth H’aanit<img src="https://static.saraba1st.com/image/smiley/f
 ##### 444#       发表于 2018-7-12 13:11
 
 
-
-
 结果港版代理的韩版其实是美版游戏？？
-
-
-
-
-
 
 
 -----
 
 ####  Rarity5  
 ##### 445#       发表于 2018-7-12 13:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40309471&amp;ptid=1711545" target="_blank">ikariam_hk 发表于 2018-7-12 13:11</a>
@@ -9079,33 +6025,19 @@ Bestith Girl isth H’aanit<img src="https://static.saraba1st.com/image/smiley/f
 —— 来自 Sony H8324, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  Tantalos  
 ##### 446#       发表于 2018-7-12 14:30
 
 
-
-
 我的金斧头没的继承。。。。不开心
-
-
-
-
-
 
 
 -----
 
 ####  Bani82  
 ##### 447#       发表于 2018-7-12 14:48
-
-
 
 
 在超级阿猛买了，是什么版本？
@@ -9115,17 +6047,10 @@ Bestith Girl isth H’aanit<img src="https://static.saraba1st.com/image/smiley/f
 我记得我美服买了蓓姐合集的金币似乎是会转成日服的金币的啊
 
 
-
-
-
-
-
 -----
 
 ####  霜落  
 ##### 448#       发表于 2018-7-12 15:14
-
-
 
 
 预购完了，晚上等解锁了.
@@ -9133,16 +6058,10 @@ Bestith Girl isth H’aanit<img src="https://static.saraba1st.com/image/smiley/f
 demo收了8个人，不过剧情都没怎么看，犹豫要不要继承<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  leonyang19  
 ##### 449#       发表于 2018-7-12 15:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40310547&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-7-12 14:48</a>
@@ -9155,32 +6074,19 @@ demo收了8个人，不过剧情都没怎么看，犹豫要不要继承<img src=
 港代韩的我试了，不行，不能给日服账号领金币
 
 
-
-
-
-
-
 -----
 
 ####  bluna  
 ##### 450#       发表于 2018-7-12 16:02
 
 
-
-
 早预购了日服电子版。不急
-
-
-
-
-
 
 
 -----
 
 ####  Bani82  
 ##### 451#       发表于 2018-7-12 16:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40311448&amp;ptid=1711545" target="_blank">leonyang19 发表于 2018-7-12 15:57</a>
@@ -9193,16 +6099,10 @@ demo收了8个人，不过剧情都没怎么看，犹豫要不要继承<img src=
 实体卡的金币是卡插入机器后就算？貌似也没见到盒子有兑换码什么的
 
 
-
-
-
-
-
 -----
 
 ####  leonyang19  
 ##### 452#       发表于 2018-7-12 16:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40311537&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-7-12 16:04</a>
@@ -9215,25 +6115,13 @@ demo收了8个人，不过剧情都没怎么看，犹豫要不要继承<img src=
 这次兑换的提示消息是 您所使用的任天堂账号所在区域无法兑换该软件的点数
 
 
-
-
-
-
-
 -----
 
 ####  pei1019  
 ##### 453#       发表于 2018-7-12 16:40
 
 
-
-
 港版到了，第一次买港版英文的……不过也无所谓了，开机<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9242,14 +6130,7 @@ demo收了8个人，不过剧情都没怎么看，犹豫要不要继承<img src=
 ##### 454#       发表于 2018-7-12 16:42
 
 
-
-
 那么有没有港代日呢 求个安心
-
-
-
-
-
 
 
 -----
@@ -9258,21 +6139,13 @@ demo收了8个人，不过剧情都没怎么看，犹豫要不要继承<img src=
 ##### 455#       发表于 2018-7-12 16:44
 
 
-
-
 没有  直接日版吧
-
-
-
-
-
 
 
 -----
 
 ####  Bani82  
 ##### 456#       发表于 2018-7-12 17:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40311884&amp;ptid=1711545" target="_blank">leonyang19 发表于 2018-7-12 16:33</a>
@@ -9287,33 +6160,19 @@ demo收了8个人，不过剧情都没怎么看，犹豫要不要继承<img src=
 这任地狱的账号真烦啊...完全不能和PSN比的感觉
 
 
-
-
-
-
-
 -----
 
 ####  血狂毘沙门  
 ##### 457#       发表于 2018-7-12 17:45
 
 
-
-
 既然没有港代日 那这游戏是全区语言的吗
-
-
-
-
-
 
 
 -----
 
 ####  水龙头君  
 ##### 458#       发表于 2018-7-12 19:30
-
-
 
 
 刚刚到手，没玩demo，问几个问题
@@ -9325,16 +6184,10 @@ demo收了8个人，不过剧情都没怎么看，犹豫要不要继承<img src=
 你们说的刷魔剑是什么意思？
 
 
-
-
-
-
-
 -----
 
 ####  han110022  
 ##### 459#       发表于 2018-7-12 19:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40313705&amp;ptid=1711545" target="_blank">鱼肉丸子 发表于 2018-7-12 19:14</a>
@@ -9346,17 +6199,10 @@ demo收了8个人，不过剧情都没怎么看，犹豫要不要继承<img src=
 我目前玩下来，药师打听是可以获得偷窃和诱惑成功率UP的情报，另外就是盗贼自己的等级相关了吧
 
 
-
-
-
-
-
 -----
 
 ####  阿卡林型不语  
 ##### 460#       发表于 2018-7-12 20:06
-
-
 
 
 居然偷跑了！！啊啊啊啊啊啊好想玩，本地店没有消息啊！天天盯着手机界面望梅止渴<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
@@ -9364,14 +6210,8 @@ demo收了8个人，不过剧情都没怎么看，犹豫要不要继承<img src=
 好想玩啊！存档继承现在是什么情况？
 
 
-
-
-
-
 C7085EEA-0E4A-4EF0-AFDD-4D4EE4B6E4A0.jpeg
 (688.23 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -9380,31 +6220,13 @@ C7085EEA-0E4A-4EF0-AFDD-4D4EE4B6E4A0.jpeg
 2018-7-12 20:06 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/12/200642usb04g33gzb93suz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  阿卡林型不语  
 ##### 461#       发表于 2018-7-12 20:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40312832&amp;ptid=1711545" target="_blank">血狂毘沙门 发表于 2018-7-12 17:45</a>
@@ -9415,85 +6237,39 @@ C7085EEA-0E4A-4EF0-AFDD-4D4EE4B6E4A0.jpeg
 问题是看得懂英文讨厌英语配音，日语好听但是苦手啊！！
 
 
-
-
-
-
-
 -----
 
 ####  阿卡林型不语  
 ##### 462#       发表于 2018-7-12 20:10
 
 
-
-
 梅
-
-
-
-
 
 
 4405725B-266F-494A-90FD-93879BF64D66.jpeg
 (611.95 KB, 下载次数: 5)
 
 
-
-
 下载附件
 
 
 2018-7-12 20:10 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/12/201017qzrxxp38p0f6f2ij.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 4ADA6647-0FB9-4CC0-A4E4-4844619216C2.jpeg
 (583.65 KB, 下载次数: 4)
 
 
-
-
 下载附件
 
 
 2018-7-12 20:10 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/12/201016gsz8bx6woboocsb8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -9502,14 +6278,7 @@ C7085EEA-0E4A-4EF0-AFDD-4D4EE4B6E4A0.jpeg
 ##### 463#       发表于 2018-7-12 20:48
 
 
-
-
 请问下，几点钟解锁呀？0点吗？
-
-
-
-
-
 
 
 -----
@@ -9518,16 +6287,9 @@ C7085EEA-0E4A-4EF0-AFDD-4D4EE4B6E4A0.jpeg
 ##### 464#       发表于 2018-7-12 21:18
 
 
-
-
 mc现在85。看了一下评价，八位主角的故事最后果然没有整合到一起。有点小失望
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -9536,13 +6298,7 @@ mc现在85。看了一下评价，八位主角的故事最后果然没有整合�
 ##### 465#       发表于 2018-7-12 21:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">刚打算开玩 居然还有更新
-
-
-
-
-
 
 
 -----
@@ -9551,23 +6307,13 @@ mc现在85。看了一下评价，八位主角的故事最后果然没有整合�
 ##### 466#         楼主| 发表于 2018-7-12 21:35
 
 
-
-
 IGN对像素游戏有迷之加成，居然给了9.3。
-
-
-
-
-
-
 
 
 -----
 
 ####  灰色的狐狸  
 ##### 467#       发表于 2018-7-12 21:45
-
-
 
 
 不满点都在剧情
@@ -9577,32 +6323,19 @@ IGN对像素游戏有迷之加成，居然给了9.3。
 果然现在square的剧本没法看
 
 
-
-
-
-
-
 -----
 
 ####  羽咲绫乃  
 ##### 468#       发表于 2018-7-12 21:47
 
 
-
-
 9.3！！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这下NS大概能把PS4彻底按死了
-
-
-
-
-
 
 
 -----
 
 ####  Lunamos  
 ##### 469#         楼主| 发表于 2018-7-12 21:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40315199&amp;ptid=1711545" target="_blank">灰色的狐狸 发表于 2018-7-12 22:45</a>
@@ -9618,16 +6351,10 @@ IGN对像素游戏有迷之加成，居然给了9.3。
 SE如果开窍，就用这个引擎开始复刻老游戏。这就不用担心剧本问题了。
 
 
-
-
-
-
-
 -----
 
 ####  minysun  
 ##### 470#       发表于 2018-7-12 21:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40314240&amp;ptid=1711545" target="_blank">阿卡林型不语 发表于 2018-7-12 20:08</a>
@@ -9638,32 +6365,19 @@ SE如果开窍，就用这个引擎开始复刻老游戏。这就不用担心剧
 试玩时就能英字日配，你自己调整一下吧
 
 
-
-
-
-
-
 -----
 
 ####  时代广场蟋蟀  
 ##### 471#       发表于 2018-7-12 21:52
 
 
-
-
 终于订了，等着周末到手完爆！
-
-
-
-
-
 
 
 -----
 
 ####  灰色的狐狸  
 ##### 472#       发表于 2018-7-12 21:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40315260&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-12 21:51</a>
@@ -9677,25 +6391,13 @@ SE如果开窍，就用这个引擎 ...</blockquote>
 其实只要多个最后一终章出来评论至少能扭转一半
 
 
-
-
-
-
-
 -----
 
 ####  Rary  
 ##### 473#       发表于 2018-7-12 22:03
 
 
-
-
 这种多主角的游戏，我其实最期待的是剧情，可惜
-
-
-
-
-
 
 
 -----
@@ -9704,14 +6406,7 @@ SE如果开窍，就用这个引擎 ...</blockquote>
 ##### 474#       发表于 2018-7-12 22:09
 
 
-
-
 评分来看本作略强于北欧女神和幻水2，略弱于二之国2，闪轨2和口袋日月，与最终幻想13相当。现在还信JRPG评分是有多想不开？
-
-
-
-
-
 
 
 -----
@@ -9720,16 +6415,10 @@ SE如果开窍，就用这个引擎 ...</blockquote>
 ##### 475#         楼主| 发表于 2018-7-12 22:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40315437&amp;ptid=1711545" target="_blank">Aters6 发表于 2018-7-12 23:09</a>
 
 评分来看本作略强于北欧女神和幻水2，略弱于二之国2，闪轨2和口袋日月，与最终幻想13相当。现在还信JRPG评 ...</blockquote>
 最重要的没说啊，略强于XB2<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9738,17 +6427,10 @@ SE如果开窍，就用这个引擎 ...</blockquote>
 ##### 476#       发表于 2018-7-12 22:20
 
 
-
-
 什么鬼。。你们玩这么快的？？？
 
 
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
-
-
-
-
-
 
 
 -----
@@ -9757,16 +6439,9 @@ SE如果开窍，就用这个引擎 ...</blockquote>
 ##### 477#       发表于 2018-7-12 22:31
 
 
-
-
 嘻嘻，号刚挂出来就来反串了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 有人就是贼心不死
-
-
-
-
-
 
 
 -----
@@ -9775,13 +6450,7 @@ SE如果开窍，就用这个引擎 ...</blockquote>
 ##### 478#       发表于 2018-7-12 22:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不知道这周能拿到吗
-
-
-
-
-
 
 
 -----
@@ -9790,15 +6459,9 @@ SE如果开窍，就用这个引擎 ...</blockquote>
 ##### 479#       发表于 2018-7-12 23:10
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">选了松冈，出门直奔毛衣
 
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
-
-
-
-
-
 
 
 -----
@@ -9807,14 +6470,7 @@ SE如果开窍，就用这个引擎 ...</blockquote>
 ##### 480#       发表于 2018-7-12 23:18
 
 
-
-
 买的实体盘，快递还在路上，不过不急，这游戏试玩版并没有那种玩的停不下来的感觉。。。
-
-
-
-
-
 
 
 -----
@@ -9823,16 +6479,10 @@ SE如果开窍，就用这个引擎 ...</blockquote>
 ##### 481#       发表于 2018-7-12 23:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40315495&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-07-12 22:14:37</a>
 最重要的没说啊，略强于XB2</blockquote>你又要挑起战争嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -9841,14 +6491,7 @@ SE如果开窍，就用这个引擎 ...</blockquote>
 ##### 482#       发表于 2018-7-13 00:25
 
 
-
-
 玩了一晚上，真的好玩，五小时了，收了7个主角，新手推荐前期去偷金斧头，神器啊
-
-
-
-
-
 
 
 -----
@@ -9857,21 +6500,13 @@ SE如果开窍，就用这个引擎 ...</blockquote>
 ##### 483#       发表于 2018-7-13 00:27
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">其实XB2和八路军在泥潭受众可能大概其差不多，不用担心打起来吧
-
-
-
-
-
 
 
 -----
 
 ####  hgcg-w  
 ##### 484#       发表于 2018-7-13 00:49
-
-
 
 
 问下问下
@@ -9881,27 +6516,15 @@ SE如果开窍，就用这个引擎 ...</blockquote>
 没有更多队友了吗？
 
 
-
-
-
-
-
 -----
 
 ####  冰原狼  
 ##### 485#       发表于 2018-7-13 01:15
 
 
-
-
 预购版现在能玩了吗？美东还是12号，不知道今天下班回家能不能玩到
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -9910,16 +6533,10 @@ SE如果开窍，就用这个引擎 ...</blockquote>
 ##### 486#       发表于 2018-7-13 01:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40316732&amp;ptid=1711545" target="_blank">Renkonsai 发表于 2018-7-13 00:27</a>
 
 其实XB2和八路军在泥潭受众可能大概其差不多，不用担心打起来吧</blockquote>
 受众肯定是差不多的，就是啃生肉辛苦
-
-
-
-
-
 
 
 -----
@@ -9928,14 +6545,7 @@ SE如果开窍，就用这个引擎 ...</blockquote>
 ##### 487#       发表于 2018-7-13 03:12
 
 
-
-
 ign给xb2 8.5，八方旅人9.3<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 游戏丰富程度后者远超前者吧，难道是当4399来评了
-
-
-
-
-
 
 
 -----
@@ -9944,16 +6554,10 @@ ign给xb2 8.5，八方旅人9.3<img src="https://static.saraba1st.com/image/smil
 ##### 488#       发表于 2018-7-13 03:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40315381&amp;ptid=1711545" target="_blank">Rary 发表于 2018-7-12 10:03</a>
 
 这种多主角的游戏，我其实最期待的是剧情，可惜</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不过当初玩的时候就没指望剧情过……这主人公之间好像都没互动的
-
-
-
-
-
 
 
 -----
@@ -9962,16 +6566,10 @@ ign给xb2 8.5，八方旅人9.3<img src="https://static.saraba1st.com/image/smil
 ##### 489#       发表于 2018-7-13 03:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40315495&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-12 22:14</a>
 
 最重要的没说啊，略强于XB2</blockquote>
 点燃火药桶 1/1 <img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9980,21 +6578,13 @@ ign给xb2 8.5，八方旅人9.3<img src="https://static.saraba1st.com/image/smil
 ##### 490#       发表于 2018-7-13 03:49
 
 
-
-
 ign是按照独立游戏的标准打分的吧
-
-
-
-
-
 
 
 -----
 
 ####  光宗薫  
 ##### 491#       发表于 2018-7-13 03:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40316713&amp;ptid=1711545" target="_blank">则卷宝瓜 发表于 2018-7-13 00:25</a>
@@ -10004,32 +6594,19 @@ ign是按照独立游戏的标准打分的吧
 —— 来自 Xiaomi MI MAX 2, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  假山君  
 ##### 492#       发表于 2018-7-13 04:48
 
 
-
-
 OphiliaCyrusTressaOlbericPrimroseAlfynTherionHaanit 这个组是不是特喜欢搞标题玩 之前bdff也是
-
-
-
-
-
 
 
 -----
 
 ####  redsouris  
 ##### 493#       发表于 2018-7-13 06:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40317403&amp;ptid=1711545" target="_blank">光宗薫 发表于 2018-07-13 03:52:36</a>
@@ -10043,25 +6620,13 @@ OphiliaCyrusTressaOlbericPrimroseAlfynTherionHaanit 这个组是不是特喜欢�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  zxy26  
 ##### 494#       发表于 2018-7-13 07:32
 
 
-
-
 看了三四个评测，全都是打了5，60个小时才通关两三个人的……那全通关岂不是要80个小时往上走了
-
-
-
-
-
 
 
 -----
@@ -10070,16 +6635,10 @@ OphiliaCyrusTressaOlbericPrimroseAlfynTherionHaanit 这个组是不是特喜欢�
 ##### 495#       发表于 2018-7-13 07:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40317694&amp;ptid=1711545" target="_blank">zxy26 发表于 2018-7-13 07:32</a>
 
 看了三四个评测，全都是打了5，60个小时才通关两三个人的……那全通关岂不是要80个小时往上走了 ...</blockquote>
 kotaku那位说8人全通就用30多小时。
-
-
-
-
-
 
 
 -----
@@ -10088,15 +6647,9 @@ kotaku那位说8人全通就用30多小时。
 ##### 496#       发表于 2018-7-13 07:41
 
 
-
 <blockquote>djinn 发表于 2018-7-13 07:39
 kotaku那位说8人全通就用30多小时。</blockquote>
 30多小时的怕不是用的邪道玩法 比如商人砸钱召唤神官 刷百倍经验练到70级之类 光第一章正常玩剧情全看就要差不多5小时 一共8章 单纯计算要40小时 30小时怕不是开了老金或者剧情全跳吧？
-
-
-
-
-
 
 
 -----
@@ -10105,23 +6658,15 @@ kotaku那位说8人全通就用30多小时。</blockquote>
 ##### 497#       发表于 2018-7-13 07:46
 
 
-
-
 南非服的什么时候解锁……
 
 — from OnePlus ONEPLUS A5010, Android 8.1.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0-play
-
-
-
-
-
 
 
 -----
 
 ####  djinn  
 ##### 498#       发表于 2018-7-13 07:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40317734&amp;ptid=1711545" target="_blank">假山君 发表于 2018-7-13 07:41</a>
@@ -10133,16 +6678,10 @@ kotaku那位说8人全通就用30多小时。</blockquote>
 I completed all eight stories (32 chapters) and did a handful of optional dungeons. My game's clock is at 36 hours, three minutes
 
 
-
-
-
-
-
 -----
 
 ####  zxy26  
 ##### 499#       发表于 2018-7-13 07:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40317721&amp;ptid=1711545" target="_blank">djinn 发表于 2018-7-13 07:39</a>
@@ -10151,16 +6690,10 @@ kotaku那位说8人全通就用30多小时。</blockquote>
 我不相信kotaku那个人说的话……他的过往发言使得我对他这个人有点怀疑
 
 
-
-
-
-
-
 -----
 
 ####  djinn  
 ##### 500#       发表于 2018-7-13 07:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40317756&amp;ptid=1711545" target="_blank">zxy26 发表于 2018-7-13 07:48</a>
@@ -10169,16 +6702,10 @@ kotaku那位说8人全通就用30多小时。</blockquote>
 我是觉得他一直说这游戏不好有点跟网友赌气的意思。
 
 
-
-
-
-
-
 -----
 
 ####  zxy26  
 ##### 501#       发表于 2018-7-13 07:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40317768&amp;ptid=1711545" target="_blank">djinn 发表于 2018-7-13 07:51</a>
@@ -10187,16 +6714,10 @@ kotaku那位说8人全通就用30多小时。</blockquote>
 我觉得他可能确实全通了，但是肯定是飞速通关的那种，看他本身也不是很喜欢的样子
 
 
-
-
-
-
-
 -----
 
 ####  假山君  
 ##### 502#       发表于 2018-7-13 07:53
-
 
 
 <blockquote>djinn 发表于 2018-7-13 07:46
@@ -10207,16 +6728,10 @@ I completed all eight stories (32 chapters) and did a handful of optional  ...
 然而八人一共64章 他只玩了32
 
 
-
-
-
-
-
 -----
 
 ####  djinn  
 ##### 503#       发表于 2018-7-13 07:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40317774&amp;ptid=1711545" target="_blank">zxy26 发表于 2018-7-13 07:53</a>
@@ -10225,16 +6740,10 @@ I completed all eight stories (32 chapters) and did a handful of optional  ...
 确实通了，隐藏职业一个没打。
 
 
-
-
-
-
-
 -----
 
 ####  zxy26  
 ##### 504#       发表于 2018-7-13 07:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40317783&amp;ptid=1711545" target="_blank">djinn 发表于 2018-7-13 07:54</a>
@@ -10243,16 +6752,10 @@ I completed all eight stories (32 chapters) and did a handful of optional  ...
 隐藏职业还有剧情的？
 
 
-
-
-
-
-
 -----
 
 ####  djinn  
 ##### 505#       发表于 2018-7-13 07:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40317775&amp;ptid=1711545" target="_blank">假山君 发表于 2018-7-13 07:53</a>
@@ -10261,16 +6764,10 @@ I completed all eight stories (32 chapters) and did a handful of optional  ...
 所以每个人有额外4章吗？
 
 
-
-
-
-
-
 -----
 
 ####  灰色的狐狸  
 ##### 506#       发表于 2018-7-13 07:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40317775&amp;ptid=1711545" target="_blank">假山君 发表于 2018-7-13 07:53</a>
@@ -10279,25 +6776,13 @@ I completed all eight stories (32 chapters) and did a handful of optional  ...
 8人一共不就32章么。。（
 
 
-
-
-
-
-
 -----
 
 ####  xiluo3344  
 ##### 507#       发表于 2018-7-13 07:57
 
 
-
-
 卧槽这开始画面的BGM，一大早整个人都精神了。
-
-
-
-
-
 
 
 -----
@@ -10306,16 +6791,10 @@ I completed all eight stories (32 chapters) and did a handful of optional  ...
 ##### 508#       发表于 2018-7-13 07:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40317789&amp;ptid=1711545" target="_blank">zxy26 发表于 2018-7-13 07:55</a>
 
 隐藏职业还有剧情的？</blockquote>
 好像有追加迷宫和boss。
-
-
-
-
-
 
 
 -----
@@ -10324,15 +6803,9 @@ I completed all eight stories (32 chapters) and did a handful of optional  ...
 ##### 509#       发表于 2018-7-13 07:57
 
 
-
 <blockquote>djinn 发表于 2018-7-13 07:56
 所以每个人有额外4章吗？</blockquote>
 有人发了旗子长度 每一节是一章 四章只有一半 八章是完整的 我看见的图是那人玩了61小时
-
-
-
-
-
 
 
 -----
@@ -10341,18 +6814,12 @@ I completed all eight stories (32 chapters) and did a handful of optional  ...
 ##### 510#       发表于 2018-7-13 07:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40317805&amp;ptid=1711545" target="_blank">假山君 发表于 2018-7-13 07:57</a>
 
 有人发了旗子长度 每一节是一章 四章只有一半 八章是完整的 我看见的图是那人玩了61小时 ...</blockquote>
 求图
 
 棋子那个图看过了，但没看到过突破4的。
-
-
-
-
-
 
 
 -----
@@ -10385,16 +6852,10 @@ kotaku那个人也说了“Gate of Finis”在游戏中有被提及一次，但�
 这么来看应该会有隐藏boss
 
 
-
-
-
-
-
 -----
 
 ####  假山君  
 ##### 512#       发表于 2018-7-13 08:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40317808&amp;ptid=1711545" target="_blank">djinn 发表于 2018-7-13 07:58</a>
@@ -10405,14 +6866,8 @@ kotaku那个人也说了“Gate of Finis”在游戏中有被提及一次，但�
 手机要怎么上传图片
 
 
-
-
-
-
 8D5EA22B-7303-469D-844D-9008A0FE43F0.jpeg
 (75.75 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -10421,27 +6876,11 @@ kotaku那个人也说了“Gate of Finis”在游戏中有被提及一次，但�
 2018-7-13 08:06 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/13/080631adj7bpyvpxp76pcc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 E5FEA719-703D-4BE0-83EF-313F226229CB.jpeg
 (75.75 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -10450,25 +6889,9 @@ E5FEA719-703D-4BE0-83EF-313F226229CB.jpeg
 2018-7-13 08:07 上传
 
 
-
-
-
-
-
-
 ...
 
 <img src="https://img.saraba1st.com/forum/201807/13/080718zy2nh2y77h2yxo4o.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -10477,16 +6900,10 @@ E5FEA719-703D-4BE0-83EF-313F226229CB.jpeg
 ##### 513#       发表于 2018-7-13 08:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40317864&amp;ptid=1711545" target="_blank">假山君 发表于 2018-7-13 08:09</a>
 
 手机要怎么上传图片</blockquote>
 卧槽，这个炸裂了。
-
-
-
-
-
 
 
 -----
@@ -10495,15 +6912,9 @@ E5FEA719-703D-4BE0-83EF-313F226229CB.jpeg
 ##### 514#       发表于 2018-7-13 08:12
 
 
-
 <blockquote>djinn 发表于 2018-7-13 08:09
 卧槽，这个炸裂了。</blockquote>
 旗子图怎么看四章都只有一半啊 为啥那人会觉得已经全通了
-
-
-
-
-
 
 
 -----
@@ -10512,23 +6923,16 @@ E5FEA719-703D-4BE0-83EF-313F226229CB.jpeg
 ##### 515#       发表于 2018-7-13 08:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40317783&amp;ptid=1711545" target="_blank">djinn 发表于 2018-07-13 07:54:37</a>
 确实通了，隐藏职业一个没打。</blockquote>隐藏职业不是转职的吗？
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  假山君  
 ##### 516#       发表于 2018-7-13 08:15
-
 
 
  本帖最后由 假山君 于 2018-7-13 08:18 编辑 
@@ -10542,14 +6946,8 @@ E5FEA719-703D-4BE0-83EF-313F226229CB.jpeg
 试炼可能跟世界观里12个神有关系吧？据说这是占星师
 
 
-
-
-
-
 806EE49B-4C9B-4AD8-92A2-EE7BDBB02B13.jpeg
 (387.37 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -10558,32 +6956,13 @@ E5FEA719-703D-4BE0-83EF-313F226229CB.jpeg
 2018-7-13 08:17 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/13/081711wfgwwhhvywyng9ry.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  Lunamos  
 ##### 517#         楼主| 发表于 2018-7-13 08:17
-
-
 
 
 Jason Schreier 
@@ -10598,32 +6977,19 @@ If you asked me “should I play Octopath Traveler?” I would say “if you lik
 所以这人说的话泥潭也能信？
 
 
-
-
-
-
-
 -----
 
 ####  ever18  
 ##### 518#       发表于 2018-7-13 08:18
 
 
-
-
 看PV，音乐大赞，中文真的没戏么？
-
-
-
-
-
 
 
 -----
 
 ####  zxy26  
 ##### 519#       发表于 2018-7-13 08:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40317913&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-13 08:17</a>
@@ -10635,14 +7001,8 @@ If you asked me “should I play Xenoblade 2?” I would say “absolutely not.�
 这个人说的最逗的话：如果你喜欢这个大奶角色你就是萝莉控
 
 
-
-
-
-
 siopWVD.png
 (400.51 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -10651,24 +7011,7 @@ siopWVD.png
 2018-7-13 08:19 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/13/081931i799c17curf8yzhf.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -10677,21 +7020,13 @@ siopWVD.png
 ##### 520#       发表于 2018-7-13 08:27
 
 
-
-
 上位职业全部要打boss试炼拿的
-
-
-
-
-
 
 
 -----
 
 ####  haru橙子  
 ##### 521#       发表于 2018-7-13 08:32
-
 
 
  本帖最后由 haru橙子 于 2018-7-13 08:41 编辑 
@@ -10701,16 +7036,10 @@ siopWVD.png
 那普通的战斗职业要怎么解锁，8个人第一章全部打完么
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 522#       发表于 2018-7-13 08:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40318027&amp;ptid=1711545" target="_blank">haru橙子 发表于 2018-07-13 08:32:31</a>
@@ -10719,16 +7048,10 @@ siopWVD.png
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  haru橙子  
 ##### 523#       发表于 2018-7-13 09:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40318185&amp;ptid=1711545" target="_blank">redsouris 发表于 2018-7-13 08:50</a>
@@ -10738,25 +7061,13 @@ siopWVD.png
 哦哦，了解了
 
 
-
-
-
-
-
 -----
 
 ####  kiraabu  
 ##### 524#       发表于 2018-7-13 09:17
 
 
-
-
 为什么那么在意一个白皮的评价<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10765,14 +7076,7 @@ siopWVD.png
 ##### 525#       发表于 2018-7-13 09:18
 
 
-
-
 玩了四个小时。猎人姐开局，那个箭雨群攻的技能真是太爽了，就是SP有点……<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10781,15 +7085,9 @@ siopWVD.png
 ##### 526#       发表于 2018-7-13 09:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">啊昨天晚上开玩，果然是港代的不能继承日区存档，重新开始了
 
 又要晚上下班才能玩了，煎熬<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10798,23 +7096,15 @@ siopWVD.png
 ##### 527#       发表于 2018-7-13 09:54
 
 
-
-
 不懂日语，这游戏英语难么
 
 —— 来自 OnePlus ONEPLUS A3010, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
-
-
-
-
-
 
 
 -----
 
 ####  pei1019  
 ##### 528#       发表于 2018-7-13 10:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40318831&amp;ptid=1711545" target="_blank">vaststars 发表于 2018-7-13 09:54</a>
@@ -10826,16 +7116,10 @@ siopWVD.png
 专八旅人了解一下……<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  wildgazelle  
 ##### 529#       发表于 2018-7-13 10:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40318831&amp;ptid=1711545" target="_blank">vaststars 发表于 2018-7-13 09:54</a>
@@ -10847,24 +7131,13 @@ siopWVD.png
 不难，就是有些词故意用了古英语的表述。而且不是有demo吗
 
 
-
-
-
-
-
 -----
 
 ####  Errey  
 ##### 530#       发表于 2018-7-13 10:25
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比较关心，4章后剧情有没有崩或者说有没有什么看点
-
-
-
-
-
 
 
 -----
@@ -10873,15 +7146,9 @@ siopWVD.png
 ##### 531#       发表于 2018-7-13 10:29
 
 
-
  本帖最后由 Tantalos 于 2018-7-13 10:30 编辑 
 
 如何保持跑步而不是按住 b跑步？
-
-
-
-
-
 
 
 -----
@@ -10890,16 +7157,9 @@ siopWVD.png
 ##### 532#       发表于 2018-7-13 10:30
 
 
-
-
 还没人拿到攻略本？偶的要16号
 
 —— 来自 Sony G8142, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
-
-
-
-
-
 
 
 -----
@@ -10908,20 +7168,13 @@ siopWVD.png
 ##### 533#       发表于 2018-7-13 11:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">游戏到了，有大手子讲讲谁起手比较好打
-
-
-
-
-
 
 
 -----
 
 ####  假山君  
 ##### 534#       发表于 2018-7-13 11:34
-
 
 
 <blockquote>zikimi 发表于 2018-7-13 11:28
@@ -10945,17 +7198,10 @@ siopWVD.png
 药师....emmmm好像没什么卵用
 
 
-
-
-
-
-
-
 -----
 
 ####  千川ちひろ  
 ##### 535#       发表于 2018-7-13 11:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40320084&amp;ptid=1711545" target="_blank">zikimi 发表于 2018-7-13 11:28</a>
@@ -10964,16 +7210,10 @@ siopWVD.png
 猎人啊，宝宝吴迪
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 536#       发表于 2018-7-13 11:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40320150&amp;ptid=1711545" target="_blank">假山君 发表于 2018-07-13 11:34:13</a>
@@ -10988,16 +7228,10 @@ siopWVD.png
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Errey  
 ##### 537#       发表于 2018-7-13 12:03
-
 
 
  本帖最后由 Errey 于 2018-7-13 12:17 编辑 
@@ -11019,24 +7253,13 @@ siopWVD.png
 神官、医师则是作为第一角色，第一章较难的角色，没有队友的话性能都太一般了，而BOSS又是相对不好打；神官第一章最难，BOSS最厚还无限召唤自爆小怪，自己输出不足
 
 
-
-
-
-
-
 -----
 
 ####  zikimi  
 ##### 538#       发表于 2018-7-13 12:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">感谢各位，吃了午饭开始搞
-
-
-
-
-
 
 
 -----
@@ -11045,23 +7268,16 @@ siopWVD.png
 ##### 539#       发表于 2018-7-13 12:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40320499&amp;ptid=1711545" target="_blank">Errey 发表于 2018-07-13 12:03:10</a>
 商人是低通最强角色，30SP第一时间学佣兵，MAX BP-氪金1W 可以秒杀全部任何进度的第一章BOSS（无需等级/ ...</blockquote>神官可以魅惑酒馆里的风法师，boss弱风毫无难度
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Errey  
 ##### 540#       发表于 2018-7-13 12:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40320817&amp;ptid=1711545" target="_blank">faust123 发表于 2018-7-13 12:29</a>
@@ -11073,16 +7289,10 @@ siopWVD.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我是拉洞穴门口的，坑了干脆就换了个开了，你说的酒馆风法强度是多少？
 
 
-
-
-
-
-
 -----
 
 ####  helterskelter  
 ##### 541#       发表于 2018-7-13 12:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40318831&amp;ptid=1711545" target="_blank">vaststars 发表于 2018-7-13 09:54</a>
@@ -11092,25 +7302,13 @@ siopWVD.png
 玩的学者线，第一章结束，四级水平看懂剧情没问题
 
 
-
-
-
-
-
 -----
 
 ####  abbccc200  
 ##### 542#       发表于 2018-7-13 12:58
 
 
-
-
 神官带个冰魔法的也毫无难度，demo正式版我都是开场神官
-
-
-
-
-
 
 
 -----
@@ -11119,23 +7317,15 @@ siopWVD.png
 ##### 543#       发表于 2018-7-13 13:06
 
 
-
 [https://www.vgtime.com/topic/952258.jhtml](https://www.vgtime.com/topic/952258.jhtml)
 
 官方壁纸大全，每个角色都有。
-
-
-
-
-
 
 
 -----
 
 ####  叶雾  
 ##### 544#       发表于 2018-7-13 13:14
-
-
 
 
 哇
@@ -11148,16 +7338,10 @@ siopWVD.png
 第二职业的被动技能一旦解锁，把职业拆了也可以用
 
 
-
-
-
-
-
 -----
 
 ####  violettor  
 ##### 545#       发表于 2018-7-13 13:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40320499&amp;ptid=1711545" target="_blank">Errey 发表于 2018-07-13 12:03:10</a>
@@ -11166,16 +7350,10 @@ siopWVD.png
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 546#       发表于 2018-7-13 13:26
-
 
 
  本帖最后由 笛普达克范太希 于 2018-7-13 13:30 编辑 
@@ -11200,25 +7378,13 @@ siopWVD.png
 最后也劝大家别迷信金斧子，跟楼上说的一样，利用好商人这个游戏就会变得很简单，平时能辅助捐BP，关键时候自己伤害又是最猛的，我一开始也以为佣兵技能和等级面板啥的无关，但还是有变化的，楼上说1W金技能打7500，我的是打16000，在demo里像我这样懒得SL的人现在3W金技能都可以打4W伤害<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，盘到了就准备直接去打死四个上位职业boss了
 
 
-
-
-
-
-
 -----
 
 ####  笨笨塞  
 ##### 547#       发表于 2018-7-13 13:31
 
 
-
-
 支线要素丰富么？支线主要是偏向剧情世界观补完还是偏向道具奖励？
-
-
-
-
-
 
 
 -----
@@ -11227,16 +7393,10 @@ siopWVD.png
 ##### 548#       发表于 2018-7-13 13:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40321516&amp;ptid=1711545" target="_blank">笨笨塞 发表于 2018-7-13 13:31</a>
 
 支线要素丰富么？支线主要是偏向剧情世界观补完还是偏向道具奖励？</blockquote>
 要 素 确 认，从demo来看是偏向世界观补完的，支线名都是XXXX I，每个支线都有后续的样子
-
-
-
-
-
 
 
 -----
@@ -11245,15 +7405,9 @@ siopWVD.png
 ##### 549#       发表于 2018-7-13 13:39
 
 
-
 <blockquote>笛普达克范太希 发表于 2018-7-13 13:38
 要 素 确 认，从demo来看是偏向世界观补完的，支线名都是XXXX I，每个支线都有后续的样子 ...</blockquote>
 那真不错啊。
-
-
-
-
-
 
 
 -----
@@ -11262,16 +7416,9 @@ siopWVD.png
 ##### 550#       发表于 2018-7-13 13:44
 
 
-
-
 链接：[https://pan.baidu.com/s/1PWuhHODkvcwdZ8mYeGQqtw](https://pan.baidu.com/s/1PWuhHODkvcwdZ8mYeGQqtw) 密码：4jvi
 
 OST
-
-
-
-
-
 
 
 -----
@@ -11280,14 +7427,7 @@ OST
 ##### 551#       发表于 2018-7-13 13:45
 
 
-
-
 商人妹子声音好好听啊……性格也好喜欢
-
-
-
-
-
 
 
 -----
@@ -11296,15 +7436,9 @@ OST
 ##### 552#       发表于 2018-7-13 13:51
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">学者那个城 城门口下方有个支线 那个放高利贷的NPC可以拉去当打手 物理输出不错 4人时候打破盾的管家一头槌下去600
 
 这游戏的支线 还有靠学者挖出来的角色情报 还挺有意思的 哪怕是没有任务的纯路人 背景故事里都藏着一点蛛丝马迹 
-
-
-
-
-
 
 
 -----
@@ -11313,14 +7447,7 @@ OST
 ##### 553#       发表于 2018-7-13 14:00
 
 
-
-
 陆续清理第二章了，药师第二章城市的上层大教堂门口有个女生，可以偷她的法杖，加三百属性攻击，我给了神官(转学者)，加了些点之后属攻500多，sp200多，用魔法轰人还是挺爽的
-
-
-
-
-
 
 
 -----
@@ -11329,16 +7456,10 @@ OST
 ##### 554#       发表于 2018-7-13 14:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40320843&amp;ptid=1711545" target="_blank">Errey 发表于 2018-7-13 12:30</a>
 
 我是拉洞穴门口的，坑了干脆就换了个开了，你说的酒馆风法强度是多少？ ...</blockquote>
 强度1，魔法风属性全体三连发，制作组的慈悲
-
-
-
-
-
 
 
 -----
@@ -11347,17 +7468,10 @@ OST
 ##### 555#       发表于 2018-7-13 14:05
 
 
-
-
 游戏里可以成为同伴上场战斗的NPC多么，这些同伴有剧情么？
 
 
 还是说主力同伴还是这八个人
-
-
-
-
-
 
 
 -----
@@ -11366,23 +7480,15 @@ OST
 ##### 556#       发表于 2018-7-13 14:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40321676&amp;ptid=1711545" target="_blank">zxy26 发表于 2018-7-13 13:45</a>
 商人妹子声音好好听啊……性格也好喜欢</blockquote>
 这作能英文字幕日语语音吗
-
-
-
-
-
 
 
 -----
 
 ####  笛普达克范太希  
 ##### 557#       发表于 2018-7-13 14:13
-
-
 
 
 全神殿
@@ -11397,29 +7503,13 @@ OST
 2018-7-13 14:12 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  pei1019  
 ##### 558#       发表于 2018-7-13 14:13
 
 
-
-
 这游戏的支线小任务是不是没有提示，我在菜单里找半天都没找到……
-
-
-
-
-
 
 
 -----
@@ -11428,15 +7518,9 @@ OST
 ##### 559#       发表于 2018-7-13 15:26
 
 
-
 <blockquote>iou90 发表于 2018-7-13 14:12
 这作能英文字幕日语语音吗</blockquote>
 可以，可以即时切换，连主菜单都不用返回
-
-
-
-
-
 
 
 -----
@@ -11445,22 +7529,15 @@ OST
 ##### 560#       发表于 2018-7-13 15:27
 
 
-
 <blockquote>pei1019 发表于 2018-7-13 14:13
 这游戏的支线小任务是不是没有提示，我在菜单里找半天都没找到……</blockquote>
 没有告诉你具体怎么做的，但是在journa里有给你一个描述
-
-
-
-
-
 
 
 -----
 
 ####  g54088  
 ##### 561#       发表于 2018-7-13 15:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40321864&amp;ptid=1711545" target="_blank">pei1019 发表于 2018-7-13 14:13</a>
@@ -11470,16 +7547,10 @@ OST
 —— 来自 HUAWEI LON-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  han110022  
 ##### 562#       发表于 2018-7-13 15:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40321864&amp;ptid=1711545" target="_blank">pei1019 发表于 2018-7-13 14:13</a>
@@ -11488,17 +7559,10 @@ OST
 全靠对话内容作为线索，不过大部分都是跟职业技能相关的，比如打听到一个情报给他就完成任务这种
 
 
-
-
-
-
-
 -----
 
 ####  pei1019  
 ##### 563#       发表于 2018-7-13 15:40
-
-
 
 
 谢谢LS几位。
@@ -11506,16 +7570,10 @@ OST
 现在只能手机拍照记录支线任务了，总算比以前用纸写进步了些<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  osk666neo  
 ##### 564#       发表于 2018-7-13 15:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40322189&amp;ptid=1711545" target="_blank">pei1019 发表于 2018-7-13 15:40</a>
@@ -11527,16 +7585,10 @@ ns不是能简单截图吗
 —— 来自 Sony G8142, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  pei1019  
 ##### 565#       发表于 2018-7-13 15:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40322263&amp;ptid=1711545" target="_blank">osk666neo 发表于 2018-7-13 15:47</a>
@@ -11548,32 +7600,19 @@ ns不是能简单截图吗
 一边手机一边NS，美滋滋<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zpsw00000  
 ##### 566#       发表于 2018-7-13 16:28
 
 
-
-
 问个问题，美版有日语字幕吗，听说英语很难。。。
-
-
-
-
-
 
 
 -----
 
 ####  叶雾  
 ##### 567#       发表于 2018-7-13 16:28
-
 
 
 <blockquote>pei1019 发表于 2018-7-13 15:40
@@ -11583,16 +7622,10 @@ ns不是能简单截图吗
 不需要啊，旅行记录里面按R
 
 
-
-
-
-
-
 -----
 
 ####  笨笨塞  
 ##### 568#       发表于 2018-7-13 16:33
-
 
 
 <blockquote>xiaohao123 发表于 2018-7-13 13:44
@@ -11602,27 +7635,15 @@ OST</blockquote>
 感谢分享，有几首确实挺好听。
 
 
-
-
-
-
-
 -----
 
 ####  Rarity5  
 ##### 569#       发表于 2018-7-13 16:58
 
 
-
-
 提醒下ost也是7.13发售哦 日亚可以直邮<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony H8324, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
-
-
-
-
-
 
 
 -----
@@ -11631,16 +7652,9 @@ OST</blockquote>
 ##### 570#       发表于 2018-7-13 17:46
 
 
-
-
 话说学者和药师打探的情报是一样的么
 
 用药师扫过一遍了，再用学者扫一遍会有不一样的新东西么
-
-
-
-
-
 
 
 -----
@@ -11649,23 +7663,15 @@ OST</blockquote>
 ##### 571#       发表于 2018-7-13 18:03
 
 
-
-
 港任放出了中文预告…哎…希望以后有arms那种情况吧
 
 —— 来自 smartisan SM919, Android 6.0.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
-
-
-
-
-
 
 
 -----
 
 ####  hgcg-w  
 ##### 572#       发表于 2018-7-13 18:04
-
 
 
 <blockquote>haru橙子 发表于 2018-7-13 17:46
@@ -11683,17 +7689,10 @@ OST</blockquote>
 猎人、舞女、学者、盗贼是邪派，不看等级就看脸，失败了还要降好感
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 573#       发表于 2018-7-13 18:23
-
-
 
 
 reddit上官方攻略书也有收到的了，有大佬翻一下都有啥内容吗
@@ -11708,10 +7707,6 @@ reddit上官方攻略书也有收到的了，有大佬翻一下都有啥内容�
 2018-7-13 18:22 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/13/182218eg5zga7370ge277c.jpg" referrerpolicy="no-referrer">
 
 
@@ -11720,10 +7715,6 @@ reddit上官方攻略书也有收到的了，有大佬翻一下都有啥内容�
 下载附件
 
 2018-7-13 18:22 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/13/182216puzakn3no9yzb9bx.jpg" referrerpolicy="no-referrer">
@@ -11736,10 +7727,6 @@ reddit上官方攻略书也有收到的了，有大佬翻一下都有啥内容�
 2018-7-13 18:22 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201807/13/182216apjg4kx9fs9c2psx.jpg" referrerpolicy="no-referrer">
 
 
@@ -11750,20 +7737,10 @@ reddit上官方攻略书也有收到的了，有大佬翻一下都有啥内容�
 2018-7-13 18:22 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  灰色的狐狸  
 ##### 574#       发表于 2018-7-13 18:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40324055&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-13 18:23</a>
@@ -11774,25 +7751,13 @@ reddit上官方攻略书也有收到的了，有大佬翻一下都有啥内容�
 —— 来自 OnePlus ONEPLUS A3000, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  西兹少爷  
 ##### 575#       发表于 2018-7-13 18:32
 
 
-
-
 三条狗那里必须打探一下，有个56回避盾牌给盗贼用，回避率刚刚的
-
-
-
-
-
 
 
 -----
@@ -11801,21 +7766,13 @@ reddit上官方攻略书也有收到的了，有大佬翻一下都有啥内容�
 ##### 576#       发表于 2018-7-13 18:32
 
 
-
-
 有30页的npc数据。。
-
-
-
-
-
 
 
 -----
 
 ####  haru橙子  
 ##### 577#       发表于 2018-7-13 18:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40323863&amp;ptid=1711545" target="_blank">hgcg-w 发表于 2018-7-13 18:04</a>
@@ -11828,17 +7785,10 @@ reddit上官方攻略书也有收到的了，有大佬翻一下都有啥内容�
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  千川ちひろ  
 ##### 578#       发表于 2018-7-13 18:34
-
-
 
 
 被打躺地的npc要再过多久才能站起来？
@@ -11846,17 +7796,10 @@ reddit上官方攻略书也有收到的了，有大佬翻一下都有啥内容�
 — from OnePlus ONEPLUS A5010, Android 8.1.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  灰色的狐狸  
 ##### 579#       发表于 2018-7-13 18:38
-
-
 
 
 阿港突然发了一个中文预告视频
@@ -11866,32 +7809,19 @@ reddit上官方攻略书也有收到的了，有大佬翻一下都有啥内容�
 —— 来自 OnePlus ONEPLUS A3000, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 580#         楼主| 发表于 2018-7-13 18:39
 
 
-
-
 labo不是也有中文宣传片
-
-
-
-
-
 
 
 -----
 
 ####  笛普达克范太希  
 ##### 581#       发表于 2018-7-13 18:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40324165&amp;ptid=1711545" target="_blank">千川ちひろ 发表于 2018-7-13 18:34</a>
@@ -11903,16 +7833,10 @@ labo不是也有中文宣传片
 出个村就起来了
 
 
-
-
-
-
-
 -----
 
 ####  g54088  
 ##### 582#       发表于 2018-7-13 18:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40323863&amp;ptid=1711545" target="_blank">hgcg-w 发表于 2018-7-13 18:04</a>
@@ -11926,16 +7850,10 @@ labo不是也有中文宣传片
 —— 来自 vivo NEX S, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  g54088  
 ##### 583#       发表于 2018-7-13 18:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40324165&amp;ptid=1711545" target="_blank">千川ちひろ 发表于 2018-7-13 18:34</a>
@@ -11947,16 +7865,10 @@ labo不是也有中文宣传片
 —— 来自 vivo NEX S, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  花火碳  
 ##### 584#       发表于 2018-7-13 18:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40324055&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-13 18:23</a>
@@ -11965,16 +7877,10 @@ reddit上官方攻略书也有收到的了，有大佬翻一下都有啥内容�
 第3张图上写着“8人迎来了各自的结局，但这并不代表着旅途到达了终点。你将在之后继续你的旅程，与更多的人交流，解开这个世界的谜题。然后终于，与一位青年间的羁绊，成为了把你卷入巨大命运变化的契机……”
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 585#       发表于 2018-7-13 19:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40324404&amp;ptid=1711545" target="_blank">花火碳 发表于 2018-7-13 18:59</a>
@@ -11983,16 +7889,10 @@ reddit上官方攻略书也有收到的了，有大佬翻一下都有啥内容�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">妈呀我想起了鬼佬的阴谋论，所有角色序章出城送治疗药的那个支线小哥会是隐藏boss
 
 
-
-
-
-
-
 -----
 
 ####  花火碳  
 ##### 586#       发表于 2018-7-13 19:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40324451&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-13 19:04</a>
@@ -12001,16 +7901,10 @@ reddit上官方攻略书也有收到的了，有大佬翻一下都有啥内容�
 我现在还对剧情抱有一丝期待<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  噂の船  
 ##### 587#       发表于 2018-7-13 19:47
-
 
 
  本帖最后由 噂の船 于 2018-7-13 19:49 编辑 
@@ -12020,16 +7914,10 @@ reddit上官方攻略书也有收到的了，有大佬翻一下都有啥内容�
 哦我傻了
 
 
-
-
-
-
-
 -----
 
 ####  笨笨塞  
 ##### 588#       发表于 2018-7-13 19:52
-
 
 
 <blockquote>灰色的狐狸 发表于 2018-7-13 18:38
@@ -12041,25 +7929,13 @@ reddit上官方攻略书也有收到的了，有大佬翻一下都有啥内容�
 突然出个港版中文就逗了。
 
 
-
-
-
-
-
 -----
 
 ####  噂の船  
 ##### 589#       发表于 2018-7-13 20:32
 
 
-
-
 这个支线发展的条件是什么？明明我都找到说和支线相关线索的NPC而且对话了，却一点发展也没有
-
-
-
-
-
 
 
 -----
@@ -12068,23 +7944,16 @@ reddit上官方攻略书也有收到的了，有大佬翻一下都有啥内容�
 ##### 590#       发表于 2018-7-13 20:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40325134&amp;ptid=1711545" target="_blank">鱼肉丸子 发表于 2018-7-13 20:35</a>
 
 没看到图 你说的哪个</blockquote>
 没指代特定的..我手上接的几个都卡住了，一个骑士说他爹战场跑路的，一个救了个都是血的人被当作杀人犯抓起来的，一个研究冰巨人的
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 591#       发表于 2018-7-13 20:43
-
 
 
  本帖最后由 笛普达克范太希 于 2018-7-13 20:45 编辑 
@@ -12094,16 +7963,10 @@ reddit上官方攻略书也有收到的了，有大佬翻一下都有啥内容�
 都没做到位，骑士那个去教堂里面打听消息回来报告，杀人犯去酒馆给他偷钥匙，冰巨人先要问左边看着远方的NPC打听到消息再做些什么后续，demo里没法完成也就不知道具体要求了，这游戏接完任务除了一个任务标识以外是没任务提示的
 
 
-
-
-
-
-
 -----
 
 ####  噂の船  
 ##### 592#       发表于 2018-7-13 20:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40325216&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-13 20:43</a>
@@ -12114,17 +7977,10 @@ reddit上官方攻略书也有收到的了，有大佬翻一下都有啥内容�
 冰巨人同理，那个研究冰巨人的老头对完话之后也没变化
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 593#       发表于 2018-7-13 20:50
-
-
 
 
 冰巨人是打听到冰之洞窟的情报之后去那里找吧
@@ -12132,16 +7988,10 @@ reddit上官方攻略书也有收到的了，有大佬翻一下都有啥内容�
 杀人犯有两种解法，打听凶杀案的真相或者偷钥匙把他放了
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 594#       发表于 2018-7-13 20:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40325247&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-7-13 20:48</a>
@@ -12152,25 +8002,13 @@ reddit上官方攻略书也有收到的了，有大佬翻一下都有啥内容�
 要用地图技能打听，不是单纯对话
 
 
-
-
-
-
-
 -----
 
 ####  Z-Saber  
 ##### 595#       发表于 2018-7-13 20:58
 
 
-
-
 正式版里光效也真的砍了好多， 好些地方照不出影子，伤心
-
-
-
-
-
 
 
 -----
@@ -12179,21 +8017,13 @@ reddit上官方攻略书也有收到的了，有大佬翻一下都有啥内容�
 ##### 596#       发表于 2018-7-13 21:14
 
 
-
-
 剑士初章主线迷宫那个隐藏宝箱怎么过去啊，绕了20分钟了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">刚说完就找到了
-
-
-
-
-
 
 
 -----
 
 ####  Minolta  
 ##### 597#       发表于 2018-7-13 21:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40324055&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-13 18:23</a>
@@ -12228,17 +8058,10 @@ NPC数据（需求等级／field技能成功率／所持品
 グランポート-大競売場-：25000レフ
 
 
-
-
-
-
-
 -----
 
 ####  lly778  
 ##### 598#       发表于 2018-7-13 21:34
-
-
 
 
 怎么切换不再队伍的角色啊
@@ -12247,16 +8070,10 @@ NPC数据（需求等级／field技能成功率／所持品
 - 发自忧郁深沉的 [Stage1st UWP](https://www.microsoft.com/store/apps/9nj2qf6m25f6) 非官方客户端
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 599#       发表于 2018-7-13 21:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40325598&amp;ptid=1711545" target="_blank">lly778 发表于 2018-7-13 21:34</a>
@@ -12264,14 +8081,8 @@ NPC数据（需求等级／field技能成功率／所持品
 怎么切换不再队伍的角色啊
 
 
-
 - 发自忧郁深沉的 Stage1st UWP 非官方客户端</blockquote>
 去酒馆
-
-
-
-
-
 
 
 -----
@@ -12280,14 +8091,7 @@ NPC数据（需求等级／field技能成功率／所持品
 ##### 600#       发表于 2018-7-13 21:44
 
 
-
-
 话说各种各样的魔导瓶怪物总让我觉得后面会出现天才瓶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12296,14 +8100,7 @@ NPC数据（需求等级／field技能成功率／所持品
 ##### 601#       发表于 2018-7-13 21:45
 
 
-
-
 还好大地图能快速传送，省了很多做支线的时间
-
-
-
-
-
 
 
 -----
@@ -12312,22 +8109,13 @@ NPC数据（需求等级／field技能成功率／所持品
 ##### 602#         楼主| 发表于 2018-7-13 21:49
 
 
-
-
 网易云已经收录OST了：[http://music.163.com/album?id=71747233](http://music.163.com/album?id=71747233)
-
-
-
-
-
 
 
 -----
 
 ####  叶雾  
 ##### 603#       发表于 2018-7-13 22:02
-
-
 
 
 动态等级有些麻烦。。
@@ -12339,25 +8127,13 @@ NPC数据（需求等级／field技能成功率／所持品
 如果在地图上标识一下等级就好了
 
 
-
-
-
-
-
 -----
 
 ####  则卷宝瓜  
 ##### 604#       发表于 2018-7-13 23:05
 
 
-
-
 唉，终于把八个角色的第二章打完了，练级真的累，特别是要练冷板凳角色…钱也花的贼快，全省上下6万块钱，到底去哪里刷钱快啊
-
-
-
-
-
 
 
 -----
@@ -12366,14 +8142,7 @@ NPC数据（需求等级／field技能成功率／所持品
 ##### 605#       发表于 2018-7-13 23:10
 
 
-
-
 学者的性格在jrpg里还真是挺真实的……一般角色估计刚开场就和headmaster硬刚到底了吧
-
-
-
-
-
 
 
 -----
@@ -12382,14 +8151,7 @@ NPC数据（需求等级／field技能成功率／所持品
 ##### 606#       发表于 2018-7-14 00:09
 
 
-
-
 三条狗那里必须打探一下，有个56回避盾牌给盗贼用，回避率刚刚的
-
-
-
-
-
 
 
 -----
@@ -12398,16 +8160,10 @@ NPC数据（需求等级／field技能成功率／所持品
 ##### 607#       发表于 2018-7-14 02:31
 
 
-
 <img src="https://wx1.sinaimg.cn/mw1024/72d564e7ly1ft8skotfuoj20k00qoabi.jpg" referrerpolicy="no-referrer">
 <img src="https://wx3.sinaimg.cn/mw1024/72d564e7ly1ft8skoxd17j20qo0k0q4r.jpg" referrerpolicy="no-referrer">
 
 终于到了。。。
-
-
-
-
-
 
 
 -----
@@ -12416,21 +8172,13 @@ NPC数据（需求等级／field技能成功率／所持品
 ##### 608#       发表于 2018-7-14 08:55
 
 
-
-
 有人知道属性攻击+100的饰品在哪个城吗= =
-
-
-
-
-
 
 
 -----
 
 ####  redsouris  
 ##### 609#       发表于 2018-7-14 09:31
-
 
 
  本帖最后由 redsouris 于 2018-7-14 13:12 编辑 
@@ -12442,16 +8190,10 @@ NPC数据（需求等级／field技能成功率／所持品
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Errey  
 ##### 610#       发表于 2018-7-14 10:31
-
 
 
  本帖最后由 Errey 于 2018-7-14 11:42 编辑 
@@ -12474,16 +8216,10 @@ NPC数据（需求等级／field技能成功率／所持品
 我也没练好不知道，暂时先这个金策
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 611#       发表于 2018-7-14 10:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40329488&amp;ptid=1711545" target="_blank">Errey 发表于 2018-7-14 10:31</a>
@@ -12495,16 +8231,10 @@ NPC数据（需求等级／field技能成功率／所持品
 意思是在海滨和平原中间那个45级副本里来回走图吗
 
 
-
-
-
-
-
 -----
 
 ####  千川ちひろ  
 ##### 612#       发表于 2018-7-14 10:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40329488&amp;ptid=1711545" target="_blank">Errey 发表于 2018-7-14 10:31</a>
@@ -12517,32 +8247,19 @@ NPC数据（需求等级／field技能成功率／所持品
 — from OnePlus ONEPLUS A5010, Android 8.1.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 613#       发表于 2018-7-14 11:03
 
 
-
-
 40级贼，看那些3%的成功率终于变成15%了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Errey  
 ##### 614#       发表于 2018-7-14 11:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40329651&amp;ptid=1711545" target="_blank">千川ちひろ 发表于 2018-7-14 10:55</a>
@@ -12554,16 +8271,10 @@ NPC数据（需求等级／field技能成功率／所持品
 自动存档很近，能存一次就完事
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 615#       发表于 2018-7-14 11:30
-
 
 
  本帖最后由 redsouris 于 2018-7-14 11:44 编辑 
@@ -12573,17 +8284,10 @@ NPC数据（需求等级／field技能成功率／所持品
 说的就是右上角那个城，进城打掉某个房子门口堵路的7星盗贼，屋里向老贼打听情报之后，就可以很容易偷光整个露天市场
 
 
-
-
-
-
-
 -----
 
 ####  真红之闪电  
 ##### 616#       发表于 2018-7-14 11:41
-
-
 
 
 妈蛋看你们讨论了有点忍不住。
@@ -12593,16 +8297,10 @@ NPC数据（需求等级／field技能成功率／所持品
 问题二，英语会不会影响阅读？我试玩版就下了第一个看了看画面，阅读观感完全不记得了
 
 
-
-
-
-
-
 -----
 
 ####  则卷宝瓜  
 ##### 617#       发表于 2018-7-14 11:45
-
 
 
 <blockquote>真红之闪电 发表于 2018-7-14 11:41
@@ -12614,32 +8312,19 @@ NPC数据（需求等级／field技能成功率／所持品
 香！看的日文版，不难
 
 
-
-
-
-
-
 -----
 
 ####  桐道悠  
 ##### 618#       发表于 2018-7-14 11:45
 
 
-
-
 真香<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Errey  
 ##### 619#       发表于 2018-7-14 11:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40330072&amp;ptid=1711545" target="_blank">真红之闪电 发表于 2018-7-14 11:41</a>
@@ -12655,16 +8340,10 @@ NPC数据（需求等级／field技能成功率／所持品
 听说英语阅读会有困难，不是英文文本不行，是古语太多（?）
 
 
-
-
-
-
-
 -----
 
 ####  真红之闪电  
 ##### 620#       发表于 2018-7-14 11:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40330105&amp;ptid=1711545" target="_blank">则卷宝瓜 发表于 2018-7-14 11:45</a>
@@ -12673,16 +8352,10 @@ NPC数据（需求等级／field技能成功率／所持品
 日文完全不会……只看汉字不影响阅读的地步？
 
 
-
-
-
-
-
 -----
 
 ####  真红之闪电  
 ##### 621#       发表于 2018-7-14 11:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40330114&amp;ptid=1711545" target="_blank">Errey 发表于 2018-7-14 11:46</a>
@@ -12696,17 +8369,10 @@ NPC数据（需求等级／field技能成功率／所持品
 不过算了，我已经入了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Errey  
 ##### 622#       发表于 2018-7-14 12:41
-
-
 
 
 搬运party对话
@@ -12867,25 +8533,13 @@ NPC数据（需求等级／field技能成功率／所持品
 不要错过选人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  chenyuhao467  
 ##### 623#       发表于 2018-7-14 13:06
 
 
-
-
 我看美服的下载版只有三种语言，但是日版是全的，所以不是全区游戏吗？在纠结买哪版，日版7000日元好贵<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12894,14 +8548,7 @@ NPC数据（需求等级／field技能成功率／所持品
 ##### 624#       发表于 2018-7-14 13:09
 
 
-
-
 感觉太依赖学者和盗贼了，还没法用副职业解决
-
-
-
-
-
 
 
 -----
@@ -12910,14 +8557,7 @@ NPC数据（需求等级／field技能成功率／所持品
 ##### 625#       发表于 2018-7-14 13:11
 
 
-
-
 让别的队友副业转盗贼的话，能开紫箱吗？
-
-
-
-
-
 
 
 -----
@@ -12926,15 +8566,9 @@ NPC数据（需求等级／field技能成功率／所持品
 ##### 626#       发表于 2018-7-14 13:15
 
 
-
 <blockquote>hgcg-w 发表于 2018-7-14 13:11
 让别的队友副业转盗贼的话，能开紫箱吗？</blockquote>
 不能。。
-
-
-
-
-
 
 
 -----
@@ -12943,13 +8577,7 @@ NPC数据（需求等级／field技能成功率／所持品
 ##### 627#       发表于 2018-7-14 13:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">学者城上面那个15级的whistlewood咋回事...走到深处过了存档点就是个小高地 没任何特殊怪物
-
-
-
-
-
 
 
 -----
@@ -12958,15 +8586,9 @@ NPC数据（需求等级／field技能成功率／所持品
 ##### 628#       发表于 2018-7-14 13:20
 
 
-
 <blockquote>鱼肉丸子 发表于 2018-7-14 12:15
 那么七星npc要多少级可以打掉</blockquote>
 记得多偷装备，装备好的话，20级左右可以打7星了
-
-
-
-
-
 
 
 -----
@@ -12975,13 +8597,7 @@ NPC数据（需求等级／field技能成功率／所持品
 ##### 629#       发表于 2018-7-14 13:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">盗贼太菜了，一路上的紫箱只能无视了，学者省事用多了有依赖性
-
-
-
-
-
 
 
 -----
@@ -12990,22 +8606,15 @@ NPC数据（需求等级／field技能成功率／所持品
 ##### 630#       发表于 2018-7-14 13:23
 
 
-
 <blockquote>Errey 发表于 2018-7-14 13:21
 盗贼太菜了，一路上的紫箱只能无视了，学者省事用多了有依赖性</blockquote>
 我看别人都是盗贼转商人，偷偷东西偷偷钱…战斗的时候就捐一下bp放放降防…
-
-
-
-
-
 
 
 -----
 
 ####  Errey  
 ##### 631#       发表于 2018-7-14 14:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40331024&amp;ptid=1711545" target="_blank">则卷宝瓜 发表于 2018-7-14 13:23</a>
@@ -13017,16 +8626,10 @@ NPC数据（需求等级／field技能成功率／所持品
 话说现在刷开了舞女的全体化了吗，跟商人的捐BP跟神官奥义二回技能会不会有点屌
 
 
-
-
-
-
-
 -----
 
 ####  假山君  
 ##### 632#       发表于 2018-7-14 14:15
-
 
 
 <blockquote>Errey 发表于 2018-7-14 12:41
@@ -13038,26 +8641,15 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 为了看这些废话还要不停换人打断剧情节奏 本身这游戏剧情节奏断章就很怪了
 
 
-
-
-
-
-
 -----
 
 ####  则卷宝瓜  
 ##### 633#       发表于 2018-7-14 14:18
 
 
-
 <blockquote>Errey 发表于 2018-7-14 14:12
 偷不了自己的好装备，打T回避不了魔法，少数的物理DEBUFF全在他身上，但是前期不要这么麻烦啊，奥义数据 ...</blockquote>
 奥义不能叠奥义效果
-
-
-
-
-
 
 
 -----
@@ -13066,15 +8658,9 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 634#       发表于 2018-7-14 14:19
 
 
-
  本帖最后由 假山君 于 2018-7-14 14:20 编辑 
 
 30级前推荐去猎人初始森林左边的兽道练级 猫猫出现几率挺高的 打猫猫最好有先制然后用魔法或者魔石轰 他就4hp 打死后慢慢刷舞女的expN倍 其他小怪也可以打 遇到野猪不用打直接逃
-
-
-
-
-
 
 
 -----
@@ -13083,16 +8669,10 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 635#       发表于 2018-7-14 14:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40331485&amp;ptid=1711545" target="_blank">则卷宝瓜 发表于 2018-7-14 14:18</a>
 
 奥义不能叠奥义效果</blockquote>
 一个队伍只能有1个奥义效果还是一个队员只能有一个？
-
-
-
-
-
 
 
 -----
@@ -13101,14 +8681,7 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 636#       发表于 2018-7-14 14:33
 
 
-
-
 玩了10个小时，最大感想就是ff15怎么不能有这样的支线任务……
-
-
-
-
-
 
 
 -----
@@ -13117,16 +8690,10 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 637#       发表于 2018-7-14 14:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40331504&amp;ptid=1711545" target="_blank">Errey 发表于 2018-7-14 14:20</a>
 
 一个队伍只能有1个奥义效果还是一个队员只能有一个？</blockquote>
 奥义效果不能影响奥义
-
-
-
-
-
 
 
 -----
@@ -13135,16 +8702,10 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 638#       发表于 2018-7-14 14:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40331592&amp;ptid=1711545" target="_blank">则卷宝瓜 发表于 2018-7-14 14:34</a>
 
 奥义效果不能影响奥义</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那还好，三女人BP、BUFF永动机的构思还可行
-
-
-
-
-
 
 
 -----
@@ -13153,14 +8714,7 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 639#       发表于 2018-7-14 14:53
 
 
-
-
 还有要故意被打死的支线……
-
-
-
-
-
 
 
 -----
@@ -13169,14 +8723,7 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 640#       发表于 2018-7-14 15:17
 
 
-
-
 问下日服下载版能选日语语音+英文字幕吗 
-
-
-
-
-
 
 
 -----
@@ -13185,22 +8732,15 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 641#       发表于 2018-7-14 15:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40331915&amp;ptid=1711545" target="_blank">Mamayo 发表于 2018-7-14 15:17</a>
 问下日服下载版能选日语语音+英文字幕吗</blockquote>
 可以
-
-
-
-
-
 
 
 -----
 
 ####  redsouris  
 ##### 642#       发表于 2018-7-14 16:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40330369&amp;ptid=1711545" target="_blank">鱼肉丸子 发表于 2018-7-14 12:15</a>
@@ -13211,31 +8751,19 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 10级攻击太低破防之后丢大魔石的
 
 
-
-
-
-
-
 -----
 
 ####  haru橙子  
 ##### 643#       发表于 2018-7-14 16:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">副职业选的真纠结，不知道给商人配什么好
-
-
-
-
-
 
 
 -----
 
 ####  Rarity5  
 ##### 644#       发表于 2018-7-14 17:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40332679&amp;ptid=1711545" target="_blank">haru橙子 发表于 2018-7-14 16:58</a>
@@ -13245,17 +8773,10 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 —— 来自 Sony H8324, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 645#       发表于 2018-7-14 18:21
-
-
 
 
 商人奥义很废，因为过量伤害不会有钱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -13266,25 +8787,13 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 646#       发表于 2018-7-14 18:25
 
 
-
-
 换副职业的话点阵会变但是立绘不会变吧
-
-
-
-
-
 
 
 -----
@@ -13293,15 +8802,8 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 647#       发表于 2018-7-14 18:26
 
 
-
-
 贼哥太帅了，路上爽摸金。
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13310,14 +8812,7 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 648#       发表于 2018-7-14 18:36
 
 
-
-
 这游戏个人路线有多少章，8个人全是独立的个人路线的话那主角之间都没法互动了啊。另外有日站wiki攻略吗，JRPG还是得要攻略
-
-
-
-
-
 
 
 -----
@@ -13326,16 +8821,10 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 649#       发表于 2018-7-14 18:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40332862&amp;ptid=1711545" target="_blank">Rarity5 发表于 2018-7-14 17:25</a>
 
 我现在二十级给商人副职业配了圣女 纯辅助定位了 一般就+bp 回血 奶量意外的大 一个25sp的回复能把全队回 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我来试试
-
-
-
-
-
 
 
 -----
@@ -13344,22 +8833,15 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 650#       发表于 2018-7-14 18:39
 
 
-
  本帖最后由 haru橙子 于 2018-7-14 18:45 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但是还得偷得谨慎点，这破地方关系改善要十万
-
-
-
-
-
 
 
 -----
 
 ####  Lunamos  
 ##### 651#         楼主| 发表于 2018-7-14 18:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40329488&amp;ptid=1711545" target="_blank">Errey 发表于 2018-7-14 11:31</a>
@@ -13371,25 +8853,13 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 挺好用的，正好开局商人找了学者顺手5分钟刷了5万先用着……
 
 
-
-
-
-
-
 -----
 
 ####  xqterry  
 ##### 652#       发表于 2018-7-14 19:16
 
 
-
-
 一整天了我还在舞娘无限刮刮乐
-
-
-
-
-
 
 
 -----
@@ -13398,21 +8868,15 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 653#       发表于 2018-7-14 19:27
 
 
-
-
 英文版封面已打包，pdf格式的，可以自行打印替换原来的封面
 
 链接: [https://pan.baidu.com/s/1TbSIc-L1z9Iyc7rmd9HYUA](https://pan.baidu.com/s/1TbSIc-L1z9Iyc7rmd9HYUA) 密码: 2hs8
 <img src="http://img01.vgtime.com/web/topic/2018/07/14/180714102222752.jpeg" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -13422,12 +8886,7 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 | shabee001| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -13436,14 +8895,7 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 654#       发表于 2018-7-14 19:44
 
 
-
-
 所以舞娘的100倍经验刷猫有具体的教程么...日文的也可以....
-
-
-
-
-
 
 
 -----
@@ -13452,14 +8904,7 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 655#       发表于 2018-7-14 20:03
 
 
-
-
 老是把商人小姐幻视成小包，好出戏啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13468,16 +8913,10 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 656#       发表于 2018-7-14 20:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40333314&amp;ptid=1711545" target="_blank">hgcg-w 发表于 2018-7-14 18:25</a>
 
 换副职业的话点阵会变但是立绘不会变吧</blockquote>
 这游戏还有立绘？
-
-
-
-
-
 
 
 -----
@@ -13486,16 +8925,9 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 657#       发表于 2018-7-14 20:34
 
 
-
-
 药师也太强了吧？
 
 这个药师是不是姓黄？
-
-
-
-
-
 
 
 -----
@@ -13504,21 +8936,13 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 658#       发表于 2018-7-14 20:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">15个小时摸完了第一章大部分内容 有几个角色等级有点低啊...挺多杂兵战都是靠学者爸爸轰炸
-
-
-
-
-
 
 
 -----
 
 ####  叶雾  
 ##### 659#       发表于 2018-7-14 20:45
-
-
 
 
 在圣女第二章的城市找NPC花7万买了个禁断之杖
@@ -13528,32 +8952,19 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 目前变成了其他人破防学者一招大魔法带走的游戏
 
 
-
-
-
-
-
 -----
 
 ####  千川ちひろ  
 ##### 660#       发表于 2018-7-14 20:48
 
 
-
-
 大蛇短剑好强，然而sl到现在还没偷到。。。
-
-
-
-
-
 
 
 -----
 
 ####  Errey  
 ##### 661#       发表于 2018-7-14 20:54
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -13564,27 +8975,15 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 另外猎人的25%二动真的强得离谱，建议无脑凑出被动
 
 
-
-
-
-
-
 -----
 
 ####  faust123  
 ##### 662#       发表于 2018-7-14 21:28
 
 
-
-
 我感觉这个游戏可能要毁在不思议之舞和偷盗上了
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -13593,14 +8992,7 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 663#       发表于 2018-7-14 21:35
 
 
-
-
 刮刮乐能玩很久，但是玩不出什么效率的话就挺恶心
-
-
-
-
-
 
 
 -----
@@ -13609,20 +9001,13 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 664#       发表于 2018-7-14 21:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">今天去20级的山洞 三豆刮刮乐给自己人上了debuff全家桶直接坑团灭.....
-
-
-
-
-
 
 
 -----
 
 ####  奶牛  
 ##### 665#       发表于 2018-7-14 22:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40334307&amp;ptid=1711545" target="_blank">hgcg-w 发表于 2018-7-14 20:34</a>
@@ -13633,32 +9018,19 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 药师的地位放FSN就是士郎，哪能不强
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 666#       发表于 2018-7-14 22:19
 
 
-
-
 左下50级地图可以摸一把310攻120速的剑，紫箱子，需要开锁
-
-
-
-
-
 
 
 -----
 
 ####  假山君  
 ##### 667#       发表于 2018-7-14 22:20
-
 
 
  本帖最后由 假山君 于 2018-7-14 22:21 编辑 
@@ -13673,32 +9045,19 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 我刷了几次5倍2倍的 叠了几次从12级升到了25级 也不错了
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 668#       发表于 2018-7-14 22:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">100倍是max情况下0.1%出
-
-
-
-
-
 
 
 -----
 
 ####  叶雾  
 ##### 669#       发表于 2018-7-14 22:44
-
-
 
 
 第二章练级推荐右下低区的王家之墓
@@ -13710,16 +9069,10 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 5个魔导机很容易FTK，一次给150JP和250EXP
 
 
-
-
-
-
-
 -----
 
 ####  xqterry  
 ##### 670#       发表于 2018-7-14 22:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40335294&amp;ptid=1711545" target="_blank">假山君 发表于 2018-7-14 22:20</a>
@@ -13731,25 +9084,13 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 似乎不叠的 最后一次覆盖前一次
 
 
-
-
-
-
-
 -----
 
 ####  reficul  
 ##### 671#       发表于 2018-7-14 23:14
 
 
-
-
 靠着商人在45级洞窟刷钱终于有钱跟爸妈买项链了…真TM明算账，给女儿不好吗
-
-
-
-
-
 
 
 -----
@@ -13758,21 +9099,13 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 672#       发表于 2018-7-14 23:15
 
 
-
-
 转职神大概要几级才能打得过啊。。三十多级过去没有丝毫的机会，用学者技能看了下血量16w<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  reficul  
 ##### 673#       发表于 2018-7-14 23:15
-
 
 
  本帖最后由 reficul 于 2018-7-14 23:17 编辑 
@@ -13782,26 +9115,15 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 商人第一章也是，一群海盗信奉的是弱肉强食，想要的东西就去抢。结果他们老家里也有个商人在卖东西，瞬间出戏
 
 
-
-
-
-
-
 -----
 
 ####  blackll7  
 ##### 674#       发表于 2018-7-14 23:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40335754&amp;ptid=1711545" target="_blank">reficul 发表于 2018-7-14 23:15</a>
 在boss点前面的商人真的太让我无语了，尤其是圣女第一章去洞窟採火，洞窟是禁止一般人进去的，结果在原初火 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/001.png" referrerpolicy="no-referrer">资本主义的力量可以突破一切！
-
-
-
-
-
 
 
 -----
@@ -13810,16 +9132,9 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 675#       发表于 2018-7-14 23:36
 
 
-
-
 问一下美版有没有日语语音和文本？谢谢各位！
 
 — from Sony G8142, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0-play
-
-
-
-
-
 
 
 -----
@@ -13828,16 +9143,9 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 676#       发表于 2018-7-14 23:37
 
 
-
-
 都说药师强，药师怎么用啊，调药又只能在战场上……完全用不来……
 
 还是学者粑粑和猎人姐姐无脑轰轰轰来的愉快 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13846,16 +9154,9 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 677#       发表于 2018-7-14 23:53
 
 
-
-
 之前试玩版没做支线…现在看神官一开始那两个支线感觉很懵啊，跟你叽里呱啦说一堆但是不说要我干什么？这怎么做？
 
 —— 来自 Sony G8441, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
-
-
-
-
-
 
 
 -----
@@ -13864,20 +9165,13 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 678#       发表于 2018-7-15 00:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">黄金海岸好多3% 8%的好东西，挡门的屋子里还有个老头有3颗3%的猫眼石，结果这地方转完了没有提升偷盗概率的情报，sl到吐血
-
-
-
-
-
 
 
 -----
 
 ####  myron_cloud  
 ##### 679#       发表于 2018-7-15 00:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40335942&amp;ptid=1711545" target="_blank">sin.yugi 发表于 2018-7-14 23:36</a>
@@ -13889,25 +9183,13 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 — from LGE LG-H930, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  西兹少爷  
 ##### 680#       发表于 2018-7-15 01:21
 
 
-
-
 求问，偷窃到的和得到一些矿石骨头什么的注释是卖店获得金钱是不是可以全卖了?怕有什么稀有道具
-
-
-
-
-
 
 
 -----
@@ -13916,24 +9198,16 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 681#       发表于 2018-7-15 01:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40336690&amp;ptid=1711545" target="_blank">西兹少爷 发表于 2018-07-15 01:21:07</a>
 求问，偷窃到的和得到一些矿石骨头什么的注释是卖店获得金钱是不是可以全卖了?怕有什么稀有道具 ...</blockquote>没有其他用，放心卖～舞娘城镇酒馆里可以偷到能买25000的好东西，卖了之后就可以去找商人爸妈买饰品了～
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  冰原狼  
 ##### 682#       发表于 2018-7-15 01:54
-
-
 
 
 玩了6小时了根本停不下来
@@ -13943,17 +9217,10 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 而且这盗贼前面刚拒绝了路人AB的组队邀请回头就加进主角团了，总觉得说不过去……
 
 
-
-
-
-
-
 -----
 
 ####  yzxmly  
 ##### 683#       发表于 2018-7-15 01:57
-
-
 
 
 在一个有人堵门的小屋里看到了一把很不错的匕首，不过偷的成功率是0%。
@@ -13962,16 +9229,10 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 这个是不是说明这把匕首只能买了？好贵看着肉疼
 
 
-
-
-
-
-
 -----
 
 ####  noirfermion  
 ##### 684#       发表于 2018-7-15 04:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40139022&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-6-28 02:06</a>
@@ -13980,17 +9241,10 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 手动置顶下这层，主要防止新人像我一样以为副本BOSS打完就没了，傻乎乎地SL抓了好几次还没抓到<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  xqterry  
 ##### 685#       发表于 2018-7-15 04:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40336844&amp;ptid=1711545" target="_blank">冰原狼 发表于 2018-7-15 01:54</a>
@@ -14000,16 +9254,10 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 这都不算啥 看看商人妹子 出了自家店 转头回去跟爹妈就互相完全不认识了 买卖做的非常欢畅 后来我叫舞娘当着她娘的面勾走了她爹 父女一起环游世界 谁也不理谁 绝对不是亲生的
 
 
-
-
-
-
-
 -----
 
 ####  踩到图钉  
 ##### 686#       发表于 2018-7-15 04:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40331733&amp;ptid=1711545" target="_blank">蛋头电玩 发表于 2018-7-14 14:53</a>
@@ -14022,16 +9270,10 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 最后才发现要故意决斗输给旁边一直盯着她看的那个二逼青年<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lichenbo  
 ##### 687#       发表于 2018-7-15 05:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40330873&amp;ptid=1711545" target="_blank">chenyuhao467 发表于 2018-07-14 13:06:59</a>
@@ -14040,16 +9282,10 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Z-Saber  
 ##### 688#       发表于 2018-7-15 06:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40337216&amp;ptid=1711545" target="_blank">踩到图钉 发表于 2018-7-15 04:47</a>
@@ -14059,16 +9295,10 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 那个死缠烂打的软弱男？原来是这样过的吗，我是直接把他娘喊来把他拉回家了。
 
 
-
-
-
-
-
 -----
 
 ####  Errey  
 ##### 689#       发表于 2018-7-15 08:01
-
 
 
  本帖最后由 Errey 于 2018-7-15 08:07 编辑 
@@ -14078,27 +9308,15 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 另外小剧场，舞女一直刷商人的好感度，大姐姐形象
 
 
-
-
-
-
-
-
 -----
 
 ####  则卷宝瓜  
 ##### 690#       发表于 2018-7-15 08:37
 
 
-
 <blockquote>Errey 发表于 2018-7-15 08:01
 不刷刮刮乐，升级开始有点绝望了，35级有什么好的农点吗舞女主线有点太都合了，怎么全是认识她的人 ...</blockquote>
 我现在35左右，在45级道具练级，带商人跑跑步还能刷点钱
-
-
-
-
-
 
 
 -----
@@ -14107,23 +9325,15 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 691#       发表于 2018-7-15 08:41
 
 
-
-
 35级完全可以去50级的神庙地图刷级了 一次差不多600exp 差不多一只怪一万左右血量 只要控好了基本不会翻车 破盾一轮能带走
 
 —— 来自 Sony H8324, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
-
-
-
-
-
 
 
 -----
 
 ####  redsouris  
 ##### 692#       发表于 2018-7-15 08:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40335752&amp;ptid=1711545" target="_blank">Rarity5 发表于 2018-07-14 23:15:10</a>
@@ -14133,16 +9343,10 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Rarity5  
 ##### 693#       发表于 2018-7-15 08:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40337664&amp;ptid=1711545" target="_blank">redsouris 发表于 2018-7-15 08:42</a>
@@ -14153,16 +9357,10 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 —— 来自 Sony H8324, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 694#       发表于 2018-7-15 09:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40337694&amp;ptid=1711545" target="_blank">Rarity5 发表于 2018-07-15 08:50:44</a>
@@ -14172,16 +9370,10 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  haru橙子  
 ##### 695#       发表于 2018-7-15 09:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40337664&amp;ptid=1711545" target="_blank">redsouris 发表于 2018-7-15 08:42</a>
@@ -14192,26 +9384,15 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那这四个职业有啥意义，也没有更高级的地图了啊
 
 
-
-
-
-
-
 -----
 
 ####  则卷宝瓜  
 ##### 696#       发表于 2018-7-15 10:13
 
 
-
 <blockquote>haru橙子 发表于 2018-7-15 09:42
 那这四个职业有啥意义，也没有更高级的地图了啊</blockquote>
 有好几个隐藏boss的
-
-
-
-
-
 
 
 -----
@@ -14220,16 +9401,10 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 697#       发表于 2018-7-15 10:39
 
 
-
  本帖最后由 千川ちひろ 于 2018-7-15 12:22 编辑 
 
 找到个网站
 [https://gametamashii.com/categor ... %E6%94%BB%E7%95%A5/](https://gametamashii.com/category/%E3%82%AA%E3%82%AF%E3%83%88%E3%83%91%E3%82%B9%E3%83%88%E3%83%A9%E3%83%99%E3%83%A9%E3%83%BC-%E6%94%BB%E7%95%A5/)各种超强力武器宝箱的地点。赶紧带上贼去开箱子吧
-
-
-
-
-
 
 
 -----
@@ -14238,16 +9413,9 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 698#       发表于 2018-7-15 10:51
 
 
-
-
 喷了我发现有钱真的是可以为所欲为的，队友都30级了伤害还是不如商人小姐max氪金1w的伤害，更别说3w了，
 
 对了这技能是不是不吃学者的单体化奥义啊？
-
-
-
-
-
 
 
 -----
@@ -14256,14 +9424,7 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 699#       发表于 2018-7-15 10:54
 
 
-
-
 所以说猫猫出现的几率到底有多低...看前两页楼里某位大大去的兽道，我也去刷了2个小时，一只猫的影子都没看见过，更别说要去碰先制攻击了...你们到底是怎么做到的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14272,15 +9433,9 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 700#       发表于 2018-7-15 11:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40338504&amp;ptid=1711545" target="_blank">gh1023 发表于 2018-7-15 10:54</a>
 所以说猫猫出现的几率到底有多低...看前两页楼里某位大大去的兽道，我也去刷了2个小时，一只猫的影子都没看 ...</blockquote>
 刮刮乐偶尔会招来一只猫。。
-
-
-
-
-
 
 
 -----
@@ -14289,16 +9444,10 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 701#       发表于 2018-7-15 11:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40338504&amp;ptid=1711545" target="_blank">gh1023 发表于 2018-7-15 10:54</a>
 
 所以说猫猫出现的几率到底有多低...看前两页楼里某位大大去的兽道，我也去刷了2个小时，一只猫的影子都没看 ...</blockquote>
 其实上面说的两个都是看脸，猫在哪里的几率都一样，先制是前期多一轮比较好打猫，学会套路像商人1蓄150块佣兵直接破防也就无所谓了
-
-
-
-
-
 
 
 -----
@@ -14307,14 +9456,7 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 702#       发表于 2018-7-15 11:46
 
 
-
-
 目前舞女开局。8人收完了。还是没有get药师的用法<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14323,15 +9465,9 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 703#       发表于 2018-7-15 11:58
 
 
-
 <blockquote>囧神的逆袭 发表于 2018-7-15 11:46
 目前舞女开局。8人收完了。还是没有get药师的用法</blockquote>
 药师强是因为第一章就能偷到一把强力的斧头给他用
-
-
-
-
-
 
 
 -----
@@ -14340,15 +9476,9 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 704#       发表于 2018-7-15 12:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40339097&amp;ptid=1711545" target="_blank">hgcg-w 发表于 2018-7-15 11:58</a>
 药师强是因为第一章就能偷到一把强力的斧头给他用</blockquote>
 求问在哪儿偷。目前学者爸爸最厉害
-
-
-
-
-
 
 
 -----
@@ -14357,16 +9487,10 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 705#       发表于 2018-7-15 12:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40339097&amp;ptid=1711545" target="_blank">hgcg-w 发表于 2018-7-15 11:58</a>
 
 药师强是因为第一章就能偷到一把强力的斧头给他用</blockquote>
 刚开始收队友，金斧头我拿去给猎人姐了，药师虽然调合回血效率挺高，但是攻击类药物感觉伤害很低啊，是不是调合主要就用来回血，输出靠斧头？
-
-
-
-
-
 
 
 -----
@@ -14375,14 +9499,7 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 706#       发表于 2018-7-15 12:22
 
 
-
-
 金斧头就那3%的成功率，sl到死都成功不了，是我姿势不对吗
-
-
-
-
-
 
 
 -----
@@ -14391,21 +9508,13 @@ https://kamikouryaku.com/octopath_traveler/?%E3%83%91%E3%83%BC%E3%83%86%E3%82%A3
 ##### 707#       发表于 2018-7-15 12:27
 
 
-
-
 sl了四次就拿到了。 我自己都不敢信
-
-
-
-
-
 
 
 -----
 
 ####  Lunamos  
 ##### 708#         楼主| 发表于 2018-7-15 12:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40338364&amp;ptid=1711545" target="_blank">千川ちひろ 发表于 2018-7-15 11:39</a>
@@ -14416,32 +9525,19 @@ https://gametamashii.com/categor ... %E6%94%BB%E7%95%A5/各种超强力武器宝
 找回了血源里跑酷拿装备的感觉……
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 709#       发表于 2018-7-15 12:41
 
 
-
-
 中前期禁断系武器都很不错，禁断之剑给剑士装20来级能单挑7星npc了
-
-
-
-
-
 
 
 -----
 
 ####  千川ちひろ  
 ##### 710#       发表于 2018-7-15 13:10
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">开局选猎人的我有点尴尬，人物作用不大还占一个位置
@@ -14459,16 +9555,10 @@ https://gametamashii.com/categor ... %E6%94%BB%E7%95%A5/各种超强力武器宝
 就这个猎人感觉完全没什么作用
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 711#       发表于 2018-7-15 13:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40339669&amp;ptid=1711545" target="_blank">千川ちひろ 发表于 2018-07-15 13:10:32</a>
@@ -14490,16 +9580,10 @@ https://gametamashii.com/categor ... %E6%94%BB%E7%95%A5/各种超强力武器宝
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  hashire.owl  
 ##### 712#       发表于 2018-7-15 13:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40339205&amp;ptid=1711545" target="_blank">tachikoma0080 发表于 2018-7-15 12:13</a>
@@ -14509,31 +9593,19 @@ https://gametamashii.com/categor ... %E6%94%BB%E7%95%A5/各种超强力武器宝
 — from Xiaomi MI 6, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  Emmerich  
 ##### 713#       发表于 2018-7-15 13:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">前期山洞里的heavenwing和巴大蝴两个野外boss还能碰到不 想抓一只玩玩
-
-
-
-
-
 
 
 -----
 
 ####  tachikoma0080  
 ##### 714#       发表于 2018-7-15 13:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40339834&amp;ptid=1711545" target="_blank">hashire.owl 发表于 2018-7-15 13:30</a>
@@ -14547,26 +9619,15 @@ https://gametamashii.com/categor ... %E6%94%BB%E7%95%A5/各种超强力武器宝
 另外药师那个打听技能好像和学者的情报收集好像没啥区别？然后舞女的魅惑和神官的指引好像也一样·····
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 715#       发表于 2018-7-15 13:43
 
 
-
  本帖最后由 笛普达克范太希 于 2018-7-15 13:55 编辑 
 
 编辑了编辑了
-
-
-
-
-
 
 
 -----
@@ -14575,16 +9636,10 @@ https://gametamashii.com/categor ... %E6%94%BB%E7%95%A5/各种超强力武器宝
 ##### 716#       发表于 2018-7-15 13:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40339945&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-15 13:43</a>
 
 来黑一把小妖家买的时候标明11区版，结果来了个港版，50级的demo档就这么没了，再去看描述就变成了 ...</blockquote>
 感觉你去错店了，一般大家说的小妖家是东京小妖，他家基本只卖日版的，你去的是另一家吧
-
-
-
-
-
 
 
 -----
@@ -14593,16 +9648,10 @@ https://gametamashii.com/categor ... %E6%94%BB%E7%95%A5/各种超强力武器宝
 ##### 717#       发表于 2018-7-15 13:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40340025&amp;ptid=1711545" target="_blank">花火碳 发表于 2018-7-15 13:52</a>
 
 感觉你去错店了，一般大家说的小妖家是东京小妖，他家基本只卖日版的，你去的是另一家吧 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">是我业余了
-
-
-
-
-
 
 
 -----
@@ -14611,16 +9660,10 @@ https://gametamashii.com/categor ... %E6%94%BB%E7%95%A5/各种超强力武器宝
 ##### 718#       发表于 2018-7-15 13:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40340048&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-15 13:55</a>
 
 是我业余了</blockquote>
 我之前回复也没说清楚，感觉害了你<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14629,16 +9672,10 @@ https://gametamashii.com/categor ... %E6%94%BB%E7%95%A5/各种超强力武器宝
 ##### 719#       发表于 2018-7-15 14:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40340064&amp;ptid=1711545" target="_blank">花火碳 发表于 2018-7-15 13:57</a>
 
 我之前回复也没说清楚，感觉害了你</blockquote>
 其实也没多大事<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">反正速通选手40分钟能就收齐8个人了
-
-
-
-
-
 
 
 -----
@@ -14647,14 +9684,7 @@ https://gametamashii.com/categor ... %E6%94%BB%E7%95%A5/各种超强力武器宝
 ##### 720#       发表于 2018-7-15 14:19
 
 
-
-
 讲道理盗贼在战斗力的定位是辅助吗。。？
-
-
-
-
-
 
 
 -----
@@ -14663,14 +9693,7 @@ https://gametamashii.com/categor ... %E6%94%BB%E7%95%A5/各种超强力武器宝
 ##### 721#       发表于 2018-7-15 14:28
 
 
-
-
 攒了一堆果子不知道给谁吃哪个好，应该补足劣势还是强化优点……
-
-
-
-
-
 
 
 -----
@@ -14679,14 +9702,7 @@ https://gametamashii.com/categor ... %E6%94%BB%E7%95%A5/各种超强力武器宝
 ##### 722#       发表于 2018-7-15 14:33
 
 
-
-
 现在我懂了 果然开局要选学者 学者从来没离开过队伍.......
-
-
-
-
-
 
 
 -----
@@ -14695,16 +9711,10 @@ https://gametamashii.com/categor ... %E6%94%BB%E7%95%A5/各种超强力武器宝
 ##### 723#       发表于 2018-7-15 14:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40340218&amp;ptid=1711545" target="_blank">灰色的狐狸 发表于 2018-07-15 14:19:44</a>
 讲道理盗贼在战斗力的定位是辅助吗。。？</blockquote>盗贼猎人可以专业辅助，打boss很好用，降攻防，减速（2回合最迟行动），箭雨破防，还可以挂个商人的25%不耗道具负责丢道具。因为盗贼速度最快，上来给boss一个减速，其他人破防，这boss第一回合就傻了
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -14713,22 +9723,15 @@ https://gametamashii.com/categor ... %E6%94%BB%E7%95%A5/各种超强力武器宝
 ##### 724#       发表于 2018-7-15 14:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40339265&amp;ptid=1711545" target="_blank">松川奈々 发表于 2018-7-15 12:22</a>
 金斧头就那3%的成功率，sl到死都成功不了，是我姿势不对吗</blockquote>
 死活偷不到的来求安慰
-
-
-
-
-
 
 
 -----
 
 ####  windtrack  
 ##### 725#       发表于 2018-7-15 14:48
-
 
 
  本帖最后由 windtrack 于 2018-7-15 14:49 编辑 
@@ -14747,17 +9750,10 @@ https://gametamashii.com/categor ... %E6%94%BB%E7%95%A5/各种超强力武器宝
 10级出头换一把好点的弓就可以带商人和舞娘去鸟葬洞疯狂箭雨刷经验等级了
 
 
-
-
-
-
-
 -----
 
 ####  fallout  
 ##### 726#       发表于 2018-7-15 14:57
-
-
 
 
 现在有通关的吗
@@ -14765,16 +9761,10 @@ https://gametamashii.com/categor ... %E6%94%BB%E7%95%A5/各种超强力武器宝
 想知道通关时长跟通关后要素多不多
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 727#       发表于 2018-7-15 15:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40340506&amp;ptid=1711545" target="_blank">fallout 发表于 2018-07-15 14:57:37</a>
@@ -14785,33 +9775,19 @@ https://gametamashii.com/categor ... %E6%94%BB%E7%95%A5/各种超强力武器宝
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  囧神的逆袭  
 ##### 728#       发表于 2018-7-15 15:25
 
 
-
-
 在矿坑拼命把知惠的杖拿到手，然后可以全地图到处飞了。
-
-
-
-
-
 
 
 -----
 
 ####  hgcg-w  
 ##### 729#       发表于 2018-7-15 15:27
-
-
 
 
 感觉真的出中文版的话
@@ -14823,16 +9799,10 @@ https://gametamashii.com/categor ... %E6%94%BB%E7%95%A5/各种超强力武器宝
 クリアブルック就是CLEAR BROOK就是“清河镇”
 
 
-
-
-
-
-
 -----
 
 ####  灰色的狐狸  
 ##### 730#       发表于 2018-7-15 15:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40340386&amp;ptid=1711545" target="_blank">redsouris 发表于 2018-7-15 14:42</a>
@@ -14843,25 +9813,13 @@ https://gametamashii.com/categor ... %E6%94%BB%E7%95%A5/各种超强力武器宝
 —— 来自 OnePlus ONEPLUS A3000, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 731#       发表于 2018-7-15 15:56
 
 
-
-
 海滩那儿刷钱真的爽<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">从此商人3W佣兵变成平A技能
-
-
-
-
-
 
 
 -----
@@ -14870,16 +9828,10 @@ https://gametamashii.com/categor ... %E6%94%BB%E7%95%A5/各种超强力武器宝
 ##### 732#       发表于 2018-7-15 16:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40340936&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-15 15:56</a>
 
 海滩那儿刷钱真的爽从此商人3W佣兵变成平A技能</blockquote>
 求刷钱详细？
-
-
-
-
-
 
 
 -----
@@ -14888,15 +9840,9 @@ https://gametamashii.com/categor ... %E6%94%BB%E7%95%A5/各种超强力武器宝
 ##### 733#       发表于 2018-7-15 16:07
 
 
-
  本帖最后由 gaomao 于 2018-9-24 19:02 编辑 
 
 -
-
-
-
-
-
 
 
 -----
@@ -14905,16 +9851,10 @@ https://gametamashii.com/categor ... %E6%94%BB%E7%95%A5/各种超强力武器宝
 ##### 734#       发表于 2018-7-15 16:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40340986&amp;ptid=1711545" target="_blank">reficul 发表于 2018-7-15 16:03</a>
 
 求刷钱详细？</blockquote>
 就是45级洞窟那个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14923,23 +9863,16 @@ https://gametamashii.com/categor ... %E6%94%BB%E7%95%A5/各种超强力武器宝
 ##### 735#       发表于 2018-7-15 16:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40341051&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-15 16:09</a>
 
 就是45级洞窟那个</blockquote>
 我不遇敌，折返走一趟也才1600啊，这个效率要说能把1W当平A还是有点难度。。。还以为有新的刷钱法了
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 736#       发表于 2018-7-15 16:49
-
 
 
  本帖最后由 笛普达克范太希 于 2018-7-15 16:51 编辑 
@@ -14949,25 +9882,13 @@ boss太帅了
 https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoilers_screencap_before_the_start/
 
 
-
-
-
-
-
 -----
 
 ####  gzlss12321  
 ##### 737#       发表于 2018-7-15 16:51
 
 
-
-
 心累，完全不想练级。学者猎人真是好用。
-
-
-
-
-
 
 
 -----
@@ -14976,14 +9897,7 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 738#       发表于 2018-7-15 17:10
 
 
-
-
 跑路把知惠杖 弓圣弓和死切斧都拿到了...一路随便艹了 什么黄金斧 垃圾
-
-
-
-
-
 
 
 -----
@@ -14992,23 +9906,15 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 739#       发表于 2018-7-15 17:17
 
 
-
-
 问下收人时候瞎跑到第二章的城，没选进第二章，再去不出进第二章剧情选项了，咋整？
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  千川ちひろ  
 ##### 740#       发表于 2018-7-15 17:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40341620&amp;ptid=1711545" target="_blank">faust123 发表于 2018-7-15 17:17</a>
@@ -15020,16 +9926,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 — from OnePlus ONEPLUS A5010, Android 8.1.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  faust123  
 ##### 741#       发表于 2018-7-15 17:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40341668&amp;ptid=1711545" target="_blank">千川ちひろ 发表于 2018-07-15 17:23:48</a>
@@ -15040,17 +9940,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 742#       发表于 2018-7-15 17:37
-
-
 
 
 感觉盗贼兼职商人不错，纯辅助丢道具，输出时候砸佣兵输出也完全够，正好场景技能和商人冲突。
@@ -15058,16 +9951,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 小包就可以光荣下岗了
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 743#       发表于 2018-7-15 17:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40341778&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-07-15 17:37:35</a>
@@ -15078,25 +9965,13 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  reficul  
 ##### 744#       发表于 2018-7-15 17:54
 
 
-
-
 感觉按部就班来就行了吧，现在17级，还在第一章，感觉数值挺合适的，不会被怼得无法反抗，也不会各种秒杀对方
-
-
-
-
-
 
 
 -----
@@ -15105,15 +9980,9 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 745#         楼主| 发表于 2018-7-15 17:55
 
 
-
 <blockquote>reficul 发表于 2018-7-15 18:54
 感觉按部就班来就行了吧，现在17级，还在第一章，感觉数值挺合适的，不会被怼得无法反抗，也不会各种秒杀对 ...</blockquote>
 按部就班挺好的，只是好不容易有个自由度这么高的jrpg当然要找邪魔外道啦
-
-
-
-
-
 
 
 -----
@@ -15122,14 +9991,7 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 746#       发表于 2018-7-15 18:03
 
 
-
-
 我是贼兼职战士，本身贼是主人公卸不下来，等级比较高，刚好用战士的挑衅当个闪避坦，豪华装备用战士的aoe技能伤害也很可观
-
-
-
-
-
 
 
 -----
@@ -15138,13 +10000,7 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 747#       发表于 2018-7-15 18:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">话说战士第二章那个城市斗技场前面那个花坛怎么进，找不到路啊，一个隐藏道具和一个老头在里面，进不去很难受
-
-
-
-
-
 
 
 -----
@@ -15153,14 +10009,7 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 748#       发表于 2018-7-15 18:16
 
 
-
-
 话说舞者的祠堂在啥地方有人找到了吗
-
-
-
-
-
 
 
 -----
@@ -15169,23 +10018,15 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 749#       发表于 2018-7-15 18:20
 
 
-
-
 地图每个角的50-60级副本都有紫箱子 全都是攻击过300的宝贝啊<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony H8324, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
-
-
-
-
-
 
 
 -----
 
 ####  Errey  
 ##### 750#       发表于 2018-7-15 18:24
-
 
 
  本帖最后由 Errey 于 2018-7-15 18:29 编辑 
@@ -15196,16 +10037,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 我用舞女+医师师傅+神官的无限全体魔反给憋死了，他只有一招魔力之刃不能魔反，但是能防御，贼爽；第一回合速度高的舞女/神官平A，医师用调和全体回BP，速度慢的舞女/神官防御，下回合开场用全体化+MAX魔反；好像占星职神也是不会用普通攻击（）
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 751#       发表于 2018-7-15 18:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40342049&amp;ptid=1711545" target="_blank">haru橙子 发表于 2018-7-15 18:06</a>
@@ -15214,17 +10049,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 找得到的，就在斗技场门口往右走
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 752#       发表于 2018-7-15 18:40
-
-
 
 
 我这是放跑了几百万<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
@@ -15239,20 +10067,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 2018-7-15 18:40 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  osk666neo  
 ##### 753#       发表于 2018-7-15 18:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40341953&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-15 17:55</a>
@@ -15262,16 +10080,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 — from Sony SO-02D, Android 4.1.2 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 754#       发表于 2018-7-15 18:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40342130&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-15 18:16</a>
@@ -15280,33 +10092,19 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 去沙漠第二个城的路上
 
 
-
-
-
-
-
 -----
 
 ####  任毒瘤  
 ##### 755#       发表于 2018-7-15 18:42
 
 
-
-
 终于到货了  可以开始玩了
-
-
-
-
-
 
 
 -----
 
 ####  叶雾  
 ##### 756#       发表于 2018-7-15 18:43
-
-
 
 
 感觉游戏缺一个图鉴。。
@@ -15316,27 +10114,15 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 没有人物图鉴对神官和舞女也是
 
 
-
-
-
-
-
 -----
 
 ####  hashire.owl  
 ##### 757#       发表于 2018-7-15 18:43
 
 
-
-
 原来转职立绘不变的。。贼转了舞娘一看详细失望。。。
 
 — from Xiaomi MI 6, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0-play
-
-
-
-
-
 
 
 -----
@@ -15345,15 +10131,9 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 758#       发表于 2018-7-15 18:58
 
 
-
 <blockquote>reficul 发表于 2018-7-15 16:16
 我不遇敌，折返走一趟也才1600啊，这个效率要说能把1W当平A还是有点难度。。。还以为有新的刷钱法了 ...</blockquote>
 别折返走，进洞，原地转圈，觉得转的差不多快遇敌了就出来然后再进去，刷的飞快
-
-
-
-
-
 
 
 -----
@@ -15362,21 +10142,13 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 759#       发表于 2018-7-15 18:59
 
 
-
-
 剧情每个人物一共有几章？
-
-
-
-
-
 
 
 -----
 
 ####  haru橙子  
 ##### 760#       发表于 2018-7-15 19:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40342322&amp;ptid=1711545" target="_blank">叶雾 发表于 2018-7-15 18:40</a>
@@ -15387,26 +10159,15 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 麻蛋老头身上居然只有5块糖，我还以为有啥好东西呢
 
 
-
-
-
-
-
 -----
 
 ####  seki_m  
 ##### 761#       发表于 2018-7-15 19:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">学者线第一个boss，下面那个宝箱死活找不到路
 
 还想打完再去开结果直接剧情了
-
-
-
-
-
 
 
 -----
@@ -15415,22 +10176,15 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 762#       发表于 2018-7-15 19:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">感觉这游戏有一点不好  因为兼职几乎没任何惩罚  而且可以用两个职业的技能 所以是非常鼓励兼职的
 
 然后你就永远看不到角色最原本的小人了...
-
-
-
-
-
 
 
 -----
 
 ####  Lovecraft  
 ##### 763#       发表于 2018-7-15 19:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40342678&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-15 19:22</a>
@@ -15441,25 +10195,13 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 但是走马路上的不是还是原职业么……
 
 
-
-
-
-
-
 -----
 
 ####  ajunsama  
 ##### 764#       发表于 2018-7-15 19:32
 
 
-
-
 问一个初级问题，有多个武器的时候，放技能是看哪个武器的数值的？是战斗时当前面板的还是技能有绑定的武器？ 像猎人的魔兽攻击该怎么算？
-
-
-
-
-
 
 
 -----
@@ -15468,15 +10210,9 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 765#       发表于 2018-7-15 19:33
 
 
-
  本帖最后由 Emmerich 于 2018-7-15 19:35 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">22小时了第二章才打完2个人物 是不是有点墨迹了 所有城市NPC的背景看完+东西偷完...特别有旅行的感觉x而且因为demo玩过了 第一章剧情是全跳的
-
-
-
-
-
 
 
 -----
@@ -15485,16 +10221,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 766#       发表于 2018-7-15 19:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40342756&amp;ptid=1711545" target="_blank">ajunsama 发表于 2018-7-15 19:32</a>
 
 问一个初级问题，有多个武器的时候，放技能是看哪个武器的数值的？是战斗时当前面板的还是技能有绑定的武器 ...</blockquote>
 有适用武器的用的是武器面板，无适用的用的是当前面板，有时候一些双武器近战职业没有另一个武器的输出技能的时候可以带魔法加成多的来蹭魔法伤害，猎人宝宝的伤害完全独立
-
-
-
-
-
 
 
 -----
@@ -15503,16 +10233,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 767#       发表于 2018-7-15 19:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40342782&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-15 19:36</a>
 
 有适用武器的用的是武器面板，无适用的用的是当前面板，有时候一些双武器近战职业没有另一个武器的输出技 ...</blockquote>
 原来如此，感谢答复！
-
-
-
-
-
 
 
 -----
@@ -15521,15 +10245,9 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 768#       发表于 2018-7-15 19:48
 
 
-
 <blockquote>ajunsama 发表于 2018-7-15 19:32
 问一个初级问题，有多个武器的时候，放技能是看哪个武器的数值的？是战斗时当前面板的还是技能有绑定的武器 ...</blockquote>
 菜单最后一项，教学页面里有详细说明
-
-
-
-
-
 
 
 -----
@@ -15538,23 +10256,16 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 769#       发表于 2018-7-15 19:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40342879&amp;ptid=1711545" target="_blank">叶雾 发表于 2018-7-15 19:48</a>
 
 菜单最后一项，教学页面里有详细说明</blockquote>
 3q~
 
 
-
-
-
-
-
 -----
 
 ####  Emmerich  
 ##### 770#       发表于 2018-7-15 20:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40342947&amp;ptid=1711545" target="_blank">鱼肉丸子 发表于 2018-7-15 19:56</a>
@@ -15566,16 +10277,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">那我能放心继续摸鱼了 真香
 
 
-
-
-
-
-
 -----
 
 ####  Rarity5  
 ##### 771#       发表于 2018-7-15 20:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40342782&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-15 19:36</a>
@@ -15585,16 +10290,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 —— 来自 Sony H8324, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 772#       发表于 2018-7-15 20:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40343192&amp;ptid=1711545" target="_blank">Rarity5 发表于 2018-7-15 20:22</a>
@@ -15606,17 +10305,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 没有，那个是准备放魔法的时候手动切换到魔法加成高的武器那边去
 
 
-
-
-
-
-
 -----
 
 ####  松川奈々  
 ##### 773#       发表于 2018-7-15 20:31
-
-
 
 
 八路军不能随时更换队伍组成，这点儿太麻烦了
@@ -15624,16 +10316,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 如果能改一下，改成类似重装机兵4那样，体验会提升非常多
 
 
-
-
-
-
-
 -----
 
 ####  Rarity5  
 ##### 774#       发表于 2018-7-15 20:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40343215&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-15 20:24</a>
@@ -15643,17 +10329,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 —— 来自 Sony H8324, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  gh1023  
 ##### 775#       发表于 2018-7-15 21:01
-
-
 
 
 这游戏的NPC细节太差了，有时候真的极其出戏。
@@ -15662,16 +10341,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 剧情后回去找相关NPC对话叼反应没有就不说了，我把商人爸妈都全部打晕，商人居然一点事儿都没有。哪怕给个对话也好啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  reficul  
 ##### 776#       发表于 2018-7-15 21:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40342470&amp;ptid=1711545" target="_blank">火之魂 发表于 2018-7-15 18:58</a>
@@ -15680,16 +10353,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 遇敌和路径有关，反正我装上学者的遇敌减半，进洞走一阵子折回来就是1600金币，再远就遇敌了。你转圈也只能转1600金币吧，转多了直接遇敌啊。难道我理解有误？
 
 
-
-
-
-
-
 -----
 
 ####  prinny  
 ##### 777#       发表于 2018-7-15 21:26
-
 
 
  本帖最后由 prinny 于 2018-7-15 21:29 编辑 
@@ -15699,16 +10366,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 妈的 打了100个老太婆了 还不给我历战枪
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 778#       发表于 2018-7-15 21:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40343215&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-15 20:24</a>
@@ -15717,17 +10378,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 是自动根据装备武器的最高属性攻击力来计算的吧
 
 
-
-
-
-
-
 -----
 
 ####  reficul  
 ##### 779#       发表于 2018-7-15 21:27
-
-
 
 
 我用手下留情把LV20的双子瀑布的蛾打成最后一格血，就这样它的捕获率还是只有1%，你们都是怎么抓的，服了你们了。。。
@@ -15739,16 +10393,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 考虑该让主角商人兼职舞女还是让圣女兼职舞女，最近的一些怪物都不弱光属性，导致圣女在推图时很尴尬
 
 
-
-
-
-
-
 -----
 
 ####  reficul  
 ##### 780#       发表于 2018-7-15 21:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40343610&amp;ptid=1711545" target="_blank">gh1023 发表于 2018-7-15 21:01</a>
@@ -15760,27 +10408,15 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 别说了，你用舞女把他爹诱惑进队伍都没对话
 
 
-
-
-
-
-
 -----
 
 ####  冰原狼  
 ##### 781#       发表于 2018-7-15 21:32
 
 
-
-
 副职业点技能点出来的被动是不是就算换了副职业也能装？
 
 商人的SP减半看着不错想给学者练一个
-
-
-
-
-
 
 
 -----
@@ -15789,23 +10425,16 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 782#       发表于 2018-7-15 21:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40343835&amp;ptid=1711545" target="_blank">鱼肉丸子 发表于 2018-7-15 21:24</a>
 
 我从洞口直接走到存档点 然后折回来 2700 也许和等级也有关</blockquote>
 这个距离太长了，折回来的时候会遇敌啊，你没遇到？
 
 
-
-
-
-
-
 -----
 
 ####  haru橙子  
 ##### 783#       发表于 2018-7-15 21:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40343906&amp;ptid=1711545" target="_blank">冰原狼 发表于 2018-7-15 21:32</a>
@@ -15816,16 +10445,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 可以
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 784#         楼主| 发表于 2018-7-15 21:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40343913&amp;ptid=1711545" target="_blank">reficul 发表于 2018-7-15 22:33</a>
@@ -15834,16 +10457,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 脸太黑了吧，感觉很难遇敌。我一般是装遇敌减半进去到前面小广场转10圈出去。大概30秒2280。一般5次左右才遇敌1次，敌人有AOE也很快就能把队伍打死。5分钟能有3-4W吧，效率不是很高但也大概够了。刷了钱可以去最下面45级城マルサリム找支线老头旁边的骑士买一套很强的龙系的剑和铠甲，也只要刷10万，大概十几分钟就够了。
 
 
-
-
-
-
-
 -----
 
 ####  松川奈々  
 ##### 785#       发表于 2018-7-15 21:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40343275&amp;ptid=1711545" target="_blank">松川奈々 发表于 2018-7-15 20:31</a>
@@ -15854,25 +10471,13 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 发现副职业系统了，当我啥都没说
 
 
-
-
-
-
-
 -----
 
 ####  qianoooo  
 ##### 786#       发表于 2018-7-15 22:01
 
 
-
-
 这个游戏贼缺钱贼缺经验
-
-
-
-
-
 
 
 -----
@@ -15881,24 +10486,16 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 787#         楼主| 发表于 2018-7-15 22:14
 
 
-
-
 还有比这更硬核的支线吗……
 
 
 看到有些情报突然意识到可能跟某支线有关，然而忘记支线所在城市了<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 788#       发表于 2018-7-15 22:15
-
 
 
  本帖最后由 windtrack 于 2018-7-15 22:17 编辑 
@@ -15924,16 +10521,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 小包打钱贼快，捡钱+被动，打完一个迷宫就有1万多收入...45+地区主城的装备我都不偷直接买了
 
 
-
-
-
-
-
 -----
 
 ####  hiro123  
 ##### 789#       发表于 2018-7-15 22:18
-
 
 
 <blockquote>Lunamos 发表于 2018-7-15 22:14
@@ -15944,25 +10535,13 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 支线所在城市能查看啊
 
 
-
-
-
-
-
 -----
 
 ####  松川奈々  
 ##### 790#       发表于 2018-7-15 22:21
 
 
-
-
 我连支线情报进度在哪儿看都不知道，随缘做支线
-
-
-
-
-
 
 
 -----
@@ -15971,14 +10550,7 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 791#       发表于 2018-7-15 22:22
 
 
-
-
 说到支线，我选的商人开局，去到盗贼村时先逛了一圈然后把革命武器全给买了，后来才知道是个什么样的支线，有办法看到叛乱吗？还是说叛乱前拿着领主的“改善贫民计划”就把大家安排妥当了？
-
-
-
-
-
 
 
 -----
@@ -15987,16 +10559,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 792#         楼主| 发表于 2018-7-15 22:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40344338&amp;ptid=1711545" target="_blank">hiro123 发表于 2018-7-15 23:18</a>
 
 支线所在城市能查看啊</blockquote>
 我才知道可以在旅行记录按R切到支线……
-
-
-
-
-
 
 
 -----
@@ -16005,23 +10571,16 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 793#         楼主| 发表于 2018-7-15 22:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40344362&amp;ptid=1711545" target="_blank">松川奈々 发表于 2018-7-15 23:21</a>
 
 我连支线情报进度在哪儿看都不知道，随缘做支线</blockquote>
 如上，旅行记录按R切到地区任务
 
 
-
-
-
-
-
 -----
 
 ####  灰色的狐狸  
 ##### 794#       发表于 2018-7-15 22:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40344369&amp;ptid=1711545" target="_blank">reficul 发表于 2018-7-15 22:22</a>
@@ -16034,27 +10593,15 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 商人海港也有个类似的支线好像。。
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 795#       发表于 2018-7-15 22:34
 
 
-
-
 支线我把第二三章所在城市的都清得差不多了
 
 只剩这个寻找父亲的克里斯，第一步就不知道咋进行
-
-
-
-
-
 
 
 -----
@@ -16063,16 +10610,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 796#       发表于 2018-7-15 22:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40344369&amp;ptid=1711545" target="_blank">reficul 发表于 2018-7-15 22:22</a>
 
 说到支线，我选的商人开局，去到盗贼村时先逛了一圈然后把革命武器全给买了，后来才知道是个什么样的支线， ...</blockquote>
 完成手段不一样，结果一样，很多支线都是这样
-
-
-
-
-
 
 
 -----
@@ -16081,16 +10622,9 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 797#       发表于 2018-7-15 22:37
 
 
-
-
 为什么副职业不能兼有场景技能，紫箱子只有盗贼本人才能开吗，每次碰到都要再回去换人来开太麻烦了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 舞者的祠堂是不是还在比较高等级的地区，第二章附近绕了一圈没看到
-
-
-
-
-
 
 
 -----
@@ -16099,20 +10633,13 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 798#       发表于 2018-7-15 22:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">药师第三章写32级是认真的吗，那个双枪不好打啊
-
-
-
-
-
 
 
 -----
 
 ####  windtrack  
 ##### 799#       发表于 2018-7-15 22:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40344502&amp;ptid=1711545" target="_blank">yuruho 发表于 2018-7-15 22:37</a>
@@ -16123,26 +10650,15 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 沙漠往下走 在通往第二个城市那里 左侧有个棕色宝箱的地方往下走 有点隐蔽
 
 
-
-
-
-
-
 -----
 
 ####  reficul  
 ##### 800#       发表于 2018-7-15 22:39
 
 
-
 <blockquote>叶雾 发表于 2018-7-15 22:34
 完成手段不一样，结果一样，很多支线都是这样</blockquote>
 那这些支线每个其实都特别短啊…
-
-
-
-
-
 
 
 -----
@@ -16151,23 +10667,16 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 801#       发表于 2018-7-15 22:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40343860&amp;ptid=1711545" target="_blank">reficul 发表于 2018-7-15 21:27</a>
 
 我用手下留情把LV20的双子瀑布的蛾打成最后一格血，就这样它的捕获率还是只有1%，你们都是怎么抓的，服了你 ...</blockquote>
 捕获率跟等级有关，如果剩个500血不到的话你break三蓄就是最大几率了，我demo里测试的20级左右最高3%，40级左右最高是8%，有盾的1血可能还不如没盾的黄血好抓，几率低就以后再来吧
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 802#       发表于 2018-7-15 22:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40344528&amp;ptid=1711545" target="_blank">reficul 发表于 2018-7-15 22:39</a>
@@ -16182,16 +10691,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 还有几个跨地区的连续任务，比如盗贼城市那个寻找运命之人，第二次就在别的地区出现了
 
 
-
-
-
-
-
 -----
 
 ####  Errey  
 ##### 803#       发表于 2018-7-15 22:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40344603&amp;ptid=1711545" target="_blank">鱼肉丸子 发表于 2018-7-15 22:45</a>
@@ -16200,16 +10703,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 背水斧，其实并没有这么神奇，后期BOSS都很多乱七八糟的秒杀级技
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 804#       发表于 2018-7-15 23:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40344656&amp;ptid=1711545" target="_blank">Errey 发表于 2018-7-15 22:51</a>
@@ -16220,27 +10717,15 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 商人直接喂BP打满
 
 
-
-
-
-
-
 -----
 
 ####  看戏专用  
 ##### 805#       发表于 2018-7-16 00:03
 
 
-
-
 实在是忍不住，还是试了下英文试玩，发现还行，不是很难懂，直接买了<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">商人小姑娘前期怎么提高伤害？
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -16249,14 +10734,7 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 806#       发表于 2018-7-16 00:06
 
 
-
-
 真最终Boss太爽了 请大家一定要玩
-
-
-
-
-
 
 
 -----
@@ -16265,15 +10743,9 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 807#       发表于 2018-7-16 00:09
 
 
-
 <blockquote>reficul 发表于 2018-7-15 21:22
 遇敌和路径有关，反正我装上学者的遇敌减半，进洞走一阵子折回来就是1600金币，再远就遇敌了。你转圈也只 ...</blockquote>
 钱和地图等级还有走路距离有关，门口转不需要走这么深还能快速自动存档，我原地转圈一次大概是2800，跑了20次够买满药就走人了
-
-
-
-
-
 
 
 -----
@@ -16282,23 +10754,15 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 808#       发表于 2018-7-16 00:22
 
 
-
-
 人还没收齐...学者那种搞关系感觉有点累啊，经常一堆没用的东西
 
 有详细的wiki了么？话说反正地图可以反复进出的吧，一开始错过了之后能回来拿的吧
-
-
-
-
-
 
 
 -----
 
 ####  gh1023  
 ##### 809#       发表于 2018-7-16 01:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40345571&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-7-16 00:22</a>
@@ -16309,25 +10773,13 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 神攻略这个站的WIKI一直挺不错的：[https://kamikouryaku.com/octopath_traveler/](https://kamikouryaku.com/octopath_traveler/)
 
 
-
-
-
-
-
 -----
 
 ####  darkfall  
 ##### 810#       发表于 2018-7-16 01:37
 
 
-
-
 翻了下，真最终boss真狠啊。。。
-
-
-
-
-
 
 
 -----
@@ -16336,16 +10788,10 @@ https://www.red  dit.com/r/octopathtraveler/comments/8z02gn/major_story_spoile
 ##### 811#       发表于 2018-7-16 01:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40346216&amp;ptid=1711545" target="_blank">gh1023 发表于 2018-7-16 01:29</a>
 
 神攻略这个站的WIKI一直挺不错的：https://kamikouryaku.com/octopath_traveler/</blockquote>
 THX~<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16354,14 +10800,7 @@ THX~<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referr
 ##### 812#       发表于 2018-7-16 02:10
 
 
-
-
 打着打着不能用道具了是什么情况
-
-
-
-
-
 
 
 -----
@@ -16370,14 +10809,7 @@ THX~<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referr
 ##### 813#       发表于 2018-7-16 06:12
 
 
-
-
 感觉不同角色间输出差好多啊，我现在法系输出全靠学者，物理输出全靠盗贼……商人妹子只能送bp，神官放放buff加加血什么的
-
-
-
-
-
 
 
 -----
@@ -16386,24 +10818,16 @@ THX~<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referr
 ##### 814#       发表于 2018-7-16 07:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40346441&amp;ptid=1711545" target="_blank">火之魂 发表于 2018-07-16 02:10:36</a>
 打着打着不能用道具了是什么情况</blockquote>跳舞有几率出现道具掉一地的情况……
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 815#       发表于 2018-7-16 07:52
-
-
 
 
 四隐藏职业里魔大公最简单，连二阶段都没有，合适的队伍配置大概30多级就能打掉，而且魔术师职业克制其他三个boss，全属性六连破盾。
@@ -16414,27 +10838,15 @@ THX~<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referr
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  fantuanhtr  
 ##### 816#       发表于 2018-7-16 08:18
 
 
-
-
 这游戏音乐是真好
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -16443,23 +10855,15 @@ THX~<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referr
 ##### 817#       发表于 2018-7-16 08:18
 
 
-
-
 才发现小镇里右上角有加号键提示可以查看小队成员对话。。。错过好多了
 
 — from Xiaomi MI 6, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0-play
-
-
-
-
-
 
 
 -----
 
 ####  windtrack  
 ##### 818#       发表于 2018-7-16 08:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40345368&amp;ptid=1711545" target="_blank">看戏专用 发表于 2018-7-16 00:03</a>
@@ -16472,17 +10876,10 @@ THX~<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referr
 没钱的商人 练出SP减半就转学者把。。。
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 819#       发表于 2018-7-16 09:13
-
-
 
 
 感觉从功利角度来讲，主角选药师或者舞娘比较合适
@@ -16494,25 +10891,13 @@ THX~<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referr
 药师调和回我方SP BP以及打敌人时候2HIT破防都很实在，本身职业技能也是最强输出候补，拿来做主角的话应该是最佳选择
 
 
-
-
-
-
-
 -----
 
 ####  pei1019  
 ##### 820#       发表于 2018-7-16 09:54
 
 
-
-
 求问下，我正在打学者的第二章，平均等级大概在22+左右，哪里有比较好的刷经验的地方？舞女的祀堂在哪里，我想给学者转舞女，队里没暗属性破防实在太难受了……
-
-
-
-
-
 
 
 -----
@@ -16521,21 +10906,13 @@ THX~<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referr
 ##### 821#       发表于 2018-7-16 09:57
 
 
-
-
 偷闲玩了两天终于把八个人第一章都通了，现在最高等级的学者16级，接下来应该干嘛，去哪里练练还是直接去主线<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  windtrack  
 ##### 822#       发表于 2018-7-16 09:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40347802&amp;ptid=1711545" target="_blank">pei1019 发表于 2018-7-16 09:54</a>
@@ -16548,32 +10925,19 @@ THX~<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referr
 舞女祠堂在沙漠城往下走第二张图 进去后左走有个棕色宝箱的地方往下向左拐弯就到了
 
 
-
-
-
-
-
 -----
 
 ####  blackwhalebest  
 ##### 823#       发表于 2018-7-16 10:03
 
 
-
-
 这村民们给我一种中国人都会功夫的感觉，一个比一个厉害，要不你们去组个主角团？
-
-
-
-
-
 
 
 -----
 
 ####  falsethen  
 ##### 824#       发表于 2018-7-16 10:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40347853&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-16 09:58</a>
@@ -16585,17 +10949,10 @@ THX~<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referr
 —— 来自 Sony G8342, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  Yuee  
 ##### 825#       发表于 2018-7-16 10:09
-
-
 
 
 11小时收完8个主角，感觉好好玩DEMO的话可以省好多时间+_+
@@ -16604,16 +10961,10 @@ THX~<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referr
 这游戏真是有毒
 
 
-
-
-
-
-
 -----
 
 ####  pei1019  
 ##### 826#       发表于 2018-7-16 10:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40347853&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-16 09:58</a>
@@ -16624,16 +10975,10 @@ THX~<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referr
 多谢。
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 827#       发表于 2018-7-16 10:10
-
 
 
  本帖最后由 windtrack 于 2018-7-16 10:13 编辑 
@@ -16654,16 +10999,10 @@ THX~<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referr
 另外去找商人妈买个龙护符，也是回SP的
 
 
-
-
-
-
-
 -----
 
 ####  falsethen  
 ##### 828#       发表于 2018-7-16 10:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40347974&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-16 10:10</a>
@@ -16676,17 +11015,10 @@ THX~<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referr
 现在就是在找齐8职业祭坛和第二章的城市旅游（偷东西）中。一点都不想做主线
 
 
-
-
-
-
-
 -----
 
 ####  falsethen  
 ##### 829#       发表于 2018-7-16 10:19
-
-
 
 
 现在有一个属性问题
@@ -16696,16 +11028,10 @@ THX~<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referr
 属攻的话，两把武器都有+属攻，那么用魔法的时候是怎么算的？我在装备界面看的时候光标放在不同武器和装备的时候显示的数值都不一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Errey  
 ##### 830#       发表于 2018-7-16 10:24
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">净化之森（58级）5盾弱弓的羊只有5000不到的血量
@@ -16716,32 +11042,19 @@ THX~<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referr
 刷级刷舞记得带双神官，必须猎人职，找弱弓盾多的
 
 
-
-
-
-
-
 -----
 
 ####  pei1019  
 ##### 831#       发表于 2018-7-16 10:25
 
 
-
-
 再求问下，魔法职业首先堆暴击还是属性攻击？学者哪里都好，就是太脆，稍微被针对点就要跪，应该给他优先堆属性防御还是物防啊？？？
-
-
-
-
-
 
 
 -----
 
 ####  千川ちひろ  
 ##### 832#       发表于 2018-7-16 10:29
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">问个系统方面的事
@@ -16753,16 +11066,10 @@ THX~<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referr
 还是说就算副职业猎人练满了，转了副职业药师后还是只能用自己剑士+副职业药师的
 
 
-
-
-
-
-
 -----
 
 ####  haru橙子  
 ##### 833#       发表于 2018-7-16 10:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40348184&amp;ptid=1711545" target="_blank">千川ちひろ 发表于 2018-7-16 10:29</a>
@@ -16775,16 +11082,10 @@ THX~<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referr
 被动技能不限制当前副职业的，开了就能用
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 834#       发表于 2018-7-16 10:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40348140&amp;ptid=1711545" target="_blank">pei1019 发表于 2018-7-16 10:25</a>
@@ -16797,32 +11098,19 @@ THX~<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referr
 反正我20多级去打40多迷宫的小怪一身都还是默认防具...
 
 
-
-
-
-
-
 -----
 
 ####  yuruho  
 ##### 835#       发表于 2018-7-16 10:46
 
 
-
-
 小对话触发是不是只有目前在队里的队友可以？待机的可以吗？错过了是不是就没得看了？<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  fantuanhtr  
 ##### 836#       发表于 2018-7-16 10:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40348184&amp;ptid=1711545" target="_blank">千川ちひろ 发表于 2018-7-16 10:29</a>
@@ -16835,16 +11123,10 @@ THX~<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referr
 被动就是给你通用的。
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 837#       发表于 2018-7-16 11:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40348064&amp;ptid=1711545" target="_blank">falsethen 发表于 2018-07-16 10:19:15</a>
@@ -16857,26 +11139,15 @@ THX~<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referr
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  真红之闪电  
 ##### 838#       发表于 2018-7-16 11:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40341051&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-15 16:09</a>
 就是45级洞窟那个</blockquote>
 能不能简单拿中文描述下?日语无力…
-
-
-
-
-
 
 
 -----
@@ -16885,13 +11156,7 @@ THX~<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referr
 ##### 839#       发表于 2018-7-16 11:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">讲真跑路刷钱不如跑酷去开紫箱子，还能顺道把几个顶级装备拿了
-
-
-
-
-
 
 
 -----
@@ -16900,16 +11165,9 @@ THX~<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referr
 ##### 840#       发表于 2018-7-16 12:00
 
 
-
-
 按道理，神官不可能和贼组队吧，带着神官一路偷东西太违和了。
 
 — from Xiaomi MI 6, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0-play
-
-
-
-
-
 
 
 -----
@@ -16918,14 +11176,7 @@ THX~<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referr
 ##### 841#       发表于 2018-7-16 12:06
 
 
-
-
 buff技能使用爆发只有回合数区别?
-
-
-
-
-
 
 
 -----
@@ -16934,22 +11185,15 @@ buff技能使用爆发只有回合数区别?
 ##### 842#       发表于 2018-7-16 12:07
 
 
-
 <blockquote>pei1019 发表于 2018-7-16 09:54
 求问下，我正在打学者的第二章，平均等级大概在22+左右，哪里有比较好的刷经验的地方？舞女的祀堂在哪里， ...</blockquote>
 每个职业的祠堂都在他出身地区去第二个城市的路上
-
-
-
-
-
 
 
 -----
 
 ####  Lunamos  
 ##### 843#         楼主| 发表于 2018-7-16 12:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40349052&amp;ptid=1711545" target="_blank">真红之闪电 发表于 2018-7-16 12:51</a>
@@ -16961,16 +11205,10 @@ buff技能使用爆发只有回合数区别?
 这三者结合起来就可以让你在等级很低的时候在高等级迷宫里跑路刷钱。而最合适的高等级迷宫就是商人城右边出城的45级隐藏迷宫，因为离初始地点非常近，拿到学者的遇敌减半，两个人就可以去了。进去会自动存档，转几圈出来看左上角你就明白了。
 
 
-
-
-
-
-
 -----
 
 ####  Errey  
 ##### 844#       发表于 2018-7-16 12:19
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏玩下来还是比较失望的，即便是游戏体验比较愉悦
@@ -16992,16 +11230,10 @@ buff技能使用爆发只有回合数区别?
 战斗系统以及BOSS设计精准地把多数负攻法路线回避了，都是靠被动一手奶爆+异常MISS+二动，三人辅助+上位职业单C搞定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">；比“LV上升然后物理/魔法殴打好一点”
 
 
-
-
-
-
-
 -----
 
 ####  faust123  
 ##### 845#       发表于 2018-7-16 12:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40349127&amp;ptid=1711545" target="_blank">hashire.owl 发表于 2018-7-16 12:00</a>
@@ -17013,16 +11245,10 @@ buff技能使用爆发只有回合数区别?
 神官自己一路上都杀了多少生了。。
 
 
-
-
-
-
-
 -----
 
 ####  Errey  
 ##### 846#       发表于 2018-7-16 12:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40349278&amp;ptid=1711545" target="_blank">鱼肉丸子 发表于 2018-7-16 12:16</a>
@@ -17033,25 +11259,13 @@ buff技能使用爆发只有回合数区别?
 刷舞一沉默就跑，然后存档完事
 
 
-
-
-
-
-
 -----
 
 ####  噂の船  
 ##### 847#       发表于 2018-7-16 12:29
 
 
-
-
 要求真高啊..还要拉动TRPG群体二创<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">某些人自我感觉也太良好了一点
-
-
-
-
-
 
 
 -----
@@ -17060,23 +11274,15 @@ buff技能使用爆发只有回合数区别?
 ##### 848#       发表于 2018-7-16 12:37
 
 
-
-
 如果说神官是圣母婊 舞女是字面意义上的婊 那我还是更喜欢舞女一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony H8324, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
-
-
-
-
-
 
 
 -----
 
 ####  Errey  
 ##### 849#       发表于 2018-7-16 12:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40349431&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-7-16 12:29</a>
@@ -17087,16 +11293,10 @@ buff技能使用爆发只有回合数区别?
 要是你说他们没那个意思肯定不是，但上钩的人多不多，应该都心里有数吧
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 850#         楼主| 发表于 2018-7-16 12:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40349324&amp;ptid=1711545" target="_blank">Errey 发表于 2018-7-16 13:19</a>
@@ -17109,16 +11309,10 @@ buff技能使用爆发只有回合数区别?
 对我来说画面和音乐就值回票价了，数值和系统这么舒服之前是没想到的，算是惊喜了，剧情章节结构重复度倒是没想到这么高。世界观也没作为卖点吧，感觉这游戏主卖点就是画面，换成BDFF这类画面关注度会下降很多。
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 851#       发表于 2018-7-16 12:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40349562&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-16 12:39</a>
@@ -17127,16 +11321,10 @@ buff技能使用爆发只有回合数区别?
 音乐有几首感觉和闪轨有点像  还有几首有尼尔2的调调...
 
 
-
-
-
-
-
 -----
 
 ####  Renkonsai  
 ##### 852#       发表于 2018-7-16 13:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40349562&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-16 12:39</a>
@@ -17147,16 +11335,10 @@ buff技能使用爆发只有回合数区别?
 八路军这游戏本体改成轨迹画面立刻就要崩皮…
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 853#         楼主| 发表于 2018-7-16 13:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40349792&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-16 13:58</a>
@@ -17165,16 +11347,10 @@ buff技能使用爆发只有回合数区别?
 听到第一首战斗音乐的时候就恍然有种轨迹的感觉。
 
 
-
-
-
-
-
 -----
 
 ####  fantuanhtr  
 ##### 854#       发表于 2018-7-16 13:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40349792&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-16 12:58</a>
@@ -17183,17 +11359,10 @@ buff技能使用爆发只有回合数区别?
 隐藏迷宫那首很碧之大树。。。
 
 
-
-
-
-
-
 -----
 
 ####  meltingwhite  
 ##### 855#       发表于 2018-7-16 14:03
-
-
 
 
 讲道理，贼哥也就初期跑酷开紫箱子的用处吧
@@ -17204,16 +11373,10 @@ buff技能使用爆发只有回合数区别?
 还有问下，你们打10星npc是用的猎人还是剑士，我看看该练谁
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 856#       发表于 2018-7-16 14:06
-
 
 
  本帖最后由 windtrack 于 2018-7-16 14:07 编辑 
@@ -17231,16 +11394,10 @@ buff技能使用爆发只有回合数区别?
 贼哥除了开紫箱子纯没用，我30多级小包打掉一个40+迷宫出来就有近2万收入，看见什么直接买
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 857#       发表于 2018-7-16 14:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40350383&amp;ptid=1711545" target="_blank">meltingwhite 发表于 2018-7-16 14:03</a>
@@ -17253,16 +11410,10 @@ buff技能使用爆发只有回合数区别?
 猎人不能自己行动太难了
 
 
-
-
-
-
-
 -----
 
 ####  Yuee  
 ##### 858#       发表于 2018-7-16 14:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40348064&amp;ptid=1711545" target="_blank">falsethen 发表于 2018-7-16 10:19</a>
@@ -17284,16 +11435,10 @@ buff技能使用爆发只有回合数区别?
 回复技能看属防（没想到吧！
 
 
-
-
-
-
-
 -----
 
 ####  falsethen  
 ##### 859#       发表于 2018-7-16 14:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40350417&amp;ptid=1711545" target="_blank">Yuee 发表于 2018-7-16 14:06</a>
@@ -17305,16 +11450,10 @@ buff技能使用爆发只有回合数区别?
 大意了！感谢！
 
 
-
-
-
-
-
 -----
 
 ####  falsethen  
 ##### 860#       发表于 2018-7-16 14:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40349040&amp;ptid=1711545" target="_blank">redsouris 发表于 2018-7-16 11:49</a>
@@ -17326,17 +11465,10 @@ buff技能使用爆发只有回合数区别?
 啊，谢谢！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 861#       发表于 2018-7-16 15:24
-
-
 
 
 唯一指定爆肝机器美希命二章已经更了4个人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再摸摸鱼练练级享受同步中文
@@ -17344,16 +11476,10 @@ buff技能使用爆发只有回合数区别?
 然后问问二章以后有开放比58更高级的地图吗，还有一个+1000HP的饰品在哪个城<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">见过一次然后就忘了
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 862#       发表于 2018-7-16 15:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40351123&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-16 15:24</a>
@@ -17364,25 +11490,13 @@ buff技能使用爆发只有回合数区别?
 北方冰天雪地的城，门口左边的NPC
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 863#       发表于 2018-7-16 16:38
 
 
-
-
 属性攻击+100的饰品在猎人第二章的城，右边区域完成支线任务之后从依赖主身上偷
-
-
-
-
-
 
 
 -----
@@ -17391,16 +11505,9 @@ buff技能使用爆发只有回合数区别?
 ##### 864#       发表于 2018-7-16 16:46
 
 
-
-
 45级把最菜的转职神巫师给干死了 给boss套个物防debuff后三万块的佣兵能打两万四 性价比真是高 队内有两个商人直接四次破盾内解决战斗 有钱是真的可以为所欲为的<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
 
 —— 来自 Sony H8324, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
-
-
-
-
-
 
 
 -----
@@ -17409,23 +11516,15 @@ buff技能使用爆发只有回合数区别?
 ##### 865#       发表于 2018-7-16 18:00
 
 
-
-
 后期地图的大肥猫 第一回合居然有概率不会逃跑。。用舞娘刮刮乐刷了10w jp 乐疯了<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony H8324, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
-
-
-
-
-
 
 
 -----
 
 ####  Errey  
 ##### 866#       发表于 2018-7-16 18:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40352699&amp;ptid=1711545" target="_blank">Rarity5 发表于 2018-7-16 18:00</a>
@@ -17439,32 +11538,19 @@ buff技能使用爆发只有回合数区别?
 要是你队伍能打得过他，他就跑得蛮快，要是你队伍死了那么一两个他就狂奶它队友
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 867#       发表于 2018-7-16 18:36
 
 
-
-
 花式打了下大法师，舞娘大招+神官满蓄镜反就是全体4层盾，两商人不停给神官送bp，再加上猎人的被动二动，两位数的盾反<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有次他刚切换完弱点下一个技能就把自己的盾给爆了
-
-
-
-
-
 
 
 -----
 
 ####  Lunamos  
 ##### 868#         楼主| 发表于 2018-7-16 20:16
-
 
 
  本帖最后由 Lunamos 于 2018-7-16 22:35 编辑 
@@ -17474,16 +11560,10 @@ buff技能使用爆发只有回合数区别?
 好吧，break就破了，原来不用理……
 
 
-
-
-
-
-
 -----
 
 ####  hashire.owl  
 ##### 869#       发表于 2018-7-16 20:37
-
 
 
 <img src="https://i.loli.net/2018/07/16/5b4c91348991e.jpg" referrerpolicy="no-referrer">
@@ -17493,17 +11573,10 @@ buff技能使用爆发只有回合数区别?
 — from Xiaomi MI 6, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  toutun  
 ##### 870#       发表于 2018-7-16 21:07
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201807/16/210724mdhn3y4dyeuqwi3m.jpg" referrerpolicy="no-referrer">
@@ -17516,17 +11589,7 @@ buff技能使用爆发只有回合数区别?
 2018-7-16 21:07 上传
 
 
-
-
-
-
-
 已经被舞娘教坏了的特蕾莎！
-
-
-
-
-
 
 
 -----
@@ -17535,14 +11598,7 @@ buff技能使用爆发只有回合数区别?
 ##### 871#       发表于 2018-7-16 21:16
 
 
-
-
 舞娘神官奥义叠加 魔大公简直白送
-
-
-
-
-
 
 
 -----
@@ -17551,16 +11607,10 @@ buff技能使用爆发只有回合数区别?
 ##### 872#       发表于 2018-7-16 21:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40354209&amp;ptid=1711545" target="_blank">toutun 发表于 2018-7-16 21:07</a>
 
 已经被舞娘教坏了的特蕾莎！</blockquote>
 法子姐姐你个前辈怎么可以这么欺负后辈呢？！<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17569,21 +11619,13 @@ buff技能使用爆发只有回合数区别?
 ##### 873#       发表于 2018-7-16 21:37
 
 
-
-
 请问打听和偷听有什么区别，如果能用打听的为什么还要用偷听？
-
-
-
-
-
 
 
 -----
 
 ####  Lunamos  
 ##### 874#         楼主| 发表于 2018-7-16 21:47
-
 
 
  本帖最后由 Lunamos 于 2018-7-16 22:48 编辑 
@@ -17596,16 +11638,10 @@ buff技能使用爆发只有回合数区别?
 药师的技能有等级要求，学者的没有。剑士/猎人和舞女/神官同理。
 
 
-
-
-
-
-
 -----
 
 ####  西多士  
 ##### 875#       发表于 2018-7-16 21:54
-
 
 
 <blockquote>Lunamos 发表于 2018-7-16 21:47
@@ -17616,33 +11652,19 @@ buff技能使用爆发只有回合数区别?
 明白了，谢谢解答！
 
 
-
-
-
-
-
 -----
 
 ####  meltingwhite  
 ##### 876#       发表于 2018-7-16 22:34
 
 
-
-
 我就说为啥感觉商人好眼熟，这转了猎人不就是姬塔c4狂战吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Lunamos  
 ##### 877#         楼主| 发表于 2018-7-16 22:37
-
-
 
 
 UK Charts 14号发布，八方旅人发售两天登上英国周榜第三名。
@@ -17669,17 +11691,10 @@ Far Cry 5
 Mario Kart 8 Deluxe
 
 
-
-
-
-
-
 -----
 
 ####  Rarity5  
 ##### 878#       发表于 2018-7-16 22:39
-
-
 
 
 占星也可以用舞娘+神官魔法反射打 只要开局sl一下神官别被debuff就行了 
@@ -17688,17 +11703,10 @@ Mario Kart 8 Deluxe
 —— 来自 Sony H8324, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  meltingwhite  
 ##### 879#       发表于 2018-7-16 23:27
-
-
 
 
 不知道是不是错觉，我装上引怪饰品后遇猫率提高了
@@ -17706,16 +11714,10 @@ Mario Kart 8 Deluxe
 跑路半小时就遇到三只
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 880#       发表于 2018-7-16 23:47
-
 
 
  本帖最后由 windtrack 于 2018-7-17 00:13 编辑 
@@ -17744,18 +11746,10 @@ BOSS初期不要去破防，先盗贼神官舞女各种BUFF刷到满
 就怕钱包撑不住
 
 
-
-
-
-
-
-
-
 -----
 
 ####  s32244153  
 ##### 881#       发表于 2018-7-16 23:48
-
 
 
 <blockquote>西多士 发表于 2018-7-16 21:37
@@ -17765,25 +11759,13 @@ BOSS初期不要去破防，先盗贼神官舞女各种BUFF刷到满
 邪道技能成功率浮動 但沒有等級限制 所以一開始就能觸發賭機率
 
 
-
-
-
-
-
 -----
 
 ####  真红之闪电  
 ##### 882#       发表于 2018-7-16 23:51
 
 
-
-
 最右边港口的偷窃指南在哪里触发的？
-
-
-
-
-
 
 
 -----
@@ -17792,24 +11774,16 @@ BOSS初期不要去破防，先盗贼神官舞女各种BUFF刷到满
 ##### 883#       发表于 2018-7-17 00:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40355577&amp;ptid=1711545" target="_blank">真红之闪电 发表于 2018-7-16 23:51</a>
 
 最右边港口的偷窃指南在哪里触发的？</blockquote>
 酒馆旁边NPC守着的屋子里
 
 
-
-
-
-
-
 -----
 
 ####  Bani82  
 ##### 884#       发表于 2018-7-17 00:48
-
-
 
 
 目前感觉学者是不是没什么用？初期等级不够城镇一堆60%的概率想想还是算了...不过战斗似乎作为法师不错
@@ -17819,25 +11793,13 @@ BOSS初期不要去破防，先盗贼神官舞女各种BUFF刷到满
 顺便这游戏有没有什么不看攻略容易错过的重要物品或事件？
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 885#       发表于 2018-7-17 00:51
 
 
-
-
 寻找父亲的克里斯1咋做。。他到底要找个啥组织
-
-
-
-
-
 
 
 -----
@@ -17846,22 +11808,15 @@ BOSS初期不要去破防，先盗贼神官舞女各种BUFF刷到满
 ##### 886#       发表于 2018-7-17 00:59
 
 
-
  本帖最后由 LichEnd 于 2018-7-17 01:09 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">你们说的舞娘刮刮乐是啥。
-
-
-
-
-
 
 
 -----
 
 ####  笛普达克范太希  
 ##### 887#       发表于 2018-7-17 01:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40355988&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-07-17 00:48:05</a>
@@ -17877,16 +11832,10 @@ BOSS初期不要去破防，先盗贼神官舞女各种BUFF刷到满
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 888#       发表于 2018-7-17 01:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40356029&amp;ptid=1711545" target="_blank">LichEnd 发表于 2018-07-17 00:59:19</a>
@@ -17895,16 +11844,10 @@ BOSS初期不要去破防，先盗贼神官舞女各种BUFF刷到满
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 889#       发表于 2018-7-17 01:08
-
 
 
  本帖最后由 LichEnd 于 2018-7-17 01:10 编辑 
@@ -17917,16 +11860,10 @@ BOSS初期不要去破防，先盗贼神官舞女各种BUFF刷到满
 这样啊，多谢。说起来，猎人速度上去能抓猫的话效果也很好，猫是随机给敌人和己方全体db/buff。打boss蓄满招一个猫猫，boss大概有10轮降全抗，78轮降攻加一堆有的没的db，外加己方全员全攻击上升n轮。我20级打30级的boss就是靠的这个……还有就是前面说的商人散步刷钱，我跑了半天最多只有4500，是不是因为商人等级太低了……
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 890#       发表于 2018-7-17 01:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40356071&amp;ptid=1711545" target="_blank">LichEnd 发表于 2018-07-17 01:08:45</a>
@@ -17935,16 +11872,10 @@ BOSS初期不要去破防，先盗贼神官舞女各种BUFF刷到满
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 891#       发表于 2018-7-17 01:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40356101&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-17 01:14</a>
@@ -17956,25 +11887,13 @@ BOSS初期不要去破防，先盗贼神官舞女各种BUFF刷到满
 那差不多，我在45级地图转悠是4500最多了
 
 
-
-
-
-
-
 -----
 
 ####  Bani82  
 ##### 892#       发表于 2018-7-17 01:39
 
 
-
-
 还剩3个没收，还在第一章转悠...
-
-
-
-
-
 
 
 -----
@@ -17983,23 +11902,16 @@ BOSS初期不要去破防，先盗贼神官舞女各种BUFF刷到满
 ##### 893#       发表于 2018-7-17 04:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40355956&amp;ptid=1711545" target="_blank">叶雾 发表于 2018-7-17 00:41</a>
 
 酒馆旁边NPC守着的屋子里</blockquote>
 thx~~
 
 
-
-
-
-
-
 -----
 
 ####  falsethen  
 ##### 894#       发表于 2018-7-17 05:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40356050&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-17 01:05</a>
@@ -18011,25 +11923,13 @@ thx~~
 什么，只有满级蓄能才能出100倍？
 
 
-
-
-
-
-
 -----
 
 ####  djinn  
 ##### 895#       发表于 2018-7-17 06:06
 
 
-
-
 这游戏真tm好玩
-
-
-
-
-
 
 
 -----
@@ -18038,16 +11938,9 @@ thx~~
 ##### 896#       发表于 2018-7-17 07:13
 
 
-
-
 问下，打“赤眼”需要的预防眩晕的道具，是在哪几个迷宫里拿？
 
 需要盗贼开锁吗？
-
-
-
-
-
 
 
 -----
@@ -18056,9 +11949,7 @@ thx~~
 ##### 897#       发表于 2018-7-17 07:34
 
 
-
  本帖最后由 zmxlegend 于 2018-7-17 07:38 编辑 
-
 
 
 youtube上有人录得小剧场对话，错过得可以看一下日文版 ： [https://www.youtube.com/channel/UCEjHCuxO0XI004Es3GVZQQw/videos](https://www.youtube.com/channel/UCEjHCuxO0XI004Es3GVZQQw/videos)
@@ -18067,16 +11958,10 @@ youtube上有人录得小剧场对话，错过得可以看一下日文版 ： [h
 英文版：[https://www.youtube.com/channel/UCbgC4Br_wLFuPCzekJB84Qg](https://www.youtube.com/channel/UCbgC4Br_wLFuPCzekJB84Qg)
 
 
-
-
-
-
-
 -----
 
 ####  hashire.owl  
 ##### 898#       发表于 2018-7-17 07:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40356712&amp;ptid=1711545" target="_blank">zmxlegend 发表于 2018-7-17 07:34</a>
@@ -18086,16 +11971,10 @@ thx，这个小剧场好像是根据当前队伍人员来的，想凑齐有点�
 — from Xiaomi MI 6, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 899#       发表于 2018-7-17 07:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40356571&amp;ptid=1711545" target="_blank">falsethen 发表于 2018-07-17 05:52:57</a>
@@ -18104,17 +11983,10 @@ thx，这个小剧场好像是根据当前队伍人员来的，想凑齐有点�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 900#         楼主| 发表于 2018-7-17 08:25
-
-
 
 
 KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36小时了刚开始第二章……
@@ -18123,16 +11995,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 中前期跳舞根本停不下来，后期开始拉动低等级队员，三带一练级，研究各种职业主动被动技能互补、配合和不同的Build。JRPG玩出了Build驱动游戏的味道。现在我就担心游戏没有高等级迷宫了。
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 901#       发表于 2018-7-17 08:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40356938&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-17 08:25</a>
@@ -18148,16 +12014,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 希望出个锁等级的模式....
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 902#         楼主| 发表于 2018-7-17 09:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40357090&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-17 09:48</a>
@@ -18170,17 +12030,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 确实游戏爽点就在低等级挑战，等级压制了BOSS就没意思了。如果游戏有类似无限迷宫的设定就还好，现在看好像就只有一个隐藏迷宫。
 
 
-
-
-
-
-
 -----
 
 ####  西兹少爷  
 ##### 903#       发表于 2018-7-17 09:05
-
-
 
 
 学者配魔法师，打boss什么被动配置好点
@@ -18188,16 +12041,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 耗魔翻倍威力加强 sp消耗减半 属性熟练 弱点威力增强?
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 904#       发表于 2018-7-17 09:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40357219&amp;ptid=1711545" target="_blank">西兹少爷 发表于 2018-7-17 09:05</a>
@@ -18212,16 +12059,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 学者我觉得40级以后战斗力很废
 
 
-
-
-
-
-
 -----
 
 ####  Errey  
 ##### 905#       发表于 2018-7-17 09:29
-
 
 
 <blockquote>西兹少爷 发表于 2018-7-17 09:05
@@ -18231,33 +12072,19 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 塞勒斯主职学者注定了他只能上buff，没有那么多bp让他自己强化自己
 
 
-
-
-
-
-
 -----
 
 ####  faust123  
 ##### 906#       发表于 2018-7-17 09:40
 
 
-
-
 20级跑去50级图的迷宫开箱刷钱竟然玩出了辐射2出村走纳瓦罗的感觉
-
-
-
-
-
 
 
 -----
 
 ####  windtrack  
 ##### 907#       发表于 2018-7-17 09:48
-
-
 
 
 8个职业战斗力个人评价（没开新4前）
@@ -18298,18 +12125,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 战士：嗯？有这个职业？
 
 
-
-
-
-
-
-
 -----
 
 ####  Rarity5  
 ##### 908#       发表于 2018-7-17 09:51
-
-
 
 
 战士的最终技能伤害上限解禁有人带吗？挺好奇最高的单发伤害能打出多少 
@@ -18319,16 +12138,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 —— 来自 Sony H8324, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 909#       发表于 2018-7-17 09:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40357651&amp;ptid=1711545" target="_blank">Rarity5 发表于 2018-7-17 09:51</a>
@@ -18341,16 +12154,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 现在我比较期待的是火事场力+BP EATER的商人能打出多高的伤害
 
 
-
-
-
-
-
 -----
 
 ####  pei1019  
 ##### 910#       发表于 2018-7-17 09:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40356005&amp;ptid=1711545" target="_blank">叶雾 发表于 2018-7-17 00:51</a>
@@ -18359,16 +12166,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 你进城去找一个男性NPC对话，他是一个杂技团的，在招人组队。用神官/舞女招他入队，再带着他去和克里斯对话就行。
 
 
-
-
-
-
-
 -----
 
 ####  fantuanhtr  
 ##### 911#       发表于 2018-7-17 10:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40357651&amp;ptid=1711545" target="_blank">Rarity5 发表于 2018-7-17 09:51</a>
@@ -18381,31 +12182,19 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 不过肯定不算高了。
 
 
-
-
-
-
-
 -----
 
 ####  haru橙子  
 ##### 912#       发表于 2018-7-17 10:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">话说这后期或者通关能解锁更换主人公么
-
-
-
-
-
 
 
 -----
 
 ####  Rarity5  
 ##### 913#       发表于 2018-7-17 10:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40357744&amp;ptid=1711545" target="_blank">fantuanhtr 发表于 2018-7-17 10:00</a>
@@ -18417,16 +12206,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 —— 来自 Sony H8324, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  Rarity5  
 ##### 914#       发表于 2018-7-17 10:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40357847&amp;ptid=1711545" target="_blank">haru橙子 发表于 2018-7-17 10:13</a>
@@ -18436,16 +12219,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 —— 来自 Sony H8324, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  haru橙子  
 ##### 915#       发表于 2018-7-17 10:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40357879&amp;ptid=1711545" target="_blank">Rarity5 发表于 2018-7-17 10:15</a>
@@ -18457,25 +12234,13 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 哦哦 那太好了 
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 916#         楼主| 发表于 2018-7-17 10:16
 
 
-
-
 刚打完一个人的剧情，感觉也算麻雀虽小五脏俱全了。4个章节正好是起承转合，情节和转折比想象中多很多，短短几句台词和演出也把人物写得挺丰满。一些看似剧情很长的RPG其实也只是把这几个过程无限延长而已。就是章节结构有些重复了，如果能稍微改变一下结构就好了。
-
-
-
-
-
 
 
 -----
@@ -18484,23 +12249,15 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 917#       发表于 2018-7-17 10:17
 
 
-
-
 对了，有个问题，各种BOSS身上有没有能偷到装备的？
 
 之前都没怎么偷
-
-
-
-
-
 
 
 -----
 
 ####  xqterry  
 ##### 918#       发表于 2018-7-17 10:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40357908&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-17 10:17</a>
@@ -18510,32 +12267,19 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 只玩到第二章 目前偷boss都是高级消耗品 没有装备
 
 
-
-
-
-
-
 -----
 
 ####  katsura  
 ##### 919#       发表于 2018-7-17 10:46
 
 
-
-
 打完全部第一章，等级最高的才16级别，后面稀稀拉拉的8-9级的都有，到第二章之前该怎么练级比较快🤔
-
-
-
-
-
 
 
 -----
 
 ####  Errey  
 ##### 920#       发表于 2018-7-17 10:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40357874&amp;ptid=1711545" target="_blank">Rarity5 发表于 2018-7-17 10:14</a>
@@ -18546,16 +12290,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 神官被动4的奶爆才是真道理，药师奥义+药物恢复随便就能让队伍有5000血浪
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 921#       发表于 2018-7-17 10:53
-
 
 
  本帖最后由 windtrack 于 2018-7-17 10:55 编辑 
@@ -18569,16 +12307,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 可以去把商人老家最左边的老婆婆魅惑了，高几率全体大火炎魔法，一直到30多级伤害都极为可观
 
 
-
-
-
-
-
 -----
 
 ####  Errey  
 ##### 922#       发表于 2018-7-17 10:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40357623&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-17 09:48</a>
@@ -18592,16 +12324,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 一直都没怎么用过
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 923#       发表于 2018-7-17 11:17
-
 
 
  本帖最后由 hgcg-w 于 2018-7-17 11:19 编辑 
@@ -18617,15 +12343,9 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 感觉商人的价值就是，没钱的时候靠她赚钱，暴富的时候靠她输出…… ​​​​
 
 
-
 然后问下，打“赤眼”需要的预防眩晕的道具，是在哪几个迷宫里拿？
 
 需要盗贼开锁吗？
-
-
-
-
-
 
 
 -----
@@ -18634,21 +12354,13 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 924#         楼主| 发表于 2018-7-17 11:22
 
 
-
-
 回头看开头选谁的问题。开局选的人长期不能离队，所以主要看固有能力，学者预习，神官和舞女加势，商人捡钱，剑士防御，药师调和，盗贼开锁，猎人捕获。这里面预习和防御没什么用，加势互相替代，捕获耗时间且大多鸡肋，所以中前期长期不离队收益最大的是捡钱、开锁和调和，所以商人、药师、盗贼开局应该是最好的。如果是看攻略跑酷拿装备那盗贼开局就很差了，而前期刷钱收益又很大，所以商人开局可能是最佳的，最差的是剑士开局，神官舞女学者也都不需要长期在队。
-
-
-
-
-
 
 
 -----
 
 ####  haru橙子  
 ##### 925#       发表于 2018-7-17 11:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40357623&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-17 09:48</a>
@@ -18660,27 +12372,15 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 药师的2hit是什么
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 926#       发表于 2018-7-17 11:29
 
 
-
-
 药师的2HIT就是调和攻击，全属性2HIT，低等级伤害极低，但是破防效率和学者是一样的
 
 商人基本上你有10万就可以随便挥霍了，新四军四神之前的BOSS血量基本都是几万而已，吃神官的奥义，一次满BUFF满BP3万佣兵连续发动大部分BOSS都直接再见了
-
-
-
-
-
 
 
 -----
@@ -18689,15 +12389,9 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 927#       发表于 2018-7-17 11:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新四军的伤害也不太能超过钞能力者的
 
 光是堆BUFF的时间就比钞能力要多而且站一个伤害突破的位置，佣兵顶天3个，其他人要吃更多
-
-
-
-
-
 
 
 -----
@@ -18706,22 +12400,13 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 928#       发表于 2018-7-17 11:41
 
 
-
-
 神官奥义屌是指哪个技能厉害
-
-
-
-
-
 
 
 -----
 
 ####  windtrack  
 ##### 929#       发表于 2018-7-17 11:46
-
-
 
 
 神官的奥义是给一个角色上3回合的BUFF 使其技能可以连续发动
@@ -18733,17 +12418,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 具体可以看我在895楼的帖子
 
 
-
-
-
-
-
 -----
 
 ####  猫宁233  
 ##### 930#       发表于 2018-7-17 12:09
-
-
 
 
 带个18级贼哥想摸矿洞那把法杖 我是不是想多了？(已经sl了一小时<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -18751,16 +12429,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 —— 来自 Sony H8296, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 931#         楼主| 发表于 2018-7-17 12:13
-
 
 
 <blockquote>猫宁233 发表于 2018-7-17 13:09
@@ -18771,16 +12443,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 带上学者遇敌减半脸不太黑跑酷拿装备还是挺容易的，有条件可以带神官的逃跑几率上升。
 
 
-
-
-
-
-
 -----
 
 ####  pei1019  
 ##### 932#       发表于 2018-7-17 12:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40359262&amp;ptid=1711545" target="_blank">猫宁233 发表于 2018-7-17 12:09</a>
@@ -18794,16 +12460,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 爽如氪金<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫宁233  
 ##### 933#       发表于 2018-7-17 12:16
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">绝了 看来是脸黑了
@@ -18811,17 +12471,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 —— 来自 Sony H8296, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  Rarity5  
 ##### 934#       发表于 2018-7-17 12:34
-
-
 
 
 武器大师这个职业 总感觉略废啊 一堆技能都是单发单体 破盾不太方便 当输出吧又强制占用一个伤害上限解禁的被动 被动里四个有两个是废的
@@ -18831,16 +12484,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 —— 来自 Sony H8324, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 935#       发表于 2018-7-17 13:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40357725&amp;ptid=1711545" target="_blank">pei1019 发表于 2018-7-17 09:58</a>
@@ -18849,16 +12496,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 原来如此，感谢！
 
 
-
-
-
-
-
 -----
 
 ####  Rary  
 ##### 936#       发表于 2018-7-17 13:29
-
 
 
  本帖最后由 Rary 于 2018-7-17 14:40 编辑 
@@ -18866,18 +12507,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 学者那个白毛学生和修女长得好像
 
 
-
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 937#       发表于 2018-7-17 13:51
-
-
 
 
 27万<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">口口李们不要抛弃学者
@@ -18892,29 +12525,13 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 2018-7-17 13:51 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  kurama221  
 ##### 938#       发表于 2018-7-17 14:38
 
 
-
-
 楼上的朋友别贴结局图好吗，这啥说明学者的最终官配还是xxx吗，差点看成xxx，伤了我们颜狗粉的心了喂<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18923,21 +12540,13 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 939#       发表于 2018-7-17 14:42
 
 
-
-
 剧透反白啊喂
-
-
-
-
-
 
 
 -----
 
 ####  叶雾  
 ##### 940#       发表于 2018-7-17 14:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40357879&amp;ptid=1711545" target="_blank">Rarity5 发表于 2018-7-17 10:15</a>
@@ -18951,27 +12560,15 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 我主角选的是猎人，只打通了学者线，现在还不能换
 
 
-
-
-
-
-
 -----
 
 ####  猫宁233  
 ##### 941#       发表于 2018-7-17 14:50
 
 
-
-
 隐藏的四个职业怎么样啊？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony H8296, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
-
-
-
-
-
 
 
 -----
@@ -18980,21 +12577,13 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 942#         楼主| 发表于 2018-7-17 14:52
 
 
-
-
 可以先打剑士和神官的4章剧情，通关后有支线可以拿经验、JP加50%的饰品，方便练拖后腿的队友。
-
-
-
-
-
 
 
 -----
 
 ####  假山君  
 ##### 943#       发表于 2018-7-17 15:10
-
 
 
 <blockquote>猫宁233 发表于 2018-7-17 14:50
@@ -19005,16 +12594,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 强无敌
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 944#         楼主| 发表于 2018-7-17 15:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40360802&amp;ptid=1711545" target="_blank">叶雾 发表于 2018-7-17 15:45</a>
@@ -19025,16 +12608,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 都说是打了你开头选的那个主角的4章剧情就可以换了。我正好还没打所以没验证。
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 945#       发表于 2018-7-17 16:29
-
 
 
  本帖最后由 叶雾 于 2018-7-17 16:36 编辑 
@@ -19062,18 +12639,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 感觉有魔术师之后学者就可以下岗了233
 
 
-
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 946#       发表于 2018-7-17 16:35
-
-
 
 
 学者超强好吗，每到新地区只有学者能把所有情报问出来，野外跑酷顺便就把弱点全探出来
@@ -19082,16 +12651,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 947#       发表于 2018-7-17 16:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40361846&amp;ptid=1711545" target="_blank">叶雾 发表于 2018-7-17 16:29</a>
@@ -19104,16 +12667,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">其实舞娘奥义+神官奥义撑过禁BUFF那几回合之后就可以看魔大公自杀表演了
 
 
-
-
-
-
-
 -----
 
 ####  Errey  
 ##### 948#       发表于 2018-7-17 16:47
-
 
 
  本帖最后由 Errey 于 2018-7-17 16:53 编辑 
@@ -19125,16 +12682,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 要21*4个盾才能让他自杀，我记得我叠了12个盾之后，大公连着5次行动都只用普通攻击，这求生欲强得笑出声
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 949#         楼主| 发表于 2018-7-17 16:53
-
 
 
  本帖最后由 Lunamos 于 2018-7-17 17:56 编辑 
@@ -19144,25 +12695,13 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 虽然不能全体加但反射盾还是要至少保证两个人有，不然法强那一波必死。
 
 
-
-
-
-
-
 -----
 
 ####  reficul  
 ##### 950#       发表于 2018-7-17 17:02
 
 
-
-
 刚拿到舞娘，迫不及待学了不思议舞，在下水道里四连跳，第一跳我方全员濒死状态，全员HP1，第二跳我忘了，第三跳地面发生爆炸，全员受到20左右伤害，就这样团灭了，无敌
-
-
-
-
-
 
 
 -----
@@ -19171,16 +12710,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 951#       发表于 2018-7-17 17:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40360323&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-17 13:51</a>
 
 27万口口李们不要抛弃学者</blockquote>
 好强<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer"> 我最多只能叠到21w左右 用的商人+咒术师
-
-
-
-
-
 
 
 -----
@@ -19189,14 +12722,7 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 952#       发表于 2018-7-17 18:37
 
 
-
-
 干活的时候挂着连发手柄让猎人到处摸10星NPC，大猫大概20分钟磨死一个，然后发现剑老头也太强了吧，大猫打上去都是1<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">以后考虑让剑士被动物理魔法互换后用法术打他
-
-
-
-
-
 
 
 -----
@@ -19205,14 +12731,7 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 953#       发表于 2018-7-17 18:37
 
 
-
-
 马云很多卖欧版的，是不是买什么版本都可以选到日语界面？？
-
-
-
-
-
 
 
 -----
@@ -19221,14 +12740,7 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 954#       发表于 2018-7-17 19:00
 
 
-
-
 那再问一下，精灵石之类的道具哪里入手？
-
-
-
-
-
 
 
 -----
@@ -19237,23 +12749,16 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 955#       发表于 2018-7-17 19:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40363134&amp;ptid=1711545" target="_blank">hgcg-w 发表于 2018-07-17 19:00:18</a>
 那再问一下，精灵石之类的道具哪里入手？</blockquote>偷窃大量入手，元素怪身上都是魔石，中后期就是特大魔石了，盗贼被动一偷就是两个
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  培根芝士蛋堡XD  
 ##### 956#       发表于 2018-7-17 19:13
-
 
 
  本帖最后由 培根芝士蛋堡XD 于 2018-7-17 19:16 编辑 
@@ -19265,32 +12770,19 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 估计是发行商的问题，海外版八方旅人发行商都是任地狱，日版是se自己
 
 
-
-
-
-
-
 -----
 
 ####  培根芝士蛋堡XD  
 ##### 957#       发表于 2018-7-17 19:15
 
 
-
-
 问个问题，现在偷那些百分之三机率的物品sl得快吐了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，想直接买，听人说商人可以刷钱，有什么比较好的刷钱途径
-
-
-
-
-
 
 
 -----
 
 ####  叶雾  
 ##### 958#       发表于 2018-7-17 19:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40363246&amp;ptid=1711545" target="_blank">培根芝士蛋堡XD 发表于 2018-7-17 19:15</a>
@@ -19303,32 +12795,19 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 消耗道具和不强的装备都可以不用管
 
 
-
-
-
-
-
 -----
 
 ####  西兹少爷  
 ##### 959#       发表于 2018-7-17 19:52
 
 
-
-
 最高等级洞窟在哪里?50多级现在升的慢了
-
-
-
-
-
 
 
 -----
 
 ####  培根芝士蛋堡XD  
 ##### 960#       发表于 2018-7-17 20:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40363546&amp;ptid=1711545" target="_blank">叶雾 发表于 2018-7-17 19:49</a>
@@ -19341,16 +12820,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 那想前期就拿到的话怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">，感觉刷钱买也挺不错，有没有刷钱好方法
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 961#       发表于 2018-7-17 20:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40363581&amp;ptid=1711545" target="_blank">西兹少爷 发表于 2018-7-17 19:52</a>
@@ -19359,16 +12832,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 右上角的森林，58级，经验分布从500-1000不等，偶尔有肥仔猫
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 962#       发表于 2018-7-17 20:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40363652&amp;ptid=1711545" target="_blank">培根芝士蛋堡XD 发表于 2018-7-17 20:05</a>
@@ -19377,33 +12844,19 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 3%的好道具留足5次偷窃机会去刷不会太久的，要刷钱的话，商人跑步赚钱是根据步数和地图难度来算的，挑个40+以上的地图带上学者被动减少遇敌率在门口转转圈就行，反正进出有autosave，如果不小心遇敌被打死了读档就是，一个来回2000+没压力，还是很快的，你有空爬楼的话大概前10页还有具体点的讲解
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 963#       发表于 2018-7-17 20:15
 
 
-
-
 提问，地图左下和右上的两片空白，在8个人的剧情打穿前是不是不能进去？
-
-
-
-
-
 
 
 -----
 
 ####  叶雾  
 ##### 964#       发表于 2018-7-17 20:43
-
-
 
 
 看到通关动画了
@@ -19413,25 +12866,13 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 怎么办到的。。
 
 
-
-
-
-
-
 -----
 
 ####  蛋头电玩  
 ##### 965#       发表于 2018-7-17 21:56
 
 
-
-
 怎么还有乳摇的
-
-
-
-
-
 
 
 -----
@@ -19440,16 +12881,9 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 966#       发表于 2018-7-17 21:59
 
 
-
-
 请问魔法师怎么打啊 快sl吐了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony H8296, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
-
-
-
-
-
 
 
 -----
@@ -19458,23 +12892,15 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 967#       发表于 2018-7-17 22:01
 
 
-
-
 右上角集市的老婆婆会掉纪念金币，卖掉2w5一个
 
 用剑士去刷大概是两次出一个，一次2分钟，15分钟就能刷10w
-
-
-
-
-
 
 
 -----
 
 ####  Lunamos  
 ##### 968#         楼主| 发表于 2018-7-17 22:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40364478&amp;ptid=1711545" target="_blank">猫宁233 发表于 2018-7-17 22:59</a>
@@ -19486,25 +12912,13 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 舞女奥义全体化，神官给全员加魔法反射外壳就可以了。
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 969#         楼主| 发表于 2018-7-17 22:19
 
 
-
-
 问下打通真boss的，这游戏有没有二周目要素？
-
-
-
-
-
 
 
 -----
@@ -19513,13 +12927,7 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 970#       发表于 2018-7-17 22:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">拿到BP EATER之后发现对商人佣兵并无效果...最强商人计划破产
-
-
-
-
-
 
 
 -----
@@ -19528,14 +12936,7 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 971#       发表于 2018-7-17 22:52
 
 
-
-
 …………笑死了我，这每个人转职的点阵图居然还不一样，剑士转舞者的点阵真是……谢谢茄子了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19544,23 +12945,15 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 972#       发表于 2018-7-17 23:07
 
 
-
-
 舞女沙漠那里的bgm真的赞<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">爽死了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  Lunamos  
 ##### 973#         楼主| 发表于 2018-7-17 23:15
-
 
 
  本帖最后由 Lunamos 于 2018-7-18 00:29 编辑 
@@ -19570,32 +12963,19 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 之后的经验1.5倍道具也需要神官主线完成才行。这两个道具肯定越早拿到越好。
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 974#       发表于 2018-7-17 23:19
 
 
-
-
 话说顶级大猫除了出先制外有什么好的打法？几个弱点属性貌似都没多HIT技
-
-
-
-
-
 
 
 -----
 
 ####  Rarity5  
 ##### 975#       发表于 2018-7-17 23:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40365076&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-17 23:19</a>
@@ -19605,17 +12985,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 —— 来自 Sony H8324, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 976#       发表于 2018-7-17 23:55
-
-
 
 
 通关之后(?)酒馆里的3人小剧场意外地有趣
@@ -19625,16 +12998,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 神官商人学者3个人打牌<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  reficul  
 ##### 977#       发表于 2018-7-18 00:40
-
 
 
 <blockquote>meltingwhite 发表于 2018-7-17 22:01
@@ -19644,16 +13011,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 具体是哪个城市的集市？
 
 
-
-
-
-
-
 -----
 
 ####  meltingwhite  
 ##### 978#       发表于 2018-7-18 00:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40365635&amp;ptid=1711545" target="_blank">reficul 发表于 2018-7-18 00:40</a>
@@ -19662,16 +13023,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 グランポート 地图最右边那个
 
 
-
-
-
-
-
 -----
 
 ####  zmxlegend  
 ##### 979#       发表于 2018-7-18 00:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40365635&amp;ptid=1711545" target="_blank">reficul 发表于 2018-7-18 00:40</a>
@@ -19680,17 +13035,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 右边港口那个
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 980#       发表于 2018-7-18 01:25
-
-
 
 
 6只宝可梦抓齐了<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">需要箱子来放更多的，高等级抓成功率高但是使用次数好像降低了，明明demo里鸟和蛾子使用次数都是3的
@@ -19705,21 +13053,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 2018-7-18 01:12 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 981#       发表于 2018-7-18 02:18
-
 
 
  本帖最后由 LichEnd 于 2018-7-18 02:21 编辑 
@@ -19729,16 +13066,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 另外我發現職業洞里刷錢還蠻快的。有個巨人大怪偷一次1w7。
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 982#       发表于 2018-7-18 02:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40365951&amp;ptid=1711545" target="_blank">LichEnd 发表于 2018-7-18 02:18</a>
@@ -19749,16 +13080,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 没进行特殊构筑的话建议从法师开始打，公认最简单30+利用好舞娘大招和神官的反射就能过，等级高一点也可以正常打，其他的用法师做主输出就比较容易了
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 983#       发表于 2018-7-18 02:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40365976&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-18 02:34</a>
@@ -19767,25 +13092,13 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">舞娘副職業的大招還沒開出來，尷尬
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 984#       发表于 2018-7-18 03:36
 
 
-
-
 刷魔力剑的NPC完成支线任务后强度涨了三颗星还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真爱的力量
-
-
-
-
-
 
 
 -----
@@ -19794,16 +13107,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 985#       发表于 2018-7-18 04:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40365808&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-18 01:25</a>
 
 6只宝可梦抓齐了需要箱子来放更多的，高等级抓成功率高但是使用次数好像降低了，明明demo里鸟和蛾子 ...</blockquote>
 这些是不是打死了就没得抓了？
-
-
-
-
-
 
 
 -----
@@ -19812,14 +13119,7 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 986#       发表于 2018-7-18 04:46
 
 
-
-
 换成神官跳摩柯不思议舞感觉效果比舞娘好了不少，不知道是单纯的玄学还是有隐藏设定。。。
-
-
-
-
-
 
 
 -----
@@ -19828,16 +13128,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 987#       发表于 2018-7-18 06:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40365048&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-17 23:15</a>
 
 建议第一个推神官的主线4章。结束之后在河间地的セントブリッジ上流找之前的小孩，发现他们正在为爱情苦恼 ...</blockquote>
 请问经验1.5倍道具哪里拿
-
-
-
-
-
 
 
 -----
@@ -19846,15 +13140,9 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 988#       发表于 2018-7-18 06:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40366277&amp;ptid=1711545" target="_blank">zmxlegend 发表于 2018-7-18 04:46</a>
 换成神官跳摩柯不思议舞感觉效果比舞娘好了不少，不知道是单纯的玄学还是有隐藏设定。。。 ...</blockquote>
 玄学吧 我这学者舞男一晚上害我团灭四次
-
-
-
-
-
 
 
 -----
@@ -19863,16 +13151,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 989#       发表于 2018-7-18 06:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40366232&amp;ptid=1711545" target="_blank">叶雾 发表于 2018-07-18 04:11:42</a>
 这些是不是打死了就没得抓了？</blockquote>死了会便乘野怪在地图里徘徊，可再生消耗品
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -19881,23 +13163,16 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 990#       发表于 2018-7-18 06:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40365808&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-07-18 01:25:49</a>
 6只宝可梦抓齐了</blockquote>抓别的怪也见过同一种怪次数不一样的情况，不知道是随机还是根据什么条件来的
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 991#       发表于 2018-7-18 07:05
-
 
 
  本帖最后由 LichEnd 于 2018-7-18 07:07 编辑 
@@ -19907,16 +13182,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 貓咪真是好用，能抓一定要抓，2星招貓直接給我把自己的buff和boss的debuff給打滿了……比舞娘的刮刮樂穩定多了，神級buff機，比自己慢吞吞一個一個拍buff舒服多了。
 
 
-
-
-
-
-
 -----
 
 ####  假山君  
 ##### 992#       发表于 2018-7-18 07:08
-
 
 
 <blockquote>LichEnd 发表于 2018-7-18 07:05
@@ -19924,16 +13193,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 剑士被动4 伤害限界突破 最高99999
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 993#       发表于 2018-7-18 08:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40365951&amp;ptid=1711545" target="_blank">LichEnd 发表于 2018-07-18 02:18:15</a>
@@ -19946,16 +13209,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 994#         楼主| 发表于 2018-7-18 08:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40366347&amp;ptid=1711545" target="_blank">hgcg-w 发表于 2018-7-18 07:16</a>
@@ -19967,25 +13224,13 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 这个要求是神官和剑士的四章剧情都打完。JP 1.5倍那个只需要神官4章通关就可以。
 
 
-
-
-
-
-
 -----
 
 ####  prinny  
 ##### 995#       发表于 2018-7-18 08:49
 
 
-
-
 战士奥义还是厉害…随随便便2w 加个buff 最高打10星阿婆能打4w2
-
-
-
-
-
 
 
 -----
@@ -19994,15 +13239,9 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 996#       发表于 2018-7-18 09:02
 
 
-
 <blockquote>prinny 发表于 2018-7-18 08:49
 战士奥义还是厉害…随随便便2w 加个buff 最高打10星阿婆能打4w2</blockquote>
 剑士配豪武匠 蓄力后是剑士奥义厉害还是豪武匠奥义厉害？
-
-
-
-
-
 
 
 -----
@@ -20011,24 +13250,16 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 997#       发表于 2018-7-18 09:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40365808&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-07-18 01:25:49</a>
 6只宝可梦抓齐了</blockquote>想抓但是等级低的时候把那些打掉了，之后还会再刷出来吗？
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 998#       发表于 2018-7-18 09:17
-
-
 
 
 4个解锁我打了3个
@@ -20042,16 +13273,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 豪武将还没摸到什么简便打法，第一阶段还好，第二阶段奶量跟不上，攒不出爆发很快就崩了...
 
 
-
-
-
-
-
 -----
 
 ####  Errey  
 ##### 999#       发表于 2018-7-18 09:22
-
 
 
 <blockquote>windtrack 发表于 2018-7-18 09:17
@@ -20063,16 +13288,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 用商人符文大师不停刷紧急回避，搭个舞女全体化-星咏物反，可以使吗
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 1000#       发表于 2018-7-18 09:23
-
 
 
  本帖最后由 windtrack 于 2018-7-18 09:25 编辑 
@@ -20086,16 +13305,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 我觉得还是应该进入二阶段快速打进Break后一波带走比较现实，我现在开始给学者打JP了...
 
 
-
-
-
-
-
 -----
 
 ####  真红之闪电  
 ##### 1001#       发表于 2018-7-18 09:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40365808&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-18 01:25</a>
@@ -20104,16 +13317,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 贝希摩斯居然是口奶……
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 1002#       发表于 2018-7-18 09:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40367116&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-18 09:17</a>
@@ -20128,16 +13335,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 打法就是高输出破盾速杀，不然低血量会增加行动次数，攻击越来越猛
 
 
-
-
-
-
-
 -----
 
 ####  faust123  
 ##### 1003#       发表于 2018-7-18 09:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40366277&amp;ptid=1711545" target="_blank">zmxlegend 发表于 2018-7-18 04:46</a>
@@ -20146,16 +13347,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 要是隐藏设定就神了，圣娼女
 
 
-
-
-
-
-
 -----
 
 ####  假山君  
 ##### 1004#       发表于 2018-7-18 09:36
-
 
 
 <blockquote>redsouris 发表于 2018-7-18 09:26
@@ -20165,16 +13360,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 附魔也可以全体化吗？
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 1005#       发表于 2018-7-18 09:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40367284&amp;ptid=1711545" target="_blank">假山君 发表于 2018-7-18 09:36</a>
@@ -20183,16 +13372,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 符文第7个技能扩散符文，就是让只能对自身作用的技能全体化
 
 
-
-
-
-
-
 -----
 
 ####  pei1019  
 ##### 1006#       发表于 2018-7-18 09:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40366277&amp;ptid=1711545" target="_blank">zmxlegend 发表于 2018-7-18 04:46</a>
@@ -20205,17 +13388,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 话说这游戏太杀时间了，我白天上班根本不敢刷，一拿上就停不下来……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 1007#       发表于 2018-7-18 09:57
-
-
 
 
 其实不思议舞只要不同时出全体沉默+道具掉落还好
@@ -20223,16 +13399,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 即死还是挺难全员同时中的
 
 
-
-
-
-
-
 -----
 
 ####  prinny  
 ##### 1008#       发表于 2018-7-18 10:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40367168&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-18 09:23</a>
@@ -20243,16 +13413,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 让他所有行动都排在最后，自己打起来就比较主动，也很容易break
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 1009#       发表于 2018-7-18 10:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40367474&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-18 09:57</a>
@@ -20263,16 +13427,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 真正的灭团舞蹈是全员濒死之后接个地火/掉道具……
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 1010#       发表于 2018-7-18 10:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40367504&amp;ptid=1711545" target="_blank">prinny 发表于 2018-7-18 10:00</a>
@@ -20283,32 +13441,19 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 关键还是转阶段后要快速带走，每轮行动三次伤害太高了，如果给他迟缓让他连续发动那更没的救
 
 
-
-
-
-
-
 -----
 
 ####  pei1019  
 ##### 1011#       发表于 2018-7-18 10:36
 
 
-
-
 问下，我主职业的奥义和副职业的奥义会起冲突吗？我现在一个主职业的奥义都还没打开，有点尴尬……<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  windtrack  
 ##### 1012#       发表于 2018-7-18 10:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40367886&amp;ptid=1711545" target="_blank">pei1019 发表于 2018-7-18 10:36</a>
@@ -20319,16 +13464,10 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 当然部分职业的主职奥义没啥用，比如商人...
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 1013#       发表于 2018-7-18 11:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40367886&amp;ptid=1711545" target="_blank">pei1019 发表于 2018-07-18 10:36:07</a>
@@ -20337,26 +13476,15 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Errey  
 ##### 1014#       发表于 2018-7-18 11:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">盗贼的奥义跟其他八路的伤害型奥义层次完全不一样
 
 没有BUFF 9999，还没上突破跟什么乱七八糟的加成
-
-
-
-
-
 
 
 -----
@@ -20365,14 +13493,7 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 1015#       发表于 2018-7-18 11:25
 
 
-
-
 猎人的2个被动简直是破盾神器
-
-
-
-
-
 
 
 -----
@@ -20381,13 +13502,7 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 1016#       发表于 2018-7-18 11:32
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">練拖油瓶直接刮出一個jpx100，瞬間5w jp，啥都不缺了
-
-
-
-
-
 
 
 -----
@@ -20396,14 +13511,7 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 1017#         楼主| 发表于 2018-7-18 12:05
 
 
-
-
 有人让帮忙带才发现日亚美亚全部缺货，网上看了一圈老外都在抱怨缺货，出货量也太少了吧。
-
-
-
-
-
 
 
 -----
@@ -20412,16 +13520,9 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 1018#         楼主| 发表于 2018-7-18 12:07
 
 
-
-
 专八旅人的梗上Polygon了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 [https://www.polygon.com/2018/7/1 ... alogue-localization](https://www.polygon.com/2018/7/17/17582070/octopath-traveler-haanit-dialogue-localization)
-
-
-
-
-
 
 
 -----
@@ -20430,21 +13531,13 @@ KOTAKU那个36小时通了8人的Review现在看来的确有点太快了。我36
 ##### 1019#       发表于 2018-7-18 12:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">求教人物成长是固定的吗，职业和副职对成长有影响么？
-
-
-
-
-
 
 
 -----
 
 ####  叶雾  
 ##### 1020#       发表于 2018-7-18 12:43
-
-
 
 
 4个职业拿齐了
@@ -20463,27 +13556,15 @@ boss是森林里的大魔物+2个巨强力的杂兵
 我是猎人之前抓了一个全体剑攻击的たたかう＊３+商人30000块的4连击破7个盾，才勉强过了，任务奖励是一把带即死效果的剑
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 1021#       发表于 2018-7-18 12:56
 
 
-
-
 发现猫窝了，45+的冰龙之口
 
 进去第一波就是一窝猫<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20492,16 +13573,9 @@ boss是森林里的大魔物+2个巨强力的杂兵
 ##### 1022#       发表于 2018-7-18 14:11
 
 
-
-
 其实在拿到巫师职业后几乎所有boss都能otk了吧 叠几个buff上去怎么也有二十万的伤害 二阶段都不用考虑了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony H8324, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2
-
-
-
-
-
 
 
 -----
@@ -20510,16 +13584,10 @@ boss是森林里的大魔物+2个巨强力的杂兵
 ##### 1023#       发表于 2018-7-18 14:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40370163&amp;ptid=1711545" target="_blank">Rarity5 发表于 2018-7-18 14:11</a>
 
 其实在拿到巫师职业后几乎所有boss都能otk了吧 叠几个buff上去怎么也有二十万的伤害 二阶段都不用考虑了[f: ...</blockquote>
 很多BOSS并不会傻站着等你叠BUFF啊
-
-
-
-
-
 
 
 -----
@@ -20528,23 +13596,16 @@ boss是森林里的大魔物+2个巨强力的杂兵
 ##### 1024#       发表于 2018-7-18 14:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40370482&amp;ptid=1711545" target="_blank">redsouris 发表于 2018-7-18 14:43</a>
 
 很多BOSS并不会傻站着等你叠BUFF啊</blockquote>
 用防御排下行动顺序就是了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 1025#       发表于 2018-7-18 14:55
-
 
 
  本帖最后由 redsouris 于 2018-7-18 15:10 编辑 
@@ -20554,16 +13615,10 @@ boss是森林里的大魔物+2个巨强力的杂兵
 比如法爷那种开局给你个强化禁止5回合的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还有一些BOSS开局就直接AOE 3000+还带异常状态，不小心能灭团
 
 
-
-
-
-
-
 -----
 
 ####  Rarity5  
 ##### 1026#       发表于 2018-7-18 15:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40370599&amp;ptid=1711545" target="_blank">redsouris 发表于 2018-7-18 14:55</a>
@@ -20573,16 +13628,10 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 —— 来自 Sony H8324, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 1027#       发表于 2018-7-18 15:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40366694&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-18 08:26</a>
@@ -20594,32 +13643,19 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 通了神官妹子和戰士的4章，感覺戰士的最終boss血比神官的要厚不少。
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 1028#       发表于 2018-7-18 15:55
 
 
-
-
 说起来3w块的伤害是怎么算的？纯按等级来还是受属性加成的？
-
-
-
-
-
 
 
 -----
 
 ####  Errey  
 ##### 1029#       发表于 2018-7-18 15:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40371235&amp;ptid=1711545" target="_blank">LichEnd 发表于 2018-7-18 15:55</a>
@@ -20630,32 +13666,19 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 几级的神官跟古兵伤害都基本一样，不知道吃不吃历战啥的
 
 
-
-
-
-
-
 -----
 
 ####  则卷宝瓜  
 ##### 1030#       发表于 2018-7-18 16:02
 
 
-
-
 我是药师(神官)，舞女(随意)，神官(魔法师)，商人（随意），开场舞女给神官加属攻，商人给药师送bp，药师开圣火神，然后魔法师就9999*6狂轰boss就行了……女武神三四轮就倒了……
-
-
-
-
-
 
 
 -----
 
 ####  windtrack  
 ##### 1031#       发表于 2018-7-18 16:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40371235&amp;ptid=1711545" target="_blank">LichEnd 发表于 2018-7-18 15:55</a>
@@ -20666,17 +13689,10 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 绝大部分被动技能对这个技能无加成效果...
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 1032#       发表于 2018-7-18 16:40
-
-
 
 
 猎人宝宝也吃不到那些被动加成，目前solo还是完全比不上战士的，等有人发现一些妖孽能连段破防或单体高伤和多重debuff的话才会有起色，抓到的几个boss都是aoe<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">都懒得测试
@@ -20684,16 +13700,10 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  西兹少爷  
 ##### 1033#       发表于 2018-7-18 17:17
-
 
 
 <blockquote>redsouris 发表于 2018-7-18 12:56
@@ -20703,16 +13713,10 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 什么位置?
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 1034#       发表于 2018-7-18 17:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40372147&amp;ptid=1711545" target="_blank">西兹少爷 发表于 2018-7-18 17:17</a>
@@ -20723,25 +13727,13 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 碰到两次都是三猫集团……
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 1035#       发表于 2018-7-18 17:22
 
 
-
-
 话说大部分40+的地城BOSS是不是都是任务触发的，很多我进去逛了一圈都是只有2、3万血的BOSS或者根本没BOSS，完全不够打
-
-
-
-
-
 
 
 -----
@@ -20750,16 +13742,10 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 ##### 1036#         楼主| 发表于 2018-7-18 17:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40372210&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-18 18:22</a>
 
 话说大部分40+的地城BOSS是不是都是任务触发的，很多我进去逛了一圈都是只有2、3万血的BOSS或者根本没BOSS ...</blockquote>
 主线任务的地城不从主线是进不去的。能进去的（净化之森这种）要接一些支线才有事件。而这种支线大多又需要你某条主线全通才能接。
-
-
-
-
-
 
 
 -----
@@ -20768,24 +13754,16 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 ##### 1037#       发表于 2018-7-18 17:46
 
 
-
-
 这游戏难度数值怎么样
 有很明显的等级差要刷吗
 
 —— 来自 OnePlus ONEPLUS A3000, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2-play
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 1038#       发表于 2018-7-18 17:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40372519&amp;ptid=1711545" target="_blank">灰色的狐狸 发表于 2018-7-18 17:46</a>
@@ -20800,16 +13778,10 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 和敌人平级随意虐杀
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 1039#         楼主| 发表于 2018-7-18 17:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40372519&amp;ptid=1711545" target="_blank">灰色的狐狸 发表于 2018-7-18 18:46</a>
@@ -20823,17 +13795,10 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 先完成所有人的第一章，然后完成所有人的第二章这样螺旋前进基本不用刷级，因为每个人的章节有难度梯度。先易后难按部就班就行。想提高效率可以去越级刷怪拿装备，不过会破坏平衡。
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 1040#       发表于 2018-7-18 18:02
-
-
 
 
 感觉大部分职业平衡性做得还是不错的
@@ -20841,16 +13806,10 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 唯独魔术师太强了
 
 
-
-
-
-
-
 -----
 
 ####  灰色的狐狸  
 ##### 1041#       发表于 2018-7-18 18:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40372666&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-18 17:57</a>
@@ -20861,16 +13820,10 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 不知道什么情况
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 1042#       发表于 2018-7-18 18:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40372882&amp;ptid=1711545" target="_blank">灰色的狐狸 发表于 2018-07-18 18:20:39</a>
@@ -20881,16 +13834,10 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  lanyu_u  
 ##### 1043#       发表于 2018-7-18 18:55
-
 
 
 <blockquote>灰色的狐狸 发表于 2018-7-18 18:20
@@ -20900,16 +13847,10 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 多半是装备没跟上，这游戏装备的数值提升比等级明显的多，有的时候升了十几级属性没加多少，换件装备直接翻一倍，
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 1044#       发表于 2018-7-18 19:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40372882&amp;ptid=1711545" target="_blank">灰色的狐狸 发表于 2018-7-18 18:20</a>
@@ -20920,25 +13861,13 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 有些小怪有buff技能，如果装备不好的话吃一招还是很疼的
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 1045#       发表于 2018-7-18 19:31
 
 
-
-
 谁知道盗贼通关后历战短剑在哪买吗，我看攻略上波隠れの岩窟里没有啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还是我搞错了开启条件
-
-
-
-
-
 
 
 -----
@@ -20947,16 +13876,10 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 ##### 1046#         楼主| 发表于 2018-7-18 19:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40373507&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-18 20:31</a>
 
 谁知道盗贼通关后历战短剑在哪买吗，我看攻略上波隠れの岩窟里没有啊还是我搞错了开启条件 ...</blockquote>
 看了一下是药师通关后吧……
-
-
-
-
-
 
 
 -----
@@ -20965,14 +13888,7 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 ##### 1047#       发表于 2018-7-18 19:39
 
 
-
-
 打猫刷JP摇出个EXP100倍，全员50+直接变70+...然而JP根本不够
-
-
-
-
-
 
 
 -----
@@ -20981,14 +13897,7 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 ##### 1048#       发表于 2018-7-18 19:45
 
 
-
-
 豪武将简单打法：拿到魔剑士以后带法师 群体附魔风属性然后平砍加血降速神官奥义就好了，魔攻高的附加伤害都是满的。
-
-
-
-
-
 
 
 -----
@@ -20997,16 +13906,9 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 ##### 1049#       发表于 2018-7-18 20:48
 
 
-
-
 魔剑士的aoe带debuff状态真的恶心啊…全员平均47级 猎人副商人 商人副魔法师 药师副猎人 舞娘副神官  前面单体攻击无压力 一到aoe睡的睡 倒的倒 sl一下午了<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony H8296, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
-
-
-
-
-
 
 
 -----
@@ -21015,16 +13917,10 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 ##### 1050#       发表于 2018-7-18 21:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40374210&amp;ptid=1711545" target="_blank">猫宁233 发表于 2018-7-18 20:48</a>
 
 魔剑士的aoe带debuff状态真的恶心啊…全员平均47级 猎人副商人 商人副魔法师 药师副猎人 舞娘副神官  前面 ...</blockquote>
 有法师以后所有boss都可以第一次破盾就OTK带走，前两个回合buff和debuff上好以后再break就可以了
-
-
-
-
-
 
 
 -----
@@ -21033,23 +13929,15 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 ##### 1051#       发表于 2018-7-18 21:04
 
 
-
-
 八路军在卖光的情况之下卖了11万
 
 这游戏能冲20万了
-
-
-
-
-
 
 
 -----
 
 ####  则卷宝瓜  
 ##### 1052#       发表于 2018-7-18 21:10
-
 
 
 <blockquote>灰色的狐狸 发表于 2018-7-18 21:04
@@ -21059,16 +13947,10 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 之前我还觉得5万都挺悬…低估了，看来全球100万也不是不可能
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 1053#         楼主| 发表于 2018-7-18 21:12
-
 
 
  本帖最后由 Lunamos 于 2018-7-18 22:16 编辑 
@@ -21080,16 +13962,10 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 的确各种缺货，下一批还得将近10天才到。这次估计数字版销量不低。
 
 
-
-
-
-
-
 -----
 
 ####  kyolanaya  
 ##### 1054#       发表于 2018-7-18 21:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40374367&amp;ptid=1711545" target="_blank">灰色的狐狸 发表于 2018-7-18 21:04</a>
@@ -21100,25 +13976,13 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 <img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">还是中年人力量大啊，这次瞄准的就是这批人的啊
 
 
-
-
-
-
-
 -----
 
 ####  荀子的梦  
 ##### 1055#       发表于 2018-7-18 21:22
 
 
-
-
 以这个销量的话，SE可以考虑下重制FF5和FF6。。。
-
-
-
-
-
 
 
 -----
@@ -21127,16 +13991,10 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 ##### 1056#       发表于 2018-7-18 21:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40374571&amp;ptid=1711545" target="_blank">荀子的梦 发表于 2018-7-18 21:22</a>
 
 以这个销量的话，SE可以考虑下重制FF5和FF6。。。</blockquote>
 跪求SE放过FF6吧
-
-
-
-
-
 
 
 -----
@@ -21145,14 +14003,7 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 ##### 1057#         楼主| 发表于 2018-7-18 21:43
 
 
-
-
 如果真能用这个引擎重制FF1~6和沙加CT这种作品的话感觉还是很棒的。高清化Sprite，台词情节场景不用变，语音可加可不加，就把场景的纵深移动拍平就行了。主要是把SFC那个残废FOV提上来的感觉就很舒服和现代。
-
-
-
-
-
 
 
 -----
@@ -21161,16 +14012,10 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 ##### 1058#       发表于 2018-7-18 21:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40374810&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-18 21:43</a>
 
 如果真能用这个引擎重制FF1~6和沙加CT这种作品的话感觉还是很棒的。高清化Sprite，台词情节场景不用变，语 ...</blockquote>
 那样不会让SE更不思进取吗？
-
-
-
-
-
 
 
 -----
@@ -21179,16 +14024,10 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 ##### 1059#         楼主| 发表于 2018-7-18 21:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40374911&amp;ptid=1711545" target="_blank">Rary 发表于 2018-7-18 22:52</a>
 
 那样不会让SE更不思进取吗？</blockquote>
 也比现在圣剑传说这种残废重制或者CT这种纯原味手机版强多了。既然八方都有机会百万，正经出个FF6的HD2D引擎重制放全平台还不得卖爆。
-
-
-
-
-
 
 
 -----
@@ -21197,14 +14036,7 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 ##### 1060#       发表于 2018-7-18 21:59
 
 
-
-
 学者的学姐真惹人喜爱啊
-
-
-
-
-
 
 
 -----
@@ -21213,15 +14045,9 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 ##### 1061#       发表于 2018-7-18 22:05
 
 
-
 <blockquote>meltingwhite 发表于 2018-7-18 00:44
 グランポート 地图最右边那个</blockquote>
 谢谢，有个名字比较好确定
-
-
-
-
-
 
 
 -----
@@ -21230,16 +14056,9 @@ sl大法好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png"
 ##### 1062#         楼主| 发表于 2018-7-18 22:09
 
 
-
-
 DF竟然出了一期Octopath Traveler的分析：
 
 [https://www.youtube.com/watch?v=2jKOJsoVcro](https://www.youtube.com/watch?v=2jKOJsoVcro)
-
-
-
-
-
 
 
 -----
@@ -21248,16 +14067,9 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1063#       发表于 2018-7-18 22:10
 
 
-
-
 其实我觉得这种HD2D复古噱头的卖个一两次还可以
 
 多了也不行。。。。
-
-
-
-
-
 
 
 -----
@@ -21266,15 +14078,9 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1064#       发表于 2018-7-18 22:26
 
 
-
 <blockquote>windtrack 发表于 2018-7-18 17:22
 话说大部分40+的地城BOSS是不是都是任务触发的，很多我进去逛了一圈都是只有2、3万血的BOSS或者根本没BOSS ...</blockquote>
 流沙洞窟有个40级任务boss（就在他旁边的沙漠小镇接），一个人加一条大蛇…血量肯定不止两三万的……我先打的它再打的4个隐藏，我反而觉得这货真的贼强，一个睡眠风睡4个人伤1200血…比女武神魔剑士都容易翻车…
-
-
-
-
-
 
 
 -----
@@ -21283,16 +14089,9 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1065#       发表于 2018-7-18 22:30
 
 
-
-
 完了 卡魔剑士那了 看来是我魔法师jp不够没点满的缘故嘛…
 
 —— 来自 Sony H8296, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
-
-
-
-
-
 
 
 -----
@@ -21301,22 +14100,13 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1066#       发表于 2018-7-18 22:47
 
 
-
-
 我掌机模式时按键偶尔会无反应，拔掉joycon再插上又好了，就八方旅人有这问题，其他游戏都没这种情况，很神秘<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Renkonsai  
 ##### 1067#       发表于 2018-7-18 23:39
-
-
 
 
 贼哥怎么这么现金…
@@ -21331,17 +14121,10 @@ DF竟然出了一期Octopath Traveler的分析：
 贼：<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">去哪偷啊。
 
 
-
-
-
-
-
 -----
 
 ####  Bani82  
 ##### 1068#       发表于 2018-7-19 00:39
-
-
 
 
 猎人村子有个女人要去盗贼出生点找老公，怎么完成这个支线？
@@ -21349,16 +14132,10 @@ DF竟然出了一期Octopath Traveler的分析：
 我诱惑了那女人直接传送到盗贼出生点转了圈完全找不到他老公嘛
 
 
-
-
-
-
-
 -----
 
 ####  桐道悠  
 ##### 1069#       发表于 2018-7-19 00:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40376597&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-7-19 00:39</a>
@@ -21369,16 +14146,10 @@ DF竟然出了一期Octopath Traveler的分析：
 这种任务都是要找到那个人和他对话才会触发后续，一个一个尝试吧……
 
 
-
-
-
-
-
 -----
 
 ####  Bani82  
 ##### 1070#       发表于 2018-7-19 00:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40376611&amp;ptid=1711545" target="_blank">桐道悠 发表于 2018-7-19 00:41</a>
@@ -21392,16 +14163,10 @@ DF竟然出了一期Octopath Traveler的分析：
 我倒是想快点找全开副职业的几个祀，目前只找到了开学者的
 
 
-
-
-
-
-
 -----
 
 ####  桐道悠  
 ##### 1071#       发表于 2018-7-19 00:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40376630&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-7-19 00:44</a>
@@ -21417,16 +14182,10 @@ DF竟然出了一期Octopath Traveler的分析：
 神祠位置可以百度搜一下，基本职业的全神祠的走法有人总结了，都在20级左右的地方，不难过去的
 
 
-
-
-
-
-
 -----
 
 ####  Bani82  
 ##### 1072#       发表于 2018-7-19 00:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40376631&amp;ptid=1711545" target="_blank">鱼肉丸子 发表于 2018-7-19 00:44</a>
@@ -21437,16 +14196,10 @@ DF竟然出了一期Octopath Traveler的分析：
 打了一晚上就遇到一次猫...是不是城镇附近猫特别难出？
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 1073#       发表于 2018-7-19 03:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40376664&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-7-19 00:49</a>
@@ -21457,16 +14210,10 @@ DF竟然出了一期Octopath Traveler的分析：
 我在双子瀑布那边碰到好多几次猫，感觉这种隐藏山洞出猫率会高一点
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 1074#       发表于 2018-7-19 03:03
-
 
 
  本帖最后由 LichEnd 于 2018-7-19 03:04 编辑 
@@ -21474,16 +14221,10 @@ DF竟然出了一期Octopath Traveler的分析：
 <img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 1075#       发表于 2018-7-19 08:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40376597&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-07-19 00:39:08</a>
@@ -21494,16 +14235,10 @@ DF竟然出了一期Octopath Traveler的分析：
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  西兹少爷  
 ##### 1076#       发表于 2018-7-19 08:16
-
 
 
 <blockquote>桐道悠 发表于 2018-7-19 00:47
@@ -21515,25 +14250,13 @@ DF竟然出了一期Octopath Traveler的分析：
 很多支线都送属性药，怎么能说没好东西呢
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 1077#       发表于 2018-7-19 08:56
 
 
-
-
 神官/舞娘 学者/占星 体系成型后这游戏大部分BOSS活不过第二次Break了...
-
-
-
-
-
 
 
 -----
@@ -21542,14 +14265,7 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1078#       发表于 2018-7-19 09:15
 
 
-
-
 商人和学者第二章的那个Quarrycrest城为啥我死活找不到酒馆<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21558,15 +14274,9 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1079#       发表于 2018-7-19 09:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40378333&amp;ptid=1711545" target="_blank">chenyuhao467 发表于 2018-7-19 09:15</a>
 商人和学者第二章的那个Quarrycrest城为啥我死活找不到酒馆是我瞎了吗，求大佬帮助 ...</blockquote>
 好吧我错了，原来右边还有一半<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为自己的智商感到担忧
-
-
-
-
-
 
 
 -----
@@ -21575,16 +14285,10 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1080#       发表于 2018-7-19 09:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40374571&amp;ptid=1711545" target="_blank">荀子的梦 发表于 2018-7-18 21:22</a>
 
 以这个销量的话，SE可以考虑下重制FF5和FF6。。。</blockquote>
 虽然毫无关联……但是跪求SE妇科下北妹2啊，我买双份……<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21593,14 +14297,7 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1081#       发表于 2018-7-19 10:32
 
 
-
-
 昨天跳出100倍经验了 后面还有几个2倍 最后结算看起来是100 所以低倍率并不会覆盖高倍率 但也不会相乘叠加
-
-
-
-
-
 
 
 -----
@@ -21609,22 +14306,15 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1082#       发表于 2018-7-19 10:56
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">舞女的第四章小怪也太好刷了吧
 
 完全是王家陵墓的配置，怪多贼弱，刷舞爽到笑
-
-
-
-
-
 
 
 -----
 
 ####  LichEnd  
 ##### 1083#       发表于 2018-7-19 11:51
-
 
 
  本帖最后由 LichEnd 于 2018-7-19 12:15 编辑 
@@ -21637,25 +14327,13 @@ DF竟然出了一期Octopath Traveler的分析：
 读档看了眼，runeblade 19w血……怎么死这么快的……
 
 
-
-
-
-
-
 -----
 
 ####  Nez  
 ##### 1084#       发表于 2018-7-19 11:58
 
 
-
-
 货还没到手的只能手动麻将脸了，话说这游戏有必要刻意练级吗
-
-
-
-
-
 
 
 -----
@@ -21664,16 +14342,10 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1085#       发表于 2018-7-19 11:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40380238&amp;ptid=1711545" target="_blank">LichEnd 发表于 2018-7-19 11:51</a>
 
 只剩最后一个隐藏职业了。星咏一开始看着觉得主动技能很弱，配上舞娘以后发现卧槽各个神技能……run ...</blockquote>
 术士是17w,别的还没去，不过感觉不会比这个少。
-
-
-
-
-
 
 
 -----
@@ -21682,16 +14354,10 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1086#       发表于 2018-7-19 11:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40380238&amp;ptid=1711545" target="_blank">LichEnd 发表于 2018-7-19 11:51</a>
 
 只剩最后一个隐藏职业了。星咏一开始看着觉得主动技能很弱，配上舞娘以后发现卧槽各个神技能……run ...</blockquote>
 术士是17w,别的还没去，不过感觉不会比这个少。
-
-
-
-
-
 
 
 -----
@@ -21700,16 +14366,10 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1087#       发表于 2018-7-19 11:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40380238&amp;ptid=1711545" target="_blank">LichEnd 发表于 2018-7-19 11:51</a>
 
 只剩最后一个隐藏职业了。星咏一开始看着觉得主动技能很弱，配上舞娘以后发现卧槽各个神技能……run ...</blockquote>
 术士是17w,别的还没去，不过感觉不会比这个少。
-
-
-
-
-
 
 
 -----
@@ -21718,23 +14378,16 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1088#         楼主| 发表于 2018-7-19 12:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40380313&amp;ptid=1711545" target="_blank">Nez 发表于 2018-7-19 12:58</a>
 
 货还没到手的只能手动麻将脸了，话说这游戏有必要刻意练级吗</blockquote>
 如果速推主线有必要。如果不速推主线而是收完全人物跑全图打迷宫可能反而会希望等级不要那么快上去……
 
 
-
-
-
-
-
 -----
 
 ####  灰色的狐狸  
 ##### 1089#       发表于 2018-7-19 12:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40380313&amp;ptid=1711545" target="_blank">Nez 发表于 2018-7-19 11:58</a>
@@ -21745,17 +14398,10 @@ DF竟然出了一期Octopath Traveler的分析：
 搞得现在主线战斗比较无聊（
 
 
-
-
-
-
-
 -----
 
 ####  Rarity5  
 ##### 1090#       发表于 2018-7-19 12:22
-
-
 
 
 等级其实不太重要 开个魔术师职业 装备偷一套毕业的 jp管够就能横着走
@@ -21763,17 +14409,10 @@ DF竟然出了一期Octopath Traveler的分析：
 —— 来自 Sony H8324, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 1091#       发表于 2018-7-19 12:33
-
-
 
 
 阵容如果能拿到4个高级职业
@@ -21788,17 +14427,10 @@ DF竟然出了一期Octopath Traveler的分析：
 读档回头去刷板凳的等级和JP去<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫宁233  
 ##### 1092#       发表于 2018-7-19 12:57
-
-
 
 
 请问你们两波就能带走的 等级多少啊<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
@@ -21806,17 +14438,10 @@ DF竟然出了一期Octopath Traveler的分析：
 —— 来自 Sony H8296, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 1093#       发表于 2018-7-19 13:05
-
-
 
 
 通关后的支线给的全是好东西。。各种接近400攻击力的武器
@@ -21828,25 +14453,13 @@ DF竟然出了一期Octopath Traveler的分析：
 居然藏在波隐洞穴深处，身上还有把历战匕首
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 1094#       发表于 2018-7-19 13:54
 
 
-
-
 舞娘通关支线的NPC要带她去哪？说是要温暖的地方，沙漠三个城都问了一遍没人理
-
-
-
-
-
 
 
 -----
@@ -21855,24 +14468,16 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1095#       发表于 2018-7-19 13:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40381613&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-19 13:54</a>
 
 舞娘通关支线的NPC要带她去哪？说是要温暖的地方，沙漠三个城都问了一遍没人理 ...</blockquote>
 猎人第2章，师傅友妻那里
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 1096#       发表于 2018-7-19 13:56
-
-
 
 
 通关后支线的一个特点：
@@ -21882,25 +14487,13 @@ DF竟然出了一期Octopath Traveler的分析：
 所以不需要和之前就有的人对话
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 1097#       发表于 2018-7-19 13:58
 
 
-
-
 猎人通关后是不是没任务？我看师傅手里有把弓，直接就能买过来...
-
-
-
-
-
 
 
 -----
@@ -21909,23 +14502,16 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1098#       发表于 2018-7-19 14:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40381659&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-19 13:58</a>
 
 猎人通关后是不是没任务？我看师傅手里有把弓，直接就能买过来...</blockquote>
 有，在剑士二章的城
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 1099#       发表于 2018-7-19 14:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40381659&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-19 13:58</a>
@@ -21943,25 +14529,13 @@ DF竟然出了一期Octopath Traveler的分析：
 圣火骑士妹子在右上角的城给任务
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 1100#         楼主| 发表于 2018-7-19 14:43
 
 
-
-
 虽然很方便，不过瞬间移动到任何城市多少有点毁旅行感和空间感。回想起第一躺跑路开图的感觉还挺好。
-
-
-
-
-
 
 
 -----
@@ -21970,16 +14544,10 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1101#       发表于 2018-7-19 14:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40382101&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-19 14:43</a>
 
 虽然很方便，不过瞬间移动到任何城市多少有点毁旅行感和空间感。回想起第一躺跑路开图的感觉还挺好。 ...</blockquote>
 有些任务要满地图跑的，不能瞬移要跑死人
-
-
-
-
-
 
 
 -----
@@ -21988,16 +14556,10 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1102#         楼主| 发表于 2018-7-19 14:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40382199&amp;ptid=1711545" target="_blank">redsouris 发表于 2018-7-19 15:53</a>
 
 有些任务要满地图跑的，不能瞬移要跑死人</blockquote>
 多少付出点代价或者加点条件可能好点。之前宣传最多的“旅人”感太少了。那些任务也可以认为不是做了立即飞过去交的，而是如同旅者回家时带来的珍惜物事一般。
-
-
-
-
-
 
 
 -----
@@ -22006,15 +14568,9 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1103#         楼主| 发表于 2018-7-19 15:04
 
 
-
  本帖最后由 Lunamos 于 2018-7-19 16:06 编辑 
 
 或者最后给个稀有道具可以实现也行。现在太出戏，到最北边偷一个法杖，到最南边召一个随从，再到中间做个主线，这么好的地图空间感全无啊……
-
-
-
-
-
 
 
 -----
@@ -22023,16 +14579,9 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1104#       发表于 2018-7-19 15:19
 
 
-
-
 特蕾莎好像小包啊<img src="https://static.saraba1st.com/image/smiley/carton2017/229.png" referrerpolicy="no-referrer">
 
 —— 来自 samsung SM-G9350, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
-
-
-
-
-
 
 
 -----
@@ -22041,21 +14590,13 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1105#       发表于 2018-7-19 15:36
 
 
-
-
 其实可以像剧情里那样加个马车系统花钱到哪到哪。近的收费少远的收费多，探听情报可以近一步便宜。
-
-
-
-
-
 
 
 -----
 
 ####  Laie  
 ##### 1106#       发表于 2018-7-19 15:48
-
 
 
  本帖最后由 Laie 于 2018-7-19 15:51 编辑 
@@ -22068,25 +14609,13 @@ DF竟然出了一期Octopath Traveler的分析：
 这几天脑内了一个大概就是做个类似辐射1-2的随机生成的道中地图系统，每次快速移动都要简短过一次图。地图里加入随机事件，还有会反复出现的npc（类似在旅途中邂逅or城镇里的支线完成后触发更多的npc加入事件库），每次对话和背景文本会随着主线支线进度递进，甚至有些支线只能在这道中触发。再贪婪点还能低几率触发特殊限定场景，类似辐射2的cafe of broken dreams
 
 
-
-
-
-
-
 -----
 
 ####  是这样  
 ##### 1107#       发表于 2018-7-19 17:19
 
 
-
-
 不喜欢瞬移就给自己加限制不用呗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22095,14 +14624,7 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1108#       发表于 2018-7-19 17:55
 
 
-
-
 话说商人和剑士的第四章通了之后新的任务都在哪接，商人就接到了个最后第四章那城的一个任务。
-
-
-
-
-
 
 
 -----
@@ -22111,16 +14633,9 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1109#       发表于 2018-7-19 18:50
 
 
-
-
 全靠脚走其实也花不了多久，遇敌减半什么的一开分分钟就跑到了，想扮演感强一点的话完全可以自己走
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -22129,16 +14644,10 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1110#         楼主| 发表于 2018-7-19 18:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40383993&amp;ptid=1711545" target="_blank">sodah 发表于 2018-7-19 18:55</a>
 
 话说商人和剑士的第四章通了之后新的任务都在哪接，商人就接到了个最后第四章那城的一个任务。 ...</blockquote>
 有时候接不到任务是因为有些支线要多人通关才能接，比如剑士的饰品任务要神官也通了才能接。
-
-
-
-
-
 
 
 -----
@@ -22147,24 +14656,16 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1111#       发表于 2018-7-19 19:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40384450&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-19 18:58</a>
 
 有时候接不到任务是因为有些支线要多人通关才能接，比如剑士的饰品任务要神官也通了才能接。 ...</blockquote>
 哦，原来如此，谢谢。我现在把所有城都重新跑一次看有没新的NPC什么。
 
 
-
-
-
-
-
 -----
 
 ####  bwsusaga  
 ##### 1112#       发表于 2018-7-19 19:14
-
-
 
 
 手柄终于修好了，可以开始了。
@@ -22176,17 +14677,10 @@ DF竟然出了一期Octopath Traveler的分析：
 有这么不堪么？<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  xqterry  
 ##### 1113#       发表于 2018-7-19 19:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40384574&amp;ptid=1711545" target="_blank">bwsusaga 发表于 2018-7-19 19:14</a>
@@ -22197,16 +14691,10 @@ DF竟然出了一期Octopath Traveler的分析：
 挺好的没事 剑士大叔专长打家劫舍 早练早爽
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 1114#       发表于 2018-7-19 19:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40384574&amp;ptid=1711545" target="_blank">bwsusaga 发表于 2018-07-19 19:14:54</a>
@@ -22221,16 +14709,10 @@ DF竟然出了一期Octopath Traveler的分析：
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 1115#       发表于 2018-7-19 19:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40384574&amp;ptid=1711545" target="_blank">bwsusaga 发表于 2018-7-19 19:14</a>
@@ -22242,16 +14724,10 @@ DF竟然出了一期Octopath Traveler的分析：
 主要剑士这个角色打BOSS完全没用，不过也不是不能用，兼职个猎人和猎人小姐姐就没啥大区别了
 
 
-
-
-
-
-
 -----
 
 ####  ルティナ  
 ##### 1116#       发表于 2018-7-19 19:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40384670&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-19 19:25</a>
@@ -22261,32 +14737,19 @@ DF竟然出了一期Octopath Traveler的分析：
 —— 来自 Xiaomi MI 5s, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  Laie  
 ##### 1117#       发表于 2018-7-19 19:46
 
 
-
-
 通关后这把所有bgm重新编曲串烧演奏一遍挺好听的，希望以后能开演奏会<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Lunamos  
 ##### 1118#         楼主| 发表于 2018-7-19 19:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40384574&amp;ptid=1711545" target="_blank">bwsusaga 发表于 2018-7-19 20:14</a>
@@ -22298,16 +14761,10 @@ DF竟然出了一期Octopath Traveler的分析：
 我觉得剑士+神官先通关是较优的，因为这两个通关以后能拿到经验1.5倍和JP1.5倍的道具，加快其他队友的成长效率。
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 1119#       发表于 2018-7-19 20:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40384670&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-07-19 19:25:38</a>
@@ -22316,16 +14773,10 @@ DF竟然出了一期Octopath Traveler的分析：
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 1120#       发表于 2018-7-19 22:22
-
 
 
  本帖最后由 LichEnd 于 2018-7-19 22:30 编辑 
@@ -22335,16 +14786,10 @@ DF竟然出了一期Octopath Traveler的分析：
 剑士基础属性高，我单挑就一个攻击up，一刀大招也能有个4w，带上伤害build一刀伤害翻倍感觉不是问题，神官再给个大招，感觉跟法爷输出差距其实也不大。目前在研究全妹子的职业搭配怎么搞。先试试猎人兼武器大师，舞娘兼法师，神官兼星咏，商人兼魔剑好了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 1121#       发表于 2018-7-19 22:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40386077&amp;ptid=1711545" target="_blank">LichEnd 发表于 2018-7-19 22:22</a>
@@ -22355,16 +14800,10 @@ DF竟然出了一期Octopath Traveler的分析：
 法爷可以一发2万多*3还能打两发
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 1122#       发表于 2018-7-19 22:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40386119&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-19 22:27</a>
@@ -22375,17 +14814,10 @@ DF竟然出了一期Octopath Traveler的分析：
 <img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">。不过看看搭配高级职业伤害效果如何吧。
 
 
-
-
-
-
-
 -----
 
 ####  Rarity5  
 ##### 1123#       发表于 2018-7-19 23:12
-
-
 
 
 一个队伍顶多两个新四军就足够了吧 剩下的我更倾向于放个商人/神官/学者 灵活性高很多
@@ -22393,16 +14825,10 @@ DF竟然出了一期Octopath Traveler的分析：
 —— 来自 Sony H8324, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 1124#       发表于 2018-7-19 23:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40386504&amp;ptid=1711545" target="_blank">Rarity5 发表于 2018-7-19 23:12</a>
@@ -22418,17 +14844,10 @@ DF竟然出了一期Octopath Traveler的分析：
 目前看来商人兼符文剑貌似也还不错，一个符文附魔就能提供全体闪避，回血回蓝之类的辅助效果
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 1125#       发表于 2018-7-19 23:59
-
-
 
 
 输出位基本固定学者兼魔术，跑图还是BOSS换一下被动就行
@@ -22440,17 +14859,10 @@ DF竟然出了一期Octopath Traveler的分析：
 最后一个位置我倾向于带舞女，这样神官可以兼职个星咏，舞女刷全体化之后星咏非常厉害，然后兼个武艺用来破防
 
 
-
-
-
-
-
-
 -----
 
 ####  hashire.owl  
 ##### 1126#       发表于 2018-7-20 01:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40386814&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-19 23:59</a>
@@ -22464,17 +14876,10 @@ DF竟然出了一期Octopath Traveler的分析：
 — from Xiaomi MI 6, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  猫宁233  
 ##### 1127#       发表于 2018-7-20 01:25
-
-
 
 
 打扰了 救救孩子吧！死活打不过魔剑士<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer"> 我的魔法师加上神官奥义伤害也就9000+*3*2也带了突破伤害被动 那么是我等级依旧不够还是什么？还需要带药师的抗性被动吗？
@@ -22482,16 +14887,10 @@ DF竟然出了一期Octopath Traveler的分析：
 —— 来自 Sony H8296, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 1128#       发表于 2018-7-20 01:51
-
 
 
  本帖最后由 LichEnd 于 2018-7-20 02:20 编辑 
@@ -22504,17 +14903,10 @@ DF竟然出了一期Octopath Traveler的分析：
 我是猎人兼商人，商人兼舞娘，神官兼星咏，舞娘兼魔法师。开局商人喂2豆舞娘，舞娘大招，星咏双防buff，剩下一个人看情况补血或者喂豆子。第二轮神官开大给魔法师，就可以开始表演了。大概平均50级左右。个人感觉，舞娘兼神官/商人，商人兼舞娘/药师/符文剑/星咏，神官兼星咏/舞女，带个输出位应该是比较理想的配置了。用下来感觉舞娘实际不太适合当输出位，因为太快了，她动完才轮到别人拍buff，防御改顺序的话，又浪费其他人的buff轮数
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 1129#       发表于 2018-7-20 03:02
-
-
 
 
 打完隐藏boss了，游戏时间90来小时
@@ -22529,13 +14921,7 @@ DF竟然出了一期Octopath Traveler的分析：
 把支线做完后就只有在地图上闲逛了
 
 
-
 顺便楼上那么多讨论配置的，到最后一战全得颠覆。。一点用没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22544,24 +14930,16 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1130#       发表于 2018-7-20 03:11
 
 
-
-
 通了药师线，被感动哭了两次…情感转折的地方真的太棒了。
 
 
 第二章在海边哭的场景让我想起了双恋A…第四章下定决心的一幕也非常感人。
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 1131#       发表于 2018-7-20 03:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40387493&amp;ptid=1711545" target="_blank">叶雾 发表于 2018-7-20 03:02</a>
@@ -22572,16 +14950,10 @@ DF竟然出了一期Octopath Traveler的分析：
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">还在清任务中
 
 
-
-
-
-
-
 -----
 
 ####  blackwhalebest  
 ##### 1132#       发表于 2018-7-20 03:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40387493&amp;ptid=1711545" target="_blank">叶雾 发表于 2018-7-20 05:02</a>
@@ -22591,16 +14963,10 @@ DF竟然出了一期Octopath Traveler的分析：
 十连战8人纷纷上场么？打完没事干有点不爽
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 1133#       发表于 2018-7-20 06:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40387262&amp;ptid=1711545" target="_blank">猫宁233 发表于 2018-07-20 01:25:45</a>
@@ -22609,16 +14975,10 @@ DF竟然出了一期Octopath Traveler的分析：
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  灰色的狐狸  
 ##### 1134#       发表于 2018-7-20 07:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40387493&amp;ptid=1711545" target="_blank">叶雾 发表于 2018-7-20 03:02</a>
@@ -22629,32 +14989,19 @@ DF竟然出了一期Octopath Traveler的分析：
 打得这么快吗卧槽<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kurama221  
 ##### 1135#       发表于 2018-7-20 09:46
 
 
-
-
 什么ls说药师线有这么感人吗，我有点好奇了。刚通了第一个第二章角色舞女，好短啊感觉随随便便就打死了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  kurama221  
 ##### 1136#       发表于 2018-7-20 09:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40376630&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-7-19 00:44</a>
@@ -22666,16 +15013,10 @@ DF竟然出了一期Octopath Traveler的分析：
 旁友，你做出来了吗，这个要通了盗贼第一章她老公才会出现的，在上层不是下层
 
 
-
-
-
-
-
 -----
 
 ####  Errey  
 ##### 1137#       发表于 2018-7-20 10:12
-
 
 
  本帖最后由 Errey 于 2018-7-20 10:41 编辑 
@@ -22689,16 +15030,10 @@ DF竟然出了一期Octopath Traveler的分析：
 说白了二回也就是3连法术*2，打6下，武道家奥义也是6下的，其实好像没有本质差距（？）
 
 
-
-
-
-
-
 -----
 
 ####  Bani82  
 ##### 1138#       发表于 2018-7-20 10:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40388871&amp;ptid=1711545" target="_blank">kurama221 发表于 2018-7-20 09:51</a>
@@ -22707,32 +15042,19 @@ DF竟然出了一期Octopath Traveler的分析：
 出了，不过我已经暂时放弃一堆支线了，实在太多了
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 1139#       发表于 2018-7-20 10:39
 
 
-
-
 舞女线的BOSS脑回路就是个神经病，看得我莫名其妙
-
-
-
-
-
 
 
 -----
 
 ####  hashire.owl  
 ##### 1140#       发表于 2018-7-20 10:49
-
 
 
  本帖最后由 hashire.owl 于 2018-7-20 10:50 编辑 
@@ -22743,32 +15065,20 @@ DF竟然出了一期Octopath Traveler的分析：
 — from Xiaomi MI 6, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  Errey  
 ##### 1141#       发表于 2018-7-20 11:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">神官线的剧情
 姬友作为神官也太不及格了，幸好没去传火
-
-
-
-
-
 
 
 -----
 
 ####  Lunamos  
 ##### 1142#         楼主| 发表于 2018-7-20 11:21
-
 
 
  本帖最后由 Lunamos 于 2018-7-20 12:25 编辑 
@@ -22778,17 +15088,10 @@ DF竟然出了一期Octopath Traveler的分析：
 游戏这方面的铺垫还是挺好的。一章与父亲的情感沟通的勾勒，得知父亲生病之后突然间的无助感，无一不在着力渲染莉亚娜对父亲的依恋和依仗，引导玩家觉得矛盾可能会出在这里。后来希望父亲复生的黑化变得理所当然。同时以奥菲莉亚的身世为烘托，也使得奥菲莉亚作为解铃人非常合情合理。剧情随短但有几次转折，设定和人物都非常合理，小而精彩。
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 1143#       发表于 2018-7-20 11:25
-
-
 
 
 目前通了猎人 神官和舞娘
@@ -22798,27 +15101,15 @@ DF竟然出了一期Octopath Traveler的分析：
 麻雀虽小五脏俱全，虽然都是小故事，但完成度都很高，很完整
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 1144#       发表于 2018-7-20 11:26
 
 
-
-
 学者四章boss只会物攻，符文商人滑步闪避到死<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">爽翻
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -22827,23 +15118,15 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1145#       发表于 2018-7-20 11:29
 
 
-
-
 舞娘虽然boss太神经病剧情也有bug但是最终章演出是不错的。
 
 我打完了就觉得光剧情是商人的最棒，纯正正能量也没有神官线这种大姐姐傻白甜的感觉。
-
-
-
-
-
 
 
 -----
 
 ####  Errey  
 ##### 1146#       发表于 2018-7-20 11:38
-
 
 
  本帖最后由 Errey 于 2018-7-20 11:51 编辑 
@@ -22853,16 +15136,10 @@ DF竟然出了一期Octopath Traveler的分析：
 铺垫是够的，可惜的是姬友的负面形象堆的太过分了，标准工具人款式，神官身份是为了圆圣火的使用条件设定，但又令人质疑姬友缺乏作为神官的素养，嘛，小缺点
 
 
-
-
-
-
-
 -----
 
 ####  hashire.owl  
 ##### 1147#       发表于 2018-7-20 12:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40390052&amp;ptid=1711545" target="_blank">fantuanhtr 发表于 2018-7-20 11:29</a>
@@ -22874,17 +15151,10 @@ DF竟然出了一期Octopath Traveler的分析：
 — from Xiaomi MI 6, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  Sliverstrike  
 ##### 1148#       发表于 2018-7-20 12:35
-
-
 
 
 我已经总结出这游戏打boss的终极套路了
@@ -22909,32 +15179,19 @@ DF竟然出了一期Octopath Traveler的分析：
 而以上4个条件满足难度极低，甚至个别队友不满足还能把辅助技能加入输出循环来凑
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 1149#         楼主| 发表于 2018-7-20 13:08
 
 
-
-
 纯吐槽，没事上B站看女流玩这游戏差点给气死。玩了20个小时了不知道break系统是干嘛的，所有战斗起手必满豆砍，比boss高十几级，偷了一堆好装备带着10星老太结果被boss虐杀。<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Lunamos  
 ##### 1150#         楼主| 发表于 2018-7-20 13:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40390805&amp;ptid=1711545" target="_blank">Sliverstrike 发表于 2018-7-20 13:35</a>
@@ -22947,16 +15204,10 @@ DF竟然出了一期Octopath Traveler的分析：
 只靠神官和物品耗时间也太长了，有时候几个回合也缓不过来。其实第一条和第四条没那么容易满足，如果第一条满足了的话一般来说等级也够build一些更效率的打法了。
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 1151#         楼主| 发表于 2018-7-20 13:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40391082&amp;ptid=1711545" target="_blank">鱼肉丸子 发表于 2018-7-20 14:10</a>
@@ -22965,16 +15216,10 @@ DF竟然出了一期Octopath Traveler的分析：
 50级够了吧，我魔大公是三十多级打的，只要三连AOE不死就行。先打打魔大公和星占师试试。
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 1152#       发表于 2018-7-20 14:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40391082&amp;ptid=1711545" target="_blank">鱼肉丸子 发表于 2018-7-20 13:10</a>
@@ -22983,16 +15228,10 @@ DF竟然出了一期Octopath Traveler的分析：
 去试试就知道，主要还是看技能搭配和装备，等级影响不大
 
 
-
-
-
-
-
 -----
 
 ####  Sliverstrike  
 ##### 1153#       发表于 2018-7-20 14:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40391139&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-20 13:17</a>
@@ -23005,16 +15244,10 @@ DF竟然出了一期Octopath Traveler的分析：
 何必找虐…
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 1154#       发表于 2018-7-20 14:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40390805&amp;ptid=1711545" target="_blank">Sliverstrike 发表于 2018-7-20 12:35</a>
@@ -23029,32 +15262,19 @@ DF竟然出了一期Octopath Traveler的分析：
 还带着几个血量数万伤害惊人的小弟，小弟弱点和BOSS不同，盾也是一大堆
 
 
-
-
-
-
-
 -----
 
 ####  kurama221  
 ##### 1155#       发表于 2018-7-20 14:43
 
 
-
-
 玩了商人第二章了，果然王道感觉我喜欢，还有个可爱小哥哥<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  LichEnd  
 ##### 1156#       发表于 2018-7-20 14:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40389119&amp;ptid=1711545" target="_blank">Errey 发表于 2018-7-20 10:12</a>
@@ -23065,16 +15285,10 @@ DF竟然出了一期Octopath Traveler的分析：
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新四军有3个是魔法职业就能 看出物理职业混的有多惨了
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 1157#       发表于 2018-7-20 14:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40391878&amp;ptid=1711545" target="_blank">Sliverstrike 发表于 2018-7-20 14:36</a>
@@ -23087,16 +15301,10 @@ DF竟然出了一期Octopath Traveler的分析：
 打到后面，很多boss都会狂暴，每次破盾恢复，盾的hit数都会上升，血少了以后3动甚至4动……还有招小弟锁弱点什么的
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 1158#       发表于 2018-7-20 15:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40392047&amp;ptid=1711545" target="_blank">LichEnd 发表于 2018-7-20 14:53</a>
@@ -23105,16 +15313,10 @@ DF竟然出了一期Octopath Traveler的分析：
 但是，国外友人把盗贼的奥义堆出99999了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 1159#       发表于 2018-7-20 15:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40392267&amp;ptid=1711545" target="_blank">redsouris 发表于 2018-07-20 15:16:16</a>
@@ -23123,32 +15325,19 @@ DF竟然出了一期Octopath Traveler的分析：
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Bani82  
 ##### 1160#       发表于 2018-7-20 15:53
 
 
-
-
 满级是多少来着？99么？
-
-
-
-
-
 
 
 -----
 
 ####  redsouris  
 ##### 1161#       发表于 2018-7-20 16:04
-
 
 
  本帖最后由 redsouris 于 2018-7-20 16:05 编辑 
@@ -23161,25 +15350,13 @@ DF竟然出了一期Octopath Traveler的分析：
 大概就是吃速度果子，堆极限速度，加速度BUFF，降防之类我也只看到图，大概记得速度有900+了
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 1162#       发表于 2018-7-20 16:29
 
 
-
-
 盗贼我打出过单发50000+的伤害，所以最后转了猎人当输出手用
-
-
-
-
-
 
 
 -----
@@ -23188,15 +15365,9 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1163#       发表于 2018-7-20 18:08
 
 
-
 <blockquote>redsouris 发表于 2018-7-20 15:16
 但是，国外友人把盗贼的奥义堆出99999了</blockquote>
 盗贼奥义99999根本就不是事，但是跟法师个个2~3w*6，怎么比
-
-
-
-
-
 
 
 -----
@@ -23205,16 +15376,9 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1164#       发表于 2018-7-20 18:12
 
 
-
-
 商人娘这开局也太.....蠢了吧.......
 
 万一门口的海盗硬要商人娘喝一口，这游戏怕是要dlsite见了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23223,23 +15387,16 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1165#       发表于 2018-7-20 18:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40394161&amp;ptid=1711545" target="_blank">Errey 发表于 2018-7-20 18:08</a>
 
 盗贼奥义99999根本就不是事，但是跟法师个个2~3w*6，怎么比</blockquote>
 为啥要比。。本来就需要不止1个DPS
 
 
-
-
-
-
-
 -----
 
 ####  toutun  
 ##### 1166#       发表于 2018-7-20 19:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40394202&amp;ptid=1711545" target="_blank">亚可（本人） 发表于 2018-7-20 18:12</a>
@@ -23250,17 +15407,10 @@ DF竟然出了一期Octopath Traveler的分析：
 因为那两个海盗就是两个逗比……后面还有他们的戏份，到时候就明白了…
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 1167#       发表于 2018-7-20 21:15
-
-
 
 
 剧情方面，是不是
@@ -23269,16 +15419,10 @@ DF竟然出了一期Octopath Traveler的分析：
 对吗？
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 1168#       发表于 2018-7-20 21:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40394161&amp;ptid=1711545" target="_blank">Errey 发表于 2018-7-20 18:08</a>
@@ -23287,16 +15431,10 @@ DF竟然出了一期Octopath Traveler的分析：
 说起来，新四军的武器大师职业，有个扔武器的大招，你们有没有人试过一轮能砸多少？伤害高的话扔武器x2好像也不是不可以
 
 
-
-
-
-
-
 -----
 
 ####  噂の船  
 ##### 1169#       发表于 2018-7-20 21:44
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">这游戏真tm有意思 盗贼门前三条狗都有背景介绍
@@ -23304,16 +15442,10 @@ DF竟然出了一期Octopath Traveler的分析：
 还有那几个看门的 写着新兵 强度7 装🐖吗老哥
 
 
-
-
-
-
-
 -----
 
 ####  xqterry  
 ##### 1170#       发表于 2018-7-20 21:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40395912&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-7-20 21:44</a>
@@ -23323,25 +15455,13 @@ DF竟然出了一期Octopath Traveler的分析：
 名校毕业生新兵 没毛病
 
 
-
-
-
-
-
 -----
 
 ####  pk_man  
 ##### 1171#       发表于 2018-7-20 23:50
 
 
-
-
 好不容易抽时间打开游戏，发现重来过一次的demo存档不能继承，又花了3个小时打会原进度<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">开个局9小时亏大了……
-
-
-
-
-
 
 
 -----
@@ -23350,14 +15470,7 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1172#       发表于 2018-7-21 00:02
 
 
-
-
 这游戏是不是很难，我选的舞娘开局感觉舞娘前期太难了，刚遇到战士，现在打不过土匪头子…<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23366,16 +15479,10 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1173#         楼主| 发表于 2018-7-21 00:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40397017&amp;ptid=1711545" target="_blank">Terminal 发表于 2018-7-21 01:02</a>
 
 这游戏是不是很难，我选的舞娘开局感觉舞娘前期太难了，刚遇到战士，现在打不过土匪头子… ...</blockquote>
 游戏不算难，但多少要动点脑子，并且利用好break系统。舞娘的话可以利用诱惑招募强力NPC帮忙。
-
-
-
-
-
 
 
 -----
@@ -23384,15 +15491,9 @@ DF竟然出了一期Octopath Traveler的分析：
 ##### 1174#       发表于 2018-7-21 00:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40397106&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-21 00:14</a>
 游戏不算难，但多少要动点脑子，并且利用好break系统。舞娘的话可以利用诱惑招募强力NPC帮忙。 ...</blockquote>
 break我一直在用啊，对面三个人血厚攻高弱点又不一样，还不是得用脸接
-
-
-
-
-
 
 
 -----
@@ -23401,16 +15502,10 @@ break我一直在用啊，对面三个人血厚攻高弱点又不一样，还不
 ##### 1175#       发表于 2018-7-21 01:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40391082&amp;ptid=1711545" target="_blank">鱼肉丸子 发表于 2018-7-20 13:10</a>
 
 剧情第二章全员50级 能做点四隐藏职业么？</blockquote>
 今天全员42-45级之间把四个隐藏职业都打了，对策好就不难
-
-
-
-
-
 
 
 -----
@@ -23419,16 +15514,9 @@ break我一直在用啊，对面三个人血厚攻高弱点又不一样，还不
 ##### 1176#       发表于 2018-7-21 02:15
 
 
-
-
 全队平均36级把魔大公过了。全队除了给他破盾其他时间就默默的看着他把自己弹死。一旦断反射盾5hit就灭队。真特么赤鸡
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -23437,15 +15525,9 @@ break我一直在用啊，对面三个人血厚攻高弱点又不一样，还不
 ##### 1177#       发表于 2018-7-21 02:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40389802&amp;ptid=1711545" target="_blank">Errey 发表于 2018-07-20 11:08:54</a></blockquote>最后一章剧情脑补了四章小黄本<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -23454,23 +15536,15 @@ break我一直在用啊，对面三个人血厚攻高弱点又不一样，还不
 ##### 1178#       发表于 2018-7-21 04:01
 
 
-
-
 享受到等级碾压的快感了，37级领队去打2X的任务...BOSS物攻基本全MISS！！！
 
 哈哈哈哈哈哈哈哈哈哈哈！！！仿佛在打机战一样，开心的不得了
-
-
-
-
-
 
 
 -----
 
 ####  假山君  
 ##### 1179#       发表于 2018-7-21 06:55
-
 
 
 <blockquote>hgcg-w 发表于 2018-7-20 21:15
@@ -23484,16 +15558,10 @@ break我一直在用啊，对面三个人血厚攻高弱点又不一样，还不
 但是全是文字 画面只能脑补 看起来应该是预算不足了
 
 
-
-
-
-
-
 -----
 
 ####  Laie  
 ##### 1180#       发表于 2018-7-21 08:39
-
 
 
  本帖最后由 Laie 于 2018-7-21 08:47 编辑 
@@ -23502,17 +15570,10 @@ break我一直在用啊，对面三个人血厚攻高弱点又不一样，还不
 还在最后的最后给突然天降了一个幼驯染，这样四个妹子都有潜在cp了，脚本这恋爱脑……
 
 
-
-
-
-
-
 -----
 
 ####  Niu  
 ##### 1181#       发表于 2018-7-21 10:48
-
-
 
 
 有人玩反擊流嗎
@@ -23524,16 +15585,10 @@ break我一直在用啊，对面三个人血厚攻高弱点又不一样，还不
 越級打boss還滿有效的
 
 
-
-
-
-
-
 -----
 
 ####  假山君  
 ##### 1182#       发表于 2018-7-21 10:59
-
 
 
 <blockquote>Niu 发表于 2018-7-21 10:48
@@ -23548,16 +15603,10 @@ break我一直在用啊，对面三个人血厚攻高弱点又不一样，还不
 在没有其他高级职业前可以用来打打
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 1183#       发表于 2018-7-21 11:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40399417&amp;ptid=1711545" target="_blank">Niu 发表于 2018-07-21 10:48:18</a>
@@ -23572,16 +15621,10 @@ break我一直在用啊，对面三个人血厚攻高弱点又不一样，还不
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  xenowind  
 ##### 1184#       发表于 2018-7-21 11:18
-
 
 
  本帖最后由 xenowind 于 2018-7-21 15:02 编辑 
@@ -23591,25 +15634,13 @@ break我一直在用啊，对面三个人血厚攻高弱点又不一样，还不
 看不到舞女跳舞？这里有。プリムロゼ参ります！<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ルティナ  
 ##### 1185#       发表于 2018-7-21 12:30
 
 
-
-
 话说那些加属性的果实是怎么加的 百分比增加吗还是加固定属性
-
-
-
-
-
 
 
 -----
@@ -23618,21 +15649,13 @@ break我一直在用啊，对面三个人血厚攻高弱点又不一样，还不
 ##### 1186#       发表于 2018-7-21 12:32
 
 
-
-
 才拿到游戏，不想爬楼了，想先问下有没有推荐的攻略的日站……
-
-
-
-
-
 
 
 -----
 
 ####  Humpy  
 ##### 1187#       发表于 2018-7-21 12:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40400326&amp;ptid=1711545" target="_blank">平昭·南宫司卿 发表于 2018-7-21 12:32</a>
@@ -23646,13 +15669,9 @@ break我一直在用啊，对面三个人血厚攻高弱点又不一样，还不
 我用的这两个。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -23662,12 +15681,7 @@ break我一直在用啊，对面三个人血厚攻高弱点又不一样，还不
 | 平昭·南宫司卿| + 1|感谢|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -23676,22 +15690,13 @@ break我一直在用啊，对面三个人血厚攻高弱点又不一样，还不
 ##### 1188#       发表于 2018-7-21 15:01
 
 
-
-
 目前试下来单动最高伤害是符剑给法爷上好符文，神官给法爷套奥义，然后一发max的锤子，连锤8下每下都触发符文伤害，不知道有没有更高的……
-
-
-
-
-
 
 
 -----
 
 ####  Bani82  
 ##### 1189#       发表于 2018-7-21 15:14
-
-
 
 
 几个上位职业是不是要先通个人故事？药师职业的找不到在哪里...
@@ -23710,26 +15715,14 @@ break我一直在用啊，对面三个人血厚攻高弱点又不一样，还不
 我舞娘用大魔法，套了神官和学者的大招，效果真感觉不出啊
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 1190#         楼主| 发表于 2018-7-21 15:19
 
 
-
-
 上位职业不需要通剧情。剧情只跟一些终极装备和高级饰品有关。神官大招前期可以配合商人氪金，中后期可以配合魔法师打输出。药师祠堂在中间偏左下。
 <img src="http://oyster.ignimgs.com/mediawiki/apis.ign.com/octopath-traveler/7/75/OctojobShrineMap1.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23738,16 +15731,10 @@ break我一直在用啊，对面三个人血厚攻高弱点又不一样，还不
 ##### 1191#       发表于 2018-7-21 15:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40401574&amp;ptid=1711545" target="_blank">Sliverstrike 发表于 2018-7-21 15:01</a>
 
 目前试下来单动最高伤害是符剑给法爷上好符文，神官给法爷套奥义，然后一发max的锤子，连锤8下每下都触发符 ...</blockquote>
 平砍BOOST增加攻击次数是只能符文追击一次的
-
-
-
-
-
 
 
 -----
@@ -23756,14 +15743,7 @@ break我一直在用啊，对面三个人血厚攻高弱点又不一样，还不
 ##### 1192#       发表于 2018-7-21 15:46
 
 
-
-
 哎..第一个选的角色 是永远要带在队里的？
-
-
-
-
-
 
 
 -----
@@ -23772,24 +15752,16 @@ break我一直在用啊，对面三个人血厚攻高弱点又不一样，还不
 ##### 1193#         楼主| 发表于 2018-7-21 15:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40401870&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-7-21 16:46</a>
 
 哎..第一个选的角色 是永远要带在队里的？</blockquote>
 把这个角色的主线通关解锁
 
 
-
-
-
-
-
 -----
 
 ####  takayama  
 ##### 1194#       发表于 2018-7-21 16:11
-
-
 
 
 DEMO收全8人20级还没开始第二章在鸟葬洞穴遇到肥猫+跳舞跳出EXP100倍，当了回欧洲人，<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
@@ -23800,25 +15772,13 @@ DEMO收全8人20级还没开始第二章在鸟葬洞穴遇到肥猫+跳舞跳出
 然后就是偷光所有到过城镇的NPC的东西，某些档门的偷完东西就放倒，还在鸟葬洞穴抓了BOSS，简直不要太爽<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  霜落  
 ##### 1195#       发表于 2018-7-21 16:34
 
 
-
-
 第二章刚开始四处跑酷拿了一堆高级装备，现在36级拿完四个隐藏职业，可以爽虐后面的boss了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23827,21 +15787,13 @@ DEMO收全8人20级还没开始第二章在鸟葬洞穴遇到肥猫+跳舞跳出
 ##### 1196#       发表于 2018-7-21 16:54
 
 
-
-
 有没有人说下物理职到底应该怎么输出，怎么叠状态都打不出多少伤害
-
-
-
-
-
 
 
 -----
 
 ####  redsouris  
 ##### 1197#       发表于 2018-7-21 18:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40402306&amp;ptid=1711545" target="_blank">lanyu_u 发表于 2018-07-21 16:54:13</a>
@@ -23852,25 +15804,13 @@ DEMO收全8人20级还没开始第二章在鸟葬洞穴遇到肥猫+跳舞跳出
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  亚可（本人）  
 ##### 1198#       发表于 2018-7-21 21:00
 
 
-
-
 不可思议舞的经验加成是取最大倍数还是相乘？
-
-
-
-
-
 
 
 -----
@@ -23879,16 +15819,10 @@ DEMO收全8人20级还没开始第二章在鸟葬洞穴遇到肥猫+跳舞跳出
 ##### 1199#         楼主| 发表于 2018-7-21 21:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40404337&amp;ptid=1711545" target="_blank">亚可（本人） 发表于 2018-7-21 22:00</a>
 
 不可思议舞的经验加成是取最大倍数还是相乘？</blockquote>
 据说是大的覆盖小的，不可能相乘就是了。相乘这游戏大概玩两个小时就99级了……
-
-
-
-
-
 
 
 -----
@@ -23897,16 +15831,10 @@ DEMO收全8人20级还没开始第二章在鸟葬洞穴遇到肥猫+跳舞跳出
 ##### 1200#       发表于 2018-7-21 21:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40404356&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-21 21:03</a>
 
 据说是大的覆盖小的，不可能相乘就是了。相乘这游戏大概玩两个小时就99级了…… ...</blockquote>
 一夜满级梦破碎....<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23915,14 +15843,7 @@ DEMO收全8人20级还没开始第二章在鸟葬洞穴遇到肥猫+跳舞跳出
 ##### 1201#       发表于 2018-7-21 21:28
 
 
-
-
 话说药师出处的时候右上角有一个闪的很鬼畜的六边形，这个是正常现象吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23931,14 +15852,7 @@ DEMO收全8人20级还没开始第二章在鸟葬洞穴遇到肥猫+跳舞跳出
 ##### 1202#       发表于 2018-7-21 21:28
 
 
-
-
 请问舞娘魅惑的npc怎么带上场？我魅惑的很能打的老太太只会跟着走啊
-
-
-
-
-
 
 
 -----
@@ -23947,15 +15861,9 @@ DEMO收全8人20级还没开始第二章在鸟葬洞穴遇到肥猫+跳舞跳出
 ##### 1203#       发表于 2018-7-21 21:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40404560&amp;ptid=1711545" target="_blank">亚可（本人） 发表于 2018-7-21 21:28</a>
 话说药师出处的时候右上角有一个闪的很鬼畜的六边形，这个是正常现象吗？ ...</blockquote>
 在村里转转就知道了 是水面反射的光点 渲染特效估计有bug 室内穿帮了
-
-
-
-
-
 
 
 -----
@@ -23964,16 +15872,10 @@ DEMO收全8人20级还没开始第二章在鸟葬洞穴遇到肥猫+跳舞跳出
 ##### 1204#       发表于 2018-7-21 21:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40404564&amp;ptid=1711545" target="_blank">Terminal 发表于 2018-7-21 21:28</a>
 
 请问舞娘魅惑的npc怎么带上场？我魅惑的很能打的老太太只会跟着走啊</blockquote>
 拉到人的角色战斗中会多一个助势选项
-
-
-
-
-
 
 
 -----
@@ -23982,24 +15884,16 @@ DEMO收全8人20级还没开始第二章在鸟葬洞穴遇到肥猫+跳舞跳出
 ##### 1205#       发表于 2018-7-21 21:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40404573&amp;ptid=1711545" target="_blank">xqterry 发表于 2018-7-21 21:30</a>
 
 在村里转转就知道了 是水面反射的光点 渲染特效估计有bug 室内穿帮了</blockquote>
 还真是，村庄右上角树林里的确有类似的闪光特效....<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Bani82  
 ##### 1206#       发表于 2018-7-21 21:43
-
-
 
 
 被商人第三章的老虎殴打了，明明等级高出很多
@@ -24012,27 +15906,15 @@ DEMO收全8人20级还没开始第二章在鸟葬洞穴遇到肥猫+跳舞跳出
 之前都是打双输出的，看来后期舞娘简直学者主输出不行了？
 
 
-
-
-
-
-
 -----
 
 ####  刘震云  
 ##### 1207#       发表于 2018-7-21 21:50
 
 
-
-
 开场选了盗贼，才通了8个人的第一章，盗贼主角不能换太难受了，只能全职辅助，后期打算让他去做舞男<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 学者强的一B，主力输出位，早知道就选学者或战士开局了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24041,16 +15923,10 @@ DEMO收全8人20级还没开始第二章在鸟葬洞穴遇到肥猫+跳舞跳出
 ##### 1208#         楼主| 发表于 2018-7-21 21:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40404711&amp;ptid=1711545" target="_blank">刘震云 发表于 2018-7-21 22:50</a>
 
 开场选了盗贼，才通了8个人的第一章，盗贼主角不能换太难受了，只能全职辅助，后期打算让他去做舞男 ...</blockquote>
 不管到哪里全城肯定要先偷一遍，碰到紫箱子也不用想着回城换人，盗贼常驻很明智啊。
-
-
-
-
-
 
 
 -----
@@ -24059,16 +15935,9 @@ DEMO收全8人20级还没开始第二章在鸟葬洞穴遇到肥猫+跳舞跳出
 ##### 1209#       发表于 2018-7-21 22:06
 
 
-
-
 这游戏真是花钱如流水，圣女第二章的城镇，买禁断杖买新装备等等，全套下来15w的金币就没了，还需要SL老半天偷东西。
 
 但是感觉现在面板属性强了许多<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24077,21 +15946,13 @@ DEMO收全8人20级还没开始第二章在鸟葬洞穴遇到肥猫+跳舞跳出
 ##### 1210#       发表于 2018-7-21 22:07
 
 
-
-
 羡慕各位随机到100倍的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  刘震云  
 ##### 1211#       发表于 2018-7-21 22:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40404723&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-21 21:52</a>
@@ -24102,16 +15963,10 @@ DEMO收全8人20级还没开始第二章在鸟葬洞穴遇到肥猫+跳舞跳出
 紫箱子目前没碰到什么好东西，盗贼偷东西可以到到城里酒吧换人也行，要不是盗贼开场的话，这个位置我就换成奶妈了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  prinny  
 ##### 1212#       发表于 2018-7-21 22:16
-
 
 
  本帖最后由 prinny 于 2018-7-21 22:20 编辑 
@@ -24121,16 +15976,10 @@ DEMO收全8人20级还没开始第二章在鸟葬洞穴遇到肥猫+跳舞跳出
 盗贼基本就是个奶啊 偷sp 分sp 降攻降防 反正bp没啥用 速度又快，配个商人开场给dps加bp 第一回合就出豪武神清场，或者花个3w 一口气 全体打4下 立马break
 
 
-
-
-
-
-
 -----
 
 ####  亚可（本人）  
 ##### 1213#       发表于 2018-7-21 22:48
-
 
 
  本帖最后由 亚可（本人） 于 2018-7-21 22:57 编辑 
@@ -24138,16 +15987,10 @@ DEMO收全8人20级还没开始第二章在鸟葬洞穴遇到肥猫+跳舞跳出
 大家是怎么赚钱的？商人娘路边捡的根本不够看啊<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 1214#         楼主| 发表于 2018-7-21 23:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40405229&amp;ptid=1711545" target="_blank">亚可（本人） 发表于 2018-7-21 23:48</a>
@@ -24162,16 +16005,10 @@ DEMO收全8人20级还没开始第二章在鸟葬洞穴遇到肥猫+跳舞跳出
 右上海港的城那里找广场老太太决斗有概率掉纪念币可以卖25000钱。装备防雷饰品稲妻のアミュレット单挑即可。饰品可以跑酷拿。出城能无限刷。
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 1215#         楼主| 发表于 2018-7-21 23:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40404835&amp;ptid=1711545" target="_blank">reficul 发表于 2018-7-21 23:06</a>
@@ -24180,33 +16017,19 @@ DEMO收全8人20级还没开始第二章在鸟葬洞穴遇到肥猫+跳舞跳出
 这个城通了4章可以回来找主教买历战之杖，还得花9万……
 
 
-
-
-
-
-
 -----
 
 ####  真红之闪电  
 ##### 1216#       发表于 2018-7-21 23:56
 
 
-
-
 战士圣职通了，经验和jp奖励饰品怎么拿的
-
-
-
-
-
 
 
 -----
 
 ####  Bani82  
 ##### 1217#       发表于 2018-7-22 00:07
-
-
 
 
 通关大概全员多少级？目前还在痛苦的冰龙洞徘徊？
@@ -24216,16 +16039,10 @@ DEMO收全8人20级还没开始第二章在鸟葬洞穴遇到肥猫+跳舞跳出
 打算猎人和舞女混到60级再出去推进度...
 
 
-
-
-
-
-
 -----
 
 ####  takayama  
 ##### 1218#       发表于 2018-7-22 00:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40405867&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-7-22 00:07</a>
@@ -24236,16 +16053,10 @@ DEMO收全8人20级还没开始第二章在鸟葬洞穴遇到肥猫+跳舞跳出
 进冰龙洞就没遇到过一只猫……<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 1219#       发表于 2018-7-22 02:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40405867&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-07-22 00:07:31</a>
@@ -24256,16 +16067,10 @@ DEMO收全8人20级还没开始第二章在鸟葬洞穴遇到肥猫+跳舞跳出
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Bani82  
 ##### 1220#       发表于 2018-7-22 02:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40405964&amp;ptid=1711545" target="_blank">鱼肉丸子 发表于 2018-7-22 00:23</a>
@@ -24274,25 +16079,13 @@ DEMO收全8人20级还没开始第二章在鸟葬洞穴遇到肥猫+跳舞跳出
 还没有上位职业，不知道哪里去搞？
 
 
-
-
-
-
-
 -----
 
 ####  zxy26  
 ##### 1221#       发表于 2018-7-22 03:58
 
 
-
-
 卧槽OLBERIC的第三章简直绝了，气氛和bgm配合的恰到好处，希望剩下的章节都能有这个水准
-
-
-
-
-
 
 
 -----
@@ -24313,16 +16106,10 @@ z
 練級就找冰龍洞或者淨化之森吧。帶上加jp的道具，還有被動，一場400-500+jp，練起來很快。順便帶商人還能刷點錢。這邊我把拖後腿的職業練到60級以後，都90w塊錢了……完全不缺錢……刷起來也很快，一兩個小時就練完了
 
 
-
-
-
-
-
 -----
 
 ####  假山君  
 ##### 1223#       发表于 2018-7-22 04:02
-
 
 
 <blockquote>鱼肉丸子 发表于 2018-7-22 03:02
@@ -24335,16 +16122,10 @@ z
 带上jp+首饰和jp+被动打一把500吧 exp没什么大用处 豪武匠奥义带三个 魔术师特大光魔法带另外三个 被动带上bp eater和bp plus  基本都是一回合带走的
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 1224#       发表于 2018-7-22 04:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40404564&amp;ptid=1711545" target="_blank">Terminal 发表于 2018-7-21 21:28</a>
@@ -24353,16 +16134,10 @@ z
 招的npc進戰鬥要用召喚命令才會幫你打架的
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 1225#       发表于 2018-7-22 04:11
-
 
 
  本帖最后由 LichEnd 于 2018-7-22 04:12 编辑 
@@ -24379,32 +16154,19 @@ z
 所以除了法爺之外還得準備1-2個2隊的輸出職業，所以要給拖後退的角色刷jp，想build，一來二去就刷到六十多級了……不知不覺我大奶祭祀都70了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  不应  
 ##### 1226#       发表于 2018-7-22 08:12
 
 
-
-
 为什么我净化之森遇到的都是600经验的怪，1000经验的5把下来也遇不到一次...还有那边的地图经验高啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Bani82  
 ##### 1227#       发表于 2018-7-22 09:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40407180&amp;ptid=1711545" target="_blank">不应 发表于 2018-7-22 08:12</a>
@@ -24416,16 +16178,10 @@ z
 冰龙口里面的BOSS太厉害了，一个AOE我这边就要躺起码2个
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 1228#       发表于 2018-7-22 09:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40406736&amp;ptid=1711545" target="_blank">LichEnd 发表于 2018-07-22 04:11:21</a></blockquote>隐藏目前感觉比较稳的打法是，一队法系，全buff法爷破盾速度秒；二队用物理系，三人辅助，靠武艺奥义连发。
@@ -24434,25 +16190,13 @@ z
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 1229#       发表于 2018-7-22 09:38
 
 
-
-
 全员装回复限界突破 隐藏boss就可以随便打了
-
-
-
-
-
 
 
 -----
@@ -24461,23 +16205,16 @@ z
 ##### 1230#         楼主| 发表于 2018-7-22 09:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40406551&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-7-22 03:34</a>
 
 还没有上位职业，不知道哪里去搞？</blockquote>
 1211楼贴了，分别在地图靠四个角的地方
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 1231#         楼主| 发表于 2018-7-22 10:54
-
 
 
  本帖最后由 Lunamos 于 2018-7-22 22:18 编辑 
@@ -24497,15 +16234,9 @@ z
 我还是把你们电台跳过吧。
 
 
-
 Edit：
 
 刚听了VG的，机核我错了。
-
-
-
-
-
 
 
 -----
@@ -24514,16 +16245,9 @@ Edit：
 ##### 1232#       发表于 2018-7-22 11:41
 
 
-
-
 冰龙口是真的不错，怪弱，经验和净化森差不多，还没有没法蹭break的石头怪，补给也掉的挺多的
 
 对普通人来说这个刷经验效率已经比跳舞高了，打一个全家桶猫也有7000经验
-
-
-
-
-
 
 
 -----
@@ -24532,14 +16256,7 @@ Edit：
 ##### 1233#       发表于 2018-7-22 11:49
 
 
-
-
 跳舞最多跳到x5 自方群体沉默倒是比较常见<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24548,14 +16265,7 @@ Edit：
 ##### 1234#       发表于 2018-7-22 12:54
 
 
-
-
 刚玩没多久，这游戏BGM太棒了吧，简直到了奢侈的地步。
-
-
-
-
-
 
 
 -----
@@ -24564,16 +16274,10 @@ Edit：
 ##### 1235#       发表于 2018-7-22 13:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40408634&amp;ptid=1711545" target="_blank">rak1 发表于 2018-7-22 11:49</a>
 
 跳舞最多跳到x5 自方群体沉默倒是比较常见</blockquote>
 我最常见是己方集体降防御，说不出话来
-
-
-
-
-
 
 
 -----
@@ -24582,14 +16286,7 @@ Edit：
 ##### 1236#       发表于 2018-7-22 13:21
 
 
-
-
 这游戏 NPC说明文里描述的和决斗强度 很多对不上啊.. 虽然这个有点吹毛求疵了<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24598,23 +16295,15 @@ Edit：
 ##### 1237#       发表于 2018-7-22 13:30
 
 
-
-
 以及
 
 有人跟我一样觉得关智一配得很烂的吗..<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">搞得都不想用药师
-
-
-
-
-
 
 
 -----
 
 ####  prinny  
 ##### 1238#       发表于 2018-7-22 13:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40409600&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-7-22 13:30</a>
@@ -24625,25 +16314,13 @@ Edit：
 +1 尤其是出招 喊得很棒读…
 
 
-
-
-
-
-
 -----
 
 ####  pei1019  
 ##### 1239#       发表于 2018-7-22 14:02
 
 
-
-
 问下，猎人和战士的物攻要怎么叠BUFF，就舞女不停上？我现在物理攻击老是上不去……太痛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24652,21 +16329,13 @@ Edit：
 ##### 1240#       发表于 2018-7-22 14:17
 
 
-
-
 很烦一点是几乎每个剧情迷宫都有紫箱子，不带着盗贼犯强迫症
-
-
-
-
-
 
 
 -----
 
 ####  踩到图钉  
 ##### 1241#       发表于 2018-7-22 14:29
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">跳一天舞一个百倍JP都没刷出来
@@ -24679,25 +16348,13 @@ Edit：
 同等级的学者打探个消息还是一样畏畏缩缩的
 
 
-
-
-
-
-
 -----
 
 ####  小妍子  
 ##### 1242#       发表于 2018-7-22 15:09
 
 
-
-
 神官线通了以后，在新手村死活找不到リアナ...我要拿装备啊……
-
-
-
-
-
 
 
 -----
@@ -24706,16 +16363,10 @@ Edit：
 ##### 1243#       发表于 2018-7-22 15:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40410428&amp;ptid=1711545" target="_blank">小妍子 发表于 2018-7-22 15:09</a>
 
 神官线通了以后，在新手村死活找不到リアナ...我要拿装备啊……</blockquote>
 通了猎人线才能找到
-
-
-
-
-
 
 
 -----
@@ -24724,14 +16375,7 @@ Edit：
 ##### 1244#       发表于 2018-7-22 15:30
 
 
-
-
 第三章的剧情质量比前面两章直线上升哎，战士和药师的第三章比一二章强好多
-
-
-
-
-
 
 
 -----
@@ -24740,17 +16384,10 @@ Edit：
 ##### 1245#       发表于 2018-7-22 15:47
 
 
-
-
 我太爱cyrus的台词了，尤其是max bp的时候，“you should have studied harder”，偷钱的时候，"consider this a... 'tuition' fee!"，patience的时候，"Now, the true lesson begins!"
 
 
 希望有人能总结一下各个角色的台词，感觉好丰富啊
-
-
-
-
-
 
 
 -----
@@ -24759,14 +16396,7 @@ Edit：
 ##### 1246#       发表于 2018-7-22 16:06
 
 
-
-
 今天去地图右边的海岸城市グランボート把所有NPC搜刮了个精光，25级战士单挑打过一个7星看门人（2W多血），进屋用学者问出老婆婆的偷盗成功率上升情报，然后整个地图好装备偷到腿软<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，连沙滩上的黑狗都被我偷个精光。缺点是后期一段时间不会有打败BOSS拿到新装备的喜悦了
-
-
-
-
-
 
 
 -----
@@ -24775,22 +16405,13 @@ Edit：
 ##### 1247#       发表于 2018-7-22 16:25
 
 
-
-
 剑士和武艺者的大招，哪个输出更高？
-
-
-
-
-
 
 
 -----
 
 ####  fmban  
 ##### 1248#       发表于 2018-7-22 17:18
-
-
 
 
 有几个问题：
@@ -24804,16 +16425,10 @@ Edit：
 4.法反能反符文附魔的伤害吗
 
 
-
-
-
-
-
 -----
 
 ####  blackll7  
 ##### 1249#       发表于 2018-7-22 17:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40411082&amp;ptid=1711545" target="_blank">hgcg-w 发表于 2018-7-22 16:25</a>
@@ -24821,16 +16436,10 @@ Edit：
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">武艺大于贼大于剑士大于猎人
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 1250#       发表于 2018-7-22 17:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40411553&amp;ptid=1711545" target="_blank">fmban 发表于 2018-7-22 17:18</a>
@@ -24849,16 +16458,10 @@ Edit：
 4.能
 
 
-
-
-
-
-
 -----
 
 ####  blackll7  
 ##### 1251#       发表于 2018-7-22 17:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40411553&amp;ptid=1711545" target="_blank">fmban 发表于 2018-7-22 17:18</a>
@@ -24870,16 +16473,10 @@ Edit：
 TFFF
 
 
-
-
-
-
-
 -----
 
 ####  blackll7  
 ##### 1252#       发表于 2018-7-22 17:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40411553&amp;ptid=1711545" target="_blank">fmban 发表于 2018-7-22 17:18</a>
@@ -24891,25 +16488,13 @@ TFFF
 TFTF打错
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 1253#       发表于 2018-7-22 18:05
 
 
-
-
 通关了 人物平均60级 看了下用了46个小时 剧情我觉得还可以至少把一个故事完完整整讲完了最喜欢舞娘和剑士的剧本 然后通关后这游戏还有什么能做的事情嘛 上位职业拿了2个 剩下两个没去拿因为我发现有了魔法师这职业之后基本就可以吊打主线所有怪了…
-
-
-
-
-
 
 
 -----
@@ -24918,16 +16503,10 @@ TFTF打错
 ##### 1254#       发表于 2018-7-22 18:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40411732&amp;ptid=1711545" target="_blank">blackll7 发表于 2018-7-22 17:39</a>
 
 TFTF打错</blockquote>
 那多段攻击的技能会增加触发概率吗
-
-
-
-
-
 
 
 -----
@@ -24936,15 +16515,9 @@ TFTF打错</blockquote>
 ##### 1255#       发表于 2018-7-22 18:21
 
 
-
  本帖最后由 darkfall 于 2018-7-22 18:23 编辑 
 
 62小时总算打通隐藏结局，神tm故事全圆回来了，全局一看其实还挺有趣。队伍平均62级打了2个多小时。。。进去前忘了购物，打完发现配置完全是错的，一阶段队伍里只有个物理输出战士没有任何属性AOE。二阶段眼花看成了180w血，看时间都凌晨3点了，在想还得起码打1个小时真是令人绝望。结果在队伍死了两个，剩下两个不足一千血得情况下正好把boss打死。。。
-
-
-
-
-
 
 
 -----
@@ -24953,23 +16526,16 @@ TFTF打错</blockquote>
 ##### 1256#       发表于 2018-7-22 18:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40411082&amp;ptid=1711545" target="_blank">hgcg-w 发表于 2018-07-22 16:25:26</a>
 剑士和武艺者的大招，哪个输出更高？</blockquote>剑士奥义倍率也不低，但是别人的打全体还多段攻击
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 1257#         楼主| 发表于 2018-7-22 18:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40411927&amp;ptid=1711545" target="_blank">gjd198692 发表于 2018-7-22 19:05</a>
@@ -24984,17 +16550,10 @@ TFTF打错</blockquote>
 可惜游戏没有二周目去试验各种build。这游戏打完真boss就到此为止可以封盘了。
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 1258#       发表于 2018-7-22 19:37
-
-
 
 
 这大概就是传说中的老虎扮猪吧
@@ -25003,25 +16562,13 @@ TFTF打错</blockquote>
 <img src="http://wx1.sinaimg.cn/large/9657fdc2gy1ftivdihnozj20zk0k0tqt.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xqterry  
 ##### 1259#       发表于 2018-7-22 19:49
 
 
-
-
 魔大公那个威吓有解法么 虽然刚才打过了 但还是好奇 威吓状态下所有单体变全体技能无效 所有护盾附魔法术施展无效 我试了健全以及磕了一圈药都解除不了 只能硬扛到威吓回合数到了抓紧机会上反射盾和魔剑士附魔 
-
-
-
-
-
 
 
 -----
@@ -25030,16 +16577,10 @@ TFTF打错</blockquote>
 ##### 1260#       发表于 2018-7-22 19:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40412762&amp;ptid=1711545" target="_blank">xqterry 发表于 2018-7-22 19:49</a>
 
 魔大公那个威吓有解法么 虽然刚才打过了 但还是好奇 威吓状态下所有单体变全体技能无效 所有护盾附魔法术施 ...</blockquote>
 一般就是撑到结束，或者SL在他开局放debuff之前就给他break了
-
-
-
-
-
 
 
 -----
@@ -25048,16 +16589,10 @@ TFTF打错</blockquote>
 ##### 1261#         楼主| 发表于 2018-7-22 20:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40412671&amp;ptid=1711545" target="_blank">hgcg-w 发表于 2018-7-22 20:37</a>
 
 这大概就是传说中的老虎扮猪吧</blockquote>
 酒剑仙……
-
-
-
-
-
 
 
 -----
@@ -25066,22 +16601,13 @@ TFTF打错</blockquote>
 ##### 1262#       发表于 2018-7-22 20:12
 
 
-
-
 玩到商人第三章结束，开始刷其他人的第二章，感觉游戏难度还是偏低，敌人动态等级不明显，我没有刻意练级，也没刷出过100倍经验，现在也有平均42级了（主力队伍）。而主线目前要求的都是20+级，基本上一路横扫，不得不配一个遇敌减半，因为路上小怪实在是不够看了
-
-
-
-
-
 
 
 -----
 
 ####  笛普达克范太希  
 ##### 1263#       发表于 2018-7-22 20:39
-
-
 
 
 放个自己刷10星NPC最快的一个配置吧
@@ -25093,17 +16619,10 @@ TFTF打错</blockquote>
 碰见所有NPC都只需要第一回合防御，第二回合武器大师大招，结束战斗，全程安逸，顶多偶尔吃个药
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 1264#       发表于 2018-7-22 20:46
-
-
 
 
 话说我想让商人兼魔剑士，这个想法怎样？
@@ -25111,16 +16630,10 @@ TFTF打错</blockquote>
 就是用扩散符文把商人的补血技和回避技变成全体技能
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 1265#       发表于 2018-7-22 20:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40413257&amp;ptid=1711545" target="_blank">hgcg-w 发表于 2018-7-22 20:46</a>
@@ -25131,17 +16644,10 @@ TFTF打错</blockquote>
 有这个套路，回避打学者4章这种纯物理boss效果特别好，休息技能比起补血更多的是全体解异常
 
 
-
-
-
-
-
 -----
 
 ####  Bani82  
 ##### 1266#       发表于 2018-7-22 21:30
-
-
 
 
 打一半感觉这游戏算不算女神异闻录系列的简略优化版？
@@ -25151,16 +16657,10 @@ TFTF打错</blockquote>
 这个系统比女神异闻录其实要好玩一点，但是异闻录的花头更多一些
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 1267#       发表于 2018-7-22 21:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40413726&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-7-22 21:30</a>
@@ -25177,25 +16677,13 @@ TFTF打错</blockquote>
 而这次BP只是起到单纯的增伤和奥义效果，战略价值太低了
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 1268#         楼主| 发表于 2018-7-22 21:54
 
 
-
-
 感觉BP用得还不错，比较简单。这次战斗系统没有用好的数值是闪避、暴击和速度，这几个数值太鸡肋。尤其因为break系统导致速度这个数值过于板凳。如果速度结算改成ATB，或者速度积累二动，游戏的战略层次能增加不少。
-
-
-
-
-
 
 
 -----
@@ -25204,23 +16692,15 @@ TFTF打错</blockquote>
 ##### 1269#       发表于 2018-7-22 22:05
 
 
-
-
 舞女刮刮乐简直太可恶了！刚刚刮了个EXP100出来，瞬间等级+10……现在不想打怪，只想刮刮乐……<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
 话说遇到大猫怎么打啊，我用猎人姐的奥义居然对方完全闪避，只有用宝石+魔法吗？而且从猫出现到它溜走，就只打了它一下……这个咋回事啊……<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  叶雾  
 ##### 1270#       发表于 2018-7-22 22:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40413181&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-7-22 20:39</a>
@@ -25237,16 +16717,10 @@ HP每回合回500点
 只要不是10星魔法师，基本都能抗下来
 
 
-
-
-
-
-
 -----
 
 ####  blackll7  
 ##### 1271#       发表于 2018-7-22 22:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40412039&amp;ptid=1711545" target="_blank">fmban 发表于 2018-7-22 18:18</a>
@@ -25255,26 +16729,15 @@ HP每回合回500点
 会
 
 
-
-
-
-
-
 -----
 
 ####  reficul  
 ##### 1272#       发表于 2018-7-22 23:05
 
 
-
 <blockquote>Lunamos 发表于 2018-7-22 21:54
 感觉BP用得还不错，比较简单。这次战斗系统没有用好的数值是闪避、暴击和速度，这几个数值太鸡肋。尤其因为 ...</blockquote>
 主要还是装备的数值太高了，随便就是会心+100的弓，会心+50的项链，回避+111的盔甲。反正无脑堆上去就好，我的猎人几乎刀刀暴击，单挑时六星左右的NPC也经常半天摸不到她一次
-
-
-
-
-
 
 
 -----
@@ -25283,16 +16746,10 @@ HP每回合回500点
 ##### 1273#         楼主| 发表于 2018-7-22 23:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40414591&amp;ptid=1711545" target="_blank">reficul 发表于 2018-7-23 00:05</a>
 
 主要还是装备的数值太高了，随便就是会心+100的弓，会心+50的项链，回避+111的盔甲。反正无脑堆上去就好 ...</blockquote>
 回避应用场景少，打物理系硬仗又不能赌闪避还是得靠物防和商人的必闪。暴击系数太保守，没有暴击带来的快感。暴击应该降低概率提高系数，而闪避应该增加确定性，或者像大天使守护一样适用于大部分攻击。当然最不满的数值还是速度。最明显就是单挑的时候吧，速度这个数值是在逗我……
-
-
-
-
-
 
 
 -----
@@ -25301,22 +16758,15 @@ HP每回合回500点
 ##### 1274#       发表于 2018-7-22 23:29
 
 
-
 <blockquote>Lunamos 发表于 2018-7-22 23:20
 回避应用场景少，打物理系硬仗又不能赌闪避还是得靠物防和商人的必闪。暴击系数太保守，没有暴击带来的快 ...</blockquote>
 这几个其实都应该做成百分比显示，我现在其实对暴击，回避，命中的数值都没有什么直观了解，也不知道堆了那么多算是个什么水平。速度确实可惜了
-
-
-
-
-
 
 
 -----
 
 ####  Lunamos  
 ##### 1275#         楼主| 发表于 2018-7-22 23:30
-
 
 
  本帖最后由 Lunamos 于 2018-7-23 00:39 编辑 
@@ -25333,25 +16783,13 @@ HP每回合回500点
 一般：盗贼，商人
 
 
-
-
-
-
-
 -----
 
 ####  xqterry  
 ##### 1276#       发表于 2018-7-23 00:47
 
 
-
-
 学者配魔剑士 堆属攻 被动带再动 追击 伤害解禁 反击 磨过了魔大公和豪武将 上来看一眼弱点 附魔 然后一棍一棍敲 敲一下破防前1w5 破防后2w3 运气好一回合4次攻击 小十万伤害 神官带回复解禁 开场自尽一次 然后吃一个特大复活变9999hp 后面专心奶 另外两个专心破防和给学者按摩捶背捏脚 不愧当代干豆腐
-
-
-
-
-
 
 
 -----
@@ -25360,23 +16798,15 @@ HP每回合回500点
 ##### 1277#       发表于 2018-7-23 00:54
 
 
-
-
 通了药师，看起来隐藏职业好像要比各个4章的BOSS还要厉害点的样子？
 
 现在冰龙口已经不满足我刷经验了，接下去该去哪里刷了？
-
-
-
-
-
 
 
 -----
 
 ####  xqterry  
 ##### 1278#       发表于 2018-7-23 00:58
-
 
 
  本帖最后由 xqterry 于 2018-7-23 01:23 编辑 
@@ -25387,17 +16817,10 @@ HP每回合回500点
 右上角出来有个净化之森 危险度58 比冰龙口高
 
 
-
-
-
-
-
 -----
 
 ####  Laie  
 ##### 1279#       发表于 2018-7-23 02:45
-
-
 
 
 平均55级左右进门打完隐藏迷宫了，最后这boss设计得挺有趣的，不考虑jp乱花的话确实不用刷级，全要素一路打过去等级就刚刚好<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
@@ -25408,16 +16831,10 @@ HP每回合回500点
 要是这堆交互要素实际做到游戏演出里估计评价会再高一些
 
 
-
-
-
-
-
 -----
 
 ####  邪紫  
 ##### 1280#       发表于 2018-7-23 03:10
-
 
 
 <blockquote>噂の船 发表于 2018-7-22 13:30
@@ -25427,16 +16844,10 @@ HP每回合回500点
 一直觉得他配得烂，永远都是大吼大叫
 
 
-
-
-
-
-
 -----
 
 ####  假山君  
 ##### 1281#       发表于 2018-7-23 05:23
-
 
 
 <blockquote>邪紫 发表于 2018-7-23 03:10
@@ -25444,17 +16855,10 @@ HP每回合回500点
 不觉得烂 本身亚芬就是个热血男儿
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 1282#       发表于 2018-7-23 07:38
-
-
 
 
 打到隐藏BOSS了
@@ -25466,16 +16870,10 @@ HP每回合回500点
 又是怎么把8个人的故事串起来的？
 
 
-
-
-
-
-
 -----
 
 ####  奶牛  
 ##### 1283#       发表于 2018-7-23 07:42
-
 
 
  本帖最后由 奶牛 于 2018-7-23 07:43 编辑 
@@ -25489,33 +16887,19 @@ HP每回合回500点
 本身并没啥额外剧情，基本上就是把坑填完了。这个隐藏boss本身也就是个支线，所以结束的方式某种意义上也很支线般的简单粗暴
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 1284#       发表于 2018-7-23 09:14
 
 
-
-
 se对ot好像预期很低，看到日本第二批铺货也不足了
-
-
-
-
-
 
 
 -----
 
 ####  水宝宝  
 ##### 1285#       发表于 2018-7-23 09:19
-
-
 
 
 问一下舞女刮刮乐是不是只有舞女本人跳的时候才比较可能出正面效果？
@@ -25525,16 +16909,10 @@ se对ot好像预期很低，看到日本第二批铺货也不足了
 还有想问下现在有支线攻略了吗？这游戏支线太谜了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xqterry  
 ##### 1286#       发表于 2018-7-23 09:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40416859&amp;ptid=1711545" target="_blank">水宝宝 发表于 2018-7-23 09:19</a>
@@ -25544,16 +16922,10 @@ se对ot好像预期很低，看到日本第二批铺货也不足了
 随机全看脸吧 我出x100是学者舞男跳的
 
 
-
-
-
-
-
 -----
 
 ####  Bani82  
 ##### 1287#       发表于 2018-7-23 10:21
-
 
 
  本帖最后由 Bani82 于 2018-7-23 10:22 编辑 
@@ -25563,16 +16935,10 @@ se对ot好像预期很低，看到日本第二批铺货也不足了
 已经刷到2个66级其他都是40级起步的了，还是不敢去挑战高级职业
 
 
-
-
-
-
-
 -----
 
 ####  水宝宝  
 ##### 1288#       发表于 2018-7-23 10:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40416999&amp;ptid=1711545" target="_blank">xqterry 发表于 2018-7-23 09:33</a>
@@ -25581,16 +16947,10 @@ se对ot好像预期很低，看到日本第二批铺货也不足了
 真是绝了，我也是不信邪了前面上班路上又让盗贼跳了几把结果清一色负面效果，受不了换回舞女跳，又是把把七八成概率出正面效果，难道真的会有不适合跳舞的角色这种设定吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xqterry  
 ##### 1289#       发表于 2018-7-23 10:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40417562&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-7-23 10:21</a>
@@ -25602,16 +16962,10 @@ se对ot好像预期很低，看到日本第二批铺货也不足了
 平均50可以打了 主要还是扛住boss濒死那一两轮
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 1290#         楼主| 发表于 2018-7-23 12:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40417936&amp;ptid=1711545" target="_blank">水宝宝 发表于 2018-7-23 11:52</a>
@@ -25623,25 +16977,13 @@ se对ot好像预期很低，看到日本第二批铺货也不足了
 难道真有这种隐藏设定……
 
 
-
-
-
-
-
 -----
 
 ####  霜落  
 ##### 1291#       发表于 2018-7-23 12:34
 
 
-
-
 真的有人刷10星NPC掉落过历战系武器吗? 十几秒一次刷了一下午一把都不掉的<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25650,23 +16992,15 @@ se对ot好像预期很低，看到日本第二批铺货也不足了
 ##### 1292#       发表于 2018-7-23 12:34
 
 
-
-
 我神官跳死过1次，舞娘2次
 
 EXP和JB的100倍是纯随机还是说对BOOST有指定？
-
-
-
-
-
 
 
 -----
 
 ####  Niu  
 ##### 1293#       发表于 2018-7-23 13:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40417562&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-7-22 18:21</a>
@@ -25681,16 +17015,10 @@ EXP和JB的100倍是纯随机还是说对BOOST有指定？
 尤其吃反射流的占星師跟魔大公根本不需要那麼高
 
 
-
-
-
-
-
 -----
 
 ####  Niu  
 ##### 1294#       发表于 2018-7-23 13:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40415800&amp;ptid=1711545" target="_blank">Laie 发表于 2018-7-22 10:45</a>
@@ -25704,24 +17032,13 @@ EXP和JB的100倍是纯随机还是说对BOOST有指定？
 尤其是獵人4章 那真是該由藥師來打啊 好好把劇情寫好 赤目戰可以做的很感人煽情的
 
 
-
-
-
-
-
 -----
 
 ####  天光逸  
 ##### 1295#       发表于 2018-7-23 14:15
 
 
-
 [https://www.bilibili.com/video/av25552171/](https://www.bilibili.com/video/av25552171/) 推荐下有中翻无说话的视频，虽然估计这楼的人也看得懂。
-
-
-
-
-
 
 
 -----
@@ -25730,22 +17047,13 @@ EXP和JB的100倍是纯随机还是说对BOOST有指定？
 ##### 1296#       发表于 2018-7-23 14:19
 
 
-
-
 药师一直没用导致开始打第二章剧情时等级差很多，求个推荐副职业和队伍搭配，主角选的学者配商人<img src="https://static.saraba1st.com/image/smiley/face2017/142.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  笛普达克范太希  
 ##### 1297#       发表于 2018-7-23 14:20
-
-
 
 
 有大佬试过OTK隐藏boss一段吗，我智勇双残总是上错/上不完buff<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">理论是这样的
@@ -25762,16 +17070,10 @@ buff-学者大-法师大-神官大-魔攻up-敌人魔防down
 实验过程中发现一个平A自带2连的斧子用来破防很好，满蓄就直接8hit破防了
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 1298#       发表于 2018-7-23 14:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40420143&amp;ptid=1711545" target="_blank">yuruho 发表于 2018-7-23 14:19</a>
@@ -25782,16 +17084,10 @@ buff-学者大-法师大-神官大-魔攻up-敌人魔防down
 多买点调和材料
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 1299#       发表于 2018-7-23 14:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40419663&amp;ptid=1711545" target="_blank">Niu 发表于 2018-7-23 13:32</a>
@@ -25809,25 +17105,13 @@ buff-学者大-法师大-神官大-魔攻up-敌人魔防down
 一周目你可以任意顺序攻略，所有结局都是Happy End，但不是Ture End。结局旁白提示玩家虽然每个角色都有一个好的旅程，但世界依然笼罩在巨大阴影之下，因为命运的选择错过了细节，然后把各角色每章节暗藏的有关隐藏BOSS的信息提示一下，接下来时间重新回溯开始游戏二周目，玩家根据提示按照特定顺序，或者在一定顺序变动范围内攻略各章，最后才可以出发隐藏BOSS。
 
 
-
-
-
-
-
 -----
 
 ####  kurama221  
 ##### 1300#       发表于 2018-7-23 14:51
 
 
-
-
 今天看了小妖的推送，实体足足涨了一百块<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">迫真理财游戏
-
-
-
-
-
 
 
 -----
@@ -25836,22 +17120,15 @@ buff-学者大-法师大-神官大-魔攻up-敌人魔防down
 ##### 1301#       发表于 2018-7-23 15:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">八方旅人我觉得就是一帮子伪RPG玩家趁着NS游戏空白区跟着炒作
 
 其实这游戏如果是真正喜欢RPG的玩家，绝对不会不买，毕竟是跟NS同步公开的作品，公开时候就知道是BDFF这组的下一部重头戏。等到游戏出了看一片好评才买的人，我估计也不会真的喜欢玩这类游戏...
-
-
-
-
-
 
 
 -----
 
 ####  Bani82  
 ##### 1302#       发表于 2018-7-23 15:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40420547&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-23 15:04</a>
@@ -25864,16 +17141,10 @@ buff-学者大-法师大-神官大-魔攻up-敌人魔防down
 FF和DQ我从来都打不下去，基本玩的都是北妹、传说、EOE、XB2、Persona那种
 
 
-
-
-
-
-
 -----
 
 ####  邪紫  
 ##### 1303#       发表于 2018-7-23 15:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40415997&amp;ptid=1711545" target="_blank">假山君 发表于 2018-7-23 05:23</a>
@@ -25882,25 +17153,13 @@ FF和DQ我从来都打不下去，基本玩的都是北妹、传说、EOE、XB2�
 阿芬是热血男，石田三成也是热血男？嘛，见仁见智，每次听到他的配音就想跳过。
 
 
-
-
-
-
-
 -----
 
 ####  sunylink  
 ##### 1304#       发表于 2018-7-23 15:40
 
 
-
-
 也可能是编剧导演水平有限，不然这个群像剧本好好的编排下真能往神作上蹦
-
-
-
-
-
 
 
 -----
@@ -25909,15 +17168,9 @@ FF和DQ我从来都打不下去，基本玩的都是北妹、传说、EOE、XB2�
 ##### 1305#       发表于 2018-7-23 15:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40420617&amp;ptid=1711545" target="_blank">邪紫 发表于 2018-7-23 15:13</a>
 阿芬是热血男，石田三成也是热血男？嘛，见仁见智，每次听到他的配音就想跳过。 ...</blockquote>
 石田三成属于黑社会打手这种吧，也不算错
-
-
-
-
-
 
 
 -----
@@ -25926,22 +17179,15 @@ FF和DQ我从来都打不下去，基本玩的都是北妹、传说、EOE、XB2�
 ##### 1306#       发表于 2018-7-23 15:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40420855&amp;ptid=1711545" target="_blank">sunylink 发表于 2018-7-23 17:40</a>
 也可能是编剧导演水平有限，不然这个群像剧本好好的编排下真能往神作上蹦 ...</blockquote>
 感觉主要还是成本有限，搞成群像工作量会极大增加，这点确实非常遗憾，现在只能通过小剧场看看角色间互动
-
-
-
-
-
 
 
 -----
 
 ####  Lunamos  
 ##### 1307#         楼主| 发表于 2018-7-23 17:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40416255&amp;ptid=1711545" target="_blank">hgcg-w 发表于 2018-7-23 08:38</a>
@@ -25956,16 +17202,10 @@ FF和DQ我从来都打不下去，基本玩的都是北妹、传说、EOE、XB2�
 我翻译了一下真结局放隔壁了。剧透。
 
 
-
-
-
-
-
 -----
 
 ####  Errey  
 ##### 1308#       发表于 2018-7-23 17:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40420855&amp;ptid=1711545" target="_blank">sunylink 发表于 2018-7-23 15:40</a>
@@ -25976,27 +17216,15 @@ FF和DQ我从来都打不下去，基本玩的都是北妹、传说、EOE、XB2�
 按剧透贴来说，完全可以搞成一个很盛大的剧情；几个反派组织互“无”勾结，但追根到底，则是某人的长线养蛊；要是成本足够，想必就能让无变成有了吧
 
 
-
-
-
-
-
 -----
 
 ####  不应  
 ##### 1309#       发表于 2018-7-23 19:12
 
 
-
-
 神官线完全没有神官的感觉啊，也没觉得有多虔诚，圣职者又不是只要亚萨西和傻白甜就行了。作为一个圣骑和牧师控，真的希望能多些能不能多来点经验老道不傻白甜而且充满正义感的光明牧师或者圣骑。要不然苦行僧式的也行啊
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -26005,22 +17233,13 @@ FF和DQ我从来都打不下去，基本玩的都是北妹、传说、EOE、XB2�
 ##### 1310#       发表于 2018-7-23 19:23
 
 
-
-
 星咏和哪个职业配好些.....................
-
-
-
-
-
 
 
 -----
 
 ####  wss1989  
 ##### 1311#       发表于 2018-7-23 19:36
-
-
 
 
 链接：[https://pan.baidu.com/s/1_pPS3WIqgk7-XGVq-X4G_g](https://pan.baidu.com/s/1_pPS3WIqgk7-XGVq-X4G_g) 密码：17u0
@@ -26031,13 +17250,9 @@ FF和DQ我从来都打不下去，基本玩的都是北妹、传说、EOE、XB2�
 不要轉出S1這種無意義的話就不說了 球球你們少轉轉 我不想惹麻煩
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 5战斗力 +6
@@ -26051,19 +17266,13 @@ FF和DQ我从来都打不下去，基本玩的都是北妹、传说、EOE、XB2�
 | Rarity5| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  囧神的逆袭  
 ##### 1312#       发表于 2018-7-23 20:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40423030&amp;ptid=1711545" target="_blank">wss1989 发表于 2018-7-23 19:36</a>
@@ -26074,16 +17283,10 @@ FF和DQ我从来都打不下去，基本玩的都是北妹、传说、EOE、XB2�
 感谢🙏
 
 
-
-
-
-
-
 -----
 
 ####  不应  
 ##### 1313#       发表于 2018-7-23 21:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40422935&amp;ptid=1711545" target="_blank">thinkhome 发表于 2018-7-23 19:23</a>
@@ -26092,17 +17295,10 @@ FF和DQ我从来都打不下去，基本玩的都是北妹、传说、EOE、XB2�
 星咏配给队伍里的辅助位置就行了，本身技能组就是个加强版舞娘
 
 
-
-
-
-
-
 -----
 
 ####  zmxlegend  
 ##### 1314#       发表于 2018-7-23 21:30
-
-
 
 
 有打最终boss的职业配置参考么
@@ -26111,16 +17307,10 @@ FF和DQ我从来都打不下去，基本玩的都是北妹、传说、EOE、XB2�
 准备有针对性的练一下
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 1315#       发表于 2018-7-23 21:56
-
 
 
  本帖最后由 hgcg-w 于 2018-7-23 22:12 编辑 
@@ -26131,17 +17321,10 @@ FF和DQ我从来都打不下去，基本玩的都是北妹、传说、EOE、XB2�
 对了，有无限刷BP回复道具的地方么
 
 
-
-
-
-
-
 -----
 
 ####  Bani82  
 ##### 1316#       发表于 2018-7-24 00:01
-
-
 
 
 BOSS那些强制带走一个队友的技能没法对抗么？
@@ -26154,16 +17337,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 顺便，猎人这...内心是男人吧！
 
 
-
-
-
-
-
 -----
 
 ####  xqterry  
 ##### 1317#       发表于 2018-7-24 00:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40425322&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-7-24 00:01</a>
@@ -26174,17 +17351,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 另外我总觉得这游戏里所有男性友谊都像搞基 不知为何
 
 
-
-
-
-
-
 -----
 
 ####  灰色的狐狸  
 ##### 1318#       发表于 2018-7-24 01:04
-
-
 
 
 想问问大家手上有多少个防睡眠首饰
@@ -26194,16 +17364,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 而且我队上还没练药师不好弄
 
 
-
-
-
-
-
 -----
 
 ####  Bani82  
 ##### 1319#       发表于 2018-7-24 01:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40425578&amp;ptid=1711545" target="_blank">xqterry 发表于 2018-7-24 00:40</a>
@@ -26227,16 +17391,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 舞娘扶额摇头...猎人这辈子是嫁不出去了（也许父嫁吧）
 
 
-
-
-
-
-
 -----
 
 ####  Bani82  
 ##### 1320#       发表于 2018-7-24 01:55
-
 
 
  本帖最后由 Bani82 于 2018-7-24 01:58 编辑 
@@ -26262,17 +17420,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 对了，暴击在break下也加伤害么？
 
 
-
-
-
-
-
-
 -----
 
 ####  灰色的狐狸  
 ##### 1321#       发表于 2018-7-24 02:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40425922&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-7-24 01:55</a>
@@ -26285,16 +17436,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 加
 
 
-
-
-
-
-
 -----
 
 ####  秋开  
 ##### 1322#       发表于 2018-7-24 05:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40423030&amp;ptid=1711545" target="_blank">wss1989 发表于 2018-7-23 19:36</a>
@@ -26306,16 +17451,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 可以理解，被SE和日本警方坑死的勇士还历历在目。
 
 
-
-
-
-
-
 -----
 
 ####  toutun  
 ##### 1323#       发表于 2018-7-24 07:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40423030&amp;ptid=1711545" target="_blank">wss1989 发表于 2018-07-23 19:36:27</a>
@@ -26326,25 +17465,13 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  pei1019  
 ##### 1324#       发表于 2018-7-24 10:44
 
 
-
-
 求问下，寻找父亲的克里斯第二个任务怎么做，就是在海边的那个……
-
-
-
-
-
 
 
 -----
@@ -26353,24 +17480,15 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 ##### 1325#       发表于 2018-7-24 10:48
 
 
-
-
 我记得之前冰龙口平均经验有800多，怎么我换了人过去似乎只有600多了？
 
 净化森林刷等级感觉效率不高啊，冰龙口2回合肯定搞定了，净化森林有时候要3、4回合
-
-
-
-
-
 
 
 -----
 
 ####  月隐红樱  
 ##### 1326#       发表于 2018-7-24 13:00
-
-
 
 
 宠物小精灵怎么玩？实在太弱了，有没有高效率的方法
@@ -26380,16 +17498,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 有什么好用好抓的小精灵，推荐一下？
 
 
-
-
-
-
-
 -----
 
 ####  fmban  
 ##### 1327#       发表于 2018-7-24 13:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40425721&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-7-24 01:07</a>
@@ -26404,16 +17516,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 最后到舞娘的时候巧妙岔开话题<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 1328#       发表于 2018-7-24 13:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40428237&amp;ptid=1711545" target="_blank">pei1019 发表于 2018-7-24 10:44</a>
@@ -26422,16 +17528,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 去最右边城，接了这个任务会多出来一个商人，身上有他要的东西
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 1329#       发表于 2018-7-24 13:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40428279&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-7-24 10:48</a>
@@ -26448,16 +17548,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 我这种全程没刻意练级的，打到后几个人的第4章boss就感到太弱了
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 1330#       发表于 2018-7-24 14:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40428279&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-7-24 10:48</a>
@@ -26472,16 +17566,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 另外随机碰上BOSS冰狼是可以偷到全恢复GEM的
 
 
-
-
-
-
-
 -----
 
 ####  Bani82  
 ##### 1331#       发表于 2018-7-24 14:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40430363&amp;ptid=1711545" target="_blank">redsouris 发表于 2018-7-24 14:16</a>
@@ -26498,16 +17586,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 在考虑要不要进去做了那狼
 
 
-
-
-
-
-
 -----
 
 ####  pei1019  
 ##### 1332#       发表于 2018-7-24 14:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40429838&amp;ptid=1711545" target="_blank">叶雾 发表于 2018-7-24 13:17</a>
@@ -26516,17 +17598,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 多谢！
 
 
-
-
-
-
-
 -----
 
 ####  妄想中毒  
 ##### 1333#       发表于 2018-7-24 18:32
-
-
 
 
 盗贼第二章城市旁边的虚无王座显示危险度是25级，为什么我27级的猎人被被里面的怪能打出一两千的伤害，这根本不是25级怪能打出来的伤害吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -26535,16 +17610,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 1334#       发表于 2018-7-24 21:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40432823&amp;ptid=1711545" target="_blank">妄想中毒 发表于 2018-7-24 18:32</a>
@@ -26553,16 +17622,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 不靠调和输出，只用来回复和破盾
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 1335#       发表于 2018-7-24 21:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40432823&amp;ptid=1711545" target="_blank">妄想中毒 发表于 2018-7-24 18:32</a>
@@ -26571,17 +17634,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 其实战斗力里和等级呈正相关的只有血量，防具没跟上还停留在普通的一章装备的话打不过怪很正常，举个反例就是跑酷选手20多级已经可以去强打40+地图的小怪练级了，药师的调和主要就是大量回血/解异常/补BP，最多2hit破破防，输出还是靠斧系技能
 
 
-
-
-
-
-
 -----
 
 ####  亚可（本人）  
 ##### 1336#       发表于 2018-7-24 23:15
-
-
 
 
 黄金乡的情报究竟问谁啊？
@@ -26589,16 +17645,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 我已经全村挨个问了一遍也没问出来<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  blackwhalebest  
 ##### 1337#       发表于 2018-7-24 23:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40428279&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-7-24 12:48</a>
@@ -26608,17 +17658,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 你原来有1.5倍exp吧，这游戏等级压制和魔法伤害有点不太平衡，我38级猎人带了三个35去打的支线利维坦，感觉就很刺激了
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 1338#       发表于 2018-7-25 00:59
-
-
 
 
 8个主线全通了
@@ -26634,16 +17677,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 商人线一路弱智到死....最烂
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 1339#       发表于 2018-7-25 01:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40435252&amp;ptid=1711545" target="_blank">亚可（本人） 发表于 2018-7-24 23:15</a>
@@ -26654,16 +17691,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 在第4章的某个城市才能问到
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 1340#       发表于 2018-7-25 07:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40432823&amp;ptid=1711545" target="_blank">妄想中毒 发表于 2018-07-24 18:32:32</a>
@@ -26672,16 +17703,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  水宝宝  
 ##### 1341#       发表于 2018-7-25 09:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40432823&amp;ptid=1711545" target="_blank">妄想中毒 发表于 2018-7-24 18:32</a>
@@ -26693,16 +17718,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 话说冰龙口真的是猫窝吗……在那刷了两天全程就看到过两只猫，感觉出现概率一点都不高啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 1342#       发表于 2018-7-25 09:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40437701&amp;ptid=1711545" target="_blank">水宝宝 发表于 2018-07-25 09:53:58</a>
@@ -26711,16 +17730,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  yuruho  
 ##### 1343#       发表于 2018-7-25 10:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40420177&amp;ptid=1711545" target="_blank">redsouris 发表于 2018-7-23 14:24</a>
@@ -26731,16 +17744,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 谢了，这两天游戏搁置了，回头捡起来试试
 
 
-
-
-
-
-
 -----
 
 ####  Bani82  
 ##### 1344#       发表于 2018-7-25 10:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40436736&amp;ptid=1711545" target="_blank">redsouris 发表于 2018-7-25 07:48</a>
@@ -26749,16 +17756,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 我记得有个一直放毒的BOSS我是让舞娘上大招后然后药师健全化MAX...剩下BOSS就是肉了
 
 
-
-
-
-
-
 -----
 
 ####  白兔吉  
 ##### 1345#       发表于 2018-7-25 10:47
-
 
 
  本帖最后由 白兔吉 于 2018-7-25 10:49 编辑 
@@ -26771,27 +17772,15 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 杖，盾，弓我都刷出来了。大概刷40人掉一个。
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 1346#       发表于 2018-7-25 11:06
 
 
-
-
 历战系列掉率是2%，剑士能两回合一把的时候再去刷吧
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -26800,17 +17789,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 ##### 1347#       发表于 2018-7-25 11:32
 
 
-
-
 猎人这个抓宝宝太鸡肋了，挑战npc时好像也会消耗次数吧
 
 
 只能把战士再拉出来打主力了
-
-
-
-
-
 
 
 -----
@@ -26819,21 +17801,13 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 ##### 1348#       发表于 2018-7-25 11:32
 
 
-
-
 历战枪是哪里打？wiki说是商人初始城，但找不到NPC呀
-
-
-
-
-
 
 
 -----
 
 ####  水宝宝  
 ##### 1349#       发表于 2018-7-25 11:44
-
 
 
  本帖最后由 水宝宝 于 2018-7-25 11:46 编辑 
@@ -26843,27 +17817,15 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 我跟大家不是一个游戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  leonyang19  
 ##### 1350#       发表于 2018-7-25 11:48
 
 
-
-
 四男人组队就差每个男人的最后一章了，接下来换四女人，她们还平均等级9级<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 第一个选的角色什么时候可以换下来，打完这个人的最后一章剧情么？
-
-
-
-
-
 
 
 -----
@@ -26872,16 +17834,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 ##### 1351#       发表于 2018-7-25 11:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40438948&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-07-25 11:32:23</a>
 历战枪是哪里打？wiki说是商人初始城，但找不到NPC呀</blockquote>掉历战枪的10星老太在有另一个NPC挡门的那间房子里
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -26890,15 +17846,9 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 ##### 1352#       发表于 2018-7-25 13:11
 
 
-
  本帖最后由 ACEAKIN 于 2018-7-25 16:13 编辑 
 
 误发了，编辑掉
-
-
-
-
-
 
 
 -----
@@ -26907,15 +17857,9 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 ##### 1353#       发表于 2018-7-25 14:13
 
 
-
 <blockquote>白兔吉 发表于 2018-7-25 01:47
 杖，盾，弓我都刷出来了。大概刷40人掉一个。</blockquote>
 一套已经刷齐了，就剑和杖刷的时间最长
-
-
-
-
-
 
 
 -----
@@ -26924,23 +17868,15 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 ##### 1354#       发表于 2018-7-25 18:17
 
 
-
-
 卡隐藏boss二阶段了 武器大师奥义一轮只能打十几万秒不掉小怪好难啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony H8324, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2
-
-
-
-
-
 
 
 -----
 
 ####  亚可（本人）  
 ##### 1355#       发表于 2018-7-25 19:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40436094&amp;ptid=1711545" target="_blank">叶雾 发表于 2018-7-25 01:24</a>
@@ -26951,16 +17887,10 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 好吧，3Q
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 1356#       发表于 2018-7-25 20:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40443879&amp;ptid=1711545" target="_blank">亚可（本人） 发表于 2018-7-25 19:08</a>
@@ -26971,22 +17901,14 @@ BOSS那些强制带走一个队友的技能没法对抗么？
 地图是不锁流程的，一章就可以去，好像是在沙漠3城
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 1357#         楼主| 发表于 2018-7-25 20:58
 
 
-
-
 Gamefaqs的Which character looks best as的投票
 [https://gamefaqs.gamespot.com/bo ... h-traveler/76835958](https://gamefaqs.gamespot.com/boards/204212-octopath-traveler/76835958)
-
 
 
 就是对于某个职业来说谁的像素小人最好看。
@@ -27012,17 +17934,10 @@ Gamefaqs的Which character looks best as的投票
 最佳猎人：Tressa
 
 
-
-
-
-
-
-
 -----
 
 ####  xqterry  
 ##### 1358#       发表于 2018-7-25 21:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40444926&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-25 20:58</a>
@@ -27032,16 +17947,10 @@ https://gamefaqs.gamespot.com/boards/204212-octopath-t ...</blockquote>
 我跟鬼佬审美完全一致
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 1359#       发表于 2018-7-25 23:49
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这特么隐藏BOSS没打过还要重新打前面的八连站....
@@ -27049,16 +17958,10 @@ https://gamefaqs.gamespot.com/boards/204212-octopath-t ...</blockquote>
 我还是老老实实练级去吧
 
 
-
-
-
-
-
 -----
 
 ####  灰色的狐狸  
 ##### 1360#       发表于 2018-7-26 00:01
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">历战有多少把是可以买的？
@@ -27068,16 +17971,10 @@ https://gamefaqs.gamespot.com/boards/204212-octopath-t ...</blockquote>
 好蛋疼。。
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 1361#       发表于 2018-7-26 00:06
-
 
 
 <blockquote>灰色的狐狸 发表于 2018-7-26 00:01
@@ -27091,16 +17988,10 @@ https://gamefaqs.gamespot.com/boards/204212-octopath-t ...</blockquote>
 要第二把才需要刷
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 1362#       发表于 2018-7-26 00:10
-
 
 
  本帖最后由 windtrack 于 2018-7-26 00:11 编辑 
@@ -27131,33 +18022,19 @@ https://gamefaqs.gamespot.com/boards/204212-octopath-t ...</blockquote>
 刷NPC掉落率据说只有2%...
 
 
-
-
-
-
-
 -----
 
 ####  灰色的狐狸  
 ##### 1363#       发表于 2018-7-26 00:11
 
 
-
-
 ok，谢谢
-
-
-
-
-
 
 
 -----
 
 ####  Bani82  
 ##### 1364#       发表于 2018-7-26 00:16
-
-
 
 
 魔大公轻松过了，倒是之前有个救女儿的支线被团灭了4次
@@ -27167,16 +18044,10 @@ ok，谢谢
 就是那个开场和2个小怪一起，有个弱点是枪的，但是千本枪这技能太看RP了
 
 
-
-
-
-
-
 -----
 
 ####  白兔吉  
 ##### 1365#       发表于 2018-7-26 00:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40439862&amp;ptid=1711545" target="_blank">鱼肉丸子 发表于 2018-7-25 12:42</a>
@@ -27185,16 +18056,10 @@ ok，谢谢
 弓 猎人村10星老头  盾 圣女城10星大叔   杖 药师村10星老太太
 
 
-
-
-
-
-
 -----
 
 ####  xqterry  
 ##### 1366#       发表于 2018-7-26 00:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40446773&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-7-26 00:16</a>
@@ -27204,17 +18069,10 @@ ok，谢谢
 没有等级碾压没有猎人target加命中的话 千本枪就是耍宝的
 
 
-
-
-
-
-
 -----
 
 ####  Bani82  
 ##### 1367#       发表于 2018-7-26 01:10
-
-
 
 
 70级，命中依然堪忧，基本只能中一半
@@ -27224,18 +18082,10 @@ ok，谢谢
 大部分主线流程BOSS都没那个凶
 
 
-
-
-
-
-
-
 -----
 
 ####  幻想风靡_  
 ##### 1368#       发表于 2018-7-26 03:56
-
-
 
 
 我想知道隐藏结局需要多少级左右才行？
@@ -27245,16 +18095,10 @@ ok，谢谢
 不知道能不能打
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 1369#       发表于 2018-7-26 04:01
-
 
 
 <blockquote>幻想风靡_ 发表于 2018-7-26 03:56
@@ -27266,16 +18110,10 @@ ok，谢谢
 全员60+吧，全员70再配置好技能就可以浪了
 
 
-
-
-
-
-
 -----
 
 ####  假山君  
 ##### 1370#       发表于 2018-7-26 04:06
-
 
 
 <blockquote>windtrack 发表于 2018-7-25 23:49
@@ -27285,16 +18123,10 @@ ok，谢谢
 练级没什么用 主要是jp
 
 
-
-
-
-
-
 -----
 
 ####  假山君  
 ##### 1371#       发表于 2018-7-26 04:09
-
 
 
 <blockquote>xqterry 发表于 2018-7-26 00:58
@@ -27302,16 +18134,10 @@ ok，谢谢
 我试过很多次千本枪和狛犬 好像都是有保底中三下的 不确定是不是这样
 
 
-
-
-
-
-
 -----
 
 ####  幻想风靡_  
 ##### 1372#       发表于 2018-7-26 04:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40447537&amp;ptid=1711545" target="_blank">叶雾 发表于 2018-7-26 04:01</a>
@@ -27324,16 +18150,10 @@ ok，谢谢
 也好，通了之后反而没心情去做支线，逛地图之类的事情了orz
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 1373#       发表于 2018-7-26 05:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40447121&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-07-26 01:10:45</a>
@@ -27346,25 +18166,13 @@ ok，谢谢
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  kurisw  
 ##### 1374#       发表于 2018-7-26 09:27
 
 
-
-
 神官的奥义应该怎么用啊？我把神官的奥义用在一个角色身上，让那个角色使用猎人的奥义输出，但是猎人奥义并没有发动三次？说好的神官奥义使一个角色技能连续发动三次呢？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27373,16 +18181,10 @@ ok，谢谢
 ##### 1375#       发表于 2018-7-26 09:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40448598&amp;ptid=1711545" target="_blank">kurisw 发表于 2018-7-26 09:27</a>
 
 神官的奥义应该怎么用啊？我把神官的奥义用在一个角色身上，让那个角色使用猎人的奥义输出，但是猎人奥义并 ...</blockquote>
 神宫的奥义不影响其他奥义
-
-
-
-
-
 
 
 -----
@@ -27391,16 +18193,10 @@ ok，谢谢
 ##### 1376#       发表于 2018-7-26 09:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40448607&amp;ptid=1711545" target="_blank">灰色的狐狸 发表于 2018-7-26 09:28</a>
 
 神宫的奥义不影响其他奥义</blockquote>
 原来如此<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 就是说只能让普通技能连续发动？还以为能让别的角色奥义连续发动的我太天真了……
-
-
-
-
-
 
 
 -----
@@ -27409,16 +18205,10 @@ ok，谢谢
 ##### 1377#       发表于 2018-7-26 09:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40448639&amp;ptid=1711545" target="_blank">kurisw 发表于 2018-7-26 09:31</a>
 
 原来如此 就是说只能让普通技能连续发动？还以为能让别的角色奥义连续发动的我太天真了…… ...</blockquote>
 那也太牛逼了
-
-
-
-
-
 
 
 -----
@@ -27427,15 +18217,9 @@ ok，谢谢
 ##### 1378#       发表于 2018-7-26 11:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40448598&amp;ptid=1711545" target="_blank">kurisw 发表于 2018-7-26 09:27</a>
 神官的奥义应该怎么用啊？我把神官的奥义用在一个角色身上，让那个角色使用猎人的奥义输出，但是猎人奥义并 ...</blockquote>
 不是三次 是三回合内每次二连发
-
-
-
-
-
 
 
 -----
@@ -27444,16 +18228,10 @@ ok，谢谢
 ##### 1379#       发表于 2018-7-26 11:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40447546&amp;ptid=1711545" target="_blank">假山君 发表于 2018-7-26 04:09</a>
 我试过很多次千本枪和狛犬 好像都是有保底中三下的 不确定是不是这样</blockquote>
 千本枪不保底 等级比对方低的话 破防前0命中都是有可能的 命中足够高的话有时看着也不错 
 狛犬不太清楚有没保底 我用的少
-
-
-
-
-
 
 
 -----
@@ -27462,16 +18240,10 @@ ok，谢谢
 ##### 1380#         楼主| 发表于 2018-7-26 11:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40448598&amp;ptid=1711545" target="_blank">kurisw 发表于 2018-7-26 10:27</a>
 
 神官的奥义应该怎么用啊？我把神官的奥义用在一个角色身上，让那个角色使用猎人的奥义输出，但是猎人奥义并 ...</blockquote>
 许多输出或者buff都可以套个神官的二连发直接翻倍肯定很强啊。前中期商人的3W，后期的魔术师配合起来都不错。自己兼符文星咏什么的也能把全员各种buff叠到9。
-
-
-
-
-
 
 
 -----
@@ -27480,16 +18252,10 @@ ok，谢谢
 ##### 1381#       发表于 2018-7-26 11:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40448639&amp;ptid=1711545" target="_blank">kurisw 发表于 2018-7-26 09:31</a>
 
 原来如此 就是说只能让普通技能连续发动？还以为能让别的角色奥义连续发动的我太天真了…… ...</blockquote>
 所有奥义类BUFF都不能影响奥义
-
-
-
-
-
 
 
 -----
@@ -27498,21 +18264,13 @@ ok，谢谢
 ##### 1382#       发表于 2018-7-26 11:25
 
 
-
-
 哪里有刷BP药么，用上瘾了...
-
-
-
-
-
 
 
 -----
 
 ####  Lunamos  
 ##### 1383#         楼主| 发表于 2018-7-26 11:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40449896&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-7-26 12:25</a>
@@ -27522,25 +18280,13 @@ ok，谢谢
 [http://bbs.a9vg.com/thread-5367684-1-1.html](http://bbs.a9vg.com/thread-5367684-1-1.html)
 
 
-
-
-
-
-
 -----
 
 ####  xzhychris  
 ##### 1384#       发表于 2018-7-26 11:47
 
 
-
-
 符文大师的那个物攻 魔攻互换的被动有啥用啊……
-
-
-
-
-
 
 
 -----
@@ -27549,18 +18295,12 @@ ok，谢谢
 ##### 1385#       发表于 2018-7-26 11:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40450110&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-26 11:43</a>
 
 打NPC概率掉落，具体位置参考这个贴
 
 http://bbs.a9vg.com/thread-5367684-1-1.html</blockquote>
 打死一次出城来回刷？我记得打死后不出城切场景NPC是不会复活的吧
-
-
-
-
-
 
 
 -----
@@ -27569,7 +18309,6 @@ http://bbs.a9vg.com/thread-5367684-1-1.html</blockquote>
 ##### 1386#       发表于 2018-7-26 11:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40450110&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-26 11:43</a>
 
 打NPC概率掉落，具体位置参考这个贴
@@ -27578,16 +18317,10 @@ http://bbs.a9vg.com/thread-5367684-1-1.html</blockquote>
 打死一次出城来回刷？我记得打死后不出城切场景NPC是不会复活的吧
 
 
-
-
-
-
-
 -----
 
 ####  Bani82  
 ##### 1387#       发表于 2018-7-26 12:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40450154&amp;ptid=1711545" target="_blank">xzhychris 发表于 2018-7-26 11:47</a>
@@ -27596,16 +18329,10 @@ http://bbs.a9vg.com/thread-5367684-1-1.html</blockquote>
 队里能多一个物理吧，毕竟物理转法系的话SP应该不够，但是舞女堆魔攻转物理基本可以技能闭眼扔了
 
 
-
-
-
-
-
 -----
 
 ####  xzhychris  
 ##### 1388#       发表于 2018-7-26 12:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40450280&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-7-26 12:00</a>
@@ -27614,16 +18341,10 @@ http://bbs.a9vg.com/thread-5367684-1-1.html</blockquote>
 那感觉占用一个被动位置 有点对不起这个隐藏职业啊……如果是战斗中根据放的技能类型自动适应物理和魔法的话就好了
 
 
-
-
-
-
-
 -----
 
 ####  Bani82  
 ##### 1389#       发表于 2018-7-26 12:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40450446&amp;ptid=1711545" target="_blank">xzhychris 发表于 2018-7-26 12:13</a>
@@ -27632,25 +18353,13 @@ http://bbs.a9vg.com/thread-5367684-1-1.html</blockquote>
 感觉是对于那些有个杖弱点又不太有魔法弱点的BOSS有特效吧，然后符文还有个技能时用杖砸人降低对方属防？感觉也能让神官这种兼职一下物理输出？
 
 
-
-
-
-
-
 -----
 
 ####  pei1019  
 ##### 1390#       发表于 2018-7-26 12:22
 
 
-
-
 我现在等级50+，每个人的主业副业奥义都点满了还剩1W左右的JP数……再继续点其他职业的技能吗……
-
-
-
-
-
 
 
 -----
@@ -27659,16 +18368,10 @@ http://bbs.a9vg.com/thread-5367684-1-1.html</blockquote>
 ##### 1391#       发表于 2018-7-26 13:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40450533&amp;ptid=1711545" target="_blank">pei1019 发表于 2018-7-26 12:22</a>
 
 我现在等级50+，每个人的主业副业奥义都点满了还剩1W左右的JP数……再继续点其他职业的技能吗…… ...</blockquote>
 被动能学多学几个吧，尤其伤害突破上限 二动 回复突破上限这些
-
-
-
-
-
 
 
 -----
@@ -27677,16 +18380,10 @@ http://bbs.a9vg.com/thread-5367684-1-1.html</blockquote>
 ##### 1392#       发表于 2018-7-26 13:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40450897&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-26 13:01</a>
 
 被动能学多学几个吧，尤其伤害突破上限 二动 回复突破上限这些</blockquote>
 哦对的，学者血量还是少，学一个回复突破不错
-
-
-
-
-
 
 
 -----
@@ -27695,23 +18392,16 @@ http://bbs.a9vg.com/thread-5367684-1-1.html</blockquote>
 ##### 1393#       发表于 2018-7-26 13:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40449662&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-26 11:06</a>
 
 许多输出或者buff都可以套个神官的二连发直接翻倍肯定很强啊。前中期商人的3W，后期的魔术师配合起来都不 ...</blockquote>
 魔术师星咏什么的离我还很遥远orz 商人3W这个倒是没想到，多谢~
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 1394#       发表于 2018-7-26 14:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40450154&amp;ptid=1711545" target="_blank">xzhychris 发表于 2018-7-26 11:47</a>
@@ -27724,25 +18414,13 @@ http://bbs.a9vg.com/thread-5367684-1-1.html</blockquote>
 后期因为魔攻物攻都容易堆高了，这个被动转换的数值差太少就没什么意义了
 
 
-
-
-
-
-
 -----
 
 ####  xzhychris  
 ##### 1395#       发表于 2018-7-26 15:55
 
 
-
-
 现在游戏的伤害计算公式有了吗，技能倍率啥的
-
-
-
-
-
 
 
 -----
@@ -27751,15 +18429,9 @@ http://bbs.a9vg.com/thread-5367684-1-1.html</blockquote>
 ##### 1396#       发表于 2018-7-26 16:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40450486&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-7-26 14:18</a>
 感觉是对于那些有个杖弱点又不太有魔法弱点的BOSS有特效吧，然后符文还有个技能时用杖砸人降低对方属防？ ...</blockquote>
 这游戏的属性输出太过优秀了，无弱点下魔法伤害也基本能高出同期的弱点物理伤害。魔法使用的sp其实用量完全可以靠装备以及技能快速无效回复过来，还没有miss问题。物理伤害基本都是靠的弱点，多动，buff才能打出来。确实这个技能相对鸡肋了点
-
-
-
-
-
 
 
 -----
@@ -27768,15 +18440,9 @@ http://bbs.a9vg.com/thread-5367684-1-1.html</blockquote>
 ##### 1397#       发表于 2018-7-26 16:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40450154&amp;ptid=1711545" target="_blank">xzhychris 发表于 2018-7-26 11:47</a>
 符文大师的那个物攻 魔攻互换的被动有啥用啊……</blockquote>
 把剑士物攻堆999 带物属转换 附魔之后一刀200+3w
-
-
-
-
-
 
 
 -----
@@ -27785,16 +18451,10 @@ http://bbs.a9vg.com/thread-5367684-1-1.html</blockquote>
 ##### 1398#       发表于 2018-7-26 16:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40453010&amp;ptid=1711545" target="_blank">xqterry 发表于 2018-7-26 16:30</a>
 
 把剑士物攻堆999 带物属转换 附魔之后一刀200+3w</blockquote>
 那直接堆魔攻附魔呢 感觉游戏里的魔攻和武功堆的难度差不多呀
-
-
-
-
-
 
 
 -----
@@ -27803,16 +18463,10 @@ http://bbs.a9vg.com/thread-5367684-1-1.html</blockquote>
 ##### 1399#       发表于 2018-7-26 17:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40453056&amp;ptid=1711545" target="_blank">xzhychris 发表于 2018-07-26 16:36:34</a>
 那直接堆魔攻附魔呢 感觉游戏里的魔攻和武功堆的难度差不多呀</blockquote>重点是符文附魔后全队一起平砍，除了最终boss没有扛得住的
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -27821,16 +18475,10 @@ http://bbs.a9vg.com/thread-5367684-1-1.html</blockquote>
 ##### 1400#       发表于 2018-7-26 19:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40453056&amp;ptid=1711545" target="_blank">xzhychris 发表于 2018-7-26 16:36</a>
 那直接堆魔攻附魔呢 感觉游戏里的魔攻和武功堆的难度差不多呀</blockquote>
 还是跟成长有点关系吧 学者属攻很容易就999了 剑士很难 
 不过物攻也挺难的 我剑士还差得远
-
-
-
-
-
 
 
 -----
@@ -27839,15 +18487,9 @@ http://bbs.a9vg.com/thread-5367684-1-1.html</blockquote>
 ##### 1401#       发表于 2018-7-26 19:44
 
 
-
 <blockquote>xzhychris 发表于 2018-7-26 16:36
 那直接堆魔攻附魔呢 感觉游戏里的魔攻和武功堆的难度差不多呀</blockquote>
 魔攻比物攻好堆，而且还有魔攻加100的饰品，与其物属转换还不如直接上学者，伤害一样还能多一个技能位
-
-
-
-
-
 
 
 -----
@@ -27856,14 +18498,7 @@ http://bbs.a9vg.com/thread-5367684-1-1.html</blockquote>
 ##### 1402#       发表于 2018-7-26 20:32
 
 
-
-
 我都20多级了打26级的boss对方一刀1000多血能直接秒了我
-
-
-
-
-
 
 
 -----
@@ -27872,16 +18507,10 @@ http://bbs.a9vg.com/thread-5367684-1-1.html</blockquote>
 ##### 1403#         楼主| 发表于 2018-7-26 20:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40455033&amp;ptid=1711545" target="_blank">Terminal 发表于 2018-7-26 21:32</a>
 
 我都20多级了打26级的boss对方一刀1000多血能直接秒了我</blockquote>
 前期实在苦手就去捡或者偷一些好装备吧，装备的加成很重要。
-
-
-
-
-
 
 
 -----
@@ -27890,15 +18519,9 @@ http://bbs.a9vg.com/thread-5367684-1-1.html</blockquote>
 ##### 1404#       发表于 2018-7-26 21:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40455113&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-26 20:43</a>
 前期实在苦手就去捡或者偷一些好装备吧，装备的加成很重要。</blockquote>
 最后靠嗑药苟死的，超没成就感，唉<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27907,14 +18530,7 @@ http://bbs.a9vg.com/thread-5367684-1-1.html</blockquote>
 ##### 1405#       发表于 2018-7-26 21:08
 
 
-
-
 玩到现在感觉药师最强，神官最菜，学者上场必带
-
-
-
-
-
 
 
 -----
@@ -27923,16 +18539,9 @@ http://bbs.a9vg.com/thread-5367684-1-1.html</blockquote>
 ##### 1406#       发表于 2018-7-26 21:34
 
 
-
-
 鸟葬巢穴和双子瀑布的野生boss杀了会复活吗 不会的话我还是尽量抓一下吧..
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -27941,16 +18550,9 @@ http://bbs.a9vg.com/thread-5367684-1-1.html</blockquote>
 ##### 1407#       发表于 2018-7-26 21:47
 
 
-
-
 剑士到商人中间。  剑士镇北  这张图有个紫色箱子有哪位大佬拿到了嘛
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -27959,14 +18561,7 @@ http://bbs.a9vg.com/thread-5367684-1-1.html</blockquote>
 ##### 1408#       发表于 2018-7-26 21:56
 
 
-
-
 药师该怎么用，还没摸透
-
-
-
-
-
 
 
 -----
@@ -27975,22 +18570,13 @@ http://bbs.a9vg.com/thread-5367684-1-1.html</blockquote>
 ##### 1409#       发表于 2018-7-26 23:15
 
 
-
-
 药师就调和BP，必要时加加血解解异常
-
-
-
-
-
 
 
 -----
 
 ####  Bani82  
 ##### 1410#       发表于 2018-7-26 23:30
-
-
 
 
 四个上位职业拿到了，剩下有难点的就是隐藏BOSS了吧？
@@ -28003,16 +18589,10 @@ http://bbs.a9vg.com/thread-5367684-1-1.html</blockquote>
 有什么推荐到时候的人物和职业分组么？可以切流程BOSS的时候顺道练一下之前没练的人了
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 1411#       发表于 2018-7-26 23:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40456207&amp;ptid=1711545" target="_blank">suiginsei 发表于 2018-7-26 23:15</a>
@@ -28021,16 +18601,10 @@ http://bbs.a9vg.com/thread-5367684-1-1.html</blockquote>
 药师打隐藏BOSS简直是核心...奥义吃全恢复，全队永动机
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 1412#       发表于 2018-7-27 00:00
-
 
 
  本帖最后由 windtrack 于 2018-7-27 21:24 编辑 
@@ -28062,18 +18636,10 @@ BOSS抽完药师直接一个全恢复奶满HP SP BP
 这BOSS很特么古典RPG的醍醐味，算上之前的演出是10连战不能存盘，打一次就一个多小时过去了...隐藏BOSS2阶段的难度大概是符文+星咏+豪武将同时在场和你打的级别吧
 
 
-
-
-
-
-
-
 -----
 
 ####  Bani82  
 ##### 1413#       发表于 2018-7-27 00:37
-
-
 
 
 符文+星咏+豪武将同时在场
@@ -28082,25 +18648,13 @@ BOSS抽完药师直接一个全恢复奶满HP SP BP
 我还是全员99级再去见他吧...
 
 
-
-
-
-
-
 -----
 
 ####  cqkxywj  
 ##### 1414#       发表于 2018-7-27 02:55
 
 
-
-
 第一章有能干爆商人出生地那個守門的村民的方法嗎？
-
-
-
-
-
 
 
 -----
@@ -28109,16 +18663,10 @@ BOSS抽完药师直接一个全恢复奶满HP SP BP
 ##### 1415#       发表于 2018-7-27 03:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40457371&amp;ptid=1711545" target="_blank">cqkxywj 发表于 2018-07-27 02:55:09</a>
 第一章有能干爆商人出生地那個守門的村民的方法嗎？</blockquote>破防之后砸特大魔石，或者剑士副药师上毒苟到死。但是屋里是10星老太，如果看门的都打不动，进去也没有意思
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -28127,21 +18675,13 @@ BOSS抽完药师直接一个全恢复奶满HP SP BP
 ##### 1416#       发表于 2018-7-27 09:57
 
 
-
-
 平均55级去打魔大公居然翻车了…………我记得楼里有位大大说过神官小姐姐的魔法反弹可以给全员上的，但是已经翻不到了，求问下怎么上全员魔法反弹<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  windtrack  
 ##### 1417#       发表于 2018-7-27 10:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40459041&amp;ptid=1711545" target="_blank">pei1019 发表于 2018-7-27 09:57</a>
@@ -28156,16 +18696,10 @@ BOSS抽完药师直接一个全恢复奶满HP SP BP
 之后无限叠BUFF就可以了
 
 
-
-
-
-
-
 -----
 
 ####  假山君  
 ##### 1418#       发表于 2018-7-27 10:06
-
 
 
 <blockquote>pei1019 发表于 2018-7-27 09:57
@@ -28173,16 +18707,10 @@ BOSS抽完药师直接一个全恢复奶满HP SP BP
 魔大公开局会放buff无效的debuff 要撑过去之后才能上反弹
 
 
-
-
-
-
-
 -----
 
 ####  pei1019  
 ##### 1419#       发表于 2018-7-27 10:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40459131&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-27 10:05</a>
@@ -28195,16 +18723,10 @@ BOSS抽完药师直接一个全恢复奶满HP SP BP
 多谢。
 
 
-
-
-
-
-
 -----
 
 ####  xzhychris  
 ##### 1420#       发表于 2018-7-27 11:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40456495&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-27 00:00</a>
@@ -28223,16 +18745,10 @@ BOSS抽完药师直接一个全恢复奶满HP SP BP
 这种吗
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 1421#       发表于 2018-7-27 11:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40460109&amp;ptid=1711545" target="_blank">xzhychris 发表于 2018-7-27 11:32</a>
@@ -28253,16 +18769,10 @@ BOSS抽完药师直接一个全恢复奶满HP SP BP
 这俩永久BUFF主要不会被BOSS的消BUFF消掉，非常划算
 
 
-
-
-
-
-
 -----
 
 ####  xzhychris  
 ##### 1422#       发表于 2018-7-27 11:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40460258&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-27 11:43</a>
@@ -28276,16 +18786,10 @@ BOSS抽完药师直接一个全恢复奶满HP SP BP
 是nga的一篇攻略贴里的翻译，似乎是以英文版为基础翻译的
 
 
-
-
-
-
-
 -----
 
 ####  Niu  
 ##### 1423#       发表于 2018-7-27 12:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40456741&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-7-26 08:37</a>
@@ -28319,17 +18823,10 @@ break魔女之前先上好符文 一刀20000的狀況下6刀左右就能放倒�
 重複到把黑咒神打死
 
 
-
-
-
-
-
 -----
 
 ####  Bani82  
 ##### 1424#       发表于 2018-7-27 13:05
-
-
 
 
 豪武将第4个被动：永続フィジカルアップ
@@ -28344,16 +18841,10 @@ break魔女之前先上好符文 一刀20000的狀況下6刀左右就能放倒�
 一般RPG很多BOSS都不太吃这种异常的感觉，比如异闻录、真女之类的
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 1425#       发表于 2018-7-27 13:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40460570&amp;ptid=1711545" target="_blank">Niu 发表于 2018-7-27 12:14</a>
@@ -28367,16 +18858,10 @@ break魔女之前先上好符文 一刀20000的狀況下6刀左右就能放倒�
 所以第二形态主要还是要撑防撑血，全员血量必须时刻保持5K以上
 
 
-
-
-
-
-
 -----
 
 ####  Niu  
 ##### 1426#       发表于 2018-7-27 13:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40461067&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-26 21:08</a>
@@ -28396,16 +18881,10 @@ break魔女之前先上好符文 一刀20000的狀況下6刀左右就能放倒�
 大劍也放倒後就不可能會輸了
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 1427#       发表于 2018-7-27 14:05
-
 
 
  本帖最后由 redsouris 于 2018-7-27 14:15 编辑 
@@ -28419,26 +18898,15 @@ break魔女之前先上好符文 一刀20000的狀況下6刀左右就能放倒�
 BOSS是对不同异常抗性不同，大部分BOSS有睡眠混乱耐性，还有一些对毒也有耐性，耐黑暗的很少
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 1428#         楼主| 发表于 2018-7-27 14:31
 
 
-
 [http://www.octopathtravelmap.com](http://www.octopathtravelmap.com)
 
 爱好者做的网站, 方便游戏外查看地图。
-
-
-
-
-
 
 
 -----
@@ -28447,22 +18915,15 @@ BOSS是对不同异常抗性不同，大部分BOSS有睡眠混乱耐性，还有
 ##### 1429#       发表于 2018-7-27 14:56
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">一个星期没开游戏，现在全队还在做第二章主线
 
 有没有什么推荐的攻略顺序啊，比如先打谁得主线，还有什么时候能去挑战上位职业什么的。
-
-
-
-
-
 
 
 -----
 
 ####  Lunamos  
 ##### 1430#         楼主| 发表于 2018-7-27 15:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40462155&amp;ptid=1711545" target="_blank">haru橙子 发表于 2018-7-27 15:56</a>
@@ -28488,13 +18949,9 @@ BOSS是对不同异常抗性不同，大部分BOSS有睡眠混乱耐性，还有
 其实这游戏只要有神官的回血突破上限被动，等级对游戏进程的影响就很小。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -28504,12 +18961,7 @@ BOSS是对不同异常抗性不同，大部分BOSS有睡眠混乱耐性，还有
 | haru橙子| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -28518,23 +18970,16 @@ BOSS是对不同异常抗性不同，大部分BOSS有睡眠混乱耐性，还有
 ##### 1431#       发表于 2018-7-27 15:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40462422&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-27 15:17</a>
 
 级别差距较大的话，主线按照推荐等级由低到高打即可。全过程都不需要刻意练级。差个三五级不是事，迷宫里 ...</blockquote>
 感谢
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 1432#         楼主| 发表于 2018-7-27 15:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40456495&amp;ptid=1711545" target="_blank">windtrack 发表于 2018-7-27 01:00</a>
@@ -28546,17 +18991,10 @@ BOSS是对不同异常抗性不同，大部分BOSS有睡眠混乱耐性，还有
 讲真我觉得这游戏被奶爆毁了。
 
 
-
-
-
-
-
 -----
 
 ####  Rarity5  
 ##### 1433#       发表于 2018-7-27 15:51
-
-
 
 
 不带奶爆去碰隐藏boss 怕是一轮就团灭了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer"> （队伍平均60级）
@@ -28564,16 +19002,10 @@ BOSS是对不同异常抗性不同，大部分BOSS有睡眠混乱耐性，还有
 —— 来自 Sony H8324, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 1434#       发表于 2018-7-27 16:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40462493&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-27 15:24</a>
@@ -28584,16 +19016,10 @@ BOSS是对不同异常抗性不同，大部分BOSS有睡眠混乱耐性，还有
 有时候会出现刚好剩下一点点绿血，没法继续奶爆，然后被连击打死的情况
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 1435#         楼主| 发表于 2018-7-27 16:39
-
 
 
 <blockquote>redsouris 发表于 2018-7-27 17:34
@@ -28603,16 +19029,10 @@ BOSS是对不同异常抗性不同，大部分BOSS有睡眠混乱耐性，还有
 死了也能抬满，让boss锤得绝望
 
 
-
-
-
-
-
 -----
 
 ####  xqterry  
 ##### 1436#       发表于 2018-7-27 16:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40463321&amp;ptid=1711545" target="_blank">redsouris 发表于 2018-7-27 16:34</a>
@@ -28622,25 +19042,13 @@ BOSS是对不同异常抗性不同，大部分BOSS有睡眠混乱耐性，还有
 死了特大复活药灌下去 9999弹射起身
 
 
-
-
-
-
-
 -----
 
 ####  lly778  
 ##### 1437#       发表于 2018-7-27 18:31
 
 
-
-
 这游戏当初泄露的世界地图好像和实际的不一样？
-
-
-
-
-
 
 
 -----
@@ -28649,22 +19057,15 @@ BOSS是对不同异常抗性不同，大部分BOSS有睡眠混乱耐性，还有
 ##### 1438#       发表于 2018-7-28 02:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏的OST是不是少曲目，有一首BOSS战的曲目特别喜欢，
 
 然后OST里的バトル1到3和ボスバトル1和2都不是我想听的。
-
-
-
-
-
 
 
 -----
 
 ####  yanhan0410  
 ##### 1439#       发表于 2018-7-28 02:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40468066&amp;ptid=1711545" target="_blank">yanhan0410 发表于 2018-7-28 03:39</a>
@@ -28677,26 +19078,15 @@ BOSS是对不同异常抗性不同，大部分BOSS有睡眠混乱耐性，还有
 喜欢的片段从2分30秒开始
 
 
-
-
-
-
-
 -----
 
 ####  真红之闪电  
 ##### 1440#       发表于 2018-7-28 12:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40462422&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-27 15:17</a>
 级别差距较大的话，主线按照推荐等级由低到高打即可。全过程都不需要刻意练级。差个三五级不是事，迷宫里 ...</blockquote>
 那俩饰品怎么拿的？神女战士通关了要做任务还是啥？
-
-
-
-
-
 
 
 -----
@@ -28705,16 +19095,10 @@ BOSS是对不同异常抗性不同，大部分BOSS有睡眠混乱耐性，还有
 ##### 1441#         楼主| 发表于 2018-7-28 13:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40470502&amp;ptid=1711545" target="_blank">真红之闪电 发表于 2018-7-28 13:21</a>
 
 那俩饰品怎么拿的？神女战士通关了要做任务还是啥？</blockquote>
 都是很简单的支线，一个是友情のバッジ，一个是隊長のバッジ。神官的找第二章（セントブリッジ）的小孩领支线，剑士的找ウェルスプリング最左面的房间原来那个队长领支线。神官领了支线到另外一半城镇找桥边小女孩买花送回去就完成了，剑士那个探听一下ゴールドショア的主教再回去对话。
-
-
-
-
-
 
 
 -----
@@ -28723,14 +19107,7 @@ BOSS是对不同异常抗性不同，大部分BOSS有睡眠混乱耐性，还有
 ##### 1442#       发表于 2018-7-28 18:33
 
 
-
-
 我TM再也不手贱打BOSS的时候用舞女跳舞了，本来BOSS都快死了舞女跳个舞给BOSS奶了几万血还送了4回合BUFF<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28739,15 +19116,9 @@ BOSS是对不同异常抗性不同，大部分BOSS有睡眠混乱耐性，还有
 ##### 1443#       发表于 2018-7-28 18:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40472913&amp;ptid=1711545" target="_blank">妄想中毒 发表于 2018-7-28 18:33</a>
 我TM再也不手贱打BOSS的时候用舞女跳舞了，本来BOSS都快死了舞女跳个舞给BOSS奶了几万血还送了4回合BUFF[f: ...</blockquote>
 总比背水加地面炸裂好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28756,22 +19127,13 @@ BOSS是对不同异常抗性不同，大部分BOSS有睡眠混乱耐性，还有
 ##### 1444#       发表于 2018-7-29 14:28
 
 
-
-
 有些细节好有趣，欧菲利亚第二章城外拦路要钱的小流氓NPC，开始技能是扔沙子，支线做完被招安到大圣堂打扫卫生之后技能变成了扔抹布<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Bani82  
 ##### 1445#       发表于 2018-7-29 22:57
-
-
 
 
 有些迷宫的箱子是不是第一次去不给拿？
@@ -28781,16 +19143,10 @@ BOSS是对不同异常抗性不同，大部分BOSS有睡眠混乱耐性，还有
 我记得还有一个是什么王墓里面有个紫箱子也是找不到怎么拿
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 1446#       发表于 2018-7-30 01:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40484173&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-7-29 22:57</a>
@@ -28807,16 +19163,10 @@ BOSS是对不同异常抗性不同，大部分BOSS有睡眠混乱耐性，还有
 王家之墓那个是从下面的台阶背面往北走
 
 
-
-
-
-
-
 -----
 
 ####  水宝宝  
 ##### 1447#       发表于 2018-7-30 09:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40461897&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-27 14:31</a>
@@ -28827,17 +19177,10 @@ http://www.octopathtravelmap.com
 这个好用，多谢！
 
 
-
-
-
-
-
 -----
 
 ####  kurama221  
 ##### 1448#       发表于 2018-7-30 10:33
-
-
 
 
 救救孩子，求个吃各种永久加属性的果子的建议好吗<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
@@ -28845,16 +19188,10 @@ http://www.octopathtravelmap.com
 第二章都打完了，果子还一个没吃
 
 
-
-
-
-
-
 -----
 
 ####  abbccc200  
 ##### 1449#       发表于 2018-7-30 10:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40487709&amp;ptid=1711545" target="_blank">kurama221 发表于 2018-7-30 10:33</a>
@@ -28865,17 +19202,10 @@ http://www.octopathtravelmap.com
 魔攻喂学者物攻喂剑士，其他按个人喜好来就行，指望盗贼输出的话可以喂下速度
 
 
-
-
-
-
-
 -----
 
 ####  leonyang19  
 ##### 1450#       发表于 2018-7-30 10:53
-
-
 
 
 昨晚用55级的男人队打了一晚上豪武匠，跪了七八次，后面的几次挫败感太强，用苟着的战术，debuff，上毒，结果红血暴走后各种崩盘
@@ -28890,16 +19220,10 @@ http://www.octopathtravelmap.com
 55级按理说不应该这么惨啊，有什么比较好的打法么？魔大公和星咏准备晚上回去打
 
 
-
-
-
-
-
 -----
 
 ####  假山君  
 ##### 1451#       发表于 2018-7-30 10:55
-
 
 
 <blockquote>leonyang19 发表于 2018-7-30 10:53
@@ -28911,16 +19235,10 @@ http://www.octopathtravelmap.com
 让放一次魔法弹自己12次....
 
 
-
-
-
-
-
 -----
 
 ####  windtrack  
 ##### 1452#       发表于 2018-7-30 10:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40487709&amp;ptid=1711545" target="_blank">kurama221 发表于 2018-7-30 10:33</a>
@@ -28931,16 +19249,10 @@ http://www.octopathtravelmap.com
 SP最大加成建议给剑士，开了豪武匠后战士的SP根本不够用
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 1453#       发表于 2018-7-30 10:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40487963&amp;ptid=1711545" target="_blank">leonyang19 发表于 2018-7-30 10:53</a>
@@ -28951,16 +19263,10 @@ SP最大加成建议给剑士，开了豪武匠后战士的SP根本不够用
 剩下的两个都是比较菜的，舞娘大+神官法反无压力过
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 1454#         楼主| 发表于 2018-7-30 11:03
-
 
 
  本帖最后由 Lunamos 于 2018-7-30 16:38 编辑 
@@ -28973,16 +19279,10 @@ SP最大加成建议给剑士，开了豪武匠后战士的SP根本不够用
 再就是队里至少两人带上奶量突破上限的被动会好打很多。这技能虽然很耗JP但非常值。再带个大天使、春哥什么的，就很稳。
 
 
-
-
-
-
-
 -----
 
 ####  水宝宝  
 ##### 1455#       发表于 2018-7-30 15:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40487963&amp;ptid=1711545" target="_blank">leonyang19 发表于 2018-7-30 10:53</a>
@@ -28996,16 +19296,10 @@ SP最大加成建议给剑士，开了豪武匠后战士的SP根本不够用
 剩下的魔术师和星咏人都比这俩好打多了，魔术师让神官配合舞女奥义上反弹护罩可以无脑弹死，星咏人有了魔术师之后也很简单，我都不记得打星咏人的时候有什么留下深刻印象的地方了……
 
 
-
-
-
-
-
 -----
 
 ####  leonyang19  
 ##### 1456#       发表于 2018-7-30 16:27
-
 
 
  本帖最后由 leonyang19 于 2018-7-30 16:33 编辑 
@@ -29025,16 +19319,10 @@ SP最大加成建议给剑士，开了豪武匠后战士的SP根本不够用
 基本上是奥贝里克一跪，战线就崩，就算不崩，重建战线的回合boss就要6动了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">倒是魔剑士，跪了一次就过了
 
 
-
-
-
-
-
 -----
 
 ####  Bani82  
 ##### 1457#       发表于 2018-7-30 18:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40491833&amp;ptid=1711545" target="_blank">leonyang19 发表于 2018-7-30 16:27</a>
@@ -29045,25 +19333,13 @@ SP最大加成建议给剑士，开了豪武匠后战士的SP根本不够用
 先搞个符文大师再去打吧
 
 
-
-
-
-
-
 -----
 
 ####  lanyu_u  
 ##### 1458#       发表于 2018-7-30 19:56
 
 
-
-
 有了魔术师就都好打了，上好学者神官奥义，舞娘上个孔雀舞，break后一动可以输出至少20w，根本就没有红血之后的事……我现在60+级学者可以打40w
-
-
-
-
-
 
 
 -----
@@ -29072,24 +19348,16 @@ SP最大加成建议给剑士，开了豪武匠后战士的SP根本不够用
 ##### 1459#       发表于 2018-7-30 20:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40491833&amp;ptid=1711545" target="_blank">leonyang19 发表于 2018-07-30 16:27:54</a>
 倒是魔剑士，跪了一次就过了</blockquote>符文大师练起来，商人符文大师，打豪武将很简单，全员必闪，符文追击一发几万敲死
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  奶牛  
 ##### 1460#       发表于 2018-7-30 21:15
-
-
 
 
 nico有个低等级裸（无上级职业，无限界突破，无奥义）过隐藏职业BOSS的可以参考一下
@@ -29099,17 +19367,10 @@ lv33星占师 sm33530924
 魔大公估计太简单别人都不放了
 
 
-
-
-
-
-
 -----
 
 ####  平昭·南宫司卿  
 ##### 1461#       发表于 2018-7-30 22:29
-
-
 
 
 买游戏之前看专楼好像有人提到神官四章打完会有什么方法得一个加经验的东西？
@@ -29119,16 +19380,10 @@ lv33星占师 sm33530924
 当然也可能一开始就记错了
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 1462#         楼主| 发表于 2018-7-30 22:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40495560&amp;ptid=1711545" target="_blank">平昭·南宫司卿 发表于 2018-7-30 23:29</a>
@@ -29139,16 +19394,10 @@ lv33星占师 sm33530924
 神官4章打完是JP1.5倍的饰品。去第二章的城找那几个小孩领任务，出去到桥边买花进去交任务就行了。
 
 
-
-
-
-
-
 -----
 
 ####  平昭·南宫司卿  
 ##### 1463#       发表于 2018-7-30 22:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40495656&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-7-30 22:39</a>
@@ -29157,16 +19406,10 @@ lv33星占师 sm33530924
 哦哦感谢，那么经验应该也有1.5倍饰品？那个怎么搞呢（就直接伸手好了）
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 1464#         楼主| 发表于 2018-7-30 22:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40495712&amp;ptid=1711545" target="_blank">平昭·南宫司卿 发表于 2018-7-30 23:43</a>
@@ -29175,13 +19418,9 @@ lv33星占师 sm33530924
 经验1.5倍要求剑士和神官两个人4章通关。找ウェルスプリング最左面的房间原来那个队长领支线，探听一下ゴールドショア的主教交任务。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -29191,19 +19430,13 @@ lv33星占师 sm33530924
 | 平昭·南宫司卿| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  噂の船  
 ##### 1465#       发表于 2018-7-30 23:12
-
 
 
  本帖最后由 噂の船 于 2018-7-30 23:16 编辑 
@@ -29216,16 +19449,10 @@ lv33星占师 sm33530924
 还有就是 剥掉武器八个人的属性是不是都有各自的倾向的，有没有人总结一下= =
 
 
-
-
-
-
-
 -----
 
 ####  ACEAKIN  
 ##### 1466#       发表于 2018-7-30 23:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40495977&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-7-30 23:12</a>
@@ -29242,25 +19469,13 @@ lv33星占师 sm33530924
 [https://gameopera.jp/octopathtraveler](https://gameopera.jp/octopathtraveler) 这里可以查每个职业各项能力值的职业加成
 
 
-
-
-
-
-
 -----
 
 ####  Bani82  
 ##### 1467#       发表于 2018-7-31 00:28
 
 
-
-
 魔攻都推荐学者？我貌似记得之前看了下同级的情况下魔攻是舞女比较强的样子
-
-
-
-
-
 
 
 -----
@@ -29269,14 +19484,7 @@ lv33星占师 sm33530924
 ##### 1468#       发表于 2018-7-31 00:52
 
 
-
-
 这游戏最强防具不能量产的？武器倒是有npc可以掉落。
-
-
-
-
-
 
 
 -----
@@ -29285,23 +19493,16 @@ lv33星占师 sm33530924
 ##### 1469#       发表于 2018-7-31 05:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40496625&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-07-31 00:28:53</a>
 魔攻都推荐学者？我貌似记得之前看了下同级的情况下魔攻是舞女比较强的样子 ...</blockquote>官方攻略书上，99级魔攻最高是学者的370，同级舞娘能更高恐怕是算上副职业加成之后
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Bani82  
 ##### 1470#       发表于 2018-7-31 10:50
-
 
 
  本帖最后由 Bani82 于 2018-7-31 10:51 编辑 
@@ -29317,32 +19518,19 @@ lv33星占师 sm33530924
 可能当时舞女（学者）、学者（神官），所以粗略看了下觉得舞女魔攻更高
 
 
-
-
-
-
-
 -----
 
 ####  shyso  
 ##### 1471#       发表于 2018-8-1 03:09
 
 
-
-
 极限魔攻是不是盗贼装两把火伤或者猎人装两把雷伤武器兼职魔法师
-
-
-
-
-
 
 
 -----
 
 ####  假山君  
 ##### 1472#       发表于 2018-8-1 04:19
-
 
 
 <blockquote>shyso 发表于 2018-8-1 03:09
@@ -29352,26 +19540,15 @@ lv33星占师 sm33530924
 火和风是两把
 
 
-
-
-
-
-
 -----
 
 ####  水宝宝  
 ##### 1473#       发表于 2018-8-1 13:16
 
 
-
  本帖最后由 水宝宝 于 2018-8-1 13:21 编辑 
 
 问个特别丢脸的问题，我特么竟然主线卡关了，学者第四章打完BOSS以后，要去古遗迹书库调查，我已经走到绿点提示的位置了，然而并没有什么可以调查的东西？？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 就是在打BOSS前面一点发生了一点剧情有很多书架并且有个雕像的地方啊，书库难道不是那里？？
-
-
-
-
-
 
 
 -----
@@ -29380,17 +19557,10 @@ lv33星占师 sm33530924
 ##### 1474#       发表于 2018-8-1 13:30
 
 
-
-
 主力四人22级，被神官第二章的狼制裁了………………
 
 
 我是不是先去刷JP出大招比较好？
-
-
-
-
-
 
 
 -----
@@ -29399,15 +19569,9 @@ lv33星占师 sm33530924
 ##### 1475#         楼主| 发表于 2018-8-1 13:40
 
 
-
 <blockquote>水宝宝 发表于 2018-8-1 14:16
 问个特别丢脸的问题，我特么竟然主线卡关了，学者第四章打完BOSS以后，要去古遗迹书库调查，我已经走到绿点 ...</blockquote>
 记得是雕像右边有可调查吧，然后书架上有三个绿点的地方，用学者技能
-
-
-
-
-
 
 
 -----
@@ -29416,23 +19580,16 @@ lv33星占师 sm33530924
 ##### 1476#       发表于 2018-8-1 13:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40512634&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-8-1 13:40</a>
 
 记得是雕像右边有可调查吧，然后书架上有三个绿点的地方，用学者技能</blockquote>
 感谢！原来是雕像右边的书架靠近后有A键提示<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 我前面在雕像以及下面那堆书架转悠半天啥都没有还以为不是这里……
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 1477#       发表于 2018-8-4 15:13
-
 
 
  本帖最后由 笛普达克范太希 于 2018-8-4 16:00 编辑 
@@ -29453,10 +19610,6 @@ lv33星占师 sm33530924
 2018-8-4 14:22 上传
 
 
-
-
-
-
 2.HYPER MUTEKI<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你也可以是隐藏BOSS
 
 <img src="https://img.saraba1st.com/forum/201808/04/142518shkphpfph4vhvvv9.png" referrerpolicy="no-referrer">
@@ -29467,10 +19620,6 @@ lv33星占师 sm33530924
 下载附件
 
 2018-8-4 14:25 上传
-
-
-
-
 
 
 3.AOE加速
@@ -29485,10 +19634,6 @@ lv33星占师 sm33530924
 2018-8-4 14:28 上传
 
 
-
-
-
-
 4.AOE加双攻，比较不错
 
 <img src="https://img.saraba1st.com/forum/201808/04/142923febrmhyz4zejzeha.png" referrerpolicy="no-referrer">
@@ -29499,10 +19644,6 @@ lv33星占师 sm33530924
 下载附件
 
 2018-8-4 14:29 上传
-
-
-
-
 
 
 5.眼瞎看成了debuff，buff的话需求比较一般，不同石人对应不同属性，都在新四军祠堂里
@@ -29517,10 +19658,6 @@ lv33星占师 sm33530924
 2018-8-4 14:31 上传
 
 
-
-
-
-
 6.原本概率debuff的怪都不准备列，然而发现蛾子还有个即死效果，虽然概率不吃蓄力加成
 
 <img src="https://img.saraba1st.com/forum/201808/04/143632ru48vjvx44bs2rda.png" referrerpolicy="no-referrer">
@@ -29531,10 +19668,6 @@ lv33星占师 sm33530924
 下载附件
 
 2018-8-4 14:36 上传
-
-
-
-
 
 
 7.<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">虽然是综合回复能力最强的，不过只考虑解异常的话低配版5星怪也就少回1500血和没有hot
@@ -29549,10 +19682,6 @@ lv33星占师 sm33530924
 2018-8-4 14:40 上传
 
 
-
-
-
-
 8.因为对象是随机单体，也不好说算不算实用<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
 
 <img src="https://img.saraba1st.com/forum/201808/04/144910x9p9ot3ztisw3sdc.png" referrerpolicy="no-referrer">
@@ -29563,10 +19692,6 @@ lv33星占师 sm33530924
 下载附件
 
 2018-8-4 14:49 上传
-
-
-
-
 
 
 9.ん?
@@ -29581,10 +19706,6 @@ lv33星占师 sm33530924
 2018-8-4 15:03 上传
 
 
-
-
-
-
 10.是你<img src="https://static.saraba1st.com/image/smiley/face2017/113.png" referrerpolicy="no-referrer">爱丽丝
 
 <img src="https://img.saraba1st.com/forum/201808/04/150426fbx6ndtz2jlb6t26.png" referrerpolicy="no-referrer">
@@ -29595,11 +19716,6 @@ lv33星占师 sm33530924
 下载附件
 
 2018-8-4 15:04 上传
-
-
-
-
-
 
 
 EX.上面列的除了最后那两只，都可以裸放，而猫强烈建议满蓄，小猫是状态手，中猫是治疗手，肥猫是神<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
@@ -29614,18 +19730,9 @@ EX.上面列的除了最后那两只，都可以裸放，而猫强烈建议满�
 2018-8-4 15:06 上传
 
 
-
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +2
@@ -29636,12 +19743,7 @@ EX.上面列的除了最后那两只，都可以裸放，而猫强烈建议满�
 | 水宝宝| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -29650,14 +19752,7 @@ EX.上面列的除了最后那两只，都可以裸放，而猫强烈建议满�
 ##### 1478#       发表于 2018-8-4 15:45
 
 
-
-
 345那幾個上的是BUFF 不是DEBUFF
-
-
-
-
-
 
 
 -----
@@ -29666,23 +19761,16 @@ EX.上面列的除了最后那两只，都可以裸放，而猫强烈建议满�
 ##### 1479#       发表于 2018-8-4 15:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40543987&amp;ptid=1711545" target="_blank">Niu 发表于 2018-8-4 15:45</a>
 
 345那幾個上的是BUFF 不是DEBUFF</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">眼瞎，一会儿编辑
 
 
-
-
-
-
-
 -----
 
 ####  takayama  
 ##### 1480#       发表于 2018-8-4 18:34
-
 
 
  本帖最后由 takayama 于 2018-8-4 18:42 编辑 
@@ -29697,16 +19785,10 @@ EX.上面列的除了最后那两只，都可以裸放，而猫强烈建议满�
 三只猫果然是神物，等等级提升到满意为止再抓
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 1481#       发表于 2018-8-4 19:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40545297&amp;ptid=1711545" target="_blank">takayama 发表于 2018-08-04 18:34:06</a>
@@ -29715,17 +19797,10 @@ EX.上面列的除了最后那两只，都可以裸放，而猫强烈建议满�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  nanjolno  
 ##### 1482#       发表于 2018-8-5 03:12
-
-
 
 
 终于打通了
@@ -29733,17 +19808,10 @@ EX.上面列的除了最后那两只，都可以裸放，而猫强烈建议满�
 问下最后クリス和他那团长去哪了，想知道这个暗线主角最后到底怎样，但接最终任务那地方找不到人
 
 
-
-
-
-
-
 -----
 
 ####  dds0  
 ##### 1483#       发表于 2018-8-5 20:45
-
-
 
 
 提供一个最终战的思路，确实没想的那么难，我试试就不小心过了。
@@ -29811,32 +19879,19 @@ break状态下给对方降了属防后，学者最高输出三万二左右，然
 后来也是开了全员再动以后在最后补上了输出才勉强过的，如果那轮没打过我估计下回合就又被秒了。
 
 
-
-
-
-
-
 -----
 
 ####  dds0  
 ##### 1484#       发表于 2018-8-5 21:10
 
 
-
-
 然后要说下这个游戏npc联动有的地方还是有点尴尬，其他npc的剧情去给舞女老爸上坟，谈笑风生，舞女在队里却一声不吭...药师找到恩人也没啥反应。
-
-
-
-
-
 
 
 -----
 
 ####  shyso  
 ##### 1485#       发表于 2018-8-5 23:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40555041&amp;ptid=1711545" target="_blank">dds0 发表于 2018-8-5 21:10</a>
@@ -29854,16 +19909,10 @@ break状态下给对方降了属防后，学者最高输出三万二左右，然
 比如搞笑海盗二人组和相爱相杀学者组加上无敌拉风船长的末盘任务，如果根据学者和商人是否在队里设计四套不同的台词和表演，肯定会极大的提高游戏的演出效果，但相应的设计和调试工作量可能要翻四倍还不止
 
 
-
-
-
-
-
 -----
 
 ####  dds0  
 ##### 1486#       发表于 2018-8-6 01:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40556248&amp;ptid=1711545" target="_blank">shyso 发表于 2018-8-5 23:35</a>
@@ -29879,16 +19928,10 @@ break状态下给对方降了属防后，学者最高输出三万二左右，然
 根据不同人物设定不同对白xb2倒是做到了，但是显然没把好钢用在刀刃上...
 
 
-
-
-
-
-
 -----
 
 ####  hgcg-w  
 ##### 1487#       发表于 2018-8-6 06:54
-
 
 
 [https://www.weibo.com/2261696894 ... t#_rnd1533509630366](https://www.weibo.com/2261696894/Gtgh3ozIe?type=repost#_rnd1533509630366)
@@ -29896,13 +19939,9 @@ break状态下给对方降了属防后，学者最高输出三万二左右，然
 <img src="http://wx3.sinaimg.cn/large/86cec17egy1ftz21eqx62j218u0wje42.jpg" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -29912,19 +19951,13 @@ break状态下给对方降了属防后，学者最高输出三万二左右，然
 | dds0| + 1|完美还原|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  windtrack  
 ##### 1488#       发表于 2018-8-6 09:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40548619&amp;ptid=1711545" target="_blank">nanjolno 发表于 2018-8-5 03:12</a>
@@ -29935,25 +19968,13 @@ break状态下给对方降了属防后，学者最高输出三万二左右，然
 还有一个暗线支线叫命运之人，这个也做到最后一步两条暗线就汇成隐藏结局了
 
 
-
-
-
-
-
 -----
 
 ####  captoon  
 ##### 1489#       发表于 2018-8-6 10:35
 
 
-
-
  盗贼转药王 单挑过了 魔大公
-
-
-
-
-
 
 
 -----
@@ -29962,17 +19983,10 @@ break状态下给对方降了属防后，学者最高输出三万二左右，然
 ##### 1490#       发表于 2018-8-14 12:09
 
 
-
-
 话说那个重击很重要吗？好像才125%？
 是普通攻击才有还是啥攻击包括魔法和奥义都有？
 
 —— 来自 Sony G8142, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2-play
-
-
-
-
-
 
 
 -----
@@ -29981,21 +19995,13 @@ break状态下给对方降了属防后，学者最高输出三万二左右，然
 ##### 1491#       发表于 2018-8-15 13:29
 
 
-
-
 最近有时间准备开玩了，想问一下，怎么现在淘宝上版本不同价格差距都挺大的？除了盒子封面和继承体验版存档以外，欧版港版日版还有别的区别么？
-
-
-
-
-
 
 
 -----
 
 ####  笛普达克范太希  
 ##### 1492#       发表于 2018-8-16 02:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40654429&amp;ptid=1711545" target="_blank">hiiroimatsu 发表于 2018-8-15 13:29</a>
@@ -30005,32 +20011,19 @@ break状态下给对方降了属防后，学者最高输出三万二左右，然
 —— 来自 Xiaomi MI 8, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2
 
 
-
-
-
-
-
 -----
 
 ####  平昭·南宫司卿  
 ##### 1493#       发表于 2018-8-16 09:46
 
 
-
-
 昨晚玩药师第二章差点玩哭……不知道是不是我太矫情了，小萝莉说没钱然后妈妈会哭的那段真的好难受T_T还问阿芬お金あるの，天呐怎么会有这么好的小孩子T_T
-
-
-
-
-
 
 
 -----
 
 ####  Lunamos  
 ##### 1494#         楼主| 发表于 2018-8-16 09:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40643591&amp;ptid=1711545" target="_blank">osk666neo 发表于 2018-8-14 13:09</a>
@@ -30041,16 +20034,10 @@ break状态下给对方降了属防后，学者最高输出三万二左右，然
 暴击是物理，属性攻击暴击需要魔术师奥义。
 
 
-
-
-
-
-
 -----
 
 ####  osk666neo  
 ##### 1495#       发表于 2018-8-16 10:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40662298&amp;ptid=1711545" target="_blank">Lunamos 发表于 2018-8-16 09:51</a>
@@ -30061,16 +20048,10 @@ break状态下给对方降了属防后，学者最高输出三万二左右，然
 —— 来自 Sony G8142, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2-play
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 1496#         楼主| 发表于 2018-8-16 10:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40662631&amp;ptid=1711545" target="_blank">osk666neo 发表于 2018-8-16 11:22</a>
@@ -30081,25 +20062,13 @@ break状态下给对方降了属防后，学者最高输出三万二左右，然
 用物攻的应该就可以。这游戏的暴击确实是一个没多大用的属性，主要是25%这个加成实在太少了，只是概率比较高。装备还是要实打实增加物攻的比较好。
 
 
-
-
-
-
-
 -----
 
 ####  arsenaloe  
 ##### 1497#       发表于 2018-8-16 11:21
 
 
-
-
 借贴问下，官方攻略本怎样，最主要的字体大不大？之前买的几个游戏的官方攻略本字体都太TM小看得眼花了
-
-
-
-
-
 
 
 -----
@@ -30108,21 +20077,13 @@ break状态下给对方降了属防后，学者最高输出三万二左右，然
 ##### 1498#       发表于 2018-8-17 00:38
 
 
-
-
 问下，魔术师几个增强魔攻的辅助技能有必要叠吗
-
-
-
-
-
 
 
 -----
 
 ####  假山君  
 ##### 1499#       发表于 2018-8-17 07:20
-
 
 
 <blockquote>Nez 发表于 2018-8-17 00:38
@@ -30138,16 +20099,10 @@ sp消耗加倍平时用的话消耗太大太麻烦
 而且毕竟被动栏紧张只能装四个
 
 
-
-
-
-
-
 -----
 
 ####  kotisanae  
 ##### 1500#       发表于 2018-8-17 11:00
-
 
 
  本帖最后由 kotisanae 于 2018-8-17 11:02 编辑 
@@ -30163,16 +20118,10 @@ sp消耗加倍平时用的话消耗太大太麻烦
 不过这回合数长得吓人，所以实战很难打出来。基本上还是指望两到三次的 break 机会吧。另外我魔攻堆到了 999，并且额外带了绝对零度杖，break 的时候用冰魔法输出这样。
 
 
-
-
-
-
-
 -----
 
 ####  水宝宝  
 ##### 1501#       发表于 2018-8-17 11:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40670563&amp;ptid=1711545" target="_blank">Nez 发表于 2018-8-17 00:38</a>
@@ -30183,32 +20132,19 @@ sp消耗加倍平时用的话消耗太大太麻烦
 结论是没有必要叠魔术师的辅助
 
 
-
-
-
-
-
 -----
 
 ####  刘震云  
 ##### 1502#       发表于 2018-8-19 20:13
 
 
-
-
 日！全员平均60级去见最终的隐藏BOSS，第一梯队好不容易打完，第二梯队开场差点直接全灭，然后队友拉起来-灭掉-拉起来-灭掉，撑了5、6回合还是被BOSS灭了，然后重新来打emmmm<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，去查攻略，至少要刷到70级，瞬间不想刷级了，想想视频通关算了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  笛普达克范太希  
 ##### 1503#       发表于 2018-8-19 20:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40696694&amp;ptid=1711545" target="_blank">刘震云 发表于 2018-8-19 20:13</a>
@@ -30218,16 +20154,10 @@ sp消耗加倍平时用的话消耗太大太麻烦
 —— 来自 Xiaomi MI 8, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2
 
 
-
-
-
-
-
 -----
 
 ####  kotisanae  
 ##### 1504#       发表于 2018-8-19 21:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40696694&amp;ptid=1711545" target="_blank">刘震云 发表于 2018-8-19 20:13</a>
@@ -30236,32 +20166,19 @@ sp消耗加倍平时用的话消耗太大太麻烦
 我平均 62 级
 
 
-
-
-
-
-
 -----
 
 ####  moekyo  
 ##### 1505#       发表于 2018-8-19 22:08
 
 
-
-
 今天刚买了，之前demo选了学者，第二章推荐等级24，疯狂被秒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  叶雾  
 ##### 1506#       发表于 2018-8-19 22:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40697698&amp;ptid=1711545" target="_blank">moekyo 发表于 2018-8-19 22:08</a>
@@ -30272,16 +20189,10 @@ sp消耗加倍平时用的话消耗太大太麻烦
 8个人的第一章打完再去第二章
 
 
-
-
-
-
-
 -----
 
 ####  moekyo  
 ##### 1507#       发表于 2018-8-19 22:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40697875&amp;ptid=1711545" target="_blank">叶雾 发表于 2018-8-19 22:28</a>
@@ -30292,25 +20203,13 @@ sp消耗加倍平时用的话消耗太大太麻烦
 做完第一章之后看到说要去找前同事，打开地图一看，推荐24，硬着头皮走了一下结果炸了。<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Nez  
 ##### 1508#       发表于 2018-8-25 13:26
 
 
-
-
 永续是哪个技能来着，找不到了
-
-
-
-
-
 
 
 -----
@@ -30319,14 +20218,7 @@ sp消耗加倍平时用的话消耗太大太麻烦
 ##### 1509#       发表于 2018-8-25 19:02
 
 
-
-
 4个隐藏职业感觉豪武将最难，物理伤害太高了HP太少没有治疗突破很容易被秒，打的时候全靠商人妹子带上魔剑士职业全程刷物理回避BUFF，保证BOSS一下都摸不到我方才打赢，其他3个隐藏职业根本不用打的这么怂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30335,16 +20227,9 @@ sp消耗加倍平时用的话消耗太大太麻烦
 ##### 1510#       发表于 2018-8-26 21:42
 
 
-
-
 这魔大公也太弱了..靠着反射随便打 舞女奥义后全队反射盾打法师型敌人真是太简单了，修女线最后两章boss也是..应该加入一个万能特大属性魔法（
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -30353,15 +20238,9 @@ sp消耗加倍平时用的话消耗太大太麻烦
 ##### 1511#       发表于 2018-8-27 07:29
 
 
-
 <blockquote>Nez 发表于 2018-8-25 13:26
 永续是哪个技能来着，找不到了</blockquote>
 符文最后一个
-
-
-
-
-
 
 
 -----
@@ -30370,22 +20249,15 @@ sp消耗加倍平时用的话消耗太大太麻烦
 ##### 1512#       发表于 2018-8-28 02:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40342763&amp;ptid=1711545" target="_blank">Emmerich 发表于 2018-7-15 19:33</a>
 22小时了第二章才打完2个人物 是不是有点墨迹了 所有城市NPC的背景看完+东西偷完...特别有旅行的感 ...</blockquote>
 不算不算 我25小时第一章才4个人 对话也没全看的 内容台词基本是ffxv 5倍不止吧
-
-
-
-
-
 
 
 -----
 
 ####  osk666neo  
 ##### 1513#       发表于 2018-8-28 13:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40554871&amp;ptid=1711545" target="_blank">dds0 发表于 2018-8-5 20:45</a>
@@ -30397,16 +20269,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 —— 来自 Sony G8142, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2-play
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 1514#       发表于 2018-8-28 14:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40786990&amp;ptid=1711545" target="_blank">osk666neo 发表于 2018-8-28 13:46</a>
@@ -30418,16 +20284,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 —— 来自 Xiaomi MI 8, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2
 
 
-
-
-
-
-
 -----
 
 ####  osk666neo  
 ##### 1515#       发表于 2018-8-28 15:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40787328&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-8-28 14:27</a>
@@ -30439,16 +20299,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 —— 来自 Sony G8142, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2-play
 
 
-
-
-
-
-
 -----
 
 ####  噂の船  
 ##### 1516#       发表于 2018-8-28 15:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40788044&amp;ptid=1711545" target="_blank">osk666neo 发表于 2018-8-28 15:30</a>
@@ -30460,32 +20314,19 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 1/4还不大吗..おかわり这种也就1/2
 
 
-
-
-
-
-
 -----
 
 ####  妄想中毒  
 ##### 1517#       发表于 2018-8-28 18:06
 
 
-
-
 星咏给队友加BP的BUFF是不是有BUG？照技能字面上的意思理解应该是这个BUFF每回合给角色额外加1点BP，然而我专门测试了一下发现被BUFF的人物必须在该回合内不消耗任何BP下一回合才会BP+2，如果这回合哪怕只消耗了1点BP，下一回合就是BP+0，就连应该会给的1点BP都没了。没测试前我还喜滋滋的每次都用舞女的大招给全员刷这个BUFF，测试了才发现这玩意根本就是个DEBUFF<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  叶雾  
 ##### 1518#       发表于 2018-8-28 18:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40789806&amp;ptid=1711545" target="_blank">妄想中毒 发表于 2018-8-28 18:06</a>
@@ -30498,16 +20339,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 只能说这个技能没有突破这个规则
 
 
-
-
-
-
-
 -----
 
 ####  妄想中毒  
 ##### 1519#       发表于 2018-8-28 18:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40789846&amp;ptid=1711545" target="_blank">叶雾 发表于 2018-8-28 18:12</a>
@@ -30520,16 +20355,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">白玩了60小时，我才注意到用了BP的回合下回合是不加BP的，看来加BP还是只能靠药师和商人
 
 
-
-
-
-
-
 -----
 
 ####  dds0  
 ##### 1520#       发表于 2018-8-28 23:45
-
 
 
  本帖最后由 dds0 于 2018-8-28 23:50 编辑 
@@ -30550,18 +20379,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 说实话我觉得八方的系统强就强在这些弹簧式的反馈点做得太到位了，每次破防，堆buff，蓄力，赌再动，赌跳舞都很刺激，很大程度上减弱了回合制的枯燥
 
 
-
-
-
-
-
-
 -----
 
 ####  osk666neo  
 ##### 1521#       发表于 2018-8-29 10:04
-
-
 
 
 话说那物属交换是算上武器的？
@@ -30572,16 +20393,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 —— 来自 Sony G8142, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2-play
 
 
-
-
-
-
-
 -----
 
 ####  osk666neo  
 ##### 1522#       发表于 2018-8-29 10:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40793273&amp;ptid=1711545" target="_blank">dds0 发表于 2018-8-28 23:45</a>
@@ -30594,16 +20409,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 —— 来自 Sony G8142, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2-play
 
 
-
-
-
-
-
 -----
 
 ####  水宝宝  
 ##### 1523#       发表于 2018-8-29 10:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40788044&amp;ptid=1711545" target="_blank">osk666neo 发表于 2018-8-28 15:30</a>
@@ -30615,16 +20424,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 意义非常大，简直是神技，菲尼斯之门全员奶爆+再动可以躺着打了
 
 
-
-
-
-
-
 -----
 
 ####  噂の船  
 ##### 1524#       发表于 2018-8-29 10:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40796249&amp;ptid=1711545" target="_blank">osk666neo 发表于 2018-8-29 10:07</a>
@@ -30636,16 +20439,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 我倒是不觉得有很多比这个强力得被动，哪怕是输出位不带永续强化的情况下ダメージ限界突破、属性熟练化、BPイーター/ダメージ限界突破、BPイーター、（物理攻撃力+50）也够了
 
 
-
-
-
-
-
 -----
 
 ####  kotisanae  
 ##### 1525#       发表于 2018-8-29 10:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40796249&amp;ptid=1711545" target="_blank">osk666neo 发表于 2018-08-29 10:07:27</a>
@@ -30656,16 +20453,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  osk666neo  
 ##### 1526#       发表于 2018-8-29 10:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40796416&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-8-29 10:20</a>
@@ -30676,16 +20467,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 —— 来自 Sony G8142, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2-play
 
 
-
-
-
-
-
 -----
 
 ####  噂の船  
 ##### 1527#       发表于 2018-8-29 10:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40796630&amp;ptid=1711545" target="_blank">osk666neo 发表于 2018-8-29 10:38</a>
@@ -30700,32 +20485,19 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 符文得追击伤害是取决于你打的那个人用的那把武器得魔攻
 
 
-
-
-
-
-
 -----
 
 ####  iou90  
 ##### 1528#       发表于 2018-8-29 16:48
 
 
-
-
 爬完楼了 还在第一章 目前最大疑问是药师合成需要的那些素材 咋搞最有效率呢 主角是药师 1章后准备一个角色一个角色打通 准备 神官剑士药师先
-
-
-
-
-
 
 
 -----
 
 ####  叶雾  
 ##### 1529#       发表于 2018-8-29 16:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40800568&amp;ptid=1711545" target="_blank">iou90 发表于 2018-8-29 16:48</a>
@@ -30736,16 +20508,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 我只有boss战会用药师的调和，基本上每个城市三光过去就不缺了，后面商店也会卖其中几种
 
 
-
-
-
-
-
 -----
 
 ####  水宝宝  
 ##### 1530#       发表于 2018-8-29 17:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40800568&amp;ptid=1711545" target="_blank">iou90 发表于 2018-8-29 16:48</a>
@@ -30754,32 +20520,19 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 药师前期你可以拿金斧子当输出，调和素材随缘打怪和偷村民就好，调和最强力的是扩散秘药全员+2BP，但是扩散秘药前期买不太起，所以也没必要刻意去刷素材，买得起扩散秘药后去冰龙口随便练练级，那里有个怪掉BP的调和素材，可练级同时攒素材，我是没刻意去刷过素材，光冰龙口练级掉落的那些BP素材到打完菲尼斯之门都没用完
 
 
-
-
-
-
-
 -----
 
 ####  妄想中毒  
 ##### 1531#       发表于 2018-8-29 18:52
 
 
-
-
 符文大师到底是靠追加属性伤害输出还是大招输出啊？我猎人副职业符文大师，武器是340属攻风属性伤害加成的弓，技能带属性熟练化和永続エレメントアップ，破防后用风属性追加攻击一发打下去快3W的伤害再配合猎人自己本身的大招合计能打5W伤害，单用符文大师的大招单次伤害才4、5000，还不如追加属性攻击
-
-
-
-
-
 
 
 -----
 
 ####  dds0  
 ##### 1532#       发表于 2018-8-29 19:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40796249&amp;ptid=1711545" target="_blank">osk666neo 发表于 2018-8-29 10:07</a>
@@ -30793,16 +20546,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 可是我怎么就管不住这手呢<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  takayama  
 ##### 1533#       发表于 2018-8-29 21:05
-
 
 
  本帖最后由 takayama 于 2018-8-29 21:28 编辑 
@@ -30829,27 +20576,15 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 敵全体ドクリミキの葉火の煙×2火属性攻撃×2+たまに睡眠状態付与スイミンカの葉氷の煙×2氷属性攻撃×2+たまに睡眠状態付与コンラントの葉光の煙×2光属性攻撃×2+たまに混乱状態付与ブドウの樹液風の煙×2風属性攻撃×2+たまに物防ダウン状態付与プラムの樹液雷の煙×2雷属性攻撃×2+たまに属防ダウン状態付与ザクロの樹液闇の煙×2闇属性攻撃×2+たまに行動速度ダウン付与オリーブの花風の香×2風属性攻撃×2+たまに回避ダウン付与ナゾの花超ナゾの香闇属性攻撃×3+敵の強化効果無効
 
 
-
-
-
-
-
-
 -----
 
 ####  iou90  
 ##### 1534#       发表于 2018-8-29 21:16
 
 
-
 <blockquote>水宝宝 发表于 2018-8-29 17:07
 药师前期你可以拿金斧子当输出，调和素材随缘打怪和偷村民就好，调和最强力的是扩散秘药全员+2BP，但是扩 ...</blockquote>
 但是想jp 和 exp 看来合成是后期的事儿了 我现在运气还行5次就出了220的剑 目前剑士28级全体攻击野怪一下没 金斧子贼多少级能15%呢 实在不愿sl
-
-
-
-
-
 
 
 -----
@@ -30858,16 +20593,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 ##### 1535#       发表于 2018-8-29 21:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40802967&amp;ptid=1711545" target="_blank">iou90 发表于 2018-8-29 21:16</a>
 
 但是想jp 和 exp 看来合成是后期的事儿了 我现在运气还行5次就出了220的剑 目前剑士28级全体攻击野怪一下 ...</blockquote>
 3% -&gt; 15% 应该是 70 级，所以安心 sl
-
-
-
-
-
 
 
 -----
@@ -30876,15 +20605,9 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 ##### 1536#       发表于 2018-8-29 21:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40803078&amp;ptid=1711545" target="_blank">kotisanae 发表于 2018-8-29 21:28</a>
 3% -&gt; 15% 应该是 70 级，所以安心 sl</blockquote>
 所以这还是算了
-
-
-
-
-
 
 
 -----
@@ -30893,15 +20616,9 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 ##### 1537#       发表于 2018-8-29 21:36
 
 
-
  本帖最后由 takayama 于 2018-8-29 21:44 编辑 
 
 看了下攻略设定本，80级左右基本能偷到的武器概率都是（或者接近）百分百了
-
-
-
-
-
 
 
 -----
@@ -30910,20 +20627,13 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 ##### 1538#       发表于 2018-8-29 21:43
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">调和素材是阿芬限定 然而阿芬真的是八个人里最不想用的 最烦这种热血男..
-
-
-
-
-
 
 
 -----
 
 ####  假山君  
 ##### 1539#       发表于 2018-8-30 05:06
-
 
 
 <blockquote>dds0 发表于 2018-8-29 19:43
@@ -30933,16 +20643,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 因为概率分开计算，回合结束没人发动的概率是0.75的四次方，31%左右，有接近7成的概率是有人会发动的
 
 
-
-
-
-
-
 -----
 
 ####  水宝宝  
 ##### 1540#       发表于 2018-8-30 09:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40802967&amp;ptid=1711545" target="_blank">iou90 发表于 2018-8-29 21:16</a>
@@ -30957,32 +20661,19 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 之后我碰到15%以下的都是sl五次偷不出就换时间再来，屡试不爽
 
 
-
-
-
-
-
 -----
 
 ####  任毒瘤  
 ##### 1541#       发表于 2018-8-30 09:24
 
 
-
-
 终于过了隐藏boss了 可以封盘了
-
-
-
-
-
 
 
 -----
 
 ####  iou90  
 ##### 1542#       发表于 2018-8-30 12:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40806301&amp;ptid=1711545" target="_blank">水宝宝 发表于 2018-8-30 09:20</a>
@@ -30992,16 +20683,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 感谢建议 主要觉得主角输出不那么重要 剑士因为有单挑 现在30 出奥义 有220的武器 搞6星很稳
 
 
-
-
-
-
-
 -----
 
 ####  iou90  
 ##### 1543#       发表于 2018-8-30 16:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40806301&amp;ptid=1711545" target="_blank">水宝宝 发表于 2018-8-30 09:20</a>
@@ -31012,16 +20697,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 可能最近诸事不顺吧 刚把女票分了 奶奶又过世
 
 
-
-
-
-
-
 -----
 
 ####  水宝宝  
 ##### 1544#       发表于 2018-8-30 17:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40811328&amp;ptid=1711545" target="_blank">iou90 发表于 2018-8-30 16:24</a>
@@ -31034,16 +20713,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 再说个个人体验，大家都说冰龙口是猫窝，我在冰龙口练了一段时间只碰到过一次全家桶，感觉出率完全不能被称作猫窝，结果某天下班地铁上我就在冰龙口刷了20分钟左右就碰到了三次全家桶和一次单独肥猫，简直惊了，所以我怀疑连出怪都是有时间段概率的……
 
 
-
-
-
-
-
 -----
 
 ####  osk666neo  
 ##### 1545#       发表于 2018-8-30 17:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40811935&amp;ptid=1711545" target="_blank">水宝宝 发表于 2018-8-30 17:21</a>
@@ -31056,16 +20729,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 —— 来自 Sony G8142, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2-play
 
 
-
-
-
-
-
 -----
 
 ####  水宝宝  
 ##### 1546#       发表于 2018-8-30 17:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40811965&amp;ptid=1711545" target="_blank">osk666neo 发表于 2018-8-30 17:23</a>
@@ -31078,25 +20745,13 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 我感觉还是跟时间段有关系
 
 
-
-
-
-
-
 -----
 
 ####  噂の船  
 ##### 1547#       发表于 2018-8-30 19:36
 
 
-
-
 大家所有的小地图都会去跑吗，没有任务的话，小地图有点多有时候又忘记自己去过哪些..
-
-
-
-
-
 
 
 -----
@@ -31105,23 +20760,16 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 ##### 1548#       发表于 2018-8-30 20:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40813164&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-08-30 19:36:40</a>
 大家所有的小地图都会去跑吗，没有任务的话，小地图有点多有时候又忘记自己去过哪些.. ...</blockquote>会，拿到了不遇敌的那个首饰之后，把整张地图很彻底跑了一遍
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  czxiang_0  
 ##### 1549#       发表于 2018-8-31 09:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40757810&amp;ptid=1711545" target="_blank">妄想中毒 发表于 2018-8-25 19:02</a>
@@ -31137,25 +20785,13 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 商人和其他人加BP，神官攒足BP后用魔法连击BUFF，学者+魔术师加上属攻加成魔法连轰，一次6下总共能打4万左右，3回合火速收工。
 
 
-
-
-
-
-
 -----
 
 ####  iou90  
 ##### 1550#       发表于 2018-9-2 12:31
 
 
-
-
 很多洞穴最后宝物有boss守护 然后宝物垃圾 但是好想抓boss 和洞穴等级差不多 1血break结果还是4% 后面有啥办法提高几率吗 还是就看等级
-
-
-
-
-
 
 
 -----
@@ -31164,21 +20800,13 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 ##### 1551#       发表于 2018-9-2 12:31
 
 
-
-
 很多洞穴最后宝物有boss守护 然后宝物垃圾 但是好想抓boss 和洞穴等级差不多 1血break结果还是4% 后面有啥办法提高几率吗 还是就看等级
-
-
-
-
-
 
 
 -----
 
 ####  笛普达克范太希  
 ##### 1552#       发表于 2018-9-2 14:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40841051&amp;ptid=1711545" target="_blank">iou90 发表于 2018-9-2 12:31</a>
@@ -31190,16 +20818,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 —— 来自 Xiaomi MI 8, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
 
 
-
-
-
-
-
 -----
 
 ####  iou90  
 ##### 1553#       发表于 2018-9-2 15:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40841686&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-9-2 14:11</a>
@@ -31209,16 +20831,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 感谢
 
 
-
-
-
-
-
 -----
 
 ####  妄想中毒  
 ##### 1554#       发表于 2018-9-2 20:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40841051&amp;ptid=1711545" target="_blank">iou90 发表于 2018-9-2 12:31</a>
@@ -31227,17 +20843,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 别浪费时间去抓了，猎人的抓怪中后期纯粹是鸡肋，抓强力怪麻烦不说使用还有次数限制而且如果是单体攻击的怪攻击对象还完全随机，找NPC单挑也一般用的骑士，猎人的单挑限制太多很不好用
 
 
-
-
-
-
-
 -----
 
 ####  六连星mk3  
 ##### 1555#       发表于 2018-9-3 02:03
-
-
 
 
 几率的话要这么安慰自己
@@ -31246,17 +20855,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 所以一般会在6到7次的sl过程中偷到
 
 
-
-
-
-
-
 -----
 
 ####  噂の船  
 ##### 1556#       发表于 2018-9-3 14:43
-
-
 
 
 学者线最后是揭露猎人线占卜阿婆的身份是某个著名学者？别的线有提到这个吗..因为还没通完就没去剧情讨论楼
@@ -31266,16 +20868,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  dynasty123  
 ##### 1557#       发表于 2018-9-3 17:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40850561&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-9-3 14:43</a>
@@ -31284,16 +20880,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 好像没了，占卜阿婆在隐藏boss那也有提及
 
 
-
-
-
-
-
 -----
 
 ####  kotisanae  
 ##### 1558#       发表于 2018-9-3 17:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40850561&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-9-3 14:43</a>
@@ -31302,25 +20892,13 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 第一个忘了有没有提，我没有印象。另外就是猎人线完结之后在 Victor Hollow 有个支线有提到她，虽然主要是讲占卜婆婆的仆从。
 
 
-
-
-
-
-
 -----
 
 ####  iou90  
 ##### 1559#       发表于 2018-9-4 05:45
 
 
-
-
 救女孩那个48级森林 boss怎么也打不过 目前除了圣女 7个人 没奶爆没隐藏职业 打了几个小时了 放弃了
-
-
-
-
-
 
 
 -----
@@ -31329,16 +20907,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 ##### 1560#       发表于 2018-9-4 09:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40855649&amp;ptid=1711545" target="_blank">iou90 发表于 2018-9-4 05:45</a>
 
 救女孩那个48级森林 boss怎么也打不过 目前除了圣女 7个人 没奶爆没隐藏职业 打了几个小时了 放弃了 ...</blockquote>
 食人花……？有药师全体健全化就没难度啊……
-
-
-
-
-
 
 
 -----
@@ -31347,16 +20919,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 ##### 1561#       发表于 2018-9-4 10:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40855649&amp;ptid=1711545" target="_blank">iou90 发表于 2018-9-4 05:45</a>
 
 救女孩那个48级森林 boss怎么也打不过 目前除了圣女 7个人 没奶爆没隐藏职业 打了几个小时了 放弃了 ...</blockquote>
 那个是公认比较难的boss，后期专门构筑以后再来打吧
-
-
-
-
-
 
 
 -----
@@ -31365,15 +20931,9 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 ##### 1562#       发表于 2018-9-4 10:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40856978&amp;ptid=1711545" target="_blank">吉力安 发表于 2018-9-4 09:54</a>
 食人花……？有药师全体健全化就没难度啊……</blockquote>
 求详解 健全化能把被搞没的人弄回来吗
-
-
-
-
-
 
 
 -----
@@ -31382,14 +20942,7 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 ##### 1563#       发表于 2018-9-4 13:17
 
 
-
-
 没拿到魔术师就先别打了，前排俩杂兵7层盾风光弱点磨到哭
-
-
-
-
-
 
 
 -----
@@ -31398,22 +20951,15 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 ##### 1564#       发表于 2018-9-4 13:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">都打到那里了 去把魔术师和星咏拿了应该不难吧
 
 说实话这游戏拿到魔术师基本就是开启简单模式了..サイラスさん超やばい
-
-
-
-
-
 
 
 -----
 
 ####  deen33  
 ##### 1565#       发表于 2018-9-4 14:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40857580&amp;ptid=1711545" target="_blank">iou90 发表于 2018-9-4 10:41</a>
@@ -31430,16 +20976,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 商人符文最好要有，一来可以符文扩散给到武器光属性，boss的第三次变身时只有2个弱点（其中一个是光）非常好用，二来商人的符文扩散闪避可以有效应对2个高攻小怪
 
 
-
-
-
-
-
 -----
 
 ####  iou90  
 ##### 1566#       发表于 2018-9-4 14:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40858765&amp;ptid=1711545" target="_blank">deen33 发表于 2018-9-4 14:02</a>
@@ -31454,16 +20994,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 不过还是得break 它们的输出太猛
 
 
-
-
-
-
-
 -----
 
 ####  iou90  
 ##### 1567#       发表于 2018-9-4 14:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40858765&amp;ptid=1711545" target="_blank">deen33 发表于 2018-9-4 14:02</a>
@@ -31475,16 +21009,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 到第三次break时主boss的盾目测10层以上了 要命 还22w的血
 
 
-
-
-
-
-
 -----
 
 ####  kotisanae  
 ##### 1568#       发表于 2018-9-4 14:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40858826&amp;ptid=1711545" target="_blank">iou90 发表于 2018-9-4 14:10</a>
@@ -31497,26 +21025,15 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 毒是 1%，先练级吧，小蜘蛛杀了会再次召唤。队伍里面需要两个爆发点，食人花和狼都是。我记得食人花是把它打 break 人才回来。我是符文 Tressa，魔法师，加个阿尔芬和欧菲丽雅。55+ 打得挺轻松的。40级还是算了吧。
 
 
-
-
-
-
-
 -----
 
 ####  iou90  
 ##### 1569#       发表于 2018-9-4 15:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40858873&amp;ptid=1711545" target="_blank">kotisanae 发表于 2018-9-4 14:14</a>
 毒是 1%，先练级吧，小蜘蛛杀了会再次召唤。队伍里面需要两个爆发点，食人花和狼都是。我记得食人花是把 ...</blockquote>
 好吧 我一个小兵都没干死过还再次召唤 跪了 先继续走流程了
-
-
-
-
-
 
 
 -----
@@ -31525,21 +21042,13 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 ##### 1570#       发表于 2018-9-4 18:18
 
 
-
-
 73小时隐藏BOSS击破，全员平均65级打了一个多小时差点翻车。话说这隐藏BOSS抗性真是高的离谱，我魔术师打8个小BOSS极限伤害能打22W，打隐藏BOSS一下最多只能打14W。还有我从头到尾没用过一次的药师大招简直就是专门用来对付隐藏BOSS的，其他时候完全没有那么大的压力需要用到药师大招，隐藏BOSS全靠药师大招给全员用HPSPBP全恢复药来重振队伍
-
-
-
-
-
 
 
 -----
 
 ####  噂の船  
 ##### 1571#       发表于 2018-9-4 20:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40859635&amp;ptid=1711545" target="_blank">iou90 发表于 2018-09-04 15:26:48</a>
@@ -31555,27 +21064,15 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  噂の船  
 ##### 1572#       发表于 2018-9-4 20:33
 
 
-
-
 食人花任务做完给的那把即死剑，拿来决斗触发率怎么样？
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -31584,16 +21081,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 ##### 1573#       发表于 2018-9-4 21:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40862587&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-9-4 20:28</a>
 我看了你说的 也把食人花支线打了
 我不知道你为什么要跳级不拿上级职去打..我全员45级左右感觉也不是很难， ...</blockquote>
 丝是啥 db是啥
-
-
-
-
-
 
 
 -----
@@ -31602,23 +21093,16 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 ##### 1574#       发表于 2018-9-4 21:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40862587&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-9-4 20:28</a>
 我看了你说的 也把食人花支线打了
 我不知道你为什么要跳级不拿上级职去打..我全员45级左右感觉也不是很难， ...</blockquote>
 就是支线要打呀 就去打了 发现打不过
 
 
-
-
-
-
-
 -----
 
 ####  噂の船  
 ##### 1575#       发表于 2018-9-4 21:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40863158&amp;ptid=1711545" target="_blank">iou90 发表于 2018-09-04 21:36:09</a>
@@ -31628,16 +21112,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 1576#       发表于 2018-9-5 03:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40862635&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-9-4 20:33</a>
@@ -31650,16 +21128,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 —— 来自 Xiaomi MI 8, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
 
 
-
-
-
-
-
 -----
 
 ####  iou90  
 ##### 1577#       发表于 2018-9-5 03:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40863216&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-9-4 21:41</a>
@@ -31668,17 +21140,10 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 感谢 需要装备堆高速度吧
 
 
-
-
-
-
-
 -----
 
 ####  fayespike  
 ##### 1578#       发表于 2018-9-5 08:27
-
-
 
 
 这游戏是所有八个角色都得练没有主次之分吗
@@ -31688,25 +21153,13 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 药师配舞娘是不是比神官配舞娘更合适
 
 
-
-
-
-
-
 -----
 
 ####  dynasty123  
 ##### 1579#       发表于 2018-9-5 08:57
 
 
-
-
 隐藏boss要分2队战，所以都得练
-
-
-
-
-
 
 
 -----
@@ -31715,14 +21168,7 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 ##### 1580#       发表于 2018-9-5 09:04
 
 
-
-
 刚开始第二章，盗贼推荐等级22，打boss我上了四个23级的也还是打不过啊，是不是还要sl多偷点装备或者再练练级再来打？
-
-
-
-
-
 
 
 -----
@@ -31731,22 +21177,15 @@ https://www.bilibili.com/read/cv882425/ ...</blockquote>
 ##### 1581#       发表于 2018-9-5 09:11
 
 
-
 <blockquote>hiiroimatsu 发表于 2018-9-5 10:04
 刚开始第二章，盗贼推荐等级22，打boss我上了四个23级的也还是打不过啊，是不是还要sl多偷点装备或者再练练 ...</blockquote>
 sl浪费时间，不如跑酷，直接贴吧里搜“加入我们跑酷党”这个帖子...二章就跟切菜一样
-
-
-
-
-
 
 
 -----
 
 ####  噂の船  
 ##### 1582#       发表于 2018-9-5 09:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40866704&amp;ptid=1711545" target="_blank">fayespike 发表于 2018-9-5 08:27</a>
@@ -31764,16 +21203,10 @@ sl浪费时间，不如跑酷，直接贴吧里搜“加入我们跑酷党”这
 {:1465_1700:}不过 你觉得让药师那种直男配舞娘真的好嘛...
 
 
-
-
-
-
-
 -----
 
 ####  噂の船  
 ##### 1583#       发表于 2018-9-5 09:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40865320&amp;ptid=1711545" target="_blank">iou90 发表于 2018-9-5 03:20</a>
@@ -31786,16 +21219,10 @@ sl浪费时间，不如跑酷，直接贴吧里搜“加入我们跑酷党”这
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">其实这作行动速度这个属性除了盗贼的奥义真的没啥用..我感觉
 
 
-
-
-
-
-
 -----
 
 ####  fayespike  
 ##### 1584#       发表于 2018-9-5 09:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40867030&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-9-5 09:13</a>
@@ -31808,16 +21235,10 @@ sl浪费时间，不如跑酷，直接贴吧里搜“加入我们跑酷党”这
 但是jp不够啊
 
 
-
-
-
-
-
 -----
 
 ####  水宝宝  
 ##### 1585#       发表于 2018-9-5 09:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40866704&amp;ptid=1711545" target="_blank">fayespike 发表于 2018-9-5 08:27</a>
@@ -31834,25 +21255,13 @@ sl浪费时间，不如跑酷，直接贴吧里搜“加入我们跑酷党”这
 兼职推荐可以看看这个：[https://kamikouryaku.com/octopat ... 8%E3%83%A7%E3%83%96](https://kamikouryaku.com/octopath_traveler/?%E3%81%8A%E3%81%99%E3%81%99%E3%82%81%E3%83%90%E3%83%88%E3%83%AB%E3%82%B8%E3%83%A7%E3%83%96)
 
 
-
-
-
-
-
 -----
 
 ####  dynasty123  
 ##### 1586#       发表于 2018-9-5 09:20
 
 
-
-
 jp怎么会不够，第四章拿了饰品去冰龙口练几小时就能8人全职业max了
-
-
-
-
-
 
 
 -----
@@ -31861,16 +21270,10 @@ jp怎么会不够，第四章拿了饰品去冰龙口练几小时就能8人全�
 ##### 1587#       发表于 2018-9-5 09:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40867098&amp;ptid=1711545" target="_blank">dynasty123 发表于 2018-9-5 09:20</a>
 
 jp怎么会不够，第四章拿了饰品去冰龙口练几小时就能8人全职业max了</blockquote>
 具体一点，什么饰品，冰龙洞穴我知道在哪，在洞穴里面练级吗
-
-
-
-
-
 
 
 -----
@@ -31879,21 +21282,13 @@ jp怎么会不够，第四章拿了饰品去冰龙口练几小时就能8人全�
 ##### 1588#       发表于 2018-9-5 09:30
 
 
-
-
 http://www.bilibili.com/video/av28613563?share_medium=android&amp;share_source=copy_link&amp;bbid=70426A9C-4FC6-4086-B7B3-CEB3D6035D247049infoc&amp;ts=1536111053699
-
-
-
-
-
 
 
 -----
 
 ####  噂の船  
 ##### 1589#       发表于 2018-9-5 09:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40867063&amp;ptid=1711545" target="_blank">fayespike 发表于 2018-9-5 09:16</a>
@@ -31911,27 +21306,16 @@ http://www.bilibili.com/video/av28613563?share_medium=android&amp;share_source=c
 再补充一下，神官线是可以低通的，三四章boss都是法术攻击，用双舞娘神官反射盾流轻松就可以打掉
 
 
-
-
-
-
-
 -----
 
 ####  fayespike  
 ##### 1590#       发表于 2018-9-5 09:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40867233&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-9-5 09:39</a>
 
 通关神官线回到第二章会触发一个白学任务只要偷/买一个花就可以做完，然后可以拿到一个jp1.5倍的 ...</blockquote>
 冰龙口的意思就是冰龙洞穴是吧
-
-
-
-
-
 
 
 -----
@@ -31940,16 +21324,10 @@ http://www.bilibili.com/video/av28613563?share_medium=android&amp;share_source=c
 ##### 1591#       发表于 2018-9-5 09:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40867233&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-9-5 09:39</a>
 
 通关神官线回到第二章会触发一个白学任务只要偷/买一个花就可以做完，然后可以拿到一个jp1.5倍的 ...</blockquote>
 冰龙口的意思就是冰龙洞穴是吧
-
-
-
-
-
 
 
 -----
@@ -31958,14 +21336,7 @@ http://www.bilibili.com/video/av28613563?share_medium=android&amp;share_source=c
 ##### 1592#       发表于 2018-9-5 20:09
 
 
-
-
 我发现JP被动、JP饰品的效果和跳舞的100倍不叠加的？好像只取了100倍
-
-
-
-
-
 
 
 -----
@@ -31974,16 +21345,10 @@ http://www.bilibili.com/video/av28613563?share_medium=android&amp;share_source=c
 ##### 1593#       发表于 2018-9-5 23:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40867013&amp;ptid=1711545" target="_blank">skullgreymon 发表于 2018-9-5 09:11</a>
 
 sl浪费时间，不如跑酷，直接贴吧里搜“加入我们跑酷党”这个帖子...二章就跟切菜一样 ...</blockquote>
 非常感谢，按照那帖子把几把武器都拿到了
-
-
-
-
-
 
 
 -----
@@ -31992,22 +21357,15 @@ sl浪费时间，不如跑酷，直接贴吧里搜“加入我们跑酷党”这
 ##### 1594#       发表于 2018-9-6 08:13
 
 
-
 <blockquote>kiraabu 发表于 2018-9-5 20:09
 我发现JP被动、JP饰品的效果和跳舞的100倍不叠加的？好像只取了100倍</blockquote>
 好像是加算
-
-
-
-
-
 
 
 -----
 
 ####  吉力安  
 ##### 1595#       发表于 2018-9-6 09:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40857580&amp;ptid=1711545" target="_blank">iou90 发表于 2018-09-04 10:41:16</a>
@@ -32017,32 +21375,19 @@ sl浪费时间，不如跑酷，直接贴吧里搜“加入我们跑酷党”这
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  BAKA林  
 ##### 1596#       发表于 2018-9-6 10:12
 
 
-
-
 说是在考虑中文？有更确切的消息吗？<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  deen33  
 ##### 1597#       发表于 2018-9-6 13:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40862635&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-9-4 20:33</a>
@@ -32054,16 +21399,10 @@ sl浪费时间，不如跑酷，直接贴吧里搜“加入我们跑酷党”这
 即死概率好像是5%，决斗10星NPC都是火势场上手一下子秒的，干嘛磨5%的概率？
 
 
-
-
-
-
-
 -----
 
 ####  wfhtony  
 ##### 1598#       发表于 2018-9-6 19:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40878091&amp;ptid=1711545" target="_blank">BAKA林 发表于 2018-9-6 10:12</a>
@@ -32085,16 +21424,10 @@ sl浪费时间，不如跑酷，直接贴吧里搜“加入我们跑酷党”这
 除了最后开发者对话提到的内容之外，有几个日本国内和海外玩家的对比问卷结果也是挺有意思的。
 
 
-
-
-
-
-
 -----
 
 ####  噂の船  
 ##### 1599#       发表于 2018-9-6 19:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40878004&amp;ptid=1711545" target="_blank">吉力安 发表于 2018-9-6 09:49</a>
@@ -32107,16 +21440,10 @@ sl浪费时间，不如跑酷，直接贴吧里搜“加入我们跑酷党”这
 但是一来我们有舞娘奥义加神官叠反射盾二来魔法轰谁管你致盲啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  噂の船  
 ##### 1600#       发表于 2018-9-6 19:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40882599&amp;ptid=1711545" target="_blank">wfhtony 发表于 2018-9-6 19:21</a>
@@ -32125,16 +21452,10 @@ sl浪费时间，不如跑酷，直接贴吧里搜“加入我们跑酷党”这
 这个有人做翻译了吗，没有的话我可以帮忙贡献一部分翻译..<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  avil  
 ##### 1601#       发表于 2018-9-6 19:36
-
 
 
 <blockquote>wfhtony 发表于 2018-9-6 19:21
@@ -32145,16 +21466,10 @@ sl浪费时间，不如跑酷，直接贴吧里搜“加入我们跑酷党”这
 都这么说了，应该是稳了
 
 
-
-
-
-
-
 -----
 
 ####  BAKA林  
 ##### 1602#       发表于 2018-9-6 23:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40882599&amp;ptid=1711545" target="_blank">wfhtony 发表于 2018-9-6 19:21</a>
@@ -32163,16 +21478,10 @@ sl浪费时间，不如跑酷，直接贴吧里搜“加入我们跑酷党”这
 <img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">看不懂，不过目前各种消息还算正面，也许中文化还真的有戏吧
 
 
-
-
-
-
-
 -----
 
 ####  iou90  
 ##### 1603#       发表于 2018-9-7 00:26
-
 
 
 <img src="http://i63.tinypic.com/soxv1e.jpg" referrerpolicy="no-referrer">
@@ -32197,16 +21506,10 @@ sl浪费时间，不如跑酷，直接贴吧里搜“加入我们跑酷党”这
 平均50生存压力还是不小的 估计以后再也不砸钱了&gt;.&lt;
 
 
-
-
-
-
-
 -----
 
 ####  未婚先孕  
 ##### 1604#       发表于 2018-9-7 08:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40884275&amp;ptid=1711545" target="_blank">BAKA林 发表于 2018-9-6 23:00</a>
@@ -32215,16 +21518,10 @@ sl浪费时间，不如跑酷，直接贴吧里搜“加入我们跑酷党”这
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">发售的时候接到了大量邮件，SE慌得一笔以为有恶性bug，打开一看9成都是求中文化的
 
 
-
-
-
-
-
 -----
 
 ####  妄想中毒  
 ##### 1605#       发表于 2018-9-7 10:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40884812&amp;ptid=1711545" target="_blank">iou90 发表于 2018-9-7 00:26</a>
@@ -32237,25 +21534,13 @@ sl浪费时间，不如跑酷，直接贴吧里搜“加入我们跑酷党”这
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">贼怎么才9999的，你难道都不带伤害上限突破吗，这是输出职业必带的技能啊。我贼玩到后面break出能打9w+的伤害，不break都能打1w+伤害
 
 
-
-
-
-
-
 -----
 
 ####  iou90  
 ##### 1606#       发表于 2018-9-7 10:05
 
 
-
-
 突破了也1万出个头 意义不大 保命重要
-
-
-
-
-
 
 
 -----
@@ -32264,21 +21549,13 @@ sl浪费时间，不如跑酷，直接贴吧里搜“加入我们跑酷党”这
 ##### 1607#       发表于 2018-9-7 10:17
 
 
-
-
 你连隐藏职业都没开哪有那么多保命技能给你用，最多带个治疗突破上限。怕异常状态就用舞女大招给药师，药师全员健全化。我哪怕打隐藏BOSS保命技能也就带了治疗突破上限再加一个回合结束时25%再动。
-
-
-
-
-
 
 
 -----
 
 ####  iou90  
 ##### 1608#       发表于 2018-9-7 10:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40887360&amp;ptid=1711545" target="_blank">妄想中毒 发表于 2018-9-7 10:17</a>
@@ -32290,16 +21567,10 @@ sl浪费时间，不如跑酷，直接贴吧里搜“加入我们跑酷党”这
 encore
 
 
-
-
-
-
-
 -----
 
 ####  噂の船  
 ##### 1609#       发表于 2018-9-7 10:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40884812&amp;ptid=1711545" target="_blank">iou90 发表于 2018-09-07 00:26:22</a>
@@ -32312,25 +21583,13 @@ encore
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  噂の船  
 ##### 1610#       发表于 2018-9-7 22:51
 
 
-
-
 问下打了所有线的..是不是只有你一开始选的角色的线 最后一个boss有那种对话的演出？我一开始走的是神官..后面的几个boss都没看到那种战斗的演出对话<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">还是说因为强度太高打的太快了..
-
-
-
-
-
 
 
 -----
@@ -32339,15 +21598,9 @@ encore
 ##### 1611#       发表于 2018-9-7 23:03
 
 
-
 <blockquote>噂の船 发表于 2018-9-7 22:51
 问下打了所有线的..是不是只有你一开始选的角色的线 最后一个boss有那种对话的演出？我一开始走的是神官.. ...</blockquote>
 貌似就盗贼和神官有战斗中对话
-
-
-
-
-
 
 
 -----
@@ -32356,14 +21609,7 @@ encore
 ##### 1612#       发表于 2018-9-7 23:16
 
 
-
-
 顺便今天打完了舞娘线，虽然整条线剧情就是个很土味的复仇记，前两个反派也土得可怜，最后一章的演出还是蛮有味道的，最后的cg也好美<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">（尤其是对比神官线最后那个超幼的ophilia..
-
-
-
-
-
 
 
 -----
@@ -32372,16 +21618,10 @@ encore
 ##### 1613#       发表于 2018-9-8 01:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40893781&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-9-7 23:16</a>
 
 顺便今天打完了舞娘线，虽然整条线剧情就是个很土味的复仇记，前两个反派也土得可怜，最后一章的演出还是蛮 ...</blockquote>
 超幼的那个不是 Ophilia，是 Liana
-
-
-
-
-
 
 
 -----
@@ -32390,14 +21630,7 @@ encore
 ##### 1614#       发表于 2018-9-9 02:21
 
 
-
-
 不知道咋回事碰到遇敌减半失效的bug 退游戏无效 重启机器才好
-
-
-
-
-
 
 
 -----
@@ -32406,15 +21639,9 @@ encore
 ##### 1615#       发表于 2018-9-9 02:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40844185&amp;ptid=1711545" target="_blank">妄想中毒 发表于 2018-9-2 20:07</a>
 别浪费时间去抓了，猎人的抓怪中后期纯粹是鸡肋，抓强力怪麻烦不说使用还有次数限制而且如果是单体攻击的 ...</blockquote>
 但是后期各个区域最后一个城堵门的基本都要用猎人啊烦
-
-
-
-
-
 
 
 -----
@@ -32423,21 +21650,13 @@ encore
 ##### 1616#       发表于 2018-9-9 02:25
 
 
-
-
 目前这游戏最麻烦痛苦的地方就在于换装备 麻痹为啥非要先脱下来才能给另一个人换上 从没见过如此反人类设计的
-
-
-
-
-
 
 
 -----
 
 ####  噂の船  
 ##### 1617#       发表于 2018-9-9 09:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40902975&amp;ptid=1711545" target="_blank">iou90 发表于 2018-9-9 02:23</a>
@@ -32448,16 +21667,10 @@ encore
 那个都是后期用剑士去决斗的吧，猎人和剑士单挑性能差挺多
 
 
-
-
-
-
-
 -----
 
 ####  IridescenceC  
 ##### 1618#       发表于 2018-9-9 10:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40904158&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-9-9 09:56</a>
@@ -32470,16 +21683,10 @@ encore
 有几个NPC用剑士单挑的话有等级要求，最多的要70级才能去挑。看不出有什么收益值得等到那时候……
 
 
-
-
-
-
-
 -----
 
 ####  噂の船  
 ##### 1619#       发表于 2018-9-9 10:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40904187&amp;ptid=1711545" target="_blank">IridescenceC 发表于 2018-9-9 10:01</a>
@@ -32494,16 +21701,10 @@ encore
 那些NPC应该是几率掉落最强武器的（
 
 
-
-
-
-
-
 -----
 
 ####  iou90  
 ##### 1620#       发表于 2018-9-9 10:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40904254&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-9-9 10:09</a>
@@ -32515,16 +21716,10 @@ encore
 不是 直接就红叉 也不难 8星 有奶爆随便打 就是烦
 
 
-
-
-
-
-
 -----
 
 ####  噂の船  
 ##### 1621#       发表于 2018-9-9 11:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40904562&amp;ptid=1711545" target="_blank">iou90 发表于 2018-09-09 10:54:33</a>
@@ -32534,16 +21729,10 @@ encore
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  iou90  
 ##### 1622#       发表于 2018-9-9 12:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40904842&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-9-9 11:33</a>
@@ -32552,27 +21741,15 @@ encore
 我是指堵门的那几个
 
 
-
-
-
-
-
 -----
 
 ####  松川奈々  
 ##### 1623#       发表于 2018-9-9 19:38
 
 
-
-
 用咸鱼队伍艰难打完最终boss第一阶段，准备第二阶段轻松过关，结果第二阶段第一回合，直接三连大雷击魔法Game Over了
 
 现在心态有点儿炸
-
-
-
-
-
 
 
 -----
@@ -32581,14 +21758,7 @@ encore
 ##### 1624#       发表于 2018-9-9 23:39
 
 
-
-
 猎人线第三关后会给一些防石化的药，但是我把赤目打完了都完全没有用到那些药，赤目真的有石化的技能吗？
-
-
-
-
-
 
 
 -----
@@ -32597,15 +21767,9 @@ encore
 ##### 1625#       发表于 2018-9-10 00:39
 
 
-
  本帖最后由 yongze 于 2018-9-10 00:41 编辑 
 
 8主角四章全部完成，4个上位职业的入手和不归之森的魔花讨伐也在这过程中完成了。余下就是做下后续任务，打完净化之森的大狼后干邪神了，请问邪神能比较稳定推掉的最低等级是多少？
-
-
-
-
-
 
 
 -----
@@ -32614,16 +21778,10 @@ encore
 ##### 1626#       发表于 2018-9-10 09:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40910194&amp;ptid=1711545" target="_blank">LinPC 发表于 2018-9-9 23:39</a>
 
 猎人线第三关后会给一些防石化的药，但是我把赤目打完了都完全没有用到那些药，赤目真的有石化的技能吗？ ...</blockquote>
 有，但是发动频率不高。我打的时候出了一次。
-
-
-
-
-
 
 
 -----
@@ -32632,14 +21790,7 @@ encore
 ##### 1627#       发表于 2018-9-10 12:17
 
 
-
-
 打到赤眼已经人均57级了用符文大师附魔光属性加女猎人拉网武斗家奥义开弱点破了两次防就带走了，石化根本没见着，药师还在队伍里帮着痛打恩人，真的是黑色幽默
-
-
-
-
-
 
 
 -----
@@ -32648,24 +21799,16 @@ encore
 ##### 1628#       发表于 2018-9-10 13:39
 
 
-
-
 请问起手用哪个职业比较好。
 
 
 昨天用神官第一个boss居然灭了3,4次都没过去
 
 
-
-
-
-
-
 -----
 
 ####  sunylink  
 ##### 1629#       发表于 2018-9-10 13:46
-
 
 
 <blockquote>lvcha 发表于 2018-9-10 13:39
@@ -32676,16 +21819,10 @@ encore
 神官还行啊练练级，打boss前记得招个小弟。还是可以磨过去的
 
 
-
-
-
-
-
 -----
 
 ####  kotisanae  
 ##### 1630#       发表于 2018-9-10 13:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40914442&amp;ptid=1711545" target="_blank">lvcha 发表于 2018-9-10 13:39</a>
@@ -32697,16 +21834,10 @@ encore
 商人学者。神官是最难的开局。
 
 
-
-
-
-
-
 -----
 
 ####  hiiroimatsu  
 ##### 1631#       发表于 2018-9-10 14:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40914442&amp;ptid=1711545" target="_blank">lvcha 发表于 2018-9-10 13:39</a>
@@ -32717,16 +21848,10 @@ encore
 反正猎人也别选，我猎人开局也死了好多次才过的，接着走神官那里也打的挺艰辛的
 
 
-
-
-
-
-
 -----
 
 ####  水宝宝  
 ##### 1632#       发表于 2018-9-10 14:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40914442&amp;ptid=1711545" target="_blank">lvcha 发表于 2018-9-10 13:39</a>
@@ -32740,16 +21865,10 @@ encore
 我这么打一路顺得要死完全没卡过关
 
 
-
-
-
-
-
 -----
 
 ####  奶牛  
 ##### 1633#       发表于 2018-9-10 14:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40914552&amp;ptid=1711545" target="_blank">kotisanae 发表于 2018-9-10 13:52</a>
@@ -32760,16 +21879,10 @@ encore
 每个职业起手都有很简单的解法。
 
 
-
-
-
-
-
 -----
 
 ####  奶牛  
 ##### 1634#       发表于 2018-9-10 14:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40910594&amp;ptid=1711545" target="_blank">yongze 发表于 2018-9-10 00:39</a>
@@ -32785,16 +21898,10 @@ nico上有个lv56就推掉的sm33624063
 （lv35豪武匠，lv37符文大师，lv33占星师，lv49大狼）
 
 
-
-
-
-
-
 -----
 
 ####  zpzp3697  
 ##### 1635#       发表于 2018-9-10 15:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40910594&amp;ptid=1711545" target="_blank">yongze 发表于 2018-9-10 00:39</a>
@@ -32803,32 +21910,19 @@ nico上有个lv56就推掉的sm33624063
 符文大师，魔术师，武斗家这3个职业的人作为主力输出等级50出头越高越好，其他人带好奶爆3-40级堆3000血左右就差不多了，反正也是给输出扔BP药的存在，第一场比较难带上2个法爷输出打比较好，第二场武斗家3个BREAK就结束了
 
 
-
-
-
-
-
 -----
 
 ####  zpzp3697  
 ##### 1636#       发表于 2018-9-10 15:56
 
 
-
-
 顺便说下打隐藏BOSS灵药师有点刺激，上个BUFF每回合所有人都是满气，当然速度要快一点~
-
-
-
-
-
 
 
 -----
 
 ####  iou90  
 ##### 1637#       发表于 2018-9-10 17:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40915027&amp;ptid=1711545" target="_blank">奶牛 发表于 2018-9-10 14:43</a>
@@ -32840,16 +21934,10 @@ nico上有个lv56就推掉的sm33624063
 话说快100小时了还是不知道咋解debuff 只能等？不是异常是debuff
 
 
-
-
-
-
-
 -----
 
 ####  噂の船  
 ##### 1638#       发表于 2018-9-10 17:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40916395&amp;ptid=1711545" target="_blank">iou90 发表于 2018-09-10 17:26:14</a>
@@ -32860,16 +21948,10 @@ nico上有个lv56就推掉的sm33624063
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  iou90  
 ##### 1639#       发表于 2018-9-10 17:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40916443&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-9-10 17:30</a>
@@ -32878,16 +21960,10 @@ nico上有个lv56就推掉的sm33624063
 正在开第一个了 神官通关了 话说舞娘的奥义不能对反射生效吗
 
 
-
-
-
-
-
 -----
 
 ####  妄想中毒  
 ##### 1640#       发表于 2018-9-10 18:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40915656&amp;ptid=1711545" target="_blank">zpzp3697 发表于 2018-9-10 15:54</a>
@@ -32896,16 +21972,10 @@ nico上有个lv56就推掉的sm33624063
 3000血运气不好怕不是第二场战斗连第一回合都顶不过去，第二场战斗压力全在前几回合，我打的时候第一回合BOSS直接秒了我4000+血的贼。邪神打一次要花1个多小时而且中途没法存档，最好还是把血量拉高点做好万全准备再去
 
 
-
-
-
-
-
 -----
 
 ####  妄想中毒  
 ##### 1641#       发表于 2018-9-10 18:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40910594&amp;ptid=1711545" target="_blank">yongze 发表于 2018-9-10 00:39</a>
@@ -32914,25 +21984,13 @@ nico上有个lv56就推掉的sm33624063
 我打的时候全员65+，平均血量4000+，装备基本都是全游戏里属性最高的，打起来还算轻松。8个小BOSS一路秒过去，邪神第一阶段队伍基本不掉血，第二阶段前几回合压力有点大靠豪武将的大招打掉BOSS所有部位后就很容易了
 
 
-
-
-
-
-
 -----
 
 ####  iou90  
 ##### 1642#       发表于 2018-9-11 01:06
 
 
-
-
 4个隐藏职业打完了 没啥感觉 不过给的职业技能真的好强
-
-
-
-
-
 
 
 -----
@@ -32941,21 +21999,13 @@ nico上有个lv56就推掉的sm33624063
 ##### 1643#       发表于 2018-9-11 22:07
 
 
-
-
 有次回酒馆 跟猎人姑娘对话 她给我俩道具 这是啥情况 
-
-
-
-
-
 
 
 -----
 
 ####  jbjack1215  
 ##### 1644#       发表于 2018-9-11 22:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40914442&amp;ptid=1711545" target="_blank">lvcha 发表于 2018-9-10 13:39</a>
@@ -32967,25 +22017,13 @@ nico上有个lv56就推掉的sm33624063
 記得酒館裡有的喝醉的衛兵，是全遊戲唯一一個擁有「臭氣」對敵全體造成多種異常狀態的協力者，記得也是神官一開場就能招來的人
 
 
-
-
-
-
-
 -----
 
 ####  hiiroimatsu  
 ##### 1645#       发表于 2018-9-11 23:27
 
 
-
-
 第二章开始学者偷听的概率越来越低了，强迫症又想把每个人都听一遍，一章的时候酒馆恢复关系也就2k，现在都1w了，总不见得sl来偷听吧，除了提升等级没别的办法了吗？
-
-
-
-
-
 
 
 -----
@@ -32994,22 +22032,15 @@ nico上有个lv56就推掉的sm33624063
 ##### 1646#       发表于 2018-9-12 00:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40929667&amp;ptid=1711545" target="_blank">hiiroimatsu 发表于 2018-9-11 23:27</a>
 第二章开始学者偷听的概率越来越低了，强迫症又想把每个人都听一遍，一章的时候酒馆恢复关系也就2k，现在都 ...</blockquote>
 所以练药师啊
-
-
-
-
-
 
 
 -----
 
 ####  kotisanae  
 ##### 1647#       发表于 2018-9-12 00:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40929667&amp;ptid=1711545" target="_blank">hiiroimatsu 发表于 2018-9-11 23:27</a>
@@ -33021,16 +22052,10 @@ nico上有个lv56就推掉的sm33624063
 学者场景技能不是偷听，推理满分池面怎么能干偷听这种低级趣味的事呢:) scrutinize 更类似于检视，非常认真观察从而得到信息。所以我每次用这个技能都脑补神探夏洛克。
 
 
-
-
-
-
-
 -----
 
 ####  hiiroimatsu  
 ##### 1648#       发表于 2018-9-12 00:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40930075&amp;ptid=1711545" target="_blank">iou90 发表于 2018-9-12 00:16</a>
@@ -33038,16 +22063,10 @@ nico上有个lv56就推掉的sm33624063
 药师等级太低了好多都打听不了，看来还是要练练他
 
 
-
-
-
-
-
 -----
 
 ####  iou90  
 ##### 1649#       发表于 2018-9-12 00:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40930134&amp;ptid=1711545" target="_blank">kotisanae 发表于 2018-9-12 00:24</a>
@@ -33058,16 +22077,10 @@ nico上有个lv56就推掉的sm33624063
 嗯嗯 所以没有明显的正邪之分吧 也不是明显的对立
 
 
-
-
-
-
-
 -----
 
 ####  hiiroimatsu  
 ##### 1650#       发表于 2018-9-12 00:53
-
 
 
  本帖最后由 hiiroimatsu 于 2018-9-12 01:17 编辑 
@@ -33080,16 +22093,10 @@ nico上有个lv56就推掉的sm33624063
 强迫症害人啊，技能是探る，但是每次失败被骂总觉得自己干的是偷听这档子事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  osk666neo  
 ##### 1651#       发表于 2018-9-12 02:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40916395&amp;ptid=1711545" target="_blank">iou90 发表于 2018-9-10 17:26</a>
@@ -33100,26 +22107,15 @@ nico上有个lv56就推掉的sm33624063
 —— 来自 Sony G8142, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
 
 
-
-
-
-
-
 -----
 
 ####  kotisanae  
 ##### 1652#       发表于 2018-9-12 11:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40930330&amp;ptid=1711545" target="_blank">hiiroimatsu 发表于 2018-09-12 00:53:53</a></blockquote>失败那个可以这样理解：cytus 一直直愣愣盯着别人看，对方忍无可忍愤而报警
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -33128,14 +22124,7 @@ nico上有个lv56就推掉的sm33624063
 ##### 1653#       发表于 2018-9-12 22:30
 
 
-
-
 我喜欢找npc说话，完成龙蛋任务后还能找到那个孵龙蛋的小女孩吗，还有打完菲尼斯之门后还能找到クリス吗
-
-
-
-
-
 
 
 -----
@@ -33144,16 +22133,10 @@ nico上有个lv56就推掉的sm33624063
 ##### 1654#       发表于 2018-9-13 13:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40917086&amp;ptid=1711545" target="_blank">妄想中毒 发表于 2018-9-10 18:52</a>
 
 3000血运气不好怕不是第二场战斗连第一回合都顶不过去，第二场战斗压力全在前几回合，我打的时候第一回合 ...</blockquote>
 这就是给不高兴练级的人的方案，带好奶爆技能，第一回合上个回复就是5-6000+的血量了不知道怎么死，个别死人了扔个最大的复活药就是9999的血量
-
-
-
-
-
 
 
 -----
@@ -33162,16 +22145,10 @@ nico上有个lv56就推掉的sm33624063
 ##### 1655#       发表于 2018-9-13 18:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40920134&amp;ptid=1711545" target="_blank">iou90 发表于 2018-9-11 01:06</a>
 
 4个隐藏职业打完了 没啥感觉 不过给的职业技能真的好强</blockquote>
 你都快60了当然没啥感觉，这4个BOSS是45级难度的BOSS，还不如大狼
-
-
-
-
-
 
 
 -----
@@ -33180,15 +22157,9 @@ nico上有个lv56就推掉的sm33624063
 ##### 1656#       发表于 2018-9-13 23:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40946909&amp;ptid=1711545" target="_blank">妄想中毒 发表于 2018-9-13 18:52</a>
 你都快60了当然没啥感觉，这4个BOSS是45级难度的BOSS，还不如大狼</blockquote>
 后面除了最终隐藏 还有啥厉害boss吗 还有这作迷宫太单调 就那几个路数
-
-
-
-
-
 
 
 -----
@@ -33197,22 +22168,15 @@ nico上有个lv56就推掉的sm33624063
 ##### 1657#       发表于 2018-9-13 23:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40946909&amp;ptid=1711545" target="_blank">妄想中毒 发表于 2018-9-13 18:52</a>
 你都快60了当然没啥感觉，这4个BOSS是45级难度的BOSS，还不如大狼</blockquote>
 突然想起来 等级高是因为30级前不知道城镇能传送 真是太悲伤了T T
-
-
-
-
-
 
 
 -----
 
 ####  噂の船  
 ##### 1658#       发表于 2018-9-13 23:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40948933&amp;ptid=1711545" target="_blank">iou90 发表于 2018-09-13 23:04:54</a>
@@ -33224,16 +22188,10 @@ nico上有个lv56就推掉的sm33624063
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  iou90  
 ##### 1659#       发表于 2018-9-14 03:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40949012&amp;ptid=1711545" target="_blank">噂の船 发表于 2018-9-13 23:14</a>
@@ -33242,17 +22200,10 @@ nico上有个lv56就推掉的sm33624063
 现在是一气打完一个角色的故事
 
 
-
-
-
-
-
 -----
 
 ####  enc  
 ##### 1660#       发表于 2018-9-15 19:50
-
-
 
 
 不如情愿加点高难度的迷宫dlc
@@ -33262,25 +22213,13 @@ nico上有个lv56就推掉的sm33624063
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  iou90  
 ##### 1661#       发表于 2018-9-16 20:13
 
 
-
-
 BOOST循环这技能没搞懂 也不是回复2bp呀
-
-
-
-
-
 
 
 -----
@@ -33289,16 +22228,10 @@ BOOST循环这技能没搞懂 也不是回复2bp呀
 ##### 1662#       发表于 2018-9-16 20:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=40979644&amp;ptid=1711545" target="_blank">iou90 发表于 2018-9-16 20:13</a>
 
 BOOST循环这技能没搞懂 也不是回复2bp呀</blockquote>
 是说占星的技能吗？那个是把每回合自然回复的bp数变成2，上回合用过boost还是一样没有自然回复的
-
-
-
-
-
 
 
 -----
@@ -33307,14 +22240,7 @@ BOOST循环这技能没搞懂 也不是回复2bp呀</blockquote>
 ##### 1663#       发表于 2018-9-16 21:10
 
 
-
-
 遇到布袋猫后隔两场战斗又遇到了一个新布袋猫，第一回合我方第二个角色都没上场前直接跑了是怎么回事。舞女都没来得及召唤外援<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -33323,14 +22249,7 @@ BOOST循环这技能没搞懂 也不是回复2bp呀</blockquote>
 ##### 1664#       发表于 2018-9-16 21:18
 
 
-
-
 70级打完最终boss，不得不说符文真的太强了，全员附魔敲一下5万血一下子把最终boss大眼球敲死了…第二形态用女武神奥义轰杀至渣
-
-
-
-
-
 
 
 -----
@@ -33339,14 +22258,7 @@ BOOST循环这技能没搞懂 也不是回复2bp呀</blockquote>
 ##### 1665#       发表于 2018-9-24 22:16
 
 
-
-
 洞窟的boss被我打死了...怎么才能刷新一下让猎人抓啊 还是说没救了...<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -33355,16 +22267,10 @@ BOOST循环这技能没搞懂 也不是回复2bp呀</blockquote>
 ##### 1666#       发表于 2018-9-24 22:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41066840&amp;ptid=1711545" target="_blank">sayano 发表于 2018-9-24 22:16</a>
 
 洞窟的boss被我打死了...怎么才能刷新一下让猎人抓啊 还是说没救了...</blockquote>
 打死以后变成野怪随机遇敌，洞窟里多走走能碰到
-
-
-
-
-
 
 
 -----
@@ -33373,24 +22279,16 @@ BOOST循环这技能没搞懂 也不是回复2bp呀</blockquote>
 ##### 1667#       发表于 2018-9-24 22:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41066944&amp;ptid=1711545" target="_blank">笛普达克范太希 发表于 2018-9-24 22:27</a>
 
 打死以后变成野怪随机遇敌，洞窟里多走走能碰到</blockquote>
 感谢老哥，刚才都半绝望了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  噂の船  
 ##### 1668#       发表于 2018-9-25 23:00
-
-
 
 
 妈呀这最终boss 我全员60级连第一阶段都打不过
@@ -33402,27 +22300,15 @@ BOOST循环这技能没搞懂 也不是回复2bp呀</blockquote>
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  合同工  
 ##### 1669#       发表于 2018-10-3 12:48
 
 
-
-
 在Stillwinter看见一个舞女，舞女说为了还债想去窑子卖身还债，然后我看他身上有个匕首还不错花五六万买了，然后她说
 
 多谢我终于有钱买个新镯子了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -33431,22 +22317,15 @@ BOOST循环这技能没搞懂 也不是回复2bp呀</blockquote>
 ##### 1670#       发表于 2018-10-3 21:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41151535&amp;ptid=1711545" target="_blank">合同工 发表于 2018-10-3 12:48</a>
 在Stillwinter看见一个舞女，舞女说为了还债想去窑子卖身还债，然后我看他身上有个匕首还不错花五六万买了 ...</blockquote>
 stillsnow那个卖历战的？ 英文版是不是叫forbidden？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  合同工  
 ##### 1671#       发表于 2018-10-3 23:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41155265&amp;ptid=1711545" target="_blank">sayano 发表于 2018-10-3 21:05</a>
@@ -33457,16 +22336,10 @@ stillsnow那个卖历战的？ 英文版是不是叫forbidden？</blockquote>
 我没注意看，觉得贵的肯定好就直接掏钱买了...
 
 
-
-
-
-
-
 -----
 
 ####  iou90  
 ##### 1672#       发表于 2018-10-3 23:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41155265&amp;ptid=1711545" target="_blank">sayano 发表于 2018-10-3 21:05</a>
@@ -33474,16 +22347,10 @@ stillsnow那个卖历战的？ 英文版是不是叫forbidden？</blockquote>
 battle tested才是历战吧？
 
 
-
-
-
-
-
 -----
 
 ####  Bani82  
 ##### 1673#       发表于 2018-10-4 00:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41156634&amp;ptid=1711545" target="_blank">合同工 发表于 2018-10-3 23:40</a>
@@ -33494,16 +22361,10 @@ battle tested才是历战吧？
 那个是禁忌武器，有负面属性的
 
 
-
-
-
-
-
 -----
 
 ####  六连星mk3  
 ##### 1674#       发表于 2018-10-4 00:47
-
 
 
 <blockquote>噂の船 发表于 2018-9-25 23:00
@@ -33527,16 +22388,10 @@ battle tested才是历战吧？
 最后打完一头汗，紧张死了，毕竟一死就是一个小时进度的丢失
 
 
-
-
-
-
-
 -----
 
 ####  六连星mk3  
 ##### 1675#       发表于 2018-10-4 00:54
-
 
 
 <blockquote>合同工 发表于 2018-10-3 23:40
@@ -33552,16 +22407,10 @@ battle tested才是历战吧？
 能用到最终boss，买了不亏
 
 
-
-
-
-
-
 -----
 
 ####  sayano  
 ##### 1676#       发表于 2018-10-4 00:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41156634&amp;ptid=1711545" target="_blank">合同工 发表于 2018-10-3 23:40</a>
@@ -33572,16 +22421,10 @@ battle tested才是历战吧？
 我玩的英文版，日文可以说一点都看不懂......只知道最厉害的是历战，原来还不是<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  sayano  
 ##### 1677#       发表于 2018-10-4 00:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41156677&amp;ptid=1711545" target="_blank">iou90 发表于 2018-10-3 23:47</a>
@@ -33593,16 +22436,10 @@ battle tested才是历战吧？</blockquote>
 原来不是啊，那历战可以在哪里弄到呢？<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  六连星mk3  
 ##### 1678#       发表于 2018-10-4 01:12
-
 
 
  本帖最后由 六连星mk3 于 2018-10-4 01:16 编辑 
@@ -33617,16 +22454,10 @@ battle tested才是历战吧？</blockquote>
 或者打完第一章后，用战士去挑战十星npc，有极低的几率掉，反正我刷了一晚上的历战盾没出，大概打了30多把，放弃了禁忌武器已经是整个游戏中大部分武器种类排名第三的武器了。第一第二的武器都要通关后才能获得
 
 
-
-
-
-
-
 -----
 
 ####  sayano  
 ##### 1679#       发表于 2018-10-4 01:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41157132&amp;ptid=1711545" target="_blank">六连星mk3 发表于 2018-10-4 01:12</a>
@@ -33637,16 +22468,10 @@ battle tested才是历战吧？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">这样的吗 感恩
 
 
-
-
-
-
-
 -----
 
 ####  合同工  
 ##### 1680#       发表于 2018-10-4 06:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41156997&amp;ptid=1711545" target="_blank">Bani82 发表于 2018-10-4 00:42</a>
@@ -33657,16 +22482,10 @@ battle tested才是历战吧？</blockquote>
 这游戏NPC的细节太鬼畜了，比如剑士可以去单挑孕妇什么的
 
 
-
-
-
-
-
 -----
 
 ####  飞灾  
 ##### 1681#       发表于 2018-10-5 08:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41157054&amp;ptid=1711545" target="_blank">六连星mk3 发表于 2018-10-04 00:54:47</a>
@@ -33679,16 +22498,10 @@ battle tested才是历战吧？</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  六连星mk3  
 ##### 1682#       发表于 2018-10-5 08:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41167568&amp;ptid=1711545" target="_blank">飞灾 发表于 2018-10-5 08:29</a>
@@ -33699,16 +22512,10 @@ battle tested才是历战吧？</blockquote>
 做主输出可惜了
 
 
-
-
-
-
-
 -----
 
 ####  飞灾  
 ##### 1683#       发表于 2018-10-5 15:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41167626&amp;ptid=1711545" target="_blank">六连星mk3 发表于 2018-10-5 08:44</a>
@@ -33721,25 +22528,13 @@ debuff反过来用女猎人+盗贼咯
 再说破防还有武艺者和魔法师
 
 
-
-
-
-
-
 -----
 
 ####  hiiroimatsu  
 ##### 1684#       发表于 2018-10-6 18:52
 
 
-
-
 现在四十级出头想练练级，查了一下都说在冰龙洞练级，打了几次感觉经验也不怎么多，请问还有别的推荐吗？
-
-
-
-
-
 
 
 -----
@@ -33748,21 +22543,13 @@ debuff反过来用女猎人+盗贼咯
 ##### 1685#       发表于 2018-10-7 00:17
 
 
-
-
 我这八人第三章都快全通了才知道各种nuts是拿来加属性的简直是智障<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  合同工  
 ##### 1686#       发表于 2018-10-7 01:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41167626&amp;ptid=1711545" target="_blank">六连星mk3 发表于 2018-10-5 08:44</a>
@@ -33775,16 +22562,10 @@ debuff反过来用女猎人+盗贼咯
 我破防全靠商人砸钱和魔法师三连
 
 
-
-
-
-
-
 -----
 
 ####  合同工  
 ##### 1687#       发表于 2018-10-7 01:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41180615&amp;ptid=1711545" target="_blank">hiiroimatsu 发表于 2018-10-6 18:52</a>
@@ -33799,16 +22580,10 @@ debuff反过来用女猎人+盗贼咯
 导致后面的战斗极其无聊...
 
 
-
-
-
-
-
 -----
 
 ####  合同工  
 ##### 1688#       发表于 2018-10-7 01:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41183456&amp;ptid=1711545" target="_blank">迥桑 发表于 2018-10-7 00:17</a>
@@ -33819,16 +22594,10 @@ debuff反过来用女猎人+盗贼咯
 导致我玩儿的特别有旅人的感觉...
 
 
-
-
-
-
-
 -----
 
 ####  sayano  
 ##### 1689#       发表于 2018-10-7 07:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41183456&amp;ptid=1711545" target="_blank">迥桑 发表于 2018-10-7 00:17</a>
@@ -33836,16 +22605,10 @@ debuff反过来用女猎人+盗贼咯
 啊？……………<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xiaolong610  
 ##### 1690#       发表于 2018-10-7 08:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41184862&amp;ptid=1711545" target="_blank">sayano 发表于 2018-10-7 07:36</a>
@@ -33855,16 +22618,10 @@ debuff反过来用女猎人+盗贼咯
 —— 来自 Sony E6683, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
 
 
-
-
-
-
-
 -----
 
 ####  hiiroimatsu  
 ##### 1691#       发表于 2018-10-7 09:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41183928&amp;ptid=1711545" target="_blank">合同工 发表于 2018-10-7 01:29</a>
@@ -33877,16 +22634,10 @@ debuff反过来用女猎人+盗贼咯
 之前也没刻意练级，但是一开始选得是猎人不去把主线打完她就一直卡在队伍里了，再加上每个城镇用学者打探要看脸，药师等级才40出头，就想先练到50级左右，好歹强迫症有救了
 
 
-
-
-
-
-
 -----
 
 ####  飞灾  
 ##### 1692#       发表于 2018-10-7 10:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41180615&amp;ptid=1711545" target="_blank">hiiroimatsu 发表于 2018-10-6 18:52</a>
@@ -33897,16 +22648,10 @@ debuff反过来用女猎人+盗贼咯
 其实等级没啥大用，JP才是王道
 
 
-
-
-
-
-
 -----
 
 ####  飞灾  
 ##### 1693#       发表于 2018-10-7 10:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41183884&amp;ptid=1711545" target="_blank">合同工 发表于 2018-10-7 01:21</a>
@@ -33923,17 +22668,10 @@ debuff反过来用女猎人+盗贼咯
 商人后期的主要作用其实是和符文大师配合着给全员上绝对回避
 
 
-
-
-
-
-
 -----
 
 ####  噂の船  
 ##### 1694#       发表于 2018-10-7 11:41
-
-
 
 
 通关了..黑炎帝本体相比第一阶段的眼球简直是白送的
@@ -33943,27 +22681,15 @@ debuff反过来用女猎人+盗贼咯
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  迥桑  
 ##### 1695#       发表于 2018-10-12 07:03
 
 
-
-
 在冰龙洞刷了一个小时出了两次三猫大全然而最肥的那只永远打不死<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
 
 倒是刚刚过去的一个小时内真的舞娘药王轮流跳各种出exp*2 or *5，一辈子最欧的一个小时<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">把拖后腿四人组硬生生弄上了50级
-
-
-
-
-
 
 
 -----
@@ -33972,14 +22698,7 @@ debuff反过来用女猎人+盗贼咯
 ##### 1696#       发表于 2018-11-19 09:33
 
 
-
-
 最近刚有时间玩……想问一下魔剑士打到后来暴气了怎么扛？每次顶不住两回合就挂了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">以及暴气的时间点大概还剩多少血？
-
-
-
-
-
 
 
 -----
@@ -33988,23 +22707,16 @@ debuff反过来用女猎人+盗贼咯
 ##### 1697#       发表于 2018-11-19 11:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41642702&amp;ptid=1711545" target="_blank">稲穂信 发表于 2018-11-19 09:33</a>
 
 最近刚有时间玩……想问一下魔剑士打到后来暴气了怎么扛？每次顶不住两回合就挂了以及暴气的时间点 ...</blockquote>
 关键是药师的全员健全化不能断，没有异常状态非常好打
 
 
-
-
-
-
-
 -----
 
 ####  稲穂信  
 ##### 1698#       发表于 2018-11-19 11:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41644517&amp;ptid=1711545" target="_blank">karaage 发表于 2018-11-19 11:43</a>
@@ -34015,16 +22727,10 @@ debuff反过来用女猎人+盗贼咯
 于是四个隐藏职业拿到手之后，游戏是不是除了隐藏boss，在流程上就没啥挑战性了？
 
 
-
-
-
-
-
 -----
 
 ####  karaage  
 ##### 1699#       发表于 2018-11-19 11:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41644610&amp;ptid=1711545" target="_blank">稲穂信 发表于 2018-11-19 11:49</a>
@@ -34037,16 +22743,10 @@ debuff反过来用女猎人+盗贼咯
 拿完新四军主线就随便打了，隐藏BOSS还是有点难度的
 
 
-
-
-
-
-
 -----
 
 ####  稲穂信  
 ##### 1700#       发表于 2018-11-19 12:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41644721&amp;ptid=1711545" target="_blank">karaage 发表于 2018-11-19 11:58</a>
@@ -34055,16 +22755,10 @@ debuff反过来用女猎人+盗贼咯
 那我觉得我升级升过头了……之后就纯看剧情了吧
 
 
-
-
-
-
-
 -----
 
 ####  稲穂信  
 ##### 1701#       发表于 2018-11-19 22:25
-
 
 
  本帖最后由 稲穂信 于 2018-11-19 22:29 编辑 
@@ -34076,16 +22770,10 @@ debuff反过来用女猎人+盗贼咯
 于是配给哪个角色有推荐吗？
 
 
-
-
-
-
-
 -----
 
 ####  笛普达克范太希  
 ##### 1702#       发表于 2018-11-20 13:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41652760&amp;ptid=1711545" target="_blank">稲穂信 发表于 2018-11-19 22:25</a>
@@ -34095,16 +22783,10 @@ debuff反过来用女猎人+盗贼咯
 —— 来自 Xiaomi MI 8, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  karaage  
 ##### 1703#       发表于 2018-11-20 13:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41652760&amp;ptid=1711545" target="_blank">稲穂信 发表于 2018-11-19 22:25</a>
@@ -34113,25 +22795,13 @@ debuff反过来用女猎人+盗贼咯
 魔剑士给商人，扩散符文+紧急回避抵挡一切物理攻击，可以让你躺着无伤打过豪武将<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  韶华白首  
 ##### 1704#       发表于 2019-4-11 23:17
 
 
-
-
 6月7日登陆steam
-
-
-
-
-
 
 
 -----
@@ -34140,21 +22810,13 @@ debuff反过来用女猎人+盗贼咯
 ##### 1705#       发表于 2019-4-12 10:00
 
 
-
-
 刚结束第一章，没开始第二章，靠学者被动直接探完了全部能去的地图，顺便刷级刷钱，吧4个隐藏职业也拿了，除了历战和某几个防具装备方面可以直接毕业了
-
-
-
-
-
 
 
 -----
 
 ####  飞灾  
 ##### 1706#       发表于 2019-4-12 10:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41652760&amp;ptid=1711545" target="_blank">稲穂信 发表于 2018-11-19 22:25</a>
@@ -34192,17 +22854,10 @@ debuff反过来用女猎人+盗贼咯
 学者/神官：属攻+50、sp+50、伤界突破、回界突破
 
 
-
-
-
-
-
 -----
 
 ####  X轴正向速度  
 ##### 1707#       发表于 2019-4-12 22:59
-
-
 
 
 有没有什么值得获取但是错过就无法再获得的东西？
@@ -34211,16 +22866,10 @@ debuff反过来用女猎人+盗贼咯
 还有，主线推太快会使某些支线或者NPC消失吗？当前到处刷到处转不敢推太快
 
 
-
-
-
-
-
 -----
 
 ####  Yeaha123  
 ##### 1708#       发表于 2019-4-12 23:58
-
 
 
 <blockquote>X轴正向速度 发表于 2019-4-12 22:59
@@ -34231,16 +22880,10 @@ debuff反过来用女猎人+盗贼咯
 https://game8.jp/octopathtraveler/229153
 
 
-
-
-
-
-
 -----
 
 ####  六连星mk3  
 ##### 1709#       发表于 2019-4-13 16:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43271725&amp;ptid=1711545" target="_blank">飞灾 发表于 2019-4-12 10:44</a>
@@ -34251,32 +22894,19 @@ https://game8.jp/octopathtraveler/229153
 附议，这也是我的阵容，基本上最优化了
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 1710#       发表于 2019-4-15 10:16
 
 
-
-
 宣布更新中文了。。
-
-
-
-
-
 
 
 -----
 
 ####  Lunamos  
 ##### 1711#         楼主| 发表于 2019-4-15 11:01
-
 
 
  本帖最后由 Lunamos 于 2019-4-15 12:02 编辑 
@@ -34286,25 +22916,13 @@ https://game8.jp/octopathtraveler/229153
 总体感觉比“八方”要强些，“八方”给人的感觉不是八个人、八条路，而是八方拜服、万国来朝的crowd感。当然无论哪个都比日版的オクトパス トラベラー强多了。
 
 
-
-
-
-
-
 -----
 
 ####  kiraabu  
 ##### 1712#       发表于 2019-4-15 11:02
 
 
-
-
 日版可以更新吗
-
-
-
-
-
 
 
 -----
@@ -34313,16 +22931,10 @@ https://game8.jp/octopathtraveler/229153
 ##### 1713#         楼主| 发表于 2019-4-15 11:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43308190&amp;ptid=1711545" target="_blank">kiraabu 发表于 2019-4-15 12:02</a>
 
 日版可以更新吗</blockquote>
 官推说全世界免费更新，除非他说的全世界不包括日本（有这个可能）
-
-
-
-
-
 
 
 -----
@@ -34331,14 +22943,7 @@ https://game8.jp/octopathtraveler/229153
 ##### 1714#       发表于 2019-4-15 11:05
 
 
-
-
 现在瑞典服在打折 不知道美服会不会打折？毕竟屯了点卡。。。
-
-
-
-
-
 
 
 -----
@@ -34347,22 +22952,15 @@ https://game8.jp/octopathtraveler/229153
 ##### 1715#       发表于 2019-4-15 11:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43308207&amp;ptid=1711545" target="_blank">Lunamos 发表于 2019-4-15 11:03</a>
 官推说全世界免费更新，除非他说的全世界不包括日本（有这个可能）</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我印象中好像se还是谁干过这事
-
-
-
-
-
 
 
 -----
 
 ####  APP  
 ##### 1716#       发表于 2019-4-15 11:20
-
 
 
  本帖最后由 APP 于 2019-4-15 11:35 编辑 
@@ -34379,27 +22977,15 @@ https://game8.jp/octopathtraveler/229153
 当然翻译可能还有商标、审核等别的考量，可以理解。
 
 
-
-
-
-
-
-
 -----
 
 ####  大哀之君  
 ##### 1717#       发表于 2019-4-15 11:23
 
 
-
  本帖最后由 大哀之君 于 2019-4-15 11:24 编辑 
 
 《八方旅人》肯定不能用，想什么呢。暗黑3野蛮人某技能台服译名“血溅八方”，国服译名“血溅十方”，猜猜看原因是啥
-
-
-
-
-
 
 
 -----
@@ -34408,23 +22994,16 @@ https://game8.jp/octopathtraveler/229153
 ##### 1718#         楼主| 发表于 2019-4-15 11:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43308506&amp;ptid=1711545" target="_blank">大哀之君 发表于 2019-4-15 12:23</a>
 
 《八方旅人》肯定不能用，想什么呢。暗黑3野蛮人某技能台服译名“血溅八方”，国服译名“血溅十方”，猜猜 ...</blockquote>
 好吧，你发现了盲点
 
 
-
-
-
-
-
 -----
 
 ####  APP  
 ##### 1719#       发表于 2019-4-15 11:53
-
 
 
  本帖最后由 APP 于 2019-4-15 11:59 编辑 
@@ -34434,17 +23013,10 @@ https://game8.jp/octopathtraveler/229153
 Google/Baidu "血溅十方"+"和谐"、"血溅十方"+"国服" 都没有任何相关结果。很怀疑这是不是受害妄想。
 
 
-
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 1720#         楼主| 发表于 2019-4-15 11:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43308936&amp;ptid=1711545" target="_blank">APP 发表于 2019-4-15 12:53</a>
@@ -34453,25 +23025,13 @@ Google/Baidu "血溅十方"+"和谐"、"血溅十方"+"国服" 都没有任何�
 建议换个话题，心里有数就行了，不用细究是不是和谐……<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  空罐子  
 ##### 1721#       发表于 2019-4-15 12:00
 
 
-
-
 怎么也比《八方旅人》这个翻译靠谱，当初谁一拍脑袋想出来的。
-
-
-
-
-
 
 
 -----
@@ -34480,16 +23040,10 @@ Google/Baidu "血溅十方"+"和谐"、"血溅十方"+"国服" 都没有任何�
 ##### 1722#       发表于 2019-4-15 12:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43308506&amp;ptid=1711545" target="_blank">大哀之君 发表于 2019-4-15 11:23</a>
 
 《八方旅人》肯定不能用，想什么呢。暗黑3野蛮人某技能台服译名“血溅八方”，国服译名“血溅十方”，猜猜 ...</blockquote>
 呃原来是这样吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -34498,16 +23052,9 @@ Google/Baidu "血溅十方"+"和谐"、"血溅十方"+"国服" 都没有任何�
 ##### 1723#       发表于 2019-4-15 12:21
 
 
-
-
 淘宝上破400+可了
 
 欧服瑞典255
-
-
-
-
-
 
 
 -----
@@ -34516,16 +23063,10 @@ Google/Baidu "血溅十方"+"和谐"、"血溅十方"+"国服" 都没有任何�
 ##### 1724#       发表于 2019-4-15 12:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43308506&amp;ptid=1711545" target="_blank">大哀之君 发表于 2019-4-15 11:23</a>
 
 《八方旅人》肯定不能用，想什么呢。暗黑3野蛮人某技能台服译名“血溅八方”，国服译名“血溅十方”，猜猜 ...</blockquote>
 这就是被害妄想症了吧，这次中文是任天堂香港搞的。
-
-
-
-
-
 
 
 -----
@@ -34534,21 +23075,13 @@ Google/Baidu "血溅十方"+"和谐"、"血溅十方"+"国服" 都没有任何�
 ##### 1725#       发表于 2019-4-15 12:45
 
 
-
-
 这大概是这两年关于中文的消息最多的游戏了，终于来真的了吗
-
-
-
-
-
 
 
 -----
 
 ####  kstg0428569  
 ##### 1726#       发表于 2019-4-15 12:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43308179&amp;ptid=1711545" target="_blank">Lunamos 发表于 2019-4-15 11:01</a>
@@ -34559,25 +23092,13 @@ Google/Baidu "血溅十方"+"和谐"、"血溅十方"+"国服" 都没有任何�
 “八方”至少有“四海之内皆兄弟”这种赛珍珠形式的翻译态度。姑且不说好不好，至少一般中国人看到后，不会有“歧路”这种远离中文圈习惯的违和感。
 
 
-
-
-
-
-
 -----
 
 ####  TR4835  
 ##### 1727#       发表于 2019-4-15 13:00
 
 
-
-
 歧路无论取岔路和错路哪个意思都和这游戏不搭边吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -34586,14 +23107,7 @@ Google/Baidu "血溅十方"+"和谐"、"血溅十方"+"国服" 都没有任何�
 ##### 1728#       发表于 2019-4-15 14:17
 
 
-
-
 这游戏速度属性真诡异，最高速度的角色遇敌时有时不能先出手
-
-
-
-
-
 
 
 -----
@@ -34602,16 +23116,10 @@ Google/Baidu "血溅十方"+"和谐"、"血溅十方"+"国服" 都没有任何�
 ##### 1729#         楼主| 发表于 2019-4-15 14:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43310709&amp;ptid=1711545" target="_blank">Yeaha123 发表于 2019-4-15 15:17</a>
 
 这游戏速度属性真诡异，最高速度的角色遇敌时有时不能先出手</blockquote>
 可能像BDFF一样有随机数因子影响顺序。另外被break的敌人下回合经常会先动，而且防御和上回合的一些行动也会影响顺序。
-
-
-
-
-
 
 
 -----
@@ -34620,21 +23128,13 @@ Google/Baidu "血溅十方"+"和谐"、"血溅十方"+"国服" 都没有任何�
 ##### 1730#       发表于 2019-4-15 16:31
 
 
-
-
 八方旅人剧情很糟糕么？今天上午强到一个335的拍下了，对比XB2来说，游戏性如何？
-
-
-
-
-
 
 
 -----
 
 ####  水宝宝  
 ##### 1731#       发表于 2019-4-15 16:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43312182&amp;ptid=1711545" target="_blank">coolhorsems 发表于 2019-4-15 16:31</a>
@@ -34645,16 +23145,10 @@ Google/Baidu "血溅十方"+"和谐"、"血溅十方"+"国服" 都没有任何�
 剧情你至少要推完全部主线+隐藏BOSS才能GET到妙处，要完全体会必须支线也打了
 
 
-
-
-
-
-
 -----
 
 ####  uzar  
 ##### 1732#       发表于 2019-4-15 16:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43309028&amp;ptid=1711545" target="_blank">Lunamos 发表于 2019-4-15 11:59</a>
@@ -34663,16 +23157,10 @@ Google/Baidu "血溅十方"+"和谐"、"血溅十方"+"国服" 都没有任何�
 原文是bloodshed，根本和数字没关系……
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 1733#         楼主| 发表于 2019-4-15 16:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43312182&amp;ptid=1711545" target="_blank">coolhorsems 发表于 2019-4-15 17:31</a>
@@ -34681,33 +23169,19 @@ Google/Baidu "血溅十方"+"和谐"、"血溅十方"+"国服" 都没有任何�
 剧情是四幕短剧形式，演出很好，加上移轴镜头，剧情上有种特殊的剧场感加成。本身不能说糟糕，只是没有跳脱一些套路和框架。游戏性对比XB2各有千秋，我个人更喜欢本作，而XB2的内容更丰富。
 
 
-
-
-
-
-
 -----
 
 ####  妄想中毒  
 ##### 1734#       发表于 2019-4-15 18:58
 
 
-
-
 这游戏的剧情真心没劲，8个小故事太短没什么深度，每一章基本都是流水账，最后也就是靠隐藏BOSS处的几个文本把所有人物串到一起
-
-
-
-
-
 
 
 -----
 
 ####  平昭·南宫司卿  
 ##### 1735#       发表于 2019-4-15 19:11
-
-
 
 
 我挺喜欢八方的剧情的
@@ -34717,27 +23191,15 @@ Google/Baidu "血溅十方"+"和谐"、"血溅十方"+"国服" 都没有任何�
 トレサ的小故事我特别特别喜欢，我觉得冒险本来也就是这样的
 
 
-
-
-
-
-
 -----
 
 ####  没取名啊  
 ##### 1736#       发表于 2019-4-15 19:39
 
 
-
-
 挺好，我8个人还没收齐呢，中文更新后正好继续
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -34746,14 +23208,7 @@ Google/Baidu "血溅十方"+"和谐"、"血溅十方"+"国服" 都没有任何�
 ##### 1737#       发表于 2019-4-15 20:02
 
 
-
-
 再打一遍听听bgm吧 魔神战的bgm现在还能哼出来
-
-
-
-
-
 
 
 -----
@@ -34762,14 +23217,7 @@ Google/Baidu "血溅十方"+"和谐"、"血溅十方"+"国服" 都没有任何�
 ##### 1738#       发表于 2019-4-15 21:03
 
 
-
-
 剧情方面属于典型的王道rpg风格，然而没太大惊喜，开头略惊艳后期略疲软，单线剧情非常短且发展的简单粗暴，8位主角在主线故事中没有交集，游戏设定所致也没有办法，但剧情安排上应该照顾下同伴同行的可能，至少隐藏boss这条支线作为联系起8个主角及揭露内幕的彩蛋，如果做到主线里并增加主角间的互动及加强演出效果，会比现在更好。
-
-
-
-
-
 
 
 -----
@@ -34778,14 +23226,7 @@ Google/Baidu "血溅十方"+"和谐"、"血溅十方"+"国服" 都没有任何�
 ##### 1739#       发表于 2019-4-15 21:53
 
 
-
-
 商人前面几章还好，第四章跟《读者》的鸡汤文似的
-
-
-
-
-
 
 
 -----
@@ -34794,14 +23235,7 @@ Google/Baidu "血溅十方"+"和谐"、"血溅十方"+"国服" 都没有任何�
 ##### 1740#         楼主| 发表于 2019-4-16 00:17
 
 
-
-
 Steam页面已经上了
-
-
-
-
-
 
 
 -----
@@ -34810,21 +23244,13 @@ Steam页面已经上了
 ##### 1741#       发表于 2019-4-16 00:28
 
 
-
-
 Steam 也有中文，奸商继续炒不要停
-
-
-
-
-
 
 
 -----
 
 ####  Zest  
 ##### 1742#       发表于 2019-4-16 08:55
-
 
 
 <blockquote>引用第1724楼韶华白首于2019-04-15 12:22发表的  :
@@ -34836,25 +23262,13 @@ Steam 也有中文，奸商继续炒不要停
 ----发送自 [STAGE1 Mobile](http://saraba1st.com/2b/?1.0)
 
 
-
-
-
-
-
 -----
 
 ####  X轴正向速度  
 ##### 1743#       发表于 2019-4-16 09:16
 
 
-
-
 8个角色没什么交集，强行说的话也就只有剧情期间的加号互动。坑爹的是这玩意必须相关角色在队才会有，想看全还得多次换队伍
-
-
-
-
-
 
 
 -----
@@ -34863,14 +23277,7 @@ Steam 也有中文，奸商继续炒不要停
 ##### 1744#       发表于 2019-4-16 09:49
 
 
-
-
 我tm纪元没买就是等的这个！吹爆！预购！
-
-
-
-
-
 
 
 -----
@@ -34879,16 +23286,9 @@ Steam 也有中文，奸商继续炒不要停
 ##### 1745#       发表于 2019-4-16 21:22
 
 
-
-
 都要出中文了，我魔神还没打过
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -34897,14 +23297,7 @@ Steam 也有中文，奸商继续炒不要停
 ##### 1746#       发表于 2019-4-17 15:42
 
 
-
-
 问一下，这游戏值得买吗？xb2我没玩下去，p5倒是挺喜欢
-
-
-
-
-
 
 
 -----
@@ -34913,14 +23306,7 @@ Steam 也有中文，奸商继续炒不要停
 ##### 1747#       发表于 2019-4-17 15:54
 
 
-
-
 好不好玩自己NS下载试玩版试试吧，没NS上B站看视频也成。我觉得画面、音乐、战斗系统都还不错，这游戏合我胃口
-
-
-
-
-
 
 
 -----
@@ -34929,16 +23315,10 @@ Steam 也有中文，奸商继续炒不要停
 ##### 1748#         楼主| 发表于 2019-4-17 15:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43340041&amp;ptid=1711545" target="_blank">蛋黄酱Release 发表于 2019-4-17 16:42</a>
 
 问一下，这游戏值得买吗？xb2我没玩下去，p5倒是挺喜欢</blockquote>
 专楼大多都是喜欢这游戏的人吧，看法难免有偏差。主要还是推荐给有老JRPG情结的人，跟P5可能差别有点大。可以先去商店下载一个试玩体会一下。
-
-
-
-
-
 
 
 -----
@@ -34947,14 +23327,7 @@ Steam 也有中文，奸商继续炒不要停
 ##### 1749#       发表于 2019-4-18 02:27
 
 
-
-
 问一下那个支线任务里面养龙的小女孩最后到哪去了，叫アメリ的
-
-
-
-
-
 
 
 -----
@@ -34963,15 +23336,9 @@ Steam 也有中文，奸商继续炒不要停
 ##### 1750#       发表于 2019-4-18 06:54
 
 
-
 <blockquote>蛋黄酱Release 发表于 2019-4-17 15:42
 问一下，这游戏值得买吗？xb2我没玩下去，p5倒是挺喜欢</blockquote>
 值！xb2对我来说游戏体验属于最差那个级别的；p5属于中等体验；八路军就是最好的游戏体验。当然每个人看法都不同。
-
-
-
-
-
 
 
 -----
@@ -34980,16 +23347,10 @@ Steam 也有中文，奸商继续炒不要停
 ##### 1751#       发表于 2019-4-18 09:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43347129&amp;ptid=1711545" target="_blank">dixies 发表于 2019-4-18 02:27</a>
 
 问一下那个支线任务里面养龙的小女孩最后到哪去了，叫アメリ的</blockquote>
 记得好像是龙咏神殿，去打掉那个神官
-
-
-
-
-
 
 
 -----
@@ -34998,16 +23359,10 @@ Steam 也有中文，奸商继续炒不要停
 ##### 1752#       发表于 2019-4-18 09:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43317758&amp;ptid=1711545" target="_blank">Lunamos 发表于 2019-4-16 00:17</a>
 
 Steam页面已经上了</blockquote>
 有么？没看到啊
-
-
-
-
-
 
 
 -----
@@ -35016,16 +23371,10 @@ Steam页面已经上了</blockquote>
 ##### 1753#       发表于 2019-4-18 10:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43348817&amp;ptid=1711545" target="_blank">飞灾 发表于 2019-4-18 09:25</a>
 
 记得好像是龙咏神殿，去打掉那个神官</blockquote>
 我意思是打完神官后小妹妹不是说要找一个远离人类的地方孵化龙蛋吗，还找得到她说句话吗
-
-
-
-
-
 
 
 -----
@@ -35034,16 +23383,10 @@ Steam页面已经上了</blockquote>
 ##### 1754#         楼主| 发表于 2019-4-18 10:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43349210&amp;ptid=1711545" target="_blank">水千秋 发表于 2019-4-18 10:52</a>
 
 有么？没看到啊</blockquote>
 [https://store.steampowered.com/app/921570/OCTOPATH_TRAVELER/](https://store.steampowered.com/app/921570/OCTOPATH_TRAVELER/)
-
-
-
-
-
 
 
 -----
@@ -35052,16 +23395,10 @@ Steam页面已经上了</blockquote>
 ##### 1755#       发表于 2019-4-18 10:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43349744&amp;ptid=1711545" target="_blank">dixies 发表于 2019-4-18 10:24</a>
 
 我意思是打完神官后小妹妹不是说要找一个远离人类的地方孵化龙蛋吗，还找得到她说句话吗 ...</blockquote>
 好像那里就到头了吧
-
-
-
-
-
 
 
 -----
@@ -35070,16 +23407,10 @@ Steam页面已经上了</blockquote>
 ##### 1756#       发表于 2019-4-18 10:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43340233&amp;ptid=1711545" target="_blank">风行骓 发表于 2019-04-17 15:54:18</a>
 好不好玩自己NS下载试玩版试试吧，没NS上B站看视频也成。我觉得画面、音乐、战斗系统都还不错，这游戏合我 ...</blockquote>刚推完序章，这游戏和p5,xb2都不太一样，目前感觉中规中矩，起码没有xb2那么恶心人的ui
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -35088,16 +23419,10 @@ Steam页面已经上了</blockquote>
 ##### 1757#       发表于 2019-4-18 10:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43340233&amp;ptid=1711545" target="_blank">风行骓 发表于 2019-04-17 15:54:18</a>
 好不好玩自己NS下载试玩版试试吧，没NS上B站看视频也成。我觉得画面、音乐、战斗系统都还不错，这游戏合我 ...</blockquote>晕，回错人了
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -35106,15 +23431,8 @@ Steam页面已经上了</blockquote>
 ##### 1758#       发表于 2019-4-18 11:01
 
 
-
-
 感觉这游戏最大的遗憾是缺乏后期强力怪物，最高地图等级才58，全队70+级之后基本上是横着走，净化之森的大狼也没太大难度，刷历战武器也只是满足收集癖而已。
 还没打过隐藏boss，希望能翻一次车<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -35123,15 +23441,9 @@ Steam页面已经上了</blockquote>
 ##### 1759#       发表于 2019-4-18 15:41
 
 
-
 <blockquote>嘲哳的声音 发表于 2019-4-18 11:01
 感觉这游戏最大的遗憾是缺乏后期强力怪物，最高地图等级才58，全队70+级之后基本上是横着走，净化之森的大 ...</blockquote>
 最终隐藏boss不做好充分准备去打基本必死无疑
-
-
-
-
-
 
 
 -----
@@ -35140,23 +23452,15 @@ Steam页面已经上了</blockquote>
 ##### 1760#       发表于 2019-4-18 15:58
 
 
-
-
 喜欢BDFF，玩不下去BDFF2的适合这游戏吗？
 
 —— 来自 OnePlus ONEPLUS A5010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
 
 ####  风野原  
 ##### 1761#       发表于 2019-4-20 00:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43350364&amp;ptid=1711545" target="_blank">嘲哳的声音 发表于 2019-4-18 11:01</a>
@@ -35177,16 +23481,10 @@ Steam页面已经上了</blockquote>
 所以最终boss是真的不简单的 关键是最终boss前没存档 翻车就要打很久才回得来
 
 
-
-
-
-
-
 -----
 
 ####  嘲哳的声音  
 ##### 1762#       发表于 2019-4-20 04:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43374441&amp;ptid=1711545" target="_blank">风野原 发表于 2019-4-20 00:42</a>
@@ -35198,16 +23496,10 @@ Steam页面已经上了</blockquote>
 看来还是乖乖刷历战去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  假山君  
 ##### 1763#       发表于 2019-4-20 08:30
-
 
 
 <blockquote>嘲哳的声音 发表于 2019-4-20 04:24
@@ -35219,16 +23511,10 @@ Steam页面已经上了</blockquote>
 boss会消buff等骚操作，奶爆被动和双永续是重中之重
 
 
-
-
-
-
-
 -----
 
 ####  X轴正向速度  
 ##### 1764#       发表于 2019-4-21 03:30
-
 
 
  本帖最后由 X轴正向速度 于 2019-4-21 04:46 编辑 
@@ -35238,26 +23524,15 @@ boss会消buff等骚操作，奶爆被动和双永续是重中之重
 狼我翻车很多次，后来是用一血战神打快攻干翻的，一次奥义一次麒麟角直接带走。之前用过商人+符文大师开全体闪避，结果boss虽然打不到我，但是会直接清buff，下回合又补不上buff然后翻车
 
 
-
-
-
-
-
 -----
 
 ####  嘲哳的声音  
 ##### 1765#       发表于 2019-4-21 14:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43385247&amp;ptid=1711545" target="_blank">X轴正向速度 发表于 2019-4-21 03:30</a>
 狼我翻车很多次，后来是用一血战神打快攻干翻的，一次奥义一次麒麟角直接带走。之前用过商人+符文大师开全 ...</blockquote>
 不知道为什么，初见大狼的时候根本就没清过我buff<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，后来看攻略才知道还有这招
-
-
-
-
-
 
 
 -----
@@ -35266,14 +23541,7 @@ boss会消buff等骚操作，奶爆被动和双永续是重中之重
 ##### 1766#       发表于 2019-4-28 23:24
 
 
-
-
 话说禁止用道具的debuff怎么解？想靠跳舞刷经验，经常被禁道具各种中状态解不了
-
-
-
-
-
 
 
 -----
@@ -35282,16 +23550,10 @@ boss会消buff等骚操作，奶爆被动和双永续是重中之重
 ##### 1767#       发表于 2019-4-29 09:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43498069&amp;ptid=1711545" target="_blank">X轴正向速度 发表于 2019-4-28 23:24</a>
 
 话说禁止用道具的debuff怎么解？想靠跳舞刷经验，经常被禁道具各种中状态解不了 ...</blockquote>
 药师健全化解一切异常
-
-
-
-
-
 
 
 -----
@@ -35300,23 +23562,16 @@ boss会消buff等骚操作，奶爆被动和双永续是重中之重
 ##### 1768#       发表于 2019-4-29 10:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43501166&amp;ptid=1711545" target="_blank">水宝宝 发表于 2019-4-29 09:51</a>
 
 药师健全化解一切异常</blockquote>
 我问的是解禁道具。而且之前带药师好像解不了。另外药师技能有几个剧情boss的debuff解不了
 
 
-
-
-
-
-
 -----
 
 ####  嘲哳的声音  
 ##### 1769#       发表于 2019-4-29 10:15
-
 
 
  本帖最后由 嘲哳的声音 于 2019-4-29 11:23 编辑 
@@ -35326,16 +23581,10 @@ boss会消buff等骚操作，奶爆被动和双永续是重中之重
 记错了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  水宝宝  
 ##### 1770#       发表于 2019-4-29 10:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43501365&amp;ptid=1711545" target="_blank">X轴正向速度 发表于 2019-4-29 10:06</a>
@@ -35348,16 +23597,10 @@ boss会消buff等骚操作，奶爆被动和双永续是重中之重
 另外刷经验我觉得直接去冰龙口随便打打比赌跳舞效率高多了
 
 
-
-
-
-
-
 -----
 
 ####  X轴正向速度  
 ##### 1771#       发表于 2019-4-29 10:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43501493&amp;ptid=1711545" target="_blank">嘲哳的声音 发表于 2019-4-29 10:15</a>
@@ -35366,16 +23609,10 @@ boss会消buff等骚操作，奶爆被动和双永续是重中之重
 翻过道具列表，只有免疫8种debuff的饰品，没有免疫“禁止用道具”的东西。
 
 
-
-
-
-
-
 -----
 
 ####  X轴正向速度  
 ##### 1772#       发表于 2019-4-29 10:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43501584&amp;ptid=1711545" target="_blank">水宝宝 发表于 2019-4-29 10:19</a>
@@ -35386,16 +23623,10 @@ boss会消buff等骚操作，奶爆被动和双永续是重中之重
 冰龙口哪里基础经验太少，拼运气遇到猫还不如去森林。跳舞只看行动顺序，23号第一回合位能跳就跳，不能跳结束战斗
 
 
-
-
-
-
-
 -----
 
 ####  水宝宝  
 ##### 1773#       发表于 2019-4-29 10:46
-
 
 
  本帖最后由 水宝宝 于 2019-4-29 10:52 编辑 
@@ -35407,16 +23638,10 @@ boss会消buff等骚操作，奶爆被动和双永续是重中之重
 跳舞也就初期跳跳觉得好玩，神官兼舞娘加上舞娘兼神官先去打魔术师，舞娘奥义加神官魔反直接躺着弹死，有了魔术师的特大魔法去冰龙口差不多都是一回合秒的，打起来超快的
 
 
-
-
-
-
-
 -----
 
 ####  X轴正向速度  
 ##### 1774#       发表于 2019-4-29 11:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43502079&amp;ptid=1711545" target="_blank">水宝宝 发表于 2019-4-29 10:46</a>
@@ -35425,16 +23650,10 @@ boss会消buff等骚操作，奶爆被动和双永续是重中之重
 我已经后期了，你说的我都有，就想刷个经验
 
 
-
-
-
-
-
 -----
 
 ####  水宝宝  
 ##### 1775#       发表于 2019-4-29 11:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43502323&amp;ptid=1711545" target="_blank">X轴正向速度 发表于 2019-4-29 11:00</a>
@@ -35443,16 +23662,10 @@ boss会消buff等骚操作，奶爆被动和双永续是重中之重
 所以都后期了为何还要靠跳舞拿经验……带个加经验的饰品秒怪不是来得更快
 
 
-
-
-
-
-
 -----
 
 ####  X轴正向速度  
 ##### 1776#       发表于 2019-4-29 11:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43502347&amp;ptid=1711545" target="_blank">水宝宝 发表于 2019-4-29 11:01</a>
@@ -35461,16 +23674,10 @@ boss会消buff等骚操作，奶爆被动和双永续是重中之重
 碰到猫还是要堵个100倍。平时一回合搞定，其间能跳个舞出个2或5就好
 
 
-
-
-
-
-
 -----
 
 ####  水宝宝  
 ##### 1777#       发表于 2019-4-29 11:22
-
 
 
  本帖最后由 水宝宝 于 2019-4-29 11:36 编辑 
@@ -35480,25 +23687,13 @@ boss会消buff等骚操作，奶爆被动和双永续是重中之重
 碰猫为何要100倍？100倍这么好出的？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 我初期碰猫想赌跳舞结果让猫跑了几次以后发现得不偿失，看到猫直接秒了在冰龙口这种猫窝多碰几次安逸稳定……算了你开心就好
 
 
-
-
-
-
-
 -----
 
 ####  AyaneLin  
 ##### 1778#       发表于 2019-4-29 12:00
 
 
-
-
 跳舞赌出来过过一百倍+全队一血+地上冒火 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -35507,14 +23702,7 @@ boss会消buff等骚操作，奶爆被动和双永续是重中之重
 ##### 1779#       发表于 2019-6-6 19:22
 
 
-
-
 是时候挖坟了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -35523,17 +23711,10 @@ boss会消buff等骚操作，奶爆被动和双永续是重中之重
 ##### 1780#       发表于 2019-6-6 20:37
 
 
-
-
 坐等更新
 美区今晚能更新吗<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
 —— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
-
-
-
-
-
 
 
 -----
@@ -35542,14 +23723,7 @@ boss会消buff等骚操作，奶爆被动和双永续是重中之重
 ##### 1781#       发表于 2019-6-6 20:57
 
 
-
-
 欧版什么时候更新中文<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -35558,14 +23732,7 @@ boss会消buff等骚操作，奶爆被动和双永续是重中之重
 ##### 1782#       发表于 2019-6-6 23:54
 
 
-
-
 睡一觉明早起床玩中文<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -35574,16 +23741,9 @@ boss会消buff等骚操作，奶爆被动和双永续是重中之重
 ##### 1783#       发表于 2019-6-7 01:03
 
 
-
-
 就位
 
 —— 来自 HUAWEI EML-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -35592,14 +23752,7 @@ boss会消buff等骚操作，奶爆被动和双永续是重中之重
 ##### 1784#       发表于 2019-6-7 01:25
 
 
-
-
 PC还有22个小时
-
-
-
-
-
 
 
 -----
@@ -35608,23 +23761,15 @@ PC还有22个小时
 ##### 1785#       发表于 2019-6-7 09:36
 
 
-
-
 所以什么时候更新
 
 — from samsung SM-G970F, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.2
-
-
-
-
-
 
 
 -----
 
 ####  看戏专用  
 ##### 1786#       发表于 2019-6-7 09:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44025850&amp;ptid=1711545" target="_blank">神知道的sjd 发表于 2019-06-07 09:36:17</a>
@@ -35635,25 +23780,13 @@ PC还有22个小时
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  培根芝士蛋堡XD  
 ##### 1787#       发表于 2019-6-7 10:04
 
 
-
-
 十点到了，还是没有更新<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -35662,14 +23795,7 @@ PC还有22个小时
 ##### 1788#       发表于 2019-6-7 10:04
 
 
-
-
 有了
-
-
-
-
-
 
 
 -----
@@ -35678,14 +23804,7 @@ PC还有22个小时
 ##### 1789#       发表于 2019-6-7 10:06
 
 
-
-
 lailelaile 进去看看中文版猎人村翻译成什么鸟样子<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -35694,14 +23813,7 @@ lailelaile 进去看看中文版猎人村翻译成什么鸟样子<img src="https
 ##### 1790#       发表于 2019-6-7 10:09
 
 
-
-
 这个道具翻译的也太朴实无华了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -35710,14 +23822,7 @@ lailelaile 进去看看中文版猎人村翻译成什么鸟样子<img src="https
 ##### 1791#       发表于 2019-6-7 10:10
 
 
-
-
 有了
-
-
-
-
-
 
 
 -----
@@ -35726,14 +23831,7 @@ lailelaile 进去看看中文版猎人村翻译成什么鸟样子<img src="https
 ##### 1792#       发表于 2019-6-7 10:11
 
 
-
-
 日服还没有啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -35742,14 +23840,7 @@ lailelaile 进去看看中文版猎人村翻译成什么鸟样子<img src="https
 ##### 1793#       发表于 2019-6-7 10:12
 
 
-
-
 更新好慢，开了手机的电信热点，进度条都不动的呢
-
-
-
-
-
 
 
 -----
@@ -35758,14 +23849,7 @@ lailelaile 进去看看中文版猎人村翻译成什么鸟样子<img src="https
 ##### 1794#       发表于 2019-6-7 10:12
 
 
-
-
 日版怎么不能更新？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -35774,14 +23858,7 @@ lailelaile 进去看看中文版猎人村翻译成什么鸟样子<img src="https
 ##### 1795#       发表于 2019-6-7 10:13
 
 
-
-
 但是demo没有更新<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -35790,14 +23867,7 @@ lailelaile 进去看看中文版猎人村翻译成什么鸟样子<img src="https
 ##### 1796#       发表于 2019-6-7 10:16
 
 
-
-
 更了，看着字体有点虚啊
-
-
-
-
-
 
 
 -----
@@ -35806,14 +23876,7 @@ lailelaile 进去看看中文版猎人村翻译成什么鸟样子<img src="https
 ##### 1797#       发表于 2019-6-7 10:17
 
 
-
-
 看着字体，眼睛要瞎了
-
-
-
-
-
 
 
 -----
@@ -35822,13 +23885,7 @@ lailelaile 进去看看中文版猎人村翻译成什么鸟样子<img src="https
 ##### 1798#       发表于 2019-6-7 10:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">日服怎么回事？
-
-
-
-
-
 
 
 -----
@@ -35837,14 +23894,7 @@ lailelaile 进去看看中文版猎人村翻译成什么鸟样子<img src="https
 ##### 1799#       发表于 2019-6-7 10:22
 
 
-
-
 日服没见到更新<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -35853,13 +23903,7 @@ lailelaile 进去看看中文版猎人村翻译成什么鸟样子<img src="https
 ##### 1800#       发表于 2019-6-7 10:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">美区更新好了 玩上了
-
-
-
-
-
 
 
 -----
@@ -35868,15 +23912,8 @@ lailelaile 进去看看中文版猎人村翻译成什么鸟样子<img src="https
 ##### 1801#       发表于 2019-6-7 10:22
 
 
-
-
 全世界就日版还没开始更
 真有你的啊，sb垃圾square enix，连个补丁都推送不好
-
-
-
-
-
 
 
 -----
@@ -35885,14 +23922,7 @@ lailelaile 进去看看中文版猎人村翻译成什么鸟样子<img src="https
 ##### 1802#       发表于 2019-6-7 10:25
 
 
-
-
 众所周知 全世界不包括日本（
-
-
-
-
-
 
 
 -----
@@ -35901,14 +23931,7 @@ lailelaile 进去看看中文版猎人村翻译成什么鸟样子<img src="https
 ##### 1803#       发表于 2019-6-7 10:30
 
 
-
-
 看到不是我一个人被日版坑了我就放心了
-
-
-
-
-
 
 
 -----
@@ -35917,17 +23940,10 @@ lailelaile 进去看看中文版猎人村翻译成什么鸟样子<img src="https
 ##### 1804#       发表于 2019-6-7 10:32
 
 
-
-
 日版这啥情况……
 
 
 ----发送自 [OnePlus ONEPLUS A5010,Android 9](http://stage1.5j4m.com/?1.33)
-
-
-
-
-
 
 
 -----
@@ -35936,16 +23952,9 @@ lailelaile 进去看看中文版猎人村翻译成什么鸟样子<img src="https
 ##### 1805#       发表于 2019-6-7 10:36
 
 
-
-
 绝了，日版没人权
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -35954,16 +23963,9 @@ lailelaile 进去看看中文版猎人村翻译成什么鸟样子<img src="https
 ##### 1806#       发表于 2019-6-7 10:36
 
 
-
-
 nmd, 昨天专门上日区eshop买了份八方旅人准备玩，今天就出这种事。
 
 真有你的啊，square enix<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -35972,14 +23974,7 @@ nmd, 昨天专门上日区eshop买了份八方旅人准备玩，今天就出这�
 ##### 1807#       发表于 2019-6-7 10:37
 
 
-
-
 我服了，操你妈SE
-
-
-
-
-
 
 
 -----
@@ -35988,14 +23983,7 @@ nmd, 昨天专门上日区eshop买了份八方旅人准备玩，今天就出这�
 ##### 1808#       发表于 2019-6-7 10:45
 
 
-
-
 摸鱼可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">简中翻译还是个猛男
-
-
-
-
-
 
 
 -----
@@ -36004,14 +23992,7 @@ nmd, 昨天专门上日区eshop买了份八方旅人准备玩，今天就出这�
 ##### 1809#       发表于 2019-6-7 10:46
 
 
-
-
 字太小了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -36020,17 +24001,10 @@ nmd, 昨天专门上日区eshop买了份八方旅人准备玩，今天就出这�
 ##### 1810#       发表于 2019-6-7 10:51
 
 
-
-
 日版可以更新了，速度还挺快
 
 
 ----发送自 [OnePlus ONEPLUS A5010,Android 9](http://stage1.5j4m.com/?1.33)
-
-
-
-
-
 
 
 -----
@@ -36039,16 +24013,9 @@ nmd, 昨天专门上日区eshop买了份八方旅人准备玩，今天就出这�
 ##### 1811#       发表于 2019-6-7 10:58
 
 
-
-
 为什么我的日版还没更新……
 
 —— 来自 OnePlus ONEPLUS A5010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
-
-
-
-
-
 
 
 -----
@@ -36057,14 +24024,7 @@ nmd, 昨天专门上日区eshop买了份八方旅人准备玩，今天就出这�
 ##### 1812#       发表于 2019-6-7 11:01
 
 
-
-
 战斗动画不能快进吗
-
-
-
-
-
 
 
 -----
@@ -36073,22 +24033,13 @@ nmd, 昨天专门上日区eshop买了份八方旅人准备玩，今天就出这�
 ##### 1813#       发表于 2019-6-7 11:01
 
 
-
-
 朋友搞错自己游戏的版本了吧，日版还不能更新
-
-
-
-
-
 
 
 -----
 
 ####  殊绝  
 ##### 1814#       发表于 2019-6-7 11:02
-
-
 
 
 说日版能更新的用的是什么姿势？
@@ -36100,26 +24051,13 @@ nmd, 昨天专门上日区eshop买了份八方旅人准备玩，今天就出这�
 编辑了 11:02可以了
 
 
-
-
-
-
-
-
 -----
 
 ####  LCH  
 ##### 1815#       发表于 2019-6-7 11:02
 
 
-
-
 11点日服可以了
-
-
-
-
-
 
 
 -----
@@ -36128,14 +24066,7 @@ nmd, 昨天专门上日区eshop买了份八方旅人准备玩，今天就出这�
 ##### 1816#       发表于 2019-6-7 11:03
 
 
-
-
 和个人喜好无关，建议学者或盗贼开局
-
-
-
-
-
 
 
 -----
@@ -36144,14 +24075,7 @@ nmd, 昨天专门上日区eshop买了份八方旅人准备玩，今天就出这�
 ##### 1817#       发表于 2019-6-7 11:19
 
 
-
-
 刚开档玩了一会儿，翻译似乎还可以，用的字体很喜欢
-
-
-
-
-
 
 
 -----
@@ -36160,14 +24084,7 @@ nmd, 昨天专门上日区eshop买了份八方旅人准备玩，今天就出这�
 ##### 1818#       发表于 2019-6-7 11:21
 
 
-
-
 看了两眼，标题上加一行字土到我了。
-
-
-
-
-
 
 
 -----
@@ -36176,14 +24093,7 @@ nmd, 昨天专门上日区eshop买了份八方旅人准备玩，今天就出这�
 ##### 1819#       发表于 2019-6-7 11:40
 
 
-
-
 现在数字版多少钱啊，实体卡带好屌贵
-
-
-
-
-
 
 
 -----
@@ -36192,16 +24102,9 @@ nmd, 昨天专门上日区eshop买了份八方旅人准备玩，今天就出这�
 ##### 1820#       发表于 2019-6-7 12:03
 
 
-
-
 steam上卖60刀 好贵呀
 
 — from HMD Global Nokia 7 plus, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.4-play
-
-
-
-
-
 
 
 -----
@@ -36210,14 +24113,7 @@ steam上卖60刀 好贵呀
 ##### 1821#       发表于 2019-6-7 12:09
 
 
-
-
 这个字体真是烂到炸
-
-
-
-
-
 
 
 -----
@@ -36226,16 +24122,10 @@ steam上卖60刀 好贵呀
 ##### 1822#       发表于 2019-6-7 12:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44026298&amp;ptid=1711545" target="_blank">帝蓝 发表于 2019-6-7 10:22</a>
 
 美区更新好了 玩上了</blockquote>
 美服商店里怎么显示还是没中文
-
-
-
-
-
 
 
 -----
@@ -36244,14 +24134,7 @@ steam上卖60刀 好贵呀
 ##### 1823#       发表于 2019-6-7 12:32
 
 
-
-
 话说舞娘是破鞋吗
-
-
-
-
-
 
 
 -----
@@ -36260,16 +24143,9 @@ steam上卖60刀 好贵呀
 ##### 1824#       发表于 2019-6-7 12:39
 
 
-
-
 去steam上看了看，402？干脆锁了国区算了。
 
 看来我不是受众群体，告辞……
-
-
-
-
-
 
 
 -----
@@ -36278,15 +24154,9 @@ steam上卖60刀 好贵呀
 ##### 1825#       发表于 2019-6-7 12:43
 
 
-
 <blockquote>空气先生 发表于 2019-6-7 12:32
 话说舞娘是破鞋吗</blockquote>
 是。
-
-
-
-
-
 
 
 -----
@@ -36295,14 +24165,7 @@ steam上卖60刀 好贵呀
 ##### 1826#       发表于 2019-6-7 12:44
 
 
-
-
 游戏最多值200，不能更多了，不好玩。
-
-
-
-
-
 
 
 -----
@@ -36311,21 +24174,13 @@ steam上卖60刀 好贵呀
 ##### 1827#       发表于 2019-6-7 13:22
 
 
-
-
 翻译质量有点差，没有民间汉化组做的好
-
-
-
-
-
 
 
 -----
 
 ####  とげちー  
 ##### 1828#       发表于 2019-6-7 14:39
-
 
 
  本帖最后由 とげちー 于 2019-6-7 14:57 编辑 
@@ -36335,16 +24190,10 @@ steam上卖60刀 好贵呀
 不行这个中文字体实在是太烂了。日文字体算是这个游戏的亮点，中文选的这个字体反而成了很大的缺点。
 
 
-
-
-
-
-
 -----
 
 ####  假山君  
 ##### 1829#       发表于 2019-6-7 15:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44028820&amp;ptid=1711545" target="_blank">とげちー 发表于 2019-6-7 14:39</a>
@@ -36353,26 +24202,15 @@ steam上卖60刀 好贵呀
 70级技能配好打隐藏boss绰绰有余了，我是60多级去打的
 
 
-
-
-
-
-
 -----
 
 ####  不应  
 ##### 1830#       发表于 2019-6-7 17:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44028820&amp;ptid=1711545" target="_blank">とげちー 发表于 2019-6-7 14:39</a>
 后期（7，80级左右）是在哪里练级来着？我捡起了一年前剩隐藏没打的档，发现档在净化之森练级，但是感觉好 ...</blockquote>
 常规升级到后面也只能净化之森，要不就刷猫然后无限roll舞娘，roll出100倍这样
-
-
-
-
-
 
 
 -----
@@ -36381,23 +24219,15 @@ steam上卖60刀 好贵呀
 ##### 1831#       发表于 2019-6-7 18:06
 
 
-
 <blockquote>不应 发表于 2019-6-7 17:00
 常规升级到后面也只能净化之森，要不就刷猫然后无限roll舞娘，roll出100倍这样 ...</blockquote>
 猫会逃的吧，无限roll，roll死自己的风险很大，hp1后道具掉地上，gameover。
-
-
-
-
-
 
 
 -----
 
 ####  一三五七九  
 ##### 1832#       发表于 2019-6-7 18:24
-
-
 
 
 求问  有NS还没买游戏
@@ -36409,31 +24239,19 @@ steam上卖60刀 好贵呀
 如果是的话是不是买PC版就行了
 
 
-
-
-
-
-
 -----
 
 ####  椎名mahuyo  
 ##### 1833#       发表于 2019-6-7 18:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还是NS好，PC版又贵看着又蛋疼，NS掌机那字体大小勉强能接受，虽然我都插在底座上玩的
-
-
-
-
-
 
 
 -----
 
 ####  X轴正向速度  
 ##### 1834#       发表于 2019-6-7 18:40
-
 
 
  本帖最后由 X轴正向速度 于 2019-6-7 18:46 编辑 
@@ -36443,16 +24261,10 @@ steam上卖60刀 好贵呀
 要刷100倍前提是上来就干掉了猫，跑了谁还去刷。另外，物攻型角色跳舞，跳出原地爆炸的伤害会小一点，后期基本是个位数到十几，而特攻型的后期基本是两三百，然而团灭往往不是被原地爆炸直接搞死，而是前面有个全队濒死
 
 
-
-
-
-
-
 -----
 
 ####  ccow  
 ##### 1835#       发表于 2019-6-7 19:01
-
 
 
 <blockquote>X轴正向速度 发表于 2019-6-7 18:40
@@ -36460,16 +24272,10 @@ steam上卖60刀 好贵呀
 先干死猫啊，这个没想到，可以的，哈哈。我说的就是怕hp1后连着自残扣血啊。
 
 
-
-
-
-
-
 -----
 
 ####  wlyj  
 ##### 1836#       发表于 2019-6-7 19:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44031095&amp;ptid=1711545" target="_blank">一三五七九 发表于 2019-6-7 18:24</a>
@@ -36481,27 +24287,15 @@ steam上卖60刀 好贵呀
 我是觉得掌机模式下字略小，只能勉强看清。但是又懒的接显示器，所以就凑合玩了。
 
 
-
-
-
-
-
 -----
 
 ####  我永远喜欢...  
 ##### 1837#       发表于 2019-6-7 20:05
 
 
-
-
 哪个开局好玩啊
 
 —— 来自 HUAWEI EML-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -36510,16 +24304,9 @@ steam上卖60刀 好贵呀
 ##### 1838#       发表于 2019-6-7 20:13
 
 
-
-
 八个人的剧情通关了之后刷历战就坑掉了，今天拾起来不知道该玩啥了，迷茫了半天又关掉了
 
 隐藏迷宫还不想去啊，打了就真的没啥可打了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -36528,21 +24315,13 @@ steam上卖60刀 好贵呀
 ##### 1839#       发表于 2019-6-7 20:49
 
 
-
-
 港版新出的到底带不带中文？还是需要更新？
-
-
-
-
-
 
 
 -----
 
 ####  thez  
 ##### 1840#       发表于 2019-6-7 20:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44032844&amp;ptid=1711545" target="_blank">Winder07 发表于 2019-6-7 20:49</a>
@@ -36552,16 +24331,10 @@ steam上卖60刀 好贵呀
 —— 来自 Xiaomi MIX, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  X轴正向速度  
 ##### 1841#       发表于 2019-6-7 21:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44032305&amp;ptid=1711545" target="_blank">我永远喜欢... 发表于 2019-6-7 20:05</a>
@@ -36575,25 +24348,13 @@ steam上卖60刀 好贵呀
 盗贼sl大法偷盗流，去哪就偷光哪
 
 
-
-
-
-
-
 -----
 
 ####  とげちー  
 ##### 1842#       发表于 2019-6-7 21:22
 
 
-
-
 这游戏属性也是挺迷的，我学者现在点法杖看法攻是999，点其他装备看法攻是663，那我给他吃法攻果实到底还涨不涨法攻
-
-
-
-
-
 
 
 -----
@@ -36602,16 +24363,10 @@ steam上卖60刀 好贵呀
 ##### 1843#       发表于 2019-6-7 22:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44033170&amp;ptid=1711545" target="_blank">とげちー 发表于 2019-6-7 21:22</a>
 
 这游戏属性也是挺迷的，我学者现在点法杖看法攻是999，点其他装备看法攻是663，那我给他吃法攻果实到底还涨 ...</blockquote>
 面板上限999，特攻取特攻最高的武器，物攻取当前武器
-
-
-
-
-
 
 
 -----
@@ -36620,14 +24375,7 @@ steam上卖60刀 好贵呀
 ##### 1844#       发表于 2019-6-7 23:23
 
 
-
-
 问个事啊，非港版的NS电子版的带中文吗？
-
-
-
-
-
 
 
 -----
@@ -36636,16 +24384,10 @@ steam上卖60刀 好贵呀
 ##### 1845#       发表于 2019-6-8 00:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44034479&amp;ptid=1711545" target="_blank">轮太 发表于 2019-6-7 23:23</a>
 
 问个事啊，非港版的NS电子版的带中文吗？</blockquote>
 记得是带的，全体更新吧
-
-
-
-
-
 
 
 -----
@@ -36654,13 +24396,7 @@ steam上卖60刀 好贵呀
 ##### 1846#       发表于 2019-6-8 00:10
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">系统好古典，没在队伍里的人还真拿不到经验和JP，想着都好累
-
-
-
-
-
 
 
 -----
@@ -36669,13 +24405,7 @@ steam上卖60刀 好贵呀
 ##### 1847#       发表于 2019-6-8 00:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">为什么进去之后手柄按了没反应 我不想用键盘玩啊
-
-
-
-
-
 
 
 -----
@@ -36684,23 +24414,16 @@ steam上卖60刀 好贵呀
 ##### 1848#         楼主| 发表于 2019-6-8 00:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44035142&amp;ptid=1711545" target="_blank">trentswd 发表于 2019-6-8 01:35</a>
 
 为什么进去之后手柄按了没反应 我不想用键盘玩啊</blockquote>
 我进去直接就能用手柄啊
 
 
-
-
-
-
-
 -----
 
 ####  trentswd  
 ##### 1849#       发表于 2019-6-8 00:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44035228&amp;ptid=1711545" target="_blank">Lunamos 发表于 2019-6-8 00:50</a>
@@ -36720,16 +24443,10 @@ steam上卖60刀 好贵呀
 看看steam社区也有人跟我一样第一次找不到手柄
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 1850#         楼主| 发表于 2019-6-8 01:03
-
 
 
  本帖最后由 Lunamos 于 2019-6-8 02:10 编辑 
@@ -36741,17 +24458,10 @@ Steam中文版吐槽三点。一个是全音译的翻译，按照翻译标准的
 第三是开了高分辨率在大屏下仔细看这背景真是不能细看，突出像素感的部分还好，非马赛克部分就是虚幻4做出了PS1的贴图……能把这些犬牙交错的Texture调成现在这个整体观感风格真是美术造诣极深之人啊……
 
 
-
-
-
-
-
 -----
 
 ####  bsdlxy  
 ##### 1851#       发表于 2019-6-8 01:23
-
-
 
 
 剑士和猎人哪个好点，场景技能和战斗方面都评价一下。
@@ -36759,16 +24469,10 @@ Steam中文版吐槽三点。一个是全音译的翻译，按照翻译标准的
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  X轴正向速度  
 ##### 1852#       发表于 2019-6-8 01:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44035426&amp;ptid=1711545" target="_blank">bsdlxy 发表于 2019-6-8 01:23</a>
@@ -36780,16 +24484,10 @@ Steam中文版吐槽三点。一个是全音译的翻译，按照翻译标准的
 猎人的单挑技能很不友好，除了剧情从来不用
 
 
-
-
-
-
-
 -----
 
 ####  不应  
 ##### 1853#       发表于 2019-6-8 01:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44035426&amp;ptid=1711545" target="_blank">bsdlxy 发表于 2019-6-8 01:23</a>
@@ -36799,16 +24497,10 @@ Steam中文版吐槽三点。一个是全音译的翻译，按照翻译标准的
 猎人是场景技能是最没用的了，也就前期不能战士等级不够决斗的时候有点用
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 1854#         楼主| 发表于 2019-6-8 01:39
-
 
 
  本帖最后由 Lunamos 于 2019-6-8 02:40 编辑 
@@ -36821,16 +24513,10 @@ Steam中文版吐槽三点。一个是全音译的翻译，按照翻译标准的
 前中期猎人还行，中后期剑士是单挑主力。如果为了后面单挑的考虑，只选一个培养的话还是剑士吧。战斗上反正后面都要转职，各自都有技能需要点，比如猎人的欧皇再动。前中期的话猎人战斗上好用一点，感觉弱弓的场合比弱枪的关键，暴雨箭&gt;千本枪。
 
 
-
-
-
-
-
 -----
 
 ####  trentswd  
 ##### 1855#       发表于 2019-6-8 02:41
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">为什么打赢了山贼就归顺了还要赎罪
@@ -36838,16 +24524,10 @@ Steam中文版吐槽三点。一个是全音译的翻译，按照翻译标准的
 世界上居然有这么好的事
 
 
-
-
-
-
-
 -----
 
 ####  假山君  
 ##### 1856#       发表于 2019-6-8 05:21
-
 
 
 <blockquote>trentswd 发表于 2019-6-8 02:41
@@ -36857,16 +24537,10 @@ Steam中文版吐槽三点。一个是全音译的翻译，按照翻译标准的
 因为是梁山好汉，义字当先233
 
 
-
-
-
-
-
 -----
 
 ####  飞灾  
 ##### 1857#       发表于 2019-6-8 08:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44033170&amp;ptid=1711545" target="_blank">とげちー 发表于 2019-6-7 21:22</a>
@@ -36874,16 +24548,10 @@ Steam中文版吐槽三点。一个是全音译的翻译，按照翻译标准的
 其实这数值吃不吃都无所谓了，学个伤害破上限就行了。话说都七八十级了何必还要练级，打最终boss完全够了
 
 
-
-
-
-
-
 -----
 
 ####  飞灾  
 ##### 1858#       发表于 2019-6-8 08:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44035426&amp;ptid=1711545" target="_blank">bsdlxy 发表于 2019-6-8 01:23</a>
@@ -36894,17 +24562,10 @@ Steam中文版吐槽三点。一个是全音译的翻译，按照翻译标准的
 猎人副职业最优选大概就盗贼、法师、豪武这三个，但因为后面两个猎人不是第一选择，所以基本只能配盗贼破要害上上debuff什么的。
 
 
-
-
-
-
-
 -----
 
 ####  叶雾  
 ##### 1859#       发表于 2019-6-8 09:14
-
-
 
 
 宝可梦其实也有强的，比如全体多hits的物理攻击
@@ -36915,25 +24576,13 @@ Steam中文版吐槽三点。一个是全音译的翻译，按照翻译标准的
 如果没选学者和盗贼为主角，就得5选1了
 
 
-
-
-
-
-
 -----
 
 ####  Yeaha123  
 ##### 1860#       发表于 2019-6-8 09:15
 
 
-
-
 看过用宝可梦全程无敌刷最终boss的视频
-
-
-
-
-
 
 
 -----
@@ -36942,14 +24591,7 @@ Steam中文版吐槽三点。一个是全音译的翻译，按照翻译标准的
 ##### 1861#       发表于 2019-6-8 10:41
 
 
-
-
 感觉猎人学魔法师比较合适啊，历战斧头加两个术伤古来弓又加一个。
-
-
-
-
-
 
 
 -----
@@ -36958,14 +24600,7 @@ Steam中文版吐槽三点。一个是全音译的翻译，按照翻译标准的
 ##### 1862#       发表于 2019-6-8 11:12
 
 
-
-
 贼能不能当主力培养的？（除去在地图上开宝箱这个功能）我因为个人喜好所以选贼开局，初期觉得没啥问题，后来猎人啥的入队了总觉得贼输出有点不是很高了？
-
-
-
-
-
 
 
 -----
@@ -36974,16 +24609,10 @@ Steam中文版吐槽三点。一个是全音译的翻译，按照翻译标准的
 ##### 1863#       发表于 2019-6-8 12:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44038197&amp;ptid=1711545" target="_blank">xifeilu 发表于 2019-6-8 11:12</a>
 
 贼能不能当主力培养的？（除去在地图上开宝箱这个功能）我因为个人喜好所以选贼开局，初期觉得没啥问题，后 ...</blockquote>
 盗贼可以火匕首+火剑，最强火系魔法输出
-
-
-
-
-
 
 
 -----
@@ -36992,14 +24621,7 @@ Steam中文版吐槽三点。一个是全音译的翻译，按照翻译标准的
 ##### 1864#       发表于 2019-6-8 13:01
 
 
-
-
 去看了下人家直播，PC版字体怎么这么难看啊。
-
-
-
-
-
 
 
 -----
@@ -37008,14 +24630,7 @@ Steam中文版吐槽三点。一个是全音译的翻译，按照翻译标准的
 ##### 1865#       发表于 2019-6-8 13:02
 
 
-
-
 这游戏有没有比较详尽的全收集攻略，看见宝箱拿不到太痛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -37024,21 +24639,13 @@ Steam中文版吐槽三点。一个是全音译的翻译，按照翻译标准的
 ##### 1866#       发表于 2019-6-8 13:08
 
 
-
-
 看到的宝箱，都是拿的到的，除了紫色的要本职是盗贼的那个小哥开。
-
-
-
-
-
 
 
 -----
 
 ####  とげちー  
 ##### 1867#       发表于 2019-6-8 15:30
-
 
 
  本帖最后由 とげちー 于 2019-6-8 15:38 编辑 
@@ -37051,16 +24658,10 @@ _____
 自己试验了一下是按魔攻算- -
 
 
-
-
-
-
-
 -----
 
 ####  Yeaha123  
 ##### 1868#       发表于 2019-6-8 15:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44039591&amp;ptid=1711545" target="_blank">skmdfong 发表于 2019-6-8 13:02</a>
@@ -37072,25 +24673,13 @@ _____
 这个网每个小地图细节都有
 
 
-
-
-
-
-
 -----
 
 ####  yangchunsiyue  
 ##### 1869#       发表于 2019-6-8 16:08
 
 
-
-
 小偷开局收到了猎人，请问下猎人唆使是随便用的吗，村里的老人全都打了一遍 - - 升了两级，可以反复打的吗……
-
-
-
-
-
 
 
 -----
@@ -37099,16 +24688,10 @@ _____
 ##### 1870#       发表于 2019-6-8 16:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44041432&amp;ptid=1711545" target="_blank">yangchunsiyue 发表于 2019-6-8 16:08</a>
 
 小偷开局收到了猎人，请问下猎人唆使是随便用的吗，村里的老人全都打了一遍 - - 升了两级，可以反复打的吗 ...</blockquote>
 邪道技能，失败了会有惩罚
-
-
-
-
-
 
 
 -----
@@ -37117,16 +24700,10 @@ _____
 ##### 1871#       发表于 2019-6-8 16:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44041432&amp;ptid=1711545" target="_blank">yangchunsiyue 发表于 2019-6-8 16:08</a>
 
 小偷开局收到了猎人，请问下猎人唆使是随便用的吗，村里的老人全都打了一遍 - - 升了两级，可以反复打的吗 ...</blockquote>
 去地下城再回城镇可以重新刷npc，不过打npc真的很无聊
-
-
-
-
-
 
 
 -----
@@ -37135,15 +24712,9 @@ _____
 ##### 1872#       发表于 2019-6-8 17:16
 
 
-
 <blockquote>xifeilu 发表于 2019-6-8 11:12
 贼能不能当主力培养的？（除去在地图上开宝箱这个功能）我因为个人喜好所以选贼开局，初期觉得没啥问题，后 ...</blockquote>
 盗贼还是辅助吧，我一般是和商人互换，毕竟速度快
-
-
-
-
-
 
 
 -----
@@ -37152,21 +24723,13 @@ _____
 ##### 1873#       发表于 2019-6-8 20:27
 
 
-
-
 我TM二队忘了学奥义，硬是就靠一个符文剑士的附魔伤害把隐藏BOSS第二形态打死了，鬼知道我骂了自己多少次傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  skmdfong  
 ##### 1874#       发表于 2019-6-8 20:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44041101&amp;ptid=1711545" target="_blank">Yeaha123 发表于 2019-6-8 15:34</a>
@@ -37178,16 +24741,10 @@ https://main-hrs-game.ssl-lolipop.jp/octopathtraveler/
 很有帮助，感谢！
 
 
-
-
-
-
-
 -----
 
 ####  X轴正向速度  
 ##### 1875#       发表于 2019-6-8 21:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44044609&amp;ptid=1711545" target="_blank">とげちー 发表于 2019-6-8 20:27</a>
@@ -37198,24 +24755,13 @@ https://main-hrs-game.ssl-lolipop.jp/octopathtraveler/
 boss没打我1血的豪武将，然后就是两发奥义带走
 
 
-
-
-
-
-
 -----
 
 ####  久島鴎  
 ##### 1876#       发表于 2019-6-8 22:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">刚把八个人找齐，离第二章等级差的有点远，请问去哪练级比较好
-
-
-
-
-
 
 
 -----
@@ -37224,16 +24770,10 @@ boss没打我1血的豪武将，然后就是两发奥义带走
 ##### 1877#       发表于 2019-6-8 22:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44046178&amp;ptid=1711545" target="_blank">久島鴎 发表于 2019-6-8 22:46</a>
 
 刚把八个人找齐，离第二章等级差的有点远，请问去哪练级比较好</blockquote>
 第一章那一圈路上有几个一开始去等级显得高的小迷宫，把这些都走一遍就差不多了
-
-
-
-
-
 
 
 -----
@@ -37242,22 +24782,15 @@ boss没打我1血的豪武将，然后就是两发奥义带走
 ##### 1878#       发表于 2019-6-8 23:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44038197&amp;ptid=1711545" target="_blank">xifeilu 发表于 2019-6-8 11:12</a>
 贼能不能当主力培养的？（除去在地图上开宝箱这个功能）我因为个人喜好所以选贼开局，初期觉得没啥问题，后 ...</blockquote>
 贼+豪武将+伤害上限突破就是最强输出没有之一
-
-
-
-
-
 
 
 -----
 
 ####  X轴正向速度  
 ##### 1879#       发表于 2019-6-8 23:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44046178&amp;ptid=1711545" target="_blank">久島鴎 发表于 2019-6-8 22:46</a>
@@ -37268,26 +24801,15 @@ boss没打我1血的豪武将，然后就是两发奥义带走
 我是摸了个知识之杖，然后靠法爷在高级图横着走
 
 
-
-
-
-
-
 -----
 
 ####  飞灾  
 ##### 1880#       发表于 2019-6-8 23:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44038197&amp;ptid=1711545" target="_blank">xifeilu 发表于 2019-6-8 11:12</a>
 贼能不能当主力培养的？（除去在地图上开宝箱这个功能）我因为个人喜好所以选贼开局，初期觉得没啥问题，后 ...</blockquote>
 反倒是猎人后期输出不足，基本是副职业带个贼负责破防+debuff
-
-
-
-
-
 
 
 -----
@@ -37296,22 +24818,13 @@ boss没打我1血的豪武将，然后就是两发奥义带走
 ##### 1881#       发表于 2019-6-9 00:49
 
 
-
-
 前期药王在自家城偷个金斧头，出去AOE很爽鸭
-
-
-
-
-
 
 
 -----
 
 ####  华发夜眼[CN]  
 ##### 1882#       发表于 2019-6-9 14:29
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201906/09/142836m0udzt0z0hzqqs3h.jpg" referrerpolicy="no-referrer">
@@ -37324,24 +24837,14 @@ boss没打我1血的豪武将，然后就是两发奥义带走
 2019-6-9 14:28 上传
 
 
-
-
-
-
 蛤？你在说什么啊！
 
 
 第二章神官和舞女的小剧场还是挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">，越来越喜欢这个温柔的大姐姐了。
 
 
-
-
-
-
 D8mXLcAVsAARBAS.jpg
 (78.52 KB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -37350,24 +24853,7 @@ D8mXLcAVsAARBAS.jpg
 2019-6-9 14:28 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201906/09/142811si66hamqhqu0khhz.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -37376,14 +24862,7 @@ D8mXLcAVsAARBAS.jpg
 ##### 1883#       发表于 2019-6-9 16:31
 
 
-
-
 商人通了，其他都还在第二章。怎么感觉这游戏有点短<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -37392,22 +24871,15 @@ D8mXLcAVsAARBAS.jpg
 ##### 1884#       发表于 2019-6-9 17:12
 
 
-
 <blockquote>久島鴎 发表于 2019-6-9 16:31
 商人通了，其他都还在第二章。怎么感觉这游戏有点短</blockquote>
 大部分时间都是在练级刷技能点和扒NPC的皮
-
-
-
-
-
 
 
 -----
 
 ####  真红之闪电  
 ##### 1885#       发表于 2019-6-10 09:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44034945&amp;ptid=1711545" target="_blank">椎名mahuyo 发表于 2019-6-8 00:10</a>
@@ -37417,16 +24889,10 @@ D8mXLcAVsAARBAS.jpg
 —— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  Lamune  
 ##### 1886#       发表于 2019-6-10 09:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44052466&amp;ptid=1711545" target="_blank">华发夜眼[CN] 发表于 2019-6-9 14:29</a>
@@ -37438,16 +24904,10 @@ D8mXLcAVsAARBAS.jpg
 我最喜欢的是猎人第二章和神官互相吹捧漂亮，然后两个人都沉默了一阵，猎人说，我们还是学学化妆打扮吧
 
 
-
-
-
-
-
 -----
 
 ####  fayespike  
 ##### 1887#       发表于 2019-6-10 09:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44053638&amp;ptid=1711545" target="_blank">久島鴎 发表于 2019-6-9 16:31</a>
@@ -37456,33 +24916,20 @@ D8mXLcAVsAARBAS.jpg
 打完隐藏怎么也得30多个小时吧（嗯练级占了不少）
 
 
-
-
-
-
-
 -----
 
 ####  Z-Saber  
 ##### 1888#       发表于 2019-6-10 09:30
 
 
-
-
 好奇一件事
 steam版有把被switch成品里面阉割的特效做回来吗？
-
-
-
-
-
 
 
 -----
 
 ####  华发夜眼[CN]  
 ##### 1889#       发表于 2019-6-10 09:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44062286&amp;ptid=1711545" target="_blank">Lamune 发表于 2019-6-10 09:28</a>
@@ -37493,24 +24940,13 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 话说每章都有三次对话，每次对话都是和剧情有关系的，目前我无论怎么换人物三次对话都能触发，也就是每章要做3*7个小剧场吗
 
 
-
-
-
-
-
 -----
 
 ####  久島鴎  
 ##### 1890#       发表于 2019-6-10 10:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">主线打完了有啥好的练级办法么，地图上我最高级只找到55级的怪，我看别人te攻略都是两队七八十了这得刷多久
-
-
-
-
-
 
 
 -----
@@ -37519,15 +24955,9 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 ##### 1891#       发表于 2019-6-10 11:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44063765&amp;ptid=1711545" target="_blank">久島鴎 发表于 2019-6-10 10:54</a>
 主线打完了有啥好的练级办法么，地图上我最高级只找到55级的怪，我看别人te攻略都是两队七八十了这 ...</blockquote>
 慢慢刷吧 刷的时候注意一下跳舞濒死+扣血直接带走
-
-
-
-
-
 
 
 -----
@@ -37536,14 +24966,7 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 ##### 1892#       发表于 2019-6-10 11:48
 
 
-
-
 还是s1氛围好，刚才打开nga简直巨魔乱舞，连八方是独立游戏都说的出来 果然精英论坛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -37552,16 +24975,10 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 ##### 1893#       发表于 2019-6-10 11:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44064771&amp;ptid=1711545" target="_blank">AyaneLin 发表于 2019-6-10 11:47</a>
 
 慢慢刷吧 刷的时候注意一下跳舞濒死+扣血直接带走</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/129.png" referrerpolicy="no-referrer">真就刷55级的怪刷到80啊，我双舞娘练到55还没见过100倍exp
-
-
-
-
-
 
 
 -----
@@ -37570,16 +24987,10 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 ##### 1894#       发表于 2019-6-10 12:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44064903&amp;ptid=1711545" target="_blank">久島鴎 发表于 2019-6-10 11:53</a>
 
 真就刷55级的怪刷到80啊，我双舞娘练到55还没见过100倍exp</blockquote>
 刷级还是别跳舞了，跳舞反而效率不高。还是能直接开场破盾带走效率高
-
-
-
-
-
 
 
 -----
@@ -37588,14 +24999,7 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 ##### 1895#       发表于 2019-6-10 12:29
 
 
-
-
 这游戏脑洞太大了，城里那个逼着妹子跟他结婚的二货，我没打赢他，结果变成他爱情的踏脚石加背景板促成了狗男女的爱情？最气的是后来人家说，直接领那个妈宝男的妈出来下场教育儿子打架都可以不打，我，我的存在到底是为了什么……<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -37604,23 +25008,16 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 ##### 1896#       发表于 2019-6-10 12:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44063765&amp;ptid=1711545" target="_blank">久島鴎 发表于 2019-6-10 10:54</a>
 
 主线打完了有啥好的练级办法么，地图上我最高级只找到55级的怪，我看别人te攻略都是两队七八十了这 ...</blockquote>
 主线打完，去最终boss那看一下8个灵魂剧情就可以弃坑了，自己去打太花精力和时间了，我是懒得打直接视频看最终boss打法和结局
 
 
-
-
-
-
-
 -----
 
 ####  xifeilu  
 ##### 1897#       发表于 2019-6-10 12:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44064794&amp;ptid=1711545" target="_blank">AyaneLin 发表于 2019-6-10 11:48</a>
@@ -37631,16 +25028,10 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 外面402之类的帖子轮好几遍了，我就纳闷，这么看不上所谓的像素游戏4399，不买不玩不就得了，一个价格还能开那么多楼婊，所以上什么蒸汽啊，主机独占的时候就没见几个飞来婊价格的，去贴吧讨论的氛围都比尼姑庵现在外版的好，什么都能给你歪去价格
 
 
-
-
-
-
-
 -----
 
 ####  AyaneLin  
 ##### 1898#       发表于 2019-6-10 12:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44064903&amp;ptid=1711545" target="_blank">久島鴎 发表于 2019-6-10 11:53</a>
@@ -37648,16 +25039,10 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 不用80 我70级左右就过了，隐藏boss带对阵容磕掉所有高级药慢慢磨就可以
 
 
-
-
-
-
-
 -----
 
 ####  AyaneLin  
 ##### 1899#       发表于 2019-6-10 12:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44065703&amp;ptid=1711545" target="_blank">xifeilu 发表于 2019-6-10 12:32</a>
@@ -37667,32 +25052,19 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 主要是nga的精英发言过于牛批，翻来覆去就那几句，不如gta不如巫师 2d画面不如狗 像素小人没剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。好久没点开nga想不到水平越来越差了
 
 
-
-
-
-
-
 -----
 
 ####  dazzle  
 ##### 1900#       发表于 2019-6-10 12:38
 
 
-
-
 等级其实没什么大用，血量最大值靠奶爆，死了拉起来直接9999。伤害就魔术师魔攻999就够了，很容易达成，另一队靠符文大师平砍。我过的时候只有出场最多的魔术师70级，剩下的都是60出头。最大感想是药师放开来扔bp药简直是强的变态
-
-
-
-
-
 
 
 -----
 
 ####  xifeilu  
 ##### 1901#       发表于 2019-6-10 12:48
-
 
 
  本帖最后由 xifeilu 于 2019-6-10 12:51 编辑 
@@ -37704,26 +25076,15 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 补充一下，我不知道是不是起源那边，反正前几天有人帖子写的八巫旅人标题，我不解，结果人家告诉我，因为这价格可以买8个巫师3，所以叫八巫旅人，可想而知什么游戏品质，价格才是最关键的那一点
 
 
-
-
-
-
-
 -----
 
 ####  AyaneLin  
 ##### 1902#       发表于 2019-6-10 12:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44066031&amp;ptid=1711545" target="_blank">xifeilu 发表于 2019-6-10 12:48</a>
 以上那些的最终目的就是婊那402价格，说白了就是不舍得花这个价格买，但其实又酸人家买的玩上了（ ...</blockquote>
 所以还是s1好，巨魔水平也高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -37732,16 +25093,10 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 ##### 1903#       发表于 2019-6-10 13:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44063765&amp;ptid=1711545" target="_blank">久島鴎 发表于 2019-6-10 10:54</a>
 
 主线打完了有啥好的练级办法么，地图上我最高级只找到55级的怪，我看别人te攻略都是两队七八十了这 ...</blockquote>
 刷JP为主 等级影响其实不大 会那么高等级都是刷JP附带的 目标是有用的被动技能如果四个隐藏职业没拿可以先去拿
-
-
-
-
-
 
 
 -----
@@ -37750,23 +25105,15 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 ##### 1904#       发表于 2019-6-10 13:12
 
 
-
-
 谢谢楼上各位。
 
 隐藏倒是都齐了，被动有啥推荐的。目前个人感觉通用的就猝死变1血，奶破上限，回合结束再行动，剩下还有几个dps用的。
-
-
-
-
-
 
 
 -----
 
 ####  AyaneLin  
 ##### 1905#       发表于 2019-6-10 13:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44066462&amp;ptid=1711545" target="_blank">久島鴎 发表于 2019-6-10 13:12</a>
@@ -37776,16 +25123,10 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 奶爆 伤害突破上限 sp消耗减半 回合结束多行动一次 这几都个比较猛 奶爆和多行动一次必带
 
 
-
-
-
-
-
 -----
 
 ####  假山君  
 ##### 1906#       发表于 2019-6-10 13:54
-
 
 
 <blockquote>久島鴎 发表于 2019-6-10 13:12
@@ -37795,25 +25136,13 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 以打最终隐藏boss为目标的话可以把双永续练起来，奶爆无疑是肯定要的，其他的根据自己喜好来都行
 
 
-
-
-
-
-
 -----
 
 ####  ccow  
 ##### 1907#       发表于 2019-6-10 14:15
 
 
-
-
 最佳技能就是 奶爆 没这个技能就很难打
-
-
-
-
-
 
 
 -----
@@ -37822,14 +25151,7 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 ##### 1908#       发表于 2019-6-10 23:16
 
 
-
-
 学者这开局.....
-
-
-
-
-
 
 
 -----
@@ -37838,14 +25160,7 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 ##### 1909#       发表于 2019-6-10 23:18
 
 
-
-
 学痴 活该单身啊！
-
-
-
-
-
 
 
 -----
@@ -37854,21 +25169,13 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 ##### 1910#       发表于 2019-6-10 23:40
 
 
-
-
 刚玩没几个小时，关于技能有点小疑问，这个技能是后面全部都要学的吗，前期要不要留点技能点数，后面的问号技能是等级到了才能学还是需要转职<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">？
-
-
-
-
-
 
 
 -----
 
 ####  鱼肉丸子  
 ##### 1911#       发表于 2019-6-10 23:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44075248&amp;ptid=1711545" target="_blank">Keynes 发表于 2019-6-10 23:40</a>
@@ -37878,16 +25185,10 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 问号是你本门技能学多了就解锁的
 
 
-
-
-
-
-
 -----
 
 ####  Keynes  
 ##### 1912#       发表于 2019-6-10 23:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44075272&amp;ptid=1711545" target="_blank">鱼肉丸子 发表于 2019-6-10 23:43</a>
@@ -37901,25 +25202,13 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 另外主职业是指我现在这些十几级人物的职业吗
 
 
-
-
-
-
-
 -----
 
 ####  塞斯克法  
 ##### 1913#       发表于 2019-6-10 23:59
 
 
-
-
 借楼问个问题，因为想买Switch的实体卡带但是人在北美，所以买美版的最方便。不知道美版的卡带这次更新以后有没有中文？还是说一定要买下载版或是港版卡带?
-
-
-
-
-
 
 
 -----
@@ -37928,16 +25217,10 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 ##### 1914#       发表于 2019-6-11 00:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44075466&amp;ptid=1711545" target="_blank">塞斯克法 发表于 2019-6-10 23:59</a>
 
 借楼问个问题，因为想买Switch的实体卡带但是人在北美，所以买美版的最方便。不知道美版的卡带这次更新以后 ...</blockquote>
 都有中文，全区更新
-
-
-
-
-
 
 
 -----
@@ -37946,23 +25229,16 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 ##### 1915#       发表于 2019-6-11 00:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44075466&amp;ptid=1711545" target="_blank">塞斯克法 发表于 2019-06-10 23:59:29</a>
 借楼问个问题，因为想买Switch的实体卡带但是人在北美，所以买美版的最方便。不知道美版的卡带这次更新以后 ...</blockquote>我的就是美版，有中文
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  鱼肉丸子  
 ##### 1916#       发表于 2019-6-11 00:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44075464&amp;ptid=1711545" target="_blank">Keynes 发表于 2019-6-10 23:59</a>
@@ -37972,16 +25248,10 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 就是人物的基本职业  
 
 
-
-
-
-
-
 -----
 
 ####  Keynes  
 ##### 1917#       发表于 2019-6-11 00:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44075561&amp;ptid=1711545" target="_blank">鱼肉丸子 发表于 2019-6-11 00:09</a>
@@ -37990,25 +25260,13 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 哦哦，好的<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Tackstone  
 ##### 1918#       发表于 2019-6-11 00:29
 
 
-
-
 为了贪点魔攻给学者转了舞娘，那造型过于哲学了。
-
-
-
-
-
 
 
 -----
@@ -38017,24 +25275,15 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 ##### 1919#       发表于 2019-6-11 01:03
 
 
-
-
 那个队伍对话太傻逼了，不在队伍的人不能触发，老是要回去酒馆换人，而且还限定触发时间。本来人物联系就少，想看下互动还这么麻烦。盗贼不在队伍开不了箱子这些都忍了，毕竟箱子不会飞，只是麻烦点，剧情不能回归错过就没了，简直弱智<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  阿卡林型不语  
 ##### 1920#       发表于 2019-6-11 03:11
-
-
 
 
 8个人的主线都要走一遍？
@@ -38044,16 +25293,10 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 学者→商人→神官 感觉演出越来越短
 
 
-
-
-
-
-
 -----
 
 ####  鱼肉丸子  
 ##### 1921#       发表于 2019-6-11 11:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44076559&amp;ptid=1711545" target="_blank">阿卡林型不语 发表于 2019-6-11 03:11</a>
@@ -38069,26 +25312,13 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 主线演出没有省略 选的第一个人只是必须通关前一直在队伍里而已
 
 
-
-
-
-
-
-
 -----
 
 ####  Keynes  
 ##### 1922#       发表于 2019-6-11 20:03
 
 
-
-
 遇到了一个叫绅士凯特琳的怪，打他全miss然后跑了，求教怎么打呀
-
-
-
-
-
 
 
 -----
@@ -38097,16 +25327,10 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 ##### 1923#       发表于 2019-6-11 20:37
 
 
-
  本帖最后由 Yeaha123 于 2019-6-11 20:40 编辑 
 <blockquote>Keynes 发表于 2019-6-11 20:03
 遇到了一个叫绅士凯特琳的怪，打他全miss然后跑了，求教怎么打呀</blockquote>
 扔精灵石（大）炸它
-
-
-
-
-
 
 
 -----
@@ -38115,14 +25339,7 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 ##### 1924#       发表于 2019-6-11 21:24
 
 
-
-
 8个人第一章都打完了，然后在第二章地区等级太低各种被暴打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -38131,23 +25348,16 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 ##### 1925#         楼主| 发表于 2019-6-11 21:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44089022&amp;ptid=1711545" target="_blank">椎名mahuyo 发表于 2019-6-11 22:24</a>
 
 8个人第一章都打完了，然后在第二章地区等级太低各种被暴打</blockquote>
 不怕破坏平衡的话可以去高等级图跑酷，拿点宝箱偷点东西回来就能低通第二章了，之后学会奶爆能继续低通。带上学者遇敌减半，盗贼开紫箱，以及商人捡钱。
 
 
-
-
-
-
-
 -----
 
 ####  モナド  
 ##### 1926#       发表于 2019-6-11 21:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44089022&amp;ptid=1711545" target="_blank">椎名mahuyo 发表于 2019-6-11 21:24</a>
@@ -38158,25 +25368,13 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 邪道玩法，跑酷去高级图偷装备开宝箱回来碾压
 
 
-
-
-
-
-
 -----
 
 ####  urvark  
 ##### 1927#       发表于 2019-6-11 21:39
 
 
-
-
 我有个小问题，我老婆跳舞时出来多次EXP和JP增加效果的话，其最终战斗结算时是相乘、相加、取单次最高值还是按最后一次出的倍率结算？
-
-
-
-
-
 
 
 -----
@@ -38185,16 +25383,10 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 ##### 1928#         楼主| 发表于 2019-6-11 21:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44089229&amp;ptid=1711545" target="_blank">urvark 发表于 2019-6-11 22:39</a>
 
 我有个小问题，我老婆跳舞时出来多次EXP和JP增加效果的话，其最终战斗结算时是相乘、相加、取单次最高值还 ...</blockquote>
 我记得是取最高。不然一直跳一直跳这游戏不用玩了……
-
-
-
-
-
 
 
 -----
@@ -38203,16 +25395,10 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 ##### 1929#       发表于 2019-6-11 21:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44089292&amp;ptid=1711545" target="_blank">Lunamos 发表于 2019-6-11 21:43</a>
 
 我记得是取最高。不然一直跳一直跳这游戏不用玩了……</blockquote>
 多谢……
-
-
-
-
-
 
 
 -----
@@ -38221,23 +25407,16 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 ##### 1930#       发表于 2019-6-11 22:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44089229&amp;ptid=1711545" target="_blank">urvark 发表于 2019-6-11 21:39</a>
 
 我有个小问题，我老婆跳舞时出来多次EXP和JP增加效果的话，其最终战斗结算时是相乘、相加、取单次最高值还 ...</blockquote>
 刚玩到你老婆被管理人叫去房间疼爱<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  tanoan  
 ##### 1931#       发表于 2019-6-11 22:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44064794&amp;ptid=1711545" target="_blank">AyaneLin 发表于 2019-6-10 11:48</a>
@@ -38248,25 +25427,13 @@ steam版有把被switch成品里面阉割的特效做回来吗？
 sbeam吧和nga水平不相上下
 
 
-
-
-
-
-
 -----
 
 ####  otakun  
 ##### 1932#       发表于 2019-6-11 23:50
 
 
-
-
 开局舞女，逆时针走一圈，最后收了药师。药师的好友说好会代替他守护好村子，怎么还能被我舞女拐走啊，妮娜怎么办啊你个混蛋<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -38275,17 +25442,10 @@ sbeam吧和nga水平不相上下
 ##### 1933#       发表于 2019-6-11 23:52
 
 
-
-
 在装备武器的界面里，每个人有自己的面板数值，然后加上每把武器又各有一套数值。有点搞不明白实际攻击力看的是哪儿
 比如我战士基础物攻100魔攻100，用枪，攻击200魔攻200，那我这枪的魔攻是干什么用的呢？难道千本枪这样耗sp的攻击也叫魔攻？
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -38294,15 +25454,9 @@ sbeam吧和nga水平不相上下
 ##### 1934#       发表于 2019-6-11 23:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44090744&amp;ptid=1711545" target="_blank">没取名啊 发表于 2019-6-11 23:52</a>
 在装备武器的界面里，每个人有自己的面板数值，然后加上每把武器又各有一套数值。有点搞不明白实际攻击力看 ...</blockquote>
 符文大师的属性符文攻击伤害取决于各武器的魔攻
-
-
-
-
-
 
 
 -----
@@ -38311,14 +25465,7 @@ sbeam吧和nga水平不相上下
 ##### 1935#       发表于 2019-6-12 10:19
 
 
-
-
 学者Y了NPC后有一条：这座城市的引导等级降低，这是什么？
-
-
-
-
-
 
 
 -----
@@ -38327,20 +25474,13 @@ sbeam吧和nga水平不相上下
 ##### 1936#       发表于 2019-6-12 10:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">3星以上的NPC太强了吧，SL大法诱惑了一个4星的，BOSS都给你揍扁。
-
-
-
-
-
 
 
 -----
 
 ####  厄斯沃穆  
 ##### 1937#       发表于 2019-6-12 10:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44095240&amp;ptid=1711545" target="_blank">fuzzytuzi 发表于 2019-6-12 10:19</a>
@@ -38350,16 +25490,10 @@ sbeam吧和nga水平不相上下
 —— 来自 HUAWEI ALP-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  nesrelax  
 ##### 1938#       发表于 2019-6-12 10:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44066031&amp;ptid=1711545" target="_blank">xifeilu 发表于 2019-6-10 12:48</a>
@@ -38368,16 +25502,10 @@ sbeam吧和nga水平不相上下
 蒸汽吧也是这个风向，说还说不得。
 
 
-
-
-
-
-
 -----
 
 ####  没取名啊  
 ##### 1939#       发表于 2019-6-12 11:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44090798&amp;ptid=1711545" target="_blank">嘲哳的声音 发表于 2019-06-11 23:58:05</a>
@@ -38386,17 +25514,10 @@ sbeam吧和nga水平不相上下
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  阿卡林型不语  
 ##### 1940#       发表于 2019-6-12 14:36
-
-
 
 
 初期猫怪刷新没规律么？
@@ -38404,16 +25525,10 @@ sbeam吧和nga水平不相上下
 舞娘怎么刷经验？
 
 
-
-
-
-
-
 -----
 
 ####  飞灾  
 ##### 1941#       发表于 2019-6-12 16:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44096746&amp;ptid=1711545" target="_blank">没取名啊 发表于 2019-6-12 11:48</a>
@@ -38425,16 +25540,10 @@ sbeam吧和nga水平不相上下
 豪武将的大招里面，用魔法武器出招的也是看魔攻
 
 
-
-
-
-
-
 -----
 
 ####  飞灾  
 ##### 1942#       发表于 2019-6-12 16:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44098640&amp;ptid=1711545" target="_blank">阿卡林型不语 发表于 2019-6-12 14:36</a>
@@ -38448,32 +25557,19 @@ sbeam吧和nga水平不相上下
 经验没屁用，不如刷JP
 
 
-
-
-
-
-
 -----
 
 ####  Keynes  
 ##### 1943#       发表于 2019-6-12 16:18
 
 
-
-
 不是，学者和贼也太呆了，人家姑娘就差给你推倒了都不上<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Iridescence_C  
 ##### 1944#       发表于 2019-6-12 16:27
-
 
 
 <blockquote>Keynes 发表于 2019-6-12 16:18
@@ -38483,16 +25579,10 @@ sbeam吧和nga水平不相上下
 贼...讲道理，哪敢有什么非分之想，旁边那老头子不活剥了他的皮...
 
 
-
-
-
-
-
 -----
 
 ####  厄斯沃穆  
 ##### 1945#       发表于 2019-6-12 16:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44099712&amp;ptid=1711545" target="_blank">飞灾 发表于 2019-6-12 16:02</a>
@@ -38505,16 +25595,10 @@ sbeam吧和nga水平不相上下
 —— 来自 HUAWEI ALP-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  Keynes  
 ##### 1946#       发表于 2019-6-12 16:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44100021&amp;ptid=1711545" target="_blank">Iridescence_C 发表于 2019-6-12 16:27</a>
@@ -38525,16 +25609,10 @@ sbeam吧和nga水平不相上下
 老头子不是没打过贼吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Raumanzug  
 ##### 1947#       发表于 2019-6-12 16:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44096746&amp;ptid=1711545" target="_blank">没取名啊 发表于 2019-6-12 11:48</a>
@@ -38546,16 +25624,10 @@ sbeam吧和nga水平不相上下
 实际上要算魔攻的时候也是你带的全部武器里取最高，所以看见这种混攻的都不用考虑，直接带物攻最高的就行了。
 
 
-
-
-
-
-
 -----
 
 ####  飞灾  
 ##### 1948#       发表于 2019-6-12 17:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44100226&amp;ptid=1711545" target="_blank">厄斯沃穆 发表于 2019-6-12 16:44</a>
@@ -38580,32 +25652,19 @@ sbeam吧和nga水平不相上下
 打完大概280左右的jp
 
 
-
-
-
-
-
 -----
 
 ####  阿卡林型不语  
 ##### 1949#       发表于 2019-6-12 18:12
 
 
-
-
 好缺钱啊，除了用商人的被动刷高级洞穴钱包还有啥赚钱方法？
-
-
-
-
-
 
 
 -----
 
 ####  阿卡林型不语  
 ##### 1950#       发表于 2019-6-12 18:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44100615&amp;ptid=1711545" target="_blank">飞灾 发表于 2019-6-12 17:13</a>
@@ -38617,16 +25676,10 @@ sbeam吧和nga水平不相上下
 副职业每个人都只能选一次还是无限选？
 
 
-
-
-
-
-
 -----
 
 ####  モナド  
 ##### 1951#       发表于 2019-6-12 18:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44101263&amp;ptid=1711545" target="_blank">阿卡林型不语 发表于 2019-6-12 18:12</a>
@@ -38635,26 +25688,15 @@ sbeam吧和nga水平不相上下
 带商人跑图，钱完全溢出了
 
 
-
-
-
-
-
 -----
 
 ####  モナド  
 ##### 1952#       发表于 2019-6-12 18:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44101304&amp;ptid=1711545" target="_blank">阿卡林型不语 发表于 2019-6-12 18:16</a>
 副职业每个人都只能选一次还是无限选？</blockquote>
 副职业类似装备，一个副职业只能一个人带，可以随便换
-
-
-
-
-
 
 
 -----
@@ -38663,16 +25705,10 @@ sbeam吧和nga水平不相上下
 ##### 1953#       发表于 2019-6-12 18:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44101379&amp;ptid=1711545" target="_blank">モナド 发表于 2019-6-12 18:22</a>
 
 副职业类似装备，一个副职业只能一个人带，可以随便换</blockquote>
 换上技能要重新练？
-
-
-
-
-
 
 
 -----
@@ -38681,16 +25717,10 @@ sbeam吧和nga水平不相上下
 ##### 1954#       发表于 2019-6-12 18:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44101420&amp;ptid=1711545" target="_blank">阿卡林型不语 发表于 2019-6-12 18:25</a>
 
 换上技能要重新练？</blockquote>
 学过的技能一直在的
-
-
-
-
-
 
 
 -----
@@ -38699,16 +25729,10 @@ sbeam吧和nga水平不相上下
 ##### 1955#       发表于 2019-6-12 19:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44101452&amp;ptid=1711545" target="_blank">モナド 发表于 2019-6-12 18:28</a>
 
 学过的技能一直在的</blockquote>
 谢了
-
-
-
-
-
 
 
 -----
@@ -38717,14 +25741,7 @@ sbeam吧和nga水平不相上下
 ##### 1956#       发表于 2019-6-12 19:41
 
 
-
-
 问一下，装备了副职业后菜单里小人模型换了，但是地图里模型没换？这是正常的吗？
-
-
-
-
-
 
 
 -----
@@ -38733,24 +25750,16 @@ sbeam吧和nga水平不相上下
 ##### 1957#       发表于 2019-6-12 20:41
 
 
-
-
 我受不了了啦
 我还是去买了<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
 首发那个角色有趣一点呢？
 我开着选择界面思考了快20分钟人生………
 
 
-
-
-
-
-
 -----
 
 ####  阿卡林型不语  
 ##### 1958#       发表于 2019-6-12 22:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44103086&amp;ptid=1711545" target="_blank">jhjy217 发表于 2019-6-12 20:41</a>
@@ -38763,26 +25772,15 @@ sbeam吧和nga水平不相上下
 法爷
 
 
-
-
-
-
-
 -----
 
 ####  Lunamos  
 ##### 1959#         楼主| 发表于 2019-6-12 22:23
 
 
-
 <blockquote>厄斯沃穆 发表于 2019-6-12 20:41
 问一下，装备了副职业后菜单里小人模型换了，但是地图里模型没换？这是正常的吗？ ...</blockquote>
 正常，应该是小人的地图演出动画矩阵全做工作量太大吧。
-
-
-
-
-
 
 
 -----
@@ -38791,22 +25789,15 @@ sbeam吧和nga水平不相上下
 ##### 1960#       发表于 2019-6-12 23:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">药师第二章，让我想起了孙悟空把七仙女定住后然后去摘桃那个梗
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  AyaneLin  
 ##### 1961#       发表于 2019-6-13 00:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44103086&amp;ptid=1711545" target="_blank">jhjy217 发表于 2019-6-12 20:41</a>
@@ -38816,32 +25807,19 @@ sbeam吧和nga水平不相上下
 best girl 离前期强力角色都比较近
 
 
-
-
-
-
-
 -----
 
 ####  阿卡林型不语  
 ##### 1962#       发表于 2019-6-13 02:47
 
 
-
-
 我低估这个游戏的内容了
-
-
-
-
-
 
 
 -----
 
 ####  wszweill  
 ##### 1963#       发表于 2019-6-13 02:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44103086&amp;ptid=1711545" target="_blank">jhjy217 发表于 2019-6-12 07:41</a>
@@ -38854,16 +25832,10 @@ best girl 离前期强力角色都比较近
 法爷有伤害还能避免踩地雷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 首发不能换出队伍。
 
 
-
-
-
-
-
 -----
 
 ####  阿卡林型不语  
 ##### 1964#       发表于 2019-6-13 04:47
-
 
 
  本帖最后由 阿卡林型不语 于 2019-6-13 04:48 编辑 
@@ -38873,16 +25845,10 @@ best girl 离前期强力角色都比较近
 比如我跳出来2 2 5三次结算是给最高值？还是数值想加？
 
 
-
-
-
-
-
 -----
 
 ####  假山君  
 ##### 1965#       发表于 2019-6-13 06:32
-
 
 
 <blockquote>阿卡林型不语 发表于 2019-6-13 04:47
@@ -38892,16 +25858,10 @@ best girl 离前期强力角色都比较近
 取最高倍率的那次
 
 
-
-
-
-
-
 -----
 
 ####  飞灾  
 ##### 1966#       发表于 2019-6-13 11:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44101304&amp;ptid=1711545" target="_blank">阿卡林型不语 发表于 2019-6-12 18:16</a>
@@ -38913,16 +25873,10 @@ best girl 离前期强力角色都比较近
 早期的话先去拿神官副职业给每人带个生命力上限突破是很必要的
 
 
-
-
-
-
-
 -----
 
 ####  飞灾  
 ##### 1967#       发表于 2019-6-13 11:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44102294&amp;ptid=1711545" target="_blank">厄斯沃穆 发表于 2019-6-12 19:41</a>
@@ -38931,16 +25885,10 @@ best girl 离前期强力角色都比较近
 正常的
 
 
-
-
-
-
-
 -----
 
 ####  飞灾  
 ##### 1968#       发表于 2019-6-13 11:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44103086&amp;ptid=1711545" target="_blank">jhjy217 发表于 2019-6-12 20:41</a>
@@ -38956,17 +25904,10 @@ best girl 离前期强力角色都比较近
 开局效率来说的话商人、神官和盗贼排前三
 
 
-
-
-
-
-
 -----
 
 ####  lelouchwang  
 ##### 1969#       发表于 2019-6-13 11:47
-
-
 
 
 看视频学了跑酷摸装备，感觉整个世界都不同了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -38975,25 +25916,13 @@ best girl 离前期强力角色都比较近
 来自: iPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  flyzzhj  
 ##### 1970#       发表于 2019-6-13 12:56
 
 
-
-
 开局法爷+65535，秒天秒地秒自己
-
-
-
-
-
 
 
 -----
@@ -39002,21 +25931,13 @@ best girl 离前期强力角色都比较近
 ##### 1971#         楼主| 发表于 2019-6-13 13:02
 
 
-
-
 另外建议新人首先通关神官和剑士的四章剧情。因为通关剑士四章能通过支线拿到经验值X1.5的饰品，通关神官四章之后通过支线能拿到JPX1.5的饰品。这两个道具对于迅速补充拖后腿人员的等级至关重要。
-
-
-
-
-
 
 
 -----
 
 ####  zukey  
 ##### 1972#       发表于 2019-6-13 14:02
-
 
 
  本帖最后由 zukey 于 2019-6-13 14:06 编辑 
@@ -39026,32 +25947,19 @@ best girl 离前期强力角色都比较近
 猎人的蛛网是神技，能把boss锁到出来就被破盾，完成“<strong>boss动一下——我方八次行动破盾——我方四次行动输出——boss动一下</strong>”这种我方动12次boss才动1次的欺负人的循环....
 
 
-
-
-
-
-
 -----
 
 ####  モナド  
 ##### 1973#       发表于 2019-6-13 14:29
 
 
-
-
 暴击属性的算法有吗，搜了圈没找到暴击率公式
-
-
-
-
-
 
 
 -----
 
 ####  TR4835  
 ##### 1974#       发表于 2019-6-13 15:15
-
 
 
  本帖最后由 TR4835 于 2019-6-13 15:17 编辑 
@@ -39061,16 +25969,10 @@ best girl 离前期强力角色都比较近
 都舔不了兽耳特蕾莎
 
 
-
-
-
-
-
 -----
 
 ####  X轴正向速度  
 ##### 1975#       发表于 2019-6-13 20:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44112430&amp;ptid=1711545" target="_blank">zukey 发表于 2019-6-13 14:02</a>
@@ -39079,16 +25981,10 @@ best girl 离前期强力角色都比较近
 女武神拖到后面一回合6动。
 
 
-
-
-
-
-
 -----
 
 ####  zukey  
 ##### 1976#       发表于 2019-6-13 22:19
-
 
 
  本帖最后由 zukey 于 2019-6-13 22:23 编辑 
@@ -39098,16 +25994,10 @@ best girl 离前期强力角色都比较近
 好像占星打到后面也是一回合3动，不过40级出头的DPS也够在崩溃前干掉她了女武神我确实四十多级打不过啦....
 
 
-
-
-
-
-
 -----
 
 ####  セト  
 ##### 1977#       发表于 2019-6-13 23:44
-
 
 
  本帖最后由 セト 于 2019-6-13 23:46 编辑 
@@ -39130,25 +26020,13 @@ best girl 离前期强力角色都比较近
 法爷遇敌自探1个弱点，让你在前期跑路时每次遇敌就算逃跑也能白赚一个弱点，是最合适的开图人选了。当然我选商人，没什么比可爱更重要
 
 
-
-
-
-
-
 -----
 
 ####  yongze  
 ##### 1978#       发表于 2019-6-14 08:04
 
 
-
-
 趁着中文版发布，把鸽了很久的隐藏boss给打了，随便搜的攻略基本没啥用，第二阶段不得要领上了一堆buff被一清就扑一半，还好药多，还是靠药堆过去的，打完一看已经打了2个半小时，真的是艰苦卓绝，配得上背景故事中弑神的氛围
-
-
-
-
-
 
 
 -----
@@ -39157,22 +26035,15 @@ best girl 离前期强力角色都比较近
 ##### 1979#       发表于 2019-6-14 08:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44101263&amp;ptid=1711545" target="_blank">阿卡林型不语 发表于 2019-6-12 19:12</a>
 好缺钱啊，除了用商人的被动刷高级洞穴钱包还有啥赚钱方法？</blockquote>
 学盗贼的“连偷带抢”技能，偷钱双倍，打boss一律用商人奥义打 钱根本不是事
-
-
-
-
-
 
 
 -----
 
 ####  yanhan0410  
 ##### 1980#       发表于 2019-6-14 08:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44103086&amp;ptid=1711545" target="_blank">jhjy217 发表于 2019-6-12 21:41</a>
@@ -39183,25 +26054,13 @@ best girl 离前期强力角色都比较近
 毕竟试玩版就是
 
 
-
-
-
-
-
 -----
 
 ####  yongze  
 ##### 1981#       发表于 2019-6-14 08:55
 
 
-
-
 小偷开局也可以，吸血吸魔技能俱全，还能从开始就偷起来
-
-
-
-
-
 
 
 -----
@@ -39210,21 +26069,13 @@ best girl 离前期强力角色都比较近
 ##### 1982#       发表于 2019-6-14 09:45
 
 
-
-
 学者开局啊，让你们知道什么是残忍.jpg
-
-
-
-
-
 
 
 -----
 
 ####  jhjy217  
 ##### 1983#       发表于 2019-6-14 11:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44122143&amp;ptid=1711545" target="_blank">yanhan0410 发表于 2019-6-14 08:48</a>
@@ -39237,31 +26088,19 @@ best girl 离前期强力角色都比较近
 学者这家伙我好想跟他换一下啊！！
 
 
-
-
-
-
-
 -----
 
 ####  久島鴎  
 ##### 1984#       发表于 2019-6-14 12:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开场当然是我best girl啊，可爱能打还能刷钱，隔壁还能捡到学者。
-
-
-
-
-
 
 
 -----
 
 ####  sakamoto99  
 ##### 1985#       发表于 2019-6-14 14:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44110009&amp;ptid=1711545" target="_blank">飞灾 发表于 2019-6-13 11:26</a>
@@ -39273,16 +26112,10 @@ best girl 离前期强力角色都比较近
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">被猎人立绘吸引的我首发了猎人
 
 
-
-
-
-
-
 -----
 
 ####  阿卡林型不语  
 ##### 1986#       发表于 2019-6-14 15:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44127208&amp;ptid=1711545" target="_blank">sakamoto99 发表于 2019-6-14 14:04</a>
@@ -39291,27 +26124,15 @@ best girl 离前期强力角色都比较近
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  吃鸡南小鸟  
 ##### 1987#       发表于 2019-6-14 16:35
 
 
-
-
 这个游戏有主线吗，目前收了第二个角色，现在目标是先把其他角色集齐吗
 
 —— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -39320,15 +26141,9 @@ best girl 离前期强力角色都比较近
 ##### 1988#       发表于 2019-6-14 16:43
 
 
-
  本帖最后由 yongze 于 2019-6-14 18:46 编辑 
 
 最好是每个角色收齐看完所有该章节的故事再进入下一章，这样难度的梯度变化是顺畅的不会遇到陡然上升的情况，主线一开始是每个角色一条，乍看下来关系不大，只有一些小剧场的互动让角色有所交集。直到所有角色的主线结束再触发最后的隐藏任务在攻关隐藏boss的过程中会发现8人的经历和命运被巧妙的串联了起来指向了同一个源头，最后再和这幕后根源决一死战。
-
-
-
-
-
 
 
 -----
@@ -39337,14 +26152,7 @@ best girl 离前期强力角色都比较近
 ##### 1989#       发表于 2019-6-14 18:39
 
 
-
-
 不懂就问，正在最后配装阶段，我发现把属性堆到四位数还是显示999，这是不显示了还是真的上限是999
-
-
-
-
-
 
 
 -----
@@ -39353,14 +26161,7 @@ best girl 离前期强力角色都比较近
 ##### 1990#       发表于 2019-6-14 18:52
 
 
-
-
 透，这黑剑士打了一个多小时终于打死了，回sp的果子全吃光了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -39369,13 +26170,7 @@ best girl 离前期强力角色都比较近
 ##### 1991#       发表于 2019-6-14 19:56
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">符文这伤害到底怎么算的，为什么我敲出来都是9999
-
-
-
-
-
 
 
 -----
@@ -39384,14 +26179,7 @@ best girl 离前期强力角色都比较近
 ##### 1992#       发表于 2019-6-14 20:38
 
 
-
-
 猎人是特别菜吗。。。。。我也想选猎人来着。。。
-
-
-
-
-
 
 
 -----
@@ -39400,14 +26188,7 @@ best girl 离前期强力角色都比较近
 ##### 1993#       发表于 2019-6-14 20:43
 
 
-
-
 问个问题，坚果前期吃好还是后期吃好呀，具体该怎么分啊
-
-
-
-
-
 
 
 -----
@@ -39416,23 +26197,16 @@ best girl 离前期强力角色都比较近
 ##### 1994#       发表于 2019-6-14 21:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44127208&amp;ptid=1711545" target="_blank">sakamoto99 发表于 2019-6-14 14:04</a>
 
 被猎人立绘吸引的我首发了猎人</blockquote>
 猎人的话其实跑酷开个盗贼的副职业祠堂也不是不能玩
 
 
-
-
-
-
-
 -----
 
 ####  飞灾  
 ##### 1995#       发表于 2019-6-14 21:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44131236&amp;ptid=1711545" target="_blank">久島鴎 发表于 2019-6-14 19:56</a>
@@ -39444,16 +26218,10 @@ best girl 离前期强力角色都比较近
 9999了的话学个“伤害上限突破”的话体验极佳
 
 
-
-
-
-
-
 -----
 
 ####  飞灾  
 ##### 1996#       发表于 2019-6-14 21:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44131572&amp;ptid=1711545" target="_blank">轮太 发表于 2019-6-14 20:38</a>
@@ -39464,16 +26232,10 @@ best girl 离前期强力角色都比较近
 后面带个盗贼副职业的话破防和debuff可以排名第二
 
 
-
-
-
-
-
 -----
 
 ####  久島鴎  
 ##### 1997#       发表于 2019-6-14 21:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44131823&amp;ptid=1711545" target="_blank">飞灾 发表于 2019-6-14 21:06</a>
@@ -39485,16 +26247,10 @@ best girl 离前期强力角色都比较近
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">给辅助带这个感觉有点奢侈，四个被动槽还是有点不够用
 
 
-
-
-
-
-
 -----
 
 ####  飞灾  
 ##### 1998#       发表于 2019-6-14 21:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44131856&amp;ptid=1711545" target="_blank">久島鴎 发表于 2019-6-14 21:10</a>
@@ -39505,32 +26261,19 @@ best girl 离前期强力角色都比较近
 商人的话应该可以空一个出来，反正也就是打boss用用
 
 
-
-
-
-
-
 -----
 
 ####  阿卡林型不语  
 ##### 1999#       发表于 2019-6-15 03:29
 
 
-
-
 日版的CV表谁有啊
-
-
-
-
-
 
 
 -----
 
 ####  Yeaha123  
 ##### 2000#       发表于 2019-6-15 06:25
-
 
 
 <blockquote>阿卡林型不语 发表于 2019-6-15 03:29
@@ -39554,16 +26297,10 @@ best girl 离前期强力角色都比较近
 路人CV不明
 
 
-
-
-
-
-
 -----
 
 ####  阿卡林型不语  
 ##### 2001#       发表于 2019-6-15 06:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44134809&amp;ptid=1711545" target="_blank">Yeaha123 发表于 2019-6-15 06:25</a>
@@ -39576,26 +26313,15 @@ best girl 离前期强力角色都比较近
 可惜了，旅人很多配的不错。
 
 
-
-
-
-
-
 -----
 
 ####  Yeaha123  
 ##### 2002#       发表于 2019-6-15 06:52
 
 
-
 <blockquote>阿卡林型不语 发表于 2019-6-15 06:47
 可惜了，旅人很多配的不错。</blockquote>
 你可以找个有通关动画的视频看看制作人员表，我那时光顾着听通关组曲忘了看了
-
-
-
-
-
 
 
 -----
@@ -39604,16 +26330,10 @@ best girl 离前期强力角色都比较近
 ##### 2003#       发表于 2019-6-15 09:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44130595&amp;ptid=1711545" target="_blank">久島鴎 发表于 2019-6-14 18:39</a>
 
 不懂就问，正在最后配装阶段，我发现把属性堆到四位数还是显示999，这是不显示了还是真的上限是999 ...</blockquote>
 面板上限999
-
-
-
-
-
 
 
 -----
@@ -39622,23 +26342,16 @@ best girl 离前期强力角色都比较近
 ##### 2004#       发表于 2019-6-15 09:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44131619&amp;ptid=1711545" target="_blank">Keynes 发表于 2019-6-14 20:43</a>
 
 问个问题，坚果前期吃好还是后期吃好呀，具体该怎么分啊</blockquote>
 什么时候吃效果都是一样的，加基础面板，然后会根据职业修正变成实际面板
 
 
-
-
-
-
-
 -----
 
 ####  久島鴎  
 ##### 2005#       发表于 2019-6-15 11:38
-
 
 
  本帖最后由 久島鴎 于 2019-6-15 16:50 编辑 
@@ -39650,17 +26363,10 @@ best girl 离前期强力角色都比较近
 自己测试了一下，会的
 
 
-
-
-
-
-
 -----
 
 ####  真红之闪电  
 ##### 2006#       发表于 2019-6-15 16:16
-
-
 
 
 重新开了个档，话说法师技能怎么配才是最佳配置?
@@ -39669,16 +26375,10 @@ best girl 离前期强力角色都比较近
 —— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  久島鴎  
 ##### 2007#       发表于 2019-6-15 16:27
-
 
 
  本帖最后由 久島鴎 于 2019-6-15 17:01 编辑 
@@ -39690,16 +26390,10 @@ best girl 离前期强力角色都比较近
 编辑下，之前说错了，刚刚测试了一下，推荐被动：奶爆，伤害破界限，属性熟练，永续元素提升
 
 
-
-
-
-
-
 -----
 
 ####  Yeaha123  
 ##### 2008#       发表于 2019-6-15 16:27
-
 
 
 <blockquote>真红之闪电 发表于 2019-6-15 16:16
@@ -39742,32 +26436,19 @@ x1.5: 行動速度アップ状態（盗公子エベルの鉤爪のみ）
 補足：オクトパストラベラーのダメージ補正は乗算。1.5+1.5=3.0倍ではなく、1.5×1.5=2.25倍。
 
 
-
-
-
-
-
 -----
 
 ####  椎名mahuyo  
 ##### 2009#       发表于 2019-6-15 16:37
 
 
-
-
 魔力之剑真的会掉么，试了十几次都没掉过一次
-
-
-
-
-
 
 
 -----
 
 ####  久島鴎  
 ##### 2010#       发表于 2019-6-15 16:41
-
 
 
  本帖最后由 久島鴎 于 2019-6-15 16:48 编辑 
@@ -39782,28 +26463,15 @@ x1.5: 特効強化【魔術師】（弱点補正1.3倍が無効）</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">测试了一下，会
 
 
-
-
-
-
-
-
 -----
 
 ####  真红之闪电  
 ##### 2011#       发表于 2019-6-15 16:58
 
 
-
-
 感谢楼上两位回答
 
 —— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -39812,21 +26480,13 @@ x1.5: 特効強化【魔術師】（弱点補正1.3倍が無効）</blockquote>
 ##### 2012#       发表于 2019-6-15 17:14
 
 
-
-
 被steam上的成就表剧透了够<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  X轴正向速度  
 ##### 2013#       发表于 2019-6-15 17:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44136583&amp;ptid=1711545" target="_blank">久島鴎 发表于 2019-6-15 11:38</a>
@@ -39839,32 +26499,19 @@ x1.5: 特効強化【魔術師】（弱点補正1.3倍が無効）</blockquote>
 面板是面板，被动是对伤害
 
 
-
-
-
-
-
 -----
 
 ####  酱稀饭  
 ##### 2014#       发表于 2019-6-16 10:59
 
 
-
-
 求助下第二职业怎么学比较好，目前想到的是学者转盗贼，神官转舞娘比较互补，其他比如猎人商人药师怎么转？
-
-
-
-
-
 
 
 -----
 
 ####  飞灾  
 ##### 2015#       发表于 2019-6-16 12:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44147741&amp;ptid=1711545" target="_blank">酱稀饭 发表于 2019-6-16 10:59</a>
@@ -39884,13 +26531,9 @@ x1.5: 特効強化【魔術師】（弱点補正1.3倍が無効）</blockquote>
 神官：辅助-占星、学者
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -39900,12 +26543,7 @@ x1.5: 特効強化【魔術師】（弱点補正1.3倍が無効）</blockquote>
 | 雪碧码表| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -39914,13 +26552,7 @@ x1.5: 特効強化【魔術師】（弱点補正1.3倍が無効）</blockquote>
 ##### 2016#       发表于 2019-6-16 15:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">打完了，最终boss比我想的简单。感觉剧情真的有点拖后腿。
-
-
-
-
-
 
 
 -----
@@ -39929,13 +26561,7 @@ x1.5: 特効強化【魔術師】（弱点補正1.3倍が無効）</blockquote>
 ##### 2017#       发表于 2019-6-16 16:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">没人知道么，现在阿尔法斯到底掉不掉魔力之剑，刚刚SL半小时一个都没掉让我怀疑我RP了
-
-
-
-
-
 
 
 -----
@@ -39944,13 +26570,7 @@ x1.5: 特効強化【魔術師】（弱点補正1.3倍が無効）</blockquote>
 ##### 2018#       发表于 2019-6-16 18:44
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">魔力之剑也就符文带一把，有什么刷的必要么
-
-
-
-
-
 
 
 -----
@@ -39959,23 +26579,16 @@ x1.5: 特効強化【魔術師】（弱点補正1.3倍が無効）</blockquote>
 ##### 2019#       发表于 2019-6-16 18:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44139522&amp;ptid=1711545" target="_blank">椎名mahuyo 发表于 2019-6-15 16:37</a>
 
 魔力之剑真的会掉么，试了十几次都没掉过一次</blockquote>
 掉的。体感5%左右。推荐用特大暗石SL刷。
 
 
-
-
-
-
-
 -----
 
 ####  厄斯沃穆  
 ##### 2020#       发表于 2019-6-16 18:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44148882&amp;ptid=1711545" target="_blank">飞灾 发表于 2019-6-16 12:38</a>
@@ -39988,26 +26601,15 @@ x1.5: 特効強化【魔術師】（弱点補正1.3倍が無効）</blockquote>
 打到现在还是没明白，商人的定位是啥？我现在让她兼职了舞娘上buff什么的，但是看你这楼她比较适合输出？
 
 
-
-
-
-
-
 -----
 
 ####  嘲哳的声音  
 ##### 2021#       发表于 2019-6-16 18:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44152798&amp;ptid=1711545" target="_blank">厄斯沃穆 发表于 2019-6-16 18:51</a>
 打到现在还是没明白，商人的定位是啥？我现在让她兼职了舞娘上buff什么的，但是看你这楼她比较适合输出？ ...</blockquote>
 辅助输出，可以递bp，可以上扩散闪避，用了属性符文普攻也有五位数伤害
-
-
-
-
-
 
 
 -----
@@ -40016,16 +26618,10 @@ x1.5: 特効強化【魔術師】（弱点補正1.3倍が無効）</blockquote>
 ##### 2022#       发表于 2019-6-16 19:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44152798&amp;ptid=1711545" target="_blank">厄斯沃穆 发表于 2019-6-16 18:51</a>
 
 打到现在还是没明白，商人的定位是啥？我现在让她兼职了舞娘上buff什么的，但是看你这楼她比较适合输出？ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拿到符文大师之前的商人就是个回bp和刷钱的，要是钱多的话佣兵输出也还可以。拿到之后就是最强buff加最强法系输出了
-
-
-
-
-
 
 
 -----
@@ -40034,14 +26630,7 @@ x1.5: 特効強化【魔術師】（弱点補正1.3倍が無効）</blockquote>
 ##### 2023#       发表于 2019-6-16 19:09
 
 
-
-
 3万块那个技能不用MP不是很好吗，这游戏MP太不耐用了
-
-
-
-
-
 
 
 -----
@@ -40050,16 +26639,10 @@ x1.5: 特効強化【魔術師】（弱点補正1.3倍が無効）</blockquote>
 ##### 2024#       发表于 2019-6-16 20:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44152959&amp;ptid=1711545" target="_blank">Yeaha123 发表于 2019-06-16 19:09:16</a>
 3万块那个技能不用MP不是很好吗，这游戏MP太不耐用了</blockquote>有sp减半的符文，后期不缺sp
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -40068,15 +26651,9 @@ x1.5: 特効強化【魔術師】（弱点補正1.3倍が無効）</blockquote>
 ##### 2025#       发表于 2019-6-16 21:39
 
 
-
  本帖最后由 华发夜眼[CN] 于 2019-6-16 21:49 编辑 
 
 舞娘第四章boss第一站的bgm是啥，太好听了，差点听哭了
-
-
-
-
-
 
 
 -----
@@ -40085,15 +26662,9 @@ x1.5: 特効強化【魔術師】（弱点補正1.3倍が無効）</blockquote>
 ##### 2026#       发表于 2019-6-16 21:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44152875&amp;ptid=1711545" target="_blank">久島鴎 发表于 2019-6-16 19:00</a>
 拿到符文大师之前的商人就是个回bp和刷钱的，要是钱多的话佣兵输出也还可以。拿到之后就是最强buf ...</blockquote>
 副职业带个猎人的话破防效率高得惊人
-
-
-
-
-
 
 
 -----
@@ -40102,22 +26673,15 @@ x1.5: 特効強化【魔術師】（弱点補正1.3倍が無効）</blockquote>
 ##### 2027#       发表于 2019-6-16 21:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44152798&amp;ptid=1711545" target="_blank">厄斯沃穆 发表于 2019-6-16 18:51</a>
 打到现在还是没明白，商人的定位是啥？我现在让她兼职了舞娘上buff什么的，但是看你这楼她比较适合输出？ ...</blockquote>
 前期是跑路刷钱，拿到副职业以后负责破防和上物理免疫，后期带了符文就是完全体了，全员物理免疫和上单人效果波及全员之类的逆天buff
-
-
-
-
-
 
 
 -----
 
 ####  飞灾  
 ##### 2028#       发表于 2019-6-16 21:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44152798&amp;ptid=1711545" target="_blank">厄斯沃穆 发表于 2019-6-16 18:51</a>
@@ -40137,17 +26701,10 @@ x1.5: 特効強化【魔術師】（弱点補正1.3倍が無効）</blockquote>
 法伤和回血，没啥可多说的
 
 
-
-
-
-
-
 -----
 
 ####  bsdlxy  
 ##### 2029#       发表于 2019-6-16 21:59
-
-
 
 
 请教两个问题。
@@ -40157,16 +26714,10 @@ x1.5: 特効強化【魔術師】（弱点補正1.3倍が無効）</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  ACEAKIN  
 ##### 2030#       发表于 2019-6-16 22:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44154716&amp;ptid=1711545" target="_blank">华发夜眼[CN] 发表于 2019-6-16 21:39</a>
@@ -40180,16 +26731,10 @@ x1.5: 特効強化【魔術師】（弱点補正1.3倍が無効）</blockquote>
 每次听OST的时候都有点想再通一次游戏<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  飞灾  
 ##### 2031#       发表于 2019-6-16 22:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44154941&amp;ptid=1711545" target="_blank">bsdlxy 发表于 2019-6-16 21:59</a>
@@ -40204,16 +26749,10 @@ x1.5: 特効強化【魔術師】（弱点補正1.3倍が無効）</blockquote>
 2. 记得首先由魔法媒介类武器的属性决定，都是非媒介时看魔攻值高的那个
 
 
-
-
-
-
-
 -----
 
 ####  Ryeta·Weaver  
 ##### 2032#       发表于 2019-6-16 22:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44154958&amp;ptid=1711545" target="_blank">ACEAKIN 发表于 2019-6-16 22:00</a>
@@ -40225,16 +26764,10 @@ https://music.163.com/#/song?id=865857560
 —— 来自 HUAWEI MT7-CL00, Android 4.4.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  bsdlxy  
 ##### 2033#       发表于 2019-6-16 22:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44154980&amp;ptid=1711545" target="_blank">飞灾 发表于 2019-06-16 22:02:04</a>
@@ -40245,16 +26778,10 @@ https://music.163.com/#/song?id=865857560
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  飞灾  
 ##### 2034#       发表于 2019-6-16 23:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44154941&amp;ptid=1711545" target="_blank">bsdlxy 发表于 2019-6-16 21:59</a>
@@ -40264,32 +26791,19 @@ https://music.163.com/#/song?id=865857560
 更正一下，用魔法和属攻时的伤害跟角色装备了武器后的最终魔攻值挂钩，两个武器是叠加的
 
 
-
-
-
-
-
 -----
 
 ####  落雪无痕  
 ##### 2035#       发表于 2019-6-17 04:09
 
 
-
-
 エンディングテーマ这首曲子真不错，要是每个部分都有完整版就好了
-
-
-
-
-
 
 
 -----
 
 ####  水宝宝  
 ##### 2036#       发表于 2019-6-17 08:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44147741&amp;ptid=1711545" target="_blank">酱稀饭 发表于 2019-6-16 10:59</a>
@@ -40307,13 +26821,9 @@ https://music.163.com/#/song?id=865857560
 神官兼魔大公：主要魔法输出，选神官是因为我需要神官奥义配合特大魔法破防，另外神官本身的魔盾和奶等技能危及时刻保命也好用，可以打得比较安逸
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -40323,12 +26833,7 @@ https://music.163.com/#/song?id=865857560
 | 酱稀饭| + 1|感谢|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -40337,23 +26842,15 @@ https://music.163.com/#/song?id=865857560
 ##### 2037#       发表于 2019-6-17 09:43
 
 
-
-
 原来打NPC还能掉装备的吗
 
 有哪些NPC值得打呢？
-
-
-
-
-
 
 
 -----
 
 ####  久島鴎  
 ##### 2038#       发表于 2019-6-17 09:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44158653&amp;ptid=1711545" target="_blank">秘银mithril 发表于 2019-6-17 09:43</a>
@@ -40364,16 +26861,10 @@ https://music.163.com/#/song?id=865857560
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">掉率可是在2%到5%，并且没有装备是只能npc掉落的，都有别的获取方法。
 
 
-
-
-
-
-
 -----
 
 ####  秘银mithril  
 ##### 2039#       发表于 2019-6-17 10:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44158916&amp;ptid=1711545" target="_blank">久島鴎 发表于 2019-6-17 09:59</a>
@@ -40386,26 +26877,15 @@ https://music.163.com/#/song?id=865857560
 看上边几楼说的剑就不错的样子，不知道还有没有别的
 
 
-
-
-
-
-
 -----
 
 ####  otakun  
 ##### 2040#       发表于 2019-6-17 10:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44158916&amp;ptid=1711545" target="_blank">久島鴎 发表于 2019-6-17 09:59</a>
 掉率可是在2%到5%，并且没有装备是只能npc掉落的，都有别的获取方法。 ...</blockquote>
 早上刚打剑士第二章，战前商人技能买了黑骑士的盾牌，感觉属性很棒，打完黑骑士之后又给我爆了一个<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -40414,24 +26894,16 @@ https://music.163.com/#/song?id=865857560
 ##### 2041#       发表于 2019-6-17 10:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44159025&amp;ptid=1711545" target="_blank">otakun 发表于 2019-6-17 10:07</a>
 
 早上刚打剑士第二章，战前商人技能买了黑骑士的盾牌，感觉属性很棒，打完黑骑士之后又给我爆了一个[f:001 ...</blockquote>
 我昨天打也是这样。以为是固定掉落
 
 
-
-
-
-
-
 -----
 
 ####  华发夜眼[CN]  
 ##### 2042#       发表于 2019-6-17 21:37
-
-
 
 
 看了神官第四章的小剧场才知道。。。原来剧情上来说四个人是算一起行动的？也就是四个人全部被几个喽啰关到到监狱了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -40441,16 +26913,10 @@ https://music.163.com/#/song?id=865857560
 我之前以为个人剧情只是单人进行，小剧场只是吐槽而已。
 
 
-
-
-
-
-
 -----
 
 ####  厄斯沃穆  
 ##### 2043#       发表于 2019-6-17 21:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44169101&amp;ptid=1711545" target="_blank">华发夜眼[CN] 发表于 2019-6-17 21:37</a>
@@ -40459,17 +26925,10 @@ https://music.163.com/#/song?id=865857560
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吐槽这个你就输了，难度舞娘第二章全员假扮jinv上车吗
 
 
-
-
-
-
-
 -----
 
 ####  韶华白首  
 ##### 2044#       发表于 2019-6-18 04:07
-
-
 
 
 刷冰龙口把团队刷到50+之后拿了队长和友情徽章<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">开始清理其他队友的剧情。
@@ -40485,16 +26944,10 @@ https://music.163.com/#/song?id=865857560
 这游戏除了剧情boos 隐藏boos 最终boos，支线剧情和山洞里也有boos？有列表么<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  真红之闪电  
 ##### 2045#       发表于 2019-6-18 08:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44171578&amp;ptid=1711545" target="_blank">韶华白首 发表于 2019-6-18 04:07</a>
@@ -40506,16 +26959,10 @@ https://music.163.com/#/song?id=865857560
 —— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  水宝宝  
 ##### 2046#       发表于 2019-6-18 09:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44171578&amp;ptid=1711545" target="_blank">韶华白首 发表于 2019-6-18 04:07</a>
@@ -40526,26 +26973,15 @@ https://music.163.com/#/song?id=865857560
 隐藏章的最终BOSS你全员带上神官的奶爆和猎人的再动这两个被动技能基本怎么打都能打过的，两队保证每队有输出有药师喂BP有辅助就行，搭配思路前几楼也都有人说了
 
 
-
-
-
-
-
 -----
 
 ####  任天鼠  
 ##### 2047#       发表于 2019-6-18 11:55
 
 
-
 <blockquote>厄斯沃穆 发表于 2019-6-17 21:46
 吐槽这个你就输了，难度舞娘第二章全员假扮jinv上车吗</blockquote>
 其他人暗中跟踪
-
-
-
-
-
 
 
 -----
@@ -40554,24 +26990,16 @@ https://music.163.com/#/song?id=865857560
 ##### 2048#       发表于 2019-6-19 08:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">四个隐藏职业刷完，魔法师和占星师靠的双辅助上反魔法护盾，符文大师莫名其妙的就A死了。
 
 
 豪武匠让剑士转盗贼，BP防御+减攻过的，豪武匠最后一招MAX的防御都给乱刀砍死！
 
 
-
-
-
-
-
 -----
 
 ####  fuzzytuzi  
 ##### 2049#       发表于 2019-6-19 08:42
-
-
 
 
 剑士和学者的+50物理攻击，+50属性攻击的被动要留着么？
@@ -40586,16 +27014,10 @@ https://music.163.com/#/song?id=865857560
 剑士的是最后行动，物理攻击+50，突破伤害界限，永续物理提升。
 
 
-
-
-
-
-
 -----
 
 ####  裂鸟爆蛋拳  
 ##### 2050#       发表于 2019-6-19 08:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44185804&amp;ptid=1711545" target="_blank">fuzzytuzi 发表于 2019-6-19 08:42</a>
@@ -40609,16 +27031,10 @@ https://music.163.com/#/song?id=865857560
 属性熟练化据说break阶段是不起作用的，我也没带
 
 
-
-
-
-
-
 -----
 
 ####  久島鴎  
 ##### 2051#       发表于 2019-6-19 08:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44185804&amp;ptid=1711545" target="_blank">fuzzytuzi 发表于 2019-6-19 08:42</a>
@@ -40631,32 +27047,19 @@ https://music.163.com/#/song?id=865857560
 —— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  Tackstone  
 ##### 2052#       发表于 2019-6-19 09:20
 
 
-
-
 特大bp药什么的有地方刷么<img src="https://static.saraba1st.com/image/smiley/carton2017/177.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  fuzzytuzi  
 ##### 2053#       发表于 2019-6-19 09:32
-
 
 
  本帖最后由 fuzzytuzi 于 2019-6-19 09:35 编辑 
@@ -40667,18 +27070,10 @@ https://music.163.com/#/song?id=865857560
 有的武器有附带属性，比如中毒，火增伤，是选择这把武器才能触发，还是带着就行？
 
 
-
-
-
-
-
-
-
 -----
 
 ####  ACEAKIN  
 ##### 2054#       发表于 2019-6-19 10:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44186387&amp;ptid=1711545" target="_blank">fuzzytuzi 发表于 2019-6-19 09:32</a>
@@ -40707,17 +27102,10 @@ BP吞噬者可以在使用BP攻击时增加50%伤害，通用性也很高，建�
 因为太久没玩了，如果没记错的话，其他被动技能的伤害收益大概都没有上面的接近50%高
 
 
-
-
-
-
-
 -----
 
 ####  九条院入鹿  
 ##### 2055#       发表于 2019-6-19 11:45
-
-
 
 
 问一下楼上的各位大佬多少个小时了，多少个小时通关的。我舞娘开局，现在把药师，猎人和战士放置play，看了几楼，我是不是应该把所有职业的等级都刷上来啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
@@ -40725,16 +27113,10 @@ BP吞噬者可以在使用BP攻击时增加50%伤害，通用性也很高，建�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  久島鴎  
 ##### 2056#       发表于 2019-6-19 11:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44188463&amp;ptid=1711545" target="_blank">九条院入鹿 发表于 2019-6-19 11:45</a>
@@ -40744,16 +27126,10 @@ BP吞噬者可以在使用BP攻击时增加50%伤害，通用性也很高，建�
 —— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  yanhan0410  
 ##### 2057#       发表于 2019-6-19 12:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44185804&amp;ptid=1711545" target="_blank">fuzzytuzi 发表于 2019-6-19 09:42</a>
@@ -40764,25 +27140,13 @@ BP吞噬者可以在使用BP攻击时增加50%伤害，通用性也很高，建�
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">BP吞噬者是最强辅助技能
 
 
-
-
-
-
-
 -----
 
 ####  yongze  
 ##### 2058#       发表于 2019-6-19 12:48
 
 
-
-
 回复溢出是必学被动，每个人都要升一下神官
-
-
-
-
-
 
 
 -----
@@ -40791,16 +27155,9 @@ BP吞噬者可以在使用BP攻击时增加50%伤害，通用性也很高，建�
 ##### 2059#       发表于 2019-6-19 14:08
 
 
-
-
 翻了下去年的讨论，我方哪个技能给对方暗黑状态？
 
 一点印象都木有了……
-
-
-
-
-
 
 
 -----
@@ -40809,13 +27166,7 @@ BP吞噬者可以在使用BP攻击时增加50%伤害，通用性也很高，建�
 ##### 2060#       发表于 2019-6-19 15:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">剑士章节最终BOSS好恶心，我两个法系输出都2000HP，各种秒躺，硬是用复活药扛过去的。
-
-
-
-
-
 
 
 -----
@@ -40824,23 +27175,16 @@ BP吞噬者可以在使用BP攻击时增加50%伤害，通用性也很高，建�
 ##### 2061#       发表于 2019-6-20 14:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44191525&amp;ptid=1711545" target="_blank">fuzzytuzi 发表于 2019-6-19 15:18</a>
 
 剑士章节最终BOSS好恶心，我两个法系输出都2000HP，各种秒躺，硬是用复活药扛过去的。 ...</blockquote>
 2000确实不够用啊，全员带回复上限突破技能，战斗开局神官起手一个群奶加到4k--6k才是王道
 
 
-
-
-
-
-
 -----
 
 ####  fuzzytuzi  
 ##### 2062#       发表于 2019-6-21 11:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44187076&amp;ptid=1711545" target="_blank">ACEAKIN 发表于 2019-6-19 10:18</a>
@@ -40857,16 +27201,10 @@ BP吞噬者可以在使用BP攻击时增加50%伤害，通用性也很高，建�
 去打冰属性魔法，属性取最高的346是短剑，魔杖的冰属性伤害+触发吗？
 
 
-
-
-
-
-
 -----
 
 ####  ACEAKIN  
 ##### 2063#       发表于 2019-6-21 12:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44216874&amp;ptid=1711545" target="_blank">fuzzytuzi 发表于 2019-6-21 11:47</a>
@@ -40878,16 +27216,10 @@ BP吞噬者可以在使用BP攻击时增加50%伤害，通用性也很高，建�
 只要装备上了就会触发，而且还适用于符文大师的附魔攻击。虽然附魔攻击伤害计算时取的是当前攻击武器的属性攻击力，但同样也会受到来自其他武器的附加属性增益
 
 
-
-
-
-
-
 -----
 
 ####  真红之闪电  
 ##### 2064#       发表于 2019-6-21 12:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44216874&amp;ptid=1711545" target="_blank">fuzzytuzi 发表于 2019-6-21 11:47</a>
@@ -40900,17 +27232,10 @@ BP吞噬者可以在使用BP攻击时增加50%伤害，通用性也很高，建�
 —— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  yanhan0410  
 ##### 2065#       发表于 2019-6-21 12:49
-
-
 
 
 发现个磨死boss的万能套路：
@@ -40927,16 +27252,10 @@ BP吞噬者可以在使用BP攻击时增加50%伤害，通用性也很高，建�
 尤其加上商人自带紧急回避技能。
 
 
-
-
-
-
-
 -----
 
 ####  fuzzytuzi  
 ##### 2066#       发表于 2019-6-21 14:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44217566&amp;ptid=1711545" target="_blank">真红之闪电 发表于 2019-6-21 12:45</a>
@@ -40948,16 +27267,10 @@ BP吞噬者可以在使用BP攻击时增加50%伤害，通用性也很高，建�
 学者通关后，在商人的初始城有任务接。
 
 
-
-
-
-
-
 -----
 
 ####  fuzzytuzi  
 ##### 2067#       发表于 2019-6-21 14:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44217455&amp;ptid=1711545" target="_blank">ACEAKIN 发表于 2019-6-21 12:37</a>
@@ -40969,16 +27282,10 @@ BP吞噬者可以在使用BP攻击时增加50%伤害，通用性也很高，建�
 我就是全套属性加成，武器都带属攻的男人！
 
 
-
-
-
-
-
 -----
 
 ####  Keynes  
 ##### 2068#       发表于 2019-6-21 15:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44218383&amp;ptid=1711545" target="_blank">fuzzytuzi 发表于 2019-6-21 14:02</a>
@@ -40990,16 +27297,10 @@ BP吞噬者可以在使用BP攻击时增加50%伤害，通用性也很高，建�
 人家明明是可爱的女孩纸！<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  X轴正向速度  
 ##### 2069#       发表于 2019-6-21 20:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44217599&amp;ptid=1711545" target="_blank">yanhan0410 发表于 2019-6-21 12:49</a>
@@ -41012,24 +27313,15 @@ BP吞噬者可以在使用BP攻击时增加50%伤害，通用性也很高，建�
 一回合6动的女武神了解一下<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yanhan0410  
 ##### 2070#       发表于 2019-6-21 21:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44222916&amp;ptid=1711545" target="_blank">X轴正向速度 发表于 2019-6-21 21:56</a>
 
 一回合6动的女武神了解一下</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么动
-
-
-
 
 

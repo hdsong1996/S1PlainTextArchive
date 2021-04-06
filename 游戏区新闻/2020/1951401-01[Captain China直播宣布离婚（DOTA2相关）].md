@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2020-08-04 18:11** 
 
 
-
 -----
 
 ####  幻影长矛手  
 ##### 1#       楼主       发表于 2020-7-26 14:14
-
 
 
  本帖最后由 幻影长矛手 于 2020-7-27 20:27 编辑 
@@ -17,8 +15,6 @@
 更新3，不承认被绿
 
 更新4，说自己很累，这些决定都是考虑清楚以后的，本来不想提，但是有人一直带节奏，干脆一次说清楚</blockquote><img src="https://img.nga.178.com/attachments/mon_202007/27/8xQ5-bsypKfToS8i-6u.jpg" referrerpolicy="no-referrer">
-
-
 
 
  <blockquote>简单来说就是徐志雷先拉跨了一把先知
@@ -64,25 +60,13 @@ lgd_ruru：“小何加油”
 <img src="http://img.nga.178.com/attachments/mon_202007/26/ehQ5-y0iK6ToS8g-12.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  toyassb  
 ##### 2#       发表于 2020-7-26 14:17
 
 
-
-
 你们刀狗没有自己的论坛么
-
-
-
-
-
 
 
 -----
@@ -91,17 +75,10 @@ lgd_ruru：“小何加油”
 ##### 3#       发表于 2020-7-26 14:22
 
 
-
-
 后面第四把排到了，b神对面是小何。
 小何那局杀翻
 
 —— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -110,14 +87,7 @@ lgd_ruru：“小何加油”
 ##### 4#       发表于 2020-7-26 14:24
 
 
-
-
 但凡徐志雷脑子好使点，会变成殿军荣耀？他跟pis是一类的，做人不行，浪费天赋，比毛毛鸭差了100个八导。
-
-
-
-
-
 
 
 -----
@@ -126,13 +96,7 @@ lgd_ruru：“小何加油”
 ##### 5#       发表于 2020-7-26 14:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">你们刀狗没有自己的论坛么
-
-
-
-
-
 
 
 -----
@@ -141,14 +105,7 @@ lgd_ruru：“小何加油”
 ##### 6#       发表于 2020-7-26 14:27
 
 
-
-
 你们刀狗没有自己的论坛么
-
-
-
-
-
 
 
 -----
@@ -157,16 +114,10 @@ lgd_ruru：“小何加油”
 ##### 7#       发表于 2020-7-26 14:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48219878&amp;ptid=1951401" target="_blank">帕林马哲理 发表于 2020-7-26 14:24</a>
 
 但凡徐志雷脑子好使点，会变成殿军荣耀？他跟pis是一类的，做人不行，浪费天赋，比毛毛鸭差了100个八导。 ...</blockquote>
 恰恰相反，他是游戏表现匹配不了他的人气，尤其在职业生涯后期
-
-
-
-
-
 
 
 -----
@@ -175,16 +126,9 @@ lgd_ruru：“小何加油”
 ##### 8#       发表于 2020-7-26 14:27
 
 
-
-
 你们刀狗没有自己的论坛么<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -193,14 +137,7 @@ lgd_ruru：“小何加油”
 ##### 9#       发表于 2020-7-26 14:33
 
 
-
-
 你们刀狗没有自己的集中贴吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -209,14 +146,7 @@ lgd_ruru：“小何加油”
 ##### 10#       发表于 2020-7-26 14:36
 
 
-
-
 怀五白云假的喏
-
-
-
-
-
 
 
 -----
@@ -225,16 +155,10 @@ lgd_ruru：“小何加油”
 ##### 11#       发表于 2020-7-26 14:40
 
 
-
 [https://bbs.saraba1st.com/2b/forum-138-1.html](https://bbs.saraba1st.com/2b/forum-138-1.html)
 
 
 虽然我也玩DOTA 但是从来没去过S1的这个板块...
-
-
-
-
-
 
 
 -----
@@ -243,14 +167,7 @@ lgd_ruru：“小何加油”
 ##### 12#       发表于 2020-7-26 14:44
 
 
-
-
 你们刀狗没有自己的论坛吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -259,14 +176,7 @@ lgd_ruru：“小何加油”
 ##### 13#       发表于 2020-7-26 14:45
 
 
-
-
 你们刀狗没有自己的粪坑吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -275,16 +185,9 @@ lgd_ruru：“小何加油”
 ##### 14#       发表于 2020-7-26 14:48
 
 
-
-
 徐志雷这种情商不提了，卖粉丝送的饰品，卖好友位这种事也就他能干出来了，和峰哥一比，不是一个层次的，活该ti最好成绩第四，直播也搞的没人气，在斗鱼都待不下去
 
 — from Xiaomi MI 8, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -293,20 +196,13 @@ lgd_ruru：“小何加油”
 ##### 15#       发表于 2020-7-26 14:51
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">徐志雷最好看的不是和rotk解说茶队比赛吗
-
-
-
-
-
 
 
 -----
 
 ####  白色的120  
 ##### 16#       发表于 2020-7-26 14:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48220024&amp;ptid=1951401" target="_blank">Tienx 发表于 2020-7-26 14:51</a>
@@ -316,25 +212,13 @@ lgd_ruru：“小何加油”
 — from Xiaomi MI 8, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  mowind  
 ##### 17#       发表于 2020-7-26 14:56
 
 
-
-
 徐志雷这个人，性格上应该是有很大缺陷的
-
-
-
-
-
 
 
 -----
@@ -343,14 +227,7 @@ lgd_ruru：“小何加油”
 ##### 18#       发表于 2020-7-26 15:00
 
 
-
-
 几年没看比赛了这老b还没退役吗
-
-
-
-
-
 
 
 -----
@@ -359,14 +236,7 @@ lgd_ruru：“小何加油”
 ##### 19#       发表于 2020-7-26 15:13
 
 
-
-
 你们刀狗没自己的sg吗？
-
-
-
-
-
 
 
 -----
@@ -375,16 +245,9 @@ lgd_ruru：“小何加油”
 ##### 20#       发表于 2020-7-26 15:16
 
 
-
-
 徐志雷返老还童啊，30岁的人18岁的性格
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -393,14 +256,7 @@ lgd_ruru：“小何加油”
 ##### 21#       发表于 2020-7-26 15:25
 
 
-
-
 b神牺牲自己活跃了deadgame的相关讨论热度，使得sg贴吧nga都有了更多流量，是刀圈大老师
-
-
-
-
-
 
 
 -----
@@ -409,19 +265,11 @@ b神牺牲自己活跃了deadgame的相关讨论热度，使得sg贴吧nga都有
 ##### 22#       发表于 2020-7-26 15:40
 
 
-
-
 不哭不是真核核<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
 
 
 TIM截图20200726153949.png
 (105.01 KB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -430,24 +278,7 @@ TIM截图20200726153949.png
 2020-7-26 15:40 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202007/26/154004excdwwcwadzajn99.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -456,14 +287,7 @@ TIM截图20200726153949.png
 ##### 23#       发表于 2020-7-26 15:55
 
 
-
-
 （DOTA2相关）
-
-
-
-
-
 
 
 -----
@@ -472,14 +296,7 @@ TIM截图20200726153949.png
 ##### 24#       发表于 2020-7-26 15:56
 
 
-
-
 一定是火锅店老板拜托来转移视线的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -488,14 +305,7 @@ TIM截图20200726153949.png
 ##### 25#       发表于 2020-7-26 15:58
 
 
-
-
 郑翔给何雍正送火箭？早年徐志雷刚直播的时候不还成天带郑翔打路人来着
-
-
-
-
-
 
 
 -----
@@ -504,14 +314,7 @@ TIM截图20200726153949.png
 ##### 26#       发表于 2020-7-26 16:03
 
 
-
-
 0202年了。跟我一个岁数的人，玩一个自己玩了起码12年+的游戏，还能喷得动，我是很感动的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -520,14 +323,7 @@ TIM截图20200726153949.png
 ##### 27#       发表于 2020-7-26 16:12
 
 
-
-
 首先我纯路人不是鳖孙，你们把鳖鳖气到现在打砸自己的龟壳了，对你们有什么好处。恶心。
-
-
-
-
-
 
 
 -----
@@ -536,16 +332,9 @@ TIM截图20200726153949.png
 ##### 28#       发表于 2020-7-26 16:12
 
 
-
-
 这么一看“远古三大C”真是一个赛一个的脑瘫
 
 —— 来自 OnePlus IN2010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -554,16 +343,10 @@ TIM截图20200726153949.png
 ##### 29#       发表于 2020-7-26 16:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48220407&amp;ptid=1951401" target="_blank">发光的球 发表于 2020-7-26 15:56</a>
 
 一定是火锅店老板拜托来转移视线的</blockquote>
 火锅店老板原来不是L狗是核弹<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -572,14 +355,7 @@ TIM截图20200726153949.png
 ##### 30#       发表于 2020-7-26 16:15
 
 
-
-
 你们刀狗没有自己大众点评吗
-
-
-
-
-
 
 
 -----
@@ -588,16 +364,9 @@ TIM截图20200726153949.png
 ##### 31#       发表于 2020-7-26 16:25
 
 
-
-
 徐志雷牛逼啊，把地址打在公屏上，带把刀来砍我
 
 —— 来自 HUAWEI ALP-AL00, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -606,14 +375,7 @@ TIM截图20200726153949.png
 ##### 32#       发表于 2020-7-26 16:37
 
 
-
-
 你们蛆蛆没有自己的火锅店吗？
-
-
-
-
-
 
 
 -----
@@ -622,14 +384,7 @@ TIM截图20200726153949.png
 ##### 33#       发表于 2020-7-26 16:48
 
 
-
-
 这是什么游戏，好玩吗？
-
-
-
-
-
 
 
 -----
@@ -638,14 +393,7 @@ TIM截图20200726153949.png
 ##### 34#       发表于 2020-7-26 17:11
 
 
-
-
 你们不是有自己的八卦区吗
-
-
-
-
-
 
 
 -----
@@ -654,14 +402,7 @@ TIM截图20200726153949.png
 ##### 35#       发表于 2020-7-26 17:24
 
 
-
-
 卖好友位和卖饰品是真的厉害。这才是真正是：我的粉丝我的狗。
-
-
-
-
-
 
 
 -----
@@ -670,21 +411,15 @@ TIM截图20200726153949.png
 ##### 36#       发表于 2020-7-26 17:29
 
 
-
-
 “我已经报了拳击课，下播了练拳击，好去和喷子对线”
 NT到一定程度，反而让人迷惑了。怪不得zard这几天不直播了，原来夺舍了徐志雷。
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +2
@@ -695,12 +430,7 @@ NT到一定程度，反而让人迷惑了。怪不得zard这几天不直播了�
 | Keynes| + 1|钻cd，兄弟，钻cd|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -709,14 +439,7 @@ NT到一定程度，反而让人迷惑了。怪不得zard这几天不直播了�
 ##### 37#       发表于 2020-7-26 17:29
 
 
-
-
 徐志雷也就占个长得好了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -725,16 +448,10 @@ NT到一定程度，反而让人迷惑了。怪不得zard这几天不直播了�
 ##### 38#       发表于 2020-7-26 17:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48220957&amp;ptid=1951401" target="_blank">沈经文 发表于 2020-7-26 17:29</a>
 
 徐志雷也就占个长得好了</blockquote>
 长得好也是14年之前的事情了，现在头比饭皇还大<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -743,14 +460,7 @@ NT到一定程度，反而让人迷惑了。怪不得zard这几天不直播了�
 ##### 39#       发表于 2020-7-26 18:04
 
 
-
-
 徐志雷脑子是真的有病
-
-
-
-
-
 
 
 -----
@@ -759,14 +469,7 @@ NT到一定程度，反而让人迷惑了。怪不得zard这几天不直播了�
 ##### 40#       发表于 2020-7-26 18:18
 
 
-
-
 看着这标题还以为自己穿越了
-
-
-
-
-
 
 
 -----
@@ -775,17 +478,10 @@ NT到一定程度，反而让人迷惑了。怪不得zard这几天不直播了�
 ##### 41#       发表于 2020-7-26 18:41
 
 
-
-
 回放看了三遍，说实话没觉得老板在阴阳，徐志雷估计是被弹幕拱火气到了，人身攻击和牵扯到家人是真的情商低。
 反过来一看，大家都说fgnb，不是没道理的。
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -794,14 +490,7 @@ NT到一定程度，反而让人迷惑了。怪不得zard这几天不直播了�
 ##### 42#       发表于 2020-7-26 18:44
 
 
-
-
 fgnb，鳖鳖还有钱去请私教练拳击大家都有锅，记得上次看某个比赛进去看见他读惠普精灵广告那敷衍样，毫无业务水平
-
-
-
-
-
 
 
 -----
@@ -810,16 +499,10 @@ fgnb，鳖鳖还有钱去请私教练拳击大家都有锅，记得上次看某�
 ##### 43#       发表于 2020-7-26 19:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48220977&amp;ptid=1951401" target="_blank">Keynes 发表于 2020-7-26 17:31</a>
 
 长得好也是14年之前的事情了，现在头比饭皇还大</blockquote>
 害，不是当年长得好就靠一个最强殿军能吸那么多粉吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -828,13 +511,7 @@ fgnb，鳖鳖还有钱去请私教练拳击大家都有锅，记得上次看某�
 ##### 44#       发表于 2020-7-26 19:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来也不算什么大事，但是阿鳖后面跑去跟弹幕对线各种失言是真的厉害，活活把自己作死
-
-
-
-
-
 
 
 -----
@@ -843,16 +520,9 @@ fgnb，鳖鳖还有钱去请私教练拳击大家都有锅，记得上次看某�
 ##### 45#       发表于 2020-7-26 19:52
 
 
-
-
 fg也是有我和09是朋友gtmd下面八我不可能输给一条狗的。
 
 但是fg不会蠢到去和网友对线把自己对炸
-
-
-
-
-
 
 
 -----
@@ -861,21 +531,13 @@ fg也是有我和09是朋友gtmd下面八我不可能输给一条狗的。
 ##### 46#       发表于 2020-7-26 20:01
 
 
-
-
 没读《情商》的后果
-
-
-
-
-
 
 
 -----
 
 ####  银翼的维罗西  
 ##### 47#       发表于 2020-7-26 20:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48220527&amp;ptid=1951401" target="_blank">鷹書たかしょ 发表于 2020-7-26 16:12</a>
@@ -887,16 +549,10 @@ fg也是有我和09是朋友gtmd下面八我不可能输给一条狗的。
 这我不同意，周瑜虽然长得丑，在一群网瘾青年中算双商拉满的了
 
 
-
-
-
-
-
 -----
 
 ####  白虎非虎  
 ##### 48#       发表于 2020-7-26 20:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48221947&amp;ptid=1951401" target="_blank">沈经文 发表于 2020-7-26 19:45</a>
@@ -905,16 +561,10 @@ fg也是有我和09是朋友gtmd下面八我不可能输给一条狗的。
 即使是IG稳压DK，见一次虐一次的那年，人气投票徐志雷一样把阿格雷鲷压的死死的，真要感激爹娘啊<img src="https://static.saraba1st.com/image/smiley/animal2017/007.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  鷹書たかしょ  
 ##### 49#       发表于 2020-7-26 20:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48222162&amp;ptid=1951401" target="_blank">银翼的维罗西 发表于 2020-7-26 20:05</a>
@@ -924,25 +574,13 @@ fg也是有我和09是朋友gtmd下面八我不可能输给一条狗的。
 —— 来自 OnePlus IN2010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  aisakahammer  
 ##### 50#       发表于 2020-7-26 20:17
 
 
-
-
   徐9C可是敌法冠名，小心DK遗老上门问责
-
-
-
-
-
 
 
 -----
@@ -951,16 +589,9 @@ fg也是有我和09是朋友gtmd下面八我不可能输给一条狗的。
 ##### 51#       发表于 2020-7-26 20:29
 
 
-
-
 EH3:1IG了
 
 版本答案：蛆宝宝
-
-
-
-
-
 
 
 -----
@@ -969,16 +600,9 @@ EH3:1IG了
 ##### 52#       发表于 2020-7-26 20:30
 
 
-
-
 这一波真是《情商》
 
 徐志雷有赛垃圾一半想赢的心也不至于最强殿军
-
-
-
-
-
 
 
 -----
@@ -987,14 +611,7 @@ EH3:1IG了
 ##### 53#       发表于 2020-7-26 20:32
 
 
-
-
 什么时候有今天的录播 很急很关键 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1003,21 +620,13 @@ EH3:1IG了
 ##### 54#       发表于 2020-7-26 20:35
 
 
-
-
 徐志雷是茶队把他的棺材本都亏没了，只能卖水友的饰品度日了吗
-
-
-
-
-
 
 
 -----
 
 ####  白色的120  
 ##### 55#       发表于 2020-7-26 20:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48222280&amp;ptid=1951401" target="_blank">aisakahammer 发表于 2020-7-26 20:17</a>
@@ -1027,16 +636,10 @@ EH3:1IG了
 — from Xiaomi MI 8, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  mowind  
 ##### 56#       发表于 2020-7-26 21:16
-
 
 
 <blockquote>鷹書たかしょ 发表于 2020-7-26 20:16
@@ -1047,16 +650,10 @@ EH3:1IG了
 徐志雷的老婆也是极品，zhaojieshiwode不就她老婆弄出来的。阿雕的老婆susuq简直贤妻良母
 
 
-
-
-
-
-
 -----
 
 ####  脑袋砸核桃  
 ##### 57#       发表于 2020-7-26 21:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48222834&amp;ptid=1951401" target="_blank">mowind 发表于 2020-7-26 21:16</a>
@@ -1065,26 +662,15 @@ EH3:1IG了
 这是福利妈教的吧
 
 
-
-
-
-
-
 -----
 
 ####  发光的球  
 ##### 58#       发表于 2020-7-26 21:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48222834&amp;ptid=1951401" target="_blank">mowind 发表于 2020-7-26 21:16</a>
 徐志雷的老婆也是极品，zhaojieshiwode不就她老婆弄出来的。阿雕的老婆susuq简直贤妻良母 ...</blockquote>
 贤妻，良母看着还没戏啊
-
-
-
-
-
 
 
 -----
@@ -1093,16 +679,10 @@ EH3:1IG了
 ##### 59#       发表于 2020-7-26 21:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48222834&amp;ptid=1951401" target="_blank">mowind 发表于 2020-7-26 21:16</a>
 
 徐志雷的老婆也是极品，zhaojieshiwode不就她老婆弄出来的。阿雕的老婆susuq简直贤妻良母 ...</blockquote>
 鳖瞎带节奏，是大妈前女友狐狸妈搞得
-
-
-
-
-
 
 
 -----
@@ -1111,14 +691,7 @@ EH3:1IG了
 ##### 60#       发表于 2020-7-26 22:06
 
 
-
-
 西恩dota堕落的开时，就是FG崛起那年吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1127,14 +700,7 @@ EH3:1IG了
 ##### 61#       发表于 2020-7-27 01:50
 
 
-
-
 杀鳖大会！杀鳖大会！<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1143,14 +709,7 @@ EH3:1IG了
 ##### 62#       发表于 2020-7-27 02:22
 
 
-
-
 杀一次鳖一个火箭 笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1159,14 +718,7 @@ EH3:1IG了
 ##### 63#       发表于 2020-7-27 02:30
 
 
-
-
 拒绝者妈妈粉要大战鳖粉？
-
-
-
-
-
 
 
 -----
@@ -1175,14 +727,7 @@ EH3:1IG了
 ##### 64#       发表于 2020-7-27 02:33
 
 
-
-
 拿皇赚疯了 sf逮着鳖鳖发条杀
-
-
-
-
-
 
 
 -----
@@ -1191,16 +736,9 @@ EH3:1IG了
 ##### 65#       发表于 2020-7-27 03:17
 
 
-
-
 风水轮流转转，被杀鳖组织这样侮辱，不哭不是真核核
 
 — from Xiaomi MI 8, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -1209,21 +747,13 @@ EH3:1IG了
 ##### 66#       发表于 2020-7-27 05:31
 
 
-
-
 SG BOOM了
-
-
-
-
-
 
 
 -----
 
 ####  白色的120  
 ##### 67#       发表于 2020-7-27 09:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48225463&amp;ptid=1951401" target="_blank">Narrative 发表于 2020-7-27 05:31</a>
@@ -1233,16 +763,10 @@ SG BOOM了</blockquote>
 — from Xiaomi MI 8, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  praetorian  
 ##### 68#       发表于 2020-7-27 10:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48220957&amp;ptid=1951401" target="_blank">沈经文 发表于 2020-7-26 17:29</a>
@@ -1251,16 +775,10 @@ SG BOOM了</blockquote>
 当年ehome的宣传图，核心人物和长相不错的怎么也是820。
 
 
-
-
-
-
-
 -----
 
 ####  gg142857  
 ##### 69#       发表于 2020-7-27 10:08
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
@@ -1272,25 +790,13 @@ SG BOOM了</blockquote>
 杀鳖杀鳖
 
 
-
-
-
-
-
 -----
 
 ####  DKAAA  
 ##### 70#       发表于 2020-7-27 10:26
 
 
-
-
 哎不知道说啥。不过徐志雷的直播是不好看 喜形于色。我也没看好多年了
-
-
-
-
-
 
 
 -----
@@ -1299,16 +805,9 @@ SG BOOM了</blockquote>
 ##### 71#       发表于 2020-7-27 11:39
 
 
-
-
 你们傻狗没有自己的论坛吗？
 
 —— 来自 Xiaomi MI 9, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -1317,14 +816,7 @@ SG BOOM了</blockquote>
 ##### 72#       发表于 2020-7-27 12:44
 
 
-
-
 徐志雷在ig当教练
-
-
-
-
-
 
 
 -----
@@ -1333,14 +825,7 @@ SG BOOM了</blockquote>
 ##### 73#       发表于 2020-7-27 20:07
 
 
-
-
 八师傅直播家事，这几天节奏也太多多多多多多多了
-
-
-
-
-
 
 
 -----
@@ -1349,14 +834,7 @@ SG BOOM了</blockquote>
 ##### 74#       发表于 2020-7-27 20:21
 
 
-
-
 下面八婚礼又要越办越好了？？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1365,15 +843,9 @@ SG BOOM了</blockquote>
 ##### 75#         楼主| 发表于 2020-7-27 20:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48232152&amp;ptid=1951401" target="_blank">ataraxian 发表于 2020-7-27 20:07</a>
 八师傅直播家事，这几天节奏也太多多多多多多多了</blockquote>
 本来想再发一贴，感觉会被塞忍住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1382,14 +854,7 @@ SG BOOM了</blockquote>
 ##### 76#       发表于 2020-7-27 20:23
 
 
-
-
 转型刀塔吃瓜砖楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1398,14 +863,7 @@ SG BOOM了</blockquote>
 ##### 77#       发表于 2020-7-27 20:24
 
 
-
-
 没想到面八这事竟然是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1414,13 +872,7 @@ SG BOOM了</blockquote>
 ##### 78#       发表于 2020-7-27 20:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sg造谣又成真啦
-
-
-
-
-
 
 
 -----
@@ -1429,14 +881,7 @@ SG BOOM了</blockquote>
 ##### 79#       发表于 2020-7-27 20:26
 
 
-
-
 你们论坛没有自己的刀狗么
-
-
-
-
-
 
 
 -----
@@ -1445,16 +890,9 @@ SG BOOM了</blockquote>
 ##### 80#       发表于 2020-7-27 20:31
 
 
-
-
 傻狗下午还在偷max+的图造谣，晚上一看中队亲自辟谣了：不是造谣是真的
 
 —— 来自 OnePlus IN2010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -1463,14 +901,7 @@ SG BOOM了</blockquote>
 ##### 81#       发表于 2020-7-27 20:35
 
 
-
-
 基德基德<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1479,14 +910,7 @@ SG BOOM了</blockquote>
 ##### 82#       发表于 2020-7-27 20:47
 
 
-
-
 又来一个大新闻，dead game颇有点起死回生的感觉
-
-
-
-
-
 
 
 -----
@@ -1495,21 +919,13 @@ SG BOOM了</blockquote>
 ##### 83#       发表于 2020-7-27 21:06
 
 
-
-
 = =难得EH有好成绩...不会又来个教练隐退一年,然后EH又沉沦多一年吧..
-
-
-
-
-
 
 
 -----
 
 ####  nerugigannte  
 ##### 84#       发表于 2020-7-27 21:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48232347&amp;ptid=1951401" target="_blank">鷹書たかしょ 发表于 2020-7-27 20:31</a>
@@ -1521,27 +937,15 @@ SG BOOM了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我记得昨天还是前天晚上有人就有人在说captain ceb切假腿了，造谣captain china 婚礼越办越好，基德基德 
 
 
-
-
-
-
-
 -----
 
 ####  蚊仔蚊仔蚊仔  
 ##### 85#       发表于 2020-7-27 21:16
 
 
-
-
 好一个围八救鳖<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 小辣椒采访的四个有两个都成风暴中心了，该保护保护狗哥和谢彬了，不过谢彬是谁？
-
-
-
-
-
 
 
 -----
@@ -1550,14 +954,7 @@ SG BOOM了</blockquote>
 ##### 86#       发表于 2020-7-27 21:17
 
 
-
-
 原来还有下面八提早下班直播打电话给老婆不接，回来儿子说妈妈把自己扔好婆家然后和憨憨叔叔出去玩这种事情<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1566,13 +963,7 @@ SG BOOM了</blockquote>
 ##### 87#       发表于 2020-7-27 21:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草
-
-
-
-
-
 
 
 -----
@@ -1581,14 +972,7 @@ SG BOOM了</blockquote>
 ##### 88#       发表于 2020-7-27 21:45
 
 
-
-
 这回总不是团队决策的结果了吧
-
-
-
-
-
 
 
 -----
@@ -1597,16 +981,9 @@ SG BOOM了</blockquote>
 ##### 89#       发表于 2020-7-27 21:45
 
 
-
-
 想起来不知道是说的：祝八师傅婚礼越办越好  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 基德基德
-
-
-
-
-
 
 
 -----
@@ -1615,14 +992,7 @@ SG BOOM了</blockquote>
 ##### 90#       发表于 2020-7-27 21:57
 
 
-
-
 dead game起死回生，全靠撕逼打架花边新闻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1631,13 +1001,7 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 ##### 91#       发表于 2020-7-27 22:00
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这围八救鳖太热闹了，听说八师傅直播说这事的时候还哭了。
-
-
-
-
-
 
 
 -----
@@ -1646,23 +1010,15 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 ##### 92#       发表于 2020-7-27 22:02
 
 
-
-
 基德基德
 
 —— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
 
 ####  白色的120  
 ##### 93#       发表于 2020-7-27 22:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48232297&amp;ptid=1951401" target="_blank">脑袋砸核桃 发表于 2020-7-27 20:24</a>
@@ -1672,16 +1028,10 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 — from Xiaomi MI 8, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  白色的120  
 ##### 94#       发表于 2020-7-27 22:13
-
 
 
  本帖最后由 白色的120 于 2020-7-27 22:14 编辑 
@@ -1691,16 +1041,10 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 — from Xiaomi MI 8, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  hcf220  
 ##### 95#       发表于 2020-7-27 22:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48233119&amp;ptid=1951401" target="_blank">白昼梦 发表于 2020-07-27 22:00:22</a>
@@ -1709,27 +1053,15 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  hcf220  
 ##### 96#       发表于 2020-7-27 22:13
 
 
-
-
 面八，一个深陷感情泥潭的男人
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -1738,16 +1070,9 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 ##### 97#       发表于 2020-7-27 22:15
 
 
-
-
 真的有憨憨叔叔从中作梗？
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -1756,16 +1081,10 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 ##### 98#       发表于 2020-7-27 22:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48233119&amp;ptid=1951401" target="_blank">白昼梦 发表于 2020-7-27 22:00</a>
 
 这围八救鳖太热闹了，听说八师傅直播说这事的时候还哭了。</blockquote>
 一开始只是说话有点哽咽，到后来话说不出直接哭了。还是稳了一下情绪才接着说的。
-
-
-
-
-
 
 
 -----
@@ -1774,17 +1093,10 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 ##### 99#       发表于 2020-7-27 22:19
 
 
-
-
 小糯米一开始搞直播的，max有人说直播那会儿，搞过商务5000一晚
 <img src="https://p.sda1.dev/0/fa7a4e7f01b6d808c8abc17fb45a28f1/IMG_DF54082B7C26AF69535549827C15C39F.jpeg" referrerpolicy="no-referrer">
 
 — from Xiaomi MI 8, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -1793,16 +1105,9 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 ##### 100#       发表于 2020-7-27 22:23
 
 
-
-
 会不会是火锅店老板买的微博热搜？
 
 —— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -1811,14 +1116,7 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 ##### 101#       发表于 2020-7-27 22:42
 
 
-
-
 直播平台买的热搜吧，自家还是对家就不好说了
-
-
-
-
-
 
 
 -----
@@ -1827,14 +1125,7 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 ##### 102#       发表于 2020-7-27 22:42
 
 
-
-
 直播平台买的热搜吧，自家还是对家就不好说了
-
-
-
-
-
 
 
 -----
@@ -1843,14 +1134,7 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 ##### 103#       发表于 2020-7-27 22:42
 
 
-
-
 你们刀狗没有自己的专楼么<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1859,14 +1143,7 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 ##### 104#       发表于 2020-7-27 23:03
 
 
-
-
 擦 最近刀圈节奏好多
-
-
-
-
-
 
 
 -----
@@ -1875,14 +1152,7 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 ##### 105#       发表于 2020-7-27 23:05
 
 
-
-
 只能祝八师傅婚礼越办越好了
-
-
-
-
-
 
 
 -----
@@ -1891,16 +1161,9 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 ##### 106#       发表于 2020-7-27 23:12
 
 
-
-
 别的不说，面⑧这波还挺可怜的
 
 不过前提是后面不要有啥反转
-
-
-
-
-
 
 
 -----
@@ -1909,16 +1172,9 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 ##### 107#       发表于 2020-7-27 23:23
 
 
-
-
 不奇怪 一个已经结婚生子的女人 天天出去玩拍写真做头发 微博朋友圈还转发点赞拳法内容 三观不和离婚太正常了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 苦了8王了 被用了均富卡两次 ti奖金都花光了吧 还要掏抚养费直到18
-
-
-
-
-
 
 
 -----
@@ -1927,14 +1183,7 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 ##### 108#       发表于 2020-7-27 23:35
 
 
-
-
 #火锅店老板找肖战公关团队抹黑圙师傅#
-
-
-
-
-
 
 
 -----
@@ -1943,14 +1192,7 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 ##### 109#       发表于 2020-7-27 23:55
 
 
-
-
 太惨，想知道这样离婚了，面八还要养这个女的吗<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1959,16 +1201,9 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 ##### 110#       发表于 2020-7-27 23:58
 
 
-
-
 今年没ti所以只能靠整活维持热度了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -1977,16 +1212,9 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 ##### 111#       发表于 2020-7-28 00:06
 
 
-
-
 基德基德 下面8也太惨了
 
 —— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -1995,14 +1223,7 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 ##### 112#       发表于 2020-7-28 00:07
 
 
-
-
 喷了，徐志雷客厅滑轨
-
-
-
-
-
 
 
 -----
@@ -2011,15 +1232,9 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 ##### 113#       发表于 2020-7-28 00:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48233329&amp;ptid=1951401" target="_blank">白色的120 发表于 2020-7-27 22:19</a>
 小糯米一开始搞直播的，max有人说直播那会儿，搞过商务5000一晚</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">拿支付宝试了下还真是陈彤
-
-
-
-
-
 
 
 -----
@@ -2028,14 +1243,7 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 ##### 114#       发表于 2020-7-28 00:32
 
 
-
-
 八师傅的婚礼真的越办越好了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2044,15 +1252,8 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 ##### 115#       发表于 2020-7-28 01:20
 
 
-
-
 杀鳖大会好
 下面八小天鹅逛多了，找的这些女人
-
-
-
-
-
 
 
 -----
@@ -2061,14 +1262,7 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 ##### 116#       发表于 2020-7-28 07:30
 
 
-
-
 基德基德<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2077,14 +1271,7 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 ##### 117#       发表于 2020-7-28 08:24
 
 
-
-
 我傻了怎么一转进面八节奏了
-
-
-
-
-
 
 
 -----
@@ -2093,14 +1280,7 @@ dead game起死回生，全靠撕逼打架花边新闻了<img src="https://stati
 ##### 118#       发表于 2020-7-28 08:54
 
 
-
-
 sg造谣成功
-
-
-
-
-
 
 
 -----
@@ -2109,14 +1289,7 @@ sg造谣成功
 ##### 119#       发表于 2020-7-28 10:41
 
 
-
-
 祝八师傅的婚礼越办越好
-
-
-
-
-
 
 
 -----
@@ -2125,17 +1298,10 @@ sg造谣成功
 ##### 120#       发表于 2020-7-28 10:50
 
 
-
-
 全TM赖肉九！八师傅第一次结婚他没去，还说“对不起，下次一定去”
 结果八师傅第二次结婚没办婚礼
 
 —— 来自 OnePlus IN2010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -2144,16 +1310,9 @@ sg造谣成功
 ##### 121#       发表于 2020-7-28 18:22
 
 
-
-
 下面八事归b贴是我万万没想到的
 
 —— 来自 Xiaomi MI 9, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -2162,21 +1321,13 @@ sg造谣成功
 ##### 122#       发表于 2020-7-28 19:10
 
 
-
-
 要么把出狱的赵洁再娶回来吧，正好孩子也有了
-
-
-
-
-
 
 
 -----
 
 ####  刻刻帝  
 ##### 123#       发表于 2020-7-28 20:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48241780&amp;ptid=1951401" target="_blank">屠夫 发表于 2020-7-28 19:10</a>
@@ -2186,17 +1337,10 @@ sg造谣成功
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  iceplatinum  
 ##### 124#       发表于 2020-7-28 20:31
-
-
 
 
 面8被绿了2次了啊...
@@ -2204,16 +1348,10 @@ sg造谣成功
 面8还是名声太显了，小天鹅人尽所知，女方肯定会底线也低些啊
 
 
-
-
-
-
-
 -----
 
 ####  三千珈蓝  
 ##### 125#       发表于 2020-7-28 20:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48242365&amp;ptid=1951401" target="_blank">刻刻帝 发表于 2020-7-28 20:20</a>
@@ -2225,24 +1363,13 @@ sg造谣成功
 小道消息说是之前和人合伙搞p2p进去了，真假存疑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mkii量产型  
 ##### 126#       发表于 2020-7-28 20:43
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">八师傅以身作则确定了女人不能娶到互联网真理
-
-
-
-
-
 
 
 -----
@@ -2251,14 +1378,7 @@ sg造谣成功
 ##### 127#       发表于 2020-7-28 20:49
 
 
-
-
 意思是“好帽子，八王戴？”
-
-
-
-
-
 
 
 -----
@@ -2267,14 +1387,7 @@ sg造谣成功
 ##### 128#       发表于 2020-7-28 20:59
 
 
-
-
 火锅店买通8老板老婆搞事转移话题
-
-
-
-
-
 
 
 -----
@@ -2283,14 +1396,7 @@ sg造谣成功
 ##### 129#       发表于 2020-7-28 21:35
 
 
-
-
 下面8找那些女人能长久才怪了  何况本身就不是啥好鸟
-
-
-
-
-
 
 
 -----
@@ -2299,16 +1405,10 @@ sg造谣成功
 ##### 130#       发表于 2020-7-29 16:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48219832&amp;ptid=1951401" target="_blank">toyassb 发表于 2020-7-26 14:17</a>
 
 你们刀狗没有自己的论坛么</blockquote>
 唯一电竞给你面子你别不知好歹
-
-
-
-
-
 
 
 -----
@@ -2317,14 +1417,7 @@ sg造谣成功
 ##### 131#       发表于 2020-7-29 17:08
 
 
-
-
 直播平台买的热搜吧，自家还是对家就不好说了
-
-
-
-
-
 
 
 -----
@@ -2333,16 +1426,10 @@ sg造谣成功
 ##### 132#       发表于 2020-7-29 18:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48250615&amp;ptid=1951401" target="_blank">ishikawa_k 发表于 2020-7-29 17:08</a>
 
 直播平台买的热搜吧，自家还是对家就不好说了</blockquote>
 斗鱼虎牙不是一直在传合并，没准是腾讯买的。。。
-
-
-
-
-
 
 
 -----
@@ -2351,24 +1438,15 @@ sg造谣成功
 ##### 133#       发表于 2020-7-29 21:00
 
 
-
-
 原来这事在s1也这么热闹啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
 
 ####  何然  
 ##### 134#       发表于 2020-7-30 12:37
-
-
 
 
 看了下带节奏的截的rep分析
@@ -2378,16 +1456,10 @@ sg造谣成功
 我钢针，3000分玩家都没这么智障的了吧...
 
 
-
-
-
-
-
 -----
 
 ####  枯风瘦雪  
 ##### 135#       发表于 2020-7-30 12:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48259191&amp;ptid=1951401" target="_blank">何然 发表于 2020-07-30 12:37:16</a>
@@ -2401,26 +1473,15 @@ sg造谣成功
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  何然  
 ##### 136#       发表于 2020-7-30 12:46
 
 
-
 <blockquote>枯风瘦雪 发表于 2020-7-30 12:45
 burning自己线上被强杀两次觉得自己崩了要补刷钱装，复盘的时候才发现他开始钻野的时候所有大哥经济都差不 ...</blockquote>
 被杀两次就觉得自己崩了？不看经济面板的？还是说退役选手连多少分钟多少经济都没b数的吗…
-
-
-
-
-
 
 
 -----
@@ -2429,16 +1490,10 @@ burning自己线上被强杀两次觉得自己崩了要补刷钱装，复盘的�
 ##### 137#       发表于 2020-7-30 13:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48259301&amp;ptid=1951401" target="_blank">何然 发表于 2020-07-30 12:46:19</a>
 被杀两次就觉得自己崩了？不看经济面板的？还是说退役选手连多少分钟多少经济都没b数的吗… ...</blockquote>这个谁知道他临场怎么想的，这个“我崩了”的话还是他被何雍正吐槽打法心态爆炸才吐出来的……其实按我看法，一个TB，5级双系带假腿进野开始刷，这发育情况简直不要太正常……
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -2447,13 +1502,7 @@ burning自己线上被强杀两次觉得自己崩了要补刷钱装，复盘的�
 ##### 138#       发表于 2020-7-30 13:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这事好像鳖不过去了呀，互联网的记忆这次不止三天，以后如果鳖鳖还出来解说，满屏都是这些吧
-
-
-
-
-
 
 
 -----
@@ -2462,23 +1511,16 @@ burning自己线上被强杀两次觉得自己崩了要补刷钱装，复盘的�
 ##### 139#       发表于 2020-7-30 14:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48259975&amp;ptid=1951401" target="_blank">nerugigannte 发表于 2020-7-30 13:38</a>
 
 这事好像鳖不过去了呀，互联网的记忆这次不止三天，以后如果鳖鳖还出来解说，满屏都是这些吧 ...</blockquote>
 以后解说比赛的时候估计满屏弹幕都是要求XZ雷和嘉宾的MA连麦了
 
 
-
-
-
-
-
 -----
 
 ####  何然  
 ##### 140#       发表于 2020-7-30 14:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48259661&amp;ptid=1951401" target="_blank">枯风瘦雪 发表于 2020-7-30 13:13</a>
@@ -2489,31 +1531,19 @@ burning自己线上被强杀两次觉得自己崩了要补刷钱装，复盘的�
 一般来说我是这个状态的话，判定是“这把还挺顺”
 
 
-
-
-
-
-
 -----
 
 ####  白昼梦  
 ##### 141#       发表于 2020-7-30 14:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鳖式刀塔是这样的啊
-
-
-
-
-
 
 
 -----
 
 ####  何然  
 ##### 142#       发表于 2020-7-30 14:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48259975&amp;ptid=1951401" target="_blank">nerugigannte 发表于 2020-7-30 13:38</a>
@@ -2526,16 +1556,10 @@ burning自己线上被强杀两次觉得自己崩了要补刷钱装，复盘的�
 如果他是想赢的话，出装思路真的配不上“退役职业选手”这个称号...
 
 
-
-
-
-
-
 -----
 
 ####  FateAlter  
 ##### 143#       发表于 2020-7-30 15:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48233329&amp;ptid=1951401" target="_blank">白色的120 发表于 2020-7-27 22:19</a>
@@ -2544,16 +1568,10 @@ burning自己线上被强杀两次觉得自己崩了要补刷钱装，复盘的�
 放一开始我肯定还怀疑下，不过MAX这个爆出来之前我就听同学的朋友说以前和小糯米是**，再加上这手机号的支付宝还真是陈彤，我感觉八九不离十好吧
 
 
-
-
-
-
-
 -----
 
 ####  白色的120  
 ##### 144#       发表于 2020-7-30 15:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48260299&amp;ptid=1951401" target="_blank">♂藤冈豆腐店♂ 发表于 2020-7-30 14:03</a>
@@ -2563,17 +1581,10 @@ burning自己线上被强杀两次觉得自己崩了要补刷钱装，复盘的�
 — from Xiaomi MI 8, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  TheOccuria  
 ##### 145#       发表于 2020-7-30 16:01
-
-
 
 
 憋憋那把不算顺吧，不过问题是对面巨魔更不顺。憋点金没看懂，我是觉得tb光靠分身刷的就很快了，哪怕真崩了也没有单刀后补个点金的道理
@@ -2584,32 +1595,19 @@ burning自己线上被强杀两次觉得自己崩了要补刷钱装，复盘的�
 真要说崩，上路那波队友去追残血，留tb被巨魔把鳖壳都搂碎了弄得心态崩了吧
 
 
-
-
-
-
-
 -----
 
 ####  43453  
 ##### 146#       发表于 2020-7-30 17:02
 
 
-
-
 鳖式打发真是让我粉转黑了，本来IG那段时间治好病了又复发，鳖加黑脸真活该没成绩
-
-
-
-
-
 
 
 -----
 
 ####  何然  
 ##### 147#       发表于 2020-7-30 17:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48261767&amp;ptid=1951401" target="_blank">TheOccuria 发表于 2020-7-30 16:01</a>
@@ -2624,16 +1622,10 @@ burning自己线上被强杀两次觉得自己崩了要补刷钱装，复盘的�
 可能这就是第一C的理解吧..
 
 
-
-
-
-
-
 -----
 
 ####  fr0stzer0  
 ##### 148#       发表于 2020-7-30 17:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48261598&amp;ptid=1951401" target="_blank">白色的120 发表于 2020-7-30 15:48</a>
@@ -2643,16 +1635,10 @@ burning自己线上被强杀两次觉得自己崩了要补刷钱装，复盘的�
 舔马/眼是什么事？这个我不清楚啊，能说说嘛
 
 
-
-
-
-
-
 -----
 
 ####  jy000129  
 ##### 149#       发表于 2020-7-30 18:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48262992&amp;ptid=1951401" target="_blank">fr0stzer0 发表于 2020-7-30 17:32</a>
@@ -2662,16 +1648,10 @@ burning自己线上被强杀两次觉得自己崩了要补刷钱装，复盘的�
 —— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  Keynes  
 ##### 150#       发表于 2020-7-30 18:38
-
 
 
  本帖最后由 Keynes 于 2020-7-30 18:42 编辑 
@@ -2683,14 +1663,8 @@ burning自己线上被强杀两次觉得自己崩了要补刷钱装，复盘的�
 另外补充一下：还有一个耗🐎hao<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
 5ead1a087bf40ad16795550a5a2c11dfa8ecce38.jpg
 (157.81 KB, 下载次数: 3)
-
-
 
 
 下载附件
@@ -2699,31 +1673,13 @@ burning自己线上被强杀两次觉得自己崩了要补刷钱装，复盘的�
 2020-7-30 18:38 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202007/30/183819jns6aeoxtmdazz0z.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  fr0stzer0  
 ##### 151#       发表于 2020-7-30 20:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48263620&amp;ptid=1951401" target="_blank">Keynes 发表于 2020-7-30 18:38</a>
@@ -2734,16 +1690,10 @@ burning自己线上被强杀两次觉得自己崩了要补刷钱装，复盘的�
 你一放这张图我就想起来了，还是泽宇人气不大，不怎么被提起。
 
 
-
-
-
-
-
 -----
 
 ####  恶搞之王  
 ##### 152#       发表于 2020-7-31 12:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48265032&amp;ptid=1951401" target="_blank">fr0stzer0 发表于 2020-07-30 20:53:34</a>
@@ -2752,16 +1702,10 @@ burning自己线上被强杀两次觉得自己崩了要补刷钱装，复盘的�
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  山下野人  
 ##### 153#       发表于 2020-7-31 13:56
-
 
 
 <blockquote>何然 发表于 2020-7-30 17:07
@@ -2773,17 +1717,10 @@ burning自己线上被强杀两次觉得自己崩了要补刷钱装，复盘的�
 末日点金不怎么补经济都能把自己的经济稳定在第一梯队
 
 
-
-
-
-
-
 -----
 
 ####  absaki  
 ##### 154#       发表于 2020-8-3 00:20
-
-
 
 
 一般来说dota2论坛不会想到泥潭
@@ -2794,16 +1731,10 @@ burning自己线上被强杀两次觉得自己崩了要补刷钱装，复盘的�
 —— 来自 Xiaomi MI 9, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  莉拉厨  
 ##### 155#       发表于 2020-8-3 00:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48299826&amp;ptid=1951401" target="_blank">absaki 发表于 2020-08-03 00:20:08</a>
@@ -2814,16 +1745,10 @@ burning自己线上被强杀两次觉得自己崩了要补刷钱装，复盘的�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  absaki  
 ##### 156#       发表于 2020-8-3 00:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48299850&amp;ptid=1951401" target="_blank">莉拉厨 发表于 2020-8-3 00:23</a>
@@ -2836,17 +1761,10 @@ fy说不用退了 已经叫boa收回来再发了太搞笑了
 —— 来自 Xiaomi MI 9, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  absaki  
 ##### 157#       发表于 2020-8-3 00:27
-
-
 
 
 我今天生气了 哼
@@ -2856,17 +1774,10 @@ fy说不用退了 已经叫boa收回来再发了太搞笑了
 —— 来自 Xiaomi MI 9, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  zievod  
 ##### 158#       发表于 2020-8-3 04:59
-
-
 
 
 面八的事情一点不同情 一个愿打一个愿挨
@@ -2881,24 +1792,13 @@ fy说不用退了 已经叫boa收回来再发了太搞笑了
 —— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  树洞专用  
 ##### 159#       发表于 2020-8-3 05:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">我的粉丝我的狗，发错红包了收回来怎么了？我就是要一个个私聊，领了不还的直接踢出粉丝群
-
-
-
-
-
 
 
 -----
@@ -2907,21 +1807,15 @@ fy说不用退了 已经叫boa收回来再发了太搞笑了
 ##### 160#       发表于 2020-8-3 07:57
 
 
-
-
 我真是杀了雪菜的妈了，昨天晚上傻狗发的帖子今天早上还在审核
 而且我在贴吧和max看不到类似帖子，这两个地方什么成分卜用我多说了8<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi MI 9, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -2931,12 +1825,7 @@ fy说不用退了 已经叫boa收回来再发了太搞笑了
 | 强袭目田| + 1|白丝拳王跪了就是跪了|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -2945,21 +1834,13 @@ fy说不用退了 已经叫boa收回来再发了太搞笑了
 ##### 161#       发表于 2020-8-3 08:33
 
 
-
-
 草，烟花神还是有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  jy000129  
 ##### 162#       发表于 2020-8-3 08:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48299826&amp;ptid=1951401" target="_blank">absaki 发表于 2020-8-3 00:20</a>
@@ -2970,16 +1851,10 @@ fy说不用退了 已经叫boa收回来再发了太搞笑了
 红包还能要回来的
 
 
-
-
-
-
-
 -----
 
 ####  jy000129  
 ##### 163#       发表于 2020-8-3 08:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48300658&amp;ptid=1951401" target="_blank">zievod 发表于 2020-8-3 04:59</a>
@@ -2992,24 +1867,13 @@ fy说不用退了 已经叫boa收回来再发了太搞笑了
 刀juan还有哪几个老婆很危险的？我就觉得瞎抖女朋友肯定是个雷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  DK.BurNIng  
 ##### 164#       发表于 2020-8-3 09:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">小气鬼
-
-
-
-
-
 
 
 -----
@@ -3018,15 +1882,9 @@ fy说不用退了 已经叫boa收回来再发了太搞笑了
 ##### 165#       发表于 2020-8-3 09:04
 
 
-
 <blockquote>jy000129 发表于 2020-8-3 08:56
 刀juan还有哪几个老婆很危险的？我就觉得瞎抖女朋友肯定是个雷</blockquote>
 你应该问哪个不危险
-
-
-
-
-
 
 
 -----
@@ -3035,16 +1893,10 @@ fy说不用退了 已经叫boa收回来再发了太搞笑了
 ##### 166#       发表于 2020-8-3 09:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48301310&amp;ptid=1951401" target="_blank">Pebble 发表于 2020-8-3 09:04</a>
 
 你应该问哪个不危险</blockquote>
 枫哥的大概还好   吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3053,21 +1905,13 @@ fy说不用退了 已经叫boa收回来再发了太搞笑了
 ##### 167#       发表于 2020-8-3 09:13
 
 
-
-
 大早上的fy粉丝群管理还在装死，昨天答应的再发红包一点消息都没<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  absaki  
 ##### 168#       发表于 2020-8-3 11:09
-
 
 
 <img src="https://p.sda1.dev/0/b938828622155142c0ee93b262acd8a7/IMG_FDCB2244AA98A6371815ADF42761BAE6.jpeg" referrerpolicy="no-referrer">
@@ -3078,16 +1922,10 @@ fy说不用退了 已经叫boa收回来再发了太搞笑了
 —— 来自 Xiaomi MI 9, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  nerugigannte  
 ##### 169#       发表于 2020-8-3 11:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48301310&amp;ptid=1951401" target="_blank">Pebble 发表于 2020-8-3 09:04</a>
@@ -3096,16 +1934,10 @@ fy说不用退了 已经叫boa收回来再发了太搞笑了
 永不怀孕susuq，吧
 
 
-
-
-
-
-
 -----
 
 ####  夜游的树  
 ##### 170#       发表于 2020-8-3 12:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48300658&amp;ptid=1951401" target="_blank">zievod 发表于 2020-08-03 04:59:56</a>
@@ -3116,16 +1948,10 @@ fy说不用退了 已经叫boa收回来再发了太搞笑了
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  zievod  
 ##### 171#       发表于 2020-8-3 15:06
-
 
 
  本帖最后由 zievod 于 2020-8-3 15:11 编辑 
@@ -3146,26 +1972,13 @@ fy说不用退了 已经叫boa收回来再发了太搞笑了
 昨天阿雕头铁 ssq还过来问夜宵吃啥 半夜吃狗粮
 
 
-
-
-
-
-
-
 -----
 
 ####  色中饿鬼  
 ##### 172#       发表于 2020-8-3 15:13
 
 
-
-
 你们刀狗非要和我抢粪坑吗
-
-
-
-
-
 
 
 -----
@@ -3174,16 +1987,10 @@ fy说不用退了 已经叫boa收回来再发了太搞笑了
 ##### 173#       发表于 2020-8-4 16:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48301310&amp;ptid=1951401" target="_blank">Pebble 发表于 2020-8-3 09:04</a>
 
 你应该问哪个不危险</blockquote>
 宝哥啊，说实话我就知道宝哥老婆是他邻居，其他啥都不知道，理论上这种最安全，因为跟圈子根本没交集
-
-
-
-
-
 
 
 -----
@@ -3192,16 +1999,9 @@ fy说不用退了 已经叫boa收回来再发了太搞笑了
 ##### 174#       发表于 2020-8-4 17:00
 
 
-
-
 fy这事要是鳖鳖什么的来干
 
 节奏估计能真的上热搜（
-
-
-
-
-
 
 
 -----
@@ -3210,20 +2010,13 @@ fy这事要是鳖鳖什么的来干
 ##### 175#       发表于 2020-8-4 17:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今晚好像巨龙拉憋憋对黑，虎牙这么急吗，这就给黄翔下任务了
-
-
-
-
-
 
 
 -----
 
 ####  TheOccuria  
 ##### 176#       发表于 2020-8-4 17:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48316155&amp;ptid=1951401" target="_blank">何然 发表于 2020-8-4 17:00</a>
@@ -3236,24 +2029,13 @@ fy这事要是鳖鳖什么的来干
 不过以后fy变菜了这事迟早得当个梗，刀狗的记性还是挺好的
 
 
-
-
-
-
-
 -----
 
 ####  白昼梦  
 ##### 177#       发表于 2020-8-4 17:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看今晚徐志雷来巨龙major能多多少节奏
-
-
-
-
-
 
 
 -----
@@ -3262,13 +2044,7 @@ fy这事要是鳖鳖什么的来干
 ##### 178#       发表于 2020-8-4 17:27
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等着看今晚杀鳖大会了
-
-
-
-
-
 
 
 -----
@@ -3277,14 +2053,7 @@ fy这事要是鳖鳖什么的来干
 ##### 179#       发表于 2020-8-4 17:37
 
 
-
-
 难得看见fg开粉丝发言，硬是要带鳖，看来虎牙也急了
-
-
-
-
-
 
 
 -----
@@ -3293,14 +2062,7 @@ fy这事要是鳖鳖什么的来干
 ##### 180#       发表于 2020-8-4 17:47
 
 
-
-
 峰哥毕竟情商哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3309,12 +2071,7 @@ fy这事要是鳖鳖什么的来干
 ##### 181#       发表于 2020-8-4 17:50
 
 
-
-
 好像开了没啥用啊，我没牌子也能说话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
 
 
                                            
